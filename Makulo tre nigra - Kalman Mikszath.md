@@ -5,29 +5,18 @@ Makulo
 tre nigra
 
 
-### 1
-
 MAKULO TRE NIGRA
 
 
 Kálmán Mikszáth
 
-MAKULO TRE NIGRA
 
 Tradukis el la hungara Jozefo Horvath
 
 
-@omnibus.se
-
-
-MAKULO TRE NIGRA
-
-
 Ne ekzistas ŝafejo, komparebla al tiu de Brezina.
 
-i havas kalkitajn murojn, ruĝan tegmenton; la pordegon garnas plumbonajloj. En ĝia ĉirkaŭo floras tulipoj. Altaj, centjaraj arboj kovras ĝin milde, ombro ka-
-
-ŝas ĝin garde: ĝin ne vidu ajna ventkapulo. Elaltiĝas nur la svelta kamentubo, pipanta indiferente ĉe la fino de la konstruo, kie la ŝafomastroj vivas kun siaj brutoj sub komuna tegmento.
+i havas kalkitajn murojn, ruĝan tegmenton; la pordegon garnas plumbonajloj. En ĝia ĉirkaŭo floras tulipoj. Altaj, centjaraj arboj kovras ĝin milde, ombro kaŝas ĝin garde: ĝin ne vidu ajna ventkapulo. Elaltiĝas nur la svelta kamentubo, pipanta indiferente ĉe la fino de la konstruo, kie la ŝafomastroj vivas kun siaj brutoj sub komuna tegmento.
 
 Disbabilu ja la kirliĝanta fumo de tiu kamentubo, ke la fama ŝafomastro1 Tomaso Olej kuiras hejme ĝuste
 
@@ -41,16 +30,12 @@ Kolumo arĝentas,
 
 Tintilo orsonas.
 
-1 ŝafomastro: estro de ŝafistoj kun granda memstareco, ŝuldanta doni konton nur al la proprietulo de la ŝafaro 3
-
-MAKULO TRE NIGRA
+1 ŝafomastro: estro de ŝafistoj kun granda memstareco, ŝuldanta doni konton nur al la proprietulo de la ŝafaro
 
 
 Kaj kiam la mil brutoj paŝadas sur la rosobrila herbejo, antaŭe la naŭ grandaj tintilŝafoj, saltetante la idoj, reveme la junŝafinoj, digne-serioze la cent silke-lanaj ŝafukoj2, do se tiel kunestas la tuta grego, kaj la hundo Merkuj vigle kurpelas, por kunteni ilin en rondo, la koro de Tomaso Olej ŝvelas brustoleve pro fiera plezuro, kiel tiu de reganto, antaŭ kiu defiladas liaj taĉmentoj.
 
-Vicŝafisto en pimpa feltmantelo akompanas la ŝafojn ĉi-flanke, dum aliflanke la ŝafomastro mem paŝadas poste, tenere observante ilin, konatajn unuope, eĉ laŭ-
-
-kolore.
+Vicŝafisto en pimpa feltmantelo akompanas la ŝafojn ĉi-flanke, dum aliflanke la ŝafomastro mem paŝadas poste, tenere observante ilin, konatajn unuope, eĉ laŭkolore.
 
 La mislerta junŝafo tie, foje erarvagis en vepron, kaj implikiĝis en neŝireblajn dornovergojn kaj klematidojn.
 
@@ -58,9 +43,7 @@ Merkuj retrovis ĝin, brave liberigis kaj duonmortan re-trenis ĝin al la grego.
 
 Kaj al tiu ŝafuko kun torditaj kornoj, apud tiu nigra ŝafidino, rompiĝis la maldekstra postkruro antaŭ du jaroj. i premfiksiĝis ĉe la ŝafeja pordo. Olej trudis ĝin inter tri lignopecojn, kaj kuracadis la kompatindan bes-ton tiel persiste, ke nun ĉiuj kvar kruroj montras perfek-te saman formon, kvazaŭ laŭkomande.
 
-Tiu sendenta, maljuna patrinŝafo, kiu nun vigle skra-pas la sekan herbon, por satiĝi bonapetite per la herbo, kreskinta sube-kaŝe, hu, kia friponeto ĝi iam estis! i 2 ŝafuko: kastrita ŝafo; vd. PAG P. 372 R. II 4
-
-MAKULO TRE NIGRA
+Tiu sendenta, maljuna patrinŝafo, kiu nun vigle skra-pas la sekan herbon, por satiĝi bonapetite per la herbo, kreskinta sube-kaŝe, hu, kia friponeto ĝi iam estis! i 2 ŝafuko: kastrita ŝafo; vd. PAG P. 372 R. II
 
 
 naskiĝis en tranĉe frosta nokto, kaj antaŭtempe. Kiam ĉirkaŭ noktomezo la ŝafomastro enrigardis la ŝafejon, ĝi jam estis duone frostmortinta. La patrino mem mal-sanis, kaj ne povis varmigi ĝin per sia elspiro: mankis ne-multe por ĝia morto… Olej prenis la senpovan besteton, portis ĝin en la ĉambron, sed ja ankaŭ tie malvarmis, do li kuŝigis ĝin prove en la liton de la eta Annjo, inter var-majn kusenojn. La infano kaj la ŝafido dormis kune, ne sciante unu pri la alia. Matene, kiam ili vekiĝis, la infano ridetis pro la reviviĝinta besteto, kaj ĉi tiu vigle sku-adis la voston. Ambaŭ ĝojis, kaj nek la ridetanta infano, nek la vigla ŝafido jam havis patrinon.
@@ -71,9 +54,7 @@ La sinjoro volis tiel. Inter liaj tri sinjoroj plej potencas Dio, lin oni ne inc
 
 ĝi la tutan mondon, batas per ĝi laŭplaĉe; sed eĉ se do-loras la postsigno de la bato, la pacienco kuracas ĝin.
 
-Olej estimas kiel sian sinjoron ankaŭ lian princan moŝton de Talár, al kiu li ŝuldas doni konton, al kiu apartenas tuta Brezina kun la ŝafejo, ĉio ene kaj ekstere kaj ankoraŭ pli: ĉio ĉirkaŭe, ĝis la vido atingas. La 5
-
-MAKULO TRE NIGRA
+Olej estimas kiel sian sinjoron ankaŭ lian princan moŝton de Talár, al kiu li ŝuldas doni konton, al kiu apartenas tuta Brezina kun la ŝafejo, ĉio ene kaj ekstere kaj ankoraŭ pli: ĉio ĉirkaŭe, ĝis la vido atingas. La
 
 
 princo de Talár estas potenca, granda homo, por kiu oni sonorigos en sepdek vilaĝoj, kiam li mortos, kaj al kiu oni demetos la ĉapelon en naŭ departementoj, ĝis kiam li vivos. Tomaso servas lin fidele; ne saĝas ja tiu homo, kiu fortranĉas la branĉojn de la arbo, en kies ombron li retiriĝas. Kaj kio koncernas la ceterulojn, neniu alia povas ordoni al la ŝafomastro de Brezina. Lia moŝto staras sur propraj piedoj. Neniun li nocas, ankaŭ lin nocu neniu. Tiu eta feblo, ke de tempo al tempo venas ŝafo en lian kaldronon, kiu ne apartenas ekde la mondokreo al lia ŝafaro, ne konsideriĝas peko, tio ja enestas en la naturo de pornaskitaj paŝtistoj, kion ĉiu saĝa homo scias, escepte la respektinda departementa administracio, kiu havas nanian senson al paŝtistaj moroj.
@@ -85,26 +66,19 @@ Olej ne apartenas al sentemuloj; de kiu ja lerni sente-mon? Li ne kunvivis kun h
 Tamen en nia heroo enestis tiu instinkto, tiu prafor-to, kiun Dio inokulis en la plej sovaĝajn, nekulturitajn korojn eble kun la celo, ke estu en ili io, kio igu ilin turniĝi foje-foje al Lia vizaĝo.
 
 
-MAKULO TRE NIGRA
-
-
 Kvankam li ne pli amis Annjon, ol sian ŝatatan ŝafi-don, sed se Dio foje forgesis tiun birdeton sur lia kolo, li ne povis almeti ŝin prede al lupoj sur la herbejon, do li dungis nutristinon por ŝi, kaj vartadis ŝin laŭbezone.
 
 Nun ŝi jam kreskis granda knabino, mem preparas la kuminan supon kaj la ŝafperkelton3, mem tajlas kaj ku-dras subvestojn por Olej kaj la vicŝafisto.
 
 … ŝi jam posedas tiom da konoj, kiel ŝia patrino. Nu jes, Tomaso bedaŭris sufiĉe la patrinon, kiam ŝi mortis.
 
-Estis bona edzino, Dio ripozigu ŝin en paco. ŝi vere meritis la indan sepulton kun la trifoja sonorilado, duhora versa adiaŭigo. La homoj vivantaj transe, en la vilaĝo, kaj senĉese kverelantaj inter si, riproĉis lin, ke la ”sovaĝ-
-
-besto de arbaroj” ne ploris pri Borinjo, ili ne vidis ĉe li eĉ larmeron.
+Estis bona edzino, Dio ripozigu ŝin en paco. ŝi vere meritis la indan sepulton kun la trifoja sonorilado, duhora versa adiaŭigo. La homoj vivantaj transe, en la vilaĝo, kaj senĉese kverelantaj inter si, riproĉis lin, ke la ”sovaĝbesto de arbaroj” ne ploris pri Borinjo, ili ne vidis ĉe li eĉ larmeron.
 
 Olej ne kapablas orientiĝi pri la vilaĝaj moroj. Li ne ploris, li ja ne emis. De kie li scius, ke la deco postulas tion. La neparolemaj arboj de Brezina ne instruis lin mensogi.
 
 Borinjo mortis, estas for, neniam ŝi revenos. La koro premiĝis al li. Senvorte, kun malkovrita kapo li akompa-nis ŝin ĝis la eterna dormejo, post la sepulto pagis la pas-tron kaj la kantoron, kun amara sento premis la vastan ĉapelon sur la kapon, kaj ekiris al la ruĝtegmenta ŝafejo.
 
-3 perkelto: vianda stufaĵo kun papriko en grasa suko 7
-
-MAKULO TRE NIGRA
+3 perkelto: vianda stufaĵo kun papriko en grasa suko
 
 
 Pri kio li meditis dumvoje?
@@ -123,12 +97,7 @@ Kaj eĉ nun, post dek ses jaroj, kiam la vento plezure portas la revemajn kantoj
 
 i venas el inter la arboj, kaj forŝvebas inter ili. Arbustoj ektremas pro ĝi, ĝi traondas herbojn, kaj profundega silento descendas post ĝi al Brezina.
 
-La koro de la ŝafomastro batas pli forte, li eklevas la kapon. ĉu denove aŭdiĝos la vorto ”Tomaso” per tiu konata, iama voĉo, kiun eble antaŭ dek ses jaroj forkap-8
-
-MAKULO TRE NIGRA
-
-
-tis la e˛o de sur tiuj belaj, ruĝaj lipoj, kiujn la vermoj sube, en la nigra tero muelis en cindrokoloran polvon.
+La koro de la ŝafomastro batas pli forte, li eklevas la kapon. ĉu denove aŭdiĝos la vorto ”Tomaso” per tiu konata, iama voĉo, kiun eble antaŭ dek ses jaroj forkaptis la e˛o de sur tiuj belaj, ruĝaj lipoj, kiujn la vermoj sube, en la nigra tero muelis en cindrokoloran polvon.
 
 Kaj dum dek ses jaroj la e˛o de Brezina ĉiam pludo-nis tiun voĉon; arbaro al arbaro, rojo al rojo transŝuŝis
 
@@ -138,9 +107,7 @@ Aŭ ne tiel estas?
 
 ĉu la ombro de la mortinta edzino pasas inter la arboj, ĉu alparolis lin en sia dolĉa, milda voĉo? Aŭ okazas, ke tiu voĉo gravuriĝis iam en lian koron, kaj ĝi nun dis-volvas siajn flugilojn?
 
-La ŝafomastro saltleviĝas, kaptas al la kapo per la manoj. La flava, granda kombilo, fiksanta liajn ĝisgenuajn harojn, glitas teren, la harondoj ektorentas sur la mus-kolstreĉaj ŝultroj. Tufo de ili enfiksiĝas sub la kupran bukon de la ornamita burso. Olej ne rimarkas tion. Stre-
-
-ĉe li atentas, gvate li esploras la ĉirkaúajon.
+La ŝafomastro saltleviĝas, kaptas al la kapo per la manoj. La flava, granda kombilo, fiksanta liajn ĝisgenuajn harojn, glitas teren, la harondoj ektorentas sur la mus-kolstreĉaj ŝultroj. Tufo de ili enfiksiĝas sub la kupran bukon de la ornamita burso. Olej ne rimarkas tion. Streĉe li atentas, gvate li esploras la ĉirkaúajon.
 
 Ha jes, kiu jam ekde kvardek jaroj konversacias kun arbaroj, rokoj, nuboj, povas ekhavi ĉiaspecajn pensojn!
 
@@ -151,12 +118,7 @@ Kaj kun ombriĝanta rigardo li ĉirkaŭgvidas la okulojn, kies bluo turniĝas en
 Li vidas neniun, li aŭdas neniun.
 
 
-MAKULO TRE NIGRA
-
-
-La ŝafoj kviete paŝtadas sin, la tintilporta gvidoŝafo algapas lin fikse, kun indiferenta mieno, la vicŝafisto plezure dormas sur la herbo; la folioj sur la arboj ne movi-
-
-ĝas, eĉ la birdoj restas silentaj.
+La ŝafoj kviete paŝtadas sin, la tintilporta gvidoŝafo algapas lin fikse, kun indiferenta mieno, la vicŝafisto plezure dormas sur la herbo; la folioj sur la arboj ne moviĝas, eĉ la birdoj restas silentaj.
 
 Kiu do alparolis Olej?
 
@@ -179,9 +141,6 @@ Li pensadas, tamen ne havas pensojn, ĉar ili disfluas, kiel fandita plumbo.
 Ili estas kirliĝanta kaoso, ne ricevanta formon; granda nokto, kies nigro estas lumo. Kaj ĉi tiu lumo estas la Prapoezio.
 
 
-MAKULO TRE NIGRA
-
-
 Olej pensadas pri ĉio, sed kun neniu li interŝanĝas siajn pensojn. Li pensas por amuziĝo. Kaj tio neniam ŝajnas malbona distriĝo. Nur, li malgajas kelkfoje.
 
 Maloftas tago, kiam la edzino ne rememoriĝas al li, kiam li ne memoras la efemerecon, la horon, kiam an-kaŭ li elturniĝos el la vivo, iĝos muta, senmova mortinto, vokiĝos laŭ la ordo de la Naturo en la tombon, kaj neniam plu revidos Brezinan, nek la ruĝtegmentan ŝafejon, nek la naŭ tintilŝafojn, nek la cent silke-lanajn ŝa-fukojn, ne havantajn al ili egalajn en ĉi tiu vasta mondo.
@@ -192,16 +151,11 @@ nur li neniam plu estos ĉi tie.
 
 Kaj se ĉe ĉi tiuj tristaj pensoj eksonas la kantoj de Annjo el la valo, subite travarmigas lian animon la konscio, ke lia vivo iel tamen pludaŭros.
 
-—Domaĝe, ke ŝi ne naskiĝis knabo, — li suspiras, kaj jetas sovaĝe la bastonon en la ŝafaron, je kio ili distimi-
-
-ĝas en ŝiritajn arojn.
+—Domaĝe, ke ŝi ne naskiĝis knabo, — li suspiras, kaj jetas sovaĝe la bastonon en la ŝafaron, je kio ili distimiĝas en ŝiritajn arojn.
 
 Ankaŭ ili sentu la koleron de la ŝafomastro, kiu tiamaniere komunikas al ili siajn trankvilrabajn pensojn.
 
 Kaj dume alia, nova kanto leviĝas per la flugiloj de la vento de malsupre, el la direkto de la ŝafejo — en slovaka popola stilo, dolore, kun revema malgajo…
-
-
-MAKULO TRE NIGRA
 
 
 Jam venas Garibaldi en la najbaran vilaĝon, Jen rajdas kun li Klapka, aliĝas Gracza, Záhony4; Georĉjo de Biró-oj jam selas sian ĉevalon.
@@ -215,9 +169,6 @@ Olej ne partoprenis la militon; ne eblis al li, sed li aser-tas, ke tio estis be
 … Se li ne estus havinta submane ĉi tiun brutaron, kies tintilo estas tiel dolĉe voka, restiga, kiel tiu de la feino en la fabelo!…
 
 4 Klapka, Gracza, Záhony: herooj de la liberbataloj en 1848-49
-
-
-MAKULO TRE NIGRA
 
 
 Horojn li kontemplas pri tio, dum la krepusko descen-dadas. Alvenis la tempo de ripozo por la ŝafaro. i kunpremiĝas en densan kirlon signe, ke ĝi satiĝis kaj jam volas nur remaĉi.
@@ -239,27 +190,19 @@ La tintiloj de la naŭ antaŭŝafoj kunsonoras en belan harmonion, ekfajfas anka
 Annjo povas aŭdi defore, ke la brutaro revenadas, kaj povas meti super fajron la bongustan ŝafperkelton, la ĉefpladon de ŝafistoj, por ke ĝi bolu ĝuste, kiam ili alvenos.
 
 
-MAKULO TRE NIGRA
-
-
 La vicŝafisto surdorsigas la sakfluton, kiam ili atingas en domproksimon, per esploraj okuloj rigardas al la hej-mo, ĉu li vidus en la korto la konturon de tiu svelta, brila staturo, kiu image senĉese ŝvebas antaŭ li, eĉ se li fermas la okulojn. Kiom li donus, se li povus ŝteli iom da neŝtel-eblo.
 
 Annjo jam atendas ilin ekstere, kio plaĉas al Maĉjo.
 
 Kvankam, kiu scias, kial ŝi staras ekstere, eble por distro, eble nur por vidi la ŝafaron.
 
-Belega kreito de Dio ŝi estas; plezurigas la okulojn, kiel ŝi tie staras: la svelta korpo estas duone forturnin-ta, la okuloj esploras reveme la malproksimon, la laŭ-
-
-nature molaj manetoj estas mallevitaj, por ke la konata maljuna ŝafo, dorminta ŝafidaĝe apud ŝi, povu alkuri kaj atingi ilin. ĉu ĝi lekas ilin pro dankemo, amo aŭ kutimiĝo? ĉu ĝi memoras, ke ili kundormis iam antaŭ longe, aŭ scias, kiel bongustaj estas la dommastrinaj manetoj, fosintaj en salkuvoj? Kiu povus koni ĝisfunde la ŝafan filozofion?
+Belega kreito de Dio ŝi estas; plezurigas la okulojn, kiel ŝi tie staras: la svelta korpo estas duone forturnin-ta, la okuloj esploras reveme la malproksimon, la laŭnature molaj manetoj estas mallevitaj, por ke la konata maljuna ŝafo, dorminta ŝafidaĝe apud ŝi, povu alkuri kaj atingi ilin. ĉu ĝi lekas ilin pro dankemo, amo aŭ kutimiĝo? ĉu ĝi memoras, ke ili kundormis iam antaŭ longe, aŭ scias, kiel bongustaj estas la dommastrinaj manetoj, fosintaj en salkuvoj? Kiu povus koni ĝisfunde la ŝafan filozofion?
 
 —Bonan vesperon, Annjo, — milde alparolas Maĉjo la knabinon. — Kiel vi pasigis la tagon?
 
 —Hodiaŭ pli bone, ol hieraŭ, — ŝi respondis ridetante. — Kaj viaj moŝtoj, kiel meritis la tagon?
 
 —Nenio grava pri ni, hirundeto, — respondis la ŝafomastro, demetinte la peltajn botojn, — gravas nur, ĉu vi pretas kun la vespermanĝo.
-
-
-MAKULO TRE NIGRA
 
 
 —La ŝafperkelto jam vaporas, patro.
@@ -289,9 +232,6 @@ Mekanike li rapidis fermi la pordon de la ŝafejo post la enfluanta ŝafaro.
 La pensoj de Olej tuj returniĝis al la vespermanĝo, aŭ ankoraŭ ne disiĝis de ĝi.
 
 —ĉu estos perkelto? Nu, brave, Annjo! Oni kredus, ke gasto venos en la domon.
-
-
-MAKULO TRE NIGRA
 
 
 —Jes ja, venos. Baldaŭ alvenos.
@@ -325,9 +265,6 @@ Viaj moŝtoj povas imagi, kiel mi ektimis lin unue. Li petis lakton. Mi portis a
 —Kial vi akceptis ĝin? — indignis Olej.
 
 
-MAKULO TRE NIGRA
-
-
 —Mi diris, ke ne por mono ni donas lakton, da ĝi ja estas, dank’ al Dio, sufiĉe, sed li forgesis ĝin malgraŭe sur la tablorando.
 
 —Ni redonos ĝin, — diris Olej. — Dio gardu! Kion pensus la mondo pri la ŝafomastro de Brezina, se li donus lakton por mono al pasantoj.
@@ -343,9 +280,6 @@ Annjo balancis ridetante la kapon. Kaj Olej kaptiĝis de entuziasmo.
 Kio? ĉu li havas ankaŭ fusilon? Mi diris malmulte! Eĉ kvinmil ne elprenos. Sed nun jam ĉit, infanoj, eĉ muroj havas orelojn.
 
 Annjo ankoraŭ ĉiam nekredeme balancis la kapon.
-
-
-MAKULO TRE NIGRA
 
 
 —Patro, ĉu vane mi diras al via moŝto: estis juna viro, kiu kunbabilis ĉiajn malsaĝaĵojn…
@@ -377,9 +311,6 @@ Maĉjo kontraŭvole levis la pugnon.
 —Vi cedis, ĉu ne? — eksiblis Maĉjo.
 
 
-MAKULO TRE NIGRA
-
-
 —Se tiel vere li asertis, ke alie li freneziĝos?!
 
 —Tute same, kiel Záhony! — ekkriis kun plaĉo la maljunulo.
@@ -394,9 +325,7 @@ Olej kaj Maĉjo turnis la okulojn en la montritan direk-ton. Svelta ĉasisto pa�
 
 —Bonan vesperon, ŝafisto! — li diris paŝinte en la korton, sen eĉ tuŝeti salute la ĉapelrandon. — Nu, ĉu pretas la vespermanĝo, kolombeto?
 
-—Estu bonvena, — respondis Olej humorperde, parte pro tio, ĉar la gasto ne estis Záhony, parte ĉar incitis lin, ke lia titolo estis tiel bagateligita. Se la atenco kontraŭ la formalaĵoj estus okazinta ne ĉe li, tio havus sekvon certe nekutiman, li ja titoliĝas ŝafomastro, do li staras super la ŝafista ordeno; krome ĉapelo sur kapo de viro sidas an-kaŭ por esti levata salute, kiam oni pasas tra la sojlo de 19
-
-MAKULO TRE NIGRA
+—Estu bonvena, — respondis Olej humorperde, parte pro tio, ĉar la gasto ne estis Záhony, parte ĉar incitis lin, ke lia titolo estis tiel bagateligita. Se la atenco kontraŭ la formalaĵoj estus okazinta ne ĉe li, tio havus sekvon certe nekutiman, li ja titoliĝas ŝafomastro, do li staras super la ŝafista ordeno; krome ĉapelo sur kapo de viro sidas an-kaŭ por esti levata salute, kiam oni pasas tra la sojlo de
 
 
 honestulo. Tamen oni devas ĉion ĉi gluti, se temas pri gasto.
@@ -417,16 +346,11 @@ La ĉambro estis plaĉa kaj pura: tri vestokestoj kun surpentritaj tulipoj en ĝ
 
 —La knabino ne kalkuliĝas, sinjorido, se io restos por ŝi, bone, se ne, same bone.
 
-La ĉasisto avide metis sin al la manĝo, kaj senĉese laŭ-
-
-dadis ĝin.
+La ĉasisto avide metis sin al la manĝo, kaj senĉese laŭdadis ĝin.
 
 —Tian mi ankoraŭ ne manĝis.
 
 —Mi kredas certe. Tia perkelto, kiel ĉe la ŝafomastro de Brezina ne kuiriĝas eĉ ĉe la princo de Talár.
-
-
-MAKULO TRE NIGRA
 
 
 La gasto ridetis.
@@ -464,9 +388,6 @@ La gasto ridis.
 —Se ci sinjoras en Brezina, oldulo, kio do restas al mi?
 
 
-MAKULO TRE NIGRA
-
-
 Ofendita, la ŝafomastro streĉis trapikajn okulojn al la ridanto, kaj kontraŭvole elglitis el li la supereca demando:
 
 —Kiel do ni diru viajn honestajn nomon kaj titolon?
@@ -492,9 +413,6 @@ En tiu momento enpaŝis Annjo, kaj metis vinon sur la tablon. Kun senĝena petol
 —Kaj uzu la vinon singarde: ĝi povas facile konfuzi vian kapon.
 
 
-MAKULO TRE NIGRA
-
-
 —Ci jam sufiĉe konfuzis ĝin.
 
 —Se ĝi ne estis jam pli frue konfuzita, — respondis la knabino kun naiva rigardo, pro kiu la koro de la heroo de silke-molaj salonoj komencis varme batadi.
@@ -511,9 +429,7 @@ La princo neniam sentis similan plezuron, kiel nun, kiam tiel malŝataj vortoj p
 
 Annjo sonore ekridis. ia freŝa rideto estis, kiel feina tintileto.
 
-—Oj-oj! ĉu vi farus el mi azenon? Mi kretenus, se mi kredemus! La juna princo ne venas al Brezina, eble an-kaŭ ne al Talár. Li loĝas en la urbo Vieno en pure ora pa-laco, cent ĉasistoj pafas por li vespermanĝon, kaj ne li mem vagas por leporoj en Brezina. Kaj ĉu li bezonus la perkelton de la Olejoj, li vespermanĝas laktokremon kun pano, bakita el rosmarenaj grajnoj. Krome ĉu la 5 vicĵupano: elektita estro de la nobela departemento 23
-
-MAKULO TRE NIGRA
+—Oj-oj! ĉu vi farus el mi azenon? Mi kretenus, se mi kredemus! La juna princo ne venas al Brezina, eble an-kaŭ ne al Talár. Li loĝas en la urbo Vieno en pure ora pa-laco, cent ĉasistoj pafas por li vespermanĝon, kaj ne li mem vagas por leporoj en Brezina. Kaj ĉu li bezonus la perkelton de la Olejoj, li vespermanĝas laktokremon kun pano, bakita el rosmarenaj grajnoj. Krome ĉu la 5 vicĵupano: elektita estro de la nobela departemento
 
 
 princo aspektas, kiel ordinaruloj? ĉu mi ne scius tion? Li ne estus princo, se tiel li aspektus.
@@ -535,14 +451,9 @@ Tute humorperde ŝi suprenkuris sur la ŝtupetaro en la subtegmenton de la ŝafe
 … Dio mizerikorda! ŝi vangofrapis lian ekscelencon. ŝi spitis, primokis, priridis lin. Ve, Sinjor’ Kreinto, eble oni eĉ senkapigos ŝin!
 
 
-MAKULO TRE NIGRA
-
-
 Kun angorplena koro Annjo paŝis sur la ŝtupetaro malsupren, cerbumante, kie kaŝi sin pro honto — kaj ni eldiru, ankaŭ pro timo al la princo, — kiam pompa ka-leŝo haltis antaŭ la domo, kaj dum ŝi stumblis ĝis la lasta ŝtupeto, princo Paŭlo aperis en la korto. Ho ve, se nur li ne ekvidus ŝin!
 
-Sed jes, li ekvidas ŝin, kaj ĉu realo, aŭ miraĝo, li mem saltas al la ŝtupetaro, por mallevi kaj demeti ŝin, kiel flo-kon sur la teron, el kio Annjo nek sentas, nek scias ion, ĉar ĉiun ŝian senson katenas stuporiga, sorĉa duonson-
-
-ĝo, turmenta kaj tamen agrabla duondormo.
+Sed jes, li ekvidas ŝin, kaj ĉu realo, aŭ miraĝo, li mem saltas al la ŝtupetaro, por mallevi kaj demeti ŝin, kiel flo-kon sur la teron, el kio Annjo nek sentas, nek scias ion, ĉar ĉiun ŝian senson katenas stuporiga, sorĉa duonsonĝo, turmenta kaj tamen agrabla duondormo.
 
 —ĉu nun vi jam kredas, ke mi estas la princo?
 
@@ -552,9 +463,7 @@ Kaj ĉe tio la belstatura junulo saltas ridante en la ka-leŝon, manosvingas adi
 
 La kaleŝo brue forruliĝas, sed la adiaŭaj vortoj restas.
 
-Mirindaj vortoj! Teksitaj el flagranta fajro, ellasanta lon-gajn flamosagojn rekte en la koron, kiuj bruligas kaj ba-tigas ĝin violente, kvazaŭ ili celus ĝian pereon. La koro estas nun sonorilo, batanta alarmon: senĉese resonigas la mirindajn vortojn, kaj poste ĉio ripetas ilin de unu vespero ĝis la alia… Nokte la mallumo krias, matene la arbofolioj susuras ilin; la silentemaj montopintoj eksonas, la vaporo, ascendanta el la tero suspiras ilin al la 25
-
-MAKULO TRE NIGRA
+Mirindaj vortoj! Teksitaj el flagranta fajro, ellasanta lon-gajn flamosagojn rekte en la koron, kiuj bruligas kaj ba-tigas ĝin violente, kvazaŭ ili celus ĝian pereon. La koro estas nun sonorilo, batanta alarmon: senĉese resonigas la mirindajn vortojn, kaj poste ĉio ripetas ilin de unu vespero ĝis la alia… Nokte la mallumo krias, matene la arbofolioj susuras ilin; la silentemaj montopintoj eksonas, la vaporo, ascendanta el la tero suspiras ilin al la
 
 
 herboj, eĉ la bolanta perkelto zumas pri ili super la kra-ketanta fajrujo: ”kaj vi estos por mi princino, ĉiam…
@@ -575,13 +484,9 @@ Al la trista demando estas ĉiu signo trista respondo.
 
 Vespere, kiam li hejmenvenis kun la ŝafomastro, estas refoja novaĵo, ke la princo preterpasis.
 
-Kaj poste ankaŭ la sekvan tagon, la trian tagon plu-
+Kaj poste ankaŭ la sekvan tagon, la trian tagon pluĉasadas tie la juna moŝto, kaj eniras al Annjo por glaso da lakto. Li devas tre ŝati ĉasaĵojn kaj lakton.
 
-ĉasadas tie la juna moŝto, kaj eniras al Annjo por glaso da lakto. Li devas tre ŝati ĉasaĵojn kaj lakton.
-
-La trian tagon la maljuna Olej jam kuntiris la brovojn je ĉi tiu novaĵo, kaj diris al sia vicŝafisto: 26
-
-MAKULO TRE NIGRA
+La trian tagon la maljuna Olej jam kuntiris la brovojn je ĉi tiu novaĵo, kaj diris al sia vicŝafisto:
 
 
 —Morgaŭ vi sola iros post la ŝafaro. La moŝto multe ĉasadas ĉi tie. Mi volas paroli kun li.
@@ -591,9 +496,6 @@ Annjo ektremis, kaj oni ne povis aŭdi de ŝi eĉ unu vorton dum la vespero.
 La sekvan tagon Olej restis hejme. Dum dudek jaroj tio eble eĉ dufoje ne okazis. La mil ŝafoj povis mediti kun bona kaŭzo, kie ilia tera prizorganto forrestas, kune kun la plumbita bastono kaj la kutimaj komandvortoj:
 
 ”he vi, he” kaj ”brĉ for”. Hodiaŭ la salo ne bone gustos al ili, nek la herbo iĝos pli dolĉa! Almenaŭ Olej kredas tion, kiu same enuas sen sia brutaro. Annjon li sendis fruposttagmeze kun mesaĝo al Steĉjo Lapaj, de kie ŝi povos reveni nur en malfrua vespero. Li plenŝtopis la senglazuran argilan pipon per tiu malfeliĉiga planto, por kiu reĝoj kaj popoloj iras glave unu kontraŭ la alia, kaj kiun la ŝafisto plimultigas, kiel la printempan lanon: li tenas ĝin en malseka loko, kie ĝi ensorbas humidon, kaj donas el si duoblon sian. Olej bruligis la pipon, kuŝiĝis dorsen sur la flore brodita herbo de la korto, kaj obser-vadis la ŝafejon, ĝian belan, ruĝan tegmenton, la blan-kajn, ornamitajn murojn, la elstarantajn, dikmuskolajn trabojn… Longe li observis ilin, neniam li satiĝis per ilia vido … Sinjoro Mondokreinto, kiel aperte lerta konstru-isto estis, kiu levis ĝin!
-
-
-MAKULO TRE NIGRA
 
 
 Gapadante tiel, li rimarkas moviĝantan ombron sur la muro, kaj rerigardinte, li ekvidas princon Paŭlo. uste lin Olej atendas.
@@ -618,9 +520,7 @@ Paŭlo Taláry streĉis mirantajn okulojn al Olej.
 
 —Kion vi volas diri per tio?
 
-La ŝafomastro paŝis tute proksimen al la grandsinjoro, kaj ekskuis la pugnojn en la aero. La vastmanika ĉemizo malfermiĝis ĉe la kolo, kaj vidigis liajn potencajn mu-skolojn, la vejnoj elstreĉiĝis sur lia veterhardita frunto, lia malmola, raspa voĉo fariĝis tondra, tempesta: 28
-
-MAKULO TRE NIGRA
+La ŝafomastro paŝis tute proksimen al la grandsinjoro, kaj ekskuis la pugnojn en la aero. La vastmanika ĉemizo malfermiĝis ĉe la kolo, kaj vidigis liajn potencajn mu-skolojn, la vejnoj elstreĉiĝis sur lia veterhardita frunto, lia malmola, raspa voĉo fariĝis tondra, tempesta:
 
 
 —Mi volas diri, ke se vi ĉasados plu ĉirkaŭ la ŝafejo, anstataŭ birdo vi renkontos eble urson, kvankam vi ŝar-gas vian fusilon nur per ŝroto.
@@ -648,9 +548,6 @@ Taláry kapjesis leĝere. Li ekhavis bonan ideon.
 —Aŭskultu min, ŝafomastro! Kion vi opinius, se ĉi tiu ŝafejo apartenus al vi kune kun ĉiuj ĝiaj brutoj; mi dona-cus ĝin al vi.
 
 
-MAKULO TRE NIGRA
-
-
 Oni ne povus diri ion pli plaĉan, orelkaresan al la ŝafomastro.
 
 La okulsorĉaj fabelaĵoj de ”Mil kaj unu noktoj” estas nura vantaĵo kompare kun ĉi tiu blindige brila realaĵo!
@@ -659,9 +556,7 @@ La ŝafejo kun ruĝa tegmento, la naŭ tintilŝafoj, la cent silke-lanaj ŝafuko
 
 Li staris ŝancele, kiel pesilo, en kies teleron oni ĵetas pezaĵon, kiu balancas ĝin dum pluraj minutoj, eĉ se poste ne povas ĝin tute subpremi.
 
-La princo kun ĝuo rigardis ĉi tiun esperigan balanci-
-
-ĝon.
+La princo kun ĝuo rigardis ĉi tiun esperigan balanciĝon.
 
 —Tiel vi fariĝus vere la sinjoro de Brezina.
 
@@ -669,12 +564,7 @@ La ŝafomastro fikse rigardis antaŭ sin. Brilaj bildoj el la futuro pasis prete
 
 Olej ekskuis sin.
 
-Sed oni ekscios ankaŭ, kiu donis al li la amason da riĉaĵoj, kaj oni ekscios ankaŭ, kial. Kiom valoras la van-30
-
-MAKULO TRE NIGRA
-
-
-ta honorado eĉ pleja, se granda nigra ombro akompanas
+Sed oni ekscios ankaŭ, kiu donis al li la amason da riĉaĵoj, kaj oni ekscios ankaŭ, kial. Kiom valoras la vanta honorado eĉ pleja, se granda nigra ombro akompanas
 
 ĝin? Granda nigra ombro, tiu de la memakuzo.
 
@@ -697,37 +587,25 @@ Olej forturnis la kapon.
 —Kial vi do diris tion, — li stertoris obtuze, — prefere vi estus aginta sen diri…
 
 
-MAKULO TRE NIGRA
-
-
 —Bone, do mi agos sen diri, — respondis la princo, returninte sin subite. — Dio benu vin!
 
 Kaj per rapidemaj paŝoj li foriĝis fajfetante.
 
-Olej ŝanceliĝis al la muro. La forto forlasis lin. Li volis krii ion post la foriranton, sed la lipoj nur mute movi-
-
-ĝis, voĉo ne elvenis; liaj sovaĝe turniĝantaj okuloj fiksiĝis kun nepriskribebla rigardo post la princo; teruro, naŭ-
+Olej ŝanceliĝis al la muro. La forto forlasis lin. Li volis krii ion post la foriranton, sed la lipoj nur mute moviĝis, voĉo ne elvenis; liaj sovaĝe turniĝantaj okuloj fiksiĝis kun nepriskribebla rigardo post la princo; teruro, naŭ-
 
 zo respeguliĝis en ili.
 
-Alpremiĝante kaj apogiĝante al la muro, li ŝanceliris en la ĉambron. Lia kapo turniĝis, turmentaj pensoj kirli-
-
-ĝis en ĝi, kiuj — simile al rokoj, ruliĝantaj de monta kru-to — iom post iom peziĝis sur lian koron, kunpremegan-te ĝin.
+Alpremiĝante kaj apogiĝante al la muro, li ŝanceliris en la ĉambron. Lia kapo turniĝis, turmentaj pensoj kirliĝis en ĝi, kiuj — simile al rokoj, ruliĝantaj de monta kru-to — iom post iom peziĝis sur lian koron, kunpremegan-te ĝin.
 
 —Ve, la koliko! — li kriis stertore.
 
 La montosuproj rediris: ”Ve, la koliko”. Kaj Olej sciis bone, ke tio ne veras! Oni mensogadas al si.
 
-Enirinte la ĉambron, li enlitiĝis, kredigis al si, ke li suferas je koliko. Komence li ĝemis, kiel malsana sovaĝ-
-
-besto, kaj kaŝinte poste sian fantomeciĝintan vizaĝon sub la kusenojn, li elpensis plifaciligon, por mildigi siajn turmentojn: li komencis kanti.
+Enirinte la ĉambron, li enlitiĝis, kredigis al si, ke li suferas je koliko. Komence li ĝemis, kiel malsana sovaĝbesto, kaj kaŝinte poste sian fantomeciĝintan vizaĝon sub la kusenojn, li elpensis plifaciligon, por mildigi siajn turmentojn: li komencis kanti.
 
 Eble la ideoj pruntitaj de la kanto, forpelos liajn ni-grajn pensojn?
 
 Longe li turmentiĝis en tia stato, streĉe atentante dume, ĝis li ekaŭdis la elastajn paŝojn de Annjo ekstere.
-
-
-MAKULO TRE NIGRA
 
 
 —ŝi alvenis, vidos min! — ekkriis la maljunulo, kaj saltleviĝis, kiel frenezulo. Kontraŭ la lito pendis spegulo, montranta lian taŭzitan vizaĝon: li ekstaris antaŭ ĝi, ri-gardante sian memon per vitriĝantaj okuloj, poste subite ekmuĝis, levis la pugnojn, alsvingiĝis kaj frapis sur ĝin per tiel terura forto, ke ĝia vitro disruliĝis, rompita en mil pecojn.
@@ -737,9 +615,6 @@ El liaj manoj fluis sango, la okuloj elturniĝis supren; kaj li kuŝis sen konsc
 ŝi ne povis imagi al si, kio okazis al li; rapide ŝi re-konsciigis lin per akvo, kaj rekuŝigis en la liton. La tutan nokton li deliris, luktante kun fantastikaj monstroj, ser-pentoj, drakoj, kiuj mordis en lian koron, volis elŝiri lian hepaton. ĉe la matenkrepusko li pliboniĝis, elpelis la ŝafaron kun Maĉjo, sed ne vekis Annjon, kiel kutime, pro la matenmanĝo: ili foriris tiel, kun malplena stoma-ko.
 
 Estis bela somera mateno. El la serena rideto de la naturo iom donaciĝis al ĉiuj objektoj. La rosa herbo pro-ponis sin abunde al la ŝafoj, kaj obeiĝante, ili gaje muelis ĝin, la birdoj samgaje ĉirpadis…, unuvorte estis tiel agrabla mateno, kian poetoj prikantas, sed kiu ĉiam postrestas la realan: estas ja sole la naturo, kiun fanta-zio ne kapablas beligi, grandigi, ja nur pale redoni.
-
-
-MAKULO TRE NIGRA
 
 
 Estis ĉio gaja, nur Olej grumblema kaj Maĉjo mishu-mora. Olej ne trovis sin dum la tuta tago. Kuŝi estis al li malbone, direkti la ŝafojn, plekti korbon tede, iri-veni lacige, pensi, ho pensi estis turmente!
@@ -767,9 +642,6 @@ Maĉjo obeas, sed ne povas imagi, kio trafis la cerbon de sia mastro.
 —Mi komprenas, mastra moŝto.
 
 
-MAKULO TRE NIGRA
-
-
 —Vi iros tie en la princan kastelon, kaj diros, ke la ŝafomastro de Brezina sendas vin, kaj ke vi volas paroli kun la princo.
 
 Maĉjo streĉe atentis, retenante la spiron.
@@ -789,9 +661,6 @@ Estis tempo ĉirkaŭ lunĉo, kiam li revenis el Talár. Li venis spiromanke, lac
 —Ja ne, — respondis tiu ĉi kun trankvila konscienco.
 
 —ĉu mi ne ordonis? — li ekblekis kolere.
-
-
-MAKULO TRE NIGRA
 
 
 —Se vi ordonis, se ne… hodiaŭ ĉirkaŭ tagmezo la princo forveturis Vienon, tien mi ne povis postkuri lin,
@@ -816,9 +685,7 @@ La maljunulo ŝovis la manon tra la frunto, ĉirkaŭrigardis hezite, kaj komenci
 
 —Annjo! Annjo!
 
-6 raŝo: kruda linŝtofo, specialaĵo de urbo Raŝa (Kroatio) 36
-
-MAKULO TRE NIGRA
+6 raŝo: kruda linŝtofo, specialaĵo de urbo Raŝa (Kroatio)
 
 
 Kvankam li sciis, ke respondo venos de nenie. Kie Annjo jam foras! Trajno flugigas ŝin al la urbo Vieno!
@@ -833,18 +700,13 @@ Post tio li residiĝis, kaj fumis seninterrompe, kvazaŭ li havus nenion alian p
 
 Li leviĝis nur, kiam sub la gvido de Maĉjo la brutoj enfluis la korton.
 
-—Bone, ke vi venas, filo mia, — li parolis al la vicŝafisto tiel afable, kiel neniam antaŭe. — Ene sur la tablo ku-
-
-ŝas urĝa skribaĵo, kiun vi devas tuj porti al la sinjoro administristo en Talár; li sendu ĝin post la ekscelencan moŝton, sed li ne sigelu ĝin, atendu ĝis morgaŭ. Morgaŭ li havos ankoraŭ ion por alskribi.
+—Bone, ke vi venas, filo mia, — li parolis al la vicŝafisto tiel afable, kiel neniam antaŭe. — Ene sur la tablo kuŝas urĝa skribaĵo, kiun vi devas tuj porti al la sinjoro administristo en Talár; li sendu ĝin post la ekscelencan moŝton, sed li ne sigelu ĝin, atendu ĝis morgaŭ. Morgaŭ li havos ankoraŭ ion por alskribi.
 
 —Tuj mi eniros por ĝi, mastra moŝto.
 
 —Ne penu, mi mem elportos ĝin.
 
 —Sed permesu al mi almanaŭ peti iom da kuiritaĵo de Annjo.
-
-
-MAKULO TRE NIGRA
 
 
 —Ne zorgu pri tio. Jen mono, manĝu, trinku dumvoje.
@@ -858,9 +720,6 @@ Vice li preteriris siajn ŝatatajn ŝafojn, tie kaj ĉi tie haltis antaŭ kelkaj
 La ŝafomastro de Brezina ploris, kiel infano.
 
 Profunde li tiris la ĉapelon sur la okulojn, por vidi nenion el sub ĝi, tiel li eliris tra la ŝafeja pordo. Elveninte, dufoje li turnis la ŝlosilon en la seruro, kiel ĉiam por la nokto, sed kion antaŭe neniam li faris, li paŝis rekte al la puto apud la trogo, kaj ĵetis la ŝlosilon kun laŭta suspi-ro en la puton.
-
-
-MAKULO TRE NIGRA
 
 
 Kaj nun li metis sin vere al laboro, kvankam jam kre-puskiĝis. Sur la korto troviĝis stako da sekaj kanoj; li dis-portis ilin kun streĉa hasto, starigante ilin ĉirkaŭ la ŝafejo, kompakte, dike.
@@ -878,9 +737,6 @@ Kaj la ŝafomastro de Brezina kuras kaj kuras. Scias nur la mizerikorda Dio, kie
 Hejmenveninte kun la matena krepusko, Maĉjo trovis nenie la ŝafejon de Brezina, nur grandan fumantan makulon ĝialoke.
 
 
-MAKULO TRE NIGRA
-
-
 Garbe falintaj traboj, kuŝiĝintaj muroj, nigriĝintaj ostoj… ĉu tiu osto apartenis iam al homo aŭ besto?
 
 La granda, konsterna enigmo, frapinta la vicŝafiston, kunpremis al li la koron.
@@ -894,9 +750,6 @@ Respondis neniu.
 La krepitantaj fajreroj, de fojo al fojo ekbrilantaj sub la cindro, ne donis respondon.
 
 Kaj ekde tiam la valo de Brezina kuŝas en silento, ĝia grasa herbo tretiĝas nek de homo, nek de bruto; jaroj venas, iras, la sovaĝa pirarbo kreskigas kaj faligas siajn fruktojn, la herbo elkreskas kaj denove sekiĝas, nur unu nigra makulo neniam reverdiĝas. Kiu scias, kial? Ankaŭ la priplora kanto diras nur tiom alude: Fulgas sur Brezina, makulo tre nigra, Loko iama de ŝafejo enigma.
-
-
-MAKULO TRE NIGRA
 
 
 www.omnibus.se/

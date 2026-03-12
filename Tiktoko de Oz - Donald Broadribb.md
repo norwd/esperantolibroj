@@ -131,58 +131,58 @@ LISTO DE ĈAPITROJ
 
 PAĜO
 
-1—La Kohorto de Kaj . . . . . . . . . . . . . . . . . . . . 13
+1—La Kohorto de Kaj . . . . . . . . . . . . . . . . . . . .
 
-2—Unue Ugabuo . . . . . . . . . . . . . . . . . . . . . . . . 24
+2—Unue Ugabuo . . . . . . . . . . . . . . . . . . . . . . . .
 
-3—Magio Mistifikas la Marŝantojn . . . . . . . . . . . . 28
+3—Magio Mistifikas la Marŝantojn . . . . . . . . . . . .
 
-4—Betinjo Brave Boatas . . . . . . . . . . . . . . . . . . . 39
+4—Betinjo Brave Boatas . . . . . . . . . . . . . . . . . . .
 
-5—La Rozoj Repelas la Rifuĝantojn . . . . . . . . . . . 42
+5—La Rozoj Repelas la Rifuĝantojn . . . . . . . . . . .
 
-6—Vilulo Vokas Veni . . . . . . . . . . . . . . . . . . . . . 48
+6—Vilulo Vokas Veni . . . . . . . . . . . . . . . . . . . . .
 
-7—La Priplendinda Pozicio de Polikromo . . . . . . . 65
+7—La Priplendinda Pozicio de Polikromo . . . . . . .
 
-8—Tiktoko Trovas Teruran Taskon . . . . . . . . . . . . 78
+8—Tiktoko Trovas Teruran Taskon . . . . . . . . . . . .
 
-9—La Rabio de Rugedo Ruĝe Radias . . . . . . . . . . 92
+9—La Rabio de Rugedo Ruĝe Radias . . . . . . . . . .
 
-10—Tra Terura Tubo . . . . . . . . . . . . . . . . . . . . . 107
+10—Tra Terura Tubo . . . . . . . . . . . . . . . . . . . . .
 
-11—La Fama Fratularo de Feoj . . . . . . . . . . . . . . 120
+11—La Fama Fratularo de Feoj . . . . . . . . . . . . . .
 
-12—La Senkompara Sinjorino de la Suverenlumo . 129
+12—La Senkompara Sinjorino de la Suverenlumo .
 
-13—La Jinjino Juste Juĝas . . . . . . . . . . . . . . . . . 136
+13—La Jinjino Juste Juĝas . . . . . . . . . . . . . . . . .
 
-14—La Longorela Aŭskultanto Lernas . . . . . . . . . . 149
+14—La Longorela Aŭskultanto Lernas . . . . . . . . . .
 
-15—La Drako Defias Danĝeron . . . . . . . . . . . . . . 159
+15—La Drako Defias Danĝeron . . . . . . . . . . . . . .
 
-16—La Kaprica Knomo . . . . . . . . . . . . . . . . . . . 168
+16—La Kaprica Knomo . . . . . . . . . . . . . . . . . . .
 
-17—Tragika Transformo. . . . . . . . . . . . . . . . . . . . 177
+17—Tragika Transformo. . . . . . . . . . . . . . . . . . . .
 
-18—Lerta Liberigo . . . . . . . . . . . . . . . . . . . . . . . 193
+18—Lerta Liberigo . . . . . . . . . . . . . . . . . . . . . . .
 
-19—Reĝo Kalikot . . . . . . . . . . . . . . . . . . . . . . . . 202
+19—Reĝo Kalikot . . . . . . . . . . . . . . . . . . . . . . . .
 
-20—Drako Delikate Demisias. . . . . . . . . . . . . . . . 213
+20—Drako Delikate Demisias. . . . . . . . . . . . . . . .
 
-21—Falsmodesta Frato . . . . . . . . . . . . . . . . . . . . . 221
+21—Falsmodesta Frato . . . . . . . . . . . . . . . . . . . . .
 
-22—Komplezaj Kisoj . . . . . . . . . . . . . . . . . . . . . 233
+22—Komplezaj Kisoj . . . . . . . . . . . . . . . . . . . . .
 
-23—Rugedo Reformiĝas . . . . . . . . . . . . . . . . . . . . 245
+23—Rugedo Reformiĝas . . . . . . . . . . . . . . . . . . . .
 
-24—Doroteo Delicas . . . . . . . . . . . . . . . . . . . . . . 251
+24—Doroteo Delicas . . . . . . . . . . . . . . . . . . . . . .
 
-25—La Am-Areo . . . . . . . . . . . . . . . . . . . . . . . . 263
+25—La Am-Areo . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-ĈAPITRO 1
+ĈAPITRO
 
 La Kohorto de Kaj
 
@@ -652,7 +652,7 @@ pafilarbo, kaj ke li tuj iros al ĝi kaj plukos la plej maturan
 kaj grandan musketon kiu kreskas sur la arbo.
 
 
-ĈAPITRO 2
+ĈAPITRO
 
 Unue Ugabuo
 
@@ -761,7 +761,7 @@ mallarĝa vojo kondukanta inter la montoj en la belan
 Felandon Oz.
 
 
-ĈAPITRO 3
+ĈAPITRO
 
 Magio Mistifikas la Marŝantojn
 
@@ -1259,7 +1259,7 @@ nur ili mem vidis la standardon, sed al Kaj plaĉis vidi
 konkeristo.
 
 
-ĈAPITRO 4
+ĈAPITRO
 
 Betinjo Brave Boatas
 
@@ -1336,9 +1336,7 @@ plej milda voĉo, kvazaŭ por komfortigi ŝin.
 
 “Vi protektos min, Hanĉjo kara, ĉu ne?” ŝi kriis
 
-senhelpe, kaj la mulo diris “Hi-ha!” denove, per promeso-
-
-signifaj tonoj.
+senhelpe, kaj la mulo diris “Hi-ha!” denove, per promesosignifaj tonoj.
 
 
 Ĉapitro Kvar
@@ -1386,7 +1384,7 @@ brilantaj inter la altaj arboj. Sed tute neniu homo estis
 videbla.
 
 
-ĈAPITRO 5
+ĈAPITRO
 
 La Rozoj Repelas la Rifuĝantojn
 
@@ -1615,7 +1613,7 @@ aŭdiĝis bruplena disrompiĝo de vitro kaj viro falis tra la
 tegmenton de la forcejo plump! sur la teron.
 
 
-ĈAPITRO 6
+ĈAPITRO
 
 Vilulo Vokas Veni
 
@@ -2004,9 +2002,7 @@ la flanko de la knabino; “sed ŝi estas knabino, do ni ne
 
 povas uzi ŝin kiel Reganton.”
 
-“Tute ne!” sonis ĥoro de mallaŭtaj voĉoj, kaj ĉirkaŭ-
-
-rigardante Betinjo trovis ke ĉiuj Rozoj sekvis ilin el la
+“Tute ne!” sonis ĥoro de mallaŭtaj voĉoj, kaj ĉirkaŭrigardante Betinjo trovis ke ĉiuj Rozoj sekvis ilin el la
 
 forcejo kaj nun staras grupe antaŭ la enirejo.
 
@@ -2274,7 +2270,7 @@ vespermanĝon—se ni ne plumarŝos. Jen vojo. Ni sekvu
 li forgesis sian nomon kaj devis renomiĝi.
 
 
-ĈAPITRO 7
+ĈAPITRO
 
 La Priplendinda Pozicio de Polikromo
 
@@ -2907,7 +2903,7 @@ Se ili montriĝos amikemaj, ili povos helpi nin; se ili estas
 malamikemaj, mi montros al ili la Amo-Magneton.”
 
 
-ĈAPITRO 8
+ĈAPITRO
 
 Tiktoko Trovas Teruran Taskon
 
@@ -3509,7 +3505,7 @@ blovas. Sed tiuj belaj floroj ja estas viaj gekuzoj kaj tuj
 respondis vian demandon, kaj mi sciis ke tiel estos.”
 
 
-ĈAPITRO 9
+ĈAPITRO
 
 La Rabio de Rugedo Ruĝe Radias
 
@@ -4138,7 +4134,7 @@ senzorga defio al la potenca Tititi-Huĉu. Kaj kiam oni
 serĉas postenon rekomendoletero estas tre efikoplena.”
 
 
-ĈAPITRO 10
+ĈAPITRO
 
 Tra Terura Tubo
 
@@ -4669,7 +4665,7 @@ nekonata lando en kiu ili estas, kaj ŝajnis plej bone obei
 la ordonojn.
 
 
-ĈAPITRO 11
+ĈAPITRO
 
 La Fama Fratularo de Feoj
 
@@ -5029,7 +5025,7 @@ Privata Civitano, sed ĉiuj estis sufiĉe belaj por nomiĝi
 palacoj—kaj efektive ili ja estis palacoj.
 
 
-ĈAPITRO 12
+ĈAPITRO
 
 La Senkompara Sinjorino de la Suverenlumo
 
@@ -5352,7 +5348,7 @@ Kiam ŝi fermis ĝin post si Betinjo estis en mallumo.
 La knabino bezonis nur ses momenterojn por endormiĝi.
 
 
-ĈAPITRO 13
+ĈAPITRO
 
 La Jinjino Juste Juĝas
 
@@ -5933,9 +5929,7 @@ demandis Vilulo, al kiu ne plaĉis tiu atako je lia amiko.
 
 “Nu, supozu ke eluziĝus via fajro.”
 
-“Kial supozi tion?” demandis Kuoks. “Mia pra-pra-pra-
-
-prapatro vivas ekde la komenco de la mondo, kaj neniam
+“Kial supozi tion?” demandis Kuoks. “Mia pra-pra-praprapatro vivas ekde la komenco de la mondo, kaj neniam
 
 eluziĝis lia fajro. Sed mi ja agnokas, sekrete, ke ju pli
 
@@ -5981,7 +5975,7 @@ buŝo kaj nazo; “saĝa knabineto, tiu Polikromo. Ĉiu tuj
 konstatus ke ŝi estas feino.”
 
 
-ĈAPITRO 14
+ĈAPITRO
 
 La Longorela Aŭskultanto Lernas
 
@@ -6410,7 +6404,7 @@ ili marŝu al la buŝo de la tubo, kie ili kaptu la vojaĝantojn
 tuj kiam ili aperos.
 
 
-ĈAPITRO 15
+ĈAPITRO
 
 La Drako Defias Danĝeron
 
@@ -6745,7 +6739,7 @@ Reĝo de la Knomoj jam preskaŭ konkeriĝis.”
 Sed Kuoks kapneis. “Ne,” diris li; “mi atendos.”
 
 
-ĈAPITRO 16
+ĈAPITRO
 
 La Kaprica Knomo
 
@@ -7143,7 +7137,7 @@ Fajliloj kaj la Roza Princino, kiuj staradis ekster la enirejo
 de la regno de Rugedo, demandis al si pri kio okazis al ili.
 
 
-ĈAPITRO 17
+ĈAPITRO
 
 Tragika Transformo
 
@@ -7762,7 +7756,7 @@ sin kaj kuris el la kaverno, tra la kaverno kaj reen al la
 loko kie kuŝas dormante Kuoks.
 
 
-ĈAPITRO 18
+ĈAPITRO
 
 Lerta Liberigo
 
@@ -8158,7 +8152,7 @@ de la tero—kaj eĉ li forgesis plenigi siajn poŝojn per oro
 kaj juveloj antaŭ ol fuĝi de sia antaŭa Regno!
 
 
-ĈAPITRO 19
+ĈAPITRO
 
 Reĝo Kalikot
 
@@ -8567,7 +8561,7 @@ por informi ĉiujn knomojn de la subtera Regno, sciante
 ke ĉiu el ili ĝojos pro la ŝanĝo de Reĝoj.
 
 
-ĈAPITRO 20
+ĈAPITRO
 
 Drako Delikate Demisias
 
@@ -8894,7 +8888,7 @@ iu kaŝita inter la arbustoj forkuris de ili. Poste laŭta voĉo
 kriis: “Halt!” kaj aŭdiĝis baraktado.
 
 
-ĈAPITRO 21
+ĈAPITRO
 
 Falsmodesta Frato
 
@@ -9079,7 +9073,7 @@ laŭ la vojo per kiu li antaŭe venis. Ili lasis lin foriri
 
 silente, ĉar malgraŭ ĉiu prenitaĵo, la amaso de juveloj sur
 
-l a t e r o a p e n a ŭ a s p e k t i s m a l p l i d e n s a , p r o s i a 224
+l a t e r o a p e n a ŭ a s p e k t i s m a l p l i d e n s a , p r o s i a
 
 
 Tiktoko de Oz
@@ -9427,7 +9421,7 @@ komencis malsekigi la ruĝan poŝtukon, do Vilulo delikate
 viŝis ilin per la maniko de sia mantelo.
 
 
-ĈAPITRO 22
+ĈAPITRO
 
 Komplezaj Kisoj
 
@@ -9980,7 +9974,7 @@ takson, Kalikot. Kaj nun ni foriru el ĉi tiu tunelo kaj
 reeniru la mondon.”
 
 
-ĈAPITRO 23
+ĈAPITRO
 
 Rugedo Reformiĝas
 
@@ -10072,9 +10066,7 @@ tre malproksime de la Regno de la Knomoj kaj Kalikot
 
 devos mem priatenti la oldan knomon.”
 
-Polikromo estis iom nekontenta dum la pasintaj unu-
-
-du horoj. La bela filino de la Ĉielarko sciis ke jam ŝi
+Polikromo estis iom nekontenta dum la pasintaj unudu horoj. La bela filino de la Ĉielarko sciis ke jam ŝi
 
 faris ĉion eblan por helpi siajn teramikojn, do ŝi komencis
 
@@ -10191,7 +10183,7 @@ Iom senĝoje, ĉar ĉiuj amis Polikromon kaj sentos ŝian
 foreston, ili reeniris la regnon de la Reĝo de la Knomoj.
 
 
-ĈAPITRO 24
+ĈAPITRO
 
 Doroteo Delicas
 
@@ -10446,9 +10438,7 @@ Tiktoko, kiun la magio de la Sorĉisto estis rapide
 
 transportinta al la palaco de Ozma. Tiktoko estis plena
 
-de laŭdoj pri Betinjo Bobin, “ki-u,” li diris, “es-tas pres-
-
-kaŭ e-ga-le pla-ĉa ki-el Do-ro-te-o mem.”
+de laŭdoj pri Betinjo Bobin, “ki-u,” li diris, “es-tas preskaŭ e-ga-le pla-ĉa ki-el Do-ro-te-o mem.”
 
 “Ni venigu Doroteon,” diris Ozma, kaj alvokinte sian
 
@@ -10718,7 +10708,7 @@ Kaj ŝi subenkuris la ŝtupojn po du por saluti sian
 novan amikinon, Betinjon Bobinon.
 
 
-ĈAPITRO 25
+ĈAPITRO
 
 La Am-Areo
 

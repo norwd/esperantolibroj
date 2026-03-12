@@ -10,7 +10,6 @@ KALEJDOSKOPO
 
 Viktor Galeski
 
-KALEJDOSKOPO
 
 Poemaro
 
@@ -31,13 +30,7 @@ La presitan libron eldonis
 Esperanto societo ”La Progreso”, Prilep 1999. ()
 
 
-@omnibus.se
-
-
-KALEJDOSKOPO
-
-
-ANTAŭPAROLO
+ANTAŬPAROLO
 
 En tiu mondo, motivoriĉa, Galeski eldiris ne nur sian kon traŭstaron kaj proteston, ne sur sian rezignacian senton pro la malfeliĉa sorto, sed li ankaŭ provis iom malfermi aŭ al-menaŭ tuŝi la sekretajn pordojn de granda provoko. Tial iuj liaj konstatoj ne prezentas tion en ĝia ekstrema formo, sed starigas novajn dilemojn kaj la poemo ĉe sia fino en sintezi-ta mesaĝo sin turnas:
 
@@ -62,15 +55,9 @@ Tre intima laŭ sia forto de senreviĝo estas ankaŭ la poemo
 ”Mia filino”, en kiu la pereo de la sonĝo estas pereo ankaŭ de la sonĝanto, de la homo, kiun sole la kredo subtenas.
 
 
-KALEJDOSKOPO
-
-
 Tiel en kvindeko da poemoj la poeto iom post iom malkov-ras sin al ni kaj plejofte kvankam per konciza, reduktita poezia formo, li sukcesas atingi ĝis la fundo de la grandaj mon-doj, ĝis la fundo de la homa animo kaj ĝis la fluoj de la konscio.
 
 Vasile Dimeski
-
-
-KALEJDOSKOPO
 
 
 Liaj versoj estas netrudita, subtila larmoviŝado ĉe la limo inter tio, kion oni sonĝas kaj travivas. En ili ekzistas adoleska evidente lirika duonsveno pro paŝado sur tiu rando.
@@ -87,12 +74,7 @@ uste en tio nnvinkas ankaŭ la unua poemaro de la juna poeto Viktor Galeski — 
 
 Oni devas rimarki, ke tiuj ĉi poeziaĵoj enportas certajn no-vaĵojn en nian makedonan poezion.
 
-Iuj el la poeziaĵoj estas koncizaj kaj post ilia tralego nin instigas al meditado. En la temoj estas multvarieco, oni sen-5
-
-KALEJDOSKOPO
-
-
-tas, ke la aŭtoro kantas pri ĉio, kio lin ĉirkaŭas kaj kion li portas profunde kaŝitan en sia delikata junula koro.
+Iuj el la poeziaĵoj estas koncizaj kaj post ilia tralego nin instigas al meditado. En la temoj estas multvarieco, oni sentas, ke la aŭtoro kantas pri ĉio, kio lin ĉirkaŭas kaj kion li portas profunde kaŝitan en sia delikata junula koro.
 
 La versoj estas modernaj, sen rimoj, por ke li povu espri-mi pli bone siajn sentojn. En lia poezio estas granda abundo de metaforoj, la lingvo estas pure makedona, sed estas ankaŭ tendenco al novaj forĝitaĵoj.
 
@@ -101,12 +83,9 @@ La poemaro de Viktor Galeski Kalejdoskopo estas bela, moderna poezio.
 Prof. Boris Kralevski
 
 
-KALEJDOSKOPO
-
-
 1. IO PRETERPASIS MIN
 
-TROVAĵO
+TROVAĴO
 
 ĉi-matene
 
@@ -119,9 +98,6 @@ mi vidis
 forgesitan
 
 maljunulon.
-
-
-KALEJDOSKOPO
 
 
 IO PRETERPASIS MIN
@@ -155,9 +131,6 @@ nur mi daŭre
 staras
 
 ĉiam.
-
-
-KALEJDOSKOPO
 
 
 SPEGULO
@@ -205,10 +178,7 @@ novan komenci
 vivon.
 
 
-KALEJDOSKOPO
-
-
-PRIPENSITA ŝILDO
+PRIPENSITA ŜILDO
 
 ”PEGAZO KAJ INFANO”
 
@@ -253,15 +223,9 @@ De l’infano restis eĉ ne spuro.
 ĉiunokte sur la ĉielo
 
 
-KALEJDOSKOPO
-
-
 vidas mi Pegazon.
 
 Eble mi renkontos ilin ambaŭ ĉe la vivofino.
-
-
-KALEJDOSKOPO
 
 
 INFANECO
@@ -291,9 +255,6 @@ ne surveturu la ŝirmejon,
 kaj mi restu sola
 
 sen infaneco.
-
-
-KALEJDOSKOPO
 
 
 PRINTEMPO
@@ -329,9 +290,6 @@ tristaj ...
 ĉu mi ĝisatendos ilin
 
 ankaŭ sekvontjare.
-
-
-KALEJDOSKOPO
 
 
 FLUGO
@@ -377,15 +335,9 @@ la matenon tagiĝontan,
 en la sombro
 
 
-KALEJDOSKOPO
-
-
 mia stelo finas sian flugon ridante ebrie
 
 en mia animo.
-
-
-KALEJDOSKOPO
 
 
 NIGRAJ BIRDOJ
@@ -401,9 +353,6 @@ ne povas trovi
 sian domon
 
 en la tombejo.
-
-
-KALEJDOSKOPO
 
 
 INFANOJ
@@ -427,9 +376,6 @@ desegnas la frosto
 sur la fenestroj.
 
 
-KALEJDOSKOPO
-
-
 SAMSPECAJ ANIMOJ
 
 Oni kunvenis
@@ -449,9 +395,6 @@ demando:
 ”ĉu vi aŭdas la venton,
 
 kiun mi vidas?”
-
-
-KALEJDOSKOPO
 
 
 IDOLANA KREDO
@@ -475,9 +418,6 @@ februaro
 28-taga restis.
 
 
-KALEJDOSKOPO
-
-
 MIA FILINO
 
 Longan tempon
@@ -493,9 +433,6 @@ mi damnas la sonĝon,
 kiu ne avertis ĝustatempe min, ke oni malpermesis
 
 al ĝi naski.
-
-
-KALEJDOSKOPO
 
 
 MI KAJ I
@@ -527,9 +464,6 @@ mi spiron ne havas
 pro sufero ekplori.
 
 
-KALEJDOSKOPO
-
-
 POST LA DILUVO
 
 Dio,
@@ -543,9 +477,6 @@ solaj
 nun,
 
 al kiu ni ĝoju?
-
-
-KALEJDOSKOPO
 
 
 LUNO
@@ -571,9 +502,6 @@ tempo venis
 por morti.
 
 
-KALEJDOSKOPO
-
-
 MALBONA KOMERCISTO
 
 ĉiutage
@@ -593,9 +521,6 @@ neniu
 pri la prezo.
 
 
-KALEJDOSKOPO
-
-
 NEFINDIRITA
 
 Volus mi
@@ -613,9 +538,6 @@ neniel
 ĝin vidas
 
 de malproksime.
-
-
-KALEJDOSKOPO
 
 
 REKVIEMO
@@ -641,9 +563,6 @@ mi ĉi-vespere entombigis
 la sonĝojn
 
 en la okulojn.
-
-
-KALEJDOSKOPO
 
 
 JAM VIDITA
@@ -679,10 +598,7 @@ simple min
 sen konfeso.
 
 
-KALEJDOSKOPO
-
-
-ANTAŭDORMA REZONADO
+ANTAŬDORMA REZONADO
 
 La kolomboj
 
@@ -701,9 +617,6 @@ la frosto pentris
 ies fremdajn sopirojn.
 
 
-KALEJDOSKOPO
-
-
 PROMESO
 
 Panjo,
@@ -719,10 +632,7 @@ la sunon
 per manoj kapti.
 
 
-KALEJDOSKOPO
-
-
-ĉIELARKO
+ĈIELARKO
 
 La teksitajn sonĝojn
 
@@ -737,9 +647,6 @@ Miaj sonĝoj
 tiel disverŝitaj
 
 dum la noktoj.
-
-
-KALEJDOSKOPO
 
 
 OKULOJ
@@ -759,9 +666,6 @@ en koro restintaj
 ne povas mi kaŝi min
 
 nokte.
-
-
-KALEJDOSKOPO
 
 
 MATENO
@@ -789,10 +693,7 @@ reveni
 al vi.
 
 
-KALEJDOSKOPO
-
-
-SE MI EKIRUS ĉI-NOKTE
+SE MI EKIRUS ĈI-NOKTE
 
 Birdoj malbonaŭguraj
 
@@ -815,9 +716,6 @@ Se mi ekirus ĉi-nokte
 pli reveni
 
 ne atendu min.
-
-
-KALEJDOSKOPO
 
 
 KONFESO
@@ -849,9 +747,6 @@ Dio,
 ke mi lasis nenion
 
 por soluloj.
-
-
-KALEJDOSKOPO
 
 
 2. NOKTO SEN RIPOZO
@@ -893,17 +788,11 @@ el la sonĝo — sonĝon
 kiel ĉiun nokton
 
 
-KALEJDOSKOPO
-
-
 ankaŭ ĉi-nokte
 
 fari
 
 de l’komenco.
-
-
-KALEJDOSKOPO
 
 
 AMO
@@ -945,9 +834,6 @@ al perloĉasistoj min kapti.
 Premu min forte
 
 
-KALEJDOSKOPO
-
-
 en vin
 
 ĝis neniigo.
@@ -959,9 +845,6 @@ konk’ aperta
 forĵetita
 
 kuŝas.
-
-
-KALEJDOSKOPO
 
 
 VIRINO
@@ -991,9 +874,6 @@ estis nur
 simpla
 
 VIRINO.
-
-
-KALEJDOSKOPO
 
 
 OKONDA
@@ -1029,9 +909,6 @@ la tempon
 sur mia manplat’
 
 kolektitan.
-
-
-KALEJDOSKOPO
 
 
 KANDELO
@@ -1079,9 +956,6 @@ Tagoj feliĉaj
 apud mi malofte haltas,
 
 
-KALEJDOSKOPO
-
-
 ĉiuj ili min preterpasas ...
 
 Hodiaŭ
@@ -1091,9 +965,6 @@ mi malamas min mem,
 ĉar ĝis nun forgesi vin
 
 mi ne povas.
-
-
-KALEJDOSKOPO
 
 
 MUROJ
@@ -1133,9 +1004,6 @@ forgesitaj
 sur la muroj.
 
 
-KALEJDOSKOPO
-
-
 HAIKU —
 
 PENSOJ, TROVITAJ EN SKOPJE
@@ -1167,9 +1035,6 @@ simile hirundo
 en mian sonĝon
 
 enflugis.
-
-
-KALEJDOSKOPO
 
 
 TEMPO
@@ -1205,9 +1070,6 @@ en mallumo
 io rodas
 
 la junecon.
-
-
-KALEJDOSKOPO
 
 
 MI NE KREDAS SONOJN
@@ -1253,9 +1115,6 @@ mi ne sukcesis
 tuŝi vian voĉon,
 
 
-KALEJDOSKOPO
-
-
 kiu ŝajne serpento
 
 ĉiam trairas inter
@@ -1271,10 +1130,7 @@ sola
 restas.
 
 
-KALEJDOSKOPO
-
-
-Eĉ LA SONOJ KONTRAŭSTARIS MIN
+Eĉ LA SONOJ KONTRAŬSTARIS MIN
 
 Dum ĉi-nokto
 
@@ -1307,9 +1163,6 @@ Kaj l’anĝelo nigra estas nun venkita per la am’ ŝtelita
 de la cignoj.
 
 
-KALEJDOSKOPO
-
-
 3. SUBLIMA AMO
 
 LORAJTO
@@ -1325,9 +1178,6 @@ trankvilon — en la tombejo, se la mallum’ ĝin akceptus kaj konsentiĝus
 la tristaj loĝantoj
 
 de la Infer’.
-
-
-KALEJDOSKOPO
 
 
 SOLECA KANTO
@@ -1347,9 +1197,6 @@ sola
 restas
 
 kun la tristo.
-
-
-KALEJDOSKOPO
 
 
 SUNSUBIRO
@@ -1373,9 +1220,6 @@ Finfine
 morto kvieta
 
 kun nove venanta naskiĝo.
-
-
-KALEJDOSKOPO
 
 
 SE VI RAPIDUS
@@ -1413,9 +1257,6 @@ kaj vi distriĝus en pensoj, atendu la Tempon,
 ĝi vin atingos.
 
 
-KALEJDOSKOPO
-
-
 BOHEMO
 
 En mallumo
@@ -1443,9 +1284,6 @@ timigite forflugas
 kun la mevoj.
 
 
-KALEJDOSKOPO
-
-
 NOVJARA SONO
 
 De nigraj pensoj
@@ -1469,9 +1307,6 @@ nigrajn larmojn verŝas,
 nigran kaptukon metis mia patrino, triste
 
 pro mi sonoriloj nun sonas.
-
-
-KALEJDOSKOPO
 
 
 NOVJARA
@@ -1509,9 +1344,6 @@ juĝa,
 kiu nin atendas.
 
 
-KALEJDOSKOPO
-
-
 TRISTA
 
 Trista estas la kanto
@@ -1531,9 +1363,6 @@ pene
 kaj tretas la Honoron
 
 falintan el la poŝo.
-
-
-KALEJDOSKOPO
 
 
 SEMAJNFINA VEKIO JE LA 6-a MATENE
@@ -1569,9 +1398,6 @@ mia inkubsonĝo
 denove komenciĝas.
 
 
-KALEJDOSKOPO
-
-
 IKARO
 
 De ĉiuj forlasita
@@ -1601,9 +1427,6 @@ por lavi la animon.
 Malesperiĝinte
 
 mi la hundojn envias.
-
-
-KALEJDOSKOPO
 
 
 SUBLIMA AMO
@@ -1653,9 +1476,6 @@ Li mensogas,
 li fuĝas de l’angoroj,
 
 
-KALEJDOSKOPO
-
-
 anstataŭ batali,
 
 en la mond’
@@ -1677,9 +1497,6 @@ mi rigardas
 ĉi — homon
 
 kaj KREDAS.
-
-
-KALEJDOSKOPO
 
 
 SKOPJE
@@ -1721,9 +1538,6 @@ La nokto
 absorbas la ombrojn.
 
 
-KALEJDOSKOPO
-
-
 POSTPAROLO
 
 La homo estas soleca ekde sia naskiĝo. La amo estas maniero eviti ĉi tiun solecon, ĝi fakte estas lasta ebleco, lasta ekkrio de la homestaĵoj. Aliflanke la soleco estas samtempe specifikaĵo de ĉiuj estaĵoj sur nia planedo. Ni naskiĝas tute di-viditaj en nia izolita miniatura mondo, nekapablaj ĝis la morto penetri en alian estaĵon, pri kio eĉ ne ekzistas ŝanco.
@@ -1735,18 +1549,15 @@ Mi sentas min senpova pro tio, sed ĝuste tiuj ĉi demandoj de la vivo kaj de la
 La aŭtoro
 
 
-KALEJDOSKOPO
-
-
 Enhavo
 
-ANTAŭPAROLO
+ANTAŬPAROLO
 
 
 1. IO PRETERPASIS MIN
 
 
-TROVAĵO
+TROVAĴO
 
 
 IO PRETERPASIS MIN
@@ -1755,7 +1566,7 @@ IO PRETERPASIS MIN
 SPEGULO
 
 
-PRIPENSITA ŝILDO ”PEGAZO KAJ INFANO”
+PRIPENSITA ŜILDO ”PEGAZO KAJ INFANO”
 
 
 INFANECO
@@ -1803,16 +1614,13 @@ REKVIEMO
 JAM VIDITA
 
 
-ANTAŭDORMA REZONADO
+ANTAŬDORMA REZONADO
 
 
 PROMESO
 
 
-ĉIELARKO
-
-
-KALEJDOSKOPO
+ĈIELARKO
 
 
 OKULOJ
@@ -1821,7 +1629,7 @@ OKULOJ
 MATENO
 
 
-SE MI EKIRUS ĉI-NOKTE
+SE MI EKIRUS ĈI-NOKTE
 
 
 KONFESO
@@ -1857,7 +1665,7 @@ TEMPO
 MI NE KREDAS SONOJN
 
 
-Eĉ LA SONOJ KONTRAŭSTARIS MIN
+Eĉ LA SONOJ KONTRAŬSTARIS MIN
 
 
 3. SUBLIMA AMO
@@ -1902,9 +1710,6 @@ SKOPJE
 POSTPAROLO
 
 
-KALEJDOSKOPO
-
-
 www.omnibus.se/
 
 # Document Outline
@@ -1912,7 +1717,7 @@ www.omnibus.se/
 + Enhavo
 + ANTAŬPAROLO
 + 1. IO PRETERPASIS MIN
-+ TROVAĵO
++ TROVAĴO
 + IO PRETERPASIS MIN
 + SPEGULO
 + PRIPENSITA ŜILDO ”PEGAZO KAJ INFANO”
@@ -1949,7 +1754,7 @@ www.omnibus.se/
 + HAIKU — PENSOJ, TROVITAJ EN SKOPJE
 + TEMPO
 + MI NE KREDAS SONĜOJN
-+ EĈ LA SONĜOJ KONTRAŭSTARIS MIN
++ EĈ LA SONĜOJ KONTRAŬSTARIS MIN
 
 + 3. SUBLIMA AMO
 + LOĜRAJTO

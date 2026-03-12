@@ -53,13 +53,9 @@ la unudrakman. Mi ne scias la veron pri nomoj. Sed mi estas preta
 
 ekzameni la temon kun vi kaj Kratilo. Kiam li diras ke “Hermogeno”
 
-ne estas via vera nomo, mi suspektas ke li nur ŝercas. Verŝajne li opi-
+ne estas via vera nomo, mi suspektas ke li nur ŝercas. Verŝajne li opinias ke vi ĉiam bezonas monon. Sed, kiel mi ĵus diris, estas malfacile
 
-nias ke vi ĉiam bezonas monon. Sed, kiel mi ĵus diris, estas malfacile
-
-scii pri tiaj aferoj, do ni devos kune ekzameni ĉu vi pravas aŭ ĉu Kra-
-
-tilo.
+scii pri tiaj aferoj, do ni devos kune ekzameni ĉu vi pravas aŭ ĉu Kratilo.
 
 **ʜʀɢɴ: **Nu, Sokrato, mi ofte diskutis ĉi tion kun aliaj personoj, kaj mi ne povas persvadiĝi ke la korekteco de nomo estas io alia ol tradicio kaj interkonsento. Mi opinias ke kiel ajn oni nomas iun, tiu
 
@@ -74,9 +70,7 @@ nomo ne estas malpli korekta ol la antaŭa. [Ni ja ŝanĝas la nomojn de
 
 niaj sklavoj, kaj la novaj nomoj ne estas malpli ĝustaj ol la antaŭaj.]1
 
-**ʀ: **Nenio havas naturan nomon, nomo varias laŭ la kutimoj kaj tra-
-
-dicioj de la nomantoj. Tamen, se ne estas tiel, mi estas preta lerni kaj
+**ʀ: **Nenio havas naturan nomon, nomo varias laŭ la kutimoj kaj tradicioj de la nomantoj. Tamen, se ne estas tiel, mi estas preta lerni kaj
 
 aŭskulti ne nur al Kratilo sed al ĉiu alia.
 
@@ -98,9 +92,7 @@ nomo, ĉu?
 
 homo? “Homo” estas ĝia nomo laŭ la publiko, sed por individuo ĝi
 
-estas ĉevalo? Aŭ individuo nomas ĝin homo, kvankam la publiko no-
-
-mas ĝin ĉevalo? Ĉu tion vi diras?
+estas ĉevalo? Aŭ individuo nomas ĝin homo, kvankam la publiko nomas ĝin ĉevalo? Ĉu tion vi diras?
 
 **ʜʀɢɴ:** Tion mi kredas.
 
@@ -165,9 +157,7 @@ grandaj? Aŭ ĉu ĉiuj?
 
 mi nomas ion, jen mia nomo por ĝi; kaj kion vi nomas ion, jen via
 
-nomo por ĝi. Mi vidas tion en ĉiuj grupoj, ĉiuj havas proprajn nom-
-
-ojn por la samaj objektoj. helenoj alimaniere parolas ol aliaj helenoj,
+nomo por ĝi. Mi vidas tion en ĉiuj grupoj, ĉiuj havas proprajn nomojn por la samaj objektoj. helenoj alimaniere parolas ol aliaj helenoj,
 
 kaj helenoj parolas alimaniere ol barbaroj.
 
@@ -218,9 +208,7 @@ pli saĝa ol alia, se kion oni kredas tio estas vera por la kredanto.
 
 ĉio estas samtempe sama laŭ ĉiuj personoj. Ĉar tiel ne povus ekzisti
 
-bonuloj kaj malbonuloj, se same laŭ ĉiuj personoj kaj por ĉiam ekzis-
-
-tas boneco kaj malboneco.
+bonuloj kaj malbonuloj, se same laŭ ĉiuj personoj kaj por ĉiam ekzistas boneco kaj malboneco.
 
 **ʜʀɢɴ:** Vi pravas.
 
@@ -230,9 +218,7 @@ ankaŭ ne havas apartan realecon por ĉiu individua persono, estas
 
 klare ke ĉiu afero havas propran fundamentan ekziston, kiu ne estas
 
-tirata supren kaj malsupren laŭ nia kaprico, estas propra ekzisto na-
-
-tura por ĝi.
+tirata supren kaj malsupren laŭ nia kaprico, estas propra ekzisto natura por ĝi.
 
 **ʜʀɢɴ:** Mi kredas ke estas tiel, Sokrato.
 
@@ -245,9 +231,7 @@ Aŭ ĉu aferoj kaj agoj estas unusola kategorio?
 
 **387 ʀ: **Do ankaŭ agoj estas farataj laŭ sia propra naturo, ne laŭ nia kaprico. Ekzemple, se ni provas tranĉi ion realan, ĉu ĉiu el ni povas
 
-tranĉi laŭ nia kaprico kaj per kio ajn ni volas? Aŭ ĉu ni volas laŭ-
-
-nature tranĉi per laŭnatura ilo, ĉar nur tiel ni ĝuste faras la agon; se
+tranĉi laŭ nia kaprico kaj per kio ajn ni volas? Aŭ ĉu ni volas laŭnature tranĉi per laŭnatura ilo, ĉar nur tiel ni ĝuste faras la agon; se
 
 ni agas kontraŭnature, ni misagas kaj efektivigas nenion?
 
@@ -320,9 +304,7 @@ nomi tiel, ne alimaniere.
 
 **ʜʀɢɴ:** Certe.
 
-**ʀ: **Se mi demandus: “kia instrumento estas naveto?” Ĉu vi respon-
-
-dus “instrumento per kiu oni navetas?”
+**ʀ: **Se mi demandus: “kia instrumento estas naveto?” Ĉu vi respondus “instrumento per kiu oni navetas?”
 
 **ʜʀɢɴ:** Jes.
 
@@ -389,9 +371,7 @@ instruas.
 
 **ʜʀɢɴ:** Mi kredas ke jes.
 
-**ʀ: **Ĉu vi kredas ke ĉiu persono estas leĝfaristo, aŭ nur trejnita per-7
-
-sono?
+**ʀ: **Ĉu vi kredas ke ĉiu persono estas leĝfaristo, aŭ nur trejnita persono?
 
 **ʜʀɢɴ:** Trejnita persono.
 
@@ -405,9 +385,7 @@ el ekspertoj en la homaro.
 
 **ʀ: **Bone. Kion la leĝfaristo uzas kiel modelon farante nomojn? Ni
 
-konsideru tion simile al la antaŭaj diraĵoj: kiun modelon la ĉarpent-
-
-isto uzas farante naveton? Tion kio laŭ sia naturo navetas, ĉu ne?
+konsideru tion simile al la antaŭaj diraĵoj: kiun modelon la ĉarpentisto uzas farante naveton? Tion kio laŭ sia naturo navetas, ĉu ne?
 
 **ʜʀɢɴ:** Certe.
 
@@ -427,9 +405,7 @@ natura. Tiun naturon oni devas doni al la produkto.
 
 **ʀ: **Kaj estas same pri la aliaj instrumentoj. Oni devas trovi la naturon de ĉiu instrumento kaj doni ĝin al tio el kio oni faras ĝin — ne laŭ
 
-sia kaprico sed laŭ ĝia naturo. Ekzemple, oni devas scii doni la taŭg-
-
-ajn naturajn formojn de boriloj al la fero.
+sia kaprico sed laŭ ĝia naturo. Ekzemple, oni devas scii doni la taŭgajn naturajn formojn de boriloj al la fero.
 
 **ʜʀɢɴ:** Certe.
 
@@ -443,13 +419,11 @@ simile pri la aliaj iloj.
 
 **ʜʀɢɴ:** Jes.
 
-**390 ʀ: **Sekve, kamarado, la leĝfaristo devas scii formi la naturon de 8
+**390 ʀ: **Sekve, kamarado, la leĝfaristo devas scii formi la naturon de
 
 ĉiu nomo per sonoj kaj silaboj. Laŭ tiu naturo de nomo kiel modelo
 
-oni devas fari la nomojn, por esti majstro de nomfarado. Sed ne mis-
-
-supozu ke ĉiu leĝfaristo uzas la samajn silabojn. Forĝistoj ne ĉiuj uzas
+oni devas fari la nomojn, por esti majstro de nomfarado. Sed ne missupozu ke ĉiu leĝfaristo uzas la samajn silabojn. Forĝistoj ne ĉiuj uzas
 
 la saman feron por ĉio, farante sian instrumenton por la sama celo.
 
@@ -518,9 +492,7 @@ direktas lin, por ke la nomoj estu bonaj.
 
 malseriozulo aŭ hazardulo, kiel vi supozas. Kratilo pravas dirante ke
 
-objektoj havas naturajn nomojn, kaj ne ĉiu persono povas esti nom-
-
-fabrikisto, nur tiu kiu rigardas la naturon de ĉiu nomo kaj kapablas
+objektoj havas naturajn nomojn, kaj ne ĉiu persono povas esti nomfabrikisto, nur tiu kiu rigardas la naturon de ĉiu nomo kaj kapablas
 
 esprimi ĝin per literoj kaj silaboj.
 
@@ -528,9 +500,7 @@ esprimi ĝin per literoj kaj silaboj.
 
 de vi se vi montrus al mi kio estas tiu natura taŭgeco de nomo.
 
-**ʀ: **Estiminda Hermogeno, mi ne povas respondi. Vi forgesas ke an-
-
-taŭ nelonge mi diris ke mi ne scias sed ke mi ekzamenos kun vi. Nun
+**ʀ: **Estiminda Hermogeno, mi ne povas respondi. Vi forgesas ke antaŭ nelonge mi diris ke mi ne scias sed ke mi ekzamenos kun vi. Nun
 
 ni — mi kaj vi — ekzamenis, kaj montriĝis almenaŭ ĉi tio aldone al
 
@@ -575,9 +545,7 @@ de Protagoro.
 
 li diras ion grandiozan kaj nekredeblan en tiuj tekstoj pri la ĝusteco
 
-de nomoj? Klare, kiam la dioj donas nomojn, ili diras la ĝustan natu-
-
-ron de la nomoj. Ĉu vi ne akordas?
+de nomoj? Klare, kiam la dioj donas nomojn, ili diras la ĝustan naturon de la nomoj. Ĉu vi ne akordas?
 
 **ʜʀɢɴ: **Mi ja scias ke se ili donas nomojn, ili ĝuste nomas. Sed pri kiuj nomoj vi parolas?
 
@@ -595,9 +563,7 @@ la dioj nomas **ĥalkis** , sed la homoj **kumindis**3
 
 ĉu vi opinias triviala la informon ke tiu birdo estas pli ĝuste nomata
 
-ĥalkis ol kimindis?Aŭ batieia kaj murine? Kaj multo alia de ĉi tiu po-
-
-eto kaj aliaj. Nu, eble ĉi tio estas tro malfacila por analizo fare de mi
+ĥalkis ol kimindis?Aŭ batieia kaj murine? Kaj multo alia de ĉi tiu poeto kaj aliaj. Nu, eble ĉi tio estas tro malfacila por analizo fare de mi
 
 kaj vi, sed mi kredas ke Skamandrio kaj Astianakso estas pli taŭgaj
 
@@ -628,9 +594,7 @@ nomo por la infano, Astianakso aŭ Skamandrio?
 
 **ʜʀɢɴ: **Mi ne scias.
 
-**ʀ: **Pripensu: se iu demandus al vi ĉu vi kredas ke saĝuloj aŭ mal-
-
-saĝuloj uzas la ĝustajn nomojn, kiel vi respondus?
+**ʀ: **Pripensu: se iu demandus al vi ĉu vi kredas ke saĝuloj aŭ malsaĝuloj uzas la ĝustajn nomojn, kiel vi respondus?
 
 **ʜʀɢɴ: **Klare mi dirus ke la saĝuloj.
 
@@ -638,9 +602,7 @@ saĝuloj uzas la ĝustajn nomojn, kiel vi respondus?
 
 **ʜʀɢɴ: **La viroj.
 
-**ʀ: **Ĉu vi ne scias ke Homero diras ke la Trojaj viroj nomas la infan-on de Hektoro Astianakso ? Do evidente la virinoj nomis lin Skama-
-
-ndrio, ĉar la viroj nomis lin Astianakso.
+**ʀ: **Ĉu vi ne scias ke Homero diras ke la Trojaj viroj nomas la infan-on de Hektoro Astianakso ? Do evidente la virinoj nomis lin Skamandrio, ĉar la viroj nomis lin Astianakso.
 
 **ʜʀɢɴ: **Ŝajne.
 
@@ -662,9 +624,7 @@ urbo.
 
 **ʜʀɢɴ: **Tiel ŝajnas al mi.
 
-**ʀ: **Kio? Mi mem ankoraŭ ne komprenas, Hermogeno, sed vi kom-
-
-prenas?
+**ʀ: **Kio? Mi mem ankoraŭ ne komprenas, Hermogeno, sed vi komprenas?
 
 1.
 
@@ -691,9 +651,7 @@ nomoj havas saman signifon en la helena. Anaks [mastro] kaj Hektōr
 
 Aŭ ĉu vi opinias ke mi diras neniaĵon, ke mi trompas min kredante
 
-ke mi iel sekvas la spurojn de la vidpunkto de Homero pri la korekt-
-
-eco de nomoj?
+ke mi iel sekvas la spurojn de la vidpunkto de Homero pri la korekteco de nomoj?
 
 **ʜʀɢɴ: **Je Zeŭso, ne vi! Laŭ mia opinio, vi trafas ĝin.
 
@@ -723,9 +681,7 @@ videbla en la nomo.
 
 mem, escepte de kvar: e, u, o, kaj ō.2 Vi scias ke por la aliaj vokaloj,
 
-kaj la konsonantoj, ni aldonas ekstrajn literojn por formi iliajn nom-
-
-ojn. Sed se ni klare konservas la signifon, la nomo estas korekta. Ek-
+kaj la konsonantoj, ni aldonas ekstrajn literojn por formi iliajn nomojn. Sed se ni klare konservas la signifon, la nomo estas korekta. Ek-
 
 zemple, bēta. Vi vidas ke la aldonitaj e kaj t kaj a ne malhelpas tiun
 
@@ -738,45 +694,31 @@ Hektōr= tenanto.
 En la helena alfabeto: ε, υ, ο, ω. Por la aliaj vokaloj la helenaj nomoj estis malsimilaj al la sonoj de la vokaloj mem. Kiel ĉe ni, la konsonantoj havis iom pli longajn nomojn ol la simplaj litersonoj, ekzemple la litero b β ĉe ni nomiĝas “bo”, ĉe la helenoj “βητα” [bēta].
 
 
-literon montri sian naturon per la tuta nomo decidita de la leĝfar-
-
-into. Li bone sciis doni nomojn al la literoj.
+literon montri sian naturon per la tuta nomo decidita de la leĝfarinto. Li bone sciis doni nomojn al la literoj.
 
 **ʜʀɢɴ: **Ŝajnas al mi ke vi tute pravas.
 
 **394 ʀ: **Nu, ĉu ne estas same pri “reĝo”? Reĝo naskiĝas de reĝo, bo-na el bona, bela el bela, ktp., el ĉiu speco ido simila naskiĝas, krom se
 
-naskiĝas monstro, do ĝi havas la saman nomon. Povas esti ke la sila-
+naskiĝas monstro, do ĝi havas la saman nomon. Povas esti ke la silaboj estas tre diversaj, tiel ke amatoro kredus ke ili estas tute malsimi-
 
-boj estas tre diversaj, tiel ke amatoro kredus ke ili estas tute malsimi-
-
-laj kvankam ili signifas la samon. Estas simile kiam ni uzas medika-
-
-mentojn, la koloroj kaj odoroj povas multe varii kiam temas pri la
+laj kvankam ili signifas la samon. Estas simile kiam ni uzas medikamentojn, la koloroj kaj odoroj povas multe varii kiam temas pri la
 
 sama substanco. Por la kuracisto, kiu konas ilian koncepton, ili estas
 
-similaj, kaj la aldonaĵoj ne timigas lin. Tute same personon kiu kom-
-
-prenas la signifojn de nomoj ne timigas aldono aŭ ŝanĝo aŭ manko
+similaj, kaj la aldonaĵoj ne timigas lin. Tute same personon kiu komprenas la signifojn de nomoj ne timigas aldono aŭ ŝanĝo aŭ manko
 
 de litero, eĉ se la literoj estas tute malsimilaj, ĉar la koncepto restas
 
 sama.1
 
-Kiel ni ĵus diris, Astianaks kaj Hektōr havas neniujn komunajn lite-
-
-rojn escepte de la t, sed ili havas identan signifon. Simile, kiuj literoj
+Kiel ni ĵus diris, Astianaks kaj Hektōr havas neniujn komunajn literojn escepte de la t, sed ili havas identan signifon. Simile, kiuj literoj
 
 estas komunaj al ili kaj Arĥepolis2? Sed ili signifas la samon. Kaj estas
 
-multaj aliaj nomoj kiuj nur signifas “reĝo”. Pluraj vortoj signifas “ge-
+multaj aliaj nomoj kiuj nur signifas “reĝo”. Pluraj vortoj signifas “generalo”, ekzemple Agis, kaj Polemarĥos3, kaj Eupolemos. Kaj estas di-
 
-neralo”, ekzemple Agis, kaj Polemarĥos3, kaj Eupolemos. Kaj estas di-
-
-versaj kiuj signifas “kuracisto”: Iatroklēs kaj Akesimbrotos4. Kaj simi-
-
-le ni povas trovi multegajn aliajn kiuj distingiĝas per siaj silaboj kaj
+versaj kiuj signifas “kuracisto”: Iatroklēs kaj Akesimbrotos4. Kaj simile ni povas trovi multegajn aliajn kiuj distingiĝas per siaj silaboj kaj
 
 literoj, sed indikas la samajn konceptojn. Ĉu vi samopinias?
 
@@ -827,9 +769,7 @@ devas esti korekta.
 
 **ʀ: **Simile “Oresto”,1 Hermogeno, verŝajne estas korekta, negrave ĉu li hazarde ricevis tiun nomon, ĉu ĝin donis al li poeto kiu volis indiki
 
-lian sovaĝan naturon kaj lian ferocon kaj lian montecon per lia no-
-
-mo.
+lian sovaĝan naturon kaj lian ferocon kaj lian montecon per lia nomo.
 
 **395** **ʜʀɢɴ: **Klare, Sokrato.
 
@@ -837,19 +777,13 @@ mo.
 
 **ʜʀɢɴ: **Klare.
 
-**ʀ: **Sendube tiel estis rilate al Agamemnono2, admirata pro laboregado, glorata pro pacienco. Indiko pri tio estas liaj spertoj kaj pacien-
+**ʀ: **Sendube tiel estis rilate al Agamemnono2, admirata pro laboregado, glorata pro pacienco. Indiko pri tio estas liaj spertoj kaj pacienco en Trojo. La nomo Agamemnono indikas ke li estas admirinda
 
-co en Trojo. La nomo Agamemnono indikas ke li estas admirinda
-
-pro sia persistado. Same la nomo Atreo estas korekta. Li murdis Kri-
-
-sipon kaj tre kruelis kontraŭ Tiesto, kaj tiel kaŭzis la detruon kaj
+pro sia persistado. Same la nomo Atreo estas korekta. Li murdis Krisipon kaj tre kruelis kontraŭ Tiesto, kaj tiel kaŭzis la detruon kaj
 
 ruiniĝon de sia bonfamo. Tiu priskriba nomo estas iomete ŝanĝita kaj
 
-kaŝita, tiel ke la naturo de tiu homo ne estas klara al ĉiuj. Sed la signi-
-
-fo de Atreo estas sufiĉe klara al spertuloj pri nomoj. Kaj rilate al obs-
+kaŝita, tiel ke la naturo de tiu homo ne estas klara al ĉiuj. Sed la signifo de Atreo estas sufiĉe klara al spertuloj pri nomoj. Kaj rilate al obs-
 
 tineco [ateires], sentimeco [atreston], kaj ruinigo [atēron] tiu nomo
 
@@ -878,9 +812,7 @@ agam- = admir- ; mimn- = atend- .
 
 **396 ʀ: **Ke multaj teruraj misfortunoj trafis lin dum lia vivo, la lasta el ili estis la detruiĝo de lia patrio; kaj kiam li mortis, en Hadeso ŝto-no svingiĝis [talanteia] super lia kapo. Estas mirinde kiel tio akordas
 
-kun lia nomo. Estas simple kvazaŭ iu volis nomi lin plej mizera [ta-
-
-lantatos] sed kaŝis la nomon dirante ke li estas Tantalos [Tantalo],
+kun lia nomo. Estas simple kvazaŭ iu volis nomi lin plej mizera [talantatos] sed kaŝis la nomon dirante ke li estas Tantalos [Tantalo],
 
 kaj la tradicio hazarde konservis tion kiel lian nomon. Kaj ŝajnas ke
 
@@ -890,25 +822,17 @@ malfacile observi tion. La nomo de Zeŭso simple estas kia frazo. Oni
 
 dividas ĝin, kaj unuj uzas unu parton, la aliaj uzas la alian parton —
 
-iuj nomas lin Zēna, aliaj nomas lin Dia. Kombinite, ili klarigas la na-
-
-turon de la dio. Kiel ni diris, estas taŭge ke nomo kongruas al la sig-
+iuj nomas lin Zēna, aliaj nomas lin Dia. Kombinite, ili klarigas la naturon de la dio. Kiel ni diris, estas taŭge ke nomo kongruas al la sig-
 
 nifato. Por ni kaj ĉiuj aliaj neniu alia estas la kaŭzo de vivo pli ol la
 
 estro kaj reĝo de ĉio. Do estas korekte ke ĉi tiu nomiĝas Dio, pro kiu
 
-ĉiuj ĉiam vivas.1 Unuaaŭde ŝajnas insolente nomi lin infano de Kro-
+ĉiuj ĉiam vivas.1 Unuaaŭde ŝajnas insolente nomi lin infano de Krono, ĉar li estas inda ido de granda intelekto — sed koron signifas ne
 
-no, ĉar li estas inda ido de granda intelekto — sed koron signifas ne
+knabon sed lian puran [kaθaron] kaj senmakulan [akēraton] menson.2 Li estas laŭtradicie filo de Urano3, kies signifo “suprenrigardo”
 
-knabon sed lian puran [kaθaron] kaj senmakulan [akēraton] mens-
-
-on.2 Li estas laŭtradicie filo de Urano3, kies signifo “suprenrigardo”
-
-estas ankaŭ bele taŭga nomo, ĉar tiel, Hermogeno, laŭ la astronomi-
-
-istoj oni akiras puran menson.4 Do la nomo estas ĝusta. Se mi me-
+estas ankaŭ bele taŭga nomo, ĉar tiel, Hermogeno, laŭ la astronomiistoj oni akiras puran menson.4 Do la nomo estas ĝusta. Se mi me-
 
 morus la geneaologion laŭ Hesiodo mi parolus simile ankaŭ pri la
 
@@ -920,13 +844,9 @@ kie.
 
 **ʜʀɢɴ: **Nu, Sokrato, vi ŝajnas al mi subite orakoli ekstaze.
 
-**ʀ: **Tion mi ŝuldas, Hermogeno, al Eŭtifro el Prospaltio. Jam de ĉi-matene mi multe estas kun li aŭskultante lin. Ekstaze li ne nur plen-
+**ʀ: **Tion mi ŝuldas, Hermogeno, al Eŭtifro el Prospaltio. Jam de ĉi-matene mi multe estas kun li aŭskultante lin. Ekstaze li ne nur plenigis miajn orelojn per la saĝodajmono sed ankaŭ kaptis mian mens-
 
-igis miajn orelojn per la saĝodajmono sed ankaŭ kaptis mian mens-
-
-on. Mi kredas ke li instigas nin. Hodiaŭ li inspiru nin por fini la enke-
-
-ton pri nomoj. Sed morgaŭ, se vi akceptas, ni forsendos la inspiron
+on. Mi kredas ke li instigas nin. Hodiaŭ li inspiru nin por fini la enketon pri nomoj. Sed morgaŭ, se vi akceptas, ni forsendos la inspiron
 
 kaj trovos personon kiu kapablas purigi nin de la ekstazo — aŭ pastr-
 
@@ -961,15 +881,11 @@ donitaj al homoj kaj herooj povas nin trompi, ĉar multaj el ili doniĝis
 
 nur omaĝe al prapatroj kaj tute ne taŭgas por kelkaj, kiel ni komence
 
-diris. Multaj doniĝis kvazaŭ pro deziro, kiel Eŭtiĥido, Sōsias, kaj Teo-
-
-filo1, kaj multaj aliaj. Sed mi kredas ke ni devus lasi ilin, estas multe
+diris. Multaj doniĝis kvazaŭ pro deziro, kiel Eŭtiĥido, Sōsias, kaj Teofilo1, kaj multaj aliaj. Sed mi kredas ke ni devus lasi ilin, estas multe
 
 pli verŝajne ke ni trovos la korektecon de nomoj de eternaj naturaĵoj.
 
-Ili sendube plej serioze ricevis taŭgajn nomojn. Eble kelkajn el ili do-
-
-nis potenco pli dieca ol tiu de la homoj.
+Ili sendube plej serioze ricevis taŭgajn nomojn. Eble kelkajn el ili donis potenco pli dieca ol tiu de la homoj.
 
 **ʜʀɢɴ: **Mi kredas ke vi bonege parolas, Sokrato.
 
@@ -979,9 +895,7 @@ nis potenco pli dieca ol tiu de la homoj.
 
 **ʀ: **Mi supozas ke estas ĉi tiel: Mi opinias ke la unuaj homoj en la helena regiono kredis ke la solaj dioj estas tiuj pri kiuj nun kredas
 
-multaj barbaroj: suno, luno, tero, steloj, ĉielo. Ili vidis ilin ĉiam kur-
-
-antaj kaj moviĝantaj, do pro tiu ilia naturo oni nomis ilin dioj2. Poste,
+multaj barbaroj: suno, luno, tero, steloj, ĉielo. Ili vidis ilin ĉiam kurantaj kaj moviĝantaj, do pro tiu ilia naturo oni nomis ilin dioj2. Poste,
 
 agnoskante multajn aliajn, ili donis al ili tiun saman nomon. Ĉu vi
 
@@ -1069,7 +983,7 @@ montras ilian originon en amo.
 
 1.
 
-Laboroj kaj Tagoj 121
+Laboroj kaj Tagoj
 
 2.
 
@@ -1098,13 +1012,9 @@ demandadi; kiel mi ĵus diris, en la atika lingvo la herooj estis oratoroj
 
 kaj demandistoj2, tiel ke la heroa genro estis grupo de oratoroj kaj
 
-sofistoj. Tio ja ne estas malfacila afero. Tamen ja estas malfacile kom-
+sofistoj. Tio ja ne estas malfacila afero. Tamen ja estas malfacile kompreni kial la homoj nomiĝas “homoj”. Ĉu vi povas informi?
 
-preni kial la homoj nomiĝas “homoj”. Ĉu vi povas informi?
-
-**ʜʀɢɴ: **Kiel, kara amiko, mi povus? Kaj eĉ se mi povus mi ne klopo-
-
-dus, ĉar mi opinias ke vi pli taŭge trovos la kialon ol mi.
+**ʜʀɢɴ: **Kiel, kara amiko, mi povus? Kaj eĉ se mi povus mi ne klopodus, ĉar mi opinias ke vi pli taŭge trovos la kialon ol mi.
 
 **399** **ʀ: **Ŝajne vi fidas la nocion de Eŭtifro.
 
@@ -1112,13 +1022,9 @@ dus, ĉar mi opinias ke vi pli taŭge trovos la kialon ol mi.
 
 **ʀ: **Vi prave fidas. Ĉar mi nun kredas lerte elpensi, kaj povas esti ke, se mi ne detenos min, mi fariĝos hodiaŭ pli saĝa ol decas. Konsideru:
 
-Unue, endas koncepti pri nomoj ke ofte ni enmetas aŭ elprenas lite-
+Unue, endas koncepti pri nomoj ke ofte ni enmetas aŭ elprenas literojn de koncernata nomo, kaj ni ŝanĝas la vokaltonon.3 Ekzemplo
 
-rojn de koncernata nomo, kaj ni ŝanĝas la vokaltonon.3 Ekzemplo
-
-estas dii filos4 [amiko de Zeŭso] — Ĝi fariĝas nomo anstataŭ espri-
-
-mo, kiam ni elprenas la duan i kaj ni prononcas la centran silabon
+estas dii filos4 [amiko de Zeŭso] — Ĝi fariĝas nomo anstataŭ esprimo, kiam ni elprenas la duan i kaj ni prononcas la centran silabon
 
 malsuprene anstataŭ suprene.5 En aliaj vortoj ni enmetas literojn, kaj
 
@@ -1163,9 +1069,7 @@ La helena teksto ŝajnas diri “malsuprenigita” baruteras, sed en la klarigo 
 
 [anaθrei] kaj primeditas kion li vidas [opōpen]. Tial la homo estas la
 
-sola besto kiu ĝuste nomiĝas anθropos [homo], ĉar ĝi anaθrōn ha op-
-
-ōpe [ekzamenas kion ĝi vidas].1
+sola besto kiu ĝuste nomiĝas anθropos [homo], ĉar ĝi anaθrōn ha opōpe [ekzamenas kion ĝi vidas].1
 
 **ʜʀɢɴ: **Nun kio? Ĉu mi rajtas demandi vin pri io kion mi volonte
 
@@ -1187,9 +1091,7 @@ scius?
 
 **400 ʀ: **Mia unua penso estas ke mi kredas ke la personoj kiuj donis la nomon “psiko” volis indiki ke kiam ĝi estas en korpo ĝi estas la
 
-kaŭzo de vivo. Ĝi provizas la kapablon spiri kaj restaŭriĝi [ana-
-
-psikon]. Kaj kiam la restaŭranto eliras, la korpo pereas kaj mortas.
+kaŭzo de vivo. Ĝi provizas la kapablon spiri kaj restaŭriĝi [anapsikon]. Kaj kiam la restaŭranto eliras, la korpo pereas kaj mortas.
 
 Mi kredas ke tial oni nomas ĝin “psiko”. Se vi deziras — sed atendetu.
 
@@ -1197,9 +1099,7 @@ Mi kredas ke mi povas trovi pli kredeblan klarigon por la disĉiploj de
 
 Eŭtifro, ĉar mi suspektas ke ili malaprobos kaj opinios mian jaman
 
-klarigon tro malsubtila. Se plaĉas al vi, ni ekzamenu la jenan klarig-
-
-on —
+klarigon tro malsubtila. Se plaĉas al vi, ni ekzamenu la jenan klarigon —
 
 **ʜʀɢɴ: **Nur diru.
 
@@ -1238,17 +1138,11 @@ psuĥē [psiko].1
 
 **ʜʀɢɴ: **Jes.
 
-**ʀ: **Pluraj ebloj ekzistas. Tre multaj, se oni permesas kelkajn ŝanĝ-
+**ʀ: **Pluraj ebloj ekzistas. Tre multaj, se oni permesas kelkajn ŝanĝetojn. Iuj diras ke sōma estas sēma de la psiko, kvazaŭ enterigita en la
 
-etojn. Iuj diras ke sōma estas sēma de la psiko, kvazaŭ enterigita en la
+nuntempo. Kaj ĉar ĝi vidigas kion la psiko esprimas [sēmainēi], ĝi estas korekte nomata sēma.2 Tamen mi kredas ke la du Orfeoj donis ti-
 
-nuntempo. Kaj ĉar ĝi vidigas kion la psiko esprimas [sēmainēi], ĝi es-
-
-tas korekte nomata sēma.2 Tamen mi kredas ke la du Orfeoj donis ti-
-
-un nomon, ĉar ili supozis ke la psiko suferas punon kaj estas ĉirkaŭ-
-
-ita kvazaŭ en karcero, gardate ĝis ĝi pagos siajn ŝuldojn. Tiu karcero
+un nomon, ĉar ili supozis ke la psiko suferas punon kaj estas ĉirkaŭita kvazaŭ en karcero, gardate ĝis ĝi pagos siajn ŝuldojn. Tiu karcero
 
 estas la korpo. Kaj ne necesas sanĝi eĉ unu literon.
 
@@ -1262,9 +1156,7 @@ kaj laŭ kiuj ili deziras nomiĝi, tiel ni nomas ilin, ĉar ni scias nenion
 
 alian. Mi opinias tion bona kutimo. Se vi deziras, nia ekzameno estu
 
-kvazaŭ ni diras al la dioj ke ni tute ne ekzamenas ilin — ĉar ni ne kre-
-
-das ke ni povas fari tion — sed ni ekzamenas la supozojn de homoj
+kvazaŭ ni diras al la dioj ke ni tute ne ekzamenas ilin — ĉar ni ne kredas ke ni povas fari tion — sed ni ekzamenas la supozojn de homoj
 
 1.
 
@@ -1287,17 +1179,13 @@ uzitajn por doni la nomojn. Tiel ni estos plej senkulpaj.
 
 **ʜʀɢɴ: **Je Zeŭso! Mi vere ne kredas tion facila demando.
 
-**ʀ: **Sendube, amiko Hermogeno, la unuaj nomintoj ne estis ordinar-
-
-aj personoj sed astronomiistoj kaj subtilpensantoj.
+**ʀ: **Sendube, amiko Hermogeno, la unuaj nomintoj ne estis ordinaraj personoj sed astronomiistoj kaj subtilpensantoj.
 
 **ʜʀɢɴ: **Do?
 
 **ʀ: **Estas klare al mi ke tiaj homoj faris la nomojn, kaj se iu rigardus la fremdajn nomojn, ne malpli tiu trovus kion ĉiu signifas. Ekzemple,
 
-kion ni nomas ousia [= realo] aliaj nomas essia, kaj ankoraŭ aliaj di-
-
-ras osia.1 Estas logike ke la realo de aferoj nomiĝas, laŭ la unua el tiuj
+kion ni nomas ousia [= realo] aliaj nomas essia, kaj ankoraŭ aliaj diras osia.1 Estas logike ke la realo de aferoj nomiĝas, laŭ la unua el tiuj
 
 variantoj, Hestia. Krome, ankaŭ ni diras ke io partoprenanta en realo
 
@@ -1340,9 +1228,7 @@ Temas pri tri dialektaj prononcaj variantoj de la sama helena vorto [ousia, essi
 
 **ʜʀɢɴ: **Kiujn?
 
-**ʀ: **Heraklito diras ke “ĉio pasas kaj nenio restas,” kaj li komparas ti-on kun la fluo de rivero, dirante “dufoje en la saman riveron vi ne en-
-
-paŝas”.
+**ʀ: **Heraklito diras ke “ĉio pasas kaj nenio restas,” kaj li komparas ti-on kun la fluo de rivero, dirante “dufoje en la saman riveron vi ne enpaŝas”.
 
 **ʜʀɢɴ: **Jes.
 
@@ -1403,13 +1289,9 @@ pranominto]1 ĉar la marnaturo haltigis lin kaj ne permesis lin plu
 
 antaŭeniri kaj fariĝis kvazaŭ piedĉeno por li. Do li nomis la reganton
 
-de ĉi tiu potenco Poseidōn ĉar li estis kvazaŭ “posidesmon” [piedĉen-
+de ĉi tiu potenco Poseidōn ĉar li estis kvazaŭ “posidesmon” [piedĉenanto]2. La e enestas por plibeligi la nomon, sendube. Aŭ eble ne estis
 
-anto]2. La e enestas por plibeligi la nomon, sendube. Aŭ eble ne estis
-
-tiel, sed origine estis ll anstataŭ la s, por signifi ke la dio “scias mul-
-
-ton” (polla eidotos). Aŭ eble li nomiĝis “La skuanto” laŭ la verbo skui
+tiel, sed origine estis ll anstataŭ la s, por signifi ke la dio “scias multon” (polla eidotos). Aŭ eble li nomiĝis “La skuanto” laŭ la verbo skui
 
 [seiein], kaj la p kaj d estas aldonitaj. Rilate al Plutono [Ploutōn], tiu
 
@@ -1417,9 +1299,7 @@ nomo estas ĉar li donas riĉon [plouton], ĉar riĉaĵoj venas el la tero.
 
 Pri la nomo Hadeso [Haidēs]: Ŝajnas ke ĝenerale oni supozas ke ĝi
 
-venis el aides [teruro]; oni timas tiun nomon, do oni nomas lin Plu-
-
-tono.
+venis el aides [teruro]; oni timas tiun nomon, do oni nomas lin Plutono.
 
 **ʜʀɢɴ: **Sed kion vi mem opinias, Sokrato?
 
@@ -1464,15 +1344,11 @@ oni fariĝas pli bona persono?
 
 **404 ʀ: **Do Hermogeno, ni devas diri ke pro tio neniu volas veni ĉi tien el tie, eĉ ne la Sirenoj. Li ĉenis ilin same kiel ĉiujn aliajn. Ŝajne
 
-tiajn vortojn Hadeso scias diri. Laŭ tiu argumento, tiu dio estas plej-
-
-kompetenta Sofisto kaj vere granda bonfaranto al la homoj ĉe li. Kaj
+tiajn vortojn Hadeso scias diri. Laŭ tiu argumento, tiu dio estas plejkompetenta Sofisto kaj vere granda bonfaranto al la homoj ĉe li. Kaj
 
 li sendas tiom da bonaĵoj ankaŭ ĉi tien. Li havas multe pli tie, kaj pro
 
-tio li ricevis la nomon Riĉo [Plouton]. Li ne volas esti kun korpo-
-
-havaj homoj, nur kun personoj kies psiko puriĝis el ĉiuj korpaj mal-
+tio li ricevis la nomon Riĉo [Plouton]. Li ne volas esti kun korpohavaj homoj, nur kun personoj kies psiko puriĝis el ĉiuj korpaj mal-
 
 bonoj kaj emocioj — ĉu tio ne indikas al vi ke li filozofie planas? Ĉar
 
@@ -1502,19 +1378,13 @@ ame posedis ŝin. Eble la leĝfaristo astronomiante maskis la vorton
 
 “aero” [aera] kaj faris el ĝi la nomon Hera, metante la unuan literon
 
-ĉe la fino.1 Vi komprenos se vi multfoje ripetos la nomon Hera. Fer-
-
-refatta2: Multaj personoj timas ĉi tiun nomon kaj ankaŭ la nomon
+ĉe la fino.1 Vi komprenos se vi multfoje ripetos la nomon Hera. Ferrefatta2: Multaj personoj timas ĉi tiun nomon kaj ankaŭ la nomon
 
 Apolono, verŝajne pro sia manko de sperto pri la ĝusteco de nomoj.
 
-Ili ŝanĝas ĝin al Fersefone,3 kaj ĝi teruras ilin. Sed ĝi sciigas ke la di-
+Ili ŝanĝas ĝin al Fersefone,3 kaj ĝi teruras ilin. Sed ĝi sciigas ke la diino estas saĝa [sofē]. Ĉar ĉio moviĝas [feromenas ], saĝeco [sofia] tu-
 
-ino estas saĝa [sofē]. Ĉar ĉio moviĝas [feromenas ], saĝeco [sofia] tu-
-
-ŝas kaj tuŝetas kaj kapablas akompani ĝin. La diino prave ankaŭ nom-
-
-iĝas Ferepafa, aŭ io tia, pro sia saĝeco, kaj ĉar ŝi tuŝas la moviĝ-
+ŝas kaj tuŝetas kaj kapablas akompani ĝin. La diino prave ankaŭ nomiĝas Ferepafa, aŭ io tia, pro sia saĝeco, kaj ĉar ŝi tuŝas la moviĝ-
 
 1.
 
@@ -1529,9 +1399,7 @@ Varianta formo de la nomo Persefonē = Persefona.
 f/ = mov- , port- ; sof/p = saĝ- .
 
 
-anton.1 — Tial Hadeso estas kun ŝi, ĉar ŝi estas saĝa kaj li estas sa-
-
-ĝa. — Nuntempe oni aliigas ŝian nomon por belsonigi ĝin, oni opi-
+anton.1 — Tial Hadeso estas kun ŝi, ĉar ŝi estas saĝa kaj li estas saĝa. — Nuntempe oni aliigas ŝian nomon por belsonigi ĝin, oni opi-
 
 nias tion pli grava ol vereco, kaj nomas ŝin Ferrefatta. Kiel mi diris,
 
@@ -1553,9 +1421,7 @@ muzikan kaj orakolan kaj kuracan kaj persagan karakterojn.
 
 **ʜʀɢɴ:** Diru, ĉar vi diras al mi ke tiu nomo estas vere miriga.
 
-**ʀ: **Pli ĝuste, harmonia, ĉar la dio estas muzikisto. Unue, la “purigoj”2 kaj purigaj oferoj en la kuracarto kaj la orakolarto kaj iliaj medi-
-
-kamentoj kaj la fumigoj uzataj de la orakoloj kaj la banoj kaj la asper-
+**ʀ: **Pli ĝuste, harmonia, ĉar la dio estas muzikisto. Unue, la “purigoj”2 kaj purigaj oferoj en la kuracarto kaj la orakolarto kaj iliaj medikamentoj kaj la fumigoj uzataj de la orakoloj kaj la banoj kaj la asper-
 
 gadoj kiujn ili uzas, ĉiuj tiuj povas provizi puriĝon al la homoj korpe
 
@@ -1563,9 +1429,7 @@ kaj psike, ĉu ne?
 
 **ʜʀɢɴ:** Kompreneble.
 
-**ʀ: **Do li estas “la dio kiu purigas” kaj “la dio kiu forlavas” (apolou-
-
-ōn) kaj “la dio kiu liberigas” (apoluōn) de tiuj malbonoj, ĉu ne?
+**ʀ: **Do li estas “la dio kiu purigas” kaj “la dio kiu forlavas” (apolouōn) kaj “la dio kiu liberigas” (apoluōn) de tiuj malbonoj, ĉu ne?
 
 **ʜʀɢɴ: **Certe.
 
@@ -1573,9 +1437,7 @@ kaj psike, ĉu ne?
 
 plejĝuste nomiĝus Aplono. Tiel ĉiuj Tesaloj diras pri tiu dio. Ĉar li
 
-estas ĉiam “majstra ĵetisto” per pafarko, li estas “la ĉiampafanta” [aei-
-
-ballōn].
+estas ĉiam “majstra ĵetisto” per pafarko, li estas “la ĉiampafanta” [aeiballōn].
 
 Rilate al muziko: ni devas supozi ke [kiel en “akolouθos” (akompan-
 
@@ -1588,27 +1450,19 @@ Ankaŭ varianto de la nomo Persefonē = Persefona. En iu epoko, eble tiu de Plat
 Medicina termino = fekigo, urinigo, vomigo, sangigo, kredataj “purigi” la internajn organojn per elfluigo de toksoj.
 
 
-anto) kaj “akoitis” (edzino)],1 la a ofte signifas “kune”, kaj tiel “kun-
+anto) kaj “akoitis” (edzino)],1 la a ofte signifas “kune”, kaj tiel “kunvagado” [homou polesis] ĉirkaŭ la ĉielo — oni parolas pri la polo [po-
 
-vagado” [homou polesis] ĉirkaŭ la ĉielo — oni parolas pri la polo [po-
-
-lusoj/ĉieloj]2 — kaj pri la kantoharmonio. Oni nomas tion “kunson-
-
-ado”, ĉar li kunmovas ĉion harmonie, laŭ la spertuloj pri muziko kaj
+lusoj/ĉieloj]2 — kaj pri la kantoharmonio. Oni nomas tion “kunsonado”, ĉar li kunmovas ĉion harmonie, laŭ la spertuloj pri muziko kaj
 
 astronomio. Ĉi tiu dio estras la harmonion, “kunmovas” [homopolōn]
 
 ĉion, kaj inter dioj kaj inter komoj.
 
-Same kiel homokeleuθon kaj homokoitin vortiĝas akolouθon kaj akoi-
-
-tin, anstataŭigante homo- per a- [sam-; kun-], tiel oni diras Apollona
+Same kiel homokeleuθon kaj homokoitin vortiĝas akolouθon kaj akoitin, anstataŭigante homo- per a- [sam-; kun-], tiel oni diras Apollona
 
 ĉar li “kunmovas” [homopolōn]. Oni enmetas ekstran l por ke ĝi ne
 
-estu identa kun la finomo.3 Kelkaj personoj ankoraŭ estas suspekt-
-
-emaj, ĉar ili malĝuste komprenas la nomon kaj ili timas ke ĝi signifas
+estu identa kun la finomo.3 Kelkaj personoj ankoraŭ estas suspektemaj, ĉar ili malĝuste komprenas la nomon kaj ili timas ke ĝi signifas
 
 ian pereon. Sed, kiel mi ĵus diris, ĝi rilatas al ĉiuj karakterizaĵoj de la
 
@@ -1618,9 +1472,7 @@ dio: simpla, ĉiamĵetanta, puriganta, ĉionmovanta.
 
 [mōsθai] reserĉon kaj filozofion.
 
-Lēto [Letoa] estas pro la mildeco de tiu diino, pro ŝia volonta [eθel-
-
-ēmona] plenumo de kion oni petas. Ankaŭ kiel la fremduloj nomas
+Lēto [Letoa] estas pro la mildeco de tiu diino, pro ŝia volonta [eθelēmona] plenumo de kion oni petas. Ankaŭ kiel la fremduloj nomas
 
 ŝin — ĉar multaj nomas ŝin Lētō4 — supozeble kiuj ŝin nomas Lēθō
 
@@ -1673,9 +1525,7 @@ PIV literumas ĉi tiun nomon Dionizo.
 did- = don-; oin- = vin- .
 
 
-senmensaj drinkantoj ke ili havas menson [nous], do ili prave nomiĝ-
-
-us “supoz-mensaj”.
+senmensaj drinkantoj ke ili havas menson [nous], do ili prave nomiĝus “supoz-mensaj”.
 
 Rilate al Afrodita, estus erare oponi Hesiodon. Ni devas konsenti
 
@@ -1701,9 +1551,7 @@ Hefeston kaj Areson.
 
 armita dancado, laŭ mia opinio. Ni ja nomas levi sin aŭ ion alian for
 
-de la tero aŭ per la manoj, svingi [pallein], kaj danci ni nomas palles-
-
-θai.
+de la tero aŭ per la manoj, svingi [pallein], kaj danci ni nomas pallesθai.
 
 **ʜʀɢɴ: **Kompreneble.
 
@@ -1758,21 +1606,15 @@ kion ili supozis pli bela.
 
 **ʜʀɢɴ: **Mi demandas.
 
-**ʀ: **Nu, se vi akceptas, li estas Areso [Ares] ĉar li estas maskla [ar-rēs] kaj vireca [andreios]. Aŭ li nomiĝis ĉar li estas rigida kaj mal-
-
-ŝanĝiĝema, do arrotos kio signifas “malŝanĝiĝema”, do Areso ĉiel taŭ-
+**ʀ: **Nu, se vi akceptas, li estas Areso [Ares] ĉar li estas maskla [ar-rēs] kaj vireca [andreios]. Aŭ li nomiĝis ĉar li estas rigida kaj malŝanĝiĝema, do arrotos kio signifas “malŝanĝiĝema”, do Areso ĉiel taŭ-
 
 gas por militdio.
 
 **ʜʀɢɴ:** Certe.
 
-**ʀ: **Je la dioj, ni ĉesu pri la dioj! Mi timas diskuti ilin. Demandu laŭ-
+**ʀ: **Je la dioj, ni ĉesu pri la dioj! Mi timas diskuti ilin. Demandu laŭvole pri iuj aliaj, kaj “tiam vi vidos kiaj estas la ĉevaloj” de Eŭtifro.
 
-vole pri iuj aliaj, kaj “tiam vi vidos kiaj estas la ĉevaloj” de Eŭtifro.
-
-**ʜʀɢɴ: **Nu, mi faros tion; sed permesu ke mi demandu al vi pri Her-
-
-meso , ĉar Kratilo diras ke mi “ne estas filo de Hermeso”. Do ni provu
+**ʜʀɢɴ: **Nu, mi faros tion; sed permesu ke mi demandu al vi pri Hermeso , ĉar Kratilo diras ke mi “ne estas filo de Hermeso”. Do ni provu
 
 ekzameni Hermeson kaj kompreni tiun nomon, por ke mi sciu ĉu li
 
@@ -1782,23 +1624,17 @@ pravas pri tio.
 
 [hermenea], kaj “meŝagisto”, kaj “ŝtelisto”, kaj “trompisto” pri vortoj,
 
-kaj komercisto — ĉio tia temas pri parolado. Kiel ni diris antaŭe, “pa-
-
-roli” signifas “uzi vortojn”, kiel Homero plurloke diras. Li diras ke “li
+kaj komercisto — ĉio tia temas pri parolado. Kiel ni diris antaŭe, “paroli” signifas “uzi vortojn”, kiel Homero plurloke diras. Li diras ke “li
 
 planis” [emēsato], kio signifas “elpensis” [mēĥanēsasθai]. Per ĉi tiuj
 
-du vortoj, “diri” kaj la vorto “plani” — ĉar “diri” signifas “paroli” [eir-
-
-ein] — la leĝfarinto kvazaŭ ordonas al ni: “Homoj, la personon kiu
+du vortoj, “diri” kaj la vorto “plani” — ĉar “diri” signifas “paroli” [eirein] — la leĝfarinto kvazaŭ ordonas al ni: “Homoj, la personon kiu
 
 plane parolis vi prave nomu eiremēs ”. Ni beligis (laŭ nia supozo) la
 
-nomon kaj faris el ĝi Hermeso. [Ankaŭ Irisa, laŭŝajne, venis el la vor-
+nomon kaj faris el ĝi Hermeso. [Ankaŭ Irisa, laŭŝajne, venis el la vorto “paroli” [eirein], ĉar ŝi estis mesaĝisto.]
 
-to “paroli” [eirein], ĉar ŝi estis mesaĝisto.]
-
-**ʜʀɢɴ: **Je Zeŭso, mi kredas ke Kratilo plene pravis kiam li diris ke 29
+**ʜʀɢɴ: **Je Zeŭso, mi kredas ke Kratilo plene pravis kiam li diris ke
 
 mi ne estas “Hermogeno”. Mi estas tute mallerta pri vortoj.
 
@@ -1808,9 +1644,7 @@ kamarado.
 
 **ʜʀɢɴ:** Kiel?
 
-**ʀ: **Vi scias ke “parolo” [logos] signifas “ĉion” [pan], kaj ke ĝi ĉirkaŭ-
-
-iras kaj vagadas konstante, kaj estas dunatura: vera kaj falsa.1
+**ʀ: **Vi scias ke “parolo” [logos] signifas “ĉion” [pan], kaj ke ĝi ĉirkaŭiras kaj vagadas konstante, kaj estas dunatura: vera kaj falsa.1
 
 **ʜʀɢɴ:** Certe.
 
@@ -1869,9 +1703,7 @@ Poikillein [multspecigi] kaj aiolein estas sinonimoj.1
 
 **ʀ: **La lumo ĉirkaŭ la luno estas ĉiam kaj nova kaj malnova, se la
 
-disĉiploj de Anaksagoro pravas. Ĉar ĉirkaŭirante ĝnstante ĝi al-
-
-donas novan lumon, dum restas la lumo de la antaŭa monato.3
+disĉiploj de Anaksagoro pravas. Ĉar ĉirkaŭirante ĝnstante ĝi aldonas novan lumon, dum restas la lumo de la antaŭa monato.3
 
 **ʜʀɢɴ:** Certe.
 
@@ -1906,9 +1738,7 @@ Anaksagoro vivis ĉ.500-c.428, li mortis kiam Sokrato estis ĉ. 41-jara, tuj ant
 Ŝajne la “ĝi” = la suno, kaj Platono ĉi tie mencias la ĉirkaŭiron de la suno — kvankam ni ne scias ke la rivoluado de la suno estis parto de la instruoj de Anaksagoro.
 
 
-ĉar ĝi konsistas el okul-turnado [ōpa anastrefei], devas esti anastro-
-
-pē,1 kaj oni plibeligis ĝin por fari la nunan vorton Astrapē.
+ĉar ĝi konsistas el okul-turnado [ōpa anastrefei], devas esti anastropē,1 kaj oni plibeligis ĝin por fari la nunan vorton Astrapē.
 
 **ʜʀɢɴ: **Kion pri fajro kaj akvo?
 
@@ -1926,9 +1756,7 @@ ajn mi tute ne scias ion tian.
 
 **ʜʀɢɴ: **Do?
 
-**ʀ: **Vi scias ke se oni penas montri la taŭgecon de nomo laŭ la hele-na lingvo anstataŭ laŭ la lingvo al kiu ĝi apartenas, la entrepreno de-
-
-vas fiaski.
+**ʀ: **Vi scias ke se oni penas montri la taŭgecon de nomo laŭ la hele-na lingvo anstataŭ laŭ la lingvo al kiu ĝi apartenas, la entrepreno devas fiaski.
 
 **ʜʀɢɴ:** Prave.
 
@@ -1940,9 +1768,7 @@ vas fiaski.
 
 **ʀ: **Do ni ne perfortu tiujn vortojn, ĉar iu povas informi pri ili. Do mi formetas “fajron” kaj “akvon”.
 
-[aer], Hermogeno, havas tiun nomon ĉar ĝi levas [airei] super la te-
-
-ron. Aŭ eble ĉar ĝi konstante fluas [aei hreei]. Aŭ ĉar vento fluas el ĝi,
+[aer], Hermogeno, havas tiun nomon ĉar ĝi levas [airei] super la teron. Aŭ eble ĉar ĝi konstante fluas [aei hreei]. Aŭ ĉar vento fluas el ĝi,
 
 kaj poetoj uzas la vorton aētas por signifi “ventoj”. Eble aer originis
 
@@ -1975,9 +1801,7 @@ anstataŭ gegennesθai [naskiĝi]. Bone. Kio sekvos tion?
 
 **ʀ: **Sezonoj [hōrai] devas esti dirata laŭ la arkaika atika maniero, se oni volas kompreni ĝin. HORAI1 nomiĝas tiel ĉar ili dividas la vintr-on de la somero kaj de la ventoj kaj la terproduktoj. Ĉar ili dividas
 
-[horizein] ili nomiĝas horai. Eniautos kaj etos [ambaŭ signifas mona-
-
-to] sendube estas unusama vorto. Ĝi estas tio kio enlumigas ĉiujn
+[horizein] ili nomiĝas horai. Eniautos kaj etos [ambaŭ signifas monato] sendube estas unusama vorto. Ĝi estas tio kio enlumigas ĉiujn
 
 kreskaĵojn kaj iĝantojn, laŭvice, kaj kontrolas ilin en si. Simile kiel la
 
@@ -1999,9 +1823,7 @@ eniautos kaj etos, el unusola vorto.
 
 **ʀ: **Sed vi diros: eĉ pli rapide.
 
-**411 ʜʀɢɴ: **Nu, post tio mi volonte vidus la ĝustecon de la belaj nomoj kiuj rilatas al virto, ekzemple: sagaco [fronēsis] kaj intelekto [su-
-
-nesis] kaj justeco [dikaiosunē] kaj ĉio alia tia.
+**411 ʜʀɢɴ: **Nu, post tio mi volonte vidus la ĝustecon de la belaj nomoj kiuj rilatas al virto, ekzemple: sagaco [fronēsis] kaj intelekto [sunesis] kaj justeco [dikaiosunē] kaj ĉio alia tia.
 
 **ʀ: **Nu, amiko, vi vigligas nemalgrandan klason de vortoj. Sed ĉar
 
@@ -2028,17 +1850,11 @@ Vidu la diskuton en 394.
 
 nuntempaj saĝuloj, serĉas por trovi informon pri estaĵoj kaj pro sia
 
-propra tro multa mensturniĝo ili konkludas ke tiuj objektoj mem ĉir-
+propra tro multa mensturniĝo ili konkludas ke tiuj objektoj mem ĉirkaŭiras. Ili ne rimarkas ke la kaŭzo estas ilia propra interna kapturn-
 
-kaŭiras. Ili ne rimarkas ke la kaŭzo estas ilia propra interna kapturn-
+iĝo, sed decidas ke la aferoj faras tion laŭnature, ke nenio estas senmova aŭ plene stabila, ke ĉio fluas kaj moviĝas kaj estas plena de ĉia
 
-iĝo, sed decidas ke la aferoj faras tion laŭnature, ke nenio estas sen-
-
-mova aŭ plene stabila, ke ĉio fluas kaj moviĝas kaj estas plena de ĉia
-
-movo kaj konstanta ŝanĝiĝado. Mi diras tion pripensinte ĉiujn vort-
-
-ojn ĝis nun pritraktitajn.
+movo kaj konstanta ŝanĝiĝado. Mi diras tion pripensinte ĉiujn vortojn ĝis nun pritraktitajn.
 
 **ʜʀɢɴ: **Kiel povas esti, Sokrato?
 
@@ -2056,9 +1872,7 @@ volas, tiu vorto temas pri moviĝo.
 
 Opinio [gnōmē] sendube indikas rigardon al estiĝo kaj observadon.
 
-[gonēs skepsin kai nōmēsis]. Observi [nōman] kaj rigardi [skopein] es-
-
-tas sinonimoj.
+[gonēs skepsin kai nōmēsis]. Observi [nōman] kaj rigardi [skopein] estas sinonimoj.
 
 Se vi volas, intelekto [noēsis] estas celado al noveco [neou hesis], “esti
 
@@ -2070,38 +1884,28 @@ de tiu vorto ne estis noēsis, oni diris duoblan e: noeesis.
 
 **412** Prudento [sofrosunē] estas savo [sōtēria] de la sagaco [fronēsis] kiun ni ĵus ekzamenis.
 
-Scio [epistēmē] signifas ke valora menso sekvas [hepomenēs] la mov-
-
-iĝon de objektoj, kaj nek postlasiĝas nek antaŭiras. Do necesas en-
+Scio [epistēmē] signifas ke valora menso sekvas [hepomenēs] la moviĝon de objektoj, kaj nek postlasiĝas nek antaŭiras. Do necesas en-
 
 meti e kaj diri hepeistēmē.
 
 Intelekto [sunesis] ŝajnas simile esti ia kolektaĵo, kaj esprimas kuniri
 
-[sunienai] kaj ensume akompanas scion. Intelekto indikas ke la men-
-
-so veturas kun la objektoj.
+[sunienai] kaj ensume akompanas scion. Intelekto indikas ke la menso veturas kun la objektoj.
 
 Sed saĝo [sofia] signifas tuŝi moviĝon. Ĝi estas pli obskura vorto kaj
 
 pli fremda. Sed necesas memori ke la poetoj ofte diras, kiam okazas
 
 
-komenco de rapida antaŭeniro, esuθe [li rapidis]. Estis fama Lacede-
-
-mona viro nomata Sous [Rapido]. Kaj la Lacedemonanoj uzas tiun
+komenco de rapida antaŭeniro, esuθe [li rapidis]. Estis fama Lacedemona viro nomata Sous [Rapido]. Kaj la Lacedemonanoj uzas tiun
 
 vorton por la senco “rapide ataki”. Saĝo [sofia] signifas moviĝotuŝon
 
 [foras epafēn], ĉar ekzistaĵoj moviĝas.
 
-Bona [agaθos] estas nomo aplikata al ĉio kiu pro sia naturo estas ad-
+Bona [agaθos] estas nomo aplikata al ĉio kiu pro sia naturo estas admirinda. Ĉar ekzistaĵoj moviĝas — kelkaj estas rapidaj, kelkaj estas
 
-mirinda. Ĉar ekzistaĵoj moviĝas — kelkaj estas rapidaj, kelkaj estas
-
-malrapidaj — tiu vorto ne aplikiĝas al ĉiuj rapidaĵoj, nur al la admir-
-
-indaj. Al la admirinda rapido [θoou agastō] atribuiĝas la vorto “la bo-
+malrapidaj — tiu vorto ne aplikiĝas al ĉiuj rapidaĵoj, nur al la admirindaj. Al la admirinda rapido [θoou agastō] atribuiĝas la vorto “la bo-
 
 no”.
 
@@ -2115,9 +1919,7 @@ preter tio oni disputas. Personoj kiuj opinias ke ĉio moviĝas, supozas
 
 ke la plejparto estas nenio alia ol enhavaĵo, kaj ke trairas ĝin io kio
 
-kaŭzas la estiĝon de ĉio. Tio estas plej rapida kaj plej fajna. Ĝi ne po-
-
-vus trairi senreziste la tutan ekzistaĵaron se ĝi ne estus plej fajna. Kaj
+kaŭzas la estiĝon de ĉio. Tio estas plej rapida kaj plej fajna. Ĝi ne povus trairi senreziste la tutan ekzistaĵaron se ĝi ne estus plej fajna. Kaj
 
 ĝi devas esti rapida tiel ke estas kvazaŭ ĉio alia staras senmove. Ĝi
 
@@ -2125,19 +1927,13 @@ estras ĉion alian kiam ĝi trairas. Ĉi tiu vorto prave nomiĝas dikaios,
 
 la k aldoniĝis por facila prononco.
 
-**413** Ĝis tio estas ĝenerala interkonsento rilate al kion ni ĵus diris pri justo. Sed mi, Hermogeno, ĉar mi estas obstina pri ĝi, informiĝis, sekre-
-
-te, ke la Justo kaj la Kaŭzo estas unusama afero — tio per kio io ek-
+**413** Ĝis tio estas ĝenerala interkonsento rilate al kion ni ĵus diris pri justo. Sed mi, Hermogeno, ĉar mi estas obstina pri ĝi, informiĝis, sekrete, ke la Justo kaj la Kaŭzo estas unusama afero — tio per kio io ek-
 
 ekzistas estas kaŭzo — kaj pro tio estas ĝuste nomi ĝin Dia, laŭ ies
 
-diro. Tiam mi, aŭdinte ĉion ĉi, kviete demandas al ili: “Amiko, kio es-
+diro. Tiam mi, aŭdinte ĉion ĉi, kviete demandas al ili: “Amiko, kio estas justo, se estas tiel?”
 
-tas justo, se estas tiel?”
-
-Nu, mi ŝajnas demandi pli ol decas, kaj voli salti pli ol estas permes-
-
-ate. Ili diras ke mi sufiĉe demandis kaj ili volas kaj penas kontentigi
+Nu, mi ŝajnas demandi pli ol decas, kaj voli salti pli ol estas permesate. Ili diras ke mi sufiĉe demandis kaj ili volas kaj penas kontentigi
 
 min per ankoraŭ aliaj respondoj, kaj neniu interakordo ekzistas. Unu
 
@@ -2155,10 +1951,7 @@ fajro. Estas malfacile kompreni tiun respondon. Iu diras “Ne, ne fajro
 
 mem, sed la varmo kiu ekzistas en la fajro.”
 
-Iu alia diras ke li ridas pri ĉio ĉi, kaj ke la Justo estas, kiel diras Anak-
-
-
-sagoro, menso. Ĉar ĝi estas plenpotenca, kaj unusola substanco, kaj,
+Iu alia diras ke li ridas pri ĉio ĉi, kaj ke la Justo estas, kiel diras Anaksagoro, menso. Ĉar ĝi estas plenpotenca, kaj unusola substanco, kaj,
 
 li diras, ĝi ordigas ĉion kaj penetras ĉion. Sekve, amiko, mi estas pli
 
@@ -2178,13 +1971,9 @@ ke ni ankoraŭ ne diskutis kuraĝon. Maljusteco estas klare malhelpo
 
 al penetrado; kuraĝo [andreia] estas vorto kiu temas pri batalo —
 
-batalo estas en la realo; se la realo estas fluanta, kuraĝo [andreia] es-
+batalo estas en la realo; se la realo estas fluanta, kuraĝo [andreia] estas nenio alia ol la malo de fluado [enantia hroe]. Se oni elprenas la d
 
-tas nenio alia ol la malo de fluado [enantia hroe]. Se oni elprenas la d
-
-el la vorto andreia la senco de andreia evidentiĝas. Estas klare ke ku-
-
-raĝo ne estas la malo de ĉia fluo, nur tiu kiu kontraŭas Juston; ĉar
+el la vorto andreia la senco de andreia evidentiĝas. Estas klare ke kuraĝo ne estas la malo de ĉia fluo, nur tiu kiu kontraŭas Juston; ĉar
 
 nur tial oni laŭdus kuraĝon. Maskla kaj viro [arren kaj anēr] havas
 
@@ -2216,13 +2005,11 @@ metu e inter la ĥ kaj la n, [la n kaj la e] ĉu ne?1
 
 1.
 
-La teksto inter krampoj eble estas ies enmarĝena noto klopodanta korekti kaj komprenebligi 36
+La teksto inter krampoj eble estas ies enmarĝena noto klopodanta korekti kaj komprenebligi
 
 **ʜʀɢɴ: **Tre mizera provo, Sokrato.
 
-**ʀ: **Kara amiko, ĉu vi ne scias ke la unuaj nomoj donitaj jam estas kovritaj de personoj dezirantaj troornami ilin? Ili surmetas kaj elprenas literojn por belsonigi la vortojn, kaj ĉiel tordas ilin, kaj la vor-
-
-toj suferas plibeligon kaj la efikon de tempo. Ekzemplo estas la vorto
+**ʀ: **Kara amiko, ĉu vi ne scias ke la unuaj nomoj donitaj jam estas kovritaj de personoj dezirantaj troornami ilin? Ili surmetas kaj elprenas literojn por belsonigi la vortojn, kaj ĉiel tordas ilin, kaj la vortoj suferas plibeligon kaj la efikon de tempo. Ekzemplo estas la vorto
 
 spegulo [katoptron]. Ĉu vi ne opinias nekredebla ke oni enmetis la
 
@@ -2232,9 +2019,7 @@ veron kaj celas nur faciligi la buŝadon.1 Pro multaj literoj aldonitaj al
 
 la pravortoj la rezulto estas ke neniu povas kompreni la signifon de la
 
-vortoj. Ekzemple, ni trovas Sfinga [Sfinkso] anstataŭ fikos por la sig-
-
-nifo “Sfinkso”,2 kaj multajn aliajn tiajn vortojn.
+vortoj. Ekzemple, ni trovas Sfinga [Sfinkso] anstataŭ fikos por la signifo “Sfinkso”,2 kaj multajn aliajn tiajn vortojn.
 
 **ʜʀɢɴ: **Jes, tio estas vera, Sokrato.
 
@@ -2246,23 +2031,17 @@ nifo “Sfinkso”,2 kaj multajn aliajn tiajn vortojn.
 
 **ʜʀɢɴ: **Tion mi deziras.
 
-**ʀ: **Kaj mi volas tion kun vi, Hermogeno. Sed ne estu tro harfend-
-
-ema, amiko, por ke vi ne forprenu mian forton.3
+**ʀ: **Kaj mi volas tion kun vi, Hermogeno. Sed ne estu tro harfendema, amiko, por ke vi ne forprenu mian forton.3
 
 **415** Mi atingos la kulminon de nia diskuto kiam apud rimedo ni pritrakt-os “aparato” [mēĥanē]. Ŝajnas al mi ke aparato signifas fini [anein]
 
-multon, ĉar grandaĵo [mēkos] signifas “multe”. La vorto mēĥanē kon-
-
-sistas el ambaŭ vortoj, mēkos kaj anein.
+multon, ĉar grandaĵo [mēkos] signifas “multe”. La vorto mēĥanē konsistas el ambaŭ vortoj, mēkos kaj anein.
 
 Sed, kiel mi ĵus diris, ni iru al la kulmino de la diskuto ĉar necesas
 
 ekzameni “virto” [aretē] kaj “malvirto” [kakia]. Mi ne klare vidas la
 
-originon de la unua el tiuj vortoj, sed mi kredas ke la dua estas evi-
-
-denta. Ĝi akordas kun ĉiuj vortoj jam diskutitaj: ĉiuj ekzistaĵoj mov-
+originon de la unua el tiuj vortoj, sed mi kredas ke la dua estas evidenta. Ĝi akordas kun ĉiuj vortoj jam diskutitaj: ĉiuj ekzistaĵoj mov-
 
 la tekston. Rimarku ankaŭ ke Platono egaligas la literojn ξ ks kaj χ ĥ.
 
@@ -2281,15 +2060,11 @@ Iliado 6:265
 
 iĝas, kaj ĉio iranta malbone [kakōs ion] estas malvirto [kakia].
 
-Kiam ĝi estas en la psiko — kiam oni malbone iras rilate al objek-
-
-toj — ĝi ricevas la pli ĝeneralan nomon kakia. Mi kredas ke kio estas
+Kiam ĝi estas en la psiko — kiam oni malbone iras rilate al objektoj — ĝi ricevas la pli ĝeneralan nomon kakia. Mi kredas ke kio estas
 
 “malbone iri” montriĝas per la vorto malkuraĝo [deilia], kiun ni
 
-ankoraŭ ne diskutis, ĉar ni preteriris ĝin kvankam ĝi devus ekzamen-
-
-iĝi kun kuraĝo [andreia]1 — mi kredas ke ni preteriris ankaŭ multajn
+ankoraŭ ne diskutis, ĉar ni preteriris ĝin kvankam ĝi devus ekzameniĝi kun kuraĝo [andreia]1 — mi kredas ke ni preteriris ankaŭ multajn
 
 aliajn vortojn.
 
@@ -2303,9 +2078,7 @@ Malfacilo [aporia] estas malbono, kaj tia estas ĉio, mi opinias, kiu
 
 malhelpas iradon kaj marŝadon [poreuesθai].3 Tio laŭaspekte signifas
 
-“malbone iri”, sinretene kaj malhelpate marŝi. Kiam la psiko havas ti-
-
-on, ĝi pleniĝas per malvirto. Kiam tiel estas, la signifo estas “malvir-
+“malbone iri”, sinretene kaj malhelpate marŝi. Kiam la psiko havas tion, ĝi pleniĝas per malvirto. Kiam tiel estas, la signifo estas “malvir-
 
 to”, la kontraŭo de “virto”. “Virto” [aretē] signifas. unue, facilan iron,
 
@@ -2315,13 +2088,9 @@ ricevis la nomon kiu signifas “ĉiam flui neregeble kaj nehaltigeble”: la
 
 korekta formo de tiu nomo estus aeireitēs [ĉiam-flua] (eble ĝi devas
 
-esti hairetē signifanta “plej elektinda sinteno [hairetōtatēs]”.)4 Mal-
+esti hairetē signifanta “plej elektinda sinteno [hairetōtatēs]”.)4 Mallongigite ĝi estas simple aretē .
 
-longigite ĝi estas simple aretē .
-
-Eble vi diros ke mi elpensas tion. Sed mi diras ke se la antaŭa disku-
-
-to, pri malbono, pravas, do ankaŭ la diskuto pri ĉi tiu vorto “virto”
+Eble vi diros ke mi elpensas tion. Sed mi diras ke se la antaŭa diskuto, pri malbono, pravas, do ankaŭ la diskuto pri ĉi tiu vorto “virto”
 
 estas korekta.
 
@@ -2360,9 +2129,7 @@ insulti la malebligon kaj haltigon je la fluo de ekzisto, per ĉiuj siaj
 
 vortoj. Kaj nun al tio kio povas konstante flui [aei isĥonti ton hroun]
 
-li donis la nomon aeisĥoroun, kaj malgrandigante tion li uzis la vort-
-
-on aisĥros.
+li donis la nomon aeisĥoroun, kaj malgrandigante tion li uzis la vorton aisĥros.
 
 **ʜʀɢɴ: **Kaj bela [kalos]?
 
@@ -2415,9 +2182,7 @@ Vortludo: kalein (nomi) kaj kaloun (beleco). Krome, la vorto kaloun sonas tre si
 
 **ʜʀɢɴ:** Certe.
 
-**ʀ: **Medicino estigas kuracojn kaj la ĉarpentarto estigas ĉarpentaĵ-
-
-ojn, ĉu vi konsentas?
+**ʀ: **Medicino estigas kuracojn kaj la ĉarpentarto estigas ĉarpentaĵojn, ĉu vi konsentas?
 
 **ʜʀɢɴ: **Jes ja.
 
@@ -2441,9 +2206,7 @@ ojn, ĉu vi konsentas?
 
 portiĝon [hama fora] de la psiko kun objektoj,1 kaj kio estas farata
 
-per tio nomiĝas kunportaĵoj [sumferonta], do sumperiferesθai {kun-
-
-ĉirkaŭportiĝi]. Profitdono [kerdaleon]: tiu vorto venas el profito. Pro-
+per tio nomiĝas kunportaĵoj [sumferonta], do sumperiferesθai {kunĉirkaŭportiĝi]. Profitdono [kerdaleon]: tiu vorto venas el profito. Pro-
 
 fito [kerdos], se la d ŝanĝiĝas en n, indikas sian signifon. Ĝi estas alia
 
@@ -2460,13 +2223,9 @@ n, tiel ke ĝi sonas kerdos.
 Sum− = kun-.
 
 
-**ʀ: **Ŝajnas ke ĝia signifo, Hermogeno, ne estas kiel la vendistoj uzas ĝin: ke la koston ĝi nuligas [apoluei]. Mi kredas ke lusiteloun ne signifas tion. Ĝi signifas ke ĝi estas la plej rapida realaĵo, ke ĝi ne per-
+**ʀ: **Ŝajnas ke ĝia signifo, Hermogeno, ne estas kiel la vendistoj uzas ĝin: ke la koston ĝi nuligas [apoluei]. Mi kredas ke lusiteloun ne signifas tion. Ĝi signifas ke ĝi estas la plej rapida realaĵo, ke ĝi ne permesas ke estu halto. Kaj ke moviĝo, atinginte finon [telos], ne ĉesas
 
-mesas ke estu halto. Kaj ke moviĝo, atinginte finon [telos], ne ĉesas
-
-moviĝi, ne haltas, sed konstante liberiĝas [luei], se ĝi provas proksi-
-
-miĝi al fino [telos]. Ĝi liberiĝas senĉesa kaj senmorta. Tial mi kredas
+moviĝi, ne haltas, sed konstante liberiĝas [luei], se ĝi provas proksimiĝi al fino [telos]. Ĝi liberiĝas senĉesa kaj senmorta. Tial mi kredas
 
 ke la bono diriĝas esti lusiteloun, ĉar ĝi nuligas la finon [luon to telos]
 
@@ -2482,9 +2241,7 @@ formo ofellein [avantaĝi]. Tiel nomiĝas “kreski kaj fari”.
 
 **ʜʀɢɴ: **Kiujn vortojn?
 
-**ʀ: **malvaloro [asumforon], kaj malavantaĝa [anōfeles], kaj malpro-
-
-fitigo [alusiteles], kaj malprofito [akerdes].
+**ʀ: **malvaloro [asumforon], kaj malavantaĝa [anōfeles], kaj malprofitigo [alusiteles], kaj malprofito [akerdes].
 
 **ʜʀɢɴ: **Vi pravas.
 
@@ -2498,9 +2255,7 @@ fitigo [alusiteles], kaj malprofito [akerdes].
 
 estas, mi kredas, blaberon.
 
-**ʜʀɢɴ: **La vortoj montriĝas tre kompleksaj, Sokrato, kaj nun, ŝajnas al mi, estas kvazaŭ vi imitas fluton per via buŝo kaj penas sonigi pre-ludon de Atena leĝo, proklamante ke tiu nomo signifas boulapter-
-
-oun.
+**ʜʀɢɴ: **La vortoj montriĝas tre kompleksaj, Sokrato, kaj nun, ŝajnas al mi, estas kvazaŭ vi imitas fluton per via buŝo kaj penas sonigi pre-ludon de Atena leĝo, proklamante ke tiu nomo signifas boulapteroun.
 
 **418** **ʀ: **Ne mi kulpas, Hermogeno, kulpas la nomdoninto.
 
@@ -2508,9 +2263,7 @@ oun.
 
 **ʀ: **Kio do estas pereiga [zēmiōdes]? Rimarku, Hermogeno, ke mi
 
-diris veron kiam mi diris ke aldonante kaj elprenante literojn la men-
-
-so multe ŝanĝas nomojn. Kelkfoje malgranda ŝanĝo multe ŝanĝas la
+diris veron kiam mi diris ke aldonante kaj elprenante literojn la menso multe ŝanĝas nomojn. Kelkfoje malgranda ŝanĝo multe ŝanĝas la
 
 
 sencon, farante kontraŭon. Ekzemple, mi pensas pri “necesa” [deon],
@@ -2533,9 +2286,7 @@ ilin pli grandiozsonaj.
 
 **ʜʀɢɴ:** Do?
 
-**ʀ: **Kiel la antikvuloj diris himeran anstaŭ hemeran, nuntempe ans-
-
-tataŭ hemeran oni diras hēmeran.
+**ʀ: **Kiel la antikvuloj diris himeran anstaŭ hemeran, nuntempe anstataŭ hemeran oni diras hēmeran.
 
 **ʜʀɢɴ:** Jes.
 
@@ -2580,17 +2331,13 @@ bon-vortoj kiujn ni diskutis, se oni anstataŭigas la e per i kaj uzas la
 
 malnovan formon diion [Zeŭsa]. Tio indikas “bonon”, do ĝi estas
 
-laŭda vorto, eĉ kvankam deon ne estas tia. Tiel la nomfarinto ne kon-
-
-traŭdiras sin mem, kaj “ĝusteco, avantaĝo, profitdono, profitigo, bo-
+laŭda vorto, eĉ kvankam deon ne estas tia. Tiel la nomfarinto ne kontraŭdiras sin mem, kaj “ĝusteco, avantaĝo, profitdono, profitigo, bo-
 
 no, valoro, prospero” indikas la saman aferon: kelkaj laŭde indikas
 
 ordigon kaj ĉiemoviĝon, aliaj malaprobe indikas retenon kaj ligon.
 
-Zēmiōdes [pereiga], laŭ la malnova formo kun d anstataŭ z, montriĝ-
-
-as esti vorto nomanta ligon de moviĝo [dounti to ion]: dēmiōdes .
+Zēmiōdes [pereiga], laŭ la malnova formo kun d anstataŭ z, montriĝas esti vorto nomanta ligon de moviĝo [dounti to ion]: dēmiōdes .
 
 **ʜʀɢɴ: **Kion pri plezuro [hēdonē] kaj malplezuro [lupē] kaj emocio
 
@@ -2608,9 +2355,7 @@ korpo sentas dum tiu emocio.
 
 Ĝeno [ania] estas malebligo de iro. [(a)-ienai].
 
-Algēdōn [doloro] ŝajnas al mi esti fremda vorto, kaj nomita laŭ al-
-
-geinos [suferiga].
+Algēdōn [doloro] ŝajnas al mi esti fremda vorto, kaj nomita laŭ algeinos [suferiga].
 
 Odunē [malĝojo] verŝajne estas nomita ĉar ĝi vestas sin [enduseōs]
 
@@ -2624,9 +2369,7 @@ Aĥθēdōn [ĉagreno] tute klare estas bildo de premo farata de ŝarĝo.1
 
 Terpsis [ĝuo] el terpnon [ĝuiga]: terpnon nomiĝas pro bildigo de la
 
-psiko kiel herpsis [marŝo] de pnoē [spiro]. Korekte ĝi nomiĝus herp-
-
-noun, sed dum la paso de tempo ĝi ŝanĝiĝis al terpnon.
+psiko kiel herpsis [marŝo] de pnoē [spiro]. Korekte ĝi nomiĝus herpnoun, sed dum la paso de tempo ĝi ŝanĝiĝis al terpnon.
 
 Eufrosunē [feliĉo] tute ne bezonas specialan klarigon. Estas klare al
 
@@ -2639,9 +2382,7 @@ Aĥθos signifas “ŝarĝo”, kvankam Platono en ĉi tiu frazo anstataŭe uzas
 
 realaĵoj. La korekta vorto estus euferosunē, tamen ni diras eufrosunē.
 
-Ankaŭ epiθumia [emocio] ne estas malfacila. Estas evidente ke ĝi ri-
-
-cevis sian nomon pro la iro de potenco en la menson [θumon iousē].
+Ankaŭ epiθumia [emocio] ne estas malfacila. Estas evidente ke ĝi ricevis sian nomon pro la iro de potenco en la menson [θumon iousē].
 
 Θumos [menso] ricevas sian nomon pro la θuseōs [furiozo] kaj zeseōs
 
@@ -2673,17 +2414,13 @@ nomiĝas erōs pro la ŝanĝo de la o al ō. Nun pri kio ni diskutu?
 
 **ʀ: **Doksa nomiĝis aŭ laŭ diōksei [ĉaso] al scio pri kiaj estas aferoj; aŭ, pli verŝajne, laŭ ĵeto de sago [toksou].
 
-oiēsis [supozo] akordas kun tio. Ĝi simile signifas la “moviĝon” [oi-
-
-sin]2 de la psiko al ĉio ajn, rilate al kia estas ĉiu realaĵo.
+oiēsis [supozo] akordas kun tio. Ĝi simile signifas la “moviĝon” [oisin]2 de la psiko al ĉio ajn, rilate al kia estas ĉiu realaĵo.
 
 Ankaŭ decido [boulē] parencas al ĵeto [bolē] kaj voli [boulesθai], ĝi
 
 signfas kaj alĵeton kaj pripenson [bouleuesθai]. Ĉiuj tiuj vortoj ŝajnas
 
-esti bildigitaj laŭ ĵeto [bolē]. Estas same pri la malo, aboulia [sen-
-
-zorgo] kiu klare estas misfortuno de persono kiu maltrafas kion li ce-
+esti bildigitaj laŭ ĵeto [bolē]. Estas same pri la malo, aboulia [senzorgo] kiu klare estas misfortuno de persono kiu maltrafas kion li ce-
 
 lis kaj volis kaj deziris.
 
@@ -2702,9 +2439,7 @@ Platono iom imagoplene inventas ĉi tiun vorton, surbaze de unu el la formoj de 
 “porti”.
 
 
-Hekousios [laŭvola] signifas cedon [eikon] kaj nereziston. Kiel mi dir-
-
-is, montriĝas ke ĝi estas ekcedo al onia volo [boulēsis].
+Hekousios [laŭvola] signifas cedon [eikon] kaj nereziston. Kiel mi diris, montriĝas ke ĝi estas ekcedo al onia volo [boulēsis].
 
 Kontraste, “necesa” kaj “rezistanta” estas kontraŭvolaj; ili temas pri
 
@@ -2740,9 +2475,7 @@ Alēθeia [vero] simile estas kunmetita el frazo. Moviĝo estas la dieco
 
 Pseudos [falseco] estas la malo de moviĝo. Ĝi estas ankoraŭ alia
 
-riproĉvorto kiu signifas “sinreteno” kaj “devo halti”, kio estas kompar-
-
-ebla kun dormantoj [kaθeudousi]. La enmetita ps kaŝas la celon de la
+riproĉvorto kiu signifas “sinreteno” kaj “devo halti”, kio estas komparebla kun dormantoj [kaθeudousi]. La enmetita ps kaŝas la celon de la
 
 vorto.
 
@@ -2769,17 +2502,13 @@ Iom malofta vorto, uzata nur en poezio. Ĝi signifis “serĉi”.
 
 **ʜʀɢɴ:** Kiel?
 
-**ʀ: **Ke tiuj kiujn ni ne komprenas estas fremdlingvaj vortoj; eble io tia estas vera pri ili. Kvankam povas esti ke pro sia antikveco la origina formo de la vortoj ne plu estas trovebla. La vortoj tiom modifiĝ-
-
-is ke tute ne mirigas se la antikva lingvo tute ne diferencas de fremda
+**ʀ: **Ke tiuj kiujn ni ne komprenas estas fremdlingvaj vortoj; eble io tia estas vera pri ili. Kvankam povas esti ke pro sia antikveco la origina formo de la vortoj ne plu estas trovebla. La vortoj tiom modifiĝis ke tute ne mirigas se la antikva lingvo tute ne diferencas de fremda
 
 lingvo, por ni.
 
 **ʜʀɢɴ:** Vi diras nenion eksterordinaran.
 
-**ʀ: **Miaj diroj estas verŝajnaj. Sed ne atendu ke mi pravigu ilin. Ni devas fervore ekzameni ilin, tamen pripensu: se iu ĉiam plu ekzamenas la vortojn kiujn li uzas por klarigi aliajn vortojn, kaj denove pri-
-
-demandas tiujn vortojn, senfine, neeviteble li fine atingos finon de sia
+**ʀ: **Miaj diroj estas verŝajnaj. Sed ne atendu ke mi pravigu ilin. Ni devas fervore ekzameni ilin, tamen pripensu: se iu ĉiam plu ekzamenas la vortojn kiujn li uzas por klarigi aliajn vortojn, kaj denove pridemandas tiujn vortojn, senfine, neeviteble li fine atingos finon de sia
 
 kapablo respondi, ĉu ne?
 
@@ -2793,9 +2522,7 @@ vortoj, kiam tio okazas. Ekzemple, ni ĵus diris ke agaθos konsistas el
 
 agastos [admirinda] kaj θoos [rapida]. Verŝajne ni povus diri ke θoos
 
-[rapida] konsistas el aliaj vortoj, kaj ili el ankoraŭ aliaj. Sed se ni atin-
-
-gas vorton kiu ne konsistas el iuj aliaj vortoj, ni prave dirus ke ni
+[rapida] konsistas el aliaj vortoj, kaj ili el ankoraŭ aliaj. Sed se ni atingas vorton kiu ne konsistas el iuj aliaj vortoj, ni prave dirus ke ni
 
 atingis la bazajn elementojn kaj ne bezonas plu analizi ĝin.
 
@@ -2809,15 +2536,13 @@ diru sensencaĵojn, kia devas esti la korekteco de la originaj nomoj.
 
 **ʜʀɢɴ:** Nur parolu, kaj mi kunekzamenos laŭeble.
 
-**ʀ: **Nu, estas unu sola korekteco por ĉiu nomo, negrave ĉu baz-
-
-nivela ĉu kunmetita, tiurilate la nomoj tute ne varias. Mi kredas ke vi
+**ʀ: **Nu, estas unu sola korekteco por ĉiu nomo, negrave ĉu baznivela ĉu kunmetita, tiurilate la nomoj tute ne varias. Mi kredas ke vi
 
 akordas kun mi pri tio.
 
 **ʜʀɢɴ:** Certe.
 
-**ʀ: **Kaj ĉi tiu korekteco de la vortoj kiujn ni ĵus diskutis celas esti tia 46
+**ʀ: **Kaj ĉi tiu korekteco de la vortoj kiujn ni ĵus diskutis celas esti tia
 
 ke ĝi klarigas la esencon de ĉio.
 
@@ -2843,9 +2568,7 @@ la manoj kaj kapo kaj aliaj korpopartoj, same kiel la mutuloj nun?
 
 **423 ʀ: **Mi supozas ke se ni volus indiki supron aŭ senpezecon, ni
 
-levus la manojn ĉielen, imitante la naturon de tio kion ni celas espri-
-
-mi. Se ni volus indiki malsupron aŭ pezecon, ni mallevus la manojn
+levus la manojn ĉielen, imitante la naturon de tio kion ni celas esprimi. Se ni volus indiki malsupron aŭ pezecon, ni mallevus la manojn
 
 teren.
 
@@ -2882,9 +2605,7 @@ imitus ilin laŭeble bone per niaj korpoj.
 
 **ʀ: **Unue, mi kredas, kiam ni imitas ion, ni ne imitas sammaniere
 
-kiel muziko, kvankam ambaŭ uzas sonojn. Kiam ni ja imitas sam-
-
-maniere kiel muziko, ni ne donas nomojn. Mi proponas al vi ĉi tion:
+kiel muziko, kvankam ambaŭ uzas sonojn. Kiam ni ja imitas sammaniere kiel muziko, ni ne donas nomojn. Mi proponas al vi ĉi tion:
 
 ĉu objektoj havas sonon kaj formon, kaj multaj el ili ankaŭ havas
 
@@ -2923,13 +2644,9 @@ elektis iliajn literojn kaj silabojn por esprimi ilian esencon.
 
 **ʀ: **Verŝajne. Sed kiun principon de analizo la imitisto uzis kiam li komencis imitadi? Ĉar la imitado de esenco uzas silabojn kaj literojn,
 
-sendube estas plej prave unue ekzameni la sonojn — same kiel per-
+sendube estas plej prave unue ekzameni la sonojn — same kiel personoj provantaj ritmojn unue konsideras la potencojn de la bazaj
 
-sonoj provantaj ritmojn unue konsideras la potencojn de la bazaj
-
-sonoj, kaj poste de la kombinaĵoj kaj nur post tio transiras al ekzame-
-
-no de ritmoj.
+sonoj, kaj poste de la kombinaĵoj kaj nur post tio transiras al ekzameno de ritmoj.
 
 **ʜʀɢɴ:** Jes.
 
@@ -2945,9 +2662,7 @@ Post tio ni ekzamenu ĉu ili havas kategoriojn, simile al sonoj. Kaj tre
 
 zorge konsiderinte ĉi ĉion, ni povos apliki ilin al iliaj imitataĵoj —
 
-unuope aŭ plurope, same kiel pentristo kiu kelkfoje uzas nur purpur-
-
-on, alifoje uzas alian koloraĵon, kaj kelkfoje preparas kolormiksaĵon
+unuope aŭ plurope, same kiel pentristo kiu kelkfoje uzas nur purpuron, alifoje uzas alian koloraĵon, kaj kelkfoje preparas kolormiksaĵon
 
 kia haŭtokoloro aŭ io tia — laŭ mia scio, li uzas koloraĵon taŭgan por
 
@@ -2955,19 +2670,13 @@ kia haŭtokoloro aŭ io tia — laŭ mia scio, li uzas koloraĵon taŭgan por
 
 ŝajnas taŭga, aŭ plurope tiel ke ni faras tion kion oni nomas “silaboj”.
 
-Kunmetinte silabojn ni faros substantivojn kaj verbojn. Kaj el la sub-
+Kunmetinte silabojn ni faros substantivojn kaj verbojn. Kaj el la substantivoj kaj verboj ni kunmetos ion grandan kaj belan kaj kompletan
 
-stantivoj kaj verboj ni kunmetos ion grandan kaj belan kaj kompletan
-
-same kiel oni desegnas beston, ni faros parolon per nomado aŭ ora-
-
-torado aŭ kia ajn estas la arto. Kompreneble ne ni, ĉar mi forportiĝis
+same kiel oni desegnas beston, ni faros parolon per nomado aŭ oratorado aŭ kia ajn estas la arto. Kompreneble ne ni, ĉar mi forportiĝis
 
 per longa parolado — la antikvuloj kunmetis la vortojn; se ni fake
 
-ekspertas, nia tasko estas ekzameni ilin ĉiujn por vidi ĉu aŭ ne la pra-
-
-formoj kaj la kunmetaĵoj estas ĝustaj. Ĉar ni nepre ne ekzamenu
+ekspertas, nia tasko estas ekzameni ilin ĉiujn por vidi ĉu aŭ ne la praformoj kaj la kunmetaĵoj estas ĝustaj. Ĉar ni nepre ne ekzamenu
 
 malĝuste aŭ erare, mia amiko Hermogeno.
 
@@ -2979,10 +2688,7 @@ malĝuste aŭ erare, mia amiko Hermogeno.
 
 **ʀ: **Ĉu vi volas ke ni lasu la aferon, aŭ ke ni provu laŭeble, eĉ se ni malmulte kapablas ekzameni ilin? Ni agnosku unue, kiel antaŭ nelonge pri la dioj, ke ni neniom scias la veron, ni nur faras homajn
 
-konjektojn pri ili. Ni nun diru al ni, ke se ni aŭ iu alia devus certa-
-
-
-maniere diskuti ilin, do tiel estu; sed nunmomente ni devas pritrakti
+konjektojn pri ili. Ni nun diru al ni, ke se ni aŭ iu alia devus certamaniere diskuti ilin, do tiel estu; sed nunmomente ni devas pritrakti
 
 ilin laŭ nia kapablo. Ĉu vi konsentas, aŭ ne?
 
@@ -3004,17 +2710,11 @@ tiu estas la plej bona rimedo? Aŭ eble ke ni transprenis de iuj
 
 barbaroj la nomojn, ĉar la barbaroj estas pli antikvaj ol ni. Aŭ ke la
 
-nomoj estas ne plu ekzameneblaj pro sia antikveco, same kiel la bar-
+nomoj estas ne plu ekzameneblaj pro sia antikveco, same kiel la barbaroj. Jen pluraj tre plaĉaj rimedoj por persono kiu ne volas pravigi la
 
-baroj. Jen pluraj tre plaĉaj rimedoj por persono kiu ne volas pravigi la
+pranomojn. Sed se oni ne scias la korektecon de la pranomoj, ne estas eble kompreni la korektecon de la kombinaĵoj kiuj dependas de ili.
 
-pranomojn. Sed se oni ne scias la korektecon de la pranomoj, ne est-
-
-as eble kompreni la korektecon de la kombinaĵoj kiuj dependas de ili.
-
-Estas klare ke persono pretendanta esti eksperto devas povi plej kon-
-
-vinke ekspliki la pranomojn, alie li sciu ke li nur sensence parolos pri
+Estas klare ke persono pretendanta esti eksperto devas povi plej konvinke ekspliki la pranomojn, alie li sciu ke li nur sensence parolos pri
 
 la kombinaĵoj. Ĉu vi konsentas?
 
@@ -3036,9 +2736,7 @@ vorto deriviĝis el kiein [iri], fremda vorto — tio signifas “iri”. Se iu
 
 trovus la antikvan vorton en moderna formo ĝi ĝuste estus hesis. Nu,
 
-el la fremda vorto kiein, kun ŝanĝo de la ē kaj enmeto de n fariĝas ki-
-
-nēsis, kiu devus esti kieinēsis. Stasis [situo] estas la malo de hesis,
+el la fremda vorto kiein, kun ŝanĝo de la ē kaj enmeto de n fariĝas kinēsis, kiu devus esti kieinēsis. Stasis [situo] estas la malo de hesis,
 
 ortografie iom plibeligita.
 
@@ -3048,14 +2746,9 @@ por moviĝo, kaj li ofte uzis ĝin tiucele. Unue en hrein [flui] kaj hroe
 
 [fluo] li esprimas moviĝon per la litero r, ankaŭ en tromos [tremado],
 
-treĥein [kuri], kaj en tiaj vortoj: krouein [bati], θrauein [frakasi], erei-
+treĥein [kuri], kaj en tiaj vortoj: krouein [bati], θrauein [frakasi], ereikein [ŝiri], θruptein [diserigi], kermatizein [dishaki], hrumbein. [kirli].
 
-
-kein [ŝiri], θruptein [diserigi], kermatizein [dishaki], hrumbein. [kirli].
-
-Li esprimas ĉi ĉiujn per la litero r; mi supozas ke li rimarkis ke la lan-
-
-go malplej ripozas dirante tiun literon kaj plej moviĝas, tial li uzis
+Li esprimas ĉi ĉiujn per la litero r; mi supozas ke li rimarkis ke la lango malplej ripozas dirante tiun literon kaj plej moviĝas, tial li uzis
 
 ĝin.
 
@@ -3063,9 +2756,7 @@ La litero i estas por subtilaĵoj, kiuj plej trairas ĉion. Tial li esprimis
 
 ienai [iri] kaj hiesθai [ĵeti] per la litero i.
 
-**427 **Simile, f kaj ps kaj s kaj z — literoj dum kiuj oni elspiras — uziĝ-
-
-as por psuĥron [frida], kaj zeon [varmega], kaj seiesθai [skuiĝi] kaj,
+**427 **Simile, f kaj ps kaj s kaj z — literoj dum kiuj oni elspiras — uziĝas por psuĥron [frida], kaj zeon [varmega], kaj seiesθai [skuiĝi] kaj,
 
 entute, seismos [skuo]. La nomfarinto ŝajnas esti uzinta tiujn literojn
 
@@ -3081,9 +2772,7 @@ por leia [glataĵo], la vorto olisθanein [gliti] mem, kaj liparos [glata],
 
 kaj kollōdes [viskozo], kaj ĉiuj aliaj tiaj vortoj.
 
-La forto de la litero g retenas la gliton de la lango, kaj esprimas glis-
-
-ĥros [malavara], glukus [dolĉa], kaj gloiōdes [viskozeco].
+La forto de la litero g retenas la gliton de la lango, kaj esprimas glisĥros [malavara], glukus [dolĉa], kaj gloiōdes [viskozeco].
 
 Li perceptis ke la litero n prononciĝas interne kaj esprimas “enecon”;
 
@@ -3095,21 +2784,15 @@ Li asignis al la litero a la signifon “grando”, kaj al la litero ē la signi
 
 “larĝo”, ĉar ili estas grandaj literoj.
 
-La litero o esprimas rondecon, tial ĝi estas abunde metita en la vor-
-
-ton gongulon [rondeco].
+La litero o esprimas rondecon, tial ĝi estas abunde metita en la vorton gongulon [rondeco].
 
 Ŝajnas ke la leĝfarinto simile kunligis literojn kaj silabojn kun ĉiu
 
-ekzistaĵo por fari signojn kaj nomojn, simile kunmetis ilin por la ce-
-
-teraj vortoj. Tia estas la korekteco de nomoj, Hermogeno, laŭ mia
+ekzistaĵo por fari signojn kaj nomojn, simile kunmetis ilin por la ceteraj vortoj. Tia estas la korekteco de nomoj, Hermogeno, laŭ mia
 
 opinio — krom se Kratilo ĉi tie diras ion alian.
 
-**ʜʀɢɴ: **Nu, Sokrato, Kratilo ofte multe ĝenis min, kiel mi diris ko-
-
-mence, per deklaro ke ekzistas ia korekteco de nomoj, kvankam li
+**ʜʀɢɴ: **Nu, Sokrato, Kratilo ofte multe ĝenis min, kiel mi diris komence, per deklaro ke ekzistas ia korekteco de nomoj, kvankam li
 
 neniam klarigas kio ĝi estas. Mi tute ne scias ĉu li intence aŭ
 
@@ -3128,9 +2811,7 @@ por ke aŭ vi lernu de Sokrato aŭ vi instruu ambaŭ nin.
 
 li diris ke aldoni iometon al iometo estas utile.1 Do se vi povas eĉ
 
-iometon aldoni, ne hezitu helpi ne nur Sokraton — ĉar vi estas just-
-
-ulo — sed ankaŭ min.
+iometon aldoni, ne hezitu helpi ne nur Sokraton — ĉar vi estas justulo — sed ankaŭ min.
 
 **ʀ: **Kratilo, mi kaj mia kolego tute ne plene fidas kion ni diris dum nia ekzameno. Do kuraĝe parolu, se vi eble povas diri ion pli bonan.
 
@@ -3156,13 +2837,9 @@ parolas alia Muso jam delonge troviĝanta en vi.
 
 mi malfidas ĝin. Mi opinias ke ni devas reekzameni kion mi diras,
 
-ĉar sintrompo estas plej aĉa. Kiam la trompanto eĉ ne iomete for-
+ĉar sintrompo estas plej aĉa. Kiam la trompanto eĉ ne iomete forestas sed ĉiam ĉeestas, ja estas terure, ĉu ne? Ofte necesas rekonside-
 
-estas sed ĉiam ĉeestas, ja estas terure, ĉu ne? Ofte necesas rekonside-
-
-ri la jamdiraĵojn kaj peni, laŭ la vortoj de la poeto, rigardi “kaj antaŭ-
-
-en kaj malantaŭen”3. Do nun ni rigardi kion ni diris. Ni diras ke
+ri la jamdiraĵojn kaj peni, laŭ la vortoj de la poeto, rigardi “kaj antaŭen kaj malantaŭen”3. Do nun ni rigardi kion ni diris. Ni diras ke
 
 korekta nomo estas tiu kiu montras kia estas la objekto — ĉu tio jam
 
@@ -3260,9 +2937,7 @@ diru al mi: ĉu laŭ vi oni ne “diras” falsaĵon, sed oni ja “asertas” �
 
 **ʀ:** Mi ankaŭ ne kredas ke oni “asertas” falsaĵon.
 
-**ʀ: **Nek “parolas” nek “deklaras”? Se iu renkontus vin en fremda lan-do, prenus vian manon, kaj dirus: “Saluton, fremda Atenano, Hermo-
-
-geno filo de Smikriono,” — se li dirus, aŭ asertus, aŭ parolus, aŭ
+**ʀ: **Nek “parolas” nek “deklaras”? Se iu renkontus vin en fremda lan-do, prenus vian manon, kaj dirus: “Saluton, fremda Atenano, Hermogeno filo de Smikriono,” — se li dirus, aŭ asertus, aŭ parolus, aŭ
 
 deklarus, tiujn vortojn — ĉu la vortoj celus tamen Hermogenon? Aŭ
 
@@ -3313,17 +2988,13 @@ nomoj — al la objektoj kiujn ili imitas, ĉu ne?
 
 **ʀ:** Mi kredas ke jes.
 
-**ʀ: **Por ke ni ne interbatalu per vortoj — ĉar mi kaj vi estas ami-
-
-koj — lasu min klarigi. Mi uzas la vorton “korekta” por esprimi ke la
+**ʀ: **Por ke ni ne interbatalu per vortoj — ĉar mi kaj vi estas amikoj — lasu min klarigi. Mi uzas la vorton “korekta” por esprimi ke la
 
 supozo estas aplikebla al kaj la bildoj kaj la nomoj; kiam temas nur
 
 pri nomoj, mi uzas la vortojn “korekta” kaj “vera”. Pri la alia supozo,
 
-kiu kunligas malsimilaĵojn, mi diras ke ĝi “nekorekta”; kaj “falsa” ki-
-
-am temas pri nomoj.
+kiu kunligas malsimilaĵojn, mi diras ke ĝi “nekorekta”; kaj “falsa” kiam temas pri nomoj.
 
 **ʀ: **Sed Sokrato, tio validas nur pri bildoj; kiam temas pri nomoj, ili devas ĉiam esti korektaj.
 
@@ -3358,9 +3029,7 @@ kredas ke frazoj konsistas el ili. Ĉu vi konsentas, Kratilo?
 
 **ʀ: **Nu, se ni komparas pranomojn kun bildoj, simila situacio okazas kiel dum portretado: oni povas uzi ĝustajn kolorojn kaj formojn; aŭ
 
-oni povas uzi nur kelkajn kaj ne uzi kelkajn, ellasi kelkajn; aŭ oni po-
-
-vas aldoni ekstrajn; ĉu ne?
+oni povas uzi nur kelkajn kaj ne uzi kelkajn, ellasi kelkajn; aŭ oni povas aldoni ekstrajn; ĉu ne?
 
 **ʀ:** Jes.
 
@@ -3374,15 +3043,11 @@ vas aldoni ekstrajn; ĉu ne?
 
 la nomo — estas bona; sed se kelkfoje li ellasas aŭ aldonas iomete,
 
-bildo fariĝas sed ĝi ne estas bona; sekve, kelkaj nomoj estas bone far-
-
-itaj, kaj aliaj malbone.
+bildo fariĝas sed ĝi ne estas bona; sekve, kelkaj nomoj estas bone faritaj, kaj aliaj malbone.
 
 **ʀ:** Verŝajne.
 
-**ʀ: **Do verŝajne unu persono estas bona nommetiisto, kaj alia mal-
-
-bona.
+**ʀ: **Do verŝajne unu persono estas bona nommetiisto, kaj alia malbona.
 
 **ʀ:** Jes.
 
@@ -3405,9 +3070,7 @@ ajn; ĝi tuj fariĝas io alia, kiam tio okazas.
 **ʀ: **Verŝajne tio kion vi diras estas valida pri numero — se temas pri la numero dek, aŭ iu ajn alia numero, kaj vi forprenas aŭ aldonas ion,
 
 
-ĝi fariĝas alia numero. Sed la korekteco de kvalito aŭ de bildo ne es-
-
-tas tia. Male, ĝi tute ne reprezentas la tutan naturon de tio kion ĝi
+ĝi fariĝas alia numero. Sed la korekteco de kvalito aŭ de bildo ne estas tia. Male, ĝi tute ne reprezentas la tutan naturon de tio kion ĝi
 
 bildigas, se ĝi estas bildo. Ni ekzamenu kion mi diras: supozu ke
 
@@ -3417,9 +3080,7 @@ bildigas viajn koloron kaj formon, kiel faras portretisto, sed ankaŭ
 
 ĉion internan precize kia ĝi estas, inkluzive de moleco kaj varmeco,
 
-kaj moviĝon kaj psikon kaj menson ĝuste kiaj ili estas en vi. Unu-
-
-vorte, ĉion kion vi havas, kaj starigas tiun duoblaĵon apud vin. Ĉu te-
+kaj moviĝon kaj psikon kaj menson ĝuste kiaj ili estas en vi. Unuvorte, ĉion kion vi havas, kaj starigas tiun duoblaĵon apud vin. Ĉu te-
 
 mas pri Kratilo kaj bildo de Kratilo, aŭ du Kratiloj?
 
@@ -3443,9 +3104,7 @@ la objekto kaj kiu estas la nomo.
 
 alia ne, kaj ne postulu ke la literoj estu precize kia estas la objekto
 
-kiuj ili nomas. Permesu ke netaŭgaj literoj uziĝu. Kaj se tio estas vali-
-
-da pri literoj, ĝi ankaŭ estas valida pri vortoj en frazo. Kaj se tio valid-
+kiuj ili nomas. Permesu ke netaŭgaj literoj uziĝu. Kaj se tio estas valida pri literoj, ĝi ankaŭ estas valida pri vortoj en frazo. Kaj se tio valid-
 
 as pri vorto, do ankaŭ frazo en parolo povas enhavi malĝustaĵojn.
 
@@ -3470,9 +3129,7 @@ ne similu al personoj en Egino1 kiuj vagas laŭlonge de strato malfrue
 Aigina, urbo sur insulo samnoma, 23 kilometrojn sude de Ateno.
 
 
-en la nokto. Ni ne volas riski verdikton de la Vero ke estas tro mal-
-
-frue por ni. Se vi ne akceptas, do vi devos trovi alian principon de
+en la nokto. Ni ne volas riski verdikton de la Vero ke estas tro malfrue por ni. Se vi ne akceptas, do vi devos trovi alian principon de
 
 korekteco de nomoj, kaj ne plu diri ke silaboj kaj literoj manifestas
 
@@ -3516,21 +3173,17 @@ personoj kiuj antaŭscias la signifon? Laŭ tiu vidpunkto, la korekteco
 
 de nomoj estas konvencio, kaj tute ne gravas ĉu ili havas sian nun
 
-konvencian formon, ĉu la inverson — ke kion ni nun nomas “mal-
-
-granda” oni rajtas nomi “granda”, kaj kion ni nun nomas “granda” oni
+konvencian formon, ĉu la inverson — ke kion ni nun nomas “malgranda” oni rajtas nomi “granda”, kaj kion ni nun nomas “granda” oni
 
 rajtas nomi “malgranda”. Ĉu tiu metodo plaĉas al vi?
 
 **434 ʀ: **Multege pli preferinde, Sokrato, estas ke la nomoj indiku kiaj estas la signifatoj, kaj ne estu nur akcidentaj.
 
-**ʀ: **Vi plene pravas. Nu, se nomo estas simila al la objekto, nepre la 58
+**ʀ: **Vi plene pravas. Nu, se nomo estas simila al la objekto, nepre la
 
 literoj devas simili al la objektoj el kiuj oni faris la originajn nomojn.
 
-Jen mia penso: ĉu oni povus fari la portretajn bildojn kiujn ni menci-
-
-is, similajn al la realaĵoj, se ne ekzistus similigaj koloraĵoj por bildigi
+Jen mia penso: ĉu oni povus fari la portretajn bildojn kiujn ni menciis, similajn al la realaĵoj, se ne ekzistus similigaj koloraĵoj por bildigi
 
 la objektojn? Au ĉu ne estus eble?
 
@@ -3599,31 +3252,21 @@ sonojn mi komprenas la sencon, kaj vi scias ke mi komprenas, ĉu ne?
 
 **ʀ: **Do malgraŭ malsimileco mi komprenigas min, eĉ kvankam la l
 
-estas malsimila al tio kion vi diras esti rigida. Se estas tiel, kio alia es-
+estas malsimila al tio kion vi diras esti rigida. Se estas tiel, kio alia estas ol ke vi estigas konvencion kun vi mem? La korekteco de la nomo
 
-tas ol ke vi estigas konvencion kun vi mem? La korekteco de la nomo
-
-estas konvencio por vi, ĉar la literoj esprimas kaj similecon kaj mal-
-
-similecon; do temas pri kutimoj kaj konvencio. Eĉ se vi farus kiel eble
+estas konvencio por vi, ĉar la literoj esprimas kaj similecon kaj malsimilecon; do temas pri kutimoj kaj konvencio. Eĉ se vi farus kiel eble
 
 plej grandan distingon inter “kutimo” kaj “konvencio”, vi nepre devus
 
-diri ke ne simileco sed kutimo kaŭzas la signifon. Ŝajnas al mi ke ku-
-
-timo esprimas signifon kaj per simileco kaj per malsimileco. Ĉar ni
+diri ke ne simileco sed kutimo kaŭzas la signifon. Ŝajnas al mi ke kutimo esprimas signifon kaj per simileco kaj per malsimileco. Ĉar ni
 
 interkonsentis, Kratilo — mi supozas ke via silento estas konsento —
 
 neeviteble kaj konvencio kaj kutimo unuiĝas esprimante tion kion ni
 
-celas diri: diru, amiko, se vi volas pritrakti numerojn, kiel, laŭ via su-
+celas diri: diru, amiko, se vi volas pritrakti numerojn, kiel, laŭ via supozo, nomoj havas similecon al ĉiu el la numeroj, se vi ne akceptas ke
 
-pozo, nomoj havas similecon al ĉiu el la numeroj, se vi ne akceptas ke
-
-via interkonsento kaj konvencio estas estro de la korekteco de no-
-
-moj?
+via interkonsento kaj konvencio estas estro de la korekteco de nomoj?
 
 Al mi mem plaĉas ke la nomoj laŭeble similas al la objektoj. Sed ne
 
@@ -3646,9 +3289,7 @@ nomas.
 
 **ʀ: **Sendube, Kratilo, vi diras ĉi tion: ke kiam iu scias kia estas la nomo — kiu similas al la objekto — tiu scias ankaŭ la objekton, ĉar ĝi
 
-similas al la nomo. Ĉi tiu estas la unusola arto aplikebla al ĉiuj simil-
-
-aĵoj. Laŭ tio, vi ŝajnas diri al mi ke kiu ajn scias la nomojn, tiu scias
+similas al la nomo. Ĉi tiu estas la unusola arto aplikebla al ĉiuj similaĵoj. Laŭ tio, vi ŝajnas diri al mi ke kiu ajn scias la nomojn, tiu scias
 
 ankaŭ la objektojn.
 
@@ -3666,9 +3307,7 @@ serĉi kaj trovi devas esti alia afero, kaj ĉi tio estas lernometodo?
 
 instrui.
 
-**ʀ: **Sed ni pripensu, Kratilo: se iu serĉas objektojn kaj sekvas la nomojn, por trovi la signifon de ĉio, ĉu vi konscias ke ekzistas ne mal-
-
-granda danĝero trompiĝi?
+**ʀ: **Sed ni pripensu, Kratilo: se iu serĉas objektojn kaj sekvas la nomojn, por trovi la signifon de ĉio, ĉu vi konscias ke ekzistas ne malgranda danĝero trompiĝi?
 
 **ʀ:** Kiel?
 
@@ -3680,22 +3319,16 @@ granda danĝero trompiĝi?
 
 **ʀ: **Sed ne estas tiel, Sokrato. Tute sen dubo la nomdoninto sciis do-ni nomojn; se ne estus tiel, kiel mi jam diris, ili ja ne estus nomoj. Jen
 
-la plej bona pruvo por vi ke la nomdoninto ne eraris: ĉar tute ne es-
+la plej bona pruvo por vi ke la nomdoninto ne eraris: ĉar tute ne estus plena ordo inter ĉiuj objektoj. Ĉu vi ne konscias dum vi mem
 
-tus plena ordo inter ĉiuj objektoj. Ĉu vi ne konscias dum vi mem
-
-parolas ke ĉio estas ordohava kaj la nomoj fariĝis laŭ unusola prin-
-
-cipo?
+parolas ke ĉio estas ordohava kaj la nomoj fariĝis laŭ unusola principo?
 
 **ʀ: **Sed tio, mia bona amiko Kratilo, tute ne estas defendo. Se la
 
 
 nomdoninto jam en la komenco eraris, li perforte ordigis ĉion alian
 
-konforme. Ne estas mirinde, same kiel kelkfoje diagramoj estas origi-
-
-ne iomete kaj neklare eraraj kaj ĉio cetera rezultanta el ili interakord-
+konforme. Ne estas mirinde, same kiel kelkfoje diagramoj estas origine iomete kaj neklare eraraj kaj ĉio cetera rezultanta el ili interakord-
 
 as. Jam en la komenco de ĉio, ĉiu persono nepre tre zorge konsideru
 
@@ -3705,9 +3338,7 @@ cetero montriĝas sekvi. Do mi ne mirus se la nomoj interakordus. Ni
 
 ekzamenu kion ni argumentis en la komenco: ke ĉio iras kaj moviĝas
 
-kaj fluas, kaj ni diris ke la nomoj indikas al ni tiun realon. Ĉu vi opi-
-
-nias ke ili montras ion alian?
+kaj fluas, kaj ni diris ke la nomoj indikas al ni tiun realon. Ĉu vi opinias ke ili montras ion alian?
 
 **437** **ʀ:** Neniel, kaj ili korekte indikas.
 
@@ -3725,9 +3356,7 @@ Kaj bebaion [firma], ĉar ĝi estas reprodukto de bazo [basis] kaj situo,
 
 ne de moviĝo.
 
-Kaj historia [ekzameno] mem indikas ke fluo ekhaltis [histēsi]. Pis-
-
-ton [fidindeco] nepre signifas “staris” [histan].
+Kaj historia [ekzameno] mem indikas ke fluo ekhaltis [histēsi]. Piston [fidindeco] nepre signifas “staris” [histan].
 
 **438** Mnēmē [memoro] nedubeble indikas ke estas resto [monē] kaj ne
 
@@ -3737,21 +3366,15 @@ Se vi volas, hamartia [eraro] kaj sumfora [misfortuno], se oni sekvas
 
 la nomon, ŝajnas esti samaj kiel sunesis [konscio] kaj epistēmē [scio]
 
-kaj aliaj vortoj kiuj ĉiuj estas nomoj de indaĵoj. Ankaŭ amaθia [stult-
+kaj aliaj vortoj kiuj ĉiuj estas nomoj de indaĵoj. Ankaŭ amaθia [stulteco] kaj akolasia [maldecemo] estas preskaŭ samaj.
 
-eco] kaj akolasia [maldecemo] estas preskaŭ samaj.
-
-Amaθia[stulteco] klare estas hama θeō iontos poreia [veturo de ir-
-
-anto kun Dio]; akolasia [maldecemo] estas akolouθia tois pragmasi
+Amaθia[stulteco] klare estas hama θeō iontos poreia [veturo de iranto kun Dio]; akolasia [maldecemo] estas akolouθia tois pragmasi
 
 [sekvado laŭ la faraĵoj].
 
 Tiel, la nomoj kiujn ni opinias signifi plejfiaĵojn montriĝas similaj al
 
-la nomoj kiuj signifas la plejbonaĵojn. Kaj se oni emas trakti ilin, mul-
-
-taj nomoj troveblas kiuj kredigas ke la nomdoninto nomis ne irantajn
+la nomoj kiuj signifas la plejbonaĵojn. Kaj se oni emas trakti ilin, multaj nomoj troveblas kiuj kredigas ke la nomdoninto nomis ne irantajn
 
 aŭ moviĝantajn objektojn sed senmovajn.
 
@@ -3802,9 +3425,7 @@ escepte per lerno de la nomoj aŭ eltrovo pri kiaj la nomoj estas?
 
 **ʀ: **Nu, laŭ mi, Sokrato, la plej vera fakto tiurilate estas ke Povo pli granda ol la homa donis la originajn nomojn al aferoj, tiel ke tiuj nomoj devas esti korektaj.
 
-**ʀ: **Ĉu vi do opinias ke la nomdoninto, ĉu dajmono ĉu dio, sn-
-
-traŭis? Aŭ ĉu vi kredas ke ni parolis sensencaĵojn?
+**ʀ: **Ĉu vi do opinias ke la nomdoninto, ĉu dajmono ĉu dio, sntraŭis? Aŭ ĉu vi kredas ke ni parolis sensencaĵojn?
 
 1.
 
@@ -3868,15 +3489,11 @@ La leganto memoru ke “nomoj” kaj “vortoj” estas sama termino en ĉi tiu 
 
 similtendenco de tiuj multaj nomoj, se efektive la nomdonintoj faris
 
-ilin pro sia kredo ke ĉio konstante moviĝas kaj fluas — mi mem opi-
-
-nias ke ili ja kredis tion — nu, se tiel estis, ili eraris, kaj ili mem kva-
+ilin pro sia kredo ke ĉio konstante moviĝas kaj fluas — mi mem opinias ke ili ja kredis tion — nu, se tiel estis, ili eraris, kaj ili mem kva-
 
 zaŭ falis en turnakvon kaj ĉirkaŭturniĝas kaj penas ankaŭ entiri nin.
 
-Plej kara Kratilo, rigardu kion mi ofte revis: ĉu ni diru ke ekzistas be-
-
-lo kaj bono mem kaj ĉiu tia realo, aŭ ne?
+Plej kara Kratilo, rigardu kion mi ofte revis: ĉu ni diru ke ekzistas belo kaj bono mem kaj ĉiu tia realo, aŭ ne?
 
 **ʀ:** Mi kredas ke jes, Sokrato.
 
@@ -3894,9 +3511,7 @@ plu ekzistas eĉ dum ni parolas?
 
 **ʀ: **Kiel povas ekzisti io kio neniam restas sama? Se ĝi restas sama, klare ĝi ne povas samtempe sanĝiĝi. Se ĝi restas konstanta, sama, kiel
 
-ĝi povas ŝanĝiĝi aŭ moviĝi, se ĝi neniam fordonas sian propran form-
-
-on?
+ĝi povas ŝanĝiĝi aŭ moviĝi, se ĝi neniam fordonas sian propran formon?
 
 **ʀ:** Neniel.
 
@@ -3906,9 +3521,7 @@ estas. Oni ja ne povas koni ion tute sen esto.1
 
 **ʀ:** Estas kiel vi diras.
 
-**ʀ: **Sed, Kratilo, logike tute ne povas ekzisti scio, se ĉiuj aĵoj ŝanĝ-
-
-igas kaj nenio restas. Ĉar scio por esti scio ne ŝanĝiĝas, sed restas
+**ʀ: **Sed, Kratilo, logike tute ne povas ekzisti scio, se ĉiuj aĵoj ŝanĝigas kaj nenio restas. Ĉar scio por esti scio ne ŝanĝiĝas, sed restas
 
 konstanta. Se la naturo de scio ŝanĝiĝas, dum la ŝanĝo ne ekzistas
 
@@ -3935,9 +3548,7 @@ Saĝa persono ne dediĉas sin al servado al nomoj, fidante ilin kaj iliajn
 
 donintojn, kaj apogante sin kvazaŭ sciante, kaj tiel kondamnante sin
 
-al malsaneco; tiel ke li supozas ke ĉio simple fluas kiel poto kaj simi-
-
-las al homoj suferantaj kataron, li kredas ke ĉiuj aĵoj fluas kaj forfluas.
+al malsaneco; tiel ke li supozas ke ĉio simple fluas kiel poto kaj similas al homoj suferantaj kataron, li kredas ke ĉiuj aĵoj fluas kaj forfluas.
 
 Eble ja estas tiel, Kratilo, kaj eble ne. Vi devos enketi kuraĝe kaj bone,
 

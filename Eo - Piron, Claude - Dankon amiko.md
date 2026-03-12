@@ -49,7 +49,7 @@ Katalogo de 20.000-voluma biblioteko de Internacia Esperanto-Muzeo:
 [Trovanto http://www.onb.ac.at/sammlungen/plansprachen/eo/index.htm](http://www.onb.ac.at/sammlungen/plansprachen/eo/index.htm)
 
 
-## 1
+##
 
 “Mia mono! Mia tuta mono malaperis!”
 
@@ -118,7 +118,7 @@ u la bileto utilos, dankon. Espereble vi memoros mian instruon. Adia˘
 u!”
 
 
-## 2
+##
 
 Iu alia verˆsajne kolerus. Sed ne Rikardo. Li nur ploris. Ne gravis, ke oni rigardas lin viro, ˆcar li estas 21-jara, kaj ke, la˘
 
@@ -139,7 +139,7 @@ Janˆcjo. Li estis kiel homo, kiu ricevis baton sur la kapon kaj dum kelka tempo
 La ideo turni sin al la polico venis al li nur malrapide.
 
 
-## 2
+##
 
 “Vi do eˆc ne konas lian familian nomon?”
 
@@ -162,7 +162,7 @@ hezitis. Por kontentigi la policanon, li diris ion ajn:
 “Jes, li estas tre maldika, sed mi havas neniun ideon pri la pezo. Kiel mi povus scii?”
 
 
-## 3
+##
 
 La malafabla rigardo policana ne estis facile elportebla. Refoje la knabo diris ion ajn:
 
@@ -207,7 +207,7 @@ u eˆc por telefoni.”
 “Nu, knabeto, ne estas mia problemo. Mi ne scias. Iru al via konsulejo, eble.”
 
 
-## 3
+##
 
 Eble kelkaj konsulejoj helpas al la junuloj, kiujn trafis bato de la sorto, sed ne tiulanda.
 
@@ -234,7 +234,7 @@ gantoj pensus, “se ni ion perdos, la konsulejo repagos al ni”. Ne,
 ne. Tio ne estus allasebla.”
 
 
-## 4
+##
 
 Rikardo sentis sin pli kaj pli senespera. Kia senelireja situacio! Li naskiˆ
 
@@ -305,7 +305,7 @@ utoritate esprimi sian malkontenton al li. Sed ˆci-foje ˆ
 gi silentis. La malsincereco
 
 
-## 5
+##
 
 de Janˆcjo, la malvarmeco de la policano, la konsuleja nehelpemo kaj la ˆstonaj koroj de l’surstrataj petitoj kvaza˘
 
@@ -350,7 +350,7 @@ gin kapti kaj... ...kaptis lin ˆce la ˆsultro peza, forta mano, a˘
 utoritata.
 
 
-## 4
+##
 
 “Ne prenu ˆ
 
@@ -367,7 +367,7 @@ kiu ne dubis, ke li vidos policiston, nekredeme rigardis tiun grandan knabon, ki
 La grandulo levis la ˆsultrojn.
 
 
-## 6
+##
 
 “Mi observis vin dum kelka tempo. La˘
 
@@ -412,12 +412,12 @@ ne prezentis nin reciproke. Mi nomiˆ
 gas Milan. Kio estas via nomo?”
 
 
-## 5
+##
 
 “Ej, bonkora hundo! Kion vi faras en ˆci tiu urboparto je tia frua horo? Vi aspektas zorgplena!”
 
 
-## 7
+##
 
 “Sandro! Kia plezuro vin renkonti! Jes, mi havas zorgojn kaj ne scias, kiel elturni min el malfacila situacio...”
 
@@ -470,7 +470,7 @@ Ci-matene, mi sukcesis seniˆ
 gi je
 
 
-## 8
+##
 
 li, nur ˆcar estis tre frue kaj li ankora˘
 
@@ -537,7 +537,7 @@ gi. Mi ne
 povus diri al li, ke mi rifuzas plu havi lin ˆce mi. Aliflanke mi amegas mian liberecon, kaj la konstanta ˆceesto de tiu ploremulo kondukas miajn nervojn al... al... kiel diri?... al koler-eksplodo.”
 
 
-## 9
+##
 
 “ ˆ
 
@@ -560,7 +560,7 @@ solvi mem vian problemon. Saluton, Milan, mi esperas, ke vi tamen trovos vojon a
 geco.”
 
 
-## 6
+##
 
 Kiam Rikardo konstatis, ke li estas sola en la loˆ
 
@@ -580,9 +580,7 @@ oni ne havas, tion neniu povas preni.
 
 Sonis la porda sonorileto. Rikardo hezitis. ˆ
 
-Cu li kapablos respondi al tio, kion la persono deman-
-
-dos? Oni sonorigis duafoje. Ne tre memcerta, li tamen iris malfermi.
+Cu li kapablos respondi al tio, kion la persono demandos? Oni sonorigis duafoje. Ne tre memcerta, li tamen iris malfermi.
 
 Staris anta˘
 
@@ -623,13 +621,11 @@ Cambro ˆci tie perfekte ta˘
 ugus por mi.”
 
 
-## 10
+##
 
-ˆ
 
 Si turnis la rigardon al Rikardo.
 
-“ ˆ
 
 Cu kostas multe?”
 
@@ -637,13 +633,11 @@ La junulo iom retrovis la kapablon paroli.
 
 “Verdire, mi ne scias. Mi...”
 
-“ ˆ
 
 Cu vi loˆ
 
 gas ˆci tie senpage?” ˆsi interrompis. “Tio estus eˆc pli bela!”
 
-ˆ
 
 Si ekridis, kaj la knabo opiniis, ke neniam li a˘
 
@@ -681,7 +675,6 @@ gi per ia rideto.
 
 Cu estas io ne en ordo?”
 
-ˆ
 
 Sia voˆco ˆci-foje estis patrina. Rikardo sentis fortan deziron, ke ˆsi kisu lin, ke ˆsi tenu lin en siaj brakoj.
 
@@ -704,9 +697,8 @@ patrinece proponis:
 “Venu sidi ˆce la tablo. Mi preparos kafon. Kaj vi rakontos al mi.”
 
 
-## 11
+##
 
-ˆ
 
 Si rapide trovis mem, kie estas la kafo, la tasoj, la sukero. Eˆc kuketojn ˆsi el ie prenis kaj metis sur la tablon. La junulo rigardis ˆsin, mire kaj admire. ˆ
 
@@ -787,7 +779,7 @@ pli li rigardis Katarinan, des pli ˆsi aperis bela. Estus stulte lasi Rikardon 
 gejon al
 
 
-## 12
+##
 
 tiu rimarkinda belulino, des pli, ˆcar ˆsi evidente havas personecon eman al ˆ
 
@@ -819,7 +811,6 @@ geran ulon, kapablan forˆsteli al si amon, kiu, plej evidente, ne al tiu estis
 
 destinita.
 
-ˆ
 
 Ce Rikardo, tiu sento kondukis al nenio praktika, sed en Milan iˆ
 
@@ -847,7 +838,6 @@ u ol li sukcesis respondi:
 
 “Nu, tio simpligas la problemon. Vi do povas fari ion ajn!” ˆsi diris ridante.
 
-“ ˆ
 
 Cu vi neniam perlaboris monon?” Milan demandis. “Eˆc dum la ferioj?”
 
@@ -856,7 +846,7 @@ Cu vi neniam perlaboris monon?” Milan demandis. “Eˆc dum la ferioj?”
 Katarina intervenis:
 
 
-## 13
+##
 
 “Nu, Milan, vi certe jam laboris, ˆcu ne? Diru al m, kiu estis la plej bone pagata okupo, kiun vi havis?”
 
@@ -886,14 +876,14 @@ gere. Anta˘
 
 u kvar tagoj ili telefonis al mi por demandi, ˆcu mi akceptus
 
-relabori por ili. Eble tio rilatas al la kunveno de la ˆstatestroj. Estu kiel ajn, mi respondis nee. Nun mi ferias, kaj miaj nervoj bezonas tempon senlaboran. Do, Rikardo, verˆsajne vi ricevos la laboron, se vi iros prezenti vin, ˆcefe se mi aldonos prezent-leteron dirantan, ke mi konas vin, kaj ke vi estas tute fidinda. Vi vidos, tiu laboro enhavas neniun problemon. Dank’al la uniformo la homoj lasas 14
+relabori por ili. Eble tio rilatas al la kunveno de la ˆstatestroj. Estu kiel ajn, mi respondis nee. Nun mi ferias, kaj miaj nervoj bezonas tempon senlaboran. Do, Rikardo, verˆsajne vi ricevos la laboron, se vi iros prezenti vin, ˆcefe se mi aldonos prezent-leteron dirantan, ke mi konas vin, kaj ke vi estas tute fidinda. Vi vidos, tiu laboro enhavas neniun problemon. Dank’al la uniformo la homoj lasas
 
 vin trankvila. Ili ˆ
 
 generale opinias, ke vi estas policano.”
 
 
-## 7
+##
 
 “Sed mi estas alilandano kaj ne havas laborpermeson,” kriis Rikardo, forte tenanta sin je la lasta motivo, kiu pravigus lian rifuzon labori.
 
@@ -919,7 +909,7 @@ plu havigi portempan laborpermeson al eksterlandaj studentoj, pro la enlanda sen
 
 “Sed la stampo kaj la...”
 
-“Lasu min fari. Mi konas la necesajn metodojn. Stampon mi facile transigos de unu dokumento al alia per rimedo mia, ege simpla, kiu mirigos vin, kiam vi vidos min fari. Estos facile; ˆcio, kion 15
+“Lasu min fari. Mi konas la necesajn metodojn. Stampon mi facile transigos de unu dokumento al alia per rimedo mia, ege simpla, kiu mirigos vin, kiam vi vidos min fari. Estos facile; ˆcio, kion
 
 mi bezonas jam troviˆ
 
@@ -952,7 +942,7 @@ g-daton kaj lokon, kaj... nu, ni vidu, kiujn informojn ili volas.
 Post tio, vi tuj iru fotigi vin.”
 
 
-## 8
+##
 
 Estis la unua nokte. En sia gardista uniformo, Rikardo sentis sin stranga, kvaza˘
 
@@ -975,7 +965,7 @@ ugas por tia
 alt-respondeca okupo.
 
 
-## 16
+##
 
 Sed tiel ne estis. La oficisto apena˘
 
@@ -1016,7 +1006,7 @@ gantan. Estis strange trapasi tiujn vastajn etaˆ
 gojn nokte, en mallumo, sen renkonti
 
 
-## 17
+##
 
 iun ajn, dum tage homoj ˆci tie multegas.
 
@@ -1075,7 +1065,7 @@ gis kaj vidis... Mi vidis nur ombron, sed ne
 povas esti dubo. Estas homo tie, kiu kaˆse faras ion. Eble li ˆstelas, eble... Kiel mi povus scii? Helpu min, Milan, kion mi faru?”
 
 
-## 18
+##
 
 “Arestu lin. Certe, se li laboras en senhoma magazeno ˆce tia lumo, li faras ion, kion li ne rajtas fari. Se li estus tie rajte, Sekuriks anta˘
 
@@ -1101,7 +1091,6 @@ utoritata voˆco: Kion vi faras ˆci tie? Mi arestas vin.”
 
 “Sed se li havas armilon, eble li mortigos min!”
 
-“ ˆ
 
 Cu Sekuriks ne donis al vi precizigojn, kiel agi en tia okazo?”
 
@@ -1113,7 +1102,6 @@ u mia
 
 atendo, ili akceptas min.”
 
-“ ˆ
 
 Cu vi mem ne havas armilon?”
 
@@ -1121,7 +1109,6 @@ Cu vi mem ne havas armilon?”
 
 gin, kaj, se mi bone memoras, mi praktike ne rajtas
 
-ˆ
 
 gin utiligi. Eble eˆc estas nenio en ˆ
 
@@ -1140,7 +1127,7 @@ tute proksime, direktu la poˆslampan lumon al liaj okuloj dirante: mi estas arm
 Cu vi akceptas veni min helpi?”
 
 
-## 19
+##
 
 “Ne, ne, tio ne estas necesa. Diru tion nur por timigi lin. Li ne povas scii, ˆcu vi diras la veron a˘
 
@@ -1189,7 +1176,7 @@ u
 simple diri ion, eˆc ne trapasis la kapon rikardan.
 
 
-## 20
+##
 
 “Levu la manojn!” la alia diris. Kaj dum Rikardo, kiel fileto faranta, kion la patro diris, eˆc ne pridubante ties pravecon, altigis sian man-paron, la ulo rapidmove prenis la armilon de la knabo.
 
@@ -1197,7 +1184,6 @@ simple diri ion, eˆc ne trapasis la kapon rikardan.
 
 gerajn sekvojn.
 
-ˆ
 
 Safide, Rikardo lasis la uniformulon konduki lin al la subtera parto de la konstruaˆo.
 
@@ -1212,7 +1198,7 @@ gis
 liaj okuloj. Ial, neniu ploro venis.
 
 
-## 9
+##
 
 Dum Rikardo tiel bele rolis kiel arestanto, dis-opinioj ne tre amike esprimiˆ
 
@@ -1243,7 +1229,7 @@ gos vera viro, li restos
 plorema infaneto, eˆc se li estas korpe pli forta ol multaj, perfekte kapabla sin defendi.”
 
 
-## 21
+##
 
 Sed Katarina nur levis la ˆsultrojn.
 
@@ -1294,7 +1280,7 @@ u kelkaj semajnoj, en loko plena je preterpasantoj.
 Li provis kapti lin, sed la alia sendis al li baton tiel fortan, ke Milan falis sur la trotuaron. La junulo tamen ne perdis tempon. Kelkaj momentetoj sufiˆcis, por ke li restarigu sin kaj ekkuru post la teroristo.
 
 
-## 10
+##
 
 Katarina, dume, pasis en la ˆciovendejon. ˆ
 
@@ -1353,7 +1339,7 @@ go ˆsajnis konata! Estas unu el tiuj teroristoj, kiujn la polico serˆcas. Foto
 Cu vi ne vidis? En la stacidomo ili estas sur ˆciu muro, kun indiko, ke se iu povas
 
 
-## 23
+##
 
 doni al la polico informon, kondukantan al trovo, li ricevos mi-ne-memoras-kiom da mono. Ni tuj telefonu al la polico.”
 
@@ -1402,9 +1388,8 @@ Rikardo tremis tutkorpe. Li kapablis diri nur:
 Kaj post momenteto:
 
 
-## 24
+##
 
-“ ˆ
 
 Cu mi devos diri la veron? Ke mi ne defendis min? Ke mi lin lasis enˆslosi min ie subtere? Mi tuj perdos mian laboron!”
 
@@ -1419,7 +1404,7 @@ la magazeno, kaj poste forkuri, sed ke, vidante la lokon, kie li kaˆsfaris ion,
 Cu vi bonvolas veni kun mi? Via apudstaro estas ege necesa.”
 
 
-## 11
+##
 
 Milan apena˘
 
@@ -1429,7 +1414,6 @@ ue. La postkurato ja
 
 ne laboris sola. Du kunuloj atendis lin ekstere. Ilia tasko estis kontroli la diversajn pordojn de la ˆciovendejo, por la okazo, se iu el ties gravuloj venus kaj per ˆslosilo enirus tra unu el ili.
 
-ˆ
 
 Car la magazeno estis grandega kaj havis enirejojn ˆce kvar stratoj, ili devis konstante rondpaˆsi ˆ
 
@@ -1448,12 +1432,12 @@ gis
 gustatempe por mire konstati, ke tiu kure foriras kaj ke iu eksekvas lin.
 
 
-## 25
+##
 
 Ilia interveno estis rapida kaj trafa. Post kelkaj momentoj, Milan kuˆsis sur la trotuaro, senkonscia kaj kun videblaj batmarkoj.
 
 
-## 12
+##
 
 “Mi havas ideon,” Katarina diris. “Eble ˆ
 
@@ -1508,7 +1492,7 @@ mi, ke via ideo estas bona. ˆ
 Cu vi tiel ˆciam pravas?”
 
 
-## 26
+##
 
 “Eble ne tute ˆciam, sed ofte, kara, plej ofte.”
 
@@ -1517,7 +1501,7 @@ Dum Rikardo paˆsis for, senpezigita pro la eblo ne telefoni mem al tiuj timigaj
 “kara” plaˆce resonis en liaj oreloj.
 
 
-## 13
+##
 
 Sola en la vastega magazeno, Katarina decidis ne telefoni tuj. Tiuj teroristoj tute certe volas, ke la eksplodo okazu iam dumtage, kiam estos multegaj homoj en la proksimaˆo. Tion ili faris jam dufoje, tion ili certe ree faras. Sekve, ne estas urˆ
 
@@ -1573,7 +1557,7 @@ udirajn. “Kial mi faras ˆ
 
 ci tiun
 
-rondiradon? Kial mi ne malaperas tuj? Mi povus reiri hejmen petveture. Tiel la polico ne 27
+rondiradon? Kial mi ne malaperas tuj? Mi povus reiri hejmen petveture. Tiel la polico ne
 
 scius pri mia nevera laborpermeso. Kompreneble mi ne ricevus la monon de Sekuriks, sed
 
@@ -1614,7 +1598,7 @@ gas tie sendefende.”
 Tiel plu iris Rikardo, kaptata jen de timo, jen de espero, jen ree time tremanta, jen repensanta pri sia amo... Dancis la sentoj en li dancon plej ofte ne plaˆcan. Kaj li paˆsis plu kaj plu sub la luno.
 
 
-## 14
+##
 
 Sur la stratoj senhomaj je tiu nokta horo, taksio, revenanta de malproksima veturado, subite haltis. Sur la trotuaro ja kuˆsis juna viro, ˆsajne malbonfarta. La ˆsoforo ela˘
 
@@ -1625,7 +1609,7 @@ gis, iris al la kuˆsanta
 homo.
 
 
-## 28
+##
 
 “Batita! Videble tiu estis atakita kaj batita! Li estas senkonscia, sed li vivas.”
 
@@ -1661,7 +1645,6 @@ u mia kapo balda˘
 
 u eksplodos.”
 
-“ ˆ
 
 Cu vi sentas vin kapabla rakonti, kio okazis?”
 
@@ -1686,9 +1669,8 @@ gas ˆcie en la urbo, en la tuta lando, fakte. Polico
 serˆcas lin.”
 
 
-## 29
+##
 
-“ ˆ
 
 Cu vi estas certa? Kie vi provis haltigi lin?”
 
@@ -1723,7 +1705,7 @@ ute komunikis sian opinion en orelon de la unua:
 u trovi vian kunulinon. Venu kun ni.”
 
 
-## 15
+##
 
 Feliˆca troviˆ
 
@@ -1734,7 +1716,7 @@ gi, observante, interesiˆ
 gante
 
 
-## 30
+##
 
 pri tio kaj tio ˆci, fojfoje eˆc dancante en la pasejoj, kiuj tage ˆciam plenplenis je moviˆ
 
@@ -1807,7 +1789,7 @@ go montris batsignojn.
 “Kion vi faras ˆci tie, nokte, en ˆslosita magazeno?” suspekteme demandis unu el la policanoj.
 
 
-## 31
+##
 
 “Mi atendas vin.”
 
@@ -1852,9 +1834,8 @@ post neimageble mallonga da˘
 ureto alvenis fakulo pri eksplodaˆoj kaj suspektindaj objektoj.
 
 
-## 16
+##
 
-“ ˆ
 
 Ci tiu estos facila,” diris al si Rikardo, enirante ne tre grandan magazenon, porsemajne fermitan
 
@@ -1872,7 +1853,6 @@ Sajnas, ke io bruas, kaj tiuj bruoj strange
 
 similas tiujn, kiujn li mem faris, kiam li estis enˆslosita. Ne ekzistas tiom da malsamaj manieroj alvoki helpon!
 
-ˆ
 
 Sranko. Muroˆsranko, fakte. Jes, el ˆ
 
@@ -1915,7 +1895,7 @@ gos poste.
 Iru al la fenestreto tien, bonvolu, kaj envenigu iom da pura aero. Elteni tian malpurecon mi ne plu povas. Kaj nun trinki,” li aldonas, kaj li iras preni por si grandan glason da biero.
 
 
-## 33
+##
 
 Rikardo estis tiel trafita de la neatendita trovo, ke li nur rigardegas plu, senvorte, kun la malfermita buˆso, kiun li kutime elmontras, kiam timo a˘
 
@@ -1939,7 +1919,6 @@ sen pantalono.”
 
 u la jakon. Li ial bezonis mian uniformon de Sekuriks-gardisto.”
 
-“ ˆ
 
 Cu anka˘
 
@@ -1968,7 +1947,7 @@ gera. Sed li ne havis la tempon fini, jam la alia interrompe parolis:
 Ne. Vi min miskomprenis. Kiam mi uzis la vorton nekredebla, mi simple volis diri, ke mi ne facile komprenas, kial nia firmao lasis vin en tiu ˆsranko sen zorgi pri vi dum pli ol dudek kvar horoj.”
 
 
-## 34
+##
 
 “Videblas, ke vi estas novulo. Min tio ne mirigas. Sekuriks estas en tre malfacila situado. Mankas viroj, kiuj akceptas fari tiun laboron. Domˆstelistoj, fajrofarantoj kaj teroristoj pli kaj pli multas, kaj fariˆ
 
@@ -2019,7 +1998,7 @@ gis tio — tiom da homoj, kiom ˆ
 gi bezonus,
 
 
-## 35
+##
 
 kiuj kapablas plenumi gardfunkciojn en tia riskoplena situacio. La polico komencos serˆci min, post kiam la ˆstatestroj reflugis sialanden. ˆ
 
@@ -2056,7 +2035,7 @@ al mi, knabo: kiel vi nomiˆ
 gas?”
 
 
-## 17
+##
 
 En la terorista loˆ
 
@@ -2073,11 +2052,10 @@ Normale vestita, en veturilo, vi jam estus ekster ˆcia danˆ
 gero, ke polico kaptus vin...”
 
 
-## 36
+##
 
 “Kun gardista uniformo, vi estos tuj rekonebla,” aldonis la Tria, same aˆc-voˆce.
 
-“ ˆ
 
 Guste ne. Uniformulon sur biciklo ˆciuj vidas, sed memoras neniu. Nu, mi estas la ˆcefo, kaj sufiˆcas kun tiu ˆci diskuto.
 
@@ -2119,7 +2097,7 @@ La polico malakceptis lin, ˆcar li estis iom tro malalta. En la ekzameno por fa
 
 gi fervoja kontrolisto
 
-li malsukcesis. La dogana servo rifuzis lin nejuste, ricevinte raporton pri lia sinteno dum la tempo soldata. Kaj tiam lian fraton policiston mortigis iu aˆculo... Nun, kiam li havas belan uniformon, kaj plenumas konstante grandfarojn, kiuj igas la mondon paroli pri li, kaj lin senti sin grava, oni ne 37
+li malsukcesis. La dogana servo rifuzis lin nejuste, ricevinte raporton pri lia sinteno dum la tempo soldata. Kaj tiam lian fraton policiston mortigis iu aˆculo... Nun, kiam li havas belan uniformon, kaj plenumas konstante grandfarojn, kiuj igas la mondon paroli pri li, kaj lin senti sin grava, oni ne
 
 forprenu de li la plezuron trabicikli la regionon uniforme!
 
@@ -2174,7 +2152,7 @@ uniformon kaj trankvile biciklas. Direkte al la maro, ˆsajnas al mi. Anta˘
 u kelkaj minutoj li pasis
 
 
-## 38
+##
 
 preter la Centra Teatro. Atentu, li ne plu havas eˆc unu haron sur sia vizaˆ
 
@@ -2203,7 +2181,7 @@ u de kie li telefonas. Homoj fariˆ
 gas strangaj, kiam ili rilatas kun la polico.”
 
 
-## 18
+##
 
 Rikardo turnis sin. Iu kuris post li, kaj li forte sentis la neceson esti plej singarda. Sed li tuj malstreˆciˆ
 
@@ -2230,7 +2208,7 @@ geroj ni elmetas nin. Tio donos al ili pli sanajn ideojn pri la
 monvaloro de nia laboro.”
 
 
-## 39
+##
 
 “Kaj kio estas tiu informo, kiun vi devas transdoni al mi tiel urˆ
 
@@ -2245,7 +2223,7 @@ oni atendas vin.”
 La junulo ektremis. Malplaˆcaj pensoj pri lia laborpermeso envenis lin neforˆeteble.
 
 
-## 19
+##
 
 Fakte, la etoso en la ˆcefpolicejo estis tute alia, ol li atendis. Troviˆ
 
@@ -2276,7 +2254,7 @@ Cu ili perdis la kapon?”
 “Tute ne. Ili feliˆcas, kaj esprimas sian feliˆcon en iom nedigna maniero, sed ne pro tio malpli valora. Atentu. Iu ˆsajnas deziri alparoli la ˆceestantaron.”
 
 
-## 40
+##
 
 Ruˆ
 
@@ -2331,7 +2309,7 @@ u tri samvalorajn ˆcekojn?”
 “... tute ne gravas,” diris Katarina.
 
 
-## 41
+##
 
 “Nu, nu,” dubemis Milan.
 
@@ -2390,7 +2368,7 @@ guloj. Venu morga˘
 u al mia
 
 
-## 42
+##
 
 oficejo, knabo, kaj vi ricevos ion, kion vi neniam forgesos. Dume, mi proponas, ke ni ˆciuj trinku pli je via sano.”
 
@@ -2398,14 +2376,13 @@ Pliafoje, trbruoj sonis tra la ˆcambro.
 
 “Nu, gesinjoroj,” la policestro alparolis la ˆceestantaron, “ˆsajnas al mi, ke ni multe laboris. Estas nun ege malfrue, kaj mi ne dubas, ke vi ˆciuj konsentos, se mi proponos, ke ni iru dormi. Gratulon al niaj savintoj, dankon al vi sinjoroj gravuloj, kaj bonan nokton al ˆciuj, kiom da nokto restas.”
 
-ˆ
 
 Ciuj brue disiˆ
 
 gis.
 
 
-## 20
+##
 
 “Kion li donis al vi?” Katarina demandis sci-soife. “A˘
 
@@ -2436,7 +2413,7 @@ kaj tiel plu kaj tiel plu. Kiel studanto pri filozofio, tio ege helpos min. Esta
 gero!”
 
 
-## 43
+##
 
 “Nu, ne gravas. La mono, kiun vi ricevis, pagos vian reveturon hejmen, kaj restos al vi ankora˘
 
@@ -2502,7 +2479,6 @@ gon kun vi. Sed ˆcu... ˆcu... ˆcu Milan
 
 kunveturos?”
 
-ˆ
 
 Si ekridis.
 
@@ -2513,7 +2489,7 @@ u vi reagas kiel bonkora hundo! Vi scias, ˆcu ne?, ke tiel oni kromnomas amikon
 gera loko funde de konstruaˆo. Ne. Milan estas bona knabo,
 
 
-## 44
+##
 
 kaj saˆ
 
@@ -2556,7 +2532,7 @@ gis tutmonde konata. Sendube la
 fakto, ke mankis al vi scioj pri la arto gardi sin, igis vin akcepti la rolon de gardisto.
 
 
-## 45
+##
 
 Mi ˆ
 
@@ -2620,7 +2596,6 @@ gemon.
 
 Mi esperas, ke vi fartas bone, kaj deziras al vi
 
-ˆ
 
 cion bonan,
 

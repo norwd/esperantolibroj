@@ -4,9 +4,7 @@ de Oz, kaj Doroteo, dum ilia danĝera veturo al
 
 la hejmo de la Platkapuloj, kaj al la Magia
 
-Insulo de la Premloj, kaj kiel la sorĉ-
-
-arto de Glinda la Bona savis
+Insulo de la Premloj, kaj kiel la sorĉarto de Glinda la Bona savis
 
 ilin el granda danĝero
 
@@ -113,56 +111,56 @@ La Eldonistoj.
 
 LISTO DE ĈAPITROJ
 
-1 Devo Vokas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 13
+1 Devo Vokas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-2 Ozma kaj Doroteo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 33
+2 Ozma kaj Doroteo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-3 La Knabinoj de la Nebulo . . . . . . . . . . . . . . . . . . . . . . . . 47
+3 La Knabinoj de la Nebulo . . . . . . . . . . . . . . . . . . . . . . . .
 
-4 La Magia Tendo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 53
+4 La Magia Tendo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-5 La Magia Ŝtuparo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 61
+5 La Magia Ŝtuparo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-6 La Monto de Platkapuloj . . . . . . . . . . . . . . . . . . . . . . . . . 71
+6 La Monto de Platkapuloj . . . . . . . . . . . . . . . . . . . . . . . . .
 
-7 La Magia Insulo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 85
+7 La Magia Insulo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-8 Reĝino Ku-i-o . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 93
+8 Reĝino Ku-i-o . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-9 Lordino Aŭreks . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 107
+9 Lordino Aŭreks . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-10 Sub la Akvo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 119
+10 Sub la Akvo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-11 La Premloj Venkiĝas. . . . . . . . . . . . . . . . . . . . . . . . . . . . 129
+11 La Premloj Venkiĝas. . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-12 La Diamanta Cigno . . . . . . . . . . . . . . . . . . . . . . . . . . . . 135
+12 La Diamanta Cigno . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-13 La Alarmilo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 149
+13 La Alarmilo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-14 La Konsilantoj de Ozma . . . . . . . . . . . . . . . . . . . . . . . . . 157
+14 La Konsilantoj de Ozma . . . . . . . . . . . . . . . . . . . . . . . . .
 
-15 La Granda Sorĉistino . . . . . . . . . . . . . . . . . . . . . . . . . . . 167
+15 La Granda Sorĉistino . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-16 La Sorĉitaj Fiŝoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 181
+16 La Sorĉitaj Fiŝoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-17 Sub la Granda Kupolo . . . . . . . . . . . . . . . . . . . . . . . . . . 191
+17 Sub la Granda Kupolo . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-18 La Lerteco de Ervik . . . . . . . . . . . . . . . . . . . . . . . . . . . . 205
+18 La Lerteco de Ervik . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-19 Ruĝa Rira la Jukuhuo. . . . . . . . . . . . . . . . . . . . . . . . . . . 221
+19 Ruĝa Rira la Jukuhuo. . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-20 Perpleksiga Problemo . . . . . . . . . . . . . . . . . . . . . . . . . . . 231
+20 Perpleksiga Problemo . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-21 La Tri Adeptoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 243
+21 La Tri Adeptoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-22 La Subakvigita Insulo. . . . . . . . . . . . . . . . . . . . . . . . . . . 253
+22 La Subakvigita Insulo. . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-23 La Magiaj Vortoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 263
+23 La Magiaj Vortoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-24 Glinda Triumfas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 273
+24 Glinda Triumfas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-ĈAPITRO 1
+ĈAPITRO
 
 G l i n d a , l a b o n a
 
@@ -898,7 +896,7 @@ ne povis paroli aŭ fari ion ajn alian ol firme teni sian
 seĝon dum la tuta reveturo al la Smeralda Urbo.
 
 
-ĈAPITRO 2
+ĈAPITRO
 
 Loĝanta en la palaco de
 
@@ -910,9 +908,7 @@ rimarkinda kaj inteligenta
 
 besto kiu iam regis la
 
-Landon Oz dum mal-
-
-longa periodo kaj estis
+Landon Oz dum mallonga periodo kaj estis
 
 
 Glinda de Oz
@@ -1423,7 +1419,7 @@ ilin per la fadenoj, ili sukcesis eskapi kaj grimpi al la
 supro de la monteto.
 
 
-ĈAPITRO 3
+ĈAPITRO
 
 D e l a s u p r o d e l a
 
@@ -1584,7 +1580,7 @@ ridetis kaj gestis adiaŭe al ili per siaj manoj dum
 denove ili flosis en la nebulon kaj malaperis.
 
 
-ĈAPITRO 4
+ĈAPITRO
 
 “Nu,” diris Doroteo
 
@@ -1847,7 +1843,7 @@ en siajn molajn litojn kaj endormiĝis preskaŭ tuj
 kiam iliaj kapoj tuŝis la kapkusenojn.
 
 
-ĈAPITRO 5
+ĈAPITRO
 
 L a p l a t a m o n t o
 
@@ -2238,7 +2234,7 @@ hakilojn portatajn en iliaj metalaj zonoj. Ili surportis
 nek ĉapelojn nek ornamaĵojn.
 
 
-ĈAPITRO 6
+ĈAPITRO
 
 K i a m i l i v i d i s k e l a
 
@@ -2441,9 +2437,7 @@ al ĉiu el ni belan ladskatolon da cerbaĵo kiun ni portas
 
 en poŝo kaj tio egale inteligentigis nin kiel aliajn
 
-homojn. Vidu,” li pludiris, “jen unu el la cerbo-
-
-ladskatoloj donitaj al ni de la feoj.” Li prenis el poŝo
+homojn. Vidu,” li pludiris, “jen unu el la cerboladskatoloj donitaj al ni de la feoj.” Li prenis el poŝo
 
 brilantan ladskatolon sur kiu estis bela ruĝa etiketo kiu
 
@@ -2466,9 +2460,7 @@ duan ladskatolon de cerbaĵo.
 
 Doroteo.
 
-“Ne, sed unu el la Platkapuloj kredis voli esti la Ple-
-
-diko kaj provis ribeligi mian popolon kontraŭ min, do
+“Ne, sed unu el la Platkapuloj kredis voli esti la Plediko kaj provis ribeligi mian popolon kontraŭ min, do
 
 mi punis lin per forpreno de lia cerbo. Unu tagon mia
 
@@ -2787,7 +2779,7 @@ La Ple-diko turnis sin al kie antaŭe staris Ozma kaj
 Doroteo sed ili jam malaperis!
 
 
-ĈAPITRO 7
+ĈAPITRO
 
 Ozma, trovinte ke estas
 
@@ -3015,7 +3007,7 @@ Insulon. Mi supozas ke la Premloj estas en tiu granda
 vitra palaco, sed ni ne povas atingi ilin.”
 
 
-ĈAPITRO 8
+ĈAPITRO
 
 P r i n c i n o
 
@@ -3193,9 +3185,7 @@ da junaj viroj kaj virinoj, sidis la Reĝino de la
 
 Premloj, Ku-i-o. Ŝi estis knabino aspektanta pli aĝa
 
-ol Ozma aŭ Doroteo—almenaŭ dekkvin aŭ dekses-
-
-jara—kaj kvankam ŝi estis detale vestita kvazaŭ ironte
+ol Ozma aŭ Doroteo—almenaŭ dekkvin aŭ deksesjara—kaj kvankam ŝi estis detale vestita kvazaŭ ironte
 
 al balo ŝi estis tro maldika kaj ordinarvizaĝa por esti
 
@@ -3301,9 +3291,7 @@ malamiko planas detrui ĝin.”
 
 “Ilia Plejsupera Diktatoro estas Sorĉisto.”
 
-“Mia magio estas pli forta ol la lia. Venu la Plat-
-
-kapuloj! Ili neniam reiros al sia dezerta montosupro.
+“Mia magio estas pli forta ol la lia. Venu la Platkapuloj! Ili neniam reiros al sia dezerta montosupro.
 
 Mi certigos tion.”
 
@@ -3473,7 +3461,7 @@ Reĝino Ku-i-o, kies vizaĝo estis turnita alidirekten tiel
 ke ŝi ne vidis la malaproban rigardon.
 
 
-ĈAPITRO 9
+ĈAPITRO
 
 Lordino Aŭreks gvidis
 
@@ -3675,9 +3663,7 @@ farendaj, ne eblas dubo, sed ĝuste nun aĉa milito
 
 minacas okazi, kaj terura sorto atendas nin ĉiujn. Nia
 
-Reĝino tiom vantas ke ŝi kredas povi superforti la Ple-
-
-dikon kaj lian popolon, sed oni diras ke la magio de
+Reĝino tiom vantas ke ŝi kredas povi superforti la Pledikon kaj lian popolon, sed oni diras ke la magio de
 
 Ple-diko estas tre potenca, kvankam ne egale potenca
 
@@ -3931,7 +3917,7 @@ la Platkapuloj vere atakos la Premlojn de la Magia
 Insulo.
 
 
-ĈAPITRO 10
+ĈAPITRO
 
 Kiam noktiĝis la tuta
 
@@ -4261,7 +4247,7 @@ la Reĝino povis ĵeti la ŝnuron li kaptis kupran ujon kaj
 ĵetis ĝian enhavon rekte sur ŝian vizaĝon!
 
 
-ĈAPITRO 11
+ĈAPITRO
 
 Reĝino Ku-i-o lasis fali
 
@@ -4450,7 +4436,7 @@ Porko hazarde estas mia edzino, kaj eĉ se ŝi ne estus
 el oro mi certas ke ŝi estus tro malmola por manĝo.”
 
 
-ĈAPITRO 12
+ĈAPITRO
 
 Kiam la Platkapuloj
 
@@ -4473,9 +4459,7 @@ insulo, via Moŝto?”
 
 “Ĉu mi ne estas bela?” demandis Ku-i-o, arkigante
 
-sian kolon gracie kaj etendante siajn diamanto-
-
-kovritajn flugilojn. “Mi povas vidi min spegulata en la
+sian kolon gracie kaj etendante siajn diamantokovritajn flugilojn. “Mi povas vidi min spegulata en la
 
 akvo, kaj mi certas ke neniu birdo nek besto, nek
 
@@ -5006,7 +4990,7 @@ perdis sian kuraĝon.
 fari, Ozma, do mi intencas reiri kaj denove rigardadi.”
 
 
-ĈAPITRO 13
+ĈAPITRO
 
 Glinda la Bona, en sia
 
@@ -5261,7 +5245,7 @@ jam estis en la Smeralda Urbo aŭ proksime al ĝi, do
 saman vesperon.
 
 
-ĈAPITRO 14
+ĈAPITRO
 
 Neniu Reganto iam
 
@@ -5545,9 +5529,7 @@ pri la misfortuno de Ozma kaj Doroteo.
 
 “Kompreneble ni devas savi ilin,” ŝi daŭrigis, “kaj
 
-ju pli baldaŭ ili saviĝos des pli ili ĝojos, sed ni nun-
-
-momente devas decidi kiel savi ilin. Tial mi kunvokis
+ju pli baldaŭ ili saviĝos des pli ili ĝojos, sed ni nunmomente devas decidi kiel savi ilin. Tial mi kunvokis
 
 vin por konsiloj.”
 
@@ -5660,7 +5642,7 @@ ni planos foriri el la Smeralda Urbo morgaŭ je la
 sunleviĝo.”
 
 
-ĈAPITRO 15
+ĈAPITRO
 
 Betinjo kaj Trot, kiam
 
@@ -5672,9 +5654,7 @@ S o r ĉ i s t o k e i l i r a j t u
 
 partopreni kaj li konsentis.
 
-La Vitra Kato, subaŭskult-
-
-i n t e l a k o n v e r s a c i o n ,
+La Vitra Kato, subaŭskulti n t e l a k o n v e r s a c i o n ,
 
 
 Glinda de Oz
@@ -5738,9 +5718,7 @@ li.
 
 “Unu tagon,” aŭguris la Miksĉifona Knabino, “li ne
 
-retroviĝos, kaj jen estos fino.” Sed tio ne mal-
-
-trankviligis Buton-Brilon, kiu estis tiom senzorga ke
+retroviĝos, kaj jen estos fino.” Sed tio ne maltrankviligis Buton-Brilon, kiu estis tiom senzorga ke
 
 ŝajne li ne kapablis perdi sian kutimon perdiĝi.
 
@@ -6152,7 +6130,7 @@ malpermesas ke vi denove perdiĝu.”
 denove perdiĝos; sed ankaŭ *ĉifoje* ne kulpis mi.”
 
 
-ĈAPITRO 16
+ĈAPITRO
 
 Mi devas nun informi
 
@@ -6493,7 +6471,7 @@ demandis:
 “Nun kion?”
 
 
-ĈAPITRO 17
+ĈAPITRO
 
 Kiam Glinda la Bona
 
@@ -6880,9 +6858,7 @@ insulon por ke ŝiaj malamikoj ne atingu nek detruu
 
 Ku-i-o ordonis ke ili, kun ilia amiko Er vik,
 
-akompanu ŝin en la submarŝipo por konkeri la Ple-
-
-dikon; kaj kiel la boato ĵetiĝis el la kelo de la
+akompanu ŝin en la submarŝipo por konkeri la Pledikon; kaj kiel la boato ĵetiĝis el la kelo de la
 
 subakvigita insulo, obeante magian vorton, kaj leviĝis
 
@@ -7008,7 +6984,7 @@ ili bone konis la potencon de la Sorĉistino.
 Glinda.”
 
 
-ĈAPITRO 18
+ĈAPITRO
 
 Nun ni reiru al Ervik la
 
@@ -7167,9 +7143,7 @@ atentis ilin. Giganta nigra rato kure grimpis la korpon
 
 de Er vik, marŝis sur ambaŭ ŝultroj kaj faris
 
-orelrompajn kriojn sed li ne grimacis. La verda-kaj-
-
-ruĝa lacerto, veninte de la fenestrobreto, proksimiĝis
+orelrompajn kriojn sed li ne grimacis. La verda-kajruĝa lacerto, veninte de la fenestrobreto, proksimiĝis
 
 al Ervik kaj komencis kraĉi flamantan fluidaĵon sur
 
@@ -7606,7 +7580,7 @@ transformo, la Yukuhuo ne efektivigus ĝin, tamen li
 tre lerte sugestis ke ili fariĝu Adeptoj de Magio.
 
 
-ĈAPITRO 19
+ĈAPITRO
 
 Post la manĝo, Rira
 
@@ -8021,7 +7995,7 @@ Ili promesis obei ŝian volon ke ili neniam revenu al
 ŝia dometo, kaj post tio, adiaŭante, ili foriris.
 
 
-ĈAPITRO 20
+ĈAPITRO
 
 G l i n d a l a B o n a ,
 
@@ -8476,11 +8450,9 @@ Gracie riverencante la Sorĉisto kondukis la tri
 vizitantojn antaŭ Glindan la Bonan.
 
 
-ĈAPITRO 21
+ĈAPITRO
 
-La Sorĉistino supren-
-
-rigardis de sia laboro kiam
+La Sorĉistino suprenrigardis de sia laboro kiam
 
 la tri knabinoj eniris, kaj
 
@@ -8818,7 +8790,7 @@ kaj kara malgranda Doroteo ankoraŭ estas enfermitaj
 en la Granda Kupolo de la Subakvigita Insulo.
 
 
-ĈAPITRO 22
+ĈAPITRO
 
 Tu j p o s t l a m a t e n -
 
@@ -9135,7 +9107,7 @@ al speciala ĉambro en kiu Ku-i-o gardis siajn magiilojn
 kaj faris ĉiujn siajn sorĉartojn.
 
 
-ĈAPITRO 23
+ĈAPITRO
 
 M u l t a j i n t e r e s a ĵ o j
 
@@ -9325,9 +9297,7 @@ tri magiajn silabojn, kaj la sugesto de Doroteo ŝajnas
 
 inspirita.”
 
-La tri Adeptoj ankaŭ aprobis la provon sed la brun-
-
-harulino diris:
+La tri Adeptoj ankaŭ aprobis la provon sed la brunharulino diris:
 
 
 Glinda de Oz
@@ -9476,7 +9446,7 @@ Trans la akvo, sur la bordo de la lago, la
 Miksĉifona Knabino gestadis bonvenige.
 
 
-ĈAPITRO 24
+ĈAPITRO
 
 K o m p r e n e b l e ĉ i u j
 
@@ -9609,9 +9579,7 @@ Doroteo montris al ili kiel ĉirkaŭiri la nevideblan
 
 muron—konstr uitan de la Platkapuloj post la
 
-transformiĝo de la Adeptoj—kaj kiel atingi la supren-
-
-malsupren-ŝtuparon kiu kondukas al la montosupro.
+transformiĝo de la Adeptoj—kaj kiel atingi la suprenmalsupren-ŝtuparon kiu kondukas al la montosupro.
 
 La Ple-diko rigardis la alvenon de la grupo de la
 
@@ -9679,9 +9647,7 @@ inteligentaj kaj belaspektaj kiel ĉiuj aliaj loĝantoj de la
 
 Lando Oz.
 
-Kiam ĉiuj estis tiel traktitaj ne plu ekzistis platkap-
-
-uloj, kaj la Adeptoj decidis renomi sian popolon
+Kiam ĉiuj estis tiel traktitaj ne plu ekzistis platkapuloj, kaj la Adeptoj decidis renomi sian popolon
 
 Montuloj. Unu bona rezulto de la sorĉo de Glinda
 

@@ -116,7 +116,6 @@ ATESTAS ALICO
 
 ĈAPITRO I
 
-TRA LA KUNIKLOTRUON
 
 ALICON komencis multe tedi la sidado
 
@@ -176,9 +175,6 @@ poŝo, kaj, plena de scivolo, ŝi kuris trans
 la kampon sekvante ĝin, kaj sukcesis
 
 
-TRA LA KUNIKLOTRUON
-
-
 ĝustatempe vidi ĝin salti en grandan
 
 kuniklotruon sub la heĝo.
@@ -224,8 +220,6 @@ vidis mapojn kaj bildojn pendantajn de kejloj.
 ŝi pasis; la etiketo diris “ORANĜA
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 MARMELADO”, sed ĉagrenate ŝi trovis ĝin
 
 malplena: ŝi ne volis faligi la poton, timante
@@ -269,9 +263,6 @@ estis *tre* bona oportuno paradi ŝian scion,
 estis bona ekzerco memori ĝin) “—jes, jen
 
 proksimume la ĝusta distanco—sed, kiun
-
-
-TRA LA KUNIKLOTRUON
 
 
 Latitudon aŭ Longitudon mi atingis?” (Alico
@@ -319,8 +310,6 @@ hodiaŭ vespere, mi kredas!” (Dina estis la
 kato.) “Mi esperas ke ili memoros ŝian
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 teleron da lakto je ŝia vespermanĝo. Dina,
 
 kara! Mi multe volas vin ĉi tie kun mi! Ne
@@ -364,9 +353,6 @@ Alico tute ne estis vundita, kaj ŝi eksaltis
 sur siajn piedojn post nur momento: ŝi
 
 supren rigardis, sed estis tute obskure supre:
-
-
-TRA LA KUNIKLOTRUON
 
 
 antaŭ ŝi estis alia longa irejo, kaj la Blanka
@@ -414,8 +400,6 @@ unua penso de Alico estis ke eble ĝi apartenas
 al unu el la pordoj de la koridoro; sed, ve!,
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 aŭ la seruroj estis tro grandaj, aŭ la ŝlosilo
 
 estis tro malgranda, sed ĉiuokaze ĝi ne
@@ -436,9 +420,7 @@ m a l -
 
 granda pordo
 
-ĉirkaŭ kvar-
-
-d e k
+ĉirkaŭ kvard e k
 
 c e n t i -
 
@@ -463,9 +445,6 @@ rigardis laŭlonge de la trairejo en la plej
 belan ĝardenon iam viditan. Kiom ŝi sopiris
 
 eliri el tiu obskura koridoro, kaj vagi inter
-
-
-TRA LA KUNIKLOTRUON
 
 
 tiuj bedoj de brilantaj floroj kaj tiuj
@@ -512,8 +491,6 @@ Estis tute bone diri “Trinku min”, sed
 
 saĝa malgranda Alico ne intencis fari *tion*
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 rapide. “Ne, unue mi rigardos,” ŝi diris,
 
@@ -590,9 +567,6 @@ estis
 signita
 
 
-TRA LA KUNIKLOTRUON
-
-
 “veneno”, do Alico kuraĝis gustumi ĝin,
 
 kaj, trovinte ĝin tre plaĉa (efektive ĝi
@@ -633,8 +607,6 @@ penis imagi kia estas la flamo post la
 
 estingiĝo de la kandelo, ĉar ŝi ne povis
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 memori iam vidi ion tian.
 
@@ -679,9 +651,6 @@ kaj ŝi memoris ke unufoje ŝi klopodis frapi
 la proprajn orelojn ĉar ŝi malhoneste ludis
 
 dum kroketa konkurso kontraŭ si mem,
-
-
-TRA LA KUNIKLOTRUON
 
 
 ĉar tiu kurioza infano tre amis ludi ke
@@ -729,8 +698,6 @@ trovi ke ŝi restas same granda. Kompreneble,
 tio kutime okazas kiam oni manĝas kukon;
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 sed Alico jam kutimiĝis atendi nur strangajn
 
 eventojn, kaj ŝajnis tre enuige kaj stulte
@@ -744,7 +711,6 @@ plenmanĝis la kukon.
 
 ĈAPITRO II
 
-LA LAGO DE LARMOJ
 
 “ K u r i o z i g e
 
@@ -782,8 +748,6 @@ preskaŭ nevideblaj,
 
 m a l p r o k s i m a j ) .
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Ho, miaj karaj kompatindaj piedoj. Kiu
 
@@ -828,9 +792,6 @@ tegmenton de la koridoro: efektive ŝi nun estis
 iom pli ol tri metrojn alta, kaj ŝi tuj prenis
 
 la malgrandan oran ŝlosilon kaj rapide iris al
-
-
-LA LAGO DE LARMOJ
 
 
 la pordo de la ĝardeno.
@@ -878,8 +839,6 @@ li venis, “Ho! la Dukino, la Dukino! Ho! vere
 ŝi estos furioza ĉar mi atendigis ŝin!” Alico
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 sentis sin tiom senpova ke ŝi estis preta peti
 
 helpon de iu ajn; do, kiam la Kuniklo
@@ -889,9 +848,6 @@ proksimiĝis, ŝi komencis diri per nelaŭta,
 timeta voĉo, “Bonvolu, sinjoro—” La Kuniklo
 
 ektremis, faligis la blankajn kapridhaŭtajn
-
-
-LA LAGO DE LARMOJ
 
 
 gantojn kaj la ventumilon, kaj forkuris en la
@@ -939,8 +895,6 @@ kaj ŝi, ho! ŝi scias vere malmulton! Krome,
 enigmo estas! Mi provu memori ĉu mi scias
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 kion mi antaŭe sciis. Mi pensu: kvaroble kvin
 
 estas dek du, kaj kvaroble ses estas dek tri,
@@ -982,9 +936,6 @@ ne estis samaj kiel iam antaŭe:—
 *kaj fiŝoj do kun plena fid’*
 
 *transnaĝas la makzelon! *
-
-
-LA LAGO DE LARMOJ
 
 
 “Mi estas certa ke tiuj vortoj ne estas
@@ -1032,8 +983,6 @@ dum ŝi parolis. “Kiel mi *povis* fari tion?”
 Ŝi surpiediĝis kaj iris al la tablo por mezuri
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 sin per ĝi, kaj trovis ke, laŭ sia plej bona
 
 takso, ŝi nun estas proksimume sesdek
@@ -1079,9 +1028,6 @@ glitis, kaj post momento, plaŝ! salakvo kovris
 ke iel ŝi falis en la maron, “kaj tiuokaze
 
 
-LA LAGO DE LARMOJ
-
-
 mi povos reiri per la fervojo,” ŝi diris al
 
 si. (Alico nur unufoje dum sia vivo estis
@@ -1108,8 +1054,6 @@ estis tri metrojn alta.
 
 diris Alico, dum ŝi ĉirkaŭnaĝis, penante
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 trovi elirejon. “Nun mi puniĝas, mi supozas,
 
@@ -1154,9 +1098,6 @@ muso: ŝi neniam antaŭe faris tion, sed ŝi
 memoris ke ŝi vidis, en Latina Gramatiklibro
 
 de sia frato, “Muso—de muso—al muso—
-
-
-LA LAGO DE LARMOJ
 
 
 muson—Ho muso!”) La muso rigardis ŝin
@@ -1208,8 +1149,6 @@ tono: “ne koleru. Sed mi vere deziras povi
 2 “Kie estas mia kato?”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 montri al vi nian katon Dina: mi kredas
 
 ke vi ŝatus katojn se vi povus vidi ŝin.
@@ -1231,9 +1170,6 @@ kaptas musojn—ho, bonvolu pardoni!” kriis
 Alico denove, ĉar ĉifoje la Muso tremegis,
 
 kaj ŝi sentis ke nepre ŝi ofendis ĝin. “Ni
-
-
-LA LAGO DE LARMOJ
 
 
 ne plu diskutos ŝin se vi preferas ke ne.”
@@ -1281,8 +1217,6 @@ pundojn! Li diras ke ĝi mortigas ĉiujn
 ratojn kaj—ho, ve!” kriis Alico lamente.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Mi kredas ke denove mi ofendis ĝin!” Ĉar
 
 la Muso fornaĝadis de ŝi kiel eble plej
@@ -1324,7 +1258,6 @@ gvidis, kaj la tuta grupo naĝis al la bordo.
 
 ĈAPITRO III
 
-VOLONTKONKURSO KAJ LONGA VOSTO
 
 LA grupo kiu kuniĝis sur la bordo vere
 
@@ -1340,8 +1273,6 @@ La unua temo, kompreneble, estis kiel
 
 resekiĝi: ili interparolis pri tio, kaj post kelkaj
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 minutoj ŝajnis tre nature ke Alico trovas sin
 
@@ -1386,9 +1317,6 @@ la Konkerinto, kies celon favoris la papo,
 baldaŭ trovis subtenon de la Angloj, kiuj
 
 volis gvidistojn, kaj kiuj lastatempe multe
-
-
-VOLONTKONKURSO KAJ LONGA VOSTO
 
 
 kutimiĝis al uzurpado kaj konkerado. Edvino
@@ -1446,8 +1374,6 @@ rapidis daŭrigi, “ ‘—trovis konsilinde akompani
 Edgaron Atelingon por renkonti Vilhelmon
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 kaj proponi al li la kronon. La konduto de
 
 Vilhelmo unue estis modera. Sed la insolenteco
@@ -1501,9 +1427,6 @@ Volontvetkuro.”
 “Kio *estas* Volontvetkuro?” diris Alico; ŝi
 
 
-VOLONTKONKURSO KAJ LONGA VOSTO
-
-
 ne vere volis scii, sed la Dido paŭzis kvazaŭ
 
 kredante ke *iu* devas paroli, kaj neniu alia
@@ -1548,8 +1471,6 @@ sen multa pensado, kaj ĝi staris longatempe
 
 kun unu fingro premita al lia frunto, (la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 pozicio de Ŝekspiro en liaj bildoj), dum la
 
@@ -1596,9 +1517,6 @@ solene. “Kion alian vi havas en via poŝo?”
 “Transdonu ĝin,” diris la Dido.
 
 
-VOLONTKONKURSO KAJ LONGA VOSTO
-
-
 Ili ĉiuj regrupiĝis ĉirkaŭ ŝi, dum la
 
 Dido solene prezentis la fingringon, dirante,
@@ -1609,8 +1527,6 @@ fingringon,” kaj, kiam ĝi finis tiun mallongan
 
 prezentoparolon, ĉiuj hurais.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Alico opiniis la tutan aferon tre absurda,
 
@@ -1655,8 +1571,6 @@ miroplene, kaj gapis al ĝi: “Longa, certe, sed
 kial vi nomas ĝin malfeliĉa?” Kaj ŝi plu
 
 cerbumis dum la Muso parolis, tiel ke ŝia
-
-VOLONTKONKURSO KAJ LONGA VOSTO
 
 
 koncepto pri la rakonto estis ĉi tia:—
@@ -1733,14 +1647,10 @@ de l’
 
 sorto.
 
-Mi vndam-
-
-nos al
+Mi vndamnos al
 
 mor-to.”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Vi ne atentas!” diris la Muso al Alico
 
@@ -1785,8 +1695,6 @@ iom pli rapide.
 “Ja domaĝe ke ĝi rifuzis resti!” ĝemis
 
 la Lorio, tuj kiam ĝi estis plene ne plu
-
-VOLONTKONKURSO KAJ LONGA VOSTO
 
 
 videbla; kaj maljuna krabo uzis la oportunon
@@ -1834,8 +1742,6 @@ tuj: unu maljuna pigo komencis surmeti
 mantelon tre zorge, komentante, “Mi vere
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 devas reiri hejmen; la noktaero damaĝas
 
 mian
@@ -1882,7 +1788,6 @@ pentis kaj revenas por fini sian rakonton.
 
 ĈAPITRO IV
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 VENIS la Blanka Kuniklo, malrapide
 
@@ -1908,8 +1813,6 @@ kompleze komencis serĉi ilin, sed ili nenie
 
 estis videblaj—ŝajne ĉio ŝanĝiĝis post ŝia
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 naĝo en la lago, kaj la granda koridoro,
 
@@ -1955,7 +1858,6 @@ etaĝo, plena de timo ke ŝi renkontos la
 
 realan Mari-Annon kaj forsendiĝos el la
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 domo antaŭ ol trovi la ventumilon kaj
 
@@ -2002,8 +1904,6 @@ el la ĉambro, kiam ŝia vido trafis malgrandan
 botelon starantan apud la spegulo. Neniu
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 etiketo ekzistis ĉifoje kun la vortoj “TRINKU
 
 MIN”, tamen ŝi eltiris la korkon kaj metis
@@ -2049,8 +1949,6 @@ provis la efikon de kuŝado kun unu kubuto
 kontraŭ la pordo, kaj la alia brako kurbigita
 
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
-
 sub ŝia kapo. Tamen ŝi ankoraŭ kreskadis,
 
 kaj, kiel lastan penon, ŝi metis unu brakon
@@ -2079,8 +1977,6 @@ pli kreskis: tamen estis tre malkomforte,
 
 kaj, ĉar ŝajne neniam estos oportuno por
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 ke ŝi denove eliru la ĉambron, ne mirigas
 
@@ -2126,7 +2022,6 @@ unumaniere—neniam fariĝi olda virino—sed—
 
 “Ho, malsaĝa Alico!” ŝi respondis al
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 si. “Kiel vi povus lerni lecionojn ĉi tie?
 
@@ -2172,8 +2067,6 @@ fiaskis. Alico aŭdis ĝin diri al si, “Do mi
 
 ĉirkaŭiros kaj eniros per la fenestro.”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “*Tion* vi ne faros!” pensis Alico, kaj,
 
@@ -2231,7 +2124,6 @@ kolere. “Ĉi tien! Venu helpi min el *ĉi*
 
 *tio*!” (Pliaj sonoj de rompiĝanta vitro.)
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 “Nu diru al mi Patriĉjo, kio estas en
 
@@ -2306,8 +2198,6 @@ el la fenestro, nu mi volegas ke ili ja
 longe!”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Ŝi atendis dum kelka tempo sen aŭdi
 
 ion pli: fine venis la bruo de malgrandaj
@@ -2368,8 +2258,6 @@ vi subiru en la kameno!”
 
 estus en la pozicio de Vilĉjo: ĉi tiu kameno
 
-
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 estas mallarĝa, certe;
 
@@ -2440,8 +2328,6 @@ la
 Kuniklo—“Kaptu
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 lin, vi apud la heĝo!” sekvis silento, kaj post
 
 tio nova konfuza bruo de voĉoj—“Subtenu
@@ -2486,7 +2372,6 @@ Post unu aŭ du minutoj ili rekomencis
 
 moviĝadi, kaj Alico aŭdis la Kuniklon diri,
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 “Unu ĉarumo da ili sufiĉos, komence.”
 
@@ -2540,8 +2425,6 @@ ekstere. La kompatinda malgranda lacerto
 
 Vilĉjo estis en la mezo, apogate de du
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 kobajoj, kiuj trinkigis ion per botelo. Ili
 
@@ -2608,8 +2491,6 @@ eble ĝi estas malsata, kaj se tiel do ĝi
 verŝajne plenmanĝos ŝin malgraŭ ŝia kaĵolado.
 
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
-
 Apenaŭ sciante kion ŝi faras, ŝi prenis
 
 tre etan bastonon, kaj tenis ĝin antaŭ la
@@ -2618,8 +2499,6 @@ hundido; sekve la hundido eksaltis en la
 
 aeron kun ĉiuj piedoj samtempe en la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 aero, bojetante feliĉe, kaj kuris cele la
 
@@ -2681,7 +2560,6 @@ la bojado de la hundido sonis tre fadinta
 
 pro la distanco.
 
-LA KUNIKLO ENSENDAS MALGRANDAN VILĈJON
 
 “Tamen ĝi estis tre kara hundido!”
 
@@ -2756,8 +2634,6 @@ kaj ŝiaj okuloj tuj renkontis tiujn de
 granda blua raŭpo, kiu sidis sur la supro,
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 kun siaj brakoj krucitaj, trankvile fumante
 
 longan nargileon, kaj tute ne atentante ŝin
@@ -2767,7 +2643,6 @@ nek ion alian.
 
 ĈAPITRO V
 
-KONSILO DE RAŬPO
 
 LA Raŭpo kaj Alico rigardis unu la
 
@@ -2777,8 +2652,6 @@ Raŭpo prenis la nargileon el sia buŝo, kaj
 
 parolis al ŝi per malvigla, dormema voĉo.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Kiu estas *vi*?” diris la Raŭpo.
 
@@ -2843,8 +2716,6 @@ diris Alico; “sed kiam vi devos fariĝi
 krizalido—tio okazos, iam, sciu—kaj poste
 
 fariĝi papilio, mi kredas ke ankaŭ vi havos
-
-KONSILO DE RAŬPO
 
 
 iom konfuzan senton, ĉu ne?”
@@ -2922,8 +2793,6 @@ Alico
 turnis sin kaj revenis.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Ne koleru,” diris la Raŭpo.
 
 “Ĉu jen ĉio?” diris Alico, englutante
@@ -2985,9 +2854,6 @@ kaj
 komencis:—
 
 
-KONSILO DE RAŬPO
-
-
 *“Vi estas maljuna, ho Patro Vilhelmo, *
 
 *Kaj via hararo nun estas tre blanka. *
@@ -3005,8 +2871,6 @@ KONSILO DE RAŬPO
 *Do mi staras surkape kaj manĝas la herbon.” *
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 *“Vi estas maljuna, mi diris ĝin jame, *
 
 *Kaj tro da manĝaĵoj nun faris vin dika. *
@@ -3022,9 +2886,6 @@ LA AVENTUROJ DE ALICO EN MIRLANDO
 *mi tenis; nur pagu ŝilingon por duo*
 
 *da ujoj, por uzi sur viaj tre feblaj.” *
-
-
-KONSILO DE RAŬPO
 
 
 *“Vi estas maljuna, l’ makzeloj malfortas*
@@ -3044,8 +2905,6 @@ KONSILO DE RAŬPO
 *Ne povis forpreni, l’ anseron atutis.” *
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 *“Vi estas maljuna, sed en tiu fazo*
 
 *Per okuloj jam feblaj vi spite maljunon*
@@ -3061,8 +2920,6 @@ LA AVENTUROJ DE ALICO EN MIRLANDO
 *Ŝajne kredas: malŝpari la tempon mi riĉas! *
 
 *Piedbaton ricevos do vi elegante!” *
-
-KONSILO DE RAŬPO
 
 
 “Vi erare deklamis tion,” diris la Raŭpo.
@@ -3110,8 +2967,6 @@ centimetroj estas aĉa grandeco.”
 la Raŭpo kolere, etendante sin supren dum
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 ĝi parolis (ĝi estis precize ok centimetrojn
 
 longa).
@@ -3156,8 +3011,6 @@ malaltigos vin.”
 
 Alico restis kontemplante la agarikon dum
 
-KONSILO DE RAŬPO
-
 
 minuto, penante distingi kiuj estas ĝiaj du
 
@@ -3197,8 +3050,6 @@ malfermi la buŝon; sed ŝi fine sukcesis, kaj
 
 sukcesis gluti ereton de la maldekstra peco.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Jen, mia kapo finfine estas libera!”
 
@@ -3243,8 +3094,6 @@ gracia zigzago, kaj estis preta plonĝi inter
 la foliojn, kiujn ŝi trovis esti nur la suproj
 
 de la arboj sub kiuj ŝi vagis, kiam akra
-
-KONSILO DE RAŬPO
 
 
 siblado devigis ŝin rapide retiri sin: granda
@@ -3292,8 +3141,6 @@ la ovojn,” diris la Kolombo, “sed mi devas
 atenti pri serpentoj nokte kaj tage! Mi eĉ
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 ne unu dormeton spertas de tri semajnoj!”
 
 “Mi tre bedaŭras ke vi maltrankviliĝis,”
@@ -3337,8 +3184,6 @@ neniam eĉ *unu* kun kolo tia! Ne, ne! Vi
 estas serpento; ne ultilas nei tion. Mi
 
 supozas ke vi diros al mi nun ke neniam
-
-KONSILO DE RAŬPO
 
 
 vi gustumis ovon!”
@@ -3385,8 +3230,6 @@ sia nesto. Alico kaŭriĝis inter la arboj
 
 laŭeble, ĉar ŝia kolo plurfoje implikiĝis
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 inter la branĉoj, kaj fojfoje ŝi devis halti
 
@@ -3442,8 +3285,6 @@ Alico, “tute ne taŭgus renkonti ilin *ĉi*-
 
 dimensia: nu, ili tute freneziĝus pro timo!”
 
-KONSILO DE RAŬPO
-
 
 Do ŝi rekomencis mordeti la dekstran eron,
 
@@ -3453,7 +3294,6 @@ antaŭ ol malaltigi sin al dudek tri centimetroj.
 
 ĈAPITRO VI
 
-PORKO KAJ PIPRO
 
 DUM unu aŭ du minutoj ŝi staris
 
@@ -3482,9 +3322,6 @@ scivolemis pri kio temas, kaj ŝi rampis
 iom el la arbaro por aŭskulti.
 
 
-PORKO KAJ PIPRO
-
-
 La Fiŝlakeo komencis prenante el sub
 
 sia brako grandan leteron, preskaŭ egale
@@ -3495,8 +3332,6 @@ al la alia, dirante, per solena tono, “Por
 
 la Dukino. Invito ludi kroketon, de la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Reĝino.” La Ranlakeo ripetis, per la sama
 
@@ -3592,8 +3427,6 @@ aŭ
 
 poto
 
-PORKO KAJ PIPRO
-
 
 disrompiĝas.
 
@@ -3660,8 +3493,6 @@ trafis lian nazon, kaj rompiĝis frapante
 arbon malantaŭ li.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “—aŭ la posta tago, eble,” la Lakeo
 
 daŭrigis per la sama tono, precize kvazaŭ
@@ -3707,9 +3538,6 @@ malfermis la pordon kaj eniris.
 La pordo kondukis rekte en grandan
 
 
-PORKO KAJ PIPRO
-
-
 kuirejon, kiu estis plena de fumo de unu
 
 fino ĝis la alia: la Dukino sidis sur
@@ -3734,8 +3562,6 @@ aspektis plena de supo.
 
 Alico diris al si, laŭeble, dum ŝi ternadis.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Certe estis tro da ĝi en la aero. Eĉ
 
@@ -3793,8 +3619,6 @@ rideti.”
 
 plejmulto ja faras.”
 
-PORKO KAJ PIPRO
-
 
 “Mi ne scias pri kato kiu ridetas,”
 
@@ -3848,8 +3672,6 @@ timagonio. “Ho, ĝi trafis lian *karegan*
 
 nazon!” kiam nekutime granda kuirpoto tre
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 proksimen flugis al ĝi, kaj preskaŭ forportis
 
@@ -3923,8 +3745,6 @@ Dukino; “mi neniam povis toleri kalkulojn!”
 
 Kaj dirinte tion ŝi rekomencis varti sian
 
-PORKO KAJ PIPRO
-
 
 infanon, kantante ian lulkanton al ĝi, kaj
 
@@ -3966,8 +3786,6 @@ REFRENO
 
 *Aŭ! aŭ! aŭ! *
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Jen! Vi vartu ĝin iom, se vi deziras!”
 
@@ -4067,14 +3885,10 @@ la
 
 liberan aeron. “Se mi ne forprenos ĉi
 
-PORKO KAJ PIPRO
-
 
 tiun infanon kun mi,” pensis Alico, “ili
 
-nepre murdos ĝin dum la venontaj unu-
-
-du
+nepre murdos ĝin dum la venontaj unudu
 
 tagoj:
 
@@ -4139,8 +3953,6 @@ povruleto denove ploris (aŭ muĝetis, ne
 eblis distingi), kaj ili plu marŝis silente.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Alico ĵus komencis pensi, “Nu, kion mi
 
 faru pri ĉi tiu ulo, kiam mi reportos ĝin
@@ -4195,8 +4007,6 @@ pripensi aliajn infanojn kiujn ŝi konis, kiuj
 
 povus esti tre bonaj porkoj, kaj ŝi ĝuste
 
-PORKO KAJ PIPRO
-
 
 komencis diri al si, “se oni nur scius kiel
 
@@ -4243,8 +4053,6 @@ la Kato.
 “se vi sufiĉe longe marŝos.”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Alico opiniis ke ne eblas nei tion, do ŝi
 
 provis alian demandon. “Kiaj homoj loĝas ĉi
@@ -4290,9 +4098,6 @@ freneza. Vi konsentas pri tio?”
 “Mi supozas ke jes,” diris Alico.
 
 
-PORKO KAJ PIPRO
-
-
 “ N u , d o , ” l a K a t o
 
 daŭrigis, “hundo grumblas
@@ -4319,8 +4124,6 @@ diris Alico.
 
 “Nomu ĝin laŭvole,” diris la Kato. “Ĉu
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 vi ludos kroketon kun la Reĝino hodiaŭ?”
 
@@ -4367,9 +4170,6 @@ Leporo estos multe pli interesa, kaj eble, ĉar
 nun ne estas majo, ĝi ne estos ege
 
 
-PORKO KAJ PIPRO
-
-
 freneza—almenaŭ, ne tiom freneza kiom dum
 
 marto.” Dirante tion, ŝi suprenrigardis, kaj
@@ -4394,8 +4194,6 @@ rideto, kiu restis kelkan tempon post la
 
 malapero de la cetera korpo.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Nu! Mi ofte vidis katon sen rideto,”
 
@@ -4441,7 +4239,6 @@ la
 
 ĈAPITRO VII
 
-FRENEZA TEFESTO
 
 TABLO estis aranĝita sub arbo antaŭ
 
@@ -4477,8 +4274,6 @@ kunpremiĝis ĉe unu angulo. “Mankas spaco!
 
 Mankas spaco!” ili kriis kiam ili vidis
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Alicon veni. “Estas *multa* spaco!” diris
 
@@ -4535,9 +4330,6 @@ komentojn,” Alico diris iom severe: “estas
 tre malĝentile.”
 
 
-FRENEZA TEFESTO
-
-
 La Ĉapelisto tre larĝe malfermis siajn
 
 okulojn; sed li *diris* nur, “Kiel korako
@@ -4558,8 +4350,6 @@ respondon?” diris la Marta Leporo.
 
 “Ekzakte,” diris Alico.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Do vi devus diri kion vi celas diri,”
 
@@ -4614,8 +4404,6 @@ pri ĉio kion ŝi memoris pri korakoj kaj
 
 skribotabloj, kio ne estis multa.
 
-FRENEZA TEFESTO
-
 
 La Ĉapelisto la unua rompis la silenton.
 
@@ -4661,8 +4449,6 @@ ol la unua komento, “Ĝi estis la *plej bona*
 
 butero, sciu.”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Alico jam rigardadis trans lian ŝultron
 
@@ -4718,8 +4504,6 @@ okulojn,
 
 “Kompreneble, kompreneble; mi mem intencis
 
-FRENEZA TEFESTO
-
 
 diri precize tion.”
 
@@ -4765,8 +4549,6 @@ kiam mi studas la muzikon.”
 
 “Ha! Jen la klarigo,” diris la Ĉapelisto.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Li ne toleras batadon. Nu, se vi nur
 
@@ -4823,9 +4605,6 @@ okazigita de la Reĝino de Keroj, kaj mi
 devis kanti,
 
 
-FRENEZA TEFESTO
-
-
 *Brilu, brilu, vespertet’! *
 
 *Vi similas al komet’! *
@@ -4846,8 +4625,6 @@ FRENEZA TEFESTO
 
 Nun la Gliro skuetis sin, kaj komencis
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 kanti dormante “*Brilu, brilu, brilu, brilu*—”
 
@@ -4912,8 +4689,6 @@ pozicio, mi supozas?” diris Alico.
 “Ĝuste tiel,” diris la Ĉapelisto: “kiam
 
 la teleroj eluziĝas.”
-
-FRENEZA TEFESTO
 
 
 “Sed kio okazas kiam vi reatingas la
@@ -4989,8 +4764,6 @@ Lacio, kaj Tildo; kaj ili loĝis ĉe la fundo
 de puto—”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Kion ili manĝis?” diris Alico, kiun
 
 ĉiam multe interesis manĝado kaj trinkado.
@@ -5053,8 +4826,6 @@ diris la Ĉapelisto: “estas tre facile preni
 
 Alico.
 
-FRENEZA TEFESTO
-
 
 “Nun kiu faras pripersonajn komentojn?”
 
@@ -5100,8 +4871,6 @@ li konsentis daŭrigi. “Kaj do tiuj tri
 
 fratinetoj—ili studis desegnadon, sciu—”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Kion ili desegnis?” diris Alico, tute
 
@@ -5179,8 +4948,6 @@ desegnas melason el melasoputo—ĉu ne,
 
 stultulo?”
 
-FRENEZA TEFESTO
-
 
 “Sed ili estis *en* la puto,” Alico diris
 
@@ -5227,8 +4994,6 @@ multa’—ĉu iam vi vidis desegnon de multo?”
 “Vere, ĉar vi demandas al mi,” diris
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Alico, tre konfuzite, “ne, mi pensas—”
 
 “Do ne parolu,” diris la Ĉapelisto.
@@ -5248,8 +5013,6 @@ ili vokos al ŝi: kiam ŝi lastafoje vidis ilin,
 ili provadis puŝi la Gliron en la tepoton.
 
 “Nu, certe mi neniam reiros *tien*!” diris
-
-FRENEZA TEFESTO
 
 
 Alico, dum ŝi pene marŝis tra la arbaro.
@@ -5308,7 +5071,6 @@ kaj la malvarmaj fontoj.
 
 ĈAPITRO VIII
 
-LA KROKETLUDEJO DE LA REĜINO
 
 GRANDA rozarbo staris apud la enirejo
 
@@ -5335,9 +5097,6 @@ Je tio Sep suprenrigardis kaj diris,
 “Jes, ja, Kvin! Ĉiam akuzu aliajn!”
 
 
-LA KROKETLUDEJO DE LA REĜINO
-
-
 “*Vi* ne parolu!” diris Kvin. “Jam hieraŭ
 
 mi aŭdis la Reĝinon diri ke vi indas
@@ -5346,9 +5105,7 @@ senkapiĝon.”
 
 “Pro kio?”
 
-diris la unue-
-
-parolinto.
+diris la unueparolinto.
 
 “Tute
 
@@ -5398,8 +5155,6 @@ okulo ekvidis Alicon, dum ŝi staris rigardante
 
 ilin, kaj li subite ĉesigis sian parolon: la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 aliaj ankaŭ turnis sin por rigardi, kaj ĉiuj
 
@@ -5463,8 +5218,6 @@ tri ĝardenistoj, oblongaj kaj plataj, kun la
 
 manoj kaj piedoj ĉe la anguloj: sekvis la
 
-LA KROKETLUDEJO DE LA REĜINO
-
 
 dek korteganoj; ili estis ornamitaj tute per
 
@@ -5511,8 +5264,6 @@ tiam, kaj atendis.
 Kiam la procesio atingis la lokon de
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Alico, ili ĉiuj haltis kaj rigardis ŝin, kaj
 
 la Reĝino diris, severe, “Kiu estas tiu?”
@@ -5558,9 +5309,6 @@ surprizis ŝia propra kuraĝo. “Ne koncernas
 *min*.”
 
 
-LA KROKETLUDEJO DE LA REĜINO
-
-
 La Reĝino fariĝis karmezina pro furiozo,
 
 kaj, kolerege rigardinte ŝin dum momento
@@ -5569,8 +5317,6 @@ kiel sovaĝa besto, ŝi komencis krii, “Senkapigu
 
 ŝin! Senkap—”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Absurdaĵo!” diris Alico, tre laŭte kaj
 
@@ -5632,8 +5378,6 @@ rozojn.
 
 sed tri el la soldatoj postrestis por ekzekuti
 
-LA KROKETLUDEJO DE LA REĜINO
-
 
 la povrajn ĝardenistojn, kiuj kuris al Alico
 
@@ -5688,8 +5432,6 @@ Blanka Kuniklo, kiu rigardetis malkviete
 ŝian vizaĝon.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Tre,” diris Alico. “Kie estas la Dukino?”
 
 “Ĉit! Ĉit!” diris la Kuniklo per mallaŭta,
@@ -5735,9 +5477,6 @@ ili kvietiĝis post unu-du minutoj, kaj la
 ludo komenciĝis.
 
 
-LA KROKETLUDEJO DE LA REĜINO
-
-
 Alico opiniis ke ĝis tiam neniam ŝi
 
 vidis tiom kuriozan kriketludejon: ĝi konsistis
@@ -5746,9 +5485,7 @@ tute el krestetoj kaj sulkoj; la kroketkugloj
 
 konsistis el vivantaj erinacoj, kaj la maleoj
 
-el vivantaj feni-
-
-kopteroj, kaj la
+el vivantaj fenikopteroj, kaj la
 
 soldatoj fleksis sin
 
@@ -5758,9 +5495,7 @@ manoj kaj piedoj
 
 por fariĝi arkoj.
 
-La ĉefa ma-
-
-facilaĵo kiun trovis
+La ĉefa mafacilaĵo kiun trovis
 
 unue Alico estis
 
@@ -5800,8 +5535,6 @@ bati la erinacon per ĝia korpo, ĝi *insiste*
 
 torde turnis sin kaj rigardis ŝian vizaĝon
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 kun tia esprimo de senkompreno ke ŝi ne
 
@@ -5863,9 +5596,7 @@ aŭ
 
 proksimume
 
-ĉiu-
-
-minute.
+ĉiuminute.
 
 Alico komencis tre malkvietiĝi: estas
 
@@ -5884,8 +5615,6 @@ estiĝis
 inter ŝi kaj la Reĝino, sed ŝi sciis ke
 
 tio povus okazi je iu minuto, “kaj tiam,”
-
-LA KROKETLUDEJO DE LA REĜINO
 
 
 pensis ŝi, “kio okazus al mi? Oni amegas
@@ -5942,8 +5671,6 @@ la ludo, estante tre ĝoja ĉar iu aŭskultas
 
 ĝi nun videblas, kaj pliaj partoj ne aperis.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Mi opinias ke ili tute ne honeste
 
@@ -6019,8 +5746,6 @@ La Reĝino ridetis kaj forpaŝis.
 
 venante al Alico, kaj rigardante la kapon
 
-LA KROKETLUDEJO DE LA REĜINO
-
 
 de la Kato tre dube.
 
@@ -6094,8 +5819,6 @@ eĉ rigardi.
 
 3 Angla proverbo. = Reguloj ne estas ĉiam aplikendaj.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Mi mem venigos la ekzekutiston,” diris
 
@@ -6191,8 +5914,6 @@ ambaŭ erinacoj ne plu estis videblaj: “sed
 
 ne multe gravas,” pensis Alico, “ĉar ĉiuj
 
-LA KROKETLUDEJO DE LA REĜINO
-
 
 arkoj jam foriris de ĉi tiu flanko de la
 
@@ -6261,8 +5982,6 @@ li neniam devis fari ion tian, kaj li ne
 komencos nun je *lia* aĝo.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 La argumento de la Reĝo estis, ke ĉio
 
 kun kapo estas senkapigebla, kaj oni ne
@@ -6274,8 +5993,6 @@ La argumento de la Regino estis, ke
 se oni ne agos pli rapide ol tuj, ŝi
 
 ekzekutigos ĉiujn ĉeestantojn. (Ĉi tiu lasta
-
-LA KROKETLUDEJO DE LA REĜINO
 
 
 komento tre malgajigis la tutan grupon.)
@@ -6324,7 +6041,6 @@ grupanoj reiris ludi.
 
 ĈAPITRO IX
 
-LA RAKONTO DE LA FALSĤELONIO
 
 “VI ne povas koncepti kiom mi ĝojas
 
@@ -6345,8 +6061,6 @@ la kuirejo. “Kiam *mi* fariĝos Dukino,”
 ŝi diris al si (tamen, ne tre esperoplene),
 
 “mi tute *ne* havos pipron en mia kuirejo.
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 Supo estas sufiĉe bona sen ĝi—eble pipro
@@ -6428,8 +6142,6 @@ Alico dum ŝi parolis.
 Al Alico ne multe plaĉis ŝia proksimegeco:
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 unue, ĉar la Dukino estis *tre* malbela, kaj
 
 due, ĉar ŝi estis ĝuste sufiĉe alta por
@@ -6458,9 +6170,7 @@ m e n t o n o .
 
 Tamen, ŝi ne
 
-volis esti mal-
-
-ĝentila: do ŝi
+volis esti malĝentila: do ŝi
 
 t o l e r i s
 
@@ -6485,8 +6195,6 @@ moralaĵo de tio estas—‘Ho, pro amo, pro
 amo, ĉirkaŭiras la mondo!’”
 
 “Iu diris,” Alico flustris, “ke tio okazas
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 ĉar ĉiu atentas la proprajn aferojn!”
@@ -6548,8 +6256,6 @@ komentis.
 5 Angla proverbo. = Similaĵoj havas komunan karakteron.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “kiom klare vi esprimas la aferojn!”
 
 “Ĝi estas mineralo, mi *kredas*,” diris Alico.
@@ -6593,8 +6299,6 @@ vidi ĝin skribita: sed mi ne povas plene
 kompreni la sencon dum vi parolas ĝin.”
 
 “Tio estas nenio, kompare kun kion mi
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 povus diri se mi volus,” la Dukino respondis,
@@ -6650,8 +6354,6 @@ kaj jen la Reĝino staras antaŭ ili, kun la
 brakoj kunfalditaj, kaj sulkigante la frunton
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 kiel tondroŝtormo.
 
 “Bela tago, via Moŝto!” la Dukino
@@ -6703,8 +6405,6 @@ la
 soldatoj,
 
 kiuj
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 kompreneble devis ĉesi esti arkoj por fari
@@ -6762,8 +6462,6 @@ de la Reĝino.
 6 Supo el bovidaĵo, imitanta la guston de supo el verdĥeloniaĵo.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Tre baldaŭ ili atingis Grifon kiu kuŝis
 
 dormante en la sunlumo. (Se vi ne scias kio
@@ -6783,8 +6481,6 @@ lasante Alicon sola kun la Grifo. Al Alico la
 besto ne aspektis tute fidinda, sed ĝenerale ŝi
 
 opiniis ke estos egale sendanĝere resti kun ĝi
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 kiel sekvi tiun sovaĝan Reĝinon: do ŝi atendis.
@@ -6831,8 +6527,6 @@ preskaŭ identaj kun la antaŭaj, “Li nur
 
 imagas, ja: li ne havas nenian malfeliĉon,
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 komprenu. Venu!”
 
@@ -6881,17 +6575,12 @@ pli, do ŝi sidis kviete kaj diris nenion.
 7 La Grifo parolas Grifan dialekton, tial liaj stangaj esprimoj.
 
 
-LA RAKONTO DE LA FALSĤELONIO
-
-
 “Kiam ni estis junaj,” la Falsĥelonio fine
 
 daŭrigis, pli trankvile, kvankam li ankoraŭ
 
 fojfoje ploris, “ni lernis en lernejo en la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 maro. La mastro estis maljuna Ĥelonio—ni
 
@@ -6936,8 +6625,6 @@ interrompis Alico.
 povis denove paroli. La Falsĥelonio daŭrigis.
 
 “Ni ricevis la plej bonan edukon—efektive,
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 ni vizitis la lernejon ĉiutage—”
@@ -6984,8 +6671,6 @@ la unuaj,” la Falsĥelonio respondis; “kaj
 
 sekvis la diversaj fakoj de Aritmetiko—
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 Ambicio,
 
@@ -7037,15 +6722,11 @@ kalkulante la temojn per siaj piedpalmoj,—
 
 “Misterion, antikvan kaj modernan, kun
 
-Marografio: sekvis Dissegado—la Distren-
-
-instruisto estis maljuna kongra angilo, kiu
+Marografio: sekvis Dissegado—la Distreninstruisto estis maljuna kongra angilo, kiu
 
 venis unufoje dum ĉiu semajno: *li* instruis
 
 al ni Dissegadon, Prizadon, suran kaj suban,
-
-LA RAKONTO DE LA FALSĤELONIO
 
 
 kaj Olean Penetradon.”
@@ -7093,8 +6774,6 @@ Grifo komentis: “ĉar ĉiutage oni studas nur
 onon.”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Tio estis tute nova ideo por Alico, kaj
 
 ŝi pensis pri ĝi iom antaŭ ol denove paroli.
@@ -7115,7 +6794,6 @@ pri la ludoj.”
 
 ĈAPITRO X
 
-LA OMARA KVADRILO
 
 La Falsĥelonio profunde ĝemis kaj tiris
 
@@ -7141,8 +6819,6 @@ rekomencis:
 
 (“Ne,” diris Alico)—“kaj eble oni neniam
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 konatigis al vi omaron—” (Alico komencis
 
@@ -7210,8 +6886,6 @@ samorde,” daŭrigis la Grifo.
 
 “Kaj post tio, komprenu,” pludiris la
 
-LA OMARA KVADRILO
-
 
 Falsĥelonio, “ĵetu la—”
 
@@ -7258,8 +6932,6 @@ la Falsĥelonio al la Grifo. “Ni povas danci
 sen la omaroj, komprenu. Kiu el ni kantu?”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Ho, *vi* kantu,” diris la Grifo. “Mi
 
 jam forgesis la vortojn.”
@@ -7271,8 +6943,6 @@ Alicon, fojfoje tretante ŝiajn piedfingrojn
 kiam ili tro proksimiĝis, kaj gestante per
 
 siaj antaŭpiedoj por bati la tempojn, dum
-
-LA OMARA KVADRILO
 
 
 la Falsĥelonio kantis ĉi tion, tre malrapide
@@ -7303,8 +6973,6 @@ kaj morne:—
 
 *Ne povas aŭ ne volas kune veni al la danc’. *
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 *“Ĉu vere gravas la distanco?” lin demandis la amik’. *
 
@@ -7353,8 +7021,6 @@ vidis ilin, kompreneble vi scias kiel ili
 aspektas?”
 
 “Mi kredas ke jes,” Alico respondis
-
-LA OMARA KVADRILO
 
 
 penseme.
@@ -7413,8 +7079,6 @@ vi scias kial ili nomiĝas helikoj?”
 
 “Kial?”
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “*Ili poluras la botojn kaj ŝuojn*,” la
 
@@ -7490,8 +7154,6 @@ aventurojn.”
 
 “Mi povus rakonti miajn aventurojn—de
 
-LA OMARA KVADRILO
-
 
 la komenco de la hodiaŭa mateno,” diris
 
@@ -7554,8 +7216,6 @@ kurioze!”
 Grifo.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Tute malĝustaj!” la Falsĥelonio ripetis
 
 penseme.
@@ -7611,9 +7271,6 @@ tre kuriozaj:—
 *Lia voĉo timidas kaj li malkuraĝas. *
 
 
-LA OMARA KVADRILO
-
-
 “La vortoj estis tre diferencaj kiam *mi*
 
 deklamadis ĝin en mia infanaĝo,” diris la
@@ -7628,8 +7285,6 @@ absurdaĵo.”
 
 Alico diris nenion: ŝi sidiĝis kun la
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 vizaĝo en la manoj, demandante al si ĉu
 
@@ -7694,8 +7349,6 @@ kaj ŝi daŭrigis per trema voĉo:—
 *Por Panter’ rezerviĝis viando kaj pasto, *
 
 *Kaj restis la ujo por manĝ’ de la gasto. *
-
-LA OMARA KVADRILO
 
 
 *Post la fino de l’ manĝo omaĝis Pantero*
@@ -7773,8 +7426,6 @@ komencis, per voĉo preskaŭ sufokita de
 plorado, kanti ĉi tion:—
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 *Verda kaj riĉa Supo bela*
 
 *Atendas ĝi en ujo hela! *
@@ -7819,8 +7470,6 @@ kiam la krio “Komenciĝas la proceso!”
 
 aŭdiĝis el for.
 
-LA OMARA KVADRILO
-
 
 “Venu!” kriis la Grifo, kaj, prenante
 
@@ -7844,7 +7493,6 @@ ilin, la melankoliaj vortoj:—
 
 ĈAPITRO XI
 
-KIU ŜTELIS LA TORTETOJN?
 
 LA Reĝo kaj Reĝino de Keroj sidis
 
@@ -7877,8 +7525,6 @@ Blanka Kuniklo, kun trumpeto en unu
 mano, kaj pergamena rulaĵo en la alia.
 
 En la mezo mem de la kortego estis
-
-KIU ŜTELIS LA TORTETOJN?
 
 
 tablo, sur kiu estis granda telero da
@@ -7936,8 +7582,6 @@ kaj kelkaj estis birdoj), “mi supozas ke
 ili estas la ĵurio. Ŝi diris ĉi tiun vorton
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 al si du- aŭ tri-foje, kaj iom fieris pro
 
 ĝi: ĉar ŝi opiniis, tute prave, ke tre
@@ -7992,8 +7636,6 @@ skribas “Stultuloj!” sur siajn ardezojn, kaj
 
 ŝi eĉ povis rimarki ke unu el ili ne scias
 
-KIU ŜTELIS LA TORTETOJN?
-
 
 literumi “stult-”, kaj ke li devis peti helpon
 
@@ -8044,8 +7686,6 @@ la trumpeton, poste malrulis la pergamenan
 rulaĵon, kaj legis ĉi tion:—
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 *Reĝino Kera dum tag’ somera*
 
 *Tortaron faris ŝi:*
@@ -8057,8 +7697,6 @@ LA AVENTUROJ DE ALICO EN MIRLANDO
 “Decidu vian verdikton,” la Reĝo diris
 
 al la ĵurio.
-
-KIU ŜTELIS LA TORTETOJN?
 
 
 “Ankoraŭ ne! Ankoraŭ ne!” la Kuniklo
@@ -8091,9 +7729,7 @@ mian tepaŭzon kiam oni alvokis min.”
 
 La Ĉapelisto rigardis la Martan Leporon,
 
-kiu lin sekvis en la kortegon, brak’-en-
-
-brake kun la Gliro. “La dek-kvaran de
+kiu lin sekvis en la kortegon, brak’-enbrake kun la Gliro. “La dek-kvaran de
 
 marto, mi *kredas* memori,” li diris.
 
@@ -8105,8 +7741,6 @@ marto, mi *kredas* memori,” li diris.
 
 kaj la ĵurio fervore skribis ĉiujn tri datojn
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 sur siajn ardezojn, kaj poste adiciis ilin
 
@@ -8148,17 +7782,13 @@ rigardante maltrankvile la Reĝinon, kaj pro
 
 sia konfuziĝo li elmordis grandan pecon
 
-de sia tetaso anstataŭ de sia pano-kun-
-
-butero.
+de sia tetaso anstataŭ de sia pano-kunbutero.
 
 8 Laŭ la tiama sistemo en Britio, oni sumigis monon per iom kompeksa kalkulado: 12 pencoj = 1 ŝilingo, 20 ŝilingoj = 1 pundo.
 
 Se oni supozas ke ĉiu tago = 1 penco, 14+15+16 = 45 pencoj =
 
 3 ŝilingoj plus 9 pencoj.
-
-KIU ŜTELIS LA TORTETOJN?
 
 
 Ĝuste
@@ -8226,8 +7856,6 @@ la Ĉapeliston, kaj, ĝuste kiam la Gliro
 transiris la kortegon, ŝi diris al unu el
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 la kortegoficistoj, “Alportu la liston de la
 
 kantistoj en la plejlasta koncerto!” je kio
@@ -8254,9 +7882,7 @@ negrave ĉu aŭ ne
 
 vi nervozas.”
 
-“Mi estas pov-
-
-rulo, via Moŝto,”
+“Mi estas povrulo, via Moŝto,”
 
 l a
 
@@ -8279,8 +7905,6 @@ tiom maldikiĝis, kaj la teo scintilis—”
 “*Komenciĝis* per la t…,” la Ĉapelisto
 
 balbutis.
-
-KIU ŜTELIS LA TORTETOJN?
 
 
 “Kompreneble ‘teo’ komenciĝas per T!”
@@ -8338,8 +7962,6 @@ tranĉis iom pli da pano-kun-butero—”
 “alie mi ekzekutigos vin.”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 La mizera Ĉapelisto faligis sian tetason
 
 kaj panon-kun-butero, kaj surgenuiĝis. “Mi
@@ -8393,9 +8015,6 @@ rajtas substari,” daŭrigis la Reĝo.
 “Do vi rajtas sub *sidi*,” la Reĝo respondis.
 
 
-KIU ŜTELIS LA TORTETOJN?
-
-
 Nun la alia kobajo hurais, kaj oni
 
 subpremis lin.
@@ -8426,8 +8045,6 @@ ne atendis por surmeti siajn ŝuojn.
 
 “—kaj ekstere senkapigu lin,” la Reĝino
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 aldonis al unu el la oficistoj; sed la Ĉapelisto
 
@@ -8485,8 +8102,6 @@ basa voĉo, “El kio konsistas tortetoj?”
 
 “Pipro, plejparte,” diris la kuiristino.
 
-KIU ŜTELIS LA TORTETOJN?
-
 
 “Melaso,” diris dormema voĉo malantaŭ ŝi.
 
@@ -8534,7 +8149,6 @@ per sia akra voĉeto, la nomon “Alico!”
 
 ĈAPITRO XII
 
-ATESTAS ALICO
 
 “JEN mi!” kriis Alico, tute forgesante,
 
@@ -8563,9 +8177,6 @@ malfeliĉe, kaj ŝi komencis repreni ilin kiel
 eble plej rapide, ĉar la akcidento pri la
 
 
-ATESTAS ALICO
-
-
 orfiŝoj daŭre estis en ŝia menso, kaj ŝi
 
 havis ian neklaran ideon ke necesas kolekti
@@ -8574,8 +8185,6 @@ ilin tuj kaj remeti en la ĵuriejojn, por ke
 
 ili ne mortu.
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “La proceso ne povos daŭri,” diris la
 
@@ -8621,8 +8230,6 @@ la plafonon de la kortego.
 
 “Kion vi scias pri ĉi tiu afero?” la
 
-ATESTAS ALICO
-
 
 Reĝo diris al Alico.
 
@@ -8650,9 +8257,7 @@ al li dum li parolis.
 
 la Reĝo haste diris, kaj li pludiris al si
 
-per nelaŭta voĉo, “grava—malgrava—mal-
-
-grava—grava—” kvazaŭ provante ambaŭ
+per nelaŭta voĉo, “grava—malgrava—malgrava—grava—” kvazaŭ provante ambaŭ
 
 vortojn por trovi kiu el ili plejbele sonas.
 
@@ -8676,8 +8281,6 @@ Tiumomente la Reĝo, kiu dum iom da
 
 tempo skribadis en sian notlibron, kriis
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 “Silentu!” kaj li legis el sia libro, “Regulo
 
@@ -8733,8 +8336,6 @@ troviĝis.”
 
 “Kion ĝi diras?” diris la Reĝino.
 
-ATESTAS ALICO
-
 
 “Mi ankoraŭ ne malfermis ĝin,” diris
 
@@ -8780,8 +8381,6 @@ reaspektis feliĉaj.)
 
 “mi ne verkis ĝin, kaj oni ne povas pruvi
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 ke mi ja verkis ĝin: neniu nomo estas
 
@@ -8835,8 +8434,6 @@ La Blanka Kuniklo laŭtlegis ĉi tiujn
 
 versojn:—
 
-ATESTAS ALICO
-
 
 *Ja, vi vizitis ŝin, laŭ dir’, *
 
@@ -8870,8 +8467,6 @@ ATESTAS ALICO
 
 *o via nin, amik’. *
 
-
-LA AVENTUROJ DE ALICO EN MIRLANDO
 
 *Sed jen nocio trafis min*
 
@@ -8921,8 +8516,6 @@ en ĝi.”
 
 Ĉiuj ĵurianoj skribis sur siajn ardezojn,
 
-ATESTAS ALICO
-
 
 “*Ŝi* ne kredas ke estas atomo da signifo
 
@@ -8969,8 +8562,6 @@ sendube tion li faris pri la tortetoj, sciu—”
 diris Alico.
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 “Nu, jen ili!” diris
 
 la
@@ -9012,8 +8603,6 @@ la Reĝino, furioze,
 ŝi parolis. (Kompatinda eta Vilĉjo jam ĉesis
 
 skribi sur sian ardezon per unu fingro,
-
-ATESTAS ALICO
 
 
 ĉar li vidis ke ĝi ne lasas signojn; sed
@@ -9069,13 +8658,9 @@ reatingis sian naturan altecon). “Vi estas
 nur pako da kartoj!”
 
 
-LA AVENTUROJ DE ALICO EN MIRLANDO
-
 Je tio la tuta kartaro ekleviĝis en la
 
 aeron, kaj iris fluge kontraŭ ŝin; ŝi krietis,
-
-ATESTAS ALICO
 
 
 parte pro timo kaj parte pro kolero, kaj

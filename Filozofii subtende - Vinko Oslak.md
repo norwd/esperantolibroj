@@ -51,21 +51,11 @@ FILOZOFII SUBTENDE
 *http://www.omnibus.se/*
 
 
-FILOZOFII SUBTENDE
-
-
 Enkonduko
 
-Jam multaj libroj estis verkitaj pri la temoj: Juna kemiisto, Juna fizikisto, Juna matematikisto — por mencii nur kelkajn pli gravajn. Eĉ pli troviĝas el tiuj, kiuj la junan homon enkondukas en certan hobion: fotadon, radioteknikon, mik-roskopadon, ŝakludon kaj similajn aferojn. Ankaŭ mi lernis el tiuj libroj. Kun speciala emocio mi rememoras tiaspecan po-pularsciencan libron Kemio — inter ŝerco kaj seriozo de iu serba aŭtoro Òivko Kostiĝ, kiu plenigis miajn frenezetajn ler-nejajn jarojn per la feliĉo de infana ”esplorado”. Kiel fumis, sparkis kaj krakis en nia malnova kamparana domo, kiel kreskis la amaso de la laboratoriaj vitraĵoj, kunportitaj el ĉiuj eblaj fontoj. Sed kiam mi enmordis en la unuajn pomojn de la filozofia arbo, sengrave kiel malmature verdaj ili tiam (ver-
+Jam multaj libroj estis verkitaj pri la temoj: Juna kemiisto, Juna fizikisto, Juna matematikisto — por mencii nur kelkajn pli gravajn. Eĉ pli troviĝas el tiuj, kiuj la junan homon enkondukas en certan hobion: fotadon, radioteknikon, mik-roskopadon, ŝakludon kaj similajn aferojn. Ankaŭ mi lernis el tiuj libroj. Kun speciala emocio mi rememoras tiaspecan po-pularsciencan libron Kemio — inter ŝerco kaj seriozo de iu serba aŭtoro Òivko Kostiĝ, kiu plenigis miajn frenezetajn ler-nejajn jarojn per la feliĉo de infana ”esplorado”. Kiel fumis, sparkis kaj krakis en nia malnova kamparana domo, kiel kreskis la amaso de la laboratoriaj vitraĵoj, kunportitaj el ĉiuj eblaj fontoj. Sed kiam mi enmordis en la unuajn pomojn de la filozofia arbo, sengrave kiel malmature verdaj ili tiam (verŝajne ankaŭ nuntempe) estis, mi sentis bezonon ie trovi aŭ eĉ mem verki iaspecan ”Juna filozofo”, iaspecan ”Filozofio inter ŝerco kaj seriozo”. Mi vidis min en la aĝo de 14, 15 jaroj, kiel mi ”manĝus” tian libron, se ĝi ekzistus; kiom da ĉirkaŭvojoj sur mia vojo mi povus ŝpari, se iu ankaŭ por tiuspeca scivo-lo verkus ion simplan, preskaŭ babilan, rekte kaj honeste, kiel oni devas paroli al adoleskulo. Sed, tiam tiaj libroj ne ekzistis. Estis, kompreneble, lernolibroj por la gimnazia objekto
 
-ŝajne ankaŭ nuntempe) estis, mi sentis bezonon ie trovi aŭ eĉ mem verki iaspecan ”Juna filozofo”, iaspecan ”Filozofio inter ŝerco kaj seriozo”. Mi vidis min en la aĝo de 14, 15 jaroj, kiel mi ”manĝus” tian libron, se ĝi ekzistus; kiom da ĉirkaŭvojoj sur mia vojo mi povus ŝpari, se iu ankaŭ por tiuspeca scivo-lo verkus ion simplan, preskaŭ babilan, rekte kaj honeste, kiel oni devas paroli al adoleskulo. Sed, tiam tiaj libroj ne ekzistis. Estis, kompreneble, lernolibroj por la gimnazia objekto
-
-”filozofio”. Sed tie oni povis legi, kiu kiam kion asertis aŭ skribis, al kiu scienca tirkesto tio apartenas — sed filozofii mem tiuj lernolibroj ne instruis. Estis la samo, kvazaŭ tiu mia Kos-3
-
-FILOZOFII SUBTENDE
-
-
-tiĝ sur ĉiuj 200 paĝoj de sia libro mencius nur la nomojn de kemiistoj kaj iliajn naskiĝdatojn, sed li ne priskribus la proce-don, kiamaniere oni mem faras pulvon (kredu, ke mi unue
+”filozofio”. Sed tie oni povis legi, kiu kiam kion asertis aŭ skribis, al kiu scienca tirkesto tio apartenas — sed filozofii mem tiuj lernolibroj ne instruis. Estis la samo, kvazaŭ tiu mia Kostiĝ sur ĉiuj 200 paĝoj de sia libro mencius nur la nomojn de kemiistoj kaj iliajn naskiĝdatojn, sed li ne priskribus la proce-don, kiamaniere oni mem faras pulvon (kredu, ke mi unue
 
 kontrolis tion …), kiamaniere oni aranĝas piroteknikaĵon, kiamaniere oni povas tagon antaŭ la konfirmacio per certa acido detrui sian veston … Se mi troviĝas meze de la dezerto, se mi estas morte soifa, bonvolu ne nepre informi min, kiam
 
@@ -81,23 +71,16 @@ Estas ankoraŭ unu dubo. Nia eduko imagigis, ke la filozofo estas oldulo, kiu ne
 
 Kaj tamen: se mi rememoras, kiom ni infanoj interparolis
 
-ĝuste pri tiaj aferoj, kiajn traktas la filozofio, mi povas kun certeco diri, ke la problemo ne estas ĉe vi, juna fraŭlo, juna fraŭlino, kiu ĝuste en via aĝo montras tioman intereson pri ĉio ebla kaj neebla. La problemo estas ĉe tiuj falsaj profetoj kaj memvokitaj guruoj de la filozofio, kiuj timas, ke ilia scienco perdus respekton kaj renomon, se ili prezentus ĝin en 4
-
-FILOZOFII SUBTENDE
+ĝuste pri tiaj aferoj, kiajn traktas la filozofio, mi povas kun certeco diri, ke la problemo ne estas ĉe vi, juna fraŭlo, juna fraŭlino, kiu ĝuste en via aĝo montras tioman intereson pri ĉio ebla kaj neebla. La problemo estas ĉe tiuj falsaj profetoj kaj memvokitaj guruoj de la filozofio, kiuj timas, ke ilia scienco perdus respekton kaj renomon, se ili prezentus ĝin en
 
 
 komprenebla kaj interesa lingvaĵo, proksima al tiu, kiun parolas vi. Ke tiu ĉi timo ne havas bazon kaj montras malforton en propra profesio, demonstras la fakto, ke tiuj samaj fakuloj, sidante antaŭ siaj komputiloj, devas komponi siajn program-ojn uzante plej simplajn fiksajn frazojn, dum la baza komputila lingvo konas nur du ”esprimojn”: ”nulo” kaj ”unu”. Tiu humiliĝo antaŭ la maŝino ŝajnas al ili eĉ io eksterordinare eminenta, dum traduki sian filozofion en la lingvon, kiun parolas normala homo kaj junulo, ŝajnas al ili vera humiliĝo kaj malriĉigo de la substanco.
 
 Mi ne kuraĝas promesi, ke la spirito de tiu ĉi teksto tiun eraran sintenon esence superos. Tamen, ĉar la agro ne estas perfekte kultivita, mi riskas provi ion entrepreni eĉ per mia nefaka mano. Pli bone tiel ol lasi la aferon nefarita.
 
-Nu do, bonvolu pretigi dormsakojn, manĝilaron por ten-
-
-dumaj cirkonstancoj; la tendojn prizorgos ni — kaj ek survo-jen!
+Nu do, bonvolu pretigi dormsakojn, manĝilaron por tendumaj cirkonstancoj; la tendojn prizorgos ni — kaj ek survo-jen!
 
 ***La aŭtoro***
-
-
-FILOZOFII SUBTENDE
 
 
 I.
@@ -139,9 +122,6 @@ Sinjorino Majda turnis sin de la pakaĵoj, kiujn ŝi ligis, kiel Ali Baba siajn 
 ”Verdire, Andreo, kion ni reprezentos ĉijare? Jam dum
 
 kvin jaroj ni veturas kune feritendumi. ĉu ne ekmankos la sciencoj, ja ni jam estis matematikistoj, fizikistoj, historiistoj kaj kemiistoj?”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Divenu mem! Se ni vojaĝas sen libroj, tio havas certan
@@ -186,12 +166,7 @@ probable apenaŭ manskriborulon — kaj ili estas tri majestaj kolonoj de la fil
 
 ”Neniuj prijuĝoj de nia racio estas tiom sub la influo de la korpa farto ol la spekulaciaj, la filozofiaj. Vidu, oni povas esti
 
-ĝismorte trista kaj korpe kaduka, sed oni tamen povas kon-7
-
-FILOZOFII SUBTENDE
-
-
-tentige fari kemian analizon de donita ingredienco. Sed, se la korpa malforto kaj malbona farto turmentas filozofon, speciale tiun, kiu nur komencis tiun aferon, kiu ne estas jam trej-nita je ĉiuj homaj malfortoj kaj amplitudoj, tiu vidos la mondon en tute aliaj koloroj, ol li ĝin vidus sana kaj bonfarta. Jam Danto diris: ’Ne atingas longan vojon la spirito, se turmentas
+ĝismorte trista kaj korpe kaduka, sed oni tamen povas kontentige fari kemian analizon de donita ingredienco. Sed, se la korpa malforto kaj malbona farto turmentas filozofon, speciale tiun, kiu nur komencis tiun aferon, kiu ne estas jam trej-nita je ĉiuj homaj malfortoj kaj amplitudoj, tiu vidos la mondon en tute aliaj koloroj, ol li ĝin vidus sana kaj bonfarta. Jam Danto diris: ’Ne atingas longan vojon la spirito, se turmentas
 
 ĝin la korpo neuzebla.’ Tial ni pli ol librojn bezonos gimnas-tikajn instrumentojn; por ke ni pensu kaj parolu el la sano kaj ne el malsano. Sekve ankaŭ niaj pensoj estos sanaj kaj konvinkaj.”
 
@@ -208,9 +183,6 @@ demandis:
 Ankaŭ Adela ne povis silenti:
 
 ”Jes, verdire, kion pritraktas filozofio?”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Andreo direktis rigardon al la spegulo, ĉu iu lin freneze preterveturas, poste li diris:
@@ -239,15 +211,11 @@ La granduloj, kiuj vere ion originan kontribuis al ajna scienco, ĉiam amis la v
 
 ”Kial la amo tiom destine ligiĝas kun la sciencoj kaj eĉ speciale kun la filozofio, kiel vi asertas?” demandis Georgo.
 
-”ĉar la amo kaj la vero mem estas geamantoj, gigantaj ge-
-
-amantoj. Diru, ĉu vi povas al via patrino, kiun vi certe amas, tiel facilanime mensogi, kiel vi mensogas al fremda homo, kiun vi eĉ timas?”
+”ĉar la amo kaj la vero mem estas geamantoj, gigantaj geamantoj. Diru, ĉu vi povas al via patrino, kiun vi certe amas, tiel facilanime mensogi, kiel vi mensogas al fremda homo, kiun vi eĉ timas?”
 
 ”Certe ne.”
 
-”Jen, vi vidas. La amo plej bone prosperas en la etoso de 9
-
-FILOZOFII SUBTENDE
+”Jen, vi vidas. La amo plej bone prosperas en la etoso de
 
 
 ĉiuspeca vero. Kaj inverse, la veron oni plej rekte povas atingi en la etoso de vera amo. Tial la geniaj Grekoj ne starigis la plej gravan sciencon, nome la filozofion, sur la fundamenton de la racio — tiam ili nomus la filozofion eble sofologio, sed sur la fundamenton de la amo. Modernaj instruistoj pri filozofio tion emas ignori, bedaŭrinde …”
@@ -269,21 +237,13 @@ La profesoro denove ĵetis rigardon al la spegulo super la fronta fenestrovitro 
 ”Ne, ne …”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Nu, sed nun mi verŝajne tion ne povos eviti. Atentu, ke iu ne endormiĝu! Mi diris, ke tion, kio estas, studas la ontologio, la scienco pri la esto, pri la fundamentoj de la esto. La ontologio ekzemple demandas, ĉu ĉio, kio ekzistas, estas unu nura afero aŭ ĝi estas komponita el diversaj eroj; ĉu tio, kio ekzistas, estas finita, limigita, aŭ infinita; ĉu nepra aŭ hazarda; ĉu memsufiĉa aŭ dependa … La ontologio ĉerpas siajn sciojn el la kosmologio, do, iaspeca abstrakta fiziko, kaj el metafiziko, kiu ne estas scienco en kutima senco, ĝi prefere estas spekulacio pri la sense kaj instrumente neregistrebla fono de la ekzisto. La metafiziko estas iaspeca tunelo inter la praktika kaj filozofia pensmanieroj. La fiziko informas nin ekzemple, kio faras sonon kiel fizikan fenomenon. Sed la metafiziko diras al ni, ke ni kun certeco scias nur pri nia aŭdo de la sono, nia sento de ĝi, sed ke ni ne havas ideon pri ĝia lasta fonto. Sed pri tiuj ĉi aferoj ni amuziĝos pli poste. Nun mi al-donu nur tion, ke tio estas klasika, tradicia sistemigo de la filozofio, pri kiu kelkaj nuntempaj instruistoj probable kun kompato ridetus, kvankam ankaŭ modernaj sistemigoj ne povas ĵeti pli da lumo al la eternaj problemoj de filozofia pensado.”
 
 ”Kio pri la tria parto de la filozofio?” fidelis al la temo Adela.
 
-”La tria objekto de la filozofio: tio, kio estu, kio okazu, klarigas la mondon kaj la homan agadon en tiu ĉi mondo kon-
-
-korde al la homa konscienco aŭ subkonscia tendenco. Tiu ĉi parto, nomata normiko, konsistas el etiko, ekonomiko, politiko kaj estetiko. La etiko instruas pri moralo, pri distingado inter bono kaj malbono, pri la homaj devoj. La ekonomiko
+”La tria objekto de la filozofio: tio, kio estu, kio okazu, klarigas la mondon kaj la homan agadon en tiu ĉi mondo konkorde al la homa konscienco aŭ subkonscia tendenco. Tiu ĉi parto, nomata normiko, konsistas el etiko, ekonomiko, politiko kaj estetiko. La etiko instruas pri moralo, pri distingado inter bono kaj malbono, pri la homaj devoj. La ekonomiko
 
 instruas pri la aranĝo kaj mastrumado de la homa senpera
-
-
-FILOZOFII SUBTENDE
 
 
 medio: familio, najbareco, laborejo, komunumo. La politiko instruas uzi etikajn kaj ekonomiajn principojn en grandaj komunumoj kaj socioj, precipe en la ŝtato kaj inter la ŝtatoj. La estetiko instruas pri la principoj kaj leĝoj de la belo. Laŭ la instruo de la klasika filozofio ĉio, kion la homo produktas, devas rilati al tri bazaj principoj: la vero, la bono kaj la belo.
@@ -302,14 +262,9 @@ Majda rigardvipis sian edzon dirante:
 
 aferon, kiel politikon, meti en la aron de viaj -logioj …?”
 
-Profesoro Andreo malfermis la fenestron por pagi ŝoseim-
-
-poston — poste li respondis la malfacilan konteston:
+Profesoro Andreo malfermis la fenestron por pagi ŝoseimposton — poste li respondis la malfacilan konteston:
 
 ”Mi diris, ke la filozofio esploras krom sin mem ankaŭ tion, kio fundamente estas kaj tion, kio fundamente estu. Tio, pri kio vi du legas en gazetaro aŭ aŭskultas en radio, kien tio apartenas? ĉu al tio, kio estas, ĉu al tio, kio estu?
-
-
-FILOZOFII SUBTENDE
 
 
 ”Temas pri aferoj, kiuj estas! Ja ĉio tio estas okazaĵoj kaj faktoj, kiuj vere ekzistas. Se ili ne jam ekzistus, se nur ekzistus deziro, ke ili ekzistu, ni ne perdus nervojn pro ili,” respondis Georgo.
@@ -333,9 +288,6 @@ Sinjorino Majda ekĝemis:
 ”Ni povus malfermi novan, kvaran sekcion de la filozofio,”
 
 
-FILOZOFII SUBTENDE
-
-
 ŝercis la profesoro, kiam li tiel antaŭ ĉiuj perdis sian ŝoforan kaj aŭtomekanikan renomon. Kaj tiu ĉi renomo faras duonon de ĉiu viro … ”La kvara sekcio: aferoj, kiuj ne okazu …” li provis savi, kion li povis.
 
 Dum ĉiuj en siaj pensoj provis plenigi tiun skatolon de la kvara sekcio: profesoro Andreo, lia edzino Majda, Adela, Georgo, Tanja kaj Duŝan, la aŭtomobilo jam meandris inter la karstaj pinarboj. Post plenaj du horoj profesoro Andreo jam povos ĝojkrii, kiel feliĉaj ekĝojis Helenoj ĉe Ksenofono, kiam ili remarŝis el Persio: thalatta — la maro! Ankoraŭ dum du horoj rajtas paroli la filozofio — poste parolos la fiziko; pli precize: la statiko de la tendoj, la kemio de kuirado kaj fizi-ologio de la dormripozo …
@@ -346,21 +298,14 @@ Georgo jam iel adiaŭis siajn embarasojn pri la politiko kaj starigis novan dile
 
 ”ĉio bone, se ni ĉijare studos la filozofion. Sed, ĉu mi povas kalkuli per tio, ke ni ne ludos per iaj mezepokaj fabeloj?”
 
-”Mi ne komprenas tute vian problemon,” aŭdiĝis de la sti-
-
-rilo.
+”Mi ne komprenas tute vian problemon,” aŭdiĝis de la stirilo.
 
 ”Nu bone, jen tiu metafiziko … Mi ne scias verdire, kion ni entreprenu per ĝi. Jen rakedoj, komputiloj — kaj ĉi tie ia metafiziko … Mi volas rimarki, ke ni probable estu iom pli sciencaj. En la lernejo mi ne aŭdis bonajn komentojn pri tiu metafiziko. Tio verŝajne ligiĝas kun religio. Sed nia afero estas ekkoni kaj scii — kaj ne kredi …”
 
 ”Vi do pledas, se temas pri la scienceco, kontraŭ ajna kre-do, ĉu?”
 
 
-FILOZOFII SUBTENDE
-
-
-”Kompreneble. Aŭ mi scias, aŭ mi ne scias. Kredas mi ne-
-
-nion.”
+”Kompreneble. Aŭ mi scias, aŭ mi ne scias. Kredas mi nenion.”
 
 ”Ni prenu la signifon de nia interparolo, la signifon de
 
@@ -385,9 +330,6 @@ Adela enmiksiĝis:
 ”Mi neniam asertis, ke la filozofio estas serioza afero. Serioza estas domhelpistino, kiam ŝi komutas elektran lumon kaj ne zorgas pri tio, kio okazas inter la turbinoj kaj peceto de volframa fadeno en la vitra ampolo. ŝi estas serioza kaj ne interesiĝas pri tiel infanecaj demandoj. La serioza Eskimo interesiĝas, ĉu oni povas bone glitveturi per hundsledo sur la neĝa surfaco. Li ne interesiĝas multe pri la majesta ekspozicio de kristaletoj, konstateblaj nur sub lupeo. La filozofio estas en sia radiko neserioza scienco. Enkadre de ĝi plenkres-kaj homoj demandas pri tiaj aferoj, kiajn cetere kuraĝas pridemandi nur trijaraj infanoj. Filozofo deziras ellerni ĉiun vorton ankoraŭfoje, tute denove. Tial la ordinaraj homoj lin priridas. Kial vi demandas pri la aferoj, kiujn scias ĉiu infano …”
 
 
-FILOZOFII SUBTENDE
-
-
 La profesoro dum kelkaj momentoj silentis.
 
 ”Adela, vi verŝajne scias, ke la homa korpo en certa tempo anstataŭas ĉiujn siajn ĉelojn. Se ĝi tion ne povus fari, ĝi kadukiĝus kaj mortus jam en kelkaj jaroj. Same okazas en nia menso. ĉiu nocio en ĝi devus multfoje formorti kaj esti anstataŭita per nova, pli konvena, por ke nia pensado restu freŝa kaj sana. Ni prenu nun tiun nian ’estas’. Kiamaniere vi povas scii, ke ĝi signifas al infano, al vi, al mi kaj al renoma filozofo la saman aferon?”
@@ -408,12 +350,7 @@ La profesoro dum kelkaj momentoj silentis.
 
 ”uste tiel estas. Oni povas interparoli nur, se oni al unuopaj vortoj kaj frazoj donas ioman toleron — sed antaŭ ĉio ni devas iel kredi, ke malantaŭ de tiuj vortoj troviĝas ia signifo.
 
-Tio estas la unua kondiĉo. La dua kondiĉo estas, ke en nia vortaro efektive troviĝu kelke da vortoj, kies signifo estas unuavide evidenta kaj ne bezonas klarigon. Unu el tiuj vortoj ekzemple estas ’mi’. Tion oni ne devas klarigi, kvankam la vorto en sia profunda signifo ne estas tiel simpla. Same ni ne devas klarigi vortojn, kiuj diras pri niaj internaj spertoj. Al tiuj vortoj oni simple kredas, ja oni ne povas ilin racie subargu-16
-
-FILOZOFII SUBTENDE
-
-
-menti, ĉar ili mem estas argumentoj por klarigi aliajn vortojn.
+Tio estas la unua kondiĉo. La dua kondiĉo estas, ke en nia vortaro efektive troviĝu kelke da vortoj, kies signifo estas unuavide evidenta kaj ne bezonas klarigon. Unu el tiuj vortoj ekzemple estas ’mi’. Tion oni ne devas klarigi, kvankam la vorto en sia profunda signifo ne estas tiel simpla. Same ni ne devas klarigi vortojn, kiuj diras pri niaj internaj spertoj. Al tiuj vortoj oni simple kredas, ja oni ne povas ilin racie subargumenti, ĉar ili mem estas argumentoj por klarigi aliajn vortojn.
 
 Simple: ekzistas vortoj, kiujn oni ne klarigas, pri kies senco oni kredas.”
 
@@ -448,9 +385,6 @@ ___________
 1981) li enprizonigis kaj malebligis milojn da intelektuloj en ĉiuj jugo-slaviaj respublikoj. Li ne persekutis nur religiajn homojn, sed ankaŭ so-cialdemokratojn kaj eĉ komunistojn, kiuj ne sekvis precize lian kapri-can politikan linion, kiu ofte subite ŝanĝiĝis, kiel precipe en la jaro 1948, kiam li eniris en grandan konflikton kun Stalin. Se oni unu tagon antaŭ la publika eksplodo de tiu interkamarada konflikto faris kritikan rimarkon pri Stalin, oni riskis karceron aŭ koncentrejon laŭ la nazia aŭ gul-aga modelo; se oni unu tagon post la publikigo de la ”Rezolucio de Ko-minformo” ne atakis Stalinon, oni riskis la samon …
 
 
-FILOZOFII SUBTENDE
-
-
 II.
 
 ***Kiamaniere oni fidu***
@@ -463,23 +397,15 @@ II.
 
 Se oni ne havas sperton, oni eĉ spiritusan kuirilon ne po vas bruligi simple kaj tuj. Post la sesa alumeto Tanja sukcesis inviti bluetan flamon, ke ĝi ĉirkaŭtuŝu la fundon de la tekruĉo. Akvo, pri kiu oni ekkonscias hejme nur dum aŭtola-vado, fariĝas inter tiuj ĉi rokoj per sia gluglado ia malofta elemento, multvalora kaj sentiva.
 
-Adela kaj Georgo kunmetis ŝtonplatojn, tiel ke ili fariĝu tablo kaj seĝaro; Tanja kaj Duŝan ordigis rekvizitojn post la matena gimnastiko; sinjorino Majda kaj sinjoro Andreo tran-
+Adela kaj Georgo kunmetis ŝtonplatojn, tiel ke ili fariĝu tablo kaj seĝaro; Tanja kaj Duŝan ordigis rekvizitojn post la matena gimnastiko; sinjorino Majda kaj sinjoro Andreo tranĉis kaj aranĝis panon.
 
-ĉis kaj aranĝis panon.
+”Mi preferas esti sen …” volis Georgo entrepreni sian matenmanĝon simple tiel starante.
 
-”Mi preferas esti sen …” volis Georgo entrepreni sian ma-
-
-tenmanĝon simple tiel starante.
-
-”ĉu vi ne partoprenas filozofian kurson?” ekmiris profes-
-
-oro.
+”ĉu vi ne partoprenas filozofian kurson?” ekmiris profesoro.
 
 ”Kiun rilaton havas la filozofio kun kuirejo?”
 
-”Pli malpli la filozofio hejmas en la kuirejo. Rigardu, Georgo, la mondo plej intime penetras en nin, dum ni konsumas nutraĵon. Tiam la kosmo lokiĝas en ni. Temas verdire pri majesta momento: konsumi ĉiujn tiujn atompezojn, tiujn valentojn, tiun ĉi karban poligamion, kompletan termodinamikon, elektron kaj ondmekanikon, fizikon de la atomoj kaj iliaj partikloj … Certe, oni povas manĝi ankaŭ tiel, ke oni malĉeeste 18
-
-FILOZOFII SUBTENDE
+”Pli malpli la filozofio hejmas en la kuirejo. Rigardu, Georgo, la mondo plej intime penetras en nin, dum ni konsumas nutraĵon. Tiam la kosmo lokiĝas en ni. Temas verdire pri majesta momento: konsumi ĉiujn tiujn atompezojn, tiujn valentojn, tiun ĉi karban poligamion, kompletan termodinamikon, elektron kaj ondmekanikon, fizikon de la atomoj kaj iliaj partikloj … Certe, oni povas manĝi ankaŭ tiel, ke oni malĉeeste
 
 
 ĵetas ion ajn en sian buŝon, ke oni traktas nutraĵpecojn kiel nuran hejtmaterialon. Ke oni fariĝas hejtisto en la lokomotivo de propra korpo, baraktanta per sia ŝovelilo. Sed oni povas sin disponigi al la invito en la plej eminentan eksperimenton, kiu radikale postlasas ĉiujn mondfamajn laboratoriojn: eksperimenton, en kiu la tritiko kaj la akvo fariĝas materio, kiu povas ekmiri pri si mem, kiu povas ekpensi …”
@@ -492,13 +418,9 @@ kosmo efektive scipovas!” ekmiris sinjorino Majda.
 
 ”ĉu temas do pri la altatmosfere kunpremita enhavo de
 
-siaspecaj ’Kompletaj verkoj’ de la Naturo …” ekmeditis Du-
+siaspecaj ’Kompletaj verkoj’ de la Naturo …” ekmeditis Duŝan.
 
-ŝan.
-
-”Oni povus konkludi,” ekbrilis ankaŭ en la kapo de Ade-
-
-la, ”ke tio, kio okazas en la dimensioj de la galaksioj, okazas ankaŭ etdimensie inter la supra kaj malsupra makzeloj?”
+”Oni povus konkludi,” ekbrilis ankaŭ en la kapo de Adela, ”ke tio, kio okazas en la dimensioj de la galaksioj, okazas ankaŭ etdimensie inter la supra kaj malsupra makzeloj?”
 
 Profesoro enprofundiĝis.
 
@@ -509,12 +431,7 @@ Profesoro enprofundiĝis.
 ”Sed,” diris subite la profesoro, ”ĉu vi havas imagon, kion ni ĵus faris?”
 
 
-FILOZOFII SUBTENDE
-
-
-”Ni pensis dum la matenmanĝo,” per ia dommastreca ri-
-
-proĉo diris Tanja.
+”Ni pensis dum la matenmanĝo,” per ia dommastreca riproĉo diris Tanja.
 
 ”Jes, sed ni pensis laŭ la maniero de filozofoj.”
 
@@ -523,10 +440,7 @@ proĉo diris Tanja.
 ”Jes, ni filozofiis, kiel ni plej bone povis!”
 
 
-Georgo jam dum tuta jarcento traktis pumpilon, sed la boa-
-
-
-to restis neŝvela. Se ne troviĝus tiu germana familio en najbareco, la maro estus sekiĝinta antaŭ ol Georgo estus pufigin-ta la boaton. La bonkora germana turisto kunprenis etan ŝtal-botelon, premis sur valvon — kaj la boato ekŝvelis de la aerpremo.
+Georgo jam dum tuta jarcento traktis pumpilon, sed la boato restis neŝvela. Se ne troviĝus tiu germana familio en najbareco, la maro estus sekiĝinta antaŭ ol Georgo estus pufigin-ta la boaton. La bonkora germana turisto kunprenis etan ŝtal-botelon, premis sur valvon — kaj la boato ekŝvelis de la aerpremo.
 
 ”Gut so?” (ĉu bone tiel?)
 
@@ -549,9 +463,6 @@ eterna ineco.
 ”Kiel maristoj en tiu ĉi kvieta vetero ni ne havas motivon panikiĝi. Sed kiel filozofoj ni iusence devas tremi pro la angoro.”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Ne timigu nin, sinjoro profesoro! Jam sen tio la boato
 
 estas sufiĉe nestabila …” petis Tanja.
@@ -570,15 +481,11 @@ estas sufiĉe nestabila …” petis Tanja.
 
 ”Mi devas fidi je miaj sensoj; mi devas kredi, ke la mondo ĉirkaŭ mi vere ekzistas kaj obeas certajn leĝojn.”
 
-”Se mi bone memoras la lecionojn en la lernejo, oni sen-
-
-sojn ne fidas, sed science pruvas ilian kongruon kun realo.
+”Se mi bone memoras la lecionojn en la lernejo, oni sensojn ne fidas, sed science pruvas ilian kongruon kun realo.
 
 Tiu fidado memorigas min tro al sakristiaj aferoj …” preskaŭ koleriĝis Adela. Georgo alverŝis benzinon:
 
-”Kaj tiu obeado al leĝoj rekte malbonodoras je taberna-
-
-klo …”
+”Kaj tiu obeado al leĝoj rekte malbonodoras je tabernaklo …”
 
 ”Eble, karaj amikoj,” trankvile rebatis la pilkon la profesoro, ”ni finfine agnoskos, ke ĉio, kio ekzistas, inkluzive nin, venis el ia kosma tabernaklo … Sed ni lasu tion ĉimomente.
 
@@ -593,18 +500,13 @@ Adela, ĉu vi volas diri, kiamaniere ni tute povas scii pri la ekzisto de la eks
 ”Sed inter la supozata objekto kaj nia vidpercepto troviĝas la okuloj, ĉu ne?”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Ah jes, la bildo verdire falas tra la lenso sur la retinon.”
 
 ”Konklude ni ne vidas senpere la objekton, sed la retinon, sur kiu formiĝas certa bildo, ĉu?”
 
 ”Verdire ni eĉ la retinon ne vidas rekte, ja ĝi sendas la bildon tra vidnervoj, iel same kiel la kabla televidstacio, en nian cerbon.”
 
-”Do ni verdire vidas nur tiun cerboparton, sur kiu ’pen-
-
-triĝas’ la bildo, transportita pere de la vidnervaj ĉeloj, ĉu?”
+”Do ni verdire vidas nur tiun cerboparton, sur kiu ’pentriĝas’ la bildo, transportita pere de la vidnervaj ĉeloj, ĉu?”
 
 ”Jes, la lasta bildo, kiun ni vere rekte vidas, estas tiu, kiu estiĝas en nia cerbo.”
 
@@ -619,9 +521,6 @@ Kie estas la garantio, ke la tuta perceptado de la mondo ne estas nur iu hipnota
 ”Ja ni povas eksperimenti. Ni povas praktiki sciencojn …”
 
 ”Sed tio same povus esti nur parto de nia sonĝfilmo.”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Do ne ekzistas solvo — ni povas fermi nian laborejon!”
@@ -640,9 +539,7 @@ En la kapo de Duŝan ekfulmis:
 
 ”uste tiel. Ke tiaj sonĝoj, kiajn ni ĉiuj sonĝas, povas esti produktataj nur de la inteligento, kiu senkompare superas nin kaj tiujn ĉi sonĝojn, jen la unua nepreco, kiun devas agnoski la racio por ne devi fermi sian laborejon, kiel postulis Georgo. Tiel ni atingis la frazon, kiun formulis Kartezio: Co-gito, ergo sum — mi pensas, do mi estas. El nia vidpunkto: Mi sonĝas, do mi estas. Sed se mi estas, se la sonĝoj estas, sekve ankaŭ tiu estas, kiu sendas al ni niajn supozitajn sonĝojn.
 
-Sed se tiu produktisto ekzistas, mi ne bezonas plu teorion pri la sonĝoj, ja al tiu estaĵo mi povas fidi, ke ĝi min ne mistifikas 23
-
-FILOZOFII SUBTENDE
+Sed se tiu produktisto ekzistas, mi ne bezonas plu teorion pri la sonĝoj, ja al tiu estaĵo mi povas fidi, ke ĝi min ne mistifikas
 
 
 per fabeloj, sed ke ĝi min starigas sur la firman terenon de realo. Realo, kiu ne kunfalas, en kiu konserviĝas la rilato inter la pezo de la akvo kaj pezo de la boato, kion ni povas ut-iligi por navigado kaj pro kio ni ne bezonas timi dronon.”
@@ -665,12 +562,7 @@ En Adela anoncis sin la strigo el la gimnazia laboratorio, kie diversaj sciencaj
 
 ”Sekve jam bebo estas sciencisto, ja ankaŭ ĝi akiras scion,”
 
-refutis la aserton de Georgo la profesoro. ”Sed la bebo kompi-24
-
-FILOZOFII SUBTENDE
-
-
-las nur la sciojn pri la faktoj. Pri io. Tiuspecan ekkonon oni nomas la antaŭscienca. La scienca ekkono estas nur tiu, kiu estas sistema kaj tuteca. La sistemeco signifas klasi la trak-tatan ekkonobjekton en ĝustan fakon inter la aliaj, ĝin difini en rilato kun aliaj. La tuteco signifas, ke oni ne klarigas ĝin nur en ĝia momenta stato, sed ankaŭ per ĝia origino, ĝiaj historio kaj perspektivo. Oni devas ekkoni la historion de la traktata objekto. Sed ĉio ĉi ne baziĝas sur puraj fidindaj informoj — enmiksiĝas multaj senbazaj opinioj kaj ekkonaj eraroj. La vorto ’scienco’ tiel ne garantias jam aŭtomate la ĝustan prijuĝon. i signifas nur regulitan klopodon de homa racio ekkoni la sisteman kaj tutecan veron pri certa objekto respektive fenomeno. La nocio ’scienco’ ne rajtas utili kiel timi-gilo kontraŭ ne sufiĉe instruitaj homoj por devigi ilin akcepti iajn doktrinojn kaj hipotezojn. Tre grava afero en ĉiu scienco estas, ekkonscii pri ĝiaj limoj. Sed nun ek al la nocio ’pruvoj’.”
+refutis la aserton de Georgo la profesoro. ”Sed la bebo kompilas nur la sciojn pri la faktoj. Pri io. Tiuspecan ekkonon oni nomas la antaŭscienca. La scienca ekkono estas nur tiu, kiu estas sistema kaj tuteca. La sistemeco signifas klasi la trak-tatan ekkonobjekton en ĝustan fakon inter la aliaj, ĝin difini en rilato kun aliaj. La tuteco signifas, ke oni ne klarigas ĝin nur en ĝia momenta stato, sed ankaŭ per ĝia origino, ĝiaj historio kaj perspektivo. Oni devas ekkoni la historion de la traktata objekto. Sed ĉio ĉi ne baziĝas sur puraj fidindaj informoj — enmiksiĝas multaj senbazaj opinioj kaj ekkonaj eraroj. La vorto ’scienco’ tiel ne garantias jam aŭtomate la ĝustan prijuĝon. i signifas nur regulitan klopodon de homa racio ekkoni la sisteman kaj tutecan veron pri certa objekto respektive fenomeno. La nocio ’scienco’ ne rajtas utili kiel timi-gilo kontraŭ ne sufiĉe instruitaj homoj por devigi ilin akcepti iajn doktrinojn kaj hipotezojn. Tre grava afero en ĉiu scienco estas, ekkonscii pri ĝiaj limoj. Sed nun ek al la nocio ’pruvoj’.”
 
 ”Supoze vi ne diros, ke eĉ la pruvoj estas io mola kaj tru-hava, ne tro solida, ĉu?” malpaciencis Adela.
 
@@ -688,19 +580,12 @@ ne dronas, ĉu?”
 
 ”Ankaŭ tion ni simple vidas antaŭ ni,” grumblis Duŝan.
 
-”Kaj, ni prenu, ke unu plus unu faras du, kiamaniere pru-
-
-vi?”
-
-
-FILOZOFII SUBTENDE
+”Kaj, ni prenu, ke unu plus unu faras du, kiamaniere pruvi?”
 
 
 ”Same temas pri evidento …”
 
-”Kiel vi mem agnoskis, ekzistas en nia mondo kelkaj ekko-
-
-noj, kiujn ni ne bezonas pruvi, ĉar ilia vero vidiĝas el si mem, estas evidenta, kiel vi bone diris. Tiu tipo de baza ekkono no-miĝas evidenteco. ĉar la evidenteco sufiĉas por si mem, ĝi estas la baza kaj la plej certa formo de ekkono. Sed, aliflanke, la evidenteco validas nur por kelkaj plej simplaj veroj.
+”Kiel vi mem agnoskis, ekzistas en nia mondo kelkaj ekkonoj, kiujn ni ne bezonas pruvi, ĉar ilia vero vidiĝas el si mem, estas evidenta, kiel vi bone diris. Tiu tipo de baza ekkono no-miĝas evidenteco. ĉar la evidenteco sufiĉas por si mem, ĝi estas la baza kaj la plej certa formo de ekkono. Sed, aliflanke, la evidenteco validas nur por kelkaj plej simplaj veroj.
 
 ĉiujn aliajn, pli kompleksajn verojn ni devas fari evidentaj, se ni volas ilin per certeco ekkoni.”
 
@@ -716,14 +601,9 @@ La suno jam preskaŭ atingis zeniton de sia grimpado, la
 
 boato denove eksidis sur la sablon antaŭ ambaŭ tendoj. Sinjorino Majda kaj Tanja transvestiĝis por aĉetekskurso. Por prizorgi tagmanĝajn nutraĵojn. Kion?
 
-”Medicinon por la konstruintoj de piramidoj; tiun obsti-
-
-nan sarkadon kaj sterkadon, akvumadon kaj kolaboraciadon
+”Medicinon por la konstruintoj de piramidoj; tiun obstinan sarkadon kaj sterkadon, akvumadon kaj kolaboraciadon
 
 kun la suno …”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Cepon!” divenis sinjorino Majda. Do, la cepan supon. Pre-feratan manĝaĵon de profesoro Andreo.
@@ -761,36 +641,23 @@ III.
 Naĝado ne povos okazi. Tion unue mezuris la nazo de
 
 
-FILOZOFII SUBTENDE
+Adela, ŝoviĝinta tra la entranĉo de la tendotolo. La mukeca okulo de Georgo, registrinta tenebrajn bildojn de la ĉie-lo, povis nur konsenti.
 
-
-Adela, ŝoviĝinta tra la entranĉo de la tendotolo. La mu-
-
-keca okulo de Georgo, registrinta tenebrajn bildojn de la ĉie-lo, povis nur konsenti.
-
-Profesoro Andreo, kvazaŭ li jam antaŭe estus ĉion prime-
-
-ditinta, ektamburis fingre sur la aŭtomobila lado kaj decidis:
+Profesoro Andreo, kvazaŭ li jam antaŭe estus ĉion primeditinta, ektamburis fingre sur la aŭtomobila lado kaj decidis:
 
 ”Hodiaŭ ni veturos al la rubejo.” Sinjorino Majda lasis la flufadenon de freŝe kuirita kafo en ĝia vertikalo, konvinkita, ke temas pri malforta vira momento, tia en kiaj tiu probleme-ca genro sin helpas per senenhava spritumado. Rubejo jes, rubejo ne, la matenmanĝon oni devas konsumi serioze, ja niaj komplikaj motoroj ekakcelas per lakto kaj terpomo — kaj tiun ĉi fakton oni ne neglektu!
 
 Kiam ekbrilis la kruĉa fundo, la profesoro tamen riskis denove mencii sian frumatenan dekreton pri rubejo.
 
-”Konsidere la aron da municipaj rubsiteloj ĉie en tendu-
-
-mejo mi ne vidas kialon veturi al la rubejo.” Sinjorino Majda scias la aŭtoritaton de sia edzo ankaŭ ignori.
+”Konsidere la aron da municipaj rubsiteloj ĉie en tendumejo mi ne vidas kialon veturi al la rubejo.” Sinjorino Majda scias la aŭtoritaton de sia edzo ankaŭ ignori.
 
 ”Finfine por mi tia ekskurso eĉ estus interesa,” intervenis Duŝan, ”ja foje oni tie trovas ion, kion oni ne povas aĉeti eĉ en plej bona grandvendejo!”
 
 ”Tion, kion ni iras serĉi al la rubejo, oni ne povas akiri eĉ en la londona borso!” provokis la profesoro.
 
-ĉiuj klare vidis: ju pli ili demandos, des malpli ili aŭdos respondon. Helpos nur, se ili saltos en la internon de la aŭ-
+ĉiuj klare vidis: ju pli ili demandos, des malpli ili aŭdos respondon. Helpos nur, se ili saltos en la internon de la aŭtomobilo kaj paciencos ĝis tiu rubeca institucio …
 
-tomobilo kaj paciencos ĝis tiu rubeca institucio …
-
-Jen do alispeca maro: koralaj krestoj de forĵetitaj forneloj kaj fridujoj; algoj de foruzitaj ĉifonoj; fiŝsvarmoj de sennom-braj objektoj, apotekaĵoj, metalpecoj; planktono de ĉiaspeca malpuraĵo kaj etaj aĵoj sen nomo, kies uzosencon oni ne povas plu diveni … Kaj sur la ondoj de forĵetaĵoj la glacirompa 28
-
-FILOZOFII SUBTENDE
+Jen do alispeca maro: koralaj krestoj de forĵetitaj forneloj kaj fridujoj; algoj de foruzitaj ĉifonoj; fiŝsvarmoj de sennom-braj objektoj, apotekaĵoj, metalpecoj; planktono de ĉiaspeca malpuraĵo kaj etaj aĵoj sen nomo, kies uzosencon oni ne povas plu diveni … Kaj sur la ondoj de forĵetaĵoj la glacirompa
 
 
 ŝipego — buldozo, kiu puŝas la malpuraĵon de la rando cent-ren.
@@ -801,9 +668,7 @@ Ili haltis kvazaŭ ili troviĝus en tombejo. Ankaŭ la grumble-gado de la buldoz
 
 Tanja staris kiel en preĝejo. Duŝan sinkis en siajn dubojn pri la senco de la kreskanta arbo. Adela kolere protestis:
 
-”Mi ne supozis, ke oni bezonas tiom longan ekskursdist-
-
-ancon por vidi tion ĉi!”
+”Mi ne supozis, ke oni bezonas tiom longan ekskursdistancon por vidi tion ĉi!”
 
 ”Multaj ĉirkaŭveturas la globon kaj ne rimarkas tian kavon kia tiu ĉi,” rebatis al ŝi profesoro Andreo.
 
@@ -817,11 +682,7 @@ dentemajlo de la tera surfaco estas fenomenoj, kiuj en la ce-tera kosmo ne ekzis
 
 aldonis Georgo.
 
-”uste pri tio temas. La naturo ne konas eĉ unu solan re-
-
-gioneton, kiu ne estus ĉu bela, ĉu majesta, ĉu mistera, terura aŭ angoriga. La naturo estas tre pitoreska — sed ĝi nenie estas sengusta, banala. i nenie estas rubejo. En arbaro ĉi-umomente formortas miloj da vivaj estaĵoj. Tamen ĉio efikas freŝe, pure, vivoplene. Neniu homa ordiga kaj puriga servo 29
-
-FILOZOFII SUBTENDE
+”uste pri tio temas. La naturo ne konas eĉ unu solan regioneton, kiu ne estus ĉu bela, ĉu majesta, ĉu mistera, terura aŭ angoriga. La naturo estas tre pitoreska — sed ĝi nenie estas sengusta, banala. i nenie estas rubejo. En arbaro ĉi-umomente formortas miloj da vivaj estaĵoj. Tamen ĉio efikas freŝe, pure, vivoplene. Neniu homa ordiga kaj puriga servo
 
 
 povas prizorgi la homajn loĝlokojn tiel, kiel estas de la naturo mem prizorgataj la arbaro, la herbejo, la rivero, la maro … La naturo en ĉiuj siaj statoj kaj formoj estas bela — sed kial la materio el tiu ĉi sama naturo, en tiu ĉi loko estas tiel neebla, tiel banalaspekta, tiel kaduka?”
@@ -848,21 +709,14 @@ Duŝan.
 
 ”Vi tion diris, Adela …”
 
-”Do, kion mi finfine diris, ke vi memorigas min pri la aŭ-
-
-toreco?”
+”Do, kion mi finfine diris, ke vi memorigas min pri la aŭtoreco?”
 
 ”Ke vi iam ne riproĉos al mi mistikemon …”
 
 ”Mi ne scias, ĉu tiu ĉi amaso de rubaĵoj povus iun ajn memorigi pri io tre mistika?”
 
 
-FILOZOFII SUBTENDE
-
-
-”Eĉ pri la fonto de la mistiko mem!” kompletigis sian ma-
-
-jeŭtikan vojon profesoro Andreo.
+”Eĉ pri la fonto de la mistiko mem!” kompletigis sian majeŭtikan vojon profesoro Andreo.
 
 Ili interŝanĝis rigardojn. Tanja diris:
 
@@ -872,30 +726,19 @@ Ili interŝanĝis rigardojn. Tanja diris:
 
 ”Abrakadabra …” provokis Georgo.
 
-”Eĉ la sorĉista bastono povas foje montri la Nordan Polu-
+”Eĉ la sorĉista bastono povas foje montri la Nordan Poluson. Sed ni lasu tion. Ni konstatis, ke la naturo estas vere majesta kaj bela ĉie, krom en kelkaj ekzemploj — kiam interve-nas la homa mano kaj la homa ilo. Sed: se la homo mem estus nura produkto de la sama naturo kaj nenio ekster tio, do an-kaŭ li ne povus damaĝi kaj detrui la belecon de ĝi, ja estus vere strange, se raciaj estaĵoj povus belecon damaĝi, sed sen-raciaj ne. Se la homo estus nur naturo en la naturo, do ĉiuj liaj agoj estus en plena kongruo kun sia natura medio kaj neniel povus la naturon damaĝi.”
 
-son. Sed ni lasu tion. Ni konstatis, ke la naturo estas vere majesta kaj bela ĉie, krom en kelkaj ekzemploj — kiam interve-nas la homa mano kaj la homa ilo. Sed: se la homo mem estus nura produkto de la sama naturo kaj nenio ekster tio, do an-kaŭ li ne povus damaĝi kaj detrui la belecon de ĝi, ja estus vere strange, se raciaj estaĵoj povus belecon damaĝi, sed sen-raciaj ne. Se la homo estus nur naturo en la naturo, do ĉiuj liaj agoj estus en plena kongruo kun sia natura medio kaj neniel povus la naturon damaĝi.”
-
-”ĉu oni do supozu, ke la malbelo havas supernaturan kar-
-
-akteron?” intervenis Adela.
+”ĉu oni do supozu, ke la malbelo havas supernaturan karakteron?” intervenis Adela.
 
 ”Supernaturan probable ne, ja la malbelo ne povas esti super la belo, la sengusto ne super la majesto. Sed ĝi certe estas io transnatura, ja ĝi ne povas veni el la naturo mem, se ĝi ekestis nur post homa interveno. La fenomenon de malbelo
 
-oni ne povas klarigi al si alimaniere ol tiel, ke en la homo troviĝas certa transnatura agregaĵo, kiu povas kaŭzi en la homo kaj en la naturo konfuzon. Sed ĉar la homo ne kunportas en la naturon nur rubejojn kaj aliajn naturkadukajn fenomenojn, sed ankaŭ sonetojn, artajn bildojn, baletscenaĵojn, muzikajn komponaĵojn, romanojn, poemojn, artajn filmojn kaj teatra-31
-
-FILOZOFII SUBTENDE
-
-
-ĵojn, do aferojn, kiuj en la naturo ne troviĝas kaj tamen estas belaj, kun la naturo analogie belaj, ni rajtas konkludi, ke am-baŭ polusaj kapabloj iel originas el la sama transnatura homa komponaĵo.”
+oni ne povas klarigi al si alimaniere ol tiel, ke en la homo troviĝas certa transnatura agregaĵo, kiu povas kaŭzi en la homo kaj en la naturo konfuzon. Sed ĉar la homo ne kunportas en la naturon nur rubejojn kaj aliajn naturkadukajn fenomenojn, sed ankaŭ sonetojn, artajn bildojn, baletscenaĵojn, muzikajn komponaĵojn, romanojn, poemojn, artajn filmojn kaj teatraĵojn, do aferojn, kiuj en la naturo ne troviĝas kaj tamen estas belaj, kun la naturo analogie belaj, ni rajtas konkludi, ke am-baŭ polusaj kapabloj iel originas el la sama transnatura homa komponaĵo.”
 
 ”Ke la trezoraĵoj de la nacia galerio kaj tiu ĉi infera scenejo originas el la sama skatoleto …” angoriĝis Duŝan.
 
 ”Nu jes, ja en la naturo oni ne trovas artproduktojn de
 
-Rembrandt kaj ankaŭ ne la forĵetitajn konservujojn, plasta-
-
-ĵojn kaj oleumitajn ĉifonojn. La problemo troviĝas ie aliloke.
+Rembrandt kaj ankaŭ ne la forĵetitajn konservujojn, plastaĵojn kaj oleumitajn ĉifonojn. La problemo troviĝas ie aliloke.
 
 La naturo estas bela, sen ke ĝi ’lernu la belecon’ — ĝi simple ne povas esti malbela, dum la homo ekde tia aranĝo kiel tiu ĉi — ĝis la pintoj de la arthistorio, progresas nur helpe de eksterordinara penado kaj lernado. Se la homo estus centpro-cente nur natura estaĵo, li ne bezonus lernadon. Evidente estas, ke almenaŭ en kelkaj punktoj li falas en tiun ĉi mondon senscia kaj samtempe scivola. ĉu ne estas paradokse: en sia korpo la homo ’scias’ kontraŭ ĉiu mikroskopa atakanto tuj produkti adekvatajn kontraŭkorpetojn; lia korpo povas prizorgi siajn vundojn mem — sed li pliparte ne scias aranĝi sian korton, siajn bazajn cirkonstancojn … Tiun ĉi strangan, misteran komponaĵon oni de ĉiam nomas — la animo. La homa
 
@@ -906,9 +749,6 @@ naŭa’, reĝisoras la filmon ’Krozŝipo Potemkin’ …”
 ”Bone, ĉio tre bele,” demandis Adela, ”de kie do en la naturo tia beleco kaj majesta konsekvenco? Kial la racia homo proporcie al kvadrata centimetro de sia vera arto samtempe detruas milojn da kvadratkilometroj de sia fekunda tero —
 
 
-FILOZOFII SUBTENDE
-
-
 dum la senracia naturo en ĉiu kazo ’scias’ resti bela kaj fekunda?”
 
 ”uste pri tio ĉi temas,” respondis profesoro Andreo, ”por respondi al tiu ĉi demando ni pilgrimis al tiu ĉi aĉa dezerto.
@@ -917,30 +757,21 @@ Se la naturo sian belecon vere povus produkti kaj konservi mem, ankaŭ la malmat
 
 detrui. uste tiu ĉi rubejo pruvas, ke oni povas elĵeti la materion el ĝia natura ordo — kaj tio estas aspekto de la beleco
 
-— en malordon, kaoson, malbelon. Sekve proponiĝas supo-
-
-zo, ke atomojn de nia kosmo ŝovelas du ŝoveliloj. Unu, kiu
+— en malordon, kaoson, malbelon. Sekve proponiĝas supozo, ke atomojn de nia kosmo ŝovelas du ŝoveliloj. Unu, kiu
 
 ĝuste ĵetas — kaj dua, tiu de la homo, kiu ĵetas foje ĝuste, foje malĝuste. Se la unua ŝovelilo ĉesus funkcii, tiu neerarebla, la tuta kosmo fariĝus rubejo. Abomena kadukaĵo de senordaj
 
 substancoj.”
 
-”Sed kiu laboras per tiu unua senerara ŝovelilo?” deman-
-
-dis Georgo.
+”Sed kiu laboras per tiu unua senerara ŝovelilo?” demandis Georgo.
 
 ”Temas pri tiu, kiun ni venis serĉi en tiu ĉi rubejo. La patro de ĉiuj aferoj kaj estaĵoj. La patro de nia sesopo kaj de la tuta homaro. Kaj tiu ĉi abomena scenaĵo lin postulas per sa-ma klareco, kiel lin postulas fascina lazuro de Adriatiko, majesto de Alpoj, melankolio de la rivero Mura …”
 
 La radoj de ilia aŭtomobilo muelis kaj flankenĵetis la karst-terenajn ŝtonetojn, malvarmeta vento produktis freŝon inter iliaj kapoj. Ili reveturis al sia tendaro, al la bordo. Post certa tempo Adela, el la brusto, plena de la freŝa aero, diris en la direkto de la stiranta profesoro:
 
-”Bonvolu tamen ne atendi, ke ni dimanĉe jam ĉiuj frekven-
-
-tos la sanktan meson kaj partoprenos eŭkaristion — nur pro tiuj ĉi rubaĵoj!”
+”Bonvolu tamen ne atendi, ke ni dimanĉe jam ĉiuj frekventos la sanktan meson kaj partoprenos eŭkaristion — nur pro tiuj ĉi rubaĵoj!”
 
 Kaj Georgo provis ĵeti timigbombeton:
-
-
-FILOZOFII SUBTENDE
 
 
 ”Ankaŭ mi ne intencas morgaŭ fariĝi mesoservisto, ĉar iu
@@ -949,9 +780,7 @@ forĵetis uzitajn aŭtogumojn en tiun ĉi kavon …”
 
 La profesoro silentis kaj kviete manipulis la stirilon. Sinjorino Majda kaŝridetis kun iome da petola apudpenso — ne
 
-damaĝas, se junaj uloj iomete lin provokas, tio estas bona ekzameno por vera filozofo … Sed al Duŝan tio ĉi ne tro pla-
-
-ĉis:
+damaĝas, se junaj uloj iomete lin provokas, tio estas bona ekzameno por vera filozofo … Sed al Duŝan tio ĉi ne tro plaĉis:
 
 ”Neniu vin provas perforte tiri en preĝejon, vi senbaze
 
@@ -969,14 +798,9 @@ Profesoro Andreo devis interveni:
 
 ”Sed kian valoron do la logiko havas, se ĝi ne povas devi-gi la racion por akcepti la logike konkluditan veron?” sen-iluziiĝis Duŝan.
 
-”Eĉ la matematikaj aksiomoj neniun povas devigi hones-
-
-te kalkuli. Pensu pri kelkaj kelneroj …”
+”Eĉ la matematikaj aksiomoj neniun povas devigi honeste kalkuli. Pensu pri kelkaj kelneroj …”
 
 ”Sed ili havas apartan intereson ne obei la aksiomojn. Ili bone enspezas pro siaj eraroj.”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Nu, proksimume la samo okazas, kiam temas pri logiko.
@@ -996,9 +820,6 @@ aldonis sian penson Tanja.
 La brulfumo de ilia aŭto jam ĉirkaŭlekis la najlojn de ilia tendo.
 
 
-FILOZOFII SUBTENDE
-
-
 IV.
 
 ***Kiel neniu martelo povas detrui***
@@ -1009,11 +830,7 @@ IV.
 
 ***hundoj kun teologia instinkto …***
 
-Neniu havis adekvatan okupon. Ili vagaĉis ĉirkaŭ la ten-
-
-doj kaj la buseto kiel etŝtelistoj; sur la ŝtono, apogita kontraŭ arbo, sidis profesoro Andreo. En lia mano kuŝis mal-fermita libro … el la jaro 1946. ĉu en la plej streĉa jaro de la restaŭrigo de la patrujo, kiam centmetraj vicoj de maljunaj kaj junaj homoj stafetmaniere ĵetis brikojn el ruinoj, kiam la 36
-
-FILOZOFII SUBTENDE
+Neniu havis adekvatan okupon. Ili vagaĉis ĉirkaŭ la tendoj kaj la buseto kiel etŝtelistoj; sur la ŝtono, apogita kontraŭ arbo, sidis profesoro Andreo. En lia mano kuŝis mal-fermita libro … el la jaro 1946. ĉu en la plej streĉa jaro de la restaŭrigo de la patrujo, kiam centmetraj vicoj de maljunaj kaj junaj homoj stafetmaniere ĵetis brikojn el ruinoj, kiam la
 
 
 ĉarumo estis la plej populara vehiklo; ĉu en tiu tempo vere povis aperi libro pli interesa ol ”Manlibro por lubriki veturilojn kaj ĉarumojn” aŭ ”Problemoj de la socialisma konstruo en vilaĝo” … Kaj tamen estus interese legi ion instruan el la papero, produktita kaj surpresita en la jaro de ĝenerala manko de ĉio.
@@ -1040,12 +857,7 @@ brigadtenduma laboro diskutis pri tiaj aferoj, tio ne ŝajnas tre verŝajne!” 
 
 ”Ja tion scias ĉiu lernanto!” ne cedis Adela.
 
-”Sed mi diras al vi, ke tion ne scias efektive eĉ viaj instru-37
-
-FILOZOFII SUBTENDE
-
-
-istoj. Kunprenu al mi unu el viaj instruistoj, kiuj tiel plenbuŝe fanfaronas pri la sciencoj; ni igu ilin elkalkuli la estontan luneklipson. Via instruisto apenaŭ distingas novlunon de la plen-luno!”
+”Sed mi diras al vi, ke tion ne scias efektive eĉ viaj instruistoj. Kunprenu al mi unu el viaj instruistoj, kiuj tiel plenbuŝe fanfaronas pri la sciencoj; ni igu ilin elkalkuli la estontan luneklipson. Via instruisto apenaŭ distingas novlunon de la plen-luno!”
 
 ”Jes, oni ne povas tiel simple elkalkuli, tamen laŭprincipe ili la aferon bone komprenas.”
 
@@ -1063,20 +875,13 @@ La profesoro ridetis.
 
 ”Se mi diris, ke ni ne transportos librojn, mi pensis pri du aferoj: unue, ke ni ne kunprenos tutan monaęjan bibliotekon; kaj due, ke ni lernos filozofion antaŭ ĉio el la vivo mem, ja ĝuste tiel devis procedi ankaŭ la unuaj grekaj filozofoj, kiuj ne povis akiri librojn. Tamen ne estus saĝe tute eviti librojn.
 
-Ili estas konservitaj interparoloj kun homoj, kiuj multon sper-38
-
-FILOZOFII SUBTENDE
-
-
-tis kaj pripensis. Tial mi tenas en mia vojaĝpakaĵo apud aŭ-
+Ili estas konservitaj interparoloj kun homoj, kiuj multon spertis kaj pripensis. Tial mi tenas en mia vojaĝpakaĵo apud aŭ-
 
 tomapo kaj manlibro por la nepra helpo kvin, ses aliajn librojn, sen kiuj la homaro estus sovaĝa roto.”
 
 ”Bonvolu do diri, kiuj estas tiuj kvin, ses libroj, se mi rajtas scivoli,” diris Tanja.
 
-”Oni povus ŝanĝi unu aŭ du titolojn, sed ĉefe mi kunpre-
-
-nas apud la Biblio ankaŭ la penskolekton de Antaŭsokratu-
+”Oni povus ŝanĝi unu aŭ du titolojn, sed ĉefe mi kunprenas apud la Biblio ankaŭ la penskolekton de Antaŭsokratu-
 
 loj — kaj tiun ĉi libron mi ĵus tenas en miaj manoj — la kolekton de pensoj de la imperiestro Marko Aŭrelio, sentencojn de Konfucio, Bagavadgitaon el hinduisma tradicio, Daode
 
@@ -1094,9 +899,7 @@ scias, kiel la materio estas konstruita,” diris Adela.
 
 ”Tiu via ’precize’ estas tre maldika afero!” refutis ŝin la profesoro kaj kontinuis: ”Mi vidas, ke ni devas tion pli grunde priparoli. Rigardu, per martelo ni povus materian pecon principe rompi ĝis la grandeco de molekulo. Sed sur molekulon ni povus bati laŭplaĉe, nur pro tio ĝi ne disiĝus. Ni abstrak-tu ĉi tie la temperaturon, kiu tiamaniere ekestus kaj efikus sur la molekulon! Do, kiamaniere ni povus rompi la molekulon?
 
-Per varmo, per certa acido, per elektro. Unuvorte: per kemia procezo. Tiel ni atingas la grandecon de atomo, kiun oni dum 39
-
-FILOZOFII SUBTENDE
+Per varmo, per certa acido, per elektro. Unuvorte: per kemia procezo. Tiel ni atingas la grandecon de atomo, kiun oni dum
 
 
 longa tempo tenis nedividebla (kion la greka vorto a-tomos signifas), ĉar oni ĝin per kemiaj procedoj ne povis plu dividi, kaj eĉ speciale ne per simpla martelo … Sed ek de la komenco de nia jarcento ni kapablas disrompi ankaŭ atomojn. Tion ni faras tiel, ke ni pafas al ili per partikloj, kiuj estas pli malgrandaj ol atomoj — ekzemple per neŭtronoj. ĉar ni havas
@@ -1111,9 +914,7 @@ Neniam oni povos diveni, kia ĝi estas kaj el kio ĝi konsistas.”
 
 ”Kial ne, se ĝi ekzistas?” diris Adela.
 
-”Rigardu, kiamaniere oni ekkonas la konsiston de la hor-
-
-loĝo?”
+”Rigardu, kiamaniere oni ekkonas la konsiston de la horloĝo?”
 
 ”Per diserigo de ĝi,” respondis Duŝan.
 
@@ -1124,14 +925,9 @@ loĝo?”
 ”Kiamaniere oni ekkonas, el kio konsistas la fero, kiun ni konstatis laŭ la kemia analizo?”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Oni disrompas la atomon de la fero,” klarigas Adela.
 
-”Do, la afero estas klara: ajnan substancon oni povas ek-
-
-koni nur, se oni ĝin disrompas, analizas je pli malgrandaj eroj.
+”Do, la afero estas klara: ajnan substancon oni povas ekkoni nur, se oni ĝin disrompas, analizas je pli malgrandaj eroj.
 
 Sed kiam ni atingus la lastan ŝtupon, la ne plu disrompeblan substancon, oni ĝin do ne povus plu dispartikligi. Ne ekzistas plu ’martelo’ por ĝin disrompi. Antaŭ niaj okuloj ekbrilus la partiklo de plene nealpaŝebla mistero. Nur ĉi tie ni vidas, ke dum la tuta historio de natursciencoj, ni efektive ne okupiĝis pri la substanco mem, sed ĉiam nur pri la rilatoj inter
 
@@ -1141,9 +937,7 @@ Sed kiam ni atingus la lastan ŝtupon, la ne plu disrompeblan substancon, oni ĝ
 
 ”Nu bone, ni rigardu la aferon de alia flanko. Se ni rigardas la radon kun la spokoj, kiu rapide turniĝas, ni havas impreson, kvazaŭ la rado estus plenkorpa disko. Ni ne povas enŝovi bastonon, ĉar la spokoj tiel rapide moviĝas, ke tio efikas, kvazaŭ temus pri plena disko. Sed tiuj spokoj mem konsistas el molekuloj kaj molekuloj el atomoj, inter kiuj ĝenerale troviĝas malplena spaco. Sed ankaŭ molekul- kaj atomnive-le tiuj malplenaj spacoj por ni prezentiĝas kiel firma substanco pro la rapida moviĝo de la partikloj. Ju pli profunda la nivelo, kiun ni descendas, des pli grandaj estas la malplenaj spacoj. Tiel ni vidas, ke efektive ne troviĝas antaŭ ni la plena rado, sed rapide moviĝantaj spokoj; efektive ne bastonoj, sed maldenso da molekuloj; eĉ ne tio, sed pli granda maldenso de atomoj; ke finfine nenie plu vidiĝas atomoj, sed senkompare kaj terure maldensaj partikloj; kvazaŭ finfine ĉio estus nur plu fizik-matematika trompo — kvazaŭ ĉio estus nur la impreso post la enorme rapida turniĝo de — nenio … Aŭ, ni
 
-diru, de tiu mistera partiklo, kiun ni per neniu instrumento povos registri, ja en ĝi ne estas plu io pli malgranda, kio en ĝi 41
-
-FILOZOFII SUBTENDE
+diru, de tiu mistera partiklo, kiun ni per neniu instrumento povos registri, ja en ĝi ne estas plu io pli malgranda, kio en ĝi
 
 
 turniĝus kaj tiel ĝi ankaŭ ne povus impresigi kiel firma substanco.”
@@ -1156,9 +950,7 @@ tuŝis, ĉu?” ekmiris Tanja.
 
 Sub la tendo plaĉe leviĝis fumo. En la poto gluglis akvo por teo. Sinjorino Majda dismetis tasojn kaj ĵetis en la poton kelkajn kuleretojn da ŝrilanka plukaĵo.
 
-”ĉu vi scias, Andreo, ke hodiaŭ iu enrompis en la loĝve-
-
-turilon de iu turisto kaj preskaŭ tute prirabis ĝin?” ŝi turnis sin de la fajro al li.
+”ĉu vi scias, Andreo, ke hodiaŭ iu enrompis en la loĝveturilon de iu turisto kaj preskaŭ tute prirabis ĝin?” ŝi turnis sin de la fajro al li.
 
 ”Ah, tio venas kvazaŭ mendita!” ekĝojis la profesoro.
 
@@ -1172,24 +964,15 @@ io, kio ligiĝas kun nia hieraŭa diskuto en la rubejo. Mi supozas, ke tiuj enro
 
 Neniu vere komprenis, pri kio temas; ĉu la profesoro kaj lia edzino ludas misteran teatraĵeton? Andreo kapablis pri ĉio; kaj sinjorino Majda kapablis eĉ iom pli …
 
-Dume jam alhurlis la polica veturilo — el ĝi elsaltis du poli-42
+Dume jam alhurlis la polica veturilo — el ĝi elsaltis du policistoj kun hundo. La proprietulo de la loĝveturilo, en kiun estis enrompite, tuj alpaŝis la policistojn kaj komencis al ili ion rakonti. Unu el ili notis en sian kajeron, la alia kondukis la hundon al la veturilo, ke ĝi deekstere kaj deinterne ĝin pri-enketu per sia nazo. La policisto, kiu antaŭe notis, nun per iaspeca peniko penikumis la kln kaj la pordon kaj poste metis sur tiujn lokojn iajn foliojn, ilin denove deprenis kaj deponis en sian aktujon.
 
-FILOZOFII SUBTENDE
-
-
-cistoj kun hundo. La proprietulo de la loĝveturilo, en kiun estis enrompite, tuj alpaŝis la policistojn kaj komencis al ili ion rakonti. Unu el ili notis en sian kajeron, la alia kondukis la hundon al la veturilo, ke ĝi deekstere kaj deinterne ĝin pri-enketu per sia nazo. La policisto, kiu antaŭe notis, nun per iaspeca peniko penikumis la kln kaj la pordon kaj poste metis sur tiujn lokojn iajn foliojn, ilin denove deprenis kaj deponis en sian aktujon.
-
-La uniformitaj viroj kun la hundo poste pridemandis naj-
-
-barajn turistojn, tiu kun la kajero denove notis. Finfine ili igis la hundon iri laŭ sia plaĉo kaj ili ĝin sekvis. Adela, Georgo, Tanja kaj Duŝan jam intencis postsekvi ilin, ja junaj homoj estas pli turmentitaj de la kuriozemo ol pli aĝaj, sed Andreo ilin decide haltigis:
+La uniformitaj viroj kun la hundo poste pridemandis najbarajn turistojn, tiu kun la kajero denove notis. Finfine ili igis la hundon iri laŭ sia plaĉo kaj ili ĝin sekvis. Adela, Georgo, Tanja kaj Duŝan jam intencis postsekvi ilin, ja junaj homoj estas pli turmentitaj de la kuriozemo ol pli aĝaj, sed Andreo ilin decide haltigis:
 
 ”La unua instruo, kiun la malfeliĉaj enrompintoj povas al ni doni, estas, ke nia okupo ne estas, fariĝi deĵoraj atestantoj de ĉio, kio ĉirkaŭ ni okazas. Neniu el ni povas flari spurojn aŭ legi la deprenitajn fingrospurojn, do ni bele atendu ĉi tie!”
 
 La bravaj tendumantoj ne trovis tion tre bona, tiel rezigni pri sia kuriozo, sed neniu kuraĝis kontesti la profesoron. La sinjorino enverŝis teon, milda eskorto da mevoj aranĝis sian flugdemonstracion, la maro petole plaŭdis, kvazaŭ ĝi volus ellitigi la firman teron.
 
-La hundo kondukis la policistojn al iu luksa loĝveturilo, ligita al same luksa aŭto. La hundo saltis rekte en la veturilon kaj komencis boji. Tra la pordo sin ĵetis du fraŭloj, unu laŭŝaj-ne deksesjara, la dua eble dekokjara. Tuj post ili saltis la hundo kaj kaptis la pli aĝan je kubuto, tiel ke li ne povis plu sin movi. Tuj aperis ankaŭ la gepatroj de la du fraŭloj. Ili per 43
-
-FILOZOFII SUBTENDE
+La hundo kondukis la policistojn al iu luksa loĝveturilo, ligita al same luksa aŭto. La hundo saltis rekte en la veturilon kaj komencis boji. Tra la pordo sin ĵetis du fraŭloj, unu laŭŝaj-ne deksesjara, la dua eble dekokjara. Tuj post ili saltis la hundo kaj kaptis la pli aĝan je kubuto, tiel ke li ne povis plu sin movi. Tuj aperis ankaŭ la gepatroj de la du fraŭloj. Ili per
 
 
 grandaj gestoj provis ion klarigi al la policistoj, de malproksime ĉio aspektis kiel vera burlesko.
@@ -1198,9 +981,7 @@ La fraŭloj devis tuj surloke meti siajn montrofingrojn kaj dikfingrojn sur cert
 
 ”La blua aŭto forveturis!” diris sinjorino Majda kaj viŝis siajn manojn per sia antaŭtuko.
 
-”Do, venis tempo, ke ni faru niajn konkludojn …” ekride-
-
-tis Andreo.
+”Do, venis tempo, ke ni faru niajn konkludojn …” ekridetis Andreo.
 
 ”Oni opinius, ke filozofoj pri tiaj temoj ne zorgas tro. Pri kriminologio ekzemple …” ironiis Majda.
 
@@ -1214,13 +995,9 @@ La profesoro dum certa tempo nur silente ridetis, fine li provis malligi la nodo
 
 — kaj kelkaj duone postrestintaj fingrostampaĵoj, kiujn la instruita okulo tamen povis legi.”
 
-”Kian rilaton tio ĉi havas kun nia problemo?” diris Geor-
+”Kian rilaton tio ĉi havas kun nia problemo?” diris Georgo.
 
-go.
-
-”Antaŭ ĉio, ke ni en nia serĉado je la vero ne dependas de kelkaj duone perditaj aromhaladzoj kiel tiu hundo; ke ni ne vivas en la mondo de kelkaj duonforviŝitaj fingropresaĵoj. Ni ne bezonas gliti per nia nazo surterene — kaj ni ne bezonas 44
-
-FILOZOFII SUBTENDE
+”Antaŭ ĉio, ke ni en nia serĉado je la vero ne dependas de kelkaj duone perditaj aromhaladzoj kiel tiu hundo; ke ni ne vivas en la mondo de kelkaj duonforviŝitaj fingropresaĵoj. Ni ne bezonas gliti per nia nazo surterene — kaj ni ne bezonas
 
 
 penikumi la universon por registri ian spuron. Kaj nun bonvolu konsideri, kiom pli saĝa estas la policisto kompare kun kelkaj filozofoj, se li surbaze de tiom minimumaj spuroj povas trovi deliktulon — dum ni, kiuj per apertaj okuloj rigardas tiun ’corpus delicti’ (= objekton, kiu pruvas delikton) en sia tuta majesto, multfoje ne kapablas trovi la ’deliktulon’, kiu produktis tiun senkompare grandskalan realaĵon. Se la policistoj kaj iliaj hundoj tiel kondutus kaj procedus, kiel kelkaj filozofoj, la ŝtelistoj vivus en paradizo!”
@@ -1239,12 +1016,7 @@ V.
 
 Se ne vekus ilin mevoj, vekus ilin la paruo, kiu senĉese ion propagandis de sia pinarbo; kaj se ne vekus ilin ĝi, tion certe farus la viro, kiu el malpeza valizo el ledimitaĵo ofertis ekskurson: iom da navigado, por sperti luladon sur la maraj ondoj, ĝis stomako revoltiĝas; iom por trinki, iom por pretere manĝi en iu taverno — kaj finfine inspektvizito al iu romia amfiteatro.
 
-La afero havis sian logon. La viro efektive ne bezonus en kvin turiste egalrajtaj lingvoj inviti al tiu senpretenda aven-45
-
-FILOZOFII SUBTENDE
-
-
-tureto. Do, kial finfine ne? Kial foje ne ŝoforu iu alia, ne ĉiam Andreo? Sian ”jes” ĉiu el ili eldiris kun la rezervo de Sloveno, kies etno ĉiam troviĝas en embarasa ŝancelado, se iu ion ofer-tas kontraŭ mono. Tamen tiu ĉi ”jes” estis sufiĉe serioza, ke la viro deŝiris ses vojaĝbiletojn kaj informis, ke la barko post unu horo ekvelos.
+La afero havis sian logon. La viro efektive ne bezonus en kvin turiste egalrajtaj lingvoj inviti al tiu senpretenda aventureto. Do, kial finfine ne? Kial foje ne ŝoforu iu alia, ne ĉiam Andreo? Sian ”jes” ĉiu el ili eldiris kun la rezervo de Sloveno, kies etno ĉiam troviĝas en embarasa ŝancelado, se iu ion ofer-tas kontraŭ mono. Tamen tiu ĉi ”jes” estis sufiĉe serioza, ke la viro deŝiris ses vojaĝbiletojn kaj informis, ke la barko post unu horo ekvelos.
 
 ĉio, per kio ekskursantoj poste fanfaronas sur la firma tero, jam estis travivita kaj registrita en memoro kaj sur filmben-doj. Nun ili staris antaŭ la majesta ronda konstruaĵo, maso-nita el grandaj ŝtonblokoj, kiuj tiel precize kuŝis unu sur la alia kaj apud la alia, kvazaŭ ili estus fanditaj muldile, la ĉiĉe-rono klarigis, kio okazis kie kaj kiamaniere io servis al iaj celoj. En kelkaj lokoj aŭdiĝis fotoaparataj kraketoj, iu alia filmis, kvazaŭ li estus Griffith.
 
@@ -1260,21 +1032,14 @@ Poste iom post iom komencis viciĝi ŝanĝoj; vento, pluvo, su-no, transformis l
 
 ”Tio evidente apartenas al la antologio de ŝercoj!” interrompis lin Adela.
 
-”Tion ĉi neniu kredos al vi, eĉ se vi estas profesoro!” aŭdi-
-
-ĝis el iu alia buŝo.
-
-
-FILOZOFII SUBTENDE
+”Tion ĉi neniu kredos al vi, eĉ se vi estas profesoro!” aŭdiĝis el iu alia buŝo.
 
 
 ”Kial nur, ja vi kredas multe pli dubindajn aferojn, kiujn rakontas al vi elementlernejaj instruistoj!” rebatis la argu-mentpilkon per malmola bato Andreo.
 
 ”Kion ni tiel kredas, ekzemple?”
 
-Profesoro sin gratis ĉekape, iomete atendis, ke la etoso fari-
-
-ĝu eĉ pli streĉa kaj poste rekomencis paroli.
+Profesoro sin gratis ĉekape, iomete atendis, ke la etoso fariĝu eĉ pli streĉa kaj poste rekomencis paroli.
 
 ”Tion, ke kelkaj rokoj laŭ la efiko de hazardo povus envi-ciĝi en rektan linion, vi ne kredas; sed vi ekzemple kredas, ke laŭ kelkaj hazardaj procesoj estiĝis la estaĵo, kiu kreskas, sin defendas, sin multobligas — kaj en certa momento de la planeda historio maturiĝas kaj fariĝas homo … ĉu vi ne scias, ke la plej primitiva prabesteto estas senkompare pli komplika afero ol tiu ĉi kolosa amfiteatro kun ĉiuj siaj instalaĵoj? Kaj tamen: koncerne la amfiteatron por vi estas tute klare, ke komence de ĝi ne troviĝas nur la iloj de la konstrumajstro, sed ankaŭ la genia intelekto de la arkitekto. Male vi pretas kredi, ke la organismoj, kiuj per ĉiu el siaj multegaj funkcioj kaj detaloj demonstras senkompare pli ol homan geniecon, povus
 
@@ -1284,9 +1049,7 @@ estiĝi el amasiĝo de hazardaj ŝanĝoj, kvazaŭ la kaprica vento ilin amasigus
 
 ”Bone bone, sed vi pretervidis du aferojn,” respondis profesoro. Unue: al materio, kiu ne jam estas la materio de pli alte evoluitaj organismoj, vi senintence atribuas la volon transvivi kaj evolui al tiu pli alta stato. Tio signifas ĝuste, ke vi atribuas al tiu materio la intelekton, la volon, la animon.
 
-Kaj due: tute ne estas vero, ke la organismoj laŭ sia evolua 47
-
-FILOZOFII SUBTENDE
+Kaj due: tute ne estas vero, ke la organismoj laŭ sia evolua
 
 
 linio pli kaj pli adaptiĝas al la medio por tiel pligrandigi sian pluvivkapablon. La fakto estas ĝuste kontraŭa. La evoluo
@@ -1310,9 +1073,6 @@ Tanja perdis okulojn inter tiuj ŝtonpecoj; ŝi prenis el sia mansako mirindan t
 kalkpecon meandre formis kaj tiel bele ornamis ia inteligento …”
 
 
-FILOZOFII SUBTENDE
-
-
 Kiam ili jam sidis antaŭ sia tendo kaj rigardis al semoj, kiuj, provizitaj per semoflugiloj, alteriĝis kiel delikata helikoptera ofensivo, Georgo, kun iomete malpli da romantika sento inter siaj brovoj, demandis la profesoron:
 
 ”Pri io mi tamen miras: Ni ĉiuj havas similan cerbon en
@@ -1327,12 +1087,7 @@ niaj kapoj, tamen kelkaj el la samaj fenomenoj sekvigas konkludojn, kiujn mi per
 
 ”Kaj se tiu majstro la flugadon eĉ volus vere kompreni, por ke li ne kapablu fabriki nur la paperan aviadileton, sed ke li povu konstrui ĉe iu aviadila instituto, do li devus havi en sia kapo ion pli ol nur hobian emon, ĉu?”
 
-”Jes, kompreneble, li devus elfari almenaŭ aviadilan aka-
-
-demion kaj studadon por maŝininĝeniero!” lasis sin gvidi Georgo.
-
-
-FILOZOFII SUBTENDE
+”Jes, kompreneble, li devus elfari almenaŭ aviadilan akademion kaj studadon por maŝininĝeniero!” lasis sin gvidi Georgo.
 
 
 ”Kion do diri pri tiu, kiu ĉiujn tiujn komplikegajn sciojn ne povis akiri el libroj aŭ en altlernejoj kaj laŭ la jam faritaj aparatoj, devis malkovri ilin mem? En la tempo, kiam ne jam ekzistis aviadilaj kluboj, sed parencoj kaj kunvilaĝanoj, kiuj lin priridis kiel frenezulon, kiu disŝutas sian tempon — ĉu sekve ne postulis tia invento ĝuste eksterordinaran geniecon?”
@@ -1343,34 +1098,23 @@ FILOZOFII SUBTENDE
 
 ”Por ne paroli pri mevoj …” ekkriis Tanja.
 
-”Verdire, pri mevoj ni prefere ne parolu, ja jam la flugan-50
-
-FILOZOFII SUBTENDE
-
-
-taj semoj mem superas ĉiujn niajn teknikajn institutojn; ĉe mevoj ni pro la krea forto, en ili uzita, perdus ekvilibron!”
+”Verdire, pri mevoj ni prefere ne parolu, ja jam la flugantaj semoj mem superas ĉiujn niajn teknikajn institutojn; ĉe mevoj ni pro la krea forto, en ili uzita, perdus ekvilibron!”
 
 konsentis profesoro.
 
 ”Mi persone perdas ekvilibron jam ĉe tiuj senpretendaj
 
-flugsemoj!” diris Duŝan. ”Ne temas pri tio, ke ĝi estus nur ĉarma semparaŝuteto, kiu elegante flugas foren de la arbo, ĝi mem enhavas altkapacitan komputilon, kiu kapablas fari tion, kion la tuta homa scienco povas nur iel priskribi: ĝi ko-mandas al akvo, karbonoksido kaj suna lumo, ke ili sin aran-
-
-ĝu en altan arbon. Kaj tiu arbo poste ĉiujare denove eksplodos en milojn da tiaj mirindaj flugsemoj …”
+flugsemoj!” diris Duŝan. ”Ne temas pri tio, ke ĝi estus nur ĉarma semparaŝuteto, kiu elegante flugas foren de la arbo, ĝi mem enhavas altkapacitan komputilon, kiu kapablas fari tion, kion la tuta homa scienco povas nur iel priskribi: ĝi ko-mandas al akvo, karbonoksido kaj suna lumo, ke ili sin aranĝu en altan arbon. Kaj tiu arbo poste ĉiujare denove eksplodos en milojn da tiaj mirindaj flugsemoj …”
 
 ”Duŝan, he, min via romantiko ne impresigas tiom!” ribelis Adela.
 
-”Kio do, vi pensas, ĉion tion majstras?” profesoro deman-
-
-dis al Adela.
+”Kio do, vi pensas, ĉion tion majstras?” profesoro demandis al Adela.
 
 ”Simple afero de la evoluo, ja ne mankis tempo,” ironiis
 
 Adela.
 
-”Sed la evoluo, kian povas dokumenti homoj, estas eksklu-
-
-zive la afero de la homa racio kaj de la inspiro, kiun oni ne povas alvoki propravole. Do kio povus kaŭzi evoluŝanĝojn
+”Sed la evoluo, kian povas dokumenti homoj, estas ekskluzive la afero de la homa racio kaj de la inspiro, kiun oni ne povas alvoki propravole. Do kio povus kaŭzi evoluŝanĝojn
 
 antaŭ la apero de la homa estaĵo?”
 
@@ -1379,17 +1123,11 @@ antaŭ la apero de la homa estaĵo?”
 ”Se tiel,” kontinuis la profesoro, ”oni devus starigi al la hazardo la plej imponan templon. Oni devus fermi ĉiujn lernej-ojn, hospitalojn, fabrikojn, ĉion, kio estas regata de la homa racia ordo. Oni devus proklami unu solan leĝon: Disponigu vin al la hazardo! Nome: se la hazardo produktis tion, kion ni tiel estime admiras, do nur la hazardo povus kontentige solvi niajn ĉiutagajn problemojn kaj eĉ speciale la grandajn problemojn de la homa raso tutmonde! Samgrade, kiom la mevo
 
 
-FILOZOFII SUBTENDE
-
-
 estas pli eleganta kaj pli perfekta ol niaj aviadiloj kun benzin-motoroj, tiugrade ankaŭ la solvoj, kiujn elĵetus la hazardo, estus pli elegantaj kaj perfektaj kompare kun tiuj, kiujn povas produkti la homa racia penado,” Andreo dismetis siajn gambojn por kontribui al sia stabileco.
 
 ”Ankoraŭ io,” rimarkis Duŝan. ”La leĝon pri la hazardo kiel nia gvidpovo ni efektive ne povas proklami, ja ajna leĝo forigas hazardon. Al la hazardo ni povas nin disponigi nur ’hazarde’ — kaj tio signifas, ke la hazardo ne povas esti la plej alta kaj ĝenerala leĝo kaj principo. Se la hazardo estas donita leĝe, ĝi estas per ĝuste tiu leĝo senhazardigita; se ĝi restas hazarda, ĝi restas limigita per sia escepteco. La hazardo, se ĝi ekzistus, estus ĉiam nur io escepta, ĉiam nur parazito sur la arbo de la regulo kaj leĝo.”
 
 Adela devis al si konfesi: eĉ tiu lasta elpafita kartoĉo estis nur manovra …
-
-
-FILOZOFII SUBTENDE
 
 
 VI.
@@ -1410,9 +1148,7 @@ arbbranĉo, dum Duŝan kaj Georgo perdis spiron sin
 
 trejnante per halteroj, dum ĉiuj apenaŭ povis kapti aeron post la tria rondkuro ĉirkaŭ la tendaro, sinjorino Majda portis sur la ŝtonon, kiu funkciis kiel tablo, pelvon da kaĉo, en kiu oni povis rekoni nur fajne tranĉitajn pomojn kaj sekajn vin-berojn. Tiun abomenaĵon ili devis kulerumi kaj tio estis proklamita matenmanĝo.
 
-”Mi devis hieraŭ ion mueli, ne diru, ke tio ĉi devenas de 53
-
-FILOZOFII SUBTENDE
+”Mi devis hieraŭ ion mueli, ne diru, ke tio ĉi devenas de
 
 
 tio!” protestis Georgo. Ju pli li maĉis, des pli da tio troviĝis en lia buŝo.
@@ -1423,9 +1159,7 @@ tio!” protestis Georgo. Ju pli li maĉis, des pli da tio troviĝis en lia buŝ
 
 ”Rusaj soldatoj ricevis nemuelitajn grenojn, ili muelis ilin en siaj buŝoj dum marŝoj kaj bataloj, tamen ili puŝis Germa-najn armeojn trans Odro. Se vi trempas la muelitan tritikon dumnokte en iom da akvo, ĝi komencas fermentiĝi, kvazaŭ vi produktus acidan lakton. Se vi matene aldonas kulereton da mielo kaj iom da raspita pomo, vi havas porcion, kiu vin bone vivtenas dum duontago,” kontinuis Majda. ”Mi simple pensis, se ni jam okupiĝas pri filozofio, do ni konsekvence ankaŭ manĝu iom pli saĝe …”
 
-Post la matenmanĝo profesoro dum kelkaj minutoj trafo-
-
-liumis gazeton. Nu, li ne atendis savigan novaĵon, li legis prefere pro sia kultura rutino.” Ho, jen rigardu! Hodiaŭ en la urba juĝpalaco okazos proceso kontraŭ tiuj du friponoj, kiuj malplenigis la tendumajn trenveturilojn,” Andreo legis al la tuta societo.
+Post la matenmanĝo profesoro dum kelkaj minutoj trafoliumis gazeton. Nu, li ne atendis savigan novaĵon, li legis prefere pro sia kultura rutino.” Ho, jen rigardu! Hodiaŭ en la urba juĝpalaco okazos proceso kontraŭ tiuj du friponoj, kiuj malplenigis la tendumajn trenveturilojn,” Andreo legis al la tuta societo.
 
 ”Mi volas ĉeesti je ajna prezo!” ekkriis Adela. Andreo iomete pripensis, poste li kapjesis.
 
@@ -1433,12 +1167,7 @@ liumis gazeton. Nu, li ne atendis savigan novaĵon, li legis prefere pro sia kul
 
 Aliaj iomete miris, ke Adela sukcesis tiel rapide persvadi profesoron; sed certagrade ili jam alkutimiĝis je tio, ke li subite ion decidis kaj daŭre per io surprizis.
 
-Ili eniris veturilon, Andreo turnis ŝlosilon kaj provis persvadi motoron al starto. Subite ĝi ekhenis, kvazaŭ oni alpor-54
-
-FILOZOFII SUBTENDE
-
-
-tus avenon al ĉevaloj. Pinarboj ekkuris pretere. Ili parkigis tiel, ke ili troviĝis flanke de glaciaĵvendisto.
+Ili eniris veturilon, Andreo turnis ŝlosilon kaj provis persvadi motoron al starto. Subite ĝi ekhenis, kvazaŭ oni alportus avenon al ĉevaloj. Pinarboj ekkuris pretere. Ili parkigis tiel, ke ili troviĝis flanke de glaciaĵvendisto.
 
 ”Foje ni devas surprizi nin mem, por ke ni ne kondutu kiel hundoj de Pavlov!” rekomendis Andreo, eltirante sian ŝlosilon de la panelo. ĉiuj komprenis: Ne preni glaciaĵon, kvankam la suno sputas sur vin lafon de varmego … ”Foje estas tute agrable ĝin preni, sed foje estas bone ne preni, ke vi sentu vin mem!” li klarigis, vidante, ke ĉiuj lmprenis.
 
@@ -1453,9 +1182,6 @@ La juĝisto estis spertoplena kompetentulo kaj refutis la si-nekskuzon de la fra
 La publiko ekridis el tiuj malmultaj buŝoj, kiuj en tiu varmego povis ridi. La juĝisto per sia rutina oficeco relative rapide finis la aferon. La asizo decidis, ke ambaŭ friponoj estu pro-klamitaj kulpaj, la juĝisto kondamnis la pli aĝan je unu monato da malliberejo kaj al la pli junan je du monatoj kondiĉigite.
 
 La publiko estis disrevigita pro tiel milda verdikto, sed ĝi ne povis protesti, la juĝisto jam malaperis el la salono. Kiam ili jam troviĝis surstrate, Adela afliktite ekkriis: ”Mi opinias tiun ĉi juĝiston komplete malkapabla!”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Mi opinias, ke tio estas tre kompetenta juĝisto kun granda sperto!” refutis ŝin profesoro.
@@ -1493,24 +1219,17 @@ Adela.
 ”Hm …”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Kontraŭe, se ni estus rabista banditaro, ni sendus nian
 
 lernanton al la loko, kie kunvenas multaj lertaj friponoj — kaj tio ĝuste kaj unuavice estas la karceroj, ĉu ne?”
 
 ”Jes, mi jam komprenas.”
 
-”Bona juĝisto do aljuĝos nur tiom da karcero, ke la puni-
-
-to, kies animo ne jam estas koruptita, nur iomete gustumu tiun etoson, ĝis la gusto al li ne jam komencu plaĉi. Li preferus lin sendi al iu kontempla monaęjo, kie li havus eblecon primediti la direkton de sia vivovojo kaj konsulti homojn de kontrasta moralmodelo. Sed li devas konsideri stultajn leĝojn starigitajn de la ŝtata povo. Tiel li faras kompromison, kiu ebligas al li resti juĝisto kaj samtempe ne detruas la junan homon. Nu, tial mi diris, ke temas pri bona juĝisto.”
+”Bona juĝisto do aljuĝos nur tiom da karcero, ke la punito, kies animo ne jam estas koruptita, nur iomete gustumu tiun etoson, ĝis la gusto al li ne jam komencu plaĉi. Li preferus lin sendi al iu kontempla monaęjo, kie li havus eblecon primediti la direkton de sia vivovojo kaj konsulti homojn de kontrasta moralmodelo. Sed li devas konsideri stultajn leĝojn starigitajn de la ŝtata povo. Tiel li faras kompromison, kiu ebligas al li resti juĝisto kaj samtempe ne detruas la junan homon. Nu, tial mi diris, ke temas pri bona juĝisto.”
 
 Dum tiu ĉi dueleto ili venis al ĉarma bufedo, kie oni povis ricevi ĉion, ek de kafo ĝis glaciaĵo. Sinjorino Majda taksrigar-dis siajn prizorgitojn kaj decide diris:
 
-”Memkontrolo tia aŭ alia, nun ni eniros por ricevi ion dol-
-
-ĉan!” ”ĉu vi aŭdas la voĉon de Eva sub la arbo?” priŝercis la profesoro — kaj baldaŭ ili eksidis ĉirkaŭ la ronda tablo sub baldaheno.
+”Memkontrolo tia aŭ alia, nun ni eniros por ricevi ion dolĉan!” ”ĉu vi aŭdas la voĉon de Eva sub la arbo?” priŝercis la profesoro — kaj baldaŭ ili eksidis ĉirkaŭ la ronda tablo sub baldaheno.
 
 Kuleretoj portis la ruĝberan, ĉokoladan kaj vanilian fridigitan guston en buŝojn; la disreviĝinta venĝemo de la tribunala salono malvarmiĝis ĝis la agregata stato, ĉe kiu oni povis saĝe interparoli.
 
@@ -1521,9 +1240,6 @@ Kuleretoj portis la ruĝberan, ĉokoladan kaj vanilian fridigitan guston en buŝ
 ”Propravole vi kapkliniĝis antaŭ tiu Inteligento, pri kies ekzisto mi antaŭe al vi vane parolis.”
 
 ”Sen, ke mi pri tio konsciu …”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Diru al mi vere: ĉu laŭ vi havas sencon diri, ke sako de ia materio ŝtelas de alia sako iom da ties substanco? Kaj ĉu estas sencohave, ke tiu alia sako de materio, antaŭ la tria, la unuan vokas antaŭ tribunalon? Kaj tiu tria sako al la unua solene proklamas esti ŝulda, ĉu?”
@@ -1542,42 +1258,26 @@ materio ne povas ’ŝteli’, ja ĉio apartenas al ĝi; la materio ne povas ’
 
 Tamen Adela ne jam plene kaptis la ideon.
 
-”Sed, se vi insistas, ke oni tiujn du friponojn punu, sen atribui al ili la senmortan animon, do oni devus kondamni ankaŭ la atomon de oksigeno, ĉar tiu atakis la atomon de la fero ĉe mia aŭto kaj tiel kaŭzis la malutilan rostiĝon. Oni devus kondamni acidojn, kiuj detruas metalojn; oni devus akuzi la le-
-
-ĝon pri gravito, kiu nin premas al la tersurfaco kaj ne permesas nin libere naĝi en aero …”
+”Sed, se vi insistas, ke oni tiujn du friponojn punu, sen atribui al ili la senmortan animon, do oni devus kondamni ankaŭ la atomon de oksigeno, ĉar tiu atakis la atomon de la fero ĉe mia aŭto kaj tiel kaŭzis la malutilan rostiĝon. Oni devus kondamni acidojn, kiuj detruas metalojn; oni devus akuzi la leĝon pri gravito, kiu nin premas al la tersurfaco kaj ne permesas nin libere naĝi en aero …”
 
 ”Kion vi diras, estas freneze …”
 
 
-FILOZOFII SUBTENDE
-
-
-”Tamen ekzistas homo, kiun tiun frenezaĵon jam prakti-
-
-kis.”
+”Tamen ekzistas homo, kiun tiun frenezaĵon jam praktikis.”
 
 ”Kiu?”
 
-”Kserkso, la persa reĝo, kiu ordonis vippuni la maron He-
+”Kserkso, la persa reĝo, kiu ordonis vippuni la maron Helespontan …”
 
-lespontan …”
-
-”Se tiel,” intervenis Duŝan, ”oni povas prepari nek akuz-
-
-skribon nek defendoskribon, sen supozi la ekziston de la ne-materia animo, ĉu?”
+”Se tiel,” intervenis Duŝan, ”oni povas prepari nek akuzskribon nek defendoskribon, sen supozi la ekziston de la ne-materia animo, ĉu?”
 
 ”Nek oni povus certan homon kritiki nek laŭdi, ke tio havu solidan validon!” aldonis Andreo.
 
-”Sed kial oni tamen procesas kontraŭ la krimuloj kaj pre-
-
-mias la meritulojn ankaŭ tie, kie oni ne kredas je la ekzisto de animo?” elĵetis la lastan karton Adela.
+”Sed kial oni tamen procesas kontraŭ la krimuloj kaj premias la meritulojn ankaŭ tie, kie oni ne kredas je la ekzisto de animo?” elĵetis la lastan karton Adela.
 
 ”Oni facile diras: Mi ne kredas. Sed preskaŭ neeble estas, vere ne kredi.”
 
 Post tiuj ĉi vortoj ili eksilentis. ĉiu primeditis ilin laŭ sia maniero. Poste ili veturis al la tendaro. Ili interkonsentis, ne malfrui la majestan vesperan artspektaklon. Pentroarto kaj teatro en unu fenomeno: La sunsubiro en la maron …
-
-
-FILOZOFII SUBTENDE
 
 
 VII.
@@ -1596,14 +1296,9 @@ malpli, neniu devis barakti pri sia spirado. Profesoro paŝis an-taŭ ilin kaj d
 
 ”Diru, ĉu vi scias spiri!”
 
-Tion li demandis tiel, kiel oni demandas, ĉu iu scias bone stiri velŝipon aŭ bone kuiri. Kvazaŭ li demandus ion tute sa-
-
-ĝan …
+Tion li demandis tiel, kiel oni demandas, ĉu iu scias bone stiri velŝipon aŭ bone kuiri. Kvazaŭ li demandus ion tute saĝan …
 
 ”Kiel vi tion opinias?” konkrete montris sian embarason
-
-
-FILOZOFII SUBTENDE
 
 
 Tanja. Sed en ŝia kapo efektive kaŝiĝis la supozo: ”Ion tian povas demandi nur homo kun problemoj subtegmente …”
@@ -1626,26 +1321,18 @@ Poste la procesio ekmoviĝis. Georgo jam post sia tria paŝo ĉion konfuzis. Unu
 
 Fine la profesoro permesis al ili eksidi sur ŝtonoj.
 
-”ĉu vi nun jam scias, pri kio mi antaŭe demandis?” pre-
-
-skaŭ petole demandis Andreo en espero, ke nun ili lmprenas.
+”ĉu vi nun jam scias, pri kio mi antaŭe demandis?” preskaŭ petole demandis Andreo en espero, ke nun ili lmprenas.
 
 ”Mi ankoraŭ ne komprenas, kion oni ĉi tie sciu. Ja ekde nia naskiĝo ĉiu el ni spiras. Se ni tiel spiras kaj vivas, do ni sekve scias spiri …” diris Adela.
 
-”Sed mi diras al vi, ke vi ne scias. Jam ĉe tiu ĉi tre simpla 61
-
-FILOZOFII SUBTENDE
+”Sed mi diras al vi, ke vi ne scias. Jam ĉe tiu ĉi tre simpla
 
 
 ekzerco vi estis konfuzitaj, do mi ne komentu la vere kompli-kajn teknikojn de bona spirado, kiujn vi devos ankoraŭ ler-ni!”
 
-”Kial estas bone spiri per certa tekniko?” demandis Geor-
+”Kial estas bone spiri per certa tekniko?” demandis Georgo. Li volis fari bonan impreson.
 
-go. Li volis fari bonan impreson.
-
-”Vidu,” pli profunde enspiris Andreo, ”la besto povas ek-
-
-marŝi jam la saman tagon, kiam ĝi naskiĝas, dum la homo
+”Vidu,” pli profunde enspiris Andreo, ”la besto povas ekmarŝi jam la saman tagon, kiam ĝi naskiĝas, dum la homo
 
 bezonas por la samo du jarojn aŭ foje pli. Sed vere ĝuste iri lernas nur malmultaj homoj. La besto naĝas, sen lerni tion, la homo devas tiun lerton aparte lerni. La besto povas mem
 
@@ -1653,9 +1340,7 @@ manĝi jam post la anonco de la unua malsato. La homa ido
 
 bezonas kelke da jaroj por iel kontentige manĝi homnivele.
 
-Vere home manĝi lernas nur malmultaj post multa ekzerca-
-
-do kaj memregado. ĉu do estu alimaniere, se temas pri spirado? Jes, vi iel spiras, sed proksimume tiamaniere, kiel la bebo iras. i ja moviĝas, sed tion oni ne povas jam nomi vera irado. Aŭ tiel, kiel unujara bebo manĝas. i ja plenigas sian ventron, sed kiel kaj per kio, se ne ĉeestas la asista mano de la patrino? Ni do povas supozi, ke ankaŭ nia spontanea spirado pli malpli samnivelas kiel la manĝetiketo de la bebo.
+Vere home manĝi lernas nur malmultaj post multa ekzercado kaj memregado. ĉu do estu alimaniere, se temas pri spirado? Jes, vi iel spiras, sed proksimume tiamaniere, kiel la bebo iras. i ja moviĝas, sed tion oni ne povas jam nomi vera irado. Aŭ tiel, kiel unujara bebo manĝas. i ja plenigas sian ventron, sed kiel kaj per kio, se ne ĉeestas la asista mano de la patrino? Ni do povas supozi, ke ankaŭ nia spontanea spirado pli malpli samnivelas kiel la manĝetiketo de la bebo.
 
 Antaŭ ĉio, nia spontanea spirado estas tre supraĵa, kaj la konsekvenco estas manko de la oksigeno ensange. Kaj nia cerbo uzas superaveraĝe multe da ĝi por povi iel funkcii.”
 
@@ -1663,12 +1348,7 @@ Antaŭ ĉio, nia spontanea spirado estas tre supraĵa, kaj la konsekvenco estas 
 
 ”kial en la lernejo neniu rakontis al ni pri tio? Nek ĉe la instruo pri la homo nek ĉe gimnastiko.”
 
-”Bedaŭrinde tro da instruistoj sekvas la regulon: ”Kion mi mem ne scias, pri tio mi almenaŭ instruos la aliajn …” Multaj instruistoj sian profesion ne elektis laŭ sia interna impeto kaj misiemo, kiu ilin instigus neniam fini aldonan studa-62
-
-FILOZOFII SUBTENDE
-
-
-don kaj librolegadon. Ili en la klasĉambroj pliparte nur perlaboras sian ĉiutagan panon. Ili ankaŭ ne instruas al vi, kiamaniere rigardi, same ne, kiamaniere bone aŭskulti, kvankam ili bone regas la anatomion de la orelo. Ili same ne instruas vin ĝui en bona manĝado, kvankam ili turmentas vin per ĉiu parteto de la dika intesto. Ili ne instruas vin pri ĝustaj vojoj, kvankam ili vin trejnas por longdistanca kurado. Ili ne instruas vin ĝuste paroli kaj ĝuste silenti, kvankam vi havas tro da lingva instruado. Ili ne instruas vin distingi inter justo kaj maljusto, kvankam dum la historia instruo ili tre precize parolas pri la datoj de unuopaj ribeloj kaj revolucioj. Sekve, ne atendu tro de la lernejo! Plej merita estas por vi la instruisto, kiu tute en komenco vin instruis legi kaj skribi, elemente kalkuli kaj bone konduti. Preskaŭ ĉio alia estas pura balasto. Pli detranĉado de viaj flugiloj ol vera instruo por bone flugi …”
+”Bedaŭrinde tro da instruistoj sekvas la regulon: ”Kion mi mem ne scias, pri tio mi almenaŭ instruos la aliajn …” Multaj instruistoj sian profesion ne elektis laŭ sia interna impeto kaj misiemo, kiu ilin instigus neniam fini aldonan studadon kaj librolegadon. Ili en la klasĉambroj pliparte nur perlaboras sian ĉiutagan panon. Ili ankaŭ ne instruas al vi, kiamaniere rigardi, same ne, kiamaniere bone aŭskulti, kvankam ili bone regas la anatomion de la orelo. Ili same ne instruas vin ĝui en bona manĝado, kvankam ili turmentas vin per ĉiu parteto de la dika intesto. Ili ne instruas vin pri ĝustaj vojoj, kvankam ili vin trejnas por longdistanca kurado. Ili ne instruas vin ĝuste paroli kaj ĝuste silenti, kvankam vi havas tro da lingva instruado. Ili ne instruas vin distingi inter justo kaj maljusto, kvankam dum la historia instruo ili tre precize parolas pri la datoj de unuopaj ribeloj kaj revolucioj. Sekve, ne atendu tro de la lernejo! Plej merita estas por vi la instruisto, kiu tute en komenco vin instruis legi kaj skribi, elemente kalkuli kaj bone konduti. Preskaŭ ĉio alia estas pura balasto. Pli detranĉado de viaj flugiloj ol vera instruo por bone flugi …”
 
 ”Eĉ se tiel, kion ni povas fari? Ni ne instalas instruistojn kaj ni ne planas instruhorojn,” koleriĝetis Georgo.
 
@@ -1676,9 +1356,7 @@ don kaj librolegadon. Ili en la klasĉambroj pliparte nur perlaboras sian ĉiuta
 
 ”Kaj kiamaniere ni ion faru?” entuziasmiĝis Tanja.
 
-”Antaŭ ĉio, ne lasu ilin en ilia trankvilo! Ne toleru al ili supraĵe klarigi aferojn. Kiam ili rakontas al vi pri la teoremo de Pitagoro, ne permesu nur skribi sur la tabulon la matemati-kan formulon. Postulu de la instruisto konduki vin spirite en la urbon Krotono en suda Italio, kie tiu filozofo kaj matematikisto vivis kaj agis. Postulu kompletan ripetdemonstron de 63
-
-FILOZOFII SUBTENDE
+”Antaŭ ĉio, ne lasu ilin en ilia trankvilo! Ne toleru al ili supraĵe klarigi aferojn. Kiam ili rakontas al vi pri la teoremo de Pitagoro, ne permesu nur skribi sur la tabulon la matemati-kan formulon. Postulu de la instruisto konduki vin spirite en la urbon Krotono en suda Italio, kie tiu filozofo kaj matematikisto vivis kaj agis. Postulu kompletan ripetdemonstron de
 
 
 la teoremo, same, kiel tion faris Pitagoro. Se la instruisto tion ne scias kaj falas en embarason, ne skandaliĝu kaj ne ĝuu pri lia senkompetenco. Helpu al li fari la aferon komplete. Petu de li prepari sin pli bone por venonta lekciado. Via instruisto propravole elektis tiun noblan profesion, do li ŝuldas al vi altkvalitan instruadon. Se li iam rakontos pri la eklezio, kiamaniere ĝi persekutis sciencistojn, kio okazis al Koperniko, al Galileo kaj aliaj, petu de ili precizajn informojn, prenitaj el seriozaj fontoj. Postulu, ke li konduku vin vespere subĉielen kaj montru al vi la firmamenton kun stelkonstelacioj. Postulu, ke li demonstru sur la tabulo, kiamaniere oni elkalkulas la venontan sun- kaj luneklipson. Se li tion ne kapablas, petu lin
@@ -1693,22 +1371,16 @@ Ili iomete meditis pri la vortoj de la profesoro. Aŭdaca
 
 ideo, sed efektive sencohava. Neniu protestis. Supraĵeco kaj stulta ripetado de propagandaj eldiroj ne havas argumenton por si.
 
-”Se la lernantoj procedus tiel,” rimarkis sinjorino Majda, 64
-
-FILOZOFII SUBTENDE
+”Se la lernantoj procedus tiel,” rimarkis sinjorino Majda,
 
 
 ”en la konferencaj salonoj de la lernejoj oni ĉesus diskuti pri salajroj kaj banalaj aferoj. La eldonkvantoj de seriozaj libroj kaj leksikonoj multobliĝus, la lerneja sistemo tre rapide supe-rus ĉiujn optimismajn atendojn.”
 
-”Kaj por atingi tion, jam unu tia lernanto en ĉiu lernejo, kiu leviĝus kontraŭ la stulta ripetado de sensencaj frazaĉoj, malantaŭ kiuj ne troviĝas persona konv kaj vera scio, sufi-
-
-ĉus,” diris Duŝan.
+”Kaj por atingi tion, jam unu tia lernanto en ĉiu lernejo, kiu leviĝus kontraŭ la stulta ripetado de sensencaj frazaĉoj, malantaŭ kiuj ne troviĝas persona konv kaj vera scio, sufiĉus,” diris Duŝan.
 
 ”Kial vin tiel ĝenas, se en la lernejo instruisto parolas pri la aŭtodafeo de Giordano Bruno?” nun anonciĝis Adela.
 
-”Mi certas,” sen embaraso diris Andreo, ”ke ankaŭ tiutem-
-
-pe la plej multajn brulŝtipojn portis sur la brulŝtiparon por Giordano Bruno la tiamaj instruistoj. Ne temas pri aprobo de la tiama krimo kontraŭ tiu filozofo kaj sciencisto, temas pri tio, ke ne kredu al la protestoj kontraŭ tiu krimo ĉe la homoj, kiuj nuntempe per aliaj metodoj faras la samon aŭ almenaŭ silente servas al tiuj, kiuj tion faras. Kaj ne forgesu, kiom da promesoplenaj talentoj de junaj homoj tiaj reĝimservemaj
+”Mi certas,” sen embaraso diris Andreo, ”ke ankaŭ tiutempe la plej multajn brulŝtipojn portis sur la brulŝtiparon por Giordano Bruno la tiamaj instruistoj. Ne temas pri aprobo de la tiama krimo kontraŭ tiu filozofo kaj sciencisto, temas pri tio, ke ne kredu al la protestoj kontraŭ tiu krimo ĉe la homoj, kiuj nuntempe per aliaj metodoj faras la samon aŭ almenaŭ silente servas al tiuj, kiuj tion faras. Kaj ne forgesu, kiom da promesoplenaj talentoj de junaj homoj tiaj reĝimservemaj
 
 instruistoj ĵetas sur metaforan ŝtiparon nuntempe!”
 
@@ -1716,13 +1388,9 @@ Andreo iomete atendis, ĝis la pensoj kvietiĝis en iliaj koroj, poste li diris 
 
 ”Sed ne forgesu, kion skribis la serba pedagogo de la 19-a jarcento Dositej Obradoviĉ: ’Malgrandaj estas tiuj, kiuj la laboron de la instruisto tenas malgranda.’ Nature, tio ĉi validas por kompetentaj kaj honestaj instruistoj.”
 
-is la tagmanĝo ili libertempis. ĉiu faris ion propran. Du-
+is la tagmanĝo ili libertempis. ĉiu faris ion propran. Duŝan, ekzemple, per sia eta filmkamerao la eleganton de la mevaj flugoj transformis en helŝanĝiĝojn sur la arĝenta emulsio
 
-ŝan, ekzemple, per sia eta filmkamerao la eleganton de la mevaj flugoj transformis en helŝanĝiĝojn sur la arĝenta emulsio
-
-… Tanja kompletigis sian kolekton de porcelano, kiun serpen-tigas, durigas kaj tiel nekredeble cizelas krabetoj, helikoj kaj 65
-
-FILOZOFII SUBTENDE
+… Tanja kompletigis sian kolekton de porcelano, kiun serpen-tigas, durigas kaj tiel nekredeble cizelas krabetoj, helikoj kaj
 
 
 konkmoluskoj. Adela. Vere, kion povus fari Adela? Kun sia tuta apero ŝi disponis sin al la sakramento de la suno, kiu sen ajna nuba opozicio alparolis sian idan planedon … Georgo
@@ -1748,16 +1416,11 @@ La afero iamaniere startis. Per kurado. Kaj jen la unua surprizo. Anstataŭ, ke 
 Tiel ĉio funkciis ĝis la fino. Bataldisciplinoj ne troviĝis. Pilk-ludoj ne troviĝis. ĉio pli similis al ĉambromuzika koncerto ol al vere sporta aranĝo. Nu, eble almenaŭ la proklamo de la rezultoj kaj de la venkintoj estos pli vigla. Sed tio tute ne okazis.
 
 
-FILOZOFII SUBTENDE
-
-
 ”La rezultojn ĉiu ricevos en propra koverto, kaj ne necesas montri la paperojn antaŭ la sekva parto, kiu okazos venont-semajne,” lakone klarigis pipre sobra Andreo.
 
 ”Mi ne garantias, ĉu mi ankoraŭ estas normala!” satiĝis de ĉio Georgo.
 
-”Verŝajne vi volis diri, ke vi komencis pridubi mian nor-
-
-malecon …” ridete diris al li la profesoro.
+”Verŝajne vi volis diri, ke vi komencis pridubi mian normalecon …” ridete diris al li la profesoro.
 
 ”Nu, bonvolu diri, ĉu ĉio tio havas rilaton kun la sporto?
 
@@ -1785,12 +1448,7 @@ alia la dua, iu la lasta …”
 
 ”Bone, sed kial ni ne vetkuris inter ni, unu kontraŭ la alia, kiel tion faras la tuta normala mondo?”
 
-”Konfucio, la granda ĉina filozofo, diris: ’La noblulo ne emas vetkuri.’ Kaj la slovena poeto Oton Òupanâiâ diris verse: ’Agletoj vetkure ĉi-sube flugetas, dum agloj solece en al-67
-
-FILOZOFII SUBTENDE
-
-
-toj disglisas … ’ — Se ni estu justaj, kaj kiel disĉiploj de la filozofio, ni antaŭ ĉio estu justaj, ni efektive ne povas vetkuri inter ni, ja ni ne havas la saman startpunkton. Ni ne naskiĝas kun egalaj muskloj kaj ostoj, ni ne ricevas egalan edukon kaj trejnadon, ni ne manĝas egale, ni ne estas egale sanaj. Egaleco sur la sporta kronometro ne estas la egaleco en la reala vivo.”
+”Konfucio, la granda ĉina filozofo, diris: ’La noblulo ne emas vetkuri.’ Kaj la slovena poeto Oton Òupanâiâ diris verse: ’Agletoj vetkure ĉi-sube flugetas, dum agloj solece en altoj disglisas … ’ — Se ni estu justaj, kaj kiel disĉiploj de la filozofio, ni antaŭ ĉio estu justaj, ni efektive ne povas vetkuri inter ni, ja ni ne havas la saman startpunkton. Ni ne naskiĝas kun egalaj muskloj kaj ostoj, ni ne ricevas egalan edukon kaj trejnadon, ni ne manĝas egale, ni ne estas egale sanaj. Egaleco sur la sporta kronometro ne estas la egaleco en la reala vivo.”
 
 ”ĉu tio estas ĉio?”
 
@@ -1815,9 +1473,6 @@ Se mi konas la esencon de la homo, mi esencnivele konas
 Ili estas unikaj, nekompareblaj, do ili ne povas vetkuri inter si.”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Bone, se tiel, do la personoj ankaŭ ne povas juĝi unu la alian, sekve ankaŭ ne kondamni kaj puni,” ekideis ĉe Tanja.
 
 ”Kompreneble. Ne tekstas senlige: ’Ne kondamnu, por ne
@@ -1838,9 +1493,7 @@ mem. Tiu, kiu pli klare vidas en ĉiun koron ol ni mem vidas ĉiun en la sia.”
 
 ”ĉu ni scias, kiu vere estas tre granda krimulo? Ni scias pri agoj kaj efikoj. Sed tio ne estas ĉiam en rilato kun la vera kul-po. La plej grandaj krimuloj siajn krimojn tute ne faras, ja ili estas tro kalkulemaj, tro perfidaj por elmeti sin al persekuto.
 
-Aliflanke multaj homoj jam estis ĵetitaj en intrigon de la krima ago, kvankam iliaj koroj estis pli noblaj ol averaĝe. Ni havas rajton kompari la agojn de la homoj kun la leĝaj tekstoj 69
-
-FILOZOFII SUBTENDE
+Aliflanke multaj homoj jam estis ĵetitaj en intrigon de la krima ago, kvankam iliaj koroj estis pli noblaj ol averaĝe. Ni havas rajton kompari la agojn de la homoj kun la leĝaj tekstoj
 
 
 kaj tiri el tio konsekvencojn. Ni rajtas homojn pro ilia kontraŭleĝa konduto devigi al repago kaj al partopreno ĉe eduk-terapioj, sed ni ne havas rajton ilin juĝi kaj kondamni. Tiun povon la homo ne havas super alia homo.”
@@ -1849,15 +1502,11 @@ Silento.
 
 Minuto, du — kun rigardoj surteren.
 
-”ĉu nun vi komprenas, kial la granda ĉino diras, ke la noblulo ne vetkuras? De la senkulpa vetkuro al la propravola ven-
-
-ĝo estas foje nur unu paŝo. Nur bonvolu rigardi, kiel la sportaj terenoj pli kaj pli fariĝas kanibalaj scenejoj. Eĉ ĉe Helenoj ĉiu olimpiko, kvankam respektanta la interkonsenton pri ar-mistico, efektive estis nur paŭzo antaŭ la sekva milito. Kion diri pri la nuna tempo, kiam eĉ dum olimpikoj eksplodas
+”ĉu nun vi komprenas, kial la granda ĉino diras, ke la noblulo ne vetkuras? De la senkulpa vetkuro al la propravola venĝo estas foje nur unu paŝo. Nur bonvolu rigardi, kiel la sportaj terenoj pli kaj pli fariĝas kanibalaj scenejoj. Eĉ ĉe Helenoj ĉiu olimpiko, kvankam respektanta la interkonsenton pri ar-mistico, efektive estis nur paŭzo antaŭ la sekva milito. Kion diri pri la nuna tempo, kiam eĉ dum olimpikoj eksplodas
 
 bomboj kaj krakas maŝinpistoloj …”
 
-”Tamen io mankis ĉe nia olimpiketo, eĉ se ni ĝmpre-
-
-nas en via senco,” sentis certan malhavon Adela.
+”Tamen io mankis ĉe nia olimpiketo, eĉ se ni ĝmprenas en via senco,” sentis certan malhavon Adela.
 
 ”Diru!”
 
@@ -1865,12 +1514,7 @@ nas en via senco,” sentis certan malhavon Adela.
 
 ”ĉu vi opinias, Adela, ke estis tumulto kaj kriado, kiam el la stelaj fajregoj naskiĝis nia planedsistemo; kiam el la unua albumena muko naskiĝis la unua prabesteto; kiam al certa
 
-estaĵo defalis vosto kaj fariĝis la homo … ĉiuj grandskalaj ŝan-
-
-ĝoj okazas en sankta silento, en mirinda festa trankvilo. Kiam unu homo vetkure leviĝas kontraŭ la alia, tiam konvenas tu-multi kaj beste hurli. Tio donis ĉarmon al la romiaj batalare-noj … Sed kiam iu vetkuras kontraŭ si mem, tiam li lokas sin en tiun okazadon, kian mi antaŭe ilustris, resumante skize nian planedan kaj vivan historion. Por tio konvenas festeca, rita silento!”
-
-
-FILOZOFII SUBTENDE
+estaĵo defalis vosto kaj fariĝis la homo … ĉiuj grandskalaj ŝanĝoj okazas en sankta silento, en mirinda festa trankvilo. Kiam unu homo vetkure leviĝas kontraŭ la alia, tiam konvenas tu-multi kaj beste hurli. Tio donis ĉarmon al la romiaj batalare-noj … Sed kiam iu vetkuras kontraŭ si mem, tiam li lokas sin en tiun okazadon, kian mi antaŭe ilustris, resumante skize nian planedan kaj vivan historion. Por tio konvenas festeca, rita silento!”
 
 
 VIII.
@@ -1887,15 +1531,11 @@ Ili jam asimiliĝis al la maĉado de tritiko kun fruktoj kaj mie lo. Georgo voli
 
 ”Finfine ni libertempas,” li provis argumentadi favore al pigreco de siaj membroj. Andreo estis nepersvadebla. Li diris:
 
-”Se ni atribuas antaŭrajton al dormado kompare kun ve-
-
-kado, do ni pli ŝatas la foreston de nia spirito ol ĝian ĉeeston.
+”Se ni atribuas antaŭrajton al dormado kompare kun vekado, do ni pli ŝatas la foreston de nia spirito ol ĝian ĉeeston.
 
 Se ni toleras la letargian insistadon de niaj korpoj por kelkaj minutoj, baldaŭ ni perdos jarojn …”
 
-Tamen eĉ Georgo devis agnoski al si: ĉi tie, kie pri leviĝo ne 71
-
-FILOZOFII SUBTENDE
+Tamen eĉ Georgo devis agnoski al si: ĉi tie, kie pri leviĝo ne
 
 
 troviĝis mizerikordo, li leviĝas multe pli facile ol hejme, kie li kun sia patrino aranĝas verajn diplomatiajn negocojn laŭ ĝe-neva maniero.
@@ -1908,9 +1548,7 @@ Temis pri loka gazeto, kiun niaj filozofoj ĉefe aĉetis por pli facile ĉendi f
 
 ”Lernanto de la marista mezlernejo hodiaŭ je la 15-a horo antaŭ la loĝbloko 7. en la strato ”Heroo Krĵiĉ” demonstros faligon de domenkubetoj. D. P. en unu semajno aranĝis en la formo de la silhueto de nia urbo 30.000 da domenkubetoj.
 
-Kiam li per sia fingro tuŝos la unuan, ili en bela ondado laŭ-
-
-vice falos, kio por niaj turistaj gastoj sendube estos interesa evento,” laŭte legis profesoro Andreo el la gazeto. Duŝan estis verdire iomete malravita, ke la profesoro pretis laŭte legi tiun infanaĵon.
+Kiam li per sia fingro tuŝos la unuan, ili en bela ondado laŭvice falos, kio por niaj turistaj gastoj sendube estos interesa evento,” laŭte legis profesoro Andreo el la gazeto. Duŝan estis verdire iomete malravita, ke la profesoro pretis laŭte legi tiun infanaĵon.
 
 ”ĉiukaze ni devas tion plej precize spekti!” diris Andreo al la surprizita grupo.
 
@@ -1926,20 +1564,13 @@ umis ĉe la tendoŝnuroj.
 
 ”Tion vi bele formulis, Majda!” Andreo ŝin petole refutis.
 
-”ĉu vi ne scias, ke ĉion, kio sur tiu ĉi mondo estas bona kaj eminenta, alportis al ni infanoj? ĉu vi kredas, ke iu serioza homo irus antaŭ tiun sicilian kavon ludi kun trianguloj por atingi genian ideon pri la rilato inter la lateroj kaj iliaj kvadra-72
-
-FILOZOFII SUBTENDE
-
-
-toj? Tion povis fari nur infano Pitagoro. Kaj vi eraras, pens-ante, ke iu serioza vilulo atingis ideon, ke grandan ŝarĝon oni povus translokigi ankaŭ alimaniere ol ke la tuta tribo ĝin tiru per lianoj … Estis certe iu infano, kiu rulis ĝin sur arbtrunketo sur la deklivo — kaj li ekhavis ideon pri rado. Kaj ĉu vi vere kredas, ke iu serioza kaj plenkreska homo povus lanĉi kajtojn en la ĉielon kaj eksperimenti per atmosfera elektro? Tion faris infano Benjamin Franklin …”
+”ĉu vi ne scias, ke ĉion, kio sur tiu ĉi mondo estas bona kaj eminenta, alportis al ni infanoj? ĉu vi kredas, ke iu serioza homo irus antaŭ tiun sicilian kavon ludi kun trianguloj por atingi genian ideon pri la rilato inter la lateroj kaj iliaj kvadratoj? Tion povis fari nur infano Pitagoro. Kaj vi eraras, pens-ante, ke iu serioza vilulo atingis ideon, ke grandan ŝarĝon oni povus translokigi ankaŭ alimaniere ol ke la tuta tribo ĝin tiru per lianoj … Estis certe iu infano, kiu rulis ĝin sur arbtrunketo sur la deklivo — kaj li ekhavis ideon pri rado. Kaj ĉu vi vere kredas, ke iu serioza kaj plenkreska homo povus lanĉi kajtojn en la ĉielon kaj eksperimenti per atmosfera elektro? Tion faris infano Benjamin Franklin …”
 
 La sinjorino jam delonge sciis, ke ŝi ne havas ŝancon pra-vi kun la profesoro. Nu jes, ankaŭ li estas infano, havanta kaj realiganta ĉiujn rajtojn atribuitajn al infanoj …
 
 Efektive ne venis tiomaj homoj, ke regus denseco. ĉi tie
 
-kelkiu elementlernejano, tie pensiulo, poŝtisto — kaj nia de-legacio. Ja ne okazis io spektinda: knabo en marista ĉemizo venis el vestiblo de sia loĝbloko, rigardis iomete ĉirkaŭ si, pa-
-
-ŝis al plato, plena de vertikale starigitaj domenbriketoj, aran-
+kelkiu elementlernejano, tie pensiulo, poŝtisto — kaj nia de-legacio. Ja ne okazis io spektinda: knabo en marista ĉemizo venis el vestiblo de sia loĝbloko, rigardis iomete ĉirkaŭ si, paŝis al plato, plena de vertikale starigitaj domenbriketoj, aran-
 
 ĝitaj laŭ la formo de la urba silueto. De iu flanko ekfulmis fotoaparato. La knabo ekkaŭris kaj per la pinto de sia krajo-no tuŝis la unuan domenbriketon. Estis, kvazaŭ vento blovus trans la tritika kampo kaj tritikaj spikoj laŭvice kliniĝus. En kelkaj sekundoj la unusemajna zorgega laboro de la pacienca lernanto falis en etan optikan miraklon.
 
@@ -1947,14 +1578,9 @@ kelkiu elementlernejano, tie pensiulo, poŝtisto — kaj nia de-legacio. Ja ne o
 
 por barakti kun tiuj domenbriketoj, sed tamen, mi ne komprenas, kial ni nepre devis tion vidi?” disraviĝis la sinjorino Majda.
 
-”Antaŭ sekundoj vi ĉeestis al unu el plej konvinkaj argu-
-
-mentoj por la ekzisto de Dio!” senĉirkaŭire proklamis An-
+”Antaŭ sekundoj vi ĉeestis al unu el plej konvinkaj argumentoj por la ekzisto de Dio!” senĉirkaŭire proklamis An-
 
 dreo.
-
-
-FILOZOFII SUBTENDE
 
 
 ”Por povi tion digesti, mi devas sidiĝi!” malesperiĝis Ade-la.
@@ -1963,9 +1589,7 @@ FILOZOFII SUBTENDE
 
 diris la nekredema Georgo.
 
-Ili iris ĝis la unua restoracio kaj sidiĝis. Antaŭ ol la kelnero ilin rimarkos, ili jam konsumos ĉiujn metafizikajn vojkruci-
-
-ĝojn.
+Ili iris ĝis la unua restoracio kaj sidiĝis. Antaŭ ol la kelnero ilin rimarkos, ili jam konsumos ĉiujn metafizikajn vojkruciĝojn.
 
 Tanja komencis kun kaŝita timo, ke ĉe la profesoro io ne
 
@@ -1987,9 +1611,7 @@ Tiom vi scias ĝis nun kaj ne pli. Nun vi komencas pensi. Se la domenkvadreto, k
 
 ”Ne miksu grandan sciencon kun komplika scienco! Bone.
 
-Mi konkludos plue. Se mi falis pro la falo de la antaŭa domenbriketo respektive kolego, sekve ankaŭ tiu devis fali el la 74
-
-FILOZOFII SUBTENDE
+Mi konkludos plue. Se mi falis pro la falo de la antaŭa domenbriketo respektive kolego, sekve ankaŭ tiu devis fali el la
 
 
 sama kaŭzo, ĉu? Sed la falado mem tiamaniere ne jam estas klarigita. Tiel mi konkludas de unu domenbriketo al la alia kaj ĉiam antaŭen … ĉar antaŭ mi troviĝas, ni diru, 15.000 da tiaj domenbriketoj, tiaspeca konkludado konsumas multe da mia
@@ -2012,11 +1634,7 @@ profesoro. ”Se tiel, ni povas konkludi jene: Dum mi falas kaj vidas, ke mi ne 
 
 ”Jes, bone …” agnoskis Adela.
 
-”Nu, konkludante pri la domenkvadreto antaŭ mi, tio es-
-
-tas jam la dua kialo, ke la falado ne troviĝas en mi, rolanta domenkvadreton. Se vere ekzistus 15.000 da tiaj domenkva-75
-
-FILOZOFII SUBTENDE
+”Nu, konkludante pri la domenkvadreto antaŭ mi, tio estas jam la dua kialo, ke la falado ne troviĝas en mi, rolanta domenkvadreton. Se vere ekzistus 15.000 da tiaj domenkva-75
 
 
 dretoj, do mi iom post iom fine kolektus 15.000 da argumentoj por la hipotezo, ke mi ne falas el la kaŭzoj en mi mem, sed pro io, kio troviĝas ekster la falanta vico. Do, se ekzistus infinito da tiaj unu post la alia falantaj domenbriketoj, mi kon-kludus, ke ekzistas infinito da argumentoj, ke la unua kaj la vera faliganto staras ekster la vico de la domenbriketoj. La infinito ne forigas kaj ne solvas la problemon, ĝi nur infini-tigas ĝin! Se la falon de unu sola domenbriketo oni malfacile povas kompreni, do la faladon de infinito da ili oni povas kompreni senfine malfacile! Sed per via demando vi pruvis ankoraŭ ion. La fina nombro de la domenbriketoj nepre supozas homojn, kiuj tiujn objektojn produktis, kaj la knabon, kiu ilin starigis kaj fine faligis — dum la senfino da domenbriketoj senpere demonstrus la ekziston de Dio.”
@@ -2027,16 +1645,12 @@ dretoj, do mi iom post iom fine kolektus 15.000 da argumentoj por la hipotezo, k
 
 ne povas ekzisti infinito. La vera infinito ne havas lokon por io apuda. Sed, eĉ se la infinito da objektoj ekzistus, daŭre validus la logiko, ke iu devas ilin movi, kiu mem ne apartenas al la senfina vico da domenbriketoj. Temas pri la estaĵo, kiu ne estas limigita tempe kaj loke, kiu ne ’konkurencas’ kun la domenkvadretoj por ilia tempo kaj loko. Al tia estaĵo oni jam dum jarmiloj diras — Dio!”
 
-Jam troviĝante en la urbomezo, ili vizitis iun alian eventon: malfermon de la pentrista ekspozicio en la urba galerio. Iu 76
-
-FILOZOFII SUBTENDE
+Jam troviĝante en la urbomezo, ili vizitis iun alian eventon: malfermon de la pentrista ekspozicio en la urba galerio. Iu
 
 
 legis de sia paperfolio. Koruso kantis tri kantojn. La urbestro solene malfermis la ekspozicion.
 
-Estis unu sola problemo kaj embaraso. La pentraĵoj, pen-
-
-dantaj sur la tolvandoj, estis pentritaj tiel, ke nia grupo vane gapis tien. Neniu bildo sugestis motivon kaj enhavon. Tanja la unua kuraĝis rimarki:
+Estis unu sola problemo kaj embaraso. La pentraĵoj, pendantaj sur la tolvandoj, estis pentritaj tiel, ke nia grupo vane gapis tien. Neniu bildo sugestis motivon kaj enhavon. Tanja la unua kuraĝis rimarki:
 
 ”Bone, sinjoro profesoro, kion tiuj ĉi bildoj verdire prezentas?”
 
@@ -2062,27 +1676,18 @@ ankaŭ la bildoj simple ne povus signifi sin mem?” komentis Andreo. Sed ankaŭ
 
 ”Jes, ankaŭ …”
 
-”Do, nun bonvolu diri al mi, pri kio la sunsubiro konkre-
-
-te memorigas, kion ĝi prezentas? ĉu ĝi similas al certa besto, homo, instalaĵo aŭ konstruaĵo? ĉu ne estas ankaŭ ĝi simpla kampo de diversaj koloroj kaj kolornuancoj, kiuj signifas nenion konkretan krom sin mem, sed ĝi tamen nin impresigas
+”Do, nun bonvolu diri al mi, pri kio la sunsubiro konkrete memorigas, kion ĝi prezentas? ĉu ĝi similas al certa besto, homo, instalaĵo aŭ konstruaĵo? ĉu ne estas ankaŭ ĝi simpla kampo de diversaj koloroj kaj kolornuancoj, kiuj signifas nenion konkretan krom sin mem, sed ĝi tamen nin impresigas
 
 fortege?”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Pri tio vi pravas …” cedis la sinjorino.
 
-”Do ankaŭ la bildo povas elvoki admiron, sen nepre mon-
-
-tri ion, kion oni jam konas de aliaj lokoj. i povas montri an-kaŭ tute novan formon aŭ kolorskalon kaj tamen esti arta
+”Do ankaŭ la bildo povas elvoki admiron, sen nepre montri ion, kion oni jam konas de aliaj lokoj. i povas montri an-kaŭ tute novan formon aŭ kolorskalon kaj tamen esti arta
 
 kreaĵo. Ja bela nubo ankaŭ estas artaĵo, kvankam sur ĝi oni ne povas rekoni teleron kun mortaj fiŝoj aŭ narcisbukedon …”
 
-”Bone, sed kiamaniere post ĉio tio diferencigi verajn ar-
-
-taĵojn disde la malveraj, se oni ne povas ilin plu kompari kun originaj objektoj?” demandis Adela.
+”Bone, sed kiamaniere post ĉio tio diferencigi verajn artaĵojn disde la malveraj, se oni ne povas ilin plu kompari kun originaj objektoj?” demandis Adela.
 
 ”Temas pri tre saĝa demando. Antaŭ iom da tempo ne estis
 
@@ -2100,9 +1705,7 @@ dentoj:
 
 ”Ja vi antaŭe diris …” rapide intervenis Adela.
 
-”Jes, antaŭe mi diris, ke la esenco de la pentra arto ne estas en tio, ke ĝi sorĉu antaŭ niaj okuloj plenan similecon kun la objekto fenomenoj aŭ personoj, kiujn ni konas en la reala 78
-
-FILOZOFII SUBTENDE
+”Jes, antaŭe mi diris, ke la esenco de la pentra arto ne estas en tio, ke ĝi sorĉu antaŭ niaj okuloj plenan similecon kun la objekto fenomenoj aŭ personoj, kiujn ni konas en la reala
 
 
 mondo. Sed tio ne signifas, ke bona pentristo tamen siamaniere ne imitas tiujn motivojn en alta grado!”
@@ -2111,25 +1714,19 @@ mondo. Sed tio ne signifas, ke bona pentristo tamen siamaniere ne imitas tiujn m
 
 lia edzino Majda, ”ĉu la punkto de imitado ne estas ĝuste, trafi la formojn de la originalaĵo?”
 
-”Ne, tio ne estas imitado, tio estas kopiado. Mi donu ek-
-
-zemplon el la teknika mondo. Kion vi opinias, Georgo, ĉu la aviadila konstruktoro dum konstruado de sia aviadila modelo la birdon kopias aŭ imitas?”
+”Ne, tio ne estas imitado, tio estas kopiado. Mi donu ekzemplon el la teknika mondo. Kion vi opinias, Georgo, ĉu la aviadila konstruktoro dum konstruado de sia aviadila modelo la birdon kopias aŭ imitas?”
 
 ”Klare, ke li ne kopias, ja sekve ankaŭ aviadiloj devus flirti per flugiloj same kiel la birdoj, ili devus pepi kiel birdoj kaj konstrui nestojn kiel birdoj, anstataŭ ripozi en hangaroj …”
 
 ŝercis Georgo.
 
-”Vi bone diris. Aviadilo, kiu provus esti kopio de birdo, estus ege mallerta aparato. La historio de la aviadila evoluo postlasis al ni kelkajn tiuspecajn kuriozaĵojn. Sed sukceson havis nur tiuj modeloj, kiuj ne provis la birdon kopii, sed laŭ-
-
-eble bone laŭesence imiti. Kaj tiel la aviadiloj kun la turni-
+”Vi bone diris. Aviadilo, kiu provus esti kopio de birdo, estus ege mallerta aparato. La historio de la aviadila evoluo postlasis al ni kelkajn tiuspecajn kuriozaĵojn. Sed sukceson havis nur tiuj modeloj, kiuj ne provis la birdon kopii, sed laŭeble bone laŭesence imiti. Kaj tiel la aviadiloj kun la turni-
 
 ĝanta helico multe pli bone imitas la esencon de la birda flugado, ol tiuj mallertaj kriplaĵoj, kiuj trifoje saltetis duonan metron en alteco kaj poste kolapsis. Se oni bone pripensus ĉiujn grandajn teknikajn solvojn, oni vidus, ke ili ĉiuj sprite imitas la manieron, kiel la saman problemon solvis la naturo.
 
 Kaj ĉiam, kiam iu volas la naturon senpene kaj senfantazie simple kopii, lia laboro sinkas en malgloron. Ankoraŭ unu ekzemplo. La veturilo ne havas alian taskon ol la ĉevalo, kiu
 
-ĝin tiras: transporti ŝarĝon de unu loko al la alia. Sed imagu, kian monstron oni ricevus, se oni provus simple kopii la ĉe-valon, farante ĉaron kun gamboj anstataŭ kun radoj … Kaj se tiel estas en la mondo de tekniko, kial estu alie en la mondo 79
-
-FILOZOFII SUBTENDE
+ĝin tiras: transporti ŝarĝon de unu loko al la alia. Sed imagu, kian monstron oni ricevus, se oni provus simple kopii la ĉe-valon, farante ĉaron kun gamboj anstataŭ kun radoj … Kaj se tiel estas en la mondo de tekniko, kial estu alie en la mondo
 
 
 de la arto? La pentristoj, kiuj provas ravigi observantojn nur per perfekta simileco de siaj bildoj al la motive uzitaj objektoj aŭ personoj, faras la samon kiel inventistoj de aŭtomobilo per ĉevalaj gamboj anstataŭ kaŭĉukmantelaj radoj. La pentristo, kiu estas vera artisto, objektojn ne kopias, sed resumas ilian internan veron per propraj solvoj. Tiuj solvoj ne estas plu nur aŭ nepre laŭforme similaj al la originaj objektoj, tamen ilin envere multe pli fidele imitas ol tio kion povas fari nur lerta desegnisto, ilpianta. Same, kiel nur tiu aparato povas flugi, kiu la birdan flugadon imitas kaj ne kopias, tiel ankaŭ nur tiuj artaĵoj vivas, kiuj la naturon imitas, dum nur morta teknika lerteco ĝin blinde kopias.”
@@ -2137,9 +1734,6 @@ de la arto? La pentristoj, kiuj provas ravigi observantojn nur per perfekta simi
 Ili sentis, ke la profesoro pravis. Tamen ne estis facile subite meti sin en tiun novan manieron observi la ekspoziciitajn verkojn. Tanja finis sian ĉirkaŭiron. ŝi trovis tualetejon, eksta-ris antaŭ la spegulo kaj demandis al sia spegula bildo:
 
 ”Nu vere: kion efektive prezentas vi?”
-
-
-FILOZOFII SUBTENDE
 
 
 IX.
@@ -2160,12 +1754,7 @@ bruligis ŝiajn knabinajn ŝultrojn. Verdire tio jam estas pasinto; doloro ne pl
 
 Ankaŭ tio venos.
 
-Subite iu estaĵo komencis sur unu piedo salteti direkte al dunoj. Estis Tanja, kiu tretis ekinon. En ŝia pieda dikfingro troviĝis nigra punkto — injektilo de la ekina sindefenda arze-nalo … Ili kunvenis ĉirkaŭ la malfeliĉulino. Sinjorino Majda jam prenis el sia korbo pinĉileton, nadlon, fajrigilon. La ope-81
-
-FILOZOFII SUBTENDE
-
-
-racio estis baldaŭ finita kaj la societo sidiĝis ĉirkaŭ la torpe-dita dikfingro de Tanja.
+Subite iu estaĵo komencis sur unu piedo salteti direkte al dunoj. Estis Tanja, kiu tretis ekinon. En ŝia pieda dikfingro troviĝis nigra punkto — injektilo de la ekina sindefenda arze-nalo … Ili kunvenis ĉirkaŭ la malfeliĉulino. Sinjorino Majda jam prenis el sia korbo pinĉileton, nadlon, fajrigilon. La operacio estis baldaŭ finita kaj la societo sidiĝis ĉirkaŭ la torpe-dita dikfingro de Tanja.
 
 ”ĉu ni ne fartas spite al ĉio ege bone?” ekmeditis la profesoro.
 
@@ -2199,13 +1788,7 @@ Ili paŝis inter la arbojn, kie staris iliaj du tendoj. La profesoro enketis, ki
 
 ”Racia solvo, alportu!” Andreo ĝojis. Al sinjorino Majda ĉio tio ne tro plaĉis, ja ŝi vidis neniun ligon inter la diskuto pri la televido kaj tiu ĉi lornoserĉado. Sed ŝi sciis, ke rilate Andre-on estas pli bone pacience atendi. is io elĝermos.
 
-Intertempe Duŝan jam aperis kun sia kamerao. ian turno-
-
-
-FILOZOFII SUBTENDE
-
-
-platan objektivon li turnis tiel, ke oni tra la serĉfenestreto povis vidi malproksimajn objektojn tute proksimaj, same kiel ĉe vera lorno.
+Intertempe Duŝan jam aperis kun sia kamerao. ian turnoplatan objektivon li turnis tiel, ke oni tra la serĉfenestreto povis vidi malproksimajn objektojn tute proksimaj, same kiel ĉe vera lorno.
 
 ”Nun ni faros eksperimenton,” anoncis la profesoro.
 
@@ -2226,24 +1809,15 @@ en tiu ĉi mondo. La rilatoj inter la objektoj, kiujn starigas la lensoj en la a
 Sudameriko la policistoj iun homon arestas kaj turmentas; kiamaniere en orienta Eŭropo la alia polico pri iu enketas …
 
 
-FILOZOFII SUBTENDE
-
-
 Kaj kiam oni ĉion tion tiel deproksime rigardas, ĉu oni ne ricevas impreson, ke tio estas la propra afero, pri kiu oni plene respondecas kaj povas multon interveni? Sed kiam ĉesas la dissendo, kiam oni foriras en la ĉiutagan vivon, ĉu oni ne ricevas la saman senton, kvazaŭ marŝi kun lorno surokule?
 
-Neniu afero plu estas en ĝusta proporcio, ĉiu objekto estas necerta, same kiel la trompa bildo surekrane. ĉar la ekrana bildo vin narkotis kaj sugestis al vi kredon, ke vi povas ion entrepreni en Azio, vi subite fariĝas malkapabla fari ion realan en propra vilaĝo. ĉar vi respondecas pri la revolucio en Latinameriko, vi fariĝas indiferenta pri la malpura aŭtobusa stacio en propra urbo … Same, kiel sub la efiko de la lorno ŝanceliĝas viaj gamboj, tiel subefike de la televido ŝanceliĝas via spirito. La lorno vin trompas, ke la objektoj estas tute ĉemane kaj tial vi perdas ekvilibron. Sed la televido vin trompas, ke ĉiuj okazintaĵoj kaj movadoj en la tuta mondo troviĝas en la regiono de via respondeco, kono kaj intervenopovo. Tial vi iom post iom perdas vian psikan ekvilibron kaj transformi-
-
-ĝas en pasivan observanton, kiu senkritike suĉas ĉion, kio flirtas surekrane. Anstataŭ mem vivi, vi spektas, kiamaniere oni vivas en Florido aŭ en Parizo aliaj personoj. Anstataŭ mem ribeli kontraŭ maljusto, vi surekrane akompanas malproksimajn ribelojn kaj revoluciojn.”
+Neniu afero plu estas en ĝusta proporcio, ĉiu objekto estas necerta, same kiel la trompa bildo surekrane. ĉar la ekrana bildo vin narkotis kaj sugestis al vi kredon, ke vi povas ion entrepreni en Azio, vi subite fariĝas malkapabla fari ion realan en propra vilaĝo. ĉar vi respondecas pri la revolucio en Latinameriko, vi fariĝas indiferenta pri la malpura aŭtobusa stacio en propra urbo … Same, kiel sub la efiko de la lorno ŝanceliĝas viaj gamboj, tiel subefike de la televido ŝanceliĝas via spirito. La lorno vin trompas, ke la objektoj estas tute ĉemane kaj tial vi perdas ekvilibron. Sed la televido vin trompas, ke ĉiuj okazintaĵoj kaj movadoj en la tuta mondo troviĝas en la regiono de via respondeco, kono kaj intervenopovo. Tial vi iom post iom perdas vian psikan ekvilibron kaj transformiĝas en pasivan observanton, kiu senkritike suĉas ĉion, kio flirtas surekrane. Anstataŭ mem vivi, vi spektas, kiamaniere oni vivas en Florido aŭ en Parizo aliaj personoj. Anstataŭ mem ribeli kontraŭ maljusto, vi surekrane akompanas malproksimajn ribelojn kaj revoluciojn.”
 
 ”Mi esperas, ke tio ne anoncas detruon de ĉiuj lornoj kaj teleobjektivoj, ektimis pri sia Tessar Duŝan.
 
-”Kompreneble ne. Eĉ la televidilon ni povas senzorge po-
+”Kompreneble ne. Eĉ la televidilon ni povas senzorge posedi en niaj domoj. Sed tiel, kiel ni nur esceptokaze rigardas tra la lorno, same nur esceptokaze havas sencon spekti tele-vidan programon. Ni ne permesu, ke la maŝineto nin super-
 
-sedi en niaj domoj. Sed tiel, kiel ni nur esceptokaze rigardas tra la lorno, same nur esceptokaze havas sencon spekti tele-vidan programon. Ni ne permesu, ke la maŝineto nin super-
-
-sorĉu. Dum tuta tempo de nia spektado ni devas konscii, ke 84
-
-FILOZOFII SUBTENDE
+sorĉu. Dum tuta tempo de nia spektado ni devas konscii, ke
 
 
 ni spektas tra la objektivo, kiu ne estas parto de ni. Ni mem vidus la saman aferon alimaniere, se ni mem tie troviĝus,”
@@ -2254,9 +1828,7 @@ Post la tagmanĝo neniu ekhavis konvenan ideon, kion fari.
 
 Sur la vando de la gazetara kiosko afiŝo invitis: ŝaksimultana matĉo de la internacia majstro Teplov kun 25 plej bonaj ŝakludantoj el nia komunumo … Nu, tio povus esti io ne ekstreme enua por hodiaŭ. En la granda hotela salono, kien cetere venas sidi eksterlandaj negocistoj, sportorganizantoj kaj foje kulturorganizantoj …
 
-”ĉu la ŝako havas rilaton kun la filozofio?” palpe deman-
-
-dis Duŝan, sekvinta sian intereson kiel ĉampiono de la lernejo.
+”ĉu la ŝako havas rilaton kun la filozofio?” palpe demandis Duŝan, sekvinta sian intereson kiel ĉampiono de la lernejo.
 
 ”Depende de la aspekto,” respondis la profesoro. ”Se vi
 
@@ -2268,9 +1840,7 @@ veturos en la urbon spekti tiun matĉon de unu kontraŭ 25.
 
 ”Principe ne plaĉas al mi, se iu, kiu suverene regas certan disciplinon, kiel koko sur sia sterkoamaso volas vetkuri kontraŭ la amaso de aliaj, kiuj ne atingas lian nivelon. Sed min allogas io alia. Mi volas, ke vi ĉiuj en tiu ĉi ludo ekkonu ion, kio situas tute ekster de la ŝaktabulo mem!” ankoraŭ diris Andreo, jam pesante en sia mano aŭtoŝlosilon.
 
-Ili veturis preter luksaj vilaoj, ĉirkaŭitaj per flegitaj ĝarde-noj. Antaŭ ĉiu el ili brilis aŭtomobila lado, ĉe multaj domoj kuŝis sur apogtrabaroj motorjaktoj foje ne malpli kostaj ol la 85
-
-FILOZOFII SUBTENDE
+Ili veturis preter luksaj vilaoj, ĉirkaŭitaj per flegitaj ĝarde-noj. Antaŭ ĉiu el ili brilis aŭtomobila lado, ĉe multaj domoj kuŝis sur apogtrabaroj motorjaktoj foje ne malpli kostaj ol la
 
 
 domoj. Ne estis dubo: la tajdo puŝis plaŭde surborden ankaŭ riĉecon. La suno ne helpis en kresko nur ĝardenaĵojn, fruk-tarbojn kaj arbedojn, sed ankaŭ monkapitalon en bankoj.
@@ -2289,9 +1859,7 @@ domoj. Ne estis dubo: la tajdo puŝis plaŭde surborden ankaŭ riĉecon. La suno
 
 ”Unue mi devas klarigi, kion mi opiniis per la vortoj: havi multe estas tro malmulte — havi malmulte estas jam havi iom pli. Unuavide nelogike kaj neeble. Bonvolu tamen konsideri, ke oni atribuas al la vorto ’havi’ diversajn signifnuancojn. Mi pensas tiel: ju pli da diversaj objektoj oni havas, des malpli oni el ili unuope havas. Se oni teorie havus senfine da aferoj, por ĉiu unuopa disponiĝus senfine malmulte da tempo kaj
 
-ebleco ĝin vere havi. Poligamiulo havas de ĉiu sia unuopa edzino malpli ol monogamiulo de sia unusola. Tial mi diris, ke pli distancas de la filozofia idealo tiu, kiu havas pli ol ne-cese multajn aĵojn, ja li de ĉiu el ili apenaŭ ion povas havi, ĉar li devas dividi sian tempon por ili ĉiuj. Jam en pli bona situacio troviĝas tiu, kiu havas nur malmulte da aĵoj, ja li povas 86
-
-FILOZOFII SUBTENDE
+ebleco ĝin vere havi. Poligamiulo havas de ĉiu sia unuopa edzino malpli ol monogamiulo de sia unusola. Tial mi diris, ke pli distancas de la filozofia idealo tiu, kiu havas pli ol ne-cese multajn aĵojn, ja li de ĉiu el ili apenaŭ ion povas havi, ĉar li devas dividi sian tempon por ili ĉiuj. Jam en pli bona situacio troviĝas tiu, kiu havas nur malmulte da aĵoj, ja li povas
 
 
 por ĉiu unuopa de ili dediĉi pli da tempo kaj energio, li do pli
@@ -2306,15 +1874,11 @@ Georgo ne povis tute akcepti la ideon:
 
 — kaj tio estas la afero de la filozofio — devas procedi tiel, kiel faras serĉantoj de nafto. Ili ne komencas bori ĉiam aliloke, se ili post kelkaj metroj ne tuj trovas la serĉatan substancon. Ili boras kelkajn cent metrojn sur la sama loko. Nur profundaj boraĵoj donas nafton, nur profunda fosado donas bonan ri-kolton — kaj ĉu ĝuste filozofoj kuru kiel obseditaj de unu objekto al la alia kaj leku ĝian eksteran aperon kaj diferencan pitoreskon. La supraĵa homo serĉas tion, en kio la aferoj diferencas — dum la filozofo finfine serĉas tion, laŭ kio ĉiuj aferoj similas aŭ eĉ identiĝas.”
 
-”Ni diru, ke ĝis tiu ĉi punkto ni povas vmpreni. Sed kiamaniere klarigi al si vian aserton, ke plej bone tamen estas, havi ĉion. Ne preskaŭ ĉion, sed ĝuste ĉion … ĉu tio ne kontraŭdiras tion, kion vi ĵus antaŭe diris?” malesperiĝis Du-
-
-ŝan.
+”Ni diru, ke ĝis tiu ĉi punkto ni povas vmpreni. Sed kiamaniere klarigi al si vian aserton, ke plej bone tamen estas, havi ĉion. Ne preskaŭ ĉion, sed ĝuste ĉion … ĉu tio ne kontraŭdiras tion, kion vi ĵus antaŭe diris?” malesperiĝis Duŝan.
 
 ”Kompreneble, ke kontraŭdiras. En tiu senco, kiel ’pli bo-ne’ kontraŭdiras al ’bone’.”
 
-”Bone, eĉ tion mi povas iel kompreni,” diris Georgo, ”sed kial damne, la vivo ju pli kongruas kun la filozofia idealo, des malpli da aĵoj oni havas, ĉar la profundeco de tiu ’havi’ kreskas — dum aliflanke, la plej alta kongruo ne troviĝas, kiel oni 87
-
-FILOZOFII SUBTENDE
+”Bone, eĉ tion mi povas iel kompreni,” diris Georgo, ”sed kial damne, la vivo ju pli kongruas kun la filozofia idealo, des malpli da aĵoj oni havas, ĉar la profundeco de tiu ’havi’ kreskas — dum aliflanke, la plej alta kongruo ne troviĝas, kiel oni
 
 
 devus konkludi laŭ via logiko, se oni posedus nur plu unu solan aĵon, ĉar tiam oni sin povus komplete dediĉi nur al ĝi, sed oni, kiel vi diris, posedu ĉion. Tion mi vere ne povas kompreni, diru kion vi volas!”
@@ -2328,16 +1892,11 @@ parto de la mondo apartenas al ili, dum ĉio alia apartenas al aliaj homoj. Se i
 ”Tio estas la plej malgranda el ĉiuj obstakloj por ke certaj homoj havu ĉion!” ne permesis sin ŝanceli Andreo.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Diru do, kiamaniere!”
 
 ”Ni havas, ni diru, nian fraŭlinon Adela kiel koleginon, ĉu ne? Kaj en tiu ĉi eco ni havas ŝin tuta, ne nur poparte, ekzemple nur ŝian kapon, kvankam ĝi iel utilas ĉe filozofiaj okupoj, ĉu ne?”
 
-”Jes, vi pravas, ni havas ŝin tuta!” ili ridete respondis laŭ-
-
-vice.
+”Jes, vi pravas, ni havas ŝin tuta!” ili ridete respondis laŭvice.
 
 ”Sed iliaj gepatroj ŝin havas kiel filinon, ĉu ne? Kaj ili ne havas ŝin nur parte, ekzemple nur ŝiajn manojn, kiuj povas utili ĉe certaj laboroj en kuirejo, ĉu?”
 
@@ -2345,20 +1904,13 @@ vice.
 
 ”ĉu ni povas el tio konkludi, ke oni ne devas objekton de havado dispartigi, kiel proponis la mensoga patrino antaŭ la Salomona tribunalo, sed oni ĝin povas havi samtempe kun la sama havado flanke de aliaj, ĉu?”
 
-”Mi opinias,” nun aŭdiĝis Adela mem, ”ke temas pri vort-
-
-luda truko. Havi ion tiel, kiel miaj gepatroj min havas filino aŭ vi havas mlegino, estas nur io, kio okazas en la kapo aŭ eble eĉ en la koro, sed tio ne estas io reala. Dume, vere havi, signifas efektive posedi, kaj tion ĉe la sama objekto ne povas fari pluraj samtempe.”
+”Mi opinias,” nun aŭdiĝis Adela mem, ”ke temas pri vortluda truko. Havi ion tiel, kiel miaj gepatroj min havas filino aŭ vi havas mlegino, estas nur io, kio okazas en la kapo aŭ eble eĉ en la koro, sed tio ne estas io reala. Dume, vere havi, signifas efektive posedi, kaj tion ĉe la sama objekto ne povas fari pluraj samtempe.”
 
 ”Interesa interveno, Adela!” laŭdis la profesoro. Tio signifis, ke Adela eraras, sciis ĉiuj, Adela inkluzive. ”Mi tamen pensas, ke iu ajn formo de ’havi’ okazas nur en la kapo kaj foje en la koro kaj neniam korespondas kun realo.”
 
-”Tamen,” kontraŭargumentis Adela, ”pri vera havaĵo vi po-
-
-vas disponi kaj tio estas io reala!”
+”Tamen,” kontraŭargumentis Adela, ”pri vera havaĵo vi povas disponi kaj tio estas io reala!”
 
 ”Bone, Adela, ni prenu simplan ekzemplon. Vi veturas en
-
-
-FILOZOFII SUBTENDE
 
 
 aŭtomobilo, kiun vi havas, ĉar ĝi estas ĉiuaspekte via. Vi realigas tiun posedon tiel, ke vi pri ĝi vere disponas, ĝin mani-pulas, ke vi ĝin stiras. Sed vi havas ankaŭ domon. Tion vi re-aligus tiel, ke vi en ĝi loĝus, ĝin diversmaniere uzus kaj probable per ĝi manipulus. Sed en la tempo, kiam vi stiras vian aŭton, vi ne povas loĝi en via domo kaj uzi ĝin kaj tiel efektivigi vian posedon de ĝi. Sekve, laŭ via kriterio, la domo en tiu tempo ne estus vere via. Kompreneble la domo ankaŭ ti-utempe estas via havaĵo. Sed la fakto, ke vi la domon havas, ne tuj signifas, ke vi pri ĝi plene disponas. Paralele vi efektive disponas pri multaj aferoj, kiuj tute ne estas via propraĵo.
@@ -2369,9 +1921,7 @@ Kaj, pripensu, kiamaniere vi ’havas’ vian domon tiam, kiam vi ne disponas pr
 
 en Transvalo …”
 
-”Pa, tio estas fascina afero!” ironiis Adela. ”Laboristoj povas ĉesi per sia movado kaj fermi sindikatojn. La kapitalon de iliaj entreprenoj kaj laborejoj ja ne havas nur plu kapitalistoj, sed ankaŭ ili mem, eĉ ĉiu el ili havas ĉion, ne nur la tutan entreprenon, en kiu oni estas dungita, sed ĉiujn entreprenojn 90
-
-FILOZOFII SUBTENDE
+”Pa, tio estas fascina afero!” ironiis Adela. ”Laboristoj povas ĉesi per sia movado kaj fermi sindikatojn. La kapitalon de iliaj entreprenoj kaj laborejoj ja ne havas nur plu kapitalistoj, sed ankaŭ ili mem, eĉ ĉiu el ili havas ĉion, ne nur la tutan entreprenon, en kiu oni estas dungita, sed ĉiujn entreprenojn
 
 
 en la mondo. Bone, ili ne povas pri ĉio tio disponi, sed ili tion havas … Por tiu spritaĵo la financaj baronoj superŝutus vin per vera oro, pri kiu vi povus eĉ efektive disponi!”
@@ -2382,9 +1932,7 @@ en la mondo. Bone, ili ne povas pri ĉio tio disponi, sed ili tion havas … Por
 
 ĉu oni donu dezertojn nur al Araboj kaj fekundajn vinberejojn nur al Francoj? Tial al ĉiu novnaskito apartenas la tuta kosmo. Sed oni la mondon ne povas dispecigi nur pro moralaj motivoj, sed ankaŭ pro ĝia naturo. Mi estas la posedanto de la tuta kosmo ankaŭ tial, ĉar la tuta universo, ekde la planedo Tero ĝis la plej profundaj galaksiaj senfinoj efektive konsistigas mian grandan korpon. Kial? ĉu ekzistas materia limo inter mia haŭto kaj aero ĉirkaŭ ĝi? Maldenso de la aero kaj relativa kompakto de mia organismo kaj aliaj solidaj objektoj estas iel ’reala’ nur en nia homa dimensio kaj percep-tokapablo. Se ni povus malgrandiĝi ĝis la dimensio de atomoj, la diferencon inter la homa korpo kaj la aero ekster ĝi, ni ne povus rimarki. La atomo de karbono kiel partiklo en mia korpo estas samtipa aĵo ol la samelementa atomo en la aero ekster mi. Kie do troviĝas la ekzakta limo inter mia korpo kaj mia ĉirkaŭaĵo? Por niaj supraĵaj sensoj tiu ĉi limo verdire evidentas, sed por la fizikscienca rigardo ĝi ne ekzistas.
 
-Por la fiziko ekzistas unu sola grandega korpo de la universo, kies limojn ni ĝis nun ne jam tuŝis. Tio, kio faras limojn, estas la spirito, estas la spiritaj konceptoj, sed korpo estas unu 91
-
-FILOZOFII SUBTENDE
+Por la fiziko ekzistas unu sola grandega korpo de la universo, kies limojn ni ĝis nun ne jam tuŝis. Tio, kio faras limojn, estas la spirito, estas la spiritaj konceptoj, sed korpo estas unu
 
 
 sola kaj ni ĉiuj estas nur ĝiaj aŭtonomiaj partoj. Ni ĉiuj, la tuta homa raso, estas nur pluraj kapoj de la sama giganta drako.
@@ -2399,38 +1947,27 @@ socialistis Georgo.
 
 ”Tian digestan strangulon mi, kompreneble, ne konas.”
 
-”Adela, eble vi konas iun homon, kiu dumvintre zorge kov-
-
-rus sian kapon, sed siajn piedojn li lasus nekovritaj, pensan-te, nu, la piedoj, tio efektive ne plu estas mi … ĉu?”
+”Adela, eble vi konas iun homon, kiu dumvintre zorge kovrus sian kapon, sed siajn piedojn li lasus nekovritaj, pensan-te, nu, la piedoj, tio efektive ne plu estas mi … ĉu?”
 
 ”Mi iel oblikve lin alrigardus, se tia ulo troviĝus …”
 
 ”Kiel vi mem vidas, ni zorgas por nia korpo kiel tuto. Ni aranĝas ĝian reĝimon iusence laŭ la komunisma principo: ĉiu funkciu laŭ siaj kapabloj kaj eblecoj — kaj ĉiu ricevu laŭ siaj bezonoj! Se mia maldekstra mano rompiĝas kaj ne povas plu labori, mi ne ĉesas ĝin nutri kaj prizorgi, ĝuste kontraŭe! ĉu ne estas klare, ke ni ankaŭ nian grandan korpon, la planedon, kaj iam poste eble eĉ la tutan kosmon, traktos kaj prizorgos laŭ tiu ĉi principo nur tiam, se ĉiu ĝin sentos kaj konceptos propra korpo? Ekspluati aliulon laŭ tio signifus — ekspluati sin mem. Torturi aliulon kaj lin mortigi signifus efektive —
 
-torturi kaj mortigi sin mem. Tiusence la problemaro, kiu ĝis nun koncernis iun foran fremdan mondon, subite fariĝas mia 92
-
-FILOZOFII SUBTENDE
+torturi kaj mortigi sin mem. Tiusence la problemaro, kiu ĝis nun koncernis iun foran fremdan mondon, subite fariĝas mia
 
 
 propra problemaro, koncernas la saman mondon, kiun ankaŭ
 
 la mio surloĝas, eĉ pli, koncernas mian propran pli larĝan korpon. Tiel la malsato en Afriko fariĝas ankaŭ mia malsato.
 
-Atomeksperimentoj ne kontaminas plu nur fremdajn dezer-
-
-tojn kaj oceanojn, sed mian propran tutecan korpon. Verdi-re, en la momento, kiam mi sukcesas ĉion percepti mia propraĵo, kiam la tuta kosmo fariĝas mia giganta korpo, mi komencos kontraŭ la tuta medio konduti kiel interesita mastro kaj ne kiel pigra luanto. Por la tuta atingebla mondo, kiu pere de tekniko kaj sciencoj fariĝas ĉiutage pli granda, mi penos realigi same racian kaj justan reĝimon, kiel estas tiu en mia individua eta korpo. Same kiel la cerboĉeloj, respondecaj por kunordigi la funkciadon de mia korpo, estas je sama dispono por ĉiuj periferiaj ĉeloj kaj organoj, ke la organika kibernetiko tuj enŝaltas helpon, se ie ajn estiĝas problemo, samtiel mia racio kaj la konsiliĝo de ĉiuj individuaj racioj, senegois-me en deĵorgardado por la intereso de mia kaj nia tuteca kosma korpo. Same tiel, kiel mia eta korpocerbo ne silentigas la doloron de certa korpoparto, sed reagas je ĝi per tuja helpo kaj interveno, tiel ankaŭ la dolorojn en nia giganta korpego
+Atomeksperimentoj ne kontaminas plu nur fremdajn dezertojn kaj oceanojn, sed mian propran tutecan korpon. Verdi-re, en la momento, kiam mi sukcesas ĉion percepti mia propraĵo, kiam la tuta kosmo fariĝas mia giganta korpo, mi komencos kontraŭ la tuta medio konduti kiel interesita mastro kaj ne kiel pigra luanto. Por la tuta atingebla mondo, kiu pere de tekniko kaj sciencoj fariĝas ĉiutage pli granda, mi penos realigi same racian kaj justan reĝimon, kiel estas tiu en mia individua eta korpo. Same kiel la cerboĉeloj, respondecaj por kunordigi la funkciadon de mia korpo, estas je sama dispono por ĉiuj periferiaj ĉeloj kaj organoj, ke la organika kibernetiko tuj enŝaltas helpon, se ie ajn estiĝas problemo, samtiel mia racio kaj la konsiliĝo de ĉiuj individuaj racioj, senegois-me en deĵorgardado por la intereso de mia kaj nia tuteca kosma korpo. Same tiel, kiel mia eta korpocerbo ne silentigas la doloron de certa korpoparto, sed reagas je ĝi per tuja helpo kaj interveno, tiel ankaŭ la dolorojn en nia giganta korpego
 
 — ni diru, la kriojn de la humiligitaj kaj prirabitaj individuoj kaj popoloj, kaj ankaŭ protestojn de pli saĝaj kaj antaŭvide-maj homoj — oni ne silentigu per la aspirino de la cenzuro kaj teroro aŭ per mensoga propagando kaj falsifikado de faktoj, sed ni devas la problemojn solvi. ĉu vi do ne havas impreson, ke la mondo estus multe pli bone aranĝita, ke en ĝi troviĝus multe pli da justo, se pli multaj scius, ke ĉio apartenas ankaŭ al ili, al ĉiu unuope, al ĉiu ĉio; ke ili pri ĉio respondecas, ke ĉio konsistigas ilian ĝeneralan korpegon?”
 
 
-FILOZOFII SUBTENDE
-
-
 Post tiuj ĉi vortoj Andreo komencis serĉi parkejon. Io ŝajnis stranga.
 
-”ĉu vi ne rimarkis, ke ni dumtempe jam trifoje ĉirkaŭve-
-
-turis la tutan urbon, ĉar vi tiel perdiĝis en viaj vortoj?” tiklis lin sinjorino Majda.
+”ĉu vi ne rimarkis, ke ni dumtempe jam trifoje ĉirkaŭveturis la tutan urbon, ĉar vi tiel perdiĝis en viaj vortoj?” tiklis lin sinjorino Majda.
 
 Evidente la simultana ŝakludo jam venis ĝis sia duona stadio. Sur ĉiuj 24 ŝaktabuloj venkis la provokinto, nur sur unu okazis pato. La ludintoj silente enmiksiĝis inter aliajn spek-tantojn. Demonstristo sur granda panelo ripetis ĉiun ŝakmo-von. Tiu, kiu atingis paton, estis la ĉampiono de la regionaj kluboj.
 
@@ -2440,18 +1977,11 @@ La spektantoj demandis pri tiuj kutimaj duonstultaĵoj kaj kuriozaĵoj pri kiuj 
 
 ”Majstro; mi ne estas bona konanto de la ŝaka ludo kaj tial mi eble iomete naive demandos, se mi rajtas …”
 
-”Bonvolu, sinjoro, ankaŭ mi ne respondas ekstreme sa-
-
-ĝe …”
+”Bonvolu, sinjoro, ankaŭ mi ne respondas ekstreme saĝe …”
 
 ”Jen, tio ĉi min interesas: ĉu estus eble, ke inter tiuj 25 viaj kontraŭludantoj sidus homo, kiu komprenus pri la ŝaka ludo nur tion, kien oni povas movi unuopajn figurojn, sed efektive li ne scius ludi — kaj li tamen gajnus la partion, ĉar hazardo lin favorus kaj li hazarde movus siajn figurojn tiel, kvazaŭ lin gvidus lia faka kompetento?”
 
-”Ne, neniu povas supervenki bonan ŝakludiston, se li ludas nur hazarde. Hazardo povas favori nur unu el du same ne-94
-
-FILOZOFII SUBTENDE
-
-
-kompetentaj ŝakludistoj, sed luktante kontraŭ la racio kaj scio, hazardo ne havas ŝancon.”
+”Ne, neniu povas supervenki bonan ŝakludiston, se li ludas nur hazarde. Hazardo povas favori nur unu el du same nekompetentaj ŝakludistoj, sed luktante kontraŭ la racio kaj scio, hazardo ne havas ŝancon.”
 
 ”Do laŭhazarde oni eĉ ne povas plekti sistemon de bonaj
 
@@ -2474,9 +2004,6 @@ Ili forlasis la hotelon. Ili sidiĝis en la parko, aranĝita apud la konstruaĵo
 ”Vi pravas, Adela, ĝuste tion ĉi mi volis per tio esprimi. Sed la afero vin ŝajne pli tiklas ol oni imagas unuavide. Bonege, brave!”
 
 
-FILOZOFII SUBTENDE
-
-
 X.
 
 ***Pri tio, kiamaniere Adela volis***
@@ -2495,37 +2022,24 @@ gento ne jam sufiĉe suferis pro ŝia pomo, prenis el la forno molan blankan pan
 
 ”ĉu ne domaĝe,” tute el sia pastoŝaŭmo diris Adela, ”ke
 
-oni ne povas sin tute disponigi al la suno? Mi opinias, ke la hontosento pri propra korpo ne nur ne estas malpli sana, sed eĉ malpli kongrua kun la filozofio, se ni jam pri ĝi okupi-
-
-ĝas …”
+oni ne povas sin tute disponigi al la suno? Mi opinias, ke la hontosento pri propra korpo ne nur ne estas malpli sana, sed eĉ malpli kongrua kun la filozofio, se ni jam pri ĝi okupiĝas …”
 
 Aliaj iomete interŝanĝis rigardojn, sed la profesoro trankvile respondis, ke Adela tute pravas kaj ke vere ne sencas honti pri propra korpo. Tanja elsub sia ruĝiĝo demandis: ”ĉu vi intencas nnduki al la nudisma plaĝo?”
 
 
-FILOZOFII SUBTENDE
-
-
-”He, tio estus unuaranga afero!” jam entuziasmiĝis Geor-
-
-go.
+”He, tio estus unuaranga afero!” jam entuziasmiĝis Georgo.
 
 ”Se mi diris, ke ni ne bezonas honti pri niaj korpoj, mi per tio ne jam diris, ke estus bone tuj seniĝi de ĉiuj vestoj antaŭ publiko!” diris la profesoro.
 
-Sinjorino Majda ŝmiris ion sur pantranĉaĵojn, venteto lu-
+Sinjorino Majda ŝmiris ion sur pantranĉaĵojn, venteto ludis per bankalsonoj, kiuj sekiĝis sur ŝnureto. La suno tuŝis la unuajn pintojn de pinoj. Strange. ĉiuj aĵoj en la naturo verdire estas nudaj; tiaj, kiaj ili simple estas. Nur la homo sentas bezonon ion surmeti.
 
-dis per bankalsonoj, kiuj sekiĝis sur ŝnureto. La suno tuŝis la unuajn pintojn de pinoj. Strange. ĉiuj aĵoj en la naturo verdire estas nudaj; tiaj, kiaj ili simple estas. Nur la homo sentas bezonon ion surmeti.
-
-”Pri kio do ni hontu, se ne pro propra korpo, ke ni tamen ne estu nudaj?” demandis sinjorino Majda, kiam ŝi viŝis tran-
-
-ĉilon ĉe sia lasta pantranĉaĵo.
+”Pri kio do ni hontu, se ne pro propra korpo, ke ni tamen ne estu nudaj?” demandis sinjorino Majda, kiam ŝi viŝis tranĉilon ĉe sia lasta pantranĉaĵo.
 
 ”Probable ne la honto estas, kio nin metas en pantalonojn
 
 …” diris Georgo.
 
-”Bonvolu sendi nian koleginon Adela sen ĉio en urbome-
-
-zon, kaj vi vidos ŝian hontosenton!” diris Andreo.
+”Bonvolu sendi nian koleginon Adela sen ĉio en urbomezon, kaj vi vidos ŝian hontosenton!” diris Andreo.
 
 ”Bone, se jam temas pri la honto — pro kio oni hontu, se
 
@@ -2535,9 +2049,7 @@ Dum certa tempo neniu sin esprimis, poste la profesoro
 
 komencis paŝi ronde ĉirkaŭ la tendoj, kiel li kutimis, se li volis sin prepari por certa temo. Li spiris iomete pli profunde, li rigardis ien al horizonto, kvazaŭ li atendus la solvon de tiuj montoj. Poste li komencis per obstino de fosisto kaj per pru-dento de detektivo starigi demandon post demando, ĝis la
 
-disĉiploj efektive mem trovu respondon al sia demando. Kaj tiun metodon, ke li ne metis sian respondon antaŭ iliajn piedojn, sed ili sub lia akompano mem trovis ĝin, ili pli kaj pli aprezis, konsciante, ke surtabligita vero baldaŭ fuĝas el homa 97
-
-FILOZOFII SUBTENDE
+disĉiploj efektive mem trovu respondon al sia demando. Kaj tiun metodon, ke li ne metis sian respondon antaŭ iliajn piedojn, sed ili sub lia akompano mem trovis ĝin, ili pli kaj pli aprezis, konsciante, ke surtabligita vero baldaŭ fuĝas el homa
 
 
 memoro kaj malpli lin tenas ol tiu, kiun oni atingas sur la dekliva pado mem.
@@ -2556,22 +2068,15 @@ radioamatoro.
 
 ekmiris sinjorino Majda.
 
-”Kaj tamen tio estas unu el ne tro postulemaj programoj de nia vegetala nervsistemo. Sed kion diri pri komputilo kun 14
+”Kaj tamen tio estas unu el ne tro postulemaj programoj de nia vegetala nervsistemo. Sed kion diri pri komputilo kun
 
-miliardoj da elementoj, el kiuj ĉiu povas registri dudek milo da informoj, kombineblaj je dekmil manieroj? La tuta nombro de eblaj kombinoj estas proksimume centoble pli gran-
-
-da ol la nombro de atomoj en nia sunsistemo. Kaj apud tiu ĉi komputilo sen komparo funkcias ankoraŭ cent trilionoj da
+miliardoj da elementoj, el kiuj ĉiu povas registri dudek milo da informoj, kombineblaj je dekmil manieroj? La tuta nombro de eblaj kombinoj estas proksimume centoble pli granda ol la nombro de atomoj en nia sunsistemo. Kaj apud tiu ĉi komputilo sen komparo funkcias ankoraŭ cent trilionoj da
 
 memstaraj mekanismoj, kiuj regulas la vivon de unuopaj ĉeloj. Kiu mondkonata firmao, kiu produktas komputilajn sistemojn, hontus pri tia atingo, kiu apud ĉio ne pezas pli ol du kilogramojn kaj uzas nur kelkajn vatojn da energio?”
 
-”Estas granda demando, ĉu iam ajn oni povos ion tian pro-
+”Estas granda demando, ĉu iam ajn oni povos ion tian produkti per homaj rimedoj,” dubis Georgo.
 
-
-dukti per homaj rimedoj,” dubis Georgo.
-
-”Tamen ĝuste tia estas jam tute averaĝa, eĉ ne speciale sagaca homa cerbo. Ni disponas do pri aparato, kiu jam en sia origina stato, do malsolida kaj facile vundebla, super ĉiuj 98
-
-FILOZOFII SUBTENDE
+”Tamen ĝuste tia estas jam tute averaĝa, eĉ ne speciale sagaca homa cerbo. Ni disponas do pri aparato, kiu jam en sia origina stato, do malsolida kaj facile vundebla, super ĉiuj
 
 
 komparoj superas la tutan homan scion kaj fareblon. En tiu ĉi aparato estas, kiel en futureca sciencfikcia filmo, kaptita spirito, kiu pliparte vivas ankoraŭ en ŝtonepoko; kiu eĉ proksimume ne estas same sagaca, kiel estas sagaca la plej malgranda piedfingro; eĉ proksimume ne tiel nobla, kiel estas nobla la lasta leŭkocito en ties sango, kiu brave sin ĵetas kontraŭ la atakanto, kvankam ĝi tiukaze mem pereas. Se ni havas motivon por honti, do ni hontu pri tiu primitiva kaj ne jam evoluita spirito kompare kun tiel alte evoluita korpo.
@@ -2582,29 +2087,17 @@ Nome: niaj korpoj falis nur parte, sed niaj spiritoj falis katastrofe …”
 
 Sekvis sekundoj de silento. El kruĉo verŝiĝis varmega teo.
 
-Georgo kun delico eltrinkis kaj iomete etendis siajn mem-
-
-brojn.
+Georgo kun delico eltrinkis kaj iomete etendis siajn membrojn.
 
 ”Sinjoro profesoro, io en tiu ĉi rakonto min ĝenas. Vi parolis tiel, kvazaŭ ekzistus iel du inteligentoj. Inteligento de la korpo, kiu estas elstare altranga — kaj inteligento de la spirito, kiu la unuan ne atingas. Sed mi ne povas al mi klarigi, kiamaniere la malpli evoluita inteligento de nia spirito povas havi pri si konscion, dum la pli evoluita inteligento de nia korpo ĝin ne posedas …”
 
-”Tiel povas demandi nur iu, kiu jam multon lernis!” kom-
-
-plimentis lin la profesoro kaj daŭrigis:
+”Tiel povas demandi nur iu, kiu jam multon lernis!” komplimentis lin la profesoro kaj daŭrigis:
 
 ”Verdire ni pli kaj pli havas impreson, ke en ni agas du
 
-diversspecaj inteligentoj. Unu, kiu jam la simplan nazan muk-99
-
-FILOZOFII SUBTENDE
-
-
-membranon ekipas per tremviletoj, kiuj en severa ordo puŝas mukon kaj malutilajn partiklojn el la nazo; kiu precize distingas bonan substancon disde la venena, kiam ili atingas la stomakon kaj provas fari ĉion por eligi la venenan substancon; kiu per du gramoj da superrena glando — per kapacito, kian ne posedas iu ajn generalstabo — aranĝas defendan militon interne de la korpo, ekde la universala defendo per leŭko-citoj, ĝis la plej speciala batalado per kontraŭkorpuskloj, kiujn la korpo produktas por ĉiu atakanto aparte. Ne nur, ke la korpo tuj ’scias’, pri kiu malsano temas, sed ĝi tutfronte unu-ece al ĝi reagas. Se ekzemple oni operacias duodenon, tiu ĉi inteligento de la korpo aŭtomate fermos ĉiujn elirejojn el la stomako, por ke la fluaĵo ne fluu el la vundo kaj ne provoku inflamon de la ventra membrano. Kaj tiu fermiĝo daŭras dum kvar horoj — precize tiom, kiom fibroino bezonas por plene kunglui elirejojn. Se oni perdas sangon, la tempo, bezonata por sangsolidiĝo aŭtomate malplilongiĝas proporcie kun la sangoperdo. En nia korpo do evidente ’iu’ regas kaj mastras, kiu samtempe estas perfekta kemiisto, biologo, militista stra-tego, fizikisto, kibernetikisto, ekonomiisto, energetikisto, eko-logiisto kaj multalio. Ke ĉi tie temas pri alcelita plano, kiun povas programi nur superinteligento, pri tio ne povas plu esti duboj. Tiu ĉi inteligento ankaŭ en plej simplaj vivestaĵoj estas tiel evidenta, ke ni ne havus motivon honti, eĉ se nia me-mo inkarniĝus en la korpo de ne tro impona kaj renoma raŭ-
+diversspecaj inteligentoj. Unu, kiu jam la simplan nazan mukmembranon ekipas per tremviletoj, kiuj en severa ordo puŝas mukon kaj malutilajn partiklojn el la nazo; kiu precize distingas bonan substancon disde la venena, kiam ili atingas la stomakon kaj provas fari ĉion por eligi la venenan substancon; kiu per du gramoj da superrena glando — per kapacito, kian ne posedas iu ajn generalstabo — aranĝas defendan militon interne de la korpo, ekde la universala defendo per leŭko-citoj, ĝis la plej speciala batalado per kontraŭkorpuskloj, kiujn la korpo produktas por ĉiu atakanto aparte. Ne nur, ke la korpo tuj ’scias’, pri kiu malsano temas, sed ĝi tutfronte unu-ece al ĝi reagas. Se ekzemple oni operacias duodenon, tiu ĉi inteligento de la korpo aŭtomate fermos ĉiujn elirejojn el la stomako, por ke la fluaĵo ne fluu el la vundo kaj ne provoku inflamon de la ventra membrano. Kaj tiu fermiĝo daŭras dum kvar horoj — precize tiom, kiom fibroino bezonas por plene kunglui elirejojn. Se oni perdas sangon, la tempo, bezonata por sangsolidiĝo aŭtomate malplilongiĝas proporcie kun la sangoperdo. En nia korpo do evidente ’iu’ regas kaj mastras, kiu samtempe estas perfekta kemiisto, biologo, militista stra-tego, fizikisto, kibernetikisto, ekonomiisto, energetikisto, eko-logiisto kaj multalio. Ke ĉi tie temas pri alcelita plano, kiun povas programi nur superinteligento, pri tio ne povas plu esti duboj. Tiu ĉi inteligento ankaŭ en plej simplaj vivestaĵoj estas tiel evidenta, ke ni ne havus motivon honti, eĉ se nia me-mo inkarniĝus en la korpo de ne tro impona kaj renoma raŭ-
 
 po! — Kaj tamen tiu ĉi inteligento ne estas nia propra inteligento. Se ĝi estus nia propraĵo, ni havus konscion pri ĉiuj tiuj procesoj. Ni digestus kiel kemiistoj, ni moviĝus kiel fizikistoj, ni batalus kontraŭ mikroboj kiel generaloj …”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Kion diri, se temas pri nuraj aŭtomatismoj?” demandis
@@ -2631,11 +2124,7 @@ Nur en la 19-a jarcento li produktis unuan vakcinon.”
 
 ”Kio pri naturo mem?” demandis, inspirita de la oficialaj lernejaj libroj Adela.
 
-”Kiu naturo? ĉu besto? Ekzemple kokino, kiu malpigre ko-
-
-vas siajn ovojn eĉ, se ili estas fabrikitaj el gipso? ĉu eble unu 101
-
-FILOZOFII SUBTENDE
+”Kiu naturo? ĉu besto? Ekzemple kokino, kiu malpigre kovas siajn ovojn eĉ, se ili estas fabrikitaj el gipso? ĉu eble unu
 
 
 el plantoj? Probable tiu filiko, kies semo en popolfabeloj dum la solstica nokto kapabligas homon kompreni la parolon de la bestoj … Sed, se ne la plantoj, do eble mineraloj? Eble la stela plasmo? Tiu, kiu volas atribui racion al la naturo, tiu devas tiun ĉi substantivon skribi per majusklo, kvazaŭ temus pri ĉiopova kaj racihava personego. Kvazaŭ temus pri Dio
@@ -2647,9 +2136,6 @@ Adela tute bone sciis, kiu ebleco restas. Tamen ŝi provis savi, kion ŝi kredis
 Profesoro Andreo estis ĝentlemano kaj al Adela li ne volis senpere diri, ke el tiu ĉi pripenso parolas iu rapide kunveldita falsaĵo de Darwin, kiun Darwin mem same malvole akceptus, kiel li ne volis akcepti la konteston de la anglikana primaso de Londono.
 
 ”Bone, Adela, ni marŝos de la lasta vorto al la unua. Ni pripensu, kion la nocio ’selekto’ en nia kunteksto signifas. Se la nocion uzis Darwin, tio havas certan sencon. Tiu sinjoro estis — same kiel pri evoluo de la specioj — konvinkita pri la ekzisto de Dio. Se do endis elekti kaj selekti, kio plu vivu kaj kio probable malaperu, en la mondo de Darwin ekzistis an-kaŭ la estaĵo, kiu povis elekti kaj selekti. Elekti kaj selekti povas nur inteligentohava estaĵo. Sed se pri la selekto parolas vi, Adela, tio signifas, ke vi al la senviva materio atribuas inteligenton, kiu suverene povas selekti inter la perspektivaj mu-tacioj kaj iliaj maloj. Se do la nocio de selekto ion pruvas, ĝi pruvas la ekziston de la inteligento, kiu povas kaj volas selekti, kiu do agis jam antaŭ la ekesto de la unua viva ĉelo.”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Ne estas facile sekvi …”
@@ -2666,9 +2152,7 @@ ne por tio, kion vi volis diri. Rigardu: ĉu la steloj luktas por supervivo? ĉu
 
 ”ĉu vi volas diri, ke la arbo samtiel vivas kaj luktas per sia vivovolo, kiel tion faras la homo?” enmiksis sin Tanja.
 
-”Tion, se mi volas esti preciza, oni ne scias. Sed mi supozas, ke vere propran kaj liberan volon posedas nur la homo, sed en aliaj vivestaĵoj kaŝiĝas ne nur iu fremda inteligento, 103
-
-FILOZOFII SUBTENDE
+”Tion, se mi volas esti preciza, oni ne scias. Sed mi supozas, ke vere propran kaj liberan volon posedas nur la homo, sed en aliaj vivestaĵoj kaŝiĝas ne nur iu fremda inteligento,
 
 
 sed same ankaŭ iu fremda, luprenita volo, iu enkonstruita imperativo, ke endas ĉiupreze vivi kaj multobliĝi. Vidu, eĉ la homa libera volo ne regas super nia tuto. Nia korpo havas, samtiel kiel ĉiu besto kaj planto, aldone luprenitan iun alian volon, iun alian imperativon, kiun ni senpere ne povas percepti kaj same ne kontroli. La homo povas per sia volo decidi fari suicidon, sed la luprenita volo de la organismo, de ĉiuj homkorpaj ĉeloj tamen reagos kaj faros ĉion por protekti la vivon.”
@@ -2679,17 +2163,11 @@ sed same ankaŭ iu fremda, luprenita volo, iu enkonstruita imperativo, ke endas 
 
 ”Do, bone …”
 
-”Restis por nia pritrakto ankoraŭ unu nocio: evoluo, evo-
-
-lucio. ĉiuj, kiuj parolas pri memevolucio, uzas rimedon, kiu por ĉiam fermu la buŝon de ajna kontesto: la tempon. Per
+”Restis por nia pritrakto ankoraŭ unu nocio: evoluo, evolucio. ĉiuj, kiuj parolas pri memevolucio, uzas rimedon, kiu por ĉiam fermu la buŝon de ajna kontesto: la tempon. Per
 
 sintagmo, ke la unua vivo aperis dum la longtempa kuniĝado de albumenoj, en epoko de antaŭ milionoj da jaroj, ili provas fari ebla tion, kio cetere ne ŝajnas ebla. Sed la tempo mem ne povas ion fari. Kial? Nia ĉiutaga sperto pruvas, ke ĉiuj procesoj, kiuj iras laŭ propra tendenco, kondukas el ordo al malordo. En la naturo, en la universo, la probableco de la malordo estas senkompare pli granda ol la probableco de la ordo.
 
-Ni prenu simplan ekzemplon. Se infano ĵetus aeren plomb-
-
-literojn el la presista kompostujo, normala probableco diras, ke ili falos teren sen ajna ordo. Ili nek faros ordigitan alfabe-ton, nek iun sencohavan tekston. Oni povus tiel ĵeti dum mi-104
-
-FILOZOFII SUBTENDE
+Ni prenu simplan ekzemplon. Se infano ĵetus aeren plombliterojn el la presista kompostujo, normala probableco diras, ke ili falos teren sen ajna ordo. Ili nek faros ordigitan alfabe-ton, nek iun sencohavan tekston. Oni povus tiel ĵeti dum mi-104
 
 
 lionoj da jaroj*, sed praktike neniam oni tiamaniere atingus hazarde la frazon: Mi ne ĵetos plu! La dua ekzemplo apartenas al la fizika kampo. Se ni hejtas fornon, ni starigas ĉe la molekuloj iaspecan varmordon. La molekuloj, kiuj konsistigas hejtmaterialon, fornon kaj aeron tuj ĉe la forno, atingas altamplitudan osciladon; aliaj, pli malproksimaj, oscilas malpli alte. La unuaj fariĝas ’varmaj’, la aliaj estas kompare al la unuaj ’malvarmaj’. Negrave, ĉu ni hejtas plu, ĉu ni ĉesas hejti, post certa tempo tiu ordo malordiĝos. Se ni hejtos plu, ĉiuj molekuloj fariĝos proksimume same varmaj, ĉiam pli samgrade; se ni ĉesas hejti, ĉiuj molekuloj iom post iom perdos varmon, do osciladon. La proceso tendencas al malordo. Sed tia proceso ne okazas nur ene de la ĉambro, sed en tuta universo. Fizikistoj parolas pri la termika morto de la universo.
@@ -2698,22 +2176,13 @@ La tuta universo moviĝas ek de la komenca ordo al la fina malordo. Tiu leĝo ha
 
 ”Se tiel, ĉu la fenomeno vivo ne estas efektive rompo kontraŭ tiu ĉi leĝo?” vekiĝis Duŝan.
 
-”Jes, tiel estas. Rompo senkompara. Sed ĝi ne estas escepto hazarda kaj unuopa. Eble ni eĉ povus iamaniere toleri teorion, ke unufoje en la universo la hazardo produktis ordon en komplekseco de la viva ĉelo. Sed ĉi tie temas pri tiom ampleksa invado de la vivo, en si mem komplementa kaj kongrua, ke estas vera infanaĵo, paroli pri hazarda ludo de la blinda naturo. ĉiu, kiu ne estas propravole blinda, devas agnoski — kaj ni esprimu dankon pro tio ankaŭ al Darwin — ke la tuta viva mondo estas penetrata de du tendencoj: tendenco de mem-konservado kaj tendenco de evoluo. Ili ambaŭ esence kon-
-
-
-FILOZOFII SUBTENDE
-
-
-traŭagas la bazan tendencon de la naturo: tendenco al malordo, al entropio.”
+”Jes, tiel estas. Rompo senkompara. Sed ĝi ne estas escepto hazarda kaj unuopa. Eble ni eĉ povus iamaniere toleri teorion, ke unufoje en la universo la hazardo produktis ordon en komplekseco de la viva ĉelo. Sed ĉi tie temas pri tiom ampleksa invado de la vivo, en si mem komplementa kaj kongrua, ke estas vera infanaĵo, paroli pri hazarda ludo de la blinda naturo. ĉiu, kiu ne estas propravole blinda, devas agnoski — kaj ni esprimu dankon pro tio ankaŭ al Darwin — ke la tuta viva mondo estas penetrata de du tendencoj: tendenco de mem-konservado kaj tendenco de evoluo. Ili ambaŭ esence kontraŭagas la bazan tendencon de la naturo: tendenco al malordo, al entropio.”
 
 ”Bone, sed kiamaniere tiuj du tendencoj estas konstruitaj ene de la materio, ke ĝi povas organiziĝi en ĉiam pli alte evo-luitajn sistemojn?” demandis Tanja.
 
 ”En kibernetiko validas regulo, ke por ajna funkcianta sistemo estas bezonataj tri elementoj: materio, energio kaj informo. Kaj la informo konsistas el ordigo, instrukcio kaj enhavo. Komputilo ricevas sian informon de la homo. Iel ajn perfekta estu maŝino, neniam ĝi povos memstariĝi. Al ĝi mankas la esenca organo, kiu nura kapablas iniciati kaj prijuĝi — la personeco. La maŝino havas gigantan kapablon rapidege aranĝi tion, kion enmetas en ĝin la homo — sed ĝi neniam el si mem starigos demandon. Biologoj malkovris, ke ankaŭ en la ’komputilo’ de vivaj ĉeloj troviĝas certa ’programo’. Temas pri la genetika kodo DNA, nomita ankaŭ ’duobla spiralo’. En tiu ĉi molekulo estas koditaj ĉiuj informoj pri tio, kiamaniere el la koncipita ovo evoluu nova viva estaĵo; ĝis tiaj detaloj, kiel koloro de haroj, formo de ungoj aŭ emo pentri, se temas pri homa ido. ĉio, kio okazas en la utero, okazas laŭ la preciza programo de tiu ĉi genetika kodo. La fakto, ke la tuta kresko kaj vivo estas kontrolata de la ’teksto’ en tiu spirala molekulo, surprize memorigas pri la unua frazo en la evang-elio laŭ Johano: ’En la komenco estis la Vorto … ’”
 
 La tenda tolo malforte ondis pro venteto. La profesoro devis laŭvice kuiri, aliaj foriris al la strando. Junaj korpoj forpuŝis akvomason kaj pleniĝis de freŝa maraero. Super la fajro gluglis akvo kun ĉiuj eblaj legomoj kaj plantoj, kiujn proponas la ĉestrandaj standoj. La suno sin oferis, kvazaŭ ĝi brilus la lastan fojon.
-
-
-FILOZOFII SUBTENDE
 
 
 Tra vaporo, kiu leviĝis el kaldroneto, vidiĝis fluetado de la naĝkalsono de Georgo.
@@ -2728,12 +2197,7 @@ kaldronon.
 
 ”Vi bele eskapis la temon pri nudeco …”
 
-”ĉu vi trovas?” mire rigardis la profesoro. ”ĉu ni ne sen-vestigis ĝisnude kelkajn malnovajn jam fiksiĝintajn antaŭ-
-
-juĝojn kaj konvjn?”
-
-
-FILOZOFII SUBTENDE
+”ĉu vi trovas?” mire rigardis la profesoro. ”ĉu ni ne sen-vestigis ĝisnude kelkajn malnovajn jam fiksiĝintajn antaŭjuĝojn kaj konvjn?”
 
 
 XI.
@@ -2761,9 +2225,6 @@ Tute ne. La suno sur tiu ĉi haŭto same intense provokis
 estiĝon de bruna pigmento kiel sur la haŭto de ajna persono surstrande. Ilia specifa pezo kreis en la akvo la saman supren-puŝon, kiel se temus pri naĝanto, kies intereso koncentriĝas al la rezulto de sporta vetkuro. Se temis pri ia diferenco, oni povus diri, ke en tiuj ĉi scivolaj okuloj ekbriletis je kelkaj luk-soj pli da brilo. Kiam la homo serĉas ion tian, kio ne estas vendata en memservaj vendejoj, en li troviĝas io reĝeca …
 
 
-FILOZOFII SUBTENDE
-
-
 Posttagmeze ili forveturis en la urbon. Praaĝa faŭno de
 
 antaŭ milionoj da jaroj brulis en ĉiuj kvar cilindroj de ilia aŭtomobila motoro kaj puŝis ilin per permesitaj 40 km poho-re kontraŭ la urbocentron. Se tiu nafto estis postrestaĵo de iamaj fiŝoj, kiom da enmara eleganto oni forbrulas je 100 km?
@@ -2780,27 +2241,15 @@ Super la enirejo estis ĉizite per belaj klasikstilaj literoj: PLANETARIUM. Ili 
 
 Andreo por ĉiuj aĉetis enirbiletojn. Deĵoristo kondukis ilin en etan amfiteatron, kiu memorigis pri cirko. Nur, meze de ĝi ne troviĝis stangoj kun trapezo kaj aliaj gimnastikaj iloj, sed iaspeca eksmoda kanono sur forta lafusto, sur sia tuta korpo ekipita per diversdimensiaj vitraj okuloj. Ili sidiĝis sur benkoj.
 
-Lumoj iom post iom estingiĝis. La kupolo, kovrita per blan-ka tolo, fariĝis pli kaj pli malhela, ĝis ĝi plene malaperis. Tiam ili aŭdis mallaŭtan muzikon per harpo. Ili troviĝis en plena mallumo. Subite supre, kie antaŭe vidiĝis tolo, ekbrilis unu-109
-
-FILOZOFII SUBTENDE
-
-
-opaj steloj. Pli kaj pli da ili. Kvieta baritona voĉo komencis rakonti pri fenomenoj, kiuj montriĝis sur tiu ĉi eta, sed tre konvinka artefarita firmamento. Dum la eksplikado, lumsa-geto montris jen tiun, jen alian parton de la stelplena firmamento.
+Lumoj iom post iom estingiĝis. La kupolo, kovrita per blan-ka tolo, fariĝis pli kaj pli malhela, ĝis ĝi plene malaperis. Tiam ili aŭdis mallaŭtan muzikon per harpo. Ili troviĝis en plena mallumo. Subite supre, kie antaŭe vidiĝis tolo, ekbrilis unuopaj steloj. Pli kaj pli da ili. Kvieta baritona voĉo komencis rakonti pri fenomenoj, kiuj montriĝis sur tiu ĉi eta, sed tre konvinka artefarita firmamento. Dum la eksplikado, lumsa-geto montris jen tiun, jen alian parton de la stelplena firmamento.
 
 Distancoj ne estis en kilometroj. ĉi tie ili ne estas kategorio. ĉi tie oni devas kalkuli per lumjaroj. Terano preskaŭ ne povas imagi, ke lumo por sia vojo eĉ bezonas tempon. Tamen jam la suna lumo vojaĝas ĝis ni iomete pli ol ok minutojn. is la unua plej proksima stelo kiel nia suno la lumo bezonas bicikladon de unu plena jaro! Sed tio estas ankoraĝ nia hejma korto. La diametro de la Lakta Vojo (en kelkaj lingvoj an-kaŭ Romia strato), do de iom pli granda stela ’vilaĝo’, en kiu nestas ankaŭ nia sunsistemo kaj ene de ĝi nia planedo Tero, povas esti travojaĝita en proksimume 100.000 jaroj! Da tiaj galaksioj, eĉ multe pli grandaj ol nia Lakta Vojo, troviĝas laŭ
 
 ĝisnunaj prijuĝoj pli ol miliardo …
 
-Niaj senintencaj astronomoj perdis spiron. En tiuj dimen-
+Niaj senintencaj astronomoj perdis spiron. En tiuj dimensioj eĉ la plej rapida raketo, akcelita per kemia karburaĵo, estas helika piedirado. La planedo Tero en tiuj spacegoj estas malpli ol pulvero, kiun la kosma flegistino forgesis balai … Ili ne plu aŭdis la muzikon. Eĉ la eksplikadon ne. Ili ekhavis impreson, ke ne ekzistas plu io ’supre’ kaj alio ’malsupre’, ke troviĝas nur plu abismegoj, en kiuj oni dronas kaj ĝisfine perdiĝas, se ekzistas io por perdiĝi …
 
-sioj eĉ la plej rapida raketo, akcelita per kemia karburaĵo, estas helika piedirado. La planedo Tero en tiuj spacegoj estas malpli ol pulvero, kiun la kosma flegistino forgesis balai … Ili ne plu aŭdis la muzikon. Eĉ la eksplikadon ne. Ili ekhavis impreson, ke ne ekzistas plu io ’supre’ kaj alio ’malsupre’, ke troviĝas nur plu abismegoj, en kiuj oni dronas kaj ĝisfine perdiĝas, se ekzistas io por perdiĝi …
-
-Ekster la planetario ili sentis svarmon en siaj okuloj kaj apenaŭ ion povis vidi. Ili ŝancele paŝetis, kvazaŭ ili estus be-boj, kiuj ne jam lernis paŝi. Apud la planetario troviĝis eta zoologia ĝardeno por reptilioj. Inter serpentoj kaj kameleo-110
-
-FILOZOFII SUBTENDE
-
-
-noj ili aranĝis siajn impresojn. Duŝan demandis al sia profesoro:
+Ekster la planetario ili sentis svarmon en siaj okuloj kaj apenaŭ ion povis vidi. Ili ŝancele paŝetis, kvazaŭ ili estus be-boj, kiuj ne jam lernis paŝi. Apud la planetario troviĝis eta zoologia ĝardeno por reptilioj. Inter serpentoj kaj kameleonoj ili aranĝis siajn impresojn. Duŝan demandis al sia profesoro:
 
 ”ĉu la universo de ĉiam estas tia?” — Andreo sin turnis de la baseno kun du krokodiloj:
 
@@ -2810,31 +2259,20 @@ noj ili aranĝis siajn impresojn. Duŝan demandis al sia profesoro:
 
 ”Tiel ŝajnas. Laŭ la teorio de Lametrie, kiu nuntempe ĝuas
 
-ĝeneralan akcepton, la universo, kian ni konas, estiĝis antaŭ 10-15 miliardoj da jaroj. Tiam iaspeca ’praatomo’, en kiu laŭ tiu ĉi teorio estis komprimita la tuta nuna maso de la universo, eksplodis — kaj post tio ekestis sistemo de elementoj, esti-
-
-ĝis la nuna formo de materio, estiĝis stela kaj interstela materio kaj stelarsistemoj, kiuj ĉiam pli rapide distanciĝas de tiu supozata eksplodcentro.”
+ĝeneralan akcepton, la universo, kian ni konas, estiĝis antaŭ 10-15 miliardoj da jaroj. Tiam iaspeca ’praatomo’, en kiu laŭ tiu ĉi teorio estis komprimita la tuta nuna maso de la universo, eksplodis — kaj post tio ekestis sistemo de elementoj, estiĝis la nuna formo de materio, estiĝis stela kaj interstela materio kaj stelarsistemoj, kiuj ĉiam pli rapide distanciĝas de tiu supozata eksplodcentro.”
 
 ”Bone …” intervenis Adela, ”sed tio ja signifas, ke antaŭe estis nenio krom tiu praatomo. Se tiel, do bezoniĝas tiu fama Diofingro, por ke el nenio estiĝu io: unue tiu praatomo kaj post la supoza eksplodo la nuna universo …”
 
 ”ĉio, kion vi diris, sonas sufiĉe racie!” ŝin laŭdis la profesoro.
 
-”Sed mi pli entuziasmiĝas pri la modelo de la eterna uni-
-
-verso, kiu jen eksplode ekspansias, jen inverse koncentriĝas kaj tiel senfine kaj ne bezonas komencanton kun dia atribu-to por ĝin krei, kion vi opinias?” ŝi rondigis siajn lipojn, ru-
+”Sed mi pli entuziasmiĝas pri la modelo de la eterna universo, kiu jen eksplode ekspansias, jen inverse koncentriĝas kaj tiel senfine kaj ne bezonas komencanton kun dia atribu-to por ĝin krei, kion vi opinias?” ŝi rondigis siajn lipojn, ru-
 
 ĝajn kiel post la konsumo de la edena pomo …
 
 
-FILOZOFII SUBTENDE
+”Bona filozofo evoluas nur tie, kie troviĝas bona kontestanto …” rimarkis sinjorino Majda, kiu ne povis sin disponigi al admiro de iu venena lacerto. La profesoro donacis sian rideton ankaŭ al ŝi. Ekregis certagrada streĉo.
 
-
-”Bona filozofo evoluas nur tie, kie troviĝas bona kontes-
-
-tanto …” rimarkis sinjorino Majda, kiu ne povis sin disponigi al admiro de iu venena lacerto. La profesoro donacis sian rideton ankaŭ al ŝi. Ekregis certagrada streĉo.
-
-”ĉu vi nenion diros?” montris zorgemon Duŝan, kiu cete-
-
-re tute fidis al sia profesoro, se temis pri malfacilaj problemoj.
+”ĉu vi nenion diros?” montris zorgemon Duŝan, kiu cetere tute fidis al sia profesoro, se temis pri malfacilaj problemoj.
 
 ”La universo disponis por sia evoluo pri dekkvin miliardoj da jaroj, dum vi ne povas pacienci eĉ dum unu sola minuto
 
@@ -2863,9 +2301,6 @@ re tute fidis al sia profesoro, se temis pri malfacilaj problemoj.
 ”i ekzistas kiel nocio, kiu por neniu konkreta fenomeno
 
 
-FILOZOFII SUBTENDE
-
-
 estas aplikebla. ĉio, kio konkrete ekzistas, estas kalkulebla kaj kalkulita. Tio, kion oni ne povas kalkuli, se temas pri nia materia mondo, tio simple ne ekzistas. La jarojn oni povas kalkuli, do ili ekzistas. Sed da ili ne estas senfino, sed iu fina nombro. Se ekzistus senfino da jaroj, do apud tiuj jaroj, kiujn oni povas kalkuli, devus ekzisti alispecaj, kiujn oni ne povus kalkuli …”
 
 ”Sed kio pri la senfina serio de negativaj nombroj, tio tamen ekzistas, ĉu?” Adela provis trovi sian lastan ŝancon de eskapo.
@@ -2880,16 +2315,11 @@ ebla, ĉu?”
 
 Estiĝis silento. Ekmankis argumentoj. La logiko de la profesoro estis strikta. La mondo estas en sia daŭro senkontes-teble fintempa — kaj se ĝi tiulogike iam havis komencon, ĝi bezonis la Komencanton.
 
-”Sed, bonvolu diri, kiamaniere Dio mem povus esti senfi-
-
-na, se la mondo tia ne povas esti?” enmiksiĝis Georgo.
+”Sed, bonvolu diri, kiamaniere Dio mem povus esti senfina, se la mondo tia ne povas esti?” enmiksiĝis Georgo.
 
 ”Vi surprizas min pozitive pli kaj pli,” Andreo laŭdis siajn disĉiplojn. Poste li respondis al Georgo:
 
 ”Se Dio apartenus al la sama serio de finaj aferoj, kiujn ni povas kalkuli, do ankaŭ por Li validus la samo: kiel ekestis Li?
-
-
-FILOZOFII SUBTENDE
 
 
 Sed Dio estas alimaniere senfina, kiel estas senfina la abstrakta geometria fenomeno, la rekta linio. Dio ne daŭras per
@@ -2919,9 +2349,6 @@ Tiam Tanja ekkriis:
 ĝuste tion, ke tia perpetuum mobile ne nur eblas, ke ĝi jam ekzistas kiel donita fakto.”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Tion mi ne tuj komprenas …” aŭdiĝis Georgo.
 
 ”Se la universo estus de ĉiam, kiel instruas la materiismo, kaj evidente ĝi moviĝas kaj ĉiam moviĝis, do ĝi kiel tuto estas perpetuum mobile, ĉar ĝi ne povas ricevi energion de ie ekstere, ja ĉiuj ’eksteroj’ jam inkluziviĝas en la universo mem.”
@@ -2946,12 +2373,7 @@ memestiĝo de la vivo …”
 
 ”Do klarigo ne troviĝas, ĉu?” ektimis Tanja laŭ sia knabi-na maniero.
 
-”Mi opinias, ke iaspeca klarigo tamen troviĝas. Ni rigardu tiel: Ekzistas granda fakulo, ni diru, pri mono kaj financaj sis-115
-
-FILOZOFII SUBTENDE
-
-
-temoj. Oni tiamaniere povus atendi, ke tia homo havos racian rilaton al la mono. Tamen — alia, multe malpli fake lerta ho-mo eble ĝuste prijuĝas, ke la mono ne povas feliĉigi la homon, dum la unua, la fakulo, eble idolos la monon, vidos en
+”Mi opinias, ke iaspeca klarigo tamen troviĝas. Ni rigardu tiel: Ekzistas granda fakulo, ni diru, pri mono kaj financaj sistemoj. Oni tiamaniere povus atendi, ke tia homo havos racian rilaton al la mono. Tamen — alia, multe malpli fake lerta ho-mo eble ĝuste prijuĝas, ke la mono ne povas feliĉigi la homon, dum la unua, la fakulo, eble idolos la monon, vidos en
 
 ĝi fetiĉon.”
 
@@ -2965,28 +2387,18 @@ temoj. Oni tiamaniere povus atendi, ke tia homo havos racian rilaton al la mono.
 
 ’estingiĝi’, do ĝi iam devis kun certeco ’ekbruli’. Tion ĝi ne povas fari mem. Mem ĝi povas nur estingiĝi. Do nepras forto, kiu ne estas forto de tiu ĉi mondo. Nepras la Spirito. Kaj tiu Spirito ĝenis la anon de la manĉestra burĝa rajdklubo Fre-derikon Engels’on. Tial li lanĉis kontraŭ Clausiuson tiun ĉi ridindan riproĉon: ’Tio signifas … , ke la energio devis esti kreita, ke ĝi do estas kreebla, do detruebla. *Ad absurdum*!’ Por Engels do la bezono de origina krea akto, sekve Diekzisto, estas pruvo por tio, ke la fizikisto Clausius eraris. Se io estas
 
-’ad absurdum’, do certe tia maniero argumenti! ĉar oni ne 116
-
-FILOZOFII SUBTENDE
+’ad absurdum’, do certe tia maniero argumenti! ĉar oni ne
 
 
 volas, ke Dio ekzistu, oni ĉiun teorion, kiu supozas tiun ekziston proklamas absurda … Sed por Engels la supozo de Dia neekzisto kaj eĉ malpermeso de Lia ekzisto estas pli ol nur supozo. Tio por li estas religia dogmo, kiun oni ne rajtas pridubi aŭ kritiki. Kiam Engels rakontas pri aferoj, kiuj ne ligiĝas kun tiu ĉi dogmo, li rakontas tute raciajn aferojn, foje eĉ sci-encnivelajn. Sed kiam li alproksimiĝas al la nocio de Dio, iu kaŝita ordono el lia interno faras en lia cerbo fuŝkontakton, ke li ne plu povas pensi logike.”
 
 ĉi tie Adela atendis por kapti sian ŝancon ĉe la profesoro:
 
-”Sinjoro profesoro, ĉu ne same blinde procedis ankaŭ re-
+”Sinjoro profesoro, ĉu ne same blinde procedis ankaŭ religiaj homoj, kiam ili ĉiun novan ekkonon prijuĝis nur el la vidpunkto, ĉu tiu nova scio faligas certan biblian rakonton kaj mondpercepton aŭ ne?”
 
-ligiaj homoj, kiam ili ĉiun novan ekkonon prijuĝis nur el la vidpunkto, ĉu tiu nova scio faligas certan biblian rakonton kaj mondpercepton aŭ ne?”
+”Bedaŭrinde,” trankvile diris Andreo, ”bedaŭrinde mi devas vmplete pravigi. Dum longa tempo vere tiel estis kaj kelkfoje plue estas. Sed aliflanke same veras, ke ĉe kelkaj sufi-
 
-”Bedaŭrinde,” trankvile diris Andreo, ”bedaŭrinde mi de-
-
-vas vmplete pravigi. Dum longa tempo vere tiel estis kaj kelkfoje plue estas. Sed aliflanke same veras, ke ĉe kelkaj sufi-
-
-ĉe kompetentaj mensoj — kaj prefere mi diras sufiĉe kredantaj koroj — neniam estis kverelo inter la kredo kaj scienco, senrigarde, kion tiu scienco asertis pri la mondo. Vera scienco, kiel emis ĉiam denove emfazi granda moderna aŭstra-
-
-brita filozofo Karl Popper, starigas nur tiajn hipotezojn, kiujn oni povas principe erarecigi, tio estas per eksperimento aŭ simple revizio refuti. ĉar oni per neniu eksperimento povas refuti la aserton, ke anĝeloj ekzistas, tiu ĉi temo ne povas aparteni al la scienco. i apartenas al la kredo. Tiel kredo kaj scienco, se scienco ne estas nur maskita negativa kredo, neniam povas kolizii! Se ’la scienca socialismo’ koliziis kun religia kredo, tio nur pruvas, ke ĝi mem estis religio kaj neniel scienco. Sed aliflanke estas vero, kaj tiun ĉi fakton oni neni-117
-
-FILOZOFII SUBTENDE
+ĉe kompetentaj mensoj — kaj prefere mi diras sufiĉe kredantaj koroj — neniam estis kverelo inter la kredo kaj scienco, senrigarde, kion tiu scienco asertis pri la mondo. Vera scienco, kiel emis ĉiam denove emfazi granda moderna aŭstrabrita filozofo Karl Popper, starigas nur tiajn hipotezojn, kiujn oni povas principe erarecigi, tio estas per eksperimento aŭ simple revizio refuti. ĉar oni per neniu eksperimento povas refuti la aserton, ke anĝeloj ekzistas, tiu ĉi temo ne povas aparteni al la scienco. i apartenas al la kredo. Tiel kredo kaj scienco, se scienco ne estas nur maskita negativa kredo, neniam povas kolizii! Se ’la scienca socialismo’ koliziis kun religia kredo, tio nur pruvas, ke ĝi mem estis religio kaj neniel scienco. Sed aliflanke estas vero, kaj tiun ĉi fakton oni neni-117
 
 
 am sufiĉe bedaŭras, ke tro multaj religianoj tremis antaŭ la sciencaj laboratorioj, timante pri sia ’kredo’, same, kiel la unuaj apostoloj tremis en la tanganta boato kaj la Sinjoro poste riproĉis al ili mankon de la kredo.”
@@ -2997,9 +2409,7 @@ am sufiĉe bedaŭras, ke tro multaj religianoj tremis antaŭ la sciencaj laborat
 
 Estas simile, kiel ĉe radiofoniaj ondoj, kiuj ne povas kolizii kun la ondoj, kaŭzitaj en akvo per ĵetita ŝtono …”
 
-”Sed,” provis sian bonŝancon Adela ankoraŭfoje, ”se la scienco iun tagon tamen sukcesus produkti artefaritan vivesta-
-
-ĵon, eble eĉ inteligentan, ni diru eĉ geniulon?”
+”Sed,” provis sian bonŝancon Adela ankoraŭfoje, ”se la scienco iun tagon tamen sukcesus produkti artefaritan vivestaĵon, eble eĉ inteligentan, ni diru eĉ geniulon?”
 
 ĉiuj ekrigardis al Andreo. Kion li diros pri tio ĉi? Oni povis trovi en kelka eklezia presaĵo principan polemikon kontraŭ tia ideo. Kion do diros la profesoro? ĉu li procedos same kiel Engels, nur de la alia flanko? ĉu li do refutos tian eblecon nur por savi kredon je Dio? Sed la profesoro nur iomete ridis, kvazaŭ la demando ne tuŝus ion tre gravan:
 
@@ -3010,9 +2420,6 @@ Estas simile, kiel ĉe radiofoniaj ondoj, kiuj ne povas kolizii kun la ondoj, ka
 ”Neniel! Se io, do ĝuste tia sukceso de la scienco vere devus por ĉiam fermi la buŝon de la lasta ateisto, se oni akceptas la elementan logikon!”
 
 ”Nun ankaŭ mi ne komprenas vin!” disapontite konfesis
-
-
-FILOZOFII SUBTENDE
 
 
 Duŝan, kiu cetere alkutimiĝis al la logikaj kaj spiritaj ekzer-coj de la profesoro sur lia filozofia cirktrapezo. La profesoro daŭre provoke ridis. Ili marŝetis sub olivarboj preter ĝarde-noj per ruĝkolora humo. Fruktoj jam klare montris siajn formojn. Mankis nur la maturkoloro. Andreo komencis tiel:
@@ -3038,9 +2445,6 @@ Duŝan, kiu cetere alkutimiĝis al la logikaj kaj spiritaj ekzer-coj de la profe
 hazardo, tio ja foje okazas, tio tuj perdiĝus kaj forgesiĝus, se la esploristoj tion ne scius tuj registri kaj inkluzivi en la tuton.
 
 
-FILOZOFII SUBTENDE
-
-
 Sed nun, Georgo, bonvolu al mi diri: ĉu vi ne havas impreson, ke por produkti la vivon, eĉ speciale por artifike produkti inteligentan estaĵon, bezoniĝus la kapacito de ĉiuj plej bonaj cerboj sur nia planedo en plena akordo de la funkciado?”
 
 ”Tio kompreniĝas mem, sinjoro profesoro!” gaje respondis
@@ -3055,18 +2459,13 @@ Georgo.
 
 amo. Du elementoj, per kiuj laboras la scienco — kaj per kiuj laboras Dio!”
 
-Estis nokto. Trans la firmamento etendiĝis dense stelple-
-
-na Lakta Vojo, nia stelara kortego kun diametro de 100.000
+Estis nokto. Trans la firmamento etendiĝis dense stelplena Lakta Vojo, nia stelara kortego kun diametro de 100.000
 
 lumjaroj. Verdire malgranda ĉirkaŭdomo kompare kun aliaj
 
 galaksioj kaj iliaj dimensioj. Tuj super iliaj kapoj brilis la ste-laroj Sagitario kaj Skorpio. Oriente brilis Aglo kun sia perlo Altairo. Poste Cigno, Liro kun sia Vego. Okcidente Virgulino, iom poste Arkturo. Sekvis du maŝinoj por transporti la homan fantazion: la Granda ĉaro kaj la Malgranda ĉaro kun Venuso ĉe timono. Ili marŝis en densa grupo, la eta nokta ekspedicio.
 
 ”ĉu ne signifas, iri en nokton nuntempe, kvazaŭ iri en la mezon de Afriko aŭ sur la pinton de Kordiljeroj …?” diris sinjorino Majda.
-
-
-FILOZOFII SUBTENDE
 
 
 ”Tri aferojn ni forpelis de nia vizaĝo: la morton, la solecon kaj la nokton,” konfirmis sian edzinon Andreo.
@@ -3090,9 +2489,6 @@ Ili fariĝas saĝaj, ĉar ili donas preferon al la unuavide neutila kaj neintere
 ”Kio estas saĝo?” diris Adela.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Mi rakontos al vi jenon: En orienta Pruslando, en la tiutempe floranta mirinde bela urbo Königsberg, kiu niaerae sub la administra povo de banalaj homoj kun eĉ pli banala mondpercepto fariĝis triste kaduka Kaliningorod, antaŭ ducent jaroj vivis unu viro de malalta staturo, sed de ege alta spirito. Pli ol la plimulto de liaj samtempuloj li bone orientiĝis inter la steloj kaj eĉ konceptis tre gravan teorion pri la ekesto de la universo, kian ni konas. Kaj pli ol la plimulto de liaj samtempuloj li bone orientiĝis en la aferoj de homa interno, surbaze de kiuj li konceptis propran etikan instruon, kiu diras: Agu tiel, ke via konduto povu fariĝi la ĝenerala leĝo por ĉiuj! Tiu ĉi viro tiel bone sciis, pri kio temas, kiam li en la konkluda ĉapitro de sia probable plej grava libro formulis jenon: ’Du aferoj plenigas la koron per ĉiam pli granda konsterno kaj timrespekto, kiam mi pri ili meditas: la stelplena firmamento super mi kaj la morala leĝo interne de mi.’ — Tio tiel impresis liajn samurbanojn, ke ili tiun ĉi penson ĉizelis sur lian tombŝtonon. La nomo de ĉi tiu viro estas Immanuel Kant. Kaj la ĉizelitaj vortoj estas esprimo de la homa saĝo.”
 
 ĉiuj turnis sian rigardon supren, al la brilantaj skribsignoj, kiujn preskaŭ neniu plu kapablas legi, kvankam ili tiom multe diras. Kiel perdita sin sentas homo sub tiuj gigantaj mondoj.
@@ -3104,9 +2500,6 @@ Sed Adela ne sentis sin ekstreme perdita kaj starigis jenan demandon:
 La aliaj ŝtele interŝanĝis rigardojn, kiel ajn tio en la substel-ara malhelo estis eble.
 
 ”ĉu tio donas profiton aŭ ne, dependas de tio, Adela, pri kiaspeca profito vi pensas …” tute senembarase respondis la profesoro.
-
-
-FILOZOFII SUBTENDE
 
 
 Georgo provis helpi:
@@ -3127,9 +2520,7 @@ kaj nun vi ne scias diri, pri kiuj donacoj temas …”
 
 ”Tiel ĝenerale, iel ajn …” diris Adela.
 
-”Tian respondon ankaŭ mi povas akcepti,” agnoskis la pro-
-
-fesoro. Sed intervenis sinjorino Majda:
+”Tian respondon ankaŭ mi povas akcepti,” agnoskis la profesoro. Sed intervenis sinjorino Majda:
 
 ”ĉu tio ne estas la instruo de olda Epikuro? ĉu oni de vi atendu apogon de la filozofio pri delico?”
 
@@ -3144,9 +2535,6 @@ fesoro. Sed intervenis sinjorino Majda:
 ”ĉu vi povas konfirmi mian tezon, ke ne ĉiuj ĝuoj estas
 
 same grandaj — kaj ke, por atingi la pli grandan, oni foje devas rezigni pri iu malpli granda?”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Mi simple prenus ilin ambaŭ …” ŝercis Georgo.
@@ -3165,9 +2553,7 @@ finita maŝininĝeniera fakultato eble estas eĉ pli granda ĝuo, do oni devas r
 
 ”Sekve vi konfirmas, ke tiu, kiu rezignas pri bonbonoj kaj pri pigrumado, efektive pli bone zorgas por siaj ĝuoj ol iu alia, kiu preferas havi tujan ĝuon de dolĉo kaj de pigro, kiuj troviĝas senpene ĉemane?”
 
-”ĉi tie ne temas pri granda saĝo …” montris honeston Ade-
-
-la.
+”ĉi tie ne temas pri granda saĝo …” montris honeston Adela.
 
 ”Bone tiel. Sed nun ni priparolu alian aferon. Kion vi opinias: se oni surmare subite devus forlasi subakviĝantan ŝipon kaj eniri savboaton, kiu el la pasaĝeroj pli suferus kaj kiu malpli?”
 
@@ -3175,16 +2561,9 @@ la.
 
 ”Precize tiel estas. Sed se mi ankoraŭfoje demandas: Kiu
 
-laŭ via opinio, devus pli suferi, kiam subite venus la antaŭ-
+laŭ via opinio, devus pli suferi, kiam subite venus la antaŭmorta malsano, ĉu tiu, kiu dum sia vivo multe sin donis al delicoj, ĉu tiu, kiu dum sia vivo ankaŭ multe penis kaj eĉ suferis?”
 
-morta malsano, ĉu tiu, kiu dum sia vivo multe sin donis al delicoj, ĉu tiu, kiu dum sia vivo ankaŭ multe penis kaj eĉ suferis?”
-
-”Verŝajne tiu, kiu vivis facilan ĝojplenan vivon, pli turmen-124
-
-FILOZOFII SUBTENDE
-
-
-te renkontus morton ol tiu, kiu dumvive multe suferis,” ankoraŭfoje agnoskis Georgo.
+”Verŝajne tiu, kiu vivis facilan ĝojplenan vivon, pli turmente renkontus morton ol tiu, kiu dumvive multe suferis,” ankoraŭfoje agnoskis Georgo.
 
 ”Bone, nun ni supozu, ke post la morto nenio plu troviĝas.
 
@@ -3203,9 +2582,6 @@ Dio jam en tiu ĉi mondo regalas nin per ĝuoj kaj eĉ delicoj.
 Li efektive ĝuste ordonas al ni ĝui lian mondon, kondiĉe ke ni respektu kelkajn limojn. Li ŝatas, ke ni ĝuu en lia mondo.
 
 
-FILOZOFII SUBTENDE
-
-
 Li mem donis dolĉon al la fruktoj, kreskantaj en lia ĝardeno.
 
 Tiu, kiu kredas en Li, ne sentos sin kiel ŝiprompinto, perdanta sian tutan trezoron. La kredanto supozas, ke lia tuta surtera
@@ -3220,9 +2596,7 @@ Tiu, kiu kredas en Li, ne sentos sin kiel ŝiprompinto, perdanta sian tutan trez
 
 ”… la lernejo de la plej alta ĝuado!” kompletigis ĝin la profesoro.
 
-Sinjorino Majda kaj Duŝan respiris post la aventuro de la 126
-
-FILOZOFII SUBTENDE
+Sinjorino Majda kaj Duŝan respiris post la aventuro de la
 
 
 epikura filozofio, por kiu surprize pledis la profesoro. Siama-niere rekomencis spiri ankaŭ Adela kaj Georgo.
@@ -3230,9 +2604,6 @@ epikura filozofio, por kiu surprize pledis la profesoro. Siama-niere rekomencis 
 Intertempe la konstelacio surfirmamente ŝanĝiĝis. Venuso
 
 malaperis, sed nordoriente en la stelsistemo de Koĉero aperis brila stelo Kapelo.
-
-
-FILOZOFII SUBTENDE
 
 
 XII.
@@ -3249,15 +2620,11 @@ XII.
 
 Jam ĉiuj troviĝis ĝiszone en la akvo. Ili ĵetadis inter si mal-pezan pilkon. Akvomaro surŝprucis jen tiun, jen iun alian sur la bruniĝinta dorso. La suno laboregis, kiel por la vera suno decas. Sur la priradiitaj haŭtoj oni povus sekigi kurac-plantojn …
 
-Kiam ili jam perdis spiron, Duŝan lanĉis la pilkon subar-
-
-ben. Ili eliris el akvo kaj ronde sidiĝis antaŭ ambaŭ tendoj.
+Kiam ili jam perdis spiron, Duŝan lanĉis la pilkon subarben. Ili eliris el akvo kaj ronde sidiĝis antaŭ ambaŭ tendoj.
 
 Por ion diri, Georgo diris al la profesoro:
 
-”Vi ĝis nun nenion diris, kiamaniere ni pagu al vi honor-
-
-arion por via instruo pri filozofio. La antikvaj grekaj sofistoj laŭrakonte antaŭmetis impresigajn fakturojn …”
+”Vi ĝis nun nenion diris, kiamaniere ni pagu al vi honorarion por via instruo pri filozofio. La antikvaj grekaj sofistoj laŭrakonte antaŭmetis impresigajn fakturojn …”
 
 ĉiuj ekridis. Speciale sinjorino Majda. Ankaŭ la profesoro devis ridi. Li pesis ŝtoneton en sia mano kaj respondis:
 
@@ -3268,9 +2635,6 @@ sed mi ne kuraĝas skribi por vi fakturon.”
 ”Kial do ne?” demandis ĉiuj unuvoĉe.
 
 ”ĉar povus al mi okazi la samo, kio okazis al la olda Protagoro …”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Kio do okazis al li?” denove demandis la koruso.
@@ -3310,9 +2674,6 @@ Adela.
 ”La homo povas el ĉiuj estaĵoj plej proksimiĝi al la perfekteco,” plibonigis Tanja.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Verŝajne pli pravas Tanja, ja se estus tiel, kiel difinis Adela, nia laboro estus vanta, ĉar la homoj jam estus perfektaj …”
 
 ”Sed kial ĉiuj homoj devus estis egalaj, egale perfektaj, se la homo estus la mezuro de ĉiuj aferoj?” demandis Georgo.
@@ -3339,13 +2700,7 @@ interkonsentojn, konvenciojn. Niaj fizikaj mezuroj estas in-terkonsentitaj, ni s
 
 ”Jes kaj ne. Ili estas diversaj koncerne ne tiel gravajn unuopajn aferojn kaj detalojn. Sed ili akordas en la aferoj esencaj. Ekzemple: pri la plej grandaj artoverkoj kaj pri la plej majestaj naturaj fenomenoj regas plena akordo en prijuĝoj.
 
-Vi ne trovos homon, kiu povus serioze aserti, ke La melosa Afroditao estas neestetika. Ke la katedralo de Milano ne estas belega. Ke kontraŭas la homan guston pri beleco la ruĝ-
-
-
-FILOZOFII SUBTENDE
-
-
-luma sunsubiro … La demando pri malakordo inter unuopaj
+Vi ne trovos homon, kiu povus serioze aserti, ke La melosa Afroditao estas neestetika. Ke la katedralo de Milano ne estas belega. Ke kontraŭas la homan guston pri beleco la ruĝluma sunsubiro … La demando pri malakordo inter unuopaj
 
 gustoj aperas nur tie kaj tiam, kie kaj kiam la parto de homoj estas ŝirita de siaj radikoj aŭ tie, kie la socio komencas en ĉiu senco regresi, dekadenti kaj kaduki. Konfucio diris, ke la ŝtato komencas disfali en la muziko …”
 
@@ -3353,13 +2708,9 @@ gustoj aperas nur tie kaj tiam, kie kaj kiam la parto de homoj estas ŝirita de 
 
 moralo?” kontinuis enketadon Adela.
 
-”La komuna mezurunuo de la moralo estas la homa kon-
+”La komuna mezurunuo de la moralo estas la homa konscienco. La ĉefa leĝo de la konscienco, do la baza mezurunuo de ĝi tekstas jene: ’Kion vi volas, ke aliaj al vi faru, faru ankaŭ vi al ili!’ — En tio resumiĝas ĉio. ĉiu spirite sana homo amas sin mem, do li volas, ke ankaŭ aliaj lin amu. Li ŝatas ricevi de aliaj bonecon kaj paciencon, rekonon kaj komprenemon.
 
-scienco. La ĉefa leĝo de la konscienco, do la baza mezurunuo de ĝi tekstas jene: ’Kion vi volas, ke aliaj al vi faru, faru ankaŭ vi al ili!’ — En tio resumiĝas ĉio. ĉiu spirite sana homo amas sin mem, do li volas, ke ankaŭ aliaj lin amu. Li ŝatas ricevi de aliaj bonecon kaj paciencon, rekonon kaj komprenemon.
-
-Sekve li regalu ilin per samaj valoraĵoj! Cetere: ne forgesu, ke tiun bazan formulon esprimis ĉiuj tradiciaj mondreligioj: ju-daismo, kristanismo, islamo, budhismo, hinduismo, konfu-
-
-ciismo kaj taoismo.”
+Sekve li regalu ilin per samaj valoraĵoj! Cetere: ne forgesu, ke tiun bazan formulon esprimis ĉiuj tradiciaj mondreligioj: ju-daismo, kristanismo, islamo, budhismo, hinduismo, konfuciismo kaj taoismo.”
 
 ”Sed ne ĉiuj aŭdas sian konsciencon …”
 
@@ -3373,9 +2724,7 @@ proklamadon …”
 
 ”Laŭ via plaĉo kaj gusto vi povas vin subigi ankaŭ al leĝoj de Hitler aŭ Stalin …” ne povis eviti iometan sarkasmon Andreo.
 
-En la kapoj de la junaj filozofistudentoj disverŝiĝis certa hontosento. Kiel neniam antaŭe ili sentis, ke ekzistas aferoj, 131
-
-FILOZOFII SUBTENDE
+En la kapoj de la junaj filozofistudentoj disverŝiĝis certa hontosento. Kiel neniam antaŭe ili sentis, ke ekzistas aferoj,
 
 
 en si mem tiel firmaj, ke pri ili dubi kaj ŝerci estas — aĉ-guste. Ili estis savitaj pro la senkulpa demando de Tanja: ”Kio pri tiu helena filozofo Protagoro? Kiamaniere li kaptiĝis en sian kaptilon?”
@@ -3386,18 +2735,11 @@ Ili interkonsentis, ke post la studadfino la fraŭlo pagos al li la instruhonora
 
 Se li perdos — tiugrade la filozofo fidis pri la kvalito de sia instruo — lia disĉiplo ne devos pagi.
 
-La junulo bone lernis ĉiujn lingvajn gimnastikaĵojn kaj post la instrua tempo ne fariĝis advokato, sed elektis alian profesion. La instruisto, kiu sin sentis trompita, akuzis lin ĉe tribunalo por ricevi instruhonorarion. Antaŭ la tribunalo li tiel argumentis pri sia rajto: Se la proceson gajnos la iama dis-
+La junulo bone lernis ĉiujn lingvajn gimnastikaĵojn kaj post la instrua tempo ne fariĝis advokato, sed elektis alian profesion. La instruisto, kiu sin sentis trompita, akuzis lin ĉe tribunalo por ricevi instruhonorarion. Antaŭ la tribunalo li tiel argumentis pri sia rajto: Se la proceson gajnos la iama disĉiplo, li pagu laŭ la interkonsento, ja temos pri lia unua proceso. Sed se li la proceson perdos, li pagu laŭ la verdikto de la tribunalo. La juĝistoj estis scivolemaj, kiamaniere argumentos la akuzita studento. Li, fidela al la instruo de sia majstro, proponis al la juĝistoj, ke ili lin liberigu de la devo pagi, same tiel el du motivoj: se li la proceson perdos, do laŭ la interkonsento kun la instruisto, sed se li la proceson gajnos, do laŭ la verdikto de la estiminda tribunalo.
 
-ĉiplo, li pagu laŭ la interkonsento, ja temos pri lia unua proceso. Sed se li la proceson perdos, li pagu laŭ la verdikto de la tribunalo. La juĝistoj estis scivolemaj, kiamaniere argumentos la akuzita studento. Li, fidela al la instruo de sia majstro, proponis al la juĝistoj, ke ili lin liberigu de la devo pagi, same tiel el du motivoj: se li la proceson perdos, do laŭ la interkonsento kun la instruisto, sed se li la proceson gajnos, do laŭ la verdikto de la estiminda tribunalo.
-
-Nu, ĉar mi prenas vin samtiel sagacaj disĉiploj, mi ne aŭ-
-
-dacas antaŭmeti ĉe vi mian fakturon, por ke ne okazu al mi la samo, kiel okazis al la olda Protagoro el Abdero …”
+Nu, ĉar mi prenas vin samtiel sagacaj disĉiploj, mi ne aŭdacas antaŭmeti ĉe vi mian fakturon, por ke ne okazu al mi la samo, kiel okazis al la olda Protagoro el Abdero …”
 
 Ili laŭte ridis. Ili ĉiuj asertis, ke ili sian scion neniukaze misuzus kontraŭ la intereso de sia instruisto. Sed li diris al ili: ”Se vi ne uzos vian scion ankaŭ kontraŭ mi, tio signifas, ke mi vin malefike instruis.”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Sed kio pri la fidelo al la instruisto?” advokatis Duŝan.
@@ -3423,12 +2765,7 @@ FILOZOFII SUBTENDE
 ”Mi pensas, ke prefere la duan aferon, ja cetere filozofio ĉesus ekzisti kaj fariĝus nura historio pri si mem!” diris Adela.
 
 
-FILOZOFII SUBTENDE
-
-
-”Jes, mi same pensas,” konfirmis Andreo. ”Sed nun bonvo-
-
-lu al mi diri: ĉu pli fidelas al la filozofia instruo tiu disĉiplo, kiu dum sia tuta vivo nur ripetas tion, kion li aŭdis de sia instruisto — ĉu prefere la alia, kiu uzis la akiritan scion por trovi en la instruo de sia instruisto mankojn kaj truojn kaj leviĝas al pli alta kono?”
+”Jes, mi same pensas,” konfirmis Andreo. ”Sed nun bonvolu al mi diri: ĉu pli fidelas al la filozofia instruo tiu disĉiplo, kiu dum sia tuta vivo nur ripetas tion, kion li aŭdis de sia instruisto — ĉu prefere la alia, kiu uzis la akiritan scion por trovi en la instruo de sia instruisto mankojn kaj truojn kaj leviĝas al pli alta kono?”
 
 ”Se tiel,” diris Duŝan, ”la pli fidela tamen estas tiu dua …”
 
@@ -3442,35 +2779,21 @@ lu al mi diri: ĉu pli fidelas al la filozofia instruo tiu disĉiplo, kiu dum si
 
 ”Sed se tiel,” ensaltis Adela, ”do la filozofo Karlo Marx ĝis nun ne trovis sian vere fidelan disĉiplon, ja postsekvis lin pli malpli nur la roto da epigonoj, kiuj laŭ nia ĵus formulita kriterio povas validi kiel tipaj malfideluloj …”
 
-”Tion vi tre bone registris!” diris Andreo. ”La filinoj de Marx, Jenny kaj Laura, okaze starigis al sia patro aron da demandoj, kiaj eĉ nuntempe kutimas en multaj gazetoj kaj ma-134
-
-FILOZOFII SUBTENDE
-
-
-gazenoj. La lasta demando estis: ’Via plej preferata eldiro …’
+”Tion vi tre bone registris!” diris Andreo. ”La filinoj de Marx, Jenny kaj Laura, okaze starigis al sia patro aron da demandoj, kiaj eĉ nuntempe kutimas en multaj gazetoj kaj magazenoj. La lasta demando estis: ’Via plej preferata eldiro …’
 
 Kaj la respondo tekstis en la latina: De omnibus dubitandum
 
 — pri ĉio endas dubi. — Sekve, tiu, kiu vere volas atingi la statuson de fidela disĉiplo de Marx, ne povas ignori tiun lian bazan principon. Sed nia historio plenas de ironio: ĉiu, kiu nur iomete provis pridubi la doktrinon de Marx, tuj estis proklamita ’reviziisto’ kaj ’burĝa konservativulo’, kvazaŭ tiuj ĉi estus filozofiaj kategorioj. Esti ’reviziisto’ efektive estas por ĉiu filozofo granda komplimento, ja la baza tasko de ĉiu eĉ ne nepre filozofianta, sed jam nur simple inteligenta homo, estas revizii la ĝenerale validajn konceptojn, hipotezojn kaj doktrinojn. Sen tio la homa scienco kaj saĝo por ĉiam restus sur la komenca nivelo.”
 
-”Kiamaniere vi imagas tian probablan vere fidelan disĉip-
-
-lon?” demandis Adela.
+”Kiamaniere vi imagas tian probablan vere fidelan disĉiplon?” demandis Adela.
 
 ”Neniu povas fariĝi originala, se li dum certa tempo ne
 
-imitis sian instruiston. Do li devas forgesi pri rapida moderna kariero kaj interesiĝi pri tiuj, kiujn la moderno preterlasas aŭ flankenpuŝas. Li devas akiri solidan instruitecon, same kiel tion faris Marx. Li devas legi la plej renomajn poetojn, kiel tion faris Marx. Li devas ĉion submeti al senkompata kritiko, kiel predikis, kvankam ne ĉiam faris Marx. Kaj finfine, li devas submeti al tiu kritiko ankaŭ la doktrinon de Marx mem: elfosi la sociajn kaj spiritajn kialojn de liaj eraroj kaj flankaĵoj kaj atentigi pri tio, kio tamen povas supervivi el lia penssis-temo. Vi vidas mem, Marx sian vere fidelan disĉiplon daŭre atendas sub la modeste aranĝita tombo en la londona tombejo Highgate. Liaj veraj disĉiploj probable estas filozofoj kiel Nikolao Berdjajev, Karlo Popper, Leszek Kolakowsky kaj si-135
-
-FILOZOFII SUBTENDE
-
-
-milaj, kiuj denuncis la ĉefajn erarojn en lia doktrino, kvankam ili eliris ĝuste el lia instruo.”
+imitis sian instruiston. Do li devas forgesi pri rapida moderna kariero kaj interesiĝi pri tiuj, kiujn la moderno preterlasas aŭ flankenpuŝas. Li devas akiri solidan instruitecon, same kiel tion faris Marx. Li devas legi la plej renomajn poetojn, kiel tion faris Marx. Li devas ĉion submeti al senkompata kritiko, kiel predikis, kvankam ne ĉiam faris Marx. Kaj finfine, li devas submeti al tiu kritiko ankaŭ la doktrinon de Marx mem: elfosi la sociajn kaj spiritajn kialojn de liaj eraroj kaj flankaĵoj kaj atentigi pri tio, kio tamen povas supervivi el lia penssis-temo. Vi vidas mem, Marx sian vere fidelan disĉiplon daŭre atendas sub la modeste aranĝita tombo en la londona tombejo Highgate. Liaj veraj disĉiploj probable estas filozofoj kiel Nikolao Berdjajev, Karlo Popper, Leszek Kolakowsky kaj similaj, kiuj denuncis la ĉefajn erarojn en lia doktrino, kvankam ili eliris ĝuste el lia instruo.”
 
 Sinjorino Majda ofertis etajn sandviĉojn kaj teon, pliboni-gitan per iomete da vino.
 
-”Mi tamen ne povas kompreni, sinjoro profesoro, kian in-
-
-tencon vi postsekvis, rakontante al ni la anekdoton pri Protagoro …” manĝante sian sandviĉon demandis Adela.
+”Mi tamen ne povas kompreni, sinjoro profesoro, kian intencon vi postsekvis, rakontante al ni la anekdoton pri Protagoro …” manĝante sian sandviĉon demandis Adela.
 
 ”Mi volis vin atentigi pri la signifa parto de la filozofio, sen kiu ni verdire ne povas progresi.”
 
@@ -3488,9 +2811,7 @@ por preskaŭ ĉiu afero, kiu ŝajnas al ili kredebla, diras, ke ĝi estas logika
 
 ”La logiko ne estas io alia ol respekto pri la trafikaj leĝoj en la kuro de niaj pensoj, por ke ili ne koliziu.”
 
-”Mi ne komprenas, kian ligon la pensado havas kun la tra-
-
-fiko?” pridubis Duŝan.
+”Mi ne komprenas, kian ligon la pensado havas kun la trafiko?” pridubis Duŝan.
 
 ”Fortan. Se du veturiloj veturus el kontraŭaj direktoj sur la sama trako, ili nepre kolizius. La samo povas okazi, kiam ni fraze formulas niajn pensojn.”
 
@@ -3501,9 +2822,6 @@ fiko?” pridubis Duŝan.
 ”Sed da logika instruo troviĝas tutaj libroj kaj ni ne havas plu tiom da tempo!” esprimis sian zorgon la sinjorino.
 
 ”Ne gravas. La tuta logiko baziĝas sur unu frazo, kiun oni povus nomi la semaforo de la filozofio.”
-
-
-FILOZOFII SUBTENDE
 
 
 ”Kaj ĉu tio sufiĉos por nia bezono?”
@@ -3536,22 +2854,16 @@ tio.”
 
 ”Estas la sama situacio. Ankaŭ ĉi tie ne temas pri veraj
 
-kontraŭdiroj, kiel tion nomas marksisma doktrino, sed pri 137
-
-FILOZOFII SUBTENDE
+kontraŭdiroj, kiel tion nomas marksisma doktrino, sed pri
 
 
 simplaj kontraŭecoj, ja cetere la socio povus samtempe kaj samaspekte ekzisti kaj ne ekzisti. Per tia saĝo oni ne povus multon aranĝi. Sed troviĝas kontraŭecoj inter la tavoloj de la socio, inter riĉaj kaj malriĉaj, regantaj kaj regataj, kleraj kaj malkleraj, gvidaj kaj gvidataj, perfortemaj kaj neperfortemaj ktp. Tamen tio ne estas kontraŭdiroj, sed simplaj kontraŭecoj. Tiu, kiu estas riĉa, ne povas samtempe kaj samaspekte esti malriĉa.”
 
 ”Pro kio, vi pensas, tamen tiom multaj obstine uzas la nocion ’kontraŭdiro’ tie, kie oni efektive devus paroli pri simpla kontraŭeco?”
 
-”Filozofiaj sistemoj, kiuj elĵetis el si metafizikon, multajn esencajn aferojn ne plu povas klarigi. Tial ili estas devigataj kaŝe enkonduki metafizikon sub alia nomo. Same, kiel fizikistoj dum longa tempo parolis pri flogistono, ĉar ili ne povis el siaj kalkuloj klarigi la fenomenon de brulado, materiis-maj filozofioj bezonas ian similan kategorion, do ili enkondukis la misteran nocion ’kontraŭdiro’, kiu en ilia sistemo sor-
+”Filozofiaj sistemoj, kiuj elĵetis el si metafizikon, multajn esencajn aferojn ne plu povas klarigi. Tial ili estas devigataj kaŝe enkonduki metafizikon sub alia nomo. Same, kiel fizikistoj dum longa tempo parolis pri flogistono, ĉar ili ne povis el siaj kalkuloj klarigi la fenomenon de brulado, materiis-maj filozofioj bezonas ian similan kategorion, do ili enkondukis la misteran nocion ’kontraŭdiro’, kiu en ilia sistemo sorĉbastone solvas ĉiujn problemojn. Se vi bone legas la doktrinon de Marx, vi vidas, ke ĉio tuj senprobleme klariĝas kaj efektiviĝas pere de la vorto ’kontraŭdiro’. i funkcias precize same kiel flogistono ĉe iamaj alkemiistoj! Se biologo kiel sciencisto devas miri pri la fakto, ke funkcias la vivo, funkcias laŭ la principoj de plej altnivela racieco, lia marksisma kolego ne bezonas plu miri — kaj tamen la kapablo kaj preteco miri estas la baza kvalito de ĉiu filozofo — ja li disponas pri sorĉa nocio ’kontraŭdiro’, kiu tuj ĉion klarigas, almenaŭ lia-opinie klarigas. Li metas fingron sur sian frunton kaj saĝ-
 
-ĉbastone solvas ĉiujn problemojn. Se vi bone legas la doktrinon de Marx, vi vidas, ke ĉio tuj senprobleme klariĝas kaj efektiviĝas pere de la vorto ’kontraŭdiro’. i funkcias precize same kiel flogistono ĉe iamaj alkemiistoj! Se biologo kiel sciencisto devas miri pri la fakto, ke funkcias la vivo, funkcias laŭ la principoj de plej altnivela racieco, lia marksisma kolego ne bezonas plu miri — kaj tamen la kapablo kaj preteco miri estas la baza kvalito de ĉiu filozofo — ja li disponas pri sorĉa nocio ’kontraŭdiro’, kiu tuj ĉion klarigas, almenaŭ lia-opinie klarigas. Li metas fingron sur sian frunton kaj saĝ-
-
-miene diras al si: ’Jen la vivo estas rezulto de la evoluo, kiun lanĉis la interna kontraŭdiro de la substanco … ’ Nu, tiel. Li 138
-
-FILOZOFII SUBTENDE
+miene diras al si: ’Jen la vivo estas rezulto de la evoluo, kiun lanĉis la interna kontraŭdiro de la substanco … ’ Nu, tiel. Li
 
 
 povas sntentigi per klarigo ŝajne sufiĉa, sen bezono, ke li esploru la faktojn kiel vera biologo tion faras.”
@@ -3569,9 +2881,6 @@ estas nur provo, kiamaniere prezenti sian doktrinon vera, sen formale peki kontr
 Iu ĵetis pilkon en la akvon. Junaj korpoj sin ĵetis post ĝi, la akvo kirliĝis en multaj etaj gejseroj. Andreo sidis sur sia ŝto-no. Lia edzino prenis lian kapon en siajn manojn …
 
 
-FILOZOFII SUBTENDE
-
-
 XIII.
 
 ***Kiamaniere vivas rabistoj***
@@ -3584,9 +2893,7 @@ Ili eliris el kinejo. Streĉa franca krimfilmo Ligo de ĝentlemanoj. En iliaj or
 
 Tiom da preparlaboroj — kaj finfine oni sin trovas en polica veturilo … Ne estas multaj direktoroj, kiuj en siaj firmaoj in-vestus tiel seriozan laboron kiel tiuj ĉarmaj krimuloj.
 
-”ĉu ne estas iel nekutima situacio, ke ĝuste la filozofia ko-legaro iras spekti krimdramon ne vere ŝekspirnivelan?” kun manoj en sia vakera pantalono diris Adela. Laŭ ŝia sinteno, akirita post tro da vesternoj kaj televidaĵoj pri Travolta oni ŝin ne tro facile alkategorius seksapartene. ŝiaj gamboj ĝiszone kondutis virstile. ŝia kapo per nazeto, brovoj kaj mentono estis trajtita ĉarme ine, sed kion fari, se ŝia buŝo parolis same virece … ŝi provokis la profesoron en eternan kvereladon, sed samtempe ŝi estis lia plej bona disĉiplo. Jes, estis iamaniere bele havi siaflanke la ĝentilan modeston de Tanja. Aŭ naturs-anan maldelikaton de Duŝan. Plej malmulte kongruis kun la filozofia klopodado de la tendaro tiu tro eta preteco por respekti faktojn kaj logikon, kiun povis proponi Georgo. Adela estis dura nukso. Sed ĉiu frukto, kiu interne havas plengus-tan kernon, havas malmolan ŝelon. is la vera fruktodelicaĵo 140
-
-FILOZOFII SUBTENDE
+”ĉu ne estas iel nekutima situacio, ke ĝuste la filozofia ko-legaro iras spekti krimdramon ne vere ŝekspirnivelan?” kun manoj en sia vakera pantalono diris Adela. Laŭ ŝia sinteno, akirita post tro da vesternoj kaj televidaĵoj pri Travolta oni ŝin ne tro facile alkategorius seksapartene. ŝiaj gamboj ĝiszone kondutis virstile. ŝia kapo per nazeto, brovoj kaj mentono estis trajtita ĉarme ine, sed kion fari, se ŝia buŝo parolis same virece … ŝi provokis la profesoron en eternan kvereladon, sed samtempe ŝi estis lia plej bona disĉiplo. Jes, estis iamaniere bele havi siaflanke la ĝentilan modeston de Tanja. Aŭ naturs-anan maldelikaton de Duŝan. Plej malmulte kongruis kun la filozofia klopodado de la tendaro tiu tro eta preteco por respekti faktojn kaj logikon, kiun povis proponi Georgo. Adela estis dura nukso. Sed ĉiu frukto, kiu interne havas plengus-tan kernon, havas malmolan ŝelon. is la vera fruktodelicaĵo
 
 
 oni povas atingi nur per de manipulo pikitaj kaj frapitaj fingroj.
@@ -3595,9 +2902,7 @@ oni povas atingi nur per de manipulo pikitaj kaj frapitaj fingroj.
 
 ”ĉiam laŭaspekte,” li kontinuis, ”rabisteco estas unu el limaj homaj situacioj. Sed ĉiuj limaj situacioj estas tre oportu-naj por lerni filozofion. La homo, troviĝanta en ekstremo, estas kiel geometria modelo. Oni komprenas la geometrion
 
-de la monto, kiam oni studas konuson. La homon oni komp-
-
-renas — ĉiam nur certagrade, kompreneble — kiam oni stu-
+de la monto, kiam oni studas konuson. La homon oni komprenas — ĉiam nur certagrade, kompreneble — kiam oni stu-
 
 das rabiston …”
 
@@ -3617,9 +2922,7 @@ diris Tanja, ne tro konvinkita pri moralaj avantaĝoj de la rabista tribo.
 
 ”Nu jes …”
 
-”Vidu, ĝuste ĉi tie kaŝiĝas la problemo. Por via mono vi ne povas ricevi ĉion, kion vi vere deziras, sed nur tion, pri kio la 141
-
-FILOZOFII SUBTENDE
+”Vidu, ĝuste ĉi tie kaŝiĝas la problemo. Por via mono vi ne povas ricevi ĉion, kion vi vere deziras, sed nur tion, pri kio la
 
 
 homoj kredas, ke vendiĝos kontraŭ la mono. Se tiel, do ĝuste la rabistoj plej serioze prenas la ĝeneralan prijuĝon pri tio, kio havas valoron kaj kio ne, ja ili estas pretaj por tiuj valoraĵoj riski eĉ siajn liberon kaj vivon, sian tutan sorton kaj ne nur relative komfortan sidadon en iu bone pagita postenseĝo …”
@@ -3634,9 +2937,7 @@ enrompo en la templon, sed per muldado de la ora bovido,
 
 kiel raportas la unua libro de Moseo …”
 
-”Mi ne povas komplete sekvi vian klarigon …” diris Ade-
-
-la.
+”Mi ne povas komplete sekvi vian klarigon …” diris Adela.
 
 ”Jes, mi mem ne scias, kiel tion bone ekspliki. Ni diru tiel: Se iu povus forigi la sunon kaj meti sur ĝian lokon la petrol-lampon, tiu homo certe estus multe pli granda fripono ol la ŝtelisto, kiu poste ŝtelus tiun lampon. La unua prirabus nin de la suno, dum la dua prirabus nin nur de io senvalora.”
 
@@ -3644,9 +2945,7 @@ la.
 
 forprenis aŭ almenaŭ ombrigis la veran sunon — kaj metis
 
-tien facile ŝteleblan lampaĉon — kaj nun ĝuste tiu homo plej 142
-
-FILOZOFII SUBTENDE
+tien facile ŝteleblan lampaĉon — kaj nun ĝuste tiu homo plej
 
 
 laŭte skandaliĝas super tiu, kiu tiun ĉi senvaloran falsaĵon ŝtelas de tiu minimumigita firmamento, ĉu?” diris Duŝan.
@@ -3657,28 +2956,20 @@ laŭte skandaliĝas super tiu, kiu tiun ĉi senvaloran falsaĵon ŝtelas de tiu 
 
 ”Jes, vere. Tiuj ĉi estas duoble malbonaj: Unue ili forigis la veran juvelon kaj anstataŭigis ĝin per vitroa falsaĵo. Finfine ili eĉ tion ĉi volas posedi kun plena certeco, sen ajna risko. Aliflanke la rabisto havas du bonajn argumentojn por si: Unue, li sincere kredas, ke en la trezorejo troviĝas vera valoraĵo, due, ĉar li pretas por tiu trezoraĵo riski sian vivon. Tial ne miru, se la unua oficiala kristana sanktulo, proklamita jam surkruce de Jesuo mem, estas la rabisto Dismas’ …”
 
-”Bonvolu tamen diri, kiamaniere oni povus trovi la aŭten-
-
-tan trezoraĵon, se oni ĝin forigis de la soklo en trezorejo kaj multaj klopodas akiri falsaĵon?” diris Adela.
+”Bonvolu tamen diri, kiamaniere oni povus trovi la aŭtentan trezoraĵon, se oni ĝin forigis de la soklo en trezorejo kaj multaj klopodas akiri falsaĵon?” diris Adela.
 
 ”Iamaniere eĉ la rabistoj troviĝas sur la ĝusta vojo …” la profesoro insistis ĉe sia simpatio kun la rabista klano. ”Jam Platono skribis, ke eĉ la rabista hordo ne povas realigi siajn planojn, se ĝi almenaŭ interne de sia rondo ne respektas certajn moralajn principojn, kvankam ili la samajn principojn ekster de la rabista rondo krude rompas kaj malatentas. Efektive do eĉ la rabistoj scias pri la plej alta bono, ja sen parta atendo de ĝi ili eĉ ne povus realigi sian plej altan malbonon!
 
-Temas nur pri tio, ke ni komprenu la diferencon inter la bono 143
-
-FILOZOFII SUBTENDE
+Temas nur pri tio, ke ni komprenu la diferencon inter la bono
 
 
-kaj la malbono. La unua havas sian memstaran eternan val-
-
-oron, dum la alia ekzistas nur kiel parazito surŝele de la unua.
+kaj la malbono. La unua havas sian memstaran eternan valoron, dum la alia ekzistas nur kiel parazito surŝele de la unua.
 
 Malbonon oni povas atingi nur, se oni almenaŭ parte plenumas la bonon. Oni povas rifuzi obeon al la reĝo nur, se oni eĉ pli strikte obeas al la ribelestro …”
 
 ”Do, ĉu oni povus konstati, ke la morala vivo estas tiu plej alta valoraĵo, al kiu indas kaj endas strebi?” demandis Georgo.
 
-”Ni sekvu la vojon de la knabeto, kiu en la memserva ven-
-
-dejo ŝtelis ian objekton, kia estis lia tendenco, kaj probable ni laŭ liaj spuroj atingos la ĝustan punkton …”
+”Ni sekvu la vojon de la knabeto, kiu en la memserva vendejo ŝtelis ian objekton, kia estis lia tendenco, kaj probable ni laŭ liaj spuroj atingos la ĝustan punkton …”
 
 ”Nu, ni diru, ke li ekdeziris ĉokoladon …” diris Georgo.
 
@@ -3698,13 +2989,7 @@ dejo ŝtelis ian objekton, kia estis lia tendenco, kaj probable ni laŭ liaj spu
 
 ”Unuvorte, temas pri saviteco …” ironiis Adela.
 
-”uste tiel. Ankaŭ tiu knabeto ŝtelis en la memserva ven-
-
-
-FILOZOFII SUBTENDE
-
-
-dejo — nenion alian ol la savitecon mem. Kaj la rabistaj ĝentlemanoj en la filmo, kiun ni ĵus spektis, rabis la saman savitecon. ĉiu krimulo kaj pekulo iamaniere tamen ŝtelas kaj
+”uste tiel. Ankaŭ tiu knabeto ŝtelis en la memserva vendejo — nenion alian ol la savitecon mem. Kaj la rabistaj ĝentlemanoj en la filmo, kiun ni ĵus spektis, rabis la saman savitecon. ĉiu krimulo kaj pekulo iamaniere tamen ŝtelas kaj
 
 kontrabandas la savitecon!”
 
@@ -3720,18 +3005,12 @@ Se la knabeto el la memserva vendejo sin same disponus al ĉiuj homoj, kiel li s
 
 ”ĉu vi konas homon, kiu konscie alstrebus por si mem
 
-malbonon? Vidu: niaj filmrakontaj ĝentlemanoj kun maŝin-
-
-pistoloj ne rifuzis savitecon — nur ili opiniis, ke la mono estas la rimedo por savi la homon, do ili faris ĉirkaŭvojon tra la banka trezorejo; kaj la knabo, kiu ŝtelas, li same ne rifuzas la savitecon, nur li erare opinias, ke li trovos ĝin en la dolĉa gu-145
-
-FILOZOFII SUBTENDE
+malbonon? Vidu: niaj filmrakontaj ĝentlemanoj kun maŝinpistoloj ne rifuzis savitecon — nur ili opiniis, ke la mono estas la rimedo por savi la homon, do ili faris ĉirkaŭvojon tra la banka trezorejo; kaj la knabo, kiu ŝtelas, li same ne rifuzas la savitecon, nur li erare opinias, ke li trovos ĝin en la dolĉa gu-145
 
 
 sto de la ĉokolado … Tial mi opinias, ke la malbono estas ne uzi la plej rektan vojon kaj ne uzi la principojn, kiujn ni ap-likas interne de unuopaj grupoj, eĉ rabistaj, en ĉiuj okazoj kaj kun ĉiuj homoj.”
 
-Surstrate odoris fiŝaromo. ĉe iu patricia enirejo katoj aran-
-
-ĝis siajn konfliktojn per laŭtaj krioj. Tra fenestraj vitroj blue radiis televidaj programoj.
+Surstrate odoris fiŝaromo. ĉe iu patricia enirejo katoj aranĝis siajn konfliktojn per laŭtaj krioj. Tra fenestraj vitroj blue radiis televidaj programoj.
 
 ”Sed mi timas, sinjoro profesoro,” interrompis la silenton Georgo, ”ke tiu saviteco, kiel vi tion nomas, estas ekstreme enua afero!”
 
@@ -3756,9 +3035,6 @@ profesoro.
 ”Jes, mi kredas same, ke tio estas la esenco de la religia kredo.”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Bone. Se tiel, do ankaŭ la imago, kiun homo havas pri tiu alia mondo, projekcias nur la internan enhavon kaj situacion de la koncerna homo, ĉu?”
 
 ”Memkompreneble.”
@@ -3775,9 +3051,7 @@ de Adela, kiu eĉ plej perditan aferon ne volas vidi vere perdita, ”ke ankaŭ 
 
 ”Kial, mi ne komprenas …”
 
-”Ni diru tiel: ĉu povas havi adekvatan imagon pri poezi-
-
-ado homo, kiu neniam mem poetumis?”
+”Ni diru tiel: ĉu povas havi adekvatan imagon pri poeziado homo, kiu neniam mem poetumis?”
 
 ”Certe ne.”
 
@@ -3787,12 +3061,7 @@ ado homo, kiu neniam mem poetumis?”
 
 ”Kaj koncerne sciencon: ĉu vi opinias, ke iu povas havi
 
-vere sciencan mondpercepton, sen ke li mem estu sciencis-
-
-to?”
-
-
-FILOZOFII SUBTENDE
+vere sciencan mondpercepton, sen ke li mem estu sciencisto?”
 
 
 ”Klare, ke ne …”
@@ -3810,9 +3079,6 @@ Georgo per sia piedo trafis la ŝnuron de la tendo. La sinjorino bruligis lampon
 ĉiu el ili post kuŝiĝo enprofundiĝis en sian personan sopiron …
 
 
-FILOZOFII SUBTENDE
-
-
 XIV.
 
 ***Pri tio, kiel ili ĉiuj***
@@ -3823,34 +3089,21 @@ XIV.
 
 ***la homaj nazoj …***
 
-La boato balanciĝis kiel bebo en la patrina sino. La profesoro taskigis ilin almenaŭ unu tagon travivi kiel samsor-
-
-tanoj de Robinzono. Ili kunportis nenion krom tendumaj
+La boato balanciĝis kiel bebo en la patrina sino. La profesoro taskigis ilin almenaŭ unu tagon travivi kiel samsortanoj de Robinzono. Ili kunportis nenion krom tendumaj
 
 tranĉiloj kaj hakiloj, kiuj pendis de iliaj zonoj. Remiloj trapi-kis la akvofilmon; la profesoro turnis la direktilon, sinjorino Majda postĉasis ekvilibron en la pruo.
 
-Ili havis antaŭ si ankoraŭ proksimume du horojn da bra-
+Ili havis antaŭ si ankoraŭ proksimume du horojn da brava remado. Tie malproksime jam desegniĝis iaspeca testuda dorso de la insuleto, kiun ili planis dum unu, du tagoj kolo-nizi kiel iamaj esploristoj de foraj maroj kaj teroj.
 
-va remado. Tie malproksime jam desegniĝis iaspeca testuda dorso de la insuleto, kiun ili planis dum unu, du tagoj kolo-nizi kiel iamaj esploristoj de foraj maroj kaj teroj.
-
-”ŝajnas, ke remado en boato estas la plej karakteriza po-
-
-zicio de la homo …” kun ŝvitgutoj surfrunte diris Georgo.
+”ŝajnas, ke remado en boato estas la plej karakteriza pozicio de la homo …” kun ŝvitgutoj surfrunte diris Georgo.
 
 ”Jen tre preciza difino,” komentis la profesoro. ”Antikvaj Latinoj, kiuj vidis multe da maro, sciis diri: *’Memento, te esse* *viatorem!’* nialingve: Memoru, ke vi estas vojaĝanto!”
 
-”Sen senĉesa vojaĝado verdire ne povus okazi multa pro-
-
-greso …” diris ĉe sia remilo Adela.
+”Sen senĉesa vojaĝado verdire ne povus okazi multa progreso …” diris ĉe sia remilo Adela.
 
 ”Hm …” skeptikumis Duŝan, ”tio povus havi signifon, se la tero ne estus ronda. Sed tiel: bonvolu vojaĝi al direkto laŭ via plaĉo, ĉiam vi revenos al jam atingita loko …”
 
-La profesoro ŝatis, ke liaj disĉiploj sciis evoluigi sian dispu-149
-
-FILOZOFII SUBTENDE
-
-
-teton sen lia helpo. Li rigardis kontraŭ la kontinenta bordo, kiu pli kaj pli fariĝis apenaŭ videbla pentrista impersaĵo. Li tamen devos interveni:
+La profesoro ŝatis, ke liaj disĉiploj sciis evoluigi sian disputeton sen lia helpo. Li rigardis kontraŭ la kontinenta bordo, kiu pli kaj pli fariĝis apenaŭ videbla pentrista impersaĵo. Li tamen devos interveni:
 
 ”Adela, vi verŝajne havas certan imagon pri tio, kio estas la progreso … ĉu?”
 
@@ -3864,9 +3117,7 @@ Adela forte tiris sian remilon, ke aperis aervezikoj, kvazaŭ ŝi remus en sapa 
 
 ”ĉu vere estas tiel malfacile kompreni, kion signifas la nocio progreso, ja la vorto mem diras, ke temas pri movo an-taŭen …”
 
-Neniu respondis. La deira bordo ne plu videblis. La insu-
-
-lo kaŝiĝis en vualo de nebuletoj. La profesoro subite ordonis, ke ili ĉiuj fermu siajn okulojn kaj blinde remu antaŭen. Ili obeis kaj miris pri la instrukcio. Dume la enamiĝantoj en sa-
+Neniu respondis. La deira bordo ne plu videblis. La insulo kaŝiĝis en vualo de nebuletoj. La profesoro subite ordonis, ke ili ĉiuj fermu siajn okulojn kaj blinde remu antaŭen. Ili obeis kaj miris pri la instrukcio. Dume la enamiĝantoj en sa-
 
 ĝecon brave tiris siajn remilojn, Andreo turnis la direktilon, tiel ke la boato kelkfoje turniĝis surloke. Nur li plu sciis, kiu direkto kondukas al la insulo. Poste li ordonis denove malfermi okulojn.
 
@@ -3879,9 +3130,6 @@ li provokis, sidante ĉe la direktilo. Adela rigardis ĉirkaŭ si laŭ tuta hori
 ”Do, bonvolu remi antaŭen …!” diris Andreo kaj dronis en
 
 
-FILOZOFII SUBTENDE
-
-
 sian silenton. Nur la direktilo facile tremetis en lia certa ma-no. Ili jam estis plene elĉerpitaj. Kiu povus supozi, ke bezoniĝas tiom pena remado por pli bone kompreni unu solan
 
 nocion …
@@ -3890,9 +3138,7 @@ Finfine tamen montriĝis surhorizonte io, kio povus esti la insuleto. Tio paroli
 
 ”Kiel do? ĉu ni remas antaŭen aŭ malantaŭen?”
 
-”Kompreneble antaŭen!” anstataŭ Adela respondis Geor-
-
-go.
+”Kompreneble antaŭen!” anstataŭ Adela respondis Georgo.
 
 ”Kiamaniere vi tion scias?” insistis la profesoro.
 
@@ -3914,9 +3160,7 @@ go.
 
 ”Sen scio pri la celo aŭ senco oni efektive ne povas paroli pri progreso,” agnoskis Georgo.
 
-”Do, se tiel — kaj kiel montriĝas, ni ĉiuj en la boato konsentas kun tio — ankaŭ por la homa vivo samgrade validas, 151
-
-FILOZOFII SUBTENDE
+”Do, se tiel — kaj kiel montriĝas, ni ĉiuj en la boato konsentas kun tio — ankaŭ por la homa vivo samgrade validas,
 
 
 ke progresas nur la vivo, kiu havas antaŭ si celon kaj sencon
@@ -3937,16 +3181,12 @@ Adela ne trovis la aferon tute bona: ”La celojn kaj la sencon difinas ja ĉiuf
 
 ”Sekve,” intervenis Duŝan, ”la morto estas nia lasta celo, ĉu?”
 
-”Se la morto vere estus la lasta afero, kiu trafas la homon, tiam ni ne povus plu paroli pri ajna celo kaj senco plu. La 152
-
-FILOZOFII SUBTENDE
+”Se la morto vere estus la lasta afero, kiu trafas la homon, tiam ni ne povus plu paroli pri ajna celo kaj senco plu. La
 
 
 morto estus gratgumo, kiu forgratus kaj forviŝus ĉion, kion ni en nia vivo alstrebis. Do la morto nek povas esti nia celo nek nia senco.”
 
-”Sed kio povas ankoraŭ renkonti la homon post lia mor-
-
-to?” ironibuŝe demandis Adela.
+”Sed kio povas ankoraŭ renkonti la homon post lia morto?” ironibuŝe demandis Adela.
 
 ”Renkonti lin povas tio,” trankvile respondis la profesoro,
 
@@ -3962,20 +3202,13 @@ Dum la junulo sin turmentis por fari nodon, la roto jam vadis al la solida teren
 
 viŝis ŝviton de sia frunto.
 
-”Tio signifas: prepari kuŝejon kaj fajron …” komprenis Du-
-
-ŝan kaj tuj komencis serĉi branĉetojn kaj ŝtonojn, per kiuj oni povus frotbruligi fajron.
+”Tio signifas: prepari kuŝejon kaj fajron …” komprenis Duŝan kaj tuj komencis serĉi branĉetojn kaj ŝtonojn, per kiuj oni povus frotbruligi fajron.
 
 ”Duŝan, Adela kaj Tanja — prepari kuŝejon! Georgo, kiel
 
 ajn vi scias, ŝtelu fajron de la dioj; mia edzino kaj mi kolektos ion aĉan por vespermanĝo …”
 
-La societo, kiu ne jam tute komprenis, kion signifas la mal-153
-
-FILOZOFII SUBTENDE
-
-
-eblaj ordonoj de la profesoro, gaje ridis. Sed post certa tempo Georgo tamen demandis, hejme dorlotita de alumetoj, kiuj ĉi tie ne troviĝis: ”Laŭ kiu metodo mi faru fajron?”
+La societo, kiu ne jam tute komprenis, kion signifas la maleblaj ordonoj de la profesoro, gaje ridis. Sed post certa tempo Georgo tamen demandis, hejme dorlotita de alumetoj, kiuj ĉi tie ne troviĝis: ”Laŭ kiu metodo mi faru fajron?”
 
 ”Vi povas elekti,” rikane ridis Andreo, ”inter la metodo de la malnova kaj de la nova ŝtonepoko …”
 
@@ -3987,14 +3220,9 @@ Poste ili disiris al siaj okupoj. La aranĝantoj de kuŝlokoj havis certan sukce
 
 Sinjorino Majda kolektis foliojn kaj berojn, kvazaŭ ŝi prome-nus en la memserva vendejo. Sed finfine ŝi forĵetis ĉion kolek-titan. Al ŝi ŝajnis, ke ĉio verda verdas de veneno kaj ne de klorofilo. Sed plej malsukcesa montriĝis Georgo. Anstataŭ ke elsub liaj aboriĝenaj fingroj jam delonge kirliĝu fajra fumo, liaj fingroartikoj estis vundfrotitaj. De kelkaj ŝtonoj saltis faj-rero, sed flamo ne aperis. Nun li turnis inter siaj manplatoj sekan bastoneton, kiun li prenis sur la borda sablo, sed ankaŭ tio ne donis rezulton. La bastoneto eĉ ne fariĝis varma, por ne diri, ke ĝi eksplodigu flamplenan fajron …
 
-Profesoro kun certa petolgrimaco observis la tutan penadon, kiu ne sukcesis atingi la deziratan rezulton. La plej grandan fiaskon ĝisvivis Georgo, kiu antaŭe plej laŭte parolis pri progreso, pri la venkoplena homa marŝo kontraŭ la misteroj de la naturo kaj de la socio. La tuta marŝo nun ne povis aranĝi tion, kion en kelkaj momentoj aranĝas ĉiu polinezia abori-
-
-ĝeno, vivanta komplete ekster la ’progresema’ marŝo de la homaro.
+Profesoro kun certa petolgrimaco observis la tutan penadon, kiu ne sukcesis atingi la deziratan rezulton. La plej grandan fiaskon ĝisvivis Georgo, kiu antaŭe plej laŭte parolis pri progreso, pri la venkoplena homa marŝo kontraŭ la misteroj de la naturo kaj de la socio. La tuta marŝo nun ne povis aranĝi tion, kion en kelkaj momentoj aranĝas ĉiu polinezia aboriĝeno, vivanta komplete ekster la ’progresema’ marŝo de la homaro.
 
 ”Mi ankoraŭ ne vidas fumon …” estis malica la profesoro,
-
-
-FILOZOFII SUBTENDE
 
 
 kiam li kliniĝis super Georgo, kies frunto estis plena de ŝvi-to.
@@ -4005,9 +3233,7 @@ kiam li kliniĝis super Georgo, kies frunto estis plena de ŝvi-to.
 
 Aranĝantoj de dormlokoj intertempe finis sian laboron. La kolekta antaŭtuko de sinjorino Majda restis malplena. La moderna urba ’squaw’, kiu bone orientiĝas inter la industrie en-pakitaj nutraĵoj, evidente perdas sian lerton, kiam temas pri sinprizorgo el la naturaj provizoj.
 
-”Vidu,” iomete rezigne kaj iomete pedagogie alparolis An-
-
-dreo la deprimitajn vizaĝojn, ”tio estas la punkto, kiun ni atingis helpe de la tiel nomata progreso, ke ni devos iri sen-vespermanĝe dormi, ke ni frostos kaj timos sovaĝajn bestojn kaj ke ni devos frumatene leviĝi kaj tuj remi returne al la firma tero, se ni volas gardi niajn vivojn. La naturo fariĝis por ni komplete fremda. Tiamaniere ni ĝin superregis …”
+”Vidu,” iomete rezigne kaj iomete pedagogie alparolis Andreo la deprimitajn vizaĝojn, ”tio estas la punkto, kiun ni atingis helpe de la tiel nomata progreso, ke ni devos iri sen-vespermanĝe dormi, ke ni frostos kaj timos sovaĝajn bestojn kaj ke ni devos frumatene leviĝi kaj tuj remi returne al la firma tero, se ni volas gardi niajn vivojn. La naturo fariĝis por ni komplete fremda. Tiamaniere ni ĝin superregis …”
 
 Estis nur malfacile diveni, ĉu tio, kio dum la tro tro longa nokto okazis sub la improvizaciitaj branĉtegmentoj vere similis al dormado, ĉu ĉio tamen ne estis prisilentita vekado, kiu pro honto ne volis protesti.
 
@@ -4018,9 +3244,6 @@ rapido forlasis la insulon de la malsukcesa unutaga robinzo-nado, ol ĝi pasintt
 ”Kion vi diras pri tiu nia progreseca senpovo?” la profesoro ĵetis la ganton.
 
 ”Estus bele, se ni povus vivi tie sur la insulo almenaŭ sur la nivelo de aboriĝena konservativeco …” amaris Duŝan.
-
-
-FILOZOFII SUBTENDE
 
 
 ”ĉu ne estas iomete strange,” kontinuis la profesoro kaj
@@ -4048,14 +3271,9 @@ por sia heredaĵo Adela.
 ”Ankaŭ vi tre bone primeditis. Sed Adela, vi resumos ĉion tion, por ke ni sciu, kie ni efektive troviĝas …”
 
 
-FILOZOFII SUBTENDE
-
-
 ”La homaro kiel tuto scias multege kaj ĝi progresas; sed la unuopa homo estas granda kompatindulo, kiu scias ĉiam pli malmulte, kiu ĉiam pli postlamas la ĝeneralan progreson …”
 
-”Jes vere, li estas multe pli kompatinda mallertulo ol estis nia praparenco en la Krapina kavo …” aldonis plendon Du-
-
-ŝan.
+”Jes vere, li estas multe pli kompatinda mallertulo ol estis nia praparenco en la Krapina kavo …” aldonis plendon Duŝan.
 
 Andreo ne tuj kontinuis la interparolon. Li permesis al remiloj plaŭdi sur la marsurfaco kvazaŭ iu vangofrapus ĝin.
 
@@ -4069,48 +3287,30 @@ Finfine li ekparolis:
 
 ”Certe,” konfirmis la profesoro. ”Sed ni devas nin demandi, ĉu estas bone, ke apud la laboro ni dividas kaj disrompas en erojn ankaŭ tiun bazan rilaton al la mondo kaj nia funkcio en
 
-ĝi, kiun ni nomas la senco? Ne estas tiel tragike, se ne ĉiu unuopa homo plu povas mem fari fajron, ĉar tiu tekniko fari-
-
-ĝis por li fremda aŭ ĉar ĝi koncentriĝis en la kapoj de kelkaj specialistoj. Sed estas tragike, se ankaŭ la celo de la fajro fari-
+ĝi, kiun ni nomas la senco? Ne estas tiel tragike, se ne ĉiu unuopa homo plu povas mem fari fajron, ĉar tiu tekniko fariĝis por li fremda aŭ ĉar ĝi koncentriĝis en la kapoj de kelkaj specialistoj. Sed estas tragike, se ankaŭ la celo de la fajro fari-
 
 ĝis al ni fremda, se ĝi fuĝas el nia povo kaj nin superkreskas, kiel okazas ĉe la plej moderna atomteknologio.”
 
-”ĉu vi do ne vidas ion malbonan en la fakto, ke la unuo-
-
-pulo fariĝas scie kaj teknologie ĉiam pli senpova, superregante plu nur eron de la tuta teknologia procedo?” demandis
+”ĉu vi do ne vidas ion malbonan en la fakto, ke la unuopulo fariĝas scie kaj teknologie ĉiam pli senpova, superregante plu nur eron de la tuta teknologia procedo?” demandis
 
 Georgo.
 
-”Verdire ne. uste tio, kion vi vidas danĝera, mi vidas bo-157
-
-FILOZOFII SUBTENDE
-
-
-na, ja tio prenas de la unuopulo la povon, kiun li cetere havus super la aliaj. Tiel la homaro estas devigata kunigi siajn erojn kaj per solidaro krei tutecon. Sed katastrofe danĝere estus, se la homoj ankaŭ sur la kampo de la prijuĝo de la aferoj, do sur la kampo de mondpercepto, kies plej alta esprimo estas la filozofio, sur la kampo de kredo, kies plej alta esprimo estas la religio, permesus forpreni de si la tuton kaj ĉiu retenus por si nur sian etan eron, kiel kutimas en la mondo de tekniko kaj teknologio. Tie, kie tio iam okazas, tie kun plena teruro super la homoj ekregas mensogaj sacerdotoj, kiuj sin mem nomas profetoj kaj gvidantoj de la homaro. Tiel estis en la antikva Egiptujo, tiel okazis en la tempo de la diiĝintaj romiaj cezaroj, tiel estis en la epoko de faŝismo, naziismo kaj komunismo. Ju pli la labortekniko eriĝas, despli la unuopa homo devas konscii pri la tuto. Estas ĝuste, ke li dum la labora procedo fidas al sia inĝeniero kaj teknikisto, sed pri la senco de la tuto li devas scii mem. La memvokitaj sacerdotoj de Amono ankaŭ nuntempe sieĝas je ĉiu unuopa animo por ĝin
+”Verdire ne. uste tio, kion vi vidas danĝera, mi vidas bona, ja tio prenas de la unuopulo la povon, kiun li cetere havus super la aliaj. Tiel la homaro estas devigata kunigi siajn erojn kaj per solidaro krei tutecon. Sed katastrofe danĝere estus, se la homoj ankaŭ sur la kampo de la prijuĝo de la aferoj, do sur la kampo de mondpercepto, kies plej alta esprimo estas la filozofio, sur la kampo de kredo, kies plej alta esprimo estas la religio, permesus forpreni de si la tuton kaj ĉiu retenus por si nur sian etan eron, kiel kutimas en la mondo de tekniko kaj teknologio. Tie, kie tio iam okazas, tie kun plena teruro super la homoj ekregas mensogaj sacerdotoj, kiuj sin mem nomas profetoj kaj gvidantoj de la homaro. Tiel estis en la antikva Egiptujo, tiel okazis en la tempo de la diiĝintaj romiaj cezaroj, tiel estis en la epoko de faŝismo, naziismo kaj komunismo. Ju pli la labortekniko eriĝas, despli la unuopa homo devas konscii pri la tuto. Estas ĝuste, ke li dum la labora procedo fidas al sia inĝeniero kaj teknikisto, sed pri la senco de la tuto li devas scii mem. La memvokitaj sacerdotoj de Amono ankaŭ nuntempe sieĝas je ĉiu unuopa animo por ĝin
 
 erigi kaj dispartigi.”
 
-”Sed kie do vi vidas la eblecon de la homa progreso?” de-
-
-mandis Duŝan, trempante sian remilon en la malsekan hidro-genoksidon.
+”Sed kie do vi vidas la eblecon de la homa progreso?” demandis Duŝan, trempante sian remilon en la malsekan hidro-genoksidon.
 
 ”Ne estus ĝuste, se mi diktus al vi konkludojn, ja vi mem devas ilin eltiri. Sed ĉar temas pri unu el la plej gravaj demandoj de la moderna homo, mi devas al vi honeste respondi,
 
-kion mi pri tio pensas. La progreso estas ebla nur kondiĉe de la samtempa kontinuo de la scienca kaj teknologia specialiĝo kaj tiel diseriĝo — kaj kultura kaj mondpercepta, etika kaj religia universaliĝo kaj tiel koncentriĝo en la konceptado kaj atingado de la homa sencocelo. Niaj instrumentoj estu pli kaj 158
-
-FILOZOFII SUBTENDE
+kion mi pri tio pensas. La progreso estas ebla nur kondiĉe de la samtempa kontinuo de la scienca kaj teknologia specialiĝo kaj tiel diseriĝo — kaj kultura kaj mondpercepta, etika kaj religia universaliĝo kaj tiel koncentriĝo en la konceptado kaj atingado de la homa sencocelo. Niaj instrumentoj estu pli kaj
 
 
 pli specialaj — sed nia volo kaj valorprijuĝo estu pli kaj pli universala. Nur tio vere kondukas al la progreso. Paralele kun pli kaj pli forta labordispartiĝo homoj legu pli el Homero kaj Sofoklo, Platono kaj Aristotelo, el la Malnova kaj Nova testa-mentoj, el Puŝkin kaj Mickieviĉ, el Goethe kaj Shakespeare, el Dante kaj Cervantes, el Preŝeren kaj Cankar, el Privat kaj Ka-loĉaj. Se tiel, ni ne bezonas timi. Ni povas eĉ tosti je progreso, kiu cetere jam komencas nin timigi, se ni akompanas ĝin per interna kultura kaj spirita kresko!”
 
 Ili mem ne sciis precize, kiam la distanco inter la insulo kaj la firma tero estis traremita. Ili saltis el la boato kaj ekpaŝis al la tendoj.
 
-”Kio pri mia honorario?” gaje memorigis Georgo la forge-
-
-seman profesoron.
-
-
-FILOZOFII SUBTENDE
+”Kio pri mia honorario?” gaje memorigis Georgo la forgeseman profesoron.
 
 
 XV.
@@ -4131,26 +3331,18 @@ Tiel plurfoje parolis Andreo — kaj la junaj esploristoj de la homaj larĝoj ka
 
 Ankaŭ hodiaŭ ili faris tiel. Kiam ankoraŭ estis malhelo, ili konsumis la trinkaĵon, kiu konservas junecon kaj sanon: varman citronakvon kun iomete da mielo. Dume ekaŭroris.
 
-Kiam parteto de la suna disko ekrigardis de la horizonto, ili starante sin turnis kontraŭ la sunon, krucumis la manojn sur siaj brustoj kiel ĉe preĝo kaj profunde enspiris kaj elspiris. ĉe la sekva enspiro ili levis siajn manojn superkapen, etendis la kubutojn kaj malfermis polmojn. Poste ili klinis sin antaŭen, 160
-
-FILOZOFII SUBTENDE
+Kiam parteto de la suna disko ekrigardis de la horizonto, ili starante sin turnis kontraŭ la sunon, krucumis la manojn sur siaj brustoj kiel ĉe preĝo kaj profunde enspiris kaj elspiris. ĉe la sekva enspiro ili levis siajn manojn superkapen, etendis la kubutojn kaj malfermis polmojn. Poste ili klinis sin antaŭen,
 
 
 elspiris kaj per etenditaj manoj manplate tuŝis la teron. Longe kraketis iliaj ostoj, ĝis ili sukcesis. En tiu pozo ili denove enspiris, etendis la dekstran gambon malantaŭen, kuntiris maldekstran gambon genue, levis la kapon kontraŭ la suno. Per retenita spiro ili etendis ankaŭ la maldekstran gambon. Sur-mane ili malleviĝis al la tero, premis kubutojn al sia korpo kaj elspiris. Denove enspiris, levis kapon kaj la supran korpopar-ton kaj retenis la spiron. Poste ili laŭ inversa ekzerca ordo ripetis ĉiujn movojn de antaŭe, ke finfine ili denove staris rekte per manoj, krucumitaj surbruste.
 
 *Surya namaskar*, saluto al la suno, estis farita.
 
-Ili veturis peraŭte translimen, al la itala flanko. Pli ol horo da veturado. Eble eĉ pli, se doganistoj kapricos. En la urbo transe troviĝas muzeo kun nekutimaj eksponaĵoj. En fermi-taj vitraj tuboj ili arkivigas morte naskitajn homembriojn. Por okuloj, alkutimiĝintaj al la konsumeca brilo de supermerka-taj haloj tio estis preskaŭ neeltenebla elprovo. Sed por la dis-
-
-ĉiploj de filozofio tio estis nepre bezonata travivaĵo. Sen rigardo al la homa mizero oni estas en filozofio proksimume sama kiel analfabeto en studadsalono de kompara literaturo …
+Ili veturis peraŭte translimen, al la itala flanko. Pli ol horo da veturado. Eble eĉ pli, se doganistoj kapricos. En la urbo transe troviĝas muzeo kun nekutimaj eksponaĵoj. En fermi-taj vitraj tuboj ili arkivigas morte naskitajn homembriojn. Por okuloj, alkutimiĝintaj al la konsumeca brilo de supermerka-taj haloj tio estis preskaŭ neeltenebla elprovo. Sed por la disĉiploj de filozofio tio estis nepre bezonata travivaĵo. Sen rigardo al la homa mizero oni estas en filozofio proksimume sama kiel analfabeto en studadsalono de kompara literaturo …
 
 La vico antaŭ la dogana transirejo ne estis ekstreme longa.
 
-Ne estis aĉetokaza tago, dum kiu la tuta nacio invadas la urbon por aĉeti aĵojn, pliparte superfluajn. Antaŭ ili baldaŭ troviĝis ĝis la dogana barilo eble kvin aŭtomobiloj. Tiam ekestis svarmo inter la doganistoj. La oficisto, kiu inspektis aŭtojn, eltiris per sia sperta mano ie elsub la motorkovrilo pakaĵetojn, unu post la alian. La veturilo portis registronumeron el iu sudorienta lando. Ne estis dubo: la doganistoj trovis droga-
-
-ĉan kontrabandiston. Ili ordonis al la stiristo haltigi la aŭton plenan de malpermesitaj substancoj, sur flankan lokon, po-161
-
-FILOZOFII SUBTENDE
+Ne estis aĉetokaza tago, dum kiu la tuta nacio invadas la urbon por aĉeti aĵojn, pliparte superfluajn. Antaŭ ili baldaŭ troviĝis ĝis la dogana barilo eble kvin aŭtomobiloj. Tiam ekestis svarmo inter la doganistoj. La oficisto, kiu inspektis aŭtojn, eltiris per sia sperta mano ie elsub la motorkovrilo pakaĵetojn, unu post la alian. La veturilo portis registronumeron el iu sudorienta lando. Ne estis dubo: la doganistoj trovis drogaĉan kontrabandiston. Ili ordonis al la stiristo haltigi la aŭton plenan de malpermesitaj substancoj, sur flankan lokon, po-161
 
 
 licistoj kunprenis la ŝoforon. Nenio escepta, la trafiko kontinuis, estis rutina evento ĉiutaga.
@@ -4181,9 +3373,7 @@ plena mezuro de knaba fiero proklamis Georgo.
 
 ”Bone, se tiel, do ĉio, kio apartenas al la mondo de moralo, estas nur hobivalora parolaĉado sen ĝenerala valido. Se tiel, oni al neniu homo povas ion ajn riproĉi, eĉ tion ne, se li mo-ralizas. Estas same sensence ordoni kaj same skandaliĝi pro ordonoj. Oni ne havas rajton malpermesi certajn agojn, sed oni same ne havas rajton malpermesi malpermesadon …”
 
-”Bone,” retiriĝis Georgo iomete, ”kio sekvas el tio, se oni 162
-
-FILOZOFII SUBTENDE
+”Bone,” retiriĝis Georgo iomete, ”kio sekvas el tio, se oni
 
 
 akceptas, ke moralon simple faras firmaj ordonoj kaj malpermesoj?”
@@ -4210,18 +3400,14 @@ tamen mi ne povas esti per ĝi kontenta.”
 
 ”ĉar ankaŭ tia komunumo, kiel ekzemple la nacio aŭ la
 
-ŝtato, politika partio aŭ io simila, ne estas persono kun propra racio kaj volo, sed nur socia fenomeno, iaspeca mekanismo, en kiu manifestiĝas racio kaj volo jen de tiu, jen de iu alia plej influa persono aŭ persona grupo. Kaj cetere ankaŭ tial, ĉar la historio nin instruas pri senmezura kapricemo kaj eĉ terureco koncerne moralajn leĝojn, kiajn foje aprobis homamasoj. Oni nur komparu la valorojn, por kiuj aplaŭdis amasoj en Nurenbergo post la transpreno de la povo fare de Hitler post la jaro 1933 — kaj tiujn, kiuj valoris en la sama urbo 163
-
-FILOZOFII SUBTENDE
+ŝtato, politika partio aŭ io simila, ne estas persono kun propra racio kaj volo, sed nur socia fenomeno, iaspeca mekanismo, en kiu manifestiĝas racio kaj volo jen de tiu, jen de iu alia plej influa persono aŭ persona grupo. Kaj cetere ankaŭ tial, ĉar la historio nin instruas pri senmezura kapricemo kaj eĉ terureco koncerne moralajn leĝojn, kiajn foje aprobis homamasoj. Oni nur komparu la valorojn, por kiuj aplaŭdis amasoj en Nurenbergo post la transpreno de la povo fare de Hitler post la jaro 1933 — kaj tiujn, kiuj valoris en la sama urbo
 
 
 post 1945-a, kiam oni venigis naziajn krimulojn antaŭ la tribunalon de la aliancintoj. Ambaŭ valorsistemoj staris en la servo al certa grandsocia komunumo, tamen oni ilin ne povas kompari. Tiu, kiu volas serĉi moralan gvidlinion en la unuopaj elektoj de grandsociaj komunumoj aŭ momentaj
 
 homamasoj, tiu ne povus diri, kiu momento de Nurenbergo
 
-estis morale ĝusta. Finfine la saman situacion oni povis observi en la kazo de Sokrato, kiun la samaj homoj unue admiris kaj serĉis okazojn kun li agrable diskuti, dum poste ili lin mortkondamnis — aŭ eĉ pli draste en la kazo de Jesuo Kris-to, kiun la sama jerusalema homamaso unue gloresprime ak-
-
-ceptis, kiam li surazene enrajdis la urbon antaŭ la paskofes-ta tago, sed tuj poste la sama homamaso ne ĉesis krii: Liberigu Barabason — krucumu Jesuon!”
+estis morale ĝusta. Finfine la saman situacion oni povis observi en la kazo de Sokrato, kiun la samaj homoj unue admiris kaj serĉis okazojn kun li agrable diskuti, dum poste ili lin mortkondamnis — aŭ eĉ pli draste en la kazo de Jesuo Kris-to, kiun la sama jerusalema homamaso unue gloresprime akceptis, kiam li surazene enrajdis la urbon antaŭ la paskofes-ta tago, sed tuj poste la sama homamaso ne ĉesis krii: Liberigu Barabason — krucumu Jesuon!”
 
 ”Bone, sed kiu povas kaj rajtas finfine proklami moralajn leĝojn kaj ordonojn?” volis jam scii Duŝan.
 
@@ -4233,9 +3419,7 @@ Tirano aŭ tiranoj povas tion efektivigi nur uzante perforton kaj sisteman perse
 
 ”Jam mi scias …” ekkriis Adela.
 
-”Nature, ke vi scias. En sia plej kaŝita interno ĉiu tion scias kaj agnoskas. Sed permesu, ke mi mem diru ĝisfine. Por ke tiu leĝdonanto ne estu kaprica despoto, por ke el tio ne re-zultiĝu perfortuza tiranio, por ke tio ne estu malplenvortaĉa 164
-
-FILOZOFII SUBTENDE
+”Nature, ke vi scias. En sia plej kaŝita interno ĉiu tion scias kaj agnoskas. Sed permesu, ke mi mem diru ĝisfine. Por ke tiu leĝdonanto ne estu kaprica despoto, por ke el tio ne re-zultiĝu perfortuza tiranio, por ke tio ne estu malplenvortaĉa
 
 
 intelekta ludo de tiu aŭ alia humanisto, do tiu leĝdonanto povas esti nur Dio mem!”
@@ -4244,9 +3428,7 @@ intelekta ludo de tiu aŭ alia humanisto, do tiu leĝdonanto povas esti nur Dio 
 
 Sed la profesoro ne ŝanceliĝis:
 
-”Nur Estaĵo, kiu konceptis la mondon kaj nian vivon en ĝi; nur Estaĵo, kiu konas la tutan historian intrigon kaj ankaŭ ĝin scias stiri al la glora fino, nur tia Estaĵo povas helpe de sia komunika sistemo, kies relajsoj estas niaj konsciencoj, proklami kaj efektivigi moralajn leĝojn, ordonojn kaj malperme-
-
-sojn.”
+”Nur Estaĵo, kiu konceptis la mondon kaj nian vivon en ĝi; nur Estaĵo, kiu konas la tutan historian intrigon kaj ankaŭ ĝin scias stiri al la glora fino, nur tia Estaĵo povas helpe de sia komunika sistemo, kies relajsoj estas niaj konsciencoj, proklami kaj efektivigi moralajn leĝojn, ordonojn kaj malpermesojn.”
 
 Georgo provis savi la jam perditan aferon:
 
@@ -4260,22 +3442,16 @@ malvenko la sama homamaso sputas sur la iamajn soldatojn
 
 kaj oficirojn, kiuj fariĝis militkaptitoj …”
 
-Ili intertempe atingis la naturhistorian muzeon. Ili supren-iris laŭ la ŝtuparo en la unuan etaĝon, kie troviĝis la fako pri morte naskitaj homembrioj. Tuj, kiam ili enpaŝis en la ejon, lumigitan per iaspeca verda lumo, kvazaŭ ĝi venus de algoj, ili konfrontis sin kun la mondo, kian ili ĝis tiam ne konis. Kvazaŭ ili starus en la ateliero de la pentristo Tisnikar, kie de la mirindaj, sed teruratmosferaj pentraĵoj rigardas al la spektanto la lastaj avertantoj pri la homa sorto: la majesta korvo, la rigida ĉevalo en sia terura pozo, la fungo de la atomepoka honto, la Krucumito mem … El la ekspoziciitaj vitraj vazoj 165
-
-FILOZOFII SUBTENDE
+Ili intertempe atingis la naturhistorian muzeon. Ili supren-iris laŭ la ŝtuparo en la unuan etaĝon, kie troviĝis la fako pri morte naskitaj homembrioj. Tuj, kiam ili enpaŝis en la ejon, lumigitan per iaspeca verda lumo, kvazaŭ ĝi venus de algoj, ili konfrontis sin kun la mondo, kian ili ĝis tiam ne konis. Kvazaŭ ili starus en la ateliero de la pentristo Tisnikar, kie de la mirindaj, sed teruratmosferaj pentraĵoj rigardas al la spektanto la lastaj avertantoj pri la homa sorto: la majesta korvo, la rigida ĉevalo en sia terura pozo, la fungo de la atomepoka honto, la Krucumito mem … El la ekspoziciitaj vitraj vazoj
 
 
-gapis al ili unuokulaj embriaj fruntoj; stumpoj de ne plenkre-skintaj korpomembroj, groteske grimacitaj vizaĝtrajtoj. En tiuj senkompataj vazoj estis aranĝitaj tristaj floroj de la homa kaj surtera povreco. Subite ĉi tie ne staris plu Adela kaj Du-
-
-ŝan, Tanja kaj Georgo, sinjorino Majda kaj profesoro Andreo: estis nur ia kolektiva sento de teruro kaj skuiteco, kio faras la esencon de la homa karno, kiun la formanta spirito ne sufiĉe perfektigante kondukis al la planita perfekteco. Neniu aŭskultis la fakan ĉiĉeronadon. Tiuj postrestaĵoj de la homa su-bekzisto, aranĝitaj kiel teruraj fruktoj de la kosma rubaĵo, parolis al ili en sia handikapita dialekto mem.
+gapis al ili unuokulaj embriaj fruntoj; stumpoj de ne plenkre-skintaj korpomembroj, groteske grimacitaj vizaĝtrajtoj. En tiuj senkompataj vazoj estis aranĝitaj tristaj floroj de la homa kaj surtera povreco. Subite ĉi tie ne staris plu Adela kaj Duŝan, Tanja kaj Georgo, sinjorino Majda kaj profesoro Andreo: estis nur ia kolektiva sento de teruro kaj skuiteco, kio faras la esencon de la homa karno, kiun la formanta spirito ne sufiĉe perfektigante kondukis al la planita perfekteco. Neniu aŭskultis la fakan ĉiĉeronadon. Tiuj postrestaĵoj de la homa su-bekzisto, aranĝitaj kiel teruraj fruktoj de la kosma rubaĵo, parolis al ili en sia handikapita dialekto mem.
 
 Kiam ili eliris, ili aŭtomate turnis sin al la parko. Ili sentis bezonon, troviĝi laŭeble rapide en silenta kaj natura medio.
 
 Sur la padoj por kvieta primedito kaj konfida interparolo. Ili moviĝis kiel fantomoj. Tie, ĉe tiuj verdkoloraj vazoj ili demetis ĉiujn siajn diferencojn kaj specifaĵojn. Trans la tapiŝo el brun-koloraj arbaj pingloj palpiris kvar siluetoj, deprimitaj pro la sorto de la adama argilo.
 
-”ĉu oni tion samtiel povas nomi celsenco …?” Georgo rom-
-
-pis la neproklamitan interkonsenton pri silento. La demando adresiĝis, kvankam formale ne dirite, al Andreo, la profesoro.
+”ĉu oni tion samtiel povas nomi celsenco …?” Georgo rompis la neproklamitan interkonsenton pri silento. La demando adresiĝis, kvankam formale ne dirite, al Andreo, la profesoro.
 
 ”Mi opinias,” sen trafiteco respondis la profesoro, ”ke eĉ la nesukcesa homa embrio, eĉ en sia plej groteske terura apero, estas sekvo de certa providenco …”
 
@@ -4286,9 +3462,6 @@ pis la neproklamitan interkonsenton pri silento. La demando adresiĝis, kvankam 
 ”ĉu do eblas eĉ io pli terura?” dubis Tanja.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Oni devus havi aparte kapablajn okulojn por povi vidi, kia efektive aspektas la homo subefike de lia mensogo, maljusto, malico. La malica homo povas laŭekstere manifestiĝi per tre larĝa societeta rido kaj per mimiko de ĉarmeco, sed lia interno estas tia, ke kompare kun ĝi ni hodiaŭ observis belajn flo-rojn!”
 
 ”ĉu tiu supozita Dia pedagogio ne estas iom tro bruta?”
@@ -4297,9 +3470,7 @@ oponis Adela.
 
 ”Oni devas konsideri, ke vere kompatinda ne estas tiu mise kreskita vivprovo. En kompatinda stato troviĝas ni, spektantoj. Dio tiel ne frapis la mise naskitan embrion, sed nin, kiuj tion spektas. Sed bonvolu scii, ke tiu, kiu ne ricevas batojn de Dio, batas sin mem, eĉ multe pli forte kaj senkompate.”
 
-”El kio efektive originas la malbono?” subite demandis Du-
-
-ŝan.
+”El kio efektive originas la malbono?” subite demandis Duŝan.
 
 ”La germana filozofo Leibniz distingis tri formojn de la
 
@@ -4307,18 +3478,13 @@ malbono. La unua formo estas la metafizika malbono, kiu
 
 simple ekzistas tial, ke la kreita mondo estas per limoj fina, portempa kaj malperfekta mondo. Tio estas la destino de ĉio, kio ne estas Dio mem. La dua formo laŭ lia instruo estas la fizika malbono, kiu manifestiĝas en nia korpa penado kaj sufero, sed ankaŭ en naturaj katastrofoj, kiel inundoj, tertremoj, malsanoj kaj en fenomenoj, kiajn ni en la muzeo vidis. Sed plej terura laŭ li estas la morala malbono, kies origino estas en ni mem. i kaŭzas la plimulton de nia suferado.
 
-”Bone,” diris Duŝan, ”tiamaniere ni la malbonon iel kla-
-
-sifikis, sed min interesas, de kie ĝi venas, kio estas ĝia bazo?”
+”Bone,” diris Duŝan, ”tiamaniere ni la malbonon iel klasifikis, sed min interesas, de kie ĝi venas, kio estas ĝia bazo?”
 
 ”La morala malbono,” kun pripenso respondis Andreo,
 
 ”estas flanka kaj portempa apero de la homa libero.”
 
 ”Kiel vi opinias: flanka kaj portempa …?” demandis Tanja.
-
-
-FILOZOFII SUBTENDE
 
 
 ”Flanka tial, ĉar ĝi ne venas el la intenco de la homa libero, portempa tial, ĉar la malbono ne havas sian eternecan bazon, ĝi estas nur la fenomeno, kiu ligiĝas kun la akcidentaleco de tiu ĉi mondo.”
@@ -4336,9 +3502,6 @@ FILOZOFII SUBTENDE
 ”Jam mi timis,” ridete diris Andreo, ”ke ĝuste pri tio neniu starigos demandon. Tamen nia Adela ĝis nun ne disraviĝis, brave!”
 
 
-FILOZOFII SUBTENDE
-
-
 ”Sed tio ankoraŭ ne estas la respondo …”
 
 ”Ne tiel rapide, fraŭlino! Se temas pri grandaj aferoj, oni ne hastu. Verdire pri neniu afero oni urĝu. ĉiam, kiam nin pelas rapido, ni iras malbondirekten. Bona estas nur diligenta kaj racia malrapido …”
@@ -4350,9 +3513,6 @@ Profesoro volis demonstri tion, pri kio li parolis. Respondante al Adela li vere
 ĝuste pro la instruo, kiun disvastigis tiu ĉi bone instruita krimulo. Kaj la senrenoma germana soldato en Serbio, kiu rifuzis partopreni ĉe pafado de ostaĝoj kaj preferis mem esti pafita, tre verŝajne ne sciis multe pri filozofia fako, kia ĝi estas instruata en lernejoj kaj universitatoj, kian pritraktas intelek-tulaj libroj. Se mi komparas tiujn du ekstreme poziciitajn homojn, mi per tio ne volas diri, ke la unua fariĝis krimulo, ĉar li bone konis fakan filozofion — kaj la dua ekzemple bona homo, ĉar li ne havis scion pri lerneja filozofio. Neniel. Tamen la unua pruvas, ke nura fakeco en filozofio ne sufiĉas.
 
 Filozofio ne estas nur scienco, ne estas nur fako, ĝi ĉion tion nur uzas kiel rimedojn. Filozofio antaŭ ĉio estas baza homa inklino al saĝo, amo al saĝo, kiel formulis Sokrato. Kaj la dua pruvas, ke manko de faka scio ne estas esenca manko por
-
-
-FILOZOFII SUBTENDE
 
 
 tamen akiri saĝon, se oni nur vere inklinas al ĝi, amas ĝin. Tio signifas, ke oni procedu same, kiel Jesuo rekomendas: la unuan aferon ne ellasu kaj la duan faru! Ne ellasu la okazon lerni filozofion lernejan, sed amu la saĝon kaj obeu ĝin, ja en tio finfine manifestiĝas vera filozofo! En tiu ĉi senco tamen oni povas diri, ke nur filozofo povas esti vere bona homo. Ne filozofo kiel fakulo, ĉar estante nur fakulo, oni povas esti ankaŭ samtempe brutulo kaj krimulo, sed filozofo en la sokrata, origina senco, ’amanto de la saĝo’, kiu en la popola lingvo no-miĝas ankaŭ vivfilozofo.”
@@ -4367,14 +3527,9 @@ tamen akiri saĝon, se oni nur vere inklinas al ĝi, amas ĝin. Tio signifas, ke
 
 ”La saĝo estas kapablo prijuĝi, kio en tiu ĉi mondo havas valoron kaj kio ne havas valoron aŭ nur parte ĝin havas, se ĝi servas al iu ĉefa valoro. Tio estas kapablo de morala valori-go kaj prijuĝo. Tiun ĉi kapablon ĉiu sana bebo kunportas en-monden per sia naskiĝo. Bedaŭrinde poste multaj homoj klopodas, dum jaroj penadas, nebuligi al infano tiun kapablon.
 
-Tamen ĉiu homo havas devon, denove trovi en si tiun kom-
-
-pason, kiu lin per certeco orientos al la ĝusta celo.”
+Tamen ĉiu homo havas devon, denove trovi en si tiun kompason, kiu lin per certeco orientos al la ĝusta celo.”
 
 La aŭtomobilo denove troviĝis sur ilia flanko de la ŝtatlimo.
-
-
-FILOZOFII SUBTENDE
 
 
 La impreso el la naturhistoria muzeo boris en ilin spite al ĉio, kion diris la profesoro. Duŝan ne povis resti trankvila, li diris:
@@ -4405,20 +3560,11 @@ animoj kaj tiujn ĉi per tio venenigus kaj koruptus.”
 
 ”Ni prenu murdon. Se ĝi ne kaŭzus suferon kaj dolorojn,
 
-se ĝi ne provokus en nia interno ekstreman reziston kaj naŭ-
+se ĝi ne provokus en nia interno ekstreman reziston kaj naŭzon, ĝi baldaŭ ennestiĝus en ni kiel io normala kaj senproblema.”
 
-zon, ĝi baldaŭ ennestiĝus en ni kiel io normala kaj senproblema.”
+”Sed kial ĝi entute estas allasata? Kial la Reganto de la universo ne haltigas ĝin en la momento, kiam ĝi aperas en la homa animo kiel ideo?” volis scii Duŝan.
 
-”Sed kial ĝi entute estas allasata? Kial la Reganto de la uni-171
-
-FILOZOFII SUBTENDE
-
-
-verso ne haltigas ĝin en la momento, kiam ĝi aperas en la homa animo kiel ideo?” volis scii Duŝan.
-
-”Vi pravas, Dio nin povus facile narkoti per iu gaja sub-
-
-stanco el iu hormona glando, kio nin en momento farus sen-perfortemaj kaj reciproke amikaj. Sed tion Li ne faras pro la sama konsekvenceco. Li respektas la regulojn de la ludo. Se la okazado en la homa animo ne ricevus sian sperteblan efek-tivigon en la substanca mondo, nia anima vivo baldaŭ sova-
+”Vi pravas, Dio nin povus facile narkoti per iu gaja substanco el iu hormona glando, kio nin en momento farus sen-perfortemaj kaj reciproke amikaj. Sed tion Li ne faras pro la sama konsekvenceco. Li respektas la regulojn de la ludo. Se la okazado en la homa animo ne ricevus sian sperteblan efek-tivigon en la substanca mondo, nia anima vivo baldaŭ sova-
 
 ĝiĝus en nekontroleblan spiralon de l’ malbono. Malbonon
 
@@ -4431,9 +3577,6 @@ oni povas kontroli kaj limigi ĝuste tial, ke ĝi materie efektiviĝas. La murdo
 ”uste tiel. La homoj ŝatas havi murdon sen murdito, trompon sen trompito, ŝteladon sen priŝtelito. Sed Dio nin metis en bonan, sekve konsekvencan mondon, kie ĉiu malbono, kiu cetere nevideble kiel kanceraj histoj diskreskus en niaj animoj, baldaŭ montriĝas kun sia tuta teruro ankaŭ deekstere kaj tiel nin atentigas pri sia ekzisto kaj pri sia vera naturo. Sed vere malbona kaj monstra estus la mondo, en kiu la malbono ne havus materiajn sekvojn. i estus libera de ĉiu kontrolo kaj ŝanco pliboniĝi. Ni troviĝus plene en ĝia posedo.”
 
 
-FILOZOFII SUBTENDE
-
-
 ”ĉu ĉio ĉi signifas,” miris Georgo, ”ke la murdo esence
 
 estas io bona?”
@@ -4442,27 +3585,18 @@ estas io bona?”
 
 ”Andreo, se subaŭskultus vin iu, kiu vin ne konas, tiu povus ĵuri, ke vi stimulas fari krimojn …” satiĝis de la filozofio de sia edzo sinjorino Majda.
 
-”Nu, kara, mi vidas, ke eĉ vi ne komprenis min. Kario es-
+”Nu, kara, mi vidas, ke eĉ vi ne komprenis min. Kario estas malbono, dum dentodoloro estas bona afero, ja sen tiu doloro baldaŭ ĉiuj perdus siajn dentojn. ĉe ĉiu manifestiĝo de la malbono oni devas distingi inter la motivo kaj la efek-tivigo. La malbono estas vera nur en sia motivo, dum la sekvo, estu ĝi eĉ tiel doloriga kaj suferiga, jam estas denunco de la sama malbono. Bonvolu vidi: la ideo murdi, dum ĝi restas nur penso en animo, dolorigas neniun, sed ĝuste tio estas malbone. La vera murdo ege suferigas, sed ĝuste tial ĝi atestas kontraŭ la ideo murdi. La sekvoj dolorigas, sed ili sanigas.
 
-tas malbono, dum dentodoloro estas bona afero, ja sen tiu doloro baldaŭ ĉiuj perdus siajn dentojn. ĉe ĉiu manifestiĝo de la malbono oni devas distingi inter la motivo kaj la efek-tivigo. La malbono estas vera nur en sia motivo, dum la sekvo, estu ĝi eĉ tiel doloriga kaj suferiga, jam estas denunco de la sama malbono. Bonvolu vidi: la ideo murdi, dum ĝi restas nur penso en animo, dolorigas neniun, sed ĝuste tio estas malbone. La vera murdo ege suferigas, sed ĝuste tial ĝi atestas kontraŭ la ideo murdi. La sekvoj dolorigas, sed ili sanigas.
-
-La motivoj ne kaŭzas dolorojn, sed ili mortigas. Jen ĉio. Tial mi insistas ĉe mia konstato, ke nia mondo eĉ tiuflanke estas bona mondo. Ja ĝi ne estas io alia ol la scenejo, sur kiu la vera enhavo de niaj animoj manifestiĝas videble kaj kontroleble, tial ankaŭ plibonigeble. Tial estas bone, ke la frapo per tranĉi-lo dolorigas kaj angorigas, ke la vundo estas io terura kaj ke 173
-
-FILOZOFII SUBTENDE
+La motivoj ne kaŭzas dolorojn, sed ili mortigas. Jen ĉio. Tial mi insistas ĉe mia konstato, ke nia mondo eĉ tiuflanke estas bona mondo. Ja ĝi ne estas io alia ol la scenejo, sur kiu la vera enhavo de niaj animoj manifestiĝas videble kaj kontroleble, tial ankaŭ plibonigeble. Tial estas bone, ke la frapo per tranĉi-lo dolorigas kaj angorigas, ke la vundo estas io terura kaj ke
 
 
 oni pro ĝi fine mortas. Finfine estas ankaŭ ĝuste, ke tiu, kiu en sia koro portas la ideon murdi, la tranĉilon vere uzu. Tiamaniere la malbono lokiĝas, alarmas aliajn, ja ĝi per sia terura aspekto ĉe la plimulto provokas reziston kaj skandaliĝon. Sed malbona kaj malsaviga estus la mondo, en kiu murdisto ne
 
 murdus, en kiu oni post la tranĉila frapo ne mortus. La malbono silente kancermaniere diskreskus en homaj animoj. Tial mi diras, ke tiu ĉi mondo eĉ en sia plej terura aspekto tamen estas bona.”
 
-La piedo puŝis bremsilon. ĉar la mondo estas konsekven-
-
-ca, la veturilo haltis, la junaj filozofoj elsaltis kaj kuris al naĝ-
+La piedo puŝis bremsilon. ĉar la mondo estas konsekvenca, la veturilo haltis, la junaj filozofoj elsaltis kaj kuris al naĝ-
 
 kalsonoj, kiuj sekiĝis sur ŝnuro de la pasinta tago.
-
-
-FILOZOFII SUBTENDE
 
 
 XVI
@@ -4493,16 +3627,12 @@ pri ĉio siajn pensojn kaj ion aranĝis en sia tendo. Andreo subite paŝis el si
 
 profesoro, ”mi timas, ke la ŝtato, kiun oni devas defendi per bastono, jam estas efektive perdita …”
 
-”Do vi opinias, ke oni la ŝtaton ne bezonas defendi kaj ĉiu, 175
-
-FILOZOFII SUBTENDE
+”Do vi opinias, ke oni la ŝtaton ne bezonas defendi kaj ĉiu,
 
 
 kiu hazarde preteriras, povas ĝin libere konkeri?” alpaŝis Adela.
 
-”Ni devas pripensi, per kio unuopaj ŝtatoj altiras konke-
-
-rantojn. Se ni tiun aferon trovos, do ni prefere zorgos pri ĝi ol pri militista defendo, se tio tute estas vera defendo.”
+”Ni devas pripensi, per kio unuopaj ŝtatoj altiras konkerantojn. Se ni tiun aferon trovos, do ni prefere zorgos pri ĝi ol pri militista defendo, se tio tute estas vera defendo.”
 
 ”Do, kio povus esti tiu mistera afero?” kontinuis Adela,
 
@@ -4522,16 +3652,9 @@ Bonvolu okaze tion bone rigardi: ĝi ĉiam trovas por si la plej mallongan kaj r
 
 Tiel kondutas la lingvo, se oni komunikas aŭtente, honeste.
 
-Sed kiam oni volas impresi partneron, fari pli grandan bildon ol estas la realo, kiam oni eĉ volas blufi kaj trompi, tiam oni uzas la lingvon neekonomie, tiam multobliĝas la vortoj, kom-176
+Sed kiam oni volas impresi partneron, fari pli grandan bildon ol estas la realo, kiam oni eĉ volas blufi kaj trompi, tiam oni uzas la lingvon neekonomie, tiam multobliĝas la vortoj, komplikiĝas la frazkonstruo. Same okazas en la ŝtato. Se en ĝi regas la spirito de honesto kaj la sama rajto por ĉiuj, ĝia konstruo estas simpla kaj travidebla por esti komprenebla kaj je dispono al ĉiu, eĉ por analfabeto. Leĝoj de juste kaj racie ordigita ŝtato estas malmultaj, malampleksaj kaj klaraj, ke ĉiu civitano povu ilmpreni kaj enkapigi. Kontraŭe la ŝtato, ordigita malracie, en kiu superregas maljusto, havas multon da leĝoj kun multaj amendoj kaj komentoj. ĉio estas formulita longfraze kaj malklare, en nekomprenebla artifika lingvaĵo, kiun eĉ profesiaj juristoj apenaŭ povas kompreni. Jam la antikva greka historiisto Polibio notis, ke la ŝtato, en kiu multobliĝas leĝoj, troviĝas survoje al kaduko kaj certa pereo.”
 
-FILOZOFII SUBTENDE
-
-
-plikiĝas la frazkonstruo. Same okazas en la ŝtato. Se en ĝi regas la spirito de honesto kaj la sama rajto por ĉiuj, ĝia konstruo estas simpla kaj travidebla por esti komprenebla kaj je dispono al ĉiu, eĉ por analfabeto. Leĝoj de juste kaj racie ordigita ŝtato estas malmultaj, malampleksaj kaj klaraj, ke ĉiu civitano povu ilmpreni kaj enkapigi. Kontraŭe la ŝtato, ordigita malracie, en kiu superregas maljusto, havas multon da leĝoj kun multaj amendoj kaj komentoj. ĉio estas formulita longfraze kaj malklare, en nekomprenebla artifika lingvaĵo, kiun eĉ profesiaj juristoj apenaŭ povas kompreni. Jam la antikva greka historiisto Polibio notis, ke la ŝtato, en kiu multobliĝas leĝoj, troviĝas survoje al kaduko kaj certa pereo.”
-
-”Se mi bone komprenas, la ekonomieco de la ŝtata meka-
-
-nismo troviĝas en tio, ke la ŝtato estu por la civitano laŭeble malmultekosta, ĉu ne?” el ia dommastrina perspektivo demandis Tanja.
+”Se mi bone komprenas, la ekonomieco de la ŝtata mekanismo troviĝas en tio, ke la ŝtato estu por la civitano laŭeble malmultekosta, ĉu ne?” el ia dommastrina perspektivo demandis Tanja.
 
 ”Se vi volas, oni povus diri ankaŭ tiel. Sed esenca estas alia afero. Iu foje diris, ke bona registaro similas al sana stomako.
 
@@ -4544,9 +3667,6 @@ Dum la stomako estas sana kaj bone funkcias, oni ne sentas
 La suno brilis, ne konsiderante grandajn priŝtatajn demandojn. Mevoj kun sia neatingebla eleganto demonstris, kion povas fari suprenforto, efikanta je etenditaj birdaj flugiloj …
 
 
-FILOZOFII SUBTENDE
-
-
 ”Sed kiamaniere oni povus atingi tian racian, justan ŝtator-don?” interesiĝis Duŝan.
 
 ”Tiel, ke vi faru revolucion kaj detronigu la maljustan povon!” anstataŭ profesoro respondis Adela, kvazaŭ ŝi jam dum tuta vivo kunportus la respondon en sia ina sako apud siaj kosmetikaj akcesoraĵoj.
@@ -4555,16 +3675,10 @@ FILOZOFII SUBTENDE
 
 ”Kial verdire ne?” ekscitiĝis Georgo.
 
-”La problemo troviĝas en malproporcio inter la revoluci-
-
-aj celoj kaj revolucie uzataj rimedoj kaj metodoj. Oni povas kredi, ke la celojn de la revolucio imagas homoj, kiuj suferas sub la vivpezo en la maljusta socia ordo. Oni povas kredi, ke tiuj homoj havas bonan intencon kaj foje multe da scio. Sed revolucion oni ne povas realigi per eta morala kaj intelekta elito el filozofia kabineto. Oni devas akiri kunlaboron de tutaj sociaj tavoloj, de homamasoj. Sed tiujn simplajn homojn oni ne povas inviti al revolucia ago per alte esprimitaj celoj kaj doktrinoj, eĉ se ili estus veraj. Do la programistoj devas siajn celojn traduki al simplaj, finfine primitive simplaj sloganoj, kiujn povus sekvi ankaŭ neinstruitaj homamasoj. Sed tio, kio nun disvastiĝas inter tiel multaj homoj, ne plu estas la origina revolucia doktrino, elpensita de unu aŭ kelkaj filozofie procedintaj elituloj, sed ekstreme simpligita propagando, kiu nek konsideras sian teorian originon nek konkretan veron. Sloganoj ne multe zorgas pri la vero. Kaj ĝuste portan-toj kaj disvastigantoj de sloganoj estas la plej fidelaj soldatoj de revolucio. Se ili en sia ribelo sukcesas, ili tiel kredas rice-178
-
-FILOZOFII SUBTENDE
+”La problemo troviĝas en malproporcio inter la revoluciaj celoj kaj revolucie uzataj rimedoj kaj metodoj. Oni povas kredi, ke la celojn de la revolucio imagas homoj, kiuj suferas sub la vivpezo en la maljusta socia ordo. Oni povas kredi, ke tiuj homoj havas bonan intencon kaj foje multe da scio. Sed revolucion oni ne povas realigi per eta morala kaj intelekta elito el filozofia kabineto. Oni devas akiri kunlaboron de tutaj sociaj tavoloj, de homamasoj. Sed tiujn simplajn homojn oni ne povas inviti al revolucia ago per alte esprimitaj celoj kaj doktrinoj, eĉ se ili estus veraj. Do la programistoj devas siajn celojn traduki al simplaj, finfine primitive simplaj sloganoj, kiujn povus sekvi ankaŭ neinstruitaj homamasoj. Sed tio, kio nun disvastiĝas inter tiel multaj homoj, ne plu estas la origina revolucia doktrino, elpensita de unu aŭ kelkaj filozofie procedintaj elituloj, sed ekstreme simpligita propagando, kiu nek konsideras sian teorian originon nek konkretan veron. Sloganoj ne multe zorgas pri la vero. Kaj ĝuste portan-toj kaj disvastigantoj de sloganoj estas la plej fidelaj soldatoj de revolucio. Se ili en sia ribelo sukcesas, ili tiel kredas rice-178
 
 
-vi konfirmon, ke iliaj sloganoj efektive estis vero. Tiel ili sin prenas kompetentaj gvidi novan ŝtaton, preskribi novajn le-
-
-ĝojn kaj ilin efektivigi. Sed, vi scias, bona eksplodaĵisto ne nepre estas same bona masonisto. Por restarigo de la lando oni bezonas aliajn kapablojn kaj karakterojn ol por realigi revolucion. Sed ne tio estas la ĉefa problemo. Parto da super-venkita antaŭe reginta klaso, per revolucio elĵetita traporde, baldaŭ revenas trafenestre sub masko de amikoj de revolucio.
+vi konfirmon, ke iliaj sloganoj efektive estis vero. Tiel ili sin prenas kompetentaj gvidi novan ŝtaton, preskribi novajn leĝojn kaj ilin efektivigi. Sed, vi scias, bona eksplodaĵisto ne nepre estas same bona masonisto. Por restarigo de la lando oni bezonas aliajn kapablojn kaj karakterojn ol por realigi revolucion. Sed ne tio estas la ĉefa problemo. Parto da super-venkita antaŭe reginta klaso, per revolucio elĵetita traporde, baldaŭ revenas trafenestre sub masko de amikoj de revolucio.
 
 Kaj granda parto de la originaj revoluciuloj baldaŭ koruptiĝas kaj mem transprenas la rolon de la iama reganta klaso. Sin-ceraj revoluciuloj baldaŭ iĝas sensignifa minoritato, kiu kutime prizorgas muzeojn de revolucio, dum kondukilojn de
 
@@ -4582,13 +3696,7 @@ konstruita de la revolucio.”
 
 ”Kion do vi proponas?” premis lin angulen Adela.
 
-”Mi proponas, ke ni provu kapti la problemon ĉe la radi-
-
-
-FILOZOFII SUBTENDE
-
-
-ko, kiel revoluciuloj mem ŝatis sin esprimi. Vere, ni fariĝu radikalaj en la ĝusta senco de tiu ĉi vorto!”
+”Mi proponas, ke ni provu kapti la problemon ĉe la radiko, kiel revoluciuloj mem ŝatis sin esprimi. Vere, ni fariĝu radikalaj en la ĝusta senco de tiu ĉi vorto!”
 
 ”Jes, vere, ĝuste tiel ĉiam parolis ankaŭ revoluciuloj!” aldonis sinjorino Majda.
 
@@ -4609,14 +3717,9 @@ substituo de la kredo. ĉar la kredo sin rilatas al io senlima, kaj ankaŭ la ti
 plena de timo, bezonas senfine da materia, povohava, renom-hava kaj simila satiĝoj. La tuta mondo ne estas sufiĉe granda por satigi homon, en kiu mankas la kredo kaj regas la timo.
 
 
-FILOZOFII SUBTENDE
-
-
 Tute alie kondutas la homo, kiu havas kredon kaj sekve ne konas timon. ĉar li sentas, ke li nenion vere valoran povas perdi, ĉar li kredas, ke ’se la greno ne falas teren kaj ne mortas, ĝi ne donas fruktojn’, li disponigas sin mem por la komuna bono. Kaj jen: ju pli li sin disdonas, des pli li havas; ju pli li riskas, des pli li ricevas; ju pli li fidas, des pli sekure li vivas.”
 
-”Se tiel, la radiko de la homo estas lia kredo, ĉu?” diris Du-
-
-ŝan.
+”Se tiel, la radiko de la homo estas lia kredo, ĉu?” diris Duŝan.
 
 ”Certe. ĉiuj aliaj motivoj, pro kiuj la homo ion faras aŭ ne faras, havas siajn limojn, nur la kredo estas senlima. Subaĉetado havas limojn, perforto havas limojn — sed bonvolu limigi kaj haltigi homon, kiu posedas kredon!”
 
@@ -4631,9 +3734,6 @@ okazas dum lastaj 2000 jaroj. Sed ĉar ĝi vere kaptis la homon ĉe lia radiko, 
 ”Kaj ni, ĉu ni simple observu tion deflanke, kiel tiu revolucio iras en novan jarmilon?” demandis ĉiam preta Georgo.
 
 ”Ni ĉiuj estas vokitaj eksplodigi nian egoismon kaj per revolucia perforto de bonaj agoj kaj memregado detronigi la povon de blindaj pasioj kaj voluptoj kaj starigi revolucian registaron de la Bono, de la Konscienco; kaj defendi tiun novan registaron per la forto de la amo. ĉiu, kiu tion faros, pli-grandigos la amplekson de la jam liberigita teritorio, sur kiu la vera revolucio jam sukcesis!”
-
-
-FILOZOFII SUBTENDE
 
 
 Iliaj rigardoj kolektiĝis sur arbopingloj ĉepiede. Ekregis kelkaj momentoj de silento. Sinjorino Majda ekmeditis je
@@ -4657,9 +3757,6 @@ Sed ni ne moviĝu sur tiu polemika nivelo. Vi pravas, Adela, ni devas pripensi, 
 ”Jes, tiel ni diris, vere!” konfirmis Duŝan.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Se tiel, do la afero estas klara. Ni konsilos al la ministro, ke li klopodu laŭ siaj ebloj unue protekti la popolon kaj la ŝtaton antaŭ tiuj, kiuj pro siaj egoismaj interesoj disvastigas malraciecon kaj maljuston, persekutas saĝajn kaj justajn homojn. Ni konsilos al li, ke li bonvolu uzi sian perfektan informan agentejon por tagnokte esplori, kie al niaj civitanoj okazas maljustaĵoj flanke de tiuj, kiuj ilin devis ŝtatpostene pri-servi. ĉe ĉiu giĉeto por petoj kaj plendoj de la civitanoj in-staliĝu sekreta orelo kaj okulo, kiu lanĉu alarmon en la momento, kiam iu ŝtata funkciulo, ek de la komunuma oficisto
 
 ĝis la ĉefo de la registaro misuzus sian povon kontraŭ la pra-vigita postulo de la civitano. Kredu: se la homoj ĉe kelkaj tiaj okazoj vidus, ke neniu povas ilin nepunita malbone trakti kaj arbitre manipuli per leĝoj, ili per siaj nudaj manoj fariĝus la plej bona armeo en la mondo. Se ili vidus, ke la ŝtato, en kiu ili vivas, estas la scenejo de la plej bonaj ecoj, kiuj troviĝas poparte ĉe ili mem, ke ĝi estas garantio por racieco kaj justeco, ili identiĝus kun tia ŝtato sen ajna propagando kaj perforto. Tian ŝtaton neniu ekstera malamiko kuraĝus ataki. Kaj se iu tamen atakus kaj eĉ se venkus, li devus baldaŭ ĉu foriri aŭ procedi same kiel la unua registaro …”
@@ -4667,9 +3764,6 @@ FILOZOFII SUBTENDE
 ”ĉu vi povus fermi vian revolucian mitingon,” ekkriis sinjorino Majda. ”Mi bezonas du volontulojn por lavi vazojn, se vi volas manĝi el puraj ujoj …”
 
 ĉar anoncis sin ĉiuj, decidis kubĵeto.
-
-
-FILOZOFII SUBTENDE
 
 
 XVII.
@@ -4686,9 +3780,7 @@ kiam li saltpaŝis el sia aŭto, per kiu li ĵus alveturis el la urbo.
 
 ”Jes, ni tion ne faris!” kun iomete da atendo respondiĝis el junaj buŝoj.
 
-”Do, bonvolu veni, ke mi disdonu al vi ekipaĵojn!” konti-
-
-nuis la profesoro kun memkompreneblo, kvazaŭ li invitus ilin al glaciaĵa porcio.
+”Do, bonvolu veni, ke mi disdonu al vi ekipaĵojn!” kontinuis la profesoro kun memkompreneblo, kvazaŭ li invitus ilin al glaciaĵa porcio.
 
 Al ĉiu li donis paron da plastaj naĝiloj kaj subakvan maskon kun spirtubo. Nur la subakvan fusilon, sen kiu oni subakve, nature, ne povas ion efikan aranĝi, oni ne vidis. Iliaj okuloj demande serĉis.
 
@@ -4696,14 +3788,9 @@ Al ĉiu li donis paron da plastaj naĝiloj kaj subakvan maskon kun spirtubo. Nur
 
 ”ĉiu registros sub la akvo dek metrojn da filmo, poste ni vidos, kiu pli sukcese ĉasis. Mi supozas, ke vi ne kontraŭas lasi ĉe la mara faŭno bonan kaj pacan impreson, ĉu? Ni nur filmos ilian medion, cetere ni ne intervenos en ilian vivon.”
 
-”Do, tia ĉasado …” iomete disreviĝe liberiĝis ĝemo ĉe Du-
-
-ŝan, kiu alkutimiĝis al la ĉasfusilo de sia patro.
+”Do, tia ĉasado …” iomete disreviĝe liberiĝis ĝemo ĉe Duŝan, kiu alkutimiĝis al la ĉasfusilo de sia patro.
 
 ”Ni ĉasas la vero, kaj ne la vivon,” klarigis ŝparvorte la profesoro.
-
-
-FILOZOFII SUBTENDE
 
 
 La boato jam estis preta, ili eniris, kaj tiel ĝi pleniĝis per iom da akvo, jam iliaj manoj ekagis ĉe remiloj. Kiam ili atingis konvenan marprofundon — per sondilo baraktis la profesoro, nature, sinjorino Majda je la signo de sia edzo ĵetis en akvon etan ankron, kiu pli memorigis je turisma suveniro ol je uzaĵo, kiu firme fiksas boaton sur certa loko.
@@ -4733,9 +3820,6 @@ duonhoro.
 En la primara muzeo oni montris en aparta salono filmojn
 
 
-FILOZOFII SUBTENDE
-
-
 pri la vivo en la maro kaj pri maresplorado. ĉar al la giĉeto alpaŝis sinjorino Majda kaj ne ŝia edzo, ŝi per sia ĉarma rido nuligis ĉiujn 18 paragrafojn de la muzea regularo. Oni estis preta montri filmon aparte por nia grupo, kvankam ĝi ne
 
 nombris 30 anojn, kiel devus esti.
@@ -4756,9 +3840,7 @@ Adela
 
 ”Se vi jam atendas instruon: ankaŭ paroli ili ne povis tie subakve, se ili volis, ke la aero ne fuĝu el ilia skafandro kaj ke ili ne sufokiĝu. Cetere tute sen instruo la afero ne funkcios,”
 
-li aldonis, kvazaŭ li neglektus la rimarkon de Adela. ”La libero de la skafandristo povas esti metaforo por ĉiuj aliaj formoj de la libero. Tiel, kiel nur la ŝarĝo kaj la sufiĉe firma ligo liveras 186
-
-FILOZOFII SUBTENDE
+li aldonis, kvazaŭ li neglektus la rimarkon de Adela. ”La libero de la skafandristo povas esti metaforo por ĉiuj aliaj formoj de la libero. Tiel, kiel nur la ŝarĝo kaj la sufiĉe firma ligo liveras
 
 
 al la skafandristo subakve veran liberon por lia moviĝado, tiel ni ankaŭ en nia surtera vivo estas liberaj nur tiugrade, kiugrade ni akceptas ŝarĝojn de laboro kaj sufero kaj kiugrade ni estas pretaj akcepti ligon de la leĝoj. La klasika germana poeto Goethe en sia poemo Naturo kaj arto tion formulis tiel: *Tiu, kiu vere ion volas fari, devas koncentriĝi. *
@@ -4773,18 +3855,11 @@ Kaj nur la leĝo nin per la liber’ regalas.”
 
 ”Bone, kion ni prilaboras kaj kion ni perlaboras per tiu nekutima laboro?” postulis pli precizan eksplikon Adela.
 
-”Dum ni laboras super io kutima, ni prilaboras certan ma-
-
-terialon, prenitan el la naturo, kiun ni volas adapti por nia bezono. Sed kiam ni suferas, la transformata materialo estas ni mem — kaj la rezulto, la produkto estas pli alta, rafinita formo de nia memo. Tial niaj plej ’produktivaj’ laborejoj verdire estas tiuj, en kiuj la eksteraj cirkonstancoj estas plej limi-gaj: malsanulejoj, karceroj, koncentrejoj … tie okazas la plej intensa ’produktado’, tie okazas forĝado kaj hardado de homaj animoj!”
+”Dum ni laboras super io kutima, ni prilaboras certan materialon, prenitan el la naturo, kiun ni volas adapti por nia bezono. Sed kiam ni suferas, la transformata materialo estas ni mem — kaj la rezulto, la produkto estas pli alta, rafinita formo de nia memo. Tial niaj plej ’produktivaj’ laborejoj verdire estas tiuj, en kiuj la eksteraj cirkonstancoj estas plej limi-gaj: malsanulejoj, karceroj, koncentrejoj … tie okazas la plej intensa ’produktado’, tie okazas forĝado kaj hardado de homaj animoj!”
 
 ”Kio pri la leĝoj?” demandis Duŝan. ĉu ili ne kontraŭas la esencon de la libero? ĉu ne estas tiel: ju pli da leĝoj, des malpli da libero?”
 
-”Se vi pensis pri ilia nombro, vi pravas. Maljusto kaj perforta arbitro kutime paralelas kun la abundo kaj nekompre-187
-
-FILOZOFII SUBTENDE
-
-
-nebleco de la leĝoj. Sed mi ne pensis pri la nombro de la leĝoj kaj iliaj subparagrafoj, sed pri seriozaj kaj ĝenerale validaj bonaj leĝoj, kiuj ordigas nian kunekzistadon. Rigardu: multfoje iu diras, vidante kelkajn mankojn en publikaj servoj, ne-seriozon ĉe la laboro aŭ nekorektan konduton de multaj homoj, ke ni havas tro da demokratio. Li simple konfuzas demokration kun arbitreco kaj eksterleĝeco, kiu efektive estas aparta formo de tiranio.”
+”Se vi pensis pri ilia nombro, vi pravas. Maljusto kaj perforta arbitro kutime paralelas kun la abundo kaj nekomprenebleco de la leĝoj. Sed mi ne pensis pri la nombro de la leĝoj kaj iliaj subparagrafoj, sed pri seriozaj kaj ĝenerale validaj bonaj leĝoj, kiuj ordigas nian kunekzistadon. Rigardu: multfoje iu diras, vidante kelkajn mankojn en publikaj servoj, ne-seriozon ĉe la laboro aŭ nekorektan konduton de multaj homoj, ke ni havas tro da demokratio. Li simple konfuzas demokration kun arbitreco kaj eksterleĝeco, kiu efektive estas aparta formo de tiranio.”
 
 ”ĉu tiranio vere?” ne povis konsenti Georgo.
 
@@ -4798,11 +3873,7 @@ kaj vi venas je la naŭa, vi devigas la alian atendi unu horon aŭ prokrasti la 
 
 ”Se tiel, ja preskaŭ ĉiuj ŝtatoj estas demokrataj, ja ĉie ekzistas universale validaj leĝoj kaj nur escepte oni ŝanĝas povon per uzo de perforto kaj sangoverŝo,” rimarkigis Georgo.
 
-”Formale eĉ grandaj tiranioj, kiel tiu de Stalin, estis demokratiaj. Se vi legus lian konstitucion, vi mirus, kial paroli mal-
-
-ŝate pri lia sistemo … Sed laŭspirite kaj en praktika ĉiutago nur tre malmultaj ŝtatoj estas vere demokrataj, ja absolute 188
-
-FILOZOFII SUBTENDE
+”Formale eĉ grandaj tiranioj, kiel tiu de Stalin, estis demokratiaj. Se vi legus lian konstitucion, vi mirus, kial paroli malŝate pri lia sistemo … Sed laŭspirite kaj en praktika ĉiutago nur tre malmultaj ŝtatoj estas vere demokrataj, ja absolute
 
 
 puraj demokratioj jam principe ne povas ekzisti kaj neniu racia homo tion postulas. Absoluta demokratio estus kontraŭdiro, ja ankaŭ demokratio estas ’kratio’, kio greke signifas ’regado’. Se vere ĉiuj partoprenus kaj egale partoprenus en aranĝo de ŝtataj aferoj, la povo, regado, efektive ne ekzistus plu, tiam ni ne havus plu eĉ demokration, ni havus anarkion, kio ĉiam estis teoria idealo por aranĝi komunajn aferojn. Sed demokratio esence ne forigas diferencon inter la regantoj kaj regatoj, nur rilaton inter ambaŭ grupoj ĝi mildi-gas. ĉar ĝi inkluzivas pli da civitanoj al ŝtataj aferoj kaj ĉar ĝi permesas libere esprimi siajn opinion kaj kritikon, ĉar en ĝi ekzistas konkurenco inter unuopaj politikaj grupoj, nomataj partioj, demokratioj pli bone funkcias, estas pli stabilaj kaj eĉ en grandaj danĝeroj, kiel montris la dua mondmilito, montras sian superpovon kompare al tiranioj.”
@@ -4825,18 +3896,14 @@ konduto, al bona faro, al bona decido fojfoje simple devigi, ekstremokaze eĉ pe
 
 ”Vidu, se vi hodiaŭ proklamus anarkion — kaj ni supoze
 
-diru, ke la ekzistanta ŝtato tion akceptus kaj permesus sin malfondi — ĝi funkcius kaj daŭrus nur ĝis la momento, kiam 189
-
-FILOZOFII SUBTENDE
+diru, ke la ekzistanta ŝtato tion akceptus kaj permesus sin malfondi — ĝi funkcius kaj daŭrus nur ĝis la momento, kiam
 
 
 la unua homo, kiu en rilato kun iu alia havus ĉu intelektan ĉu fizikan avantaĝon, provus elbatali privilegion por si. ĉar ne ekzistus plu ŝtato kun leĝoj kaj iliaj gardantoj, la pli inteligenta aŭ pli forta ulo tuj sukcesus. Malfermiĝus ĉenreago: ĉiuj homoj kun nature donitaj avantaĝoj provus tuj uzi sian forton por subigi la aliajn. Ekestus ĝenerala interbatalo ĉiu kontraŭ ĉiu. Baldaŭ formiĝus grupo de la plej sukcesaj — kaj ili starigus novan oligar˛ian ŝtaton, per kiu ili dum longa tempo protektus siajn, dum anarkia periodo akiritajn, privilegi-ajn poziciojn. Vidu, tiel finiĝus la romantika fabelo de anar-kiismo.”
 
 ”Bone, tio ŝajnas realo, sed ĉu demokratio ne havas samajn tentojn kaj kaptilojn? Finfine Hitler transprenis povon per uzo de demokratiaj rimedoj …” daŭrigis Adela.
 
-”Bonege, Adela! Nun vi mem rekondukis la tutan proble-
-
-maron al la ĉefa demando, ĉu la libero povas ekzisti sen la leĝo, sen ŝnuro de almenaŭ unu senduba devo, kiu staras ekster la demokratio mem. Teorie ĉiu demokratio povas per
+”Bonege, Adela! Nun vi mem rekondukis la tutan problemaron al la ĉefa demando, ĉu la libero povas ekzisti sen la leĝo, sen ŝnuro de almenaŭ unu senduba devo, kiu staras ekster la demokratio mem. Teorie ĉiu demokratio povas per
 
 plimulto en parlamento nuligi konstitucion, nuligi parlamenton kaj proklami diktaturon. uste via ekzemplo estis io tia.
 
@@ -4844,11 +3911,7 @@ Doktrinistoj de la unua germana respubliko kaj ĝia demokratia sistemo tro kredi
 
 ”ĉu do ekzistas ia solvo por tiu ĉi problemo?” aldonis demandon Duŝan.
 
-”Se la pure homa interkonsento, homa leĝo estus nia las-
-
-ta horizonto, tiam solvo ne ekzistus. Homoj ĉiam povas eĉ demokratirimede forigi bonajn leĝojn kaj proklami fiajn, nuligi demokration kaj starigi tiranion. La solvo troviĝas nur, se super la homa interkonsento kaj leĝo ekzistas ordono, nor-190
-
-FILOZOFII SUBTENDE
+”Se la pure homa interkonsento, homa leĝo estus nia lasta horizonto, tiam solvo ne ekzistus. Homoj ĉiam povas eĉ demokratirimede forigi bonajn leĝojn kaj proklami fiajn, nuligi demokration kaj starigi tiranion. La solvo troviĝas nur, se super la homa interkonsento kaj leĝo ekzistas ordono, nor-190
 
 
 mo, leĝo, kiel vi bonvolas, kiu absolute starus super homaj aferoj. Tial nur homoj, kiuj baze kredas je ekzisto de tia supera leĝo, povas fondi daŭre funkciantan relative bonan demokration. La kondiĉo estas, ke tiu demokratio ne diskutu pri tiu ĉi baza kaj superhoma leĝo. En momento, kiam par-lamentanoj tuŝas ankaŭ tiun ĉi leĝon, la demokratio perdas sian bazon kaj laŭŝtupe kadukiĝas, ĉu en direkto de anarkio, kio signifas posta oligar˛io, ĉu en direkto de tuja oligar˛io.”
@@ -4857,9 +3920,7 @@ mo, leĝo, kiel vi bonvolas, kiu absolute starus super homaj aferoj. Tial nur ho
 
 demokratio, en kies parlamentejo surmure pendas krucifiksoj kaj tabuloj kun Dekalogo de Moseo …” ironiis Georgo.
 
-”Tio mem ne havas ligon, ja ankaŭ cinikuloj povas senpro-
-
-bleme ekipi parlamentejon kaj ŝtatajn oficejojn per laŭplaĉaj religiaj simboloj. Ankaŭ ne temas pri konkreta religio, kiel kristana aŭ islamana, eĉ kontraŭe, parlamento devas esti en tiu senco neŭtrala, ja civitanoj de la sama ŝtato povas aparteni al diversaj religioj. Mi parolis pri elementa koncepto de la leĝo, kiu superas homan arbitrecon kaj tiel ĝuste garantias ankaŭ homajn kontraktojn.”
+”Tio mem ne havas ligon, ja ankaŭ cinikuloj povas senprobleme ekipi parlamentejon kaj ŝtatajn oficejojn per laŭplaĉaj religiaj simboloj. Ankaŭ ne temas pri konkreta religio, kiel kristana aŭ islamana, eĉ kontraŭe, parlamento devas esti en tiu senco neŭtrala, ja civitanoj de la sama ŝtato povas aparteni al diversaj religioj. Mi parolis pri elementa koncepto de la leĝo, kiu superas homan arbitrecon kaj tiel ĝuste garantias ankaŭ homajn kontraktojn.”
 
 ”Kiu do estas tiu leĝo, kiu staras super ĉiuj homaj aferoj kaj havas aŭtoritaton de iu supera estaĵo, kiun kelkaj nomas
 
@@ -4867,19 +3928,11 @@ Dio?” demandis Adela.
 
 ”Juristoj en pasintaj tempoj parolis pri ’natura juro’, do pri leĝoj, kiujn ne elpensis la homo, sed ili estas gravuritaj en ĉies koro kaj saĝo. Sed mi pledas por eĉ pli simpla difino. Jesuo
 
-ĝin formulis kaj Kant ĝin kiel ’kategorian imperativon’ kompletigis kaj pli filozofie diris: ’Faru al aliaj tion, kion vi deziras, ke aliaj al vi faru — kaj ne faru tion, kion vi deziras, ke aliaj al vi ne faru!’ Kant formulis tion tiel, ke atentu, ke via konduto povu fariĝi ĝenerala morala leĝo de la homaro. Efek-191
-
-FILOZOFII SUBTENDE
-
-
-tive la samo, nur alistile formulite. Tio sufiĉas. Se vi tion konstante konsideras, ankaŭ demokratio ne povas perei.”
+ĝin formulis kaj Kant ĝin kiel ’kategorian imperativon’ kompletigis kaj pli filozofie diris: ’Faru al aliaj tion, kion vi deziras, ke aliaj al vi faru — kaj ne faru tion, kion vi deziras, ke aliaj al vi ne faru!’ Kant formulis tion tiel, ke atentu, ke via konduto povu fariĝi ĝenerala morala leĝo de la homaro. Efektive la samo, nur alistile formulite. Tio sufiĉas. Se vi tion konstante konsideras, ankaŭ demokratio ne povas perei.”
 
 Post duona horo ili ĉiuj jam troviĝis ĉe siaj tendoj. Duŝan kolektis materialon por ekhejti, ambaŭ knabinoj helpis al sinjorino Majda aranĝi kuirinstrumentojn. Georgo komencis
 
 senŝeligi terpomojn …
-
-
-FILOZOFII SUBTENDE
 
 
 XVIII.
@@ -4894,9 +3947,7 @@ XVIII.
 
 Ondoj batis kontraŭ rokoj. Fiŝhordoj fuĝis inter ŝtonoj.
 
-Aŭdiĝis mevoj. Sinjorino Majda kaj Adela ludis vola-
-
-non. Profesoro kaj Georgo ludis ŝakon, Georgo havis avan-
+Aŭdiĝis mevoj. Sinjorino Majda kaj Adela ludis volanon. Profesoro kaj Georgo ludis ŝakon, Georgo havis avan-
 
 taĝon de unu peono. Duŝan kaj Tanja medite rigardis sablen.
 
@@ -4919,9 +3970,6 @@ negliĝe, kvazaŭ temus pri ŝaka strategio, postdemandis profesoro Andreo.
 respondis la profesoro, observante dume ŝakfigurojn per kvi-eto, kvazaŭ la surtabula konstelacio estus la sola vera problemo en la kosmo.
 
 
-FILOZOFII SUBTENDE
-
-
 ”Vi verŝajne pensas pri lokaj militoj kaj interbataloj, kiujn oni povas trovi ĉie en la mondo, ĉu?”
 
 ”Mi ne ekskludas ankaŭ tion, sed ne pri tio mi pensis.”
@@ -4940,9 +3988,7 @@ Poste ili ambaŭ dum certa tempo silentis, kvazaŭ ili interesiĝus pri la eblec
 
 ”Estas ĉefe du geometriaj temoj, kiuj koncernas militon:
 
-kompreno de la cirklo kaj kompreno de proporcio kaj sime-
-
-trio …” ne ĉesis esti enigma la profesoro.
+kompreno de la cirklo kaj kompreno de proporcio kaj simetrio …” ne ĉesis esti enigma la profesoro.
 
 ”ĉu estas tiel malfacile kompreni la cirklon?” pridubis Georgo.
 
@@ -4950,12 +3996,7 @@ trio …” ne ĉesis esti enigma la profesoro.
 
 ”ĉu vi bonvolas pli klare ekspliki?”
 
-”Tre volonte. Ili ĉiuj, do ne nur la homoj gvidaj kaj decidaj, ankaŭ homoj simplaj, eĉ plej simplaj kaj senfunkciaj, eĉ sen-kulpaj simpluloj kaj infanoj, ili ĉiuj montras la saman mis-194
-
-FILOZOFII SUBTENDE
-
-
-komprenon de tio, kio estas la esenco de la cirklo, de ĉiu el ili.
+”Tre volonte. Ili ĉiuj, do ne nur la homoj gvidaj kaj decidaj, ankaŭ homoj simplaj, eĉ plej simplaj kaj senfunkciaj, eĉ sen-kulpaj simpluloj kaj infanoj, ili ĉiuj montras la saman miskomprenon de tio, kio estas la esenco de la cirklo, de ĉiu el ili.
 
 Ili kredas, ke pli granda cirklo estas pli perfekta ol malpli granda … Cetere, ĉu vi iam legis tre amuzan kaj instruan libron de ĉeą satiristo ĉapek: Apokrifoj? Ne? Vidu, tie vi povas legi rakonton pri la mortigo de Ar˛imedo. Ar˛imedo,
 
@@ -4963,12 +4004,7 @@ kiun vi certe konas el fiziko, ja li malkovris suprenforton en fluaĵoj, estis m
 
 spite al forta defendo, ebligita ĝuste helpe de la elpensaĵoj de Ar˛imedo, finfine tamen konkeris la urbon, romia oficiro eniris laborejon de Ar˛imedo kaj provis lin persvadi, disponigi sian servon al Romianoj kaj tiel savi sian vivon. Olda sciencisto komencis pridemandi la oficiron, kian celon postsekvas la romia militistaro. Romiano simplanime klarigis, ke temas pri konstanta plilarĝigo de la imperio. Tiam Ar˛imedo respondis, ke li mem estas fakulo pri la cirkloj — kaj kiel tia li povas garantii, ke eĉ la plej granda cirklo ne estas pli perfekta ol la plej malgranda kiu eblas. ĉar la romia oficiro ne havis en sia maniko pli bonajn argumentojn por kontraŭstari filozofon
 
-kaj konstruiston, li solvis la problemon laŭ sia maniero, uzante sian glavon, per kiu li mortigis la fizikiston. Kiam ni en nia tempo legas tiun brile spritan elpensaĵon de ĉapek, ni gaje ridas pri la stulteco de la romia oficiro. Sed, en praktika vivo, preskaŭ ni ĉiuj pensas kaj agas ĝuste laŭ la sama mislogiko, supozante, ke la perfekteco de la cirklo kreskas per ĝia diametro. ŝtatestroj strebas, ke iliaj ŝtatoj kresku kaj ĉia malkre-sko de ĝia surfaco por ili estus la plej fatala katastrofo; entreprenistoj klopodas pligrandigi siajn entreprenojn kaj fari el ili verajn imperiojn. Same procedas religioj, same lingvoj, kul-195
-
-FILOZOFII SUBTENDE
-
-
-turoj, same ĉiu homa entreprenado kaj agado. Nur kiam ni
+kaj konstruiston, li solvis la problemon laŭ sia maniero, uzante sian glavon, per kiu li mortigis la fizikiston. Kiam ni en nia tempo legas tiun brile spritan elpensaĵon de ĉapek, ni gaje ridas pri la stulteco de la romia oficiro. Sed, en praktika vivo, preskaŭ ni ĉiuj pensas kaj agas ĝuste laŭ la sama mislogiko, supozante, ke la perfekteco de la cirklo kreskas per ĝia diametro. ŝtatestroj strebas, ke iliaj ŝtatoj kresku kaj ĉia malkre-sko de ĝia surfaco por ili estus la plej fatala katastrofo; entreprenistoj klopodas pligrandigi siajn entreprenojn kaj fari el ili verajn imperiojn. Same procedas religioj, same lingvoj, kulturoj, same ĉiu homa entreprenado kaj agado. Nur kiam ni
 
 legas satiron de ĉapek, ni priridas la romian oficiron; sed kiam ni legas nian taggazeton, ni postsekvas la logikon de tiu sama oficiro. Ankaŭ ni deziras kreskon de niaj cirkloj, de niaj ĉiaspecaj imperioj. Kaj ĉar unu cirklo povas kreski ĉiam nur koste de la alia, la milito estas neevitebla. Tial ni havas militojn interŝtatajn, ekonomiajn, religiajn, lingvajn, kulturajn, interpersonajn, ĉiaspecajn …”
 
@@ -4976,28 +4012,20 @@ legas satiron de ĉapek, ni priridas la romian oficiron; sed kiam ni legas nian 
 
 el la plej naturaj kaj sanaj tendencoj de ĉio, kio vivas?” ne povis komplete konsenti Georgo.
 
-”Tiupunkte vi tute pravas, juna amiko!” konfirmis la pro-
-
-fesoro. Sed oni povas kreski tiel, ke oni prenas spacon de la alia, kiu havas la saman tendencon — aŭ oni kreskas en alian dimension, en kiu oni ne atakas spacon de la alia. La unua maniero kaŭzas konflikton kaj militon, dum la dua pliriĉigas la mondon kaj invitas al kunekzisto kaj kunagado.”
+”Tiupunkte vi tute pravas, juna amiko!” konfirmis la profesoro. Sed oni povas kreski tiel, ke oni prenas spacon de la alia, kiu havas la saman tendencon — aŭ oni kreskas en alian dimension, en kiu oni ne atakas spacon de la alia. La unua maniero kaŭzas konflikton kaj militon, dum la dua pliriĉigas la mondon kaj invitas al kunekzisto kaj kunagado.”
 
 ”Mi ne vidas, kien oni povus kreski por ne preni la spacon de la alia, kiel vi diras …”
 
 ”Vidu, konfliktoj kaj militoj okazas en du dimensioj, do en ebeno, horizontale. Simple: se vi volas plilarĝigi vian domon por akiri novajn kvadratmetrojn, vi devas post certa tempo konstrui sur la tereno de via najbaro. Tio estas horizontale, en du dimensioj. Sed se vi masonas vertikale, vi ne tuŝas la terenon de via najbaro. Vi kreskas en la tria dimensio, kiu ĝenerale ne havas plu ekskluzivecon de la dua, de la surfaca, de la horizontala. Kaj tio ankoraŭ ne estas la fino. Ankaŭ la tria, la vertikala dimensio ne estas tute senproblema koncerne aliajn.
 
-Sed oni povas paroli ankaŭ ankaŭ la kvara, la tempa dimensio, metafore ankaŭ pri la kvina, la spirita, kiu estas senfina 196
-
-FILOZOFII SUBTENDE
+Sed oni povas paroli ankaŭ ankaŭ la kvara, la tempa dimensio, metafore ankaŭ pri la kvina, la spirita, kiu estas senfina
 
 
 kaj kiu absolute ne tuŝas aliajn. Vi povas kreski vertikale multe pli ol horizontale. Sed spirite vi povas kreski senfine. Tial la homoj, kiuj pensas kaj agas vertikale, estas pli pacaj ol tiuj, kiuj pensas kaj agas nur horizontale. Sed perfekte pacaj ests nur homoj spiritaj, ja ili kreskas kaj konstruas en la kvina, absolute nedanĝera kaj malimperia dimensio.”
 
-”ĉu ni povus tion ilustri sur konkreta ekzemplo?” deman-
+”ĉu ni povus tion ilustri sur konkreta ekzemplo?” demandis Georgo, jam tute forgesante pri siaj ŝakfiguroj.
 
-dis Georgo, jam tute forgesante pri siaj ŝakfiguroj.
-
-”Bone, ni prenu unue la ŝtaton, kies militadon oni plej bo-ne konas. Kiel dirite, la pliparto de ŝtatestroj similas al la romia oficiro de ĉapek kaj provas pligrandigi la surfacon de sia ŝtato, eĉ je prezo de ĝenerala mizero por la civitanoj. Sed oni povus pligrandigi la ŝtaton ankaŭ ’vertikale’, tion mi ne opinias laŭvorte, per konstruado de pluretaĝaj domoj kaj aliaj konstruaĵoj. La vertikala dimensio de la ŝtato estas ĝia racii-go, ĝia administra, teknika, scienca, eduka kaj ĉiaspeca progreso kaj pli efika uzo de la donita surfaco. Se la ŝtato tiamaniere ’kreskas’, tio ĝenerale ne damaĝas la najbarajn ŝtatojn kaj tiel ne provokas konflikton kaj militon. Sed se pinte de la ŝtato troviĝus ne nur Ar˛imedo, kiu jam pensas tridimensie kaj ne nur dudimensie, kiel lia romia murdinto, se tie sidus vera filozofo, kiel proponis Platono en sia verko Respubliko, li invitus kaj akompanus siajn civitanojn al kvindimensia kresko, kresko en la spirito. Tia ŝtato eble ne apartenus al la teknike kaj ekonomie elstaraj, sed ĝiaj civitanoj vivus saĝan kaj feliĉan vivon. Tia ŝtato ne nur ne danĝerigus aliajn najbarajn ŝtatojn, ĝi elradius pacon kaj provokus pacan konduton an-kaŭ ĉe la aliaj. Sed niaj modernaj ŝtatoj estas simple tro grandaj kaj kompleksaj por povi kreski en la kvina, spirita dimensio. Eĉ en tri dimensioj, kiuj faras volumenon kaj simbolas 197
-
-FILOZOFII SUBTENDE
+”Bone, ni prenu unue la ŝtaton, kies militadon oni plej bo-ne konas. Kiel dirite, la pliparto de ŝtatestroj similas al la romia oficiro de ĉapek kaj provas pligrandigi la surfacon de sia ŝtato, eĉ je prezo de ĝenerala mizero por la civitanoj. Sed oni povus pligrandigi la ŝtaton ankaŭ ’vertikale’, tion mi ne opinias laŭvorte, per konstruado de pluretaĝaj domoj kaj aliaj konstruaĵoj. La vertikala dimensio de la ŝtato estas ĝia racii-go, ĝia administra, teknika, scienca, eduka kaj ĉiaspeca progreso kaj pli efika uzo de la donita surfaco. Se la ŝtato tiamaniere ’kreskas’, tio ĝenerale ne damaĝas la najbarajn ŝtatojn kaj tiel ne provokas konflikton kaj militon. Sed se pinte de la ŝtato troviĝus ne nur Ar˛imedo, kiu jam pensas tridimensie kaj ne nur dudimensie, kiel lia romia murdinto, se tie sidus vera filozofo, kiel proponis Platono en sia verko Respubliko, li invitus kaj akompanus siajn civitanojn al kvindimensia kresko, kresko en la spirito. Tia ŝtato eble ne apartenus al la teknike kaj ekonomie elstaraj, sed ĝiaj civitanoj vivus saĝan kaj feliĉan vivon. Tia ŝtato ne nur ne danĝerigus aliajn najbarajn ŝtatojn, ĝi elradius pacon kaj provokus pacan konduton an-kaŭ ĉe la aliaj. Sed niaj modernaj ŝtatoj estas simple tro grandaj kaj kompleksaj por povi kreski en la kvina, spirita dimensio. Eĉ en tri dimensioj, kiuj faras volumenon kaj simbolas
 
 
 ankaŭ kvaliton kaj efikecon ili apenaŭ povas kreski. Kaj tiel ni jam tuŝis la duan problemon geometrian: proporcion kaj simetrion …”
@@ -5022,28 +4050,17 @@ kvankam ne tiel danĝeran musegon!” diris ridetante Georgo.
 
 ”Tre bone. Sed nun bonvolu pripensi, kial? Vi tiel grandan muson ne timus pli ol samgrandan leonon, kaj tamen vi sentus antaŭ ĝi abomenon. Kial do?”
 
-”Mi ne scias verdire, sed iel tiu nova dimensio ne konve-
+”Mi ne scias verdire, sed iel tiu nova dimensio ne konvenas por ĝia formo kaj naturo …” iom post iom elbuŝigis Georgo.
 
-nas por ĝia formo kaj naturo …” iom post iom elbuŝigis Georgo.
-
-”uste tiel estas. La misproporcio estas, kiu vin abomenigas kaj timigas. Kaj prave. Fenomenoj sen ĝusta proporcio estas danĝeraj por sia medio. Ili provokas timon — kaj timo provokas agreson kaj fine atakon. Vi havas militon pro manko de ĝusta proporcio! ĉu ne estas preskaŭ ĉiuj fenomenoj de nia moderna socio ekster la natura proporcio? Rigardu mo-198
-
-FILOZOFII SUBTENDE
-
-
-dernajn urbojn, rigardu niajn teknikajn istalaĵojn … ĉu ne estas jam simpla aŭtomobilo per sia nekontrolebla rapideco io evidente eksterproporcia kompare al la homa naturo kaj bezono? Ni vivas en misproporcia mondo, tial ni tendencas al angoro kaj agreso, al konstanta konfliktado kaj militado sub diversaj formoj. Eĉ la ŝtatoj mem havas eksterproporciajn dimensiojn. Vere bonaj ŝtatoj en nia mondo estas nur tiuj, kiuj el la antikva aŭ mezepoka tempoj konservis sian minia-turan grandecon: urbo kaj iom da ĉirkaŭaĵo. San Marino ne hazarde estas unu el la plej sukcesaj ŝtatoj de la monda historio: preskaŭ du jarmilojn sendependa, neniam havinta revolucion aŭ intercivitanan militon, sukcesinta eĉ kontraŭ grandaj imperioj, kiuj ĝin volis konkeri. Kaj ĝia grando estas monteto, ĝia popolo 50.000 da civitanoj — probable spiritaj idoj de Ar˛imedo …”
+”uste tiel estas. La misproporcio estas, kiu vin abomenigas kaj timigas. Kaj prave. Fenomenoj sen ĝusta proporcio estas danĝeraj por sia medio. Ili provokas timon — kaj timo provokas agreson kaj fine atakon. Vi havas militon pro manko de ĝusta proporcio! ĉu ne estas preskaŭ ĉiuj fenomenoj de nia moderna socio ekster la natura proporcio? Rigardu modernajn urbojn, rigardu niajn teknikajn istalaĵojn … ĉu ne estas jam simpla aŭtomobilo per sia nekontrolebla rapideco io evidente eksterproporcia kompare al la homa naturo kaj bezono? Ni vivas en misproporcia mondo, tial ni tendencas al angoro kaj agreso, al konstanta konfliktado kaj militado sub diversaj formoj. Eĉ la ŝtatoj mem havas eksterproporciajn dimensiojn. Vere bonaj ŝtatoj en nia mondo estas nur tiuj, kiuj el la antikva aŭ mezepoka tempoj konservis sian minia-turan grandecon: urbo kaj iom da ĉirkaŭaĵo. San Marino ne hazarde estas unu el la plej sukcesaj ŝtatoj de la monda historio: preskaŭ du jarmilojn sendependa, neniam havinta revolucion aŭ intercivitanan militon, sukcesinta eĉ kontraŭ grandaj imperioj, kiuj ĝin volis konkeri. Kaj ĝia grando estas monteto, ĝia popolo 50.000 da civitanoj — probable spiritaj idoj de Ar˛imedo …”
 
 ”Ni devas diri vorton do ankaŭ pri simetrio,” proponis Georgo.
 
-”Vi rememoras, kia figuro ornamas la fasadon de la tribu-
-
-nala palaco, ĉu, Georgo?”
+”Vi rememoras, kia figuro ornamas la fasadon de la tribunala palaco, ĉu, Georgo?”
 
 ”Estas Iustitia, diino de la justeco. En unu mano ŝi tenas glavon, en la alia pesilon kun du teleroj …” bone orientiĝis Georgo.
 
-”Vidu, unue vi havas simetrion inter la pesilo, kiu simbolas justan pritrakton de la afero, kaj glavo, kiu simbolas efek-tivigan povon, sen kiu la justeco restus ridinda konsilo. Se la glavo estus pli forta ol la pesilo, tio signifus, ke la justeco kaj perforta povo, kiu garantias kaj efektivigas la funkciadon de la justeco, ne troviĝus en simetria ekvilibro, ke perforto estus pli forta ol pripenso kaj prijuĝo. Tiel funkcias tiranioj. Se, kontraŭe, la pesilo estus malsimetrie pli peza kaj forta ol la 199
-
-FILOZOFII SUBTENDE
+”Vidu, unue vi havas simetrion inter la pesilo, kiu simbolas justan pritrakton de la afero, kaj glavo, kiu simbolas efek-tivigan povon, sen kiu la justeco restus ridinda konsilo. Se la glavo estus pli forta ol la pesilo, tio signifus, ke la justeco kaj perforta povo, kiu garantias kaj efektivigas la funkciadon de la justeco, ne troviĝus en simetria ekvilibro, ke perforto estus pli forta ol pripenso kaj prijuĝo. Tiel funkcias tiranioj. Se, kontraŭe, la pesilo estus malsimetrie pli peza kaj forta ol la
 
 
 glavo, ni havus eble tre bonajn verdiktojn, tamen senefikajn, ja kanajloj moke fajfus kaj gaje ridus pri ili, se la glavo ne estus sufiĉe forta por efektivigi tion. Tiel funkcias dekaden-taj demokratioj, kiuj tendencas al anarkioj. Verŝajne ni nun troviĝas en tia stato. Dum regis la simetrio, viktimoj de la krima ago post la proceso ridis kaj krimuloj ploris. Nun estas inverse: la viktimoj ploras kaj la krimuloj bone ridas. Tion oni povas uzi kiel metaforon por ĉiuj interhomaj, sociaj kaj ŝtataj aferoj. ĉio ĉi povas bone funkcii nur, se estas simetrio.
@@ -5061,9 +4078,6 @@ homoj. Se ili devas interparoli, ili ne troviĝas en simetria pozicio. islandano
 Tiu investo ne kostas al ili multe, sed ili havas profiton gigantan. Ili subite troviĝas en simetria komunika situacio. Neniu el ili plu sentas frustron kaj malkontenton, kontraŭe, ĉiu havas bonan senton, ke ili samgrade investis al la komuna interparolo. Tio estas la saĝo de d-ro Zamenhof, kiu en la jaro 1887 lanĉis la de li inicitan ’internacian lingvon’, Esperanton.
 
 
-FILOZOFII SUBTENDE
-
-
 Oni povas interkompreniĝi mondskale ankaŭ sen Esperanto,
 
 ekzemple en angla aŭ ĉina aŭ rusa. Sed oni ne povas tion fari
@@ -5078,16 +4092,11 @@ sistemo?” Georgo kolektis lastajn unuojn de sia spirita forto.
 
 geometria instruo la homo ne tro kresku horizontale, tio estas, akirante pli kaj pli da ekskluziva spaco sur la fizika nivelo.
 
-Li diversteme kresku vertikalen kaj fine ankaŭ en la kvina, spirita dimensio. Tio konkrete signifas, ke ĉiu homo estu laŭ sia naskiĝo membro de sia familio kaj de sia vilaĝo aŭ urba kvartalo. Kiel familiano kaj vilaĝano aŭ urbkvartalano li parolas sian gepatran dialekton. Sed li apartenas ankaŭ al sia popolo kun propra literatura komuna lingvo, do li estas ankaŭ italo, polo, anglo, franco, greko ktp. Tiun pli larĝan apartenon li esprimas en sia nacia literatura lingvo, en kiu li partoprenas ankaŭ grandskalan kulturon kaj literaturon. Sed ĉiu ho-mo estu ankaŭ mondcivitano. Sed tio oni ne povas komple-
-
-te esti sen adekvata lingva esprimilo. Por vere komplete esti mondcivitano aŭ kosmopolito oni bezonas tutmondan lingvon — kaj ni jam pli ol cent jarojn havas ĝin, la internacian lingvon Esperanton. Tio faras vertikalan strukturon kaj kreskon de ĉiu homo. Tiaj homoj ne havas plu motivon malŝati
+Li diversteme kresku vertikalen kaj fine ankaŭ en la kvina, spirita dimensio. Tio konkrete signifas, ke ĉiu homo estu laŭ sia naskiĝo membro de sia familio kaj de sia vilaĝo aŭ urba kvartalo. Kiel familiano kaj vilaĝano aŭ urbkvartalano li parolas sian gepatran dialekton. Sed li apartenas ankaŭ al sia popolo kun propra literatura komuna lingvo, do li estas ankaŭ italo, polo, anglo, franco, greko ktp. Tiun pli larĝan apartenon li esprimas en sia nacia literatura lingvo, en kiu li partoprenas ankaŭ grandskalan kulturon kaj literaturon. Sed ĉiu ho-mo estu ankaŭ mondcivitano. Sed tio oni ne povas komplete esti sen adekvata lingva esprimilo. Por vere komplete esti mondcivitano aŭ kosmopolito oni bezonas tutmondan lingvon — kaj ni jam pli ol cent jarojn havas ĝin, la internacian lingvon Esperanton. Tio faras vertikalan strukturon kaj kreskon de ĉiu homo. Tiaj homoj ne havas plu motivon malŝati
 
 apartenantojn de aliaj medioj kaj nacioj, ja li kun ĉiuj paren-cas sur la nivelo kosmopolita kaj tion esprimas per lingvo internacia. Tia homo povas serioze pensi kaj agi por la paco.
 
 Aliaj povas nur ripeti plaĉajn sloganojn kaj en praktiko tamen agi laŭ la maniero de la romia oficiro mortiginta Ar˛imedon …”
-
-
-FILOZOFII SUBTENDE
 
 
 Ili ne plu estis solaj. ĉirkaŭ ili kolektiĝis ĉiuj aliaj adeptoj de la filozofia seminario ĉemara.
@@ -5101,9 +4110,6 @@ Majda.
 Post kvarona horo brulis antaŭ iliaj tendoj la adiaŭvespe-ra fajro. Apenaŭ videblaj fajretoj brulis ankaŭ en iliaj junaj okuloj …
 
 F I N O
-
-
-FILOZOFII SUBTENDE
 
 
 Pri la aŭtoro
@@ -5125,9 +4131,6 @@ Viktringer Ring 26, AT-9020 Klagenfurt/Celovec
 *Retadreso:*
 
 oslak@katoliska-akcija.at
-
-
-FILOZOFII SUBTENDE
 
 
 www.omnibus.se/

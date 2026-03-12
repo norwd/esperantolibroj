@@ -14,23 +14,13 @@ Dua libro en la Torento-trilogio
 Lingve reviziita en 2001
 
 
-@omnibus.se
-
-·
-
-
-INFANOJ EN TORENTO
-
-
 UNUA PARTO
 
 I.
 
 Du knabetoj ludis en la sablo.
 
-Ili kovris siajn nudajn piedojn per sablo. La malgran-
-
-daj, malpuraj manoj alŝovis pli kaj pli, ĝis la piedoj estis tute kovritaj. Poste ili premis kaj glatigis la surfacon de la amase-toj.
+Ili kovris siajn nudajn piedojn per sablo. La malgrandaj, malpuraj manoj alŝovis pli kaj pli, ĝis la piedoj estis tute kovritaj. Poste ili premis kaj glatigis la surfacon de la amase-toj.
 
 La afero estis preta. Singarde kaj kun vigla scivolo en la okuloj ili eltiris la piedojn. Se la eksperimento sukcesis, la malpuraj vizaĝoj ekbrilis, kiam ili rigardis la malgrandajn ka-vernojn.
 
@@ -44,17 +34,9 @@ Estis agrable en la sablejo, kiam la suno brilis sur la somera ĉielo, pli agrab
 
 —Patrino estas bona, respondis Arne, sed patro, patro!
 
-Kaj ili parolis pri siaj sortoj kaj venis al la konkludo, ke es-3
-
-INFANOJ EN TORENTO
-
-
-tus plej bone, se la patro de Johano kaj la patrino de Arne estus iliaj gepatroj.
+Kaj ili parolis pri siaj sortoj kaj venis al la konkludo, ke estus plej bone, se la patro de Johano kaj la patrino de Arne estus iliaj gepatroj.
 
 —Tiel devus esti, komentis Johano. Kaj poste via patro kaj mia patrinaĉo povus vivi kune. Sed ili ne rajtus havi infanojn.
-
-
-INFANOJ EN TORENTO
 
 
 Johano kaj Arne ŝatis unu la alian kaj ofte ludis kune. Sed ili ne ĉiam estis solaj en la sablejo. Tien venis ankaŭ Ajna kaj ŝia fratineto Greta, kelkfoje ankaŭ aliaj malgrandaj infanoj. Ajna estis pli aĝa ol la knaboj, kaj la pli aĝaj infanoj ordinare ludis en aliaj lokoj. Sed Ajna devis varti sian fratinon, tial ŝi iris al la sablejo, kiu estis proksime al la hejmo.
@@ -69,9 +51,7 @@ Post iom da trinkado kaj manĝado ili pli intimiĝis.
 
 Ajna proponis, ke oni faru stalon. Ili konsentis, kaj ŝi kondukis ilin al la du altaj piceoj, kiuj staris tuj apud la malgranda sablejo.
 
-Tie troviĝis falintaj picekonusoj sur la tero. Ajna prenis unu el ili. Poste ŝi rompis branĉeton en malgrandajn pecojn kaj 5
-
-INFANOJ EN TORENTO
+Tie troviĝis falintaj picekonusoj sur la tero. Ajna prenis unu el ili. Poste ŝi rompis branĉeton en malgrandajn pecojn kaj
 
 
 premis en la konuson kvar ŝtipetojn. ŝi starigis ĝin sur la tero, kaj ĉiu povis vidi, ke ĝi estas bovino.
@@ -83,9 +63,6 @@ Nun la knaboj komprenis sen instruo kaj alportis herbon
 por meti antaŭ la brutojn. Ajna diris, ke tio estas bona, sed tion oni faras nur en la vespero, nome kiam estas somero.
 
 Dum la tagoj la bovinoj paŝtas sin en la arbaro. Nun estas mateno, la bovinoj estas melkitaj, kaj oni devas konduki ilin al la paŝtejo …
-
-
-INFANOJ EN TORENTO
 
 
 Kiam la avino aŭ patrino de Ajna kaj Greta vokis ilin, ili tuj sen obstino kaj sen timo iris hejmen. La voko neniam estis akra aŭ timiga. Tio mirigis la knabojn. Ili demandis, ĉu la patrino ne tiras la harojn aŭ vergas ilin.
@@ -106,28 +83,18 @@ Sed Ajna respondis
 
 —ĉu li mortis? demandis Johano.
 
-—Ne, li ne mortis. Ni neniam havis patron. Patrino ne ha-
-
-vas edzon.
-
-
-INFANOJ EN TORENTO
+—Ne, li ne mortis. Ni neniam havis patron. Patrino ne havas edzon.
 
 
 Iu pli aĝa knabo donacis al Arne lignan ĉevalon. i estis malnova, unu kruro estis rompita, kaj parte la koloro estis for. Li tuj kuris kun ĝi al Johano, kaj ili kune ĝojis pri la nova ludilo.
 
-Johano posedis malnovan cigarskatolon. i taŭgus kiel ĉa-
-
-ro. Radojn oni povus fari el fadenbobenoj. Li prenis sian skatolon kiaj du bobenojn, kaj ili iris al la hejmo de Arne. Estis pli trankvile tie. La patro estis en la fabriko, kaj la patrino ne faros skandalon pro ilia malgranda entrepreno.
+Johano posedis malnovan cigarskatolon. i taŭgus kiel ĉaro. Radojn oni povus fari el fadenbobenoj. Li prenis sian skatolon kiaj du bobenojn, kaj ili iris al la hejmo de Arne. Estis pli trankvile tie. La patro estis en la fabriko, kaj la patrino ne faros skandalon pro ilia malgranda entrepreno.
 
 Estis vespero. La suno jam subiris, kaj estis iom malhele en la ĉambro. La patrino kuŝis, kaj Eta, la fratineto, jam dormis trankvile. Per tranĉilo, martelo kaj najletoj la knaboj komencis labori apud la forno. La laboro okupis ilin tiom, ke ili preskaŭ ne parolis. Kiam ili diris ion, ili flustretis, kvazaŭ temus pri grava sekreto.
 
 Estis malfacila laboro. La ligno facile splitiĝis aŭ rompiĝis, kiam ili volis kunfiksi la diversajn partojn. Tiam ili devis re-fari la tutan laboron. Tempo pasis, kaj la patrino jam admonis ilin. Johano devus iri hejmen, kaj Arne devus enlitiĝi, estis baldaŭ meze en la nokto. Sed ili ne volis. Post momento ĉio estos preta.
 
 Kaj fine la ĉaro estis konstruita. Fiere ili jungis la ĉevalon al ĝi kaj elprovis sian laboron. Funkciis bonege. Sed jam la dormo tremigis iliajn palpebrojn kaj preskaŭ nuligis la ĝojon.
-
-
-INFANOJ EN TORENTO
 
 
 Restis tamen la dolĉa sento, ke ili sukcesis, kaj la interprome-so, ke ili frumatene renkontos sin en la sablejo.
@@ -146,16 +113,11 @@ domon per via forta voĉo kaj la krioj de la knabo. Iru hejmen kaj estu trankvil
 
 La admono nur kreskigis la koleron de la sinjorino.
 
-—Vi defendas lin, kvankam li tiel kondutis? Malbenita pe-
-
-dikulino! Oni provas eduki siajn infanojn kiel eble plej bone, kaj jen venas tia porkino kaj diras, ke oni devas fermi la bu-
+—Vi defendas lin, kvankam li tiel kondutis? Malbenita pedikulino! Oni provas eduki siajn infanojn kiel eble plej bone, kaj jen venas tia porkino kaj diras, ke oni devas fermi la bu-
 
 ŝon, devas esti trankvila. Zorgu unue pri viaj propraj idaĉoj kaj ne okupu vin pri la elkovaĵo de aliaj! …
 
 Poste ŝi foriris kun Johano, promesante al li terure multe da vergado.
-
-
-INFANOJ EN TORENTO
 
 
 Venis la mateno, freŝa kaj kvieta mateno kun brila kaj var-miga suno. Ree la du knaboj kunestis en la sablejo. Ili rigardis unu la alian, kaj Johano ekridetis kontente.
@@ -167,9 +129,6 @@ Venis la mateno, freŝa kaj kvieta mateno kun brila kaj var-miga suno. Ree la du
 Estis trankvile kaj bone tie ĉi en la sablejo. La suno karesis per orbrila kaj varma lumo, mole kaj varme metis sin la sablo ĉirkaŭ la piedojn kaj manojn. Antaŭ ili sub la radia matena suno kuŝis longa strato kun ruĝaj, duetaĝaj lignodomoj, similaj unu al la alia kiel pizoj. Tie kaj tie betulo levis sian verdan kronon inter la tegolaj tegmentoj. Floroj brilis en la fenestroj kaj kelkloke estis florbedoj antaŭ la domoj. Sur la kortetoj staris virinoj kaj knabinoj, kiuj vipis tapiŝojn. Sur la perono de la plej proksima domo staris la patrino de Johano kaj lavis ion en kuveto. Johano ekvidis ŝin kaj faris longan nazon al ŝi. Poste li ree ekokupis sin pri siaj aferoj.
 
 Malantaŭ ili estis alta lata barilo, tra kiu oni vidis rekte en la grandan lamenejon. Tie la feroj movis sin tien kaj reen kiel ruĝaj serpentegoj en nigra kaverno. La brikaj tubegoj levis sin alten al la ĉielo kaj senĉese elvomis nubojn da dika fumo. En alia loko la forno de la ŝtalfarejo blekegis kiel timiga bestego kaj elsputis tra la muro gigantan kvaston da fajreroj. El ĉiuj anguloj de la granda industriejo venis senhalta fluo da sonoj.
-
-
-INFANOJ EN TORENTO
 
 
 Muĝis kaj siblis, zumis kaj sonoris, grincis kaj tintis kaj ton-dris. ĉiuj tiuj sonoj miksis sin kaj fariĝis iu obtuza, unutona bruado, forta kaj senĉesa zumkanto, kiu tagon post tago akompanis ilian ludon en la sablejo.
@@ -184,15 +143,11 @@ Ajna cerbumis momente kaj poste diris:
 
 —Vi ambaŭ estas laboristoj. Do Greta kaj mi povas labori
 
-en la hejmo. Ni kuiros kafon kaj portos ĝin al vi je la kafopaŭ-
-
-zoj. Ni preparos manĝaĵon, kaj kiam estos manĝopaŭzo, vi
+en la hejmo. Ni kuiros kafon kaj portos ĝin al vi je la kafopaŭzoj. Ni preparos manĝaĵon, kaj kiam estos manĝopaŭzo, vi
 
 venos hejmen por manĝi.
 
-La knaboj konsentis, kaj la knabinoj tuj foriris kelkajn pa-
-
-ŝojn por mastrumi. Post kelkaj minutoj ili vokis. Estis tempo matenmanĝi. Arne donis fojnon al sia ĉevalo, kaj la du laboristoj iris hejmen kaj eksidis ĉe la pretigita tablo.
+La knaboj konsentis, kaj la knabinoj tuj foriris kelkajn paŝojn por mastrumi. Post kelkaj minutoj ili vokis. Estis tempo matenmanĝi. Arne donis fojnon al sia ĉevalo, kaj la du laboristoj iris hejmen kaj eksidis ĉe la pretigita tablo.
 
 Dume la knabinoj donis manĝaĵon ankaŭ al siaj infanoj, la pupoj. Johano rigardis ilin kun intereso, kaj subite li diris
 
@@ -201,12 +156,7 @@ Dume la knabinoj donis manĝaĵon ankaŭ al siaj infanoj, la pupoj. Johano rigar
 ĉu vi volas?
 
 
-INFANOJ EN TORENTO
-
-
-Lia subita propono ne konfuzis Ajnan. ŝi ankoraŭ prizor-
-
-gis siajn hejmajn taskojn kaj eĉ ne rigardis lin, kiam ŝi dume respondis:
+Lia subita propono ne konfuzis Ajnan. ŝi ankoraŭ prizorgis siajn hejmajn taskojn kaj eĉ ne rigardis lin, kiam ŝi dume respondis:
 
 —Jes, sed vi ne rajtas drinki aŭ interbati kun aliaj viroj aŭ ludi kartojn aŭ fari aliajn tiaĵojn. Kaj vi ne devas blasfemi. Tio estas peko.
 
@@ -216,14 +166,9 @@ Johano dubis pri tio.
 
 min al la infero, se mi blasfemas. Sed patrino blasfemas multe pli ol mi, kaj la diablo ankoraŭ ne prenis ŝin. Kaj same aliaj homoj. Mi ne kredas tion.
 
-—Tamen estas peko. Bonaj homoj ne blasfemas. Kaj ne pa-
-
-rolu tiel pri via patrino.
+—Tamen estas peko. Bonaj homoj ne blasfemas. Kaj ne parolu tiel pri via patrino.
 
 —ĉu vi kredas, ke mi mensogas? Estas vere. ŝi estas tia. Sed vi ne fariĝu tia, ĉar tiam mi ne volas havi vin …
-
-
-INFANOJ EN TORENTO
 
 
 Iun matenon, kiam Johano venis al la sablejo, li aspektis malgaja. Sur la vangoj estis spuroj de fluintaj larmoj. Li eksidis en la sablo kaj sendemande klarigis la aferon al Arne.
@@ -259,9 +204,6 @@ Li komencis ludeti, sed baldaŭ larmoj ree aperis, dum li
 samtempe forte kunpremis la lipojn.
 
 
-INFANOJ EN TORENTO
-
-
 Nun alvenis Ajna kaj Greta, kaj Arne klarigis al ili, kial Johano malĝojas. Tiam Johano formetis la ĉevalon, la larmoj fluis pli abunde kaj li komencis ĝemeti.
 
 Ajna ekgenuis apud Johano, prenis lian manon kaj karesis
@@ -284,13 +226,9 @@ La patrino kaj avino de la knabinoj loĝis sur la unua etaĝo, kaj la infanoj de
 
 Kiam Arne kaj Johano venis en la ĉambron, la avino salutis ilin per bonaj vortoj kaj prenis Johanon sur siajn genuojn. ŝi karesis lian kapon kaj parolis konsole kaj kuraĝige al li.
 
-Tia traktado estis nova al Johano. i donis iom da konso-
+Tia traktado estis nova al Johano. i donis iom da konsolo al li sed samtempe ĝenis lin, ĉar li ne sciis, kiel li devas konduti. Ankaŭ Arne miris. Li komprenis, ke la avino faras tion por konsoli Johanon, kaj li ĝojis pro tio.
 
-lo al li sed samtempe ĝenis lin, ĉar li ne sciis, kiel li devas konduti. Ankaŭ Arne miris. Li komprenis, ke la avino faras tion por konsoli Johanon, kaj li ĝojis pro tio.
-
-Tamen ŝiaj karesoj vekis ĉe Arne novajn kaj strangajn sentojn. Li ne povis memori, ke lia patrino iam faris tiel al li. Kaj 14
-
-INFANOJ EN TORENTO
+Tamen ŝiaj karesoj vekis ĉe Arne novajn kaj strangajn sentojn. Li ne povis memori, ke lia patrino iam faris tiel al li. Kaj
 
 
 li neniam vidis patrinon fari tiel al siaj infanoj, se ili ne estis tiel malgrandaj, ke la patrinoj portis ilin sur la brako.
@@ -318,17 +256,11 @@ Sur la sama muro pendis gitaro. Arne demandis, ĉu Ajna
 povas ludi kaj kanti. Ajna respondis, ke ŝi ne povas ludi ankoraŭ, ĉar ŝi estas tro malgranda, sed kanti ŝi povas. Ankaŭ Greta povas kanti.
 
 
-INFANOJ EN TORENTO
-
-
 Por ĝojigi la knabojn, kaj precipe la malfeliĉan Johanon, la knabinoj kantis kelkajn kantetojn, infanajn kantetojn pri Jesuo, kiu amas la infanojn. Precipe plaĉis al la knaboj kanto pri negra knabineto, kiu havis la nomon Sara.
 
 Poste la knabinoj montris siajn ludilojn kaj bildkartojn kaj donis klarigojn pri la aliaj bildoj sur la muroj kaj pri la gips-figuroj sur la komodo. Fine Ajna eltrovis, ke ili ludu lernejon.
 
 ŝi estis instruistino kaj la aliaj estis ŝiaj gelernantoj.
-
-
-INFANOJ EN TORENTO
 
 
 Baldaŭ venis nova zorgo al Johano.
@@ -341,13 +273,9 @@ Arne kaj la knabinoj komprenis la sencon de tio. Ili sciis, ke la malriĉulejo e
 
 —Vi certe ne bezonos iri tien, Ajna konsolis. Via plej aĝa frato jam finis la lernejon kaj laboras, kaj poste via fratino ankaŭ povos labori. ŝi komencos en la lasta klaso aŭtune.
 
-—Tion ili diris, sed Eriko ricevas nur malgrandan salajron, li ja finis la lernejon en la lasta printempo. Lia salajro ne sufi-
+—Tion ili diris, sed Eriko ricevas nur malgrandan salajron, li ja finis la lernejon en la lasta printempo. Lia salajro ne sufiĉas, diras patrino.
 
-ĉas, diras patrino.
-
-—Sed ankaŭ via patrino povos labori, same kiel nia patri-
-
-no. Tio tamen estas pli bone ol iri en la malriĉulejon.
+—Sed ankaŭ via patrino povos labori, same kiel nia patrino. Tio tamen estas pli bone ol iri en la malriĉulejon.
 
 —Tion diris patrino. Sed ŝi kredis, ke ne estos laboro por ŝi.
 
@@ -356,12 +284,7 @@ Sed post kelkaj tagoj la afero jam estis en bona ordo. Johano ridis pro ĝojo, k
 Frue en la matenoj ŝi iris for kaj revenis nur vespere. Pri Johano zorgis la fratino, kaj cetere li mem zorgis pri si, aranĝo kiu tre plaĉis al li.
 
 
-INFANOJ EN TORENTO
-
-
-En aŭtuna mateno la patrino de Arne akompanis sian kna-
-
-bon kaj Johanon al la lernejo. La patrino de Johano labo-
+En aŭtuna mateno la patrino de Arne akompanis sian knabon kaj Johanon al la lernejo. La patrino de Johano labo-
 
 ris kaj tial konfidis lin al la najbarino.
 
@@ -378,9 +301,6 @@ Tiam ŝi preĝis, kaj poste ŝi diris, ke ili eksidu.
 Tiam ili komencis turni la kapojn por rigardi unu la alian, kaj kelkaj komencis interparoli. La fraŭlino tuj interrompis ilin kaj klarigis, ke nun ili venis al la lernejo, kaj kiam ili estas en la klasĉambro, ili ne rajtas interparoli, kaj ili ankaŭ devas sidi senmovaj sur siaj lokoj. Laŭ ŝia ordono ili metis la manojn sur la benkojn kaj faldis ilin. ŝi eksidis malantaŭ sia tablo, kaj ili direktis siajn okulojn al ŝi.
 
 
-INFANOJ EN TORENTO
-
-
 ŝi estis juna, rozvanga kaj bele vestita. Tio estis bona, ĉar ĉio alia en la ĉambro aspektis malgaja kaj seninteresa. Obee ili rigardis al ŝi kaj detale ekzamenis ŝian vizaĝon, ŝiajn harojn kaj veston, la kolĉenon, la manojn sur la tablo kaj la piedojn sub ĝi.
 
 Dume ŝi komencis rakonti, kiel Dio kreis la teron kaj ĉion, kio estas sur ĝi. Ankaŭ ŝia parolmaniero kaj prononco kaptis ilian intereson, ĉar ŝi ne parolis tiel kiel la infanoj kaj iliaj gepatroj. ŝi rakontis simple kaj klare, tiam kaj tiam farante demandon. Fininte la rakonton ŝi demandis pri la rakontitaj aferoj.
@@ -391,15 +311,11 @@ Sed jam la dua horo fariĝis enua al kelkaj. Tuj post la ek-sido Johano levis si
 
 La fraŭlino klarigis al li, ke li ne rajtas fari tion. Kiam li tamen volis iri, ŝi prenis liajn ŝultrojn kaj sidigis lin.
 
-—Tio estas diabla maniero! diris Johano, kaj lia mieno fari-
-
-ĝis ankoraŭ pli malkontenta.
+—Tio estas diabla maniero! diris Johano, kaj lia mieno fariĝis ankoraŭ pli malkontenta.
 
 —Kion vi diras? la fraŭlino demandis, kaj en ŝian vizaĝon venis esprimo de konsterno kaj severo.
 
-—Mi diras, ke estas diabla maniero, Johano obstine ripe-
-
-tis.
+—Mi diras, ke estas diabla maniero, Johano obstine ripetis.
 
 —ĉu vi scias, kion vi nun diris? la instruistino severe demandis. ĉu vi scias, ke vi blasfemis?
 
@@ -411,18 +327,14 @@ forgesis, ke ne estas dece blasfemi en la lernejo. Tion diris patrino kaj ankaŭ
 
 Johano neniel pensis pri respondo, sed la demando tamen
 
-vekis imagojn pri blasfemantaj homoj. Blasfemis ĉiuj homoj, 19
-
-INFANOJ EN TORENTO
+vekis imagojn pri blasfemantaj homoj. Blasfemis ĉiuj homoj,
 
 
 kiujn li konis, ĉiuj krom kelkaj virinoj kaj kelkaj religiuloj.
 
 Same inter la infanoj. Nur kelkaj knabinoj kaj kelkaj filoj de religiuloj ne blasfemis.
 
-—Sed nun aŭskultu bone, Johano. Estas tre malbele blas-
-
-femi, kaj estas granda peko kontraŭ Dio. Kaj tial estas malper-mesite blasfemi. Memoru tion, kaj ne parolu plu tiel. Se vi parolos tiel ankoraŭfoje, mi devos puni vin.
+—Sed nun aŭskultu bone, Johano. Estas tre malbele blasfemi, kaj estas granda peko kontraŭ Dio. Kaj tial estas malper-mesite blasfemi. Memoru tion, kaj ne parolu plu tiel. Se vi parolos tiel ankoraŭfoje, mi devos puni vin.
 
 Sed dum la eliro post la leciono, knabo venis antaŭ lin,
 
@@ -439,9 +351,6 @@ leciono? Mi tre malĝojas, ke vi ree blasfemis, kaj ke mi do devas vin puni.
 —Mi esperas, ke vi de nun memoros, ke vi ne blasfemu.
 
 
-INFANOJ EN TORENTO
-
-
 Proksimiĝis la vintromezo. La tagoj estis mallongaj, la
 
 lumo malforta. La somera koloro paliĝis sur la vangoj de
@@ -456,12 +365,7 @@ Ili kantis la kristnaskan psalmon, kaj pro la fintago kaj la kristnasko, la inst
 
 Iu donis kontentigan respondon, kaj poste ŝi rakontis pri la naskiĝo de Jesuo. Estis bela rakonto, kaj la infanoj aŭskultis atente kaj silente.
 
-Dum longa, longa tempo la homoj estis malbonaj kaj pe-
-
-kis kontraŭ Dio, diris la instruistino. Ofte ili faris malbonon unu al la alia, kiel la infanoj jam aŭdis en la bibliaj rakontoj, ofte ili adoris idolojn. Sed nun Dio volis savi la homaron de la malbono, volis instrui al la homoj, ke ili vivu en paco kaj amo. Por doni tiun instruon li sendis Jesuon en la mondon.
-
-
-INFANOJ EN TORENTO
+Dum longa, longa tempo la homoj estis malbonaj kaj pekis kontraŭ Dio, diris la instruistino. Ofte ili faris malbonon unu al la alia, kiel la infanoj jam aŭdis en la bibliaj rakontoj, ofte ili adoris idolojn. Sed nun Dio volis savi la homaron de la malbono, volis instrui al la homoj, ke ili vivu en paco kaj amo. Por doni tiun instruon li sendis Jesuon en la mondon.
 
 
 —La homoj ĝojas pro tio, ke Jesuo venis en la mondon kaj
@@ -481,9 +385,6 @@ malriĉuloj.
 Estis tre bela priskribo pri la kristnasko. La okuloj de la infanoj brilis pro la ĝojo, kiun donis al ili la belaj imagoj.
 
 
-INFANOJ EN TORENTO
-
-
 Antaŭ kristnasko la vetero pliboniĝis. Venis iom da neĝo, kaj poste la nuboj malaperis. Post longa tempo en griza
 
 nebulo oni ree ekvidis la bluan ĉielon. Malproksime en la su-do la suno ekbrilis super la neĝokovritaj arboj.
@@ -492,9 +393,7 @@ Tiam fariĝis gaja vivo en la sablejo. La infanoj iris tien, kaj per siaj sledet
 
 Ili ne pensis plu pri lernejo. Nur Arne kelkfoje pensis pri la instruhoro, kiam la instruistino parolis tiel bele pri la kristnasko. Tiam naskiĝis ĉe li la penso, ke li donu kristnaskodonacojn al siaj gepatroj kaj fratino. Tiu penso fariĝis pli kaj pli firma, kaj li sentis grandan plezuron, kiam li pensis pri la surprizo kaj ĝojo de la gepatroj.
 
-—ĉu vi donos kristnaskodonacon al via patrino? li deman-
-
-dis Johanon.
+—ĉu vi donos kristnaskodonacon al via patrino? li demandis Johanon.
 
 —Kristnaskodonacon al patrino? Ne …
 
@@ -507,9 +406,6 @@ dis Johanon.
 Johano ne respondis.
 
 —Kaj se vi donacos al ŝi, ŝi komprenos, ke vi volas esti afabla, kaj poste ŝi estos afabla al vi.
-
-
-INFANOJ EN TORENTO
 
 
 —Tion mi ne kredas. Cetere mi ne havas eĉ unu moneron.
@@ -525,9 +421,6 @@ Vi almenaŭ povus aĉeti kristnaskan karton kaj skribi bele sur
 ĝi kaj donaci ĝin al via patrino. Se vi volas, mi montros al vi, kiel vi skribu.
 
 Johano ne montris intereson por la afero, sed fine Ajna tamen sukcesis persvadi lin.
-
-
-INFANOJ EN TORENTO
 
 
 Arne posedis ŝparujon. i havis formon de leterkesto kaj
@@ -546,16 +439,11 @@ Je lia krio la patrino venis el la kuirejo en la ĉambron, kie li estis. ŝia vi
 
 —Kie estas mia mono? li balbutis inter la plorĝemoj.
 
-—Ne ploru, ŝi diris milde, konsoleme. Al patro mankis mo-
-
-no, kaj tiam li pruntis de vi. Sed li baldaŭ redonos, li diris.
+—Ne ploru, ŝi diris milde, konsoleme. Al patro mankis mono, kaj tiam li pruntis de vi. Sed li baldaŭ redonos, li diris.
 
 La patrino eliris, kaj li estis sola en sia ĉagreno. Nun li do ne povos aĉeti kristnaskodonacojn, kaj la kristnasko tute ne estos tia, kia ĝi antaŭ nelonge estis en lia imago. Li nenion povos donaci, kaj pri tio li pensos dum la tuta kristnasko.
 
 Fine la ploro haltis, kaj kun malgaja mieno li iris en la kuirejon al la patrino.
-
-
-INFANOJ EN TORENTO
 
 
 —Sed kial patro ne diris al mi, ke li volas prunti la monon?
@@ -584,12 +472,7 @@ La patro brue ekridis.
 
 —La instruistino parolis pri kristnasko kaj kristnaskaj donacoj, kaj tiam mi ekpensis, ke ankaŭ mi donos …
 
-—Aha, tiajn aferojn vi lernas en la lernejo! Sed jen mi diras al vi, ke ni estas malriĉaj homoj, kaj tiaj kutimoj ne konvenas al ni. Cetere tia donacado estas stulta infanaĵo. Vi rice-26
-
-INFANOJ EN TORENTO
-
-
-vas de mi vestojn kaj manĝon kaj ĉion dum la tuta jaro, kvankam … Nu, sufiĉas.
+—Aha, tiajn aferojn vi lernas en la lernejo! Sed jen mi diras al vi, ke ni estas malriĉaj homoj, kaj tiaj kutimoj ne konvenas al ni. Cetere tia donacado estas stulta infanaĵo. Vi ricevas de mi vestojn kaj manĝon kaj ĉion dum la tuta jaro, kvankam … Nu, sufiĉas.
 
 —Sed mi ne volas havi donacon, mi volis doni!
 
@@ -615,12 +498,7 @@ Li rigardis la blankajn kandeletojn, kaj iliaj tremantaj fla-metoj kaj la tuta k
 
 Li rigardis la patrinon. ŝia vizaĝo estis laca kaj malgaja.
 
-Ankaŭ ŝi rigardis la arbeton, sed ŝi aspektis, kvazaŭ ŝi pro malgajaj pensoj nenion vidus. Apud ŝi sidis Eta. Unue ŝi rigar-27
-
-INFANOJ EN TORENTO
-
-
-dis la kandelojn kun admirobrilaj okuloj, sed baldaŭ ŝi komencis oscedi kaj klinis sian kapon al la brako de la patrino.
+Ankaŭ ŝi rigardis la arbeton, sed ŝi aspektis, kvazaŭ ŝi pro malgajaj pensoj nenion vidus. Apud ŝi sidis Eta. Unue ŝi rigardis la kandelojn kun admirobrilaj okuloj, sed baldaŭ ŝi komencis oscedi kaj klinis sian kapon al la brako de la patrino.
 
 La patro sidis en la brakseĝo apud tableto, sur kiu staris cindrujo. Li mallerte tenis cigaron inter siaj fingroj. Tiam kaj tiam li metis ĝin al la buŝo kaj suĉis, sed venis tre malmulte da fumo. Unue li ne rimarkis tion, ĉar li estis tre ebria. Poste li plurfoje provis ĝin bruligi, sed ne sukcesis. Tiam li subite komencis blasfemi, ĵetis la cigaron en la cindrujon kaj bruligis novan. Tiu cigaro donis multan fumon, kaj la fumo iom vekis lin el lia inerta stato.
 
@@ -641,9 +519,6 @@ Li subite elkriis teruran blasfemon kaj ŝanceliĝe ekstaris.
 Li aspektis terure kolera, kaj Arne nevole ekkriis. La fratineto jam dormis, kaj tial ne rimarkis la aferon. Je la ekkrio li turnis sin al Arne. Dum kelkaj momentoj li silentis, kaj ŝajnis, ke li provas memorigi al sii ion. Poste lia malagrabla rido ree eksonis.
 
 —Aha, vi diablido, ĉu vi kredas, ke mi ne scias, kiu vi estas?
-
-
-INFANOJ EN TORENTO
 
 
 Kaj vi volis doni kristnaskodonacon al mi! Hahaha! Vi volis havi donacon de mi, vi diablido! Dum la tuta jaro vi ricevas vestojn kaj manĝaĵon kaj ĉion, kvankam ne estas mia devo
@@ -676,9 +551,7 @@ Li kuris kiel eble plej rapide, nekonscia pri celo kaj senco.
 
 Subite li ekhaltis. Antaŭ li levis sin la alta latbarilo de la industriejo kaj baris lian vojon en tiu direkto. Nur nun li rigardis malantaŭ sin. Kiam li vidis, ke neniu lin sekvas, li iom trankviliĝis. Li reiris kelkajn paŝojn kaj haltis sub la altaj piceoj.
 
-Liaj okuloj estis plenaj de larmoj, kaj kiam li okaze levis la 29
-
-INFANOJ EN TORENTO
+Liaj okuloj estis plenaj de larmoj, kaj kiam li okaze levis la
 
 
 rigardon al la brilanta plenluno, li ekvidis ion belan. Vidata tra la larmoj la lumo montris sin kiel amaso da belbrilaj kaj multkoloraj radioj, kiuj tremis kaj dancis en mirinda lumlu-do.
@@ -693,20 +566,13 @@ Baldaŭ li tamen eksentis la malvarmon, kaj kiam li ekvidis la patrinon antaŭ l
 
 Sed tiujn pensojn tuj forigis la animpleniga travivaĵo apud la sablejo. Certe tiel sentis la paŝtistoj sur la herbejoj apud Be-tleęmo, kiam en la nokto aperis la anĝeloj de Dio.
 
-—Kien vi kuris? la patrino demandis plorvoĉe kaj kompa-
-
-te. Vi tuj devas enveni, alie vi malvarmumos.
+—Kien vi kuris? la patrino demandis plorvoĉe kaj kompate. Vi tuj devas enveni, alie vi malvarmumos.
 
 —Sed mi ja ne povas eniri, pro patro.
 
 —Li ekkuŝis sur la sofo en la ĉambro kaj eble jam dormas.
 
-Kiam mi vekos lin por enlitiĝo, li ne memoros plu pri la afe-30
-
-INFANOJ EN TORENTO
-
-
-ro. Li ja estas ebria. Mi fermis la pordon inter la kuirejo kaj la ĉambro, kaj vi ne bezonas timi.
+Kiam mi vekos lin por enlitiĝo, li ne memoros plu pri la afero. Li ja estas ebria. Mi fermis la pordon inter la kuirejo kaj la ĉambro, kaj vi ne bezonas timi.
 
 Ili eniris, kaj la patrino tuj komencis aranĝi la liton por Arne.
 
@@ -718,9 +584,7 @@ Ili eniris, kaj la patrino tuj komencis aranĝi la liton por Arne.
 
 ŝi ne bone komprenis, kion li volas diri per tio, kaj ŝi fariĝis ankoraŭ pli maltrankvila.
 
-—Eble vi estas malsana, vi malvarmumis, kiam vi estis ek-
-
-stere?
+—Eble vi estas malsana, vi malvarmumis, kiam vi estis ekstere?
 
 —Ne, ne, mi tute ne estas malsana.
 
@@ -735,20 +599,13 @@ Ree li ekmemoris pri la vortoj de la patro.
 Mi rakontos al vi poste.
 
 
-INFANOJ EN TORENTO
-
-
 Kiam li vekiĝis en la posta mateno, la taglumo jam venkis la persistan vintrokrepuskon. Tra la fenestro li vidis pa-lan lumstrion brili sur la supro de prujnokovrita betulo malproksime sur la bordo de la rivero. La travivaĵoj de la pasinta vespero revekiĝis en lia interno.
 
-Estis trankvile kaj agrable nun. La fajro murmuris hejme-
-
-ce en la forno, kaj la sono de kuiranta poto sonis kvazaŭ amika babileto. Patro jam estis en sia laboro, Eta dormis, kaj patrino sidis apud la fenestro kaj legis gazeton.
+Estis trankvile kaj agrable nun. La fajro murmuris hejmece en la forno, kaj la sono de kuiranta poto sonis kvazaŭ amika babileto. Patro jam estis en sia laboro, Eta dormis, kaj patrino sidis apud la fenestro kaj legis gazeton.
 
 Kiam li pensis pri la pasinta vespero kaj ĝiaj malagrablaĵoj, vekiĝis en li deziro iri al Ajna kaj ludi kun ŝi. Ajna ĉiam estis afabla kaj bona. Certe estus agrable esti kun ŝi.
 
-En la posta momento li ekmemoris, ke patrino devas kla-
-
-rigi al li la strangan aferon rilate lian patron.
+En la posta momento li ekmemoris, ke patrino devas klarigi al li la strangan aferon rilate lian patron.
 
 —Patrino, venu al mi!
 
@@ -759,9 +616,6 @@ rigi al li la strangan aferon rilate lian patron.
 ŝi provis eviti rektajn respondojn, sed li insiste ripetis sian demandon. Fine ŝi klarigis al li, ke ŝi antaŭ la edziniĝo kun lia nuna patro konis alian viron, kaj tiu nun loĝas en alia, malproksima loko. Ili ne fariĝis geedzoj, kaj jam antaŭ la naskiĝo de Arne tiu viro forveturis de la hejmloko.
 
 —ĉu li estis bona homo? Arne medite demandis.
-
-
-INFANOJ EN TORENTO
 
 
 —Jes, li estis bona … sed ne tute. Li ja tamen forveturis kaj lasis nin solaj.
@@ -807,12 +661,7 @@ Kaj poste li aldonis:
 —ĉu vi donis kristnaskodonacojn al Eta kaj viaj gepatroj?
 
 
-INFANOJ EN TORENTO
-
-
-—Ne, patro prenis ĉiun monon en mia ŝparujo, kaj tial ne-
-
-nion mi povis aĉeti. Sed li diris, ke li redonos la monon poste. ĉu vi donis karton al via patrino.
+—Ne, patro prenis ĉiun monon en mia ŝparujo, kaj tial nenion mi povis aĉeti. Sed li diris, ke li redonos la monon poste. ĉu vi donis karton al via patrino.
 
 —Jes.
 
@@ -821,12 +670,7 @@ nion mi povis aĉeti. Sed li diris, ke li redonos la monon poste. ĉu vi donis k
 —ŝi ĝojis kaj dankis, sed ion alian ŝi ne diris.
 
 
-INFANOJ EN TORENTO
-
-
-Post tiu tempo Arne pli multe ludis kun Ajna kaj ŝia frati-no ol kun la kamaradoj. Liaj kamaradoj en la posttagme-
-
-zoj renkontiĝis por ludi sur la kortoj aŭ aliloke. Kiam ili eksciis, ke Arne ludas kun Ajna kaj Greta, ili mokis lin. En la lernejo ili rikane ridis al li kaj diris, ke li estas fianĉo de Ajna. Por inciti lin ili ankaŭ diris fantaziajn kaj malbelajn aferojn pri li kaj Ajna. Estis malagrable al li, kiam li estis kun ili, sed cetere li ne atentis pri ilia babilo.
+Post tiu tempo Arne pli multe ludis kun Ajna kaj ŝia frati-no ol kun la kamaradoj. Liaj kamaradoj en la posttagmezoj renkontiĝis por ludi sur la kortoj aŭ aliloke. Kiam ili eksciis, ke Arne ludas kun Ajna kaj Greta, ili mokis lin. En la lernejo ili rikane ridis al li kaj diris, ke li estas fianĉo de Ajna. Por inciti lin ili ankaŭ diris fantaziajn kaj malbelajn aferojn pri li kaj Ajna. Estis malagrable al li, kiam li estis kun ili, sed cetere li ne atentis pri ilia babilo.
 
 Kun Johano li tamen ofte kunestis, kaj kelkfoje tiu estis kun li ĉe la knabinoj.
 
@@ -836,9 +680,7 @@ Arne montris grandan talenton por tiuj okupoj, kaj lia intereso tiom kreskis, ke
 
 Iam en la printempo Ajna diris al li, ke li kunvenu al la dimanĉa lernejo. Li konsentis fari tion, sed volis kunvenigi an-kaŭ Johanon.
 
-La propono ne plaĉis al Johano. Li estis farinta al si fiŝvergon, kaj pasigis la vesperojn kaj tutajn dimanĉojn ĉe la rivero. Kelkfoje li estis tute sola, kelkfoje en okaza akompano de kelkaj aliaj silentaj aŭ singarde flustrantaj kamaradoj, kiuj 35
-
-INFANOJ EN TORENTO
+La propono ne plaĉis al Johano. Li estis farinta al si fiŝvergon, kaj pasigis la vesperojn kaj tutajn dimanĉojn ĉe la rivero. Kelkfoje li estis tute sola, kelkfoje en okaza akompano de kelkaj aliaj silentaj aŭ singarde flustrantaj kamaradoj, kiuj
 
 
 medite kaj en trankvila atendo rigardis la flosetojn de siaj fadenoj.
@@ -847,19 +689,13 @@ medite kaj en trankvila atendo rigardis la flosetojn de siaj fadenoj.
 
 Cetere mi ne ŝatas iri tien. Se mi iras al lernejo ses tagojn en la semajno, mi volas esti libera almenaŭ dimanĉe.
 
-Tiu rezonado ŝajnis al Arne tute prava kaj iom malgrandi-
+Tiu rezonado ŝajnis al Arne tute prava kaj iom malgrandigis lian intereson por la afero. Li tamen kuniris, ĉar li ne volis rompi sian promeson al Ajna. Li estis ankaŭ scivola pri la vivo en tiu lernejo.
 
-gis lian intereson por la afero. Li tamen kuniris, ĉar li ne volis rompi sian promeson al Ajna. Li estis ankaŭ scivola pri la vivo en tiu lernejo.
-
-Estis brila mateno en majo. Ili iris laŭ sia propra longa strato, kie infanoj ludis sur la kortoj kaj dimanĉvestitaj laboristoj sidis babilante sur la benkoj antaŭ la pordoj. El la malfermitaj fenestroj venis odoro de preparata manĝaĵo. Same estis ĉe apudaj kaj transversaj stratoj. Sur la florbedoj brilis kelkloke la ruĝaj kapoj de tulipoj, kelkloke aliaj bulbaj floroj kun blua aŭ blanka koloroj. Reviviĝis kaj komencis verdiĝi arbustoj kaj aliaj kreskaĵoj, kiuj dormis dum la vintro, kaj la delikata verdo de la betuloj alte super la kapoj ŝvebis kiel graciaj vualoj sub la bluega ĉielo. Paseroj saltetis kiel stratbuboj en la pol-vo, motaciloj kun tremantaj vostoj belpaŝetis kiel junaj fraŭ-
-
-linoj, kaj fringoj kaj sturnoj faris koncerton inter la novnaski-taj folioj de la betuloj.
+Estis brila mateno en majo. Ili iris laŭ sia propra longa strato, kie infanoj ludis sur la kortoj kaj dimanĉvestitaj laboristoj sidis babilante sur la benkoj antaŭ la pordoj. El la malfermitaj fenestroj venis odoro de preparata manĝaĵo. Same estis ĉe apudaj kaj transversaj stratoj. Sur la florbedoj brilis kelkloke la ruĝaj kapoj de tulipoj, kelkloke aliaj bulbaj floroj kun blua aŭ blanka koloroj. Reviviĝis kaj komencis verdiĝi arbustoj kaj aliaj kreskaĵoj, kiuj dormis dum la vintro, kaj la delikata verdo de la betuloj alte super la kapoj ŝvebis kiel graciaj vualoj sub la bluega ĉielo. Paseroj saltetis kiel stratbuboj en la pol-vo, motaciloj kun tremantaj vostoj belpaŝetis kiel junaj fraŭlinoj, kaj fringoj kaj sturnoj faris koncerton inter la novnaski-taj folioj de la betuloj.
 
 Post la fino de la longa strato ili venis al arbaro de mal-dense starantaj betuloj kun altaj kaj kretoblankaj trunkoj. An-kaŭ ili portis la delikatan teksaĵon de frua printempo, kaj la kantado de la birdoj kaskade plenigis la aeron per vibrantaj tonoj.
 
-Sur la tero etendis sin tra la tuta arbaro tapiŝo de blankaj anemonoj, miloj kaj miloj da floretoj, kiuj trabreĉis la tavolon 36
-
-INFANOJ EN TORENTO
+Sur la tero etendis sin tra la tuta arbaro tapiŝo de blankaj anemonoj, miloj kaj miloj da floretoj, kiuj trabreĉis la tavolon
 
 
 de grizbrunaj, mortintaj herboj kaj levis siajn verdajn foliojn kaj neĝoblankajn kapojn al la suno.
@@ -876,13 +712,9 @@ Antaŭ la fermita pordo atendis multaj infanoj, la knaboj en helaj, someraj bluz
 
 Venis du viroj. Unu estis nealta kaj havis mallongan ruĝetan barbon, la alia estis alta kaj lia barbo longa kaj nigra. Ili salutis afable kaj malfermis la pordon.
 
-Ili venis en grandan salonon kun multaj benkoj ambaŭ-
+Ili venis en grandan salonon kun multaj benkoj ambaŭflanke de meza trairejo. En angulo staris alta fera forno. Flanke de malgranda pupitro en la fono troviĝis orgeno. Alte sur la fona muro estis granda, nigra tabulo kun blankaj literoj: Jesuo bonvenigas vin.
 
-flanke de meza trairejo. En angulo staris alta fera forno. Flanke de malgranda pupitro en la fono troviĝis orgeno. Alte sur la fona muro estis granda, nigra tabulo kun blankaj literoj: Jesuo bonvenigas vin.
-
-Post kanto kaj preĝo la leciono komenciĝis. i plaĉis al Ar-ne. La viro kun la ruĝeta barbo instruis. Li parolis simple kaj tute nature kiel aliaj homoj, ne tiel digne kaj tede kiel la instruistino. Kiam la instruistino parolis pri la bibliaj figuroj, oni povis bone kompreni kaj imagi ĉion, sed estis kvazaŭ rakonto pri fremda mondo. Kiam tiu viro parolis, oni ricevis la impreson, ke Jesuo kaj la anĝeloj kaj Moseo kaj Davido kaj ĉiuj aliaj 37
-
-INFANOJ EN TORENTO
+Post kanto kaj preĝo la leciono komenciĝis. i plaĉis al Ar-ne. La viro kun la ruĝeta barbo instruis. Li parolis simple kaj tute nature kiel aliaj homoj, ne tiel digne kaj tede kiel la instruistino. Kiam la instruistino parolis pri la bibliaj figuroj, oni povis bone kompreni kaj imagi ĉion, sed estis kvazaŭ rakonto pri fremda mondo. Kiam tiu viro parolis, oni ricevis la impreson, ke Jesuo kaj la anĝeloj kaj Moseo kaj Davido kaj ĉiuj aliaj
 
 
 bibliaj personoj estas liaj intimaj konatoj, kiujn li renkontas preskaŭ ĉiutage.
@@ -897,9 +729,7 @@ Arne iris kune kun Ajna, tre malrapide, ĉar li volis bone rigardi la florojn, p
 
 Subite kelkaj knaboj el la mezaj kaj altaj klasoj de la lernejo venis inter lin kaj Ajnan kaj faris rondon ĉirkaŭ li.
 
-Arne konis ilin el la lernejo. El ili unu estis filo de la ruĝ-
-
-barba instruisto, du estis filoj de la nigrobarba. Ankaŭ kelkaj aliaj ĉeestis.
+Arne konis ilin el la lernejo. El ili unu estis filo de la ruĝbarba instruisto, du estis filoj de la nigrobarba. Ankaŭ kelkaj aliaj ĉeestis.
 
 Tiuj knaboj ordinare estis sufiĉe ĝentilmanieraj. Ili ne timi-gis aŭ batis kaj neniam blasfemis. Sed ili tre multe parolis pri la intimaj korpopartoj de viroj kaj virinoj kaj pri aliaj tiaj aferoj.
 
@@ -912,9 +742,6 @@ Arne silentis kaj volis foriri, sed ili baris lian vojon.
 —Tion vi ja povas diri al ni! aldonis Paŭlo, lia frato. Pro tio vi ja ne bezonas honti.
 
 Arne silentis.
-
-
-INFANOJ EN TORENTO
 
 
 —Oni diras, ke vi kuŝis kun ŝi inter la arbustoj apud la sablejo, daŭrigis Petro. Rakontu al ni, ĉu tio estas vero!
@@ -949,9 +776,7 @@ Ili lasis lin foriri, sed samtempe Petro diris:
 
 granda knabo kaj vizitas la lernejon. Strangulo vi estas.
 
-Ajna kaj Arne rapide forkuris de la knaboj. Pri la belaj floroj ili ne pensis plu. Nur kiam ili venis al sia propra strato, ili 39
-
-INFANOJ EN TORENTO
+Ajna kaj Arne rapide forkuris de la knaboj. Pri la belaj floroj ili ne pensis plu. Nur kiam ili venis al sia propra strato, ili
 
 
 malrapidigis la paŝojn. Dum la tuta kuro Arne ne rigardis Ajnan. Kvankam li ne faris ion hontindan, li hontis. Li hontis pro tio, ke la knaboj parolis tiamaniere. Li hontis pro tio, ke tiuj pli aĝaj kaj pli fortaj kamaradoj provis devigi lin.
@@ -964,9 +789,7 @@ malrapidigis la paŝojn. Dum la tuta kuro Arne ne rigardis Ajnan. Kvankam li ne 
 
 —Kion vi diras? Kial mi malŝatu vin? Vi agis kiel brava knabo. Vin mi devas pli multe ŝati.
 
-Tio iom konsolis lin, kvankam Ajna ne komprenis lian sen-
-
-ton kaj li mem ne povis ĝin esprimi.
+Tio iom konsolis lin, kvankam Ajna ne komprenis lian senton kaj li mem ne povis ĝin esprimi.
 
 —ĉu vi do volas esti mia amikino ankaŭ poste? li murmuris kaj hezite ŝin ekrigardis.
 
@@ -979,12 +802,7 @@ rondon, kaj ni ne havu ion komunan kun tiuj knaboj.
 —Ni tamen povos iri. Ni povos eviti ilin kaj iri kune kun la instruistoj. Kaj eble ili ne atakos vin plu.
 
 
-INFANOJ EN TORENTO
-
-
-Estis en la mezo de aŭgusto, la lasta semajno de la so-
-
-mera libertempo.
+Estis en la mezo de aŭgusto, la lasta semajno de la somera libertempo.
 
 Iun matenon Arne frue iris al la sablejo. Tie Johano kaj li konstruis tendon sub la piceoj. Ili faris ĝin el stangetoj kaj malnovaj sakoj.
 
@@ -997,9 +815,6 @@ Kiam li sidis tie ĉe sia laboreto venis Ajna. ŝi aspektis tiel strange, ke li 
 ŝi nenion diris, sed ŝi iris en la tendon. Tie ŝi eksidis sur la tero, kaŝis la vizaĝon per la manoj kaj ploris ankoraŭ pli forte.
 
 —Ajna, kio okazis, kial vi ploras tiel? li demandis maltrankvile kaj kompate.
-
-
-INFANOJ EN TORENTO
 
 
 ŝi nur ploris. ŝajnis, ke ŝi ne aŭdas lin aŭ tute ne atentas pri li.
@@ -1029,9 +844,6 @@ Ree li provis forigi ŝiajn manojn de la vizaĝo.
 ŝi iom rektigis sin, viŝis la okulojn kaj la vizaĝon per naztuko kaj poste rigardis lin kun senespere malgaja mieno.
 
 
-INFANOJ EN TORENTO
-
-
 —Vi estas mia amiko, kaj vi parolis al mi pri ĉio. Sed ĉu vi promesas, ke vi al neniu diros tion, ankaŭ ne al Johano?
 
 —Jes, mi ne diros.
@@ -1042,20 +854,13 @@ INFANOJ EN TORENTO
 
 La rulkurteno estis mallevita, kaj tial estis iom malhele en la ĉambro. Tamen mi tuj ekvidis, ke viro sidas sur la litrando ĉe patrino, kaj li estis kliniĝinta super ŝi. Mi rigidiĝis pro timo, ĉar mi kredis, ke estas murdisto. Mi volis ekkrii, por ke li ne mortigu patrinon, sed tute samtempe patrino flustris al li: ”Vi devas esti tute silenta, por ke la knabino ne vekiĝu! Kaj nun vi devas tuj foriri, antaŭ ol homoj vidos vin.” Poste li ekstaris kaj patrino ellitiĝis. Patrino kisis lin kaj malfermis al li la pordon kaj li eliris. Poste ŝi ree ekkuŝis.
 
-Mi kuŝis tute senmova. Mi ne kuraĝis min movi, kaj mi de-
+Mi kuŝis tute senmova. Mi ne kuraĝis min movi, kaj mi devis kunmordi la dentojn por ne ekplori. Antaŭ ol kuŝiĝi patrino venis al mia lito kaj rigardis min. Tiam mi fermis la okulojn kaj ŝajnigis, ke mi dormas. ŝi certe kredis tion, ĉar ŝi tuj foriris. Kaj eble ŝi ne vidis bone pro la malheleto.
 
-vis kunmordi la dentojn por ne ekplori. Antaŭ ol kuŝiĝi patrino venis al mia lito kaj rigardis min. Tiam mi fermis la okulojn kaj ŝajnigis, ke mi dormas. ŝi certe kredis tion, ĉar ŝi tuj foriris. Kaj eble ŝi ne vidis bone pro la malheleto.
-
-Nur kiam mi aŭdis, ke patrino ekdormas, mi kuraĝis plo-
-
-ri. Mi volvis la kovrilon tute ĉirkaŭ min kaj silente ploris, ĝis mi ekdormis. Kiam mi vekiĝis, patrino jam estis foririnta al sia laboro.
+Nur kiam mi aŭdis, ke patrino ekdormas, mi kuraĝis plori. Mi volvis la kovrilon tute ĉirkaŭ min kaj silente ploris, ĝis mi ekdormis. Kiam mi vekiĝis, patrino jam estis foririnta al sia laboro.
 
 Estis stranga, malagrabla rakonto. is nun Arne tre ŝatis la patrinon de Ajna. Tiu hejmo ŝajnis al li pli feliĉa ol aliaj, kiujn li konis.
 
 —Sed via patrino ja ĉiam estis tiel bona. ŝi instruis al vi preĝojn kaj kantojn kaj ĉion bonan.
-
-
-INFANOJ EN TORENTO
 
 
 —Patrino ĉiam estis bona al ni. Sed ŝi tamen ne estis kiel avinjo. Patrino ĉiam pensas pri tio, ke ni havu belajn vestojn, kaj pri aliaj tiaj aferoj, kaj ŝi ĉiam estas tre afabla. Sed avinjo parolas kun ni pri ĉiuj aferoj, kaj estas ŝi, kiu instruas nin.
@@ -1087,15 +892,9 @@ alia, kaj ni havu nian propran rondon. Avinjo ja estas bona, ankaŭ Greta kaj Jo
 Subite li ekmemoris sian desegnokajeron. Li prenis ĝin kaj etendis ĝin al ŝi.
 
 
-INFANOJ EN TORENTO
-
-
 — ĉu vi volas havi tiujn desegnojn? li demandis preskaŭ
 
 pete. Neniu vidis ilin antaŭe.
-
-
-INFANOJ EN TORENTO
 
 
 En vendreda vespero kelkajn semajnojn poste la patrino
@@ -1120,9 +919,7 @@ patrino rigardis ŝin per petolaj rigardoj kaj diris:
 
 La lipoj de Ajna ektremetis.
 
-—Vi diras nenion, kaj vi aspektas, kvazaŭ temus pri gran-
-
-da malfeliĉo! Vi devas ĝoji, ke li revenis. Nun ni ĉiam vivos kune kun li. ĉu vi ne ĝojas pro tio?
+—Vi diras nenion, kaj vi aspektas, kvazaŭ temus pri granda malfeliĉo! Vi devas ĝoji, ke li revenis. Nun ni ĉiam vivos kune kun li. ĉu vi ne ĝojas pro tio?
 
 — Kial li ne venis al ni pli frue, kiam mi ankoraŭ estis malgranda?
 
@@ -1132,12 +929,7 @@ Ajna momente forgesis sian malgajan senton.
 
 —ĉu estas vere? Kial vi ne parolis pri tio pli frue? Kaj ĉu li nun estas riĉa?
 
-— Li ne estas riĉa, li ne akiris multe da mono. Iomete li ta-46
-
-INFANOJ EN TORENTO
-
-
-men ŝparis, kaj nun li havas bonan laboron kiel ĉarpentisto tie ĉi en Torento. La novaĵo jam ŝajnis al Ajna pli bonprome-sa, sed subite alia plenso ĵetis ombron en ŝian animon.
+— Li ne estas riĉa, li ne akiris multe da mono. Iomete li tamen ŝparis, kaj nun li havas bonan laboron kiel ĉarpentisto tie ĉi en Torento. La novaĵo jam ŝajnis al Ajna pli bonprome-sa, sed subite alia plenso ĵetis ombron en ŝian animon.
 
 — Sed Greta … ĉu li estas patro ankaŭ de Greta?
 
@@ -1176,9 +968,6 @@ Momente la trikiloj haltis inter la fingroj de la avino. ŝi rigardis Ajnan per 
 —Sed vi devos resti ĉe ni, avinjo!
 
 
-INFANOJ EN TORENTO
-
-
 —Jes, espereble mi restos.
 
 —Kial vi ne parolis pri patro antaŭe, nek vi nek patrino?
@@ -1204,9 +993,6 @@ Greta momente lasis la ludilojn kaj enpense direktis siajn grandajn, bluajn okul
 —ĉu vi?
 
 
-INFANOJ EN TORENTO
-
-
 —Mi ne scias. Ni ja ne konas lin.
 
 —Patrino diris, ke li estas tre afabla, kaj ke li donos al ni belajn vestojn kaj belajn ludilojn. ĉu vi kredas, ke li faros tion?
@@ -1225,15 +1011,11 @@ La patrino portis belan robon, kiun ŝi nur hodiaŭ alportis de la kudristino. �
 
 Nur avinjo ŝajnis esti en sia ordinara humoro. ŝi sidis tute trankvile kaj legis gazeton sur sia ordinara loko apud angula tableto. Lavinte la vazojn post la vespermanĝo ŝi kiel ordinare tuj prenis sian triklaboron, sed tiam la patrino diris, ke nun ŝi ne devas labori.
 
-La murhorloĝo batis la sepan horon. Ajna sidis kiel time-
-
-ma birdo sur sia loko, kaj ree kaj ree ŝiaj rigardoj ŝtelkuris al la pordo.
+La murhorloĝo batis la sepan horon. Ajna sidis kiel timema birdo sur sia loko, kaj ree kaj ree ŝiaj rigardoj ŝtelkuris al la pordo.
 
 Post kelkaj minutoj sonis frapeto. La pordo malfermiĝis.
 
-Aperis altkreska, fortika viro en eleganta kostumo. La bela, 49
-
-INFANOJ EN TORENTO
+Aperis altkreska, fortika viro en eleganta kostumo. La bela,
 
 
 firmlinia vizaĝo estis sanofreŝa kaj gaja. Lia unua rigardo direktis sin al la knabinoj. Ajna vidis rekte en liajn okulojn. Ili estis brile brunaj kaj havis esprimon, kiu kvazaŭ altiris ŝin al li, sed samtempe ne tute plaĉis al ŝi.
@@ -1255,9 +1037,6 @@ Greta rigardis lin esplorete, kaj hezita rideto ekludis ĉirkaŭ ŝiaj duonfermi
 —Nu, nu, li diris, certe ni estos bonaj amikoj, kiam ni jam kutimiĝis unu al la alia. Sed jen, mi preskaŭ forgesis tion, jen estas io, kio eble plaĉas al vi.
 
 Li prenis el la poŝo kaj prezentis al ili papersaketon kun ĉo-koladaj bombonoj de la plej bona speco. Tiajn ili antaŭe vidis nur en la sukeraĵejoj.
-
-
-INFANOJ EN TORENTO
 
 
 Dankemaj rigardoj kaj gracietaj genufleksoj rekompencis
@@ -1293,9 +1072,6 @@ Li parolis gaje, bonhumore, kun venka persvado. La lastajn vortojn li direktis a
 Timoprema sento kaptis Ajnan, kiam ŝi ekkomprenis, ke la
 
 
-INFANOJ EN TORENTO
-
-
 patro volas, ke ŝi trinku de la ruĝa fluidaĵo. Kiam la patro etendis la manon por verŝi likvoron en la du novajn glasojn, ŝi tuŝis lian manon kaj diris duonlaŭte, kun ruĝiĝanta kaj kunfuzita vizaĝo:
 
 —Mi ne volas havi …
@@ -1326,14 +1102,9 @@ malbonan, nek al aliaj nek al vi mem. Li plenigis la glasojn duone.
 
 —Se ŝi ne volas, ne devigu ŝin, la avino diris.
 
-—Kompreneble ne. Mi tute ne volas devigi. Sed vi kom-
-
-prenas — li turnis sin al Ajna — ke mi tre ĝojas pro la reku-niĝo kun vi kaj via patrino, kaj tial mi ŝatus, se vi almenaŭ tostus kun mi. Oni faras tiel je gajaj okazoj, vi komprenas.
+—Kompreneble ne. Mi tute ne volas devigi. Sed vi komprenas — li turnis sin al Ajna — ke mi tre ĝojas pro la reku-niĝo kun vi kaj via patrino, kaj tial mi ŝatus, se vi almenaŭ tostus kun mi. Oni faras tiel je gajaj okazoj, vi komprenas.
 
 Li prenis sian glason, kaj la virinoj prenis la siajn. Greta vigle kaptis la sian kaj tuj komencis gustumeti. Hezite, kvazaŭ duonkonscie, Ajna etendis la manon kaj prenis la glason.
-
-
-INFANOJ EN TORENTO
 
 
 —Por komuna feliĉo! li diris ridetante kaj gustumetis la enhavon de sia glaso. Ankaŭ la aliaj metis la glasojn al la lipoj.
@@ -1367,9 +1138,6 @@ Nun Greta miksis sin en la aferon.
 Poste li demandis, ĉu li rajtas fumi, kaj bruligis cigaredon.
 
 
-INFANOJ EN TORENTO
-
-
 Farinte tion li funkciigis la gramofonon. Eksonis moderna dancmuziko, kaj iu miaŭanta voĉo kantis ion en fremda lingvo.
 
 —Vi ne havas radion? li diris. Tion ni nepre tuj havigu.
@@ -1390,14 +1158,9 @@ Venas tiu sinjoro kaj nepre volas, ke ŝi trinku likvoron. Estas strange, eĉ av
 
 —Do ĉio estas en ordo, la patro diris. Lunde ni iros al la pastro por sciigi, ke ni deziras geedziĝi. Post kvar semajnoj ni geedziĝos kaj ekloĝos en 46.
 
-Dume li duone rigardis Ajnan, kiu kaŝrigardis lin per de-
-
-manda mieno.
+Dume li duone rigardis Ajnan, kiu kaŝrigardis lin per demanda mieno.
 
 —Nu, kion vi volas diri, Ajneto. ĉu vi ankoraŭ malĝojas? Vi estas tiel silenta.
-
-
-INFANOJ EN TORENTO
 
 
 —ŝi estas silentema, senkulpigis la patrino.
@@ -1417,9 +1180,6 @@ Kontraŭvole ŝi ekridetis.
 —Ne … mi nur volis demandi …
 
 
-INFANOJ EN TORENTO
-
-
 Estis dimanĉa mateno en la fino de majo. Johano sidis sur la sofo kaj faris farunpaston en kafotaso. Estis por la fiŝa-do. Kiam li volis kapti plotojn kaj alburnojn, li metis pastan buleton sur la hokon.
 
 La patrino staris apud la forno kaj lavis la vazaron post la matenmanĝo. Eriko sidis ĉe la tablo. La supra parto de la korpo estis tute nuda, antaŭ li staris spegulo, kaj kun certa digno li movis razilon sur siaj vangoj.
@@ -1430,9 +1190,7 @@ Tra la malfermita pordo ŝi ekvidis, kiam Ejnar, la frato inter ŝi kaj Johano, 
 
 —Ejnar, ŝi vokis per iom flata voĉo, venu kaj prenu ankaŭ miajn ŝuojn por purigo.
 
-—Vi povas mem purigi viajn ŝuojn anstataŭ kuŝi ĝis tagme-
-
-zo, respondis Ejnar akre kaj eliris sur la peronon.
+—Vi povas mem purigi viajn ŝuojn anstataŭ kuŝi ĝis tagmezo, respondis Ejnar akre kaj eliris sur la peronon.
 
 —Jes, ellitiĝu! aldonis la patrino. Ni jam manĝis, sed vi ankoraŭ kuŝas. Estas hontinde.
 
@@ -1446,9 +1204,7 @@ patrino diris.
 
 —ĉu vi jam ree komencas? Aliaj knabinoj iras al dancejo
 
-kaj kino multe pli ol mi. Ili havas multe pli belajn vestojn, pli 56
-
-INFANOJ EN TORENTO
+kaj kino multe pli ol mi. Ili havas multe pli belajn vestojn, pli
 
 
 bonajn ŝuojn, ricevas multe pli da mono ol mi. Sed mi, mi havas rajton pri nenio.
@@ -1461,9 +1217,7 @@ Kaj kion vi faras por meriti tion? Vi ja eĉ ne volas purigi viajn proprajn ŝuo
 
 —Fermu la buŝon! Eriko ankoraŭfoje ordonis.
 
-—Sed ĉesu do, petis la patrino per plenda voĉo. ĉiam es-
-
-tas la sama afero, tagon post tago, semajnon post semajno.
+—Sed ĉesu do, petis la patrino per plenda voĉo. ĉiam estas la sama afero, tagon post tago, semajnon post semajno.
 
 Mi fariĝos freneza.
 
@@ -1482,9 +1236,6 @@ La pasto nun estis bone knedita, kaj Johano metis ĝin en
 paperon.
 
 Elsa eliris el la lito kaj komencis surmeti la subvestojn. La tutan tempon ŝi observis Johanon. Kiam li ekstaris por foriri, ŝi ree petis.
-
-
-INFANOJ EN TORENTO
 
 
 —Johano, vi estas la plej afabla el ĉiuj. Prenu miajn ŝuojn kaj purigu ilin. Vi ja bezonos nur du minutojn.
@@ -1520,12 +1271,7 @@ Kiam ŝi ekvidis lian banpantalonon, ŝi aldonis:
 tion vi ja ne faras. ĉu vi do ne iris al la dimanĉa lernejo?
 
 
-INFANOJ EN TORENTO
-
-
-—Ne, mi ne ŝatas. Atendu dum mi kuros preni mian ban-
-
-veston. Eble mi povos min bani.
+—Ne, mi ne ŝatas. Atendu dum mi kuros preni mian banveston. Eble mi povos min bani.
 
 —Mi havas ankoraŭ unu fiŝvergon hejme. Mi rekuros kaj
 
@@ -1547,9 +1293,7 @@ Johano havis veran intereson por la afero. Li jam estis su-fiĉe lerta, kaj bald
 
 Ankaŭ Ajna kaptis kelkajn, sed ŝi ne havis sperton pri tiu okupo, kaj krome la fiŝado per si mem ne interesis ŝin. Post kelka tempo ŝi formetis sian fiŝvergon. ŝi deprenis siajn vestojn, surmetis la banveston kaj ekkuŝis sur la sablo.
 
-Ankaŭ Johano surprenis sian banpantalonon, sed li daŭri-
-
-gis sian fiŝadon. Tiam kaj tiam li rigardis al Ajna, kiu kuŝis kun la manoj sub la nuko kaj rigardis en la bluan, profundan ĉielon.
+Ankaŭ Johano surprenis sian banpantalonon, sed li daŭrigis sian fiŝadon. Tiam kaj tiam li rigardis al Ajna, kiu kuŝis kun la manoj sub la nuko kaj rigardis en la bluan, profundan ĉielon.
 
 —Kial vi ne ŝatas iri al la dimanĉa lernejo? Johano diris.
 
@@ -1560,9 +1304,6 @@ gis sian fiŝadon. Tiam kaj tiam li rigardis al Ajna, kiu kuŝis kun la manoj su
 silento. ŝi eksidis kaj komencis fosi per la piedo en la sablo.
 
 —Ne … ĉu vi memoras, kiam ni ludis en la sablejo? Kiam
-
-
-INFANOJ EN TORENTO
 
 
 vi kaj Arne estis laboristoj kaj mi kaj Greta mastrumis? Estis bone tiam.
@@ -1598,12 +1339,7 @@ nin en ĉiuj manieroj. Li donas monon al ni por iri al kino kaj por aĉeti, kion
 Nun Arne alvenis al ili. Johano metis la fiŝojn en ombron ĉe salika arbusto, kaj ili iris sin bani. Tuj apude estis ronda, malprofunda golfeto, kvazaŭ aparta lageto, kie ili povis sin bani sendanĝere.
 
 
-INFANOJ EN TORENTO
-
-
-Baldaŭ venis la somera libertempo. Kiam estis bona vete-
-
-ro, la infanoj pasigis la tutajn tagojn ĉe la rivera golfeto.
+Baldaŭ venis la somera libertempo. Kiam estis bona vetero, la infanoj pasigis la tutajn tagojn ĉe la rivera golfeto.
 
 La knaboj konstruis saktendon, kaj faris al si velboatojn. El dikaj tabuloj ili faris malgrandan floson, per kiu ili povis veturi sur sia malgranda lago. Ankaŭ aliaj samaĝaj infanoj venis tien, sed la pli grandaj banis sin en alia loko.
 
@@ -1613,11 +1349,7 @@ Sed kiam la printempa suno komencis brili kaj logi verdajn herbojn el la tero, l
 
 Jam la unuan fojon, kiam li promenis tie, li iris ĝis la tendo de la infanoj. Li rigardis ilin interesite kaj komencis iom babileti kun ili.
 
-—Vi estas feliĉaj, li diris. Kiam mi havis vian aĝon, mi ne rajtis ludi kaj fari nenion. Tiam ankaŭ la infanoj devis labori. Kiam mi estis dek du jara mi unuafoje komencis labori ĉe aliaj homoj. Tute sola mi devis iri dudek kilometrojn al la bieno, kie oni dungis min. Kaj kia salajro! Nuntempe ĝi ne sufi-
-
-ĉus por bombonoj kaj kinobiletoj al dekdujara knabo. Sed la 61
-
-INFANOJ EN TORENTO
+—Vi estas feliĉaj, li diris. Kiam mi havis vian aĝon, mi ne rajtis ludi kaj fari nenion. Tiam ankaŭ la infanoj devis labori. Kiam mi estis dek du jara mi unuafoje komencis labori ĉe aliaj homoj. Tute sola mi devis iri dudek kilometrojn al la bieno, kie oni dungis min. Kaj kia salajro! Nuntempe ĝi ne sufiĉus por bombonoj kaj kinobiletoj al dekdujara knabo. Sed la
 
 
 plej malbona estis la malsato. Dio, kiom mi malsatis kelkafoje!
@@ -1640,9 +1372,7 @@ Li rigardis ŝin ankoraŭ pli mire, sed ne respondis al ŝiaj asertoj. Verŝajne
 
 kelkafoje okazis en mia hejmo, ke ni havis nur terpomojn por manĝi, tute nenion alian. Ni manĝis ilin kun salo, kelkafoje ni trempis ilin en malnovan haringopeklon. Manĝi senpermese
 
-estis peko. Iam mi kaj fratino estis solaj hejme, kaj ni estis tre malsataj. Fratino kuiris kaĉon el akvo kaj sekalfaruno kaj ni manĝis. Iel patrino poste suspektis tion kaj demandis. Ni ja devis konfesi, kaj tiam ŝi kolektis faskon da urtikoj kaj vergis 62
-
-INFANOJ EN TORENTO
+estis peko. Iam mi kaj fratino estis solaj hejme, kaj ni estis tre malsataj. Fratino kuiris kaĉon el akvo kaj sekalfaruno kaj ni manĝis. Iel patrino poste suspektis tion kaj demandis. Ni ja devis konfesi, kaj tiam ŝi kolektis faskon da urtikoj kaj vergis
 
 
 niajn nudajn postaĵojn, ĝis la urtikoj estis eluzitaj. Ion tian vi eĉ ne povas imagi.
@@ -1671,18 +1401,11 @@ Iun tagon Johano demandis:
 
 La maljunulo gaje ekridis.
 
-—Tion vi povas imagi! Tiam ekzistis en Torento nur ordi-
-
-nara grandbieno. Sur la tuta loko, kie estas la uzino, tiam estis nur arboj kaj arbustoj, kaj tie paŝtis sin la bovinoj.
+—Tion vi povas imagi! Tiam ekzistis en Torento nur ordinara grandbieno. Sur la tuta loko, kie estas la uzino, tiam estis nur arboj kaj arbustoj, kaj tie paŝtis sin la bovinoj.
 
 —Sed la fervojo kaj la stacio? Kaj ĉiuj domoj, la poŝtejo kaj la popola domo kaj la lernejo?
 
-—Ne ekzistis. Estis nur kampoj aŭ arbaro. Supre ĉe la rive-63
-
-INFANOJ EN TORENTO
-
-
-ro estis malgranda altforno kaj forĝejoj, kie oni faris ŝtalon kaj feron el la krudfero. Sed nur malmultaj homoj laboris tie.
+—Ne ekzistis. Estis nur kampoj aŭ arbaro. Supre ĉe la rivero estis malgranda altforno kaj forĝejoj, kie oni faris ŝtalon kaj feron el la krudfero. Sed nur malmultaj homoj laboris tie.
 
 Nun kreskas altaj arboj tie, sed se vi iros al tiu loko, vi ankoraŭ povos vidi la fundamentojn.
 
@@ -1694,9 +1417,7 @@ Estis interesaj rakontoj, kaj preskaŭ ĉio estis tute nova al la infanoj. La pl
 
 —Kaj ĉion tion la laboristoj konstruis kaj faris, Alda konstatis. Estas granda kaj bona laboro.
 
-—Sed la grandaj sinjoroj donis sian monon por la konstru-
-
-ado kaj gvidis la aferojn, la maljunulo kontraŭis. Sen ili certe ankoraŭ estus nur arbaro kaj kelkaj kampoj tie ĉi.
+—Sed la grandaj sinjoroj donis sian monon por la konstruado kaj gvidis la aferojn, la maljunulo kontraŭis. Sen ili certe ankoraŭ estus nur arbaro kaj kelkaj kampoj tie ĉi.
 
 —Tamen ili faris tion nur por gajni pli da mono. Tio estas la ĉefa afero. Sed baldaŭ la laboristoj mem transprenos tion, kion ili konstruis, kaj tiam estos pli bonaj tempoj en la mondo.
 
@@ -1706,16 +1427,12 @@ La maljunulo rigardis ŝin kun ioma scivolo.
 
 ŝi iom ekkoleris, ĉar ŝi komprenis, kion li volas diri per tio.
 
-—Vi parolas stulte, ŝi diris. Mi ne konas kapitalistojn kaj ili ne faris malbonon rekte al mi. Sed ili faris al la tuta laborista 64
-
-INFANOJ EN TORENTO
+—Vi parolas stulte, ŝi diris. Mi ne konas kapitalistojn kaj ili ne faris malbonon rekte al mi. Sed ili faris al la tuta laborista
 
 
 klaso. ĉu vi ne scias pri tio, kvankam vi vivis tiel longe kaj ti-om malsatis?
 
-—Sed kiamaniere vi spertis tion? Vi tamen estas nur kna-
-
-bineto.
+—Sed kiamaniere vi spertis tion? Vi tamen estas nur knabineto.
 
 —Ankaŭ tio estas stulte dirita. Mi ja ne povis sperti. Gepatroj instruis min. Mi legas ankaŭ gazetojn kaj librojn — laboristajn. En la burĝaj gazetoj kaj libroj estas nur mensogoj.
 
@@ -1733,9 +1450,7 @@ bineto.
 
 —Kion vi intencas fari, kiam vi fariĝos granda?
 
-ŝi ne tuj respondis. ŝi palpebrumis, la tuta vizaĝo move-
-
-tiĝis, kaj subite kelkaj larmoj ekbrilis en ŝiaj okuloj.
+ŝi ne tuj respondis. ŝi palpebrumis, la tuta vizaĝo movetiĝis, kaj subite kelkaj larmoj ekbrilis en ŝiaj okuloj.
 
 —Vi demandis tiel strange, ŝi diris. Mi devas pensi.
 
@@ -1750,16 +1465,11 @@ liaj okuloj ekbrilis, kvazaŭ li pensus pri io agrabla. Sed li mallevis la rigar
 —Mi ne scias.
 
 
-INFANOJ EN TORENTO
-
-
 II.
 
 Tri jaroj pasis. Ajna jam finis la lernejon, Alda kaj la du knaboj en la frusomero finis la antaŭlastan klason.
 
-Estis sabata vespero en la mezo de aŭgusto. Dum la post-
-
-tagmezo Arne kaj Johano preparis sin por kankrokaptado.
+Estis sabata vespero en la mezo de aŭgusto. Dum la posttagmezo Arne kaj Johano preparis sin por kankrokaptado.
 
 Duonhoron post la sesa Johano aperis antaŭ la hejmo de
 
@@ -1769,9 +1479,7 @@ Li vokis tra la nefermita fenestro. La voĉo de Arne respondis elinterne, kaj po
 
 La patrino de Arne elŝovis la kapon tra la fenestro.
 
-—Memoru, ke vi estu singarda, por ke vi ne dronu aŭ mal-
-
-varmumu, kaj se la vetero fariĝos malbona, tuj venu hejmen.
+—Memoru, ke vi estu singarda, por ke vi ne dronu aŭ malvarmumu, kaj se la vetero fariĝos malbona, tuj venu hejmen.
 
 —Jes, jes. Estu trankvila!
 
@@ -1783,12 +1491,7 @@ Ili iris al Ajna. Ajna kaj Alda jam sidis atendante en la si-ringa laŭbo antaŭ
 
 La knabinoj ekstaris, surmetis siajn dorsosakojn kaj aliĝis al la knaboj. Same kiel tiuj, ili estis vestitaj per supertutoj kaj portis vaskajn ĉapojn.
 
-—ĉu vi ne forgesis ion? Johano kontrolis. ĉu vi havas ka-
-
-fon, kremon, sukeron, tasojn, kulerojn?
-
-
-INFANOJ EN TORENTO
+—ĉu vi ne forgesis ion? Johano kontrolis. ĉu vi havas kafon, kremon, sukeron, tasojn, kulerojn?
 
 
 —Jes, jes. Kaj ĉu vi havas la kafopoton kaj alumetojn kaj la ceterajn aferojn?
@@ -1815,16 +1518,12 @@ Ili ne respondis al la ŝerco, sed ekmarŝis orienten laŭ la longa strato. Pret
 
 La vojeto kondukis supren kaj fariĝis pli kaj pli kruta. Kiam ili post duonhoro atingis la supron de la montodorso, ili ŝvi-tetis sub siaj pakaĵoj kaj eksidis por manĝi oranĝon kaj iom ripozi.
 
-Rigardante okcidenten kaj malsupren ili povus imagi, ke ili sidas en flugmaŝino. Pro la tre kruta deklivo Torento, kvankam ne tre malproksima, aspektis kiel liliputa urbo. Kelkaj aŭtoj kuris sur la stratoj kaj la ŝoseo kiel fervoraj formikoj. Ie inter la kampoj ŝarĝvagonaro kiel rampanta raŭpo proksimiĝis al la stacidomo. El la tuboj de la uzino venis fumo kiel fumstrioj el cigaroj. La domoj similis al ruĝaj skatoletoj kaj la 67
-
-INFANOJ EN TORENTO
+Rigardante okcidenten kaj malsupren ili povus imagi, ke ili sidas en flugmaŝino. Pro la tre kruta deklivo Torento, kvankam ne tre malproksima, aspektis kiel liliputa urbo. Kelkaj aŭtoj kuris sur la stratoj kaj la ŝoseo kiel fervoraj formikoj. Ie inter la kampoj ŝarĝvagonaro kiel rampanta raŭpo proksimiĝis al la stacidomo. El la tuboj de la uzino venis fumo kiel fumstrioj el cigaroj. La domoj similis al ruĝaj skatoletoj kaj la
 
 
 rivero estis kiel mallarĝa rubando. La tuta urbeto similis al modelo de Torento, kiun ili en la lernejo iam konstruis el sablo, argilo kaj diversaj objektetoj. Sur la sportejo malgrandaj punktoj zigzagis tien kaj reen kiel kuletoj. Estis piedpilka ludo.
 
-—ĉu vi kredas, ke aliaj ne venos al nia loko? Alda deman-
-
-dis Johanon.
+—ĉu vi kredas, ke aliaj ne venos al nia loko? Alda demandis Johanon.
 
 —Jes, almenaŭ ne el Torento. Mi konas neniun knabon tie,
 
@@ -1843,9 +1542,6 @@ Alda ree interrompis, kiam la muziko el la popola parko atingis ŝiajn orelojn, 
 —Ne babilaĉu! Alie mi reiros hejmen.
 
 —Sed tiel faras ĉiuj. Mia fratinaĉo …
-
-
-INFANOJ EN TORENTO
 
 
 —Mi ne faros.
@@ -1870,12 +1566,7 @@ Ili ekstaris, ankoraŭfoje rigardis al Torento kaj la sunsub-iro kaj ree ekmarŝ
 
 Longe ili marŝis, kaj la knabinoj jam komencis plendeti pro la longa vojo, kiam ili subite kaj neatendite staris ĉe la bordo de la lago. Estis kvazaŭ elveni el tunelo. La sufiĉe vasta lago ankoraŭ briletis en la lasta vespera lumo, kaj estis multe pli hele tie ĉi ol en la arbaro.
 
-Estis bona bordo kun herbo, kaj kelkaj rokplatoj kuŝis kiel malgrandaj terlangoj en la neprofunda akvo. Malgranda rivereto fluis el la lago tute apude. Sur ĝia surfaco kuŝis folioj de nimfeoj kaj aliaj kreskaĵoj, kaj la fundo estis plena de ŝlimo, bona loko por kankroj. Sur la maldekstra flanko de la lago staris betuloj kun kretblankaj trunkoj kaj helverdaj foliama-69
-
-INFANOJ EN TORENTO
-
-
-soj, sur la alia estis pinarbaro, kaj kelkaloke murkrutaj flankoj de malgrandaj montoj levis sin el la akvo.
+Estis bona bordo kun herbo, kaj kelkaj rokplatoj kuŝis kiel malgrandaj terlangoj en la neprofunda akvo. Malgranda rivereto fluis el la lago tute apude. Sur ĝia surfaco kuŝis folioj de nimfeoj kaj aliaj kreskaĵoj, kaj la fundo estis plena de ŝlimo, bona loko por kankroj. Sur la maldekstra flanko de la lago staris betuloj kun kretblankaj trunkoj kaj helverdaj foliamasoj, sur la alia estis pinarbaro, kaj kelkaloke murkrutaj flankoj de malgrandaj montoj levis sin el la akvo.
 
 —Estas bele tie ĉi, diris Ajna. Tie ĉi mi volus resti longe.
 
@@ -1893,40 +1584,30 @@ Estis kankrokaĝoj faritaj el drato kaj reto, kaj estis nepro-fundaj retsakoj ku
 
 Kiam ĉio estis preta, la malhelo jam venis, kaj la knabinoj insistis, ke oni faru fajron. Johano volis, ke ili atendu ankoraŭ iom. Baldaŭ tamen ekflamis kelkaj fajroj aliflanke de la lago, kaj lanternoj movis sin kiel ruĝaj punktetoj tien kaj reen en la mallumo. Tiam li konsentis, kaj dum solena silento li bruligis alumeton kaj metis ĝin al la seka herbo inter la branĉoj.
 
-La eta flamo komencis kreski kaj ĵetis sian lumon sur la kaŭ-
-
-rantajn figurojn. Baldaŭ brulis senfuma granda fajro, krake kaj susure, kaj agrabla varmo disradiis de ĝi.
+La eta flamo komencis kreski kaj ĵetis sian lumon sur la kaŭrantajn figurojn. Baldaŭ brulis senfuma granda fajro, krake kaj susure, kaj agrabla varmo disradiis de ĝi.
 
 Ili malfermis siajn dorsosakojn kaj manĝis buterpanojn kaj ovojn, dum Johano samtempe lerte lokis la kafopoton super la fajro.
 
 —Estus agrable, se oni ĉiam povus vivi tiel, Johano diris kaj lia vizaĝo brilis de kontento. Libere, laŭ propra volo.
 
-—Estas treege agrable, sed mi ne ŝatus vivi tiel por ĉiam, 70
-
-INFANOJ EN TORENTO
+—Estas treege agrable, sed mi ne ŝatus vivi tiel por ĉiam,
 
 
 Alda kontraŭis. Oni devas vivi ankaŭ inter la homoj, lerni kaj labori por la komunaj aferoj de la laboristaro. Tio estas pli grava.
 
 —ĉiam vi parolas tiel, diris Arne, sed ĉiam vi diras ankaŭ ke la laboristoj estas la plej stultaj estaĵoj en la mondo.
 
-—Jes, sed ĝuste pro tio oni devas instrui ilin, por ke ili fari-
-
-ĝu pli saĝaj.
+—Jes, sed ĝuste pro tio oni devas instrui ilin, por ke ili fariĝu pli saĝaj.
 
 —Tamen vi devas konfesi, ke estas multe pli agrable tie ĉi ol en la lernejo, Johano daŭrigis.
 
-—Kompreneble. Sed oni lernas multajn utilajn aferojn an-
-
-kaŭ tie.
+—Kompreneble. Sed oni lernas multajn utilajn aferojn ankaŭ tie.
 
 —Estas ja bone scii legi, skribi kaj kalkuli. Sed la instruado estas terure enuiga. ĉiam oni devas kaj devas. Neniam laŭ propra volo. Oni devas viziti la lernejon, en la uzinoj oni devas labori laŭ ordonoj, oni devas fari la militekzercojn. ĉiam la devo.
 
 —Dependas de tio, ke burĝoj regas.
 
-—En Torento regas la socialdemokratoj, diris Ajna. Ja an-
-
-kaŭ mia patro apartenas al la estraro.
+—En Torento regas la socialdemokratoj, diris Ajna. Ja ankaŭ mia patro apartenas al la estraro.
 
 —Ankaŭ ili estas burĝoj. Celas al bonaj oficoj, penas fari superulojn el siaj filoj. Ordinare. Sed kiam estos vera socialista sistemo, tiam la homoj faros nur tion, kio estos utila kaj bona por ĉiuj, kaj tiam devoj ne ekzistos. Estas la ordonoj de la burĝoj, kiuj estas malagrablaj, en lernejo, en uzinoj, ĉie. ĉu estus malagrable en la lernejo, se ni mem rajtus decidi pri nia laboro?
 
@@ -1934,12 +1615,7 @@ kaŭ mia patro apartenas al la estraro.
 
 —Tiaj lernejoj ekzistas. En Sovetio ekzistas.
 
-—ĉu la infanoj ne kuras hejmen, kiam ili povas agi laŭ-
-
-plaĉe?
-
-
-INFANOJ EN TORENTO
+—ĉu la infanoj ne kuras hejmen, kiam ili povas agi laŭplaĉe?
 
 
 —ĉu vi kurus hejmen, se nia lernejo estus tia?
@@ -1956,13 +1632,9 @@ Ili zorge kalkulis ilin, kaj la nombro rapide kreskis. Ili ĝojis ne nur pro la 
 
 Dume ili laŭvice kuris al la fajro por ĝin gardi kaj nutri.
 
-Kiam la nokto estis plej malluma, subite aŭdiĝis nelaŭtaj remilbatoj tute apude, kaj platboato kun du viroj kvazaŭ sor-
+Kiam la nokto estis plej malluma, subite aŭdiĝis nelaŭtaj remilbatoj tute apude, kaj platboato kun du viroj kvazaŭ sorĉe aperis ĉe la limo de la lumrondo ĉirkaŭ la fajro.
 
-ĉe aperis ĉe la limo de la lumrondo ĉirkaŭ la fajro.
-
-La boato tuŝis la bordon, sed la viroj ne eliris. Ili restis senmovaj kaj silentaj, kaj rigardis al la infanoj kaj la fajro, sed la 72
-
-INFANOJ EN TORENTO
+La boato tuŝis la bordon, sed la viroj ne eliris. Ili restis senmovaj kaj silentaj, kaj rigardis al la infanoj kaj la fajro, sed la
 
 
 infanoj ne povis bone distingi ilian aspekton. Estis io timiga en ilia subita kaj silenta apero.
@@ -1989,17 +1661,13 @@ Eĉ kafopoton vi kunportas!
 
 multe en la poto, kaj cetere ni povos pretigi novan.
 
-—Kion vi opinias? la unua turnis sin al la kamarado. Cer-
-
-te ne gustus malbone. Pro la brando ni forgesis mem pretigi, kvankam ni kunhavas ĉion necesan. Jes, dankon! Vi estas bonaj kamaradoj.
+—Kion vi opinias? la unua turnis sin al la kamarado. Certe ne gustus malbone. Pro la brando ni forgesis mem pretigi, kvankam ni kunhavas ĉion necesan. Jes, dankon! Vi estas bonaj kamaradoj.
 
 Johano rapide metis la poton sur la fajron por ke ĝi revar-miĝu. Dume la viroj eliris el la boato, fiksis ĝin al la bordo kaj scivole rigardis la infanojn.
 
 —Diabloj! diris subite la unua parolanto kaj laŭte ekridis.
 
-Mi pensis, ke vi estas kvar knaboj. Adolfo, ĉu vi vidas? Estas nur du knaboj! Ili kunprenis siajn knabinojn, sed vestis ilin 73
-
-INFANOJ EN TORENTO
+Mi pensis, ke vi estas kvar knaboj. Adolfo, ĉu vi vidas? Estas nur du knaboj! Ili kunprenis siajn knabinojn, sed vestis ilin
 
 
 per knabaj vestoj, por ke neniu suspektu la aferon. De kie vi venas?
@@ -2032,12 +1700,7 @@ Sed Adolfo faris silentigan gesteton per la mano.
 
 Poste Alekso, — tiel lin nomis Adolfo — subite turnis sin al Alda.
 
-—Vi do estas la malgranda ruĝega socialista knabino. Es-
-
-tas al mi plezuro vin renkonti.
-
-
-INFANOJ EN TORENTO
+—Vi do estas la malgranda ruĝega socialista knabino. Estas al mi plezuro vin renkonti.
 
 
 Alda mire rigardis lin.
@@ -2050,17 +1713,13 @@ ankaŭ vian tutan kvaron. Sed mi ja aŭdis pri vi. Ekzemple printempe, kiam okaz
 
 —Mi ne faris skandalon. Mi diris nur, ke la homoj hipokritas, kaj ke oni devas paroli racie al la infanoj, kaj antaŭ ĉio la pli aĝaj homoj devas forlasi siajn maldecaĵojn en parolo kaj agoj. Ili estas respondecaj pri la blasfemado kaj ĉiuj maldecaĵoj de la infanoj, ĉar ilia ekzemplo efikas centoble pli forte ol la religiaj frazaĉoj en la lernejo. Tion mi diris. ĉu ne estas prave?
 
-—Jes, estas. Vi estas brava knabino. Multaj en Torento mal-laŭdas vin. Sed mi komprenas, mi komprenas. Ankaŭ mi ha-
-
-vis revojn, fajro brulis en mia brusto. Nu, vi ne komprenas tion. Mi estas nur ebria lagokamarado, kaj eble vi malŝatas min, sed mi komprenas, mi komprenas. Vi eble estas tro ru-
+—Jes, estas. Vi estas brava knabino. Multaj en Torento mal-laŭdas vin. Sed mi komprenas, mi komprenas. Ankaŭ mi havis revojn, fajro brulis en mia brusto. Nu, vi ne komprenas tion. Mi estas nur ebria lagokamarado, kaj eble vi malŝatas min, sed mi komprenas, mi komprenas. Vi eble estas tro ru-
 
 ĝega por mi, eble ne, kaj eble vi havas tro infanajn pensojn, sed vi estas pura en la koro, kaj estas fajro en via animo. Sincera vi estas kaj pura kiel juna florburĝono, homido netuŝi-ta de la aĉaĵoj en la mondo. Ho Dio, se mi povus partopreni vian kredon, vian junan vivon. Sed mi estas nur maljuna,
 
 ebria lagokamarado. La tagoj flugis for kiel revoj. Restas al mi nur la lagoj kaj la arbaroj. Kaj ankaŭ tio estas revo, bela revo.
 
-ĉar la koro estas malplena, malplena. Tio estas la manko. Sed 75
-
-INFANOJ EN TORENTO
+ĉar la koro estas malplena, malplena. Tio estas la manko. Sed
 
 
 viaj koroj estas plenaj. Ho, se ili por ĉiam restus plenaj de dia fajro kaj sinceraj, sinceraj. Junaj batalantoj, veraj vivantoj!
@@ -2074,9 +1733,6 @@ Mi videtis vian kvaron, kaj mi multe aŭdis pri vi, ĉar iel vi estas iom neordi
 Lia voĉo fariĝis pli kaj pli malklara, kaj subite li eksilentis kaj forviŝis larmojn el la okuloj. La knaboj jam antaŭe revenis, kaj ĉiuj kvar aŭdis lian longan kaj balbutan paroladon. ŝajnis strange al ili, sed iel lia parolo profunde tuŝis ilin.
 
 Alekso levis sin.
-
-
-INFANOJ EN TORENTO
 
 
 —Ni devas reiri al niaj kankrokaĝoj. Dankon pro la kafo kaj pro agrabla kunesto. Vi estas bravaj lagokamaradoj. is revido!
@@ -2095,16 +1751,11 @@ Li ne volis kunporti ilin hejmen, ĉar li intencis reiri alian tagon. Per la kaf
 
 Kiam ili venis al Torento, ĉiu tuj iris al sia hejmo. Johano kunprenis la sakojn, kaj ili interkonsentis, ke ili faru la divi-don nur en la posta tago.
 
-La hejmo de Alda kuŝis apud la ĉefa strato, ne malproksi-
-
-me de la apudrivera parto de Torento. Estis malgranda, unu-etaĝa domo kun butiko alstrate kaj kuirejo kaj alia ĉambro en la malantaŭa parto. Malantaŭ la domo estis malgranda ĝardeno.
+La hejmo de Alda kuŝis apud la ĉefa strato, ne malproksime de la apudrivera parto de Torento. Estis malgranda, unu-etaĝa domo kun butiko alstrate kaj kuirejo kaj alia ĉambro en la malantaŭa parto. Malantaŭ la domo estis malgranda ĝardeno.
 
 Alda eniris la kuirejon kiel eble plej silente por ne veki la gepatrojn. Sed tuj venis flustra voĉo el la ĉambro. Estis la patrino.
 
 —ĉu estas vi, Alda? Estas manĝaĵo por vi en la ŝranko, se vi deziras. Vian liton vi mem aranĝu. Mi ĵus venis hejmen de la popola domo. Estis senfina laboro nunnokte en la kuirejo tie, kaj mi estas mortlaca.
-
-
-INFANOJ EN TORENTO
 
 
 —Jes, jes, estu trankvila kaj dormu.
@@ -2138,9 +1789,6 @@ Tiam ree ekflustris la patrino, kiu ankoraŭ ne dormis.
 Kaj subite, sen klare konscia intenco, ŝi aldonis:
 
 
-INFANOJ EN TORENTO
-
-
 —Kaj kion faris patro? ĉu estis amikoj tie ĉi?
 
 —Ne. Kiam mi venis hejmen, li vekiĝis, kaj li diris, ke li estas kolera al Adler kaj Strand, ĉar ili promesis viziti lin, sed ili tute ne venis. Li sidis tute sola kaj nur legis la tutan vesperon, li diris.
@@ -2150,9 +1798,6 @@ Malagrabla sento subite ekŝiris en ŝia interno, kaj ŝi plene revekiĝis. ĉu 
 ŝi kuŝis senmova kaj silenta en sia lito, sed ŝia rigardo maltrankvile vagis tien kaj reen en la ĉambro, kie la matena lumo jam komencis forpeli la ombrojn de la krepusko. Sentoj kaj bildoj kirliĝis en ŝia interno, kvazaŭ dum febrosonĝo, kaj ree kaj ree aperis en ŝia imago la pentristino kun malhelbrunaj okuloj, brilaj kaj ridaj, kaj ŝia mola, kvazaŭ karesa voĉo. Eble estus … eble ne.
 
 Fine ŝi tre, tre silente forlasis la liton, prenis la naztukon de la tablo kaj zorge kaŝis ĝin inter siaj propraj objektoj en angula ŝranko.
-
-
-INFANOJ EN TORENTO
 
 
 Tri semajnoj pasis post la kankrokapto. Estis ĉirkaŭ la sepa horo matene, kiam la infanoj pretigis sin por iri al la lernejo.
@@ -2165,9 +1810,7 @@ profunde blua ĉielo. La herboj estis pezaj de aŭtuna roso kaj la ombroj estis 
 
 Regis stranga silento, ia orelfrapa silento, kian oni rimarkas, kiam longedaŭra kaj forta bruo subite ĉesas. Antaŭ unu horo ekhaltis ĉiuj turniĝantaj radoj en la uzino, eksilentis ĉiu bruo de ferŝtono kaj fero, ekripozis ĉiuj laboriloj, estingiĝis ĉiuj fajroj en la fornoj. Stranga kaj iel maltrankviliga estis tiu silento, silento de difektiĝinta maŝinaro, de subita akcidento.
 
-La altaj briktuboj levis sin kiel gigantoj al ĉielo, sed ili perdis sian vivon. Ili elspiris la lastajn fumnubojn, kiuj jam sen-spure malaperis en la spaco, kaj super Torento etendis sin la 80
-
-INFANOJ EN TORENTO
+La altaj briktuboj levis sin kiel gigantoj al ĉielo, sed ili perdis sian vivon. Ili elspiris la lastajn fumnubojn, kiuj jam sen-spure malaperis en la spaco, kaj super Torento etendis sin la
 
 
 bluaj altoj same serenaj kiel antaŭ jarcentoj, kiam arbaro kovris la tutan regionon.
@@ -2186,26 +1829,17 @@ tute ĉesi kaj malaperi kiel fumo en la aero.
 
 —Ne estu tro trankvilaj. ĉu vi ne vidis, ke ni en la lasta jaro rericevis duonon aŭ pli de la fero, kiun ni forsendis? Kaj ĉu vi ne komprenas, kion tio signifas? Fuŝlaboron! Kiuj estas kul-paj? Nu, ni ne parolu tro laŭte. Diablaj intrigoj, eble, kion ni scias? La torenta uzino estas superflua laŭ la opinio de la granda ferkonzerno, eble. Kion scias ni, ni, kiuj faras la laboron? Sed kion tiu fuŝlaboro signifas por la vendebloj de torentaj produktoj, tion ni povas konkludi. Ne tro fidu al la estonteco.
 
-La voĉoj zumis, lignaj pantofloj bruetis, kaj nubetoj da blua fumo levis sin el pipoj kaj cigaredoj. La infanoj premis sin kiel eble plej proksimen al la parolantoj kaj ne perdis eĉ unu vorton. Estis eksterordinara okazo. Ordinare ili ne tre multe 81
-
-INFANOJ EN TORENTO
+La voĉoj zumis, lignaj pantofloj bruetis, kaj nubetoj da blua fumo levis sin el pipoj kaj cigaredoj. La infanoj premis sin kiel eble plej proksimen al la parolantoj kaj ne perdis eĉ unu vorton. Estis eksterordinara okazo. Ordinare ili ne tre multe
 
 
 atentis pri la uzino. La knaboj kelkafoje revetis pri estonta laboro tie, sed tio estis ĉio. Sed tio ĉi rilatis ankaŭ al ili, rekte. ĉar se patroj ne havos laboron … Kio tiam okazos?
 
 
-INFANOJ EN TORENTO
-
-
-Alda estis lavinta la vazaron post la vespermanĝo kaj ek-
-
-sidis en la interna ĉambro por legi la dimanĉan aldonon
+Alda estis lavinta la vazaron post la vespermanĝo kaj eksidis en la interna ĉambro por legi la dimanĉan aldonon
 
 de ilia gazeto. La patro kuŝis sur la sofo, fumis cigaredojn kaj
 
-ĝuis la enhavon de moderna poemaro. Tiam kaj tiam li rom-
-
-pis sian silentan legadon por deklami iun strofon al la edzino, kiu pretigis sin por iri al sia laboro en la popola parko.
+ĝuis la enhavon de moderna poemaro. Tiam kaj tiam li rompis sian silentan legadon por deklami iun strofon al la edzino, kiu pretigis sin por iri al sia laboro en la popola parko.
 
 —Kaj jen! ”Kaj la kupraj krioj de la ruĝaj standardoj flami-gas la sanktan malamon.” ĉu ne estas grandioze! Kupraj krioj de la ruĝaj standardoj. Kia potenca kaj imagodona esprimo!
 
@@ -2222,9 +1856,6 @@ poezio. Kial vi ne legis la artikolon en la lasta literatura revuo, kiel mi diri
 povas fari tion. Vi devas uzi vian tutan komprenpovon. Sed post nelonge tiuj esprimoj estos tute memkompreneblaj al la homoj, kiam la nova homo pli kaj pli efektiviĝos.
 
 Li parolis fajre kaj deklame kaj faris grandajn gestojn.
-
-
-INFANOJ EN TORENTO
 
 
 uste kiam li finis sian klarigon, sonis frapeto sur la kuireja pordo. Je lia enirpeto envenis la pentristino Kegel. Senaten-de ŝi trapasis la kuirejon kaj venis en alian ĉambron. ŝi estis iom malseka de la pluvo, la vento malordigis ŝiajn harojn, kaj ŝi aspektis pli ekzotika kaj brilokula ol ordinare.
@@ -2256,9 +1887,6 @@ La edzo subite levis la kapon, krucmetis la brakojn sur la bruston, kaj la musko
 komprenas, kio estas libero. Mi kredis, ke vi komprenas, sed mi jam rimarkis …
 
 
-INFANOJ EN TORENTO
-
-
 Jam fluis larmoj el la okuloj de la edzino, sed samtempe ŝia vizaĝo esprimis furiozon kaj akran malamon.
 
 —Jes, mi estas libera homo! Sed kio estas vi, fraŭlino Kegel? Aĉa loĝantino vi estas! ĉu mi ne vidis viajn okulkaresojn!
@@ -2286,9 +1914,6 @@ Kiam ŝi ne respondis, li turnis sian vizaĝon al fraŭlino Kegel kaj diris sole
 ĉiuj tri estis tiom regataj de siaj sentoj, ke ili tute forgesis Aldan, kiu sidis ŝtoniĝinte senmova kun la gazeto antaŭ si.
 
 ŝiaj lipoj estis forte kunpremitaj, la vizaĝo estis pala, kaj ŝiaj okuloj brilis kvazaŭ en freneziĝo.
-
-
-INFANOJ EN TORENTO
 
 
 Fraŭlino Kegel medite rigardis la repacigajn penojn de Alfredo. Fine ŝi malice ekridetis.
@@ -2320,15 +1945,9 @@ Alda levis la rigardojn al la patro. La sovaĝa esprimo malaperis el ŝiaj okulo
 —Vi estas ridindaj, ŝi diris.
 
 
-INFANOJ EN TORENTO
-
-
 —Bonege dirite, knabino, li diris entuziasme. Prava vi estas, prava. Lernu de niaj eraroj!
 
 Li ree ekkuŝis sur la sofo kaj denove dediĉis sin al la moderna poemaro.
-
-
-INFANOJ EN TORENTO
 
 
 Dum kelkaj semajnoj la laboristoj vivis en plena nescio pri la estonteco. Maltrankvile kaj sendecide ili iris tien kaj reen en siaj hejmoj aŭ sur la kortoj kaj stratoj, grumblis kaj blasfemis kaj ĉiutage centfoje remaĉis la samajn frazojn pri senlaboreco kaj mallumaj perspektivoj.
@@ -2341,15 +1960,7 @@ Estis klaraj sciigoj, sed ili ne indikis eĉ per unu vorto, kiel la laboristaj f
 
 La komunumo starigis Komisionon por senlaboreco. Post
 
-kelkaj monatoj la plej granda parto de la laboristoj estis disĵe-88
-
-INFANOJ EN TORENTO
-
-
-titaj al diversaj proksimaj kaj malproksimaj lokoj en la lando, kie okazis laboroj aranĝitaj de la ŝtato speciale por senlaboruloj. La ceteraj membroj de la familioj restis. Kelkaj malmultaj speciallaboristoj trovis okupon en alilokaj entreprenoj kaj forveturis kun siaj familioj. Sed al multaj proponis sin nenia okupo. Ili restis hejme kaj ricevis ioman subtenon de la komunumo.
-
-
-INFANOJ EN TORENTO
+kelkaj monatoj la plej granda parto de la laboristoj estis disĵetitaj al diversaj proksimaj kaj malproksimaj lokoj en la lando, kie okazis laboroj aranĝitaj de la ŝtato speciale por senlaboruloj. La ceteraj membroj de la familioj restis. Kelkaj malmultaj speciallaboristoj trovis okupon en alilokaj entreprenoj kaj forveturis kun siaj familioj. Sed al multaj proponis sin nenia okupo. Ili restis hejme kaj ricevis ioman subtenon de la komunumo.
 
 
 Iun posttagmezon post la senlaboriĝo Arne venis hejmen
@@ -2369,9 +1980,6 @@ Poste li metis tabureton antaŭ la seĝon, eksidis kaj per karbo desegnis la kon
 La patro ne estis hejme, kaj li ĝojis pro tio. La patro ordinare ne estis malafabla al li aŭ traktis lin malbone, sed li estis tre indiferenta al Arne, kvazaŭ ekzistus nenio komuna inter ili. Precipe kiam Arne okupis sin pri siaj desegnoj kaj akvareloj, lia rigardo kaj lia nura ĉeesto efikis al li kiel silenta kritiko.
 
 
-INFANOJ EN TORENTO
-
-
 Kiam li ankoraŭ laboris, tio ne ĝenis tre multe, ĉar la patro preskaŭ ĉiam dormis, kiam li ne estis en sia laboro. Nun estis pli ĝene. Li malofte eliris, li ne ŝatis interparoli kun kamaradoj, kiel faris la plej multaj aliaj laboristoj. En la hejmo li pasigis la tempon sidante tute senokupa sur la kuireja sofo aŭ kuŝante sur sia lito en la alia ĉambro. Li incitiĝis pro ba-gateloj, kiujn li antaŭe eĉ ne rimarkis, kaj ofte grumblis kaj insultis.
 
 La patrino sugestis, ke li alportu akvon kaj brullignon, por ke li havu almenaŭ iom da okupo por siaj manoj. Sed ankaŭ tiam li ekgrumblis.
@@ -2386,13 +1994,9 @@ Arne klarigis al li, kaj iom scivole li prenis kelkajn tubojn por rigardi ilin.
 
 —Sed tio ĉi kostis sufiĉe da mono, ĉu ne? Kiom vi pagis?
 
-Arne antaŭsentis la efikon, sed tamen diris la ĝustan su-
+Arne antaŭsentis la efikon, sed tamen diris la ĝustan sumon.
 
-mon.
-
-—Tiom? ĉu vi estas freneza? Pagi tiom da mono por sen-
-
-senca ludo! De kie vi ricevis la monon?
+—Tiom? ĉu vi estas freneza? Pagi tiom da mono por sensenca ludo! De kie vi ricevis la monon?
 
 Pri tio Arne sciigis pli firmtone, ĉar pro tio li ne povus ricevi riproĉojn.
 
@@ -2401,18 +2005,13 @@ Pri tio Arne sciigis pli firmtone, ĉar pro tio li ne povus ricevi riproĉojn.
 Li turnis sin al la edzino kaj seninterrompe daŭrigis:
 
 
-INFANOJ EN TORENTO
-
-
 —ĉu vi sciis pri tio antaŭe? Kial vi ne malpermesis tian
 
 stultaĵon?
 
 —Mi sciis. Sed li ja aĉetis por sia propra mono, kiun li mem akiris.
 
-—Mi ne parolas pri la deveno de la mono sed pri la elspe-
-
-zo. Estas blinda frenezo eldoni tiom da mono por ludiloj, kiam laboro ĉesis kaj neniu scias, kiam ĝi rekomenciĝos.
+—Mi ne parolas pri la deveno de la mono sed pri la elspezo. Estas blinda frenezo eldoni tiom da mono por ludiloj, kiam laboro ĉesis kaj neniu scias, kiam ĝi rekomenciĝos.
 
 —Sed estas ja la sola plezuro, por kiu li elspezas monon.
 
@@ -2431,9 +2030,6 @@ Kiam venis la sciigo pri definitiva haltigo de ĉiu laboro, fariĝis ankoraŭ pl
 laboro. Estus plej bone pendigi sin.
 
 
-INFANOJ EN TORENTO
-
-
 Tagon post tago li ripetis tiujn vortojn, kaj la edzino komencis timi, ke li freneziĝos.
 
 Kiam oni starigis Komisionon por senlaboreco li grumblis
@@ -2444,9 +2040,7 @@ ankaŭ pro tio.
 
 Tamen li iris por enlistigi sin inter laborserĉantoj kaj jam post kelkaj tagoj forveturis kun la unua grupo de laboristoj, kiu forlasis la hejmon.
 
-Kiam Arne venis hejmen de la lernejo en tiu tago, lia pa-
-
-trino aspektis kvazaŭ alia homo ol antaŭe. Estis io nekutime dolĉa kaj afabla en ŝiaj parolo kaj rigardo, kaj ŝia vizaĝo estis pli trankvila kaj kontenta, ol li iam antaŭe vidis. Eĉ sple-ciale bonan manĝaĵon ŝi preparis por li.
+Kiam Arne venis hejmen de la lernejo en tiu tago, lia patrino aspektis kvazaŭ alia homo ol antaŭe. Estis io nekutime dolĉa kaj afabla en ŝiaj parolo kaj rigardo, kaj ŝia vizaĝo estis pli trankvila kaj kontenta, ol li iam antaŭe vidis. Eĉ sple-ciale bonan manĝaĵon ŝi preparis por li.
 
 Post la manĝo li tuj iris al sia pentrado. Kontraŭkutime la patrino eksidis apud li, dum ŝi flikis vestaĵojn. Tiam kaj tiam ŝi levis la rigardojn de sia flikado kaj rigardis lin kaj lian laboron. Neordinara varma brilo radiis el ŝiaj okuloj.
 
@@ -2455,9 +2049,6 @@ Post la manĝo li tuj iris al sia pentrado. Kontraŭkutime la patrino eksidis ap
 ne multe parolis kun vi, ŝi diris, kiam ŝiaj manoj iom paŭzis.
 
 Pri via estonteco. Patro ne komprenas vin kaj viajn inklinojn, sed certe ni povos iel aranĝi por vi. Mi ne komprenas la pen-trajn aferojn kaj ne scias pri lernejoj, sed oni ja povos demandi homojn, kiuj scias.
-
-
-INFANOJ EN TORENTO
 
 
 Vintro venis kun neĝo kaj malvarmo. La infanoj elportis
@@ -2470,14 +2061,9 @@ Inter la konstruaĵoj, sur liberaj lokoj, sur vojoj kaj relvojoj estis sternita 
 
 Nur al la elektra stacio kondukis mallarĝa vojeto kun altaj neĝodeklivoj sur la flankoj.
 
-Nigraj kaj senvivaj fenestroj forte sed malgaje kontrastis kontraŭ la ĉirkaŭa blanko. Kelkiam ree ekvivis ilia malnova briloludo, kiam palaj vintraj sunradioj trabreĉis la inerte ku-
-
-ŝantajn nubojn. Sed baldaŭ ili estis same nigraj kaj malgajaj kiel antaŭe, kaj malantaŭ ili regis mallumo kaj sensona silento.
+Nigraj kaj senvivaj fenestroj forte sed malgaje kontrastis kontraŭ la ĉirkaŭa blanko. Kelkiam ree ekvivis ilia malnova briloludo, kiam palaj vintraj sunradioj trabreĉis la inerte kuŝantajn nubojn. Sed baldaŭ ili estis same nigraj kaj malgajaj kiel antaŭe, kaj malantaŭ ili regis mallumo kaj sensona silento.
 
 En la mallumaj vintrovesperoj la uzino kuŝis kiel urbo de mortintoj. Lampoj ne lumis tie, senvivaj kuŝis la fornoj, kies fajrobrilo iam ludis en la fulgokovritaj fenestroj, for estis la ruĝaj feraj serpentoj, kiuj senĉese kaj rapide movis sin tien kaj reen en la nigraj kavernoj de la lamenejo.
-
-
-INFANOJ EN TORENTO
 
 
 Sed cetere la katastrofo ne estis tiel frakasa kaj ĉiorenversa, kiel en la unua momento oni imagis. Tago post tago pasis, kaj oni kutimiĝis al la nova ordo. Oni zorge pripensis antaŭ ol elspezi la malmultajn monerojn, la ŝparmono iom
@@ -2491,9 +2077,6 @@ estis ricevita.
 Sed iel oni trapasis la malfacilaĵojn kaj eĉ povis ridi kaj ŝer-ci pri ili. En la kino oni prezentis filmon dufoje semajne, kaj almenaŭ unufoje en ĉiu semajno estis balo en la popola do-mo. Iel oni trovis monon ankaŭ por plezuroj kaj belaj vestoj, almenaŭ tiuj, kiuj plej multe deziris. Eble patrinoj kaj malgrandaj gefratoj devis rezigni diversajn aferojn, eble la gejunuloj mem rezignis pli necesajn aferojn. Sed ĉu estus eble vivi tute sen amuziĝo en tia senfina tempo de nenifaro?
 
 
-INFANOJ EN TORENTO
-
-
 Printempo venis kaj neĝo degelis. Sur la nigra tero inter-ne kaj ekstere de la industrieja barilo brilis la kapetoj de sunflavaj tusilagoj. Alnoj kaj salikoj vestis sin per delikata vualo el graciaj florpendaĵoj. Freŝe verdaj staris junaj herboj inter fulgokovrita rubaĵo kaj rustobruna fero.
 
 Iun posttagmezon, kiam la infanoj vagis laŭ la rivero, ili eksentis deziron rigardi, kiel aspektas interne en la mortinta urbo de laboro. ĉiuj pordoj krom tiu apud la elektra stacio estis ŝlositaj, kaj oni ne rajtis eniri. Tial ili provis trovi alian enirejon.
@@ -2503,9 +2086,6 @@ Sur la suda flanko de la barilo estis tre densa arbareto el junaj alnoj kaj sali
 Ankaŭ sur la interna flanko estis vasta densejo el padusoj, alnoj kaj aliaj arboj, kiuj kreskis sur dikaj tavoloj de malnova, altforna skorio. Ili trovis malnovan, antaŭ longe forlasitan relvojon kaj sekvis ĝin, ĝis ili venis al altforno.
 
 La pordoj estis fermitaj sed ne ŝlositaj, kaj ili povis senpe-ne eniri. En la vasta interno regis krepusko, ĉar la malmultaj fenestroj estis kovritaj de dika tavolo de fulgo. En tiu krepusko staris la fornegoj kun feraj zonoj ĉirkaŭ siaj brikaj ventroj, kiel misteraj kaj gigantaj monstroj, dormantaj en la silento de sia malluma loĝejo.
-
-
-INFANOJ EN TORENTO
 
 
 La vasta spaco, la silento kaj la mallumo vekis en ili solenan senton, kaj dum tempeto ili restis senmovaj, dum iliaj rigardoj vagis tien kaj reen. Arne estis la unua, kiu diris ion.
@@ -2534,9 +2114,7 @@ Johano ekridis.
 
 La instruistino turnis sin, sed ne komprenis la aferon. Eble ŝi kredis, ke pri ŝi oni ridas, ĉar ŝi ŝajnis ofendita kaj tuj foriris kun ni.
 
-Ili pluiris, vizitis la ŝtalfarejon, la rostfornojn, la lamenejon, 97
-
-INFANOJ EN TORENTO
+Ili pluiris, vizitis la ŝtalfarejon, la rostfornojn, la lamenejon,
 
 
 la muldejon, la grandegajn karbmagazenojn kaj aliajn lokojn, kies nomojn ili ne sciis. Ili kuris supren kaj malsupren sur krutaj ŝtuparoj, kaŝludis en mallumaj lokoj kaj vetgrimpis sur piramidoj de ferŝtono kaj kalko.
@@ -2547,9 +2125,7 @@ atentis pri la aferoj, kiuj interesis lin, la knabinoj babilis inter si, kaj Joh
 
 Fininte sian rondiron ili venis al la malsupra parto de la industriejo. Estis proksime al la elektra stacio. Tie kuŝis ankoraŭ amasoj da fero ambaŭflanke de la relvojoj, kaj ili povis facile ŝteliri inter ili.
 
-Johano haltis kaj eksidis sur plata ŝarĝvagoneto, kiu an-
-
-koraŭ staris tie, same kiel oni iam lasis ĝin. Enpense li rigardis al la aliaj kaj diris:
+Johano haltis kaj eksidis sur plata ŝarĝvagoneto, kiu ankoraŭ staris tie, same kiel oni iam lasis ĝin. Enpense li rigardis al la aliaj kaj diris:
 
 —Kio el ni fariĝos?
 
@@ -2559,9 +2135,7 @@ koraŭ staris tie, same kiel oni iam lasis ĝin. Enpense li rigardis al la aliaj
 
 Ajna gaje ekridis.
 
-—Kiajn zorgojn vi faras al vi! Kvazaŭ vi jam estus plen-
-
-kreskulo. Estu kontenta, ke vi ne bezonas labori.
+—Kiajn zorgojn vi faras al vi! Kvazaŭ vi jam estus plenkreskulo. Estu kontenta, ke vi ne bezonas labori.
 
 —Sed mi volus labori por fariĝi memstara. Mi ne volas
 
@@ -2569,9 +2143,7 @@ dependi de aliaj homoj.
 
 —Nu, vi ja povas iom atendi. Post tri, kvar jaroj.
 
-—Oni ja diras, ke eble neniam plu estos laboro tie ĉi. Kaj 98
-
-INFANOJ EN TORENTO
+—Oni ja diras, ke eble neniam plu estos laboro tie ĉi. Kaj
 
 
 en aliaj lokoj ankaŭ ne ekzistas laboro. Kaj oni ne scias, kiam estos. Sed kio fariĝos el ni, se laboro ne estos?
@@ -2601,9 +2173,6 @@ La melankolia rideto restis sur ŝiaj lipoj, kaj ŝiaj okuloj rigardis lin inten
 Subite interrompis ilin basa voĉo, kiu venis el la direkto, kie estis la elektra stacio.
 
 
-INFANOJ EN TORENTO
-
-
 —Kion vi faras tie ĉi, bubaĉoj?
 
 Antaŭ ol ili trovis tempon por forkuri, Alekso subite aperis tute apude. Tiam ĉiuj kvar ekridis renkonte al li kaj trankvile restis. Li rigardis ilnsternite, kvazaŭ suspekte, sed poste ankaŭ li ekridis.
@@ -2622,13 +2191,9 @@ lastfoje. Mi pensis, ke estas bubaĉoj, kiuj serĉas metalon por vendo. Kelkafoj
 
 Ni ne povas toleri, ke oni lasas konstruaĵojn kaj utilajn maŝinojn kaj objektojn en tia stato. Estas krimo kontraŭ honestaj homoj. Johano venis serĉi laboron, sed li neniel povas trovi.
 
-Neniun ni renkontis, nur la kolomboj restas en siaj ordinaraj lokoj. uste kiam vi alvenis, ni decidis sendi skribon al la aŭ-
+Neniun ni renkontis, nur la kolomboj restas en siaj ordinaraj lokoj. uste kiam vi alvenis, ni decidis sendi skribon al la aŭtoritatoj, por ke ili informu nin, kion oni intencas por ni. Ni ne ŝatas fariĝi viktimoj de la stultaĵoj de la plenkreskuloj.
 
-toritatoj, por ke ili informu nin, kion oni intencas por ni. Ni ne ŝatas fariĝi viktimoj de la stultaĵoj de la plenkreskuloj.
-
-—Bone dirite, ruĝulino. Konservu tiun humoron! ĉu vi ŝa-
-
-tus rigardi miajn florojn?
+—Bone dirite, ruĝulino. Konservu tiun humoron! ĉu vi ŝatus rigardi miajn florojn?
 
 —Viajn florojn? Kie?
 
@@ -2636,11 +2201,7 @@ tus rigardi miajn florojn?
 
 Ili sekvis lin. Post kelkaj paŝoj ili staris ĉe la suda longmuro de la brika domo.
 
-—Jen estas mia ĝardeno, diris Alekso kaj montris al ne-
-
-larĝa, bele aranĝita bedo laŭ la tuta longo de la domo. Mi ĵus 100
-
-INFANOJ EN TORENTO
+—Jen estas mia ĝardeno, diris Alekso kaj montris al nelarĝa, bele aranĝita bedo laŭ la tuta longo de la domo. Mi ĵus
 
 
 semis. is nun montris sin nur la ŝpinaco, sed la floroj baldaŭ venos. Revenu en la somero, kiam floros odorlatiroj kaj rezedoj!
@@ -2672,9 +2233,6 @@ iom da furaĝo por la cerbo.
 —Sed kie estas Adolfo? Johano demandis.
 
 
-INFANOJ EN TORENTO
-
-
 —Adolfo estis metallaboristo. Li senlaboriĝis kaj forvojaĝis al iu loko de subtenlaboro kune kun aliaj. Nun ni sendas la elektran forton al alia loko, kie oni ankoraŭ bezonas ĝin por industrio, kaj tial ni tri povas resti.
 
 —ĉu vi ankoraŭ vizitas la lagon por fiŝi?
@@ -2690,14 +2248,9 @@ post la forveturo de Adolfo mi ĉiam iris sola. Eble iu el vi ŝatus akompani mi
 Nu, ni vidos.
 
 
-INFANOJ EN TORENTO
-
-
 La ĉambro de la sesa klaso estis ornamita per floroj kaj junaj betuloj. Sur unu el la du grandaj nigraj tabuloj brilis kolororiĉaj flordesegnoj, kaj sur la muroj estis fiksitaj la desegnoj de la infanoj. La tridek sep infanoj sidis belvestitaj kaj kun solenaj mienoj en siaj benkoj, kaj ĉirkaŭe estis benkoj kaj seĝoj, kie sidis gepatroj kaj aliaj aŭskultantoj.
 
-La infanoj rapide kaj senerare respondis la solentonajn demandojn de la instruisto, kiel en ĉiuj ekzamenoj, kaj verve solvis la kalkultaskojn sur la nigra tabulo. La vizaĝoj de la patrinoj portis esprimon de sentimentala kortuŝo. Sub la in-fluo de la solena atmosfero iliaj sentoj kaj pensoj koncentri-
-
-ĝis ĉirkaŭ la infanoj, kaj ili vidis sian interrilaton al ili tute alie ol dum la ĉiutaga vivo.
+La infanoj rapide kaj senerare respondis la solentonajn demandojn de la instruisto, kiel en ĉiuj ekzamenoj, kaj verve solvis la kalkultaskojn sur la nigra tabulo. La vizaĝoj de la patrinoj portis esprimon de sentimentala kortuŝo. Sub la in-fluo de la solena atmosfero iliaj sentoj kaj pensoj koncentriĝis ĉirkaŭ la infanoj, kaj ili vidis sian interrilaton al ili tute alie ol dum la ĉiutaga vivo.
 
 Post la lecionoj ĉiuj klasoj kolektiĝis en la granda salono, kie okazis la matenaj preĝoj. Dum kvaronhoro estis kantado de la infanoj. Poste la pastro, kiu estis ekzamena kontrolan-to, suriris la podion kaj finis la ekzamenon per parolado. Li dankis la geinstruistojn por sinofera kaj devofidela laboro kaj la gepatrojn pro ilia solidareco kun la lernejo en instruado kaj edukado. Poste li turnis sin speciale al la lasta klaso.
 
@@ -2706,25 +2259,17 @@ Post la lecionoj ĉiuj klasoj kolektiĝis en la granda salono, kie okazis la mat
 ĝojas, ke via lernotempo estas finita. Lernado signifas pena-don kaj laboron. Tial ni ne ĉiam ŝatas ĝin tiel, kiel ni vere devus. Sed iom post iom oni komprenas ĝian valoron. Tiam
 
 
-INFANOJ EN TORENTO
-
-
 oni komprenas ankaŭ ke la penado havis profundan signifon.
 
 Mi estas plene konvinkita, ke ankaŭ vi spertos tion.
 
 Proverbo diras, ke ni lernas ne por la lernejo sed por la vivo. Tio estas vera. Ni lernas por fariĝi bonaj kaj taŭgaj homoj. Esti bona kaj taŭga estas io esenca en la vivo. uste pro tio ni havas lernejojn, kie la geinstruistoj instruas la infanojn pri multaj utilaj aferoj kaj antaŭ ĉio pri tio, ke ili fariĝu bonaj homoj, kiuj resplektas la ordonojn de Dio kaj amas siajn kun-homojn. uste pro tio viaj gepatroj instruis vin pri bona konduto kaj bona moro. Kaj la plej bona instruo tiurilate estas la sinofera amo de viaj gepatroj, iliaj ĉiamaj zorgoj kaj penadoj por viaj bonfarto kaj feliĉo. Pensu pri tio! Grandan dankon vi ŝuldas al viaj gepatroj kaj geinstruistoj.
 
-Ni vivas en malluma kaj malfacila tempo. Kiam vi nun for-
-
-lasas la lernejon por iom post iom eniri en la mondon de la plenkreskuloj, via vojo eble ne estos facila. Laboro mankas tie ĉi kiel en la plej multaj lokoj en nia lando kaj en la tuta mondo. Egoismo kaj plezuravido regas la homojn. Atendas vin
+Ni vivas en malluma kaj malfacila tempo. Kiam vi nun forlasas la lernejon por iom post iom eniri en la mondon de la plenkreskuloj, via vojo eble ne estos facila. Laboro mankas tie ĉi kiel en la plej multaj lokoj en nia lando kaj en la tuta mondo. Egoismo kaj plezuravido regas la homojn. Atendas vin
 
 malfacilaĵoj, kaj atendas vin tentoj.
 
 Eble vi demandas, kiel vi venku la malfacilaĵojn, kiel vi kontraŭstaru la tentojn. Kaj mi respondas al vi : konservu en via memoro la bonajn kaj valorajn instruojn, kiujn vi ricevis en viaj hejmoj kaj en la lernejo. Praktiku tiun instruon en via vivo. uste tio estas la senco kaj celo de via lernado.
-
-
-INFANOJ EN TORENTO
 
 
 En dimanĉo kelkajn tagojn post la ekzameno la onklo de
@@ -2747,12 +2292,7 @@ Poste ili lasis tiun temon. La patrino preparis manĝaĵon, kaj post la manĝo l
 
 —Nu, nu, parolu, diris la onklo kaj rigardis ŝin iom mire pro tia etiketa alparolo. — Aŭ ĉu vi volas diri, ke vi deziras paroli kun mi sen ĉeesto de la infanoj?
 
-—Ne, ne estas sekretoj. Vi ja vidis la desegnojn de Arne kaj ankaŭ lian ateston. La knabo fakte havas neordinaran talen-105
-
-INFANOJ EN TORENTO
-
-
-ton por tiaj aferoj. Por aliaj lernobjektoj li neniel havis la saman intereson. Li diligente lernis kaj preterlasis nenion, sed kiel dirite, specialan intereson por ili li ne havas.
+—Ne, ne estas sekretoj. Vi ja vidis la desegnojn de Arne kaj ankaŭ lian ateston. La knabo fakte havas neordinaran talenton por tiaj aferoj. Por aliaj lernobjektoj li neniel havis la saman intereson. Li diligente lernis kaj preterlasis nenion, sed kiel dirite, specialan intereson por ili li ne havas.
 
 Kiaj tial mi pensas, ke oni devus iel helpi la knabon, por ke li povu lerni pli multe en tiu speciala fako. Tion diris ankaŭ lia instruisto kaj ĉiuj, kiuj vidis liajn desegnojn. Estas ja ankoraŭ tro frue pensi pri iu speciala lernejo, sed li mem parolis pri koresponda kurso. Mi pensas, ke tia kurso estus bona por li. Li tre diligente laboras, jes, fakte, mi devas diri, laboras, sed kompreneble instruo tamen estas necesa. Tial mi … volus vin demandi, ĉu vi povus lin iom helpi. Estas hontinde peti, sed tio estas ja la sola, kion mi povas por li fari.
 
@@ -2773,9 +2313,6 @@ povus al vi havigi tiom da mono, se temus pri io absolute necesa. Sed kiam temas
 —Ne, ne, mi vin plene komprenas. Verdire, estis stulte demandi.
 
 
-INFANOJ EN TORENTO
-
-
 —Tute ne. Se mi povus, kun ĝojo mi donus. Kion vi diras
 
 mem, knabo?
@@ -2792,17 +2329,10 @@ Post lia foriro la patrino ŝajnis malgaja pro la malsukceso, kaj Arne provis ŝ
 
 —Ne malĝoju pro tio, patrino! Ni ja havas tempon, kaj cer-te mi iel sukcesos perlabori iom da mono. Vi ja memoras, en la pasinta aŭtuno mi akiris monon per kankrokaptado.
 
-—Nu ja. Mi pensas pri onklo. Li tamen havas kelkmil kro-
-
-nojn en la banko. Malgraŭ tio li povas esti prava en sia rezonado, oni devas atenti pri la ekonomio en la nuna tempo. Sed tamen …
+—Nu ja. Mi pensas pri onklo. Li tamen havas kelkmil kronojn en la banko. Malgraŭ tio li povas esti prava en sia rezonado, oni devas atenti pri la ekonomio en la nuna tempo. Sed tamen …
 
 
-INFANOJ EN TORENTO
-
-
-Preskaŭ ĉiutage Arne iris al la uzino por fari desegnojn aŭ pentri. Alekso je propra respondeco permesis al li laŭ-
-
-plaĉe ĉirkaŭvagi tie, kaj ankaŭ la aliaj maŝinistoj lasis lin sen-
+Preskaŭ ĉiutage Arne iris al la uzino por fari desegnojn aŭ pentri. Alekso je propra respondeco permesis al li laŭplaĉe ĉirkaŭvagi tie, kaj ankaŭ la aliaj maŝinistoj lasis lin sen-
 
 ĝene eniri, kiam Alekso klarigis al ili la aferon.
 
@@ -2825,12 +2355,7 @@ la muro de la stacio. Dum la babilo Alekso interalie diris:
 —Se vi efektive volas vin dediĉi al desegnado kaj pentrado, estus bone se vi povus ricevi iom da instruo. Sed tie ĉi ekzistas ja neniu, kiu komprenas tiajn aferojn.
 
 
-INFANOJ EN TORENTO
-
-
-—Tio ne gravas, mi tamen povus studi. Ekzistas ja kores-
-
-pondaj kursoj, sed …
+—Tio ne gravas, mi tamen povus studi. Ekzistas ja korespondaj kursoj, sed …
 
 —Jes ja, bona ideo. Mi mem studis tiajn kursojn, en aliaj fakoj kompreneble. Ili estas bonegaj.
 
@@ -2859,9 +2384,6 @@ Ree li levis sin kaj dum longa tempo paŝis tien kaj reen, tiam kaj tiam ĵetant
 Post kelkaj tagoj Arne ricevis presaĵon kun la du unuaj leteroj de desegna kurso de iu koresponda instituto. in akompanis letero, en kiu oni skribis, ke iu sinjoro, kiu deziras esti nekonata, pagis la kurson.
 
 
-INFANOJ EN TORENTO
-
-
 La patrino estis ravita.
 
 —Sed kiu faris tion? Apenaŭ via onklo. Mi pensas, ke estas la instruisto.
@@ -2885,12 +2407,7 @@ Alekso ridetis.
 Kiam mi povos pli bone, vi ricevos alian.
 
 
-INFANOJ EN TORENTO
-
-
-Kelkafoje Ajna akompanis Arnen al la uzino. ŝi malmul-
-
-te laboris hejme, ĉar la avino kaj la patrino prizorgis preskaŭ ĉion. Tial ŝi povis pasigi siajn tagojn laŭplaĉe.
+Kelkafoje Ajna akompanis Arnen al la uzino. ŝi malmulte laboris hejme, ĉar la avino kaj la patrino prizorgis preskaŭ ĉion. Tial ŝi povis pasigi siajn tagojn laŭplaĉe.
 
 Ordinare ŝi malmulte parolis. Plej ofte ŝi sidis silenta, kaj rigardis lian laboradon kun reva mieno. Foje ŝi ŝajne forgesis ĉion ĉirkaŭ si. La rigardo fariĝis melankolia kaj plena de sopiro.
 
@@ -2921,9 +2438,6 @@ pensis, ke tuj kiam mi havos forton, mi laboros por patrino kaj avino. Mi tre ĝ
 ŝi eksilentis, sed poste aldonis:
 
 
-INFANOJ EN TORENTO
-
-
 —ĉu vi memoras pri tio? Pri tiu mateno, kiam mi venis al
 
 la tendo … ?
@@ -2941,12 +2455,7 @@ paroli, li aldonis:
 —Jes. Sed estas io alia. Antaŭ ol patro venis, mi ĉiam estis feliĉa. Sed eble estas tiel por la plej multaj. Kiam oni estas malgranda, oni povas bele revi kaj estas feliĉa, poste oni ne scias kion fari.
 
 
-INFANOJ EN TORENTO
-
-
-Johano pasigis multan tempon per fiŝado. Alekso perme-
-
-sis al li uzi la boaton en la lago, kie ili kaptis kankrojn, kaj kiam li deziris, li povis uzi ankaŭ la retojn kaj aliajn fiŝilojn de Alekso. Kelkafoje ili iris kune por fiŝi, sed plej ofte Alda akompanis Johanon. La homoj iom ridetis pri ili, kaj kiam la mal-junulinoj vidis ilin foriri aŭ reveni, ili skuis siajn kapojn.
+Johano pasigis multan tempon per fiŝado. Alekso permesis al li uzi la boaton en la lago, kie ili kaptis kankrojn, kaj kiam li deziris, li povis uzi ankaŭ la retojn kaj aliajn fiŝilojn de Alekso. Kelkafoje ili iris kune por fiŝi, sed plej ofte Alda akompanis Johanon. La homoj iom ridetis pri ili, kaj kiam la mal-junulinoj vidis ilin foriri aŭ reveni, ili skuis siajn kapojn.
 
 —Estas stranga tempo! ili diris.
 
@@ -2971,22 +2480,13 @@ Ankaŭ pri tio la homoj moketis.
 —Nu, miaj propraj infanoj jam forlasis min, kaj estas agrable kun akompano. Cetere …
 
 
-INFANOJ EN TORENTO
-
-
 ŝajnis, ke li havas emon diri ion pikan, sed li lasis tion kaj pluiris.
 
-Ili elmetis retojn aŭ hokarfadenon kaj cetere fiŝis per fiŝ-
+Ili elmetis retojn aŭ hokarfadenon kaj cetere fiŝis per fiŝvergoj. Kiam noktiĝis, ili remis al la bordo por ripozi dum kelkaj horoj. Baldaŭ fajro ekflamis en la hela, silenta nokto, kaj ili eksidis ĉirkaŭ ĝi kaj malfermis siajn dorsosakojn.
 
-vergoj. Kiam noktiĝis, ili remis al la bordo por ripozi dum kelkaj horoj. Baldaŭ fajro ekflamis en la hela, silenta nokto, kaj ili eksidis ĉirkaŭ ĝi kaj malfermis siajn dorsosakojn.
+Estis mirindaj horoj. ĉiutageco kaj ĉiutagaĵoj estis malproksime. ĉio estis nova, freŝa kaj plenviva kiel en la komenco de la mondo.
 
-Estis mirindaj horoj. ĉiutageco kaj ĉiutagaĵoj estis mal-
-
-proksime. ĉio estis nova, freŝa kaj plenviva kiel en la komenco de la mondo.
-
-La plej agrabla estis, ke Alekso neniam kondutis kiel plena-
-
-ĝa protektanto. Li ĉiam estis unu el ili, kiel kamarado. Kiam li kuŝis apud la fajro kaj rigardis la infanojn, li foje demandis sin, kiuj pensoj movas sin en iliaj junaj kapoj, sed li neniam montris tion. Ne esplorema scivolo kaŭzis tiun demandon,
+La plej agrabla estis, ke Alekso neniam kondutis kiel plenaĝa protektanto. Li ĉiam estis unu el ili, kiel kamarado. Kiam li kuŝis apud la fajro kaj rigardis la infanojn, li foje demandis sin, kiuj pensoj movas sin en iliaj junaj kapoj, sed li neniam montris tion. Ne esplorema scivolo kaŭzis tiun demandon,
 
 estis nura deziro al interkompreniĝo kaj intimeco.
 
@@ -3000,9 +2500,7 @@ Ordinare li malmulte parolis pri si mem kaj siaj travivaĵoj.
 
 Sed okaze ilia interbabilo instigis lin rakonti ion pri siaj vago-jaroj en junaĝo, pri surmara vivo kaj fremdaj urboj, pri grandaj laboroj en novaj lokoj, pri penado kaj aspiroj de la unuaj, kalmanaj adeptoj de la nova socia evangelio.
 
-—Vi estas feliĉa, diris Ajna. Vi multe vagis en la mondo, 114
-
-INFANOJ EN TORENTO
+—Vi estas feliĉa, diris Ajna. Vi multe vagis en la mondo,
 
 
 multe vidis kaj multe travivis. Ho, se mi nur povus forveturi …
@@ -3015,14 +2513,9 @@ multe vidis kaj multe travivis. Ho, se mi nur povus forveturi …
 
 —Mi volus trovi ion interesan, ion por fari.
 
-—Vi estas stultega romantikulino! Alda eksplode interrom-
-
-pis. Vi volus trovi ion por fari? Imagu! Kvazaŭ la mondo estus paradizo, kie la homoj enuegus pro tro multa feliĉo. Ekzistas ja senfine da farendaj aferoj. Kaj vi diras, ke vi ne scias kion fari. Estas hontinde! ĉu vi ne konsentas, Alekso?
+—Vi estas stultega romantikulino! Alda eksplode interrompis. Vi volus trovi ion por fari? Imagu! Kvazaŭ la mondo estus paradizo, kie la homoj enuegus pro tro multa feliĉo. Ekzistas ja senfine da farendaj aferoj. Kaj vi diras, ke vi ne scias kion fari. Estas hontinde! ĉu vi ne konsentas, Alekso?
 
 —Jes, mi konsentas. Certe ekzistas multaj taskoj por vi, se vi nur havas emon fari ion. Sed verŝajne Ajna ne komprenas tion tute klare. Vi ja povos ŝin instrui iomete.
-
-
-INFANOJ EN TORENTO
 
 
 Estis frua antaŭtagmezo en la fino de marto. Alda jam
@@ -3041,18 +2534,13 @@ Kiam ŝi staris tie, Johano envenis sur la korton.
 
 —Jes. ĉu vi ne havas tempon ankoraŭ?
 
-—Mi havas. Sed mi pensis, ke vi venos nur post kelkaj ho-
-
-roj.
+—Mi havas. Sed mi pensis, ke vi venos nur post kelkaj horoj.
 
 Li eniris kaj venis la ŝi en la internan ĉambron.
 
 —Jen la poŝto de hieraŭ, ŝi diris gaje kaj etendis al li du leterojn. Fine venis respondo el Japanio. Pasis jam kvin semajnoj, de kiam mi skribis tien. Estis iom post la fino de la komenca kurso. La alia estas el Leningrado, de juna laboristino.
 
 ŝi rakontas pri sia laboro kaj pri la vivo de la laboristoj. Tre interese. ĉu vi ne volas legi?
-
-
-INFANOJ EN TORENTO
 
 
 Li prenis la leterojn kaj rigardis la kunsenditajn fotojn, sed lia intereso por ŝiaj esperantaj leteroj ŝajnis malpli granda ol ordinare. Kiam ŝi faris sian demandon, li ĵetis al ŝi rapidan rigardon kaj poste komencis legi. Tiam kaj tiam li faris rimar-kigon, sed la tono perfidis, ke liaj pensoj okupas sin pri io alia.
@@ -3073,9 +2561,7 @@ Li rigardis ŝin medite, kaj liaj okuloj estis malgajaj.
 
 Li sendis esploran rigardon al la kuirejo kaj poste diris:
 
-—Ni parolu en nia nova lingvo. Estas malagrable … Frati-
-
-no naskis infanon …
+—Ni parolu en nia nova lingvo. Estas malagrable … Fratino naskis infanon …
 
 La vortoj venis malrapide kaj unutone kiel falantaj gutoj.
 
@@ -3089,11 +2575,7 @@ Je la unua rompiĝeto li estas preta salti for de la danĝera loko.
 
 ŝi kapklinetis kaj restis silenta.
 
-—Jes … vi komprenas … Venis ankaŭ tio. Eriko ankoraŭ si-
-
-das en malliberejo pro tio, ke li faris brandon, vi ja scias. Kaj kiam li liberiĝos, li tamen ne povos helpi, cetere li verŝajne ne havus emon. Aŭ li restos hejme, senlabora, aŭ li ricevos subtenlaboron en iu loko. Ejnar ricevis subtenlaboron antaŭ du 117
-
-INFANOJ EN TORENTO
+—Jes … vi komprenas … Venis ankaŭ tio. Eriko ankoraŭ sidas en malliberejo pro tio, ke li faris brandon, vi ja scias. Kaj kiam li liberiĝos, li tamen ne povos helpi, cetere li verŝajne ne havus emon. Aŭ li restos hejme, senlabora, aŭ li ricevos subtenlaboron en iu loko. Ejnar ricevis subtenlaboron antaŭ du
 
 
 semajnoj, sed lia salajro estas malalta, kaj li ne povas sendi ion al patrino. Kaj se li povus, li tamen ne farus. Patrino ricevos laboron nur en majo, sed ankaŭ ŝia salajro estas tre malalta. Sed eble mi nun povos labori anstataŭ ŝi. Mi demandos pri tio.
@@ -3130,12 +2612,7 @@ neniam povis. ĉiam estis malagrable, pli kaj pli. Se mi nur estus iom pli aĝa!
 
 —Kion vi tiam faros?
 
-—Mi ne scias. Mi jam estas sufiĉe aĝa por labori. Kiam an-118
-
-INFANOJ EN TORENTO
-
-
-koraŭ ekzistis laboro, la plej multaj knaboj komencis, kiam ili finis la lernejon. Sed nun ne ekzistas laboro. Kaj mi devas atendi kelkajn jarojn, antaŭ ol mi povos ricevi subtenlaboron.
+—Mi ne scias. Mi jam estas sufiĉe aĝa por labori. Kiam ankoraŭ ekzistis laboro, la plej multaj knaboj komencis, kiam ili finis la lernejon. Sed nun ne ekzistas laboro. Kaj mi devas atendi kelkajn jarojn, antaŭ ol mi povos ricevi subtenlaboron.
 
 Tamen mi kredas, ke mi iel trovos ian. Devas trovi. Sed mi ne pensis ĝuste pri tio …
 
@@ -3152,9 +2629,6 @@ Subite ŝi prenis lian manon kaj ĝin forte premis.
 —Ni estu amikoj, Johano! Ni devas helpi unu la alian, kiam estas malfacile. Sed nun ni devas komenci la ripetadon.
 
 
-INFANOJ EN TORENTO
-
-
 En la fer-monta regiono oni ankoraŭ, kiel en pasintaj tempoj, salutas la printempon per grandaj fajroj. Tio okazas en la lasta vespero de aprilo.
 
 Kiam ili iris hejmen de esperanta kunveno, ili priparolis kiel ili pasigu tiun vesperon. En la popola domo oni montros gajan filmon, kaj poste estos artfajraĵo kaj danco. En la proksima kamparo la gejunuloj havos grandajn fajrojn en diversaj lokoj.
@@ -3167,18 +2641,14 @@ La aliaj tuj aprobis, kaj frue en la posta vespero ili estis pretaj por foriri. 
 
 —Nu, faru do laŭ via volo, li diris en iom malkontenta
 
-tono. Mi ne volas al vi malpermesi. Sed fakte ne estus surprizo, se la homoj komencus pri vi babilaĉi. Vi jam estas tiom aĝa, ke vi ne devus ĉirkaŭkuri tiamaniere. Mi ja scias, ke viaj gekamaradoj estas bonaj, sed ĉu mi scias, kiujn aliajn vi eble 120
-
-INFANOJ EN TORENTO
+tono. Mi ne volas al vi malpermesi. Sed fakte ne estus surprizo, se la homoj komencus pri vi babilaĉi. Vi jam estas tiom aĝa, ke vi ne devus ĉirkaŭkuri tiamaniere. Mi ja scias, ke viaj gekamaradoj estas bonaj, sed ĉu mi scias, kiujn aliajn vi eble
 
 
 renkontos? Kaj vere estus bela afero, se la homoj komencus fari pri vi historiojn. Tamen, vi iru … tiun ĉi fojon.
 
 Li fermis la pordon, kaj ili foriris. La admono malagrable impresis al la aliaj kaj ili iris silentaj dum kelka tempo. Sed al Ajna ĝi ŝajne neniel efikis. ŝi estis tre gaja kaj rakontis al la aliaj pri siaj leteramikoj en Estonio kaj Germanio.
 
-—ĉu via patro malŝatas, ke vi venas kun ni? Alda interom-
-
-pis ŝian babileton.
+—ĉu via patro malŝatas, ke vi venas kun ni? Alda interompis ŝian babileton.
 
 —Li ne malŝatas, ke mi iras kun vi, pri vi ĉiuj li neniam diris ion malbonan. Sed patro komencas fariĝi stulta. Jen, li diras, ke nun mi ne estas malgranda knabino plu kaj ne devas ĉir-kaŭkuri kiel knabo. Li timas, ke mi kuros al junuloj kaj fariĝos tia, kia li mem estis, kiam li estis juna.
 
@@ -3202,9 +2672,7 @@ nun mi faros, kiel mi mem volas.
 
 Jam ekzistas tiaj. Do ankaŭ mi povos fariĝi.
 
-—Tiam via patro ankoraŭ pli timos, diris Johano. Vi ja memoras, kiel la junulinoj postkuris la eksterlandan instruiston, 121
-
-INFANOJ EN TORENTO
+—Tiam via patro ankoraŭ pli timos, diris Johano. Vi ja memoras, kiel la junulinoj postkuris la eksterlandan instruiston,
 
 
 kiu instruis tie ĉi. Same la junuloj postkuros vin, kiam vi venos al eksterlando.
@@ -3223,9 +2691,7 @@ La vortoj de Ajna estis tiel firmtonaj, ke ili ne povis dubi, ke ŝi vere intenc
 
 —Povos, povus. Eble. Sed tio ne estas laŭ mia gusto.
 
-Veninte sur la monton ili tuj komencis kolekti sekajn bran-
-
-ĉojn kaj erikajn arbustetojn por la fajro.
+Veninte sur la monton ili tuj komencis kolekti sekajn branĉojn kaj erikajn arbustetojn por la fajro.
 
 La suno jam antaŭ longe subiris, kiam ili finis sian laboron.
 
@@ -3239,12 +2705,7 @@ Johano bruligis la branĉamason. La fajro rapide kaptis la sekan lignon, kaj gra
 
 Antaŭ la alveno ili ĝojis pro la plezuro, kiun la fajro donos al ili. En pasintaj printempoj ili estis ĉe fajroj en la valo. Estis ludo tie kaj gajaj krioj el plenaj gorĝoj.
 
-Sed nun ili ne sentis tiun plezuron. Ili staris silentaj, rigar-122
-
-INFANOJ EN TORENTO
-
-
-dante la ludon de la flamoj kaj la seriozajn vizaĝojn unu de la aliaj.
+Sed nun ili ne sentis tiun plezuron. Ili staris silentaj, rigardante la ludon de la flamoj kaj la seriozajn vizaĝojn unu de la aliaj.
 
 Ia animprema sento kaptis ilin ĉiujn. La soleco de la loko kaj la nokto ektuŝis ion en iliaj internoj, kio jam ekzistis tie, sed pri kio ili antaŭe ne estis konsciaj. ĉiu el ili sentis tiun preman doloron en la propra animo, sed samtempe ĉiu tute kla-re sentis, kio moviĝas en la interno de la aliaj.
 
@@ -3254,9 +2715,7 @@ Ili turnis sin for de la flametantaj branĉetoj kaj rigardis al la valo. La flam
 
 Sur la fundo de la valo kuŝis Torento. Tie kaj tie briletis kelkaj lampoj, sed cetere la loko estis apenaŭ distingebla. Ili rigardis tien, longe, silente.
 
-Subite ili turnis sin unu al la alia, kvazaŭ timante kaj ser-
-
-ĉante helpon. Spontanee ili prenis la manon unu de la alia.
+Subite ili turnis sin unu al la alia, kvazaŭ timante kaj serĉante helpon. Spontanee ili prenis la manon unu de la alia.
 
 ĉiu vidis sian propran senton respegulita sur la vizaĝoj de la aliaj, sentis, kvazaŭ ĝi trafluus kiel mistera forto, de mano al mano, de animo al animo.
 
@@ -3267,18 +2726,13 @@ Neniu respondis, sed la manoj pli forte premis unu la alian.
 La sento de soleco por momento ekskuis ilin, kiel frakasa on-do skuas la ŝipon sur la maro. Sed samtempe la skuo kvazaŭ liberigis ion en iliaj animoj. Naskiĝis nova interkompreno. Ili sentis sin kiel orfaj gefratoj, forlasitaj kaj senŝirmaj, sed tro-vantaj konsolon en la proksimeco unu de la alia.
 
 
-INFANOJ EN TORENTO
-
-
 DUA PARTO
 
 I.
 
 Estis frua somero.
 
-En sabata vespero la kvar infanoj pakis siajn dorsosa-
-
-kojn kaj ekipis sin por tranokti ekstere. Kiam ĉio estis preta, ili foriris orienten, transgrimpis Gufmonton kaj poste sekvis la arbarajn vojetojn, ĝis ili atingis la lagon, kie ili iam konatiĝis kun Alekso.
+En sabata vespero la kvar infanoj pakis siajn dorsosakojn kaj ekipis sin por tranokti ekstere. Kiam ĉio estis preta, ili foriris orienten, transgrimpis Gufmonton kaj poste sekvis la arbarajn vojetojn, ĝis ili atingis la lagon, kie ili iam konatiĝis kun Alekso.
 
 La suno jam staris malalte. Lasante sian pakaĵon sur la bordo ili tuj iris en la boaton kaj remis al la mezo de la lago, kie troviĝis malprofundaĵo. Tie Johano elmetis siajn retojn.
 
@@ -3290,9 +2744,7 @@ Tamen ili ne povis endormiĝi. Dum kelka tempo ili kuŝis
 
 silentaj kaj senmovaj, sed kiam Alda levis la kapon por rigardi, ĉu la aliaj dormas, ili tuj komencis babileti. Arne metis novan lignon sur la fajron, kaj Ajna subite memoris, ke ŝi havas bombonojn en sia dorsosako.
 
-Ili estis tute viglaj, kaj dum du horoj ili sidis babilante en la agrabla varmo de la fajro. La kantoturdoj rekomencis sian kantadon, kaj en kelka distanco eksonis la sonoraj tonoj de 124
-
-INFANOJ EN TORENTO
+Ili estis tute viglaj, kaj dum du horoj ili sidis babilante en la agrabla varmo de la fajro. La kantoturdoj rekomencis sian kantadon, kaj en kelka distanco eksonis la sonoraj tonoj de
 
 
 kukolo. La krepusketo cedis al taglumo, kaj nordoriente la ĉielo komencis brileti en varmaj koloroj. Maldensa nebulo ŝvebis kiel blankaj vualoj super la kvieta surfaco de la lago.
@@ -3311,20 +2763,13 @@ Johano komencis moviĝi, elŝovis la kapon el la kovrilo, palpebrumis kontraŭ l
 
 —Bone. Tion mi faras ĉiutage, de kiam mi komencis labori
 
-en la ĝardeno. Mi demandis patrinon, kial ŝi faras tian ceremonion. ŝi diris, ke tamen povas esti agrable por mi. Kompreneble estas agrable, ĉar mi estas dormema matene. An-
-
-taŭe mi neniam estis dormema.
+en la ĝardeno. Mi demandis patrinon, kial ŝi faras tian ceremonion. ŝi diris, ke tamen povas esti agrable por mi. Kompreneble estas agrable, ĉar mi estas dormema matene. Antaŭe mi neniam estis dormema.
 
 Alda petole rimarkigis, ke li eble fariĝis maldiligenta. Laboro ne estas tiel agrabla, kiel li iam imagis.
 
-—Mi ne pensis pri laboro en ĝardeno, diris Johano. Cete-
-
-re mi ne malŝatas laboron. Sed estas tede labori sola la tutajn tagojn. Se mi havus kamaradon …
+—Mi ne pensis pri laboro en ĝardeno, diris Johano. Cetere mi ne malŝatas laboron. Sed estas tede labori sola la tutajn tagojn. Se mi havus kamaradon …
 
 —Kaj ne ŝatus lin! Jen! Tio povus okazi ankaŭ en fabriko, kie vi havus multe da kamaradoj.
-
-
-INFANOJ EN TORENTO
 
 
 —Povas esti … Sed certe estus pli agrable, se iu el vi laborus kune kun mi.
@@ -3339,9 +2784,7 @@ Poste ili kuŝiĝis sur la herbon proksime al la akvo. La sunlumo estis karese v
 
 Kiam fariĝis pli varme, proponis iu, ke oni banu sin, kaj ili leviĝis kaj prenis siajn banvestojn el la dorsosakoj kaj komencis demeti la vestojn.
 
-—ĉu ni ne estas strangaj? subite demandis Alda kaj rigar-
-
-dis la aliajn.
+—ĉu ni ne estas strangaj? subite demandis Alda kaj rigardis la aliajn.
 
 —Kiamaniere? diris Johano.
 
@@ -3360,13 +2803,7 @@ diris Ajna. Kion dirus la homoj?
 —Mi pensis pri ni, ne pri la homoj, respondis Alda. Vidu, ni kondutas, kvazaŭ ni hontus unu antaŭ la alia pro tio, ke ni estas knaboj kaj knabinoj, kvazaŭ estus io malbona aŭ malbela en tio. Sed se ne estas tiel, kial do konduti kvazaŭ estus?
 
 
-INFANOJ EN TORENTO
-
-
 —Mi pensas kiel vi, deklaris Johano. Homoj hipokritas, kaj homo hontas pro homo. Kial ni imitu tion?
-
-
-INFANOJ EN TORENTO
 
 
 Iom antaŭ tagmezo eksonis paŝoj en la arbaro, kaj post kelkaj momentoj aperis Alekso inter la betultrunkoj. Li tuj ekvidis la infanojn, kiuj sunbanis sin sur la bordo, sed li ne atentis pri ili, ĝis li estis tute proksime. Tiam li subite haltis, konsternite.
@@ -3393,15 +2830,7 @@ Alekso palpebrumis, kaj liaj okuloj brilis kvazaŭ malantaŭ vualo.
 
 —Sed nun pretigu kafon por mi, sovaĝulinoj! Kaj poste vi
 
-helpos min iomete. Ni hakos arbetojn kaj metos ilin en la lagon, por ke la perkoj havu agrablan kunvenejon kaj ni bo-128
-
-INFANOJ EN TORENTO
-
-
-nan fiŝlokon. Mi serĉis vin hejme, Johano, kaj tiam mi eksciis, ke jam hieraŭ vespere vi iris tien ĉi.
-
-
-INFANOJ EN TORENTO
+helpos min iomete. Ni hakos arbetojn kaj metos ilin en la lagon, por ke la perkoj havu agrablan kunvenejon kaj ni bonan fiŝlokon. Mi serĉis vin hejme, Johano, kaj tiam mi eksciis, ke jam hieraŭ vespere vi iris tien ĉi.
 
 
 Johano venis hejmen kun sia unua salajro. Estis ĉirkaŭ tridek kronoj, pago por duonmonata laboro. Li transdonis la
@@ -3410,9 +2839,7 @@ tutan sumon al la patrino, kiu medite rigardis la monon kaj poste redonis al li 
 
 —Nu … kial? diris Johano.
 
-—Almenaŭ iomete por vi mem. Estas ja tamen vi, kiu labo-
-
-ris.
+—Almenaŭ iomete por vi mem. Estas ja tamen vi, kiu laboris.
 
 Johano rigardis la monerojn same medite kiel ĵus lia patri-no. Metante ilin en la monujon li subite ekridis.
 
@@ -3434,17 +2861,9 @@ La patrino rigardis lin esplore. ŝiaj trajtoj heliĝis, kaj ridante ŝi kaptis 
 
 —Vi, bubo! …
 
-Ili sidiĝis por vespermanĝi. La patrino estis en bona hu-
+Ili sidiĝis por vespermanĝi. La patrino estis en bona humoro kaj Elsa estis pli agrabla kaj afabla ol ordinare. ŝi demandis Johanon pri lia laboro kaj kompatis kaj laŭdis lin, kaj poste ŝi babilis kun la patrino en same plaĉa maniero. Fine ŝi komencis paroli pri pentekosto, kaj tiam ŝi ekmemoris, ke ŝi devus aĉeti novajn ŝuojn.
 
-
-INFANOJ EN TORENTO
-
-
-moro kaj Elsa estis pli agrabla kaj afabla ol ordinare. ŝi demandis Johanon pri lia laboro kaj kompatis kaj laŭdis lin, kaj poste ŝi babilis kun la patrino en same plaĉa maniero. Fine ŝi komencis paroli pri pentekosto, kaj tiam ŝi ekmemoris, ke ŝi devus aĉeti novajn ŝuojn.
-
-—Kaj tion mi devus fari morgaŭ, ĉar morgaŭ estos ja pen-
-
-tekosta sabato. Vere mi devus, ĉar mi ja ne povos montri min en la malnovaj!
+—Kaj tion mi devus fari morgaŭ, ĉar morgaŭ estos ja pentekosta sabato. Vere mi devus, ĉar mi ja ne povos montri min en la malnovaj!
 
 La patrino grumblis sed ne tre. Laŭ la paso de la jaroj ŝi ĝis certa grado adaptiĝis al la vidpunktoj de la filino.
 
@@ -3468,9 +2887,7 @@ samtempe pripensa. Iom post iom la esprimo de lia vizaĝo
 
 malmoliĝis.
 
-—Mi mem perlaboris tiun monon, li diris al la fratino, kun subpremita forto en la tono. Mi scias, kiom da laboro kaj 131
-
-INFANOJ EN TORENTO
+—Mi mem perlaboris tiun monon, li diris al la fratino, kun subpremita forto en la tono. Mi scias, kiom da laboro kaj
 
 
 dorsdoloro egalas al ĝi. Kaj vi kaj mi scias, ke ni bezonas ĝin por pli necesaj aferoj ol por ebligi al vi montri vin.
@@ -3485,9 +2902,7 @@ konstate, kvazaŭ la afero estus jam decidita:
 
 —Patrino, mi ne konsentas pri tio.
 
-La patrino dum kelkaj momentoj rigardis ilin, kvazaŭ he-
-
-zite. Poste ŝi diris al la filino:
+La patrino dum kelkaj momentoj rigardis ilin, kvazaŭ hezite. Poste ŝi diris al la filino:
 
 —Vi scias, ke Johano pravas. Kaj … estas ja li, kiu laboras.
 
@@ -3498,9 +2913,6 @@ La patrino rigardis Johanon kun mola esprimo en siaj okuloj.
 Sed Johano atentis nek pri Elsa nek pri la patrino. Li sidis kun klinita kapo kaj pripensa mieno kaj post kelkaj momentoj li leviĝis kaj preterpase diris al la patrino:
 
 —Mi iros al Arne.
-
-
-INFANOJ EN TORENTO
 
 
 Verdaj foliamasoj flustre susuras en la varma vento. La
@@ -3517,15 +2929,10 @@ La lokaj infanoj liberiĝis de la lernejo kaj de mateno ĝis vespero vivas laŭ 
 
 Johano kaj la ĝardenisto kaŭras sur la legombedoj kaj sarkas la fiherbojn, kiuj rapide kreskas en la varmo. Johano portas nur pantalonon kaj ŝuojn, kaj la supra parto de lia korpo estas brunenigra pro la suno.
 
-La varmo pezigas la kapon. Foje ili interŝanĝas kelkajn vortojn, sed ili ne havas emon babili. Kvazaŭ sonĝe Johano aŭdas 133
-
-INFANOJ EN TORENTO
+La varmo pezigas la kapon. Foje ili interŝanĝas kelkajn vortojn, sed ili ne havas emon babili. Kvazaŭ sonĝe Johano aŭdas
 
 
 la bruon de la infanoj ie ekster la ĝardeno, kaj la akvo en la kanalo brilas freŝe kaj alloge inter la verdaj bordoj.
-
-
-INFANOJ EN TORENTO
 
 
 Kiam Johano iris hejmen en iu vespero, li renkontis sian
@@ -3550,9 +2957,7 @@ La patrino sciis pri lia alveno, kaj kafotablo staris preta, kiam ili eniris la 
 
 Eriko foje respondis per murmuraj jes aŭ ne kaj cetere diris nenion.
 
-Sed Elsa ne povis bridi sian scivolon. Kiam ili sidis ĉe la tablo, ŝi interesite observis Erikon, kaj subite ŝi eksplodis: 135
-
-INFANOJ EN TORENTO
+Sed Elsa ne povis bridi sian scivolon. Kiam ili sidis ĉe la tablo, ŝi interesite observis Erikon, kaj subite ŝi eksplodis:
 
 
 —Rakontu do, kiel estis en la malliberejo! Estus tre interese!
@@ -3577,9 +2982,7 @@ Eriko iom turnis la kapon.
 
 —Ne, sed vi ja fumas.
 
-La peza esprimo en la vizaĝo de Eriko mildiĝis, kaj unua-
-
-foje post lia reveno ĝi heliĝis de rideto.
+La peza esprimo en la vizaĝo de Eriko mildiĝis, kaj unuafoje post lia reveno ĝi heliĝis de rideto.
 
 —Dankon! Certe mi utiligos vian tabakon, sed ne tuj. Mi
 
@@ -3590,9 +2993,6 @@ Elsa aŭdis ilian interparolon, kaj ĝia pli facila tono donis al ŝi kuraĝon r
 —Eriko, ĉu vi ne volas vidi vian nevinon? Vi ja onkliĝis
 
 dum via foresto! ŝi dormas nun, sed vi ja tamen povas rigardi ŝin.
-
-
-INFANOJ EN TORENTO
 
 
 Eriko hezite leviĝis, iris en la ĉambron kaj al la liteto de la malgranda knabino. Li rigardis ŝin kun iom stulta mieno, kvazaŭ laŭdeve.
@@ -3609,9 +3009,7 @@ Li ridetis kiel ĝenita knabo.
 
 en alia maniero.
 
-Kiam Johano la sekvantan tagon venis hejmen por tag-
-
-manĝi, li trovis Erikon en same peza humoro kiel en la pasinta vespero. Li manĝis malmulte kaj kvazaŭ nekonscie, ŝajnis tute okupita de prema cerbumado.
+Kiam Johano la sekvantan tagon venis hejmen por tagmanĝi, li trovis Erikon en same peza humoro kiel en la pasinta vespero. Li manĝis malmulte kaj kvazaŭ nekonscie, ŝajnis tute okupita de prema cerbumado.
 
 —Vi devas forskui vian pezan humoron, diris la patrino,
 
@@ -3621,9 +3019,7 @@ Lia vizaĝo iom rigidiĝis, sed li respondis trankvile.
 
 —Vi pravas. Sed kion fari? Tie ĉi mi sidas kiel sentaŭgulo, farante nenion utilan. Laboro ne ekzistas. Kion fari?
 
-—Kompreneble estas malagrable por vi, daŭrigis la patri-
-
-no. Sed iel la aferoj ordiĝos. Estas stulte tro multe cerbumi.
+—Kompreneble estas malagrable por vi, daŭrigis la patrino. Sed iel la aferoj ordiĝos. Estas stulte tro multe cerbumi.
 
 Cetere vi ja estis senlabora ankaŭ antaŭe.
 
@@ -3638,9 +3034,6 @@ Antaŭ ol foriri Johano turnis sin al la frato kaj diris.
 —Se vi ŝatas labori, vi povas haki hejtlignon. Mi volonte lasos tion al vi.
 
 
-INFANOJ EN TORENTO
-
-
 Kaj Eriko denove ridetis.
 
 —Vi estas prudenta, Johano. Eble tio iom malpezigos la
@@ -3648,12 +3041,7 @@ Kaj Eriko denove ridetis.
 kapon.
 
 
-INFANOJ EN TORENTO
-
-
-Estis la tago antaŭ la Johana, la unua tago de la somer-
-
-meza festo. Alda venis el la arbaro kun la brakoj plenaj
+Estis la tago antaŭ la Johana, la unua tago de la somermeza festo. Alda venis el la arbaro kun la brakoj plenaj
 
 de floroj kaj foliaj branĉoj. ĉe stratkruciĝo ŝi renkontis Johanon.
 
@@ -3674,9 +3062,6 @@ iris al la hejmo de Arne.
 Regis festotaga atmosfero. La kortoj estis balaitaj aŭ bele rastitaj, la florbedoj zorge sarkitaj. Verandoj kaj peronoj estis ornamitaj per junaj betuloj, infanoj iris hejmen ŝarĝitaj per sovaĝaj floroj, la aero estis plena de freŝa betulfolia odoro.
 
 Multaj laboristoj revenis de la subtenlaboroj por festi la somermezon en la hejmo, inter ili la patro de Arne. Li sidis sur la kuireja sofo, kaj lia mieno estis indiferenta, kvazaŭ li estus fremdulo. La saluton de Johano kaj Alda li respondis en grumbleta tono, kiu sonis kvazaŭ: Kion volas vi?
-
-
-INFANOJ EN TORENTO
 
 
 —Mi preskaŭ ne rekonis vin. Vi tiel kreskis. Arne kaj vi, Johano, devus havi laboron nun anstataŭ ĉirkaŭkuri kaj ludi kiel infanetoj.
@@ -3707,14 +3092,9 @@ Ili foriris kaj vokis Ajnan kaj poste sekvis la riverbordon por atingi la herbej
 
 La konduto de la patro de Arne malagrable impresis al ili. Sed subite Alda diris:
 
-—ĉu vi memoras, kiam ni ludis tie ĉi, kiam ni unue ami-
-
-kiĝis?
+—ĉu vi memoras, kiam ni ludis tie ĉi, kiam ni unue amikiĝis?
 
 Ili memoris, kaj kvankam ili preskaŭ ĉiutage iris la saman vojon al sia banloko, ili nun sentis, kvazaŭ ili post longa foresto revidus la lokon. La sablo estis agrable mola sub la piedoj, la herboj en la bordakvo fleksiĝis kaj tremetis pro la fluo, aroj da alburnoj kaj plotoj ĉirkaŭnaĝis sub la kvieta surfaco.
-
-
-INFANOJ EN TORENTO
 
 
 —ĉu via patro ree forveturos post la festo? demandis Alda, turnante sin al Arne.
@@ -3725,9 +3105,7 @@ INFANOJ EN TORENTO
 
 Ili salutis lin kaj haltis por iomete babili kun li.
 
-—ĉu vi memoras, kiam ni ludis tie ĉi? demandis Alda. An-
-
-kaŭ ni havis tendon kaj benketon.
+—ĉu vi memoras, kiam ni ludis tie ĉi? demandis Alda. Ankaŭ ni havis tendon kaj benketon.
 
 Li kapjesis kaj ridetis.
 
@@ -3745,26 +3123,16 @@ Li kapjesis kaj ridetis.
 
 La maljunulo ridetis amike.
 
-—Aha, tiel, tiel. ĉu mi iam parolis kun vi pri tio? Kiam mi estis knabeto, mi ofte vizitis najbaran bieneton, kie troviĝis maljunulo, kiun mi tre ŝatis. Kun li mi povis paroli pri ĉiuj aferoj, kaj ĉiam li estis afabla al mi, kvazaŭ mi estus lia propra filo. Tial mi pli ŝatis kunesti kun li ol esti hejme. Foje es-141
-
-INFANOJ EN TORENTO
-
-
-tas tiel. Mi ankaŭ ŝatas vin. El la pli grandaj infanoj vi estas la solaj, kiuj volas babili kun mi … Eble vi kuniros por diri adiaŭ al mi, kiam oni portos min al la tombo?
+—Aha, tiel, tiel. ĉu mi iam parolis kun vi pri tio? Kiam mi estis knabeto, mi ofte vizitis najbaran bieneton, kie troviĝis maljunulo, kiun mi tre ŝatis. Kun li mi povis paroli pri ĉiuj aferoj, kaj ĉiam li estis afabla al mi, kvazaŭ mi estus lia propra filo. Tial mi pli ŝatis kunesti kun li ol esti hejme. Foje estas tiel. Mi ankaŭ ŝatas vin. El la pli grandaj infanoj vi estas la solaj, kiuj volas babili kun mi … Eble vi kuniros por diri adiaŭ al mi, kiam oni portos min al la tombo?
 
 —Tion ni faros, diris Arne melankolie, sed ankoraŭ vi vivu longe … ĉu mi povus iri al vi iun tagon kaj desegni bildon de vi. Mi tre ŝatus havi …
 
 —Kompreneble. Mi tre ĝojus, se vi vizitus min.
 
 
-INFANOJ EN TORENTO
-
-
 Kiam Johano revenis, li antaŭ la hejmo renkontis Erikon,
 
-kiu portis ladan skatolon kun lumbrikoj. Johano deman-
-
-dis, ĉu li intencas iri por fiŝi.
+kiu portis ladan skatolon kun lumbrikoj. Johano demandis, ĉu li intencas iri por fiŝi.
 
 —Jes. Eble ne havas sencon tiel frue en la somero, sed …
 
@@ -3780,17 +3148,13 @@ Eriko rigardis Johanon kun mieno de enpensiĝo.
 
 —ĉu mi ĝenus vin, se mi kunirus?
 
-—Kiel ĝeni? Kuniru! Fiŝvergojn ni havas tie, en la malno-
-
-va fojnejo, apud kiu kuŝas la boato de Alekso. Sed pli bone kunpreni retojn, se vi efektive deziras fiŝi.
+—Kiel ĝeni? Kuniru! Fiŝvergojn ni havas tie, en la malnova fojnejo, apud kiu kuŝas la boato de Alekso. Sed pli bone kunpreni retojn, se vi efektive deziras fiŝi.
 
 Ili eniris por manĝi kaj fari la necesajn preparojn.
 
 Dum la foresto de Johano venis hejmen la tria frato, Ejnar, kune kun aliaj subtenlaboruloj. Li nun sidis sur la sofo kun cindrujo kaj kelkaj popularaj semajnaj gazetoj apud si. Cigaredo pendis en lia buŝangulo, preskaŭ falante. Per palpa mo-vo li elbuŝigis ĝin, kiam Johano aliris por saluti.
 
-—Bonan tagon, mia kara frato, li diris malklare kaj balbu-te, kaj lia vizaĝo lumiĝis de grimaca rideto. Jen vi vidas la per-ditan filon. Ne koleru, frateto! Panjo minacis kaj diris, ke vi 143
-
-INFANOJ EN TORENTO
+—Bonan tagon, mia kara frato, li diris malklare kaj balbu-te, kaj lia vizaĝo lumiĝis de grimaca rideto. Jen vi vidas la per-ditan filon. Ne koleru, frateto! Panjo minacis kaj diris, ke vi
 
 
 estas tre severa kaj forpelos min, sed vi ja estas mia kara frateto, kaj cetere mi ne tolerus ordonojn de vi. Mi ricevis iom por trinki de la kamaradoj en la trajno, kaj tial mi estas iomete … nu, vi komprenas.
@@ -3820,9 +3184,6 @@ Vi ja estas lerta en tiaj eks … pri … primentoj.
 —Bone. Do ni tamen estos du, kiuj ripri … prizentos la familion.
 
 
-INFANOJ EN TORENTO
-
-
 Denove ili staris sur la bordo de sia lago. Abunda herbo
 
 jam kovris la teron, kaj violruĝaj florfaskoj de arbaraj
@@ -3847,16 +3208,12 @@ La esprimo de ĝeniteco malaperis el liaj okuloj. Li ekridetis, kaj estis hela k
 
 Poste Johano kaj Eriko iris en la boaton por forremi kaj
 
-elmeti la retojn. Arne kaj la knabinoj restis sur la bordo kaj 145
-
-INFANOJ EN TORENTO
+elmeti la retojn. Arne kaj la knabinoj restis sur la bordo kaj
 
 
 kunportis lignon al la ŝtona forneto, kiu ankoraŭ troviĝis tie de ilia lasta ekskurso. Farinte tion ili aranĝis kuŝejon same kiel lastfoje, kaj por festi la somermezon ili starigis ĉirkaŭ ĝi be-tulbranĉojn, tiel ke fariĝis malalta laŭbo.
 
-ĉio estis preta, kiam la aliaj revenis. Alda faris fajron, kaj ili sidiĝis sur la lankovrilojn en la laŭbo por manĝi. La suno subiris, kaj la vespera lumo fariĝis mole vualeca. La triloj de la birdoj maloftiĝis, iom post iom fariĝis tute silente. Oni aŭ-
-
-dis nur la susuron de la fajro, kiam la grandaj, ruĝaj flamoj ludis en la hela, verdeta krepusko.
+ĉio estis preta, kiam la aliaj revenis. Alda faris fajron, kaj ili sidiĝis sur la lankovrilojn en la laŭbo por manĝi. La suno subiris, kaj la vespera lumo fariĝis mole vualeca. La triloj de la birdoj maloftiĝis, iom post iom fariĝis tute silente. Oni aŭdis nur la susuron de la fajro, kiam la grandaj, ruĝaj flamoj ludis en la hela, verdeta krepusko.
 
 Post la manĝo ili restis kuŝantaj en la laŭbo. La kvar iom babiletis intimvoĉe kaj duonflustre, sed plejparte ili silentis.
 
@@ -3866,17 +3223,13 @@ Eriko kuŝis silenta kaj reve rigardis en la fajron. Foje li momente turnis la o
 
 Eriko rigardis rekte en ŝiajn okulojn, kaj eta rideto aperis en lia melankolia vizaĝo.
 
-—Estas tiel kviete tie ĉi, li diris. Oni preskaŭ forgesas, ke ekzistas alia mondo … Sed diru sincere: ĉu vere vi neniel mal-
-
-ŝatas min?
+—Estas tiel kviete tie ĉi, li diris. Oni preskaŭ forgesas, ke ekzistas alia mondo … Sed diru sincere: ĉu vere vi neniel malŝatas min?
 
 —Kial ni malŝatu vin? ŝi demandis iom necerte.
 
 —ĉar vi ja scias, kia estas mi, kaj … vi estas tute aliaj.
 
-Nun Alda per subita movo sidiĝis, kaptis ambaŭ liajn ma-
-
-nojn kaj forte premis kaj skuis ilin.
+Nun Alda per subita movo sidiĝis, kaptis ambaŭ liajn manojn kaj forte premis kaj skuis ilin.
 
 —Knabo, stulta knabo! ŝi diris eksplode sed tamen mole.
 
@@ -3886,9 +3239,7 @@ Li rigardis ŝin longe kaj silente, kaj li ŝajnis kortuŝita. ŝi kapklinis al 
 
 —Ni estu amikoj, Eriko. Kaj ne pensu tiel stulte pri ni. …
 
-La knabinoj ekkaŭris ĉe la fajro por pretigi kafon. Dum ili 146
-
-INFANOJ EN TORENTO
+La knabinoj ekkaŭris ĉe la fajro por pretigi kafon. Dum ili
 
 
 kaŭris tie, Arne absorbite rigardis ilin sub duone malfermitaj palpebroj, kaj post la kafo li tuj diris al ili:
@@ -3920,9 +3271,6 @@ Arne laboris rapide kaj absorbite, kaj post kvaronhoro la skizo estis preta. Li 
 —Nu? diris Alda demande, rigardante la bildon.
 
 
-INFANOJ EN TORENTO
-
-
 Eriko enpense rigardis la desegnon kaj poste la knabinojn.
 
 —Mi ne imagis, ke Arne povas tiel bone desegni …
@@ -3937,18 +3285,13 @@ Johano sidiĝis kaj petis pri la kajero. Li atente rigardis la mole kaj delikatl
 
 —Ili ja apartenas al nia rondo, diris Arne. Do ĝi devas simili almenaŭ al la duona rondo.
 
-—Kompreneble, sed tamen. Estas kvazaŭ vi per la deseg-
-
-no rakontus, kion ni pensas kaj sentas.
+—Kompreneble, sed tamen. Estas kvazaŭ vi per la desegno rakontus, kion ni pensas kaj sentas.
 
 —Jes, tiel, diris Eriko. Mi neniel komprenas desegnon, sed tion mi tamen povas vidi.
 
 Arne reprenis la kajeron kaj atente rigardis la bildon. Liaj okuloj ekbrilis.
 
 —Pri tio mi ne pensis, li diris. Mi nur volis fari bildon, kiel mi ĉiam faris bildojn. —
-
-
-INFANOJ EN TORENTO
 
 
 Alda frue vekiĝis. Arne jam leviĝis kaj sidis sur ŝtono apud la fajrejo kun sia desegnokajero sur la genuoj. Li ne desegnis, sed ŝajnis absorbita de profunda meditado. ŝi senbrue forlasis sian lokon kaj sidiĝis apud li.
@@ -3975,9 +3318,7 @@ Ili ŝajnis al mi belaj, sed tiu ĉi krome kvazaŭ diras ion. Kiam mi rigardas �
 
 —Nu, iel pri ni, pri nia rondo … kaj iel ankaŭ pri aliaj homoj.
 
-—ĉu vi povas diveni, pri kio mi pensis, kiam mi faris ĝin, aŭ pli ĝuste, antaŭ ol mi faris ĝin? Kiam vi pretigis la kafon mi rigardis vin kaj eksentis deziron desegni vin apud la fajro. Sed 149
-
-INFANOJ EN TORENTO
+—ĉu vi povas diveni, pri kio mi pensis, kiam mi faris ĝin, aŭ pli ĝuste, antaŭ ol mi faris ĝin? Kiam vi pretigis la kafon mi rigardis vin kaj eksentis deziron desegni vin apud la fajro. Sed
 
 
 samtempe mi pensis pri ni, pri patro kaj pri aliaj homoj, forte pensis, sentis kvazaŭ mi estus ligita kaj premita kaj devus ion fari por liberiĝi. Iel mi do desegnis, kion mi pensis kaj sentis, kvankam mi ne sciis tion.
@@ -3995,9 +3336,6 @@ is nun mi provis fari nur belajn strekojn.
 —Jes. Sed ne cerbumis. Mi pensis kaj ĝojis.
 
 
-INFANOJ EN TORENTO
-
-
 Post somermezo Eriko ricevis subtenlaboron en la suda
 
 parto de la paro˛o. La vojo al lia laborloko ne estis tro longa por bicikli matene kaj vespere, kaj tiel li povis loĝi hejme.
@@ -4009,12 +3347,7 @@ sed Eriko plej ofte restis hejme en la vesperoj. Sed en saba-taj vesperoj kaj di
 Li malmulte parolis kaj pri si mem diris nenion, sed li ŝajnis kontenta.
 
 
-INFANOJ EN TORENTO
-
-
-Post finita labortago Johano foje iris al la ĉevalstalo. En la vesperoj kolektiĝis tie knaboj kaj knabinoj, lokaj kaj el la pensiono, por rajdi, kiam oni kondukis la ĉevalojn al iu paŝ-
-
-tejo, kie ili restis dum la nokto.
+Post finita labortago Johano foje iris al la ĉevalstalo. En la vesperoj kolektiĝis tie knaboj kaj knabinoj, lokaj kaj el la pensiono, por rajdi, kiam oni kondukis la ĉevalojn al iu paŝtejo, kie ili restis dum la nokto.
 
 Kiam oni estis preta elkonduki la ĉevalojn, la infanoj surgrimpis kestegon apud la elirejo kaj unu post la alia sidiĝis sur la ĉevalojn, kiam ili preterpasis. Fine la stalisto aŭ iu laboristo elvenis sur la lasta ĉevalo, kaj ĉiuj rajdis for en longa vico, ire aŭ trote. Sed baldaŭ ili forgesis la ordonojn pri modera ra-pido. Pli kaj pli instigante siajn ĉevalojn ili galope flugis an-taŭen sur la mole balanciĝantaj dorsoj de la bestoj.
 
@@ -4024,9 +3357,7 @@ La fojnorikolto komenciĝis. Frumatene eliris viroj kaj virinoj kun falĉiloj ka
 
 Altege ŝarĝitaj veturiloj ŝanceliĝe movis sin sur kampoj kaj vojoj, brue pasis supren sur la pontoj al la fojnejoj kaj malaperis kiel formikoj en formika stako.
 
-La infanoj kunveturis al la kampoj kaj helpis la laboristojn ŝarĝi. Dum la reveturo ili sidis plej alte sur la ŝarĝoj, kriis kaj 152
-
-INFANOJ EN TORENTO
+La infanoj kunveturis al la kampoj kaj helpis la laboristojn ŝarĝi. Dum la reveturo ili sidis plej alte sur la ŝarĝoj, kriis kaj
 
 
 kantis. Kiam la fojnejoj duone pleniĝis, ili preferis resti tie.
@@ -4037,9 +3368,7 @@ Eĉ vespere ili restis tie, kaj kiam Johano havis tempon, li iris tien anstataŭ
 
 Iun vesperon en la fino de la fojnorikolto ili ree troviĝis en la granda fojnejo super la bovinstalo. Nun ĝi estis plenŝtopita de fojno. Nenie oni povis salti, kaj la tuneloj estis multloke baritaj, sed tio faris la ludon nur pli interesa.
 
-Johano kaj kelkaj kamaradoj malaperis en diversaj prefe-
-
-rataj truoj, kaj poste sekvis la aliaj por kapti ilin.
+Johano kaj kelkaj kamaradoj malaperis en diversaj preferataj truoj, kaj poste sekvis la aliaj por kapti ilin.
 
 Rampe li traboris sin tra la senlumaj tuneloj. Foje li aŭdis flustrojn proksime kaj kiel eble plej silente forrampis en alia direkto. Fine li venis al malfacile trovebla kaverno, kiun li mem pretigis. i estis apud la muro, kaj iom da lumo envenis tra la interspaco inter la tabuloj.
 
@@ -4055,9 +3384,7 @@ Ili rigardis unu la alian kaj esplore aŭskultis. Nenio estis aŭdebla.
 
 Johano iom konis Britan. Ili renkontiĝis dum la vesperaj
 
-rajdoj, kaj foje ŝi pasis tra la ĝardeno kaj momente babiletis 153
-
-INFANOJ EN TORENTO
+rajdoj, kaj foje ŝi pasis tra la ĝardeno kaj momente babiletis
 
 
 kun li. ŝi estis sovaĝeta knabino. Dum la senbrida galopado de la ĉevaloj ŝi montris eksplodan ĝojon, kaj neniu el la knaboj estis pli aŭdaca kaj bubeca ol ŝi. Johano tamen ŝatis ŝin.
@@ -4080,18 +3407,13 @@ Subite ŝi iomete levis la kapon kaj pintigis la lipojn al li. ŝi rigardis lin 
 
 —Kiuj ni?
 
-Johano komencis rakonti pri siaj gekamaradoj kaj la kun-
-
-vivo kun ili. ŝi interesiĝis kaj interrompis lin per demandoj.
+Johano komencis rakonti pri siaj gekamaradoj kaj la kunvivo kun ili. ŝi interesiĝis kaj interrompis lin per demandoj.
 
 Baldaŭ ili troviĝis meze en vigla, flustra interparolo.
 
 Subite kapo de knabo enŝoviĝis en la kavernon, sed ili rimarkis la ĉasanton, nur kiam li vokis ilin.
 
 —Kaptitaj! Venu serĉi! Ankoraŭ ni ne trovis ĉiujn.
-
-
-INFANOJ EN TORENTO
 
 
 En la sekvanta mateno Brita venis al li. Li kolektis fragojn, kaj ŝi komencis helpi lin kaj restis pli longe ol ordinare.
@@ -4121,18 +3443,13 @@ Brita momente silentis kaj rigardis lin kun karesa kompato en la okuloj.
 —Certe estas malfacile kaj malagrable por vi. Mi nur ludas la tutajn tagojn, kaj dume vi devas vivi tiamaniere.
 
 
-INFANOJ EN TORENTO
-
-
 —Ne diru tiel! Mi ne estas ploremulo. Estas ankoraŭ pli
 
 malfacile por aliaj.
 
 —Ankoraŭ pli? Kiamaniere?
 
-—ĉar ili tute ne havas laboron, povas akiri neniom da mo-
-
-no.
+—ĉar ili tute ne havas laboron, povas akiri neniom da mono.
 
 —Sed ili tamen povas fari, kion ili volas. Ili ne devas labori de mateno ĝis vespero.
 
@@ -4150,9 +3467,7 @@ tamen diferenco … Johano, ĉu vi volas konatigi min kun viaj kamaradoj.
 
 Johano promesis fari tion, kaj kiam li tagmeze iris hejmen por manĝi, li sciigis al Alda, ke Brita deziras viziti ŝin.
 
-—Kio okazis al vi, Johano? demandis Alda. Komencas in-
-
-terrilati kun tiaj knabinoj! Filino de kapitano, nobela familio!
+—Kio okazis al vi, Johano? demandis Alda. Komencas interrilati kun tiaj knabinoj! Filino de kapitano, nobela familio!
 
 Nu, ŝi venu!
 
@@ -4160,9 +3475,7 @@ Brita jam atendis lin, kiam li revenis al la ĝardeno.
 
 —Bone, ŝi diris post lia klarigo, la gazetvendejon mi jam konas, kvankam mi ne vidis la knabinon. Nun mi devas lunĉi, sed poste mi iros al ŝi.
 
-Veninte al la gazetvendejo Brita trovis la patron de Alda, kaj sen prezenti sin ŝi demandis, ĉu Alda estas hejme. Li iom mire rigardis la knabinon, kiun li neniam antaŭe vidis, montris al pordo malantaŭ la vendotablo kaj petis ŝin eniri. ŝi dankis lin per kapklino kaj sen pluaj vortoj eniris. Ferminte malantaŭ si la pordon ŝi momente haltis kvazaŭ konfuzita, 156
-
-INFANOJ EN TORENTO
+Veninte al la gazetvendejo Brita trovis la patron de Alda, kaj sen prezenti sin ŝi demandis, ĉu Alda estas hejme. Li iom mire rigardis la knabinon, kiun li neniam antaŭe vidis, montris al pordo malantaŭ la vendotablo kaj petis ŝin eniri. ŝi dankis lin per kapklino kaj sen pluaj vortoj eniris. Ferminte malantaŭ si la pordon ŝi momente haltis kvazaŭ konfuzita,
 
 
 ĉirkaŭrigardis en la malgranda kuirejo kaj poste fiksis la okulojn al Alda, kiu sidis ĉe la tablo apud la fenestro kaj flikis ŝtrumpojn.
@@ -4198,9 +3511,6 @@ Kiam Brita post du horoj foriris, venis la patro en la kuirejon kaj demandis sci
 —Estis Brita, diris Alda. ŝi estas el la pensiono.
 
 
-INFANOJ EN TORENTO
-
-
 —De kie vi konas ŝin? Kaj kiu Brita?
 
 —Mi ne konis ŝin antaŭe. ŝi estas nobela knabino, la patro estas kapitano. ŝi konatiĝis kun Johano kaj poste volis konatiĝi ankaŭ kun la aliaj en nia rondo.
@@ -4214,9 +3524,6 @@ La patro rigardis ŝnsternite.
 Li skuis la kapon.
 
 —Strange! Kian intereson vi povas havi unu pri la alia?
-
-
-INFANOJ EN TORENTO
 
 
 Jam vespere Brita revenis, kaj la du knabinoj kune iris al Johano. Li ankoraŭ ne vespermanĝis, kaj dum la knabinoj
@@ -4245,9 +3552,7 @@ Alda ekridis kaj diris:
 
 ke ekzistas multaj patrinoj sen edzoj?
 
-—Kompreneble mi aŭdis, ke ekzistas, sed mi neniam ren-
-
-kontis iun. Kompatindaj infanoj, kiuj ne havas patron! Certe ili estas malfeliĉaj.
+—Kompreneble mi aŭdis, ke ekzistas, sed mi neniam renkontis iun. Kompatindaj infanoj, kiuj ne havas patron! Certe ili estas malfeliĉaj.
 
 —Tamen pli bone ne havi patron ol havi malbonan, diris
 
@@ -4256,9 +3561,6 @@ Johano. Sed bedaŭrinde ankaŭ patrinoj povas esti malbonaj.
 Malbonaj homoj ne devus havi infanojn.
 
 —ĉu via patro estis malbona?
-
-
-INFANOJ EN TORENTO
 
 
 —Ne. Mi apenaŭ memoras lin, sed ke li estis bona al mi,
@@ -4287,20 +3589,13 @@ Kaj vi scias eĉ pri la estiĝo de infanoj!
 
 Veninte al la herbejoj ili kuŝiĝis tie. La suno staris malalte.
 
-La aero estis aŭtune klara, la sunlumo ore pala. ĉie oni jam falĉis la herbon kaj forprenis ĝin de kampoj kaj herbejoj, sed la fojnodoro ankoraŭ restis, agrabla odoro de malfrua somero. Sude de la fervoja ponto flaviĝis la sekalkampoj, la varme ruĝa koloro de la disaj biendomoj brilis klare en la vesper-160
-
-INFANOJ EN TORENTO
-
-
-lumo, en malproksimaj fenestroj ardis la sunrebrilo kiel flama fajro.
+La aero estis aŭtune klara, la sunlumo ore pala. ĉie oni jam falĉis la herbon kaj forprenis ĝin de kampoj kaj herbejoj, sed la fojnodoro ankoraŭ restis, agrabla odoro de malfrua somero. Sude de la fervoja ponto flaviĝis la sekalkampoj, la varme ruĝa koloro de la disaj biendomoj brilis klare en la vesperlumo, en malproksimaj fenestroj ardis la sunrebrilo kiel flama fajro.
 
 Ili ĉirkaŭrigardis kaj silentis. Fine Brita diris al Alda, ne-laŭte kaj kvazaŭ preterpase:
 
 —Ni parolis pri senpatraj infanoj. Sed ĉu laboristoj ankaŭ eksedziĝas?
 
-—Verŝajne malofte. Mi neniam aŭdis pri disiĝo nek en To-
-
-rento nek en la tuta ĉirkaŭaĵo. Kial vi demandas pri tio? ĉu en viaj rondoj oni disiĝas? Mi ja legis pri tiaj aferoj en gazetoj.
+—Verŝajne malofte. Mi neniam aŭdis pri disiĝo nek en Torento nek en la tuta ĉirkaŭaĵo. Kial vi demandas pri tio? ĉu en viaj rondoj oni disiĝas? Mi ja legis pri tiaj aferoj en gazetoj.
 
 —Nu, jes …
 
@@ -4322,15 +3617,11 @@ kunestis kun laboristaj infanoj?
 
 —Ne kiel kun vi, sed en mia lernejo estas ankaŭ laboristaj infanoj. ĉu vi neniam kunestis kun nelaboristaj infanoj?
 
-—Neniam. Kaj neniam havis emon. ĉu viaj gepatroj inter-
-
-rilatas kun laboristoj?
+—Neniam. Kaj neniam havis emon. ĉu viaj gepatroj interrilatas kun laboristoj?
 
 —Ne, ili havas konatojn en aliaj rondoj. Pri kio ili interpa-rolu kun laboristoj, kiuj havas siajn interesojn?
 
-—Kompreneble Kiam mi legis pri la sociaj klasoj, tio ŝajnis al mi tute natura afero. Sed iel estas strange … Homoj kiel viaj 161
-
-INFANOJ EN TORENTO
+—Kompreneble Kiam mi legis pri la sociaj klasoj, tio ŝajnis al mi tute natura afero. Sed iel estas strange … Homoj kiel viaj
 
 
 gepatroj do neniam povas interrilati kun laboristoj, kiel vi kaj ni interrilatas, mi volas diri tute simple kiel homoj kun homoj!
@@ -4368,9 +3659,6 @@ de li.
 Brita rigardis ŝin mire, poste ĝenite ekridetis.
 
 
-INFANOJ EN TORENTO
-
-
 —Mi estis stulta … Sed … ĉu vi neniam pensis pri … pri kisoj? Johano ja diris, ke inter ni sekretoj ne ekzistas!
 
 —Ofte! diris Alda kaj ridis. Mi ja tiom vidis en la filmoj, kvankam mi malofte vizitas la kinon. Kaj mi vidis gejunulojn imiti la filmojn. Kaj same stulte aspektis.
@@ -4402,9 +3690,6 @@ Brita protestis.
 —Ne estu stulta! Nun ni parolu pri aliaj aferoj!
 
 
-INFANOJ EN TORENTO
-
-
 Alekso per malrapidaj paŝoj iris tien kaj reen ekster la
 
 elektra stacio. Foje li klinis sin, rigardis siajn florojn sur la bedoj kaj apud la muroj kaj tie kaj tie forprenis ĝermantan fiherbon. Poste li denove daŭrigis sian promenon, kun medita vizaĝo kaj la brakoj kruce sur la brusto.
@@ -4421,14 +3706,9 @@ Fininte sian pipon li elfrapis la cindron, kaj mallaŭta rido ekvibris profunde 
 
 enamiĝinta junulo …
 
-Ankoraŭfoje li ĉirkaŭrigardis kaj poste malrapide kaj en-
-
-pense reiris al la stacio. Tie li sidiĝis sur la benkon apud la rezedoj kaj denove plenigis sian pipon sed forgesis bruligi ĝin.
+Ankoraŭfoje li ĉirkaŭrigardis kaj poste malrapide kaj enpense reiris al la stacio. Tie li sidiĝis sur la benkon apud la rezedoj kaj denove plenigis sian pipon sed forgesis bruligi ĝin.
 
 Jen aŭdiĝis intime mallaŭtaj voĉoj, kaj liaj amikoj eniris tra la pordo kaj proksimiĝis al li. Lia vizaĝo heliĝis, kaj li ridetis renkonte al ili.
-
-
-INFANOJ EN TORENTO
 
 
 —Bonan, bonan! li diris. Mi tre atendis vin.
@@ -4463,18 +3743,11 @@ Tumante sin al ĉiuj li demandis:
 
 —Ili ja moviĝas trans la ĉielon same kiel la suno kaj la luno, diris Johano.
 
-—Jes, sed mi volis demandi, ĉu vi dum iom da tempo ob-
-
-servis la moviĝon.
+—Jes, sed mi volis demandi, ĉu vi dum iom da tempo observis la moviĝon.
 
 —Tion oni ja ne povas distingi, diris Johano nekredeme.
 
-—Tamen jes. Jen tie staras stelo en la sudo, precize ĉe la supro de tiu betulo. Sidiĝu kaj restu tute senmovaj kaj aten-165
-
-INFANOJ EN TORENTO
-
-
-te rigardu. Estas tute senvente, kaj vi povas bone observi ĝian pozicion rilate al la folioj de la betulo.
+—Tamen jes. Jen tie staras stelo en la sudo, precize ĉe la supro de tiu betulo. Sidiĝu kaj restu tute senmovaj kaj atente rigardu. Estas tute senvente, kaj vi povas bone observi ĝian pozicion rilate al la folioj de la betulo.
 
 Ili sidiĝis kaj rigardis, unue nur pro tio, ke ili trovis lian proponon amuza. Pasis en silento kelkaj dekoj da sekundoj.
 
@@ -4501,9 +3774,6 @@ vidas per propraj okuloj, kiel la universo moviĝas. Oni kvazaŭ sentas, kiel la
 —Kaj tamen iel sentas, ke oni apartenas al tiu granda tuto, iel trankvilige sentas, ke oni apartenas al tiu granda, trankvila moviĝo.
 
 
-INFANOJ EN TORENTO
-
-
 Alekso ridetis al ŝi.
 
 —ĉu jes?
@@ -4514,19 +3784,12 @@ Neniu el ili estis plu parolema. Momente ili restis starantaj ĉirkaŭ li, medit
 
 Alekso sekvis ilin per la rigardo, ĝis ili malaperis. Tiam li ridetis kaj murmuretis:
 
-—Nu nu, maljuna azeno … trankvile moviĝas … trankvili-
-
-ge …
-
-
-INFANOJ EN TORENTO
+—Nu nu, maljuna azeno … trankvile moviĝas … trankvilige …
 
 
 Kaj la tero trankvile turniĝis, tago sekvis tagon, la novluno kreskis de vespero al vespero, ĝis ĝi brilis plene ronda
 
-dum iliaj promenoj en la silentaj vesperhoroj. Denove ĝi mal-kreskis, kaj kiam ili nokte kuŝis apud la fajro ĉe sia lago, ili post noktomezo vidis la turnitan serpon palore ekbrili malantaŭ noktonigraj piceoj kaj pinoj. Iun vesperon ĝi ree konturi-
-
-ĝis kiel kurba arĝenta fadeneto sur la okcidenta ĉielo, kaj tiun vesperon la rondanoj akompanis Britan al la trajno por diri adiaŭ al ŝi.
+dum iliaj promenoj en la silentaj vesperhoroj. Denove ĝi mal-kreskis, kaj kiam ili nokte kuŝis apud la fajro ĉe sia lago, ili post noktomezo vidis la turnitan serpon palore ekbrili malantaŭ noktonigraj piceoj kaj pinoj. Iun vesperon ĝi ree konturiĝis kiel kurba arĝenta fadeneto sur la okcidenta ĉielo, kaj tiun vesperon la rondanoj akompanis Britan al la trajno por diri adiaŭ al ŝi.
 
 Pasis semajnoj kaj semajnoj. La roso de la vesperoj kuŝis matene kiel brilanta prujno sur la herbo, kaj la vento forskuis de la betuloj la flaviĝintajn foliojn.
 
@@ -4536,9 +3799,7 @@ al lia lasta ripozejo apud la paroą preĝejo sude sur la ebeno. Pala kaj sen va
 
 El arbaraj kreskaĵoj ili plektis sian unuan kaj lastan donacon al li kiel saluton de ili kaj de la grandaj arbaroj, kie antaŭ longe estis lia hejmo.
 
-Solaj ili piediris la vojon al la preĝejo, solaj kaj apude ili restis dum la enteriga ceremonio. Kiam ĉiuj aliaj estis pretaj 168
-
-INFANOJ EN TORENTO
+Solaj ili piediris la vojon al la preĝejo, solaj kaj apude ili restis dum la enteriga ceremonio. Kiam ĉiuj aliaj estis pretaj
 
 
 foriri de la tombo, ili aliris kaj metis sian donacon al la aliaj.
@@ -4548,20 +3809,13 @@ La homoj rigardis ilin kun miro. ĉiuj konis la infanojn, sed neniu komprenis, k
 Sed la infanoj ne rimarkis iliajn mienojn. Dum tempeto ili restis starantaj apud la tombo kaj poste kapklinis adiaŭe kaj senvorte foriris de la tombejo.
 
 
-INFANOJ EN TORENTO
-
-
 ll.
 
-Pluvis aŭ pluvetis dum tagoj kaj semajnoj. ĉe la tero pendis nebulo, kaj en la alto ŝvebis densa, senkontura nu-
-
-baĵo, kiu senĉese verŝis akvon kaj ne tralasis eĉ imageton pri suno kaj lumo. La homoj movis sin kiel ombrofiguroj en tiu senluma kaj malvarma mondo, malgajaj kaj neparolemaj kaj
+Pluvis aŭ pluvetis dum tagoj kaj semajnoj. ĉe la tero pendis nebulo, kaj en la alto ŝvebis densa, senkontura nubaĵo, kiu senĉese verŝis akvon kaj ne tralasis eĉ imageton pri suno kaj lumo. La homoj movis sin kiel ombrofiguroj en tiu senluma kaj malvarma mondo, malgajaj kaj neparolemaj kaj
 
 kun vintre grizpalaj vizaĝoj.
 
-En tia tago Alekso renkontis la rondanojn en la gazetven-
-
-dejo, kiam li eniris por aĉeti paketon da tabako. Ili aspektis malviglaj kaj malgajaj, kaj li demandis pri la kaŭzo.
+En tia tago Alekso renkontis la rondanojn en la gazetvendejo, kiam li eniris por aĉeti paketon da tabako. Ili aspektis malviglaj kaj malgajaj, kaj li demandis pri la kaŭzo.
 
 —Tia vetero! diris Johano.
 
@@ -4575,16 +3829,11 @@ La patro de Alda amuzite rigardis Alekson kaj la infanojn.
 
 —Kial kurioza? demandis Alda al sia patro. Pro tio, ke li interrilatas kun ni?
 
-—Vi ne bezonas koleriĝi, knabino! Mi ĝojas, ke Alekso ŝa-
-
-tas vin, volis nur diri, ke estas iom neordinare …
+—Vi ne bezonas koleriĝi, knabino! Mi ĝojas, ke Alekso ŝatas vin, volis nur diri, ke estas iom neordinare …
 
 —Tiel. Nu, diru, kion vi volas, nun ni tamen iros kun Alek-so.
 
 Ili do akompanis Alekson al lia hejmo. Li havis propran do-meton ĉe la rando de la arbaro, iom for de la laboristaj ludo-moj.
-
-
-INFANOJ EN TORENTO
 
 
 La edzino iom surpriziĝis, kiam Alekso envenis kun siaj
@@ -4609,12 +3858,7 @@ havas la saman koloron kiel musko en aŭtuno, diris Arne.
 
 —Precize, diris la edzino. Verdire mi trovis la ideon pri tiuj koloroj, kiam mi en iu aŭtuno kolektis vakciniojn kaj vidis muskajn lokojn en la arbaro.
 
-Ajna interesite demandis, ĉu ŝi mem do teksis la ŝtofon kaj komponis la kolorojn. La edzino jesis, kaj tiam la knabinoj pliinteresiĝis pri ŝi kaj ŝiaj laboraĵoj kaj komencis demandi ŝin pri teksaj aferoj. ŝi klarigis kaj rakontis, kaj finfine la knabinoj trovis, ke teksado povus esti tre interesa okupo. Se oni nur havus okazon lerni, diris Ajna. Kaj la edzino informis, ke bal-171
-
-INFANOJ EN TORENTO
-
-
-daŭ ŝi faros novan tekson, kaj tiam ili povos veni al ŝi por lerni kaj ekzerci.
+Ajna interesite demandis, ĉu ŝi mem do teksis la ŝtofon kaj komponis la kolorojn. La edzino jesis, kaj tiam la knabinoj pliinteresiĝis pri ŝi kaj ŝiaj laboraĵoj kaj komencis demandi ŝin pri teksaj aferoj. ŝi klarigis kaj rakontis, kaj finfine la knabinoj trovis, ke teksado povus esti tre interesa okupo. Se oni nur havus okazon lerni, diris Ajna. Kaj la edzino informis, ke baldaŭ ŝi faros novan tekson, kaj tiam ili povos veni al ŝi por lerni kaj ekzerci.
 
 
 —Kia interesa historio! ŝi diris al Alekso.
@@ -4631,12 +3875,7 @@ La kajero enhavis bildojn pri la malnova Egiptujo, kaj Alekso multe sciis pri ti
 
 La edzino dum kelka tempo restis sidanta apud ili, sed poste ridetante kaj silente foriris al siaj okupoj en la kuirejo.
 
-Tiel pasis tuta horo antaŭ ol ili finis la bildojn pri Egiptu-172
-
-INFANOJ EN TORENTO
-
-
-jo, kaj tiam iliaj kapoj estis tiel plenaj de novaj aferoj, ke ili sentis bezonon iom ripozi de la historio.
+Tiel pasis tuta horo antaŭ ol ili finis la bildojn pri Egiptujo, kaj tiam iliaj kapoj estis tiel plenaj de novaj aferoj, ke ili sentis bezonon iom ripozi de la historio.
 
 —ĉu vi ne volas alian fojon rakonti ankaŭ pri la bildoj en la aliaj kajeroj? demandis Johano.
 
@@ -4645,16 +3884,9 @@ jo, kaj tiam iliaj kapoj estis tiel plenaj de novaj aferoj, ke ili sentis bezono
 Vi ja scias, kiutempe mi estas libera.
 
 
-INFANOJ EN TORENTO
+La novfondita esperantista klubo en Torento kvazaŭ fordegelis kun la printempa neĝo. La rondanoj estis la solaj, kiuj konservis sian intereson pri la lingvo. Ili daŭrigis inter-
 
-
-La novfondita esperantista klubo en Torento kvazaŭ for-
-
-degelis kun la printempa neĝo. La rondanoj estis la solaj, kiuj konservis sian intereson pri la lingvo. Ili daŭrigis inter-
-
-ŝanĝi leterojn kun siaj korespondantoj, iomete legis kaj ekzercis sin per babilado. Pri la klubo ili ne pensis, ĝis Ajna kaj Alda iun fruvintran tagon renkontis la prezidanton, kiu komencis paroli pri ĝi. Li nomiĝis Jern kaj estis vigla kaj kleri-
-
-ĝema junulo. Li proponis, ke oni provu revivigi la klubon.
+ŝanĝi leterojn kun siaj korespondantoj, iomete legis kaj ekzercis sin per babilado. Pri la klubo ili ne pensis, ĝis Ajna kaj Alda iun fruvintran tagon renkontis la prezidanton, kiu komencis paroli pri ĝi. Li nomiĝis Jern kaj estis vigla kaj kleriĝema junulo. Li proponis, ke oni provu revivigi la klubon.
 
 Ajna entuziasmiĝis, sed Alda estis skeptika.
 
@@ -4676,12 +3908,7 @@ alia, ili diras, ke tio kaj tio estas devo. Mi ne faras postulojn, kaj mi ne kon
 
 Ili interkonsentis pri la afero, kaj Jern dum la sekvantaj tagoj prilaboris la aliajn klubanojn.
 
-La disponpermeso pri klasĉambro en la popola lernejo an-
-
-koraŭ validis, kaj iun vesperon la klubanoj kolektiĝis tie. Estis ĉirkaŭ dudek gejunuloj, kelkaj samaĝaj kun Ajna sed la plej multaj pli aĝaj. La rondanoj alvenis unuaj kaj prenis lokon sur la longbenko apud la muro. Iom post iom venis la
-
-
-INFANOJ EN TORENTO
+La disponpermeso pri klasĉambro en la popola lernejo ankoraŭ validis, kaj iun vesperon la klubanoj kolektiĝis tie. Estis ĉirkaŭ dudek gejunuloj, kelkaj samaĝaj kun Ajna sed la plej multaj pli aĝaj. La rondanoj alvenis unuaj kaj prenis lokon sur la longbenko apud la muro. Iom post iom venis la
 
 
 aliaj kaj sidiĝis en la benkojn de la infanoj aŭ staris en grupe-toj kaj interbabilis.
@@ -4713,9 +3940,6 @@ Ili ne respondis, sed tie kaj tie eksonis ridoj. La senplaneco de la kunveno amu
 kiel ni, fine diris iu. ĉu vi ne povas esti instruisto?
 
 
-INFANOJ EN TORENTO
-
-
 Jern kapskuis malkonsente kaj silentis. La ĉeestantoj komencis babili kaj ŝerci kaj ŝajne neniel pensis pri la celo de la kunveno.
 
 —Ajna, ĉu vi povas instrui? demandis Jern, turnante sin al ŝi.
@@ -4736,16 +3960,12 @@ kiel la aliaj Arne kunportis paperblokon kaj krajonon por eventualaj notaĵoj. S
 
 Subite lia krajono haltis. Li fikse rigardis en certa direkto, kaj li ŝajnis incitita. ŝi rigardis en la saman direkton kaj parte ekkomprenis lian mienon. En la unua benko en la mezo
 
-sidis junulo, kiu kun tute speciala intereso rigardis Ajnan. Per rigardoj kaj mienoj li provis kapti ŝian atenton. Li havis bel-forman vizaĝon kaj estis iom dande vestita. Alda konis lin laŭ 176
-
-INFANOJ EN TORENTO
+sidis junulo, kiu kun tute speciala intereso rigardis Ajnan. Per rigardoj kaj mienoj li provis kapti ŝian atenton. Li havis bel-forman vizaĝon kaj estis iom dande vestita. Alda konis lin laŭ
 
 
 aspekto kaj nomo. Dum la pasinta somero li havis subtenlaboron, sed nun li estis hejme.
 
-Kaj subite vekiĝis en ŝi duone forgesita memoro. Iam an-
-
-taŭ longe Ajna kaj Arne rakontis al ŝi ion pri tiu Paŭlo. Jen ŝi klare memoris la infanecan sed malagrablan okazon kaj turnis la okulojn al Arne. Iliaj rigardoj renkontiĝis, kaj kvazaŭ leginte ŝiajn pensojn li flustris al ŝi: ”Jes, estis tiu, tiu … ”
+Kaj subite vekiĝis en ŝi duone forgesita memoro. Iam antaŭ longe Ajna kaj Arne rakontis al ŝi ion pri tiu Paŭlo. Jen ŝi klare memoris la infanecan sed malagrablan okazon kaj turnis la okulojn al Arne. Iliaj rigardoj renkontiĝis, kaj kvazaŭ leginte ŝiajn pensojn li flustris al ŝi: ”Jes, estis tiu, tiu … ”
 
 Sed Ajna rimarkis nek lian konduton nek la pli ŝercan
 
@@ -4753,9 +3973,7 @@ okulflirtadon de kelkaj aliaj. ŝi estis tute kaptita de sia rolo de rektmetoda 
 
 Fine Ajna laciĝis kaj demandis, ĉu ili ne ŝatas fini la lecionon. Sed kontraŭ tio ili protestis. Oni faru paŭzeton kaj poste denove daŭrigu. Kiam ili post la paŭzo reprenis siajn lokojn, proponis Ajna, ke Alda transprenu la instruadon.
 
-Kaj Alda komencis. ŝi havis alian manieron kaj alian tem-
-
-peramenton, estis pli vigla kaj pli surpriza. Ofte ŝi ridigis ilin per absurdaj aŭ alimaniere nekutimaj demandoj. La scio de la pasinta vintro facile reviviĝis ĉe la lernantoj, kaj kiam la leciono finiĝis, ili jam ripetis sufiĉe grandan parton de la komenca kurso.
+Kaj Alda komencis. ŝi havis alian manieron kaj alian temperamenton, estis pli vigla kaj pli surpriza. Ofte ŝi ridigis ilin per absurdaj aŭ alimaniere nekutimaj demandoj. La scio de la pasinta vintro facile reviviĝis ĉe la lernantoj, kaj kiam la leciono finiĝis, ili jam ripetis sufiĉe grandan parton de la komenca kurso.
 
 —ĉu viaj knaboj estas same lertaj? demandis iu, kiam ŝi
 
@@ -4766,18 +3984,13 @@ finis. Alda estis en bona humoro kaj ne trovis inde atenti pri la ŝerca piketo.
 —Do ili estu instruistoj venontfoje.
 
 
-INFANOJ EN TORENTO
-
-
 Johano proponis al Eriko, ke li partoprenu la kunvenojn de la klubo. Se li lernus iom hejme en la vesperoj, li certe povus sekvi la instruadon. Eriko diris, ke tiu afero ne interesas lin, kaj demandis, kiuj partoprenas la kunvenojn. Johano diris iliajn nomojn.
 
 —ĉu vi ŝatas tiujn kamaradojn? demandis Eriko.
 
 Johano silente skuetis la ŝultrojn.
 
-—Kial vi do faras komunan societon kun ili? demandis Eri-
-
-ko. Mi preferas esti sola aŭ kun via rondo.
+—Kial vi do faras komunan societon kun ili? demandis Eriko. Mi preferas esti sola aŭ kun via rondo.
 
 —Sed nia tuta rondo partoprenas ja la kunvenojn, insistis Johano.
 
@@ -4791,11 +4004,7 @@ ne ŝatus la societon.
 
 —Eble ne. Sed mi tamen volas rigardi la aferon, kaj mi ŝatas esti inter vi.
 
-En la dua kunveno rolis unue Johano kiel instruisto. Ko-
-
-mence lia instruado estis malmulte vigla kaj interesa, sed iom post iom malaperis lia ĝeniteco, kaj liaj demandoj venis pli flue kaj firme. Li ne ŝercis nek aktoris, kaj dum la tuta leciono ne aperis eĉ plej eta rideto sur lia vizaĝo. Li ne ŝatis la tas-178
-
-INFANOJ EN TORENTO
+En la dua kunveno rolis unue Johano kiel instruisto. Komence lia instruado estis malmulte vigla kaj interesa, sed iom post iom malaperis lia ĝeniteco, kaj liaj demandoj venis pli flue kaj firme. Li ne ŝercis nek aktoris, kaj dum la tuta leciono ne aperis eĉ plej eta rideto sur lia vizaĝo. Li ne ŝatis la tas-178
 
 
 kon sed plenumis ĝin kiel eble plej zorge, kaj lia instruado estis solida.
@@ -4811,9 +4020,6 @@ Estis nemulte da metodiko en lia instruado, sed la lernantoj ĝuis, kaj atento n
 Tiel pasis ankaŭ la dua kunveno tute sukcese. Post la fino de la leciono oni decidis, ke Jern kaj Paŭlo estu instruistoj venontfoje.
 
 
-INFANOJ EN TORENTO
-
-
 La sekvantan tagon envenis Paŭlo en la hejmon de Ajna.
 
 Li ĝentile salutis la avinon kaj la patrinon kaj poste turnis sin al Ajna.
@@ -4822,9 +4028,7 @@ Li ĝentile salutis la avinon kaj la patrinon kaj poste turnis sin al Ajna.
 
 —Kia malfeliĉo?
 
-—Kaj vi scias, ke mi absolute ne povas plenumi tiun tas-
-
-kon. ĉu vi ne bonvolus helpi min iomete?
+—Kaj vi scias, ke mi absolute ne povas plenumi tiun taskon. ĉu vi ne bonvolus helpi min iomete?
 
 Li pete rigardis en ŝiajn okulojn, kaj Ajna rideksplodis.
 
@@ -4832,9 +4036,7 @@ Li pete rigardis en ŝiajn okulojn, kaj Ajna rideksplodis.
 
 —Mi dankas vin! Vi ja estas tiel lerta kaj bonkora.
 
-—Kiel vi esprimas vin! diris Ajna amuzite. ĉu ni tuj ko-
-
-mencu?
+—Kiel vi esprimas vin! diris Ajna amuzite. ĉu ni tuj komencu?
 
 —Mi tre volas, se vi havas tempon.
 
@@ -4847,9 +4049,6 @@ Kiam ĉio estis trapasita, li demandis, ĉu li rajtas reveni la postan tagon.
 Ajna konsentis, kaj la sekvantan vesperon li revenis. Salut-inte li komencis ĉirkaŭpromeni en la kuirejo kaj gaje babilis.
 
 —ĉu vi estas sola hejme? li demandis, kiam neniu el la aliaj familianoj aperis.
-
-
-INFANOJ EN TORENTO
 
 
 Ajna diris, ke ili ĵus foriris. Iu familio invitis ilin.
@@ -4890,12 +4089,7 @@ Li ŝajnis iomete ĝenita.
 
 —ĉu vi do ofendiĝis? li demandis. Mi ja nur petolis.
 
-—Oni povas petoli en diversaj manieroj, kaj la via ne pla-181
-
-INFANOJ EN TORENTO
-
-
-ĉas al mi … ĉu vi memoras, kiel vi kondutis al mi kaj Arne kiam ni estis malgrandaj infanoj kaj iris de la dimanĉa lernejo?
+—Oni povas petoli en diversaj manieroj, kaj la via ne plaĉas al mi … ĉu vi memoras, kiel vi kondutis al mi kaj Arne kiam ni estis malgrandaj infanoj kaj iris de la dimanĉa lernejo?
 
 Paŭlo ne memoris, sed kiam ŝi aldonis kelkajn detalojn, la okazo reviviĝis al li.
 
@@ -4926,9 +4120,6 @@ Li rigardis ŝin petole esplore, kvazaŭ atendante ian respondon de ŝi.
 Li momente rigidiĝis, kaj rigardis ŝin ekzamene, sed lia vi-zaĝo tuj heliĝis, kaj li ekridis kontente.
 
 —Jes, jes! Ni komencu!
-
-
-INFANOJ EN TORENTO
 
 
 Post novjaro venis malvarmo kaj sufiĉe multe da neĝo.
@@ -4968,9 +4159,6 @@ junaj ĉarmulinoj, ĉar via ĉapo ŝoviĝis flanken.
 Li etendis la manon kaj reŝovis la ĉapon, ĝis ĝi sidis laŭ lia gusto.
 
 
-INFANOJ EN TORENTO
-
-
 —Lasu la ĉapon! diris Ajna, reŝovis ĝin flanken kaj … iom ruĝigis.
 
 —Aha, vi metis ĝin tiel, diris Alekso kaj iel serioziĝis. Kial vi volas havi ĝin tiel?
@@ -5006,21 +4194,13 @@ Kun ili ni ne povas interrilati, kiel ni interrilatas.
 —Kial ne? ĉu vi malŝatas ilin?
 
 
-INFANOJ EN TORENTO
-
-
 —Ne malŝatas, sed … estas tiel. Ili ja havas siajn interesojn kaj babilas pri siaj aferoj.
 
-—Hm … ĉu vi ne volas montri al mi viajn esperantajn ga-
-
-zetojn? Vi ja abonas, ĉu ne?
+—Hm … ĉu vi ne volas montri al mi viajn esperantajn gazetojn? Vi ja abonas, ĉu ne?
 
 —Volonte, diris Alda. Sed ili estas plejparte en esperanto, kaj multe vi do ne povos legi.
 
 —Tamen estus interese rigardi. Cetere vi ja povos traduki al mi, se io interesos min.
-
-
-INFANOJ EN TORENTO
 
 
 Post kelkaj semajnoj ili denove vizitis Alekson, kaj tiam Alda kunportis gazetojn. Li komencis trafoliumi ilin, kaj Alda donis klarigojn pri la enhavo. Sed subite li komencis mem traduki la rubrikojn kaj diversajn frazojn, samtempe
@@ -5054,9 +4234,6 @@ pasis nur duonjaro post la kurso.
 —Mi ja iom konas aliajn lingvojn kaj foje ankoraŭ legas en ili, eble tio kunhelpas.
 
 
-INFANOJ EN TORENTO
-
-
 —ĉu pli da lingvoj vi konas? demandis Alda. Vi ler nis la anglan, kiam vi estis maristo, ĉu ne? Sed la aliajn?
 
 Alekso faris grimacon kaj skuis la ŝultrojn. Sed Alda rigardis lin pete.
@@ -5069,30 +4246,21 @@ Alekso ridis.
 
 kiam mi havis vian aĝon, mi estis lernanto en gimnazio. Patro estis metiisto. Li ne estis riĉa, sed li volis, ke mi ”fariĝu io”, kiel oni diras. Lernado plaĉis al mi, sed mi volis lerni ĉion laŭ propra kapo kaj propra plaĉo. Tial mi malmulte progresis en la lernejo, kaj kiam mi malsukcesis en la antaŭlasta klaso, mi forlasis la instrufabrikon kaj iris al la maro … kaj poste sur diversaj aliaj vojoj, ĝis mi fine okaze fariĝis elektristo. Kaj tiamaniere fariĝis nenio el mi, kaj mia patro, li vivas ankoraŭ, eĉ nun grumblas pri tio, kiam mi foje vizitas lin.
 
-Lia mallonga rakonto surprizis ilin, kaj dum kelkaj mo-
-
-mentoj ili sidis silentaj, sed poste diris Johano, iom hezite:
+Lia mallonga rakonto surprizis ilin, kaj dum kelkaj momentoj ili sidis silentaj, sed poste diris Johano, iom hezite:
 
 —Kial vi diras, ke fariĝis nenio el vi? ĉu vi pli ŝatus esti instruisto aŭ oficisto aŭ io tia?
 
 —Mi diris tion laŭ la vidpunkto de patro kaj diversaj aliaj homoj. Mi mem estas tute kontenta pri mia okupo.
 
-Li denove rigardis la gazetojn sed iom animforeste. Redo-
-
-nante ilin al Alda li diris preterpase, kvazaŭ nur por ion diri:
+Li denove rigardis la gazetojn sed iom animforeste. Redonante ilin al Alda li diris preterpase, kvazaŭ nur por ion diri:
 
 —Nu, kaj kion faras Ajna?
 
-—Mi ne scias, eble instruas esperanton al tiu Paŭlo, re-
-
-spondis Alda.
+—Mi ne scias, eble instruas esperanton al tiu Paŭlo, respondis Alda.
 
 Alekso nenion diris pri tiu informo, kaj post ioma silento Alda aldonis:
 
 —Ajna ne kunestas kun ni kiel antaŭe.
-
-
-INFANOJ EN TORENTO
 
 
 —ĉu ne? Kial? demandis Alekso.
@@ -5117,20 +4285,13 @@ Alda skuis la ŝultrojn, sed Johano ekridis kaj diris:
 
 ke vi iel sentus tion …
 
-Estiĝis silento. Alda atente rigardis Alekson, kaj ŝia vizaĝ-
-
-esprimo nuanciĝis de hezita parolemo.
+Estiĝis silento. Alda atente rigardis Alekson, kaj ŝia vizaĝesprimo nuanciĝis de hezita parolemo.
 
 —Nu, kion vi volas diri? li demandis intimvoĉe kaj kun rideto, kiu portis ombreton de melankolio.
 
 ŝi ne tuj respondis sed daŭrigis rigardi lin.
 
-—Mi estas tiel stranga, ŝi fine diris kvazaŭ ĝenite Mi ĉiam observas la homojn kaj ne povas lasi tion. Estas kvazaŭ mi travidus ilin, ĉar ĉio, kion ili havas interne, estas skribita en iliaj vizaĝoj. Kaj io ĉe ili forpuŝas aŭ altiras min … sed malofte altiras. Kiam mi rigardis ilin, precipe se estas multaj, mi ekhavas la senton, ke ili formas iun strangan societon, ekster kiu ni staras tute solaj. Kaj ŝajnas al mi, ke iliaj kapoj estas mal-plenaj, ke ili ne havas animon, kaj samtempe mi sentas en mi mem ion, ian deziron pri la vivo, kiun ili ne povus kompreni, kaj pri kiu ili certe ridus, se ili povus percepti ĝin. Kaj tiam mi kvazaŭ rigidiĝas, tiel strange sonĝas, estas preskaŭ terure. Kaj foje mi hontas pri mi mem kaj diras al mi: Ili ja tamen estas bonaj homoj, kiel homoj ordinare estas, kial vi do rigar-188
-
-INFANOJ EN TORENTO
-
-
-das ilin tiamaniere, kial vi ne povas ŝati ilin kaj interrilati kun ili kiel kun viaj amikoj. Sed mi ne povas …
+—Mi estas tiel stranga, ŝi fine diris kvazaŭ ĝenite Mi ĉiam observas la homojn kaj ne povas lasi tion. Estas kvazaŭ mi travidus ilin, ĉar ĉio, kion ili havas interne, estas skribita en iliaj vizaĝoj. Kaj io ĉe ili forpuŝas aŭ altiras min … sed malofte altiras. Kiam mi rigardis ilin, precipe se estas multaj, mi ekhavas la senton, ke ili formas iun strangan societon, ekster kiu ni staras tute solaj. Kaj ŝajnas al mi, ke iliaj kapoj estas mal-plenaj, ke ili ne havas animon, kaj samtempe mi sentas en mi mem ion, ian deziron pri la vivo, kiun ili ne povus kompreni, kaj pri kiu ili certe ridus, se ili povus percepti ĝin. Kaj tiam mi kvazaŭ rigidiĝas, tiel strange sonĝas, estas preskaŭ terure. Kaj foje mi hontas pri mi mem kaj diras al mi: Ili ja tamen estas bonaj homoj, kiel homoj ordinare estas, kial vi do rigardas ilin tiamaniere, kial vi ne povas ŝati ilin kaj interrilati kun ili kiel kun viaj amikoj. Sed mi ne povas …
 
 ŝi silentiĝis kaj Alekso rigardis ŝin kun strange intensa esprimo en sia vizago.
 
@@ -5148,9 +4309,7 @@ Alekso senvorte kapklinetis al ŝi.
 
 ŝi rigardis lnfuzite.
 
-—Jes, mi memoras … Sed de tiam mi neniam vidis vin eb-
-
-ria. Kial?
+—Jes, mi memoras … Sed de tiam mi neniam vidis vin ebria. Kial?
 
 Kaj Alekso ridetis.
 
@@ -5169,9 +4328,6 @@ Kaj Alekso ridetis.
 Esprimo de surprizo aperis en ŝia vizaĝo, kiu poste kvazaŭ heliĝis.
 
 —ĉu tiel. Sed ni estas ja nur infanoj …
-
-
-INFANOJ EN TORENTO
 
 
 Li turnis sin al Arne kaj Johano, kiujn li tiam kaj tiam rigardis dum la interparolo kun Alda.
@@ -5206,20 +4362,13 @@ amata. Estus ja kvazaŭ aĉeti favoron kaj krome per falsa mo-no. Kaj kiel mi po
 
 —Dece ja, komentis Johano. Tiel diris ankaŭ mia fratino.
 
-—Hm, murmuris Alda. Sed ni lasu tion. Ni ja preskaŭ kla-
-
-ĉis.
+—Hm, murmuris Alda. Sed ni lasu tion. Ni ja preskaŭ klaĉis.
 
 ŝi levis la okulojn kaj subite elkriis:
 
 —Rigardu, rigardu!
 
-La suno ekbrilis inter la nuboj, la unuan fojon post tuta monato kun kompakte griza ĉielo. La nuboj nuanciĝis en deli-190
-
-INFANOJ EN TORENTO
-
-
-kataj koloroj, dispeliĝis kaj fordrivis en la spaco kiel malpeza, molkontura vaporaĵo. La frostorigidaj trajtoj de la vintra pejzaĝo viviĝis en la purpura lumo de la vespersuno.
+La suno ekbrilis inter la nuboj, la unuan fojon post tuta monato kun kompakte griza ĉielo. La nuboj nuanciĝis en delikataj koloroj, dispeliĝis kaj fordrivis en la spaco kiel malpeza, molkontura vaporaĵo. La frostorigidaj trajtoj de la vintra pejzaĝo viviĝis en la purpura lumo de la vespersuno.
 
 —Estas ja printempo! diris Alda, kaj ŝia vizaĝo radiis. Vidu kiel mola aspektas la aero!
 
@@ -5248,9 +4397,6 @@ Nun envenis la edzino kun kafo, kaj ili prenis lokon ĉe la tablo. La sunbrilo r
 —Tiel. Kaj vi volas, ke mi partoprenu! … Bone do, alportu al mi kelkajn taŭgajn librojn, kaj ni vidu, ĉu mi taŭgas por la ludo …
 
 
-INFANOJ EN TORENTO
-
-
 Eriko pasigis la vesperojn en sia propra maniero. Dum la
 
 unua tempo de sia subtenlaboro li kondutis same kiel
@@ -5273,12 +4419,7 @@ konscia pensado. Li pli atente ol antaŭe ekzamenis la enhavon de la gazeto kaj 
 
 estaĵo, ĵus veninta en la mondon … Kio fariĝos el ŝi?
 
-—ĉu pri tiaj aferoj vi revas? diris Elsa kaj ekridis. Eble vi baldaŭ edziĝos? ĉu vi do revas pri bela estonto por ŝi? Verŝaj-192
-
-INFANOJ EN TORENTO
-
-
-ne ŝi estos ordinara homo kiel ni, nur en romanoj la sorto estas speciale favora.
+—ĉu pri tiaj aferoj vi revas? diris Elsa kaj ekridis. Eble vi baldaŭ edziĝos? ĉu vi do revas pri bela estonto por ŝi? Verŝajne ŝi estos ordinara homo kiel ni, nur en romanoj la sorto estas speciale favora.
 
 —Ne tiel mi pensis, diris Eriko. Mi pensis: Kian homon
 
@@ -5298,9 +4439,7 @@ Ni ja preskaŭ neniam blasfemas, kaj vi ja preskaŭ perdis la parolpovon, kvanka
 
 —Mi scias. Kaj mi ne parolas pri peko … kvankam oni en
 
-certa senco rajtus nomi peko diversajn kondutojn de plen-
-
-kreskuloj rilate al infanoj. Kaj mi pensis ne precipe pri blasfemado, estas tiom da aliaj aferoj, pli signifaj. Sed kiom da stulteco indikas sole ĝi!
+certa senco rajtus nomi peko diversajn kondutojn de plenkreskuloj rilate al infanoj. Kaj mi pensis ne precipe pri blasfemado, estas tiom da aliaj aferoj, pli signifaj. Sed kiom da stulteco indikas sole ĝi!
 
 —Kiel parolema vi fariĝis! diris Elsa kun rido. Kaj kiel saĝa!
 
@@ -5308,21 +4447,13 @@ Certe vi estos ideala patro! —
 
 Kiam Johano komencis instrui al li esperanton li fariĝis pli aktiva. Ili uzis lernolibron taŭgan por memstara lernado, kaj post la elementaj klarigoj de Johano li provis solvi la taskojn sen helpo de la frato. Sed baldaŭ la gramatikaĵoj fariĝis peni-gaj.
 
-—ŝajnas al mi, ke ni lernis iom da gramatiko en la lerne-
-
-
-INFANOJ EN TORENTO
-
-
-jo, li diris al Johano, sed fakte mi scias nenion. Kaj mi ne scias eĉ skribi svedajn vortojn korekte. Estas ja terure!
+—ŝajnas al mi, ke ni lernis iom da gramatiko en la lernejo, li diris al Johano, sed fakte mi scias nenion. Kaj mi ne scias eĉ skribi svedajn vortojn korekte. Estas ja terure!
 
 —Ne tre gravas, se via ortografio ne estas absolute korek-ta, diris Johano. Ankaŭ mi faras erarojn.
 
 —Vi diras, ke ne gravas? Povas ja esti, mi konas tre bonajn homojn, kiuj ne povus skribi unu linion korekte, kaj ili ŝajnas al mi same bonaj malgraŭ tio. Sed … vidu, mi provis fari ordon en mia kapo, kaj mi sentas, ke tia fuŝo ne estas tolerin-da. Fuŝo estas fuŝo. Mi vidis, ke vi konservas la gramatikon kaj la ortografian vortaron de la lernejo. Donu ilin al mi!
 
-En la sekvantaj semajnoj li studis krom esperanto grama-
-
-tikon, kaj ofte li petis klarigojn de Johano. Sed en kelkaj aferoj tiu ne sciis pli multe ol Eriko. Tiam Eriko grimacis malkontente, kaj Johano kiel eble plej baldaŭ pliriĉigis sian scion ĉe la knabinoj aŭ ĉe Alekso.
+En la sekvantaj semajnoj li studis krom esperanto gramatikon, kaj ofte li petis klarigojn de Johano. Sed en kelkaj aferoj tiu ne sciis pli multe ol Eriko. Tiam Eriko grimacis malkontente, kaj Johano kiel eble plej baldaŭ pliriĉigis sian scion ĉe la knabinoj aŭ ĉe Alekso.
 
 Iun vesperon, kiam la fratoj sidis ĉe sia komuna labortablo, deklaris Eriko, ke li volas ripeti matematikon.
 
@@ -5334,9 +4465,7 @@ Iun vesperon, kiam la fratoj sidis ĉe sia komuna labortablo, deklaris Eriko, ke
 
 Johano donis al li la matematikan lernolibron por la lasta lerneja klaso, kaj li komencis ripeti la pli gravajn partojn.
 
-Dum kelkaj vesperoj li tiom revivigis sian forgesitan scion, ke li kuraĝis transiri al la kurso por la daŭriga lernejo. Johano estis finanta la duan kurson de la daŭriga lernejo, kaj tial li 194
-
-INFANOJ EN TORENTO
+Dum kelkaj vesperoj li tiom revivigis sian forgesitan scion, ke li kuraĝis transiri al la kurso por la daŭriga lernejo. Johano estis finanta la duan kurson de la daŭriga lernejo, kaj tial li
 
 
 ankoraŭ ne havis tempon ion forgesi kaj povis bone helpi
@@ -5346,9 +4475,6 @@ Erikon.
 La freŝa lernemo de Eriko unue ŝajnis al Johano iom tro
 
 pedanta, sed iom post iom li trovis la vesperajn horojn kun la frato pli kaj pli agrablaj, kaj kiam Eriko estis ripetinta la necesajn elementojn, ili komune transiris al taskoj, kiuj estis novaj por ambaŭ.
-
-
-INFANOJ EN TORENTO
 
 
 En la vespero de tiu februara tago, kiam la tri rondanoj vizitis Alekson, deklaris Johano al Eriko, ke li ne povas resti kun li, ĉar li interkonsentis kun la aliaj pri skiado.
@@ -5382,9 +4508,6 @@ Ili ekglitis antaŭen, sed ĉe la plej proksima stratkruciĝo ili renkontis Ajna
 —Sed kompreneble! Kial vi demandas pri tio?
 
 
-INFANOJ EN TORENTO
-
-
 ŝi kuris hejmen sen atenti respondon al sia demando, kaj
 
 post kelkaj minutoj ŝi revenis skiante. La aliaj senvorte ekmovis sin, kaj Johano prenis la lokon de gvidanto. Li veturis suden laŭ transversa strato, kaj post kelkaj momentoj ili troviĝis sur la malgranda ebeno sur la orienta bordo de la rivero. Li sekvis malnovan skispuron, kaj la glito estis bonega.
@@ -5397,9 +4520,7 @@ kaj turnis sin al la sekvantoj.
 
 tono.
 
-—Iom, respondis Ajna. Sed estas agrable. Tamen ni ripo-
-
-zu por momento, estas tiel bele.
+—Iom, respondis Ajna. Sed estas agrable. Tamen ni ripozu por momento, estas tiel bele.
 
 Sensona silento ĉirkaŭis ilin, la plenluno brilis potence, kaj la steloj estis molaj kaj grandaj en la printempe molblua ĉielo, sub kiu la blankaj neĝovastoj etendis sin ĝis la fora horizonto.
 
@@ -5415,9 +4536,7 @@ Estas tiel bele.
 
 La moketo havis amikan tonon, kaj Ajna ne koleriĝis. ŝi rigardis Aldan, kaj ŝiaj okuloj havis profundan kaj klaran brilon.
 
-—Eble, ŝi diris kaj ridis konsente al la ŝerco. ĉio aspektas 197
-
-INFANOJ EN TORENTO
+—Eble, ŝi diris kaj ridis konsente al la ŝerco. ĉio aspektas
 
 
 kvazaŭ tute nova al mi, kvazaŭ mi vidus ĝin la unuan fojon.
@@ -5430,15 +4549,11 @@ Johano interrompis ilin kaj diris, ke oni daŭrigu. Ili demandis kien, kaj li de
 
 Ili konsentis, kaj Johano denove ekglitis kiel gvidanto, sek-vata laŭvice de la knabinoj, Arne kaj Eriko. Eriko antaŭ kelkaj jaroj estis fervora kaj lerta skianto, kaj li sekvis la aliajn per longaj, molaj glitoj, kiuj postulis nek fortostreĉon nek atenton. Rekompence por la perdita studhoro li pense ripetis siajn akiritajn sciojn en gramatiko kaj matematiko, dum liaj okuloj duonatente observis la ĉirkaŭaĵon kaj la antaŭajn skian-tojn.
 
-Duonkonscie liaj rigardoj dum kelka tempo sekvis la mo-
-
-lajn kaj graciajn movojn de la knabinoj, kaj dum liaj pensoj laboris pri kalkulmetodoj, li duonkonscie sentis, ke li vidas ion delikate belan, kio vekas imagon pri junaj floroj. Subite la impreso eniris lian konscion, kaj liaj pensoj fortumis sin de ripetado.
+Duonkonscie liaj rigardoj dum kelka tempo sekvis la molajn kaj graciajn movojn de la knabinoj, kaj dum liaj pensoj laboris pri kalkulmetodoj, li duonkonscie sentis, ke li vidas ion delikate belan, kio vekas imagon pri junaj floroj. Subite la impreso eniris lian konscion, kaj liaj pensoj fortumis sin de ripetado.
 
 Kaj li ekmiris. Multfoje li rigardis knabinojn, kaj la molaj linioj de iliaj korpoj mistere altiris liajn sentojn, sed neniam ili faris al li tian impreson.
 
-Ili estas tiel junaj, li pensis, eble pro tio … Sed ankaŭ junajn knabinojn li rigardis, kaj se ilia aspekto plaĉis al li, ili estis por li kvazaŭ akirotaĵo, por li kiel por liaj kamaradoj. Oni taksis 198
-
-INFANOJ EN TORENTO
+Ili estas tiel junaj, li pensis, eble pro tio … Sed ankaŭ junajn knabinojn li rigardis, kaj se ilia aspekto plaĉis al li, ili estis por li kvazaŭ akirotaĵo, por li kiel por liaj kamaradoj. Oni taksis
 
 
 kaj donis poentojn, kvazaŭ temus pri ĉevaloj … Sed la memo-ro naŭzis lin, kaj ĝi forglitis kiel senkontura ombro. Kial li an-taŭe ne vidis tion, kion li nun vidas? Eble tiuj knabinoj diferencis de tiuj ĉi, eble ne … Subite li ekpensis pri la knabineto de sia fratino. Jes, tiel estis, li ekvidis ion, kion li antaŭe ne povis percepti, eĉ se ĝi ekzistis …
@@ -5460,18 +4575,13 @@ kaj patrino estas for kaj ne revenos antaŭ la deka.
 Eriko rigardis sian horloĝon kaj diris:
 
 
-INFANOJ EN TORENTO
-
-
 —ĉu ili ne malŝatus tion?
 
 —Kompreneble ne. Mi volis diri nur tion, ke ni estos inter ni.
 
 Post kelkaj minutoj iii troviĝis en la hejmo de Alda. ŝi rapide faris fajron en la kuirejo kaj faris la ceterajn preparojn, dum la aliaj sidiĝis en la interna ĉambro. Apenaŭ ili eksidis, kiam Arne turnis sin al Ajna.
 
-—ĉu vi bonvolus sidiĝi antaŭ la forno? Estas konvena lu-
-
-mo tie. Mi nome ŝatus desegni vin.
+—ĉu vi bonvolus sidiĝi antaŭ la forno? Estas konvena lumo tie. Mi nome ŝatus desegni vin.
 
 —Denove! Kaj ĝuste nun post dekkvinkilometra skiado!
 
@@ -5506,9 +4616,6 @@ Lia vizaĝo ricevis esprimon de intensa koncentriĝo kaj preskaŭ rigidiĝis, li
 —Ne babilu! … Mi laboris la tutan vojon, vi sidas por kon-trolo.
 
 
-INFANOJ EN TORENTO
-
-
 Dume Alda aranĝis por trinkado, kaj kiam ĉio estis preta, rektigis sin Arne de sia kurbdorsa pozicio, atente rigardis Ajnan dum kelkaj momentoj kaj poste la desegnon kaj faris profundan spiron kvazaŭ post pena fortostreĉo.
 
 Ajna petis pri la desegno, kaj medite rigardis gin, dum la aliaj atakis la buterpanojn kaj komencis gustumi la teon.
@@ -5525,9 +4632,7 @@ Kaj ŝi alterne rigardis la portreton kaj Ajnan, kaj ŝia mieno seriozigis.
 
 —Jes, estas tre bona …
 
-Eriko per peta movo etendis sian manon, kaj Ajna trans-
-
-donis la desegnon al li. Li rigardis unue la bildon, poste Arnen, kaj fine Ajnan. Li diris nenion, sed kapklinis aprobe al Arne.
+Eriko per peta movo etendis sian manon, kaj Ajna transdonis la desegnon al li. Li rigardis unue la bildon, poste Arnen, kaj fine Ajnan. Li diris nenion, sed kapklinis aprobe al Arne.
 
 Post la teo ili restis kune ankoraŭ iom da tempo kaj intime babilis.
 
@@ -5550,16 +4655,11 @@ fakte mi ne pensis pri tio. ĉu vi koleras al mi?
 —Sed kial? … Ajna rigardis ŝin demande.
 
 
-INFANOJ EN TORENTO
-
-
 —Mi nur pensis, vi ja iom intimiĝis kun Paŭlo kaj lia societo, almenaŭ ŝajnis tiel en la kunvenoj. Kaj kial ne?
 
 —Jes, estas vere, mi kunestis iomete kun ili, kun Paŭlo mi eĉ estis dufoje en la kino.
 
-—Nu vidu! Kial vi do sekretas? diris Alda bonhumore. Paŭ-
-
-lo kaj lia societo ne precize plaĉas al mi, sed … ĉu vi ŝatas ilin?
+—Nu vidu! Kial vi do sekretas? diris Alda bonhumore. Paŭlo kaj lia societo ne precize plaĉas al mi, sed … ĉu vi ŝatas ilin?
 
 —Mi ne plu kunestas kun ili.
 
@@ -5569,9 +4669,7 @@ Ajna ridetis animforeste.
 
 —Nu … fakte mi ne pensis pri tio. Mi estis hejme la tutan tempon, helpis patrinon, iom legis. Mi ŝatis esti sola, sed mi ne pensis, ke vi kolerus al mi pro tio.
 
-—Ni ne koleris, nur pensis, ke vi eble forlasos nian ron-
-
-don …
+—Ni ne koleris, nur pensis, ke vi eble forlasos nian rondon …
 
 Kiam ili prenis siajn ĉapojn por foriri, diris Alda petvoĉe:
 
@@ -5591,16 +4689,11 @@ Arne momente inspektis ŝin kaj diris sektone.
 
 sur tiun ĉi bildon de vi, kaj metus ĝin tiamaniere, tio ja de-truus la tutan aferon!
 
-—Povas ja esti, sed … ĉu mi ne rajtas meti la ĉapon kiel pla-
-
-ĉas al mi? ĉu tiel terure aspektas, Eriko?
+—Povas ja esti, sed … ĉu mi ne rajtas meti la ĉapon kiel plaĉas al mi? ĉu tiel terure aspektas, Eriko?
 
 Eriko rigardis kvazaŭ esplore rekte en ŝiajn okulojn, skuetis la ŝultrojn kaj diris:
 
 —Mi ne scias. Sed eble vi ne devus tiel … tuŝi viajn revojn.
-
-
-INFANOJ EN TORENTO
 
 
 La frazo sonis kiel senenhava ŝerco, sed estis en ĝi ia serioza subtono. La mieno de Ajna estis unue senkomprena kaj
@@ -5622,9 +4715,6 @@ Ajna returnis sin al Eriko.
 ŝiaj okuloj momente renkontis la liajn, kaŝiĝeme kaj mire-demande, kaj forglita rideto revbrile tuŝetis ŝiajn lipojn.
 
 
-INFANOJ EN TORENTO
-
-
 En la fino de marto estis belega vetero. La suno jam faris grandan paŝon returne al la nordo, kaj de mateno ĝis
 
 vespero ĝi brilis en netuŝita klareco sur la printempoblua ĉie-lo. Molaj ventoj venis el Sudokcidento, kaj la aero fariĝis varmeta.
@@ -5644,12 +4734,7 @@ Li haltis por momento kaj poste ekmovis sin por pluiri.
 Post kelkaj minutoj ŝi elvenis, kaj ili ekveturis. La neĝo-tavolo sur la strato estis iom malebena kaj duone glaciiĝinta kaj ne taŭga por skiado. Baldaŭ ili atingis la randon de la arbaro kaj suriris netuŝitan neĝon. Tie estis pli bone, sed la surfaco de la neĝo krustiĝis pro la nokta frosto, kaj la glitado sur la malmola krustaĵo ne estis same agrabla kiel en mola neĝo.
 
 
-INFANOJ EN TORENTO
-
-
-—Aĉa neĝo por skiado! rimarkigis Ajna, rompante la reci-
-
-prokan silenton.
+—Aĉa neĝo por skiado! rimarkigis Ajna, rompante la reciprokan silenton.
 
 —Nu jes, sed mi eliris nur por rigardi, ne por skii, respondis Arne duonatente. La krusto ankoraŭ ne portas por piedi-ro, kaj do estas pli bone uzi skiojn.
 
@@ -5659,9 +4744,7 @@ La suno brilis kaŝlude malantaŭ branĉoj kaj trunkoj, oblik-vaj radifaskoj pen
 
 Dum preskaŭ du horoj ili tiel ĉirkaŭvagis, malrapide kaj
 
-prenante la direkton laŭ la inklino de la momento. Komen-
-
-ce Ajna de tempo al tempo diris kelkajn vortojn al Arne, sed li respondis same duonatente kiel antaŭe, kaj iom post iom ankaŭ ŝi silentiĝis.
+prenante la direkton laŭ la inklino de la momento. Komence Ajna de tempo al tempo diris kelkajn vortojn al Arne, sed li respondis same duonatente kiel antaŭe, kaj iom post iom ankaŭ ŝi silentiĝis.
 
 Poste ili venis al deklivo sur la suda flanko de Gufmonto, proksime al la ebeno. La neĝo jam fordegelis tie, kaj en la suno estis varme kiel en plena printempo. En la plej ripoz-invita loko kuŝis tavole kelkaj trunkoj de karboligno.
 
@@ -5669,9 +4752,7 @@ Poste ili venis al deklivo sur la suda flanko de Gufmonto, proksime al la ebeno.
 
 —Mi kunmetis ilin por sidi tie en la suno, estas la plej bona loko, kiu troviĝas en la tuta arbaro. Hodiaŭ estas tiel varme, ke ni bone povas sunbani nin.
 
-Li malfiksis la piedligojn kaj starigis la skiojn kontraŭ arbo 205
-
-INFANOJ EN TORENTO
+Li malfiksis la piedligojn kaj starigis la skiojn kontraŭ arbo
 
 
 en ombra loko. Same faris ŝi kaj poste ili sidiĝis sur la trun-kojn.
@@ -5698,15 +4779,11 @@ Li kvazaŭ hazarde levis la rigardon al ŝi, kaj en ŝiaj okuloj kaj en la tuta 
 
 —Vi aspektas, kvazaŭ vi volus desegni min! ŝi diris.
 
-—Ne nun, mi volas sunbani min. Aŭ ĉu vi devas reiri hej-
-
-men?
+—Ne nun, mi volas sunbani min. Aŭ ĉu vi devas reiri hejmen?
 
 —Ne, ne urĝas.
 
-—Do ni sunbanu nin, ĉu ne? Ne estas danĝere. Mi iom ko-
-
-mencis jam antaŭ kelkaj tagoj, kaj tiam la aero estis tute fre-
+—Do ni sunbanu nin, ĉu ne? Ne estas danĝere. Mi iom komencis jam antaŭ kelkaj tagoj, kaj tiam la aero estis tute fre-
 
 ŝa.
 
@@ -5714,9 +4791,7 @@ mencis jam antaŭ kelkaj tagoj, kaj tiam la aero estis tute fre-
 
 Li komencis demeti siajn vestojn sen atenti pri ŝi. Dum kelkaj momentoj ŝi rigardis lin, kvazaŭ hezite kaj demande. Poste ankaŭ ŝi demetis la vestojn.
 
-Kaj ili duonkuŝis tie sur la trunkoj, kun fermitaj palpebroj kaj la vizaĝoj turnitaj al la suno. La korpoj trinkis sunon kaj 206
-
-INFANOJ EN TORENTO
+Kaj ili duonkuŝis tie sur la trunkoj, kun fermitaj palpebroj kaj la vizaĝoj turnitaj al la suno. La korpoj trinkis sunon kaj
 
 
 freŝan aeron, kaj la kvieto estis kiel dolĉa, trankviliga muziko.
@@ -5747,11 +4822,7 @@ La streĉita esprimo malaperis el ŝia vizaĝo, kaj ŝi rigardis lin preskaŭ mi
 
 pensis pri ĝi tiamaniere …
 
-—Sed vi interrompis min, ŝi daŭrigis. Mi pensis proksimu-
-
-me tiel, kiel vi ĵus diris, kaj subite estis, kvazaŭ mi rigardus min per la okuloj de aliaj homoj kaj en la sekvanta momento per miaj propraj, kaj mi ekhavis iun strangan senton, ke vi 207
-
-INFANOJ EN TORENTO
+—Sed vi interrompis min, ŝi daŭrigis. Mi pensis proksimume tiel, kiel vi ĵus diris, kaj subite estis, kvazaŭ mi rigardus min per la okuloj de aliaj homoj kaj en la sekvanta momento per miaj propraj, kaj mi ekhavis iun strangan senton, ke vi
 
 
 troviĝas kvazaŭ en alia mondo, kvazaŭ tiel malproksime …
@@ -5783,9 +4854,6 @@ Vere bela estas nur tio, kio montras sin precize tia, kia ĝi estas, se ĝi cete
 Kiam mi nun rigardas bildojn en gazetoj kaj revuoj, mi ofte ekhavas la senton, ke la mondo estas plena de afektemo.
 
 
-INFANOJ EN TORENTO
-
-
 —Bone, vi komencas kompreni, kia bona bildo devas esti.
 
 —Sed Arne, vi parolas, kvazaŭ ĉio estus nur objekto por
@@ -5797,12 +4865,7 @@ pentrado! Bildo tamen ne estas vivo.
 Bildo estas nur bildo … Sed nun ni surmetu la vestojn kaj mo-viĝu. Estas tro frue por longe sunbani sin.
 
 
-INFANOJ EN TORENTO
-
-
-En la sekvantaj matenoj ankaŭ Alda kaj Johano parto-
-
-prenis la skipromenadojn de Arne. Kiam ili renkontiĝis
+En la sekvantaj matenoj ankaŭ Alda kaj Johano partoprenis la skipromenadojn de Arne. Kiam ili renkontiĝis
 
 antaŭ la hejmo de Ajna kaj poste veturis antaŭen sur la strato, aperis tie kaj tie en la fenestroj virinaj vizaĝoj, kies mienoj kvazaŭ demandis, kion ili faras, kaj kien ili iras. Ili vidis la vizaĝojn kaj sentis la rigardojn sed nemulte atentis pri ili.
 
@@ -5821,9 +4884,6 @@ Li rigardis ŝin kaj ridis bonkore. En liaj okuloj ekbriletis esprimo, kiun ŝi 
 Subite aperis al ŝi la sceno, kiam ili antaŭ du jaroj sidis kaj interparolis post la rondiro tra la dezerta uzino.
 
 —Nu ja, ŝi diris iom konfuzita. ĉu vi memoras, ke vi iam
-
-
-INFANOJ EN TORENTO
 
 
 diris, ke la plenkreskuloj ŝajnas al vi stultaj? Estis en tiu tago, kiam ni travagis la uzinon kaj poste sidis interparolante tie, tuj antaŭ ol venis Alekso.
@@ -5854,11 +4914,7 @@ Johano rigardis laŭ ŝia indiko kaj restis silenta.
 
 —Tiam vi ja revis pri tio, ŝi diris.
 
-—Ankoraŭ mi foje pensas pri tio. Image mi aŭdas la grin-
-
-cadon, la marteladon kaj la zumadon, la tutan muzikon, kaj 211
-
-INFANOJ EN TORENTO
+—Ankoraŭ mi foje pensas pri tio. Image mi aŭdas la grincadon, la marteladon kaj la zumadon, la tutan muzikon, kaj
 
 
 vidas la fluantan feron kaj la ruĝajn serpentojn en la lamenejo kaj la ŝvitkovritajn laboristojn. Tio plaĉis al mi …
@@ -5875,9 +4931,7 @@ mi ne ŝatas tiun babilmanieron. Se vi iel estas pli bona ol tiuj panjoj, vi ne 
 
 Post ĉirkaŭvagado en la arbaro ili sunbanis sin en la kuti-ma loko. Ili kuŝis tie en la fluanta sunlumo sub la altaj piceoj, vento lulkante flustretis inter la branĉoj, kaj Torento kaj la tuta ekstera mondo estis malproksime al ili.
 
-Johano tiam kaj tiam movetis sin, kvazaŭ li estus malkon-
-
-tenta pri io. Fine li kun decida mieno turnis sin al Alda.
+Johano tiam kaj tiam movetis sin, kvazaŭ li estus malkontenta pri io. Fine li kun decida mieno turnis sin al Alda.
 
 —ĉu mi ĉagrenis vin? Mi ja parolis al vi kontraŭe al miaj propraj vortoj, sed mi pensis, ke inter ni …
 
@@ -5895,9 +4949,7 @@ La mieno de Johano konsterniĝis, kaj li silentis dum kelkaj momentoj.
 
 —Strange, li poste diris. Tiel precize mi ne pensis pri tio.
 
-Mi juĝas ĉion laŭ mia ŝato. Jes, estas tiel. Kaj ĉiu juĝas laŭ sia 212
-
-INFANOJ EN TORENTO
+Mi juĝas ĉion laŭ mia ŝato. Jes, estas tiel. Kaj ĉiu juĝas laŭ sia
 
 
 ŝato. Kaj la ŝato de unu ne povas havi pli grandan rajton ol tiu de alia …
@@ -5927,9 +4979,6 @@ Kaj ŝi rakontis pri ilia interparolo en tiu mateno.
 —Estas bele, diris Johano, kiam ŝi finis.
 
 
-INFANOJ EN TORENTO
-
-
 En la paska semajno revenis Brita kaj ŝia patrino al la pensiono. Brita tuj iris por viziti Aldan kaj la aliajn kamaradojn. Dum la vintro ili letere konservis sian interrilaton, kaj ili ĝojis pro la revido.
 
 Alda kondukis ŝin en la ĉambron apud la kuirejo, kaj ŝi tuj sidigis smforte sur la remburitan sofon kaj metis eĉ la piedojn sur la sofon.
@@ -5942,9 +4991,7 @@ Alda rigardis ŝin interkompreniĝe sed nenion diris. Post
 
 momento la alia knabino aldonis:
 
-—Ne faru tian kompatan mienon! Mi ne estas tiel senti-
-
-mentala kiel en tiu poemo, kiun mi sendis al vi kristnaske. Mi volis diri nur tion, ke mi sentas min tute hejme ĉe vi.
+—Ne faru tian kompatan mienon! Mi ne estas tiel sentimentala kiel en tiu poemo, kiun mi sendis al vi kristnaske. Mi volis diri nur tion, ke mi sentas min tute hejme ĉe vi.
 
 —Ankaŭ la nova ordo do ne plaĉas al vi?
 
@@ -5956,9 +5003,7 @@ disiĝo de patro kaj pro tio, ke patrino kaj mi havos propran hejmon. Sed poste 
 
 poemo.
 
-—Sed vi havas unu la alian. Mi estas sola. Post la kunesto kun vi pasintsomere mi fariĝis ankoraŭ pli sola. Kun vi mi vivis, kiel mi ŝatas, poste mi sentis min kvazaŭ en kaĝo. La 214
-
-INFANOJ EN TORENTO
+—Sed vi havas unu la alian. Mi estas sola. Post la kunesto kun vi pasintsomere mi fariĝis ankoraŭ pli sola. Kun vi mi vivis, kiel mi ŝatas, poste mi sentis min kvazaŭ en kaĝo. La
 
 
 homoj aranĝas ĉion tiel diable stulte, kvazaŭ nur por enuigi kaj turmenti sin.
@@ -5984,9 +5029,6 @@ Post duonhoro ili atingis la lokon. La arbaro estis densa, kaj ili nenion vidis,
 —Kiel lerta vi estas! diris Johano admire. Estas ja kvazaŭ magio.
 
 
-INFANOJ EN TORENTO
-
-
 —Bonŝanco, diris Brita. Kompreneble ni povus erari pri
 
 cento da metroj.
@@ -6009,12 +5051,7 @@ Kaj ŝi ridetis kaj rigardis Britan kvazaŭ demandante, ĉu tio sonas ridinde. B
 
 —Mi ne scias, diris Alda. Eble la maljunulo estus povinta tion klarigi.
 
-Ili surgrimpis la altaĵon. Inter la arboj ili momente distin-216
-
-INFANOJ EN TORENTO
-
-
-gis Lupolagon, kovritan de griznigra, solviĝanta glacio, kaj nordokcidente de ĝi ĉe la horizonto la rondan kapon de Sunmonto. Sed la arbaro tuj denove englutis ilin, Sunmonto malaperis, kaj ili revidis ĝin, nur kiam ili post horlonga, peniga marŝado proksimiĝis al ĝia supro.
+Ili surgrimpis la altaĵon. Inter la arboj ili momente distingis Lupolagon, kovritan de griznigra, solviĝanta glacio, kaj nordokcidente de ĝi ĉe la horizonto la rondan kapon de Sunmonto. Sed la arbaro tuj denove englutis ilin, Sunmonto malaperis, kaj ili revidis ĝin, nur kiam ili post horlonga, peniga marŝado proksimiĝis al ĝia supro.
 
 La verto de la monto estis preskaŭ nuda. Grizaj likenoj kovris la rokan grundon. Tie kaj tie staris fasketoj da eriko, vakcinio kaj mirtelo, kiuj trovis iom da humo kaj akvo en la ka-vetoj kaj fendaĵoj de la grundo.
 
@@ -6024,9 +5061,7 @@ Tie kaj tie en la valoj kuŝis lagetoj kaj lagoj kun griznigra degelanta glacio,
 
 Sudoriente estis videbla parto de la ebeno kun la preĝeja vilaĝo, kaj kontraŭ ĝi konturiĝis la pintoj de tubegoj en Torento, kvazaŭ leviĝantaj el la arbaro, sed cetere oni ne povis distingi eĉ vilaĝeton, kaj kelkaj bienetaj domoj, kiuj brilis en ruĝa koloro malproksime sur la montodeklivoj, ŝajnis senespere solecaj kaj kvazaŭ kaptitaj de la arbaro.
 
-—Estas kiel sur la maro, same solece, diris Brita. Jen iu ŝipo, 217
-
-INFANOJ EN TORENTO
+—Estas kiel sur la maro, same solece, diris Brita. Jen iu ŝipo,
 
 
 kiu vidiĝas kaj malaperas ie malproksime, jen fumstrio ĉe la horizonto, cetere nur senfina akvovasto.
@@ -6039,9 +5074,7 @@ kiu vidiĝas kaj malaperas ie malproksime, jen fumstrio ĉe la horizonto, cetere
 
 —Senlaboruloj kaj subtenlaboruloj, diris Johano.
 
-—Kaj ĉiuj patrinoj kaj infanoj? daŭrigis Brita. Nu, kom-
-
-preneble ili restas en siaj lokoj, tie kaj tie, tie kaj tie. Tiuj lokoj kuŝas en la arbaro kiel dronintaj ŝipoj sur la fundo de la maro. Sed la homoj tamen vivas … kiel homoj en dronintaj
+—Kaj ĉiuj patrinoj kaj infanoj? daŭrigis Brita. Nu, kompreneble ili restas en siaj lokoj, tie kaj tie, tie kaj tie. Tiuj lokoj kuŝas en la arbaro kiel dronintaj ŝipoj sur la fundo de la maro. Sed la homoj tamen vivas … kiel homoj en dronintaj
 
 submaraj ŝipoj.
 
@@ -6053,34 +5086,23 @@ submaraj ŝipoj.
 
 Kaj ŝi levis la kapon kaj denove rigardis malproksimen.
 
-—Kaj sur la ondoj kuŝas la grandaj urboj kiel plezurvojaĝaj ŝipoj, kun flagoj kaj brilaj lampoj. Estas festeno sur la ferde-ko, muziko kaj ludado, neniuj zorgoj, pajacaj mienoj, ŝmiri-218
-
-INFANOJ EN TORENTO
-
-
-taj vizaĝoj kaj ŝmiritaj animoj. Sed sube en la ŝipoj estas alia mondo … kaj sur la fundo de la maro kuŝas dronintaj ŝipoj.
+—Kaj sur la ondoj kuŝas la grandaj urboj kiel plezurvojaĝaj ŝipoj, kun flagoj kaj brilaj lampoj. Estas festeno sur la ferde-ko, muziko kaj ludado, neniuj zorgoj, pajacaj mienoj, ŝmiritaj vizaĝoj kaj ŝmiritaj animoj. Sed sube en la ŝipoj estas alia mondo … kaj sur la fundo de la maro kuŝas dronintaj ŝipoj.
 
 Post mallonga restado sur la pinto ili iom malsupreniris sur la suda flanko kaj haltis en bona restadloko, kiun Johano eltrovis dum la supreniro. i estis iom kava, kvazaŭ kolektujo por la sunradioj el la sudo kaj bone ŝirmita kontraŭ ventoj el aliaj flankoj. Johano kuris malsupren por alporti lignon por kafofajro kaj dume la aliaj dissternis la kunportitajn lankovrilojn kaj aranĝis por manĝado.
 
 Post la manĝo ili sunbanis sin. Estis sufiĉe varme, kaj post kelka tempo Brita leviĝis kaj iris al proksima kavaĵo kun akvo kaj rapide lavis sin. Reveninte ŝi okaze rigardis al la montosupro, kaj ŝia mieno subite konsterniĝis.
 
-—Estas homoj sur la monto! ŝi diris kaj embarasite rigar-
-
-dis la aliajn.
+—Estas homoj sur la monto! ŝi diris kaj embarasite rigardis la aliajn.
 
 La aliaj, kiuj kuŝis sur siaj lankovriloj, sidiĝis kaj rigardis supren. Sur la montosupro staris tri junuloj kaj du junulinoj, ĉiuj migroekipitaj, kaj iliaj okuloj estis direktitaj al la rondanoj. Por kelkaj momentoj ambaŭ grupoj restis tute senmovaj, sed subite la tri junuloj salute svingis siajn ĉapojn kaj la junulinoj gaje gestis.
 
-La rondanoj konfuzite rigardis unu la alian, sed post mo-
-
-mento diris Alda decide:
+La rondanoj konfuzite rigardis unu la alian, sed post momento diris Alda decide:
 
 —Ni restu! Ili ja ne aspektas danĝeraj.
 
 Apenaŭ ŝi tion diris, kiam unu el la junuloj ekiris malsupren rekte al ili, kaj li haltis, nur kiam li troviĝis ĉe la supra rando de ilia kampejo. Estis fortikstatura, mezalta junulo kun krudtrajta sed bonkormiena vizaĝo.
 
-—Kia agrabla renkonto! li diris kun ĝojbrila vizaĝo. Vidu, ankaŭ ni estas naturamikoj kaj nudistoj. Ni povas preni lokon 219
-
-INFANOJ EN TORENTO
+—Kia agrabla renkonto! li diris kun ĝojbrila vizaĝo. Vidu, ankaŭ ni estas naturamikoj kaj nudistoj. Ni povas preni lokon
 
 
 apud vi kaj konatiĝi, ĉu ne? Fakte mi ne sciis, ke ekzistas en tiu ĉi regiono aliaj nudistoj ol nia modesta societo.
@@ -6099,9 +5121,7 @@ Kaj sen atendi ilian konsenton li saltpaŝe reiris supren kaj prenis sian lasita
 
 —Pro via elparolo. i iom diferencas de la nia.
 
-—Vi havas lingvotalenton, kamaradino. Jes, vi pravas. Du-
-
-dekkvin kilometrojn ni marŝis hodiaŭ.
+—Vi havas lingvotalenton, kamaradino. Jes, vi pravas. Dudekkvin kilometrojn ni marŝis hodiaŭ.
 
 —Longa vojo por reiri la saman tagon, ĉu ne?
 
@@ -6112,9 +5132,6 @@ dekkvin kilometrojn ni marŝis hodiaŭ.
 —Nur vi? li diris mire. Vi ja estas tiel junaj, ke oni apenaŭ povus kredi, ke vi tute memstare aliĝis al nia ideo. Kiu estas via gvidanto, junaj gekamaradoj?
 
 Alda ekridis kaj klarigis:
-
-
-INFANOJ EN TORENTO
 
 
 —Ni ne estas societo, kaj ni ne estas nudistoj. Ni estas nur rondo de bonaj amikoj.
@@ -6146,12 +5163,7 @@ Lemu tiun lingvon, junaj gekamaradoj, kaj aliĝu al la armeo de idealistoj, kiuj
 Dum tiu interparolo li kaj liaj grupanoj aranĝis sian kam-pejon, kaj ili nun komencis demeti la vestojn por partopreni la sunbanadon de la rondanoj. Kiam li nun eksilentis, turnis sin Brita al siaj amikoj kaj diris:
 
 
-INFANOJ EN TORENTO
-
-
-—Mi pensas, ke mi ne kuraĝas sunbani min pli longe, es-
-
-tas la unua fojo en tiu ĉi jaro.
+—Mi pensas, ke mi ne kuraĝas sunbani min pli longe, estas la unua fojo en tiu ĉi jaro.
 
 —Ankaŭ por ni estas sufiĉe, diris Johano. Krome estas tem-po por ni reiri hejmen. Do!
 
@@ -6169,9 +5181,7 @@ Kaj ili rapide finvestis sin, repakis siajn dorsosakojn kaj kunfaldis siajn lank
 
 —Nu, do ni devas foriri, diris Alda, kiam ili estis pretaj. Ne pensu malbone pri ni pro tio, ke ni tiel abrupte forlasas vin.
 
-—Tute ne, diris la gvidanto iom konfuzite. Mi nur bedaŭ-
-
-ras, ke vi tiel baldaŭ devas foriri. Sed donu vian adreson, por ke ni povu interrilati estonte!
+—Tute ne, diris la gvidanto iom konfuzite. Mi nur bedaŭras, ke vi tiel baldaŭ devas foriri. Sed donu vian adreson, por ke ni povu interrilati estonte!
 
 —Ne gravas! Ni ne estas societo, nur amika rondo, kaj niaj interesoj estas malmultaj. Sed mi promesas, ke mi skribos al vi, se ni fondos naturamikan societon.
 
@@ -6179,13 +5189,7 @@ ras, ke vi tiel baldaŭ devas foriri. Sed donu vian adreson, por ke ni povu inte
 
 Kaj la rondanoj mansvingis adiaŭe kaj malsupreniris.
 
-Ili ne plu uzis karton kaj kompason sed sekvis la arbarajn vojetojn, kiuj kondukis en proksimume ĝusta direkto, agrablajn multkurbajn vojetojn kun mola tapiŝo el brunaj pin-
-
-
-INFANOJ EN TORENTO
-
-
-pingloj. Odoretis de vekiĝanta tero, kaj la formikoj fervore kuradis sur siaj stakoj.
+Ili ne plu uzis karton kaj kompason sed sekvis la arbarajn vojetojn, kiuj kondukis en proksimume ĝusta direkto, agrablajn multkurbajn vojetojn kun mola tapiŝo el brunaj pinpingloj. Odoretis de vekiĝanta tero, kaj la formikoj fervore kuradis sur siaj stakoj.
 
 Sed ili rapide marŝis antaŭen kaj malmulte atentis pri la aspekto de la tereno. Neniu el ili diris ion krom okaza vorto pri vojelekto aŭ simila bagatelo. Post duonhoro ili venis al suna kaj invita loko, kaj tiam Brita proponis, ke ili haltu kaj manĝu la oranĝojn, kiujn ŝi ankoraŭ portis en sia dorsosako.
 
@@ -6210,9 +5214,6 @@ Ili konsentis kaj denove dissternis siajn lankovrilojn kaj tagmanĝis tie kaj po
 Estis same kviete kaj serene kiel en la mateno. La ruĝeta sunlumo sur brunaj trunkoj kaj verdaj branĉoj sentigis la vesperiĝon, sed samtempe la varme hela ĉielo, la freŝaj anemonoj, la terodoro kaj la briltonaj triloj de la kantoturdoj sentigis la naskiĝon de la printempo. Nevideble ĝi ĉion trapenetris, vibretanta de juna vivo, plena de sopiro kaj atendo.
 
 
-INFANOJ EN TORENTO
-
-
 Brita sidis iom for kaj tiam kaj tiam skribis en malgranda notlibro. Fine ŝi fermis ĝin kaj returnis sin al la aliaj.
 
 —ĉu ni iru hejmen?
@@ -6223,9 +5224,7 @@ Brita sidis iom for kaj tiam kaj tiam skribis en malgranda notlibro. Fine ŝi fe
 
 —ĉu vi ne volas laŭtlegi ĝin?
 
-—i ne konvenas por laŭtlegado. Sed ne gravas, mi ja ta-
-
-men povas legi ĝin al vi.
+—i ne konvenas por laŭtlegado. Sed ne gravas, mi ja tamen povas legi ĝin al vi.
 
 ŝi remalfermis la notlibron kaj legis:
 
@@ -6238,9 +5237,6 @@ kiel voĉoj pro ĝojo vibrantaj, kiel vokoj sopire tremantaj. Ho, amikoj, ĉu vi
 —Jen ĉio, ŝi diris post paŭzeto. Mi volis ion aldoni, sed …
 
 
-INFANOJ EN TORENTO
-
-
 III.
 
 En la fino de aprilo aperis en Torento kelkaj fremdaj sinjoroj, kiuj inspektis la uzinojn. Poste venis aliaj. La kontoro reviviĝis, telefonoj sonoris, skribmaŝinoj klakadis, inĝe-nieroj laboris pri desegnoj kaj kalkuloj. Grupo post grupo da laboristoj estis revokata al la hejmo. El nordo kaj sudo, el ori-ento kaj okcidento ili venis. Gaje kiel infanoj salutis sin malnovaj kamaradoj, kiuj dum jaroj ne renkontis unu la alian.
@@ -6249,9 +5245,7 @@ Denove klakadis lignoplandaj pantofloj sur la stratoj, denove oni ellitiĝis kaj
 
 Sur la fervojo inter la stacio kaj la uzino venis trajnoj kun brikoj kaj ligno, kun karbo kaj ferŝtono, kaj la rustintaj relsur-facoj denove komencis ŝtalbrili en la suno. ĉarpentistoj, ma-sonistoj kaj centoj da aliaj laboristoj estis intense okupitaj en ĉiuj partoj de la uzino.
 
-La homoj plivigliĝis, acidaj kaj inertaj mienoj kvazaŭ sor-
-
-ĉe malaperis, inter la laboristoj regis amika kaj kora spirito kiel neniam antaŭe. En la vesperoj la kortoj kaj la peronoj estis plenaj de homoj, kiuj babilis kaj diskutis.
+La homoj plivigliĝis, acidaj kaj inertaj mienoj kvazaŭ sorĉe malaperis, inter la laboristoj regis amika kaj kora spirito kiel neniam antaŭe. En la vesperoj la kortoj kaj la peronoj estis plenaj de homoj, kiuj babilis kaj diskutis.
 
 —Ke ni sukcesis ĝisvivi tiun ĉi momenton! oni diris. Oni
 
@@ -6259,12 +5253,7 @@ apenaŭ kuraĝas kredi, ke tio ĉi estas vera.
 
 —Sed klarigu, diris aliaj, kial ni povas ricevi laboron nun sed antaŭe ne povis! Panon ni ja ĉiam bezonas.
 
-—ĉu vi kredas, ke la sinjoroj zorgas pri nia pano? La konjunkturoj pliboniĝis, iu vidas eblecon gajni monon, jen la afe-225
-
-INFANOJ EN TORENTO
-
-
-ro. La mondo estas regata de mono, ne de panbezono. Kaj
+—ĉu vi kredas, ke la sinjoroj zorgas pri nia pano? La konjunkturoj pliboniĝis, iu vidas eblecon gajni monon, jen la afero. La mondo estas regata de mono, ne de panbezono. Kaj
 
 konjunkturoj … oni bezonas pli da militŝipoj, pli da kanonoj, pli da pafiloj, pli da tankoj kaj flugmaŝinoj. La sinjoroj bezonas nian helpon, kiel ili bezonas la helpon de miloj kaj cent-miloj da laboristoj en aliaj lokoj, en tiu ĉi lando kaj en aliaj landoj.
 
@@ -6272,9 +5261,7 @@ konjunkturoj … oni bezonas pli da militŝipoj, pli da kanonoj, pli da pafiloj,
 
 —Eble, eble eĉ al ni mem, ni ne konas la estonton. Sed kion fari? Panon ni ja devas havi.
 
-—Estas tiel. Vole-nevole ni povas diri nur tiel, kiel iam pre-
-
-ĝis vespere iuj marbordanoj: Dio ĉiopova, kompatu nin kaj lasu ŝipon en tiu ĉi nokto surfundiĝi ĉe nia malriĉa bordo!
+—Estas tiel. Vole-nevole ni povas diri nur tiel, kiel iam preĝis vespere iuj marbordanoj: Dio ĉiopova, kompatu nin kaj lasu ŝipon en tiu ĉi nokto surfundiĝi ĉe nia malriĉa bordo!
 
 Tiel oni rezonis, sed tamen regis gaja humoro.La granda
 
@@ -6282,19 +5269,12 @@ mondo, fremdlandaj kamaradoj kaj gravaj mondokazoj estis
 
 palaj imagoj kompare al la fakto, ke oni denove havas eblecon por kontentiga vivteno.
 
-Kaj iun vesperon en la mezo de majo leviĝis la unuaj fum-
-
-nuboj el la tuneloj de la lamenejoj. Estis belega tago kun blua ĉielo kaj sunlumo sur juna verdaĵo, sed pri la belo de la printempo neniu atentis. ĉe fenestroj, sur kortoj kaj stratoj estis homoj, kiuj en solena silento rigardis al la uzino. Ekstere ĉio aspektis ĉiutageca, sed en la animoj regis tremiga atendo kaj sento de granda festo.
+Kaj iun vesperon en la mezo de majo leviĝis la unuaj fumnuboj el la tuneloj de la lamenejoj. Estis belega tago kun blua ĉielo kaj sunlumo sur juna verdaĵo, sed pri la belo de la printempo neniu atentis. ĉe fenestroj, sur kortoj kaj stratoj estis homoj, kiuj en solena silento rigardis al la uzino. Ekstere ĉio aspektis ĉiutageca, sed en la animoj regis tremiga atendo kaj sento de granda festo.
 
 Kvazaŭ sankta bensigno suprenglitis la unuaj fumvualoj en la kvieta aero, kaj baldaŭ la tubegoj komencis elpuŝi nubojn da fumo, kiu estis nigra kaj dika kaj bole moviĝis sub la blua ĉielo kaj poste disglitis super la tutan valon.
 
 
-INFANOJ EN TORENTO
-
-
-Arne estus ŝatinta tiun scenon, sed li ne troviĝis inter la ri-gardantoj. En tiu momento li kaj Paŭlo en malhela uzi-
-
-na magazeno ŝarĝis brikojn sur relĉaron. Jam de la mateno ili estis okupitaj per briktransportado, kaj Paŭlo blasfemis pro siaj preskaŭ detruitaj ledgantoj, sed Arne estis ankoraŭ pli malfeliĉa, ĉar li ne posedis gantojn kaj nur nun spertis, ke ili foje estas necesaj. Malgraŭ la ĉirkaŭvinditaj sakĉifonoj liaj manoj doloris kvazaŭ pro brulvundoj, ĉar la haŭto estis tiom forfrotita, ke sangogutoj trapenetris gin.
+Arne estus ŝatinta tiun scenon, sed li ne troviĝis inter la ri-gardantoj. En tiu momento li kaj Paŭlo en malhela uzina magazeno ŝarĝis brikojn sur relĉaron. Jam de la mateno ili estis okupitaj per briktransportado, kaj Paŭlo blasfemis pro siaj preskaŭ detruitaj ledgantoj, sed Arne estis ankoraŭ pli malfeliĉa, ĉar li ne posedis gantojn kaj nur nun spertis, ke ili foje estas necesaj. Malgraŭ la ĉirkaŭvinditaj sakĉifonoj liaj manoj doloris kvazaŭ pro brulvundoj, ĉar la haŭto estis tiom forfrotita, ke sangogutoj trapenetris gin.
 
 Kiam ili finŝarĝis, Paŭlo rigardis sian horloĝon kaj diris, ke estas tempo por trinki kafon. Preninte siajn varmbotelojn ili sidiĝis sur la brikamason. Arne forprenis la ĉifonojn kaj rigardis siajn detruitajn manojn.
 
@@ -6308,9 +5288,7 @@ Paŭlo per malgrandaj glutoj trinkis de la varmega kafo kaj kun pripensa mieno r
 
 —ĉu vi malŝatas la laboron?
 
-—Ne. Ni havas ja sufiĉe agrablan laboron. Sed se mi povus gajni same multe aŭ eĉ multe pli da mono en pli agrabla maniero, mi ja estus stulta, se mi ne farus tion. ĉu Greta Garbo 227
-
-INFANOJ EN TORENTO
+—Ne. Ni havas ja sufiĉe agrablan laboron. Sed se mi povus gajni same multe aŭ eĉ multe pli da mono en pli agrabla maniero, mi ja estus stulta, se mi ne farus tion. ĉu Greta Garbo
 
 
 ne estus freneza, se ŝi ankoraŭ restus nekonata kaj senmona frizeja knabino anstataŭ esti tiu Greta, kiu ĝi nun estas. Estas ja klare. Sed oni devas havi talenton.
@@ -6335,9 +5313,7 @@ etendis sin sur la brikoj. Arne ankoraŭ trinkis kafon, kaj dume li silente kaj 
 
 —Pravas? diris Arne kvazaŭ vekiĝante el revoj. Aha, tiel! Mi ne pensis pri tio. uste nun mi ŝatus desegni vin, se mi rajtus fari laŭ propra plaĉo.
 
-—Desegni min! Terure stulta vi estas. Talenton vi havas sed vi ankaŭ devas esti prudenta. Hieraŭ post laborfino vi ja desegnis du laboristojn, kiuj ŝovis pezan relĉaron supren al la 228
-
-INFANOJ EN TORENTO
+—Desegni min! Terure stulta vi estas. Talenton vi havas sed vi ankaŭ devas esti prudenta. Hieraŭ post laborfino vi ja desegnis du laboristojn, kiuj ŝovis pezan relĉaron supren al la
 
 
 gisejo. Certe bone, oni vidas, kiel ili streĉas la tutajn korpojn.
@@ -6365,16 +5341,9 @@ Tie oni sendis lin al la estro de la eksteraj laboroj, kaj tiu tuj akceptis lin.
 Kiam li anoncis tion al la patrino, ŝi ekĝojis sed nur momente.
 
 
-INFANOJ EN TORENTO
+—Kaj via desegnado? ŝi diris preskaŭ malgaje. Tion vi volas pli ol ion alian, kaj mi sentas, ke vi pravas. Vidu, ankaŭ via patro havis la saman inklinon, jes, via patro. Sed kion vi povos fari, se vi restos en la uzino?
 
-
-—Kaj via desegnado? ŝi diris preskaŭ malgaje. Tion vi vo-
-
-las pli ol ion alian, kaj mi sentas, ke vi pravas. Vidu, ankaŭ via patro havis la saman inklinon, jes, via patro. Sed kion vi povos fari, se vi restos en la uzino?
-
-—Mi ne povos resti hejme sen monakiro, kiam patro reve-
-
-nos. Cetere ni bezonas la monon, tre bezonas. Kaj mi ja ne devos resti tie por ĉiam.
+—Mi ne povos resti hejme sen monakiro, kiam patro revenos. Cetere ni bezonas la monon, tre bezonas. Kaj mi ja ne devos resti tie por ĉiam.
 
 —Jes, mi komprenas, ke momente estas necese. Sed ne tro
 
@@ -6402,29 +5371,17 @@ La vizaĝo de la patro iomete heliĝis, kaj li faris aproban kapklinon.
 
 Kaj kiel antaŭ la krizo li denove faris siajn laborperiodojn, dormis aŭ ripozis dum la liberaj horoj, foje grumbletis, sed
 
-ĝenerale ŝajnis tute kontenta pri sia vivo. Kiam li en iu vespe-230
-
-INFANOJ EN TORENTO
-
-
-ro vidis, ke Arne okupas sin pri desegnado, li malestime rika-netis.
+ĝenerale ŝajnis tute kontenta pri sia vivo. Kiam li en iu vespero vidis, ke Arne okupas sin pri desegnado, li malestime rika-netis.
 
 —ĉu ankoraŭ vi okupas vin pri tiuj infanaĵoj? Nu ja, por mi estas egale, se vi nur fidele zorgos pri via laboro.
 
-Feliĉe por Arne lia laboro estis sufiĉe varia. Preskaŭ ĉiutage renkontis lin novaj okupoj, li malofte bezonis resti longe en unu loko sed migris kun relĉaroj de unu angulo al alia en la industriejo, kaj dum nur du semajnoj li havis ses diversajn la-borkamaradojn. Unu tagon li laboris kune kun samaĝa kna-
-
-bo, kiu de mateno ĝis vespero edifis lin per sporto, temo malmulte interesa por Arne. Sed li estis bona kamarado kaj ne kondutis kiel tiu, kiu en alia tago estis lia kunulo kaj konstan-te provis faciligi sian laboron je la kosto de Arne, rekompen-cante lin per la plej naŭzaj priknabinaj oratoraĵoj. Kiel savan-to el la malfeliĉo venis religia, brilokula kaj bonkora maljunulo kiu dum tri tagoj je konvenaj okazoj instruis lin pri la bona vojo kaj cetere rakontis multajn agrablajn historiojn. Poste la laborestro kunigis lin kun junulo, kiu predikis kontraŭ alkoholo kaj fervore klopodis anigi Arnen al la bontemplanoj. Lin anstataŭis poste agrabla, malmultevorta knabo, kiu per ko-respondkursoj preparis sin por mezlerneja ekzameno. Ili fari-
+Feliĉe por Arne lia laboro estis sufiĉe varia. Preskaŭ ĉiutage renkontis lin novaj okupoj, li malofte bezonis resti longe en unu loko sed migris kun relĉaroj de unu angulo al alia en la industriejo, kaj dum nur du semajnoj li havis ses diversajn la-borkamaradojn. Unu tagon li laboris kune kun samaĝa knabo, kiu de mateno ĝis vespero edifis lin per sporto, temo malmulte interesa por Arne. Sed li estis bona kamarado kaj ne kondutis kiel tiu, kiu en alia tago estis lia kunulo kaj konstan-te provis faciligi sian laboron je la kosto de Arne, rekompen-cante lin per la plej naŭzaj priknabinaj oratoraĵoj. Kiel savan-to el la malfeliĉo venis religia, brilokula kaj bonkora maljunulo kiu dum tri tagoj je konvenaj okazoj instruis lin pri la bona vojo kaj cetere rakontis multajn agrablajn historiojn. Poste la laborestro kunigis lin kun junulo, kiu predikis kontraŭ alkoholo kaj fervore klopodis anigi Arnen al la bontemplanoj. Lin anstataŭis poste agrabla, malmultevorta knabo, kiu per ko-respondkursoj preparis sin por mezlerneja ekzameno. Ili fari-
 
 ĝis tre bonaj amikoj, kaj Arne bedaŭris, kiam li devis disiĝi de li por labori kune kun Paŭlo. Paŭlon li ne ŝatis, sed post kelkaj laborhoroj kune kun li, li trovis, ke Paŭlo estas bona laborkamarado kaj ŝajne ne tiel malbona kiel li antaŭe imagis.
 
 Li spertis, ke la komuna laboro rilatigas la homojn unu al la alia en tute alia maniero ol la eksterlabora vivo. En la kuna okupo la kamaradoj vole nevole kaj nekonscie preskaŭ tuj
 
-aperigis siajn bonajn kaj malbonajn kvalitojn. Kelkajn el siaj kunuloj li konis jam antaŭe, sed nun li dum unu tago pli in-231
-
-INFANOJ EN TORENTO
-
-
-time konatiĝis kun ili ol antaŭe dum jaroj. Kaj li konstatis, ke
+aperigis siajn bonajn kaj malbonajn kvalitojn. Kelkajn el siaj kunuloj li konis jam antaŭe, sed nun li dum unu tago pli intime konatiĝis kun ili ol antaŭe dum jaroj. Kaj li konstatis, ke
 
 ĝenerale ili estas pli simpatiaj, ol li antaŭe estus supozinta, kaj eĉ ĉe tiuj, kiujn li ne ŝatis, li trovis almenaŭ iun bonan flan-kon, kiu agrabligis la provizoran kunlaboron. La plej multaj estis etpensaj, havis limigitan komprenpovon, sed esence ili ne estis malbonaj aŭ malagrablaj homoj.
 
@@ -6432,9 +5389,7 @@ Ofte li pensis pri siaj kamaradoj en la rondo kaj sopiris al ilia societo. En la
 
 Tion li ne trovis en la kunesto kun siaj laborkamaradoj.
 
-Kiam Alekso deĵoris, Arne tiam kaj tiam dum liberaj minu-
-
-toj faris mallongan viziton al la elektra stacio. Alekso jam preparis siajn florbedojn, kaj la unuaj folietoj komencis elŝovi sin el la tero.
+Kiam Alekso deĵoris, Arne tiam kaj tiam dum liberaj minutoj faris mallongan viziton al la elektra stacio. Alekso jam preparis siajn florbedojn, kaj la unuaj folietoj komencis elŝovi sin el la tero.
 
 —Ili havas fidon kiel la sinapa semo en la parabolo, sed mi dubas, ĉu la fido sufiĉos por vivteni ilin en la nuna medio, diris Alekso.
 
@@ -6455,20 +5410,11 @@ malgraŭ tio, ke la floroj ne same bone kreskas.
 —Certe. Sed stelrigardado ne donas panon al la homoj. Kaj estas utile por vi ricevi sperton ankaŭ pri teraj aferoj.
 
 
-INFANOJ EN TORENTO
-
-
-Johano fariĝis helpanto en la forĝejo. Tio pli bone respondis al lia ideo pri laboro ol lia ĝardenlaboro en la pasinta jaro. La maljunulo, kiu mortis en la pasinta aŭtuno, foje rakontis al la rondanoj pri siaj spertoj kiel forĝista helpanto en la malnova tempo. Estis severa laboro, ofte senĉesa martelado de mateno ĝis vespero, dum dek du longaj horoj kaj foje pli, ĝis la fingroj rigidiĝis ĉirkaŭ la martelega tenilo kaj apenaŭ estis forigeblaj de ĝi, kiam venis la paŭzeto post la martelado. La brakmuskoloj doloris kaj malmoliĝis ĝis labor-
-
-rifuzo, la manoj pleniĝis de vezikoj. Kaj dume la forĝisto kolere insultis kaj blasfemis pro sia mallerta helpanto, kiu neniam lernas frapi sur la ĝustan lokon aŭ teni la martelegon en la ĝusta maniero.
+Johano fariĝis helpanto en la forĝejo. Tio pli bone respondis al lia ideo pri laboro ol lia ĝardenlaboro en la pasinta jaro. La maljunulo, kiu mortis en la pasinta aŭtuno, foje rakontis al la rondanoj pri siaj spertoj kiel forĝista helpanto en la malnova tempo. Estis severa laboro, ofte senĉesa martelado de mateno ĝis vespero, dum dek du longaj horoj kaj foje pli, ĝis la fingroj rigidiĝis ĉirkaŭ la martelega tenilo kaj apenaŭ estis forigeblaj de ĝi, kiam venis la paŭzeto post la martelado. La brakmuskoloj doloris kaj malmoliĝis ĝis laborrifuzo, la manoj pleniĝis de vezikoj. Kaj dume la forĝisto kolere insultis kaj blasfemis pro sia mallerta helpanto, kiu neniam lernas frapi sur la ĝustan lokon aŭ teni la martelegon en la ĝusta maniero.
 
 Estis multaj tiaj aferoj en la forĝejaj rakontoj de la maljunulo, sed malgraŭ tio la fantazio de Johano trovis la forĝejan laboron agrabla, ĉar fortan laboron li ne timis.
 
-Sed la forĝejo, kie Johano komencis lerni la fundamentojn de la metio, estis pli moderna, kaj li ne bezonis trostreĉi siajn fortojn. Multaj mekanikaj martelegoj de diversaj dimensioj kaj kun diversaj nomoj staris tie kaj tie en la vasta ejo. Var-miginte pli grandan ferpecon la forĝisto tuj kuris al unu el ili sen atenti pri la laborpreteco de Johano. Tio ne plaĉis al Johano, li sentis sin kvazaŭ superflua. Foje li akompanis la for-
-
-ĝiston por rigardi lian laboron, foje li restis ĉe la amboso ri-233
-
-INFANOJ EN TORENTO
+Sed la forĝejo, kie Johano komencis lerni la fundamentojn de la metio, estis pli moderna, kaj li ne bezonis trostreĉi siajn fortojn. Multaj mekanikaj martelegoj de diversaj dimensioj kaj kun diversaj nomoj staris tie kaj tie en la vasta ejo. Var-miginte pli grandan ferpecon la forĝisto tuj kuris al unu el ili sen atenti pri la laborpreteco de Johano. Tio ne plaĉis al Johano, li sentis sin kvazaŭ superflua. Foje li akompanis la forĝiston por rigardi lian laboron, foje li restis ĉe la amboso ri-233
 
 
 gardante la montrilojn de la granda murhorloĝo. Malgraŭ la ok forĝistoj kaj iliaj helpantoj, malgraŭ la flamantaj fajroj, la ĉiama bruado, la laboro kaj la okazaj babiloj kun la kamaradoj, malgraŭ tio kaj ĉio alia, kio estis nova por li, li tiam kaj tiam rigardis al la horloĝo kaj deziris, ke la montriloj moviĝu iom pli rapide. Aŭ li rigardis tra la altaj fulgokovritaj fenestroj, vidis sunbrilon kaj peceton de blua ĉielo, kaj lia penso vagis for al lagoj kaj arbaroj, al agrablaj horoj inter la rondanoj.
@@ -6477,9 +5423,7 @@ gardante la montrilojn de la granda murhorloĝo. Malgraŭ la ok forĝistoj kaj i
 
 —Vi estas stranga knabo, li poste diris. ĉu estas tro malmulte da laboro por vi?
 
-—Preskaŭ, konsentis Johano. Mi volas senti, ke miaj bra-
-
-koj moviĝas.
+—Preskaŭ, konsentis Johano. Mi volas senti, ke miaj brakoj moviĝas.
 
 —Iom neordinare, murmuris la forĝisto kaj ridetis aprobe.
 
@@ -6487,9 +5431,7 @@ Vi estas bona forĝistmaterialo.
 
 La laŭdo ne malplaĉis al Johano, sed iel la vorto forĝistmaterialo subite ŝajnis al li malagrabla. Li foje aŭdis tiajn ŝer-cajn vortojn pri junuloj aŭ knaboj por indiki iliajn kvalitojn kaj ordinare li trovis ilin bona ŝerco. Sed la forĝisto elparolis la vorton kun certa nuanco de metiista fiereco, kaj tiu nuanco kaptis la atenton de Johano, kaj li pensis pri ĝi kaj eksentis ioman ribelemon.
 
-Tiel do! Li estas materialo, el kiu oni povas fari forĝiston, pli malpli kun lia konsento kompreneble, sed tamen materialo. Kaj esti forĝisto, kun ĉiuj bonaj kvalitoj de forĝisto, estos do la enhavo kaj senco de lia vivo, se li konsentos. ĉio alia 234
-
-INFANOJ EN TORENTO
+Tiel do! Li estas materialo, el kiu oni povas fari forĝiston, pli malpli kun lia konsento kompreneble, sed tamen materialo. Kaj esti forĝisto, kun ĉiuj bonaj kvalitoj de forĝisto, estos do la enhavo kaj senco de lia vivo, se li konsentos. ĉio alia
 
 
 estos flankaĵoj. La gejunuloj estas materialo el kiu formiĝas forĝistoj, ĉarpentistoj, lamenistoj kaj aliaj laboristoj ĉiuspecaj.
@@ -6508,9 +5450,7 @@ Li memoras siajn iamajn revojn pri laboro kaj memstareco, revekiĝas en li bildo
 
 Tiamaniere li tiam kaj tiam pensas dum la longaj tagoj.
 
-Ordinare la vagado de liaj pensoj finiĝas per tio, ke li iom 235
-
-INFANOJ EN TORENTO
+Ordinare la vagado de liaj pensoj finiĝas per tio, ke li iom
 
 
 ekhontas pri siaj sentoj, kaj li demandas sin ĉu li eble estas malkuraĝa, maltaŭga, nelaborema. Ne, ne, laboro estus agrabla, kaj li ne estas malkuraĝa, sed … laboro en alia maniero, sen tiu ligiteco.
@@ -6527,9 +5467,7 @@ senton, eble ankaŭ al ili la montriloj de la horloĝo ŝajnas tro malrapide pro
 
 Sed baldaŭ devas esti manĝopaŭzo … Li momente forgesas
 
-la horloĝon sur la muro kaj elprenas el la poŝo sian propran, kiu iam apartenis al la patro, kaj kiun Eriko kaj Ejnar ne volis porti, ĉar ĝi ŝajnis al ili tro simpla, tro malmoderna. Li rigardas ĝin sed subite forgesas, ke li volis ekscii la tempon. Tiu malnova horloĝo … dum tagoj kaj jaroj, dum tuta homvivo ĝi elmezuris por la patro senfinan ĉenon de minutoj kaj horoj 236
-
-INFANOJ EN TORENTO
+la horloĝon sur la muro kaj elprenas el la poŝo sian propran, kiu iam apartenis al la patro, kaj kiun Eriko kaj Ejnar ne volis porti, ĉar ĝi ŝajnis al ili tro simpla, tro malmoderna. Li rigardas ĝin sed subite forgesas, ke li volis ekscii la tempon. Tiu malnova horloĝo … dum tagoj kaj jaroj, dum tuta homvivo ĝi elmezuris por la patro senfinan ĉenon de minutoj kaj horoj
 
 
 de penado kaj ligiteco ĝis lia fino. Nun ĝi transiris al la filo, kaj dum tagoj kaj jaroj …
@@ -6549,9 +5487,6 @@ Li levis la kapon kaj renkontis la rigardon de la forĝisto, kiu ĉe la fajrejo 
 panjo, diris la forĝisto. Fajfu strofeton kaj gajigu! Forĝisto ne devas havi tian mienon.
 
 
-INFANOJ EN TORENTO
-
-
 Sed la sento de ligiteco ne estas forigebla per momenta faj-fado. i foriras, sed ĝi revenas, malpli forta sed tamen
 
 premanta.
@@ -6566,20 +5501,13 @@ Li atente kaj interesite aŭskultis la vortojn de Johano.
 
 —Jes, jes, kompreneble vi pravas, li diris, kiam Johano finis.
 
-—ĉu vi havis tiun senton, tiujn pensojn, kiam vi unue ko-
+—ĉu vi havis tiun senton, tiujn pensojn, kiam vi unue komencis labori? demandis Johano.
 
-mencis labori? demandis Johano.
-
-—Malmulte. Mia laboro ne estis tro peniga, kaj en mia ka-
-
-po estis aliaj aferoj. Mi ne pensis … Kompreneble mi pli ŝatis liberecon kaj amuziĝon ol laboron, sed cetere mi ne cerbumis pri la afero.
+—Malmulte. Mia laboro ne estis tro peniga, kaj en mia kapo estis aliaj aferoj. Mi ne pensis … Kompreneble mi pli ŝatis liberecon kaj amuziĝon ol laboron, sed cetere mi ne cerbumis pri la afero.
 
 —Kaj nun?
 
 Eriko ridetis, kaj la firma, celkonscia esprimo de lia vizaĝo ŝajnis firmiĝi ankoraŭ pli.
-
-
-INFANOJ EN TORENTO
 
 
 —Nun. Trankvile antaŭen, trankvile antaŭen! lam ni havos
@@ -6590,16 +5518,11 @@ Johano rigardis lin pripense.
 
 —Tiam laboro estos io alia ol nun, ĉu ne?
 
-—Certe, diras Johano kaj kapklinas konsente, sed indife-
-
-rente.
+—Certe, diras Johano kaj kapklinas konsente, sed indiferente.
 
 Li silentas, kaj Eriko komencas legi sian gazeton. Post kelkaj momentoj Johano leviĝas kaj diras preterpase:
 
 —Mi volas ripari mian reton. Estus agrable iri al Perkola-go iun sabatvesperon.
-
-
-INFANOJ EN TORENTO
 
 
 La komerco estas vigla en la gazetvendejo, kaj Alda pasigas preskaŭ la tutajn tagojn malantaŭ la vendotablo, kiu estas kovrita de sensacirubrikaj taggazetoj, semajnaj gazetoj kun alloga eksteraĵo de multkolora romantiko aŭ impona fot-arto, kajeroj diversnomaj kun ”veraj rakontoj el la vivo”, film-gazetoj, radiogazetoj, sportgazetoj, loteriaj gajnolistoj.
@@ -6621,9 +5544,6 @@ Kaj ŝi montris al la interna ekstremo de la vendotablo, kie la patro elmetis sp
 La knabino iris tien, rigardis la librojn, foliumis en kelkaj kaj legis peceton tie kaj tie. Post kelkaj minutoj ŝi revenis al Alda.
 
 
-INFANOJ EN TORENTO
-
-
 —ĉu iuj homoj aĉetas de tiuj libroj? ŝi demandis.
 
 —Verdire oni tre malmulte aĉetas de tiuj.
@@ -6632,9 +5552,7 @@ INFANOJ EN TORENTO
 
 Tion ni ja konas el propra sperto. Estas la ne ordinaraj aferoj, kiuj estas interesaj, kaj rakontoj pri medioj, kiuj estas pli agrablaj ol tiu de laboristoj. ĉu ne?
 
-Alda ekrigardis ŝin. La mallerte pudrita vizaĝo, la mult-
-
-bukle frizitaj haroj kaj la kurioza tutmoderna ĉapelo subite ŝajnis al ŝi kiel stranga maskaĵo de malgranda infano, kiu ŝatas fantazii kaj ludi, sed ankoraŭ ne estas klare konscia pri sia konduto.
+Alda ekrigardis ŝin. La mallerte pudrita vizaĝo, la multbukle frizitaj haroj kaj la kurioza tutmoderna ĉapelo subite ŝajnis al ŝi kiel stranga maskaĵo de malgranda infano, kiu ŝatas fantazii kaj ludi, sed ankoraŭ ne estas klare konscia pri sia konduto.
 
 —Mi komprenas … Sed tiun esperantan romanon vi povus
 
@@ -6650,18 +5568,11 @@ aĉeti. Mi estas certa, ke ĝi same interesus vin kiel la noveloj kiujn vi ŝata
 
 —Ho jes! La kunvenoj plej ofte estas agrablaj, eĉ amuzaj, kaj kiam oni ne havas ion alian por fari …
 
-Sed Jern havis opinion tute kontraŭan al tiu de tiu knab-
+Sed Jern havis opinion tute kontraŭan al tiu de tiu knabino. Iam starante apud la vendotablo kaj ekzamenante la diversajn publikaĵojn li turnis sin al la patro de Alda kaj eksplodis:
 
-ino. Iam starante apud la vendotablo kaj ekzamenante la diversajn publikaĵojn li turnis sin al la patro de Alda kaj eksplodis:
-
-—ĉu via konscienco vere permesas al vi trankvilanime dis-
-
-vendi tiom da stultaĵoj al senprijuĝaj homoj?
+—ĉu via konscienco vere permesas al vi trankvilanime disvendi tiom da stultaĵoj al senprijuĝaj homoj?
 
 La patro levis la ŝultrojn kaj ridetis acide.
-
-
-INFANOJ EN TORENTO
 
 
 —Amiko, ĉu vi konas la maksimojn de la Rochefoucauld?
@@ -6686,12 +5597,7 @@ La patro de Alda brue ekridis.
 
 —Jes, jes, povas esti. Pripensu la kvardekduan: Ni ne havas sufiĉe da forto por tute sekvi nian racion …
 
-La plej multaj aĉetantoj ne restas pli longe ol bezonate kaj ne diras pli ol necese, sed ekzistas tuta aro da regulaj klien-242
-
-INFANOJ EN TORENTO
-
-
-toj, kiuj vizitas la vendejon pli por babili kaj diskuti kun la posedanto aŭ samemuloj ol por ion aĉeti, kaj ili malavare dis-donas siajn diverstemajn opiniojn. Komence tiuj diskutoj kaj multaj el tiuj homoj tre kaptis la intereson de Alda. Estas ja viglaj homoj, ŝi pensis, homoj kun ideoj kaj pensoj. Kaj ĉiutage troviĝis io nova por komenti. Se mankis lokaj novaĵoj kaj problemoj oni ĉiam trovis freŝan materialon en la gazetoj.
+La plej multaj aĉetantoj ne restas pli longe ol bezonate kaj ne diras pli ol necese, sed ekzistas tuta aro da regulaj klientoj, kiuj vizitas la vendejon pli por babili kaj diskuti kun la posedanto aŭ samemuloj ol por ion aĉeti, kaj ili malavare dis-donas siajn diverstemajn opiniojn. Komence tiuj diskutoj kaj multaj el tiuj homoj tre kaptis la intereson de Alda. Estas ja viglaj homoj, ŝi pensis, homoj kun ideoj kaj pensoj. Kaj ĉiutage troviĝis io nova por komenti. Se mankis lokaj novaĵoj kaj problemoj oni ĉiam trovis freŝan materialon en la gazetoj.
 
 Sed iom post iom malfortiĝas ŝia intereso por iliaj diskutoj.
 
@@ -6701,12 +5607,7 @@ Certe ili estas sinceraj, certe multaj el ili pravas, foje pri tio, foje pri tio
 
 Sed ŝia atento ne tute forlasas tiujn homojn. ŝiaj pensoj komencas okupiĝi pri ili mem anstataŭ pri iliaj diskutoj. Iel ili similas al tiu knabino, kiu ŝatas la romantikajn rakontojn. ŝi revas pri la feliĉo, ili revas pri plibonigo de la mondo. Jes, ĉar iliaj diskutoj estas revado, estas kvazaŭ momenta forkuro el la realo de ilia ĉiutaga vivo. Konkrete ili nenion faras por efek-tivigi la esprimitajn pensojn, eĉ ne en la etaj aferoj de la ĉiutaga vivo, kie ili eble povus ion fari. Ili vivas kvazaŭ en du mondoj apartigitaj unu de la alia, unu ne kontentigas ilin, sed ili ne povas forlasi gin, la alia estas agrabla, sed ĝi estas konstruita nur el revoj, kaj ili nur momente kaj fantazie povas resti en ĝi …
 
-Kaj ekster la pordo preskaŭ ĉiam troviĝas grupeto de aliaj junuloj kaj viroj, tie estas ilia renkontejo dum iliaj liberaj ho-243
-
-INFANOJ EN TORENTO
-
-
-roj. Ili rigardas la gazetafiŝojn kaj la gazetojn en la montrofe-nestro, fumas siajn cigaredojn aŭ pipojn kaj inerte interbabi-las.
+Kaj ekster la pordo preskaŭ ĉiam troviĝas grupeto de aliaj junuloj kaj viroj, tie estas ilia renkontejo dum iliaj liberaj horoj. Ili rigardas la gazetafiŝojn kaj la gazetojn en la montrofe-nestro, fumas siajn cigaredojn aŭ pipojn kaj inerte interbabi-las.
 
 En la vesperoj Alda kaj la patro laboras en la ĝardeno. Ne estas multe por fari, ĉar la ĝardeno estas malgranda, sed la patro laboras pedante zorge kaj intence malrapide, ĝuante tiun okupon kvazaŭ infano, kiu manĝas sian kukon kiel eble plej malrapide.
 
@@ -6723,9 +5624,6 @@ Post sia ĝardenlaboro li eniras, faras al si malfortan grogon kaj ekripozas en 
 Li ŝatas babili kun Alda, petas ŝin traduki la leterojn de ŝiaj eksterlandaj geamikoj, demandas ŝin pri ŝiaj kamaradoj en la rondo kaj pri diversaj aliaj aferoj, kiuj okupas ŝian intereson.
 
 Kaj jen li prenas gluton el sia glaso, bruligas cigaredon kaj silente rigardas ŝin. Lia mieno fariĝas revema, en liaj okuloj aperas karesa brilo.
-
-
-INFANOJ EN TORENTO
 
 
 En la hejmo de Ajna troviĝas ankoraŭ la bildo de la bona
@@ -6746,41 +5644,26 @@ paŝtisto, tio ne aspektus tute bone.
 
 La patrino devas rezigni. Dum du, tri tagoj ŝi faris malbelan mienon, kiam ŝi foje preterpasis la bildojn, sed poste ŝi forgesis la tutan aferon, kaj nek al Jesuo nek al Branting ŝi donis pli da atento ol al la flordesegnaĵo de la tapetoj.
 
-Jam de jaroj ili nun pendas tie, kaj ankaŭ la aliaj familianoj malmulte atentas pri ili. Kiam la patro havas kamaradojn en la hejmo kaj oni diskutas politikon, li esceptokaze ekmemo-ras sian bildon kaj etendas la manon al ĝi dirante: ” Jen tamen vera viro! Se tian homon ni havus! Jes, kompreneble mi parolas pri la dekstra bildo!” Kaj post la lasta frazo li bonhumore ekridas. — Kiam Greta, la fratino, estis malgranda, ŝi tre ad-245
-
-INFANOJ EN TORENTO
-
-
-miris la bonan paŝtiston kaj precipe la belajn ondojn de liaj longaj haroj, sed nun ŝi estas dektrijara, kaj la harojn de la bona paŝtisto ŝi forgesis pro siaj propraj, kiujn ŝi per la simplaj hejmaj rimedoj provas laŭpove similigi al tiuj de la pre-ferataj filmsteloj, — kaj la malgranda frato malgraŭ la instru-provoj de la avino, neniam montris intereson por la bona
+Jam de jaroj ili nun pendas tie, kaj ankaŭ la aliaj familianoj malmulte atentas pri ili. Kiam la patro havas kamaradojn en la hejmo kaj oni diskutas politikon, li esceptokaze ekmemo-ras sian bildon kaj etendas la manon al ĝi dirante: ” Jen tamen vera viro! Se tian homon ni havus! Jes, kompreneble mi parolas pri la dekstra bildo!” Kaj post la lasta frazo li bonhumore ekridas. — Kiam Greta, la fratino, estis malgranda, ŝi tre admiris la bonan paŝtiston kaj precipe la belajn ondojn de liaj longaj haroj, sed nun ŝi estas dektrijara, kaj la harojn de la bona paŝtisto ŝi forgesis pro siaj propraj, kiujn ŝi per la simplaj hejmaj rimedoj provas laŭpove similigi al tiuj de la pre-ferataj filmsteloj, — kaj la malgranda frato malgraŭ la instru-provoj de la avino, neniam montris intereson por la bona
 
 paŝtisto. Liajn pensojn okupas tute liaj aŭtoj kaj flugmaŝinoj kaj liaj sampensaj samaĝuloj sur la korto.
 
-Sed Ajna ankoraŭ tiam kaj tiam rigardas la bonan paŝtis-
-
-ton. Kiam ŝi en liberaj momentoj sidas en la ĉambro por legi aŭ skribi, la libro foje perdas sian intereson, kaj la pensoj ne volas formi konvenajn frazojn por la skribaĵo. ŝi ekrevas animforeste, kaj ŝiaj rigardoj sencele vagas tien kaj reen, ĝis ili fine haltas ĉe la bona paŝtisto. Tie ili restas, kaj la bildo iel kolektas ŝiajn pensojn kaj direktas ilin jen tien, jen tien, al aferoj, kiuj ŝajnas al ŝi kiel sekreto inter ŝi kaj la bona paŝtisto.
+Sed Ajna ankoraŭ tiam kaj tiam rigardas la bonan paŝtiston. Kiam ŝi en liberaj momentoj sidas en la ĉambro por legi aŭ skribi, la libro foje perdas sian intereson, kaj la pensoj ne volas formi konvenajn frazojn por la skribaĵo. ŝi ekrevas animforeste, kaj ŝiaj rigardoj sencele vagas tien kaj reen, ĝis ili fine haltas ĉe la bona paŝtisto. Tie ili restas, kaj la bildo iel kolektas ŝiajn pensojn kaj direktas ilin jen tien, jen tien, al aferoj, kiuj ŝajnas al ŝi kiel sekreto inter ŝi kaj la bona paŝtisto.
 
 Kiam ŝi rigardas la bildon, ĝi foje kvazaŭ ŝanĝiĝas, kaj ŝi vidas similan sed tamen iom diferencan paŝtiston, kiu apartenas al ŝiaj unuaj memoroj. La avino rakontis pri li kaj rakontis pli tiu homo, kiun la paŝtisto prezentas, kaj tiuj rakontoj plenigis ŝin per sento de feliĉo. La bona paŝtisto fariĝis ŝia bona amiko, al kiu ŝia rilato estis pli intima ol eĉ al avinjo.
 
 Kiam vekiĝis ŝiaj unuaj malklaraj sentoj de senpatreco, la bo-na paŝtisto estis ŝia silenta konsolanto, al kiu ŝi rifuĝis kiel al patraj brakoj. Ne temis plu pri la pentrita bildo, sed en la bildon kvazaŭ eniris Jesuo kaj diris al ŝi, ke li volas esti ŝia patro, kaj ke ŝi ne malĝoju.
 
-Enirinte sian novan hejmon ŝi sentis fremdecon kaj mal-
-
-ĝojon, sed la bona paŝtisto akompanis ŝin, kaj kiam ŝi vespere 246
-
-INFANOJ EN TORENTO
+Enirinte sian novan hejmon ŝi sentis fremdecon kaj malĝojon, sed la bona paŝtisto akompanis ŝin, kaj kiam ŝi vespere
 
 
 kaj matene silente faris siajn preĝojn en la lito, ŝi direktis siajn okulojn al li, kaj li donis al ŝi konsolon kaj kuraĝon.
 
-Iom post iom la kamaradoj kaj la kunesto kun ili pli kaj pli okupis ŝian menson, novaj pensoj kaj sentoj naskiĝis en ŝi, kaj la bona paŝtisto fariĝis malpli signifa. ŝi ĉesis viziti la diman-
-
-ĉan lernejon, fine ŝi ankaŭ ĉesis fari siajn preĝojn. Sed en solecaj kaj malgajaj momentoj ŝi tamen foje rigardis la bildon.
+Iom post iom la kamaradoj kaj la kunesto kun ili pli kaj pli okupis ŝian menson, novaj pensoj kaj sentoj naskiĝis en ŝi, kaj la bona paŝtisto fariĝis malpli signifa. ŝi ĉesis viziti la dimanĉan lernejon, fine ŝi ankaŭ ĉesis fari siajn preĝojn. Sed en solecaj kaj malgajaj momentoj ŝi tamen foje rigardis la bildon.
 
 ŝi ne vidis plu la bonan paŝtiston de siaj fruaj infanjaroj, sed en tiaj momentoj la bildo tamen fariĝis vivoplena kaj iel konsola.
 
-ŝi komencas fariĝi junulino, ŝiaj pensoj vagas en revo-
-
-monda printempiĝo, ŝi rigardas sian bildon en la spegulo kaj belaranĝas siajn harojn kaj metas la ĉapon oblikve. Pri la paŝ-
+ŝi komencas fariĝi junulino, ŝiaj pensoj vagas en revomonda printempiĝo, ŝi rigardas sian bildon en la spegulo kaj belaranĝas siajn harojn kaj metas la ĉapon oblikve. Pri la paŝ-
 
 tisto ŝi ne plu pensas. Sed subite li reviviĝas. Kiam ŝi estis en la societo de Paŭlo kaj li komencis tro altrudi al ŝi siajn petolaĵojn, ŝi subite ekmemoris la momenton, kiam la patro volis altrudi al ŝi likvoron. Kaj kiel tiam ŝi malgajiĝis kaj foriris, kaj la bona paŝtisto ankoraŭ havis iom da konsolo por ŝi.
 
@@ -6796,13 +5679,7 @@ Avinjo estas maljuna. La vizaĝo ŝrumpis kaj havas multajn sulkojn, la okuloj h
 
 —Jes, diras Ajna duonlaŭte, kaj ŝia rigardo al avinjo estas plene sincera.
 
-—Estas bone, diras avinjo kaj momente lasas sian ŝtrump-
-
-
-INFANOJ EN TORENTO
-
-
-flikadon. Sed vi neniam iras al preĝejoj kaj neniam legas la rakontojn pri la bona paŝtisto.
+—Estas bone, diras avinjo kaj momente lasas sian ŝtrumpflikadon. Sed vi neniam iras al preĝejoj kaj neniam legas la rakontojn pri la bona paŝtisto.
 
 —Tion mi ne faras, konfesas Ajna iom retiriĝeme.
 
@@ -6810,9 +5687,7 @@ flikadon. Sed vi neniam iras al preĝejoj kaj neniam legas la rakontojn pri la b
 
 —Ne, ilin mi ne forgesos. Kaj ankaŭ vin mi ne forgesos.
 
-Rigardante la avinon ŝi sentas strangan kortuŝon. Iam avinjo aspektis altstatura, kaj ŝi mem estis malgranda, sed nun avinjo estas malgranda, kaj kiam ili staras unu apud la alia, avinjo kiel infano levas la kapon, kiam ŝi rigardas la viza-
-
-ĝon de Ajna. Iam avinjo komprenis kaj povis klarigi ĉion, pri kio Ajna volis demandi, kaj Ajna senĝene faris siajn demandojn, sed nun la malgranda avinjo ne plu komprenas ĉion, kaj Ajna ne povas pri ĉio demandi …
+Rigardante la avinon ŝi sentas strangan kortuŝon. Iam avinjo aspektis altstatura, kaj ŝi mem estis malgranda, sed nun avinjo estas malgranda, kaj kiam ili staras unu apud la alia, avinjo kiel infano levas la kapon, kiam ŝi rigardas la vizaĝon de Ajna. Iam avinjo komprenis kaj povis klarigi ĉion, pri kio Ajna volis demandi, kaj Ajna senĝene faris siajn demandojn, sed nun la malgranda avinjo ne plu komprenas ĉion, kaj Ajna ne povas pri ĉio demandi …
 
 Ajna etendas la manon kaj karesas la blankajn harojn de la maljuna kapo.
 
@@ -6820,9 +5695,7 @@ Ajna etendas la manon kaj karesas la blankajn harojn de la maljuna kapo.
 
 Sed avinjo ridetas.
 
-—Jes, jes. Nun vi estas granda kaj mi malgranda, sed an-
-
-koraŭ vi estas mia knabineto …
+—Jes, jes. Nun vi estas granda kaj mi malgranda, sed ankoraŭ vi estas mia knabineto …
 
 Kelkajn tagojn post la rekomenco en la uzino la patro, venante hejmen en la vespero, diris al Ajna:
 
@@ -6830,17 +5703,10 @@ Kelkajn tagojn post la rekomenco en la uzino la patro, venante hejmen en la vesp
 
 Kaj ŝi rakontis, ke iu juna inĝeniero okaze parolante kun li menciis, ke lia edzino deziras junan knabinon por helpi ŝin en la hejmaj laboroj.
 
-—Kaj kompreneble mi tuj proponis vin, kaj morgaŭ ma-
-
-tene vi komencos. ĉu ne bone?
+—Kaj kompreneble mi tuj proponis vin, kaj morgaŭ matene vi komencos. ĉu ne bone?
 
 
-INFANOJ EN TORENTO
-
-
-—Sed mi ja nenion scias pri mastrumado krom pri nia hej-
-
-ma! diris Ajna.
+—Sed mi ja nenion scias pri mastrumado krom pri nia hejma! diris Ajna.
 
 —Vi ne bezonas. Ili ne deziras jam perfektan servistinon, la sinjorino deziras nur iom da helpo por pli simplaj laboroj, kaj krome ŝi iom post iom instruos vin pri kuirado kaj tiel plu.
 
@@ -6859,20 +5725,13 @@ La patro ekridis.
 —Nu, nu, ĝuste pri tiu libero mi pensis, sed mia vidpunkto ŝajne estas kontraŭa al la via. Cetere ŝi ja estas libera en la vesperoj kaj povos iri danci kaj amuzi sin tute laŭplaĉe. Sed estas sensence babili pri tio. Mi promesis al la inĝeniero, ke morgaŭ ŝi komencos, kaj vole nevole ŝi devas fari tion.
 
 
-INFANOJ EN TORENTO
-
-
-En dimanĉa vespero iom post la mezo de majo la espe-
-
-ranta grupo havis finfeston en malgranda salono en la
+En dimanĉa vespero iom post la mezo de majo la esperanta grupo havis finfeston en malgranda salono en la
 
 popola domo.
 
 Alda vizitis Alekson kaj invitis lin al partopreno.
 
-—ĉu vi kredas, ke tio interesos min? demandis Alekso ŝaj-
-
-ne skeptike.
+—ĉu vi kredas, ke tio interesos min? demandis Alekso ŝajne skeptike.
 
 —Eble ne … Sed estus agrable …
 
@@ -6893,9 +5752,6 @@ Dum kelkaj deĵoraj noktoj mi tralegis la lernolibron, kiun vi donis al mi, sed 
 kvankam ĝi ŝajnis al mi tre prudenta kaj utila elpensaĵo. Sed poste mi en alia el viaj libretoj legis la unuan kongresparola-don de Zamenhof. En tiu nokto mi legis nur tiun paroladon, sed leginte ĝin mi eksentis deziron ekscii iom pli pri la afero, kaj iom post iom mi havigis al mi tiujn librojn kaj gazetojn.
 
 
-INFANOJ EN TORENTO
-
-
 —Kaj malgraŭ tio vi ne emas partopreni nian kunvenon?
 
 —Ne malgraŭ tio, sed pro tio, ke ĉion tion mi tralegis …
@@ -6908,9 +5764,7 @@ INFANOJ EN TORENTO
 
 —Vi ja ne estas societo en tiu senco … Sed bone, mi partoprenos la kunvenon, almenaŭ tiun ĉi fojon.
 
-Estis kunveno pli malpli simila al tiaj kunvenoj en aliaj lokoj en la mondo. Enkonduke oni kantis la himnon. La gru-
-
-panoj kantis firme kaj bone kaj ŝajne entuziasme. Ajna staris apud Alekso, kaj dum la kantado ŝi tiam kaj tiam rigardis lin.
+Estis kunveno pli malpli simila al tiaj kunvenoj en aliaj lokoj en la mondo. Enkonduke oni kantis la himnon. La grupanoj kantis firme kaj bone kaj ŝajne entuziasme. Ajna staris apud Alekso, kaj dum la kantado ŝi tiam kaj tiam rigardis lin.
 
 Meditmiene li aŭskultis la kantadon, dum liaj rigardoj duonatente direktiĝis jen tien jen tien al la grupanoj ĉirkaŭ la longa tablo. Dum la momenta bruo de la sidiĝo li turnis sin al Alda.
 
@@ -6923,23 +5777,13 @@ Jern leviĝis de sia loko ĉe la ekstremo de la tablo, prenis lokon malantaŭ si
 ĉu vi memoras nian unuan kunvenon? Ni ne sciis kion fari, kaj ĉio ŝajnis fiasko, verdire pro nia stulto, sed tiam ili aperis kaj savis la situacion. Ili komencis ludi kun ni, kaj iel ili sukcesis dresi nin kaj krei iom da ordo.
 
 
-INFANOJ EN TORENTO
-
-
-Kaj ĉu vi memoras la kvinan kunvenon. Estis grava kaj de-
-
-cida momento.Post la kvara kunveno ni ricevis vortarojn kaj librojn, kaj ni interkonsentis lerni unu paĝon hejme por la posta kunveno. Sed en la kvina kunveno ni ĉiuj balbutis kaj malsukcesis, neniu estis bone lerninta. Unu post la alia ni montris nian stulton, kaj la mieno de Alda ĉagreniĝis. Fine kelkaj el vi komencis ridi kaj ŝerci kaj diris: ”Kial vi ne turnas vin al Ajna aŭ Johano aŭ Arne, certe ili povas traduki.” Sed Alda formetis sian libron kaj rigardis nin kun stranga mieno, kaj ni eksilentis. Kaj tiam ŝi diris: ”Estas tute sensence daŭrigi hodiaŭ. Al mi estas egale, ĉu vi volas lerni esperanton aŭ ne, sed se vi volas lerni, vi devas mem labori, alia metodo ne ekzistas. Se vi ĝis la venonta kunveno perfekte lernos la du unuajn paĝojn kaj poste daŭrigos en la sama maniero, mi restos en la grupo, sed alie mi forlasos ĝin.” Kaj poste ŝi trankvile diris ĝisrevidon kaj foriris kun siaj gekamaradoj, nur dude}k minutojn post la komenco. Estis la plej bona leciono, kiun Alda faris dum la tuta vintro. Post tio ni komencis labori, kaj baldaŭ ni trovis, ke lernado estas eĉ interesa kaj agrabla. Kaj Alda demandis, ĉu ni ne povas prepari pli longajn taskojn, kaj ni konsentis. Ni notis novajn vortojn, ripetis gramatikajn aferojn, komencis babili inter ni. ĉiu plenumis la sian kaj multaj faris pli, ni komencis konkuri.
+Kaj ĉu vi memoras la kvinan kunvenon. Estis grava kaj decida momento.Post la kvara kunveno ni ricevis vortarojn kaj librojn, kaj ni interkonsentis lerni unu paĝon hejme por la posta kunveno. Sed en la kvina kunveno ni ĉiuj balbutis kaj malsukcesis, neniu estis bone lerninta. Unu post la alia ni montris nian stulton, kaj la mieno de Alda ĉagreniĝis. Fine kelkaj el vi komencis ridi kaj ŝerci kaj diris: ”Kial vi ne turnas vin al Ajna aŭ Johano aŭ Arne, certe ili povas traduki.” Sed Alda formetis sian libron kaj rigardis nin kun stranga mieno, kaj ni eksilentis. Kaj tiam ŝi diris: ”Estas tute sensence daŭrigi hodiaŭ. Al mi estas egale, ĉu vi volas lerni esperanton aŭ ne, sed se vi volas lerni, vi devas mem labori, alia metodo ne ekzistas. Se vi ĝis la venonta kunveno perfekte lernos la du unuajn paĝojn kaj poste daŭrigos en la sama maniero, mi restos en la grupo, sed alie mi forlasos ĝin.” Kaj poste ŝi trankvile diris ĝisrevidon kaj foriris kun siaj gekamaradoj, nur dude}k minutojn post la komenco. Estis la plej bona leciono, kiun Alda faris dum la tuta vintro. Post tio ni komencis labori, kaj baldaŭ ni trovis, ke lernado estas eĉ interesa kaj agrabla. Kaj Alda demandis, ĉu ni ne povas prepari pli longajn taskojn, kaj ni konsentis. Ni notis novajn vortojn, ripetis gramatikajn aferojn, komencis babili inter ni. ĉiu plenumis la sian kaj multaj faris pli, ni komencis konkuri.
 
 Vidu, dank’al niaj junaj pioniroj mi nun povas fari tiun ĉi paroladon esperante, kaj multaj el vi certe povus fari la samon. Aliaj eble ne povas, sed ĉiu el vi tamen povas bone
 
 kompreni min. Kaj la plej grava estas, ke ni lernis, kiamaniere oni devas lerni, kaj ke ni nun ŝatas lerni per laboro.
 
-Persone kaj en la nomo de miaj kunlernantoj mi kore dan-
-
-kas vin, junaj kamaradoj. Samideanoj, ili vivu!
-
-
-INFANOJ EN TORENTO
+Persone kaj en la nomo de miaj kunlernantoj mi kore dankas vin, junaj kamaradoj. Samideanoj, ili vivu!
 
 
 Jern signe levis la manon, kaj kvar potencaj vivukrioj eksonis.
@@ -6951,9 +5795,6 @@ Per siaj kantoj kaj rakontoj li en la fino de niaj kunvenoj tre agrable spicis l
 Kiam jam forsonis la novaj vivukrioj, Jern faris paŭzeton kaj poste daŭrigis:
 
 —Sed, amikoj, eble vi ne pripensas, kial vi lernas, ne pensis pri la celo de nia lernado. Certe, ni jam scias, ke ni povas havi grandan plezuron kaj utilon de esperanto. Multaj el ni jam korespondas kun eksterlandanoj, kaj du, tri el ni eble partoprenos eksterlandan vojaĝon en la somero. Sed, la ĉefa celo devas esti pli granda. Antaŭ kelkaj tagoj mi aŭskultis, eble ankaŭ vi, radioparoladon de nia instruministro. Li parolis pri popola memregado kaj popola memklerigo, kaj inter alie li diris, ke popola memklerigo estas necesa kondiĉo por popola memregado, kaj ke ĉiu klerigo kaj ĉiu klero devas servi al socio. Jen, amikoj, la ĉefpunkto! Ni ĉiuj estas, aŭ devus esti, servantoj de la socio. Ni devas plibonigi ĝin kaj gardi ĝntraŭ danĝeroj de diktaturaj ideoj. Sed por povi tion fari ni devas klerigi nin, devas lerni. Ni lernas ne nur por ni mem, kvankam tio estas agrabla, sed antaŭ ĉio ni lernas por servi al la socio. Ankaŭ nia esperanta lernado devas servi al tio. Ni plivastigas nian scion pri la mondo, ni akiras pli grandan komprenon pri multaj aferoj, kiujn estas necese kompreni, ni evoluas, ni fariĝas pli bonaj civitanoj. Jen! Kaj per nia esperanta laboro ni servas ne nur al nia propra socio, ni helpas ankaŭ, laŭ niaj modestaj fortoj, fari fundamenton por pli vasta socio, por la tutmonda socio.
-
-
-INFANOJ EN TORENTO
 
 
 Kamaradoj, la studsezono finiĝis. Niaj kunvenoj ĉesis, kaj en la somero la grupo kunvenos nur unufoje monate. Sed ne forgesu daŭrigi vian lernadon. Preparu vin por la aŭtuno.
@@ -6978,22 +5819,16 @@ Jern denove.
 
 —Mi tre ekĝojis, li diris svede, kiam Alda diris al mi, ke Alekso deziras ĉeesti nian kunvenon, kaj ankoraŭ pli ĝojis, kiam mi eksciis, ke li sufiĉe multe studis esperanton. Alekso estas tre pasiva homo, sed laŭ mia impreso li samtempe estas tre saĝa, kaj tial mi tre ĝojus, se ankaŭ nia ŝatata gasto bonvolus diri kelkajn vortojn. Eble estas strange peti gaston paroli, sed ni tre ĝojus aŭdi kelkajn vortojn de vi, kaj poste la programo, kiel mi diris, fariĝos pli kaj pli malpeza. Kompreneble vi povas paroli svede, se vi tion deziras.
 
-Oni streĉite rigardis Alekson, kiu restis sidanta dum kelkaj 254
-
-INFANOJ EN TORENTO
+Oni streĉite rigardis Alekson, kiu restis sidanta dum kelkaj
 
 
 sekundoj, ŝajne hezitante. Poste li leviĝis sed restis silenta, dum liaj rigardoj kvazaŭ esplore rondiris inter la vizaĝoj ĉir-kaŭ la tablo. Fine li ekridetis bonhumore kaj diris esperante:
 
 —Vi petas min paroli. Mi volas esti tute sincera, kaj tial mi konfesas, ke mi ordinare ne ŝatas paroladojn, kaj mem paroli mi tute ne ŝatas.
 
-Sed mi ja rimarkis, ke mi nun venis en mondon tute kon-
+Sed mi ja rimarkis, ke mi nun venis en mondon tute kontraŭan al la ordinara. En la ordinara mondo homoj lernas kaj ekzercas sin por fariĝi kapablaj fari paroladojn, kaj kiam ili sukcesas, ili estas tre feliĉaj. Sed tie ĉi estas tute male. Tie ĉi oni paroladas por lerni kaj perfektiĝi. Tiu ĉi utiligo de la homa parolkapablo por instrui kaj perfektigi la homojn, por servi al la socio kaj la grandaj ideoj estas io vere grandioza.
 
-traŭan al la ordinara. En la ordinara mondo homoj lernas kaj ekzercas sin por fariĝi kapablaj fari paroladojn, kaj kiam ili sukcesas, ili estas tre feliĉaj. Sed tie ĉi estas tute male. Tie ĉi oni paroladas por lerni kaj perfektiĝi. Tiu ĉi utiligo de la homa parolkapablo por instrui kaj perfektigi la homojn, por servi al la socio kaj la grandaj ideoj estas io vere grandioza.
-
-Kaj imagu, amikoj! Kia ne estos la estonto de la esperan-
-
-tista agado, se tia estas la komenco! Mi legis, ke jam ekzistas grandaj oratoroj en esperanto. Sed kiaj estos la esperantaj oratoroj de la estonto, tion ni eĉ ne povas imagi. Kompare al ili la plej grandaj oratoroj de la naciaj lingvoj estos balbultan-toj.
+Kaj imagu, amikoj! Kia ne estos la estonto de la esperantista agado, se tia estas la komenco! Mi legis, ke jam ekzistas grandaj oratoroj en esperanto. Sed kiaj estos la esperantaj oratoroj de la estonto, tion ni eĉ ne povas imagi. Kompare al ili la plej grandaj oratoroj de la naciaj lingvoj estos balbultan-toj.
 
 Kaj vidu! Nun eĉ mi, kiu vere estas tre pasiva homo, faris paroladon. Verdire ĝi estas mallonga, sed se tia estas la komenco … ĉar estas komenco, efektive tio ĉi estas la unua parolado en mia tuta vivo.
 
@@ -7003,13 +5838,7 @@ Alekso sidiĝis, kaj granda aplaŭdobruo atestis pri la sukceso de lia surpriza 
 
 Nun venis la programpunkto de Paŭlo. En maniero de
 
-aplomba artisto li dum dudek minutoj bone amuzis siajn aŭ-
-
-
-INFANOJ EN TORENTO
-
-
-skultantojn per kelkaj kantetoj kaj anekdotforma, iom fantazia resumo pri la gruplaboro kaj la grupanoj.
+aplomba artisto li dum dudek minutoj bone amuzis siajn aŭskultantojn per kelkaj kantetoj kaj anekdotforma, iom fantazia resumo pri la gruplaboro kaj la grupanoj.
 
 Sekvis komuna kantado, kaj poste Jern anoncis kafon. La
 
@@ -7039,18 +5868,13 @@ Jern ŝerce kolere.
 
 —Ajna, kriis Paŭlo petvoĉe kaj petolrigarde, restu ankoraŭ iomete! Mi tiel ŝatus iomete promenami kun vi post la danco!
 
-—Ne estas kamaradece forkuri tiamaniere meze en la kun-
-
-veno, diris iu el la grupanoj.
+—Ne estas kamaradece forkuri tiamaniere meze en la kunveno, diris iu el la grupanoj.
 
 Sed la rondanoj atentis nek pri la pasiva peto de Alekso
 
 nek pri la iom malkontenta mieno de la grupanoj.
 
 —ĉu vi restos? demandis Johano al Eriko.
-
-
-INFANOJ EN TORENTO
 
 
 —Jes, mi restos, respondis la frato. Mi volas babili kun Jern.
@@ -7092,12 +5916,7 @@ Post kvaronhoro haltis Alekso kaj murmuris:
 —Eble ni reiru, amikoj?
 
 
-INFANOJ EN TORENTO
-
-
-Ili ne respondis sed restis starantaj sur la soleca vojo. La vento iom plifortiĝis, kaj senĉesa, kvazaŭ riverege fluanta susuro plenigis la arbaron. Kiel vastaj ondoj ĝi preterpasis, aŭdi-
-
-ĝis en malproksimo kiel io alvenanta, kreskis kaj venis pli kaj pli proksimen, ĝis ĝi en potenca muĝo kiel ŝvelondo moviĝis antaŭen super ili kaj poste malfortiĝis kaj fluis for en la mallumo de la nokto.
+Ili ne respondis sed restis starantaj sur la soleca vojo. La vento iom plifortiĝis, kaj senĉesa, kvazaŭ riverege fluanta susuro plenigis la arbaron. Kiel vastaj ondoj ĝi preterpasis, aŭdiĝis en malproksimo kiel io alvenanta, kreskis kaj venis pli kaj pli proksimen, ĝis ĝi en potenca muĝo kiel ŝvelondo moviĝis antaŭen super ili kaj poste malfortiĝis kaj fluis for en la mallumo de la nokto.
 
 —ĉu ne tiel sonas la maro? demandis Ajna.
 
@@ -7124,9 +5943,6 @@ Kaj denove ili staris silentaj, kaj neniu el ili faris paŝon por reiri.
 —Jes, sed kiam vi rigardis nin, estis en viaj okuloj iu certa esprimo, kiu kaptis min, kaj subite mi komprenis vin … ŝi prenis lian manon kaj premis ĝin kaj diris tremvoĉe:
 
 
-INFANOJ EN TORENTO
-
-
 —Alekso, vi estas nia amiko en alia maniero ol ĉiuj aliaj, vi amas nin kiel patro, kaj tamen vi estas unu el ni.
 
 —Nu, nu, knabino, murmuris Alekso. Kio okazis al vi?
@@ -7141,18 +5957,13 @@ kaj bonan kamaradon, sed nun mi komprenas pli multe, mi
 
 komprenas vian … sopiron.
 
-—Mian sopiron vi komprenas, amikino? diris Alekso kvie-
-
-te. in vi povas kompreni, nur se ĝi troviĝas ankaŭ ĉe vi.
+—Mian sopiron vi komprenas, amikino? diris Alekso kviete. in vi povas kompreni, nur se ĝi troviĝas ankaŭ ĉe vi.
 
 —Kaj viaj okuloj diris, ke vi timetas, ke viaj amikoj eble ne povas vmpreni …
 
 —Nu, nu, knabino … Sed nun ni tamen iru hejmen Ni ja
 
 devas ĉiuj frue ellitiĝi morgaŭ matene …
-
-
-INFANOJ EN TORENTO
 
 
 Iun dimanĉon fiŝanta junulo vidis la kvar rondanojn bani
@@ -7176,9 +5987,6 @@ Kiam Johano post la tagmanĝa paŭzo revenis al la forĝejo, la forĝistoj kaj l
 —Eble ne. Sed tia strangaĵo! …
 
 
-INFANOJ EN TORENTO
-
-
 —Kial strangaĵo? demandis Johano, kvazaŭ li ne komprenus.
 
 La ridetoj de la ĉirkaŭstarantoj malaperis, iliaj mienoj iel konsterniĝis, kaj ili rigardis unu la alian kvazaŭ en silenta reciproka ekkompreno.
@@ -7189,9 +5997,7 @@ Lia propra forĝisto dum la proksimaj horoj tiam kaj tiam faris kun li disputsim
 
 Simile okazis al Arne. Lia laborkamarado en tiu tago estis la sama, kiu iam edifis lin per priknabinaj historioj. Aŭdinte la aferon de iuj samaĝuloj li subite ekmontris certan respekton al Arne kaj diris al li preskaŭ admire:
 
-—Diable! Kiu povus imagi tion pri vi? Sed estas bedaŭrin-
-
-de, ke vi ne estis pli singarda. Tiaj aferoj ne estas por la pu-bliko.
+—Diable! Kiu povus imagi tion pri vi? Sed estas bedaŭrinde, ke vi ne estis pli singarda. Tiaj aferoj ne estas por la pu-bliko.
 
 Kaj li faris al Arne multajn stultajn demandojn, sed Arne respondis proksimume kiel Johano en la forĝejo, kaj baldaŭ la kamarado komprenis, ke Arne tute ne meritas lian admi-ron.
 
@@ -7201,9 +6007,7 @@ Kial vi do faris tion? Estas ja ridinde.
 
 Kiam ili ŝovis sian ĉaron tien kaj reen, aliaj laboristoj tiam kaj tiam per vokvorto altiris la atenton de Arne kaj ĵetis al li pikajn demandojn pri logaĵoj de junaj knabinoj.
 
-Tagmeze envenis Jern en la gazetvendejon. Alda estis sola 261
-
-INFANOJ EN TORENTO
+Tagmeze envenis Jern en la gazetvendejon. Alda estis sola
 
 
 en la butiko, kaj aĉetinte gazeton li restis staranta apud la vendotablo kaj rigardis ŝin hezitmiene.
@@ -7239,16 +6043,11 @@ Alda rakontis, kaj la patro silente aŭskultis. Li palpebrumis kaj la vizaĝmusk
 —Knabino, mi ne scias, kion diri, sed mi fidas vin, kaj mi kredas, ke vi scias, kion vi faras … Se homo havas forton sekvi sian racion …
 
 
-INFANOJ EN TORENTO
-
-
 Li ne finis la frazon, sed Alda demandtone aldonis: tiam tiu homo sekvu sian racion.
 
 —Jes, ŝajnas al mi tiel, li diris kaj pripense kapklinis. Sekvi sian racion estas stranga eksperimento, sed tamen …
 
-Kiam Ajna venis hejmen en la vespero regis granda eksci-
-
-tiĝo en la hejmo. Kiam ŝi malfermis la pordon, la patro tuj venis renkonte al ŝi, kun ruĝa vizaĝo kaj terura rigardo, kaj li eksplodis bruvoĉe:
+Kiam Ajna venis hejmen en la vespero regis granda ekscitiĝo en la hejmo. Kiam ŝi malfermis la pordon, la patro tuj venis renkonte al ŝi, kun ruĝa vizaĝo kaj terura rigardo, kaj li eksplodis bruvoĉe:
 
 —Kion vi faris, diabla stultulino? Ho … idiotino, mi devus vipi vin kiel hundon!
 
@@ -7281,9 +6080,6 @@ Por momento li perdis la parolkapablon.
 gekamaradoj, tiu knabinaĉo de la anarkisto, tiu Alekso.
 
 
-INFANOJ EN TORENTO
-
-
 —Ne parolu malbone pri ili! diris Ajna. Ni faris tiel tute simple pro tio, ke ĝi ŝajnis natura al ni.
 
 —Idiotino! ĉu vi do ne komprenas, ke tio estas la plej mal-natura, kion vi povus elpensi?
@@ -7307,9 +6103,6 @@ Ajna iris al la sofo kaj sidiĝis apud avinjo. Avinjo deman-de rigardis en ŝiaj
 Ajna iom rektigis sin kaj firme rigardis la patron.
 
 
-INFANOJ EN TORENTO
-
-
 —Mi komprenas vin, ŝi diris. Sed rilate al miaj kamaradoj kaj nia kunvivo mi havas alian opinion ol vi, kaj mi ne rom-pos la interrilaton kun ili.
 
 —Aha! Nu nu, tio ordiĝos sendepende de viaj opinio kaj
@@ -7322,9 +6115,7 @@ certa akcento:
 
 —En mia frua infanaĝo mi lernis memstarecon.
 
-En la unua momento li ne komprenis ŝin, sed subite li ruĝi-
-
-ĝis.
+En la unua momento li ne komprenis ŝin, sed subite li ruĝiĝis.
 
 —Hontu! li diris abrupte. Nu, nun mi iros al la inĝeniero.
 
@@ -7346,9 +6137,7 @@ jes, fakte mi ne vidas ion hontindan en tiu afero.
 
 —Sed patrino! interrompis Elsa. Kiel vi povas paroli tiel? Se mi tiel kondutus, mi poste ne kuraĝus montri min al konataj homoj.
 
-—Trankvilon, fratino! diris Johano. Certe vi ne povas tiel konduti, kaj vi ne bezonos honti tiel terure. Kaj nun vi ja ricevis novajn ŝuojn kaj novan robon kaj retrovis vian fianĉon 265
-
-INFANOJ EN TORENTO
+—Trankvilon, fratino! diris Johano. Certe vi ne povas tiel konduti, kaj vi ne bezonos honti tiel terure. Kaj nun vi ja ricevis novajn ŝuojn kaj novan robon kaj retrovis vian fianĉon
 
 
 kaj li edzinigos vin, kaj ĉio estos en bona ordo, kaj mian konduton vi lasu al mi.
@@ -7367,9 +6156,7 @@ La patro de Ajna iris al la inĝeniero, kaj en granda ekscitiĝo rakontis al li 
 
 —Mi neniel povas pretendi, li finis, ke vi toleru ŝin en via hejmo post tiu ĉi okazo, sed mi volis almenaŭ senkaŝe rakonti la aferon al vi.
 
-La gesinjoroj nenion diris dum lia rakontado, kaj iliaj viza-
-
-ĝoj ne perfidis, kion ili pensas pri sia servistino.
+La gesinjoroj nenion diris dum lia rakontado, kaj iliaj vizaĝoj ne perfidis, kion ili pensas pri sia servistino.
 
 —Do estas tiel, ke ili banis sin kune sen banvestoj, sed nenio alia okazis? diris demande la inĝeniero, tiel trankvile ke la patro de Ajna iom ekhontis pro sia ekscitiĝo.
 
@@ -7378,9 +6165,6 @@ La gesinjoroj nenion diris dum lia rakontado, kaj iliaj viza-
 —Iom neordinara konduto, certe, diris la inĝeniero.
 
 Li faris paŭzeton kaj ŝajnis pripensi.
-
-
-INFANOJ EN TORENTO
 
 
 —Mia edzino kaj mi tre ŝatas Ajnan, li daŭrigis. Iel ŝi ajnas al ni neordinara knabino. Mi kredas, ke la afero ne estas tiel terura. ĉiuokaze ŝi revenu morgaŭ kiel ordinare. Mi parolos kun ŝi.
@@ -7399,9 +6183,7 @@ sian propran reputacion kontraŭ malbona famo, rakontis al siaj laborkamaradoj p
 
 Ajna atendis, ke la promesita akcepto renkontos ŝin tuj
 
-post apero en la hejmo de la inĝeniero, sed la mastro jam foriris, kiam ŝi alvenis, kaj la mastrino nenion diris pri la afero sed kondutis same afable kiel antaŭe. Post nelonge la inĝeniero venis hejmen por matenmanĝi, sed li nenion menciis al Ajna pri la interparolo kun la patro kaj ne atentis pri ŝi pli ol 267
-
-INFANOJ EN TORENTO
+post apero en la hejmo de la inĝeniero, sed la mastro jam foriris, kiam ŝi alvenis, kaj la mastrino nenion diris pri la afero sed kondutis same afable kiel antaŭe. Post nelonge la inĝeniero venis hejmen por matenmanĝi, sed li nenion menciis al Ajna pri la interparolo kun la patro kaj ne atentis pri ŝi pli ol
 
 
 ordinare. Kaj tiel pasis la tuta tago. Nur en la vespero, kiam Ajna jam estis preta por iri hejmen, vokis ŝin la inĝeniero kaj petis ŝin enveni en lian laborĉambron. Li petis Ajnan sidiĝi apud malgranda tablo kaj mem li eksidis kontraŭ ŝi aliflanke de la tablo.
@@ -7414,9 +6196,7 @@ ordinare. Kaj tiel pasis la tuta tago. Nur en la vespero, kiam Ajna jam estis pr
 
 viaj kamaradoj. Ili plaĉis al mi. Vi tre ŝatas ilin, ĉu ne?
 
-—Jes, kaj same Aldan, nian kamaradinon, eble patro men-
-
-ciis pri ŝi.
+—Jes, kaj same Aldan, nian kamaradinon, eble patro menciis pri ŝi.
 
 —Kun ŝi mi neniam parolis, sed mi okaze vidis ŝin en la
 
@@ -7428,13 +6208,9 @@ Li silentis por kelkaj momentoj, kaj Ajna rigardis lin atendante la daŭrigon de
 
 por desegnado. Li okaze diris kelkajn vortojn pri tia afero, kaj ŝajnis al mi, ke li havas komprenon por arto. ĉu vi vidis desegnaĵojn de li?
 
-Ajna komencis rakonti, unue iom hezite, sed novaj deman-
+Ajna komencis rakonti, unue iom hezite, sed novaj demandoj de li vigligis ŝin, kaj baldaŭ ŝi preskaŭ forgesis la malagrablan kaŭzon de la interparolo kaj komencis rakonti, kvazaŭ ŝi havus antaŭ si Alekson sed ne la inĝenieron.
 
-doj de li vigligis ŝin, kaj baldaŭ ŝi preskaŭ forgesis la malagrablan kaŭzon de la interparolo kaj komencis rakonti, kvazaŭ ŝi havus antaŭ si Alekson sed ne la inĝenieron.
-
-Poste li faris similajn, ŝajne same senintencajn demandojn pri la aliaj, kaj Ajna same volonte kaj same sincere rakontis 268
-
-INFANOJ EN TORENTO
+Poste li faris similajn, ŝajne same senintencajn demandojn pri la aliaj, kaj Ajna same volonte kaj same sincere rakontis
 
 
 pri ili, pri la ekskursoj kaj pri la cetera kunvivo kaj eĉ pri la interparoloj kaj la pensmanieroj en la rondo.
@@ -7475,16 +6251,11 @@ Kion li postulis de vi?
 
 Kaj Ajna mallonge rakontis pri la interparolo.
 
-—Mi supozas, ke vi ne mensogas, diris la patro malhelmie-
-
-ne, kvankam mi atendis ion alian. Hm! Stranga homo! Kaj
+—Mi supozas, ke vi ne mensogas, diris la patro malhelmiene, kvankam mi atendis ion alian. Hm! Stranga homo! Kaj
 
 tamen estas inĝeniero kaj sinjoro! Mi ne povas kompreni …
 
 Sed do bonvolu aŭskulti miajn postulojn. …
-
-
-INFANOJ EN TORENTO
 
 
 Vole-nevole Ajna devis aŭskulti liajn postulojn, sed liajn ordonojn ŝi ne plenumis. Kiam tempo permesis, ŝi daŭrigis kunesti kun siaj gekamaradoj kiel antaŭe, kaj ili ne ŝanĝis siajn manierojn. La torentanoj scivoleme rigardis ilin, atendante la kulminon de la historio. Sed nenio okazis, kaj iom post iom silentiĝis la klaĉado.
@@ -7492,9 +6263,6 @@ Vole-nevole Ajna devis aŭskulti liajn postulojn, sed liajn ordonojn ŝi ne plen
 —Ili estas nudistoj, sed cetere ili ŝajnas normalaj, oni kon-stante konkludis preskaŭ indiferente. Eĉ la patro de Ajna iom post iom trankviliĝis, kvankam li ne pardonis al la filino ŝian obstinon.
 
 —Eble vi ne estas malbona, li deklaris, sed duone freneza vi estas, kaj mi ĝojos, kiam vi forlasos la hejmon.
-
-
-INFANOJ EN TORENTO
 
 
 Kaj denove proksimiĝis somermezo, kun abunda verdaĵo
@@ -7518,9 +6286,6 @@ Sed en ilia propra soleca loko troviĝis neniu, kaj eĉ la bruo de la aliaj ne e
 Sed baldaŭ Brita komencis paroli pri aliaj aferoj, kaj revenis la intima harmonio de ilia kunesto en la pasinta somero.
 
 
-INFANOJ EN TORENTO
-
-
 Sed tiam subite aperis inter la alnaj densejoj kvar junuloj dek-sep-, dekokjaraj. Kiam ili ekvidis la knabinojn, ili momente haltis, kvazaŭ hezitante, sed poste tuj proksimiĝis. La knabinoj forturnis sin de la entrudantoj, kaj Arne kaj Johano provis per siaj rigardoj haltigi ilin, sed tio neniel efikis. Nur je kelkmetra distanco de la rondanoj ili haltis, kaj unu el ili, la sama kiu iam edifis Arnen per priknabinaj historioj, afekte salutis, dum ĉiuj kvar fripone glate ridetis.
 
 —Ni ne sciis, ke vi estas tie ĉi, diris tiu, kiu salutis, sed mi esperas, ke ni ne ĝenas vin. Ni ĉiam ŝatas bani nin tie ĉi, estas tre agrabla loko. Kaj vi, knabinoj, ne bezonas forturni vin, kvazaŭ vi volus forkuri. Ni ne estas kanibaloj.
@@ -7529,9 +6294,7 @@ Subite Alda turnis la kapon kaj demandis:
 
 —Kion vi volas?
 
-—Stranga demando! diris la junulo kaj rikane ridis. Kom-
-
-preneble ni volas bani nin.
+—Stranga demando! diris la junulo kaj rikane ridis. Kompreneble ni volas bani nin.
 
 —Nun vi mensogas, diris Alda strange trankvile. Vi volas
 
@@ -7541,9 +6304,7 @@ rigardi nudajn knabinojn, sole pro tio vi venis. Kun tiaj homoj ni ne interrilat
 
 la junulo. Restu nur! Ni ne ĝenos vin, kaj estas ja loko por ni ĉiuj. Ni estos same ĝentilaj kiel …
 
-Li turnis la rigardon al la knaboj kaj abrupte silentiĝis, fra-pita de la aspekto de Johano. Johano sidis silenta kun forte kunpremitaj lipoj, kaj lia vizaĝo estis strange rigida. La muskoloj tremis sub lia haŭto, kaj subite li kvazaŭ ĵetiĝis de sia loko kontraŭ la kvar junulojn. Ili estis pli fortaj ol li, sed lia duonfreneza aspekto tiom teruris ilin, ke ili forkuris kvazaŭ de rabia hundo. Dum kelkaj sekundoj li persekutis ilin, sed 272
-
-INFANOJ EN TORENTO
+Li turnis la rigardon al la knaboj kaj abrupte silentiĝis, fra-pita de la aspekto de Johano. Johano sidis silenta kun forte kunpremitaj lipoj, kaj lia vizaĝo estis strange rigida. La muskoloj tremis sub lia haŭto, kaj subite li kvazaŭ ĵetiĝis de sia loko kontraŭ la kvar junulojn. Ili estis pli fortaj ol li, sed lia duonfreneza aspekto tiom teruris ilin, ke ili forkuris kvazaŭ de rabia hundo. Dum kelkaj sekundoj li persekutis ilin, sed
 
 
 kiam li komprenis, ke ili efektive forkuras, li haltis kaj malrapide reiris.
@@ -7575,9 +6336,6 @@ Silento regis en la rondo, sed la loko vekis memorojn, kaj Ajna provis vigligi l
 —Sed tiaj homoj kiel tiuj kvar tamen estas esceptaj, diris Ajna.
 
 
-INFANOJ EN TORENTO
-
-
 —Eble ĝuste tiaj estas esceptaj. Sed la spirito estas pli malpli la sama. Oni ŝatas detrui kaj ĉagreni. ĉu vi memoras, kiel vi ĉe la lernejo faris neĝofigurojn, kaj kiel la knaboj disfrapis ilin per neĝobuloj kaj rikanis kaj intense ĝuis vian malĝojon?
 
 Vi ludis per pilkoj, kaj ili prenis la pilkojn kaj forĵetis ilin, vi faris dancludojn, kaj ili alkuris kaj disbreĉis la rondon. Kaj kiam ili fariĝas junuloj, ili ankoraŭ ŝatas detrui kaj ĉagreni.
@@ -7587,9 +6345,6 @@ Eble estas feliĉe, ke ili iom post iom fariĝas laborsklavoj, alie la plenkresk
 —ĉu malpli? diris Brita. ĉu ne estas iamaj knaboj, kiuj faras la mondon batalejo, kiuj igas la homojn mortigi unu la alian kaj disfrapi virinojn kaj infanojn same kiel la knaboj iam disfrapis la neĝofigurojn de Ajna?
 
 —Jes, vi pravas, diris Johano, pri tio mi ne pensis. Certe estas la sama afero.
-
-
-INFANOJ EN TORENTO
 
 
 La someraj semajnoj rapide forpasis.
@@ -7602,18 +6357,13 @@ La patrino de Arne iom konfuziĝis pro la propono de la
 
 knabino, sed Brita trankviligis ŝin.
 
-—Ne timu, panjo! Mi volas paroli kun Arne pri lia pentra-
-
-do, kaj mi havas gravan proponon. Vi poste ekscios, sed unue mi volas paroli kun li.
+—Ne timu, panjo! Mi volas paroli kun Arne pri lia pentrado, kaj mi havas gravan proponon. Vi poste ekscios, sed unue mi volas paroli kun li.
 
 —Ho, tiel, diris la patrino, kaj ŝia mieno heliĝis. Mi nenion komprenas, neniel povas helpi al Arne, sed vi ja estas edukita kaj bone komprenas, kaj mi tre ĝojus, se vi povus ion elpensi.
 
 Arne rapide manĝis, lavis sin kaj ŝanĝis vestojn, kaj ili kune foriris.
 
 —Jes, mi havas proponon, diris Brita, kiam ili forlasis la laboristajn domojn kaj povis pli senĝene interparoli. Venis pentristo al la pensiono, vera pentristo, kaj li havas pentro-lernejon en la ĉefurbo. Mi multe babilis kun li dum la lastaj tagoj, kaj ni amikiĝis. Hodiaŭ matene mi komencis rakonti pri vi kaj demandis, ĉu li ne povas ion fari por vi. Li onklece ridetis pri mia fervoro, sed mi ne lasis miajn atakojn, kaj fine li diris, ke mi povas alkonduki la knabon kune kun liaj artaĵoj.
-
-
-INFANOJ EN TORENTO
 
 
 kaj fine mi sukcesis persvadi lin akcepti vin kiel nepagantan lernanton, se li trovos, ke vi meritos tion.
@@ -7648,9 +6398,7 @@ Estus malfacile akcepti bonfaron.
 
 Ili transsaltis la drenfosaĵon kaj sidiĝis.
 
-—Mi komprenas vin, daŭrigis Brita. Verŝajne mi mem sa-
-
-me sentus en tia kazo. Sed aliflanke, ĉu vi mem ne volonte donus tian helpon, se vi povus?
+—Mi komprenas vin, daŭrigis Brita. Verŝajne mi mem same sentus en tia kazo. Sed aliflanke, ĉu vi mem ne volonte donus tian helpon, se vi povus?
 
 —Certe.
 
@@ -7659,12 +6407,7 @@ me sentus en tia kazo. Sed aliflanke, ĉu vi mem ne volonte donus tian helpon, s
 —Provizore mi ja povas resti en la uzino.
 
 
-INFANOJ EN TORENTO
-
-
-—Vere ŝajnas, ke vi povus tion fari malgraŭ la propono kaj eĉ malgraŭ via deziro libere sekvi vian propran vojon. Sed aŭskultu, Arne, mi tiel ĝojus, se vi konsentus. Nia hejmo fari-
-
-ĝus alia, se vi estus tie, mi ne estus sola plu.
+—Vere ŝajnas, ke vi povus tion fari malgraŭ la propono kaj eĉ malgraŭ via deziro libere sekvi vian propran vojon. Sed aŭskultu, Arne, mi tiel ĝojus, se vi konsentus. Nia hejmo fariĝus alia, se vi estus tie, mi ne estus sola plu.
 
 Arne ankoraŭfoje longe rigardis ŝin, kaj poste li decide diris:
 
@@ -7672,17 +6415,13 @@ Arne ankoraŭfoje longe rigardis ŝin, kaj poste li decide diris:
 
 Kaj li kaptis ŝian manon kaj forte premis ĝin, sed poste li ekridis.
 
-—Finfine ni iom trorapidas. Ni ankoraŭ ne aŭdis la opini-
-
-on de la pentristo.
+—Finfine ni iom trorapidas. Ni ankoraŭ ne aŭdis la opinion de la pentristo.
 
 En la sekvanta vespero Brita prezentis sian amikon al la
 
 pentristo. Tiu esplore rigardis la knabon kaj dume faris diversajn demandojn, sed li neniel montris, kion li pensas pri la afero.
 
-—Sed nun malfermu vian grandan pakaĵon, kaj ni iom ri-
-
-gardu viajn kreaĵojn!
+—Sed nun malfermu vian grandan pakaĵon, kaj ni iom rigardu viajn kreaĵojn!
 
 Arne malfermis la pakaĵon kaj metis sur la tablon antaŭ la sinjoro amason da paperoj kun desegnaĵoj kaj akvareloj, kelkajn skizlibrojn kaj dekon da olepentraĵoj faritaj sur masoni-to.
 
@@ -7693,9 +6432,6 @@ Nur post duonhoro li finis sian ekzamenon. Li levis la kapon kaj rigardis Arnen.
 —ĉu vi estas konscia pri la enhavo de viaj kreaĵoj, mi volas diri, ĉu vi intencis esprimi ion per ili?
 
 
-INFANOJ EN TORENTO
-
-
 —Jes. Preskaŭ ĉiuj estas el la lasta jaro, antaŭe mi ne komprenis tion.
 
 —Strange.
@@ -7703,9 +6439,6 @@ INFANOJ EN TORENTO
 Li ekstaris kaj premis la manon de Arne.
 
 —Mi ĝojas, ke mi konatiĝis kun vi, kaj mi volonte akceptas vin kiel lernanton. Vizitu min morgaŭ vespere, kaj tiam ni iom babilos pri la afero. Mi supozas, ke Brita nun volas konduki vin al sia patrino. Dankon, Brita, vi bone faris, kiam vi konatigis vian amikon al mi.
-
-
-INFANOJ EN TORENTO
 
 
 Veninte hejmen li rakontis ĉion al la patrino. Pli da ĝojo li neniam vidis ĉe ŝi. Sed li mem estis malpli entuziasma, ŝajnis eĉ iomete hezita.
@@ -7720,16 +6453,11 @@ Arne rakontis pri la propono de Brita kaj pri la okazoj en la sama vespero.
 
 —Estas ja bonege, diris Alekso. Sed vi parolas pri la afero, kvazaŭ ĝi donus al vi pli da ĉagreno ol ĝojo. Kio ankoraŭ premas vin?
 
-—Mi komencis pensi pri certa afero, diris Arne kaj serio-
-
-ze rigardis Alekson. Vi ja konas nian rondon …
+—Mi komencis pensi pri certa afero, diris Arne kaj serioze rigardis Alekson. Vi ja konas nian rondon …
 
 —Sufiĉe bone, mi kredas.
 
 —Iel venis al mi la penso, ke vivo estas pli ol arto. Vidu, per linioj kaj koloroj mi provas esprimi tion, kion mi trovas plej bela, plej ŝatinda. Kaj fariĝas bildo de mia ideo pri la vivo, pri la homoj. Sed ĉu ne estus pli bone esprimi siajn ideojn pri la vivo ĝuste per sia propra vivado, en la kunvivo kun la homoj?
-
-
-INFANOJ EN TORENTO
 
 
 ĉu la arto ne estas surogato por vivado? Vidu, mi forlasas la vivon de nia rondo por fari bildojn de ĝi!
@@ -7761,9 +6489,6 @@ Post kelka tempo li subite ekridetis.
 —Certe. Kaj same trankvile ĝi moviĝas … tiel trankvile, tiel trankvilige …
 
 
-INFANOJ EN TORENTO
-
-
 En iu vespero Johano iris al Alda por redoni pruntitan libron. Li trovis ŝin en la ĝardeno, kie ŝi kolektis ribojn. ŝi demandis, ĉu li deziras alian, kaj kiam li jesis, ŝi volis tuj eniri por doni ĝin al li.
 
 —Lasu tion, mi helpos vin. Tiujn ĉi malmultajn arbustojn
@@ -7772,9 +6497,7 @@ ni rapide senberigos. ĉu poste vi estos libera?
 
 ŝi jesis.
 
-—Bone. Do ni povos poste iom babili, mi volus serĉi kel-
-
-kajn aferojn en la enciklopedio de via patro.
+—Bone. Do ni povos poste iom babili, mi volus serĉi kelkajn aferojn en la enciklopedio de via patro.
 
 —Sed ne estas bona ordo, ke vi helpas min. Vi jam laboris la tutan tagon en la forĝejo.
 
@@ -7785,9 +6508,6 @@ Ili rapide laboris, ŝi sur unu flanko de la arbustoj, li sur la alia, kaj dume 
 La lasta arbusto estis preta. Ili rektigis sin, kaj Johano kapklinis al si.
 
 —Nu, jen ni do estas pretaj, kaj …
-
-
-INFANOJ EN TORENTO
 
 
 Iliaj rigardoj renkontiĝis, kaj Johano subite haltis meze en la frazo. Dum kelkaj momentoj ili staris senspire silentaj kaj senmovaj, rigardante unu la alian kvazaŭ konsternitaj. Iliaj vizaĝoj fariĝis reve seriozaj. Sed subite aperis rideto sur iliaj lipoj, rideto apenaŭ videbla. La okuloj momente malleviĝis, kaj poste la rigardoj denove renkontiĝis. Kaj denove ili ekridetis, silente, konstemite.
@@ -7807,16 +6527,11 @@ Ili rigardis unu la alian, kaj Alda ekridis.
 —Nu jen! diris Alda. in ankaŭ mi forgesis.
 
 
-INFANOJ EN TORENTO
-
-
 Etiopujo falis, eksonis jam la unuaj pafoj de nova batalo en Hispanujo. La popoloj forĝas armilojn, estas tempo de
 
 alta konjunkturo. Plenkapacite laboras uzinoj kaj minejoj, sed eĉ la tuta kapacito ne sufiĉas por plenumi la mendojn.
 
-En la komenco de aŭgusto oni metis Arnen en novan la-
-
-borgrupon. Sur la orienta bordo de la rivero oni alkonstruos novan, grandan lamenejon.
+En la komenco de aŭgusto oni metis Arnen en novan laborgrupon. Sur la orienta bordo de la rivero oni alkonstruos novan, grandan lamenejon.
 
 Kaj la grupo atakas la densejon de junaj, sovaĝe kreskantaj arbetoj ĉe la alta latbarilo, kaj baldaŭ ĝi estas for, sed la loko tamen ne sufiĉas. Oni atakas ankaŭ la barilon kaj forigas grandan parton de ĝi, kaj anstataŭe oni alkonstruas novan barilparton, pli proksime al la laboristaj domoj, kaj la infanoj en la malgranda sablejo devas forlasi sian ludlokon, ĉar nun
 
@@ -7824,16 +6539,12 @@ Kaj la grupo atakas la densejon de junaj, sovaĝe kreskantaj arbetoj ĉe la alta
 
 Arne fosas truojn por la palisoj de la nova barilparto. Flanke de la sablejo staras la infanetoj kaj interesite rigardas la ŝvitkovritajn laboristojn. Siajn fosiletojn kaj ĉaretojn kaj aliajn ludilojn ili forportis. Estas veraj fosiloj kaj veraj ĉaroj kaj veraj laboristoj, kiuj nun okupas la lokon kaj faras fundamenton por vera konstruaĵo.
 
-Kaj jen nova afero altiras iliajn rigardojn. Venas du viroj kun hakiloj kaj granda segilo. Ili iras al la du altaj piceoj, ili iom ĉirkaŭrigardas, kaj poste unu el ili rapide faras malgrandan hakaĵon ĉe la radikoj de la arboj. La viroj ekgenuas ĉe unu el la piceoj, almetas la segilon kaj ekmovas ĝin. Per zuma 283
-
-INFANOJ EN TORENTO
+Kaj jen nova afero altiras iliajn rigardojn. Venas du viroj kun hakiloj kaj granda segilo. Ili iras al la du altaj piceoj, ili iom ĉirkaŭrigardas, kaj poste unu el ili rapide faras malgrandan hakaĵon ĉe la radikoj de la arboj. La viroj ekgenuas ĉe unu el la piceoj, almetas la segilon kaj ekmovas ĝin. Per zuma
 
 
 sono kaj kvazaŭ lude ĝi tramordas la lignon. La granda kro-no ektremas, la supro ŝanceliĝas, kvazaŭ senforte la arbo kliniĝas kaj falas. Momente la viroj ripozas sed poste ili tuj atakas la alian.
 
-Ankaŭ Arne alrigardas kaj forgesas labori. Iam li kaj Johano ludis tie en la sablo. Ili ŝarĝis ĉareton per ŝtonoj kaj sablo, kaj brava ĉevaleto kun rompita kruro tiris la ŝarĝon al la altforno. Ajna kaj Greta mastrumis apude, kaj jen la voĉo de Ajna anoncis manĝotempon. Kaj tie sub la arboj ili kolektis piceajn konusojn kaj faris bovinojn kaj ĉevalojn … Kaj iam estis vintra vespero, kristnaska vespero, malvarmo, lunlumo, blanka ne-
-
-ĝo, kaj sub la altaj piceoj staris malgranda, tremanta knabo, kaj liaj okuloj estis plenaj de larmoj, kaj tra la larmoj ekbrilis la lunlumo en plej belaj koloroj …
+Ankaŭ Arne alrigardas kaj forgesas labori. Iam li kaj Johano ludis tie en la sablo. Ili ŝarĝis ĉareton per ŝtonoj kaj sablo, kaj brava ĉevaleto kun rompita kruro tiris la ŝarĝon al la altforno. Ajna kaj Greta mastrumis apude, kaj jen la voĉo de Ajna anoncis manĝotempon. Kaj tie sub la arboj ili kolektis piceajn konusojn kaj faris bovinojn kaj ĉevalojn … Kaj iam estis vintra vespero, kristnaska vespero, malvarmo, lunlumo, blanka neĝo, kaj sub la altaj piceoj staris malgranda, tremanta knabo, kaj liaj okuloj estis plenaj de larmoj, kaj tra la larmoj ekbrilis la lunlumo en plej belaj koloroj …
 
 Eksonis apud li ordonotona voĉo:
 
@@ -7842,9 +6553,6 @@ Eksonis apud li ordonotona voĉo:
 En la vespero li prenis krajonon kaj paperon kaj re iris al la laborloko. Li sidiĝis kaj rigardis la lokon. ĉiuj laboristoj estis for kaj nenio desegninda troviĝis tie. Kun medita mieno li rigardis la konfuzan miksaĵon de teramasoj, tabuloj, ĉaroj kaj aliaj diversaj objektoj.
 
 Sed fine li tamen komencis desegni … Maldekstre staras la malnova latbarilo, malantaŭ ĝi konturiĝas la lamenejo. En la mezo estas la sablejo, netuŝita de fosiloj de plenkreskuloj, nur kvar etuloj troviĝas tie, ĉevaleto kun rompita kruro tiras ĉareton, du knabinetoj per kelkaj skatoloj aranĝas manĝotablon, en la fono levas sin kvazaŭ protekte du altaj piceoj, kaj sub ili troviĝas malgranda saktendo …
-
-
-INFANOJ EN TORENTO
 
 
 La vespera alsuda trajno haltas por du minutoj ĉe la stacio de Torento. Brita kaj ŝia patrino kaj Arne suriras la peronon de la vagono, la ŝoforo de la pensiono enportas pakaĵon en la kupeon. Apude sur la kajo staras la patrino de Arne kaj lia fratino, ankaŭ Alda kaj Johano kaj Alekso troviĝas tie.
@@ -7875,9 +6583,7 @@ Johano konsentas, kaj ŝi demande rigardas Alekson.
 
 Kaj Alekso rigardas ilin medite, kaj poste li ridetas.
 
-—Ne, mi iros hejmen. Sed ĉu vi ne volus kuniri kaj trinki 285
-
-INFANOJ EN TORENTO
+—Ne, mi iros hejmen. Sed ĉu vi ne volus kuniri kaj trinki
 
 
 tason da teo ĉe ni. Nur por akompani min. Poste vi ja povos fari promenon.
@@ -7885,9 +6591,6 @@ tason da teo ĉe ni. Nur por akompani min. Poste vi ja povos fari promenon.
 —Bone, diras Alda. Ankoraŭ ja ne estas malfrue. Unue ni
 
 akompanos vin hejmen.
-
-
-INFANOJ EN TORENTO
 
 
 www.omnibus.se/

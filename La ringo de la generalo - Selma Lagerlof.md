@@ -13,23 +13,13 @@ LA RINGO DE LA GENERALO
 Stellan Engholm
 
 
-@omnibus.se
-
-·
-
-
-LA RINGO DE LA GENERALO
-
-
 i
 
 Mi ja scias, ke en pasinta tempo troviĝis multe da homoj, kiuj ne konis timon. Mi aŭdis pri tre multaj, kiuj ŝatis promeni sur ununokta glacio, kaj kiuj ne povis imagi pli grandan plezuron ol veturadon kun trokuremaj ĉevaloj. Ekzistis kelkaj, kiuj ne hezitis kartludi kun ĉefserĝento Ahlegård, kvankam oni sciis, ke li manipulas per la kartoj, tiel ke li ĉiam venkas. Mi scias ankaŭ pri kelkaj aŭdacaj uloj, kiuj ne timis komenci vojaĝon vendrede aŭ sidiĝi ĉe manĝotablo kun te-leroj por dek tri personoj. Sed mi vere ŝatus ekscii, ĉu iu el tiuj estus havinta kuraĝon meti sur sian fingron la teruran ringon, kiun estis posedinta la maljuna generalo Löwensköld en Hedeby.
 
 Estis tiu sama maljuna generalo, kiu havigis al la Löwen-sköldoj nomon, bienon kaj nobelecon, kaj tiel longe, ke iu el ili ankoraŭ loĝis en Hedeby, lia portreto pendis meze inter la fenestroj en la granda salono en la supra etaĝo. Estis granda pentraĵo, alta de planko ĝis plafono, kaj unuamomente oni ricevis la impreson, ke estas Karlo la dekdua mem, kiu staras tie en blua jako, grandaj ŝamgantoj kaj kolosaj refalditaj botoj, firme starantaj sur la ŝaktabule ornamita planko, sed ki-am oni iris pli proksimen, oni ja vidis, ke estas viro de tute alia speco.
 
-Estis granda kaj kruda kamparana vizaĝo, kiu leviĝis super la jakokolumo. La viro sur la bildo ŝajnis naskita por sekvi 3
-
-LA RINGO DE LA GENERALO
+Estis granda kaj kruda kamparana vizaĝo, kiu leviĝis super la jakokolumo. La viro sur la bildo ŝajnis naskita por sekvi
 
 
 plugilon dum sia tuta vivo. Sed malgraŭ la granda malbeleco li aspektis kiel prudenta, fidinda kaj bona viro. Se li estus naskita en nia tempo, li estus almenaŭ skabeno kaj prezidan-to de komunuma estraro, eble li apartenus eĉ al la parlamen-to. Sed ĉar li vivis en la tempo de la granda heroreĝo, li iris en militon kiel malriĉa soldato, revenis kiel la fama generalo Lö-
@@ -43,24 +33,16 @@ Kiam oni rigardis la portreton de la maljuna generalo, iu el la Löwensköldoj o
 Same kiel Bengt Löwensköld volis kunhavi la reĝoringon
 
 
-LA RINGO DE LA GENERALO
-
-
 sur la portreto, li volis kunporti ĝin ankaŭ en la tombon. An-kaŭ en tio ne influis vantamo. Ne estis lia intenco fanfaroni per tio, ke li portas sur sia fingro ringon de granda reĝo, kiam li aperos antaŭ Nia Sinjoro kaj la ĉefanĝeloj, sed eble li esperis, ke la ringo servos kiel rekonsigno, kiam li eniros la salonon, kie sidas Karlo la dekdua kun ĉiuj siaj batalantoj, tiel ke li ankaŭ post la morto povos resti proksime al tiu viro, kiun li servis kaj adoris dum sia tuta vivo.
 
 La reĝoringo, do restis surla montrofingro de la maldekstra mano, kiam oni metis malsupren la ĉerkon de la generalo en la masonitan tomboĉambron, kiun li aranĝis por si en la tombejo de Bro. Multaj el la ĉeestantoj bedaŭris, ke tia juvelo akompanas mortinton en la tombon, ĉar la ringo de la generalo estis preskaŭ same konata kaj fama kiel li mem. Oni rakontis, ke estas tiom da oro en ĝi, ke ĝi sufiĉus por aĉeti bienon, kaj ke ne malpli valoras la ruĝa karneolo, sur kiu estis gravurita la monogramo de la reĝo. Oni opiniis ĝenerale, ke tio donas honoron al la filoj, ke ili ne kontraŭstaris la deziron de la patro, sed lasis lnservi la trezoron.
 
-Se la ringo de la generalo en la realo estis tia, kia ĝi estas pentrita sur la bildo, ĝi estis malbela kaj pezforma objekto, kiun nuntempe preskaŭ neniu homo volus porti sur fingro, sed tio ne malhelpas, ke oni ege alte taksis ĝin antaŭ du jar-centoj. Jen, oni devas konsideri, ke oni tiam devis transdoni al la ŝtato ĉiujn ornamaĵojn kaj vazojn el valora metalo, kun nur malmultaj esceptoj, kaj ke oni devis lukti kontraŭ la ta-leroj de Goertz kaj ŝtata bankroto, kaj ke por multaj homoj oro estis io, pri kio ili aŭdis, sed kion ili neniam vidis. Tiel la homoj ne povis forgesi la oran ringon, kiu senutile estis metita sub ĉerkokovrilon. Oni preskaŭ opiniis, ke estas nejuste, 5
-
-LA RINGO DE LA GENERALO
+Se la ringo de la generalo en la realo estis tia, kia ĝi estas pentrita sur la bildo, ĝi estis malbela kaj pezforma objekto, kiun nuntempe preskaŭ neniu homo volus porti sur fingro, sed tio ne malhelpas, ke oni ege alte taksis ĝin antaŭ du jar-centoj. Jen, oni devas konsideri, ke oni tiam devis transdoni al la ŝtato ĉiujn ornamaĵojn kaj vazojn el valora metalo, kun nur malmultaj esceptoj, kaj ke oni devis lukti kontraŭ la ta-leroj de Goertz kaj ŝtata bankroto, kaj ke por multaj homoj oro estis io, pri kio ili aŭdis, sed kion ili neniam vidis. Tiel la homoj ne povis forgesi la oran ringon, kiu senutile estis metita sub ĉerkokovrilon. Oni preskaŭ opiniis, ke estas nejuste,
 
 
 ke ĝi kuŝas tie. Oni estus ja povinta vendi ĝin en alia lando por multe da mono kaj doni panon al multaj, kiuj havas nur pajlon kaj arboŝelon por vivteni sin.
 
 Sed kvankam multaj estus povintaj deziri, ke ili posedu la grandan valoraĵon, ekzistis neniu, kiu serioze pensis pri al-proprigo. La ringo kuŝis en ŝraŭbofermita ĉerko, en mason-fermita tombokelo, sub pezaj ŝtonplatoj, neatingebla por eĉ plej kuraĝa ŝtelisto, kaj oni opiniis, ke tiel estos ĝis la fino de la mondo.
-
-
-LA RINGO DE LA GENERALO
 
 
 ii
@@ -73,12 +55,7 @@ Povas esti ke tiu kaj tiu, dum la homoj estis kolektitaj ĉir-kaŭ la tombo kaj 
 
 Inter la multaj, kiuj okupiĝis pri tiuj pensoj, estis ankaŭ terkulturisto el Mellomstuga en Olsbyn, kiu nomiĝis Bård Bårdsson. Li tute ne estis el tiuj, kiuj faris al si grizajn harojn pri la ringo. Kontraŭe. Kiam iu parolis pri la ringo, li diris, ke li havas tiel bonan bienon, ke li ne bezonas envii la generalon, se li estus kunpreninta eĉ buŝelon da oro en la ĉerko.
 
-Starante en la tombejo li kiel multaj aliaj ekpensis pri la ri-7
-
-LA RINGO DE LA GENERALO
-
-
-markinda afero, ke la tombo estas malfermita. Sed li ne ek-
+Starante en la tombejo li kiel multaj aliaj ekpensis pri la rimarkinda afero, ke la tombo estas malfermita. Sed li ne ek-
 
 ĝojis pro tio. Li maltrankviliĝis. ”La kapitano espereble lasos fermi ĝin jam hodiaŭ posttagmeze,” li pensis. ”Estas multaj, kiuj sopiras la ringon.”
 
@@ -96,12 +73,7 @@ La terkulturisto ekmoviĝis, levis la okulojn kaj trovis, ke li kaj la edzino es
 
 Li volonte estus dirinta al la edzino, pri kio li pensis, sed li sciis, ke ŝi estas multe pli saĝa ol li. ŝi nur opinius, ke li faras al si nenecesajn zorgojn. ŝi dirus, ke la fermo aŭ nefermo de la tombo estas afero, kiu koncernas kapitanon LöwensköId sed neniun alian.
 
-Ili komencis iri hejmen, kaj kiam Bård Bårdsson estis tur-8
-
-LA RINGO DE LA GENERALO
-
-
-ninta la dorson al la tombejo, la penso pri la tombo estus devinta forlasi lin, sed tiel ne okazis. La edzino parolis pri la entombigo: pri ĉerko kaj portantoj, pri procesio kaj funebra parolado, kaj tiam kaj tiam, li aldonis vorton, por ke ßi ne ri-marku, ke li nenion scias kaj nenion aŭdis, sed baldaŭ la voĉo de la edzino sonis kvazaŭ el fora malproksimo. La cerbo komencis mueli la antaŭajn pensojn. ”Jen, estas dimanĉo hodiaŭ, li pensis, ”kaj la masonisto eble ne volas fermi la volbon en la ripoztago. Sed tiukaze la kapitano ja povus doni al tomb-fosisto taleron, por ke li gardu ĉe la tombo ĉinokte. Se nur estus tiel bone, ke li trovus tiun penson!”
+Ili komencis iri hejmen, kaj kiam Bård Bårdsson estis turninta la dorson al la tombejo, la penso pri la tombo estus devinta forlasi lin, sed tiel ne okazis. La edzino parolis pri la entombigo: pri ĉerko kaj portantoj, pri procesio kaj funebra parolado, kaj tiam kaj tiam, li aldonis vorton, por ke ßi ne ri-marku, ke li nenion scias kaj nenion aŭdis, sed baldaŭ la voĉo de la edzino sonis kvazaŭ el fora malproksimo. La cerbo komencis mueli la antaŭajn pensojn. ”Jen, estas dimanĉo hodiaŭ, li pensis, ”kaj la masonisto eble ne volas fermi la volbon en la ripoztago. Sed tiukaze la kapitano ja povus doni al tomb-fosisto taleron, por ke li gardu ĉe la tombo ĉinokte. Se nur estus tiel bone, ke li trovus tiun penson!”
 
 Subite li komencis paroli laŭte al si. ”Mi tamen estus devinta iri al la kapitano. Mi estus devinta ne atenti pri tio, ke homoj ridus pri mi”’
 
@@ -115,9 +87,7 @@ Li esperis, ke tie la maltrankvilaj pensoj forlasos lin, kaj tio verŝajne estus
 
 Post ioma tempo li levis sin de la benko kaj eliris kaj striglis la ĉevalon kun la intenco rajdi al Hedeby por paroli kun la kapitano. ”Alie oni certe ŝtelos la ringon en tiu ĉi nokto,” li pensis.
 
-Li tamen ne realigis la intencon. Li estis tro timema. Anstataŭe li iris al najbara bieno por paroli pri sia maltrankvilo kun 9
-
-LA RINGO DE LA GENERALO
+Li tamen ne realigis la intencon. Li estis tro timema. Anstataŭe li iris al najbara bieno por paroli pri sia maltrankvilo kun
 
 
 la tiea mastro, sed li ne trovis lin sola, kaj denove li sentis sin tro timema por paroli. Li revenis hejmen kaj estis dirinta nenion.
@@ -147,14 +117,9 @@ Sed apenaŭ li reprenis konvenan kuŝmanieron, revenis la maltrankvilo. Li vidis
 Li klopodis kuŝi senmova, por ke la edzino povu dormi, sed doloris la kapo kaj ŝvitis la korpo. Li devis senĉese turni kaj tordi sin.
 
 
-LA RINGO DE LA GENERALO
-
-
 La edzino perdis la paciencon, kaj ŝi proponis duone ŝer-ce:
 
-”Kara edzo, vere ŝajnas al mi, ke estus pli bone, ke vi irus al la tombejo por rigardi, kiel statas en la tombo, ol ke vi ku-
-
-ŝas tie ĉi kaj ĵetas vin de flanko al flanko sen dormi eĉ por momento.”
+”Kara edzo, vere ŝajnas al mi, ke estus pli bone, ke vi irus al la tombejo por rigardi, kiel statas en la tombo, ol ke vi kuŝas tie ĉi kaj ĵetas vin de flanko al flanko sen dormi eĉ por momento.”
 
 Apenaŭ ŝi parolis ĝis fino, la edzo saltis el la lito kaj komencis surmeti la vestojn. ŝajnis al li, ke la edzino tute pravas.
 
@@ -171,9 +136,6 @@ Sed apenaŭ li estis ekster la pordo, la edzino pensis, ke estos terure por la e
 Ili iris rapide. Jam noktiĝis, kaj ĉie estis nigra mallumo krom mallarĝa lumstrio sur la okcidenta ĉielo, sed ili tre bone konis la vojon. Ili interparolis kaj estis en bona humoro. Ili ja nur iris al la tombejo por rigardi, ĉu la tombo estas nefermita, por ke Bård ne bezonu cerbumi pri tio en la lito.
 
 ”ŝajnas al mi tute nekredeble, ke la homoj en Hedeby povus esti tiel riskemaj, ke ili ne masonfermus la lokon de la ringo,” diris Bård.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Nu, tion ni baldaŭ ekscios,” diris la edzino. ”ĉu ne estas la tombeja muro, kiu estas tie ĉi apud ni?”
@@ -199,28 +161,19 @@ Foje Bård mispaŝis kontraŭ altaĵeton kaj preskaŭ falis. ŝajnis al li, ke l
 ”Tie ĉi mi ne volus iri, se mi havus malbonajn intencojn.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ”Jes, certe ne!” diris la edzino. ”En tio vi tute pravas. Sed jen, tie ni certe havas la tombon.”
 
 Kontraŭ la malhela nokta ĉielo li neklare distingis la levi-tajn tomboplatojn.
 
 Tuj poste ili estis ĉe la tombo kaj ili trovis ĝin nefermita. La truo en la tombovolbo ne estis remasonita.
 
-”Tio ĉi ŝajnas al mi vere malzorga,” diris la edzo. ”Estas ja speciale aranĝite por elmeti ĉiujn, kiuj scias pri la trezoro ka-
-
-ŝita tie ĉi malsupre, al plej terura tento.”
+”Tio ĉi ŝajnas al mi vere malzorga,” diris la edzo. ”Estas ja speciale aranĝite por elmeti ĉiujn, kiuj scias pri la trezoro kaŝita tie ĉi malsupre, al plej terura tento.”
 
 ”Certe ili fidas al tio, ke neniu kuraĝas fari ion kontraŭ mortinto,” diris la edzino.
 
-”Ja ne estus tro plezure malsupreniri en tian tomboĉam-
+”Ja ne estus tro plezure malsupreniri en tian tomboĉambron,” diris la edzo. ”Salti malsupren en ĝin eble ne estus tre malfacile, sed poste oni verŝajne devus resti tie kiel vulpo en vulpofosaĵo.”
 
-bron,” diris la edzo. ”Salti malsupren en ĝin eble ne estus tre malfacile, sed poste oni verŝajne devus resti tie kiel vulpo en vulpofosaĵo.”
-
-”Mi vidis antaŭtagmeze, ke oni metis malgrandan ŝtupe-
-
-taron en la tombon,” diris la edzino, ,”sed certe oni almenaŭ forprenis ĝin.”
+”Mi vidis antaŭtagmeze, ke oni metis malgrandan ŝtupetaron en la tombon,” diris la edzino, ,”sed certe oni almenaŭ forprenis ĝin.”
 
 ”Vere mi volas esplori tion,” diris la edzo kaj palpe serĉis vojon al la tombotruo. ”Ne, imagu!” li diris. ”Tio ĉi superas ĉion imageblan. La ŝtupetaro ankoraŭ staras tie ĉi.”
 
@@ -233,9 +186,6 @@ taron en la tombon,” diris la edzino, ,”sed certe oni almenaŭ forprenis ĝi
 ’Se mi nur estus certa pri tio!” diris la edzo. ”Eble mi tamen almenaŭ forportu la ŝtupetaron?”
 
 ”Mi opinias, ke ni tuŝu nenion ĉe la tombo,” diris la edzino. ”Estas plej bone, ke la tombofosisto morgaŭ trovu la tombon precize tia, kia li forlasis ĝin.”
-
-
-LA RINGO DE LA GENERALO
 
 
 Ili staris kaj fiksrigardis en la nigran truon, nedecidemaj kaj senkonsilaj. Ili ja devus iri hejmen nun, sed retenis ilin io se-kreta, io, kion neniu el ili kuraĝis elparoli.
@@ -264,14 +214,9 @@ Sed apenaŭ li staris sur la ŝtonplanko en la tomboĉambro, li aŭdis knaradon 
 
 Tuj la edzo palpe serĉis vojon al la ĉerko de la generalo kaj komencis palpi laŭ la kovrilo. Li trovis ŝraŭbon, kiu havis kru-con sur la supro.
 
-”ĉio estas tie ĉi kvazaŭ aranĝita por ŝtelistoj,” li diris kaj samtempe komencis singarde kaj lerte malfiksi la ĉerkoŝraŭ-
-
-bojn.
+”ĉio estas tie ĉi kvazaŭ aranĝita por ŝtelistoj,” li diris kaj samtempe komencis singarde kaj lerte malfiksi la ĉerkoŝraŭbojn.
 
 ”ĉu vi ne sentas ion?” demandis la edzino. ”ĉu vi ne rimar-kas, ke moviĝas sub la ĉerkokovrilo?”
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Tie ĉi estas trankvile kiel en tombo,” diris la edzo.
@@ -297,9 +242,6 @@ Ili sentis sin fieraj kaj kontentaj. Mirigis ilin, ke neniu alia trovis la saman
 ”Sed,” diris la edzino kaj abrupte haltis, ”kion mi vidas? ĉu jam tagiĝas? Aspektas tiel hele en oriento.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ”Ne, ankoraŭ ne povas esti la suno, kiu venas,” diris la edzo. ”Devas esti fajrakcidento. ŝajnas, ke estas en la direkto de Olsbyn. Espereble ne estas. …”
 
 Interrompis lin laŭta krio de la edzino.
@@ -311,14 +253,9 @@ En la lunda mateno venis la tombofosisto tre rapide al Hedeby, kiu ja kuŝas tut
 Oni senprokraste faris esploron. Oni tuj rimarkis, ke estas granda malordo en la tomboĉambro, kaj ke la ŝraŭboj de la ĉerko estas malfiksitaj. Levante la kovrilon oni ĉe la unua rigardo vidis, ke la reĝoringo ne plu estas en sia loko sur la maldekstra montrofingro de la generalo.
 
 
-LA RINGO DE LA GENERALO
-
-
 iii
 
-Mi pensas pri reĝo Karlo la dekdua, kaj mi provas kom-
-
-preni, kiel oni amis kaj timis lin.
+Mi pensas pri reĝo Karlo la dekdua, kaj mi provas kompreni, kiel oni amis kaj timis lin.
 
 ĉar mi scias, ke foje okazis en iu el la lastaj jaroj de lia vivo, ke li venis en la preĝejon de Karlstad meze en diservo.
 
@@ -330,12 +267,7 @@ Sed kvankam li venis tiel nerimarkite, kaj kvankam li restis tiel trankvila en l
 
 La najbaroj en la benko eble miris, kial li tiel faris, kaj tiam li flustris al ili, ke la reĝo estas en la preĝejo. Kaj neeviteble oni ekstaris laŭ la tuta benko, kiel oni kutimis fari, kiam la vortoj de Dio mem estis legataj de altaro aŭ katedro.
 
-Poste la novaĵo disvastiĝis de benko al benko, kaj ĉiu ho-17
-
-LA RINGO DE LA GENERALO
-
-
-mo, juna kaj maljuna, riĉa kaj malriĉa, malfortulo kiel sanulo, ĉiuj ekstaris.
+Poste la novaĵo disvastiĝis de benko al benko, kaj ĉiu homo, juna kaj maljuna, riĉa kaj malriĉa, malfortulo kiel sanulo, ĉiuj ekstaris.
 
 Okazis tio, kiel dirite, en unu el la lastaj jaroj de la vivo de reĝo Karlo, kiam suferoj kaj kontraŭaĵoj jam komenciĝis, kaj eble troviĝis en la preĝejo eĉ ne unu homo, kiu ne perdis pro la agado de la reĝo karajn parencojn aŭ posedaĵon. Kaj se okaze iu ne havis kaŭzon plendi propraflanke, li ja bezonis nur pensi pri tio, ke la lando kuŝas malriĉigita, ke provincoj estas perditaj, kaj ke la tuta lando estas ĉirkaŭita de malamikoj.
 
@@ -347,9 +279,7 @@ Eble estos longa prediko, sed tion oni devos toleri. Oni ne volas perfidi tiun h
 
 Li cetere estis soldata reĝo kaj kutimiĝis al tio, ke liaj soldatoj volonte renkontas morton por li. Sed tie ĉi en la preĝejo li estis ĉirkaŭita de simplaj urbanoj kaj metiistoj, de ordinaraj svedaj viroj kaj virinoj, kiuj neniam atentis pri komanda vorto. Sed estis bezonata nur lia apero inter ili, por ke ili estu sub lia potenco. Ili estus sekvintaj lin kien ajn laŭ lia volo, ili estus donintaj al li, kion ajn li dezirus, ili kredis al li, ili adoris lin. En la tuta preĝejo ili dankis Dion pro tiu miraklofara viro, kiu estas reĝo de Svedujo.
 
-Kiel dirite … mi provas pense vivigi tion al mi por kompreni, ke la amo al reĝo Karlo povis plenigi la tutan animon de 18
-
-LA RINGO DE LA GENERALO
+Kiel dirite … mi provas pense vivigi tion al mi por kompreni, ke la amo al reĝo Karlo povis plenigi la tutan animon de
 
 
 homo, ke ĝi povis tiel fiksiĝi en malpetola kaj severa maljuna koro, ke ĉiuj homoj atendis, ke ĝi restos ankaŭ post la morto.
@@ -365,21 +295,13 @@ Kaj denove oni miris. Oni ja aŭdis pri mortintoj, kiuj nokton post nokto reaper
 Sed kiam oni fine eksciis, ke la generalo tute ne lasis la ringon al tia sorto, sed batalis por reakiri ĝin per la sama severa malindulgo, kiun li estus montrinta, se la ringo estus ŝtelita de li, dum li vivis, tiam neniu homo eĉ miretis. Neniu montris nekredemon, ĉar ĝuste tion oni atendis.
 
 
-LA RINGO DE LA GENERALO
-
-
 iv
 
 Kiam la ringo de la generalo restis malaperinta jam dum pluraj jaroj, okazis iun tagon, ke la preposto en Bro estis vokata al malriĉa terkulturisto, Bård Bårdsson en Olsbysätern, kiu kuŝis kaj atendis sian forpason kaj nepre volis paroli kun la preposto antaŭ sia morto. La preposto estis maljuna homo, kaj kiam li aŭdis, ke temas pri vizito ĉe malsanulo, kiu loĝas mejlomalproksime en senvoja arbaro, li proponis, ke la subpastro veturu anstataŭ li. Sed la filino de la mortanto, kiu venis kun la peto, tiam diris decide, ke devas veni aŭ la preposto aŭ neniu. La patro diris, ke li havas ion por rakonti, kion nur la preposto povas ekscii sed cetere neniu en la mondo.
 
 Kiam la preposto aŭdis tion, li komencis serĉi inter siaj memoroj. Bård Bårdsson estis ĉiam afabla homo. Verdire li estis iom naiva, sed pro tio li ja ne bezonis senti timon sur sia mortlito. La preposto eĉ volus diri, ke li, laŭ homa rigardma-niero, apartenas al tiuj, kiuj havas malŝuldon ĉe Nia Sinjoro.
 
-Dum la lastaj sep jaroj lin persekutis ĉiuj imageblaj suferoj kaj malfeliĉoj. La domo brulis, la brutojn mortigis malsano aŭ sovaĝaj bestoj, frosto ruinigis la kampojn, kaj li fariĝis malriĉa kiel Ijob. Fine la edzino tiel senesperiĝis pro la malfeliĉoj, ke ŝi iris en la lagon, kaj Bård mem transloĝiĝis al arbara somerpaŝtejo, kiu estis lia sola restanta posedaĵo. Post tiu tempo nek li nek liaj infanoj vizitis la preĝejon. Oni multfoje paro-20
-
-LA RINGO DE LA GENERALO
-
-
-lis pri ili en la preposta domo kaj demandis sin, ĉu ili ankoraŭ restas en la paro˛o.
+Dum la lastaj sep jaroj lin persekutis ĉiuj imageblaj suferoj kaj malfeliĉoj. La domo brulis, la brutojn mortigis malsano aŭ sovaĝaj bestoj, frosto ruinigis la kampojn, kaj li fariĝis malriĉa kiel Ijob. Fine la edzino tiel senesperiĝis pro la malfeliĉoj, ke ŝi iris en la lagon, kaj Bård mem transloĝiĝis al arbara somerpaŝtejo, kiu estis lia sola restanta posedaĵo. Post tiu tempo nek li nek liaj infanoj vizitis la preĝejon. Oni multfoje parolis pri ili en la preposta domo kaj demandis sin, ĉu ili ankoraŭ restas en la paro˛o.
 
 ”Se mi bone konas vian patron, li ne faris pli grandajn kri-mojn, ol ke li povas konfesi ilin al la subpastro,” diris la preposto kaj rigardis la filinon de Bård kun afabla rideto.
 
@@ -408,16 +330,11 @@ Sed en la sama momento li levis sin el sia seĝo kaj elprenis la ritlibron kaj m
 ”Ne, mi ne vidis lin,” diris la infano, ”sed kompreneble li vivas. Estis pro li, ke ni devis foriri kaj loĝi en arbaro kaj sen-homa montaro. Tie ni restis en trankvilo ĝis en la pasinta semajno, kiam patro hakvundis piedon.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ”Kaj vi volas diri, ke tion kaŭzis Forta Bengt?” demandis la preposto per sia plej trankvila voĉo, sed samtempe li malfermis la pordon kaj kriis al sia servisto, ke li selu la ĉevalon.
 
 ”Patro diris, ke Forta Bengt sorĉs la hakilon, alie li neniam estus vundinta sin. Kaj la vundo ne estis danĝera, sed hodiaŭ patro vidis, ke komenciĝis gangreno en la piedo. Li diris, ke nun li devas morti, ĉar Forta Bengt faris finon al li, kaj li sendis min tien ĉi al la preposta domo kaj petis, ke la preposto mem venu kaj tiel baldaŭ kiel eble.”
 
-”Mi ankaŭ venos,” diris la preposto. Dum la knabino pa-
-
-rolis, li surmetis rajdomantelon kaj ĉapelon. ”Sed mi ne povas kompreni,” li daŭrigis, ”kial tiu Forta Bengt estis tiel malbona kontraŭ via patro. Verŝajne Bård iam faris ion kontraŭ li?”
+”Mi ankaŭ venos,” diris la preposto. Dum la knabino parolis, li surmetis rajdomantelon kaj ĉapelon. ”Sed mi ne povas kompreni,” li daŭrigis, ”kial tiu Forta Bengt estis tiel malbona kontraŭ via patro. Verŝajne Bård iam faris ion kontraŭ li?”
 
 ”Jes, patro ne neas tion,” diris la infano, ”sed li neniam diris, kio estas, nek al mi nek al mia frato. Sed mi kredas, ke tion li nun volas rakonti al via preposta moŝto.”
 
@@ -426,9 +343,6 @@ rolis, li surmetis rajdomantelon kaj ĉapelon. ”Sed mi ne povas kompreni,” l
 Dum la tuta rajdo al la loko la pastro diris apenaŭ unu vorton. Li nur sidis kaj pensis pri la strangaĵo, kiun rakontis la infano. Li renkontis nur unu viron, kiun homoj kutime nomis Forta Bengt. Sed estus ja eble, ke la infano parolis ne pri li sed pri tute alia persono.
 
 Kiam li enrajdis en la somerpaŝtejon, venis renkonte al li juna viro. Estis la filo de Bård Bårdsson, Ingilbert. Li estis kelkajn jarojn pli aĝa ol la fratino, altkreska kiel ßi kaj kun similaj vizaĝotrajtoj, sed li havis pli profundkuŝajn okulojn kaj ne aspektis tiel sincera kaj bonanima kiel ŝi.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Tio ĉi estis longa vojaĝo por via moŝto,” li diris, dum li helpis lin deiri de la ĉevalo.
@@ -443,9 +357,7 @@ diris Ingilbert, ”sed de hieraŭ vespere mi faris ekskurson por fiŝi. Mi ne s
 
 ”ĉio iris bone. Sed kiel Bård nun fartas?”
 
-”Li estas sufiĉe malsana sed havas klaran konscion. Li ek-
-
-ĝojis, kiam mi diris, ke la preposto venas ĉe la rando de la arbaro.”
+”Li estas sufiĉe malsana sed havas klaran konscion. Li ekĝojis, kiam mi diris, ke la preposto venas ĉe la rando de la arbaro.”
 
 La preposto nun eniris al Bård, kaj la gefratoj sidiĝis sur la larĝajn ŝtonplatojn ekster la domo kaj atendis. Ili sentis sin solenanimaj kaj parolis pri la patro, kiu nun mortos. Ili diris, ke li ĉiam estis bona al ili. Sed li neniam estis feliĉa post tiu tago, kiam brulis Mellomstuga, kaj tial eble estas plej bone, ke li povos foriri el la vivo.
 
@@ -457,12 +369,7 @@ Jen la fratino okaze diris, ke ŝajne io pezas sur la konscienco de la patro.
 
 ”ĉu li diris tion?” demandis, Ingilbert. ”ĉu li diris, ke li volas rakonti ion al la preposto antaŭ sia morto? Mi kredis, ke li volis venigi lin nur por ricevi la komunion.”
 
-”Kiam li sendis min hodiaŭ, li diris, ke mi petu la prepos-23
-
-LA RINGO DE LA GENERALO
-
-
-ton veni. La preposto estas la sola homo en la mondo al kiu li povas konfesi sian grandan kaj pezan pekon.”
+”Kiam li sendis min hodiaŭ, li diris, ke mi petu la preposton veni. La preposto estas la sola homo en la mondo al kiu li povas konfesi sian grandan kaj pezan pekon.”
 
 Ingilbert sidis pripensante dum momento. ”Tio vere sonas strange,” li diris. ”ĉu ne povas esti fantazio, kiun li kreis al si tie ĉi en la soleco ? Certe estas io simila al liaj rakontoj pri Forta Bengt. Mi kredas ke ankaŭ tio estas nur fantazioj.”
 
@@ -483,9 +390,6 @@ Starinte iom da tempo apud la pordeto li reiris al la fratino.
 ”Ni povas fari nenion nun,” diris Ingilbert. ”Nun li devas diri, kion li volas. Ni parolos kun la preposto poste.”
 
 Li denove ŝteliris al la pordeto por aŭskulti. Ne daŭris longe, antaŭ ol li ree venis al la fratino.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Nun li diras, ke la saman nokton, kiam li kaj la patrino estis en la tombo, brulis Mellomstuga. Li diras, ke li kredas, ke estas la generalo, kiu bruligis la domon.”
@@ -509,9 +413,6 @@ Märta Bårdsdotter tute kunpremiĝis.
 ŝi rigardis al ĉiuj direktoj. La paŝtejo estis ĉe la bordo de arbara lageto, kaj ĉirkaŭ tiu leviĝis malhelaj, arbarkovritaj mon-todorsoj. Estis videbla neniu homa loĝejo, ekzistis neniu, al kiu ŝi povus rifuĝi. Tie ĉi regis la granda, senhelpa soleco.
 
 
-LA RINGO DE LA GENERALO
-
-
 Kaj ŝajnis al ßi, ke en la malhelo sub la arboj embuskas la mortinto por sendi al ili malfeliĉojn.
 
 ŝi estis tia infano, ke ŝi ne povis bone kompreni la honton kaj la malhonoron, kiujn la gepatroj havigis al si, sed ŝi komprenis tion, ke reaperanto, nepacigebla, ĉiopova estaĵo el la lando de la mortintoj persekutas ilin ĉiujn. ŝi atendis, ke ŝi en kiu ajn momento ekvidos lin, kaj ŝi tiel ektimis, ke ŝiaj dentoj klakis.
@@ -530,12 +431,7 @@ Sed tiam ßi vidis, ke la manoj de Ingilbert tremas, kaj ke la okuloj fiksrigard
 
 ”Li demandis patron, kial li konservis la ringon dum ĉiuj jaroj, kvankam estis tiel danĝere posedi ĝin. Sed patro respondis, ke li kredis, ke la kapitano ordonos pendigi lin, se li konfesos sian krimon. Li ne havis elirejon, li devis konservi
 
-ĝin. Sed nun li scias, ke li mortos, kaj nun li volas doni la ringon al la preposto, por ke oni metu ĝin en la tombon al la ge-26
-
-LA RINGO DE LA GENERALO
-
-
-neralo kaj ni infanoj liberiĝu el la malbeno kaj povu transloĝiĝi al la loĝata regiono.”
+ĝin. Sed nun li scias, ke li mortos, kaj nun li volas doni la ringon al la preposto, por ke oni metu ĝin en la tombon al la generalo kaj ni infanoj liberiĝu el la malbeno kaj povu transloĝiĝi al la loĝata regiono.”
 
 ”Mi ĝojas, ke la pastro estas tie ĉi,” diris la knabino. ”Mi ne scias kion fari, kiam li estos for. Mi tiel timas. ŝajnas al mi, ke la generalo staras tie sub la branĉoj. Imagu, li iris ĉi tie ĉiun tagon por observi nin! Kaj patro eble vidis lin.”
 
@@ -554,12 +450,7 @@ uste kiam li diris tion, la voĉo de la preposto sonis forta kaj Iaŭta, aŭdebl
 La preposto kompreneble ne povis konsenti pri tiu sovaĝa parolo pri persekuto de mortinto. Li provis montri al la kamparano, ke estas puno de Dio, kiu trafis lin pro tio, ke li entreprenis la teruran agon ŝteli de mortinto. La preposto tute ne volis konsenti, ke la generalo havis potencon aranĝi fajrak-cidenton aŭ sendi malsanojn al homoj kaj brutoj. Ne, la malfeliĉoj, kiujn Bård renkontis, estis maniero de Dio veki ĉe li penton kaj igi lin redoni la ŝtelitan, dum li ankoraŭ vivas, por ke lia peko estu pardonita kaj li havu beatan forpason.
 
 
-LA RINGO DE LA GENERALO
-
-
-La maljuna Bård kuŝis trankvila kaj aŭskultis sen kontraŭ-
-
-diro la parolon de la preposto. Sed verŝajne li ne konvinkiĝis.
+La maljuna Bård kuŝis trankvila kaj aŭskultis sen kontraŭdiro la parolon de la preposto. Sed verŝajne li ne konvinkiĝis.
 
 Li spertis tro multe da teruro por povi kredi, ke ĉio tio venas de Dio.
 
@@ -585,9 +476,7 @@ Ingilbert sidiĝis sur la ŝtonplaton kun la manoj antaŭ la vizaĝo. Sed granda
 
 — — —
 
-Kiam ĉio estis finita, Ingilbert akompanis la preposton por montri la vojon tra la arbaro. Komence ĉio iris bone, sed post kelka tempo ili venis al muskomarĉo kun vojo farita el arbot-runkoj. La preposto ne povis memori, ke li trapasis tian lokon 28
-
-LA RINGO DE LA GENERALO
+Kiam ĉio estis finita, Ingilbert akompanis la preposton por montri la vojon tra la arbaro. Komence ĉio iris bone, sed post kelka tempo ili venis al muskomarĉo kun vojo farita el arbot-runkoj. La preposto ne povis memori, ke li trapasis tian lokon
 
 
 irante al la kabano, kaj li demandis, ĉu Ingilbert eraras pri la vojo, sed tiu respondis, ke estas granda mallongigo de vojo, se ili povas trapasi tiun muskomarĉon.
@@ -611,9 +500,6 @@ Tiam la preposto metis la manon en la poŝon kaj eltiris malgrandan saketon el k
 Tiu lasis la bridon por kapti la saketon, kaj la ĉevalo liberiĝis. Timigite ĝi ekflugis antaŭen sur la vojeto. Ingilbert restis surloke kaj ne provis sekvi.
 
 
-LA RINGO DE LA GENERALO
-
-
 v
 
 Oni ne povas miri pri tio, ke la preposto post tia travivaĵo estis iom malklara en la kapo, kaj ke daŭris ĝis la ve-speriĝo, antaŭ ol li sukcesis trovi vojon al la loĝata regiono.
@@ -622,16 +508,12 @@ Ankaŭ ne estas mirinde, ke li venis el la arbaro ne sur la Ols-byvojo, kiu esti
 
 Dum li ĉirkaŭrajdis en la profundo de la arbaro, li pensis, ke la unua, kion li devos fari post reveno al la hejmo, estas venigi la prokuroron por peti lin iri en la arbaron kaj repreni de Ingilbert la ringon. Sed kiam nun okazis tiel, ke li pre-terrajdis Hedeby, li havis malgrandan diskuton kun si mem, ĉu li ne devas eniri tien kaj rakonti al kapitano Löwensköld, kiu homo kuraĝis iri en la tombon kaj ŝteli la reĝoringon.
 
-ŝajnas, ke la preposto ne estus devinta longe pripensi tiel klaran aferon, sed li hezitis, ĉar li sciis, ke la estinta rilato inter la kapitano kaj ties patro ne estis tute bona. La kapitano estis homo de paco same multe kiel la patro estis homo de batalo. Li rapidis eksiĝi el militservo tuj post la packontrakto kun la rusoj, kaj poste li dediĉis ĉiujn siajn fortojn al restari-go de la bonstato en la lando, kiu estis tute ruinigita dum la militjaroj. Li estis kontraŭ solregado kaj militgloro, li kutimis paroli malbone eĉ pri Karlo XII kaj pri multaj aliaj aferoj, kiujn la maljunulo alte taksis. Krome la filo estis fervora par-toprenanto en la parlamenta milito, sed ĉiam kiel ano, de la 30
-
-LA RINGO DE LA GENERALO
+ŝajnas, ke la preposto ne estus devinta longe pripensi tiel klaran aferon, sed li hezitis, ĉar li sciis, ke la estinta rilato inter la kapitano kaj ties patro ne estis tute bona. La kapitano estis homo de paco same multe kiel la patro estis homo de batalo. Li rapidis eksiĝi el militservo tuj post la packontrakto kun la rusoj, kaj poste li dediĉis ĉiujn siajn fortojn al restari-go de la bonstato en la lando, kiu estis tute ruinigita dum la militjaroj. Li estis kontraŭ solregado kaj militgloro, li kutimis paroli malbone eĉ pri Karlo XII kaj pri multaj aliaj aferoj, kiujn la maljunulo alte taksis. Krome la filo estis fervora par-toprenanto en la parlamenta milito, sed ĉiam kiel ano, de la
 
 
 pacpartio. Jes, estis sufiĉe da aferoj por disputo inter li kaj la patro.
 
-Kiam la ringo de la generalo estis ŝtelita antaŭ sep jaroj, la preposto kaj multaj kun li trovis, ke la kapitano tro malmul-te klopodis por rericevi ĝin. Kaj ĉio tio efikis, ke li nun pensis: ”Ne utilas, ke mi faru al mi la penon eniri ĉe Hedeby. Al la kapitano estas egale, ĉu la patro, ĉu Ingilbert portas la re-
-
-ĝoringon sur sia fingro. Estas pli bone, ke mi tuj rakontu pri la ŝtelo al prokuroro Carelius.”
+Kiam la ringo de la generalo estis ŝtelita antaŭ sep jaroj, la preposto kaj multaj kun li trovis, ke la kapitano tro malmul-te klopodis por rericevi ĝin. Kaj ĉio tio efikis, ke li nun pensis: ”Ne utilas, ke mi faru al mi la penon eniri ĉe Hedeby. Al la kapitano estas egale, ĉu la patro, ĉu Ingilbert portas la reĝoringon sur sia fingro. Estas pli bone, ke mi tuj rakontu pri la ŝtelo al prokuroro Carelius.”
 
 Sed ĝuste kiam la preposto tiel konsiliĝis kun si, li ekvidis, ke la barilpordo ĉe la enirejo al Hedeby malrapide malfermiĝas kaj restas tute malfermita.
 
@@ -648,9 +530,6 @@ La kapitano bone akceptis lin, preskaŭ pli bone, ol estis lia kutimo.
 ”Same mi povas diri, kvankam mi apenaŭ levis min el mia seĝo. Mi povas aserti, ke, kvankam mi baldaŭ estos kvindek-jara homo kaj multe travivis tiel dum la severaj militjaroj kiel poste, neniam okazis al mi io tiel miriga kiel tio, kion mi hodiaŭ travivis.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ”ĉar tiel estas,” diris la preposto, ”mi volas lasi la vorton al vi. Ankaŭ mi havas vere apartan historion por rakonti al vi, amiko. Tamen mi ne volas aserti, ke ĝi estas la plej stranga el ĉio, kio al mi okazis.”
 
 ”Nu ja,” diris la kapitano, ”povas ankaŭ esti, ke vi trovos nenion strangan en mia historio. uste pri tio mi volis demandi. Vi kompreneble aŭdis pri Gathenhielm?”
@@ -661,27 +540,18 @@ LA RINGO DE LA GENERALO
 
 ”Vi estas tute prava,” diris la preposto. ”Tiu amo de la ju-nularo al militaj aferoj estas tre bedaŭrinda.”
 
-”Nu, mi plenumis ilian deziron,” diris la kapitano. ”ĉar ili ŝatis aŭdi pri granda militheroo, mi rakontis al ili pri Gathenhielm kaj lia kruela konduto kontraŭ komercistoj kaj pacaj vojaĝantoj, pensante, ke mi per tio vekos ĉe ili teruron kaj abomenon. Kaj kiam tio ankaŭ sukcesis, mi petis ilin pripensi, 32
-
-LA RINGO DE LA GENERALO
+”Nu, mi plenumis ilian deziron,” diris la kapitano. ”ĉar ili ŝatis aŭdi pri granda militheroo, mi rakontis al ili pri Gathenhielm kaj lia kruela konduto kontraŭ komercistoj kaj pacaj vojaĝantoj, pensante, ke mi per tio vekos ĉe ili teruron kaj abomenon. Kaj kiam tio ankaŭ sukcesis, mi petis ilin pripensi,
 
 
 ke tiu Gathenhielm estis vera filo de la milita tempo, kaj demandis, ĉu ili deziras, ke la tero estu loĝata de tiaj inferestaĵoj.
 
 Sed antaŭ ol miaj filoj trovis tempon respondi al tio, ilia guvernisto ekparolis kaj petis min permesi al li rakonti historion pri Gathenhielm. Kaj ĉar li diris, ke tiu aventuro nur kon-firmas tion, kion mi antaŭe diris pri la teruraj sovaĝeco kaj furiozo de Gathenhielm, mi donis mian konsenton.
 
-Li tiam komencis dirante, ke kiam Gathenhielm estis mortinta, ankoraŭ juna, kaj lia korpo metita en la preĝejon de Onsala en marmoran sarkofagon, kiun li rabis de la dana re-
-
-ĝo, komenciĝis en la preĝejo tia fantomagado, ke la paroą-
+Li tiam komencis dirante, ke kiam Gathenhielm estis mortinta, ankoraŭ juna, kaj lia korpo metita en la preĝejon de Onsala en marmoran sarkofagon, kiun li rabis de la dana reĝo, komenciĝis en la preĝejo tia fantomagado, ke la paroą-
 
 noj de Onsala ne povis tion elteni. Ili ne trovis alian rimedon ol levi la korpon el la ĉerko kaj enterigi ĝin sur dezerta insuleto malproksime de la marbordo. Post tio fariĝis paco en la preĝejo, sed rakontis fiŝistoj, kiuj dum siaj vojaĝoj proksimiĝis al la nova ripozejo de Gathenhielm, ke de tie oni ĉiam aŭdas tumulton kaj bruon, kaj ke ŝaŭmo ĉiumomente ŝpru-cas alten super la kompatindan insuleton. La fiŝistoj kredis kompreni, ke estas ĉiuj maristoj kaj komercistoj, kiujn Gathenhielm lasis ĵeti en la maron de prenitaj ŝipoj, kiuj eliris el sia malseka tombo por lin tiel turmenti kaj malbontrakti, kaj ili zorge evitis veturi en tiu direkto. Sed en iu malluma nokto unu el ili tamen okaze venis tro proksimen al la danĝera loko. Li sentis, ke li estas entirata en akvokirlon, ŝaŭmo vipis lian vizaĝon, kaj tondra voĉo kriis al li: ’Iru al Gata en Onsala kaj diru al mia edzino, ke ŝi sendu al mi sep faskojn da ave-laj vergoj kaj du juniperbastonojn.’ ”
 
-La preposto ĝis nun restis trankvila kaj pacience aŭskultis la rakonton, sed kiam li nun rimarkis, ke lia najbaro rakon-33
-
-LA RINGO DE LA GENERALO
-
-
-tas nur ordinaran fantomrakonton, li apenaŭ povis haltigi movon de malpacienco. La kapitano tamen ne atentis pri tio.
+La preposto ĝis nun restis trankvila kaj pacience aŭskultis la rakonton, sed kiam li nun rimarkis, ke lia najbaro rakontas nur ordinaran fantomrakonton, li apenaŭ povis haltigi movon de malpacienco. La kapitano tamen ne atentis pri tio.
 
 ”Vi komprenas, ke restis nur plenumi tiun ordonon. Kaj la edzino de Gathenhielm obeis. La plej elastajn kaj nerompe-blajn avelvergojn kaj la plej dikajn juniperbastonojn oni preparis, kaj servisto el Onsala forremis kun ili sur la maron.”
 
@@ -693,9 +563,7 @@ Poste li per rapidaj rembatoj malproksimiĝis sin de la terura loko.”
 
 ”Amiko …” komencis la preposto, sed la kapitano estis per-sista.
 
-”Tre longe li tamen ne remis, antaŭ ol li haltigis la remilojn por observi, ĉu nun io rimarkinda okazos. Kaj li ne bezonis vane atendi. ĉar subite la ŝaŭmo altiĝis ĉielalten super la insuleton, la tumulto fariĝis kiel bruo de militbatalo, kaj teruraj ĝemkrioj dissonis sur la maron. Tio daŭris dum kelka tempo, sed la intenso iom post iom malfortiĝis, kaj fine la ondoj tute ĉesis ataki la tombon de Gathenhielm. Baldaŭ ĝi kuŝis same kvieta kaj trankvila kiel ĉiu alia insuleto. La servisto 34
-
-LA RINGO DE LA GENERALO
+”Tre longe li tamen ne remis, antaŭ ol li haltigis la remilojn por observi, ĉu nun io rimarkinda okazos. Kaj li ne bezonis vane atendi. ĉar subite la ŝaŭmo altiĝis ĉielalten super la insuleton, la tumulto fariĝis kiel bruo de militbatalo, kaj teruraj ĝemkrioj dissonis sur la maron. Tio daŭris dum kelka tempo, sed la intenso iom post iom malfortiĝis, kaj fine la ondoj tute ĉesis ataki la tombon de Gathenhielm. Baldaŭ ĝi kuŝis same kvieta kaj trankvila kiel ĉiu alia insuleto. La servisto
 
 
 tiam ekmovis la remilojn por iri hejmen, sed en la sama momento kriis al li tondra kaj triumfa vub: ’Iru al Gata en Onsala kaj diru al mia edzino, ke Lasse Gathenhielm venkas siajn malamikojn kaj kiel viva kaj kiel mortinta!”
@@ -710,12 +578,7 @@ La preposto sidis kaj aŭskultis kun klinita kapo. Kiam la historio nun finiĝis
 
 ”Tio estas ĝuste mia penso,” li diris.
 
-”Jes, sed jen kio okazis?” daŭrigis la kapitano. ”Mi apenaŭ estis finparolinta, kiam mi aŭdis fortan ĝemon malantaŭ mia seĝo. Kaj tiu ĝemo tiel similis al la laca ĝemspiro, kiun mia beata patro kutimis eligi, kiam lin turmentis la malsanetoj de maljunaĝo, ke ŝajnis al mi, ke li estas malantaŭ mi, kaj mi saltleviĝis. Vere mi tiam nenion vidis, sed tiel konvinkita mi estis, ke mi aŭdis lin, ke mi ne plu volis preni lokon ĉe la tablo, sed sidis tie ĉi en soleco kaj pripensis la aferon ĝis nun. Kaj mi tre deziris aŭdi viajn pensojn, amiko, pri tiu demando. ĉu estis mia patro, kiun mi aŭdis fari ĝemspiron pro la malaper-35
-
-LA RINGO DE LA GENERALO
-
-
-inta trezoro? Se mi povus kredi, ke li ankoraŭ sentas sopiron pri ĝi, tiam mi prefere irus de domo al domo por esplori, ol ke li ankoraŭ eĉ por momento sentu la kruelan doloron, pri kiu atestis tiu ĝemo.”
+”Jes, sed jen kio okazis?” daŭrigis la kapitano. ”Mi apenaŭ estis finparolinta, kiam mi aŭdis fortan ĝemon malantaŭ mia seĝo. Kaj tiu ĝemo tiel similis al la laca ĝemspiro, kiun mia beata patro kutimis eligi, kiam lin turmentis la malsanetoj de maljunaĝo, ke ŝajnis al mi, ke li estas malantaŭ mi, kaj mi saltleviĝis. Vere mi tiam nenion vidis, sed tiel konvinkita mi estis, ke mi aŭdis lin, ke mi ne plu volis preni lokon ĉe la tablo, sed sidis tie ĉi en soleco kaj pripensis la aferon ĝis nun. Kaj mi tre deziris aŭdi viajn pensojn, amiko, pri tiu demando. ĉu estis mia patro, kiun mi aŭdis fari ĝemspiron pro la malaperinta trezoro? Se mi povus kredi, ke li ankoraŭ sentas sopiron pri ĝi, tiam mi prefere irus de domo al domo por esplori, ol ke li ankoraŭ eĉ por momento sentu la kruelan doloron, pri kiu atestis tiu ĝemo.”
 
 ”Estas la dua fojo hodiaŭ, kiam mi devas respondi la de-mandon, ĉu la mortinta generalo malĝojas pro sia perdinta ringo kaj volas ĝin reakiri,” diris la preposto. ”Kun via perme-so, amiko, mi nun unue rakontos mian historion, kaj poste ni interparolos pri ĝi.”
 
@@ -728,9 +591,6 @@ Li rakontis, kiel la kolero de Dio trafis la malbonfarantojn, kaj neniel volis k
 Sed la kapitano interpretis ĉion, kion li aŭdis, en alia maniero. Li komprenis nun, ke lia patro ne estas havinta pacon en sia tombo pro tio ke la ringo estas prenita de lia montrofingro. Li sentis penton kaj konsciencan riproĉon pro tio, ke li ĝis nun tro facile traktis la aferon. Li sentis, kvazaŭ estus pika, dolora vundo en lia koro.
 
 La preposto, kiu rimarkis lian grandan ekscitiĝon, preskaŭ timis rakonti, ke oni forprenis de li la ringon, sed tion li aŭskultis kun certa severa kontento.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Estas, bone, ke unu el la ŝtelista kanajlaro restas, kaj ke li estas same aĉa kiel la aliaj,” diris kapitano Löwensköld. ”La generalo frapis la gepatrojn kaj forte frapis. Nun estos mia vico.”
@@ -748,9 +608,6 @@ Post tio la preposto komprenis, ke restas nenio por fari en Hedeby. Li forrajdis
 Sed kapitano Löwensköld kunvokis ĉiujn siajn homojn, rakontis tion, kio okazis, kaj demandis, ĉu la venontan matenon ili volas akompani lin por kapti la ŝtelinton. Neniu rifuzis fari al li kaj la mortinta generalo tiun servon, kaj la reston de la vespero oni uzis por kolekti diversajn armilojn, malnovajn muskedojn, mallongajn ursolancojn, longajn spadojn, bastonojn kaj falĉilojn.
 
 
-LA RINGO DE LA GENERALO
-
-
 vi
 
 Estis ne malpli ol dekkvin viroj, kiuj akompanis la kapitanon, kiam li je la kvara horo la sekvantan matenon eliris por ŝtelistĉaso. Kaj ili estis en plej bona batalhumoro. Ili havis justan aferon kaj povis krom tio fidi al la generalo. ĉar la mortinto gvidis la aferon ĝis tiu punkto, li certe ankaŭ daŭrigos ĝis feliĉa fino.
@@ -764,9 +621,6 @@ Malantaŭ tio kuŝis la grandarbaro, kiel densa felo sterni-ta sur la tero, kun 
 La kapitano kaj liaj viroj ricevis kvazaŭ alian tenikon, alian aspekton, kiam ili eniris la grandarbaron. Ili iris tie antaŭe, ĉasante grandbestojn, kaj nun la ĉasista humoro revekiĝis en ili. Ili komencis sendi akrajn rigardojn en la densejojn, kaj ili iris en tute alia maniero, pli malpeze, ŝtele.
 
 ”Ni interkonsentu pri unu afero, knaboj,” diris la kapitano.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Neniu el vi rajtas malfeliĉigi sin pro tiu ŝtelisto, sed vi lasu lin al mi. Nur atentu, ke li ne forkuru!”
@@ -784,9 +638,6 @@ La tri viroj, kiuj portis la brankardon, estis konataj kaj bonaj homoj. Estis Er
 La kapitano iris al la fratoj Ivarsson, kaj ili metis la brankardon sur la teron por saluti kaj manpremi. La kapitano kvazaŭ ne vidis la etenditajn manojn. Li ne povis fortiri la rigardojn de la filikfolioj, kiuj kovris la vizaĝon de tiu, kiu kuŝis sur la brankardo.
 
 
-LA RINGO DE LA GENERALO
-
-
 ”ĉu estas Ingilbert Bårdsson, kiu kuŝas tie ĉi?” li demandis per stranga, malmola voĉo. Sonis preskaŭ, kvazaŭ li parolus kontraŭvole.
 
 ”Jes,” diris Erik Ivarsson, ”sed kiel vi sciis tion? ĉu vi rekonis liajn vestojn?”
@@ -797,15 +648,11 @@ Kaj liaj propraj homoj kaj la fremdaj viroj ĵetis mirajn rigardojn sur la kapit
 
 Li komencis demandi la fratojn Ivarsson. Kion ili havas por fari en la frua mateno, kaj kie ili trovis Ingilbert? La fratoj Ivarsson estis grandbienuloj, kaj ili ne ŝatis esti tiamaniere pridemandataj, sed la ĉefajn aferojn li tamen sukcesis eltiri el ili.
 
-La antaŭan tagon ili iris viziti la homojn en sia somerpaŝ-
-
-tejo, kiu kuŝas unu mejlon malproksime en la arbaro, kun-portante al ili farunon kaj viandon, kaj ili restis tie dum la nokto. Frue matene ili reiris hejmen, kaj tiam Ivar Ivarsson iris iom antaŭ la aliaj. Ivar Ivarsson iam estis soldato. Li konis la arton fari longajn paŝojn, ne estis facile sampaŝi kun li.
+La antaŭan tagon ili iris viziti la homojn en sia somerpaŝtejo, kiu kuŝas unu mejlon malproksime en la arbaro, kun-portante al ili farunon kaj viandon, kaj ili restis tie dum la nokto. Frue matene ili reiris hejmen, kaj tiam Ivar Ivarsson iris iom antaŭ la aliaj. Ivar Ivarsson iam estis soldato. Li konis la arton fari longajn paŝojn, ne estis facile sampaŝi kun li.
 
 Kiam Ivar Ivarsson estis sufiĉe longe antaŭ la aliaj, li vidis viron, kiu venas kontraŭ li sur la vojeto. La arbaro estis sufiĉe maldensa tie. Neniuj arbetoj, nur grandaj trunkoj, kaj li vidis viron de malproksime. Sed li ne povis tuj rekoni lin. Nebul-nubetoj ŝvebis inter la arboj, kaj kiam la sunlumo penetris en ilin, ili fariĝis kiel flava fumo. Li povis vidi tra ili, sed ne tute klare.
 
-Ivar Ivarsson rimarkis, ke la venanto, ekvidante lin tra la 40
-
-LA RINGO DE LA GENERALO
+Ivar Ivarsson rimarkis, ke la venanto, ekvidante lin tra la
 
 
 nebulo, haltis kaj en plej granda timo etendis forige antaŭ si la manojn. Jes, kiam Ivar Ivarsson iris ankoraŭ kelkajn paŝojn, li falis sur la genuojn kaj kriis, ke li ne venu pli proksimen.
@@ -818,12 +665,7 @@ La kapitano aŭskultis tion kun malhela mieno. Li trovis tion tre kredinda. Ingi
 
 Li certe volis iri al fremda lando por vendi la ringon, sed kiam li en la nebuloj de la arbaro renkontis Ivar Ivarsson, li kredis vidi la fantomon de la generalo. Jes ja. Tiel okazis. Ivar Ivarsson estis vestita en malnova soldatjako, kaj la randaĵoj de la ĉapelo estis suprenfalditaj laŭ la karlana maniero. La distanco, la nebulo kaj malbona konscienco klarigis la eraron.
 
-Sed la malkontento de la kapitano tamen daŭris. Li kres-kigis en si koleron kaj sangosoifon. Li estis volinta mortpre-41
-
-LA RINGO DE LA GENERALO
-
-
-mi Ingilbert Bårdsson inter siaj fortaj brakoj. Li bezonis eli-ron por sia venĝemo sed ne trovis.
+Sed la malkontento de la kapitano tamen daŭris. Li kres-kigis en si koleron kaj sangosoifon. Li estis volinta mortpremi Ingilbert Bårdsson inter siaj fortaj brakoj. Li bezonis eli-ron por sia venĝemo sed ne trovis.
 
 Tamen li komprenis mem, ke li estas neprudenta, kaj li
 
@@ -841,18 +683,14 @@ Ankaŭ nun neniu vidis la generalon, sed oni sentis lin. Li staris meze en la gr
 
 Estis pli ol supozeble, ke ili esploris la poŝojn de la mortinto kaj trovis la ringon.
 
-Estis ankaŭ supozeble, ke la rakonto, kiun ili ĵus prezentis, ne estis vera, sed ke ĉio okazis tute alie. Tiuj ĉi viroj, kiuj estis el la sama vilaĝo kiel patro kaj filo Bårdsson, eble sciis, ke tiuj posedis la ringon. Ili eble sciis, ke Bård mortis, kaj ili komprenis kiam ili renkontis lian filon en la arbaro, ke li intencas 42
-
-LA RINGO DE LA GENERALO
+Estis ankaŭ supozeble, ke la rakonto, kiun ili ĵus prezentis, ne estis vera, sed ke ĉio okazis tute alie. Tiuj ĉi viroj, kiuj estis el la sama vilaĝo kiel patro kaj filo Bårdsson, eble sciis, ke tiuj posedis la ringon. Ili eble sciis, ke Bård mortis, kaj ili komprenis kiam ili renkontis lian filon en la arbaro, ke li intencas
 
 
 fuĝi kun la ringo, kaj ili atakis kaj mortigis lin por povi alpro-prigi al si la trezoron.
 
 Oni ne vidis sur li vundon krom frapvundo sur la frunto.
 
-La fratoj Ivarsson estis dirintaj, ke li puŝis la kapon kontraŭ ŝtonon, kiam li falis, sed ĉu tiu frapvundo ne povus esti kaŭ-
-
-zita de la dika tuberbastono, kiun Paul Eliasson tenas en la mano?
+La fratoj Ivarsson estis dirintaj, ke li puŝis la kapon kontraŭ ŝtonon, kiam li falis, sed ĉu tiu frapvundo ne povus esti kaŭzita de la dika tuberbastono, kiun Paul Eliasson tenas en la mano?
 
 La kapitano staris kaj rigardis al la tero. En lia interno estis lukto. Li ĉiam aŭdis nur bonon pri la tri viroj, kaj li malŝatis kredi, ke ili murdis kaj ŝtelis.
 
@@ -869,9 +707,6 @@ Sed la bienuloj volis fini la aferon. Ili komencis mem turni la internon de siaj
 Ringon oni ne malkovris, sed en betulŝela tornistro, kiun Ivar Ivarsson portis sur la dorso, oni trovis malgrandan saketon el kaproledo.
 
 ”ĉu tiu ĉi saketo estas via?” demandis la kapitano esplor-inte la saketon kaj trovinte, ke ĝi estas malplena.
-
-
-LA RINGO DE LA GENERALO
 
 
 Se Ivar Ivarsson nun estus jesinta, la afero eble estus per tio finita, sed anstataŭe li kun plej granda trankvilo konfesis:
@@ -895,9 +730,6 @@ Estis tiel, ke ankaŭ prokuroro Carelius trovis konvene iri supren al la grandar
 Okazis novaj esploroj kaj nova demandado, sed finiĝis tamen tiel, ke Erik Ivarsson, lia frato Ivar kaj ilia adoptito Paul estis metitaj en arestejon pro suspekto pri murdo kaj ŝtelo.
 
 
-LA RINGO DE LA GENERALO
-
-
 vii
 
 Ni ne povas kontraŭdiri tion, ke ĉe ni en Vermlando la arba-roj estis en tiu tempo grandaj kaj la kampoj malgrandaj, la kortoj estis grandaj sed la domoj malvastaj, la vojoj estis mallarĝaj sed la deklivoj krutaj, la pordoj malaltaj sed la sojloj altaj, la preĝejoj malmultimpresaj sed la diservoj longaj, la vivotagoj malmultaj, sed la zorgoj nekalkuleblaj. Sed tamen la vermlandanoj ne estis ĝemuloj kaj teduloj pro tio.
@@ -912,28 +744,20 @@ amofeliĉo! Ankaŭ ne kredu, ke ĝi estis io malalta kaj danĝera kiel drinkado 
 
 Dio mia, kiel ĝi beligis kaj hejmigis eĉ plej etan kabanon!
 
-Kaj kiel ĝi babilis kaj ŝercis kun la homoj en la domo dum la tuta vespero! i krakis kaj klaketadis kvazaŭ ĝi ridus al ili. i krakis kaj siblis, kaj tiam sonis, kvazaŭ ĝi volus imiti iun, kiu 45
-
-LA RINGO DE LA GENERALO
+Kaj kiel ĝi babilis kaj ŝercis kun la homoj en la domo dum la tuta vespero! i krakis kaj klaketadis kvazaŭ ĝi ridus al ili. i krakis kaj siblis, kaj tiam sonis, kvazaŭ ĝi volus imiti iun, kiu
 
 
-estas grumblema kaj kolera. Foje ĝi tute ne sciis, kiamaniere fini iun tuberoriĉan ŝtipon. Tiam, ĝi plenigis la tutan ĉambron per fumo kaj haladzo, kvazaŭ ĝi volus komprenigi al la homoj, ke ĝi ricevis tro malbonan nutraĵon. Foje ĝi transformiĝis en amaseton da ardaĵo, ĝuste kiam la homoj estis en plej bo-na laborhumoro, tiel ke oni devis meti la manojn sur la genuojn kaj ridegi, ĝis ĝi denove akiris forton. Plej petola ĝi fari-
-
-ĝis, kiam la mastrino venis kun la tripiedaj kuirpotoj kaj pos-tulis, ke ĝi kuiru la manĝaĵon. Iun maloftan fojon ĝi estis kon-senta kaj servema kaj faris sian taskon rapide kaj bone, sed plej ofte ĝi gracie kaj petole dancis dum horoj ĉirkaŭ la kaĉopoto sen boligi ĝin.
+estas grumblema kaj kolera. Foje ĝi tute ne sciis, kiamaniere fini iun tuberoriĉan ŝtipon. Tiam, ĝi plenigis la tutan ĉambron per fumo kaj haladzo, kvazaŭ ĝi volus komprenigi al la homoj, ke ĝi ricevis tro malbonan nutraĵon. Foje ĝi transformiĝis en amaseton da ardaĵo, ĝuste kiam la homoj estis en plej bo-na laborhumoro, tiel ke oni devis meti la manojn sur la genuojn kaj ridegi, ĝis ĝi denove akiris forton. Plej petola ĝi fariĝis, kiam la mastrino venis kun la tripiedaj kuirpotoj kaj pos-tulis, ke ĝi kuiru la manĝaĵon. Iun maloftan fojon ĝi estis kon-senta kaj servema kaj faris sian taskon rapide kaj bone, sed plej ofte ĝi gracie kaj petole dancis dum horoj ĉirkaŭ la kaĉopoto sen boligi ĝin.
 
 Kiel eklumiĝis en la okuloj de la mastro, kiam li malseka kaj malvarma venis el la malseka neĝo ekstere kaj la fajro akceptis lin kun varmo kaj hejmeco! Kiel trankvilige estis pensi pri la gardanta lumo, kiu elfluis en la malluman vintronok-ton kaj servis kiel gvidstelo por malriĉaj vojirantoj kaj kiel terursigno por lupoj kaj lj!
 
-Sed la fajro povis fari pli ol varmigi kaj lumi kaj kuiri man-
-
-ĝaĵon, ĝi sciis plenumi pli rimarkindajn aferojn ol fajreri, kraki, kraĉi kaj krei haladzon. i komprenis veki kaj vigligi la ludemon en la homa animo.
+Sed la fajro povis fari pli ol varmigi kaj lumi kaj kuiri manĝaĵon, ĝi sciis plenumi pli rimarkindajn aferojn ol fajreri, kraki, kraĉi kaj krei haladzon. i komprenis veki kaj vigligi la ludemon en la homa animo.
 
 ĉar kio estas la homa animo, se ne ludanta flamo, ankaŭ
 
 ĝi? i flagras en kaj super kaj ĉirkaŭ la homo, kiel la flamo flagras en kaj super kaj ĉirkaŭ la kruda ligno. Kiam nun tiuj, kiuj troviĝis ĉirkaŭ la fajro en vintra vespero, jam dum iom da tempo sidis kaj rigardis en ĝin, ĝi komencis paroli al ĉiu aparte en sia propra lingvo. ”Frato animo,” diris la fajroflamo, ”ĉu vi ne estas flamo kiel mi? Kial vi estas tiel malgaja kaj peza?”
 
-”Fratino flamo,” respondis la homanimo, ”mi hakis lignon, 46
-
-LA RINGO DE LA GENERALO
+”Fratino flamo,” respondis la homanimo, ”mi hakis lignon,
 
 
 kaj mi prizorgås hejman mastrumon dum la tuta tago. Mi
@@ -948,9 +772,7 @@ Sed neniam ili estis tiel multaj kiel en la tempo de reĝo Karlo. Li estis heroo
 
 Plej oni ŝatis rakonti pri la reĝo mem, sed duavice oni ŝatis paroli pri la generalo en Hedeby, kiun oni estis vidinta, kaj kun kiu oni estis parolinta kaj povis priskribi de kapo ĝis piedoj.
 
-La generalo estis tiel forta, ke li povis fleksi feron, kiel aliaj fleksas rabotaĵon. Li iam eksciis, ke en Smedsby en Svart-sjö loĝis forĝisto, kiu faris la plej bonajn hufoferojn en la regiono. La generalo rajdis al Mickel en Smedsby kaj petis lin, 47
-
-LA RINGO DE LA GENERALO
+La generalo estis tiel forta, ke li povis fleksi feron, kiel aliaj fleksas rabotaĵon. Li iam eksciis, ke en Smedsby en Svart-sjö loĝis forĝisto, kiu faris la plej bonajn hufoferojn en la regiono. La generalo rajdis al Mickel en Smedsby kaj petis lin,
 
 
 ke li garnu la hufojn de lia ĉevalo. Kiam la forĝisto nun venis el la forĝejo kun preta hufofero, la generalo demandis, ĉu li rajtas rigardi ĝin. La hufofero estis kaj fortika kaj bone farita, sed la generalo ekridis, kiam li vidis ĝin. ”ĉu vi volas nomi tion fero?” li diris, kaj post tio li disfleksis la hufoferon kaj rompis ĝin. La forĝisto ektimis, li kredis, ke li faris malbonan laboron. ”Certe estis rompaĵo en la fero,” li diris kaj rapidis alporti alian hufoferon. Sed okazis same al ĝi kiel al la unua, nur kun tiu diferenco, ke tiu ĉi estis kunpremita kiel tondilo,
@@ -966,9 +788,6 @@ Multaj aliaj historioj ekzistis pri la generalo, kaj oni rakontis kaj rakontis i
 Oni do povas kompreni, ke pli ol io alia interesis kaj scivo-ligis kaj ekscitis la homojn tio, ke la ringo estas retrovita kaj denove perdita, kaj ke Ingilbert estas trovita morta en la arbaro, kaj ke oni nun suspektas, ke la viroj el Olsby ŝtelis la ringon, kaj ke tiuj sidas en arestejo. Kiam la preĝejvizitantoj venis hejmen en la dimanĉa posttagmezo, oni apenaŭ povis bridi sin, ĝis ili deprenis la dimanĉovestojn kaj manĝis pecon da manĝaĵo, antaŭ ol oni devigis ilin rakonti pri ĉio atestita kaj ĉio konfesita kaj pri la verdikto, kiun oni kredis verŝajna por la akuzitoj.
 
 
-LA RINGO DE LA GENERALO
-
-
 Oni parolis pri nenio alia. ĉiun vesperon estis juĝokunsido antaŭ la fajro kaj en grandaj kaj en malgrandaj domoj, ĉe granduloj kaj farmistoj.
 
 Estis hezitiga kaj stranga afero, kaj malfacile traktebla. Ne estis facile eldiri decidan verdikton, ĉar estis malfacile aŭ preskaŭ ne eble kredi, ke la fratoj Ivarsson kaj ilia adoptito estus mortfrapintaj homon por akiri ringon, ĝi estu kiom ajn valora.
@@ -981,9 +800,7 @@ Rilate al Paul Eliasson, oni sciis, ke li estas alte ŝatata de la fratoj Ivarss
 
 Nun li tamen estis edukita al justamo kaj honesto kaj ĉiam kondutis bone. Marit Eriksdotter kaj li kreskis kune, ili ĉiam amis unu la alian, kaj ŝajnis nekredeble, ke viro kun feliĉo kaj riĉaĵo en atendo riskus tion ŝtelante ringon.
 
-Sed aliflanke oni devis pensi pri la generalo, la generalo, pri 49
-
-LA RINGO DE LA GENERALO
+Sed aliflanke oni devis pensi pri la generalo, la generalo, pri
 
 
 kiu oni aŭdis tiom da fabeloj de la frua infanaĝo, la generalo, kiun oni konis same bone kiel sian propran patron, la generalo, kiu estis granda kaj forta kaj fidinda, la generalo, kiu estis morta, kaj de kiu oni ŝtelis la plej karan, kion li posedis.
@@ -998,13 +815,9 @@ Oni tamen ne liberigis ilin, ĉar la verdikto de la distrikta tribunalo estis ek
 
 Sed ankaŭ tiu verdikto ne estis efektivigata, ĉar la verdikton de la apelacia tribunalo la reĝo devis unue konfirmi.
 
-Sed kiam estis eldirita kaj anoncita la reĝa verdikto, tiam la preĝejvizitantoj por unu fojo memvole rezignis la tagman-
+Sed kiam estis eldirita kaj anoncita la reĝa verdikto, tiam la preĝejvizitantoj por unu fojo memvole rezignis la tagmanĝon, ĝis ili estis rakontintaj ĝlan enhavon por la hejmanoj.
 
-ĝon, ĝis ili estis rakontintaj ĝlan enhavon por la hejmanoj.
-
-ĉar la enhavo de la verdikto estis mallonge tio, ke ŝajnas plene evidente, ke unu el la akuzitoj murdis kaj ŝtelis, sed 50
-
-LA RINGO DE LA GENERALO
+ĉar la enhavo de la verdikto estis mallonge tio, ke ŝajnas plene evidente, ke unu el la akuzitoj murdis kaj ŝtelis, sed
 
 
 neniu volas konfesi sian kulpon, kaj pro tio la juĝo de Dio decidu inter ili. Dum la venonta juĝokunsido ili en ĉeesto de juĝisto, skabenoj kaj publiko ĵetu kubojn. Tiu, kiu ricevos la plej malmultajn punktojn, estos rigardata kiel kulpa kaj pro sia krimo perdos la vivon per pendigo, sed la du aliajn oni sen ia puno liberigu, kaj ili reiru al sia ĉiutaga vivo.
@@ -1019,9 +832,7 @@ Oni preskaŭ povus kredi, ke reĝo Fredriko lasis la decidon al la generalo. Li 
 
 ĉiuokaze ĉiuj volis kunesti en la juĝejo la tagon de la dia verdikto. ĉiu, kiu ne estis tro maljuna por iri aŭ tro juna por rampi, iris tien. Simile rimarkinda afero ne okazis dum multaj jaroj. Oni ne povis kontentiĝi ekscii iom post iom kaj de aliaj, kiel ĉio finiĝis. Ne, tie ĉi oni devis mem ĉeesti.
 
-Vere la domoj kuŝis maldense, kaj ordinare oni ja povis vojaĝi tutajn mejlojn sen renkonti homon, sed kiam ĉiuj en la juĝodistrikto kolektiĝis en unu loko, ili preskaŭ surpriziĝis 51
-
-LA RINGO DE LA GENERALO
+Vere la domoj kuŝis maldense, kaj ordinare oni ja povis vojaĝi tutajn mejlojn sen renkonti homon, sed kiam ĉiuj en la juĝodistrikto kolektiĝis en unu loko, ili preskaŭ surpriziĝis
 
 
 pro sia granda nombro. Ili staris dense kunpremitaj en multaj vicoj ĉirkaŭ la tribunala domo. Aspektis kvazaŭ abela svar-mo, kiu en somera tago pendas nigra kaj peza antaŭ abelu-jo. Ili similis al svarmantaj abeloj ankaŭ tiurilate, ke ili ne estis en sia ordinara humoro. Ili ne estis silentaj kaj solenaj, kiel ili estis en la preĝejo, kaj ankaŭ ne gajaj kaj nekoleremaj kiel dum foiroj, sed ili estis sovaĝaj kaj incitiĝemaj, ili estis pose-dataj de malamo kaj ventemo.
@@ -1033,9 +844,6 @@ Ili sciis, ke tia terura estaĵo ricevos sian kondamnon en tiu ĉi tago, kaj ili
 La dioverdikto ne okazis en la juĝeja salono, kio ja estis bona, sed ekstere. Tamen estis malhelpo, ke roto da soldatoj formis gardovicon ĉirkaŭ la loko antaŭ la juĝejo, kaj oni tial ne povis iri kontentige proksimen, kaj oni verdire ĵetis multajn insultvortojn al la soldatoj, ĉar ili baris la vojon. Tion oni alitempe ne estus farinta, sed hodiaŭ oni estis kuraĝa kaj en-truda.
 
 La homoj estis devintaj iri de la hejmo frue por akiri lokon proksime al la gardovico, kaj tial ili devis stari kaj atendi tie dum multaj longaj horoj. Kaj malmulto troviĝis, kio dume povis doni plezuron al la okuloj. La juĝoservisto venis el la juĝejo kaj metis grandan tamburon en la mezon de la loko.
-
-
-LA RINGO DE LA GENERALO
 
 
 Tio tamen estis ĝojiga, ĉar oni ja komprenis, ke tiuj, kiuj sidas tie interne, intencas komenci la aferon antaŭ la vespero.
@@ -1050,9 +858,7 @@ Estis Löwensköld el Hedeby kaj la preposto el Bro, la uzinpo-sedanto el Ekeby 
 
 Kiam oni ne havis alian al kiu ĵeti mokvortojn, oni direktis ilin al juna knabino, kiu tenis sin kiel eble plej proksime al la gardovico. ŝi estis malgranda kaj neforta, kaj jen kaj jen la viroj provis premi sin antaŭen por preni ŝian lokon, sed tiam la proksime starantaj kriis al ili, ke ŝi estas filino de Erik Ivarsson en Olsbyn, kaj post tiu informo oni ne plu ĝenis ŝin.
 
-Sed anstataŭe oni surŝutis ŝin per pikvortoj. Oni demandis 53
-
-LA RINGO DE LA GENERALO
+Sed anstataŭe oni surŝutis ŝin per pikvortoj. Oni demandis
 
 
 ŝin, kion ŝi preferas, ke oni pendigu la patron aŭ la fianĉon.
@@ -1074,16 +880,11 @@ Kaj certe ŝi havis amoplenan koron, povante resti kie ŝi staras.
 Certe ŝi aŭdis ĉion, kion oni kriis al ŝi, sed ŝi nek respondis nek ploris nek provis fuĝi. ŝi sciis, ke la malfeliĉaj kaptitoj ĝojos, kiam ili vidos ŝin. ŝi estis ja la sola, la sola en la tuta amaso, kiu havis por ili homan koron.
 
 
-LA RINGO DE LA GENERALO
-
-
 ĉiuokaze ŝi ne staris tie tute vane. Iu kaj iu el tiuj, kiuj havis proprajn filinojn, same mildajn kaj senkulpajn kiel ŝi, pensis en sia koro, ke ili ne ŝatus vidi ŝin tie, kie ŝi nun staras.
 
 Vere oni aŭdis iun kaj alian voĉon kiu defendis ŝin aŭ almenaŭ provis silentigi spritulojn kaj kriulojn.
 
-Ne nur pro la fino de la longa atendo sed ankaŭ pro Ma-
-
-rit Eriksdotter oni ĝojis, kiam malfermiĝis la pordoj de la ju-
+Ne nur pro la fino de la longa atendo sed ankaŭ pro Marit Eriksdotter oni ĝojis, kiam malfermiĝis la pordoj de la ju-
 
 ĝejo kaj la afero komenciĝis. En solena procesio venis unue la juĝoservisto, la prokuroro kaj la kaptitoj, kiuj estis liberaj sen katenoj kaj ligoj, kvankam ĉiu estis gardata de du soldatoj. Poste oni vidis la sakristianon, la preposton, la skabenojn, la skribiston kaj la juĝiston. Post tiuj iris la sinjoroj kaj kelkaj bienuloj, kiuj havis tiel grandan reputacion, ke oni permesis al ili esti interne de la gardovico.
 
@@ -1091,15 +892,9 @@ La prokuroro kaj la kaptitoj stariĝis, sin laŭ la maldekstra flanko de la juĝ
 
 Kiam la procesio montriĝis, fariĝis tuj interpremo kaj ku-rado en la popolamaso. Pluraj grandaj kaj fortaj viroj provis fari vojon por si al la unua vico. Antaŭ ĉio ili provis forpeli Marit Eriksdotter. Sed en sia timo ke ßi venos al kaŝita loko ŝi klinis sin, kaj, malgranda kaj maldika kiel ŝi estis, rampis inter la kruroj de du soldatoj kaj internen de la gardovico.
 
-Tio estis tute kontraŭ bona ordo, kaj la prokuroro man-
+Tio estis tute kontraŭ bona ordo, kaj la prokuroro mansignis al la juĝoservisto, ke li forigu ŝin.
 
-signis al la juĝoservisto, ke li forigu ŝin.
-
-La juĝoservisto tuj iris al ŝi, metis sian manon sur ŝian ŝul-tron kvazaŭ por aresti ĝin kaj kondukis ŝin supren, al la ju-
-
-ĝejo. Sed kiam ili estis venintaj en la homgrupon, kiu estis tie, 55
-
-LA RINGO DE LA GENERALO
+La juĝoservisto tuj iris al ŝi, metis sian manon sur ŝian ŝul-tron kvazaŭ por aresti ĝin kaj kondukis ŝin supren, al la juĝejo. Sed kiam ili estis venintaj en la homgrupon, kiu estis tie,
 
 
 li lasis ŝin. Li konis ŝin sufiĉe por scii, ke ŝi ne provos forkuri, se ŝi nur povas stari proksime al la arestitoj, kaj se la prokuroro dezirus admoni ŝin, ŝi estus facile trovebla.
@@ -1114,9 +909,7 @@ Fine li preĝis al li, ke li kompatu la publikon, por ke ĝi ne devu atesti gran
 
 Estis bela aŭtuna tago kun blua ĉielo, blankaj nubetoj kaj la arboj plenaj de flavaj folioj. Aroj da migrobirdoj fojon post fojo flugis suden super iliaj kapoj. Estis neordinare vidi tiel multajn en unu tago. Ili opiniis, ke tio devas ion signifi. ĉu estas signo de Dio, ke li aprobas ilian faron?
 
-Kiam la preposto finis, la juĝisto paŝis antaŭen kaj laŭtle-gis la reĝoverdikton. i estis longa kun multaj turnoj, kiujn estis malfacile sekvi. Sed ili komprenis, ke la tera potenco 56
-
-LA RINGO DE LA GENERALO
+Kiam la preposto finis, la juĝisto paŝis antaŭen kaj laŭtle-gis la reĝoverdikton. i estis longa kun multaj turnoj, kiujn estis malfacile sekvi. Sed ili komprenis, ke la tera potenco
 
 
 kvazaŭ formetis siajn sceptron kaj glavon, siajn sakon kaj scion kaj petas gvidon de Dio. Kaj ili preĝis, ili preĝis ĉiuj, ke Dio helpu kaj gvidu.
@@ -1134,9 +927,6 @@ La tri akuzitoj portis la samajn vestojn, kiujn ili surhavis kiam ili renkontis 
 Kiam Ivar Ivarsson iris al la tamburo kaj akceptis la kalikon kun la kuboj de la prokuroro, tiu volis montri al li, kiel li tenu la kalikon, kaj kiel li ĵetu. Sed tiam aperis rideto sur la lipoj de la maljunulo.
 
 ”Ne estas la unua fojo, kiam mi ĵetas kubojn, prokuroro,”
-
-
-LA RINGO DE LA GENERALO
 
 
 li diris per tiel alta voĉo, ke ĉiuj aŭdis lin. ”Forta Bengt el Hedeby kaj mi faris al ni plezuron per tio multajn vesperojn malproksime en la stepolandoj. Sed neniam mi povis kredi, ke mi ankoraŭfoje ludos kun li.”
@@ -1162,9 +952,6 @@ Tiam la juĝisto signis al la prokuroro, kaj tiu paŝis supren sur la ŝtupon an
 Oni komprenis, ke Ivar Ivarsson estas malkondamnita, kaj oni ĝojis pro tio. Estis pluraj, kiuj komencis krii: ”Bondeziron, Ivar Ivarsson!”
 
 
-LA RINGO DE LA GENERALO
-
-
 Sed nun okazis io, kio plenigis ĉiujn per konsterno. Paul Eliasson eksplodis en laŭtajn ĝojokriojn, tiris la trikitan ĉapon de la kapo kaj ĵetis ĝin en la aeron. Tio venis tiel neatendite, ke la gardistoj ne povis haltigi lin. Sed oni miris pri Paul Eliasson. Estis ja vere, ke Ivar Ivarsson estis kiel patro por li, sed nun temis pri la vivo. ĉu li vere povas ĝoji pri tio, ke alia estas malkondamnita?
 
 Poste oni tuj restarigis la antaŭan ordon. La aŭtoritataj personoj iris dekstren, arestitoj kaj gardistoj maldekstren, aliaj rigardantoj retiris sin supren al la juĝejo kaj la tamburo staris sola en la mezo, videbla al ĉiuj direktoj. Estis nun Erik Ivarsson, kiu trapasos la mortoprovon.
@@ -1172,9 +959,6 @@ Poste oni tuj restarigis la antaŭan ordon. La aŭtoritataj personoj iris dekstr
 Venis antaŭen rompita kaj maljuna viro kun ŝanceliĝa kaj nefirma iro. Oni apenaŭ rekonis lin. ĉu tiu povas esti Erik Ivarsson, kiu ĉiam aperis larĝa kaj respektiga? Liaj rigardoj estis mutaj, kaj multaj kredis, ke li apenaŭ plene konscias pri tio, kion li faras. Sed tenante la kalikon kun la kuboj en sia mano li provis rektigi la dorson kaj diri kelkajn vortojn. ”Mi dankas Dion, ke mia frato nun estas malkondamnita,” li diris, ”ĉar kvankam mi en tiu ĉi afero estas same senkulpa kiel li, li tamen estis la plej bona el ni. Kaj mi preĝas al Nia Sinjoro Jesuo Kristo, ke li lasu min fari malbonan ĵeton, por ke mia filino povu edziniĝi kun tiu, kiun ŝi amas, kaj vivi kun li feliĉa ĝis la fino de siaj tagoj.”
 
 Estis tiel kun Erik Ivarsson kiel kun multaj maljunaj, ke lia iama forto ŝajnis koncentrita en la voĉo. Kion li diris, aŭdis ĉiuj, kaj ĝi vekis grandan emocion. Estis tre neordinare de Erik Ivarsson rekoni, ke iu estas pli bona ol li, kaj deziri al si la morton por fari alian feliĉa. Ekzistis neniu en la tuta homamaso, kiu povis plu pensi pri li kiel pri murdinto kaj ŝtelinto.
-
-
-LA RINGO DE LA GENERALO
 
 
 Oni staris kun larmoj en la okuloj kaj preĝis al Dio, ke li donu al li altan ĵeton.
@@ -1191,9 +975,7 @@ Erik Ivarsson staris inerta kaj indiferenta, neniu ĝojo estis videbla en la viz
 
 Nun estis la vico de Paul Eliasson iri al la tamburo kaj fari la fortunan ĵeton, kaj oni turnis siajn rigardojn al li. Jam an-taŭ la pruvofaro ĉiuj opiniis, ke li devas esti la vera kulpulo, kaj nun li ja estis jam kondamnita, por tiel diri, ĉar pli multaj punktoj ol tiuj de la fratoj Ivarsson ne estis eblaj per unu ĵeto.
 
-Oni ne estis malkontenta pri tiu rezulto antaŭe, sed nun 60
-
-LA RINGO DE LA GENERALO
+Oni ne estis malkontenta pri tiu rezulto antaŭe, sed nun
 
 
 oni vidis, ke Marit Eriksdotter ŝtelire starigis sin apud Paul Eliasson.
@@ -1211,9 +993,6 @@ Estis amo, kaj io super ĉiu tera amo, kio kunigis ilin. IIi estus povintaj star
 Li trankvile prenis la brakon de la talio de Marit kaj sekvis la prokuroron al la tamburo. Maltrankvilo ne estis rimarkebla ĉe li, kiam li tenis la kalikon en sia mano. Li ne parolis al la homoj kiel la aliaj, sed li turnis sin al Marit.
 
 ”Ne timu!” li diris. ”Dio scias, ke mi estas same senkulpa kiel la aliaj.”
-
-
-LA RINGO DE LA GENERALO
 
 
 Poste li skuis la kubojn petole kaj lasis ilin turbi en la kaliko, ĝis ili atingis ĝian randon kaj falis sur la tamburledon.
@@ -1242,12 +1021,7 @@ Oni vidis, ke kapitano Löwensköld rapide iris al la juĝisto.
 
 Li volis diri, ke nenio estas decidita, sed la juĝisto sufiĉe abrupte forturnis sin de li.
 
-La juĝisto kaj la skabenoj iris en la juĝejon por interkonsili-62
-
-LA RINGO DE LA GENERALO
-
-
-ĝi, kaj dume neniu kuraĝis movi sin aŭ paroli, apenaŭ flustri.
+La juĝisto kaj la skabenoj iris en la juĝejon por interkonsiliĝi, kaj dume neniu kuraĝis movi sin aŭ paroli, apenaŭ flustri.
 
 Ankaŭ Paul Eliasson restis trankvila. ŝajne li nun komprenis, ke oni povas interpreti la dioverdikton en pli ol unu maniero.
 
@@ -1258,14 +1032,9 @@ Paul Eliasson liberigis sin de siaj gardantoj kaj denove ĵetis sian ĉapon alte
 ”Sed tiu interpreto de la distrikta tribunalo estos per kurie-ro submetata al la reĝo, en tiu ĉi tago sendota al Stokholmo, kaj restos la akuzitoj en arestejo, ĝis estos veninta de la regis-taro konfirmo pri la verdikto de la distrikta tribunalo.”
 
 
-LA RINGO DE LA GENERALO
-
-
 viii
 
-En aŭtuna tago proksimume tridek jarojn post la rimar-
-
-kinda kubĵetado ĉe la juĝejo de Broby Marit Eriksdotter sidis sur la ŝtuparo de la malgranda surfosta dometo ĉe Storgården en Olsbyn, kie ŝi loĝis, kaj trikis paron da infangan-toj. ŝi volis triki ilin kun bela desegnaĵo kun strioj kaj kvaran-guloj, por ke la infano, por kiu ŝi intencis ilin, havu ĝojon de ili, sed ŝi ne povis memori iun desegnaĵon.
+En aŭtuna tago proksimume tridek jarojn post la rimarkinda kubĵetado ĉe la juĝejo de Broby Marit Eriksdotter sidis sur la ŝtuparo de la malgranda surfosta dometo ĉe Storgården en Olsbyn, kie ŝi loĝis, kaj trikis paron da infangan-toj. ŝi volis triki ilin kun bela desegnaĵo kun strioj kaj kvaran-guloj, por ke la infano, por kiu ŝi intencis ilin, havu ĝojon de ili, sed ŝi ne povis memori iun desegnaĵon.
 
 Longe sidinte kaj desegninte per trikilo sur la ŝtupo ŝi eniris en la dometon kaj malfermis sian vestokeston por serĉi iun vestopecon, laŭ kiu ŝi povos triki. Sur la fundo ŝi trovis pintan trikĉapon, kiu estis arte trikita kun multaj diversaj fonoj kaj strioj, kaj hezitinte unue kelkajn momentojn ŝi kunprenis
 
@@ -1273,12 +1042,7 @@ Longe sidinte kaj desegninte per trikilo sur la ŝtupo ŝi eniris en la dometon 
 
 Kiam Marit nun turnis kaj tordis la ĉapon por eltrovi la teknikon, ŝi rimarkis, ke tineoj estas farintaj truojn en ĝi. ”Nu, Dio mia, ja ne estas mirinde,” ŝi pensis. ”Pasis almenaŭ tridek jaroj, de kiam ĝi estis ĉiutage uzata. Estas bone, ke mi okaze elprenis ĝin el la vestokesto kaj eltrovis, en kia stato ĝi estas.”
 
-La ĉapo havis grandan, rutan kvaston en multaj koloroj, kaj en tiu la tineoj ŝajne sentis sin plej hejme, ĉar kiam Marit skuis la ĉapon, la fadenoj flugis al ĉiuj direktoj. Eĉ la kvasto mem malfiksiĝis kaj falis sur ŝiajn genuojn. ŝi prenis ĝin por esplori, ĉu ĝi estas tiom detruita, ke oni ne povas refiksi ĝin, kaj tiam ŝajnis al ŝi, ke io brilas inter la fadenoj. ŝi vigle disi-64
-
-LA RINGO DE LA GENERALO
-
-
-gis ilin kaj trovis tiam, ke en la kvasto estas kudrofiksita per dika lanfadeno granda sigelringo el oro kun ruĝa ŝtono.
+La ĉapo havis grandan, rutan kvaston en multaj koloroj, kaj en tiu la tineoj ŝajne sentis sin plej hejme, ĉar kiam Marit skuis la ĉapon, la fadenoj flugis al ĉiuj direktoj. Eĉ la kvasto mem malfiksiĝis kaj falis sur ŝiajn genuojn. ŝi prenis ĝin por esplori, ĉu ĝi estas tiom detruita, ke oni ne povas refiksi ĝin, kaj tiam ŝajnis al ŝi, ke io brilas inter la fadenoj. ŝi vigle disigis ilin kaj trovis tiam, ke en la kvasto estas kudrofiksita per dika lanfadeno granda sigelringo el oro kun ruĝa ŝtono.
 
 La kvasto kaj la ĉapo falis el ŝiaj manoj. ŝi neniam antaŭe vidis la ringon, sed ßi ne bezonis rigardi la reĝan monogram-on sur la ŝtono aŭ legi la enskribon sur la interna flanko de la ringo por scii, kiu ringo ĝi estas, kaj al kiu ĝi apartenas. ŝi apogis sntraŭ la ŝtuparbarilon, fermis la okulojn kaj sidis senmova kaj pala kiel mortanto. ŝajnis al ŝi, ke la koro volas rompiĝi.
 
@@ -1290,18 +1054,11 @@ Ne! ŝi tuj diris al si, ke ne estas eble, ke li tion sciis.
 
 ŝi memoris, kiel li svingis tiun ĉapon kaj ĵetis ĝin alten, kiam li kredis, ke kaj li kaj la fratoj Ivarsson estas malkon-damnitaj.
 
-ŝi vidis tion, kvazaŭ ĝi estus okazinta hieraŭ. La grandan homamason, kiu komence estis malama kaj malamika kontraŭ ßi kaj ŝiaj proksimuloj sed fine komencis kredi, ke ili estas senkulpaj. ŝi memoris la belegan, profunde bluan aŭtun-
-
-ĉielon, la migrobirdojn, kiuj erarintaj vagflugis super la juĝeja loko. Paul vidis ilin, kaj en la momento, kiam ßi klinis sin al li, li flustris al ßi, ke baldaŭ lia animo vagflugos en la alto kiel erarinta birdeto. Kaj li demandis ŝin, ĉu li povos veni kaj loĝi sub la tegmentoranda defluilo en Olsgården.
+ŝi vidis tion, kvazaŭ ĝi estus okazinta hieraŭ. La grandan homamason, kiu komence estis malama kaj malamika kontraŭ ßi kaj ŝiaj proksimuloj sed fine komencis kredi, ke ili estas senkulpaj. ŝi memoris la belegan, profunde bluan aŭtunĉielon, la migrobirdojn, kiuj erarintaj vagflugis super la juĝeja loko. Paul vidis ilin, kaj en la momento, kiam ßi klinis sin al li, li flustris al ßi, ke baldaŭ lia animo vagflugos en la alto kiel erarinta birdeto. Kaj li demandis ŝin, ĉu li povos veni kaj loĝi sub la tegmentoranda defluilo en Olsgården.
 
 Ne, Paul ne povis scii, ke ŝtelaĵo estas kaŝita en la ĉapo, kiun li ĵetis supren kontraŭ la belegan aŭtunĉielon.
 
-Estis alia tago. ŝia koro kunpremiĝis ĉiufoje, kiam ŝi pen-65
-
-LA RINGO DE LA GENERALO
-
-
-sis pri ĝi, sed nun ßi tamen devis tion fari. Venis decido el Stokholmo, ke la dioverdikto estu tiel interpretata, ke ĉiuj tri akuzitoj estas same kulpaj kaj estu mortigataj per pendigo.
+Estis alia tago. ŝia koro kunpremiĝis ĉiufoje, kiam ŝi pensis pri ĝi, sed nun ßi tamen devis tion fari. Venis decido el Stokholmo, ke la dioverdikto estu tiel interpretata, ke ĉiuj tri akuzitoj estas same kulpaj kaj estu mortigataj per pendigo.
 
 ŝi ĉeestis, kiam oni plenumis la kondamnon, por ke sciu la viroj, kiujn ŝi amas, ke troviĝas iu homo, kiu kredas al ili kaj malĝojas pro ili. Sed ßi apenaŭ estus bezoninta iri al la pendigloko pro tio. ŝanĝiĝis la pensmaniero de ĉiuj homoj. ĉiuj, kiuj staris ĉirkaŭ ŝi ekster la gardovico, estis bonaj al ŝi. La homoj estis pripensintaj kaj ekzamenintaj kaj venis al la konkludo, ke oni estus devinta interpreti la dioverdikton tiel, ke ĉiuj tri akuzitoj estas senkulpaj. La maljuna generalo lasis ĉiujn tri fari la plej altan ĵeton. Tio ne povis signifi ion alian.
 
@@ -1315,9 +1072,7 @@ Homoj kriis konsolvortojn al la kondamnitoj kaj insultis la ekzekutistojn. Kaj m
 
 Tamen estis tio, ke ĉiuj partoprenis ŝiajn kredon kaj fidon, kio helpis ŝin tra la malfacila tago. Kaj ne nur tra tiu sed tra ĉiuj ĝisnunaj tagoj. ŝi ne estus elteninta la vivon, se tiuj homoj, kiujn ŝi renkontis, estus kredintaj ŝin filino de murdinto.
 
-Paul Eliasson estis la unua, kiu suriris la malgrandan tabul-plankon sub la pendigilo. Li unue ekgenuis kaj preĝis al Dio, poste li turnis sin al la pastro, kiu staris apud li, kaj petis lin 66
-
-LA RINGO DE LA GENERALO
+Paul Eliasson estis la unua, kiu suriris la malgrandan tabul-plankon sub la pendigilo. Li unue ekgenuis kaj preĝis al Dio, poste li turnis sin al la pastro, kiu staris apud li, kaj petis lin
 
 
 pri io. Poste Marit vidis, ke la pastro prenas la ĉapon de lia kapo. Kiam ĉio estis finita, la pastro donis la ĉapon al Marit kun saluto de Paul. Li sendis ĝin kiel signon, ke li pensis pri ŝi en sia lasta momento.
@@ -1330,9 +1085,7 @@ Marit Eriksdotter rapide klinis sin antaŭen, tenis la ĉapon antaŭ siaj okuloj
 
 ŝi formetis la ĉapon kaj denove klinis sin malantaŭen kontraŭ la barilon por rigardi en la pasintecon.
 
-i estis en la arbaro, tiun matenon, kiam Ingilbert mortis pro timo. ŝi vidis, kiel Paul kun ŝiaj patro kaj onklo staris klinita super la mortinto. La du maljunaj decidis, ke oni portu Ingilbert al la loĝata regiono kaj iris por haki branĉojn por brankardo. Sed Paul momente restis por rigardi la ĉapon de Ingilbert. Li tiel ekdeziris ĝin, ĉar ĝi estis trikita per ruĝaj, bluaj kaj blankaj fadenoj en multaj desegnaĵoj, kaj nerimarkite ŝanĝis ĝntraŭ sia propra. Li ne intencis ion malbonan per tio. Eble li intencis konservi ĝin nur por mallonga 67
-
-LA RINGO DE LA GENERALO
+i estis en la arbaro, tiun matenon, kiam Ingilbert mortis pro timo. ŝi vidis, kiel Paul kun ŝiaj patro kaj onklo staris klinita super la mortinto. La du maljunaj decidis, ke oni portu Ingilbert al la loĝata regiono kaj iris por haki branĉojn por brankardo. Sed Paul momente restis por rigardi la ĉapon de Ingilbert. Li tiel ekdeziris ĝin, ĉar ĝi estis trikita per ruĝaj, bluaj kaj blankaj fadenoj en multaj desegnaĵoj, kaj nerimarkite ŝanĝis ĝntraŭ sia propra. Li ne intencis ion malbonan per tio. Eble li intencis konservi ĝin nur por mallonga
 
 
 tempo. Lia propra ĉapo, kiun li lasis al Ingilbert, certe estis same bona sed ne tiel multkolora kaj arte trikita.
@@ -1357,9 +1110,7 @@ La servistino prenis la ĉapon kaj ĵetis sur ĝin rigardon. ŝi ŝajnis surpriz
 
 ”ĉar mi trikis ĉi tiun ĉapon al mia frato Ingilbert la lastan someron, kiam li vivis,” diris la servistino. ”Mi ne vidis ĝin post la mateno, kiam li iris de la hejmo. Kiel ĝi nun povas esti ĉi tie?”
 
-”Eble li perdis ĝin, kiam li falis,” diris Marit. ”Eble iu el niaj servistoj trovis ĝin en la arbaro kaj portis ĝin tien ĉi. Sed se 68
-
-LA RINGO DE LA GENERALO
+”Eble li perdis ĝin, kiam li falis,” diris Marit. ”Eble iu el niaj servistoj trovis ĝin en la arbaro kaj portis ĝin tien ĉi. Sed se
 
 
 tiel malgajaj memoroj apartenas al ĝi, vi eble ne volas kopii por mi la desegnaĵon?”
@@ -1383,9 +1134,6 @@ Se iu en Olsbygården estus scianta, kiel aspektas tiaj virinoj, kiuj lasis la v
 Post la malfacila frapo Marit bone sentis, ke la vivo estas por ŝi finita. ŝi heredis Storgården de sia patro, sed ŝi komprenis, ke por konservi ĝin, ŝi devos edziniĝi, por ke la bieno havu mastron. Por eviti tion ŝi lasis la tutan bienon al unu el siaj nevoj sen alia pago, ol ke ŝi havu loĝejon kaj vivtenon en la bieno dum sia tuta vivo.
 
 
-LA RINGO DE LA GENERALO
-
-
 ŝi estis kontenta pri tio kaj neniam pentis. ŝi ne bezonis timi, ke la tempo fariĝos tro longa pro manko de laboro. Homoj ricevis konfidon al ŝiaj prudento kaj boneco, kaj kiam iu estis malsana, oni kutime tuj venigis ŝin. Ankaŭ infanoj tre ŝatis ŝin. ŝia fostodometo ofte estis plena de etuloj. Ili sciis, ke ŝi ĉiam havas tempon helpi ilin en iliaj malgrandaj zorgoj.
 
 Kiam Marit nun sidis tie kaj pripensis, kion ŝi faru kun la ringo, estiĝis en ŝi granda kolero. ŝi pripensis, kiel facile oni estus povinta trovi ĝin. Kial la generalo ne aranĝis tiel, ke oni trovis ĝin? Li sciis la tutan tempon, kie ĝi estas, tion ŝi povis nun kompreni. Kial li ne tiel aranĝis, ke oni esploris la ĉapon de Ingilbert? Anstataŭe li lasis tri senkulpajn suferi morton pro la ringo. Por tio li havis potencon, sed ne por aperigi la ringon.
@@ -1396,11 +1144,7 @@ Estis tiel, ke oni kondutis kun granda estimo al Marit, kie ajn ŝi montris sin,
 
 Post la proceso ŝi diris eĉ ne unu vorton al iu el tiu domo.
 
-ĉu ŝi nun aperu kaj konfesu, ke certamaniere la Hedeby-
-
-anoj pravis? Montriĝis, ke la ringo estis en la posedo de la viroj el Olsby. Eble oni eĉ diros, ke ili sciis pri ĝia loko, ke ili 70
-
-LA RINGO DE LA GENERALO
+ĉu ŝi nun aperu kaj konfesu, ke certamaniere la Hedebyanoj pravis? Montriĝis, ke la ringo estis en la posedo de la viroj el Olsby. Eble oni eĉ diros, ke ili sciis pri ĝia loko, ke ili
 
 
 eltenis malliberejon kaj juĝesploron en espero, ke ili liberiĝos kaj povos vendi ĝin.
@@ -1424,9 +1168,6 @@ Marit sidis kaj rigardis Adrian. Bela knabo kun io milda kaj afabla ĉe si. ŝi 
 ”Jes,” diris Marit, ”jes, tion mi volas.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ŝi prenis la disŝiritan ĉapon kaj levis sin por iri en la fos-todometon.
 
 ”Tio ĉi devas esti signo de Dio,” ŝi pensis.
@@ -1436,9 +1177,6 @@ LA RINGO DE LA GENERALO
 ŝi fermis la pordon de la fostodomo malantaŭ si kaj sidis sola interne, dum ŝi flikis la truojn en la ĉapo de Adrian Lö-
 
 wensköld.
-
-
-LA RINGO DE LA GENERALO
 
 
 ix
@@ -1451,16 +1189,12 @@ Jam en la sama tago, kiam ŝi alvenis, ŝi estis vokata al baronino Löwensköld
 
 ”Mi konsideras plej korekte,” diris la mastrino, ”tuj rakonti al vi, ke oni ne povas nei, ke fantomas tie ĉi en Hedeby. Ne malofte okazas, ke oni sur ŝtuparoj kaj en koridoroj, jes, foje eĉ en la ĉambroj, renkontas altan, fortikan viron, kiu estas vestita en blua uniformjako kaj altaj refalditaj botoj, proksimume kiel malnovtempa karlano. Li staras antaŭ oni tute subite, kiam oni malfermas pordon aŭ venas al interetaĝa ŝtu-para plataĵo, kaj antaŭ ol oni havas tempon demandi sin, kiu li estas, li malaperas. Li faras nenion malbonan, jes, ni preskaŭ kredas ke li volas bonon al ni, kaj mi petas vin ne timi, kiam vi renkontos lin.”
 
-Fraŭlino Spaak estis dudekunujara en tiu tempo, malpeza kaj vigla, nekredeble lerta en okupoj kaj laboroj de ĉiuj spe-coj, entreprenema kaj decidema, kaj la mastrumado funkciis kiel horloĝo, kien ajn ŝi venis. Sed ŝi ege timis fantomojn, kaj ŝi tute ne estus akceptinta oficon en Hedeby, se ŝi estus tion 73
-
-LA RINGO DE LA GENERALO
+Fraŭlino Spaak estis dudekunujara en tiu tempo, malpeza kaj vigla, nekredeble lerta en okupoj kaj laboroj de ĉiuj spe-coj, entreprenema kaj decidema, kaj la mastrumado funkciis kiel horloĝo, kien ajn ŝi venis. Sed ŝi ege timis fantomojn, kaj ŝi tute ne estus akceptinta oficon en Hedeby, se ŝi estus tion
 
 
 sciinta antaŭe. Sed nun ŝi estis tie, kaj malriĉa knabino ne povas facilanime forlasi bonan oficon. Tial ŝi genufleksis an-taŭ la baronino, dankis pro la averto kaj asertis, ke ŝi ne intencas lasi timigi sin.
 
-”Mi tute ne komprenas la kaŭzon de lia irado tie ĉi,” daŭrigis la mastrino. ”Miaj filinoj opinias, ke li similas al la avo de mia edzo, generalo Löwensköld, kiun vi vidas sur tiu pentraĵo, kaj ili kutimas nomi lin la Generalo. Sed vi komprenas, ke per tio neniu volas diri, ke estas la generalo mem — laŭ-
-
-dire li estis tute bonega homo — kiu reaperas. La vero estas, ke ni nenion komprenas, el ĉio ĉi. Kaj mi esperas, ke vi estas sufiĉe prudenta por ne aŭskulti, se la geservistoj volas doni al vi klarigojn.”
+”Mi tute ne komprenas la kaŭzon de lia irado tie ĉi,” daŭrigis la mastrino. ”Miaj filinoj opinias, ke li similas al la avo de mia edzo, generalo Löwensköld, kiun vi vidas sur tiu pentraĵo, kaj ili kutimas nomi lin la Generalo. Sed vi komprenas, ke per tio neniu volas diri, ke estas la generalo mem — laŭdire li estis tute bonega homo — kiu reaperas. La vero estas, ke ni nenion komprenas, el ĉio ĉi. Kaj mi esperas, ke vi estas sufiĉe prudenta por ne aŭskulti, se la geservistoj volas doni al vi klarigojn.”
 
 Fraŭlino Spaak ankoraŭfoje genufleksis kaj asertis, ke ŝi neniam permesas al geservistoj iom ajn klaĉi pri la gesinjoroj, kaj per tio la aŭdienco estis finita.
 
@@ -1468,23 +1202,16 @@ La fraŭlino verdire estis nur malriĉa mastrumistino, sed ĉar ŝi devenis de h
 
 ŝi baldaŭ rimarkis, ke la fantomaperado menciita de la baronino estas ordinara paroltemo dum la manĝoj. Jen unu el la junaj fraŭlinoj, jen la guvernistino deklaris: Hodiaŭ estas mi, kiu vidis la Generalon,” kvazaŭ tio estus afero valora kaj motivo por fanfarono.
 
-Pasis neniu tago, sen ke iu demandis ŝin, ĉu ŝi ankoraŭ ne 74
-
-LA RINGO DE LA GENERALO
+Pasis neniu tago, sen ke iu demandis ŝin, ĉu ŝi ankoraŭ ne
 
 
 renkontis la reaperanton, kaj kiam ßi ankoraŭ devis nei, ŝi rimarkis, ke tio kaŭzis al ŝi certan malestimon. Estis kvazaŭ ŝi estus estinta malpli bona ol la guvernistino kaj la administranto, kiuj ambaŭ vidis la Generalon senfine da fojoj.
 
-Fakte fraŭlino Spaak neniam antaŭe renkontis tian sen-
-
-ĝenan kondutmanieron rilate al fantomo, kaj ßi subsentis de la unua momento, ke finiĝos per teruro. ŝi diris al si, ke se vere estas estaĵo el la alia mondo, kiu montras sin, ĝi certe estas iu malfeliĉulo, kiu bezonas helpon de la vivantoj por trovi ripozon en sia tombo. ŝi apartenis al la decidemaj homoj, kaj se ßi estus povinta decidi, oni estus farinta seriozajn esplorojn por klarigi la aferon anstataŭ uzi ĝin kiel parolte-mon ĉe la manĝotablo.
+Fakte fraŭlino Spaak neniam antaŭe renkontis tian senĝenan kondutmanieron rilate al fantomo, kaj ßi subsentis de la unua momento, ke finiĝos per teruro. ŝi diris al si, ke se vere estas estaĵo el la alia mondo, kiu montras sin, ĝi certe estas iu malfeliĉulo, kiu bezonas helpon de la vivantoj por trovi ripozon en sia tombo. ŝi apartenis al la decidemaj homoj, kaj se ßi estus povinta decidi, oni estus farinta seriozajn esplorojn por klarigi la aferon anstataŭ uzi ĝin kiel parolte-mon ĉe la manĝotablo.
 
 Sed la fraŭlino komprenis, kion postulas ŝia pozicio, kaj neniam transiris ŝiajn lipojn eĉ unu vorto de mallaŭdo pri la konduto de la gesinjoroj. Siaparte ßi evitis partopreni la ŝercadon pri la reaperanto kaj konservis por si siajn malbonajn antaŭsentojn.
 
 Fraŭlino Spaak estis tutan monaton en Hedeby, antaŭ ol ßi vidis la fantomon. Sed iun antaŭtagmezon, kiam ßi venis el la subtegmentejo, kie ßi kalkulis vestojn por lavado, ßi neatendite renkontis sur la ŝtuparo viron, kiu rapide paŝis flanken por lasi ŝin preterpasi. Estis plena taglumo, kaj ßi tute ne pensis pri fantomapero. ŝi nur demandis sin, kion fremda sinjoro havas por prizorgi en la subtegmentejo, kaj ŝi turnis sin por demandi, kion li deziras. Sed sur la tuta ŝtuparo estis videbla neniu homo. La fraŭlino rapide rekuris supren, rigardis en la subtegmentejo, esploris malhelajn angulojn kaj ĉambretojn, tute preta kapti ŝteliston. Sed kiam neniu homa estaĵo fariĝis videbla, ßi subite komprenis la aferon.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Kia stultulino mi estas!” ŝi eksplodis. ”Kompreneble tiu estis la Generalo.”
@@ -1503,9 +1230,7 @@ Jam antaŭe fraŭlino Spaak rimarkis, ke la barono kaj la baronino neniam partop
 
 ”Miaparte,” li diris, ”mi envias ĉiujn, kiuj ekvidas la Generalon. Mi volus helpi lin, sed por mi li neniam montris sin.”
 
-Li diris tion kun vera sopiro kaj kun tiel bela esprimo, ke 76
-
-LA RINGO DE LA GENERALO
+Li diris tion kun vera sopiro kaj kun tiel bela esprimo, ke
 
 
 fraŭlino Spaak en si preĝis al Dio, ke lia deziro estu baldaŭ plenumota. La juna barono certe kompatos la malfeliĉan reaperanton kaj redonos lin al la tombo kaj la ripozo.
@@ -1518,17 +1243,13 @@ Fraŭlino Spaak iom demandis sin, ĉu povas troviĝi en la do-mo io, kion li ser
 
 Malgraŭ la asertoj de la baronino fraŭlino Spaak rimarkis, ke ĉiuj junaj en Hedeby estas plene konvinkitaj, ke estas la maljuna generalo Löwensköld, kiu reaperas. ”Li ne sentas sin hejme en sia tombo,” diris la junaj fraŭlinoj, ”kaj interesas lin rigardi, kion ni faras tie ĉi en Hedeby. Oni ne povas rifuzi al li tiun malgrandan plezuron.”
 
-Fraŭlino Spaak, kiu devis iri en la provizejon por kaŝite de la moko de la servistinoj tremi kaj dentoklaki, ĉiufoje kiam ŝi vidis la Generalon, estus preferinta, ke li ne tiom interesiĝus pri Hedeby. Sed ßi komprenis, ke la ceteraj familianoj eĉ mal-
-
-ĝojus pri tio.
+Fraŭlino Spaak, kiu devis iri en la provizejon por kaŝite de la moko de la servistinoj tremi kaj dentoklaki, ĉiufoje kiam ŝi vidis la Generalon, estus preferinta, ke li ne tiom interesiĝus pri Hedeby. Sed ßi komprenis, ke la ceteraj familianoj eĉ malĝojus pri tio.
 
 Oni sidis ekzemple en longa vespero kun sia manlaboro.
 
 Oni ŝpinis aŭ kudris, la libroj foje finiĝis kaj ankaŭ la parol-temoj. Tiam subite unu el la fraŭlinoj ekkriis. ŝi vidis vizaĝon, ne, verdire du brilajn dentovicojn, tute ĉe la fenestra vitro.
 
-Oni rapide lumigis lanternon, oni malfermis la pordon de la vestiblo, ĉiuj virinoj kun la baronino unue elkuris por trovi la 77
-
-LA RINGO DE LA GENERALO
+Oni rapide lumigis lanternon, oni malfermis la pordon de la vestiblo, ĉiuj virinoj kun la baronino unue elkuris por trovi la
 
 
 pacoĝenanton. Sed kompreneble oni nenion trovis. Oni reiris internen, ŝraŭbis la fenestropordojn, skuis la ŝultrojn kaj diris, ke certe estis la Generalo kaj neniu alia. Sed dume oni plenvekiĝis. Oni trovis ion pri kio miri, la ŝpinilradoj turniĝis kun nova forto, la babilo vigliĝis.
@@ -1541,9 +1262,7 @@ Fraŭlino Spaak, kiu kuŝis en ĉambreto apud la salono, ve-kiĝis en iu nokto p
 
 ”Homiadio, kion li nun entreprenas en la salono?” ŝi ĝem-spiris, ĉar ßi ja komprenis, kiu kaŭzis la bruon. Vere ne estis agrabla najbaraĵo. ŝi kuŝis kaj malvarmiviĝis la tutan nokton, timante ke la Generalo envenos por fantompremi ŝin.
 
-ŝi kunprenis kaj la kuiristinon kaj la tabloservistinon, kiam ßi matene iris en la salonon por rigardi, kio okazis. Sed nenio estis detruita, malordon oni ne vidis krom tio, ke kvar pomoj kuŝis meze sur la planko. Ho, ho, oni sidis ja ĉe la fajro la 78
-
-LA RINGO DE LA GENERALO
+ŝi kunprenis kaj la kuiristinon kaj la tabloservistinon, kiam ßi matene iris en la salonon por rigardi, kio okazis. Sed nenio estis detruita, malordon oni ne vidis krom tio, ke kvar pomoj kuŝis meze sur la planko. Ho, ho, oni sidis ja ĉe la fajro la
 
 
 pasintan vesperon kaj mankis pomojn, kaj kvar pomoj estis forgesitaj sur la fornorando. Sed tio ne plaĉis al la Generalo.
@@ -1563,9 +1282,6 @@ Sed poste venis la terura bato. Kiam fraŭlino Spaak transdonis la arĝenton al 
 Fariĝis granda ekscito. Tiutempe ne povis okazi en domo io pli terura ol tio, ke mankas iu el la arĝentaj objektoj. Estiĝis en Hedeby febra maltrankvilo. Oni faris nenion krom serĉi.
 
 
-LA RINGO DE LA GENERALO
-
-
 Oni memoris, ke iu friponino vizitis la kuirejon en la festena tago, kaj oni estis preta veturi malproksimen al la finnaj re-gionoj en la nordo por trovi ŝin. Oni fariĝis suspektema kaj maljustema. La mastrino suspektis la mastrumistinon, la mastrumistino la servistinojn, la servistinoj unu la alian kaj ĉiujn. Jen tiu jen alia montris sin kun plororuĝaj okuloj, ĉar ßi kredis, ke la aliaj kredas, ke ßi proprigis al si la du kulerojn.
 
 Tiel statis dum du tagoj, nenion oni trovis, kaj fraŭlino Spaak estis proksima al malespero. ŝi estis en la porkejo kaj esploris la trogon de la porkoj por rigardi, ĉu la kuleroj venis tien. ŝi ŝtele iris en la subtegmentan vestoĉambron de la servistinoj kaj sekrete traserĉis iliajn malgrandajn kestojn. ĉio estis vana, kaj nun ŝi ne komprenis, kie ŝi plue serĉu. ŝi rimarkis, ke la baronino kaj ĉiuj aliaj suspektas ŝin, kiu estas fremda. Oni maldungos ŝin, tion ŝi sentis, se ŝi mem ne petos pri maldungo.
@@ -1578,9 +1294,7 @@ kiam li fariĝis videbla, sed fraŭlino Spaak obeis lian sugeston.
 
 ŝi prenis la porteblan ŝtupetaron el la provizejo, portis ĝin al la breto, etendis la manojn supren kaj kaptis malnovan kaj malpuran lavĉifonon. Sed en la ĉifono kuŝis la du arĝentaj kuleroj.
 
-Kiel ili venis tien? Certe okazis sen ies volo kaj scio. Dum la nekredebla urĝo de granda festeno ĉio povas okazi. Oni 80
-
-LA RINGO DE LA GENERALO
+Kiel ili venis tien? Certe okazis sen ies volo kaj scio. Dum la nekredebla urĝo de granda festeno ĉio povas okazi. Oni
 
 
 forĵetis la ĉifonon, ĉar ĝi kuŝis, kie ĝi ne kuŝu, kaj la kuleroj akompanis ĝin, sen ke oni tion rimarkis.
@@ -1597,9 +1311,7 @@ La juna barono iom paliĝis. Li esplore rigardis la fraŭlinon.
 
 ”Ma foi, fraŭlino Spaak,” li diris, ”estas kurioza ideo. Sed mi certigas al vi, ke ili eĉ por momento ne hezitus doni al la Generalo tion, kion li deziras, se ni posedus ion tian en Hedeby.”
 
-Fraŭlino Spaak ja tre bone komprenis, ke la juna barono vizitas ŝin nur pro la fantomapero, sed li estis tiel afabla junulo kaj bela. Jes, laŭ la opinio de la fraŭlino, pli ol bela. Li 81
-
-LA RINGO DE LA GENERALO
+Fraŭlino Spaak ja tre bone komprenis, ke la juna barono vizitas ŝin nur pro la fantomapero, sed li estis tiel afabla junulo kaj bela. Jes, laŭ la opinio de la fraŭlino, pli ol bela. Li
 
 
 portis la kapon iom klinita antaŭen, li havis esprimon de pen-sado, multaj eĉ opiniis, ke li estas tro serioza. Sed estis nur pro tio, ke ili ne konis lin. Foje li ĵetis la kapon supren, ŝercis kaj faris petolaĵojn pli ol iu alia. Sed kion ajn li faris, estis ne-priskribebla ĉarmo en liaj gestoj, en lia voĉo, en lia rideto.
@@ -1623,9 +1335,6 @@ diris la kamparanino.
 ”Oni diras ja, ke estas fantomapero tie.”
 
 ”Oni ne devas kredi, kion homoj babilas,” diris la fraŭlino en admona tono.
-
-
-LA RINGO DE LA GENERALO
 
 
 ”Jes, oni ne devas, jes, tion mi ja scias,” diris la alia.
@@ -1652,9 +1361,7 @@ Fraŭlino Spaak bone evitis rakonti pri tiu interparolo por la tuta familio ĉe 
 
 ”Sed ĉu ßi scias, kion serĉas la Generalo?”
 
-”ŝi scias tion pli bone ol iu alia, fraŭlino Spaak. Kaj ankaŭ mi scias tion. Mia patro rakontis la historion por mi. Sed la gepatroj ne volis, ke oni rakontu ĝin al la fratinoj. Ili ektimus 83
-
-LA RINGO DE LA GENERALO
+”ŝi scias tion pli bone ol iu alia, fraŭlino Spaak. Kaj ankaŭ mi scias tion. Mia patro rakontis la historion por mi. Sed la gepatroj ne volis, ke oni rakontu ĝin al la fratinoj. Ili ektimus
 
 
 pro fantomoj kaj eble ne povus resti tie ĉi. Mi ankaŭ ne rajtas rakonti tion por vi.”
@@ -1668,14 +1375,9 @@ pro fantomoj kaj eble ne povus resti tie ĉi. Mi ankaŭ ne rajtas rakonti tion p
 ”ĉar, mi ripetas tion,” diris barono Adrian, ”mi volas helpi al la malfeliĉa reaperanto trovi ripozon. Mi ne timas lin. Mi sekvos lin, tuj kiam li vokos min. Kial li montras sin al ĉiuj aliaj sed neniam al mi?”
 
 
-LA RINGO DE LA GENERALO
-
-
 x
 
-Adrian Löwensköld dormis en subtegmenta gabloĉam-
-
-bro, kiam vekis lin nelaŭta bruo. Li malfermis la okulojn, kaj ĉar la fenestropordoj ne estis fermitaj kaj ekstere regis hela somera nokto, li klare vidis, ke la pordo malfermiĝas. Li kredis, ke malfermis ĝin trablovo, sed li vidis, ke la pordo-kadron plenigas malhela figuro, kiu esplore klinas sin internen en la ĉambron.
+Adrian Löwensköld dormis en subtegmenta gabloĉambro, kiam vekis lin nelaŭta bruo. Li malfermis la okulojn, kaj ĉar la fenestropordoj ne estis fermitaj kaj ekstere regis hela somera nokto, li klare vidis, ke la pordo malfermiĝas. Li kredis, ke malfermis ĝin trablovo, sed li vidis, ke la pordo-kadron plenigas malhela figuro, kiu esplore klinas sin internen en la ĉambron.
 
 Adrian sufiĉe klare distingis maljunan viron, vestitan en malnovtempa kavaleria uniformo. Jako el alkoledo estis videbla sub la iom malbutonita ekstera jako, la botoj estis pli altaj ol ĝis la genuoj, la longan spadon li tenis levita, kvazaŭ por ke ĝi ne tintu.
 
@@ -1686,9 +1388,6 @@ Adrian sufiĉe klare distingis maljunan viron, vestitan en malnovtempa kavaleria
 Adrian tuj sidigis sin en la lito. ”Nun aŭ neniam,” li pensis. ”Fine li petas mian helpon, kaj mi ankaŭ akompanos lin.”
 
 Verdire li dum multaj jaroj atendis tiun momenton. Li preparis sin por ĝi, fortigis sian kuraĝon por ĝi. Li ĉiam sciis, ke tion ĉi li devos iam trapasi.
-
-
-LA RINGO DE LA GENERALO
 
 
 Li ne volis atendigi la Generalon sed sekvis lin tute tia, kia li venis el la lito. Li nur altiris litotukon kaj volvis ĝin ĉirkaŭ sin.
@@ -1709,9 +1408,7 @@ La Generalo estis haltinta meze sur la subtegmenteja planko por atendi lin. Esti
 
 Li kuraĝigis sin, transpasis la sojlon, kaj la iro komenciĝis denove.
 
-La reaperanto tiris sin al la ŝtuparo, kaj kiam li vidis, ke 86
-
-LA RINGO DE LA GENERALO
+La reaperanto tiris sin al la ŝtuparo, kaj kiam li vidis, ke
 
 
 Adrian sekvas, li komencis paŝi malsupren. Ankoraŭ li iris kankre, haltis sur ĉiu ŝtupo kaj kvazaŭ kuntrenis la hezitan-tan junulon per la forto de sia volo.
@@ -1728,9 +1425,7 @@ Sed tie Adrian haltis denove. Dekstre, tute apud la ŝtuparo, estis la pordo de 
 
 Kiam li ankoraŭ staris tie kun la mano sur la seruro, li vidis, ke unu el la vestiblopordoj malfermiĝas, kaj la Generalo transiras la sojlon por iri eksteren.
 
-Estis sufiĉe malhele kaj en la subtegmentejo kaj sur la ŝtuparo, sed tra la pordo enfluis nun pli forta lumo, kaj en tiu 87
-
-LA RINGO DE LA GENERALO
+Estis sufiĉe malhele kaj en la subtegmentejo kaj sur la ŝtuparo, sed tra la pordo enfluis nun pli forta lumo, kaj en tiu
 
 
 lumo Adrian vidis por la unua fojo la vizaĝotrajtojn de la Generalo.
@@ -1750,9 +1445,7 @@ La plumo falas el mia mano. ĉu ne estas sensence provi skribi tion? Al mi oni r
 
 Kiel streĉite ni aŭskultis ĝuste tiun ĉi historion, ĉar ĝi ŝajnis levi randon de la vualo antaŭ la nesciebla! Kian strangan animagordon ĝi postlasis, kvazaŭ pordo estus malfermita, kvazaŭ nun fine io aperus el la granda malhelo!
 
-Kiom estas vera en ĝi? Unu rakontistino heredis de alia, 88
-
-LA RINGO DE LA GENERALO
+Kiom estas vera en ĝi? Unu rakontistino heredis de alia,
 
 
 unu aldonis, alia forprenis. Sed ĉu ĝi tamen ne enhavas ker-neton de vero? ĉu ĝi ne faras impreson esti priskribo de io, kio vere okazis?
@@ -1762,9 +1455,6 @@ La reaperanto, kiu ĉirkaŭiris en Hedeby, kiu estis videbla eĉ meze en la tago
 ĉu ne estas io neordinare klara kaj solida en lia apero? ĉu li ne diferencas per certa aparteco de la multegaj grandbie-naj fantomoj? ĉu ne ŝajnas, kvazaŭ fraŭlino Spaak vere estus aŭdinta, ke li ĵetas pomojn kontraŭ la muron de la salono, kaj kvazaŭ Adrian estus sekvinta lin tra la subtegmentejo kaj malsupren sur la ŝtuparo?
 
 Sed en tiu okazo, en tiu okazo … eble povas diveni la enig-mon iu el tiuj, kiuj jam nun vidas tiun realon, kiu kuŝas malantaŭ la realo, en kiu ni nun vivas.
-
-
-LA RINGO DE LA GENERALO
 
 
 xi
@@ -1779,12 +1469,7 @@ Baronino Löwensköld sidis ĉe unu flanko de la lito kaj ne forturnis la okuloj
 
 La barono foje sidis ĉe la alia flanko de la lito, sed li ne povis resti trankvila. Li prenis unu el la senfortaj manoj inter la siajn kaj kontrolis la pulson, li iris al la fenestro kaj rigardis al la vojo, li faris promenon tra la ĉambroj por rigardi la salon-horloĝon. Dume li respondis per kaposkuo al la atendoplenaj demandoj, kiuj estis videblaj en la okuloj de la filinoj kaj de la guvernistino, kaj poste reiris en la malsanulĉambron.
 
-Cetere neniu estis lasata tien krom fraŭlino Spaak. Nek la filinoj, nek iu el la servistinoj, nur la fraŭlino. ŝi havis la ĝus-90
-
-LA RINGO DE LA GENERALO
-
-
-tan irmanieron, la ĝustan voĉon, ŝi konvenis en malsanula ĉambro.
+Cetere neniu estis lasata tien krom fraŭlino Spaak. Nek la filinoj, nek iu el la servistinoj, nur la fraŭlino. ŝi havis la ĝustan irmanieron, la ĝustan voĉon, ŝi konvenis en malsanula ĉambro.
 
 Fraŭlino Spaak vekiĝis meze en la nokto pro la krio de Adrian. Kiam ŝi tuj poste aŭdis la pezan falon, ŝi saltis el la lito.
 
@@ -1797,9 +1482,6 @@ La baronino ŝatis havi fraŭlinon Spaak en la ĉambro, ĉar ŝi estis tute tran
 La fraŭlino envenis kun taso da kafo kaj afable insiste devigis ŝin eltrinki ĝin.
 
 La baronino havis la senton, ke la fraŭlino la tutan tempon estas ĉe ŝi en la ĉambro, sed la fraŭlino estis ankaŭ en la kuirejo kaj kontrolis, ke la homoj ricevas sian manĝaĵon kiel ordinare. ŝi nenion forgesis. ŝi estis pala kiel mortinto, sed ŝi prizorgis siajn taskojn. La matena manĝaĵo de la gesinjoroj venis sur la tablon en ĝusta tempo, kaj la paŝtoknabo ricevis sian manĝaĵprovizon, kiam li forkondukis la bovinojn.
-
-
-LA RINGO DE LA GENERALO
 
 
 En la kuirejo la servistinoj demandis, kio okazis al la juna barono kaj la fraŭlino respondis, ke oni scias nur, ke li enkuris al la gepatroj kaj kriis ion pri la Generalo. Poste li svenis, kaj nun ne estis eble revivigi lin.
@@ -1822,18 +1504,14 @@ Fraŭlino Spaak tiun tagon faris escepton de sia bela regulo neniam aŭskulti al
 
 ŝi kaj la tabloservistino rapidis rakonti al fraŭlino Spaak la historion pri la ŝtelo en la tombo kaj pri la dioverdikto, kaj kiam la fraŭlino estis tion eksciinta, ßi ne por momento dubis, ke la ringo lamaniere venis al Hedeby kaj troviĝas kaŝi-ta tie.
 
-Fraŭlino Spaak komencis tremi, proksimume tiel, kiel ŝi tremis, kiam ŝi unuafoje renkontis la Generalon sur la subtegmenteja ŝtuparo. Estis ĝuste tio, kion ßi dum la tuta tempo 92
-
-LA RINGO DE LA GENERALO
+Fraŭlino Spaak komencis tremi, proksimume tiel, kiel ŝi tremis, kiam ŝi unuafoje renkontis la Generalon sur la subtegmenteja ŝtuparo. Estis ĝuste tio, kion ßi dum la tuta tempo
 
 
 timis. ŝi sciis nun, kiel kruela kaj senkompata tiu reaperanto povas esti. Estis tute klare al ßi, ke barono Adrian mortos, se li ne rericevos sian ringon.
 
 Sed la fraŭlino apenaŭ venis al tiu konkludo, antaŭ ol ßi, kiu estis decidema homo, komprenis, kion oni devas fari. Se la terura ringo troviĝas en Hedeby, estas ja eble serĉi kaj retrovi ĝin.
 
-ŝi iris en la grandan loĝodomon, rigardis en la malsanul-
-
-ĉambron, kie ĉio estis kiel antaŭe, suprenkuris la subtegmen-tejan ŝtuparon kaj ordigis la Iiton en la ĉambro de Adrian, por ke ĝi estu preta, se li fariĝus pli bonfarta kaj oni povus porti lin tien. Poste ßi eniris al la fraŭlinoj kaj la guvernistino, kiuj sidis tute timigitaj kaj ne havis forton ion ajn entrepreni. El tio, kion ŝi eksciis, ŝi rakontis al ili tiom, ke ili komprenu pri kio temas, kaj demandis, ĉu ili ne volas helpi al ŝi serĉi la ringon.
+ŝi iris en la grandan loĝodomon, rigardis en la malsanulĉambron, kie ĉio estis kiel antaŭe, suprenkuris la subtegmen-tejan ŝtuparon kaj ordigis la Iiton en la ĉambro de Adrian, por ke ĝi estu preta, se li fariĝus pli bonfarta kaj oni povus porti lin tien. Poste ßi eniris al la fraŭlinoj kaj la guvernistino, kiuj sidis tute timigitaj kaj ne havis forton ion ajn entrepreni. El tio, kion ŝi eksciis, ŝi rakontis al ili tiom, ke ili komprenu pri kio temas, kaj demandis, ĉu ili ne volas helpi al ŝi serĉi la ringon.
 
 Jes, al tio ili tuj konsentis. La fraŭlinoj kaj la guvernistino prenis sur sin serĉadon en la domo, en ĉambroj kaj subteg-mentejaj vestejoj. Fraŭlino Spaak mem iris al la kuireja flankdomo kaj igis ĉiujn servistinojn de la domo ekmoviĝi.
 
@@ -1841,12 +1519,7 @@ Jes, al tio ili tuj konsentis. La fraŭlinoj kaj la guvernistino prenis sur sin 
 
 Oni renversis ĉion, kio estis en la kuirejo kaj la provizejo, en la bakejo kaj la bierfarejo. Oni serĉis en murfendoj kaj for-noj, elverŝis la kestojn de la spicoŝrankoj kaj palpis eĉ en la mustruoj.
 
-Dume ŝi ne forgesis tiam kaj tiam kuri tra la korto kaj rigardi en la dormoĉambron. Dum unu el siaj vizitoj tie ŝi tro-93
-
-LA RINGO DE LA GENERALO
-
-
-vis, ke la baronino ploras. ”Li fartas malpli bone,” ŝi diris. ”Mi kredas, ke li estas mortanta.”
+Dume ŝi ne forgesis tiam kaj tiam kuri tra la korto kaj rigardi en la dormoĉambron. Dum unu el siaj vizitoj tie ŝi trovis, ke la baronino ploras. ”Li fartas malpli bone,” ŝi diris. ”Mi kredas, ke li estas mortanta.”
 
 Fraŭlino Spaak klinis sin antaŭen, prenis la senfortan manon de Adrian en la sian kaj palpis la pulson. ”Tute ne, baronino,” ŝi diris, ”ne malpli bone, prefere iom pli bone.”
 
@@ -1867,9 +1540,6 @@ Dum interparolis la tabloservistino kaj fraŭlino Spaak, la kuireja servistino s
 ”Ho,” ßi elkriis, ”jen mi trovas ion, kion mi longe serĉis. Tie ĉi kuŝas ja la malnova pintoĉapo de barono Adrian.”
 
 
-LA RINGO DE LA GENERALO
-
-
 Fraŭlino Spaak indigniĝis. Kia ordo do estis en Hedeby, antaŭ ol ßi alvenis! Kiel venis tien ĉi la ĉapo de barono Adrian?
 
 ”Tio ne estas mirinda,” diris la kuireja servistino. ”Li el-kreskis ĝin, kaj li donis ĝin al mi, por ke mi faru el ĝi du po-totuketojn. Vere bone, ke mi retrovis ĝin.”
@@ -1882,24 +1552,15 @@ Tuj poste ŝi iris kun la ĉapo sur la korton kaj komencis viŝi el ĝi la polvo
 
 ”ŝajnas al ni, ke Adrian fartas malpli bone,” li diris.
 
-”ĉu ne troviĝas proksime iu, kiu komprenas kuracan ar-
-
-ton?” demandis ŝajne sen iu ajn subintenco la fraŭlino. ”La servistinoj menciis virinon, kiu nomigas Marit Eriksdotter.”
+”ĉu ne troviĝas proksime iu, kiu komprenas kuracan arton?” demandis ŝajne sen iu ajn subintenco la fraŭlino. ”La servistinoj menciis virinon, kiu nomigas Marit Eriksdotter.”
 
 La barono rigidiĝis.
 
-”Kompreneble mi ne hezitus venigi mian plej grandan ma-
-
-lamikon, kiam temas pri la vivo de Adrian,” li diris. ”Sed ne havus sencon. Marit Eriksdotter ne venos al Hedeby.”
+”Kompreneble mi ne hezitus venigi mian plej grandan malamikon, kiam temas pri la vivo de Adrian,” li diris. ”Sed ne havus sencon. Marit Eriksdotter ne venos al Hedeby.”
 
 La fraŭlino ne kuraĝis kontraŭdiri post tiu sciigo. ŝi daŭrigis la serĉadon tra la tuta kuireja domo, zorgis por la tagmanĝo kaj igis ankaŭ la baroninon manĝi kelkajn pecojn. La ringo ne estis trovita, kaj fojon post fojo ripetis al si fraŭlino Spaak: ”Ni devas trovi la ringon. La Generalo lasos Adrian morti, se ni ne retrovos al li la ringon.”
 
-Posttagmeze fraŭlino Spaak iris al Olsbyn. ŝi iris laŭ propra decido. La pulsobatoj sentiĝis pli malfortaj kaj venis kun pli kaj pli longaj intertempoj por ĉiu nova fojo, kiam ßi estis ĉe la malsanulo. ŝi ne havis trankvilon. por atendi la kuracis-95
-
-LA RINGO DE LA GENERALO
-
-
-ton el Karlstad. Estis pli ol kredeble, ke Marit rifuzos, sed la fraŭlino ne volis lasi iun ajn eblecon neprovita.
+Posttagmeze fraŭlino Spaak iris al Olsbyn. ŝi iris laŭ propra decido. La pulsobatoj sentiĝis pli malfortaj kaj venis kun pli kaj pli longaj intertempoj por ĉiu nova fojo, kiam ßi estis ĉe la malsanulo. ŝi ne havis trankvilon. por atendi la kuraciston el Karlstad. Estis pli ol kredeble, ke Marit rifuzos, sed la fraŭlino ne volis lasi iun ajn eblecon neprovita.
 
 Marit Eriksdotter sidis en la kutima loko sur la ŝtuparo ekster la fostodomo, kiam fraŭlino Spaak venis. ŝi ne havis laboron inter la manoj, sed sidis klinita malantaŭen kun fermitaj okuloj. Sed ŝi ne dormis, ŝi malfermis la okulojn, kiam venis la fraŭlino, kaj ŝi tuj rekonis ŝin.
 
@@ -1921,9 +1582,7 @@ Marit klinis sin iom antaŭen. Dum sufiĉe longa tempo ßi ne forprenis la rigar
 
 Sed samtempe, kiam Marit sidis kaj rigardis la fraŭlinon, kiu ploris la larmojn de amo pro amato, okazis io ankaŭ en ŝia propra animo.
 
-ŝi eksciis antaŭ kelkaj horoj, ke la Generalo montris sin al Adrian kaj preskaŭ timomortigis lin, kaj ŝi diris al si, ke fine 96
-
-LA RINGO DE LA GENERALO
+ŝi eksciis antaŭ kelkaj horoj, ke la Generalo montris sin al Adrian kaj preskaŭ timomortigis lin, kaj ŝi diris al si, ke fine
 
 
 estas veninta la horo de venko. Tion ßi atendis dum multaj jaroj, sed ĉiam vane. La kapitano iris en sian tombon, kaj puno ne estis lin trafinta. Vere la Generalo iradis en Hedeby, de kiam ßi sendis tien la ringon, sed ŝajnis, ke li ne volas persekuti siajn proprajn per la ordinara kruelo.
@@ -1940,13 +1599,9 @@ Marit kredis, ke ßi amis lin la tutan tempon, kaj tion ŝi certe faris. Sed kie
 
 Sed en la sama momento, kiam vekiĝis en ßi la amo, ŝi
 
-ankaŭ memoris la teruran doloron, kiun sentas homo per-
+ankaŭ memoris la teruran doloron, kiun sentas homo perdante la amaton.
 
-dante la amaton.
-
-Marit rigardis al fraŭlino Spaak, kiu ankoraŭ staris ploran-te. Nun Marit sciis, kiel ŝi sentas. Antaŭ kelkaj momentoj ŝvris la malvarmeco de la multaj jaroj. Tiam ßi estis forges-inta, kiel sentiĝas la fajro, nun ßi memoris tion. ŝi ne volis 97
-
-LA RINGO DE LA GENERALO
+Marit rigardis al fraŭlino Spaak, kiu ankoraŭ staris ploran-te. Nun Marit sciis, kiel ŝi sentas. Antaŭ kelkaj momentoj ŝvris la malvarmeco de la multaj jaroj. Tiam ßi estis forges-inta, kiel sentiĝas la fajro, nun ßi memoris tion. ŝi ne volis
 
 
 kaŭzi, ke ŝi suferos, kion ßi mem suferis, kaj ßi levis sin kaj iris al la fraŭlino.
@@ -1972,9 +1627,6 @@ Marit staris senmova. ŝi fermis la okulojn kaj ŝajnis med-iti. Fraŭlino Spaak
 ”Ne petu min, baronino,” diris Marit, ”ĉar estas tiel: mi ne povas pardoni.”
 
 
-LA RINGO DE LA GENERALO
-
-
 ”Sed nun vi tamen estas tie ĉi.”
 
 ”Mi venis pro la fraŭlino, ĉar ßi petis min.”
@@ -1995,9 +1647,7 @@ Fraŭlino Spaak estis atendinta, ke Marit Eriksdotter faros iun provon veki la j
 
 Anstataŭe Marit ordonis, ke oni kolektu ĉiujn vestojn de Adrian, kaj nun uzatajn kaj tiajn, kiujn li uzis dum pasintaj jaroj kaj kiuj eble ankoraŭ restas. ŝi volis vidi ĉion, kion li portis sur sia korpo, ŝtrumpojn kaj ĉemizojn, gantojn kaj ĉapojn.
 
-En tiu tago oni faris nenion krom serĉi en Hedeby. Kvankam fraŭlino Spaak ĝemetis, ke Marit estas nenio alia ol ordinara saĝa virino kun kutimaj sorĉaĵoj, ŝi tamen rapidis serĉi en komodoj kaj subtegmentejoj, en kestoj kaj ŝrankoj por trovi ĉion, kio apartenis al la malsanulo. La junaj filinoj, kiuj 99
-
-LA RINGO DE LA GENERALO
+En tiu tago oni faris nenion krom serĉi en Hedeby. Kvankam fraŭlino Spaak ĝemetis, ke Marit estas nenio alia ol ordinara saĝa virino kun kutimaj sorĉaĵoj, ŝi tamen rapidis serĉi en komodoj kaj subtegmentejoj, en kestoj kaj ŝrankoj por trovi ĉion, kio apartenis al la malsanulo. La junaj filinoj, kiuj
 
 
 sufiĉe bone sciis, kiujn vestojn Adrian uzis, helpis ŝin, kaj baldaŭ ŝi venis al Marit kun granda vestovolvaĵo.
@@ -2027,9 +1677,6 @@ sorĉaĵon, sed nun estis alia sono en la voĉo. Estis kvazaŭ kato, kiu ŝpinas
 Sed kiam fraŭlino Spaak tion aŭdis, ŝi tute perdis la esperon. ”ĉu vi do povas kredi, ke la barono lasos malfermi la tombon por enmeti malnovan senvaloraĵon?” ŝi diris al Marit.
 
 
-LA RINGO DE LA GENERALO
-
-
 Marit rigardis ŝin kaj iom ridetis. ŝi prenis la manon de fraŭlino Spaak kaj tiris ŝin al fenestro, tiel ke ili staris kun la dorsoj al ĉiuj aliaj, kiuj estis en la kuirejo. Poste ŝi tenis la ĉapon antaŭ la okuloj de la fraŭlino kaj per la fingroj disigis la fadenojn en la granda kvasto.
 
 Neniun vorton ŝi diris, kaj neniun vorton diris fraŭlino Spaak, sed la fraŭlino estis mortpala kiam ŝi returnis sin, kaj la manoj tremis.
@@ -2048,12 +1695,7 @@ Tiam fraŭlino Spaak prenis la volvaĵon sub la brakon kaj foriris. ŝi sciis, k
 
 wensköld levigi la tomboplaton kaj malfermigi la masonfer-mitan tombon nur por enmeti kelkajn malnovajn vestopecojn de Adrian.
 
-Se ßi estus dirinta al li, kio vere troviĝas en la volvaĵo, li tuj estus reportinta ĝin al la vera posedanto, pri tio ßi estis cer-101
-
-LA RINGO DE LA GENERALO
-
-
-ta, sed per tio ßi estus farinta perfidon kontraŭ Marit Eriksdotter.
+Se ßi estus dirinta al li, kio vere troviĝas en la volvaĵo, li tuj estus reportinta ĝin al la vera posedanto, pri tio ßi estis certa, sed per tio ßi estus farinta perfidon kontraŭ Marit Eriksdotter.
 
 ŝi ne dubis, ke estis Marit, kiu iam venigis la ringon al Hedeby. Barono Adrian iam rakontis pri tio, ke Marit riparis lian ĉapon. Ne, la fraŭlino ne kuraĝis sciigi al la barono la faktan interrilaton de la afero.
 
@@ -2061,17 +1703,13 @@ Poste ŝajnis strange eĉ al fraŭlino Spaak mem, ke ßi ne sentis timon en tiu 
 
 ŝi sidiĝis sur la tomboplaton kaj interplektis la fingrojn por preĝi. ”Se Dio ne helpos min nun,” ŝi pensis, la tombo estos malfermata ne por la ringo sed por iu, kiun mi eterne priplo-ros.”
 
-Meze dum la preĝo la fraŭlino rimarkis malgrandan mo-
-
-von en la herbo, kiu kovris la malaltan tomboaltaĵeton, sur kiu ripozis la plato. Malgranda kapo montriĝis kaj ree malaperis, kiam la fraŭlino subite ekmoviĝis. ĉar la fraŭlino same multe timis musojn, kiel musoj ŝin. Sed tio donis al la fraŭli-no subitan impulson. ŝi rapide iris al granda siringa arbeto, derompis longan, sekan branĉon kaj enigis ĝin en la mustru-on.
+Meze dum la preĝo la fraŭlino rimarkis malgrandan movon en la herbo, kiu kovris la malaltan tomboaltaĵeton, sur kiu ripozis la plato. Malgranda kapo montriĝis kaj ree malaperis, kiam la fraŭlino subite ekmoviĝis. ĉar la fraŭlino same multe timis musojn, kiel musoj ŝin. Sed tio donis al la fraŭli-no subitan impulson. ŝi rapide iris al granda siringa arbeto, derompis longan, sekan branĉon kaj enigis ĝin en la mustru-on.
 
 ŝi unue kondukis ĝin rekte malsupren, sed tiam ŝi tuj trafis reziston. Poste ŝi provis konduki ĝin oblikve malsupren, kaj tiam ĝi penetris malproksimen en la direkto al la tombo. ŝi miris, ke ĝi tiom profunden penetris. La tuta vergo malaperis. ŝi rapide suprentiris ĝin kaj mezuris ĝin per sia brako. i estis tri ulnojn longa, kaj ĝi estis en la tero laŭ la tuta longo.
 
 La vergo nepre penetris ĝis en la tomboĉambro.
 
-Neniam en la tuta vivo de fraŭlino Spaak ŝia kapo estis tiel 102
-
-LA RINGO DE LA GENERALO
+Neniam en la tuta vivo de fraŭlino Spaak ŝia kapo estis tiel
 
 
 orda kaj klara kiel nun. ŝi komprenis ke la musoj faris al si vojon en la tombon. Eble estas ĝi ventoltruo en la muro, aŭ disfalis iu briko.
@@ -2092,9 +1730,7 @@ Kiam ŝi venis en la korton, kaj la barono kaj la baronino staris sur la perono.
 
 ”Ne, li ne mortis,” diris la barono, ”sed diru unue, fraŭlino Spaak, kie vi estis?”
 
-La fraŭlino apenaŭ povis paroli pro spirmanko, sed ßi rakontis pri la komisio, kiun Marit donis al ŝi, kaj diris, ke ŝi 103
-
-LA RINGO DE LA GENERALO
+La fraŭlino apenaŭ povis paroli pro spirmanko, sed ßi rakontis pri la komisio, kiun Marit donis al ŝi, kaj diris, ke ŝi
 
 
 sukcesis konduki tra la mustruo almenaŭ unu el la objektoj en la tombovolbon.
@@ -2117,21 +1753,14 @@ La ekstazo, per kiu la junulo salutis ŝin, eble kaŭzis, ke la kompatinda fraŭ
 
 ”Estas ne nur mi, kiu dankas vin, estas ankaŭ iu alia.”
 
-Li montris al ßi medalionon, kiun li portis ĉe la kolo. Fraŭ-
-
-lino Spaak neklare distingis portreton de junulino.
+Li montris al ßi medalionon, kiun li portis ĉe la kolo. Fraŭlino Spaak neklare distingis portreton de junulino.
 
 ”Vi estas la unua krom la gepatroj, kiu ekscias tion,” li diris. ”Kiam ßi post kelkaj semajnoj venos al Hedeby, ßi dankos vin ankoraŭ pli bone, ol mi povas.”
 
-Kaj fraŭlino Spaak genufleksis antaŭ la juna barono, por esprimi sian dankon pro la konfido. ŝi deziris diri al li, ke ßi ne intencas resti en Hedeby por akcepti lian fianĉinon. Sed ŝi 104
-
-LA RINGO DE LA GENERALO
+Kaj fraŭlino Spaak genufleksis antaŭ la juna barono, por esprimi sian dankon pro la konfido. ŝi deziris diri al li, ke ßi ne intencas resti en Hedeby por akcepti lian fianĉinon. Sed ŝi
 
 
 sukcesis bridi sin. Malriĉa knabino ne povas facilanime forlasi bonan oficon.
-
-
-LA RINGO DE LA GENERALO
 
 
 www.omnibus.se/

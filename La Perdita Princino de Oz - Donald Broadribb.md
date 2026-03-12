@@ -115,48 +115,48 @@ Kuiristinon . . . . . . . . . . . . . . . .38
 
 7 La Karuselaj Montoj . . . . . . . . . . . . . . . . . . . . . . . . . . . .93
 
-8 La Mistera Urbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 108
+8 La Mistera Urbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-9 La Alta Koko-Lorum de Ti . . . . . . . . . . . . . . . . . . . . . . 124
+9 La Alta Koko-Lorum de Ti . . . . . . . . . . . . . . . . . . . . . .
 
-10 Toto Perdas Ion . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 141
+10 Toto Perdas Ion . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-11 Buton-Brilo Perdas Sin . . . . . . . . . . . . . . . . . . . . . . . . . 150
+11 Buton-Brilo Perdas Sin . . . . . . . . . . . . . . . . . . . . . . . . .
 
-12 La Carsuprulo de Herkuo . . . . . . . . . . . . . . . . . . . . . . . 161
+12 La Carsuprulo de Herkuo . . . . . . . . . . . . . . . . . . . . . . .
 
-13 La Vero-Lageto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 177
+13 La Vero-Lageto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-14 La Malfeliĉa Pramisto . . . . . . . . . . . . . . . . . . . . . . . . . . 188
+14 La Malfeliĉa Pramisto . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-15 La Granda Lavenda Urso . . . . . . . . . . . . . . . . . . . . . . . 198
+15 La Granda Lavenda Urso . . . . . . . . . . . . . . . . . . . . . . .
 
-16 La Malgranda Palruĝa Urso . . . . . . . . . . . . . . . . . . . . . . 206
+16 La Malgranda Palruĝa Urso . . . . . . . . . . . . . . . . . . . . . .
 
-17 La Renkontiĝo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 220
+17 La Renkontiĝo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-18 La Konferenco . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 234
+18 La Konferenco . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-19 La Ŝufaristo Ugu . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 241
+19 La Ŝufaristo Ugu . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-20 Pli da Surprizoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 249
+20 Pli da Surprizoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-21 Magio Kontraŭ Magio . . . . . . . . . . . . . . . . . . . . . . . . . . 260
+21 Magio Kontraŭ Magio . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-22 En la Vimenaĵa Kastelo. . . . . . . . . . . . . . . . . . . . . . . . . 269
+22 En la Vimenaĵa Kastelo. . . . . . . . . . . . . . . . . . . . . . . . .
 
-23 Defio al la Ŝufaristo Ugu . . . . . . . . . . . . . . . . . . . . . . . 284
+23 Defio al la Ŝufaristo Ugu . . . . . . . . . . . . . . . . . . . . . . .
 
-24 La Malgranda Palruĝa Urso Parolas Veron . . . . . . . . . . . . 293
+24 La Malgranda Palruĝa Urso Parolas Veron . . . . . . . . . . . .
 
-25 Ozma de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 299
+25 Ozma de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-26 Doroteo Pardonas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 307
+26 Doroteo Pardonas . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Gravega Perdo
 
-ĈAPITRO 1
+ĈAPITRO
 
 N e p o v i s e s t i
 
@@ -172,9 +172,7 @@ Neniu el ŝiaj regatoj—eĉ neniu el ŝiaj plej intimaj
 
 amikoj—sciis kio okazis al ŝi.
 
-Doroteo la unua trovis tion. Doroteo estis mal-
-
-granda knabino el Kansas kiu venis al la Lando Oz
+Doroteo la unua trovis tion. Doroteo estis malgranda knabino el Kansas kiu venis al la Lando Oz
 
 por tie loĝi kaj ricevis tre agrablan ĉambraron en la
 
@@ -549,11 +547,9 @@ pendis.
 
 La Problemoj de Glinda la Bona
 
-ĈAPITRO 2
+ĈAPITRO
 
-Tiun saman mat-
-
-enon estis granda
+Tiun saman matenon estis granda
 
 e k s c i t i ĝ o e n l a
 
@@ -641,9 +637,7 @@ fortikaj oraj seruroj, kies ŝlosilojn Glinda portis sur
 
 ĉeno ligita ĉirkaŭ ŝia propra kolo.
 
-La paĝoj de la Granda Libro estis pli granda-
-
-dimensiaj ol tiuj de Usona ĵurnalo kaj kvankam ili
+La paĝoj de la Granda Libro estis pli grandadimensiaj ol tiuj de Usona ĵurnalo kaj kvankam ili
 
 estis maldikegaj ili estis tiomaj ke ili konsistigis
 
@@ -785,7 +779,7 @@ Arkivo-Libron.”
 
 Rabo Trafas Kuknjon la Kuketo-Kuiristinon
 
-ĈAPITRO 3
+ĈAPITRO
 
 Unu grava ŝtelo
 
@@ -793,9 +787,7 @@ plia raportiĝis en
 
 la Lando Oz tiun
 
-eventoplenan mat-
-
-enon, sed ĝi okazis tiom for de kaj la Smeralda Urbo
+eventoplenan matenon, sed ĝi okazis tiom for de kaj la Smeralda Urbo
 
 kaj la kastelo de Glinda la Bona ke neniu el la
 
@@ -828,9 +820,7 @@ granda la landeto apartenas nur al ili. La Jipoj
 
 neniam—ĝis la tempo kiam komenciĝas ĉi tiu
 
-rakonto—foriris de sia larĝa tablolando por mal-
-
-supreniri en la Landon Oz, nek la Ozanoj iam
+rakonto—foriris de sia larĝa tablolando por malsupreniri en la Landon Oz, nek la Ozanoj iam
 
 grimpis al la lando de la Jipoj.
 
@@ -852,9 +842,7 @@ Tie, dum la mateno kiam Ozma tiom strange
 
 malaperis de la Smeralda Urbo, Kuknjo la Kuketo-
 
-Kuiristino trovis ke ŝia diamantornamita ora teler-
-
-lavujo estis ŝtelita, kaj ŝi tiom alarmis pro la perdo kaj
+Kuiristino trovis ke ŝia diamantornamita ora telerlavujo estis ŝtelita, kaj ŝi tiom alarmis pro la perdo kaj
 
 kriis kaj lamentis tiom laŭte ke multaj Jipoj grupiĝis
 
@@ -1555,7 +1543,7 @@ nokto trafos nin.”
 
 Inter la Palpbrumoj
 
-ĈAPITRO 4
+ĈAPITRO
 
 La loĝataj partoj
 
@@ -1673,9 +1661,7 @@ kapjesis kaj fiere marŝis tien kaj reen, svingante sian
 
 orkapan bastonon tre gracie.
 
-“Ĉu la Birdotimigilo agnoskas ke ĉi tiu tro-
-
-kreskinta rano estas la plej saĝa persono en la
+“Ĉu la Birdotimigilo agnoskas ke ĉi tiu trokreskinta rano estas la plej saĝa persono en la
 
 mondo?” demandis Viljonĉjo.
 
@@ -1802,9 +1788,7 @@ kuketaro, kiun mi kunportis en mia korbo, estis
 
 malindaj kaj ne pli bonaj ol kuketoj faritaj de virino
 
-kiu ne posedas mian diamantornamitan oran teler-
-
-lavujon. Efektive, mia bona Ranulo, Kuknjo la
+kiu ne posedas mian diamantornamitan oran telerlavujon. Efektive, mia bona Ranulo, Kuknjo la
 
 Kuketo-Kuiristino neniam denove povos kuiri bonajn
 
@@ -1817,11 +1801,9 @@ ni nepre devos trovi ĝin.”
 
 La Amikoj de Ozma Perpleksiĝas
 
-ĈAPITRO 5
+ĈAPITRO
 
-“Vere,” diris Doro-
-
-t e o , a s p e k t a n t e
+“Vere,” diris Dorot e o , a s p e k t a n t e
 
 s o l e n a , “ ĉ i t i o
 
@@ -2215,9 +2197,7 @@ dispono de iu fia malamiko.”
 
 por krei novajn sorĉilojn per kiuj mi povos savi nian
 
-belan Regantinon. Sed se vi povos trovi ŝin, inter-
-
-tempe, kaj sciigos al mi kiu ŝtelis ŝin, tio ebligos ke
+belan Regantinon. Sed se vi povos trovi ŝin, intertempe, kaj sciigos al mi kiu ŝtelis ŝin, tio ebligos ke
 
 mi savu ŝin multe pli rapide.”
 
@@ -2315,11 +2295,9 @@ servi laŭ ŝia direktado.
 
 Oni Serĉas
 
-ĈAPITRO 6
+ĈAPITRO
 
-La sekvan mat-
-
-enon, tuj je la
+La sekvan matenon, tuj je la
 
 sunleviĝo, Glinda
 
@@ -2917,11 +2895,9 @@ amikeman paŝtiston, kaj pluiris.
 
 La Karuselaj Montoj
 
-ĈAPITRO 7
+ĈAPITRO
 
-La Ondanta Ebe-
-
-naĵo ne estis mal-
+La Ondanta Ebenaĵo ne estis mal-
 
 facile transirebla,
 
@@ -3341,9 +3317,7 @@ Vuzon,” diris Doroteo, “kaj nenio povas damaĝi *min*,
 
 ĉar mi surhavas la Magian Zonon. Do, ĉar mi
 
-fervoras trovi Ozman, mi intencas ankaŭ min trans-
-
-svingi.”
+fervoras trovi Ozman, mi intencas ankaŭ min transsvingi.”
 
 “Mi riskos provon,” decidis Buton-Brilo.
 
@@ -3396,9 +3370,7 @@ Sed mi ne povos kuntreni la Ruĝan Ĉaregon.”
 
 “Ne, ni devos postlasi la ĉaregon,” diris la Sorĉisto;
 
-“kaj ankaŭ ni devas postlasi niajn manĝaĵojn kaj lit-
-
-kovraĵojn, mi kredas. Sed se ni povos defii tiujn
+“kaj ankaŭ ni devas postlasi niajn manĝaĵojn kaj litkovraĵojn, mi kredas. Sed se ni povos defii tiujn
 
 
 Ĉapitro Sep
@@ -3544,7 +3516,7 @@ jungilaro de la Segĉevalo.
 
 La Mistera Urbo
 
-ĈAPITRO 8
+ĈAPITRO
 
 Ili sidis sur la
 
@@ -3575,9 +3547,7 @@ konsistas el kaŭĉuko!”
 
 tiom rapide de unu al la alia sen damaĝo.”
 
-“Estas nur konjekto,” deklaris la Sorĉisto, mal-
-
-vindante la litkovrilojn de sia korpo, “ĉar neniu el ni
+“Estas nur konjekto,” deklaris la Sorĉisto, malvindante la litkovrilojn de sia korpo, “ĉar neniu el ni
 
 restis sufiĉe longe sur la montoj por trovi el kio ili
 
@@ -3713,9 +3683,7 @@ aspektojn.”
 
 nur blinda strigo povus dubi ke mi estas la
 
-Miksĉifona Knabino.” Dirinte tion ŝi saltis trans-
-
-kapiĝe de la Vuzo kaj, alteriĝinte sur siaj piedoj, ŝi
+Miksĉifona Knabino.” Dirinte tion ŝi saltis transkapiĝe de la Vuzo kaj, alteriĝinte sur siaj piedoj, ŝi
 
 komencis vigle ĉirkaŭdancadi.
 
@@ -3909,9 +3877,7 @@ ilin.”
 
 “Ĉu do ni ĉiuj devos retreniri?” demandis Trot.
 
-“Kompreneble ne!” respondis Buton-Brilo mal-
-
-estime. “Kiam ajn estas problemo, troveblas solvo, se
+“Kompreneble ne!” respondis Buton-Brilo malestime. “Kiam ajn estas problemo, troveblas solvo, se
 
 oni sufiĉe serĉas.”
 
@@ -3958,9 +3924,7 @@ la kardojn,” deklaris Doroteo.
 
 respondo. Poste si diris:
 
-“Ne rigardu min, stultuloj, rigardu la lit-
-
-kovraĵojn.”
+“Ne rigardu min, stultuloj, rigardu la litkovraĵojn.”
 
 La vizaĝo de la Sorĉisto tuj feliĉiĝis.
 
@@ -4146,9 +4110,7 @@ sur la herba altaĵeto.
 
 “Tre strange, ĉu ne?” demandis Buton-Brilo.
 
-“Devas ekzisti *iaspeca* rimedo por ke la homoj en-
-
-kaj eliru,” deklaris Doroteo. “Ĉu vi s’pozas ke ili
+“Devas ekzisti *iaspeca* rimedo por ke la homoj enkaj eliru,” deklaris Doroteo. “Ĉu vi s’pozas ke ili
 
 havas flugmaŝinojn, Sorĉisto?”
 
@@ -4194,11 +4156,9 @@ miregis.
 
 La Alta Koko-Lorum de Ti
 
-ĈAPITRO 9
+ĈAPITRO
 
-Kaj nun la Miks-
-
-ĉifona Knabino
+Kaj nun la Miksĉifona Knabino
 
 revenis dancante
 
@@ -4418,9 +4378,7 @@ la strangaformaj korpoj de la homoj, estante mallarĝaj
 
 La fenestroj estis tre similaj, tiel ke la domo havis
 
-vere nekutiman aspekton. Kiam ilia gvidisto mal-
-
-fermis la pordon en la barilo muzikoskatolo kaŝita en
+vere nekutiman aspekton. Kiam ilia gvidisto malfermis la pordon en la barilo muzikoskatolo kaŝita en
 
 la fosto komencis ludi, kaj la sono altiris la atenton
 
@@ -4974,7 +4932,7 @@ bedaŭri nenion kaj deziri nenion pli.”
 
 Toto Perdas Ion
 
-ĈAPITRO 10
+ĈAPITRO
 
 Dum kelka tempo
 
@@ -5262,9 +5220,7 @@ ni ĉiuj mi estas la plej bela.”
 
 La Mulo snufis kaj la Vuzo ridis; Toto perdis sian
 
-grumblon do li nur povis rigardi malestime la Seg-
-
-ĉevalon, kiu staris senmove. Sed la Leono streĉis sin
+grumblon do li nur povis rigardi malestime la Segĉevalon, kiu staris senmove. Sed la Leono streĉis sin
 
 kaj oscedis, dirante trankvile:
 
@@ -5326,7 +5282,7 @@ kiel ŝteli la tutan magion de Oz.”
 
 Buton-Brilo Perdas Sin
 
-ĈAPITRO 11
+ĈAPITRO
 
 L a M i k s ĉ i f o n a
 
@@ -5844,7 +5800,7 @@ sia antaŭtuko por dampi la bruon.
 
 La Carsuprulo de Herkuo
 
-ĈAPITRO 12
+ĈAPITRO
 
 Trot vekiĝis ĝuste
 
@@ -6522,7 +6478,7 @@ kaj direktis sin al la okcidentaj montoj.
 
 La Vero-Lageto
 
-ĈAPITRO 13
+ĈAPITRO
 
 Ŝajnas ke delonge
 
@@ -6925,7 +6881,7 @@ konsilon.
 
 La Malfeliĉa Pramisto
 
-ĈAPITRO 14
+ĈAPITRO
 
 Fo r l a s i n t e
 
@@ -7301,7 +7257,7 @@ branĉoj.
 
 La Granda Lavenda Urso
 
-ĈAPITRO 15
+ĈAPITRO
 
 E s t i s
 
@@ -7598,7 +7554,7 @@ siaj brilaj palruĝaj okuloj.
 
 La Malgranda Palruĝa Urso
 
-ĈAPITRO 16
+ĈAPITRO
 
 “Unu Persono kaj
 
@@ -8117,7 +8073,7 @@ kaj popigis la korkon adiaŭe.
 
 La Renkontiĝo
 
-ĈAPITRO 17
+ĈAPITRO
 
 Dum la Ranulo
 
@@ -8125,9 +8081,7 @@ k a j l i a g r u p o
 
 antaŭeniris el la
 
-okcidento, Doro-
-
-teo kaj ŝia grupo antaŭeniris el la oriento, do tiel
+okcidento, Doroteo kaj ŝia grupo antaŭeniris el la oriento, do tiel
 
 okazis ke la sekvan nokton ili ĉiuj kampis ĉe
 
@@ -8464,9 +8418,7 @@ kuniĝu kun la aliaj kaj proponu al ili nian
 
 protekton.”
 
-Eĉ la Lavendan Urson tamen mirigis kiam trans-
-
-grimpinte la monteton li trovis aliflanke la grupon de
+Eĉ la Lavendan Urson tamen mirigis kiam transgrimpinte la monteton li trovis aliflanke la grupon de
 
 kuriozaj bestoj kaj la homojn el la Smeralda Urbo.
 
@@ -8614,7 +8566,7 @@ la herbon kaj la arbojn kaj la arbustojn ĉirkaŭ ili.
 
 La Konferenco
 
-ĈAPITRO 18
+ĈAPITRO
 
 “Nu, nun,” diris
 
@@ -8941,7 +8893,7 @@ mi preskaŭ certas.”
 
 La Ŝufaristo Ugu
 
-ĈAPITRO 19
+ĈAPITRO
 
 La Ŝufaristo Ugu
 
@@ -9238,7 +9190,7 @@ renkonti ilin kaj venki ilian strebon konkeri lin.
 
 Pli da Surprizoj
 
-ĈAPITRO 20
+ĈAPITRO
 
 Tiun tutan unuan
 
@@ -9371,9 +9323,7 @@ respondis la Sorĉisto. “Se magio protektas ĝin, eĉ
 
 papera kastelo povas esti egale fortika kiel ŝtona. Tiu
 
-Ugu nepre estas ideplena persono, ĉar li agas mal-
-
-simile al aliaj homoj.”
+Ugu nepre estas ideplena persono, ĉar li agas malsimile al aliaj homoj.”
 
 “Jes; neniu alia ŝtelus nian karan Ozman,” ĝemis
 
@@ -9613,9 +9563,7 @@ Urso.
 
 Verŝajne la malgranda Palruĝa Urso freneziĝis.”
 
-“Eble,” vokis Ĉifoneroj, kiu rapide transkap-
-
-enigadis sin kvazaŭ radon ĉirkaŭ la tutan perpleksan
+“Eble,” vokis Ĉifoneroj, kiu rapide transkapenigadis sin kvazaŭ radon ĉirkaŭ la tutan perpleksan
 
 grupon, “Ozma estas nevidebla.”
 
@@ -9696,17 +9644,13 @@ devos diri al ni kie trovi ŝin.”
 
 Magio Kontraŭ Magio
 
-ĈAPITRO 21
+ĈAPITRO
 
 La Sorĉisto bone
 
-konsilis, do de-
+konsilis, do denove ili ekmarŝis
 
-nove ili ekmarŝis
-
-direkte al la mal-
-
-alta monto sur kies kresto estis konstruita la vimenaĵa
+direkte al la malalta monto sur kies kresto estis konstruita la vimenaĵa
 
 kastelo. Ili jam iom post iom grimpetadis la monton,
 
@@ -9741,9 +9685,7 @@ varmego estis tiom intensa ke ĝi reforpuŝis ilin.
 
 Knabino. “Mi tre facile ekbrulas.”
 
-“Nek por mi,” grumblis la Segĉevalo, trotante mal-
-
-antaŭ ilin.
+“Nek por mi,” grumblis la Segĉevalo, trotante malantaŭ ilin.
 
 “Ankaŭ min forte obĵetigas fajro,” diris la Reĝo de
 
@@ -9755,9 +9697,7 @@ manoj.
 
 “Mi supozas ke la malsaĝa Ŝufaristo imagas ke tiu
 
-incendio haltigos nin,” komentis la Sorĉisto, mal-
-
-respekte ridetante pro Ugu. “Sed mi povas informi
+incendio haltigos nin,” komentis la Sorĉisto, malrespekte ridetante pro Ugu. “Sed mi povas informi
 
 vin ke temas pri simpla magia truko kiun la rabisto
 
@@ -9796,9 +9736,7 @@ antaŭenmarŝi.
 
 “Tio ridigis!” ridis Buton-Brilo.
 
-“Jes,” akordis la Sorĉisto, “ŝajnas strange ke mal-
-
-granda alumeto povas detrui tiom grandan fajran
+“Jes,” akordis la Sorĉisto, “ŝajnas strange ke malgranda alumeto povas detrui tiom grandan fajran
 
 cirklon, sed kiam Glinda inventis tiun trukon ŝi
 
@@ -10078,7 +10016,7 @@ kuraĝe eniris la loĝejon de la Ŝufaristo Ugu.
 
 En la Vimenaĵa Kastelo
 
-ĈAPITRO 22
+ĈAPITRO
 
 Tu j k i a m l a
 
@@ -10645,9 +10583,7 @@ diris Princino Doroteo.
 
 Miksĉifona Knabino, kaj tuj kiam ili obeis tiun peton
 
-ŝi malkroĉis sin de la lustro kaj falis kalkanojn-super-
-
-kape kaj tordante kaj turnante sin tre ekscite. Plump!
+ŝi malkroĉis sin de la lustro kaj falis kalkanojn-superkape kaj tordante kaj turnante sin tre ekscite. Plump!
 
 ŝi falis sur la kahelitan plankon kaj ili kuris al ŝi kaj
 
@@ -10656,15 +10592,13 @@ rulis ŝin kaj perfrape reĝustigis ŝian formon.
 
 Defio al la Ŝufaristo Ugu
 
-ĈAPITRO 23
+ĈAPITRO
 
 L a
 
 p r o k r a s t o
 
-kaŭzita de Ĉifon-
-
-eroj malebligis ke
+kaŭzita de Ĉifoneroj malebligis ke
 
 iu el ili kuru al la
 
@@ -10738,9 +10672,7 @@ La Perdita Princino de Oz
 
 kontraŭ la sorĉo, murmurante magiajn vortojn kaj
 
-farante magiajn gestojn per siaj manoj. Kaj unu-
-
-maniere li sukcesis defii la celon de Doroteo, ĉar
+farante magiajn gestojn per siaj manoj. Kaj unumaniere li sukcesis defii la celon de Doroteo, ĉar
 
 kvankam lia formo baldaŭ fariĝis tiu de griza
 
@@ -10899,9 +10831,7 @@ multe surprizite.
 
 “Unu nokton kiam ĉiuj aliaj estis dormantaj
 
-escepte de Ĉifoneroj, kaj ŝi foriris ĉasadi lun-
-
-brilerojn.”
+escepte de Ĉifoneroj, kaj ŝi foriris ĉasadi lunbrilerojn.”
 
 “Nu,” komentis la Sorĉisto, “via trovo certe
 
@@ -10974,9 +10904,7 @@ angulo de la Lando de la Kveluloj.”
 
 “Tute bone,” diris Doroteo. “Ne maltrankvilu,
 
-Kuknjo, ĉar la Birdotimigilo kaj la Stana Ligno-
-
-hakisto estas en tiu parto de la lando, serĉante
+Kuknjo, ĉar la Birdotimigilo kaj la Stana Lignohakisto estas en tiu parto de la lando, serĉante
 
 Ozman, kaj ili nepre trovos vian telerlavujon.”
 
@@ -11008,7 +10936,7 @@ en eron de gudro.”
 
 La Malgranda Palruĝa Urso Parolas Veron
 
-ĈAPITRO 24
+ĈAPITRO
 
 D u m
 
@@ -11020,9 +10948,7 @@ staris rigardante la
 
 nigran makulon
 
-sur la kanvaso de la Magia Bildo, tute ne kompren-
-
-ante kion ĝi signifas.
+sur la kanvaso de la Magia Bildo, tute ne komprenante kion ĝi signifas.
 
 “Eble ni demandu la malgrandan Palruĝan Urson
 
@@ -11043,9 +10969,7 @@ ne eraros denove.”
 
 Ursoj.
 
-“Ni aŭdu kion li diros,” diris Doroteo. “Ne mal-
-
-utilos demandi al la Palruĝa Urso kie estas Ozma.”
+“Ni aŭdu kion li diros,” diris Doroteo. “Ne malutilos demandi al la Palruĝa Urso kie estas Ozma.”
 
 “Mi rifuzas permesi ke vi demandu al li,” deklaris
 
@@ -11124,13 +11048,9 @@ aferon tre pensoplene.
 
 li baldaŭ demandis.
 
-“En la maldekstra poŝo de la jako,” diris la mal-
+“En la maldekstra poŝo de la jako,” diris la malgranda Palruĝa Urso.
 
-granda Palruĝa Urso.
-
-“La Palruĝa freneziĝis!” kriis Buton-Brilo, rigard-
-
-ante forte la malgrandan urson sur la genuo de la
+“La Palruĝa freneziĝis!” kriis Buton-Brilo, rigardante forte la malgrandan urson sur la genuo de la
 
 granda urso.
 
@@ -11202,9 +11122,7 @@ voĉo diris: “Dankon, amikoj!” kaj antaŭ ili staris ilia
 
 bela knabina Reganto, Ozma de Oz.
 
-Ĝoje kriante Doroteo rapidis antaŭen kaj ĉirkaŭ-
-
-brakumis ŝin. Ĉifoneroj gaje transkapeniĝis multefoje
+Ĝoje kriante Doroteo rapidis antaŭen kaj ĉirkaŭbrakumis ŝin. Ĉifoneroj gaje transkapeniĝis multefoje
 
 tra la tuta ĉambro. Buton-Brilo fajfis pro mirego. La
 
@@ -11227,7 +11145,7 @@ Lavenda Urso plilaŭtiĝis kaj li diris per triumfa tono:
 
 Ozma de Oz
 
-ĈAPITRO 25
+ĈAPITRO
 
 “Estas strange,”
 
@@ -11235,9 +11153,7 @@ diris Toto, starante
 
 antaŭ sia amiko la
 
-Leono kaj sving-
-
-ante sian voston, “mi fine retrovis mian grumblon!
+Leono kaj svingante sian voston, “mi fine retrovis mian grumblon!
 
 Mi certas nun ke la kruela magiisto ŝtelis ĝin.”
 
@@ -11478,9 +11394,7 @@ ol skuatajn poŝtukojn kaj standardojn dum la tuta
 
 triumfa marŝado de la lago al la portaloj de la urbo.
 
-Kaj tie ŝi renkontis ankoraŭ pli grandan homa-
-
-mason, ĉar ĉiuj loĝantoj de la Smeralda Urbo elvenis
+Kaj tie ŝi renkontis ankoraŭ pli grandan homamason, ĉar ĉiuj loĝantoj de la Smeralda Urbo elvenis
 
 por bonvenigi ŝian revenon kaj pluraj bandoj ludis
 
@@ -11531,9 +11445,7 @@ honoris, kio multe plezurigis la Reĝon de la Ursoj.
 
 La Ranulo rapide fariĝis favorato en la Smeralda
 
-Urbo kaj la Vilulo kaj Tiktoko kaj Joĉjo Kukurbo-
-
-kapo, kiuj jam revenis de sia serĉado, tre ĝentilis al
+Urbo kaj la Vilulo kaj Tiktoko kaj Joĉjo Kukurbokapo, kiuj jam revenis de sia serĉado, tre ĝentilis al
 
 la granda rano kaj certigis ke li sentas sin ĉehejme.
 
@@ -11554,15 +11466,13 @@ mi estos tute feliĉa sen ĝi.”
 
 Doroteo Pardonas
 
-ĈAPITRO 26
+ĈAPITRO
 
 La griza kolombo
 
 kiu iam estis la
 
-Ŝufaristo Ugu sid-
-
-is sur sia arbo en
+Ŝufaristo Ugu sidis sur sia arbo en
 
 la distanca Lando de la Kveluloj kaj malfeliĉis,
 
@@ -11697,9 +11607,7 @@ koloro kaj brilantaj ornamaĵoj ne malebligos ĝian
 
 utilecon.”
 
-Do ili foriris kaj kunprenis la juvelitan teler-
-
-lavujon. Kaj vaginte tra la lando dum unu aŭ du pliaj
+Do ili foriris kaj kunprenis la juvelitan telerlavujon. Kaj vaginte tra la lando dum unu aŭ du pliaj
 
 tagoj, ili informiĝis ke Ozma estas trovita. Tial ili tuj
 
@@ -11750,9 +11658,7 @@ al aliaj.”
 
 rigardante la birdon.
 
-“Mi *multe* bedaŭras,” deklaris Ugu. “Mi pripens-
-
-adis miajn misfarojn dumlonge, ĉar kolomboj havas
+“Mi *multe* bedaŭras,” deklaris Ugu. “Mi pripensadis miajn misfarojn dumlonge, ĉar kolomboj havas
 
 malmulton por fari krom pensadi, kaj min mirigas ke
 

@@ -10,25 +10,13 @@ ELEKTITAJ FABELOJ
 
 Fratoj Grimm
 
-ELEKTITAJ FABELOJ
 
 Kabe en 1906
-
-
-@omnibus.se
-
-·
-
-
-ELEKTITAJ FABELOJ
 
 
 Antaŭparolo de la tradukinto
 
 La patrujo de la fabelo estas la oriento; la nacia karaktero kaj maniero de la vivado de la orientaj popoloj estas la kaŭzo de la fakto, ke ankoraŭ hodiaŭ la verkado de fabeloj estas tie tre alte ŝatata. Longe oni opiniis erare, ke la fabelo venis en la okcidentajn landojn nur post la krucmilitoj; en la re-aleco oni trovas fabelojn jam ĉe la antikvaj popoloj (Plato ”La ringo de Gigas”). La unuaj kolektoj de fabeloj aperis en Ital-ujo ( en la deksesa jarcento — Straparola ” Tredeci piacevoli notti”; en la deksepa — Giambattista Basile ”Pentamerone”).
-
-
-ELEKTITAJ FABELOJ
 
 
 la vilaĝo Niederzwehrn, proksime de Cassel, kamparaninon, al kiu ni ŝuldas la plej belajn rakontojn de nia dua volumo. ŝi estis edzino de bestedukanto: ŝi estis ankoraŭ plena de vig-leco kaj ne havis pli ol kvindek jarojn. ŝi konservis bonege en sia memoro ĉiujn malnovajn legendojn kaj certiĝis, ke ĉi tiun kapablon posedas ne ĉiu kaj ke multaj ne povas ilin memori. ŝi rakontadis nerapide, sen ŝanceliĝo, kun grandega plezuro; se oni petis, ŝi ripetis la rakontojn sufiĉe malrapide, por ke oni povu skribi post ŝia diktado. Multajn el niaj fabeloj ni notis tiamaniere vorton post vorto. Tiuj, kiuj opinias, ke la tradicioj rapide malaperas kaj ke la malzorgo, kun kiu oni komunikas ilin, malhelpas longan daŭradon de ili, estus ek-konintaj sian eraron, aŭskultante nian rakontantinon: tiel ŝi konservis ĉiam la samajn esprimojn kaj zorgis ilian precize-con.”
@@ -40,9 +28,6 @@ La rakontoj de fratoj Grimm, kiel ĝenerale ĉiuj fabeloj, plej multe plaĉas al
 ĝojis kun la fidela Henriko pro la liberiĝo de la reĝo rano kaj ĉu ankaŭ de nia malgranda koro ne falis la tri feraj ringoj unu post la alia?
 
 ĉu ne indigniĝis nin la nesatigebla postulemo de la edzino de la fiŝkaptisto, al kiu ne sufiĉis eĉ la papa trono, kaj ĉu ni ne estis kontentaj, kiam ŝi devis ree loĝi en sia budo? ĉu ni ne tremis, ke la lupo trovos la kapridon, kiu sin kaŝis en la horloĝo kaj ĉu ni ne ridis la punitan sangavidan beston, ripe-tante ĝiajn plendojn:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Ah, en ventro kia pezo!
@@ -58,9 +43,6 @@ Sed ne sole la infanoj legas kun plezuro la Grimm’ajn fabelojn, ankaŭ la matu
 Varsovio, -a
 
 Kabe
-
-
-ELEKTITAJ FABELOJ
 
 
 La sep kapridoj
@@ -96,9 +78,6 @@ Sed ĉar la lupo metis sian nigran piedon en la fenestron, la infanoj rekonis ĝ
 ”Ni ne malfermos, nia patrino ne havas nigrajn piedojn, kiajn vi: vi estas la lupo.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La lupo kuris al bakisto kaj diris:
 
 ”Mi doloriĝis mian piedon, ŝmiru ĝin per pasto.”
@@ -125,9 +104,7 @@ La kapridoj ekkriis:
 
 La lupo metis la piedon en la fenestron. Kiam la kapridoj vidis, ke ĝi estas blanka, ili kredis ĉion, kion la lupo diris, kaj malfermis la pordon. Sed tiu, kiu eniris, estis la lupo. Ili ektimis kaj volis sin kaŝi. Unu saltis sub la tablon, dua en la liton, tria en la fornon, kvara en la kuirejon, kvina en la ŝrankon, sesa sub la lavujon, sepa en la keston de la horloĝo. Sed la lupo trovis ĉiujn kaj sen longaj konsideroj englutis ĉiujn unu post la alia; li ne trovis nur la plej junan, kiu sin kaŝis en la keston de la horloĝo. La lupo satmanĝis, foriris, kuŝiĝis sur verda herbaĵo sub arbo kaj ekdormis.
 
-Baldaŭ la kaprino revenis el la arbaro. Kion ŝi ekvidis! La pordo estis larĝe malfermita, la lavujo dispecigita, la kusenoj kaj la kovrilo estis eltiritaj el la lito. ŝi serĉis la infanojn, sed nenie trovis ilin. ŝi vokis ilin unu post la alia per la nomo, sed 7
-
-ELEKTITAJ FABELOJ
+Baldaŭ la kaprino revenis el la arbaro. Kion ŝi ekvidis! La pordo estis larĝe malfermita, la lavujo dispecigita, la kusenoj kaj la kovrilo estis eltiritaj el la lito. ŝi serĉis la infanojn, sed nenie trovis ilin. ŝi vokis ilin unu post la alia per la nomo, sed
 
 
 neniu respondis. Fine, kiam ŝi vokis la plej junan, eksonis delikata voĉo:
@@ -150,9 +127,7 @@ Granda estis la ĝojo! Ili karesis la amatan patrinon kaj dancis, kiel la tajlor
 
 La kapridoj rapide, rapide altrenis ŝtonojn kaj ŝovis ilin en la ventron de la lupo. La patrino senprokraste kunkudris ĝin; la lupo nenion sentis, eĉ ne moviĝis.
 
-Kiam la fripono fine satdormis, ĝi leviĝis, kaj ĉar la ŝtonoj kaŭzis al ĝi grandan soifon, ĝi ekiris al la puto: la ŝtonoj ru-liĝis kaj bruis en ĝia ventro. La lupo ekkriis: 8
-
-ELEKTITAJ FABELOJ
+Kiam la fripono fine satdormis, ĝi leviĝis, kaj ĉar la ŝtonoj kaŭzis al ĝi grandan soifon, ĝi ekiris al la puto: la ŝtonoj ru-liĝis kaj bruis en ĝia ventro. La lupo ekkriis:
 
 
 ”Oh, en ventro kia pezo,
@@ -168,16 +143,11 @@ i venis al la puto kaj kliniĝis al la akvo por trinki. La pe-zaj ŝtonoj entiri
 ”La lupo mortis! la lupo mortis” kaj pro ĝojo dancis ĉirkau la puto.
 
 
-ELEKTITAJ FABELOJ
-
-
 Reĝo rano
 
 aŭ fera Henriko
 
-En tempo jam de longe pasinta, kiam efikis ankoraŭ sor-
-
-ĉado, vivis reĝo. ĉiuj liaj filinoj estis belaj, sed la plej juna estis tiel bela, ke eĉ la suno, kiu ja vidis multon, miris, kiam
+En tempo jam de longe pasinta, kiam efikis ankoraŭ sorĉado, vivis reĝo. ĉiuj liaj filinoj estis belaj, sed la plej juna estis tiel bela, ke eĉ la suno, kiu ja vidis multon, miris, kiam
 
 ĝi rigardis ŝian vizagon. Proksime de la kastelo de la reĝo staris granda, malluma arbaro, kaj en la arbaro sub maljuna ti-lio estis puto. Se la tago estis tre varma, la princino iris en la arbaron kaj sidiĝis sur la rando de la malvarma puto, kaj se ŝi enuis, ŝi prenis oran globon, ĵetis supren kaj kaptis; tio estis ŝia plej amata ludo.
 
@@ -191,9 +161,7 @@ La princino ĉirkaŭrigardis, de kie venas la voĉo, fine ŝi ekvidis ranon, kie
 
 ”Trankviliĝu kaj ne ploru,” respondis la rano, ”mi ĝin trovos, sed kion mi ricevos, se mi redonos al vi la ludiIon?”
 
-”ĉion, kion vi deziros, kara rano,” ŝi diris, ”miajn vestojn, 10
-
-ELEKTITAJ FABELOJ
+”ĉion, kion vi deziros, kara rano,” ŝi diris, ”miajn vestojn,
 
 
 perlojn kaj multekostajn ŝtonojn, eĉ la oran kronon, kiun mi portas.”
@@ -217,9 +185,6 @@ Kion helpis al ĝi, ke ĝi kriis sian kvak kvak tiel laŭte, kiel ĝi povis! La 
 En la sekvinta tago, kiam la reĝa filino sidis kun ĉiuj korteganoj ĉe la tablo kaj manĝis el sia ora telereto, iu surrampis klak klak la marmoran ŝtuparon, kaj atinginte la supron, frapis la pordon kaj ekkriis:
 
 ”Princino plej juna, malfermu al mi!”
-
-
-ELEKTITAJ FABELOJ
 
 
 ŝi ekkuris por vidi, kiu estas ekstere; ŝi malfermis: jen sidas la rano.
@@ -261,16 +226,11 @@ La reĝo diris:
 La knabino ŝanĉeliĝis, ĝis fine la patro ordonis tion fari.
 
 
-ELEKTITAJ FABELOJ
-
-
 Kiam la rano estis sur la seĝo, ĝi volis leviĝi sur la tablon, kaj kiam ĝi jam estis tie, ĝi diris:
 
 ”Nun alŝovu al mi vian oran telereton, ni kune manĝos.”
 
-ŝi faris tion, sed ĉiu povis vidi, ke nevolonte. La rano man-
-
-ĝis kun apetito, al ŝi preskaŭ ĉiu peco haltis en la gorĝo. Fine
+ŝi faris tion, sed ĉiu povis vidi, ke nevolonte. La rano manĝis kun apetito, al ŝi preskaŭ ĉiu peco haltis en la gorĝo. Fine
 
 ĝi diris:
 
@@ -299,9 +259,6 @@ Antaŭ la pordo jam staris kaleŝo, al kiu estis jungitaj ok blankaj ĉevaloj ku
 Malantaŭe staris la servisto de la juna reĝo — la fidela Henriko.
 
 
-ELEKTITAJ FABELOJ
-
-
 La fidela Henriko tiel ĉagreniĝis, kiam lian sinjoron oni sorĉis rano, ke li ĉirkaŭis sian koron per tri feraj ringegoj, por ke ĝi ne krevu pro doloro kaj malĝojo.
 
 Henriko helpis la paron sidigi en la kaleŝon; li mem stariĝis malantaŭe kaj ĝoje rigardis la savitan sinjoron. Post iom da tempo la reĝo ekaŭdis post si krakon, kvazaŭ io rompiĝis. Li rigardis posten:
@@ -319,9 +276,6 @@ Kiam vi en puto restis
 Kaj vi tie rano estis.”
 
 Ankoraŭ duan kaj trian fojon io ekkrakis dum la vojaĝo, kaj la reĝa filo pensis, ke la kaleŝo rompiĝis, sed tio estis la ringegoj, kiuj defalis de la koro de fidela Henriko, ĉar lia sinjoro estis savita kaj feliĉa.
-
-
-ELEKTITAJ FABELOJ
 
 
 Feliĉa Joĉjo
@@ -350,9 +304,7 @@ La rajdanto, aŭdinte tion, haltis kaj ekkriis:
 
 ”Tre volonte,” diris Joĉjo, ”sed mi avertas vin, ke vi treniĝos kun la ŝarĝo.”
 
-La rajdanto saltis de la ĉevalo, prenis la oron, helpis Joĉjon sidiĝi, donis al li la kondukilojn en la manojn kaj diris: 15
-
-ELEKTITAJ FABELOJ
+La rajdanto saltis de la ĉevalo, prenis la oron, helpis Joĉjon sidiĝi, donis al li la kondukilojn en la manojn kaj diris:
 
 
 ”Se vi volos rajdi rapide, klaku per la lango kaj kriu hop hop!”
@@ -369,15 +321,11 @@ La ĉevalo estus forkurinta, sed feliĉe kaptis ĝin kamparano, kiu sur la sama 
 
 Joĉjo konsentis kun ĝojo. La kamparano saltis sur la ĉevalon kaj forrajdis.
 
-Joĉjo trankvile pelis la bovinon antaŭ si kaj ĝojis pro la feli-
-
-ĉa interŝanĝo.
+Joĉjo trankvile pelis la bovinon antaŭ si kaj ĝojis pro la feliĉa interŝanĝo.
 
 ”Se mi havos nur pecon da pano, kaj ĝi ne mankos ja al mi, mi povos ĉiam, kiam mi deziros, manĝi ĝin kun butero kaj fromaĝo; kiam mi soifos, mi melkos mian bovinon kaj trs lakton. Kion plu, mia Joĉjo, vi deziras?”
 
-Veninte al trinkejo, li haltis, manĝis ĉiujn provizojn, kiujn li havis por tag- kaj vespermanĝo kaj plena de ĝojo trinkis duonglason da biero por la lastaj moneroj. Poste li ekpelis la 16
-
-ELEKTITAJ FABELOJ
+Veninte al trinkejo, li haltis, manĝis ĉiujn provizojn, kiujn li havis por tag- kaj vespermanĝo kaj plena de ĝojo trinkis duonglason da biero por la lastaj moneroj. Poste li ekpelis la
 
 
 bovinon al la kamparo, kie loĝis lia patrino. Ju pli proksimiĝis la tagmezo, des pli forte bruliĝis la suno. Unu mejlon ankoraŭ la loko estis dezerta. Estis tiel varmege, ke la lango de Joĉjo algluiĝis pro soifo al la palato.
@@ -398,9 +346,7 @@ Joĉjo rakontis la tutan aventuron. La buĉisto donis al li sian botelon kaj dir
 
 ”Dio rekompencu vian bonan koron” diris Joĉjo, donis al li la bovinon kaj prenis de la puŝveturilo la porkon, liginte ĝin per ŝnuro.
 
-Joĉjo daŭriĝis la vojon kaj pensis, kiel ĉio fariĝas laŭ lia volo; se io malagrabla okazis, tuj ĝi estis forigata. Post iom da tempo al li aliĝis junulo, kiu portis belan, blankan anseron 17
-
-ELEKTITAJ FABELOJ
+Joĉjo daŭriĝis la vojon kaj pensis, kiel ĉio fariĝas laŭ lia volo; se io malagrabla okazis, tuj ĝi estis forigata. Post iom da tempo al li aliĝis junulo, kiu portis belan, blankan anseron
 
 
 sub la brako. Ili interparolis, kaj Joĉjo rakontis pri sia feliĉo kaj siaj profitaj interŝangoj. La knabo diris, ke li portas la anseron al baptofesto. ”Levu ĝin,” daŭriĝis li kaj prenis la anseron per la flugiloj, ”kiel peza ĝi estas, oni ĝin grasigis dum ok semajnoj. Kiu manĝos la rostaĵon, al tiu la graso fluos sur la mentono.”
@@ -421,9 +367,7 @@ Li prenis la ŝnuron en la manon kaj ekpelis rapide la porkon sur flankan vojeto
 
 ”Bone pripensinte,” li diris al si mem, ”mi vidas, ke mi gaj-nis per la interŝango: unue mi havos bonan rostaĵon, poste multe da graso, kiu gutos kaj sufiĉos por pano dum kvaron-jaro, fine belajn blankajn plumojn, per kiuj mi remburos kusenon. Komforta estos la dormado! Kiel ĝojos la patrino.”
 
-Li preterpasis la lastan kamparon. Tie li renkontis akrigis-ton, kiu kantis turnante sian ilon: 18
-
-ELEKTITAJ FABELOJ
+Li preterpasis la lastan kamparon. Tie li renkontis akrigis-ton, kiu kantis turnante sian ilon:
 
 
 Akrigas bonege mi ĉiun tranĉilon, Rapide, rapide mi turnas la ilon!
@@ -462,9 +406,7 @@ Joĉjo haltis kaj rigardis la laboron; fine li ekparolis:
 
 Li donis la anseron al la akrigisto kaj ricevis la akrigilon.
 
-”Nu,” diris la ruzulo kaj levis ordinaran ŝtonon, kuŝantan 19
-
-ELEKTITAJ FABELOJ
+”Nu,” diris la ruzulo kaj levis ordinaran ŝtonon, kuŝantan
 
 
 apud li, ”jen prenu ankaŭ ĉi tiun bonan ŝtonon, sur kiu vi povos bone forĝi, vi rektigos sur ĝi kurbajn najlojn. Prenu ĝin kaj gardu bone.”
@@ -486,9 +428,6 @@ Joĉjo, vidinte tion, eksaltis pro ĝojo, ekgenuis kaj kun larmoj en la okuloj d
 Kun libera koro kaj sen iu ŝargo li iris hejmen kaj venis al la patrino kun malplenaj manoj.
 
 
-ELEKTITAJ FABELOJ
-
-
 Haĉjo kaj Grenjo
 
 Apud granda arbaro vivis malriĉa lignohakisto kun siaj edzino kaj du infanoj; la knabeto estis nomata Haĉjo, la knabino Grenjo. La lignohakisto ne havis multon por dividi kaj manĝi, kaj foje, kiam en la lando ekregis granda kareco, eĉ la ĉiutaga pano ekmankis al li. Kiam li vespere meditis pri tio kaj pro ĉagreno sin turnadis en la lito, li ekĝemis kaj diris al sia edzino:
@@ -505,9 +444,7 @@ Apud granda arbaro vivis malriĉa lignohakisto kun siaj edzino kaj du infanoj; l
 
 ”Domaĝo, kia domaĝo, malfeliĉaj infanoj” diris la lignohakisto.
 
-Ankaŭ la infanoj ne povis ekdormi pro malsato kaj aŭdis, 21
-
-ELEKTITAJ FABELOJ
+Ankaŭ la infanoj ne povis ekdormi pro malsato kaj aŭdis,
 
 
 kion la duonpatrino diris al la patro. Grenjo ploris maldolĉajn larmojn kaj diris al Haĉjo:
@@ -539,9 +476,6 @@ Grenjo prenis la panon sub la antaŭtukon, ĉar Haĉjo havis la ŝtonojn en la p
 ”Malsaĝulo,” diris la duonpatrino, ”tio ne estas via kateto, tio estas la matena suno, kiu lumigas la kamentubon.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Sed Haĉjo ne adiaŭis la kateton, li ĵetis la blankajn ŝtonetojn ĉiam po unu sur la vojon.
 
 Kiam ili venis en la mezon de la arbaro, la patro diris:
@@ -571,9 +505,6 @@ Kiam leviĝis la plena luno, Haĉjo prenis Grenjon per la ma-no kaj iris serĉan
 ”Malbonaj infanoj, kial vi tiel longe dormis en la arbaro. Ni pensis, ke vi tute ne revenos”.
 
 
-ELEKTITAJ FABELOJ
-
-
 Sed la patro ĝojis, ĉar la konscienco riproĉis lin, ke li lasis ilin solaj.
 
 Post ne multe da tempo la mizero revenis en la domon kaj la infanoj nokte aŭdis, kiel la patrino parolas en la lito al la patro:
@@ -601,9 +532,6 @@ Frumatene la patrino venis kaj vekis la infanojn. Ili ricevis po peco da pano, s
 Dume Haĉjo ĵetis ĉiujn pecetojn unu post la alia sur la vojon.
 
 
-ELEKTITAJ FABELOJ
-
-
 La duonpatrino kondukis ilin ankoraŭ pli profunde en la arbaron, kie ili estis neniam dum sia tuta vivo. Ree oni ekbruliĝis grandan fajron, kaj la patrino diris:
 
 ”Sidu ĉi tie, infanoj, kaj kiam vi estos lacaj, vi iom dormu: ni iros en la arbaron haki lignon, kaj vespere, kiam ni finos la laboron, ni revenos kaj kunprenos vin.”
@@ -622,9 +550,7 @@ Estis jam la tria mateno de la tempo, kiam ili forlasis la patran domon. Ili ree
 
 Tagmeze ili ekvidis sur branĉo belan neĝeblankan birde-ton, kiu tiel bele kantis, ke la infanoj haltis kaj aŭskultis. Kiam
 
-ĝi finis, ĝi eksvingis la flugilojn kaj flugis antaŭ la infanoj. Ili iris post ĝi, ĝis ili venis al dometo. La birdo sidiĝis sur la tegmento. La infanoj proksimiĝis kaj rimarkis, ke la domo estas 25
-
-ELEKTITAJ FABELOJ
+ĝi finis, ĝi eksvingis la flugilojn kaj flugis antaŭ la infanoj. Ili iris post ĝi, ĝis ili venis al dometo. La birdo sidiĝis sur la tegmento. La infanoj proksimiĝis kaj rimarkis, ke la domo estas
 
 
 konstruita el pano kaj kovrita per kukoj; la fenestroj estis el hela sukero.
@@ -647,12 +573,7 @@ Kaj ili manĝis senĝene. Haĉjo, kiu trovis la tegmenton tre bongusta, deŝiris
 
 ŝi prenis la infanojn per la mano kaj kondukis ilin en la dometon. Bona manĝaĵo estis tie preparita: lakto, dolĉaj kukoj, pomoj kaj nuksoj. Poste oni sternis blankan litaĵon; Haĉjo kaj Grenjo kuŝiĝis en du litoj kaj pensis, ke ili estas en la ĉie-lo.
 
-La maljunulino nur ŝajnigis bonecon. ŝi estis malica sor-26
-
-ELEKTITAJ FABELOJ
-
-
-ĉistino, kiu embuskis al infanoj kaj konstruis la panan domon por logi ilin. ĉiun infanon, kiun ŝi kaptis, ŝi mortigis, kuiris kaj manĝis. Tio estis ŝia festo. La sorĉistinoj havas ruĝajn okulojn kaj ne povas vidi malproksimen, sed ili havas senteman flara-don, kiel la bestoj, kaj sentas, kiam la homoj venas. Kiam Ha-
+La maljunulino nur ŝajnigis bonecon. ŝi estis malica sorĉistino, kiu embuskis al infanoj kaj konstruis la panan domon por logi ilin. ĉiun infanon, kiun ŝi kaptis, ŝi mortigis, kuiris kaj manĝis. Tio estis ŝia festo. La sorĉistinoj havas ruĝajn okulojn kaj ne povas vidi malproksimen, sed ili havas senteman flara-don, kiel la bestoj, kaj sentas, kiam la homoj venas. Kiam Ha-
 
 ĉjo kaj Grenjo proksimiĝis, ŝi malice ekridis kaj diris:
 
@@ -678,12 +599,7 @@ Pasis kvar semajnoj, kaj Haĉjo ĉiam restis malgrasa; la maljunulino malpacienc
 
 ”Grenjo, Grenjo,” ŝi kriis, ”rapide alportu akvon, morgaŭ mi buĉos Haĉjon, ĉu li estos grasa aŭ ne.”
 
-Ah, kiel ĝemis la malfeliĉa fratineto, kiam ŝi devis porti ak-27
-
-ELEKTITAJ FABELOJ
-
-
-von, kaj kiel fluis la larmoj sur ŝiaj vangoj. ”Dio nia,” ploris ŝi,
+Ah, kiel ĝemis la malfeliĉa fratineto, kiam ŝi devis porti akvon, kaj kiel fluis la larmoj sur ŝiaj vangoj. ”Dio nia,” ploris ŝi,
 
 ”kial la sovaĝaj bestoj ne disŝiris nin en la arbaro! Ni estus mortintaj kune.”
 
@@ -709,12 +625,7 @@ Grenjo kuris rekte kiel sago al Haĉjo, malfermis la stalon kaj ekkriis:
 
 Haĉjo elsaltis kiel birdo el kaĝo, kiam oni malfermas al ĝi la pordon. Kiel ĝojis la infanoj, ĉirkaŭprenis kaj kisis unu la alian, kiel ili saltis! Nun ili ne bezonis timi, ili iris en la domon, kie en ĉiuj anguloj staris kestoj plenaj de perloj kaj multekostaj ŝtonoj.
 
-”Ili estas ankoraŭ pli belaj ol ŝtonetoj,” diris Haĉjo kaj ple-28
-
-ELEKTITAJ FABELOJ
-
-
-nigis siajn poŝojn. Ankaŭ Grenjo volis alporti ion hejmen kaj plenigis sian antaŭtukon.
+”Ili estas ankoraŭ pli belaj ol ŝtonetoj,” diris Haĉjo kaj plenigis siajn poŝojn. Ankaŭ Grenjo volis alporti ion hejmen kaj plenigis sian antaŭtukon.
 
 ”Sed nun ni iru for de ĉi tie por eliri el la sorĉarbaro.”
 
@@ -747,9 +658,6 @@ kaptu ĝin en sakon
 kaj el la felo faru jakon.
 
 
-ELEKTITAJ FABELOJ
-
-
 Neĝulino
 
 Tio okazis iam en la mezo de vintro. La neĝaj flokoj falis de la ĉielo kvazaŭ plumoj. Reĝino sidis ĉe fenestro, kiu havis nigran ebonan kadron, kaj kudris. ŝi levis la okulojn, ekrigardis la ĉielon kaj en la sama momento ŝi pikis sian fingron per la kudrilo. Tri sangaj gutoj falis sur la neĝon. La ruĝo tiel bele kontrastis la blankan neĝon, ke ŝi pensis:
@@ -771,9 +679,6 @@ Kiu en la lando estas la plej bela?”
 Tiam ŝi estis kontenta, ĉar ŝi sciis, ke la spegulo diras la veron.
 
 
-ELEKTITAJ FABELOJ
-
-
 Neĝulino kreskis kaj fariĝis pli kaj pli bela. Kiam ŝi estis sepjara, ŝi estis tiel bela, kiel la hela tago, pli bela ol la reĝino mem. Kiam ĉi tiu demandis foje sian spegulon:
 
 ”Speguleto mia, speguleto hela,
@@ -792,9 +697,7 @@ La reĝino ektimis kaj fariĝis flava kaj verda pro envio. De ĉi tiu momento ĉ
 
 ĝin antaŭ miaj okuloj. Mortigu ĝin kaj alportu al mi la pulmojn kaj la koron kiel pruvon de la plenumo de mia ordono.”
 
-La ĉasisto devis obei. Li forkondukis la princinon, streĉis la pafarkon kaj jam estis trapikonta la senkulpan koron de Ne-
-
-ĝulino, kiam ŝi ekploris kaj diris:
+La ĉasisto devis obei. Li forkondukis la princinon, streĉis la pafarkon kaj jam estis trapikonta la senkulpan koron de Neĝulino, kiam ŝi ekploris kaj diris:
 
 ”Kara ĉasisto, lasu al mi la vivon, mi forkuros en la sovaĝan arbaron kaj neniam revenos hejmen.”
 
@@ -804,16 +707,12 @@ La ĉasisto devis obei. Li forkondukis la princinon, streĉis la pafarkon kaj ja
 
 ”Baldaŭ disŝiros vin la sovaĝaj bestoj,” li pensis kaj tamen li sentis, kvazaŭ peza ŝtono defalis de lia koro, ke li ne devas mortigi ŝin. En la sama momento juna aprido kuris preter li.
 
-Li ĝin mortiĝis, elprenis la pulmojn kaj la koron kaj alportis 31
-
-ELEKTITAJ FABELOJ
+Li ĝin mortiĝis, elprenis la pulmojn kaj la koron kaj alportis
 
 
 ilin al la reĝino. La kuiristo devis kuiri ilin kun salo, kaj la malica virino manĝis ilin, pensante, ke ŝi manĝas la pulmojn kaj la koron de Neĝulino.
 
-La malfeliĉa infano restis tute sola en la arbaro. Teruro ekregis ŝin. ŝi rigardis la arbajn foliojn, kvazaŭ serĉante de ili konsilon. ŝi ekkuris inter pintaj ŝtonoj kaj dornoj, kaj la so-vaĝaj bestoj saltis preter ŝi, sed ne atakis ŝin. ŝi kuris tiel longe, kiel la piedoj povis porti ŝin. Noktiĝis. ŝi ekvidis malgrandan dometon kaj eniris por ripozi. En la dometo ĉio estis malgranda, sed tiel beleta kaj pura, ke ne eble estas tion priskri-bi. Tie staris tableto kovrita per blanka tuko kaj sur ĝi sep malgrandaj teleroj, ĉiu telereto kun sia forketo, krom tio sep tranĉiletoj kaj forketoj, sep malgrandaj glasoj. Apud la muro estis en vico sep litetoj, sur ĉiu estis sternita blanka tuko. Ne-
-
-ĝulino malsata kaj soifanta manĝis de ĉiu telereto iom da legomoj kaj da pano kaj trinkis el ĉiu glaso guton da vino, ĉar ŝi ne volis forpreni ĉion de unu. Poste, tre laca, ŝi kuŝiĝis sur liton; sed neniu taŭgis, unu estis tro longa, alia tro mallonga; fine la sepa estis bona, ŝi kuŝiĝis sur ĝin, alvokis la benon de Dio kaj ekdormis.
+La malfeliĉa infano restis tute sola en la arbaro. Teruro ekregis ŝin. ŝi rigardis la arbajn foliojn, kvazaŭ serĉante de ili konsilon. ŝi ekkuris inter pintaj ŝtonoj kaj dornoj, kaj la so-vaĝaj bestoj saltis preter ŝi, sed ne atakis ŝin. ŝi kuris tiel longe, kiel la piedoj povis porti ŝin. Noktiĝis. ŝi ekvidis malgrandan dometon kaj eniris por ripozi. En la dometo ĉio estis malgranda, sed tiel beleta kaj pura, ke ne eble estas tion priskri-bi. Tie staris tableto kovrita per blanka tuko kaj sur ĝi sep malgrandaj teleroj, ĉiu telereto kun sia forketo, krom tio sep tranĉiletoj kaj forketoj, sep malgrandaj glasoj. Apud la muro estis en vico sep litetoj, sur ĉiu estis sternita blanka tuko. Neĝulino malsata kaj soifanta manĝis de ĉiu telereto iom da legomoj kaj da pano kaj trinkis el ĉiu glaso guton da vino, ĉar ŝi ne volis forpreni ĉion de unu. Poste, tre laca, ŝi kuŝiĝis sur liton; sed neniu taŭgis, unu estis tro longa, alia tro mallonga; fine la sepa estis bona, ŝi kuŝiĝis sur ĝin, alvokis la benon de Dio kaj ekdormis.
 
 Kiam tute mallumiĝis, venis la mastroj de la dometo, sep nanoj, fosistoj de metaloj en la montoj. Ili eklumigis siajn sep kandelojn kaj en la hela lumo rimarkis, ke iu fremda estis ĉe ili, ĉar ne ĉio estis en ordo, kia ili ĝin lasis.
 
@@ -828,9 +727,6 @@ La dua:
 La tria:
 
 ”Kiu mordis de mia pano?”
-
-
-ELEKTITAJ FABELOJ
 
 
 La kvara:
@@ -871,12 +767,7 @@ Matene Neĝulino vekiĝis kaj, ekvidinte la sep nanojn, ektimis. Sed ili amike d
 
 ĝis fine ŝi trovis ĉi tiun dometon. La nanoj diris al ŝi:
 
-”Se vi mastrumos en nia domo, kuiros, lavos, kudros, tri-33
-
-ELEKTITAJ FABELOJ
-
-
-kos, zorgos pri ordo kaj pureco, vi povas resti ĉe ni, kaj nenio al vi mankos.”
+”Se vi mastrumos en nia domo, kuiros, lavos, kudros, trikos, zorgos pri ordo kaj pureco, vi povas resti ĉe ni, kaj nenio al vi mankos.”
 
 ”Bone, tre volonte” respondis Neĝulino kaj restis ĉe ili. ŝi mastrumis kaj zorgis pri la ordo en la domo; la nanoj iris ĉiumatene en la montojn kaj serĉis oron, vespere ili revenis, kaj la manĝaĵo devis esti preta. La tutan tagon la knabino estis sola, la bonaj nanoj avertis ŝin kaj ĉiam diris:
 
@@ -900,12 +791,7 @@ La reĝino ektimis, ĉar ŝi sciis, ke la spegulo neniam menso-gas.
 
 ŝi komprenis, ke la ĉasisto trompis ŝin kaj ke Neĝulino ankoraŭ vivas. De tiu momento ŝi pensis kaj pensis senĉese, kiel pereigi Neĝulinon, ĉar dum ŝi ne estis plej bela en la lando, la envio ne lasis ŝin trankvila.
 
-Fine ŝi ion elpensis. ŝi koloriĝis sian vizaĝon kaj vestis sin kiel maljuna butikistino. ŝi fariĝis tute ne rekonebla. Alifor-34
-
-ELEKTITAJ FABELOJ
-
-
-migita tiamaniere ŝi iris trans la sep montojn al la sep nanoj, frapis la pordon kaj ekkriis:
+Fine ŝi ion elpensis. ŝi koloriĝis sian vizaĝon kaj vestis sin kiel maljuna butikistino. ŝi fariĝis tute ne rekonebla. Aliformigita tiamaniere ŝi iris trans la sep montojn al la sep nanoj, frapis la pordon kaj ekkriis:
 
 ”Bela komercaĵo malkara, malkara!” Neĝulino elrigardis tra la fenestro kaj diris:
 
@@ -934,9 +820,6 @@ La malbona virino, reveninte hejmen, iris al la spegulo kaj demandis:
 ”Speguleto mia, speguleto hela,
 
 Kiu en la lando estas la plej bela?”
-
-
-ELEKTITAJ FABELOJ
 
 
 La spegulo respondis kiel ordinare:
@@ -969,9 +852,7 @@ La kompatinda Neĝulino senpripense permesis. Apenaŭ la sorĉistino eniĝis la 
 
 Feliĉe jam vesperiĝis kaj la nanoj revenis hejmen.
 
-Ekvidinte senvivan Neĝulinon sur la planko, ili tuj eksus-pektis la reĝinon. Ili komencis serĉi kaj trovis la venenan kombilon. Apenaŭ ili eltiris ĝin, Neĝulino rekonsciiĝis kaj 36
-
-ELEKTITAJ FABELOJ
+Ekvidinte senvivan Neĝulinon sur la planko, ili tuj eksus-pektis la reĝinon. Ili komencis serĉi kaj trovis la venenan kombilon. Apenaŭ ili eltiris ĝin, Neĝulino rekonsciiĝis kaj
 
 
 rakontis, kio okazis. Ili ree avertis ŝin, ke ŝi estu singarda kaj malfermu la pordon al neniu.
@@ -1005,9 +886,6 @@ Kiam la pomo estis preta, la reĝino alivestis sin kiel kamparanino kaj iris tra
 ”ĉu vi timas venenon?” diris la maljunulino, ”rigardu, mi distranĉos la pomon; la ruĝan vangon vi manĝos, la blankan mi.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La pomo estis tiel artifike farita, ke nur la ruĝa parto estis venena.
 
 Neĝulino rigardis la belan pomon kaj vidante, ke la kamparanino manĝas, ne povis sin deteni, etendis la manon kaj prenis la venenan parton. Sed apenaŭ ŝi demordis peceton, ŝi falis senviva. La reĝino kruele rigardis ŝin, laŭte ridis kaj diris:
@@ -1026,15 +904,11 @@ Kiu en la lando estas la plej bela?”
 
 Nur tiam ŝia enviema koro ĝuis trankvilon, se enviema ko-ro povas tion ĝui.
 
-La nanoj, reveninte vespere hejmen, trovis Neĝulinon ku-
-
-ŝanta sur la planko. Neniu spiro eliĝis el ŝia buŝo, ŝi estis senviva. Ili levis ŝin, serĉis ĉe ŝi ion venenan, mallaĉis ŝin, kombis ŝiajn harojn, lavis ilin en akvo kaj vino, sed vane. La amata infano estis kaj restis senviva.
+La nanoj, reveninte vespere hejmen, trovis Neĝulinon kuŝanta sur la planko. Neniu spiro eliĝis el ŝia buŝo, ŝi estis senviva. Ili levis ŝin, serĉis ĉe ŝi ion venenan, mallaĉis ŝin, kombis ŝiajn harojn, lavis ilin en akvo kaj vino, sed vane. La amata infano estis kaj restis senviva.
 
 Ili metis ŝin en ĉerkon, ĉiuj sidiĝis apud ŝi kaj ploris ŝin, ploris dum tri tagoj. Ili volis entombigi ŝin, sed ŝi estis ankoraŭ freŝa, kiel vivanta homo, kaj ŝiaj vangoj estis ruĝaj, kiel antaŭe. Tiam ili diris:
 
-”Ni ne povas kovri ŝin per tero” kaj ili veniĝis vitran ĉerkon, en kiu oni povis vidi ŝin de ĉiuj flankoj, metis ŝin tien kaj skribis ŝian nomon per oraj literoj, kaj ke ŝi estis princino. La 38
-
-ELEKTITAJ FABELOJ
+”Ni ne povas kovri ŝin per tero” kaj ili veniĝis vitran ĉerkon, en kiu oni povis vidi ŝin de ĉiuj flankoj, metis ŝin tien kaj skribis ŝian nomon per oraj literoj, kaj ke ŝi estis princino. La
 
 
 ĉerkon ili metis sur monton kaj unu el ili ĉiam restis tie kaj gardis ĝin. Bestoj venis kaj ploris Neĝulinon, strigo, poste korvo, fine kolombo.
@@ -1066,9 +940,6 @@ Neĝulino konsentis kaj iris kun li. La geedziĝa festo estis luksa kaj belega.
 Oni invitis ankaŭ la sendian duonpatrinon de Neĝulino.
 
 
-ELEKTITAJ FABELOJ
-
-
 Surmetinte belan tualeton, la reĝino stariĝis antaŭ la spegulo kaj demandis:
 
 ”Speguleto mia, speguleto hela,
@@ -1084,9 +955,6 @@ La malbona virino laŭte malbenis kaj tiel ektimis, ke ŝi ne povis trankviliĝi
 Kiam ŝi venis, ŝi rekonis Neĝulinon kaj pro timo kaj teruro ne povis moviĝi. Sur flamantaj karboj jam estis metitaj feraj ŝuoj. Oni alportis ilin antaŭ la reĝinon kaj ŝi devis surmeti ilin kaj danci en la ruĝebrulantaj ŝuoj, ĝis ŝi falis senviva.
 
 
-ELEKTITAJ FABELOJ
-
-
 La ora birdo
 
 Estis antaŭ jaroj reĝo. Li havis malantaŭ la palaco ĝardenon, kaj en ĝi arbon, kiu havis orajn pomojn. Kiam la pomoj maturiĝis, oni kalkulis ilin; sed tuj en la posta tago unu mankis. Oni raportis pri tio al la reĝo, kaj li ordonis starigi ĉiunokte gardistojn sub la arbo.
@@ -1097,9 +965,7 @@ En la posta nokto staris garde la dua filo, sed li ne pli bone sukcesis: kiam so
 
 Venis la vico de la tria filo, sed la patro ne fidis al li kaj pensis, ke li estos ankoraŭ malpIi sukcesa ol la fratoj; tamen fine li donis sian permeson.
 
-La junulo ekkuŝis sub la arbo kaj zorge forpeladis de si la dormon. Kiam sonoris la dekdua horo, io ekbruis en la aero; en la lumo de la luno li vidis flugantan birdon, kies ora plumaro brile radiis. La birdo malleviĝis sur la arbon kaj ĝuste deŝiris unu pomon, kiam la knabo sendis sagon en ĝin. La birdo forflugis, sed la sago trafis la plumaron, kaj ora plumo falis teren. La junulo levis ĝin, alportis ĝin matene al la reĝo kaj rakontis, kion li vidis nokte. La reĝo kunvokis la konsi-listaron, kaj ĉiu certigis, ke tia plumo valoras pli multe ol la 41
-
-ELEKTITAJ FABELOJ
+La junulo ekkuŝis sub la arbo kaj zorge forpeladis de si la dormon. Kiam sonoris la dekdua horo, io ekbruis en la aero; en la lumo de la luno li vidis flugantan birdon, kies ora plumaro brile radiis. La birdo malleviĝis sur la arbon kaj ĝuste deŝiris unu pomon, kiam la knabo sendis sagon en ĝin. La birdo forflugis, sed la sago trafis la plumaron, kaj ora plumo falis teren. La junulo levis ĝin, alportis ĝin matene al la reĝo kaj rakontis, kion li vidis nokte. La reĝo kunvokis la konsi-listaron, kaj ĉiu certigis, ke tia plumo valoras pli multe ol la
 
 
 tuta regno. ”Se la plumo estas tiel multekosta, unu estas por mi nenio, mi devas havi la tutan birdon.”
@@ -1124,9 +990,7 @@ Kiam pasis iom da tempo kaj la plej aĝa filo ne revenis hejmen, la dua ekiris s
 
 Ree pasis iom da tempo. La plej juna princo volis sekvi la fratojn kaj serĉi fortunon, sed la patro ne permesis:
 
-”Vane li irus; certe li ne trovos la oran birdon, se la pIi aĝaj 42
-
-ELEKTITAJ FABELOJ
+”Vane li irus; certe li ne trovos la oran birdon, se la pIi aĝaj
 
 
 ne sukcesis. Se io malfeliĉa okazos al li, li ne scios kion fari.
@@ -1149,9 +1013,7 @@ Post tiuj ĉi vortoj la vulpo ree etendis la voston, kaj la reĝa filo sidiĝis 
 
 la haroj fajfis en la vento.
 
-Kiam li atingis la kastelon, li trovis ĉion tiel, kiel rakontis la vulpo. La reĝa filo venis en ĉambron, kie la ora birdo sidis en ligna kaĝo, kaj apude estis ora kaĝo; la tri oraj pomoj kuŝis sur la planko. La junulo pensis, ke ridinde estus lasi la belan 43
-
-ELEKTITAJ FABELOJ
+Kiam li atingis la kastelon, li trovis ĉion tiel, kiel rakontis la vulpo. La reĝa filo venis en ĉambron, kie la ora birdo sidis en ligna kaĝo, kaj apude estis ora kaĝo; la tri oraj pomoj kuŝis sur la planko. La junulo pensis, ke ridinde estus lasi la belan
 
 
 birdon en la malbela kaĝo, malfermis la pordon, prenis la birdon kaj metis en la oran.
@@ -1168,12 +1030,7 @@ Li venis en la stalon, kie la ora ĉevalo staris; sed kiam li estis metonta sur 
 
 ”Mi ofendos la belan beston, se mi ne metos sur ĝin la oran selon, kvazaŭ kreitan por ĝi.”
 
-Sed apenaŭ la ora selo ektuŝis la ĉevalon, la besto laŭte ekblekis. La servistoj vekiĝis, kaptis la junulon kaj ĵetis lin en malliberejon. En la posta tago la juĝo kondamnis lin al mor-44
-
-ELEKTITAJ FABELOJ
-
-
-to, sed la reĝo promesis donaci al li la vivon kaj aldone la oran ĉevalon, se li forrabos la princinon el la ora kastelo.
+Sed apenaŭ la ora selo ektuŝis la ĉevalon, la besto laŭte ekblekis. La servistoj vekiĝis, kaptis la junulon kaj ĵetis lin en malliberejon. En la posta tago la juĝo kondamnis lin al morto, sed la reĝo promesis donaci al li la vivon kaj aldone la oran ĉevalon, se li forrabos la princinon el la ora kastelo.
 
 Kun peza koro ekiris la junulo, sed feliĉe li baldaŭ renkontis la fidelan vulpon.
 
@@ -1193,9 +1050,7 @@ En la posta tago la reĝo diris:
 
 En la daŭro de ok tagoj la laboro devas esti farata. Se vi sukcesos, vi rekompence ricevos mian filinon.”
 
-La princo dum sep tagoj fosis kaj ŝovelis seninterrompe, 45
-
-ELEKTITAJ FABELOJ
+La princo dum sep tagoj fosis kaj ŝovelis seninterrompe,
 
 
 sed post sep tagoj li vidis, ke la rezultato estas nula; li malĝojis kaj malesperis. La sepan vesperon aperis la vulpo kaj diris:
@@ -1218,9 +1073,7 @@ Granda ĝojo ekregos tie, oni volonte donos al vi la oran ĉevalon. Kiam oni ĝi
 
 ”Nun mi helpos vin akiri la oran birdon. Kiam vi estos proksime de la kastelo, kie estas la ora birdo, igu la princinon malsupreniri de la ĉevalo, mi ŝin gardos. Poste rajdu sur la ora ĉevalo en la kastelan korton. ĉiuj ekgojos, vidante vin, kaj oni alportos al vi la oran birdon. Kiam vi havos la kaĝon en la manoj, tuj galopu ree al ni kaj prenu la princinon.”
 
-ĉio bone sukcesis, kaj kiam la princo estis revenonta hejmen kun siaj trezoroj, la vulpo diris: 46
-
-ELEKTITAJ FABELOJ
+ĉio bone sukcesis, kaj kiam la princo estis revenonta hejmen kun siaj trezoroj, la vulpo diris:
 
 
 ”Nun vi devas rekompenci mian helpon.”
@@ -1251,9 +1104,7 @@ Agrable estis tie kaj malvarmete; la fratoj do diris:
 
 ”Ni ripozu iom ĉe la puto, ni trinku kaj manĝu!”
 
-Li konsentis kaj dum la interparolado li forgesis la averton, 47
-
-ELEKTITAJ FABELOJ
+Li konsentis kaj dum la interparolado li forgesis la averton,
 
 
 sidiĝis sur la randon, ne suspektante perfidon. La fratoj en-puŝis lin en la puton, prenis la princinon, la ĉevalon kaj la birdon kaj ekiris hejmen.
@@ -1282,9 +1133,7 @@ La princino respondis:
 
 ŝi rakontis ĉion, kio okazis, kvankam la du fratoj estis mi-nacintaj mortigi ŝin, se ŝi malkaŝos ilian perfidon.
 
-La reĝo kunvokis ĉiujn, kiuj estis en la kastelo; venis ankaŭ 48
-
-ELEKTITAJ FABELOJ
+La reĝo kunvokis ĉiujn, kiuj estis en la kastelo; venis ankaŭ
 
 
 la junulo, kiel malriĉulo en ĉifonoj, sed la princino tuj rekonis lin kaj saltis al lia brusto. La sendiaj fratoj estis kaptitaj kaj kondamnitaj al morto, kaj la plej juna princo edziĝis kun la bela virgulino kaj estis proklamita heredonto de la reĝo.
@@ -1294,9 +1143,6 @@ Kaj la malfeliĉa vulpo? Longe, longe post ĉi tiuj okazoj la princo foje iris e
 ”Vi posedas nun ĉion, kion vi deziris, sed mia malfeliĉo ne havas finon; sed se vi volos, vi povos min savi.”
 
 Kaj ĝi ree petegis, ke li mortpafu ĝin kaj detranĉu ĝiajn piedojn kaj kapon. Apenaŭ la reĝa filo tion faris, la vulpo fariĝis homo. Li estis neniu alia, ol la frato de la bela princino. Kiam la kruela sorĉo estis forigita, nenio mankis en ilia feliĉo ĝis la morto.
-
-
-ELEKTITAJ FABELOJ
 
 
 Fiŝkaptisto kaj lia edzino
@@ -1325,9 +1171,7 @@ La fiŝkaptisto leviĝis kaj revenis al la edzino en la budon.
 
 ”Ne,” diris la viro, ”kion mi devus postuli?”
 
-”Ah,” diris la virino, ”malĝoje estas ĉiam logi ĉi tie en budo malbonodora kaj abomeninda; kial vi ne postulis malgrandan 50
-
-ELEKTITAJ FABELOJ
+”Ah,” diris la virino, ”malĝoje estas ĉiam logi ĉi tie en budo malbonodora kaj abomeninda; kial vi ne postulis malgrandan
 
 
 dometon? Iru al la maro kaj voku la fiŝon; diru al ĝi, ke ni dezirus malgrandan dometon; tute certe ĝi donos ĝin.”
@@ -1373,9 +1217,6 @@ Ili eniris. En la dometo estis malgranda vestiblo, bela ĉambro kun kamero; por 
 ”Jes,” respondis la viro, ”ĉio restu tia, ni vivos tute feliĉe.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Ni pripensos,” diris la virino. Ili manĝis iom kaj iris dormi.
 
 Pasis tiel unu aŭ du semajnoj kaj la virino diris:
@@ -1408,9 +1249,7 @@ Kaj kastelon de vi mendas.”
 
 ”Iru tien, via edzino staras antaŭ la pordo.’”’
 
-La fiŝkaptisto iris, pensante, ke li revenos en la domon, sed 52
-
-ELEKTITAJ FABELOJ
+La fiŝkaptisto iris, pensante, ke li revenos en la domon, sed
 
 
 kiam li venis, tie staris granda ŝtona palaco kaj lia edzino supreniris la ŝtuparon; ŝi prenis lian manon kaj diris:
@@ -1423,13 +1262,9 @@ Ili eniris en la kastelon: la planko estis marmora, amaso da servistoj malfermis
 
 ”Jes,” respondis li, ”ĉio restu tia, nun ni loĝos en la bela kastelo kaj ni estos feliĉaj.”
 
-”Ni pripensos,” diris la virino, ”nun ni dormu.” Kaj ili ku-
+”Ni pripensos,” diris la virino, ”nun ni dormu.” Kaj ili kuŝiĝis.
 
-ŝiĝis.
-
-En la sekvinta tago la edzino vekiĝis unua. La suno lumis, ŝi rigardis tra la fenestro kaj vidis la pentrindan landon, ku-
-
-ŝantan antaŭ ŝi. La fiŝkaptisto etendis ankoraŭ siajn membrojn, kaj ŝi tuŝegis lin per la kubuto kaj diris:
+En la sekvinta tago la edzino vekiĝis unua. La suno lumis, ŝi rigardis tra la fenestro kaj vidis la pentrindan landon, kuŝantan antaŭ ŝi. La fiŝkaptisto etendis ankoraŭ siajn membrojn, kaj ŝi tuŝegis lin per la kubuto kaj diris:
 
 ”Leviĝu kaj rigardu tra la fenestro: ĉu ni ne povus regi la landon? Iru al la fiŝo kaj diru, ke ni volas esti reĝoj.”
 
@@ -1440,9 +1275,6 @@ En la sekvinta tago la edzino vekiĝis unua. La suno lumis, ŝi rigardis tra la 
 ”Ah, virino, vi volas esti reĝo, tion mi ne povas diri al ĝi.”
 
 ”Kial ne? Iru tuj, mi devas esti reĝo.”
-
-
-ELEKTITAJ FABELOJ
 
 
 La fiŝkaptisto iris tute konsternita. ”Tio ne estas prava, ne estas prava,” li pensis; tamen li iris.
@@ -1473,9 +1305,7 @@ La fiŝkaptisto staris kaj rigardis ŝin, fine li diris:
 
 ”Ah, kiel bele estas, ke vi estas reĝo! Nun ni deziros nenion plu.”
 
-”Ne,” respondis ŝi kaj fariĝis malkvieta, ”la tempo pasas 54
-
-ELEKTITAJ FABELOJ
+”Ne,” respondis ŝi kaj fariĝis malkvieta, ”la tempo pasas
 
 
 tiel malrapide, mi enuas. Iru al la fiŝo; mi jam estas reĝo, mi volas fariĝi imperiestro.”
@@ -1508,9 +1338,7 @@ Imperion de vi mendas.”
 
 ”Iru, ŝi jam estas imperiestro.”
 
-Kiam li revenis hejmen, la tuta kastelo estis el polurita marmoro kun alabastraj figuroj kaj oraj ornamaĵoj. Antaŭ la pordego marŝis soldatoj, blovis trumpetojn kaj batis tambu-rojn. En la palaco baronoj, grafoj kaj princoj estis servistoj kaj malfermis antaŭ li orajn pordojn. Kiam li eniris, lia edzino sidis sur trono el unu ora peco, longa unu mejlon. ŝi havis sur 55
-
-ELEKTITAJ FABELOJ
+Kiam li revenis hejmen, la tuta kastelo estis el polurita marmoro kun alabastraj figuroj kaj oraj ornamaĵoj. Antaŭ la pordego marŝis soldatoj, blovis trumpetojn kaj batis tambu-rojn. En la palaco baronoj, grafoj kaj princoj estis servistoj kaj malfermis antaŭ li orajn pordojn. Kiam li eniris, lia edzino sidis sur trono el unu ora peco, longa unu mejlon. ŝi havis sur
 
 
 la kapo grandegan oran kronon, ornamitan per briliantoj kaj karbunkoloj; en unu mano ŝi tenis la sceptron, en la alia la imperiestran pomon. ĉe ambaŭ flankoj staris gardistoj en du vicoj: la plej granda estis giganto du mejlojn alta, la plej malgranda nano ne pli alta ol mia malgranda fingro. Antaŭ ŝi staris amaso da grafoj kaj princoj. Time proksimiĝis la fiŝkaptisto kaj diris:
@@ -1535,9 +1363,7 @@ Li staris kaj rigardis ŝin, fine li diris:
 
 La fiŝkaptisto foriris malkuraĝe, li tremis pro timo, liaj genuoj kaj kruroj skuiĝis.
 
-Terura vento ekblovis, nuboj kovris la ĉielon, fariĝis mal lume, kvazaŭ vespere. La folioj falis de la arboj, la akvo muĝis, bolis kaj batis la bordojn. En malproksimo li vidis ŝipojn, kiuj alarme pafis, saltis kaj dancis sur la ondoj. La ĉielo estis ankoraŭ iomete blua en la mezo, sed ĉirkaŭe ĝi estis terure ruĝa, kiel antaŭ fulmotondro. Li proksimiĝis terurita kaj diris: 56
-
-ELEKTITAJ FABELOJ
+Terura vento ekblovis, nuboj kovris la ĉielon, fariĝis mal lume, kvazaŭ vespere. La folioj falis de la arboj, la akvo muĝis, bolis kaj batis la bordojn. En malproksimo li vidis ŝipojn, kiuj alarme pafis, saltis kaj dancis sur la ondoj. La ĉielo estis ankoraŭ iomete blua en la mezo, sed ĉirkaŭe ĝi estis terure ruĝa, kiel antaŭ fulmotondro. Li proksimiĝis terurita kaj diris:
 
 
 ”El la ondoj, fiŝo kara,
@@ -1554,9 +1380,7 @@ La tiaron de vi mendas.”
 
 ”Iru, ŝi jam estas papo.”
 
-La fiŝkaptisto foriris. Kiam li revenis, li vidis grandan pre-
-
-ĝejon, ĉirkaŭitan de palacoj. Interne ĉion lumigis miloj da milaj da kandeloj kaj lia edzino, tuta en oro de la kapo ĝis la piedoj, sidis sur trono multe pli alta ol la antaŭa kaj havis sur la kapo tri orajn kronojn. ĉirkaŭis ŝin amaso da pastroj. ĉe ambaŭ flankoj staris du vicoj da kandeloj, la plej alta kiel grandega turo, la plej malgranda kiel lumingo en la kuirejo.
+La fiŝkaptisto foriris. Kiam li revenis, li vidis grandan preĝejon, ĉirkaŭitan de palacoj. Interne ĉion lumigis miloj da milaj da kandeloj kaj lia edzino, tuta en oro de la kapo ĝis la piedoj, sidis sur trono multe pli alta ol la antaŭa kaj havis sur la kapo tri orajn kronojn. ĉirkaŭis ŝin amaso da pastroj. ĉe ambaŭ flankoj staris du vicoj da kandeloj, la plej alta kiel grandega turo, la plej malgranda kiel lumingo en la kuirejo.
 
 ĉiuj imperiestroj kaj reĝoj genuis antaŭ ŝi kaj kisis ŝian ŝuon.
 
@@ -1576,9 +1400,7 @@ Sed ŝi sidis rigida, kvazaŭ ŝtipo, kaj ne moviĝis. Li diris:
 
 Sed ŝi ne estis kontenta kaj la avideco ne lasis ŝin dormi; ŝi pensis senĉese, kio ŝi povus ankoraŭ fariĝi.
 
-La fiŝkaptisto dormis bone kaj profunde, ĉar li multe kuris tage, sed ŝi ne povis dormi kaj sin turnis de unu flanko sur la alian, pensante senĉese, kio ŝi povus ankoraŭ fariĝi. Nenion 57
-
-ELEKTITAJ FABELOJ
+La fiŝkaptisto dormis bone kaj profunde, ĉar li multe kuris tage, sed ŝi ne povis dormi kaj sin turnis de unu flanko sur la alian, pensante senĉese, kio ŝi povus ankoraŭ fariĝi. Nenion
 
 
 ŝi povis elpensi. Dume leviĝis la suno. Kiam ŝi ekvidis la matenruĝon, ŝi sidiĝis sur la lito kaj rigardis tra la fenestro; kiam aperis la suno, ŝi ekpensis:
@@ -1608,9 +1430,6 @@ Li surtiris la pantalonon kaj ekkuris kvazaŭ freneza.
 Ekblovis terura ventego, bruegis kaj muĝis terure. Li apenaŭ povis stari sur la piedoj. La domoj kaj arboj skuiĝis, la montoj tremis, la ŝtonegoj ruliĝis en la maron, la ĉielo estis nigra, kvazaŭ peĉo. Tondris kaj fulmis, sur la maro leviĝis nigraj ondoj, altaj kiel turoj kaj montoj, kaj ĉiu portis blankan ŝaŭman kronon. La fiŝkaptisto kriis, sed li mem ne aŭdis la proprajn vortojn:
 
 
-ELEKTITAJ FABELOJ
-
-
 ”El la ondoj, fiŝo kara,
 
 Venu al la bordo mara;
@@ -1626,9 +1445,6 @@ Dian tronon de vi mendas.”
 ”Iru, ŝi ree sidas en la budo.”
 
 Kaj ili sidas tie ankoraŭ hodiaŭ.
-
-
-ELEKTITAJ FABELOJ
 
 
 Tablo ”kovru vin”, la orazeno
@@ -1660,9 +1476,6 @@ Sed la patro volis mem konvinkigi, iris en la stalon, karesis la karan beston ka
 ”Kaprino, ĉu vi estas sata?”
 
 La kaprino respondis:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Saltis mi, nenion trovis,
@@ -1700,9 +1513,6 @@ La tajloro, kiu volis mem vidi tion, iris en la stalon kaj demandis:
 ”Kaprino, ĉu vi estas sata?”
 
 La kaprino respondis:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Saltis mi, nenion trovis,
@@ -1748,9 +1558,6 @@ Me! mee!”
 ”Gento de mensoguloj!” ekkriis la tajloro, ”unu same sendia kaj malzorga, kiel alia! Trompu alian malsaĝulon!”
 
 
-ELEKTITAJ FABELOJ
-
-
 Kolera li kuris en la domon kaj tiel draŝis per la ulno la dorson de la knabo, ke la junulo forkuris.
 
 La maljuna tajloro restis sola kun la kaprino. En la sekvinta tago li iris en la stalon, karesis la kaprinon kaj diris:
@@ -1788,9 +1595,6 @@ Aŭdinte tion, la tajloro ekmiris kaj komprenis, ke li maljuste forpelis siajn f
 ”Atendu!” kriis li, ”vi sendanka kreitaĵo! Ne sufiĉas forpeli vin. Mi signos vin tiel, ke vi neniam kuraĝos montri vin inter honestaj tajloroj.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Li rapide alportis razilon, sapumis la kapon de la kaprino kaj razis ŝin glata kvazaŭ manplato. ĉar la ulno tro honorus ŝin, li alportis vipon kaj tiel regalis ŝin, ke la kaprino forkuris salte.
 
 La tajloro, tute sola, ekmalĝojis. Li dezirus havi ĉe si la filojn, sed neniu sciis, kien forpelis ilin la sorto.
@@ -1806,9 +1610,6 @@ Fine li ekdeziris reveni al la patro, esperante, ke lia kolero dume kvietiĝis k
 Vespere li venis en gastejon plenan de vojaĝantoj, kiuj afable invitis lin sidigi ĉe ilia tablo, ĉar alie li nenion ricevos.
 
 ”Ne,” respondis la lignaĵisto, ”mi ne volas forpreni de via buŝo la lastajn pecojn, prefere mi mem regalos vin.”
-
-
-ELEKTITAJ FABELOJ
 
 
 Ili ridis, pensante, ke li ŝercas, sed li starigis la lignan tablon en la mezo de la ĉambro kaj diris: ”Tablo, kovru vin!”
@@ -1843,9 +1644,7 @@ La tajloro rigardis la tableton de ĉiuj flankoj kaj diris:
 
 ”Via majstroverko ne valoras multe, ĝi estas malnova kaj malbona tableto.”
 
-”Sed ĝi estas tableto ”kovru vin,” respondis la filo. ”Kiam 65
-
-ELEKTITAJ FABELOJ
+”Sed ĝi estas tableto ”kovru vin,” respondis la filo. ”Kiam
 
 
 mi starigas ĝin kaj diras: ’kovru vin’, tuj aperas sur ĝi bongus-taj manĝaĵoj kaj vino, kiu ĝojigas la koron! Invitu ĉiujn parencojn kaj amikojn, la tableto regalos ilin kaj ĉiuj satmanĝos.”
@@ -1866,18 +1665,14 @@ La dua filo venis al muelisto kaj fariĝis lia lernanto. Kiam li jam ellernis la
 
 ”Bona afero,” diris la junulo, dankis la majstron kaj foriris en la vastan mondon. Kiam li bezonis monon, li nur diris al la azeno ”briklebrit” , kaj la oro falis kvazaŭ pluvo; li nur kolektis ĝin de la tero. ĉie, kien li venis kun la azeno, la plej bonaj objektoj ne estis tro bonaj por li, kaj ju pli karaj ili estis, des pli bone, ĉar lia poŝo ĉiam estis plena.
 
-Iom da tempo li migris tiamaniere en la mondo kaj fine ekpensis: ”Mi devas trovi mian patron; kiam mi venos kun mia 66
-
-ELEKTITAJ FABELOJ
+Iom da tempo li migris tiamaniere en la mondo kaj fine ekpensis: ”Mi devas trovi mian patron; kiam mi venos kun mia
 
 
 azeno, li forgesos la koleron kaj bone min akceptos.” Li eniris okaze en la saman gastejon, kie oni ŝtelis al lia frato la tableton. Li kondukis post si la azenon, kaj la mastro volis alligi ĝin, sed la junulo diris: ”Mi dankas vin, mi mem kondukos mian grizulon en la stalon kaj mem alligos ĝin, ĉar mi devas scii, kie gi staras.”
 
 Tio ŝajnis stranga al la mastro kaj li pensis, ke tiu, kiu mem devas zorgi pri sia azeno, ne havas tre plenan poŝon. Sed kiam la veninto metis la manon en la poŝon, eltiris du orajn monerojn kaj mendis bonan vespermanĝon, li larĝe malfermis la okulojn, ekkuris kaj elektis, la plej bonan kion li havis en la provizejo.
 
-Post la vespermanĝo la gasto demandis, kiom li ŝuldas. La mastro ne ŝparis la poŝon de la junulo kaj diris, ke li devas aldoni ankoraŭ du orajn monerojn. La junulo serĉis en la po-
-
-ŝo, sed trovis tie nenion.
+Post la vespermanĝo la gasto demandis, kiom li ŝuldas. La mastro ne ŝparis la poŝon de la junulo kaj diris, ke li devas aldoni ankoraŭ du orajn monerojn. La junulo serĉis en la poŝo, sed trovis tie nenion.
 
 ”Atendu momenton, sinjoro mastro,” li diris, ”mi iros kaj alportos monon,” kaj kunprenis la tablotukon. La mastro komprenis neniom, scivola sekvis lin senbrue kaj, ĉar la gasto riglis la pordon de la stalo, li rigardis tra fendo. La muelisto sternis la tukon sub la azeno kaj ekkriis: ”briklebrit” — kaj en la sama momento la besto komencis sputi oron, kiu falis kvazaŭ hajlo.
 
@@ -1885,9 +1680,7 @@ Post la vespermanĝo la gasto demandis, kiom li ŝuldas. La mastro ne ŝparis la
 
 La gasto pagis sian kalkulon kaj kuŝiĝis; la mastro nokte ŝteliris en la stalon, elkondukis la moneriston kaj alligis anstataŭe alian azenon.
 
-En la posta mateno la muelisto frue foriris kun la azeno, 67
-
-ELEKTITAJ FABELOJ
+En la posta mateno la muelisto frue foriris kun la azeno,
 
 
 suspektante nenion. Tagmeze li venis al la patro, kiu ĝoje lin akceptis.
@@ -1910,14 +1703,9 @@ Invitu ĉiujn parencojn, mi ilin ĉiujn faros riĉaj homoj.”
 
 Kaj li rapidis kunvoki la parencojn. Kiam ĉiuj kunvenis, la muelisto petis ilin sidiĝi, sternis la tukon kaj alkondukis la azenon.
 
-”Atentu nun,” li diris kaj ekkriis ”briklebrit” — sed tio, kio falis sur la tukon, ne similis orajn monerojn. Montriĝis, ke la besto ne konas la artifikon, ĉar ne ĉiu azeno ĝnas. Mal-
-
-ĝoja fariĝis la mieno de la kompatinda muelisto; li komprenis, ke oni trompis lin, petis pardonon de la parencoj, kiuj devis foriri same malriĉaj, kiel ili venis. La tajloro rekomencis sian laboron kaj la filo dungiĝis en muelejo.
+”Atentu nun,” li diris kaj ekkriis ”briklebrit” — sed tio, kio falis sur la tukon, ne similis orajn monerojn. Montriĝis, ke la besto ne konas la artifikon, ĉar ne ĉiu azeno ĝnas. Malĝoja fariĝis la mieno de la kompatinda muelisto; li komprenis, ke oni trompis lin, petis pardonon de la parencoj, kiuj devis foriri same malriĉaj, kiel ili venis. La tajloro rekomencis sian laboron kaj la filo dungiĝis en muelejo.
 
 La tria filo fariĝis lernanto de tornisto kaj ĉar la metio estas malfacila, li lernis pli longe ol la fratoj. Ili sciigis al li per letero sian malsukceson kaj kiel la gastejestro ŝtelis al ili en la lasta vespero la miraklajn donacojn. Kiam la tornisto ellernis la metion, la majstro rekompence por lia bona konduto donacis al li sakon kaj diris:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”En ĝi estas bastono.”
@@ -1942,12 +1730,7 @@ La mastro levis la orelojn:
 
 ”Kion, mil diabloj, li posedas,” li pensis, ”kredeble la sako estas plena de diamantoj. Mi tre dezirus aligi ilin al la tableto kaj azeno, ĉar ĉiuj bonaj aferoj kuniĝas triope.”
 
-Kiam venis la tempo por dormi, la gasto sin etendis sur la benko kaj sub la kapon metis la sakon kiel kusenon. Kiam la mastro pensis, ke la junulo jam profunde dormas, li proksimiĝis, senbrue kaj singarde tiris la sakon provante, ĉu li suk-69
-
-ELEKTITAJ FABELOJ
-
-
-cesos fortiri ĝin kaj meti anstataŭe alian. La tornisto jam longe atendis tion kaj kiam la mastro estis forte tironta, la junulo ekkriis:
+Kiam venis la tempo por dormi, la gasto sin etendis sur la benko kaj sub la kapon metis la sakon kiel kusenon. Kiam la mastro pensis, ke la junulo jam profunde dormas, li proksimiĝis, senbrue kaj singarde tiris la sakon provante, ĉu li sukcesos fortiri ĝin kaj meti anstataŭe alian. La tornisto jam longe atendis tion kaj kiam la mastro estis forte tironta, la junulo ekkriis:
 
 ”Bastono, el la sako!”
 
@@ -1984,9 +1767,6 @@ Vi povas fari ĝin ankaŭ ĉe ni el iu ajn branĉo.”
 ”Sed ne tian, kara patro! Kiam mi diras al ĝi: ’Bastono, el la sako’, ĝi elsaltas kaj batas tiujn, kiuj havas malbonajn intencojn kontraŭ mi. i ne ĉesas, ĝis ili kuŝas tere kaj petas kompaton. Rigardu, per ĝi mi reprenis la tableton ’kovru vin’
 
 
-ELEKTITAJ FABELOJ
-
-
 kaj la orazenon, kiujn la gastejmastro fripone ŝtelis al miaj fratoj. Alvoku ilin ambaŭ kaj invitu ĉiujn parencojn, mi regalos ilin kaj plenigos iliajn poŝojn per oro.”
 
 La maljuna tajloro ne tre fidis, sed kunvokis tamen la parencojn. La tornisto sternis tukon en la ĉambro, enkondukis la orazenon kaj diris al la frato:
@@ -2006,9 +1786,6 @@ i ektimis kaj forkuris. Urso renkontis ĝin kaj, vidante ĝian konfuzon, demandi
 ”Kio estas al vi? Kial vi faras grimacojn?”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Ah,” respondis la flavulo, ”terura monstro sidas en mia nesto! i rigardis min per siaj fajraj okuloj.”
 
 ”Ni tuj forpelos ĝin,” diris la urso, iris kun la vulpo al ĝia nesto kaj rigardis internen; sed kiam ĝi vidis la fajrajn okulojn, ankaŭ ĝi ektimis kaj forkuris de la terura besto. Abelo renkontis la urson kaj, vidante, ke ĝi ne sentas sin tre bone en sia haŭto, diris:
@@ -2026,9 +1803,6 @@ i flugis en la vulpan neston, sidiĝis sur la glata, razita ka-po de la kaprino 
 mee! kaj forkuris kiel furioza en la arbaron.
 
 De tiu tempo neniu scias, kie ŝi estas.
-
-
-ELEKTITAJ FABELOJ
 
 
 Fabelo pri iu, kiu migris
@@ -2059,9 +1833,7 @@ La pli aĝa ridis kaj pensis:
 
 ”Dio mia, kia malsaĝulo estas mia frato, li neniam taŭgos por io: se ne lernas la infano, ĝi ne estos kapitano.”
 
-Post iom da tempo orgenisto vizitis la domon. La patro 73
-
-ELEKTITAJ FABELOJ
+Post iom da tempo orgenisto vizitis la domon. La patro
 
 
 plendis pri sia ĉagreno kaj rakontis, ke la pli juna filo taŭgas por nenio, nenion scias kaj lernas nenion:
@@ -2090,9 +1862,7 @@ La orgenisto pensis:
 
 ”Li tion ne faros,” ne respondis kaj staris kvazaŭ ŝtona.
 
-La knabo la trian fojon alparolis lin, sed vane. Tiam li ekkuris kaj tiel depuŝis de la ŝtuparo la fantomon, ke ĝi rulfa-lis dek ŝtupojn kaj restis senmova en angulo. La knabo sonorigis, revenis en la domon sen diri eĉ unu vorton, kuŝiĝis kaj 74
-
-ELEKTITAJ FABELOJ
+La knabo la trian fojon alparolis lin, sed vane. Tiam li ekkuris kaj tiel depuŝis de la ŝtuparo la fantomon, ke ĝi rulfa-lis dek ŝtupojn kaj restis senmova en angulo. La knabo sonorigis, revenis en la domon sen diri eĉ unu vorton, kuŝiĝis kaj
 
 
 ekdormis. La edzino de la orgenisto longe atendis la edzon, sed li ne revenis. Fine ŝi ektimis, vekis la knabon kaj demandis:
@@ -2122,9 +1892,6 @@ Mi ne sciis, kiu li estas kaj trifoje mi admonis lin respondi aŭ foriri.”
 ”Lernu, kion vi volas,” diris la patro, ”tio estas por mi in-diferenta. Jen estas 50 talaroj, iru en la vastan mondon kaj al neniu diru, de kie vi venas kaj kiu estas via patro, ĉar mi hontas pro vi!”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Bone, patro, kiel vi volas. Se vi postulas nenion plian, mi povas facile plenumi vian volon.”
 
 Kiam leviĝis la suno, la knabo metis la talarojn en la poŝon, ekiris sur la grandan vojon kaj senĉese ripetis al si: ”Ah, se mi timus, se mi timus.”
@@ -2145,12 +1912,7 @@ Li estis kompatema: li starigis ŝtupetaron, supreniris, malliĝis ĉiujn sep ka
 
 ”Gardu vin,” kriis la knabo, ”alie mi ree vin pendigos!” La mortintoj aŭdis nenion, silentis, kaj iliaj ĉifonoj brulis. La knabo ekkoleris kaj diris:
 
-”ĉu vi ne volas vin gardi? Bone, sed mi tute ne intencas bruli kun vi,” li ree pendigis ilin, sidiĝis ĉe la fajro kaj ekdor-76
-
-ELEKTITAJ FABELOJ
-
-
-mis. En la posta tago venis al li la sama homo por ricevi la 50
+”ĉu vi ne volas vin gardi? Bone, sed mi tute ne intencas bruli kun vi,” li ree pendigis ilin, sidiĝis ĉe la fajro kaj ekdormis. En la posta tago venis al li la sama homo por ricevi la
 
 talarojn kaj diris:
 
@@ -2194,9 +1956,7 @@ La mastro, aŭdinte tion, ekridis kaj diris:
 
 ”Se vi tion serĉas, vi trovos ĉi tie bonan okazon.”
 
-”Silentu!” li dirisa edzino, ”multaj kuraĝuloj jam perdis tie 77
-
-ELEKTITAJ FABELOJ
+”Silentu!” li dirisa edzino, ”multaj kuraĝuloj jam perdis tie
 
 
 la vivon. Domaĝe estus, se ĉi tiuj belaj okuloj ne plu vidus la tagan lumon.”
@@ -2217,9 +1977,7 @@ La reĝo rigardis lin kaj ĉar la knabo plaĉis al li, li diris:
 
 La junulo respondis:
 
-”Mi petas fajron, tornilon kaj lignaĵistan stablon kun tran-
-
-ĉilo.”
+”Mi petas fajron, tornilon kaj lignaĵistan stablon kun tranĉilo.”
 
 La reĝo ordonis ĉion ĉi porti dum la tago en la kastelon.
 
@@ -2232,9 +1990,6 @@ Antaŭ noktomezo li volis flamigi la fajron: kiam li blovis, io ekkriis en angul
 ”Miaŭ, miaŭ, kia malvarmo!”
 
 ”Malsaĝuloj, kial vi krias? Venu al la fajro kaj varmigu vin.”
-
-
-ELEKTITAJ FABELOJ
 
 
 Apenaŭ li tion diris, elsaltis du grandaj katoj, sidiĝis ĉe am-baŭ liaj flankoj kaj sovaĝe rigardis lin per siaj fajraj okuloj.
@@ -2265,9 +2020,7 @@ Kiam li sidis tiamaniere, liaj okuloj ne volis plu esti malfermitaj kaj li dezir
 
 ”Bone, tre bone,” diris la knabo, ”kuru rapide!”
 
-La lito ruliĝis kvazaŭ al ĝi estus jungitaj ses ĉevaloj, trans la sojlojn kaj ŝtuparojn, supren kaj malsupren. Subite, krak 79
-
-ELEKTITAJ FABELOJ
+La lito ruliĝis kvazaŭ al ĝi estus jungitaj ses ĉevaloj, trans la sojlojn kaj ŝtuparojn, supren kaj malsupren. Subite, krak
 
 
 krak, ĝi renversiĝis kaj kuŝis sur li kvazaŭ monto. Sed li deĵetis kovrilojn kaj kusenojn, eliĝis kaj diris:
@@ -2309,9 +2062,6 @@ Kiam li tion faris, li vidis, ke ambaŭ duonoj kuniĝis kaj terura homo sidis su
 ”Mi ne konsentas, la benko estas mia.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La homo volis lin forpuŝi, sed la knabo ne cedis, depuŝis la monstron kaj sidiĝis sur sia loko. Dume falis pli multe da homoj, unu post alia. Ili alportis naŭ kadavrajn krurojn kaj du kadavrajn kapojn, starigis la krurojn kaj ekludis keglojn. An-kaŭ la junulo deziris ludi kaj demandis:
 
 ”Aŭskultu, ĉu vi akceptos min?”
@@ -2348,9 +2098,7 @@ faris invitan geston kaj ekkriis:
 
 ”Venu, kuzeto, venu!”
 
-Ili metis la ĉerkon sur la plankon; li proksimiĝis kaj demetis 81
-
-ELEKTITAJ FABELOJ
+Ili metis la ĉerkon sur la plankon; li proksimiĝis kaj demetis
 
 
 la kovrilon: tie kuŝis mortinto. La knabo tuŝis lian vizagon, sed ĝi estis malvarma kiel glacio.
@@ -2384,9 +2132,6 @@ Homo enpaŝis, pli alta ol ĉiuj aliaj, terura; li estis maljuna kaj havis longa
 ”Tion mi vidos,” diris la maljunulo. ”Se vi estas pli forta, mi lasos vin foriri. Venu kaj ni provu.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Tra mallumaj koridoroj li kondukis lin en forĝejon, prenis hakilon kaj per unu bato penetrigis la amboson en la teron.
 
 ”Mi faros la samon pli bone,” diris la knabo kaj iris al la alia amboso; la maljunulo proksimiĝis por rigardi, kaj lia blanka barbo pendis super ĝi. La knabo prenis la hakilon, dishakis la amboson kaj per la sama bato pinĉiĝis en ĝi la barbon de la monstro.
@@ -2415,11 +2160,7 @@ La reĝo diris:
 
 ”Tre bone,” respondis la knabo, ”tamen mi ne scias ankoraŭ, kio estas timo.”
 
-Oni alportis la monon kaj festis la edziĝon, sed la juna re-
-
-ĝo, kvankam li amis la edzinon kaj estis feliĉa, ĉiam ripetis: 83
-
-ELEKTITAJ FABELOJ
+Oni alportis la monon kaj festis la edziĝon, sed la juna reĝo, kvankam li amis la edzinon kaj estis feliĉa, ĉiam ripetis:
 
 
 ”Ah, se mi timus, se mi timus.” Tio fine ektedis ŝin. ŝia servistino diris:
@@ -2433,9 +2174,6 @@ Nokte, kiam la juna reĝo dormis, la edzino detiris de li la kovrilon kaj elver�
 ”Ah, kiel mi timas, kiel mi timas, kara edzino! Jes, nun mi scias, kio estas timo.”
 
 1 Fiŝo: an, gudgeon, fr. goujon, germ. Gründling, it. ghizzo, pol. kielb, rus, piskarj.
-
-
-ELEKTITAJ FABELOJ
 
 
 Du fratoj
@@ -2457,18 +2195,13 @@ Foje la malriĉa iris en la arbaron por kolekti branĉetaĵon kaj ekvidis birdon
 La malriĉulo iris trian fojon en la arbaron kaj ree ekvidis la birdon sur arbo: li prenis ŝtonon kaj trafis la birdon, kiu falis teren. La malriĉa alportis ĝin al la frato kaj ricevis por ĝi grandan amason da oro.
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Nun mi povos vivi senzorge,” li pensis kaj kontenta revenis hejmen.
 
 La oraĵisto estis saĝa kaj ruza kaj sciis bone, kia birdo ĝi estas. Li vokis sian edzinon kaj diris:
 
 “Rostu al mi la oran birdon kaj gardu ĝin bone, ke nenio perdiĝu el ĝi; mi deziras tute sola manĝi ĝin.”
 
-i ne estis ordinara birdo, ĝi havis miraklan econ: kiu man-
-
-ĝos ĝian koron kaj hepaton, trovos ĉiutage sub sia kuseno oran moneron.
+i ne estis ordinara birdo, ĝi havis miraklan econ: kiu manĝos ĝian koron kaj hepaton, trovos ĉiutage sub sia kuseno oran moneron.
 
 La virino preparis la birdon, metis ĝin sur turnrostilon kaj komencis ĝin rosti. Post momento ŝi devis pro alia laboro eliri el la kuirejo; dume la infanoj de la malriĉa enkuris, proksimiĝis al la fajro kaj kelke da fojoj turnis la rostilon. Du pecetoj elfalis el la birdo sur la paton.
 
@@ -2484,9 +2217,7 @@ Kiam ili ambaŭ manĝis la pecetojn, eniris la virino kaj vidante, ke ili ion ma
 
 En la sekvinta mateno li metis la manon sub la kusenon, esperante trovi sub ĝi oron, sed li ne trovis tie alion, ol ĉiutage.
 
-La infanoj tute ne sciis, kian feliĉon ili akiris. Matene kiam ili leviĝis, io falis teren kaj eksonoris: ili kliniĝis kaj levis du 86
-
-ELEKTITAJ FABELOJ
+La infanoj tute ne sciis, kian feliĉon ili akiris. Matene kiam ili leviĝis, io falis teren kaj eksonoris: ili kliniĝis kaj levis du
 
 
 orajn monerojn. La knaboj alportis ilin al la patro, kiu ekmiris kaj diris:
@@ -2516,9 +2247,6 @@ Li instruis al ili la ĉasadon kaj kolektis por ili la oron, kiun ili ĉiumatene
 Kiam la fratoj fariĝis plenaĝaj, la zorganto kondukis ilin en la arbaron kaj diris:
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Hodiaŭ vi pafos vian provpafon, por ke mi povu proklami vin ĉasistoj ”
 
 Ili iris kun li sur postenon kaj longe atendis, sed ĉasaĵo ne venis. Fine la zorganto rigardis supren kaj ekvidis ĉenon de blankaj anseroj, kiuj flugis triangule. Li diris al unu knabo:
@@ -2545,9 +2273,7 @@ La maljunulo rediris ĝoje:
 
 ”Vi parolas, kiel bravaj ĉasistoj. Tio, kion vi petas, estis an-kaŭ mia deziro. Iru en la vastan mondon, vi sendube trovos sukceson.”
 
-Ili kune manĝis kaj trinkis ĝoje. Kiam venis la destinita tago, la zorganto donacis al ĉiu bonan pafilon kaj hundon kaj permesis preni tiom el la kolektita oro, kiom ili volis. Poste li 88
-
-ELEKTITAJ FABELOJ
+Ili kune manĝis kaj trinkis ĝoje. Kiam venis la destinita tago, la zorganto donacis al ĉiu bonan pafilon kaj hundon kaj permesis preni tiom el la kolektita oro, kiom ili volis. Poste li
 
 
 akompanis ilin iom da tempo kaj ĉe la adiaŭo donis al ili brilan tranĉilon kaj diris:
@@ -2572,9 +2298,7 @@ Dirinte ĉi tion, li saltis en arbetaĵon kaj alportis du idojn; sed la bestetoj
 
 Se vi pafilon mortigan mallevos.”
 
-i alportis du idojn, sed la ĉasistoj ne volis mortigi ilin kaj aligis ilin al la leporidoj. ĉiuj kvar nun sekvis la fratojn. Post 89
-
-ELEKTITAJ FABELOJ
+i alportis du idojn, sed la ĉasistoj ne volis mortigi ilin kaj aligis ilin al la leporidoj. ĉiuj kvar nun sekvis la fratojn. Post
 
 
 iom da tempo lupo eliris el la densejo. La ĉasistoj ekcelis, sed la besto petis kompaton, kriante:
@@ -2608,9 +2332,6 @@ La vulpoj respondis:
 Ili iris en la kamparon, aĉetis ion por si kaj por la bestoj kaj daŭrigis la vojiron. La vulpoj konis ĉiujn kokejojn en la ĉir-kaŭaĵo kaj ĉie montris al la ĉasistoj la vojon.
 
 
-ELEKTITAJ FABELOJ
-
-
 Ili migris iom da tempo kune, sed ne trovis oficon, kie ili povus resti kune, ili do diris:
 
 ”Vole nevole ni devas disiĝi.”
@@ -2634,9 +2355,6 @@ La ĉasisto, zorginte por siaj bestoj, demandis la mastron, kial ĉie krepo pend
 La ĉasisto demandis:
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kial oni ne mortigas la drakon?”
 
 ”Ah,” respondis la mastro, ”multaj jam provis, sed ĉiuj perdis la vivon. La reĝo promesis al tiu, kiu mortigos la drakon, sian filinon kiel edzinon kaj la regnon post sia morto.”
@@ -2651,9 +2369,7 @@ La ĉasisto ne trinkis, eliris, trovis la glavon sed ne povis ekmovi ĝin. Li do
 
 Venis la horo, en kiu oni devis konduki la virgulinon al la drako. La reĝo, la marŝalo kaj la korteganoj akompanis ŝin.
 
-La princino ekvidis de malproksime la ĉasiston sur la supro de la monto kaj opiniis, ke tio estas la drako, kiu atendas ŝin. ŝi ne volis iri, sed fine ŝi devis cedi, ĉar alie la tuta urbo pereus. La reĝo kaj la korteganoj reiris hejmen plenaj de mal-
-
-ĝojo, kaj la marŝalo devis resti kaj observi ĉion de malproksime.
+La princino ekvidis de malproksime la ĉasiston sur la supro de la monto kaj opiniis, ke tio estas la drako, kiu atendas ŝin. ŝi ne volis iri, sed fine ŝi devis cedi, ĉar alie la tuta urbo pereus. La reĝo kaj la korteganoj reiris hejmen plenaj de malĝojo, kaj la marŝalo devis resti kaj observi ĉion de malproksime.
 
 Kiam la princino venis sur la supron, tie staris ne la drako, sed la juna ĉasisto. Li konsolis ŝin kaj diris, ke li ŝin savos. Li kondukis ŝin en la preĝejon kaj ŝlosis tie. Post momento alflugis la sepkapa drako kun granda bruo. Ekvidinte la ĉasiston li ekmiris kaj diris:
 
@@ -2662,9 +2378,6 @@ Kiam la princino venis sur la supron, tie staris ne la drako, sed la juna ĉasis
 La ĉasisto respondis:
 
 ”Mi volas batali kontraŭ vi.”
-
-
-ELEKTITAJ FABELOJ
 
 
 La drako diris:
@@ -2686,9 +2399,6 @@ La fajro kaj la batalo tre lacigis la ĉasiston, li do diris al la virgulino:
 ŝi konsentis kaj ili kuŝiĝis, kaj la ĉasisto diris al la leono:
 
 ”Gardu nin dum la dormo.”
-
-
-ELEKTITAJ FABELOJ
 
 
 Ili ambaŭ ekdormis, kaj la leono kuŝiĝis apud ili por gardi, sed ankaŭ ĝi estis laca de la batalo, ĝi do alvokis la urson kaj diris:
@@ -2715,9 +2425,7 @@ La marŝalo, kiu devis de malproksime ĉion observi kaj atendis ĝis la drako fo
 
 Tie kuŝis la disŝirita, dispecigita drako kaj ne malproksime de ĝi la reĝa filino kaj ĉasisto kun siaj bestoj; ĉiuj profunde dormis. La marŝalo estis malbona kaj sendia homo, li prenis sian glavon, dehakis al la ĉasisto la kapon kaj portis malsupren la princinon sur siaj brakoj.
 
-ŝi vekiĝis kaj forte ektimis, la marŝalo diris: 94
-
-ELEKTITAJ FABELOJ
+ŝi vekiĝis kaj forte ektimis, la marŝalo diris:
 
 
 ”Vi estas en miaj manoj, vi devas diri, ke mi mortigis la drakon.”
@@ -2736,9 +2444,7 @@ La reĝo demandis:
 
 ”Jes!” ŝi respondis, ”certe tio estas vera, sed mi rezervas al mi, ke la edziĝo okazos ne pli frue, ol post unu jaro,” ĉar ŝi esperis, ke dum tiu tempo ŝi aŭdos ion pri sia amata ĉasisto.
 
-Sur la monto de la drako la bestoj kuŝis apud sia senviva sinjoro kaj dormis; subite granda burdo alflugis kaj sidiĝis sur la nazo de la leporo. La leporo forpelis ĝin per la piedo kaj daŭ-
-
-rigis la dormadon. La burdo venis duan fojon, sed la leporo ree ĝin forpelis kaj dormis. La burdo revenis trian fojon kaj tiel pikis ĝian nazon, ke ĝi vekiĝis. La leporo tuj vekis la vulpon, la vulpo la lupon, la lupo la urson, la urso la leonon.
+Sur la monto de la drako la bestoj kuŝis apud sia senviva sinjoro kaj dormis; subite granda burdo alflugis kaj sidiĝis sur la nazo de la leporo. La leporo forpelis ĝin per la piedo kaj daŭrigis la dormadon. La burdo venis duan fojon, sed la leporo ree ĝin forpelis kaj dormis. La burdo revenis trian fojon kaj tiel pikis ĝian nazon, ke ĝi vekiĝis. La leporo tuj vekis la vulpon, la vulpo la lupon, la lupo la urson, la urso la leonon.
 
 Kiam la leono vekiĝis kaj vidis, ke la princino forestas kaj la sinjoro estas senviva, ĝi terure ekblekis kaj ekkriis:
 
@@ -2749,9 +2455,6 @@ La urso demandis la lupon:
 ”Kial vi ne vekis min?”
 
 La lupo la vulpon:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Kial vi ne vekis min?” kaj la vulpo la leporon:
@@ -2772,12 +2475,7 @@ La leporo ekgalopis kaj post dudek kvar horoj ĝi alportis la radikon. La leono 
 
 La leono rapidante almetis la kapon al la ĉasisto, turninte la vizaĝon malantaŭen, sed la junulo meditis malĝoje pri la reĝa filino kaj rimarkis nenion. Nur tagmeze, kiam li volis ion manĝi, li ekvidis, ke lia kapo estas turnita al la dorso. Li ne povis tion kompreni kaj demandis la bestojn, kio okazis al li dum la dormo? La leono rakontis al li, ke ankaŭ ili ĉiuj ekdormis de laciĝo kaj vekiĝinte trovis lin senviva kun dehakita kapo; la leporo alportis la sanigan radikon kaj ĝi mem rapidante malĝuste almetis la kapon. Por forigi eraron la leono deŝiris la kapon de la ĉasisto, turnis ĝin ĝuste, kaj la leporo sanigis la vundon per la radiko.
 
-Sed la ĉasisto estis malĝoja, li iris en la mondon kaj ordo-96
-
-ELEKTITAJ FABELOJ
-
-
-nis al la bestoj danci antaŭ homoj. Okazis, ke ĝuste post unu jaro li revenis en la urbon, kie li savis la reĝan filinon. Nun ĉie en la urbo hela skarlato pendis. La ĉasisto demandis la gastejmastron:
+Sed la ĉasisto estis malĝoja, li iris en la mondon kaj ordonis al la bestoj danci antaŭ homoj. Okazis, ke ĝuste post unu jaro li revenis en la urbon, kie li savis la reĝan filinon. Nun ĉie en la urbo hela skarlato pendis. La ĉasisto demandis la gastejmastron:
 
 ”Kion tio signifas? Antaŭ unu jaro la urbo estis kovrita per nigra krepo, kaj hodiaŭ ĉie oni vidas skarlaton?”
 
@@ -2797,14 +2495,10 @@ La leporo estis la plej malforta kaj ne povis komisii tion al iu alia, ĝi do de
 
 ”se mi sola kuros tra la stratoj, la hundoj de la buĉistoj certe persekutos min.”
 
-Okazis, kiel ĝi antaŭvidis, la hundoj kuris post ĝi kaj volis fliki ĝian felon. Sed la leporo galopulo forkuris kaj sin kaŝis en gardodometon. La soldato ne rimarkis ĝin; kiam la hundoj alkuris kaj volis eltiri la leporon, la gardostaranto malafable 97
-
-ELEKTITAJ FABELOJ
+Okazis, kiel ĝi antaŭvidis, la hundoj kuris post ĝi kaj volis fliki ĝian felon. Sed la leporo galopulo forkuris kaj sin kaŝis en gardodometon. La soldato ne rimarkis ĝin; kiam la hundoj alkuris kaj volis eltiri la leporon, la gardostaranto malafable
 
 
-akceptis ilin kaj batis ilin per la pafilo. La hundoj forkuris laŭ-
-
-te kriegante.
+akceptis ilin kaj batis ilin per la pafilo. La hundoj forkuris laŭte kriegante.
 
 Kiam la leporo ekvidis, ke la vojo estas libera, ĝi elsaltis, kuris en la kastelon rekte al la princino, sidiĝis sub ŝia seĝo kaj ekgratis sian piedon.
 
@@ -2837,9 +2531,6 @@ La mastro diris:
 ”Mia vulpeto, kuru kaj alportu al mi reĝan rostaĵon.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La flavulo estis pli ruza, ĝi iris, kaŝante sin en anguloj tiel, ke neniu hundo ĝin vidis, sidiĝis sub la seĝo de la princino kaj ekgratis ŝian piedon.
 
 ŝi rigardis malsupren kaj rekonis la vulpon per la ĉirkaŭko-lo, prenis la senditon en sian ĉambron kaj diris:
@@ -2869,9 +2560,6 @@ i respondis:
 La princino alvokis la kuiriston, li preparis legomojn, kiajn la reĝo manĝas, kaj portis ilin ĝis la pordo de la gastejo. Tie la lupo prenis la pladon kaj alportis ĝin al sia sinjoro.
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Vi vidas, sinjoro mastro,” diris la ĉasisto, ”mi havas panon, rostaĵon kaj legomojn, sed mi volas manĝi ankaŭ dolĉaĵon, kian la reĝo manĝas.”
 
 Li alvokis la urson kaj diris:
@@ -2899,9 +2587,6 @@ Li alvokis la leonon kaj diris:
 ”Kara leono, vi ja volonte trinkus, iru kaj alportu al mi vinon, kian la reĝo trinkas.”
 
 La leono iris en la straton, ĉiuj kuris for; kiam li venis al la gardistoj, ili volis bari al li la vojon. La leono nur unu fojon ekblekis, kaj ĉiuj forsaltis.
-
-
-ELEKTITAJ FABELOJ
 
 
 i iris al la reĝa ĉambro kaj frapis per la vosto la pordon.
@@ -2940,18 +2625,14 @@ La kelestro ekkoleris kaj diris:
 
 ”Kion povas scii pri vino tia malsaĝa bruto.”
 
-Sed la leono donis al li tian vangofrapon, ke li falis teren; kiam li leviĝis, li senvorte kondukis ĝin en apartan malgrandan kelon, kie estis la reĝa vino; ĝin ricevadis neniu krom la reĝo. La leono ree gustumis duonon da vazo kaj diris: 101
-
-ELEKTITAJ FABELOJ
+Sed la leono donis al li tian vangofrapon, ke li falis teren; kiam li leviĝis, li senvorte kondukis ĝin en apartan malgrandan kelon, kie estis la reĝa vino; ĝin ricevadis neniu krom la reĝo. La leono ree gustumis duonon da vazo kaj diris:
 
 
 ”Tio povas esti la reĝa vino,” kaj ordonis plenigi ses bote-lojn. Nun ili supreniris kaj kiam la leono venis en la freŝan aeron, ĝi ŝanceliĝis dekstren kaj maldekstren, ĉar ĝi estis iom ebria. La kelestro devis porti la vinon ĝis la pordo de la gastejo. Tie la leono prenis la korbon per la dentoj kaj alportis
 
 ĝin al sia sinjoro.
 
-”Vi vidas, sinjoro mastro,” diris la ĉasisto, ”mi havas panon, viandon, legomojn, dolĉaĵon kaj vinon reĝajn; nun mi man-
-
-ĝos kun miaj bestoj.”
+”Vi vidas, sinjoro mastro,” diris la ĉasisto, ”mi havas panon, viandon, legomojn, dolĉaĵon kaj vinon reĝajn; nun mi manĝos kun miaj bestoj.”
 
 Li sidiĝis, manĝis kaj trinkis kaj regalis la leporon, vulpon, lupon, urson kaj leonon. Li estis esperplena, ĉar li vidis, ke la princino ankoraŭ amas lin. Post la festeno li diris:
 
@@ -2972,9 +2653,6 @@ La mastro rigardis la tukon kaj diris:
 La ĉasisto metis sur la tablon saketon kun mil oraj moneroj kaj diris:
 
 ”Jen estas mia veto.”
-
-
-ELEKTITAJ FABELOJ
 
 
 ĉe la reĝa tablo la reĝo diris al la filino:
@@ -3015,12 +2693,7 @@ Li surmetis la reĝajn vestojn, prenis la tukon kun la drakaj langoj kaj ekvetur
 
 La reĝo iris renkonte al li kaj enkondukis lin en la kastelon.
 
-La bestoj sekvis la ĉasiston. La reĝo montris al li la lokon in-103
-
-ELEKTITAJ FABELOJ
-
-
-ter si kaj la princino. La marŝalo sidis ĉe la kontraŭa flanko, kiel fianĉo, sed ne rekonis la fremdulon.
+La bestoj sekvis la ĉasiston. La reĝo montris al li la lokon inter si kaj la princino. La marŝalo sidis ĉe la kontraŭa flanko, kiel fianĉo, sed ne rekonis la fremdulon.
 
 Oni alportis la sep kapojn drakajn por montri ilin al ĉiuj, kaj la reĝo diris:
 
@@ -3050,10 +2723,7 @@ Nun la ĉasisto diris:
 
 ”Kiam mi ekdormis laca de la batalo, la marŝalo venis kaj dehakis al mi la kapon; poste li forportis la princinon kaj rakontadis, ke li mortigis la drakon; ke li mensogis, mi pruvas per la langoj, naztuko kaj ĉirkaŭkolo.”
 
-Poste li rakontis, kiel liaj bestoj resanigis lin per mirakla 104
-
-
-ELEKTITAJ FABELOJ
+Poste li rakontis, kiel liaj bestoj resanigis lin per mirakla
 
 
 radiko, ke tutan jaron li migris kun ili kaj fine venis ĉi tien kaj eksciis pri la perfido de la marŝalo per la rakonto de la gastejmastro. La reĝo demandis la filinon:
@@ -3077,9 +2747,6 @@ La juna reĝo diris:
 ”Ekkonu la reĝan favoron: mi lasas al vi la domon kaj korton kaj donacas ankaŭ la mil orajn monerojn.”
 
 La juna reĝo kaj reĝino estis kontentaj kaj vivis feliĉe. Li ofte ĉasis, ĉar tio estis por li granda plezuro, kaj la bestoj devis lin sekvi. Proksime estis arbaro, pri kiu oni diris, ke ĝi estas sorĉita: kiu eniros tien, ne facile revenos. La juna reĝo tre deziris ĉasi tie kaj ne lasis la maljunan reĝon trankvila, ĝis li permesis. La juna reĝo elrajdis kun granda akompanantaro.
-
-
-ELEKTITAJ FABELOJ
 
 
 Kiam li venis en la arbaron, li ekvidis neĝeblankan cervinon kaj diris al siaj servistoj:
@@ -3113,18 +2780,11 @@ La reĝo diris:
 ”Mi ĵetos al vi vergon,” ŝi diris, ”ekbatu per ĝi ilin sur la dorso.”
 
 
-ELEKTITAJ FABELOJ
-
-
-La reĝo prenis la vergon, sed apenaŭ li tuŝis la bestojn, ili senmoviĝis kaj fariĝis ŝtonoj. Nun la sorĉistino estis sendan-
-
-ĝera, desaltis de la arbo, tuŝis per la vergo ankaŭ la reĝon kaj ŝtonigis lin. Tiam ŝi ekridis, tiris lin kaj la bestojn en kavon, kie multe da similaj ŝtonoj kuŝis.
+La reĝo prenis la vergon, sed apenaŭ li tuŝis la bestojn, ili senmoviĝis kaj fariĝis ŝtonoj. Nun la sorĉistino estis sendanĝera, desaltis de la arbo, tuŝis per la vergo ankaŭ la reĝon kaj ŝtonigis lin. Tiam ŝi ekridis, tiris lin kaj la bestojn en kavon, kie multe da similaj ŝtonoj kuŝis.
 
 Kiam la juna reĝo tute ne revenis, la timo kaj ĉagreno de la reĝino estis pli kaj pli grandaj. En la sama tempo la alia frato, kiu ĉe la disiĝo iris orienten, venis en la regnon.
 
-Li serĉis servon, sed trovis ĝin nenie, li do migris kaj liaj bestoj dancis por amuzi la homojn. Foje li rememoris la tran-
-
-ĉilon, kiun ili penetrigis en arbon ĉe la disiĝo, kaj volis ekscii ion pri la sorto de la frato. Li venis tien kaj eltiris la tranĉilon: la flanko de la frato estis duone brilanta, duone kovrita de rusto. Li ektimis kaj pensis:
+Li serĉis servon, sed trovis ĝin nenie, li do migris kaj liaj bestoj dancis por amuzi la homojn. Foje li rememoris la tranĉilon, kiun ili penetrigis en arbon ĉe la disiĝo, kaj volis ekscii ion pri la sorto de la frato. Li venis tien kaj eltiris la tranĉilon: la flanko de la frato estis duone brilanta, duone kovrita de rusto. Li ektimis kaj pensis:
 
 ”Granda malfeliĉo kredeble atingis mian fraton; sed eble mi sukcesos ankoraŭ lin savi, ĉar duono de la tranĉilo estas ankoraŭ brilanta.”
 
@@ -3134,9 +2794,7 @@ La gardistoj estis certaj, ke li estas la juna reĝo, tiel li similis la reĝon 
 
 ”Plej bone estos, se mi lin ŝajnigos; tiamaniere mi pli facile savos lin.”
 
-Li ordonis al la gardistoj snduki en la kastelon kaj estis akceptita kun granda ĝojo. La juna reĝino estis certa, ke li 107
-
-ELEKTITAJ FABELOJ
+Li ordonis al la gardistoj snduki en la kastelon kaj estis akceptita kun granda ĝojo. La juna reĝino estis certa, ke li
 
 
 estas ŝia edzo kaj demandis, kial li tiel longe forestis. Li respondis:
@@ -3175,9 +2833,7 @@ Li respondis:
 
 ”Mi ĵetos al vi vergon, ekbatu ilin per ĝi, tiam mi estos sendanĝera.”
 
-Kiam la ĉasisto aŭdis tion, li diris: 108
-
-ELEKTITAJ FABELOJ
+Kiam la ĉasisto aŭdis tion, li diris:
 
 
 ”Mi ne batos miajn bestojn; venu malsupren, alie mi devigos vin.”
@@ -3194,9 +2850,7 @@ Li ekcelis kaj pafis, sed la sorĉistino ne timis la plumbajn kuglojn kaj brue r
 
 ”Vi ne trafos min.”
 
-Sed la ĉasisto konis la sekreton, deŝiris de sia vesto tri arĝentajn butonojn, ŝarĝis per ili la pafilon kaj pafis. La sor-
-
-ĉistino tuj falis kun krio teren, ĉar ŝia arto ne povis kontraŭ tio efiki. La ĉasisto metis sur ŝin sian piedon kaj diris:
+Sed la ĉasisto konis la sekreton, deŝiris de sia vesto tri arĝentajn butonojn, ŝarĝis per ili la pafilon kaj pafis. La sorĉistino tuj falis kun krio teren, ĉar ŝia arto ne povis kontraŭ tio efiki. La ĉasisto metis sur ŝin sian piedon kaj diris:
 
 ”Maljuna sorĉistino, se vi ne diros tuj, kie mia frato estas, mi kaptos vin per ambaŭ manoj kaj ĵetos en la fajron.”
 
@@ -3214,12 +2868,7 @@ Poste ili kaptis la sorĉistinon, ligis ŝin kaj ĵetis en la fajron.
 
 Apenaŭ la sorĉistino estis bruligita, la arbaro maldensiĝis, fariĝis luma kaj klara, kaj oni povis vidi la reĝan kastelon en interspaco de trihora vojo.
 
-La fratoj iris hejmen kaj rakontis unu al la alia siajn aven-109
-
-ELEKTITAJ FABELOJ
-
-
-turojn. Kiam la pli juna diris, ke li anstataŭas la reĝon en la tuta lando, la alia respondis:
+La fratoj iris hejmen kaj rakontis unu al la alia siajn aventurojn. Kiam la pli juna diris, ke li anstataŭas la reĝon en la tuta lando, la alia respondis:
 
 ”Mi tion konjektis, ĉar kiam mi venis en la urbon, oni pensis, ke tio estis vi, kaj honoris min kiel reĝon: la juna reĝino same opiniis, mi devis manĝi kun ŝi kaj dormi en via lito.”
 
@@ -3243,9 +2892,7 @@ Dume ambaŭ fratoj venis de du flankoj en la korton de la kastelo kaj supreniris
 
 ”Diru, kiu estas via edzo? Ili tiel similas unu la alian, ke mi ne povas rekoni.”
 
-La reĝino tre ektimis kaj ne povis respondi; fine ŝi rememoris la ĉirkaŭkolon, kiun ŝi disdonis al la bestoj. ŝi rimarkis sur unu el la leonoj sian oran bukon kaj gaje ekkriis: 110
-
-ELEKTITAJ FABELOJ
+La reĝino tre ektimis kaj ne povis respondi; fine ŝi rememoris la ĉirkaŭkolon, kiun ŝi disdonis al la bestoj. ŝi rimarkis sur unu el la leonoj sian oran bukon kaj gaje ekkriis:
 
 
 ”Tiu estas mia edzo, kiun sekvos ĉi tiu leono!”
@@ -3259,9 +2906,6 @@ Li sidiĝis ĉe la tablo kaj gaje manĝis kaj trinkis. Vespere, kiam la juna re�
 ”Kial en la lasta tempo vi ĉiam metis ĉe via flanko la dutranĉan glavon? Mi pensis, ke vi volas min mortigi!”
 
 Nur tiam la reĝo komprenis, kiel fidelan fraton li havis.
-
-
-ELEKTITAJ FABELOJ
 
 
 Cindrulino
@@ -3278,9 +2922,7 @@ La virino kunkondukis en la domon du filinojn, kies vizaĝo estis bela kaj blank
 
 Ili forprenis ŝiajn belajn vestojn, surmetis al ŝi grizan malnovan kitelon kaj donis al ŝi lignajn ŝuojn.
 
-”Rigardu la fieran princinon, kiel ornamita ŝi estas!” ili kriis, ridis kaj kondukis ŝin en la kuirejon. ŝi devis de la mateno ĝis la vespero plenumi malfacilan laboron, leviĝi frue an-taŭ la tagiĝo, porti akvon, ekbruligi fajron, kuiri kaj lavi. Krom tio la fratinoj ĉikanis ŝin ĉiamaniere, mokis kaj ŝutis al ŝi la pi-zojn kaj lentojn en la cindron, kaj ŝi devis sidi longe kaj elekti 112
-
-ELEKTITAJ FABELOJ
+”Rigardu la fieran princinon, kiel ornamita ŝi estas!” ili kriis, ridis kaj kondukis ŝin en la kuirejon. ŝi devis de la mateno ĝis la vespero plenumi malfacilan laboron, leviĝi frue an-taŭ la tagiĝo, porti akvon, ekbruligi fajron, kuiri kaj lavi. Krom tio la fratinoj ĉikanis ŝin ĉiamaniere, mokis kaj ŝutis al ŝi la pi-zojn kaj lentojn en la cindron, kaj ŝi devis sidi longe kaj elekti
 
 
 ilin. ĉiuvespere laca pro la laboro, ŝi ne havis liton, sed devis kuŝiĝi apud la fajrujo en la cindro. Kaj ĉar pro tio ŝi estis ĉiam malpura kaj kovrita de polvo, oni nomis ŝin Cindrulino.
@@ -3302,9 +2944,6 @@ Foje la reĝo aranĝis festenon kaj invitis ĉiujn belajn junuli-nojn de la tuta
 ”Kombu niajn harojn, brosu la ŝuojn kaj buku, ni iras al la edziĝa festo en la reĝa kastelo.”
 
 Cindrulino obeis, sed ŝi ploris: ankaŭ ŝi dezirus iri kune por danci, kaj ŝi petis la permeson de la duonpatrino.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Vi Cindrulino, malpura kaj kovrita de polvo volas ĉeesti la festenon? Vi havas nek vestojn, nek ŝuojn, kaj volas danci!”
@@ -3329,9 +2968,7 @@ La knabino alportis la pladon al la duonpatrino, ĝojis kaj pensis, ke nun ŝi p
 
 ŝi turnis al Cindrulino la dorson kaj forveturis kun la du fieraj filinoj.
 
-Kiam neniu plu estis en la domo, Cindrulino iris al la tombo de la patrino sub la avelarbo kaj ekkriis: 114
-
-ELEKTITAJ FABELOJ
+Kiam neniu plu estis en la domo, Cindrulino iris al la tombo de la patrino sub la avelarbo kaj ekkriis:
 
 
 ”Arbo kara, skuu, skuu vin,
@@ -3354,12 +2991,7 @@ Cindrulino dancis ĝis la vespero kaj tiam ŝi volis reiri hejmen. La princo dir
 
 Oni devis alporti al li hakilon kaj pioĉon por batfaligi la kolombejon, sed neniu estis en ĝi.
 
-Kiam la trio revenis hejmen, Cindrulino en sia malpura vesto kuŝis en la cindro kaj malhela olea lampeto brulis sur la kameno, ĉar la knabino estis rapide saltinta el la kolombejo tra malantaŭa pordo kaj forkurinta al la avelarbo: tie ŝi demetis la belan veston kaj lasis ĝin sur la tombo; la birdo forpre-115
-
-ELEKTITAJ FABELOJ
-
-
-nis ĝin kaj ŝi en sia griza kitelo eksidis en la kuirejo sur la cindro.
+Kiam la trio revenis hejmen, Cindrulino en sia malpura vesto kuŝis en la cindro kaj malhela olea lampeto brulis sur la kameno, ĉar la knabino estis rapide saltinta el la kolombejo tra malantaŭa pordo kaj forkurinta al la avelarbo: tie ŝi demetis la belan veston kaj lasis ĝin sur la tombo; la birdo forprenis ĝin kaj ŝi en sia griza kitelo eksidis en la kuirejo sur la cindro.
 
 En la sekvinta tago, kiam rekomenciĝis la balo kaj la gepatroj kun ŝiaj fratinoj forveturis, Cindrulino iris al la avelarbo kaj diris:
 
@@ -3383,9 +3015,7 @@ La patro pensis:
 
 Li ordonis alporti hakilon kaj faligis la arbon, sed neniu estis sur ĝi. Kaj kiam la trio revenis hejmen, Cindrulino kuŝis en la cindro, kiel ordinare, ĉar ŝi desaltis de la alia flanko de la arbo, redonis la belan veston al la birdo kaj surmetis la grizan kitelon.
 
-En la tria tago, kiam la gepatroj kaj fratinoj forveturis, Cindrulino ree iris al la tombo de la patrino kaj diris al la arbo: 116
-
-ELEKTITAJ FABELOJ
+En la tria tago, kiam la gepatroj kaj fratinoj forveturis, Cindrulino ree iris al la tombo de la patrino kaj diris al la arbo:
 
 
 ”Arbo kara, skuu, skuu vin,
@@ -3408,9 +3038,7 @@ Ambaŭ fratinoj ekĝojis, ĉar ili havis belajn piedojn; la pli aĝa iris en la 
 
 ”Fortranĉu la piedfingron; kiam vi fariĝos reĝino, vi ne piedirados.”
 
-La knabino fortranĉis la piedfingron, superforte enpuŝis la piedon en la ŝuon, kunpremis pro doloro la dentojn kaj iris renkonte al la princo. Li prenis ŝin kiel fianĉinon sur la ĉevalon kaj forrajdis kun ŝi. Ili devis preterrajdi la tombon; tie sidis sur la avelarbo du kolombetoj kaj vokis: 117
-
-ELEKTITAJ FABELOJ
+La knabino fortranĉis la piedfingron, superforte enpuŝis la piedon en la ŝuon, kunpremis pro doloro la dentojn kaj iris renkonte al la princo. Li prenis ŝin kiel fianĉinon sur la ĉevalon kaj forrajdis kun ŝi. Ili devis preterrajdi la tombon; tie sidis sur la avelarbo du kolombetoj kaj vokis:
 
 
 ”Gruk-ru, gruk-ru, gruk-ru,
@@ -3435,9 +3063,7 @@ Li rigardis ŝian piedon kaj vidis la elfluantan sangon, pro kiu ruĝiĝis la bl
 
 ”Ankaŭ ĉi tiu ne estas la vera. ĉu vi havas neniun alian filinon?”
 
-”Ne,” diris la patro, ”de mia mortinta edzino restis nur 118
-
-ELEKTITAJ FABELOJ
+”Ne,” diris la patro, ”de mia mortinta edzino restis nur
 
 
 malgranda, mizera Cindrulino. Sed ŝi sendube ne povas esti la fianĉino.”
@@ -3464,17 +3090,12 @@ Dirinte tion, ili deflugis de la arbo kaj eksidis sur la ŝultroj de Cindrulino,
 
 Kiam venis la tempo de la edziĝo, la malsinceraj fratinoj volis per flato akiri la favoron de la juna reĝino kaj partopreni ŝian feliĉon.
 
-Kiam la edziĝontoj iris al la preĝejo, la pli aĝa fratino estis ĉe la dekstra flanko de Cindrulino, la pli juna ĉe la maldekstra; la kolombetoj elpikis al ambaŭ po unu okulo. Poste, 119
-
-ELEKTITAJ FABELOJ
+Kiam la edziĝontoj iris al la preĝejo, la pli aĝa fratino estis ĉe la dekstra flanko de Cindrulino, la pli juna ĉe la maldekstra; la kolombetoj elpikis al ambaŭ po unu okulo. Poste,
 
 
 dum la reveno, la pli aĝa estis ĉe la maldekstra flanko, la pli juna ĉe la dekstra: la kolombetoj elpikis al ambaŭ la alian okulon.
 
 Tiel ilia malboneco kaj malsincereco estis punitaj per blin-deco eterna.
-
-
-ELEKTITAJ FABELOJ
 
 
 Fidela Johano
@@ -3496,9 +3117,6 @@ Fidela Johano respondis:
 La maljuna reĝo diris:
 
 ”Nun konsolita mi mortos trankvile. Post mia morto vi montros al li la tutan kastelon, ĉiujn ĉambrojn, salonojn kaj kelojn kaj ĉiujn trezorojn, kiuj kuŝas tie: sed vi ne rajtas montri al li la lastan ĉambron en la longa koridoro, kie estas la portreto de la princino de Ora Kupolo. Se li vidos la portreton, li eksentos nevenkeblan amon al ŝi, svenos kaj pro ŝi granda danĝero minacos lin; gardu lntraŭ tio.
-
-
-ELEKTITAJ FABELOJ
 
 
 Fidela Johano ankoraŭ unu fojon promesis ĉion plenumi, la reĝo eksilentis, kuŝigis la kapon sur la kusenon kaj mortis.
@@ -3526,9 +3144,6 @@ Sed la reĝo respondis:
 ”Ah ne,” respondis la reĝo, ”plej granda malfeliĉo estos, se mi ne eniros: mi ne ĝuos trankvilon tage kaj nokte, se miaj okuloj ne vidos la ĉambron. Mi ne foriros, ĝis vi malfermos.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Fidela Johano komprenis, ke ne eble estas rifuzi, kaj vole nevole devis serĉi la ŝlosilon en la ligaĵo.
 
 Fine li malfermis kaj eniris unua penante kovri la portreton per sia persono, sed vane: la reĝo ekstaris sur la fingroj kaj rigardis super liaj ŝultroj. Kiam li ekvidis la portreton de la ĉarma princino, ornamitan per oro kaj diamantoj, li falis sveninta sur la plankon. Fidela Johano levis lin, portis en liton kaj pensis ĉagrenita:
@@ -3547,12 +3162,7 @@ La fidela servisto longe meditis, kion fari, ĉar estis tre mal-facile atingi la
 
 ”ĉio, kio ĉirkaŭas la princinon, estas el oro: tabloj, seĝoj, pladoj, pokaloj, kaj mebloj. En via trezorejo kuŝas kvin bareloj da oro, ordonu al la oraĵistoj de la regno fari el unu diversajn vazojn kaj meblojn, diversajn birdojn, sovaĝajn bestojn kaj monstrojn, tio plaĉos al ŝi. Ni veturos al ŝi kun la donacoj kaj provos la fortunon.”
 
-La reĝo kunvokis ĉiujn oraĵistojn, kaj ili laboris tage kaj nokte, ĝis fine ĉio estis preta. Kiam oni ŝarĝis ŝipon, fidela Johano vestis sin kiel komercisto, kaj la reĝo devis fari la sa-123
-
-ELEKTITAJ FABELOJ
-
-
-mon por fariĝi tute nerekonebla. Ili ekveturis kaj veturis tiel longe, ĝis fine ili atingis la urbon, kie loĝis la princino de Ora Kupolo.
+La reĝo kunvokis ĉiujn oraĵistojn, kaj ili laboris tage kaj nokte, ĝis fine ĉio estis preta. Kiam oni ŝarĝis ŝipon, fidela Johano vestis sin kiel komercisto, kaj la reĝo devis fari la samon por fariĝi tute nerekonebla. Ili ekveturis kaj veturis tiel longe, ĝis fine ili atingis la urbon, kie loĝis la princino de Ora Kupolo.
 
 Fidela Johano foriris kaj lasis la reĝon sur la ŝipo.
 
@@ -3577,9 +3187,6 @@ La princino postulis, ke oni alportu ĉion al ŝi, sed li diris:
 ”Tio postulus multe da tagoj kaj tiom da ĉambroj por dismeti ĉion, ke via tuta domo ne sufiĉus.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Tiam ŝia scivolo kaj deziro estis tiel ekscititaj, ke ŝi fine diris:
 
 ”Konduku min al la ŝipo, mi volas mem vidi la trezorojn de via sinjoro.”
@@ -3600,9 +3207,7 @@ La reĝo prenis ŝian manon kaj diris:
 
 Aŭdinte tion la princino de Ora Kupolo konsoliĝis, eksentis amon al la reĝo kaj konsentis fariĝi lia edzino.
 
-Kiam ili veturis sur la plena maro, fidela Jobano, kiu sidis ĉe la kilo kaj ludis instrumenton, ekvidis foje super si tri kor-vojn, flugantajn en la aero. Li ĉesis ludi kaj aŭskultis ilian interparoladon, ĉar li bone komprenis ĝin. Unu diris: 125
-
-ELEKTITAJ FABELOJ
+Kiam ili veturis sur la plena maro, fidela Jobano, kiu sidis ĉe la kilo kaj ludis instrumenton, ekvidis foje super si tri kor-vojn, flugantajn en la aero. Li ĉesis ludi kaj aŭskultis ilian interparoladon, ĉar li bone komprenis ĝin. Unu diris:
 
 
 ”Li jam forportas en sian hejmon la princinon de Ora Kupolo.”
@@ -3635,9 +3240,7 @@ La tria demandis:
 
 La tria diris:
 
-”Mi scias ankoraŭ ion; eĉ se la ĉemizo estos bruligita, la juna reĝo ne havos sian fianĉinon: kiam post la edziĝo la juna 126
-
-ELEKTITAJ FABELOJ
+”Mi scias ankoraŭ ion; eĉ se la ĉemizo estos bruligita, la juna reĝo ne havos sian fianĉinon: kiam post la edziĝo la juna
 
 
 reĝino ekdancos, ŝi subite paliĝos kaj falos kvazaŭ senviva. Se iu ne levos ŝin, ne elsuĉos el ŝia dekstra brusto tri gutojn da sango kaj ne elkraĉos ilin senprokraste, la princino vere mortos. Sed tiu, kiu scios tion kaj diros al la reĝo, fariĝos ŝtono de la kapo ĝis la piedoj.”
@@ -3665,14 +3268,9 @@ La juna reĝo estis prenonta ĝin en la manon, sed fidela Johano forpuŝis lin, 
 Sed la juna reĝo diris:
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kiu scias, kial li faris tion; ne malhelpu lin, li estas mia fidela Johano.”
 
-Oni festis la edziĝon: Oni komencis danci kaj la juna reĝi-no ankaŭ partoprenis. Fidela Johano atente rigardis ŝian viza-
-
-ĝon; subite ŝi paliĝis kaj falis teren kvazaŭ senviva. Li rapide saltis al ŝi, levis ŝin kaj portis en ĉambron, kie li kuŝigis ŝin, ekgenuis, elsuĉis el ŝia dekstra brusto tri gutojn da sango kaj elkraĉis ilin. Tuj ŝi ekspiris kaj rekonsciiĝis; sed la juna reĝo, kiu vidis ĉion kaj ne komprenis, kial fidela Johano tion faris, ekkoleris kaj ekkriis:
+Oni festis la edziĝon: Oni komencis danci kaj la juna reĝi-no ankaŭ partoprenis. Fidela Johano atente rigardis ŝian vizaĝon; subite ŝi paliĝis kaj falis teren kvazaŭ senviva. Li rapide saltis al ŝi, levis ŝin kaj portis en ĉambron, kie li kuŝigis ŝin, ekgenuis, elsuĉis el ŝia dekstra brusto tri gutojn da sango kaj elkraĉis ilin. Tuj ŝi ekspiris kaj rekonsciiĝis; sed la juna reĝo, kiu vidis ĉion kaj ne komprenis, kial fidela Johano tion faris, ekkoleris kaj ekkriis:
 
 ”ĵetu lin en la malliberejon.”
 
@@ -3690,9 +3288,7 @@ kaj li rakontis, kiel li aŭdis la interparoladon de la korvoj kaj kiel li plenu
 
 ”Ho, mia fidela Johano,” ekkriis la reĝo, ”mi pardonas vin, venu.”
 
-Sed fidela Johano post siaj lastaj vortoj falis senviva: li fari-
-
-ĝis ŝtono. La gereĝoj tre ĉagreniĝis, kaj la reĝo diris:
+Sed fidela Johano post siaj lastaj vortoj falis senviva: li fariĝis ŝtono. La gereĝoj tre ĉagreniĝis, kaj la reĝo diris:
 
 ”Ho ve, kiel mi rekompencis lian fidelecon!” kaj ordonis starigi la ŝtonan statuon en sia dormoĉambro apud la lito.
 
@@ -3700,9 +3296,7 @@ Sed fidela Johano post siaj lastaj vortoj falis senviva: li fari-
 
 ”Ah, se mi povus revivigi vin, mia fidela Johano.”
 
-Post iom da tempo la reĝino naskis du filojn. La ĝemeloj 128
-
-ELEKTITAJ FABELOJ
+Post iom da tempo la reĝino naskis du filojn. La ĝemeloj
 
 
 sane kreskis kaj ĝojigis la gepatrojn. Foje, kiam la reĝino estis en la preĝejo, kaj la du knaboj ludis ĉe la patro, li diris sopire:
@@ -3733,9 +3327,7 @@ La reĝo daŭrigis:
 
 ”Kara edzino, ni povas revivigi lin, sed ni devas oferi por tio la vivon de ambaŭ niaj infanoj.”
 
-La reĝino paliĝis de teruro, tamen ŝi diris: 129
-
-ELEKTITAJ FABELOJ
+La reĝino paliĝis de teruro, tamen ŝi diris:
 
 
 ”Ni tion ŝuldas al li pro lia granda fideleco.”
@@ -3744,12 +3336,7 @@ Li ĝojis, ke ili estas unuanimaj, malfermis la ŝrankon kaj ellasis fidelan Joh
 
 ”Benata estu Dio! Johano estas savita, kaj niajn infanojn ni ankaŭ havas.”
 
-Li rakontis, kiel ĉio okazis, kaj de tiu tempo ili ĉiuj vivis feli-
-
-ĉaj ĝis la fino.
-
-
-ELEKTITAJ FABELOJ
+Li rakontis, kiel ĉio okazis, kaj de tiu tempo ili ĉiuj vivis feliĉaj ĝis la fino.
 
 
 La kuraĝa tajloreto
@@ -3770,12 +3357,7 @@ La virino, kiu esperis vendi multe, donis al li, kion li postulis, kaj foriris k
 
 ”Nun benu Dio la marmeladon kaj donu al mi sanon kaj fortojn,” ekkriis la tajloreto, prenis panon el la ŝranko, tranĉis pecon tra la tuta bulo kaj surŝmiris la marmeladon. Li metis la pecon apud si, daŭrigis la kudradon kaj pro ĝojo faris pli kaj pli grandajn stebojn. Dume la odoro de la dolĉa marmelado leviĝis al la muro, kie muŝoj sidis amase, kaj allogis ilin al la pano.
 
-”Kiu invitis vin?” demandis la tajloreto kaj forpelis la tru-demajn gastojn. Sed la muŝoj, kiuj ne komprenis Esperanton, ne sole ne cedis, sed venis en pli kaj pli granda nombro. Ek-131
-
-ELEKTITAJ FABELOJ
-
-
-koleris la tajloreto, prenis ĉifonon kaj senkompate batis la muŝojn kriante:
+”Kiu invitis vin?” demandis la tajloreto kaj forpelis la tru-demajn gastojn. Sed la muŝoj, kiuj ne komprenis Esperanton, ne sole ne cedis, sed venis en pli kaj pli granda nombro. Ekkoleris la tajloreto, prenis ĉifonon kaj senkompate batis la muŝojn kriante:
 
 ”Atendu, mi regalos vin.”
 
@@ -3798,9 +3380,6 @@ La giganto malestime ekrigardis la tajloron kaj diris:
 ”Vi ĉifono, vi mizera estaĵo!”
 
 ”Atendu iom,” respondis la tajloreto, malbutonumis la surtuton kaj montris al la giganto la zonon: ”Legu ĉi tion kaj vi scios, kiu mi estas.”
-
-
-ELEKTITAJ FABELOJ
 
 
 La giganto legis: ”Sep per unu bato,” pensis, ke la tajloro mortigis tiom da homoj kaj iom ekrespektis la malgrandan personon. Sed por lin provi, li prenis ŝtonon en la manon kaj tiel forte premis ĝin, ke akvo elgutis.
@@ -3831,9 +3410,7 @@ Li kondukis la tajloron al grandega dehakita kverko kaj diris:
 
 ”Volonte,” respondis la malgranda viro, ”prenu nur la trunkon sur la ŝultron, mi levos kaj portos la branĉaron, ĝi ja estas plej peza.”
 
-La giganto prenis la trunkon sur la ŝultron, la tajloro eksidis sur branĉo, kaj la giganto, kiu ne povis sin turni, devis 133
-
-ELEKTITAJ FABELOJ
+La giganto prenis la trunkon sur la ŝultron, la tajloro eksidis sur branĉo, kaj la giganto, kiu ne povis sin turni, devis
 
 
 porti la tutan arbon kaj la tajloron kiel aldonon. La ruzulo estis ĝoja kaj gaja, fajfis la kanteton: ”Tri tajloroj rajdis el la pordego,” kvazaŭ la ŝarĝo estus por li infana ludo. La giganto portis la pezan arbon iom da tempo, fine li ne povis plu iri kaj ekkriis:
@@ -3865,9 +3442,6 @@ La tajloro konsentis kaj sekvis lin. Kiam ili venis en la kavernon, tie sidis ke
 ”Multe pli vaste estas ĉi tie, ol en mia laborejo.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La giganto montris al li liton kaj invitis lin dormi sur ĝi. La lito estis tro granda por la tajloro, li ne kuŝiĝis, sed enrampis en angulon. Noktomeze la giganto pensante, ke li jam dormas, prenis grandan feran stangon kaj per unu bato disrompis la liton. Li estis certa, ke li mortigis la vireton. Frumatene la gigantoj iris en la arbaron kaj tute forgesis pri la tajloro.
 
 Kiam li venis al ili gaje kaj kuraĝe, ili ektimis, ke li mortigos ilin ĉiujn, kaj forkuris galope.
@@ -3889,9 +3463,6 @@ La militistoj enviis la tajloron preferante vidi lin mil mejlojn de la urbo.
 ”Kio okazos,” interparolis ili, ”se ni ekmalpacos kun li? Li mortigos sep per unu bato, neniu el ni restos vivanta.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Ili decidis ĉiuj iri al la reĝo kaj peti eksiĝon:
 
 ”Ni ne povas resti kun homo, kiu faligas sep per unu bato.
@@ -3908,12 +3479,7 @@ Kiam li venis al la rando de la arbaro, li diris al la akompanantoj:
 
 ”Restu ĉi tie, miaj propraj fortoj sufiĉos kontraŭ la gigantoj.”
 
-Li salte eniris en la arbaron kaj ĉirkaŭrigardis dekstren kaj maldekstren. Post momento li ekvidis la gigantojn: ili kuŝis sub arbo, dormis kaj tiel ronkis, ke la branĉoj fleksiĝis. La tajloro rapide kolektis ŝtonojn en ambaŭ poŝojn kaj surrampis la arbon. Tie li glitis sur branĉon, kiu estis ĝuste super la gigantoj kaj komencis ĵeti la ŝtonojn unu post alia sur la brus-136
-
-ELEKTITAJ FABELOJ
-
-
-ton de unu el la dormantoj. La giganto longe sentis nenion, sed fine li vekiĝis, puŝegis sian kunulon kaj diris:
+Li salte eniris en la arbaron kaj ĉirkaŭrigardis dekstren kaj maldekstren. Post momento li ekvidis la gigantojn: ili kuŝis sub arbo, dormis kaj tiel ronkis, ke la branĉoj fleksiĝis. La tajloro rapide kolektis ŝtonojn en ambaŭ poŝojn kaj surrampis la arbon. Tie li glitis sur branĉon, kiu estis ĝuste super la gigantoj kaj komencis ĵeti la ŝtonojn unu post alia sur la bruston de unu el la dormantoj. La giganto longe sentis nenion, sed fine li vekiĝis, puŝegis sian kunulon kaj diris:
 
 ”Kial vi batas min?”
 
@@ -3941,9 +3507,7 @@ Li eltiris sian glavon, donis al ambaŭ kelke da batoj sur la bruston, revenis a
 
 ”Tute ne!” respondis la tajloro, ”mi ne perdis eĉ unu haron.”
 
-La kavaliroj ne volis kredi kaj rajdis en la arbaron: tie ili 137
-
-ELEKTITAJ FABELOJ
+La kavaliroj ne volis kredi kaj rajdis en la arbaron: tie ili
 
 
 trovis la gigantojn dronantaj en la propra sango, kaj ĉirkaŭe kuŝis la elŝiritaj arboj.
@@ -3970,12 +3534,7 @@ La reĝo ne volis ankoraŭ doni al li la promesitan rekompencon kaj prezentis tr
 
 ”Volonte,” diris la tajloro,” tio estas infana ludo.”
 
-Li eniris en la arbaron sen la ĉasistoj, kaj ili estis tre kon-138
-
-ELEKTITAJ FABELOJ
-
-
-tentaj, ĉar la apro tiamaniere akceptis ilin kelkfoje, ke ili tute ne deziris renkonti ĝin. Kiam la apro lin ekvidis, ĝi kuris kun ŝaŭmanta buŝego montrante la akrajn dentojn kaj volis faligi lin, sed li saltis en apudan kapelon kaj tuj elsaltis eksteren tra supra fenestro. La apro penetris post li en la kapelon, sed li jam estis ekstere kaj brufermis la pordon. La kaptita besto estis tro peza kaj mallerta por elsalti tra fenestro. La tajloro alvokis la ĉasistojn, por ke ili vidu la kaptiton per la propraj okuloj, kaj li mem iris al la reĝo, kiu tiun ĉi fojon devis plenumi la promeson kaj doni al li la filinon kaj la duonon da regno. Se li estus sciinta, ke la heroo estas simpla tajloreto! La edziĝon oni festis kun granda pompo kaj malgranda ĝojo, kaj la tajloro fariĝis reĝo.
+Li eniris en la arbaron sen la ĉasistoj, kaj ili estis tre kontentaj, ĉar la apro tiamaniere akceptis ilin kelkfoje, ke ili tute ne deziris renkonti ĝin. Kiam la apro lin ekvidis, ĝi kuris kun ŝaŭmanta buŝego montrante la akrajn dentojn kaj volis faligi lin, sed li saltis en apudan kapelon kaj tuj elsaltis eksteren tra supra fenestro. La apro penetris post li en la kapelon, sed li jam estis ekstere kaj brufermis la pordon. La kaptita besto estis tro peza kaj mallerta por elsalti tra fenestro. La tajloro alvokis la ĉasistojn, por ke ili vidu la kaptiton per la propraj okuloj, kaj li mem iris al la reĝo, kiu tiun ĉi fojon devis plenumi la promeson kaj doni al li la filinon kaj la duonon da regno. Se li estus sciinta, ke la heroo estas simpla tajloreto! La edziĝon oni festis kun granda pompo kaj malgranda ĝojo, kaj la tajloro fariĝis reĝo.
 
 Post iom da tempo la juna reĝino aŭdis nokte, kiel ŝia edzo parolis en sonĝo:
 
@@ -3989,17 +3548,12 @@ La edzino estis kontenta, sed paĝio tre sindona al la juna sinjoro aŭdis ĉion
 
 ”Mi ordigos ĉion,” diris la tajloreto. Vespere en la kutima horo li kuŝiĝis kun la edzino: kiam ŝi opiniis, ke li jam ekdormis, ŝi leviĝis, malfermis la pordon kaj revenis en la liton. La tajloreto, kiu nur ŝajnigis dormon, komencis laŭte krii:
 
-”Knabo, finu la kamizolon kaj fliku la pantalonon, aŭ vi 139
-
-ELEKTITAJ FABELOJ
+”Knabo, finu la kamizolon kaj fliku la pantalonon, aŭ vi
 
 
 eksentos la ulnon sur viaj oreloj. Mi faligis sep per unu bato, mortigis du gigantojn, alkondukis unukornulon kaj kaptis apron! ĉu mi timos tiujn, kiuj staras post la pordo?”
 
 ĉi tiuj, aŭdante la vortojn de la tajloro, tiel ektimis, ke ili forkuris kvazaŭ de la diablo. Neniu kuraĝis plu ataki lin kaj tiamaniere la tajloreto estis reĝo ĝis la morto.
-
-
-ELEKTITAJ FABELOJ
 
 
 La maljunulino Holle
@@ -4015,9 +3569,6 @@ La knabino revenis al la puto kaj ne sciis kion fari: ĉagrenita ŝi saltis en l
 ŝi proksimiĝis kaj eltiris per ŝovelilo ĉiujn panbulojn unu post alia. ŝi daŭrigis la vojon kaj venis al arbo tute kovrita de pomoj, kiu vokis:
 
 ”Skuu min, skuu min, ĉiuj miaj pomoj jam estas maturaj.”
-
-
-ELEKTITAJ FABELOJ
 
 
 ŝi ekskuis la arbon kaj la pomoj falis kvazaŭ pluvo; ŝi skuis tiel longe, ĝis neniu pomo restis supre, kolektis ĉiujn en unu amason kaj foriris. Fine ŝi venis al dometo, el kiu elrigardis maljuna virino. La knabino ektimis, ĉar la maljunulino havis grandajn dentojn, kaj volis forkuri, sed la bona virino alvokis ŝin dirante:
@@ -4036,9 +3587,7 @@ Holle diris:
 
 ”Plaĉas al mi, ke vi deziras reveni hejmen. Vi fidele min servis, mi mem kondukos vin supren.”
 
-ŝi prenis la manon de la orfino kaj kondukis ŝin al granda pordego. i estis malfermita kaj kiam la knabino staris tie, 142
-
-ELEKTITAJ FABELOJ
+ŝi prenis la manon de la orfino kaj kondukis ŝin al granda pordego. i estis malfermita kaj kiam la knabino staris tie,
 
 
 ekfalis granda ora pluvo, La oro gluiĝis al ŝi kaj kovris ŝin tutan.
@@ -4071,9 +3620,7 @@ kaj foriris. Baldaŭ ŝi venis al la pomarbo, kiu vokis:
 
 ”Por ke pomo falu sur mian kapon?” kaj foriris.
 
-Kiam ŝi venis en la domon de la maljunulino, ŝi ne timis, ĉar ŝi jam aŭdis pri ŝiaj grandaj dentoj, kaj tuj dungis sin. En la unua tago ŝi venkis sian maldiligentecon: estis laborema 143
-
-ELEKTITAJ FABELOJ
+Kiam ŝi venis en la domon de la maljunulino, ŝi ne timis, ĉar ŝi jam aŭdis pri ŝiaj grandaj dentoj, kaj tuj dungis sin. En la unua tago ŝi venkis sian maldiligentecon: estis laborema
 
 
 kaj obeema, ĉar ŝi pensis pri la ricevota oro; sed jam en la dua tago ŝi komencis maldiligenti kaj en la tria ŝi tute ne volis matene leviĝi. La liton ŝi ankaŭ preparis ne zorge, kaj ne batis la plumkovrilon tiel, ke la plumoj flugu. Fine ŝi tedis sian sinjorinon, kiu eksigis ŝin. La maldiligenta knabino estis kontenta kaj atendis nur la oran pluvon; la maljunulino kondukis ŝin al la pordego, sed kiam la knabino staris tie, anstataŭ oro oni elverŝis sur ŝin peĉon el granda kaldrono.
@@ -4087,14 +3634,9 @@ La malpura knabino estas tie ĉi.”
 La peĉo algluiĝis tiel forte, ke ĝi restis neforigebla dum ŝia tuta vivo.
 
 
-ELEKTITAJ FABELOJ
-
-
 La bremenaj muzikistoj
 
-Viro havis azenon, kiu dum longaj jaroj pacience portadis sakojn al la muelejo, sed kiu jam komencis perdi la fortojn kaj fariĝis malpli kaj malpli taŭga por la laboro. Tiam la mastro ekmeditis, kiel liberiĝi de ĝi; sed la azeno komprenis, ke ekblovis malbona vento, kaj forkuris Bremenon, intencante fariĝi tie urba mizikisto. Sur la vojo li baldaŭ renkontis ku-
-
-ŝantan ĉashundon, kiu spiregis kiel iu, kiu laciĝis de la kurado.
+Viro havis azenon, kiu dum longaj jaroj pacience portadis sakojn al la muelejo, sed kiu jam komencis perdi la fortojn kaj fariĝis malpli kaj malpli taŭga por la laboro. Tiam la mastro ekmeditis, kiel liberiĝi de ĝi; sed la azeno komprenis, ke ekblovis malbona vento, kaj forkuris Bremenon, intencante fariĝi tie urba mizikisto. Sur la vojo li baldaŭ renkontis kuŝantan ĉashundon, kiu spiregis kiel iu, kiu laciĝis de la kurado.
 
 ”Kial vi tiel spiregas, kamarado?” demandis la azeno.
 
@@ -4108,9 +3650,7 @@ La hundo konsentis kaj ili ekiris kune. Post nelonge ili renkontis katon, kies m
 
 ”Kiu povas esti gaja, kiam oni timas pro sia propra kapo,”
 
-respondis la kato, ”ĉar mi maljuniĝas, manĝis jam miajn dentojn, kaj preferas sidi post la forno kaj murmuri kiel ŝpinilo, 145
-
-ELEKTITAJ FABELOJ
+respondis la kato, ”ĉar mi maljuniĝas, manĝis jam miajn dentojn, kaj preferas sidi post la forno kaj murmuri kiel ŝpinilo,
 
 
 ol kapti la musojn, mia sinjorino volis min dronigi; mi forkuris, sed kion fari nun, ne facila estas konsilo.”
@@ -4136,9 +3676,6 @@ Antaŭ ol li ekdormis, li ĉirkaŭrigardis al ĉiuj kvar flankoj kaj ŝajnis al 
 ”Ni forlasu nian loĝejon kaj iru tien, ĉar nia gastejo estas malbona.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La hundo aldonis:
 
 ”Kelke da ostoj kun viando sur ili ne malplaĉus al mi.”
@@ -4159,9 +3696,7 @@ La azeno ekkuŝis sur la sterko, la hundo ĉe la pordo, la kato sur la forno ĉe
 
 Ili estis lacaj de la longa vojaĝo kaj tuj ekdormis. Post noktomezo, kiam la ŝtelistoj vidis de malproksime, ke en la domo estas mallume kaj silente, la estro diris:
 
-”Kial ni permesis forpeli nin?” kaj ordonis al unu iri en la 147
-
-ELEKTITAJ FABELOJ
+”Kial ni permesis forpeli nin?” kaj ordonis al unu iri en la
 
 
 domon kaj esplori ĝin. La sendito trovis ĉion silenta kaj eniris en la kuirejon por ekbruligi lumon. La fajraj, brilaj okuloj de la kato ŝajnis al li brulantaj karboj kaj li almetis alumeton; sed la kato, kiu ne amis ŝercojn, saltis sur lian vizaĝon, kraĉis kaj gratis. Terurita li kuris al la posta pordo, sed la hundo, kiu tie kuŝis, sin ĵetis al li kaj ekmordis lian kruron; kiam li pasis tra la korto apud la sterko, la azeno malavare regalis lin per la posta piedo kaj la koko vekita de la bruo vigle ekkriis sur la trabo:
@@ -4177,9 +3712,6 @@ Mi do forkuris.”
 De tiu tempo la rabistoj ne kuraĝis reveni en la domon, kaj al la kvar bremenaj muzikistoj ĝi tiel plaĉis, ke ili ne volis eliri.
 
 Ne fermita ankoraŭ estas la buŝo de tiu, kiu lasta tion rakontis.
-
-
-ELEKTITAJ FABELOJ
 
 
 Tri oraj haroj de la diablo
@@ -4202,9 +3734,7 @@ La reĝo metis ĝin en skatolon kaj forrajdis. Kiam li venis al profunda akvo, l
 
 Sed la skatolo ne dronis, ĝi naĝis, kiel ŝipeto: eĉ unu guto da akvo ne penetris en ĝin. i naĝis tiel ĝis muelejo, du mejlojn de la reĝa ĉefurbo, kaj haltis ĉe la akvobaro.
 
-Muelisteto, kiu feliĉe staris tie kaj rimarkis ĝin, altiris ĝin 149
-
-ELEKTITAJ FABELOJ
+Muelisteto, kiu feliĉe staris tie kaj rimarkis ĝin, altiris ĝin
 
 
 per hoko esperante trovi en ĝi grandajn trezorojn. Li malfermis la skatolon: tie kuŝis bela knabo freŝa kaj gaja. Li portis la etulon en la muelejon; la gemuelistoj, kiuj ne havis infanojn, ekĝojis kaj diris:
@@ -4232,9 +3762,6 @@ La knabo ekiris kun la letero, sed perdis la vojon kaj venis vespere en grandan 
 ”Mi venas de la muelejo,” respondis li, ”kaj iras al la reĝino kun letero; mi perdis la vojon kaj mi volonte pasigus ĉi tie la nokton.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Malfeliĉa infano,” diris la virino, ”vi venis en domon de rabistoj, se ili trovos vin ĉi tie, ili mortigos vin.”
 
 ”Ili venu, venu iu ajn, mi ne timas, cetere mi estas tiel laca, ke mi ne povas plu iri,” diris la junulo, sin etendis sur benko kaj ekdormis. Baldaŭ venis la rabistoj kaj demandis kolere, kiu estas la fremda knabo.
@@ -4249,16 +3776,9 @@ Post iom da tempo la reĝo revenis en la kastelon kaj vidis, ke la antaŭdiro re
 
 ”Kiel tio okazis?” demandis li, ”mi ordonis en la letero ion tute alian.”
 
-La reĝino montris al li la leteron, por ke li mem vidu la enhavon. La reĝo legis la leteron kaj tuj rimarkis, ke oni ŝan-
+La reĝino montris al li la leteron, por ke li mem vidu la enhavon. La reĝo legis la leteron kaj tuj rimarkis, ke oni ŝanĝis la lian. Li demandis la junulon, kie estas la letero konfidita al li kaj kial li alportis anstataŭe alian.
 
-ĝis la lian. Li demandis la junulon, kie estas la letero konfidita al li kaj kial li alportis anstataŭe alian.
-
-”Mi scias nenion,” respondis la junulo, ”kredeble oni ŝan-
-
-ĝis ĝin nokte, kiam mi dormis en la arbaro.”
-
-
-ELEKTITAJ FABELOJ
+”Mi scias nenion,” respondis la junulo, ”kredeble oni ŝanĝis ĝin nokte, kiam mi dormis en la arbaro.”
 
 
 La reĝo diris kolere:
@@ -4296,9 +3816,6 @@ Li daŭrigis la vojon kaj venis al granda akvo, kiun li devis transpasi. La pram
 Trans la akvo li trovis la eniron en la inferon, la truo estis nigra kaj kovrita de fulgo. La diablo ne estis hejme, estis nur lia patrino. La inferanino sidis en larĝa apogseĝo.
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kion vi volas?” ŝi demandis, sed ŝia mieno ne estis seve-ra.
 
 ”Mi bezonas tri orajn harojn de la kapo de la diablo,” li respondis, ”alie mi ne povas konservi mian edzinon.”
@@ -4307,9 +3824,7 @@ ELEKTITAJ FABELOJ
 
 ŝi aliformigis lin formiko kaj diris:
 
-”Rampu inter la faldojn de mia jupo, tie vi estos sendan-
-
-ĝera.”
+”Rampu inter la faldojn de mia jupo, tie vi estos sendanĝera.”
 
 ”Bone,” diris la knabo, ”sed mi bezonas scii tri aferojn: Kial puto, el kiu iam fluis vino, tute sekiĝis kaj ne liveras nun eĉ akvon; kial arbo, kiu havis iam orajn pomojn, ne havas nun eĉ foliojn, kaj kial pramisto devas ĉiam veturi kaj reveturi kaj neniam liberiĝas.”
 
@@ -4326,9 +3841,6 @@ La patrino mallaŭdis lin:
 ”Mi ĵus balais kaj metis ĉion en ĝustan lokon, kaj vi ĉion malordigas. ĉiam via nazo sentas homan viandon! Eksidu kaj vespermanĝu.”
 
 Li sate manĝis kaj trinkis, kaj ĉar li estis laca, li metis sian kapon sur la genuojn de la patrino kaj petis, ke ŝi senpediki-gu lin.
-
-
-ELEKTITAJ FABELOJ
 
 
 Post momento li ekdormis kaj ronkis. Tiam la maljunulino elŝiris unu oran haron kaj metis ĝin apude.
@@ -4362,12 +3874,7 @@ La patrino kvietigis lin kaj ekĉasis la pedikojn, ĝis li ekdormis kaj ronkis. 
 ”Kion do vi sonĝis?” demandis li scivole.
 
 
-ELEKTITAJ FABELOJ
-
-
-”Mi vidis en la sonĝo pramiston, kiu plendis, ke li ĉiam veturas kaj reveturas, kaj neniam liberiĝas. Kio estas la kaŭ-
-
-zo?”
+”Mi vidis en la sonĝo pramiston, kiu plendis, ke li ĉiam veturas kaj reveturas, kaj neniam liberiĝas. Kio estas la kaŭzo?”
 
 ”Malsaĝulo li estas,” respondis la diablo; ”li devas doni sian stangon en la manon de la unua trapasanto, tiam li estos libera kaj la alia fariĝos eterna pramisto.”
 
@@ -4392,9 +3899,6 @@ Kiam ili transpasis al la alia bordo, la junulo komunikis al li la konsilon de l
 ”Kiam venos pasaĝero, donu al li la stangon en la manon.”
 
 Poste li venis en la urbon, kie staris la senfrukta arbo, kaj kie la gardisto ankaŭ atendis la respondon. La knabo ripetis la vortojn de la diablo:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Mortigu la muson, kiu mordas la radikon, kaj la arbo ree havos orajn fruktojn.”
@@ -4422,9 +3926,6 @@ La avida monar˛o rapide forveturis kaj, veninte al la rivero, faris signon al l
 ĉu li estas pramisto ankoraŭ nun? Sendube, ĉar neniu prenis de li la stangon.
 
 
-ELEKTITAJ FABELOJ
-
-
 Fingreto
 
 Foje vespere malriĉa kamparano sidis ĉe la fajrujo kaj miksis la karbojn, kaj lia edzino sidis kaj ŝpinis. Li diris:
@@ -4446,9 +3947,6 @@ Foje la kamparano, intencante iri arbaron por dehaki arbojn, diris al si mem:
 La kamparano ridis kaj diris:
 
 ”Tio ne estas ebla, vi estas tro malgranda por konduki la ĉevaIon.”
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Ne gravas, ne gravas, patro; se la patrino nur jungos la ĉevalon, mi eksidos en ĝia orelo kaj krios, kien ĝi devas iri.”
@@ -4482,9 +3980,6 @@ Sed Fingreto, aŭdinte pri la marĉando, rampis sur la faldoj de la patra vesto 
 Tiam la patro vendis lin al la fremduloj por bela peco da oro.
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kie vi volas sidi?” ili demandis la knabon.
 
 ”Metu min sur la randon de via ĉapelo, tie mi povos pro-meni kaj rigardi la ĉirkaŭaĵon; mi ne faIos.”
@@ -4516,9 +4011,6 @@ Feliĉe li renkontis malplenan limakan domon.
 ”Kion ni faros por ŝteli la monon kaj arĝenton de la riĉa paroęstro?”
 
 ”Mi povas diri tion al vi,” ekkriis Fingreto.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Kio estis?” diris la terurita ŝtelisto, ”iu parolis, mi aŭdis.”
@@ -4558,9 +4050,6 @@ Fingreto ekkriis tiel laŭte, kiel li povis: ”Mi ja volas doni al vi ĉion, nu
 La aŭskultanta servistino aŭdis tion tute klare, saltis de la lito kaj kuris al la pordo. La ŝtelistoj forkuris kaj galopis kvazaŭ ĉasataj de la diablo. La kuiristino povis nenion vidi kaj iris eklumigi kandelon. Kiam ŝi revenis kun ĝi, Fingreto ne rimar-kite sin kaŝis en la garbejon. La kuiristino serĉis en ĉiuj anguloj kaj, trovinte nenion, revenis en la liton kaj pensis, ke ŝi sonĝis kun malfermitaj okuloj kaj oreloj.
 
 
-ELEKTITAJ FABELOJ
-
-
 Fingreto vagis en la fojno kaj fine trovis belan lokon por dormo; li intencis bone ripozi ĝis la tagiĝo kaj matene reiri al la gepatroj. Sed alion volis la sorto!
 
 Multe da malfeliĉo kaj malĝojo ekzistas en la mondo! La servistino leviĝis ĉe la matenruĝo por nutri la brutojn. ŝi iris antaŭ ĉio en la garbejon, prenis fojnon kaj ĝuste tiun, en kiu kuŝis la kompatinda Fingreto. Li dormis tiel profunde, ke li rimarkis nenion kaj vekiĝis nur en la buŝego de bovino, kiu prenis lin kun la fojno.
@@ -4569,9 +4058,7 @@ Multe da malfeliĉo kaj malĝojo ekzistas en la mondo! La servistino leviĝis ĉ
 
 ”Oni forgesis fari fenestrojn en la ĉambreto,” li diris, ”la suno ne lumas ĉi tien, kaj oni ne alportas kandelon.”
 
-La logejo tute malplaĉis al li kaj plej malagrable estis, ke senĉese venis pli kaj pli multe da fojno tra la pordo kaj la spaco fariĝis pli kaj pli malvasta. Fine terurita li ekkriis plej laŭ-
-
-te:
+La logejo tute malplaĉis al li kaj plej malagrable estis, ke senĉese venis pli kaj pli multe da fojno tra la pordo kaj la spaco fariĝis pli kaj pli malvasta. Fine terurita li ekkriis plej laŭte:
 
 ”ĉesu doni fojnon, ĉesu doni fojnon.”
 
@@ -4585,9 +4072,7 @@ Rapide, rapide ŝi kuris al sia sinjoro kaj kriis:
 
 ”ĉesu doni fojnon, ĉesu doni fojnon!”
 
-Tiam la paroęstro mem ektimis, pensis, ke diablo ekloĝis 161
-
-ELEKTITAJ FABELOJ
+Tiam la paroęstro mem ektimis, pensis, ke diablo ekloĝis
 
 
 en la bovino kaj ordonis buĉi ŝin. Oni buĉis ŝin kaj la stomakon, kie sidis Fingreto, oni ĵetis sur la sterkon. Malfacila afero estis sin liberigi, tamen Fingreto jam sukcesis eligi la kapon, kiam nova malfeliĉo okazis. Malsata lupo alkuris kaj englutis per unu fojo la tutan stomakon. Fingreto ne perdis la kuraĝon.
@@ -4612,9 +4097,7 @@ Fine liaj gepatroj vekiĝis, kuris al la kamero kaj rigardis internen tra fendo.
 
 ”Staru post mi,” diris la kamparano, kiam ili revenis en la kameron, ”se ĝi ne mortos pro mia bato, tratranĉu al ĝi la ventron.”
 
-Fingreto aŭdis la voĉon de la patro kaj ekkriis: 162
-
-ELEKTITAJ FABELOJ
+Fingreto aŭdis la voĉon de la patro kaj ekkriis:
 
 
 ”Kara patro, mi estas ĉi tie, mi sidas en la ventro de la lu-po.”
@@ -4632,9 +4115,6 @@ La patro ĝoje diris:
 ”Mi estis en musa truo, en stomako de bovino kaj en ventro de lupo; nun mi restos ĉe vi.”
 
 ”Kaj ni ne vendos vin por la tuta oro de la mondo,” diris la gepatroj, karesis kaj kisis sian amatan Fingreton. Ili donis al li manĝaĵon kaj trinkaĵon, kaj mendis por li novajn vestojn, ĉar liaj estis tute eluzitaj dum la vojaĝo.
-
-
-ELEKTITAJ FABELOJ
 
 
 Sesope oni trairas la tutan mondon Estis iam viro, lerta en multaj metioj. Li estis soldato, servis brave kaj kuraĝe, sed post la milito li ricevis eksiĝon kaj tri helerojn por la vojaĝaj elspezoj hejmen.
@@ -4657,9 +4137,7 @@ Li respondis:
 
 ”Iru, iru kun mi,” diris la soldato, ”triope ni trairos la tutan mondon.”
 
-La ĉasisto konsentis, ekiris kun li, kaj ili venis al sep ventomuelejoj, kies flugiloj rapide turniĝis, kvankam vento blovis de nenie kaj neniu folio moviĝis. La soldato diris: 164
-
-ELEKTITAJ FABELOJ
+La ĉasisto konsentis, ekiris kun li, kaj ili venis al sep ventomuelejoj, kies flugiloj rapide turniĝis, kvankam vento blovis de nenie kaj neniu folio moviĝis. La soldato diris:
 
 
 ”Mi ne scias, kio turnas ilin, la aero ja estas senmova,” kaj iris antaŭen kun la servistoj.
@@ -4690,12 +4168,7 @@ La soldato diris:
 
 ”Iru, iru kun mi,” diris la soldato, ”sesope ni trairos la tutan mondon.”
 
-La sesopo venis en urbon, en kiu la reĝo anoncis, ke tiu, kiu venkos lian filinon en vetkurado, edziĝos kun ŝi; sed se li es-165
-
-ELEKTITAJ FABELOJ
-
-
-tos venkita, li perdos la kapon. La soldato sin prezentis kaj diris:
+La sesopo venis en urbon, en kiu la reĝo anoncis, ke tiu, kiu venkos lian filinon en vetkurado, edziĝos kun ŝi; sed se li estos venkita, li perdos la kapon. La soldato sin prezentis kaj diris:
 
 ”Anstataŭ mi, kuros mia servisto.”
 
@@ -4711,18 +4184,11 @@ Oni interkonsentis, ke venkos tiu, kiu unua alportos akvon el malproksima puto. 
 
 Kiam ŝi venis al la dormanta kurulo, ŝi ekĝojis kaj diris:
 
-”La malamiko estas en miaj manoj,” malplenigis lian kru-
-
-ĉon kaj daŭriĝis la vojon.
+”La malamiko estas en miaj manoj,” malplenigis lian kruĉon kaj daŭriĝis la vojon.
 
 ĉio estus perdita, sed feliĉe la ĉasisto staris sur la supro de la kastelo kaj vidis ĉion per siaj penetremaj okuloj. Li diris:
 
-”La princino ne rajtas nin venki,” ŝarĝis la pafilon kaj per lerta pafo forpuŝis la kranion, sur kiu kuŝis la kapo de la kurulo, eĉ ne tuŝetinte lin mem. La kurulo vekiĝis, salte leviĝis kaj rimarkis, ke lia kruĉo estas malplena kaj la princino jam preterpasis lin. Sed li ne perdis la kuraĝon, ree kuris al la pu-166
-
-ELEKTITAJ FABELOJ
-
-
-to, plenigis la kruĉon kaj revenis al la kastelo dek minutojn pli frue ol la princino.
+”La princino ne rajtas nin venki,” ŝarĝis la pafilon kaj per lerta pafo forpuŝis la kranion, sur kiu kuŝis la kapo de la kurulo, eĉ ne tuŝetinte lin mem. La kurulo vekiĝis, salte leviĝis kaj rimarkis, ke lia kruĉo estas malplena kaj la princino jam preterpasis lin. Sed li ne perdis la kuraĝon, ree kuris al la puto, plenigis la kruĉon kaj revenis al la kastelo dek minutojn pli frue ol la princino.
 
 ”Fine,” li diris, ”mi vere movis la piedojn; tion, kion mi faris antaŭe, oni ne povas nomi kurado.”
 
@@ -4750,9 +4216,7 @@ La kuiristo plenumis la ordonon, kaj al la sidantoj ĉe la tablo fariĝis varme.
 
 Li metis la ĉapelon rekte kaj tuj venis tia frosto, ke la varmego malaperis kaj la manĝaĵo sur la pladoj komencis glaciiĝi.
 
-Post kelkaj horoj la reĝo, certa, ke ili jam estas tute bakitaj, ordonis malfermi la pordon por mem vidi ilin. Sed kiam oni 167
-
-ELEKTITAJ FABELOJ
+Post kelkaj horoj la reĝo, certa, ke ili jam estas tute bakitaj, ordonis malfermi la pordon por mem vidi ilin. Sed kiam oni
 
 
 malfermis la pordon, ĉiuj ses staris freŝaj kaj sanaj kaj diris, ke ili eliras kun plezuro por sin varmigi, ĉar en la ĉambro pro la granda frosto la manĝaĵoj glaciiĝis sur la pladoj.
@@ -4786,9 +4250,6 @@ Li ektimis kaj pensis:
 Li ordonis alporti barelon da oro, kiun devis porti dek ses plej fortaj viroj; la fortegulo levis ĝin per unu mano, metis en la sakon kaj diris:
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kial vi ne alportas pli multe per unu fojo? Tio ĉi ne kovras eĉ la fundon.”
 
 Iom post iom la reĝo ordonis alporti sian tutan trezoron, la fortegulo ŝovis ĝin en la sakon, sed ĝi ne plenigis eĉ la duonon:
@@ -4818,17 +4279,11 @@ Iu serĝento petis pardonon, kriante, ke li havas naŭ cikatrojn kaj estas brava
 ”Iru al la reĝo kaj diru, ke li sendu pli multe da rajdantoj, ili ĉiuj dancos en la aero,” diris la lertulo.
 
 
-ELEKTITAJ FABELOJ
-
-
 Kiam la reĝo eksciis ĉion, li diris:
 
 ”Lasu ilin, ili konas la sorĉarton.”
 
 La sesopo forportis la riĉaĵojn hejmen, dividis ilin kaj vivis feliĉe ĝis la morto.
-
-
-ELEKTITAJ FABELOJ
 
 
 Maljuna avo kaj nepo
@@ -4842,9 +4297,6 @@ Estis iam viro maljuna kiel la mondo. Liaj okuloj ne vidis klare, surdaj estis l
 La geedzoj momenton rigardis unu la alian, ekploris kaj tuj ili alkondukis la avon al la tablo. De tiu tempo ili manĝis kune kun li kaj ne riproĉis lin, se li iom disverŝis.
 
 
-ELEKTITAJ FABELOJ
-
-
 Kamarado Gaja
 
 Estis iam granda milito, kaj post la milito multe da soldatoj estis eksigitaj. Kamarado Gaja ankaŭ ricevis eksigon kaj krom ĝi nur malgrandan soldatan panbulon kaj kvar groŝojn; kun ĉi tio li ekmigris. Sankta Petro sidis ĉe la vojo, kiel malriĉa almozulo, kaj kiam Kamarado Gaja venis tien, li petis de li almozon. Kamarado Gaja respondis:
@@ -4856,9 +4308,6 @@ Li dividis la panon en kvar partojn, kaj donis al Sankta Petro unu pecon kaj unu
 Kamarado Gaja ripetis siajn vortojn kaj ree donis al li kvaronon da pano kaj unu groŝon. Sankta Petro dankis kaj foriris.
 
 Trian fojon li aliformigis sin kaj kiel almozulo alparolis la soldaton. Kamarado Gaja donis al li la trian kvaronon kaj la trian groŝon. Sankta Petro dankis kaj Kamarado Gaja iris kun la lasta peco da pano kaj la lasta groŝo en gastejon, manĝis la panon kaj mendis al si bieron por la groŝo. Regalinte sin li daŭrigis la vojon. Sankta Petro aliformigis sin eksigita soldato, iris renkonte al li kaj diris:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Bonan tagon, kamarado, ĉu vi ne povas doni al mi pecon da pano kaj groŝon por biero?”
@@ -4883,9 +4332,7 @@ Sankta Petro volis preni nenion, kaj ju pli ili insistis, des pli kategorie li r
 
 ”Prenu ion, ni ja bezonas.”
 
-Fine la virino alportis ŝafidon kaj diris al Sankta Petro, ke 173
-
-ELEKTITAJ FABELOJ
+Fine la virino alportis ŝafidon kaj diris al Sankta Petro, ke
 
 
 li devas akcepti ĝin, sed li ne volis. Kamarado Gaja ree tuŝegis lin kaj diris:
@@ -4902,9 +4349,7 @@ Sankta Petro tiam diris:
 
 ”Bone,” respondis Sankta Petro, ”sed mi ne scias kuiri; se vi volas kuiri, jen estas kaldrono, mi dume promenos en la arbaro. Sed ne komencu manĝi antaŭ mia reveno, mi ne mal-fruos.”
 
-”Iru,” diris Kamarado Gaja, ”mi konas la kuirarton, la man-
-
-ĝaĵo estos preta.”
+”Iru,” diris Kamarado Gaja, ”mi konas la kuirarton, la manĝaĵo estos preta.”
 
 Sankta Petro foriris, kaj Kamarado Gaja buĉis la ŝafidon, ekbruligis fajron, ĵetis la viandon en la kaldronon kaj kuiris.
 
@@ -4919,14 +4364,9 @@ Kamarado Gaja prenis tranĉilon kaj forkon kaj ŝajnigis, ke li serĉas la koron
 ”Ne estas koro.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Kie ĝi estas?” diris la apostolo.
 
-”Mi ne scias,” respondis Kamarado Gaja, ”sed kiaj malsa-
-
-ĝuloj ni estas ambaŭ, ni serĉas la koron kaj tute forgesas, ke la ŝafidoj ne havas ĝin!”
+”Mi ne scias,” respondis Kamarado Gaja, ”sed kiaj malsaĝuloj ni estas ambaŭ, ni serĉas la koron kaj tute forgesas, ke la ŝafidoj ne havas ĝin!”
 
 ”Novaĵo, novaĵo!” diris Sankta Petro, ”ĉiu besto ja havas koron, kial do ne havus ĝin la ŝafido?”
 
@@ -4967,9 +4407,6 @@ Sankta Petro ree demandis:
 ”ĉu vi konfesos, ke vi manĝis la koron de la ŝafido?”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Ne,” li respondis, ”mi ne manĝis ĝin.”
 
 Sankta Petro ne volis lasi lin droni, ordonis al la akvo malleviĝi kaj helpis lin transiri.
@@ -4999,9 +4436,6 @@ Ili iris en la palacon, en kiu regis granda funebro. Sankta Petro diris al la re
 Kiam oni tion alportis, li petis ĉiujn eliri el la ĉambro, nur Kamarado Gaja devis resti kun li. Poste li fortranĉis ĉiujn membrojn de la mortintino kaj ĵetis ilin en la akvon, ekbruligis fajron sub la kaldrono kaj kuiris ilin. Kiam la tuta viando defalis de la ostoj, li elprenis la belajn blankajn ostojn sur tablon kaj kunmetis laŭ natura ordo. Farinte tion, li diris trifoje:
 
 ”En la nomo de Sankta Triopo, mortintino, leviĝu.”
-
-
-ELEKTITAJ FABELOJ
 
 
 ĉe la tria diro la princino leviĝis vivanta, sana kaj bela. La reĝo ekstreme ĝojis kaj diris al Sankta Petro:
@@ -5045,16 +4479,11 @@ Sankta Petro diris:
 ”Kiel vi volas, amiko,” respondis la soldato, ”fartu bone.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Sankta Petro iris alian vojon kaj Kamarado Gaja pensis:
 
 ”Bone estas, ke li foriris, li estas ia strangulo.”
 
-Nun li havis sufiĉe da mono, sed li ne sciis uzi ĝin, mal-
-
-ŝparis, donacis kaj baldaŭ li havis plu nenion. Li venis en landon, kie li aŭdis, ke la princino mortis.
+Nun li havis sufiĉe da mono, sed li ne sciis uzi ĝin, malŝparis, donacis kaj baldaŭ li havis plu nenion. Li venis en landon, kie li aŭdis, ke la princino mortis.
 
 ”Bonega okazo por mi,” li pensis, ”mi revivigos ŝin kaj postulos belan rekompencon.”
 
@@ -5074,9 +4503,7 @@ Kiam li diris tion, subite aperis Sankta Petro tra la fenestro, same kiel antaŭ
 
 ”ĉi tiun fojon mi helpos vin en la malfeliĉo, sed mi avertas vin, ke ve al vi, se vi ankoraŭ unu fojon entreprenos ion tian; postulu nenion kaj akceptu nenion de la reĝo.”
 
-Sankta Petro kunmetis la ostojn laŭ ĝusta ordo, diris trifoje: 178
-
-ELEKTITAJ FABELOJ
+Sankta Petro kunmetis la ostojn laŭ ĝusta ordo, diris trifoje:
 
 
 ”En la nomo de Sankta Triopo, mortintino, leviĝu,” kaj la princino leviĝis, sana kaj bela kiel antaŭe. Sankta Petro eliris tra la fenestro. Kamarado Gaja ĝojis, ke ĉio bone pasis, sed koleris, ke li povas nenion akcepti.
@@ -5103,14 +4530,9 @@ La reĝo volis doni al la soldato ĉion, kion li postulos, sed la avidulo devis 
 
 Li tute forgesis pri la povo, kiun ricevis lia tornistro.
 
-Kamarado Gaja, ekmigris kun sia oro kaj baldaŭ malŝpare perdis ĉion, kiel la unuan fojon. Kiam restis al li nur kvar gro-
-
-ŝoj, li venis al gastejo kaj pensis:
+Kamarado Gaja, ekmigris kun sia oro kaj baldaŭ malŝpare perdis ĉion, kiel la unuan fojon. Kiam restis al li nur kvar groŝoj, li venis al gastejo kaj pensis:
 
 ”Mi devas liberiĝi de la mono.”
-
-
-ELEKTITAJ FABELOJ
 
 
 Li eniris kaj mendis vinon por tri groŝoj kaj panon por unu.
@@ -5146,9 +4568,6 @@ La du diris:
 ”Ni ne estas ŝtelistoj, eksigita soldato donacis al ni la anseron sur la herbejo.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Vane vi penas min trompi; la soldato, vere, estis ĉi tie, sed mi observis lin, li eliris preninte nenion: vi estas la ŝtelintoj, vi devas pagi.”
 
 ĉar ili ne povis pagi, li elpelis ilin per bastonaj batoj.
@@ -5175,9 +4594,7 @@ La soldato iris en la palacon, bone manĝis kaj trinkis; fine li volis dormi kaj
 
 Sed la diabloj venis pli kaj pli proksime kaj preskaŭ sur-paŝis lian vizaĝon per siaj abomenaj piedoj.
 
-”Kvietiĝu, diablaj monstroj,” li kriis@, sed ili estis pli kaj pli trudemaj. Kamarado Gaja ekkoleris kaj diris: 181
-
-ELEKTITAJ FABELOJ
+”Kvietiĝu, diablaj monstroj,” li kriis@, sed ili estis pli kaj pli trudemaj. Kamarado Gaja ekkoleris kaj diris:
 
 
 ”Tuj mi kvietigos vin,” prenis seĝan piedon kaj komencis bati la diablojn. Sed naŭ diabloj estas tro multe kontraŭ unu soldato: kiam li batis la antaŭajn, la aliaj atakis lin malantaŭe kaj tiris liajn harojn.
@@ -5199,9 +4616,6 @@ La nobelulo dankis lin, riĉe rekompencis kaj proponis al li oficon ĉe si, prom
 Kamarado Gaja foriris, venis en forĝejon, metis la tornistron kun la diabloj sur la amboson kaj petis la majstron kaj liajn helpantojn, ke ili martelu. Ili batis fortege per grandaj marteloj, la diabloj kriis kiel frenezaj. Kiam li malfermis la tornistron, ok diabloj estis senvivaj, unu kiu sidis en faldo, vivis ankoraŭ, elsaltis kaj forkuris en la inferon.
 
 Kamarado Gaja longe ankoraŭ migris en la mondo, kaj kiu scius pri tio, povus rakonti multon. Fine li maljuniĝis kaj ekpensis pri morto. Li iris al ermito, kiu estis konata kiel piulo, kaj diris al li:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Jam tedis min la migrado, mi dezirus iri en la ĉielan regnon.”
@@ -5237,9 +4651,6 @@ Sankta Petro demandis:
 ”Ne,” diris Sankta Petro, ”vi ne eniros.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Se vi ne volas enlasi min, reprenu vian tornistron, mi ne deziras havi ion de vi,” diris Kamarado Gaja.
 
 ”Donu ĝin,” diris Sankta Petro. La soldato donis la tornistron tra la krado. Sankta Petro prenis ĝin kaj pendigis ĉe sia seĝo.
@@ -5251,14 +4662,9 @@ Kamarado Gaja diris:
 En la sama momento li estis tie kaj Sankta Petro devis permesi al li resti tie.
 
 
-ELEKTITAJ FABELOJ
-
-
 Doktoro ĉioscia
 
-Estis iam malriĉa kamparano, nomata Kankro. Foje li ŝar-
-
-ĝis ĉaron per ligno, jungis du bovojn kaj veturis en la urbon. La lignon li vendis al doktoro. Kiam li venis por la mono, la doktoro sidis ĉe la tablo. La kamparano vidis, ke li bone manĝas kaj trinkas, kaj ekdeziris ankaŭ fariĝi doktoro. Li staris momenton kaj fine demandis, ĉu li ankaŭ ne povus fariĝi doktoro.
+Estis iam malriĉa kamparano, nomata Kankro. Foje li ŝarĝis ĉaron per ligno, jungis du bovojn kaj veturis en la urbon. La lignon li vendis al doktoro. Kiam li venis por la mono, la doktoro sidis ĉe la tablo. La kamparano vidis, ke li bone manĝas kaj trinkas, kaj ekdeziris ankaŭ fariĝi doktoro. Li staris momenton kaj fine demandis, ĉu li ankaŭ ne povus fariĝi doktoro.
 
 ”Certe,” diris la doktoro, ”la afero estas facila.”
 
@@ -5275,9 +4681,6 @@ La kamparano faris ĉion, kion oni konsilis al li. Li jam iom doktoris, sed ne t
 ”Veturu kun mi kaj trovu la ŝtelitan monon.”
 
 ”Bone, sed mi ne veturos sen mia edzino, Margenjo.”
-
-
-ELEKTITAJ FABELOJ
 
 
 La sinjoro konsentis, prenis ilin ambaŭ kaj ili forveturis kune. Kiam ili venis en la domon de la nobelulo, estis jam preta tagmanĝo, la sinjoro do invitis lin.
@@ -5312,9 +4715,7 @@ La terurita servisto palpebrumis al la doktoro, ke li eliru kun li. Kiam ili est
 
 Ili montris al li, kie ili kaŝis la monon.
 
-La doktoro, tre kontenta, revenis al la tablo kaj diris: 186
-
-ELEKTITAJ FABELOJ
+La doktoro, tre kontenta, revenis al la tablo kaj diris:
 
 
 ”Sinjoro, nun mi serĉos en mia libro, kie la mono estas kaŝita.”
@@ -5328,9 +4729,6 @@ La servisto en la forno pensis, ke la doktoro parolis pri li, elsaltis terurita 
 ”Li scias ĉion.”
 
 La doktoro ĉioscia montris al la sinjoro, kie estas la mono, sed ne diris, kiu ŝtelis, ricevis belan rekompencon de ambaŭ flankoj, kaj fariĝis fama homo.
-
-
-ELEKTITAJ FABELOJ
 
 
 Ursa Felo
@@ -5356,9 +4754,6 @@ Subite li ekaŭdis bruon kaj ekrigardis posten: tie staris fremdulo en riĉa ver
 ”Bone,” respondis la fremdulo, ”turnu vin.”
 
 
-ELEKTITAJ FABELOJ
-
-
 La soldato rigardis posten kaj ekvidis urson, kiu murmurante estis lin atakonta.
 
 ”Oho,” kriis la soldato, ”mi tiklos vian nazon, vi ne murmuros plu ,” ekcelis kaj trafis ĝian buŝegon; la besto falis senviva.
@@ -5379,9 +4774,7 @@ Li senfeligis la urson kaj diris:
 
 Dirinte tion, la diablo malaperis.
 
-La soldato surmetis la surtuton, ekserĉis en la poŝo kaj konvinkiĝis, ke la diablo ne trompis lin. Poste li surĵetis la ursan felon sur sian dorson, ĝoje ekmigris en la mondon mal-zorgante nenion, kio dikigas la homon kaj maldikigas la 189
-
-ELEKTITAJ FABELOJ
+La soldato surmetis la surtuton, ekserĉis en la poŝo kaj konvinkiĝis, ke la diablo ne trompis lin. Poste li surĵetis la ursan felon sur sian dorson, ĝoje ekmigris en la mondon mal-zorgante nenion, kio dikigas la homon kaj maldikigas la
 
 
 monujon. En la unua jaro lia aspekto estis ankoraŭ tolerebla, sed en la dua li jam similis monstron. La haroj kovris preskaŭ lian tutan vizaĝon, liaj fingroj havis ungegojn, lia barbo similis dikan felton, kaj lia vizaĝo estis tiel kovrita de malpuraĵo, ke se oni semus tie kreson, ĝi donus riĉan rikolton. ĉiuj forkuris de li, sed ĉar li ĉie donis monon al la mizeruloj petante iliajn preĝojn, ke li ne mortu dum la sep jaroj, kaj ĉar li ĉion bone pagis, li ĉiam trovis rifuĝejon.
@@ -5397,9 +4790,6 @@ Kiam vespere Ursa Felo sidis sola kaj kore deziris jam vidi la finon de la sep j
 Li alvokis la mastron, pagis, kaj al la mizerulo li donis sakon da oro.
 
 La malfeliĉulo, liberigita de sia ĉagreno, ne sciis, kiamaniere danki lin.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Iru kun mi,” li diris, ”miaj filinoj estas mirinde belaj, elektu unun kiel edzinon. Kiam ŝi ekscios, kion vi faris por mi, ŝi ne ŝanceliĝos. Vi ŝajnas iom stranga, sed ŝi baldaŭ ordigos vin.”
@@ -5423,9 +4813,6 @@ La kompatinda fianĉino vestis sin nigre kaj kiam ŝi pensis pri la fianĉo, lar
 ”Estu singarda,” diris la alia, ”la ursoj amas dolĉaĵojn, se vi plaĉos al li, li manĝos vin.”
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Vi devas ĉiam plenumi lian volon,” aldonis la plej aĝa,
 
 ”alie li murmuros.”
@@ -5440,9 +4827,7 @@ La diablo vole nevole devis alporti akvon, lavi Ursan Felon, kombi liajn harojn 
 
 Post la foriro de la diablo la soldato sentis sin kvazaŭ liberigita de peza ŝarĝo. Li iris en la urbon, surmetis belegan ve-luran veston, eksidis en kvarĉevalan kaleŝon kaj veturis al la domo de la fianĉino. Neniu rekonis lin, la patro opiniis lin supera oficiro kaj kondukis lin en la ĉambron, kie sidis la filinoj.
 
-Oni sidigis lin inter la du pli aĝaj: ili verŝis al li vinon, metis sur lian teleron la plej bonajn pecojn, ŝajnis al ili, ke ne ekzistas pli bela viro en la tuta mondo. La fianĉino en nigra vesto sidis kontraŭ li, ne levis la okulojn kaj ne diris eĉ unu vorton. Fine kiam li demandis la patron, ĉu li konsentas doni al li unu filinon kiel edzinon, la du pli aĝaj salte leviĝis kaj kuris en sian ĉambron por surmeti belajn vestojn, ĉar ĉiu imagis, ke ŝi estas la elektita. La fremdulo, kiam li restis sola 192
-
-ELEKTITAJ FABELOJ
+Oni sidigis lin inter la du pli aĝaj: ili verŝis al li vinon, metis sur lian teleron la plej bonajn pecojn, ŝajnis al ili, ke ne ekzistas pli bela viro en la tuta mondo. La fianĉino en nigra vesto sidis kontraŭ li, ne levis la okulojn kaj ne diris eĉ unu vorton. Fine kiam li demandis la patron, ĉu li konsentas doni al li unu filinon kiel edzinon, la du pli aĝaj salte leviĝis kaj kuris en sian ĉambron por surmeti belajn vestojn, ĉar ĉiu imagis, ke ŝi estas la elektita. La fremdulo, kiam li restis sola
 
 
 kun la fianĉino, prenis el sia poŝo la duonon da ringo kaj ĵetis ĝin en pokalon kun vino, kiun li donis al ŝi trans la tablo.
@@ -5456,9 +4841,6 @@ Li proksimiĝis al ŝi, ĉirkaŭprenis ŝin kaj kisis. Dume ambaŭ fratinoj veni
 Vespere iu frapis la pordon, la fianĉo malfermis: antaŭ li staris la diablo en la verda surtuto kaj diris:
 
 ”Vi vidas, mi havas du animojn anstataŭ la via.”
-
-
-ELEKTITAJ FABELOJ
 
 
 Tri fratoj
@@ -5480,9 +4862,6 @@ La barbiro razis nur altrangulojn kaj pensis la samon. La skermisto ricevis mult
 ”Se vi timos batojn, vi neniam ricevos la domon.”
 
 Kiam pasis la difinita tempo, ili revenis al la patro; sed ili ne sciis, kiamaniere trovi plej bonan okazon por montri sian arton, sidis kune kaj interkonsiliĝis. Subite ili ekvidis leporon, trakuranta la kampon.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Jen ĝi venas kvazaŭ invitita,” diris la barbiro, prenis sian pladeton kaj sapon, ŝaŭmiĝis ĝin, ĝis la leporo proksimiĝis, poste dum ĝia kurado sapumis ĝin kaj razis ĝian barbon: li ne vundetis ĝin, nek kaŭzis doloron.
@@ -5508,9 +4887,6 @@ Ekmiregis la patro, vidante tion kaj diris:
 La du aliaj akceptis la verdikton sen protesto. ĉar ĉiuj tri amis unu la alian, ili restis en la domo kaj ĉiu laboris en sia metio; kiel lertaj specialistoj ili havis grandan klientaron. Ili vivis feliĉe ĝia maljuna aĝo, kaj kiam unu malsaniĝis kaj mortis, la du aliaj tiel ĉagreniĝis, ke ankaŭ ili malsaniĝis kaj mortis. ĉiujn tri, ĉar ili estis tiel lertaj kaj tiel amis unu la alian, oni metis en unu tombon.
 
 
-ELEKTITAJ FABELOJ
-
-
 Steloj talaroj
 
 Estis iam malgranda knabineto, sen patro, sen patrino, kaj ŝi estis tiel malriĉa, ke ŝi havis nek ĉambron kie loĝi, nek liton en kiu dormi. Fine restis al ŝi nur la vestoj sur la korpo kaj en la mano peco da pano, kiun donacis al ŝi kompatema koro; sed ŝi estis bona kaj pia. ĉar ŝi estis forlasita de ĉiuj, ŝi ekmigris, fidante al Dio. Sur sia vojo ŝi renkontis mizerulon, kiu diris:
@@ -5530,9 +4906,6 @@ La knabino restis nuda. Subite la steloj komencis fali de la ĉielo: ili ne esti
 ŝi kolektis la monerojn kaj estis riĉa ĝis la morto.
 
 
-ELEKTITAJ FABELOJ
-
-
 Neĝulino kaj Rozulino
 
 Malriĉa vidvino loĝis en izolita dometo; en la ĝardeno, kiu estis antaŭ la pordo, kreskis du rozujoj: unu havis blankajn, la alia ruĝajn rozojn.
@@ -5541,16 +4914,9 @@ La vidvino havis du knabinojn, kiuj similis la rozujojn, unu estis nomata Neĝul
 
 ”is la morto,” kaj la patrino aldonis: ”ĉio devas esti komu-na por vi.”
 
-Ofte ili solaj kuris en la arbaro kaj kolektis ruĝajn berojn; la bestoj ne atakis ilin, kontraŭe ili proksimiĝis konfide: la leporeto manĝis brasikon el iliaj manoj, la kapreolo sin paŝ-
+Ofte ili solaj kuris en la arbaro kaj kolektis ruĝajn berojn; la bestoj ne atakis ilin, kontraŭe ili proksimiĝis konfide: la leporeto manĝis brasikon el iliaj manoj, la kapreolo sin paŝtis ĉe iliaj piedoj, la cervo petolis antaŭ ili kaj la birdoj restis sur la branĉoj kaj kantis ĉiujn siajn kantojn. Nenia danĝero minacis ilin: se ili malfruis en la arbaro kaj tie atingis ilin la nokto, ili ĉiufoje ekkuŝis sur la musko kaj dormis ĝis la mateno: la patrino sciis tion kaj ne maltrankviliĝis.
 
-tis ĉe iliaj piedoj, la cervo petolis antaŭ ili kaj la birdoj restis sur la branĉoj kaj kantis ĉiujn siajn kantojn. Nenia danĝero minacis ilin: se ili malfruis en la arbaro kaj tie atingis ilin la nokto, ili ĉiufoje ekkuŝis sur la musko kaj dormis ĝis la mateno: la patrino sciis tion kaj ne maltrankviliĝis.
-
-Foje ili pasigis la nokton en la arbaro kaj kiam la maten-197
-
-ELEKTITAJ FABELOJ
-
-
-ruĝo vekis ilin, ili ekvidis belan infanon en blanka hela vesto, sidanta ĉe ilia kuŝejo.
+Foje ili pasigis la nokton en la arbaro kaj kiam la matenruĝo vekis ilin, ili ekvidis belan infanon en blanka hela vesto, sidanta ĉe ilia kuŝejo.
 
 i leviĝis, amike rigardis ilin kaj foriris inter la arbojn.
 
@@ -5567,9 +4933,6 @@ Foje vespere, kiam ili trankvile sidis kune, iu frapis la pordon, kvazaŭ petant
 ”Rapide, Rozulino, malfermu; tio kredeble estas migranto, kiu serĉas rifuĝejon.”
 
 Rozulino iris kaj malriglis la pordon pensante, ke ŝi ekvi-dos malriĉulon, sed ekstere staris urso kaj etendis al ŝi sian nigran kapon. Rozulino ekkriis kaj saltis posten: la ŝafideto ekblekis, la kolombeto ekflugis en la ĉambro kaj Neĝulino sin kaŝis post la lito de la patrino. La urso komencis paroli kaj diris:
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Ne timu, mi ne atakos vin; permesu al mi varmigi min iom ĉe vi, ĉar mi estas duone glaciiĝinta.”
@@ -5598,12 +4961,7 @@ Kiam la printempo venis kaj ĉio estis verda, foje matene la urso diris al Neĝu
 
 ”Kien vi iras, kara urso?” demandis Neĝulino.
 
-”Mi devas iri en la arbaron kaj gardi miajn trezorojn kon-199
-
-ELEKTITAJ FABELOJ
-
-
-traŭ la malbonaj nanoj: vintre kiam la tero estas glaciiĝinta, ili devas resti sube kaj ne povas eliĝi, sed nun kiam la suno varmigis la teron, ili traiĝos, malsupren iros, serĉos kaj ŝtelos; kio estas en iliaj manoj kaj kuŝas en iliaj kavoj, tio ne facile revenas al la taga lumo.”
+”Mi devas iri en la arbaron kaj gardi miajn trezorojn kontraŭ la malbonaj nanoj: vintre kiam la tero estas glaciiĝinta, ili devas resti sube kaj ne povas eliĝi, sed nun kiam la suno varmigis la teron, ili traiĝos, malsupren iros, serĉos kaj ŝtelos; kio estas en iliaj manoj kaj kuŝas en iliaj kavoj, tio ne facile revenas al la taga lumo.”
 
 Neĝulino ĉagreniĝis pro la foriro de la urso; kiam ŝi malriglis al ĝi la pordon, la grizulo trapasante alkroĉiĝis al la por-dohoko kaj peceto da felo elŝiriĝis: ŝajnis al Neĝulino, ke ŝi vidis oran brilon, sed ŝi ne estis certa.
 
@@ -5618,9 +4976,6 @@ Post iom da tempo la patrino sendis la infanojn en la arbaron kolekti sekajn bra
 ”Malsaĝa scivola ansero,” respondis la nano, ”mi volis fendi la arbon por havi fragmentojn por la kuirejo; ni ne englu-tas tiel multe kiel vi, avidaj maldelikatuloj, niaj etaj manĝaĵoj karbiĝus ĉe grandaj ŝtipoj. Mi jam feliĉe enigis la kojnon kaj ĉio sukcesus bone, sed la malbenita kojno elglitis kaj la fendo tiel rapide fermiĝis, ke mi ne povis plu eltiri mian belan blankan barbon; nun ĝi estas kaptita kaj mi ne povas foriri.
 
 Kial vi ridas, naivaj pupoj! Fi! kia abomeno!”
-
-
-ELEKTITAJ FABELOJ
 
 
 La infanoj penis per ĉiuj fortoj, sed ne povis eltiri la barbon, tiel forte ĝi estis fiksita.
@@ -5655,16 +5010,9 @@ La barbulo fiŝkaptis tie antaŭ ilia alveno kaj malfeliĉe la vento implikis li
 
 Kvankam li kroĉis sin al ĉiuj junkoj kaj herboj de la bordo, sed tio helpis ne multe, li devis sekvi la movojn de la fiŝo kaj ĉiumomente minacis lin la danĝero fali en la akvon.
 
-La knabinoj venis ĝustatempe, ili tenis lin kaj penis liberigi de la ŝnuro la barbon, sed vane, ĉar la ŝnuro kaj la barbo es-201
+La knabinoj venis ĝustatempe, ili tenis lin kaj penis liberigi de la ŝnuro la barbon, sed vane, ĉar la ŝnuro kaj la barbo estis tute kunplektitaj. ĉar ne ekzistis alia rimedo, la knabinoj prenis tondilon kaj fortranĉis la finon de la barbo. Ekvidinte tion, la nano diris:
 
-ELEKTITAJ FABELOJ
-
-
-tis tute kunplektitaj. ĉar ne ekzistis alia rimedo, la knabinoj prenis tondilon kaj fortranĉis la finon de la barbo. Ekvidinte tion, la nano diris:
-
-”ĉu tio estas via kutimo, vi malsaĝaj bestoj, tiel malbeligi iun? Antaŭe vi jam tondis al mi la barbon kaj nun vi fortran-
-
-ĉas la plej belan parton: mi ne povos min montri al la miaj.
+”ĉu tio estas via kutimo, vi malsaĝaj bestoj, tiel malbeligi iun? Antaŭe vi jam tondis al mi la barbon kaj nun vi fortranĉas la plej belan parton: mi ne povos min montri al la miaj.
 
 Perdu vi la ŝuplandojn kaj kuru nudpiedaj!”
 
@@ -5678,9 +5026,7 @@ En la sama momento eksonis trapenetranta, terura krio. lli kuris tien kaj ekvidi
 
 Li prenis la sakon kun la multvaloraj ŝtonoj kaj sin kaŝis en sian kavernon sub la ŝtonegoj. La knabinoj jam kutimis al lia nedankemo, daŭrigis sian vojon kaj faris la aĉetojn en la urbo.
 
-Revenante ili surprizis sur la dezerta kampo la barbulon, kiu elŝutis la multekostajn ŝtonojn sur puran lokon, ĉar li estis certa, ke en tiel malfrua horo neniu venos tien. La subiranta 202
-
-ELEKTITAJ FABELOJ
+Revenante ili surprizis sur la dezerta kampo la barbulon, kiu elŝutis la multekostajn ŝtonojn sur puran lokon, ĉar li estis certa, ke en tiel malfrua horo neniu venos tien. La subiranta
 
 
 suno lumigis la brilajn ŝtonojn, kiuj tiel belege radiis ĉiujn kolorojn, ke la infanoj haltis kaj mire rigardis.
@@ -5695,16 +5041,11 @@ La knabinoj forkuris, sed la urso kriis al ili:
 
 ”Neĝulino kaj Rozulino, ne timu, atendu, mi iros kun vi.”
 
-Ili rekonis ĝian voĉon kaj haltis, kaj kiam la urso proksimi-
-
-ĝis, la ursa felo defalis kaj antaŭ ili staris bela juna viro en ora vesto.
+Ili rekonis ĝian voĉon kaj haltis, kaj kiam la urso proksimiĝis, la ursa felo defalis kaj antaŭ ili staris bela juna viro en ora vesto.
 
 ”Mi estas filo de reĝo,” li diris, ”la sendia nano ŝtelis miajn trezorojn kaj sorĉis min sovaĝa urso, fine mi liberiĝis per lia morto. Nun li ricevis la bone merititan punon.”
 
 Li fianĉiĝis kun Negulino, kaj lia frato kun Rozulino kaj ili dividis la grandajn trezorojn, kiujn la nano kolektis en sia kaverno. La maljuna patrino longe ankoraŭ vivis trankvile ĉe siaj infanoj. ŝi prenis ambaŭ rozujojn kaj plantis antaŭ sia fenestro, ĉiujare ili havis la plej belajn rozojn, blankajn kaj ruĝajn.
-
-
-ELEKTITAJ FABELOJ
 
 
 La vivolongo
@@ -5731,9 +5072,7 @@ Poste venis la simio.
 
 ”Vi sendube volos vivi tridek jarojn?” diris al li Sinjoro, ”vi ne bezonas labori kiel la azeno kaj hundo, kaj ĉiam estas gaja.”
 
-”Ah Sinjoro,” respondis ĝi, ”tio nur ŝajnas, sed la realo estas 204
-
-ELEKTITAJ FABELOJ
+”Ah Sinjoro,” respondis ĝi, ”tio nur ŝajnas, sed la realo estas
 
 
 tute alia. Se ne mankas manĝaĵo, mi ne havas kuleron. Mi ĉiam devas gaje petoli, fari grimacojn por ke la homoj ridu, kaj kiam ili donas al mi pomon kaj mi ekmordas, ĝi estas maldolĉa. Kiel ofte la spritaĵoj kovras malĝojon! Por tridek jaroj ne sufiĉos miaj fortoj.”
@@ -5760,15 +5099,7 @@ Fine aperis la homo, gaja, sana kaj freŝa, kaj petis, ke Dio difinu lian tempon
 
 La homo foriris, sed ne kontenta.
 
-La homo do vivas sepdek jarojn. La unuaj tridek estas liaj homaj jaroj, ili rapide pasas: li estas sana, gaja, ĝoje laboras kaj ĝuas sian ekzistadon. Sekvas la dek ok jaroj de la azeno: la homo ricevas ŝarĝojn unun post alia, li devas porti grenon, kiu nutras aliajn, batoj kaj puŝoj estas lia rekompenco. Poste venas la dek du jaroj de la hundo, li kuŝas en anguloj, murmuras kaj ne havas plu dentojn por mordi. Kiam ĉi tiu tem-205
-
-ELEKTITAJ FABELOJ
-
-
-po pasas, venas la finaj dek jaroj de la simio: la homo, malsaĝa kaj malsprita, estas mokata de la infanoj.
-
-
-ELEKTITAJ FABELOJ
+La homo do vivas sepdek jarojn. La unuaj tridek estas liaj homaj jaroj, ili rapide pasas: li estas sana, gaja, ĝoje laboras kaj ĝuas sian ekzistadon. Sekvas la dek ok jaroj de la azeno: la homo ricevas ŝarĝojn unun post alia, li devas porti grenon, kiu nutras aliajn, batoj kaj puŝoj estas lia rekompenco. Poste venas la dek du jaroj de la hundo, li kuŝas en anguloj, murmuras kaj ne havas plu dentojn por mordi. Kiam ĉi tiu tempo pasas, venas la finaj dek jaroj de la simio: la homo, malsaĝa kaj malsprita, estas mokata de la infanoj.
 
 
 La senditoj de morto
@@ -5791,9 +5122,7 @@ Dume venis juna viro, freŝa kaj sana, kantis kaj ĉirkaŭrigardis. Ekvidinte la
 
 ”Ne,” diris la junulo, ”mi ne konas vin.”
 
-”Mi estas la morto, mi indulgas neniun, mi ne povas fari 207
-
-ELEKTITAJ FABELOJ
+”Mi estas la morto, mi indulgas neniun, mi ne povas fari
 
 
 esceptojn por vi. Sed por pruvi mian dankemon mi promesas al vi jenon: mi ne surprizos vin; antaŭ ol mi venos por preni vin, aperos miaj senditoj.”
@@ -5819,9 +5148,6 @@ Foje iu ekfrapis lian ŝultron: post li staris la morto kaj diris:
 La viro ne sciis, kion respondi, obeis la fatalon kaj iris kun la morto.
 
 
-ELEKTITAJ FABELOJ
-
-
 Paŝtistino de anseroj apud puto
 
 En dezerto inter montoj estis iam malgranda domo, en kiu vivis virino maljuna kiel la mondo kun aro da anseroj. La dezerto estis ĉirkaŭita de arbaro, ĉiutage la maljunulino prenis sian lambastonon kaj iris inter la arbojn per ŝanceliĝantaj paŝoj. Tie ŝi multe laboris, pli multe ol oni povus supozi laŭ ŝia maljuna aĝo: ŝi kolektis herbon por la anseroj, deŝiris so-vaĝajn fruktojn tiel alte, kiel povis atingi ŝiaj manoj, kaj portis ĉion sur sia dorso hejmen. Oni povus supozi, ke la peza ŝarĝo devus premi ŝin al la tero, sed ĉiam ŝi sukcese ĝin portis
@@ -5835,9 +5161,6 @@ Sed oni ne renkontis ŝin volonte kaj preferis ĉirkaŭiri, kaj kiam patro prete
 ”Gardu vntraŭ la maljunulino, ŝi estas ruza kiel la diablo, ŝi estas sorĉistino.”
 
 Foje matene bela juna viro iris tra la arbaro. La suno hele lumis, la birdoj kantis kaj malvarmeta vento karesis la foliojn; la junulo iris ĝoje kaj gaje. Li ankoraŭ renkontis neniun, kiam li subite ekvidis la sorĉistinon, kiu genuis sur la tero kaj detranĉis herbon. ŝi jam kolektis amason da ĝi en la sakon kaj apude staris du korboj plenaj de sovaĝaj piroj kaj pomoj.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Maljunulino,” li diris, ”ĉu vi povos forporti ĉion ĉi?”
@@ -5867,9 +5190,6 @@ Li volis ĉion demeti, sed la maljunulino ne permesis.
 ”Rigardu lin,” ŝi diris moke, ”la juna viro ne povas porti, kion mi, maljuna virino, trenas tiel ofte. Belajn vortojn vi ĉiam havas pretajn, sed kiam oni volas doni al vi la laboron, vi tuj malaperas. Kial vi staras tie kaj meditas? Antaŭen! Neniu reprenos la sakon.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Dum li marŝis sur ebena tero, la junulo povis ankoraŭ porti; sed kiam ili venis al la monto kaj devis supreniri, kaj la ŝtonoj ruliĝis sub iliaj piedoj kvazaŭ vivantaj estaĵoj, tiam mankis al li la fortoj. Gutoj de ŝvito banis lian frunton kaj fluis, jen varmaj, jen malvarmaj, sur lia dorso.
 
 ”Patrineto,” li diris, ”mi ne povas plu iri, mi devas iom ripozi.”
@@ -5887,9 +5207,6 @@ Kion li povis fari? Li devis obei la sorton kaj pacience sekvi la maljunulinon. 
 Kiam la anseroj ekvidis la maljunulinon, ili levis la flugilojn, etendis la kolojn, kuris renkonte al ŝi kaj kriis sian krion.
 
 Post la aro kun vergo en la mano iris maljuna knabino, dika kaj alta, sed malbela kiel la nokto.
-
-
-ELEKTITAJ FABELOJ
 
 
 ”Patrino,” ŝi diris al la maljunulino, ”ĉu io okazis al vi? Vi tiel longe forestis.”
@@ -5915,9 +5232,6 @@ Dume la maljunulino karesis la anserojn kvazaŭ infanojn kaj poste iris kun la f
 ”Bele estas ĉi tie,” li diris, ”sed mi estas tiel laca, ke mi ne povas malfermi la okulojn; mi iom dormos. Nur ne venu vento kaj ne forblovu miajn piedojn de la korpo, ĉar ili estas rom-peblaj, kiel fajrofungo.”
 
 
-ELEKTITAJ FABELOJ
-
-
 Li dormis momenton, sed baldaŭ venis la maljunulino kaj skuante vekis lin:
 
 ”Leviĝu,” ŝi diris, ”vi ne povas resti ĉi tie; vere mi iom turmentis vin, sed tio ne kostis al vi la vivon. Nun oni donos al vi vian salajron; vi ne bezonas monon, nek oron, mi donos al vi ion alian.”
@@ -5932,9 +5246,7 @@ Tri tagojn la grafo erarvagis en la arbaro, antaŭ ol li trovis vojon. Li venis 
 
 Kiam la reĝino estis sola, ŝi komencis maldolĉe plori kaj diris:
 
-”Por kio taŭgas la honoro kaj gloro, kiuj ĉirkaŭas min? ĉiumatene mi vekiĝas kun ĉagreno kaj malĝojo. Mi havis tri filinojn, el kiuj la plej juna estis mirakle bela, fama en la tuta mondo. ŝi estis tiel blanka kiel la neĝo, tiel ruĝa kiel la pomaj floroj kaj ŝiaj haroj brilis kiel sunaj radioj. Kiam ŝi ploris, ne 213
-
-ELEKTITAJ FABELOJ
+”Por kio taŭgas la honoro kaj gloro, kiuj ĉirkaŭas min? ĉiumatene mi vekiĝas kun ĉagreno kaj malĝojo. Mi havis tri filinojn, el kiuj la plej juna estis mirakle bela, fama en la tuta mondo. ŝi estis tiel blanka kiel la neĝo, tiel ruĝa kiel la pomaj floroj kaj ŝiaj haroj brilis kiel sunaj radioj. Kiam ŝi ploris, ne
 
 
 larmoj falis el ŝiaj okuloj, sed perloj kaj multvaloraj ŝtonoj.
@@ -5974,9 +5286,6 @@ La reĝo aŭdinte tion ekkoleris kaj diris:
 Li dividis la regnon inter la du pli aĝaj kaj ordonis, ke oni ligu sakon kun salo al la dorso de la tria kaj forkonduku ŝin en sovaĝan arbaron.
 
 
-ELEKTITAJ FABELOJ
-
-
 ”Ni ĉiuj ploris kaj petis kompaton por ŝi,” diris la reĝino,
 
 ”sed la kolero de la reĝo cedis al nenio. Kiel ŝi ploris forlasante nin! La tuta vojo estis kovrita de perloj, kiuj falis el ŝiaj okuloj. La reĝo baldaŭ ekbedaŭris sian severecon kaj ordonis serĉi la malfeliĉan infanon en la tuta arbaro, sed neniu trovis ŝin. Kiam mi pensas, ke sovaĝaj bestoj ŝin manĝis, mia koro krevas de malĝojo; iufoje mi mnsolas per la espero, ke ŝi vivas ankoraŭ, ke ŝi sin kaŝis en kaverno aŭ trovis rifuĝejon ĉe kompatemaj homoj. Sed imagu, ke kiam mi malfermis vian smeraldan skatoleton, mi ekvidis perlon tute saman, kiaj fala-dis el la okuloj de mia filino. Facile vi komprenos, kiel ekbatis mia koro. Vi devas rakonti al mi, kiamaniere vi akiris la perlon.”
@@ -5987,12 +5296,7 @@ La gereĝoj decidis viziti la maljunulinon; ili opiniis, ke ili certe ricevos sc
 
 La maljunulino sidis en sia domo kaj turnis ŝpinradon. Estis jam mallume kaj la bruletantaj karboj de la fajrujo dissendis nur malfortan lumon.
 
-Subite bruo eksonis ekstere: la anseroj revenis hejmen kaj kriis sian raŭkan krion. Baldaŭ eniris ankaŭ la filino, sed la maljunulino apenaŭ salutis ŝin iom ekmovante la kapon. La filino eksidis, prenis ŝpinradon kaj turnis la fadenon tiel lerte, kiel juna knabino. Tiel ili ambaŭ sidis du horojn, ne paro-lante eĉ unu vorton. Fine io ekbruis ĉe la fenestro kaj du faj-215
-
-ELEKTITAJ FABELOJ
-
-
-raj okuloj rigardis internen. Tio estis maljuna strigo, kiu kriis trifoje uhu. La maljunulino ekrigardis supren kaj diris:
+Subite bruo eksonis ekstere: la anseroj revenis hejmen kaj kriis sian raŭkan krion. Baldaŭ eniris ankaŭ la filino, sed la maljunulino apenaŭ salutis ŝin iom ekmovante la kapon. La filino eksidis, prenis ŝpinradon kaj turnis la fadenon tiel lerte, kiel juna knabino. Tiel ili ambaŭ sidis du horojn, ne paro-lante eĉ unu vorton. Fine io ekbruis ĉe la fenestro kaj du fajraj okuloj rigardis internen. Tio estis maljuna strigo, kiu kriis trifoje uhu. La maljunulino ekrigardis supren kaj diris:
 
 ”Jam venis la tempo, iru fari vian laboron.”
 
@@ -6008,9 +5312,7 @@ uste en tiu momento la luno estis kovrita de nigra nubo, la knabino rapide remet
 
 ”Mi jam scias ĉion.”
 
-ŝi kondukis ŝin en la ĉambron kaj ekbruligis lumon. Sed ŝi 216
-
-ELEKTITAJ FABELOJ
+ŝi kondukis ŝin en la ĉambron kaj ekbruligis lumon. Sed ŝi
 
 
 ne revenis al la ŝpinrado; ŝi prenis balailon kaj komencis ordigi la ĉambron.
@@ -6037,25 +5339,18 @@ La maljunulino ne volis diri al la knabino, kio estis okazonta al ŝi.
 
 ”Mi ripetas, ne malhelpu min en mia laboro. ĉesu paroli, iru en vian ĉambron, demetu la haŭton de la vizaĝo kaj prenu la silkan veston, en kiu vi venis al mi; poste restu en via ĉambro, ĝis mi vokos vin.”
 
-Sed mi devas reveni al la gereĝoj, kiuj iris kun la grafo por trovi la maljunulinon. La grafo nokte en la arbaro disiĝis de la gereĝoj kaj daŭrigis la vojon sola. En la sekvinta tago al li 217
-
-ELEKTITAJ FABELOJ
+Sed mi devas reveni al la gereĝoj, kiuj iris kun la grafo por trovi la maljunulinon. La grafo nokte en la arbaro disiĝis de la gereĝoj kaj daŭrigis la vojon sola. En la sekvinta tago al li
 
 
 ŝajnis, ke li trovis la ĝustan vojon. Li iris seninterrompe an-taŭen ĝis la krepusko; li tiam suriris arbon por pasigi tie la nokton: li timis perdi nokte la vojon. Kiam la luno aperis, li ekvidis personon, kiu malsupreniris de la monto. ŝi ne havis vergon en la mano, tamen li povis rekoni la paŝtistinon de la anseroj, kiun li iam vidis en la domo de la maljunulino.
 
 ”Oho,” li diris, ”jen unu sorĉistino, mi do havos ankaŭ la alian.”
 
-Sed kiel li ekmiris, kiam ŝi venis al la puto, demetis la haŭ-
-
-ton kaj sin lavis, kiam la oraj haroj kovris ŝin tutan: tian bel-ulinon li vidis neniam antaŭe. Li kuraĝis apenaŭ spiri, sed li etendis la kolon inter la folioj kiel li povis kaj rigardis, rigardis ŝin senĉese. ĉu tial ke li tro kliniĝis, ĉu pro alia kaŭzo la branĉo ekkrakis, kaj en la sama momento la knabino rapide remetis la haŭton, kaj salte forkuris kiel kapreolino. Nuboj kovris la lunon kaj la grafo ne povis plu vidi ŝin.
+Sed kiel li ekmiris, kiam ŝi venis al la puto, demetis la haŭton kaj sin lavis, kiam la oraj haroj kovris ŝin tutan: tian bel-ulinon li vidis neniam antaŭe. Li kuraĝis apenaŭ spiri, sed li etendis la kolon inter la folioj kiel li povis kaj rigardis, rigardis ŝin senĉese. ĉu tial ke li tro kliniĝis, ĉu pro alia kaŭzo la branĉo ekkrakis, kaj en la sama momento la knabino rapide remetis la haŭton, kaj salte forkuris kiel kapreolino. Nuboj kovris la lunon kaj la grafo ne povis plu vidi ŝin.
 
 Apenaŭ ŝi malaperis, la grafo malsupreniris kaj sekvis ŝin per rapidaj paŝoj. Farinte nur kelke da paŝoj, li ekvidis en la krepusko du personojn paŝantaj sur la herbejo. Tio estis la gereĝoj, ili ekvidis de malproksime la lumon en la domo de la maljunulino kaj iris tien. La grafo rakontis al ili, kiajn stran-gajn aferojn li vidis ĉe la puto, kaj ili ne dubis plu, ke tio estis ilia perdita filino. ojaj ili iris antaŭen kaj baldaŭ atingis la dometon: la anseroj sidis ĉirkaŭe, metinte la kapon sub la flugilojn, kaj neniu moviĝis. La migrantoj rigardis tra la fenestro: la maljunulino sidis senmove, ŝpinis kaj balancis la kapon. La ĉambro estis pure ordigita, kvazaŭ tie loĝus elfoj, kiuj neniam havas polvon sur la piedoj. Sed ili ne vidis sian filinon.
 
 Momenton ili rigardis ĉion, fine ili kuraĝis frapi delikate la fenestron.
-
-
-ELEKTITAJ FABELOJ
 
 
 La maljunulino kvazaŭ atendis ilin, ŝi leviĝis kaj diris amike:
@@ -6082,15 +5377,10 @@ Dirinte tion ŝi malaperis. La muroj iom ekkrakis kaj kiam la venintoj ĉirkaŭr
 
 La fabelo ne estas ankoraŭ finita, sed mia avino, kiu rakontis ĝin al mi, iom perdis la memoron kaj forgesis la reston.
 
-ŝajnas al mi, ke la bela princino kaj la grafo geedziĝis, restis en la palaco kaj vivis tie feliĉe tiel longe, kiel volis Dio. ĉu la 219
-
-ELEKTITAJ FABELOJ
+ŝajnas al mi, ke la bela princino kaj la grafo geedziĝis, restis en la palaco kaj vivis tie feliĉe tiel longe, kiel volis Dio. ĉu la
 
 
 blankaj anseroj, kiujn paŝtis la princino, ĉiuj estis junaj filinoj (mi volas ofendi neniun) kaj ĉu ili ree ricevis homan figuron kaj restis kiel servistinoj ĉe la juna reĝino, tion mi ne scias tute certe, sed mi supozas, ke jes. Sendube estas, ke la maljunulino ne estis sorĉistino kiel oni opiniis, sed bona feino dis-donanta feliĉon. Kredeble estis ŝi, kiu donacis al la princino ĉe la naskigo la econ plori perlojn anstataŭ larmoj. Hodiaŭ tio ne okazas plu, alie la malriĉuloj baldaŭ farigus riĉaj.
-
-
-ELEKTITAJ FABELOJ
 
 
 www.omnibus.se/

@@ -17,14 +17,6 @@ Lingve redaktis
 Franko Luin
 
 
-@omnibus.se
-
-·
-
-
-LA JUNULINO EL STORMYR
-
-
 i
 
 Estas juĝa kunsidejo en la kamparo. ĉe la juĝista tablo en la fundo de la ĉambrego sidas maljuna kampara juĝisto, alta kaj solidkreska viro kun larĝa kaj maldelikata vizaĝo.
@@ -33,9 +25,7 @@ Dum multaj horoj li jam juĝis unu proceson post la alia kaj fine iom da tedego 
 
 ĉi tiun aferon oni jam pritraktis kelkajn fojojn antaŭe, kaj la protokolo de la antaŭaj kunsidoj estas laŭtlegata. El ĝi oni ekscias unuavice, ke la plendanto estas malriĉa farmeta filino kaj ke la akuzito estas edziĝinta viro.
 
-Plue la protokolo tekstas, ke la akuzito deklaris, ke la plendantino lin malprave denuncis kaj nur pro profitemo. Li kon-fesas, ke la plendantino ja servis dum kelka tempo en lia do-mo, sed dum tiu tempo li ne ame proksimigis ŝin, kaj ŝi havas neniun rajton postuli ian ajn helpon de li. La plendantino tamen persistis en sia postulo, kaj post kiam oni aŭskultis kelkaj atestantoj, la akuzito estas devigota defendi sin per ĵuro, se li ne volas esti verdiktita liveri apogon al la plendantino. Ambaŭ partioj ĉeestas kaj staras unu apud la alia antaŭ 3
-
-LA JUNULINO EL STORMYR
+Plue la protokolo tekstas, ke la akuzito deklaris, ke la plendantino lin malprave denuncis kaj nur pro profitemo. Li kon-fesas, ke la plendantino ja servis dum kelka tempo en lia do-mo, sed dum tiu tempo li ne ame proksimigis ŝin, kaj ŝi havas neniun rajton postuli ian ajn helpon de li. La plendantino tamen persistis en sia postulo, kaj post kiam oni aŭskultis kelkaj atestantoj, la akuzito estas devigota defendi sin per ĵuro, se li ne volas esti verdiktita liveri apogon al la plendantino. Ambaŭ partioj ĉeestas kaj staras unu apud la alia antaŭ
 
 
 la juĝista tablo. La plendantino estas tre juna kaj aspektas tute timigita. ŝi ploras pro timemo kaj pene forviŝas la larmojn per faldita naztuko, kiun ŝajne ŝi ne scias malfaldi. ŝi portas iom novajn kaj neuzitajn nigrajn vestojn, sed ili harmonias al ŝi tiel malbone, ke oni emas opinii, ke ŝi prunteprenis ilin por povi aperi bonmore antaŭ la juĝistaro. Koncerne la akuziton oni tuj konstatas, vidante lin, ke li estas viro riĉeta. Li estas kvardekjarulo kaj aspektas brava kaj vigla. Nun tie antaŭ la juĝisto li havas tre bonan sintenon. Oni vidas, ke ne plaĉas al li stari tie, tamen li neniel aspektas ĝenata.
@@ -48,9 +38,7 @@ Sed kiam li diras sian ”jes,” ŝi ektremas. ŝi proksimiĝas al la tablo je 
 
 Tamen la juĝisto akceptas la ateston, kaj samtempe li sig-ne avertas la pedelon kaj la pedelo alpaŝas la tablon por meti la biblion antaŭ la akuziton.
 
-La plendantino aŭdas, ke iu preterpasas ŝin kaj maltrankviliĝas. ŝi devigas sin suprenlevi la rigardon tiom, ke ŝi povas 4
-
-LA JUNULINO EL STORMYR
+La plendantino aŭdas, ke iu preterpasas ŝin kaj maltrankviliĝas. ŝi devigas sin suprenlevi la rigardon tiom, ke ŝi povas
 
 
 vidi super la tablon, kaj tiam ŝi vidas, kiel la pedelo ŝovas la biblion.
@@ -63,13 +51,9 @@ La juĝisto ja ne povas kredi, ke ŝi mensogas pri tia afero, ke ŝi estus alvok
 
 Pro tio ŝi komencas kredi, ke li intencas interveni.
 
-Estas vere ankaŭ, ke la juĝisto aspektas pripensema. Li turnas siajn rigardojn kelkfoje al la plendantino. Sed farante tion, la esprimo de tediĝo kaj abomeno, kiu posedas lian viza-
+Estas vere ankaŭ, ke la juĝisto aspektas pripensema. Li turnas siajn rigardojn kelkfoje al la plendantino. Sed farante tion, la esprimo de tediĝo kaj abomeno, kiu posedas lian vizaĝon, fariĝas eĉ pli videbla. ŝajnas kiel se li kolerus al ŝi. Eĉ se la plendantino diras la veron, ŝi ja estas malmorala homo, kaj la juĝisto povas neniel kompati ŝin.
 
-ĝon, fariĝas eĉ pli videbla. ŝajnas kiel se li kolerus al ŝi. Eĉ se la plendantino diras la veron, ŝi ja estas malmorala homo, kaj la juĝisto povas neniel kompati ŝin.
-
-Okazas kelkfoje, ke juĝisto intervenas en proceso, kiel bo-na kaj prudenta konsilanto, kaj malhelpas la partiojn tute 5
-
-LA JUNULINO EL STORMYR
+Okazas kelkfoje, ke juĝisto intervenas en proceso, kiel bo-na kaj prudenta konsilanto, kaj malhelpas la partiojn tute
 
 
 ruinigi sin mem, sed ĉi tiun tagon li estas laca kaj tediĝanta, kaj li ne pensas alion ol havigi al la leĝa procedo la kutiman ordon.
@@ -86,9 +70,7 @@ Sed nun ŝi sentas la certecon, ke tio estos baldaŭa, ke tio okazos la sekvanta
 
 ŝi ja komprenas, ke li volas senkulpigi sin per ĵuro antaŭ sia edzino. Sed eĉ se ŝi llerus, li tamen ne rajtas pro tio forĵeti la gracon de sia animo. Ekzistas nenio pli terura ol falsa ĵuro. Ekzistas io mistera kaj terura en tia peko. Ekzistas neniu pardono por ĝi. La pordegoj de la infero malfermiĝas pro-pramove, kiam estas menciita la nomo de falsĵurinto.
 
-Se nun ŝi estus levinta sian rigardon al lia vizaĝo, ŝi timus 6
-
-LA JUNULINO EL STORMYR
+Se nun ŝi estus levinta sian rigardon al lia vizaĝo, ŝi timus
 
 
 vidi ĝin stampita per la marko de kondamno, surpremita de la kolero de Dio.
@@ -101,9 +83,7 @@ Kiam ŝi vidas, ke li metas la fingrojn sur la libron, ŝi alproksimiĝas je unu
 
 Sed ankoraŭ ŝin tamen detenas lasta espero. ŝi kredas, ke li cedos nun, lastmomente.
 
-La juĝisto jam trovis la pakon de la protokolo, kiun li ser-
-
-ĉis, kaj li komencas antaŭlegi la ĵuron laŭte kaj klare. Tiam li paŭzas, por ke la akuzito ripetu liajn vortojn. Kaj la akuzito fakte komencas rediri ilin, sed li okaze eraras kaj la juĝisto devas rekomenci de la komenco. —
+La juĝisto jam trovis la pakon de la protokolo, kiun li serĉis, kaj li komencas antaŭlegi la ĵuron laŭte kaj klare. Tiam li paŭzas, por ke la akuzito ripetu liajn vortojn. Kaj la akuzito fakte komencas rediri ilin, sed li okaze eraras kaj la juĝisto devas rekomenci de la komenco. —
 
 Nun ŝi ne povas havi plu eron da espero. Nun ŝi scias, ke li intencas ĵuri trompe, ke li intencas altiri al si la koleron de Dio por tiu ĉi vivo kaj ankaŭ por la estonta.
 
@@ -116,9 +96,6 @@ Neniam ŝi kredus, ke li volus fari tian abomenindan pekon.
 Nun la juĝisto denove antaŭlegas la ĵuron. Post kelkaj momentoj la afero estos farita. Tia afero, kiun oni ne povas mal-fari, kiun oni povos neniam forigi.
 
 uste kiam la akuzito komencas rediri la ĵuron, ŝi alkuras, forpuŝas lian etenditan manon kaj tiras al si la biblion.
-
-
-LA JUNULINO EL STORMYR
 
 
 ŝia grandega teruro fine donis al ŝi kuraĝon. Li ne rajtas forĵuri sian animon. Li ne rajtas fari tion.
@@ -147,9 +124,7 @@ Sed ŝi ne obeas, kaj firme tenas la libron per ambaŭ manoj.
 
 ”Kial vi kriegas?” demandas la juĝisto. ”ĉu vi perdis la prudenton?”
 
-ŝi enspiregas pene kaj subite kaj klopodas trankviliĝi. ŝi 8
-
-LA JUNULINO EL STORMYR
+ŝi enspiregas pene kaj subite kaj klopodas trankviliĝi. ŝi
 
 
 aŭdas mem, kiel ŝi kriegas. La juĝisto certe devas kredi, ke ŝi perdis la prudenton, se ŝi ne povas diri trankvile, kion ŝi volas. ŝi denove batalas kun si mem por kontroli la voĉon, kaj ĉi tiun fojon ŝi sukcesas. Malrapide, grave kaj klare ŝi diras, dum ŝi rigardas la juĝiston rekte vizaĝen: ”Mi volas nuligi la proceson. Li estas la patro de la infano. Sed mi lin amas ankoraŭ. Mi ne volas, ke li ĵuru trompe.”
@@ -161,9 +136,6 @@ Subite la juĝisto sentas, ke liaj okuloj pleniĝas je larmoj, kaj tiam li ektre
 Tiam la juĝisto ankaŭ rigardis la ĉeestantojn, kaj ŝajnis al li, ke ĉiuj sidas trankvile, subite enspiregante, kiel se ili ĵus aŭdis, kion ili deziregis antaŭ ĉio.
 
 Laste la juĝisto rigardas la akuziton. Nun li staras tie kun mallevita kapo kaj rigardas planken.
-
-
-LA JUNULINO EL STORMYR
 
 
 La juĝisto sin turnas denove aŭ la malriĉa knabino. ”Mi respektas vian volon,” li diris. ”La proceso estu nuligita,” li diras tuj poste al la sekretario.
@@ -179,9 +151,6 @@ La juĝisto restas trankvila ankoraŭ momenton, poste li ŝovas malantaŭen la p
 ĝin skuas, kiel se ŝi apartenus al vera bravulo.
 
 
-LA JUNULINO EL STORMYR
-
-
 ii
 
 Neniu kredu, ke la junulino mem, kiu ĵus travivis tiel penigan momenton tie ĉe la tablo, opinias, ke ŝi faris ion laŭdindan. Kontraŭe ŝi opinias, ke ŝi hontigis sin antaŭ la tuta ĉeestantaro. ŝi ne komprenas, ke estas io honora en tio, ke la juĝisto iris al ŝi por premi al ŝi la manon. ŝi kredas, ke tio nur signifas, ke la proceso jam finiĝis, kaj ke oni perme-sas al ŝi foriri.
@@ -193,54 +162,33 @@ Kiam ŝi fine elvenis, la ĉareto de Gudmund Erlandsson staris ĉevaligita anta�
 Kvankam ŝi aŭdis sian nomon, ŝi ne povis kredi, ke oni vo-kas ŝin. Ne estas eble, ke Gudmund Erlandsson volas ŝin veturigi. Li estis la plej bela viro de la tuta paro˛o. Juna kaj bela, de bona familio kaj la favorato de ĉiuj homoj. Fakte ŝi ne povis kredi, ke li volus interrilati kun ŝi.
 
 
-LA JUNULINO EL STORMYR
-
-
 Kun kaptuko tute ŝovita antaŭen super la frunto ŝi preter-rapidis lin kaj nek rigardis supren, nek respondis. ”ĉu vi ne aŭdas, Helga, ke vi povas veturi kun mi?” Gudmund diris kaj estis en lia voĉo vere afabla esprimo. Sed ŝi povis neniel enigi en sian kapon, ke Gudmund bonvolas al ŝi. ŝi kredis, ke li volos iamaniere moki ŝin, kaj ŝi nur atendis, ke tiuj, kiuj troviĝas apude, komencos rideti kaj ridegi. ŝi rigardis lin timeme kaj indigne, kaj preskaŭ duonkuris de la kunsidejo por ne aŭdi la komencotan ridegon.
 
 Gudmund estis fraŭlo tiutempe kaj loĝis en la domo de siaj gepatroj. La patro estis bienulo. Li ne havis grandan bienon kaj li ne estis riĉa, sed li havis la porvivon. La filo veturis al la kunsido por havigi al la patro kelkajn aktojn, sed ĉar lia veturo havis ankaŭ alian celon, li pretigis sin bonege. Li prenis la novan ĉareton, kies lako havis eĉ ne fendeton; la ĉevalon li striglis, ĝis kiam ĝi brilis kiel silko, kaj la jungaĵon li ciris. Li metis beletan, ruĝan lankovrilon apud sin sur la sidejon, kaj sin mem li vestis per mallonga ĉasjaketo, malgranda griza feltoĉapelo kaj altaj botoj, en kiujn estis enŝovita la pantalono. Ne estis tio festotaga kostumo, sed li bone sciis, ke li aspektas vira kaj impona en ĝi.
 
-Gudmund sidis sola en la ĉareto, kiam matene li forveturis de sia hejmo, sed li pripensis agrablajn aferojn kaj la tempo ne ŝajnis al li longa. Veturinte preskaŭ duonvoje, li preterpasis malriĉan, tre malrapide irantan junulinon, kiu aspektis kiel se ŝi ne kapablus levi la piedojn pro laciĝo. Estis aŭ-
-
-tuno, la vojo estis tute malseka pro pluvo kaj Gudmund vidis, kiel profunde ŝi eniĝas en la koton je ĉiu paŝo. Li haltis kaj demandis, kien ŝi iras, kaj eksciante, ke ŝi intencas iri al la juĝa kunsido, li proponis al ŝi veturi kun li. ŝi dankis, supren-12
-
-LA JUNULINO EL STORMYR
+Gudmund sidis sola en la ĉareto, kiam matene li forveturis de sia hejmo, sed li pripensis agrablajn aferojn kaj la tempo ne ŝajnis al li longa. Veturinte preskaŭ duonvoje, li preterpasis malriĉan, tre malrapide irantan junulinon, kiu aspektis kiel se ŝi ne kapablus levi la piedojn pro laciĝo. Estis aŭtuno, la vojo estis tute malseka pro pluvo kaj Gudmund vidis, kiel profunde ŝi eniĝas en la koton je ĉiu paŝo. Li haltis kaj demandis, kien ŝi iras, kaj eksciante, ke ŝi intencas iri al la juĝa kunsido, li proponis al ŝi veturi kun li. ŝi dankis, supren-12
 
 
 rampis la ĉareton malantaŭe kaj sidiĝis sur la mallarĝan ta-bulon, kie estis ligita la fojnosako, kiel se ŝi ne kuraĝus tuŝi la ruĝan felton apud Gudmund. Li eĉ ne pensis permesi, ke ŝi sidiĝu apud lin. Li ne sciis, kiu ŝi estas, sed li supozis, ke ŝi estas filino de iu malriĉa kamparano kaj li pensis, ke certe ŝi ŝatos veturi malantaŭe en la ĉareto.
 
-Kiam ili atingis deklivon kaj la ĉevalo iris malpli rapide, Gudmund ekbabilis. Li volis informiĝi pri ŝiaj nomo kaj loĝ-
-
-loko. Aŭdinte, ke ŝi nomiĝas Helga kaj loĝas en arbara farmeto nomata Stormyr, li komencis maltrankviliĝi. ”ĉu vi ĉiam restis en tiu farmeto ĉe viaj gepatroj aŭ ĉu vi forestis kiel servistino?” li demandis. La lastan jaron ŝi loĝis hejme, li eksciis, sed antaŭe ŝi tenis servon. ”ĉe kiu do,” rapidege demandis Gudmund. ŝajnis al li, ke iom da tempo pasis antaŭ ol ŝi respondis. ”En Vestgård ĉe Per Mårtensson,” ŝi diris fine, mallaŭtigante la voĉon, kiel se ŝi estus preferinta, ke li tion ne aŭdu. Sed Gudmund certe aŭdis tion. ”Ho, tiam estas vi, kiu
+Kiam ili atingis deklivon kaj la ĉevalo iris malpli rapide, Gudmund ekbabilis. Li volis informiĝi pri ŝiaj nomo kaj loĝloko. Aŭdinte, ke ŝi nomiĝas Helga kaj loĝas en arbara farmeto nomata Stormyr, li komencis maltrankviliĝi. ”ĉu vi ĉiam restis en tiu farmeto ĉe viaj gepatroj aŭ ĉu vi forestis kiel servistino?” li demandis. La lastan jaron ŝi loĝis hejme, li eksciis, sed antaŭe ŝi tenis servon. ”ĉe kiu do,” rapidege demandis Gudmund. ŝajnis al li, ke iom da tempo pasis antaŭ ol ŝi respondis. ”En Vestgård ĉe Per Mårtensson,” ŝi diris fine, mallaŭtigante la voĉon, kiel se ŝi estus preferinta, ke li tion ne aŭdu. Sed Gudmund certe aŭdis tion. ”Ho, tiam estas vi, kiu
 
 — — ,” li diris, sed li ne daŭrigis la frazon. Li forturnis sin de ŝi kaj sidiĝis laŭkutime kaj ne diris plu vorton al ŝi. Gudmund donis al la ĉevalo baton post bato, laŭte blasfemis pro la malbona vojstato kaj ŝajnis esti tre malbonhumora. La junulino restis senmova dum kelka tempo, sed baldaŭ Gudmund sentis ŝian manon sur sia brako. ”Kion vi deziras?” li demandis sen turni la kapon. Li haltu, li eksciis, por ke ŝi povu eliri. ”Ha, kial?” Gudmund diris insultvoĉe. ”ĉu vi ne bone veturas?” —
 
-”Jes, dankon, sed mi preferas piediri.” Gudmund batalis iom kun si mem. Estis bedaŭrinde, ke ĝuste ĉi tiun tagon li invi-tis tian, kia estas Helga, veturi kun li. Sed li ankaŭ pensis ke, permesinte al ŝi suriri la ĉareton, li ne povis forpeli ŝin. ”Haltu, Gudmund, mi petas,” rediris la junulino. ŝi parolis tute de-13
-
-LA JUNULINO EL STORMYR
-
-
-cideme, Gudmund streĉis la bridojn. — ”Estas ja ŝi, kiu deziras elveturiĝi,” li pensis. ”Mi ne bezonas devigi ŝin veturi kontraŭvole.” Jen ŝi staris sur la vojo, antaŭ ol la ĉevalo haltis. —
+”Jes, dankon, sed mi preferas piediri.” Gudmund batalis iom kun si mem. Estis bedaŭrinde, ke ĝuste ĉi tiun tagon li invi-tis tian, kia estas Helga, veturi kun li. Sed li ankaŭ pensis ke, permesinte al ŝi suriri la ĉareton, li ne povis forpeli ŝin. ”Haltu, Gudmund, mi petas,” rediris la junulino. ŝi parolis tute decideme, Gudmund streĉis la bridojn. — ”Estas ja ŝi, kiu deziras elveturiĝi,” li pensis. ”Mi ne bezonas devigi ŝin veturi kontraŭvole.” Jen ŝi staris sur la vojo, antaŭ ol la ĉevalo haltis. —
 
 ”Mi kredis, ke vi min rekonis, kiam vi proponis al mi kunve-turi,” ŝi diris. ”Alie mi ne estus suririnta la ĉareton.” Gudmund diris mallongan ”adiaŭ” kaj denove forveturis. ŝi certe estis prava, kredante, ke li rekonis ŝin. Li ja multajn fojojn jam vidis la junulinon de la farmeto de Stormyr kiel infanon, sed ŝi ŝangiĝis, post kiam ŝi fariĝis plenkreska. Komence li tre ĝojis, ke li liberigis sin de la kunveturantino, sed iom post iom li sentis malkontenton pri si mem. Verŝajne li ne povis agi alie, sed ne plaĉis al li esti kruela al iu ajn.
 
-Momenton post kiam Gudmund forlasis Helgan, li flan-
-
-keniĝis for de la ŝoseo, veturis laŭ mallarĝa vojo kaj atingis grandan, bonegan bienon. Kiam Gudmund haltis antaŭ la
+Momenton post kiam Gudmund forlasis Helgan, li flankeniĝis for de la ŝoseo, veturis laŭ mallarĝa vojo kaj atingis grandan, bonegan bienon. Kiam Gudmund haltis antaŭ la
 
 ŝtuparo, la enirpordo malfermiĝis kaj unu el la filinoj montris sin sur la sojlo. Gudmund salute demetis la ĉapelon, kaj en la sama momento lia vizaĝo iomete ruĝiĝis. ”Mi dezirus scii, ĉu la skabeno estas hejme?” li diris. — ”Ne, paĉjo jam forveturis al la kunsido,” respondis la filino. — ”Vere, li jam forveturis!” diris Gudmund. ”Mi veturis ĉi tien por demandi, ĉu lia skabena moŝto volus veturi kun mi. Mi ankaŭ intencas veturi al la kunsido.” — ”Paĉjo ĉiam tiel fruas,” plendis la filino. —
 
 ”Tio ne gravas,” diris Gudmund. — ”Paĉjo certe deziregus veturi post tiel bonega ĉevalo kaj en tia bela ĉareto, kian vi havas, Gudmund,” afable diris la junulino. Gudmund iom ridetis, aŭdante la laŭdon. ”Nu, do mi devas forveturi denove,” li diris. — ”ĉu vi ne volas eniri, Gudmund?” — ”Mi vin dankas, Hildur, sed mi ja devas veturi al la kunsido. Ne decas, ke mi malfruu.”
 
 
-LA JUNULINO EL STORMYR
-
-
 Gudmund nun veturis rekte al la kunsidejo. Li estis tre kontenta, kaj ne plu pensis pri la renkonto kun Helga. Estis feliĉe, ke ĝuste Hildur eliris sur la ŝtuparon, por ke ŝi vidu kaj la ĉareton kun la felto, kaj la ĉevalon kun la jungaĵo. ŝi certe ĉion rimarkis.
 
-Por la unua fojo Gudmund ĉeestis kunsidon, ŝajnis al li, ke li aŭdas kaj ekscias tie multon interesan, kaj li restis tie la tutan tagon. Li sidis en la kunsideja ĉambro, kiam oni pritraktis la aferon de Helga, li vidis kiel ŝi tiris al si la biblion kaj firme eltenis la pedelon kaj la juĝiston. Kiam ĉio finiĝis kaj la juĝisto jam premis la manon al Helga, Gudmund subite levi-
-
-ĝis kaj eliris. Li rapide jungis la ĉevalon al la ĉareto kaj veturis antaŭ la ŝtuparon. Li opiniis, ke Helga kondutis kuraĝe, kaj nun li intencis honori ŝin. Sed ŝi estis tiel timigita, ke ŝi ne komprenis la intencon, sed forŝteliĝis de la honoro, kiun li jam planis por ŝi.
+Por la unua fojo Gudmund ĉeestis kunsidon, ŝajnis al li, ke li aŭdas kaj ekscias tie multon interesan, kaj li restis tie la tutan tagon. Li sidis en la kunsideja ĉambro, kiam oni pritraktis la aferon de Helga, li vidis kiel ŝi tiris al si la biblion kaj firme eltenis la pedelon kaj la juĝiston. Kiam ĉio finiĝis kaj la juĝisto jam premis la manon al Helga, Gudmund subite leviĝis kaj eliris. Li rapide jungis la ĉevalon al la ĉareto kaj veturis antaŭ la ŝtuparon. Li opiniis, ke Helga kondutis kuraĝe, kaj nun li intencis honori ŝin. Sed ŝi estis tiel timigita, ke ŝi ne komprenis la intencon, sed forŝteliĝis de la honoro, kiun li jam planis por ŝi.
 
 Tiun saman tagon, malfrue vespere, Gudmund alvenis al
 
@@ -251,24 +199,17 @@ La farmeto de Stormyr kuŝis sur kulturejo, proksimume
 mezvoje sur la altaĵa deklivo. Gudmund ne estis tie antaŭe, sed ofte li vidis la lokon de malsupre de la valo, kaj li ĝnis tiom, ke li sciis, ke li ne eraras.
 
 
-LA JUNULINO EL STORMYR
-
-
 ĉirkaŭ la kulturejo troviĝis tre densa kaj malfacile trans-grimpebla plektobarilo. i verŝajne estis kvazaŭ ŝirmilo kaj defendo de la sovaĝejo, kiu ĉirkaŭis la farmeton. La dometo kuŝis ĉe la supra rando de la ĉirkaŭfermita kulturejo. Antaŭ
 
 ĝi etendiĝis dekliva herboriĉa korto kaj malsupre de la korto troviĝis kelkaj grizaj mastrumaj konstruaĵoj kaj provizejo kun verda torfotegmento. Malgranda kaj malriĉa farmeto ĝi estis, sed estis nepridiskuteble, ke ĝi estis belege lokita tie supre. La marĉo, laŭ kiu estis nomita la farmeto, troviĝis ie apude kaj suprensendis nebulon, kiu etendiĝis bele kaj brilis kiel arĝento pro la lunbrilo kaj formis kronon ĉirkaŭ la altaĵo.
 
 La supro de la monto ankoraŭ elstaris super la nebulo, kaj la dorso, kiu estis pinta pro abioj, desegniĝis kontraŭ la ĉielo.
 
-Malsupre super la valo la lunbrilo estis tiel klara, ke oni povis distingi kaj la kampojn kun la farmoj kaj la serpentuman-tan rivereton, super kiu glitflugis la nebulo kiel plej malpeza fumo. Ne estis malproksime tien, sed plej kurioze estis, ke la valo aspektis kiel stranga mondo, kie la aparteno al la arbaro ŝajnis havi neniun vivrajton. ŝajnis ke la homoj, kiuj loĝas ĉi tie en la arbara farmeto, devus ĉiam resti sub la arboj. Ver-
-
-ŝajne ili sentus smfortaj sube en la valo ne pli ol uroga-loj, gufoj, lj, vakcinioj kaj trientaloj.
+Malsupre super la valo la lunbrilo estis tiel klara, ke oni povis distingi kaj la kampojn kun la farmoj kaj la serpentuman-tan rivereton, super kiu glitflugis la nebulo kiel plej malpeza fumo. Ne estis malproksime tien, sed plej kurioze estis, ke la valo aspektis kiel stranga mondo, kie la aparteno al la arbaro ŝajnis havi neniun vivrajton. ŝajnis ke la homoj, kiuj loĝas ĉi tie en la arbara farmeto, devus ĉiam resti sub la arboj. Verŝajne ili sentus smfortaj sube en la valo ne pli ol uroga-loj, gufoj, lj, vakcinioj kaj trientaloj.
 
 Gudmund transiris la senarban, herboriĉan lokon al la dometo. Fajrobrilo estis videbla tra la fenestro, nenio kovris la vitrojn, kaj li rigardis por vidi, ĉu Helga estas en la dometo.
 
-Lampeto brulis sur tablo ĉe la fenestro, kaj tie sidis la fami-liestro, riparanta malnovajn ŝuojn. La mastrino sidis pli malantaŭe en la ĉambro ĉe forno, kie brilis fajreto. Antaŭ ŝi troviĝis radŝpinilo, sed ŝi jam ĉesis sian laboron por ludi kun infaneto. ŝi estis ĝin suprenlevinta en lulilo, kaj eĉ Gudmund 16
-
-LA JUNULINO EL STORMYR
+Lampeto brulis sur tablo ĉe la fenestro, kaj tie sidis la fami-liestro, riparanta malnovajn ŝuojn. La mastrino sidis pli malantaŭe en la ĉambro ĉe forno, kie brilis fajreto. Antaŭ ŝi troviĝis radŝpinilo, sed ŝi jam ĉesis sian laboron por ludi kun infaneto. ŝi estis ĝin suprenlevinta en lulilo, kaj eĉ Gudmund
 
 
 aŭdis, kiel ŝi babilas kun ĝi. ŝia vizaĝo estis tre sulka kaj ŝi aspektis severa, sed klinante la kapon super la infaneton, ŝi fariĝis milda kaj ridetis al ĝi same ameme kiel estus farinta ĝia propra patrino.
@@ -287,9 +228,7 @@ Samtempe li pensis, ke estas tre strange, ke li nun subite tiom okupiĝas pri ti
 
 Kiam li alvenis hejmen de la kunsido, li iris laŭkutime al sia patrino por rakonti al ŝi ĉion, kion li travivis dumtage. La patrino de Gudmund estis saĝa kaj grandanima, kaj ŝi ĉiam sciis konduti tiel al la filo, ke ankoraŭ li fidis je ŝi same, kiel li faris kiel infano. ŝi estis malsana de multaj jaroj; ŝi ne povis piediri, sed dum la tuta tago ŝi sidis senmove sur sia seĝo. ŝi ĉiam ĝojis, kiam Gudmund revenis hejmen kaj alportis no-vaĵojn al ŝi.
 
-Kiam Gudmund finis la rakonton pri Helga el Stormyr, li 17
-
-LA JUNULINO EL STORMYR
+Kiam Gudmund finis la rakonton pri Helga el Stormyr, li
 
 
 vidis, ke la patrino fariĝis pensema. Longan tempon ŝi restis silenta, rigardante rekte antaŭ si. — ”ŝajnas tamen, ke troviĝas io bona en tiu junulino,” ŝi diris poste. ”Ne taŭgas forpeli iun, ĉar okazis al tiu foje io malagrabla. Verŝajne estas tiel, ke ŝi fariĝos dankema al tiu, kiu nun helpos ŝin.” —
@@ -300,9 +239,7 @@ Gudmund tuj komprenis, pri kio pensas la patrino. ŝi ne povis plu helpi sin mem
 
 Al tio la patrino nenion respondis, sed komencis paroli pri aliaj aferoj. Oni rimarkis, ke novaj duboj prezentis sin, kiuj malhelpis ŝian decidon.
 
-Gudmund nun komencis rakonti, kiel li trovis pretekston por viziti la bienon de la skabeno de Elvåkra, kaj ke li renkontis Hildur. Li rakontis, kion ŝi diris pri la ĉevalo kaj la ĉareto, kaj estis facile videble, ke li ĝojas pro la renkonto. Ankaŭ la patrino estis tre kontenta. Sidante tie senmova en la ĉambro, 18
-
-LA JUNULINO EL STORMYR
+Gudmund nun komencis rakonti, kiel li trovis pretekston por viziti la bienon de la skabeno de Elvåkra, kaj ke li renkontis Hildur. Li rakontis, kion ŝi diris pri la ĉevalo kaj la ĉareto, kaj estis facile videble, ke li ĝojas pro la renkonto. Ankaŭ la patrino estis tre kontenta. Sidante tie senmova en la ĉambro,
 
 
 ŝi konstante planis la estontecon de sia filo, kaj ŝi unua proponis, ke li provu havigi la belan filinon de la skabeno kiel edzinon. ŝi estis la plejeble oportuna. La skabeno estis vere respektinda kamparano. Li posedis la plej grandan bienon de la paro˛o, kaj multe da potenco kaj mono li havis. Estis fakte absurde esperi, ke li kontentiĝos je bofilo, kiu ne havas pli da riĉaĵo ol Gudmund, sed estis ankaŭ eble, ke li adaptiĝos al tio, kion deziros lia filino. Kaj ke Gudmund sukcesos havigi Hildur, se li volos, pri tio la patrino estis sufiĉe certa.
@@ -313,13 +250,7 @@ Estis la unua fojo, ke Gudmund komprenigis al la patrino, ke tiu opinio enradiki
 
 Kiam komenciĝis la krepusko, la malsanulino enlitiĝis kaj Gudmund eniris la stalon por strigli la ĉevalojn. Estis bela vetero, klara aero, kaj la tutan najbaraĵon heligis lunbrilo. Li pensis, ke li devas iri al Stormyr por konigi, eĉ la saman vesperon, la saluton de la patrino. Se la sekvonta tago estos sen-pluva, oni havos tiom da laboro por hejmenporti la avenon, ke nek li, nek iu alia havos tempon iri tien.
 
-Kiam nun Gudmund staris antaŭ la farmeto de Stormyr kaj aŭskultis, li tamen aŭdis ne piedpaŝojn sed aliajn sonojn, kiuj je mallongaj paŭzoj akre trapenetris la silenton. Estis mallaŭ-
-
-
-LA JUNULINO EL STORMYR
-
-
-ta plendo, tre mallaŭta kaj sufokita ĝemado kaj kelkfoje plorsingulto. ŝajnis al Gudmund, ke la sonoj venas el la ekonomia konstruaĵo, kaj li iris al ĝi. Kiam li proksimiĝis al ĝi, la ĝemoj ĉesis, sed estis evidente, ke iu moviĝas en la brullignejo. Gudmund tuj komprenis, kiu estas tie. ”ĉu vi sidas tie, Helga, kaj ploras?” Gudmund diris kaj stariĝis en la pordo, por ke la junulino ne forkuru, antaŭ ol li parolis kun ŝi.
+Kiam nun Gudmund staris antaŭ la farmeto de Stormyr kaj aŭskultis, li tamen aŭdis ne piedpaŝojn sed aliajn sonojn, kiuj je mallongaj paŭzoj akre trapenetris la silenton. Estis mallaŭta plendo, tre mallaŭta kaj sufokita ĝemado kaj kelkfoje plorsingulto. ŝajnis al Gudmund, ke la sonoj venas el la ekonomia konstruaĵo, kaj li iris al ĝi. Kiam li proksimiĝis al ĝi, la ĝemoj ĉesis, sed estis evidente, ke iu moviĝas en la brullignejo. Gudmund tuj komprenis, kiu estas tie. ”ĉu vi sidas tie, Helga, kaj ploras?” Gudmund diris kaj stariĝis en la pordo, por ke la junulino ne forkuru, antaŭ ol li parolis kun ŝi.
 
 Fariĝis denove tute silente. Gudmund estis certe prava, su-pozante ke Helga sidas tie plorante, sed ŝi klopodis sufoki la
 
@@ -327,9 +258,7 @@ Fariĝis denove tute silente. Gudmund estis certe prava, su-pozante ke Helga sid
 
 Estis tute senlume en la budo kaj ŝi sciis, ke li ne povas vidi ŝin.
 
-Sed tiun vesperon Helga sentis tian malesperon, ke ne estis facile al ŝi deteni la ploron. ŝi ankoraŭ ne eniris la dometon por saluti la gepatrojn. Tion ŝi tute ne kuraĝis. Suprenirante dum la krepusko la penigajn deklivojn kaj pensante pri tio, ke nun estos necese rakonti al la gepatroj, ke ŝi ne ricevos mon-subtenon de Per Mårtenson, ŝi tiel timis ĉion severan kaj kru-elan, kion, laŭ ŝia opinio, diros al ŝi la gepatroj, ke ŝi ne ku-raĝis eniri. ŝi pensis, ke ŝi prefere restos ekstere, ĝis kiam ili enlitiĝos, ĉar tiamaniere ŝi nur la sekvontan matenon devos rakonti la malfeliĉon, kaj tial ŝi kaŝis sin en la lignejo. Dum ŝi sidis tie kaj sentis malvarmon kaj malsaton, eniris en ŝian animon la penso, kiel malfeliĉa kaj malestimata ŝi estas. ĉiu honto kaj ĉiu timo, kiujn jam ŝi devis travivi, kaj ĉiu honto kaj ĉiu timo, kiujn ankoraŭ ŝi devos travivi, prezentis sin al ŝi kaj kuŝiĝis sur ŝin kun vera plumbopezo. ŝi ploris pro si mem, pro tio, ke ŝi estas tiel malbona, ke neniu volas vidi ŝin. ŝi memoris, ke iam, kiam ŝi estis infano, ŝi enfalis ŝlimtruon en la marĉo, kaj tuta ŝi eniĝis malsupren. Ju pli ŝi klopodis eliri, des 20
-
-LA JUNULINO EL STORMYR
+Sed tiun vesperon Helga sentis tian malesperon, ke ne estis facile al ŝi deteni la ploron. ŝi ankoraŭ ne eniris la dometon por saluti la gepatrojn. Tion ŝi tute ne kuraĝis. Suprenirante dum la krepusko la penigajn deklivojn kaj pensante pri tio, ke nun estos necese rakonti al la gepatroj, ke ŝi ne ricevos mon-subtenon de Per Mårtenson, ŝi tiel timis ĉion severan kaj kru-elan, kion, laŭ ŝia opinio, diros al ŝi la gepatroj, ke ŝi ne ku-raĝis eniri. ŝi pensis, ke ŝi prefere restos ekstere, ĝis kiam ili enlitiĝos, ĉar tiamaniere ŝi nur la sekvontan matenon devos rakonti la malfeliĉon, kaj tial ŝi kaŝis sin en la lignejo. Dum ŝi sidis tie kaj sentis malvarmon kaj malsaton, eniris en ŝian animon la penso, kiel malfeliĉa kaj malestimata ŝi estas. ĉiu honto kaj ĉiu timo, kiujn jam ŝi devis travivi, kaj ĉiu honto kaj ĉiu timo, kiujn ankoraŭ ŝi devos travivi, prezentis sin al ŝi kaj kuŝiĝis sur ŝin kun vera plumbopezo. ŝi ploris pro si mem, pro tio, ke ŝi estas tiel malbona, ke neniu volas vidi ŝin. ŝi memoris, ke iam, kiam ŝi estis infano, ŝi enfalis ŝlimtruon en la marĉo, kaj tuta ŝi eniĝis malsupren. Ju pli ŝi klopodis eliri, des
 
 
 pli profunde ŝi eniĝis. ĉiuj herbotufoj kaj ĉiuj arbetoj, kiujn ŝi kaptis, foriris. Same estis ankaŭ nun. ĉio, kion ŝi penis kapti por resti sur la supro, perfide trompis ŝin. Neniu volis helpi ŝin. Tiun fojon, kiam ŝi falis en marĉon, fine alvenis paŝtisto, kiu ŝin eltiris, sed nun neniu venis por savi ŝin. Nun ŝajnis al ŝi tute sendube, ke ŝi estas pereonta.
@@ -351,9 +280,6 @@ Li prefere estus tuj foririnta, sed li pensis, ke kaŭzinte al si la laboron sup
 ”Kion vi timas? Vi ja kondutis tiel brave hodiaŭ antaŭ la pedeloj kaj juĝistoj. Vi ja ne timas viajn gepatrojn, ĉu?” —
 
 
-LA JUNULINO EL STORMYR
-
-
 ”Jes, ili estas multe pli severaj ol ĉiuj aliaj.” — ”Kial ili koleru
 
 ĝuste hodiaŭ?” — ”Mi ja ne ricevos monon.” — ”Verŝajne vi estas tiel brava knabino, ke vi povos gajni la panon por vi mem kaj por la infano.”
@@ -370,12 +296,7 @@ Jes, tion ŝi promesis. — ”ĉu oni povas sidiĝi tie ĉi?” — ”La hakŝ
 
 — ŝi sidiĝis tute obeeme. — ”Nun ne ploru plu!” li diris, ĉar ŝajnis al li, ke li komencis majstri ŝin. Sed plej bone estus, se tion li ne estus dirinta, ĉar ŝi tuj apogis la kapon en la manojn kaj ekploris pli senbride ol antaŭe.
 
-”Ne ploru!” li diris eĉ preta piedbati la teron antaŭ ŝi. ”Cer-22
-
-LA JUNULINO EL STORMYR
-
-
-te ekzistas homoj pli malfeliĉaj ol vi.” — ”Ne, neniu povas esti pli malfeliĉa!” — ”Vi tamen estas juna kaj forta. Vi nur sciu, kiel fartas mia patrino. ŝi tiel malsanas pro reŭmatismo, ke ŝi ne povas moviĝi, sed ŝi neniam plendas.” — ”ŝi ne estas forlasita de ĉiuj, kiel mi.” — ”Vi ankaŭ ne estas forlasita. Mi jam parolis al patrino pri vi, kaj patrino min sendas tien ĉi al vi.”
+”Ne ploru!” li diris eĉ preta piedbati la teron antaŭ ŝi. ”Certe ekzistas homoj pli malfeliĉaj ol vi.” — ”Ne, neniu povas esti pli malfeliĉa!” — ”Vi tamen estas juna kaj forta. Vi nur sciu, kiel fartas mia patrino. ŝi tiel malsanas pro reŭmatismo, ke ŝi ne povas moviĝi, sed ŝi neniam plendas.” — ”ŝi ne estas forlasita de ĉiuj, kiel mi.” — ”Vi ankaŭ ne estas forlasita. Mi jam parolis al patrino pri vi, kaj patrino min sendas tien ĉi al vi.”
 
 ĉesis iom la plorĝemoj. Oni preskaŭ aŭdis la grandan silenton en la arbaro daŭre retenanta la spiron kaj atendanta ion strangan. ”Mia patrino komisiis min diri al vi, ke vi malsupre-niru morgaŭ al ŝi, por ke ŝi rigardu vin. Mia patrino intencas demandi al vi, ĉu vi bonvolus servi ĉe ni.” — ”ĉu vere?” —
 
@@ -384,9 +305,6 @@ te ekzistas homoj pli malfeliĉaj ol vi.” — ”Ne, neniu povas esti pli malf
 La junulino salte leviĝis, kriante pro ĝojo kaj surprizo, kaj la postan momenton Gudmund sentis paron da brakoj ĉirkaŭ sia kolo. Li preskaŭ timiĝis, kaj lia unua penso estis forŝiri sin, sed poste li trankviliĝis kaj restis. Li komprenis, ke la junulino ne povas sin regi plu pro ĝojo, tiel ke ŝi ne scias, kion ŝi faras. En tiu momento ŝi estus ĵetinta sin al la kolo de la plej malbona trompanto nur por havi iom da simpatio en la granda feliĉo, kiu tamen okazis al ŝi.
 
 ”ĉu ŝi volas dungi min? Tiam mi ja povas vivi!” ŝi diris, apogis sian kapon kontraŭ la bruston de Gudmund kaj denove ekploris, kvankam ne same senbride kiel antaŭe. ”Mi certi-gas al vi, ke mi estis serioza, dirante, ke mi intencas iri en la marĉon,” ŝi diris. ”Mi vin dankas pro via alveno! Vi savis mian vivon.” is nun Gudmund restis senmova, sed nun li sentis, ke io varma kaj kompatema moviĝis en li. Li levis la manon kaj karesis ŝian hararon. Tiam ŝi saltetis, kiel se li vekus ŝin el revo, kaj stariĝis tute rekta antaŭ li. ”Dankon pro via alveno!”
-
-
-LA JUNULINO EL STORMYR
 
 
 ŝi diris denove. ŝi jam fariĝis terure ruĝa en la vizaĝo, kaj an-kaŭ Gudmund ruĝiĝis.
@@ -399,9 +317,7 @@ Gudmund subite sentis sin same ĝoja pro Helga, kiel oni kutime fariĝas pro iu,
 
 Tiam Helga malfermis la pordon kaj Gudmund rimarkis,
 
-ke ŝi lasis ĝin iomete malfermita. Kiel se estis, por ke ŝi ne sentu sin tute forlasita de la helponto, kiu staras ekstere. Li do ne skrupulis pri la aŭskultado kaj rimarkado de ĉio, kio okazis interne en la dometo. La maljunulino afable kapsalutis Helgan, kiam ŝi eniris. La patrino tuj demetis la infanon en la lulilon, poste ŝi alpaŝis al ŝranko kaj prenis tasegon da lakto kaj panon, kiujn ŝi metis sur la tablon. ”Jen! Sidiĝu nun kaj 24
-
-LA JUNULINO EL STORMYR
+ke ŝi lasis ĝin iomete malfermita. Kiel se estis, por ke ŝi ne sentu sin tute forlasita de la helponto, kiu staras ekstere. Li do ne skrupulis pri la aŭskultado kaj rimarkado de ĉio, kio okazis interne en la dometo. La maljunulino afable kapsalutis Helgan, kiam ŝi eniris. La patrino tuj demetis la infanon en la lulilon, poste ŝi alpaŝis al ŝranko kaj prenis tasegon da lakto kaj panon, kiujn ŝi metis sur la tablon. ”Jen! Sidiĝu nun kaj
 
 
 manĝu!” ŝi diris. Poste ŝi iris al la forno, vigligante la fajron.
@@ -415,9 +331,6 @@ Helga daŭre restis ĉe la pordo kaj atendis, kiel se ŝi ne scius, kion fari.
 Tiam la farmisto formetis la laboraĵon, ŝovis la okulvitrojn supren sur la frunton kaj tusetis por fari paroladon, kiun li pripensis la tutan vesperon. ”La afero ja estas tia, Helga,” li diris, ”ke panjo kaj mi ĉiam penis esti honestaj kaj bonaj homoj, sed ni opiniis, ke ni senhonoriĝis pro vi. Estis, kiel se ni ne estus instruintaj al vi diferencigi malbonon de bono. Sed eksciante, kion vi faris hodiaŭ, ni diris al ni, panjo kaj mi, ke nun oni tamen povas vidi, ke vi ricevis bonan edukon kaj in-struon, kaj ni jam pensis, ke eble ni povos ankoraŭ ĝojiĝi pro vi. Kaj panjo ne volis, ke ni enlitiĝu antaŭ ol vi revenas, por ke vi ricevu honoran bonvenigon.”
 
 
-LA JUNULINO EL STORMYR
-
-
 iii
 
 Helga el Stormyr do venis al Närlunda, kaj tie ĉio bone prosperis. ŝi estis laborema kaj inteligenta, kaj dankema por ĉiu afabla vorto, kiun oni diris al ŝi. ŝi ĉiam sentis sin la plej malgrava, kaj neniam ŝi volis sin trudi al iu ajn. Ne daŭris longe,
@@ -426,15 +339,11 @@ Helga el Stormyr do venis al Närlunda, kaj tie ĉio bone prosperis. ŝi estis l
 
 La unuajn tagojn ŝajnis, ke Gudmund timas paroli al Hel-ga. Li timis, ke la junulino el Stormyr eble faros al si imagojn pro tio, ke li iam helpis ŝin. Sed tio estis tute nebezonataj ĉagrenoj. Helga konsideris lin tro honesta kaj bona, por ke ŝi kuraĝu ampete levi al li siajn rigardojn. Gudmund tial baldaŭ rimarkis, ke ne estas necese al li distancigi ŝin. ŝi lin timis pli ol iun alian.
 
-Tiun saman aŭtunon, kiam Helga venis al Närlunda, Gud-
-
-mund faris oftajn vizitojn ĉe la skabeno de Elvåkra, kaj oni multe parolis pri liaj bonaj ŝancoj fariĝi bofilo de la skabeno.
+Tiun saman aŭtunon, kiam Helga venis al Närlunda, Gudmund faris oftajn vizitojn ĉe la skabeno de Elvåkra, kaj oni multe parolis pri liaj bonaj ŝancoj fariĝi bofilo de la skabeno.
 
 Tamen, nur dum kristnasko li tute certiĝis, ke lia svatiĝo estas sukcesplena. Tiam venis al Närlunda la skabeno kune kun edzino kaj filino, kaj estis evidente, ke ili vojaĝis tien por vidi, kiel aspektos la vivo de Hildur, se ŝi edziniĝos kun Gudmund.
 
-Por la unua fojo Helga vidis de proksime tiun, kun kiu Gudmund edziĝos. Hildur Eriksdotter ankoraŭ ne estis du-dekjara, sed estis certe strange, ke neniu povis vidi ŝin sen pensi, kia impona kaj bonega mastrino ŝi iam fariĝos. ŝi estis altkreska, solide konstruita, blonda kaj beleta, kaj ŝajnis, 26
-
-LA JUNULINO EL STORMYR
+Por la unua fojo Helga vidis de proksime tiun, kun kiu Gudmund edziĝos. Hildur Eriksdotter ankoraŭ ne estis du-dekjara, sed estis certe strange, ke neniu povis vidi ŝin sen pensi, kia impona kaj bonega mastrino ŝi iam fariĝos. ŝi estis altkreska, solide konstruita, blonda kaj beleta, kaj ŝajnis,
 
 
 ke ŝi ŝatas havi multe da personoj ĉirkaŭ si por ilin prizorgi.
@@ -447,16 +356,9 @@ Helga opiniis, ke Hildur estas vere mirinda virino. Neniam antaŭe ŝi vidis hom
 
 Jen la kaŭzo. lom post la alveno de la gastoj, ŝi ĉirkaŭportis pleton por servi kafon. Kiam ŝi eniris kun la pleto, la edzino de la skabeno kliniĝis al la mastrino, demandante, ĉu tio estas la junulino el Stormyr. ŝi tute ne mallaŭtigis la voĉon kaj Helga klare aŭdis la demandon. Sinjorino Ingeborg jesis, kaj tiam la alia diris ion, kion Helga ne povis aŭdi. Sed temis pri tio, ke laŭ ŝi estas strange, ke ili volas havi tian homon en la domo. Tio kaŭzis al Helga multe da malĝojo, sed ŝi penis konsoli sin per tio, ke la patrino ja diris la vortojn, ne Hildur.
 
-Iun dimanĉon fruprintempe Helga kaj Gudmund okaze iris kune de la preĝejo. Marŝante malsupren de la preĝeja mon-teto, ili kuniris kun granda aro da aliaj ĉeestintoj je la diser-27
+Iun dimanĉon fruprintempe Helga kaj Gudmund okaze iris kune de la preĝejo. Marŝante malsupren de la preĝeja mon-teto, ili kuniris kun granda aro da aliaj ĉeestintoj je la diservo, sed baldaŭ unu disiris post la alia, kaj fine kuniris nur Helga kaj Gudmund.
 
-LA JUNULINO EL STORMYR
-
-
-vo, sed baldaŭ unu disiris post la alia, kaj fine kuniris nur Helga kaj Gudmund.
-
-Gudmund tiam tuj pensis, ke de post tiu vespero ĉe la farmeto, li ne estis sola kun Helga, kaj la memoro pri tiu vespero nun forte reaperis al li. Dum la vintro li pensis sufiĉe ofte pri ilia unua renkontiĝo, kaj tiam li ĉiam sentis, kiel se io dolĉa kaj agrabla trapasas lian animon. Estante sola en la laboro li kutime vokis al sia penso la tutan belan nokton: la blankan nebulon, la helan lunbrilon, la nigran, arboriĉan altaĵon, la lumigitan valon kaj fine la junulinon, kiu ja ĉirkaŭbrakis lin je la kolo kaj ploris pro ĝojo. ĉiun fojon, kiam ŝi eniris en lian memoron, la tuta okazintaĵo fariĝis pli bela. Sed kiam li vidis, kiel en lia hejmo Helga laboras kaj klopodas same kiel la aliaj, estis iom malfacile al Gudmund kredi, ke ĝuste ŝi partoprenis tion. Nun kiam li kuniris sola kun ŝi sur la vojo de la pre-
-
-ĝejo, li ne povis ne deziri, ke dum momento ŝi farigu sama, kiel ŝi estis tiun vesperon.
+Gudmund tiam tuj pensis, ke de post tiu vespero ĉe la farmeto, li ne estis sola kun Helga, kaj la memoro pri tiu vespero nun forte reaperis al li. Dum la vintro li pensis sufiĉe ofte pri ilia unua renkontiĝo, kaj tiam li ĉiam sentis, kiel se io dolĉa kaj agrabla trapasas lian animon. Estante sola en la laboro li kutime vokis al sia penso la tutan belan nokton: la blankan nebulon, la helan lunbrilon, la nigran, arboriĉan altaĵon, la lumigitan valon kaj fine la junulinon, kiu ja ĉirkaŭbrakis lin je la kolo kaj ploris pro ĝojo. ĉiun fojon, kiam ŝi eniris en lian memoron, la tuta okazintaĵo fariĝis pli bela. Sed kiam li vidis, kiel en lia hejmo Helga laboras kaj klopodas same kiel la aliaj, estis iom malfacile al Gudmund kredi, ke ĝuste ŝi partoprenis tion. Nun kiam li kuniris sola kun ŝi sur la vojo de la preĝejo, li ne povis ne deziri, ke dum momento ŝi farigu sama, kiel ŝi estis tiun vesperon.
 
 Helga tuj komencis paroli pri Hildur. ŝi multe laŭdis ŝin, dirante, ke ŝi estas la plej bela kaj la plej saĝa junulino de la najbaraĵo kaj ŝi gratulis Gudmund pro tia bonega edzino. ”Vi diru al ŝi, ke ŝi permesu min resti en Närlunda,” ŝi diris. ”Mi estos feliĉa servi al tia mastrino.”
 
@@ -464,9 +366,7 @@ Gudmund ridetis pro ŝia fervoro, sed donis al ŝi nur unu-silabajn respondojn, 
 
 ”ŝajnas, ke vi fartis bone ĉe ni ĉi tiun vintron?” li diris. —
 
-”Prava vi estas. Mi ne povas diri, kiel bonaj estis al mi sinjorino Ingeborg kaj vi ĉiuj.” — ”ĉu vi iam deziris reiri al la arbaro?” — ”Ho jes, komence, sed ne nun.” — ”Mi kredis ĝis 28
-
-LA JUNULINO EL STORMYR
+”Prava vi estas. Mi ne povas diri, kiel bonaj estis al mi sinjorino Ingeborg kaj vi ĉiuj.” — ”ĉu vi iam deziris reiri al la arbaro?” — ”Ho jes, komence, sed ne nun.” — ”Mi kredis ĝis
 
 
 nun, ke kiu apartenas al la arbaro ne povas ne deziri reiri tien.”
@@ -477,25 +377,16 @@ Helga turnis la kapon flanken kaj rigardis sian kunulon, kiu iris sur la alia ra
 
 ĝojas esti ĉe ni.” — ”Tio tute ne estis mia kulpo,” ŝi diris sen-kulpigante. ”Mi bone komprenis, kiel utile estas al mi servi tie. Vi estis ĉiuj tiel afablaj al mi, kaj la laboro tute ne superis miajn fortojn, sed spite de tio mi sopiris. ŝajnis ke io volis rekonduki min al la arbaro, suĉante kaj trenante. ŝajnis al mi ke, volante restadi en la vilaĝo mi perfide trompis iun, kiu havas rajton pri mi.” — ”Eble estis —,” komencis Gudmund, sed li haltis meze de la frazo. — ”Ne, mi tute ne sopiris pri la knabeto. Mi ja scias, ke li fartas bone, kaj ke mia patrino estas afabla al li. Estis nenio difinebla. Estis, kiel se mi estus sovaĝa birdo, kiun oni metis en kaĝon, kaj mi kredis, ke mi mortos, se oni min ne ellasas.”
 
-”Nu, vi certe suferis terure!” diris Gudmund, kaj samtempe 29
-
-LA JUNULINO EL STORMYR
+”Nu, vi certe suferis terure!” diris Gudmund, kaj samtempe
 
 
 li ridetis, ĉar nun li jam pensis, ke li rekonas ŝin. Estis nun, kiel se nenio okazis, kiel se nur la lastan vesperon ili disiĝis ĉe la farmeto. Helga ridetis denove, sed daŭrigis la rakontadon de siaj suferoj. ”Neniun nokton mi dormis,” ŝi diris, ”sed tuj post kiam mi estis enlitiĝinta, larmoj komencis flui, kaj kiam mi leviĝis en la mateno, la kapkuseno estis tute malseka. Ta-ge, kiam mi laboris kune kun la aliaj, mi povis reteni la ploron, sed tuj kiam mi estis sola, mi havis larmojn en la okuloj.”
 
-”Vi jam multe ploris en via vivo,” diris Gudmund, sed dirante tion li tute ne aspektis kompatema. ŝajnis al Helga, kiel se li ridetus la tutan tempon. — ”Verŝajne vi neniam kompre-nos, kiel mi suferis,” ŝi diris, parolante ĉiam pli fervore en sia klopodo, ke li komprenu ŝin. ”Regis min sopiro, kiu forprenis min de mi mem. Eĉ ne momenton mi povis senti min feli-
-
-ĉa. Nenio estis bela, nenio plezurigis min, al neniu mi povis korligiĝi. Vi estis ĉiuj same fremdaj al mi kiel tiam, kiam unu-afoje mi eniris la bienon.”
+”Vi jam multe ploris en via vivo,” diris Gudmund, sed dirante tion li tute ne aspektis kompatema. ŝajnis al Helga, kiel se li ridetus la tutan tempon. — ”Verŝajne vi neniam kompre-nos, kiel mi suferis,” ŝi diris, parolante ĉiam pli fervore en sia klopodo, ke li komprenu ŝin. ”Regis min sopiro, kiu forprenis min de mi mem. Eĉ ne momenton mi povis senti min feliĉa. Nenio estis bela, nenio plezurigis min, al neniu mi povis korligiĝi. Vi estis ĉiuj same fremdaj al mi kiel tiam, kiam unu-afoje mi eniris la bienon.”
 
 ”Sed,” scivole diris Gudmund, ”ĉu vi ne ĵus diris, ke vi volas resti ĉe ni?” — ”Jes, mi certe diris tion.” — ”Do vi ne sopiras plu?” — ”Ne, tio jam ĉesis. Mi jam liberiĝis de tio. Nur atendu, kaj vi aŭdos.”
 
-Post kiam ŝi diris tion, Gudmund transiris la vojon kaj daŭ-
-
-rigis iri apud ŝi. Li ridetis la tutan tempon. Li aspektis gaja aŭdi ŝin paroli, sed verŝajne li ne multe atentis, kion ŝi rakontas. Iom post iom Helga ekhavis la saman humoron. ŝajnis al ŝi, ke ĉio fariĝas malpeza kaj hela. La vojo de la preĝejo estis longa kaj malfacile irebla, sed hodiaŭ ĝi ne lacigis. Io ŝajnis porti ĝin. ŝi daŭrigis sian rakonton, ĉar ŝi jam komencis, sed la rakontado ne estis plu tiel grava al ŝi. ŝi estus estinta same feliĉa, se ŝi povus iri apud li en silento.
-
-
-LA JUNULINO EL STORMYR
+Post kiam ŝi diris tion, Gudmund transiris la vojon kaj daŭrigis iri apud ŝi. Li ridetis la tutan tempon. Li aspektis gaja aŭdi ŝin paroli, sed verŝajne li ne multe atentis, kion ŝi rakontas. Iom post iom Helga ekhavis la saman humoron. ŝajnis al ŝi, ke ĉio fariĝas malpeza kaj hela. La vojo de la preĝejo estis longa kaj malfacile irebla, sed hodiaŭ ĝi ne lacigis. Io ŝajnis porti ĝin. ŝi daŭrigis sian rakonton, ĉar ŝi jam komencis, sed la rakontado ne estis plu tiel grava al ŝi. ŝi estus estinta same feliĉa, se ŝi povus iri apud li en silento.
 
 
 ”Kiam mi estis plej malfeliĉa,” ŝi diris, ”mi iun sabatvespe-ron petis sinjorinon Ingeborg, ke ŝi permesu al mi hejmeniri kaj resti hejme la tutan dimanĉon. Kaj suprenmarŝante tiun vesperon la deklivojn al Stormyr, mi certe opiniis, ke mi ne revenos plu al Närlunda. Sed hejme patro kaj patrino tiel ĝojis, ke min dungis tiel ŝatata bieno, ke mi ne povis eĉ mencii, ke mi ne toleras resti ĉe vi. Tuj kiam mi atingis la arbaron jam forflugis ĉiu angoro kaj ĉiu aflikto. ŝajnis al mi, ke ĉio estis nura imago. Kaj krom tio mia plano estis malfacile realigebla pro la infano. Mia patrino jam zorgis pri ĝi kaj konsideras ĝin kiel sia. i ne apartenis plu al mi. Kaj plej bone estis tiamaniere, sed estis malfacile kutimiĝi al tio.”
@@ -506,22 +397,16 @@ LA JUNULINO EL STORMYR
 
 ”ĉu oni ne povus kunporti iom da cindro kien ajn oni transloĝiĝas?” — ”Ne, ĝi efikas nur unu fojon. Poste ĉiu rimedo estas senutila. Estis do danĝere uzi tian rimedon.”
 
-”Mi ne riskus ion tian,” diris Gudmund, kaj ŝi certe aŭdis, ke li nur mokas ŝin. — ”Sed mi riskis ĝin malgraŭ ĉio,” diris 31
-
-LA JUNULINO EL STORMYR
+”Mi ne riskus ion tian,” diris Gudmund, kaj ŝi certe aŭdis, ke li nur mokas ŝin. — ”Sed mi riskis ĝin malgraŭ ĉio,” diris
 
 
 Helga. ”Estis pli bone ol aperi kiel nedankulo antaŭ sinjorino Ingeborg kaj vi, kiuj ja bonvolis helpi min. Mi kunportis iom da hejma cindro, kaj reveninte al Närlunda mi uzis momenton, kiam neniu ĉeestis, por surŝuti ĝin sur la fajroplaton.”
 
 ”Kaj vi nun kredas, ke ĝuste la cindro helpis vin?” — ”Atendu, kaj vi aŭdos, kio okazis! Min tuj okupis la oficoj, kaj la tutan tagon mi ne pensis pri la cindro. Mi sopiris tute same kiel antaŭe, tediĝante pro ĉio same kiel antaŭe. Estis multe da laboro farota tiun tagon, kaj interne kaj ekstere, kaj fininte vespere mian laboron en la stalo mi rimarkis, enirante, ke la fajro jam brulas en la forno.”
 
-”Nun mi vere scivolas aŭdi pri tio, kio okazis,” diris Gudmund. — ”Nu, imagu, eĉ trapasante la korton, mi opiniis, ke estas io familiara en la fajrobrilo, kaj malfermante la pordon, ŝajnis al mi, kiel se mi eniras nian propran dometon kaj mi trovos paĉjon kaj panjon sidantaj apud la forno. Nu, tio ja nur preterpasis min kiel en sonĝo, sed enirinte, mi miris, ke estas tiel belete kaj hejme en la ĉambro. ŝajnis al mi, ke neniam antaŭe sinjorino Ingeborg kaj vi aliaj aspektis tiel afablaj kiel tiun vesperon en la fajrobrilo. Mi spertis veran ĝuon eniri, kaj tion mi ne spertis antaŭe. Mi tiel miris, ke mi estis tute preta krii kaj klakfrapi la manojn. ŝajnis al mi, ke vi jam tute ŝan-
+”Nun mi vere scivolas aŭdi pri tio, kio okazis,” diris Gudmund. — ”Nu, imagu, eĉ trapasante la korton, mi opiniis, ke estas io familiara en la fajrobrilo, kaj malfermante la pordon, ŝajnis al mi, kiel se mi eniras nian propran dometon kaj mi trovos paĉjon kaj panjon sidantaj apud la forno. Nu, tio ja nur preterpasis min kiel en sonĝo, sed enirinte, mi miris, ke estas tiel belete kaj hejme en la ĉambro. ŝajnis al mi, ke neniam antaŭe sinjorino Ingeborg kaj vi aliaj aspektis tiel afablaj kiel tiun vesperon en la fajrobrilo. Mi spertis veran ĝuon eniri, kaj tion mi ne spertis antaŭe. Mi tiel miris, ke mi estis tute preta krii kaj klakfrapi la manojn. ŝajnis al mi, ke vi jam tute ŝanĝiĝis. Vi ne estis plu fremdaj al mi, sed mi povis priparoli kun vi ĉion ajn. Vi certe komprenas, ke mi ĝojis, sed mi ne povis ne miri. Mi demandis min, ĉu mi estas ensorĉita. Kaj sammo-mente mi memoris pri la cindro, kiun mi disŝutis sur la fajroplaton.” —
 
-ĝiĝis. Vi ne estis plu fremdaj al mi, sed mi povis priparoli kun vi ĉion ajn. Vi certe komprenas, ke mi ĝojis, sed mi ne povis ne miri. Mi demandis min, ĉu mi estas ensorĉita. Kaj sammo-mente mi memoris pri la cindro, kiun mi disŝutis sur la fajroplaton.” —
-
-”Jes, tio ja estis stranga,” diris Gudmund. Li tute ne kredis je superstiĉo aŭ sorĉaĵo, sed neniel malplaĉis al li aŭdi Helgan 32
-
-LA JUNULINO EL STORMYR
+”Jes, tio ja estis stranga,” diris Gudmund. Li tute ne kredis je superstiĉo aŭ sorĉaĵo, sed neniel malplaĉis al li aŭdi Helgan
 
 
 priparoli tion. ”Nun la petolema arbara knabino revenis,” li pensis. ”ĉu iu povas kompreni, ke tiu, kiu jam travivis tiom, spite de tio povas esti tiel infana?”
@@ -534,9 +419,7 @@ priparoli tion. ”Nun la petolema arbara knabino revenis,” li pensis. ”ĉu 
 
 Post tio ili ne komencis novan interparolon, sed iris silente ĝis la bieno. Gudmund kelkfoje turnis la kapon kaj rigardis la junulinon, kiu marŝis apud li. ŝi jam kvietiĝis post la severa tempo, kiun ŝi travivis dum la pasinta jaro. Nun ŝi aspektis iom freŝa kaj rozkolora. La trajtoj estis etaj kaj delika-taj, la hararo bukle ĉirkaŭis ŝian kapon, la okuloj estis ned-ifineblaj. ŝi marŝis rapide kaj gracie. Kiam ŝi parolis, la vortoj sinsekvis rapide, sed samtempe timeme. ŝi ĉiam timis, ke oni mokos ŝin, sed spite de tio ŝi ne povis kaŝi, kion ŝi sentas.
 
-Gudmund demandis sin, ĉu li deziras, ke Hildur estu tia, 33
-
-LA JUNULINO EL STORMYR
+Gudmund demandis sin, ĉu li deziras, ke Hildur estu tia,
 
 
 sed li certe tion ne volis. Tiu Helga ja estos edzece nenio di-zirinda. —
@@ -557,9 +440,7 @@ Kiam alvenis la tago de ŝia foriro, oni surtabligis tiom da manĝaĵoj, ke esti
 
 La tagon, kiam Helga forloĝiĝis, Gudmund staris en la
 
-brullignejo kaj fendis lignon. Li ne eliris por adiaŭi, kvankam la ĉevalo jam staris antaŭ la pordo. ŝajnis, ke li laboras tiel 34
-
-LA JUNULINO EL STORMYR
+brullignejo kaj fendis lignon. Li ne eliris por adiaŭi, kvankam la ĉevalo jam staris antaŭ la pordo. ŝajnis, ke li laboras tiel
 
 
 urĝe, ke li ne rimarkas, kio okazas. ŝi do devis eniri al li por adiaŭi.
@@ -572,20 +453,12 @@ La patro de Gudmund estis malalta, malgrasa viro kun sen-hara verto kaj belaj, s
 
 Tiel longe ke ĉio okazis laŭorde, oni lin preskaŭ ne rimarkis, sed kiam io estis en malordo, li ĉiam alvenis kaj diris kaj faris ĝuste tion, kio estis dirota kaj farota por ĉion ordigi. Li estis speciale kapabla kiel kalkulisto kaj ĝuis grandan konfi-don flanke de la viroj de la paro˛o. Li ricevis ĉiaspecajn ko-munumajn komisiojn, kaj oni lin ŝatis pli ol multajn grandajn bienulojn kun grandaj riĉaĵoj.
 
-Erland Erlandson do hejmenveturigis Helgan kaj ne per-
-
-mesis al ŝi eliri en la deklivoj. Kiam ili alvenis al Stormyr, li longe sidis en la dometo, parolis kun la gepatroj de Helga kaj rakontis al ili, kiel kontentaj je ŝi estis ĉiam li kaj sinjorino Ingeborg. Nur sekve de tio, ke de nun ili ne bezonos tiom da servistoj, ili forsendis ĝin. Do ŝin kiel plej junan ili maldungis.
+Erland Erlandson do hejmenveturigis Helgan kaj ne permesis al ŝi eliri en la deklivoj. Kiam ili alvenis al Stormyr, li longe sidis en la dometo, parolis kun la gepatroj de Helga kaj rakontis al ili, kiel kontentaj je ŝi estis ĉiam li kaj sinjorino Ingeborg. Nur sekve de tio, ke de nun ili ne bezonos tiom da servistoj, ili forsendis ĝin. Do ŝin kiel plej junan ili maldungis.
 
 ŝajnas ja al ili nejuste maldungi iun el tiuj, kiuj jam servis ĉe ili de multaj jaroj.
 
 
-LA JUNULINO EL STORMYR
-
-
 La parolado de Erland Erlandson efikis laŭintence kaj la gepatroj bone ricevis Helgan. Aŭdante ke ŝi jam ricevis tiom da mendoj, ke ŝi povos nutri sin per teksado, ili kontentiĝis, ke ŝi restu hejme.
-
-
-LA JUNULINO EL STORMYR
 
 
 iv
@@ -596,12 +469,7 @@ Estis ĉiam agrable por li pripensi la estontecon kune kun ŝi.
 
 Ili certe fariĝos riĉaj kaj ŝatataj, kaj li sciis, ke estos agrable vivi en hejmo, kiun Hildur mastrumas. Li ankaŭ kun plezuro pripensis la fakton, ke post kiam li edziĝos kun ŝi, li ricevos pli ol sufiĉe da mono. Li povos plibonigi la agrikulturon, rekonstrui ĉiujn kadukajn konstruaĵojn kaj plivastigi la bienon, tiel ke li fariĝos vere impona kamparano.
 
-uste tiun dimanĉon, kiam li kuniris kun Helga de la pre-
-
-ĝejo, li veturis vespere al Elvåkra. Tiam Hildur komencis paroli pri Helga, dirante, ke nur post la foriro de tiu junulino ŝi volas veni al Närlunda. Gudmund unue klopodis bagateligi la tutan aferon kiel ŝercon, sed baldaŭ montriĝis, ke Hildur parolas serioze. Gudmund tre bone defendis Helgan, dirante ke ŝi ja estis tiel juna, kiam la unuan fojon oni igis ŝin akcepti oficon, ke tute ne estis mirinde, ke ŝi estis trompita, kiam ŝi renkontis tiel malbonan viron kiel Per Mårtensson. Sed de post kiam lia patrino zorgis pri ŝi, ŝi ĉiam kondutas bone. ”Ne povas esti juste forpeli ĝin,” li diris. ”Tiam sendube okazos al ŝi denove ia malagrablaĵo.”
-
-
-LA JUNULINO EL STORMYR
+uste tiun dimanĉon, kiam li kuniris kun Helga de la preĝejo, li veturis vespere al Elvåkra. Tiam Hildur komencis paroli pri Helga, dirante, ke nur post la foriro de tiu junulino ŝi volas veni al Närlunda. Gudmund unue klopodis bagateligi la tutan aferon kiel ŝercon, sed baldaŭ montriĝis, ke Hildur parolas serioze. Gudmund tre bone defendis Helgan, dirante ke ŝi ja estis tiel juna, kiam la unuan fojon oni igis ŝin akcepti oficon, ke tute ne estis mirinde, ke ŝi estis trompita, kiam ŝi renkontis tiel malbonan viron kiel Per Mårtensson. Sed de post kiam lia patrino zorgis pri ŝi, ŝi ĉiam kondutas bone. ”Ne povas esti juste forpeli ĝin,” li diris. ”Tiam sendube okazos al ŝi denove ia malagrablaĵo.”
 
 
 Sed Hildur tute ne cedis. ”Se tiu knabino restos en Närlunda, mi tien neniam venos,” ŝi diris. ”Mi ne toleros tian homon en mia hejmo.” — ”Vi ne scias, kion vi faras,” diris Gudmund.
@@ -612,9 +480,7 @@ Sed Hildur tute ne cedis. ”Se tiu knabino restos en Närlunda, mi tien neniam 
 
 Estis tio, kio igis Gudmund timi, ke Hildur eble ne estas tute tia, kiel li kredis. Verŝajne ne plaĉis al li, ke ŝi trudis al li sian volon, sed plej ĉagrene estis, ke al li estis neeble kompreni ion alian ol tion, ke ŝi estas malprava. Li diris al si, ke li estus volonte cedinta al ŝi, se ŝi estus montrinta sin nobla, sed anstataŭe ŝajnis al li, ke ŝi estas nur pedanta kaj senkora.
 
-ĉiun fojon poste, kiam Gudmund renkontis Hildur, li nur serĉesploris kaj spionis por vidi, ĉu tio, kion li opiniis esti tro-vinta ĉe ŝi, denove montriĝos. Kiam lian suspektemon oni jam vekis, ne daŭris longe, antaŭ ol li trovis multon, kio ne estis tia, kia li deziris. ”Sendube ŝi estas tia, ke ŝi pensas unue pri si mem,” li ĉiun fojon murmuris, adiaŭante ŝin, kaj li sin demandis, kiom da tempo restus ŝia amo al li, se ŝi estus vere tentprovata. Li penis snsoli, pensante, ke ĉiuj homoj pensas antaŭ ĉio pri si mem, sed tiam li tuj memoris pri Helga. Li vidis ŝin, staranta en la juĝa kunsidejo, kaj li aŭdis ŝin ekkrii: ”Mi nuligas la proceson. Mi lin amas ankoraŭ. Mi ne volas, ke li ĵuru trompe!” Estis ĝuste tiel, kiel li estus prefere 38
-
-LA JUNULINO EL STORMYR
+ĉiun fojon poste, kiam Gudmund renkontis Hildur, li nur serĉesploris kaj spionis por vidi, ĉu tio, kion li opiniis esti tro-vinta ĉe ŝi, denove montriĝos. Kiam lian suspektemon oni jam vekis, ne daŭris longe, antaŭ ol li trovis multon, kio ne estis tia, kia li deziris. ”Sendube ŝi estas tia, ke ŝi pensas unue pri si mem,” li ĉiun fojon murmuris, adiaŭante ŝin, kaj li sin demandis, kiom da tempo restus ŝia amo al li, se ŝi estus vere tentprovata. Li penis snsoli, pensante, ke ĉiuj homoj pensas antaŭ ĉio pri si mem, sed tiam li tuj memoris pri Helga. Li vidis ŝin, staranta en la juĝa kunsidejo, kaj li aŭdis ŝin ekkrii: ”Mi nuligas la proceson. Mi lin amas ankoraŭ. Mi ne volas, ke li ĵuru trompe!” Estis ĝuste tiel, kiel li estus prefere
 
 
 prezentinta al si Hildur. Helga jam fariĝis mezurilo, laŭ kiu li mezuris homojn. Verŝajne ne multaj homoj povus egali ŝin en amemo.
@@ -631,11 +497,7 @@ Gudmund ofte pensis pri Helga, senpacience dezirante
 
 renkonti ŝin. Sed li opiniis, ke Helga lnsideras mizerulon, ĉar li ne tenis la promeson, kiun li donis al ŝi tute libervole, sed konsentis al ŝia forloĝiĝo. Li povis nek doni klarigon nek senkulpiĝi, kaj tial li evitis renkonti ŝin.
 
-Iun matenon irante laŭ la vojo, Gudmund renkontis Hel-
-
-gan, kiu vizitis la vilaĝon por aĉeti iom da lakto. Gudmund reiris kaj akompanis ŝin. ŝi ne ŝajnis ĝoja pro la akompano, 39
-
-LA JUNULINO EL STORMYR
+Iun matenon irante laŭ la vojo, Gudmund renkontis Helgan, kiu vizitis la vilaĝon por aĉeti iom da lakto. Gudmund reiris kaj akompanis ŝin. ŝi ne ŝajnis ĝoja pro la akompano,
 
 
 ĉar ŝi iris rapide, kiel se ŝi volus liberigi sin de li, kaj diris nenion. Gudmund ankaŭ silentis, ĉar li tute ne sciis, kiel komenci interparolon. ĉareto alproksimiĝis sur la vojo el distan-co. Gudmund iris pensema, kaj li ĝin ne rimarkis, sed Helga
@@ -645,18 +507,13 @@ LA JUNULINO EL STORMYR
 Tiam li malpliigis la rapidecon. Helga daŭre iris rapide kiel antaŭe, kaj ili disiĝis, kvankam li ankoraŭ ne diris eĉ vorton al ŝi. Sed tiun tutan tagon li estis pli kontenta je si mem ol de longe.
 
 
-LA JUNULINO EL STORMYR
-
-
 v
 
 Estis decidite, ke la geedziĝon de Gudmund kaj Hildur oni solenu en Elvåkra la duan pentekostan tagon. La vend-redon antaŭ Pentekosto Gudmund veturis al la urbo por aĉeti diversajn aĵojn por bonveniga festeno, kiun oni festos en Närlunda la tagon post la geedziĝo. En la urbo li okaze trafis kelkajn aliajn junulojn el sia paro˛o. Ili sciis, ke estas la lasta vojaĝo de Gudmund al la urbo antaŭ la geedziĝo, kaj tion ili pretekstis por aranĝi grandan trinkfestenon. ĉiuj deziris, ke Gudmund trinku, kaj fine ili sukcesis ebriigi lin ĝis plena sen-helpeco.
 
 Li revenis hejmen sabaton matene tiel malfrue, ke lia patro kaj la servisto jam foriris al la laboro, kaj li dormis ĝis malfrue posttagmeze. Leviĝinte li rimarkis, kiam li surmetis la vestojn, ke la jako estis disŝirita en kelkaj lokoj. ”ŝajnas, ke mi partoprenis interbatalon la pasintan nokton,” li diris, penante memori, kion li faris. Li ja memoris, ke li forlasis la gastejon ĉirkaŭ la dekunua kune kun la kamaradoj, sed kien ili tiam iris, tion li ne povis memori. ŝajnis al li kiel se li penus trarigardi vastan mallumon. Li ne sciis, ĉu ili nur ĉirkaŭmigris sur la stratoj aŭ ĉu ili eniris domon. Li ne memoris, ĉu li mem aŭ iu alia surmetis la jungaĵon sur la ĉevalon, kaj li nenion memoris pri la tuta hejmeniro.
 
-Kiam li eniris la grandan ĉambron, ĝi estis lavita kaj purigita pro la festo. La laboron oni jam finis ĉie por la tago, kaj 41
-
-LA JUNULINO EL STORMYR
+Kiam li eniris la grandan ĉambron, ĝi estis lavita kaj purigita pro la festo. La laboron oni jam finis ĉie por la tago, kaj
 
 
 la domanaro en tiu momento trinkis kafon. Neniu diris ion pri la vojaĝo de Gudmund. ŝajnis, ke estis io memkomprene-bla, ke li havos la rajton vivi laŭplaĉe ĉi tiujn lastajn semajnojn. Gudmund altabliĝis kaj ricevis sian kafon kiel la aliaj.
@@ -667,63 +524,38 @@ Interalie ŝi Iaŭtlegis referaton pri interbatiĝo, kiu okazis la pasintan nokt
 
 Dum sinjorino Ingeborg legis tion, Gudmund formetis la tason, ŝovis la manon en la poŝon, eltiris poŝtranĉilon kaj ĝin rigardis indiferente. Sed subite li ektremis, remetis la tranĉilon kaj ĝin poste enŝovis rapidege en la poŝon, kiel se ĝi estus lin bruliginta. Li ne trinkis plu el sia kafo sed sidis longe tute senmova kun pensema aspekto. La frunto havis profundajn sulkojn. Estis evidente, ke pense li penis prezenti ion al si.
 
-Fine li leviĝis, etendis la membrojn, oscedis kaj iris malrap-42
+Fine li leviĝis, etendis la membrojn, oscedis kaj iris malrapide al la pordo. ”Necesas tamen, ke mi havu iom da korpa ekzerco. Mi ne eliris la tutan tagon,” li diris elirante.
 
-LA JUNULINO EL STORMYR
-
-
-ide al la pordo. ”Necesas tamen, ke mi havu iom da korpa ekzerco. Mi ne eliris la tutan tagon,” li diris elirante.
-
-Preskaŭ en la sama momento ankaŭ leviĝis Erland Er-
-
-landsson. Li finfumis sian pipon kaj eniris la malgrandan ĉambron por preni denove iom da tabako. Kiam li staris tie kaj plenigis la pipon, li vidis Gudmund foriranta. La fenestroj de la malgranda ĉambro ne donis vidon sur la korton kiel la granda ĉambro, sed sur malgrandan ĝardenon, kie kreskis kelkaj neordinare altaj pomarboj. Malantaŭ la ĝardeno troviĝis marĉo, kiu printempe preskaŭ subakviĝis kaj somere preskaŭ senakviĝis. Malofte oni iris laŭ tiu direkto. Erland Erlandsson sin demandis, kion Gudmund intencas fari kaj sekvis lin per la okuloj. Li tiam vidis, ke la filo enŝovis la manon en la poŝon, eltiris objekton kaj ĝin ĵetis for de si en la marĉon. Tiam li transiris la ĝardenon, suprensaltis plektoba-rilon kaj malproksimiĝis laŭ la direkto de la vojo.
+Preskaŭ en la sama momento ankaŭ leviĝis Erland Erlandsson. Li finfumis sian pipon kaj eniris la malgrandan ĉambron por preni denove iom da tabako. Kiam li staris tie kaj plenigis la pipon, li vidis Gudmund foriranta. La fenestroj de la malgranda ĉambro ne donis vidon sur la korton kiel la granda ĉambro, sed sur malgrandan ĝardenon, kie kreskis kelkaj neordinare altaj pomarboj. Malantaŭ la ĝardeno troviĝis marĉo, kiu printempe preskaŭ subakviĝis kaj somere preskaŭ senakviĝis. Malofte oni iris laŭ tiu direkto. Erland Erlandsson sin demandis, kion Gudmund intencas fari kaj sekvis lin per la okuloj. Li tiam vidis, ke la filo enŝovis la manon en la poŝon, eltiris objekton kaj ĝin ĵetis for de si en la marĉon. Tiam li transiris la ĝardenon, suprensaltis plektoba-rilon kaj malproksimiĝis laŭ la direkto de la vojo.
 
 Tuj kiam li perdis el vido la filon, Erland Erlandsson eliris siavice kaj aliris la marĉon. Tie li iom envadis la ŝlimon kaj relative baldaŭ li kliniĝis por suprenlevi ion, kion li puŝis per la piedo. Estis granda poŝtranĉilo, al kiu la plej granda klingo estis rompita. Li ĝin turnis ĉiuflanken kaj ĝin atente ekzamenis, dum li restis ankoraŭ en la akvo. Tiam li ĝin ŝovis en sian poŝon, sed li ĝin eltiris por ĝin denove ekzameni kelkaj fojoj, antaŭ ol li reeniris la domon.
 
 Gudmund nur hejmenrevenis, kiam ĉiuj jam enlitiĝis. Li tuj enlitiĝis, sen tuŝi la vespermanĝon, kiu lin atendis en la granda ĉambro.
 
-Erland Erlandsson kaj lia edzino dormis en la malgranda ĉambro. Je frua tagiĝo Erland kredis, ke li aŭdas paŝsonojn antaŭ la fenestro. Li ellitiĝis, flankenŝovis la kurtenon kaj vi-43
+Erland Erlandsson kaj lia edzino dormis en la malgranda ĉambro. Je frua tagiĝo Erland kredis, ke li aŭdas paŝsonojn antaŭ la fenestro. Li ellitiĝis, flankenŝovis la kurtenon kaj vidis, ke Gudmund foriris al la marĉo. Li demetis ŝtrumpojn kaj ŝuojn, envadis la akvon kaj iris tien kaj reen kiel persono, kiu serĉas ion. Li serĉis longe, tiam li suriris la bordon, kiel se li intencus foriri, sed baldaŭ reiris al sia serĉado. Dum tuta horo la patro rigardis lin. Tiam Gudmund eniris la domon por denove enlitiĝi.
 
-LA JUNULINO EL STORMYR
-
-
-dis, ke Gudmund foriris al la marĉo. Li demetis ŝtrumpojn kaj ŝuojn, envadis la akvon kaj iris tien kaj reen kiel persono, kiu serĉas ion. Li serĉis longe, tiam li suriris la bordon, kiel se li intencus foriri, sed baldaŭ reiris al sia serĉado. Dum tuta horo la patro rigardis lin. Tiam Gudmund eniris la domon por denove enlitiĝi.
-
-La pentekostan dimanĉon Gudmund devis veturi al la pre-
-
-ĝejo. Kiam li metis la jungaĵon sur la ĉevalon, la patro trapasis la korton. ”Vi forgesis poluri la jungaĵon hodiaŭ,” li diris preterpasante, ĉar kaj la jungaĵo kaj la ĉareto estis malpuraj kaj malpoluritaj. — ”Mi tute ne havas tempon pripensi tiajn aferojn,” diris Gudmund apatie kaj veturis, sen atenti pri la aspekto de la ĉareto.
+La pentekostan dimanĉon Gudmund devis veturi al la preĝejo. Kiam li metis la jungaĵon sur la ĉevalon, la patro trapasis la korton. ”Vi forgesis poluri la jungaĵon hodiaŭ,” li diris preterpasante, ĉar kaj la jungaĵo kaj la ĉareto estis malpuraj kaj malpoluritaj. — ”Mi tute ne havas tempon pripensi tiajn aferojn,” diris Gudmund apatie kaj veturis, sen atenti pri la aspekto de la ĉareto.
 
 Post la diservo Gudmund akompanis sian fianĉinon al El-våkra, kie li restis la tutan tagon. Aro da gejunuloj kunvenis por soleni la lastan vesperon de Hildur kiel fraŭlino, kaj oni dancis ĝis malfrue nokte. Estis granda provizo da trinkaĵoj, sed Gudmund ne tuŝis ilin. La tutan vesperon li preskaŭ ne diris vorton al iu, sed li dancis furioze, kaj kelkfoje li ridegis laŭte kaj akrasone sen kaŭzo laŭ la opinio de la ĉeestantoj.
 
 Gudmund hejmenrevenis nur ĉirkaŭ la dua, kaj tuj post
 
-kiam li enstaligis la ĉevalon, li foriris al la marĉo malantaŭ la domo. Li demetis siajn ŝtrumpojn kaj ŝuojn, suprentiris la pantalonon kaj envadis la akvon. Estis hela somera nokto kaj la patro, kiu staris en la malgranda ĉambro malantaŭ la kurteno, observis la filon. Li vidis, kiel li kliniĝas super la akvon kaj serĉas kiel en la pasinta nokto. De tempo al tempo li iris alborde, kiel se li malesperis trovi ion, sed post momento li denove envadis la akvon. Unufoje li foriris por preni sitelon el la stalo kaj komencis ĉerpi akvon el la malgrandaj akvejoj, 44
-
-LA JUNULINO EL STORMYR
+kiam li enstaligis la ĉevalon, li foriris al la marĉo malantaŭ la domo. Li demetis siajn ŝtrumpojn kaj ŝuojn, suprentiris la pantalonon kaj envadis la akvon. Estis hela somera nokto kaj la patro, kiu staris en la malgranda ĉambro malantaŭ la kurteno, observis la filon. Li vidis, kiel li kliniĝas super la akvon kaj serĉas kiel en la pasinta nokto. De tempo al tempo li iris alborde, kiel se li malesperis trovi ion, sed post momento li denove envadis la akvon. Unufoje li foriris por preni sitelon el la stalo kaj komencis ĉerpi akvon el la malgrandaj akvejoj,
 
 
 kiel se li intencus malplenigi ilin, sed verŝajne opiniis la aferon ne ebla kaj formetis la sitelon. Li ankaŭ provis kun retsa-ka fiŝkaptilo. Li traplugis per ĝi la tutan marĉon, sed ŝajne ellevis nenion ol ŝlimon. Li nur eniris je tiel malfrua horo, ke jam la loĝantaro de la domo komencis siajn oficojn. Tiam li estis tiel laca kaj dormema, ke li ŝanceliĝis, kiam li iris, kaj ĵetis sin sur la liton sen senvestigi sin.
 
-Kiam sonis la oka, la patro lin vekis. Gudmund kuŝis sur la lito. La vestojn plenmakulis ŝlimo kaj argilo, sed la patro ne demandis, kion li faris; li nur diris, ke nun estas tempo ellitiĝi, kaj post tio li fermis la pordon. Post momento Gudmund mal-suprenvenis en la grandan ĉambron, vestita per la belaj edzi-
-
-ĝaj vestoj. Li estis pala kaj la okuloj brilis malkviete, sed sendube neniu antaŭe trovis lin tiel bela. La trajtoj preskaŭ re-flektis internan brilon. ŝajnis ke oni vidas personon ne plu konsistanta el karno kaj sango sed nur el volo kaj animo.
+Kiam sonis la oka, la patro lin vekis. Gudmund kuŝis sur la lito. La vestojn plenmakulis ŝlimo kaj argilo, sed la patro ne demandis, kion li faris; li nur diris, ke nun estas tempo ellitiĝi, kaj post tio li fermis la pordon. Post momento Gudmund mal-suprenvenis en la grandan ĉambron, vestita per la belaj edziĝaj vestoj. Li estis pala kaj la okuloj brilis malkviete, sed sendube neniu antaŭe trovis lin tiel bela. La trajtoj preskaŭ re-flektis internan brilon. ŝajnis ke oni vidas personon ne plu konsistanta el karno kaj sango sed nur el volo kaj animo.
 
 Estis solene en la granda ĉambro. La patrino jam vestis sin per sia nigra robo kaj jam pendigis beletan silkan ŝalon sur la ŝultrojn, kvankam ŝi ne iros al la geedziĝa soleno. Eĉ ĉiuj servistoj surhavis siajn plej belajn vestojn. Freŝan betulfoliaron oni surmetis sur la fornon. La tablo surhavis tukon kaj multe da manĝaĵoj.
 
-Post kiam ili manĝis, sinjorino Ingeborg laŭtlegis psalmon kaj kelkaj linioj el la biblio. Tiam ŝi turnis sin al Gudmund kaj dankis lin pro tio, ke li ĉiam estis bona filo; kaj dezirante al li prosperon en lia estonta vivo, ŝi donis al li sian benon. Sinjorino Ingeborg sciis bone esprimi siajn pensojn kaj Gudmund tre kortuŝiĝis. Larmoj montriĝis multfoje en Iiaj okuloj, sed li spite sukcesis reteni la ploron. Ankaŭ la patro diris kelkaj vortoj. ”Estos dolorige al viaj gepatroj perdi vin,” li diris, kaj de-45
-
-LA JUNULINO EL STORMYR
-
-
-nove Gudmund preskaŭ ekploris. ĉiuj servistoj ankaŭ venis al li, skuis lian manon kaj dankis lin pro la tempo, kiu jam forpasis. Larmoj la tutan tempon staris en la okuloj de Gudmund. Li tusetis kaj kelkfoje penis paroli, sed li preskaŭ ne eldiris eĉ unu vorton.
+Post kiam ili manĝis, sinjorino Ingeborg laŭtlegis psalmon kaj kelkaj linioj el la biblio. Tiam ŝi turnis sin al Gudmund kaj dankis lin pro tio, ke li ĉiam estis bona filo; kaj dezirante al li prosperon en lia estonta vivo, ŝi donis al li sian benon. Sinjorino Ingeborg sciis bone esprimi siajn pensojn kaj Gudmund tre kortuŝiĝis. Larmoj montriĝis multfoje en Iiaj okuloj, sed li spite sukcesis reteni la ploron. Ankaŭ la patro diris kelkaj vortoj. ”Estos dolorige al viaj gepatroj perdi vin,” li diris, kaj denove Gudmund preskaŭ ekploris. ĉiuj servistoj ankaŭ venis al li, skuis lian manon kaj dankis lin pro la tempo, kiu jam forpasis. Larmoj la tutan tempon staris en la okuloj de Gudmund. Li tusetis kaj kelkfoje penis paroli, sed li preskaŭ ne eldiris eĉ unu vorton.
 
 La patro devis lin sekvi al la geedziĝfesta bieno kaj ĉeesti la geedziĝon. Li eliris por jungi la ĉevalon al la ĉareto kaj poste, kiam alvenis la tempo por la forveturo, li eniris kaj vokis Gudmund. Sidiĝante en la ĉareto, Gudmund rimarkis, ke ĝi estis purigita. ĉio estis same brila kaj prizorgita kiel li mem ĉiam kutimis zorgi pri la ĉareto. Samtempe li ankaŭ vidis kiel purigita estas la korto. La enirvojon al la bieno oni ĵus sabli-gis, amasojn da malnova lignaĵo kaj aliajn malnovaĵojn, kiuj kuŝis tie dum lia tuta vivo, oni ĵus forigis. ĉe ambaŭ flankoj de la enirpordo staris kelkaj dehakitaj betuloj kiel arko de honoro; granda krono de padusaj floroj pendis ĉe la ventofla-go, kaj el ĉiuj fenestraj aperturoj elstaris helverda betulfoliaĵo.
 
 Mankis malmulte, ke Gudmund denove ploru. Li forte premis la manon al la patro, ĝuste kiam li intencis instigi la ĉevalon al forveturo. Estis kiel se li volus reteni la intencon de la patro. ”ĉu vi ion deziras?” diris la patro. — ”Ho ne,” diris Gudmund, ”estis nenio. Plej bone estas foriri.”
 
-Gudmund bezonis ankoraŭfoje adiaŭi, antaŭ ol li malproksimiĝis tro de la bieno. Helga el Stormyr atendis ĉe la loko, kie la arbara vojeto el ŝia hejmo atingis la ĉefvojon. La patro veturigis kaj li haltis, vidante Helgan. ”Mi vin atendas, ĉar mi volas deziri feliĉon al Gudmund hodiaŭ,” diris Helga. Gudmund sin klinis de la ĉareto kaj premis ŝian manon. ŝajnis al li, ke ŝi malgrasiĝis, la okuloj havis ruĝajn bordojn. Verŝajne ŝi ploris ĉiunokte kaj sopiris al Närlunda. Sed nun ŝi penis 46
-
-LA JUNULINO EL STORMYR
+Gudmund bezonis ankoraŭfoje adiaŭi, antaŭ ol li malproksimiĝis tro de la bieno. Helga el Stormyr atendis ĉe la loko, kie la arbara vojeto el ŝia hejmo atingis la ĉefvojon. La patro veturigis kaj li haltis, vidante Helgan. ”Mi vin atendas, ĉar mi volas deziri feliĉon al Gudmund hodiaŭ,” diris Helga. Gudmund sin klinis de la ĉareto kaj premis ŝian manon. ŝajnis al li, ke ŝi malgrasiĝis, la okuloj havis ruĝajn bordojn. Verŝajne ŝi ploris ĉiunokte kaj sopiris al Närlunda. Sed nun ŝi penis
 
 
 aspekti bonhumora kaj afable ridetis al li. Li denove tre emociiĝis, sed povis diri nenion. La patro, kiu laŭfame nur parolis, kiam tio estis nepre necesa, tiam diris: ”Mi kredas, ke ĉi tiu bondeziro ĝojigis Gudmundon pli ol io alia.” — ”Jes, prava vi estas,” diris Gudmund. Ili ankoraŭfoje skuis al siajn manojn, kaj tiam la patro denove veturis. Gudmund kuŝis ren-versita dorsen kaj longe rigardis Helgan. Kiam ŝi malaperis malantaŭ kelkaj arboj, li subite malfermis la piedkovrilon kaj leviĝis kiel se li volus elsalti. — ”ĉu vi volas ankoraŭ diri ion al Helga?” demandis la patro. — ”Ve, ho ne,” respondis Gudmund kaj denove sidiĝis bonorde.
@@ -736,12 +568,7 @@ La patro spiregis malfacile. Sonis kiel ĝemo de malŝarĝiĝo, kaj Gudmund miri
 
 — ”Jam sabate vespere mi vidis, ke okazis io malbona. Kaj tiam mi trovis vian tranĉilon en la marĉo.” — ”Do, vi trovis la tranĉilon!” — ”Mi ĝin trovis, kaj mi vidis, ke unu klingo estis derompita.” —
 
-”Jes, paĉjo, mi scias, ke la klingo forestas, sed spite de tio mi ne povas enkapigi la ideon, ke mi murdis.” — ”Tio sendu-47
-
-LA JUNULINO EL STORMYR
-
-
-be okazis dum la ebrieco.” — ”Mi scias nenion, mi memoras nenion. Mi vidas laŭ la vestoj, ke mi partoprenis interbatiĝon, kaj mi scias, ke la klingo forestas.” — ”Mi komprenas, ke vi intencis silenti pri la afero,” diris la patro. — ”Mi opiniis, ke la aliaj kamaradoj estis eble same tutebriaj kiel mi kaj pro tio memoras nenion. Eble ekzistas neniuj aliaj pruvoj ol la tranĉi-lo, kaj pro tio mi forĵetis ĝin.” — ”Mi komprenas, ke vi pensis tiel.” — ”Vi ja vidas, paĉjo: mi ne scias, kiu mortis; eble mi lin vidis neniam antaŭe. Mi ne memoras, ke mi murdis lin. Do mi opiniis, ke mi ne devas suferi pro io, kion mi faris nevole.
+”Jes, paĉjo, mi scias, ke la klingo forestas, sed spite de tio mi ne povas enkapigi la ideon, ke mi murdis.” — ”Tio sendube okazis dum la ebrieco.” — ”Mi scias nenion, mi memoras nenion. Mi vidas laŭ la vestoj, ke mi partoprenis interbatiĝon, kaj mi scias, ke la klingo forestas.” — ”Mi komprenas, ke vi intencis silenti pri la afero,” diris la patro. — ”Mi opiniis, ke la aliaj kamaradoj estis eble same tutebriaj kiel mi kaj pro tio memoras nenion. Eble ekzistas neniuj aliaj pruvoj ol la tranĉi-lo, kaj pro tio mi forĵetis ĝin.” — ”Mi komprenas, ke vi pensis tiel.” — ”Vi ja vidas, paĉjo: mi ne scias, kiu mortis; eble mi lin vidis neniam antaŭe. Mi ne memoras, ke mi murdis lin. Do mi opiniis, ke mi ne devas suferi pro io, kion mi faris nevole.
 
 Sed baldaŭ mi pensis, ke mi ja agis kiel malsaĝulo, kiam mi ĵetis la tranĉilon en la marĉon. i ja sekiĝas en la somero, kaj tiam iu ajn povos trovi ĝin. Kaj tiam mi penis retrovi ĝin la pasintan nokton kaj ankaŭ la antaŭan nokton.” — ”ĉu vi ne intencis konfesi?” — ”Ne, hieraŭ mi nur pensis, kiel mi povos sekretigi la aferon, kaj mi penis danci kaj esti gaja, por ke neniu rimarku ion ĉe mi.” — ”ĉu vi do intencis edziĝi hodiaŭ, sen konfesi? Estis ago vere puninda. ĉu vi ne komprenis, ke okaze de eltrovo, vi kuntiros Hildur kaj ŝian familion en vian mizeron?” — ”Mi opiniis, ke plej bone mi indulgas ilin, dirante nenion.”
 
@@ -749,9 +576,7 @@ Ili veturis antaŭen sur la vojo kun plej granda rapideco. La patro nun ŝajne d
 
 ”Mi min demandas, kial vi pensis aliamaniere,” li diris. —
 
-”Estis pro la bondeziroj de Helga. Tiam io malmola rompiĝis en mi. Mi tiel emociiĝis pro ŝi. Mi ankaŭ emociiĝis pro panjo kaj vi hodiaŭ, kaj mi volis paroli por diri, ke mi ne indas vian amon, sed tiam la malmola en mi ankoraŭ postrestis kaj 48
-
-LA JUNULINO EL STORMYR
+”Estis pro la bondeziroj de Helga. Tiam io malmola rompiĝis en mi. Mi tiel emociiĝis pro ŝi. Mi ankaŭ emociiĝis pro panjo kaj vi hodiaŭ, kaj mi volis paroli por diri, ke mi ne indas vian amon, sed tiam la malmola en mi ankoraŭ postrestis kaj
 
 
 kontraŭstaris. Sed kiam Helga alvenis, mi cedis. Mi ja opiniis, ke vere ŝi devas koleri al mi, ĉar estas ja mia kulpo, ke ŝi devis forloĝiĝi de ni.” —
@@ -768,9 +593,7 @@ Gudmund ne respondis. Li aspektis ĉiam pli kompatinda ju pli ili proksimiĝis a
 
 ”Mi iam aŭdis ion similan,” li diris. ”Temis pri fianĉo, kiu okaze pafmortigis kamaradon dum ĉaso. Estis tute nevole, kaj oni ne trovis, ke ĝuste li faris la senintencan pafon. Sed kelkajn tagojn poste li devis edziĝi, kaj alveninte al la geedziĝa domo, li paŝis al la fianĉino kaj diris: ’Neeble estas geedziĝi.
 
-Mi ne volas kuntiri vin en la mizeron, kiu atendas min.’ Sed ŝi jam surhavis kronon kaj vualon, kaj nun ŝi prenis lin ĉe la mano kaj kondukis lin en la salonon, kie atendis la gastoj, kaj 49
-
-LA JUNULINO EL STORMYR
+Mi ne volas kuntiri vin en la mizeron, kiu atendas min.’ Sed ŝi jam surhavis kronon kaj vualon, kaj nun ŝi prenis lin ĉe la mano kaj kondukis lin en la salonon, kie atendis la gastoj, kaj
 
 
 ĉion oni jam pretigis por la geedziĝa beno. ŝi Iaŭtvoĉe rakontis al ĉiuj, kion ĵus diris la fianĉo al ŝi. ’Tion mi nun rakontas, por ke ĉiuj sciu, ke vi ne mensogis al mi,’ ŝi diris tuj poste, turnante sin al la fianĉo. ’Sed nun mi volas tuj edziniĝi al vi, ĉar vi estas la sama, kvankam vi spertis malfeliĉon, kaj kio ajn atendas vin, mi volas kunhelpi al vi porti ĝin.’ ” —
@@ -782,9 +605,6 @@ Estis decidite, ke la geedziĝo okazos en la preĝejo, kaj amaso da homoj jam ko
 Erland kaj Gudmund elveturiĝis kaj tuj petis la permeson paroli aparte kun Hildur kaj ŝiaj gepatroj. Baldaŭ ili staris ĉiuj en ĉambreto, kie la skabeno havis sian skribotablon.
 
 ”Mi pensas, ke vi jam legis en la gazetoj pri la interbatiĝo en la urbo dum la antaŭsabata nokto, kiam homon oni murdis,” diris Gudmund rapide. — ”Jes, certe ni legis pri ĝi,” diris la skabeno. — ”La fakto estas, ke mi troviĝis en la urbo tiun nokton,” daŭrigis Gudmund. Nun neniu respondo aŭdeblis.
-
-
-LA JUNULINO EL STORMYR
 
 
 Fariĝis silento de tombo. ŝajnis al Gudmund, ke ĉiuj lin rigardas fikse kaj kun tioma teruro, ke li ne povis daŭrigi. Sed la patro helpis lin. — ”Gudmund estis priregalita de kelkaj liaj amikoj. Li verŝajne drinkis tro tiun nokton, kaj kiam li venis hejmen, li ne sciis, kion li estis farinta. Sed facile estis vidi, ke li partoprenis interbatiĝon, ĉar la vestoj estis disŝiritaj.” Gudmund vidis, ke la teruro, kiu regis la aliajn, pliiĝis ĉe ĉiu vorto, sed li mem ĉiam pli trankviliĝis. Naskiĝis ĉe li sento de obstino, kaj li denove parolis: ”En la sabata vespero, kiam alvenis la gazeto kaj mi legis pri la interbatiĝo kaj pri la klingo, kiun oni enŝovis en la kranion, mi elpoŝigis mian tranĉilon, kaj tiam mi vidis, ke mankas al ĝi unu klingo.” — ”Vi alpor-tas vere malbonajn novaĵojn, Gudmund,” diris la skabeno.
@@ -801,13 +621,9 @@ La tutan tempon Gudmund fikse rigardis Hildur. ŝi surhavis kronon kaj vualon, k
 
 ĝin, ŝi reenŝovis la pinglon.
 
-”Estas ja ankoraŭ ne pruvite, ke Gudmund estas la mur-
+”Estas ja ankoraŭ ne pruvite, ke Gudmund estas la murdinto,” diris la patro, ”sed mi komprenas, ke vi preferus, ke la geedziĝon oni prokrastu, ĝis kiam ĉion oni estos esplorinta.”
 
-dinto,” diris la patro, ”sed mi komprenas, ke vi preferus, ke la geedziĝon oni prokrastu, ĝis kiam ĉion oni estos esplorinta.”
-
-— ”Estas senutile, mi pensas, paroli pri prokrasto,” diris la skabeno. ”Mi pensas, ke Gudmund estas tiel certa pri siaj 51
-
-LA JUNULINO EL STORMYR
+— ”Estas senutile, mi pensas, paroli pri prokrasto,” diris la skabeno. ”Mi pensas, ke Gudmund estas tiel certa pri siaj
 
 
 agoj, ke ni povas interkonsenti pri tio, ke tuj ĉesu la ama in-terrilato inter li kaj Hildur.”
@@ -823,14 +639,9 @@ Trairante la domon, li havis ideeton de la tuta riĉeco de la manova farmbieno. 
 Pli poste, veninte al la korto, li vidis aron da novaj kaj malnovaj ĉaroj; bonegajn ĉevalojn oni kondukis el la stalo, kaj be-legajn ĉarkovrilojn oni metis en la ĉarojn. Lian rigardon renkontis kelkaj kortoj, kiujn ĉirkaŭis bovejo, stalo, ŝafejo, gre-nejoj, tenejoj, garbejoj, kaj multe da aliaj konstruaĵoj. ”ĉion ĉi mi estus havinta,” li pensis, sidiĝante en la ĉareton.
 
 
-LA JUNULINO EL STORMYR
-
-
 Maldolĉa pento subite posedis lin. Li estus prefere saltin-ta el la ĉareto por eniri kaj diri, ke ne estas vera tio, kion li ĵus diris. Li ja volis nur mokŝerci kaj timigi ilin. Estis ja vere malsaĝe konfesi. Kiom utilos lia konfeso? Certe neniu tiros profi-ton el tio. La mortinto ja estas senviva. Ne, el ĉi tiu konfeso nur rezultos, ke ankaŭ li eniĝos en malbonstaton.
 
-Dum la lastaj semajnoj li ne tiel arde deziris tiun geedzi-
-
-ĝon, sed nun, kiam estis necese rezigni pri ĝi, li vere vidis, kiom ĝi valoras. Estis multe perdi Hildur Eriksdotter kaj ĉion, kio kunsekvos. Ne gravis, ke ŝi estas obstina kaj memfidema.
+Dum la lastaj semajnoj li ne tiel arde deziris tiun geedziĝon, sed nun, kiam estis necese rezigni pri ĝi, li vere vidis, kiom ĝi valoras. Estis multe perdi Hildur Eriksdotter kaj ĉion, kio kunsekvos. Ne gravis, ke ŝi estas obstina kaj memfidema.
 
 ŝi ja estas la plej eminenta el ĉiuj en la najbaraĵo, kaj per ŝi li ja estus akirinta grandan influon kaj reputacion.
 
@@ -847,9 +658,6 @@ Nun li ne aspektis tiel bela, kaj la okuloj ne brilis tiel klare kiel dum la mat
 estas plej bone tuj veturi al la polica komisaro?” — ”ĉu ne estas plej bone veturi hejmen, por ke vi povu ripozi kaj dormi,” diris la patro. ”Verŝajne vi ne dormis multe la lastajn noktojn.” — ”Panjo certe konsterniĝos, vidante nin.” — ”ŝi kredeble ne tro miros,” diris la patro. ”ŝi scias tiom, kiom mi.
 
 
-LA JUNULINO EL STORMYR
-
-
 ŝi certe ĝojos, ke vi konfesis.” — ”ŝajnas al mi, ke panjo kaj ĉiuj hejme ĝoje deziras, ke mi iru en malliberejon,” diris Gudmund amare. — ”Vi scias, ke vi perdas multon pro tio, ke vi agis korekte,” diris la patro. ”ŝi ne povas ne ĝoji, ke vi venkis vin mem.”
 
 ŝajnis al Gudmund, ke estas tute neeble veturi hejmen por aŭskulti ĉiujn, kiuj lin laŭdos pro tio, ke li detruis sian estontecon. Li serĉis pretekston por ne devi renkonti iun ajn, antaŭ ol li trankviliĝis iom pli. Nun ili preterveturis la lokon, kie la vojeto devojiĝas al Stormyr. ”ĉu vi bonvolas halti ĉi tie, paĉjo? Mi kredas, ke mi devas iri al Helga por paroli kun ŝi.”
@@ -858,14 +666,9 @@ La patro volonte haltigis la ĉevalon. — ”Nur ne forgesu hej-menveni plej eb
 
 Gudmund eniris la arbaron kaj baldaŭ la patro perdis lin el la vido. Li tute ne intencis trovi Helgan, li nur deziris esti sola, por ke li ne estu devigata kontroli sin. Li sentis en si sen-sencan koleron al ĉio, li piedbatis ŝtonojn, kiuj baris al li la vojon, kaj kelkfoje li haltis por disŝiri grandan branĉon nur pro tio, ke folio frapetis lian vizaĝon.
 
-Li sekvis la vojon al Stormyr, sed li preterpasis la farmeton kaj supreniris la monton, kiu troviĝas malantaŭ ĝi. Tie baldaŭ fariĝis malfacile antaŭeniri. Li erarforiĝis de la vojo, kaj por atingi la plej altan supron, li devis transiri larĝan spacon da pintaj ŝtonegoj. Estis danĝera irado sur akraj supraĵoj de ŝtonegoj, kaj li estus rompinta al si brakojn kaj krurojn, se li estus erarpaŝinta. Li tion bone komprenis, sed li marŝis antaŭ-
-
-en, kiel se li havus plezuron meti sin en danĝeron. ”Se mi falos kaj pereos, neniu povos trovi min ĉi supre,” li pensis.
+Li sekvis la vojon al Stormyr, sed li preterpasis la farmeton kaj supreniris la monton, kiu troviĝas malantaŭ ĝi. Tie baldaŭ fariĝis malfacile antaŭeniri. Li erarforiĝis de la vojo, kaj por atingi la plej altan supron, li devis transiri larĝan spacon da pintaj ŝtonegoj. Estis danĝera irado sur akraj supraĵoj de ŝtonegoj, kaj li estus rompinta al si brakojn kaj krurojn, se li estus erarpaŝinta. Li tion bone komprenis, sed li marŝis antaŭen, kiel se li havus plezuron meti sin en danĝeron. ”Se mi falos kaj pereos, neniu povos trovi min ĉi supre,” li pensis.
 
 ”Sed tute egale. Same bone valoras morti ĉi tie kiel sidi dum jaroj en malliberejo.”
-
-
-LA JUNULINO EL STORMYR
 
 
 Tamen nenia malfeliĉo okazis, kaj post kelkaj minutoj li estis sur Storhöjden, la plej alta supro. Iam dezertigis la monton arbara brulego. La plej alta parto estis ankoraŭ senarba, kaj de tie oni ĝuis vidaĵon de tuta mejlo da ĉirkaŭo. Li vidis valojn kaj lagojn, malhelajn arbarojn kaj riĉajn kamparojn, preĝejojn kaj bienojn, malgrandajn farmetojn kaj grandajn vilaĝojn. Plej malproksime kuŝis la urbo, kovrita de blanka vualo de sunnebuleto, el kiu elstaris kelkaj brilantaj turoj.
@@ -878,9 +681,7 @@ Li memoris, ke estante infano kaj legante, ke la tentisto kondukis Jesuon sur al
 
 Tiam subite ŝajnis al li, ke simila tento prezentis sin al li mem ĉi tiujn lastajn tagojn. Verŝajne la tentisto ja kondukis lin sur altan monton kaj montris al li la tutan ŝatindecon de potenco kaj riĉeco. ”Nur silentu la malbonaĵon, kiun vi faris,”
 
-li diris, ”kaj mi donacos al vi ĉion ĉi.” Kaj pensante pri tio, Gudmund spertis iom da kontento. ”Mi ja respondis nee,” li diris, kaj subite li komprenis, kio estus rezultinta el lia silento. Se li estus silentinta, ĉu tiam li ne devus adori la tentiston ĉiutage? Timema, senkuraĝa viro li fariĝus, nura sklavo sub 55
-
-LA JUNULINO EL STORMYR
+li diris, ”kaj mi donacos al vi ĉion ĉi.” Kaj pensante pri tio, Gudmund spertis iom da kontento. ”Mi ja respondis nee,” li diris, kaj subite li komprenis, kio estus rezultinta el lia silento. Se li estus silentinta, ĉu tiam li ne devus adori la tentiston ĉiutage? Timema, senkuraĝa viro li fariĝus, nura sklavo sub
 
 
 siaj havaĵoj. La timo pri eltrovo estus kuŝanta sur li por ĉiam.
@@ -889,9 +690,7 @@ Neniam li sentus sin libera homo.
 
 Granda trankvilo eniris Gudmundon. Li fariĝis feliĉa, ĉar li komprenis, ke li agis korekte. Pripensante la pasintajn tagojn li pensis, ke li iris blindpalpe en granda mallumo. Estis strange, ke fine li trovis la ĝustan vojon. Li demandis al si mem, kio okazis, por ke li ne devojiris. ”Estis pro tio, ke hejme ili estas tiel bonaj kun mi,” li pensis, ”kaj plej bone helpis al mi, ke Helga alvenis por prezenti al mi siajn bondezirojn.”
 
-Li kuŝis ankoraŭ momenton supre sur la monto, sed bal-
-
-daŭ li pensis, ke li devas iri hejmen al patro kaj patrino por diri al ili, ke li trankviliĝis. Kiam li leviĝis por foriri, li vidis, ke Helga sidas sur teraso iom malsupre.
+Li kuŝis ankoraŭ momenton supre sur la monto, sed baldaŭ li pensis, ke li devas iri hejmen al patro kaj patrino por diri al ili, ke li trankviliĝis. Kiam li leviĝis por foriri, li vidis, ke Helga sidas sur teraso iom malsupre.
 
 ŝi ne havis tiel grandan, vastan elrigardon de tie, kie ŝi sidis, nur malgranda peco de la valo estis al ŝi videbla. Närlunda troviĝis ĝuste en tiu direkto kaj verŝajne ŝi vidis parton de la bieno. Kiam Gudmund vidis ŝin, li sentis, ke lia koro, kiu laboris malfacile kaj timeme la tutan antaŭan parton de la tago, komencis bati ĝoje kaj vigle, kaj samtempe li spertis tian tremon de feliĉo, ke li haltis kaj miris pri si mem.
 
@@ -899,20 +698,13 @@ daŭ li pensis, ke li devas iri hejmen al patro kaj patrino por diri al ili, ke 
 
 Tiu sento lin ekregis kun la forto de riverego, al kiu oni forigis ĉiujn barilojn. La tutan pasintan tempon, dum kiu li konis ŝin, li estis iel ligita. ĉion, kio jam tiris lin al ŝi, li ĉiam retenis. Nur nun li povis forlasi la penson, ke li devos edziĝi al alia junulino; nun li rajtis ami ŝin.
 
-”Helga!” li kriis, kaj samtempe li komencis malsuprengrim-56
-
-LA JUNULINO EL STORMYR
-
-
-pi la krutaĵon por iri al ŝi. ŝi turnis sin malantaŭen kun timigita krio. ”Ne timu! Estas nur mi.” — ”Sed ĉu vi ne estas en la preĝejo por edziĝi?” — ”Ho ne, okazos hodiaŭ neniu geedziĝo. Hildur ne volas edziniĝi al mi.”
+”Helga!” li kriis, kaj samtempe li komencis malsuprengrimpi la krutaĵon por iri al ŝi. ŝi turnis sin malantaŭen kun timigita krio. ”Ne timu! Estas nur mi.” — ”Sed ĉu vi ne estas en la preĝejo por edziĝi?” — ”Ho ne, okazos hodiaŭ neniu geedziĝo. Hildur ne volas edziniĝi al mi.”
 
 Helga leviĝis. ŝi metis la manon sur la koron kaj fermis la okulojn. Verŝajne ŝi pensis en tiu momento, ke alvenis vere ne Gudmund. Eble okazis, ke ŝi iluzias ĉi tie en la arbaro per la okuloj kaj oreloj. Sed estis dolĉe kaj kare, ke li alvenis, eĉ se estis nur vizio, kaj ferminte la okulojn, ŝi restis senmova por
 
 ĝui ankoraŭ dum kelkaj momentoj ĉi tiun vizion.
 
-Gudmund estis preskaŭ ebria kaj deliranta pro la granda amo, kiu flamiĝis en li. Tuj kiam li atingis Helgan, li ĉirkaŭ-
-
-brakis kaj kisis ŝin, kaj tion ŝi permesis, ĉar ŝi tute senkon-sciiĝis pro surprizo. Estis ja tro strange kredi, ke li, kiu ĝuste nun devus stari en la preĝejo ĉe la flanko de sia fianĉino, alvenis fakte tien en la arbaron. Tiu antaŭulo aŭ duulo de li, kiu alvenis al ŝi, ja rajtis kisi ŝin.
+Gudmund estis preskaŭ ebria kaj deliranta pro la granda amo, kiu flamiĝis en li. Tuj kiam li atingis Helgan, li ĉirkaŭbrakis kaj kisis ŝin, kaj tion ŝi permesis, ĉar ŝi tute senkon-sciiĝis pro surprizo. Estis ja tro strange kredi, ke li, kiu ĝuste nun devus stari en la preĝejo ĉe la flanko de sia fianĉino, alvenis fakte tien en la arbaron. Tiu antaŭulo aŭ duulo de li, kiu alvenis al ŝi, ja rajtis kisi ŝin.
 
 Sed tuj kiam Gudmund kisis Helgan, ŝi vekiĝis, forpelan-te lin de si. Kaj tiam ŝi komencis superŝuti lin per demandoj.
 
@@ -922,9 +714,7 @@ Gudmund estus prefere priparolinta kun ŝi sian amon ol ion alian, sed ŝi devig
 
 Dum li parolis, ŝi sidis senmova kaj aŭskultis kun granda atento.
 
-ŝi ne interrompis lin antaŭ ol li parolis pri la rompita klingo. Tiam ŝi salte leviĝis kaj demandis, ĉu ĝi estas lia ordinara tranĉilo, tiu, kiun li havis, kiam ŝi servis ĉe ili. ”Jes, ĝuste 57
-
-LA JUNULINO EL STORMYR
+ŝi ne interrompis lin antaŭ ol li parolis pri la rompita klingo. Tiam ŝi salte leviĝis kaj demandis, ĉu ĝi estas lia ordinara tranĉilo, tiu, kiun li havis, kiam ŝi servis ĉe ili. ”Jes, ĝuste
 
 
 tiu ĝi estis,” li diris. — ”Kiom da klingoj rompiĝis?” ŝi demandis. — ”Nur unu klingo forestas.”
@@ -935,9 +725,7 @@ Komencis labori en la kapo de Helga. ŝi sidis kun sulkigi-ta frunto kaj penis m
 
 Helga kunpremis la lipojn, kiel se la granda sekreto ne eliru el ŝia buŝo. Multajn aferojn ŝi pripensis. Ne nur temis pri la senkulpiĝo de Gudmund rilate al la murdo. ĉi tiu ja ankaŭ okazigis malamon inter Gudmund kaj la fianĉino. ĉu ŝi, Helga, ne provu forigi ĉi tiun malamon per tio, kion ŝi scias pri la afero?
 
-Denove ŝi sidis silente kaj pensis, ĝis kiam Gudmund rakontis, ke nun li jam turnis sian inklinon al ŝi. Tio ja ŝajnis al 58
-
-LA JUNULINO EL STORMYR
+Denove ŝi sidis silente kaj pensis, ĝis kiam Gudmund rakontis, ke nun li jam turnis sian inklinon al ŝi. Tio ja ŝajnis al
 
 
 ŝi la plej granda malfeliĉo, kiu trafis ŝin tiun tagon. Ja estas bedaŭrinde, ke li preskaŭ perdis la profitan geedziĝon, sed pli bedaŭrinde estos, se li amindumos tian kiel ŝi. ”Ne, tion vi ne diru al mi,” ŝi diris, salte leviĝante. — ”Kial mi ne diru al vi tion?” diris Gudmund kaj paliĝis. ”ĉu ankaŭ vi timas min sa-me kiel Hildur?” — ”Ne, ne pro tio.” ŝi volis klarigi al li, ke sian propran ruinon li okazigus per siaj vortoj, sed li ne aŭskultis ŝin. — ”Mi aŭdis iam, ke en la jam de longe pasinta tempo ekzistis virinoj, kiuj stariĝis ĉe la flanko de siaj viroj, kiam ili mizeriĝis, sed tiajn virinojn oni verŝajne ne renkon-tas hodiaŭ.” Ektremo trairis la korpon de Helga. ŝi estus volonte ĉirkaŭbrakinta lian kolon, sed ŝi restis senmova. Hodiaŭ ŝi devas esti prudenta. — ”Vere estas, ke ĝuste la tagon, kiam mi eniros la malliberejon, ne taŭgas peti vin edziniĝi al mi, sed se mi nur scius, ke vi volos atendi por edziniĝi al mi, kiam oni min ellasos, mi travivus bonhumore ĉion penigan.”
@@ -948,19 +736,12 @@ Helga restis sidanta senenergie. La petoj de Gudmund preskaŭ superregis ĝin. �
 
 ”ĉu vi ne sidas sur tiu ĉi rokrando por vidi ĝis Närlunda?” —
 
-”Jes, mi faras tion.” — ”ĉu vi ne deziregas nokte kaj tage forloĝiĝi tien?” — ”Jes, sed mi ne sopiras al iu ajn.” — ”Kaj min vi tute ne atentas, ĉu ne?” — ”Jes, sed mi ne volas edziniĝi al 59
-
-LA JUNULINO EL STORMYR
+”Jes, mi faras tion.” — ”ĉu vi ne deziregas nokte kaj tage forloĝiĝi tien?” — ”Jes, sed mi ne sopiras al iu ajn.” — ”Kaj min vi tute ne atentas, ĉu ne?” — ”Jes, sed mi ne volas edziniĝi al
 
 
 vi.” — ”Kiun vi do amas?” Helga silentis. ”ĉu eble Per Mårtenson?” — ”Jes, mi ja diris iam, ke lin mi amas,” ŝi diris tute konsumigite.
 
-Gudmund postrestis momenton, rigardante ŝin kun kole-
-
-rigita esprimo en la vizaĝo. ”Nu, adiaŭ do! Depost nun niaj vojoj disiĝas,” li diris. Kaj samtempe li faris grandan salton malsupren de la rokrando ĝis la proksima teraso de la monto, post kio li malaperis inter la arboj.
-
-
-LA JUNULINO EL STORMYR
+Gudmund postrestis momenton, rigardante ŝin kun kolerigita esprimo en la vizaĝo. ”Nu, adiaŭ do! Depost nun niaj vojoj disiĝas,” li diris. Kaj samtempe li faris grandan salton malsupren de la rokrando ĝis la proksima teraso de la monto, post kio li malaperis inter la arboj.
 
 
 vi
@@ -971,16 +752,9 @@ laŭ alia vojo. Sen halti ŝi kure preterpasis Stormyr kaj kuregis plejeble rapi
 
 En la unua bieno, kiun ŝi atingis, ŝi petis la permeson pruntepreni ĉevalon kaj ĉareton por veturi al Elvåkra. ŝi diris, ke estas afero pri vivo, kaj ŝi promesis pagi por la helpo. Vizitan-toj al la preĝejo jam reiris, rakontante pri la interrompita geedziĝo. ĉiuj montris grandan emocion kaj kompaton, kaj oni ne volis rifuzi al Helga helpon. ŝajnis, ke ŝi estas alportonta al la geedziĝa bieno gravegan novaĵon.
 
-En Elvåkra Hildur Eriksdotter sidis en ĉambreto de la supra etaĝo, kie ŝi ornamis sin por la geedziĝo. ŝin ĉirkaŭis la patrino kaj multaj aliaj vilaĝaninoj. Hildur ne ploris, sed ŝi estis neordinare silenta kaj tiel pala, ke ŝajnis, ke ŝi tuj malsaniĝos. La tutan tempon la virinoj parolis pri Gudmund. ĉiuj mallaŭdis lin kaj ŝajnis opinii, ke estas feliĉo, ke Hildur liberigis sin de li. luj opiniis, ke Gudmund montris malmulte da konsidero al la bogepatroj, ĉar jam la pentekostan tagon li ne sciigis al ili, kio okazis. Aliaj diris, kiun atendas tia grava feli-
+En Elvåkra Hildur Eriksdotter sidis en ĉambreto de la supra etaĝo, kie ŝi ornamis sin por la geedziĝo. ŝin ĉirkaŭis la patrino kaj multaj aliaj vilaĝaninoj. Hildur ne ploris, sed ŝi estis neordinare silenta kaj tiel pala, ke ŝajnis, ke ŝi tuj malsaniĝos. La tutan tempon la virinoj parolis pri Gudmund. ĉiuj mallaŭdis lin kaj ŝajnis opinii, ke estas feliĉo, ke Hildur liberigis sin de li. luj opiniis, ke Gudmund montris malmulte da konsidero al la bogepatroj, ĉar jam la pentekostan tagon li ne sciigis al ili, kio okazis. Aliaj diris, kiun atendas tia grava feliĉo, devas nepre peni pri bona konduto. Kaj iuj gratulis al Hildur, ĉar ŝi evitis edziniĝon al viro, kiu povas ebriiĝi tiagrade, ke li ne scias, kion li faras.
 
-ĉo, devas nepre peni pri bona konduto. Kaj iuj gratulis al Hildur, ĉar ŝi evitis edziniĝon al viro, kiu povas ebriiĝi tiagrade, ke li ne scias, kion li faras.
-
-Meze de tio Hildur ŝajnis maltrankviliĝi kaj levis sin por eliri. Tuj kiam ŝi fermis post si la pordon, ŝia plej ŝatata ami-61
-
-LA JUNULINO EL STORMYR
-
-
-kino, juna kamparanino, flustris al ŝi en orelon: ”Sube estas persono, kiu volas paroli kun vi.” — ”ĉu estas Gudmund?”
+Meze de tio Hildur ŝajnis maltrankviliĝi kaj levis sin por eliri. Tuj kiam ŝi fermis post si la pordon, ŝia plej ŝatata amikino, juna kamparanino, flustris al ŝi en orelon: ”Sube estas persono, kiu volas paroli kun vi.” — ”ĉu estas Gudmund?”
 
 demandis Hildur kaj montris ekbrilon en la okuloj. — ”Ne, sed mi kredas, ke estas lia sendito. ŝi volas transdoni la komision al neniu alia ol vi.”
 
@@ -990,9 +764,7 @@ Hildur miris pri tio, ke Gudmund sendas al ŝi Helgan, sed ŝi pensis, ke dum la
 
 ŝi faris al Helga signon, ke ŝi kuniru kun ŝi al la laktejo, kiu troviĝis trans la korto. ”Mi scias pri neniu alia loko, kie ni povus resti solaj,” ŝi diris. ”Ankoraŭ la tuta domo estas plena de homoj.”
 
-Tuj post la eniro Helga alpaŝis apud Hildur kaj rigardis ŝin en la vizaĝon. ”Antaŭ ol mi diras ion, mi nepre volas ekscii, ĉu vi amas Gudmundon.” Hildur ektremis pro indigno. Estis al ŝi dolorige interŝanĝi kun Helga eĉ solan vorton, kaj certe malmultan inklinon ŝi sentis fari ŝin sia intimulino. Sed estis nun nepra bezono kaj ŝi devigis sin al respondo: ”Pro kio vi do kredas, ke mi volis edziniĝi al li?” — ”Mi volas diri: ĉu vi lin amas ankoraŭ?” Hildur ŝtoniĝis, sed ŝi ne povis mensogi antaŭ la serĉesplora rigardo, kiun direktis al ŝi la alia. — ”Eble neniam antaŭe mi lin amis tiel, kiel hodiaŭ,” ŝi diris, sed tiel 62
-
-LA JUNULINO EL STORMYR
+Tuj post la eniro Helga alpaŝis apud Hildur kaj rigardis ŝin en la vizaĝon. ”Antaŭ ol mi diras ion, mi nepre volas ekscii, ĉu vi amas Gudmundon.” Hildur ektremis pro indigno. Estis al ŝi dolorige interŝanĝi kun Helga eĉ solan vorton, kaj certe malmultan inklinon ŝi sentis fari ŝin sia intimulino. Sed estis nun nepra bezono kaj ŝi devigis sin al respondo: ”Pro kio vi do kredas, ke mi volis edziniĝi al li?” — ”Mi volas diri: ĉu vi lin amas ankoraŭ?” Hildur ŝtoniĝis, sed ŝi ne povis mensogi antaŭ la serĉesplora rigardo, kiun direktis al ŝi la alia. — ”Eble neniam antaŭe mi lin amis tiel, kiel hodiaŭ,” ŝi diris, sed tiel
 
 
 mallaŭte, ke oni estus opinianta, ke estus dolorige al ŝi elpa-roli tiujn vortojn.
@@ -1005,12 +777,7 @@ Helga iris malantaŭen, kiel se ŝi alpuŝegus muron. Sed ŝi rapide kuraĝiĝis
 
 ”Plej bone estus tuj enveturiĝi, tiam mi povus rakonti dum la veturo.” — ”Ne, estas necese, ke antaŭe vi klarigu al mi vian agon. Mi nepre devas scii, kion mi faras.”
 
-La fervoro de Helga estis tiel granda, ke ŝi preskaŭ ne povis resti senmova; tamen estis necese, ke ŝi rakontu al Hildur, kiamaniere ŝi sciis, ke Gudmund estas senkulpa. ”ĉu vi tion ne tuj diris al Gudmund?” — ”Ne, nur nun mi tion diras al vi, Hildur. Neniu alia tion scias.” — ”Kaj kial vi alportis al mi tiun sciigon?” — ”Por ke ĉio repaciĝu inter vi. Certe li baldaŭ aŭ-
-
-dos, ke li faris nenion malbonan, sed mi volas, ke vi vizitu lin kvazaŭ propravole por rebonigi la aferon.” — ”ĉu mi ne diru, ke mi scias, ke li estas senkulpa?” — ”Vi venu tute propravole, neniel aludante, ke mi parolis kun vi. Alie li neniam pardonos tion, kion vi diris al li hodiaŭ matene.”
-
-
-LA JUNULINO EL STORMYR
+La fervoro de Helga estis tiel granda, ke ŝi preskaŭ ne povis resti senmova; tamen estis necese, ke ŝi rakontu al Hildur, kiamaniere ŝi sciis, ke Gudmund estas senkulpa. ”ĉu vi tion ne tuj diris al Gudmund?” — ”Ne, nur nun mi tion diras al vi, Hildur. Neniu alia tion scias.” — ”Kaj kial vi alportis al mi tiun sciigon?” — ”Por ke ĉio repaciĝu inter vi. Certe li baldaŭ aŭdos, ke li faris nenion malbonan, sed mi volas, ke vi vizitu lin kvazaŭ propravole por rebonigi la aferon.” — ”ĉu mi ne diru, ke mi scias, ke li estas senkulpa?” — ”Vi venu tute propravole, neniel aludante, ke mi parolis kun vi. Alie li neniam pardonos tion, kion vi diris al li hodiaŭ matene.”
 
 
 Hildur aŭskultis silente. Estis io en ĉi tio, kion ŝi spertis neniam antaŭe, kaj ŝi klopodis klarigi al si la senton. ”ĉu vi scias, ke ĝuste mi insistis pri via forloĝiĝo el Närlunda?” —
@@ -1019,9 +786,7 @@ Hildur aŭskultis silente. Estis io en ĉi tio, kion ŝi spertis neniam antaŭe,
 
 ”Eble vin amas Gudmund?” ŝi demandis. Sed nun estis elĉer-pita la pacienco de Helga. — ”Kion li akirus edziĝante al mi?”
 
-ŝi diris maldolĉe. ”Vi ja scias, ke mi estas nenio alia ol malri-
-
-ĉa farmeta knabino, kaj dirante tion, mi ne diris pri mi la plej malŝatindan.”
+ŝi diris maldolĉe. ”Vi ja scias, ke mi estas nenio alia ol malriĉa farmeta knabino, kaj dirante tion, mi ne diris pri mi la plej malŝatindan.”
 
 La du junulinoj elŝteliĝis nerimarkite el la bieno kaj baldaŭ ili sidis en la ĉareto. Helga veturigis kaj ŝi vere ne indulgis la ĉevalon, ĉar rapidege pasis la ĉareto. Ambaŭ silentis. Hildur rigardis Helgan. ŝajnis, ke ŝi miris kaj pensis pri ŝi pli ol pri io ajn alia.
 
@@ -1031,9 +796,7 @@ Gudmund sidis en la granda ĉambro de Närlunda apud
 
 sinjorino Ingeborg kaj parolis kun ŝi. La patro sidis malproksime de ili kaj fumis. Li aspektis kontenta, kvankam li diris nenion. Estis videble, ke li pensis, ke nun ĉio progresas laŭor-de kaj ke li ne bezonas interveni.
 
-”Mi estas scivola aŭdi, panjo, kion vi dirus, se mi farus Helgan via bofilino,” diris Gudmund. Sinjorino Ingeborg levis la kapon kaj diris kun firma voĉo: ”Mi akceptos kun plezuro 64
-
-LA JUNULINO EL STORMYR
+”Mi estas scivola aŭdi, panjo, kion vi dirus, se mi farus Helgan via bofilino,” diris Gudmund. Sinjorino Ingeborg levis la kapon kaj diris kun firma voĉo: ”Mi akceptos kun plezuro
 
 
 kiun ajn bofilinon, se mi scias, ke ŝi vin amas tiom, kiom devas ami edzino edzon.”
@@ -1057,9 +820,6 @@ Gudmund leviĝis, kaj ili eniris la malgrandan ĉambron. Li forŝovis seĝon al 
 Sed mi sopiris al vi la tutan tagon kaj deziris, ke fariĝu ĉio kiel antaŭe. Kaj kia ajn estos la fino, mi volas diri, ke mi ĝojas, ke vi estas senkulpa.”
 
 
-LA JUNULINO EL STORMYR
-
-
 ”Kiu donis al vi tiun konsilon?” demandis Gudmund. —
 
 ”Tion mi ne rajtas diri.” — ”Mi dubas, ke iu scias pri tio. Paĉjo ĵus alvenis de la juĝa persekutisto. Li sendis telegramon al la urbo. Kaj jen respondo, ke la veran murdiston oni jam trovis.”
@@ -1074,9 +834,7 @@ Kiam Gudmund diris tion, Hildur sentis, ke la kruroj tremas sub ŝi, kaj ŝi sid
 
 ŝi levis la kapon. Estis malfacile diri, kio okupis ŝin. Sed en tiu momento ŝi sentis ke, kvankam filino de riĉa kamparano, kun sia tuta beleco kaj ĉiuj havaĵoj, ŝi estas nenio al Gudmund. Fiera ŝi estis kaj ŝi ne volis forlasi lin sen montri al li, ke apud ŝiaj eksteraĵoj ŝi havas per si mem iom da valoro. ”Mi volas, Gudmund, ke vi diru al mi, ĉu eble vi amas Helgan el Stormyr.” Gudmund daŭre silentis. ”ĉar se vi arnas Helgan, mi scias, ke ŝi amas vin. ŝi venis al mi kaj montris, kion mi devas fari, por ke ĉio estu bona inter ni. ŝi sciis, ke vi estas senkulpa, sed ŝi ne diris tion al vi, sed unue sciigis min.” —
 
-Gudmund fikse rigardis ŝin en la okulojn. — ”ĉu vi opinias, 66
-
-LA JUNULINO EL STORMYR
+Gudmund fikse rigardis ŝin en la okulojn. — ”ĉu vi opinias,
 
 
 ke tio montras, ke ŝin regas granda amo al mi?” — ”Pri tio vi povas esti certa, Gudmund. Tion mi povas atesti. Neniu en la mondo povas ami vin pli ol ŝi.”
@@ -1092,9 +850,7 @@ Dum ŝi sidis tie, servisto alvenis el Närlunda. Li haltis, vidante ŝin. ”Ce
 
 Tiam la viro ekiris, sed Helga restis ĉe la vojrando kiel an-taŭe. Nu, ili do jam scias pri tio! Do ŝi ne bezonos iri al Närlunda por rakonti tion.
 
-ŝi sentis sin neordinare forlasita. Antaŭe dum la tago ŝi spertis tiom da fervoro. ŝi tute ne pensis pri si mem, nur pri tio, ke la geedziĝo de Gudmund kaj Hildur realiĝu. Sed nun ŝi sentis, kiel forlasita ŝi estas. Kaj estas dolorige povi fari nenion por tiuj, kiujn ni amas. Nun Gudmund ŝin ne bezonas, 67
-
-LA JUNULINO EL STORMYR
+ŝi sentis sin neordinare forlasita. Antaŭe dum la tago ŝi spertis tiom da fervoro. ŝi tute ne pensis pri si mem, nur pri tio, ke la geedziĝo de Gudmund kaj Hildur realiĝu. Sed nun ŝi sentis, kiel forlasita ŝi estas. Kaj estas dolorige povi fari nenion por tiuj, kiujn ni amas. Nun Gudmund ŝin ne bezonas,
 
 
 kaj ŝian propran infanon ŝia patrino faris sia. ∑i apenaŭ per-mesas al ŝi mem rigardi ĝin.
@@ -1110,9 +866,6 @@ Gudmund restis sur la vojo antaŭ Helga. ”Mi ĝojas, ke vi sidas ĉi tie, Helg
 ĝis Stormyr por trovi vin.”
 
 Tion li diris rapide, preskaŭ maldolĉe, kaj samtempe prenis ŝian manon per firma preno. Kaj ŝi vidis en liaj okuloj, ke nun li scias pri ŝi ĉion. Nun ŝi ne plu povos forkuri.
-
-
-LA JUNULINO EL STORMYR
 
 
 www.omnibus.se/

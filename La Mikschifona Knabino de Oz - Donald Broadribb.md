@@ -113,61 +113,61 @@ LISTO DE ĈAPITROJ
 
 PAĜO
 
-1—Oĵo kaj Onĉjo Nonĉjo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 19
+1—Oĵo kaj Onĉjo Nonĉjo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-2—La Kurbiĝinta Magiisto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 23
+2—La Kurbiĝinta Magiisto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-3—La Miksĉifona Knabino . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 35
+3—La Miksĉifona Knabino . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-4—La Vitra Kato . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 47
+4—La Vitra Kato . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-5—Terura Akcidento. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 55
+5—Terura Akcidento. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-6—La veturo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 67
+6—La veturo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-7—La petolema fonografo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 83
+7—La petolema fonografo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-8—La Malsaĝa Strigo kaj la Saĝa Azeno . . . . . . . . . . . . . . . . . . . . . 91
+8—La Malsaĝa Strigo kaj la Saĝa Azeno . . . . . . . . . . . . . . . . . . . . .
 
-9—Ili renkontas la Vuzon. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 99
+9—Ili renkontas la Vuzon. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-10—Vilulo venas savi. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 115
+10—Vilulo venas savi. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-11—Bona amiko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 127
+11—Bona amiko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-12—La giganta histriko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 147
+12—La giganta histriko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-13—Ĉifoneroj kaj la Birdotimigilo . . . . . . . . . . . . . . . . . . . . . . . . . . . 159
+13—Ĉifoneroj kaj la Birdotimigilo . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-14—Oĵo malobeas leĝon. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 179
+14—Oĵo malobeas leĝon. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-15—Enkarcerigita de Ozma . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 191
+15—Enkarcerigita de Ozma . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-16—Princino Doroteo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 203
+16—Princino Doroteo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-17—Ozma kaj ŝiaj amikoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 215
+17—Ozma kaj ŝiaj amikoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-18—Ozma pardonas Oĵon . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 223
+18—Ozma pardonas Oĵon . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-19—Problemoj pro la Totenhotoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . 235
+19—Problemoj pro la Totenhotoj . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-20—Jup kapita . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 255
+20—Jup kapita . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-21—Sult Saltulo la ĉampiono . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 267
+21—Sult Saltulo la ĉampiono . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-22—La Ŝercemaj Kornuloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 275
+22—La Ŝercemaj Kornuloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-23—Oni deklaras pacon . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 287
+23—Oni deklaras pacon . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-24—Oĵo trovas la obskuran puton . . . . . . . . . . . . . . . . . . . . . . . . . . . 299
+24—Oĵo trovas la obskuran puton . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-25—Ili subaĉetas la pigran Kvelulon . . . . . . . . . . . . . . . . . . . . . . . . . 303
+25—Ili subaĉetas la pigran Kvelulon . . . . . . . . . . . . . . . . . . . . . . . . .
 
-26—La trompema rivero. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 311
+26—La trompema rivero. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-27—La Stana Lignohakisto obĵetas . . . . . . . . . . . . . . . . . . . . . . . . . . 323
+27—La Stana Lignohakisto obĵetas . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-28—La Mirinda Sorĉisto de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . . 335
+28—La Mirinda Sorĉisto de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 “KIE estas la butero, Onĉjo
@@ -2717,9 +2717,7 @@ la Magiisto embarasiĝos pro tio; estas kontraŭleĝe kiam iu
 
 magias escepte de Glinda la Bona kaj la reĝa Sorĉisto de
 
-Oz. Se vi homoj—aŭ aĵoj—aŭ okulvitroj—aŭ frenez-
-
-kovriloj—aŭ kio ajn vi estas, proksimiĝos al la Smeralda
+Oz. Se vi homoj—aŭ aĵoj—aŭ okulvitroj—aŭ frenezkovriloj—aŭ kio ajn vi estas, proksimiĝos al la Smeralda
 
 Urbo, oni arestos vin.”
 
@@ -7494,9 +7492,7 @@ estas juste juĝata de
 
 n i a R e g a n t o k a j
 
-havas ĉian oportun-
-
-o n p r u v i s i a n
+havas ĉian oportuno n p r u v i s i a n
 
 senkulpecon. Sed
 
@@ -7522,9 +7518,7 @@ i n k r u s t i t a j
 
 p e r
 
-rubioj kaj diamant-
-
-oj, kaj ilin li ligis
+rubioj kaj diamantoj, kaj ilin li ligis
 
 sur la pojnojn de
 
@@ -11656,9 +11650,7 @@ Hornulan viron kiun la Ĉefo konigis kiel Diksin.
 
 “Kio nova, Ĉefo?” demandis Diksi, palpebrumante
 
-deknaŭfoje al la dek naŭ knabinoj, kiuj dece mal-
-
-suprenrigardis ĉar rigardas ilin la patro.
+deknaŭfoje al la dek naŭ knabinoj, kiuj dece malsuprenrigardis ĉar rigardas ilin la patro.
 
 La Ĉefo diris al la viro ke lian ŝercon ne komprenis la
 
@@ -13086,9 +13078,7 @@ Oĵo.
 
 Ĉapitro Dudek Sep
 
-senzorga estis mia prizorgisto kiam li oleis min hodiaŭ-
-
-matene! Mi timas ke mi devos riproĉi tiun ulon, ĉar ne
+senzorga estis mia prizorgisto kiam li oleis min hodiaŭmatene! Mi timas ke mi devos riproĉi tiun ulon, ĉar ne
 
 konvenas ke mi gutigu oleon kie ajn mi estas.”
 

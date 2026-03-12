@@ -1,4 +1,4 @@
-FRAŭLINO EL ORO
+FRAŬLINO EL ORO
 
 *e* LIBRO
 
@@ -13,13 +13,12 @@ el oro
 
 ## **1**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
 *Kálmán Mikszáth*
 
-**FRAŭLINO EL ORO**
+**FRAŬLINO EL ORO**
 
 *Tradukis el la hungara* Jozefo Horvath *e* LIBRO
 
@@ -31,7 +30,6 @@ FRAŭLINO EL ORO
 
 ## **2**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -52,7 +50,6 @@ La frosta Szitnya**2**, ”amatino de nuboj”, perforte tiras al siaj sekiĝint
 
 ## **3**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -79,7 +76,6 @@ Kaj fakte: diablido adoleskanta sidis kaŭre korbofun-de, kiu jam pipfumadis, ka
 
 ## **4**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -102,7 +98,6 @@ Bohuŝka turnas sin je la afabla, agrabla kaj konata voĉo, kaj saltante kuras r
 
 ## **5**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -133,7 +128,6 @@ nya.
 
 ## **6**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -150,7 +144,6 @@ Kristinjo senvorte rigardis malsupren en la valfaŭkon, sur kies fundo kaj flank
 
 ## **7**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -171,19 +164,14 @@ ciro.
 
 ## **8**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
-sento regas, kies naturo, inklinoj kaj pensmaniero kun-fluas en certan samformecon, kaj kiuj tiel longe kunlaŭ-
-
-dadas, kunobservadas Kristinjon de sia tria similulo, anima-korpa amiko, kemiprofesoro Stefano Csemez, ĝis ili enamiĝas al ŝi ĝis la oreloj.
+sento regas, kies naturo, inklinoj kaj pensmaniero kun-fluas en certan samformecon, kaj kiuj tiel longe kunlaŭdadas, kunobservadas Kristinjon de sia tria similulo, anima-korpa amiko, kemiprofesoro Stefano Csemez, ĝis ili enamiĝas al ŝi ĝis la oreloj.
 
 Almenaŭ mi konsideras tre natura, ke tio devis okazi tiel kaj ne alimaniere. Samtempe ekbrilis en ilia koro la
 
-”somero de maljunuloj” kaj la sama floro enradikiĝis en la sekaj grundoj. Se io min mirigas, estas nur, ke sinjoro Stefano Csemez mem ne enamiĝis al iu, ja ili estis unu animo en tri korpoj, kaj ekde la mondokreo neniam esti-
-
-ĝis inter ili ajna pridisputinda demando aŭ diferenco de opinioj, se ne koncerne la ĝuon de flartabako.
+”somero de maljunuloj” kaj la sama floro enradikiĝis en la sekaj grundoj. Se io min mirigas, estas nur, ke sinjoro Stefano Csemez mem ne enamiĝis al iu, ja ili estis unu animo en tri korpoj, kaj ekde la mondokreo neniam estiĝis inter ili ajna pridisputinda demando aŭ diferenco de opinioj, se ne koncerne la ĝuon de flartabako.
 
 ĉi-kampe la tri sinjoroj estis memstaraj potenculoj.
 
@@ -193,7 +181,6 @@ nenatura kaj individuaĉa … individuaĉa kaj malbona ku-timo li lasu fali tiun
 
 Kaj zorge enŝtopataj. La nocio de truo ja mem sugestas **9**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -205,7 +192,6 @@ La opinion de sia meritplena kolego konfesas ankaŭ sinjoro Csemez, sed kun la e
 
 Krom ĉi detale konturitan diferencon de opinioj nur profundiĝema esploranto kapablas trovi iomete diferen-cajn ecojn inter ili, ankaŭ kies figuroj, vizaĝoj preskaŭ samformiĝis kun la tempopaso; eĉ la haroj, ekde kiam kavaliro Luppán portas perukon. Malgraŭ tio ni ne konsideras afero superflua, lasi fali kelkajn vortojn por la pli funda konigo de ĉi meritplenaj viroj, prezentante pli de-10
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -231,7 +217,6 @@ Kontraŭe, kiom pli vastan kampon malfermas por kontemplado la spirita mondo de 
 
 Sinjoro instruisto Csutkás estas fanatika pedagogo, vera Pestalozzi, kiu elirante el plej modernaj principoj fundamentas siajn sukcesojn instruadajn per la amo de siaj disĉiploj, trovas en ĝi sian rekompencon kaj ĝistede fanfaronadas per ĝi. Li parolas malmulte, en silenta en-11
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -250,7 +235,6 @@ Aŭdu, gesinjoroj, tiu de Petöfi! ĉu iu edukus pli valo-ran homon, ol lin por 
 
 ## **12**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -267,7 +251,6 @@ Sinjoro Csutkás ne estas homo fermanta sian buŝon pri tiaj aferoj, kaj ne tema
 
 ## **13**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -288,7 +271,6 @@ Ni vidu ekzemple la kazon de carino Katarina …
 
 ## **14**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -305,7 +287,6 @@ Lia vizaĝo animiĝas; lia voĉo fariĝas milda, supla, kiam kun plej sinceraj s
 
 ## **15**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -321,7 +302,6 @@ Li estas saĝa, brava kaj honesta homo, kun ĉiuj karak-teraj trajtoj de fraŭle
 
 Pluraj homoj rekondukas la aferon al tio, ke kavaliro Luppán iam estis enamiĝinta al juna, bela knabino, kiun ŝiaj gepatroj ne volis edzinigi al li. La knabino malgajiĝis proe tiom, ke ŝi glutis venenon, kaj mortis en teruraj su-feroj. Al la trosentema humoro de sinjoro Luppán (vere trosentema deklaras lin la Selmecanoj) forte efikis ĉi tiu **16**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -334,7 +314,6 @@ Eble iomas vero pri tio, sed ni havas finfine nenion komunan kun tio, kaj laŭpr
 
 ## **17**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -346,7 +325,6 @@ ktp. Tio estis lia malforta flanko, sed vidante liajn mul-tajn bonajn ecojn, oni
 
 Do ili fantoludis, nome en la ĝardena laŭbo. La vitoj, entruditaj en la Selmecan grundon, pruviĝis lauŝajne maldika korpo sur la latoripoj, kaj la suno nemalhelpa-te trabrilis sur la tri kalviĝantajn vertojn, eltordante terurajn ŝviterojn el la bravaj sinjoraj personoj. Feliĉe, la bela Kristinjo — laŭ supera komisio — regaladis ilin per refreŝiga biero, kiu tenis ilin daŭre viglaj kaj atentaj en **18**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -356,9 +334,7 @@ Kontraŭe, kavaliro Luppán kaj sinjoro instruisto Csutkás estas hodiaŭ veraj 
 
 —Horribile dictu**10** … Hodiaŭ vi estas tre distrataj! Hodiaŭ vi estas, estimataj sinjoroj, vera orminejo. Mi jam gajnas la kvinan forinton. Noch a’ Glas, Kristin! **11**
 
-Sekve de ĉi ”ora” deziro la kara infano stariĝis, kaj ver-
-
-ŝis bieron el unu de la kruĉoj, entombigitaj en la glacia sino de sitelo, starigita sub rozarbeto, unue al la patro, poste al la ceteraj, kiuj kun dankoplenaj okuloj ĝin akceptis el la blankaj manetoj.
+Sekve de ĉi ”ora” deziro la kara infano stariĝis, kaj verŝis bieron el unu de la kruĉoj, entombigitaj en la glacia sino de sitelo, starigita sub rozarbeto, unue al la patro, poste al la ceteraj, kiuj kun dankoplenaj okuloj ĝin akceptis el la blankaj manetoj.
 
 Sed ĉi tiuj dankoplenaj rigardoj havis tre suspektin-dan aspekton. Iom kompetenta psikologo povus mal-kovri en ili diversajn kombinaĵojn: amsopiron, deziron, esperon kaj kontentecon. Ja ili havis kaŭzon kontenti pri la elektito de sia koro. ŝi estas tiel belega, kvazaŭ ŝi estus ne de patrino, sed naskita de la libera, kaprica fantazio 10 Horribile dictu: Eĉ diri terure *(latine)*.
 
@@ -367,7 +343,6 @@ Sed ĉi tiuj dankoplenaj rigardoj havis tre suspektin-dan aspekton. Iom kompeten
 
 ## **19**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -387,7 +362,6 @@ La homoj estas malsaĝaj, kaj opinias oro la koton. La koton, la homon. Kaj deni
 
 13 denique: finfine * (latine)* **20**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -409,7 +383,6 @@ Sinjoro Csemez frapite streĉis la okulojn al sia meritplena kolego.
 
 Je ĉi tiu originala deklaro sinjoro Csutkás balancis la kapon, poste eltiris sian buntan nazotukon el la poŝo, skuante ĝin kaŭze de singardemo, por ke se hazarde pa-priko estus surŝutita de buboj lernejaj (ofta kazo, se li forgese lasas ĝin sur la katedra tablo), — li ĝin elskuu, kiom eblas; kaj post kiam li spertis, ke ĝi estas libera ĉi **21**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -438,7 +411,6 @@ La maljuna orfaristo restis ĉe sia starpunkto.
 
 ## **22**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -450,9 +422,7 @@ Csutkás subite malfermis siajn okulojn kaj ne ridetis.
 
 —Estas malfacile ordoni al la koro. La koro havas rajtojn, Stevo. Vi ne konas la koron. La koro estas delikata aĵo, Stevo! i facile rompiĝas!
 
-Sinjoro Csemez oscedis kaj diris kategorie, ke rompita vitro faras pli da bruo, ol rompita koro … Domaĝe mal-
-
-ŝpari la tempon per tiaj senutilaj babiloj; iom kartludi valorus pli; li donos Kristinjon al neniu, se ne por tiel granda orpeco, kiom ŝi pezas. He-he-he! Por tiel granda orpeco, kiom Kristinjo pezas.
+Sinjoro Csemez oscedis kaj diris kategorie, ke rompita vitro faras pli da bruo, ol rompita koro … Domaĝe malŝpari la tempon per tiaj senutilaj babiloj; iom kartludi valorus pli; li donos Kristinjon al neniu, se ne por tiel granda orpeco, kiom ŝi pezas. He-he-he! Por tiel granda orpeco, kiom Kristinjo pezas.
 
 Sinjoro Csemez ruzete kuntiris unu okulon, kaj dum ĉiuj liaj trajtoj tordiĝis en unusolan grimacon, espriman-tan ruzecon, li eligis ankaŭ la langon, ekklakante per ĝi en speciala maniero.
 
@@ -463,7 +433,6 @@ Tiom kaj ne pli interparoliĝis pli frue koncerne Kristinjon inter sinjoroj Csut
 
 ## **23**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -490,7 +459,6 @@ Nu, se ne sufiĉas, oni devas klopodi, ke sufiĉu! Mi do diras, ke mi bezonas ko
 
 ## **24**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -517,7 +485,6 @@ Emociite li viŝadis la okulojn per sia poŝtuko, sur kiu pompis la blazono de l
 
 ## **25**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -542,7 +509,6 @@ Kristina denove paliĝas, ektremas, inerte mallevas la manojn, ŝiaj kruroj malf
 
 ## **26**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -577,7 +543,6 @@ Nikolao tremis, kiel poplo.
 
 ## **27**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -585,9 +550,7 @@ FRAŭLINO EL ORO
 
 —ĉu vi demandas, vi petas min?
 
-—Jes, — ŝi ripetis plende, kaŝante sian belegan viza-
-
-ĝon inter la manoj. — Vi estas pli bona, ol la ceteraj, vi estas pli bela, ol la ceteraj, vi pli konvenas al mi, ol la ceteraj. Amu min do, jes amu min kaj mi …
+—Jes, — ŝi ripetis plende, kaŝante sian belegan vizaĝon inter la manoj. — Vi estas pli bona, ol la ceteraj, vi estas pli bela, ol la ceteraj, vi pli konvenas al mi, ol la ceteraj. Amu min do, jes amu min kaj mi …
 
 —Kaj vi, Kristina?
 
@@ -606,7 +569,6 @@ Nikolao rigardis sufere tiun ruliĝantan larmoguton, kaj pensis pri tio, se li n
 
 ## **28**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -614,15 +576,12 @@ Tria ĉapitro
 
 *En kiu estas rakontataj eventoj, kiu ne povis trovi lokon* *en la antaŭa ĉapitro*
 
-Nikolao Mirkowszki estas unu el tiuj homoj, pri kiuj virinoj opinias: ili estas interesaj. Li havis grandajn, parolantajn okulojn bluajn, abundan hararon blondan, sveltan staturon kaj lertajn manierojn. Nur antaŭ duonjaro li hejmenvenis, por kompletigi siajn ju-rajn studojn hejmurbe en la minista akademio, kaj se la bonŝanco lin favoros, li ekvojos en la vivon kun la espero, fariĝi iam minafera konsilisto. Li povos tion atingi; li havas sufiĉan talenton por tio; krome li povas ankaŭ adaptiĝi al la vivo. Kiel dirite, li estas nur ekde duonjaro en Selmec kaj jam arbitranto ne nur en junularaj ren-kontejoj, en la ”Ora Meĉujo” kaj ĉe la ”Vigla Martelo”, sed ankaŭ en virinaj salonoj, ĉar li ne ĉiam tiel mallertas, kiel nun, kiam li staras muta, rigidiĝinta, enradiki-
-
-ĝinta en la tero antaŭ Kristina, kaptante kontraŭvole per la manoj al la folioj de robiniujo super la kapo, kiujn li kvazaŭ volus demandi, dum li ilin fingrofrotas distrite:
+Nikolao Mirkowszki estas unu el tiuj homoj, pri kiuj virinoj opinias: ili estas interesaj. Li havis grandajn, parolantajn okulojn bluajn, abundan hararon blondan, sveltan staturon kaj lertajn manierojn. Nur antaŭ duonjaro li hejmenvenis, por kompletigi siajn ju-rajn studojn hejmurbe en la minista akademio, kaj se la bonŝanco lin favoros, li ekvojos en la vivon kun la espero, fariĝi iam minafera konsilisto. Li povos tion atingi; li havas sufiĉan talenton por tio; krome li povas ankaŭ adaptiĝi al la vivo. Kiel dirite, li estas nur ekde duonjaro en Selmec kaj jam arbitranto ne nur en junularaj ren-kontejoj, en la ”Ora Meĉujo” kaj ĉe la ”Vigla Martelo”, sed ankaŭ en virinaj salonoj, ĉar li ne ĉiam tiel mallertas, kiel nun, kiam li staras muta, rigidiĝinta, enradikiĝinta en la tero antaŭ Kristina, kaptante kontraŭvole per la manoj al la folioj de robiniujo super la kapo, kiujn li kvazaŭ volus demandi, dum li ilin fingrofrotas distrite:
 
 ”ĉu ŝi min amas? … Ne amas …”
 
 Neniel li povas kompreni, ke se Kristina lin amas, kial ŝi ploris, kial ŝi elprenis tiel rapide siajn manojn, dum li **29**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -645,13 +604,10 @@ Senforte ŝi mallevas la kapon kaj manojn, kiel mortan-ta birdo siajn flugilojn,
 
 ## **30**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
-Kaj Nikolao ne havas eĉ unu vorton responde, konso-le: obtuza apatio lin ekregas, kaj subpremas la naski-
-
-ĝontan penson en ties ĝermo. ĉi neatendita evento donis tiel fortan puŝon al lia koro, ke simile al trosvingata pendolo, ĝi kapricas inter ekstremoj. Kaj la ekstremoj buntas per specifaj bildoj, en mil renoviĝadantaj varian-toj, laŭ tio, ke li kredas esprimiĝi penton, heziton, indi-ferenton, senesperiĝon, malĝojon aŭ amon en la okuloj, voĉo, gestoj de Kristina.
+Kaj Nikolao ne havas eĉ unu vorton responde, konso-le: obtuza apatio lin ekregas, kaj subpremas la naskiĝontan penson en ties ĝermo. ĉi neatendita evento donis tiel fortan puŝon al lia koro, ke simile al trosvingata pendolo, ĝi kapricas inter ekstremoj. Kaj la ekstremoj buntas per specifaj bildoj, en mil renoviĝadantaj varian-toj, laŭ tio, ke li kredas esprimiĝi penton, heziton, indi-ferenton, senesperiĝon, malĝojon aŭ amon en la okuloj, voĉo, gestoj de Kristina.
 
 Fine Bohuŝka reakiras unua sian spiritan ĉeeston, kaj diras kun la kutima vigleco:
 
@@ -672,7 +628,6 @@ Kaj mirante ŝi rigardis al Nikolao per siaj grandaj, parolantaj okuloj.
 
 ## **31**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -692,7 +647,6 @@ La hezitema rigardo de Kristina alprenis demandan karakteron.
 
 Kun kata flatemo ŝi karesetis la mentoneton de Kristina, ambaŭmane levis al si ŝian pendantan kapon, kaj per afabla, persvada voĉo diris: **32**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -719,7 +673,6 @@ Nikolao tuj saltleviĝis, la larmoj sekiĝis el liaj okuloj, lia vizaĝo fariĝi
 
 ## **33**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -740,7 +693,6 @@ Kristina provis rideti, mordis en la lipojn per siaj blankaj dentetoj, por subpr
 
 ## **34**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -763,7 +715,6 @@ Nikolao nun pli preme tenis ŝian brakon.
 
 ## **35**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -773,9 +724,7 @@ Kun timema rigardo ŝi turnis sin al la ĝardeno.
 
 Kaj vere, sur la vojeto, borderita de riboj, la tri sinjoroj paŝis al ili.
 
-Kavaliro Luppán atingis unua la gejunulojn. Lia viza-
-
-ĝo brilis de ĉiela-miela afableco.
+Kavaliro Luppán atingis unua la gejunulojn. Lia vizaĝo brilis de ĉiela-miela afableco.
 
 —Jen, jen, — li alvokis joviale, — vi certe ploris, Kristina! Kiu vin plorigis? Aha! Csutkás. Nun mi jam memoras … Csutkás. Damnita maljuna fripono … Sed ĉit, jen li venas … Li povus aŭdi …
 
@@ -783,9 +732,7 @@ Sinjoro Luppán retrorigardis esplore.
 
 —Jes, jes, damnita maljuna fripono, kiu krome estas ankaŭ ridinda. Jes, jes, mi kuraĝas aserti antaŭ la tuta mondo …
 
-Kun heroa gesto li returnis sin por ĉirkaŭrigardi, ĉu Csutkás ankoraŭ malproksimas, poste li daŭrigis mallaŭ-
-
-te:
+Kun heroa gesto li returnis sin por ĉirkaŭrigardi, ĉu Csutkás ankoraŭ malproksimas, poste li daŭrigis mallaŭte:
 
 —Sed ĉar li estas tre galoplena homo … mi ne volus, ke tio venu en liajn orelojn, la troa galo malutilas al lia sano. Vere, fraŭlino, vi faris bone, ke vi forkuris. Mi pri-jesas, Kristina mia! Per nenio vi estus povinta min dis-tingi kontraŭ la ”maljunulo”. Tio estis konfeso, Kristina.
 
@@ -794,7 +741,6 @@ Delikata, sed komprenebla; mi ĝmprenis !
 
 ## **36**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -816,7 +762,6 @@ Nikolao metis maltrankvile unu piedon sur la alian, kaj se la petega rigardo de 
 
 Poste vidu, mi estas tute por tio, ke oni min amu. ĉiuj miaj fibroj estas por tio. Mi povas mnsideri provi-ta, sperta individuo, ne ia adoleskulo, ĉe kiu ankoraŭ **37**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -839,7 +784,6 @@ La emociiĝo, kiel kutime en tiaj kazoj, malhelpis lin por momento en la parolad
 
 ## **38**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -858,13 +802,10 @@ En ĉi tiu momento, kiam sinjoro Luppán jam tute regis la situacion, neatendite
 
 ## **39**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
-Sinjoro Csutkás kapbalancis jese, sed Nikolao antaŭ-
-
-enpaŝis, kaj levinte fiere sian belan kapon, diris per de-cida, sonora voĉo:
+Sinjoro Csutkás kapbalancis jese, sed Nikolao antaŭenpaŝis, kaj levinte fiere sian belan kapon, diris per de-cida, sonora voĉo:
 
 —Permesu al mi, kara sinjoro, sed mi havas nenion kontraŭ tiu ĉi sceno; eĉ, mi mem volas en ĝi roli; ankaŭ mi amas Kristinan, ankaŭ mi petas vin por ŝia mano …
 
@@ -885,7 +826,6 @@ Kaj tiu ĉi ekterordinara evento estis la deklaro de sinjoro Csutkás.
 
 ## **40**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -909,7 +849,6 @@ Li haltis, ne scipovis trovi la logikan fadenon, por fini la frazon.
 
 15 elaboratum: propono, plano *(latine)* **41**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -923,7 +862,6 @@ Dum la biero estis servata, deprimiteco regis en la malserena ĉambro, sed la bi
 
 Sed la afero statas tiel, ke mi havas principojn; mi ne donas la filinon, mi ŝin bezonas. Vi diras, ŝi estas bela, floranta kaj kara, kaj pro tio vi ŝin volas, sed ankaŭ mi **42**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -953,7 +891,6 @@ Sinjoro Csemez rigardis la interparolinton kun indig-no, kaj respondis kun digna
 
 —Nun parolas la patro, sinjoroj, ne la bona amiko! La serioza, matura patro. Donu la ŝuldatan respekton! La ideo estas romantika, sed ne malsaĝa. Kion mi diris, tio **43**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -979,7 +916,6 @@ En la okuloj de Kristina ekbrulis mirinda fajro, kiu —
 
 simile al brulanta kandelo — ŝajnis emani longajn, mal-44
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -987,9 +923,7 @@ larĝajn flamojn al la junulo, kiu sub la influo de la bru-laj radioj mallevis s
 
 —Ho, Nikolao, — flustris la knabino feliĉe, — tio estas bela, romantika vorto de vi. Amu min tiel forte! Nun mi sentas, kvazaŭ ankaŭ mi vin amus, ankaŭ mi tiel forte vin amus.
 
-Sinjoro Csutkás disrigardis senkomprene al la ĉirkaŭ-
-
-starantoj, poste malgaje mallevis la kapon, kaj unu post la alia malfermis la trokreskintajn ungolancojn de siaj pugnigitaj manoj, kvazaŭ li nombrus aŭ klarigus ion hel-pe de tiuj al sia animo. Kelkaj stertorecaj suspiroj leviĝis de tempo al tempo el lia brusto, fine li fermis la okulojn, liaj longaj, taŭzitaj brovoj tiriĝis super ilin, kaj li ekirigis sian larĝan manon al la ventro, por trapalpi la nukso-grandajn arĝentajn butonojn sur la veŝto, kvazaŭ li di-venadus per ili: ”ĉu pastro … soldato … senfeligisto …”
+Sinjoro Csutkás disrigardis senkomprene al la ĉirkaŭstarantoj, poste malgaje mallevis la kapon, kaj unu post la alia malfermis la trokreskintajn ungolancojn de siaj pugnigitaj manoj, kvazaŭ li nombrus aŭ klarigus ion hel-pe de tiuj al sia animo. Kelkaj stertorecaj suspiroj leviĝis de tempo al tempo el lia brusto, fine li fermis la okulojn, liaj longaj, taŭzitaj brovoj tiriĝis super ilin, kaj li ekirigis sian larĝan manon al la ventro, por trapalpi la nukso-grandajn arĝentajn butonojn sur la veŝto, kvazaŭ li di-venadus per ili: ”ĉu pastro … soldato … senfeligisto …”
 
 Poste laŭte li singultis du-trifoje, kaj balbute ellasis tra la dentoj:
 
@@ -998,7 +932,6 @@ Poste laŭte li singultis du-trifoje, kaj balbute ellasis tra la dentoj:
 
 ## **45**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1010,14 +943,11 @@ Kvara ĉapitro
 
 La akademia junularo estas aparta ŝtateto, laŭmode-le de germanaj studentaj societoj; ĝi estas multrilate la karikaturo de la nuna socio, sed en certa aspekto havas apartajn trajtojn. La societa spirito forĝiĝas ĉi-kaze en veran fratecan ĉenon, kvankam ne sen miskreskaĵoj. Se studento estas arestita pro misfaro, la ceteraj pretas oferi sian vivon por lin liberigi: amase ili sieĝadas la juĝejon,
 
-ĝis ĝi cedas antaŭ la tempeste esprimiĝanta komuna volo — malfavore al la justeco; la justeco ja ne havas gor-
-
-ĝon por kriado, nek pugnojn por minacoj, nek grundon, domon aŭ ajnan nemoveblaĵon, sekve ankaŭ ne influon en Selmecbánya. Se drinkejestro aŭ kafejestro ne kredi-tas al studento, tio estas tuj kaŭzo por milito, kaj al tiu malfeliĉulo ne restos kviete inter la antikvaj muroj de la 16 tempus: origine tempo, poste prokrasto, domaĝo, ŝirmateco.
+ĝis ĝi cedas antaŭ la tempeste esprimiĝanta komuna volo — malfavore al la justeco; la justeco ja ne havas gorĝon por kriado, nek pugnojn por minacoj, nek grundon, domon aŭ ajnan nemoveblaĵon, sekve ankaŭ ne influon en Selmecbánya. Se drinkejestro aŭ kafejestro ne kredi-tas al studento, tio estas tuj kaŭzo por milito, kaj al tiu malfeliĉulo ne restos kviete inter la antikvaj muroj de la 16 tempus: origine tempo, poste prokrasto, domaĝo, ŝirmateco.
 
 
 ## **46**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1033,13 +963,10 @@ La bierreĝo estas granda sinjoro, kun preskaŭ senlima potenco, kiun reguligas 
 
 Se minista staĝanto skribus tempus sur centforinta monbileto, kaj ĝin forĵetus surstrate, eble dum pluraj tagoj neniu ĝin levus, ĉar tiu ĉi vorto signifas: ”in ne tuŝu!” Kaj ve al tiu mortemulo, kiu ĝin tamen tuŝas. Se veterano diras pri semito: ”tempus al mia semito”, ĉi tiu **47**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
-fariĝas tuj vere sankta kaj netuŝebla persono; se sur sub-
-
-ŝtofo de mantelo estas inke skribita tempus, eĉ ŝtelisto ne kuraĝas ĝin forpreni, aŭ se ĝin tamen forprenas, la sekvan tagon tremante ĝin kaŝportas returnen. Sur kio tempus ne vidiĝas, estas ”res nullius” **17**: se iu ĝin ŝtelas, havas bonŝancon, neniu rajtas ĝin serĉi.
+fariĝas tuj vere sankta kaj netuŝebla persono; se sur subŝtofo de mantelo estas inke skribita tempus, eĉ ŝtelisto ne kuraĝas ĝin forpreni, aŭ se ĝin tamen forprenas, la sekvan tagon tremante ĝin kaŝportas returnen. Sur kio tempus ne vidiĝas, estas ”res nullius” **17**: se iu ĝin ŝtelas, havas bonŝancon, neniu rajtas ĝin serĉi.
 
 Sed ĉi tio estas tre ampleksa kaj ankaŭ ne amuza afero, krome ne apartenus al nia rakonto, se mi ne devus klarigi, kial la vorto tempus estis ĉizita sur la geedza ringo, kiun Nikolao Mirkowszki tiris sekvatage sur la fingron de Kristina.
 
@@ -1062,7 +989,6 @@ Kristina demetis el siaj manoj la akvumilon, el kiu ŝi aspergis la florojn, kaj
 
 ## **48**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1091,7 +1017,6 @@ Anstataŭ forĵeti, Kristina levis ĝin al la lipoj kaj kisis.
 
 ## **49**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1116,7 +1041,6 @@ Statue ŝtoniĝinta, senmova, per fiksitaj okuloj ŝi lin postrigardis, ekpremis
 
 ## **50**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1125,7 +1049,6 @@ FRAŭLINO EL ORO
 
 ## **51**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1146,13 +1069,10 @@ Ho, Dio helpu, ke vi ĝin kunfosu! Kristina.”
 
 ## **52**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
-Pasis proksimume dek jaroj, sed respondo ne venis al la letero de Kristina. Dume la maljuna Csemez mortis, kaj la bela Kristina fariĝis floranta fraŭlino, kiu jam hon-tetas, resti sub knabina kapornamo. Sed ja ĉiuj scias, kial ŝi ne edziniĝas! En fora lando, trans maroj fosas ŝia fian-
-
-ĉo oron el sablo, kaj ĉe ĉiu halto li suspiras. Ankaŭ la popolkanto tiel eternigis:
+Pasis proksimume dek jaroj, sed respondo ne venis al la letero de Kristina. Dume la maljuna Csemez mortis, kaj la bela Kristina fariĝis floranta fraŭlino, kiu jam hon-tetas, resti sub knabina kapornamo. Sed ja ĉiuj scias, kial ŝi ne edziniĝas! En fora lando, trans maroj fosas ŝia fianĉo oron el sablo, kaj ĉe ĉiu halto li suspiras. Ankaŭ la popolkanto tiel eternigis:
 
 *Li fosas la oron, *
 
@@ -1171,7 +1091,6 @@ Sinjoro Csutkás kaj kavaliro Luppán estas ĉiutagaj gastoj ĉe Kristina; ili a
 
 ## **53**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1191,14 +1110,11 @@ En tiaj okazoj sinjoro Csutkás faras snufon laŭ sia sistemo kaj diras:
 
 Povas esti, ke mi faros tion, Luppán. Mi faros tion.
 
-Li klinas la kapon, kaj viŝas la larmojn el siaj malforti-
-
-ĝintaj okuloj.
+Li klinas la kapon, kaj viŝas la larmojn el siaj malfortiĝintaj okuloj.
 
 
 ## **54**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 
@@ -1209,7 +1125,6 @@ jes, jes, kroĉiĝas al mi.
 
 ## **55**
 
-FRAŭLINO EL ORO
 
 *e* LIBRO
 

@@ -12,17 +12,6 @@ LA BATALO DE L’VIVO
 Tradukis el germana traduko L.L. Zamenhof
 
 
-@omnibus.se
-
-·
-
-
-LA BATALO DE L’VIVO
-
-
-LA BATALO DE L’VIVO
-
-
 PARTO UNUA
 
 Antaŭ longa, longa tempo — tute egale kiam kaj kie en
@@ -33,50 +22,36 @@ somera tago, kiam la ondanta herbo estis verda. Multaj kam-paj floroj, kreitaj d
 
 La ĉielo nin gardu de vido de sceno, kiun la luno vidis sur tiu ĉi loko, kiam ĝi super la nigraj arbaraj dorsoj de la mon-tetoj sin levis sur la horizonto kaj rigardis sur la ebenaĵon, se-mitan de suprenturnitaj vizaĝoj, kiuj antaŭ nelonge sur brusto patrina ridetis al la okuloj de patrino aŭ trankvile dorme-tis.
 
-La ĉielo nin gardu de la sekretoj, kiujn la vento plena je odoro de mortintaĵo super la ebenaĵo murmuretis pri la labo-roj de tiu ĉi tago kaj pri la morto kaj la suferoj de tiu ĉi nokto. Ofte ankoraŭ la silenta luno briladis super tiu ĉi kampo de 4
-
-LA BATALO DE L’VIVO
+La ĉielo nin gardu de la sekretoj, kiujn la vento plena je odoro de mortintaĵo super la ebenaĵo murmuretis pri la labo-roj de tiu ĉi tago kaj pri la morto kaj la suferoj de tiu ĉi nokto. Ofte ankoraŭ la silenta luno briladis super tiu ĉi kampo de
 
 
 l’batalo, ofte la steloj malgaje ĝin observadis, ofte la ventoj de ĉiu flanko de l’mondo preterblovadis super ĝi, antaŭ ol la postesignoj de tiu batalo malaperis.
 
-La signoj restis ankoraŭ longan tempon, sed nur en baga-
+La signoj restis ankoraŭ longan tempon, sed nur en bagateloj, ĉar la naturo, staranta tre alte super la malbonaj pasi-oj de la homo, baldaŭ ree ricevis sian gajecon kaj ridetadis super la kulpa kampo de l’batalo tiel same, kiel antaŭe, kiam la kampo estis ankoraŭ senkulpa. La alaŭdoj kantadis alte super ĝi; la ombroj de la flugantaj nuboj kuradis ludante super la herbejoj kaj arbaroj, super la tegmentoj kaj turoj de la urbo borderita de arboj, rapidante al la brilanta malproksimaĵo, kie la tero kaj ĉielo kuniĝas kaj la vespera ĉielruĝo es-tingiĝas. Greno estis semata kaj elkreskadis kaj estis rikolta-ta; la rivereto, kiu antaŭe estis ruĝe kolorigita, turnadis radon de muelejo; viroj fajfadis post la plugilo; ŝafoj kaj bovoj pa-
 
-teloj, ĉar la naturo, staranta tre alte super la malbonaj pasi-oj de la homo, baldaŭ ree ricevis sian gajecon kaj ridetadis super la kulpa kampo de l’batalo tiel same, kiel antaŭe, kiam la kampo estis ankoraŭ senkulpa. La alaŭdoj kantadis alte super ĝi; la ombroj de la flugantaj nuboj kuradis ludante super la herbejoj kaj arbaroj, super la tegmentoj kaj turoj de la urbo borderita de arboj, rapidante al la brilanta malproksimaĵo, kie la tero kaj ĉielo kuniĝas kaj la vespera ĉielruĝo es-tingiĝas. Greno estis semata kaj elkreskadis kaj estis rikolta-ta; la rivereto, kiu antaŭe estis ruĝe kolorigita, turnadis radon de muelejo; viroj fajfadis post la plugilo; ŝafoj kaj bovoj pa-
+ŝtiĝadis sur la herbejo; knaboj kriadis sur la kampoj por for-timigi la birdojn; fumo sin levadis el la kamentuboj; dimanĉaj sonoriloj gaje sonoradis; maljunaj homoj vivadis kaj mor-tadis; la modestaj kreitaĵoj de la kampo kaj la simplaj floroj de l’arbaro floradis kaj velkadis en la kutima tempo sur la sanga kampo, kie multaj miloj da homoj antaŭe falis en la granda batalo.
 
-ŝtiĝadis sur la herbejo; knaboj kriadis sur la kampoj por for-timigi la birdojn; fumo sin levadis el la kamentuboj; diman-
-
-ĉaj sonoriloj gaje sonoradis; maljunaj homoj vivadis kaj mor-tadis; la modestaj kreitaĵoj de la kampo kaj la simplaj floroj de l’arbaro floradis kaj velkadis en la kutima tempo sur la sanga kampo, kie multaj miloj da homoj antaŭe falis en la granda batalo.
-
-Sed en la komenco oni vidadis en la semitaĵo pli mallumajn lokojn, kiujn la homoj rigardadis kun sento de teruro. Jaro post jaro ili revenadis; kaj oni sciis, ke sur tiuj ĉi fruktaj lokoj homoj kaj ĉevaloj kuŝis enterigitaj en senorda amaso kaj bonigis la teron. La kampisto, kiu tie plugadis, timadis la grandajn vermojn, kiuj loĝis tie ĉi en la tero; kaj la garboj, kiujn oni tie rikoltis, en la daŭro de multaj jaroj estis nomataj la garboj batalaj kaj metataj aparte, kaj neniam garbo batala ĉe 5
-
-LA BATALO DE L’VIVO
+Sed en la komenco oni vidadis en la semitaĵo pli mallumajn lokojn, kiujn la homoj rigardadis kun sento de teruro. Jaro post jaro ili revenadis; kaj oni sciis, ke sur tiuj ĉi fruktaj lokoj homoj kaj ĉevaloj kuŝis enterigitaj en senorda amaso kaj bonigis la teron. La kampisto, kiu tie plugadis, timadis la grandajn vermojn, kiuj loĝis tie ĉi en la tero; kaj la garboj, kiujn oni tie rikoltis, en la daŭro de multaj jaroj estis nomataj la garboj batalaj kaj metataj aparte, kaj neniam garbo batala ĉe
 
 
 la festo de rikolto venadis sur la lastan veturilon. Tra longa tempo kun ĉiu farita sulko estis trovata postesigno de la batalo. Longan tempon oni vidadis difektitajn arbojn sur la kampo kaj duone detruitajn barilojn kaj murojn sur la lokoj, kie estis mortiga mana batalado, kaj lokojn forte batitajn per piedoj, kie nenia herbeto volis kreski. Longan tempon ĉiu knabino timis ornami al si la harojn aŭ la bruston per la plej bela floro de tiu ĉi kampo de l’mortintoj; — kaj longan tempon oni kredis, ke la tie kreskantaj beroj lasas post si en la mano, kiu ilin deŝiras, neforigeblan makulon.
 
 Sed la jaroj, kvankam ili pasadis tiel rapide, kiel la nuboj de somero, per sia irado malaperigadis eĉ tiujn ĉi postesignojn de la malnova batalo kaj elviŝis la legendajn rememorojn de
 
-ĝi el la kapo de la homoj, ĝis ili akceptis la formon de fabe-loj de maljunaj virinoj kaj kun ĉiu jaro estis pli forgesataj. Kie la sovaĝaj floroj kaj beroj restis tiel longe ne deŝiritaj, tie nun staris ĝardenoj kaj domoj, kaj infanoj ludadis militon sur la herbo. La vunditaj arboj jam longe estis forbruligitaj. La mallume verdaj lokoj estis ne pli freŝaj, ol la memoro pri tiuj, kiuj kuŝis enterigitaj sub ili. ĉiam ankoraŭ la plugilo alportadis de tempo al tempo pecojn da rusta fero, sed estis malfacile rekoni, por kio ĝi servis, kaj la trovantoj meditadis kaj disputa-dis pri tio ĉi. Malnova nigra kiraso kaj kasko tiel longe pendis en la preĝejo, ke tiu sama malforta duone blinda maljunulo, kiu nun vane penadis ilin rekoni supre sur la blanka arkaĵo, jam kiel infano kun mirego ilin rigardadis. Se la mili-tistaro mortigita sur la kampo de l’batalo povus por unu momento sin levi en la formo, kiel ĉiu falis, kaj sur la loko, kie li trovis la morton, tiam fenditaj kranioj en centoj enrigardus en la pordojn kaj fenestrojn de la dometoj, aperus ĉirkaŭ la paca 6
-
-LA BATALO DE L’VIVO
+ĝi el la kapo de la homoj, ĝis ili akceptis la formon de fabe-loj de maljunaj virinoj kaj kun ĉiu jaro estis pli forgesataj. Kie la sovaĝaj floroj kaj beroj restis tiel longe ne deŝiritaj, tie nun staris ĝardenoj kaj domoj, kaj infanoj ludadis militon sur la herbo. La vunditaj arboj jam longe estis forbruligitaj. La mallume verdaj lokoj estis ne pli freŝaj, ol la memoro pri tiuj, kiuj kuŝis enterigitaj sub ili. ĉiam ankoraŭ la plugilo alportadis de tempo al tempo pecojn da rusta fero, sed estis malfacile rekoni, por kio ĝi servis, kaj la trovantoj meditadis kaj disputa-dis pri tio ĉi. Malnova nigra kiraso kaj kasko tiel longe pendis en la preĝejo, ke tiu sama malforta duone blinda maljunulo, kiu nun vane penadis ilin rekoni supre sur la blanka arkaĵo, jam kiel infano kun mirego ilin rigardadis. Se la mili-tistaro mortigita sur la kampo de l’batalo povus por unu momento sin levi en la formo, kiel ĉiu falis, kaj sur la loko, kie li trovis la morton, tiam fenditaj kranioj en centoj enrigardus en la pordojn kaj fenestrojn de la dometoj, aperus ĉirkaŭ la paca
 
 
 kameno, estus amasigitaj en la grenejoj, levus sin inter la infano en la lulilo kaj ĝia flegantino, digus la rivereton, volvus sin ĉirkaŭ la rado de l’muelejo, plenigus la ĝardenon kaj la herbejon, kaj la amason da fojno ili alte levus per mortantoj.
 
 Tiel ŝanĝita estis la loko, kie multaj miloj da homoj falis en la granda batalo.
 
-Eble nenie en la ĉirkaŭ cent jaroj la loko estis pli ŝanĝita, ol en unu malgranda frukta ĝardeno post malnova ŝtona do-mo kun longa laŭbo antaŭ la pordo. Tie en unu bela mateno de aŭtuno estis aŭdata muziko kaj sincera ridado, kaj du knabinoj gaje dancadis sur la herbo, dum kvin-ses vilaĝaj virinoj staris sur ŝtuparoj kaj deŝiradis pomojn de la arboj, sed de tempo al tempo haltadis en sia laboro kaj rigardadis al la ga-julinoj. i estis ĉarma, natura vido; bela tago, trankvila loko; kaj la du knabinoj dancadis kun kora ĝojo tute gaje kaj sen-
-
-ĝene.
+Eble nenie en la ĉirkaŭ cent jaroj la loko estis pli ŝanĝita, ol en unu malgranda frukta ĝardeno post malnova ŝtona do-mo kun longa laŭbo antaŭ la pordo. Tie en unu bela mateno de aŭtuno estis aŭdata muziko kaj sincera ridado, kaj du knabinoj gaje dancadis sur la herbo, dum kvin-ses vilaĝaj virinoj staris sur ŝtuparoj kaj deŝiradis pomojn de la arboj, sed de tempo al tempo haltadis en sia laboro kaj rigardadis al la ga-julinoj. i estis ĉarma, natura vido; bela tago, trankvila loko; kaj la du knabinoj dancadis kun kora ĝojo tute gaje kaj senĝene.
 
 Se en la mondo neniu volus brili — tio ĉi estas mia opinio, kaj mi pensas, vi konsentos kun mi — ni multe pli bone vivus kaj multe pli nin amuzadus reciproke. Estis tre agrable rigardi, kiel la du knabinoj dancadis. Ili havis neniujn rigardantojn ekster la pomŝirantaj virinoj sur la ŝtuparoj. Estis al ili tre agrable plaĉi al la virinoj, sed ili dancadis pro sia propra plezuro (almenaŭ tiel oni devis kredi); kaj estis malfacile deteni sin de admiro, tiel same kiel ili ne povis sin deteni de la dancado. Kaj kiel ili dancadis! Ne kiel dancistinoj teatraj. Tute ne!
 
 Kaj ne kiel la bonegaj lernantinoj de sinjorino Tiu-kaj-tiu.
 
-Neniel! i ne estis kvadrilo, ne menueto kaj eĉ ne simpla an-glezo. i estis nek laŭ la malnova stilo, nek laŭ la nova, nek laŭ la franca, nek laŭ la angla stilo; pli ĝuste okaze iom en la stilo hispana, kiu, kiel oni diras, estas stilo libera kaj vigla kaj 7
-
-LA BATALO DE L’VIVO
+Neniel! i ne estis kvadrilo, ne menueto kaj eĉ ne simpla an-glezo. i estis nek laŭ la malnova stilo, nek laŭ la nova, nek laŭ la franca, nek laŭ la angla stilo; pli ĝuste okaze iom en la stilo hispana, kiu, kiel oni diras, estas stilo libera kaj vigla kaj
 
 
 de la frapantaj kastanjetoj ricevas iom la karakteron de rava improvizado. Dum ili dancadis sub la fruktaj arboj kaj fluge-tadis en la ĝardeno supren kaj malsupren kaj turnadis sin reciproke en rondo, la influo de ilia aera moviĝado ŝajne dis-vastigadis sin plue en la suna gaja ĉirkaŭaĵo, kiel ĉiam pli grandiĝanta rondo en la akvo. Iliaj flugantaj haroj kaj vestoj, la elasta herbo sub iliaj piedoj, la branĉoj, kiuj sin balancadis en la vento de l’mateno, la brilantaj folioj kaj iliaj tremantaj ombroj sur la suka verda tero, la balzama venteto, kiu blovadis kaj ĝoje turnadis la malproksimajn ventajn muelilojn —
@@ -90,9 +65,6 @@ Eble tial ilia fervoro ankoraŭ pligrandiĝis, ĉar nejuna sinjoro, doktoro Jedd
 granda filozofo kaj ne tre muzikema.
 
 ”Muziko kaj dancado hodiaŭ!” diris la doktoro al si mem
-
-
-LA BATALO DE L’VIVO
 
 
 kaj mirante haltis. ”Mi pensis, ke ili timas la hodiaŭan tagon.
@@ -113,16 +85,11 @@ doktoro. ”Cetere,” li aldonis kaj rigardis en la belan vizaĝon, kiu sin tir
 
 ”Kio! Efektive, mia patro?” ekkriis lia amata filino kaj donis al li la lipojn por kiso.
 
-”Jen havu! kaj ankaŭ mian amon,” diris la doktoro kaj ki-
-
-sis ŝin; ”kaj tiu ĉi tago ofte, tre ofte revenadu — kia penso! La penso deziri oftan ripetadon en tia farso,” diris la doktoro por si mem, ”estas bona! Ha, ha, ha!”
+”Jen havu! kaj ankaŭ mian amon,” diris la doktoro kaj kisis ŝin; ”kaj tiu ĉi tago ofte, tre ofte revenadu — kia penso! La penso deziri oftan ripetadon en tia farso,” diris la doktoro por si mem, ”estas bona! Ha, ha, ha!”
 
 La doktoro Jeddler estis, kiel la leganto jam scias, granda filozofo; kaj la ĉefa tezo de lia filozofio estis rigardi la tutan mondon kiel grandegan farson, kiel ion tro sensencan, por ke prudenta homo povu serioze pensi pri ĝi. Tiu ĉi dogmo estis, en sia komenco, rezultato de la kampo de l’batalo, sur kiu li loĝis, kiel vi baldaŭ sciiĝos.
 
 ”Kiel efektive venis al vi la muziko?” demandis la doktoro.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Kompreneble tio estas de ŝtelistoj de kokoj. De kie venis la muzikantoj?”
@@ -133,9 +100,7 @@ LA BATALO DE L’VIVO
 
 ”Jes, li renkontis ilin en la vojo, kiam li matene venis. Tiuj ĉi homoj migras piede kaj tiun ĉi nokton ripozis en la urbo; kaj ĉar hodiaŭ estas la tago de naskiĝo de Marion kaj li pensis, ke li faros al ŝi plezuron, li alsendis ilin tien ĉi kun bileto, en kiu estis skribite, ke, se mi ĝin aprobas, ili alportu al ŝi se-renadon.”
 
-”Jes, jes,” diris la doktoro, ”li ĉiam demandas vian opi-
-
-nion.”
+”Jes, jes,” diris la doktoro, ”li ĉiam demandas vian opinion.”
 
 ”Kaj ĉar mia opinio sin montris favora,” gaje diris Grace kaj haltis por momento, por admiri la ĉarman kapon, kiun ŝi ornamis, ”kaj ĉar Marion estis tre gaja kaj komencis danci, ni fine dancis ambaŭ sub la muziko de Alfred, ĝis ni perdis la spiradon. Kaj la muziko plaĉis al ni tiom pli, ke Alfred ĝin sendis. Ne vere, kara Marion?”
 
@@ -145,9 +110,7 @@ nion.”
 
 ”Tion ĉi mi scias, ke estas por mi sufiĉe indiferente, ĉu oni parolas pri li aŭ ne,” diris la malgranda koketulino, disŝirante kelkajn florojn, kiujn ŝi havis en la mano, kaj disĵetante la foliojn sur la tero. ”Preskaŭ jam tedis al mi aŭdadi pri li; kaj se vi diras, ke li estas mia amanto …”
 
-”Silentu! Ne parolu tiel malŝate pri fidela koro, kiu tute 10
-
-LA BATALO DE L’VIVO
+”Silentu! Ne parolu tiel malŝate pri fidela koro, kiu tute
 
 
 apartenas al vi, Marion,” ekkriis ŝia fratino — ”eĉ ne se vi ŝercas. Estas neniu pli fidela koro en la mondo ol tiu de Alfred!”
@@ -165,9 +128,6 @@ La animo de la doktoro, dum li rigardadis kaj aŭskultadis ilin, sin okupadis en
 Sed la senpretenda memoferanta esteco de lia pli maljuna
 
 
-LA BATALO DE L’VIVO
-
-
 filino, ŝia kvieta karaktero, kiu tamen estis ligita kun tiom da konstanteco kaj freŝeco, ĉiam, en kontrasto inter la trankvila kvieta figuro de tiu ĉi kaj la brilanta beleco de lia pli juna filino, revenadis al li al la okuloj; kaj pro ŝi li bedaŭris, ke la vivo estas tiel ridinda afero.
 
 Al la doktoro neniam venis en la kapon demandi, ĉu liaj
@@ -176,9 +136,7 @@ infanoj iel penas fari el ĝi aferon seriozan. Sed por tio ĉi li estis filozofo
 
 ”Britain!” ekkriis la doktoro. ”Britain! Kie vi estas?”
 
-Malgranda homo kun eksterordinare malafabla kaj mal-
-
-kontenta vizaĝo elvenis el la domo kaj respondis tiun ĉi vo-kon iom senĝene per la vortoj: ”Nu, kio do estas?”
+Malgranda homo kun eksterordinare malafabla kaj malkontenta vizaĝo elvenis el la domo kaj respondis tiun ĉi vo-kon iom senĝene per la vortoj: ”Nu, kio do estas?”
 
 ”Kie estas la tablo matenmanĝa?” demandis la doktoro.
 
@@ -190,9 +148,7 @@ kontenta vizaĝo elvenis el la domo kaj respondis tiun ĉi vo-kon iom senĝene p
 
 ”Nu, ĉu ili nun jam finis?” diris la doktoro kaj rigardis la horloĝon. ”Antaŭen! faru rapide! Kie estas Clemency?”
 
-”Jen mi estas, sinjoro,” eksonis voĉo, venante de unu el la 12
-
-LA BATALO DE L’VIVO
+”Jen mi estas, sinjoro,” eksonis voĉo, venante de unu el la
 
 
 ŝtuparoj, sur kiu paro da mallertaj piedoj rapide deiradis malsupren. ”Ni estas pretaj. Forportu, knabinoj! En duono da minuto ĉio estos en ordo, sinjoro!”
@@ -200,9 +156,6 @@ LA BATALO DE L’VIVO
 Kun tiuj ĉi vortoj ŝi komencis vive labori kaj montris sin ĉe tio ĉi en tia stranga formo, ke ŝi meritas esti priskribita per kelkaj vortoj.
 
 ŝi havis la aĝon de ĉirkaŭ tridek jaroj kaj havis sufiĉe dik-vangan kaj afablan vizaĝon, kvankam ĝi penis havi esprimon de seriozeco, kiu donis al ĝi vidon tre ridindan. Sed la impreso de tio ĉi ankoraŭ tute malaperadis antaŭ la impreso de ŝia eksterordinare mallerta esteco. Se ni diros, ke ŝi havis du mal-dekstrajn piedojn kaj du brakojn, kiuj efektive apartenis al iu alia, kaj ke tiuj ĉi kvar membroj ŝajnis elartikigitaj kaj tute ne realmetitaj al sia ĝusta loko, tiam ni prezentos nur la veran staton en ĝia plej facila lumo. Kaj se ni diros, ke je tiu ĉi stato ŝi estis tute kontenta, prenis siajn brakojn kaj piedojn tiel, kiel ili estis, kaj metadis nenian bridon al iliaj kapricoj, tiam ni donos nur malgrandan ideon pri ŝia trankvilanimeco. ŝia kostumo konsistis el paro da grandegaj kapricaj ŝuoj, kiuj ĉiam direktadis sin alie ol ŝiaj piedoj; el bluaj ŝtrumpoj kaj el multekolora katuna vesto de la plej malbela modelo, kiun oni nur povus trovi por mono, kaj el blanka antaŭtuko. ŝi portis ĉiam mallongajn manikojn kaj havis ĉiam kontuzitajn kubutojn kaj tiel vive zorgis pri ili, ke ŝi ĉiam penadis en ĉia situacio, eĉ kie estis absolute neeble, ilin turnadi kaj ĉirkaŭrigardadi. Ordinare malgranda ĉapeto sidis ie sur ŝia kapo, kvankam oni ĝin nur malofte povis vidi sur tiu loko, kiun tiu ĉi vestaĵo pleje okupas ĉe aliaj homoj; sed de la kapo ĝis la piedoj ŝi estis modele pura kaj prezentis ian specon de mallerta puremeco.
-
-
-LA BATALO DE L’VIVO
 
 
 Tia estis la eksteraĵo kaj vestoj de Clemency Newcome,
@@ -223,9 +176,7 @@ li diris al Marion — ”mi kisas al vi la manon” — kaj tion ĉi li efektiv
 
 ”Ha, ha, ha!” ridis meditante la doktoro, tenante la manojn en la poŝoj. ”La granda farso en cent aktoj!”
 
-”Vi ja certe ne povas deziri, doktoro Jeddler,” diris sinjoro 14
-
-LA BATALO DE L’VIVO
+”Vi ja certe ne povas deziri, doktoro Jeddler,” diris sinjoro
 
 
 Snitchey kaj metis malgrandan bluan aktopaperujon al la tablo, ”ke la granda farso por tiu ĉi aktorino estu mallongigita?”
@@ -254,9 +205,7 @@ konsciadis, esprimis nun propran rimarkon. i rilatis je la sola penso, kiun li p
 
 Craggs, ”kiel ankaŭ ĉio alia. ĉio en la mondo hodiaŭ ekzistas nur por esti farata tro facila. Tio ĉi estas la malfortaĵo de nia tempo. Se la mondo estas farso (mi ne estas preta tion ĉi nei),
 
-ĝi devus esti farso tre malfacila. La vivo devus esti kiel eble pli 15
-
-LA BATALO DE L’VIVO
+ĝi devus esti farso tre malfacila. La vivo devus esti kiel eble pli
 
 
 streĉa batalo, sinjoro. Tio ĉi estas ĝia celo. Sed nun ĝi estas farata tro facila. Ni oleas la hokojn de la pordoj de l’vivo. Ili devus esti rustaj. Baldaŭ ili kutimos sin malfermadi tute mallaŭte. Kaj tamen ili devus krakadi en la hokoj, sinjoro.”
@@ -279,18 +228,11 @@ diris sinjoro Snitchey kun profunda saluto.
 
 — ĉiuj sciigistoj de nenio bona sur la granda maro de l’vivo.
 
-Mi ĝojas, ke vi ne estas la unuaj, kiujn mi vidas hodiaŭ ma-16
-
-LA BATALO DE L’VIVO
-
-
-tene: mi prenus ĝin por malbona antaŭsigno. Sed Grace es-
+Mi ĝojas, ke vi ne estas la unuaj, kiujn mi vidas hodiaŭ matene: mi prenus ĝin por malbona antaŭsigno. Sed Grace es-
 
 tis la unua — mia kara, bona Grace — tial mi eltenos kontraŭ vi ĉiuj!”
 
-”Permesu, sinjoro, mi estis la unua,” diris Clemency New-
-
-come. ”Vi scias, ŝi promenadis tie ĉi en la ĝardeno de la komenco de l’mateno. Mi estis interne en la domo.”
+”Permesu, sinjoro, mi estis la unua,” diris Clemency Newcome. ”Vi scias, ŝi promenadis tie ĉi en la ĝardeno de la komenco de l’mateno. Mi estis interne en la domo.”
 
 ”Estas vere! Clemency estis la unua,” diris Alfred.
 
@@ -309,9 +251,6 @@ Snitchey kaj Thomas’on Craggs en pli proksiman kuntuŝiĝon, ol kiel ili decid
 Eble por deturni la atenton, doktoro Jeddler rapidis aliri al la tablo de matenmanĝo, kaj ĉiuj sidiĝis al la manĝado. Grace prenis la rolon de prezidanto, sed ŝi sciis sin tiel loki, ke ŝi apartigis sian fratinon kaj Alfred’on de la resto de la societo.
 
 Snitchey kaj Craggs sidis unu kontraŭ la dua, havante inter si la bluan paperujon pro sendanĝereco; sed la doktoro havis sian ordinaran lokon kontraŭ Grace. Clemency saltadis ĉirkaŭ la tablo kiel disportantino, kaj la melankolia Britain plenumadis apud malgranda flanka tablo la oficon de distranĉisto.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Viandon?” diris Britain, proksimiĝante al sinjoro Snitchey kun distranĉilo kaj forko en la mano kaj ĵetante al li la demandon kiel ŝtonon sur la kapon.
@@ -342,12 +281,7 @@ por fari, li tamen respekte respondis:
 
 ”En tiu ĉi farso,” daŭrigis la doktoro, ”ĝi estus tiu ĉi kuntrafiĝo de la tago de l’adiaŭdiro kun duobla tago de naskiĝo, al kiu por ni kvar estas ligitaj multaj agrablaj rememoroj kaj kiu ĉiam revokados al ni en la memoron nian longan kaj amikan kunevivadon. Sed tio ne apartenas tien ĉi.”
 
-”Ho jes, doktoro Jeddler,” diris la junulo. ”i bone apar-18
-
-LA BATALO DE L’VIVO
-
-
-tenas tien ĉi; tion diras al mi mia koro tiun ĉi matenon, kaj ankaŭ la via tion al vi dirus, se vi volus ĝin aŭskulti. Mi forlasas hodiaŭ vian domon; mi ĉesas hodiaŭ esti via zorgato; ni disiĝas kiel duonaj parencoj, kiuj disligas unu ligilon, dum aliaj jam ridetas al ni en la estonteco,” — li rigardis ĉe tiuj ĉi vortoj Marion’on, kiu sidis apud li — ”ligiloj tiel riĉaj je esperoj, ke vortoj ne povas tion ĉi esprimi. Vi vidas,” li aldonis gaje, ”vi vidas, doktoro, estas ankoraŭ greno da seriozaĵo en tiu ĉi granda malsaĝa amaso da polvo. Hodiaŭ almenaŭ ni
+”Ho jes, doktoro Jeddler,” diris la junulo. ”i bone apartenas tien ĉi; tion diras al mi mia koro tiun ĉi matenon, kaj ankaŭ la via tion al vi dirus, se vi volus ĝin aŭskulti. Mi forlasas hodiaŭ vian domon; mi ĉesas hodiaŭ esti via zorgato; ni disiĝas kiel duonaj parencoj, kiuj disligas unu ligilon, dum aliaj jam ridetas al ni en la estonteco,” — li rigardis ĉe tiuj ĉi vortoj Marion’on, kiu sidis apud li — ”ligiloj tiel riĉaj je esperoj, ke vortoj ne povas tion ĉi esprimi. Vi vidas,” li aldonis gaje, ”vi vidas, doktoro, estas ankoraŭ greno da seriozaĵo en tiu ĉi granda malsaĝa amaso da polvo. Hodiaŭ almenaŭ ni
 
 konfesu, ke ekzistas ankoraŭ greneto da seriozaĵo.”
 
@@ -358,9 +292,6 @@ kiam tie ĉi havis lokon la granda batalo? Sur tiu ĉi loko, kie ni nun sidas, k
 ”Sed al mi ĉio tio ŝajnas tre serioza,” diris Alfred.
 
 ”Serioza!” ekkriis la doktoro. ”Se vi tiajn aferojn akceptas kiel seriozajn, vi devas freneziĝi, aŭ iri sur altan monton kaj fariĝi ermito.”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Kaj al tio ĉi estas jam tiel longe de tiu tempo,” diris Alfred.
@@ -389,12 +320,7 @@ La doktoro ridis kaj rigardis Alfred’on.
 
 ”Ni supozu, ke la milito estas malsaĝaĵo,” diris Snitchey.
 
-”En tio ĉi ni konsentas. Ekzemple tie ĉi ni vidas ĉarmegan lokon,” — li montris per la forko en la ĉirkaŭaĵon — ”kiu an-taŭ longa tempo estis kovrita de amasoj da soldatoj — ĉiu aparte kulpa je rompo de la paco de l’lando — kaj dezertigi-ta per fajro kaj glavo. Ha, ha, ha! La sola penso, ke homo memvole elmetas sin al morto per fajro kaj glavo! Tio ĉi estas malsaĝa, tute ridinda! Oni devas levi la ŝultrojn pro la ho-20
-
-LA BATALO DE L’VIVO
-
-
-moj, kiam oni pensas pri tio ĉi! Sed ni prenu tiun ĉi ĉarman lokon kiel ĝi estas nun. Ni prezentu al ni la leĝajn rilatojn, kiuj naskiĝas de la tera propraĵo; la heredigadon kaj donacadon de la tera propraĵo, la prodonadon kaj reelaĉetadon de la propraĵo; farmadon tempan, farmadon liberan, farmadon here-
+”En tio ĉi ni konsentas. Ekzemple tie ĉi ni vidas ĉarmegan lokon,” — li montris per la forko en la ĉirkaŭaĵon — ”kiu an-taŭ longa tempo estis kovrita de amasoj da soldatoj — ĉiu aparte kulpa je rompo de la paco de l’lando — kaj dezertigi-ta per fajro kaj glavo. Ha, ha, ha! La sola penso, ke homo memvole elmetas sin al morto per fajro kaj glavo! Tio ĉi estas malsaĝa, tute ridinda! Oni devas levi la ŝultrojn pro la homoj, kiam oni pensas pri tio ĉi! Sed ni prenu tiun ĉi ĉarman lokon kiel ĝi estas nun. Ni prezentu al ni la leĝajn rilatojn, kiuj naskiĝas de la tera propraĵo; la heredigadon kaj donacadon de la tera propraĵo, la prodonadon kaj reelaĉetadon de la propraĵo; farmadon tempan, farmadon liberan, farmadon here-
 
 dan; ni prezentu al ni,” diris sinjoro Snitchey kun tia entuziasmo, ke li ŝmacis per la lipoj, ”ni prezentu al ni la kompliki-tajn leĝojn, kiuj rilatas je la rajto de posedado kaj la pruvado de tiu ĉi rajto, kun ĉiuj reciproke kontraŭparolaj precedencoj kaj aktoj parlamentaj apartenantaj al tio ĉi; la nekalkuleblan multon da komplikitaj kaj senfinaj kancelariaj juĝaj procesoj, al kiuj tiu ĉi bela loko donas la kaŭzon: — kaj konfesu, doktoro Jeddler, ke tio ĉi estas unu oazo en la mondo! Mi esperas,” diris sinjoro Snitchey kun rigardo sur sian kompanianon, ”ke mi parolas en la nomo de la firmo, sinjoro Craggs?”
 
@@ -403,14 +329,9 @@ dan; ni prezentu al ni,” diris sinjoro Snitchey kun tia entuziasmo, ke li ŝma
 ”Mi ne volas defendi la vivon entute,” li aldonis kaj frotis al si, interne ridante, la manojn; ”ĝi estas plena je malsaĝaĵoj, plena je ankoraŭ pli malbonaj aferoj. Certigoj de fideleco, de konfido, de neprofitemeco kaj similaj. Ba, ba! ni vidas, kian indon ili havas. Sed vi ne devas ridi je la vivo; vi bezonas ludi partion, tre malfacilan partion! ĉiuj homoj ludas kontraŭ vi, kaj vi ludas kontraŭ ĉiuj homoj. Ho, ĝi estas tre interesa afero. i estas tre rafinitaj iroj sur la ŝaka tabulo. Ridi vi devas, doktoro Jeddler, nur tiam, se vi gajnas; kaj ankaŭ tiam ne tro multe. Ha, ha, ha! ne tro multe,” ripetis Snitchey, balancante la kapon kaj fermetante unu okulon, kiel se li volus aldoni: ”sed tion ĉi vi povas fari!”
 
 
-LA BATALO DE L’VIVO
-
-
 ”Nu, Alfred,” ekkriis la doktoro, ”kion vi diros al tio ĉi?”
 
-”Mi diros nur,” respondis Alfred, ”ke la plej granda kom-
-
-plezo, kiun vi povus fari al mi kaj, mi pensas, ankaŭ al vi mem, estus, se vi iam provus meti en forgeson tiun ĉi kampon de l’batalo kaj la aliajn similajn por la pli granda kampo de l’batalo de l’vivo, sur kiun la suno lumas ĉiun tagon.”
+”Mi diros nur,” respondis Alfred, ”ke la plej granda komplezo, kiun vi povus fari al mi kaj, mi pensas, ankaŭ al vi mem, estus, se vi iam provus meti en forgeson tiun ĉi kampon de l’batalo kaj la aliajn similajn por la pli granda kampo de l’batalo de l’vivo, sur kiun la suno lumas ĉiun tagon.”
 
 ”Nu, mi timas, ke tio ĉi ne farus lin pli kvieta, sinjoro Alfred,” diris Snitchey. ”La batalantoj en tiu ĉi batalo de l’vivo estas tre varmegaj kaj malamegaj unu kontraŭ la alia. Tre malagrablaj estas la hakado kaj pikado kaj la sekreta morti-gado de post la dorso kaj la dispremado kaj sufokado; per unu vorto ĝi estas efektive malbona historio.”
 
@@ -418,12 +339,7 @@ plezo, kiun vi povus fari al mi kaj, mi pensas, ankaŭ al vi mem, estus, se vi i
 
 Ambaŭ fratinoj aŭskultis kun streĉita atento.
 
-”Bone, bone!” diris la doktoro; ”mi estas tro maljuna por esti ankoraŭ konvertita, eĉ de mia amiko Snitchey tie ĉi, aŭ de mia bona fratino Martha Jeddler, kiu ankaŭ havis siajn sper-tojn, kiel ŝi diras, kaj de tiu tempo fariĝis bonfarema kaj malsevera kontraŭ ĉiuj specoj de homoj, kaj kiu tiel forte sin te-22
-
-LA BATALO DE L’VIVO
-
-
-nas je via opinio (nur kiel virino ŝi estas malpli prudenta kaj pli obstina), ke ni ne povas vivi en konsento kaj malofte nin vidas. Mi estas naskita sur tiu ĉi kampo de l’batalo. Sesdek jaroj pasis super mia kapo, kaj mi ĉiam vidadis, ke la tuta kri-stanaro, kun la Dio scias kiom da amantaj patrinoj kaj sufiĉe bonaj filinoj, kiel la miaj, tute perdadis la saĝon, kiam estis parolo pri kampo de batalo. Tiujn ĉi samajn reciprokajn kontraŭparolojn ni trovas ĉie. Oni devas aŭ ridi aŭ plori je tiuj ĉi ridindaj senkonsekvencoj; kaj mi plivolas ridi je tio ĉi.”
+”Bone, bone!” diris la doktoro; ”mi estas tro maljuna por esti ankoraŭ konvertita, eĉ de mia amiko Snitchey tie ĉi, aŭ de mia bona fratino Martha Jeddler, kiu ankaŭ havis siajn sper-tojn, kiel ŝi diras, kaj de tiu tempo fariĝis bonfarema kaj malsevera kontraŭ ĉiuj specoj de homoj, kaj kiu tiel forte sin tenas je via opinio (nur kiel virino ŝi estas malpli prudenta kaj pli obstina), ke ni ne povas vivi en konsento kaj malofte nin vidas. Mi estas naskita sur tiu ĉi kampo de l’batalo. Sesdek jaroj pasis super mia kapo, kaj mi ĉiam vidadis, ke la tuta kri-stanaro, kun la Dio scias kiom da amantaj patrinoj kaj sufiĉe bonaj filinoj, kiel la miaj, tute perdadis la saĝon, kiam estis parolo pri kampo de batalo. Tiujn ĉi samajn reciprokajn kontraŭparolojn ni trovas ĉie. Oni devas aŭ ridi aŭ plori je tiuj ĉi ridindaj senkonsekvencoj; kaj mi plivolas ridi je tio ĉi.”
 
 Britain, kiu ĉiun apartan parolanton aŭskultis kun plej
 
@@ -441,9 +357,7 @@ per unu el siaj plej amataj membroj, la kubuto, donis al li puŝon kaj kun ripro
 
 ”Mi nenion scias,” diris Britain kun senesprima rigardo kaj senmova vizaĝo. ”Mi zorgas je nenio, mi kredas nenion, mi postulas nenion.”
 
-Se tiu ĉi malgaja sinpriskribo, farita en atako de melankolio estis eĉ iom trograndigita, tamen Benjamin Britain — nomata 23
-
-LA BATALO DE L’VIVO
+Se tiu ĉi malgaja sinpriskribo, farita en atako de melankolio estis eĉ iom trograndigita, tamen Benjamin Britain — nomata
 
 
 iafoje Malgrand-Britain por diferenco de Grand-Britujo (Great Britain), kiel oni diras Juna Anglujo por per diferenco pli klare esprimi la Maljunan Anglujon — prezentis sian efektivan staton de l’animo pli bone, ol oni povus pensi. ĉar aŭs-kultante ĉiun tagon la sennombrajn parolojn, kiujn la doktoro turnadis al diversaj homoj kaj kiuj ĉiuj devis pruvi, ke eĉ lia ekzistado en la plej bona okazo estas nur eraro kaj sensencaĵo, la malfeliĉa Britain iom post iom venis en tian senfundaĵon de konfuzitaj kaj kontraŭparolaj ideoj, kiuj premis lin de ekstere kaj interne, ke la vero sur la fundo de sia puto en komparo kun Britain en la profundo de lia spirita mallumiĝo ŝajnis stari sur ebena tero. La sola, kion li klare vidis, estis tio, ke la nova elemento, kiun Snitchey kaj Craggs ordinare en-portadis en tiujn ĉi interparolojn, faradis ilin nur pli nekom-preneblaj, kaj por la doktoro ĝi ŝajnis ĉiam esti ia gajno kaj jesigo. Tial li rigardis la du advokatojn kiel kunkaŭzantojn de lia stato de l’animo kaj forte ilin malestimis.
@@ -451,9 +365,6 @@ iafoje Malgrand-Britain por diferenco de Grand-Britujo (Great Britain), kiel oni
 ”Sed kun tio ĉi ni nun havas nenion por fari, Alfred,” diris la doktoro. ”ĉesante hodiaŭ esti mia zorgato kaj forlasante nin, provizita je tio, kion povis vin instrui la latina lernejo tie ĉi kaj via lernado en Londono kaj maljuna simpla vilaĝa doktoro, kiel mi, vi nun eniras en la mondon. La unua parto de via tempo de provado, kiun difinis via mortinta patro, nun estas finita. Vi eliras nun, konforme je lia dua deziro, en la mondon en karaktero de propra sinjoro, kaj longe antaŭ ol finiĝos via trijara restado en la medicinaj lernejoj de l’eksterlando, vi nin forgesos. Dio! Vi forgesos nin en ses monatoj!”
 
 ”Se mi ĝin faros — sed vi scias ĝin pli bone — kial mi bezonas disputi kun vi?” diris Alfred ridante.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Mi scias nenion de tia speco,” respondis la doktoro. ”Kion vi pensas pri tio ĉi, Marion?”
@@ -479,9 +390,6 @@ la advokato ŝercante.
 ”La fingringon!” ripetis Snitchey. ”Kion ĝi signifas?”
 
 
-LA BATALO DE L’VIVO
-
-
 Clemency jesis per la kapo kaj diris: ”Kaj la raspilon de muskato.”
 
 ”ŝi estas freneza! Iu por la lordo kanceliero!” diris Snitchey kaj atente ŝin rigardis.
@@ -498,11 +406,7 @@ Sed nun enmiksis sin Grace kaj komprenigis al ili, ke sur ambaŭ parolataj objek
 
 Kiel Clemency, antaŭ ol ŝi respondis tiun ĉi demandon,
 
-disŝovis unu poŝon kaj rigardis en ĝian senfundan profun-
-
-don, serĉante la fingringon, kiu tie ne estis, kaj kiel ŝi tion ĉi saman faris kun la dua poŝo kaj ŝajnis trovi la fingringon profunde malsupre, kiel perlon de granda indo; kiel ŝi tiam forigis ĉiujn interkuŝantajn malhelpojn, konsistantajn el tuko de nazo, peceto da vaksa kandelo, ruĝvanga pomo, oranĝo, mo-nereto de feliĉo, seruro, tondilo en ingo, plenmano da vitraj perloj, kelkaj buloj da fadeno, kudrilujo, plena kolekto da krispigiloj de haroj kaj unu biskvito, kaj ĉiun el tiuj ĉi objektoj aparte donis teni al Britain — tio ĉi nin malmulte interesas. Ankaŭ ne interesas nin, kiel ŝi, penante kapti kaj reteni la poŝon (ĉar tiu ĉi havis strangan inklinon saltadi kaj glita-di en angulon), okupis pozicion kaj trankvile sin tenis en ĝi, 26
-
-LA BATALO DE L’VIVO
+disŝovis unu poŝon kaj rigardis en ĝian senfundan profundon, serĉante la fingringon, kiu tie ne estis, kaj kiel ŝi tion ĉi saman faris kun la dua poŝo kaj ŝajnis trovi la fingringon profunde malsupre, kiel perlon de granda indo; kiel ŝi tiam forigis ĉiujn interkuŝantajn malhelpojn, konsistantajn el tuko de nazo, peceto da vaksa kandelo, ruĝvanga pomo, oranĝo, mo-nereto de feliĉo, seruro, tondilo en ingo, plenmano da vitraj perloj, kelkaj buloj da fadeno, kudrilujo, plena kolekto da krispigiloj de haroj kaj unu biskvito, kaj ĉiun el tiuj ĉi objektoj aparte donis teni al Britain — tio ĉi nin malmulte interesas. Ankaŭ ne interesas nin, kiel ŝi, penante kapti kaj reteni la poŝon (ĉar tiu ĉi havis strangan inklinon saltadi kaj glita-di en angulon), okupis pozicion kaj trankvile sin tenis en ĝi,
 
 
 kvankam ĝi videble estis en plena kontraŭeco kun la homa
@@ -519,9 +423,7 @@ Snitchey kaj Craggs kore ridis. ”Tio ĉi estas bela!” diris Snitchey. ”Ne 
 
 ”Kaj la raspilo?” daŭrigis demandi Snitchey.
 
-”La raspilo diras,” respondis Clemency: ”Ki-on-vi-vo-las-
-
-ke-la-ho-moj-al-vi-fa-ru-ti-on-ĉi-fa-ru-an-kaŭ-al-i-li.”
+”La raspilo diras,” respondis Clemency: ”Ki-on-vi-vo-laske-la-ho-moj-al-vi-fa-ru-ti-on-ĉi-fa-ru-an-kaŭ-al-i-li.”
 
 ”Faru ion al la homoj, por ke ili nenion al vi faru, vi kredeble pensas?” diris sinjoro Snitchey.
 
@@ -529,12 +431,7 @@ ke-la-ho-moj-al-vi-fa-ru-ti-on-ĉi-fa-ru-an-kaŭ-al-i-li.”
 
 kapon. ”Mi ne estas advokato.”
 
-”Mi timas, ke se vi estus advokato,” diris sinjoro Snitchey, rapide sin turnante al la doktoro, kiel volante antaŭe fari ion kontraŭ la impreso, kiun tiu ĉi respondo eble povus elvoki, ”vi trovus, ke tio ĉi estas la regulo de vivado de la plej multaj de viaj klientoj. En tio ĉi ili estas tre seriozaj — kiel ajn malsaĝa tiu ĉi mondo entute estas — kaj metas poste la kulpon sur nin. Ni, juristoj, efektive estas ne multe pli ol speguloj, sinjoro Alfred; sed pleje konsiliĝas kun ni koleremaj kaj malpacemaj homoj, kiuj elrigardas ne tute bone; kaj estas efektive malju-27
-
-LA BATALO DE L’VIVO
-
-
-sto nin insulti, se ni montras al la homoj malafablajn viza-
+”Mi timas, ke se vi estus advokato,” diris sinjoro Snitchey, rapide sin turnante al la doktoro, kiel volante antaŭe fari ion kontraŭ la impreso, kiun tiu ĉi respondo eble povus elvoki, ”vi trovus, ke tio ĉi estas la regulo de vivado de la plej multaj de viaj klientoj. En tio ĉi ili estas tre seriozaj — kiel ajn malsaĝa tiu ĉi mondo entute estas — kaj metas poste la kulpon sur nin. Ni, juristoj, efektive estas ne multe pli ol speguloj, sinjoro Alfred; sed pleje konsiliĝas kun ni koleremaj kaj malpacemaj homoj, kiuj elrigardas ne tute bone; kaj estas efektive maljusto nin insulti, se ni montras al la homoj malafablajn viza-
 
 ĝojn. Mi pensas,” diris sinjoro Snitchey, ”mi samtempe esprimas ankaŭ la opinion de nia sinjoro Craggs?”
 
@@ -548,12 +445,7 @@ Juĝante laŭ la eksteraĵo, estis tre kredeble, ke la kaleŝo pre-terveturos an
 
 Mi ne volas rakonti, kiel lin turmentis la timo, ofte renkontata ĉe homoj de lia stato, kiuj ne kutimis uzi la plumon — la timo, ke li ne povas subskribi per sia nomo dokumenton,
 
-skribitan ne de li mem, sen elmeti sin al ia ankoraŭ ne konata danĝero aŭ devontigi sin sen scio al pagado de grandegaj su-28
-
-LA BATALO DE L’VIVO
-
-
-moj; mi ne rakontos, kiel li alproksimiĝis al la dokumentoj nur kun protestoj kaj devigita de la doktoro kaj insiste volis ilin antaŭe trarigardi antaŭ ol li subskribis (la artifika karaktero de la skribaĵo, ne parolante jam pri la juristaj esprimoj, estis por li kiel io ˛ina) kaj turni la folion, por vidi, ĉu sur la dua paĝo ne estas skribita io danĝera; kaj kiel post la subskribo de sia nomo li fariĝis tute malfeliĉa, kiel iu, kiu fordonis sian havon kaj siajn rajtojn. Mi ne povas ankaŭ rakonti detale, kiel la blua paperujo, kiu konservis lian subskribon, havis por li poste misteran altiran forton, tiel ke li ne povis ĝin forlasi.
+skribitan ne de li mem, sen elmeti sin al ia ankoraŭ ne konata danĝero aŭ devontigi sin sen scio al pagado de grandegaj sumoj; mi ne rakontos, kiel li alproksimiĝis al la dokumentoj nur kun protestoj kaj devigita de la doktoro kaj insiste volis ilin antaŭe trarigardi antaŭ ol li subskribis (la artifika karaktero de la skribaĵo, ne parolante jam pri la juristaj esprimoj, estis por li kiel io ˛ina) kaj turni la folion, por vidi, ĉu sur la dua paĝo ne estas skribita io danĝera; kaj kiel post la subskribo de sia nomo li fariĝis tute malfeliĉa, kiel iu, kiu fordonis sian havon kaj siajn rajtojn. Mi ne povas ankaŭ rakonti detale, kiel la blua paperujo, kiu konservis lian subskribon, havis por li poste misteran altiran forton, tiel ke li ne povis ĝin forlasi.
 
 Mi ne rakontos ankaŭ, kiel Clemency Newcome, tute ekster
 
@@ -566,9 +458,6 @@ si de rido ĉe la penso, ke ŝi estas persono grava, metis sin per siaj ambaŭ k
 ”ŝi estis por mi ĉiam kara gardataĵo, Alfred. Nun ŝi estas por mi duoble kara. Mi montros min inda je via konfido,”
 
 diris Grace.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Mi kredas ĝin, Grace,” respondis Alfred. ”Mi scias ĝin. Kiu povus rigardi en vian okulon kaj aŭdi vian sinceran voĉon kaj tion ĉi ne scii? Ha, bona Grace! se mi havus vian certan senton, vian trankvilan animon, kiel senzorge mi forlasus hodiaŭ tiun ĉi lokon!”
@@ -589,9 +478,7 @@ Marion staris flanke, kun okuloj mallevitaj; sed nun Alfred ame alkondukis ŝin 
 
 ”Mi diris al Grace, kara Marion,” li diris, ”ke mi donas vin sub ŝian gardon, ke mi, forirante, konfidas al ŝi vin, kiel mian plej karan juvelon. Kaj kiam mi revenos kaj vin repostulos, mia plej amata, kaj antaŭ ni staros la bela estonteco de nia edza vivo, tiam ĝi estu unu el niaj plej bonaj plezuroj meditadi, kiel ni povas fari Grace’on feliĉa, antaŭplenumadi ŝiajn dezirojn, montri al ŝi nian amon kaj dankecon kaj ion repa-gi al ŝi de la ŝuldo, kiun ŝi metis sur nin.”
 
-La pli juna fratino metis unu manon en la lian kaj per la dua ŝi tenis ĉirkaŭprenite sian fratinon. ŝi rigardadis en la trankvile gajajn okulojn de sia fratino, per rigardo, en kiu estis miksitaj amo, admiro, doloro kaj preskaŭ adoro. ŝi rigardadis la vizaĝon de la fratino, kiel se ĝi estus la vizaĝo de ĉiela 30
-
-LA BATALO DE L’VIVO
+La pli juna fratino metis unu manon en la lian kaj per la dua ŝi tenis ĉirkaŭprenite sian fratinon. ŝi rigardadis en la trankvile gajajn okulojn de sia fratino, per rigardo, en kiu estis miksitaj amo, admiro, doloro kaj preskaŭ adoro. ŝi rigardadis la vizaĝon de la fratino, kiel se ĝi estus la vizaĝo de ĉiela
 
 
 anĝelo. Kaj kun gaja, feliĉa trankvileco tiu ĉi vizaĝo rigardadis ŝin kaj ŝian amanton.
@@ -610,12 +497,7 @@ anĝelo. Kaj kun gaja, feliĉa trankvileco tiu ĉi vizaĝo rigardadis ŝin kaj �
 
 Li altiris la pli junan fratinon al sia brusto. Kiam li ŝin ree ellasis, ŝi denove alvolviĝis al Grace kaj denove ekrigardis al ŝi en la trankvilajn okulojn kun tiu sama rigardo plena je miksitaj sentoj.
 
-”Adiaŭ, Alfred!” diris la doktoro. ”Paroli pri serioza kores-31
-
-LA BATALO DE L’VIVO
-
-
-pondado aŭ serioza aldoniteco kaj ŝuldateco kaj tiel plu en tiu ĉi — ha, ha, ha! vi scias, kion mi volas diri — pri tio ĉi paroli estus kompreneble malsaĝeco. Mi povas nur diri, ke se vi kaj Marion restos ĉe tiu ĉi sama malsaĝa stato de l’animo, mi kontraŭ vi kiel bofilo, kiam la tempo venos, nenion kontraŭ-
+”Adiaŭ, Alfred!” diris la doktoro. ”Paroli pri serioza korespondado aŭ serioza aldoniteco kaj ŝuldateco kaj tiel plu en tiu ĉi — ha, ha, ha! vi scias, kion mi volas diri — pri tio ĉi paroli estus kompreneble malsaĝeco. Mi povas nur diri, ke se vi kaj Marion restos ĉe tiu ĉi sama malsaĝa stato de l’animo, mi kontraŭ vi kiel bofilo, kiam la tempo venos, nenion kontraŭ-
 
 parolos.”
 
@@ -646,9 +528,6 @@ La pli juna fratino suprenrigardis kaj turnis por sekundo la kapon. Sed kiam ŝi
 Grace! i rompas al mi la koron.”
 
 
-LA BATALO DE L’VIVO
-
-
 PARTO DUA
 
 Snitchey kaj Craggs havis belan malgrandan oficejon sur la malnova kampo de l’batalo, kie ili vivis de bela malgranda negoco kaj kondukadis multajn malgrandajn batalojn por multaj militantaj partioj. Kvankam oni efektive ne povis diri, ke tiuj ĉi bataloj estas facilaj kaj vivaj bataloj de tiraljoroj —
@@ -660,29 +539,20 @@ La oficejo de la sinjoroj Snitchey kaj Craggs kuŝis tre oportune sur la foirejo
 1 Oficiala organo grava por advokatoj, militistoj, k.t.p.
 
 
-LA BATALO DE L’VIVO
-
-
 Siajn interparolojn ili havadis en posta ĉambro sur la unua etaĝo, kun malalta malluma plafono, kvazaŭ la ĉambro mem
 
 kuntiradus la brovojn en serioza meditado super komplikitaj punktoj de leĝoj. La meblaro de la ĉambro konsistis el kelka nombro da ledaj seĝoj kun altaj apogiloj, kun grandaj rondaj najloj el flava kupro, el kiuj kelkaj elfalis aŭ eble estis eltiri-taj de la senkonscia fingro de konfuzitaj klientoj. Ekster tio oni povis vidi gravuraĵon de unu glora juĝisto, kiu siatempe per ĉiu harligo de sia granda hararo faradis sur la homojn tian impreson, ke la haroj al ili stariĝadis kiel montoj. Paperoj en multaj apartaj amasoj plenigadis la polvajn ŝrankojn, bretojn kaj tablojn, kaj la malsupra parto de la muraj tabulaĵoj estis kovrita de vicoj da fajreltenaj kestoj kun pendantaj seruroj kaj kun dike skribitaj nomoj, kiujn la atendantaj klientoj per ne-venkebla sorĉo sin sentadis devigataj silabadi de antaŭe kaj de poste, dum ili ŝajne aŭskultadis la sinjorojn Snitchey kaj Craggs, ne komprenante eĉ unu vorton de tio, kion tiuj ĉi parolis.
 
 Snitchey kaj Craggs ambaŭ estis edzigitaj. Snitchey kaj
 
-Craggs estis la plej bonaj amikoj en la mondo kaj havis reciproke efektivan konfidon; sed, kiel ofte okazas en la vivo, sinjorino Snitchey el principo rigardadis sinjoron Craggs kun okuloj suspektemaj, kaj tion ĉi saman rilate la sinjoron Snitchey faradis sinjorino Craggs. ”Kun via Snitchey,” iafoje diradis la laste dirita sinjorino al sinjoro Craggs, ”mi tute ne scias, kion vi volas kun via Snitchey. Vi fidas tro multe vian Snitchey, mi diras, kaj mi nur volus, ke vi neniam en alia maniero konvinkiĝu je tio ĉi.” Reciproke sinjorino Snitchey ripetadis al sia edzo, ke se li iam de iu estos kondukita sur mal-
-
-ĝustan vojon, ĝi estos per tiu ĉi homo, kaj ke se iu havas mal-34
-
-LA BATALO DE L’VIVO
+Craggs estis la plej bonaj amikoj en la mondo kaj havis reciproke efektivan konfidon; sed, kiel ofte okazas en la vivo, sinjorino Snitchey el principo rigardadis sinjoron Craggs kun okuloj suspektemaj, kaj tion ĉi saman rilate la sinjoron Snitchey faradis sinjorino Craggs. ”Kun via Snitchey,” iafoje diradis la laste dirita sinjorino al sinjoro Craggs, ”mi tute ne scias, kion vi volas kun via Snitchey. Vi fidas tro multe vian Snitchey, mi diras, kaj mi nur volus, ke vi neniam en alia maniero konvinkiĝu je tio ĉi.” Reciproke sinjorino Snitchey ripetadis al sia edzo, ke se li iam de iu estos kondukita sur malĝustan vojon, ĝi estos per tiu ĉi homo, kaj ke se iu havas mal-34
 
 
 vereman okulon, ĝi estas Craggs. Malgraŭ tio ĉi ili tamen entute estis tre bonaj amikoj; kaj inter sinjorino Snitchey kaj sinjorino Craggs estis malvasta ligo defenda kaj ataka kontraŭ la oficejo, kiu en iliaj okuloj estis ĉambro de suspektaĵoj kaj komuna malamiko plena je danĝeraj kaj misteraj ma˛inacioj.
 
 Kaj tamen de tiu ĉi oficejo Snitchey kaj Craggs ricevadis sian mielon. Tie ĉi ili staradis iafoje en belaj vesperoj apud la fenestro de sia ĉambro de interparoloj, kiu eliradis sur la malnovan kampon de batalo, kaj miradis (sed ordinare nur kiam la ĵurintaj juĝantoj sidadis, la amasaj okupoj faradis ilin sen-timentalaj) la malsaĝecon de la homoj, kiuj ne povas ĉiam vivi inter si en paco kaj sian disputon trankvile fini en juĝejo. Tie ĉi tagoj, semajnoj, monatoj kaj jaroj pasadis super ili, kaj sole ilia juĝa kalendaro, la iom post iom pli malgrandiĝanta nombro de la kupraj najloj en la ledaj seĝoj kaj la kreskanta amaso de la paperoj sur la tablo atestadis tion ĉi. Tie ĉi preskaŭ tri jaroj pasintaj de la tago de l’matenmanĝo en la ĝardeno, mal-multigis la najlojn kaj multigis la amasojn da papero, kiam ili en unu vespero sidis kune en negoca interparolado.
 
-Ili sidis ne solaj, sed kun unu viro de ĉirkaŭ tridek jaroj, malpene vestita kaj kun iom mallarĝa vizaĝo, sed entute bone konstruita, en bonaj vestoj kaj kun bela eksteraĵo. Li sidis sur la parada seĝo, tenante unu manon en la brusto de l’surtuto kaj la duan en la neordigitaj haroj, profundigita en malgajan meditadon. Snitchey kaj Craggs sidis apude apud skribotab-lo unu kontraŭ la dua. Unu el la fajreltenaj kestoj staris malfermita sur la tablo; unu parto de ĝia enhavo kuŝis elmetita sur la tablo, dum la resto iradis tra la mano de sinjoro Snitchey, kiu unu dokumenton post la alia tenadis apud la lumo, ĉiun paperon aparte ĉirkaŭrigardis, balancante la kapon kaj 35
-
-LA BATALO DE L’VIVO
+Ili sidis ne solaj, sed kun unu viro de ĉirkaŭ tridek jaroj, malpene vestita kaj kun iom mallarĝa vizaĝo, sed entute bone konstruita, en bonaj vestoj kaj kun bela eksteraĵo. Li sidis sur la parada seĝo, tenante unu manon en la brusto de l’surtuto kaj la duan en la neordigitaj haroj, profundigita en malgajan meditadon. Snitchey kaj Craggs sidis apude apud skribotab-lo unu kontraŭ la dua. Unu el la fajreltenaj kestoj staris malfermita sur la tablo; unu parto de ĝia enhavo kuŝis elmetita sur la tablo, dum la resto iradis tra la mano de sinjoro Snitchey, kiu unu dokumenton post la alia tenadis apud la lumo, ĉiun paperon aparte ĉirkaŭrigardis, balancante la kapon kaj
 
 
 transdonante ĝin al sinjoro Craggs, kiu ĝin ankaŭ ĉirkaŭrigardadis kaj balancadis la kapon. De tempo al tempo ili faradis paŭzon, balancadis ambaŭ la kapon kaj ekrigardadis sian en pensojn profundigitan klienton; kaj ĉar sur la kesto estis skribite ”Sinjora Moŝto Michael Warden,” ni el ĉio tio ĉi povas konkludi, ke la nomo kaj la kesto apartenis al tiu ĉi kliento kaj ke la aferoj de sinjora moŝto Michael Warden staris ne tre bone.
@@ -709,16 +579,11 @@ li komencis post minuto denove.
 
 ”En ĉiu parto de la unuigitaj reĝolandoj Grand-Britujo kaj Irlando,” respondis sinjoro Snitchey.
 
-”Sekve nur perdita filo, kiu povas plu reveni al nenia patro, ne havas porkojn por gardi kaj ne povas dividi kun ili la man-
-
-ĝon?” daŭrigis la kliento, balancante unu piedon sur la dua kaj rigardante al la planko.
+”Sekve nur perdita filo, kiu povas plu reveni al nenia patro, ne havas porkojn por gardi kaj ne povas dividi kun ili la manĝon?” daŭrigis la kliento, balancante unu piedon sur la dua kaj rigardante al la planko.
 
 Sinjoro Snitchey ektusis, kvazaŭ dezirante ne alpermesi la supozon, ke li partoprenas en ia alegoria prezen tado de rajta rilato. Sinjoro Craggs ankaŭ ektusis, kvazaŭ volante montri, ke tio ĉi estas la opinio de la firmo.
 
 ”Ruinigita en la aĝo de tridek jaroj,” diris la kliento. ”Hm!”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Ne ruinigita, sinjoro Warden,” respondis Snitchey. ” Tiel malbona la afero ankoraŭ ne estas. Vere, ke vi faris ĉion, kion vi povis, tion ĉi mi devas diri, sed vi ne estas ruinigita. Iom da sinlimigado …”
@@ -748,9 +613,6 @@ nazon, videble kun granda gusto kaj tute profundigita en la
 ”Kelkajn centojn da funtoj?” diris la kliento. ”Kaj mi fo-ruzadis milojn!”
 
 
-LA BATALO DE L’VIVO
-
-
 ”Tion ĉi,” respondis sinjoro Snitchey, garde remetante la paperojn en la feran keston, ”tion ĉi oni tute ne povas dubi.
 
 Oni tute ne povas dubi,” ripetis li malrapide, daŭrigante medite sian okupon.
@@ -759,9 +621,7 @@ La advokato tre kredeble konis bone la homon, kun kiu li
 
 havas aferon; en ĉia okazo lia seka kaj kornika maniero de agado havis bonan influon sur la ĉagrenon de la kliento kaj inklinigis lin esti malkovrita kaj pli parolema. Aŭ eble la kliento konis la karakteron de sia interparolanto kaj nur ellogis la kuraĝigajn proponojn por povi pli bone defendi unu pla-non, kiun li volis malkovri. Li levis nun iom post iom la kapon kaj rigardis siajn trankvilanimajn konsilantojn kun rideto, el kiu baldaŭ fariĝis rido.
 
-”En la vero, mia estimata amiko,” — sinjoro Snitchey mon-
-
-tris sur sian kompanianon: ”Snitchey kaj, pardonu, kaj Craggs.”
+”En la vero, mia estimata amiko,” — sinjoro Snitchey montris sur sian kompanianon: ”Snitchey kaj, pardonu, kaj Craggs.”
 
 ”Mi petas sinjoron Craggs pardoni al mi,” diris la kliento.
 
@@ -782,9 +642,6 @@ Sinjoro Craggs mezuris lin per tia sama rigardo.
 ”Ne en heredantinon.”
 
 
-LA BATALO DE L’VIVO
-
-
 ”Kaj ankaŭ ne en riĉan sinjorinon?” daŭrigis demandadi la advokato.
 
 ”Ne riĉa, kiom mi scias — esceptinte je beleco kaj virto.”
@@ -793,9 +650,7 @@ LA BATALO DE L’VIVO
 
 ”Kompreneble!”
 
-”Ne en unu el la filinoj de doktoro Jeddler?” diris Snitchey, metinte la kubutojn sur la genuojn kaj antaŭŝovinte sian viza-
-
-ĝon almenaŭ je unu ulno.
+”Ne en unu el la filinoj de doktoro Jeddler?” diris Snitchey, metinte la kubutojn sur la genuojn kaj antaŭŝovinte sian vizaĝon almenaŭ je unu ulno.
 
 ”Tamen!” respondis la kliento.
 
@@ -809,15 +664,11 @@ Ni scias tion ĉi bone.”
 
 ”Mi eble ankaŭ scias,” estis la respondo de la kliento. ”Kion tio ĉi malhelpas? Vi diras, ke vi estas spertaj homoj, kaj vi neniam aŭdis, ke virino ŝanĝis sian opinion?”
 
-”Okazis, vere, plendoj pri rompo de edziga promeso,” di-
-
-ris sinjoro Snitchey, ”kontraŭ fraŭlinoj, kiel ankaŭ kontraŭ vidvinoj, sed en la plejmulto da okazoj …”
+”Okazis, vere, plendoj pri rompo de edziga promeso,” diris sinjoro Snitchey, ”kontraŭ fraŭlinoj, kiel ankaŭ kontraŭ vidvinoj, sed en la plejmulto da okazoj …”
 
 ”Okazoj!” interrompis lin senpacience la kliento. ”Parolu al mi nenion pri okazoj. La vivo estas libro multe pli granda kaj pli riĉa je enhavo, ol viaj juraj artifikoj. Kaj ekster tio ĉu vi pensas, ke mi vane loĝis ses semajnojn en la domo de la doktoro?”
 
-”Mi pensas, sinjoro,” diris sinjoro Snitchey kaj turnis sin 39
-
-LA BATALO DE L’VIVO
+”Mi pensas, sinjoro,” diris sinjoro Snitchey kaj turnis sin
 
 
 serioze al sia kompaniano, ”mi pensas, ke el ĉiuj petolaĵoj, kiujn al sinjoro Warden faris liaj ĉevaloj — kaj ili estis sufiĉe multaj kaj sufiĉe karaj, kiel li kaj ni ambaŭ plej bone scias —
@@ -836,9 +687,7 @@ trankvile aldonis la gasto, ”kaj ne malbona, ĉar li dek aŭ dek du jarojn viv
 
 ”Efektive, sinjoro Snitchey kaj sinjoro Craggs,” interrompis ilin la kliento. ”Vi konas viajn ŝuldojn rilate viajn klientojn, kaj vi scias ankaŭ certe, ke vi ne estas necesigitaj miksi vin en simplan aman aferon, kiun mi devas konfidi al vi. Mi ne volas forkonduki la junan sinjorinon sen ŝia konsento. En la afero estas nenio kontraŭleĝa. Mi neniam estis intima amiko de sinjoro Heathfield. Je nenia perfido kontraŭ li mi faras min kulpa. Mi amas, kiel li amas, kaj se mi povos, mi intencas gajni tion, kion li volis gajni.”
 
-”Li ne povos, sinjoro Craggs,” diris Snitchey, videble tre 40
-
-LA BATALO DE L’VIVO
+”Li ne povos, sinjoro Craggs,” diris Snitchey, videble tre
 
 
 maltrankvile. ”i ne povas al li prosperi, sinjoro. ŝi estas tre alligita al sinjoro Alfred.”
@@ -847,26 +696,17 @@ maltrankvile. ”i ne povas al li prosperi, sinjoro. ŝi estas tre alligita al s
 
 ”Sinjoro Craggs, ŝi estas tre alligita al li,” certigis Snitchey.
 
-”Ne vane mi ses semajnojn pasigis en la domo de la dok-
-
-toro; kaj baldaŭ mi komencis tion ĉi dubi,” diris sinjoro Warden. ”ŝi amus lin, se ĉio irus laŭ la volo de ŝia fratino, sed mi ŝin observis. Marion evitadis lin nomi kaj paroli pri li, kaj ĉe la plej malgranda aludo je li ŝi videble suferadis.”
+”Ne vane mi ses semajnojn pasigis en la domo de la doktoro; kaj baldaŭ mi komencis tion ĉi dubi,” diris sinjoro Warden. ”ŝi amus lin, se ĉio irus laŭ la volo de ŝia fratino, sed mi ŝin observis. Marion evitadis lin nomi kaj paroli pri li, kaj ĉe la plej malgranda aludo je li ŝi videble suferadis.”
 
 ”Kial ŝi devus tiel agadi, sinjoro Craggs? Kio ŝin igus, sinjoro?” demandis Snitchey.
 
-”Kial — mi ne scias, kvankam ekzistas multaj cirkonstan-
-
-coj, kiuj povas ĝmprenigi,” diris la kliento kun rideto pro la streĉo kaj konfuzo, kiuj esprimiĝis en la vizaĝo de Snitchey, kaj pro la singarda maniero, en kiu li parolis pri la afero kaj penis sciiĝi pli multe; ”sed mi scias, ke tiel estas. ŝi estis tre juna, kiam ŝi fianĉiĝis se oni entute tiel povas tion ĉi nomi —
+”Kial — mi ne scias, kvankam ekzistas multaj cirkonstancoj, kiuj povas ĝmprenigi,” diris la kliento kun rideto pro la streĉo kaj konfuzo, kiuj esprimiĝis en la vizaĝo de Snitchey, kaj pro la singarda maniero, en kiu li parolis pri la afero kaj penis sciiĝi pli multe; ”sed mi scias, ke tiel estas. ŝi estis tre juna, kiam ŝi fianĉiĝis se oni entute tiel povas tion ĉi nomi —
 
 kaj eble ŝi ĝin pentis. Eble — ĝi sonas fanfarone, sed mi certi-gas, ke tia ne estas mia intenco — eble ŝi enamiĝis en min, kiel mi enamiĝis en ŝin.”
 
 ”He, he! sinjoro Alfred, ŝia malnova kolego de ludoj, sinjoro Craggs,” diris Snitchey kun embarasa rido, ”jam konis ŝin ja kiel tre malgrandan infanon!”
 
-”Tiom pli kredeble estas, ke tedis al ŝi pensi pri li,” trankvile daŭrigis la kliento, ”kaj ke ŝi ne malvolonte ŝanĝus lin je nova amanto, kiu venas al ŝiaj okuloj sub romanaj cirkonstancoj (aŭ estas alportata antaŭ ŝiajn okulojn per sia ĉevalo); kiu havas la renomon, ne senallogan por knabino provinca, de homo, kiu vivis facilanime kaj diboĉe kaj al neniu faris ion malbonan; kaj kiu per sia eksteraĵo — ĝi denove sonos fanfa-41
-
-LA BATALO DE L’VIVO
-
-
-rone, sed, pro l’honoro, mi tiel ne pensas — povos ankoraŭ elteni la konkuron kun sinjoro Alfred.”
+”Tiom pli kredeble estas, ke tedis al ŝi pensi pri li,” trankvile daŭrigis la kliento, ”kaj ke ŝi ne malvolonte ŝanĝus lin je nova amanto, kiu venas al ŝiaj okuloj sub romanaj cirkonstancoj (aŭ estas alportata antaŭ ŝiajn okulojn per sia ĉevalo); kiu havas la renomon, ne senallogan por knabino provinca, de homo, kiu vivis facilanime kaj diboĉe kaj al neniu faris ion malbonan; kaj kiu per sia eksteraĵo — ĝi denove sonos fanfarone, sed, pro l’honoro, mi tiel ne pensas — povos ankoraŭ elteni la konkuron kun sinjoro Alfred.”
 
 La lastan oni certe ne povus nei; kaj sinjoro Snitchey, rigardante sian klienton, ankaŭ tiel pensis. uste lia malŝata sintenado donadis al li certan naturan ĉarmon kaj elvokadis intereson. Tiu ĉi malŝateco ŝajnis esprimadi, ke lia bela vizaĝo kaj lia bone konstruita figuro povus esti multe pli bonaj se li nur volus; kaj ke se li iam sin levos kaj fariĝos serioza (sed ĝis nun li ankoraŭ neniam en sia vivo estis serioza), li povus esti plena je fajra energio. ”Tio ĉi estas danĝera diboĉisto,” diris al si la homokonanta advokato, ”kiu la vivigan fajron, man-kantan al li, ŝajnas ricevadi el la okuloj de knabino.”
 
@@ -875,9 +715,6 @@ La lastan oni certe ne povus nei; kaj sinjoro Snitchey, rigardante sian klienton
 ”Mi pensas, ke estos pli bone, se ni ĝin ne aŭskultados,
 
 sinjoro Craggs?” diris Snitchey kaj rigardis sian kompanianon.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Mi ankaŭ pensas tion,” diris Craggs. Sed ambaŭ atente
@@ -894,12 +731,7 @@ vi diras ĝin mem, kaj vi ne estas sangvina — kredeble pli riĉa, ol se ŝi li
 
 ”Ankoraŭ iom pli frue, mi konsilus,” respondis Craggs.
 
-”Post unu monato,” diris la kliento, observinte ambaŭ viza-
-
-ĝojn. ”De hodiaŭ post monato mi forveturos.”
-
-
-LA BATALO DE L’VIVO
+”Post unu monato,” diris la kliento, observinte ambaŭ vizaĝojn. ”De hodiaŭ post monato mi forveturos.”
 
 
 ”i estas tro longa tempo,” diris Snitchey; ”tro longe. Sed
@@ -931,9 +763,6 @@ Sinjoro Craggs balancis la kapon.
 ”Sinjorino Craggs havis tiun saman opinion,” rimarkis Craggs.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Mi efektive ion donus,” diris Snitchey, kiu en vero estis tre bonkora, ”se mi povus kredi, ke sinjoro Warden trompiĝis en sia kalkulo; sed kiel ajn facilanima kaj nekonstanta li estas, li tamen konas la mondon kaj la homojn (kaj estus malbone, se estus alie, ĉar por sia konado li pagis sufiĉe kare); kaj mi ne povas al mi prezenti, ke ĝi estas kredebla. Ni faros plej bone, se ni nin ne enmiksos; ni povas fari nenion pli, sinjoro Craggs, ol silenti.”
 
 ”Nenion pli,” respondis Craggs.
@@ -948,9 +777,7 @@ Mia historio kondukas min nun en malgrandan malbruan
 
 ĉambron de instruitulo, kie en tiu sama vespero la fratinoj kaj la freŝa maljuna doktoro sidis antaŭ la agrabla kameno. Grace kudris, Marion legis el libro. La doktoro en nokta surtuto kaj pantofloj, tenante la piedojn sur la varma tapiŝo, sidis en la ava seĝo, aŭskultis la legantinon kaj rigardadis siajn filinojn.
 
-Ili estis tre belaj. Du pli agrablaj vizaĝoj neniam ankoraŭ faris angulon kamenan ĉarma kaj sankta. Ion de ilia malega-leco la forpasintaj tri jaroj deviŝis; kaj sur la pura frunto de la 45
-
-LA BATALO DE L’VIVO
+Ili estis tre belaj. Du pli agrablaj vizaĝoj neniam ankoraŭ faris angulon kamenan ĉarma kaj sankta. Ion de ilia malega-leco la forpasintaj tri jaroj deviŝis; kaj sur la pura frunto de la
 
 
 pli juna fratino, en ŝia okulo kaj en la tono de ŝia voĉo oni povis rimarki tiun saman seriozan korecon, kiun ĉe ŝia pli maljuna fratino la senpatrine travivita juneco jam longe ma-turigis. Tamen ĉiam ankoraŭ ŝi ŝajnis pli ĉarma kaj pli malforta ol la dua; ĉiam ankoraŭ ŝi ŝajnis metadi sian kapon sur la bruston de sia fratino, fidadi je ŝi kaj serĉadi konsilon kaj helpon en ŝiaj okuloj, en tiuj ĉi karaj okuloj, tiel trankvilaj, tiel klaraj kaj tiel afablaj kiel antaŭe.
@@ -968,9 +795,6 @@ pli juna fratino, en ŝia okulo kaj en la tono de ŝia voĉo oni povis rimarki t
 Nenia rememoro de ama vorto aŭ rigardo eliru plendante
 
 kontraŭ tiu, kiu vin forlasis, sed se via rigardo povas esti pu-nanta kaj severa, tiam tiel rigardu en via kompatemeco la pentantojn!”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Kara Marion, ne legu pli hodiaŭ vespere,” diris Grace —
@@ -1000,18 +824,13 @@ Kontuzitaj kubutoj ordinare ne estas kalkulataj al belaĵoj; sed en la irado tra
 Iom mirigite la doktoro plenumis ŝian deziron.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Vi diris, ke mi donu al vi nenion, kiam ili apudestas, vi scias,” diris Clemency.
 
 Iu fremda en la familio, laŭ ŝia stranga okulado ĉe tiuj ĉi vortoj kaj la aparta loga movo de ŝiaj kubutoj, kvazaŭ ŝi volus ĉirkaŭpreni sin mem, povus eble pensi, ke ”nenion” signifas, ĉe la plej favora klarigado, honestan kison. Efektive ŝajnis, ke la doktoro en la unua minuto mem ne sciis, kion li devas pensi; sed li baldaŭ retrankviliĝis, kiam Clemency, traserĉinte en ambaŭ poŝoj — ŝi komencis de la ĝusta poŝo, poste fosis en la malĝusta kaj fine revenis al la ĝusta — ellevis leteron.
 
 ”Britain preterveturis,” ŝi diris, transdonante la leteron al la doktoro, ”kiam la poŝto venis, kaj li atendis. En la angulo staras A.H. Mi vetas, ke sinjoro Alfred revenas. Ni havos fes-ton de edziĝo en la domo — mi havis matene du kulerojn en la taso. Ho, Dio, kiel malrapide li ĝin malfermas.”
 
-ŝi parolis ĉion tion ĉi kiel monologon, dum en sia malpa-
-
-cienco sciiĝi la novaĵon, ŝi levis sin sur la finetojn de la piedoj kaj el sia antaŭtuko faris korktirilon kaj el sia buŝo bote-lon. Fine, perdinte la paciencon atendi, dum la doktoro kun la letero ĉiam ankoraŭ ne estis preta, ŝi subite returne mallevis sin sur la plandojn kaj ĵetis sian antaŭtukon kiel kovri-lon trans la kapon, plena je muta malespero kaj ne povante plu ĝin elteni.
+ŝi parolis ĉion tion ĉi kiel monologon, dum en sia malpacienco sciiĝi la novaĵon, ŝi levis sin sur la finetojn de la piedoj kaj el sia antaŭtuko faris korktirilon kaj el sia buŝo bote-lon. Fine, perdinte la paciencon atendi, dum la doktoro kun la letero ĉiam ankoraŭ ne estis preta, ŝi subite returne mallevis sin sur la plandojn kaj ĵetis sian antaŭtukon kiel kovri-lon trans la kapon, plena je muta malespero kaj ne povante plu ĝin elteni.
 
 ”Venu, knabinoj!” ekkriis la doktoro. ”Mi ne povas alie; en mia vivo mi nenian sekreton povis teni ĉe mi. Kaj ankaŭ ne estas multe da sekretoj, kiuj estus indaj esti tenataj en tia —
 
@@ -1019,12 +838,7 @@ sed ni silentu pri tio ĉi. Alfred reveturas kaj baldaŭ venos!”
 
 ”Baldau!” ekkriis Marion.
 
-”Kio? La romano estas tiel rapide forgesita!” diris la dok-48
-
-LA BATALO DE L’VIVO
-
-
-toro kaj pinĉis al ŝi la vangon. ”Mi tuj sciis, ke la sciigo seki-gos la larmojn. Jes! ’Mi volas fari al ŝi surprizon’,” li tie ĉi skribas. Sed tio ĉi ne iros. Li devas havi konvenan akcepton.”
+”Kio? La romano estas tiel rapide forgesita!” diris la doktoro kaj pinĉis al ŝi la vangon. ”Mi tuj sciis, ke la sciigo seki-gos la larmojn. Jes! ’Mi volas fari al ŝi surprizon’,” li tie ĉi skribas. Sed tio ĉi ne iros. Li devas havi konvenan akcepton.”
 
 ”Baldaŭ!” ripetis Marion.
 
@@ -1041,16 +855,11 @@ Kaj ankoraŭ io: io, kio pli kaj pli trarigardis tra la ceteraj sentoj, kaj por 
 Doktoro Jeddler malgraŭ sia filozofio — kiun li ĉiam en la praktiko forgesadis, kiel ĝi ofte okazas al gloraj filozofoj — ne povis sin deteni montri tian grandan intereson je la reveno de sia malnova lernanto kaj zorgato, kiel se ĝi estus ia serioza afero. Tiel li denove sidiĝis en sian avan seĝon, denove etendis la piedojn sur la varman tapiŝon, multfoje tralegis la leteron kaj ankoraŭ pli multe parolis pri ĝi.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Ho, estis ankoraŭ tempo,” diris la doktoro kaj rigardis en la fajron, ”kiam vi ambaŭ kune, vi, Grace, kaj li, kuradis brako en brako, kiel paro da vivaj pupoj. ĉu vi memoras?”
 
 ”Ho, jes,” ŝi respondis kun gaja rido kaj daŭrigis kudri diligente.
 
-”De hodiaŭ post unu monato!” diris la doktoro meditan-
-
-te. ”ŝajnas kvazaŭ de tiu tempo pasis ne pli ol unu jaro. Kaj kie tiam estis mia malgranda Marion?”
+”De hodiaŭ post unu monato!” diris la doktoro meditante. ”ŝajnas kvazaŭ de tiu tempo pasis ne pli ol unu jaro. Kaj kie tiam estis mia malgranda Marion?”
 
 ”Neniam malproksime de sia fratino, kiel ajn malgranda ŝi estis,” diris Marion: ”Grace estis por mi ĉio, eĉ tiam, kiam ŝi ankoraŭ estis infano.”
 
@@ -1068,11 +877,7 @@ ridis Grace, ĉiam ankoraŭ diligente laborante. ”Kia punkto ĝi estis, patro?
 
 ”Kiel, vi ĝin plu ne memoras?” demandis la doktoro.
 
-”Mi pensas, ke mi ĝin ankoraŭ iom memoras,” ŝi respon-
-
-dis, ”sed nur apenaŭ. Estas tro longe de tiu tempo.” Kaj kud-50
-
-LA BATALO DE L’VIVO
+”Mi pensas, ke mi ĝin ankoraŭ iom memoras,” ŝi respondis, ”sed nur apenaŭ. Estas tro longe de tiu tempo.” Kaj kud-50
 
 
 rante ŝi kantetis la rekanton de unu malnova kanto, kiun la doktoro amis.
@@ -1089,9 +894,7 @@ rante ŝi kantetis la rekanton de unu malnova kanto, kiun la doktoro amis.
 
 Dume Clemency Newcome, plenuminte sian alporton de
 
-sciigo kaj atendinte en la ĉambro, ĝis ŝi ĉion sciis, iris returne en la kuirejon, kie sinjoro Britain post la vespermanĝo faris al si oportune, ĉirkaŭite de tia grandanombra kolekto da brilantaj kovriloj de potoj, pure frotitaj patoj, poluritaj pladoj, brilantaj kaldronoj kaj aliaj signoj de ŝia diligento sur la muroj 51
-
-LA BATALO DE L’VIVO
+sciigo kaj atendinte en la ĉambro, ĝis ŝi ĉion sciis, iris returne en la kuirejon, kie sinjoro Britain post la vespermanĝo faris al si oportune, ĉirkaŭite de tia grandanombra kolekto da brilantaj kovriloj de potoj, pure frotitaj patoj, poluritaj pladoj, brilantaj kaldronoj kaj aliaj signoj de ŝia diligento sur la muroj
 
 
 kaj sur la bretoj, ke li sidis kvazaŭ en la mezo de magazeno de speguloj. La plej granda parto el ili vere donis ne tre flatan repentron de li; ankaŭ iliaj prezentaĵoj estis tute ne egalaj; ĉar kelkaj donis al li tre longan vizaĝon, kelkaj tre larĝan, aliaj sufiĉe agrablan kaj aliaj tre malbelan, ĉiu laŭ sia maniero de reprezentado, tiel same, kiel faras la homoj. Sed en tio ili ĉiuj konsentis, ke inter ili tute oportune sidas individuo, tenanta la pipon en la buŝo kaj kruĉon da biero apud si kaj balancanta kun esprimo de grandanimeco la kapon al Clemency, kiam ŝi sidiĝis al tiu sama tablo.
@@ -1117,9 +920,6 @@ Benjamin prenis la pipon el la buŝo kaj kore ridis. ”Jes, vi estas tute la ĝ
 Clemency de sia flanko ridis tiel same kore, kiel li, kaj ŝajnis, ke la penson ŝi trovas tiel same amuza, kiel li. ”Jes,” ŝi konsentis, ”mi estas tute la ĝusta por tio ĉi, ne vere?”
 
 
-LA BATALO DE L’VIVO
-
-
 ”Vi neniam edziniĝos, kompreneble,” diris sinjoro Britain kaj prenis la pipon returne en la buŝon.
 
 ”Vi efektive pensas, ke ne?” diris Clemency tute senkulpe.
@@ -1142,11 +942,7 @@ Tiel subite metita demando pri tia grava afero postulis pri-penson. Li elblovis 
 
 ”Dio, kiel bela estas la penso pri tio ĉi!” diris Clemency.
 
-”Vi scias, mi faris diversajn esplorojn pri tio kaj alia,” daŭ-
-
-rigis sinjoro Britain kun la peza seriozeco de saĝegulo, ”ĉar mi 53
-
-LA BATALO DE L’VIVO
+”Vi scias, mi faris diversajn esplorojn pri tio kaj alia,” daŭrigis sinjoro Britain kun la peza seriozeco de saĝegulo, ”ĉar mi
 
 
 ĉiam havis spiriton scieman; kaj mi legis multajn librojn pri la bonaj kaj malbonaj flankoj de la teraj aferoj, ĉar mi en mia juneco min okupadis je la literaturo.”
@@ -1169,14 +965,9 @@ Clemency volis ion aldoni, sed li antaŭvenis al ŝi.
 
 ”Mi cetere ne scias,” diris sinjoro Britain, ”ĉu oni povus ĝin nomi vera filozofio. Mi iom dubas tion ĉi; sed ĝi bone eltenas kaj ŝparas multe da ĉagreno, kion la ĝusta filozofio ne ĉiam faras.”
 
-”Rememoru nur, kiel vi mem iafoje insultadis,” diris Cle-
-
-mency.
+”Rememoru nur, kiel vi mem iafoje insultadis,” diris Clemency.
 
 ”Ha!” diris sinjoro Britain. ”Sed la plej rimarkinda estas, Clemency, ke vi min devis konverti. Tio ĉi estas la plej stranga.
-
-
-LA BATALO DE L’VIVO
 
 
 Vi! kio! mi pensas, ke vi ne havas duonon da penso en la ka-po!”
@@ -1207,9 +998,7 @@ Benjamin prenis la pipon el la buŝo kaj ridis, ĝis la larmoj elkuris al li sur
 
 Ili ambaŭ aŭskultis sed nenion aŭdis. ”Mi ion diros al vi,”
 
-diris Benjamin kaj deprenis lanternon; ”mi pro singardeco faros unu fojon ĉirkaŭiron ĉirkaŭ la domo, antaŭ ol mi iros 55
-
-LA BATALO DE L’VIVO
+diris Benjamin kaj deprenis lanternon; ”mi pro singardeco faros unu fojon ĉirkaŭiron ĉirkaŭ la domo, antaŭ ol mi iros
 
 
 dormi. Malfermu la pordon, dum mi ekbruligos la lanternon, Clemmy.”
@@ -1232,9 +1021,7 @@ kiam facila figuro al ŝi proksimiĝis. ”Kiu tie?”
 
 ”Iu estas ekster la domo,” diris Marion kaj montris al la pordo, ”kiun mi hodiaŭ vespere ankoraŭ devas vidi, kaj paroli kun li. Michael Warden, pro Dio, foriru. Nun ne!”
 
-Clemency surprizite kaj maltrankvile ektremis, kiam sek-
-
-vante la rigardon de la parolantino, ŝi ekvidis malluman figuron, starantan antaŭ la pordo.
+Clemency surprizite kaj maltrankvile ektremis, kiam sekvante la rigardon de la parolantino, ŝi ekvidis malluman figuron, starantan antaŭ la pordo.
 
 ”Post momento vi povas esti malkaŝita,” diris Marion.
 
@@ -1246,9 +1033,7 @@ Atendu min tie ĉi!” diris Marion kun maltrankvila rapideco.
 
 Marion kaptis ekscitite sian manon kaj premis ĝin al la
 
-brusto — movo, kiu en sia pasio estis pli elokventa, ol la plej 56
-
-LA BATALO DE L’VIVO
+brusto — movo, kiu en sia pasio estis pli elokventa, ol la plej
 
 
 varmega petado per vortoj. Poste ŝi foriris, kiam la radioj de la revenanta lanterno komencis lumigadi la ĉambron.
@@ -1259,25 +1044,17 @@ diris sinjoro Britain, ferminte kaj riglinte la pordon. ”Unu el la sekvaĵoj d
 
 Clemency, kiu ne povis kaŝi sian ekscitecon, pala kaj tremanta per la tuta korpo sidis sur seĝo.
 
-”Kio estas?” ŝi ripetis kaj frotis al si la manojn kaj kubutojn, penante trankviligi kaj rigardante ĉien, nur ne al li en la viza-
-
-ĝon. ”Estas bele de via flanko, Britain! Antaŭe vi enpelas min en teruron per bruado kaj per lanternoj kaj per Dio scias ankoraŭ kio … Kio estas? Ho, jes!”
+”Kio estas?” ŝi ripetis kaj frotis al si la manojn kaj kubutojn, penante trankviligi kaj rigardante ĉien, nur ne al li en la vizaĝon. ”Estas bele de via flanko, Britain! Antaŭe vi enpelas min en teruron per bruado kaj per lanternoj kaj per Dio scias ankoraŭ kio … Kio estas? Ho, jes!”
 
 ”Se vi ricevas teruron de lanterno, Clemmy,” diris sinjoro Britain, tute trankvilanime ĝin estingante kaj ree pendigante, ”tiam la terura fantomo estas facile forpelebla. Sed vi ja ordinare estas sufiĉe kuraĝa,” li diris kaj haltis, por ŝin atente rigardi; ”kaj vi estis ja ankaŭ tute trankvila post la bruado kaj la lanterno. Kio venis al vi en la kapon? Ja ne ia penso?”
 
 Sed ĉar Clemency tute kiel ordinare deziris al li bonan nokton kaj ŝajnis sin prepari por iri dormi, tial ankaŭ Malgrand-Britain diris al ŝi bonan nokton, farinte ankoraŭ la originalan rimarkon, ke neniu scias, kio al la virinoj povas veni en la kapon; li prenis sian kandelon kaj iris dormeme al la lito.
 
-Kiam ĉio denove estis trankvila, Marion revenis. ”Malfer-
-
-mu la pordon,” ŝi diris, ”kaj restu apud mi, dum mi kun li ekstere parolos.”
+Kiam ĉio denove estis trankvila, Marion revenis. ”Malfermu la pordon,” ŝi diris, ”kaj restu apud mi, dum mi kun li ekstere parolos.”
 
 Kiel ajn timema ŝia agado estis, ĝi tamen montris firman
 
-kaj neŝanceleblan decidon, al kiu Clemency ne povis kontraŭ-
-
-stari. ŝi mallaŭte malriglis la pordon, sed antaŭ ol ŝi turnis la 57
-
-LA BATALO DE L’VIVO
+kaj neŝanceleblan decidon, al kiu Clemency ne povis kontraŭstari. ŝi mallaŭte malriglis la pordon, sed antaŭ ol ŝi turnis la
 
 
 ŝlosilon en la seruro, ŝi returne rigardis la junan fratinon, kiu nur atendis la malfermadon, por eliri.
@@ -1300,12 +1077,7 @@ kiun vi iam tiel amis!” ŝi kovris sian vizaĝon per la manoj kaj ripetis: ”
 
 ”Lasu min eliri,” petis Clemency. ”Mi diros al li, kion vi volas. Ne eliru tiun ĉi nokton el la pordo. Mi estas konvinkita, ke tio ĉi ne povas alporti bonon. Ha, ĝi estis tago de malfeliĉo, kiam oni tien ĉi alportis sinjoron Warden! Pensu pri via bona patro, mia kara — pri via fratino.”
 
-”Mi ĝin faris,” diris Marion kaj rapide levis la kapon. ” Vi ne scias, kion mi faras. Mi devas paroli kun li. Per tio ĉi, kion vi diris, vi montris vin kiel mia plej bona kaj plej fidela amikino, sed mi devas fari tiun ĉi paŝon. ĉu vi volas min akompa-58
-
-LA BATALO DE L’VIVO
-
-
-ni, Clemency” — ŝi kisis ŝian amikan vizaĝon — ”aŭ ĉu mi devas iri sola?”
+”Mi ĝin faris,” diris Marion kaj rapide levis la kapon. ” Vi ne scias, kion mi faras. Mi devas paroli kun li. Per tio ĉi, kion vi diris, vi montris vin kiel mia plej bona kaj plej fidela amikino, sed mi devas fari tiun ĉi paŝon. ĉu vi volas min akompani, Clemency” — ŝi kisis ŝian amikan vizaĝon — ”aŭ ĉu mi devas iri sola?”
 
 Konfuzita kaj malĝoja Clemency turnis la ŝlosilon en la seruro kaj malfermis la pordon. Marion, firme tenante la manon de la akompanantino, rapide eliris en la mallumon de la nokto.
 
@@ -1319,14 +1091,9 @@ Jes, kaj ŝi povis sin levi post la preĝo tiel trankvile kaj feliĉe, klini sin
 
 kvankam eĉ iom malĝoje. Kaj kisante ŝian frunton, ŝi mallaŭte murmuretis al si, ke Grace ĉiam estis patrino por ŝi, kaj ke ŝi ŝin amas kiel infano!
 
-Kaj ŝi povis la brakon meti al si ĉirkaŭ la kolon, kiam ŝi sin metis sur la kusenon, — kaj la brako kvazaŭ konscie ĉirkaŭ-
-
-prenis ŝin defendante kaj amante — kaj kvazaŭ murmuretis
+Kaj ŝi povis la brakon meti al si ĉirkaŭ la kolon, kiam ŝi sin metis sur la kusenon, — kaj la brako kvazaŭ konscie ĉirkaŭprenis ŝin defendante kaj amante — kaj kvazaŭ murmuretis
 
 al la delikataj lipoj: Dio vin benu!
-
-
-LA BATALO DE L’VIVO
 
 
 Kaj ŝi povis eĉ trankvile ekdormi, malhelpata nur de unu
@@ -1335,9 +1102,7 @@ sonĝo, en kiu ŝi per sia senkulpa kaj tuŝanta voĉo ekkriis, ke ŝi estas tut
 
 Monato baldaŭ pasas, eĉ se ĝi iras malrapide. La monato, kiu estis inter tiu ĉi nokto kaj la reveno, rapide pasis kaj forflugis, kiel pasanta nebulo.
 
-La tago venis. Malkvieta vintra tago, kiu la malnovan do-
-
-mon ofte tremigadis, kvazaŭ de frosto. Tago, kiu la hejman doman internaĵon faras duoble kara, al la kamena angulo donas novajn agrablaĵojn, ĵetas ruĝetan flamon sur la vizaĝojn kolektitajn ĉirkaŭ la kameno kaj igas la grupojn ĉirkaŭ ĉiu kameno fari pli malvastan kaj pli intiman ligon kontraŭ la elementoj, kiuj ekstere sovaĝas. Kruda vintra tago, kiu plej bone preparas por agrabla vespero, kovritaj fenestroj, afablaj amikaj vizaĝoj, muziko, ridado, dancado, luma kandelaro kaj societa plezuro!
+La tago venis. Malkvieta vintra tago, kiu la malnovan domon ofte tremigadis, kvazaŭ de frosto. Tago, kiu la hejman doman internaĵon faras duoble kara, al la kamena angulo donas novajn agrablaĵojn, ĵetas ruĝetan flamon sur la vizaĝojn kolektitajn ĉirkaŭ la kameno kaj igas la grupojn ĉirkaŭ ĉiu kameno fari pli malvastan kaj pli intiman ligon kontraŭ la elementoj, kiuj ekstere sovaĝas. Kruda vintra tago, kiu plej bone preparas por agrabla vespero, kovritaj fenestroj, afablaj amikaj vizaĝoj, muziko, ridado, dancado, luma kandelaro kaj societa plezuro!
 
 Pri ĉio tio ĉi la doktoro zorgis, por saluti Alfredon. Ili sciis, ke li povas veni ne pli frue, ol en la nokto; kaj ili intencas, li diris, resonigi la nokton de la ĝojo, kiam li venos. ĉiuj liaj amikoj devis esti kolektitaj. Devis manki nenia vizaĝo, kiun li konis kaj amis. Ne, ili ĉiuj devis tie ĉi esti.
 
@@ -1346,9 +1111,6 @@ Tial gastoj estis invititaj, kaj muziko estis mendita, kaj tabloj preparitaj, ka
 ĉar estis Kristnasko kaj liaj okuloj jam de longe ne vidis la anglan ilekson1 kaj ĝian malluman konstantan verdaĵon, la salono de dancado estis ornamita je tio ĉi; kaj la ruĝaj beroj sendadis al li el la malluma foliaro anglan saluton al la veno.
 
 1 Brita emblemo de Kristnasko.
-
-
-LA BATALO DE L’VIVO
 
 
 i estis labora tago por ĉiuj, sed por neniu tiel multe, kiel por Grace, kiu senbrue ĉie laboradis kaj estis la gaja animo de ĉiuj preparadoj. Multajn fojojn en tiu ĉi tago (kiel ankaŭ multajn fojojn en la daŭro de la monato, kiu pasis) Clemency time esplorante rigardadis Marion’on. ŝi estis eble iom pli pala, ol ordinare, sed sur ŝia vizaĝo estis ĉarma decida trankvileco, kiu faris ĝin pli aminda, ol ĉiam.
@@ -1369,9 +1131,7 @@ Tio ĉi efektive ŝin tute ne interesis. ŝi pensis pri la vizaĝo de sia fratin
 
 ”Jes, sed ankoraŭ pli granda feliĉo vin atendas. Apud alia tia kameno, tiel same ĉarma kaj intima, kiel tiu ĉi,” diris Grace, ”baldaŭ sin trovos Alfred kun lia juna edzino.”
 
-ŝi denove ridetis. ”Vi prezentas al vi feliĉan dometon, 61
-
-LA BATALO DE L’VIVO
+ŝi denove ridetis. ”Vi prezentas al vi feliĉan dometon,
 
 
 Grace. Mi vidas tion ĉi laŭ viaj okuloj. Mi ĝin scias, ĝi estos feliĉa, mia kara. Kiel feliĉa mi estas, ke mi ĝin scias!”
@@ -1386,9 +1146,7 @@ tempo, por fariĝi gajaj antaŭ lia veno. Li ne devas veni antaŭ ol la glacio e
 
 ”Kaj ĉion, kion unu el ili iam faris aŭ ankoraŭ povas fari, por vin malĝojigi, kara patro,” diris Marion, ”tion pardonu al ŝi nun, kiam ŝia koro estas plena. Diru, ke vi pardonas al ŝi, ke vi volas pardoni al ŝi, ke ŝi ĉiam havos parton en via amo kaj …” ŝi eksilentis kaj kaŝis sian vizaĝon sur la brusto de la maljuna homo.
 
-”Infano, infano!” kviete diris la doktoro. ”Pardoni! Kion mi bezonas pardoni? Efektive, se niaj fidelaj amantoj revenas, por fari al ni tiajn historiojn, tiam ni devas teni ilin malproksime de ni; ni devas sendi al ili renkonte kurierojn kaj lasi ilin veturi nur unu horon en tago, ĝis ni estos sufiĉe preparitaj, por ilin akcepti. Kisu min, mia kateto. Pardoni! Kia malsaĝa infano vi estas! Se vi min kvindek fojojn en tago ĉagrenus, anstataŭ tute ne, mi ĉion al vi pardonus, ekster tia peto. Kisu min, mia kateto. Prenu! Por la estinteco kaj estonteco — pura 62
-
-LA BATALO DE L’VIVO
+”Infano, infano!” kviete diris la doktoro. ”Pardoni! Kion mi bezonas pardoni? Efektive, se niaj fidelaj amantoj revenas, por fari al ni tiajn historiojn, tiam ni devas teni ilin malproksime de ni; ni devas sendi al ili renkonte kurierojn kaj lasi ilin veturi nur unu horon en tago, ĝis ni estos sufiĉe preparitaj, por ilin akcepti. Kisu min, mia kateto. Pardoni! Kia malsaĝa infano vi estas! Se vi min kvindek fojojn en tago ĉagrenus, anstataŭ tute ne, mi ĉion al vi pardonus, ekster tia peto. Kisu min, mia kateto. Prenu! Por la estinteco kaj estonteco — pura
 
 
 kalkulo inter ni. Disheligu la fajron! ĉu la homoj en la malvarma Decembra nokto devas frostiĝi? Faru lume, varme kaj gaje, aŭ mi al tiu kaj alia certe ne pardonos!”
@@ -1416,18 +1174,13 @@ rigardis ĉirkaŭen.
 ”Ni scias, kio ĝi estas, negoca afero,” diris sinjorino Craggs.
 
 
-LA BATALO DE L’VIVO
-
-
 Sed ĉar ili tion ĉi ne sciis, tio eble estis la kaŭzo, kiaI la paradiza birdo de sinjorino Snitchey tiel minace tremis kaj ĉiuj pendantaj partoj de la orelringoj de sinjorino Craggs sonis, kiel malgrandaj soniloj.
 
 ”Mi miras, ke vi povis veni, Craggs,” diris lia edzino. ”Sinjoro Craggs sentas sin feliĉa, certe,” diris sinjorino Snitchey.
 
 ”La oficejo tiel okupas ilian tutan tempon,” diris sinjorino Craggs.
 
-”Persono, kiu havas negocon, efektive tute ne devas edzi-
-
-ĝi,” diris sinjorino Snitchey.
+”Persono, kiu havas negocon, efektive tute ne devas edziĝi,” diris sinjorino Snitchey.
 
 Poste sinjorino Snitchey diris al si mem, ke la rigardo, kun kiu ŝi tion ĉi diris, trafis Craggs’on en la profundon de la koro kaj ke li tion ĉi sentas, kaj sinjorino Craggs rimarkis al sia edzo, ke Snitchey lin trompas post la dorso kaj ke li tion ĉi vidos, kiam estos tro malfrue.
 
@@ -1445,15 +1198,11 @@ Sed sinjoro Craggs, ne tre turnante atenton sur tiujn ĉi ri-markojn, ĉiam anko
 
 diris Grace.
 
-Sinjoro Craggs surmetis la okulvitrojn, por pli bone vidi, rigardis Marion’on kelkan tempon, tusis kaj metis la okulvitrojn kun kontenta mieno retume en la ingon kaj en la po-
-
-ŝon.
+Sinjoro Craggs surmetis la okulvitrojn, por pli bone vidi, rigardis Marion’on kelkan tempon, tusis kaj metis la okulvitrojn kun kontenta mieno retume en la ingon kaj en la poŝon.
 
 Nun eksonis la muziko kaj la dancado komenciĝis. La hela
 
-fajro gaje krakadis kaj saltadis, kvazaŭ ĝi pro granda ĝojo 64
-
-LA BATALO DE L’VIVO
+fajro gaje krakadis kaj saltadis, kvazaŭ ĝi pro granda ĝojo
 
 
 mem volus danci. De tempo al tempo ĝi ridadis, kvazaŭ ĝi
@@ -1462,9 +1211,7 @@ volus ankaŭ fari muzikon. Iafoje ĝi briladis kaj ruĝe flamadis, kvazaŭ ĝi e
 
 ĝojo levadis sin en la malnovan tubon de l’kameno.
 
-Preskaŭ jam finiĝis dua danco, kiam sinjoro Snitchey kap-
-
-tis la brakon de sia kompaniano, rigardanta la dancadon.
+Preskaŭ jam finiĝis dua danco, kiam sinjoro Snitchey kaptis la brakon de sia kompaniano, rigardanta la dancadon.
 
 Sinjoro Craggs eksaltis, kvazaŭ lia amiko estus fantomo.
 
@@ -1480,9 +1227,7 @@ La danco finiĝis. Marion preteriris tre proksime preter li, kiam li parolis. ŝ
 
 ”Kaj ĉu li efektive estas for? ĉu li estas ekster danĝero?”
 
-”Li tenas sian vorton. En sia ŝelo de nukso li kun la defluo de la akvo veturas malsupren de la rivero kaj kun veloj sub la vento li naĝas en tiu ĉi malluma nokto al la maro. Li ja estas 65
-
-LA BATALO DE L’VIVO
+”Li tenas sian vorton. En sia ŝelo de nukso li kun la defluo de la akvo veturas malsupren de la rivero kaj kun veloj sub la vento li naĝas en tiu ĉi malluma nokto al la maro. Li ja estas
 
 
 konata riskemulo. La defluo, li diris, en tiu ĉi tempo komenciĝas unu horon antaŭ noktomezo. Mi ĝojas, ke ĝi estas finita!” Sinjoro Snitchey viŝis al si la ŝviton de la vizaĝo, kiu elrigardis tute ruĝa kaj ekscitita.
@@ -1501,15 +1246,11 @@ Sinjorino Craggs kaj sinjorino Snitchey aliris al ili, kiam li elparolis sian in
 
 ”ĉiuj parolis pri tio ĉi, sinjoro Snitchey. Mi esperas, ke la negoco estas kontentigita?”
 
-”Per kio kontentigita, mia kara?” demandis sinjoro Snit-
-
-chey.
+”Per kio kontentigita, mia kara?” demandis sinjoro Snitchey.
 
 ”Ke sendefenda virino estis elmetita al la mokado kaj pri-parolado de la mondo,” respondis lia edzino. ”Tio ĉi estas tute laŭ la naturo de la negoco, tio ĉi estas vera.”
 
-”Mi jam tiel longe kutimis,” diris sinjorino Craggs, ”vidi la negocon ligitan kun ĉio, kio detruas la doman feliĉon, ke mi 66
-
-LA BATALO DE L’VIVO
+”Mi jam tiel longe kutimis,” diris sinjorino Craggs, ”vidi la negocon ligitan kun ĉio, kio detruas la doman feliĉon, ke mi
 
 
 jam estas kontenta, ke mi scias, ke ĝi estas la nekaŝita malamiko de mia trankvileco. Tio ĉi almenaŭ estas honesta kaj sincera.”
@@ -1520,9 +1261,7 @@ jam estas kontenta, ke mi scias, ke ĝi estas la nekaŝita malamiko de mia trank
 
 ”Ne, vi ĝin certe ne diris. Vi fariĝus ne inda je la negoco, se vi havus tiun ĉi sincerecon.”
 
-”Kio tuŝas mian foreston hodiaŭ vespere, mia kara,” diris sinjoro Snitchey, donante la brakon al sia edzino, ”la mia feli-
-
-ĉo estis tute sur mia flanko; sed, kiel sinjoro Craggs scias …”
+”Kio tuŝas mian foreston hodiaŭ vespere, mia kara,” diris sinjoro Snitchey, donante la brakon al sia edzino, ”la mia feliĉo estis tute sur mia flanko; sed, kiel sinjoro Craggs scias …”
 
 Sinjorino Snitchey ne lasis fini la komplimenton, ĉar ŝi tiris sian edzon flanken kaj postulis rigardi tiun ĉi homon, fari al ŝi la komplezon kaj rigardi lin.
 
@@ -1541,24 +1280,15 @@ Sekvante la rigardon de sia edzino, Snitchey rigardis sian kompanianon.
 — tiam mi povas nur diri: mi vin bedaŭras!”
 
 
-LA BATALO DE L’VIVO
-
-
 En tiu sama minuto sinjorino Craggs, regalis per tondra
 
 parolo sinjoron Craggs. Kiel ĝi estas nun ebla, ŝi demandis, ke li al sia Snitchey tiel blinde povas konfidi? ĉu li volas kredigi, ke li ne vidis, kiel Snitchey eniris kaj kiel sur lia vizaĝo kuŝis ruzo, intrigo kaj perfido? ĉu li povas nei, ke jam la maniero, en kiu tiu viŝis al si la frunton kaj maltrankvile rigardadis ĉirkaŭen, montras, ke io peze kuŝas sur la konscienco de lia Snitchey, se lia Snitchey entute havas konsciencon? ĉu eble aliaj personoj ankaŭ, kiel lia Snitchey, venas al festaj vesperoj kiel malkvietaj rabistoj? — kio cetere estis ne tute prospera komparo, ĉar li venis tra la pordo tre mallaŭte. Kaj ĉu li efektive en hela luma tago (estis preskaŭ noktomezo) volas persisti defendi kaj subteni sian Snitchey kontraŭ ĉia videblaĵo kaj prudento kaj kontraŭ ĉia sperto de la mondo?
 
-Nek Snitchey nek Craggs trovis utile batali malkaŝe kon-
+Nek Snitchey nek Craggs trovis utile batali malkaŝe kontraŭ la fluo de tiu ĉi kolero, sed ambaŭ kontentigis sin trankvile naĝi kune kun la fluo, ĝis ĝia forto malgrandiĝos, kio efektive fariĝis en la minuto, kiam oni komencis novan dancon. Tiun ĉi okazon uzis sinjoro Snitchey, por peti de sinjorino Craggs ŝian manon, dum sinjoro Craggs estis tiel galanta kaj invitis sinjorinon Snitchey. La sinjorinoj, post kelkaj facilaj deflankiĝoj — kiel ekzemple: ”kial vi ne invitas alian?” aŭ: ”mi scias, ke vi estos kontenta, se mi rifuzos,” aŭ: ”mi miras, ke vi ekster la oficejo povas danci,” (tio ĉi jam ŝercante) — favore konsentis kaj komencis la dancon.
 
-traŭ la fluo de tiu ĉi kolero, sed ambaŭ kontentigis sin trankvile naĝi kune kun la fluo, ĝis ĝia forto malgrandiĝos, kio efektive fariĝis en la minuto, kiam oni komencis novan dancon. Tiun ĉi okazon uzis sinjoro Snitchey, por peti de sinjorino Craggs ŝian manon, dum sinjoro Craggs estis tiel galanta kaj invitis sinjorinon Snitchey. La sinjorinoj, post kelkaj facilaj deflankiĝoj — kiel ekzemple: ”kial vi ne invitas alian?” aŭ: ”mi scias, ke vi estos kontenta, se mi rifuzos,” aŭ: ”mi miras, ke vi ekster la oficejo povas danci,” (tio ĉi jam ŝercante) — favore konsentis kaj komencis la dancon.
+Tiu ĉi reciproka ĝentileco estis ĉe ambaŭ familioj malnova moro; ĉar ili estis tre amikaj inter si kaj vivis en agrabla senceremonieco. Eble la malsincera Craggs kaj la malbona
 
-Tiu ĉi reciproka ĝentileco estis ĉe ambaŭ familioj malno-
-
-va moro; ĉar ili estis tre amikaj inter si kaj vivis en agrabla senceremonieco. Eble la malsincera Craggs kaj la malbona
-
-Snitchey estis ĉe la virinoj nur jurista fikcio, kiel Cajus kaj Sempronius en la aktoj de ambaŭ edzoj; eble ambaŭ virinoj 68
-
-LA BATALO DE L’VIVO
+Snitchey estis ĉe la virinoj nur jurista fikcio, kiel Cajus kaj Sempronius en la aktoj de ambaŭ edzoj; eble ambaŭ virinoj
 
 
 mem faris kaj prenis tiujn ĉi akciojn en la negoco, por nur ne esti tute esceptitaj. Tio ĉi en ĉia okazo estas senduba, ke ĉiu el ambaŭ virinoj sian okupon kondukadis tiel same fervore kaj diligente, kiel ŝia edzo la sian, kaj ke ĉiu pensis, ke feliĉa prosperado de la firmo sen ŝiaj laŭdindaj penoj estus preskaŭ neebla.
@@ -1569,16 +1299,9 @@ dubi, ke la dancado, kiel la cetera vivo, estas farata al la homoj tro facila; k
 
 Kaj ankaŭ la fajro ricevis freŝan humoron kaj pli hele brulis, disblovita de la vento, kiun faris la dancado. i estis la genio de la ĉambro kaj trovis sin ĉie. i brilis en la okuloj de la viroj, en la juveloj sur la blankaj brustoj de la knabinoj, ludis ĉirkaŭ iliaj oreloj, kvazaŭ petole nur murmuretante ion al ili, lumigis la plankon kaj metis rozan tapiŝon al iliaj piedoj, brilis sur la plafono, ke ĝia flamo rebrilis sur iliaj vizaĝoj, kaj ekbruligis grandan iluminacion en la malgranda turo de soniletoj de sinjorino Craggs.
 
-Kaj nun la aero fariĝis pli freŝa, kaj la muziko fariĝis pli energia kaj la dancoj iris en pli viva takto; kaj leviĝis blovado, kiu balancis la foliojn kaj la berojn sur la muroj, kiel antaŭe sub la libera ĉielo; kaj bruo iris tra la ĉambro, kvazaŭ nevide-bla amaso da elfoj akompanus la dancantojn. Nun nenia traj-to de la vizaĝo de la doktoro jam povis esti rekonata, kiam li sin turnadis ĉirkaŭen; nun ŝajnis, ke tuta deko da paradizaj birdoj flugas tra la ĉambro kaj ke milo da malgrandaj sonile-69
+Kaj nun la aero fariĝis pli freŝa, kaj la muziko fariĝis pli energia kaj la dancoj iris en pli viva takto; kaj leviĝis blovado, kiu balancis la foliojn kaj la berojn sur la muroj, kiel antaŭe sub la libera ĉielo; kaj bruo iris tra la ĉambro, kvazaŭ nevide-bla amaso da elfoj akompanus la dancantojn. Nun nenia traj-to de la vizaĝo de la doktoro jam povis esti rekonata, kiam li sin turnadis ĉirkaŭen; nun ŝajnis, ke tuta deko da paradizaj birdoj flugas tra la ĉambro kaj ke milo da malgrandaj soniletoj sonas; tuta armeo da flugantaj vestoj sin portis en la ven-tego, kiam la muziko silentiĝis kaj la dancado ĉesis.
 
-LA BATALO DE L’VIVO
-
-
-toj sonas; tuta armeo da flugantaj vestoj sin portis en la ven-tego, kiam la muziko silentiĝis kaj la dancado ĉesis.
-
-La varmego kaj laciĝo faris la doktoron nur pli sen paci-
-
-enca je la veno de Alfred.
+La varmego kaj laciĝo faris la doktoron nur pli sen pacienca je la veno de Alfred.
 
 ”ĉu vi ion vidis, Britain, ion aŭdis?”
 
@@ -1588,9 +1311,7 @@ multe da bruo en la domo, por povi ion aŭdi,” respondis la servanto.
 
 ”Tio ĉi estas vera! Tiom pli gaja estos la akcepto. Kioma horo nun estas?”
 
-”uste la dekdua, sinjoro. Li devas jam baldaŭ veni, sin-
-
-joro.”
+”uste la dekdua, sinjoro. Li devas jam baldaŭ veni, sinjoro.”
 
 ”Tial disheligu la fajron kaj ĵetu sur ĝin ankoraŭ unu pecon da ligno,” diris la doktoro. ”Lia akcepta saluto devas lumi al li renkonte tra la nokto, kiam li pli kaj pli proksimiĝados!”
 
@@ -1598,12 +1319,7 @@ Li vidis ĝin — jes! El sia kaleŝo li ekvidis la lumon, kiam li tumis angulen
 
 Larmoj staris al li en la okuloj. Lia koro batis tiel forte, ke li apenaŭ povis elporti sian feliĉon. Kiel ofte li pripensis tiun ĉi tempon, pentradis ĝin al si sub ĉiaj cirkonstancoj, timadis, ke ĝi ne venos, kaj ĝin deziradis, kaj sopiradis je ĝi en malproksima, malproksima loko!
 
-Denove la lumo! Klare kaj malproksime lumante, ekbruli-
-
-gite, kiel li sciis, por lin saluti kaj lumi al li al la malnova do-mo. Li faradis signojn per la mano, levadis la ĉapelon kaj kriadis al ili, kvazaŭ ili estus la lumo kaj povus lin aŭdi kaj vidi, kiel li ĝojege rapidas al ili sur la vojo.
-
-
-LA BATALO DE L’VIVO
+Denove la lumo! Klare kaj malproksime lumante, ekbruligite, kiel li sciis, por lin saluti kaj lumi al li al la malnova do-mo. Li faradis signojn per la mano, levadis la ĉapelon kaj kriadis al ili, kvazaŭ ili estus la lumo kaj povus lin aŭdi kaj vidi, kiel li ĝojege rapidas al ili sur la vojo.
 
 
 Haltu! Li konis la doktoron kaj antaŭsentis, kion li faris. Li ne devis fari al ili surprizon. Tamen li ĝin povus fari, se li per piedoj irus al la domo. Se la pordo de la ĝardeno estis nefermita, li povus tra tie eniri; se ne — transrampi la muron estis tre facile, kiel li sciis de la tempo malnova, kaj en unu minuto li estus inter ili.
@@ -1623,14 +1339,9 @@ Penante ekaŭdi ŝian vocon el la aliaj ceteraj voĉoj kaj jam duone konvinkite,
 ”Kio estas?” li ekkriis.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Mi ne scias. Mi … mi timas pensi pri tio ĉi. Foriru. ĉu vi aŭdas?”
 
-Subita bruo leviĝis en la domo. ŝi kovris al si per la manoj la orelojn. Krio de malespero, tiel laŭta, ke nenia mano povis bari la orelon, estis aŭdata; kaj Grace — kun teruro en la viza-
-
-ĝo kaj en la gestoj — elkuris el la domo.
+Subita bruo leviĝis en la domo. ŝi kovris al si per la manoj la orelojn. Krio de malespero, tiel laŭta, ke nenia mano povis bari la orelon, estis aŭdata; kaj Grace — kun teruro en la vizaĝo kaj en la gestoj — elkuris el la domo.
 
 ”Grace!” Li retenis ŝin per la brako. ”Kio estas? ĉu ŝi mortis?”
 
@@ -1652,17 +1363,12 @@ Li suprensaltis, kiel volante ŝin sekvi; sed kiam ili liberigis al li la vojon,
 
 Regis granda konfuzo kaj ekscito, sed sen celo kaj plano.
 
-Kelkaj ekkuris serĉi sur diversaj vojoj, aliaj alportis ĉevalojn aŭ torĉojn, aliaj laŭte paroladis inter si kaj diris, ke oni ne 72
-
-LA BATALO DE L’VIVO
+Kelkaj ekkuris serĉi sur diversaj vojoj, aliaj alportis ĉevalojn aŭ torĉojn, aliaj laŭte paroladis inter si kaj diris, ke oni ne
 
 
 havas eĉ la plej malgrandan postesignon. Kelkaj aliris al li kaj provis lnsoli; aliaj admonadis lin, ke Grace devas esti enportita en la domon, sed li ne respondis. Li neniun aŭskultis kaj sin ne movis.
 
 La neĝo falis ĉiam pli dense. Li suprenrigardis al la ĉielo kaj diris al si, ke tiu ĉi blanka cindro, kiu estas ŝutata sur lian esperon kaj lian suferon, bone konvenas al ili. Li rigardis ĉir-kaŭen sur la blankan teron kaj diris al si, ke la postesigno de la piedo de Marion, apenaŭ enpremita, tuj estos ree kovrita kaj eĉ tiu ĉi rememoro pri ŝi ne daŭros. Sed li nenion sentis de la vetero kaj ne movis sin de la loko.
-
-
-LA BATALO DE L’VIVO
 
 
 PARTO TRIA
@@ -1671,9 +1377,7 @@ De tiu nokto de la reveno la mondo fariĝis ses jarojn pli maljuna. Estis varma 
 
 Kiel bele kaj ĉarme la tero ekflamis en la lumo! La arbaro, antaŭe malluma, nigra maso, montris sian multkoloran veston de flavaĵo, verdaĵo, brunaĵo, kaj ruĝaĵo kaj la diversajn figurojn de siaj arboj, sur kies folioj pluvaj gutoj tremis kaj fajrerante defaladis. La suna kampo elrigardis, kvazaŭ ĝi an-taŭ minuto estis ankorau blinda kaj nun ricevis okulojn, per kiuj ĝi rigardis supren al la brilanta ĉielo. Kampoj de greno, bariloj, dometoj, la dense kolektitaj tegmentoj, la preĝejo, la rivereto, la muelejo, ĉio ridetante elrigardis el la nebula griza mallumo. Birdoj agrable kantis, floroj levis siajn mallevi-tajn kapojn, freŝaj odoroj eliris el la freŝigita tero; la bluaj strioj supre fariĝis pli grandaj kaj pli larĝaj; la malrektaj radioj de la suno jam trafis per mortiga sago la malrektan muron da nuboj, kiuj malrapidis ankoraŭ kun sia forflugo, kaj ĉielarko, enhavanta en si ĉiujn kolorojn, kiuj ornamis la teron kaj la ĉielon, triumfe eletendis sin sur la tuta horizonto.
 
-En tia vespera horo malgranda drinkejo apud la vojo, bele 74
-
-LA BATALO DE L’VIVO
+En tia vespera horo malgranda drinkejo apud la vojo, bele
 
 
 kaŝita post granda ulmo kun ĉarma ripoza benko ĉirkaŭ la
@@ -1687,9 +1391,6 @@ La ruĝaj kurtenoj en la ĉambroj de la partero kaj la neĝe blankaj flankkurten
 En la pordo nun aperis modelo de mastro; ĉar, kvankam
 
 estante malgranda, li tamen estis ronda kaj larĝa kaj staris la manoj en la poŝoj kaj la piedoj sufiĉe disstarigitaj, por esprimi fidon je sia kelo kaj senzorgan konfidon je la rimedoj de la drinkejo — tro trankvilan kaj senpretendan, por fariĝi fan-faronado. La riĉa malsekaĵo, kiu post la forta pluvo degutadis de ĉiu objekto, konvenis al li tre bone. Nenio ĉirkaŭ li havis soifon. Kelkaj georginoj kun pezaj kapoj, kiuj elrigardis super la palisaro de la bone tenata ĝardeneto, trinkis tiom, kiom ili nur povis elteni — eble eĉ iom pli multe — kaj estis plenaj je dolĉa trinkaĵo; sed la floroj en la ĝardeno kaj en la fenes-1 Speco de biero.
-
-
-LA BATALO DE L’VIVO
 
 
 tro kaj la folioj de la maljuna arbo estis en la trankvile gaja humoro de homoj, kiuj nur tiom trinkis, kiom estas bone por ili kaj sufiĉe, por disvolvi iliajn plej bonajn ecojn. Disŝutante sur la teron klarajn gutojn, ili kvazaŭ disdonadis senkulpan agrablaĵon, kiu faris bonon ĉie, kie ĝi falis, trafis forgesitajn anguletojn, kien la pli serioza pluvo nur malofte venadis, kaj al neniu faris doloron.
@@ -1713,9 +1414,6 @@ Poste li iris al la palisaro de la ĝardeno kaj rigardis la geor-ginojn. Ili rig
 de sinjoro Britain, en tia alta grado estis lia pli bona duono, ke li, disigite de ŝi, estis tute senhelpa kaj perdita.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Mi pensas, ke ŝi ne havas multe por forplenumi,” diris
 
 Ben. ”Oni devis en la urbo fari kelkajn negocojn, sed ne multe. Ho, jen ni ŝin fine havas!”
@@ -1733,9 +1431,6 @@ Kaj tiel efektive estis. Jen ŝi staras antaŭ ni, sana, korpulen-ta animo, kun 
 Konduku la ĉevalon en la ĉevalejon, Harry, kaj se ĝi denove tusos, donu al ĝi hodiaŭ vespere varman miksitan manĝon.
 
 Ok, naŭ, dek, — nu, kie estas dekunu? Ho, mi forgesis, estas bone. Kiel fartas la infanoj, Ben?”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Sanaj kaj viglaj, Clemency.”
@@ -1764,12 +1459,7 @@ La vizaĝo de sinjoro Britain ricevis esprimon tre seriozan kaj senmove rigardis
 
 ”Tio ĉi estas tre bona,” diris Ben.
 
-”Mi ĝojas, ke vi estas kontenta,” ekkriis lia edzino. ”Mi tieI pensis; kaj tio ĉi, mi pensas, estas ĉio, kaj nun nenion pli pri negocoj. Britain. Ha, ha, ha! Jen! Prenu la paperojn kaj enŝlo-su ilin. Ho, atendu momenton; jen estas ankoraŭ presita afi-
-
-ŝeto. ĵus el la presejo. Kiel bone ĝi odoras!”
-
-
-LA BATALO DE L’VIVO
+”Mi ĝojas, ke vi estas kontenta,” ekkriis lia edzino. ”Mi tieI pensis; kaj tio ĉi, mi pensas, estas ĉio, kaj nun nenion pli pri negocoj. Britain. Ha, ha, ha! Jen! Prenu la paperojn kaj enŝlo-su ilin. Ho, atendu momenton; jen estas ankoraŭ presita afiŝeto. ĵus el la presejo. Kiel bone ĝi odoras!”
 
 
 ”Kio tio ĉi estas?” diris Ben kaj rigardis la folion.
@@ -1778,9 +1468,7 @@ LA BATALO DE L’VIVO
 
 vorton.”
 
-”Vendo per aŭkcio,” legis la mastro, ”kun rezervo de an-
-
-taŭa privata konsentiĝo.”
+”Vendo per aŭkcio,” legis la mastro, ”kun rezervo de antaŭa privata konsentiĝo.”
 
 ”Tion ĉi ili ĉiam aldonas,” diris Clemency.
 
@@ -1798,17 +1486,10 @@ Sinjoro Britain ĝemis kaj balancis la kapon kaj diris, ke li ne povas tute komp
 
 Kun tiu ĉi rimarko li kontentigis sin kaj algluis la afiŝeton post la fenestro de la botelaro, kaj Clemency, starinte kelkajn mi-nutojn en pensoj, vekiĝis kaj rapidis for, por rigardi la infanojn.
 
-Kvankam la mastro de la Raspilo de Muskato havis gran-
-
-dan estimon por sia edzino, tamen tiu ĉi estimo havis tute la malnovan patronan karakteron; kaj ŝi forte lin amuzadis. Nenio pli mirigus lin, ol se iu tria montrus al li, kiel ŝi sola kondukas la tutan mastraĵon kaj per prudenta ŝparemeco, vigla humoro, honesteco kaj diligenteco faras lin homo bonhava.
+Kvankam la mastro de la Raspilo de Muskato havis grandan estimon por sia edzino, tamen tiu ĉi estimo havis tute la malnovan patronan karakteron; kaj ŝi forte lin amuzadis. Nenio pli mirigus lin, ol se iu tria montrus al li, kiel ŝi sola kondukas la tutan mastraĵon kaj per prudenta ŝparemeco, vigla humoro, honesteco kaj diligenteco faras lin homo bonhava.
 
 
-LA BATALO DE L’VIVO
-
-
-Tiel facile estas en ĉiaj cirkonstancoj (kaj tro ofte ĝi okazas) taksi la trankvilajn naturojn, kiuj neniam metas en lumon siajn meritojn, laŭ ilia propra modesta juĝo, kaj ofende sin amuzi pro eksteraj strangaĵoj kaj apartaĵoj je homoj, kies interna indo, se ni pli profunde volus rigardi, devus nin igi ru-
-
-ĝiĝi antaŭ ili!
+Tiel facile estas en ĉiaj cirkonstancoj (kaj tro ofte ĝi okazas) taksi la trankvilajn naturojn, kiuj neniam metas en lumon siajn meritojn, laŭ ilia propra modesta juĝo, kaj ofende sin amuzi pro eksteraj strangaĵoj kaj apartaĵoj je homoj, kies interna indo, se ni pli profunde volus rigardi, devus nin igi ruĝiĝi antaŭ ili!
 
 Sinjoro Britain kun plezuro pensadis pri la grandanimeco, kun kiu li edziĝis je Clemency. ŝi estis por li eterna atesto de lia bona koro, kaj li sentis, ke ŝia bonegeco estas nur jesigo de la malnova sentenco, ke la virto sin mem rekompencas.
 
@@ -1820,12 +1501,7 @@ Li algluis la folion, kaj la kvitancojn pri la negocoj de la hodiaŭa tago li en
 
 ”Jes, jes!” diris sinjoro Britain, prenante sian pladeton kiel ostron kaj sorbante ĝian enhavon en tia sama maniero.
 
-”Tiu ĉi sama sinjoro Michael Warden,” diris Clemency me-
-
-ditante, ”faris, ke mi perdis mian malnovan oficon.”
-
-
-LA BATALO DE L’VIVO
+”Tiu ĉi sama sinjoro Michael Warden,” diris Clemency meditante, ”faris, ke mi perdis mian malnovan oficon.”
 
 
 ”Kaj alportis al vi edzon,” diris sinjoro Britain.
@@ -1851,20 +1527,13 @@ pro ŝi kaj pro la fratino kaj la patro diri kion mi sciis, ne vere?”
 ”Mia Dio, kiel vi venis al tiu konv, Clemency?” demandis ŝia edzo, tute mirigite, ke ŝi klare komprenis veraĵon, kiu en lia filozofanta spirito nur naskiĝadis ankoraŭ.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Mi tion ĉi ne scias,” diris Clemency kaj blovis sian teon, por ĝin iom malvarmigi. ”Dio! mi ne povus tion ĉi diri se oni eĉ metus por tio ĉi rekompencon de cent funtoj!”
 
-Li kredeble ankoraŭ plu daŭrigus siajn metafizikajn kon-
-
-sideradojn, se ŝi ne rimarkus post li apud la pordo substan-can fakton en formo de unu sinjoro en funebro kaj en vestaĵo de rajdo. ŝajnis, ke li aŭskultas ilian paroladon kaj tute ne volas ilin interrompi.
+Li kredeble ankoraŭ plu daŭrigus siajn metafizikajn konsideradojn, se ŝi ne rimarkus post li apud la pordo substan-can fakton en formo de unu sinjoro en funebro kaj en vestaĵo de rajdo. ŝajnis, ke li aŭskultas ilian paroladon kaj tute ne volas ilin interrompi.
 
 Clemency rapide leviĝis. Ankaŭ sinjoro Britain faris tion saman kaj salutis la gaston. ”ĉu vi bonvolas supreniri, sinjoro? Estas tre bela ĉambro supre, sinjoro.”
 
-”Mi dankas,” diris la fremdulo kaj atente observis sinjo-
-
-rinon Britain. ”ĉu estas permesite eniri tien ĉi?”
+”Mi dankas,” diris la fremdulo kaj atente observis sinjorinon Britain. ”ĉu estas permesite eniri tien ĉi?”
 
 ”Ho, se plaĉas al vi,” respondis Clemency kaj malfermis la bufedan ĉambron. ”Kion vi ordonas, sinjoro?”
 
@@ -1880,9 +1549,7 @@ kaŝite lin rigardadis.
 
 ”Se vi volas doni al mi gluton da elo,” li diris, alirante al unu tablo apud la fenestro, ”kaj volos ĝin alporti tien ĉi, ne malhelpante al vi al via teo, mi estos al vi tre danka.”
 
-Ne farante pli ceremoniojn, li sidiĝis kaj rigardis sur la kampon. Li estis homo en la floro de la jaroj, bone kaj forte konstruita. Lian vizaĝon, brunigitan de la suno, ombris mallumaj haroj, kaj li portis lipharojn. Kiam oni alportis al li lian 82
-
-LA BATALO DE L’VIVO
+Ne farante pli ceremoniojn, li sidiĝis kaj rigardis sur la kampon. Li estis homo en la floro de la jaroj, bone kaj forte konstruita. Lian vizaĝon, brunigitan de la suno, ombris mallumaj haroj, kaj li portis lipharojn. Kiam oni alportis al li lian
 
 
 bieron, li enverŝis al si unu glason kaj afable trinkis pro la sano de la domo; kiam li ree metis la glason sur la tablon, li aldonis:
@@ -1901,18 +1568,13 @@ de doktoro Jeddler,” demandis la fremdulo. ”Tiu ĉi afiŝo rememorigas min p
 
 ”ĉu li forte ŝanĝiĝis?”
 
-”De kiam, sinjoro?” respondis Clemency kun aparta akcen-
-
-to.
+”De kiam, sinjoro?” respondis Clemency kun aparta akcento.
 
 ”De la tago, kiam lia filino lin forlasis.”
 
 ”Jes! De tiu tago li ŝanĝiĝis,” diris Clemency. ”Li fariĝis maljuna kaj griza kaj tute jam ne estas tiu sama homo; sed mi pensas, ke li nun estas konsolita. Li de tiam paciĝis kun sia fratino kaj ofte ŝin vizitas. Tio ĉi tuj bone faris al li. En la komenco li estis tre suferanta, kaj la koro sangis, kiam oni lin vidis vagantan kaj insultantan la mondon; sed post unu aŭ du jaroj li fariĝis tute alia kaj pli bona, kaj tiam li komencis volonte paroladi pri sia perdita filino kaj laŭdadi ŝin kaj ankaŭ la mondon! Kaj li neniam laciĝadis, kun larmoj parolante, kiel bela kaj bona ŝi estis. Li pardonis al ŝi. Tio ĉi estis ĉirkaŭ la tempo de la edziniĝo de fraŭlino Grace. Vi memoras ankoraŭ, Britain?”
 
 Sinjoro Britain memoris la aferon ankoraŭ tre bone. ”La
-
-
-LA BATALO DE L’VIVO
 
 
 fratino sekve estas edzinigita,” rimarkis la fremdulo. Li momenton silentis kaj poste demandis: ”Je kiu?”
@@ -1929,16 +1591,11 @@ duan manon kaj balancante la kapon rerigardis en la pasintajn jarojn, kiel oni r
 
 ”Sed mallonge rakontite?” diris la fremdulo.
 
-”Mallonge rakontite,” ripetis Clemency en tiu sama medita tono kaj ŝajne tute ne zorgante pri li kaj ne sciante, ke ŝi havas aŭskultantojn, ”kion oni povus tie ĉi diri? Ke ili kune mal-
-
-ĝojis, rememoradis ŝin kiel mortintan; ke ili tenis ŝin en ama rememoro, faradis al ŝi neniajn riproĉojn kaj trovadis senkul-pigojn por ŝi? Tion ĉi ĉiu scias. Mi almenaŭ tion ĉi scias, neniu scias tion ĉi pli bone!” aldonis Clemency, viŝante al si la okulojn per la mano.
+”Mallonge rakontite,” ripetis Clemency en tiu sama medita tono kaj ŝajne tute ne zorgante pri li kaj ne sciante, ke ŝi havas aŭskultantojn, ”kion oni povus tie ĉi diri? Ke ili kune malĝojis, rememoradis ŝin kiel mortintan; ke ili tenis ŝin en ama rememoro, faradis al ŝi neniajn riproĉojn kaj trovadis senkul-pigojn por ŝi? Tion ĉi ĉiu scias. Mi almenaŭ tion ĉi scias, neniu scias tion ĉi pli bone!” aldonis Clemency, viŝante al si la okulojn per la mano.
 
 ”Kaj tiel,” helpis la fremdulo …
 
 ”Kaj tiel,” diris Clemency, meąnike ripetante liajn vortojn kaj ne ŝanĝante sian pozicion kaj manieron de parolado. ”Tiel ili fine fariĝis edzo kaj edzino. Ili estis edzigitaj en la tago de ŝia naskiĝo — la tago morgaŭ revenos — tre trankvile, sed kontente kaj feliĉe. Sinjoro Alfred diris unu vesperon, kiam ili promenadis en la frukta ĝardeno: ’Grace, ĉu fari nian edziĝon en la tago de naskiĝo de Marion?’ Kaj tiel fariĝis.”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Kaj ili vivas feliĉe unu kun la alia?” demandis la fremdu-lo.
@@ -1958,12 +1615,7 @@ iom alŝovis sian seĝon pli proksimen al la fremdulo kaj observadis lin akre pe
 ”Kaj kia estas la plua sorto de la filino, kiu lin forlasis? Mi pensas, ke ili scias ĝin?”
 
 
-LA BATALO DE L’VIVO
-
-
-Clemency balancis la kapon. ”Mi aŭdis,” ŝi diris, ”ke doktoro Jeddler, kiel ŝajnas, pli scias, ol kiom li montras. Sinjorino Grace ricevis de ŝi leterojn, en kiuj ŝi skribas, ke ŝi bone fartas kaj ke la edziniĝo de tiu kun sinjoro Alfred faris ŝin feli-
-
-ĉa; kaj ŝi ankaŭ de si reskribis leterojn. Sed super ŝia vivo kaj sorto sin portas ia sekreto, kiu ĝis nun ne estas klarigita kaj kiun …”
+Clemency balancis la kapon. ”Mi aŭdis,” ŝi diris, ”ke doktoro Jeddler, kiel ŝajnas, pli scias, ol kiom li montras. Sinjorino Grace ricevis de ŝi leterojn, en kiuj ŝi skribas, ke ŝi bone fartas kaj ke la edziniĝo de tiu kun sinjoro Alfred faris ŝin feliĉa; kaj ŝi ankaŭ de si reskribis leterojn. Sed super ŝia vivo kaj sorto sin portas ia sekreto, kiu ĝis nun ne estas klarigita kaj kiun …”
 
 ŝia voĉo fariĝis ŝanceliĝa kaj ŝi haltis.
 
@@ -1979,9 +1631,7 @@ Clemency, malfacile spirante.
 
 per krio kaj per tio sama montris al sia edzo, kion ŝi antaŭe volis lin rimarkigi, kaj al Michael Warden, ke li estas rekoni-ta.
 
-”Vi mnas ankoraŭ, sinjoro,” diris Clemency, treman-
-
-te de eksciteco. ”Mi ĝin vidis! Vi mnas ankoraŭ de tiu nokto en la ĝardeno. Mi estis apud ŝi!”
+”Vi mnas ankoraŭ, sinjoro,” diris Clemency, tremante de eksciteco. ”Mi ĝin vidis! Vi mnas ankoraŭ de tiu nokto en la ĝardeno. Mi estis apud ŝi!”
 
 ”Jes, mi ĝin scias,” li diris.
 
@@ -1991,9 +1641,7 @@ kuru al sinjoro Alfred — kuru al kiu vi volas, Ben! Alkonduku iun, tuj!”
 
 ”Restu!” diris Michael Warden kaj trankvile stariĝis inter la pordo kaj Britain. ”Kion vi volas fari?”
 
-”Sciigi ilin, ke vi tie ĉi estas, sinjoro,” petis Clemency kaj kunebatis la manojn, tute ekster si de eksciteco. ”Sciigi ilin, ke de viaj lipoj ili povas pli multe aŭdi pri ŝi; ke ŝi ne tute estas perdita por ili, sed ke ŝi denove revenos, por sian patron kaj 86
-
-LA BATALO DE L’VIVO
+”Sciigi ilin, ke vi tie ĉi estas, sinjoro,” petis Clemency kaj kunebatis la manojn, tute ekster si de eksciteco. ”Sciigi ilin, ke de viaj lipoj ili povas pli multe aŭdi pri ŝi; ke ŝi ne tute estas perdita por ili, sed ke ŝi denove revenos, por sian patron kaj
 
 
 sian fratinon — kaj ankaŭ sian malnovan servantinon, min”
@@ -2017,9 +1665,6 @@ Li ne kontraŭparolis al ŝi; jes, ŝi ne vivas! Clemency sidiĝis, metis la viz
 En tiu ĉi minuto unu maljuna, griza sinjoro enkuris tute
 
 
-LA BATALO DE L’VIVO
-
-
 senspire, kaj laŭ lia sufokiĝanta voĉo oni apenaŭ povus rekoni en li sinjoron Snitchey.
 
 ”Mia Dio, sinjoro Warden!” diris la advokato kaj tiris lin flanken, ”kia vento” — li estis tiel laca, ke li devis halti kaj nur post kelkaj minutoj povis fini — ”alportis vin tien ĉi?”
@@ -2036,14 +1681,9 @@ Sendinte mian servanton al vi, mi tien ĉi eniris, ĉar la domo estis por mi nov
 
 ”Nia singardeco!” diris la advokato. ”Parolante al vi en la nomo de mi mem kaj de Craggs — benita memoro” — li rigardis la krepon sur sia ĉapelo kaj balancis la kapon — ”sinjoro Warden, kiel vi povas prudente nin kulpigi? Ni konsentis inter ni neniam tuŝi plu tiun ĉi objekton, ĉar ĝi ne estis afero, en kiun povus sin miksi tiaj seriozaj kaj solidaj homoj, kiel ni (mi ripetas vian tiaman esprimon). Nia singardeco! dum sinjoro Craggs deiris en sian estimatan tombon en la plena kredo —”
 
-”Mi donis solenan promeson, ke mi silentos, ĝis mi reve-
-
-nos, kiam ajn tio ĉi fariĝos,” interrompis lin sinjoro Warden,
+”Mi donis solenan promeson, ke mi silentos, ĝis mi revenos, kiam ajn tio ĉi fariĝos,” interrompis lin sinjoro Warden,
 
 ”kaj mi tenis mian promeson.”
-
-
-LA BATALO DE L’VIVO
 
 
 ”Bone, sinjoro, kaj mi ripetas, ni ankaŭ devis silenti. Al tio ĉi nin devigis nia ŝuldo kontraŭ ni mem kaj ankaŭ kontraŭ diversaj klientoj, inter kiuj vi estis. Ne konvenis al ni demandi vin pri tia delikata afero; mi havis mian suspekton, sinjoro; sed nur de ses monatoj mi scias la veron.”
@@ -2065,14 +1705,9 @@ Sinjoro Craggs, sinjoro,” diris Snitchey, por momento firme fermante la okuloj
 Sed li rigardis ĉe tiuj ĉi vortoj sur Clemency’on, kaj ŝajnis, ke li simpatias kun Ben, kiu ŝnsoladis.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Sinjoro Craggs, sinjoro,” rimarkis Snitchey, ”trovis, kiel mi bedaŭrinde devas diri, ke la vivo ne estas tiel facile retenebla, kiel lia teorio al li diris, alie li estus ankoraŭ inter ni. i estas granda perdo por mi. Sinjoro Craggs estis mia dekstra mano, mia dekstra piedo, mia dekstra orelo, mia dekstra okulo. Sen li mi estas kiel paralizita. Li testamentis sian partoprenon en la negoco al sinjorino Craggs, al ŝiaj plenumantoj de la testa-mento, administratoroj kaj kuratoroj. Lia nomo ankoraŭ nun staras sur la firmo. Iafoje mi provas, kiel infano, kredigi min mem, ke li ankoraŭ vivas. Mi ĉiam ankoraŭ diras: Snitchey por si kaj Craggs — mortinta, sinjoro — mortinta,” diris la molkora advokato kaj eltiris nazotukon el la poŝo.
 
-Michael Warden, kiu ĉiam ankoraŭ observadis Clemen-
-
-cy’on, turnis sin al Snitchey, kiam tiu ĉesis paroli, kaj murmuretis al li ion en la orelon.
+Michael Warden, kiu ĉiam ankoraŭ observadis Clemency’on, turnis sin al Snitchey, kiam tiu ĉesis paroli, kaj murmuretis al li ion en la orelon.
 
 ”Ha, la malfeliĉa virino!” diris Snitchey, balancante la kapon. ”Jes, ŝi ĉiam estis tre alligita al Marion. Bela Marion!
 
@@ -2086,20 +1721,14 @@ Clemency nur ĝemis kaj balancis la kapon. ”Nur paciencon
 
 ”Tion ĝi certe ne, alie ĝi sinjoron Craggs, benita memoro, farus denove viva,” respondis la advokato. ”Sed konsolon ĝi povas alporti. Paciencon ĝis morgaŭ!”
 
-Clemency skuis la donitan al ŝi manon kaj promesis tran-
+Clemency skuis la donitan al ŝi manon kaj promesis trankviliĝi; kaj Britain, kiu, vidante sian malĝojigitan edzinon (estis kvazaŭ la negoco mallevis la kapon), tute perdis la kura-
 
-kviliĝi; kaj Britain, kiu, vidante sian malĝojigitan edzinon (estis kvazaŭ la negoco mallevis la kapon), tute perdis la kura-
-
-ĝon, diris, ke tiel estas bone; kaj sinjoro Snitchey kaj Michael 90
-
-LA BATALO DE L’VIVO
+ĝon, diris, ke tiel estas bone; kaj sinjoro Snitchey kaj Michael
 
 
 Warden iris supren kaj tie supre baldaŭ estis profundigitaj en tiel singarde kondukatan interparoladon, ke per la krakado de la teleroj kaj pladoj, la muĝado de la patoj, la skuiĝado de la kaseroloj, la monotona bruado de la rostponarda rado kaj per la aliaj preparadoj en la kuirejo al ilia tagmanĝo ne tra-penetris eĉ unu vorteto.
 
-La sekvanta tago estis bela kaj hela, kaj nenie la aŭtune kolo-rita ĉirkaŭaĵo montris sin pli bela, ol el la paca ĝardeno de la doktoro. La neĝo de multaj vintraj noktoj estis tie ĉi fluidi-
-
-ĝinta, la velkintaj folioj de multaj someroj tie ĉi estis kraketin-taj de la tago, kiam ŝi forkuris. La laŭbo denove estis verda, la arboj ĵetadis belajn kaj tremantajn ombrojn sur la herbon, la teraĵo estis tiel gaje trankvila, kiel ĉiam; sed kie estis ŝi?
+La sekvanta tago estis bela kaj hela, kaj nenie la aŭtune kolo-rita ĉirkaŭaĵo montris sin pli bela, ol el la paca ĝardeno de la doktoro. La neĝo de multaj vintraj noktoj estis tie ĉi fluidiĝinta, la velkintaj folioj de multaj someroj tie ĉi estis kraketin-taj de la tago, kiam ŝi forkuris. La laŭbo denove estis verda, la arboj ĵetadis belajn kaj tremantajn ombrojn sur la herbon, la teraĵo estis tiel gaje trankvila, kiel ĉiam; sed kie estis ŝi?
 
 Ne tie. Ne tie. ŝi estus nun tie ĉi tiel stranga vidaĵo kiel, en la komenco, la domo sen ŝi. Sed sur ŝia kutima loko sidis sinjorino, el kies koro ŝi neniam malaperis, en kies fidela memoro ŝi ankoraŭ vivis, neŝanĝita, en la plena brilo de sia juneco kaj beleco, en kies amo — kaj tio ĉi estis nun amo de patrino, ĉar kara malgranda filino ludis apud ŝi — ŝi havis nenian kon-kurantinon, nenian sekvantinon, kaj sur kies delikataj lipoj ŝia nomo nun sidis.
 
@@ -2107,12 +1736,7 @@ La spirito de la malaperinta fraŭlino estis videbla el tiuj ĉi okuloj de Grace
 
 ĝardeno en sia tago de edziĝo kaj en la tago de naskiĝo de Marion kaj de li.
 
-Li ne fariĝis glora homo, ankaŭ ne riĉa; li ne forgesis la ĉir-kaŭaĵojn kaj la amikojn de sia juneco; li plenumis nenian el la profetaĵoj de la doktoro. Sed en siaj kaŝitaj kaj bonfaraj vi-zitoj en malriĉaj dometoj, en siaj maldormadoj kaj en sia ĉiu-91
-
-LA BATALO DE L’VIVO
-
-
-taga rimarkado de la multa beleco kaj boneco, kiu floras sur la flankaj vojetoj de la vivo kaj ne estas dispremata de la peza piedo de la malriĉeco, li kun ĉiu jaro pli lernis kaj pruvis la verecon de sia malnova kredo. Lia maniero de vivado, kiel ajn simpla kaj modesta ĝi estis, montris al li, kiel ofte ankoraŭ la homoj akceptas ĉe si anĝelojn, kiel en la tempo antikva, kaj kiel ofte la nenion prezentantaj figuroj, eĉ tiaj, kiuj ŝajnas al nia okulo ordinaraj kaj malbelaj kaj estas vestitaj en ĉifonoj, apud la lito sufera de la malsanulo montriĝas al ni en nova lumo kaj fariĝas helpemaj anĝeloj kun radia krono ĉirkaŭ la kapo.
+Li ne fariĝis glora homo, ankaŭ ne riĉa; li ne forgesis la ĉir-kaŭaĵojn kaj la amikojn de sia juneco; li plenumis nenian el la profetaĵoj de la doktoro. Sed en siaj kaŝitaj kaj bonfaraj vi-zitoj en malriĉaj dometoj, en siaj maldormadoj kaj en sia ĉiutaga rimarkado de la multa beleco kaj boneco, kiu floras sur la flankaj vojetoj de la vivo kaj ne estas dispremata de la peza piedo de la malriĉeco, li kun ĉiu jaro pli lernis kaj pruvis la verecon de sia malnova kredo. Lia maniero de vivado, kiel ajn simpla kaj modesta ĝi estis, montris al li, kiel ofte ankoraŭ la homoj akceptas ĉe si anĝelojn, kiel en la tempo antikva, kaj kiel ofte la nenion prezentantaj figuroj, eĉ tiaj, kiuj ŝajnas al nia okulo ordinaraj kaj malbelaj kaj estas vestitaj en ĉifonoj, apud la lito sufera de la malsanulo montriĝas al ni en nova lumo kaj fariĝas helpemaj anĝeloj kun radia krono ĉirkaŭ la kapo.
 
 Li eble pli bone plenumis sian homan difinon sur tiu ĉi
 
@@ -2124,14 +1748,9 @@ Kaj Marion? ĉu li ŝin forgesis?
 
 diris — ili parolis pri tiu nokto; ”kaj tamen ŝajnas, ke estas jam longe de tiu tempo. Ni kalkulas laŭ ŝanĝoj kaj okaziĝoj en ni, ne laŭ jaroj.”
 
-”Sed ankaŭ jaroj pasis de la tago, kiam Marion nin forla-
-
-sis,” respondis Grace. ”Ses fojojn, kara edzo, enkalkulante ankaŭ la hodiaŭan tagon, ni sidis tie ĉi en ŝia tago de naskiĝo kaj parolis pri ŝia tiel varmege sopirata kaj tiel longe prokras-tata reveno. Kiam ĝi fine estos!”
+”Sed ankaŭ jaroj pasis de la tago, kiam Marion nin forlasis,” respondis Grace. ”Ses fojojn, kara edzo, enkalkulante ankaŭ la hodiaŭan tagon, ni sidis tie ĉi en ŝia tago de naskiĝo kaj parolis pri ŝia tiel varmege sopirata kaj tiel longe prokras-tata reveno. Kiam ĝi fine estos!”
 
 ŝia edzo rigardis ŝin atente, kiel la larmoj kolektiĝis en ŝiaj okuloj, kaj pli proksime altirante ŝin al si, li diris: ”Sed Marion diris al vi en sia letero de adiaŭ, kiun ŝi lasis sur la tablo kaj kiun vi tiel ofte legis, ke jaroj devas pasi, antaŭ ol ĝi povas fariĝi. ĉu ne vere?”
-
-
-LA BATALO DE L’VIVO
 
 
 ŝi elprenis la leteron el sia surbrusto, kisis ĝin kaj diris:
@@ -2144,9 +1763,7 @@ LA BATALO DE L’VIVO
 
 ”Kaj en ĉiu letero, kiun ŝi skribis de tiu tempo?”
 
-”Ekster la lasta — antaŭ kelkaj monatoj — en kiu ŝi paro-
-
-lis pri vi kaj pri tio, kion vi tiam sciiĝis kaj kion mi hodiaŭ vespere devas aŭdi.”
+”Ekster la lasta — antaŭ kelkaj monatoj — en kiu ŝi parolis pri vi kaj pri tio, kion vi tiam sciiĝis kaj kion mi hodiaŭ vespere devas aŭdi.”
 
 Li rigardis la sunon, kiu staris proksime al la horizonto, kaj diris, ke la difinita tempo estas la malleviĝo de la suno!
 
@@ -2156,14 +1773,9 @@ Li rigardis la sunon, kiu staris proksime al la horizonto, kaj diris, ke la difi
 
 ”Kiam Marion foriris de ni, ŝi skribis en tiu letero, ke kiel iam vi konfidis ŝin al mi, ŝi metas vin nun en miajn manojn, Alfred; ŝi jeĵuris min en la nomo de mia amo al ŝi kaj al vi, ke mi ne forpuŝu la amon, kiun, kiel ŝi scias, vi transportos sur min, kiam la nun ankoraŭ freŝa vundo estos sanigita, sed ke mi ĝin vigligu kaj redonu.”
 
-”Kaj ke vi min denove faru feliĉa kaj kontenta homo, Gra-
-
-ce. ĉu ŝi tion ĉi ne skribis?”
+”Kaj ke vi min denove faru feliĉa kaj kontenta homo, Grace. ĉu ŝi tion ĉi ne skribis?”
 
 ”ŝi volis min tiel fari benita kaj honorita per via amo!” estis la respondo de lia edzino, kiam li prenis ŝin en siajn brakojn.
-
-
-LA BATALO DE L’VIVO
 
 
 ”Aŭskultu min, mia amata!” li diris — ”Ne tiel!” kaj kun tiuj ĉi vortoj li kviete metis ŝian kapon sur sian bruston. ”Mi scias, kial mi pri tiu ĉi loko en la letero neniam aŭdis. Mi scias, kial tiam nenia signo de tio ĉi montriĝis en vorto aŭ rigardo.
@@ -2186,9 +1798,7 @@ Post minuto li rigardis malsupren al la infano, kiu sidis apud ŝiaj piedoj kaj 
 
 ”Tute vere,” diris la edzo.
 
-”Antaŭ ol la suno sin kaŝos en la tago de naskiĝo de Ma-
-
-rion. Kaj vi vidas, Alfred, ĝi baldaŭ sin kaŝos.”
+”Antaŭ ol la suno sin kaŝos en la tago de naskiĝo de Marion. Kaj vi vidas, Alfred, ĝi baldaŭ sin kaŝos.”
 
 Li metis la brakojn ĉirkaŭ ŝi, rigardis al ŝi firme en la okulojn kaj diris:
 
@@ -2196,9 +1806,7 @@ Li metis la brakojn ĉirkaŭ ŝi, rigardis al ŝi firme en la okulojn kaj diris:
 
 ”De aliaj lipoj!” ŝi mallaŭte ripetis.
 
-”Jes. Mi konas vian kuraĝan koron, mi scias, kiel forta vi estas, kaj ke prepara vorto ĉe vi sufiĉas. Vi diris, ke la tempo 94
-
-LA BATALO DE L’VIVO
+”Jes. Mi konas vian kuraĝan koron, mi scias, kiel forta vi estas, kaj ke prepara vorto ĉe vi sufiĉas. Vi diris, ke la tempo
 
 
 venis. i venis. Diru al mi, ke vi estas sufiĉe forta, por elporti surprizon, skuiĝon: kaj la sciigonto atendas antaŭ la pordo.”
@@ -2223,13 +1831,9 @@ Malgraŭ lia trankvila rigardo, sur lia vizaĝo estis videbla esprimo, kiu ŝin 
 
 Dio! kio ĝi estas, kio elvenas el la ombro kaj restas sur la sojlo? Tiu ĉi figuro en la blanka vesto, movata de la vespera vento, la kapon ame alpremante al la brusto de ŝia patro! Ho, Dio! ĉu tio ĉi estis sonĝa fantomo, kio elŝiris ŝin el la brakoj de ŝia patro kaj kun ekkrio en sovaĝa malkvieto de amo falis en ŝiajn brakojn?
 
-”Ho, Marion, Marion! Ho, mia fratino! ho mia kara, ama-
+”Ho, Marion, Marion! Ho, mia fratino! ho mia kara, amata koro! Ho, neesprimebla feliĉo de la revidiĝo!”
 
-ta koro! Ho, neesprimebla feliĉo de la revidiĝo!”
-
-i ne estis ŝonĝo, ne fantomo fantazia, elvokita de espero kaj timo, sed Marion mem! Tiel ĉarma, tiel feliĉa, tiel netuŝita 95
-
-LA BATALO DE L’VIVO
+i ne estis ŝonĝo, ne fantomo fantazia, elvokita de espero kaj timo, sed Marion mem! Tiel ĉarma, tiel feliĉa, tiel netuŝita
 
 
 de malĝojo kaj suferoj, tiel belega kaj rava, ke, kiam la malleviĝanta suno brilis sur ŝia levita vizaĝo, ŝi elrigardis kiel anĝelo, kiu benon portante vizitas la teron.
@@ -2240,13 +1844,9 @@ Marion tenis en la brakoj sian fratinon, kiu falis sur benkon, kaj ŝi kliniĝis
 
 — ”
 
-”Ho, kara koro! Nur unu minuton! Ho, Marion, ke mi de-
+”Ho, kara koro! Nur unu minuton! Ho, Marion, ke mi denove aŭdas vin paroli.”
 
-nove aŭdas vin paroli.”
-
-ŝi ne povis aŭskulti la amatan voĉon sen profunda, pre-
-
-skaŭ turmenta skuiĝo.
+ŝi ne povis aŭskulti la amatan voĉon sen profunda, preskaŭ turmenta skuiĝo.
 
 ”Kiam mi loĝis ankoraŭ sub tiu ĉi amata tegmento, Grace,
 
@@ -2254,11 +1854,7 @@ mi lin amis per mia tuta koro. Mi lin amis plej profunde. Mi povus morti por li,
 
 ŝia fratino povis nur rigardi al ŝi en la vizaĝon kaj forte ŝin teni en la brakoj.
 
-”Sed mem ne sciante tion,” diris Marion kun kvieta ride-
-
-to, ”li akiris alian koron, ankoraŭ antaŭ ol mi havis koron por donaci al li. Tiu koro — via, kara fratino — estis tiel plena je 96
-
-LA BATALO DE L’VIVO
+”Sed mem ne sciante tion,” diris Marion kun kvieta rideto, ”li akiris alian koron, ankoraŭ antaŭ ol mi havis koron por donaci al li. Tiu koro — via, kara fratino — estis tiel plena je
 
 
 aldoniteco al mi, tiel memoferema, kaj nobla, ke ĝi kaŝis sian amon kaj tenis ĝin sekrete de la okuloj de ĉiuj, ekster miaj okuloj — ha, kiaj okuloj estus tiel akrigitaj de amo kaj danke-meco! — kaj oferis sin por mi. Sed mi konis la profundecon de tiu ĉi koro. Mi konis la batalon, kiun ĝi elportis. Mi sciis, kiel alta kaj netaksebla estis por li la indo de tiu ĉi koro, kiel ajn forte li min amas. Mi sciis, kiom mi ŝuldas al tiu ĉi koro, mi havis ĝian belan ekzemplon ĉiutage antaŭ la okuloj. Kion vi faris por mi, Grace, tion ĉi mi sciis, ke mi povos fari ankaŭ por vi, se mi volos. Mi neniam iris dormi, ne peteginte antaŭe Dion kun larmoj, ke Li donu al mi la forton por tio ĉi. Mi neniam iris dormi sen pensado pri la propraj vortoj de Alfred ĉe la adiaŭdiro, ke ĉiutage en homaj koroj estas farataj venkoj, en komparo kun kiuj tiuj ĉi kampoj de batalo tute perdas sian signifon. Kaj kiam mi ĉiam pli kaj pli pensadis pri la rifuziĝoj, kiuj ĉiutage estas renkontataj en la mondo kaj eĉ ne estas ri-markataj, tiam ankaŭ mi sentis, ke mia ŝarĝo fariĝis al mi kun ĉiu tago pli facila! Kaj Li, kiu nun rigardas en nian koron kaj scias, ke nenia guto da malĝojo aŭ doloro sin trovas en la mia, nenio ekster nemiksita feliĉo, Li donis al mi la forton por la decidiĝo fariĝi neniam la edzino de Alfred. Ke li fariĝu mia frato kaj via edzo, se mia agado povus alporti tiun ĉi feliĉan rezultaton, sed ke mi neniam (Grace, mi amis lin tiam profunde) estu lia edzino!”
@@ -2266,9 +1862,6 @@ aldoniteco al mi, tiel memoferema, kaj nobla, ke ĝi kaŝis sian amon kaj tenis 
 ”Ho Marion! Ho, Marion!” murmuretis Grace.
 
 ”Mi provis ŝajnigi min indiferenta por li” — ŝi alpremis la vizaĝon de sia fratino al sia vango — ”sed tio ĉi estis tro malfacila, kaj vi ĉiam estis lia fervora propetantino. Mi provis komuniki al vi mian decidon, sed vi neniam volis min aŭskulti, neniam kompreni. La tempo de lia reveno alproksimiĝadis.
-
-
-LA BATALO DE L’VIVO
 
 
 Mi sentis, ke mi devas agi, antaŭ ol tiu ĉi ĉiutaga kunestado renoviĝos. Mi sentis, ke granda doloro en tiu momento ŝpa-rus al ni ĉiuj longajn suferojn. Mi sciis, ke se mi forkuros an-taŭ li, fine devas veni tio, kio nun venis kaj kio nin ambaŭ faris tiel feliĉaj, Grace! Mi skribis al la onklino Martha kaj petis ŝin, ke ŝi min akceptu en sia domo; mi tiam ne diris al ŝi la tutan veron, sed ŝi plenumis volonte mian peton. Dum mia decido batalis ankoraŭ kun mi mem, kun mia amo al vi
@@ -2292,9 +1885,6 @@ honoro; mi diris al li mian sekreton en la vespero antaŭ lia kaj mia forkuro. L
 Grace konfuzite rigardis ŝin. ŝajnis, ke ŝi apenaŭ aŭdas.
 
 
-LA BATALO DE L’VIVO
-
-
 ”Amata fratino!” diris Marion, ”kolektu viajn pensojn por unu momento: aŭskultu min. Ne rigardu min tiel strange.
 
 Estas landoj, kie tiuj, kiuj volas forpremi ribelan pasion aŭ kuraci profundan doloron de sia brusto, retiras sin en eternan solecon kaj disigas sin por eterne de la mondo kaj de ĝiaj sentoj. Se virinoj tion ĉi faras, ili akceptas la nomon, kiu estas al mi tiel kara en vi, kaj nomas sin fratinoj. Sed ekzistas ankaŭ fratinoj, Grace, kiuj sin movas sub la libera ĉielo de Dio kaj en la viva amaso da homoj, kie ili penas, kiom ili povas, alporti benon kaj fari bonon; kaj kun koro ankoraŭ freŝa kaj juna kaj ankoraŭ akceptema por feliĉo ili povas diri: la batalo longe pasis, la venko longe estas akirita. Kaj tia fratino mi estas! ĉu vi min nun komprenas?”
@@ -2312,12 +1902,7 @@ ankoraŭ estas libera, mi ĉiam ankoraŭ estas via virga fratino, ne edzinigita,
 Kiam ili denove iom trankviliĝis, ili vidis apud si la doktoron kaj la onklinon Martha, lian fratinon, kaj Alfredon.
 
 
-LA BATALO DE L’VIVO
-
-
-”Tio ĉi estas por mi malbona tago,” diris la onklino Mar-
-
-tha, ridetante tra larmoj, kiam si ĉirkaŭprenis siajn nevinojn;
+”Tio ĉi estas por mi malbona tago,” diris la onklino Martha, ridetante tra larmoj, kiam si ĉirkaŭprenis siajn nevinojn;
 
 ”ĉar dum mi vin ĉiujn faras feliĉaj, mi perdas amatan filinon; kaj kion vi povas al mi doni por mia Marion?”
 
@@ -2343,9 +1928,7 @@ mondo, kiu enhavas nenion seriozan,” diris la doktoro.
 
 ”Vi povus prezenti dudek atestojn por tio ĉi, Anthony,” rimarkis lia fratino, ”kaj tamen neniu, se li nin vidus, kredus al vi.”
 
-”i estas mondo plena je koroj,” diris la doktoro kaj ĉir-kaŭprenis ambaŭ filinojn per unu fojo — ĉar li ne povis disigi la fratinojn unu de la alia: ”kaj serioza mondo kun ĉiuj ĝiaj malsaĝaĵoj — eĉ kun miaj, kiuj estis sufiĉe grandaj por kovri 100
-
-LA BATALO DE L’VIVO
+”i estas mondo plena je koroj,” diris la doktoro kaj ĉir-kaŭprenis ambaŭ filinojn per unu fojo — ĉar li ne povis disigi la fratinojn unu de la alia: ”kaj serioza mondo kun ĉiuj ĝiaj malsaĝaĵoj — eĉ kun miaj, kiuj estis sufiĉe grandaj por kovri
 
 
 la tutan teron; mondo, super kiu la suno neniam leviĝas sen rigardi milojn da sensangaj bataloj, kiuj la suferojn kaj la kri-mojn de la kampoj de sangaj bataloj iom denove rebonigas; mondo, kiun ni ne devas moki, ĉar ĝi estas plena je sanktaj sekretoj, kaj nur ĝia Kreinto scias, kio kuŝas kaŝita sub la eksteraĵo de Lia plej modesta similaĵo.”
@@ -2354,9 +1937,7 @@ Mi ne farus al vi komplezon, se mi per mallerta mano volus analizi la ĝojon de 
 
 Ni ankaŭ ne rakontos, kiel Alfred Heathfield en la ĵus pasinta jaro sciiĝis la veron; kiel Marion lin vidis kaj al li kiel al frato promesis, ke en la vespero de ŝia tago de naskiĝo ŝi al Grace ĉion rakontos per propra buŝo.
 
-”Mi petas pardonon, doktoro,” diris sinjoro Snitchey, en-
-
-rigardante en la ĝardenon, ”ĉu estas permesate malhelpi?”
+”Mi petas pardonon, doktoro,” diris sinjoro Snitchey, enrigardante en la ĝardenon, ”ĉu estas permesate malhelpi?”
 
 Ne atendante respondon, li aliris rekte al Marion kaj tute
 
@@ -2364,20 +1945,13 @@ Ne atendante respondon, li aliris rekte al Marion kaj tute
 
 ”Se sinjoro Craggs ankoraŭ vivus, mia estimata fraŭlino
 
-Marion,” diris sinjoro Snitchey, ”li kun granda intereso vidus la hodiaŭan tagon. Li eble venus al la opinio, ke la vivo al ni ne estas farata tro facila, sinjoro Alfred; ke ĝi ĉiun malgran-101
-
-LA BATALO DE L’VIVO
-
-
-dan faciliĝon, kiun ni povas doni al ĝi, bone povus elporti; sed sinjoro Craggs estis homo, kiu lasis snvinki. Se li nun estus konvinkebla … sed tio ĉi estas malfortaĵo. Kara edzino”
+Marion,” diris sinjoro Snitchey, ”li kun granda intereso vidus la hodiaŭan tagon. Li eble venus al la opinio, ke la vivo al ni ne estas farata tro facila, sinjoro Alfred; ke ĝi ĉiun malgrandan faciliĝon, kiun ni povas doni al ĝi, bone povus elporti; sed sinjoro Craggs estis homo, kiu lasis snvinki. Se li nun estus konvinkebla … sed tio ĉi estas malfortaĵo. Kara edzino”
 
 — ĉe tiu ĉi voko la sinjorino aperis en la pordo — ”vi estas inter malnovaj konatoj.”
 
 Dirinte al ili gratulon, sinjorino Snitchey tiris sian edzon flanken.
 
-”Nur por unu momento, sinjoro Snitchey,” diris la sinjori-no. ”Mi ne havas la kutimon paroli malbonon pri mortin-
-
-toj …”
+”Nur por unu momento, sinjoro Snitchey,” diris la sinjori-no. ”Mi ne havas la kutimon paroli malbonon pri mortintoj …”
 
 ”Ne, kara edzino,” respondis ŝia edzo.
 
@@ -2385,9 +1959,7 @@ toj …”
 
 ”Jes, mia kara, li nun ne vivas,” diris sinjoro Snitchey.
 
-”Sed mi petas vin, rememoru tiun vesperon de balo,” daŭ-
-
-rigis lia edzino. ”Nur tion ĉi mi vin petas. Se vi ĝin faros, kaj se via memoro ne tute vin forlasas kaj vi estas ne tute senka-pa, mi vin petas ligi la hodiaŭan vesperon kun la tiama kaj rememori, kiel mi sur la genuoj vin petegis …
+”Sed mi petas vin, rememoru tiun vesperon de balo,” daŭrigis lia edzino. ”Nur tion ĉi mi vin petas. Se vi ĝin faros, kaj se via memoro ne tute vin forlasas kaj vi estas ne tute senka-pa, mi vin petas ligi la hodiaŭan vesperon kun la tiama kaj rememori, kiel mi sur la genuoj vin petegis …
 
 ”Sur la genuoj?” diris sinjoro Snitchey.
 
@@ -2399,18 +1971,14 @@ rigis lia edzino. ”Nur tion ĉi mi vin petas. Se vi ĝin faros, kaj se via mem
 
 ”Ne,” respondis sinjorino Snitchey akre. ”Ne imagu al vi.”
 
-”ĉar ni en tiu vespero okaze,” li daŭrigis kaj forte ŝin tenis per la maniko, ”ambaŭ posedis sekretojn kaj ambaŭ sciis tion saman. Sekve, edzino, ju pli malmulte vi parolos pri tiu ĉi 102
-
-LA BATALO DE L’VIVO
+”ĉar ni en tiu vespero okaze,” li daŭrigis kaj forte ŝin tenis per la maniko, ”ambaŭ posedis sekretojn kaj ambaŭ sciis tion saman. Sekve, edzino, ju pli malmulte vi parolos pri tiu ĉi
 
 
 afero, des pli bone; kaj prenu tion ĉi kiel instruon, por en estonteco rigardi la aferojn kun pli kompata kaj pli saĝa okulo.
 
 Fraŭlino Marion, mi alkondukis malnovajn konatojn.”
 
-Clemency, tenante la antaŭtukon antaŭ la okuloj, malrapi-
-
-de eniris, sub la brako de sia edzo; tiu ĉi lasta kun plenda vizaĝo, esprimanta la antaŭsenton, ke la Raspilo de Muskato estos perdita, se ŝi perdos la kuraĝon.
+Clemency, tenante la antaŭtukon antaŭ la okuloj, malrapide eniris, sub la brako de sia edzo; tiu ĉi lasta kun plenda vizaĝo, esprimanta la antaŭsenton, ke la Raspilo de Muskato estos perdita, se ŝi perdos la kuraĝon.
 
 ”Nu, sinjorino,” diris la advokato kaj retenis Marion’on, kiu volis kuri renkonte al la malnova servantino, ”kio do mankas al vi?”
 
@@ -2420,9 +1988,7 @@ mirigita kaj ofendita de la demando kaj ektimigita de laŭta kriego de sinjoro B
 
 Tuj post sinjoro Snitchey unu fremdulo eniris en la ĝardenon kaj restis apud la pordo, ne rimarkata de la aliaj; ĉar restis al ili tro malmulte da libera atento, kaj tiu ĉi malmulto sole kaj tute estis altirita de la ĝoja bruado de Clemency. ŝajnis, ke li ne volis esti rimarkita, sed staris flanke kun mallevitaj okuloj; kaj lia vizaĝo montris malgajan esprimon (kvankam li cetere estis belfigura sinjoro ), kiun la komuna gajeco faris ankoraŭ pli falanta en la okulojn.
 
-Nur onklino Martha lin rimarkis kaj tuj aliris al li kaj parolis kun li. Baldaŭ poste ŝi denove aliris al Marion, kiu kun 103
-
-LA BATALO DE L’VIVO
+Nur onklino Martha lin rimarkis kaj tuj aliris al li kaj parolis kun li. Baldaŭ poste ŝi denove aliris al Marion, kiu kun
 
 
 Grace kaj kun sia malgranda samnomulino formis ĉarman
@@ -2441,27 +2007,16 @@ Warden kaj ricevas nun novan per li. Mi havos la plezuron en tiuj ĉi tagoj el l
 
 ”En tia okazo,” diris sinjoro Britain kaj donis al li returne la dokumenton de donaco, ”aldonu ankoraŭ la vortojn ’kaj
 
-Fingringo’, kaj mi volas ambaŭ sentencojn pendigi en la lo-
+Fingringo’, kaj mi volas ambaŭ sentencojn pendigi en la loĝejo anstataŭ la portreto de mia edzino.”
 
-ĝejo anstataŭ la portreto de mia edzino.”
-
-”Kaj al mi,” diris voĉo post li — ĝi estis la fremdulo, Michael Warden — ”la enhavo de tiuj sentencoj alportu servon. Sinjoro Heathfield kaj doktoro Jeddler, mi povus al vi ambaŭ alporti grandan doloron. Ke tio ĉi ne fariĝis, ne estis mia merito. Mi ne volas diri, ke mi je ses jaroj estas pli saĝa aŭ pli bona. Sed en ĉiu okazo mi tiel longe pentis. Mi ne havas pre-tendon je indulga agado de via fIanko. Mi malbonuzis la gas-tamon de via domo kaj ekkonis miajn mankojn — kun hon-
-
-tigo, kiun mi neniam forgesis, sed, mi pensas, ankaŭ ne sen utilo — de unu” — li rigardis Marion’on — ”kiun mi humile 104
-
-LA BATALO DE L’VIVO
+”Kaj al mi,” diris voĉo post li — ĝi estis la fremdulo, Michael Warden — ”la enhavo de tiuj sentencoj alportu servon. Sinjoro Heathfield kaj doktoro Jeddler, mi povus al vi ambaŭ alporti grandan doloron. Ke tio ĉi ne fariĝis, ne estis mia merito. Mi ne volas diri, ke mi je ses jaroj estas pli saĝa aŭ pli bona. Sed en ĉiu okazo mi tiel longe pentis. Mi ne havas pre-tendon je indulga agado de via fIanko. Mi malbonuzis la gas-tamon de via domo kaj ekkonis miajn mankojn — kun hontigo, kiun mi neniam forgesis, sed, mi pensas, ankaŭ ne sen utilo — de unu” — li rigardis Marion’on — ”kiun mi humile
 
 
 petis pardoni al mi, kiam mi ekkonis ŝian meriton kaj mian senindecon. Post kelkaj tagoj mi forlasos tiun ĉi lokon por eterne. Mi petas vin ĉiujn pardoni al mi. Kiel vi volas, ke la homoj al vi faru, tiel faru ankaŭ al ili! Forgesu kaj pardonu!”
 
 La Tempo — kiu rakontis al mi la lastan parton de tiu ĉi historio, kaj kiun mi havas la plezuron koni persone de ĉirkaŭ tridek kvin jaroj — sciigis min, malŝate sin apogante sur sian falĉilon, ke Michael Warden neniam forlasis Anglujon kaj
 
-sian domon ne vendis, sed malfermis ĝin denove kun kon-
-
-vena gastamo, kaj havis edzinon, la fieron kaj la honoron de la tuta ĉirkaŭaĵo, kun la nomo Marion. Sed ĉar mi rimarkis, ke la Tempo iafoje intermiksas faktojn, tial mi efektive ne scias, kiom mi povas kredi al ĝiaj rakontoj.
-
-
-LA BATALO DE L’VIVO
+sian domon ne vendis, sed malfermis ĝin denove kun konvena gastamo, kaj havis edzinon, la fieron kaj la honoron de la tuta ĉirkaŭaĵo, kun la nomo Marion. Sed ĉar mi rimarkis, ke la Tempo iafoje intermiksas faktojn, tial mi efektive ne scias, kiom mi povas kredi al ĝiaj rakontoj.
 
 
 www.omnibus.se/

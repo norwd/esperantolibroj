@@ -8,14 +8,6 @@ Ernest Drezen
 ZAMENHOF
 
 
-@omnibus.se
-
-·
-
-
-ZAMENHOF
-
-
 I. Zamenhof kaj Zamenhofa
 
 mondkoncepto
@@ -44,12 +36,7 @@ lasta Pola revolucio, sufokita plej kruele de rusaj ĝendarmoj kaj regimentoj.
 
 ĉe tia ĝenerala situacio estis speciale notinda, ke la patro de Ludoviko — Marko Zamenhof, privata lernejposedanto en
 
-Bialystok, ricevis oficialan ŝtatan postenon. Li fariĝis instru-3
-
-ZAMENHOF
-
-
-isto en la ŝtata mezlernejo, kio estis okazo malofta por la hebreoj.
+Bialystok, ricevis oficialan ŝtatan postenon. Li fariĝis instruisto en la ŝtata mezlernejo, kio estis okazo malofta por la hebreoj.
 
 En la j. 1873 Marko Zamenhof transloĝiĝis kun sia familio Varsovion, kie li instruis germanan lingvon en Reala lernejo kaj Veterinara Instituto.
 
@@ -59,13 +46,9 @@ Evidente Marko Zamenhof havis grandan konfidon ĉe la
 
 Permesoj por tiaj pensionejoj estis donataj de la registaraj institucioj kun granda singardemo — nur al tiuj, kiuj neniu-rilate povus malbone influi la lernantojn, kaj la hebreoj ja estis ĉiam speciale suspektataj de la cara politika polico.
 
-Konfido, kiun ĝuis Marko Zamenhof ĉe la ŝtataj aŭtorita-
+Konfido, kiun ĝuis Marko Zamenhof ĉe la ŝtataj aŭtoritatoj, plue montriĝis en la fakto, ke li fariĝis cenzuristo por ek-sterlanda gazetaro1.
 
-toj, plue montriĝis en la fakto, ke li fariĝis cenzuristo por ek-sterlanda gazetaro1.
-
-Mortis Marko Zamenhof 70 jaraĝa en la 1907, havante ti-
-
-tolon ”ŝtatkonsilisto”2.
+Mortis Marko Zamenhof 70 jaraĝa en la 1907, havante titolon ”ŝtatkonsilisto”2.
 
 Detalajn informojn pri Zamenhofa junaĝo oni povas ricevi
 
@@ -80,14 +63,9 @@ kapabla lingvisto, pedagogo — principe kaj praktike aplikanta la metodojn de c
 2 E. Wiesenfeld. «Galerio de Zamenhofoj». Horrem b. Köln, 1924. p. 7.
 
 
-ZAMENHOF
-
-
 La patrino estis molanima, profunda kredantino male al la patro-ateisto.
 
-Ludoviko heredis de sia patro kapablon por studoj diver-
-
-saj kaj speciale por lingvo-studoj, obstinon kaj persiston. De patrino li heredis — modestecon, trankvilon kaj sopiron al io, kio levus lin super la vivo ordinara. Li ĝuis aŭtoritaton kaj amikecon de ĉiuj siaj lernejkamaradoj. Privat atestas, ke en lernejo ”por problemoj malfacilaj de lerneja tasko li estis hel-pema konsilanto”. En la hejmo kaj ekster la hejmo Ludoviko akre sentis la ĝenon, kiun kaŭzis lia hebrea deveno kaj malfacilaj vivkondiĉoj de lia familio. Malfacila kaj peza estis lukto de Zamenhof, studento kaj komencanta kuracisto, por rajto vivi kaj por prizorgi la necesajn vivrimedojn.
+Ludoviko heredis de sia patro kapablon por studoj diversaj kaj speciale por lingvo-studoj, obstinon kaj persiston. De patrino li heredis — modestecon, trankvilon kaj sopiron al io, kio levus lin super la vivo ordinara. Li ĝuis aŭtoritaton kaj amikecon de ĉiuj siaj lernejkamaradoj. Privat atestas, ke en lernejo ”por problemoj malfacilaj de lerneja tasko li estis hel-pema konsilanto”. En la hejmo kaj ekster la hejmo Ludoviko akre sentis la ĝenon, kiun kaŭzis lia hebrea deveno kaj malfacilaj vivkondiĉoj de lia familio. Malfacila kaj peza estis lukto de Zamenhof, studento kaj komencanta kuracisto, por rajto vivi kaj por prizorgi la necesajn vivrimedojn.
 
 La tuta Zamenhofa ideologio ensorbita de li en hejmo, lernejo kaj sur stratoj de Bialystok kaj Varsovio estis tiu de la nacie kaj ekonomie premita kaj ekspluatata etburĝaro de pol-hebreaj urbetoj Pollandaj.
 
@@ -99,12 +77,7 @@ Frato de Ludoviko — Leono Zamenhof rakontas en verketo
 
 ”Ankaŭ dum la jaroj gimnaziaj lin multe interesis diversaj sociaj demandoj.
 
-De plej junaj siaj jaroj li revis pri solvado de tiaj problemoj, sed plej multe lin interesis la problemo de diversnaciaj inter-5
-
-ZAMENHOF
-
-
-rilatoj. i instigis lin ekprovi kreon de lingvo neŭtrala internacia”.
+De plej junaj siaj jaroj li revis pri solvado de tiaj problemoj, sed plej multe lin interesis la problemo de diversnaciaj interrilatoj. i instigis lin ekprovi kreon de lingvo neŭtrala internacia”.
 
 La familio kaj la ĉirkaŭanta lin socio ne povis doni al Ludoviko ĝustajn klarigojn pri la kaŭzoj de la ekzistanta nacia kaj ekonomia subpremo, pri la veraj kaŭzoj de nacia batalado kaj malamikemo reciproka.
 
@@ -122,10 +95,7 @@ verŝajne nur dank’al ĝi Zamenhof pripensis ĝis la fino, ella-boris ĝis la 
 
 La problemoj fakte pli gravaj restis por li ĉiam flankaj kaj tuta lia atento, tuta streĉo de lia menso estis ĉiam direktita nur al unu — por li sentime grava punkto.
 
-1 «Fundamenta Krestomatio», p. 269
-
-
-ZAMENHOF
+1 «Fundamenta Krestomatio», p.
 
 
 Zamenhof konsideris sin kiel pioniro, kiel profeto de tiu ideo. Li antaŭvidis multajn obstaklojn, sed li kredis al sia pra-veco kaj al fina triumfo de sia ideo.
@@ -169,43 +139,27 @@ En la raporto, prezentita dum la j. 1900 al kongreso de
 Franca societo por progresigo de sciencoj, Zamenhof, defen-1 Fundamenta Krestomatio p. 274–276.
 
 
-ZAMENHOF
-
-
 dante la eblecon de Lingvo Internacia, samtempe plurfoje
 
 argumentas kontraŭ ŝovinismo, kiel produkto de lingva diferenco.
 
 Sincere li klopodas konvinki la ŝovinistojn, ke amo al sia popolo kaj al la tuta homaro troviĝas en sama rilato kiel amo al sia familio kaj al sia nacio1.
 
-Dum la III Universala Kongreso de esperanto en Cambrid-
+Dum la III Universala Kongreso de esperanto en Cambridge (1907 j.) Zamenhof forte akcentis:
 
-ge (1907 j.) Zamenhof forte akcentis:
+”Ni deziras krei neŭtralan fundamenton, sur kiu la diversaj homaj gentoj povus pace kaj frate interkomunikiĝadi, ne altrudante al si reciproke siajn gentajn apartaĵojn”.
 
-”Ni deziras krei neŭtralan fundamenton, sur kiu la diver-
-
-saj homaj gentoj povus pace kaj frate interkomunikiĝadi, ne altrudante al si reciproke siajn gentajn apartaĵojn”.
-
-En sia memuaro pezentita al la Internacia Kongreso de Ra-
-
-soj en Londono (26–29 VII, 1911), li asertas, ke la kaŭzo de malamo intergenta ne estas kaŭzo ekonomia:
+En sia memuaro pezentita al la Internacia Kongreso de Rasoj en Londono (26–29 VII, 1911), li asertas, ke la kaŭzo de malamo intergenta ne estas kaŭzo ekonomia:
 
 ”Ni malamas fremdajn gentojn ne ĉar ni timas, ke ili nin
 
 ekonomie englutos, sed ni krias pri englutado tial, ke ni ilin malamas.”1
 
-Sendube erara estis la la pretendo de Zamenhofa memu-
+Sendube erara estis la la pretendo de Zamenhofa memuaro, ke ”ne kaŭzoj ekonomiaj kreas la intergentan malamon”.
 
-aro, ke ”ne kaŭzoj ekonomiaj kreas la intergentan malamon”.
-
-uste tiuj kaŭzoj ĝin kreas. La ekonomia konkurado de di-
-
-versnaciaj financistoj kaj entreprenistoj — estas ĉiam prezen-tata kiel konkurado inter nacioj kaj gentoj. Samtempe la klasoj ekspluatantaj lerte organizas gentan malamon inter la klasoj malsuperaj de la socio, ĉar sub tiu ŝirmo estas faciligata ekspluatado de tiuj klasoj malsuperaj kaj estas malfortigata ilia povo por organizita kontraŭstaro al la tendencoj eksplu-atistaj.
+uste tiuj kaŭzoj ĝin kreas. La ekonomia konkurado de diversnaciaj financistoj kaj entreprenistoj — estas ĉiam prezen-tata kiel konkurado inter nacioj kaj gentoj. Samtempe la klasoj ekspluatantaj lerte organizas gentan malamon inter la klasoj malsuperaj de la socio, ĉar sub tiu ŝirmo estas faciligata ekspluatado de tiuj klasoj malsuperaj kaj estas malfortigata ilia povo por organizita kontraŭstaro al la tendencoj eksplu-atistaj.
 
 Same eraris Zamenhof, kiam en la j. 1913 li asertis ke ”ling-1 L. Zamenhof.«Gentoj kaj Lingvo lnternacia». Leipzig. 1912 p. 4.
-
-
-ZAMENHOF
 
 
 va ŝovinismo estas unu el la ĉefaj kaŭzoj de malamo inter homoj”1.
@@ -214,9 +168,7 @@ Li en tiu frazo anstataŭis kaŭzon per la sekvo, ĉar ŝovinismo mem estas sekv
 
 ĝia kaŭzo.
 
-Tia grandigo de la genta kaj lingva problemo, malakcepta-
-
-ta de seriozaj laborantoj kaj batalantoj sur la kampo de la sociaj reformoj, — estis la ĉefideo, kiun kun la lingvo akceptis kiel aksiomon la unuaj pioniroj de la nova lingvo.
+Tia grandigo de la genta kaj lingva problemo, malakceptata de seriozaj laborantoj kaj batalantoj sur la kampo de la sociaj reformoj, — estis la ĉefideo, kiun kun la lingvo akceptis kiel aksiomon la unuaj pioniroj de la nova lingvo.
 
 ĉirkaŭ tiu ideo grupiĝis la unua areto de esperantistoj, kaj tiu ideo estis la liganta por ili centro.
 
@@ -224,9 +176,7 @@ Same kiel la idealismo Zamenhofa instigis lin kaj helpis al li doni skizon de la
 
 Zamenhof, blindigita de siaj ideoj, ofte ne povis rimarki la ekzistantajn kontraŭdirojn inter siaj asertoj kaj la vivo reala.
 
-En sia parolado dum la VI Internacia Kongreso en Wash-
-
-ington (1910) li salutis Usonon per la vortoj: ”Lando de libereco, lando de estonteco”…
+En sia parolado dum la VI Internacia Kongreso en Washington (1910) li salutis Usonon per la vortoj: ”Lando de libereco, lando de estonteco”…
 
 Zamenhof estis tiel ĉarmita per la penso, ”ke tiu lando
 
@@ -235,24 +185,17 @@ apartenas ne al tiu aŭ alia gento aŭ eklezio”, ke li forgesis pri la miliono
 Li forgesis, ke la ŝovinismo lingva kaj religia en Usono dis-floras same riĉe, kiel en la landoj Eŭropaj (eble nur sub iom 1 Dro L. L. Zamenhof «Deklaracio pri Homaranismo», Madrid, 1913, p. 11.
 
 
-ZAMENHOF
-
-
 aliaj formoj), ĉar la sistemo de socia ordo en Usono kaj Eŭro-po enhavas ja nenion esence diferencan.
 
 Vere, post unu jaro en memuaro, adresita al la ”Kongreso
 
-de Rasoj”, Zamenhof jam faris kelkajn rezervojn por aliaj kaŭ-
-
-zoj de sociaj malpacoj. Li skribis:
+de Rasoj”, Zamenhof jam faris kelkajn rezervojn por aliaj kaŭzoj de sociaj malpacoj. Li skribis:
 
 ”La intergenta diseco kaj malamo plene malaperos nur
 
 tiam, kiam la tuta homaro havos unu lingvon kaj unu religi-on…
 
-Daŭros tiam en la homaro tiuj diversaj malpacoj, kiuj re-
-
-gas interne de ĉiu lando kaj gento, kiel ekzemple malpacoj politikaj, partiaj, ekonomiaj, klasaj k. t. p. sed plej terura el ĉiuj, la malamo intergenta, tute malaperos”.1
+Daŭros tiam en la homaro tiuj diversaj malpacoj, kiuj regas interne de ĉiu lando kaj gento, kiel ekzemple malpacoj politikaj, partiaj, ekonomiaj, klasaj k. t. p. sed plej terura el ĉiuj, la malamo intergenta, tute malaperos”.1
 
 Sed eĉ en tiu sia memuaro nek unu vorton diris Zamenhof
 
@@ -273,22 +216,15 @@ Certe en sia ”Deklaracio pri Homaranismo” (1913 j.) Zamenhof mem konstatis, 
 1 L. L. Zamenhof «Gentoj kaj Lingvo Internacia». Leipzig 1912. p. p. 11–12.
 
 
-ZAMENHOF
-
-
 Sed li volis kredi ke la Lingvo Internacia jam kreis adeptojn pretajn por aliĝi al iuj pli klare esprimitaj filozofie-etikaj principoj.
 
 La unua Universala Kongreso de esperanto sugestis al li
 
 penson ke:
 
-”Nun en Bulonjo sur Maro fakte komenciĝas en pli gran-
+”Nun en Bulonjo sur Maro fakte komenciĝas en pli granda mezuro la reciproka kompreniĝado kaj fratiĝado de la di-verspopolaj membroj de la homaro”.
 
-da mezuro la reciproka kompreniĝado kaj fratiĝado de la di-verspopolaj membroj de la homaro”.
-
-Li volis kredi, ke esperanto kaj ĝia interna ideo jam komencas unuigi homaron en ”unu rondo familia, ĉar nun ni vidas antau ni grandegan nombron da varmegaj amikoj de es-
-
-peranto, kiuj reprezentas per si preskaŭ ĉiujn landojn de la tera globo, preskaŭ ĉiujn naciojn, ĉiujn rangojn kaj klasojn de la homoj”.
+Li volis kredi, ke esperanto kaj ĝia interna ideo jam komencas unuigi homaron en ”unu rondo familia, ĉar nun ni vidas antau ni grandegan nombron da varmegaj amikoj de esperanto, kiuj reprezentas per si preskaŭ ĉiujn landojn de la tera globo, preskaŭ ĉiujn naciojn, ĉiujn rangojn kaj klasojn de la homoj”.
 
 Tiuj vortoj estas fakta esprimo de la idealo de klas-paco.
 
@@ -300,12 +236,7 @@ unu jaro skribis: ”La mirinda sukceso de la Bulonja Kongre-so konvinkis la ini
 
 Tial anstataŭ nebula esperantismo li decidis fondi pli kla-re difinitan filozofie-socian movadon ”Homaranismon”.
 
-Samloke (p. 6) Zamenhof klarigas la ĉefan celon kaj kon-
-
-vn de homaranoj: ”La homaranoj estas konvinkitaj ke ĉiu 1 «Homaranismo (Hilelismo», Peterburgo, 1906, p. 5.
-
-
-ZAMENHOF
+Samloke (p. 6) Zamenhof klarigas la ĉefan celon kaj konvn de homaranoj: ”La homaranoj estas konvinkitaj ke ĉiu 1 «Homaranismo (Hilelismo», Peterburgo, 1906, p. 5.
 
 
 nacia aŭ religia ŝovinismo kaj ĉiu celado de unu gento regi super aliaj gentoj, kiel bazita sur malvero kaj rajto de pugno, pli aŭ malpli frue devas malaperi”.
@@ -316,34 +247,23 @@ estas intence prisilentita la fakto, ke por la malapero de ŝovinismo necesas pr
 
 kiu klasoj superaj premas kaj ekspluatas la klasojn malsupe-rajn.
 
-La fundamenta esenco de la homaranismo estas esprimi-
-
-ta en la I kaj II punktoj de la ”Deklaracio pri Homaranismo”
+La fundamenta esenco de la homaranismo estas esprimita en la I kaj II punktoj de la ”Deklaracio pri Homaranismo”
 
 de la j. 1913.
 
-”Mi rigardas la tutan homaron kiel unu familion, la dividi-tecon de la homaro en diversajn reciproke malamikajn gen-
-
-tojn kaj sentreligiajn komunumojn mi rigardas kiel unu el la plej grandaj malfeliĉoj”, kaj:
+”Mi rigardas la tutan homaron kiel unu familion, la dividi-tecon de la homaro en diversajn reciproke malamikajn gentojn kaj sentreligiajn komunumojn mi rigardas kiel unu el la plej grandaj malfeliĉoj”, kaj:
 
 ”ĉian ofendadon aŭ premadon de homo pro tio, ke li apartenas al alia gento, alia lingvo, aŭ alia religio, aŭ alia socia klaso, ol mi, mi rigardas kiel barbareco”.
 
-Tre karakterize por Zamenhof estas, ke en la unua redak-
+Tre karakterize por Zamenhof estas, ke en la unua redakta formo de la ”Deklaracio”1 mankis la vortoj ”aŭ alia socia klaso”.
 
-ta formo de la ”Deklaracio”1 mankis la vortoj ”aŭ alia socia klaso”.
-
-En la intertempo de la jaroj 1906–13 la penso de Zamen-
-
-hof lernis konsideri gravecon de la socia problemo pri klasdiferenco.
+En la intertempo de la jaroj 1906–13 la penso de Zamenhof lernis konsideri gravecon de la socia problemo pri klasdiferenco.
 
 Sed, lerninte tion, Zamenhof ne volis kaj ne povis reesplori
 
 ĝustecon de siaj ideoj. Li metis la klasdiferencon apud diferencoj gentaj, lingvaj kaj religiaj, kaj pensis ke ĉiuj malbo-naĵoj, rezultantaj el tiuj diferencoj, estos solvataj per akcepto de lingvo komuna kaj de mondkoncepto homaranista.
 
 1 «Dogmoj de Hilelismo»» Peterburgo, 1906 p. 13–14.
-
-
-ZAMENHOF
 
 
 Tiujn-ĉi ideojn Zamenhofajn, kiuj kapablus nur fuŝi realan komprenon de la ekzistantaj soci-fortoj, necesas repuŝi plej energie.
@@ -360,25 +280,17 @@ por ĉiuj nacioj kaj popoloj, tiu principo estas praktike enkon-dukita per la no
 
 lando” k. t. p.
 
-Same la propono de Zamenhof en kvina punkto de la De-
-
-klaracio pri edukado de infanoj en senŝovinisma spirito —
+Same la propono de Zamenhof en kvina punkto de la Deklaracio pri edukado de infanoj en senŝovinisma spirito —
 
 estas efektivigita ĝuste en Sovet-Unio per specialaj kursoj de tiel nomata ”Internacia edukado”. Ankaŭ en kelkaj aliaj landoj specialaj, starigitaj en lernejoj, kursoj pri ”Ligo de Nacioj” pretendas efektivigi tiun ideon de Zamenhof.
 
-En Sovet-Unio estis same akceptita la principa diferenci-
-
-go de ideoj pri ”lingvo devena (gepatra)” kaj ”lingvo persona (de ĉiutaga uzo)”.
+En Sovet-Unio estis same akceptita la principa diferencigo de ideoj pri ”lingvo devena (gepatra)” kaj ”lingvo persona (de ĉiutaga uzo)”.
 
 Naciismo kaj ŝovinismo ĉe Zamenhof (Zionismo)
 
-Fakte la penso pri propra popolo kaj ĝiaj malfeliĉoj estis kaŭ-
+Fakte la penso pri propra popolo kaj ĝiaj malfeliĉoj estis kaŭzo, kiu inspiris Zamenhofon mem por la ideo internaciling-va kaj por la ”interna ideo de esperantismo”.
 
-zo, kiu inspiris Zamenhofon mem por la ideo internaciling-va kaj por la ”interna ideo de esperantismo”.
-
-Ni trovas atestojn, ke eĉ la lingvon internacian li komen-ce volis krei ”unue kaj ĉefe por sia malfeliĉa popolo, dividita 13
-
-ZAMENHOF
+Ni trovas atestojn, ke eĉ la lingvon internacian li komen-ce volis krei ”unue kaj ĉefe por sia malfeliĉa popolo, dividita
 
 
 inter multaj landoj kaj lingvoj, popolo kiu ree povos esti unui-gita dank’al la lingvo”1.
@@ -387,17 +299,11 @@ Certan tempon dum siaj studentaj jaroj ”li multe studis kaj okupiĝis pri la k
 
 ”Li revis pri Palestino. Multajn poeziojn kaj propagand-ar-tikolojn li skribadis tiutemajn.
 
-”Dum la unua sionista kongreso en Varsovio li havis bri-
+”Dum la unua sionista kongreso en Varsovio li havis brilan paroladon, kiu famigis lin en la koncernaj sferoj”2. Pri la samo rakontas ankaŭ E. Privat.
 
-lan paroladon, kiu famigis lin en la koncernaj sferoj”2. Pri la samo rakontas ankaŭ E. Privat.
+Tamen kun paso de la tempo Zamenhof komprenis, ke zionismo estas nur alia formo de la sama nacia ŝovinismo, kiun li lernis per tuta forto de sia menso malami de sia junaĝo mem.
 
-Tamen kun paso de la tempo Zamenhof komprenis, ke zio-
-
-nismo estas nur alia formo de la sama nacia ŝovinismo, kiun li lernis per tuta forto de sia menso malami de sia junaĝo mem.
-
-Lasinte ideon de zionismo, Zamenhof ne povis akcepti an-
-
-kaŭ la ideojn de konsekvencaj asimilistoj, kiuj, prezenante ideologion de certa parto de bonstata hebrea burĝaro, volis vidi solvon por la hebrea problemo en plena dissolvado de la nacio hebrea inter nacioj ĝin ĉirkaŭantaj.
+Lasinte ideon de zionismo, Zamenhof ne povis akcepti ankaŭ la ideojn de konsekvencaj asimilistoj, kiuj, prezenante ideologion de certa parto de bonstata hebrea burĝaro, volis vidi solvon por la hebrea problemo en plena dissolvado de la nacio hebrea inter nacioj ĝin ĉirkaŭantaj.
 
 Li volis konservi pura kaj senmakula sian ”neŭtralan supernacian homaranismon”.
 
@@ -408,9 +314,6 @@ Li volis konservi pura kaj senmakula sian ”neŭtralan supernacian homaranismon
 «Progreso», Praha, 1927 j. N 3., p 18.
 
 2 E. Wilsenfeld. «Galerio de Zamenhofoj», Horrem bei Köln, 1924 j. p. 13.
-
-
-ZAMENHOF
 
 
 vas mnsoli per la kredo, ke la nenormala stato en mia hejma lando pli aŭ malpli frue pasos”.
@@ -425,13 +328,9 @@ ligo, al kies inciatintoj li skribis jenon:
 
 ”Laŭ miaj konvj mi ne povas ligi min kun la celado kaj idealoj de speciala gento aŭ religio.
 
-Mi estas profunde konvinkita, ke ĉiu nacionalismo prezen-
+Mi estas profunde konvinkita, ke ĉiu nacionalismo prezentas por la homaro nur plej grandan malfeliĉon, kaj ke la celado de ĉiuj homoj devus esti krei harmonian homaron. Es-
 
-tas por la homaro nur plej grandan malfeliĉon, kaj ke la celado de ĉiuj homoj devus esti krei harmonian homaron. Es-
-
-tas vero, ke la nacionalismo de gentoj premataj — kiel nature sindefenda reago — estas multe pli pardoninda ol la nacionalismo de gentoj premantaj, sed se la nacionalismo de fortuloj estas nenobla, la nacionalismo de malfortuloj estas ne-prudenta… mi volas labori nur por interhoma justeco abso-
-
-luta”.1
+tas vero, ke la nacionalismo de gentoj premataj — kiel nature sindefenda reago — estas multe pli pardoninda ol la nacionalismo de gentoj premantaj, sed se la nacionalismo de fortuloj estas nenobla, la nacionalismo de malfortuloj estas ne-prudenta… mi volas labori nur por interhoma justeco absoluta”.1
 
 Li volis kredi ke ”per tio mi alportos al mia malfeliĉa gento multe pli da bono, ol per celado nacionalisma”.
 
@@ -442,16 +341,9 @@ La neeviteblaj kontraŭdiroj inter la vivo reala, kiun li obser-vis, kaj la idea
 1 E. Privat, «Vivo de Zamenhof», London, 1920, pp. 185–186.
 
 
-ZAMENHOF
+En la ”Preĝo sub verda standardo”, deklamita de Zamenhof dum la 1-a Kongreso, li parolis pri dio, kiel nekonata fort-ego, forto mistera la mondon reganta.
 
-
-En la ”Preĝo sub verda standardo”, deklamita de Zamen-
-
-hof dum la 1-a Kongreso, li parolis pri dio, kiel nekonata fort-ego, forto mistera la mondon reganta.
-
-Same en la deka punkto de la ”Deklaracio pri Homaranis-
-
-mo” li parolas pri dio, kiel ”la plej alta, por mi nekomprenebla forto”.
+Same en la deka punkto de la ”Deklaracio pri Homaranismo” li parolas pri dio, kiel ”la plej alta, por mi nekomprenebla forto”.
 
 Nekomprenitaj kaj nekompreneblaj restis por li la kreaj
 
@@ -476,16 +368,11 @@ Zamenhof volis, ke homoj aliaj ne travivu tiun tragedion
 de hezito kaj de fantoma scrĉado, kiun travivis li mem, kiam li, deksesjara knabo-ateisto, revante pri la bono de la homaro kaj ne havante ĝustan ideon pri la vojoj de homara evoluo, 1 «Homaramismo (Hilelismo», Peterburgo, 1906. p. 15.
 
 
-ZAMENHOF
-
-
 devis por savi sian idealisman konceptaron, reveni al dio kaj religio.
 
 Zamenhof volis:
 
-”savi sian posteularon kontraŭ senprogrameco kaj konse-
-
-kvence kontraŭ refalo en gente-religian ŝovinismon”.
+”savi sian posteularon kontraŭ senprogrameco kaj konsekvence kontraŭ refalo en gente-religian ŝovinismon”.
 
 Certe jam ne konvinkige, sed artifike sonas la alvoko, kiun preparis Zamenhof dum milito por la projektata kongreso
 
@@ -510,9 +397,6 @@ falsaj teorioj artefaritaj, idealistaj.
 1 E. Privat, «Vivo de Zamenhof», London, 1920, p. 175.
 
 
-ZAMENHOF
-
-
 Tolstoj kaj Zamenhof
 
 La ideoj de Zamenhof pri starigo de paco anstataŭ ekzistantaj interlukto kaj batalo ”inter homoj, gentoj kaj soci-klasoj”
@@ -523,17 +407,11 @@ E. Privat skribis: ”Post brila novelista kariero la riĉa grafo konvertiĝis a
 
 Tolstoj same kiel Zamenhof komprenis la malbonojn de la
 
-nuntempa soci-ordo. Tolstoj same kiel Zamenhof ne sukce-
+nuntempa soci-ordo. Tolstoj same kiel Zamenhof ne sukcesis kompreni la leĝojn, kiuj direktas progreson de homa gento kaj socio. Serĉinte elirejon el la nuntempa malbono ili ambaŭ dronis en teorioj idealistaj.
 
-sis kompreni la leĝojn, kiuj direktas progreson de homa gento kaj socio. Serĉinte elirejon el la nuntempa malbono ili ambaŭ dronis en teorioj idealistaj.
+Ambaŭ ismoj — tolstojanismo kaj homaranismo estis protestoj kontraŭ la formoj de moderna kulturo, kontraŭ la sis-temoj politika kaj ekonomia de la moderna socio.
 
-Ambaŭ ismoj — tolstojanismo kaj homaranismo estis pro-
-
-testoj kontraŭ la formoj de moderna kulturo, kontraŭ la sis-temoj politika kaj ekonomia de la moderna socio.
-
-Sed al Zamenhof mankis tiuj kuraĝo kaj konsekvenco, ki-
-
-ujn posedis Tolstoj.
+Sed al Zamenhof mankis tiuj kuraĝo kaj konsekvenco, kiujn posedis Tolstoj.
 
 Tolstoj faris energian alvokon por reveno al la natura vivo, por detruo de la nuntempa kulturo, por plena natura ĉesigo de la homaro-ekzisto.
 
@@ -546,24 +424,17 @@ Tolstoj esprimis esence reakcian ideologion de la socio-
 2 EI la verko «Kredu vin mem». en Esp.: L. N. Tolstoj «Pri la perforto, milito kaj revolucio». Sofio 1928 p. 12.
 
 
-ZAMENHOF
-
-
 klasoj terkulturistaj, kiujn la rapida evoluo de nuntempaj produktad-rimedoj ĵetas en seneliran, ĉiam pli progresantan mi-zeron kaj malesperon.
 
 Zamenhof restis ĉe mezaj pozicioj. Al finaj konkludoj logikaj li ne venis kaj ne povis veni. Plena akcepto de tolstojanismo ja farus tute ne necesa, tute senutila tutan bataladon de Zamenhof por la lingvo komuna. La mezaj pozicioj de Zamenhof restis tiuj de la urba etburĝaro, ne vidanta revenon al mastrummetodoj de antaŭindustria epoko, sed samtempe
 
-suferanta pro premo kaj ekspluatado de la moderna koncen-
-
-triĝanta kaj ŝtatiĝanta financ-kapitalo.
+suferanta pro premo kaj ekspluatado de la moderna koncentriĝanta kaj ŝtatiĝanta financ-kapitalo.
 
 Tiuj mezaj pozicioj povis produkti nur senforman atendon
 
 kaj esperon ”ke iam ĉio ŝanĝiĝos kaj boniĝos”.
 
-Tamen en la senformaj idealistaj sopiroj de Zamenhof es-
-
-tis io komuna al tolstojanismo. Tion atestis la letero de Tolstoj mem, datita 27 IV 1894. Li skribis:
+Tamen en la senformaj idealistaj sopiroj de Zamenhof estis io komuna al tolstojanismo. Tion atestis la letero de Tolstoj mem, datita 27 IV 1894. Li skribis:
 
 ”Mi vidis multfoje, kiel homoj rilatis malamike nur dank’al materiala malhelpo je reciproka komprenado. La lernado de esperanto kaj ĝia disvastigo estas sendube kristana afero, kio estas la ĉefa kaj sola celo de la homa vivo”.
 
@@ -573,12 +444,7 @@ Sed por la cara registaro estis malagrabla eĉ la negativa kritiko de la nuntemp
 
 i rimarkis la interligon okazontan inter tolstojanismo kaj esperantismo. Sufiĉis publikigi artikolon de Tolstoj ”Kredo kaj Prudento” en No 2 de ”La Esperantisto”, 1895 j, por ke tiu gazeto estu en Ruslando por ĉiam malpermesita.
 
-Tiamaniere la unua provo pli intime interligi la ambaŭ mo-19
-
-ZAMENHOF
-
-
-vadojn donis gravan baton al juna senforta ankoraŭ esperan-to.
+Tiamaniere la unua provo pli intime interligi la ambaŭ movadojn donis gravan baton al juna senforta ankoraŭ esperan-to.
 
 Eble tio estis plua kaŭzo, kial tiu interligo ne fariĝis pli in-tima kaj pli forta.
 
@@ -590,9 +456,7 @@ Li volis, li celis doni socian valoron al siaj pensoj kaj paroloj. Dum la II Int
 
 j.) li diris:
 
-”Senkolora oficiala parolo estus granda peko de mia flan-
-
-ko. Mi venas al vi el lando, kie nun multaj milionoj da homoj malfacile batalas pro libereco, pro la plej elementa homa libereco, pro la rajtoj de homo”.
+”Senkolora oficiala parolo estus granda peko de mia flanko. Mi venas al vi el lando, kie nun multaj milionoj da homoj malfacile batalas pro libereco, pro la plej elementa homa libereco, pro la rajtoj de homo”.
 
 Sed la limigitaj konceptoj de esperantismo permesis al li paroli nur pri unu el la sekvoj kaj tute ne pri la kaŭzo:
 
@@ -603,9 +467,6 @@ Zamenhof bone parolis pri:
 ”Aro da abomenindaj krimuloj, kiuj per diversaj plej ruzaj kaj plej malnoblaj rimedoj, per amase dissemataj mensogoj kaj kalumnioj arte kreas teruran malamon inter unuj gentoj kaj aliaj”.
 
 Sed li ne trovis vortojn necesajn por klarigi la motivojn, kial tiuj mensogoj kaj kalumnioj estas dissemataj. Li atestas, ke:
-
-
-ZAMENHOF
 
 
 ”Ni ne kredas, ke neŭtrala fundamento faros el la homoj
@@ -626,19 +487,12 @@ La samon li ripetis ĉe la fino de sia parolado dum la III Universala Kongreso d
 
 ”Vivu Esperanto, sed antaŭ ĉio vivu la celo kaj la interna ideo de la esperantistaro, vivu la frateco de la popoloj, vivu ĉio, kio rompas la murojn inter la gentoj”.
 
-is la fino de sia vivo mem Zamenhof suferis grandan ba-
-
-talon inter siaj revoj — idealoj kaj la reala vivo.
-
-
-ZAMENHOF
+is la fino de sia vivo mem Zamenhof suferis grandan batalon inter siaj revoj — idealoj kaj la reala vivo.
 
 
 Li komprenis nesufiĉecon de siaj proponoj, sed li ne sciis kiamaniere ilin vastigi kaj fortigi.
 
-Jam dum la mondmilito en ”Alvoko dediĉita al la eventu-
-
-ale okazonta ’Kongreso por neŭtrala homa religio’ li projektis ”starigon de neŭtrale-homa etika regularo”1.
+Jam dum la mondmilito en ”Alvoko dediĉita al la eventuale okazonta ’Kongreso por neŭtrala homa religio’ li projektis ”starigon de neŭtrale-homa etika regularo”1.
 
 Eble en tiu regularo li estus pli vaste kaj pli klare disvolvin-ta siajn soci-potitikajn idealojn.
 
@@ -667,9 +521,6 @@ Tiuj tendencoj kaŝi sian personecon kreskis ĉe Zamenhof
 kun la jaroj, des pli ke lia oficiala situacio de la aŭtoro de rap-1 E. Privat ”Vivo de Zamenhof”, London, 1920 j. p. 179.
 
 
-ZAMENHOF
-
-
 ide vastiĝanta nova lingvo ĝenis lin kaj malhelpis al li libere paroli kaj agiti por plej karaj al li revoj, por liaj eraraj, sed ĉiuokaze bonintencaj idealoj de socia rekonstruo.
 
 Dum la V Kongreso Esperantista en Barcelono (1909 j.) li
@@ -692,12 +543,7 @@ Zamenhof esperis, ke liberigita de iu oficiala movadon re-prezentanta rolo, Ii p
 
 Sed Ii malsukcesis.
 
-Antaŭ la komenco de la X-a Kongreso Esperantista en Pa-
-
-rizo eksplodis mondmilito. Zamenhof eĉ ne sukcesis pridis-kuti kun siaj amikoj-sampensuloj la ”Deklaracion pri Homaranismo», publikigitan en la j. 1913.
-
-
-ZAMENHOF
+Antaŭ la komenco de la X-a Kongreso Esperantista en Parizo eksplodis mondmilito. Zamenhof eĉ ne sukcesis pridis-kuti kun siaj amikoj-sampensuloj la ”Deklaracion pri Homaranismo», publikigitan en la j. 1913.
 
 
 Lasta tragedio de Zamenhof
@@ -710,28 +556,17 @@ intersekve skribis ke la kongreso okazos en urbo svisa:
 
 ”en lastaj tagoj de ”, poste «en la unuaj tagoj de ”, kaj finfine kun mano tremantaj: ”post la fino de la milito”.
 
-Por Zamenhof la kaŭzoj de mondmilito restis ne kompre-
-
-nitaj. Li ankaŭ ĉe la fino de sia vivo kapablis pensi nur pri lingvo neŭtrala kaj religio neŭtrala. Sed, ne penetrinte en la esencajn kaŭzojn de moderna kapitalismo kaj imperialismo, Zamenhof jam bone antaŭvidis, ke la rezultato de tiu milito estos nula, ke ĝi finiĝos per simpla flikado de la antaŭmilitaj ŝtatlimoj.
+Por Zamenhof la kaŭzoj de mondmilito restis ne komprenitaj. Li ankaŭ ĉe la fino de sia vivo kapablis pensi nur pri lingvo neŭtrala kaj religio neŭtrala. Sed, ne penetrinte en la esencajn kaŭzojn de moderna kapitalismo kaj imperialismo, Zamenhof jam bone antaŭvidis, ke la rezultato de tiu milito estos nula, ke ĝi finiĝos per simpla flikado de la antaŭmilitaj ŝtatlimoj.
 
 La ”letero al diplomatio”, skribita dum la pasko 1915, estis lia cigno-kanto.
 
 Li sin turnis ne al popoloj, sed al la formalaj reprezentantoj de tiuj popoloj — al diplomatoj.
 
-Firma kaj klare-pensa menso de Zamenhof, tiel alte taks-
+Firma kaj klare-pensa menso de Zamenhof, tiel alte taksinta la rolon de kolektivismo ĉe kreado de nova lingvo, jam ĉesis kredi al kreaj fortoj de hom-masoj ĉe solvado de problemoj sociaj. Zamenhof, lasinta tiun senton kolektivisman, trafis en plej senesperan situacion.
 
-inta la rolon de kolektivismo ĉe kreado de nova lingvo, jam ĉesis kredi al kreaj fortoj de hom-masoj ĉe solvado de problemoj sociaj. Zamenhof, lasinta tiun senton kolektivisman, trafis en plej senesperan situacion.
+Mankis al liaj proponoj firmeco. Mankis al Zamenhof kredo pri realigeblo de liaj proponoj.
 
-Mankis al liaj proponoj firmeco. Mankis al Zamenhof kre-
-
-do pri realigeblo de liaj proponoj.
-
-Anstataŭ iuj klaraj kaj certaj kuraciloj por forigi la malbo-24
-
-ZAMENHOF
-
-
-naĵojn de la nuntempa socio — li povis fari nur kelkajn su-gestojn paliativajn.
+Anstataŭ iuj klaraj kaj certaj kuraciloj por forigi la malbonaĵojn de la nuntempa socio — li povis fari nur kelkajn su-gestojn paliativajn.
 
 La ”Letero al Diplomatio” enhavas nur unu solan postulon, ke post milito estu deklarite, ke ĉiu lando ”morale kaj mate-riale plene apartenas al ĉiuj siaj filoj”. Li insistis ke grava jam estus rezulto de la milito, se anstataŭ naciaj nomoj de la ŝtatoj al ili estos donataj nomoj geografiaj (ekz. Peterburgio, Berlinio, Parizio).
 
@@ -740,9 +575,6 @@ Ankaŭ tiuj senkulpaj proponoj restis ne akcepteblaj por la diplomatoj dum pacaj
 Nur en Sovet-Unio estis post la milito realigita plena kaj absoluta egaleco de nacioj kaj lingvoj. En la landoj venkintaj la nacia kaj lingva problemo estis neniel solvita.
 
 Zamenhof mortis la 14 de aprilo de 1917 j. Liaj idealistaj revoj kaj esperoj fakte montriĝis mortnaskitaj jam pli frue, la 1 VIII 14, ĉe la unuaj kanonpafoj, komencintaj la mondmili-ton.
-
-
-ZAMENHOF
 
 
 II. Zamenhof — iniciatinto kaj teoriisto
@@ -755,9 +587,7 @@ Talenta infano kaj junulo L. L. Zamenhof estis forte impresita de la intergenta 
 
 Persiste kaj seninterrompe li laboris por praktike solvi tiun problemon. Tiu persisteco kaŭzis, ke li, ne studinta speciale filologion kaj lingvosciencon, modesta praktikanta kuracisto, sukcesis solvi la problemon mondlingvan kun tia profundeco, kiun antaŭ li kaj post li elmontris nek unu esploranto ti-ukampa.
 
-Zamenhof mem skribis en sia letero pri deveno de espe-
-
-ranto al N. Borovko: ”La ideo, al kies efektivigo mi dediĉis mian tutan vivon, aperis ĉe mi en plej juna infaneco kaj de tiu ĉi tempo neniam min forlasadis: mi vivis kun ĝi kaj eĉ ne povas imagi min sen ĝi”.1
+Zamenhof mem skribis en sia letero pri deveno de esperanto al N. Borovko: ”La ideo, al kies efektivigo mi dediĉis mian tutan vivon, aperis ĉe mi en plej juna infaneco kaj de tiu ĉi tempo neniam min forlasadis: mi vivis kun ĝi kaj eĉ ne povas imagi min sen ĝi”.1
 
 La forta premo, kiun kaŭzis tiu ideo sur la tutan organismon kaj psikologion de Zamenhof montriĝas en la poezio
 
@@ -768,9 +598,6 @@ La forta premo, kiun kaŭzis tiu ideo sur la tutan organismon kaj psikologion de
 kaj doloroj kaj esperoj!
 
 1 ”Lingvo Intemacia”, Upsala, 1896, NN 6–7.
-
-
-ZAMENHOF
 
 
 Kiom de mi en silento
@@ -787,38 +614,25 @@ De la devo ordonanta!”
 
 La letero al N. Borovko rakontas, kiamaniere iom post evoluis la ideoj mondlingvaj de Zamenhof.
 
-Dum sia junaĝo Zamenhof revis pri akcepto de lingvo in-
+Dum sia junaĝo Zamenhof revis pri akcepto de lingvo internacia.
 
-ternacia.
+Tamen baldaŭ li komprenis ke tiuokaze ”ni havus nur lingvon internacian por pli altaj klasoj de la societo”.1
 
-Tamen baldaŭ li komprenis ke tiuokaze ”ni havus nur ling-
+Li ekkomprenis certegradan klasan karakteron de la estonta lingvo internacia kaj starigis principon ”facileco de la lingvo por nekleruloj”.2
 
-von internacian por pli altaj klasoj de la societo”.1
-
-Li ekkomprenis certegradan klasan karakteron de la eston-
-
-ta lingvo internacia kaj starigis principon ”facileco de la lingvo por nekleruloj”.2
-
-Komence li volis krei mallongajn elparoleblajn literkuni-
-
-ĝojn: ab, aba, aca, ada…. al kiuj li volis doni rolon de la vortoj en nova lingvo. Antaŭ unu jarcento la samajn ideojn esprimis unu el la pioniroj de la mondlingvo J. P. de Ria3.
+Komence li volis krei mallongajn elparoleblajn literkuniĝojn: ab, aba, aca, ada…. al kiuj li volis doni rolon de la vortoj en nova lingvo. Antaŭ unu jarcento la samajn ideojn esprimis unu el la pioniroj de la mondlingvo J. P. de Ria3.
 
 Rusaj vortoj ”ŝvejcarskaja” kaj ”parikmaęrskaja” kaŭzis,
 
 ke Zamenhof ekkomprenis la rolon simpligan de prefiksoj kaj sufiksoj, kiuj malampleksigas la fundamentan vortaron de la lingvo.
 
-La evoluo de la penso Zamenhofa entenis la tutan evolu-
-
-on kaj la tutan idearon de la homara penso, kiun produktis ducentkvindek-jara serĉado de la lingvo universala.
+La evoluo de la penso Zamenhofa entenis la tutan evoluon kaj la tutan idearon de la homara penso, kiun produktis ducentkvindek-jara serĉado de la lingvo universala.
 
 1 ”Fundamenta Krestomatio” p. 299.
 
 2 ”Fundamenta Krestomatio” p. 308.
 
 3 J. P. de Ria de Baulmes en Suiss ”Palais de soixante quatre fenetres éclairent au Dictionnaire universel” Petersburg, 1788.
-
-
-ZAMENHOF
 
 
 La principoj de racia gramatiko
@@ -833,9 +647,7 @@ premisoj.
 
 En sia letero al abato Mersenne, datita la 20 XI 1629, li skribis:
 
-”Tia lingvo havus nur unu sistemon de konjugacio, de de-
-
-klinado kaj de vortderivado. i tute ne enhavus formojn malregulajn, kiuj aperas pro kutimo kripligadi lingvon. La konjugacio kaj vortderivado okazus kun helpo de prefiksoj kaj sufiksoj, aldonataj al la fundamentaj radikoj. Tiuj prefiksoj kaj sufiksoj troviĝus en la ĝenerala vortaro. Homoj malmulte edukitaj, per helpo de tiu vortaro facile ekuzos en daŭro de ses monatoj similan lingvon”.1
+”Tia lingvo havus nur unu sistemon de konjugacio, de deklinado kaj de vortderivado. i tute ne enhavus formojn malregulajn, kiuj aperas pro kutimo kripligadi lingvon. La konjugacio kaj vortderivado okazus kun helpo de prefiksoj kaj sufiksoj, aldonataj al la fundamentaj radikoj. Tiuj prefiksoj kaj sufiksoj troviĝus en la ĝenerala vortaro. Homoj malmulte edukitaj, per helpo de tiu vortaro facile ekuzos en daŭro de ses monatoj similan lingvon”.1
 
 Tiu postulo de gramatiko facila fariĝis post Descartes
 
@@ -850,14 +662,9 @@ La sekvanta dua postuIo estis klare formulita nur en la j.
 ”lingvo universala devas esti filozofia laŭ sia programo kaj empirika — laŭ sia vortaro, t. e. ĝia programo devas sin bazi 1 R. Descartes. ”Œuvres completes” Paris, 1897, Édition Cerf. t. I, p. 76.
 
 
-ZAMENHOF
-
-
 sur logika analizo de pensado, kaj ĝia vortaro devas esti tiri-ta el la lingvoj vivantaj”.1
 
-Similaj ideoj pri nepra internacieco de la elementoj uni-
-
-versallingvaj tamen ne fariĝis ĝenerale akceptitaj. Kelkaj projektoj de lingvo universala, bazitaj sur la principoj esprimitaj de Renouvier, restis tute ne rimarkitaj kaj sen subteno.
+Similaj ideoj pri nepra internacieco de la elementoj universallingvaj tamen ne fariĝis ĝenerale akceptitaj. Kelkaj projektoj de lingvo universala, bazitaj sur la principoj esprimitaj de Renouvier, restis tute ne rimarkitaj kaj sen subteno.
 
 Nur Zamenhof, aperiginta dum la j. 1887 lernolibrojn de
 
@@ -867,9 +674,7 @@ Persista laborado kaj eksperimentado de Zamenhof
 
 En la antaŭparolo al sia unua lernolibro Zamenhof montris klaran komprenon de tiu postulo kaj donis ĝustan analizon de la antaŭirintaj projektoj internacilingvaj:
 
-”ĉiuj ĉi provoj prezentis ĉu signaron por la necesaj ele-
-
-mentaj esprimoj, ĉu akcelis simpligon de la gramatiko, kaj anstataŭon de la naturaj vortoj per aliaj arbitraj … Provoj de tiu dua kategorio estis certaj lingvoj, sed ili enhavis nenian
+”ĉiuj ĉi provoj prezentis ĉu signaron por la necesaj elementaj esprimoj, ĉu akcelis simpligon de la gramatiko, kaj anstataŭon de la naturaj vortoj per aliaj arbitraj … Provoj de tiu dua kategorio estis certaj lingvoj, sed ili enhavis nenian
 
 ’internaciecon’ ”2. Samloke li konstatis: por ke sukcesu tiaj provoj mankas kaj ĉiam mankos ”eblo de interkonsento” inter homoj malsame pensantaj.
 
@@ -880,9 +685,6 @@ Universala”. Komencante studojn en Universitato li devis
 1 Ch. Renouvier. ”La revue philosophique et religieuse”. Paris, t. II p. 5685 (Aout 1855).
 
 2 Dro Esperanto, ”Me√dunarodnij jazik—Unua lernolibro (por rusoj), Warsza-wa, 1887. pp. 56 (La Zamenhofa traduko de la sama frazo en ”Fundamenta krestomatio” estas pli arkaika kaj enhavas pluajn rusismojn).
-
-
-ZAMENHOF
 
 
 transdoni sian projekton al la patro por ke tiu ĝnservu
@@ -897,9 +699,7 @@ Post la j. 1881 kaj ĝis la j. 1887 Zamenhof ne ĉesis ŝanĝi kaj modifi la lin
 
 En letero al N. Borovko, Zamenhof skribis: ”dum ses jaroj mi laboris perfektigante kaj provante la lingvon, kvankam en la j. 1878 al mi ŝajnis ke la lingvo jam estas tute preta”.
 
-Tiu persisteco helpis al plua progreso de la verko Zamen-
-
-hofa. Forestis rapideco simila al la lingvo-krea laboro de Schleyer — aŭtoro deVolapük, kiu fakte skizis la lingvon dum unu nokto sendorma, kaj ĝin finpreparis en daŭro de kelkaj monatoj2.
+Tiu persisteco helpis al plua progreso de la verko Zamenhofa. Forestis rapideco simila al la lingvo-krea laboro de Schleyer — aŭtoro deVolapük, kiu fakte skizis la lingvon dum unu nokto sendorma, kaj ĝin finpreparis en daŭro de kelkaj monatoj2.
 
 Nur du laborantoj sur la kampo mondlingva elmontris la
 
@@ -907,9 +707,7 @@ saman persistecon kiel Zamenhof: J. Sudre3 — aŭtoro de Sol-resol dum la jaroj
 
 Tamen tiuj pioniroj de la ideo sciis kaj sukcesis realigi nur la postulon unuan pri facileco de la gramatiko.
 
-En letero al N. Borovko Zamenhof asertas ke, tiel long-
-
-daŭre eksperimentante kun sia lingvo, li fine trovis kaj eksen-tis ”spiriton de la lingvo”. Certe temis ne pri iu spirito sed pri 1 E. Privat ”Vivo de Zamenhof”. London, 1920. pp 58, 65.
+En letero al N. Borovko Zamenhof asertas ke, tiel longdaŭre eksperimentante kun sia lingvo, li fine trovis kaj eksen-tis ”spiriton de la lingvo”. Certe temis ne pri iu spirito sed pri 1 E. Privat ”Vivo de Zamenhof”. London, 1920. pp 58, 65.
 
 2 R. Kniele, ”Das erste Jahrzehnt des Weltsprache Volapük”, Ueberlinger B.
 
@@ -920,18 +718,13 @@ daŭre eksperimentante kun sia lingvo, li fine trovis kaj eksen-tis ”spiriton 
 4 C. L. A. Letellier, ”Cours Complet de langue universelle”. Caen, 1852–55, 4 vol.
 
 
-ZAMENHOF
-
-
 trovo, certegrada kutima ekuzo de la lingvaj formoj plej oportunaj, simplaj kaj kompreneblaj.
 
 Rezulte li povis en raporto al la Kongreso de Franca societo por progresigo de Sciencoj (en 1900) fiere deklari, ke li ĉion pripensis, ke li estas certa pri la formoj kaj vojoj de enkonduko de la Lingvo Internacia:
 
 ”Jes ni povas antaŭvidi, kia lingvo estos internacia, ni povas tion ĉi antaŭvidi kun plena precizeco kaj certeco, sen ia ombro da dubo”.1
 
-Raporto de Henry Phillips, prezentita al la Amerika filo-
-
-zofia societo, serioze esploranta la teoriajn premisojn por enkonduko de lingvo internacia, tute prave konstatis, ke ”la principoj, sur kiuj ĝi (la Lingvo Internacia de D-ro Zamenhof) estas fondita, estas en la tuto maleraraj”.2
+Raporto de Henry Phillips, prezentita al la Amerika filozofia societo, serioze esploranta la teoriajn premisojn por enkonduko de lingvo internacia, tute prave konstatis, ke ”la principoj, sur kiuj ĝi (la Lingvo Internacia de D-ro Zamenhof) estas fondita, estas en la tuto maleraraj”.2
 
 Aglutina karaktero de esperanto
 
@@ -939,9 +732,7 @@ Zamenhof interalie sukcesis tre praktike solvi la problemon pri facileco kaj tuj
 
 — ĉu la mondo ĝin akceptos aŭ ne”).
 
-Ekster la facila kaj simpla gramatiko — Zamenhof enkon-
-
-dukis ankoraŭ unu pluan novaĵon. En la unua lernolibro li skribis: ”Mi enkondukis plenan dismembrigon de la elemen-taj konceptoj (ideoj), kiuj estas esprimataj per memstaraj vortoj. La tuta lingvo konsistas ne el gramatike ŝanĝataj formoj de diversaj vortoj, sed el vortoj neŝanĝeblaj”.3
+Ekster la facila kaj simpla gramatiko — Zamenhof enkondukis ankoraŭ unu pluan novaĵon. En la unua lernolibro li skribis: ”Mi enkondukis plenan dismembrigon de la elemen-taj konceptoj (ideoj), kiuj estas esprimataj per memstaraj vortoj. La tuta lingvo konsistas ne el gramatike ŝanĝataj formoj de diversaj vortoj, sed el vortoj neŝanĝeblaj”.3
 
 Per tiu dismembrigo de la lingvoelementoj Zamenhof do-
 
@@ -952,30 +743,19 @@ Per tiu dismembrigo de la lingvoelementoj Zamenhof do-
 3 Zamenhofan iom arkaikan tradukon de tiu frazo vidu en ”Fundamenta Krestomatio”, p. 248.
 
 
-ZAMENHOF
-
-
 nis al nova lingvo karakteron aglutinan. Tamen li nenie uzis tiun terminon kaj, ne estante filologo, eble eĉ ne ĝuste prezentis al si la aglutinan karakteron de la tatar-turkaj lingvoj.
 
-Tiu speciala karaktero de esperanto, faciliganta ĝian studon kaj uzon, estis multe pli malfrue konstatita de la akade-miano N. J. Marr — aŭtoro de tiel nomata jafetida lingvo-
+Tiu speciala karaktero de esperanto, faciliganta ĝian studon kaj uzon, estis multe pli malfrue konstatita de la akade-miano N. J. Marr — aŭtoro de tiel nomata jafetida lingvoteorio.
 
-teorio.
+En tiu punkto la profunda lingvopenso de Zamenhof realigis ideon esprimitan jam antaŭ du jarcentoj.
 
-En tiu punkto la profunda lingvopenso de Zamenhof rea-
-
-ligis ideon esprimitan jam antaŭ du jarcentoj.
-
-Bernard Lamy — unu el postsekvantoj de Descartes rakon-
-
-tas, ke la konata vojaĝisto-esploranto Jaques Thevenot, ko-natiĝinte kun la mirinda facileco de la tatarlingva strukfuro,
+Bernard Lamy — unu el postsekvantoj de Descartes rakontas, ke la konata vojaĝisto-esploranto Jaques Thevenot, ko-natiĝinte kun la mirinda facileco de la tatarlingva strukfuro,
 
 — proponis por faciligi studon de la ekzistantaj naturaj lingvoj — modifi ilian gramatikon laŭ la modelo de la lingvo ta-tara (t. e. lingvo aglutina)1.
 
 Kiel konsekvence obeis Zamenhof al tiu, memstare de li
 
-trovita, principo aglutina — montras rakonto de prof. E. Boi-rac, ke la vorton ”edzino” (prenita el vortkombino Kronprin-cedzino konforma al la germana ”Kronprinzessin”) Zamen-
-
-hof dismembrigis je du vortoj memstaraj: ”edzo” kaj ”ino”2.
+trovita, principo aglutina — montras rakonto de prof. E. Boi-rac, ke la vorton ”edzino” (prenita el vortkombino Kronprin-cedzino konforma al la germana ”Kronprinzessin”) Zamenhof dismembrigis je du vortoj memstaraj: ”edzo” kaj ”ino”2.
 
 Zamenhof kiel filologo
 
@@ -986,24 +766,15 @@ kaj profundeco en la esencon de la problemo internaci-ling-va, restis ĝis la fi
 2 Oficiala Gazeto Esperantista, Paris, , p. 144.
 
 
-ZAMENHOF
-
-
 super la meza nivelo de skolastika hindo-eŭropa lingvoscienco.
 
-La progreseman, ekzemple, tendencon de la lingvoj mo-
-
-dernaj riĉiĝi per formoj internaciaj — li pensis ebla malhelpi per akcepto de lingvo helpa internacia.
+La progreseman, ekzemple, tendencon de la lingvoj modernaj riĉiĝi per formoj internaciaj — li pensis ebla malhelpi per akcepto de lingvo helpa internacia.
 
 En Unua libro (p. 4) li skribis, ke pro studado de lingvoj fremdaj ”la lingvoj estas ĝenataj en sia memstara evoluo, ili pruntas necesajn esprimojn kaj vortojn el fremdaj lingvoj”.
 
-La samajn argumentojn li ripetis en sia raporto prezenti-
+La samajn argumentojn li ripetis en sia raporto prezentita en la j. 1900 al la kongreso de Franca Societo por progresigo de sciencoj.
 
-ta en la j. 1900 al la kongreso de Franca Societo por progresigo de sciencoj.
-
-En tiu raporto konsiderojn, ke lingvoj kaj paroloj ”dependas de la klimato, heredeco, kruciĝado de rasoj, historiaj kondiĉoj”, Zamenhof nomis ”instruitaj paroloj, senenhava, pseŭ-
-
-do-scienca babilado, kiu havas neniun sencon”.1
+En tiu raporto konsiderojn, ke lingvoj kaj paroloj ”dependas de la klimato, heredeco, kruciĝado de rasoj, historiaj kondiĉoj”, Zamenhof nomis ”instruitaj paroloj, senenhava, pseŭdo-scienca babilado, kiu havas neniun sencon”.1
 
 Li ne sukcesis suprenlevi sin ĝis kompreno, ke la lingvo
 
@@ -1016,10 +787,7 @@ La ideoj de modernaj lingvo-teorioj, intime ligantaj la ling-voevoluon kun la tu
 1 ”Fundamenta Krestomatio”, p. 277.
 
 
-ZAMENHOF
-
-
-Restis ĉe li iom da individualismo, da personeca idealismo, ĉar li firme kredis, ke ”kreado de plena en ĉiuj rilatoj taŭga kaj vivpova lingvo postulas specialan talenton kaj inspiron”. 1
+Restis ĉe li iom da individualismo, da personeca idealismo, ĉar li firme kredis, ke ”kreado de plena en ĉiuj rilatoj taŭga kaj vivpova lingvo postulas specialan talenton kaj inspiron”.
 
 Kolektivismo en la kreado de la lingvo
 
@@ -1035,29 +803,20 @@ Jam en la ”Aldono al la Dua libro de Lingvo Internacia”
 
 Unu homo tie povas esti nur iniciatoro sed ne kreanto. Lingvo Tutmonda devas esti pretigata paŝo post paŝo per la ku-nigita laborado de la tuta civilizita mondo…
 
-…Komuna fundamento por la L. I. devas esti mia unua bro-
-
-ŝuro (”Lingvo Internacia. Antaŭparolo kaj plena lernolibro”)
+…Komuna fundamento por la L. I. devas esti mia unua broŝuro (”Lingvo Internacia. Antaŭparolo kaj plena lernolibro”)
 
 … ĉio cetera devas esti kreata de la homa societo kaj de la vivo, tiel kiel ni vidas en ĉiu el la vivantaj lingvoj”.
 
-En la sama broŝuro (p. 9) li pravigas tiun aserton, argu-
-
-mentante per la historia sperto de la lingvoj naturaj:
+En la sama broŝuro (p. 9) li pravigas tiun aserton, argumentante per la historia sperto de la lingvoj naturaj:
 
 ”Multaj timos, ke danke tiun vastan liberecon la lingvo internacia baldaŭ disfalos en multaj malsamaj lingvoj, sed kiu konas iom la historion de la lingvoj tiu komprenos, ke tiu timo estas tute senfonda, ĉar ni ĉiuj laboros sur tiu fundamento… tiu fundamento havos en la lingvo internacia tian
 
 saman signifon, kiun en ĉiu lingvo havis tiu lingva materia-1 ”Fundamenta Krestomatio”, p. 305.
 
 
-ZAMENHOF
-
-
 lo, kiu estis en ĝi en la komenco de regula skriba literaturo….
 
-novaj vortoj estis kreataj unu post unu laŭ la kreskanta bezono, kaj malgraŭ tio, ke ili estis kreataj dise de malsamaj personoj, sen ia kondukanto aŭ leĝdonanto la lingvo ne sole ne disdividiĝis, sed kontraŭe ĝi ĉiam pli unuformiĝis, la dialek-toj kaj provincialismoj iom post iom perdiĝis, antaŭ la fori-
-
-ĝanta komuna literatura lingvo”…
+novaj vortoj estis kreataj unu post unu laŭ la kreskanta bezono, kaj malgraŭ tio, ke ili estis kreataj dise de malsamaj personoj, sen ia kondukanto aŭ leĝdonanto la lingvo ne sole ne disdividiĝis, sed kontraŭe ĝi ĉiam pli unuformiĝis, la dialek-toj kaj provincialismoj iom post iom perdiĝis, antaŭ la foriĝanta komuna literatura lingvo”…
 
 Firma akcepto de tiuj gvidideoj permesis al Zamenhof samloke klare kaj ĝuste antaŭdiri la vojojn, kiujn sekvos la Lingvo Internacia, elektante el diversaj formoj — iujn formojn unuecajn — ĝenerale akceptotajn:
 
@@ -1071,16 +830,11 @@ kaj baldaŭ la unua formo elpuŝos aliajn formojn”.
 
 Tiu ideo pri evoluo de la Lingvo Internacia sur bazo de kolektiva uzado sendepende de iu aparta persono estis neniam de iu antaŭ Zamenhof esprimita. Aŭtorrajto pri tiu ideo apartenas ekskluzive al Zamenhof kaj ĝuste tiu principo, kiel ni nun vidas kaj komprenas, antaŭdifinis progreson kaj prospe-ron de la afero internacilingva.
 
-Kiel la ĉefan kaŭzon de Volapük-pereo Zamenhof konside-
-
-ris mankon de libera evolupovo.
+Kiel la ĉefan kaŭzon de Volapük-pereo Zamenhof konsideris mankon de libera evolupovo.
 
 En sia kongresa parolado dum la VII Universala Kongreso
 
 de Esperanto en Antwerpen (1911) Zamenhof diris:
-
-
-ZAMENHOF
 
 
 ”Volapük pereis ĉefe pro unu grava eraro, kiun ĝi enhavis: absoluta manko de natura evoluipovo; kun ĉiu nova vorto aŭ formo la lingvo devis konstante dependi de la decidoj de unu persono aŭ de facile inter si malpaconta personaro.
@@ -1089,9 +843,7 @@ ZAMENHOF
 
 Zamenhofaj ideoj pri vojoj de esperanto-evoluo estis formale akceptitaj de la I-a Universala Kongreso en Bulonjo s/M.
 
-La 4-a punkto de la kongresa deklaracio proklamis: ”Esperanto havas neniun personan leĝdonanton kaj dependas de ne-
-
-niu aparta homo. ĉiuj opinioj kaj verkoj de la kreinto de esperanto havas, simile al la opinioj kaj verkoj de ĉiu alia esperantisto, karakteron absolute privatan kaj por neniu devigan.
+La 4-a punkto de la kongresa deklaracio proklamis: ”Esperanto havas neniun personan leĝdonanton kaj dependas de neniu aparta homo. ĉiuj opinioj kaj verkoj de la kreinto de esperanto havas, simile al la opinioj kaj verkoj de ĉiu alia esperantisto, karakteron absolute privatan kaj por neniu devigan.
 
 La deviga por ĉiuj esperantistoj fundamento de la lingvo esperanto estas la verketo ”Fundamento de esperanto”, en kiu neniu havas la rajton fari ŝanĝon.
 
@@ -1102,9 +854,6 @@ En la j. 1908 dum Dresdena kongreso Zamenhof havis jam
 eblon ne antaŭdiri sed konstati realajn sekvojn el tiuj principoj:
 
 ”Nia lingvo konstante pliriĉigas kaj elastiĝas. lom post iom aperas novaj vortoj kaj formoj, unuj fortikiĝas, aliaj ĉesas esti uzataj… Nenie montriĝas ia diferenciĝado de nia lingvo laŭ la diversaj landoj, kaj ju pli spertaj fariĝas la aŭtoroj, des pli similiĝas reciproke ilia uzado de nia lingvo, malgraŭ la granda malproksimeco de iliaj lokoj de loĝado”.
-
-
-ZAMENHOF
 
 
 Zamenhof kaj reformoj en esperanto
@@ -1140,9 +889,6 @@ kelkiuj siaj adeptoj Zamenhof presigis sur la paĝoj de la esperanta gazeto tiut
 2 ”Esperantisto”, Nürnberg, 1894, NN 1–11.
 
 
-ZAMENHOF
-
-
 ”…Nia lingvo devas antaŭ ĉio esti plej facila por ĉiuj nacioj kaj kiom ĝi nur estas ebla, enhavi en si nenion, kio estas kontraŭ la kutimo de la nacioj kaj prezentus al ili fremdaĵon
 
 …
@@ -1153,15 +899,13 @@ devas cedi al la pli oportuna praktika kutimo de la popoloj …
 
 … ni devas eviti ĉian superfluan bataladon kontraŭ la kuti-moj de la popoloj, por ne malfaciligi senbezone la bataladon por nia lingvo”.
 
-La reformoj proponitaj ne trovis aprobon ĉe la plej multo de la aktive voĉdonantaj pri tiu afero esperantistoj. En No 11
+La reformoj proponitaj ne trovis aprobon ĉe la plej multo de la aktive voĉdonantaj pri tiu afero esperantistoj. En No
 
 de ”Esperantisto”, 1894 j. estis presita: ”Fina rezultato de la voĉdonado”: — 157 — kontraŭ reformoj, kaj 107 por reformoj.
 
 Do la lingvo restis neŝanĝita.
 
-Tamen ankaŭ post tiu voĉdonado Zamenhof prave konjek-
-
-tis, ke 264 esperantistoj ne povas antaŭdecidi pluan sorton de la helpa universala lingvo.
+Tamen ankaŭ post tiu voĉdonado Zamenhof prave konjektis, ke 264 esperantistoj ne povas antaŭdecidi pluan sorton de la helpa universala lingvo.
 
 Tuj post publikigo de la rezultoj de voĉdonado li skribis:
 
@@ -1172,26 +916,17 @@ iun ŝanĝon en nia lingvo kaj faras ĝin por ĉiam tute rigida.
 Tio estas eraro, ĉar ĉiu ja devas bone kompreni, ke ni mal-granda kolekto da homoj ne povas fari ian decidon por ĉiam en afero, en kiu laŭ nia espero poste partoprenos grandaj multegoj da aliaj homoj. La plimulto trovis ke pro diversaj kaŭzoj en nuna tempo nenio en la lingvo devas esti ŝanĝita; ĉu iam poste oni faros iajn sanĝojn aŭ ne — pri tio neniu decidis, nek povas decidi.
 
 
-ZAMENHOF
-
-
 Zamenhof stilisto kaj kreinto de lingvoformoj
 
 Tiuj rezervoj al la neantaŭvideblaj korektoj de la lingvo —
 
 estis farataj de Zamenhof tute prave.
 
-La persona sperto de Zamenhof en lingvopraktikado mon-
+La persona sperto de Zamenhof en lingvopraktikado montris, ke, malgraŭ la profund-pensa kreo de la lingva fundamento, li same kiel aliaj esperantistoj ne ĉiam sukcesis tuj trovi kaj ekuzi lingvajn formojn plej oportunajn.
 
-tris, ke, malgraŭ la profund-pensa kreo de la lingva fundamento, li same kiel aliaj esperantistoj ne ĉiam sukcesis tuj trovi kaj ekuzi lingvajn formojn plej oportunajn.
+Li eraris akceptinte formojn tian, kian… anstataŭ la nuntempaj tiam, kiam…
 
-Li eraris akceptinte formojn tian, kian… anstataŭ la nun-
-
-tempaj tiam, kiam…
-
-En ”Unua lernolibro” ni trovas formon ”dek milionoj ho-
-
-moj” (anstataŭ da homoj).
+En ”Unua lernolibro” ni trovas formon ”dek milionoj homoj” (anstataŭ da homoj).
 
 Ankaŭ en la ”Dua libro de l’Lingvo Internacia” kaj en ”Aldono al la Dua libro,” ni trovas pluajn esprimojn, kiuj nun kaŭzus malsukceson de la abituriento ĉe la instruistaj kursoj esperantaj:
 
@@ -1207,9 +942,7 @@ Ankaŭ en la ”Dua libro de l’Lingvo Internacia” kaj en ”Aldono al la Dua
 
 ”…aldonita … (anstataŭ ”sindona”).
 
-”…fonda provado…” (anstataŭ ”fundamenta, detala esplo-
-
-ro”).
+”…fonda provado…” (anstataŭ ”fundamenta, detala esploro”).
 
 ”…havos tian signifon, kiun havis…”
 
@@ -1218,16 +951,11 @@ ro”).
 1 Notu bone, ke la vortoj ”daŭro” kaj ”dum” jam estis akceptitaj en la ”Unua lernolibro”.
 
 
-ZAMENHOF
-
-
 ”Danke la unu gramatikon”.
 
 Similaj formoj kaj frazkonstruoj troviĝas en ĉiuj verkoj kaj skribaĵoj Zamenhofaj de la unua periodo esperanta. Ili estas troveblaj ankaŭ en la ”Fundamenta krestomatio”.
 
-Uzo de plej multo el tiuj formoj estas klarigebla per sen-konscia traduko esperanten de formoj kaj parolturnoj na-
-
-cilingvaj (ĉefe rusaj kaj polaj).
+Uzo de plej multo el tiuj formoj estas klarigebla per sen-konscia traduko esperanten de formoj kaj parolturnoj nacilingvaj (ĉefe rusaj kaj polaj).
 
 Zamenhof prave konsilis:
 
@@ -1239,18 +967,13 @@ Sed tiu internacia maniero povis aperi nur kiel rezulto de kolektiva uzado kaj r
 
 Li estis ne prava, almenaŭ se temis pri liaj artikoloj kaj verkoj unuaj.
 
-Rimarkeble boniĝis la stilo de Zamenhof jam post 2–3 ja-
-
-roj de praktika esperanto-apliko.
+Rimarkeble boniĝis la stilo de Zamenhof jam post 2–3 jaroj de praktika esperanto-apliko.
 
 La stilo kaj la vorto-formoj esperantaj multe pli progresis dum la j. 1888–1890 ol dum la jaroj 1881–87 ĉar serĉadon kaj akcepton de tiuj aŭ aliaj lingvo-formoj partoprenis jam ne unu persono, sed multaj diverslandaj adeptoj de la sama lingvo.
 
 1 ”La Revuo”, Paris, 1907, Oktobro.
 
 2 ”La Revuo, Paris, 1906, Decembro.
-
-
-ZAMENHOF
 
 
 Eventuala rolo de sciencaj kaj ŝtataj aŭtoritatoj
@@ -1273,9 +996,7 @@ Dresden (1908) Zamenhof diris:
 
 ”Kiam antaŭ 20 jaroj la Amerika Filozofia Societo volis
 
-preni la aferon de Lingvo Internacia en siajn manojn, tio estis por la aŭtoro de esperanto tiel altega kaj neatingebla aŭ-
-
-toritato, ke li tuj decidis fordoni ĉion al la manoj de societo
+preni la aferon de Lingvo Internacia en siajn manojn, tio estis por la aŭtoro de esperanto tiel altega kaj neatingebla aŭtoritato, ke li tuj decidis fordoni ĉion al la manoj de societo
 
 …”
 
@@ -1283,14 +1004,9 @@ En sia raporto, prezentita dum la j. 1900 al la kongreso de Franca Societo por p
 
 Sed al la kvara demando — kiam kaj kiamaniere okazos tiu
 
-enkonduko de la lingvo — Zamenhof respondis hezite, supo-
-
-zante, ke finfine por solvi tiun demandon (se ĝi ne estos solvita per societo mem) intervenos la registaroj1.
+enkonduko de la lingvo — Zamenhof respondis hezite, supozante, ke finfine por solvi tiun demandon (se ĝi ne estos solvita per societo mem) intervenos la registaroj1.
 
 Li asertis: ”Apartaj personoj kaj societoj tie-ĉi nenion povos fari, ili povus nur konstante instigadi la registarojn, sed mem 1 ”Fundamenta Krestomatio”, p. 247.
-
-
-ZAMENHOF
 
 
 solvi la demandon sen enmiksiĝo de la registaroj ili ne povus”.1
@@ -1301,9 +1017,7 @@ Zamenhof sentis sin kvazaŭ ĝenata kaj kvazaŭ volis antaŭ
 
 certaj rondoj pravigi sian kuraĝon esti kreinto de artefarita lingvoprojekto. Li certigis, ke li tion faris nur ”ĉar ĉia batalado abstrakta kaj teoria ordinare al nenio kondukas”.3
 
-Jam pli malfrue, kiam la mondo esperanta fariĝas pli am-
-
-pleksa kaj impona kaj kiam ĝi jam certagrade sendependiĝis de la personeco Zamenhofa, tiu lasta trovis aliajn vortojn por difini la ĝustan rolon de eventualaj aŭtoritataj komitatoj internacilingvaj.
+Jam pli malfrue, kiam la mondo esperanta fariĝas pli ampleksa kaj impona kaj kiam ĝi jam certagrade sendependiĝis de la personeco Zamenhofa, tiu lasta trovis aliajn vortojn por difini la ĝustan rolon de eventualaj aŭtoritataj komitatoj internacilingvaj.
 
 En Dresdena Kongreso (1908 j.) parolante pri la interveno de Amerika filozofia societo, kaj ĝia provo preni la aferon Mondlingvan sub sia gvido Zamenhof diris:
 
@@ -1320,16 +1034,11 @@ Lastfoje Zamenhof pri la ebla rolo de registaroj ĉe solvo de tiu problemo parol
 3 ”Fundamenta Krestomatio”, p. 284.
 
 
-ZAMENHOF
-
-
 oj: aŭ per laborado de homoj privataj, t. e. de la popolaj ama-soj, aŭ per dekreto de la registaroj. Plej kredeble nia afero estos atingita per la vojo unua, ĉar al tia afero, kiel nia, la registaroj venas kun sia sankcio kaj helpo ordinare nur tiam, kiam ĉio estas jam tute preta”.
 
 Se eĉ la registaroj kreus iun specialan komisionon, tiu lasta
 
-— laŭ opinio Zamenhofa — povus argumenti nur jena-ma-
-
-niere:
+— laŭ opinio Zamenhofa — povus argumenti nur jena-maniere:
 
 ”Anstataŭ fari tute senbezone kaj sencele riskajn novajn
 
@@ -1343,18 +1052,11 @@ Zamenhofaj ideoj por progresigi
 
 la aferon de Mondlingvo
 
-Zamenhof bone komprenis malfacilecon de sia penado inici-
-
-ati kreon de reale funkcianta lingvo internacia. Por lia repu-tacio de juna kuracisto estis tre riska la tuta entrepreno. Sed konv, ke li ĉion antaŭvidis kaj laŭeble ĉion antaŭpreparis, permesis al li skribi en la Unua Lernolibro:
+Zamenhof bone komprenis malfacilecon de sia penado iniciati kreon de reale funkcianta lingvo internacia. Por lia repu-tacio de juna kuracisto estis tre riska la tuta entrepreno. Sed konv, ke li ĉion antaŭvidis kaj laŭeble ĉion antaŭpreparis, permesis al li skribi en la Unua Lernolibro:
 
 ”Kelkaj feliĉaj ideoj, rezultoj de meditado, kuraĝigis min kaj instigis min provi, ĉu mi ne sukcesos venki sistemece ĉiujn malhelpojn por kreo kaj enkonduko de racia universala lingvo”.
 
-Kiel ĉefan sian taskon praktikan li konsideris — venki in-43
-
-ZAMENHOF
-
-
-diferentecon de la mondo. Li volis tion atingi, kolektante spe-cialajn promesojn de personoj, kiuj studos la lingvon se en-tute dek milionoj da similaj promesoj estos kolektitaj.
+Kiel ĉefan sian taskon praktikan li konsideris — venki indiferentecon de la mondo. Li volis tion atingi, kolektante spe-cialajn promesojn de personoj, kiuj studos la lingvon se en-tute dek milionoj da similaj promesoj estos kolektitaj.
 
 Sed en tiu sia provo Zamenhof malsukcesis.
 
@@ -1376,9 +1078,6 @@ Tiel agante — Zamenhof sukcesis praktike rapidigi la ĉiam pli kreskantan publ
 Tiurilate la tiel nomata interna ideo de esperantismo faris al la lingvo grandan kaj gravan servon. i grupigis ĉirkaŭ Zamenhof aron da personoj — samideaj. Kun tiuj personoj Za-
 
 1 D-ro Esperanto, ”Dua libro de l’Lingvo Internacia”, Varsovio 1888, p. 14.
-
-
-ZAMENHOF
 
 
 menhof havis ne nur komunan lingvon, sed ankaŭ la samajn
@@ -1403,16 +1102,11 @@ En la tuta homa rond’
 
 Unu lingvo por la mond’.1
 
-Sed aŭtoro de Volapük — J. Schleyer ne realigis la premi-
-
-son pri la internacieco de lingvaj elementoj. Zamenhof en la artikolo ”Esenco kaj estonteco de la Lingvo Internacia” skribis: ”Volapük solvis nur la demandon de la gramatiko, kaj la vortaron ĝi lasis tute sen atento, doninte simple tutan kolek-ton de diversaj elpensitaj vortoj”.2
+Sed aŭtoro de Volapük — J. Schleyer ne realigis la premison pri la internacieco de lingvaj elementoj. Zamenhof en la artikolo ”Esenco kaj estonteco de la Lingvo Internacia” skribis: ”Volapük solvis nur la demandon de la gramatiko, kaj la vortaron ĝi lasis tute sen atento, doninte simple tutan kolek-ton de diversaj elpensitaj vortoj”.2
 
 Kun paso de jaroj Zamenhof trovis aliajn vortojn por esti-1 rigardu: ”Al Eterna Lumo”, Vitebsk, 1921, NN 3–4, p. 10.
 
 2 ”Fundamenta Krestomatio”, p. 310.
-
-
-ZAMENHOF
 
 
 mi la laboron de J. Schleyer. Li principe akceptis, ke Volapük, eĉ ne konstruita sur la bazo de internaciaj elementoj, sed tamen difinata per libera evoluo kaj kolektiva kreado, sukcesus progresi kaj akiri la formojn necesajn. En la parolado dum la Antwerpena kongreso (1911 j.) Zamenhof diris:
@@ -1431,14 +1125,9 @@ diris:
 
 ”En la unua tempo, vidante ke nia afero progresas tre malrapide kaj malfacile, multaj esperantistoj pensis, ke la kaŭzo de tio kuŝas en nia lingvo mem, ke, se ni nur ŝanĝos tiun aŭ alian detalon, la mondo tuj venos al ni en granda amaso”.
 
-Tiuj pensoj kondukis esperanton al la periodo de reformo-
-
-proponoj de la j. 1894.
+Tiuj pensoj kondukis esperanton al la periodo de reformoproponoj de la j. 1894.
 
 Tamen la plejmulto de esperantistoj trovis la proponitajn reformojn senutilaj aŭ nenecesaj (vidu p. 35).
-
-
-ZAMENHOF
 
 
 Nur ”kelkaj tre malmultaj malkontentuloj forlasis esperanton kaj kune kun kelkaj ne-esperantistoj, kiuj rigardis sin kiel plej kompetentaj en la afero de Lingvo Internacia, komencis inter si ĝis nun ankorau ne finiĝintan kaj neniam finiĝontan diskutadon pri diversaj lingvaj detaloj …”. Zamenhof prave nomis tiun diskutadon ”neniam finiĝontan” ĉar finon al tia teoria diskutado povus doni nur praktika kolektiva uzado kaj eksperimentado. Kaj la sola bazo por tia eksperimentado —
@@ -1467,18 +1156,14 @@ nian celon nur per severa disciplino kaj per absoluta unueco”.
 
 Tiu disciplino estis despli necesa, ĉar:
 
-”Lingvoj naturaj kreskas tute trankvile, ĉar kun tia lingvo neniu kuraĝos fari iajn eksperimentojn aŭ fleksi ĝin laŭ sia gusto, sed pri lingvo artefarita ĉiu opinias, ke li havas rajton, 47
-
-ZAMENHOF
+”Lingvoj naturaj kreskas tute trankvile, ĉar kun tia lingvo neniu kuraĝos fari iajn eksperimentojn aŭ fleksi ĝin laŭ sia gusto, sed pri lingvo artefarita ĉiu opinias, ke li havas rajton,
 
 
 povas aŭ eĉ devas direkti la sorton de la lingvo laŭ sia kompreno”.1
 
 Do necesis disciplino, unueco same en la lingvo-uzado kiel ankaŭ en la kompreno pri la vojoj de lingvo-evoluo.
 
-Zamenhof ĉiam substrekis kaj ĉiel defendadis la plej gra-
-
-vajn por internacilingva movado premisojn de libera evoluo kaj de praktika uzo kaj eksperimentado.
+Zamenhof ĉiam substrekis kaj ĉiel defendadis la plej gravajn por internacilingva movado premisojn de libera evoluo kaj de praktika uzo kaj eksperimentado.
 
 Rolo de Zamenhof en la internacilingva movado
 
@@ -1500,9 +1185,7 @@ La Deklaracio de la Unua Kongreso Esperantista dum 1905
 
 j. proklamis sendependecon de la lingvo de iu ajn persono.
 
-En Washingtona Kongreso (1910) Zamenhof ree kaj kate-
-
-gorie konstatis:
+En Washingtona Kongreso (1910) Zamenhof ree kaj kategorie konstatis:
 
 ”Por ŝanĝi ion en la natura irado de la internacilingva afero mi estas tiel same senpova, kiel ĉiu alia persono”.
 
@@ -1513,12 +1196,7 @@ gorie konstatis:
 3 A. Zakrzewski, ”Historio de Esperanto”, Varsovio, 1913, p. 9.
 
 
-ZAMENHOF
-
-
-Dum la VIII Kongreso de j. 1912 en Krakow Zamenhof la-
-
-sis sian oficialan rolon en la esperanto-movado.
+Dum la VIII Kongreso de j. 1912 en Krakow Zamenhof lasis sian oficialan rolon en la esperanto-movado.
 
 Prezidanto de la IX Kongreso en Bern (1913 j.) R. de Saus-sure, parolante pri tiu rezigno prave diris: ”mi opinias, ke li agis saĝe kaj por la bono de nia movado, ĉar povus esti ma-lutile kaj eĉ danĝere, elekti iun el la esperantistoj, eĉ la plej eminentan, kiel kvazaŭ heredontan aŭ posteulon de Zamenhof”.1
 
@@ -1534,29 +1212,20 @@ Malakceptante kaj eĉ kontraŭbatalante la tutan politike-filozofian idearon de 
 
 Tiuj ideoj kaj tiu forto kreis fortikan movadon internaciling-van kaj praktike renversis multajn el la ideoj kaj teoriaj konsideroj de antaŭirintaj Zamenhofon lingvistoj kaj lingvo-teoriistoj.
 
-Ankaŭ ni devas konstati, ke por ĉefverko de Zamenhof es-
+Ankaŭ ni devas konstati, ke por ĉefverko de Zamenhof esperanto ĉe ĝia komenca ekfloro liaj fuŝaj politike-filozofiaj ideoj eĉ estis utilaj. En realeco tiuj ideoj flankaj, malprospe-raj, se ili estas konsiderataj sendepende de la esperanto-evoluo, tiuj ideoj faris certan servon al la lingvo kaj utilis kiel bona komenco por ĝia fermento.
 
-peranto ĉe ĝia komenca ekfloro liaj fuŝaj politike-filozofiaj ideoj eĉ estis utilaj. En realeco tiuj ideoj flankaj, malprospe-raj, se ili estas konsiderataj sendepende de la esperanto-evoluo, tiuj ideoj faris certan servon al la lingvo kaj utilis kiel bona komenco por ĝia fermento.
-
-Dank’al sia persisteco kaj penso profunda, Zamenhof suk-
-
-cesis enkorpigi en sian lingvoprojekton ĉiujn postulojn-premisojn necesajn por reala ekzisto de la Lingvo Internacia.
+Dank’al sia persisteco kaj penso profunda, Zamenhof sukcesis enkorpigi en sian lingvoprojekton ĉiujn postulojn-premisojn necesajn por reala ekzisto de la Lingvo Internacia.
 
 Tiuj postuloj-premisoj estis jenaj:
 
 1 ”Esperantista Dokumentaro, Kajero XXVI”, Paris, 1914. p. 96.
 
 
-ZAMENHOF
-
-
 1) simpligita kaj racia gramatiko, 2) internacieco de la lingvo-elementoj, 3) libera evoluo kaj memstara, sendependa de iu ajn persono, kresko de la lingvo-materialo, 4) praktika apliko kaj uzo de la lingvo.
 
 Antaŭ Zamenhof kaj post li ĉiuj projektantoj de lingvoj artefaritaj solvadis nur po unu, po du el tiuj premisoj. Zamenhof solvis ĉiujn kvar, kaj samtempe lia modesteco permesis plej nerimarkeble kaj sendolore apartigi lian personecon de la sorto kaj estonto de la lingvo.
 
-La kaŭzo de la progreso de Lingvo Internacia kaj de espe-
-
-ranto troviĝas en Zamenhofaj lingvo-ideoj, en la lerte kom-binitaj principoj de esperanto-konstruo kaj en la tuta agado de Zamenhof.
+La kaŭzo de la progreso de Lingvo Internacia kaj de esperanto troviĝas en Zamenhofaj lingvo-ideoj, en la lerte kom-binitaj principoj de esperanto-konstruo kaj en la tuta agado de Zamenhof.
 
 Personeco de Zamenhof ricevas ĝustan kaj meritan takson
 
@@ -1565,9 +1234,6 @@ Personeco de Zamenhof ricevas ĝustan kaj meritan takson
 Per sia lingvo-verko Zamenhof konstruis al si mem kaj al
 
 sia vivlaboro neforigeblan monumenton en la historio de la homara evoluo.
-
-
-ZAMENHOF
 
 
 www.omnibus.se/

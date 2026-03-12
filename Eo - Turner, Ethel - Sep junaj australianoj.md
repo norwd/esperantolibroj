@@ -31,7 +31,7 @@ Paĝo
 
 I
 
-Plejparte Priskriba.......................................................... 1
+Plejparte Priskriba..........................................................
 
 II
 
@@ -39,11 +39,11 @@ Kokidaĵo Por La Ĉefmanĝo...........................................7
 
 III
 
-Virto Ne Ĉiam Premiiĝas............................................ 13
+Virto Ne Ĉiam Premiiĝas............................................
 
 IV
 
-La Generalo Militiras................................................... 26
+La Generalo Militiras...................................................
 
 V
 
@@ -63,15 +63,13 @@ VIII
 
 IX
 
-Sekvoj............................................................................. 69
+Sekvoj.............................................................................
 
-X
-
-Bunty En La Rolo De Heroo....................................... 73
+Bunty En La Rolo De Heroo.......................................
 
 XI
 
-La Forvaginto................................................................ 84
+La Forvaginto................................................................
 
 XII
 
@@ -87,7 +85,7 @@ La Invito De La Bienisto............................................107
 
 XV
 
-Tricent Mejlojn Per Trajno........................................ 113
+Tricent Mejlojn Per Trajno........................................
 
 XVI
 
@@ -105,7 +103,7 @@ Palblua Harrubando...................................................142
 
 XX
 
-Malgranda Judi........................................................... 149
+Malgranda Judi...........................................................
 
 XXI
 
@@ -113,9 +111,9 @@ Kiam Subiris La Suno.................................................154
 
 XXII
 
-…Kaj Lasta.................................................................. 159
+…Kaj Lasta..................................................................
 
-Ĉapitro 1
+Ĉapitro
 
 Plejparte Priskriba
 
@@ -517,9 +515,7 @@ telero.
 
 “Kia barbareto vi estas, Nell,” ridis ŝia patro, sed li donis al ŝi rapidan, koleretan rigardon. “Kie estas via dekstra mano?”
 
-Ŝi tiris ĝin malrapide de malantaŭe kaj etendis la fend-
-
-havan malnovan teleron. “Mi pensis ke eble vi donos al mi
+Ŝi tiris ĝin malrapide de malantaŭe kaj etendis la fendhavan malnovan teleron. “Mi pensis ke eble vi donos al mi
 
 ankaŭ iom da kokidaĵo” ŝi diris—“Nur femuron aŭ flugilon aŭ
 
@@ -559,9 +555,7 @@ bele afliktita esprimo kiu absolute tuŝis la koron de Kolonelo
 
 Bryant.
 
-Ŝia patro mordis sian lipon, dehakis flugilon en malbon-
-
-aŭgura silento kaj metis ĝin sur ŝian teleron.
+Ŝia patro mordis sian lipon, dehakis flugilon en malbonaŭgura silento kaj metis ĝin sur ŝian teleron.
 
 “Nun forkuru kaj ne plu ĝenu min per tiaj sensencaĵoj—
 
@@ -593,9 +587,7 @@ revenis deprimita.
 
 ridis kaj Estera diris ke ni estas tre malbonaj; mi tamen prenis plumitan terpomon de la tablo ekster la pordo.
 
-Li disigis siajn malpurajn manetojn kaj faligis la mal-
-
-allogan plumecan frandaĵon sur la tablotukon.
+Li disigis siajn malpurajn manetojn kaj faligis la malallogan plumecan frandaĵon sur la tablotukon.
 
 “Bunty, vi estas porko,” vespiris Meg, suprenrigardante de
 
@@ -847,9 +839,7 @@ Estera promesis fari sian eblon, peti kiel neniam antaŭe,
 
 kaĵoli, petegi, perflati, minaci; kaj ili fine permesis al ŝi foriri post tiu certigo.
 
-“Mi tamen konsilas al vi ĉiuj esti preternormale bon-
-
-kondutaj kaj kvietaj la tutan tagon,” ŝi diris, rerigardante el la pordejo. “Tio plej efikus ĉe li, kaj li estos hejme la tutan tagon.”
+“Mi tamen konsilas al vi ĉiuj esti preternormale bonkondutaj kaj kvietaj la tutan tagon,” ŝi diris, rerigardante el la pordejo. “Tio plej efikus ĉe li, kaj li estos hejme la tutan tagon.”
 
 Bonkondutaj! Estis absolute dolorige observi la virton de
 
@@ -1005,9 +995,7 @@ dungis nur unu serviston kaj ĉar laboro rilate al la ĉevaloj kaj stalo tiel ok
 
 kaj diris ke li hontas kiam vizitantoj alvenas ĉe la domo.
 
-Do Judi, plenplena de fervoro, sin armis per preter-
-
-normale granda falĉilo kaj eklaboris pri la longa, longa herbo.
+Do Judi, plenplena de fervoro, sin armis per preternormale granda falĉilo kaj eklaboris pri la longa, longa herbo.
 
 “Sankta Ĉielo, Helena! vi distranĉos la krurojn!” vokis ŝia
 
@@ -1037,9 +1025,7 @@ supron de rozujo; sed tiaj bagatelaj misokazoj estas ofta
 
 fenomeno en multaj sferoj.
 
-“Akcidentoj ja okazas, eĉ al la plej bone reguligitaj herbo-
-
-tondistoj,” ŝi diris trankvile, levante la falĉilon per nova
+“Akcidentoj ja okazas, eĉ al la plej bone reguligitaj herbotondistoj,” ŝi diris trankvile, levante la falĉilon per nova
 
 ĉirkaŭsvingo.
 
@@ -1085,9 +1071,7 @@ Li malsupreniris kaj ekzamenis ĝin: ĝi estis bonege farita
 
 same kiel la plejmulto de la aferoj entreprenitaj de Fraŭlino
 
-Judi, inkluzive de la petolaĵoj; kaj ŝiaj malgrandaj nigre-
-
-ŝtrumpitaj kruroj estis ankoraŭ en bona stato.
+Judi, inkluzive de la petolaĵoj; kaj ŝiaj malgrandaj nigreŝtrumpitaj kruroj estis ankoraŭ en bona stato.
 
 - 19 -
 
@@ -1283,9 +1267,7 @@ patro, kaj la botelojn ĉiudirekten.
 
 veis, paŝante malantaŭen en la direkton de la pordo.
 
-“Hu—ja-a—bu—hu-u! Estera—bu-u—jah—Judi—ho-o-
-
-o! ho-ho-oh!” Kiel ja estus atendeble, lia patro estis preninta rimenon kiu kuŝis en oportuna proksimeco kaj vigle utiligis
+“Hu—ja-a—bu—hu-u! Estera—bu-u—jah—Judi—ho-oo! ho-ho-oh!” Kiel ja estus atendeble, lia patro estis preninta rimenon kiu kuŝis en oportuna proksimeco kaj vigle utiligis
 
 ĝin sur sian filon.
 
@@ -1317,9 +1299,7 @@ kaj kriegante en la infanejon, kie li falis sur la plankon kaj
 
 baraktis kaj sin rulis kvazaŭ li estus duone mortigita.
 
-“Rampuloj!” li singultis, alparolante la aliajn kiuj alkuris el diversaj lokoj pro lia brua kriado, “mizeraj p-p-porkoj! Mi-mi-h-h-havis ne-neniom da ko-ko-kokid-a-aĵo kaj ri-ricevis la tu-
-
-tu-tuton de la b-b-batado! r-r-rampuloj! h-h-ho! ha-a-a! ho-o!
+“Rampuloj!” li singultis, alparolante la aliajn kiuj alkuris el diversaj lokoj pro lia brua kriado, “mizeraj p-p-porkoj! Mi-mi-h-h-havis ne-neniom da ko-ko-kokid-a-aĵo kaj ri-ricevis la tutu-tuton de la b-b-batado! r-r-rampuloj! h-h-ho! ha-a-a! ho-o!
 
 m-mi s-s-sangas ĉ-ĉie, m-mi s-scias!”
 
@@ -1333,9 +1313,7 @@ Estera baldaŭ envenis, aspektante tre ĝenata.
 
 “Nu?” ili diris ĥore.
 
-“Vi vere estas la plej kolerigaj infanoj,” ŝi diris mal-
-
-kontente.
+“Vi vere estas la plej kolerigaj infanoj,” ŝi diris malkontente.
 
 “Sed la spektaklo—rapide, Estera—ĉu vi petis al li?” ili
 
@@ -1415,9 +1393,7 @@ pro devo, estante tri jarojn pli aĝa ol Judi.
 
 loĝus ĉe ni,” daŭrigis Judi, trankvile malatentante ŝin. “Nu, ni manĝus kokidaĵon tri fojojn ĉiutage kaj vizitadus la spektaklon sep vesperojn en semajno.”
 
-Nell sugestis ke ne estas kutime havi spektaklo-
-
-prezentadon en la sepa tago, sed Judi persistis.
+Nell sugestis ke ne estas kutime havi spektakloprezentadon en la sepa tago, sed Judi persistis.
 
 “Mi havus specon de religia spektaklo,” ŝi diris penseme—
 
@@ -2209,9 +2185,7 @@ pupon kiu estis la Benjamino de ŝia multnombra familio.
 
 pensas” Judi diris per sufoka voĉo kaj profunde kortuŝita de
 
-tiuj donacoj. “Ho! kaj, Bunty kara! metu korkon super la r-r-
-
-rano, mi petas, ĝi eble perdiĝus, la kompatinda! en tiu g-g-
+tiuj donacoj. “Ho! kaj, Bunty kara! metu korkon super la r-rrano, mi petas, ĝi eble perdiĝus, la kompatinda! en tiu g-g-
 
 granda kesto.”
 
@@ -2387,9 +2361,7 @@ al sia amikino praktikajn konsilojn, kaj montris al ŝi kiel oni
 
 faru la aferon. Kaj ĉiunokte kaj ĉiumatene Meg senkompate
 
-tiris al la laĉoj de sia korseto kaj premegis sian belan korpeton en pli mallarĝan spacon. Ŝi jam estis tirinta ĝin en ĉirkaŭ-
-
-mezuron de dudek unu coloj, kio estis neta ŝparo de du, kaj ŝi
+tiris al la laĉoj de sia korseto kaj premegis sian belan korpeton en pli mallarĝan spacon. Ŝi jam estis tirinta ĝin en ĉirkaŭmezuron de dudek unu coloj, kio estis neta ŝparo de du, kaj ŝi
 
 mallarĝigis ĉiujn siajn robojn ĉe la flankaj kunkudroj.
 
@@ -2445,9 +2417,7 @@ de Misrego, do la du knabinoj estis ĉiam kune. Dufoje semajne
 
 ili iris en la urbon per la riverboato por lerni kiel demandi per ĝentila franclingvaĵo “Ĉu la juna filino de la panisto havas la flavan ĉapelon, brunajn gantojn, kaj ombrelon de la nevino de
 
-la funebraĵisto?” Kaj dufoje semajne, respondinte ne-
-
-konsekvence, “Ne, sed la ĥirurgo havis iom da biero, da
+la funebraĵisto?” Kaj dufoje semajne, respondinte nekonsekvence, “Ne, sed la ĥirurgo havis iom da biero, da
 
 mustardo kaj la manĝgongon,” Aldita kondukis sian amikinon
 
@@ -2541,9 +2511,7 @@ transe.
 
 “Netolerebla,” Aldita murmuris kolere; kaj bezonataj estis
 
-ĉiuj la pardonpetoj kaj kaĵoloj de Meg por dolĉigi ŝian anim-
-
-staton denove kaj ŝin persvadi komuniki la ravan sekreton.
+ĉiuj la pardonpetoj kaj kaĵoloj de Meg por dolĉigi ŝian animstaton denove kaj ŝin persvadi komuniki la ravan sekreton.
 
 - 48 -
 
@@ -3317,9 +3285,7 @@ miksiĝis kun la de la landkarto super kiu li laboris por
 
 Fino Marsh. Li sin lokigis ĉe la kubuto de Meg kaj jen kaj jen
 
-rigardis en ŝian vizaĝon kun sopira amu-kaj-pardonu-min-
-
-maniero kiun ŝi trovis ege embarasa, ĉar ŝi eksuspektis, pro lia stranga konduto, ke li iel informiĝis pri la enhavo de ŝia
+rigardis en ŝian vizaĝon kun sopira amu-kaj-pardonu-minmaniero kiun ŝi trovis ege embarasa, ĉar ŝi eksuspektis, pro lia stranga konduto, ke li iel informiĝis pri la enhavo de ŝia
 
 letereto kaj provas deturni ŝin de la entrepreno. Ju pli li
 
@@ -3479,9 +3445,7 @@ bela,” ŝi diris, mizere malkonvinke kaj per voĉtono sinpraviga
 
 ŝi aldonis: “ankaŭ la kampo apartenas al mia patro.”
 
-Li sin klinis malantaŭen, kontraŭ la barilon, kaj mal-
-
-suprenrigardis al ŝi.
+Li sin klinis malantaŭen, kontraŭ la barilon, kaj malsuprenrigardis al ŝi.
 
 “Flonjo transdonis al mi vian letereton, kaj ĉar ĝi ŝajnis
 
@@ -3683,9 +3647,7 @@ Tion farinte ŝi eniris la salonon kie ŝia patro aspektis tute
 
 varma kaj malfeliĉa pro siaj klopodoj distri la kvar gastojn kiuj estis el la speco populare aluditaj kiel ‘pezaj ĉemane’.
 
-“Ludu ion, Meg,” li baldaŭ diris kiam finiĝis la inter-
-
-salutado kaj silento ŝajnis ekregonta inter ili denove, “aŭ kantu ion, tio estus preferinda—ĉu vi ne havas ion por kanti?”
+“Ludu ion, Meg,” li baldaŭ diris kiam finiĝis la intersalutado kaj silento ŝajnis ekregonta inter ili denove, “aŭ kantu ion, tio estus preferinda—ĉu vi ne havas ion por kanti?”
 
 Nu Meg ordinare havis plaĉan, freŝan voĉeton kiun oni
 
@@ -3707,9 +3669,7 @@ timiga maniero; ŝi faris aĉan sonmiksaĵon kiam ŝi ekkaptis la
 
 muziktenilon por sekureco kaj momenton poste ŝanceliĝis for
 
-de la tabureto kaj falis pro profunda sveno en la brakojn de D-
-
-ro Gormeston, providence etenditajn ĝustatempe.
+de la tabureto kaj falis pro profunda sveno en la brakojn de Dro Gormeston, providence etenditajn ĝustatempe.
 
 La peza, varmigita atmosfero superfortis ŝin en ŝia
 
@@ -4370,9 +4330,7 @@ voĉo kaj li glitis suben tra la malfermaĵo kaj rapidis al la domo.
 
 La Forvaginto
 
-Li eniregis la ĉambron de Meg kvazaŭ li estus turno-
-
-ventego.
+Li eniregis la ĉambron de Meg kvazaŭ li estus turnoventego.
 
 “Ŝi estas en la malnova kabano, Meg, kaj mi ne estas certa,
 
@@ -4392,9 +4350,7 @@ Meg levis palan, alarmitan vizaĝon de sur la kusenoj.
 
 Meg malrapide eliris la liton, iel surmetis vestojn kaj
 
-ankoraŭ tute ne kredante la strangegan rakonton mal-
-
-supreniris la ŝtuparon kun li.
+ankoraŭ tute ne kredante la strangegan rakonton malsupreniris la ŝtuparon kun li.
 
 En la enirejo ili renkontis sian patron kiu estis tuj elironta.
 
@@ -4746,9 +4702,7 @@ blanka ekstera kovrilo estis glate sternita super la matraco, sed nenie trovebli
 
 “Estas viro en korduroja pantalono kiu ĉiuvespere
 
-ŝtelvagas proksime de la domo,” diris Pip, melankolie rigard-
-
-ante sian kovrilomankan liton. “Mi ne mirus se li iel
+ŝtelvagas proksime de la domo,” diris Pip, melankolie rigardante sian kovrilomankan liton. “Mi ne mirus se li iel
 
 respondecas en la afero.”
 
@@ -5016,9 +4970,7 @@ lin? Respondu al mi tuj.’
 
 Bunty horortreme ekrigardis la vipon.
 
-“N-n-nenion,’ li respondis, "a-a-absolute n-nenion. Mia k-
-
-k-kriketpilko estis s-supre en la st-stalo. Mi nur l-ludis per
+“N-n-nenion,’ li respondis, "a-a-absolute n-nenion. Mia kk-kriketpilko estis s-supre en la st-stalo. Mi nur l-ludis per
 
 globetoj.’
 
@@ -5130,9 +5082,7 @@ Estis tie neniaj signoj de loĝado, krom se oni konsideras
 
 tia harrubandon de Meg kaj iom da oranĝŝelo.
 
-Li vidis la malfortikan, hejmefaritan ŝtupetaron ripoz-
-
-antan kontraŭ la truon en la plafono, kaj kvankam li kutime pli alte taksis la sekurecon de sia nuko ol faris liaj infanoj pri iliaj, li fidis sian sekurecon al ĝi. Ĝi knaris malbonaŭgure kiam li
+Li vidis la malfortikan, hejmefaritan ŝtupetaron ripozantan kontraŭ la truon en la plafono, kaj kvankam li kutime pli alte taksis la sekurecon de sia nuko ol faris liaj infanoj pri iliaj, li fidis sian sekurecon al ĝi. Ĝi knaris malbonaŭgure kiam li
 
 atingis la plej altan ŝtupon kaj trarampis en la subtegmenton.
 
@@ -5606,9 +5556,7 @@ kaj paŝis al la litflanko kun fiera vizaĝo. Li estis konstruinta malgrandan ti
 
 ordinarajn dankesprimojn, “ĉar mi scias ke pupojn vi
 
-malamas, sed en tiuj vi povos konservi ĉiujn viajn ma-
-
-lgrandajn aĵojn, ĉu ne—harligilojn kaj fingringojn kaj tiel plu.”
+malamas, sed en tiuj vi povos konservi ĉiujn viajn malgrandajn aĵojn, ĉu ne—harligilojn kaj fingringojn kaj tiel plu.”
 
 Aŭdiĝis bruo de trenado ekster la pordo kaj baldaŭ Bunty
 
@@ -5876,9 +5824,7 @@ okuloj.
 
 - 113 -
 
-Sonoriloj sonoris kaj fajfilo kriĉis, portistoj ĉirkaŭ-
-
-rapidegis kaj adiaŭojn oni diris ĉu gaje, ĉu malgaje, laŭ la
+Sonoriloj sonoris kaj fajfilo kriĉis, portistoj ĉirkaŭrapidegis kaj adiaŭojn oni diris ĉu gaje, ĉu malgaje, laŭ la
 
 cirkonstancoj.
 
@@ -5948,9 +5894,7 @@ pentrinda en noktorobeto el kremkolora flanelo kaj roza lana
 
 ĵaketo.
 
-Kaj dum duonhoro li bonhumore submetiĝis al trans-
-
-prenado kaj tiklado kaj duonsufoko per kisado. Li eĉ permesis
+Kaj dum duonhoro li bonhumore submetiĝis al transprenado kaj tiklado kaj duonsufoko per kisado. Li eĉ permesis
 
 al Nell mordeti liajn rozajn piedfingrojn laŭvice kaj diri
 
@@ -6048,9 +5992,7 @@ tusigis Judi’n kaj oni rapide kondukis ŝin en la atendejon kaj
 
 ĉirkaŭvindis ŝin per lankovrilo.
 
-La trajno elŝutis iliajn kofrojn kaj valizojn kaj denove for-
-
-rapidis, lasante ilin senkonsolaj kaj malgajaj, postrigardantaj ĝin, ĉar ŝajnis ke neniu venis akcepti ilin.
+La trajno elŝutis iliajn kofrojn kaj valizojn kaj denove forrapidis, lasante ilin senkonsolaj kaj malgajaj, postrigardantaj ĝin, ĉar ŝajnis ke neniu venis akcepti ilin.
 
 La bruo de malsekaj radoj trairantaj flakojn, la kraksono
 
@@ -6156,9 +6098,7 @@ vi faras?’
 
 saltis el la breketo kaj supren la ŝtupojn de la verando.
 
-Tie troviĝis maljunulineto portanta grandan dom-
-
-mastrinan antaŭtukon. Estera tiris ŝin en siajn brakojn kaj ili interkisis kaj kroĉiĝis unu al la alia ĝis ambaŭ ploris.
+Tie troviĝis maljunulineto portanta grandan dommastrinan antaŭtukon. Estera tiris ŝin en siajn brakojn kaj ili interkisis kaj kroĉiĝis unu al la alia ĝis ambaŭ ploris.
 
 “Mia knabineto!’ singultis la maljunulineto, glatigante per
 
@@ -6356,9 +6296,7 @@ provianto librotenis por Yarrahappini kaj porciumis la
 
 provianton.
 
-Ankoraŭ pli malproksime staris dors-al-dorse du domaĉ-
-
-etoj el arboŝelo. Tettawonga, kurbdorsa maljuna aborigeno,
+Ankoraŭ pli malproksime staris dors-al-dorse du domaĉetoj el arboŝelo. Tettawonga, kurbdorsa maljuna aborigeno,
 
 loĝis en unu kaj malmulton faris krom fumi kaj ĉiumatene
 
@@ -6434,9 +6372,7 @@ Li petis al ili eniri kaj sidiĝi dum li serĉos ilin.
 
 Meg estis mirigita de la ĉambro, kiel klare montris ŝiaj
 
-bluaj okuloj, ĉar ŝi nur aŭdis paroli pri li kiel la provianto-
-
-tenanto. Estis librobretoj sur kiuj ŝi vidis verkojn de
+bluaj okuloj, ĉar ŝi nur aŭdis paroli pri li kiel la proviantotenanto. Estis librobretoj sur kiuj ŝi vidis verkojn de
 
 Shakespeare kaj Browning kaj Shelley kaj Rossetti kaj
 
@@ -7724,9 +7660,7 @@ donis al ŝi centon da entuziasmaj malfermbuŝaj, malsekaj kisoj
 
 Post tio ili ĉasludis, kaj la Generalo falis dudekon da fojoj,
 
-kaj skrapvundis siajn genuetojn kaj manetojn kaj supren-
-
-baraktis denove kaj ŝanceliris antaŭen.
+kaj skrapvundis siajn genuetojn kaj manetojn kaj suprenbaraktis denove kaj ŝanceliris antaŭen.
 
 - 150 -
 
@@ -8156,9 +8090,7 @@ biendomo kaj aro de mimosaj arboj, nun malhele verdaj sed
 
 orkronitaj kaj ĉarmaj en la printempo.
 
-Jen, do, la loko kie ili lasis la malgrandan Judi. Ĉirkaŭ ĝi S-
-
-ro Hassal lokigis blankajn altajn palisojn; la mallonga tombo
+Jen, do, la loko kie ili lasis la malgrandan Judi. Ĉirkaŭ ĝi Sro Hassal lokigis blankajn altajn palisojn; la mallonga tombo
 
 troviĝis en ĝia ombra angulo.
 

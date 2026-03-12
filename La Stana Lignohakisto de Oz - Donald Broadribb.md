@@ -47,9 +47,7 @@ interesiĝo de kaj junuloj kaj
 
 nejunuloj pri la Oz-rakontoj.
 
-Klera universitata profesoro lasta-
-
-tempe skribis al mi demandante:
+Klera universitata profesoro lastatempe skribis al mi demandante:
 
 “Por kiuaĝaj legantoj estas viaj
 
@@ -64,9 +62,7 @@ mi ricevis. Unu diras: “Mi estas
 
 knabeto kvinjara, kaj mi amegas viajn rakontojn pri Oz.
 
-Mia fratino, kiu skribas ĉi tion por mi, legas al mi la Oz-
-
-librojn, sed volonte mi mem legus ilin.” Alia letero diras:
+Mia fratino, kiu skribas ĉi tion por mi, legas al mi la Ozlibrojn, sed volonte mi mem legus ilin.” Alia letero diras:
 
 “Mi estas granda knabino dektrijara, do vin surprizos
 
@@ -127,58 +123,58 @@ en KALIFORNIO,
 
 LISTO DE ĈAPITROJ
 
-1 Vut la Vagisto . . . . . . . . . . . . . . . . . . . 13
+1 Vut la Vagisto . . . . . . . . . . . . . . . . . . .
 
-2 La Koro de la Stana Lignohakisto . . . . . . 25
+2 La Koro de la Stana Lignohakisto . . . . . .
 
-3 Oni Ĉirkaŭiras . . . . . . . . . . . . . . . . . . . . . . . . . 35
+3 Oni Ĉirkaŭiras . . . . . . . . . . . . . . . . . . . . . . . . .
 
-4 La Lonoj de Lonio . . . . . . . . . . . . . . . . . . . . . . 46
+4 La Lonoj de Lonio . . . . . . . . . . . . . . . . . . . . . .
 
-5 S-ino Jup, la Gigantino . . . . . . . . . . . . . . . . . . . . . 66
+5 S-ino Jup, la Gigantino . . . . . . . . . . . . . . . . . . . . .
 
-6 La Magio de Jukuhuo . . . . . . . . . . . . . . . . . . . . . . 81
+6 La Magio de Jukuhuo . . . . . . . . . . . . . . . . . . . . . .
 
-7 La Punta Ŝirmvesto . . . . . . . . . . . . . . . . . . . . . . . . 99
+7 La Punta Ŝirmvesto . . . . . . . . . . . . . . . . . . . . . . . .
 
-8 La Minaco en la Arbaro . . . . . . . . . . . . . . . . . . . . 107
+8 La Minaco en la Arbaro . . . . . . . . . . . . . . . . . . . .
 
-9 La Kverelemaj Drakoj . . . . . . . . . . . . . . . . . . . . . 122
+9 La Kverelemaj Drakoj . . . . . . . . . . . . . . . . . . . . .
 
-10 Tomi Hastpaŝ . . . . . . . . . . . . . . . . . . . . . . . . . . . 131
+10 Tomi Hastpaŝ . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-11 La Ranĉo de Zingibra . . . . . . . . . . . . . . . . . . . . . 143
+11 La Ranĉo de Zingibra . . . . . . . . . . . . . . . . . . . . .
 
-12 Ozma kaj Doroteo . . . . . . . . . . . . . . . . . . . . . . . 155
+12 Ozma kaj Doroteo . . . . . . . . . . . . . . . . . . . . . . .
 
-13 La Restaŭro . . . . . . . . . . . . . . . . . . . . . . . . . . . . 165
+13 La Restaŭro . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-14 La Verda Simio. . . . . . . . . . . . . . . . . . . . . . . . . . 179
+14 La Verda Simio. . . . . . . . . . . . . . . . . . . . . . . . . .
 
-15 La Stanulo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . 185
+15 La Stanulo. . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-16 Kapitano Batalant . . . . . . . . . . . . . . . . . . . . . . . . 195
+16 Kapitano Batalant . . . . . . . . . . . . . . . . . . . . . . . .
 
-17 La Laborejo de Tu-Tond. . . . . . . . . . . . . . . . . . . . 201
+17 La Laborejo de Tu-Tond. . . . . . . . . . . . . . . . . . . .
 
-18 La Stana Lignohakisto Parolas al Si . . . . . . . . . . . . 209
+18 La Stana Lignohakisto Parolas al Si . . . . . . . . . . . .
 
-19 La Nevidebla Lando . . . . . . . . . . . . . . . . . . . . . . 229
+19 La Nevidebla Lando . . . . . . . . . . . . . . . . . . . . . .
 
-20 Tranokte . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 251
+20 Tranokte . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-21 La Magio de Polikromo . . . . . . . . . . . . . . . . . . . . 260
+21 La Magio de Polikromo . . . . . . . . . . . . . . . . . . . .
 
-22 Nimi Ami . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 271
+22 Nimi Ami . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-23 Tra la Tunelo . . . . . . . . . . . . . . . . . . . . . . . . . . . 280
+23 Tra la Tunelo . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-24 La Kurteno Falas . . . . . . . . . . . . . . . . . . . . . . . . 285
+24 La Kurteno Falas . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Vut la Vagisto
 
-ĈAPITRO 1
+ĈAPITRO
 
 La Stana Lignohakisto sidis
 
@@ -194,9 +190,7 @@ Oz. Apud li, en seĝo el
 
 plektita pajlo, sidis lia plej
 
-intima amiko, la Birdo-
-
-timigilo de Oz. Kelkfoje ili
+intima amiko, la Birdotimigilo de Oz. Kelkfoje ili
 
 parolis unu al la alia pri
 
@@ -296,9 +290,7 @@ halon kie la Stana Lignohakisto sidis kun sia amiko
 
 la Birdotimigilo. Ambaŭ ĝoje informiĝis ke fremdulo
 
-venis al la kastelo, ĉar tio donos al ili novan diskuto-
-
-temon, do ili petis la serviston engvidi la knabon tuj.
+venis al la kastelo, ĉar tio donos al ili novan diskutotemon, do ili petis la serviston engvidi la knabon tuj.
 
 Kiam Vut la Vagisto trapasis la grandajn
 
@@ -315,9 +307,7 @@ liaj okuloj fariĝis eĉ pli grandaj kaj lia tuta korpeto
 
 tremis pro mirego. Sed, malgraŭ sia mirado, li povis
 
-ĝentile klini sin antaŭ la trono kaj diri per respekto-
-
-plena voĉo: “Mi salutas vian Gloran Moŝton kaj
+ĝentile klini sin antaŭ la trono kaj diri per respektoplena voĉo: “Mi salutas vian Gloran Moŝton kaj
 
 proponas al vi mian humilan servadon.”
 
@@ -638,7 +628,7 @@ ke ŝi plu amas min.”
 
 La Koro de la Stana Lignohakisto
 
-ĈAPITRO 2
+ĈAPITRO
 
 L a I m p e r i e s t r o d e l a
 
@@ -652,15 +642,11 @@ artikojn en sia stana gorĝo,
 
 ĉar lia voĉo komencis grinci
 
-iomete. Vut la Vagisto, satig-
-
-inte sian apetiton, rigardis la
+iomete. Vut la Vagisto, satiginte sian apetiton, rigardis la
 
 oleadon tre interesate, sed
 
-petegis la Stanan Lignohak-
-
-iston daŭrigi sian rakonton.
+petegis la Stanan Lignohakiston daŭrigi sian rakonton.
 
 
 La Stana Lignohakisto de Oz
@@ -944,9 +930,7 @@ por ke ŝi estu Imperiestrino kaj loĝu en via grandioza
 
 stana kastelo.”
 
-La Stanan Lignohakiston tiom surprizis tiu sen-
-
-rezerva parolo ke dum kelka tempo li nur rigardegis
+La Stanan Lignohakiston tiom surprizis tiu senrezerva parolo ke dum kelka tempo li nur rigardegis
 
 la knaban Vagiston. Sed la Birdotimigilo skuis sian
 
@@ -985,9 +969,7 @@ feliĉigi ŝin, decas ke mi faru tion, kaj tiel repagu ŝin
 
 pro ŝia fideleco.”
 
-“Tute prave, mia amiko!” konsentis la Birdo-
-
-timigilo.
+“Tute prave, mia amiko!” konsentis la Birdotimigilo.
 
 “Ĉu vi akompanos min dum tiu tasko?” demandis
 
@@ -1045,7 +1027,7 @@ preparu nian veturon.”
 
 Oni Ĉirkaŭiras
 
-ĈAPITRO 3
+ĈAPITRO
 
 Vut la Vagisto dormis tiun
 
@@ -1082,9 +1064,7 @@ de la birdoj ĉiumatene por ke ili ĉirkaŭmoviĝu kaj
 
 kantu.
 
-Post la matenmanĝo la knabo eniris la trono-
-
-ĉambron, kie la Imperiestro lasis ke servisto zorge
+Post la matenmanĝo la knabo eniris la tronoĉambron, kie la Imperiestro lasis ke servisto zorge
 
 oleu liajn stanajn artikojn, dum aliaj servistoj
 
@@ -1492,7 +1472,7 @@ Pajleroj novaj fariĝas miaj.”
 
 La Lonoj de Lonio
 
-ĈAPITRO 4
+ĈAPITRO
 
 Ĉ i r k a ŭ l a v e s p e r o l a
 
@@ -1547,9 +1527,7 @@ tiel ke en la mateno la Imperiestro brilis kiel ĉiam en
 
 la radioj de la leviĝanta suno.
 
-Ili vekis la knabon je la mateniĝo kaj la Birdo-
-
-timigilo diris al li:
+Ili vekis la knabon je la mateniĝo kaj la Birdotimigilo diris al li:
 
 “Ni trovis ion kuriozan, tial ni devos interkonsiliĝi
 
@@ -1578,9 +1556,7 @@ kiu povis tre bone legi kiam liaj okuloj estis freŝe
 
 farbitaj.
 
-“Pro tio,” diris la knabo, malfermante sian dorso-
-
-sakon por elpreni iom da matenmanĝo, “ni veturu laŭ
+“Pro tio,” diris la knabo, malfermante sian dorsosakon por elpreni iom da matenmanĝo, “ni veturu laŭ
 
 alia direkto.”
 
@@ -1625,9 +1601,7 @@ Vuton, “eble vundiĝus se la popolo de Lonio vere
 
 estas danĝeraj; do mi proponas ke li restu ĉi tie dum
 
-vi kaj mi, Amiko Birdotimigilo, vizitos la mal-
-
-permesitan Urbon Lonio.”
+vi kaj mi, Amiko Birdotimigilo, vizitos la malpermesitan Urbon Lonio.”
 
 “Ne ĝenu vin pri mi,” konsilis Vut, trankvile.
 
@@ -1666,9 +1640,7 @@ arboj krekis tiel dense kaj la grimpoplantoj kaj la
 
 arbustaro estis tiom dikaj kaj interplektitaj ke ili
 
-devis fari por si vojon je ĉiu paŝo por pluiri. Unu-
-
-aŭ du-loke la Stanulo, kiu iris la unua por liberigi
+devis fari por si vojon je ĉiu paŝo por pluiri. Unuaŭ du-loke la Stanulo, kiu iris la unua por liberigi
 
 la vojon, tranĉis la branĉojn batante per sia hakilo.
 
@@ -1758,9 +1730,7 @@ eĥis iom laŭte tra la libera spaco, ĉiuj turniĝis
 
 fronte al la entrudiĝintoj. Tiam, kune, ili ĉiuj
 
-antaŭen rapidis, kurante kaj saltante eksterordinar-
-
-rapide.
+antaŭen rapidis, kurante kaj saltante eksterordinarrapide.
 
 La Stanan Lignohakiston tiom surprizis tio ke
 
@@ -1831,9 +1801,7 @@ baldaŭ, dum ili altiris la ŝnuron, la folioj super ili
 
 apartiĝis kaj Lono ekaperis ĉe la alia finaĵo de la
 
-ŝnuro. Li ne bezonis multan tempon por mal-
-
-suprentiriĝi al la trono, kie li sidiĝis kaj estis enligita,
+ŝnuro. Li ne bezonis multan tempon por malsuprentiriĝi al la trono, kie li sidiĝis kaj estis enligita,
 
 tiel ke li ne reflosos alten.
 
@@ -2215,9 +2183,7 @@ iun escepte de tiuj kiuj pro scivolemo aŭdacas, kiel
 
 ni, veni ĉi tien.”
 
-“Bone dirite, mia amiko,” konsentis la Birdo-
-
-timigilo. “Ni vere ne rajtis ĝeni ilian trankvilecon kaj
+“Bone dirite, mia amiko,” konsentis la Birdotimigilo. “Ni vere ne rajtis ĝeni ilian trankvilecon kaj
 
 komforton; do ni foriru.”
 
@@ -2247,7 +2213,7 @@ li sekvis siajn kamaradojn laŭ la vojo.
 
 S-ino Jup, la Gigantino
 
-ĈAPITRO 5
+ĈAPITRO
 
 Kiam ili atingis la finon de
 
@@ -2571,9 +2537,7 @@ komentis Jup.
 
 “Nu, mi estis tro lerta por ili,” diris ŝi, ekridante,
 
-kio kaŭzis tian venteton ke la ŝanceliĝema Birdo-
-
-timigilo estis preskaŭ deblovita kaj devis ekpreni sian
+kio kaŭzis tian venteton ke la ŝanceliĝema Birdotimigilo estis preskaŭ deblovita kaj devis ekpreni sian
 
 amikon Noĉjo Hakisto por firmigi sin. “Mi vidis la
 
@@ -2602,9 +2566,7 @@ Jukuhuo ol Sorĉistino, kaj kompreneble vi scias ke la
 
 Jukuhuoj estas la plej lertaj magiistoj en la mondo.”
 
-La veturantoj silentis dum kelka tempo, mal-
-
-komforte pripensante tiun deklaron kaj ĝian eblan
+La veturantoj silentis dum kelka tempo, malkomforte pripensante tiun deklaron kaj ĝian eblan
 
 efikon je ilia estonteco. Sendube la Gigantino volonte
 
@@ -2624,9 +2586,7 @@ virino:
 
 “Mi neniam havas amikojn,” ŝi diris per tono
 
-indikanta ordinaran fakton, “ĉar amikoj trofamiliar-
-
-iĝas kaj ĉiam forgesas atenti proprajn aferojn. Sed mi
+indikanta ordinaran fakton, “ĉar amikoj trofamiliariĝas kaj ĉiam forgesas atenti proprajn aferojn. Sed mi
 
 ne estas via malamiko; nu, ankoraŭ ne. Efektive, al
 
@@ -2821,9 +2781,7 @@ de panetoj el faruno?” ŝi respondis. “Tio estas multe
 
 tro teda proceso por Jukuhuo. Mi elmetis kelkajn
 
-kaptilojn ĉiposttagmeze kaj kaptis multajn kampo-
-
-musojn, sed ĉar mi ne ŝatas manĝi musojn, mi
+kaptilojn ĉiposttagmeze kaj kaptis multajn kampomusojn, sed ĉar mi ne ŝatas manĝi musojn, mi
 
 transformis ilin en varmegajn panetojn por mia
 
@@ -2860,7 +2818,7 @@ malaperis.
 
 La Magio de Jukuhuo
 
-ĈAPITRO 6
+ĈAPITRO
 
 Vut vidis tre malmulte da
 
@@ -3125,9 +3083,7 @@ kompletigu mian manĝon per fiŝbuletoj aŭ per ŝafidaj
 
 kotletoj? Kiujn vi preferas, Vut la Vagisto?”
 
-“Bonvolu, mi manĝos la manĝaĵojn en mia dorso-
-
-sako,” respondis la knabo. “Viaj magiaj manĝaĵoj eble
+“Bonvolu, mi manĝos la manĝaĵojn en mia dorsosako,” respondis la knabo. “Viaj magiaj manĝaĵoj eble
 
 bone gustas, sed mi timas ilin.”
 
@@ -3586,7 +3542,7 @@ bati sian nazon kiam la pordo brufermiĝis.
 
 La Punta Ŝirmvesto
 
-ĈAPITRO 7
+ĈAPITRO
 
 “Nun,” diris la Kanario, per
 
@@ -3649,9 +3605,7 @@ kaj la pordo obeis ŝin. Jen kiel mi sciiĝis pri la magia
 
 povo de la ŝirmvesto.”
 
-“Mi komprenas—mi komprenas!” diris la mal-
-
-granda Bruna Urso, gestante per sia pajloplena kapo.
+“Mi komprenas—mi komprenas!” diris la malgranda Bruna Urso, gestante per sia pajloplena kapo.
 
 “Sekve, se ni povus forpreni la ŝirmveston de S-ino
 
@@ -3881,7 +3835,7 @@ ekster la kastelo, liberaj iri kien ajn ili volis.
 
 La Minaco en la Arbaro
 
-ĈAPITRO 8
+ĈAPITRO
 
 “Rapidu!” kriis Polikromo la
 
@@ -4402,9 +4356,7 @@ uzis strangan formon de Jukuhua magio kiun mi
 
 ne konas. Tamen, ŝi ne povis senigi min de mia
 
-propra fescio, do mi provos doni al vi maten-
-
-manĝon.”
+propra fescio, do mi provos doni al vi matenmanĝon.”
 
 “Ĉu vi opinias ke magia matenmanĝo estus
 
@@ -4496,9 +4448,7 @@ li vere tre malsatis.
 
 “Mi preferas kuniklojn,” li murmuris, lekante siajn
 
-lipojn, “sed mi devas agnoski ke la magia maten-
-
-manĝo plenigis mian stomakon kaj satigis min, do mi
+lipojn, “sed mi devas agnoski ke la magia matenmanĝo plenigis mian stomakon kaj satigis min, do mi
 
 multe dankas pro via komplezo, Feineto, kaj mi nun
 
@@ -4540,11 +4490,9 @@ glutis lin.”
 
 La Kverelemaj Drakoj
 
-ĈAPITRO 9
+ĈAPITRO
 
-La Verda Simio malsupren-
-
-iĝis leĝere en la teron iom
+La Verda Simio malsupreniĝis leĝere en la teron iom
 
 kaj poste falis rapide tra
 
@@ -4826,9 +4774,7 @@ La bestoj preskaŭ atingis lin kiam Vut, memorante
 
 sian puntan ŝirmveston—nun malplaĉe ŝiritan kaj
 
-malpuran—resaĝigis sian menson kaj kriis: “Mal-
-
-fermiĝu!” Je tiu krio truo ekaperis en la tegmento de
+malpuran—resaĝigis sian menson kaj kriis: “Malfermiĝu!” Je tiu krio truo ekaperis en la tegmento de
 
 la kaverno, tuj super lia kapo, kaj tra ĝi la sunlumo
 
@@ -4904,7 +4850,7 @@ Verda Simio.
 
 Tomi Hastpaŝ
 
-ĈAPITRO 10
+ĈAPITRO
 
 “Nia plej bona plano,” diris
 
@@ -5022,9 +4968,7 @@ malproksimaj de la hejmo de mia kara Zingibra.”
 
 “Kiu estas Zingibra?” demandis Vut la Verda Simio.
 
-“Ĉu vi ne aŭdis pri Zingibra?” kriis la Birdo-
-
-timigilo, surprizite.
+“Ĉu vi ne aŭdis pri Zingibra?” kriis la Birdotimigilo, surprizite.
 
 “Ne,” diris Vut. “Ĉu Zingibra estas viro, virino,
 
@@ -5033,9 +4977,7 @@ besto aŭ birdo?”
 
 La Stana Lignohakisto de Oz
 
-“Zingibra estas knabino,” klarigis la Birdotimigil-
-
-urso. “Kaj ŝi estas brava knabino, kvankam iom
+“Zingibra estas knabino,” klarigis la Birdotimigilurso. “Kaj ŝi estas brava knabino, kvankam iom
 
 malkvieta kaj ekscitiĝema. Foje, antaŭ tre longe, ŝi
 
@@ -5390,7 +5332,7 @@ vidis Tomin Hastpaŝon.
 
 La Ranĉo de Zingibra
 
-ĈAPITRO 11
+ĈAPITRO
 
 D u m i l i l a ŭ i r i s p a d o n
 
@@ -5847,7 +5789,7 @@ guston.”
 
 Ozma kaj Doroteo
 
-ĈAPITRO 12
+ĈAPITRO
 
 En sia grandioza palaco
 
@@ -5898,9 +5840,7 @@ estis fidela akompananto de Doroteo.
 
 Se oni taksus Ozman de Oz laŭ la normoj de
 
-nia mondo, oni opinius ŝin tre juna—eble dek-kvar-
-
-aŭ dekkvin-jaraĝa—tamen jam de multaj jaroj ŝi
+nia mondo, oni opinius ŝin tre juna—eble dek-kvaraŭ dekkvin-jaraĝa—tamen jam de multaj jaroj ŝi
 
 regis la Landon Oz kaj neniam aspektis eĉ iomete
 
@@ -6274,7 +6214,7 @@ karamelplantaro.
 
 La Restaŭro
 
-ĈAPITRO 13
+ĈAPITRO
 
 La Stana Strigo ululis pro
 
@@ -6484,9 +6424,7 @@ Ozma!”
 
 plu ridetante sed portante seriozan esprimon sur sia
 
-dolĉa vizaĝo. “Mi devos eksperimenti pri vi, Poli-
-
-kromo, kaj mi eble malsukcesos per ĉiuj provoj.”
+dolĉa vizaĝo. “Mi devos eksperimenti pri vi, Polikromo, kaj mi eble malsukcesos per ĉiuj provoj.”
 
 Ŝi do provis du aŭ tri diversajn magiajn metodojn,
 
@@ -6494,9 +6432,7 @@ esperante ke unu el ili sukcesos rompi la sorĉiĝon
 
 de Polikromo, sed la Filino de la Ĉielarko plu restis
 
-Kanaribirdo. Fine, tamen, ŝi faris alian eksperi-
-
-menton. Ŝi transformis la Kanarion en Kolombon,
+Kanaribirdo. Fine, tamen, ŝi faris alian eksperimenton. Ŝi transformis la Kanarion en Kolombon,
 
 poste transformis la Kolombon en Makulan Kokinon,
 
@@ -6824,7 +6760,7 @@ eble mi sukcesos.”
 
 La Verda Simio
 
-ĈAPITRO 14
+ĈAPITRO
 
 Nun ili eniris la domon,
 
@@ -7033,7 +6969,7 @@ niaj feamikoj rompis ĉiujn ŝiajn transformojn.”
 
 La Stanulo
 
-ĈAPITRO 15
+ĈAPITRO
 
 Al kaj Ozma kaj Doroteo
 
@@ -7096,9 +7032,7 @@ estis juste ke mi edzinigu Nimin Amin kaj faru
 
 nun, kiam la sorĉo estas rompita kaj mi denove
 
-estas mi mem. Ĉu mi pravas, amiko Birdo-
-
-timigilo?”
+estas mi mem. Ĉu mi pravas, amiko Birdotimigilo?”
 
 “Nepre jes,” respondis la Birdotimigilo. “Neniu
 
@@ -7288,15 +7222,11 @@ kultiviston kiu unue faris *min*. Mi ne diros ke mia
 
 amiko la Imperiestro ne estas sufice bona stanulo, sed
 
-ĉiu taksanto de beleco povas kompreni ke Birdo-
-
-timigilo estas multe pli artisma kaj rafinita.”
+ĉiu taksanto de beleco povas kompreni ke Birdotimigilo estas multe pli artisma kaj rafinita.”
 
 “Vi estas tro mola kaj malfortika,” diris la Stanulo.
 
-“Vi estas tro malmola kaj fortika,” diris la Birdo-
-
-timigilo, kaj pli proksime al kverelado la du amikoj
+“Vi estas tro malmola kaj fortika,” diris la Birdotimigilo, kaj pli proksime al kverelado la du amikoj
 
 neniam fariĝis. Polikromo ridis pri ili ambaŭ, tute
 
@@ -7333,9 +7263,7 @@ Lignohakisto serioze. “Mi kaptiĝis de ŝtormo dum mi
 
 hakadis arbon por ekzerci min, kaj antaŭ ol konscii
 
-mi firme rustis ĉe ĉiu artiko. Tie mi staris, hakil-en-
-
-mane, sed nekapabla movi min, dum tagoj kaj
+mi firme rustis ĉe ĉiu artiko. Tie mi staris, hakil-enmane, sed nekapabla movi min, dum tagoj kaj
 
 semajnoj kaj monatoj! Vere, mi neniam sciiĝis precize
 
@@ -7517,7 +7445,7 @@ Al amikoj donas pagon.”
 
 Kapitano Batalant
 
-ĈAPITRO 16
+ĈAPITRO
 
 “Ĉu vi vere estas soldato?”
 
@@ -7533,9 +7461,7 @@ gesti per sia glavo.
 
 “Mi *estis* soldato,” estis la
 
-respondo, “sed min enkarcer-
-
-igis S-ro Rusto tiom longe ke
+respondo, “sed min enkarcerigis S-ro Rusto tiom longe ke
 
 mi ne scias precize *kio* mi
 
@@ -7799,7 +7725,7 @@ penseme.
 
 La Laborejo de Tu-Tond
 
-ĈAPITRO 17
+ĈAPITRO
 
 Necesis ne pli ol duhora
 
@@ -8055,7 +7981,7 @@ la ordono.
 
 La Stana Lignohakisto Parolas al Si
 
-ĈAPITRO 18
+ĈAPITRO
 
 La Stana Lignohakisto ĵus
 
@@ -8106,9 +8032,7 @@ neniam antaŭe vidis vin dum mia vivo.”
 
 “Tamen via vizaĝo estas tre familiara,” persistis la
 
-Stana Lignohakisto. “Pardonu min, sed mi demand-
-
-emas—ĉu—ĉu—ĉu iam vi havis Korpon?”
+Stana Lignohakisto. “Pardonu min, sed mi demandemas—ĉu—ĉu—ĉu iam vi havis Korpon?”
 
 “Jes, iam,” respondis la Kapo, “sed antaŭ tiom da
 
@@ -8267,9 +8191,7 @@ Sed nun la Stana Soldato komentis:
 
 “Ĉu eble *mia* malnova kapo estas en iu el tiuj
 
-ŝtrankoj?” kaj li sekve malfermis ĉiujn pordo-
-
-ŝrankojn. Sed neniu alia kapo estis trovebla sur iu
+ŝtrankoj?” kaj li sekve malfermis ĉiujn pordoŝrankojn. Sed neniu alia kapo estis trovebla sur iu
 
 el la bretoj.
 
@@ -8310,9 +8232,7 @@ deklaris.
 
 “Vi kaj mi estas unuo.”
 
-“Ni disapartiĝis,” asertis la Kapo. “Estus kontraŭ-
-
-nature se mi interesiĝus pri viro konsistanta el stano.
+“Ni disapartiĝis,” asertis la Kapo. “Estus kontraŭnature se mi interesiĝus pri viro konsistanta el stano.
 
 Bonvolu fermi la pordon kaj lasi min sola.”
 
@@ -8827,7 +8747,7 @@ dancadis sekvante ilin kiam ili rekomencis veturi.
 
 La Nevidebla Lando
 
-ĈAPITRO 19
+ĈAPITRO
 
 Ili trovis sin tiel facile kaj
 
@@ -8839,9 +8759,7 @@ serioza voĉtono:
 
 “Mi timas ke io okazos.”
 
-“Kial?” demandis Poli-
-
-kromo, dancante ĉirkaŭ la
+“Kial?” demandis Polikromo, dancante ĉirkaŭ la
 
 grupon de veturantoj.
 
@@ -8992,9 +8910,7 @@ ne povas vidi vin, eĉ nun, nek mi povas vidi iun
 
 alian!”
 
-“Estas same pri mi,” agnoskis la Stana Ligno-
-
-hakisto.
+“Estas same pri mi,” agnoskis la Stana Lignohakisto.
 
 Vut ne povis vidi iun el ili, kvankam li aŭdis ilin
 
@@ -9025,9 +8941,7 @@ Sidante sur la tero, la knabo demandis:
 
 Birdotimigilo, kuŝante kie li falis.
 
-“Ni renkontis neniun malamikon,” respondis Poli-
-
-kromo, “do devas esti ke ĉi tiu parto de la lando
+“Ni renkontis neniun malamikon,” respondis Polikromo, “do devas esti ke ĉi tiu parto de la lando
 
 havas la magian kvaliton nevidebligi onin—eĉ feojn
 
@@ -9092,9 +9006,7 @@ Gvidate de lia voĉo, ili atingis lin, kaj Vut prenis
 
 liajn stanajn fingrojn por ke ili restu kune.
 
-La Stana Soldato staris proksime kaj la Birdo-
-
-timigilo baldaŭ tuŝis lin kaj prenis lian brakon.
+La Stana Soldato staris proksime kaj la Birdotimigilo baldaŭ tuŝis lin kaj prenis lian brakon.
 
 “Mi esperas ke vi ne ŝanceliĝas,” diris la pajlulo,
 
@@ -9141,9 +9053,7 @@ silenta. Ĉiuj aliaj ankaŭ silentis, esperante ke la
 
 nevidebla besto ne povos trovi ilin. Sed la besto
 
-flaris la odoron de la pajlo kaj pli kaj pli proksim-
-
-iĝis al ili ĝis li atingis la Stanan Lignohakiston, ĉe
+flaris la odoron de la pajlo kaj pli kaj pli proksimiĝis al ili ĝis li atingis la Stanan Lignohakiston, ĉe
 
 unu fino de la vico. Ĝi estis granda besto kaj ĝi
 
@@ -9219,9 +9129,7 @@ nevideblaj bestoj ĉirkaŭvagas nin, aŭ kian danĝeron
 
 ni nun renkontos.”
 
-“Ĉesu pensi pri danĝeroj, bonvolu,” diris la Birdo-
-
-timigilo, averte.
+“Ĉesu pensi pri danĝeroj, bonvolu,” diris la Birdotimigilo, averte.
 
 “Kial?” demandis la knabo.
 
@@ -9372,13 +9280,9 @@ estas kamaradoj, fidelaj kaj veraj, ni defendos la
 
 plenigaĵon de nia amiko kontraŭ ĉiuj malamikoj.”
 
-La Hi-po-ĝi-rafo sidiĝis kaj rigardis ilin bedaŭro-
+La Hi-po-ĝi-rafo sidiĝis kaj rigardis ilin bedaŭroplene.
 
-plene.
-
-“Kiam oni decidis doni al si bongustegan pajlo-
-
-manĝon, kaj poste trovas ke ke oni ne povas havi ĝin,
+“Kiam oni decidis doni al si bongustegan pajlomanĝon, kaj poste trovas ke ke oni ne povas havi ĝin,
 
 certe estas misfortuno,” li diris. “Kaj kiel utilas la
 
@@ -9539,9 +9443,7 @@ kaj kiam ĉio estis manĝita Polikromo bele aranĝis la
 
 vestojn kaj botojn kaj gantojn kaj ĉapelon kaj diris ke
 
-ŝi portos ilin, kaj Vut metis la kapon de la Birdo-
-
-timigilo sub sian brakon kaj promesis gardi ĝin zorge.
+ŝi portos ilin, kaj Vut metis la kapon de la Birdotimigilo sub sian brakon kaj promesis gardi ĝin zorge.
 
 “Nu, do,” diris la Stana Lignohakisto, “plenumu
 
@@ -9736,7 +9638,7 @@ kvazaŭ sunradio.
 
 Tranokte
 
-ĈAPITRO 20
+ĈAPITRO
 
 La Manĝtula Lando estas
 
@@ -9818,9 +9720,7 @@ multe pli alta ol lia talio, sed neniu respondis. Li
 
 refrapis, sed neniu sono aŭdiĝis.
 
-“Fumo leviĝas el la kamentubo,” anoncis Poli-
-
-kromo, kiu dancadis leĝere tra la ĝardeno, kie bele
+“Fumo leviĝas el la kamentubo,” anoncis Polikromo, kiu dancadis leĝere tra la ĝardeno, kie bele
 
 kreskadis brasikoj kaj betoj kaj napoj kaj tiaj plantoj.
 
@@ -9848,9 +9748,7 @@ domo,” diris la enfenestrulo. “Kion vi volas?”
 
 Lignohakisto, scivoleme.
 
-“Li estas Profesoro de Brasikokultivado kaj Maiz-
-
-perfektigo. Li estas tre fama en sia propra familio, kaj
+“Li estas Profesoro de Brasikokultivado kaj Maizperfektigo. Li estas tre fama en sia propra familio, kaj
 
 estus mondmirindaĵo se li vojaĝadus,” diris S-ino
 
@@ -9881,9 +9779,7 @@ amikojn kontraŭ iliaj malamikoj,” klarigis la
 
 Imperiestro de la Palpbrumoj, kaj Vut aldonis:
 
-“Ne timu nin, S-ino Pornjo, ĉar ni estas sen-
-
-danĝeraj veturantoj. La stanuloj kaj la Birdotimigilo
+“Ne timu nin, S-ino Pornjo, ĉar ni estas sendanĝeraj veturantoj. La stanuloj kaj la Birdotimigilo
 
 neniam manĝas, kaj Polikromo festenas nur per
 
@@ -10069,7 +9965,7 @@ Manĝto.
 
 La Magio de Polikromo
 
-ĈAPITRO 21
+ĈAPITRO
 
 Dum ĉi tiu mateno, kiu
 
@@ -10163,9 +10059,7 @@ diris perpleksaspektante:
 
 “Mi nenion vidas.”
 
-“Nek mi,” diris Vut; “sed io batis min, mal-
-
-graŭe.”
+“Nek mi,” diris Vut; “sed io batis min, malgraŭe.”
 
 “Iu nevidebla persono tre forte batis min,” deklaris
 
@@ -10230,9 +10124,7 @@ kuniklo, “ĉar ĝi konstruiĝis per potenca sorĉado, kaj
 
 tiu domo tie.”
 
-“Ho; ĝi estas muro, ĉu?” diris la Stana Ligno-
-
-hakisto.
+“Ho; ĝi estas muro, ĉu?” diris la Stana Lignohakisto.
 
 “Jes, ĝi vere estas muro,” respondis la kuniklo, “kaj
 
@@ -10525,7 +10417,7 @@ al la domo de Nimi Ami.
 
 Nimi Ami
 
-ĈAPITRO 22
+ĈAPITRO
 
 Estu certa ke tiumomente
 
@@ -10643,9 +10535,7 @@ estas bonvenaj.”
 
 La ĉambro kiun ili nun eniris estis tre plaĉa kaj
 
-komforta, bele meblita kaj bone balaita kaj sen-
-
-polvigita. Sed ili trovis iun alian tie krom Nimin
+komforta, bele meblita kaj bone balaita kaj senpolvigita. Sed ili trovis iun alian tie krom Nimin
 
 Amin. Viro vestita per la alloga Manĝtula kostumo
 
@@ -10682,9 +10572,7 @@ kiu sonis kolera kaj indigna, “ke vi, sinjoro, estas fia
 
 fraŭdulo!”
 
-“Milde—milde!” avertis la Birdotimigilo; “ne mal-
-
-ĝentilu al nekonatoj, Kapitano.”
+“Milde—milde!” avertis la Birdotimigilo; “ne malĝentilu al nekonatoj, Kapitano.”
 
 “Malĝentilu?” kriegis la Stana Soldato, nun vere
 
@@ -10809,9 +10697,7 @@ mia lango kaj per mia balailo. Sed li estas mia edzo,
 
 kaj mi devas akcepti lin kia li estas.”
 
-“Se li ne plaĉas al vi,” sugestis la Stana Ligno-
-
-hakisto, “Kapitano Batalant kaj mi povos dishaki lin
+“Se li ne plaĉas al vi,” sugestis la Stana Lignohakisto, “Kapitano Batalant kaj mi povos dishaki lin
 
 per niaj hakilo kaj glavo, kaj ĉiu prenos tiujn partojn
 
@@ -10903,9 +10789,7 @@ edzino kaj feliĉa. Tio detenos plian maltrankvilon pri
 
 ŝi.”
 
-“Rilate al mi,” diris la Stana Soldato, “ne mal-
-
-plaĉas al mi esti libera. Min ĉagrenas nur la trovo ke
+“Rilate al mi,” diris la Stana Soldato, “ne malplaĉas al mi esti libera. Min ĉagrenas nur la trovo ke
 
 mia kapo estas sur la korpo de Hakbat.”
 
@@ -10938,7 +10822,7 @@ voĉo:
 
 Tra la Tunelo
 
-ĈAPITRO 23
+ĈAPITRO
 
 Ne pluvis tuj tiam, kvankam
 
@@ -10946,9 +10830,7 @@ la nuboj en la ĉielo plidikiĝis
 
 k a j p l i f o r t e m i n a c i s .
 
-Polikromo esperis tondro-
-
-ŝtormon, sekvotan de ŝia
+Polikromo esperis tondroŝtormon, sekvotan de ŝia
 
 Ĉielarko, sed la du stanulojn
 
@@ -11016,9 +10898,7 @@ estis en la ĝardeno.
 
 La Stana Lignohakisto de Oz
 
-Ĉu li vere ne povus almenaŭ deziri al ni bon-
-
-vojaĝon?”
+Ĉu li vere ne povus almenaŭ deziri al ni bonvojaĝon?”
 
 “Mi petas ke vi ne tenu nin respondecaj pri la agoj
 
@@ -11048,9 +10928,7 @@ finon, ekster la cirkla Muro de Solida Aero, la ŝtormo
 
 estis plejforta kaj la pluvo torentis.
 
-“Ni atendu ĉi tie,” proponis Polikromo, rigardet-
-
-ante el la truo kaj rapide retirante sin. “La Ĉielarko
+“Ni atendu ĉi tie,” proponis Polikromo, rigardetante el la truo kaj rapide retirante sin. “La Ĉielarko
 
 ne aperos ĝis post la ŝtormo kaj mi povos tuje
 
@@ -11118,9 +10996,7 @@ kunulino kaj certigis al ŝi sian amon se ili iam
 
 La Stana Lignohakisto de Oz
 
-hazarde rerenkontiĝos. Ŝi manpremis kun la Birdo-
-
-timigilo kaj la Stanuloj kaj kisis Vuton la Vagiston
+hazarde rerenkontiĝos. Ŝi manpremis kun la Birdotimigilo kaj la Stanuloj kaj kisis Vuton la Vagiston
 
 leĝere sur la frunto.
 
@@ -11159,7 +11035,7 @@ per siaj manoj al la malaperinta Polikromo.
 
 La Kurteno Falas
 
-ĈAPITRO 24
+ĈAPITRO
 
 Nu, la cetero de la rakonto
 

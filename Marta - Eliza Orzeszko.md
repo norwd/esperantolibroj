@@ -3,22 +3,11 @@ Eliza Orzeszko
 Marta
 
 
-### 1
-
-
 Eliza Orzeszko
 
 MARTA
 
 L.L. Zamenhof
-
-
-@omnibus.se
-
-·
-
-
-MARTA
 
 
 La vivo de virino estas eterne brulanta flamo de amo, diras unuj. La vivo de virino estas sinoferado, certigas aliaj. La vivo de virino estas patrineco, krias parto da homoj. La vivo de virino estas amuziĝado, ŝercas aliaj. La virto de virino estas blinda kredo, ˛ore konsentas ĉiuj.
@@ -35,9 +24,7 @@ Antaŭ ne longe unu el la verkistoj plej merite estimataj en nia lando (S-ro Zac
 
 Ho, ĉielo! kia grandega maljusteco tio estas!
 
-La rozokolora dio Eroso helpe flugu al ni malsupren kaj 3
-
-MARTA
+La rozokolora dio Eroso helpe flugu al ni malsupren kaj
 
 
 atestu, ke nia tuta vivo estas nenio alia ol konstanta incensa-do pro lia honoro.
@@ -46,17 +33,10 @@ Apenaŭ ni komencis marŝi per niaj propraj infanaj piedoj, ni jam aŭdas, ke de
 
 … Poste … kio do estas poste? La Adoniso malsupreniras el la nuboj, enkorpiĝas, ni interŝanĝas kun li ringojn kaj ni edziniĝas … Tio estas ankaŭ akto de amo, kaj kvankam la supre citita verkisto, en siaj cetere tre belaj rakontoj, volas kredigi, ke ĉiam kaj senescepte tio estas nur akto de prikalkulo, mi ne konsentas kun li en tio. i estas akto de prikalkulo en esceptaj aferoj kaj cirkonstancoj, sed ĝenerale ĝi estas akto de amo. De kia amo? Tio estas jam tute alia afero, tre subtila kaj postulanta longan priparoladon; sed en ĉiu okazo, kiam en blanka muslino, kovrante la honteman vizaĝon per la tulaj randaĵoj, ni iras al la altaro, la ĉarma Eroso flugas antaŭ ni kaj balancas super nia kapo la torĉon kun la rozokoloraj flametoj.
 
-Poste? Kio do estas poste? Ni denove amas … se ne tiun el la sinjoroj de la kreitaĵaro, kiun la knabineto vidis en sia revado kaj kiu al la junulino metis sur la fingron la edzigan ringon, — tiam alian: kaj cetere, se ni amas neniun, ni almenaŭ deziras ami … ni konsumiĝas, ni enfalas en ftizon, ni ofte fari-
-
-ĝas furioj kaŭze de nia dezirego de amo.
+Poste? Kio do estas poste? Ni denove amas … se ne tiun el la sinjoroj de la kreitaĵaro, kiun la knabineto vidis en sia revado kaj kiu al la junulino metis sur la fingron la edzigan ringon, — tiam alian: kaj cetere, se ni amas neniun, ni almenaŭ deziras ami … ni konsumiĝas, ni enfalas en ftizon, ni ofte fariĝas furioj kaŭze de nia dezirego de amo.
 
 
-MARTA
-
-
-Kaj kio sekvas el ĉio ĉi tio? Unuj el ni, ŝirmitaj de flugiloj de la dio de amo, traflugas la tutan vivon honeste, virte kaj feliĉe, sed aliaj, pli multaj, forte plimultaj, per sangantaj piedoj mar-
-
-ŝas sur la tero, batalante pro la pano, pro trankvileco, pro virto, verŝante multe da larmoj, terure suferante, kruele pe-kante, falante ĉiam pli kaj pli en la abismon de honto, mortante de malsato …
+Kaj kio sekvas el ĉio ĉi tio? Unuj el ni, ŝirmitaj de flugiloj de la dio de amo, traflugas la tutan vivon honeste, virte kaj feliĉe, sed aliaj, pli multaj, forte plimultaj, per sangantaj piedoj marŝas sur la tero, batalante pro la pano, pro trankvileco, pro virto, verŝante multe da larmoj, terure suferante, kruele pe-kante, falante ĉiam pli kaj pli en la abismon de honto, mortante de malsato …
 
 Sekve la recepto, konsistanta el la sola vorto ”amu”, helpas ne kontraŭ ĉiuj malsanoj.
 
@@ -67,51 +47,33 @@ Kian?
 Tion eble diros al vi folieto, elŝirita el la vivo de virino …
 
 
-MARTA
-
-
 La strato Graniczna estas unu el la sufiĉe vivoplenaj stratoj de Varsovio. Antaŭ kelke da jaroj, en tre bela aŭtuna tago, tra tiu strato iris kaj veturis multe da homoj, el kiuj ĉiu rapidis aŭ al siaj aferoj, aŭ al plezuro, ne rigardante flanken, nek dekstren nek maldekstren, kaj tute ne atentante tion, kio fariĝas en la profundo de unu el la kortoj, kiuj kuntuŝiĝas kun tiu strato.
 
 Tiu korto estis pura, sufiĉe vasta, de kvar flankoj ĉirkaŭita de altaj masonitaj konstruaĵoj. La konstruaĵo, kiu staris en la profundo, estis la plej malgranda, sed laŭ la grandaj fenestroj, la larĝa eniro kaj la bela perono, kiu ornamis tiun eniron, oni povis konkludi, ke la loĝejoj, kiuj tie troviĝas, estas komfor-taj kaj belaj.
 
 Sur la perono staris juna virino en funebra vesto kun tre pala vizaĝo. Egale pala kaj ankaŭ funebre vestita kvarjara knabineto alkroĉiĝis al ŝiaj manoj, kiuj, kvankam ne perdinte sian forton, pendis tamen velke, donante al la figuro de la virino la eksteraĵon de granda malĝojo kaj sufero.
 
-De la pura, larĝa ŝtuparo, kiu kondukis al la pli alta etaĝo de la konstruaĵo, konstante deiradas homoj en malelegantaj vestoj kaj malelegantaj polvokovritaj botoj. Tio estis portistoj, kiuj portis la plej diversajn meblaĵojn, per kiuj povas esti plenigita kaj ornamita loĝejo, se ne tro vasta kaj eleganta, tamen almenaŭ bele kaj oportune aranĝita. Tie estis litoj mahagonaj, 6
-
-MARTA
+De la pura, larĝa ŝtuparo, kiu kondukis al la pli alta etaĝo de la konstruaĵo, konstante deiradas homoj en malelegantaj vestoj kaj malelegantaj polvokovritaj botoj. Tio estis portistoj, kiuj portis la plej diversajn meblaĵojn, per kiuj povas esti plenigita kaj ornamita loĝejo, se ne tro vasta kaj eleganta, tamen almenaŭ bele kaj oportune aranĝita. Tie estis litoj mahagonaj,
 
 
 kanapoj kaj brakseĝoj tegitaj per punca lana damasko, belformaj ŝrankoj kaj komodoj, kelke da tabletoj eĉ kun marmoraj plataĵoj, kelke da sufiĉe grandaj speguloj, du grandaj olean-draj arboj en florpotoj kaj unu daturarbo, sur kies branĉoj pendis ankoraŭ kelke da ne tute defalintaj kalikoj de blanka floraĵo.
 
 ĉiujn objektojn la portistoj portis malsupren de la ŝtuparo, kaj, pasante preter la virino, kiu staris sur la perono, ili starigis la objektojn sur la pavimo de la korto, aŭ lokis sur du ŝarĝveturiloj, kiuj staris proksime de la pordego, aŭ portis eksteren sur la straton. La virino staris senmove kaj akompanis per la okuloj ĉiun el la elportataj meblaĵoj. Oni povis rimarki, ke tiuj objektoj, kiuj videble estis forprenataj de ŝi, havis por ŝi valoron ne sole materialan; ŝi disiĝis de ili en tia maniero, en kia oni disiĝas de videblaj signoj, kiuj prezentas antaŭ niaj okuloj historion de senrevene foririnta pasintaĵo, ŝi disiĝis de ili tiel, kiel oni disiĝas de mutaj atestantoj de perdita feliĉo. La pala nigrokula infano pli forte ektiris la veston de la patrino.
 
-—Panjo! — mallaŭte diris la knabineto, — la skribtablo de la patro! La portistoj portis de la ŝtuparo kaj metis sur la ŝarĝ-
+—Panjo! — mallaŭte diris la knabineto, — la skribtablo de la patro! La portistoj portis de la ŝtuparo kaj metis sur la ŝarĝveturilon grandan kabinetan skribtablon, tegitan per verda drapo kaj ornamitan per bele skulptita galerieto. La virino en la funebra vesto per longa rigardo fiksis la meblaĵon, kiun montris al ŝi la malgranda fingreto de la infano.
 
-veturilon grandan kabinetan skribtablon, tegitan per verda drapo kaj ornamitan per bele skulptita galerieto. La virino en la funebra vesto per longa rigardo fiksis la meblaĵon, kiun montris al ŝi la malgranda fingreto de la infano.
+—Panjo! — mallaŭte diris la knabineto, — ĉu vi vidas tiun grandan nigran makulon sur la skribtablo de la patro? … Mi memoras, kiel tio fariĝis … La patro sidis antaŭ la skribtablo kaj tenis min sur la genuoj; vi, panjo, venis kaj volis forpreni min de la patro. La patro ridis kaj ne donis min, mi petolis kaj elverŝis la n. La patro ne koleris. La patro estis bona, li neniam koleris, nek min, nek vin …
 
-—Panjo! — mallaŭte diris la knabineto, — ĉu vi vidas tiun grandan nigran makulon sur la skribtablo de la patro? … Mi memoras, kiel tio fariĝis … La patro sidis antaŭ la skribtablo kaj tenis min sur la genuoj; vi, panjo, venis kaj volis forpreni min de la patro. La patro ridis kaj ne donis min, mi petolis kaj el-7
-
-MARTA
-
-
-verŝis la n. La patro ne koleris. La patro estis bona, li neniam koleris, nek min, nek vin …
-
-La infano mallaŭte parolis tiujn vortojn, kaŝante sian viza-
-
-ĝeton en la faldoj de la funebra vesto de la patrino, per sia tuta korpeto alpremante sin al ŝiaj genuoj. Videble eĉ sur tiu infana koro la rememoroj montris jam sian forton, premante ĝin per senkonscia doloro. El la ĝis nun sekaj okuloj de la virino elfluis du grandaj larmoj: la momento, kiun revokis en ŝian memoron la vortoj de la infano, momento, kiu iam perdiĝis en miliono da similaj ĉiutagaj, ekridetis nun al la malfeliĉulino kun ĉarma maldolĉeco de perdita paradizo. Povas esti, ke ŝi ankaŭ ekpensis pri tio, ke la libereco kaj gajeco de tiu momento alportis al ŝi hodiaŭ perdon de unu el la lastaj pecoj da pano, kiuj restis al ŝi kaj al ŝia infano, kaj morgaŭ alportos al ŝi malsaton; la inka makulo, kiu naskiĝis meze de ridado de la infano kaj kisoj de la gepatroj, deprenis unu aŭ du spesmilojn de la valoro de la meblaĵo. Post la skribtablo aperis sur la korto bela fortepiano, sed la virino en funebra vesto akompanis ĝin jam per rigardo pli indiferenta. Videble ŝi tute ne estis artistino, la muzika instrumento vekis en ŝi malplej da bedaŭroj kaj rememoroj; sed malgranda mahagona liteto kun kovrilo el kolora brodlano, kiam oni ĝin elportis el la domo kaj starigis sur la ŝarĝveturilo, alforĝis al si la rigardon de la patrino, plenigis per larmoj la okulojn de la infano.
+La infano mallaŭte parolis tiujn vortojn, kaŝante sian vizaĝeton en la faldoj de la funebra vesto de la patrino, per sia tuta korpeto alpremante sin al ŝiaj genuoj. Videble eĉ sur tiu infana koro la rememoroj montris jam sian forton, premante ĝin per senkonscia doloro. El la ĝis nun sekaj okuloj de la virino elfluis du grandaj larmoj: la momento, kiun revokis en ŝian memoron la vortoj de la infano, momento, kiu iam perdiĝis en miliono da similaj ĉiutagaj, ekridetis nun al la malfeliĉulino kun ĉarma maldolĉeco de perdita paradizo. Povas esti, ke ŝi ankaŭ ekpensis pri tio, ke la libereco kaj gajeco de tiu momento alportis al ŝi hodiaŭ perdon de unu el la lastaj pecoj da pano, kiuj restis al ŝi kaj al ŝia infano, kaj morgaŭ alportos al ŝi malsaton; la inka makulo, kiu naskiĝis meze de ridado de la infano kaj kisoj de la gepatroj, deprenis unu aŭ du spesmilojn de la valoro de la meblaĵo. Post la skribtablo aperis sur la korto bela fortepiano, sed la virino en funebra vesto akompanis ĝin jam per rigardo pli indiferenta. Videble ŝi tute ne estis artistino, la muzika instrumento vekis en ŝi malplej da bedaŭroj kaj rememoroj; sed malgranda mahagona liteto kun kovrilo el kolora brodlano, kiam oni ĝin elportis el la domo kaj starigis sur la ŝarĝveturilo, alforĝis al si la rigardon de la patrino, plenigis per larmoj la okulojn de la infano.
 
 — Mia liteto, panjo! — ekkriis la knabineto — tiuj homoj forprenas ankaŭ mian liteton, kaj ankaŭ tiun kovrileton, kiun vi mem al mi faris! Reprenu, panjo, de ili mian liteton kaj la kovrileton.
 
-La tuta respondo de la virino konsistis nur en tio, ke ŝi pli 8
-
-MARTA
+La tuta respondo de la virino konsistis nur en tio, ke ŝi pli
 
 
 forte alpremis al la genuoj la kapon de la ploranta infano; ŝiaj nigraj, belaj, iom enfalintaj okuloj estis denove sekaj, la pala delikata buŝo estis fermita kaj silenta.
 
-Tiu bela infana liteto estis jam la lasta el la elportitaj meblaĵoj. Oni malfermis en la plena larĝo la pordegon, la veturiloj ŝarĝitaj per la meblaĵoj enveturis en la belan straton, post ili foriris la portistoj, tenante sur la ŝultroj la reston de la ŝar-
-
-ĝoj, kaj malantaŭ la najbaraj fenestroj malaperis la homaj kapoj, kiuj ĝis nun scivole elrigardis sur la korton.
+Tiu bela infana liteto estis jam la lasta el la elportitaj meblaĵoj. Oni malfermis en la plena larĝo la pordegon, la veturiloj ŝarĝitaj per la meblaĵoj enveturis en la belan straton, post ili foriris la portistoj, tenante sur la ŝultroj la reston de la ŝarĝoj, kaj malantaŭ la najbaraj fenestroj malaperis la homaj kapoj, kiuj ĝis nun scivole elrigardis sur la korton.
 
 De la ŝtuparo malsupreniris juna knabino en supervesto kaj ĉapelo kaj haltis antaŭ la virino en la funebra vesto.
 
@@ -131,9 +93,7 @@ Dirinte tion, ŝi tuŝis la larme malsekajn okulojn per sia ma-no, sur kiu estis
 
 —Mi akompanos vin al la nova loĝejo, — rediris la knabino, — mi tuj vokos veturilon.
 
-Kvaronhoron post tiu interparolo la ambaŭ virinoj kaj la 9
-
-MARTA
+Kvaronhoron post tiu interparolo la ambaŭ virinoj kaj la
 
 
 infano eliĝis el veturilo antaŭ unu el la domoj ĉe la strato Piwna.
@@ -156,12 +116,7 @@ de malnovaj lignaj staloj kaj konservejoj, la virinoj kaj la infano supreniris s
 
 La ĉambro, kies pordon la pordisto malfermis, estis sufiĉe vasta, sed malalta kaj malluma; unu negranda fenestro, malfermiĝanta super la tegmento de la domo, donis nesufiĉan lumon; la plafono, oblikve iranta de supre malsupren, kvazaŭ premis la murojn, de kiuj blovis malsekeca odoro de kalko, per kiu oni videble freŝe ilin blankigis.
 
-En la angulo apud la forno el simplaj brikoj estis negranda kamero por kuirado: kontraŭe ĉe unu el la muroj staris negranda ŝranketo, poste ankoraŭ lito sen flankapogiloj, ka-10
-
-MARTA
-
-
-napeto tegita per disŝirita katuno, tablo nigre kolorigita, kaj kelke da flavaj seĝoj kun pajla reto, parte disŝirita kaj kavigita.
+En la angulo apud la forno el simplaj brikoj estis negranda kamero por kuirado: kontraŭe ĉe unu el la muroj staris negranda ŝranketo, poste ankoraŭ lito sen flankapogiloj, kanapeto tegita per disŝirita katuno, tablo nigre kolorigita, kaj kelke da flavaj seĝoj kun pajla reto, parte disŝirita kaj kavigita.
 
 La virino en funebra vesto haltis momenton sur la sojlo, ĵetis malrapidan rigardon en la tutan ĉambron kaj poste, farinte kelke da paŝoj, sidiĝis sur la kanapeto.
 
@@ -173,9 +128,7 @@ Ili ne estis en granda nombro, ilia ordigo sekve daŭris mallonge; ne deprenante
 
 —Jen tiel, — ŝi diris, leviĝinte de la genua pozicio kaj turnante al la senmova virino la vizaĝon, ruĝigitan de la blov-ekscitado de la fajro: — mi ekbruligis fajron, kaj tuj estos al vi pli varme kaj pli lume. Lignon por hejtado vi trovos malantaŭ la forno, estos kredeble sufiĉe por ĉirkaŭ du semajnoj; la vestoj kaj tolaĵo estas en la pakaĵeto, la vazoj kuirejaj kaj bu-fedaj en la ŝranko, la kandelo en la kandelingo ankaŭ en la ŝranko.
 
-Dirante ĉi tion, la bona servistino videble penis havi gajan 11
-
-MARTA
+Dirante ĉi tion, la bona servistino videble penis havi gajan
 
 
 tonon, sed la rideto ne povis sin teni sur ŝia buŝo, kaj la okuloj apenaŭ retenis larmojn.
@@ -205,16 +158,11 @@ La virino en funebra vesto levis la palan vizaĝon kaj rektigis sian elastan tal
 —Mi ankaŭ, Sonjo, mi ankaŭ laboros, — ŝi diris per voĉo pli forta ol tiu, per kiu ŝi ĝis nun parolis, — mi ankaŭ havas infanon, por kiu mi devas labori …
 
 
-MARTA
-
-
 —Dio vin ne forlasu, kaj Li vin benu, mia plej kara sinjorino! — ekkriis la juna servistino, kaj, ankoraŭ unu fojon kisinte la manojn de la patrino kaj la plorantan vizaĝon de la infano, ŝi, ne rigardante returne, elkuris el la ĉambro.
 
 Post la eliro de la knabino en la ĉambro ekregis granda silento, interrompata nur de la kraketado de la fajro, kiu brulis sur la kameno, kaj de la bruo de la strato, kiu obtuze kaj neklare atingadis la mansardon. La virino en funebra vesto sidis sur la kanapeto, la infano en la unua momento ploris, poste ĝi alpremiĝis al la brusto de la patrino, silentiĝis kaj laca endormiĝis. La virino apogis la kapon sur la manplato, per la brako ŝi ĉirkaŭis la malgrandan talion de la infano, kiu dormis sur ŝiaj genuoj, kaj per senmovaj okuloj ŝi rigardis la tre-metantan brilon de la flamo. Kun la foriro de la fidela kaj sin-donema servistino foriris de ŝi la lasta homa vizaĝo, kiu estis atestanto de ŝia estinteco, la lasta apogo, kiu restis al ŝi post la malapero de ĉio, kio antaŭe servis al ŝi kiel apogo, helpo kaj subteno. ŝi restis nun sola, elmetita al la volo de de la sorto, al la malfacileco de la soluleco, al la forto de siaj propraj manoj kaj kapo, kaj kune kun ŝi estis nur tiu malgranda, malforta ekzistaĵeto, kiu povis nur ĉe ŝia brusto serĉi ripozon, de ŝia buŝo postuli kareson, el ŝia mano atendi nutron. ŝia domo, kiu estis iam aranĝita por ŝi de la amanta mano de la edzo, nun, forlasita de ŝi, akceptis en sian internon novajn loĝantojn: la bona, amata homo, kiu ĝis nun ĉirkaŭadis ŝin per amo kaj bonstato, de kelke da tagoj kuŝis en la tombo …
 
-ĉio forpasis … la amo, bonstato, trankvileco kaj sereneco de la vivo, kaj sola postesigno de sonĝosimile malaperinta estinteco estis por la malfeliĉa virino la doloraj rememoroj kaj tiu pala, malforta infano, kiu nun, malferminte la okulojn 13
-
-MARTA
+ĉio forpasis … la amo, bonstato, trankvileco kaj sereneco de la vivo, kaj sola postesigno de sonĝosimile malaperinta estinteco estis por la malfeliĉa virino la doloraj rememoroj kaj tiu pala, malforta infano, kiu nun, malferminte la okulojn
 
 
 post momenta dormo, ĵetis siajn manetojn ĉirkaŭ ŝian kolon kaj, alpremante sian buŝeton al ŝia vizaĝo, mallaŭte diris: Panjo! donu al mi manĝi! Nun tiu peto ankoraŭ havis en si nenion, kio povus veki timon aŭ malĝojon en la koro de la patrino.
@@ -245,9 +193,7 @@ Dirante la lastajn vortojn, li malaperis malantaŭ flekso de la muro. La vidvino
 
 —He, kion do vi tiel ĉirkaŭrigardas? — eksonis apud ŝi virina voĉo raŭka kaj malagrabla.
 
-La vidvino ekvidis virinon, kiu staris antaŭ malalta pordeto 14
-
-MARTA
+La vidvino ekvidis virinon, kiu staris antaŭ malalta pordeto
 
 
 proksime de la pordego kaj kies vizaĝon ŝi en la krepusko ne rekonis, sed kies mallonga jupo, granda tola kufo kaj simpla tuko, malrekte ĵetita sur la ŝultrojn, kaj ankaŭ la sono de la voĉo kaj la tono de la parolado montris, ke ŝi estas virino po-polamasa.
@@ -268,12 +214,7 @@ La virino pripensis momenton.
 
 Kelke da minutoj la vidvino staris senmove, videble ne sciante, kion fari kaj al kiu sin turni; ŝi ekĝemis kaj lasis fali la manojn. Sed baldaŭ ŝi levis la kapon, kaj, alirinte al la pordego, ŝi malfermis la pordeton, kiu kondukis al la strato.
 
-Estis ankoraŭ ne tre malfrue vespere, sed sufiĉe mallume: malmultaj lanternoj malbone lumis la mallarĝan strateton, plenan de amasoj da homoj; sur la trotuaroj larĝaj partoj estis en plena mallumo. Ondo da malvarma aŭtuna vento en-fluis en la pordegan arkaĵon tra la malfermita pordeto, frapis la vizaĝon de la vidvino kaj ekturnis la flankojn de ŝia nigra tuko; la bruo de la veturiloj kaj la murmurego de la intermiksitaj paroloj surdigis ŝin, la mallumo sur la trotuaroj ŝin timi-15
-
-MARTA
-
-
-gis. ŝi retiriĝis je kelke da paŝoj en la profundon de la pordega arkaĵo kaj staris denove kelkan tempon kun mallevita kapo; subite tamen ŝi elrektiĝis kaj paŝis antaŭen. ŝi eble rememoris sian infanon, kiu atendis manĝon, aŭ eble ŝi eksentis, ke ŝi devas akiri de sia volo kaj kuraĝo tion, kion ŝi de nun devos jam akiradi ĉiutage, ĉiuhore. ŝi metis la tukon sur la kapon kaj transpaŝis la sojlon de la pordeto. ŝi ne sciis, en kiu flanko oni devas serĉi butiketon kun manĝeblaĵoj. ŝi iris sufiĉe grandan pecon, esplorante per la rigardo la elmetaĵojn de la magazenaj fenestroj, ŝi preterpasis kelke da cigarbutiketoj, ian kafejon, ian butikon de silkaĵoj, kaj ŝi iris returne. ŝi ne ku-raĝis pli enprofundiĝi en la straton, nek peti de iu klarigon. ŝi direktis sin en la alian flankon, kaj post kvaronhoro ŝi revenis kun kelke da bulkoj en blanka tuketo.
+Estis ankoraŭ ne tre malfrue vespere, sed sufiĉe mallume: malmultaj lanternoj malbone lumis la mallarĝan strateton, plenan de amasoj da homoj; sur la trotuaroj larĝaj partoj estis en plena mallumo. Ondo da malvarma aŭtuna vento en-fluis en la pordegan arkaĵon tra la malfermita pordeto, frapis la vizaĝon de la vidvino kaj ekturnis la flankojn de ŝia nigra tuko; la bruo de la veturiloj kaj la murmurego de la intermiksitaj paroloj surdigis ŝin, la mallumo sur la trotuaroj ŝin timigis. ŝi retiriĝis je kelke da paŝoj en la profundon de la pordega arkaĵo kaj staris denove kelkan tempon kun mallevita kapo; subite tamen ŝi elrektiĝis kaj paŝis antaŭen. ŝi eble rememoris sian infanon, kiu atendis manĝon, aŭ eble ŝi eksentis, ke ŝi devas akiri de sia volo kaj kuraĝo tion, kion ŝi de nun devos jam akiradi ĉiutage, ĉiuhore. ŝi metis la tukon sur la kapon kaj transpaŝis la sojlon de la pordeto. ŝi ne sciis, en kiu flanko oni devas serĉi butiketon kun manĝeblaĵoj. ŝi iris sufiĉe grandan pecon, esplorante per la rigardo la elmetaĵojn de la magazenaj fenestroj, ŝi preterpasis kelke da cigarbutiketoj, ian kafejon, ian butikon de silkaĵoj, kaj ŝi iris returne. ŝi ne ku-raĝis pli enprofundiĝi en la straton, nek peti de iu klarigon. ŝi direktis sin en la alian flankon, kaj post kvaronhoro ŝi revenis kun kelke da bulkoj en blanka tuketo.
 
 Lakton ŝi ne alportis; ĝi ne estis ricevebla en la butiko, en kiu ŝi trovis la bulkojn, ŝi ne volis, ne povis serĉi pli longe, ŝi estis maltrankvila pri la infano, ŝi reiris rapide, ŝi preskaŭ kuris. ŝi estis jam kelke da paŝoj antaŭ la pordego, kiam tuj malantaŭ si ŝi aŭdis viran voĉon, kiu kantetis:
 
@@ -281,18 +222,11 @@ Lakton ŝi ne alportis; ĝi ne estis ricevebla en la butiko, en kiu ŝi trovis l
 
 Piedetoj, ne forsaltu.”
 
-ŝi penis certigi al si en la animo, ke la kanteto celas ne ŝin, ŝi ekmarŝis pli rapide kaj jam atingis la pordeton, kiam la vo-
-
-ĉo de la kantanto ekparolis:
+ŝi penis certigi al si en la animo, ke la kanteto celas ne ŝin, ŝi ekmarŝis pli rapide kaj jam atingis la pordeton, kiam la voĉo de la kantanto ekparolis:
 
 —Kien tiel rapide? kien? la vespero estas bela! eble ni iom promenos?
 
-Sen spiro, tuta tremante de timo kaj ofendo, la juna vidvino enkuris en la pordegon kaj forte ĵetfermis post si la pordeton. Post kelke da minutoj Janjo, vidante la patrinon, eni-16
-
-MARTA
-
-
-rantan en la ĉambron, ĵetis sin al ŝi, alpremante sin al ŝiaj brakoj.
+Sen spiro, tuta tremante de timo kaj ofendo, la juna vidvino enkuris en la pordegon kaj forte ĵetfermis post si la pordeton. Post kelke da minutoj Janjo, vidante la patrinon, enirantan en la ĉambron, ĵetis sin al ŝi, alpremante sin al ŝiaj brakoj.
 
 —Tiel longe vi ne revenis, panjo! — ŝi ekkriis, sed subite ŝi silentiĝis kaj fikse rigardis la patrinon — : panjo, vi denove ploras, vi denove havas tian aspekton, kiel … kiel tiam, kiam oni en ĉerko elportis la patron el nia loĝejo.
 
@@ -300,12 +234,7 @@ La juna virino efektive tremis per la tuta korpo, larmoj amase fluis sur ŝiaj f
 
 —Mi alportis al vi bulkojn, Janjo, kaj nun mi preparos la samovaron kaj pretigos teon.
 
-ŝi prenis el la ŝranko la argilan kruĉon, kaj, rekomendinte al la infano esti singarda kun la fajro, ŝi denove malsupreniris sur la korton al la puto. Baldaŭ ŝi revenis, malfacile spirante kaj lace, kun talio klinita pro la pezo de la kruĉo plena de akvo, kiun ŝi portis; ŝi tamen ne ripozis eĉ unu momenton, sed tuj komencis la preparadon de la samovaro. ĉi tiu laboro, kiun ŝi faris videble la unuan fojon en la vivo, iris tre malfacile, tamen post ne plena horo la teo estis trinkita. Janjo estis senvestigita kaj endormigita. La egalmezura kaj mallaŭta spirado de la infano atestis dormon trankvilan, de la pala vi-17
-
-MARTA
-
-
-zaĝeto malaperis la postesignoj de larmoj, tiel multe elverŝitaj en la daŭro de la tuta tago.
+ŝi prenis el la ŝranko la argilan kruĉon, kaj, rekomendinte al la infano esti singarda kun la fajro, ŝi denove malsupreniris sur la korton al la puto. Baldaŭ ŝi revenis, malfacile spirante kaj lace, kun talio klinita pro la pezo de la kruĉo plena de akvo, kiun ŝi portis; ŝi tamen ne ripozis eĉ unu momenton, sed tuj komencis la preparadon de la samovaro. ĉi tiu laboro, kiun ŝi faris videble la unuan fojon en la vivo, iris tre malfacile, tamen post ne plena horo la teo estis trinkita. Janjo estis senvestigita kaj endormigita. La egalmezura kaj mallaŭta spirado de la infano atestis dormon trankvilan, de la pala vizaĝeto malaperis la postesignoj de larmoj, tiel multe elverŝitaj en la daŭro de la tuta tago.
 
 Sed la juna patrino ne dormis; en sia funebra vesto, kun disliberigitaj nigraj bukloj, kun vizaĝo apogita sur la manplato, ŝi sidis senmove kontraŭ la estingiĝanta fajrejo kaj meditis. Komence mordanta doloro faldis ŝian blankan frunton en kelke da profundaj sulkoj, la okuloj pleniĝis de larmoj, la brusto leviĝadis per malfacilaj ĝemoj. Sed post iom da tempo ŝi ekskuis la kapon, kvazaŭ ŝi volus forpeli la amason da kordoloroj kaj timoj, kiuj ŝin sieĝis, ŝi leviĝis, rektigis la talion kaj diris mallaŭte:
 
@@ -319,12 +248,7 @@ La estinteco de Marta Swicka estis mallonga koncerne la jarojn, simpla koncerne 
 
 Marta naskiĝis en nobela bieno ne tre luksa kaj riĉa, sed bela kaj komforta. La bieno de ŝia patro, kiu troviĝis en la malproksimeco de nur kelke da mejloj de Varsovio, konsistis el kelke da centoj da hektaroj da semotaŭga tero, flororiĉa, sufiĉe granda herbejo, bela betula arbareto, kiu liveris hejtan materialon en vintro kaj belajn promenojn en somero, el vasta ĝardeno plena de fruktarboj kaj el bela dometo kun ses frontaj fenestroj, elirantaj sur rondoforman herbotapiŝe kovritan korton, kun verdaj gajaspektaj fenestrokovriloj, kun bal-kono kun kvar kolonoj, kiujn ĉirkaŭvolvis puncofloraj faboj kaj trikoloroj kun belaj violkoloraj kalikoj.
 
-Super la lulilo de Marta sekve kantis najtingaloj kaj malju-18
-
-MARTA
-
-
-naj tilioj balancis siajn seriozajn fruntojn, rozoj floris kaj tri-tikaj spikoj rulis ondojn da oro. Kliniĝadis super ĝi ankaŭ la bela vizaĝo de la patrino kaj per varmegaj kisoj kovradis la nigraharan kapeton de la infano.
+Super la lulilo de Marta sekve kantis najtingaloj kaj maljunaj tilioj balancis siajn seriozajn fruntojn, rozoj floris kaj tri-tikaj spikoj rulis ondojn da oro. Kliniĝadis super ĝi ankaŭ la bela vizaĝo de la patrino kaj per varmegaj kisoj kovradis la nigraharan kapeton de la infano.
 
 La patrino de Marta estis virino bona kaj bela, la patro estis homo klera kaj ankaŭ bona. La sola infano de tiuj gepatroj kreskis meze de amo de homoj kaj de karesoj de bonstato.
 
@@ -334,12 +258,7 @@ Tamen baldaŭ venis aliaj malfeliĉoj. La patro de Marta, parte pro sia propra n
 
 ŝi amis kaj estis amata.
 
-Johano Swicki, juna oficisto, kiu havis jam sufiĉe altan oficon en unu el la regnaj institucioj en Varsovio, ekamis la belan nigrokulan fraŭlinon kaj vekis en ŝi reciprokan senton de estimo kaj amo. Kelke da semajnoj post la edziĝa festo de Marta mortis ŝia patro. La ruinigita nobelo, kiu eble iam revis pli brilantan sorton por sia solinfano, kun ĝojo enmetis ŝian manon en la manon de neriĉa, sed laborema homo; pensante, ke de la momento, kiam Marta foriris de la edziĝa altaro, ŝia estonteco ricevis sufiĉan asekuron kontraŭ la sufe-19
-
-MARTA
-
-
-roj de soleco kaj la danĝeroj de malriĉeco, li mortis trankvile.
+Johano Swicki, juna oficisto, kiu havis jam sufiĉe altan oficon en unu el la regnaj institucioj en Varsovio, ekamis la belan nigrokulan fraŭlinon kaj vekis en ŝi reciprokan senton de estimo kaj amo. Kelke da semajnoj post la edziĝa festo de Marta mortis ŝia patro. La ruinigita nobelo, kiu eble iam revis pli brilantan sorton por sia solinfano, kun ĝojo enmetis ŝian manon en la manon de neriĉa, sed laborema homo; pensante, ke de la momento, kiam Marta foriris de la edziĝa altaro, ŝia estonteco ricevis sufiĉan asekuron kontraŭ la suferoj de soleco kaj la danĝeroj de malriĉeco, li mortis trankvile.
 
 La duan fojon en la vivo Martan trafis granda doloro, sed ĉi tiun fojon ĝin kvietigis jam ne sole la juneco, sed ankaŭ la amo de edzino kaj poste patrino. ŝia bela loko de naskiĝo perdiĝis por ŝi por ĉiam, transiris en la manojn de fremdaj homoj, sed kompense la amata kaj amanta edzo meze de la urba bruo aranĝis por ŝi molan, varman kaj oportunan nes-ton, en kiu baldaŭ eksonis la arĝentosona voĉo de infano.
 
@@ -353,34 +272,17 @@ Ili tamen elĉerpiĝis tro baldaŭ. La edzo de Marta enfalis en malsanon malfaci
 
 Li mortis. Kune kun lia morto finiĝis ne sole la hejma feliĉo de Marta, sed elglitiĝis el sub ŝiaj piedoj ankaŭ la fundamento de ŝia materiala ekzistado.
 
-Ne por ĉiam sekve la edziĝa altaro savis la junan virinon de la suferoj de soleco kaj de la danĝeroj de malriĉeco. La tre malnova aksiomo, ke ekzistas nenio certa en la mondo, efek-20
+Ne por ĉiam sekve la edziĝa altaro savis la junan virinon de la suferoj de soleco kaj de la danĝeroj de malriĉeco. La tre malnova aksiomo, ke ekzistas nenio certa en la mondo, efektiviĝis sur ŝi en tiu mezuro, en kiu ĝi estas vera. ĉar ĝi estas vera ne en plena absoluteco. ĉio, kio venas al la homo el ekstere, pasas kaj ŝanĝiĝas ĉirkaŭ li sub la influo de iuj miloj da fluoj kaj komplikiĝoj, kun kiuj iras kaj reciproke interligiĝas la sociaj rilatoj kaj aranĝoj, sub la ofte plej terura, ĉar malplej antaŭvidebla kaj antaŭkalkulebla influo de la blinda trafo.
 
-MARTA
+Sed la sorto de la homo sur la tero estus efektive tre bedaŭrinda, se lia tuta forto, ĉiuj liaj posedoj kaj garantioj teniĝus nur en tiuj elementoj eksteraj, ŝanĝiĝemaj kaj pasemaj kiel akvaj ondoj, dependantaj de la ordonoj de la ventoj. Jes, ekzistas nenio certa sur la tero, krom tio, kion la homo posedas en sia propra brusto kaj kapo: krom klereco, kiu montras vojojn kaj instruas iri sur ili; krom laboro, kiu lumas la solecon kaj asekuras kontraŭ mizero; krom sperto, kiu instruas, kaj altaj sentoj, kiuj gardas kontraŭ malbono. Ankaŭ ĉi tie la certeco estas nur relativa: ĝin rompas la malserena, sed nevenkebla potenco de malsano kaj morto. Sed tiel longe, kiel sen-skue kaj regule daŭras kaj disvolviĝas tiu proceso de la homa moviĝado, pensado kaj sentado, kiu estas nomata vivo, tiel longe la homo ne disiĝas de si mem, tiel longe li mem sin servas, helpas, apogas sin sur tio, kion li sukcesis kolekti al si en la estinteco, kio servas lin kiel batalilo en la batalo kontraŭ la komplikiĝoj de la vivo, la ŝanĝigoj de la sorto, la krueleco de la blinda okazo.
 
-
-tiviĝis sur ŝi en tiu mezuro, en kiu ĝi estas vera. ĉar ĝi estas vera ne en plena absoluteco. ĉio, kio venas al la homo el ekstere, pasas kaj ŝanĝiĝas ĉirkaŭ li sub la influo de iuj miloj da fluoj kaj komplikiĝoj, kun kiuj iras kaj reciproke interligiĝas la sociaj rilatoj kaj aranĝoj, sub la ofte plej terura, ĉar malplej antaŭvidebla kaj antaŭkalkulebla influo de la blinda trafo.
-
-Sed la sorto de la homo sur la tero estus efektive tre bedaŭ-
-
-rinda, se lia tuta forto, ĉiuj liaj posedoj kaj garantioj teniĝus nur en tiuj elementoj eksteraj, ŝanĝiĝemaj kaj pasemaj kiel akvaj ondoj, dependantaj de la ordonoj de la ventoj. Jes, ekzistas nenio certa sur la tero, krom tio, kion la homo posedas en sia propra brusto kaj kapo: krom klereco, kiu montras vojojn kaj instruas iri sur ili; krom laboro, kiu lumas la solecon kaj asekuras kontraŭ mizero; krom sperto, kiu instruas, kaj altaj sentoj, kiuj gardas kontraŭ malbono. Ankaŭ ĉi tie la certeco estas nur relativa: ĝin rompas la malserena, sed nevenkebla potenco de malsano kaj morto. Sed tiel longe, kiel sen-skue kaj regule daŭras kaj disvolviĝas tiu proceso de la homa moviĝado, pensado kaj sentado, kiu estas nomata vivo, tiel longe la homo ne disiĝas de si mem, tiel longe li mem sin servas, helpas, apogas sin sur tio, kion li sukcesis kolekti al si en la estinteco, kio servas lin kiel batalilo en la batalo kontraŭ la komplikiĝoj de la vivo, la ŝanĝigoj de la sorto, la krueleco de la blinda okazo.
-
-Martan trompis kaj forlasis ĉio, kio, venante de ekstere, ĝis nun estis por ŝi amika kaj protekta. La sorto, kiu ŝin trafis, tute ne estis ia sorto escepta, ŝia malfeliĉo ne havis sian fonton en ia stranga, neordinara okazintaĵo, en ia miriga kata-strofo, kiu malofte aperas en la historio de la homaro. Finan-ca ruiniĝo kaj morto ĝis nun ludis en ŝia vivo la rolon de de-21
-
-MARTA
-
-
-truantoj de la trankvileco kaj feliĉo. Kio do estas pli ordinara? kio precipe ĉe ni estas pli ordinara ol la unua? kio estas pli ofta, pli neevitebla ol la dua?
+Martan trompis kaj forlasis ĉio, kio, venante de ekstere, ĝis nun estis por ŝi amika kaj protekta. La sorto, kiu ŝin trafis, tute ne estis ia sorto escepta, ŝia malfeliĉo ne havis sian fonton en ia stranga, neordinara okazintaĵo, en ia miriga kata-strofo, kiu malofte aperas en la historio de la homaro. Finan-ca ruiniĝo kaj morto ĝis nun ludis en ŝia vivo la rolon de detruantoj de la trankvileco kaj feliĉo. Kio do estas pli ordinara? kio precipe ĉe ni estas pli ordinara ol la unua? kio estas pli ofta, pli neevitebla ol la dua?
 
 Marta renkontiĝis vizaĝo kontraŭ vizaĝo kun tio, kun kio renkontiĝas milionoj da homoj, milionoj da virinoj. Kiu ne renkontis ofte en sia vivo homojn, kiuj ploras super la rive-roj de Babilono, ĉirkaŭfluantaj la ruinojn de ilia perdita bonstato? Kiu povas prikalkuli, kiom da fojoj en sia vivo li rigardis funebran veston de vidvino, palajn vizaĝojn kaj larme-lacigitajn okulojn de orfoj?
 
-ĉio, kio akompanis ĝis nun la vivon de la juna virino, disi-
-
-ĝis de ŝi, forflugis de ŝi, sed ŝi ne disiĝis de si mem. Kio ŝi mem povis esti por si mem? kion ŝi sukcesis kolekti por si en la estinteco? kiaj armiloj de instruiteco, volo aŭ sperto povis servi ŝin en la batalo kontraŭ la komplikaĵoj de la socia vivo, kontraŭ la mizero, blinda okazo, soleco? En ĉi tiuj demandoj kuŝis la enigmo de ŝia estonteco, la demando pri vivo kaj morto, ne sole por ŝi, sed ankaŭ por ŝia infano.
+ĉio, kio akompanis ĝis nun la vivon de la juna virino, disiĝis de ŝi, forflugis de ŝi, sed ŝi ne disiĝis de si mem. Kio ŝi mem povis esti por si mem? kion ŝi sukcesis kolekti por si en la estinteco? kiaj armiloj de instruiteco, volo aŭ sperto povis servi ŝin en la batalo kontraŭ la komplikaĵoj de la socia vivo, kontraŭ la mizero, blinda okazo, soleco? En ĉi tiuj demandoj kuŝis la enigmo de ŝia estonteco, la demando pri vivo kaj morto, ne sole por ŝi, sed ankaŭ por ŝia infano.
 
 Materiale tiu juna patrino posedis nenion, aŭ preskaŭ nenion. Kelkaj dekoj da spesmiloj, kiuj restis de la vendo de la meblaĵoj post la pago de malgrandaj ŝuldoj kaj de la kosto de la enterigo de la edzo, iom da tolaĵo, du vestoj prezentis ŝian tutan havon. Grandvalorajn juvelojn ŝi neniam havis: tiujn, kiujn ŝi havis, ŝi vendis dum la malsaneco de la edzo, por pagi la vanajn konsilojn de la kuracistoj kaj la same vanajn medi-kamentojn. Eĉ la mizeraj meblaĵoj, kiuj troviĝis en ŝia nova loĝejo, ne estis ŝia propraĵo. ŝi luis ilin kune kun la ĉambro en la mansardo, kaj por ilia uzado, tiel same kiel por la ĉambro, ŝi prenis sur sin la devon pagi en la unua tago de ĉiu monato.
-
-
-MARTA
 
 
 Tio prezentis estantecon malgajan, nudan, sed almenaŭ jam klare difinitan. Nedifinita restis la estonteco. Oni devis
@@ -393,22 +295,16 @@ Tio prezentis estantecon malgajan, nudan, sed almenaŭ jam klare difinitan. Nedi
 
 ĝi brilis. Sed la bruo de la granda urbo atingis ŝiajn orelojn, senĉesa, kvankam nokta, surdiga, kvankam malfortigita de la malproksimeco. La horo ne estis tro malfrua; en la larĝaj, belegaj stratoj, kiel ankaŭ en la malvastaj mallumaj stratetoj, homoj ankoraŭ iris, veturis, celis plezuron, serĉis profiton, kuris tien, kien vokis ilin la scivoleco de la penso, la volupto de la koro, aŭ la espero de akiro.
 
-Marta metis la frunton sur la interplektitajn manojn kaj fermis la okulojn. ŝi aŭskultis la milojn da voĉoj, intermiksi-tajn en unu voĉon grandegan, kvankam neklaran kaj mono-tonan, sed tamen plenan de flamecaj eksplodoj, de subitaj 23
-
-MARTA
+Marta metis la frunton sur la interplektitajn manojn kaj fermis la okulojn. ŝi aŭskultis la milojn da voĉoj, intermiksi-tajn en unu voĉon grandegan, kvankam neklaran kaj mono-tonan, sed tamen plenan de flamecaj eksplodoj, de subitaj
 
 
 silentiĝoj, de obtuzaj ekkrioj kaj misteraj murmuroj. La granda urbo aperis antaŭ la okuloj de ŝia imago en la formo de grandega abelujo, en kiu moviĝis, bolis per vivo kaj pelado, multo da homaj ekzistaĵoj. ĉiu el tiuj ekzistaĵoj posedis lokon, sur kiu ĝi laboris, kaj lokon, sur kiu ĝi ripozis, celojn, al kiuj
 
-ĝi iris, ilojn, per kiuj ĝi liberigis al si vojon tra la amaso. Por ŝi, la malriĉa, en senbordan solecon ĵetita virino, kia estos la loko de laborado kaj ripozado? kie estas tiu celo, al kiu ŝi sin direktos? kie ŝi prenos la ilojn, kiuj liberigos la vojon por la malriĉa kaj forlasita virino? Kaj kiaj estos por ŝi tiuj homaj ekzistaĵoj, kiuj tie bruas tiel senĉese kaj kies spirado kaŭzas tiun flamecan murmuron, en kies jen leviĝantaj, jen mallevi-
-
-ĝantaj ondoj ŝiaj oreloj nun naĝas? ĉu ili estos por ŝi justaj aŭ kruelaj, favorkoraj aŭ senkompataj? ĉu malfermiĝos antaŭ ŝiaj paŝoj tiuj dense fermitaj falangoj, kiuj puŝiĝas al la feliĉo kaj bonstato, aŭ ĉu ili fermiĝos ankoraŭ pli dense, por ke la novevenintino ne malvastigu al ili la lokon, ne antaŭiĝu al iu el ili en la pena puŝiĝado? Kiaj regularoj kaj moroj estos por ŝi favoraj kaj kiaj estos malamikaj, kaj ĉu pli granda estos la nombro de la unuaj aŭ de la lastaj? Sed antaŭ ĉio, antaŭ ĉio
+ĝi iris, ilojn, per kiuj ĝi liberigis al si vojon tra la amaso. Por ŝi, la malriĉa, en senbordan solecon ĵetita virino, kia estos la loko de laborado kaj ripozado? kie estas tiu celo, al kiu ŝi sin direktos? kie ŝi prenos la ilojn, kiuj liberigos la vojon por la malriĉa kaj forlasita virino? Kaj kiaj estos por ŝi tiuj homaj ekzistaĵoj, kiuj tie bruas tiel senĉese kaj kies spirado kaŭzas tiun flamecan murmuron, en kies jen leviĝantaj, jen malleviĝantaj ondoj ŝiaj oreloj nun naĝas? ĉu ili estos por ŝi justaj aŭ kruelaj, favorkoraj aŭ senkompataj? ĉu malfermiĝos antaŭ ŝiaj paŝoj tiuj dense fermitaj falangoj, kiuj puŝiĝas al la feliĉo kaj bonstato, aŭ ĉu ili fermiĝos ankoraŭ pli dense, por ke la novevenintino ne malvastigu al ili la lokon, ne antaŭiĝu al iu el ili en la pena puŝiĝado? Kiaj regularoj kaj moroj estos por ŝi favoraj kaj kiaj estos malamikaj, kaj ĉu pli granda estos la nombro de la unuaj aŭ de la lastaj? Sed antaŭ ĉio, antaŭ ĉio
 
 — ĉu ŝi estos kapabla mem venki la elementojn malamikajn, fari ĝustan uzon el la elementoj amikaj, el ĉiu momento, el ĉiu bato de la koro, el ĉiu penso, kiu flugos tra la kapon? ĉiujn ektremojn, kiuj tuŝos la fibrojn de la koro, kunigi en unu forton prudentan, persistan, grandan, en tian forton, kiu estos kapabla forpeli mizeron, asekuri la homan honoron kontraŭ humiliĝo, gardi kontraŭ senfruktaj doloroj, malespero kaj — morto per malsato?
 
-En tiuj demandoj koncentriĝis la tuta animo de Marta. Rememoroj agrablaj kaj samtempe mordantaj, rememoroj de 24
-
-MARTA
+En tiuj demandoj koncentriĝis la tuta animo de Marta. Rememoroj agrablaj kaj samtempe mordantaj, rememoroj de
 
 
 virino, kiu iam, estante gracia kaj gaja knabino, per malpezaj piedoj paŝadis sur la freŝa herbo kaj belkoloraj floroj de la hejma vilaĝo; kiu poste, flanke de amata edzo, pasigadis tagojn feliĉajn, liberajn de zorgoj kaj malĝojo, kaj nun en vesto de vidvino staris ĉe la malgranda fenestreto de mansardo, kun pala frunto, apogita sur la kunmetitaj manplatoj; rememoroj de virino, kiuj en la daŭro de la tuta pasinta tago ŝin ĉirkaŭis per amaso da logantaj fantomoj, vundante kaj ŝirante, forflugis nun de ŝi antaŭ la minaca, mistera, sed reale pal-pebla bildo de la estanteco. ĉi tiu bildo englutis ŝiajn pensojn, tamen videble ŝin ne teruris. ĉu ŝi ĉerpis sian kuraĝon el la patrina amo, kiu plenigis ŝian koron? ĉu ŝi posedis tiun fier-econ, kiu abomenas timon? ĉu … ŝi ne konis la mondon nek sin mem? ŝi ne timis. Kiam ŝi levis la vizaĝon, sur ĝi estis postesignoj de larmoj, kiujn ŝi elfluigis en la lastaj tagoj, sur ĝi estis la esprimo de kordoloro kaj sopiro, sed timo kaj senes-pereco sur ĝi ne estis.
@@ -419,9 +315,7 @@ Videble ŝi rapidis al ia celo; ia bruliganta penso, maltrankvila espero pelis �
 
 Tie ŝi iris jam ĉiam pli kaj pli malrapide, malforta ruĝo aperis sur ŝiaj palaj vangoj, la spirado fariĝis pli rapida, kiel estas ordinare ĉe la alproksimiĝo de momento tre dezirata kaj samtempe terura, kiu postulas la streĉiĝon de ĉiuj fortoj de la prudento kaj volo, kiu vekas esperon, senkuraĝecon, aŭ eble eĉ malgraŭvolan honton, kaŭzitan de la kutimoj de la tuta vivo, de la serioza noveco de la situacio.
 
-Antaŭ la pordego de unu el la plej grandaj domoj ŝi haltis 25
-
-MARTA
+Antaŭ la pordego de unu el la plej grandaj domoj ŝi haltis
 
 
 kaj rigardis la numeron de la domo; la numero videble estis
@@ -444,9 +338,7 @@ sed mi ne scias …
 
 kion fari? vi ne havas talenton!
 
-Tiel parolante, la du virinoj pasis preter Marta; ili estis tiel okupitaj unu de sia kontenteco kaj la dua de sia malĝojo, ke 26
-
-MARTA
+Tiel parolante, la du virinoj pasis preter Marta; ili estis tiel okupitaj unu de sia kontenteco kaj la dua de sia malĝojo, ke
 
 
 ili ne donis eĉ la plej malgrandan atenton al la virino, kies funebra vesto preterŝoviĝis antaŭ ili. Sed ŝi haltis subite kaj akompanis ilin per sia rigardo. Ili videble estis instruistinoj, kiuj forlasis la lokon, al kiu ŝi nun celis. Unu el ili forlasis tiun lokon kun vizaĝo tre kontenta, sed la dua — kun larmoj. Post duonhoro, eble post kvaronhoro, ŝi ankaŭ malsupreniros per tiu ŝtuparo, per kiu nun ŝi supreniras. ĉu ĝojo aŭ larmoj estos ŝia sorto? ŝia koro batis forte, kiam ŝi ektuŝis la sonorilon ĉe la pordo, sur kiu brilis kupra plato kun la surskribo : Informa oficejo por instruistoj kaj instruistinoj, de Ludovikino Zminska.
@@ -455,9 +347,7 @@ Tra malgranda antaŭĉambro, kies pordo malfermiĝis post la eksono de la sonori
 
 En la ĉambro estis tri personoj, el kiuj unu leviĝis renkonte al Marta. i estis virino de meza aĝo, kun haroj de nedifinita koloro, glate frizitaj sub eleganta blanka kufo, kun sintenado iom rigida. ŝia vizaĝo kun sufiĉe regulaj trajtoj ne havis ian klare difinitan karakteran esprimon, kaj, tiel same kiel la griza vesto sen iaj ornamoj, butonumita sur la brusto per vico da monotonaj butonoj, ĝi per nenio forpuŝis kaj per nenio altiris.
 
-Tio estis figuro, de la kapo ĝis la piedoj portanta la esprimon de oficeco; tiu virino eble estis kapabla en alia tempo kaj alia loko rideti libere, rigardi senteme, per kora movo etendi la manon por manpremo, sed ĉi tie, en tiu saloneto, en kiu ŝi akceptadis la personojn, kiuj bezonis ŝian konsilon kaj hel-pon, kaj aperadis en la karaktero de oficperistino inter tiuj 27
-
-MARTA
+Tio estis figuro, de la kapo ĝis la piedoj portanta la esprimon de oficeco; tiu virino eble estis kapabla en alia tempo kaj alia loko rideti libere, rigardi senteme, per kora movo etendi la manon por manpremo, sed ĉi tie, en tiu saloneto, en kiu ŝi akceptadis la personojn, kiuj bezonis ŝian konsilon kaj hel-pon, kaj aperadis en la karaktero de oficperistino inter tiuj
 
 
 personoj kaj la publiko, ŝi estis tia, kia ŝi sendube devis esti,
@@ -474,9 +364,7 @@ Marta haltis momenton apud la pordo kaj ĵetis sian rigardon sur la vizaĝon kaj
 
 Marta sidiĝis sur seĝo, kiu estis montrita al ŝi, kaj nur nun ŝi direktis sian atenton al la du aliaj personoj, kiuj troviĝis en la ĉambro.
 
-Tiuj personoj forte diferencis inter si per la aĝo, vestaĵo kaj 28
-
-MARTA
+Tiuj personoj forte diferencis inter si per la aĝo, vestaĵo kaj
 
 
 eksteraĵo. Unu el ili estis fraŭlino, havanta la aĝon de eble dudek jaroj, tre bela, kun rideto sur la rozokolora buŝo, kun bluaj okuloj, kiuj rigardis serene, preskaŭ gaje, en silka vesto de hela koloro kaj malgranda ĉapelo, kiu bele ornamis la hele blondajn harojn. Videble ĝuste kun ŝi Ludovikino Zminska interparolis antaŭ la eniro de Marta, ĉar al ŝi ankaŭ ŝi sin turnis tuj post la saluta akcepto de la venintino. ŝi parolis ang-le, kaj jam de la unuaj vortoj de respondo de la juna fraŭlino oni tuj povis diveni, ke ŝi estas naskita anglino. Marta ne komprenis la paroladon de la du virinoj, ĉar ŝi ne sciis la lingvon, kiun ili parolis, ŝi vidis nur, ke libera rideto ne forlasis la buŝon de la bela anglino, ke ŝia vizaĝo, sintenado kaj maniero de parolado esprimis kuraĝecon de persono, kiu kutimis havi sukceson, kaj kiu plene fidas sin mem kaj la sorton, kiu ŝin atendas.
@@ -488,9 +376,6 @@ Marta, kiu kun streĉita atento observis la detalojn de la sceno, kiu havis prok
 —Sescent spesmiloj por jaro, — meditis Marta, — kia riĉe-co, mia Dio! kia feliĉo, kiam oni povas tiom multe laborenspezi! Se oni promesus al mi almenaŭ duonon de tiu sumo, mi estus trankvila pri Janjo kaj pri mi!
 
 
-MARTA
-
-
 Meditante tiamaniere, la juna virino kun intereso kaj senkonscia kompato rigardis la personon, kun kiu post la foriro de la anglino la mastrino de la loĝejo komencis interparoladon.
 
 i estis virino, kiu povis havi la aĝon de ĉirkaŭ sesdek jaroj, malgranda, malgrasa, kun vizaĝo velkinta, kovrita de multo da sulketoj, kun haroj preskaŭ tute blankaj, kombitaj en la formo de du glataj strioj sub ĉapelo nigra, ĉifita kaj de antaŭlonge pasinta modo. Nigra lana vesto kaj silka antikva manteleto pendis sur la malgrasa korpo de la maljunulino, ŝiaj manoj travideblaj, blankaj kaj maldikaj, per maltrankvila movado ĉiam ĉifadis kaj turnadis en la senkarnaj fingroj blankan tolan tuketon, kiu kuŝis sur ŝiaj genuoj. Tian saman maltrankvilecon montris ŝiaj okuloj, kiuj videble iam estis bluaj, sed nun senkoloriĝis kaj senbriliĝis; ili jen leviĝadis al la vizaĝo de la mastrino, jen kovriĝadis per la ruĝaj palpebroj, jen kuradis de objekto al objekto, kvazaŭ spegulante per tio la maltrankvilecon kaj doloran streĉiĝadon de la elturmentita cerbo, kiu serĉis por si ian punkton de apogo, ian rifuĝon kaj kvietiĝon.
@@ -500,9 +385,6 @@ i estis virino, kiu povis havi la aĝon de ĉirkaŭ sesdek jaroj, malgranda, mal
 La kompatinda maljunulino moviĝis sur la seĝo, trakuris per la okuloj laŭlonge kaj laŭlarĝe la kontraŭan muron, per konvulsia movo kunpremis la fingrojn ĉirkaŭ sia globe kunvolvita tuketo kaj komencis mallaŭte:
 
 —Non, Madame, c’est le premier fois que je … je … — ŝi interrompis; ŝi serĉis videble la fremdlingvajn vortojn, per kiuj ŝi povus eldiri sian penson, sed ili forkuris el ŝia laca memoro.
-
-
-MARTA
 
 
 —J’avais … — ŝi komencis post momento, — j’avais la for-tune … mon fils avait le malheur de la perdre …
@@ -525,12 +407,7 @@ Anstataŭ ĉia respondo la maljunulino nee skuis la kapon.
 
 —Sekve kion do, sinjorino, vi povas instrui?
 
-ĉi tiu demando estis farita per tono ĝentila, sed samtempe tiel seka kaj malvarma, ke ĝi havis la saman signifon, kiel klara rifuzo. Tamen la maljuna virino tion ne komprenis, aŭ penis ne kompreni. La franca lingvo videble estis tiu el ŝiaj scioj, de kiu ŝi esperis plej multe, per kiu ŝi esperis ricevi pe-31
-
-MARTA
-
-
-con da pano, kiu devis gardi kontraŭ mizero la lastajn tagojn de ŝia elturmentita vivo. Sentante, ke la starejo elŝoviĝas el sub ŝiaj piedoj, ke la mastrino de la informa oficejo intencas fini la interparoladon kun ŝi, doninte al ŝi nenian informon, ŝi kaptis tiun solan kaj laŭ ŝia opinio lastan tabulon de savo, kaj, ĉiam pli forte ĉifante la tolan tuketon en la tremantaj fingroj, ŝi rapide komencis: La géographie, la histoire, les commen-cements de l’arithmétique.
+ĉi tiu demando estis farita per tono ĝentila, sed samtempe tiel seka kaj malvarma, ke ĝi havis la saman signifon, kiel klara rifuzo. Tamen la maljuna virino tion ne komprenis, aŭ penis ne kompreni. La franca lingvo videble estis tiu el ŝiaj scioj, de kiu ŝi esperis plej multe, per kiu ŝi esperis ricevi pecon da pano, kiu devis gardi kontraŭ mizero la lastajn tagojn de ŝia elturmentita vivo. Sentante, ke la starejo elŝoviĝas el sub ŝiaj piedoj, ke la mastrino de la informa oficejo intencas fini la interparoladon kun ŝi, doninte al ŝi nenian informon, ŝi kaptis tiun solan kaj laŭ ŝia opinio lastan tabulon de savo, kaj, ĉiam pli forte ĉifante la tolan tuketon en la tremantaj fingroj, ŝi rapide komencis: La géographie, la histoire, les commen-cements de l’arithmétique.
 
 ŝi subite silentiĝis kaj direktis rigidan rigardon al la kontraŭa muro, ĉar Ludovikino Zminska leviĝis.
 
@@ -554,9 +431,7 @@ Sed la maljunulino sidis kiel alforĝita al la loko, ŝiaj ĝis nun moviĝemaj m
 
 Dum kelke da sekundoj en la ĉambro regis plena silento.
 
-Subite sur la sulkoplenaj vangoj de la maljunulino ekfluis du riveretoj da senhaltaj larmoj. ŝi tamen eligis nenian sonon, ne 32
-
-MARTA
+Subite sur la sulkoplenaj vangoj de la maljunulino ekfluis du riveretoj da senhaltaj larmoj. ŝi tamen eligis nenian sonon, ne
 
 
 diris eĉ unu vorton, faris saluton al la mastrino kaj rapide forlasis la ĉambron. Eble ŝi hontis siajn larmojn kaj deziris kaŝi ilin kiel eble plej rapide, aŭ eble al alia loko, simila al tiu, kiun ŝi nun forlasis, ŝi rapidis kun nova espero, por ricevi novan disreviĝon …
@@ -570,9 +445,6 @@ La scenoj, kiuj en la lastaj minutoj preterŝoviĝis antaŭ ŝiaj okuloj, faris 
 ĉi tie, tuj sur la unua stacio de tiu nekonata vojo, ŝi komencis diveni la ekzistadon de aferoj teruraj, tamen ŝi ne tremis, en siaj pensoj ŝi certigadis sin mem, ke ŝin, virinon junan kaj sanan, iam tre zorge edukitan de plej bonaj gepatroj, ŝin, estintan kunvivantinon de homo inteligenta kaj akiranta sian panon per laboro spirita, ne povas trafi sorto simila al tiu, kiu trafis tiun kompatindan malĝojan knabinon, kiun ŝi renkontis sur la ŝtuparo, kaj tiun centoble ankoraŭ pli malfeliĉan malju-nulinon, kiu foriris antaŭ momento kun du fluetoj da larmoj sur la sulkoplenaj vangoj.
 
 Ludovikino Zminska komencis per la demando, per kiu ŝi videble ordinare komencadis la interparolojn kun la venan-taj kandidatinoj por ofico de instruistino.
-
-
-MARTA
 
 
 —ĉu vi jam okupadis vin per instruado?
@@ -593,9 +465,7 @@ Marta ne tuj respondis. Estas mirinde, ŝi venis ĉi tien kun la intenco akiri p
 
 — ŝi diris.
 
-—Koncerne la lastan, — respondis la mastrino, — mi trovas, ke vi havas francan elparoladon sufiĉe facilan kaj bonan, kaj kvankam tio ne estas ankoraŭ ĉio, kion oni bezonas por povi instrui, mi tamen estas certa, ke al vi ankaŭ la gramatiko kaj ortografio kaj eble ankaŭ iom la franca literaturo ne 34
-
-MARTA
+—Koncerne la lastan, — respondis la mastrino, — mi trovas, ke vi havas francan elparoladon sufiĉe facilan kaj bonan, kaj kvankam tio ne estas ankoraŭ ĉio, kion oni bezonas por povi instrui, mi tamen estas certa, ke al vi ankaŭ la gramatiko kaj ortografio kaj eble ankaŭ iom la franca literaturo ne
 
 
 estas nekonataj. Koncerne la muzikon … volu min pardoni …
@@ -608,9 +478,7 @@ Sur la palaj vangoj de Marta aperis ruĝo. ŝi estis edukata hejme, neniam anta�
 
 —Eh bien! mame! La Comtesse arrive-t-elle à Varsovie?
 
-Kun ĉi tiuj vortoj eniris, aŭ pli vere enĵetis sin en la ĉambron virino vigla, beleta, kun malhela vizaĝkoloro, de meza alteco, en originala mantelo kun punca kapuĉo, akre distingiĝanta ĉe la profunda nigreco de la haroj kaj malheleco de 35
-
-MARTA
+Kun ĉi tiuj vortoj eniris, aŭ pli vere enĵetis sin en la ĉambron virino vigla, beleta, kun malhela vizaĝkoloro, de meza alteco, en originala mantelo kun punca kapuĉo, akre distingiĝanta ĉe la profunda nigreco de la haroj kaj malheleco de
 
 
 la vizaĝo. La nigraj brilantaj okuloj de la venintino rapide trakuris la ĉambron kaj renkontiĝis kun la figuro de la virino, kiu sidis ĉe la fortepiano.
@@ -623,27 +491,15 @@ Sur la vangoj de la juna vidvino plifortiĝis la ruĝo, la nova atestanto de ŝi
 
 Marta komencis ludi. ŝi ludis la Prière d’une vierge. En la tempo, kiam ŝi lernis muzikon, la junaj fraŭlinoj ĉie ludadis la Prière d’une vierge, tiun sentimentalan komponaĵon, kies tonoj melankolie kunfandiĝadis kun la lunaj radioj, penetrantaj tra la fenestro, kaj kun la knabinaj sopiroj, elflugantaj el la brusto. Sed la saloneto de la informa oficejo estis lumita de klara, senfantazia taga lumo, la sopiroj de la virino, kiu ludis nun la Prière d’une vierge, ne estis tiaj sopiroj, kiuj flugas ”en la regionojn superterajn” aŭ al tiu ”kampo vasta, kampo hela, kie rajdas fraŭlo bela”, sed tiaj sopiroj, kiuj kaŝitaj, forpremitaj al la fundo de la brusto, tamen ĉiam releviĝas, enverŝante en la orelon de virino-patrino la simplan, teran, trivialan, sed tamen tragedian, minacan, trudiĝeman, ŝirantan krion: panon! laborakiron!
 
-La mallarĝaj brovoj de Ludovikino Zminska iom kunŝovi-36
-
-MARTA
-
-
-ĝis, kaj per tio ŝia vizaĝesprimo fariĝis ankoraŭ pli malvarma kaj severa, ol antaŭe; sur la malhela vizaĝo de la francino, kiu larĝe etendite sidis en la brakseĝo, konstante kuradis petolaj ridetoj. Marta sentis mem, ke ŝi ludas malbone. ŝi nun ne komprenis plu tiun grupon da sentoplenaj tonoj, kiu iam ŝajnis al ŝi anĝela melodio; ŝiaj fingroj perdis la ekzercitecon kaj konfuziĝadis sur la klavoj, ne ĉiam trafante la ĝustan, ŝi era-radis en la pasaĵoj, premadis senbezone la pedalon, forlasa-dis tutajn taktojn, haltadis kaj serĉadis sur la klavaro la vojon, kiun ŝi perdis.
+La mallarĝaj brovoj de Ludovikino Zminska iom kunŝoviĝis, kaj per tio ŝia vizaĝesprimo fariĝis ankoraŭ pli malvarma kaj severa, ol antaŭe; sur la malhela vizaĝo de la francino, kiu larĝe etendite sidis en la brakseĝo, konstante kuradis petolaj ridetoj. Marta sentis mem, ke ŝi ludas malbone. ŝi nun ne komprenis plu tiun grupon da sentoplenaj tonoj, kiu iam ŝajnis al ŝi anĝela melodio; ŝiaj fingroj perdis la ekzercitecon kaj konfuziĝadis sur la klavoj, ne ĉiam trafante la ĝustan, ŝi era-radis en la pasaĵoj, premadis senbezone la pedalon, forlasa-dis tutajn taktojn, haltadis kaj serĉadis sur la klavaro la vojon, kiun ŝi perdis.
 
 —Mais c’est une petite horreur qu’elle joue là! — ekkriis la francino, kvankam per duonvoĉo; sed ŝian ekkrion aŭdis an-kaŭ Marta.
 
 —Chut! Mlle Delphine! — diris mallaŭte la mastrino de la loĝejo.
 
-Marta frapis la lastan akordon de la sentimentala melodio kaj tuj, ne levante la okulojn nek la manojn de la klavoj, komencis ludi la Nokturnon de Zientarski. ŝi sentis, kian por ŝi nefavoran impreson ŝia ludado faris sur la virino, kiu tenis en sia mano ŝiajn plej karajn esperojn; ŝi sentis, ke mallerte tu-
+Marta frapis la lastan akordon de la sentimentala melodio kaj tuj, ne levante la okulojn nek la manojn de la klavoj, komencis ludi la Nokturnon de Zientarski. ŝi sentis, kian por ŝi nefavoran impreson ŝia ludado faris sur la virino, kiu tenis en sia mano ŝiajn plej karajn esperojn; ŝi sentis, ke mallerte tuŝante la klavojn, ŝi samtempe elfaligas el la mano unu el la nemultaj iloj de laborakirado, kiujn ŝi fidis; ke ĉiu erara tono, kiu eliras el sub ŝiaj fingroj, disŝiras kaj distranĉas unu el la nemultaj fadenoj, sur kiuj pendas la ekzistado de ŝi kaj de ŝia infano.
 
-ŝante la klavojn, ŝi samtempe elfaligas el la mano unu el la nemultaj iloj de laborakirado, kiujn ŝi fidis; ke ĉiu erara tono, kiu eliras el sub ŝiaj fingroj, disŝiras kaj distranĉas unu el la nemultaj fadenoj, sur kiuj pendas la ekzistado de ŝi kaj de ŝia infano.
-
-—Mi devas ekludi pli bone! — ŝi diris al si en la pensoj, kaj sen minuto da meditado ŝi komencis ludi la malgajan Nokturnon. Kaj tamen ŝi ne ludis pli bone ol antaŭe, ŝi ludis eĉ pli malbone, la komponaĵo estis pli malfacila, en la manoj de-37
-
-MARTA
-
-
-kutimiĝintaj de ludado ŝi komencis senti doloron kaj rigidiĝon.
+—Mi devas ekludi pli bone! — ŝi diris al si en la pensoj, kaj sen minuto da meditado ŝi komencis ludi la malgajan Nokturnon. Kaj tamen ŝi ne ludis pli bone ol antaŭe, ŝi ludis eĉ pli malbone, la komponaĵo estis pli malfacila, en la manoj dekutimiĝintaj de ludado ŝi komencis senti doloron kaj rigidiĝon.
 
 —Elle touche faux! Mame! he! he! comme elle touche faux, —
 
@@ -662,9 +518,6 @@ Marta forleviĝis de la fortepiano. Sur ŝia vizaĝo antaŭe iom ruĝa nun aperi
 —Post kelke da tagoj.
 
 —ĉu vi skribis al ŝi pri la kondiĉoj, kiujn mi metis?
-
-
-MARTA
 
 
 —Jes, kaj sinjorino la grafino ilin akceptis.
@@ -696,9 +549,6 @@ Sinjorino! — ŝi diris laŭte, — mi tre dezirus ricevi ian firman oficon.
 Zminska meditis momenton.
 
 
-MARTA
-
-
 —Tio ne estas absolute nehavebla, sed ĝi ne estas ankaŭ facila, kaj krom tio mi dubas, ĉu ĝi estus oportuna por vi. Mi esperas, ke vi konfesos, ke en la rilatoj kun la personoj, kiuj sin turnas al mi, malkaŝeco estas mia devo. Kun via franca lingvo, kiu estas ne malbona, sed ne tute pariza, kun via malgranda kaj preskaŭ nenia muzika klereco, vi povus fariĝi instruistino nur por komencantoj.
 
 —Tio signifas? — demandis Marta kun frapanta koro.
@@ -723,9 +573,7 @@ Marta rigardis la parolantinon kun miro.
 
 —Ne, — respondis Zminska, — ŝia klereco estas tute ne granda; sed ŝi estas fremdlandulino.
 
-Trans la buŝon de la rigidmiena mastrino de la oficejo la unuan fojon en la daŭro de la tuta interparolado glitis nun 40
-
-MARTA
+Trans la buŝon de la rigidmiena mastrino de la oficejo la unuan fojon en la daŭro de la tuta interparolado glitis nun
 
 
 rideto, kaj ŝiaj malvarmaj okuloj ekrigardis la vizaĝon de Marta kun tia esprimo, kiu kvazaŭ diris ”Kio! vi ne sciis do tion? de kie do vi venas?”
@@ -743,9 +591,6 @@ Tiu ĉi ekkrio kontraŭvole elsaltis el la brusto de la patrino, sed Marta tuj k
 ŝi perforte sin kvietigis kaj komencis trankvile paroli.
 
 —Sekve se mi ne povas havi esperon ricevi oficon firman, volu havigi al mi lecionojn privatajn …
-
-
-MARTA
 
 
 —Lecionojn de franca lingvo? — interrompis la mastrino de la loĝejo.
@@ -772,12 +617,7 @@ Zminska levis kontraŭ la junan virinon siajn okulojn, kiuj kvazaŭ diris denove
 
 Marta venis el la regiono de feliĉa virina senscieco, tial ŝi por kelke da minutoj enpensiĝis pri la vortoj de la mastrino de la oficejo. La unuan fojon en ŝia vivo la sociaj komplikaĵoj kaj problemoj aperis antaŭ ŝiaj okuloj, konfuzite, malklare; sed iliaj intermiksitaj konturoj, farante sur ŝi senkonscian, turmentan impreson, tamen nenion al ŝi lernigis.
 
-—Sinjorino, — ŝi diris post momento, — ŝajnas al mi, ke mi komprenis, kial la viroj estas pli dezirataj, kiam la afero koncernas instruadon; ili posedas klerecon pli altan, pli funda-mentan, ol la virinoj …, jes, sed tiu konsidero povas havi lokon nur tie, kie la instruado ricevas jam pli grandan amplek-42
-
-MARTA
-
-
-son, kie la kompetenteco de la instruanto devas esti tiel vasta kaj fundamenta, ke ĝi respondu al la bezonoj de la jam maturiĝanta spirito kaj koro. Sed mi, sinjorino, ne havas tiel grandajn pretendojn. Mi volus instrui la komencojn de historio, de geografio, de la historio de nia literaturo …
+—Sinjorino, — ŝi diris post momento, — ŝajnas al mi, ke mi komprenis, kial la viroj estas pli dezirataj, kiam la afero koncernas instruadon; ili posedas klerecon pli altan, pli funda-mentan, ol la virinoj …, jes, sed tiu konsidero povas havi lokon nur tie, kie la instruado ricevas jam pli grandan amplekson, kie la kompetenteco de la instruanto devas esti tiel vasta kaj fundamenta, ke ĝi respondu al la bezonoj de la jam maturiĝanta spirito kaj koro. Sed mi, sinjorino, ne havas tiel grandajn pretendojn. Mi volus instrui la komencojn de historio, de geografio, de la historio de nia literaturo …
 
 —Tiujn komencojn ordinare instruas ankaŭ la viroj … —
 
@@ -803,9 +643,7 @@ La okuloj de Marta ekbrilis per espero. La lasta vorto de Zminska rememorigis al
 
 —Verŝajne tial, ke pentrado estas mallaŭta kaj muziko estas laŭta … Por ĉiu okazo, — aldonis Zminska, — alportu al mi provaĵojn de via pentrado. Se vi estas tre lerta en ĝi, se vi estas kapabla pentri ion, kio montrus talenton grandan kaj kleran, mi povos trovi por vi unu aŭ du lecionojn …
 
-—Tre lerta en la pentrado mi ne estas, — respondis Marta; — mi ankaŭ ne pensas, ke mia talento por pentrado estas 43
-
-MARTA
+—Tre lerta en la pentrado mi ne estas, — respondis Marta; — mi ankaŭ ne pensas, ke mia talento por pentrado estas
 
 
 granda, kaj la instruiteco, kiun mi havas en ĝi, tute ne povas esti nomata alta. Tamen mi scias la pentradon tiom, ke mi povus doni instruon pri ĝiaj plej elementaj reguloj.
@@ -826,14 +664,10 @@ Ricevo de laboro, de kiom eble pli granda kvanto da laboro, estas por mi pli ol 
 
 Dum Marta parolis tiujn vortojn, la mastrino de la oficejo rigardis ŝin en la komenco indiferente, poste kun granda atento, fine ŝiaj malvarmaj okuloj ekbrilis por pli varma lumo.
 
-ŝi rapide mallevis la rigardon kaj silentis momenton, sur ŝia 44
-
-MARTA
+ŝi rapide mallevis la rigardon kaj silentis momenton, sur ŝia
 
 
-severa frunto aperis kelke da moviĝantaj sulkoj, malgaja rideto montriĝis por momento sur la ordinare indiferenta bu-
-
-ŝo. La oficiala tego, per kiu svradis la mastrino de la informa oficejo, ne defalis de ŝi tute, sed ĝi fariĝis travidiga; tra
+severa frunto aperis kelke da moviĝantaj sulkoj, malgaja rideto montriĝis por momento sur la ordinare indiferenta buŝo. La oficiala tego, per kiu svradis la mastrino de la informa oficejo, ne defalis de ŝi tute, sed ĝi fariĝis travidiga; tra
 
 ĝi oni povis nun rimarki virinon, kiu rememorigis al si ne unu paĝon el sia propra vivo, ne unu bildon el la vivo de aliaj virinoj. ŝi levis malrapide la kapon kaj renkontis per sia rigardo la sur ŝi fiksitajn, profundajn, brilantajn kaj maltrankvilajn okulojn de Marta.
 
@@ -841,22 +675,16 @@ severa frunto aperis kelke da moviĝantaj sulkoj, malgaja rideto montriĝis por 
 
 Ia maldolĉa ironio sonis en la voĉo de la nejuna virino kun severaj trajtoj de vizaĝo, kiam ŝi parolis tiujn vortojn. ŝiaj okuloj ĉiam estis fiksitaj sur la nun jam pala vizaĝo de Marta, en ilia profundo estis iom da tia kunsento, kun kia homo matura, kiu konas bone la mallumajn flankojn de la vivo, rigardas naivan infanon, kiu ilin ĉiujn havas ankoraŭ antaŭ si.
 
-Marta silentis. ŝi estis dirinta la veron: la pensoj konfuziĝis en ŝia kapo kaj neniel povis klarigi al ŝi tion, kio subite aperis antaŭ ŝia imago, okupis ŝian tutan atenton. Nur unu aferon 45
-
-MARTA
+Marta silentis. ŝi estis dirinta la veron: la pensoj konfuziĝis en ŝia kapo kaj neniel povis klarigi al ŝi tion, kio subite aperis antaŭ ŝia imago, okupis ŝian tutan atenton. Nur unu aferon
 
 
 ŝi vidis klare kaj precize: ŝi vidis, ke laboro tute ne estas tia objekto, por kiu la homo, precipe virino, devus nur kliniĝi, por ĝin akiri. Kaj ankoraŭ unu aferon ŝi vidis klare kaj precize: la blankan vizaĝeton de Janjo kaj la grandajn nigrajn okulojn de la infano, kies rigardo pikadis ŝian koron, kiel senĉe-sa, trudiĝa rememoro pri ia granda, urĝa, neforpelebla bezono …
 
-—Vane vi streĉas viajn pensojn, — plue diris Ludovikino Zminska, — nenion ili diros al vi, ĉar vi ne vivis ĝis nun meze de mondo reala, vi havis vian mondon antaŭe de fraŭlinaj revoj, poste de familiaj sentoj, kaj ĉio, kio estis ekster tio, vin ne interesis. Vi ne konas la mondon, kvankam vi vivis en ĝi dudek kaj kelke da jaroj, kiel vi ne scias ludi, kvankam vi lernis muzikon en la daŭro de naŭ jaroj. Nu, la faktoj, kiuj de ĉiuj flankoj vin ĉirkaŭos kaj regos vian propran vivon, ili instruos vin pri la mondo, la homoj, la socio. Kio mncernas, mi nur tion volas, povas kaj devas diri: en nia socio, sinjorino, nur tia virino povas atingi laborenspezon sufiĉan por la vivo kaj asekuri sian sorton kontraŭ grandaj suferoj kaj mi-zeroj, kiu posedas altan perfektecon en ia sciado, aŭ ian efektivan kaj energian talenton. ĉiu elementa sciado kaj nesufi-
-
-ĉaj kapabloj akiras aŭ absolute nenion, aŭ maksimume ili akiras pecon da pano sekan kaj malmolan, malsekigatan eble nur per larmoj kaj spicatan — por humiligoj. Mezo ĉi tie ne ekzistas, virino devas en ia fako de laboro esti perfekta, per tiu perfekteco ellabori al si nomon, famon, sekve serĉatecon.
+—Vane vi streĉas viajn pensojn, — plue diris Ludovikino Zminska, — nenion ili diros al vi, ĉar vi ne vivis ĝis nun meze de mondo reala, vi havis vian mondon antaŭe de fraŭlinaj revoj, poste de familiaj sentoj, kaj ĉio, kio estis ekster tio, vin ne interesis. Vi ne konas la mondon, kvankam vi vivis en ĝi dudek kaj kelke da jaroj, kiel vi ne scias ludi, kvankam vi lernis muzikon en la daŭro de naŭ jaroj. Nu, la faktoj, kiuj de ĉiuj flankoj vin ĉirkaŭos kaj regos vian propran vivon, ili instruos vin pri la mondo, la homoj, la socio. Kio mncernas, mi nur tion volas, povas kaj devas diri: en nia socio, sinjorino, nur tia virino povas atingi laborenspezon sufiĉan por la vivo kaj asekuri sian sorton kontraŭ grandaj suferoj kaj mi-zeroj, kiu posedas altan perfektecon en ia sciado, aŭ ian efektivan kaj energian talenton. ĉiu elementa sciado kaj nesufiĉaj kapabloj akiras aŭ absolute nenion, aŭ maksimume ili akiras pecon da pano sekan kaj malmolan, malsekigatan eble nur per larmoj kaj spicatan — por humiligoj. Mezo ĉi tie ne ekzistas, virino devas en ia fako de laboro esti perfekta, per tiu perfekteco ellabori al si nomon, famon, sekve serĉatecon.
 
 Se ŝi staras unu aŭ du ŝtupojn malpli alte en la sciado aŭ en la talento, tiam ŝi ĉion havas kontraŭ si — por si ŝi havas nenion.
 
-Marta aŭskultis tiujn vortojn kun avideco, sed ju pli longe 46
-
-MARTA
+Marta aŭskultis tiujn vortojn kun avideco, sed ju pli longe
 
 
 ŝi aŭskultis, tiom pli fariĝis videble, ke ankaŭ en ŝia kapo kolektiĝas tiaj samaj pensoj, en la buŝon puŝiĝas vortoj.
@@ -869,12 +697,7 @@ Zminska ekridetis mallaŭte,
 
 —Sekve, — ekkriis Marta kun nekutima flameco, — sekve pardonu, sinjorino, ke mi ankoraŭ unu fojon ripetas: kial, kial la kampo de laboro por unuj estas malfermita de la komenco ĝis la fino kaj por aliaj ĝi estas mezurata per futoj kaj co-loj? Kial mia frato, se mi lin havus, povus doni lecionojn de pentrado, havante tiom same da talento kaj kapablo kiel mi, kaj mi ne povas? Kial li povus kopii en oficejoj fremdajn skribaĵojn, kaj mi ne povas? Kial al li estus permesite ekspluati por si kaj por la siaj ĉion, ĉion kion ajn li posedus en la pro-vizejo de sia menso, kaj mi povas ekspluati nenion, krom ludado sur fortepiano, por kiu mi ne havas kapablon, kaj sciado de lingvoj, kiun mi posedas en malalta grado?
 
-Marta parolis tion per buŝo tremanta. ŝi ne estis grand-monda sinjorino, kiu sur velura sofo de salono sprite kon-versacias pri emancipado de virinoj, nek teoriisto, kiu inter la kvar muroj de kabineto pesas kaj mezuras cerbon viran kaj virinan, por trovi inter ili similecon kaj malsimilecon. La demandoj, kiuj elpuŝiĝis el ŝia buŝo, estis demandoj, kiuj ŝiradis la koron de patrino, flamigadis la kapon de malriĉa viri-47
-
-MARTA
-
-
-no, ŝoviĝadis antaŭ ŝin kiel ŝildo, kiu devas defendi ŝntraŭ — morto per malsato!
+Marta parolis tion per buŝo tremanta. ŝi ne estis grand-monda sinjorino, kiu sur velura sofo de salono sprite kon-versacias pri emancipado de virinoj, nek teoriisto, kiu inter la kvar muroj de kabineto pesas kaj mezuras cerbon viran kaj virinan, por trovi inter ili similecon kaj malsimilecon. La demandoj, kiuj elpuŝiĝis el ŝia buŝo, estis demandoj, kiuj ŝiradis la koron de patrino, flamigadis la kapon de malriĉa virino, ŝoviĝadis antaŭ ŝin kiel ŝildo, kiu devas defendi ŝntraŭ — morto per malsato!
 
 Zminska levis iom la ŝultrojn kaj diris malrapide:
 
@@ -888,18 +711,11 @@ Ludovikino Zminska leviĝis. En la antaŭĉambro eksonis la sonorilo, anoncante 
 
 —Mi faros ĉion, kion mi povos, por trovi por vi konforman okupon; tamen ne esperu, sinjorino, ricevi ĝin tre baldaŭ. enerale en la regiono de la instruado la proponado de laboro multe superas ĝian postuladon. Instruistinoj kun tre alta ling-vista kaj artista kapableco estus dezirataj kaj ili ricevus rilate bonegajn lokojn, sed la nombro de tiaj estas plej malgranda, eĉ tro malgranda en rilato al la bezono; sed koncerne la instruadon elementan, sin okupas aŭ volas sin okupi per ĝi tia multego da virinoj, ke tiu ĉi supermezura konkurado ne sole alkondukas la prezon de la laboro al terure malalta cifero, sed
 
-ĝi malfaciligas kaj por la plimulto eĉ neebligas la akiron de laboro! Mi tamen ripetas, ke mi faros ĉion, kion mi povos, por trovi por vi lecionojn; cetere ĝi koncernas ja ne sole vian in-tereson, sed ankaŭ mian propran. Post kelke da tagoj, post se-48
-
-MARTA
-
-
-majno, volu veni ĉi tien denove, kaj eble vi trovos jam ian sciigon.
+ĝi malfaciligas kaj por la plimulto eĉ neebligas la akiron de laboro! Mi tamen ripetas, ke mi faros ĉion, kion mi povos, por trovi por vi lecionojn; cetere ĝi koncernas ja ne sole vian in-tereson, sed ankaŭ mian propran. Post kelke da tagoj, post semajno, volu veni ĉi tien denove, kaj eble vi trovos jam ian sciigon.
 
 Dirante ĉi tiujn vortojn, la mastrino de la oficejo jam de la kapo ĝis la piedoj estis kovrita de oficiala malvarmeco kaj rigideco, ĉar en la ĉambro aperis nova virina figuro.
 
-Marta foriris. ŝi malsupreniris la ŝtuparon malrapide. ŝi ne ploris kiel tiu juna knabino, kiu antaŭ unu horo iris tiun saman vojon, sed ŝi estis profunde enpensa. Nur elirinte sur la straton, ŝi forigis la rigardon de la tero kaj rapidigis siajn pa-
-
-ŝojn. En tiu tago ŝi devis ankoraŭ multe fari.
+Marta foriris. ŝi malsupreniris la ŝtuparon malrapide. ŝi ne ploris kiel tiu juna knabino, kiu antaŭ unu horo iris tiun saman vojon, sed ŝi estis profunde enpensa. Nur elirinte sur la straton, ŝi forigis la rigardon de la tero kaj rapidigis siajn paŝojn. En tiu tago ŝi devis ankoraŭ multe fari.
 
 En la domo, kiu estis najbara de tiu domo, en kiu troviĝis ŝia loĝejo, ekzistis restoracio. Marta eniris en tiun ejon kaj petis, ke oni alportadu al ŝi tagmanĝojn. Pro la proksimeco de la loko kaj sub la kondiĉo de malgranda alpago oni konsentis sendadi al ŝi tagmanĝojn en la mansardon per malgranda servisto. Oni postulis nur antaŭan pagon, kiu konsistis el unu kaj duono da spesmiloj por semajno, sumo sufiĉe granda por Marta, kies tuta havo estis ĉirkaŭ tridek spesmiloj.
 
@@ -907,25 +723,16 @@ Malfermante la papermonujon, kiu enhavis en si tiun riĉecon, Marta eksentis ian
 
 Janjo, kiu la tutan matenon estis fermita en la ĉambreto,
 
-ĝoje ekkriis, kiam ŝi aŭdis la ŝlosilon turniĝantan en la seru-49
-
-MARTA
-
-
-ro. ŝi ĵetis sin al la kolo de la eniranta patrino kaj kovris ŝian vizaĝon per kisoj.
+ĝoje ekkriis, kiam ŝi aŭdis la ŝlosilon turniĝantan en la seruro. ŝi ĵetis sin al la kolo de la eniranta patrino kaj kovris ŝian vizaĝon per kisoj.
 
 La impreso de la momento estas la sola potenco, kiu forte efikas sur organismoj de infanoj. La estonteco ne ekzistas por ilia penso, la pasinteco rapide elviŝiĝas el ilia memoro. La hieraŭa tago estas jam por infano malproksima estinteco; kio estis, okazis aŭ fariĝis antaŭ kelke da tagoj, malaperas kaj disfluas antaŭ iliaj okuloj en la nebulo de forgeso. Janjo estis gaja.
 
 La mallarĝa radio de lumo, kiu penetris en la mansardan ĉambreton tra la malgranda fenestro, ĝojigis ŝin, la kameno kun la fumkolorigita profundo ŝin scivoligis kaj interesis, ŝi faris konatecon kun la novaj meblaĵoj, ŝi ridis pri la du seĝoj, ĉe kiuj unu piedo estis malpli longa ol la tri aliaj, kaj ŝi komparis ilin kun la kripluloj-maljunuloj, kiujn ŝi vidadis sur la stratoj de la urbo. La soluleco, en kiu ŝi pasigis la tutan matenon, amasigis en ŝia kapeto provizon da pensoj, kiujn la parolavida langeto per rapida kaj laŭta pepado eligadis antaŭ la patrino.
 
-La unuan fojon nun la gajeco de la infano faris preman impreson sur la menso de Marta. Hieraŭ, kiam Janjo ankoraŭ memoris pli bone la malaperintan bildon de la patro, kiam, malĝoja pro la perdo de la muroj, inter kiuj ŝi vivis ĝis nun, kaj de ĉiuj belaj objektoj, kiujn ŝi kutimis vidi, ŝi plorante ri-fuzadis manĝon, levadis siajn grandajn nigrajn okulojn al la vizaĝo de la patrino kun esprimo de dolora petegado kaj senkonscia teruro, Marta fordonus ĉion, kio ankoraŭ restis al ŝi, por aperigi rideton sur ŝia malgranda buŝeto, ruĝeton de sano sur la palaj vangetoj. Hodiaŭ la arĝentosona ridado de la infano kaŭzis al ŝi nedifinitan, sed pezan maltrankvilecon. Kio 50
-
-MARTA
+La unuan fojon nun la gajeco de la infano faris preman impreson sur la menso de Marta. Hieraŭ, kiam Janjo ankoraŭ memoris pli bone la malaperintan bildon de la patro, kiam, malĝoja pro la perdo de la muroj, inter kiuj ŝi vivis ĝis nun, kaj de ĉiuj belaj objektoj, kiujn ŝi kutimis vidi, ŝi plorante ri-fuzadis manĝon, levadis siajn grandajn nigrajn okulojn al la vizaĝo de la patrino kun esprimo de dolora petegado kaj senkonscia teruro, Marta fordonus ĉion, kio ankoraŭ restis al ŝi, por aperigi rideton sur ŝia malgranda buŝeto, ruĝeton de sano sur la palaj vangetoj. Hodiaŭ la arĝentosona ridado de la infano kaŭzis al ŝi nedifinitan, sed pezan maltrankvilecon. Kio
 
 
-do ŝanĝiĝis en ŝia situacio? ŝi estis soleca kiel hieraŭ, malri-
-
-ĉa kiel hieraŭ, sed inter la hieraŭ kaj hodiaŭ staris tiu prova mateno, en kiu, elirinte unuafoje en nekonatan mondon, ŝi pli precize ol iam antaŭe faris kalkulon pri si mem. Hieraŭ ŝi estis certa, ke, antaŭ ol pasos dudek-kvar horoj, ŝi jam posedos en sia mano la povon labori kaj prikalkuli la esperatan laborenspezon, kiu devos doni certajn difinitajn konturojn al ŝia estonteco. La dudek-kvar horoj pasis, sed la estonteco restis nedifinita. Oni ordonis al ŝi atendi, ne difinante eĉ la tempon de atendado, atendi ion, kio en ĉiu okazo devos esti tre malgranda.
+do ŝanĝiĝis en ŝia situacio? ŝi estis soleca kiel hieraŭ, malriĉa kiel hieraŭ, sed inter la hieraŭ kaj hodiaŭ staris tiu prova mateno, en kiu, elirinte unuafoje en nekonatan mondon, ŝi pli precize ol iam antaŭe faris kalkulon pri si mem. Hieraŭ ŝi estis certa, ke, antaŭ ol pasos dudek-kvar horoj, ŝi jam posedos en sia mano la povon labori kaj prikalkuli la esperatan laborenspezon, kiu devos doni certajn difinitajn konturojn al ŝia estonteco. La dudek-kvar horoj pasis, sed la estonteco restis nedifinita. Oni ordonis al ŝi atendi, ne difinante eĉ la tempon de atendado, atendi ion, kio en ĉiu okazo devos esti tre malgranda.
 
 —Kiel do nesperta mi estis, pensante, ke mi ne bezonos atendi, kiel do malprudenta mi estis, esperante de mi mem grandajn aferojn!
 
@@ -935,9 +742,7 @@ Tiel Marta meditis, starante vespere apud la fenestro, tra kiu vidiĝis nigra a�
 
 ĉe tiu ĉi penso malvarma tremo trakuris la korpon de Marta. ŝi deturnis rapide la kapon kaj ĵetis sur la dormantan kapeton de Janjo tian rigardon, kvazaŭ ŝi subite ektimus pri ŝi, kvazaŭ ŝi subite ekvidus ian teruran danĝeron, kiu pendas super ŝia infano.
 
-Estis griza, pluva, kota novembra tago, kiam Marta per tre rapidaj paŝoj marŝis de la strato Dluga al la strato Piwna, de 51
-
-MARTA
+Estis griza, pluva, kota novembra tago, kiam Marta per tre rapidaj paŝoj marŝis de la strato Dluga al la strato Piwna, de
 
 
 la informa oficejo hejmen. La nuboj ploris, sed la vizaĝo de la juna virino estis ĝoja. Homoj ŝirmis sin per pluvombreloj kontraŭ la pluvo, per manteloj kontraŭ la malvarmo, sed ŝi, per nenio sin ŝirmante, indiferenta kontraŭ la atakado de la naturo tiel same, kiel indiferenta ŝi sendube estus en tiu momento kontraŭ ĝiaj karesoj, facile kuris sur la kotaj trotuaroj, kun kapo levita, kun okuloj brilantaj.
@@ -957,25 +762,15 @@ Marta ne respondis; ŝi rapide leviĝis kaj rigardis en la nigran profundon de l
 Janjo eksaltis de ĝojo.
 
 
-MARTA
-
-
 —Fajron! fajron! — ŝi kriis, — mi amas fajron, panjo! Vi jam tiel longe ne faris ĝin sur la kameno!
 
 Kiam la flavaj flamoj leviĝis supren, plenigis per hela brilo la nigran profundon de la kameno kaj disverŝis en la ĉambron ondojn de agrabla varmo, Marta sidiĝis antaŭ la fajro kaj prenis sian infanon sur la genuojn.
 
-—Janjo! — ŝi diris, kliniĝante al la pala vizaĝeto; — vi estas ankoraŭ malgranda infano, sed vi devas jam kompreni tion, kion mi al vi diros. Via patrino estis tre, tre malriĉa, tre mal-
-
-ĝoja. ŝi elspezis sian tutan monon, kaj post kelke da tagoj ŝi jam ne havus por kio aĉeti nek tagmanĝon por vi kaj por si, nek lignon por fari fajron. Hodiaŭ oni donis al via patrino laboron, por kiu oni pagos al ŝi … Tial, venante, mi diris al vi, ke vi danku Dion, tial mi ekflamigis tiun belan fajron, por ke hodiaŭ estu al ni varme kaj gaje …
+—Janjo! — ŝi diris, kliniĝante al la pala vizaĝeto; — vi estas ankoraŭ malgranda infano, sed vi devas jam kompreni tion, kion mi al vi diros. Via patrino estis tre, tre malriĉa, tre malĝoja. ŝi elspezis sian tutan monon, kaj post kelke da tagoj ŝi jam ne havus por kio aĉeti nek tagmanĝon por vi kaj por si, nek lignon por fari fajron. Hodiaŭ oni donis al via patrino laboron, por kiu oni pagos al ŝi … Tial, venante, mi diris al vi, ke vi danku Dion, tial mi ekflamigis tiun belan fajron, por ke hodiaŭ estu al ni varme kaj gaje …
 
 Marta efektive ricevis laboron. Post monato da atendado, post pli ol dek senrezultataj iroj al la informa oficejo, Ludovikino Zminska sciigis al la juna virino, ke ŝi riĉevis por ŝi lecionon de franca lingvo. Tiu laborenspezo, kiu estis konsis-tonta el duono da spesmilo por tago, ŝajnis al Marta kvazaŭ malfermiĝinta antaŭ ŝi fosejo de riĉaĵoj. En tiu sama ĉambreto, en kiu ŝi nun loĝis, kontentigante siajn bezonojn tiel same ŝpareme aŭ eble ankoraŭ pli ŝpareme ol ĝis nun, ŝi povis kun tiaj enspezoj vivi kun sia infano. ŝi povis vivi! Tiuj ĉi vortoj havis grandegan signifon por la virino, kiu ankoraŭ hieraŭ informiĝadis, kie kaj al kiu ŝi povus vendi malpli necesegan parton de siaj vestoj.
 
-Krom tio la unua ekbrilo de sukceso lumigis antaŭ ŝi per-spektivon kun pli bona estonteco en la fino. ”Se, — diris Zminska, — en la domo, en kiun mi vin enkondukas, vi aki-53
-
-MARTA
-
-
-ros al vi nomon de instruistino konscienca kaj kapabla, tiam tre povas esti, ke viajn lecionojn ekdeziros multaj aliaj; tiam vi ricevos la rajton ne sole elekti, sed ankaŭ postuli kondiĉojn pli profitajn ol tiuj, kiujn oni nun proponis al vi.”
+Krom tio la unua ekbrilo de sukceso lumigis antaŭ ŝi per-spektivon kun pli bona estonteco en la fino. ”Se, — diris Zminska, — en la domo, en kiun mi vin enkondukas, vi akiros al vi nomon de instruistino konscienca kaj kapabla, tiam tre povas esti, ke viajn lecionojn ekdeziros multaj aliaj; tiam vi ricevos la rajton ne sole elekti, sed ankaŭ postuli kondiĉojn pli profitajn ol tiuj, kiujn oni nun proponis al vi.”
 
 Tio estis la vortoj, per kiuj Ludovikino Zminska finis la interparoladon kun la juna vidvino. En la kapo de Marta profunde enfortikiĝis la du vortoj ”konscienca kaj kapabla”.
 
@@ -983,12 +778,7 @@ La unua el tiuj du vortoj kaŭzis al ŝi nenian timon aŭ du-bon, la duan ŝi, m
 
 En la difinita horo Marta eniris en unu el la loĝejoj, kiuj troviĝis ĉe la strato Swieto-Jerska. En la bela, bonguste kaj sufiĉe multekoste aranĝita saloneto renkontis ŝin virino ankoraŭ juna, tre bela, tre bele vestita, vera tipo de Varsoviani-no, kun teniĝo vigla kaj plena de ĉarmo, kun vizaĝo esprimanta grandan inteligentecon, kun parolado rapida, vigla kaj eleganta. ŝi estis la edzino de unu el la plej famaj lokaj literaturistoj, sinjorino Mario Rudzinska. Tuj post ŝi enkuris en la saloneton dekdujara knabineto, ridanta, brilanta per siaj in-teligentaj okuloj, movetanta sian mallongan, belforman, last-mode aranĝitan vesteton kaj tiranta kun si longan puncan laĉon, kun kiu ŝi antaŭ momento verŝajne faradis gimnasti-kajn ekzercojn en la komforta kaj vasta loĝejo de siaj gepatroj.
 
-—Verŝajne mi havas la plezuron vidi sinjoninon Marta Swicka? — diris la mastrino de la loĝejo, etendante unu manon al la venintino kaj per la dua mano montrante al ŝi unu el la brakseĝoj, kiuj staris apud la kanapo. — Sinjorino Zminska hieraŭ multe parolis al mi pri vi, tial mi sincere ĝojas, ke mi vin ekkonas. Mi prezentas al vi mian filinon, vian eston-54
-
-MARTA
-
-
-tan lernantinon. Jadvinjo! ĉi tiu sinjorino estas tiel bona, ke ŝi volas doni al vi lecionojn de franca lingvo, memoru, ke vi faru al ŝi nenian malplezuron, kaj lernu tiel bone, kiel ĉe fraŭ-
+—Verŝajne mi havas la plezuron vidi sinjoninon Marta Swicka? — diris la mastrino de la loĝejo, etendante unu manon al la venintino kaj per la dua mano montrante al ŝi unu el la brakseĝoj, kiuj staris apud la kanapo. — Sinjorino Zminska hieraŭ multe parolis al mi pri vi, tial mi sincere ĝojas, ke mi vin ekkonas. Mi prezentas al vi mian filinon, vian estontan lernantinon. Jadvinjo! ĉi tiu sinjorino estas tiel bona, ke ŝi volas doni al vi lecionojn de franca lingvo, memoru, ke vi faru al ŝi nenian malplezuron, kaj lernu tiel bone, kiel ĉe fraŭ-
 
 lino Dupont!
 
@@ -1000,12 +790,7 @@ La mastrino de la loĝejo daŭrigis sian interparoladon kun Marta.
 
 —La lasta instruantino de mia filino, fraŭlino Dupont, instruis tre bone, kaj Jadvinjo faris ĉe ŝi grandajn progresojn.
 
-Sed mia edzo opiniis kaj ankaŭ mnvinkis pri tio, ke estas ne tute bone de nia flanko, ke ni donis al fremdlandulino la eblon labori, dum ĉirkaŭ ni troviĝas tiom multe da estimin-daj lokaj virinoj, kiuj tiel penege serĉas laboron kaj tiel malfacile ĝin trovas. Al ĉiuj instruistoj, kiuj klerigos la menson de nia filino, mi kaj mia edzo faras la solan peton, ke la instruado estu fundamenta, larĝa, plena, ke ĝi ampleksu ĉiujn bran-55
-
-MARTA
-
-
-ĉojn de la koncernata objekto tiamaniere, ke nia infano po-vu iam perfekte ĝin posedi.
+Sed mia edzo opiniis kaj ankaŭ mnvinkis pri tio, ke estas ne tute bone de nia flanko, ke ni donis al fremdlandulino la eblon labori, dum ĉirkaŭ ni troviĝas tiom multe da estimin-daj lokaj virinoj, kiuj tiel penege serĉas laboron kaj tiel malfacile ĝin trovas. Al ĉiuj instruistoj, kiuj klerigos la menson de nia filino, mi kaj mia edzo faras la solan peton, ke la instruado estu fundamenta, larĝa, plena, ke ĝi ampleksu ĉiujn branĉojn de la koncernata objekto tiamaniere, ke nia infano po-vu iam perfekte ĝin posedi.
 
 Marta silente salutis kaj leviĝis.
 
@@ -1013,24 +798,18 @@ Marta silente salutis kaj leviĝis.
 
 — diris la mastrino, ankaŭ leviĝante kaj per afabla gesto montrante la pordon kun la pordkurteno, malantaŭ kiu samtempe kun la leviĝo de la ambaŭ virinoj malaperis la paro da okuloj, la lipharoj kaj la barbeto, — jen estas la kabineto, destinita por la lernado de mia filino.
 
-La kabineto estis aranĝita pli modeste ol la salono, tamen en ĝi regis bona gusto kaj komforto. ĉe unu el la muroj staris granda tablo, kovrita per verda drapo, plena de libroj, kajeroj kaj skribiloj. Jadvinjo tie ĉi jam sentis sin ĉe si kaj, levante la belajn okulojn al la vizaĝo de la estonta instruantino, kun serioza mieno alŝovis al la tablo oportunan brakse-
-
-ĝon kaj metis antaŭ ĝi kelke da libroj kaj sufiĉe grandan nombron da dikaj kajeroj.
+La kabineto estis aranĝita pli modeste ol la salono, tamen en ĝi regis bona gusto kaj komforto. ĉe unu el la muroj staris granda tablo, kovrita per verda drapo, plena de libroj, kajeroj kaj skribiloj. Jadvinjo tie ĉi jam sentis sin ĉe si kaj, levante la belajn okulojn al la vizaĝo de la estonta instruantino, kun serioza mieno alŝovis al la tablo oportunan brakseĝon kaj metis antaŭ ĝi kelke da libroj kaj sufiĉe grandan nombron da dikaj kajeroj.
 
 Marta tamen ne tuj sidiĝis. ŝia vizaĝo, kiu post la ĵus pasinta monato da atendado estis pli malgrasa kaj pala ol an-taŭe, ricevis en tiu momento la esprimon de profunda enpensiĝo, la palpebroj malleviĝis, la manoj, per kiuj ŝi alkroĉiĝis al rando de la tablo, iom tremis. ŝi staris tiel kelke da minutoj, kun senmova vizaĝo kaj teniĝo. Oni povus diri, ke ŝi meditas pri la ĵus aŭditaj vortoj de la patrino de ŝia lernantino, aŭ ŝi mem faras al si ian demandon, serĉante por ĝi respondon en sia prudento aŭ konscienco. Kiam ŝi levis la rigardon, ŝiaj okuloj renkontiĝis kun la sur ŝi fiksita rigardo de la mastrino.
 
 Tiu ĉi rigardo en la daŭro de momento laŭkuris de la piedoj
 
-ĝis la kapo la gracian, delikatan, noble belan figuron de la nova instruistino. i haltis iom pli longe sur la larĝa blanka 56
-
-MARTA
+ĝis la kapo la gracian, delikatan, noble belan figuron de la nova instruistino. i haltis iom pli longe sur la larĝa blanka
 
 
 rubando, kiu per funebra strio borderis ŝian nigran veston, kaj fiksiĝis nun sur ŝia pala enpensa vizaĝo kun esprimo de kunsento kaj iom da scivoleco.
 
-—Vi portas funebron, — diris Mario Rudzinska per mallaŭ-
-
-tigita, mola voĉo, — eble pro la patrino, aŭ la patro …
+—Vi portas funebron, — diris Mario Rudzinska per mallaŭtigita, mola voĉo, — eble pro la patrino, aŭ la patro …
 
 —Pro la edzo, — mallaŭte respondis Marta, kaj ŝiaj palpebroj denove malleviĝis malrapide kaj peze.
 
@@ -1038,11 +817,7 @@ tigita, mola voĉo, — eble pro la patrino, aŭ la patro …
 
 ĉi tiun fojon Marta levis la rigardon, en kiu ektremis viva lumo.
 
-—Mi havas filinon, sinjorino! — ŝi respondis; kaj kvazaŭ tiuj vortoj frapus ŝin per ia subita, ordona rememoro, ŝi sidi-
-
-ĝis sur la seĝo, kiu antaŭ momento estis donita al ŝi, kaj per la manoj ankoraŭ iom tremantaj ŝi komencis malfermadi unu post alia la librojn, kiuj estis metitaj antaŭ ŝi. El tiuj libroj Marta povis kompreni, ke la dekdujara Jadvinjo jam multe lernis kaj jam multe progresis en la lernado; pri la profunda lingva sciado, kiun posedis la antaŭa instruistino de la knabineto, atestis la diversloke en la kajeroj troviĝantaj notoj, lertaj, plej facile venkantaj la plej grandajn lingvajn malfacilaĵojn kaj penetrantaj en la esencon kaj subtilajn nuancojn de la objekto. Marta viŝis per la mano siajn okulojn, kvazaŭ ŝi volus klarigi sian rigardon aŭ forpeli de si ian trudiĝeman penson, kaj, fermante la kajerojn kaj librojn, ŝi faris al sia lernantino kelkajn demandojn. Maria Rudzinska dume foriris al la fenestro, kaj, preninte en la manojn ian kudrolaboron, ŝi 57
-
-MARTA
+—Mi havas filinon, sinjorino! — ŝi respondis; kaj kvazaŭ tiuj vortoj frapus ŝin per ia subita, ordona rememoro, ŝi sidiĝis sur la seĝo, kiu antaŭ momento estis donita al ŝi, kaj per la manoj ankoraŭ iom tremantaj ŝi komencis malfermadi unu post alia la librojn, kiuj estis metitaj antaŭ ŝi. El tiuj libroj Marta povis kompreni, ke la dekdujara Jadvinjo jam multe lernis kaj jam multe progresis en la lernado; pri la profunda lingva sciado, kiun posedis la antaŭa instruistino de la knabineto, atestis la diversloke en la kajeroj troviĝantaj notoj, lertaj, plej facile venkantaj la plej grandajn lingvajn malfacilaĵojn kaj penetrantaj en la esencon kaj subtilajn nuancojn de la objekto. Marta viŝis per la mano siajn okulojn, kvazaŭ ŝi volus klarigi sian rigardon aŭ forpeli de si ian trudiĝeman penson, kaj, fermante la kajerojn kaj librojn, ŝi faris al sia lernantino kelkajn demandojn. Maria Rudzinska dume foriris al la fenestro, kaj, preninte en la manojn ian kudrolaboron, ŝi
 
 
 intencis sidiĝi kun ĝi ĉe malgranda tableto, sed subite la pordokurteno iom disŝoviĝis kaj malantaŭ ĝi aŭdiĝis bonsona vira voĉo:
@@ -1053,9 +828,7 @@ Mario trapasis mallaŭte la ĉambron, ankoraŭ unu fojon haltigis amikan rigardo
 
 En la mezo de la salono staris juna homo, kiu havis la aĝon de ĉirkaŭ 26 jaroj, maldika, gracia, vestita laŭ la lasta modo, kun bruna mallarĝa vizaĝo, nigraj haroj kaj karbe nigraj okuloj. La eksteraĵo de tiu ĉi homo estis agrabla kaj ĉe la unua rigardo eĉ interesa. Antaŭ ĉio frapanta en ĝi estis la granda pleneco de vivo libera, gaja, kvazaŭ senpacience sin elpuŝanta kaj kaprice ekscentra. ĉi tiu pleneco de vivo post pli atenta rigardo aperis eĉ kiel troeco. La pupiloj de la juna homo flamis, fulmetadis, ĉirkaŭ la buŝo, kiu estis duone kovrita de malgrandaj lipharoj, ludis svarmo da ridetoj, jen plaĉivolaj, jen petolaj, jen ŝercemaj, la tuta fizionomio en unu sekundo ŝanĝiĝadis, akceptante ĉiam alian esprimon de sprito, de ŝer-co. Li estis videble homo de eterna gajeco, de eterna ridado, sed samtempe oni vidis, ke li estis homo de gaja, pri nenio zorganta vivo. ĉi tiun lastan montris la iom laca koloro de lia vizaĝo, kiu kontrastis kun la juneco de lia tuta figuro, la flama brilo de liaj pupiloj, la preskaŭ infana malseriozeco de liaj ridetoj.
 
-En la momento, kiam Mario Rudzinska eniris en la salonon, la pozo de tiu juna homo estis iom stranga. Li staris kun vizaĝo turnita al la kabineta pordo, kiun la mastrino fermis, 58
-
-MARTA
+En la momento, kiam Mario Rudzinska eniris en la salonon, la pozo de tiu juna homo estis iom stranga. Li staris kun vizaĝo turnita al la kabineta pordo, kiun la mastrino fermis,
 
 
 kun talio iom fleksita malantaŭen, kun manoj levitaj supren, kun rigardo fiksita al la plafono. Tiun teatran pozon akompanis vizaĝesprimo, kiu signifis ankaŭ teatran kaj tre komike aspektantan ravitecon.
@@ -1081,9 +854,6 @@ Li sidiĝis sur ŝego apud la juna virino kaj, alpreminte la manon al la koro, d
 —Vi estas kruela, Marinjo, kun tiu via prudento, — diris la juna homo kun nova ekĝemo; — ĝuste en via domo mi ekvidis tiun belulinon …
 
 
-MARTA
-
-
 ĉe la lasta vorto li kun teatra gesto montris la pordon de la kabineto. Mario ŝajnis duone ridigita, duone mirigita.
 
 —Kio? — ŝi diris, — vi parolas do pri la nova instruistino de Jadvinjo?
@@ -1106,9 +876,7 @@ MARTA
 
 —Diinoj, da kiuj vi havas sufiĉe multe.
 
-—Ju pli da objektoj de amo homo havas, mia kuzino, des 60
-
-MARTA
+—Ju pli da objektoj de amo homo havas, mia kuzino, des
 
 
 pli li amas … Ili estas ekzercoj, kaj nur per ekzercoj la koro atingas tiun forton, tiun fajron, kiu …
@@ -1134,9 +902,6 @@ La juna homo faris sopiran ĝemon, interfingrigis la manojn kaj klinis la kapon 
 Elparolante ĉi tiun demandon, la homo de eterna ridado levis la kapon kaj rigardis la mastrinon per tiel larĝe malfermitaj okuloj, kun tiel komika esprimo de plendo, ofendiĝo kaj mirego, ke Mario ne povis sin deteni de preskaŭ laŭta rido.
 
 
-MARTA
-
-
 Tamen baldaŭ seriozeco anstataŭis ĉe ŝi la momentan gajecon.
 
 —Vi ne estas haringo, — ŝi diris, rigardante la laboron, kiun ŝi tenis en la mano, verŝajne pro timo, ke ŝi denove ne ridu,
@@ -1153,9 +918,7 @@ Tamen baldaŭ seriozeco anstataŭis ĉe ŝi la momentan gajecon.
 
 —Aleĉjo! — diris la mastrino leviĝante, — hodiaŭ vi estas ankoraŭ pli malprudenta ol ordinare … mi ne povas plu interparoli kun vi; iru al la oficejo, kaj mi iros en la kuirejon!
 
-—Fratineto! Marinjo! en la kuirejon! fi donc! c’est mauvais genre! La edzino de literaturisto en la kuirejon! ŝia edzo eble 62
-
-MARTA
+—Fratineto! Marinjo! en la kuirejon! fi donc! c’est mauvais genre! La edzino de literaturisto en la kuirejon! ŝia edzo eble
 
 
 skribas pri la poezieco, kiu estas deviga por virino, kaj ŝi iras en la kuirejon!
@@ -1170,16 +933,11 @@ Mario ne returniĝis kaj estis jam apud la pordo de la an-taŭĉambro. Tiam la j
 
 Nu, hontu! ĉesu! ĉu mi volis vin ofendi? ĉu vi ne scias, ke mi vin amas, kiel samgepatran, plej karan fratinon? Marinjo! Nu, ekrigardu min! Kion do mi estas kulpa, ke mi estas juna? Mi pliboniĝos, vi vidos, mi nur antaŭe iom maljuniĝu! — Dirante ĉion ĉi tion, li kisadis la manojn de la juna virino, kaj lia fizionomio prezentadis tian esprimon de interligitaj aŭ rapide sin reciproke sekvantaj plendo, facilanimeco, malĝojo, sentemeco, plaĉemeco, ke, rigardante ĝin, oni povis ridi, aŭ foriri, levante la ŝultrojn, sed koleri tiun grandaĝan infanon oni absolute ne povis. Tial ankaŭ Mario Rudzinska, batalante momenton kontraŭ la karesoj kaj la pardonpetoj de la kuzo, finis per rideto.
 
-—Kiom multe mi donus por tio, ke vi povu ŝanĝiĝi, Aleĉ-
-
-jo …
+—Kiom multe mi donus por tio, ke vi povu ŝanĝiĝi, Aleĉjo …
 
 —Kiom multe mi donus por tio, ke mi povu ŝanĝiĝi, Marinjo! sed … la natura karaktero ne estas servanto, ĝi la lupon en la arbaron … tiras …
 
 Dirante la lastan vorton, li kuntiriĝis kiel infano, kiu nekuraĝe esprimas sian deziron, kaj la montran fingron li etendis al la pordo de la kabineto.
-
-
-MARTA
 
 
 —ĉu denove? — diris Mario, metante sian manon sur la anson de la pordo.
@@ -1200,9 +958,7 @@ Respondo venis ne tuj. Oni aŭdis transturnadon de la folietoj de libro. Videble
 
 —Du passé défini de l’indicatif, — diris Marta post momento.
 
-Aleĉjo rektiĝis, levis supren la okulojn kaj mallaŭte ripetis: 64
-
-MARTA
+Aleĉjo rektiĝis, levis supren la okulojn kaj mallaŭte ripetis:
 
 
 —De l’in-di-ca-tif! kia anĝela voĉeto!
@@ -1221,9 +977,7 @@ Sur la fingroj de la piedoj li foriris de la pordo kaj stariĝis ĉe la fenestro
 
 Tion dirante, li efektive kuris al la pordo kaj, malfermante ĝin per forta puŝo, renkontiĝis okulo al okulo kun Mario, kiu revenis en la salonon.
 
-—Pro Dio, — diris la mastrino, retirante sin al la antaŭ-
-
-ĉambro, — kien do vi tiel flugas? ĉu al la oficejo?
+—Pro Dio, — diris la mastrino, retirante sin al la antaŭĉambro, — kien do vi tiel flugas? ĉu al la oficejo?
 
 —Mi vidis tra la fenestro fraŭlinon Malvinon, — respondis la juna homo, rapide surmetante la palton, — ŝi iris al la placo de Krasinski, certe al la magazenoj, por fari aĉetojn. Mi devas ja tie nepre esti kun ŝi …
 
@@ -1232,9 +986,6 @@ Tion dirante, li efektive kuris al la pordo kaj, malfermante ĝin per forta puŝ
 —La mono estas nenio! sed peceton de sia koro ŝi povas perdi en la vojo. is revido, Marinjo … salutu de mi la nigrokulan diinon …
 
 La lastajn vortojn li elparolis jam sur la ŝtuparo.
-
-
-MARTA
 
 
 Pli-malpli unu horon poste Marta eniris en sian ĉambreton en la mansardo. Forlasante ĝin, ŝi havis vizaĝon viglan, paŝon facilan, kun rideto ŝi alpremis al la koro kaj kisis sur la frunto la malgrandan filineton, instruante ŝin, kiel ŝi, en la tempo de ŝia forestado, devas ludi kun sia pupo kaj kun la du kriplaj seĝoj, kiuj servis al la pupo kiel lito kaj lulilo; ŝi revenis per malrapidaj paŝoj, kun mallevitaj okuloj kaj kun esprimo de premanta enpensiĝo sur la vizaĝo. Al la salutaj ekkrioj kaj karesoj de la infano ŝi respondis per apenaŭ tuŝanta, silenta kiso. Janjo rigardis la patrinon per siaj grandaj inteligentaj okuloj.
@@ -1250,26 +1001,16 @@ Pli-malpli unu horon poste Marta eniris en sian ĉambreton en la mansardo. Forla
 Kiam ŝi revenis, ŝi alportis kun si tri librojn. Tio estis franca gramatiko, krestomatio kaj destinita por lernejoj historio de la franca literaturo.
 
 
-MARTA
-
-
-Vespere en la ĉambreto de la mansardo brulis malgranda lampeto, kaj antaŭ ĝi super malfermita libro sidis Marta. ŝi apogis la frunton sur la manplatoj kaj englutadis per la okuloj la paĝojn de la libro. La komplikitaj gramatikaj reguloj, la miloj da problemoj de unu el la plej malfacilaj ortografioj en la mondo, interkonfuziĝis antaŭ ŝiaj okuloj, kiel buloj da in-terimplikitaj fadenoj, kiel labirinto da instruaj montroj kaj faktoj tute ne konataj, aŭ eble iam konitaj, sed jam de longe forgesitaj. Marta alcentrigis la tutan forton de sia komprenado, ĉiujn fortojn de sia memorado, por en la daŭro de unu vespero, de unu nokto, kompreni, ekmemori, alproprigi al si tion, kies komprenado postulas la laboron de kelke da jaroj, laboron malrapidan, paciencan, sisteman, logike kondukatan kaj grade kompletigatan kurson. La kompatinda virino pensis, ke forte streĉita febra penegado kompensos al la cerbo la jarojn da senlaboreco, ke la eta nuna momento iros sur la pesilon kontraŭ la tuta pasinteco kaj superpezos ĝin, ke grandega dezirado egalvaloras en la vivo la povadon. ŝi faris al si iluziojn. Sed la iluzioj ne povis teniĝi longe. ŝia penegado sin mem konsumadis en la febro, lacigis la korpon kaj la spiriton, per sia propra tro forta streĉiĝo nepovebligis ĉiun progreson; la nuna momento, plene okupita de turmenta maltrankvileco, penetrigis ankoraŭ nedifinitan sed jam mordantan maldolĉecon en la koron de la virino, kiu, forlasita de ĉiuj sur la tero, komencis kompreni, ke ŝi trompiĝis rilate sin mem, ke ŝia situacio estas plej malfavora por studado, kiu, por doni riĉajn fruktojn, bezonas trankvilecon, kiel birdo por la dis-volvo de siaj flugiloj bezonas aeron. La plej forta dezirado, la plej varmega aspirado de la spirito, la plej turmenta streĉiĝo de la volo ne povis fari tion, ke menso neinstruita penetru per 67
-
-MARTA
+Vespere en la ĉambreto de la mansardo brulis malgranda lampeto, kaj antaŭ ĝi super malfermita libro sidis Marta. ŝi apogis la frunton sur la manplatoj kaj englutadis per la okuloj la paĝojn de la libro. La komplikitaj gramatikaj reguloj, la miloj da problemoj de unu el la plej malfacilaj ortografioj en la mondo, interkonfuziĝis antaŭ ŝiaj okuloj, kiel buloj da in-terimplikitaj fadenoj, kiel labirinto da instruaj montroj kaj faktoj tute ne konataj, aŭ eble iam konitaj, sed jam de longe forgesitaj. Marta alcentrigis la tutan forton de sia komprenado, ĉiujn fortojn de sia memorado, por en la daŭro de unu vespero, de unu nokto, kompreni, ekmemori, alproprigi al si tion, kies komprenado postulas la laboron de kelke da jaroj, laboron malrapidan, paciencan, sisteman, logike kondukatan kaj grade kompletigatan kurson. La kompatinda virino pensis, ke forte streĉita febra penegado kompensos al la cerbo la jarojn da senlaboreco, ke la eta nuna momento iros sur la pesilon kontraŭ la tuta pasinteco kaj superpezos ĝin, ke grandega dezirado egalvaloras en la vivo la povadon. ŝi faris al si iluziojn. Sed la iluzioj ne povis teniĝi longe. ŝia penegado sin mem konsumadis en la febro, lacigis la korpon kaj la spiriton, per sia propra tro forta streĉiĝo nepovebligis ĉiun progreson; la nuna momento, plene okupita de turmenta maltrankvileco, penetrigis ankoraŭ nedifinitan sed jam mordantan maldolĉecon en la koron de la virino, kiu, forlasita de ĉiuj sur la tero, komencis kompreni, ke ŝi trompiĝis rilate sin mem, ke ŝia situacio estas plej malfavora por studado, kiu, por doni riĉajn fruktojn, bezonas trankvilecon, kiel birdo por la dis-volvo de siaj flugiloj bezonas aeron. La plej forta dezirado, la plej varmega aspirado de la spirito, la plej turmenta streĉiĝo de la volo ne povis fari tion, ke menso neinstruita penetru per
 
 
 unu fojo la misterojn de la scienco, ke la neekzercitaj organoj de komprenado kaj de memorado fleksiĝu kiel delikataj kor-doj, ke ili simile al fulmo saltu rapidajn rondojn, simile al vak-so moligita per fajro ensorbu en sin tion, kion oni enŝutas en ilin.
 
 Longe fari al si iluziojn Marta ne povis; sed surdigante en si ĉian analizemecon per la tuta forto de sia spirito kaj volo, ŝi obstine ripetadis al si la penson: ellernu! tiel same kiel ŝip-rompiĝulo, kiu batalas kontraŭ la ondegoj de la maro, per la tuta forto de siaj ambaŭ manoj tenas sin je la sola tabulo, kies apogo obstine subtenas en lia kapo la penson: mi restos sur la supraĵo!
 
-Nun kiel antaŭe, dum la longaj aŭtunaj noktoj, simile al ventego, bruis kaj per senfinaj gamoj leviĝadis kaj mallevi-
+Nun kiel antaŭe, dum la longaj aŭtunaj noktoj, simile al ventego, bruis kaj per senfinaj gamoj leviĝadis kaj malleviĝadis la misteraj murmuroj de la granda urbo, sed Marta ilin ne aŭskultis, timis aŭskulti ilin, ĉar ili vekis en ŝi tiun nedifinitan teruron, kiu kaptas homan estaĵon, kiu sentas senhel-pan eniĝadon en elementon potencan, nekonatan, senfundan.
 
-ĝadis la misteraj murmuroj de la granda urbo, sed Marta ilin ne aŭskultis, timis aŭskulti ilin, ĉar ili vekis en ŝi tiun nedifinitan teruron, kiu kaptas homan estaĵon, kiu sentas senhel-pan eniĝadon en elementon potencan, nekonatan, senfundan.
-
-Nun en la mezo de la nokto ŝi marŝadis en la ĉambreto lumata de la pala flamo de la lampeto, kun ruĝo sur la vangoj, kun nigraj harligoj mallevitaj sur la ŝultrojn, kun manoj nerve interplektitaj, kun buŝo senĉese murmuranta fremdajn vortojn, ĉerpitajn el tiu libro, kiu, malfermita sub la radioj de la lampo, kvazaŭ per dornoj estis plenigita de vicoj da sennom-braj gramatikaj finiĝoj, signoj, ciferoj notantaj regulojn, pa-rentezoj, esceptoj. Tiu libro estis la verko de Chapsal kaj Noel, kiu instruas al multaj la misterojn de la subtila lingvo de la francoj. La vortoj, kiujn la lipoj de Marta ripetadis de vespera krepusko ĝis noktomezo, ofte de noktomezo ĝis tagiĝo, 68
-
-
-MARTA
+Nun en la mezo de la nokto ŝi marŝadis en la ĉambreto lumata de la pala flamo de la lampeto, kun ruĝo sur la vangoj, kun nigraj harligoj mallevitaj sur la ŝultrojn, kun manoj nerve interplektitaj, kun buŝo senĉese murmuranta fremdajn vortojn, ĉerpitajn el tiu libro, kiu, malfermita sub la radioj de la lampo, kvazaŭ per dornoj estis plenigita de vicoj da sennom-braj gramatikaj finiĝoj, signoj, ciferoj notantaj regulojn, pa-rentezoj, esceptoj. Tiu libro estis la verko de Chapsal kaj Noel, kiu instruas al multaj la misterojn de la subtila lingvo de la francoj. La vortoj, kiujn la lipoj de Marta ripetadis de vespera krepusko ĝis noktomezo, ofte de noktomezo ĝis tagiĝo,
 
 
 estis tiuj enuigaj deklinacioj kaj konjugacioj, super kiuj sur la tera globo ĉiutage oscedas miloj da infanoj.
@@ -1280,9 +1021,7 @@ Sed Marta ne oscedis. La sekaj kaj monotonaj sonoj, kiuj la ĉambrojn de la lern
 
 —Tempon! tempon! — ofte kriadis en la penso la juna virino, kalkulante, kiom da linioj ŝi povas ellerni ĉiutage, aŭ kiom da paĝoj ĉiusemajne. — Se mi havus antaŭ mi du jarojn, unu jaron, aŭ almenaŭ kelke da monatoj da tempo! …
 
-Sed la tempo, kiu iam estis por ŝi tiel malavara dum ŝia senlaboreco kaj ripozado, nun pelis ŝin per teruro de malsato, malvarmo, honto, mizero. ŝi deziris ekposedi kiel sian ab-solutan propraĵon almenaŭ unu jaron, dume jam la morgaŭ ne apartenis al ŝi. Morgaŭ ŝi devis jam scii ĉion, kion apenaŭ jaro aŭ serio da jaroj povas ellernigi; ŝi devis, se ŝi ne volis, ke el ŝiaj manoj elfalu ilo de laborenspezado. La tempo, en kiu tiu virino komencis la batalon pro ekzistado por si kaj por sia 69
-
-MARTA
+Sed la tempo, kiu iam estis por ŝi tiel malavara dum ŝia senlaboreco kaj ripozado, nun pelis ŝin per teruro de malsato, malvarmo, honto, mizero. ŝi deziris ekposedi kiel sian ab-solutan propraĵon almenaŭ unu jaron, dume jam la morgaŭ ne apartenis al ŝi. Morgaŭ ŝi devis jam scii ĉion, kion apenaŭ jaro aŭ serio da jaroj povas ellernigi; ŝi devis, se ŝi ne volis, ke el ŝiaj manoj elfalu ilo de laborenspezado. La tempo, en kiu tiu virino komencis la batalon pro ekzistado por si kaj por sia
 
 
 infano, ne estis jam por ŝi tempo favora por lernado, kaj tamen ŝi lernis …
@@ -1298,9 +1037,6 @@ Venis la tago, en kiu Marta devis ricevi de la patrino de sia lernantino la pago
 Mario direktis la rigardon al la flanko de la parolanto.
 
 —Mi estas efektive tre afliktita, Aleĉjo, kaj mi vin petas, ke vi konsideru la staton de mia animo kaj ne malpaciencigu min per iaj ŝercoj …
-
-
-MARTA
 
 
 —Ho! ho! ho! ho! — diris la juna homo, demetante la gazeton, per kiu li ĝis nun ŝirmis al si la vizaĝon; — kia soleneco de parolado! Kio do fariĝis? ĉu artikolon, verkitan de la talenta plumo de mia bofrato, oni ne volis akcepti por presi?
@@ -1323,11 +1059,7 @@ En tiu momento tiu homo de eterna ridado havis la aspekton de knabego bona kaj s
 
 Aleĉjo elrektiĝis kaj almetis la manon al la koro.
 
-—Parolu kuraĝe, mia fratino! — li diris, — mi aŭskultos vin kun seriozeco de pastro, kiu sidas en la konfesprena seĝo, kaj kun sento de frato, por kiu vi multe da fojoj estis bona an-
-
-ĝelo-konfesprenanto … Mi vin aŭskultos kun preteco por ĉio 71
-
-MARTA
+—Parolu kuraĝe, mia fratino! — li diris, — mi aŭskultos vin kun seriozeco de pastro, kiu sidas en la konfesprena seĝo, kaj kun sento de frato, por kiu vi multe da fojoj estis bona anĝelo-konfesprenanto … Mi vin aŭskultos kun preteco por ĉio
 
 
 … Se vi ekdeziris havi la arbon kantantan, aŭ la birdon parolantan, mi iros serĉi ilin trans la montoj kaj maroj … Se al Jadvinjo ekdoloris la nazeto aŭ la buŝeto, mi tuj kunvokos ĉiujn kuracistojn, kiuj en Varsovio dormas kaj manĝas … Se iu vin ofendis … mi vokos lin al duelo aŭ … aŭ mi lin prilabo-ros per bastono, kaj ke mi ĉion ĉi tion faros kaj plenumos, mi ĵuras per ĉiuj belaj okuloj de ĉiuj miaj diinoj … per la memoro pri la infanaj jaroj, kiujn mi pasigis kun vi, Marinjo, per la polvokovritaj muroj de mia oficejo kaj per la kameretoj de mia koro, en kiuj fluas sango tiu sama kiel via!
@@ -1342,9 +1074,7 @@ dank’al Dio! mi spiras pli libere … mi pensis jam efektive, ke ia malfeliĉo
 
 —i estas efektive malfeliĉo, sed koncernanta ne nin, sed ŝin …
 
-—Malfeliĉo, efektive? nu, tiam ankaŭ mi iom bedaŭros tiun 72
-
-MARTA
+—Malfeliĉo, efektive? nu, tiam ankaŭ mi iom bedaŭros tiun
 
 
 interesan vidvinon. Sed kio do povis fariĝi al ŝi? ĉu ŝi vidis en sonĝo la formortintan edzon? ĉu …
@@ -1367,9 +1097,7 @@ Estis sufiĉe ĵeti sur ŝin nur unu rigardon, por diveni, ke ŝi decidis nun fa
 
 —ĉu la leciono jam estas finita? — eldiris Mario, kiu ĉe la eniro de la juna vidvino leviĝis kaj penis aperigi senĝenan rideton.
 
-—Jes, sinjorino, — respondis Marta per iom mallaŭta, sed 73
-
-MARTA
+—Jes, sinjorino, — respondis Marta per iom mallaŭta, sed
 
 
 firma voĉo, — mi finis la hodiaŭan lecionon kun fraŭlino Jadvigo kaj mi venis, por sciigi al vi, ke ĝi estis la lasta. Mi ne povas plu instrui vian filinon, sinjorino …
@@ -1384,14 +1112,9 @@ Sur la vizaĝo de Mario Rudzinska aperis miro, aflikto kaj konfuzo. La lasta est
 
 Dirante tion, ŝi mallevis la okulojn; la ruĝo, kiu kovris ŝiajn vangojn, leviĝis sur la frunton kaj kovris la tutan vizaĝon per esprimo de premanta honto.
 
-—Mi eraris pri mi mem, — ŝi diris plue; — fariĝinte malri-
-
-ĉa, mi komprenis, ke mi devas labori … mi aŭdis, mi vidis, ke malriĉaj aŭ malriĉiĝintaj virinoj plejparte fariĝas instruistinoj
+—Mi eraris pri mi mem, — ŝi diris plue; — fariĝinte malriĉa, mi komprenis, ke mi devas labori … mi aŭdis, mi vidis, ke malriĉaj aŭ malriĉiĝintaj virinoj plejparte fariĝas instruistinoj
 
 … tial mi pensis, ke ankaŭ mi en ĉi tiu profesio trovos por mi laboron kaj panon … Oni diris al mi, ke mi estas kapabla instrui nur la francan lingvon, mi opiniis efektive, ke tiun lingvon mi posedas, ĉar mi parolas en ĝi sufiĉe korekte kaj facile. Nun mi konvinkiĝis, ke bona parolado ne estas ankoraŭ tuta konado de la lingvo, ke mi neniam lernis ĝin fundamente, kaj tiun malgrandan sciadon, kiun mi akiris en la infaneco, mi forgesis … Tio estis fragmentaj, supraĵaj, ne precize komprenitaj scioj, ne estas do mirinde, ke ili forflugis el mia memoro. La fremdlandulino, kiu ĝis nun donadis lecionojn al via filino, estis perfekta instruistino … fraŭlino Jadvigo povoscias multe pli ol mi.
-
-
-MARTA
 
 
 ŝi silentiĝis por momento, kvazaŭ ŝi bezonus denove kolekti siajn fortojn.
@@ -1412,9 +1135,7 @@ Marta longe silentis.
 
 ĉe la lastaj vortoj ŝiaj palpebroj malleviĝis; en la voĉo tremis profunda humiliĝo.
 
-—Eble vi volus donadi lecionojn de muziko? Unu el miaj 75
-
-MARTA
+—Eble vi volus donadi lecionojn de muziko? Unu el miaj
 
 
 parencinoj ĝuste nun serĉas iun, kiu donadus lecionojn de muziko al ŝia filino.
@@ -1441,14 +1162,10 @@ Mario post momenta pripenso neante skuis la kapon.
 
 —Sekve, — diris Marta, premante la manon de la mastrino, — restas al mi nur diri al vi adiaŭ kaj danki vin por la boneco kaj afableco, kiun vi montris rilate min.
 
-Mario etendis la manon al eleganta koverto, en kiu oni povis vidi kelke da monbiletoj, sed en tiu sama momento iu de flanke ektuŝis ŝian manikon. Tio estis la gaja Aleĉjo, kiu en la tuta tempo de la interparolado staris malproksime en pozo tre modesta kaj kun vizaĝesprimo tute ne gaja. Liaj okuloj 76
-
-MARTA
+Mario etendis la manon al eleganta koverto, en kiu oni povis vidi kelke da monbiletoj, sed en tiu sama momento iu de flanke ektuŝis ŝian manikon. Tio estis la gaja Aleĉjo, kiu en la tuta tempo de la interparolado staris malproksime en pozo tre modesta kaj kun vizaĝesprimo tute ne gaja. Liaj okuloj
 
 
-duone kun raviteco, duone kun sincera kompato estis fiksitaj sur la vizaĝo de la juna vidvino, kiu eĉ plej malmulte ne atentis lian ĉeestadon. Eble, enirante en la salonon, ŝi lin vidis, sed kion povis interesi ŝin unu homo pli, kiu estos atestanto de ŝia humiliga konfeso, kiam la plej terura kaj nefori-gebla atestanto estis ŝi mem? Kion povis ŝin interesi la supozo, ke ies okuloj rigardas ŝin en la momento, en kiu ŝia propra rigardo kun teruro estis direktita en la profundon de ŝia propra senkapableco kaj en la senfundan abismon de la sorto, kiu ŝin atendas? Tial Marta ne atentis la ĉeestadon de la juna homo, Mario ĝin forgesis, kaj, sentante, ke iu ŝin tuŝete tiras je la maniko, ŝi turnis la vizaĝon kun iom da miro. ŝi miris ankoraŭ pli, kiam ŝi vidis la fizionomion de Aleĉjo. Liaj movi-
-
-ĝemaj okuloj estis nun plenaj de malĝojo, la buŝo, sur kiu oni ordinare ĉiam vidis malseriozan rideton, havis nun esprimon bonkoran kaj eĉ iom kvazaŭ seriozan.
+duone kun raviteco, duone kun sincera kompato estis fiksitaj sur la vizaĝo de la juna vidvino, kiu eĉ plej malmulte ne atentis lian ĉeestadon. Eble, enirante en la salonon, ŝi lin vidis, sed kion povis interesi ŝin unu homo pli, kiu estos atestanto de ŝia humiliga konfeso, kiam la plej terura kaj nefori-gebla atestanto estis ŝi mem? Kion povis ŝin interesi la supozo, ke ies okuloj rigardas ŝin en la momento, en kiu ŝia propra rigardo kun teruro estis direktita en la profundon de ŝia propra senkapableco kaj en la senfundan abismon de la sorto, kiu ŝin atendas? Tial Marta ne atentis la ĉeestadon de la juna homo, Mario ĝin forgesis, kaj, sentante, ke iu ŝin tuŝete tiras je la maniko, ŝi turnis la vizaĝon kun iom da miro. ŝi miris ankoraŭ pli, kiam ŝi vidis la fizionomion de Aleĉjo. Liaj moviĝemaj okuloj estis nun plenaj de malĝojo, la buŝo, sur kiu oni ordinare ĉiam vidis malseriozan rideton, havis nun esprimon bonkoran kaj eĉ iom kvazaŭ seriozan.
 
 —Marinjo! — diris mallaŭte la juna homo, — via edzo laboras ĉe unu el la ilustritaj revuoj, eble oni tie bezonus iun, kiu scias desegni …
 
@@ -1467,21 +1184,13 @@ Mario ekplaŭdis per la manoj.
 —He, kian sencon havos skribado! tio daŭros tro longe! mi iros kaj mi elvokos Adamon el la kunsido …
 
 
-MARTA
-
-
 —Iru, iru, Aleĉjo …
 
 —Mi iras, mi rapidas, mi flugas! — ekkriis la juna homo, kaptis la ĉapelon, kaj, kun ekstrema rapideco metante ĝin sur la kapon ankoraŭ antaŭ la pordo, forgesante diri adiaŭ al la du virinoj, li elkuris en la antaŭĉambron. Tie li ĵetis la palton sur la ŝultrojn, kaj, kriante ankoraŭ unu fojon — mi kuras, flugas, rapidas —, li efektive kuris, rapidis kaj flugis de la ŝtuparo tiel same, kiel li faris antaŭ unu monato, kiam li volis kuratingi la junan belulinon, kiun li vidis tra la fenestro.
 
 Mario ne eraris, kiam ŝi havis la konvn, ke ŝia kuzo posedas bonan koron, tial ŝi nun kun certa kontenteco akompanis lin per la okuloj ĝis la sojlo, poste ŝi turnis sin denove al Marta. La juna vidvino staris senmove, kun ankoraŭ pli ardanta ruĝo sur la vizaĝo. ŝi ne povis ne vidi, ke ŝi vekis kompaton ne sole en ĉi tiu virino, kiu antaŭ momento premis ŝiajn manojn, sed ankaŭ en tiu juna homo, kiun ŝi preskaŭ tute ne konis, ĉar ŝi apenaŭ kelke da fojoj pasante lin vidis.
 
-Nun la unuan fojon en sia vivo ŝi estis objekto de homa kompato, ŝi preskaŭ mem ĝin elvokis, eviti ĝin aŭ forpuŝi ĝin ŝi, premata de fortega bezono, ne povis, kaj tamen ĉi tiu sento, kiun oni montris al ŝi, sento per si mem bona, falis sur ŝian kapon kiel premeganta pezo kaj klinis ĝin malsupren … ŝi estis malkontenta de si mem, de sia interparolo kun Mario, ĉar tiu interparolo ĉe homoj tute fremdaj por ŝi elvokis simp-tomojn de kompato al ŝi … Tra ŝia kapo trakuris la penso, ke ŝi devis esti pli forta, pli kaŝema, pli sindetenema, ŝi havis tian senton, kvazaŭ en ĉi tiu momento forfalus parteto de ŝia persona kaj homa indeco, kvazaŭ ŝi la unuan fojon etendus la manon por almozo. Kiam la gekuzoj interŝanĝis inter si fra-zojn, kiuj koncernis ŝin, kiam la juna homo elkuris el la ĉam-78
-
-MARTA
-
-
-bro, por porti al nekonataj, de ŝi neniam viditaj homoj peton en ŝia nomo, tiam naskiĝis en ŝi fortega deziro foriri, foriri tuj, per vorto de danko pagi por la momento da kompato, sed la almozon ne akcepti kaj diri:
+Nun la unuan fojon en sia vivo ŝi estis objekto de homa kompato, ŝi preskaŭ mem ĝin elvokis, eviti ĝin aŭ forpuŝi ĝin ŝi, premata de fortega bezono, ne povis, kaj tamen ĉi tiu sento, kiun oni montris al ŝi, sento per si mem bona, falis sur ŝian kapon kiel premeganta pezo kaj klinis ĝin malsupren … ŝi estis malkontenta de si mem, de sia interparolo kun Mario, ĉar tiu interparolo ĉe homoj tute fremdaj por ŝi elvokis simp-tomojn de kompato al ŝi … Tra ŝia kapo trakuris la penso, ke ŝi devis esti pli forta, pli kaŝema, pli sindetenema, ŝi havis tian senton, kvazaŭ en ĉi tiu momento forfalus parteto de ŝia persona kaj homa indeco, kvazaŭ ŝi la unuan fojon etendus la manon por almozo. Kiam la gekuzoj interŝanĝis inter si fra-zojn, kiuj koncernis ŝin, kiam la juna homo elkuris el la ĉambro, por porti al nekonataj, de ŝi neniam viditaj homoj peton en ŝia nomo, tiam naskiĝis en ŝi fortega deziro foriri, foriri tuj, per vorto de danko pagi por la momento da kompato, sed la almozon ne akcepti kaj diri:
 
 —Mi esperas, ke mi mem min helpos.
 
@@ -1497,9 +1206,7 @@ En la unua momento ŝi volis doni sian adreson, sed tra ŝia kapo trakuris la pe
 
 Laborenspezo! kia proza, triviala, pure tera vorto ĝi estas!
 
-vi eble ekkrios, legantoj. Se anstataŭ ĝi estus ĉi tie ia flamanta amo, kora sopiro, alta revo, tiam la sentoj de la juna virino sin 79
-
-MARTA
+vi eble ekkrios, legantoj. Se anstataŭ ĝi estus ĉi tie ia flamanta amo, kora sopiro, alta revo, tiam la sentoj de la juna virino sin
 
 
 turnus en pli konvena por ili rondo de moralaj aperoj, vekus pli da simpatio, pli fortan kunsenton! Povas esti, mi ne scias.
@@ -1514,12 +1221,7 @@ Marta ne etendis la manon.
 
 —Vi nenion ŝuldas al mi, — ŝi diris, — ĉar mi absolute nenion lernigis al via filino.
 
-Mario Rudzinska volis insisti, sed Marta kaptis ŝian manon, premis ĝin forte en siaj manoj kaj rapide forlasis la ĉambron. Kial ŝi foriris tiel rapide? Eble ŝi deziris la unuan fojon en sia vivo forkuri de la sentata malbona tento? ŝi sentis, ke la mono, kiun oni proponis al ŝi, ne apartenas al ŝi, ke ŝi per nenio ĝin meritis, krom eble per senfruktaj bonaj deziroj, ke se ŝi ĝin akceptus, ŝi farus agon nehonestan. Tial ŝi ĝin ne prenis; sed kiam en la vespera krepusko, pro ŝparemeco ne lumigante la lampon en sia ĉambreto, ŝi ĉe la malforta lumo de la finiĝanta tago malfermis sian monujon kaj kalkulis la tie troviĝantajn malgrandajn monerojn; kiam ŝi ekpensis pri tio, ke krom tiu mono, kiu povas sufiĉi apenaŭ por kelke da ta-80
-
-MARTA
-
-
-goj, ŝi havas jam nenian alian, kaj ĉi tiu estas restaĵo de la sumo, kiun ŝi ricevis per la vendo de unu el la du vestoj, kiujn ŝi posedis; kiam la malgranda Janjo, alpremante sin al ŝiaj genuoj, plendis pri la malvarmo, kiu regas en la ĉambro, kaj petis ekbruligi fajron sur la kameno, kaj ŝi devis tion rifuzi, ĉar la provizo da ligno estis jam tre malgranda kaj pri ĝia pli-grandigo ŝi nun ne povis eĉ revi; kiam fine ĉirkaŭis ŝin nokta mallumo, kiu pligrandigas la malgajecon kaj maltrankvilecon aliformigas en timegon, — tiam antaŭ ŝiaj okuloj, elvokita de ia mistera forto de la imago, preterŝoviĝis la eleganta koverto, ornamita per lilikoloraj randoj, kun la tri kvinspesmi-laj biletoj interne. Marta desaltis de la seĝo kaj eklumigis la lampon. La fantomo de la nelabormeritita mono malaperis kune kun la mallumo, sed en la kapo de Marta restis post ĝi ia nedifinebla teruro.
+Mario Rudzinska volis insisti, sed Marta kaptis ŝian manon, premis ĝin forte en siaj manoj kaj rapide forlasis la ĉambron. Kial ŝi foriris tiel rapide? Eble ŝi deziris la unuan fojon en sia vivo forkuri de la sentata malbona tento? ŝi sentis, ke la mono, kiun oni proponis al ŝi, ne apartenas al ŝi, ke ŝi per nenio ĝin meritis, krom eble per senfruktaj bonaj deziroj, ke se ŝi ĝin akceptus, ŝi farus agon nehonestan. Tial ŝi ĝin ne prenis; sed kiam en la vespera krepusko, pro ŝparemeco ne lumigante la lampon en sia ĉambreto, ŝi ĉe la malforta lumo de la finiĝanta tago malfermis sian monujon kaj kalkulis la tie troviĝantajn malgrandajn monerojn; kiam ŝi ekpensis pri tio, ke krom tiu mono, kiu povas sufiĉi apenaŭ por kelke da tagoj, ŝi havas jam nenian alian, kaj ĉi tiu estas restaĵo de la sumo, kiun ŝi ricevis per la vendo de unu el la du vestoj, kiujn ŝi posedis; kiam la malgranda Janjo, alpremante sin al ŝiaj genuoj, plendis pri la malvarmo, kiu regas en la ĉambro, kaj petis ekbruligi fajron sur la kameno, kaj ŝi devis tion rifuzi, ĉar la provizo da ligno estis jam tre malgranda kaj pri ĝia pli-grandigo ŝi nun ne povis eĉ revi; kiam fine ĉirkaŭis ŝin nokta mallumo, kiu pligrandigas la malgajecon kaj maltrankvilecon aliformigas en timegon, — tiam antaŭ ŝiaj okuloj, elvokita de ia mistera forto de la imago, preterŝoviĝis la eleganta koverto, ornamita per lilikoloraj randoj, kun la tri kvinspesmi-laj biletoj interne. Marta desaltis de la seĝo kaj eklumigis la lampon. La fantomo de la nelabormeritita mono malaperis kune kun la mallumo, sed en la kapo de Marta restis post ĝi ia nedifinebla teruro.
 
 —ĉu povas esti, ke mi bedaŭris tion, ke mi ne faris malhonestaĵon?
 
@@ -1528,9 +1230,6 @@ goj, ŝi havas jam nenian alian, kaj ĉi tiu estas restaĵo de la sumo, kiun ŝi
 ŝajnas al mi, — ŝi diris al si, — ke mi vane estas tiel maltrankvila. Oni ja promesis al mi novan okupon … mi desegnis ja iam ne malbone, oni eĉ trovadis en mi sufiĉe grandan kapablecon por desegnado … Tiun taskon, se oni nun donos ĝin al mi, mi ja verŝajne bone plenumos! Mia Dio! Kiel fervore mi penados, ke ĉi tiun fojon la laboro ne elglitu el miaj manoj.
 
 Kaj la fakto, ke ĝin donos al mi homoj fremdaj, pro kompato, pro kunsento? kian do gravecon ĝi havas? Tio ne devas min humiligi! Mi estas ankoraŭ tro fiera! Estas vero, ke mi ofte aŭdis, ke malriĉeco povas iri kune kun fiereco, sed tio verŝajne estas nun teorioj, mi nun konvinkiĝas, ke estas alie!
-
-
-MARTA
 
 
 ĉi tiu lasta penso reaperis en la kapo de Marta, kiam la sekvantan tagon matene ŝi iris malsupren kaj nekuraĝe fra-petis la pordon de la loĝejo de la domadministranto.
@@ -1553,12 +1252,7 @@ Tamen se ĝi ripetiĝus …
 
 La administranto silente salutis.
 
-Marta kun ruĝa vizaĝo kaj mallevitaj okuloj eliris sur la straton. Baldaŭ ŝi revenis en sian ĉambreton, alportante en tuko diversajn aĵojn, aĉetitajn en la urbo. ŝi ne povis jam preni tagmanĝojn el la restoracio, ŝi eĉ faris al si riproĉojn, ke ŝi prenadis ilin ĝis nun, ĉar ŝi elspezis por ili pli, ol ŝi povis el-82
-
-MARTA
-
-
-spezi. Pri si ŝi pensis malmulte; konsidere la zorgojn, kiuj ŝin ĉirkaŭis, kaj la celon, kiu staris antaŭ ŝi, la kvanto kaj eco de la manĝo, kiu devis subteni ŝian vivon, ne povis okupi grandan lokon en ŝiaj pensoj. ŝi opiniis, ke per glaso da lakto kaj per kelke da bulkoj ĉiutage ŝi povos dum kelka tempo sufiĉe subteni siajn fortojn. Sed la malgranda Janjo, kiu ofte tremis de malvarmo en malbone varmigita ĉambro, bezonis nepre almenaŭ unu fojon en tago varman manĝon.
+Marta kun ruĝa vizaĝo kaj mallevitaj okuloj eliris sur la straton. Baldaŭ ŝi revenis en sian ĉambreton, alportante en tuko diversajn aĵojn, aĉetitajn en la urbo. ŝi ne povis jam preni tagmanĝojn el la restoracio, ŝi eĉ faris al si riproĉojn, ke ŝi prenadis ilin ĝis nun, ĉar ŝi elspezis por ili pli, ol ŝi povis elspezi. Pri si ŝi pensis malmulte; konsidere la zorgojn, kiuj ŝin ĉirkaŭis, kaj la celon, kiu staris antaŭ ŝi, la kvanto kaj eco de la manĝo, kiu devis subteni ŝian vivon, ne povis okupi grandan lokon en ŝiaj pensoj. ŝi opiniis, ke per glaso da lakto kaj per kelke da bulkoj ĉiutage ŝi povos dum kelka tempo sufiĉe subteni siajn fortojn. Sed la malgranda Janjo, kiu ofte tremis de malvarmo en malbone varmigita ĉambro, bezonis nepre almenaŭ unu fojon en tago varman manĝon.
 
 Tial la juna vidvino por la iom da spesdekoj, kiuj restis al ŝi, aĉetis iom da butero, grio kaj malgrandan poteton.
 
@@ -1568,12 +1262,7 @@ Tial la juna vidvino por la iom da spesdekoj, kiuj restis al ŝi, aĉetis iom da
 
 ŝi ankaŭ ne povis alkutimiĝi al la penso, ke ŝia infano ĉesos manĝi viandon. Jam sen tio ĝi estis pala, malforta, elturmentita de la multaj maloportunaĵoj, kiujn ĝi antaŭe ne konis. Sed freŝa viando kostas multe, kaj por pretigi el ĝi manĝon oni devas ankaŭ forbruligi multe da ligno. Tial Marta aĉetis fun-ton da fumaĵita ŝ. Dum ŝi faris siajn aĉetojn, venis al ŝi en la kapon penso pri restoracioj por malriĉuloj. ŝi aŭdis iam pri ili, kiam ŝi estis ankoraŭ edzino de oficisto, kiu ricevadis su-fiĉe grandan salajron, kaj ŝi mem malavare donadis sian parton al kolektoj, kiuj estis aranĝataj por la bono de filantropiaj institucioj. Tamen krom tio, ke restoracio por malriĉuloj en ŝia nuna situacio povus esti por ŝi ankoraŭ tro kara, Marta sentis instinktan, nevenkeblan abomenon kontraŭ serĉado de helpo ĉe ia filantropia institucio.
 
-—Ili ekzistas por maljunuloj, — ŝi pensis, — por malsanu-loj, kripluloj, por infanoj, kiuj ne havas prizorgantojn, aŭ por homoj absolute malkapablaj aŭ kadukiĝintaj morale kaj men-83
-
-MARTA
-
-
-se. Mi estas juna kaj sana, ankoraŭ multajn aferojn mi ne provis fari, kiujn mi eble estos kapabla fari, kaj se mi ne sukcesis trovi laborenspezon en unu profesio, ĉu pro tio mi devas turni min al publika filantropio? Neniam! — ŝi ekkriis en siaj pensoj, kaj, malferminte denove sian monujon, ŝi kalkulis la moneretojn, kiuj restis en ĝi post la faritaj aĉetoj. Tie troviĝis ankoraŭ ĉirkaŭ kvindek spesdekoj.
+—Ili ekzistas por maljunuloj, — ŝi pensis, — por malsanu-loj, kripluloj, por infanoj, kiuj ne havas prizorgantojn, aŭ por homoj absolute malkapablaj aŭ kadukiĝintaj morale kaj mense. Mi estas juna kaj sana, ankoraŭ multajn aferojn mi ne provis fari, kiujn mi eble estos kapabla fari, kaj se mi ne sukcesis trovi laborenspezon en unu profesio, ĉu pro tio mi devas turni min al publika filantropio? Neniam! — ŝi ekkriis en siaj pensoj, kaj, malferminte denove sian monujon, ŝi kalkulis la moneretojn, kiuj restis en ĝi post la faritaj aĉetoj. Tie troviĝis ankoraŭ ĉirkaŭ kvindek spesdekoj.
 
 —Tio sufiĉos ankoraŭ dum semajno por lakto kaj bulkoj por mi kaj por Janjo, — ŝi pensis, — dume tiuj bonaj homoj certe trovos por mi laboron …
 
@@ -1582,9 +1271,6 @@ La konatoj de Marta, kiuj loĝis ĉe la strato Swieto-Jerska, estis efektive hom
 Al tiuj bonkoraj penoj multe helpis la feliĉa situacio, en kiu la edzo de Mario Rudzinska troviĝis rilate unu el la Varsoviaj ilustritaj revuoj, plej riĉaj kaj povantaj doni laboron al plej multe da homoj. En tiu revuo li estis kunlaboranto malnova, merita kaj alte estimata. Lia voĉo havis grandan valoron ĉe la eldonisto kaj ankaŭ en la redakciaj kunsidoj, lia klopodado por iu, lia peto por iu ne povis esti malŝatata. Krom tio Adamo Rudzinski estis verkisto, kiu preskaŭ ekskluzive dediĉis sin al esplorado de demandoj sociaj kaj inter ili ankaŭ al la socia situacio de malriĉaj virinoj. Martan li vidis kelkfoje en sia domo, kiam ŝi donadis lecionojn al lia filino, kaj la interes-anta eksteraĵo de la juna virino, ŝia funebra vesto, la digno-plena teniĝo kaj ŝia nobla ago, pri kiu kun granda entuziasmo Mario al li rakontis, pligrandigis la fervorecon de lia penado.
 
 La rezultato de tiu penado estis sukcesa kaj rapida.
-
-
-MARTA
 
 
 Unu paro de manoj plie ne montriĝis superflua por revuo, kiu bezonis vastan kunlaboradon, kaj la afero dependis jam nur de la grado de kapableco de la nova laborantino, kio devis decidi pri la akcepto aŭ malakcepto de ŝia peto.
@@ -1599,9 +1285,7 @@ Marta tuta ruĝiĝis; ŝi komprenis la riproĉon, kiun entenis la vortoj de la m
 
 —La trompiĝo, kaŝita al mi persone, havus tre malgrandan signifon, — interrompis Zminska, — sed se aliaj personoj trompiĝas per mia vorto, mia oficejo tre multe suferas de tio …
 
-—Mi erarigis vin, sinjorino, — plue diris Marta, — ĉar mi eraris pri mi mem. Fraŭlino Rudzinska estis por mi lernantino tro multe jam progresinta en la lernado. Mi tamen pensas, ke, 85
-
-MARTA
+—Mi erarigis vin, sinjorino, — plue diris Marta, — ĉar mi eraris pri mi mem. Fraŭlino Rudzinska estis por mi lernantino tro multe jam progresinta en la lernado. Mi tamen pensas, ke,
 
 
 se la afero koncernus instruadon efektive komencan, mi estus eble kapabla plenumi la taskon. Kun ĉi tiu penso mi venis ankoraŭ unu fojon al vi. ĉu mi ne povas ricevi lecionojn de instruado komenca?
@@ -1618,9 +1302,7 @@ Dudek spesdekoj, maksimume tridek spesdekoj por horo …
 
 Kiam la mastrino de la oficejo parolis tiujn vortojn, Marta atente ŝin rigardis. ŝiaj okuloj malgajaj, enpensaj, sed trankvilaj, eble serĉis sur la vizaĝo de la nejuna virino tiun brile-ton de kortuŝiteco kaj bondezireco, kiu aperis sur ĝi tiam, kiam ŝi tie estis la unuan fojon; sed Zminska ĉi tiun fojon estis neŝancelebla, malvarma kaj oficiala. Marta rememoris la vortojn, kiujn ŝi antaŭ du monatoj aŭdis el la buŝo de la mastrino:
 
-”Virino nur tiam povas trabati al si vojon de laboro, akiri sendependan vivon kaj respektatan situacion, se ŝi posedas ian neordinaran talenton aŭ perfektan povoscion de io.” Marta posedis nenian el tiuj kondiĉoj; la mastrino de la informa oficejo, jam unu fojon trompiĝinte pri ŝi, ekkoninte la malgrandan valoron de ŝiaj kapabloj, rigardis ŝin videble kiel klientinon pli trudiĝeman kaj kompromitantan, ol promesantan 86
-
-MARTA
+”Virino nur tiam povas trabati al si vojon de laboro, akiri sendependan vivon kaj respektatan situacion, se ŝi posedas ian neordinaran talenton aŭ perfektan povoscion de io.” Marta posedis nenian el tiuj kondiĉoj; la mastrino de la informa oficejo, jam unu fojon trompiĝinte pri ŝi, ekkoninte la malgrandan valoron de ŝiaj kapabloj, rigardis ŝin videble kiel klientinon pli trudiĝeman kaj kompromitantan, ol promesantan
 
 
 al ŝia institucio ian profiton. Sed tie, kie ĉiutage aperadis multe da personoj, troviĝantaj en tia sama situacio, kiel ŝi, kun tia sama peto sur la lipoj, kun tia sama nesufiĉa provizo en la kapo, — pri serioza kunsento de la flanko de la persono, kiu ŝin akceptis, ne povis esti eĉ parolo.
@@ -1634,35 +1316,20 @@ Mario Rudzinska renkontis la venintinon kun vizaĝo gaja, premis tre kore ŝiajn
 —La revuo, en kiu mia edzo estas kunlaboranto kaj parte ankaŭ kunredaktoro, ĝuste bezonis personon, kiu scias desegni. Jen estas skizo, desegnita de fama desegnisto, oni komisiis al vi kopii ĝin. Koncerne la pagon, ĝi dependos jam tute de la grado de boneco de via laboro; la laboro, kiun vi nun faros, estas provo, kiu decidos pri pluaj mendoj.
 
 
-MARTA
-
-
-Pala radio de decembra suno, trabatante al si la vojon tra multego da kornicoj kaj muraj anguloj, origis la malgrandan fenestreton de la mansardo kaj glitis sur la nigra supraĵo de la tablo, ĉe kiu sidis Marta kun okuloj fiksitaj sur desegnaĵo, kiu kuŝis antaŭ ŝi. La desegnaĵo prezentis nur kelke da bran-
-
-ĉolarĝaj arboj, kelke da densaj arbetaĵoj, en ilia ombro oni vidis belan figuron virinan kaj kelke da ridetantaj infanaj ka-petoj, elkliniĝantaj el la branĉaj plektaĵoj. Malproksime, per neklaraj sed ĉarmaj konturoj, vidiĝis kampara dometo kun verando kovrita de hedero, kaj el post la dometo iris vojo, kies fleksita kaj nebulita strio disfluis kaj malaperis en la malproksimo. Tio estis verko simpla, prezentanta unu el la scenoj de la ĉiutaga vivo, sed, farita de lerta kaj inspirita mano de talenta desegnisto, ĝi prezentis belan, kvankam malgrandan ar-taĵon. Komencante de la kampara dometo, kiu per siaj kvar simplaj fenestroj ĉarme ridetis al la rigardanto, kaj de la gracia virina figuro, kiu en ĝua senĝena teniĝo sidis en la ombro de arbo, kaj finante per la petolemaj infanaj vizaĝetoj, kiuj rigardis tra la plektaĵoj de la rozarbetaj branĉetoj, kaj per la fleksita strio de la vojo, disfluanta en la nebulo kaj malproksimo, — ĉio portis sur si la stampon de lerte kaptita kaj bone esprimita karakteraĵo, ravis la okulon, instigis la imagon, in-klinigis la penson al komparado kaj divenado. Perfekta korek-teco kaj mirinda facileco de desegno estis tie kunigita kun poezieco de la ideo, reliefigante kaj altigante ĝian valoron.
+Pala radio de decembra suno, trabatante al si la vojon tra multego da kornicoj kaj muraj anguloj, origis la malgrandan fenestreton de la mansardo kaj glitis sur la nigra supraĵo de la tablo, ĉe kiu sidis Marta kun okuloj fiksitaj sur desegnaĵo, kiu kuŝis antaŭ ŝi. La desegnaĵo prezentis nur kelke da branĉolarĝaj arboj, kelke da densaj arbetaĵoj, en ilia ombro oni vidis belan figuron virinan kaj kelke da ridetantaj infanaj ka-petoj, elkliniĝantaj el la branĉaj plektaĵoj. Malproksime, per neklaraj sed ĉarmaj konturoj, vidiĝis kampara dometo kun verando kovrita de hedero, kaj el post la dometo iris vojo, kies fleksita kaj nebulita strio disfluis kaj malaperis en la malproksimo. Tio estis verko simpla, prezentanta unu el la scenoj de la ĉiutaga vivo, sed, farita de lerta kaj inspirita mano de talenta desegnisto, ĝi prezentis belan, kvankam malgrandan ar-taĵon. Komencante de la kampara dometo, kiu per siaj kvar simplaj fenestroj ĉarme ridetis al la rigardanto, kaj de la gracia virina figuro, kiu en ĝua senĝena teniĝo sidis en la ombro de arbo, kaj finante per la petolemaj infanaj vizaĝetoj, kiuj rigardis tra la plektaĵoj de la rozarbetaj branĉetoj, kaj per la fleksita strio de la vojo, disfluanta en la nebulo kaj malproksimo, — ĉio portis sur si la stampon de lerte kaptita kaj bone esprimita karakteraĵo, ravis la okulon, instigis la imagon, in-klinigis la penson al komparado kaj divenado. Perfekta korek-teco kaj mirinda facileco de desegno estis tie kunigita kun poezieco de la ideo, reliefigante kaj altigante ĝian valoron.
 
 Inspiro kaj konado de tekniko ambaŭ helpis la artiston en la momento, kiam per mano facila kaj samtempe konscianta sian fortecon li ĵetis sur la paperon tiun faskon da linioj, el kiu aperis la tutaĵo, plena de profunda sento, simpla ĉarmo kaj kvieta harmonio.
-
-
-MARTA
 
 
 Tamen la teknika valoro de la desegnaĵo ne tuj altiris al si la atenton de Marta; per la forto de rememoroj kaj per la tra-gedieco de la kontrasto kaptis ŝin antaŭ ĉio la ideo de la verko. El la kampara dometo, el la ombraj arboj kaj branĉoplenaj arbetaĵoj, el la vizaĝo de la juna patrino, kontrolanta per sia rigardo la petolemajn movojn de du malgrandaj infanaj figuroj malantaŭ la densaĵo, elsaltis al la juna virino rememoroj, verŝantaj en ŝian bruston ondon da sento dolora kaj samtempe plezurega. ŝi ankaŭ iam estis en tia paca, flora, ombra kampejo, paŝadis per malpeza piedo sur lanuga herbokovro, deŝiradis rozojn de kliniĝantaj al ŝi arbetaĵaj branĉoj kaj kun malgrandaj manoj, plenaj de bonodoraj floroj, kuradis al tia sama verando, ombrita per tia sama hedero, kiel ĉi tie, eten-danta inter kvar fenestroj, varmigitaj de la ardanta suno, ver-dan tendon, ĉiam pretan akcepti sub sian malvarmetan kaj freŝigan ŝirmon la amatan infanon de la domo!
 
 Ankaŭ ŝiajn rapidajn paŝojn akompanadis iam zorgoplena rigardo de patrino, ankaŭ al ŝi zorgoplena voĉo de patrino kriadis, ke ŝi ne kuru malproksimen de la domo, sur tiun vojon, kiu, plena de ŝtonoj kaj kavoj, baroj kaj danĝeroj, fleksi-te kuŝis kaj malaperis inter misteraj altaĵoj kaj nepenetreblaj spacoj. Vana vokado! vana tremado de la patrina koro!
 
-Venis la tempo, kiam la infano de la kampara domo eliris sur tiun vojon, kiu el malantaŭ la muroj de tiu domo kuris per fleksita ŝtonoplena strio, kaj ĝi iris en la mondon, inter la misterajn altaĵojn kaj nekonatajn spacojn, inter la barojn kaj danĝerojn, kaj fine alvenis ĉi tien, kie en la plej supra pinto de alta urba konstruaĵo staris kvar muroj malvastaj, nudaj, malvarmaj, aermankaj, solecaj … i estis kontrasto inter la pasinteco kaj la nuneco. Marta deturnis la okulojn de la de-89
-
-MARTA
-
-
-segnaĵo, rigardis ĉirkaŭen en la ĉambreto, haltigis la rigardon sur la pala infano, kiu, envolvita pro malvarmo en la lanan tukon de la patrino, tamen tremis kaj, simile al elturmentita birdo, alpremis la kapon al ŝiaj genuoj … En la orelo de la virino sonis konata, bone memorata kantado de malgranda birdeto, kvazaŭ de tiu sama birdeto, kiu sur la desegnaĵo tu-
+Venis la tempo, kiam la infano de la kampara domo eliris sur tiun vojon, kiu el malantaŭ la muroj de tiu domo kuris per fleksita ŝtonoplena strio, kaj ĝi iris en la mondon, inter la misterajn altaĵojn kaj nekonatajn spacojn, inter la barojn kaj danĝerojn, kaj fine alvenis ĉi tien, kie en la plej supra pinto de alta urba konstruaĵo staris kvar muroj malvastaj, nudaj, malvarmaj, aermankaj, solecaj … i estis kontrasto inter la pasinteco kaj la nuneco. Marta deturnis la okulojn de la desegnaĵo, rigardis ĉirkaŭen en la ĉambreto, haltigis la rigardon sur la pala infano, kiu, envolvita pro malvarmo en la lanan tukon de la patrino, tamen tremis kaj, simile al elturmentita birdo, alpremis la kapon al ŝiaj genuoj … En la orelo de la virino sonis konata, bone memorata kantado de malgranda birdeto, kvazaŭ de tiu sama birdeto, kiu sur la desegnaĵo tu-
 
 ŝetis per la etenditaj flugiloj la pinton de roza arbetaĵo, kaj kun tiu e˛o de longepasintaĵa rememoro ligiĝis la malfacila, tremanta de malvarmo spirado de ŝia infano … Per la fadeno de rememoroj alnaĝis al ŝi la bela vizaĝo de la patrino, poste la mildaj trajtoj de la patro, poste ŝi ekvidis kvazaŭ pendan-tajn en la aero mallumajn okulojn de junulo, kiuj, fikse rigardante ŝin kun profunda esprimo, parolis al ŝi: mi amas! dum lia buŝo parolis: fariĝu mia edzino! ĉiuj tiuj trajtoj, kiuj estis por ŝi pli karaj ol la vivo kaj nun estis por ĉiam englutitaj de la mallumo de la morto, ĉiuj lokoj, en kiuj disvolviĝis la sennuba idilio de ŝia infaneco kaj de ŝia unua juneco, ĉiuj estingi-taj lumoj, forblovitaj ĉarmoj, venenitaj ĝojoj kaj rompitaj apogiloj ektremis nun per vivo, akceptis la pasintajn formojn kaj kolorojn, kuniĝis en unu bildon kaj ekpendis antaŭ ŝi, kvazaŭ en kadro de terura malbeleco kaj nudeco, enkadrigi-taj en la malplenaj, grizaj, malvarmaj anguloj de la soleca ĉambreto.
 
-Marta jam ne rigardis la desegnaĵon; fiksitaj en la malplena spaco, ŝiaj okuloj kovriĝis per vitreca vualo, kiu tamen ne fandiĝis en formo de larmoj, ŝia brusto spiris rapide kaj malfacile, sed ploron ĝi ne eligis. Turmenta ploro videble ŝiris la internon de ĉi tiu virino, sed ŝi batalis kontraŭ ĝi, batalis kontraŭ sia koro, penante kvietigi ĝian rapidigitan frapadon, kaj kontraŭ sia varmegigita kapo, forpuŝante de ĝi la svarmojn da 90
-
-MARTA
+Marta jam ne rigardis la desegnaĵon; fiksitaj en la malplena spaco, ŝiaj okuloj kovriĝis per vitreca vualo, kiu tamen ne fandiĝis en formo de larmoj, ŝia brusto spiris rapide kaj malfacile, sed ploron ĝi ne eligis. Turmenta ploro videble ŝiris la internon de ĉi tiu virino, sed ŝi batalis kontraŭ ĝi, batalis kontraŭ sia koro, penante kvietigi ĝian rapidigitan frapadon, kaj kontraŭ sia varmegigita kapo, forpuŝante de ĝi la svarmojn da
 
 
 rememoroj kaj ondon da revoj. Estis en ŝi ia kaŝita voĉo, kiu admonis, ke kun ĉiu larmo, kiu elfluos el ŝia okulo, kun ĉiu
@@ -1673,16 +1340,11 @@ Kaj tiujn fortojn, tiun volon, tiun persistecon ŝi tiom, tiom bezonis! La tagme
 
 —Panjo! — ŝi diris per ĝema voĉo, — kiel malvarme estas ĉi tie hodiaŭ! Faru fajron sur la kameno!
 
-Anstataŭ ĉia respondo Marta kliniĝis, prenis la knabineton en siajn brakojn, alpremis forte al sia brusto ŝian malgrandan korpon, al ŝia frunto ŝi alpremis sian buŝon kaj tiele restis senmova en la daŭro de momento … Subite ŝi leviĝis, ĉirkaŭ-
-
-volvis Janjon pli zorge per la lana ŝalo, sidigis ŝin sur la malalta benketo, genuiĝis antaŭ ŝi, ekridetis, kisis ŝin sur la pala buŝeto kaj per voĉo preskaŭ tute libera diris:
+Anstataŭ ĉia respondo Marta kliniĝis, prenis la knabineton en siajn brakojn, alpremis forte al sia brusto ŝian malgrandan korpon, al ŝia frunto ŝi alpremis sian buŝon kaj tiele restis senmova en la daŭro de momento … Subite ŝi leviĝis, ĉirkaŭvolvis Janjon pli zorge per la lana ŝalo, sidigis ŝin sur la malalta benketo, genuiĝis antaŭ ŝi, ekridetis, kisis ŝin sur la pala buŝeto kaj per voĉo preskaŭ tute libera diris:
 
 —Se Janjo trankvile ludos kun sia pupo, mi morgaŭ aŭ postmorgaŭ finos la laboron, mi aĉetos lignon kaj mi faros por Janjo tiel belan, varman fajron. Bone, Janjo? bone, mia amata infano?
 
 ŝi ridetis, dirante tion, kaj penis varmigi en siaj manoj la malvarmajn manojn de la knabineto. Janjo ankaŭ ridetis, ŝia buŝo per du kisoj fermis por momento la ŝin rigardantajn okulojn de la patrino, ŝi prenis sian pupon kaj kelke da malgrandaj lignaj ludiloj kaj ĉesis rigardi en la fummalpuran, malplenan kaj malvarmoblovantan profundon de la kameno.
-
-
-MARTA
 
 
 Plena silento denove regis en la ĉambreto, Marta sidis ĉe la tablo kaj rigardis atente la laboron de la bonega desegnisto.
@@ -1691,20 +1353,11 @@ Nun la rememoroj kaj kordoloroj, venkitaj kaj forpuŝitaj per la ordono de la vo
 
 Certe mi ne estas tia artistino, kiel tiu, kiu desegnis ĉi tiun belegan bildeton, ŝi pensis, sed kopii ies laboron mi espere-ble povos … mi devas povi …
 
-Tiel pensante, ŝi malfermis longforman skatolon, en kiu troviĝis ilaro por desegnado. Mario Rudzinska per la boneco de la koro kaj delikateco de la sentoj divenis la novan embarason, en kiu troviĝos la malriĉa virino, kaj enmanigis al ŝi tiun skatolon kune kun la modelo, de kiu devis esti farata kopio. La krajono de Marta ŝoviĝadis sur la glata papero, ŝi sentis, ke ŝia mano iras facile, ke ŝia penso precize kunfan-92
-
-MARTA
-
-
-diĝas kun la penso de la artisto, ke ŝia okulo sen malfacileco rimarkas la plej komplikitajn fleksojn de la linioj, la plej subtilajn diferencojn kaj alternadon de la lumo kaj ombro. ŝia koro frapadis ĉiam pli forte kaj ĝoje, la spirado fariĝadis ĉiam pli facila, ruĝeto aperis sur la palaj vangoj, la okuloj flamis de sereneco kaj entuziasmo. Laboro, la konsolanto de suferan-toj, la kunulo de soluloj, la vartisto de tiuj, kiujn ĵetas tien kaj reen la ventegoj de la vivo, venis en la malriĉan mansardon kaj alportis kun si trankvilecon. Vane la suna radio, kiu matene karesis la nudajn murojn de la ĉambreto, malaperis nun malantaŭ la altaj tegmentoj de la domoj, vane la granda urbo ruladis malsupre siajn obtuzajn misterajn senĉesajn bruojn, Marta nenion vidis kaj nenion aŭdis.
+Tiel pensante, ŝi malfermis longforman skatolon, en kiu troviĝis ilaro por desegnado. Mario Rudzinska per la boneco de la koro kaj delikateco de la sentoj divenis la novan embarason, en kiu troviĝos la malriĉa virino, kaj enmanigis al ŝi tiun skatolon kune kun la modelo, de kiu devis esti farata kopio. La krajono de Marta ŝoviĝadis sur la glata papero, ŝi sentis, ke ŝia mano iras facile, ke ŝia penso precize kunfandiĝas kun la penso de la artisto, ke ŝia okulo sen malfacileco rimarkas la plej komplikitajn fleksojn de la linioj, la plej subtilajn diferencojn kaj alternadon de la lumo kaj ombro. ŝia koro frapadis ĉiam pli forte kaj ĝoje, la spirado fariĝadis ĉiam pli facila, ruĝeto aperis sur la palaj vangoj, la okuloj flamis de sereneco kaj entuziasmo. Laboro, la konsolanto de suferan-toj, la kunulo de soluloj, la vartisto de tiuj, kiujn ĵetas tien kaj reen la ventegoj de la vivo, venis en la malriĉan mansardon kaj alportis kun si trankvilecon. Vane la suna radio, kiu matene karesis la nudajn murojn de la ĉambreto, malaperis nun malantaŭ la altaj tegmentoj de la domoj, vane la granda urbo ruladis malsupre siajn obtuzajn misterajn senĉesajn bruojn, Marta nenion vidis kaj nenion aŭdis.
 
 De tempo al tempo ŝi levadis la okulojn for de la laboro, por iom rigardi la infanon, kiu silente ludis en angulo de la ĉambreto, ŝi diradis al ĝi kelke da vortoj kaj denove profundiĝadis en sian okupon. Iufoje ŝiaj brovoj kunŝoviĝadis, la esprimo de profunda pripenso aperadis sur la frunto. La malfacilaĵoj kaj problemoj de la arto aperadis tiam antaŭ ŝi, pre-zentante obstinan kaj nevenkeblan taskon. Sed ŝi batalis kontraŭ ili, kaj ŝajnis al ŝi, ke ŝi ilin feliĉe solvas. Kiam ŝi levadis la kapon kaj rigardadis sian laboron, ŝi havis sur la buŝo rideton, kiu tamen malaperadis, kiam ŝi komencis komparadi
 
-ĝin kun la laboro de la majstro. En ŝia kapo videble naski-
-
-ĝadis duboj kaj timoj, sed ŝi forpuŝadis ilin de si kiel ion tro altrudiĝeman, tro pezan por ŝiaj fortoj, tro turmentan por ŝia koro. ŝi laboris kun granda streĉo de sia cerbo kaj de sia volo, kun entuziasmiga fervoro de imago, kiun kun plena amo fordoniĝis al la objekto de sia laborado, ŝi laboris per sia tuta kapo, per sia tuta animo kaj per siaj tutaj fortoj, kaj ŝi ĉesis 93
-
-MARTA
+ĝin kun la laboro de la majstro. En ŝia kapo videble naskiĝadis duboj kaj timoj, sed ŝi forpuŝadis ilin de si kiel ion tro altrudiĝeman, tro pezan por ŝiaj fortoj, tro turmentan por ŝia koro. ŝi laboris kun granda streĉo de sia cerbo kaj de sia volo, kun entuziasmiga fervoro de imago, kiun kun plena amo fordoniĝis al la objekto de sia laborado, ŝi laboris per sia tuta kapo, per sia tuta animo kaj per siaj tutaj fortoj, kaj ŝi ĉesis
 
 
 labori nur tiam, kiam en la ĉambreto komencis kolektiĝi la unuaj ombroj de la vespera krepusko. Tiam ŝi alvokis al si Janjon, sidigis ŝin sur siaj genuoj kaj, rigardante la vizaĝeton de la infano, denove ridetis al ŝi. Sed nun ŝia rideto estis alia, ol matene, ne perforte eldevigita el ŝia dolorplena koro, ne kontraŭparola al la malgaja esprimo de la okuloj. La rideto nun elnaĝis per si mem kaj sen perforteco el la brusto de la juna patrino, kiun kvietigis laboro, varmigis espero.
@@ -1721,9 +1374,7 @@ Tiuj internaj demandoj de la juna virino ĉi tiun fojon ne ricevis definitivan r
 
 Mia edzo alportos por vi el la morgaŭa kunsido jam certan sciigon.
 
-Marta venis en la difinita tempo. La mastrino de la bela 94
-
-MARTA
+Marta venis en la difinita tempo. La mastrino de la bela
 
 
 salono renkontis ŝin kun la ordinara afableco kaj montris al ŝi brakseĝon, starantan ĉe la tablo, sur kiu kuŝis la antaŭ du tagoj finita laboro de Marta kaj ĉe kiu sidis viro de meza aĝo, kun vizaĝo prudenta, nobla kaj malsevera. Tio estis Adamo Rudzinski; per movo plena de respekto li leviĝis, por saluti Martan, etendis al ŝi la manon, kaj kiam ŝi sidiĝis, li ankaŭ sidiĝis, mallevis la okulojn kaj silentis momenton.
@@ -1734,9 +1385,7 @@ Mario foriĝis en la profundon de la salono, kaj, apoginte sur la mano la videbl
 
 Li eksilentis kaj rigardis Martan per okuloj, en kiuj lumis nobla malkaŝemeco, ligita kun sincera kunsento. Li interrompis por momento sian paroladon eble por tio, ke la juna virino havu tempon, por kolekti siajn fortojn, por pretiĝi al la akcepto de la bato, kiu ŝin atendis. Marta iom paliĝis kaj subite mallevis la okulojn, kiuj ĝis nun kun streĉita atento rigardis la vizaĝon de la viro, kiu parolis kun ŝi. El ŝia buŝo tamen eliris neniu ekkrio kaj el ŝia brusto neniu ĝemo. Adamo Rudzinski laŭ la teniĝo kaj vizaĝesprimo de la juna virino divenis, ke ŝi povis sin reteni kaj povis esti fortanima. Tial post momento li parolis plue:
 
-—En la afero, kiu nun vin interesas, mi mem persone ne estas kompetenta juĝanto kaj mi ripetos ĉi tie nur la vortojn, kiujn oni komisiis al mi ripeti antaŭ vi. Kaj mi tion faros kun 95
-
-MARTA
+—En la afero, kiu nun vin interesas, mi mem persone ne estas kompetenta juĝanto kaj mi ripetos ĉi tie nur la vortojn, kiujn oni komisiis al mi ripeti antaŭ vi. Kaj mi tion faros kun
 
 
 plena nekaŝemeco pro tio, ke mi antaŭsavu vin de novaj trompiĝoj kaj disreviĝoj, kaj ankaŭ pro tio, ke materiale kaj morale nenio por homo estas pli malutila, ol nekonado de siaj propraj posedaĵoj, kun kiuj li venas al la pordego de la socia vivo, kaj ol ofta trompiĝado pri si mem. El la laboraĵo, kiun vi pretigis, montriĝas evidente, ke vi lernis desegni kaj vi havas efektive kapablon, sed … vi lernis tion tro malmulte, tro supraĵe, tro neprecize, kaj kaŭze de tio ankaŭ viaj kapabloj ne estas sufiĉe ekzercitaj, kaj, ne konante sufiĉe la postulojn de la arto, ili ne atingas sufiĉan gradon de disvolviĝo kaj forto.
@@ -1745,9 +1394,7 @@ plena nekaŝemeco pro tio, ke mi antaŭsavu vin de novaj trompiĝoj kaj disrevi�
 
 —Adamo ! — eksonis en tiu momento la voĉo de la loĝej-mastrino.
 
-Mario Rudzinska leviĝis kaj, alproksimiĝante al la tablo, ĉe kiu havis lokon la interparolado, rigardis la edzon kun esprimo de peto en la okuloj kaj la lin aŭskultantan virinon kun 96
-
-MARTA
+Mario Rudzinska leviĝis kaj, alproksimiĝante al la tablo, ĉe kiu havis lokon la interparolado, rigardis la edzon kun esprimo de peto en la okuloj kaj la lin aŭskultantan virinon kun
 
 
 kompato kaj maltrankvileco. Marta komprenis la timon de la bona virino. ŝi levis la kapon kaj diris per firma voĉo:
@@ -1758,9 +1405,7 @@ kompato kaj maltrankvileco. Marta komprenis la timon de la bona virino. ŝi levi
 
 Mario sidiĝis ĉe la tablo, Marta direktis la rigardon al Adamo Rudzinski, kiu parolis plue:
 
-—La arto posedas diversajn gradojn, ĝian konadon la homoj akiras por diversaj celoj. Eĉ sufiĉe malalta grado de artista klereco sufiĉas, por liveri al la ĝin posedanta homo certan sumon da agrablaĵoj, per kiu li beligas kaj diversformigas la momentojn de la vivo al si kaj al la ĉirkaŭantoj. Tiu supraĵa konado de la arto, posedado de nur malgranda parto da scioj pri ĝi kaj pri la rimedoj, kiuj servas al ĝia enkorpigo, estas nomata artista diletanteco, ĝi posedas kelkan valoran signifon en salonoj, aŭ almenaŭ en salonetoj, konvenas al stato de riĉeco, aŭ almenaŭ de bonhaveco, spicante ĝin per certa dozo da ĉarmo, poezio, festeco de impresoj kaj okupoj. Sed ĉi tiu diletanteco, kvankam ĝi ne estas tute sen flankoj noblaj kaj utilaj, kvankam ĝi okupas sufiĉe larĝan lokon en la spirita ekonomio de la homaro, ne povas esti io alia krom aldono, ornamo de la vivo, ĉarma radio, ĵetita sur la esencon de la ekzistado, por ĝin belkolorigi kaj diversecigi. Konstrui sur ĝi sian ekzistadon fizikan, volvi ĉirkaŭ ĝi ŝpinaĵon de spirito tiel longan, kiel longa estas la homa vivo, estas nefareble kaj ne-farinde. Nefareble, ĉar el kaŭzo nekompleta ne povas naskiĝi sekvaĵo kompleta; ne farinde, ĉar tio, kio faras al la mondo 97
-
-MARTA
+—La arto posedas diversajn gradojn, ĝian konadon la homoj akiras por diversaj celoj. Eĉ sufiĉe malalta grado de artista klereco sufiĉas, por liveri al la ĝin posedanta homo certan sumon da agrablaĵoj, per kiu li beligas kaj diversformigas la momentojn de la vivo al si kaj al la ĉirkaŭantoj. Tiu supraĵa konado de la arto, posedado de nur malgranda parto da scioj pri ĝi kaj pri la rimedoj, kiuj servas al ĝia enkorpigo, estas nomata artista diletanteco, ĝi posedas kelkan valoran signifon en salonoj, aŭ almenaŭ en salonetoj, konvenas al stato de riĉeco, aŭ almenaŭ de bonhaveco, spicante ĝin per certa dozo da ĉarmo, poezio, festeco de impresoj kaj okupoj. Sed ĉi tiu diletanteco, kvankam ĝi ne estas tute sen flankoj noblaj kaj utilaj, kvankam ĝi okupas sufiĉe larĝan lokon en la spirita ekonomio de la homaro, ne povas esti io alia krom aldono, ornamo de la vivo, ĉarma radio, ĵetita sur la esencon de la ekzistado, por ĝin belkolorigi kaj diversecigi. Konstrui sur ĝi sian ekzistadon fizikan, volvi ĉirkaŭ ĝi ŝpinaĵon de spirito tiel longan, kiel longa estas la homa vivo, estas nefareble kaj ne-farinde. Nefareble, ĉar el kaŭzo nekompleta ne povas naskiĝi sekvaĵo kompleta; ne farinde, ĉar tio, kio faras al la mondo
 
 
 servon malgrandan kaj tre partetan, ne havas la rajton postuli de la mondo servon reciprokan tiel gravan kaj kompletan, kia estas ekzistado fizika kaj trankvileco morala. Nur super la artista diletanteco, en alteco, pri kiu tiu ĉi lasta ofte ne havas eĉ la plej malgrandan komprenon, ekzistas artismo, forto potenca, kompleta, konsistanta el natura talento disvolvita ĝis la plej lastaj limoj, regule perfektigita, kaj el fundamenta, vasta scienco. Diletanteco estas amuzilo de la vivo, — nur artismo povas esti por ĝi ŝtona starejo. i povas esti por la vivo starejo, kiu subtenas samtempe la ekzistadon fizikan kaj moralan. Sed en la regiono de la arto, tiel same kiel en la regiono de scienco aŭ metio, plej multe ricevas tiu, kiu en siajn verkojn, proponatajn al la socio, enmetas la plej grandan kapitalon da tempo, laboro, povosciado kaj ekzerciteco. ĉi tie, same kiel aliloke, ekzistas konkurado, postulado kaj proponado staras kontraŭ si, reciproke sin rigardas kaj pesas; ĉi tie, kiel aliloke, la grado de bonstato de la laboristo estas rekte proporcia al la grado de perfekteco de la laboraĵo. En la regiono de la arto, same kiel en ĉiu alia regiono, kiu prezentas kampon por homa laborado, la homo povas akiri sufiĉe bonajn, iufoje eĉ bonegajn kondiĉojn por sia ekzistado, sed li povas ilin akiri nur tiam, se li posedas talenton ne sole natu-ran, sed ankaŭ klerigitan, se li estas ne sole diletanto, sed artisto.
@@ -1769,20 +1414,11 @@ Eldirinte ĉion ĉi tion, Adamo Rudzinski leviĝis kaj, respek-te salutante Mart
 
 —Pardonu, sinjorino, ke mi parolis tiel longe. Mi tamen ne povis limigi per kelke da vortoj mian interparoladon kun vi.
 
-Mi timis, ke vi eble supozos, ke tiuj, kiuj per mia buŝo forpuŝas vian laboron, gvidas sin per kaprico aŭ per ia antaŭ-
-
-
-MARTA
-
-
-juĝo, kiu en ĉi tiu okazo estus preskaŭ krimo. Via desegno ne respondas al la bezonoj de la revuo, por kiu ĝi devis servi. i ne estas sufiĉe korekta, nek sufiĉe preciza, ne redonas sufiĉe la ideon kaj la karakteron de la originalo. Ekzemple la vizaĝo de la juna patrino estas desegnita de vi kun videbla sentemeco kaj amo, kaj tamen ĝiaj trajtoj aperas nebulaj en komparo kun la esprimopleneco, kiun donis al ĝi la lerta kaj sperta desegnisto. Kion multe, kaŭze de tiu nebuleco, perdis la esprimo de tiuj okuloj, kiuj atente observas la movojn de la es-taĵoj, kiuj estas tiel karaj por ili! aŭ la karaktero de tiu kapo, kiu estas iom klinita antaŭen, kvazaŭ prete ekkrii averte aŭ dorlote! ĉi tiu arbo, kiu sur la originalo tiel lukse disvolvas sian densan branĉaron, aspektas ĉi tie mizere kaj malsane; la vojo, kiu elkuras el malantaŭ la domo, kaj kiun la artisto intence kovretis per mistera nebulo, sur via desegno estas preskaŭ tute kovrita per tro krudaj strekoj de krajono kaj fariĝas por la okulo de la rigardanto preskaŭ enigma, nekomprenebla, nigra strio. Vi komprenis la ideon de la artisto, trapenetris kaj ekamis ĝin; tio estas videbla, sed ne malpli videble estas, ke ĉe ĉiu detalo, ĉe ĉiu tiro de la krajono vi batalis kontraŭ la tekniko de la arto kaj ne venkis la malfacilaĵojn, kiujn ĝi prezentis al vi; vi ne trapenetris ĝiajn problemojn, ĉar vi ne posedis en via mano sufiĉajn rimedojn de sciado, de sperto
+Mi timis, ke vi eble supozos, ke tiuj, kiuj per mia buŝo forpuŝas vian laboron, gvidas sin per kaprico aŭ per ia antaŭjuĝo, kiu en ĉi tiu okazo estus preskaŭ krimo. Via desegno ne respondas al la bezonoj de la revuo, por kiu ĝi devis servi. i ne estas sufiĉe korekta, nek sufiĉe preciza, ne redonas sufiĉe la ideon kaj la karakteron de la originalo. Ekzemple la vizaĝo de la juna patrino estas desegnita de vi kun videbla sentemeco kaj amo, kaj tamen ĝiaj trajtoj aperas nebulaj en komparo kun la esprimopleneco, kiun donis al ĝi la lerta kaj sperta desegnisto. Kion multe, kaŭze de tiu nebuleco, perdis la esprimo de tiuj okuloj, kiuj atente observas la movojn de la es-taĵoj, kiuj estas tiel karaj por ili! aŭ la karaktero de tiu kapo, kiu estas iom klinita antaŭen, kvazaŭ prete ekkrii averte aŭ dorlote! ĉi tiu arbo, kiu sur la originalo tiel lukse disvolvas sian densan branĉaron, aspektas ĉi tie mizere kaj malsane; la vojo, kiu elkuras el malantaŭ la domo, kaj kiun la artisto intence kovretis per mistera nebulo, sur via desegno estas preskaŭ tute kovrita per tro krudaj strekoj de krajono kaj fariĝas por la okulo de la rigardanto preskaŭ enigma, nekomprenebla, nigra strio. Vi komprenis la ideon de la artisto, trapenetris kaj ekamis ĝin; tio estas videbla, sed ne malpli videble estas, ke ĉe ĉiu detalo, ĉe ĉiu tiro de la krajono vi batalis kontraŭ la tekniko de la arto kaj ne venkis la malfacilaĵojn, kiujn ĝi prezentis al vi; vi ne trapenetris ĝiajn problemojn, ĉar vi ne posedis en via mano sufiĉajn rimedojn de sciado, de sperto
 
 … Jen estas la tuta vero, kiun mi eldiras kun duobla malĝojo.
 
 Kiel via konato, mi bedaŭras, ke vi ne ricevis la laboron, kiun vi bezonas; kiel homo, mi malĝojas, ke vi ne edukis sufiĉe vian talenton. Vi posedas nedubeblan talenton; estas domaĝe, ke vi ne lernis pli multe, pli fundamente, pli vaste, ke nun lerni vi, kiel ŝajnas, ne havas jam la eblon …
-
-
-MARTA
 
 
 Marta leviĝis, malrapide disliberigis la interplektitajn manojn kaj diris mallaŭte:
@@ -1799,9 +1435,7 @@ Videble la tempo de laŭtaj ĝemoj kaj ploro, ne hontantaj la okulojn de homoj, 
 
 ŝi posedis ankoraŭ sufiĉe da fortoj, por reteni per fiereco kaj volo la eksplodojn de siaj propraj sentoj, ŝi ne posedis sufiĉe da konado de si mem, por ĉesi esperi.
 
-Adamo Rudzinski respektis la silentan suferon de la malriĉa virino; estante por ŝi tute fremda, apenaŭ kelke da fojoj 100
-
-MARTA
+Adamo Rudzinski respektis la silentan suferon de la malriĉa virino; estante por ŝi tute fremda, apenaŭ kelke da fojoj
 
 
 vidita de ŝi, li sentis, ke en ĉi tiu momento li devas foriĝi. Dirinte adiaŭ al Marta per saluto plena de respekto, li eliris el la salono, sed lia edzino tiam kaptis la manojn de Marta kaj, premante ilin en siaj manoj, diris rapide:
@@ -1820,20 +1454,13 @@ Marta subite levis la okulojn al la parolantino.
 
 ŝi tuŝis per la manplato siajn okulojn kaj, rapide venkan-te sian kortuŝitecon, turnis sin al Marta.
 
-—Ni parolu pri vi, — ŝi diris. — Kvankam jam de du vojoj, kiujn vi provis iri, vin forpuŝis la manko de iloj por sin trabati, tamen ne perdu la esperon kaj kuraĝon. La profesioj instru-101
-
-MARTA
-
-
-ista kaj artista montriĝis ne konformaj por vi, sed laboro mensa kaj artista ne prezentas ja la tutan amplekson de la aktiveco de homo, eĉ de virino. Restas ankoraŭ industrio, komerco, metio. Dum vi parolis kun mia edzo, venis al mi en la kapon feliĉa penso … Mi konas pli proksime la posedantinon de unu el la plej riĉaj magazenoj de silkaj ŝtofoj … mi eĉ estis dum kelke da jaroj kune kun ŝi en edukejo, kaj de tiu tempo restis inter ni rilatoj se ne de amikeco, tamen almenaŭ de bona konateco. La granda, moda kaj riĉa magazeno bezonas la servon de vera armeo da komizoj, oficistoj k. t. p. Eĉ plue, ne pli ol antaŭ unu semajno Evelino D., renkontiĝinte kun mi en la teatro, diris al mi, ke ŝi perdis nun unu el la plej utilaj komizoj de sia magazeno kaj troviĝas pro tio en kelka embaraso. ĉu vi konsentus stari en magazeno malantaŭ la magazena tablo, akceptadi la gastojn de la magazeno, mezu-radi ŝtofon, aranĝadi ekspozicion en la fenestroj k. t. p.? Tiaj oficoj estas tre bone pagataj, kaj por plenumi la agojn, kiujn ili postulas, oni bezonas preskaŭ nenion pli krom honesteco, konvena eksteraĵo kaj bona gusto. ĉu vi veturos kun mi al Evelino D.? Mi vin prezentos al ŝi, en okazo de bezono mi petos, admoninklinigos …
+—Ni parolu pri vi, — ŝi diris. — Kvankam jam de du vojoj, kiujn vi provis iri, vin forpuŝis la manko de iloj por sin trabati, tamen ne perdu la esperon kaj kuraĝon. La profesioj instruista kaj artista montriĝis ne konformaj por vi, sed laboro mensa kaj artista ne prezentas ja la tutan amplekson de la aktiveco de homo, eĉ de virino. Restas ankoraŭ industrio, komerco, metio. Dum vi parolis kun mia edzo, venis al mi en la kapon feliĉa penso … Mi konas pli proksime la posedantinon de unu el la plej riĉaj magazenoj de silkaj ŝtofoj … mi eĉ estis dum kelke da jaroj kune kun ŝi en edukejo, kaj de tiu tempo restis inter ni rilatoj se ne de amikeco, tamen almenaŭ de bona konateco. La granda, moda kaj riĉa magazeno bezonas la servon de vera armeo da komizoj, oficistoj k. t. p. Eĉ plue, ne pli ol antaŭ unu semajno Evelino D., renkontiĝinte kun mi en la teatro, diris al mi, ke ŝi perdis nun unu el la plej utilaj komizoj de sia magazeno kaj troviĝas pro tio en kelka embaraso. ĉu vi konsentus stari en magazeno malantaŭ la magazena tablo, akceptadi la gastojn de la magazeno, mezu-radi ŝtofon, aranĝadi ekspozicion en la fenestroj k. t. p.? Tiaj oficoj estas tre bone pagataj, kaj por plenumi la agojn, kiujn ili postulas, oni bezonas preskaŭ nenion pli krom honesteco, konvena eksteraĵo kaj bona gusto. ĉu vi veturos kun mi al Evelino D.? Mi vin prezentos al ŝi, en okazo de bezono mi petos, admoninklinigos …
 
 Kvaronon da horo post tiuj vortoj de Mario Rudzinska, droŝko, en kiu sidis du virinoj, haltis antaŭ unu el la plej luksaj magazenoj de la strato Senatorska. Antaŭ la pordo, kiu havis larĝajn spegulajn vitrojn, staris du kaleŝoj, kun aljung-itaj tre belaj ĉevaloj, kun livree vestitaj kaleŝservantoj sur la konduksido.
 
 La du virinoj eliĝis el la droŝko kaj eniris en la magazenon.
 
-Kiam eksonis la sonorilo, pendanta super la pordo, el malantaŭ la longa tablo, kiu dividis la magazenon en du partojn, 102
-
-MARTA
+Kiam eksonis la sonorilo, pendanta super la pordo, el malantaŭ la longa tablo, kiu dividis la magazenon en du partojn,
 
 
 elkuris juna viro kaj kun tre gracia saluto demandis la virinojn, kion ili deziras.
@@ -1856,16 +1483,9 @@ li diris plue, etendante la manon en la direkto al la ŝtuparo, kovrita de tapi�
 
 Ni povus iri supren kaj atendi la revenon de sinjorino Evelino en ŝia loĝejo, — diris mallaŭte Mario al sia akompananti-no, — sed ŝajnas al mi, ke estos bone, se antaŭ la parolado kun la posedantino de la magazeno vi observos la ordinaran okupon de la personoj, kiuj vendas komercaĵojn, kaj vi vidos, el kio ĝi konsistas.
 
-La vidaĵo, kiu prezentiĝis al la okuloj de la du virinoj en la profundo de la magazeno, estis plena de vivo. i konsistis el ok homaj estaĵoj, kiuj parolis laŭte kaj kun eksterordinara fervoro, kaj el amasoj da ŝtofoj disvolvataj kaj kunvolvataj kun senĉesa susurado de la silko, brilantaj kaj ŝanĝlumantaj per ĉiuj koloroj de la mondo. ĉe unu flanka de la longa tab-103
+La vidaĵo, kiu prezentiĝis al la okuloj de la du virinoj en la profundo de la magazeno, estis plena de vivo. i konsistis el ok homaj estaĵoj, kiuj parolis laŭte kaj kun eksterordinara fervoro, kaj el amasoj da ŝtofoj disvolvataj kaj kunvolvataj kun senĉesa susurado de la silko, brilantaj kaj ŝanĝlumantaj per ĉiuj koloroj de la mondo. ĉe unu flanka de la longa tablo, kiu tute estis kovrita de pecoj da multekostaj ŝtofoj, alta-mase kuŝantaj unuj sur aliaj aŭ disvolvitaj kaj ondiĝantaj, staris kvar virinoj, vestitaj per atlaso kaj zibelo, certe la posedantinoj de la du kaleŝoj atendantaj antaŭ la pordo de la magazeno. ĉe la dua flanko de la tablo estis kvar junaj viroj … jes: estis, ĉar por difini la pozicion, en kiu ili estis, ne estas eble uzi alian esprimon krom tiu, kiu difinas samtempe ĉiajn poziciojn de homa korpo: staradon, iradon, saltadon, kliniĝadon al ĉiuj flankoj, grimpadon sur ĉiujn murojn, disdonadon de salutoj de ĉiuj signifoj kaj mezuroj, plenumadon de plej diversaj gestoj per plej diversaj movoj de la manoj, brovoj, eĉ de de la brusto, de la kapo, de la buŝo, de la haroj. ĉi tiuj lastaj, kvankam en ordinaraj ĉirkonstancoj ili ludas sufiĉe mal-gravan rolon en la organismo kaj en la eksteraĵo de homo, ĉi tie meritis apartan atenton.
 
-MARTA
-
-
-lo, kiu tute estis kovrita de pecoj da multekostaj ŝtofoj, alta-mase kuŝantaj unuj sur aliaj aŭ disvolvitaj kaj ondiĝantaj, staris kvar virinoj, vestitaj per atlaso kaj zibelo, certe la posedantinoj de la du kaleŝoj atendantaj antaŭ la pordo de la magazeno. ĉe la dua flanko de la tablo estis kvar junaj viroj … jes: estis, ĉar por difini la pozicion, en kiu ili estis, ne estas eble uzi alian esprimon krom tiu, kiu difinas samtempe ĉiajn poziciojn de homa korpo: staradon, iradon, saltadon, kliniĝadon al ĉiuj flankoj, grimpadon sur ĉiujn murojn, disdonadon de salutoj de ĉiuj signifoj kaj mezuroj, plenumadon de plej diversaj gestoj per plej diversaj movoj de la manoj, brovoj, eĉ de de la brusto, de la kapo, de la buŝo, de la haroj. ĉi tiuj lastaj, kvankam en ordinaraj ĉirkonstancoj ili ludas sufiĉe mal-gravan rolon en la organismo kaj en la eksteraĵo de homo, ĉi tie meritis apartan atenton.
-
-Pomaditaj, parfumitaj, brilantaj, bonodorantaj, torditaj en formo de misteraj ringoj, aŭ falantaj sur la frunton en signif-plena malordo, ili prezentis majstraĵon de la friza arto kaj tuj donis al la figuroj de la junaj komizoj elegantecon de tre alta grado. Povas esti, ke tiuj figuroj de naturo ne estis tre elegantaj, oni povis eĉ vidi, ke la naturo donacis al ili neordinaran forton fizikan, dikecon kaj fortikecon de la muskoloj, tute plene rajtigantan okupiĝi per laboro iom pli malfacila, malpli delikata kaj agrabla, ol disvolvado de silkaj ŝtofoj, traŝovado de araneaĵaj puntoj inter du fingroj kaj svingado de polurita, malpeza, delikata ulno. Iliaj ŝultroj estis larĝaj, la manoj grandaj, la fingroj dikaj, la vizaĝoj eĉ ne tute junulaj, montrantaj per la matureco de la trajtoj kaj la denseco de la barboj la aĝon de pli ol tridek jaroj. Sed kun kia eleganteco plena de la plej delikata gusto estis faritaj la nigraj surtutoj, kiuj 104
-
-MARTA
+Pomaditaj, parfumitaj, brilantaj, bonodorantaj, torditaj en formo de misteraj ringoj, aŭ falantaj sur la frunton en signif-plena malordo, ili prezentis majstraĵon de la friza arto kaj tuj donis al la figuroj de la junaj komizoj elegantecon de tre alta grado. Povas esti, ke tiuj figuroj de naturo ne estis tre elegantaj, oni povis eĉ vidi, ke la naturo donacis al ili neordinaran forton fizikan, dikecon kaj fortikecon de la muskoloj, tute plene rajtigantan okupiĝi per laboro iom pli malfacila, malpli delikata kaj agrabla, ol disvolvado de silkaj ŝtofoj, traŝovado de araneaĵaj puntoj inter du fingroj kaj svingado de polurita, malpeza, delikata ulno. Iliaj ŝultroj estis larĝaj, la manoj grandaj, la fingroj dikaj, la vizaĝoj eĉ ne tute junulaj, montrantaj per la matureco de la trajtoj kaj la denseco de la barboj la aĝon de pli ol tridek jaroj. Sed kun kia eleganteco plena de la plej delikata gusto estis faritaj la nigraj surtutoj, kiuj
 
 
 kovris tiujn larĝajn ŝultrojn, kiel belege sub la densaj barboj la koloraj kravatoj disvolvis siajn papiliajn flugilojn, per kiaj graciaj gestoj moviĝadis tiuj grandaj dikmuskolaj manoj, kiaj gustoplenaj kaj samtempe okulfrapantaj ringoj ornamis tiujn dikajn fingrojn! Nenio en la mondo, esceptinte nur neĝon, povis superi per blankeco la ĉemizojn, kiuj per ŝvelformaj ĵa-botoj kaj dikaj brodaĵoj vidiĝadis sur iliaj brustoj; nenio en la mondo, nenia kordo, nenia risorto, nenia gutaperka pilko, nek korsete ekzercita virina talio, povis konkuri kun la fleksiĝemeco de iliaj movoj, kun la elasteco de iliaj saltoj, kun la moviĝemeco de iliaj okuloj kaj la perfekta ekzerciteco de iliaj langoj.
@@ -1891,9 +1511,6 @@ eksonis agrabla vira voĉo ĉe la dua fino de la tablo.
 —Jen estas ŝtofo kun radioj! blankaj kaj rozokoloraj, efekto bonega! tre voyant!
 
 
-MARTA
-
-
 —Radioj cindrokoloraj, tute nobelgustaj!
 
 —Blua nebuleto sur blanka fono! por personoj junaj!
@@ -1914,9 +1531,7 @@ Tiuj fragmentoj de interparolado inter kvar junaj sinjoroj kaj la kvar aĉetanta
 
 Mario Rudzinska rapide leviĝis.
 
-—Atendu ĉi tie momenton, — ŝi diris al Marta, — mi parolos antaŭe mem kun la posedantino de la magazeno, por ke en okazo de rifuzo de ŝia flanko vi ne estu elmetata al vana 106
-
-MARTA
+—Atendu ĉi tie momenton, — ŝi diris al Marta, — mi parolos antaŭe mem kun la posedantino de la magazeno, por ke en okazo de rifuzo de ŝia flanko vi ne estu elmetata al vana
 
 
 malagrablaĵo. Se, kiel mi esperas, ĉio iros bone, mi tuj venos peti vin.
@@ -1929,9 +1544,7 @@ Mi ĉiam estas tiel feliĉa, kiam mi vin vidas! Kiel bonege vi aspektas! Kaj via
 
 mi ne memoras jam pri kio … sed belega artikolo! Kaj la ĉar-ma Jadvinjo, ĉu ŝi bone lernas? Mia Dio! kien foriris tiu tempo, kiam ni kune kun vi, Marinjo, ankaŭ lernis ĉe sinjorino Devrient! Vi ne povas imagi al vi, kiel kara estas por mi la rememoro pri tiu tempo, kiun mi pasigis kun vi en la edukejo!
 
-La gracia, bele vestita, tridekkelk-jara virino kun majstre-ca hartubero malantaŭ la kapo, kun tre regulaj, kvankam jam iom velkaj trajtoj de vizaĝo kaj kun moviĝemaj nigraj okuloj, ombritaj de nigraj kaj larĝaj brovoj, eldiris tiun torenton da vortoj rapide, preskaŭ sen spirhalto, ne ellasante el siaj manoj 107
-
-MARTA
+La gracia, bele vestita, tridekkelk-jara virino kun majstre-ca hartubero malantaŭ la kapo, kun tre regulaj, kvankam jam iom velkaj trajtoj de vizaĝo kaj kun moviĝemaj nigraj okuloj, ombritaj de nigraj kaj larĝaj brovoj, eldiris tiun torenton da vortoj rapide, preskaŭ sen spirhalto, ne ellasante el siaj manoj
 
 
 la manojn de Mario, kiu sidiĝis apud ŝi sur palisandra kanapeto, tegita per multekosta damasko. ŝi certe parolus ankoraŭ pli longe, sed Mario interrompis ŝian parolon.
@@ -1950,12 +1563,7 @@ Dirante la lastajn vortojn, ŝi ŝovis la manon en la poŝon kaj, elpreninte el 
 
 —Laboron! — ripetis la bela sinjorino Evelino, iom levante la nigrajn brovojn, — kio do malhelpas ŝin labori?
 
-—Multe da aferoj, pri kiuj mi devus tro longe paroli, — serioze respondis Mario, kaj, prenante la manon de la estinta kunlernantino, ŝi diris plue kun peto kaj sentemeco en la vo-108
-
-MARTA
-
-
-ĉo: — al vi, Evelino, mi venis kun la peto, ke vi donu al ŝi la eblon labori.
+—Multe da aferoj, pri kiuj mi devus tro longe paroli, — serioze respondis Mario, kaj, prenante la manon de la estinta kunlernantino, ŝi diris plue kun peto kaj sentemeco en la voĉo: — al vi, Evelino, mi venis kun la peto, ke vi donu al ŝi la eblon labori.
 
 —Mi … al ŝi … la eblon labori? sed kiamaniere, mia kara?
 
@@ -1981,12 +1589,7 @@ Evelino ne lasis ŝin fini.
 
 La ambaŭ virinoj videble posedis karakterojn vivajn kaj ekscitiĝemajn.
 
-—Nu, tial, — ekkriis Evelino, — ke en nia magazeno viri-109
-
-MARTA
-
-
-noj neniam okupiĝas per vendado de komercaĵoj, tion faras nur viroj.
+—Nu, tial, — ekkriis Evelino, — ke en nia magazeno virinoj neniam okupiĝas per vendado de komercaĵoj, tion faras nur viroj.
 
 —Sed kial do, kial virinoj per tio ne okupiĝas, sed nur viroj? ĉu estas necese scii la grekan lingvon, aŭ povi fleksi per la fingroj ferajn bastonojn, por …
 
@@ -2005,9 +1608,6 @@ La mastrino rapide leviĝis de la sofo kaj kelke da fojoj rapide trairis la tuta
 … sed mi ne povas ja lasi vin sen respondo. Mi respondos al vi: nia publiko ne amas virinojn vendantajn en magazeno …
 
 ĝi preferas … virojn.
-
-
-MARTA
 
 
 Mario iom ruĝiĝis kaj levis la ŝultrojn.
@@ -2039,14 +1639,9 @@ En tiuj okuloj estis multe da inteligenteco, eĉ da saĝo, tamen en tiu momento 
 demandis Mario.
 
 
-MARTA
-
-
 —Tute ne! — ekkriis la mastrino de la magazeno kun nova ekflamiĝo, — kaj efektive nek mia edzo nek mi rifuzas iam la plenumadon de tiuj devoj. Ni ĉiam donas, kiom ni nur povas …
 
-—Mi scias, ke vi estas bonfaremaj, ke vi partoprenas en ĉiuj monkolektoj, filantropiaj projektoj kaj aranĝoj, sed ĉu nur pri almozoj kaj pri filantropio estas la parolo? Vi estas homoj ri-
-
-ĉaj, en kelka rilato influaj, vi devas preni iniciativon en ĉio, kio celas plibonigon de malbonaj moroj, forigon de sociaj eraroj.
+—Mi scias, ke vi estas bonfaremaj, ke vi partoprenas en ĉiuj monkolektoj, filantropiaj projektoj kaj aranĝoj, sed ĉu nur pri almozoj kaj pri filantropio estas la parolo? Vi estas homoj riĉaj, en kelka rilato influaj, vi devas preni iniciativon en ĉio, kio celas plibonigon de malbonaj moroj, forigon de sociaj eraroj.
 
 Evelino sindevige ekridetis.
 
@@ -2061,9 +1656,6 @@ Evelino forte ekridis.
 —Kaj ke se mi estus sur via loko, — diris plue Mario, — mi konsilus al tiuj sinjoroj, ke anstataŭ silko kaj puntoj ili prenu en siajn manojn plugilon, hakilon, martelon, trulon aŭ ion similan. Kun tio ili aspektus multe pli konvene …
 
 
-MARTA
-
-
 —Mi tion scias, mi scias! — diris la mastrino, ĉiam ridegante.
 
 —Kaj sur ilian lokon, — finis Mario, — mi prenus virinojn, kiuj havas tro malmulte da forto fizika por plugi, forĝi kaj masoni.
@@ -2076,9 +1668,7 @@ Nun Mario ekridetis.
 
 —Mia kara, — ŝi diris, — mi devas denove fari uzon el la rajtoj de kolegeco, por diri al vi, ke vi aŭtomate ripetis en la nuna momento tion, pri kio vi konstante aŭdas paroli, sed kion vi supozeble neniam pripensis mem. Tiuj homoj estas patroj de familioj, povas esti, sed la virino, por kiu mi faris al vi peton, ankaŭ havas infanon, al kiu ŝi devas donadi manĝon kaj edukon. Se ekzemple min trafus la malfeliĉo, ke mi perdus la estimindan kaj karan homon, kiu ne sole donas al mi feliĉon de koro, sed per sia laborado ankaŭ asekuras mian ekzistadon, ĉu tiam mi ne estus patrino kaj priresponda prizorgantino de mia familio? Se vi ambaŭ, via edzo kaj vi, post kelke da jaroj forirus el la mondo kaj, kiel ofte okazas, ne re-stigus post vi kapitalon, ĉu tiam via plej aĝa filino ne havus la devon subtenadi la ekzistadon, zorgi pri la edukado kaj bona direktado de la malpli aĝaj gefratoj?
 
-Evelino aŭskultis tiujn vortojn kun mallevitaj okuloj; videble estis al ŝi malfacile trovi respondon. Sed ne malpli malfacile estis al ŝi rifuzi sen sufiĉaj pretekstoj la peton de virino, kun kiu la interrilatoj videble estis agrablaj por ŝia koro 113
-
-MARTA
+Evelino aŭskultis tiujn vortojn kun mallevitaj okuloj; videble estis al ŝi malfacile trovi respondon. Sed ne malpli malfacile estis al ŝi rifuzi sen sufiĉaj pretekstoj la peton de virino, kun kiu la interrilatoj videble estis agrablaj por ŝia koro
 
 
 kaj eble eĉ flatis ŝian ambicion. La neordinara spriteco, kiun oni povis vidi en la esprimo de ŝia vizaĝo kaj okuloj, trovigis al ŝi baldaŭ novan respondon.
@@ -2095,12 +1685,7 @@ Mi garantias al vi, ke nenia malĉasta penso aperus en ŝia ka-po.
 
 —Kara Mario! — ekkriis Evelino, — tion, kion vi diris, oni per nenio povas pruvi. La virinoj estas fiel facilanimaj … tiel facilanimaj …
 
-—i estas vero, — respondis Mario, serioze rigardante sian estintan koleginon, — sed ĉu la forpuŝado for de ĉia laboro estas bona kuracilo kontraŭ facilanimeco? Ankoraŭ unu fojon mi ripetas al vi, Evelino, ke la virino, pri kiu mi parolas, estas nun nek facilanima, nek nehonesta … tamen se, pete-114
-
-MARTA
-
-
-gante laboron kvazaŭ almozon, ŝi de multaj pordoj foriros tiamaniere, kiel ŝi nun baldaŭ devos foriri de via pordo, tiam mi tute ne garantias pri tio, kia ŝi farigos en la estonteco.
+—i estas vero, — respondis Mario, serioze rigardante sian estintan koleginon, — sed ĉu la forpuŝado for de ĉia laboro estas bona kuracilo kontraŭ facilanimeco? Ankoraŭ unu fojon mi ripetas al vi, Evelino, ke la virino, pri kiu mi parolas, estas nun nek facilanima, nek nehonesta … tamen se, petegante laboron kvazaŭ almozon, ŝi de multaj pordoj foriros tiamaniere, kiel ŝi nun baldaŭ devos foriri de via pordo, tiam mi tute ne garantias pri tio, kia ŝi farigos en la estonteco.
 
 —Vi denove alpremas min al muro! — diris la mastrino de la magazeno, — bone do, mi kredas al vi, ke la persono, kiu vin interesas, estas modelo kaj enkorpigo de virto, de seriozeco, de honesteco … sed ĉu vi ankaŭ povos garantii al mi, ke ŝi posedas tiun spiriton de ordo, tiun scion de preciza kalkulado, tiun akuratecon en la venado al la laboro kaj en ĝia plenumado, kiu ne permesas eĉ minuton da prokrasto, eĉ ombron da nezorgemeco?
 
@@ -2110,22 +1695,16 @@ Mario silentis. La mastrino, penetrema kaj vigla, tuj kaptis la momenton de emba
 
 —Vi diris antaŭ momento, kara Mario, ke personoj, kiuj okupiĝas per vendado de komercaĵoj, devas scii sole disvolvi, elmeti kaj mezuri la ŝtofojn. Tiel ĝi ŝajnas laŭ la eksteraĵo.
 
-Sed en efektiveco ili devas posedi multe da aliaj ecoj, kiel ekzemple: alkutimiĝon al kiel eble plej preciza ordo, ĉar unu objekto metita ne sur la ĝustan lokon, unu faldo en la ŝtofo nebone ebenigita, unu peco da puntoj neatente ĵetita faras konfuzon en la magazeno aŭ alportas al la magazeno gravajn perdojn. Estas ankaŭ necese, ke la komizoj sciu kalkuli kaj bone kalkuli, ĉar tie, kie en ĉiu horo, eĉ preskaŭ en ĉiu minuto envenas sumoj ĉiam novaj kaj reprezentantaj ĉiam novajn 115
-
-MARTA
+Sed en efektiveco ili devas posedi multe da aliaj ecoj, kiel ekzemple: alkutimiĝon al kiel eble plej preciza ordo, ĉar unu objekto metita ne sur la ĝustan lokon, unu faldo en la ŝtofo nebone ebenigita, unu peco da puntoj neatente ĵetita faras konfuzon en la magazeno aŭ alportas al la magazeno gravajn perdojn. Estas ankaŭ necese, ke la komizoj sciu kalkuli kaj bone kalkuli, ĉar tie, kie en ĉiu horo, eĉ preskaŭ en ĉiu minuto envenas sumoj ĉiam novaj kaj reprezentantaj ĉiam novajn
 
 
-ciferojn, la forlaso de unu speso povas fariĝi kaŭzo de malordo en la kalkuloj, kontraŭ kiu ni devas plej severe nin gardi; fine, kaj eĉ antaŭ ĉio, la komizoj devas koni la mondon, la homojn, scii, kiamaniere oni devas iun trakti, kiamaniere al iu plaĉi, — al kiu oni devas kredi laŭ lia vorto, al kiu oni devas riftizi krediton, k. t. p. ĉiujn tiujn ecojn virinoj ordinare ne posedas. Ne alkutimjgitaj al ordo, ne akurataj, por la prikalkulo eĉ de la plej malgranda sumo ili devas porti en la po-
-
-ŝo tabeleton de multobligado; senkulpaj timulinetoj, ĵus de-kroĉitaj de la patrina jupo, ili apenaŭ kuraĝas levi la okulojn al la vizaĝoj de la aĉetantoj, ne sciante, kiel paroli al ili, kion pensi pri ĉiu el ili, aŭ kontraŭe, ricevinte plenan liberecon, bruemaj kaj senordaj, ili pozas leoninojn, penas plaĉi, parolas kaj agas sentakte, elmetante sin al malhonoro kaj la institucion, en kiu ili kvazaŭ laboras, al kompromitiĝo. Viroj, kiel ajn ridindaj ili ŝajnas pro siaj manieroj kaj okupoj ne tute viraj, estas por la posedantoj de magazenoj homoj tre oportu-naj kaj utilaj. Tial ĉiu pli granda magazeno por siaj bezonoj uzas virojn, kaj kiu iam provis anstataŭigi ilin per virinoj, havis grandan malprofiton. La virinoj, mia kara, en la nuna tempo ne estas ankoraŭ edukataj tiamaniere, ke ili povu alkon-formiĝi al la severeco de la agodevo, al la despoteco de la cifero kaj al postuloj de tia diverskonsista socio, kia estas la socio de la aĉetantoj.
+ciferojn, la forlaso de unu speso povas fariĝi kaŭzo de malordo en la kalkuloj, kontraŭ kiu ni devas plej severe nin gardi; fine, kaj eĉ antaŭ ĉio, la komizoj devas koni la mondon, la homojn, scii, kiamaniere oni devas iun trakti, kiamaniere al iu plaĉi, — al kiu oni devas kredi laŭ lia vorto, al kiu oni devas riftizi krediton, k. t. p. ĉiujn tiujn ecojn virinoj ordinare ne posedas. Ne alkutimjgitaj al ordo, ne akurataj, por la prikalkulo eĉ de la plej malgranda sumo ili devas porti en la poŝo tabeleton de multobligado; senkulpaj timulinetoj, ĵus de-kroĉitaj de la patrina jupo, ili apenaŭ kuraĝas levi la okulojn al la vizaĝoj de la aĉetantoj, ne sciante, kiel paroli al ili, kion pensi pri ĉiu el ili, aŭ kontraŭe, ricevinte plenan liberecon, bruemaj kaj senordaj, ili pozas leoninojn, penas plaĉi, parolas kaj agas sentakte, elmetante sin al malhonoro kaj la institucion, en kiu ili kvazaŭ laboras, al kompromitiĝo. Viroj, kiel ajn ridindaj ili ŝajnas pro siaj manieroj kaj okupoj ne tute viraj, estas por la posedantoj de magazenoj homoj tre oportu-naj kaj utilaj. Tial ĉiu pli granda magazeno por siaj bezonoj uzas virojn, kaj kiu iam provis anstataŭigi ilin per virinoj, havis grandan malprofiton. La virinoj, mia kara, en la nuna tempo ne estas ankoraŭ edukataj tiamaniere, ke ili povu alkon-formiĝi al la severeco de la agodevo, al la despoteco de la cifero kaj al postuloj de tia diverskonsista socio, kia estas la socio de la aĉetantoj.
 
 La mastrino de la magazeno ĉesis paroli kaj rigardis kun ia triumfo sian koleginon, ŝi havis plenan kaŭzon por triumfi.
 
 Mario Rudzinska staris kun mallevitaj okuloj, kun esprimo de malĝojo sur la vizaĝo, kaj silentis. Evelino prenis ŝian manon.
 
-—Nu, diru al mi, kara Mario, — ŝi diris, — diru al mi sincere: ĉu vi povas garantii, ke via protektatino estas persono 116
-
-MARTA
+—Nu, diru al mi, kara Mario, — ŝi diris, — diru al mi sincere: ĉu vi povas garantii, ke via protektatino estas persono
 
 
 bonorda, akurata, lerta en kalkulado, takta kaj konanta la homojn, tiel same, kiel vi garantiis, ke ŝi estas honesta?
@@ -2136,15 +1715,11 @@ bonorda, akurata, lerta en kalkulado, takta kaj konanta la homojn, tiel same, ki
 
 —Certe ne, — elbalbutis Mario.
 
-—Vi vidas do, — diris Evelino, — ke vi ne devas kulpigi min pro tio, ke mi ne plenumis vian deziron. La fakto, ke la malriĉaj virinoj estas elĵetitaj el la regiono de industrio, certe estas bedaŭrinda, sed ĝin faras necesa kaj neevitebla de unu flanko la kapricoj kaj ne tute klaraj instinktoj de la virinoj riĉaj, kiuj avidas agrablan tempopasigon kaj Dio scias kiajn impre-sojn, — de alia flanko la senkapableco, facilanimeco kaj supraĵeco de la virinoj malriĉaj, kiuj bezonas laboron, sed ne povoscias ĝin plenumi. Kiam la unuaj prudentiĝos kaj nobli-
-
-ĝos kaj la lastàj montriĝos pli bone preparitaj por la plenumado de okupoj precizaj kaj devigaj, tiam mi foreksigos miajn komizojn kaj vin mi petos, ke sur ilian lokon vi elektu por mi komizinojn el la nombro de viaj protektatinoj.
+—Vi vidas do, — diris Evelino, — ke vi ne devas kulpigi min pro tio, ke mi ne plenumis vian deziron. La fakto, ke la malriĉaj virinoj estas elĵetitaj el la regiono de industrio, certe estas bedaŭrinda, sed ĝin faras necesa kaj neevitebla de unu flanko la kapricoj kaj ne tute klaraj instinktoj de la virinoj riĉaj, kiuj avidas agrablan tempopasigon kaj Dio scias kiajn impre-sojn, — de alia flanko la senkapableco, facilanimeco kaj supraĵeco de la virinoj malriĉaj, kiuj bezonas laboron, sed ne povoscias ĝin plenumi. Kiam la unuaj prudentiĝos kaj nobliĝos kaj la lastàj montriĝos pli bone preparitaj por la plenumado de okupoj precizaj kaj devigaj, tiam mi foreksigos miajn komizojn kaj vin mi petos, ke sur ilian lokon vi elektu por mi komizinojn el la nombro de viaj protektatinoj.
 
 ĉe la lastaj vortoj Evelino D. kun sia kutima vigleco kisis Marion sur ambaŭ vangoj.
 
-La funebre vestita virino, kiu sidis en la magazeno, ekaŭdis la susuradon de la vesto kaj de la paŝoj de sia tiumomenta 117
-
-MARTA
+La funebre vestita virino, kiu sidis en la magazeno, ekaŭdis la susuradon de la vesto kaj de la paŝoj de sia tiumomenta
 
 
 prizorgantino tiam, kiam ĉi tiu estis ankoraŭ sur la plej supra parto de la ŝtuparo. ŝia aŭskulto videble estis streĉita, sia malpacienco estis granda. ŝi levigis kaj avide direktis siajn okulojn al la vizaĝo de la malsupreniranta virino. Post kelke da sekundoj da rigardado ŝia mano iom ektremis kaj ŝi apogis sin al la brako de brakseĝo. De la mallevitaj okuloj de Mario kaj de la ruĝo, kiu vidiĝis sur siaj vangoj, ŝi divenis ĉion.
@@ -2165,12 +1740,7 @@ oni min tie ne akceptis, ĉar tion ne permesas la kutimo, ĉar mi ne havigas kon
 
 —Donu al mi vian adreson, — diris Mario, evitante respondon, — eble mi sciigos pri io utila por vi, eble mi povos iam vin helpi …
 
-Marta diris la nomon de la strato kaj la numeron de la do-mo, en kiu ŝi loĝis, poste, levante la okulojn, en kiuj oni po-118
-
-MARTA
-
-
-vis vidi varmegan dankecon, ŝi etendis ambaŭ manojn al la bona virino, dezirante preni kaj premi ŝiajn manojn.
+Marta diris la nomon de la strato kaj la numeron de la do-mo, en kiu ŝi loĝis, poste, levante la okulojn, en kiuj oni povis vidi varmegan dankecon, ŝi etendis ambaŭ manojn al la bona virino, dezirante preni kaj premi ŝiajn manojn.
 
 Sed apenaŭ la manoj de la du virinoj kuntuŝigis, Marta rapide retiris sian manon kaj forŝoviĝis je kelke da paŝoj. Mario Rudzinska enŝovis al ŝi en la manon tiun saman koverton kun lilikoloraj randoj, kiun ŝi antaŭ du semajnoj ne volis akcepti de ŝi.
 
@@ -2182,9 +1752,7 @@ Marta staris momenton senmove, ŝia antaŭa paleco cedis la lokon al flama ruĝo
 
 ŝia voĉo estis malforta, obtuza; ĝin tute obtuzigis kaj sufokis la strata bruo.
 
-La virino, kiu ricevis donacon el kompatema mano, direktis sin al la strato Swieto-Jerska, verŝajne kun la intenco redoni la donacon, kiu kolorigis ŝian frunton per flamanta ruĝo de humiliĝo. ŝiaj paŝoj, komence rapidaj kaj febraj, baldaŭ tamen farigis ĉiam pli malrapidaj kaj malfirmaj. ĉu la moralaj ekscitiĝoj, kiujn ŝi tiom multe havis en tiu tago, ekŝancelis ŝian fizikan forton? Àŭ eble okupis ŝin ia profunda pri-meditado, ia interna ŝanceliĝado ekskuis la intencon, kiu naskiĝis en ŝi antaŭ momento? ŝi premis en la mano la delikatan koverton, en kiu susuris kelke da monaj paperetoj, kaj ĉe 119
-
-MARTA
+La virino, kiu ricevis donacon el kompatema mano, direktis sin al la strato Swieto-Jerska, verŝajne kun la intenco redoni la donacon, kiu kolorigis ŝian frunton per flamanta ruĝo de humiliĝo. ŝiaj paŝoj, komence rapidaj kaj febraj, baldaŭ tamen farigis ĉiam pli malrapidaj kaj malfirmaj. ĉu la moralaj ekscitiĝoj, kiujn ŝi tiom multe havis en tiu tago, ekŝancelis ŝian fizikan forton? Àŭ eble okupis ŝin ia profunda pri-meditado, ia interna ŝanceliĝado ekskuis la intencon, kiu naskiĝis en ŝi antaŭ momento? ŝi premis en la mano la delikatan koverton, en kiu susuris kelke da monaj paperetoj, kaj ĉe
 
 
 la angulo de la strato Swieto-Jerska ŝi haltis. ŝi haltis, kaj dum momento ŝi staris senmove, apogante sin per la mano al angulo de muro, kun vizaĝo pala kaj klinita. Subite ŝi direktis sin al alia flanko kaj rapide ekiris al sia loĝejo.
@@ -2195,9 +1763,7 @@ Fiereco kaj tima zorgo malfacile kaj kruele batalis interne de ŝi, kaj en ĉi t
 
 Kaj en la vivo de la juna virino tio estis tago tre grava, kvankam pri ĝia graveco ŝi eble mem ne havis plenan klare-con: tio estis tago, en kiu ŝi la unuan fojon akceptis almozon kaj sekve gustumis tiun panon, kiu, estante maldolĉa por maljunuloj kaj kripluloj, estas venena kaj putriga por homoj junaj kaj sanaj.
 
-Tiun vesperon en la ĉambreto en la mansardo sur la kameno brulis gaja fajro, ĉe la tablo super telero plena de supo sidis Janjo. La unuan fojon post longa tempo tiu infano ĝuis agrablan senton de varmo kaj manĝis kun apetito bone pre-paritan kaj fortodonan manĝon. Tial la grandaj nigraj okuloj de la knabineto transsaltadis jen sur la lumitan profundon de la kameno, jen sur la pecon da pano, kiu kuŝis apud la telero kaj estis kovrita de tavoleto da butero, kaj ŝia buŝo eĉ por 120
-
-MARTA
+Tiun vesperon en la ĉambreto en la mansardo sur la kameno brulis gaja fajro, ĉe la tablo super telero plena de supo sidis Janjo. La unuan fojon post longa tempo tiu infano ĝuis agrablan senton de varmo kaj manĝis kun apetito bone pre-paritan kaj fortodonan manĝon. Tial la grandaj nigraj okuloj de la knabineto transsaltadis jen sur la lumitan profundon de la kameno, jen sur la pecon da pano, kiu kuŝis apud la telero kaj estis kovrita de tavoleto da butero, kaj ŝia buŝo eĉ por
 
 
 momento ne fermiĝis. Marta sidis antaŭ la fajro en senmova teniĝo; ŝia profilo sur la ruĝeta fono de la flamo estis serioza kaj enpensa. ŝiaj okuloj brilis per seka brilo, la brovoj kuniĝis kaj formis profundan sulkon meze de la blanka frunto. Antaŭ ŝi, pendante en la malplena spaco, staris virina figuro kun morta angoro sur la vizaĝo, kun ruĝo de honto sur la frunto, kun manoj interfingrigitaj. Tiu figuro estis ŝia propra figuro, reflektita en la spegulo de ŝia imago.
@@ -2210,9 +1776,7 @@ Ho, malkapabla estaĵo! — ekkriis Marta en siaj pensoj, ĉu vi estas do inda p
 
 La virina figuro displektis la manojn kaj kovris per ili sian vizaĝon, kiu profunde kliniĝis.
 
-El la ĝis nun sekaj okuloj de Marta per varmega torento 121
-
-MARTA
+El la ĝis nun sekaj okuloj de Marta per varmega torento
 
 
 ekfluis larmoj kaj traverŝiĝis inter la fingroj, per kiuj ŝi kovris al si la vizaĝon.
@@ -2221,17 +1785,13 @@ ekfluis larmoj kaj traverŝiĝis inter la fingroj, per kiuj ŝi kovris al si la 
 
 Marta forprenis la manojn for de la vizaĝo kaj sidis kelke da minutoj kiel ŝtonigita. La dolĉaj kisoj de la infana buŝo bruligis ŝin, kvazaŭ inferaj serpentoj rampus sur ŝia korpo, la varmega amo de tiu malgranda estaĵo, kiu genuis antaŭ ŝi, ŝiris al ŝi la koron kaj turmentegis la konsciencon …
 
-ŝi kliniĝis, prenis la infanon en siajn brakojn, kelkfoje alpremis la buŝon al ĝia frunto kaj vangoj, poste ŝi rapide levi-
-
-ĝis de la seĝo, alsaltis al la fenestro kaj, genuiĝinte, levis la rigardon kaj la manojn al la peco da ĉielo, kies malluma kaj profunda fono brilis per steloj.
+ŝi kliniĝis, prenis la infanon en siajn brakojn, kelkfoje alpremis la buŝon al ĝia frunto kaj vangoj, poste ŝi rapide leviĝis de la seĝo, alsaltis al la fenestro kaj, genuiĝinte, levis la rigardon kaj la manojn al la peco da ĉielo, kies malluma kaj profunda fono brilis per steloj.
 
 —Dio! — ŝi ekkriis preskaŭ laŭte, — donu al mi lokon sur la tero! almenaŭ malgrandan, malriĉan lokon, sur kiu mi povus teni min kune kun mia infano! Ne permesu, ke mi, sveninta kaj senforta, duan fojon devu akcepti almozon, ke mi ne plenumu la patrinan devon, ke mi perdu la trankvilecon de la konscienco kaj la estimon por mi mem!
 
 Efektive la petoj, kiujn tiu virino sendis al la ĉielo, estis sensencaj, maljustaj, tro postulemaj, ĉu ne vere, miaj legantoj?
 
-Estas vero, ke ŝi ne postulis sidi sur seĝo de ministro, nek laŭtigi sian nomon en la mondo per multebuŝa famo, nek ĝui malpermesitajn plezuregojn en senbrida libereco, sed ŝi deziris vivi kaj al la sola estaĵo, kiun ŝi amis sur la tero, subteni 122
-
-MARTA
+Estas vero, ke ŝi ne postulis sidi sur seĝo de ministro, nek laŭtigi sian nomon en la mondo per multebuŝa famo, nek ĝui malpermesitajn plezuregojn en senbrida libereco, sed ŝi deziris vivi kaj al la sola estaĵo, kiun ŝi amis sur la tero, subteni
 
 
 la vivon per peco da pano, ŝi deziris eviti sorton de almozulo kaj povi ne flami per honto antaŭ si mem … Kiel do ambicia, enviema, postulema kaj senbrida en siaj postuloj ŝi estis! ne vere?
@@ -2243,9 +1803,6 @@ En la daŭro de tuta longa vintra nokto Marta per eĉ momente ne fermiĝantaj ok
 La sekvantan tagon ĉirkaŭ la tagmezo funebre vestita virino eniris en ne tre grandan, sed tre elegantan magazenon, en kiu malantaŭ la fenestroj pendis pufaj virinaj vestoj kaj, simile al svarmo da papilioj, per plej diversaj koloroj briletis elegantaj ĉapeletoj kaj malgrandaj kufetoj. Tio estis magazeno, en kiu iam Marta ordinare aĉetadis la objektojn por sia tualeto.
 
 ĉe la eksono de la sonorilo, kiu ekbalanciĝis super la pordo, el la apuda ĉambro eliris virino ankoraŭ juna kun bela talio kaj tre agrabla vizaĝo. Ekvidinte Martan, ŝi ekridetis kaj salutis tre afable. Videble ŝi rekonis sian antaŭan klientinon kaj kun plezuro vidis ŝin denove en sia magazeno.
-
-
-MARTA
 
 
 —Kiel longe jam vi ne estis ĉe ni, — diris la mastrino de la magazeno kun senŝanĝe afabla rideto, sed tuj, ĵetinte rapidan rigardon sur la funebran veston de Marta, ŝi diris plue: — Mia Dio! mi aŭdis pri la malfeliĉo, kiu vin trafis. Mi konis ja bone sinjoron Swicki!
@@ -2266,9 +1823,7 @@ La mastrino de la magazeno, aŭdinte tiujn vortojn, tute ne sajnis mirigita aŭ 
 
 —Volu eniri en la laborejon; tie ni povos pli oportune paroli pri la afero.
 
-La laborejo, kiu estis apud la magazeno, konsistis el sufiĉe granda ĉambro, en kiu ĉe tablo, kiu staris sub la fenestroj kaj estis ĵetkovrita de multe da rubandoj, puntoj, plumoj, floroj kaj pecoj da ŝtofo, sidis tri junaj virinoj, preparante ĉapelojn, 124
-
-MARTA
+La laborejo, kiu estis apud la magazeno, konsistis el sufiĉe granda ĉambro, en kiu ĉe tablo, kiu staris sub la fenestroj kaj estis ĵetkovrita de multe da rubandoj, puntoj, plumoj, floroj kaj pecoj da ŝtofo, sidis tri junaj virinoj, preparante ĉapelojn,
 
 
 kapornamojn kaj vestornamojn, postulantajn delikatan pri-laboradon. En la profundo de la salono oni aŭdis bruon de du kudromaŝinoj, super kiuj estis klinitaj ankaŭ du virinaj figuroj, kaj en la mezo staris tablo, kiu estis tute kovrita de tajloraj tabeloj kaj de grandaj pecoj da drapoj, toloj, batistoj, musli-noj, inter kiuj brilis ŝtalaj tondiloj, kretoj kaj krajonoj en plumbaj ingoj. ĉiuj virinoj, kiuj estis en la laborejo, estis diligente okupitaj je siaj laboroj, nur unu el ili ĉe la eniro de Marta levis la kapon de super la maŝino; ŝi ekrigardis la eni-rantan kaj, renkontiĝinte kun ŝia rigardo, faris al ŝi ĝentilan saluton.
@@ -2285,9 +1840,7 @@ La fraŭlino, al kiu tiuj vortoj estis diritaj kaj kiu videble okupis la unuan l
 
 ĝustatempe.
 
-—Vi estas tute prava, — respondis la mastrino post kelka 125
-
-MARTA
+—Vi estas tute prava, — respondis la mastrino post kelka
 
 
 pripenso, — mi pensis jam mem pri tio. Kaj, ĉar sinjorino Swicka venis ĉi tien kun deziro labori ĉe ni, tial ŝajnas al mi, ke nenio malhelpas, ke mi povu plenumi la deziron de persono, kiu en alia tempo estis afabla por ni.
@@ -2298,9 +1851,7 @@ Fraŭlino Bronislavo ĝentile salutis.
 
 ĉi tiuj vortoj estis eldiritaj per tono de demando. En tiu sama momento unu el la maŝinoj silentiĝis kaj la juna virino, kiu sidis ĉe ĝi, levis la kapon kaj komencis aŭskulti la interparoladon kun videbla atento.
 
-La tri personoj, kiuj staris apud la granda tabla en la mezo de la salono, silentis dum momento. La mastrino de la magazeno kaj ŝia helpistino rigardis Martan kun demanda vizaĝ-
-
-esprimo; Marta rigardis la tajlorajn tabelojn, kiuj kuŝis sur la tablo kaj de supre ĝis malsupre estis desegnekovritaj de nigraj linioj, punktoj, serpentaĵoj, kiuj, kurante laŭlonge kaj laŭlarĝe de la folio, kruciĝante, kuniĝante kaj disiĝante, havante la formon de la plej diversaj geometriaj figuraĵoj, prezentis por nekompetenta okuloąoson tute nesolveblan.
+La tri personoj, kiuj staris apud la granda tabla en la mezo de la salono, silentis dum momento. La mastrino de la magazeno kaj ŝia helpistino rigardis Martan kun demanda vizaĝesprimo; Marta rigardis la tajlorajn tabelojn, kiuj kuŝis sur la tablo kaj de supre ĝis malsupre estis desegnekovritaj de nigraj linioj, punktoj, serpentaĵoj, kiuj, kurante laŭlonge kaj laŭlarĝe de la folio, kruciĝante, kuniĝante kaj disiĝante, havante la formon de la plej diversaj geometriaj figuraĵoj, prezentis por nekompetenta okuloąoson tute nesolveblan.
 
 La palpebroj de Marta leviĝis malrapide kaj malfacile.
 
@@ -2308,9 +1859,7 @@ La palpebroj de Marta leviĝis malrapide kaj malfacile.
 
 La mastrino de la magazeno silentis, sed sur la lipoj de fraŭlino Bronislavo aperis iom nekontenta rideto …
 
-—Strange! — ŝi diris, turnante sin al la mastrino, — multe 126
-
-MARTA
+—Strange! — ŝi diris, turnante sin al la mastrino, — multe
 
 
 da personoj deziras okupiĝi per kudrado, kaj tamen estas tiel malfacile trovi iun, kiu bone scius altranĉadon. i estas ja la fundamento de la tuta laborado.
@@ -2333,9 +1882,7 @@ Kaj denove inter la virinoj, kiuj staris apud la tablo, regis momenta silento. L
 
 —Sinjorino, — ŝi diris, levante la okulojn al la mastrino de la magazeno, — ĉu mi ne povus lerni … mi laborus dume senpage … nur ke mi povu ellerni …
 
-—Tio ne estas ebla! — ekkriis fraŭlino Bronislavo per iom akra tono. — Tio estas afero malfacila, — interrompis la mastrino, kaj pli ĝentile ol ŝia helpantino ŝi parolis plue: — Ni pretigas diversajn vestojn plejparte laŭmende kaj el ŝtofoj multekostaj, kiuj ne povas servi por lernado kaj ekzerciĝado 127
-
-MARTA
+—Tio ne estas ebla! — ekkriis fraŭlino Bronislavo per iom akra tono. — Tio estas afero malfacila, — interrompis la mastrino, kaj pli ĝentile ol ŝia helpantino ŝi parolis plue: — Ni pretigas diversajn vestojn plejparte laŭmende kaj el ŝtofoj multekostaj, kiuj ne povas servi por lernado kaj ekzerciĝado
 
 
 … la laborojn ni devas plenumi rapide, ĉar jam sen tio pro manko de perfekte instruitaj laboristinoj ni sentas iom nesufiĉecon de la nombro da manoj kaj ni malfruiĝas … kaj tio alportas al ni malprofiton kaj malagrablaĵojn. Tial ni povas akcepti nur tiajn laboristinojn, kiuj estas jam sufiĉe preparitaj … Mi tre bedaŭras, kredu al mi sinjorino, ke mi tre be-daŭras, ke mi ne povas plenumi vian deziron.
@@ -2350,9 +1897,7 @@ Subite ŝi faris al si la demandon:
 
 —Kio ĝi estas, kio akompanas min ĉiam kaj ĉie, elpuŝas min el ĉie? …
 
-ŝi frotis la frunton per la mano kaj respondis al si mem: 128
-
-MARTA
+ŝi frotis la frunton per la mano kaj respondis al si mem:
 
 
 —ĉiam kaj ĉie mi mem iras kun mi kaj mi mem elpuŝas min el ĉie.
@@ -2364,9 +1909,6 @@ Kun granda malfacileco ŝi streĉis sian cerbon, por povi pensi, kaj rememorigis
 Tiuj ĉi nemultaj vortoj, kiujn ŝi elpremis el sia cerbo, kiun kvazaŭ per reto ĉirkaŭvolvis la sola penso ”mi ne povoscias”, lacigis ŝin. En tiu tago, elirante el sia domo, ŝi estis tiel zorgoplena, tiel okupita, preskaŭ flamigita de la nova plano, kiu venis al ŝi en la kapon, ke ŝi tute ne pensis pri manĝo. Rigardante Janjon, kiu trinkis sian kutiman matenan glason da lakto, ŝi sentis eĉ ian abomenon kontraŭ manĝado. La ĉiam tur-mentata kaj vundata flanko morala silentigis la flankon fizikan. ŝiaj piedoj ŝanceliĝis, ŝia koro frapis forte kaj kun granda rapideco, kvankam ŝi iris malrapide. Nun en ŝia kapo ba-raktis nova demando, kiu komence konsistis nur el la mallonga vorto: kial? Post momento al tiu ĉi vorto komencis al-kreskadi aliaj vortoj, komence senordaj, poste ordiĝantaj en formo de ia logika fadeno da pensoj. — Kial … estas tiel? —
 
 demandis sin mem la juna virino, — kial la homoj postulas de mi tion, kion neniu al mi donis? Kial neniu donis al mi tion, kion la homoj hodiaŭ postulas de mi?
-
-
-MARTA
 
 
 Subite Marta ektremis, ŝi sentis, ke iu facile tuŝis ŝian brakon.
@@ -2387,9 +1929,7 @@ Marta rigardis la apud ŝi irantan virinon per nebulitaj okuloj.
 
 —Mia infano vivas, — ŝi diris.
 
-La lasta vorto elglitis el ŝia buŝo versajne malgraŭvole, ĉar 130
-
-MARTA
+La lasta vorto elglitis el ŝia buŝo versajne malgraŭvole, ĉar
 
 
 rapide kaj neklare, sed en ĝi eksonis tia maldolĉeco, kia ĝis nun neniam estis en ŝia voĉo. Klaro silentis momenton, kvazaŭ meditanie, poste ŝi diris:
@@ -2400,9 +1940,7 @@ Tial estis al mi malagrable, tre malagrable, kiam mi aŭdis, ke sinjorino N. rif
 
 —Kiu do ŝi estas, tiu kompatinda Eminjo? — demandis la juna vidvino.
 
-—Tio estas mia kuzino, malpli juna ol mi per kelke da jaroj. Mia patrino kaj ŝia patrino estis fratinoj, sed, kiel ofte okazas, iliaj sortoj estis ne egalaj. ŝia patrino edziniĝis kun oficisto, mia edziniĝis kun metiisto. Kiam ni ambaŭ fariĝis pli aĝaj, Eminjo estis fraŭlino kaj mi estis simpla knabino. Krom tio ŝi estis bela kaj min variolo tute malbeligis, kiam mi havis ankoraŭ la aĝon de dekdu jaroj. Tial la onklino konstante paroladis: al Eminjo mi donos bonan edukon kaj poste mi ŝin bone edzinigos … Komence ŝi tenis por ŝi guvernantinon, poste ŝi sendis ŝin en ian malgrandan edukejon. Mia patrino komence estis tre afliktita, ke la variolo min tiel terure malbeligis, sed la patro ne tre estis afliktita. — Kio do grava, — li 131
-
-MARTA
+—Tio estas mia kuzino, malpli juna ol mi per kelke da jaroj. Mia patrino kaj ŝia patrino estis fratinoj, sed, kiel ofte okazas, iliaj sortoj estis ne egalaj. ŝia patrino edziniĝis kun oficisto, mia edziniĝis kun metiisto. Kiam ni ambaŭ fariĝis pli aĝaj, Eminjo estis fraŭlino kaj mi estis simpla knabino. Krom tio ŝi estis bela kaj min variolo tute malbeligis, kiam mi havis ankoraŭ la aĝon de dekdu jaroj. Tial la onklino konstante paroladis: al Eminjo mi donos bonan edukon kaj poste mi ŝin bone edzinigos … Komence ŝi tenis por ŝi guvernantinon, poste ŝi sendis ŝin en ian malgrandan edukejon. Mia patrino komence estis tre afliktita, ke la variolo min tiel terure malbeligis, sed la patro ne tre estis afliktita. — Kio do grava, — li
 
 
 diradis, — ŝi estos malbela, ŝi ne edziniĝos! granda malfeliĉo!
@@ -2413,9 +1951,7 @@ Ho vi, virinaĉoj, virinaĉoj! — li diradis, — laŭ via cerbo, se oni nur ne
 
 —Kaj ĉu vi longe lernis? — demandis Marta, kiu kun ĉiam pli granda intereso aŭskultis la senartifikan rakontadon de la kudristino.
 
-—Ho, mi lernis ne malpli ol tri jarojn, kaj eĉ poste mi ankoraŭ ne povis tuj laborenspezi, sed tutan jaron mi laboris en magazeno senpage, por nur lertiĝi en la altranĉado, en la kudrado per maŝino, kaj por ellabori al mi bonan guston. Sed dank’al tio nun mi estas jam tiel kompetenta, ke mi povus mem fondi kudrejon aŭ magazenon, se mi havus monon, ĉar por tio oni bezonas almenaŭ iom da mono … sed antaŭ tri jaroj nia patro mortis, krom mi restis ĉe la patrino du miaj pli junaj fratoj, el kiuj unu lernoservas ĉe lignaĵisto, kaj la dua vizitas lernejon … por la lernado de ambaŭ estas necese pagi, 132
-
-MARTA
+—Ho, mi lernis ne malpli ol tri jarojn, kaj eĉ poste mi ankoraŭ ne povis tuj laborenspezi, sed tutan jaron mi laboris en magazeno senpage, por nur lertiĝi en la altranĉado, en la kudrado per maŝino, kaj por ellabori al mi bonan guston. Sed dank’al tio nun mi estas jam tiel kompetenta, ke mi povus mem fondi kudrejon aŭ magazenon, se mi havus monon, ĉar por tio oni bezonas almenaŭ iom da mono … sed antaŭ tri jaroj nia patro mortis, krom mi restis ĉe la patrino du miaj pli junaj fratoj, el kiuj unu lernoservas ĉe lignaĵisto, kaj la dua vizitas lernejon … por la lernado de ambaŭ estas necese pagi,
 
 
 kaj ankaŭ al la patrino, kiu estas jam nejuna virino, estas necese havigi ian negrandan komforton.
@@ -2426,9 +1962,7 @@ kaj ankaŭ al la patrino, kiu estas jam nejuna virino, estas necese havigi ian n
 
 almenaŭ por loĝejo ni ne bezonas pagi … cetere sinjorino N.
 
-pagas al mi bone, kaj per tio, kion mi ricevas de ŝi, ni iel aran-
-
-ĝas nian vivon, ke ni ekzistu kaj ke ni pretigu estontecon por la fratoj.
+pagas al mi bone, kaj per tio, kion mi ricevas de ŝi, ni iel aranĝas nian vivon, ke ni ekzistu kaj ke ni pretigu estontecon por la fratoj.
 
 —Mia Dio! — ekkriis Marta, — kiel feliĉa vi estas!
 
@@ -2436,24 +1970,15 @@ pagas al mi bone, kaj per tio, kion mi ricevas de ŝi, ni iel aran-
 
 —ĉu ŝi ne edziniĝis? — demandis Marta.
 
-—Jes, iele tiel fariĝis, ke, kvankam ŝi estis bone edukita kaj bela, ŝi ne edzinigis. ŝia patro perdis sian oficon, kaj de afliktiĝo li malsaniĝis, ĝis nun ankoraŭ li kuŝas en la lito, la kompatindulo, nek vivanta, nek mortinta. ŝia patrino ankaŭ estas malsanema kaj, por diri la veron, virino kapricema kaj mal-pacema; krom Eminjo ŝi havas ĉe si ankoraŭ pli junan filinon kaj filon, kun kiuj ŝi ne havas kion fari, ĉar por la lernado oni ĉie devas pagi, kaj dume hejme regas mizero, malsato, nepa-rolante jam pri … Eminjon la onklino komence pelis al laborado tuj kiam ili malriĉigis, sed krom tio, ke la knabino, eldor-133
+—Jes, iele tiel fariĝis, ke, kvankam ŝi estis bone edukita kaj bela, ŝi ne edzinigis. ŝia patro perdis sian oficon, kaj de afliktiĝo li malsaniĝis, ĝis nun ankoraŭ li kuŝas en la lito, la kompatindulo, nek vivanta, nek mortinta. ŝia patrino ankaŭ estas malsanema kaj, por diri la veron, virino kapricema kaj mal-pacema; krom Eminjo ŝi havas ĉe si ankoraŭ pli junan filinon kaj filon, kun kiuj ŝi ne havas kion fari, ĉar por la lernado oni ĉie devas pagi, kaj dume hejme regas mizero, malsato, nepa-rolante jam pri … Eminjon la onklino komence pelis al laborado tuj kiam ili malriĉigis, sed krom tio, ke la knabino, eldorlotita per baloj kaj belaj vestoj, ne havis grandan deziron labori, montriĝis ankaŭ, ke tiu granda edukiteco, kiun la onklino al ŝi donis, havigis al ŝi nek kapon, nek manojn. ŝi volis esti instruistino, sed ho ve! iom tinti sur fortepiano ŝi povas kaj france ŝi eĉ parolas ne malbone, sed kiam ŝi volis komenci instrui, ŝi tute ne taŭgis … neniu ŝin volis preni … ŝi ricevis iel du lecionojn po dudek spesdekoj por horo, sed eĉ tiujn ŝi baldaŭ ial perdis … Cetere ŝi nenion bone povoscias
 
-MARTA
-
-
-lotita per baloj kaj belaj vestoj, ne havis grandan deziron labori, montriĝis ankaŭ, ke tiu granda edukiteco, kiun la onklino al ŝi donis, havigis al ŝi nek kapon, nek manojn. ŝi volis esti instruistino, sed ho ve! iom tinti sur fortepiano ŝi povas kaj france ŝi eĉ parolas ne malbone, sed kiam ŝi volis komenci instrui, ŝi tute ne taŭgis … neniu ŝin volis preni … ŝi ricevis iel du lecionojn po dudek spesdekoj por horo, sed eĉ tiujn ŝi baldaŭ ial perdis … Cetere ŝi nenion bone povoscias
-
-… kien ajn ŝi venadis, por peti laboron, oni ŝin foririgadis kun nenio; kaj dume hejme la patrino ŝin insultas, ke ŝi ne volas labori, la malsana patro dolorĝemas en la lito, la frato petolas sur la stratoj kaj eble baldaŭ farigos ŝtelisto, la fratino kaŭ-
-
-ze de enuo kaj de malboneco malpacas kun la tuta familio, ili ne havas, kion manĝi, ili ne havas, per kio hejti la fornon …
+… kien ajn ŝi venadis, por peti laboron, oni ŝin foririgadis kun nenio; kaj dume hejme la patrino ŝin insultas, ke ŝi ne volas labori, la malsana patro dolorĝemas en la lito, la frato petolas sur la stratoj kaj eble baldaŭ farigos ŝtelisto, la fratino kaŭze de enuo kaj de malboneco malpacas kun la tuta familio, ili ne havas, kion manĝi, ili ne havas, per kio hejti la fornon …
 
 Eminjo havas bonan koron, tial ŝi terure afliktiĝis, ŝi malgrasiĝis, ni pensis, ke ŝi ricevos ftizon … Fine antaŭ du monatoj ŝi trovis laborenspezon …
 
 —ŝi tamen trovis! — ekkriis Marta kaj ekspiris profunde, kvazaŭ de ŝia brusto defalus ia ĝin premeganta ŝarĝo. Dum ŝi aŭskultis la historion de la kompatinda nekonata knabino, ŝajnis al ŝi, ke iu rakontas la historion de tiuj kelkaj monatoj, kiujn ŝi mem travivis. La simileco inter la malgaja sorto de la knabino kaj ŝia propra sorto vekis en ŝi varmegan kunsenton kaj scivolecon. Klaro tamen silentis dum momento. Nur post kelka pripenso kaj kvazaŭ post iom da ŝanceliĝado ŝi komencis plue paroli per iom nekuraĝa voĉo.
 
-—Kiam vi eliris el nia magazeno, mi penis kuratingi vin sur la strato … feliĉe ĝi estis la tempo, en kiu mi ĉiutage iras hejmen por du horoj, por manĝi tagmanĝon kaj helpi la patrinon en la ordigo de la kuirejo … poste mi denove revenas por 134
-
-MARTA
+—Kiam vi eliris el nia magazeno, mi penis kuratingi vin sur la strato … feliĉe ĝi estis la tempo, en kiu mi ĉiutage iras hejmen por du horoj, por manĝi tagmanĝon kaj helpi la patrinon en la ordigo de la kuirejo … poste mi denove revenas por
 
 
 kvin horoj en la magazenon. Mi elkuris do post vi, por diri al vi, ke se … se vi eble … troviĝas en tia sama situacio, en kia antaŭ du monatoj troviĝis mia kompatinda Eminjo, tiam eble
@@ -2470,12 +1995,7 @@ kun tiu bela anĝeleto, kun kiu vi permesadis al mi de tempo al tempo ludi, kiam
 
 —Kiu do estas tiu sinjorino Szwejc? kie ŝi loĝas? per kio ŝi sin okupas? — demandis Marta kun febra scivoleco kaj maltrankvileco.
 
-—Sinjorino Szwejc havas sur la strato Freta kudrejon, en kiu oni pretigas plej diversajn tolaĵojn. Sed ĝi estas efektive stranga institucio, vasta kaj eĉ tre bonstata, en ĝi laboras ĉir-kaŭ dudek virinoj, kaj tie ne troviĝas eĉ unu maŝino. De pli ol ses jaroj en ĉiuj kudrejoj kaj magazenoj oni kudras nur per maŝinoj, sed Szwejc ne aĉetis eĉ unu maŝinon, por altranĉa-135
-
-MARTA
-
-
-do ŝi okupas nur sin mem kune kun sia filino kaj por kudrado ŝi akceptas tiajn virinojn, kiuj ne scias kudri per maŝino kaj urĝe bezonas laborenspezon … tial ŝi ankaŭ pagas al ili … estas honto kaj doloro paroli pri tiu pagado …
+—Sinjorino Szwejc havas sur la strato Freta kudrejon, en kiu oni pretigas plej diversajn tolaĵojn. Sed ĝi estas efektive stranga institucio, vasta kaj eĉ tre bonstata, en ĝi laboras ĉir-kaŭ dudek virinoj, kaj tie ne troviĝas eĉ unu maŝino. De pli ol ses jaroj en ĉiuj kudrejoj kaj magazenoj oni kudras nur per maŝinoj, sed Szwejc ne aĉetis eĉ unu maŝinon, por altranĉado ŝi okupas nur sin mem kune kun sia filino kaj por kudrado ŝi akceptas tiajn virinojn, kiuj ne scias kudri per maŝino kaj urĝe bezonas laborenspezon … tial ŝi ankaŭ pagas al ili … estas honto kaj doloro paroli pri tiu pagado …
 
 —ĉio ĉi tio ne ŝangas mian decidon, fraŭlino Klaro, -— vive interrompis Marta, — mi ankaŭ, simile al via kuzino, nenion bone povoscias, kaj mi devas iri tien, kie oni malplej postulas.
 
@@ -2485,17 +2005,13 @@ sendube, — ŝi parolis plue, — estas ja pli bone havi ion, ol nenion. Tial, 
 
 —Donu al mi nur la precizan adreson, mi iros mem. Vi ne havas ja multe da libera tempo.
 
-—Ne, mi iros kun vi; mi nur iom malfruiĝos al la tagman-
-
-ĝo, sed tio ne estas grava; mia patrino ne estos maltrankvila pri mi, ĉar okazas iufoje, ke mi restas en la magazeno pli longe ol ordinare, kiam ni havas urĝan laboron. Cetere ankaŭ Eminjon mi jam longe ne vidis, ni iru kune.
+—Ne, mi iros kun vi; mi nur iom malfruiĝos al la tagmanĝo, sed tio ne estas grava; mia patrino ne estos maltrankvila pri mi, ĉar okazas iufoje, ke mi restas en la magazeno pli longe ol ordinare, kiam ni havas urĝan laboron. Cetere ankaŭ Eminjon mi jam longe ne vidis, ni iru kune.
 
 Marta per nova manpremo dankis la bonkoran kudristinon, kaj ambaŭ virinoj ekiris en la direkto al la strato Freta.
 
 Dum la vojo Klaro parolis al Marta:
 
-—Sinjorino Szwejc estas virino nejuna, kaj la homoj diverse rakontas pri ŝia pasinteco. ŝi fondis la kudrejon jam antaŭ dudek jaroj, sed ŝi ne havis grandan sukceson, dum ne ekzistis ankoraŭ maŝinoj por kudrado. Sed de la tempo, kiam oni komencis kudri per maŝinoj, Szwejc riĉiĝis. Tio eble al iu ŝajnos stranga, kaj tamen tiel estas. Mi aŭdis, ke sinjorino N., parolante kun fraŭlino Bronislavo, diris, ke Szwejc ekspluatas la kompatindajn laboristinojn, kiuj malmulte povoscias kaj 136
-
-MARTA
+—Sinjorino Szwejc estas virino nejuna, kaj la homoj diverse rakontas pri ŝia pasinteco. ŝi fondis la kudrejon jam antaŭ dudek jaroj, sed ŝi ne havis grandan sukceson, dum ne ekzistis ankoraŭ maŝinoj por kudrado. Sed de la tempo, kiam oni komencis kudri per maŝinoj, Szwejc riĉiĝis. Tio eble al iu ŝajnos stranga, kaj tamen tiel estas. Mi aŭdis, ke sinjorino N., parolante kun fraŭlino Bronislavo, diris, ke Szwejc ekspluatas la kompatindajn laboristinojn, kiuj malmulte povoscias kaj
 
 
 pro granda mizero estas devigataj labori por pago plej bagatela, kiun ili nur povas trovi. Mi ne komprenas bone, kion tiu vortosignifas, sed ŝajnas al mi, ke se Szwejc faras maljustaĵon al kompatindaj virinoj, tio estas ne sole ŝia kulpo, sed ankaŭ la kulpo de iu alia.
@@ -2512,12 +2028,7 @@ Tra la pordego ili eniris en la korton, mallarĝan, longan, malluman, kiu de kva
 
 En la plej malproksima profundo de la korto, kontraŭe de la pordego, super iom putretanta pordo kaj kelke da ŝtupetoj, pendis mallarĝa kaj longa tabuleto, sur kies malpure-blua fundo grandaj flavaj literoj prezentis la sekvantan surskribon: Kudrejo de vira kaj virina tolaĵo, de B. Szwejc.
 
-Klaro, kondukante post si Martan, eniris en grandan ves-137
-
-MARTA
-
-
-tiblon, en kiu tra mallumo oni povis vidi ŝtuparon, kondukantan al la pli altaj etaĝoj de la domo, kaj ŝi malfermis unu el la pordoj, kiuj trovigis sur ambaŭ flankoj de la vestiblo.
+Klaro, kondukante post si Martan, eniris en grandan vestiblon, en kiu tra mallumo oni povis vidi ŝtuparon, kondukantan al la pli altaj etaĝoj de la domo, kaj ŝi malfermis unu el la pordoj, kiuj trovigis sur ambaŭ flankoj de la vestiblo.
 
 Densa ondo da mucida, malseka aero frapis la vizaĝojn de ambaŭ enirantaj virinoj.
 
@@ -2530,9 +2041,6 @@ Kiam ŝi troviĝis kelke da paŝoj post la sojlo, Klaro salutis per la kapo kelk
 —Bonan tagon, sinjorino Szwejc, — ŝi diris.
 
 Unu el la virinoj, kiuj staris apud la tablo, turnis la vizaĝon al la venintino kaj ekridetis tre afable.
-
-
-MARTA
 
 
 —Ha, ĝi estas vi, fraŭlino Klaro! vi venas certe por viziti vian kuzinon? Fraŭlino Emilio! fraŭlino Emilio!
@@ -2550,9 +2058,7 @@ La du kuzinoj donis al si reciproke la manojn, ilia intersalutiĝo estis mallong
 
 —Sinjorino Szwejc! — ŝi diris, — mi prezentas al vi sinjorinon Marta Swicka, kiu deziras trovi ĉe vi laboron.
 
-Sinjorino Szwejc jam de kelke da minutoj rigardis Martan, sed la esprimon de ŝiaj okuloj oni ne povis vidi, ĉar ili estis 139
-
-MARTA
+Sinjorino Szwejc jam de kelke da minutoj rigardis Martan, sed la esprimon de ŝiaj okuloj oni ne povis vidi, ĉar ili estis
 
 
 kovritaj per okulvitroj. Tamen ŝia voĉo sonis tre afable, dolĉe, preskaŭ ame, kiam ŝi respondis al la vortoj de Klaro:
@@ -2577,12 +2083,7 @@ Sinjorino Szwejc interplektis la manojn sur la brusto kaj klinis la kapon.
 
 Klaro faris senpaciencan movon.
 
-—Mia sinjorino Szwejc, — ŝi diris, — la amo al proksimu-140
-
-MARTA
-
-
-lo estas ĉi tie tute ne ĝustloka. Sinjorino Swicka proponas al vi sian laboron, por kiu vi al ŝi pagados, jen estas la tuta afero. Tio estas tiel same, kiel kiam homo venas en magazenon, prenas komercaĵon kaj metas por ĝi monon sur la tablon. Por kio paroli pri amo al proksimulo?
+—Mia sinjorino Szwejc, — ŝi diris, — la amo al proksimulo estas ĉi tie tute ne ĝustloka. Sinjorino Swicka proponas al vi sian laboron, por kiu vi al ŝi pagados, jen estas la tuta afero. Tio estas tiel same, kiel kiam homo venas en magazenon, prenas komercaĵon kaj metas por ĝi monon sur la tablon. Por kio paroli pri amo al proksimulo?
 
 Sinjorino Szwejc mallaŭte eksopirĝemis.
 
@@ -2611,9 +2112,6 @@ Klaro malkonsente ekskuis la kapon.
 Klaro jam direktis sin al la pordo, sed Marta ne sekvis ŝin.
 
 
-MARTA
-
-
 ŝi staris momenton kvazaŭ alforĝita al la loko, poste ŝi subite levis la kapon kaj diris:
 
 —Mi konsentas pri viaj kondiĉo, sinjorinoj. Mi kudrados po dek horoj ĉiutage por dudek spesdekoj.
@@ -2628,9 +2126,7 @@ La interkonsento estis farita. De la sekvonta tago Marta devis komenci la profes
 
 Pala, enpensa, kun profunda sulko sur la frunto kaj kun fermita buŝo, Marta sidiĝis hodiaŭ ĉe la malgranda fenestro, per vitrecaj okuloj ŝi rigardis la tegmentojn de la ĉirkaŭantaj domoj, kaj per oreloj nekapablaj distingi ian sonon ŝi aŭskultis la bruadon de la granda urbo.
 
-La malgranda cifero de la promesita laborenspezo ne timigis ŝin; pasis ankorau tro malmulte da tempo de tiu tago, kiam ŝi komencis ligadi kaj flikadi la rimedojn por vivo simile al putranta ĉifono, kiu disŝiriĝas kaj disfillas en la mano; ŝi 142
-
-MARTA
+La malgranda cifero de la promesita laborenspezo ne timigis ŝin; pasis ankorau tro malmulte da tempo de tiu tago, kiam ŝi komencis ligadi kaj flikadi la rimedojn por vivo simile al putranta ĉifono, kiu disŝiriĝas kaj disfillas en la mano; ŝi
 
 
 estis ankoraŭ tro nesperta en la bagatelaĵa kalkulado de la malriĉuloj kaj tro nekompetenta pri tiu svarmo da ĉiutagaj detalaĵoj, el kiuj ĉiu estas pli malgranda ol la plej malgranda muŝo kaj tamen falas kiel ŝtona ŝarĝo sur la ŝultrojn de malriĉulo; tial ŝi ne povis tuj kompari la estontan laborenspezon kun la estontaj bezonoj kaj klare rimarki la nesufiĉecon de la unua, la pezon de la lastaj.
@@ -2643,9 +2139,7 @@ Tio estis ŝtupo, sur kiun malleviĝis nur tiuj, al kiuj mankis fortoj por teni�
 
 Tio estis ŝtupo kuŝanta en profundo, kie regas senĉesa mallumo, laboro enuiga, laciga, ne permesanta libere ekspiri, donanta sekan panon al la korpo, tenanta la spiriton sur fera ĉeno de eterna kaj neniam sufiĉe kontentigata bezono de la korpo.
 
-Tio estis ŝtupo, sur kiu araneoj ŝpinis densan araneaĵon kaj ĉirkaŭvolvis la muŝojn, kiuj memvole al ili alflugis, ŝtupo, sur 143
-
-MARTA
+Tio estis ŝtupo, sur kiu araneoj ŝpinis densan araneaĵon kaj ĉirkaŭvolvis la muŝojn, kiuj memvole al ili alflugis, ŝtupo, sur
 
 
 kiu regis ekspluatado kaj premis la kapojn, kiuj kliniĝis humile kun la konscio de sia propra senkapableco.
@@ -2654,44 +2148,32 @@ Neniam, nek en la tagoj de bonstato, nek en la momento de la mizeriĝo, nek en l
 
 Tiun ĉi sorton ŝi akceptis kun febra rapidado kaj kun plena kaj decida preteco, kaj tamen ĝi estis por ŝi surprizo: kvankam la pasintaj tagoj povis ŝin prepari al tia sorto, ĝi tamen estis surprizo.
 
-Per brua, senorda kaj malgaja amaso novaj, ĝis nun ne konataj pensoj atakis la kapon de la juna virino, kiu sidis en la granda, malluma kaj neseka ĉambro de la strato Freta super peco da tolo, kiun ŝi kudris diligente, levante kaj mallevante la manon en harmonia takto kun la dudek manoj, kiuj levi-
-
-ĝadis kaj malleviĝadis ĉirkaŭ ŝi.
+Per brua, senorda kaj malgaja amaso novaj, ĝis nun ne konataj pensoj atakis la kapon de la juna virino, kiu sidis en la granda, malluma kaj neseka ĉambro de la strato Freta super peco da tolo, kiun ŝi kudris diligente, levante kaj mallevante la manon en harmonia takto kun la dudek manoj, kiuj leviĝadis kaj malleviĝadis ĉirkaŭ ŝi.
 
 Veninte ĉi tien la unuan fojon kiel laboristino, Marta pli atente ol la pasintan tagon ekzamenis per la rigardo la gran-danombran anaron de siaj samlaborulinoj kaj samsortulinoj.
 
 Granda estis ŝia miro, kiam ŝi rimarkis, ke la pli granda parto de tiu anaro konsistas el virinoj, kies delikataj vizaĝoj, elastaj talioj kaj blankaj manoj montras devenon el alia socia sfero ol tiu, en kiun ili enfalis: la mateno de ilia vivo tute ne estis simila al ĝia tagmezo kaj vespero. Cetere tie estis virinoj de diversaj agoj, de diversa eksteraĵo kaj videble ankaŭ de diversaj karakteroj.
 
-Unuj el ili sidis sur la seĝoj silente kaj senmove, esceptinte la manojn, kiuj movigadis senĉese. Iliaj kapoj, kiuj en la 144
-
-MARTA
+Unuj el ili sidis sur la seĝoj silente kaj senmove, esceptinte la manojn, kiuj movigadis senĉese. Iliaj kapoj, kiuj en la
 
 
 daŭro de tutaj horoj estis klinitaj super la laboro, en la momento de ĉesado leviĝadis kun videbla pezeco, ĉe la elirado el la laborejo iliaj piedoj treniĝadis malrapide, kaj la senbrilaj pupiloj, preskaŭ ĉiam kovritaj de la ruĝrandaj palpebroj, ne ekflamadis eĉ per unu fajrero, eĉ per unu radio; ne tuŝis ilin eĉ la vido de la tagmeza suno, kiu origis la movoplenajn stratojn de la urbo, nek la sonado de la liberaj homaj voĉoj, kiuj ĉirkaŭis ilin per bruo plena de vivo, kiam ili mutaj kaj sensentaj eliris en la mondon de Dio el sia malgaja laborejo.
 
-Iliaj vestoj estis disŝiritaj, makulitaj de la strata koto; iliaj haroj, tre supraĵe kombitaj, kunvolvitaj sur la malantaŭo de la kapo en formo de bulo, pendis senorde sur la malgrasaj koloj, kaj nur de tempo al tempo ia tola, sed tre pura kaj blanka kolumo, aŭ ia edziĝa ringo, brilanta sur la fingro kaj kon-trastanta kun la tuta mizera eksteraĵo, rememorigadis iajn antaŭajn kutimojn, iajn korajn sentojn kaj ligojn, kiuj fornaĝis en neatingeblan malproksimon sur tro rapidema ondo de senrevena pasinteco. Tio estis estaĵoj, kiuj, jam lacigitaj de la mallonga pasita vojo, senfortigitaj kore kaj mense, kun malsana korpo kaj agonianta spirito, trenis sian malluman, pezan kaj senesperan ekzistadon, obstine kovrante sian vunditan internon per silento kvazaŭ per la lasta vesto, kiun la sorto lasis al ili. Tamen ne ili, ne tiuj senfortiĝintaj korpoj kaj morte malgajaj spiritoj prezentis en la laborejo de sinjorino Szwejc la plej korpremantan vidaĵon. Pli proksime al la fenestroj, simile al kaptitaj birdoj, kiuj inter la kradoj serĉas la lumon de la tago, prenis al si lokon laboristinoj pli junaj, eble ne per siaj jaroj de vivo, sed per siaj jaroj de suferado, kun pli granda vigleco de karaktero, kun obstinaj deziroj en la brusto, kun rideto, kiu, subpremata kaj retenata, tamen ne volis morti en 145
-
-MARTA
+Iliaj vestoj estis disŝiritaj, makulitaj de la strata koto; iliaj haroj, tre supraĵe kombitaj, kunvolvitaj sur la malantaŭo de la kapo en formo de bulo, pendis senorde sur la malgrasaj koloj, kaj nur de tempo al tempo ia tola, sed tre pura kaj blanka kolumo, aŭ ia edziĝa ringo, brilanta sur la fingro kaj kon-trastanta kun la tuta mizera eksteraĵo, rememorigadis iajn antaŭajn kutimojn, iajn korajn sentojn kaj ligojn, kiuj fornaĝis en neatingeblan malproksimon sur tro rapidema ondo de senrevena pasinteco. Tio estis estaĵoj, kiuj, jam lacigitaj de la mallonga pasita vojo, senfortigitaj kore kaj mense, kun malsana korpo kaj agonianta spirito, trenis sian malluman, pezan kaj senesperan ekzistadon, obstine kovrante sian vunditan internon per silento kvazaŭ per la lasta vesto, kiun la sorto lasis al ili. Tamen ne ili, ne tiuj senfortiĝintaj korpoj kaj morte malgajaj spiritoj prezentis en la laborejo de sinjorino Szwejc la plej korpremantan vidaĵon. Pli proksime al la fenestroj, simile al kaptitaj birdoj, kiuj inter la kradoj serĉas la lumon de la tago, prenis al si lokon laboristinoj pli junaj, eble ne per siaj jaroj de vivo, sed per siaj jaroj de suferado, kun pli granda vigleco de karaktero, kun obstinaj deziroj en la brusto, kun rideto, kiu, subpremata kaj retenata, tamen ne volis morti en
 
 
 la koro nek sur la buŝo. Iliaj vizaĝoj estis palaj kaj malgrasaj, iliaj vestoj estis tre malriĉaj. Sed sub la palaj fruntoj tie brilis okuloj, kiuj preskaŭ ĉiuminute leviĝadis de super la laboro, serĉadis per la rigardo la rigardon de la kamaradinoj; iufoje tiuj okuloj estis petolemaj, pli of te insultemaj kaj malicaj, aŭ ankoraŭ malpacience sin tiregantaj ien, ekster la malsekajn mallumajn murojn de la ĉambro. De tempo al tempo inter la kaviĝintaj, preskaŭ ĉiutage pli flaviĝantaj vangoj aperadis ridetoj, kiuj per sia esprimo similis la esprimon de la rigardoj: petolemaj, sarkasmaj, sopiraj aŭ revemaj. Tie estis kapoj belege kovritaj de abundaj harligoj, inter kiuj iufoje per roza aŭ blua koloro brilis ia rubandeto, kokardo aŭ simple peceto da ŝtofo; iufoje laĉo da koloraj koraletoj ĉirkaŭis la kolon, kvazaŭ spitante la truojn kaj flikojn de la talivesto, al kiu ĝi devis servi kiel ornamo. Kaj ĉiuj tiuj rigardoj, ridetoj kaj ornamoj prezentis pli dolorigan kaj pli enigman vidaĵon ol la silentado, senforteco kaj sensenteco de la aliaj laboristinoj. Oni povis vidi en ili obstinan bataladon de la sentoj kaj deziroj kontraŭ la premantaj kondiĉoj de la ekzistado, de revado pri lukso kontraŭ la profunda mizero. Tie fariĝis jam falo pasiva, ĉi tie ŝajne minacis ĉiumomente falo aktiva. Tiuj mizerulinoj estis jam proksimaj al la fino de la tera migrado, ĉi tiuj proksimiĝadis al la komenco de vivo krima. Antaŭ tiuj estis malfermiĝanta la tombo, antaŭ ĉi tiuj — morala marĉo.
 
 Kiam sinjorino Szwejc kaj ŝia filino staris ĉe la granda nigra tablo, en la laborejo regis ŝajne absoluta silento, kaj la solaj aŭdeblaj sonoj estis la akra sonado de la grandegaj tondiloj, kiuj preskaŭ senĉese estis movataj de la spertaj manoj.
 
-Sed tiu silento estis nur ŝajna; krom la sola reganta sonado tie estis multo da sonoj aliaj, neklaraj, interrompataj, sed 146
-
-MARTA
+Sed tiu silento estis nur ŝajna; krom la sola reganta sonado tie estis multo da sonoj aliaj, neklaraj, interrompataj, sed
 
 
-tamen formantaj brueton senĉesan kaj nelaŭte ondantan, de tempo al tempo eksplodantan kvazaŭ malpacience kaj poste denove mallaŭtiĝantan kaj perdiĝantan en la silento. Tiu brueto konsistis el la susurado de pli ol kvardek moviĝantaj manoj, el la spirado de dudek brustoj, el tusado seka kaj mallonga aŭ farta kaj daŭra, el la murmurado de apenaŭ movi-
-
-ĝantaj buŝoj, el mallaŭtaj kaj rapide silentigataj ekridoj. La laboristinoj, kiuj sidis en la profundo de la laborejo, tusis; la laboristinoj, kiuj okupis la lokojn ĉe la fenestroj, murmuretis kaj ekridadis. Sinjorino Szwejc de tempo al tempo levadis la kapon kaj tra la okulvitroj ĵetadis atentan rigardon tra la tuta ĉambro. ŝiaj okuloj penetreme brilis tra la dikaj vitroj: ŝi ob-servadis la laboradon. De tempo al tempo ŝi metadis la tondilon sur la tablon kaj per tirata miela voĉo komencadis longan parolon.
+tamen formantaj brueton senĉesan kaj nelaŭte ondantan, de tempo al tempo eksplodantan kvazaŭ malpacience kaj poste denove mallaŭtiĝantan kaj perdiĝantan en la silento. Tiu brueto konsistis el la susurado de pli ol kvardek moviĝantaj manoj, el la spirado de dudek brustoj, el tusado seka kaj mallonga aŭ farta kaj daŭra, el la murmurado de apenaŭ moviĝantaj buŝoj, el mallaŭtaj kaj rapide silentigataj ekridoj. La laboristinoj, kiuj sidis en la profundo de la laborejo, tusis; la laboristinoj, kiuj okupis la lokojn ĉe la fenestroj, murmuretis kaj ekridadis. Sinjorino Szwejc de tempo al tempo levadis la kapon kaj tra la okulvitroj ĵetadis atentan rigardon tra la tuta ĉambro. ŝiaj okuloj penetreme brilis tra la dikaj vitroj: ŝi ob-servadis la laboradon. De tempo al tempo ŝi metadis la tondilon sur la tablon kaj per tirata miela voĉo komencadis longan parolon.
 
 ŝi parolis pri tio, ke en aliaj laborejoj la laboristinoj perdas la sanon super la maŝinoj, kiuj, kiel oni scias, forkonsumas la fortojn kaj kaŭzas diversajn difektojn de la korpo, kaj ke ŝi forrifuzis ĉiujn profitojn, kiujn ŝi povus akiri per enkonduko de maŝinoj en sian laborejon, sole por ne ŝarĝi sian konsciencon per la peko de ruinigado de la sano de proksimuloj. ĉar la konscienco estas la plej grava afero, ĉio alia estas vanta monserĉado. ŝi metas al siaj laboristinoj nur unu postulon: nome, ke iliaj moroj estu senmakulaj. Sed en ĉi tiu rilato ŝi estas absolute necedema: unue pro tio, ke ŝi ne volas, ke ŝia laborejo havu karakteron neĉastan, due ĉar ŝi timas perdi la klientaron el la honorindaj sferoj kaj sekve enfali en mizeron kune kun siaj infanoj kaj genepoj.
 
-La laboristinoj aŭskultadis tiujn parolojn en profunda silento. Supozeble inter ili ne estis eĉ unu, kiu kredus la vortojn 147
-
-MARTA
+La laboristinoj aŭskultadis tiujn parolojn en profunda silento. Supozeble inter ili ne estis eĉ unu, kiu kredus la vortojn
 
 
 de sinjorino Szwejc; supozeble ili ĉiuj sciis, ke ili estas eksplu-atataj, kaj tamen ili aŭskultis kaj humile silentis. Ili sciis, ke ekster la muroj de tiu ĉambro, en kiu ili nun troviĝas, por neniu el ili ekzistas io krom tombo aŭ marĉo.
@@ -2700,24 +2182,16 @@ De tempo al tempo sinjorino Szwejc aŭ ŝia filino forlasa-dis la laborejon, eli
 
 Nenio tamen ŝin lacigis, eĉ nenio nova ŝin malĝojigis. Sed sento de teruro ŝin penetris ĝis la profundo de la brusto kaj de la cerbo.
 
-Subtilgustaj legantoj kaj antaŭ ĉio vi, sentemaj kaj impres-avidaj legantinoj, ĉu vi pardonos al mi ĉi tiun mian rakonton, kiu tute ne enhavas misteran nodon de intrigo kaj interesan vidaĵon de du koroj trapikitaj de flamaj sagoj? ĉiun aperon, kiu servas kiel objekto por rakonto, oni povas trakti divers-maniere. La historio de la malfeliĉa Marta anstataŭ disvolviĝi 148
-
-MARTA
+Subtilgustaj legantoj kaj antaŭ ĉio vi, sentemaj kaj impres-avidaj legantinoj, ĉu vi pardonos al mi ĉi tiun mian rakonton, kiu tute ne enhavas misteran nodon de intrigo kaj interesan vidaĵon de du koroj trapikitaj de flamaj sagoj? ĉiun aperon, kiu servas kiel objekto por rakonto, oni povas trakti divers-maniere. La historio de la malfeliĉa Marta anstataŭ disvolviĝi
 
 
-antaŭ viaj okuloj en formo de unuspeca kaj unukolora fadeno, certe povus esti ornamita, beligita per multo da kruci-
-
-ĝantaj sentoj, frapantaj kontrastoj, tondrosimilaj okazaĵoj; ĝi povus esti implikita en kronon da epizodoj, el kiuj ĉiu aparte donus al ĝi belecon, ĉarmon aŭ terurecon, aŭ la historio mem povus esti prezentita epizode, kiel plenigo de ia pli efek-ta kaj interesega tutaĵo, kiel paralelaĵo aldonita al la historio de du geamantoj feliĉaj aŭ malfeliĉagaj, idiliaj aŭ heroaj, fa-vorataj de la sorto aŭ persekutataj de ĝi.
+antaŭ viaj okuloj en formo de unuspeca kaj unukolora fadeno, certe povus esti ornamita, beligita per multo da kruciĝantaj sentoj, frapantaj kontrastoj, tondrosimilaj okazaĵoj; ĝi povus esti implikita en kronon da epizodoj, el kiuj ĉiu aparte donus al ĝi belecon, ĉarmon aŭ terurecon, aŭ la historio mem povus esti prezentita epizode, kiel plenigo de ia pli efek-ta kaj interesega tutaĵo, kiel paralelaĵo aldonita al la historio de du geamantoj feliĉaj aŭ malfeliĉagaj, idiliaj aŭ heroaj, fa-vorataj de la sorto aŭ persekutataj de ĝi.
 
 Pardonu! Renkontinte en la mondo Martan, mi rigardis ĉirkaŭen, mi serĉis, sed nenie en la proksimo mi trovis ian ro-manan heroon. Ne trovinte lin, mi volis la historion de la virino mallongigi, kunpremi kaj fermi en epizodo, — sed mi ne povis, ĉar mi konsciis, ke ĝi estas inda apartan tutaĵon; fine mi intencis impliki ĝin en interplekton da intrigoj, en kronon da epizodoj, — mi tamen tion ne faris, ĉar ŝajnis al mi, ke la historio aspektos plej konvene, se ĝi iros en la mondon sola.
 
-Pardonu la simplecon de la rimedoj, kiujn mi uzas, por prezenti al vi unu el la plej plendegindaj aperoj de la nuntem-pa socia stato, kaj sekvu min pluen sur la vojo, sur kiu mar-
+Pardonu la simplecon de la rimedoj, kiujn mi uzas, por prezenti al vi unu el la plej plendegindaj aperoj de la nuntem-pa socia stato, kaj sekvu min pluen sur la vojo, sur kiu marŝas la malgaja figuro de malriĉa virino, kiu eble estas inda pli bonan sorton ol tiu, al kiu submetis ŝin … kio? La nomon de tiu ĉi ”kio”, kiu premas la kapojn kvazaŭ fatala malbeno, im-plikas la piedojn kaj frakasas la korojn de multo da homaj estaĵoj, vi legos en la historio de Marta.
 
-ŝas la malgaja figuro de malriĉa virino, kiu eble estas inda pli bonan sorton ol tiu, al kiu submetis ŝin … kio? La nomon de tiu ĉi ”kio”, kiu premas la kapojn kvazaŭ fatala malbeno, im-plikas la piedojn kaj frakasas la korojn de multo da homaj estaĵoj, vi legos en la historio de Marta.
-
-Varsovio ĝojis, bruis, brilis, Estis tago festa. Apenaŭ antaŭ kelke da tagoj estingiĝis la helegaj lumoj, ekbruligitaj inter la verdaj branĉoj de la kristnaskaj abioj, kaj en la aero kvazaŭ tremis kaj saltis ĝoje la gamoj de la ridado de la infanoj kaj la bruaj interparoloj de la feliĉaj familioj, kolektiĝintaj ĉirkaŭ la 149
-
-MARTA
+Varsovio ĝojis, bruis, brilis, Estis tago festa. Apenaŭ antaŭ kelke da tagoj estingiĝis la helegaj lumoj, ekbruligitaj inter la verdaj branĉoj de la kristnaskaj abioj, kaj en la aero kvazaŭ tremis kaj saltis ĝoje la gamoj de la ridado de la infanoj kaj la bruaj interparoloj de la feliĉaj familioj, kolektiĝintaj ĉirkaŭ la
 
 
 feste arangitaj tabloj. En la venonta tago estis venonta en la mondon mistera gasto: nova jaro. La internoj de la domoj kaj la ekspoziciaj fenestroj de la magazenoj aspektis tre bele. La stratojn kovris dika tavolo da neĝo rigidiĝinta de frosto kaj brilanta per milionoj da fajreretoj sub la radioj de la suno, kiu bele lumis sur la serena ĉielo.
@@ -2730,18 +2204,14 @@ sep kaj duono da spesdekoj la pano kaj lakto por la infano …
 
 sep kaj duono da spesdekoj la tagmanĝo … por ĉiu dimanĉo restas jam nenio.
 
-Tiaj estis la pensoj de Marta, kiam ŝi iris malrapide kaj kun 150
-
-MARTA
+Tiaj estis la pensoj de Marta, kiam ŝi iris malrapide kaj kun
 
 
 klinita kapo sur la trotuaro de la strato Krakowskie Przedmiescie.
 
 —Por du monatoj por la loĝejo mi ŝuldas sep spesmilojn …
 
-al la butiko mi ŝuldas tri spesmilojn … por la vendita pelto mi ricevis dekkvin spesmilojn … deprenite dek de dekkvin … restas kvin … Janjo necesege bezonas ŝuojn, miaj ankaŭ jam dis-
-
-ŝiriĝas … lignon mi nepre bezonas aĉeti … al la infano ĉiam estas malvarme …
+al la butiko mi ŝuldas tri spesmilojn … por la vendita pelto mi ricevis dekkvin spesmilojn … deprenite dek de dekkvin … restas kvin … Janjo necesege bezonas ŝuojn, miaj ankaŭ jam disŝiriĝas … lignon mi nepre bezonas aĉeti … al la infano ĉiam estas malvarme …
 
 Finante la lastan penson, Marta ektusis per seka, mallonga sed turmenta tuso. Pasis monato depost la tago en kiu ŝi la unuan fojon sidiĝis kiel laboristino en la laborejo de sinjorino Szwejc; en la daŭro de ĉi tiu tempo ŝi tre ŝangigis. Tra la diafana blankeco de ŝia vizaĝo en diversaj lokoj montriĝis flavaj strioj; mallumaj arkoj aperis sub la okuloj, kiuj kavigis kaj vastiĝis; meze de la ĉarmege bela frunto troviĝis sulko. La nigra vesto de Marta, pura, sed bruniĝinta de uzado, aspektis bonorda, sed malnova; sur la kapo de Marta ne troviĝis ĉapelo, kaj sur la ŝultroj ne troviĝis peltaĵo. Nigra lana tuko kovris ŝiajn harojn, ĉirkaŭante per dikaj faldoj la palan frunton kaj la kaviĝintajn vangojn.
 
@@ -2753,12 +2223,7 @@ naŭ deprenite de dudek estas dek-unu …
 
 Kia bagatelama, malalta, seka estis tiu ĉi penso! i rampis sur la tero, dum la vintra ĉielo brilis per la plej pura lazuro,
 
-ĝi rigidiĝis en la malvarmo de la ciferoj, dum ĉe la alproksi-151
-
-MARTA
-
-
-migado de la nova jaro la homaro bolis de deziroj, sentoj, esperoj …
+ĝi rigidiĝis en la malvarmo de la ciferoj, dum ĉe la alproksimigado de la nova jaro la homaro bolis de deziroj, sentoj, esperoj …
 
 Jes; tia spirita akto en la interno de homa estajo estis efektive tre proza kaj malalta, ĝi estis spesa kaj groŝa kalkulo de malriĉeco …
 
@@ -2770,27 +2235,19 @@ Tamen ne ĉiam la pensoj de Marta rampis tiel malalte; estis iam tempo, kiam ŝi
 
 —Ne! tiel daŭri ne povas! tiel ĉiam esti ne devas!
 
-ŝi ekpaŝis pluen kaj diris al si en la pensoj, ke tio estas ja ne ebla, tute ne ebla, ke la decidita, sola, ĝismorta loko de ŝia sorto estu tiu seĝo en la laborejo de sinjorino Szwejc, tiu seĝo, sur kiu, meze de mallumo, malsekeco, mucida aero, inter konsumiĝintaj, mortantaj vizaĝoj, ŝi kudradis en la daŭro de tutaj tagoj, ne povante rekompence laborenspezi almenaŭ tiom, ke ŝi povu en la nokto dormi trankvile kaj la minutojn 152
-
-MARTA
+ŝi ekpaŝis pluen kaj diris al si en la pensoj, ke tio estas ja ne ebla, tute ne ebla, ke la decidita, sola, ĝismorta loko de ŝia sorto estu tiu seĝo en la laborejo de sinjorino Szwejc, tiu seĝo, sur kiu, meze de mallumo, malsekeco, mucida aero, inter konsumiĝintaj, mortantaj vizaĝoj, ŝi kudradis en la daŭro de tutaj tagoj, ne povante rekompence laborenspezi almenaŭ tiom, ke ŝi povu en la nokto dormi trankvile kaj la minutojn
 
 
 ne okupitajn de laboro liberigi de la rigardo de ciferoj, kiuj prezentas nur groŝojn.
 
-Per sia naskiĝo, per sia tuta pasinteco ŝi apartenis ja al la klaso da homoj kleraj, ŝi estis rigardata kaj sin mem ĉiam rigardis kiel virinon kleran. Kial do, kiam ŝin tuŝis la malmola mano de la sorto, ŝi en la socia hierarhio, en la regiono de la homaj laboroj, profitoj kaj honoroj stariĝis sur tiu plej malalta ŝtupo, sur kiu opinieble devis stari nur la plej malfeliĉaj, troviĝantaj plej malproksime de tiuj bonfaroj, rimedoj kaj iloj, kiujn al homoj donas klereco? ĉu tiu ŝia klereco eble de ia grava flanko estas tute kripla? ĉu ĝi estas nur ludilo, kiu estas skulptita kaj ornamita por amuzo de trankvila spirito, lo-
-
-ĝanta en sata kaj kontenta korpo, kaj kiu disfalas kiel tute sentaŭga putraĵo ĉiufoje, kiam la spirito ekdeziras uzi ĝin por sin gardi kontraŭ senfortigo kaj falo aŭ gardi la korpon kontraŭ perdo de la fortoj, kiuj nutras la spiriton? ĉu tiu klereco eble estas nur iluzio? La klereco en tiu mezuro kaj formo, en kiuj Marta ĝin posedis, vekis dezirojn, donante nenion, kio povus akiri kontentiĝon por ili; ĝi nutris sopirojn por la spirito, alforĝante ĝin tamen al la tero per katenoj de malsata korpo; ĝi fortigis en la koro la sentojn nur por tio, ke ĝi faru ilin pli maldolĉaj, ke ĝi skuu ilin per plej kruelaj suferoj …
+Per sia naskiĝo, per sia tuta pasinteco ŝi apartenis ja al la klaso da homoj kleraj, ŝi estis rigardata kaj sin mem ĉiam rigardis kiel virinon kleran. Kial do, kiam ŝin tuŝis la malmola mano de la sorto, ŝi en la socia hierarhio, en la regiono de la homaj laboroj, profitoj kaj honoroj stariĝis sur tiu plej malalta ŝtupo, sur kiu opinieble devis stari nur la plej malfeliĉaj, troviĝantaj plej malproksime de tiuj bonfaroj, rimedoj kaj iloj, kiujn al homoj donas klereco? ĉu tiu ŝia klereco eble de ia grava flanko estas tute kripla? ĉu ĝi estas nur ludilo, kiu estas skulptita kaj ornamita por amuzo de trankvila spirito, loĝanta en sata kaj kontenta korpo, kaj kiu disfalas kiel tute sentaŭga putraĵo ĉiufoje, kiam la spirito ekdeziras uzi ĝin por sin gardi kontraŭ senfortigo kaj falo aŭ gardi la korpon kontraŭ perdo de la fortoj, kiuj nutras la spiriton? ĉu tiu klereco eble estas nur iluzio? La klereco en tiu mezuro kaj formo, en kiuj Marta ĝin posedis, vekis dezirojn, donante nenion, kio povus akiri kontentiĝon por ili; ĝi nutris sopirojn por la spirito, alforĝante ĝin tamen al la tero per katenoj de malsata korpo; ĝi fortigis en la koro la sentojn nur por tio, ke ĝi faru ilin pli maldolĉaj, ke ĝi skuu ilin per plej kruelaj suferoj …
 
 Marta pensis pri tio kaj sentis ĉion ĉi tion, sed ŝi ne ĝene-raligis siajn pensojn kaj sentojn, ŝi ne konsciis precize la tre komplikitan fenomenon, kiu regis ŝian sorton. ŝi alkroĉiĝadis nur al unu rememoro, ŝi ripetadis al si nur tiun fakton, ke ŝi apartenas al homoj kleraj, por kiuj tiom, tiom da vojoj estas ja nebaritaj.
 
-ĉu ŝi por ĉiam devas resti sur tiu vojo, sur kiu ŝi nun haltis? ĉu sur la tero ekzistas por ŝi nenia alia loko krom tiu, al 153
-
-MARTA
+ĉu ŝi por ĉiam devas resti sur tiu vojo, sur kiu ŝi nun haltis? ĉu sur la tero ekzistas por ŝi nenia alia loko krom tiu, al
 
 
-kiu ŝi venadis kun honto kaj pri kiu ŝi de malproksime pensis kun teruro? Estas vero, ke ŝi petegis Dion pri malgranda, modesta loko sub la suno, pri tia loko, sur kiu du homaj esta-
-
-ĵoj, ligitaj inter si per la plej fortaj kaj plej sanktaj ligiloj kaj sentoj, povus vivi; sed tiu loko, kiu post multaj provoj kaj penoj estis donita al ŝi, ne estas loko sub la suno, ĝi estas nur malluma abismo, en kiu du homaj estajoj ne vivas, sed, kate-nitaj per la plej simplaj, plej malaltaj kaj neniam kontentiga-taj, neniam finiĝantaj bezonoj, malrapide mortas.
+kiu ŝi venadis kun honto kaj pri kiu ŝi de malproksime pensis kun teruro? Estas vero, ke ŝi petegis Dion pri malgranda, modesta loko sub la suno, pri tia loko, sur kiu du homaj estaĵoj, ligitaj inter si per la plej fortaj kaj plej sanktaj ligiloj kaj sentoj, povus vivi; sed tiu loko, kiu post multaj provoj kaj penoj estis donita al ŝi, ne estas loko sub la suno, ĝi estas nur malluma abismo, en kiu du homaj estajoj ne vivas, sed, kate-nitaj per la plej simplaj, plej malaltaj kaj neniam kontentiga-taj, neniam finiĝantaj bezonoj, malrapide mortas.
 
 Jes: ili malrapide mortadis. Tio estis nenia metaforo, sed terura efektivaĵo. Antaŭ nelonge ankoraŭ Marta, pripensan-te la situacion, en kiun ŝi enfalis, kaj la devojn, kiuj ekpremis ŝian koron kaj konsciencon, ripetadis al si kiel kuraĝigon kaj konsolon: mi estas juna kaj sana. Hodiaŭ nur duono de tiuj vortoj prezentis veron: ŝi estis juna, sed ŝi jam ne estis sana.
 
@@ -2800,9 +2257,7 @@ Marta tusadis, depost kelke da tagoj ŝi komencis sentadi
 
 ĝis nun ne konitan malfortecon, ŝiaj sonĝoj estis febraj, ŝi vekiĝadis el ili kun peza kapo kaj doloranta brusto.
 
-Tiamaniere verŝajne komencis sian karieron tiuj laboristinoj, nun duone mortintaj, kun ftiza ruĝo sur la vizaĝoj. An-taŭ nelonge unu el ili forlasis la laborejon de sinjorino Szwejc kelke da horoj pli frue ol postulis la regularo, kaj ŝi plu ne revenis. Kiam la sekvantan tagon Marta demandis pri ŝi siajn kamaradinojn, el dekkelke da buŝoj eksonis en la salono ne-laŭta, tamen korŝiranta murmureto: mortis! Mortis? Kaj tamen Marta sciis, ke tiu laboristino havis la aĝon de apenaŭ dudek-ses jaroj kaj ke ie en subtegmento aŭ en subteretaĝo 154
-
-MARTA
+Tiamaniere verŝajne komencis sian karieron tiuj laboristinoj, nun duone mortintaj, kun ftiza ruĝo sur la vizaĝoj. An-taŭ nelonge unu el ili forlasis la laborejon de sinjorino Szwejc kelke da horoj pli frue ol postulis la regularo, kaj ŝi plu ne revenis. Kiam la sekvantan tagon Marta demandis pri ŝi siajn kamaradinojn, el dekkelke da buŝoj eksonis en la salono ne-laŭta, tamen korŝiranta murmureto: mortis! Mortis? Kaj tamen Marta sciis, ke tiu laboristino havis la aĝon de apenaŭ dudek-ses jaroj kaj ke ie en subtegmento aŭ en subteretaĝo
 
 
 vivis kaj ĉiutage atendadis ŝian revenon du malgrandaj infanoj.
@@ -2826,9 +2281,6 @@ Sed la estonteco de ŝia infano … kia ĝi estos, kia ĝi povas esti, se ŝi ne
 La figuro de Marta, kiu enpense estis iom klinita antaŭen, elrektiĝis. Ne! mallaŭte sed forte eldiris la julia virino, tiel ne povas esti! Tiel ne devas esti!
 
 
-MARTA
-
-
 Dirante tion, ŝi videble sentis la en ĉiu homo denature tro-vigantan deziron eltiri sin el mizero kaj la al ĉiu homo apar-tenantan rajton plibonigi kaj plialtigi sian ekzistadon.
 
 Marta ekrigardis ĉirkaŭen per okuloj, en kiuj anstataŭ la antaŭmomenta malĝojeco kaj laceco aperis denove energio kaj esploremeco. Multe da objektoj ĉirkaŭis ŝin de ĉiuj flankoj; sur unu el ili ŝia rigardo haltis. Tiu objekto, kiu alforĝis al si la rigardon de Marta, estis larĝa kaj alta fenestro kun riĉa ekspozicio de unu el la plej grandaj librejoj de la urbo. ĉe la vido de la dekkelke da libroj, kies diverskoloraj kovroj vidiĝis malantaŭ la klaraj vitroj, en la juna virino aperis tri diversaj sentoj, nome: rememoro, sopiro kaj espero. ŝi rememoris tiujn feliĉajn tagojn, kiam, apogante sin al la brako de juna kaj klera edzo, ŝi ofte venadis en ĉi tiun lokon. Sopirante pri pli altaj spiritaj plezuroj, kiujn ŝi iam de tempo al tempo ĝuadis, je kiuj ŝi jam de longe estis tute senigita kaj kiuj sur la malluma fono de ŝia nuna vivo ekbrilis antaŭ ŝi per neesprimebla ĉarmo, ŝi ekvidis subite kelke da virinaj nomoj, presitaj sub la titoloj de libroj. El tiuj nomoj unu apartenis al persono, kiun ŝi iam konis, en kiu neniu suspektis ian talenton ĝis tiu tempo, kiam ŝi ĝin aperigis kun iom-post-ioma, tre malrapide kreskanta sukceso. Kaj tamen nun ŝia nomo okupis honoran lokon inter multe da famaj kaj gloraj nomoj de la landaj verkistoj; nun tiu virino, pri kiu Marta sciis, ke ŝi estis antaŭe soleca kiel ŝi kaj malriĉa kiel ŝi, posedis lokon sub la suno, estimon de homoj kaj de si mem.
@@ -2836,9 +2288,6 @@ Marta ekrigardis ĉirkaŭen per okuloj, en kiuj anstataŭ la antaŭmomenta malĝ
 —Kiu scias? — murmuretis la virino per tremantaj lipoj, kaj ŝia pala vizaĝo ruĝe ekflamis inter la nigraj lanaj faldoj, kiuj ĉirkaŭis ĝin en formo de malgaja kadro.
 
 ŝi faris kelke da paŝoj kaj haltis antaŭ la pordo de la librejo.
-
-
-MARTA
 
 
 ŝi ĵetis rigardon tra la fenestran vitron kaj ekvidis en la profundo de la granda salono la posedanton de la librejo. Tio estis vizaĝo, kiun ŝi iam bone konis, kiun ŝi en siaj bonstataj tagoj ofte vidadis, vizaĝo pensema, honesta kaj milda … ĉe la vitrita pordo eksonis la sonorilo, Marta eniris en la librejon.
@@ -2856,9 +2305,6 @@ Jam de la momento de ŝia eniro la libristo tre atente ŝin rigardis.
 —Efektive, — li ekkriis, — sinjorinon Swicka mi havas ja la plezuron vidi! ŝajnis al mi tuj en la komenco, ke mi vin rekonas, sed … mi ne estis certa.
 
 Dirante tion, li ĵetis rapidan ĉirkaŭrigardon sur la malriĉajn vestojn de la juna virino.
-
-
-MARTA
 
 
 —Per kio mi povas servi? — li diris ĝentile kaj kun facila nuanco de malgajeco en la voĉo.
@@ -2887,9 +2333,7 @@ La libristo faris denove respektan saluton.
 
 —Mi scias, ke vi estas ne sole librovendisto, sed ankaŭ libr-eldonisto … ke sekve …
 
-ŝia voĉo kun ĉiu vorto estis pli malforta kaj pli mallaŭta, por momento ŝi silentiĝis. Subite ŝi denove levis la kapon, la 158
-
-MARTA
+ŝia voĉo kun ĉiu vorto estis pli malforta kaj pli mallaŭta, por momento ŝi silentiĝis. Subite ŝi denove levis la kapon, la
 
 
 interplektitajn manojn ŝi etendis antaŭen kaj ekspiris profunde kelke da fojoj.
@@ -2918,29 +2362,15 @@ sinjoro Swicki mortante lasis post si nenian havon?
 
 —Mizerego, — ripetis Marta, —se ĝi estus nur mizerego kaj nur por mi kaj se ĝi almenaŭ estus tia, kontraŭ kiu ekzistas jam nenia helpo! Ho, kredu al mi, sinjoro, ke mi estus kapabla suferi kuraĝe, vivi sen almozpetado kaj morti sen plendo!
 
-Sed mi ne estas sola, mi estas patrino! Se mi ne havus patrinan koron, kiu amas, mi aŭdus en mi la voĉon de la konsci-159
-
-MARTA
-
-
-enco, kiu memorigas pri la devo; se mi ne havus konsciencon, kiu amas, mi aŭdus la voĉon de la koro. Mi havas ilin ambaŭ, sinjoro! Malespero min kaptas, kiam mi rigardas la malgrasiĝintan vizaĝon de mia infano, kiam mi pensas pri ĝia estonteco; sed kiam mi rememoris, ke mi ĝis nun kapablis fari por
+Sed mi ne estas sola, mi estas patrino! Se mi ne havus patrinan koron, kiu amas, mi aŭdus en mi la voĉon de la konscienco, kiu memorigas pri la devo; se mi ne havus konsciencon, kiu amas, mi aŭdus la voĉon de la koro. Mi havas ilin ambaŭ, sinjoro! Malespero min kaptas, kiam mi rigardas la malgrasiĝintan vizaĝon de mia infano, kiam mi pensas pri ĝia estonteco; sed kiam mi rememoris, ke mi ĝis nun kapablis fari por
 
 ĝi nenion, farigas al mi tiel honte, ke mi ĉiumomente dezirus fali sur la teron kaj ruli mian kapon en la polvo! ĉar ekzistas ja homoj malriĉaj, kiuj sin kaj siajn infanojn eltiras el mizero, kial do mi ne povas tion fari? Ho, sinjoro! Peza mizero certe estas eltenebla, sed senti sin malforta kontraŭ ĝi, ĵeti sin al ĉio kaj de ĉie foriri returne kun konscio de sia propra senkapableco, suferi kaj vidi, ke amata estaĵo suferas hodiaŭ, kaj pensi pri tio, ke ĉi tiu suferado daŭros morgaŭ, postmorgaŭ, ĉiam, kaj diri al si: kontraŭ ĉi tiu suferado mi nenion povas fari … ho, tio estas tia turmentiĝo, por kiu ekzistas nur unu nomo: vivo de malriĉa virino!
 
-Marta eldiris tiujn vortojn rapide kaj flame. ĉe la lastaj vortoj ŝia voĉo farigis malpli laŭta kaj du riveretoj da larmoj kun neretenebla forto verŝiĝis sur ŝiajn vangojn. ŝi kovris la viza-
+Marta eldiris tiujn vortojn rapide kaj flame. ĉe la lastaj vortoj ŝia voĉo farigis malpli laŭta kaj du riveretoj da larmoj kun neretenebla forto verŝiĝis sur ŝiajn vangojn. ŝi kovris la vizaĝon per la tuko kaj dum momento staris senmove, batalante kontraŭ la larmoj, kiuj ne volis ĉesi, penante reteni la ploron, kiu ĉiam pli forte skuis ŝian bruston. La unuan fojon ŝi nun ekploris en ĉeesto de alia persono; la unuan fojon ŝi nun eldiris en formo de laŭta plendo tion, kion ŝi portis en si de longe. ŝi estis jam nek tiel forta nek tiel fiera kiel tiam, kiam en la domo de gesinjoroj Rudzinski ŝi kun sekaj okuloj kaj trankvila vizaĝo forrifuzis la laboron, kiun ŝi ne estis kapabla plenumi.
 
-ĝon per la tuko kaj dum momento staris senmove, batalante kontraŭ la larmoj, kiuj ne volis ĉesi, penante reteni la ploron, kiu ĉiam pli forte skuis ŝian bruston. La unuan fojon ŝi nun ekploris en ĉeesto de alia persono; la unuan fojon ŝi nun eldiris en formo de laŭta plendo tion, kion ŝi portis en si de longe. ŝi estis jam nek tiel forta nek tiel fiera kiel tiam, kiam en la domo de gesinjoroj Rudzinski ŝi kun sekaj okuloj kaj trankvila vizaĝo forrifuzis la laboron, kiun ŝi ne estis kapabla plenumi.
+La libristo staris malantaŭ la magazena tablo kun brakoj krucigitaj sur la brusto, en pozo senmova. Komence iom konfuzita de la forta eksplodo de sentoj, kies atestanto li estis, li post momento fariĝis videble kortuŝita.
 
-La libristo staris malantaŭ la magazena tablo kun brakoj krucigitaj sur la brusto, en pozo senmova. Komence iom kon-160
-
-MARTA
-
-
-fuzita de la forta eksplodo de sentoj, kies atestanto li estis, li post momento fariĝis videble kortuŝita.
-
-—Mia Dio! — li diris duonvoĉe, — kiel ŝanĝiĝema estas do la sorto de homo sur la tero! Kiam mi konis vin antaŭe, ĉu mi povis tiam pensi, ke mi vidos vin iam en ĉi tiu stato de mal-
-
-ĝojo kaj malriĉeco! Vi, gesinjoroj, vivis tiel bonstate, vi estis tiel sin reciproke amanta kaj feliĉa paro!
+—Mia Dio! — li diris duonvoĉe, — kiel ŝanĝiĝema estas do la sorto de homo sur la tero! Kiam mi konis vin antaŭe, ĉu mi povis tiam pensi, ke mi vidos vin iam en ĉi tiu stato de malĝojo kaj malriĉeco! Vi, gesinjoroj, vivis tiel bonstate, vi estis tiel sin reciproke amanta kaj feliĉa paro!
 
 Marta forprenis la tukon for de la vizaĝo.
 
@@ -2950,9 +2380,7 @@ La okuloj de la libristo, seriozaj kaj enpensaj, estis direktitaj en la spacon. 
 
 Lia rigardo malrapide direktiĝis al la vizaĝo de Marta, li etendis al ŝi la manon.
 
-—Trankviliĝu, sinjorino, — li diris milde kaj serioze. — Volu sidiĝi kaj iom ripozi. Vi ne rigardos ja ĝin kiel maldelikatecon 161
-
-MARTA
+—Trankviliĝu, sinjorino, — li diris milde kaj serioze. — Volu sidiĝi kaj iom ripozi. Vi ne rigardos ja ĝin kiel maldelikatecon
 
 
 de mia flanko, se, dezirante esti utila al vi, mi demandos pri kelkaj neeviteblaj detalaĵoj. ĉu vi provis jam ian alian laboron krom tiu, kiu alportas al vi tiel mizeran rekompencon? Por kia okupo vi sentas vin pleje kapabla kaj taŭga? Se mi tion scios, mi eble ion pripensos … trovos …
@@ -2969,12 +2397,7 @@ Granda socia problemo, eble granda maljustaĵo, turmentanta la internon de la so
 
 Marta levigis de la tabureto, sur kiu ŝi sidis en la daŭro de kelke da minutoj, kaj, etendante la manon al la libristo, ŝi diris:
 
-—Mi diris al vi ĉion. Mi ne hontis konfesi la trompigojn, kiuj ĝis nun min trafis, ĉar se la fortoj min trompis, miaj in-162
-
-MARTA
-
-
-tencoj estis honestaj. Mi faris ĉion, kion mi povis kaj kapablis.
+—Mi diris al vi ĉion. Mi ne hontis konfesi la trompigojn, kiuj ĝis nun min trafis, ĉar se la fortoj min trompis, miaj intencoj estis honestaj. Mi faris ĉion, kion mi povis kaj kapablis.
 
 La esenco de mia malfeliĉo konsistas en tio, ke mi povis malmulte, ke mi nenion sufiĉe kapablis. Sed miaj ĝisnunaj provoj ne ampleksis ja ankoraŭ la tutan rondon da diversaj homaj laboroj; eble inter ili troviĝas ankoraŭ io ankaŭ por mi.
 
@@ -2990,9 +2413,7 @@ Marta aŭskultis tiujn vortojn kun mallevitaj okuloj, en po-zo senmova. La libri
 
 —ĉion ĉi tion mi diris al vi por tio, ke vi ne iluziu vin per tro granda espero kaj ne spertu novan sehiluziiĝon, eble ankoraŭ pli doloran ol la aliaj. Mi tamen ne volus, ke vi foriru de ĉi tie kun la penso, ke mi ne volis doni al vi helpan manon.
 
-En la daŭro de kvin jaroj vi estis la ĉiutaga kunvivantino de homo klera, tio signifas multe; mi scias, ke en la aŭtunaj kaj vintraj vesperoj vi havis la kutimon kune legi, de tio devis 163
-
-MARTA
+En la daŭro de kvin jaroj vi estis la ĉiutaga kunvivantino de homo klera, tio signifas multe; mi scias, ke en la aŭtunaj kaj vintraj vesperoj vi havis la kutimon kune legi, de tio devis
 
 
 kolektiĝi ĉe vi certa provizo da scioj. Krom tio permesu al mi diri, ke via maniero de sinesprimado kaj via maniero rigardi la vivon montras, ke via menso ne estas tute neprilaborita.
@@ -3008,9 +2429,6 @@ Dirante tion, la libristo envolvis en paperon la bluan vo-lumeton.
 —i estas verko, kiu traktas pri unu el la aktualaj sociaj demandoj; ĉar ĝi estas skribita klare kaj por ĉiuj kompreneble, ĝi ne estos tro malfacila por traduki. Por ke vi sciu, pro kio vi laboros, mi povas difini, ke honorarion (pardonu ĉi tiun oficialan esprimon) mi povos doni al vi en la kvanto de cent spesmiloj. Se ĉi tiu okupo montrigos taŭga por vi, tiam poste troviĝos eble ankaŭ io alia por traduki. Krom tio ne mi sola estas ja ĉi tie eldonisto, kaj se vi akiros la reputacion de bona tradukistino, oni vin vokos al diversaj lokoj. Pri la lingvo germana vi diris al mi, ke vi scias ĝin en tre malforta grado; tio estas domaĝa. Tradukoj el ĉi tiu lingvo estus pli dezirataj kaj pli bone pagataj. Tamen se en kelke da laboroj vi bone sukcesos, vi havos la eblon preni kelkajn dekojn da lecionoj … en la tago vi tradukados verkojn francajn, en la noktoj vi perfektiĝados en la lingvo de la germanoj … tia devas esti la laborado de virino. Paŝo post paŝo kaj self-help …
 
 
-MARTA
-
-
 Marta per tremantaj manoj prenis la al ŝi donatan libron.
 
 —Ho, sinjoro! — ŝi diris, prenante per ambaŭ manoj la manon de la libristo. — Dio rekompencu vin per feliĉo de tiuj, kiujn vi amas.
@@ -3019,12 +2437,7 @@ Nenion plu ŝi povis diri, post kelke da sekundoj ŝi estis jam sur la strato. �
 
 Dum la vojo tamen ŝi eniris en malgrandan butikon kun ŝuoj kaj aĉetis paron da malgrandaj ŝuetoj. Kiam ŝi fine enkuris en la pordegon de la granda domo ĉe la strato Piwna, ŝi ne iris rekte sur la ŝtuparon, sed ŝi direktis sin en la profundon de la korto al la malgranda pordo de la loĝejo de la kortisto. ĉar tie, sub la pagata observado de la kortistedzino, Janjo pasigadis ĉiutage la longajn horojn, dum kiuj ŝia patrino kudradis en la laborejo de sinjorino Szwejc. En la eksteraĵo de la infano dum la pasintaj monatoj montriĝis ankoraŭ pli grandaj kaj pli profundaj ŝangoj, ol en la eksteraĵo de la patrino. La vangoj de Janjo kaviĝis kaj kovriĝis per malsaneca flavo; ŝia funebra, bruniĝinta kaj en kelkaj lokoj disŝirita vesteto kvazaŭ pendis sur ŝia malgrasiĝinta korpo, la nigraj okuloj plivastiĝis, perdis la antaŭan brilon kaj moviĝemecon, kaj en ilia esprimo oni vidis tiun mutan dolorplendon, per kiu distingiĝas la rigardo de infanoj premataj fizike kaj morale.
 
-Ekvidinte la patrinon, Janjo ne ĵetiĝis al ŝia kolo, ne ekpe-165
-
-MARTA
-
-
-pis kiel ŝi faradis antaŭe, ne ekplaŭdis per siaj malgrandaj manetoj. Kun klinita kapeto kaj malgrasaj, frostomalvarmaj manetoj, alpremitaj ĉirkaŭ la lana tuko, per kiu ŝi svris, ŝi eniris kun la patrino en la subtegmentan ĉambreton kaj tuj sidiĝis sur la planko antaŭ la malplena kameno en pozo kuntirita kaj sufere kunpremita. Marta metis la libron sur la tablon kaj elprenis kelke da lignopecoj el malantaŭ la forno. Janjo sekvis ŝin per siaj senbrilaj kaj larĝaj okuloj.
+Ekvidinte la patrinon, Janjo ne ĵetiĝis al ŝia kolo, ne ekpepis kiel ŝi faradis antaŭe, ne ekplaŭdis per siaj malgrandaj manetoj. Kun klinita kapeto kaj malgrasaj, frostomalvarmaj manetoj, alpremitaj ĉirkaŭ la lana tuko, per kiu ŝi svris, ŝi eniris kun la patrino en la subtegmentan ĉambreton kaj tuj sidiĝis sur la planko antaŭ la malplena kameno en pozo kuntirita kaj sufere kunpremita. Marta metis la libron sur la tablon kaj elprenis kelke da lignopecoj el malantaŭ la forno. Janjo sekvis ŝin per siaj senbrilaj kaj larĝaj okuloj.
 
 —ĉu vi hodiaŭ jam plu nenien iros? — ŝi diris post momento per voĉo, kies obtuza kaj serioza sonado prezentis fra-pantan kontraston kun la malgranda infana figuro.
 
@@ -3038,12 +2451,7 @@ Sed apenaŭ ŝi ektuŝis ŝian brakon, el la buŝo de Janjo elsaltis krieto de d
 
 —Min doloras ĉi tie, panjo! — respondis la infano, sen plendo en la voĉo, sed tre mallaŭte.
 
-—Doloras! kial? kiel longe? — zorge demandadis la patrino. Janjo silentis kaj sidis senmove kun mallevitaj okuloj. Nur ŝia pala buŝeto iom tremis, kiel okazas ordinare ĉe la infanoj, kiam ili penas reteni fortan ploron. Martan maltrankviligis la obstina silentado de la infano eble pli, ol la elmontrita doloro. Rapide ŝi disbutonumis la malstreĉe surpendantan vesteton kaj deŝovis ĝin de unu brako de la infano. Sur la malgrasa blanka brako, kiun nudigis la mano de la patrino, vidigis ni-166
-
-MARTA
-
-
-gre-blua makulo. Marta konvulsie kunplektis la manojn. Videble ia terura penso trakuris ŝian kapon.
+—Doloras! kial? kiel longe? — zorge demandadis la patrino. Janjo silentis kaj sidis senmove kun mallevitaj okuloj. Nur ŝia pala buŝeto iom tremis, kiel okazas ordinare ĉe la infanoj, kiam ili penas reteni fortan ploron. Martan maltrankviligis la obstina silentado de la infano eble pli, ol la elmontrita doloro. Rapide ŝi disbutonumis la malstreĉe surpendantan vesteton kaj deŝovis ĝin de unu brako de la infano. Sur la malgrasa blanka brako, kiun nudigis la mano de la patrino, vidigis nigre-blua makulo. Marta konvulsie kunplektis la manojn. Videble ia terura penso trakuris ŝian kapon.
 
 —ĉu vi falis aŭ frapiĝis? — ŝi demandis mallaŭte kun okuloj fiksitaj sur la malluma makulo.
 
@@ -3053,11 +2461,7 @@ Janjo silentis ankoraŭ momenton, poste ŝi subite levis la mallevitajn palpebro
 
 La lastajn vortojn ŝi diris tre mallaŭte, per la kapo kaj brusto ŝi alpremiĝis al la brusto de la patrino kaj tremis per la tuta korpo. Marta ne ekĝemis kaj ne ekkriis, ŝia vizaĝo dum momento aspektis kiel ŝtoniginta, sed la palaj lipoj kunpremiĝis pli forte kaj el la okuloj senmove rigardantaj en la spacon brilis ĉiam pli akra kaj pli malserena lumo.
 
-—Ha! — ŝi fine ekĝemegis kaj ĉirkaŭprenis la flamantan frunton per siaj interplektitaj manoj. En ĉi tiu mallonga ek-
-
-ĝemo sonis obtuza kolero kaj senfina doloro. Dum kelke da minutoj la patrino kaj la infano prezentis grupon da du brustoj kaj du vizaĝoj, el kiuj unu, la virina, kun sekaj kaj malse-rene flamantaj okuloj kliniĝis super la dua, infana, pala kaj malseka de larmoj. Post momento Marta forprenis la manojn de la frunto kaj metis ilin sur la kapon de la filino. ŝi forŝovis de la infana frunto ŝiajn interkonfuzitajn harojn, forviŝis la larmojn de la malgrasaj vangetoj, butonumis sur la brusto 167
-
-MARTA
+—Ha! — ŝi fine ekĝemegis kaj ĉirkaŭprenis la flamantan frunton per siaj interplektitaj manoj. En ĉi tiu mallonga ekĝemo sonis obtuza kolero kaj senfina doloro. Dum kelke da minutoj la patrino kaj la infano prezentis grupon da du brustoj kaj du vizaĝoj, el kiuj unu, la virina, kun sekaj kaj malse-rene flamantaj okuloj kliniĝis super la dua, infana, pala kaj malseka de larmoj. Post momento Marta forprenis la manojn de la frunto kaj metis ilin sur la kapon de la filino. ŝi forŝovis de la infana frunto ŝiajn interkonfuzitajn harojn, forviŝis la larmojn de la malgrasaj vangetoj, butonumis sur la brusto
 
 
 la vesteton, varmigis inter siaj manplatoj la frostiĝintajn manetojn. ĉion ĉi tion ŝi faris silente. Kelke da fojoj ŝi malfermis la buŝon, kvazaŭ ŝi volus ion diri, sed mankis al ŝi la voĉo.
@@ -3068,61 +2472,37 @@ Sur ŝia buŝo estis nun rideto, stranga rideto! i enhavis en si ion artan, sed 
 
 La tago finiĝis, la urbaj horloĝoj sonis noktomezon, sed en la subtegmenta ĉambreto ankoraŭ brulis la lampo; ĉi tiu ĉambreto aspektis nun ankoraŭ pli malgaje ol tiam, kiam la juna virino la unuan fojon transpaŝis ĝian sojlon. Ne troviĝis jam en ĝi la ŝranko, nek la komodo, nek la du ledaj saketoj. La unuajn du objektojn kune kun la du novaj seĝoj la luantino fordonis al la domadministranto, ĉar ŝi ne povis plu pagi por ilia luado; la lastajn ŝi vendis en tagoj de grandaj frostoj, por ke ŝi povu aĉeti por la ricevita mono pli da hejtoligno. Restis en la ĉambreto nur unu lito, sur kiu en ĉi tiu momento, ĉir-kaŭkovrita de la nigra tuko de la patrino, dormis Janjo, du lamaj seĝoj kaj unu nigre kolorigita tablo. Sub la blanka lumo de la lampo kaj ĉirkaŭita de dika plektaĵo de nigraj harligoj, la vizaĝo de la ĉetable sidanta virino bele kaj severtrajte distingiĝis en la duonlumo de la ĉambreto.
 
-Marta ankoraŭ ne laboris, kvankam ĉiuj materialoj de ŝia estonta laboro, la libro, papero, plumo, kuŝis antaŭ ŝi. ŝin kaptis neforpelebla, nevenkebla revado. Neatenditaj, brilantaj perspektivoj kreiĝis antaŭ ŝiaj okuloj, ŝi ne povis forŝiri de ili 168
-
-MARTA
+Marta ankoraŭ ne laboris, kvankam ĉiuj materialoj de ŝia estonta laboro, la libro, papero, plumo, kuŝis antaŭ ŝi. ŝin kaptis neforpelebla, nevenkebla revado. Neatenditaj, brilantaj perspektivoj kreiĝis antaŭ ŝiaj okuloj, ŝi ne povis forŝiri de ili
 
 
-sian rigardon, lacigitan de la mallumo. ŝi ne estis jam tiel fi-doplena kiel tiam, kiam ŝi antaŭ tiu sama tablo sidiĝis kun krajono en la mano, sed ŝi ne havis sufiĉe da fortoj, por aŭ-
-
-skulti la murmuradon de dubo. i estis en ŝi, tiu murmurado, sed ŝi forturnadis de ĝi sian orelon, dum ŝi aŭskultadis senĉese la vortojn de la libristo, kiuj plenigis ĉiujn ŝiajn pensojn. El tiuj vortoj spiniĝis longa vico da oraj revoj de la virino, de la patrino. Povi plenumadi laboron agrablan, kvankam malfacilan, laboron, kiu altigas la spiriton kaj respondas al
+sian rigardon, lacigitan de la mallumo. ŝi ne estis jam tiel fi-doplena kiel tiam, kiam ŝi antaŭ tiu sama tablo sidiĝis kun krajono en la mano, sed ŝi ne havis sufiĉe da fortoj, por aŭskulti la murmuradon de dubo. i estis en ŝi, tiu murmurado, sed ŝi forturnadis de ĝi sian orelon, dum ŝi aŭskultadis senĉese la vortojn de la libristo, kiuj plenigis ĉiujn ŝiajn pensojn. El tiuj vortoj spiniĝis longa vico da oraj revoj de la virino, de la patrino. Povi plenumadi laboron agrablan, kvankam malfacilan, laboron, kiu altigas la spiriton kaj respondas al
 
 ĝiaj plej profundaj bezonoj, — kia plezurego tio estas! Laborenspezi dum kelke da semajnoj cent spesmilojn — kia riĉe-co tio estas! Kiam ŝi iam farigos tia riĉa granda sinjorino, la unua afero, kiun ŝi faros, estos preni ian honestan nejunan servantinon, kiu havas siajn infanojn aŭ almenaŭ amas infanojn kaj sekve povus varti Janjon zorge, prudente. Poste …
 
-(Marta demandis sin mem, ĉu ŝi ne estas tro postulema en sia revado) poste ŝi eble forlasos ĉi tiun nudan, malvarman, mal-serenan ĉambron, en kiu al ŝi mem estas tiel malgaje kaj kiu por ŝia infano estas tiel malsaniga, kaj ŝi luos ie, ĉe ia malgranda sed pura senbrua strato, du ĉambretojn varmajn, sekajn, sunajn … Poste … se ŝi akiros reputacion de bona tradukistino kaj ricevados multajn mendojn, se tiuj cent spesmiloj, tiu grandega sumo multe da fojoj venos en ŝiajn manojn, ŝi serĉos intruistojn de lingvoj kaj de desegnado, ŝi lernos en la daŭro de tutaj tagoj kaj noktoj, sen ripozo, kun fervoro kaj pacienco, ĉar tia devas ja esti la laboro de virino, paŝo post paŝo kaj per propraj fortoj … Poste … Janjo kreskos … Kun kia atento la okulo de la patrino observados kaj divenados ŝiajn naturajn talentojn, por neniun el ili lasi sen uzo, sed kontraŭe, el ĉiu el ili forĝi por la estonta virino spiritan trezoron, ba-169
-
-MARTA
-
-
-talilon por la batalo pri la vivo … La lernado de Janjo, ŝia klereco, forto, feliĉo kaj sendanĝereco de la tuta estonteco estos frukto de laborado de ŝia patrino. Kun kia trankvileco ŝi tiam fermados siajn okulojn por fortiga dormo, kun kia ĝojo ŝi malfermados ilin ĉiumatene, salutante novan tagon de laboro kaj devoplenumo, sed samtempe ankaŭ de trankvileco kaj kontenteco! Kun kia fiereco ŝi irados tiam inter la homojn, sentante, ke ŝi estas egala al ili rilate la forton kaj homan in-decon; kun kia senpezigita kaj feliĉe tuŝita koro ŝi genuiĝos sur la tombo de la homo, kiun ŝi amis, kaj al lia eterne antaŭ ŝiaj okuloj staranta bildo ŝi diros: mi fariĝis inda vin! mi ne subfalis al la malbona sorto! mi evitis morton permalsatan kaj vivon peralmozan! Mi kapablis ŝirmi per prizorgado kaj eduki por la estonteco vian kaj mian infanon! Poste …
+(Marta demandis sin mem, ĉu ŝi ne estas tro postulema en sia revado) poste ŝi eble forlasos ĉi tiun nudan, malvarman, mal-serenan ĉambron, en kiu al ŝi mem estas tiel malgaje kaj kiu por ŝia infano estas tiel malsaniga, kaj ŝi luos ie, ĉe ia malgranda sed pura senbrua strato, du ĉambretojn varmajn, sekajn, sunajn … Poste … se ŝi akiros reputacion de bona tradukistino kaj ricevados multajn mendojn, se tiuj cent spesmiloj, tiu grandega sumo multe da fojoj venos en ŝiajn manojn, ŝi serĉos intruistojn de lingvoj kaj de desegnado, ŝi lernos en la daŭro de tutaj tagoj kaj noktoj, sen ripozo, kun fervoro kaj pacienco, ĉar tia devas ja esti la laboro de virino, paŝo post paŝo kaj per propraj fortoj … Poste … Janjo kreskos … Kun kia atento la okulo de la patrino observados kaj divenados ŝiajn naturajn talentojn, por neniun el ili lasi sen uzo, sed kontraŭe, el ĉiu el ili forĝi por la estonta virino spiritan trezoron, batalilon por la batalo pri la vivo … La lernado de Janjo, ŝia klereco, forto, feliĉo kaj sendanĝereco de la tuta estonteco estos frukto de laborado de ŝia patrino. Kun kia trankvileco ŝi tiam fermados siajn okulojn por fortiga dormo, kun kia ĝojo ŝi malfermados ilin ĉiumatene, salutante novan tagon de laboro kaj devoplenumo, sed samtempe ankaŭ de trankvileco kaj kontenteco! Kun kia fiereco ŝi irados tiam inter la homojn, sentante, ke ŝi estas egala al ili rilate la forton kaj homan in-decon; kun kia senpezigita kaj feliĉe tuŝita koro ŝi genuiĝos sur la tombo de la homo, kiun ŝi amis, kaj al lia eterne antaŭ ŝiaj okuloj staranta bildo ŝi diros: mi fariĝis inda vin! mi ne subfalis al la malbona sorto! mi evitis morton permalsatan kaj vivon peralmozan! Mi kapablis ŝirmi per prizorgado kaj eduki por la estonteco vian kaj mian infanon! Poste …
 
 Nun la okuloj de Marta trafis la bildeton, kiu pendis proksime de ŝi sur la muro. Tio estis tiu desegnaĵo, kiu estis for-rifuzita de ŝiaj pandonantoj kaj redonita al ŝi. ŝi estis orna-minta per ĝi la malriĉan nudan ĉambreton, kaj nun ŝi fiksis sur ĝi la silente flamantajn okulojn. Malgranda kampara dometo, branĉlarĝa arbo, birdeto kantanta sur siringa arbetaĵo, klara aero de kamparo kaj profunda silenteco de bonodoraj kampoj … Ho Dio! se ŝi povus tiom laborenspezi, tiom mul-tege, ke tia modesta loketo, freŝa, verda, povu fariĝi ŝia propraĵo! ŝi tiam estos jam nejuna virino, la venteto, kiu murmuros en la branĉoj, malvarmetigos ŝian frunton ŝvitkovritan de la laboroj de la vivo, la lacigitaj okuloj ĝuos la koloron de freŝa verdaĵo, kaj la birdeto, kiu kantis, kiam ŝi estis en lulilo, kantos por ŝi super ŝia por eterne dormiĝanta kapo la lastan kanton de ĉi tiu tero.
 
-Tiel revis la malriĉa virino. En tiu nokto en la subtegmen-170
+Tiel revis la malriĉa virino. En tiu nokto en la subtegmenta ĉambreto la lampo restis neestingita ĝis la mateniĝo. Marta legis la libron, kiun oni komisiis al ŝi traduki el fremda lingvo.
 
-MARTA
-
-
-ta ĉambreto la lampo restis neestingita ĝis la mateniĝo. Marta legis la libron, kiun oni komisiis al ŝi traduki el fremda lingvo.
-
-Komence ŝi legis malrapide, atente, poste kun entuziasmo, kun preskaŭ febra intereso. ŝi komprenis la penson de la aŭ-
-
-toro, la objekto de la verko trapenetris ŝian cerbon, klara kaj preciza ĝi staris antaŭ ŝiaj okuloj. ŝia komprenado fariĝis kvazaŭ elasta rondo kaj ampleksis ĉiam pli grandan, pli plenan tutaĵon; la intuicio, tiu alta kaj malofta naturdono, kiu el ho-mo faras duondion, leviĝis el la profundo de la spirito de la juna virino kaj murmuris al ŝi en la orelon vortojn de ĝis nun ne konataj problemoj.
+Komence ŝi legis malrapide, atente, poste kun entuziasmo, kun preskaŭ febra intereso. ŝi komprenis la penson de la aŭtoro, la objekto de la verko trapenetris ŝian cerbon, klara kaj preciza ĝi staris antaŭ ŝiaj okuloj. ŝia komprenado fariĝis kvazaŭ elasta rondo kaj ampleksis ĉiam pli grandan, pli plenan tutaĵon; la intuicio, tiu alta kaj malofta naturdono, kiu el ho-mo faras duondion, leviĝis el la profundo de la spirito de la juna virino kaj murmuris al ŝi en la orelon vortojn de ĝis nun ne konataj problemoj.
 
 Estis jam luma tago, kiam Marta estingis la lampon kaj prenis plumon. ŝi skribis, kaj de tempo al tempo, fortirante la okulojn for de la papero, ŝi direktadis ilin al tiu flanko de la ĉambro, kie staris la lito kun la dormanta infano. ĉe la blanka lumo de la vintra mateno Janjo aspektis pale kaj suferante. Kiam la unua radio de la suno penetris en la ĉambron, ŝi malfermis la okulojn. Tiam la patrino leviĝis, genuiĝis ĉe la lito kaj, ĉirkaŭprenante per la brako la duone dormantan korpon de la infano, klinis al la kuseno la lacan, varmegan kapon.
 
 En tiu sama momento movado ekbolis en la urbo. Ekbruis veturiloj, eksonis preĝejaj sonoriloj, ekbolis interparoloj, ridoj, krioj. Varsovio salutis la novan jaron.
 
-Depost la tago, en kiu Varsovio salutis la novan jaron, pasis ses semajnoj. Je la unua horo posttagmeze Marta, kiel ordinare forlasis la kudrejon, por iri hejmen kaj pretigi tagman-
-
-ĝon por si kaj por la infano. ŝi kisis Janjon, kiu, malgaja kaj korpremata en la malvasta ĉambreto de la kortisto, iom revi-gliĝadis ekvidante la patrinon, kaj, almetinte al negranda faj-171
-
-MARTA
+Depost la tago, en kiu Varsovio salutis la novan jaron, pasis ses semajnoj. Je la unua horo posttagmeze Marta, kiel ordinare forlasis la kudrejon, por iri hejmen kaj pretigi tagmanĝon por si kaj por la infano. ŝi kisis Janjon, kiu, malgaja kaj korpremata en la malvasta ĉambreto de la kortisto, iom revi-gliĝadis ekvidante la patrinon, kaj, almetinte al negranda faj-171
 
 
 ro poteton kun manĝaĵo, la juna virino elŝovis la tirkeston de la tablo kaj elprenis el ĝi dekkelke da folioj da papero. Tio estis la jam finita traduko de la franca verko. Por ĝin pretigi, ŝi laboris kvin semajnojn, kaj la transskribo okupis unu se-majnon. Nun kun rideto sur la buŝo ŝi trarigardis la paĝojn plenajn de belforma kaj pura skribaĵo.
 
 Dum la lasta pasinta tempo en ŝia eksteraĵo aperis novaj ŝanĝoj, sed tute aliaj ol antaŭe. ŝi laboris duoble, ĉar ŝi laboris tage kaj nokte. Dek horojn en la tago ŝi kudradis, naŭ horojn en la nokto ŝi skribadis, unu horon ŝi pasigadis en interparolado kun la infano, kvar horojn ŝi dormadis. Tio estis vivma-niero certe ne konforma al la reguloj de la higieno, kaj tamen la strioj de malsaneca flavo malaperis de la vizaĝo de Marta, ŝia frunto glatiĝis, la okuloj ricevis denove la antaŭan brilon.
 
-ŝi tusis malpli ofte, aspektis sane kaj preskaŭ freŝe. ŝia spirito, kvietigita de trankvileco kaj vigligita de espero, fortigis la an-taŭe senfortigitan korpon, nobla kontenteco pri si mem denove rektigis la gracian talion, redonis la serenecon al la frunto. Post la tagmanĝo, kiu konsistis el unu tre simpla man-
-
-ĝospeco kaj peco da nigra pano, Marta ĉirkaŭvolvis per folio da maldika papero la trarigarditan manuskripton. ŝi tion faris kun ia aparta penado, kaj sur ŝia vizaĝo oni povis vidi la senton de zorgemeco kaj samtempe de interna profunda plezuro. Sur unu el la altaj turoj de la urbo eksonis la dua horo.
+ŝi tusis malpli ofte, aspektis sane kaj preskaŭ freŝe. ŝia spirito, kvietigita de trankvileco kaj vigligita de espero, fortigis la an-taŭe senfortigitan korpon, nobla kontenteco pri si mem denove rektigis la gracian talion, redonis la serenecon al la frunto. Post la tagmanĝo, kiu konsistis el unu tre simpla manĝospeco kaj peco da nigra pano, Marta ĉirkaŭvolvis per folio da maldika papero la trarigarditan manuskripton. ŝi tion faris kun ia aparta penado, kaj sur ŝia vizaĝo oni povis vidi la senton de zorgemeco kaj samtempe de interna profunda plezuro. Sur unu el la altaj turoj de la urbo eksonis la dua horo.
 
 Marta forkondukis Janjon al la ĉambro de la kortisto kaj eliris en la urbon. Je la tria horo ŝi devis esti sur sia ordinara loko de la kudrejo de sinjorino Szwejc, sed antaŭe ŝi volis viziti la konatan librejon.
 
-La libristo-eldonisto staris, kiel ordinare, malantaŭ la magazena skribtablo kaj estis okupita je enskribado de ciferoj kaj 172
-
-MARTA
+La libristo-eldonisto staris, kiel ordinare, malantaŭ la magazena skribtablo kaj estis okupita je enskribado de ciferoj kaj
 
 
 notoj en grandan libron. Kiam Marta eniris, li levis la kapon.
@@ -3135,18 +2515,11 @@ En tiu tago en la kudrejo de sinjorino Szwejc Marta malmulte sukcesis en sia lab
 
 skribante ilin Marta mem sentis, ke ŝin kaptas efektiva inspiro, ke la penso de la majstro speguliĝas en ŝiaj vortoj kiel ma-jesta vizaĝo de saĝulo en plej pura spegulo … En la loĝejo de sinjorino Szwejc la horloĝo sonis la naŭan horon, la laboristinoj disiris, Marta reiris al sia ĉambreto. Je la noktomezo ŝi prezentis al si, ke la libristo-eldonisto ĝuste nun fermas la de ŝi skribitan kaj de li legitan kajeron. Ho, kiom multe ŝi donus por tio, se ŝi povus en ĉi tiu momento vidi lian fizionomion!
 
-ĉu ĝi estas kontenta aŭ malgaja, severa aŭ promesanta ple-173
-
-MARTA
-
-
-numon de ŝia espero? Matena lumo jam penetris en la ĉambreton, kiam Marta, apogiĝinte sur kuseno, per okuloj, kiuj dum la tuta nokto ne fermiĝis eĉ por momento, rigardis la pecon da ĉielo videblan tra la malgranda fenestro. En tiuj okuloj, kiuj estis larĝe malfermitaj kaj senmovaj, sub la pala frunto vidiĝis profunda petego, el ili fluis muta, sed varmega preĝo. Je la oka horo ŝi devis laŭ la kutimo iri al la kudrejo, sed ŝiaj piedoj tiel tremis, ŝia kapo tiel flamis kaj la brusto tiel doloris, ke ŝi falis sur seĝon, ĉirkaŭprenis per la manplatoj la frunton kaj diris al si: mi ne povas! Leviĝante, kombante siajn longajn silkecajn harojn, surmetante la malnoviĝintan funebran veston, preparante matenan trinkaĵon, por la infano kaj eĉ parolante kun Janjo, ŝi ĉiam havis la saman penson en la kapo: ĉu li akceptos mian laboron aŭ ne akceptos? ĉu mi kapablas plenumi tiajn laborojn aŭ ĉu mi ne kapablas? ”Amas, ne amas” murmuretadis la ĉarma Gretchen; deŝirante laŭvi-ce la neĝoblankajn folietojn de kampa astro; ”kapablas, ne kapablas” meditadis la malriĉa virino, ekbruligante sur la kameno du malgrandajn lignopecojn, kuirante la mizeran man-
+ĉu ĝi estas kontenta aŭ malgaja, severa aŭ promesanta plenumon de ŝia espero? Matena lumo jam penetris en la ĉambreton, kiam Marta, apogiĝinte sur kuseno, per okuloj, kiuj dum la tuta nokto ne fermiĝis eĉ por momento, rigardis la pecon da ĉielo videblan tra la malgranda fenestro. En tiuj okuloj, kiuj estis larĝe malfermitaj kaj senmovaj, sub la pala frunto vidiĝis profunda petego, el ili fluis muta, sed varmega preĝo. Je la oka horo ŝi devis laŭ la kutimo iri al la kudrejo, sed ŝiaj piedoj tiel tremis, ŝia kapo tiel flamis kaj la brusto tiel doloris, ke ŝi falis sur seĝon, ĉirkaŭprenis per la manplatoj la frunton kaj diris al si: mi ne povas! Leviĝante, kombante siajn longajn silkecajn harojn, surmetante la malnoviĝintan funebran veston, preparante matenan trinkaĵon, por la infano kaj eĉ parolante kun Janjo, ŝi ĉiam havis la saman penson en la kapo: ĉu li akceptos mian laboron aŭ ne akceptos? ĉu mi kapablas plenumi tiajn laborojn aŭ ĉu mi ne kapablas? ”Amas, ne amas” murmuretadis la ĉarma Gretchen; deŝirante laŭvi-ce la neĝoblankajn folietojn de kampa astro; ”kapablas, ne kapablas” meditadis la malriĉa virino, ekbruligante sur la kameno du malgrandajn lignopecojn, kuirante la mizeran man-
 
 ĝaĵon, balaante la malgajan ĉambreton kaj alpremante al la brusto sian palan amatan infanon. Kiu povus difini kun plena certeco, en kiu el la du demandantaj virinoj kuŝis pli profunda, pli terura dramo, kiun el ili la sorto per sia respondo estis pli kruele frakasonta, kiu el ili estis pli malfeliĉa kaj pli danĝere minacata malgraŭ sia tre malgranda postulemeco?
 
-ĉirkaŭ la unua horo posttagmeze Marta estis denove sur la trotuaro de la strato Krakowskie Przedmiescie. Ju pli ŝi al-proksimigis al la celo de sia irado, des pli ŝi malrapidigis siajn paŝojn. Jen ŝi estis jam antaŭ la pordo de la librejo, kaj tamen ŝi ne eniris; ŝi faris kelke da paŝoj flanken, apogis sin per la 174
-
-MARTA
+ĉirkaŭ la unua horo posttagmeze Marta estis denove sur la trotuaro de la strato Krakowskie Przedmiescie. Ju pli ŝi al-proksimigis al la celo de sia irado, des pli ŝi malrapidigis siajn paŝojn. Jen ŝi estis jam antaŭ la pordo de la librejo, kaj tamen ŝi ne eniris; ŝi faris kelke da paŝoj flanken, apogis sin per la
 
 
 mano al la balustrado, kiu ĉirkaŭis unu el la belegaj palacoj, kaj staris dum momento kun kapo klinita.
@@ -3155,9 +2528,7 @@ Nur post kelke da minutoj ŝi transiris la sojlon, malantaŭ kiu atendis ŝin ĝ
 
 ĉi tiuj pensoj kvazaŭ garbo da fulmoj trakuris la kapon de Marta.
 
-ŝi alpaŝis al la libristo, kiu levigis kaj, ĵetante rigardon sur la troviŝantan en la magazeno nejunan homon, etendis al ŝi la manon. Marta rimarkis lian ĝenatecon, sed ŝi pensis, ke la kaŭzo de tio estas la ĉeestado de flanka persono. Tamen tiu lasta ŝajnis tute enprofundigita en la legadon; de la loko, sur 175
-
-MARTA
+ŝi alpaŝis al la libristo, kiu levigis kaj, ĵetante rigardon sur la troviŝantan en la magazeno nejunan homon, etendis al ŝi la manon. Marta rimarkis lian ĝenatecon, sed ŝi pensis, ke la kaŭzo de tio estas la ĉeestado de flanka persono. Tamen tiu lasta ŝajnis tute enprofundigita en la legadon; de la loko, sur
 
 
 kiu kontraŭ la libristo staris Marta, la nekonatulon apartigis interspaco de dekkelke da paŝoj.
@@ -3176,12 +2547,7 @@ kion povas signifi tiu sonado de la voĉo, per kiu li eldiris siajn vortojn? En 
 
 La buŝo de Marta iom ekmoviĝis, tamen ĝi eligis nenian sonon. La libristo, post momenta silento, dum kiu li videble serĉis en sia kapo vortojn konformajn al la situacio, komencis paroli.
 
-—Dirante, ke via traduko ne estas sen certaj bonaj flankoj, mi diris la veron; eĉ plie, se mi havas la rajton rigardi min kiel kompetentan, mi povas diri kun certeco, ke vi posedas videblan talenton por la plumo. Via stilo donas sufiĉe fortan pruvon de tiu talento, ĝi estas kerneca, vigla, en multaj lokoj plena de vervo kaj de fajro. Sed … kiom mi povis vidi el via la-176
-
-MARTA
-
-
-boro, tiu via senduba talento restas en stato … pardonu al mi la esprimon … en stato rudimenta, neprilaborita. Al via talento mankas la apogo de lernado, mankas la helpo, kiun povas doni nur la sciado de la tekniko de verkado. La ambaŭ ling-vojn, kun kiuj vi ĉi tie havis aferon, vi konas tro malmulte, por ke vi povu manovri kun ili tiel, kiel postulis la objekto kaj la scienca nomenklaturo. Eĉ plie, granda parto de la alta literatura lingvo, kiu uzas multe da esprimoj ne ekzistantaj en la ĉiutaga vivo, estas al vi videble tre malmulte konata. De tio venas la oftaj interŝanĝoj de vortoj, neĝusteco de la esprimoj, neklaraĵoj kaj stilaj konfuzaĵoj. Per unu vorto, talenton vi havas, sed vi lernis tro malmulte, kaj la arto de verkado, eĉ se ĝi volas limi sin nur per farado de tradukoj, nepre postulas certan sufiĉe vastan amplekson da farita lernado, certan sufiĉe ampleksan sciadon komune sciencan kaj speciale teknikan …
+—Dirante, ke via traduko ne estas sen certaj bonaj flankoj, mi diris la veron; eĉ plie, se mi havas la rajton rigardi min kiel kompetentan, mi povas diri kun certeco, ke vi posedas videblan talenton por la plumo. Via stilo donas sufiĉe fortan pruvon de tiu talento, ĝi estas kerneca, vigla, en multaj lokoj plena de vervo kaj de fajro. Sed … kiom mi povis vidi el via laboro, tiu via senduba talento restas en stato … pardonu al mi la esprimon … en stato rudimenta, neprilaborita. Al via talento mankas la apogo de lernado, mankas la helpo, kiun povas doni nur la sciado de la tekniko de verkado. La ambaŭ ling-vojn, kun kiuj vi ĉi tie havis aferon, vi konas tro malmulte, por ke vi povu manovri kun ili tiel, kiel postulis la objekto kaj la scienca nomenklaturo. Eĉ plie, granda parto de la alta literatura lingvo, kiu uzas multe da esprimoj ne ekzistantaj en la ĉiutaga vivo, estas al vi videble tre malmulte konata. De tio venas la oftaj interŝanĝoj de vortoj, neĝusteco de la esprimoj, neklaraĵoj kaj stilaj konfuzaĵoj. Per unu vorto, talenton vi havas, sed vi lernis tro malmulte, kaj la arto de verkado, eĉ se ĝi volas limi sin nur per farado de tradukoj, nepre postulas certan sufiĉe vastan amplekson da farita lernado, certan sufiĉe ampleksan sciadon komune sciencan kaj speciale teknikan …
 
 Dirinte ĉion ĉi tion, la libristo silentiĝis, kaj nur post kelka momento li diris plue:
 
@@ -3189,12 +2555,7 @@ Dirinte ĉion ĉi tion, la libristo silentiĝis, kaj nur post kelka momento li d
 
 Kiel via konato, mi bedaŭras, ke vi ne akiris la deziratan de vi povon labori; kiel homon, tio min afliktas, ke vi ne prilaboris sufiĉe vian talenton. Vi posedas talenton senduban, estas nur domage, ke vi ne lernis pli multe, pli vaste, pli fundamente …
 
-ĉe la lasta vorto la libristo prenis de la tablo la paperan rulpaketon kaj volis doni ĝin al Marta. Sed ŝi ne etendis la manon, ne faris eĉ la plej malgrandan movon, ŝi staris rekte, rigide, kvazaŭ ŝtoniĝinta, kaj nur sur ŝiaj palaj lipoj tremis stranga rideto. Tio estis unu el tiuj ridetoj, kiuj estas milionoble pli malĝojaj ol larmoj, ĉar oni vidas en ili spiriton, kiu komencas moki sin mem kaj la mondon. La vortoj de la libris-177
-
-MARTA
-
-
-to, kiu juĝis la literaturan laboron de Marta, estis preskaŭ laŭvorta ripeto de la vortoj de la literaturisto, kiu antaŭ kelke da monatoj elparolis verdikton pri ŝia desegnado. Kredeble ĉi tiu egaleco estis la kaŭzo de la konvulsia rideto, kiu ektuŝis la tremantajn lipojn de la virino.
+ĉe la lasta vorto la libristo prenis de la tablo la paperan rulpaketon kaj volis doni ĝin al Marta. Sed ŝi ne etendis la manon, ne faris eĉ la plej malgrandan movon, ŝi staris rekte, rigide, kvazaŭ ŝtoniĝinta, kaj nur sur ŝiaj palaj lipoj tremis stranga rideto. Tio estis unu el tiuj ridetoj, kiuj estas milionoble pli malĝojaj ol larmoj, ĉar oni vidas en ili spiriton, kiu komencas moki sin mem kaj la mondon. La vortoj de la libristo, kiu juĝis la literaturan laboron de Marta, estis preskaŭ laŭvorta ripeto de la vortoj de la literaturisto, kiu antaŭ kelke da monatoj elparolis verdikton pri ŝia desegnado. Kredeble ĉi tiu egaleco estis la kaŭzo de la konvulsia rideto, kiu ektuŝis la tremantajn lipojn de la virino.
 
 —ĉiam tio sama! — ŝi murmuretis post momento, poste ŝi klinis la kapon kaj diris pli laŭte: — Dio mia, Dio, Dio!
 
@@ -3206,9 +2567,7 @@ to, kiu juĝis la literaturan laboron de Marta, estis preskaŭ laŭvorta ripeto 
 
 ŝi haltis subite. ŝia rigardo farigis vitreca kaj retirita inter-nen. — ĉu mia? — ŝi ekmurmuris tre mallaŭte per tono de demando. ĉi tiun demandon ŝi faris videble al si mem; la socia problemo, kies unu el la reprezentantoj kaj viktimoj ŝi estis, ĉirkaŭprenis ŝin ĉiam pli premante per siaj malmolaj brakoj kaj ordonis al ŝi rigardi ĝian teruran vizaĝon. ŝi tamen baldaŭ forskuis de si la kontraŭvolan enpensiĝon. La rigardon denove serenigintan ŝi direktis sur la vizaĝon de la homo, kiu staris antaŭ ŝi.
 
-—ĉu mi ne povus lerni ankoraŭ nun? ĉu ekzistas nenia 178
-
-MARTA
+—ĉu mi ne povus lerni ankoraŭ nun? ĉu ekzistas nenia
 
 
 loko en la mondo; kie mi povus ion ellerni? Diru al mi, sinjoro, diru, diru!
@@ -3230,9 +2589,6 @@ La libristo rigardis sian gaston per iom severa rigardo. —
 Kredu al mi, sinjoro, — li diris kun nuanco de malkontenteco —ke estis por mi tre malagrable, eĉ tre dolore, aflikti tiun virinon …
 
 
-MARTA
-
-
 —Kion vi diras! — ekkriis la homo, kiu sidis super la amaso da libroj, — kaj vi tion diras serioze?
 
 —Tute serioze; ŝi estas vidvino post homo, kiun mi konis, amis kaj estimis …
@@ -3243,9 +2599,7 @@ Bonordaj virinoj ne vagas tra la urbo, serĉante, kion ili ne perdis; ili sidas 
 
 —Sed pardonu, sinjoro Antonio, ĉi tiu virino havas nenian mastrumaĵon, ŝi troviĝas en mizero …
 
-—Ha! lasu, sinjoro Laŭrencio! Mi miras, ke vi povas esti tiel kredema! Tio ne estas mizero, mia sinjoro, sed ambicio! ambicio! Ili volus per io ekbrili, glorigi, okupi plej altan lokon en la socio kaj akiri tiamaniere liberecon fari kion ili volas kaj ŝirmi siajn ekstravagancojn per imagata plialteco, per pseŭ-
-
-do-laboro!
+—Ha! lasu, sinjoro Laŭrencio! Mi miras, ke vi povas esti tiel kredema! Tio ne estas mizero, mia sinjoro, sed ambicio! ambicio! Ili volus per io ekbrili, glorigi, okupi plej altan lokon en la socio kaj akiri tiamaniere liberecon fari kion ili volas kaj ŝirmi siajn ekstravagancojn per imagata plialteco, per pseŭdo-laboro!
 
 La libristo levis la ŝultrojn.
 
@@ -3259,12 +2613,7 @@ Li silentiĝis por momento, ĉar, perdinte la spiron pro granda ekscitigo, li de
 
 —Milegis, mi, legis, kaj ili tute min ne konvinkis, ke …
 
-—Nu! se vi al mi ne kredas, — interrompis lin la literaturi-180
-
-MARTA
-
-
-sto kun la dikaj akulvitroj, — vi ne malŝatos ja almenaŭ tion, kion diras pri tio aŭtoritatoj … grandaj aŭtoritatoj … Jen an-taŭ ne longe doktoro Bischof … vi scias ja, kiu estas Bischof?
+—Nu! se vi al mi ne kredas, — interrompis lin la literaturisto kun la dikaj akulvitroj, — vi ne malŝatos ja almenaŭ tion, kion diras pri tio aŭtoritatoj … grandaj aŭtoritatoj … Jen an-taŭ ne longe doktoro Bischof … vi scias ja, kiu estas Bischof?
 
 —Bischof, — diris la libristo, — certe estas granda scienculo, sed krom tio, ke vi malbonuzas liajn vortojn kaj trograndi-gas ilian signifon, mi ne opinias, ke li havas la rajton elparoli verdikton, kiu kondamnas milojn da malfeliĉaj estaĵoj …
 
@@ -3278,23 +2627,16 @@ En tiu momento en la librejon eniris kelke da personoj, kaj la rakonto pri la pr
 
 Elirinte el la librejo, ŝi komence estis kvazaŭ surdigita kaj sensentigita. ŝi pensis pri nenio, ŝi sentis nenion. La unua konscia penso, kiu aperis en ŝia kapo, formuliĝis en la vortoj: kiel feliĉaj ili estas! La unua sento, kiu klare vekigis en ŝi, estis — envio.
 
-ŝi marŝis tiam sur trotuaro kontraŭa al tiu, post kiu vidiĝis la larĝaj kaj luksaj konstruaĵoj de la Kazimira palaco. Sur la 181
-
-MARTA
+ŝi marŝis tiam sur trotuaro kontraŭa al tiu, post kiu vidiĝis la larĝaj kaj luksaj konstruaĵoj de la Kazimira palaco. Sur la
 
 
 vasta palaca korto svarmis junuloj kun viglaj vizaĝoj, en uni-formoj de universitataj studentoj. Unuj el tiuj junuloj tenis sub la brako grandajn librojn en simpla bindo aŭ sen bindo, difektitajn, duone disŝiritajn de uzado, aliaj ĉirkaŭvolvis per papero elastajn aŭ ŝtale brilantajn objektojn, verŝajne sciencajn aparatojn, kiujn ili portis hejmen, por per ilia helpo fari sciencajn eksperimentojn kaj observojn. Dum kelke da minutoj ili plenigis la korton per bruo de interparoloj pli aŭ malpli laŭtaj. Ili diskutis, fervore gestadis, de tempo al tempo el tiu aŭ alia grupo leviĝadis gamo de junula rido aŭ pli laŭta ekkrio montranta entuziasmon de juna brusto aŭ ates-tanta, ke oni parolas pri amata objekto de studado de la flamaj kapoj. Post kelke da minutoj la grupoj disiĝis, oni vidis, ke la junaj homoj donas al si reciproke la manojn kaj unuj kun gaja rideto sur la buŝo, aliaj meditante, aliaj en vigla interparolado, unuope aŭ duope forlasas la universitatan korton kaj perdiĝas en la popolaj amasoj, svarmantaj sur la larĝa trotuaro.
 
-Marta iris tre malrapide, kun kapo senĉese turnita al la granda konstruaĵo, kiu nun ricevis en ŝia imago la signifon de templo kun ia mistera altira forto. La junaj homoj kun la libroj sub la brako, kun la serenaj aŭ serioze meditantaj viza-
-
-ĝoj, ŝajnis al ŝi estaĵoj posedantaj privilegiojn, dignon kaj feli-
+Marta iris tre malrapide, kun kapo senĉese turnita al la granda konstruaĵo, kiu nun ricevis en ŝia imago la signifon de templo kun ia mistera altira forto. La junaj homoj kun la libroj sub la brako, kun la serenaj aŭ serioze meditantaj vizaĝoj, ŝajnis al ŝi estaĵoj posedantaj privilegiojn, dignon kaj feli-
 
 ĉon de duondioj. La kompatinda virino ekĝemis el la profundo de la brusto.
 
 —Feliĉuloj! ho, feliĉuloj! — ŝi —iris mallaŭte, kaj, ĵetante denove ĉirkaŭan rigardon sur la belegan konstruaĵon, kiun ŝi jam preterpasis, ŝi aldonis: — Kial mi tie ne estis? Kial mi tie nun ne povas esti?
-
-
-MARTA
 
 
 —Mi ne povas? — ŝi meditis plue, — kial do mi ne povas?
@@ -3316,9 +2658,6 @@ Falante, la kajero malfermiĝis; ŝi klinigis, por levi ĝin, kaj sur la malferm
 La vortoj siblis en ŝia buŝo, kiu estis preskaŭ tiel blanka kiel la papero, kiun ŝi tenis en la mano. — Bone! — ŝi murmuris post momento, — ĝi estu tiele! Kial ili ne donis al mi tion, kion ili hodiaŭ postulas de mi, tion, kion neniu donis al mi!
 
 
-MARTA
-
-
 Ili donu nun monon … jes … senlabore … mi prenados … ili donu …
 
 Per rapida, nerva movo ŝi enŝovis la monpaperetojn en la poŝon de la eluzita vesto, kaj ŝiaj piedoj ekŝanceliĝis. Nur nun; kiam ŝia spÏrifo denove estis ĵetita en la maltrankvilecon de terura ventego, la korpo rememorigis al ŝi, ke ŝi estas malsata, ke ŝi pasigis kelkajn dekojn da noktoj super laboro, kiu kondukis al nenia celo. ŝi ne povis iri pluen. Tra la nebulo, kiu ŝirmis ŝian rigardon, ŝi ekvidis antau si ŝtuparon. Tio estis la stuparo de la pregejo de la Sankta Kruco. ŝi fale sidiĝis sur ĝi, apogis la kapon sur la ma no kaj fermetis la okulojn. Post kelka momento la rigidiĝintaj trajtoj de ŝia vizaĝo remoliĝis, la glacio, kiu frostigis la sentojn en ŝia brusto, fandiĝis, el sub la mallevitaj palpebroj sur la marmorblanka vizaĝo ekfluis larmoj, guto post guto, abundaj, pezaj, ili faladis sur la malgra-sajn manojn kaj kaŝiĝadis inter la faldoj de la funebra vesto.
@@ -3331,9 +2670,7 @@ Ili marŝis per paŝoj facilaj kaj rapidaj, ili interparolis kun granda vigleco.
 
 Dirante tion, la juna virino ridis per la buŝo kaj per la okuloj. Inter ŝiaj koralkoloraj lipoj montriĝis du vicoj da blankaj kaj malgrandaj dentoj, la brunaj pupiloj brilis kaj ĵetadis ĉir-kaŭen rapidajn rigardojn. La viro ekĝemis. Tio estis parodio de ĝemo kaj enhavis en si pli da petoleco kaj gajeco, ol la rido de la virino.
 
-—Vi ne kredas al mi, bela Julinjo, kaj tamen Dio povas esti 184
-
-MARTA
+—Vi ne kredas al mi, bela Julinjo, kaj tamen Dio povas esti
 
 
 mia atestanto, ke mi estis enamiĝinta dum tuta tago ne sole vere, sed furioze, tute perdinte la kapon! ĉar vi devas prezenti al vi tiun dian estaĵon! Alta kiel poplo, okuloj nigraj kaj grandaj, vizaĝkoloro kiel alabastro, haroj kiel plumoj de korvo, longegaj kaj ne artaĵaj, mi diras al vi, ke ne artaĵaj, sed propraj, mi estas kompetenta en tiaj aferoj … malgaja, pala, malfeliĉa … ho, diino! Sed ĉio ĉi tio ankoraŭ ne estas grava; estas vero, ke ŝi plaĉis al mi tuj, tamen mi diris al mia koro: silen-tu! ĉar mi sciis, ke mia kuzino tre serioze ŝin ekamis kaj decidis gardi ŝntraŭ mi kiel kontraŭ fajro … Sed kiam ŝi venis al mia kuzino kaj per sia mirinda, ĉarma, najtingala voĉeto diris: mi ne povas instrui vian filinon … sed mi al vi, bela sinjorino … Julinjo, jam rakontis tiun historion., jen tiam mi en-amigis en ŝin tute vere. Dum tuta tago mi poste iradis kiel ebria tra ĉiuj stratoj, serĉante mian diinon …
@@ -3352,12 +2689,7 @@ La virino eksplodis per rido.
 
 ĉi tiun fojon la viro ne ridis nek ekĝemis.
 
-—Ni ne parolu pri mia kuzino, fraŭlino Juliino, — li diris per voĉo, en kiu sonis certa decideco. Pli bone aŭskultu la daŭrigon de la dramo de mia vivo. Ha! tio estis dramo … prezentu al vi, ke en tiu tago, renkontinte sur la strato fraŭlinon Malvinon X., mi ŝin salutis nur de malproksime, antaŭ la por-185
-
-MARTA
-
-
-do de la restoracio de Stempkonjo mi preteriris kun klinita kapo kaj kun ĝemo en la brusto, mi vidis sur la afiŝo la ”Belan Helenon” kaj tamen ne iris en la teatron, per unu vorto, mi enfalis en malesperon tiel profundan, ke se la bona Bolĉjo ne kondukus min en la sekvanta tago en certan loĝejon ĉe la strato Krolewska, kie mi ekvidis la plej belan el la surteraj diinoj …
+—Ni ne parolu pri mia kuzino, fraŭlino Juliino, — li diris per voĉo, en kiu sonis certa decideco. Pli bone aŭskultu la daŭrigon de la dramo de mia vivo. Ha! tio estis dramo … prezentu al vi, ke en tiu tago, renkontinte sur la strato fraŭlinon Malvinon X., mi ŝin salutis nur de malproksime, antaŭ la pordo de la restoracio de Stempkonjo mi preteriris kun klinita kapo kaj kun ĝemo en la brusto, mi vidis sur la afiŝo la ”Belan Helenon” kaj tamen ne iris en la teatron, per unu vorto, mi enfalis en malesperon tiel profundan, ke se la bona Bolĉjo ne kondukus min en la sekvanta tago en certan loĝejon ĉe la strato Krolewska, kie mi ekvidis la plej belan el la surteraj diinoj …
 
 —Ho, ho! — interrompis la virino duone kun rido, duone kun koketa indigno, — nur sen komplimentoj, sen komplimentoj.
 
@@ -3377,9 +2709,7 @@ Eldirinte la lastajn vortojn, la juna homo levis supren la okulojn kun rigardo p
 
 Subite li ĉesis fajfi, haltis kaj ekkriis: ha! La virino, kiu iris apud li, ekrigardis lin mirjgite. La rigardo de la gaja Aleĉjo estis fiksita sur unu punkto, kaj mirinde! de lia buŝo malaperis la eterna rideto. La belforma kaj delikata linio de tiu buŝo, kiel ankaŭ ĉiuj aliaj vizaĝaj linioj de la junulo, ŝanĝiĝadis kaj ondiĝadis, kiel okazas ordinare ĉe homoj kun impresebla naturo, kiam ili subite estas ekscititaj.
 
-—Kio do tie estas? — demandis la bela virino per iom nekontenta voĉo, — vere, — ŝi diris kokete, mi devas senti min 186
-
-MARTA
+—Kio do tie estas? — demandis la bela virino per iom nekontenta voĉo, — vere, — ŝi diris kokete, mi devas senti min
 
 
 ofendita de vi, sinjoro Aleĉjo! Vi iras kun mi, kaj vi rigardas mi ne scias kiun …
@@ -3396,9 +2726,7 @@ Eĉ plej malgranda ektremo ne montris vivon en ŝiaj levitaj palpebroj, nek en l
 
 Marta rigardis la ĉielon, en ŝiaj okuloj estis varmega preĝo, sed samtempe ankaŭ ia profunda, pasia, preskaŭ truda demando.
 
-—Kiel bela ŝi estas! — mallaŭte ripetis la gaja Aleĉjo kaj, 187
-
-MARTA
+—Kiel bela ŝi estas! — mallaŭte ripetis la gaja Aleĉjo kaj,
 
 
 klinante sin al sia kunulino, ankoraŭ pli mallaŭte, diris plue:
@@ -3419,9 +2747,7 @@ Marta ne aŭdis ĉi tiun voĉon.
 
 ĉi tiun voĉon Marta aŭdis, en ĝi sonis tonoj, kiujn ŝi konis bone, de longe. ŝajnis al Marta, kvazaŭ en ĉi tiu momento ŝia pasinteco vokas ŝin per ŝia nomo. Malrapide kaj kun kelka malfacileco ŝiaj okuloj fortiriĝis de la altaj lazuroj kaj direk-tigis al la vizaĝo de la virino, kiu staris antaŭ ŝi, ĵetis la zibe-lan mufon sur la neĝon antaŭ ŝiaj piedoj kaj etendis al ŝi du malgrandajn manojn, kovritajn per lilikoloraj gantoj.
 
-—Karolino! — murmuretis Marta kun unuaminuta miriĝo, 188
-
-MARTA
+—Karolino! — murmuretis Marta kun unuaminuta miriĝo,
 
 
 sed post momento lumaj radioj aperis sur ŝia vizaĝo kaj dis-fandis la rigidecon de ŝiaj trajtoj.
@@ -3452,9 +2778,7 @@ La virino en la atlasaĵoj ekridis, kaj, turnante sin al sia kunulo, ŝi diris:
 
 —La bienon de mia patro oni kelkajn monatojn post mia edziniĝo vendis per aŭkcio.
 
-—Per aŭkcio! jes! domage! vi posedas do nenian havon, ĉar 189
-
-MARTA
+—Per aŭkcio! jes! domage! vi posedas do nenian havon, ĉar
 
 
 tiu bona Jaĉjo amis vin furioze kaj certe elspezis por vi ĉion, kion li havis. Kion do vi nun faras? kiel vi vivas?
@@ -3484,9 +2808,6 @@ Dirante tion, ŝi konstante ridis, sed ŝia rido ĉi tiun fojon jam havis la nea
 —Kion do mi faras? — ekkriis la virino en la atlasaĵoj, — per mia babilado mi retenas vin en la malvarmo, dum ni povus sidiĝi en droŝko kaj tuj veturi al mia loĝejo. Vi veturos kun mi, Marta, ne vere? ni interparolos longe kaj rakontos al ni reciproke la historion de nia vivo …
 
 
-MARTA
-
-
 ŝi ekridis denove kaj, ĵetante ĉirkaŭen rapidajn kaj brilantajn rigardojn, diris plue:
 
 —Ho, tiuj historioj de nia vivo! kiel amuzaj ili estas! ni rakontos al ni reciproke, Marta, ne vere?
@@ -3514,9 +2835,6 @@ Marta sentis sin refreŝigita kaj tre kortuŝita per la vido de la neatendite re
 Se en tiu momento iu atente observus la grupono de tiuj tri personoj, kiuj staris sur la trotuaro: li povus rimarki, ke kiam Marta eldiris la vortojn ”mi venos”, Aleĉjo eksentis preskaŭ nereteneblan deziron alte eksalti kaj ekkrii: victoria! Li tamen faris nek la unuan nek la duan, li nur iom ĵetiĝis malantaŭen kaj ekklakis per la fingroj. Liaj nigraj okuloj brulis kiel ardantaj karboj kaj estis avide fiksitaj sur la pala vizaĝo de Marta, sur kiu nun lumis rideto. Kiam fine la juna virino foriris, la homo de eterna rido turnis sin al sia kunulino.
 
 
-MARTA
-
-
 —En la daŭro de mia tuta vivo, —li ekkriis entuziasme, —
 
 en la daŭro de mia tuta vivo mi neniam vidis tiel ĉarman, al-tirantan estaĵon! Kiel bele ŝi aspektas en tiu malbelega tuko, kiun ŝi havas sur la kapo. Ho! mi metus sur ŝin vestojn el atlaso, veluro, oro …
@@ -3533,9 +2851,7 @@ Vintra tago estis finiĝanta. En saloneto, kies fenestroj donis vidon sur la str
 
 Antaŭ la kameno staris kanapeto, tegita per amaranta damasko, kaj malalta brakŝego sur balancarkoj, kovrita per flor-desegna tapiŝo, kun piedbenketo, sur kiu trovigis bele brodita longorela hundeto.
 
-Sur la kanapeto duone kuŝis gracia virino en nigra vesto kun larĝa blanka strio malsupre. Sur la brakseĝo, apogante la malgrandajn kaj elegante vestitajn piedojn sur la piedbenketo, facile balanciĝadis alia virino en moda vesto el violkolora atlaso, kun multe da veluro kaj franĝoj de tia sama koloro; ŝi havis sur si neĝoblankan kolumon, butonumitan per granda ore kadrita kameo; ŝiaj flaveblondaj haroj estis kombitaj alte super la frunto, iom superŝutitaj per apenaŭ rimarkebla polveto el blanka pudro, kaj per longaj torditaj faskoj ili pendis malsupren sur la ŝultrojn, bruston, kolon kaj manojn, kiuj, 192
-
-MARTA
+Sur la kanapeto duone kuŝis gracia virino en nigra vesto kun larĝa blanka strio malsupre. Sur la brakseĝo, apogante la malgrandajn kaj elegante vestitajn piedojn sur la piedbenketo, facile balanciĝadis alia virino en moda vesto el violkolora atlaso, kun multe da veluro kaj franĝoj de tia sama koloro; ŝi havis sur si neĝoblankan kolumon, butonumitan per granda ore kadrita kameo; ŝiaj flaveblondaj haroj estis kombitaj alte super la frunto, iom superŝutitaj per apenaŭ rimarkebla polveto el blanka pudro, kaj per longaj torditaj faskoj ili pendis malsupren sur la ŝultrojn, bruston, kolon kaj manojn, kiuj,
 
 
 blankaj kaj malgrandaj, elŝoviĝis el la blankaj manumoj kaj, interplektitaj sur la atlasa tuniko de la vesto, brilis per granda brilianto de unu sola, sed tre multekosta ringo.
@@ -3544,13 +2860,9 @@ La saloneto, en kiu troviĝis tiuj du virinoj, ne estis vasta, tial des pli frap
 
 Tra la larĝe malfermita pordo oni povis vidi la kovritan de krepusko apudan ĉambron kun pargeto kovrita de ŝvelmola tapiŝo, kun ronda polurita tablo en la mezo kaj kun super ĝi pendanta granda vitra rozokolora globo, kiu entenis en si lampon. Delikata bonodoro de oranĝeriaj kreskaĵoj, kiuj floris sub la fenestroj, plenigis tiun malgrandan loĝejon; proksime de la kameneto, sub ŝirmo de verda ekrano, staris tablo kun porcelana servico kaj kun restaĵoj de videble ĵus manĝitaj frandaĵoj.
 
-La virinoj, kiuj sidis antaŭ la kameneto, silentis. Iliaj viza-
+La virinoj, kiuj sidis antaŭ la kameneto, silentis. Iliaj vizaĝoj, lumitaj de la rozokolora brilo de la ardantaj karboj, havis karakteron tute malegalan.
 
-ĝoj, lumitaj de la rozokolora brilo de la ardantaj karboj, havis karakteron tute malegalan.
-
-Marta tenis la kapon klinita al la kuseno de la mola kanapeto, ŝiaj okuloj estis duone fermitaj, la manoj pendis senforte sur la nigra vesto. La unuan fojon post multe da monatoj ŝi tuŝis per la buŝo bongustan kaj abundan manĝaĵon, ŝi troviĝis en atmosfero sufiĉe varma, meze de belaj kaj harmonie interkonformigitaj objektoj. La varmo de la ĉambro kaj la delikata bonodoro de la floroj ebriigis ŝin kvazaŭ drinkaĵo. Nur 193
-
-MARTA
+Marta tenis la kapon klinita al la kuseno de la mola kanapeto, ŝiaj okuloj estis duone fermitaj, la manoj pendis senforte sur la nigra vesto. La unuan fojon post multe da monatoj ŝi tuŝis per la buŝo bongustan kaj abundan manĝaĵon, ŝi troviĝis en atmosfero sufiĉe varma, meze de belaj kaj harmonie interkonformigitaj objektoj. La varmo de la ĉambro kaj la delikata bonodoro de la floroj ebriigis ŝin kvazaŭ drinkaĵo. Nur
 
 
 nun ŝi eksentis, kiel forte lacigita ŝi estas, kiom da fortoj forprenis de ŝi la malvarmo, malsato, malĝojo, maltrankvileco kaj batalado.
@@ -3561,9 +2873,7 @@ Karolino per larĝe malfermitaj, atentaj, penetremaj okuloj rigardis sian kamara
 
 De kelke da minutoj inter ĉi tiuj du virinoj regis silento.
 
-Marta la unua ĝin interrompis. ŝi levis la kapon de super la 194
-
-MARTA
+Marta la unua ĝin interrompis. ŝi levis la kapon de super la
 
 
 kuseno, sur kiu ŝi apogis sin antaŭ momento, kaj, direktante sian rigardon sur la kamaradinon, ŝi diris:
@@ -3574,9 +2884,7 @@ Karolino apogis la ŝultrojn al la dorsa arkaĵo de la brakseĝo kaj, pli forte 
 
 —Sinjorino Herminio estis mia parencino ne proksima, sed sufiĉe malproksima, sed mi portis la saman familian nomon kiel ŝi. Tio estis sufica por la fiera kaj riĉa sinjorino, ke ŝi bon-volu eduki la orfinon en sia domo kaj fari el ŝi poste obeuli-non aŭ fraŭlinon por kompanio. ŝi faris al mi efektive grandan bonfaron, ĉar, kio ajn poste okazis, mi ĝis la fino de mia vivo povas fanfaroni, ke mi estis edukata kune kun la amataj hundetoj de la grandmonde konata sinjorino Herminio. Nia eduko kaj nia maniero de vivado, t. e. de mi kaj de la hundetoj, estis inter si tre similaj, mi kaj ili dormadis sur molaj kusenoj, kuradis sur vaksitaj pargetoj, manĝadis bonegajn delikataĵojn, kaj nur tiu diferenco inter ni ekzistis, ke ili portis silkajn kovriletojn kaj orajn kolringojn, dum mi portis silkajn vestojn kaj orajn braceletojn, ke ili ĝis la fino restis en la paradizo, dum min elpelis el tie la venĝema anĝelo de patrina fiereco …
 
-ĉe la lastaj vortoj la virino eh la violkolora vesto ekridis per mallonga, seka rido, kies sono, kontrastante kun ŝia tuta freŝa eksterajo, harmoniis kun la velkinteco de la frunto kaj, simile 195
-
-MARTA
+ĉe la lastaj vortoj la virino eh la violkolora vesto ekridis per mallonga, seka rido, kies sono, kontrastante kun ŝia tuta freŝa eksterajo, harmoniis kun la velkinteco de la frunto kaj, simile
 
 
 al tiu ĉi lasta, povis veki rilate ŝin malkonfidon aŭ kompaton.
@@ -3591,9 +2899,7 @@ Marta videble sentis tiun ĉi lastan senton.
 
 —Kaj li? — malgaje demandis Marta, — ĉu li ankaŭ amis vin vere? Kion li faris tiam, kiam lia patrino ordonis al vi foriri el ŝia domo al mizero, soluleco kaj vagado?
 
-—Li! — diris Karolino kun imito de patoso, — li rigardadis min en la daŭro de tuta jaro per siaj plej ĉarmaj safirkoloraj okuloj tiamaniere, kvazaŭ li volus penetri en la profundon de mia animo kaj plenakiri ĝin per sia rigardo; li kantadis ĉe la fortepiano kantojn, de kiuj fandiĝadis mia koro; li premadis al mi la manon dum dancado, poste li kisadis ambaŭ miajn manojn kaj ĵuradis per la ĉielo kaj tero, ke li min amos ĝis la tombo; poste li skribadis al mi el ĉambro en ĉambron leterojn 196
-
-MARTA
+—Li! — diris Karolino kun imito de patoso, — li rigardadis min en la daŭro de tuta jaro per siaj plej ĉarmaj safirkoloraj okuloj tiamaniere, kvazaŭ li volus penetri en la profundon de mia animo kaj plenakiri ĝin per sia rigardo; li kantadis ĉe la fortepiano kantojn, de kiuj fandiĝadis mia koro; li premadis al mi la manon dum dancado, poste li kisadis ambaŭ miajn manojn kaj ĵuradis per la ĉielo kaj tero, ke li min amos ĝis la tombo; poste li skribadis al mi el ĉambro en ĉambron leterojn
 
 
 sopiregajn kaj flamajn; poste … kiam lia patrino, okaze leginte unu el liaj leteroj, ordonis al mi iri for, kien kondukos min miaj okuloj, li forveturis pasigi la karnavalon en Varsovio; kiam li unu fojon renkontis min sur la strato — mi tiam estis malsata, malespera, vestita preskaŭ en ĉifonoj — li ruĝiĝis kiel peonio, mallevis la okulojn, preterpasis kvazaŭ ne reko-nante min, kaj kelke da tagoj poste en la preĝejo de la Vizi-tulinoj li antaŭ la altaro sankte promesis al bela kaj riĉa bien-havantino ĝismortan fidelecon kaj amon … Tiel li min amis kaj tion li faris por mi … Kaj ŝi denove ekridis, sed nun jam mallonge kaj seke.
@@ -3607,9 +2913,6 @@ Li havis siajn grandajn bonajn ecojn, mi vin certigas, sed li nur faris tion, ki
 ŝi parolis tion kun plena seriozeco, sen ia eĉ plej malgranda ŝerco aŭ ironio, per voĉo de plena konvinkiteco; poste ŝi krucigis la manojn sur la brusto kaj, ne ĉesante rigardi la plafonon, ekkantetis mallaŭte kanton el la opereto ”Dek Filinoj Kandidatinoj”. Marta rigardis ŝin per miregantaj okuloj.
 
 
-MARTA
-
-
 Post momento la virino en la atlasaĵoj ĉesis kanteti, la pozon duonkuŝan ŝi ŝanĝis je poza sida, kaj, apogante la kubu-ton sur la genuo kaj la vizaĝon sur la manplato, ŝi iom kliniĝis al sia kamaradino.
 
 —ĉar fine, — ŝi komencis paroli per la sama serioza tono kiel antaŭe, — kiam oni juĝas pri homoj, oni devas ja konsideri iliajn kutimojn kaj tiun vidpunkton, el kiu ili rigardas la vivon kaj ĝiajn aferojn. Se ekzemple la koloroj blanka kaj nigra posedus la povon pensi kaj senti, tiam la unua, alkutimi-ginte al la supereco, kiun la homoj konstante donas al ĝi rilate la duan, tre bone povus imagi al si, ke la nigra koloro estis kreita nur por tio, ke ĝi liveru diversajn agrablajojn kaj amu-zojn al la koloro blanka. La plej grava afero en la interhomaj rilatoj, mia kara, estas la diferencoj, kiuj ekzistas inter ili; kaj inter sinjoro Eduardo kaj mi ekzistis diferencoj grandegaj ...
@@ -3618,20 +2921,14 @@ Post momento la virino en la atlasaĵoj ĉesis kanteti, la pozon duonkuŝan ŝi 
 
 —En kelkaj rilatoj, — respondis Karolino; — tamen ne pri riĉeco kaj malriĉeco mi pensis, kiam mi parolis pri la diferencoj, ĉar se mi estus ne malriĉa virino, sed malriĉa viro, tiam sinjoro Eduardo, kiu, mi ripetas, havas multe da bonaj ecoj de karaktero, eĉ ne ekpensus fari al mi maljustaĵon aŭ ofendon.
 
-Viro riĉa kaj samtempe honesta ne faras maljustaĵon nek ofendon al viro malriĉa; se li iam tion faras, tio ĵetas makulon sur lian karakteron kaj elmetas lin al puno de publika malaprobo. Sed mi ne estis viro, mi estis virino; kaj ofendo aŭ maljustaĵo rilate virinon en tia maniero, en kia ĝi okazis inter mi kaj sinjoro Eduardo, estas afero tute alia ol ofendo aŭ maljustaĵo rilate viron. C,a ne tire pas à conséquence! Kontraŭe, 198
-
-MARTA
+Viro riĉa kaj samtempe honesta ne faras maljustaĵon nek ofendon al viro malriĉa; se li iam tion faras, tio ĵetas makulon sur lian karakteron kaj elmetas lin al puno de publika malaprobo. Sed mi ne estis viro, mi estis virino; kaj ofendo aŭ maljustaĵo rilate virinon en tia maniero, en kia ĝi okazis inter mi kaj sinjoro Eduardo, estas afero tute alia ol ofendo aŭ maljustaĵo rilate viron. C,a ne tire pas à conséquence! Kontraŭe,
 
 
-tio alportas honoron, tio estas nomata sukceso, vira braveco, tio faras junan homon interesa, donas al li ian ĉarmon de gloro. ”Bravega knabo estas tiu Eduĉjo!” ”Kia diabla kaptanto de koroj!” ”Li naskigis por ĉiama feliĉo” ”Li havas feliĉon ĉe virinoj” ”Por li delogi knabinon estas kiel krevigi nukson” k.t.p., k.t.p. ĉiu homo, mia kara, tre amas esti laŭdata, kaj mallaŭ-
-
-don li timas kiel fajron. Multe da homoj ne faras malbonon pro timo de mallaŭdo kaj agas bone pro deziro de laŭdo. Sinjoro Eduardo havis simpation al mi, ne estas mirinde, ĉar mi havis la aĝon de dekok jaroj kaj mi estis bela … li realigis tiun simpation en tia maniero, kiu certe estis por li agrabla, tio ankaŭ ne estas mirinda; li sciis bone depost sia infaneco, ke tia realigo estas lia neforprenebla rajto, ke se li ne faros de ĝi uzon, li estos nomata en la mondo malsaĝulo kaj mallertulo, kaj se li faros uzon, li ricevos la titolon de brava lertulo kaj interesa junulo. Li faris tion, kion sur lia loko farus ĉiu, tial mi havas nenian plendon kontraŭ li, kontraŭe, mi estas danka al li … li puŝis min en la mondon, li lernigis al mi la vivon kaj
+tio alportas honoron, tio estas nomata sukceso, vira braveco, tio faras junan homon interesa, donas al li ian ĉarmon de gloro. ”Bravega knabo estas tiu Eduĉjo!” ”Kia diabla kaptanto de koroj!” ”Li naskigis por ĉiama feliĉo” ”Li havas feliĉon ĉe virinoj” ”Por li delogi knabinon estas kiel krevigi nukson” k.t.p., k.t.p. ĉiu homo, mia kara, tre amas esti laŭdata, kaj mallaŭdon li timas kiel fajron. Multe da homoj ne faras malbonon pro timo de mallaŭdo kaj agas bone pro deziro de laŭdo. Sinjoro Eduardo havis simpation al mi, ne estas mirinde, ĉar mi havis la aĝon de dekok jaroj kaj mi estis bela … li realigis tiun simpation en tia maniero, kiu certe estis por li agrabla, tio ankaŭ ne estas mirinda; li sciis bone depost sia infaneco, ke tia realigo estas lia neforprenebla rajto, ke se li ne faros de ĝi uzon, li estos nomata en la mondo malsaĝulo kaj mallertulo, kaj se li faros uzon, li ricevos la titolon de brava lertulo kaj interesa junulo. Li faris tion, kion sur lia loko farus ĉiu, tial mi havas nenian plendon kontraŭ li, kontraŭe, mi estas danka al li … li puŝis min en la mondon, li lernigis al mi la vivon kaj
 
 ĝiajn grandajn verojn.
 
-ŝi etendis la manon, el kristala pladeto, kiu staris sur la tablo, ŝi prenis rozan sukeraĵon kaj, kraketigante ĝin en siaj blankaj dentoj, denove forte ekpremis per sia malgranda piedo la broditan hundeton. La balancarkoj ekmoviĝis pli vigle kaj ekbalancis la virinon, kuŝantan sur la longa brakseĝo. ŝiaj pupiloj, kiuj malrapide vagis sur la ĉirkaŭantaj objektoj, en tiu momento similis grandan brilianton, brilantan sur fingro sub la lumo de fajro; helaj ĉielarkaj koloroj briletadis en ili kiel en glaciaj kristaloj poluritaj de frosto. Sed la okuloj de Marta, fiksitaj sul la vizaĝo de la estinta kamaradino de ŝia infaneco 199
-
-MARTA
+ŝi etendis la manon, el kristala pladeto, kiu staris sur la tablo, ŝi prenis rozan sukeraĵon kaj, kraketigante ĝin en siaj blankaj dentoj, denove forte ekpremis per sia malgranda piedo la broditan hundeton. La balancarkoj ekmoviĝis pli vigle kaj ekbalancis la virinon, kuŝantan sur la longa brakseĝo. ŝiaj pupiloj, kiuj malrapide vagis sur la ĉirkaŭantaj objektoj, en tiu momento similis grandan brilianton, brilantan sur fingro sub la lumo de fajro; helaj ĉielarkaj koloroj briletadis en ili kiel en glaciaj kristaloj poluritaj de frosto. Sed la okuloj de Marta, fiksitaj sul la vizaĝo de la estinta kamaradino de ŝia infaneco
 
 
 kaj juneco, esprimis profundan meditadon ligitan kun turmentanta maltrankvileco.
@@ -3646,12 +2943,7 @@ kaj juneco, esprimis profundan meditadon ligitan kun turmentanta maltrankvileco.
 
 —Kaj tamen … rigardu … rigardu ĉirkaŭen.
 
-Marta ne rigardis ĉirkaŭen, ŝi nur malfermis la buŝon, kva-zali ŝi volus fari al sia kamaradino ian demandon, kiun ŝi tamen rapide retenis. Ambaŭ virinoj silentis sufiĉe longe. Ka-200
-
-MARTA
-
-
-rolino senĉese malrapide balanciĝadis, manĝadis bombonon post bombono kaj ne forturnadis sian rigardon de la vizaĝo de Marta, kiu, profunde enpensiĝinte, sidis kun tempio apogita sur la mano kaj kun mallevitaj palpebroj.
+Marta ne rigardis ĉirkaŭen, ŝi nur malfermis la buŝon, kva-zali ŝi volus fari al sia kamaradino ian demandon, kiun ŝi tamen rapide retenis. Ambaŭ virinoj silentis sufiĉe longe. Karolino senĉese malrapide balanciĝadis, manĝadis bombonon post bombono kaj ne forturnadis sian rigardon de la vizaĝo de Marta, kiu, profunde enpensiĝinte, sidis kun tempio apogita sur la mano kaj kun mallevitaj palpebroj.
 
 —ĉu vi scias, Marta, — interrompis la silenton la virino en la atlasoj, — ke vi estas vere bela! Kia imponanta staturo! vi certe estas je duono da kapo pli alta ol mi, la mizero ĝis nun tute ne malbeligis vin, kvankam la rozokolora kamena rebrilo, kiu nun falas sur vian vizaĝon kaj imitas delikatan vang-ruĝon, tre plialtigas vian belecon kaj aspektas ĉarmege ĉe viaj nigraj densegaj haroj! Kiel do ankoraŭ estus, se anstataŭ ĉi tiu malbela lana bruniĝinta vesto vi metus sur vin veston de hela koloro kaj de eleganta fasono, se anstataŭ ĉi tiu tola glata kolumo vi ĉirkaŭigus vian kolon per travidigaj puntoj, se viajn harligojn vi levus iom pli alte kaj ornamus ilin per punca rozo aŭ per oraj harpingloj … Vi estis belega, mia kara, kaj se vi nur du au tri fojojn montriĝus en loĝio de unua etaĝo ĉe la pre-zentado de ia moda komedio, la junularo de la tuta Varsovio tuj demandus unuvoĉe: Kiu ŝi estas? kie ŝi loĝas? ĉu ŝi permesos, ke ni antaŭ ŝiaj piedoj …
 
@@ -3660,9 +2952,6 @@ rolino senĉese malrapide balanciĝadis, manĝadis bombonon post bombono kaj ne 
 —Por kio? por kio? ho! ho! ho!
 
 ĉi tiuj ekkrioj estis akompanataj de mallonga seka rido kaj kune kun ĝi ili baldaŭ malaperis. Ambau virinoj denove silentis pli longe ol antaŭe.
-
-
-MARTA
 
 
 —Marta! kian aĝon vi havas?
@@ -3675,12 +2964,7 @@ Denove ili silentis momenton. Marta kun esprimo de decideco sur la vizaĝo levis
 
 —Jes, Karolino, mi vidas mem, ke vi verŝajne estas pli saĝa ol mi, ke vi pli atingis en la vivo. Vi posedas bonstaton, vi verŝajne estas trankvila pri via morgaŭa tago, se vi simile al mi havus malgrandan infanon, vi ne bezonus lasi ĝin suferi ĉe fremdaj homoj, nek rigardi, kiel ĝi antaŭ viaj okuloj malfortiĝas, paliĝas, konsumiĝas … Mi konas vin tiel longan tempon, kian povas ampleksi mia memoro, ni estis kune infanoj kaj junaj knabinoj, ni amis nin recirroke … kaj tamen mi ĝis nun ne kuraĝis demandi vin, kie vi prenis ĉi tiun bonstaton, kiu, kiel mi vidas, vin ĉirkaŭas, kiamaniere vi sukcesis eliĝi el la malriĉeco, el la mizero, pri kiu vi aludis al mi en via interparolo … Mi ne kuraĝis demandi vin pri tio, ĉar mi vidis, ke vi penas eviti miajn demandojn, sed pardonu min, Karolino, tio estas malbona de via flanko … al la estinta kamaradino de viaj infanaj ludoj, al la ankoraŭ antaŭnelonga konfidatino de viaj junecaj revoj vi devas diri, kiamanere vi venkis tiun fata-lismon, kiu alkroĉiĝas al la paŝoj kaj premegas la kapojn de virinoj malriĉaj … eble ĉi tio ankaŭ sur mian vojon ĵetos ian lumon.
 
-—Ho, ĝi ĵetos, ĝi sendube ĵetos sur vian vojon lumon tre helan, tre klarigan! — diris la virino kun la neligitaj fla veblon-202
-
-MARTA
-
-
-daj haroj. ŝiaj okuloj denove aspektis kiel du pecoj da malvarma kristalo, en kiuj vidigas ĉielarkaj koloroj, sur ŝiaj malgrandaj lipoj ludis tremetanta rideto, sed ŝia voĉo havis sonon certecan kaj trankvilan.
+—Ho, ĝi ĵetos, ĝi sendube ĵetos sur vian vojon lumon tre helan, tre klarigan! — diris la virino kun la neligitaj fla veblondaj haroj. ŝiaj okuloj denove aspektis kiel du pecoj da malvarma kristalo, en kiuj vidigas ĉielarkaj koloroj, sur ŝiaj malgrandaj lipoj ludis tremetanta rideto, sed ŝia voĉo havis sonon certecan kaj trankvilan.
 
 Marta parolis plue:
 
@@ -3702,12 +2986,7 @@ Marta parolis plue:
 
 —Mi estis bela, — ŝi diris, — kaj … kaj mi komprenis, kia estas la sola por mi akirebla loko sur la tero.
 
-—Ha! — mallaŭte ekkriis Marta kaj faris tian movon, kvazaŭ ŝi volus desalti de sia sidejo. Sed la virino, kiu staris an-taŭ ŝi, alforĝis ŝin al la loko per la forto de sia rigardo. ŝi staris kun nemovebla korpo kaj vizaĝo, ŝiaj blondaj haroj kaj ŝia elasta gracia talio troviĝis sub la rozokolora rebrilo de la ardantaj karboj. ŝi levis iom la palpebrojn kaj rigardis la viza-203
-
-MARTA
-
-
-ĝon de Marta profunde kaj obstine, per okuloj, en kiuj nun vidiĝis malluma brilo de malgaja fajro.
+—Ha! — mallaŭte ekkriis Marta kaj faris tian movon, kvazaŭ ŝi volus desalti de sia sidejo. Sed la virino, kiu staris an-taŭ ŝi, alforĝis ŝin al la loko per la forto de sia rigardo. ŝi staris kun nemovebla korpo kaj vizaĝo, ŝiaj blondaj haroj kaj ŝia elasta gracia talio troviĝis sub la rozokolora rebrilo de la ardantaj karboj. ŝi levis iom la palpebrojn kaj rigardis la vizaĝon de Marta profunde kaj obstine, per okuloj, en kiuj nun vidiĝis malluma brilo de malgaja fajro.
 
 —Kio do? — ŝi diris post momento, — vi timiĝis, naiva estaĵo, vi volas forkuri? bone, iru! vi havas plenan rajton levi de la tero plenmanon da koto kaj ĵeti ĝin al mi en la vizaĝon.
 
@@ -3719,9 +2998,7 @@ Marta ŝirmis siajn okulojn per la manplato.
 
 —Aŭskultu, — ŝi ripetis. — ĉu vi iam demandis vin mem kaj ĉu vi iam penis klarigi al vi precize, kio en la mondo estas virino? Certe ne. Nu, mi diros al vi: mi ne scias, kiele estas laŭ la legoj diaj, pri kiuj vi parolis antaŭ momento … sed laŭ la legoj kaj moroj homaj virino ne estas homo, virino estas objekto. Ne forturnu de mi la kapon. Mi diras la veron, eble relativan, sed veron. ĉu vi volas vidi homojn? rigardu la virojn. ĉiu el ili vivas en la mondo per si mem, li ne bezonas, ke oni alskribu al li ian ciferon por tio, ke li ĉesu esti nulo.
 
-Virino estas nulo, se apud ŝi ne staras viro kiel cifero pleniganta. Al virino oni donas brilantan kadrajon, por ke ŝi, kiel 204
-
-MARTA
+Virino estas nulo, se apud ŝi ne staras viro kiel cifero pleniganta. Al virino oni donas brilantan kadrajon, por ke ŝi, kiel
 
 
 arte polurita diamanto en magazeno de juvelisto, altiru al si la okuJojn de kiel eble plej granda nombro da aĉetantoj. Se ŝi tie trovas por si akiranton, aŭ se, trovinte lin, ŝi lin perdas, ŝi kovriĝas per rustaĵo de eterna doloro, per makuloj de senhel-pa mizero, ŝi farigas denove nulo, sed nulo malgrasa de malsato, tremanta de malvarmo, disŝiriĝanta en ĉifonojn per la vanaj provoj sin movi kaj sin ŝovi. Rememorigu al vi ĉiujn maljunajn fraŭlinojn, la forlasitajn aŭ vidviĝintajn virinojn, kiujn vi konis en via vivo, rigardu viajn koleginojn el la laborejo de sinjorino Szwejc, rigardu vin mem … Kion vi ĉiuj signifàs en la mondo? kiaj estas viaj esperoj? kie estas la eblo, ke vi elgrimpu el la marĉejo kaj iru tien, kien iras la homoj? Vi estas vegetaĵoj, kies trunketoj, edukitaj en oranĝerioj, ne havas la forton, por kontraŭstari al ventoj kaj fulmotondroj!
@@ -3731,16 +3008,11 @@ Certe ja tiel estas, se la profetoj kaj saĝuloj de la mondo nomis la virinon �
 —Mi estis juna, bela, alkutimiĝinta al lukso kaj nenionfa-rado; kiam oni elpelis min el la domo de la riĉaj parencoj, mi posedis kiel mian tutan propraĵon kelke da vestoj, oran braceleton, restintan post mia patrino, kaj tiun ringon kun blua emajlo, kiun vi, Marta, donis al mi en la tago de via edziniĝo.
 
 
-MARTA
-
-
 Mi vendis la braceleton kaj la ringon. Mi pensis, ke la ricevita sumo sufiĉos al mi, ĝis mi trovos laborenspezon. Mi imagis al mi, ke mi estas homo, kaj pro ĉi tiu malsaĝa eraro mi suferis inferajn turmentojn en la daŭro de kelke da monatoj.
 
 Mi ilin suferus eble pli longe, se mi ne renkontus feliĉe sur la trotuaro de la strato Nowy Swiat sinjoron Eduardon. Mi lin amis ankoraŭ. Kiam li pasis preter mi sen saluto, tiam mi fine konvinkiĝis, ke mi estas objekto, kiun estas permesite laŭvole preni kaj forĵeti. ĉu iu agus kun homo tiamaniere, kiel agis kun mi tiu, pri kiu mi revis en la tagoj de trankvileco kaj kies trajtojn mi revokadis al mia memoro en la horoj de malsato kaj suferoj? Depost la momento, en kiu mi perdis la kredon pri mia homeco, miaj suferoj finiĝis. Vi eble aŭdis pri la juna sinjoro Vitalio, kiu havas maljunan edzinon, grandan bienon proksime de Varsovio kaj belan domon en Varsovio? Li ofte venadis en la butikon ĉe la strato Ptasia, kie mi helpadis la posedantinon vendi kandelojn kaj sapon, ricevante de ŝi por tio en la nokto anguleton sur la planko en la infana ĉambro kaj en la tago pladon da griaĵo kaj glason da lakto. En efektiveco mia laboro valoris multe pli grandan rekompencon:, sed la bonkora virino ekspluatis la laborantinon, kiun ŝi levis de la pavimo senfortigitan, malsatan kaj en ĉifonoj. Du tagojn post tiu renkontiĝo kun sinjoro Eduardo, post du noktoj, pri kiuj mi nun jam ne povus al vi rakonti, mi ĉesis vendi kandelojn kaj sapon … al sinjoro Vitalio mi diris: bone! mi forlasis la butikon kaj la ĉambron, en kiu kriadis kaj sin batadis kvin malpuraj infanaĉoj; mi ekloĝis ĉi tie …
 
-Marta sidis kiel ŝtoniĝinta. Sub la manplato, per kiu ŝi ŝirmis al si la okulojn, oni povis vidi, ke ŝia vizaĝo estas pala kaj senmova. Apenaŭ rimarkebla ektremo trakuris ŝin de la kapo 206
-
-MARTA
+Marta sidis kiel ŝtoniĝinta. Sub la manplato, per kiu ŝi ŝirmis al si la okulojn, oni povis vidi, ke ŝia vizaĝo estas pala kaj senmova. Apenaŭ rimarkebla ektremo trakuris ŝin de la kapo
 
 
 ĝis la piedoj, kiam preskaŭ senpere ĉe ŝia orelo eksonis seka, mallonga rido, kiu nun similis klakilon de nokta gardisto.
@@ -3759,9 +3031,7 @@ La virino en la funebra vesto ne respondis dum momento.
 
 ŝia vizaĝo aperigis jen mortan palecon, jen koloron de sango, la voĉo tremis kaj kvazaŭ venis el la profundo de la brusto, kiam ŝi komencis paroli.
 
-—Antau nelonge, ankoraŭ antaŭ nelonge, se iu kuraĝus 207
-
-MARTA
+—Antau nelonge, ankoraŭ antaŭ nelonge, se iu kuraĝus
 
 
 paroli al mi tiel, kiel vi parolis, Karolino, mi sentus en mi teruran ofendon … eble furiozan koleron … nun mi sentas nenion krom granda doloro! kaj ankoraŭ pli granda honto. Mi certe estas io malpli alta ol homo, se, havante nenian kulpon, ne farinte eĉ ombron da malbono, serĉante en la mondo nenion, nenion krom honesta laboro, mi renkontis tion, kion …
@@ -3783,9 +3053,6 @@ i ne estis ia bildo el la pasintaj ĝojoj kaj feliĉo, kontraŭe,
 ĝi prezentis per si momenton de senlima doloro. Marta ekvidis kuŝantan sur la lito de malsanulo la solan homon, kiun ŝi amis sur la tero. Lia vizaĝo estis rigidiĝanta sub la mano de la morto, la spirado de la malsanega brusto estis ĉiam pli kaj pli malfacila, sed liaj okuloj, radiantaj per la lasta brilo de la vivo, estis fiksitaj sur ŝia vizaĝo, lia mano kun spasmo de ago-nio per la rigidiĝantaj fingroj premis ŝian manon. ”Malfeliĉa mia Marta, kiel vi vivos sen mi!” Kun ĉi tiuj vortoj sur la bluiĝintaj lipoj li forlasis ŝin por ĉiam.
 
 
-MARTA
-
-
 —Ho, kiel mi lin amis! kiel mi lin ankoraŭ amas! — murmuretis la vidvino, kaj ŝiaj interplektitaj manoj falis sur la nigran veston kaj ŝia brusto leviĝis de forta ekĝemo. — Ne, Karolino! Pro Dio, ne! — ŝi ekkriis, alte levante la vizaĝon palan kaj tamen radiantan; — mi estis pli feliĉa ol vi. La homo, kiun mi amis, ne faris el mi objekton. Li edziĝis kun mi, li min amis, li min estimis. Mortante, li pensis ankoraŭ pri mi kaj pri mia estonteco. Mi amas lin ankoraŭ, kvankam li ne estas jam sur la tero, mi estimas lian nomon, kiun mi portas. Amo por li kaj memoro pri li staras en mia interno kiel altaroj; antaŭ ili brulas lampo plenigita de larmoj de mia koro, kaj ĝi lumas mian malgajan vojon.
 
 —Kaj irante tiun vojon, vi baldaŭ atingos la kampojn Eli-zeajn, kie blankaj anĝeloj kunigos vin kun via mortinta edzo!
@@ -3794,16 +3061,9 @@ MARTA
 
 Marta staris jam kelke da paŝoj for de ŝi kaj metis sur sian kapon la nigran lanan tukon.
 
-—Adiaŭ, malfeliĉa Karolino, adiaŭ! — ŝi diris per mallaŭ-
+—Adiaŭ, malfeliĉa Karolino, adiaŭ! — ŝi diris per mallaŭta voĉo kaj elkuris en la apudan ĉambron, kie super la ronda mahagona tablo jam brulis la rozokolora lampo. ŝi estis jam proksime de la pordo, kiam ŝi eksentis, ke oni tenas ŝin je la brako. Apud ŝi staris Karolino kun lipoj tremantaj de rido, kun sia velkinta frunto kovrita de malgrandaj sulketoj kaj kun malluma brilo en la pupiloj.
 
-ta voĉo kaj elkuris en la apudan ĉambron, kie super la ronda mahagona tablo jam brulis la rozokolora lampo. ŝi estis jam proksime de la pordo, kiam ŝi eksentis, ke oni tenas ŝin je la brako. Apud ŝi staris Karolino kun lipoj tremantaj de rido, kun sia velkinta frunto kovrita de malgrandaj sulketoj kaj kun malluma brilo en la pupiloj.
-
-—Aŭskultu! — ŝi diris, — efektive mi volas ridi pri vi! vi estas ekzaltita; strange naiva, mia kara, vi estas ankoraŭ granda infano. Kaj tamen mi vin bedaŭras! mi eĉ ne scias kial, ĉar fine kion do povas min interesi tio, kio fariĝos al vi? Por mi estas eĉ pli bone, ke vi ne estos mia najbarino, ĉar vi estas tro bela … Sed … sed via ringo nutris min dum kelke da semaj-209
-
-MARTA
-
-
-noj … ne estas ja nepra devo de mia vivo, ke mi estu sendan-ka.
+—Aŭskultu! — ŝi diris, — efektive mi volas ridi pri vi! vi estas ekzaltita; strange naiva, mia kara, vi estas ankoraŭ granda infano. Kaj tamen mi vin bedaŭras! mi eĉ ne scias kial, ĉar fine kion do povas min interesi tio, kio fariĝos al vi? Por mi estas eĉ pli bone, ke vi ne estos mia najbarino, ĉar vi estas tro bela … Sed … sed via ringo nutris min dum kelke da semajnoj … ne estas ja nepra devo de mia vivo, ke mi estu sendan-ka.
 
 Per unu mano ŝi forte tenis la brakon de la juna virino, la duan ŝi etendis al la fenestro.
 
@@ -3829,9 +3089,7 @@ La virino ne returnis la kapon kaj iris plue malsupren.
 
 —Vi mortos de malsato kune kun via infano.
 
-ĉe la sono de la lasta vorto la virino haltis, returnis la morte palan vizaĝon, kaj la okulojn malgaje sed arde flamantajn 210
-
-MARTA
+ĉe la sono de la lasta vorto la virino haltis, returnis la morte palan vizaĝon, kaj la okulojn malgaje sed arde flamantajn
 
 
 ŝi direktis kun febra rigardo al la figuro, kiu staris ĉe la supro de la ŝtuparo. Abunda gasa lumo ĉirkaŭfluis tiun figuron, donante striojn arĝentajn sur ĝia violkolora vesto; la granda kameo lumis ĉe la kolo per koloro blueta, la oraj harpingloj tremis inter la densaj longaj haroj, kiuj iom leviĝadis pro la blo-vado de la vento, kiu penetris tra la malfermita pordo, kondukanta al la strato. ŝi staris kun kapo kaj talio klinitaj an-taŭen kun lipoj tremantaj de rido, kun malvarmaj okuloj, ĵetantaj ĉielkolorajn brilojn el sub la velkinta frunto. Marta rigardis ŝin dum momento per rigardo seka, ardanta, terurita kaj malgaja, poste ŝi subite sin returnis, saltis antaŭen kaj rapidege malaperis en la duonkrepusko de la strato.
@@ -3844,9 +3102,7 @@ Kiam do ŝi revenos?
 
 Li faris ĉi tiujn demandojn per tono mallonga kaj rapide; en liaj nigraj brilantaj okuloj estis esprimita malpacienco de homo sen volo kaj sen pripensado, de homo, kiu plene submetiĝas al ricevita impreso.
 
-—ŝi tute ne revenos, — respondis la virino, kiu sidis antaŭ la kameneto, sur la sama loko, sur kiu antaŭ kelke da minutoj sidis Marta. ŝiaj brakoj estis krucigitaj sur la brusto, la okuloj estis senmove turnitaj al la ardantaj karboj. ŝi ne turnis la rigardon al la eniranta juna viro, kaj al liaj malpaciencaj 211
-
-MARTA
+—ŝi tute ne revenos, — respondis la virino, kiu sidis antaŭ la kameneto, sur la sama loko, sur kiu antaŭ kelke da minutoj sidis Marta. ŝiaj brakoj estis krucigitaj sur la brusto, la okuloj estis senmove turnitaj al la ardantaj karboj. ŝi ne turnis la rigardon al la eniranta juna viro, kaj al liaj malpaciencaj
 
 
 demandoj ŝi respondis per tono mallonga, pli ol indiferenta, per tono malkontenta.
@@ -3874,16 +3130,11 @@ ami mortintan edzon ankoraŭ post paso de kelke da monatoj post lia morto! Kiaj 
 —Tre povas esti, ke vi povus esti tiu feliĉulo, — respondis la virino, sidante antaŭ la kameneto. ŝi tamen ne forturnis la kapon kaj faris nenian movon. Li alsaltis al ŝi. Hela ruĝo kovris liajn vangojn.
 
 
-MARTA
-
-
 —Mi povus esti! — li ekkriis, — ŝi ne forŝiris do de mi ĉiun esperon! Ho, bela, ĉarma, ora, brilianta sinjorino Karonjo, kompatu min! mi estas efektive furioze enamiĝinta! mi povus esti tiu feliĉulo, se … diru, sinjorino, mi petegas, mi ĵurigas vin
 
 … se mi farus kion?..
 
-La virino nun la unuan fojon levis la okulojn al li. Sur la fundo de ŝiaj pupiloj, sur la iom levitaj brovoj, sur la movi-
-
-ĝantaj anguloj de la delikataj lipoj kuŝis nepriskribebla esprimo de moko.
+La virino nun la unuan fojon levis la okulojn al li. Sur la fundo de ŝiaj pupiloj, sur la iom levitaj brovoj, sur la moviĝantaj anguloj de la delikataj lipoj kuŝis nepriskribebla esprimo de moko.
 
 —Se vi, — ŝi diris malrapide, — se vi aspirus ŝian manon kaj volus edziĝi kun ŝi.
 
@@ -3893,9 +3144,7 @@ La virino nun la unuan fojon levis la okulojn al li. Sur la fundo de ŝiaj pupil
 
 La virino dum momento akompanis lin per rigardo malvarma kaj moka. Sur ŝia vizaĝo transkuris dum unu minuto milo da koketaj, mokaj kaj malestimaj ridetoj. La gaja Aleĉjo denove staris antau ŝi.
 
-—Vi estas kruela, sinjorino Karolino, — li ekkriis, — vi parolas al mi pri edziĝo! ĉu ekzistas io pli sensenca? ligi sin por la tuta vivo, kun persono, kiun mi apenaŭ konas, kun vidvino, kiu amas ankoraŭ sian mortintan edzon? fariĝi per unu fojo patro de ia infanaĉo, bari al si la mondon, preni sur la ŝultrojn tiom da respondeco, tiom da klopodoj? kaj en mia aĝo? kun mia feliĉa situacio? i estas ideo, kiu efektive konvenus al 213
-
-MARTA
+—Vi estas kruela, sinjorino Karolino, — li ekkriis, — vi parolas al mi pri edziĝo! ĉu ekzistas io pli sensenca? ligi sin por la tuta vivo, kun persono, kiun mi apenaŭ konas, kun vidvino, kiu amas ankoraŭ sian mortintan edzon? fariĝi per unu fojo patro de ia infanaĉo, bari al si la mondon, preni sur la ŝultrojn tiom da respondeco, tiom da klopodoj? kaj en mia aĝo? kun mia feliĉa situacio? i estas ideo, kiu efektive konvenus al
 
 
 bonkora burĝo, avidanta bongustan hejman kuiraĵon kaj dek-duon da pufvangaj infanaĉoj. Mi supozas, ke vi ne diris tion serioze; mi scias, ke vi amas ŝerci, tio estas unu el viaj ĉefaj, ĉarmoj.
@@ -3931,9 +3180,6 @@ Aleĉjo ŝajnis feliĉigita.
 —ĉe sinjorino Szwejc! mi scias! mi scias! mi vizitadas, ŝin!
 
 
-MARTA
-
-
 Unu filino, tiu, kiu altranĉas, estas monstro, sed la dua, juna edzino de bierfaristo, kaj ankaŭ la nepino per la filo, fraŭlino Eleonoro, estas ne malbelaj … Tie do pasigas la tempon mia diino! Ho, morgaŭ … morgaŭ … mi kuros, flugos, rapidos.
 
 Li kaptis la ĉapelon kaj staris jam sur la sojlo.
@@ -3952,41 +3198,21 @@ La virino staris ĉe la pordo de sia dormoĉambro kun brulanta kandelo en la man
 
 is revido! ĝis revido! mi kuras, flugas, rapidas!
 
-ĉiuj grandaj urboj ĝenerale kaj precipe Varsovio posedas en sia mezo ian nombron da viroj diversaĝaj, kiuj havas perfekte fiksitan kaj larĝe faman reputacion de glutantoj de virinaj koroj kaj ruinigantoj de virina honoro. Tiuj homoj, tuj depost la momento, kiam la patrino-naturo aperigas sur ilia supra lipo la unuan lipharan lanugon, ĝis la momento kaj ofte eĉ post la momento, kiam la komuna patrino ornamas al ili la kapon per blanketa prujno de grizhareco, faras al si kvazaŭ profesion kaj ĉiutagan okupon el admirado de virinaj ĉarmoj, admirado platona, kie oni alie ne povas, admirado ne platona ĉie, kie oni povas. Ili estas ordinare homoj tre agrablaj, viglaj, spritaj, gajaj, komplezemaj, en societoj ili estas tre dezirataj, en kolegaj rondetoj ili estas admirataj. Ili ofte havas koron ne sole senteman, sed ankaŭ bonan; intence kaj kun 215
-
-MARTA
+ĉiuj grandaj urboj ĝenerale kaj precipe Varsovio posedas en sia mezo ian nombron da viroj diversaĝaj, kiuj havas perfekte fiksitan kaj larĝe faman reputacion de glutantoj de virinaj koroj kaj ruinigantoj de virina honoro. Tiuj homoj, tuj depost la momento, kiam la patrino-naturo aperigas sur ilia supra lipo la unuan lipharan lanugon, ĝis la momento kaj ofte eĉ post la momento, kiam la komuna patrino ornamas al ili la kapon per blanketa prujno de grizhareco, faras al si kvazaŭ profesion kaj ĉiutagan okupon el admirado de virinaj ĉarmoj, admirado platona, kie oni alie ne povas, admirado ne platona ĉie, kie oni povas. Ili estas ordinare homoj tre agrablaj, viglaj, spritaj, gajaj, komplezemaj, en societoj ili estas tre dezirataj, en kolegaj rondetoj ili estas admirataj. Ili ofte havas koron ne sole senteman, sed ankaŭ bonan; intence kaj kun
 
 
-antaŭpretigita plano ili neniel volus malutili al iu; kaj se ili tamen ofte kaŭzas malprofitojn, menso malsevera kaj bone ilmprenanta ne povas sen maljusteco apliki al ili aliajn vortojn krom la evangelia: Dio, pardonu ilin, ĉar ili ne scias, kion ili faras! Celere, konsiderinte la ordinarecon de la apero, kiun ili per si prezentas, konsiderinte ĉion, kion ili ordinare plenumas kaj kion ili ordinare atingas en la vivo kaj en la socia graveco, tio estas ĝenerale figuretoj, kiuj havas tre malgrandan signifon en la socio kaj por la socio, ili estas bagatelaj ŝaksoldatoj sur la granda ŝaktabulo de la homaro, mikrosko-paj insektetoj, kiuj glitas libere sur la por aliaj tro malglata ŝelo de la vivo. Sekve, konsiderante ilian malgrandecon, oni povis ĉe la prijugado de la sociaj aperoj tute preterpasi tiujn gajajn sensignifulojn, aŭ eĉ kun rideto apliki al ili tiun faman ekkrion de la poeto pri la mizera lanugo, se ĉi tiu mizera lanugo, ĉi tiuj eterne moviĝantaj ŝaksoldatetoj, ĉi tiuj eterne gajaj senkulpaj insektetoj ne estus mortige danĝeraj por certa klaso da homaj estaĵoj. ĉi tiu klaso estas la malriĉaj virinoj. Ni ne parolas jam eĉ pri la koroj, ĉar la karoj ĉe la tiel nomata bela sekso estas ĉiam tre sentema kaj samtempe tute sendefenda loko, tute egale ĉu ili trovigas sub silkaj aŭ sub lanaj kaj katunaj talivestoj; plej granda bagatelaĵo povas ilin vundi, plej granda bagatelaĵo povas ilin venki. De tio venas la doloroj kaj plendoj, larmoj kaj ĝemoj, ŝirado de haroj kaj grincado de dentoj egale en la salonoj kaj en la subtegmentoj. Sed objekto, kiu en salonoj treege malofte estas difektata de tiuj agrablaj petolistoj, sed en la subtegmentoj, subteretaĝoj, kudrejoj kaj diversaj laborejoj troviĝas tute sub ilia potenco kaj terure de ili suferas — estas la reputacio de virino. En ĉi tiu rilato inter tiuj petolistoj ekzistas tiel grandaj potenculoj, ke ofte sen lon-216
+antaŭpretigita plano ili neniel volus malutili al iu; kaj se ili tamen ofte kaŭzas malprofitojn, menso malsevera kaj bone ilmprenanta ne povas sen maljusteco apliki al ili aliajn vortojn krom la evangelia: Dio, pardonu ilin, ĉar ili ne scias, kion ili faras! Celere, konsiderinte la ordinarecon de la apero, kiun ili per si prezentas, konsiderinte ĉion, kion ili ordinare plenumas kaj kion ili ordinare atingas en la vivo kaj en la socia graveco, tio estas ĝenerale figuretoj, kiuj havas tre malgrandan signifon en la socio kaj por la socio, ili estas bagatelaj ŝaksoldatoj sur la granda ŝaktabulo de la homaro, mikrosko-paj insektetoj, kiuj glitas libere sur la por aliaj tro malglata ŝelo de la vivo. Sekve, konsiderante ilian malgrandecon, oni povis ĉe la prijugado de la sociaj aperoj tute preterpasi tiujn gajajn sensignifulojn, aŭ eĉ kun rideto apliki al ili tiun faman ekkrion de la poeto pri la mizera lanugo, se ĉi tiu mizera lanugo, ĉi tiuj eterne moviĝantaj ŝaksoldatetoj, ĉi tiuj eterne gajaj senkulpaj insektetoj ne estus mortige danĝeraj por certa klaso da homaj estaĵoj. ĉi tiu klaso estas la malriĉaj virinoj. Ni ne parolas jam eĉ pri la koroj, ĉar la karoj ĉe la tiel nomata bela sekso estas ĉiam tre sentema kaj samtempe tute sendefenda loko, tute egale ĉu ili trovigas sub silkaj aŭ sub lanaj kaj katunaj talivestoj; plej granda bagatelaĵo povas ilin vundi, plej granda bagatelaĵo povas ilin venki. De tio venas la doloroj kaj plendoj, larmoj kaj ĝemoj, ŝirado de haroj kaj grincado de dentoj egale en la salonoj kaj en la subtegmentoj. Sed objekto, kiu en salonoj treege malofte estas difektata de tiuj agrablaj petolistoj, sed en la subtegmentoj, subteretaĝoj, kudrejoj kaj diversaj laborejoj troviĝas tute sub ilia potenco kaj terure de ili suferas — estas la reputacio de virino. En ĉi tiu rilato inter tiuj petolistoj ekzistas tiel grandaj potenculoj, ke ofte sen longa penado, iafoje eĉ sen intenco, per la sola alproksimiĝo, per kelke da paŝoj faritaj apud la virino, per kelke da rigardoj ĵetitaj sur ŝin, ili mortigas ŝian bonan reputacion, ili kreas en la kapoj de la homoj malbonajn suspektojn. Tio estas agrabla frukto de ilia bone fortikigita kaj larĝe fama gloro; agrabla efektive por ili, ĉar ĝi montras antaŭ la mondo ilian vere viran energion, la grandegan potencon de ilia influo en la mondo, la grandegan abundon da impresoj, kiujn ili ricevas kaj ricevigas, kaj da plenumataj faroj; sed eble ne tre agrabla por tiuj, sur kiujn okaze falas la rigardo de la sinjoro de la kreitaĵoj..
 
-MARTA
+La sinjoro de la kreitaĵoj marŝas sur strato de granda urbo, flekseblan bastoneton li svingas kiel sceptron. Brilas sur lia kapo la ĉapelo, brilas sur la manoj la gantoj kun duobla kun-kudro, brilas sur la brusto ora ĉeneto kaj balanciĝas gracie sur la malluma fono de la surtuto, kiun pretigis la dignaj manoj de la plej granda tajloro Chabou. Kia majesto! Li kantetas duonvoĉe kanteton el La Bela Heleno, kaj penetremajn rigardojn li ĵetas ĉirkaŭen. La randon de la ĉapelo li ofte ektuŝas per la mano, ĉiujn li salutas, ĉiuj lin salutas, ĉiujn li konas, ĉiuj lnas. Kia digna socia pozicio! Li interrompis sian kante-tadon, li etendas la kolon, kaj la piedon li haltigas en la aero simile al ĉashundo, kiu ekflaris ĉasaĵon, li streĉas la rigardon, li ridetas … Tie sur la angulo de la strato preterpasis bela buŝeto, eklumis blanka vizaĝeto, ekbriletis nigraj okuletoj … An-taŭen! kuru kaj pelu! Singarde! la ĉasaĵo estas jam proksime!
 
-
-ga penado, iafoje eĉ sen intenco, per la sola alproksimiĝo, per kelke da paŝoj faritaj apud la virino, per kelke da rigardoj ĵetitaj sur ŝin, ili mortigas ŝian bonan reputacion, ili kreas en la kapoj de la homoj malbonajn suspektojn. Tio estas agrabla frukto de ilia bone fortikigita kaj larĝe fama gloro; agrabla efektive por ili, ĉar ĝi montras antaŭ la mondo ilian vere viran energion, la grandegan potencon de ilia influo en la mondo, la grandegan abundon da impresoj, kiujn ili ricevas kaj ricevigas, kaj da plenumataj faroj; sed eble ne tre agrabla por tiuj, sur kiujn okaze falas la rigardo de la sinjoro de la kreitaĵoj..
-
-La sinjoro de la kreitaĵoj marŝas sur strato de granda urbo, flekseblan bastoneton li svingas kiel sceptron. Brilas sur lia kapo la ĉapelo, brilas sur la manoj la gantoj kun duobla kun-kudro, brilas sur la brusto ora ĉeneto kaj balanciĝas gracie sur la malluma fono de la surtuto, kiun pretigis la dignaj manoj de la plej granda tajloro Chabou. Kia majesto! Li kantetas duonvoĉe kanteton el La Bela Heleno, kaj penetremajn rigardojn li ĵetas ĉirkaŭen. La randon de la ĉapelo li ofte ektuŝas per la mano, ĉiujn li salutas, ĉiuj lin salutas, ĉiujn li konas, ĉiuj lnas. Kia digna socia pozicio! Li interrompis sian kante-tadon, li etendas la kolon, kaj la piedon li haltigas en la aero simile al ĉashundo, kiu ekflaris ĉasaĵon, li streĉas la rigardon, li ridetas … Tie sur la angulo de la strato preterpasis bela bu-
-
-ŝeto, eklumis blanka vizaĝeto, ekbriletis nigraj okuletoj … An-taŭen! kuru kaj pelu! Singarde! la ĉasaĵo estas jam proksime!
-
-oni devas kiel eble plej rapide ĝin ĉirkaŭbari, ĉar ĝi povus formalaperi! Li aliras de flanke, li levetas la ĉapelon, li faras saluton plej respektan (ho, ironio!) kaj per voĉo, plene kopi-anta la hieraŭ sur la scenejo aŭditan voĉon de Pariso, li de-217
-
-MARTA
-
-
-mandas: ĉu vi permesas, sinjorino, ke mi vin akompanu? Se ŝi permesas, li iras kun ŝi. Se ŝi ne permesas, li iras ankaŭ. ĉu li ne estas sinjoro de la kreitaĵoj? — Dum la irado li renkontas konatojn (li havas da ili tiom, kiom la maro havas da gu-toj da akvo), li palpebrumas petole kaj montras per la okuloj la akompanatinon. De tempo al tempo la koro kun pligran-digita forto batas en lia brusto: tio estas la unuaj ektremoj de vekiĝanta papilia amo aŭ eble la ĝojo de triumfo; plej ofte ambau kune. ĉiufoje kiam ĉi tiu sinjoro de la kreitaĵoj ekvidas belan aŭ eĉ beletan ekzempleron de virina vizaĝo, li ĵuras al ĉiuj kaj antaŭ ĉio al si mem, ke li estas furioze, morte enamiĝinta. Li faras tion kun plena sincera kredo. Lia koro estas vulkano, kiu eksplodas kelke da fojoj en tago. Krom tio li sentas bone, ke la okuloj de la homoj sekvas kun intereso la novan epizodon de la granda epopeo de lia vivo. Tiuj homaj okuloj tiel kutimis vidi lin nevenkebla, ke tuj de la unua paĝo ili divenas, ke sur la lasta ili trovos venkon!
+oni devas kiel eble plej rapide ĝin ĉirkaŭbari, ĉar ĝi povus formalaperi! Li aliras de flanke, li levetas la ĉapelon, li faras saluton plej respektan (ho, ironio!) kaj per voĉo, plene kopi-anta la hieraŭ sur la scenejo aŭditan voĉon de Pariso, li demandas: ĉu vi permesas, sinjorino, ke mi vin akompanu? Se ŝi permesas, li iras kun ŝi. Se ŝi ne permesas, li iras ankaŭ. ĉu li ne estas sinjoro de la kreitaĵoj? — Dum la irado li renkontas konatojn (li havas da ili tiom, kiom la maro havas da gu-toj da akvo), li palpebrumas petole kaj montras per la okuloj la akompanatinon. De tempo al tempo la koro kun pligran-digita forto batas en lia brusto: tio estas la unuaj ektremoj de vekiĝanta papilia amo aŭ eble la ĝojo de triumfo; plej ofte ambau kune. ĉiufoje kiam ĉi tiu sinjoro de la kreitaĵoj ekvidas belan aŭ eĉ beletan ekzempleron de virina vizaĝo, li ĵuras al ĉiuj kaj antaŭ ĉio al si mem, ke li estas furioze, morte enamiĝinta. Li faras tion kun plena sincera kredo. Lia koro estas vulkano, kiu eksplodas kelke da fojoj en tago. Krom tio li sentas bone, ke la okuloj de la homoj sekvas kun intereso la novan epizodon de la granda epopeo de lia vivo. Tiuj homaj okuloj tiel kutimis vidi lin nevenkebla, ke tuj de la unua paĝo ili divenas, ke sur la lasta ili trovos venkon!
 
 Li alproksimiĝis, sekve li ravis. Li ekrigardis, sekve li venkis. Nek li, nek iu el tiuj, kiuj lnas, supozas, ke povus esti alie. La gloro de la brava junulo kreskas; la reputacio de la malriĉa virino dronas. En la krono, kiu ornamas lian gajan kapon, elkreskas nova folio de laŭro, sur ŝia malgaja frunto aperas makulo … Tia estis la gaja Aleĉjo, unu el multaj … Lia nura alproksimiĝo kompromitis virinon, interparolo kun li estis por ŝi dekreto de malhonoro.
 
-Sinjorino Szwejc havis tri filinojn kaj kelke da junaj nepi-noj, sekve si konis Aleĉjon. Li vizitadis ŝian domon, kaj ŝi eĉ mem rakontadis, ke unu el la fraŭlinoj Szwejc, tiu, kiu kune kun la patrino okupiĝadis per altranĉado, pro li perdis fian-
-
-ĉon. ĉar kvankam ŝi estis malbela, tamen, havante beletan 218
-
-MARTA
+Sinjorino Szwejc havis tri filinojn kaj kelke da junaj nepi-noj, sekve si konis Aleĉjon. Li vizitadis ŝian domon, kaj ŝi eĉ mem rakontadis, ke unu el la fraŭlinoj Szwejc, tiu, kiu kune kun la patrino okupiĝadis per altranĉado, pro li perdis fianĉon. ĉar kvankam ŝi estis malbela, tamen, havante beletan
 
 
-figuron kaj lertan langon, ŝi iam turnis sur sin la okulon de la sinjoro de la kreitaĵoj. Ne estas do mirinde, ke, kaŭze de tiaj ĉirkonstancoj, sinjorino Szwejc alŝovis siajn okulvitrojn proksime al la okuloj kaj rapide almetis la vizaĝon al la fenestra vitro, kiam ŝi unu matenon ekvidis, ke unu el ŝiaj laboristinoj pasas la korton en akompano de la nevenkebla Aleĉjo. La knabinoj en ŝiritaj vestoj, kun flavaj vizaĝoj kaj senkolori-
-
-ĝintaj kokardoj en la haroj, ankaŭ ĵetis flankajn rigardojn tra la fenestrojn, per la okuloj kaj la fingroj ili sendadis al si reciproke signojn de interkompreniĝo kaj ridetadis. ĉion ĉi tion rimarkis ankaŭ la filino de sinjorino Szwejc, kiu staris apud la ronda tablo. ŝi leviĝis sur la piedfingroj kaj ĵetis rigardon tra la fenestron. De la loko, sur kiu ŝi staris, ŝi povis vidi la malgrandajn lipharojn kaj la barbeton de Aleĉjo … sed la lipharoj kaj la barbeto estis liaj … ŝi sentis, ke ŝin kaptis impreso kaj rememoroj. ŝi elstreĉis ankoraŭ pli la kolon, kaj nun ŝi ekvidis nigran lanan tukon, kiu kovris tute sendube kapon virinan.
+figuron kaj lertan langon, ŝi iam turnis sur sin la okulon de la sinjoro de la kreitaĵoj. Ne estas do mirinde, ke, kaŭze de tiaj ĉirkonstancoj, sinjorino Szwejc alŝovis siajn okulvitrojn proksime al la okuloj kaj rapide almetis la vizaĝon al la fenestra vitro, kiam ŝi unu matenon ekvidis, ke unu el ŝiaj laboristinoj pasas la korton en akompano de la nevenkebla Aleĉjo. La knabinoj en ŝiritaj vestoj, kun flavaj vizaĝoj kaj senkoloriĝintaj kokardoj en la haroj, ankaŭ ĵetis flankajn rigardojn tra la fenestrojn, per la okuloj kaj la fingroj ili sendadis al si reciproke signojn de interkompreniĝo kaj ridetadis. ĉion ĉi tion rimarkis ankaŭ la filino de sinjorino Szwejc, kiu staris apud la ronda tablo. ŝi leviĝis sur la piedfingroj kaj ĵetis rigardon tra la fenestron. De la loko, sur kiu ŝi staris, ŝi povis vidi la malgrandajn lipharojn kaj la barbeton de Aleĉjo … sed la lipharoj kaj la barbeto estis liaj … ŝi sentis, ke ŝin kaptis impreso kaj rememoroj. ŝi elstreĉis ankoraŭ pli la kolon, kaj nun ŝi ekvidis nigran lanan tukon, kiu kovris tute sendube kapon virinan.
 
 —Panjo! — kun kiu el la laboristinoj iras sinjoro Aleksandro?
 
@@ -4001,14 +3227,9 @@ La pli junaj laboristinoj kaŝe interŝanĝis rigardojn. La vi-zaĝesprimo kaj v
 Unu el ili diris mallaŭte:
 
 
-MARTA
-
-
 —Estos kriado!
 
-—Eble ŝi forpelos ŝin? — demandis alia ankoraŭ pli mallaŭ-
-
-te. — Oho? — diris tria plej mallaŭte: — ŝi nun eble jam eĉ ne timas tion!
+—Eble ŝi forpelos ŝin? — demandis alia ankoraŭ pli mallaŭte. — Oho? — diris tria plej mallaŭte: — ŝi nun eble jam eĉ ne timas tion!
 
 Nun en la kudrejon eniris Marta. ŝia vizaĝ-esprimo en tiu tago estis tia, ke jam ĝi sola povus turni sur ŝin la rigardojn de ĉiuj ĉeestantaj personoj, se tiuj rigardoj jam sen tio ne estus preparitaj, por observi ŝin scivole. ŝiaj okuloj estis ĉir-kaŭitaj de malhelaj rondoj, la pupiloj estis kvazaŭ malvivaj.
 
@@ -4019,9 +3240,6 @@ Sinjorino Szwejc el sub la okulvitroj ĵetadis sur la ĵus venintan laboristinon
 — Sinjorino Swicka ne estis ĉe ni hieraŭ.
 
 Marta, aŭdinte sian nomon, levis la kapon.
-
-
-MARTA
 
 
 —ĉu vi diris ion al mi?
@@ -4046,9 +3264,7 @@ Marta ne respondis. Kion ŝi povus diri? La fakto, pri kiu parolis sinjorino Szw
 
 —Ne por mi, sinjorino, — unuafoje ekparolis nun Marta. ŝi ne levis la kapon de super la laboro, sed en sia tremanta voĉo sonis obtuza kaj retenata ribelo de virina fiereco, kiu sentas sin piedpremata.
 
-—Ha! — sopirĝemis sinjorino Szwejc, — oni ne devas havi 221
-
-MARTA
+—Ha! — sopirĝemis sinjorino Szwejc, — oni ne devas havi
 
 
 tro multe da konfido al si mem. Malmodesteco estas patrino de ĉiuj pekoj. Pli bone estas eviti, multe pli bone estas eviti dangeran kamaradecon … Kaj ĉu sinjoro Aleksandro Loncki estas ankaŭ proksima konato de sinjorino Swicka?
@@ -4059,18 +3275,11 @@ La ĝis nun ĉiam sonanta kaj knaranta tondilo ĉesis soni kaj knari. La fraŭli
 
 Oni povus pensi, ke tiuj ĉi vortoj estis serpentoj, kiuj volve-kovris Martan de la kapo ĝis la piedoj kaj enpuŝis siajn piki-lojn en ĉiujn punktojn de ŝia korpo: ŝi subite rektiĝis, levis la kapon de super la peco da tolo, kiu estis etendita sur ŝiaj genuoj, kaj la large malfermitajn okulojn ŝi streĉe direktis al la vizaĝo de la parolanta fraŭlino.
 
-—Kion tio signifas? — ŝi diris malfacile kaj preskaŭ sufoki-
-
-ĝante. ŝi ekrigardis ĉirkaŭen. ĉiuj laboristinoj, eĉ tiuj, kiuj ordinare aspektis plej sensente kaj senmove, sidis nun kun levitaj kapoj kaj kun okuloj direktitaj al ŝi. Sur iliaj vizaĝoj oni povis legi la plej diversajn sentojn: kompaton, scivolecon, mokon. Dum momento Marta restis kvazaŭ ŝtoniĝinta. La puncaj makuloj, kiuj troviĝis sur ŝiaj vangoj, malrapide larĝi-
+—Kion tio signifas? — ŝi diris malfacile kaj preskaŭ sufokiĝante. ŝi ekrigardis ĉirkaŭen. ĉiuj laboristinoj, eĉ tiuj, kiuj ordinare aspektis plej sensente kaj senmove, sidis nun kun levitaj kapoj kaj kun okuloj direktitaj al ŝi. Sur iliaj vizaĝoj oni povis legi la plej diversajn sentojn: kompaton, scivolecon, mokon. Dum momento Marta restis kvazaŭ ŝtoniĝinta. La puncaj makuloj, kiuj troviĝis sur ŝiaj vangoj, malrapide larĝi-
 
 ĝis, ĝis ili purpurigis la frunton kaj la kolon.
 
-—Vi ne havas kaŭzon por koleri, mia sinjorino, vi ne havas kaŭzon por koleri, — diris sinjorino Szwejc; — jam dudek jarojn mi estas mastrino de laborejo, en kiu ĉiam laboradis samtempe pli ol dudek junaj personoj, mi akiris sekve multe da sperto. Krom tio mi scias, kiaj estas miaj agodevoj rilate al la animoj, kiujn la Providenco konfidas al mia prizorgado; mi ne povas rigardi indiferente, se iu el ili propravole el-222
-
-MARTA
-
-
-metas sin al danĝero. Plue mi havas ja filinojn, tre junajn ne-pinojn. Kion do la homoj povus pensi pri ili, se nia laborejo, Dio gardu, prezentus iajn ekzemplojn de malĉasteco! Fine, sur la korton rigardas la fenestroj de la loĝejo de unu riĉa kaj diotima sinjorino, kiu estas vera protektantino kaj bonfar-antino de nia laborejo. Sankta sinjorino! kion ŝi pensus, se ŝi vidus, ke iu el miaj laboristinaj ĝuste sub miaj kaj sub ŝiaj fenestroj promenas kun juna kaj salona fraŭlo? Cetere, eble ŝi eĉ jam vidis! Vera timego min kaptas, kiam mi ekpensas pri tio, kion mi diros al nia protektantino, se ŝi min demandos pri tio? ĉu mi diru al ŝi, ke tiun laboristinon mi forigis? Sed eble tio estos kontraŭa al la kristana favorkoreco? …
+—Vi ne havas kaŭzon por koleri, mia sinjorino, vi ne havas kaŭzon por koleri, — diris sinjorino Szwejc; — jam dudek jarojn mi estas mastrino de laborejo, en kiu ĉiam laboradis samtempe pli ol dudek junaj personoj, mi akiris sekve multe da sperto. Krom tio mi scias, kiaj estas miaj agodevoj rilate al la animoj, kiujn la Providenco konfidas al mia prizorgado; mi ne povas rigardi indiferente, se iu el ili propravole elmetas sin al danĝero. Plue mi havas ja filinojn, tre junajn ne-pinojn. Kion do la homoj povus pensi pri ili, se nia laborejo, Dio gardu, prezentus iajn ekzemplojn de malĉasteco! Fine, sur la korton rigardas la fenestroj de la loĝejo de unu riĉa kaj diotima sinjorino, kiu estas vera protektantino kaj bonfar-antino de nia laborejo. Sankta sinjorino! kion ŝi pensus, se ŝi vidus, ke iu el miaj laboristinaj ĝuste sub miaj kaj sub ŝiaj fenestroj promenas kun juna kaj salona fraŭlo? Cetere, eble ŝi eĉ jam vidis! Vera timego min kaptas, kiam mi ekpensas pri tio, kion mi diros al nia protektantino, se ŝi min demandos pri tio? ĉu mi diru al ŝi, ke tiun laboristinon mi forigis? Sed eble tio estos kontraŭa al la kristana favorkoreco? …
 
 —Diru al ŝi, ke la laboristino, kiu havis la malfeliĉon renkonti sur ĉi tiu korto junan kaj salonan fraŭlon, foriĝis de ĉi tie mem kaj propravole.
 
@@ -4079,12 +3288,7 @@ metas sin al danĝero. Plue mi havas ja filinojn, tre junajn ne-pinojn. Kion do 
 —Mi estas virino malrica, tre malriĉa, — ŝi diris plue, — sed mi estas honesta, kaj vi havis nenian rajton paroli al mi en tia maniero. Ne la Providenco fordonis min al via prizorgado kaj alkondukis min ĉi tien, sed mia propra senkapableco. Mi venis ĉi tien, ĉar aliloke mi ne povosciis labori; vi scias tion tre bone, kaj vi sciis bone ekspluati mian situacion. Mia laboro valoras kelkoble pli, ol kiom vi donas al mi por ĝi. … Sed ne pri tio mi volis paroli. Mi faris propravolan interkonsenton kaj mi plenumis ĝiajn kondiĉojn. Suferi mizeron mi devas, sed toleri ofendojn … malgraŭ ĉio … mi ne povas … ne, mi ankoraŭ ne povas! Adiaŭ!
 
 
-MARTA
-
-
-ĉe la Iastaj vortoj ŝi surĵetis la tukon sur la kapon kaj direktis sin al la pordo. La laboristinoj sekvis ŝin per siaj rigardoj, la pli junaj kun simpatio kaj kun speco de triumfo sur la viza-
-
-ĝoj, la pli maljunaj kun kompato kaj kun ankoraŭ pli granda mirego.
+ĉe la Iastaj vortoj ŝi surĵetis la tukon sur la kapon kaj direktis sin al la pordo. La laboristinoj sekvis ŝin per siaj rigardoj, la pli junaj kun simpatio kaj kun speco de triumfo sur la vizaĝoj, la pli maljunaj kun kompato kaj kun ankoraŭ pli granda mirego.
 
 ĉio, kio okazis al Marta depost hieraŭ: la disreviĝo, kiu ŝin trafis ĉe la libristo; la maldolĉa sento de envio, kiu unuafoje atakis ŝin ĉe la vido de la Kazimira palaco kaj de la lernanta esperplena vira junularo; la vizito en la domo ĉe la strato Krolewska, la malĝoja propono, kiu tie estis farita al ŝi; la sen-dorma nokto, pasigita inter torento da larmoj kaj flamoj de honto; sed precipe la renkontiĝo kun la homo, pri kiu ŝi sciis, ke li atendis ŝin kun malhonoranta penso en la kapo, — ĉio ĉi tio metis ŝian spiriton en tiun staton de febra streĉo, kiu longe daŭri ne povas, kiu ĉe la plej malgranda ektuŝo eksplodas per neretenebla fulmotondro. Kaj la ektuŝo, kiun kaŭzis la vortoj de sinjorino Szwejc kaj de ŝia filino, ne estis plej malgranda. En la brusto de Marta la ĝis ekstremeco streĉita kordo de sentoj krevis kaj eksonigis ribelan krion kaj suferplenan
 
@@ -4093,9 +3297,6 @@ MARTA
 ŝi ne pensis pri tio, ŝi ne prikalkulis sian agon, kurante tra la longa korto al la pordego, kondukanta sur la straton.
 
 Sed apenau ŝi eniris en la pordegan arkaĵon, ŝi retiriĝis kvazaŭ antaŭ ia terura fantomo, esprimo de mortiga ofendo kovris ŝian vizaĝon. En la pordega arkaĵo staris ankoraŭ Aleĉjo kaj interparolis mallaŭte kun ia juna viro, kiu staris ĉe la malsupro de la ŝtuparo, per kiu li videble ĵus malsupren-venis, por iri en la urbon. Marta forsaltis al la kontraŭa flanko.
-
-
-MARTA
 
 
 Estis videble, ke ŝi penis nerimarkite formalaperi laŭlonge de la muro; sed ĉu lerta kapreolo povas forkuri de la okulo de sperta ĉasisto?
@@ -4108,9 +3309,7 @@ La viro, kun kiu Aleĉjo antaŭe interparolis, forlasis la lastajn ŝtupojn kaj 
 
 —Sinjorino! — interrompis ŝjan parolon la sinjoro de la kreitaĵoj, — antaŭ kvaronhoro vi forpuŝis min de vi per tre severa vorto, sed mi ne perdas la esperon, ke mia konstanteco …
 
-—Kion vi volas de mi, sinjoro? — ripetis la virino, reakiran-te sian voĉon, kiun ŝi estis perdinta por momento. — Jes, ŝi diris plue, mi forlasis tiun kavernaĉon, en kiu tamen troviĝis mia lasta rimedo de enspezado, la lasta peco da pano por mi kaj por mia infano. Mi faris tion kaŭze de vi. Per kia rajto vi, sinjoroj, baras la vojon al ni, por kiuj la irado jam sen tio estas tiel malfacila? ĉu vi havas almenaŭ iometon da koro kaj konscienco, kiam vi persekutas estaĵojn, kiuj jam sen tio ne scias, kie ili povas trovi por si lokan en la mondo? Ha, al vi tio certe kaŭzos nenion malbonan! Al vi la homoj donos por tio laŭdon, al ni ili donos ofendon. Ni perdos la honestan nomon 225
-
-MARTA
+—Kion vi volas de mi, sinjoro? — ripetis la virino, reakiran-te sian voĉon, kiun ŝi estis perdinta por momento. — Jes, ŝi diris plue, mi forlasis tiun kavernaĉon, en kiu tamen troviĝis mia lasta rimedo de enspezado, la lasta peco da pano por mi kaj por mia infano. Mi faris tion kaŭze de vi. Per kia rajto vi, sinjoroj, baras la vojon al ni, por kiuj la irado jam sen tio estas tiel malfacila? ĉu vi havas almenaŭ iometon da koro kaj konscienco, kiam vi persekutas estaĵojn, kiuj jam sen tio ne scias, kie ili povas trovi por si lokan en la mondo? Ha, al vi tio certe kaŭzos nenion malbonan! Al vi la homoj donos por tio laŭdon, al ni ili donos ofendon. Ni perdos la honestan nomon
 
 
 kaj of te ankaŭ la lastan pecon da pano, vi bonege amuziĝos …
@@ -4123,9 +3322,7 @@ Dirinte ĉi tion, ŝi pasis preter la miregigita junulo kaj malaperis post la po
 
 La sinjoro de la kreitaĵoj restis sola, klinis la kapon, tuŝis per la mano siajn lipharetojn, direktis konsternitan rigardon al la tero kaj longe staris tiele. Sur lia vizaĝo oni povis vidi honton kaj bedaŭron. Li hontis pri sia malvenko, li bedaŭris la ĉarman kaj kontraŭstaran kaj guste pro sia kontraŭstare-co ankoraŭ pli ĉarman bildon, kiu malaperis antaŭ liaj okuloj. Aŭ eble kiam li vidis la virinon kun la flamantaj pupiloj, kun nubo sur la frunto kaj kun lipoj tremantaj de fiera sufero, en li ektremis ia pli serioza sento; eble li eksentis, ke li agis malbone, ke li al iu malgraŭvole faris maljustaĵon. Ho, jes malgraŭvole! ”Nin tio mortigas”ŝi diris.
 
-Kia penso! ĉu li intencis iun mortigi? Nenio en la mondo estis pli fremda al lia sentema koro, ol intenco de ia mortigo; nenio estis pli kontraŭa al liaj pensoj, kiuj tute ne havis ian inklinon al dramoj. Kaj tamen kun kia forto ŝi parolis al li! kia dolora fulmo brilis el ŝiaj pupiloj, kiel pala kaj kiel bela ŝi estis! Aleĉjo senŝanceliĝe fordonus en ĉi tiu momento kelke da jaroj de sia senzorga kaj feliĉa vivo, por povi ŝin vidi, petegi 226
-
-MARTA
+Kia penso! ĉu li intencis iun mortigi? Nenio en la mondo estis pli fremda al lia sentema koro, ol intenco de ia mortigo; nenio estis pli kontraŭa al liaj pensoj, kiuj tute ne havis ian inklinon al dramoj. Kaj tamen kun kia forto ŝi parolis al li! kia dolora fulmo brilis el ŝiaj pupiloj, kiel pala kaj kiel bela ŝi estis! Aleĉjo senŝanceliĝe fordonus en ĉi tiu momento kelke da jaroj de sia senzorga kaj feliĉa vivo, por povi ŝin vidi, petegi
 
 
 de ŝi pardonon, kompensi al ŝi la maljustaĵon, se li ĝin faris al ŝi, kaj … akompani ŝin al ŝia loĝejo.
@@ -4157,9 +3354,6 @@ La fraŭlineto ruĝiĝis ĝis la haroj kaj oreloj.
 —Nu, ne timu kaj venadu al ni, ĉar alie la avino kaj la onklino vere koleros.
 
 
-MARTA
-
-
 —Kaj vi?
 
 Momento da silento. La okuloj de la fraŭlineto rigardas najlon, elstarantan el la planko de la pordegejo, la okuloj de la venkinto kalkulas la orajn harfasketojn, kiuj el sub la ĉapelo elŝutiĝis sur la blankan frunton.
@@ -4170,9 +3364,7 @@ Momento da silento. La okuloj de la fraŭlineto rigardas najlon, elstarantan el 
 
 La fraŭlineto enkuras en la korton, kien la sinjoro de la kreitaĵoj ne kuraĝas ŝin sekvi. Kun malriĉa laboristino estas alia afero, sed kun nepino de virino, kies domon oni vizitadas, kun fraŭlino Szwejc, kiu, kiel oni diras, havos ĉirkaŭ dekkvin-mil spes miloj da doto, promeni senceremonie sur la korto ne konvenas.
 
-Aleĉjo eliras sur la straton, kaj antaŭ liaj okuloj preterŝovi-
-
-ĝas du virinaj figuroj: la figuro de malriĉa laboristino kun flamo en la indignanta okulo kaj la figuro de bela fraŭlineto kun oraj harfasketoj ĉirkaŭ la blanka frunto. Li jam mem ne scias, kiu el ili estas pli bela kaj pli alloga. — Tiu, — li pensas, —
+Aleĉjo eliras sur la straton, kaj antaŭ liaj okuloj preterŝoviĝas du virinaj figuroj: la figuro de malriĉa laboristino kun flamo en la indignanta okulo kaj la figuro de bela fraŭlineto kun oraj harfasketoj ĉirkaŭ la blanka frunto. Li jam mem ne scias, kiu el ili estas pli bela kaj pli alloga. — Tiu, — li pensas, —
 
 estas fiera kaj flama diino; ĉi tiu estas tre ĉarma malgranda diineto! Veron diras la scienculoj: kiaj nekalkuleblaj riĉaĵoj estas disverŝitaj en la granda regno de la naturo! Kiom da nuancoj, kiom da specoj! Kiam homo devas fari elekton, li simple ricevas kapturnon kaj la koro en li fandiĝas. Sed por kio fari elekton? Tous les genres sont bons hors le genre vieux et laid!
 
@@ -4180,9 +3372,7 @@ Viro! mizera lanugo! vi, ventanima estaĵo!
 
 Kaj Marta?
 
-Post la fortaj ekscitiĝoj, kiujn ŝi havis, Marta denove enfalis tute en bagatelajan kalkulon. La ses spesmilojn, kiujn ŝi ricevis de la libristo, ŝi donis al la domadministranto, pagante 228
-
-MARTA
+Post la fortaj ekscitiĝoj, kiujn ŝi havis, Marta denove enfalis tute en bagatelajan kalkulon. La ses spesmilojn, kiujn ŝi ricevis de la libristo, ŝi donis al la domadministranto, pagante
 
 
 tiamaniere la ŝuldon, kiu ĝis nun ne estis pagita, kaj aĉetante samtempe la rajton loĝi en la subtegmenta ĉambreto ankoraŭ dum du semajnoj.
@@ -4195,9 +3385,7 @@ Iaj bonhavaj gesinjoraj, kiuj loĝis en la dua etaĝo, bezonis por sia kuirejo a
 
 Janjo havis en tiu nokto dormon maltrankvilan kaj inter-rompatan.
 
-is nun, se ŝi ofte ploris en la tago, en la nokto ŝi almenaŭ dormadis trankvile. Sed tiun vesperon oni elportis el la ĉambro la lastan objekton de ŝia ludado: la du malnovajn lamajn seĝojn. ŝi bedaŭris ilin kiel bonajn amikojn, kun kiuj ŝi ludadis en pli liberaj minutoj kaj al kiuj ŝi silente rakontadis siajn suferojn kaj plendojn pri malsato, malvarmo, pri la batoj de Antoniowa, pri kiuj, gvidata de instinkto de bona infano, ŝi ne volis alporti plendojn al la patrino. La infano ploris kortuŝe, 229
-
-MARTA
+is nun, se ŝi ofte ploris en la tago, en la nokto ŝi almenaŭ dormadis trankvile. Sed tiun vesperon oni elportis el la ĉambro la lastan objekton de ŝia ludado: la du malnovajn lamajn seĝojn. ŝi bedaŭris ilin kiel bonajn amikojn, kun kiuj ŝi ludadis en pli liberaj minutoj kaj al kiuj ŝi silente rakontadis siajn suferojn kaj plendojn pri malsato, malvarmo, pri la batoj de Antoniowa, pri kiuj, gvidata de instinkto de bona infano, ŝi ne volis alporti plendojn al la patrino. La infano ploris kortuŝe,
 
 
 kiam ŝi vidis, ke oni elportas ŝiajn amatajn kriplajn maljunu-letojn, poste, kuŝiĝinte sur la tero, ŝi eble rememoris sian an-taŭlongtempan mahagonan liteton, ĉirkaŭitan de galerieto!
@@ -4208,9 +3396,7 @@ Estis jam preskaŭ noktomezo. La infano ĵetiĝadis sur sia malalta sternaĵo, d
 
 Akre kaj turmente ŝi riproĉadis al si sian agon rilate al sinjorino Szwejc. Kial ŝi ekflamis per ofendita fiereco? Kial ŝi forlasis tiun lokon, en kiu ŝi havis ian ajn eblon, por ion ajn laborenspezi? Estas vero, ke la ofendo, kiun oni tie ĵetis al ŝi en la vizaĝon, estis nemeritita, granda, forte vundanta, sed kio el tio sekvas? ĉu virino en ŝia situacio havas la rajton interŝange por ofendo ĵeti al iu en la okulojn sian pecon da pa-no, nigran, malmolan, maldolĉan, sed lastan? Tute ne kapabli ion fari, por levi sin el malestiminda situacio, kaj samtempe ne kapabli pacience toleri la batojn kaj ofendojn, kiujn donas tiu situacio, kia nekonsekvenco! Per propra senkapableco fordoni sin en la manojn de virino, kiu ekspluatas tiun senkapablecon, kaj poste postuli de ŝi por si estimon kaj ju-stecon? Kia senprudenteco!
 
-Ne! — pensis Marta; — unu el la ambaŭ: oni devas esti en la mondo aŭ forta kaj fiera, aŭ malforta kaj humila. Oni devas povoscii porti kaj gardi sian personan dignon, aŭ oni devas rifuzi al si ĉiun pretendon pri ĝi. Mi estas malforta, sekve mi devas esti humila. Mi ne povas per miaj faroj leviĝi ĝis tia situacio, ke mi devigu la homojn estimi min, sekve mi ne devas postuli por mi estimon. Kaj cetere por kio la homoj 230
-
-MARTA
+Ne! — pensis Marta; — unu el la ambaŭ: oni devas esti en la mondo aŭ forta kaj fiera, aŭ malforta kaj humila. Oni devas povoscii porti kaj gardi sian personan dignon, aŭ oni devas rifuzi al si ĉiun pretendon pri ĝi. Mi estas malforta, sekve mi devas esti humila. Mi ne povas per miaj faroj leviĝi ĝis tia situacio, ke mi devigu la homojn estimi min, sekve mi ne devas postuli por mi estimon. Kaj cetere por kio la homoj
 
 
 devas min estimi? ĉu mi mem efektive min estimas? ĉu mi povas sen honto kaj sen riproĉoj de la konscienco rigardi ĉi tiun infanon, al kiu mi devis doni apogon kaj prizorgon kaj donas nenion? ĉu mi povas sen plej profunda humiliĝo pensi pri tio, ke simile al sendefenda ŝafo mi klinas mian nukon antaŭ nehonesta mano, permesante, eĉ petante, ke el mia laboro, el la ŝvito de mia frunto ĝi kreu riĉecon por si kaj por siaj infanoj?, Kian opinion cetere havas pri mi la tuta mondo, la homoj? Unu forĵetas mian laboron, ĉar ĝi estas sentaŭga; alia jam tuj en la komenco ĝin ne akceptas, havante la konvn, ke ĝi certe estas sentaŭga; alia malnoble ĝin ekspluatas guste tial, ke ĝi estas senkapabla; fine alia eĉ vidas en mi ne homon, kiu egalas al li per honoro kaj virto, sed nur ne-malbelan virinon, kiun oni povas … aĉeti! Kial do mi postulis de sinjorino Szwejc tion, kion la tuta mondo al mi rifuzas, kion akiri ĉe la homoj, eĉ ĉe mi mem, mi ne povis?
@@ -4221,9 +3407,7 @@ Kune kun la taga lumo en la subtegmentan ĉambreton eniris rememoroj pri la ĉiu
 
 —Mi devos iri peti! — ŝi ekpensis.
 
-ŝi eliris en la urbon kaj direktis sin al la konata librejo. ŝi 231
-
-MARTA
+ŝi eliris en la urbon kaj direktis sin al la konata librejo. ŝi
 
 
 iris al la homo, kies kompatema mano jam donis al ŝi unu fojon laboron, la duan fojon almozon.
@@ -4232,9 +3416,7 @@ Malfermante la pordon de la librejo, Marta eksentis en si mem ian miron. Antaŭ 
 
 ŝia koro ne frapis pli forte, ruĝo ne kovris ŝian frunton, kiam ŝia rigardo renkontiĝis kun la rigardo de la libristo.
 
-Li staris, kiel ordinare, malantau la skribtablo, iom klini-
-
-ĝinte super amaso da notoj kaj kalkuloj. Kiam, aŭdinte so-noradon, li levis la vizaĝon, lia frunto estis malpli serena ol antaŭ kelka tempo, en liaj okuloj oni povis legi ian maltrankvilecon aŭ malĝojon. Videble io lin embarasis aŭ afliktis.
+Li staris, kiel ordinare, malantau la skribtablo, iom kliniĝinte super amaso da notoj kaj kalkuloj. Kiam, aŭdinte so-noradon, li levis la vizaĝon, lia frunto estis malpli serena ol antaŭ kelka tempo, en liaj okuloj oni povis legi ian maltrankvilecon aŭ malĝojon. Videble io lin embarasis aŭ afliktis.
 
 Eble li havis malsukceson en ia entrepreno, de kiu li multe al si promesis, aŭ eble lin afliktis malsano de iu el lia familio aŭ el liaj amikoj? Kun videbla malfacileco li fortiris siajn pensojn de la objekto de sia okupo kaj direktis al la eniranta virino rigardon malpli serenan, malpli bonan kaj afablan ol antaŭe.
 
@@ -4246,12 +3428,7 @@ Marta tion rimarkis. Kelke da tagoj pli frue ŝi sin retirus kaj forirus aŭ alm
 
 Li parolis ĝentile, sed pli malvarme ol la unuan fojon. Liaj distritaj okuloj direktigadis ĉiumomente al la paperoj, kiuj kuŝis sur la tablo.
 
-—Mi perdis la okupon en la kudrejo, en kiu mi laborens-232
-
-MARTA
-
-
-pezadis dudek spesdekojn por tago. ĉu vi ne scias pri ia loko, kiu taŭgus por mi, pri ia …
+—Mi perdis la okupon en la kudrejo, en kiu mi laborenspezadis dudek spesdekojn por tago. ĉu vi ne scias pri ia loko, kiu taŭgus por mi, pri ia …
 
 La libristo mallevis la okulojn kaj dum momento staris silente. Al lia antaŭa embaraso aliĝis nun iom da konfuzo kaj eĉ malpacienco.
 
@@ -4276,9 +3453,6 @@ La libristo pripensis ion dum momento.
 —En tia okazo mi skribos kelke da vortoj al gesinjoroj Rzetkowski. Se vi deziros, vi povos iri al ili kun mia karteto.
 
 
-MARTA
-
-
 —Mi iros certe, — diris la virino.
 
 La libristo skribis rapide dekkelke da vortoj sur folieto da papero kaj donis ĝin al la atendanta virino. Li rapidis, li estis maltrankvila kaj kvazaŭ afliktita. Tuj post la fordono de la letero li salute sin klinis.
@@ -4289,12 +3463,7 @@ La libristo estis tre bona homo kaj havis tre kompateman manon, Sed la kompatema
 
 Kia ŝango! Antaŭ kelke da monatoj Marta ekĝemegis de doloro, de honto, kiam ŝi ricevis almozon, nun ŝi bedaŭris, ke ŝi ĝin ne ricevis!
 
-ŝi rigardis la adreson de la letero, kiun ŝi tenis en sia mano, kaj ŝi direktis sin sur la straton Swieto-Krzyska. Post kelke da minutoj ŝi troviĝis en kuirejo, kiu apartenis al vasta kaj bon-234
-
-MARTA
-
-
-hava loĝejo. ŝi trovis tie kuiristinon, al kiu ŝi transdonis la letereton, kiun ŝi ricevis de la libristo. La kuiristino direktis sin en la internajn partojn de la loĝejo, Marta sidiĝis sur ligna benko. ŝi sidis tie ĉirkaŭ dek minutoj. Videble gesinjoroj Rzetkowski pripensadis aŭ konsiliĝadis! Post dek minutoj en la kuirejon eniris nejuna virino kun agrabla eksteraĵo, en vestoj montrantaj bonhavecon. ŝi tenis en la mano la leteron de la libristo. ŝi aliris al Marta, kiu, ekvidinte ŝin, leviĝis kaj dum kelke da sekundoj atente ŝin rigardis.
+ŝi rigardis la adreson de la letero, kiun ŝi tenis en sia mano, kaj ŝi direktis sin sur la straton Swieto-Krzyska. Post kelke da minutoj ŝi troviĝis en kuirejo, kiu apartenis al vasta kaj bonhava loĝejo. ŝi trovis tie kuiristinon, al kiu ŝi transdonis la letereton, kiun ŝi ricevis de la libristo. La kuiristino direktis sin en la internajn partojn de la loĝejo, Marta sidiĝis sur ligna benko. ŝi sidis tie ĉirkaŭ dek minutoj. Videble gesinjoroj Rzetkowski pripensadis aŭ konsiliĝadis! Post dek minutoj en la kuirejon eniris nejuna virino kun agrabla eksteraĵo, en vestoj montrantaj bonhavecon. ŝi tenis en la mano la leteron de la libristo. ŝi aliris al Marta, kiu, ekvidinte ŝin, leviĝis kaj dum kelke da sekundoj atente ŝin rigardis.
 
 —Pardonu, sinjorino, — diris la mastrino kun iom da konfuzo en la voĉo, — antaŭ kelke da tagoj ni efektive bezonis ĉambristinon, sed nun ni jam ne bezonas … mi tre bedaŭras
 
@@ -4308,9 +3477,7 @@ En la ĉambro, en kiun ŝi eniris, sidis kun pipo en la buŝo grizeta viro kaj d
 
 —Estas vero, — diris la edzo de la nejuna sinjorino, — kaj tamen estas domaĝe, ke vi ŝin foririgis simple kun nenio. Kredeble ŝi estas tre malriĉa, se tiel delikata, kiel vi diras, kaj vidvino post oficisto, ŝi volas servi kiel ĉambristino. Oni devis eble provi …
 
-—Sed, mia Ignacio, sinjoro Laŭrencio skribas, ke ŝi havas 235
-
-MARTA
+—Sed, mia Ignacio, sinjoro Laŭrencio skribas, ke ŝi havas
 
 
 infanon! Ne parolante jam pri ĉio alia, ĉu ni povas akcepti servistinon kun infano?
@@ -4331,37 +3498,26 @@ Marta estis jam sur la ŝtuparo, kiam ŝi ekaŭdis post si rapidajn paŝojn kaj 
 
 ŝi parolis tion rapide kaj konfuzite, ĉe la lastaj vortoj ŝi kun iom nekuraĝa gesto etendis la manon kun spesmila monpapero. Marta hezitis dum sekundo, sed nur dum sekundo, poste ŝi prenis el la mano de la bela fraŭlino la susurantan papereton, diris ”mi dankas” kaj foriris. Dum la irado hejmen ŝi aĉetis faskon da ligno; iom da nigra pano, da malbonspeca faruno kaj da lakto. La panon ŝi destinis por si, la lakton kaj farunon por la infano.
 
-En tiu tago ŝi plu ne iris en la urbon. ŝi pretigis manĝon, 236
-
-MARTA
+En tiu tago ŝi plu ne iris en la urbon. ŝi pretigis manĝon,
 
 
 konsistantan el lakto kaj faruno, verŝis ĝin sur argilan pladon kaj sidigis antaŭ ĝi Janjon.
 
 Sed la knabineio manĝis ne multe. ŝi estis silenta kaj ne-ordinare serioza. ŝian malgrandan kapon ŝi sentis kredeble tre peza, ĉar ŝi konstante ĝin apogis per la maldika mano, poste ŝi sidiĝis sur la planko apud la patrino, kuŝiĝis sur ŝiaj genuoj kaj ekdormis per dormo malfacila kaj longa.
 
-La sekvantan tagon Marta timiĝis, kiam ĉe la matena lumo ŝi ekvidis la vizaĝon de sia infano. Janjo estis ankoraŭ pli pala ol hieraŭ, el ŝiaj profundiĝintaj kaj blue kadritaj okuloj fluis silenta, sed korpenetra plendo. La juna virino forturnis sin al la fenestro kaj konvulsie interfingrigis la manojn. Se mi ne donos al ŝi pli bonan komforton, ŝi malsaniĝos … pli bonan komforton, kia freneza penso! Post du aŭ tri tagoj mi jam ne havos per kio hejti la ĉambron kaj kuiri por ŝi varman man-
-
-ĝon!
+La sekvantan tagon Marta timiĝis, kiam ĉe la matena lumo ŝi ekvidis la vizaĝon de sia infano. Janjo estis ankoraŭ pli pala ol hieraŭ, el ŝiaj profundiĝintaj kaj blue kadritaj okuloj fluis silenta, sed korpenetra plendo. La juna virino forturnis sin al la fenestro kaj konvulsie interfingrigis la manojn. Se mi ne donos al ŝi pli bonan komforton, ŝi malsaniĝos … pli bonan komforton, kia freneza penso! Post du aŭ tri tagoj mi jam ne havos per kio hejti la ĉambron kaj kuiri por ŝi varman manĝon!
 
 —Hu! — ŝi diris al si mem post momento, nenio estas far-ebla! mi devas iri kaj peti pardonon de sinjorino Szwejc!
 
 ŝi iris al la strato Freta. Malfermante la pordon de la malgaja laborejo, ŝi miris pri si ankoraŭ pli ol tiam, kiam ŝi eniris en la librejon. Estas vero, ke ŝi sentis sin iom humiligita, sed ĉi tiu sento estis nenio en komparo kun la en ŝi reganta dezirego esti denove akceptita en tiun lokon, kiun ŝi antaŭ kelke da tagoj memvole forlasis.
 
-Sinjorino Szwejc, ekvidinte ŝin, ne vidigis eĉ la plej malgrandan miron. Trans la lipojn de la serioza matrono nur transkuris rapida rideto kaj ŝiaj okuloj akre ekbrilis malantaŭ la okulvitroj. La laboristinoj levis la kapojn kaj rigardis la venintinon, unuj kun scivoleco, aliaj kun ironio kaj malica kon-237
-
-MARTA
-
-
-tenteco. Sub la rigardoj de pli ol dudek paroj da okuloj Marta eksentis varmegoan flamon sur la vangoj kaj sur la frunto.
+Sinjorino Szwejc, ekvidinte ŝin, ne vidigis eĉ la plej malgrandan miron. Trans la lipojn de la serioza matrono nur transkuris rapida rideto kaj ŝiaj okuloj akre ekbrilis malantaŭ la okulvitroj. La laboristinoj levis la kapojn kaj rigardis la venintinon, unuj kun scivoleco, aliaj kun ironio kaj malica kontenteco. Sub la rigardoj de pli ol dudek paroj da okuloj Marta eksentis varmegoan flamon sur la vangoj kaj sur la frunto.
 
 Tio estis terura turmento, sed ĝi daŭris ne pli ol sekundon.
 
 La estrinode la kudrejo kaj ŝia filino ĉesis tranĉi la tolon; videble ili atendis la unuan vorton de sia estinta laboristino.
 
-—Sinjorino! — diris Marta, turnante sin al sinjorino Szwejc, antaŭ du tagoj mi estis eksplodema, facilanima … mi ofendiĝis de tio, kion vi diris al mi kaj mi respondis per mal-
-
-ĝentilaĵo. Mi petas pardonon de vi. Se estas eble … mi volus denove labori ĉe vi.
+—Sinjorino! — diris Marta, turnante sin al sinjorino Szwejc, antaŭ du tagoj mi estis eksplodema, facilanima … mi ofendiĝis de tio, kion vi diris al mi kaj mi respondis per malĝentilaĵo. Mi petas pardonon de vi. Se estas eble … mi volus denove labori ĉe vi.
 
 Kiel antaŭe miron, tiel nun triumfon oni ne vidis sur la vi-zaĝo de sinjorino Szwejc. Kontraŭe, ŝi dolĉe ekridetis kaj afable skuis la kapon.
 
@@ -4373,9 +3529,7 @@ Mi estus ribela kontraŭ la vorto de Dio, se mi kolerus sinjorinon Swicka … se
 
 —Nia laborejo, dank’al Dio, havas plej bonan reputacion
 
-… krom tio ni ne uzas maŝinojn, kiuj tiel terure ruinigas la fortojn kaj difektas la sanon de la laborantoj. Tial laboristinoj sin puŝas al ni, amase sin puŝas. Estas vera interpuŝiĝo. ĉiun tagon du aŭ tri personoj venas al ni kun peto pri laboro. Ne 238
-
-MARTA
+… krom tio ni ne uzas maŝinojn, kiuj tiel terure ruinigas la fortojn kaj difektas la sanon de la laborantoj. Tial laboristinoj sin puŝas al ni, amase sin puŝas. Estas vera interpuŝiĝo. ĉiun tagon du aŭ tri personoj venas al ni kun peto pri laboro. Ne
 
 
 mankas, dank’al Dio, laboristinoj, ne mankas, kaj akcepti tro multe ni ne povasj ĉar mi kaj mia filino ne deziras ŝarĝi nin per laboro tro multe. Sekve nun, kiam ni havas plenan nombron da laboristinoj, eĉ pli ol plenan nombron, loko por sinjorino Swicka …
@@ -4394,12 +3548,7 @@ Sed sinjorino Szwejc levis la ŝultrojn.
 
 —Nenian, kara sinjorino Swicka, nenian! Mi tre bedaŭras, sed la loko estas jam okupita … mi ne povas.
 
-Marta per apenaŭ rimarkebla movo klinis la kapon kaj eliris el la laborejo. Malfermante la pordon, ŝi aŭdis post si brueton, konsistantan el tre mallalta flustrado kaj ankoraŭ pli mallaŭlta ridado. ŝi komprenis, ke ŝi estas objekto de moko aŭ de senutila kompato de pli ol dudek personoj, kaj ŝidenove eksentis flamon en la brusto kaj sur la frunto. Sed kiam ŝi troviĝis sur la strato, ŝin ekregis tuj unu sola, ekskluziva penso: — Mi ne povas ja reveni tiel kun malplenaj manoj! Mi de-239
-
-MARTA
-
-
-vas hodiaŭ nepre pli varmigi la ĉambron kaj morgaŭ pretigi por la infano ian viandan manĝon … alie … ĝi malsaniĝos.
+Marta per apenaŭ rimarkebla movo klinis la kapon kaj eliris el la laborejo. Malfermante la pordon, ŝi aŭdis post si brueton, konsistantan el tre mallalta flustrado kaj ankoraŭ pli mallaŭlta ridado. ŝi komprenis, ke ŝi estas objekto de moko aŭ de senutila kompato de pli ol dudek personoj, kaj ŝidenove eksentis flamon en la brusto kaj sur la frunto. Sed kiam ŝi troviĝis sur la strato, ŝin ekregis tuj unu sola, ekskluziva penso: — Mi ne povas ja reveni tiel kun malplenaj manoj! Mi devas hodiaŭ nepre pli varmigi la ĉambron kaj morgaŭ pretigi por la infano ian viandan manĝon … alie … ĝi malsaniĝos.
 
 Dum momento ŝi iris tiamaniere, kvazaŭ ŝi ne scius bone, kien ŝi iras, ŝi direktigadis dekstren kaj maldekstren, haltadis meze de la trotuaro kun klinita kapo: ŝi mediladis. Poste jam kun pli granda certeco kaj en pli rekta direkto ŝi komencis iri laŭonge de la strato Dluga. Irante, ŝi atente rigardadis la fe-nestrajn ekspoziciojn de la magazenoj. Antaŭ unu el ili ŝi haltis. Tio estis magazeno de juvelisto, ne tre vasta kaj ne tre eleganta. Videble tian serĉis la juna virino, ĉar post momenta pripenso ŝi malfermis la vitran pordon, kiu troviĝis super kelke da ŝtupetoj. La eksteraĵo de la magazeno ŝin trompis. La magazeno ne estis tiel modesta, kiel ĝi aspektis. Kontraŭe, en sufiĉe vasta ĉambro troviĝis granda kvanto da objektoj el oro kaj multekostaj ŝtonoj. Sed la efektiva riĉeco kaŭze de nelerta elmontrado aŭ eble eĉ intence ne prezentiĝis publike al la pasantoj. Ke la ekstera simpleco de la magazeno estis bazita sur la propra intenco de ĝia posedanto, tion oni povis supozi preskaŭ kun certeco, vidante, kiel en la mezo de siaj helpantoj kaj verŝajne lernantoj li laboris propramane. Li estis homo nealta, ruĝvanga, grizeta, kun bonkora rideto kaj granda spriteco en la malgrandaj brunaj okuloj. Ekvidinte la en-irantan virinon, li levigis kaj demandis ĝentile, kion ŝi deziras.
 
@@ -4409,9 +3558,7 @@ Dum momento ŝi iris tiamaniere, kvazaŭ ŝi ne scius bone, kien ŝi iras, ŝi d
 
 —Kial do ne, sinjorina moŝto, kial do ne? — respondis la juvelisto kun la spritaj brilantaj okuloj, — kia do objekto ĝi estas?
 
-Dum momento estis nenia respondo. Marta staris en la 240
-
-MARTA
+Dum momento estis nenia respondo. Marta staris en la
 
 
 mezo de la magazeno kun okuloj direktitaj al la planko. ŝia vizaĝo, pala kiel marmoro, estis rigida kaj streĉita. Oni povus diri, ke ŝi estas finanta interparoladon kun sia propra interno kaj ŝi intencas nur diri la lastan vorton de tiu interparolado, vorton, esprimontan ian tre malfacile atingitan decidon.
@@ -4433,9 +3580,6 @@ mezo de la magazeno kun okuloj direktitaj al la planko. ŝia vizaĝo, pala kiel 
 Sed tiun momenton ŝi jam travivis. Per forto de la volo ŝi rekaptis la forglitantan memkonscion kaj donis al la juvelisto la ringon.
 
 
-MARTA
-
-
 —ĉu tio ĉi estas nepre necesa? mia Dio, ĉu ĝi estas nepre necesa? — demandis la juvelisto per tono de kompato.
 
 —Nepre necesa, — respondis la virino mallonge kaj seke.
@@ -4452,12 +3596,7 @@ Marta forturnis la vizaĝon for de la balanciĝanta pesileto.
 
 Marta streĉe rigardis laŭvice ĉiun el la paroj da manoj, kiuj movigadis ĉe la longforma tablo. ŝiaj okuloj, antaŭe tute sen-vivaj, komencis flami per forta fajro. Oni povis vidi en ili fe-bran scivolecon, preskaŭ avidecon. Dum la kelke da minutoj de ĉi tiu rigardado ŝi rimarkis pli da detaloj de la juvelista arto kaj komprenis ĝian esencon kaj naturon pli bone, ol iu alia, troviĝanta en aliaj ĉirkonstancoj, povus rimarki kaj kompreni en la daŭro de multe da horoj.
 
-—Mi petas vin, sinjorina moŝto, — diris la juvelisto el mal-242
-
-MARTA
-
-
-antaŭ la tablo, — la ringo de via moŝto valoras tri kaj duonon da spesmiloj.
+—Mi petas vin, sinjorina moŝto, — diris la juvelisto el malantaŭ la tablo, — la ringo de via moŝto valoras tri kaj duonon da spesmiloj.
 
 Àŭdinte ĉi tiun voĉon, Marta forturnis la vizaĝon for de la laborantoj kaj rapide aliris al la tablo, ĉe kiu staris la juvelisto.
 
@@ -4480,9 +3619,6 @@ La malgrandaj okuloj de la juvelisto larĝe malfermiĝis.
 La juvelisto ĉesis miregi. Li jam komprenis, kion bezonas la virino, kiu alportis al li por vendi la edziĝan ringon. Lia malalta frunto tamen tre videble sulkiĝis, liaj viglaj okuloj montris konfuzitecon.
 
 
-MARTA
-
-
 —Vidu, sinjorina moŝto, — li komencis, — por diri la veron, mi en mia magazeno lernantojn ne havas; ĉi tiuj sinjoroj estas jam preparitaj, instruitaj.
 
 Marta ekrigadis al la tablo, ĉe kiu sidis la laborantoj. Unu el ili, tiu kiu desegnis, ĵus leviĝis kaj eliris en la apudan ĉambron.
@@ -4496,12 +3632,7 @@ Sur la klinita vizaĝo de la virino aperis ruĝeto, ŝia brusto spiris malrapide
 La desegnisto, kiu antaŭ momento estis elirinta en la apudan ĉambron, revenis en la magazenon, sed, vidante, ke lia loko estas okupita, li haltis sur la sojlo. Tio estis viro, havanta la agon de ĉirkaŭ dudek tri jaroj, peneme vestita, kun frizitaj haroj kaj glatigitaj lipharetoj. Li metis la manojn en la poŝojn, apogis sin senzorgece al angulo de muro kaj kun rideto sur la lipoj per la okuloj interŝanĝadis kun la kolegoj signojn de interkompreniĝo.
 
 
-MARTA
-
-
-—Sed, kara sinjorino … — komencis la iom malpacienci-
-
-ĝinta juvelisto.
+—Sed, kara sinjorino … — komencis la iom malpacienciĝinta juvelisto.
 
 —Tuj, tuj! — respondis Marta, ne turnante la okulojn for de sia laboro.
 
@@ -4530,9 +3661,6 @@ La juna homo kun la frizitaj haroj diris plue:
 —Se vi hezitas plenumi la postulon de ĉi tiu sinjorino pro konsidereco rilate min, mi petas, faru al vi nenian embarason.
 
 
-MARTA
-
-
 Vi scias ja, ke ankaŭ sen tio mi laboros ĉe vi jam ne pli ol kelke da semajnoj, ĉar mi havas la certecon, ke en tiu tempo mi ricevos oficon en la oficejo de la arhitekturisto de la urbo Varsovio … — Li parolis tion kun iom da ironio kaj kun plena nezorgeco. Oni povis vidi en li homon, por kiu la magazeno de la juvelisto estis nur stacio sur la vojo al lokoj pli altaj kaj pli profitaj.
 
 —Jes, jes, — diris la juvelisto, — mi scias, ke vi baldaŭ min forlasos … sed mi tamen ja ne povas.
@@ -4556,12 +3684,7 @@ Li stariĝis en la mezo de la magazeno kaj, rigardante siajn helpantojn, diris p
 Verŝajne ĉi tiujn lakonajn demandojn li faris al si mem, sed kvazaŭ kun videbla respondo li renkontiĝis okulo kontraŭ okulo kun la kvar vizaĝoj de la laborantoj, sidantaj ĉe la tablo.
 
 
-MARTA
-
-
-Sur tiuj vizaĝoj oni povis vidi iom da miro, sed multe pli da moko. Kaj la junulo kun la frizitaj haroj ekridis preskaŭ laŭ-
-
-te, kaj, kvazaŭ intencante doni plenan liberecon al sia ridado, li salte foriĝis en la apudan ĉambron.
+Sur tiuj vizaĝoj oni povis vidi iom da miro, sed multe pli da moko. Kaj la junulo kun la frizitaj haroj ekridis preskaŭ laŭte, kaj, kvazaŭ intencante doni plenan liberecon al sia ridado, li salte foriĝis en la apudan ĉambron.
 
 Kial tiuj homoj ridetis kaj mokis? Estus malfacile respondi pri tio, aŭ pli vere oni povus multe paroli pri tio. Sed la juvelisto en tiu ridado videble trovis konfirmon de siaj timoj kaj malinklinoj. Per ambaŭ manoj li faris esprimplenan geston kaj, rigardante Martan, li ekkriis:
 
@@ -4584,9 +3707,6 @@ Li rapide levigis de la seĝo, kuris al alia tablo, elŝovis tirkeston kaj stari
 —Jen estas la mono, — li diris, donante al la virino du monpaperetojn.
 
 
-MARTA
-
-
 Marta klinis salute la kapon kaj direktis sin al la pordo.
 
 Estante jam ĉe la sojlo, ŝi returnis sin al la juvelisto.
@@ -4599,13 +3719,9 @@ Estante jam ĉe la sojlo, ŝi returnis sin al la juvelisto.
 
 Kioman fojon, depost la tempo, kiam ŝi komencis trenadi sian mizeron kaj urĝajn bezonojn de unuj homaj pordoj al aliaj, ŝi anstataŭ dezirata laboro ricevis almozon!
 
-Forlasinte la magazenon de la juvelisto, Marta ne ploris, ne plirapidigis kaj ne malplirapidigis siajn paŝojn. Sen larmoj, sen rideto kaj sen sopirĝemo ŝi iris rekte al sia loĝejo per pa-
+Forlasinte la magazenon de la juvelisto, Marta ne ploris, ne plirapidigis kaj ne malplirapidigis siajn paŝojn. Sen larmoj, sen rideto kaj sen sopirĝemo ŝi iris rekte al sia loĝejo per paŝoj egalaj kaj sammezuraj. Antaŭ unu horo ŝi pensis, ke, ricevinte monon por la vendita ringo, ŝi aĉetos ankoraŭ hodiaŭ lignon, por pli bone varmigi la ĉambron por la nokto, kaj manĝmaterialojn, por pretigi fortigan manĝaĵon al la infano.
 
-ŝoj egalaj kaj sammezuraj. Antaŭ unu horo ŝi pensis, ke, ricevinte monon por la vendita ringo, ŝi aĉetos ankoraŭ hodiaŭ lignon, por pli bone varmigi la ĉambron por la nokto, kaj manĝmaterialojn, por pretigi fortigan manĝaĵon al la infano.
-
-ŝi tamen ne plenumis tiujn siajn intencojn, ŝi ne iris en butikon de manĝmaterialoj; oni povus diri, ke aŭ ŝi forgesis ĉion en la mondo, aŭ ŝi ne havis forton, por iri pluen, aŭ kuraĝon, por iri al alia loko krom tiu alte troviĝanta, nuda kaj malvarma nestaĉo, kiu estis ŝia loĝejo. is tiu tago ĉiufoje, kiam ŝi estis revenanta hejmen, ŝi ĉiam rapide kuradis sur la ŝtuparo, sed nun ŝi iris sur ĝi malrapide, kelkfoje ŝi puŝigis je kruta ŝtupo, ne vidante ĝin en la komenciĝanta krepusko, aŭ vidante nenion antaŭ si. Muta kaj malvarma kiel tombo ŝi eniris en la ĉambron, ĵetis nur preterflugantan rigardon sur la 248
-
-MARTA
+ŝi tamen ne plenumis tiujn siajn intencojn, ŝi ne iris en butikon de manĝmaterialoj; oni povus diri, ke aŭ ŝi forgesis ĉion en la mondo, aŭ ŝi ne havis forton, por iri pluen, aŭ kuraĝon, por iri al alia loko krom tiu alte troviĝanta, nuda kaj malvarma nestaĉo, kiu estis ŝia loĝejo. is tiu tago ĉiufoje, kiam ŝi estis revenanta hejmen, ŝi ĉiam rapide kuradis sur la ŝtuparo, sed nun ŝi iris sur ĝi malrapide, kelkfoje ŝi puŝigis je kruta ŝtupo, ne vidante ĝin en la komenciĝanta krepusko, aŭ vidante nenion antaŭ si. Muta kaj malvarma kiel tombo ŝi eniris en la ĉambron, ĵetis nur preterflugantan rigardon sur la
 
 
 knabineton, kiu kunpremiĝinte sidis antaŭ la kameno, ne ekparolis al ŝi, deprenis de la kapo la tukon kaj aliris al la litaĵo, kuŝanta sur la planko. ŝiaj okuloj vitrece rigardis en la spacon.
@@ -4616,9 +3732,7 @@ Profunda silento regis en la ĉambro; nur ekster la fenestro, malalte, sur vasta
 
 Marta kuŝis sur la malmola litaĵo, en ŝtona senmoveco, sen ia penso en la kapo, sen ia alia sento krom morta laciĝo. Laboro ĝustmaniere entreprenata kaj juste rekompensata estas la plej efika, eble la sola efika higiena rimedo kontraŭ malsanoj de la korpo kaj spirito. Sed nenio tiel rapide kaj ĝisfun-de ruinigas la fortojn fizikajn kaj moralajn, kiel ĵetiĝado sur diversajn vojojn de laboro, febra serĉado kaj netrovado.
 
-Marta nun vidis antaŭ si jam nenian vojon. Estas vero, ke ekzistis unu, ĉiam malfermita por ŝi, sed ĉi tiu vojo kondukus ŝin tien, al tiu loĝejo ĉe la strata Krolewska, kaj devigus ŝin diri al tiu virino kun la velkinta frunto kaj disliberigitaj haroj: mi revenas! vi diris la veron! mi ne estas homo, mi estas objekto! Sed en la brusto de la juna virino ekzistis instinktoj, sentoj, rememoroj, kiuj forturnis ŝin de tiu vojo, kiuj faris ĝin nepensebla por ŝi. Tial ŝi efektive ne pensis pri ĝi, tiel same 249
-
-MARTA
+Marta nun vidis antaŭ si jam nenian vojon. Estas vero, ke ekzistis unu, ĉiam malfermita por ŝi, sed ĉi tiu vojo kondukus ŝin tien, al tiu loĝejo ĉe la strata Krolewska, kaj devigus ŝin diri al tiu virino kun la velkinta frunto kaj disliberigitaj haroj: mi revenas! vi diris la veron! mi ne estas homo, mi estas objekto! Sed en la brusto de la juna virino ekzistis instinktoj, sentoj, rememoroj, kiuj forturnis ŝin de tiu vojo, kiuj faris ĝin nepensebla por ŝi. Tial ŝi efektive ne pensis pri ĝi, tiel same
 
 
 kiel ŝi en ĉi tiu momento pensis pri nenio. Subite ŝi ekaŭdis kvazaŭ en dormo ronkan, nehaltigeblan tusadon. ĉi tiuj sonoj tremige ŝin ekskuis kaj rapidege eligis ŝin el la ŝtona senmoveco. Rapide ŝi leviĝis sur la litaĵo kaj sidiĝis rektiĝinte.
@@ -4637,12 +3751,7 @@ En la krepuska mallumo ŝi ne povis klare vidi la vizaĝon de la filineto. ŝi e
 
 En la mezo de la nokto per la ŝtuparo de la alta domo kuris malsupren virino kun nigra tuko sur la kapo. Preskaŭ absoluta mallumo regis ĉirkaŭ ŝi, kaj tamen ŝi ne ŝanceliĝis kiel antaŭ kelke da horoj, ne puŝiĝis je la krutaj ŝtupoj kaj ne haltis dum la irado por reakiri spiron. Oni povus diri, ke ŝi havis flugilojn ĉe la brakoj, kaj tio tute ne estus sensenca metaforo. ŝin portis efektive kaj preskaŭ levis super la teron doloro kaj timego.
 
-Post malpli ol duonhoro ŝi revenis, sed ne sola. Soin akom-250
-
-MARTA
-
-
-panis viro ankoraŭ juna, havanta sur si elegantan ĉapelon kaj bonhavecan pelton. Ili eniris en la ĉambron kaj ambaŭ aliris al la litaĵo, kiu kuŝis sur la planko. La infano kun vizaĝo ruĝa de varmego ĵetiĝadis sur ĝi kun preskaŭ senĉesa tusado kaj neklaraj plendoj.
+Post malpli ol duonhoro ŝi revenis, sed ne sola. Soin akompanis viro ankoraŭ juna, havanta sur si elegantan ĉapelon kaj bonhavecan pelton. Ili eniris en la ĉambron kaj ambaŭ aliris al la litaĵo, kiu kuŝis sur la planko. La infano kun vizaĝo ruĝa de varmego ĵetiĝadis sur ĝi kun preskaŭ senĉesa tusado kaj neklaraj plendoj.
 
 La kuracisto rigardis ĉirkaŭen, kredeble serĉante seĝon. Ne trovinte ĝin, li stariĝis unugenue sur la planko. La virino staris ĉe la pieda parto de la litajo, muta kaj senmova, kun malĝoja fajro en la okuloj.
 
@@ -4667,9 +3776,6 @@ Li foriris. La vidvino genuiĝis antaŭ la malalta litaĵo kaj alpremis sian bru
 pardonu vian patrinon, pardonu! Mi ne kapablis liveri al vi varmon kaj nutron, mi elmetis vin al malvarmo kaj malsato!
 
 
-MARTA
-
-
 Vi estas malforta, kadukiginta … vi estas malsana … ho, mia infano.
 
 Senforte ŝi malsuprenŝovigis de la litaĵo, frapis la frunton je la planko, enigis la manojn en la harojn.
@@ -4690,9 +3796,7 @@ Li foriris. Marta staris en la mezo de la ĉambro kun manoj krucigitaj sur la br
 
 Plialtigi la temperaturon de la ĉambro! per kio? aĉeti medikamenton! Per kio?
 
-ŝi ne havis jam en la poŝo eĉ unu spesdekon. En la unua tago de la malsano de la infano ŝi posedis kvar spesmilojn kaj kelke da spescentoj; tiun trezoron forglutis la kameno, en kiu 252
-
-MARTA
+ŝi ne havis jam en la poŝo eĉ unu spesdekon. En la unua tago de la malsano de la infano ŝi posedis kvar spesmilojn kaj kelke da spescentoj; tiun trezoron forglutis la kameno, en kiu
 
 
 ĉiutage brulis fajro, kaj la apoteka retorto, al kiu Marta sin turnadis kelke da fojoj en ĉiu tago.
@@ -4711,9 +3815,7 @@ Subite la infano ĵetiĝis sur la litaĵo kaj malforte ekkriis. En tiu ekkrio so
 
 Ho, Dio! la mortiga varmego alportis antaŭ la okulojn de la infano la bildon de ĝia patro; ĝi ridetis al li, plende ekĝemis antaŭ li kaj petegis lin pri savo!
 
-Marta levis la ĝis nun klinitan kapon; el ŝiaj okuloj, ĝis nun, sekaj kaj nebulitaj, kun subita fortego ekverŝiĝis larmoj. ŝi 253
-
-MARTA
+Marta levis la ĝis nun klinitan kapon; el ŝiaj okuloj, ĝis nun, sekaj kaj nebulitaj, kun subita fortego ekverŝiĝis larmoj. ŝi
 
 
 interfingrigis la manojn kaj fiksis sian nebulitan rigardon sur la vizaĝo de la infano.
@@ -4726,9 +3828,7 @@ Dum momento ŝi staris kaj meditis. Subite ŝi ĵetiĝis al la litaĵo kaj halti
 
 Flama ruĝo kovris ŝiajn flavigintajn vangojn, en la okuloj ekbrilis fajro de forta decido.
 
-ŝi ĵetis sur la kapon la nigran tukon kaj kuris malsupren al la loĝejo de la kortisto. Tie antaŭ fajro, ĉe kiu kuirigis man-
-
-ĝaĵo, sidis virino en granda kufo kaj kun malelegantaj ŝuoj.
+ŝi ĵetis sur la kapon la nigran tukon kaj kuris malsupren al la loĝejo de la kortisto. Tie antaŭ fajro, ĉe kiu kuirigis manĝaĵo, sidis virino en granda kufo kaj kun malelegantaj ŝuoj.
 
 Marta haltis antaŭ ŝi, malfacile spirante de kurado.
 
@@ -4747,9 +3847,6 @@ La patrino kliniĝis, kaptis la grandan, maldelikatan, malmolan manon de la viri
 —Pro kompato, sinjorino, pro favorkoreco sidu iom ĉe la infano … ĝi konstante volas trinki … ĝi ĵetiĝas kaj desaltas de la litajo, oni ne povas hodiaŭ lasi ĝin sola …
 
 
-MARTA
-
-
 ŝi kisis tiun manon, kiu ankoraŭ antaŭ nelonge kruele batis ŝian infanon.
 
 —Nu, nu, kion do ŝi faras! nu, mi iros; mi iros kaj iom sidos, nur ne vagu tro longe, ĉar post unu horo mia infano venos el la lernejo kaj mi devos doni al ĝi manĝi! …
@@ -4766,12 +3863,7 @@ La antaŭĉambro estis abunde lumita, malantaŭ la pordo kondukanta en la salono
 
 — Mi havas aferon al sinjorino Rudzinska.
 
-—Ho! tiam eble venu morgaŭ. Hodiaŭ miaj gesinjoroj ha-255
-
-MARTA
-
-
-vas sian semajnan vesperkunvenon; la gastoj ĵus kolektiĝis, mia sinjorino ne povas eliri el la salono …
+—Ho! tiam eble venu morgaŭ. Hodiaŭ miaj gesinjoroj havas sian semajnan vesperkunvenon; la gastoj ĵus kolektiĝis, mia sinjorino ne povas eliri el la salono …
 
 Marta eliris returne sur la ŝtuparon. La servistino fermis post ŝi la pordon. Malantaŭ ĉi tiu pordo loĝis efektive bona, sincere favorkora virino: sed ŝia kompatema mano ne povis en ĉi tiu momento malfermiĝi por Marta. Kaj tio estis afero tute natura. Kompatemaj manoj ĝenerale enhavas en si kruelan elementon de necerteco. ĉar la plej bona homo ne povas ĉiun momenton de sia vivo dediĉi al bonaj faroj. Ne sole la neprokrasteblaj okupoj kaj la personaj zorgoj, sed eĉ la per si mem senkulpaj, iafoje eĉ devigaj sociaj amuziĝoj direktas la kompateman manon al aliaj celoj kaj faroj, nepermesante, ke
 
@@ -4781,18 +3873,14 @@ Marta nun iris, aŭ pli vere kuris en direkto al la strato Krakowskie Przedmiesc
 
 Estis inter la sepa kaj oka horo vespere, sekve la tempo, kiam granda urbo ekstere kaj interne bolas per plej kapturna movado, brilas per plej riĉaj vestoj, preskaŭ ĝis senfineco multobligas en si la aperojn de civilizacio, kiuj ekregas en la internoj de la domoj kaj sur la strataj vojoj, sur grandajn spacojn verŝas abundan lumon, muzikon, amasojn, bruon. La vivo vespera estas duono de la vivo, eble la pli granda duono por la loĝantaro de urbo, sur kies ĉielo dum multe da semajnoj la suno lumas ĉiutage apenaŭ kelke da horoj.
 
-La strato Krakowskie Przedmiescie estis plena de movado, 256
-
-MARTA
+La strato Krakowskie Przedmiescie estis plena de movado,
 
 
 bolis per vivo kaj rapidado, kiun favoris la vetero de tiu vespero. Malgrandpeca martmonata neĝo falis sur la ankoraŭ frostitan teron kaj purigis la ĉielon de la blanketaj nuboj. Nun la ĉiela plafono etendita super la urbo estis alte profunda; malluma, stelplena.
 
 Senĉesa bruo de radoj simile al senfina tondro kuris laŭ la mezo de la larĝa strato. Sur la trotuaroj ondis miloj da homaj kapoj. Estis tie tiel lume, preskaŭ kiel dum la tago, ĉar krom la tre densaj gasaj lanternoj multaj magazenaj fenestroj verŝis sur vastan spacon torentojn da lumo.
 
-Sur la trotuaroj de la ĉefaj stratoj de Varsovio neniam estas tiel multe da homoj, kiel ĝuste en tiu tempo. ĉar ĝi estas la tempo kiel de la laboruloj, tiel ankaŭ de la mallaboruloj. La laboruloj rapidasal ripozo aŭ al distriĝo, la mallaboruloj amas tiujn por ili tre konformajn elementojn: parolbruon, al kiuj ili sensence elmetas siajn orelojn, diversecon de vidaĵoj, kiujn ili rigardas kun malfermitaj buŝoj, brilan lumon, kiu karesas iliajn okulojn, kaj eble ankaŭ la mistera duonlumo de la vespero ilin allogas. En tiu kuranta, rapidanta, babilbruanta amaso troviĝas sendube multe da kompatemaj animoj, sed tiuj animoj estas nun okupataj de io alia ol de kompatado. Ilin kaptis la turnovento de la mondo, la finiĝado de la tago igis ilin rapidi; amuzoj, personaj aferoj, sentoj en tiu tempo de la tago vigligis la imagon, okupis la pensojn, donis celon al la rapidaj paŝoj. Krom tio ĉe arta lumo malpli klare ol ĉe la taga lumo montriĝas la sulkoj sur la vizaĝo de suferanto, en sen-vivaj pupiloj ludas la radioj de la lampoj, imitante brilon de sano kaj vivo, la strata bruo faras neaŭdeblaj la voĉojn de elturmentitaj brustoj. Kaj la kompatemaj animoj kaj manoj haltas plej precipe kaj plej longe tie, kie la skeleto de mizero 257
-
-MARTA
+Sur la trotuaroj de la ĉefaj stratoj de Varsovio neniam estas tiel multe da homoj, kiel ĝuste en tiu tempo. ĉar ĝi estas la tempo kiel de la laboruloj, tiel ankaŭ de la mallaboruloj. La laboruloj rapidasal ripozo aŭ al distriĝo, la mallaboruloj amas tiujn por ili tre konformajn elementojn: parolbruon, al kiuj ili sensence elmetas siajn orelojn, diversecon de vidaĵoj, kiujn ili rigardas kun malfermitaj buŝoj, brilan lumon, kiu karesas iliajn okulojn, kaj eble ankaŭ la mistera duonlumo de la vespero ilin allogas. En tiu kuranta, rapidanta, babilbruanta amaso troviĝas sendube multe da kompatemaj animoj, sed tiuj animoj estas nun okupataj de io alia ol de kompatado. Ilin kaptis la turnovento de la mondo, la finiĝado de la tago igis ilin rapidi; amuzoj, personaj aferoj, sentoj en tiu tempo de la tago vigligis la imagon, okupis la pensojn, donis celon al la rapidaj paŝoj. Krom tio ĉe arta lumo malpli klare ol ĉe la taga lumo montriĝas la sulkoj sur la vizaĝo de suferanto, en sen-vivaj pupiloj ludas la radioj de la lampoj, imitante brilon de sano kaj vivo, la strata bruo faras neaŭdeblaj la voĉojn de elturmentitaj brustoj. Kaj la kompatemaj animoj kaj manoj haltas plej precipe kaj plej longe tie, kie la skeleto de mizero
 
 
 plej laŭte sonas per siaj nudaj ostoj, plej terure rigardas per siaj kadavraj okuloj.
@@ -4807,9 +3895,7 @@ La flamaj flugiloj, kiujn ŝi antaŭ unu horo havis ĉe la brakoj, defalis, ŝi 
 
 Kaj tamen ŝi ankoraŭ eĉ unu fojon ne etendis la manon.
 
-ĉiufoje, kiam ŝi renkontigis kun ia facila, gracia, eleganta virina figuro, ŝi elprenis la manon el la faldoj de sia maleleganta tuko, sed ne etendis ĝin, malfermis la buŝon, sed nenion elparolis. ŝia senfortiĝinta voĉo timis la stratan bruon, en kiu 258
-
-MARTA
+ĉiufoje, kiam ŝi renkontigis kun ia facila, gracia, eleganta virina figuro, ŝi elprenis la manon el la faldoj de sia maleleganta tuko, sed ne etendis ĝin, malfermis la buŝon, sed nenion elparolis. ŝia senfortiĝinta voĉo timis la stratan bruon, en kiu
 
 
 ĝi devus droni neaŭdita, la manon frapadis ia nevidata forto kaj puŝadis ĝin malsupren. ĉu tio estis ankoraŭ potenco de la honto?
@@ -4830,12 +3916,7 @@ Nenia respondo sekvis, ĉar Marta direktiĝis al la kontraŭa flanko kaj iris pl
 
 ŝi malrapidigis siajn paŝojn, sur ŝiaj flaviĝintaj, velkintaj, kaviĝintaj vangoj aperis ruĝaj makuloj. Tio estis sekvosignoj de varmego, kiu bruligis ŝian bruston. En la pupiloj fulmetadis akraj briloj. Tio estis rebrilo de tiu fajro de malesperaj pensoj, kiu atakis ŝian kapon.
 
-ŝi malrapidigis siajn paŝojn, ŝi haltis denove. Sur la trotuaro iris viro iom klinita sub la pezo de bonhaveca pelto, kiu certe estis superflua por li. Marta direktis penetrantan rigar-259
-
-MARTA
-
-
-don en la vizaĝon de la pasanto. i estis bonkora, milda, ornamita de densaj neĝoblankaj lipharoj.
+ŝi malrapidigis siajn paŝojn, ŝi haltis denove. Sur la trotuaro iris viro iom klinita sub la pezo de bonhaveca pelto, kiu certe estis superflua por li. Marta direktis penetrantan rigardon en la vizaĝon de la pasanto. i estis bonkora, milda, ornamita de densaj neĝoblankaj lipharoj.
 
 ŝi elprenis denove la manon el la faldoj de sia tuko kaj, ne etendante ĝin, ŝi eldiris pli laŭte ol antaŭe: — Sinjoro! sinjoro!
 
@@ -4843,9 +3924,7 @@ La viro estis jam preterironta, li tamen subite haltis, ekrigardis la virinan vi
 
 La griza klinita pasanto havis kompateman manon. ĉu li povis scii, kiaj estis la bezonoj de la helpopetanta virino? kaj se li tion scius, ĉu li volus, ĉu li povus kontentigi ilin? Kaj kiom da fojoj la almozpetanta virino devos etendi la manon, antaŭ ol el similaj donoj kolektiĝos la necesa sumo, por akiri nun por ŝi plej grandan riĉaĵon: faskon da ligno kaj bote-leton da medikamento?
 
-La almozpetanta virino iris pluen, rigida, muta, kun la malgranda monero en la konvulsie kunpremita mano. ŝi haltis denove. Ne la pasantojn ŝi nun rigardis, sed ŝi direktis sian rigardon tra la travidan, vastan, hele lumitan fenestron. Tio estis fenestro de magazeno, kiu ĉe la arta ĉirkaŭumado havis aspekton de sorĉa palaco. Interne ornamis ĝin marmoraj kolonoj, inter ili pendis luksaj purpuraj kurtenoj, belkoloraj ta-piŝoj, pendantaj sur la muroj, karesis la rigardon per ruĝo de rozoj kaj verdo de herbo; antaŭ ili distingiĝis per blanka koloro skulptitaj figuroj de statuoj. Sur bronzaj postamentoj orbrilantaj kandelabroj etendis siajn branĉformajn brakojn, 260
-
-MARTA
+La almozpetanta virino iris pluen, rigida, muta, kun la malgranda monero en la konvulsie kunpremita mano. ŝi haltis denove. Ne la pasantojn ŝi nun rigardis, sed ŝi direktis sian rigardon tra la travidan, vastan, hele lumitan fenestron. Tio estis fenestro de magazeno, kiu ĉe la arta ĉirkaŭumado havis aspekton de sorĉa palaco. Interne ornamis ĝin marmoraj kolonoj, inter ili pendis luksaj purpuraj kurtenoj, belkoloraj ta-piŝoj, pendantaj sur la muroj, karesis la rigardon per ruĝo de rozoj kaj verdo de herbo; antaŭ ili distingiĝis per blanka koloro skulptitaj figuroj de statuoj. Sur bronzaj postamentoj orbrilantaj kandelabroj etendis siajn branĉformajn brakojn,
 
 
 staris arĝentaj vazoj kaj pokaloj, porcelanaj korboj kaj kristalaj kloŝoj, kovrantaj grupojn da marmoraj statuetoj. Sed ne ĉiuj tiuj belaĵoj kaj riĉaĵoj turnis sur sin la atenton de la nigra flamanta okulo, kiu rigardis el la strato en la internon de la magazeno.
@@ -4860,9 +3939,7 @@ En tiun sanktejon de riĉeco ŝi enŝoviĝis kiel fantomo, kaj kiel fantomo ŝi 
 
 —Kion vi deziras, sinjorino? — demandis la mastro de la magazeno, elklinante iom la kapon kaj rigardante el malantaŭ bukedo da artefaritaj floroj la malhelan senmovan figuron.
 
-Sed ŝi ne rigardis lin. ŝi enpikis sian rigardon en la vizaĝon de la aĉetanta sinjoro, kiu, kun riĉa pelto nezorgece pendanta 261
-
-MARTA
+Sed ŝi ne rigardis lin. ŝi enpikis sian rigardon en la vizaĝon de la aĉetanta sinjoro, kiu, kun riĉa pelto nezorgece pendanta
 
 
 sur la ŝultroj, kun blanka mano kuŝanta sur belkolora tapiŝo, rigardis ŝin per senatenta okulo.
@@ -4883,42 +3960,32 @@ Dirinte tion, li turnis sin al la palisandra tablo, sur kiu kuŝis la tapiŝoj k
 
 La mastro de la magazeno kun rideto sur la lipoj disvolvis ankoraŭ unu tapiŝon. Ili daŭrigis sian interrompitan interparoladon. La malhela virina figuro daŭrigis stari ĉe la pordo, kvazaŭ ŝi estus sub la sorĉordono de ia minaca kaj nevenkebla forto. Teruran aspekton havis en tiu momento ŝia vizaĝo.
 
-La vortoj, kiujn ŝi aŭdis, estis guto tropleniganta tiun kalikon da venenaĵoj, el kiu ŝi trinkadis tiel longe. Tiu guto falis en la 262
-
-MARTA
+La vortoj, kiujn ŝi aŭdis, estis guto tropleniganta tiun kalikon da venenaĵoj, el kiu ŝi trinkadis tiel longe. Tiu guto falis en la
 
 
 profundon de ŝia brusto kun forto de narkotaĵo, kiu streĉas la nervojn, blindigas la penson, surdigas la konsciencon. Vi povas labori! ĉu la homo, kiu eldiris tiujn vortojn, povis scii almenaŭ parte, kian signifon mokan, kruelan ili posedis koncerne tiun virinon, kiu morte lacigis la spiriton, ruinigis la fortojn de la korpo en vana provado labori? kiu perdis la estimon al si mem, sin mem egaligis al sentaŭga polvo tial, ke ŝi ne kapablis labori? Tiu homo ne povis tion scii. Lia ago koncerne tiun virinon ne povis esti rigardata kiel malbona atesto pri la kvanto da boneco kaj kompatemeco troviĝanta en lia koro. Tre povas esti, ke li estis bona kaj kompatema, ke li malavare malfermus la manon antaŭ senforta kripleco, an-taŭ kaduka maljuneco, antaŭ faliga malsaneco; sed la virino, kiu etendis al li almozpetantan manon, estis juna kaj havanta nenian fizikan kriplecon, malsano ne montriĝis sur ŝia eksteraĵo per signoj, kiujn ĉiuj povas vidi. Sed pri ŝia morala kripleco, kiu alkondukis ŝin al li, pri la anima malsano, kiu de tiel longe bruligis ŝian bruston, ruinigante ĉiujn plej bonajn homajn sentojn, kiu okupis ŝian kapon, plenigante ĝin per ĉiam pli densa sufoka fumo de mallumaj venenaj pensoj, pri tio li ne sciis. Li ne sciis, kaj tial li diris: vi estas juna kaj sana, vi povas labori! Per tiuj vortoj li eldiris ion tute pravan, kaj tamen samtempe li senscie faris kruelan maljustaĵon.
 
 Antaŭ kelke da monatoj, eĉ antaŭ kelke da semajnoj Marta eble komprenus ĉion, kio estis prava kaj vera en la al ŝi direktitaj vortoj de la viro. Sed tiam, se ŝi starigus antaŭ li, ŝi petus laboron, nenion alian krom laboro; nun ŝi petegis almozon, nun en la eldiritaj vortoj ŝi aŭdis nenion krom moka maljustaĵo.
 
-La flama ruĝo, kiun ŝi havis sur la vizaĝo kaj sur la frunto, 263
-
-MARTA
+La flama ruĝo, kiun ŝi havis sur la vizaĝo kaj sur la frunto,
 
 
 kiam ŝi etendis la manon, malaperis sen postesigno. Meze de la morta paleco, kiu kovris ŝian vizaĝon, ŝiaj pupiloj, nigraj kaj profundaj kiel abismo, brulis kiel vulkanoj. Kaj efektive vulkano eksplodis en ŝia brusto, kiu forte leviĝadis kaj malleviĝadis, vulkano de kolero, envio kaj … avideco.
 
 De kolero, envio kaj avideco? ĉu ĝi povas esti, ke Marta, tiu infano de trankvila, ĉarma kampara domo, tiu iam estimata edzirno, feliĉa patrino, tiu virta estaĵo, kiu eĉ pro savo de sia vivo ne volis plenumi laboron, por kiu ŝi ne sentis sin kapabla, tiu energia laborulino, kiu kun ŝvito sur la vizaĝo kaj kun doloro en la koro sur ĉiuj vojoj de la tero serĉadis honestan pecon da pano, tiu fiera animo, kiu iam etendis la manojn al Dio kun la petego, ke li gardu ŝntraŭ sorto de almozulo, — fariĝis viktimo de tiuj kruelaj, inferaj sentoj, kondukan-taj al malbonaj deziroj kaj agoj?
 
-Kaj tamen tiel povis esti: ho ve! ho ve! ne sole povis, sed eĉ devis, ĝi devis tiel fariĝi kaŭze de la neŝangebla, eterne logika kaj en sia logikeco al nenio cedanta homa naturo. ŝi ne estis senkorpa anĝelo, ŝi ne estis supertera idealo, kiun ne tuŝas kaj ne renversas la blovoj de la teraj ventegoj, ĉar tia idealo ne ekzistas sur la tero. ŝi estis homo, kaj se en la homa naturo ekzistas altaj pintoj, sur kiuj disvolviĝas prudento, virtoj, sinoferemeco, heroeco, ekzistas ankaŭ abismaj fundoj kun silente kaj kaŝite embuskantaj rampaĵoj de minacaj tentoj kaj mallumaj instinktoj. Nenian homan estaĵon oni devas tiel morte turmenti, tiel terure skui, ke en ĝi povu ekmoviĝi tiu mistera fundo kun la tie silente embuskantaj ĝermoj de krimoj. En la homa naturo ekzistas grandegaj potencoj, sed ekzistas ankaŭ senlima senpoveco. Al ĉiu homa estaĵo oni devas doni kvanton da rajtoj kaj rimedoj precize proporcian 264
-
-MARTA
+Kaj tamen tiel povis esti: ho ve! ho ve! ne sole povis, sed eĉ devis, ĝi devis tiel fariĝi kaŭze de la neŝangebla, eterne logika kaj en sia logikeco al nenio cedanta homa naturo. ŝi ne estis senkorpa anĝelo, ŝi ne estis supertera idealo, kiun ne tuŝas kaj ne renversas la blovoj de la teraj ventegoj, ĉar tia idealo ne ekzistas sur la tero. ŝi estis homo, kaj se en la homa naturo ekzistas altaj pintoj, sur kiuj disvolviĝas prudento, virtoj, sinoferemeco, heroeco, ekzistas ankaŭ abismaj fundoj kun silente kaj kaŝite embuskantaj rampaĵoj de minacaj tentoj kaj mallumaj instinktoj. Nenian homan estaĵon oni devas tiel morte turmenti, tiel terure skui, ke en ĝi povu ekmoviĝi tiu mistera fundo kun la tie silente embuskantaj ĝermoj de krimoj. En la homa naturo ekzistas grandegaj potencoj, sed ekzistas ankaŭ senlima senpoveco. Al ĉiu homa estaĵo oni devas doni kvanton da rajtoj kaj rimedoj precize proporcian
 
 
 al la kvanto da devoj kaj respondeco, kiuj pezas sur tiu estaĵo, ĉar alie ĝi ne plenumos kaj ne eltenos tion, kion plenumi kaj elteni ĝi ne povos.
 
-La venena maldolĉeco, kiu de tiel longe guto post guto kolektiĝadis en la brusto de Marta, leviĝis en ŝi nun per grandega ondo, kaj kune kun ĝi elnaĝis la rampaĵoj de tentoj kaj la serpentoj de pasioj, kiuj antaŭe dormis profunde, poste iom post iom vekiĝis kaj nun estis tute vekitaj kaj furioze ĵeti-
-
-ĝadis.
+La venena maldolĉeco, kiu de tiel longe guto post guto kolektiĝadis en la brusto de Marta, leviĝis en ŝi nun per grandega ondo, kaj kune kun ĝi elnaĝis la rampaĵoj de tentoj kaj la serpentoj de pasioj, kiuj antaŭe dormis profunde, poste iom post iom vekiĝis kaj nun estis tute vekitaj kaj furioze ĵetiĝadis.
 
 La juna sinjoro en la riĉa pelto elektadis tapiŝojn, arĝentajn korbojn, porcelanajn vazojn kaj marmorajn statuetojn. Li aĉetis multe, li pensis kredeble pri aranĝo de bela hejmo, en kiun li eble intencis enkonduki junan edzinon.
 
 Li kaj la mastro de la magazeno estis eble absorbitaj de sia komuna okupo kaj forgesis pri la virino, kiu en ŝtona senmoveco kaj tomba silento staris ĉe la muro. ŝi ne forturnis la okulojn for de la mano de la aĉetanto, kiu tenis grandan di-kan monpaperujon plenan de mono. Kial li havas tiom multe kaj mi havas nenion? ŝi pensis. Per kia rajto li rifuzis al mi almozon? al mi, kies infano agonias en malvarmo kaj sen sa-vo, li, kiu tenas en la mano tiel grandan riĉecon? Li menso-gis, kiam li diris, ke mi estas juna kaj sana! mi estas pli ol maljuna, ĉar mi transvivis min mem. ĉu mi scias, kien forperdiĝis la antaŭa Marta? Mi estas terure malsana, ĉar mi estas senforta kiel infano … Kial do la homoj postulas, ke mi vivu per mia propra forto, se ili ne donis ĝin al mi? kial ili ne donis al mi forton, se ili nun ĝin postulas de mi? Li estas unu el miaj maljustagintoj, unu el miaj ŝuldantoj! li devas doni!
 
-La pensoj de tiu virino estis treege, senprudente malpravaj, kaj tamen samtempe kaj koncerne ŝin mem kiel neeviteblaj, 265
-
-MARTA
+La pensoj de tiu virino estis treege, senprudente malpravaj, kaj tamen samtempe kaj koncerne ŝin mem kiel neeviteblaj,
 
 
 kiel kompreneblaj ili estis! Ili estis bazitaj sur tiuj samaj maljustaĵoj, tiuj samaj sortoj, tiu sama senforteco unuflanke kaj respondeco kaj bezonoj duaflanke, kiuj naskis ĉiujn terurajn doktrinojn, kiuj de tempo al tempo eksplodas en la mondo per bruligado kaj mortigado, ĉiujn furiozajn pasiojn, kiuj, naskiĝinte pro manko de justeco, mem perdas la senton de justeco, naskiĝinte de malbonagoj, mem faras malbonagojn.
@@ -4943,21 +4010,11 @@ Per nezorgeca mano, kiu videble kutimis disĵetadi grandajn sumojn, li ĵetis la
 
 La monpaperujo nezorgece ĵetita malfermiĝis pli larĝe, sur la marmoran plataĵon elfalis el ĝi kelke da monpaperoj de diversa valoro.
 
-Tiujn monpaperojn rigardis la flamantaj okuloj de la viri-266
+Tiujn monpaperojn rigardis la flamantaj okuloj de la virino, kiu staris ĉe la muro. Kiel kelkaj specoj de serpentoj per sia rigardo magie alforgas la birdojn, tiel tiuj diverskoloraj paperetoj magie alforĝis al si la nigrajn profundajn pupilojn de la virino.
 
-MARTA
-
-
-no, kiu staris ĉe la muro. Kiel kelkaj specoj de serpentoj per sia rigardo magie alforgas la birdojn, tiel tiuj diverskoloraj paperetoj magie alforĝis al si la nigrajn profundajn pupilojn de la virino.
-
-Kiaj pensoj moviĝadis en la kapo de la virino, kiam ŝi tiamaniere rigardis la fremdan riĉecon? estus malfacile esplori il in ĉiujn, estus ankoraŭ pli malfacile ŝpini el ili ian ordan fadenon. Tio ne estis pensoj, tio estisąoso; febra varmego de la korpo ĝin naskis, malkvieteca de la spirito ŝin fortigis. Post du sekundoj da tia rigardado Marta komencis tremi per la tuta korpo, ŝi mallevadis la palpebrojn kaj tuj ilin relevadis, eltiradis la manon el la faldoj de la tuko kaj tuj ĝin denove kaŝadis! videble ŝi batalis ankoraŭ kun si mem, sed ho ve! ne ekzistis por ŝi espero de venko! Ne ekzistis tia espero, ĉar ŝi ne havis jam sufiĉe da forto, ke ŝi povu kontraŭstari al mal-honoratento; ŝi ne havis jam sufiĉe da konscia pensado, ke ŝi povu kompreni la malhonorecon de la tento; ŝi ne havis jam konsciencon, kiu dronis en la maro da maldolĉo, kiu kolektiĝis en ŝia brusto; ŝi ne havis jam honton, kiun forpelis la malestimo, kiun ŝi sentis kontraŭ si mem, la longa vico da suferitaj humiliĝoj kaj la tiom multe da fojoj akceptita almozo Ne ekzistis por ŝi fine espero de venko, ĉar ŝi estis senkonscia, ĉar ŝian korpon bruligis varmego naskiĝinta de malsato, malvarmo, sendomeco, sed ankaŭ de malespero, kaj ŝian spiriton kaptis mallumaj furioj, elkoviĝintaj sur la fundo de ŝia ribeli-
-
-ĝinta interno.
+Kiaj pensoj moviĝadis en la kapo de la virino, kiam ŝi tiamaniere rigardis la fremdan riĉecon? estus malfacile esplori il in ĉiujn, estus ankoraŭ pli malfacile ŝpini el ili ian ordan fadenon. Tio ne estis pensoj, tio estisąoso; febra varmego de la korpo ĝin naskis, malkvieteca de la spirito ŝin fortigis. Post du sekundoj da tia rigardado Marta komencis tremi per la tuta korpo, ŝi mallevadis la palpebrojn kaj tuj ilin relevadis, eltiradis la manon el la faldoj de la tuko kaj tuj ĝin denove kaŝadis! videble ŝi batalis ankoraŭ kun si mem, sed ho ve! ne ekzistis por ŝi espero de venko! Ne ekzistis tia espero, ĉar ŝi ne havis jam sufiĉe da forto, ke ŝi povu kontraŭstari al mal-honoratento; ŝi ne havis jam sufiĉe da konscia pensado, ke ŝi povu kompreni la malhonorecon de la tento; ŝi ne havis jam konsciencon, kiu dronis en la maro da maldolĉo, kiu kolektiĝis en ŝia brusto; ŝi ne havis jam honton, kiun forpelis la malestimo, kiun ŝi sentis kontraŭ si mem, la longa vico da suferitaj humiliĝoj kaj la tiom multe da fojoj akceptita almozo Ne ekzistis por ŝi fine espero de venko, ĉar ŝi estis senkonscia, ĉar ŝian korpon bruligis varmego naskiĝinta de malsato, malvarmo, sendomeco, sed ankaŭ de malespero, kaj ŝian spiriton kaptis mallumaj furioj, elkoviĝintaj sur la fundo de ŝia ribeliĝinta interno.
 
 Subite la virino faris rapidan geston per la mano; unu el la paperetoj malaperis de la marmora plataĵo, kaj samtempe la vitra pordo malfermigis kaj tuj denove fermiĝis kun laŭta krako.
-
-
-MARTA
 
 
 Aŭdinte tiun fortan kaj neatenditan krakon, la du personoj, kiuj en la profundo de la magazeno estis okupitaj de elekta-do de mitologiaj grupoj, returnis la vizaĝojn.
@@ -4993,9 +4050,6 @@ Flava lado ekbrilis sur la brusto de homo, kiu aperis sur la trotuaro sub la str
 —Oni devas ŝin kapti! — kriis la komercisto al la policisto.
 
 
-MARTA
-
-
 —Kompreneble, sinjoro! — diris la homo kun la flava lado, saltis antaŭen kaj kriis laŭte:
 
 —He! homoj! kaptu! tien al Nowy Swiat kuris ŝtelistino!
@@ -5012,12 +4066,7 @@ La kun ŝi renkontiĝantaj kaj de ŝi dispuŝataj pasantoj komence rigardis ŝin
 
 Tiuj vortoj ne estis elparolitaj de unu voĉo, sed ruliĝis de tiu sama flanko, de kiu kuris la virino, transflugante el unu buŝo en alian, konstante kreskante, kaj akceptante ĉiam pli da forto. La virino, kiu komencis jam perdi rapidecon en sia kurado kaj lacigite haltis por sekundo, ekaŭdis la ŝin pelantajn minacajn kriojn.
 
-Samtempe aliĝis al ili ĉiam pli laŭta frapado de homaj pie-269
-
-MARTA
-
-
-doj, kiuj kuris sur la ŝtonoj de la trotuaro. Terura tremo skuis ŝin de la kapo ĝis la piedoj, ŝi ekkuris pluen kun tia rapideco, kvazaŭ ŝi havus flugilojn ĉe la brakoj. ŝi efektive denove havis flugilojn, sed nun ili konsistis ne el doloro, sed el timo.
+Samtempe aliĝis al ili ĉiam pli laŭta frapado de homaj piedoj, kiuj kuris sur la ŝtonoj de la trotuaro. Terura tremo skuis ŝin de la kapo ĝis la piedoj, ŝi ekkuris pluen kun tia rapideco, kvazaŭ ŝi havus flugilojn ĉe la brakoj. ŝi efektive denove havis flugilojn, sed nun ili konsistis ne el doloro, sed el timo.
 
 Subite ŝi eksentis, ke estas al ŝi malfacile kuri, ne tial, ke mankas al ŝi fortoj — la flugiloj de la timo ja preskaŭ portis ŝin super la tero — sed tial, ke homoj, irantaj en la kontraŭa direkto, komencis bari al ŝi la vojon, etendi la manojn, por kapti ŝian veston. ŝiaj flugiloj fariĝis jam ne sole rapidaj, sed ankaŭ elastaj! kaj ĵetadis ŝin en diversaj direktoj kun miriga elasteco kaj facileco de movoj; ŝi evitadis la manojn de la pasantoj, ŝi preterfrotadis ilin, sed tamen forkuradis.
 
@@ -5029,23 +4078,13 @@ Sed baldaŭ montriĝis, ke jam ne apartaj personoj iras al ŝi renkonte, sed ira
 
 Sed en tiu sama momento, kiam ŝi ĵetiĝis sur la mezon de la strato, tien ĵetiĝis post ŝi malluma amaso, konsistanta el ŝin pelantaj homoj. Kiuj estis tiuj homoj? En la fronto de la kuranta anaro brilis flavaj ladoj; post ili, kriante, kaj ridante, kuris strataj buboj, kiuj ĉiam tre volonte partoprenas en ĉiu tumulta sceno; post la buboj iris iom malpli rapide diversaj senlaboruloj, por kiuj ĉia homa amasiĝo prezentas distraĵon.
 
-La droŝkoj kaj kaleŝoj iom maldensiĝis. La virina haltis me-ze de la strato kaj ekrigardis malantaŭen. Kelkaj dekoj da pa-270
-
-MARTA
-
-
-ŝoj apartigis ŝin ankoraŭ de la nigra maso, kiu konsistis el homaj figuroj kaj kriis per voĉoj. ŝi staris nur kelke da sekundoj kaj ekkuris denove rekte antaŭen. Tiam ankaŭ antaŭ ŝi aperis nigra maso, moviĝanta, tiel same kiel tiu, kiu estis malantaŭ ŝi, sed havanta alian formon, iom longa, alia, kun granda okulo en formo de supre lumanta purpura lanterno. Sonorilo arĝentosona, klara kaj laŭta eksonis en la aero, sonis longe, akre, averte, la purpura okulo rapide ŝovigis antaŭen, pezaj radoj krakis obtuze, hufoj de ĉevaloj sonis metale, frapan-te la tere kuŝantajn ferajn relojn, sur kiuj ruliĝis la radoj.
+La droŝkoj kaj kaleŝoj iom maldensiĝis. La virina haltis me-ze de la strato kaj ekrigardis malantaŭen. Kelkaj dekoj da paŝoj apartigis ŝin ankoraŭ de la nigra maso, kiu konsistis el homaj figuroj kaj kriis per voĉoj. ŝi staris nur kelke da sekundoj kaj ekkuris denove rekte antaŭen. Tiam ankaŭ antaŭ ŝi aperis nigra maso, moviĝanta, tiel same kiel tiu, kiu estis malantaŭ ŝi, sed havanta alian formon, iom longa, alia, kun granda okulo en formo de supre lumanta purpura lanterno. Sonorilo arĝentosona, klara kaj laŭta eksonis en la aero, sonis longe, akre, averte, la purpura okulo rapide ŝovigis antaŭen, pezaj radoj krakis obtuze, hufoj de ĉevaloj sonis metale, frapan-te la tere kuŝantajn ferajn relojn, sur kiuj ruliĝis la radoj.
 
 Tio estis grandega tramvoja omnibuso, tirata de kvar grandaj, fortaj ĉevaloj, plena de homoj, kun granda kvanto da pe-zegaj ŝarĝoj.
 
 La virino ne ĉesis kuri meze de la strato; malantaŭ kaj an-taŭ ŝi kuris du nigraj masoj, unu kun krioj kaj mokoj, la dua kun neĉesanta sonorado, obtuza bruo kaj grandega purpura okulo; ambaŭ ŝoviĝis en rekta direkto al la virino, kiu kuris inter ili. Se ŝi ne forsaltos flanken, unu aŭ la dua nepre ŝin englutos. ŝi deflankiĝis de la rekta linio, laŭ kiu ŝi kuris ĝis nun, haltis kaj jetis rigardon ĉirkaŭen. Nun la ŝin pelanta amaso da homoj estis jam en la distanco de ne malpli ol dekkelke da paŝoj de ŝi, kaj tia sama interspaco apartigis ŝin de la ruliĝanta grandega veturilo. Sed la amaso kuris malpli rapide ol la veturilo, kiu ruliĝis tre rapide.
 
-ŝi jam plu ne kuris. Mankis jam al ŝi fortoj, aŭ ŝi decidis en ia ajn maniero meti finon al tiu terura pelado. ŝi staris kun brusto turnita al tiu flanko, de kiu venis la omnibuso, sed la vizaĝon ŝi turnis al tiu flanko, de kiu kuris la homoj. Nun en ŝiaj okuloj brilis lumo de konscia penso. Oni povus pensi, ke ŝi faras elekton. Kian elekton? Sur unu flanko estas malhono-271
-
-MARTA
-
-
-ro, mokado, malliberejo, longaj, eble senfinaj turmentoj, sur la dua estas morto … morto terura, sed subita, fulma.
+ŝi jam plu ne kuris. Mankis jam al ŝi fortoj, aŭ ŝi decidis en ia ajn maniero meti finon al tiu terura pelado. ŝi staris kun brusto turnita al tiu flanko, de kiu venis la omnibuso, sed la vizaĝon ŝi turnis al tiu flanko, de kiu kuris la homoj. Nun en ŝiaj okuloj brilis lumo de konscia penso. Oni povus pensi, ke ŝi faras elekton. Kian elekton? Sur unu flanko estas malhonoro, mokado, malliberejo, longaj, eble senfinaj turmentoj, sur la dua estas morto … morto terura, sed subita, fulma.
 
 Kaj tamen la instinkto de memkonservo videble ne tute ŝin forlasis, la morto ŝajnis al ŝi pli terura ol la homoj, ĉar antaŭ momento ŝi deflankiĝis ja de tiu rekta linio, sur kiu kuris al ŝi la liberigonta morto.
 
@@ -5055,23 +4094,13 @@ Jes, sed nun ŝi denove komencas retiriĝi al tiu linio; la ho-mo kun la flava l
 
 Sed la purpura okulo ne volis obei, ĝi ĉiam flugis antaŭen, kaj la hufoj de la ĉevaloj frapis sur la feraj reloj.
 
-—Haltu! haltu! — kriis la amaso senĉese kaj kun terura vo-
-
-ĉo. La veturigisto desaltis de sia sidejo, stariĝis, kuntiris per la mano la longajn kondukŝnurojn, kaj per voĉo raŭka de teruro li kriis al la ĉevaloj, ke ili haltu.
+—Haltu! haltu! — kriis la amaso senĉese kaj kun terura voĉo. La veturigisto desaltis de sia sidejo, stariĝis, kuntiris per la mano la longajn kondukŝnurojn, kaj per voĉo raŭka de teruro li kriis al la ĉevaloj, ke ili haltu.
 
 Ili haltis, sed tiam, kiam peza rado kun malgranda frapo jam deŝoviĝis de la brusto de la tere kuŝanta virino.
 
-Kun tomba silento staris la amaso meze de la belega strato; la vizaĝoj, paliĝintaj de teruro, kaj la brustoj malfacile spi-272
-
-MARTA
-
-
-rantaj de ekscitiĝo, kliniĝis super la malhela figuro, kiu simile al senmova makulo kuŝis sur la blanka neĝa sternaĵo.
+Kun tomba silento staris la amaso meze de la belega strato; la vizaĝoj, paliĝintaj de teruro, kaj la brustoj malfacile spirantaj de ekscitiĝo, kliniĝis super la malhela figuro, kiu simile al senmova makulo kuŝis sur la blanka neĝa sternaĵo.
 
 La rado de la grandega veturilo frakasis la bruston de Marta kaj elpelis el ĝi la vivon. ŝia vizaĝo restis netuŝita, kaj per la vitrecaj okuloj ŝi rigardis la stelplenan ĉielon.
-
-
-MARTA
 
 
 www.omnibus.se/

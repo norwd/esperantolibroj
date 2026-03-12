@@ -10,18 +10,10 @@ RADIANTA LOTUSO
 
 J. D. Degreef
 
-RADIANTA LOTUSO
-
 
 P. van de Vijver
 
 Lingve reviziita en 2003
-
-
-@omnibus.se
-
-
-RADIANTA LOTUSO
 
 
 ENHAVO
@@ -29,7 +21,7 @@ ENHAVO
 ENKONDUKO
 
 
-I VOĉO EN LA NOKTO
+I VOĈO EN LA NOKTO
 
 
 II SURPRIZA INTERPAROLO
@@ -38,10 +30,10 @@ II SURPRIZA INTERPAROLO
 III RADIANTA LOTUSO
 
 
-IV PLIAJ MISTERAĵOJ
+IV PLIAJ MISTERAĴOJ
 
 
-V ŝEJKO HUSSEIN EBN AHMED
+V ŜEJKO HUSSEIN EBN AHMED
 
 
 VI SURVOJE AL LA URBO DE MORTO
@@ -50,13 +42,13 @@ VI SURVOJE AL LA URBO DE MORTO
 VII VIVANTO INTER LA MORTINTOJ
 
 
-VIII LA SEKRETO DE LA PARAŝITO
+VIII LA SEKRETO DE LA PARAŜITO
 
 
 IX LA EGIPTA MORTINTOKULTO
 
 
-X MEZE DE ŝTONIINTAJ DOKUMENTOJ
+X MEZE DE ŜTONIINTAJ DOKUMENTOJ
 
 
 XI SENILUZIIGA MALKOVRO
@@ -89,9 +81,6 @@ XIX MISTERA VIZITO
 XX ENIGMA MURDAFERO
 
 
-RADIANTA LOTUSO
-
-
 XXI EN LABIRINTO DE ENIGMOJ
 
 
@@ -122,9 +111,6 @@ XXIX REVIVIINTA
 FINPAROLO
 
 
-RADIANTA LOTUSO
-
-
 ENKONDUKO
 
 George Camphuis vekiĝis tiun matenon en sia blokdomo ĉe la bordo de Sangpo pro forta frapetado sur la pordon. Oscedante li leviĝis de la improvizita lito el ŝafofeloj, bruske komprenigis al sia tibeta servisto, ke lin tedas tiu bombardado kaj komencis rapide sin vesti. Poste li malriglis la pordon kaj enirigis sian serviston
@@ -133,9 +119,7 @@ George Camphuis vekiĝis tiun matenon en sia blokdomo ĉe la bordo de Sangpo pro
 
 Dum la viro pretigis la matenmanĝon, Camphuis eliris kaj perokule sekvis la Sangpo-bordojn. Tre malproksime leviĝis la malvarma, impresa Himalaja montaro kun siaj eterne neĝkovritaj suproj, kiuj nun kaŝiĝis en densaj nebuloj, kiuj kiel malsekecaj vatoj pendis de la grizaĉa ĉielo.
 
-Antaŭ li kuŝis la fruktodona Sangpo-valo, ĉarma kaj ekzotika kiel malmultaj aliaj regionoj de la tero. La pen-trindan belecon de la sovaĝa pejzago eĉ pligrandigis granda nombro da tendoj, kiuj ĝis malproksime en la ĉirkaŭo estis dismetitaj flanke de la bordoj. Ilin ĉiujn ornamis ruĝaj kaj verdaj flagrubandoj, pentrumitaj per la ses misteraj literoj de la tibeta preĝo: ”Om mani padme 5
-
-RADIANTA LOTUSO
+Antaŭ li kuŝis la fruktodona Sangpo-valo, ĉarma kaj ekzotika kiel malmultaj aliaj regionoj de la tero. La pen-trindan belecon de la sovaĝa pejzago eĉ pligrandigis granda nombro da tendoj, kiuj ĝis malproksime en la ĉirkaŭo estis dismetitaj flanke de la bordoj. Ilin ĉiujn ornamis ruĝaj kaj verdaj flagrubandoj, pentrumitaj per la ses misteraj literoj de la tibeta preĝo: ”Om mani padme
 
 
 hum”. En la vasta tendaro jam regis en ĉi tiu frua horo intensa vigleco kaj longaj vicoj da tibetanoj, fervore svingante siajn preĝturnilojn, iris al la Sangpo-bordoj por fari sian matenpreĝon.
@@ -146,9 +130,7 @@ Nur ĵus finstudinte en Delft kiel hidraŭlika inĝeniero, li estis invitita de 
 
 Li sin demandis, kial oni ĉi tiun sendube tre gravan taskon ne konfidis al pli sperta inĝeniero kaj kial oni elektis nepre nederlandanon, kiu rilate al irigaciado en montaj regionoj ja povas esti nur malmulte kompeten-ta. ĉi tiuj demandoj, al kiuj li ne povis trovi kontentigajn respondojn, komence vekis en Camphuis malfidon al la komisio, sed la belga entreprenisto forigis lian suspekton.
 
-La tibetan registaron rilate al la elekto de inĝeniero preskaŭ ekskluzive gvidis politika singardemo. i konsideris la ĉeeston de nederlandano, apartenanta al pacema nacio, ne tiel danĝera por la trankvilo de Tibeto, kiel 6
-
-RADIANTA LOTUSO
+La tibetan registaron rilate al la elekto de inĝeniero preskaŭ ekskluzive gvidis politika singardemo. i konsideris la ĉeeston de nederlandano, apartenanta al pacema nacio, ne tiel danĝera por la trankvilo de Tibeto, kiel
 
 
 la restadon de anglo aŭ franco, de kiuj oni timis nedeziratan intereson pri tibetaj aferoj.
@@ -157,9 +139,7 @@ la restadon de anglo aŭ franco, de kiuj oni timis nedeziratan intereson pri tib
 
 En la Dzjilipla-montpasejo lin atendis deko da armitaj tibetanoj, kiu lin post dudektaga irado kondukis al la fonto de Sangpo, la rivero, al kiu granda parto de la lando ŝuldas sian fekundecon.
 
-George Camphuis ne baldaŭ forgesos tiun vojaĝon. i lndukis tra la plej dezerta parto de Tibeto, senviva, izolita kaj senkolora regiono de malgajiga monotoneco kaj de timiga aspekto, kiun nur kelkloke plivigligis la helkoloraj muroj de grandaj lamao-monaęjoj. La gvidanto de la eskorto, tibeta mona˛o, kiu iom scipovis la francan lingvon, plenzorge evitis la malmultajn urbojn en la valo. La viro estis ne tre parolema kaj ne antaŭ ol 7
-
-RADIANTA LOTUSO
+George Camphuis ne baldaŭ forgesos tiun vojaĝon. i lndukis tra la plej dezerta parto de Tibeto, senviva, izolita kaj senkolora regiono de malgajiga monotoneco kaj de timiga aspekto, kiun nur kelkloke plivigligis la helkoloraj muroj de grandaj lamao-monaęjoj. La gvidanto de la eskorto, tibeta mona˛o, kiu iom scipovis la francan lingvon, plenzorge evitis la malmultajn urbojn en la valo. La viro estis ne tre parolema kaj ne antaŭ ol
 
 
 ili atingis sian celon li lasis sian nekonfidenceman teniĝon.
@@ -171,9 +151,6 @@ La laboro en ok monatoj pretiĝis kaj ĝia plenumo plene kontentigis Camphuis. L
 Restinte ok monatojn en Tibeto, li pro tio pri la mistera lando nur eksciis, ke la popolo posedas profundan religian senton kaj ke ĝi havas senliman respekton por la pastroj, kiuj samtempe estas ĝiaj ekleziaj kaj civilaj mastroj. Longan tempon Camphuis timis, ke ĉi tiu eta scio pri Tibeto restos la nura, kiun li kunportos al Nederlando, sed, pruviĝis, ke pri tio li eraris.
 
 
-RADIANTA LOTUSO
-
-
 Semajnon antaŭ la pretiĝo de la laboro, la tendaron neatendite vizitis lamao el la Tasji-Lunpo monaęjo, kiu nome de Dalai-lamao, reganto kaj ĉefpastro de Tibeto, lin invitis al Lhasa, la sankta ĉefurbo de la lando. ĉi tiu invito forte surprizis Camphuis. Li sciis, ke la reganto neniam sin montras al okcidentulo kaj eĉ en siaj plej ku-raĝaj revoj li ne imagis iam esti akceptata de li.
 
 Nun tamen la tempo de foriro alvenis. La antaŭan vesperon estis alveninta en la tendaron armita eskorto, kiu al li malfermos la kaŝitajn kaj bone ŝlositajn pordegojn de la sankta Lhasa. Tie li staros vidalvide al viro, kiun oni konsideris la plej nova reenkarniĝo de Budao kaj kiun piaj tibetaj legendoj prilumas per preskaŭ supertera brilo.
@@ -181,20 +158,15 @@ Nun tamen la tempo de foriro alvenis. La antaŭan vesperon estis alveninta en la
 Scivoleme sin demandante, kio en Lhasa lin atendas, la inĝeniero ankoraŭ unu fojon levis la okulojn al la po-tencaj Himalajo-suproj. ĉi tiun impreson de la regiono, kie li ok monatojn kiel soleca ekzilito vivis, li kaŝis profunde en la koron kaj konvinkita, ke ĉi kune finiĝis unu el la plej belaj periodoj de lia vivo, li reiris al la blokdomo kaj komencis sin prepari al la forvojaĝo.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O I
 
-VOĉO EN LA NOKTO
+VOĈO EN LA NOKTO
 
 Lhasa, la centro de la mistika pensado kaj revado de la tibetanoj kaj la ĉefa fokuso de ilia spirita vivo, ŝuldas sian famon pri sankteco, precipe al Potala, grandega monaęjo, samtempe fortikaĵo kaj palaco de Dalai-lamao, ĉefpastro de la lamaismo. En li ĉiam denove re-naskiĝas Budao, kies doktrinoj, miksitaj kun tiuj de la praantikva naturreligio ”Bon” jam multajn jarcentojn tenis la tibetajn mensojn en la sorĉo de la azia mistikis-mo.
 
 Dek sep tagojn post sia forvojaĝo de la Sangpo-bordo, Camphuis salutis la sanktan urbon kun ekkrio de admiro. La grandegan amason da terkabanoj, kies mizere-co kaj kadukeco multe superis la okcidentan imagon, li tute ne atentis. Liajn okulojn forte ĉarmis vasta vico da konstruaĵoj el blankaj montŝtonoj, kiuj superregis la tutan ĉirkaŭaĵon kaj kies brila blanko tiel akre konturiĝis kontraŭ la griza rokmontaro, ke al Camphuis dum momento sentis, kvazaŭ li vidus grandegan pentraĵon, maj-stramane pentritan sur la ebenan montdeklivon.
 
-Kun profunda ĝemo li sin liberigis de la preme gran-dioza aspekto kaj senparole pro admiro alrigardis la 10
-
-RADIANTA LOTUSO
+Kun profunda ĝemo li sin liberigis de la preme gran-dioza aspekto kaj senparole pro admiro alrigardis la
 
 
 gvidanton de la eskorto. Kvazaŭ ĉi tiu komprenis kio en li fariĝis, li humiliĝe faris al li klarigon.
@@ -209,14 +181,10 @@ Camphuis esperis, ke la vojo al Potala lndukos tra la loĝata parto de Lhasa, se
 
 Kiam la pordego estis malfermita, la inĝenieron bonvenigis trio da lamaoj, kiuj silente antaŭ li riverencis.
 
-Unu el ili antaŭiris lin al kortmuro, kies pordego ĉe ilia 11
-
-RADIANTA LOTUSO
+Unu el ili antaŭiris lin al kortmuro, kies pordego ĉe ilia
 
 
-alproksimiĝo tuj malfermiĝis. Neniun vorton oni al li diris kaj iom konfuzita pro tiu pantomimo, li kvazaŭ aŭ-
-
-tomate sekvis sian gvidanton.
+alproksimiĝo tuj malfermiĝis. Neniun vorton oni al li diris kaj iom konfuzita pro tiu pantomimo, li kvazaŭ aŭtomate sekvis sian gvidanton.
 
 La mona˛o trairis korton kaj poste lin antaŭiris al malalta ŝtona konstruaĵo, kiu per larĝa koridoro estis dividita en du partojn. Pendis duonlumo en la koridoro, sed malgraŭ tio ĝi sufiĉis al la inĝeniero por konstati, ke la maldekstra muro ne havas pordojn. Brustalte, kun interspacoj de ĉirkaŭ du metroj, troviĝis tamen aperturoj, kiuj estis iom pli grandaj ol leterkesta aperturo.
 
@@ -227,9 +195,6 @@ La lamao ĝismeze eniris la koridoron kaj flankenŝovis unu el ĉi tiuj kurtenoj
 Pendis tiel abomena fetoro en la konstruaĵo, ke li rapide devis bruligi cigaredon por ne vomemiĝi.
 
 La akcepto kaj la restadejo subite tiel seniluziigis Camphuis, ke li malbonhumore sin turnis al la lamao por informoj.
-
-
-RADIANTA LOTUSO
 
 
 ”ĉu ĉi tio estas malliberejo, sinjoro?” li demandis akravoĉe.
@@ -251,9 +216,6 @@ Kelkajn minutojn poste kelkaj soldatoj venis en la ĉambron. Ili alportis la kof
 Kiam ili estis foririntaj, venis la lamao.
 
 
-RADIANTA LOTUSO
-
-
 ”Sinjoro, en Lhasa oni ne mortigas bestojn; ni do ne povas al vi prezenti viandon por via vespermanĝo,” li komencis.
 
 Camphuis jam estis elpakanta la korbon. Krom konservaĵoj kaj kukaĵo ĝi enhavis kelkajn botelojn da vino kaj cigaredojn, la samajn manĝaĵojn kaj guaĵojn, kiujn li ĉe Sangpo ricevis el la Tasji-Lunpo monaęjo kaj kiujn oni laŭ ordono de Dalai-lamao ekskluzive por lia uzo alportis el Brita Hindujo.
@@ -273,31 +235,20 @@ Post la akiritaj spertoj ĉe sia eniro, la inĝeniero ne miris pri tio kaj verdi
 ”Nu, ĉu mia gardisto, amiko?” li demandis mirigite.
 
 
-RADIANTA LOTUSO
-
-
 La tibetano ne respondis kaj lia vizaĝo eĉ ne montris, ĉu li komprenis la demandon. Camphuis incitite eliris el la koridoro kaj eniris en la korton. La soldato lin sekvis
 
 ĝis la elirejo kaj tie restis senmove staranta por observi la inĝenieron.
 
-”ĉi tie oni havas strangan ideon pri gastamo,” grumblis Camphuis nekontente, sed komprenante, ke estas plej bone rezignacii pri la faktoj, li klopodis forgesi la ĉeeston de sia gardisto kaj, malrapide promenante, in-spektis la korton kaj la altajn Potalamurojn. ĉie li vidis multkolorajn flagojn kaj flagrubandojn, kiuj ĉiuj surha-vis la ses literojn de ”Om mani padme hum”, la tibeta pre-
-
-ĝo, kiun uzas la sorĉistoj kiel ekzorcaĵon kaj kiu super-regas la tutan tibetan kulturon. En la korto plaŭdetis artefarita rivereto, kiu movis akvoradon, sur kiu estis fiksita grandega preĝocilindro.
+”ĉi tie oni havas strangan ideon pri gastamo,” grumblis Camphuis nekontente, sed komprenante, ke estas plej bone rezignacii pri la faktoj, li klopodis forgesi la ĉeeston de sia gardisto kaj, malrapide promenante, in-spektis la korton kaj la altajn Potalamurojn. ĉie li vidis multkolorajn flagojn kaj flagrubandojn, kiuj ĉiuj surha-vis la ses literojn de ”Om mani padme hum”, la tibeta preĝo, kiun uzas la sorĉistoj kiel ekzorcaĵon kaj kiu super-regas la tutan tibetan kulturon. En la korto plaŭdetis artefarita rivereto, kiu movis akvoradon, sur kiu estis fiksita grandega preĝocilindro.
 
 ĉi tiuj cilindroj, da kiuj Camphuis ĉe Sangpo vidis milojn, enhavas milionojn da tolstrioj, ĉiuj surhavantaj la ses preĝliterojn. La tibetanoj kredas, ke la preĝo ĉe ĉiu turniĝo de la rado same tiom da milionoj da fojoj leviĝas antaŭ la tronon de Budao, per kio ili do genie meąni-kigis la preĝadon.
 
-La inĝeniero ridetis pro ĉi tiu naiva fido al la ĉielo kaj kelkfoje rondpromeninte en la korto li reeniris la Domon de la Sekreta Vivo kaj pretigis al si manĝon. Manĝ-
-
-inte li ankoraŭ kelkajn horojn legis ĉe la malabunda 15
-
-RADIANTA LOTUSO
+La inĝeniero ridetis pro ĉi tiu naiva fido al la ĉielo kaj kelkfoje rondpromeninte en la korto li reeniris la Domon de la Sekreta Vivo kaj pretigis al si manĝon. Manĝinte li ankoraŭ kelkajn horojn legis ĉe la malabunda
 
 
 lumo de oleolampo. Neniu sin montris; en la konstruaĵo ĉio restis morte silenta kaj de eksterdome nur penetris al li la flirtsono de centoj da preĝoflagetoj, kiu lin impresis kiel flugilbatado.
 
-Laca pro la malregula vivo de la lastaj semajnoj, li fine decidis surlitiĝi. Malmultajn minutojn poste li senkon-sciiĝis en profunda sensonĝa dormo, el kiu li nur ĉirkaŭ la mateno iom timigite vekiĝis. Li opiniis, ke raŭka kriado lin vekis kaj dormebrie li sidiĝis. La malhela lumo de la naskiĝanta tago ankoraŭ ne estis sufiĉe forta por forpeli la malhelajn ombrojn en la ĉambro, sed ĝi tamen ebligis al li konstati, ke li estas sola. Opiniante, ke li son-
-
-ĝis, li denove kuŝiĝis kaj fermis la okulojn. Subite li tamen duafoje eksidiĝis.
+Laca pro la malregula vivo de la lastaj semajnoj, li fine decidis surlitiĝi. Malmultajn minutojn poste li senkon-sciiĝis en profunda sensonĝa dormo, el kiu li nur ĉirkaŭ la mateno iom timigite vekiĝis. Li opiniis, ke raŭka kriado lin vekis kaj dormebrie li sidiĝis. La malhela lumo de la naskiĝanta tago ankoraŭ ne estis sufiĉe forta por forpeli la malhelajn ombrojn en la ĉambro, sed ĝi tamen ebligis al li konstati, ke li estas sola. Opiniante, ke li sonĝis, li denove kuŝiĝis kaj fermis la okulojn. Subite li tamen duafoje eksidiĝis.
 
 Raŭka, longspira krio malvarmigis lian sangon pro timego; konsternite Camphuis fiksrigardis al la kurteno antaŭ la enirejo, atendante ies eniron. Venis tamen neniu, sed subite sonis al li en la orelojn kruda voĉo.
 
@@ -305,27 +256,17 @@ Raŭka, longspira krio malvarmigis lian sangon pro timego; konsternite Camphuis 
 
 Camphuis salte delitiĝis. Li kuris al la koridoro kaj levis la kurtenon. La gardisto en la koridoro esplore rigardis lin, kvazaŭ li timus, ke la fremdulo intencas malbonon.
 
-”ĉu vi min vekis per tiu laŭta kriado?” kolere demandis Camphuis angle. Kiam li ne ricevis respondon, li ri-16
-
-RADIANTA LOTUSO
-
-
-petis la demandon france, sed ankaŭ nun la tibetano restis muta.
+”ĉu vi min vekis per tiu laŭta kriado?” kolere demandis Camphuis angle. Kiam li ne ricevis respondon, li ripetis la demandon france, sed ankaŭ nun la tibetano restis muta.
 
 ”ĉu ankoraŭ pliaj homoj estas tie ĉi?” subite daŭrigis la inĝeniero.
 
 La gardisto tamen ne respondis kaj esplore rigardinte dekstren kaj maldekstren, Camphuis incitite, levante la ŝultrojn, reeniris la ĉambron. Sur la lito li meditis. En Tibeto li ankoraŭ ne estis aŭdinta alian fremdan lingvon ol la francan; la lamao, kun kiu li ĉe Sangpo kunlaboris, rakontis al li, ke la mona˛oj ne estas instruitaj pri alia lingvo.
 
-Camphuis denove komencis al si demandi ĉu li son-
-
-ĝis, sed fine li rezignis kaj fermis la okulojn. Nenio plu nun interrompis lian dormon kaj kiam li ĉirkaŭ la oka horo vekiĝis, li tuj delitiĝis. Sin vestinte kaj manĝinte, li iris al la korto kaj tie promenis tutan horon. Neniu montriĝis krom la gardisto, kiu sekvis ĉiujn liajn movojn kaj kiu evidente nur havis intereson por li.
+Camphuis denove komencis al si demandi ĉu li sonĝis, sed fine li rezignis kaj fermis la okulojn. Nenio plu nun interrompis lian dormon kaj kiam li ĉirkaŭ la oka horo vekiĝis, li tuj delitiĝis. Sin vestinte kaj manĝinte, li iris al la korto kaj tie promenis tutan horon. Neniu montriĝis krom la gardisto, kiu sekvis ĉiujn liajn movojn kaj kiu evidente nur havis intereson por li.
 
 Malpacience kaj tedite la inĝeniero iris tien kaj reen, senĉese pensante pri tiu stranga, raŭka voĉo, kiu, nun li klare ĝin memoris, neneigeble havis anglan akcenton.
 
 ”Al Erment, tagvojaĝon sude de Thebe,” li ripetis mi-nimume centfoje. Kion fakte signifas tiuj vortoj? Kiu en Tibeto tiel ekzakte konas la egiptan topografion, ke li eĉ konas la lokan situadon? . . .
-
-
-RADIANTA LOTUSO
 
 
 Apero de la lamao, kiu la antaŭan posttagmezon lin akceptis, faris finon al lia meditado. La mona˛o lin salutis per malprofunda kapklino, kiun la inĝeniero sam-maniere respondis.
@@ -342,21 +283,11 @@ La mona˛o trairis la korton kaj frapis sur malgrandan pordon, kiu tuj malfermi�
 
 Kelkaj kaŭrantaj lamaoj eĉ ne ekrigardis, kiam ili preterpasis, kvankam Camphuis laŭtvoĉe ilin salutis. Lia gvidanto lin antaŭiris tra kelkaj koridoroj kaj poste eniris en vastan salonon. Laŭlonge de la muroj kaŭre sidis mo-na˛oj, enprofundiĝintaj en reva ripozo. Neniu lin rigardis aŭ eĉ vorton diris kaj la solenigan silenton nur interrompis la kavernsonaj paŝoj.
 
-La lamao iris al peza kurteno kaj ĉi tiun levinte, li res-pekte surgenuiĝis. La inĝeniero volis lin sekvi, tamen unu el la mona˛oj, kiu sidis flanke de la kurteno, subi-18
+La lamao iris al peza kurteno kaj ĉi tiun levinte, li res-pekte surgenuiĝis. La inĝeniero volis lin sekvi, tamen unu el la mona˛oj, kiu sidis flanke de la kurteno, subite kvazaŭ elteriĝis kaj geste al li komprenigis, ke li atendu.
 
-RADIANTA LOTUSO
-
-
-te kvazaŭ elteriĝis kaj geste al li komprenigis, ke li atendu.
-
-Kun ekscitita malpacieno li staris, ĝis kiam post kelkaj momentoj sonis mallaŭta gongbato. La kurteno levi-
-
-ĝis por li kaj, kiam li laŭ signo de sia gvidanto estis en-irinta, denove malleviĝis. Li troviĝis en granda ĉambro kun altaj fenestroj, en kiu antaŭ unu el la muroj estis konstruita estrado, sur kiu sidis kelkaj mona˛oj. Eĉ ne momenton hezitante, Camphuis trapasis la ĉambron ĝis tuj antaŭ la estrado, profunde kliniĝis kaj poste senĝene levis la okulojn.
+Kun ekscitita malpacieno li staris, ĝis kiam post kelkaj momentoj sonis mallaŭta gongbato. La kurteno leviĝis por li kaj, kiam li laŭ signo de sia gvidanto estis en-irinta, denove malleviĝis. Li troviĝis en granda ĉambro kun altaj fenestroj, en kiu antaŭ unu el la muroj estis konstruita estrado, sur kiu sidis kelkaj mona˛oj. Eĉ ne momenton hezitante, Camphuis trapasis la ĉambron ĝis tuj antaŭ la estrado, profunde kliniĝis kaj poste senĝene levis la okulojn.
 
 Antaŭ li kaŭris sur tre valoraj, nigraj ŝafofeloj, senmova kiel Budao-statuo, Dalai-lamao, la sankta reganto de Tibeto.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O I I
@@ -369,9 +300,7 @@ La reganto havis larĝan fortan staturon, iom korpu-lentan. Lia vizaĝo estis pa
 
 Malantaŭ li kaŭris, same senmovaj kiel la majesta reganto, kvar mona˛oj, kies rigardoj kun vigla intereso estis direktitaj al la inĝeniero. Nur kiam Camphuis, ekscitita de stranga rezinodoro, aŭdigis modestan tuseton, la ŝtoniĝinta vizaĝo de Dalai-lamao ŝajne reviviĝis; li levis la okulojn. La movo estis tiel incite malrapida kaj senenergia, ke ĝi subite pensigis la inĝenieron pri meą-
 
-nika pupo. Nur la okulesprimo de la reganto divenigis 20
-
-RADIANTA LOTUSO
+nika pupo. Nur la okulesprimo de la reganto divenigis
 
 
 mongolan devenon; la vizaĝo povus aparteni al okcidentano.
@@ -393,9 +322,6 @@ El paro da malhelaj, viglaj okuloj la inĝeniero kaptis rapidan rigardon kaj pos
 Dalai-lamao momenton paŭzis kaj evidente distrite li ekludis per la fingroj.
 
 ”ĉu vi kontraŭus entrepreni vojaĝon, malproksiman vojaĝon por mi?” li subite daŭrigis.
-
-
-RADIANTA LOTUSO
 
 
 ”Ne, mi tute ne kontraŭus, sinjoro,” respondis Camphuis altgrade surprizita.
@@ -421,9 +347,6 @@ La inĝeniero lin rigardis kvazaŭ li opiniis, ke la reganto de Tibeto estas ĉi
 ”Kaj ĉu vi estas preta iri por ni al Egipto kaj tie fari esploron?”
 
 
-RADIANTA LOTUSO
-
-
 ”Certe jes, sinjoro, kun plezuro,” respondis Camphuis surprizite.
 
 Dalai-lamao levis la manon kaj frapetis per fingro-ungo sur grandan metalan globon, kio aŭdigis kantecan sonadon. Unu el la aliaj lamaoj post tio ekstaris, surgenuiĝis kaj transdonis paperrulon al la reganto.
@@ -441,9 +364,6 @@ Per kelkaj vortoj Camphuis al li klarigis la diferencon.
 ”ĉu vi eble povas al mi diri la signifon de tiuj ĉi folioj?” demandis Dalai-lamao, kiu atente estis aŭskultinta.
 
 
-RADIANTA LOTUSO
-
-
 La inĝeniero de li transprenis la paperrulon kaj singarde malvolvis tri foliojn, kiujn li tuj rekonis papirusoj, la folia ŝelo de kano, kiun la antikvaj egiptanoj uzis kiel skribpaperon. Camphuis estis akirinta el la verkoj de sia patro grandan scion pri la egipta antikveco kaj post rapida esploro de la papirusoj li tuj konstatis, ke la folioj estas tre malnovaj kaj ke du el ili estas hieroglife surskribitaj.
 
 ĉion rapide tralegante la inĝeniero spertis unu miron post alia. De kie devenis tiuj papirusoj? ĉu eble ŝtelitaj el muzeo? Kiel ili fariĝis posedaĵo de la reganto de Tibeto kaj pro kio tiuj folioj povas interesi lin? Camphuis tiel longe meditis pri tio, ke Dalai-lamao per mallonga gesto konigis sian malpaciencon, pro kio la inĝeniero rapide levis la okulojn.
@@ -452,9 +372,7 @@ La inĝeniero de li transprenis la paperrulon kaj singarde malvolvis tri foliojn
 
 ”Kio estas Mortintolibro?” rapide lin interrompis Dalai-lamao.
 
-”Mortintolibro, kiun la antikvaj egiptanoj ankaŭ nomis ”Libro de la eliro en la Tagon,” antaŭe estis kolekto da sanktaj tekstoj kaj preskriboj kiel la mortinto kon-dutu dum sia irado tra Amenti, la subtera mondo, sinjoro,” klarigis Camphuis. ”i enhavis la paroladojn, kiujn li devos fari al la dioj kaj plie la ekzorcformulojn, per 24
-
-RADIANTA LOTUSO
+”Mortintolibro, kiun la antikvaj egiptanoj ankaŭ nomis ”Libro de la eliro en la Tagon,” antaŭe estis kolekto da sanktaj tekstoj kaj preskriboj kiel la mortinto kon-dutu dum sia irado tra Amenti, la subtera mondo, sinjoro,” klarigis Camphuis. ”i enhavis la paroladojn, kiujn li devos fari al la dioj kaj plie la ekzorcformulojn, per
 
 
 kiuj li povos venki la malamikajn potencojn kaj malbo-najn spiritojn. Oni ĝin kundonis al la mortinto en lia lasta ripozejo, kaŝita inter la bendoj, en kiujn oni volvis lin post la enbalzamigo.”
@@ -476,9 +394,6 @@ Dalai-lamao al li kapklinis komprenante.
 ”Bone, reiru do al la Domo de la Sekreta Vivo kaj avertu la gardiston, kiam vi pretigis la tradukon,” li petis.
 
 
-RADIANTA LOTUSO
-
-
 La inĝeniero riverencis kaj unu el la lamaoj al li faris signon, ke li lin sekvu. Lia gvidanto lin rekondukis al lia restadejo kaj ne dirinte vorton lasis lin sola.
 
 Antaŭ ol Camphuis eklaboris, li kelkan tempon trapasis la ĉambron por ordigi siajn pensojn. La multaj demandoj, kiujn li al si faris en la ĉeesto de Dalai-lamao, eĉ ne unu momenton lasis lin trankvila, sed ju pli longe li serĉis la respondon, des pli li konvinkiĝis, ke lia serĉa-do estas vana. Unu fakto tamen estis al li absolute certa. Estis nepre ne hazarde, ke oni elektis lin por la plenumo de la Sangpo-laboroj; male, oni intence lin invitis por tiu komisio, ĉar oni supozis, ke li, estante filo de egiptologo, pli-malpli havas scion pri la egipta antikveco.
@@ -490,14 +405,9 @@ Sed per kies interveno oni atentigis la Dalai-lamaon al li, sensignifa inĝenier
 Ekpenso subite ĉesigis lian maltrankvilan promenadon. ĉu eble la tria papiruso povus klarigi la kaŭzon de la intereso, kiun Dalai-lamao sentas por la egipta antikveco?
 
 
-RADIANTA LOTUSO
-
-
 Camphuis prenis kelkajn paperfoliojn el sia kofro kaj uzante la kovrilon kiel tabloplataĵon, li sidiĝis sur ŝafo-felon kaj komencis pristudi la skribosignojn. Forpasis ne malpli ol du horoj antaŭ ol li estis transiginta la kripli-gitajn figurojn al la originalaj hieroglifoj, sed kun tio la plej malfacila laboro jam estis farita.
 
-La efektiva tradukado bone prosperis al li kaj kun ĝe-mo de kontento li line formetis la krajonon kaj duonlaŭ-
-
-te legis al si la skribitaĵon.
+La efektiva tradukado bone prosperis al li kaj kun ĝe-mo de kontento li line formetis la krajonon kaj duonlaŭte legis al si la skribitaĵon.
 
 Je la 25-a de Paophi de la sesa jaro de la regado de reĝino Menephta, la altdevena zorgantino de Peraä de Egipto,
 
@@ -510,9 +420,6 @@ Konforme al la ordono de la Urma, ’Radianta Lotuso’ estas transportita al ka
 ĉi tie la manuskripto ĉesis kaj kun bedaŭro Camphuis devis al si konfesi, ke la enhavo ne multon al li diris.
 
 
-RADIANTA LOTUSO
-
-
 Male, la papiruso konjektigis novan sekreton: la sekreton de ’Radianta Lotuso’. Liaj okuloj fiksiĝis sur la aldono de ĉi tiu stranga esprimo: ”kies brilo egalas tiun de la tago.”
 
 ”Juvelo, sendube malofta diamanto tre valora,” surprizite lasis Camphuis al si elgliti el la buŝo. Li bedaŭris la nekompletecon de la manuskripto kaj komprenis, ke devas ekzisti ankoraŭ dua papiruso, kiu ĝmpletigas.
@@ -520,12 +427,8 @@ Male, la papiruso konjektigis novan sekreton: la sekreton de ’Radianta Lotuso�
 Subite li iĝis scivola pri la demando, ĉu lia vojaĝo al Egipto rilatus kun tiu ĉi sekreto. Li ekscitite ekstaris kaj avertis la gardiston. La viro tuj kondukis lin al Polala, kie li estis kondukita de lamao al la aŭdiencejo. Longa tempo pasis antaŭ ol li estis allasita al Dalai-lamao kaj lia malpacienco kreskis ĉiuminute. Fine tamen lia orelo kaptis mallaŭtan gongobaton kaj post signo de sia gvidanto li levis la kurtenon kaj eniris.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O I I I
 
-RADIANTA LOTUSO
 
 La inĝeniero trovis la reganton de Tibeto en la sama teniĝo kiel li forlasis lin, kio igis lin dubi ĉu li en tiu tempo moviĝis. Lia riverenco estis respondata per malprofunda kapklineto kaj tuj Dalai-lamao komencis pridemandi lin.
 
@@ -543,9 +446,7 @@ Camphuis plenumis lian deziron kaj kiam li finis, la Lamao kapneis.
 
 ”La enhavon mi ja povas klarigi al vi, sed rilate la ce-teron mi devas min limigi al konjektoj, sinjoro,” respondis la inĝeniero kaj rigardante la papiruson li daŭrigis:
 
-”Paraŝito en la antikva Egipto devis malfermi la ka-davrojn, el kiuj li antaŭ la enbalzamigo devis forigi la koron kaj la intestojn. La paraŝito, kiu ĉi tie nomiĝas 29
-
-RADIANTA LOTUSO
+”Paraŝito en la antikva Egipto devis malfermi la ka-davrojn, el kiuj li antaŭ la enbalzamigo devis forigi la koron kaj la intestojn. La paraŝito, kiu ĉi tie nomiĝas
 
 
 Noeme, laboris en la Seti-domo, seminario por pastroj kaj kuracistoj, kiu troviĝis en la Nekropolo, la mortintejo de Thebe. Laŭ ĉi tiu manuskripto tiu paraŝito promesis transporti objekton, kiu nomiĝis ’Radianta Lotuso’, al la tombo de iu faraono. Poste li ŝajne bedaŭris tiun promeson. Mi konjektas, ke ĉi tie temis pri malpermesita ago kaj ke tial li petis al la ĉefpastro sendevigon. La manuskripto diras, ke ĉi tiu sendevigo efektive estis donita, nome la 25-an de Paophi de la sesa regojaro de reĝi-no Menephta, kiu regis kelkajn jarmilojn antaŭ la kris-tana erao. Nur pri tio la papiruso nin informas,” finis Camphuis.
@@ -559,9 +460,6 @@ Noeme, laboris en la Seti-domo, seminario por pastroj kaj kuracistoj, kiu trovi�
 ”La lotuso estis sankta floro, kiu troviĝis ĉe la bordoj de Nilo,” klarigis Camphuis.
 
 ”Kaj kion laŭ via opinio la aŭtoro de tiu ĉi folio indikis per ’Radianta Lotuso’?” demandis Dalai-lamao per voĉo, kiu klare montris streĉitecon.
-
-
-RADIANTA LOTUSO
 
 
 ”Kun certeco mi kompreneble kuraĝas nenion aserti, sed mi konjektas, ke ’Radianta Lotuso’ estas tre tre valora juvelo, sinjoro,” respondis la inĝeniero.
@@ -582,29 +480,20 @@ Kvankam li por si dezirus akompananton pli agrablan ol lamao, Camphuis senhezite
 
 ”Mi do klare al vi priskribos la komision. sinjoro,”
 
-daŭrigis Dalai-lamao. ”Vi por ni devas serĉi ’Radiantan Lotuson’ kaj por tio vi unue kontaktiĝu kun la viro, kiu posedas la duan papiruson. Vi klopodu ĝin aĉeti de li kaj por tio vi povos pagi ĉiun prezon, kiun li postulos. Kiam 31
-
-RADIANTA LOTUSO
+daŭrigis Dalai-lamao. ”Vi por ni devas serĉi ’Radiantan Lotuson’ kaj por tio vi unue kontaktiĝu kun la viro, kiu posedas la duan papiruson. Vi klopodu ĝin aĉeti de li kaj por tio vi povos pagi ĉiun prezon, kiun li postulos. Kiam
 
 
-vi estos trovinta la juvelon, vi ĝin transdonu al nia frato kaj kun li revojaĝu al Lhasa. Dum la serĉado vi estu kiel eble plej singarda, tiel ke oni la juvelon ne al vi for-
-
-ŝtelu. ’Radianta Lotuso’ estas tre kara al ni kaj ĝia posedo estas por ni nedireble grava. Vi konsideru vian mision kiel sanktan mision kaj pro tio vi nenion preterlasu por
+vi estos trovinta la juvelon, vi ĝin transdonu al nia frato kaj kun li revojaĝu al Lhasa. Dum la serĉado vi estu kiel eble plej singarda, tiel ke oni la juvelon ne al vi forŝtelu. ’Radianta Lotuso’ estas tre kara al ni kaj ĝia posedo estas por ni nedireble grava. Vi konsideru vian mision kiel sanktan mision kaj pro tio vi nenion preterlasu por
 
 ĝin sukcesigi. ĉi tio estas la komisio, sinjoro kaj nun al mi diru viajn kondiĉojn,” finis la reganto.
 
 Por tio Camphuis ne bezonis multajn vortojn.
 
-”Por la plenumo de via komisio mi proponas la saman salajron kiel tiu, per kiu oni rekompencis mian laboron ĉe Sangpo, do cent kvindek sterlingajn funtojn pomona-te, sinjoro. Se mi sukcesos trovi la juvelon kaj ĝin transporti al Lhasa, mi permesus al mi pretendi ekstran rekompencon, kies sumon vi fiksu laŭ via bontrovo. ĉiuj elspezoj, ankaŭ tiuj por la ekipo de tropika vojaĝo, ŝar-
-
-ĝos la konton de la tibeta regno. Aliajn kondiĉojn mi ne bezonas fari, sinjoro,” finis la inĝeniero la mallongan resumon.
+”Por la plenumo de via komisio mi proponas la saman salajron kiel tiu, per kiu oni rekompencis mian laboron ĉe Sangpo, do cent kvindek sterlingajn funtojn pomona-te, sinjoro. Se mi sukcesos trovi la juvelon kaj ĝin transporti al Lhasa, mi permesus al mi pretendi ekstran rekompencon, kies sumon vi fiksu laŭ via bontrovo. ĉiuj elspezoj, ankaŭ tiuj por la ekipo de tropika vojaĝo, ŝarĝos la konton de la tibeta regno. Aliajn kondiĉojn mi ne bezonas fari, sinjoro,” finis la inĝeniero la mallongan resumon.
 
 ”Bone, viaj postuloj ŝajnas al ni justaj,” afable konsentis Dalai-lamao. ”ĉiujn plurajn detalojn vi povas aranĝi kun Tasji-lamao de la Tasji-Lunpo monaęjo. ĉu vi mem eble ankoraŭ volas ion demandi?”
 
 ”Sinjoro, vi ankoraŭ ne donis al mi la adreson de la viro, kiu posedas la duan papiruson,” memorigis Camphuis al la reganto.
-
-
-RADIANTA LOTUSO
 
 
 ĉi tiu etendis la manon al malgranda kajereto kun nigra papera kovrilo. La inĝeniero iom surprizite konstatis, ke ĝi estas malmultekosta eŭropa notlibreto. Dalai-lamao kelktempe ĝin foliumis kaj ĝin tenis antaŭ Camphuis. ĉi tiu volis ĝin transpreni, sed la alia, je lia mirego, kun akratona ”ne” rapidmove retiris la manon.
@@ -618,12 +507,9 @@ Kaj poste, kun kvazaŭ ŝtoniĝinta rigardo, li legis la samajn vortojn, kiuj en
 ”Erment, tagvojaĝon sude de Thebe . . . .”
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O I V
 
-PLIAJ MISTERAĵOJ
+PLIAJ MISTERAĴOJ
 
 Camphuis pasigis la lastan nokton en Tibeto en la Na-chung monaęjo, la restadejo de la ĉefa tibeta sorĉisto. Li dormis en malsekeca ĉambro en la ekster-muro de akcesora mona˛inejo, en kiu kelkcentoj da tibetaj mona˛inoj, sub gvido de priorino vivis laŭ kon-templativa vivregulo.
 
@@ -636,9 +522,6 @@ Lia kunulo estis lamao de Potala, nomata Wuangji, viro kun mallonga, masiva stat
 Camphuis esperis, ke li povos konsentigi la lamaon, kiu tre bone parolis france, iom prilumi la misterojn, kiuj lin ĉirkaŭas, sed ĉiu peno, kiun li por tio faris, pruviĝis esti vana. Wuangji donis nur evitajn kaj neajn respondojn kaj pro tio la inĝeniero baldaŭ rezignis siajn pro-vojn por logi la viron al ioma komunikemo kaj agis kvazaŭ la alia ne ekzistus.
 
 
-RADIANTA LOTUSO
-
-
 ĉirkaŭ tagmezo la malgranda karavano proksimiĝis al la landlimo inter Tibeto kaj Sikkem. ĉi tie la estro de la palacgvardio haltigis kaj post mallonga kaj formala adiaŭo, la eskorto reiris kaj la inĝeniero kaj la lamao Wuangji enrajdis en la sovaĝan Dzjilipla-montpasejon.
 
 Camphuis pro oportuneco postlasis sian tutan pakaĵon en Potala. Li intencis aĉeti en Calcutta tropikan ekipaĵon, kiu en tiu sezono por vojaĝo tra la dezerto kaj laŭlonge de Nilo estis nepre nemalhavebla. Poste li volis surŝipiĝi por Kairo, kie li unue prizorgos la kunmeton de taŭga kaj fidinda kunvojaĝantaro, kiu dum la ekskurso povos lin protekti kontraŭ la tute ne imagaj atakoj de multnombraj vagantaj rabistaroj.
@@ -648,9 +531,6 @@ Camphuis estis enrajdinta kelkcentojn da metroj en la Dzjilipla-pasejon, kiam al
 ĝia mezo kuŝis nigregranita ŝtono, kun orumita surskribo, kiu vekis lian scivolon. Farante signon al la lamao por iom atendi, li forlasis la mallarĝan montvojeton kaj deĉevaliĝis.
 
 La surskribo estis angle verkita kaj duonlaŭte la inĝeniero legis la vortojn.
-
-
-RADIANTA LOTUSO
 
 
 In memoriam Edward Pike, anglo; Majoro de la 4a Lancashire Regimento.
@@ -675,9 +555,7 @@ Aperis obstina esprimo en la okuloj de la lamao kaj momenton hezitinte, li respo
 
 ”Ne, pri tio mi same nenion scias,” respondis Wuangji. La inĝeniero estis konvinkita, ke la viro mensogas; lia malkvieto kaj la rapido, per kiu li subite forrajdis, klare pruvis, ke li pri tio scias pli ol li volis kredigi. En kelkaj tagoj Camphuis lernis ne plu miri pri io, kio koncernas tibetanojn kaj kvankam iom malbonhumora, li subpremis sian scivolon kaj silente plurajdis.
 
-Du horojn poste ili atingis karavanstacion, tranokte-jon por vojaĝantoj kaj komercistoj. i estis la komenca stacio de la fervojo Sikkem-Calcutta kaj deponinte la 36
-
-RADIANTA LOTUSO
+Du horojn poste ili atingis karavanstacion, tranokte-jon por vojaĝantoj kaj komercistoj. i estis la komenca stacio de la fervojo Sikkem-Calcutta kaj deponinte la
 
 
 ĉevalojn, Camphuis atendis la vagonaron, kiu ilndukos suden.
@@ -688,29 +566,19 @@ Post sia alveno en Calcutta, Camphuis sndukigis al malgranda eŭropa hotelo. Kom
 
 Tri tagojn poste la inĝeniero kun sia kunulo surŝipiĝis sur la vaporŝipo ”Sirius”, kiu estis destinita por Kairo.
 
-Camphuis travivis multokupan tempon, sed surŝipi-
-
-ĝinte li havis abundan tempon por ripozi kaj mediti.
+Camphuis travivis multokupan tempon, sed surŝipiĝinte li havis abundan tempon por ripozi kaj mediti.
 
 Materialo por pripensi verdire al li ne mankis; aŭtomate unu demando aldoniĝis al alia.
 
 Kiamaniere Dalai-lamao ekposedis dokumenton, kiu antaŭ tri- aŭ kvarmil jaroj troviĝis en egipta tomboĉambro? Kiun profiton li atendas de ’Radianta Lotuso’?”
 
-Monprofiton certe ne, ĉar la grandaj elspezoj de la es-37
-
-RADIANTA LOTUSO
-
-
-ploro probable egalos aŭ eble eĉ superos la valoron de la juvelo. Kial la reganto parolis pri ”sankta” misio? Al kiu mistera historio rilatas ’Radianta Lotuso’?” ĉu tiu historio rilatas kun la nokta voĉo, kiu lin vekis en Potala? Al kiu apartenis tiu voĉo? Kion signifis tiu elkrio: Al Erment, tagvojaĝon sude de Thebe? ĉu ĝi estis instigo aŭ nerekta minaco?
+Monprofiton certe ne, ĉar la grandaj elspezoj de la esploro probable egalos aŭ eble eĉ superos la valoron de la juvelo. Kial la reganto parolis pri ”sankta” misio? Al kiu mistera historio rilatas ’Radianta Lotuso’?” ĉu tiu historio rilatas kun la nokta voĉo, kiu lin vekis en Potala? Al kiu apartenis tiu voĉo? Kion signifis tiu elkrio: Al Erment, tagvojaĝon sude de Thebe? ĉu ĝi estis instigo aŭ nerekta minaco?
 
 Camphuis dum multaj tagoj klopodis trovi la ĉene-rojn, kiuj interligis tiujn ŝajne memstarajn faktojn kaj okazintaĵojn, sed ĉiu lia penado estis vana. Li ja retrovis en sia memoro aferojn, kiuj ĉion eĉ plimisterigis. Ekzemple la malafabla rifuzo de Dalai-lamao enmanigi al li la notlibreton kaj la enigma konduto de lamao Wuangji en la Dzjilipla-montpasejo, kiam li informpetis pri la morto de la angla oficiro.
 
 La inĝeniero ne sukcesis eĉ iom prilumi ĉi tiujn mal-klarajn historiojn. Li nepre estis konvinkita, ke lia kunulo povus doni klarigan respondon al ĉiuj liaj demandoj, tamen li sciis, ke ĉiu provo por ellogi konfidencemon malsukcesus pro la kruda malbonvolo de la tibetano.
 
 Krom tio la lamao sur la ŝipo nenie sin montris. Tuj post la komenco de la marvojaĝo li sin enŝlosis en sia kajuto kaj Camphuis baldaŭ eksciis, ke lia kunulo multe suferas pro marmalsano kaj ne nur rifuzas ĉiun nutraĵon, sed ankaŭ ĉiujn profilaktajn medikamentojn.
-
-
-RADIANTA LOTUSO
 
 
 Viziton de Camphuis li malakceptis ĉe la pordo de sia kajuto kaj post tio la inĝeniero pro neceso rezignis sian intereson pri la stato de la strangulo.
@@ -721,9 +589,7 @@ Tuj kiam la kontinento liberiĝis de la horizonto, Camphuis malsupreniris por ko
 
 Surprizite la inĝeniero restis atendanta, ĉu ankaŭ la lamao montros sin. Meditante, li rememoris nun, ke li la fremdulon jam antaŭe vidis kaj post kelktempa pripensado la afero klariĝis. La viro sendube apartenas al la ŝipanaro, inter kiuj kelkaj ĉinoj estas hejtistoj.
 
-Camphuis amuziĝis, kiam li pensis pri la timplenaj okuloj, per kiuj la ĉino lin rigardis, sed ties ĉeeston en la kajuto de Wuangji li plue ne atentis. Kiam la lamao post 39
-
-RADIANTA LOTUSO
+Camphuis amuziĝis, kiam li pensis pri la timplenaj okuloj, per kiuj la ĉino lin rigardis, sed ties ĉeeston en la kajuto de Wuangji li plue ne atentis. Kiam la lamao post
 
 
 kelkaj minutoj ankoraŭ ne montriĝis, li riskis frapi duafoje. Post mallonga flustrado, kiu antaŭ la pordo estis klare aŭdebla, ĝi denove kiel la unuan fojon fendete malfermiĝis. Wuangji naivokule rigardis la inĝenieron kaj demandis balbutante, kion li deziras.
@@ -735,9 +601,6 @@ La lamao silente al li kapsignis kaj iom indignante pro tiu mistera kondutado, l
 Lia rigardo subite falis sur kaŭrantan figuron, en kiu li je sia miro rekonis la ĉinon, kiun li sur ”Sirius” trovis en la kajuto de Wuangji. Iom pripensinte, li konjektis, ke la ĉino atendas la lamaon kaj ke timemo lin retenas anonci sin en la hotelo. Camphuis decidis averti Wuangji kaj iris al ties ĉambro.
 
 1 altranga mohametana pastro
-
-
-RADIANTA LOTUSO
 
 
 ”Sinjoro, mi konjektas, ke ekstere konatulo vin atendas,” li komencis.
@@ -759,9 +622,6 @@ Li forte konjektis, ke la lamao diris mensogon, ĉar al li ne tre verŝajnis, ke
 La lamao timigite gestis kaj energie kapneis.
 
 
-RADIANTA LOTUSO
-
-
 ”Ne, mi iros al li, ne faru penon,” li konfuzite paroleksplodis, irante al la pordo.
 
 Camphuis lin sekvis ĝis sia propra ĉambro kaj tie ekstaris antaŭ la fenestro. Li vidis Wuangji rapide transiri la straton kaj la ĉinon surprizite ekstari. Ili interŝanĝis kelkajn vortojn kaj subite la nekonato ĵetis flugan rigardon al la fenestroj de la hotelo. Poste Wuangji al li donis iom da mono kaj post kiam ili intersalutis, la ĉino foriris kaj Wuangji reiris en la hotelon.
@@ -774,9 +634,7 @@ lasis Camphuis kolere al si elgliti. Li kelkajn momentojn serĉis pri respondo, 
 
 ”Regalu beduenon kaj li forŝtelos viajn vestojn.”
 
-Kunportu malmulte da ŝanĝmono dum via vojaĝo; donu al la ŝejko nur malgrandan antaŭpagon en kontantoj kaj al li enmanigu ĉekon, kiu nur post via 42
-
-RADIANTA LOTUSO
+Kunportu malmulte da ŝanĝmono dum via vojaĝo; donu al la ŝejko nur malgrandan antaŭpagon en kontantoj kaj al li enmanigu ĉekon, kiu nur post via
 
 
 reveno en Kairo estos pagebla. Estiminda sinjoro kaj amiko, saluton.”
@@ -786,12 +644,9 @@ oja, ĉar li provizore estas liberigita de sia plej granda zorgo, Camphuis avert
 Momenton poste ili estis survoje al Cherchohe, kvartalo, kie la migrantaj beduentriboj starigas siajn tendojn, kiam ili vizitas Kairon. Rapide mallumiĝis kaj sekvante la mahometanon Camphuis ne rigardis dekstren nek maldekstren, tamen, se li estus farinta la penon por turniĝi, li kun surprizo estus konstatinta, ke lin sekvas la mistera ĉino, kiu eĉ ne momenton lin perdis el la vido.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O V
 
-ŝEJKO HUSSEIN EBN AHMED
+ŜEJKO HUSSEIN EBN AHMED
 
 Hussein ebn Ahmed estis la ĉefa tribestro de ’la homoj de la tendo’, kiel la beduenoj nomas sin mem.
 
@@ -800,9 +655,6 @@ Eĉ ŝejkoj ofte al li tributis. La Mekka-pilgrimantoj, kiuj trairis la dezerton
 Sub lia protekto oni tamen estis sendanĝera kiel en la sino de Abrahamo kaj scienculoj, kiuj entreprenis esplorvojaĝon, ne povis fari ion pli bonan ol havigi al si la eskorton de Hussein ebn Ahmed, kiu disponis pri kvardek fortaj viroj.
 
 Sidanta en sia tendo kaj ĉirkaŭata de kelkaj viraj parencoj, ŝejko Hussein akceptis siajn vizitantojn kun majesta soleno. Estas vere, ke li ne sin humiligis por leviĝi, sed li bonvenigis siajn vizitantojn per riverenco, kiu ne nur montris respekton por la gasto, sed ankaŭ konscion pri propra digno.
-
-
-RADIANTA LOTUSO
 
 
 La moroj de la beduenoj ne estis tute fremdaj al Camphuis kaj pro tio li evitis mem ekparoli pri la celo de sia veno.
@@ -824,9 +676,6 @@ konfirmis Camphuis.
 ”Per la profeto, sinjoro, via amiko estis tre anticipe-ma,” respondis la bedueno. ”Mi ne intencas nun eniri la dezerton; la paŝtejoj estas malbonaj ĉi tempe, la varmo faras la vojaĝadon turmento kaj la virinoj estas lacaj.”
 
 
-RADIANTA LOTUSO
-
-
 ”Mi scias, ke la paŝtejoj estas malbonaj kaj ke la sezono estas malfavora kaj mi tre bedaŭras, ke viaj virinoj —
 
 Allah ilin benu — estas lacaj, ŝejko Hussein,” serioze daŭrigis Camphuis kaj kun rigardo, kiu klare esprimis seniluziiĝon, li aldiris: ”Tiukaze mi devos peti la egiptan registaron pri eskorto.”
@@ -835,9 +684,7 @@ Allah ilin benu — estas lacaj, ŝejko Hussein,” serioze daŭrigis Camphuis k
 
 ”Mi dankas mian amikon pro tiuj avertoj; ili min de-cidigas prokrasti la vojaĝon ĝis pli oportuna okazo,” finis Camphuis, nur pene konservante sian seriozecon. La malbonaj proprecoj, kiujn Hussein atribuis al la egiptaj soldatoj, estis kompleta detalado de la malvirtoj, kiujn posedis la migrantaj beduenoj, sed li ja gardis sin eldiri pri tio sian opinion. Li faris movon por leviĝi, sed rapida gesto de la ŝejko lin retenis.
 
-”Per la profeto, la vivo kuŝas en la manoj de Allah; la sekvantan jaron vi eble povus esti malsana. Eble via edzino estus perdiĝinta aŭ via preferata filo kaj tiam vi probable bedaŭrus esti prokrastinta la vojaĝon,” serio-zatone kontraŭdiris Hussein ebn Ahmed. ”La saĝa mufto de la moskeo El Azbar estas mia amiko kaj liaj amikoj estas miaj. Mi ne volonte iun seniluziigas kaj kun 46
-
-RADIANTA LOTUSO
+”Per la profeto, la vivo kuŝas en la manoj de Allah; la sekvantan jaron vi eble povus esti malsana. Eble via edzino estus perdiĝinta aŭ via preferata filo kaj tiam vi probable bedaŭrus esti prokrastinta la vojaĝon,” serio-zatone kontraŭdiris Hussein ebn Ahmed. ”La saĝa mufto de la moskeo El Azbar estas mia amiko kaj liaj amikoj estas miaj. Mi ne volonte iun seniluziigas kaj kun
 
 
 kelka konsiderado probable estus eble, tamen al vi helpi.”
@@ -855,9 +702,6 @@ Camphuis per energia kapskuado malakceptis la pos-tulon kaj proponis kvarmil pia
 Denove ili longe inter si postulis kaj proponis, ĝis kiam la ŝejko fine konsentis pri anticipa sumo de mil piastroj en kontantoj kaj pri ĉeko por la resto, kiun li tamen nur post reveno de la karavano en Kairo povos enkasigi.
 
 
-RADIANTA LOTUSO
-
-
 La inĝeniero enpense sin jam gratulis pro la rezulto de la intertraktoj, kiam la dato de foriro minacis ŝanceli ĉion. Camphuis en kelkaj tagoj volis forlasi Kairon, sed la ŝejko kontraŭis ĉi tiun proponon per forta protesto.
 
 ”Ni faris longan vojaĝon, sinjoro kaj mi jam diris al vi, ke la virinoj estas tre lacaj. Vi postulas la neeblon; la viroj devas viziti la moskeon por fari la preskribitajn lavojn kaj la virinoj volas iri al la bazaro por fari aĉetojn.”
@@ -868,12 +712,7 @@ La inĝeniero enpense sin jam gratulis pro la rezulto de la intertraktoj, kiam l
 
 Camphuis memoris, ke ankoraŭ nuntempe inter multaj beduenotriboj restis la antikva kredo, ke Nilo, kiu en la nokto de la 11-a de Bacench atingas sian plej malal-tan nivelon, tiun nokton denove kreskas pro dia larmo, kiu falas en la fluejon.
 
-Li ankaŭ sciis, ke ĉi tiu ”festo de la nokto” de la migrantaj beduenoj, kies vivo en la dezerto ofte dependas de la posedo de kelkaj gutoj da akvo, alte estas respek-tata kaj li komprenis, ke estus vana peno, se li provus ŝanĝi la pensojn de la ŝejko. Kvankam ĉi tio signifis pro-48
-
-RADIANTA LOTUSO
-
-
-kraston de tri semajnoj, li pro neceso rezignaciis kaj konfirmis la faritan interkonsenton per manpremo. Poste li enmanigis al Hussein la anticipan sumon kaj disdonis kelkajn piastrojn inter la infanoj. Regalite per taso da kafo, Camphuis intencis iri returne al sia hotelo, kiam subite kaptis lin demando.
+Li ankaŭ sciis, ke ĉi tiu ”festo de la nokto” de la migrantaj beduenoj, kies vivo en la dezerto ofte dependas de la posedo de kelkaj gutoj da akvo, alte estas respek-tata kaj li komprenis, ke estus vana peno, se li provus ŝanĝi la pensojn de la ŝejko. Kvankam ĉi tio signifis prokraston de tri semajnoj, li pro neceso rezignaciis kaj konfirmis la faritan interkonsenton per manpremo. Poste li enmanigis al Hussein la anticipan sumon kaj disdonis kelkajn piastrojn inter la infanoj. Regalite per taso da kafo, Camphuis intencis iri returne al sia hotelo, kiam subite kaptis lin demando.
 
 ”ĉu vi konas Erment, estiminda sinjoro?” li informpetis.
 
@@ -887,16 +726,11 @@ La ŝejko momenton pripensis, sed tiam kapneis.
 
 La bedueno tuj energie kapjesis.
 
-”Efektive, sinjoro, mi scias, kiun vi celas, mi aŭdis pri li,” li rapide respondis. ”La viro estas kuracisto, sorĉis-to kaj scienculo kaj li enbalzamigas la mortintajn fellahin. Mi unu fojon eĉ vidis lin de malproksime; li loĝas ekster Erment, sola inter la mortintoj. La ŝakaloj nomi-
-
-ĝas liaj amikoj kaj li fumas haŝiŝon. La homoj de la tendo timas lin; oni diras, ke li sekrete interrilatas kun la spiritoj de la subtera mondo.”
+”Efektive, sinjoro, mi scias, kiun vi celas, mi aŭdis pri li,” li rapide respondis. ”La viro estas kuracisto, sorĉis-to kaj scienculo kaj li enbalzamigas la mortintajn fellahin. Mi unu fojon eĉ vidis lin de malproksime; li loĝas ekster Erment, sola inter la mortintoj. La ŝakaloj nomiĝas liaj amikoj kaj li fumas haŝiŝon. La homoj de la tendo timas lin; oni diras, ke li sekrete interrilatas kun la spiritoj de la subtera mondo.”
 
 1 La egiptajn terkulturistojn la beduenoj malestime nomas
 
 ”fellahin” t.e. plugistoj.
-
-
-RADIANTA LOTUSO
 
 
 Camphuis ĝojiĝis eksciante, ke Amèn Hoeï efektive vivas, pri kio li kelkfoje dubis. Laŭ la sciigoj de Hussein li ŝajne tute perdiĝas en forgesita pasinteco; li balzamas la mortintojn kaj inter ili loĝas, simile al la pastroj en la antikva Egipto. La fakto, ke Amèn Hoeï fumas haŝiŝon, signifas, ke li posedas malvirton, kiu precipe en ĉi tiu tempo fervore estas praktikata, ke li fordonas sin al moderna narkota veneno, kiu kaŭzas nedireble grandan moralan kaj fizikan mizeron; al opio . . .
@@ -906,13 +740,7 @@ Kontente Camphuis fine adiaŭis la beduenojn. Survoje al la urbocentro li raport
 Reveninte en la hotelon Camphuis alivestis sin kaj iris al la manĝosalono, kontraŭe al Wuangji, kiu preferis tagmanĝi en sia ĉambro. Tuj post kiam li finis la simplan manĝon, la lamao forlasis sian ĉambron. Timeme ĉir-kaŭrigardante, kvazaŭ li timus esti surprizata, li ŝteliris de la ŝtuparo kaj tra la koridoro. Kiel ombro li elglitis el la hotelo kaj ne unu momenton hezitante li maldekstren iris en la straton. Li iris ĝis malnova maŭra konstruaĵo, kie li haltis kaj esplore ĉirkaŭrigardis.
 
 
-RADIANTA LOTUSO
-
-
 Nur kelkajn sekundojn poste aperis el la ombro de malnova pordego figuro, kiu rekte lin aliris kaj kun kiu li rapide interŝanĝis kelkajn vortojn. Du minutojn poste Wuangji reiris kaj nerimarkate denove englitis en la hotelon, dum la alia, la mistera ĉino, eniris la vojon al la kvartalo Cherchohe, kie estis starigitaj la tendoj de ŝej-ko Hussein ebn Ahmed.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O V I
@@ -932,9 +760,6 @@ La karavano de Hussein ebn Ahmed por ĉi tiu vojaĝo konsistis el sesdek kameloj
 La ŝejkon tamen nur akompanis ne pli ol dek armitaj viroj, kies virinoj kaj infanoj formis la pli grandan parton de la karavano. La virinoj, ĝis la okuloj kovritaj de netravidebla malpura vualo, ĉe ĉiu halto tuj retiriĝis en la tendojn kaj plej zorge evitis kontaktiĝi kun la fremduloj.
 
 
-RADIANTA LOTUSO
-
-
 La ŝejko kunkondukis sian preferatan virinon en malgranda tendo sur la dorso de unu el la plej fortaj kameloj, malica besto, kiu al ĉiu, kiu proksimiĝis, tuj kraĉis en la vizaĝon. Hussein gardis sian virinon kun preskaŭ ri-dinde ĵaluza malfido; ŝi rajdis ĉiam kelkcentojn da metroj post la karavano kaj ĉiam sub la okulo de unu el la fratoj. Al Camphuis eĉ ne montriĝis pinteto de ŝia vualo kaj kiam ŝi ĉe la haltejoj forlasis la kamelon, ŝi kune kun la tendo estis levata kaj tiel enportata en sian tra-noktejon.
 
 La inĝenieron mirigis, ke ŝi eĉ ne servigis sin de la aliaj virinoj, ĉar nur la ŝejko kaj ŝiaj fratoj povis eniri la tendon. Camphuis sciis, ke la beduenoj estas supermezure ĵaluzaj kaj suspektemaj rilate al la virinoj kaj pro tio li do ne penis konatiĝi kun la bela Fatimah, kvankam la famo pri ŝia beleco ripete ekscitis lian scivolemon.
@@ -944,14 +769,9 @@ La vojaĝo, kiom ajn malagrabla sur la ĝiba dorso de kamelo, tre prosperis kaj 
 Kvar tagojn post sia foriro el Kairo la karavano atingis la ruinojn de Thebe. ĉi tie la ŝejko tutan tagon ripozis por doni al Camphuis okazon pririgardi la pramalnovajn restaĵojn de la plej antikva egipta civilizo.
 
 
-RADIANTA LOTUSO
-
-
 La sekvintan tagon oni frumatene daŭrigis la vojaĝon kaj atingis ĉirkaŭ tagmezo Erment, vastan urbon kun relative malgranda nombro da enloĝantoj.
 
-Hussein ordonis starigi la tendojn sur paŝtejo ekster la urbo kaj post kelkhora ripozo li akompanis Camphuis kaj la lamaon al la domo de la kolŝito, kiu troviĝis ses mejlojn suden. Mezvoje la aspekto de la pejzago ŝan-
-
-ĝiĝis. La tero tie iĝis senkreska kaj rokeca kaj nek arbo nek arbusto plivigligis la grizecan pejzaĝon de la ĉir-kaŭo. La aspekto iĝis morteca kaj malhela kaj ju pli mal-proksimen oni rajdis, des pli malĝojiga iĝis la impreso, kiun faris la ĉirkaŭo sur la vojaĝantojn.
+Hussein ordonis starigi la tendojn sur paŝtejo ekster la urbo kaj post kelkhora ripozo li akompanis Camphuis kaj la lamaon al la domo de la kolŝito, kiu troviĝis ses mejlojn suden. Mezvoje la aspekto de la pejzago ŝanĝiĝis. La tero tie iĝis senkreska kaj rokeca kaj nek arbo nek arbusto plivigligis la grizecan pejzaĝon de la ĉir-kaŭo. La aspekto iĝis morteca kaj malhela kaj ju pli mal-proksimen oni rajdis, des pli malĝojiga iĝis la impreso, kiun faris la ĉirkaŭo sur la vojaĝantojn.
 
 Iom post iom sento de senkonsola izoleco ekregis Camphuis kaj tiu stranga emocio baldaŭ iĝis tiel forta, ke li parolis nur per mallaŭta voĉo kaj fine, same kiel la bedueno kaj Wuangji, tute silentis. Ili proksimume unu horon estis rajdintaj, kiam ili atingis malgrandan, strangforman rokplataĵon.
 
@@ -959,16 +779,12 @@ Iom post iom sento de senkonsola izoleco ekregis Camphuis kaj tiu stranga emocio
 
 Camphuis silente al li kapsignis kaj antaŭenpelate de sia malpacienco, li instigis sian kamelon al ankoraŭ pli granda rapideco. ĉe la alia flanko de la plataĵo li kun subpremita ekkrio de surprizo haltigis sian kamelon.
 
-Antaŭ li etendiĝis grizeca, senkonsola ebenaĵo kun brule varmigitaj rokoj, en kiuj nefinvideblaj vicoj da 54
-
-RADIANTA LOTUSO
+Antaŭ li etendiĝis grizeca, senkonsola ebenaĵo kun brule varmigitaj rokoj, en kiuj nefinvideblaj vicoj da
 
 
 tombejoj estis elhakitaj, ĉiuj fermitaj per pezaj ŝtonoj. ĉi tie troviĝis absolute nenio, kio allogis la okulojn; la tuta malfreŝkolora ebenaĵo prezentis mallogan aspekton kaj eĉ la ĉielo, kiu volbiĝis super ĉi tiuj malbelegaj kampoj, ŝajnis griza. Sur ĉio en la ĉirkaŭo ŝajne kuŝis enigma kaj timiga premo, kiu estis neklarigebla, sed kiu vekis la penson pri malbeno de la ĉielo.
 
-Silenta, malgaja, Camphuis lasis la impreson de ĉi tiu senesperiga izoleco influi sur lin, ĝis kiam fine la mallaŭ-
-
-ta voĉo de Hussein subite lin vekis el lia melankolia meditado.
+Silenta, malgaja, Camphuis lasis la impreson de ĉi tiu senesperiga izoleco influi sur lin, ĝis kiam fine la mallaŭta voĉo de Hussein subite lin vekis el lia melankolia meditado.
 
 ”ĉi tion la turistoj nomas la Nekropolo de Erment, sinjoro; mortinto-urbo el rokloĝejoj, en kiuj ankoraŭ troviĝas tomboj, kiuj havas la aĝon de kvarmil jaroj,”
 
@@ -978,9 +794,7 @@ diris la ŝejko.
 
 ”Jen, sinjoro, ĝi preskaŭ ne estas distingebla de la ĉir-kaŭantaj rokoj,” respondis la bedueno, etendante la manon.
 
-Kun ĝemo, per kiu liberiĝis lia streĉiteco, la inĝeniero rigardis en la indikitan direkton. Tie staris, sin apogante kontraŭ senkreskaj, alte leviĝantaj rokoj el porfiro, malalta domo el rokblokoj, sen ia ekstera ornamaĵo kaj 55
-
-RADIANTA LOTUSO
+Kun ĝemo, per kiu liberiĝis lia streĉiteco, la inĝeniero rigardis en la indikitan direkton. Tie staris, sin apogante kontraŭ senkreskaj, alte leviĝantaj rokoj el porfiro, malalta domo el rokblokoj, sen ia ekstera ornamaĵo kaj
 
 
 de mallerta arkitekturo, tamen bone ŝirmita kontraŭ la brule varmegaj ventoj de la dezerto. Inter la rokoj peto-lis, kiel infano en multe tro granda lito, miniaturrivere-to, kiun nun en la plej favora sezono nutris fonto, kiu elteriĝis ie malantaŭ la domo.
@@ -996,9 +810,6 @@ Nek sono nek movo konjektigis aleston de loĝanto kaj la nuran brueton, kiu esti
 ”Mi volas kuniri kun vi, sinjoro,” subite sonis mallaŭte sed decide la voĉo de la lamao.
 
 Camphuis incitite turnis la vizaĝon kaj glitigis sin de sia rajdobesto.
-
-
-RADIANTA LOTUSO
 
 
 ”Bone; kuniru, se tio al vi plaĉas,” li malbonhumore ekdiris.
@@ -1020,9 +831,6 @@ Antaŭ ol alvoki la ŝejkon por funkcii kiel interpretisto, kontente li konstati
 ”Por paroli kun mi?” plenmire demandis la alia.
 
 
-RADIANTA LOTUSO
-
-
 ”Jes, la celo de mia vojaĝo estis viziti sinjoron Hoeï,”
 
 la inĝeniero ankoraŭfoje provis per la angla lingvo, ”kaj se mi estas bone informita, vi estas . . .”
@@ -1036,9 +844,6 @@ Kapjesante la viro lin interrompis:
 Kun ĉi tiuj vortoj la kolŝito sin turnis kaj farante signon al la lamao por lin sekvi, Camphuis eniris la misteran logejon.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O V I I
 
 VIVANTO INTER LA MORTINTOJ
@@ -1048,9 +853,6 @@ La ĉambro, kiun la inĝeniero eniris, estis tre vasta, sed plenplena de ĉiaj o
 Sur tablo staris idolstatueto de Toth, laŭ la esotera doktrino de la antikvegipta panteismo la protektanto de pastroj kaj kuracistoj. Amaso da akrarandaj fajroŝtonoj, kiuj servis kiel tranĉiloj, kaj kelka skribilaro, kompletigis la inventaron de la ĉambro. La aero trasorbiĝis de re-zineca odoro, kiu rememorigis Camphuis pri la krom-ofico de Amèn Hoeï: preparado de aromaĵoj.
 
 Post kiam Camphuis snigis, la kolŝito sidigis siajn vizitantojn kaj informpetis pri la celo de ilia veno. Silentante pri ĉiuj detaloj, Camphuis rakontis, ke li posedas malnovan papiruson, kiu temas pri sekreta kaŝejo, kiun li intencis serĉi. Poste li komunikis, ke dua, por lia celo necesa papiruso, estas en posedo de Amèn Hoeï, kaj ke li venis por ĝin aĉeti.
-
-
-RADIANTA LOTUSO
 
 
 La kolŝito komence lin aŭskultis kun nur malmulta intereso, sed tamen baldaŭ lia atento streĉiĝis kaj kiam Camphuis silentis, li vigle rigardis lin.
@@ -1065,9 +867,7 @@ La kolŝito kelkan tempon meditrigardis kaj glitigante la tremantajn fingrojn su
 
 ”ĉu vi permesas, ke mi rigardu la papiruson, sinjoro?”
 
-Camphuis momenton hezitis, sed venkis sian malfidon kaj aperigis bambucilindron. Li el ĝi elprenis la papiruson de Dalai-lamao, ĝin transdonis al Amèn Hoeï kaj poste plenespere lin rigardis en la nerve deformi-
-
-ĝintan vizaĝon. La kolŝito singarde ĝin malvolvis, ĝin esploris per spertula rigardo kaj poste levis la okulojn al la inĝeniero.
+Camphuis momenton hezitis, sed venkis sian malfidon kaj aperigis bambucilindron. Li el ĝi elprenis la papiruson de Dalai-lamao, ĝin transdonis al Amèn Hoeï kaj poste plenespere lin rigardis en la nerve deformiĝintan vizaĝon. La kolŝito singarde ĝin malvolvis, ĝin esploris per spertula rigardo kaj poste levis la okulojn al la inĝeniero.
 
 ”i estas aŭtentika,” li deklaris kategorie.
 
@@ -1077,9 +877,7 @@ Vi sendube povoscias legi la hieratikan skribon, ĉu ne, sinjoro Hoeï?”
 
 Amèn Hoeï jese kapsignis kaj kviete eklegis. Subite tamen venis esprimo de granda miro en lian rigardon.
 
-La lasta iomo da indiferenteco kvazaŭ magie malaperis kaj akresplore rigardante Camphuis, li paroleksplodis: 60
-
-RADIANTA LOTUSO
+La lasta iomo da indiferenteco kvazaŭ magie malaperis kaj akresplore rigardante Camphuis, li paroleksplodis:
 
 
 ”ĉi tiu manuskripto ne estas via propraĵo, sinjoro!”
@@ -1099,9 +897,6 @@ Amèn Hoeï fikse lin rigardis kaj akcente li respondis:
 ”Sed do diru al mi lian nomon, sinjoro Hoeï,” paroleksplodis Camphuis malpacience.
 
 
-RADIANTA LOTUSO
-
-
 ”La amiko de mia patro estis anglo; li nomiĝis Edward Pike kaj estis majoro de la 4-a Lancashire Regimento,”
 
 respondis la kolŝito.
@@ -1110,12 +905,7 @@ Nur unu fojon la inĝeniero vidis tiun nomon kaj tio estis en la neloĝebla Dzji
 
 Subite li ion ekkonjektis pri la interrilato: la anglo mistere mortis en Tibeto kaj post lia morto Dalai-lamao alproprigis al si la papiruson kaj la notlibreton . . . An-kaŭ ĉi tiu hipotezo ankoraŭ multon lasis por diveni; ĝi nek solvis la sekreton de la nokta voĉo en Potala, nek la enigmon, kial la tibeta reganto tiel interesigis pri la objekto, kiu nomiĝas ’Radianta Lotuso’.
 
-Sed jam estis ekster ia dubo, ke Dalai-lamao ne laŭ honesta vojo ekposedis la papiruson: alie li ne bezonus agi tiel misterpiene. Al Camphuis restis, post la komunikoj de Amèn Hoeï, neniu motivo por ion al li kaŝi; por ekposedi la duan papiruson li ja bezonos agi tute mal-62
-
-RADIANTA LOTUSO
-
-
-kaŝe. Li rakontis al la kolŝito, kiu al li donis la manuskripton kaj kiun komision oni al li donis.
+Sed jam estis ekster ia dubo, ke Dalai-lamao ne laŭ honesta vojo ekposedis la papiruson: alie li ne bezonus agi tiel misterpiene. Al Camphuis restis, post la komunikoj de Amèn Hoeï, neniu motivo por ion al li kaŝi; por ekposedi la duan papiruson li ja bezonos agi tute malkaŝe. Li rakontis al la kolŝito, kiu al li donis la manuskripton kaj kiun komision oni al li donis.
 
 Lia sincereco lin tuj liberigis de la suspekto, ke li mem ŝtelis la papiruson kaj kiam li al sia komuniko ankoraŭ aldonis, ke majoro Pike jam en 1904 pereis en Tibeto, ŝajnis, ke Amèn Hoeï ne plu al si faras zorgojn pri la deveno de la manuskripto.
 
@@ -1132,9 +922,6 @@ Li subite silentis kaj post kelkaj minutoj daŭrigis:
 ”La sekreto de ’Radianta Lotuso’ ofte min okupis, sinjoro; ĉu vi iam al vi demandis, kiun objekton oni per tio celis?”
 
 ”Jes kaj mi ankoraŭ emas opinii, ke ĝi devas esti tre valora juvelo; la aldono en la papiruso, ke la brilo de ’Radianta Lotuso’ egalas tiun de la tago, lasas pri tio preskaŭ neniun dubon.”
-
-
-RADIANTA LOTUSO
 
 
 ”Tion ankaŭ mi opinias, sinjoro,” asertis la kolŝito.
@@ -1155,9 +942,7 @@ Camphuis surprizite rigardis la kolŝiton.
 
 ĉu mi do povas kalkuli je via kunlaboro?”
 
-”Certe, certe,” konfirmis la kolŝito. ”Vi tamen ankoraŭ ne tro multe imagu pri la rezulto de nia esploro. Ni povos renkonti ĉiajn surprizojn; tion vi ne malatentu. Ni ne povas fari ion pli bonan ol preni la duan papiruson kaj tiam pristudi la tutan manuskripton. Nur post tio ni 64
-
-RADIANTA LOTUSO
+”Certe, certe,” konfirmis la kolŝito. ”Vi tamen ankoraŭ ne tro multe imagu pri la rezulto de nia esploro. Ni povos renkonti ĉiajn surprizojn; tion vi ne malatentu. Ni ne povas fari ion pli bonan ol preni la duan papiruson kaj tiam pristudi la tutan manuskripton. Nur post tio ni
 
 
 povos fari projekton, kiu plejeble sukcesos. Sed antaŭ ol ni daŭrigos, diru sinjoro, ĉu vi volas tranokti tie ĉi kun viaj akompanantoj?”
@@ -1172,9 +957,7 @@ respondis la inĝeniero ekstarante.
 
 Farante signon al la lamao, ke li lin sekvu, li forlasis la domon kaj iris al la ŝejko. Post mallonga interkonsiliĝo ili decidis akcepti la proponon de la kolŝito tranokti en la rokloĝejo. Dum Hussein forkondukis la kamelojn, Camphuis kaj la lamao reiris al la domo. Amèn Hoeï ilin petis sekvi lin al lia laborejo, por kio pruviĝis esti instalita la apuda ĉambro.
 
-Pendis peza incensodoro kaj la unua impreso, kiun Camphuis ekhavis de ĉi tiu laborejo, estis angore kor-prema. Ankaŭ ĉi tie staris kaj kuŝis ĉiuloke ĉerkoj, inter kiuj estis tre simplaj kaj riĉe prilaboritaj kaj en angulo 65
-
-RADIANTA LOTUSO
+Pendis peza incensodoro kaj la unua impreso, kiun Camphuis ekhavis de ĉi tiu laborejo, estis angore kor-prema. Ankaŭ ĉi tie staris kaj kuŝis ĉiuloke ĉerkoj, inter kiuj estis tre simplaj kaj riĉe prilaboritaj kaj en angulo
 
 
 Camphuis rimarkis eĉ belege ornamitan kaj orumitan sarkofagon.
@@ -1187,9 +970,7 @@ En la mezo staris longa tablo kaj kuvobano, ambaŭ el porfiro. La lastaj malabun
 
 ĉar sur la tablo li ekvidis, malklarigata de la ombroj de noktiĝo, duone senvestigitan mortinton kaj en la banokuvo ĉe liaj piedoj flosis en brila, blankaĉa fluidaĵo, kadavro de infano . . .
 
-Camphuis timtreme fermis la okulojn, sed subpremita krio pro ektimo igis lin denove ekrigardi. Li vidis lamaon Wuangji kun mortpala vizaĝo fiksrigardi al la tablo. La tibetano evidente penis por ne sveni; subite li sin turnis 66
-
-RADIANTA LOTUSO
+Camphuis timtreme fermis la okulojn, sed subpremita krio pro ektimo igis lin denove ekrigardi. Li vidis lamaon Wuangji kun mortpala vizaĝo fiksrigardi al la tablo. La tibetano evidente penis por ne sveni; subite li sin turnis
 
 
 kaj grandpaŝe kaj kun abomenplena rigardo li forlasis la laborejon kaj la domon. La inĝeniero dum momento planis eksalte lin sekvi, sed duone retenita mokrido de la kolŝito lin decidigis resti.
@@ -1205,16 +986,11 @@ li diris per mallaŭta voĉo, aludante la mortintojn kaj stariĝinte antaŭ la b
 Venkante sian abomenon, Camphuis kapneis kaj kun perforta rideto li iris al la bretaro kaj ekserĉis inter la papirusoj.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O V I I I
 
-LA SEKRETO DE LA PARAŝITO
+LA SEKRETO DE LA PARAŜITO
 
-Camphuis baldaŭ faris la surprizan konstaton, ke la posedaĵoj de la kolŝito, ĉi tie senzorge miksĵetitaj, formis gravan kontribuon al la scio pri la antikvegipta mortintokulto. La kolekto da papirusoj, kiuj povus fier-igi multajn muzeojn, vekis febran intereson en la inĝeniero kaj enprofundiĝante en la studon de la hieroglifoj, li baldaŭ perdis ĉiun realan senton, ĝis la voĉo de la kol-
-
-ŝito lin fine timigis.
+Camphuis baldaŭ faris la surprizan konstaton, ke la posedaĵoj de la kolŝito, ĉi tie senzorge miksĵetitaj, formis gravan kontribuon al la scio pri la antikvegipta mortintokulto. La kolekto da papirusoj, kiuj povus fier-igi multajn muzeojn, vekis febran intereson en la inĝeniero kaj enprofundiĝante en la studon de la hieroglifoj, li baldaŭ perdis ĉiun realan senton, ĝis la voĉo de la kolŝito lin fine timigis.
 
 ”Mi trovis la papiruson, ne pli longe serĉu, sinjoro,”
 
@@ -1224,12 +1000,7 @@ Reveninte en la apudan ĉambron, la kolŝito sternis la folion antaŭ sin sur la
 
 ”ĉi tio estis antaŭ dudek sep jaroj interesplena trovitaĵo, sinjoro,” rediris Amèn Hoeï, kiam Camphuis altab-liĝis.
 
-”Majoro Pike estis pasia esploristo kaj kvar sinsekvajn vintrojn li estis nia gasto. Vi komprenas, ke ĉi tiu regiono estas riĉa je antikvaj tomboj, ĉar longe antaŭ nia erao ĉi tie kuŝis la Nekropolo de Hermonthis. Estis, mi kredas, en -a, kiam Pike kaj mia patro traesplo-68
-
-RADIANTA LOTUSO
-
-
-ris la ruinojn de la templo de Hathor, kiu en la antikvaj tempoj estis konata piigrimejo por geamantoj. Tiam ili malkovris malnovan tombon, el kiu ili eligis mumion kun elpikitaj okuloj. En la torako ili trovis ĉi tiujn du papirusojn, per kiuj evidentiĝis la sekreto pri ’Radianta Lotuso’. Kiam ni estis deĉifrintaj la enhavon, pruviĝis, ke ni trovis la mumion de la paraŝito Noeme kaj ke la papirusoj al li devis havigi eniron en la kampojn de la beatu-loj.”
+”Majoro Pike estis pasia esploristo kaj kvar sinsekvajn vintrojn li estis nia gasto. Vi komprenas, ke ĉi tiu regiono estas riĉa je antikvaj tomboj, ĉar longe antaŭ nia erao ĉi tie kuŝis la Nekropolo de Hermonthis. Estis, mi kredas, en -a, kiam Pike kaj mia patro traesploris la ruinojn de la templo de Hathor, kiu en la antikvaj tempoj estis konata piigrimejo por geamantoj. Tiam ili malkovris malnovan tombon, el kiu ili eligis mumion kun elpikitaj okuloj. En la torako ili trovis ĉi tiujn du papirusojn, per kiuj evidentiĝis la sekreto pri ’Radianta Lotuso’. Kiam ni estis deĉifrintaj la enhavon, pruviĝis, ke ni trovis la mumion de la paraŝito Noeme kaj ke la papirusoj al li devis havigi eniron en la kampojn de la beatu-loj.”
 
 Camphuis faris geston pro surprizo kaj la kolŝito vigle daŭrigis:
 
@@ -1240,9 +1011,6 @@ Amèn Hoeï tusetis kaj komencis malrapide kaj akcente legi:
 Je la 25-a de Paophi de la sesa jaro de la regado de la reĝino Menephta, la altdevena zorgantino de Peraä de Egipto.
 
 — Al kiu estu flora vivo, feliĉo kaj forteco, — la ĉefpastro de la templo de Amon en Thebe solene malŝarĝis la paraŝiton Noeme de la Nekropolo pri la promeso, sindevige farita kontraŭ rekompenco de talento da arĝento, sekrete transporti ’Radiantan Lotuson’, kies brilo egalas tiun de la tago, al la tombo de la Peraä, la Reĝo de la Vero.
-
-
-RADIANTA LOTUSO
 
 
 — Kiun al si elektis la Dio Ra kiel vicreĝon.
@@ -1257,12 +1025,7 @@ Amèn Hoeï metis la manuskripton antaŭ sin kaj kun demanda rigardo sin turnis 
 
 ”Jes, la enhavon, sed la rilato ankoraŭ ne estas tre klara al mi,” respondis Camphuis pripensante.
 
-”Mi al vi klarigos al kiu konkludo la enhavo nndukis,” rediris la kolŝito. ”Ni trovis la mumion de paraŝi-to, kiu nomiĝis Noeme. La viro solene promesis transporti ’Radiantan Lotuson’ al la tombo de iu faraono kaj por tio li ricevis talenton da arĝento. Li poste bedaŭris tiun promeson, verŝajne ĉar ĝi endanĝerigis lian beati-gon. Parolrompo tamen estis grava krimo por nepurulo kaj tial li serĉis kompromison, konfesante ĉion al la ĉefpastro. ĉi tiu lin liberigis de la promeso, al li pune el-70
-
-RADIANTA LOTUSO
-
-
-pikigis la okulojn kaj devigis lin donaci la talenton da arĝento al la templokaso. Por favorigi la mortintjuĝ-
+”Mi al vi klarigos al kiu konkludo la enhavo nndukis,” rediris la kolŝito. ”Ni trovis la mumion de paraŝi-to, kiu nomiĝis Noeme. La viro solene promesis transporti ’Radiantan Lotuson’ al la tombo de iu faraono kaj por tio li ricevis talenton da arĝento. Li poste bedaŭris tiun promeson, verŝajne ĉar ĝi endanĝerigis lian beati-gon. Parolrompo tamen estis grava krimo por nepurulo kaj tial li serĉis kompromison, konfesante ĉion al la ĉefpastro. ĉi tiu lin liberigis de la promeso, al li pune elpikigis la okulojn kaj devigis lin donaci la talenton da arĝento al la templokaso. Por favorigi la mortintjuĝ-
 
 istojn, oni post lia morto al li kundonis en la torako la skriban liberigon de lia kulpo.
 
@@ -1282,9 +1045,7 @@ ne jam de longe malaperis. Nur la esploro povos tion montri.”
 
 demandis Camphuis.
 
-”Pri tio mi ankaŭ nenion povas diri, sinjoro. Multo dependas de la hazardo. Antaŭ dek jaroj la esploro eĉ al mi ŝajnus senespera. Por povi trovi la kaŝejon de ’Radianta Lotuso’, ni unue sciu, kie en la Seti-domo kuŝis la 71
-
-RADIANTA LOTUSO
+”Pri tio mi ankaŭ nenion povas diri, sinjoro. Multo dependas de la hazardo. Antaŭ dek jaroj la esploro eĉ al mi ŝajnus senespera. Por povi trovi la kaŝejon de ’Radianta Lotuso’, ni unue sciu, kie en la Seti-domo kuŝis la
 
 
 antaŭa baseno de Horus. La ruinoj de Thebe okupas grandegan areon kaj sen pli detalaj faktoj ni eble multajn jarojn devus serĉi. Bonŝance tamen mi trovis antaŭ dek jaroj malnovan priskribon de la Seti-domo kaj eble
@@ -1301,9 +1062,7 @@ Gesto de la alia lin interrompis.
 
 ”Ne, ne,” respondis la kolŝito. ”Mi ne pli frue ol post tri tagoj povos foriri; vi komprenas, ke mi antaŭe devas prizorgi miajn mortintojn. La viron mi ankoraŭ devas malfermi; la infano jam kuŝas en la natro por esti pek-lata.”
 
-El la buŝo de la kolŝito, kiu ŝajne ankoraŭ vivis en la spirito de longe forpasintaj jarcentoj, ĉi tiuj vortoj sonis 72
-
-RADIANTA LOTUSO
+El la buŝo de la kolŝito, kiu ŝajne ankoraŭ vivis en la spirito de longe forpasintaj jarcentoj, ĉi tiuj vortoj sonis
 
 
 tute ne ofendaj aŭ nesentemaj; li parolis pri la mortintoj kvazaŭ li mem al ili apartenus. Camphuis tamen ne povis ne ĵeti timeman rigardon al la pordo de la laborejo kaj senvole li timtremis, pensante pri la mortintoj, kiuj kuŝis malantaŭ ĝi.
@@ -1315,9 +1074,6 @@ tute ne ofendaj aŭ nesentemaj; li parolis pri la mortintoj kvazaŭ li mem al il
 ĉe ĉi tiuj vortoj la kolŝito demande rigardis al Camphuis. La inĝeniero komprenis per tio, ke la alia esperas, ke li restos kaj kvankam li unuamomente volis serĉi pretekston por rifuzi ĉi tiun nerektan inviton, li venkis sian antipation kaj konsentis resti.
 
 ”Mi volonte restos via gasto, sinjoro Hoeï,” li respondis. ”Miaj amikoj tamen eble preferas reiri al Erment; mi tion al ili demandos. Se ili preferas foriri, mi al ili petos reveni post tri tagoj por nin akompani. Vi nun al mi par-donu, ke mi foriras, ni hodiaŭ frumatene foriris el Thebe kaj mi devas peni por ne fermi la okulojn.”
-
-
-RADIANTA LOTUSO
 
 
 Amèn Hoeï tuj ekstaris por antaŭiri sian vizitanton.
@@ -1340,19 +1096,11 @@ La inĝeniero timigite faris paŝon returne kaj ridetante la alia daŭrigis:
 
 ”Kiujn vi aludas?” mire demandis Camphuis.
 
-La kolŝito al li ne respondis, sed li aŭdigis mallongan, krudan gorĝosonon. La vulturo tuj flugis sur la tegmen-ton, sed samtempe Camphuis konstatis, ke la ŝajne forlasita mortintejo estas plena de vivo kaj moviĝo. Flanke de kaj sur la rokoj alproksimiĝis dudek, tridek ŝteliran-taj ombroj ĝis preskaŭ en la lumo de la malfermita por-74
-
-RADIANTA LOTUSO
-
-
-do. Unu el la bestoj aŭdigis mallongan, bojetan sonon, kiun la aliaj tuj imitis. Kun rigardo plena de abomeno Camphuis sin deturnis kaj per kruda krio la bestojn di-spelinte, Amèn Hoeï signifoplene lin alrigardis.
+La kolŝito al li ne respondis, sed li aŭdigis mallongan, krudan gorĝosonon. La vulturo tuj flugis sur la tegmen-ton, sed samtempe Camphuis konstatis, ke la ŝajne forlasita mortintejo estas plena de vivo kaj moviĝo. Flanke de kaj sur la rokoj alproksimiĝis dudek, tridek ŝteliran-taj ombroj ĝis preskaŭ en la lumo de la malfermita pordo. Unu el la bestoj aŭdigis mallongan, bojetan sonon, kiun la aliaj tuj imitis. Kun rigardo plena de abomeno Camphuis sin deturnis kaj per kruda krio la bestojn di-spelinte, Amèn Hoeï signifoplene lin alrigardis.
 
 ”Miaj amikoj en la Nekropolo, sinjoro,” li ironie diris
 
 ”la sanktaj bestoj, kiuj jam en la antikveco estis dediĉitaj al Anukis: ŝakaloj, la gardistoj de la tomboj . . . ”
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O I X
@@ -1367,14 +1115,10 @@ La inĝeniero pro la ĉeesto de la bedueno silentis pri la farita interkonsento,
 
 Je surprizo de Camphuis la ŝejko tuj sin deklaris preta resti ĉe li, sed Wuangji, kiu ankoraŭ ne eĉ vorton parolis, diris per malafabla voĉo, ke li volas la sekvantan matenon reiri al Erment, pro kio la bedueno estis devigita ankaŭ foriri. Tiu ĉi decido estis al Camphuis sufiĉe indiferenta kaj farinte kun Hussein klaran interkonsenton pri lia reveno, ili tuj kuŝiĝis por dormi.
 
-La inĝeniero tiun nokton dormis malbone; ne nur premis lin la neordinara ĉirkaŭo, sed ankaŭ la senĉesa bojado de la kvarpiedaj manĝegemaj gardistoj de la tomboj kaj la memoro pri la surprizaj okazintaĵoj de la pasinta tago malhelpis lin kviete dormi. Kun sento de 76
-
-RADIANTA LOTUSO
+La inĝeniero tiun nokton dormis malbone; ne nur premis lin la neordinara ĉirkaŭo, sed ankaŭ la senĉesa bojado de la kvarpiedaj manĝegemaj gardistoj de la tomboj kaj la memoro pri la surprizaj okazintaĵoj de la pasinta tago malhelpis lin kviete dormi. Kun sento de
 
 
-malsarĝiĝo li salutis la tagiĝon, kiu ankaŭ la aliajn baldaŭ vekis. Dum li preparis la matenmanĝon, la bedueno eliris el la loĝejo por pretigi la kamelojn kaj ilin ŝarĝi per la tendoj, tiel ke Camphuis havis la okazon inter-
-
-ŝanĝi kelkajn vortojn kun la lamao.
+malsarĝiĝo li salutis la tagiĝon, kiu ankaŭ la aliajn baldaŭ vekis. Dum li preparis la matenmanĝon, la bedueno eliris el la loĝejo por pretigi la kamelojn kaj ilin ŝarĝi per la tendoj, tiel ke Camphuis havis la okazon interŝanĝi kelkajn vortojn kun la lamao.
 
 ”Sinjoro, multo el tio, kion mi hieraŭ vespere priparolis kun sinjoro Hoeï ne havas intereson por vi,” li komencis. ”La aferoj kiuj vncernas, estos baldaŭ kla-rigitaj. Sinjoro Hoeï deklaris cedi siajn rajtojn pri ’Radianta Lotuso’ kontraŭ rekompenco de kvindek sterlingaj funtoj; tre malgranda sumo, konsiderante, ke li por tio ankaŭ prenos sur sin la gvidon de la esploro.”
 
@@ -1389,18 +1133,13 @@ malsarĝiĝo li salutis la tagiĝon, kiu ankaŭ la aliajn baldaŭ vekis. Dum li 
 Camphuis tuj komprenis, ke la alia lin suspektis pri mallojaleco, kion sendube ĉefe kaŭzis lia longdaŭra interparolado kun la kolŝito.
 
 
-RADIANTA LOTUSO
-
-
 ”Aŭskultu, sinjoro,” li rekomencis, ”ĉu ’Radianta Lotuso’ ankoraŭ iam estos trovata, eĉ, ĉu ni ankoraŭ povos malkovri la lokon, kiun indikis la papirusoj, tion la esploro al ni instruos. Mi ne estas profeto kaj same ne sinjoro Hoeï; vi do paciencu. Sed mi nepre devas ankoraŭ ion aldoni. Mi nek al via mastro, nek al vi, donis kia-lon por malfido. Vi evidente nutras iun suspekton, kiun mi ne volas nomi. Sed tamen mi deziras al vi certigi, ke mi tuj ĉesigos la esploron, se vi denove tiel klare montros vian malfidon. ĉu vi tion ĉi komprenis, sinjoro?” li malvarme finis.
 
 La lamao konsternite rigardis lin kaj ŝajnis esti embarasita. Baldaŭ tamen li denove sin regis kaj nun aperis incitita, preskaŭ malamika esprimo en lia rigardo. Li ŝaj-ne volis kontraŭi, sed, ekkonsiderinte, preferis silenti.
 
 ĉar subite li sin turnis kaj forlasis la tendon, per koleraj okuloj postrigardata de Camphuis, kiu sentis grandan emon vangofrapi la tibetanon.
 
-Kiam la malgranda societo duonhoron poste estis manĝinta, Hussein kaj Wuangji foriris al Erment kaj Camphuis iris al la loĝejo de Amèn Hoeï. Li ankoraŭ ne vidis la kolŝiton kaj dubis, ĉu tiu ĉi jam leviĝis, sed kiam li frapis sur la pordon, pruviĝis, ke li jam estas laborin-ta. Amèn Hoeï nun evidente ne estis same nervoza kiel la antaŭan vesperon kaj ankaŭ la okulesprimo estis pli klara, kio la inĝenieron konjektigis, ke la viro de post la 78
-
-RADIANTA LOTUSO
+Kiam la malgranda societo duonhoron poste estis manĝinta, Hussein kaj Wuangji foriris al Erment kaj Camphuis iris al la loĝejo de Amèn Hoeï. Li ankoraŭ ne vidis la kolŝiton kaj dubis, ĉu tiu ĉi jam leviĝis, sed kiam li frapis sur la pordon, pruviĝis, ke li jam estas laborin-ta. Amèn Hoeï nun evidente ne estis same nervoza kiel la antaŭan vesperon kaj ankaŭ la okulesprimo estis pli klara, kio la inĝenieron konjektigis, ke la viro de post la
 
 
 alveno de siaj vizitantoj abstinis je la fumado de la pereiga haŝiŝo.
@@ -1420,9 +1159,6 @@ La kolŝito intertempe serĉkolektis nombron da amuletoj, kiujn li, kune kun kap
 La kolŝito ekstaris antaŭ la tablo kaj sur ĝin metis la ilaron, kiun li bezonis por la preparado.
 
 
-RADIANTA LOTUSO
-
-
 ”Ho, se oni neniam ĝin vidis, ĉio ja estas interesa, sed oni ne estu molkora aŭ superstiĉa. Mi ankoraŭ estas la nura, kiu praktikas la malnovan kolŝitan profesion kaj konjekteble, ne, mi ja povas diri tre certe, mi estos la lasta de mia gento, ĉar mi havas nek edzinon nek infanon. Kiam mia tempo estos forpasinta, ankaŭ la kutimo ja tute formortos.”
 
 ”ĉu ofte okazas, ke oni konfidas la mortintojn al vi antaŭ ol oni ilin enterigas, sinjoro Hoeï?”
@@ -1435,9 +1171,7 @@ Kelkfoje mi ankaŭ ricevas mortintojn de tre malproksime; de Assoean, Wadi Halfa
 
 ”Ne,” respondis firme la kolŝito. ”Jam de mia junaĝo mi al ĝi kutimiĝis. La mortintoj ne inspiras al mi tiun malplaĉon; mi ilin traktas kun respekto tradicia kaj mi eĉ amas ilin. Prepari ilin post plenzorga kaj malĝoja vivo por la lasta silentego, mi ja sentas kiel faron korinklinan.
 
-Ne, pli ĝuste, la profesio mntentigas. Estas eble nur fantazio, sed kiam mi estas balzaminta senvivulon, mi ne povas nei la senton, ke li estas dankema al mi. Ankaŭ 80
-
-RADIANTA LOTUSO
+Ne, pli ĝuste, la profesio mntentigas. Estas eble nur fantazio, sed kiam mi estas balzaminta senvivulon, mi ne povas nei la senton, ke li estas dankema al mi. Ankaŭ
 
 
 mi pro tio ilin amas: ili estas multe pli toleremaj ol vivantoj.”
@@ -1451,9 +1185,6 @@ Sur la vizaĝo de Amèn Hoeï glitis malĝoja rideto.
 ”Eble vi pravas, sinjoro,” li respondis kaj post momento da pripensado li daŭrigis: ”Vi ne forgesu, ke al mia ofico sin algluis la malnova antaŭjuĝo. Antaŭ jarcentoj la paraŝitoj estis turmentataj kaj per ŝtonoj alĵetataj, ĉar ili krimis kontraŭ la sankta templo de la animo. Kaj tamen ili tion faris laŭofice kaj komisie de la parencoj. De post tiu tempo malmulte ŝanĝiĝis tiurilate; verdire mi ne estas turmentata, sed tamen oni malestimas kaj evitas min kaj samtempe oni konsideras min nemalhavebla.”
 
 La amareco kaj la neneigebla ĉagreno, kiuj kaŝiĝis sub ĉi tiuj vortoj, kvazaŭ sugeste komprenigis al Camphuis, kial Amèn Hoeï sin fordonis al opio: evitata de la homoj kaj vivanta per kaj inter la mortintoj, li serĉis sinforge-son en la narkotiĝo, kiu lin translokis en fantazian mondon, en kiu li trovis kompenson por la ĉagreno, kiun al li kaŭzis la vivantoj.
-
-
-RADIANTA LOTUSO
 
 
 La inĝeniero rigardis la kolŝiton per rigardo simpatia kaj per sentema voĉo li rediris:
@@ -1470,9 +1201,7 @@ Parolante la kolŝito daŭrigis sian laboron. La mortinton li senigis de la blan
 
 La respekto kaj singardo kun kiuj la kolŝito traktis la mortintojn preskaŭ tute al li forprenis la mallogan senton kaj kun atento timemeta li observis Amèn Hoeï.
 
-Per kelkaj akrarandaj ŝtontranĉiloj la kolŝito malfermis la korpon de la mortinto per tri tranĉoj kaj poste 82
-
-RADIANTA LOTUSO
+Per kelkaj akrarandaj ŝtontranĉiloj la kolŝito malfermis la korpon de la mortinto per tri tranĉoj kaj poste
 
 
 forigis la koron kaj intestojn. Tiam li per kurba hoko aperigis la cerbon tra la nazo kaj ĉion metis en kanopon, alabastran vazon, kiun li fermis per folio papirusa. La korpon puriginte kaj splintinte, tiel ke la natro povos enpenetri ĉiujn partojn, li ĝin metis en la banokuvon, el kiu li prenis la infanon, kiun li, levinte pezan porfiran kovrilon el la planko, metis en kelon. La tuta preparado nur daŭris dek minutojn kaj sin puriginte, la kolŝito plenigis du pokalojn el argilo per palmvino kaj eksidis kontraŭe de la inĝeniero.
@@ -1481,14 +1210,10 @@ Sub la impreso de tio, kion li vidis, Camphuis kelkajn minutojn ne parolis, sed 
 
 ”Kial vi uzas ŝtontranĉilojn por via laboro, sinjoro Hoeï? ĉu tranĉilo ordinara ne estas pli praktika?”
 
-”Jes, pli praktika, sed la antikva leĝo preskribis ŝtontranĉilojn. Ankaŭ miaj prapatroj ĉiam tion obeis. Kun escepto de la antaŭaj ceremonioj ĉi tiu preparado estas tute laŭ indikoj de Diodorus, kiu en pramalnova manuskripto diras: ”Tiam la paraŝito tranĉas per etiopa ŝtono tiel profunde en la korpon, kiel preskribas la leĝo. Tuj li rapidege forkuras kaj la parencoj de la mortinto lin persekutas per ŝtonoj kaj malbenoj, kvazaŭ ili volus lin kulpigi pri la perdo”. La homoj kiuj balzamigas siajn mortintojn, deziras, ke ĉio okazu laŭ la antikva rito. Antaŭe ĉi tiun oficon okupis pastroj kaj oni ĝin dividis en tri 83
-
-RADIANTA LOTUSO
+”Jes, pli praktika, sed la antikva leĝo preskribis ŝtontranĉilojn. Ankaŭ miaj prapatroj ĉiam tion obeis. Kun escepto de la antaŭaj ceremonioj ĉi tiu preparado estas tute laŭ indikoj de Diodorus, kiu en pramalnova manuskripto diras: ”Tiam la paraŝito tranĉas per etiopa ŝtono tiel profunde en la korpon, kiel preskribas la leĝo. Tuj li rapidege forkuras kaj la parencoj de la mortinto lin persekutas per ŝtonoj kaj malbenoj, kvazaŭ ili volus lin kulpigi pri la perdo”. La homoj kiuj balzamigas siajn mortintojn, deziras, ke ĉio okazu laŭ la antikva rito. Antaŭe ĉi tiun oficon okupis pastroj kaj oni ĝin dividis en tri
 
 
-partojn. Nur la paraŝiton oni konsideris nepurulo kaj lin ekzilis el la kunvivado; la kolŝitoj kaj la tarięŭtoj, kiuj prizorgis la purigadon, la pekladon kaj la balzamadon, estis estimataj. Multaj el ili riĉuliĝis. Mia patro trovis en multaj tomboj de tarięŭtoj kaj kolŝitoj orajn ornama-
-
-ĵojn kaj imititajn juvelojn, kiuj en malnovaj tempoj estis grandvaloraj.”
+partojn. Nur la paraŝiton oni konsideris nepurulo kaj lin ekzilis el la kunvivado; la kolŝitoj kaj la tarięŭtoj, kiuj prizorgis la purigadon, la pekladon kaj la balzamadon, estis estimataj. Multaj el ili riĉuliĝis. Mia patro trovis en multaj tomboj de tarięŭtoj kaj kolŝitoj orajn ornamaĵojn kaj imititajn juvelojn, kiuj en malnovaj tempoj estis grandvaloraj.”
 
 Amèn Hoeï ekstaris kaj prenis el la kelo, en kiun varmega dezerta vento havis liberan eniron, malgrandan banokuvon. i estis plena de tolaĵoj, kiuj servis por en-volvi la mortintojn. Silente la kolŝito rulvolvis la bendojn kaj post tio sin turnante al la inĝeniero, li daŭrigis:
 
@@ -1497,21 +1222,15 @@ Amèn Hoeï ekstaris kaj prenis el la kelo, en kiun varmega dezerta vento havis 
 Camphuis kapjesis kaj ekstarinte antaŭ la bretaron li baldaŭ estis enprofundiĝinta en la deĉifradon de la papirusoj, kiuj interpretis pensojn kaj imagojn, kiuj post dudek, tridek jarcentoj ankoraŭ nenion perdis de sia bela kaj sublima signifo.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X
 
-MEZE DE ŝTONIINTAJ
+MEZE DE ŜTONIINTAJ
 
 DOKUMENTOJ
 
 La ruino de la templo de Quornak, la antaŭa Seti-domo, kuŝas en la malnova Nekropolo de Thebe kaj estis antaŭ dekoj da jarcentoj la ĉefa sanktejo de la vasta mortintourbo. La Seti-domon rilate al grandeco nur superis la konstruaĵo, kiun konjekteble fondis faraono Thotmes III kaj kies enirejon per kolosaj statuoj ornamis Amenophis III. Unu el ĉi tiuj, nome la plej norda, estas la mondfama sonproduktanta Memnon-statuo.
 
 Proksime de ĉi tiuj restaĵoj de la malnova civilizo ŝejko Hussein kelkajn tagojn poste starigis siajn tendojn. Dum la vojaĝo Camphuis rimarkis, ke Wuangji intence lin evitas kaj kiel eble plej restadas en la malantaŭo de la karavano, kie ankaŭ troviĝis la preferatino de la ŝejko. ĉar la lamao daŭre lin evitis, la inĝeniero en la antaŭvespero de la venontaj gravaj okazaĵoj devis mem akceli alproksimiĝon. Kiom ajn al li naŭzis la malfido de lia kunulo, li tamen komprenis, ke li la reprezentanton de sia komisiinto ne povas ekskluzivi de ĉiu interkonsiliĝo kaj kiam vespere la tendaro estis aranĝita, li iris al la tendo de Wuangji, kiu estis turnanta sian preĝilon.
-
-
-RADIANTA LOTUSO
 
 
 ”Sinjoro, per la malnova plankarto de Amèn Hoeï ni povis proksimume fiksi la lokon, kie oni kaŝis ’Radiantan Lotuson’,” komencis Camphuis kun perforta afableco. ”Morgaŭ je tagiĝo ni komencos la esploron; ĉu vi ŝatus akompani nin?”
@@ -1524,9 +1243,7 @@ Wuangji kapsignis kaj per ekturno de sia preĝilo esprimis la deziron esti sola.
 
 Laŭ ekzemplo de Amèn Hoeï ĉiuj frue surlitiĝis tiun vesperon. Kuŝante sur sia tendlito la inĝeniero multajn horojn moviĝis kaj vane atendis la dormon. De ekster la tendaro al li penetris ĉiaj nerekoneblaj sonoj kaj tre malproksime sonis muĝado de leono, kiu forlasis sian kuŝejon por serĉi trinklokon. Sopirante al refreŝiĝo kaj freŝa aero Camphuis fine delitigis kaj forlasis la tendon.
 
-La luno disvastigis nur malfortan brilon, per kiu la ruinoj lokiĝis en rondo de pura arĝentolumo, en kiu ili pli aspektis kiel fatamorgano ol realaĵoj. Sonĝoplenaj la 86
-
-RADIANTA LOTUSO
+La luno disvastigis nur malfortan brilon, per kiu la ruinoj lokiĝis en rondo de pura arĝentolumo, en kiu ili pli aspektis kiel fatamorgano ol realaĵoj. Sonĝoplenaj la
 
 
 rigardoj de Camphuis sekvis la fantaziajn konturojn de la fantomaj ombroj, de kiuj ili fine liberigis sin por vagi maldekstren.
@@ -1537,12 +1254,7 @@ Subite lin kaptis konsterniĝo: la proksimiĝanta viro rapide moviĝis, sed ŝte
 
 La tibetano subite malaperis en sia tendo kaj kapsku-ante la inĝeniero al si demandis, kion lia stranga kunulo faris ĉe la kameloj. Vane li serĉis kontentigan respondon kaj malbonhumore li fine rezignis kaj reiris al sia tendo. Refreŝiĝinte kaj iom post iom plikvietiĝinte li baldaŭ ekdormis kaj je tagiĝo tuj revekiĝis.
 
-Antaŭ ol li delitiĝis, li ankoraŭ kelkan tempon pensis pri la nokta promenado de la lamao kaj fine li konkludis, ke Wuangji, same kiel li mem, suferis pro varmego kaj serĉis refreŝiĝon. Kontenta pri ĉi tiu interpreto li levi-87
-
-RADIANTA LOTUSO
-
-
-ĝis kaj vekis unue Amèn Hoeï kaj poste la tibetanon. Por ne veki la beduenojn kaj ne altiri ilian atenton al la forveturo, Camphuis kun la aliaj jam la antaŭan vesperon interkonsentis matenmanĝi ekster la tendaro kaj kvin minutojn poste ili jam estis survoje al la ruinoj. La inĝeniero eĉ ne per unu vorto aludis la noktan sperton kaj, fidela al sia kutimo, ankaŭ Wuangji silentis.
+Antaŭ ol li delitiĝis, li ankoraŭ kelkan tempon pensis pri la nokta promenado de la lamao kaj fine li konkludis, ke Wuangji, same kiel li mem, suferis pro varmego kaj serĉis refreŝiĝon. Kontenta pri ĉi tiu interpreto li leviĝis kaj vekis unue Amèn Hoeï kaj poste la tibetanon. Por ne veki la beduenojn kaj ne altiri ilian atenton al la forveturo, Camphuis kun la aliaj jam la antaŭan vesperon interkonsentis matenmanĝi ekster la tendaro kaj kvin minutojn poste ili jam estis survoje al la ruinoj. La inĝeniero eĉ ne per unu vorto aludis la noktan sperton kaj, fidela al sia kutimo, ankaŭ Wuangji silentis.
 
 Post laciga duonhora grimpado inter kaj trans la dise kaj amase kuŝantaj ruinoj de muroj kaj monumentoj.
 
@@ -1561,9 +1273,6 @@ La inĝeniero tion aprobis kaj en malmultaj momentoj ili sidiĝis en la ombron d
 ĝis li fine havis ĝustan ideon pri la situo.
 
 
-RADIANTA LOTUSO
-
-
 ”Ni deiru de la malnova templo-enirejo, sinjoro Hoeï,” fine decidis Camphuis. ”De tie ni facile povos fiksi la konturojn de la konstruaĵoj, ĉu vi ne kredas?”
 
 ”Jes, via propono ŝajnas al mi plej taŭga,” konsentis la kolŝito.
@@ -1572,9 +1281,7 @@ Post iom da divenado kaj serĉado, ili proksimume fiksis la lokon de la antaŭa 
 
 Atentante ĉiujn detalojn, kiuj al ili povis utili por kom-paro kun la malnova priskribo, ili iris plue ĝis dua korto, kiun limis la restaĵoj de ringmuro, de kie vico da sfin-ksoj kondukis al la bordo de Nilo. ĉi tiu korto posedis en antaŭa tempo dekstre kaj maldekstre kolongalerion, de kiuj la dento de la tempo nur lasis disajn ruinaĵojn, sed kiuj tamen liveris ankoraŭ sufiĉe da indikoj por daŭrigi la esplorojn.
 
-De la loko, kie konjekteble staris la unua pilono de la kolongalerio, la inĝeniero kaj la kolŝito per helpo de la faktoj, kiujn ili sukcesis kolekti, komencis mezuri la tak-sitajn distancojn al la antaŭa baseno de Horus. Sur la kruciĝo de la linioj, kiujn ili strekis tra la korto, ili esplore 89
-
-RADIANTA LOTUSO
+De la loko, kie konjekteble staris la unua pilono de la kolongalerio, la inĝeniero kaj la kolŝito per helpo de la faktoj, kiujn ili sukcesis kolekti, komencis mezuri la tak-sitajn distancojn al la antaŭa baseno de Horus. Sur la kruciĝo de la linioj, kiujn ili strekis tra la korto, ili esplore
 
 
 sin rigardis; la loko estis sursemita per grandaj kaj malgrandaj ŝtonpecoj.
@@ -1595,12 +1302,7 @@ sin rigardis; la loko estis sursemita per grandaj kaj malgrandaj ŝtonpecoj.
 
 ”Sed ni ne bezonas al ili konfidi nian sekreton, sinjoro; ni povas diri, ke ni en ĉi tiu loko esperas trovi enskri-bojn. Tuj kiam ĉio estos forigita kaj la baseno nudiĝos, ni povos rezigni pri iliaj servoj.”
 
-Camphuis rezignis, sed li tamen ankoraŭ momenton konsiliĝis kun la lamao, kiu ilin ĉie sekvis. Wuangji he-90
-
-RADIANTA LOTUSO
-
-
-zite cedis la proponon, post kio ili tuj foriris por serĉi la rokon de Ra. Evidentiĝis, ke ĉi tiu esploro liveris pli da malfacilaĵoj ol ili supozis, kvankam nur en unu direkto sin levis rokoj. Multajn horojn Camphuis kaj Amèn Hoeï serĉis ian ajn rekonigan signon kaj seniluziiĝinte ambaŭ fine sidiĝis en la ombron de unu el la rokoj por tagmanĝi, kiam subite la kolŝito kun raŭka ekkrio montris al unu el la krutaj deklivoj, sin levantaj antaŭ ili.
+Camphuis rezignis, sed li tamen ankoraŭ momenton konsiliĝis kun la lamao, kiu ilin ĉie sekvis. Wuangji hezite cedis la proponon, post kio ili tuj foriris por serĉi la rokon de Ra. Evidentiĝis, ke ĉi tiu esploro liveris pli da malfacilaĵoj ol ili supozis, kvankam nur en unu direkto sin levis rokoj. Multajn horojn Camphuis kaj Amèn Hoeï serĉis ian ajn rekonigan signon kaj seniluziiĝinte ambaŭ fine sidiĝis en la ombron de unu el la rokoj por tagmanĝi, kiam subite la kolŝito kun raŭka ekkrio montris al unu el la krutaj deklivoj, sin levantaj antaŭ ili.
 
 ”Trovita, sinjoro!” li eligis kun brilaj okuloj.
 
@@ -1617,9 +1319,6 @@ Amèn Hoeï per firma voĉo interrompis lin.
 ĉu vi nun komprenas la interrilaton, sinjoro? Sur la roko, dediĉita al la sundio, oni skulptis la ĉefan simbolon de lia krono; eraro ne estas ebla. En la linio, kiun ni povas streki de ĉi tie ĝis la baseno de Horus, ie kuŝas la loko, kie ’Radianta Lotuso’ troviĝas . . . aŭ troviĝis,” li aldonis duonvoĉe, ĵetante al la lamao necertan rigardon.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X I
 
 SENILUZIIGA MALKOVRO
@@ -1630,12 +1329,7 @@ Camphuis kaj Amèn Hoeï kun kreskanta streĉiteco sekvis la laborojn kaj kiam n
 
 Lamao Wuangji la du lastajn tagojn ne akompanis ilin; en sia stranga vestaĵo li terure suferis pro la mortiga varmego kaj ĉar la laboroj ja ankoraŭ ne kondukos al rezulto, li preferis resti en la tendaro.
 
-En la mateno de la tria tago de ilia restado en la malnova Nekropolo de Thebe li tamen ree ĉeestis. Tre frue en la mateno li forlasis la tendaron kune kun la inĝeniero kaj la kolŝito, kiuj nur pene povis regi sian malpa-92
-
-RADIANTA LOTUSO
-
-
-ciencon. Li nur portis siajn proprajn tornistron kaj akvo-kruĉon kaj ŝajne ne trovis necese transpreni parton de ia ilaro, kiun portis la aliaj. En la proksimo de la baseno de Horus, Camphuis kaj Amèn Hoeï starigis malgrandan tendon kaj manĝinte ili tuj eklaboris.
+En la mateno de la tria tago de ilia restado en la malnova Nekropolo de Thebe li tamen ree ĉeestis. Tre frue en la mateno li forlasis la tendaron kune kun la inĝeniero kaj la kolŝito, kiuj nur pene povis regi sian malpaciencon. Li nur portis siajn proprajn tornistron kaj akvo-kruĉon kaj ŝajne ne trovis necese transpreni parton de ia ilaro, kiun portis la aliaj. En la proksimo de la baseno de Horus, Camphuis kaj Amèn Hoeï starigis malgrandan tendon kaj manĝinte ili tuj eklaboris.
 
 Ne estis malfacile al ili determini la centron de la pel-voforma baseno kaj precize en ĉi tiu loko, la inĝeniero fiksis tiucele kunportitan kampolornon sur tripiedon kaj
 
@@ -1652,9 +1346,6 @@ Efektive estis kaŭzo por konsterniĝi; ĉie li vidis sablon, eretan, akran deze
 ”ĉu tie ĉi?” li ripetis, kiam la inĝeniero ridetante al li kapjesis post lia paroleksplodo.
 
 ”Jes, ĉi sube, sinjoro,” respondis Camphuis, piedfra-pante sur la teron.
-
-
-RADIANTA LOTUSO
 
 
 ”ĉu ĉi sube? Kiom profunde?”
@@ -1680,9 +1371,6 @@ Decida gesto de la kolŝito lin interrompis.
 ”La rezulto de niaj klopodoj min interesas; mi vin helpos, sinjoro. Mi jam ofte min okupis pri tia laboro kaj ĝi vere ne estas tro peza al mi.”
 
 
-RADIANTA LOTUSO
-
-
 ”Sed la varmego, sinjoro Hoeï! Ni ne estas tiel imunaj kontraŭ ĝi kiel la beduenoj. ĉu ni ĝin eltenos?”
 
 Denove la kolŝito geste interrompis liajn kontraŭojn.
@@ -1700,9 +1388,6 @@ Tiu malpreciza taksado ŝajne nur malmulte plaĉis al la tibetano kaj li evident
 ”Se la laboro ankoraŭ tiom longe povas daŭri, mi preferas nun reiri al la tendaro, sinjoro,” li diris. ”Provizore ne necesas, ke mi estu tie ĉi, sed kiam vi trovis la kaŝejon, vi sendube tuj venos por min averti, ĉu ne?”
 
 
-RADIANTA LOTUSO
-
-
 ”Certe, sinjoro, kun plej granda plezuro,” respondis Camphuis moktone, turnante la dorson al la tibetano.
 
 Kvankam Amèn Hoeï ne scipovis la francan lingvon, li evidente komprenis, kio kaŭzis la incitiĝon de Camphuis.
@@ -1715,9 +1400,7 @@ La sekvintan matenon ili kune foriris kaj kun nova energio komencis la penigan f
 
 La brula varmego estis preskaŭ neeltenebla; la ereta, akra dezertosablo, kiu ĉion enpenetris, senkompate pi-ketis ilian haŭton kaj inflamigis la manojn kaj okulojn.
 
-Precipe Amèn Hoeï ripete devis ĉesigi la laboron. Lia 96
-
-RADIANTA LOTUSO
+Precipe Amèn Hoeï ripete devis ĉesigi la laboron. Lia
 
 
 malhardiĝinta korpo, preskaŭ senfortigita de la pereiga opiofumado, komence ne kapablis kontraŭstari tiel penigan laboron kaj plurfoje ŝajnis, ke la kolŝito devos cedi.
@@ -1739,9 +1422,6 @@ Je sia neesprimebla surprizo Camphuis ekvidis grizan muron el kalkŝtono, kiu nu
 ”Sed tamen trovis!” eligis Camphuis raŭktone.
 
 
-RADIANTA LOTUSO
-
-
 Proksimiĝinte Amèn Hoeï komencis esplori la muron per fakula rigardo. Precipe la juntoj de la fermŝtono evidente altiris lian intereson kaj subite li mallaŭte ekfajfis.
 
 ”ĉi tiu fermŝtono estas difektita, sinjoro,” li surprizite ekdiris.
@@ -1760,17 +1440,10 @@ li mirigite komencis.
 
 ”Jes, tio seniluziigas, sed tamen ne estas miriga. Multajn tombojn, precipe tiujn en la Valo de la Reĝoj, en postaj jarcentoj vizitis rabistoj. Ili prirabis la tomboĉambrojn kaj vendis la valoraĵojn en Kadesch, la Ramses-urbo, kie nestis organizita rabistaro. Eble instruitaj de siaj avide-maj pastroj, la ŝtelistoj ankaŭ ĉi tie praktikis sian profesion.”
 
-Dum la kolŝito sin klinis al pioĉo, li daŭrigis: ”Ni sufi-
-
-ĉe baldaŭ scios, kion la kaŝejo ankoraŭ enhavas; se vi bonvolas iom flankeniri, sinjoro . . . .”
+Dum la kolŝito sin klinis al pioĉo, li daŭrigis: ”Ni sufiĉe baldaŭ scios, kion la kaŝejo ankoraŭ enhavas; se vi bonvolas iom flankeniri, sinjoro . . . .”
 
 
-RADIANTA LOTUSO
-
-
-Rapide Camphuis paŝis malantaŭen por fari lokon al la kolŝito. ĉi tiu negativa rezulto de iliaj penadoj por akiri ’Radiantan Lotuson’ lin forte seniluziigis post la multpromesaj rezultoj de la unua esploro, kvankam tio ja neniel estis persona perdo por li. Per malhela rigardo li observis la penadojn de la kolŝito por foriĝi la ferm-
-
-ŝtonon kaj nur kiam ĉi tiu ekŝanceliĝis, li eksentis novan intereson. Uzante la pioĉon kiel levilon, Amèn Hoeï post lasta fortostreĉo sukcesis renversi la ŝtonon. La pecoj kun obtuza bruo falis en la sablon kaj la ŝviton forviŝan-te de la frunto, la kolŝito eligis ĝemon pro malstreĉiĝo.
+Rapide Camphuis paŝis malantaŭen por fari lokon al la kolŝito. ĉi tiu negativa rezulto de iliaj penadoj por akiri ’Radiantan Lotuson’ lin forte seniluziigis post la multpromesaj rezultoj de la unua esploro, kvankam tio ja neniel estis persona perdo por li. Per malhela rigardo li observis la penadojn de la kolŝito por foriĝi la fermŝtonon kaj nur kiam ĉi tiu ekŝanceliĝis, li eksentis novan intereson. Uzante la pioĉon kiel levilon, Amèn Hoeï post lasta fortostreĉo sukcesis renversi la ŝtonon. La pecoj kun obtuza bruo falis en la sablon kaj la ŝviton forviŝan-te de la frunto, la kolŝito eligis ĝemon pro malstreĉiĝo.
 
 Sciavide la inĝeniero proksimiĝis kaj ĵetis rigardon en la malgrandan spacon, el kiu la suno forpelis ĉiujn ombrojn. i similis tombkavaĵon kun masonitaj vandoj kaj certe estis ne pli granda.
 
@@ -1780,9 +1453,7 @@ Sciavide la inĝeniero proksimiĝis kaj ĵetis rigardon en la malgrandan spacon,
 
 ĝin prenis per ambaŭ manoj. Estis malgranda, orumita kesteto, jam kelkloke putriĝinta kaj riĉe ornamita per simbolaj figuroj. Ambaŭ viroj senparole sin rigardis kaj la streĉo, kiu ilin regis, dum momento ilin senpovigis.
 
-Fine tamen ilia sciavido ilin pelis al agado kaj kvazaŭ laŭkomande ili sidiĝis en la sablon. Neniu el ili ambaŭ 99
-
-RADIANTA LOTUSO
+Fine tamen ilia sciavido ilin pelis al agado kaj kvazaŭ laŭkomande ili sidiĝis en la sablon. Neniu el ili ambaŭ
 
 
 kuraĝis diri sian konjekton pri la enhavo kaj Camphuis singarde klopodis forigi la kovrilon. i rezistis al liaj penadoj kaj nur kiam li uzis sian tranĉilon, li sukcesis malfermi la kesteton.
@@ -1804,9 +1475,6 @@ Amèn Hoeï subite ekridegis. La inĝeniero konsternite rigardis lin kaj fine la
 ”Ne timu, sinjoro, tio, kion vi tie havas en la mano, estas mumiigita Kracus-serpento, la plej danĝera repti-lo de la antikveco kaj jam de longe formortinta.”
 
 
-RADIANTA LOTUSO
-
-
 Camphuis maltenis la strangan mumion kun rigardo plena de abomeno.
 
 ”ĉu vi pensas . . . ĉu vi kredas, ke ĉi tio estas ’Radianta Lotuso’? . . .” li hezite komencis.
@@ -1823,21 +1491,13 @@ Camphuis remetis la serpentmumion kaj la Schebti-statuetojn en la kesteton, dum 
 
 ”Ne, bedaŭrinde ne; inter ili estas tro multe da simbolaj figuroj por senstude deĉifri la surskribojn. Se vi donas al mi paperon kaj krajonon, mi ĉion kopios; tiam ni poste povos serĉi la signifon.”
 
-La inĝeniero al li transdonis la petitaĵon kaj senpacience atentis ĝis la kolŝito estis preta. La kopiado po-101
-
-RADIANTA LOTUSO
-
-
-stulis preskaŭ du horojn kaj kiam Amèn Hoeï reaperis, montriĝis stranga rigardo en liaj okuloj. Kvazaŭ li dubus pri la ĝusteco de subite naskiĝinta konjekto, li ankoraŭ foje atente tralegis la kopion kaj post tio rigardis la inĝenieron, kiu kun streĉa atento pristudis lian vizaĝon.
+La inĝeniero al li transdonis la petitaĵon kaj senpacience atentis ĝis la kolŝito estis preta. La kopiado postulis preskaŭ du horojn kaj kiam Amèn Hoeï reaperis, montriĝis stranga rigardo en liaj okuloj. Kvazaŭ li dubus pri la ĝusteco de subite naskiĝinta konjekto, li ankoraŭ foje atente tralegis la kopion kaj post tio rigardis la inĝenieron, kiu kun streĉa atento pristudis lian vizaĝon.
 
 ”Estas preskaŭ certe, ke ĉi tiuj hieroglifoj ankoraŭ multajn surprizojn al ni kaŭzos, sinjoro, sed la sekreton de ’Radianta Lotuso’ ni ĉiukaze jam solvis,” li komencis per stranga hezita voĉo.
 
 ”ĉu solvis?” rapide diris Camphuis.
 
 ”Jes kaj ĉi tiu malkovro vin denove seniluziigos, sinjoro. ’Radianta Lotuso’ ne estas tre valora juvelo, kiel ni supozis, sed junulino, laŭ aĝo preskaŭ nur infano. ŝi no-miĝis Asah Nefert kaj ŝi estis el reĝa sango.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X I I
@@ -1857,9 +1517,6 @@ Kaj jen, ’Radianta Lotuso’ figurita, junulino havanta en la mano la kroĉfor
 ”Ne,” respondis Camphuis kapneante. ”Mi kredas, ke vi pravas, sed kion enhavas la cetero de la surskribo?”
 
 
-RADIANTA LOTUSO
-
-
 ”Komunikon de la Urma de la Amontemplo kaj cetere glorigon de la Peraä; ni klopodos deĉifri ambaŭ. Sed ĉu vi nun ne preferas reiri al la tendaro? La suno senkompate brulas kaj tie ni povos trovi refreŝigon kaj pli agrablan sidlokon ol en ĉi tiu varmega sablo.”
 
 ”Jes, estas bone, sinjoro Hoeï; ni do tuj foriru, la ilaron ni poste povos forprenigi,” rapide konsentis Camphuis. Li subite pensis pri la seniluziiĝo de la lamao kiam ĉi tiu ekscios la surprizan malkovron. Dum ili malrapide kaj pene iris, Amèn Hoeï ripete ĵetis rigardon sur la kopion de la surskribo.
@@ -1873,9 +1530,6 @@ Sed la stranga esprimo en la okuloj de la kolŝito pliinten-sigis, malgraŭ ĉiu
 Tuj kiam la tendaro videbligis, Camphuis interrompis la silentadon.
 
 ”ĉu vi konsentas, ke mi unue informu la lamaon Wuangji? ĉi tiu afero same koncernas lin kiel nin kaj mi prefere ne pli longe ol necese lasas lin en streĉatendo.
-
-
-RADIANTA LOTUSO
 
 
 Por la deĉifrado de la surskribo vi ne bezonas min; mi do baldaŭ venos al vi.”
@@ -1898,9 +1552,7 @@ La sankta mastro eĉ ne per unu vorto al mi diris, ke mi konsideru vin mia kurat
 
 Wuangji mordis al si la lipojn, sed la sekvintan momenton li rapide daŭrigis: ”Kaj kie nun estas ’Radianta Lotuso’?”
 
-”Tion ni ne scias, tamen ni havas la konvn, ke ni ĉiuj eraris,” respondis Camphuis. ” ’Radianta Lotuso’ ne estas juvelo, sed egipta princino, kiu mortis antaŭ miloj 105
-
-RADIANTA LOTUSO
+”Tion ni ne scias, tamen ni havas la konvn, ke ni ĉiuj eraris,” respondis Camphuis. ” ’Radianta Lotuso’ ne estas juvelo, sed egipta princino, kiu mortis antaŭ miloj
 
 
 da jaroj. Verŝajne pro ŝia beleco oni al ŝi donis la nomon de la plej bela egipta floro!”
@@ -1919,12 +1571,7 @@ Li preskaŭ kolereksplodis, kiam de ekstere penetris ekscitita voĉo. Levante la
 
 ”ĉu mi ne diris, ke nin atendas surprizoj, sinjoro?”
 
-emocie ekkriis la kolŝito. Senceremonie li eniris, kapkli-106
-
-RADIANTA LOTUSO
-
-
-nete salutis la lamaon kaj svingante paperfolion, li daŭrigis per triumfa voĉo: ”La surskribo kaŝas novan sekreton, sinjoro: la sekreton pri reĝa tombo.”
+emocie ekkriis la kolŝito. Senceremonie li eniris, kapklinete salutis la lamaon kaj svingante paperfolion, li daŭrigis per triumfa voĉo: ”La surskribo kaŝas novan sekreton, sinjoro: la sekreton pri reĝa tombo.”
 
 ”ĉu pri reĝa tombo?” demandis Camphuis konsternite.
 
@@ -1934,9 +1581,7 @@ Per mallaŭta voĉo, kies nervan tremadon li vane klopodis subpremi, li komencis
 
 ”Ununura estas Vi, Kreinto de l’ vivantoj, Kaj nur Vi, kiu ĉion inspiras kio farigis.
 
-Je la 17-a de Tyki post la morto de reĝino Menephta mi, Pheni Aghoen, ĉefpastro de la Amontemplo, la korpon de ’Radianta Lotuso’, la nobla princino el la glora Familio de Anommephta, sekrete forprenis el la tombo, en kiun ĝi estis metita kaj ĝin transportis al iu loko en la ombroj de la rokoj de Ptah, la plej aĝa el la dioj, situantaj apud la sankta obelisko de Aboe en Boelacq, en la proksimo de la tombo de ŝia reĝa frato kaj amato, la glora Peraä de Egipto, kies vivo estis beno por ĉio vivanta en la Nil-valo, kiu estis nomata: la bona, la karulo de la dioj, la subiginto de la Semitoj kaj la venkinto de la popoloj 107
-
-RADIANTA LOTUSO
+Je la 17-a de Tyki post la morto de reĝino Menephta mi, Pheni Aghoen, ĉefpastro de la Amontemplo, la korpon de ’Radianta Lotuso’, la nobla princino el la glora Familio de Anommephta, sekrete forprenis el la tombo, en kiun ĝi estis metita kaj ĝin transportis al iu loko en la ombroj de la rokoj de Ptah, la plej aĝa el la dioj, situantaj apud la sankta obelisko de Aboe en Boelacq, en la proksimo de la tombo de ŝia reĝa frato kaj amato, la glora Peraä de Egipto, kies vivo estis beno por ĉio vivanta en la Nil-valo, kiu estis nomata: la bona, la karulo de la dioj, la subiginto de la Semitoj kaj la venkinto de la popoloj
 
 
 de Ilioena, Pidasa kaj Masa, de la Hetitoj kaj la Danaoj, kiuj estis fremdaj al la koro de Dio.
@@ -1959,16 +1604,12 @@ Wuangji, kiu ne scipovis la anglan lingvon, distrite kaj kun deturnita rigardo e
 
 ”ĉi tiuj hieroglifoj al ni malkaŝas la ekziston de reĝa tombo apud la rokoj de Ptah,” ekscitite daŭrigis la kolŝi-to. ”Kaj cetere ili nuligas ĉiun dubon pri la identeco de
 
-’Radianta Lotuso’. ŝi estis egipta princino, fratino de 108
-
-RADIANTA LOTUSO
+’Radianta Lotuso’. ŝi estis egipta princino, fratino de
 
 
 reganta Peraä kaj ties edzino. Kiel vi probable scias, geedziĝo inter frato kaj fratino ne nur estis permesita, sed eĉ kutima. Konjekteble ĉi tiu princino ankoraŭ estis juna knabino; la antikvaj egiptoj geedzigis siajn infanojn jam je dektri- kaj dekkvarjara aĝo . . . ”
 
-La inĝeniero per gesto de surprizo interrompis la kol-
-
-ŝiton.
+La inĝeniero per gesto de surprizo interrompis la kolŝiton.
 
 ”Sed kial, se ’Radianta Lotuso’ estis reĝsanga princino, ŝia mumio estis metita en tian mizeran ripozejon?”
 
@@ -1984,9 +1625,7 @@ kompletigis la inĝeniero.
 
 ”Prave kaj mi estas preta jam morgaŭ forvojaĝi,” en-tuziasme ekkriis la kolŝito. ”Atentu do, reĝa tombo! Se ni malkovros la tombon de ’Radianta Lotuso’, ne plu estos tre penige al ni trovi la lastan ripozejon de la faraono. La ĉefa malfacilaĵo estas trovi la rokojn de Ptah, sed kun iom de bonŝanco ni ankaŭ en la Valo de la Reĝoj trovos nian vojon.”
 
-Camphuis, infektita de la entuziasmo de Amèn Hoeï, febrece pripensis. La Valo de la Reĝoj estis tre vasta kaj la lokon, kiu antaŭe nomiĝis la Rokoj de Ptah, probable jam kelkajn metrojn alte kovris la sablo de la dezerto kaj 109
-
-RADIANTA LOTUSO
+Camphuis, infektita de la entuziasmo de Amèn Hoeï, febrece pripensis. La Valo de la Reĝoj estis tre vasta kaj la lokon, kiu antaŭe nomiĝis la Rokoj de Ptah, probable jam kelkajn metrojn alte kovris la sablo de la dezerto kaj
 
 
 plej verŝajne ĝi eĉ estos ne trovebla. Kaj tamen li arde deziris ĝisfine daŭrigi la esplorojn. Por tio li tamen bezonis la konsenton de Wuangji kaj ĉar evidentiĝis, ke
@@ -2008,9 +1647,6 @@ Sur la vizaĝo de la lamao glitis malestima rideto.
 ”Vi eble trompas vin mem!” stoike respondis Wuangji.
 
 
-RADIANTA LOTUSO
-
-
 ”Sed do diru al mi kiun motivon vi havas, por esti tiel certa, ke ’Radianta Lotuso’ estas tre valora juvelo,” ekkriis Camphuis preskaŭ senespera. ”La surskribo ne lasas ian dubon; jen, mi ankoraŭfoje al vi klarigu la signifon de ĉiu figuro, sinjoro.”
 
 La tibetano malŝate gestis kaj senhezite li respondis:
@@ -2027,12 +1663,7 @@ Li tamen vidis, ke la lamao serioze kredas, kaj malespera pro tiom da obstineco,
 
 La lamao efektive ŝajnis momenton kolera, sed serioze li respondis: ”Tiu ideo ne estas tiel sensenca kiel vi opinias. ĉar la konv, ke ’Radianta Lotuso’ devas esti sankta juvelo, estas bazita sur tio, kio estas skribita en la sanktaj libroj: sur plurcentjara profetaĵo en la Kandsur . . .”
 
-Camphuis preskaŭ ekridegis, sed li sin regis por ne ofendi la lamaon. Li komprenis, ke neniu mondpotenco kapablus ŝanĝi lian opinion, ĉar la Kandsur, kiu nomiĝas kanona, apartenas kun la apokrifa Tanĉur, kune ne mal-111
-
-RADIANTA LOTUSO
-
-
-pli ol 235 libregoj, al la Biblio de la tibetanoj, el kiu la lamaismo ĉerpis sian primitivan religian doktrinon.
+Camphuis preskaŭ ekridegis, sed li sin regis por ne ofendi la lamaon. Li komprenis, ke neniu mondpotenco kapablus ŝanĝi lian opinion, ĉar la Kandsur, kiu nomiĝas kanona, apartenas kun la apokrifa Tanĉur, kune ne malpli ol 235 libregoj, al la Biblio de la tibetanoj, el kiu la lamaismo ĉerpis sian primitivan religian doktrinon.
 
 Al la inĝeniero nur restis akcepti kaj respekti la opinion de la lamao, kion li faris des pli voleme, ĉar nun ili eble daŭrigos la esploron pri la reĝa tombo.
 
@@ -2051,9 +1682,6 @@ Aperis en la rigardo Je Wuangji spiona esprimo, kiu al Camphuis malagrable impre
 ”Om mani padme hum . . . Om mani padme hum . . .”
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X I I I
 
 NOKTA VIZITO
@@ -2068,12 +1696,7 @@ Fine li sin okupis pri la enigma aludo de la lamao al la profetaĵo en la Kandsu
 
 Laca pro ĉiuj ĉi demandoj, la inĝeniero fine fermis la okulojn kaj kuŝiĝis sur la flanko, post kio li baldaŭ ekdormis. Horon poste la tuta tendaro estis en profunda dormo. La luno sin kaŝis post nubaron, tamen la plane-do Marso, la ”triumfanto,” al kiu la urbo Kairo ŝuldas sian nomon, elverŝis malfortan brilon sur kaj inter la tendojn.
 
-Estis mallonge post noktmezo, kiam de la malhela maso de la kamelkaravano sin liberigis facilmova om-113
-
-RADIANTA LOTUSO
-
-
-bro, kiu plej singarde ŝteliris al la tendaro, rigardante dekstren kaj maldekstren. La ombro senbrue glitis an-taŭen kaj en la proksimo de la tendoj sin ĵetis genuen. i rampis ĝis la tendo de la inĝeniero kaj momenton aŭ-
+Estis mallonge post noktmezo, kiam de la malhela maso de la kamelkaravano sin liberigis facilmova ombro, kiu plej singarde ŝteliris al la tendaro, rigardante dekstren kaj maldekstren. La ombro senbrue glitis an-taŭen kaj en la proksimo de la tendoj sin ĵetis genuen. i rampis ĝis la tendo de la inĝeniero kaj momenton aŭ-
 
 skultinte la regulan spiradon, kiu ene sin aŭdigis, la ombro sen brueto malaperis post la kurteno . . .
 
@@ -2083,9 +1706,7 @@ Kiu aŭ kio lin vekis, li ne sciis, sed kiam li momenton kun malfermitaj okuloj 
 
 Li kuŝis streĉe aŭskultanta kaj kvankam li nenion vidis nek aŭdis, lia supozo iom post iom kreskis ĝis certeco.
 
-Subite li aŭdis malfortan brueton, tuj sekvitan de profunda ĝemo. Kio tion al li inspiris, li ne komprenis, sed ekaŭdante tiun brueton, la inĝeniero tuj pensis pri sia kofro, kiu staris flanke de lia tendolito. Singardeme li klopodis rektigi por surprizataki la enŝtelirinton, sed la skrapado de la ŝtala matraco malkaŝis lian celon. ĉar la alia ja sendube estis avertita, Camphuis sovaĝmove saltis el sia lito. Permane ĉirkaŭen palpante, li staris preta eksalti al la kurteno, kiam li subite timigite dorsenpaŝis: tuj antaŭ liajn piedojn pumfalis lia kofro. Antaŭ ol li 114
-
-RADIANTA LOTUSO
+Subite li aŭdis malfortan brueton, tuj sekvitan de profunda ĝemo. Kio tion al li inspiris, li ne komprenis, sed ekaŭdante tiun brueton, la inĝeniero tuj pensis pri sia kofro, kiu staris flanke de lia tendolito. Singardeme li klopodis rektigi por surprizataki la enŝtelirinton, sed la skrapado de la ŝtala matraco malkaŝis lian celon. ĉar la alia ja sendube estis avertita, Camphuis sovaĝmove saltis el sia lito. Permane ĉirkaŭen palpante, li staris preta eksalti al la kurteno, kiam li subite timigite dorsenpaŝis: tuj antaŭ liajn piedojn pumfalis lia kofro. Antaŭ ol li
 
 
 malkonsterniĝis, li vidis, ke la kurteno estas levata kaj ke malklara ombro forlasas la tendon.
@@ -2096,9 +1717,7 @@ Seniluziiĝinta kaj konsterniĝinta la inĝeniero vagigis sian rigardon sur la �
 
 Veninte al la kameloj kaj absorbiĝinte en iliajn ombrojn, la viro ŝajne kvazaŭ englutiĝis de la tero; neniun signon li postlasis kaj per okuloj plenmiraj la inĝeniero ĉirkaŭen rigardis. Subite aperis en liaj okuloj esprimo de konfuzego: klare li vidis, ke moviĝas la kurteno antaŭ la tendo de la edzino de Hussein kaj ke ĝi momenteton poste peze refalas.
 
-Konsternita, ne kredante siajn okulojn, li fiksrigardis al la tendo, kvazaŭ li atendus, ke la mistera penetrinto tuj reaperos. Sin montris tamen neniu kaj kvazaŭ en 115
-
-RADIANTA LOTUSO
+Konsternita, ne kredante siajn okulojn, li fiksrigardis al la tendo, kvazaŭ li atendus, ke la mistera penetrinto tuj reaperos. Sin montris tamen neniu kaj kvazaŭ en
 
 
 sonĝo la inĝeniero traesploris la kamelkuŝejon, en kiu li tamen trovis neniun homan estaĵon.
@@ -2111,9 +1730,7 @@ Camphuis staris antaŭ enigmo, kiu ne lasis lin kvieta.
 
 Duafoje irante laŭlonge de la tendoj, li snvinkis, ke ankaŭ Amèn Hoeï enestas kaj fine li komprenis, ke estus vane daŭrigi la serĉadon. Reveninte en sian tendon li prenis revolveron el sia kofro kaj kvankam li estis certa, ke la penetrinto aŭ penetrintino ne riskos duafoje lin viziti, li vestita surlitiĝis.
 
-Li tamen ne plu sukcesis ekdormi; la demando, ĉu vere estis la edzino de Hussein, kiu klopodis lin prirabi, multajn horojn lin okupis. La intenco eĉ ne momenton 116
-
-RADIANTA LOTUSO
+Li tamen ne plu sukcesis ekdormi; la demando, ĉu vere estis la edzino de Hussein, kiu klopodis lin prirabi, multajn horojn lin okupis. La intenco eĉ ne momenton
 
 
 ŝajnis al li duba; oni volis porti la kofron ekster la tendaron, por povi senĝene ĝin rompmalfermi kaj traesplori.
@@ -2135,9 +1752,6 @@ Komence brilis malkredo kaj miro en la rigardo de Hussein, kiujn tamen baldaŭ a
 ”ĉu vi estas certa, sinjoro, ke la ŝtelisto malaperis en la tendo de mia edzino?” li demandis per necerta voĉo.
 
 
-RADIANTA LOTUSO
-
-
 ”Absolute certa, estiminda amiko kaj ĉar mi scias kiel zorgplene vi ŝin gardas kontraŭ kontakto kun aliaj, al mi nur restas la konkludo, ke via edzino estis en sonĝa stato kaj dormante forlasis sian tendon por penetri en mian.”
 
 La voĉo de Camphuis sonis moke kaj Hussein evidente troviĝis en granda embaraso. ŝajnis tamen, ke li volonte prenas serioza la ironie eldiritan supozon, ke lia edzino estas somnambulino.
@@ -2150,9 +1764,7 @@ Camphuis komprenis, ke estas plej bone ne plu paroli pri la nokta vizito; li nee
 
 La bedueno silente riverencis kaj rapide foriris, evidente ĝoja, ke li ne pli forte premiĝis al la muro.
 
-Meditante la inĝeniero reiris al la tendaro; por si mem li ankoraŭ ne trovis kontentigan solvon por la stranga historio, tamen li decidis pli atenti la tendon de la edzino de Hussein. ĉar li subite denove scivolemiĝis pri la 118
-
-RADIANTA LOTUSO
+Meditante la inĝeniero reiris al la tendaro; por si mem li ankoraŭ ne trovis kontentigan solvon por la stranga historio, tamen li decidis pli atenti la tendon de la edzino de Hussein. ĉar li subite denove scivolemiĝis pri la
 
 
 decido, kiun Wuangji promesis fari, li iris al ties tendo kaj laŭtsalute eniris.
@@ -2161,15 +1773,7 @@ decido, kiun Wuangji promesis fari, li iris al ties tendo kaj laŭtsalute eniris
 
 La lamao nur ĵus sin vestis kaj ĝuste prenis en la manon la preĝilon, kiun li rapide remetis, kiam la inĝeniero eniris. Camphuis kaptis konfuzan rigardon kaj li tuj komprenis, ke la respondo embarasigis la lamaon. Momenton hezitinte, la lamao trenpiede forlasis sian tendon kaj esplorrigardis la ĉielon, kvazaŭ li volus ekzameni la veteron antaŭ ol decidi. La inĝeniero estis lin sekvinta; starante flanke de li, li streĉe atendis la respondon. La okuloj de Wuangji ŝajne sencele vagis de la ĉielo al la ĉirkaŭo, ĝis kiam ili ekripozis sur la tendo de la ŝejk-edzino. Subite lia hezito ŝajne malaperis kaj sin turnante al la inĝeniero kun rigardo kiu klare esprimis seniluziiĝon, li fine respondis: ”Ni hodiaŭ forvojaĝos al la Valo de la Reĝoj, sinjoro; ’Radianta Lotuso’ nepre estu trovata.”
 
-Post ĉi tiuj vortoj li malaperis en sia tendo, lasante Camphuis sola en granda miro. La inĝeniero estis sekvinta la serĉantajn rigardojn de la lamao kaj tio, kion ĉi tiu vidis, ne restis al li kaŝita: tie, ĉe la enirejo de la tendo de la edzino de Hussein, flirtis en la vento kolora tu-ko kaj li kuraĝus ĵuri, ke ĉi tio estas la signo, kiu la lamaon decidigis forvojaĝi al la Valo de la Reĝoj . . . Kun sento kvazaŭ li vagus en nereala mondo plena de sekre-119
-
-RADIANTA LOTUSO
-
-
-toj, Camphuis fine sin deturnis kaj iris al Hussein ebn Ahmed por al li doni instrukciojn por la vojaĝo al la fama Valo de la Reĝaj Tomboj.
-
-
-RADIANTA LOTUSO
+Post ĉi tiuj vortoj li malaperis en sia tendo, lasante Camphuis sola en granda miro. La inĝeniero estis sekvinta la serĉantajn rigardojn de la lamao kaj tio, kion ĉi tiu vidis, ne restis al li kaŝita: tie, ĉe la enirejo de la tendo de la edzino de Hussein, flirtis en la vento kolora tu-ko kaj li kuraĝus ĵuri, ke ĉi tio estas la signo, kiu la lamaon decidigis forvojaĝi al la Valo de la Reĝoj . . . Kun sento kvazaŭ li vagus en nereala mondo plena de sekretoj, Camphuis fine sin deturnis kaj iris al Hussein ebn Ahmed por al li doni instrukciojn por la vojaĝo al la fama Valo de la Reĝaj Tomboj.
 
 
 ĉ A P I T R O X I V
@@ -2182,23 +1786,16 @@ Kiam fine certiĝis, ke oni daŭrigos la esploron pri
 
 ’Radianta Lotuso’, Camphuis plej turmentis la demando, per kio ili komencu la esploron. La Valo de la Reĝoj estis kvazaŭ ĉifre verkita libro, kies ŝlosilon neniu posedis kaj kies signifon oni povis pli diveni ol kompreni. La nura scio, kiu el ĉi tiu libro al li restis, rilatis al la historio de la malkovritaj reĝaj tomboj kaj tiu scio estis preskaŭ tute senvalora por la celo, kiun ti klopodis atingi.
 
-Al la ĉion superanta demando kie oni devas serĉi la Rokojn de Ptah, ankaŭ Amèn Hoeï ne povis trovi respondon kaj dum la vojaĝo ili multajn tagojn sin okupis pri la kopio de la surskribo, kvankam ili jam de longe konvinkiĝis, ke ili eĉ ne etan indikon en ĝi trovos. Ili havis prosperan vojaĝon, ili spertis nek danĝeron, nek kontraŭaĵon kaj eĉ Wuangji ne kaŭzis malkontenton aŭ indignon. Vespere de la tria tago post ilia forvojaĝo, ŝej-ko Hussein starigis la tendojn je distanco de duontaga vojaĝo de Luxor. Oni ĉi tie troviĝis ĉe la rando de la Li-bia dezerto, en la tuja proksimo de la Valo de la Reĝoj, 121
-
-RADIANTA LOTUSO
+Al la ĉion superanta demando kie oni devas serĉi la Rokojn de Ptah, ankaŭ Amèn Hoeï ne povis trovi respondon kaj dum la vojaĝo ili multajn tagojn sin okupis pri la kopio de la surskribo, kvankam ili jam de longe konvinkiĝis, ke ili eĉ ne etan indikon en ĝi trovos. Ili havis prosperan vojaĝon, ili spertis nek danĝeron, nek kontraŭaĵon kaj eĉ Wuangji ne kaŭzis malkontenton aŭ indignon. Vespere de la tria tago post ilia forvojaĝo, ŝej-ko Hussein starigis la tendojn je distanco de duontaga vojaĝo de Luxor. Oni ĉi tie troviĝis ĉe la rando de la Li-bia dezerto, en la tuja proksimo de la Valo de la Reĝoj,
 
 
-La espero, ke la sekvontan posttagmezon ili atingos la iaman urbon, bonhumorigis ĉiujn kaj post kiam oni kuŝ-
-
-igis kaj nutris la kamelojn, ĉiuj ĝoje ekmanĝis. Trinkin-te kafon kaj duonvarman ŝerbeton, la beduenoj sidiĝis ĉirkaŭ sia fabelisto, dum Camphuis kaj Amèn Hoeï malrapide forpromenis de la tendaro por ankoraŭfoje kviete interkonsiliĝi.
+La espero, ke la sekvontan posttagmezon ili atingos la iaman urbon, bonhumorigis ĉiujn kaj post kiam oni kuŝigis kaj nutris la kamelojn, ĉiuj ĝoje ekmanĝis. Trinkin-te kafon kaj duonvarman ŝerbeton, la beduenoj sidiĝis ĉirkaŭ sia fabelisto, dum Camphuis kaj Amèn Hoeï malrapide forpromenis de la tendaro por ankoraŭfoje kviete interkonsiliĝi.
 
 Baldaŭ laciĝintaj, ili eksidis en la proksimo de la kameloj, havante vidon sur la tendon de la edzino de Hussein, kies mistereco pli kaj pli ekscitis Camphuis. Post kiam ili kelkan tempon vagrigardis, Amèn Hoeï fine rompis la silenton.
 
 ”Ni serĉu elturniĝon, sinjoro; tiu ĉi vojaĝo estos tute vana, se ni ne baldaŭ povos akiri certecon pri la ekzisto de la rokoj de Ptah. Kvankam ni ekvojaĝis kun la intenco preni gvidiston en Luxor, mi estas preskaŭ certa, ke la scio de tia viro ne sufiĉas por niaj esploroj.”
 
 ”Jes, sed kion do vi volas, sinjoro Hoeï?” kontraŭis Camphuis. ”Mi konsentas; la entrepreno estas riska kaj sen helpo de gravaj indikoj, la ŝanco pri sukceso estas preskaŭ nula, sed ni tamen iom risku. Lastnokte mi subite rememoris, ke mia patro interrilatis kun profesoro Ami Agha, samlandano via. Li estas fama esploristo kaj rilate al la geografia situacio de la Valo de la Reĝoj, lia opinio havas aŭtoritaton en la tuta mondo.
-
-
-RADIANTA LOTUSO
 
 
 Ami Agha oficas en la muzeo de Luxor; tuj post nia alveno en la urbon mi interrilatos kun li. Se iu, li povos helpi nin . . . ”
@@ -2209,9 +1806,7 @@ Camphuis subite ĉesis paroli kaj kun mallaŭta ”ssst”
 
 ”Jen vidu, ĉu tio ne estas Wuangji?” li flustris.
 
-Amèn Hoeï en la krepusko vidis figuron alproksimi-
-
-ĝi kaj jese kapmovis.
+Amèn Hoeï en la krepusko vidis figuron alproksimiĝi kaj jese kapmovis.
 
 ”Kial do tiu viro ĉiam vagas en la proksimo de la kameloj kaj ĉe la tendo de la edzino de Hussein?” surprizite demandis Camphuis. ”Mi jam kvin aŭ sesfoje vidis lin fari tiun promenon kaj ĉiufoje mi ekhavis la senton, ke ĝi ne estas tiel sencela kiel ĝi ŝajnas. Jen, nun li hal-tas . . . ne, li sidiĝas tuj post la kameloj, ĉu vi vidas?”
 
@@ -2223,16 +1818,9 @@ konfuzite flustris la kolŝito.
 
 Camphuis konsternite ekrigardis. En la enirejo de la tendo staris longa figuro, volvita en blanka vestaĵo, kun la kapo kovrita de la kapuĉo.
 
-”ĉu tio estas . . . la edzino de Hussein?” ripetis la kol-
+”ĉu tio estas . . . la edzino de Hussein?” ripetis la kolŝito aŭtomate.
 
-ŝito aŭtomate.
-
-La inĝeniero ne respondis, tamen streĉatente fiksrigardis al la tendo. Li vidis, ke la mistera nekonato ĵe-123
-
-RADIANTA LOTUSO
-
-
-tas esplorrigardon en la ĉirkaŭon kaj post tio rapidpaŝe iras al la loko, kie sidiĝis lamao Wuangji.
+La inĝeniero ne respondis, tamen streĉatente fiksrigardis al la tendo. Li vidis, ke la mistera nekonato ĵetas esplorrigardon en la ĉirkaŭon kaj post tio rapidpaŝe iras al la loko, kie sidiĝis lamao Wuangji.
 
 Tute konsternite, ne kredante siajn okulojn Amèn Hoeï kaj Camphuis sin rigardis.
 
@@ -2246,9 +1834,7 @@ Nek la inĝeniero, nek la kolŝito kuraĝis rompi la silenton; maltrankvile ili 
 
 Laŭ signo de la inĝeniero, Amèn Hoeï kiel eble plej retiris sin en la ombron kaj sterniĝinte sur la tero, tuj apud kamelo, ili vidis la nekonaton ĉiam pli proksimiĝi.
 
-En la okuloj de Camphuis subite aperis esprimo de konfuzego; klare li rimarkis, ke la alia — viro aŭ virino 124
-
-RADIANTA LOTUSO
+En la okuloj de Camphuis subite aperis esprimo de konfuzego; klare li rimarkis, ke la alia — viro aŭ virino
 
 
 — tenas en la mano objekton, kiun li ja tre bone konis: tibetan preĉilindron. Momenton poste lia orelo kaptis duonlaŭte murmuritajn vortojn kaj plene surprizite li ekprenis la kolŝiton ĉe la brako. Li mordis siajn lipojn por ne perdi la sinregon kaj la spiron retenante por ne esti rimarkata, li vidis la nekonaton preterpasi je distanco de kvar aŭ kvin metroj.
@@ -2263,16 +1849,12 @@ Sur la pala vizaĝo de Camphuis glitis grimaco. Li atendis ĝis la alia preterpa
 
 La viro plentime lin rigardis kaj Camphuis grimace turnis sin al Amèn Hoeï, kiu rapide estis alkurinta por lin helpi.
 
-”Ne, ni ne bezonas timi; la viro estas malbravulo kaj jam duonmorta pro timego,” la inĝeniero rifuzis lian 125
-
-RADIANTA LOTUSO
+”Ne, ni ne bezonas timi; la viro estas malbravulo kaj jam duonmorta pro timego,” la inĝeniero rifuzis lian
 
 
 helpon. ”Vi bonvolu tamen iom lumigi al mi; mi estas scivola, kiu estas tiu fremda sinjoro. ĉu vi bonvolas bruligi kelkajn alumetojn, sinjoro Hoeï?”
 
-Tuj kiam la flagranta alumetflameto lumigis la viza-
-
-ĝon de la fremdulo, Camphuis eligis krion pro surprizo; li rekonis la ĉinon, kiun li antaŭe jam dufoje renkontis, la amikon de lamao Wuangji.
+Tuj kiam la flagranta alumetflameto lumigis la vizaĝon de la fremdulo, Camphuis eligis krion pro surprizo; li rekonis la ĉinon, kiun li antaŭe jam dufoje renkontis, la amikon de lamao Wuangji.
 
 ”ĉu vi lnas, sinjoro?” demandis Amèn Hoeï scivole.
 
@@ -2280,9 +1862,7 @@ Tuj kiam la flagranta alumetflameto lumigis la viza-
 
 ’Radianta Lotuso’ forkuru kun la juvelo. La ŝejko kompreneble estis subaĉetita por sekrete lin kunvojaĝigi kun la karavano kaj dum la vojaĝo, la du tibetanoj daŭre in-terkontaktis. La nokta vizito al lia tendo celis traesplori lian kofron; oni suspektis, ke li post la malkovro de la kaŝejo en Thebe, konsente kun Amèn Hoeï, malaperigis la juvelon.
 
-Kiam Camphuis tiel plue pensis, ĉio al li fariĝis klara: la prokrastita forvojaĝo al Luxor, la seniluzia rigardo de la lamao, kiam li vidis koloran tukon pendi sur la tendo 126
-
-RADIANTA LOTUSO
+Kiam Camphuis tiel plue pensis, ĉio al li fariĝis klara: la prokrastita forvojaĝo al Luxor, la seniluzia rigardo de la lamao, kiam li vidis koloran tukon pendi sur la tendo
 
 
 de la ĉino kaj la post tio sekvinta permeso daŭrigi la esploron.
@@ -2304,9 +1884,6 @@ Camphuis tuj ekstaris kaj ekridegis.
 ”Stariĝu: ne timu, sed la komedio finiĝis, sinjoro Lu Tszang. Mi iom esploros vian tendon kaj tiam vi iru kun mi al la tendaro; tie vi povos konsiliĝi kun via amiko Wuangji, kion vi faru, ĉu reiri al Kairo, ĉu pluvojaĝi kun ni.”
 
 
-RADIANTA LOTUSO
-
-
 Kun ĝemo pro malŝarĝiĝo la ĉino stariĝis kaj irante flanke de la inĝeniero, li sekvis lin al la tendaro. La fluga esploro pruvis, ke Camphuis prave konjektis; post signo de la ”preferatino” de la ŝejko ne estis trovebla kaj, krom kolosa preĝilo kaj tibeta monaą robo, li nur trovis kelkajn tolaĵojn. Meditante li kun Amèn Hoeï kaj la mistera gasto iris al la tendaro.
 
 Ilia alveno vekis plej grandan konsterniĝon. Lamao Wuangji jam troviĝis en sia tendo, sed la beduenoj ankoraŭ sidis ĉirkaŭ la preskaŭ estingiĝinta fajro.
@@ -2321,9 +1898,7 @@ La ŝejko en la unuaj momentoj ne trovis respondon, sed subite li firmdecide lev
 
 ”ĉu vi tion ne konsideris krimo? Tion klarigu!” rediris Camphuis sciavide.
 
-”La fremda viro venis al mi petante permeson por kunvojaĝi kun ni al Erment. Li diris, ke li estas frato de la alia fremdulo kaj ke li havas zorgojn pri ties bonfar-to. Li al mi proponis dumil piastrojn por kaŝi lin, ĉar li 128
-
-RADIANTA LOTUSO
+”La fremda viro venis al mi petante permeson por kunvojaĝi kun ni al Erment. Li diris, ke li estas frato de la alia fremdulo kaj ke li havas zorgojn pri ties bonfar-to. Li al mi proponis dumil piastrojn por kaŝi lin, ĉar li
 
 
 timis, ke vi ne konsentos lian kunvojaĝon. La afero ŝajnis al mi negrava, sinjoro kaj kiam mi de vi eksciis, ke li ŝteleniris vian tendon, mi ne plu fidis lin. Mi tiam al li diris, ke mi postlasos lin sola en la dezerto, se li riskos duafoje veni en la tendaron kaj ĉar via sendanĝereco tre interesis min, mi post tiu tempo ĉiunokte gardigis vian tendon.”
@@ -2338,9 +1913,7 @@ Li tamen komprenis, ke li ne senproteste povas akcepti tiun senkulpigon por ne p
 
 ”La fremdulo mem decidu kion li volas: reiri al Kairo aŭ plue vojaĝi kun ni. Mi nun kondukos lin al lia amiko; morgaŭ vi povos loki lian tendon ĉe la niaj.”
 
-Hussein ebn Ahmed profunde riverencis, ĝoja kaj dankema, ke li tiel elturniĝis; dum la interparolado li 129
-
-RADIANTA LOTUSO
+Hussein ebn Ahmed profunde riverencis, ĝoja kaj dankema, ke li tiel elturniĝis; dum la interparolado li
 
 
 evidente timis, ke li devos cedi siajn dumil piastrojn, kiujn li ricevis krom la postulita sumo. Farante signon al Amèn Hoeï, ke li ne sekvu lin, Camphuis iris kun la ĉino al la tendo de Wuangji.
@@ -2350,9 +1923,6 @@ La lamao jam kuŝis sur la lito, sed kiam la inĝeniero al li petis veni ekstere
 ”Mi malkovris bonan amikon vian, kiu evidente ĝis ĉi tie vin sekvis por postuli sian rekompencon por la helpo, kiun li sur la ’Sirus’ al vi havigis,” komencis Camphuis moke.
 
 La lamao konfuze lin rigardis kaj farante paŝon returne, Camphuis alŝovis la timeman ĉinon kaj mokridante foriris.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X V
@@ -2365,12 +1935,7 @@ Camphuis certigis, ke li ne kontraŭas tion kaj nun, akompanata de du spionoj, l
 
 Pensante pri la seniluziiĝo, kiun rezultis la esploro, Camphuis momenton sentis sin malkvieta. ĉu Dalai-lamao iam estos konvinkebla pri la grandega eraro, sur kiu baziĝas la historio de ’Radianta Lotuso’, ĉar ja la sankta Kandsur mencias la ekziston de tiu juvelo?
 
-La inĝeniero tute ne estis certa pri tio kaj por senmo-tivigi la malfidon de Dalai-lamao, li decidis partopreni-gi Wuangji en ĉiuj interkonsiliĝoj kaj ne plu agi propr-131
-
-RADIANTA LOTUSO
-
-
-iniciate kiel antaŭe. Post la manĝo li do iris al la tendo de Wuangji kaj al li petis la sekvontan matenon akompani lin al la muzeo en Luxor.
+La inĝeniero tute ne estis certa pri tio kaj por senmo-tivigi la malfidon de Dalai-lamao, li decidis partopreni-gi Wuangji en ĉiuj interkonsiliĝoj kaj ne plu agi propriniciate kiel antaŭe. Post la manĝo li do iris al la tendo de Wuangji kaj al li petis la sekvontan matenon akompani lin al la muzeo en Luxor.
 
 ”Kial sinjoro?”
 
@@ -2391,9 +1956,6 @@ promesis Wuangji, iom levante la ŝultrojn.
 Camphuis kontentiĝis kaj kun saluteto li eliris el la tendo.
 
 
-RADIANTA LOTUSO
-
-
 Pasiginte preskaŭ sendorman nokton, li en la mateno iris kun la lamao al la urbo kaj sin direktis al la muzeo, kie la profesoro lin tuj akceptis.
 
 Profesoro Ami Agha estis unu el la plej spertaj egip-tologoj de la lasta tempo kaj precipe li famiĝis per publi-kigo de siaj studoj pri la epoko de la Ptolemeoj. Li estis egiptano pro naskiĝo kaj faris gravajn malkovrojn en la Valo de la Reĝoj, sed nun li precipe sin okupis per kom-pilo de biografioj de la faraonoj, kies vivon li esploris per malnovaj papirusoj kaj surskriboj de la monumentoj.
@@ -2403,9 +1965,6 @@ La profesoro kun ĝentila afableco akceptis Camphuis, kiu sin prezentis kiel fil
 Camphuis ne havis motivon por ne informi la scienculon pri la antaŭhistorio de sia vizito kaj pro tio li komencis per la rakonto, kiel li kontaktiĝis kun Dalai-lamao de Tibeto. Post tio li rakontis pri sia komisio kaj pri la historio de la papirusoj, post kio Ami Agha lin subite interrompis.
 
 ”Kiel tiuj papirusoj venis en posedon de la reganto de lando, kiu tute ne okupas sin pri scienco aŭ arto?” surprizite informpetis la profesoro.
-
-
-RADIANTA LOTUSO
 
 
 ”Eble sinjoro Wuangji pri tio al vi povas doni klarigon, sinjoro profesoro,” respondis Camphuis, scivole rigardante la lamaon.
@@ -2426,9 +1985,7 @@ La inĝeniero donis ilin al li kaj dum kvaronhoro la profesoro restis enprofundi
 
 ĉu vi eble scias, de kie ili venis?” la profesoro fine sin returnis al la inĝeniero.
 
-”Oni trovis ilin en la torako de mumio de paraŝito, kies tombo hazarde malkovriĝis, sinjoro,” respondis Camphuis. La malkovrantoj estis la patro de Amèn Hoeï, 134
-
-RADIANTA LOTUSO
+”Oni trovis ilin en la torako de mumio de paraŝito, kies tombo hazarde malkovriĝis, sinjoro,” respondis Camphuis. La malkovrantoj estis la patro de Amèn Hoeï,
 
 
 kolŝito en Erment kaj anglo, Edward Pike, kiu poste pereis en Tibeto.”
@@ -2450,9 +2007,6 @@ Ami Agha iom levis la ŝultrojn kaj petis al Camphuis daŭrigi. Kun intereso li 
 ”Kiel vi vidas, la surskribo malsekretigas la ekziston de du tomboj apud la rokoj de Ptah,” fine daŭrigis Camphuis.
 
 
-RADIANTA LOTUSO
-
-
 ”Reĝa tombo kaj tiu de la princino, kiu nomiĝis ’Radianta Lotuso’. Tio al ni ŝajnis tiel interesa, ke ni decidis daŭrigi la esploron. Ni tamen tie ĉi estas fremdaj kaj tial ni permesis al ni peti vian konsilon,” finis la inĝeniero sian rakonton.
 
 ”Kaj per tio vi iris la plej mallongan kaj plej bonan vojon,” konstatis Ami Agha kun duonrideto. ”Sed bonvolu unue al mi diri, kial vi tiel deziras nudigi tiujn tombojn, mia kara amiko?”
@@ -2468,9 +2022,6 @@ La tibetano maltrankvile sin movis sur sia seĝo kaj Ami Agha rediris ridetante:
 ”Sekretoj, sekretoj, kiom da sekretoj!” . . . iom moke ekkriis la profesoro.
 
 
-RADIANTA LOTUSO
-
-
 Li kapskuis kaj ree sin turnis al la inĝeniero. ”Via deklaro, ke profitemo kaj sensaciemo estas al vi fremdaj ĉe ĉi tiu esplorado, faras al mi multe da plezuro, kara amiko. Vi des pli facile konsoliĝos pri la seniluziiĝo, kiun mi al vi devas kaŭzi.”
 
 ”ĉu seniluziiĝo, sinjoro?” demandis Camphuis, dum momento opiniante, ke Ami Agha rifuzas siajn helpon kaj konsilon.
@@ -2480,12 +2031,8 @@ Li kapskuis kaj ree sin turnis al la inĝeniero. ”Via deklaro, ke profitemo ka
 Kun rideto li ekstaris kaj sekvata de la inĝeniero kaj la lamao li eliris el la ĉambro, trairis kelkajn altajn, freŝajn koridorojn kaj fine haltis antaŭ larĝa pordo.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X V I
 
-RADIANTA LOTUSO
 
 La profesoro antaŭiris siajn gastojn en vastan, luman salonon, kies muroj estis pentrumitaj per antikvegiptaj prezentaĵoj. Pendis stranga, dolĉa odoro en la ĉambrego kaj la silento tiel solenigis, ke oni sin kredus en preĝejo.
 
@@ -2494,9 +2041,6 @@ En granda nombro da vitraj trezorujoj kuŝis elmontri-taj multaj valoraĵoj el l
 La profesoro alpaŝis ĝis tuj antaŭ la sarkofago, momenton glitigis sian admiran rigardon sur la lignoskulptaĵon kaj post tio al du salongardistoj signe ordonis forpreni la kovrilon. Tiam li sin turnis al la inĝeniero kaj la lamao.
 
 ”ĉi tie ripozas ’Radianta Lotuso’, sinjoroj kaj mi elkore esperas, ke ĉi tiu, ŝia lasta ripozo, ne tiom ofte estos in-terrompata kiom ŝia antaŭa.”
-
-
-RADIANTA LOTUSO
 
 
 La lamao iom sin klinis super la vitroplaton, kiu la keston fermis kaj tuj returne pasante, li kun konsternita mieno kaj per tremanta voĉo demandis:
@@ -2511,12 +2055,7 @@ La profesoro eksilentis kaj kaptita de stranga emocio, ankaŭ Camphuis fine sin 
 
 La mumio de la princino konjektigis, ke Asah Nefert ne estis multe pli ol infano, kiam ŝi mortis, ĉar ĝi havis longecon de dektri- aŭ dekkvarjara knabino. La vizaĝo estis malŝvelinta, tamen la trajtoj bone konserviĝis kaj se la koloro kaj la ŝrumpinta frunto ne divenigus la grandaĝon de la mumio, oni kredus, ke la princino nur ĵus mortis.
 
-Camphuis paŝis returne kaj Ami Agha faris signon al la gardisto, ke li refermu la sarkofagon. Post tio li an-139
-
-RADIANTA LOTUSO
-
-
-tadiris la aliajn al sia studĉambro kaj tuj kiam ili sidis, Wuangji unuafoje riskis fari demandon.
+Camphuis paŝis returne kaj Ami Agha faris signon al la gardisto, ke li refermu la sarkofagon. Post tio li antadiris la aliajn al sia studĉambro kaj tuj kiam ili sidis, Wuangji unuafoje riskis fari demandon.
 
 ”Se do estas vere, ke ĉi tiu junulino estis nomata ’Radianta Lotuso’, kiu do kun certeco povas diri, ke ŝi estas identa kun la juvelo, kiun indikas la papirusoj? Esploro ĉe la rokoj de Ptah . . .”
 
@@ -2531,9 +2070,6 @@ La tombojn oni ankaŭ malkovris kaj en unu el ili ni trovis la mumion, kiun vi �
 ”Ne!” decide diris Ami Agha. ”Ni trovis nur la mumion de princino Asah Nefert kaj en ĝia proksimo riĉan reĝan tombon. Se vi el la vortoj de la papirusoj, en kiuj la brilo de ’Radianta Lotuso’ estas komparata kun tiu de la tago, konkludis, ke paroliĝas pri diamanto, mi duafoje devas vin seniluziigi; la antikvaj egiptanoj neniam konis la juvelon, kiun ni nomas diamanto, sinjoro . . . ”
 
 ĉi tiu respondo fine ŝajnis sufiĉa al la lamao kaj kun konsternita rigardo, direktita al la planko, li enprofundiĝis en nigran meditadon.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X V I I
@@ -2552,9 +2088,7 @@ Malgraŭ sia antipatio al la lamao, li tamen lmpatis. Li komprenis kiel ĉagreni
 
 ”Tia ĝi efektive estis,” jesigis la profesoro. ”La vivo de
 
-’Radianta Lotuso’, kiu ŝajne naskiĝis por la feliĉo, fariĝis 141
-
-RADIANTA LOTUSO
+’Radianta Lotuso’, kiu ŝajne naskiĝis por la feliĉo, fariĝis
 
 
 dramo, kiun ni nur parte povis rekonstrui per diversloke trovitaj papirusoj kaj per la surskriboj sur la vandoj de la rokoj de Ptah. Pri tio mi volas iom rakonti al vi koncize:
@@ -2565,9 +2099,7 @@ La princino estis dekkvarjara kiam ŝi favore decidis pri la edziĝopeto de sia 
 
 Ilian feliĉon tamen grave minacis la intrigoj de pastropartio, kiu pro ĉiaj politikaj motivoj la junan reĝon prefere edzigus al fremda reĝofamilio. Ili klopodis kaŭzi edziĝrompon kaj fine ili sukcesis per kalumniaj kulpigoj estigi disiĝon inter la geamantoj. Por kompletigi la disiĝon oni iun vesperon pretekste logis la princinon el la palaco al la kabano de la paraŝito Noeme, nepurulo do.
 
-ĉi tie ŝin surprizis helpantoj de la pastropartio, kiuj ŝin 142
-
-RADIANTA LOTUSO
+ĉi tie ŝin surprizis helpantoj de la pastropartio, kiuj ŝin
 
 
 malhonoris, pro tio ke ŝi, estaĵo didevena, sin makulis en nepura ĉirkaŭo. La egiptaj leĝoj ĉi rilate estis tre severaj kaj la popolo kaj la pastroj postulis, ke la kronprinco forpuŝu sian edzinon. Incitita kaj trompita de siaj kon-silantoj, li efektive sin deturnis de la princino, eksedziĝis kaj ŝin sendis al malinda restadejo en la kabano de me-gero, kiu sukcesis en tri monatoj ŝin turmentmortigi.
@@ -2581,9 +2113,6 @@ Dum kelkaj momentoj regis silento en la ĉambro, sed fine la inĝeniero rompis �
 ”Nu, ni nun scias, ke la paraŝito Noeme, helpanto de la pastro-partio, faris la promeson transporti la mumion de la princino al la tombo de ŝia edzo. Tute senkulpa, ŝi sendube esperis esti kunigita kun li en la regno de la mortintoj. Noeme, kiu devis ŝin mumiigi, konjekteble ricevis tiun talenton da arĝento de la amikoj de la princino. La resto facile estas divenebla. La paraŝito timis la venĝon de la dioj kaj konfesis al la ĉefpastro, al kiu senpripensa promeso li sin devigis.
 
 
-RADIANTA LOTUSO
-
-
 Oni lin absolvis, tamen kiel puno al li elpikigis la okuloj. Post lia morto oni la absolvon al li kundonis en la torako, kie antaŭ preskaŭ tridek jaroj ĝin trovis majoro Pike. Per ĉi tio la tuta interrilato inter la okazintaĵoj estas klarigita, ĉu ne?”
 
 ”Efektive, sed kiel la mumio de Asah Nefert poste tamen kuniĝis kun tiu de ŝia edzo, sinjoro profesoro?”
@@ -2594,9 +2123,7 @@ Oni lin absolvis, tamen kiel puno al li elpikigis la okuloj. Post lia morto oni 
 
 ”Kie ĝin malkovris vi?” demande kompletigis Camphuis.
 
-”Ne, ne mi; mi tamen partoprenis la esploron kiel reprezentanto de la egipta registaro. Ankaŭ tiu historio estas tre interesa. Antaŭ proksimume tridek jaroj ekster-landaj arkeologoj sin okupis pri la esploroj apud la loko, kiu antaŭe nomiĝis la Rokoj de Ptah. Ili esperis tie trovi la restaĵojn de Anubis-templo, pri kiuj poste evidentiĝis, ke ĝi kuŝas kilometron pli sude. Dum ĉi tiu esploro ili trovis la roktombon de Asah Nefert. Ili ĝin malfermis kaj la sarkofagon transportigis tien ĉi. La surskriboj en la tombo donis certecon, ke kuŝas reĝa tombo en la 144
-
-RADIANTA LOTUSO
+”Ne, ne mi; mi tamen partoprenis la esploron kiel reprezentanto de la egipta registaro. Ankaŭ tiu historio estas tre interesa. Antaŭ proksimume tridek jaroj ekster-landaj arkeologoj sin okupis pri la esploroj apud la loko, kiu antaŭe nomiĝis la Rokoj de Ptah. Ili esperis tie trovi la restaĵojn de Anubis-templo, pri kiuj poste evidentiĝis, ke ĝi kuŝas kilometron pli sude. Dum ĉi tiu esploro ili trovis la roktombon de Asah Nefert. Ili ĝin malfermis kaj la sarkofagon transportigis tien ĉi. La surskriboj en la tombo donis certecon, ke kuŝas reĝa tombo en la
 
 
 proksimo, sed oni dubis pri la direkto, en kiun oni devos serĉi. Post longa kaj vana esploro la arkeologoj rezignis,
@@ -2614,9 +2141,6 @@ Camphuis subite estis ekstarinta kaj konfuze li resi-diĝis.
 Camphuis eligis raŭkan krion kaj momenton sensaĝe rigardis la profesoron: la hazarde de li fortenis la hono-ron kaj la famon pro malkovro, kiu estis unu el la plej gravaj kaj plej emociaj en la nuntempa historio de egip-tologio . . .
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X V I I I
 
 LA REVOJAO
@@ -2625,9 +2149,7 @@ Post la informoj kaj la spertoj, kiujn Camphuis per sia esploro akiris, li, ne p
 
 Lamao Wuangji same konfesis, tamen en maniero, kvazaŭ li sekrete kredus, ke Camphuis estis la kaŭzo de tiu malsukceso. ŝajnis eĉ, ke la tibetano ankoraŭ ne povis trovi respondon al la demando, ĉu li tujan revojaĝon al Tibeto ja povas respondeci al sia mastro. Nur kiam Camphuis tute malkaŝe deklaris, ke lin tedas liaj hezitado kaj dubado kaj ke li nepre sola revojaĝos, se la aliaj ne kuniros, li komprenis, ke al li nur restas kunvojaĝi kun la inĝeniero.
 
-Antaŭ ol forlasi Luxor, Camphuis ankoraŭ havis longan interparolon kun Ami Agha. La scienculo ankoraŭ cerbumis pri la demando, kiel la tibeta reganto povis havigi la manuskripton, kiu iam apartenis al Edward Pike. Komence li supozis, ke la lamaoj post la morto de 146
-
-RADIANTA LOTUSO
+Antaŭ ol forlasi Luxor, Camphuis ankoraŭ havis longan interparolon kun Ami Agha. La scienculo ankoraŭ cerbumis pri la demando, kiel la tibeta reganto povis havigi la manuskripton, kiu iam apartenis al Edward Pike. Komence li supozis, ke la lamaoj post la morto de
 
 
 la oficiro trovis la manuskripton en liaj kofroj, sed tiu ĉi konjekto ne longe estis defendebla.
@@ -2645,27 +2167,17 @@ La posedo de la papiruso ĉiukaze estas tre grava indiko pri la kulpo de la tibe
 Sekreto . . . la sekreto de . ..”
 
 
-RADIANTA LOTUSO
-
-
 ”La sekreto de Dalai-lamao,” kompletigis Camphuis meditante.
 
 ”Prave; nu, ĝi estas fatala sekreto, kara arniko. Vi iru al doktoro Glen Housting por paroli kun li pri ĉi tiu manuskripto; li scias pli multe ol mi pri la murdo. Li loĝas, kiel mi jam diris, en Calcutta; vi preskaŭ preterpasos lian domon, kiam vi reiros al Tibeto.”
 
 Camphuis al li promesis viziti la kuraciston kaj post tio la scienculon kore adiaŭis.
 
-Li interkonsentis kun Wuangji en Luxor maldungi la eskorton de Hussein kaj vagonare revojaĝi al Kairo, per kio ili al si ŝparos kelkajn tagojn kaj evitos lacigan voja-
-
-ĝon. Li komisiis al la beduenŝejko konduki Amèn Hoeï al Erment, post kio li ankoraŭ lastfoje faris interparoladon kun la kolŝito.
+Li interkonsentis kun Wuangji en Luxor maldungi la eskorton de Hussein kaj vagonare revojaĝi al Kairo, per kio ili al si ŝparos kelkajn tagojn kaj evitos lacigan vojaĝon. Li komisiis al la beduenŝejko konduki Amèn Hoeï al Erment, post kio li ankoraŭ lastfoje faris interparoladon kun la kolŝito.
 
 La inĝeniero ne povis al si malkonfesi, ke la adiaŭo de Amèn Hoeï al li estis malfacila. Dum la esplorvojaĝo li komencis lin rigardi kiel amikon, al kiu neniu peno estis tro granda por lin helpi kaj ĉar tiun tutan tempon li sukcesis subpremi sian malvirton, nenio ĝenis la agrablan memoron pri ilia kunesto. Kiel memoraĵon pri la vojaĝo Amèn Hoeï al li donacis la duan papiruson kaj kun la promeso skribe daŭrigi la interrilaton, ili fine melankolie disiĝis.
 
-Jam la saman tagon Camphuis forvojaĝis kun la du tibetanoj al Kairo. Nur Wuangji kaj Lu Tszang interpa-148
-
-RADIANTA LOTUSO
-
-
-rolis kaj cetere fervore turnis siajn preĝilojn. En Kairo la inĝeniero eksciis, ke la unua boato al Calcutta nur post du tagoj forvojaĝos; dum tiu tempo li loĝis en sia antaŭa hotelo.
+Jam la saman tagon Camphuis forvojaĝis kun la du tibetanoj al Kairo. Nur Wuangji kaj Lu Tszang interparolis kaj cetere fervore turnis siajn preĝilojn. En Kairo la inĝeniero eksciis, ke la unua boato al Calcutta nur post du tagoj forvojaĝos; dum tiu tempo li loĝis en sia antaŭa hotelo.
 
 La tagoj malrapide kaj monotone pasis kaj kun sento de ĝojo kaj kontento li do salutis la alvenon de la vaporŝipo ”Pheketan”, sur kiun li surŝipigis.
 
@@ -2675,20 +2187,13 @@ Lian melankolion tamen baldaŭ forpuŝis la ĝojiga antaŭvido, ke li post nelon
 
 La finaranĝo de lia komisio postulos nur kelkajn tagojn kaj post sia vizito al Potala li tuj forvojaĝos at Bombay, por de tie ŝipvojaĝi al Nederlando.
 
-”Pheketan” jam traveturis la Ruĝan Maron, kiam Camphuis vizitis ambaŭ tibetanojn por priparoli la vojaĝplanon al Lhasa. Wuangji kaj Lu Tszang havis ko-149
-
-RADIANTA LOTUSO
-
-
-munan kajuton, kiun ili eĉ ne forlasis por iom refreŝiĝi aŭ por manĝi.
+”Pheketan” jam traveturis la Ruĝan Maron, kiam Camphuis vizitis ambaŭ tibetanojn por priparoli la vojaĝplanon al Lhasa. Wuangji kaj Lu Tszang havis komunan kajuton, kiun ili eĉ ne forlasis por iom refreŝiĝi aŭ por manĝi.
 
 Frapinte sur la pordon, la inĝeniero tuj estis allasata kaj pli pro ĝentileco ol pro intereso, li informpetis pri la farto de siaj vojaĝkunuloj.
 
 ”Bone, sinjoro,” certigis Wuangji malvarmtone kaj proponinte seĝon, li demande alrigardis la inĝenieron.
 
-”Mi venas por interkonsiliĝi, kiel ni daŭrigos la voja-
-
-ĝon al Lhasa,” komencis Camphuis.
+”Mi venas por interkonsiliĝi, kiel ni daŭrigos la vojaĝon al Lhasa,” komencis Camphuis.
 
 ”ĉu daŭrigos?” demande ripetis Wuangji.
 
@@ -2698,14 +2203,9 @@ Wuangji surprizite lin rigardis.
 
 ”Al kio utilas tiu interrompo, sinjoro? Kial ne rekte al Lhasa?” li mire demandis ”Vi scias, kiom ĉi tiu esploro interesas nian mastron kaj kiel malpacience li atendas nian revenon. Li certe estos tre malbonhumora, se ni atendigas lin pli longe ol estas nepre necese.”
 
-”Iagrade mi devas vin pravigi; Dalai-lamao rajtas esti informita kiel eble plej baldaŭ pri la rezulto de nia voja-
-
-ĝo,” konfesis Camphuis. ”Sed malgraŭ tio la cirkonstancoj pledas por mallonga restado en la urbo, sinjoro. Ni pasigis sep lacigajn semajnojn, ni suferis multajn maloportunaĵojn kaj . . . ”
+”Iagrade mi devas vin pravigi; Dalai-lamao rajtas esti informita kiel eble plej baldaŭ pri la rezulto de nia vojaĝo,” konfesis Camphuis. ”Sed malgraŭ tio la cirkonstancoj pledas por mallonga restado en la urbo, sinjoro. Ni pasigis sep lacigajn semajnojn, ni suferis multajn maloportunaĵojn kaj . . . ”
 
 ”Sed ni tute ne estas lacaj, sinjoro,” lin interrompis Wuangji rapide kaj firmdecide.
-
-
-RADIANTA LOTUSO
 
 
 ”Ne, ne vi, sed mi,” piktone kontraŭdiris Camphuis.
@@ -2725,9 +2225,6 @@ Camphuis rimarkis, ke Wuangji bedaŭris sian demandon, kiu montris lian antaŭan
 ŝajnis, ke Wuangji pri io dubas kaj ne scias kiel li elturniĝu el ĉi tiu neantaŭvidita malfacilaĵo, sed subite Lu Tszang sin miksis en la interparolon.
 
 
-RADIANTA LOTUSO
-
-
 Li eligis nur kelkajn tibetajn vortojn, kiuj evidente tamen tuj decidigis Wuangji.
 
 ”Mi ne povas al vi malpermesi postresti en Calcutta, sinjoro, sed ni ĉiukaze preferas senprokraste daŭrigi la vojaĝon,” li fine eligis.
@@ -2742,20 +2239,12 @@ Wuangji malkontente kapjesis kaj kun mallonga saluto la inĝeniero forlasis la k
 
 Pro sia bagatela pakaĵo kaj siaj preĝiloj ili altiris ĉies atenton ĉe la elŝipiĝo kaj precipe ĉe la kajo, kie ili devis atendi Camphuis, kiu unue devis sin submeti al inspektado de la doganistoj. La inĝeniero portigis siajn kofrojn al konata hotelo kaj post tio kondukis ambaŭ tibetanojn al la stacidomo.
 
-Li aĉetis vojaĝbiletojn kaj rezervigis kupeon kaj certiĝinte, ke al ili nenio mankas, li formale ilin adiaŭis kaj iris al sia hotelo. ĉi tie li sin refreŝigis per bano kaj man-
-
-ĝinte li skribis leteron al doktoro Housting, por peti interparolon.
-
-
-RADIANTA LOTUSO
+Li aĉetis vojaĝbiletojn kaj rezervigis kupeon kaj certiĝinte, ke al ili nenio mankas, li formale ilin adiaŭis kaj iris al sia hotelo. ĉi tie li sin refreŝigis per bano kaj manĝinte li skribis leteron al doktoro Housting, por peti interparolon.
 
 
 Li mem metis la leteron en poŝtkeston, faris mallongan promenon kaj fine bonhumore enlitiĝis.
 
 Baldaŭ poste liaj okuloj fermiĝis kaj lmpatis profunda, refreŝiga dormo.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X I X
@@ -2771,12 +2260,7 @@ En la ĉambro ŝvebis senbrila arĝentlumo, kiu al li ebligis distingi la malakr
 Opiniante, ke antaŭ la pordo staras iu el la ĝenemaj komercistoj, li ne respondis. Momenton poste la frapado ripetiĝis kaj fiksrigardante al la pordo Camphuis vidis, ke la anso malrapide kaj senbrue turniĝas kaj samtempe al li ŝajnis, ke iu ĝin prempuŝas.
 
 
-RADIANTA LOTUSO
-
-
-Camphuis momenton estis konsternita kaj konfuzita kaj li volis ĝuste elliliĝi por forpeli la impertinentan en-
-
-ŝteliranton, kiam li vidis, ke la anso denove malteniĝas.
+Camphuis momenton estis konsternita kaj konfuzita kaj li volis ĝuste elliliĝi por forpeli la impertinentan enŝteliranton, kiam li vidis, ke la anso denove malteniĝas.
 
 Trenantaj paŝoj malproksimiĝis kaj malbonhumore la inĝeniero refalis sur la kusenojn, kun la firma intenco morgaŭ plendi pri ĉi tiu okazintaĵo.
 
@@ -2787,9 +2271,6 @@ Subite li vidis ombron, rapida kiel fulmo, gliti tra la ĉambro. Tuj li kompreni
 Ne pasis pli ol duonminuto, kiam Camphuis vidis pal-pantan manon kaj kapon aperi super la fenestrobreto.
 
 La mano serĉis kaj trovis apogon per la foldo de la fenestro kaj vizaĝo forte premiĝis sur la vitron, tiel ke la nazo aspektis misformita. Kvankam la inĝeniero tuj komprenis, ke la viro estas identa kun tiu, kiu antaŭe klopodis malfermi la ĉambropordon, li ne alarmis, sed atendis, kion la alia intencas fari. Li fikse rigardis ties vizaĝon, sed estis neeble pli distingi ol ĝian konturon kaj paron da akraj okuloj kun nigra ardo, kiuj la ĉambron nervoze traesploris.
-
-
-RADIANTA LOTUSO
 
 
 Camphuis ne sin movis, tamen en lia kapo la pensoj kirliĝis. Kial oni lin spionas kaj kial oni klopodas enpenetri ĉe li? . . .
@@ -2805,9 +2286,6 @@ La nekonato sammomente malaperis kaj kun la revolvero en la mano Camphuis saltis
 La viro solene deklaris, ke neniam oni ŝtelis en la hotelo kaj ke neniu iam aŭdis pri enŝteliro. Kiam li evidente emis kredi, ke Camphuis sonĝis, ĉi tiu incitite rezignis kaj reiris al sia ĉambro. La stranga aventuro longe al li malhelpis ekdormi kaj nur ĉirkaŭ mateniĝo liaj okuloj dormfermiĝis.
 
 
-RADIANTA LOTUSO
-
-
 Camphuis nur vekiĝis ĉirkaŭ la deka horo. Sin vestan-te, li denove pripensis la aventuron. Ne estis dubeble, ke oni klopodis enŝteliri por lin prirabi kaj ĉi tio lin mirigis.
 
 Oni ĉiam al li asertis, ke fremdulo ĉi rilate en oriento estis pli sekura ol en okcidento kaj ke neniu indiĝeno riskos priŝteli blankulojn.
@@ -2818,12 +2296,7 @@ Post la matenmanĝo Camphuis faris viziton al la ho-telisto, civilizita viro de 
 
 Doktoro Glen Housting posedis verandodomon en la ĉirkaŭo de la urbo. La inĝeniero preferis iri piede. Enpense li promenis kaj iom post iom neprofunda malkvieto lin ekregis. Li ekhavis la senton, ke oni lin spionas kaj subite li haltis kaj rigardis ĉirkaŭen. La strato prezentis aspekton de rapida vigleco; aŭtomobiloj, en kiuj sidas eŭropanoj kaj eminentaj indiĝenoj, laŭte signalante faris al si vojon tra la homamaso, kiu preskaŭ tute konsistis el neblankuloj.
 
-Camphuis konstatis, ke li ne pli altiris la atenton ol ĉiu alia promenanta eŭropano kaj baldaŭ li iris pluen. Tamen lia malkvieto ne foriĝis. Male, la stranga sento gra-157
-
-RADIANTA LOTUSO
-
-
-de plifortiĝis kaj li estis nepre certa, ke tio ne estas sen kaŭzo.
+Camphuis konstatis, ke li ne pli altiris la atenton ol ĉiu alia promenanta eŭropano kaj baldaŭ li iris pluen. Tamen lia malkvieto ne foriĝis. Male, la stranga sento grade plifortiĝis kaj li estis nepre certa, ke tio ne estas sen kaŭzo.
 
 En la soleco ĉe Sangpo kaj poste vojaĝante tra Egipto li plurfoje konstatis emocion antaŭe al li nekonatan.
 
@@ -2837,9 +2310,7 @@ Tuj kiam li eniris la galerion, al li venis renkonte doktoro Housting, malgranda
 
 ”Estu bonvena, fremdulo,” li salutis la inĝenieron per komika bruemo.
 
-Camphuis sin prezentis kaj interŝanĝinte koran man-premon kun la doktoro, kondukiĝis en la domon. Antaŭ ol li forlasis la galerion, li tamen ankoraŭ ĵetis flugan rigardon sur la kampvojon. En la tuja proksimo iris tri indiĝenoj kaj cent metrojn post ili venis kvara viro. Li 158
-
-RADIANTA LOTUSO
+Camphuis sin prezentis kaj interŝanĝinte koran man-premon kun la doktoro, kondukiĝis en la domon. Antaŭ ol li forlasis la galerion, li tamen ankoraŭ ĵetis flugan rigardon sur la kampvojon. En la tuja proksimo iris tri indiĝenoj kaj cent metrojn post ili venis kvara viro. Li
 
 
 esplore rigardis la tri unuajn, sed la viroj preterpasis la verandodomon tute senatente.
@@ -2855,9 +2326,6 @@ Preterpasante li ĵetis flugan rigardon al la domo kaj al la emajla nomplato de 
 ”Nu, des pli bone, mia kara,” iom mire respondis doktoro Housting kaj per kora gesto prenante la inĝenieron ĉe la brako, li kondukis lin en sian studoĉambron.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X X
 
 ENIGMA MURDAFERO
@@ -2870,12 +2338,7 @@ Post kiam doktoro Housting alportigis kelkajn refreŝigaĵojn kaj al la inĝenie
 
 rimarkigis Camphuis. ”Kiam mi antaŭ du monatoj forlasis Tibeton, mi preterpasis la Dzjilipla-montpasejon kaj tie mi trovis monumenton, kiu menciis liajn nomon kaj morton. Poste Ami Agha parolis al mi pri via amiko kaj li al mi konsilis kontaktiĝi kun vi, se mi pri tio deziras pluajn informojn.”
 
-”Jes, jes,” vigle ekkriis la doktoro, ”nun mi ĉion rememoras. Mi al Ami Agha la morton de Edward skribe komunikis. Kaj . . . jes, tiun monumenton la angla regis-160
-
-RADIANTA LOTUSO
-
-
-taro starigis en 1906, du jarojn post kiam mia amiko senpostsigne malaperis.”
+”Jes, jes,” vigle ekkriis la doktoro, ”nun mi ĉion rememoras. Mi al Ami Agha la morton de Edward skribe komunikis. Kaj . . . jes, tiun monumenton la angla registaro starigis en 1906, du jarojn post kiam mia amiko senpostsigne malaperis.”
 
 ”Ami Agha asertis, ke ligiĝis stranga historio al lia mizera morto; li eĉ parolis pri murdo,” rediris Camphuis.
 
@@ -2891,20 +2354,13 @@ taro starigis en 1906, du jarojn post kiam mia amiko senpostsigne malaperis.”
 
 La malgranda skoto faris koleran fumtiron je sia cigaredo, ĝin forĵetis per incitita gesto, leviĝis el sia balancseĝo kaj paŝante ire kaj revene faris raporton pri la okazintaĵoj el longe forpasintaj tagoj.
 
-”Kiel vi eble iam aŭdis aŭ legis, brita komisiono en 1904 faris klopodojn por interesigi la tibetan registaron al intertraktoj, kiuj celis konstrui komercvojojn en Sik-161
-
-RADIANTA LOTUSO
-
-
-kem, Tibeto kaj Orienta Turkestano. De tiu komisiono ankaŭ Pike estis membro. Nia registaro por tio lin revo-kis de restado en Egipto, kie li sin okupis pri arkeologaj studoj.
+”Kiel vi eble iam aŭdis aŭ legis, brita komisiono en 1904 faris klopodojn por interesigi la tibetan registaron al intertraktoj, kiuj celis konstrui komercvojojn en Sikkem, Tibeto kaj Orienta Turkestano. De tiu komisiono ankaŭ Pike estis membro. Nia registaro por tio lin revo-kis de restado en Egipto, kie li sin okupis pri arkeologaj studoj.
 
 Tiu komisiono trovis strangan akcepton. La tibeta lamao-registaro kiel morton timis la penetron de okcidentaj tendencoj, kompreneble ĉar ĉi tiuj al ĝi forprenus la influon sur la malsprita kaj superstiĉa loĝantaro. Tial neniu fremdulo estis allasata en la landon kaj pro sia superstiĉeco ili estis konvinkitaj, ke, por malhelpi al la brita komisiono la eniron, sufiĉos diversloke sur la land-limojn starigi mureton el malfiksaj ŝtonoj.
 
 Unu tia muro stariĝis en la Dzjilipla-montpasejo, tra kiu miaj samlandanoj esperis eniri Tibeton.
 
-Tiun sanktan muron la sorĉistoj kaj la diablodancistoj deklaris netranspasebla kaj kiam la komisiono proksimiĝis al la landlimo, ilin atendis miloj da tibetanoj, kiuj esperis esti atestantoj de la senpovo de la fremduloj kaj de la potenco de siaj dioj. Miaj samlandanoj kompreneble ridis pri tiu sensenca barikado kaj Edward Pike per forta piedfrapo ĝin tuj forigis. La tibetanoj estis certaj, ke tiu krimo tuj estos venĝata kaj kiam mankis la venĝo de la dioj kaj la komisiono sendifekte transpasis la landlimon, ili kapon antaŭen forkuris. Ne gravas, kiel marŝis la intertraktoj; mi pro tio nur tre koncize diru, ke ili plene malsukcesis. La komisiono revenis, escepte de majoro 162
-
-RADIANTA LOTUSO
+Tiun sanktan muron la sorĉistoj kaj la diablodancistoj deklaris netranspasebla kaj kiam la komisiono proksimiĝis al la landlimo, ilin atendis miloj da tibetanoj, kiuj esperis esti atestantoj de la senpovo de la fremduloj kaj de la potenco de siaj dioj. Miaj samlandanoj kompreneble ridis pri tiu sensenca barikado kaj Edward Pike per forta piedfrapo ĝin tuj forigis. La tibetanoj estis certaj, ke tiu krimo tuj estos venĝata kaj kiam mankis la venĝo de la dioj kaj la komisiono sendifekte transpasis la landlimon, ili kapon antaŭen forkuris. Ne gravas, kiel marŝis la intertraktoj; mi pro tio nur tre koncize diru, ke ili plene malsukcesis. La komisiono revenis, escepte de majoro
 
 
 Pike, kiu postrestis por entrepreni vojaĝon tra Tibeto.
@@ -2913,9 +2369,7 @@ Komence de lia restado tie mi sufiĉe regule ricevis inte-resajn leterojn, sed s
 
 Estas kompreneble, ke ĉi tiu komuniko en la rondoj, kie Pike kutimis esti, kaŭzis grandan konsterniĝon. Mi-rige tamen neniu kredis pri la menciita mortokaŭzo, kaj kvankam ekzistis neniu bazo por tiu supozo, baldaŭ murmuriĝis, ke la tibeta registaro ne estas tute senkulpa pri la morto de Pike. Kiam nelonge poste evidentiĝis, ke la kofroj de mia malfeliĉa amiko senpostsigne malaperis, oni instigis al nova esploro kaj fine komisiono foriris por klarigi ĉi tiun misteran dramon. i konstatis, ke la tibetaj atestantoj de la falo de majoro Pike preskaŭ ĉiudetale malsame atestas kaj konvinkite, ke ili estas trompataj, la komisiono aŭdigis kelkajn koncizajn mina-cojn. Tio kompreneble efikis: la tibeta registaro promesis novan ekzamenon.
 
-La komisiono revenis kaj denove pasis longa tempo antaŭ ol ni ion aŭdis, sed fine, post senĉesa instigado, la problemo solviĝis: majoro Pike per sia konduto en iu vilaĝo de la internlando, vekis la koleron de la loĝantaro 163
-
-RADIANTA LOTUSO
+La komisiono revenis kaj denove pasis longa tempo antaŭ ol ni ion aŭdis, sed fine, post senĉesa instigado, la problemo solviĝis: majoro Pike per sia konduto en iu vilaĝo de la internlando, vekis la koleron de la loĝantaro
 
 
 kaj ĉe la bafalo per tio kaŭzita, li trafis la morton. Per ĉi tio do evidentiĝis, ke liaj amikoj pravis. Sed nia registaro, kiu alikaze ne estas tiel mieldolĉa, per ĉi tio kontentiĝis ne monstrante la dentojn. Tio kaŭzis malkontenton, ne nur tie ĉi, sed ankaŭ en Anglujo. Por almenaŭ iom kontentigi la kritikemulojn kaj la malkontentulojn, la registaro starigis la monumenton en la Dzjilipla-montpasejo, sed ĝi eĉ ne montris la kuraĝon vangofrapi la tibetanojn, ĉizigante en la ŝtonon ’pereis’ anstataŭ
@@ -2929,9 +2383,6 @@ Ekscitita, la doktoro silentis kaj alrigardis Camphuis, kiu meditante balancis l
 ”Pri tia krimo oni preskaŭ ne povas kredi kapablaj ho-mojn, kiuj eĉ indulgas la fibestojn pro sentimento kaj etiko, sinjoro doktoro,” rimarkigis la inĝeniero.
 
 
-RADIANTA LOTUSO
-
-
 ”Kaj tamen tio estas nepridubebla,” decide ekkriis doktoro Housting. ”Verŝajne ili opiniis, ke per la mortigo de Pike, ili plaĉos al siaj dioj kaj utilos al la popolo. Vi pravas, ĉiu vivo al ili estas sankta kaj pro tio ili eĉ indulgas pulon. Sed en ĉi tiu speciala kazo la celo verŝajne superis la altan principon.”
 
 ”Kaj ĉu la restaĵo de sinjoro Pike nun ripozas en la Dzjilipla-montpasejo?” demandis Camphuis meditante.
@@ -2941,9 +2392,6 @@ RADIANTA LOTUSO
 ”Nu, sinjoro Camphuis, vi nun ĉion scias; pli ol mi al vi rakontis, mi mem ne scias. Nun estas via vico. Unue ni trinku viskion kaj tiam vi diru, per kio mi povas al vi servi.”
 
 Li sonorigis por sia servisto kaj donis al li kelkajn ordonojn kaj oferinte al sia gasto cigaredon, li kuŝiĝis en sian balancseĝon kaj plenatende alrigardis Camphuis.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X I
@@ -2962,9 +2410,7 @@ doktoro Housting rapide saltleviĝis.
 
 ĝin posedas la lamaoj. ĉu tio estas sensignifa, sinjoro Camphuis? Kiel ĝi ekposedis tiun papiruson, se la registaro efektive estas tute senkulpa?”
 
-”Respondon al tiu demando mi plurfoje serĉis,” serioze respondis la inĝeniero. ”Komence mi supozis, ke Dalai-lamao la papiruson donace ricevis, sed post tio, 166
-
-RADIANTA LOTUSO
+”Respondon al tiu demando mi plurfoje serĉis,” serioze respondis la inĝeniero. ”Komence mi supozis, ke Dalai-lamao la papiruson donace ricevis, sed post tio,
 
 
 kion mi aŭdis de Amèn Hoeï, mi devis rezigni mian opinion. Sed forĵetante ĉi tiun ideon, ni stariĝas antaŭ alia demando. Se ni jam akceptas, ke oni ĝin forrabis el la pakaĵo de Pike, kiu do tradukis la tekston por Dalai-lamao kaj kiu al li havigis la adreson de Amèn Hoeï? Nur Pike povis tion al li komuniki. ĉi tie ni staras antaŭ enigmo, sed mi estas certa, ke estas rilato inter la manuskripto kaj la morto de majoro Pike.”
@@ -2985,12 +2431,7 @@ Camphuis levis la ŝultrojn kaj komunikante la enhavon de la papiruso, li klarig
 
 ”Mi trovis!” li vive ekkriis.
 
-”Atendu, tio estis en 1904. Antaŭ ol la brita komisiono forvojaĝis al Tibeto, la oficiroj de la garnizono aran-167
-
-RADIANTA LOTUSO
-
-
-ĝis festmanĝon. Partoprenis ankaŭ angla misiisto, kiu travojaĝis Tibeton kaj kelkan tempon gastloĝis en lamao-monaęjo. Li multe rakontis pri la moroj kaj kutimoj de la tibetanoj kaj ankaŭ parolis pri ilia religio. Dum sia restado en la monaęjo li iam parolis kun lamao pri la valoro de la lamaismo kaj la tibetano asertis, ke lia religio iniciatos la savon de la mondo. La misiisto demandis pri la bazoj de tiu konv.”
+”Atendu, tio estis en 1904. Antaŭ ol la brita komisiono forvojaĝis al Tibeto, la oficiroj de la garnizono aranĝis festmanĝon. Partoprenis ankaŭ angla misiisto, kiu travojaĝis Tibeton kaj kelkan tempon gastloĝis en lamao-monaęjo. Li multe rakontis pri la moroj kaj kutimoj de la tibetanoj kaj ankaŭ parolis pri ilia religio. Dum sia restado en la monaęjo li iam parolis kun lamao pri la valoro de la lamaismo kaj la tibetano asertis, ke lia religio iniciatos la savon de la mondo. La misiisto demandis pri la bazoj de tiu konv.”
 
 ”Kaj ĉu, sinjoro doktoro?” insistis Camphuis maltrankvile, kiam Housting medite silentis.
 
@@ -3000,12 +2441,7 @@ ekkriis la doktoro. ”La misiisto tiam ekaŭdis, ke la Kandsur antaŭdiras, ke 
 
 Camphuis surprizite estis aŭskultinta la doktoron.
 
-”Via ekspliko klarigas, kial Dalai-lamao ’Radiantan Lotuson’ nomis sankta juvelo kaj mian komision sank-168
-
-RADIANTA LOTUSO
-
-
-ta komisio. Sed nun ni renkontas alian enigmon. Ja devas esti iu persono, kiu rilatigis la enhavon de la egipta papiruso kun la profetaĵo kaj kiu klarigis la enhavon kaj la sencon de la antaŭdiro. Kaj majoro Pike ja ne povis esti tiu persono; li estis homo serioza kaj tutcerte ne intence trompis Dalai-lamaon.”
+”Via ekspliko klarigas, kial Dalai-lamao ’Radiantan Lotuson’ nomis sankta juvelo kaj mian komision sankta komisio. Sed nun ni renkontas alian enigmon. Ja devas esti iu persono, kiu rilatigis la enhavon de la egipta papiruso kun la profetaĵo kaj kiu klarigis la enhavon kaj la sencon de la antaŭdiro. Kaj majoro Pike ja ne povis esti tiu persono; li estis homo serioza kaj tutcerte ne intence trompis Dalai-lamaon.”
 
 ”Ne, nepre ne,” akcente respondis la doktoro. Li momenton meditis kaj subite viglatone demandis; ”Vi kompreneble ne trovis ’Radiantan Lotuson’, ĉu, sinjoro Camphuis?”
 
@@ -3016,9 +2452,6 @@ Kompreneble ŝia historio tute ne koncernas la Kandŝur-profetaĵon kaj pro tio 
 Doktoro Housting eksaltis kai fajfis inter la dentoj.
 
 ”Se oni vin malfidas, atentu, mia amiko! Se la afero koncernus min, mi nepre ne reirus, sinjoro Camphuis.”
-
-
-RADIANTA LOTUSO
 
 
 ”Nu, kial ne?” demandis la inĝeniero ŝultrolevante.
@@ -3039,11 +2472,7 @@ Camphuis metis manon en sian poŝon kaj ridante aperigis revolveron.
 
 ”ĉu fulmon?” ridis la inĝeniero.
 
-”Jes, tiuj simpluloj ĝin nomas fulmo, ĉar ili ne komprenas la fenomenon. Sed estas fakto, ke estas lamaoj, kies tuŝo sufiĉas por iun paralizi. Supozeble tio estas artifiko, kiu baziĝas sur sugestio, sed laŭ la famo kelkaj el ili pri tio povas montri konsternigajn ekzemplojn. Por ni tiaj aferoj ne estas eksterordinaraj, sed malkleraj indi-
-
-ĝenoj tuj pensas pri supernaturaj povoj. ĉiukaze ankaŭ ni estas senpovaj kontraŭ tiaj artifikoj kaj se ili vin en-170
-
-RADIANTA LOTUSO
+”Jes, tiuj simpluloj ĝin nomas fulmo, ĉar ili ne komprenas la fenomenon. Sed estas fakto, ke estas lamaoj, kies tuŝo sufiĉas por iun paralizi. Supozeble tio estas artifiko, kiu baziĝas sur sugestio, sed laŭ la famo kelkaj el ili pri tio povas montri konsternigajn ekzemplojn. Por ni tiaj aferoj ne estas eksterordinaraj, sed malkleraj indiĝenoj tuj pensas pri supernaturaj povoj. ĉiukaze ankaŭ ni estas senpovaj kontraŭ tiaj artifikoj kaj se ili vin en-170
 
 
 ŝlosos en unu el siaj malbenitaj monaęjoj, vi la karan sunon povos adiaŭi.”
@@ -3054,16 +2483,11 @@ La doktoro iom post iom incitiĝis, sed subite li sin regis.
 
 ”Absolute certe, sinjoro doktoro,” konfirmis la inĝeniero. Li detale rakontis pri la malkovro, ke Wuangji dum la tuta vojaĝo kontaktis kun spiono, kiu sen lia scio partoprenis la vojaĝon kaj ke ĉi tiu jam dufoje klopodis traserĉi lian pakaĵon.
 
-”Aŭskultu, sinjoro Camphuis,” komencis doktoro Housting, kiam la inĝeniero finparolis. ”ĉio, kion vi al mi rakontis, plifortigis mian opinion, ke, se ne tuja dan-
-
-ĝero vin minacas, vi tamen povos renkonti malfacilaĵojn.
+”Aŭskultu, sinjoro Camphuis,” komencis doktoro Housting, kiam la inĝeniero finparolis. ”ĉio, kion vi al mi rakontis, plifortigis mian opinion, ke, se ne tuja danĝero vin minacas, vi tamen povos renkonti malfacilaĵojn.
 
 Sekvu mian konsilon: se vi nepre volas reiri al Tibeto, tiam vin akompanigu. Mi havas anglan butleron, li dek du jarojn estis en hinduja servo, havas tridek kvin jarojn kaj ne timas eĉ tutan armeon da lamaoj. Krom tio, li konas la orientan popolon. Kunprenu lin; li volonte al vi servos kaj vi tiam almenaŭ havos helpon, kiun vi povos fidi.”
 
 La doktoro insiste parolis, sed liaj vortoj ne havis efi-kon. Camphuis ridetante balancis la kapon kaj rifuze gestis per la mano.
-
-
-RADIANTA LOTUSO
 
 
 ”Vi vidas fantomojn en lumplena tago, sinjoro doktoro. Mi tutkore vin dankas pro via zorgemo, sed maksimume mi timu malagrablan interparoladon. Sekvi vian konsilon verŝajne signifas inciti Dalai-lamaon.”
@@ -3076,9 +2500,7 @@ RADIANTA LOTUSO
 
 ”Kaj kiom da tempo vi supozas resti en Tibeto?”
 
-”Mi esperas, ke ĉio en dek aŭ dekdu tagoj estos aran-
-
-ĝita.”
+”Mi esperas, ke ĉio en dek aŭ dekdu tagoj estos aranĝita.”
 
 ”Bone, se mi eventuale dek ses tagojn post via foriro ankoraŭ nenion de vi estos eksciinta, mi kredos, ke io ne estas en ordo kaj faros aranĝojn. La fatala fino de mia amiko tiurilate al mi ion instruis.”
 
@@ -3089,21 +2511,13 @@ Intertempe ni tute deviis de nia temo: la sekreto de Dalai-lamao . . . ”
 Longan tempon ili ankoraŭ sin okupis pri siaj konsi-deroj pri la morto de majoro Pike kaj la tibetaj situacioj kaj fine Camphuis adiaŭis. Antaŭ ol li forlasis la verandodomon, doktoro Housting per sia binoklo ekzamenis la ĉirkaŭon, sed la kampvojo kuŝis tute forlasita kaj eĉ ne ombro de persekutanto estis videbla.
 
 
-RADIANTA LOTUSO
-
-
 La inĝeniero malrapide repromenis al la urbo, en la centro faris kelkajn aĉetojn kaj poste turnis sin al la hotelo. Por surprizi sian amikon Tszang, li kelkfoje atendis, post ĉirkaŭiro de stratangulo, la preterpasantojn, sed la spiono sin ne montris kaj fine Camphuis estis nepre konvinkita, ke oni rezignis la persekutadon.
 
 De la indiĝena hotelpordisto li ricevis la ŝlosilon de sia ĉambro kaj supreniris, forrifuzante la ĝenajn komerc-istojn per mallonga sed firma gesto. Tuj kiam li estis malferminta la ĉambropordon, Camphuis plenkonfuze haltis: ambaŭ liaj kofroj estis rompe malfermitaj kaj ilia enhavo kuŝis disĵetita sur la planko. Post kiam li iom re-kvietiĝis, la inĝeniero faris rapidan esploron. Mankis nenio; eĉ liaĵn tratojn kaj arĝentmonon la rompŝtelisto ne tuŝis.
 
 Camphuis tuj komprenis, ke nur Tszang povas esti la farinto. La celo de la enŝteliro estis facile divenebla: Lu Tszang esperis trovi ion, kio konfirmos iliajn konjektojn, ke ili estas trompitaj rilate al ’Radianta Lotuso’. Konvinkite, ke la vizito ĉe la doktoro postulos sufiĉan tempon, la ĉino rapide estis reirinta al la hotelo kaj dank’al la ne-sufiĉa gardado li sukcesis enŝteliri la ĉambron kaj traesplori la kofrojn.
 
-Kiam Camphuis finis sian inspektadon, li venigis la hotelestron. La viro tute konsterniĝis, kiam li ekaŭdis pri tiu impertinenta enŝteliro kaj tuj kunvenigis ĉiujn ser-173
-
-RADIANTA LOTUSO
-
-
-vistojn. Per la pridemandado evidentiĝis, ke la ĉambro kelkan tempon restis nefermita por la purigistoj; estis klare, ke le enŝtelirinto profitis tiun sengardan momenton.
+Kiam Camphuis finis sian inspektadon, li venigis la hotelestron. La viro tute konsterniĝis, kiam li ekaŭdis pri tiu impertinenta enŝteliro kaj tuj kunvenigis ĉiujn servistojn. Per la pridemandado evidentiĝis, ke la ĉambro kelkan tempon restis nefermita por la purigistoj; estis klare, ke le enŝtelirinto profitis tiun sengardan momenton.
 
 La hotelestro senfine senkulpigis sin kaj faris specia-lajn aranĝojn por malhelpi ripetiĝon. Camphuis, komprenante, ke postparoloj ja ne povas nuligi la okazintaĵon, forsendis la indignitan estron kaj telefonis al doktoro Housting. Estis klare rimarkeble, ke la skoto konsterniĝis; insiste li ankoraŭfoje konsilis al la inĝeniero ŝanĝi sian decidon kaj ne reiri al Lhasa.
 
@@ -3113,9 +2527,7 @@ Momenton poste eniris eŭropano, impona figuro kun bonula buldoga vizaĝo. Milit
 
 ”Agrable al mi, sinjoro Hutley kaj per kio mi povas al vi servi?”
 
-”Mi esperas, ke mi povos servi al vi, sinjoro; min sendis doktoro Housting, mia mastro, kaj li komisiis al mi 174
-
-RADIANTA LOTUSO
+”Mi esperas, ke mi povos servi al vi, sinjoro; min sendis doktoro Housting, mia mastro, kaj li komisiis al mi
 
 
 vin akompani al Tibeto kaj ankaŭ rekonduki vin, ĉu kun ĉu sen via konsento. Mia nomo estas Tom, sinjoro, mia kofro staras malsupre.”
@@ -3135,15 +2547,9 @@ Duone konjektante, ke la anglo havas revolveron en tiu poŝo, Camphuis ankaŭ mo
 ”Kaj tio do?” demandis Camphuis mirigite.
 
 
-RADIANTA LOTUSO
-
-
 ”ĵetgrenadoj el nikelŝtalo, plenigitaj per lidito1 . . . Mi momenton foriros por preni mian kofron, sinjoro; la doktoro al mi diris, ke mi dormu en via ĉambro . . . ”
 
 1 angle: lyddite = eksplodaĵo.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X I I
@@ -3153,9 +2559,6 @@ LHASA EN FESTORNAMO
 La lasta nokto en la hotelo trankvile pasis. Camphuis nur tion atendis; li konjektis, ke Lu Tszang post la enŝteliro tuj postvojaĝis sian amikon Wuangji kaj nun jam troviĝas sur tibeta teritorio.
 
 Post mallonga adiaŭa vizito al doktoro Housting li sin pretigis por la vojaĝo kaj ĉirkaŭ tagmezo forlasis Calcuttan, kien li, deviante de sia unua piano, esperis reveni post kelkaj semajnoj. La vojaĝo prospere kaj agrable plenumiĝis. Tom Hutley montris sin amuza kaj interesa vojaĝkunulo kaj multe pli baldaŭ ol ili atendis, ili atingis la finstacion de la fervojo. ĉi tie Camphuis aĉetis paron da kurdaj ĉevaloj kaj gruntbovon por sia pakaĵo kaj tridek ses horojn post kiam ili forlasis Calcuttan, ambaŭ vojaĝantoj proksimiĝis al la tibeta landlimo. La inĝeniero antaŭvidis, ke oni lin atendos en la Dzjilipla-montpasejo kaj evidentiĝis, ke li ne eraris. Apud la monumento, dediĉita al la memoro de Edward Pike, venis al li renkonte armita eskorto. La ĉefo sin prezentis kiel estro de la Potala-gardistoj, kiun Camphuis laŭ sia memoro neniam antaŭe renkontis.
-
-
-RADIANTA LOTUSO
 
 
 La tibetano ne povis kaŝi sian miron, vidante la inĝenieron akompanata de nekonata blankulo kaj kiam li konstatis, ke ĉi tiu ŝajne intencis same transiri la limon, li atentigis la inĝenieron pri tio, ke oni al li ordonis nur lin allasi en Tibeton.
@@ -3177,9 +2580,6 @@ La tibetano hezitis, ree esplorrigardis Tom kaj ŝajne fine komprenis, ke li nur
 ”Oni sin tuj sentas malliberulo en ĉi tiu malbenita lando,” rimarkis Tom malbonhumore.
 
 
-RADIANTA LOTUSO
-
-
 ”Jes, tiel vojaĝas fremdulo tie ĉi,” respondis Camphuis, kun rideto ŝultrolevante.
 
 Dum la vojaĝo, kiu rapide komenciĝis, Tom eĉ ne momenton malproksimiĝis de Camphuis kaj restis gardema kiel hundo. La estro sekvis la fluon de Bramaputro, kies bordoj al Camphuis montris eksterordinaran viglecon.
@@ -3192,12 +2592,7 @@ La knaboj en la vilaĝoj kaj la tendoj de la brutgardis-toj, kiujn oni preterpas
 
 ”Ili el la tuta lando estas kunigitaj tien ĉi por esti be-nataj en Potala,” klarigis la gvardiestro nebonvoleme.
 
-Camphuis lin dankis kaj silente la vojaĝo estis daŭrigata, ĝis fine oni atingis Potalan. La inĝenieron scivole-me rigardegis la lamaoj, sed kiam ili rimarkis Tom Hut-179
-
-RADIANTA LOTUSO
-
-
-ley en lia kunesto ili unue lin kaj poste sin reciproke konsternite alrigardis. La estro kriis al ili kelkajn nekom-preneblajn vortojn kaj kvazaŭ temus pri efektivigo de konata programo unu el la lamaoj faris signon al Camphuis por lin sekvi.
+Camphuis lin dankis kaj silente la vojaĝo estis daŭrigata, ĝis fine oni atingis Potalan. La inĝenieron scivole-me rigardegis la lamaoj, sed kiam ili rimarkis Tom Hutley en lia kunesto ili unue lin kaj poste sin reciproke konsternite alrigardis. La estro kriis al ili kelkajn nekom-preneblajn vortojn kaj kvazaŭ temus pri efektivigo de konata programo unu el la lamaoj faris signon al Camphuis por lin sekvi.
 
 Same kiel la unuan fojon la inĝeniero tuj estis kondukata al la Domo de la Sekreta Vivo.
 
@@ -3205,9 +2600,7 @@ Tom volis lin sekvi, sed du lamaoj baris al li la vojon kaj komprenigis al li, k
 
 La unuan kvaronhoron Camphuis kaj Tom restis solaj kaj ĝuste kiam la inĝeniero je sia miro konstatis, ke ili ne estas gardataj, reaperis la lamao, nun akompanata de du soldatoj. Same kiel Tom li momenton kredis, ke oni volas perforte disigi ilin kaj fulmrapide li jam pripensis, kiel li povos tion malebligi, kiam subite al li io puŝiĝis en la manon.
 
-La tuŝo de la malvarma, spegulglata objekto momenton lin tremigis: Tom al li donis unu el la ĵetgrenadoj kaj 180
-
-RADIANTA LOTUSO
+La tuŝo de la malvarma, spegulglata objekto momenton lin tremigis: Tom al li donis unu el la ĵetgrenadoj kaj
 
 
 kvankam li forte abomenis tian mortigilon, li tamen ĝin enpoŝigis.
@@ -3233,9 +2626,6 @@ avertis la tibetano.
 ”Ne, sed ĉiukaze ne hodiaŭ,” respondis la lamao.
 
 
-RADIANTA LOTUSO
-
-
 ”Tion mi ankaŭ ne atendis, sed ĉu vi povas porti mian peton por kiel eble plej baldaŭ esti allasata ĉe la sankta mastro? La malproksima vojaĝo, kiun mi faris, min lacigis kaj mi volonte baldaŭ reirus al mia propra lando.”
 
 ”Mi portos vian peton al la gvardiestro, sinjoro,” promesis la tibetano ŝultrolevante, kvazaŭ li volus komprenigi, ke tia peto estas senutila. Li foriris kun mallonga saluto kaj kiam la inĝeniero estis esplorinta la koridoron, li kontente kapklinis al Tom.
@@ -3245,9 +2635,6 @@ RADIANTA LOTUSO
 ”ĉu vi tion nomas libereco?” mokis Hutley. ”Mi pli sentas min mortkondamnito; ĉe la kafiroj en Suda Ben-galujo mi ĝuis pli da libereco kiel kaptito ol ĉi tie kiel gasto.”
 
 Grumblante li tuj antaŭ la pordaperturo aranĝis sian liton, malplaĉe rigardante la ŝafofelojn. Post tio ili iris al la korto por sin refreŝigi ĉe la rivereto. La mallarĝa flu-eto nun estis pli sovaĝa ol dum la unua vizito de Camphuis; la akvo de la montriveretoj tre altigis la nivelon de Bramaputra kaj ĉi tiu fordonis sian superfiuon al la multnombraj flankriveroj. En la korto la akvo klukis kaj plaŭdetis senripoze antaŭen, per rapida forto, kiu smunikis al la akvorado de la preĝocilindro, kiu frene-ze rondturniĝis.
-
-
-RADIANTA LOTUSO
 
 
 Post la vespermanĝo Camphuis kaj Tom dankeme profitis sian liberecon por rigardi la Domon de la Sekreta Vivo. Kiel Camphuis jam antaŭe konjektis, la dekstra alo de la konstruaĵo konsistis el longa vico da ĉambroj, el kiuj nur tri posedis pordon, kiuj tamen estis ŝlositaj.
@@ -3261,15 +2648,7 @@ La maldekstra muro de la larĝa koridoro altgrade ekscitis ilian scivolemon. Nen
 ”Jes, ĝi ne estas tre agrabla,” konsentis Camphuis kaj oscedante li daŭrigis: ”Ni dormu Tom. Tuj kiam tagiĝos, finiĝos la ripozo, tion ja prizorgos la gruntbovoj kaj la ŝafoj.”
 
 
-RADIANTA LOTUSO
-
-
-Duonhoron poste ambaŭ profunde dormis. La mu-
-
-ĝado kaj blekado ekster la muroj mutiĝis kaj ankaŭ la bruado de la homamaso en la urbo formortis. Potala kuŝis kvazaŭ ridigiĝinta kaj en morteca ripozo sur la deklivo de la montaro kaj la noktan silenton rompis nur la ondofrapado kaj susurado de la rivereto en la korto kaj la flirtado kaj klakado de la milopaj flagoj kaj rubandoj, kiuj senĉese sendis ĉielen sian misteran ”Om mani padme hum.”
-
-
-RADIANTA LOTUSO
+Duonhoron poste ambaŭ profunde dormis. La muĝado kaj blekado ekster la muroj mutiĝis kaj ankaŭ la bruado de la homamaso en la urbo formortis. Potala kuŝis kvazaŭ ridigiĝinta kaj en morteca ripozo sur la deklivo de la montaro kaj la noktan silenton rompis nur la ondofrapado kaj susurado de la rivereto en la korto kaj la flirtado kaj klakado de la milopaj flagoj kaj rubandoj, kiuj senĉese sendis ĉielen sian misteran ”Om mani padme hum.”
 
 
 ĉ A P I T R O X X I I I
@@ -3297,9 +2676,6 @@ La inĝeniero mirigite leviĝis kaj rapide surmetis kelkajn vestaĵojn.
 Hutley senmove staris antaŭ li kun deturnita rigardo kaj mallevita kapo, en teniĝo, kiu konjektigis, ke liaj nervoj streĉiĝis ĝis ekstremo.
 
 
-RADIANTA LOTUSO
-
-
 ”Kion vi aŭskultas, Tom?” respondis la inĝeniero kun kreskanta maltrankvilo en la voio.
 
 ”Tion mi mem ne scias, sinjoro; mi nur scias, ke ni ĉi tie ne estas solaj.”
@@ -3321,9 +2697,6 @@ Streĉe li rigardis al la kurteno kaj poste sin turnis al sia kunulo.
 ”Ne, sinjoro!” respondis Hutley firme. ”Mi vekiĝis pro la kriado kaj kiam dormebrie mi min turnis, mi aŭdis klarajn, mi preskaŭ dirus, neinterligitajn sonojn. Mi tute vekiĝis kaj saltis sur la plankon. ĉar estis absolute mal-lume, mi bruligis alumeton kaj prenis mian revolveron.
 
 
-RADIANTA LOTUSO
-
-
 ĉi tie mi nenion vidis, la kurteno pendis senmova kaj mi do komprenis, ke neniu ĵus forlasis nian ĉambron. Tiam mi metis la lampon en la koridoron kaj ĉirkaŭrigardis.
 
 Neniun mi vidis, neniun kaj tiam mi opiniis konsilinde veki vin.”
@@ -3340,29 +2713,19 @@ Danĝero ne minacas nin. Mi konsentas, ke tiu mistereco dolore kaj maltrankvilig
 
 ”Vi eble pravas,” konsentis Hutley iom ernbarasite,
 
-”sed mi ne ŝatas senti min ĉirkaŭata de sekretoj. Kaj precipe ne, se ili al mi forrabas la dormon. Homa voĉo sen homo, en ĉirkaŭo kaj inter enigmaj homoj, kiaj ĉi tiuj, enhavas ion fantoman kaj ĝi kaŭzas al mi senton de mal-sekureco: Mi ŝatas nek la unuan, nek la duan kaj tio al mi estas sufiĉa motivo por iom esplori la aferon. Tio ta-187
-
-RADIANTA LOTUSO
-
-
-men ne signifas, ke ni tion faru nun; morgaŭ denove venos tago, kvankam fantomoj kutime nur nokte sin montras kaj aŭdiĝas.”
+”sed mi ne ŝatas senti min ĉirkaŭata de sekretoj. Kaj precipe ne, se ili al mi forrabas la dormon. Homa voĉo sen homo, en ĉirkaŭo kaj inter enigmaj homoj, kiaj ĉi tiuj, enhavas ion fantoman kaj ĝi kaŭzas al mi senton de mal-sekureco: Mi ŝatas nek la unuan, nek la duan kaj tio al mi estas sufiĉa motivo por iom esplori la aferon. Tio tamen ne signifas, ke ni tion faru nun; morgaŭ denove venos tago, kvankam fantomoj kutime nur nokte sin montras kaj aŭdiĝas.”
 
 La inĝeniero ne respondis al tiu korelverŝo kaj kvankam li proponis surlitiĝi, li restis senmove sidanta.
 
 La mistera deveno de tiu nokta voĉo ekscitis lian fantazion kaj tamen li hezitis nun fari esploradon. Li en tiu ĉi momento devis al si mem konfesi, ke li sentas timon, kvankam li tute ne estis superstiĉa kaj posedis sufiĉan kvanton da kuraĝo.
 
-Klopodante subpremi sian timon li alrigardis Tom, kiu turnante la rigardon al la pordaperturo, sidis, streĉe aŭ-
-
-skultanta. Li subite komprenis la mokindecon de la situacio kaj brue leviĝis.
+Klopodante subpremi sian timon li alrigardis Tom, kiu turnante la rigardon al la pordaperturo, sidis, streĉe aŭskultanta. Li subite komprenis la mokindecon de la situacio kaj brue leviĝis.
 
 ”Venu, Tom, ni inspektu la ĉambrojn, se nur por ridi pri mi mem. ĉiuj misteraĵoj de la lastaj monatoj atakas miajn nervojn; mi sentas min premita, kvazaŭ mi irus renkonte al morto.”
 
 Hutley kontente kapsignis kaj prenante la lampon li eniris la koridoron, sekvata de Camphuis. Li traserĉis ĉiun ĉambron kaj ĉe la fino de la koridoro ili devis al si konfesi, ke ili nenion eksterordinaran, neniun vivantan homon aŭ beston, povis malkovri.
 
 ”ŝajnas ja inkubo,” rimarkigis Camphuis, kiam ili reeniris sian ĉambron.
-
-
-RADIANTA LOTUSO
 
 
 ”Jes kaj tamen mi certe scias, ke mi ne sonĝis, sinjoro,” respondis Tom decide.
@@ -3375,12 +2738,7 @@ La vortoj mortis sur la lipoj de la inĝeniero. Tra la koridoro sonis kruda, bes
 
 ”Damne, al Erment, mi diras, tagvojaĝon sude de Thebe . . . ”
 
-Per unu salto Tom Hutley staris en la koridoro. Camphuis lin sekvis kaj metis la lampon sur la plankon. Li sentis sin kaptita de konfuzego, kiu minacis paralizi lin: jen duafoje oni lin alkriis iri al Erment. Hutley dekstren kaj maldekstren rigardis en la koridoron, ne unufoje, sed eĉ dekfoje. Subite ambaŭ fiksis sian rigardon sur la kon-189
-
-RADIANTA LOTUSO
-
-
-traŭan muron; tra unu el la malgrandaj aperturoj klare sonis ĝemado. Momenton ili plenmire reciproke sin rigardis, sed tiam fine malstreĉiĝis iliaj trajtoj.
+Per unu salto Tom Hutley staris en la koridoro. Camphuis lin sekvis kaj metis la lampon sur la plankon. Li sentis sin kaptita de konfuzego, kiu minacis paralizi lin: jen duafoje oni lin alkriis iri al Erment. Hutley dekstren kaj maldekstren rigardis en la koridoron, ne unufoje, sed eĉ dekfoje. Subite ambaŭ fiksis sian rigardon sur la kontraŭan muron; tra unu el la malgrandaj aperturoj klare sonis ĝemado. Momenton ili plenmire reciproke sin rigardis, sed tiam fine malstreĉiĝis iliaj trajtoj.
 
 ”Tio ĝi estas, sinjoro! Jen, malantaŭ tiu ĉi dikega muro estas vivo,” ekkriis Hutley per raŭka voĉo. ”ĉu vi aŭdis tiujn vortojn en mia lingvo? Tio ne estas la angla lingvo de la kontinento; tio estas la angla lingvo de aŭtentika anglo! Estas stranga loko por angloj por renkonti sin, sed mi estas preta ĵuri, ke tie kaŝiĝas samlandano mia.”
 
@@ -3395,9 +2753,6 @@ Li sentis preman prenon ĉirkaŭ sia supra brako kaj interrompante siajn vortojn
 Tom Hutley momenton timtremis kaj per rapida mo-vo il serĉis apogon ĉe la muro.
 
 
-RADIANTA LOTUSO
-
-
 ”Majoro Pike . . . ne, neeble, neeble! Oni lin murdis en 1904; la tibetanoj mem tion konfesis. Neeble . . . ”
 
 Li ade ripetis la lastan vorton kvazaŭ idioto, sed kiam Camphuis, subite rekonsciiĝinte, lin forte skuis, li reakiris sian sinregon.
@@ -3406,20 +2761,14 @@ Li ade ripetis la lastan vorton kvazaŭ idioto, sed kiam Camphuis, subite rekons
 
 Camphuis ne plu dubis kaj rapide li nomis ĉiujn kia-lojn, kiuj pravigis lian konvn.
 
-”Aŭskultu,” li komencis. ”La kadavro de la majoro neniam estis trovita, la murdo neniam estis pruvita, la laŭ-
-
-diraj atestantoj ripete male atestis. Plue la tibetanoj havas sanktan abomenon de buĉado, ili eĉ indulgas pulon, ĉar ilia Kandŝur malpermesas atenci la vivon. La lamaoj senpovigis la majoron, verŝajne ĉar ili volis alproprigi al si la papiruson, kiu al ili malsekretigis la ekziston de ’Radianta Lotuso’. Nun denove respondu al jenaj demandoj: Kiu posedis la manuskripton kaj la adreson de Amèn Hoeï? Majoro Pike! Por kiu en la mondo havas iun signifon la vortoj: ’Erment, tagvojaĝon de Thebe’?
+”Aŭskultu,” li komencis. ”La kadavro de la majoro neniam estis trovita, la murdo neniam estis pruvita, la laŭdiraj atestantoj ripete male atestis. Plue la tibetanoj havas sanktan abomenon de buĉado, ili eĉ indulgas pulon, ĉar ilia Kandŝur malpermesas atenci la vivon. La lamaoj senpovigis la majoron, verŝajne ĉar ili volis alproprigi al si la papiruson, kiu al ili malsekretigis la ekziston de ’Radianta Lotuso’. Nun denove respondu al jenaj demandoj: Kiu posedis la manuskripton kaj la adreson de Amèn Hoeï? Majoro Pike! Por kiu en la mondo havas iun signifon la vortoj: ’Erment, tagvojaĝon de Thebe’?
 
 Nur por majoro Pike ! Tom, estas evidente: se efektive ĉi tie estas angla malliberulo, li nomiĝas Edward Pike kaj tiukaze ni povas esti certaj, ke li estas nekuraceble freneza . . .
 
-”Nekuraceble freneza,” eę sonis de la lipoj de Hutley. Li rigardis al Camphuis per okuloj, kiuj esprimis 191
-
-RADIANTA LOTUSO
+”Nekuraceble freneza,” eę sonis de la lipoj de Hutley. Li rigardis al Camphuis per okuloj, kiuj esprimis
 
 
-tiom da kolero kaj venĝemo, ke la inĝeniero, konsterni-
-
-ĝis kaj por ilia sekureco opiniis konsilinde lin admoni al kvieto.
+tiom da kolero kaj venĝemo, ke la inĝeniero, konsterniĝis kaj por ilia sekureco opiniis konsilinde lin admoni al kvieto.
 
 ”Tenu la kapon freŝa, Tom; perforte ni nenion atingos.
 
@@ -3436,9 +2785,6 @@ La vortoj subite mortis sur liaj lipoj. Lin ekregis timiga sento de proksimiĝan
 Tiam li, kvazaŭ trafita de fulmo, falis korplonge sur la ŝtonan plankon, ne povante sin movi kaj ne kapabla eligi sonon . . .
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X X I V
 
 TIMIGAJ ATENDOJ
@@ -3449,9 +2795,7 @@ La inĝeniero ĉion vidis kaj aŭdis kaj malkviete li al si demandis, kio nun al
 
 Li traserĉis ĉiujn liajn poŝojn, sed forprenis de li nur la revolveron. Poste li traserĉis la vestaĵojn de la inĝeniero, kiun li same senigis de lia revolvero. La ĵetgrena-dojn, kies uzon li evidente ne konis, li al ili lasis, kio tre senzorgigis kaj kontentigis la inĝenieron. Subite la lamao ekparolis.
 
-”Sinjoro, via scivolemo estis ĝena kaj malmodesta,” li sin turnis per malvarma voĉo al Camphuis. ”Vi devigas 193
-
-RADIANTA LOTUSO
+”Sinjoro, via scivolemo estis ĝena kaj malmodesta,” li sin turnis per malvarma voĉo al Camphuis. ”Vi devigas
 
 
 nin tion malhelpi. Vi ne bezonas timi; vi reakiros la funkcion de viaj korpomembroj. Ni ne ĝenos vin, sed vi restos enŝlosita ĝis Pantsjen Rinpotsje post kelka tempo vin akceptos.”
@@ -3467,9 +2811,6 @@ Kvankam li ankoraŭ ne komprenis la utilon, li tamen
 Li ne plu dubis, ke ili hazarde trovis vivosignon de majoro Pike. Restis tamen enigmo, kiel li venis en tiun teruran situacion kaj estis verŝajne, ke tio neniam estos solvita konsidere, ke la majoro ŝajne perdis la pruden-ton.
 
 
-RADIANTA LOTUSO
-
-
 Febre pripensante tiujn aferojn, li estis turmentata de brula soifo kaj sentis la komencon de granda kapdolo-ro.
 
 Mire li konstatis, ke ju pli grandiĝis la doloro, des pli da sento revenis en liajn membrojn kaj post kelkaj vanaj penoj li fine sukcesis iom movi siajn fingropintojn kaj piedfingrojn. La paraliziteco iom post iom malaperis el liaj muskoloj kaj post duonhora ekzercado, li reakiris la povon super siaj brakoj kaj kruroj kaj kapablis duone levi sin. Post nelonga tempo li povis stari kaj paŝeton post paŝeto sin movante antaŭen, li baldaŭ ree tute bon-fartis.
@@ -3478,14 +2819,10 @@ Post kiam li longan tempon promenis en la ĉambro, subite lin ekregis maltrankvi
 
 La horoj intertempe malrapide forpasis kaj en la Do-mo de la Sekreta Vivo ĉio restis mortsilenta. De ekster Potala penetris al li malklara bruado: nedifineblaj sonoj de la homamaso, kiu komencis la Lasarfestojn kaj de la brutaroj.
 
-Camphuis malsatis kaj suferante pro brula malpacienco li jam ekdubis, ĉu oni iam malliberigos lin, kiam 195
-
-RADIANTA LOTUSO
+Camphuis malsatis kaj suferante pro brula malpacienco li jam ekdubis, ĉu oni iam malliberigos lin, kiam
 
 
-fine, ĉirkaŭ la dekunua horo, aŭdiĝis proksimiĝantaj pa-
-
-ŝoj. La pordo malŝlosigis kaj krom la maljuna lamao an-kaŭ la gvardiestro eniris en la ĉambron.
+fine, ĉirkaŭ la dekunua horo, aŭdiĝis proksimiĝantaj paŝoj. La pordo malŝlosigis kaj krom la maljuna lamao an-kaŭ la gvardiestro eniris en la ĉambron.
 
 ”Sinjoro, Pantsjen Rinpotsje vin atendas,” komunikis la lamao.
 
@@ -3505,19 +2842,11 @@ La lamao ne respondis, sed kun la gvardiestro li an-taŭiris al Potala, kie li m
 
 Sur estrado ĉe unu el la muroj sidis Dalai-lamao.
 
-Dekstre de li sidis lia plej eminenta altoficulo, Tasji-lamao kaj ankoraŭ trio da aliaj mona˛oj kaj fine Wuangji kaj Lu Tszang. Kaŝe maltrankvile la inĝeniero konsta-196
-
-RADIANTA LOTUSO
-
-
-tis, ke Tom forestas kaj subite li ekdubis pri la bona fino de ĉi tiu aventuro.
+Dekstre de li sidis lia plej eminenta altoficulo, Tasji-lamao kaj ankoraŭ trio da aliaj mona˛oj kaj fine Wuangji kaj Lu Tszang. Kaŝe maltrankvile la inĝeniero konstatis, ke Tom forestas kaj subite li ekdubis pri la bona fino de ĉi tiu aventuro.
 
 Aŭtomate li metis la manon al la poŝo, en kiu troviĝis la grenado de Tom, kaj la konscio, ke li posedas armilon, per kiu li, se necese, facile povus kontraŭstari al centobla superforto, revenigis liajn kuraĝon kaj memfidon.
 
 Trapasante kun levita kapo la salonon, li sentis, ke ĉiuj ĉeestantoj lin observas per pikaj, malfidaj rigardoj, sed li eĉ ne momenton perdis sian memfidon. Nur kiam li, farinte malprofundan riverencon antaŭ la reganto, levis la okulojn kaj renkontis ties akran, malamikan rigardon, li sentis la ĵusan timon reveni kaj iom cedis sian fieran sintenadon. Li subite ekhavis la senton, ke li staras an-taŭ senkompata kaj senindulga juĝisto kaj senvole li ek-tremis, pensante pri la eblo de verdikto, kiu lndam-nos al sama sorto kiel tiu de majoro Pike: dumviva restado en unu el la stukitaj tomboj en la Domo de la Sekreta Vivo . . .
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X V
@@ -3534,9 +2863,7 @@ Camphuis fikse lin rigardis.
 
 Tion dirinte la inĝeniero kaptis mokrideton de Wuangji kaj rememorante lian malsimpatian konduton dum la vojaĝo, li malatentis la intencitan singardemon kaj lia kolero superregis.
 
-”Krom tio mi havas gravajn plendojn pri la viro, kiun vi nomas frato Wuangji kaj pri la viro, kiu sidas flanke de li, sinjoro,” subite daŭrigis la inĝeniero. ”Ili daŭre min 198
-
-RADIANTA LOTUSO
+”Krom tio mi havas gravajn plendojn pri la viro, kiun vi nomas frato Wuangji kaj pri la viro, kiu sidas flanke de li, sinjoro,” subite daŭrigis la inĝeniero. ”Ili daŭre min
 
 
 trompis, malkaŝe pridubis mian findindecon kaj eĉ dufoje atencis miajn posedaĵojn.”
@@ -3551,12 +2878,7 @@ Dirante tiujn vortojn, li demande rigardis al Camphuis, kiu komprenis, ke estas 
 
 ”Via servisto estas en apuda ĉambro; por ĉi tiu interparolado ni ne bezonas lin, ĉar via komisio tute ne koncernis lin,” rimarkigis la reganto kaj kvankam ĉi tiu evita respondo ne kontentigis Camphuis, li devis konfesi, ke Dalai-lamao pravas.
 
-Li konsente klinis la kapon kaj trankvile atendis ĝis Dalai-lamao ekparolos. La reganto kelkan tempon ser-
-
-ĉis enkondukajn vortojn kaj kiam li fine akratone komencis fari siajn demandojn, Camphuis sentis, ke oni lin submetas al formala pridemandado, kio denove incitis lian humoron.
-
-
-RADIANTA LOTUSO
+Li konsente klinis la kapon kaj trankvile atendis ĝis Dalai-lamao ekparolos. La reganto kelkan tempon serĉis enkondukajn vortojn kaj kiam li fine akratone komencis fari siajn demandojn, Camphuis sentis, ke oni lin submetas al formala pridemandado, kio denove incitis lian humoron.
 
 
 ”La komisio, kiun ni al vi konfidis, ŝajne tute malsukcesis, sinjoro,” rediris Dalai-lamao.
@@ -3575,9 +2897,7 @@ Dalai-lamao kelkan tempon meditis kun mallevitaj okuloj kaj poste rapide rediris
 
 Camphuis komprenis, ke la danĝera turniĝo, kiun li intencis eviti, per tiu ĉi demando jam komenciĝis. Li komprenis, ke dusenca respondo ne utilos al li kaj tial li decidis malmultvorte kaj malkaŝe paroli.
 
-”Efektive, la deveno de la papiruso interesis min, sinjoro,” li konfesis. ”Sed tion ne kaŭzis scivolemo. ĉiu spertulo, kiun mi pri la esploro devis konsulti, pli-malpli 200
-
-RADIANTA LOTUSO
+”Efektive, la deveno de la papiruso interesis min, sinjoro,” li konfesis. ”Sed tion ne kaŭzis scivolemo. ĉiu spertulo, kiun mi pri la esploro devis konsulti, pli-malpli
 
 
 malkaŝe al mi komprenigis, ke la manuskripto ne laŭ honesta maniero fariĝis mia posedaĵo.
@@ -3603,9 +2923,6 @@ La lamaoj maltrankvile sin rigardis kaj la reganto mallevis la kapon.
 li subite demandis.
 
 
-RADIANTA LOTUSO
-
-
 ”ĉar mi volis ripozi kelkajn tagojn,” ekkolere respondis la inĝeniero.
 
 ”ĉu ripozi? ĉu ne por alia celo vi restis en Calcutta?”
@@ -3627,9 +2944,6 @@ La tibetanoj interŝanĝis konsternitajn rigardojn, sed Dalai-lamao konservis si
 ”Kion vi lastnokte serĉis en la Domo de la Sekreta Vivo, sinjoro?” subite daŭrigis la reganto per akra voĉo.
 
 
-RADIANTA LOTUSO
-
-
 Camphuis fine komprenis, ke la tuta senorda pridemandado turniĝis ĉirkaŭ la okazintaĵo de la pasinta nokto kaj tio denove lin instigis al trankvileco kaj singardemo.
 
 ”Noktomeze min vekis krianta voĉo, kiu jam antaŭe eldormigis min kaj mi delitiĝis por admoni la viron al trankvileco, sinjoro,” li respondis ŝajne trankvile.
@@ -3644,20 +2958,12 @@ La tono de tiu demando kaj la certeco, ke oni divenis lian intencon denove igis 
 
 ”Mi aŭdis la samajn vortojn, kiuj estas notitaj en la kajereto, kiun vi al mi montris: ’Erment, tagvojaĝon sude de Thebe’, sinjoro,” li respondis per sarkasma akcento.
 
-La efiko de liaj vortoj estis surpriza. La lamaoj sin rigardis tute konfuzite, sed ne kuraĝis leviĝi de la planko. Dalai-lamao tamen perdis sian sinregadon kaj kun raŭka krio levis sin. Li konvulsie pugnigis la manojn kaj momenton Camphuis efektive kredis, ke li sin ĵetos sur lin. Sed subite lia konduto ŝanĝiĝis kiam la kurteno levi-
-
-ĝis kaj iu lamao enkuregis en la salonon.
-
-
-RADIANTA LOTUSO
+La efiko de liaj vortoj estis surpriza. La lamaoj sin rigardis tute konfuzite, sed ne kuraĝis leviĝi de la planko. Dalai-lamao tamen perdis sian sinregadon kaj kun raŭka krio levis sin. Li konvulsie pugnigis la manojn kaj momenton Camphuis efektive kredis, ke li sin ĵetos sur lin. Sed subite lia konduto ŝanĝiĝis kiam la kurteno leviĝis kaj iu lamao enkuregis en la salonon.
 
 
 La viro sin ĵetis surgenuen kaj pleje nervoze kaj konsternite ion flustris al la reganto, pri kio Camphuis konjektis, ke ĝi rilatas al Tom Hutley.
 
 La lamao ricevis kelkajn rapidajn ordonojn, post kio li kun la gvardiestro forlasis la salonon. Mirigite kaj iom maltrankvile la inĝeniero al si demandis, kion signifas ĉi tiu ekapero kaj la konsterniĝo de la lamao, kiam Dalai-lamao levis la kapon kaj trabore lin rigardis, samtempe per malfirma voĉo daŭrigante la pridemandadon.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X V I
@@ -3680,9 +2986,7 @@ Dalai-lamao hezitis, kvazaŭ li ne scius, ĉu li kredu tiun aserton vera aŭ pre
 
 ekkriis la reganto per tranĉa voĉo.
 
-”Sinjoro, tio ne estas tolerebla. Vi submetas min al pridemandado kvazaŭ mi faris krimon. Viaj gardistoj lastnokte traktis min kiel krimulon. Mi ne konscias, ke 205
-
-RADIANTA LOTUSO
+”Sinjoro, tio ne estas tolerebla. Vi submetas min al pridemandado kvazaŭ mi faris krimon. Viaj gardistoj lastnokte traktis min kiel krimulon. Mi ne konscias, ke
 
 
 mi malbonintence pekis kontraŭ viaj leĝoj kaj ankaŭ mi ne sentas min obedeva al via aŭtoritato. Mi ankaŭ ne povas kompreni, al kio utilas ĉi tiu demandado kaj pro tio mi rifuzas respondi. Mi deziras, ke vi tuj finaranĝu niajn aferojn. Mi al vi respondecos pri la mono, kiun mi elspezis por la esplorado kaj kiam mi estos ricevinta mian salajron, mi deziras foriri kun Hutley.”
@@ -3695,9 +2999,7 @@ Ekscitite kaj senspire li eksilentis, dum la lamaoj konsternite rigardis lin. Da
 
 ”Vi havos vian honorarion,” certigis la reganto kun stranga rigardo.
 
-Camphuis komprenis, ke li troviĝas en grava danĝe-ro. Verdire li ankaŭ nun ne kredis, ke lia vivo estas mina-cata, sed li forte ekdubis pri sia libereco. Dalai-lamao senĝene povus ilin ambaŭ enŝlosigi; iu preteksto, kiu lin senkulpigus antaŭ la ekstera mondo, facile estus trovebla kaj monatoj pasus antaŭ ol la angla aŭ la nederlanda registaro postulus klarigon de la tibetanoj. Li nun benis la malfidon de doktoro Housting, al kiu li ŝuldis la akompanon de Tom Hutley. La doktoro certe ne hezitos 206
-
-RADIANTA LOTUSO
+Camphuis komprenis, ke li troviĝas en grava danĝe-ro. Verdire li ankaŭ nun ne kredis, ke lia vivo estas mina-cata, sed li forte ekdubis pri sia libereco. Dalai-lamao senĝene povus ilin ambaŭ enŝlosigi; iu preteksto, kiu lin senkulpigus antaŭ la ekstera mondo, facile estus trovebla kaj monatoj pasus antaŭ ol la angla aŭ la nederlanda registaro postulus klarigon de la tibetanoj. Li nun benis la malfidon de doktoro Housting, al kiu li ŝuldis la akompanon de Tom Hutley. La doktoro certe ne hezitos
 
 
 informi la koncernajn aŭtoritatulojn, se Tom kaj li ne revenos en la fiksita tempo, sed tio ne neigis, ke ili nun troviĝas en malagrabla situacio, el kiu ili, se eble per pacaj rimedoj klopodu liberigi sin por eviti eĉ pli malbo-nan sorton.
@@ -3705,9 +3007,6 @@ informi la koncernajn aŭtoritatulojn, se Tom kaj li ne revenos en la fiksita te
 ĉiuj tiuj pensoj en momento trafulmis lian kapon. Li ankoraŭ serĉis vortojn por timigi Dalai-lamaon kaj sekurigi sian foriron, kiam subite lin frapis la silento. Fluga rigardo eksteren igis lnstati, ke la korto estas forlasita, la benado de la bestaroj por hodiaŭ finiĝis kaj neniu alia bruo penetris ĝis Potala ol tiu de la festanta homamaso, kiu ekstere antaŭ la pordegoj lasis sin agiti kaj entuziasmigi per la grimacoj de la diablodancistoj kaj sorĉistoj.
 
 Subite Camphuis rapide levis la okulojn. Tra ĉambro zumis obtuza sono, kaŭzita per gongofrapo. Li sciis, ke post tiu signo tuj iu aperos kaj li sentis, ke li staras an-taŭ decida momento. Kun la okuloj direktitaj al la kurteno, li kun streĉa rigardo kaj iom kliniĝinta atendis, kvazaŭ preta por fari eksalton. Je lia mirego neniu aperis kaj kiam li fluge observis la Dalai-lamaon, li vidis, ke ĉi tiu rimarkeble malbonhumoriĝis. Ankoraŭ li dubis kiel li agu, kiam li subite streĉe aŭskultante levis la kapon.
-
-
-RADIANTA LOTUSO
 
 
 El la koridoro penetris al li ekscitita voĉo, la voĉo de Tom, kiu sonis pli kaj pli laŭte kaj ĉiam pli alproksimiĝis kaj pro kio la tibetanoj konsternite ekrigardis.
@@ -3720,19 +3019,11 @@ La inĝeniero nur duone lin aŭskultis; lian tutan atenton altiris Dalai-lamao. 
 
 ĉi tiuj kelkaj sekundoj pruviĝis valoraj. Camphuis rigardis al Tom kaj rapide, per obtuza voĉo kaj balbutante ĉi tiu klarigis, kio okazis.
 
-”Jen tiu fripono volis min pridemandi france; mi lin ne komprenis kaj mi ridis al li. Oni rekondukis min al la Domo kaj volis ree min enŝlosi. Mi kontraŭstaris kaj kiam ili perforte tion klopodis, mi du el ili terenbatis. La tria volis min piki, kiel lastnokte, sed nun li kuŝas en la korto! Atentu, ni troviĝas en danĝero. Ili opinias, ke mi estas spiono kaj vin akompanis pro majoro Pike. Ili tuj nin faros sendefendaj, ili nin enŝlosos, sed tion ni mal-208
-
-RADIANTA LOTUSO
-
-
-helpos. Malantaŭen, sinjoro, kiam ili nin aliros . . . jen ili jam venas, malantaŭen al la mezo . . . jen ili jam venas, malantaŭen al la mezo . . . malantaŭen, ni . . . ”
+”Jen tiu fripono volis min pridemandi france; mi lin ne komprenis kaj mi ridis al li. Oni rekondukis min al la Domo kaj volis ree min enŝlosi. Mi kontraŭstaris kaj kiam ili perforte tion klopodis, mi du el ili terenbatis. La tria volis min piki, kiel lastnokte, sed nun li kuŝas en la korto! Atentu, ni troviĝas en danĝero. Ili opinias, ke mi estas spiono kaj vin akompanis pro majoro Pike. Ili tuj nin faros sendefendaj, ili nin enŝlosos, sed tion ni malhelpos. Malantaŭen, sinjoro, kiam ili nin aliros . . . jen ili jam venas, malantaŭen al la mezo . . . jen ili jam venas, malantaŭen al la mezo . . . malantaŭen, ni . . . ”
 
 Kvazaŭ en sonĝo Camphuis vidis fulmrapide antaŭ si okazi jenon: Dalai-lamao faris al la gvardiestro laŭtan ordonon, post kio la gardistoj alkuregis al Camphuis kaj Hutley. La inĝeniero komprenis, kion Tom intencas kaj per salto li staris en la mezo de la salono. Li vidis, ke Tom rigardas eksteren por certiĝi, ke tie ne estas homoj; tiam li vidis lin svingi la dekstran brakon kaj ion ĵetiĝi tra la vitroj. La tintado de rompiĝanta vitro momenton senmo-vigis ĉiujn en la salono kaj tio estis la lasta, kion Camphuis poste rememoris pri tiu emocia spektaklo . . .
 
 Potala subite ŝajne ŝanceliĝis sur siaj fundamentoj; terura, surdiga eksplodo miksiĝis kun la tintado de centoj da rompiĝantaj vitroj kaj kun akraj timkrioj de centoj da lamaoj. La aerpremo terenĵetis Camphuis per ne-rezistebla forto; li vidis nubon el polvo kaj gruzo malleviĝi antaŭ liaj okuloj kaj kiam li fine havis la komprenon por stariĝi, li vidis, ke ĉio estas kovrita per rubo. Kaj meze de tiu ruinaĵo kuŝis la tibetanoj sternitaj sur la planko, nevunditaj, sed paralizitaj pro timego kaj senpa-rolaj pro teruro . . .
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X V I I
@@ -3748,9 +3039,6 @@ Camphuis tute rekonsciiĝis nur kiam li vidis Tom Hutley leviĝi de la planko. L
 ”Bone kaj mi kredas, ke ankaŭ la aliaj sinjoroj ankoraŭ vivas. ĉar danĝera ĝi ne estis; la korto ja estis forlasita; nur la materia malprofito estas sufiĉe granda, kiel rapor-tus la ĵurnaloj. Jen vidu; ĉiuj vitroj detruitaj kaj de la Do-mo de la Sekreta Vivo ne multe pli ol la duono restis.”
 
 Dum Camphuis konsternite rigardis la ruinon en la korto, la voĉo de Tom revivigis la aliajn. Dalai-lamao kaj la gvardiestro estis la unuaj, kiuj leviĝis. Per plentimaj okuloj ili rigardis ĉirkaŭen kaj poste fiksis sian rigardon kun esprimo de respekta timo kaj konfuzego sur Camphuis kaj Hutley, kvazaŭ ili kredus vidi supernaturajn estaĵojn.
-
-
-RADIANTA LOTUSO
 
 
 Tom intertempe denove sin turnis al la inĝeniero.
@@ -3774,9 +3062,6 @@ ordonis Camphuis.
 Mallonga ordono, raŭkvoĉe eligita, malaperigis la gardistojn, kiuj nekomprene rigardis ĉirkaŭen.
 
 
-RADIANTA LOTUSO
-
-
 La lamaoj, kiuj kadre sidis ĉirkaŭ la reganto, prezentis ridindan aspekton; ili pendis unu kontraŭ alia kiel ekzemploj de mizero kaj per senesprimaj okuloj ili rigardis al la konsterniga detruo ĉirkaŭ si.
 
 Tuj kiam Camphuis ekparolis, ili timplene rigardis lin; humilaj kaj subulaj kiel pigmeoj kontraŭ giganto, ili mute kaj senmove aŭskultis.
@@ -3791,9 +3076,7 @@ La roloj subite ŝanĝiĝis; nun la inĝeniero mallonge kaj aferece ekdemandis k
 
 ”Neniu; li ĝin donacis al ni, sinjoro.”
 
-”ĉu donacis? Kial? ĉu perforte?” demandis Camphuis nekredante. Li vidis la hezitadon de la lamao kaj kun minaca akcento li daŭrigis: ”Atentu, sinjoro, mi deziras 212
-
-RADIANTA LOTUSO
+”ĉu donacis? Kial? ĉu perforte?” demandis Camphuis nekredante. Li vidis la hezitadon de la lamao kaj kun minaca akcento li daŭrigis: ”Atentu, sinjoro, mi deziras
 
 
 aŭdi la plenan veron, se ne, el via Potala restos nur ruino.”
@@ -3804,9 +3087,7 @@ Dalai-lamao paliĝis pro timo.
 
 ĉi tiu respondo subite malfermis la okulojn al Camphuis. Antaŭ ol majoro Pike forvojaĝis al Tibeto, oni al li parolis pri la Kandŝur-profetaĵo dum la adiaŭa manĝo en Calcutta. Malliberigita, li klopodis profiti la superstiĉon de la tibetanoj por reakiri sian liberecon. Por tiu celo li sagace interrilatigis ’Radiantan Lotuson’ el la papiruso kun la ’juvelo en la lotuso’, pri kiu temas en la Kandŝur.
 
-Por ŝajnigi ĉion pli verŝajna li elpensis la ekziston de egipta tradicio, sed tiu erarigo, per kiu li klopodis savi 213
-
-RADIANTA LOTUSO
+Por ŝajnigi ĉion pli verŝajna li elpensis la ekziston de egipta tradicio, sed tiu erarigo, per kiu li klopodis savi
 
 
 sian vivon, evidente ne sufiĉis por konvinki la tibetanojn.
@@ -3833,9 +3114,7 @@ La reganto energie kapjesis.
 
 Dalai-lamao iom levis la ŝultrojn.
 
-”Se la oficiro samtempe kun la aliaj fremduloj estus forlasinta Tibeton, nenio estus okazinta, sinjoro. Sed li restis en la lando kaj du monatojn poste ekregis inter la 214
-
-RADIANTA LOTUSO
+”Se la oficiro samtempe kun la aliaj fremduloj estus forlasinta Tibeton, nenio estus okazinta, sinjoro. Sed li restis en la lando kaj du monatojn poste ekregis inter la
 
 
 brutaroj iu malsano, pro kiu tutaj aroj mortis. La granda sorĉisto de Na-Chung konsultis la spiritojn, kiuj respondis, ke la malsano ne malaperos antaŭ ol la fremdulo estos punita pro la sakrilegio en la Dzjilipla-montpasejo. Tiam Pantsjen Rinpotsje ordonis enŝlosi la anglan oficiron en la Domon de la Sekreta Vivo,
@@ -3858,12 +3137,7 @@ La penso pri la nehominda sorto, kiu la kompatindan Pike dum tiom da jaroj kuntr
 
 ”Li mortis antaŭ dek du jaroj, sinjoro,” mallaŭte sonis.
 
-Camphuis longan tempon silentis ĝis la ventego en lia koro fine kvietiĝis kaj li denove kapablis trankvile pripensi. ĉar Dalai-lamao tute malkaŝis sian fatalan sekre-215
-
-RADIANTA LOTUSO
-
-
-ton, nur restis al la inĝeniero liberigi la kompatindan Pike kaj certigi al si sendanĝeran forvojaĝon.
+Camphuis longan tempon silentis ĝis la ventego en lia koro fine kvietiĝis kaj li denove kapablis trankvile pripensi. ĉar Dalai-lamao tute malkaŝis sian fatalan sekreton, nur restis al la inĝeniero liberigi la kompatindan Pike kaj certigi al si sendanĝeran forvojaĝon.
 
 Antaŭ ol li priparolis tion, Camphuis informis Tom Hutley pri la respondoj de Dalai-lamao. La anglo estis kompreninta nenion el la interparolado, sed tamen li plenatente estis ĝin sekvinta.
 
@@ -3886,9 +3160,6 @@ La inĝeniero ree sin turnis al Dalai-lamao.
 ”Tuj, se vi tion deziras, sinjoro,” rapide certigis la reganto.
 
 
-RADIANTA LOTUSO
-
-
 ”Bone, ni jam hodiaŭ posttagmeze forvojaĝos. Mi nun al vi diros, sub kiuj kondiĉoj ni ne plu vin ĝenos. Vi donu al ni ĉevalojn kaj gruntbovojn por la pakaĵoj. Neniu nin postrajdu. Kiel gvidantojn kaj garantiulojn vi donu al ni la Tasji-lamaon kaj la gvardiestron. Ili ne estu armitaj.
 
 Fine vi ordonu la liberigon de majoro Pike kaj la redo-non de niaj posedaĵoj. ĉu vi ĉion komprenis, sinjoro?”
@@ -3908,9 +3179,6 @@ Dalai-lamao malserene mienis, — sed li ne hezitis.
 Dalai-lamao ŝajne nenion komprenis pri lia konsterniĝo, ĉar ŝultrolevante li ripetis: ”Estas laŭregule, sinjoro; por fremduloj ni ne povas fari escepton.”
 
 
-RADIANTA LOTUSO
-
-
 ”ĉu eble estas pliaj fremduloj enŝlositaj?”
 
 ”Ne, ne, ili ĉiuj estas tibetanoj,” rapide certigis la reganto. Kelkaj el ili jam sesdek jarojn vivas izolitaj; ili propravole sin retiris kaj oni ilin liberigos, nur kiam ili estos mortintaj.”
@@ -3927,9 +3195,7 @@ Camphuis rigardis eksteren. En la korto li vidis nombron da lamaoj, kiuj kun mor
 
 Dalai-lamao lin alrigardis kvazaŭ li miregis pri tioma nekompreno.
 
-”Mi ja al vi diris, ke ĉiu, kiu eniras la Domon de la Sekreta Vivo, nur post la morto ĝin forlasas, sinjoro. Al 218
-
-RADIANTA LOTUSO
+”Mi ja al vi diris, ke ĉiu, kiu eniras la Domon de la Sekreta Vivo, nur post la morto ĝin forlasas, sinjoro. Al
 
 
 kio do utilus en- aŭ elirejo? En 1904 oni la oficiron enmasonis; poste tiu situacio ne ŝanĝiĝis.”
@@ -3938,21 +3204,14 @@ Camphuis ne povis subpremi krion pro konsterniĝo.
 
 ”Aŭskultu, sinjoro!” li rapide ekkriis. ”Antaŭ ol mi be-daŭros mian decidon pri nevenĝo, mi diros al vi miajn kondiĉojn. ĉiuj lamaoj retiriĝu en la ĉambrojn; neniu sin montru ĉe la fenestroj. Iru, la Tasji-lamao kaj la gvardiestro restu tie ĉi. Mia servisto vin gardos; li ne estu atestanto de la liberigo de sia samlandano, ĉar mi tiukaze ne povus garantii vian sekurecon.
 
-Unu lamao kaj kelkaj gvardianoj min akompanu por liberigi majoron Pike. Mi nun unue volas rericevi niajn revolverojn; mi mem kuniros kun la gvardiestro por preni ilin. Kaj nun faru viajn ordonojn, sed ne eraru: kon-forme al miaj instrukcioj. En kvin minutoj ĉio estu aran-
-
-ĝita.”
+Unu lamao kaj kelkaj gvardianoj min akompanu por liberigi majoron Pike. Mi nun unue volas rericevi niajn revolverojn; mi mem kuniros kun la gvardiestro por preni ilin. Kaj nun faru viajn ordonojn, sed ne eraru: kon-forme al miaj instrukcioj. En kvin minutoj ĉio estu aranĝita.”
 
 Kun malhela rigardo li sin deturnis kaj komunikis al Tom Hutley, kion li ordonis al Dalai-lamao. Momenton poste ili vidis la lamaojn, kiel aron da dispelitaj sturnoj forkuri ĉiuflanken; en malmultaj sekundoj neniu plu estis videbla kaj ĉiuj retirigis en la ĉambrojn. Nur Dalai-lamao kaj la Tasji-lamao postrestis, dum Camphuis foriris kun la gvardiestro por preni la revolverojn.
 
-Kiam Tom Hutley reposedis sian pistolon, li denove sentis sin mastro de la situacio. ĵetante venĝemajn rigardojn al la tibetanoj, li manifeste kaj minace kun la armilo 219
-
-RADIANTA LOTUSO
+Kiam Tom Hutley reposedis sian pistolon, li denove sentis sin mastro de la situacio. ĵetante venĝemajn rigardojn al la tibetanoj, li manifeste kaj minace kun la armilo
 
 
 en la mano iris tien-reen en la salono. Kun energia kap-jeso li konfirmis, ke li komprenis la instrukciojn de Camphuis. La inĝeniero, certa, ke la gardado estas en bonaj manoj, fine iris kun maljuna lamao, kiu pala kaj timema staris premiĝinta en angulo, eksteren por liberigi la kompatindan majoron.
-
-
-RADIANTA LOTUSO
 
 
 ĉ A P I T R O X X V I I I
@@ -3965,9 +3224,7 @@ Nur enirante la korton Camphuis ekhavis ĝustan ideon pri la detrua potenco de l
 
 Estis klare rimarkeble, ke la konsterniga okazintaĵo jam disvastiĝis en la urbo. La bruado de la festanta homamaso kvietiĝis; nek tamburo nek cimbalo plu aŭdiĝis kaj neniu homo vidiĝis. ĉe la kortopordo staris, por helpi la lamaon, kelkaj gvardianoj, kiuj tiel timis la inĝenieron, ke ili eĉ ne kuraĝis lin rigardi.
 
-Ankaŭ la mona˛o sentis kaŝan timon por la fremdulo, ĉar li restis kiel eble plej malproksime de la inĝeniero kaj Camphuis devis penegi por lin paroligi. La inĝeniero estis scivola, kiel la viroj sukcesos fari aperturon en la dika muro, sed ĉi tio pruviĝis esti pli facila ol li al si imagis. La enirejo de la ĉelo estis fermita per du pezaj kalk-argilaj blokoj, proksimume kuban metron grandaj, kiuj 221
-
-RADIANTA LOTUSO
+Ankaŭ la mona˛o sentis kaŝan timon por la fremdulo, ĉar li restis kiel eble plej malproksime de la inĝeniero kaj Camphuis devis penegi por lin paroligi. La inĝeniero estis scivola, kiel la viroj sukcesos fari aperturon en la dika muro, sed ĉi tio pruviĝis esti pli facila ol li al si imagis. La enirejo de la ĉelo estis fermita per du pezaj kalk-argilaj blokoj, proksimume kuban metron grandaj, kiuj
 
 
 estis kunigitaj per mortero el griza ardezosablo, kiu senpene estis rompebla kaj forigebla.
@@ -3986,9 +3243,7 @@ La viroj havis ĝustan ideon pri labordivido kaj laboris laŭ difinita metodo, k
 
 ”Sed la homo ja bezonas pli por vivi ol plenmanon da hordeo, ĉu ne?”
 
-”Ne, sinjoro; ĉi tie vivas viroj, kiuj ne plu konas aliajn bezonojn kaj kiuj lernis tute adaptiĝi al tio, kion oni al 222
-
-RADIANTA LOTUSO
+”Ne, sinjoro; ĉi tie vivas viroj, kiuj ne plu konas aliajn bezonojn kaj kiuj lernis tute adaptiĝi al tio, kion oni al
 
 
 ili donas. Eĉ vestojn ili ne plu portas, kiam la unuaj estas konsumiĝintaj.”
@@ -4009,43 +3264,29 @@ En kaj ekster Potala regis morta silento kaj ĉi tiu tiel strange kaj tremige li
 
 ”Sinjoro, la ŝtono povas esti forigata,” subite avertis la lamao.
 
-Camphuis repaŝis kaj kun brulaj okuloj restis obser-vanta la lastajn laborojn. La tibetanoj prenis tabulojn kaj ilin lokis sur primitivan stablon, kiun ili ŝovis kontraŭ la 223
-
-RADIANTA LOTUSO
+Camphuis repaŝis kaj kun brulaj okuloj restis obser-vanta la lastajn laborojn. La tibetanoj prenis tabulojn kaj ilin lokis sur primitivan stablon, kiun ili ŝovis kontraŭ la
 
 
 muron. Per siaj leviloj ili tiam centimetron post centimetro eksteren premis la pezan kalkargilan blokon kaj, kvankam ĉi tiu laboro nur ekstreme malrapide progresis, ĝi tamen regule marŝis.
 
-Pasis pli ol duona horo antaŭ ol ili delokigis la ferm-
-
-ŝtonon, sed fine iu el la viroj aŭdigis lastan averton. Per kunaj fortoj ili premis la levilojn, la ŝtono ŝoviĝis malantaŭen kaj subite ĝi falis sur la plankon per obtuza bruo, kiu dekfoje resonis en la koridoro. Polvonubo momenton malebligis al Camphuis ion distingi kaj palpante li enrampis en la faritan aperturon.
+Pasis pli ol duona horo antaŭ ol ili delokigis la fermŝtonon, sed fine iu el la viroj aŭdigis lastan averton. Per kunaj fortoj ili premis la levilojn, la ŝtono ŝoviĝis malantaŭen kaj subite ĝi falis sur la plankon per obtuza bruo, kiu dekfoje resonis en la koridoro. Polvonubo momenton malebligis al Camphuis ion distingi kaj palpante li enrampis en la faritan aperturon.
 
 La unua bruo, kiu trafis lian orelon, estis la mallaŭta susurado de rivereto. Sed kiam li pli profunden enpenetris, ĉi tiun bruon supersonis regula spiregado.
 
 Lia koro subite ekbategis kaj en lia kapo ekmartelis, tiel ke li momenton devis ripozi por trankviligi siajn nervojn. Li ankoraŭ kelkajn decimetrojn rampis pluen kaj elpoŝigante sian poŝlanternon, li lumigis kaj ĵetis brulan rigardon en la kavernon, kiu dum preskaŭ tridek jaroj estis la tombo de vivanta homo.
 
 
-RADIANTA LOTUSO
-
-
 ĉ A P I T R O X X I X
 
 REVIVIINTA
 
-Per unu sola ekrigardo Camphuis ĉion vidis: malfreŝan ejon de dumetraj dimensioj, miniaturan ri-vereton, grandparte kovritan per ŝtono; malpurajn, sur-
-
-ŝmiritajn murojn, sur la planko duone putriĝintan paperon, amason da sekiĝinta fekaĵo kaj en angulo ŝrumpin-tan homan estaĵon, degenerintan kadukaĵon . . .
+Per unu sola ekrigardo Camphuis ĉion vidis: malfreŝan ejon de dumetraj dimensioj, miniaturan ri-vereton, grandparte kovritan per ŝtono; malpurajn, surŝmiritajn murojn, sur la planko duone putriĝintan paperon, amason da sekiĝinta fekaĵo kaj en angulo ŝrumpin-tan homan estaĵon, degenerintan kadukaĵon . . .
 
 La inĝeniero malfacile spiris. La aspekto de ĉi tiu aĉa, nedireble malpura, krudiĝinta kaj difektita restaĵo de tio, kio iam estis fortstatura viro, lin kelkajn momentojn plenigis per forta sento de korpa kaj morala naŭzo. La nuda korpo de la kompatinda oficiro similis skeleton kaj estis tute kovrita de krustoj kaj vundoj; lian vizaĝon preskaŭ tute kaŝis implikita amaso da blankegaj haroj, kiuj ĉir-kaŭ liaj ŝultroj pendis ĝis la talio.
 
 La manoj kun la konvulsie kurbigitaj fingroj kaj la longaj fenditaj ungoj impresis kiel la ungegoj de rabobesto.
 
-ĉi tiu degenerinta vivrestaĵo estis antaŭ preskaŭ tridek jaroj civilizita homo, lerta oficiro kaj sprita scienculo. La detruo kaj kripligo estis tiel profunde konsternigaj, ke Camphuis timigite kiel en premsonĝo paŝis malantaŭen. La sango premiĝis en lian vizaĝon, li havis sen-225
-
-RADIANTA LOTUSO
-
-
-ton kvazan li sufokiĝus kaj dum momento lia prudento rifuzis akcepti tiun teruraĵon kiel realaĵon.
+ĉi tiu degenerinta vivrestaĵo estis antaŭ preskaŭ tridek jaroj civilizita homo, lerta oficiro kaj sprita scienculo. La detruo kaj kripligo estis tiel profunde konsternigaj, ke Camphuis timigite kiel en premsonĝo paŝis malantaŭen. La sango premiĝis en lian vizaĝon, li havis senton kvazan li sufokiĝus kaj dum momento lia prudento rifuzis akcepti tiun teruraĵon kiel realaĵon.
 
 Kiom da tempo li tiel kuŝis, sterniĝinta sur la ŝtonoj kaj per frenezaj okuloj fiksrigardanta al ĉi tiu senŝanĝa homa restaĵo, li poste neniam povis memori. Jen li kredis horojn, jen ŝajnis al li nur kelkajn sekundojn. Liaj fortegaj streĉiteco kaj emocio fine liberigis sin per raŭka krio kaj ĝin eliginte li reakiris la senton por la realeco kaj la volon por ekagi.
 
@@ -4060,9 +3301,6 @@ Li ja dekfoje ripetis la samajn vortojn kaj estis devigita ĉiam pli krude skui 
 La malfeliĉulo eklevis la okulojn: senlumaj, malviglaj okuloj kun esprimo de ĉesinta vivo, kiu estis fremda al la realo.
 
 
-RADIANTA LOTUSO
-
-
 ”Pike, kara viro. Pike, Pike . . .” ripetis Camphuis, profunde tuŝita pro la senviva rigardo, per kiu la kompatindulo lin alrigardis. ”Pike, ĉu vi ne aŭdas min?”
 
 Liaj vortoj iom post iom vekis pli da vivo en la ŝrumpinta figuro. La oficiro moviĝis. Li faris movon por stariĝi kaj palpis per la manoj al la muro, serĉante la fendaperturon, kie li kutimis unufoje tage trovi sian malluk-san hordeonutraĵon. Li vane serĉis kaj kun ĝemo li ree falkuŝiĝis.
@@ -4071,16 +3309,11 @@ Liaj vortoj iom post iom vekis pli da vivo en la ŝrumpinta figuro. La oficiro m
 
 Subite la anglo levis la supran korpon kaj rigardante al Camphuis, li raŭktone eligis kelkajn vortojn.
 
-”Jes, mi scias. Mi jam tion ofte diris: Erment, tagvoja-
-
-ĝon sude de Thebe . . .”
+”Jes, mi scias. Mi jam tion ofte diris: Erment, tagvojaĝon sude de Thebe . . .”
 
 Kun profunda ĝemo Camphuis venkis sian lastan abomenon. Li sin klinis antaŭen kaj ĉirkaŭprenis la kompatindulon per la brakoj kaj lin tiris en la faritan aperturon. Tiam li rampis malantaŭen kaj per unu mano ŝirmante la postkranion de la oficiro, li singarde lin altiris.
 
 Eĉ ne unu plendon eligante, tute senvola kaj rompita, Pike restis tute pasiva. Senmova li restis kuŝanta en la koridoro; montris vivon nur liaj okuloj, turnitaj kun senvida, malsata esprimo al la lumo, kiu falis en la koridoron.
-
-
-RADIANTA LOTUSO
 
 
 La lamao sin returnis de la terura aspekto, sed la gvardianoj ŝajne ne povis sin liberigi de ĝi.
@@ -4093,9 +3326,7 @@ La lamao konsternite lin rigardis; evidente li malmulte ŝatis cedi sian robon p
 
 ”Restu momenton ĉe li, sed ne tuŝu lin, sinjoro,” li ordonis al la tibetano, kiu embarasita kaj konsternita lin sekvis. ”Diru al la gardistoj, ke ili iru por preni akvon kaj tolaĵon, grandan kvanton, por ke mi povu plene bandaĝi lin.”
 
-Dum la gardistoj rapide foriris, Camphuis iris en la korton. Tom Hutley ankoraŭ postenis antaŭ la fenestro, sed neniu alia sin montris. Per kelkaj rapidaj vortoj li informis sian kunulon kaj tiam reiris al la kompatinda Pike. Li unue lin senigis de la kaphararo kaj la barbo; poste deviginte la lamaon al helpado, li komencis plenzorge kaj singarde purigi la anglon. En unu horo Edward Pike nerekoneble ŝanĝiĝis: la maldika, sensanga 228
-
-RADIANTA LOTUSO
+Dum la gardistoj rapide foriris, Camphuis iris en la korton. Tom Hutley ankoraŭ postenis antaŭ la fenestro, sed neniu alia sin montris. Per kelkaj rapidaj vortoj li informis sian kunulon kaj tiam reiris al la kompatinda Pike. Li unue lin senigis de la kaphararo kaj la barbo; poste deviginte la lamaon al helpado, li komencis plenzorge kaj singarde purigi la anglon. En unu horo Edward Pike nerekoneble ŝanĝiĝis: la maldika, sensanga
 
 
 vizaĝo estis razita kaj tute ŝmirita per dolĉiga oleo kaj la skeleteca korpo estis ĉirkaŭvolvita per tolaĵo de la piedoj ĝis la kolo. Dum la bandaĝado, kiu sendube estis do-loriga, la kompatindulo eligis eĉ ne unu veon; eĉ ne geste li al Camphuis kontraŭstaris. Li lasis sin flegi kiel sen-helpa infano kaj nek per vorto nek per rigardo li montris ian komprenon pri tio, kio okazas ĉirkaŭ li. Vestinte lin per kelkaj el siaj propraj vestaĵoj, la inĝeniero lin transdonis al la zorgoj de la lamao kaj iris al Potala, kie ĉio ŝajnis formortinta. En la ĉambro, kie li estis lasinta Tom Hutley, li ankoraŭ ĉion trovis en la sama stato: la tri tibetaj aŭtoritatuloj fiksrigardis antaŭ sin per konsternitaj rigardoj kaj la anglo kun febra malpacienco marŝis senĉese tra la ĉambro.
@@ -4106,9 +3337,7 @@ Sed mi supozas, ke la angla registaro . . . ”
 
 ”Sed vi scias, sinjoro, ke ni estas tute senkulpaj,” ekkriis Dalai-lamao per tremanta voĉo, senespere levante la brakojn.
 
-”Mi scias; iugrade vi estas persone senkulpa. Sed la registaro sendube postulos kontentigon. Ni foriros post 229
-
-RADIANTA LOTUSO
+”Mi scias; iugrade vi estas persone senkulpa. Sed la registaro sendube postulos kontentigon. Ni foriros post
 
 
 duonhoro, sinjoro; vi certe prizorgos, ke ĉio gustatem-pe estos preta.”
@@ -4122,9 +3351,6 @@ Li kaj la Tasji-lamao rajdis ĉe la antaŭo de la malgranda trupo; malantaŭ ili
 Nenie en la ĉirkaŭo aŭ sur la vojo iu vidiĝis. Camphuis komprenis, ke la eksplodo kaŭzis al la tibeta popolo bonefikan timon por la fremduloj.
 
 
-RADIANTA LOTUSO
-
-
 Pro la mizera stato de majoro Pike la trupo nur malrapide progresis. La transporto postulis grandan zorgon kaj singardemon, kvankam la kompatindulo mem eĉ ne unu momenton al ili kaŭzis ĝenaĵojn aŭ malagrablaĵojn.
 
 La demandoj, kiujn Camphuis kaj Tom Hutley ripete al li faris, ŝajne ne penetris al li kaj la nura intereso, kiun li montris, rilatis al la manĝaĵoj, kiujn oni kun plej granda singardemo kaj en malgrandaj kvantoj al li donis.
@@ -4136,9 +3362,6 @@ Nokte Camphuis kaj Tom laŭvice gardis kaj tio faris la vojaĝon tiel laciga, ke
 Camphuis longe postrigardis ilin, okupita de multegaj pensoj. Li denove preterpasigis al sia spirito ĉiujn okazintaĵojn, kiuj ligis lian memoron al la sankta kaj mistera Tibero, ĝis fine la voĉo de Tom lin vekis el lia reva meditado.
 
 ”Nun ni mem devos konduki la lamaojn, sinjoro,” rimarkigis Hutley.
-
-
-RADIANTA LOTUSO
 
 
 ”Jes kaj ni marŝos flanke de niaj ĉevaloj,” respondis Camphuis per distrita voĉo. Kiam li deĉevaliĝis, lia rigardo falis sur la monumenton, dediĉita al la memoro de vivanta mortinto.
@@ -4156,17 +3379,11 @@ Edward Pike vagigis sian senespriman rigardon de Camphuis al Tom Hutley kaj per 
 ”Jes, jes, al Erment, tagvojaĝon sude de Thebe, mi diras; tagvojaĝon sude de Thebe . . . ”
 
 
-RADIANTA LOTUSO
-
-
 FINPAROLO
 
 La reveno de majoro Pike inter la vivantojn kompreneble kaŭzis grandan sensacion en la angla-hinduja socio. Kiam kelkaj ĵurnaloj postulis oficialan esploron kaj revenĝon, ankaŭ la angla registaro aŭdigis sian voĉon. i tamen estis modera voĉo, kiu admonis al kvieto kaj kiu la faktojn reduktis al iliaj veraj proporcioj. i trankviligis la publikan opinion certigante, ke oni postulos kontentigon de la tibeta registaro, sed samtempe deklaris, ke kiom ajn bedaŭrinda estas la sorto de la kompatinda oficiro kaj kiom ajn da kialoj efektive ekzistas por malkaŝe montri la ĝeneralan indignon, la politikaj interesoj de Anglujo en la Oriento postulas takton kaj pacemon.
 
 Per ĉi tiu deklaro la historio oficiale finiĝis, kialo por la grandaj ĵurnaloj ĝin meti en sian arkivon. En rondoj, en kiuj majoro Pike antaŭe troviĝis, lia terura historio tamen restis aktuala. La fino de la aventuro, la ekscitaj okazintaĵoj en Potala, la liberigo de la oficiro kaj la rolo kiun Camphuis kaj Tom Hutley ludis, kaŭzis multajn sensencajn famojn, kiuj grandparte naskiĝis el la ekscitita fantazio.
-
-
-RADIANTA LOTUSO
 
 
 La realo havis nenion komunan kun tiu sensencaĵo.
@@ -4180,9 +3397,6 @@ George Camphuis kaj Tom Hutley dum kelkaj semajnoj estis la herooj de Calcutta. 
 Du monatojn post lia reveno en Nederlando, la angla registaro skribis la finon de la aventuro de Camphuis. i resumiĝis en nur malmultaj linioj, kiuj al li sciigis, ke al Lia Reĝa Moŝto George V plaĉis lin kavalirigi en la Or-denon de sankta Georgo kun la drako ”rekompence de la kuraĝa kaj vivdanĝera savo de angla subulo.”
 
 Tom Hutley ricevis oran poŝhorloĝon kaj monan rekompencon, pro kio li estis tiel kontenta, ke li tuj sin deklaris preta kaŭzi duan tondradeton en Potala.
-
-
-RADIANTA LOTUSO
 
 
 www.omnibus.se/

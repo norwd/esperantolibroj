@@ -24,27 +24,15 @@ Redaktis kaj parte novtradukis
 Margaret Munrow
 
 
-@omnibus.se
-
-·
-
-
-T R I V I RO J E N B OATO
-
-
 Antaŭvorto
 
 La ĉefa beleco de ĉi tiu libro ne estas tiom en ĝia literatu
 
-ra stilo aŭ en la amplekso kaj utileco de la informoj, ki-
-
-ujn ĝi donas, kiom en ĝia simpla veremo. iaj pagoj rakon-
+ra stilo aŭ en la amplekso kaj utileco de la informoj, kiujn ĝi donas, kiom en ĝia simpla veremo. iaj pagoj rakon-
 
 tas pri okazintaĵojn, kiuj vere okazis. Mi faris nenion alian ol kolorigi ilin; mi ne postulas por tio plian pagon. Georgo kaj
 
-Harris kaj Montmorency ne estas poeziaj idealoj, sed objek-
-
-toj el karno kaj sango — precipe Georgo, kiu pezas ĉirkaŭ
+Harris kaj Montmorency ne estas poeziaj idealoj, sed objektoj el karno kaj sango — precipe Georgo, kiu pezas ĉirkaŭ
 
 sepdek kvin kilogramojn. Aliaj verkoj eble superas ĉi tiun
 
@@ -61,9 +49,6 @@ instruas.
 Londono, en
 
 
-T R I V I RO J E N B OATO
-
-
 ĉapitro I
 
 Tri malsanuloj — La suferoj de Georgo kaj Harris — Viktimo de
@@ -78,27 +63,19 @@ unuan proponon akceptas plimulto de tri kontraŭ unu.
 
 Ni estis kvar — Georgo kaj Vilhelmo Samuelo Harris kaj
 
-mi mem, kaj Montmorency. Ni sidis en mia loĝejo, fu-
-
-mis kaj parolis pri nia malbona stato, malbona el medicina
+mi mem, kaj Montmorency. Ni sidis en mia loĝejo, fumis kaj parolis pri nia malbona stato, malbona el medicina
 
 vidpunkto, kompreneble.
 
 Ni ĉiuj sentis nin malsanetaj, kio tute timigis nin. Harris
 
-diris, ke fojon post fojo li sentas tiel nekutimajn atakojn de kapturniĝo, ke li apenaŭ scias, kion li faras; tiam Georgo diris, ke ankaŭ li havas atakojn de kapturniĝo, kaj apenaŭ sci-
+diris, ke fojon post fojo li sentas tiel nekutimajn atakojn de kapturniĝo, ke li apenaŭ scias, kion li faras; tiam Georgo diris, ke ankaŭ li havas atakojn de kapturniĝo, kaj apenaŭ scias, kion li faras. Rilate min estis la hepato, kiu malbonstatis.
 
-as, kion li faras. Rilate min estis la hepato, kiu malbonstatis.
-
-Mi sciis, ke estas la hepato, kiu malbonstatas, ĉar mi ĵus le-
-
-gis cirkuleron pri patenta hepatpilolo, en kiu estis detaligitaj la diversaj simptomoj, per kiuj la homo povas konstati, kiam
+Mi sciis, ke estas la hepato, kiu malbonstatas, ĉar mi ĵus legis cirkuleron pri patenta hepatpilolo, en kiu estis detaligitaj la diversaj simptomoj, per kiuj la homo povas konstati, kiam
 
 la hepato malbonstatas. ĉiujn mi havis.
 
-Estas rimarkinde ke ĉiam, kiam mi legas reklamon pri pa-
-
-tenta kuracilo, mi ne povas eviti la konkludon, ke mi suferas
+Estas rimarkinde ke ĉiam, kiam mi legas reklamon pri patenta kuracilo, mi ne povas eviti la konkludon, ke mi suferas
 
 tiun malsanon en ĝia plej akuta formo. La diagnozo ŝajnas
 
@@ -107,9 +84,6 @@ tiun malsanon en ĝia plej akuta formo. La diagnozo ŝajnas
 Mi memoras, ke iun tagon mi iris al la Brita muzeo por
 
 pristudi kuracadon de malgrava malsaneto, kiu min iomete
-
-
-T R I V I RO J E N B OATO
 
 
 posedis — mi kredas, ke estis fojnofebro. Mi prenis la libron
@@ -122,9 +96,7 @@ sensisteme studi la malsanojn, ĝenerale. Mi ne plu memoras,
 
 en kiun malsanon mi unue profundiĝis — ia terura, pereiga
 
-skurĝo, mi kredas — kaj, antaŭ ol mi rigardis eĉ la unuan du-
-
-onon de la listo de ”avertaj simptomoj”, trude eniris mian
+skurĝo, mi kredas — kaj, antaŭ ol mi rigardis eĉ la unuan duonon de la listo de ”avertaj simptomoj”, trude eniris mian
 
 menson la konscio, ke ĝin mi jam havas.
 
@@ -132,15 +104,11 @@ Dum iom da tempo mi sidis glaciiĝinta pro teruro; poste,
 
 preskaŭ inerta pro malespero, mi komencis foliumi la libron.
 
-Mi trafis tifon — legis la simptomojn — konstatis, ke mi ha-
-
-vas tifon, havis ĝin sendube jam de monatoj sen scii tion —
+Mi trafis tifon — legis la simptomojn — konstatis, ke mi havas tifon, havis ĝin sendube jam de monatoj sen scii tion —
 
 scivolis, kion alian mi havas; min turnis al epilepsio — trovis, kiel mi atendis, ke ankaŭ ĝin mi havas — interesiĝis pri mia
 
-kazo, decidis ĝin esplori ĝisfunde kaj reiris al la komenco de la alfabeto, — legis pri astmo, kaj sciis, ke mi jam suferas la unuajn atakojn de la malsano, kaj ke la akuta stadio komenciĝos post ĉirkaŭ du semajnoj. Kun pli trankvila koro, mi tro-
-
-vis, ke mi havas albuminurion nur en modifita formo kaj ke,
+kazo, decidis ĝin esplori ĝisfunde kaj reiris al la komenco de la alfabeto, — legis pri astmo, kaj sciis, ke mi jam suferas la unuajn atakojn de la malsano, kaj ke la akuta stadio komenciĝos post ĉirkaŭ du semajnoj. Kun pli trankvila koro, mi trovis, ke mi havas albuminurion nur en modifita formo kaj ke,
 
 rilate al tio, ankoraŭ jarojn mi povos vivi. ˘oleron mi havas, kun akutaj komplikaĵoj; ŝajnis, ke kun difterio mi naskiĝis.
 
@@ -153,48 +121,29 @@ havas tropikan febron? Kial ĉi tiu ofende distinga limigo? Post iom da tempo ta
 fariĝis malpli egoista kaj decidis malhavi tropikan febron. Po-dagro, en la plej maligna stadio, ŝajne sen mia scio, min jam
 
 
-T R I V I RO J E N B OATO
-
-
 kaptis; zimozo evidente min turmentas de mia junaĝo. Post
 
-zimozo ne estis pliaj malsanoj, tial mi konkludis, ke mi pose-
-
-das nenion pli.
+zimozo ne estis pliaj malsanoj, tial mi konkludis, ke mi posedas nenion pli.
 
 Mi sidis kaj meditis. Kia interesa kazo mi estas, mi pensis,
 
-el medicina vidpunkto, kia valora akiraĵo mi estus por la stu-
+el medicina vidpunkto, kia valora akiraĵo mi estus por la studentoj! Ne necesus al la studentoj trairi la malsanulejojn, se ili havus min. Ili bezonus nur iri ĉirkaŭ mi kaj post tio ili povus akiri la diplomon.
 
-dentoj! Ne necesus al la studentoj trairi la malsanulejojn, se ili havus min. Ili bezonus nur iri ĉirkaŭ mi kaj post tio ili povus akiri la diplomon.
+Poste mi scivolis pri tio, kiom longe mi povos vivi. Mi provis esplori min mem. Mi palpis la pulson. Unue neniun pul-
 
-Poste mi scivolis pri tio, kiom longe mi povos vivi. Mi pro-
+son mi povis palpi. Poste, tute subite, ĝi ŝajnis ekiri. Mi eltiris mian poŝhorloĝon kaj kontrolis la pulsobatadon. Mi kalkulis, ke ĝi batas cent kvardek sep fojojn ĉiuminute. Mi pro-
 
-vis esplori min mem. Mi palpis la pulson. Unue neniun pul-
+vis palpi la koron. Mi ne povis palpi la koron. i ĉesis bati. Mi estis certa, ke ĝi ekzistis en mi la tutan tempon, kaj ke ĝi devas ankaŭ bati, tamen mi ne povis klarigi la aferon. Mi frapetis mian tutan antaŭaĵon, de tio, kion mi nomas mia talio, ĝis la kapo kaj eĉ iomete ĉirkaŭ ambaŭ flankoj kaj iom supren
 
-son mi povis palpi. Poste, tute subite, ĝi ŝajnis ekiri. Mi eltiris mian poŝhorloĝon kaj kontrolis la pulsobatadon. Mi kal-
+sur mia dorso. Sed nenion mi povis palpi nek aŭdi. Mi provis rigardi la langon. Mi elpuŝis ĝin, kiom ĝi estis eligebla, kaj mi fermis unu okulon kaj provis ĝin esplori per la alia. Nur la pinton mi povis vidi, kaj la sola profito, kiun mi havis de tio estis, ke mi sentis pli certe ol antaŭe, ke mi havas skarlatinon.
 
-kulis, ke ĝi batas cent kvardek sep fojojn ĉiuminute. Mi pro-
-
-vis palpi la koron. Mi ne povis palpi la koron. i ĉesis bati. Mi estis certa, ke ĝi ekzistis en mi la tutan tempon, kaj ke ĝi devas ankaŭ bati, tamen mi ne povis klarigi la aferon. Mi frape-
-
-tis mian tutan antaŭaĵon, de tio, kion mi nomas mia talio, ĝis la kapo kaj eĉ iomete ĉirkaŭ ambaŭ flankoj kaj iom supren
-
-sur mia dorso. Sed nenion mi povis palpi nek aŭdi. Mi pro-
-
-vis rigardi la langon. Mi elpuŝis ĝin, kiom ĝi estis eligebla, kaj mi fermis unu okulon kaj provis ĝin esplori per la alia. Nur la pinton mi povis vidi, kaj la sola profito, kiun mi havis de tio estis, ke mi sentis pli certe ol antaŭe, ke mi havas skarlatinon.
-
-Mi eniris tiun legoĉambron feliĉa, sana homo. Mi elram-
-
-pis kaduka pereanto.
+Mi eniris tiun legoĉambron feliĉa, sana homo. Mi elrampis kaduka pereanto.
 
 Mi iris al mia kuracisto. Li estas malnova amiko, li palpas
 
 la pulson, rigardas mian langon kaj parolas pri la vetero, ĉion senpage, ĉiufoje kiam mi imagas min malsana; mi do decidis
 
-bonfari al li kaj lin vizitis. ”Kuracisto bezonas ekzercadon, mi diris. Li havu min. Li havos kun mi pli da ekzercado ol el siaj 6
-
-T R I V I RO J E N B OATO
+bonfari al li kaj lin vizitis. ”Kuracisto bezonas ekzercadon, mi diris. Li havu min. Li havos kun mi pli da ekzercado ol el siaj
 
 
 mil sepcent ordinaraj, trivialaj pacientoj, ĉiu kun nur unu-du malsanoj.” Mi do iris rekte al li kaj li diris:
@@ -209,9 +158,7 @@ fartas. La vivo estas mallonga, kaj vi eble forpasos antaŭ ol mi finos. Sed mi 
 
 febron. Kial mi ne havas tropikan febron, mi ne povas diri;
 
-sed restas la fakto, ke mi ne havas. ĉion alian mi tamen ha-
-
-vas.
+sed restas la fakto, ke mi ne havas. ĉion alian mi tamen havas.
 
 Mi rakontis al li, kiel okazis, ke mi ĉion malkovris. Tiam li
 
@@ -219,9 +166,7 @@ min senvestigis kaj rigardis de kapo al piedoj kaj kaptis mian manartikon, li fr
 
 per sia kapflanko. Post tio li sidiĝis kaj skribis recepton, ĝin faldis kaj donis al mi, kaj mi metis ĝin en mian poŝon kaj eliris.
 
-Mi ne malfermis ĝin. Mi iris kun ĝi al la plej proksima apo-
-
-tekisto kaj ĝin transdonis. La viro legis ĝin, poste ĝin redonis.
+Mi ne malfermis ĝin. Mi iris kun ĝi al la plej proksima apotekisto kaj ĝin transdonis. La viro legis ĝin, poste ĝin redonis.
 
 Li diris, ke tion li ne havas.
 
@@ -242,24 +187,15 @@ Mi legis la recepton. i tekstis:
 fojojn ĉiutage. Unu dekmejla marŝo ĉiumatene. Unu lito je la
 
 
-T R I V I RO J E N B OATO
-
-
-dekunua ekzakte ĉiunokte. Kaj ne plenigu vian kapon per afe-
-
-roj, kiujn vi ne komprenas.”
+dekunua ekzakte ĉiunokte. Kaj ne plenigu vian kapon per aferoj, kiujn vi ne komprenas.”
 
 Mi sekvis la instrukciojn kaj la feliĉa rezulto estis — por
 
-paroli pri mi mem — ke mia vivo estis savita kaj ankoraŭ daŭ-
-
-ras.
+paroli pri mi mem — ke mia vivo estis savita kaj ankoraŭ daŭras.
 
 En la nuna kazo, por reveni al la hepatpilola cirkulero, la
 
-simptomojn mi havis preter ĉia dubo kaj la ĉefa inter ili es-
-
-tis ”ĝenerala malinklino al ĉiaspeca laboro”.
+simptomojn mi havis preter ĉia dubo kaj la ĉefa inter ili estis ”ĝenerala malinklino al ĉiaspeca laboro”.
 
 Kiom mi suferis tiurilate, lango ne povas eldiri. De mia plej
 
@@ -277,9 +213,7 @@ por gajni vivrimedojn. Ili ne sciis, kompreneble, ke mi estas
 
 malsana.
 
-Ne pilolojn oni donis al mi; vangofrapojn ili donis. Kvan-
-
-kam ŝajnas strange, tiuj vangofrapoj min resanigis — alme-
+Ne pilolojn oni donis al mi; vangofrapojn ili donis. Kvankam ŝajnas strange, tiuj vangofrapoj min resanigis — alme-
 
 naŭ por iom da tempo. Mi memoras, kiel tia vangofrapo pli
 
@@ -298,22 +232,15 @@ klarigis al Georgo kaj al Vilhelmo Harris, kiel mi sentas min, kiam mi ellitiĝa
 ilustranta, kiel li sin sentas dum la nokto.
 
 
-T R I V I RO J E N B OATO
-
-
 Georgo imagas, ke li estas malsana; sed fakte lia sano estas
 
 tute bona.
 
 En tiu momento sinjorino Poppets frapetis la pordon por
 
-ekscii, ĉu ni estas pretaj por la vespermanĝo. Ni ridetis mal-
+ekscii, ĉu ni estas pretaj por la vespermanĝo. Ni ridetis malgaje kaj diris, ke ni supozas, ke estus bone provi gluti ion.
 
-gaje kaj diris, ke ni supozas, ke estus bone provi gluti ion.
-
-Harris diris, ke peceto en la stomako ofte haltigas la progre-
-
-son de malsano; sinjorino Poppets enportis la pleton kaj mi
+Harris diris, ke peceto en la stomako ofte haltigas la progreson de malsano; sinjorino Poppets enportis la pleton kaj mi
 
 altabliĝis kaj petolis kun iom da bifsteko kun cepoj kaj peco
 
@@ -323,19 +250,12 @@ Devas esti, ke mi tiam estis tre malforta; ĉar mi scias, ke
 
 post proksimume duonhoro mi ŝajnis fariĝi tute indiferenta
 
-al la manĝo — afero por mi nekutima — kaj mi ne deziris fro-
-
-maĝon.
-
-
-T R I V I RO J E N B OATO
+al la manĝo — afero por mi nekutima — kaj mi ne deziris fromaĝon.
 
 
 Plenuminte nian devon, ni replenigis la glasojn, bruligis la
 
-pipojn kaj reprenis la interparolon pri nia sanstato. Kio fak-
-
-te estis kun ni, neniu el ni povis diri precize; sed la unuani-ma opinio estis, ke tio — kio ajn tio estis — estas kaŭzita de troa laborado.
+pipojn kaj reprenis la interparolon pri nia sanstato. Kio fakte estis kun ni, neniu el ni povis diri precize; sed la unuani-ma opinio estis, ke tio — kio ajn tio estis — estas kaŭzita de troa laborado.
 
 —Ripozon ni bezonas, — diris Harris.
 
@@ -351,17 +271,13 @@ Georgo havas kuzon, kiu estas kutime priskribata en la
 
 arestdeklaroj kiel medicina studento, tial li havas nature iom de la esprimmaniero de familia kuracisto.
 
-Mi samopiniis kun Georgo, kaj proponis, ke ni trovu sole-
-
-can kaj malnovmodan lokon, malproksima de la tumulta
+Mi samopiniis kun Georgo, kaj proponis, ke ni trovu solecan kaj malnovmodan lokon, malproksima de la tumulta
 
 homamaso, kaj ni forsonĝu sunplenan semajnon meze de ĝiaj
 
 dormemaj vojetoj — duonforgesitan angulon, kiun la feinoj
 
-kaŝis por si, neatingeblan por la brua mondo — kurioze loki-
-
-gitan neston sur la krutaĵoj de tempo, kie la ruliĝantaj ondoj de la deknaŭa jarcento sonos malproksimaj kaj malfortaj.
+kaŝis por si, neatingeblan por la brua mondo — kurioze lokigitan neston sur la krutaĵoj de tempo, kie la ruliĝantaj ondoj de la deknaŭa jarcento sonos malproksimaj kaj malfortaj.
 
 Harris diris, ke li opinias, ke tio estos malgajiga. Li diris, ke li konas la specon de loko, kiun mi aludis, kie ĉiuj enlitiĝas je la oka vespere, kaj la ĵurnalon Referee nek per mono, nek per
 
@@ -369,9 +285,7 @@ amo oni povas havigi, kaj por aĉeti tabakon necesas marŝi
 
 dek mejlojn.
 
-—Ne, — Harris diris , — se ripozon kaj novan scenon vi de-
-
-ziras, plej bone estas marvojaĝi.
+—Ne, — Harris diris , — se ripozon kaj novan scenon vi deziras, plej bone estas marvojaĝi.
 
 Mi forte kontraŭstaris la marvojaĝon. Marvojaĝo estas
 
@@ -380,26 +294,17 @@ bona, se oni veturas du monatojn, sed se unu semajnon, ĝi
 estas malbonega.
 
 
-T R I V I RO J E N B OATO
-
-
-Lunde vi foriras kun la ideo, ke vi bone amuziĝos. Vi sen-
-
-ĝene svingas adiaŭe al la amikoj sur la bordo, bruligas vian
+Lunde vi foriras kun la ideo, ke vi bone amuziĝos. Vi senĝene svingas adiaŭe al la amikoj sur la bordo, bruligas vian
 
 plej grandan pipon kaj promenas fiere sur la ferdeko, kvazaŭ
 
-vi estus la kunfandaĵo de kapitano Cook, Sir Francis Drake kaj Kristoforo Kolombo. Marde vi deziras, ke vi ne estus veninta, merkrede, ĵaŭde kaj vendrede vi deziras, ke vi estus mor-
-
-tinta. Sabate vi kapablas gluti iom da buljono, sidiĝi sur la
+vi estus la kunfandaĵo de kapitano Cook, Sir Francis Drake kaj Kristoforo Kolombo. Marde vi deziras, ke vi ne estus veninta, merkrede, ĵaŭde kaj vendrede vi deziras, ke vi estus mortinta. Sabate vi kapablas gluti iom da buljono, sidiĝi sur la
 
 ferdeko kaj respondi per pala, ĉarma rideto, kiam bonkoraj
 
 homoj demandas, kiel vi fartas nun. Dimanĉe vi promenas
 
-denove kaj manĝas solidan manĝon. Lunde matene, staran-
-
-ta ĉe la ŝiprando kun valizo kaj ombrelo en la mano, preta
+denove kaj manĝas solidan manĝon. Lunde matene, staranta ĉe la ŝiprando kun valizo kaj ombrelo en la mano, preta
 
 alteriĝi, vi komencas plenplene ĝui la marvojaĝon.
 
@@ -425,16 +330,11 @@ li la Nord-Okcidenta Fervojo estas sufiĉe saniga.
 
 Alia konato mia foriris por unusemajna vojaĝo laŭlonge de
 
-la marbordo kaj antaŭ la ekiro la kelnero venis al li por de-
-
-mandi, ĉu li pagos ĉiun manĝon aparte aŭ ĉu li antaŭpagos
+la marbordo kaj antaŭ la ekiro la kelnero venis al li por demandi, ĉu li pagos ĉiun manĝon aparte aŭ ĉu li antaŭpagos
 
 la tutan serion.
 
 La kelnero rekomendis la duan sistemon, ĉar tiel estos
-
-
-T R I V I RO J E N B OATO
 
 
 multe pli malmultekoste por li. Li diris, ke li manĝigos lin
@@ -443,9 +343,7 @@ dum la tuta semajno por kvardek kvin ŝilingoj. Li diris, ke ĉe la matenmanĝo 
 
 je la unua kaj enhavos kvar manĝopladoj. La ĉefmanĝo je la
 
-sesa — supo, fiŝo, intermanĝo, rostaĵo, kokidaĵo, salato, pu-
-
-dingo, fromaĝo kaj deserto. Kaj malpeza vespermanĝo je la
+sesa — supo, fiŝo, intermanĝo, rostaĵo, kokidaĵo, salato, pudingo, fromaĝo kaj deserto. Kaj malpeza vespermanĝo je la
 
 deka.
 
@@ -459,9 +357,7 @@ de la posttagmezo li multe meditis kaj foje ŝajnis al li, ke li manĝis dum sem
 
 li vivis dum jaroj per fragoj kaj kremo.
 
-Ankaŭ la bovaĵo kaj fragoj kaj kremo ne ŝajnis esti konten-
-
-taj — ili ŝajnis konstante kvereli inter si.
+Ankaŭ la bovaĵo kaj fragoj kaj kremo ne ŝajnis esti kontentaj — ili ŝajnis konstante kvereli inter si.
 
 Je la sesa oni venis por diri, ke la ĉefmanĝo estas preta. La
 
@@ -477,11 +373,7 @@ Oni rapidigis lin supren, apogis lin ĉe la senventa flanko
 
 kaj lasis lin tie.
 
-Dum la sekvantaj kvar tagoj li vivis simplan kaj senripro-
-
-ĉan vivon per sveltkapitanaj biskvitoj (mi volas diri, ke la bis-12
-
-T R I V I RO J E N B OATO
+Dum la sekvantaj kvar tagoj li vivis simplan kaj senriproĉan vivon per sveltkapitanaj biskvitoj (mi volas diri, ke la bis-12
 
 
 kvitoj estis sveltaj, ne la kapitano) kaj sodakvo; kiam alproksimiĝis sabato, li fariĝis aroganta kaj mendis malfortan teon
@@ -498,9 +390,7 @@ tagon, li kredas, ke li povus kvitigi la konton.
 
 Mi do la marvojaĝon kontraŭstaris. Ne, kiel mi klarigis, pro
 
-mi mem. Mi neniam estis marmalsana. Sed mi timis pro Ge-
-
-orgo. Georgo diris, ke li fartos bone, kaj ke fakte ĝi plaĉos al li, tamen li konsilus al Harris kaj mi, ke ni eĉ ne pensu pri ĝi, ĉar li estas certa, ke ni ambaŭ malsaniĝos. Harris diris, ke por li estas ĉiam granda mistero, kiel la homoj povas marmal-saniĝi — li diris, ke li kredas, ke la homoj sendube tion faras intence, pro afekto — li diris, ke ofte li volis farigi marmalsana, sed neniam sukcesis.
+mi mem. Mi neniam estis marmalsana. Sed mi timis pro Georgo. Georgo diris, ke li fartos bone, kaj ke fakte ĝi plaĉos al li, tamen li konsilus al Harris kaj mi, ke ni eĉ ne pensu pri ĝi, ĉar li estas certa, ke ni ambaŭ malsaniĝos. Harris diris, ke por li estas ĉiam granda mistero, kiel la homoj povas marmal-saniĝi — li diris, ke li kredas, ke la homoj sendube tion faras intence, pro afekto — li diris, ke ofte li volis farigi marmalsana, sed neniam sukcesis.
 
 Tiam li rakontis al ni, kiel li transpasis la Kanalon, kiam
 
@@ -510,27 +400,16 @@ Estas rimarkinda fakto, sed neniu estas iam marmalsana —
 
 sur la tero. Sur la maro oni renkontas multe da homoj tre
 
-marmalsanaj, plenŝipojn da ili; sed ankoraŭ neniam mi ren-
+marmalsanaj, plenŝipojn da ili; sed ankoraŭ neniam mi renkontis homon sur la tero, kiu iam estis marmalsana. Estas
 
-kontis homon sur la tero, kiu iam estis marmalsana. Estas
-
-granda mistero, kie sin kaŝas la mil-miloj da naŭziĝemaj mar-
-
-vojaĝantoj, kiuj svarmas sur ĉiu ŝipo.
+granda mistero, kie sin kaŝas la mil-miloj da naŭziĝemaj marvojaĝantoj, kiuj svarmas sur ĉiu ŝipo.
 
 
-T R I V I RO J E N B OATO
-
-
-Se plej multaj homoj similus al la viro, kiun mi vidis iun ta-
-
-gon sur ŝipo veturanta al Yarmouth, la ŝajnan enigmon mi
+Se plej multaj homoj similus al la viro, kiun mi vidis iun tagon sur ŝipo veturanta al Yarmouth, la ŝajnan enigmon mi
 
 povus sufiĉe facile klarigi.
 
-Mi memoras, ke estis proksime de la marponto de South-
-
-end kaj li kliniĝis tra unu el la ŝipfenestretoj en situacio tre danĝera. Mi iris al li kaj provis lin savi.
+Mi memoras, ke estis proksime de la marponto de Southend kaj li kliniĝis tra unu el la ŝipfenestretoj en situacio tre danĝera. Mi iris al li kaj provis lin savi.
 
 —Ho! venu iom malantaŭen, — mi diris kaj skuis lin ĉe la
 
@@ -542,13 +421,9 @@ kiun mi povis havigi; tie mi devis lasi lin.
 
 Post tri semajnoj mi lin renkontis en kafoĉambro de hotelo
 
-en Bath, parolanta pri siaj vojaĝoj kaj klariganta kun entuzi-
+en Bath, parolanta pri siaj vojaĝoj kaj klariganta kun entuziasmo, kiel li ŝatas la maron.
 
-asmo, kiel li ŝatas la maron.
-
-—Bona marvojaĝanto! — li diris responde al enviema de-
-
-mando de milda junulo; — nu, mi konfesas, ke unufoje mi
+—Bona marvojaĝanto! — li diris responde al enviema demando de milda junulo; — nu, mi konfesas, ke unufoje mi
 
 sentis min iom malsana. Okazis proksime de Cape Horn. La
 
@@ -562,24 +437,17 @@ de la Southend-marponto, kaj deziris, ke oni ĵetu vin en la
 
 maron?
 
-—Southend-marponto? — li respondis kun nekomprene-
-
-ma mieno.
+—Southend-marponto? — li respondis kun nekomprenema mieno.
 
 —Jes; survoje al Yarmouth, tri semajnojn antaŭ la pasinta
 
 vendredo.
 
-—Ho, ha … jes, — li respondis, vigliĝante; — nun mi me-
-
-moras. Mi havis kapdoloron tiun posttagmezon. Kulpis la pe-
+—Ho, ha … jes, — li respondis, vigliĝante; — nun mi memoras. Mi havis kapdoloron tiun posttagmezon. Kulpis la pe-
 
 klaĵo, vi komprenas. i estis la plej hontinda peklaĵo, kiun mi iam gustumis sur respektinda ŝipo. ĉu vi manĝis iom?
 
 Koncerne min, mi eltrovis bonegan rimedon por eviti la
-
-
-T R I V I RO J E N B OATO
 
 
 marmalsanon, nome en tio, ke mi tenas ekvilibron. Vi stariĝas
@@ -590,9 +458,7 @@ sur la ondoj, vi movas la korpon tiel, ke ĝi estu ĉiam rekta.
 
 Kiam leviĝas la antaŭo de la ŝipo, vi kliniĝas antaŭen, ĝis la ferdeko preskaŭ tuŝas vian nazon; kiam leviĝas la malantaŭa
 
-parto, vi kliniĝas malantaŭen. Dum unu-du horoj ĉio iras bo-
-
-ne; sed tutan semajnon vin ekvilibrigi vi ne povas.
+parto, vi kliniĝas malantaŭen. Dum unu-du horoj ĉio iras bone; sed tutan semajnon vin ekvilibrigi vi ne povas.
 
 Georgo diris:
 
@@ -600,13 +466,9 @@ Georgo diris:
 
 Li diris, ke ni havos freŝan aeron, ekzercadon kaj ripozon;
 
-la konstanta ŝanĝiĝo de la sceno okupos nian menson (inklu-
+la konstanta ŝanĝiĝo de la sceno okupos nian menson (inkluzive la iometan, kiun Harris havas); la peniga laboro donos al ni bonan apetiton kaj igos nin dormi bone.
 
-zive la iometan, kiun Harris havas); la peniga laboro donos al ni bonan apetiton kaj igos nin dormi bone.
-
-Harris diris, ke li ne opinias, ke Georgo rajtas fari ion, kio igos lin pli dormema ol li ĉiam estas, ĉar tio povas esti dan-
-
-ĝera. Li diris, ke li ne bone komprenas, kiel Georgo povos
+Harris diris, ke li ne opinias, ke Georgo rajtas fari ion, kio igos lin pli dormema ol li ĉiam estas, ĉar tio povas esti danĝera. Li diris, ke li ne bone komprenas, kiel Georgo povos
 
 dormi pli ol li nun dormas, ĉar la tago havas nur dudek kvar
 
@@ -616,13 +478,9 @@ manĝado kaj loĝado.
 
 Harris diris tamen, ke al li la rivero tre plaĉos. Ankaŭ al mi
 
-ĝi tre plaĉis, kaj Harris kaj mi ambaŭ diris, ke la ideo de Georgo estas bona; ni diris tion en tono, kiu iel ŝajnis kompre-
+ĝi tre plaĉis, kaj Harris kaj mi ambaŭ diris, ke la ideo de Georgo estas bona; ni diris tion en tono, kiu iel ŝajnis komprenigi, ke ni surpriziĝis, ke Georgo povas esti tiel inteligenta.
 
-nigi, ke ni surpriziĝis, ke Georgo povas esti tiel inteligenta.
-
-La sola, kiu ne entuziasmiĝis pri la propono, estis Mont-
-
-morency. Li neniam havas inklinon al rivero, tiu Montmoren-
+La sola, kiu ne entuziasmiĝis pri la propono, estis Montmorency. Li neniam havas inklinon al rivero, tiu Montmoren-
 
 cy.
 
@@ -633,21 +491,11 @@ mi. Nenion mi povas fari. Pejzaĝo min ne allogas kaj mi ne
 fumas. Se mi vidos raton, vi ne haltos; se mi endormiĝos, vi
 
 
-T R I V I RO J E N B OATO
-
-
 komencos petoli kun la boato kaj min faligos en la akvon. Se
 
-vi demandas min, mi nomas la tutan aferon simpla malsa-
+vi demandas min, mi nomas la tutan aferon simpla malsaĝaĵo.
 
-ĝaĵo.
-
-Tamen ni estis tri kontraŭ unu, kaj la propono estis akce-
-
-ptita.
-
-
-T R I V I RO J E N B OATO
+Tamen ni estis tri kontraŭ unu, kaj la propono estis akceptita.
 
 
 ĉapitro II
@@ -662,9 +510,7 @@ kunveno prokrastiĝas
 
 Ni disfaldis la landkartojn kaj diskutis vojaĝplanojn.
 
-Ni interkonsentis ekiri la proksiman sabaton el Kings-
-
-ton. Harris kaj mi iros en la mateno kaj prenos la boaton al
+Ni interkonsentis ekiri la proksiman sabaton el Kingston. Harris kaj mi iros en la mateno kaj prenos la boaton al
 
 Chertsey kaj tie nin renkontos Georgo, kiu ne povos forlasi la urbon antaŭ la posttagmezo. (Georgo dormas en banko de la
 
@@ -686,72 +532,48 @@ elspiras sian lastan spiron.
 
 El la mallumaj apudbordaj arbaretoj rampas kun senbruaj
 
-paŝoj la fantoma armeo de la nokto, la grizaj ombroj, por for-
-
-peli la malrapidantan postgvardion de la lumo, kaj pasas per
-
-
-T R I V I RO J E N B OATO
+paŝoj la fantoma armeo de la nokto, la grizaj ombroj, por forpeli la malrapidantan postgvardion de la lumo, kaj pasas per
 
 
 silentaj, nevideblaj piedoj super la ondantan riverherbon kaj
 
 tra la ĝemflustrantaj junkoj; Nokto, sur sia malhela trono,
 
-sternas siajn nigrajn flugilojn super la mallumiĝantan mon-
-
-don kaj regas en trankvilo el sia fantoma palaco, lumigata de
+sternas siajn nigrajn flugilojn super la mallumiĝantan mondon kaj regas en trankvilo el sia fantoma palaco, lumigata de
 
 la palaj steloj.
 
 Tiam ni kuŝigas nian boaton en kvietan angulon, starigas
 
-la tendon, kuiras vespermanĝon kaj manĝas. Poste ni pleni-
-
-gas kaj bruligas grandajn pipojn kaj la agrabla babilado ronde iradas per muzika duonvoĉo, dum la rivero, en la paŭzoj de
+la tendon, kuiras vespermanĝon kaj manĝas. Poste ni plenigas kaj bruligas grandajn pipojn kaj la agrabla babilado ronde iradas per muzika duonvoĉo, dum la rivero, en la paŭzoj de
 
 nia interparolo, ludas ĉirkaŭ nia boato, elbabilas strangajn
 
-malnovajn rakontojn kaj sekretojn, kantas mallaŭte la mal-
-
-novan infanan kanton, kiun ĝi kantas jam de jarmiloj — kan-
+malnovajn rakontojn kaj sekretojn, kantas mallaŭte la malnovan infanan kanton, kiun ĝi kantas jam de jarmiloj — kan-
 
 tos ankoraŭ dum miloj da venontaj jaroj, antaŭ ol ĝia voĉo
 
-fariĝos raŭka kaj maljuna — kanton, pri kiu ni, kiuj jam ler-
-
-nis ŝati ĝian ŝanĝiĝantan vizaĝon, kiuj tiel ofte nestis sur ĝia cedanta sino, iel kredas, ke ni ĝmprenas, kvankam ni ne
+fariĝos raŭka kaj maljuna — kanton, pri kiu ni, kiuj jam lernis ŝati ĝian ŝanĝiĝantan vizaĝon, kiuj tiel ofte nestis sur ĝia cedanta sino, iel kredas, ke ni ĝmprenas, kvankam ni ne
 
 povas rakonti per nuraj vortoj la historion, kiun ni aŭskultas.
 
 Ni sidas tie apud ĝia bordo, dum la luno, kiu ankaŭ amas
 
-ĝin, klinas sin malsupren por ĝin kisi per fratina kiso kaj kro-
-
-ĉe ĵetas ĉirkaŭ ĝin siajn arĝentecajn brakojn; ni rigardas ĝin dum ĝi fluas antaŭen, ĉiam kantante, ĉiam flustrante, por
+ĝin, klinas sin malsupren por ĝin kisi per fratina kiso kaj kroĉe ĵetas ĉirkaŭ ĝin siajn arĝentecajn brakojn; ni rigardas ĝin dum ĝi fluas antaŭen, ĉiam kantante, ĉiam flustrante, por
 
 renkonti sian reĝon, la maron — ĝis niaj voĉoj formortas en
 
-silenton kaj la pipoj estingiĝas — ĝis ni, sufiĉe banalaj, ĉiutagaj junuloj, sentas nin strange plenaj de pensoj, duone mal-
-
-ĝojaj, duone ĝojaj, kaj nek inklinas nek volas paroli — ĝis ni ridas, leviĝas, elbatas la cindrojn el niaj elfumitaj pipoj kaj diras ”Bonan nokton”, kaj, dorlotate de la plaŭdanta akvo kaj
+silenton kaj la pipoj estingiĝas — ĝis ni, sufiĉe banalaj, ĉiutagaj junuloj, sentas nin strange plenaj de pensoj, duone malĝojaj, duone ĝojaj, kaj nek inklinas nek volas paroli — ĝis ni ridas, leviĝas, elbatas la cindrojn el niaj elfumitaj pipoj kaj diras ”Bonan nokton”, kaj, dorlotate de la plaŭdanta akvo kaj
 
 la susurantaj arboj, ni endormiĝas sub la grandaj, trankvilaj
 
 steloj kaj sonĝas, ke la mondo jam denove estas juna — juna
 
-kaj ĉarma, kiel ĝi estis antaŭ ol la jarcentoj de ĉagreno kaj zor-18
-
-T R I V I RO J E N B OATO
-
-
-go sulkigis ĝian belan vizaĝon, antaŭ ol la pekoj kaj malsa-
+kaj ĉarma, kiel ĝi estis antaŭ ol la jarcentoj de ĉagreno kaj zorgo sulkigis ĝian belan vizaĝon, antaŭ ol la pekoj kaj malsa-
 
 ĝaĵoj de ĝiaj infanoj maljunigis ĝian ameman koron — ĉarma,
 
-kia ĝi estis en tiu pasinta tempo, kiam ĝi, nova patrino, var-
-
-tis nin, siajn infanojn, sur sia profunda brusto — antaŭ ol la artifikoj de la ŝminkita civilizacio delogis nin for de ĝiaj ka-resemaj brakoj kaj la venenitaj mokridoj de artefariteco igis
+kia ĝi estis en tiu pasinta tempo, kiam ĝi, nova patrino, vartis nin, siajn infanojn, sur sia profunda brusto — antaŭ ol la artifikoj de la ŝminkita civilizacio delogis nin for de ĝiaj ka-resemaj brakoj kaj la venenitaj mokridoj de artefariteco igis
 
 nin honti pri la simpla vivo, kiun ni vivis kun ĝi, kaj la simp-la majesta hejmo, kie la homaro naskiĝis antaŭ miloj da jaroj.
 
@@ -759,9 +581,7 @@ Harris diris:
 
 —Kion fari, kiam pluvas?
 
-Oni neniam povas entuziasmigi Harris. Nenia poezio tro-
-
-viĝas en Harris — nenia sovaĝa sopiro al la neatingeblo. Har-
+Oni neniam povas entuziasmigi Harris. Nenia poezio troviĝas en Harris — nenia sovaĝa sopiro al la neatingeblo. Har-
 
 ris neniam ploras, mem ne scias kial. Se la okuloj de Harris
 
@@ -771,9 +591,7 @@ Se vi starus nokte apud la marbordo kun Harris kaj dirus:
 
 —Aŭskultu! ĉu vi ne aŭdas? ĉu tio estas nur la virinoj de
 
-la maro kantantaj profunde sub la ondantaj akvoj, aŭ mal-
-
-ĝojaj fantomoj funebre prikantantaj blankajn kadavrojn, te-
+la maro kantantaj profunde sub la ondantaj akvoj, aŭ malĝojaj fantomoj funebre prikantantaj blankajn kadavrojn, te-
 
 natajn de algoj? — Harris kaptus vian brakon kaj dirus:
 
@@ -785,21 +603,14 @@ povas havigi guton de la plej bona skota viskio, kiun vi iam
 
 gustumis — tuj ĝi resanigos vin.
 
-Harris ĉiam konas ejon en la apuda strato, kie vi povas ha-
-
-vigi ion bonegan por trinki. Mi kredas, ke se vi renkontus
+Harris ĉiam konas ejon en la apuda strato, kie vi povas havigi ion bonegan por trinki. Mi kredas, ke se vi renkontus
 
 Harris en la paradizo (se tio estas imagebla) li vin tuj salutus per:
 
 —Mi tre ĝojas, ke vi venis, maljuna knabo; en la apuda
 
 
-T R I V I RO J E N B OATO
-
-
-strato mi trovis agrablan ejon, kie vi povas havigi vere unu-
-
-arangan nektaron.
+strato mi trovis agrablan ejon, kie vi povas havigi vere unuarangan nektaron.
 
 En la nuna kazo, rilate al tendumado, tamen lia praktika
 
@@ -809,13 +620,9 @@ ne estas agrabla.
 
 Estas vespero. Vi estas malsekega, en la boato troviĝas du
 
-coloj da akvo kaj nenio estas seka. Vi trovas sur la bordo lo-
+coloj da akvo kaj nenio estas seka. Vi trovas sur la bordo lokon, kiu ne estas same pluvplena kiel aliaj lokoj, kiujn vi jam vidis, kaj vi albordiĝas kaj pene eltiras la tendon kaj du el vi komencas ĝin starigi.
 
-kon, kiu ne estas same pluvplena kiel aliaj lokoj, kiujn vi jam vidis, kaj vi albordiĝas kaj pene eltiras la tendon kaj du el vi komencas ĝin starigi.
-
-i estas tute malseka kaj peza kaj balanciĝas malfirme, fa-
-
-las sur vin, alkroĉiĝas al via kapo kaj frenezigas vin. Pluvegas konstante la tutan tempon. Starigi tendon estas sufiĉe malfacile eĉ en senpluva vetero; en pluva la laboro fariĝas herku-
+i estas tute malseka kaj peza kaj balanciĝas malfirme, falas sur vin, alkroĉiĝas al via kapo kaj frenezigas vin. Pluvegas konstante la tutan tempon. Starigi tendon estas sufiĉe malfacile eĉ en senpluva vetero; en pluva la laboro fariĝas herku-
 
 lesa. Anstataŭ vin helpi ŝajnas, ke la alia viro simple arlekenas. uste kiam via flanko estas bone fiksita, li tiregas de sia flanko kaj malbonigas ĉion.
 
@@ -823,9 +630,7 @@ lesa. Anstataŭ vin helpi ŝajnas, ke la alia viro simple arlekenas. uste kiam v
 
 —Kion faraĉas vi! — li rediras; — liberigu ĝin!
 
-—Ne tiru; vi fiksis ĝin malĝuste, fuŝkapa azeno! — vi kri-
-
-as.
+—Ne tiru; vi fiksis ĝin malĝuste, fuŝkapa azeno! — vi krias.
 
 —Tute ne, — li krias responde; — lasu vian flankon!
 
@@ -840,16 +645,11 @@ si; tiam venas sovaĝa ektiro kaj malfiksiĝas via flanko. Vi de-metas la lignan
 diri al li, kion vi pensas pri la tuta afero, kaj samtempe li komencas iri en la sama direkto por veni klarigi siajn opiniojn
 
 
-T R I V I RO J E N B OATO
-
-
 al vi. Vi sekvas unu la alian rondronde, blasfemante unu al la alia, ĝis la tendo falas kaj fariĝas ĉifita amaso kaj lasas vin rigardantaj unu la alian trans la ruino, kaj tiam vi ambaŭ ekkri-as samspire:
 
 —Jen vi havas! Kion mi diris?
 
-Dume la tria viro, kiu estis for ĉerpanta la akvon el la bo-
-
-ato kaj kiu verŝis la akvon en sian manikon kaj blasfemadis
+Dume la tria viro, kiu estis for ĉerpanta la akvon el la boato kaj kiu verŝis la akvon en sian manikon kaj blasfemadis
 
 dum la pasintaj dek minutoj, deziras scii, kion, je la infero, vi ludas, kaj kial la malbeninda tendo ankoraŭ ne estas starigita.
 
@@ -861,18 +661,13 @@ vi ĉiuj kolektiĝas.
 
 Pluvakvo estas la ĉefa ingredienco de la vespermanĝo. Du
 
-trionoj de la pano estas pluvakvo, la bifsteka pasteĉo abun-
-
-das de ĝi, kaj la konfitaĵo, kaj la butero, kaj la salo, kaj la kafo ĉiuj kombiniĝis kun ĝi por fari supon.
+trionoj de la pano estas pluvakvo, la bifsteka pasteĉo abundas de ĝi, kaj la konfitaĵo, kaj la butero, kaj la salo, kaj la kafo ĉiuj kombiniĝis kun ĝi por fari supon.
 
 Post la vespermanĝo vi trovas la tabakon malseketa kaj
 
 fumi vi ne povas. Feliĉe vi havas botelon de tio, kio gajigas kaj ebriigas, se oni prenas la ĝustan kvanton, kaj tio redonas al
 
 vi la intereson pri la vivo, sufiĉe por inklinigi vin iri en la liton.
-
-
-T R I V I RO J E N B OATO
 
 
 Tie vi sonĝas, ke subite elefanto sidiĝis sur via brusto kaj
@@ -893,21 +688,15 @@ miloj da homoj vin piedbatas, kaj ke vi sufokiĝas.
 
 liajn mallaŭtajn kriojn de sub via lito. ĉar vi intencas ĉiuokaze vendi vian vivon por alta kosto, vi baraktas freneze, frapas
 
-dekstren kaj maldekstren per brakoj kaj kruroj kaj krias plen-
+dekstren kaj maldekstren per brakoj kaj kruroj kaj krias plengorĝe la tutan tempon, fine io cedas kaj vi trovas vian kapon
 
-gorĝe la tutan tempon, fine io cedas kaj vi trovas vian kapon
-
-en la freŝa aero. Du futojn for vi malklare rimarkas duonves-
-
-titan kanajlon, kiu atendas por vin mortigi, kaj vi vin prepa-
+en la freŝa aero. Du futojn for vi malklare rimarkas duonvestitan kanajlon, kiu atendas por vin mortigi, kaj vi vin prepa-
 
 ras por ĝismorta batalo kontraŭ li, kiam vi konstatas, ke tio
 
 estas Jim.
 
-—Ho, estas vi, ĉu? — li diras kaj rekonas vin en la sama mo-
-
-mento.
+—Ho, estas vi, ĉu? — li diras kaj rekonas vin en la sama momento.
 
 —Jes, — vi respondas kaj frotas la okulojn; — kio okazis?
 
@@ -919,33 +708,20 @@ Tiam vi ambaŭ laŭtigas la voĉon kaj krias ”Bill!”, la tero sub vi leviĝa
 
 —Movu vin for de mia kapo!
 
-Bill trabatas sian vojon eksteren, kotkovrita, surtretita ru-
-
-inaĵo, kaj kun nenecese batalema humoro, evidente kredan-
+Bill trabatas sian vojon eksteren, kotkovrita, surtretita ruinaĵo, kaj kun nenecese batalema humoro, evidente kredan-
 
 ta, ke la tutan aferon oni okazigis intence.
 
 
-T R I V I RO J E N B OATO
-
-
-La sekvan matenon vi ĉiuj estas mutaj pro severa malvar-
-
-mumo, kiun vi akiris en la nokto; krome, vi sentas vin kver-
+La sekvan matenon vi ĉiuj estas mutaj pro severa malvarmumo, kiun vi akiris en la nokto; krome, vi sentas vin kver-
 
 elemaj kaj vi blasfemas unu al alia per raŭkaj flustroj dum la tuta tempo de la matenmanĝo.
 
-Ni tial decidis, ke dum helaj noktoj ni tendumos; ke ni eni-
+Ni tial decidis, ke dum helaj noktoj ni tendumos; ke ni eniros hotelojn, gastejojn, kaj trinkejojn kiel respektindaj homoj, kiam pluvos aŭ kiam ni sentos inklinon al ŝanĝo.
 
-ros hotelojn, gastejojn, kaj trinkejojn kiel respektindaj homoj, kiam pluvos aŭ kiam ni sentos inklinon al ŝanĝo.
+Montmorency ĉi tiun kompromison salutis kun forta aprobo. Lin la romantika soleco ne ĝojigas. Donu al li ion bruan;
 
-Montmorency ĉi tiun kompromison salutis kun forta apro-
-
-bo. Lin la romantika soleco ne ĝojigas. Donu al li ion bruan;
-
-se ĝi estas iomete vulgara, des pli gaje. Rigardante al Mont-
-
-morency vi povas kredi, ke li estas anĝelo sendita en la mon-
+se ĝi estas iomete vulgara, des pli gaje. Rigardante al Montmorency vi povas kredi, ke li estas anĝelo sendita en la mon-
 
 don pro kaŭzo kaŝita al la homaro en formo de malgranda
 
@@ -957,9 +733,7 @@ Kiam unue li venis vivi je mia kosto, mi neniam kredis, ke
 
 li restos longe ĉe mi. Mi kutimis sidi kaj lin rigardi, dum li sidis sur la tapiŝeto kaj rigardis supren al mi kaj mi pensis:
 
-”Ho, ne longe vivos tiu ĉi hundo. Li estos perforte veturiga-
-
-ta en ĉaro al la hela ĉielo, jen kio okazos al li.”
+”Ho, ne longe vivos tiu ĉi hundo. Li estos perforte veturigata en ĉaro al la hela ĉielo, jen kio okazos al li.”
 
 Tamen, post kiam mi pagis jam pro dekduo da kokidoj
 
@@ -967,30 +741,19 @@ mortigitaj de li; ŝire fortiris lin per la nuko, murmureganta kaj piedbatanta, 
 
 ricevis procesalvokon de viro en najbara domo pro tio, ke mi
 
-tenas sovaĝan hundon libera, kiu lin enkarcerigis en lia pro-
-
-pra barako, kie li timis dum du horoj, en malvarma nokto,
+tenas sovaĝan hundon libera, kiu lin enkarcerigis en lia propra barako, kie li timis dum du horoj, en malvarma nokto,
 
 meti la nazon ekster la pordon; mi eksciis, ke la kardenisto,
 
-sen mia scio, gajnis tridek ŝilingojn, kiam li vetis pri lia rapi-23
-
-T R I V I RO J E N B OATO
-
-
-deco en la mortigo de ratoj; tiam mi komencis pensi, ke su-
+sen mia scio, gajnis tridek ŝilingojn, kiam li vetis pri lia rapideco en la mortigo de ratoj; tiam mi komencis pensi, ke su-
 
 pozeble oni lasos lin resti sur la tero iom pli longe.
 
-Atendi apud stalo kaj kolekti bandon de la plej aĉaj hun-
-
-doj troveblaj en la urbo kaj marŝi fronte de ili tra la domaĉaroj por batali kontraŭ aliaj aĉaj hundoj, jen ideo de Montmo-
+Atendi apud stalo kaj kolekti bandon de la plej aĉaj hundoj troveblaj en la urbo kaj marŝi fronte de ili tra la domaĉaroj por batali kontraŭ aliaj aĉaj hundoj, jen ideo de Montmo-
 
 rency pri la vivo; li do, kiel mi jam diris, donis al la propono pri gastejoj kaj trinkejoj kaj hoteloj sian plej emfazan apro-bon.
 
-Kiam tiel solviĝis je ĉies kontentiĝo la aranĝoj pri dorma-
-
-do, restis por diskuti nur, kion ni kunprenu; tion ni komen-
+Kiam tiel solviĝis je ĉies kontentiĝo la aranĝoj pri dormado, restis por diskuti nur, kion ni kunprenu; tion ni komen-
 
 cis argumenti, kiam Harris diris, ke li havis jam sufiĉe da ora-torado por unu nokto kaj proponis, ke ni ĉiuj eliru kaj feliĉiĝu.
 
@@ -1002,14 +765,9 @@ kiam mi konas lin); ĉar mi havis antaŭsenton, ke iomete da
 
 varma viskio kun citrontranĉaĵo bonefikos al mia malsano,
 
-laŭ komuna interkonsento la debato prokrastiĝis ĝis la sek-
-
-vanta nokto kaj la kunvenintaro surmetis la ĉapelojn kaj eli-
+laŭ komuna interkonsento la debato prokrastiĝis ĝis la sekvanta nokto kaj la kunvenintaro surmetis la ĉapelojn kaj eli-
 
 ris.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro III
@@ -1028,9 +786,7 @@ kaj prepari niajn planojn. Harris diris:
 
 — Antaŭ ĉio ni devas decidi, kion kunpreni. Nu, J., prenu
 
-paperpeceton kaj skribu. Georgo, prenu katalogon de nutraĵ-
-
-vendistaĵoj, kaj iu donu al mi peceton da krajono kaj mi skri-
+paperpeceton kaj skribu. Georgo, prenu katalogon de nutraĵvendistaĵoj, kaj iu donu al mi peceton da krajono kaj mi skri-
 
 bos nian liston.
 
@@ -1040,9 +796,7 @@ Jen la kutima Harris — tuj preta alpreni sur sin la tutan
 
 memorigas pri mia kompatinda onklo Podger. Neniam en la
 
-vivo vi vidis tian tumulton tra la tuta domo, kia estiĝis, kiam onklo Podger entreprenis ian laboron. Pentraĵo revenas hejmen de la kadrofaristo kaj staras en la manĝoĉambro aten-
-
-dante ĝis oni ĝin pendigos; onklino Podger demandas, kion
+vivo vi vidis tian tumulton tra la tuta domo, kia estiĝis, kiam onklo Podger entreprenis ian laboron. Pentraĵo revenas hejmen de la kadrofaristo kaj staras en la manĝoĉambro atendante ĝis oni ĝin pendigos; onklino Podger demandas, kion
 
 fari pri ĝi, kaj onklo Podger diras:
 
@@ -1055,12 +809,7 @@ Tiam li deprenas la jakon kaj komencas. Li ordonas al la
 servistino eliri kaj aĉeti por ses pencoj da najloj, poste al unu el la knaboj iri post ŝi kaj diri, kian grandon ŝi aĉetu; post tio la tutan familion li grade implikas kaj ekfunkciigas.
 
 
-T R I V I RO J E N B OATO
-
-
-—Iru, havigu martelon, Will, — li krias; — kaj alportu me-
-
-zurilon, Tom; mi bezonos la ŝtupetaron kaj estus bone ankaŭ
+—Iru, havigu martelon, Will, — li krias; — kaj alportu mezurilon, Tom; mi bezonos la ŝtupetaron kaj estus bone ankaŭ
 
 havi seĝon; Jim! kuru al sinjoro Goggles, kaj diru al li, ”Paĉjo bondeziras al vi, kaj esperas, ke via kruro resaniĝis; ĉu vi bonvolas pruntedoni al li vian nivelilon?” Ne foriru, Maria, ĉar
 
@@ -1082,9 +831,7 @@ serĉi lian jakon; dume li ĉirkaŭsaltas kaj malhelpas ilin.
 
 aron mi neniam en la vivo renkontis — je mia vorto, neniam.
 
-Sesope vi estas! — kaj vi ne povas trovi jakon, kiun mi deme-
-
-tis antaŭ ne pli ol kvin minutoj. Nu, el ĉiuj …
+Sesope vi estas! — kaj vi ne povas trovi jakon, kiun mi demetis antaŭ ne pli ol kvin minutoj. Nu, el ĉiuj …
 
 Tiam li leviĝas kaj trovas, ke li sidas sur ĝi, kaj elkrias:
 
@@ -1098,9 +845,7 @@ havigis novan vitron kaj alportis la laborilojn kaj la ŝtupetaron kaj la seĝon
 
 tuta familio, inkluzive la servistinon kaj la domlaboristinon, staras servopretaj en duonrondo. Du devas teni la seĝon, la
 
-tria helpas al li suriri ĝin kaj lin teni tie, la kvara enmanigas 26
-
-T R I V I RO J E N B OATO
+tria helpas al li suriri ĝin kaj lin teni tie, la kvara enmanigas
 
 
 al li najlon, la kvina pasigas supren al li la martelon, li tenas la najlon firme kaj lasas ĝin fali.
@@ -1113,9 +858,7 @@ la seĝo, grumblas kaj deziras scii, ĉu li devos resti tie la tutan vesperon.
 
 Fine oni trovas la najlon, sed tiam li perdis la martelon.
 
-—Kie estas la martelo? Kion mi faris pri la martelo? Gran-
-
-da ĉielo! Sep vi estas, gapantaj tie, kaj vi ne scias, kion mi faris pri la martelo!
+—Kie estas la martelo? Kion mi faris pri la martelo? Granda ĉielo! Sep vi estas, gapantaj tie, kaj vi ne scias, kion mi faris pri la martelo!
 
 Ni trovas la martelon, sed dumtempe li perdis la signon,
 
@@ -1125,9 +868,7 @@ la alia, kaj ordonas al ni deiri. Li prenas la mezurilon kaj re-mezuras kaj trov
 
 unu coloj kaj tri okonoj for de la angulo, penas kalkuli tion en la kapo kaj freneziĝas.
 
-Ni ĉiuj penas kalkuli tion en la kapo kaj ĉiuj alvenas al mal-
-
-samaj konkludoj kaj mokridas unu la alian. En la ĝenerala tu-
+Ni ĉiuj penas kalkuli tion en la kapo kaj ĉiuj alvenas al malsamaj konkludoj kaj mokridas unu la alian. En la ĝenerala tu-
 
 multo la originala numero forgesiĝis kaj onklo Podger devas
 
@@ -1146,9 +887,6 @@ Onklino Maria diras, ke ŝi ne permesos al la infanoj stari
 tie kaj aŭskulti tian lingvaĵon.
 
 
-T R I V I RO J E N B OATO
-
-
 Fine onklo Podger denove decidiĝas pri la punkto kaj sur
 
 ĝin metas la najlpinton per la maldekstra mano kaj prenas la
@@ -1161,31 +899,23 @@ kiam onklo Podger intencos marteli najlon en la muron, li
 
 tion sciigos al ŝi sufiĉe frue, por ke ŝi aranĝu pasigon de semajno kun la patrino, dum la laboro estas farata.
 
-—Ho! vi virinoj, vi tiel ekscitiĝas pri ĉio, — respondas on-
-
-klo Podger kaj leviĝas. — Fakte, tian bagatelan laboron mi
+—Ho! vi virinoj, vi tiel ekscitiĝas pri ĉio, — respondas onklo Podger kaj leviĝas. — Fakte, tian bagatelan laboron mi
 
 ŝategas fari.
 
 Tiam li provas denove kaj ĉe la dua bato la najlo trairas la
 
-tutan stukon kaj ĝin sekvas duono de la martelo; onklo Pod-
-
-ger ĵetiĝas al la muro sufiĉe forte por enbati sian nazon.
+tutan stukon kaj ĝin sekvas duono de la martelo; onklo Podger ĵetiĝas al la muro sufiĉe forte por enbati sian nazon.
 
 Tiam ni devas denove trovi la mezurilon kaj la ŝnureton kaj
 
 nova truo estas farata; ĉirkaŭ noktomezo la pentraĵo pendas
 
-— tre malrekte kaj malfirme kaj metron ĉirkaŭe la muro as-
-
-pektas, kiel se ĝi estus glatigita per rastilo, kaj ni ĉiuj estas eluzitaj kaj malfeliĉegaj — krom onklo Podger.
+— tre malrekte kaj malfirme kaj metron ĉirkaŭe la muro aspektas, kiel se ĝi estus glatigita per rastilo, kaj ni ĉiuj estas eluzitaj kaj malfeliĉegaj — krom onklo Podger.
 
 —Jen, — li diras, peze deiras de la seĝo sur la piedkalojn de
 
-la domlaboristino kaj rigardas kun evidenta fiero sian fuŝla-
-
-boron. — Jen, iuj homoj venigus metiiston por fari tian baga-
+la domlaboristino kaj rigardas kun evidenta fiero sian fuŝlaboron. — Jen, iuj homoj venigus metiiston por fari tian baga-
 
 telaĵon!
 
@@ -1193,21 +923,14 @@ Harris fariĝos ekzakte tia viro, kiam li estos plenkreska,
 
 tion mi scias kaj mi ankaŭ diris al li. Mi diris, ke mi ne povas permesi, ke li surprenu sur sin tiom da laboro. Mi diris:
 
-—Ne; vi havigu paperon kaj krajonon kaj katalogon, Geor-
-
-go skribu kaj la laboron mi faros.
+—Ne; vi havigu paperon kaj krajonon kaj katalogon, Georgo skribu kaj la laboron mi faros.
 
 La unua listo, kiun ni ellaboris, devis esti forĵetita. Estis
 
 klare, ke la supra parto de Tamizo ne permesus la navigadon
 
 
-T R I V I RO J E N B OATO
-
-
-de boato sufiĉe granda por enhavi la objektojn, kiujn ni en-
-
-listigis kiel nepre necesajn; ni do disŝiris la liston kaj rigardis unu la alian.
+de boato sufiĉe granda por enhavi la objektojn, kiujn ni enlistigis kiel nepre necesajn; ni do disŝiris la liston kaj rigardis unu la alian.
 
 Georgo diris:
 
@@ -1219,9 +942,7 @@ Georgo montriĝas foje vere inteligenta. Vi surpriziĝus.
 
 Tion mi nomas perfekta saĝo, ne nur rilate al la nuna okazo,
 
-sed ankaŭ rilate al la vojaĝo sur la rivero de la vivo, ĝenera-le. Kiom da homoj sur tiu vojaĝo ŝarĝas la boaton, ĝis ĝi es-
-
-tas en danĝero de subakviĝo pro la amaso de sensencaj aĵoj,
+sed ankaŭ rilate al la vojaĝo sur la rivero de la vivo, ĝenera-le. Kiom da homoj sur tiu vojaĝo ŝarĝas la boaton, ĝis ĝi estas en danĝero de subakviĝo pro la amaso de sensencaj aĵoj,
 
 kiujn ili konsideras esencaj por la plezuro kaj komforto de la vojaĝo, sed kiuj estas fakte nur nenecesaj senutilaĵoj.
 
@@ -1237,23 +958,13 @@ neniu, kun formalaĵoj kaj modoj, kun ŝajnigo kaj pompo, kaj
 
 ho, la plej peza, freneza senutilaĵo el ĉiuj! — kun la timo pri tio, kion pensos mia najbaro, kun luksaĵoj, kiuj nur supersa-tigas, kun plezuroj, kiuj tedas, kun senenhava parado, kiu,
 
-simila al la fera krono de la krimulo de la antikva tempo, ŝan-
-
-ĝiĝas kaj svenigas la dolorantan kapon, kiu portas ĝin!
+simila al la fera krono de la krimulo de la antikva tempo, ŝanĝiĝas kaj svenigas la dolorantan kapon, kiu portas ĝin!
 
 Jen aro da senutilaĵoj, amiko — tuta senutilaĵaro! Forĵetu
 
-ĝin. i tiel pezigas la boaton, ke vi preskaŭ svenas tirante la remilojn. i tiel ŝarĝas ĝin kaj igas ĝian direktadon tiel dan-
+ĝin. i tiel pezigas la boaton, ke vi preskaŭ svenas tirante la remilojn. i tiel ŝarĝas ĝin kaj igas ĝian direktadon tiel danĝera, ke vi neniam eĉ momenton estas libera de maltrankvi-
 
-ĝera, ke vi neniam eĉ momenton estas libera de maltrankvi-
-
-lo kaj zorgemo, neniam akiras momenton por revplena mal-
-
-
-T R I V I RO J E N B OATO
-
-
-laboremo — neniun tempon vi havas por rigardi la ventajn
+lo kaj zorgemo, neniam akiras momenton por revplena mallaboremo — neniun tempon vi havas por rigardi la ventajn
 
 ombrojn flugantaj malpeze super la malprofundaĵoj, aŭ la
 
@@ -1269,17 +980,11 @@ malpeza, pakita nur per tio, kion vi bezonas: hejmeca hejmo
 
 kaj simplaj plezuroj, unu-du amikoj indaj de la nomo, iu por
 
-ami kaj iu por esti amata; kato, hundo, kaj unu-du pipoj, sufi-
+ami kaj iu por esti amata; kato, hundo, kaj unu-du pipoj, sufiĉe da manĝo kaj sufiĉe da vestoj, kaj iom pli ol sufiĉe da trin-kaĵoj; ĉar soifo estas danĝera.
 
-ĉe da manĝo kaj sufiĉe da vestoj, kaj iom pli ol sufiĉe da trin-kaĵoj; ĉar soifo estas danĝera.
+Tiam vi trovos, ke estas pli facile tiri la boaton, kaj ke ĝi ne tiel emas renversiĝi kaj ke ne multe gravas, eĉ se ĝi renversiĝos; bona, simpla komercaĵo toleros akvon. Vi havos tempon ne nur por labori, sed ankaŭ por pensi; tempon por en-
 
-Tiam vi trovos, ke estas pli facile tiri la boaton, kaj ke ĝi ne tiel emas renversiĝi kaj ke ne multe gravas, eĉ se ĝi renversiĝos; bona, simpla komercaĵo toleros akvon. Vi havos tem-
-
-pon ne nur por labori, sed ankaŭ por pensi; tempon por en-
-
-suĉi la sunbrilon de la vivo, tempon por aŭskulti la ĉielan muzikon, kiun la vento de Dio sonigas el la homaj korkordoj ĉir-
-
-kaŭ ni — tempon por …
+suĉi la sunbrilon de la vivo, tempon por aŭskulti la ĉielan muzikon, kiun la vento de Dio sonigas el la homaj korkordoj ĉirkaŭ ni — tempon por …
 
 Mi pardonpetas, vere. Mi tute forgesis.
 
@@ -1287,41 +992,26 @@ Nu, ni lasis la listigon al Georgo kaj li komencis.
 
 —Tendon ni ne kunprenu, — proponis Georgo; — ni havu
 
-boaton kun ŝirmilo. Tio estos multe pli simpla kaj pli komfor-
-
-ta.
+boaton kun ŝirmilo. Tio estos multe pli simpla kaj pli komforta.
 
 Tio ŝajnis bona penso kaj ni ĝin akceptis. Mi ne scias, ĉu vi
 
-iam vidis tion, pri kio mi parolas. Vi alfiksas ferajn duonringegojn super la boato kaj super ili sternas grandegan kanva-
-
-son, alfiksas ĝin tute ĉirkaŭe, de la antaŭo ĝis la malantaŭo, kaj tiel la boato transformiĝas en specon de dometo kaj ĝi
-
-
-T R I V I RO J E N B OATO
+iam vidis tion, pri kio mi parolas. Vi alfiksas ferajn duonringegojn super la boato kaj super ili sternas grandegan kanvason, alfiksas ĝin tute ĉirkaŭe, de la antaŭo ĝis la malantaŭo, kaj tiel la boato transformiĝas en specon de dometo kaj ĝi
 
 
 estas belege komforta, eĉ se iomete senaera; sed tamen, ĉio
 
-havas sian malbonan flankon, kiel diris la viro, kiam lia bo-
+havas sian malbonan flankon, kiel diris la viro, kiam lia bopatrino mortis, kaj oni postulis de li la enterigajn kostojn.
 
-patrino mortis, kaj oni postulis de li la enterigajn kostojn.
-
-Georgo diris, ke en tiu kazo ĉiu el ni devos kunpreni tapiŝe-
-
-ton, lampon, iom da sapo, broson kaj kombilon (por ĉiuj),
+Georgo diris, ke en tiu kazo ĉiu el ni devos kunpreni tapiŝeton, lampon, iom da sapo, broson kaj kombilon (por ĉiuj),
 
 dentobroson (por ĉiu), lavvazon, iom da dentopulvoro, ilaron
 
-por sin razi kaj paron da grandaj viŝtukoj por banado. Mi ri-
-
-markas, ke homoj ĉiam faras gigantajn preparojn por sinba-
+por sin razi kaj paron da grandaj viŝtukoj por banado. Mi rimarkas, ke homoj ĉiam faras gigantajn preparojn por sinba-
 
 nado, kiam ili estas irontaj ien proksime de akvo, sed ke ili ne multe sin banas, kiam ili estas tie.
 
-Same okazas, kiam mi iras al la marbordo. Kiam mi pripen-
-
-sas la aferon en Londono, mi ĉiam nepre intencas ellitiĝi frue ĉiumatene kaj bani min en la maro antaŭ la matenmanĝo, kaj
+Same okazas, kiam mi iras al la marbordo. Kiam mi pripensas la aferon en Londono, mi ĉiam nepre intencas ellitiĝi frue ĉiumatene kaj bani min en la maro antaŭ la matenmanĝo, kaj
 
 mi konscience enpakas kaj banpantalonon kaj bantukon. Mi
 
@@ -1337,29 +1027,18 @@ urbo.
 
 Kontraŭe, mi sentas pli ol antaŭe la deziron resti en la lito
 
-ĝis la lasta momento kaj poste malsupreniri por la maten-
-
-manĝo. Unu-du fojojn la virto venkis kaj mi ellitiĝis je la sesa kaj min duone vestis, prenis la banpantalonon kaj bantukon
+ĝis la lasta momento kaj poste malsupreniri por la matenmanĝo. Unu-du fojojn la virto venkis kaj mi ellitiĝis je la sesa kaj min duone vestis, prenis la banpantalonon kaj bantukon
 
 kaj malgaje foriris. Sed mi ne ĝuis tion. ŝajnas, ke tranĉantan orientan venton oni konservas por atendi min, ĉiufoje kiam
 
 mi iras bani min frumatene, ĉiujn triangulajn ŝtonetojn oni
 
-kolektas kaj metas plej supre, oni akrigas la rokojn kaj kov-
-
-ras la pintojn per iom da sablo, por ke mi ne vidu ilin, kaj oni prenas la maron kaj metas ĝin du mejlojn for, tiel ke mi devas min kunpreni en la brakojn kaj saltete iri, frosttremante, 31
+kolektas kaj metas plej supre, oni akrigas la rokojn kaj kovras la pintojn per iom da sablo, por ke mi ne vidu ilin, kaj oni prenas la maron kaj metas ĝin du mejlojn for, tiel ke mi devas min kunpreni en la brakojn kaj saltete iri, frosttremante,
 
 
-T R I V I RO J E N B OATO
+tra ses coloj da akvo. Kiam fine mi atingas la maron, ĝi ondegas kaj eĉ insultas.
 
-
-tra ses coloj da akvo. Kiam fine mi atingas la maron, ĝi on-
-
-degas kaj eĉ insultas.
-
-Ondego min kaptas kaj ĵetas kiel eble plej forte sidiĝi rek-
-
-te sur rokon metitan tien por mi. Antaŭ ol mi dirus ”˘o! U˛!”
+Ondego min kaptas kaj ĵetas kiel eble plej forte sidiĝi rekte sur rokon metitan tien por mi. Antaŭ ol mi dirus ”˘o! U˛!”
 
 kaj ektrovus, kio okazis, la ondego revenas kaj min portas al
 
@@ -1367,9 +1046,7 @@ la mezo de la oceano. Mi eknaĝas freneze en la direkto de la
 
 bordo kaj scivolas, ĉu mi iam vidos denove la hejmon kaj
 
-amikojn, kaj bedaŭras, ke mi ne estis pli afabla al mia frati-
-
-neto kiel knabo (kiam mi estis knabo, mi volas diri). uste
+amikojn, kaj bedaŭras, ke mi ne estis pli afabla al mia fratineto kiel knabo (kiam mi estis knabo, mi volas diri). uste
 
 kiam mi jam tute malesperas, la ondego retiriĝas kaj lasas
 
@@ -1379,33 +1056,22 @@ Mi saltetiras for, vestas min kaj rampas al la domo, kie mi
 
 devas ŝajnigi, ke ĉio ĉi plaĉis al mi.
 
-En la nuna kazo ni ĉiuj parolis, kvazaŭ ni estus farontaj ĉi-
+En la nuna kazo ni ĉiuj parolis, kvazaŭ ni estus farontaj ĉiumatene longan naĝadon. Georgo diris, ke estas agrable ve-
 
-umatene longan naĝadon. Georgo diris, ke estas agrable ve-
-
-kiĝi en boato en freŝa mateno kaj ensalti en la diafanan rive-
-
-ron. Harris diris, ke nenio donas pli bonan apetiton ol naĝado antaŭ matenmanĝo. Li diris, ke tio ĉiam donas al li bonan
+kiĝi en boato en freŝa mateno kaj ensalti en la diafanan riveron. Harris diris, ke nenio donas pli bonan apetiton ol naĝado antaŭ matenmanĝo. Li diris, ke tio ĉiam donas al li bonan
 
 apetiton. Georgo diris, ke se tio igos Harris manĝi pli ol Harris manĝas kutime, li protestos kontraŭ la propono, ke Harris
 
 iam ajn banu sin.
 
 
-T R I V I RO J E N B OATO
-
-
-Li diris, ke treni kontraŭ la fluo sufiĉe da manĝo por Har-
-
-ris estos sufiĉe peniga laboro, sen ia aldono.
+Li diris, ke treni kontraŭ la fluo sufiĉe da manĝo por Harris estos sufiĉe peniga laboro, sen ia aldono.
 
 Mi tamen kun fervoro atentigis al Georgo, kiel pli agrable
 
 estus havi en la boato Harris puran kaj freŝan, eĉ se necesus
 
-kunporti pliajn kelkcent kilogramojn da manĝo; fine li ekvi-
-
-dis la aferon laŭ mia vidpunkto kaj retiris sian kontraŭstaron al la sinbano de Harris.
+kunporti pliajn kelkcent kilogramojn da manĝo; fine li ekvidis la aferon laŭ mia vidpunkto kaj retiris sian kontraŭstaron al la sinbano de Harris.
 
 Ni fine interkonsentis, ke ni kunprenu tri bantukojn, por
 
@@ -1413,26 +1079,17 @@ malebligi reciprokan atendadon.
 
 Koncerne vestaron Georgo diris, ke du flanelaj kompletoj
 
-sufiĉos, ĉar ni povos mem purigi ilin en la rivero, kiam ili fari-
+sufiĉos, ĉar ni povos mem purigi ilin en la rivero, kiam ili fariĝos malpuraj. Ni demandis lin, ĉu li iam provis lavi flanelaĵojn en rivero, kaj li respondis: ”Ne, ne ĝuste li mem; sed li konas virojn, kiuj lavis, kaj tio estas sufiĉe facila”; Harris kaj mi estis sufiĉe naivaj por kredi, ke li scias, pri kio li parolas, kaj ke tri respektindaj junuloj, sen rango aŭ influo kaj kun nenia
 
-ĝos malpuraj. Ni demandis lin, ĉu li iam provis lavi flanelaĵojn en rivero, kaj li respondis: ”Ne, ne ĝuste li mem; sed li konas virojn, kiuj lavis, kaj tio estas sufiĉe facila”; Harris kaj mi estis sufiĉe naivaj por kredi, ke li scias, pri kio li parolas, kaj ke tri respektindaj junuloj, sen rango aŭ influo kaj kun nenia
+sperto pri lavado, fakte povas purigi siajn ĉemizojn kaj pantalonojn en la rivero Tamizo per peco de sapo.
 
-sperto pri lavado, fakte povas purigi siajn ĉemizojn kaj pan-
-
-talonojn en la rivero Tamizo per peco de sapo.
-
-Ni eksciis poste, kiam estis jam tro malfrue, ke Georgo es-
-
-tas aĉa trompulo, kiu sciis pri tia afero evidente nenion. Se vi estus vidinta poste tiujn vestaĵojn — sed, kiel diras la ŝiling-aj romanoj, mi ne anticipu.
+Ni eksciis poste, kiam estis jam tro malfrue, ke Georgo estas aĉa trompulo, kiu sciis pri tia afero evidente nenion. Se vi estus vidinta poste tiujn vestaĵojn — sed, kiel diras la ŝiling-aj romanoj, mi ne anticipu.
 
 Georgo, admonis nin, ke ni kunprenu duan subvestaron
 
 kaj multe da ŝtrumpoj por la kazo, ke ni renversiĝus kaj devus ŝanĝi la vestojn; ankaŭ multe da poŝtukoj, kiuj povos servi
 
 kiel purigiloj, kaj paron da ledaj botoj, krom niaj boatŝuoj, ĉar ni bezonos ilin, se ni renversiĝos.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro IV
@@ -1451,9 +1108,7 @@ Poste ni priparolis la demandon pri manĝo. Georgo diris:
 
 —Ni komencu per la matenmanĝo — (Georgo estas tiel
 
-praktika). — Nu, por matenmanĝo ni bezonos paton — (Har-
-
-ris diris, ke ĝi estas nedigestebla; sed ni petis lin ne esti azeno kaj Georgo daŭrigis) — tepoton kaj kaserolon, kaj metilal-
+praktika). — Nu, por matenmanĝo ni bezonos paton — (Harris diris, ke ĝi estas nedigestebla; sed ni petis lin ne esti azeno kaj Georgo daŭrigis) — tepoton kaj kaserolon, kaj metilal-
 
 koholan forneton.
 
@@ -1474,18 +1129,13 @@ venis de la arktaj neĝoj, ĉu ĝi leviĝis super la dezertaj sabloj,
 ĝi venis al ni egale ŝarĝita de la odoro de petrolo.
 
 
-T R I V I RO J E N B OATO
-
-
 Tiu petrolo, suprenfluetis kaj ruinigis la sunsubiron; ankaŭ
 
 la lunradioj havis fakte odoron de petrolo.
 
 ĉe Marlow ni penis liberiĝi de ĝi. Ni lasis la boaton apud
 
-la ponto kaj promenis tra la urbo por nin savi de ĝi, sed ĝi nin postsekvis. La tuta urbo pleniĝis de petrolo. Ni pasis la pre-
-
-ĝejan korton kaj ŝajnis, kvazaŭ la homojn oni estus enterigin-
+la ponto kaj promenis tra la urbo por nin savi de ĝi, sed ĝi nin postsekvis. La tuta urbo pleniĝis de petrolo. Ni pasis la preĝejan korton kaj ŝajnis, kvazaŭ la homojn oni estus enterigin-
 
 taj en petrolo. La ĉefa strato odoraĉis pro petrolo; ni miris, ke homoj povas loĝi tie. Ni marŝis mejlon post mejlo en la direkto de Birmingham; sed senefike, ĉar la kamparo estis trempita
 
@@ -1495,9 +1145,7 @@ Je la fino de tiu vojaĝo ni kunvenis noktomeze sur soleca
 
 kampo, sub fulmofrapita kverko, kaj solene ĵuris (ni tutan
 
-semajnon blasfemis en ordinara burĝa maniero, sed nun te-
-
-mis pri grandioza afero) solene ĵuris, ke petrolon ni neniam
+semajnon blasfemis en ordinara burĝa maniero, sed nun temis pri grandioza afero) solene ĵuris, ke petrolon ni neniam
 
 denove kunprenos en boato — krom, kompreneble, en kazo
 
@@ -1505,51 +1153,33 @@ de malsano.
 
 En la nuna kazo ni do nin limiĝis al metilalkoholo. Eĉ tio
 
-estas sufiĉe malbona. Vi manĝas metilitan pasteĉon kaj me-
-
-tilitan kukon. Tamen granda kvanto da metilalkoholo en la
+estas sufiĉe malbona. Vi manĝas metilitan pasteĉon kaj metilitan kukon. Tamen granda kvanto da metilalkoholo en la
 
 korpo estas pli saniga ol petrolo.
 
-Por la aliaj matenmanĝaĵoj Georgo proponis ovojn kaj lar-
-
-don, kiuj estas facile kuireblaj, malvarman viandon, teon, bu-
+Por la aliaj matenmanĝaĵoj Georgo proponis ovojn kaj lardon, kiuj estas facile kuireblaj, malvarman viandon, teon, bu-
 
 terpanon kaj konfitaĵon. Por lunĉo, li diris, ni povos havi bis-kvitojn, malvarman viandon, buterpanon kaj konfitaĵon —
 
 sed neniun fromaĝon. Fromaĝo, same kiel petrolo, tro trudas
 
-sin. i deziras por si la tutan boaton. i trairas la korbegon kaj donas al ĉio alia fromaĝan guston. Vi ne scias, ĉu vi man-
-
-ĝas pomtorton aŭ kolbason, aŭ fragojn kaj kremon. ĉio ŝaj-
+sin. i deziras por si la tutan boaton. i trairas la korbegon kaj donas al ĉio alia fromaĝan guston. Vi ne scias, ĉu vi manĝas pomtorton aŭ kolbason, aŭ fragojn kaj kremon. ĉio ŝaj-
 
 nas fromaĝo. Tro da odoro enestas en fromaĝo.
 
-Mi memoras pri amiko mia, kiu aĉetis du fromaĝojn en Li-
+Mi memoras pri amiko mia, kiu aĉetis du fromaĝojn en Liverpool. Bonegaj fromaĝoj ili estis, maturaj kaj molaj, kun
 
-
-T R I V I RO J E N B OATO
-
-
-verpool. Bonegaj fromaĝoj ili estis, maturaj kaj molaj, kun
-
-ducentĉevalpova odoro, pri kiu oni povus garantii, ke ĝi es-
-
-tas ankoraŭ forte flarebla je distanco de tri mejloj kaj faligas homon je distanco de du cent metroj. Mi estis tiam en Liverpool kaj mia amiko diris, ke se mi ne kontraŭas, li petos min
+ducentĉevalpova odoro, pri kiu oni povus garantii, ke ĝi estas ankoraŭ forte flarebla je distanco de tri mejloj kaj faligas homon je distanco de du cent metroj. Mi estis tiam en Liverpool kaj mia amiko diris, ke se mi ne kontraŭas, li petos min
 
 kunporti ilin, kiam mi reiros al Londono, ĉar li mem reiros
 
 nur post kelkaj tagoj kaj li opiniis, ke ne estos bone konservi la fromaĝojn pli longe.
 
-—Kun plezuro, kara knabo, — mi respondis, — kun plezu-
-
-ro.
+—Kun plezuro, kara knabo, — mi respondis, — kun plezuro.
 
 Mi vizitis lin kaj forportis ilin en fiakro. ĉi tiu estis disfa-lema afero, trenata de tuŝgenua, spiromanka somnambulo,
 
-kiun la posedanto en momento de entuziasmo, dum interpa-
-
-rolo, nomis ĉevalo. La fromaĝojn mi metis sur la supron, kaj
+kiun la posedanto en momento de entuziasmo, dum interparolo, nomis ĉevalo. La fromaĝojn mi metis sur la supron, kaj
 
 ni trene ekiris kun rapideco, kiu estus honorinda al la plej
 
@@ -1565,13 +1195,7 @@ papero.
 
 Mi akiris mian bileton kaj marŝis fiere kun miaj fromaĝoj
 
-laŭlonge de la perono, dum la homoj ĉe ambaŭ flankoj res-
-
-
-T R I V I RO J E N B OATO
-
-
-pektoplene retiriĝis. La vagonaro estis plenplena de homoj,
+laŭlonge de la perono, dum la homoj ĉe ambaŭ flankoj respektoplene retiriĝis. La vagonaro estis plenplena de homoj,
 
 tiel ke mi devis eniri kupeon, kie jam estis sep aliaj homoj.
 
@@ -1579,17 +1203,13 @@ Kolerema maljunulo kontraŭstaris, sed mi tamen eniris; mi
 
 metis miajn fromaĝojn sur la pakaĵtenujon, premsidiĝis kun
 
-afabla rideto kaj diris, ke estas varma tago. Pasis kelkaj mo-
-
-mentoj kaj tiam la maljunulo faris movetojn.
+afabla rideto kaj diris, ke estas varma tago. Pasis kelkaj momentoj kaj tiam la maljunulo faris movetojn.
 
 —Tre preme ĉi tie, — li diris.
 
 —Eĉ premege, — diris la viro apud li.
 
-Tiam ili ambaŭ komencis flari, kaj ĉe la tria flaro ili ĝin ricevis rekte sur la bruston, leviĝis sen plua vorto kaj eliris. Ti-am korpulenta maljunulino leviĝis kaj diris, ke estas hontin-
-
-de, ke respektindan edziniĝintan virinon oni tiel turmentas,
+Tiam ili ambaŭ komencis flari, kaj ĉe la tria flaro ili ĝin ricevis rekte sur la bruston, leviĝis sen plua vorto kaj eliris. Ti-am korpulenta maljunulino leviĝis kaj diris, ke estas hontinde, ke respektindan edziniĝintan virinon oni tiel turmentas,
 
 ŝi kolektis la valizon kaj ok pakaĵojn kaj foriris.
 
@@ -1606,9 +1226,6 @@ Mi ridetis al la nigra sinjoro kaj diris, ke mi opinias, ke ni restos solaj en l
 —Mi havos viskion por duonkrono, senakvan, mi petas,
 
 fraŭlino, — li respondis.
-
-
-T R I V I RO J E N B OATO
 
 
 Trinkinte ĝin li kviete foriris kaj eniris alian kupeon, kion
@@ -1629,9 +1246,7 @@ en la brakojn de la viro post si; ili ĉiuj venas ekflari kaj poste duonsvene fo
 
 la prezdiferencon kaj veturas unuaklase.
 
-El Euston mi portis la fromaĝojn al la domo de mia ami-
-
-ko. Kiam lia edzino eniris la ĉambron, ŝi ĉirkaŭflaris dum mo-
+El Euston mi portis la fromaĝojn al la domo de mia amiko. Kiam lia edzino eniris la ĉambron, ŝi ĉirkaŭflaris dum mo-
 
 mento. Tiam ŝi diris:
 
@@ -1643,9 +1258,7 @@ Mi diris:
 
 min kunporti ilin.
 
-Mi diris plie, ke mi esperas, ke ŝi komprenas, ke min la afe-
-
-ro tute ne koncernas; ŝi diris, ke pri tio ŝi certas, sed ŝi parolos kun Tom, kiam li revenos.
+Mi diris plie, ke mi esperas, ke ŝi komprenas, ke min la afero tute ne koncernas; ŝi diris, ke pri tio ŝi certas, sed ŝi parolos kun Tom, kiam li revenos.
 
 Mia amiko devis resti en Liverpool pli longe ol li atendis;
 
@@ -1653,16 +1266,11 @@ tri tagojn poste, ĉar li ankoraŭ ne revenis hejmen, lia edzino vizitis min. ŝ
 
 —Kion Tom diris pri tiuj fromaĝoj?
 
-Mi respondis, ke li ordonis, ke oni konservu ilin en malse-
-
-keta loko kaj ke neniu tuŝu ilin.
+Mi respondis, ke li ordonis, ke oni konservu ilin en malseketa loko kaj ke neniu tuŝu ilin.
 
 ŝi diris:
 
 —Ne estas verŝajne, ke iu volos tuŝi ilin. ĉu li ne flaris ilin?
-
-
-T R I V I RO J E N B OATO
 
 
 Mi kredis, ke jes, kaj diris ankaŭ, ke li ŝajnis havi grandan
@@ -1677,17 +1285,13 @@ Mi respondis, ke mi opinias, ke li neniam plu ridetus.
 
 Venis en ŝian menson ideo. ŝi diris:
 
-—ĉu vi bonvolos konservi ilin por li? Permesu, ke mi eks-
-
-pedu ilin al vi.
+—ĉu vi bonvolos konservi ilin por li? Permesu, ke mi ekspedu ilin al vi.
 
 —Sinjorino, — mi respondis, — kio koncernas min, mi vere
 
 ŝatas odoron de fromaĝo, kaj la vojaĝon kun ili antaŭ kelkaj
 
-tagoj mi ĉiam rigardos kiel feliĉan finon de agrabla libertem-
-
-po. Tamen en ĉi tiu mondo ankaŭ aliajn ni devas konsideri.
+tagoj mi ĉiam rigardos kiel feliĉan finon de agrabla libertempo. Tamen en ĉi tiu mondo ankaŭ aliajn ni devas konsideri.
 
 La sinjorino, sub kies tegmento mi havas la honoron loĝi,
 
@@ -1699,9 +1303,7 @@ tio, ke oni ŝin tiranu — kiel ŝi diras. La ĉeeston de la fromaĝoj de via e
 
 —Nu, bone, — diris la edzino de mia amiko leviĝante, —
 
-mi diras nur, ke mi kunprenos la infanojn kaj loĝos en hote-
-
-lo, ĝis tiuj fromaĝoj estos formanĝitaj. Mi kun ili ne vivos plu en la sama domo.
+mi diras nur, ke mi kunprenos la infanojn kaj loĝos en hotelo, ĝis tiuj fromaĝoj estos formanĝitaj. Mi kun ili ne vivos plu en la sama domo.
 
 ŝi plenumis sian vorton kaj lasis la hejmon sub la gardo de
 
@@ -1711,24 +1313,16 @@ al la fromaĝoj kaj ordonita ekflari forte, diris, ke ŝi povas rimarki malforta
 
 al ŝi la atmosfero ne multe rnalutilos, kaj oni lasis ŝin tie.
 
-La hotela kalkulo sumiĝis je dek kvin gvineoj kaj mia ami-
-
-ko, ĉion enkalkulinte, trovis, ke la fromaĝoj kostis al li po ok 39
-
-T R I V I RO J E N B OATO
+La hotela kalkulo sumiĝis je dek kvin gvineoj kaj mia amiko, ĉion enkalkulinte, trovis, ke la fromaĝoj kostis al li po ok
 
 
 ŝilingojn kaj ses pencojn por funto. Li diris, ke pecon da fro-maĝo li tre ŝatas, sed ke liaj rimedoj ne permesas je tioma
 
 kosto; tial li decidis forigi ilin. Li ĵetis ilin en la kanalon; sed li devis fiŝkapti ilin, ĉar plendis la boatistoj. Ili diris, ke la odoro preskaŭ svenigis ilin. Post tio li kunportis ilin en malluma nokto kaj lasis ilin en la paroą kadavrejo. Sed la mortenketisto ilin malkovris kaj faris grandan bruon.
 
-Li diris, ke oni komplotas senigi lin de la vivrimedoj vek-
+Li diris, ke oni komplotas senigi lin de la vivrimedoj vekante la kadavrojn.
 
-ante la kadavrojn.
-
-Mia amiko fine liberiĝis de ili, kiam li kunportis ilin al marborda urbo kaj enterigis ilin en la sablo. Pro tio la loko ricevis sufiĉe grandan reputacion. La vizitantoj diris, ke ili neni-am antaŭe rimarkis, kiel forta estas tie la aero, kaj malfort-
-
-brustaj homoj kaj ftizuloj svarmadis tie poste dum multaj
+Mia amiko fine liberiĝis de ili, kiam li kunportis ilin al marborda urbo kaj enterigis ilin en la sablo. Pro tio la loko ricevis sufiĉe grandan reputacion. La vizitantoj diris, ke ili neni-am antaŭe rimarkis, kiel forta estas tie la aero, kaj malfortbrustaj homoj kaj ftizuloj svarmadis tie poste dum multaj
 
 jaroj.
 
@@ -1738,9 +1332,7 @@ konvinkita, ke Georgo pravis, ĝin rifuzante.
 
 —Temanĝon ni ne bezonos, — diris Georgo (ĉe tio la vizaĝo
 
-de Harris malgajiĝis), — sed ni havos je la sepa bonan, ple-
-
-nan, grandiozan manĝon — ĉefmanĝon, temanĝon kaj ves-
+de Harris malgajiĝis), — sed ni havos je la sepa bonan, plenan, grandiozan manĝon — ĉefmanĝon, temanĝon kaj ves-
 
 permanĝon kunigintajn.
 
@@ -1748,20 +1340,13 @@ Harris pligajiĝis. Georgo proponis pasteĉojn kaj tortojn,
 
 malvarman viandon, tomatojn, fruktojn kaj legomojn. Por
 
-trinki ni kunprenis ian mirindan algluiĝeman miksaĵon fari-
-
-tan de Harris, kiun oni miksas kun akvo kaj nomas limona-
+trinki ni kunprenis ian mirindan algluiĝeman miksaĵon faritan de Harris, kiun oni miksas kun akvo kaj nomas limona-
 
 do; multe da teo; botelon da viskio, por la kazo, kiel diris Georgo, ke ni renversiĝus.
 
-ŝajnis al mi, ke Georgo tro multe aludas al eventuala ren-
-
-versiĝo. Tio ne ŝajnis al mi la taŭga humoro por entrepreni
+ŝajnis al mi, ke Georgo tro multe aludas al eventuala renversiĝo. Tio ne ŝajnis al mi la taŭga humoro por entrepreni
 
 rivervojaĝon.
-
-
-T R I V I RO J E N B OATO
 
 
 Tamen mi estas feliĉa, ke ni kunprenis la viskion.
@@ -1776,9 +1361,7 @@ tute bona; sed ne trinku, kiam la suno varmege radias sur
 
 vian kapon kaj vi havas penigan laboron farendan.
 
-Ni pretigis la liston de kunprenotaĵoj kaj sufiĉe Ionga ĝi es-
-
-tis, antaŭ ol ni disiĝis tiun vesperon. La sekvantan tagon, kiu estis vendredo, ni kolektis ilin ĉiujn kaj vespere kunvenis por paki. Ni havigis grandan valizon por la vestaĵoj kaj paron da
+Ni pretigis la liston de kunprenotaĵoj kaj sufiĉe Ionga ĝi estis, antaŭ ol ni disiĝis tiun vesperon. La sekvantan tagon, kiu estis vendredo, ni kolektis ilin ĉiujn kaj vespere kunvenis por paki. Ni havigis grandan valizon por la vestaĵoj kaj paron da
 
 korbegoj por la nutraĵoj kaj la kuiriloj. Ni ŝovis la tablon sub la fenestron, amasigis ĉion en la mezo de la planko, sidiĝis
 
@@ -1796,31 +1379,17 @@ metis la piedojn sur la tablon kaj bruligis cigaron.
 
 Ne tion mi atendis. Kompreneble mi intencis, ke mi estru
 
-la laboron kaj ke Harris kaj Georgo laboru sub mia direkta-
+la laboron kaj ke Harris kaj Georgo laboru sub mia direktado, dum mi ĝoje ilin flankenpuŝas, dirante: ”Ho, vi P… — Jen
 
-do, dum mi ĝoje ilin flankenpuŝas, dirante: ”Ho, vi P… — Jen
+lasu al mi fari tion!” ,,Jen sufiĉe simpla!” — fakte ilin instru-ante, kiel oni povus diri. La aplombo de ilia akcepto min incitis. Nenio incitas min pli ol vidi aliajn sidi ĉirkaŭe kaj fari nenion, dum mi laboras.
 
-lasu al mi fari tion!” ,,Jen sufiĉe simpla!” — fakte ilin instru-ante, kiel oni povus diri. La aplombo de ilia akcepto min in-
+Foje mi loĝis kun viro, kiu tiamaniere min furiozigis. Li kutimis kuŝi sur la sofo kaj dum horoj rigardi min, dum mi la-
 
-citis. Nenio incitas min pli ol vidi aliajn sidi ĉirkaŭe kaj fari nenion, dum mi laboras.
-
-Foje mi loĝis kun viro, kiu tiamaniere min furiozigis. Li ku-
-
-
-T R I V I RO J E N B OATO
-
-
-timis kuŝi sur la sofo kaj dum horoj rigardi min, dum mi la-
-
-boris, sekvante min per la okuloj, kien ajn mi iris en la ĉam-
-
-bro. Li diris, ke vere gojigas lin vidi, kiel mi fuŝagas. Li diris, ke tio igas lin senti, ke la vivo ne estas vana sonĝo, tra kiu oni gapas kaj oscedas, sed nobla tasko, plena de devoj kaj severa laboro. Li diris, ke nun li ofte scivolas, kiel li povis elteni antaŭ ol li min renkontis, kaj neniam havis iun por rigardi,
+boris, sekvante min per la okuloj, kien ajn mi iris en la ĉambro. Li diris, ke vere gojigas lin vidi, kiel mi fuŝagas. Li diris, ke tio igas lin senti, ke la vivo ne estas vana sonĝo, tra kiu oni gapas kaj oscedas, sed nobla tasko, plena de devoj kaj severa laboro. Li diris, ke nun li ofte scivolas, kiel li povis elteni antaŭ ol li min renkontis, kaj neniam havis iun por rigardi,
 
 dum tiu laboras.
 
-Nu, mi ne similas tiun. Sidi trankvile kaj rigardi alian pen-
-
-anta kaj laboranta, mi ne povas. Mi sentas deziron leviĝi kaj
+Nu, mi ne similas tiun. Sidi trankvile kaj rigardi alian penanta kaj laboranta, mi ne povas. Mi sentas deziron leviĝi kaj
 
 kontroli, iri ĉirkaŭen kun la manoj en la poŝoj kaj ordoni al
 
@@ -1832,13 +1401,9 @@ longdaŭra laboro ol mi atendis; sed fine mi plenigis la valizon, sidiĝis sur �
 
 —ĉu la botojn vi ne volas enmeti? — diris Harris.
 
-Mi rigardis ĉirkaŭen kaj trovis, ke ilin mi forgesis. Tio es-
+Mi rigardis ĉirkaŭen kaj trovis, ke ilin mi forgesis. Tio estas tipa por Harris. Li ne povis diri antaŭ ol mi jam fermis la valizon kaj rimenis ĝin, kompreneble. Georgo eligis ridon, —
 
-tas tipa por Harris. Li ne povis diri antaŭ ol mi jam fermis la valizon kaj rimenis ĝin, kompreneble. Georgo eligis ridon, —
-
-unu el tiuj incitemaj, sensencaj, fuŝkapaj, makzelrompitaj ri-
-
-doj liaj. Ili furiozigas min.
+unu el tiuj incitemaj, sensencaj, fuŝkapaj, makzelrompitaj ridoj liaj. Ili furiozigas min.
 
 Mi malfermis la valizon kaj enpakis la botojn; tiam, ĝuste
 
@@ -1848,37 +1413,24 @@ kiam mi estis ĝin fermonta, venis en la menson terura dubo.
 
 sed neniam mi scias, ĉu mi enpakis mian dentobroson.
 
-Min obsedas mia dentobroso, kiam mi vojaĝas kaj mal-
-
-feliĉigas la vivon. Mi sonĝas, ke mi ne enpakis ĝin, vekiĝas
+Min obsedas mia dentobroso, kiam mi vojaĝas kaj malfeliĉigas la vivon. Mi sonĝas, ke mi ne enpakis ĝin, vekiĝas
 
 ŝvitegante malvarme, ellitiĝas kaj ĝin serĉas, matene mi ĝin
 
 enpakas antaŭ ol mi ĝin uzis kaj devas elpaki denove por ĝin
 
 
-T R I V I RO J E N B OATO
-
-
 havigi, kaj ĝi estas ĉiam la lasta objekto, kiun mi elĵetas el la valizo; tiam mi repakas, ĝin forgesas kaj devas kuregi supren
 
-por ĝi je la lasta momento kaj porti ĝin al la stacidomo, en-
-
-volvitan en mia poŝtuko.
+por ĝi je la lasta momento kaj porti ĝin al la stacidomo, envolvitan en mia poŝtuko.
 
 Kompreneble mi devis nun elpaki ĉiun pakitan objekton,
 
-kaj kompreneble mi ne povis ĝin trovi. Traserĉante mi kun-
+kaj kompreneble mi ne povis ĝin trovi. Traserĉante mi kunmiksis ĉiujn objektojn, ĝis ili revenis al la stato, en kiu ili sendube troviĝis antaŭ la kreo de la mondo, kiam regis kaoso.
 
-miksis ĉiujn objektojn, ĝis ili revenis al la stato, en kiu ili sendube troviĝis antaŭ la kreo de la mondo, kiam regis kaoso.
+Kompreneble mi trovis tiujn de Georgo kaj Harris dek ok fojojn, sed la propran mi ne povis trovi. Mi remetis la aĵojn unu post la alia kaj ĉiun mi levis kaj skuis. Tiam mi trovis ĝin interne de boto. Mi repakis ankoraŭ unu fojon.
 
-Kompreneble mi trovis tiujn de Georgo kaj Harris dek ok foj-
-
-ojn, sed la propran mi ne povis trovi. Mi remetis la aĵojn unu post la alia kaj ĉiun mi levis kaj skuis. Tiam mi trovis ĝin interne de boto. Mi repakis ankoraŭ unu fojon.
-
-Kiam mi finis, Georgo demandis, ĉu la sapo estas enpaki-
-
-ta. Mi diris, ke al mi estas tute egale, ĉu la sapo estas enpakita aŭ ne, kaj mi ĵetfermis la valizon kaj rimenis ĝin kaj trovis, ke mi enpakis mian tabaksakon, kaj devis ĝin remalfermi.
+Kiam mi finis, Georgo demandis, ĉu la sapo estas enpakita. Mi diris, ke al mi estas tute egale, ĉu la sapo estas enpakita aŭ ne, kaj mi ĵetfermis la valizon kaj rimenis ĝin kaj trovis, ke mi enpakis mian tabaksakon, kaj devis ĝin remalfermi.
 
 Estis kvin minutoj post la deka, kiam ĝi fine fermiĝis, kaj
 
@@ -1897,18 +1449,11 @@ kaj tasoj kaj kaseroloj kaj boteloj kaj potoj kaj fornoj kaj kukoj kaj tomatoj k
 i fariĝis. Ili komencis per rompo de taso. Tio estis ilia
 
 
-T R I V I RO J E N B OATO
-
-
 unua faro. Ili tion faris nur por montri, kion ili povas fari, kaj por altiri atenton.
 
-Poste Harris pakis la fragokonfitaĵon sur tomaton kaj dis-
+Poste Harris pakis la fragokonfitaĵon sur tomaton kaj dispremis ĝin, kaj ili devis ellevi la tomaton per kulereto.
 
-premis ĝin, kaj ili devis ellevi la tomaton per kulereto.
-
-Tiam estis la vico de Georgo kaj li paŝis sur buteron. Mi di-
-
-ris nenion, sed mi proksimiĝis kaj sidiĝis sur la rando de la
+Tiam estis la vico de Georgo kaj li paŝis sur buteron. Mi diris nenion, sed mi proksimiĝis kaj sidiĝis sur la rando de la
 
 tablo kaj rigardis ilin. Tio incitis ilin pli ol io, kion mi estus povinta diri. Tion mi sentis. Tio faris ilin nervaj kaj ekscititaj kaj ili paŝis sur objektojn, metis objektojn malantaŭ sin kaj
 
@@ -1922,17 +1467,13 @@ Ili ŝutis salon sur ĉion, kaj pri butero! Mi neniam en la vivo vidis du virojn
 
 gapanta al la malplena seĝo.
 
-—Mi vidis mem, ke vi faris tion antaŭ malpli ol unu minu-
-
-to, — diris Harris.
+—Mi vidis mem, ke vi faris tion antaŭ malpli ol unu minuto, — diris Harris.
 
 Ili denove ĉirkaŭiris en la ĉambro, ĝin serĉante; poste ili
 
 renkontiĝis en la mezo, kaj gapis al si reciproke.
 
-—La plej nekutima afero, pri kiu mi iam aŭdis, — diris Ge-
-
-orgo.
+—La plej nekutima afero, pri kiu mi iam aŭdis, — diris Georgo.
 
 —Tiel mistera! — diris Harris.
 
@@ -1941,18 +1482,13 @@ Tiam Georgo iris malantaŭ Harris kaj ekvidis ĝin.
 —Nu, jen ĝi estis la tutan tempon, — li ekkriis, indigne.
 
 
-T R I V I RO J E N B OATO
-
-
 —Kie? — kriis Harris turniĝante.
 
 —Staru senmove! — Georgo kriegis, flugante post lin.
 
 Ili sukcesis ĝin forigi, kaj enpakis ĝin en la tekruĉon.
 
-En ĉion kompreneble enmiksiĝis Montmorency. La vivam-
-
-bicio de Montmorency estas malhelpi ĉiujn kaj igi ilin blas-
+En ĉion kompreneble enmiksiĝis Montmorency. La vivambicio de Montmorency estas malhelpi ĉiujn kaj igi ilin blas-
 
 femi al li. Se li povas enpremiĝi ien, ĝuste kie oni lin ne deziras, kaj fariĝi perfekta ĝenaĵo, furiozigi la homojn kaj igi ilin ĵeti objektojn al lia kapo, tiam li sentas, ke li ne malbone pasigis la tagon.
 
@@ -1960,18 +1496,14 @@ Kaŭzi, ke iu falpuŝiĝu kaj lin malbenu senĉese dum horo,
 
 estas lia plej alta celo kaj deziro; kiam li sukcesas en tio, lia memfiereco fariĝas netolerebla.
 
-Li venis kaj sidiĝis sur objektoj, ĝuste kiam oni volis enpaki ilin; li forte kredis, ke ĉiufoje kiam Harris aŭ Georgo etendis 45
-
-T R I V I RO J E N B OATO
+Li venis kaj sidiĝis sur objektoj, ĝuste kiam oni volis enpaki ilin; li forte kredis, ke ĉiufoje kiam Harris aŭ Georgo etendis
 
 
 la manon, ili celis lian malvarman, malseketan nazon. Li metis la kruron en la konfitaĵon, skue mordadis la kuleretojn
 
 kaj li ŝajnigis, ke la limonoj estas ratoj kaj li eniĝis en la korbegon kaj mortigis tri el ili antaŭ ol Harris povis trafi lin per la pato.
 
-Harris diris, ke mi instigis lin. Mi ne instigis lin. Tia hun-
-
-do ne bezonas instigon. Tiel li agas pro la natura, origina pe-kemo denaska en li.
+Harris diris, ke mi instigis lin. Mi ne instigis lin. Tia hundo ne bezonas instigon. Tiel li agas pro la natura, origina pe-kemo denaska en li.
 
 La pakado finiĝis je 12.50 kaj Harris sidiĝis sur la granda
 
@@ -1979,9 +1511,7 @@ korbego kaj diris, ke li certas, ke oni trovos nenion rompita.
 
 Georgo diris, ke se io estas rompita, ĝi estas rompita, kaj tiu penso ŝajnis lnsoli. Li diris ankaŭ, ke li estas preta enlitiĝi. Ni ĉiuj estis pretaj enlitiĝi. Estis aranĝite, ke Harris tra-noktos kun ni kaj ni supreniris.
 
-Ni decidis pri la litoj per monerĵetado, kaj Harris devis dor-
-
-mi kun mi. Li diris:
+Ni decidis pri la litoj per monerĵetado, kaj Harris devis dormi kun mi. Li diris:
 
 —ĉu vi preferas dormi ĉe la interna aŭ la ekstera flanko, J.?
 
@@ -2010,13 +1540,7 @@ diferencon, kaj konsentis pri duono post la sesa.
 Georgo ne respondis kaj alirinte al lia lito, ni trovis, ke li dormas jam de kelka tempo; tial ni metis la bankuvon tien,
 
 
-T R I V I RO J E N B OATO
-
-
 tiel ke li, ellitiĝante en la mateno, devos fali en ĝin, kaj ni enlitiĝis mem.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro V
@@ -2033,9 +1557,7 @@ Sud-Okcidentaj oficistoj pri tiaj mondecaj aferoj kiel vagonaroj
 
 — Ni surakviĝas en senferdeka boato.
 
-Estis Sinjorino Poppets, kiu min vekis la sekvantan mate-
-
-non.
+Estis Sinjorino Poppets, kiu min vekis la sekvantan matenon.
 
 ŝi diris:
 
@@ -2053,9 +1575,7 @@ Mi vekis Harris kaj informis lin. Li diris:
 
 —Tiel mi deziris, — mi respondis. — Kial vi ne vekis min?
 
-—Kiel mi povu veki vin, kiam vi ne vekis min? — li respon-
-
-dis. — Nun ni ne estos sur la akvo antaŭ la dekdua. Mi miras,
+—Kiel mi povu veki vin, kiam vi ne vekis min? — li respondis. — Nun ni ne estos sur la akvo antaŭ la dekdua. Mi miras,
 
 ke vi vin ĝenas entute leviĝi.
 
@@ -2063,16 +1583,11 @@ ke vi vin ĝenas entute leviĝi.
 
 Se mi ne estus vin vekinta, vi kuŝus tie la tutan dusemajnon.
 
-En ĉi tiu maniero ni blekis unu al la alia dum ankoraŭ kel-
-
-kaj minutoj, kiam nin interrompis spitanta ronko de Georgo.
+En ĉi tiu maniero ni blekis unu al la alia dum ankoraŭ kelkaj minutoj, kiam nin interrompis spitanta ronko de Georgo.
 
 Tio nin memorigis la unuan fojon de kiam ni vekiĝis pri lia
 
-ekzisto. Jen kuŝis la viro, kiu volis scii, je kioma horo li veku 48
-
-
-T R I V I RO J E N B OATO
+ekzisto. Jen kuŝis la viro, kiu volis scii, je kioma horo li veku
 
 
 nin — sur dorso, kun la buŝo larĝe malfermita kaj la genuoj
@@ -2081,37 +1596,23 @@ supren levitaj.
 
 Mi vere ne scias kial, sed la vido de alia homo dormanta en
 
-lito, kiam mi jam leviĝis, mlerigas. ŝajnas al mi hontin-
-
-de vidi la altvalorajn horojn de ies vivo — la superprezajn
+lito, kiam mi jam leviĝis, mlerigas. ŝajnas al mi hontinde vidi la altvalorajn horojn de ies vivo — la superprezajn
 
 momentojn, kiuj al li neniam revenos — malŝparataj en nura
 
 besta dormado.
 
-Jen estis Georgo, forĵetanta pro terura mallaboremo la ne-
-
-takseblan donacon de tempo; jen lia multvalora vivo, pri kies
+Jen estis Georgo, forĵetanta pro terura mallaboremo la netakseblan donacon de tempo; jen lia multvalora vivo, pri kies
 
 ĉiu sekundo li devos respondi en la estonto, forpasanta de li
 
-neuzita. Li povus plenigi sin per ovoj kaj lardo, inciti la hundon aŭ amindumi la servistinon anstataŭ kuŝi tie, enabismi-
+neuzita. Li povus plenigi sin per ovoj kaj lardo, inciti la hundon aŭ amindumi la servistinon anstataŭ kuŝi tie, enabismiĝinta en animkripla forgeso.
 
-ĝinta en animkripla forgeso.
-
-Estis terura penso. ŝajnis, ke Harris kaj mi samtempe fra-
-
-
-T R I V I RO J E N B OATO
-
-
-piĝis de ĝi. Ni fortvole decidis lin savi kaj pro tiu nobla intenco nia propra disputo estis forgesita. Ni alkuris, fortiris de li la litkovrilojn, Harris frapis lin unufoje per pantoflo, mi brukriis en lian orelon kaj li vekiĝis.
+Estis terura penso. ŝajnis, ke Harris kaj mi samtempe frapiĝis de ĝi. Ni fortvole decidis lin savi kaj pro tiu nobla intenco nia propra disputo estis forgesita. Ni alkuris, fortiris de li la litkovrilojn, Harris frapis lin unufoje per pantoflo, mi brukriis en lian orelon kaj li vekiĝis.
 
 —Kio estas? — li diris, rektiĝante.
 
-—Leviĝu, pezkapa ŝtipo! — kriegis Harris. — Estas jam kva-
-
-rono antaŭ la deka.
+—Leviĝu, pezkapa ŝtipo! — kriegis Harris. — Estas jam kvarono antaŭ la deka.
 
 —Kio! — li kriis, saltante el la lito en la bankuvon. — Kiu,
 
@@ -2123,15 +1624,11 @@ Ni finvestis nin kaj kiam venis vico al la flankaj aferoj, mi
 
 memoris, ke ni enpakis la dentobrosojn kaj la brosojn kaj
 
-kombilon (tiu dentobroso kaŭzos mian morton, mi estas cer-
-
-ta), kaj ni devis malsupreniri kaj elserĉi ilin en la valizo. Kiam ni jam faris tion, Georgo deziris la razilaron. Ni diris al li, ke ĉi tiun matenon li devos resti nerazita, ĉar tiun valizon ni ne intencas denove malpaki por li, nek por iu simila al li.
+kombilon (tiu dentobroso kaŭzos mian morton, mi estas certa), kaj ni devis malsupreniri kaj elserĉi ilin en la valizo. Kiam ni jam faris tion, Georgo deziris la razilaron. Ni diris al li, ke ĉi tiun matenon li devos resti nerazita, ĉar tiun valizon ni ne intencas denove malpaki por li, nek por iu simila al li.
 
 Li diris:
 
-—Ne estu absurdaj. ĉu mi povas eniri la urbon kun tia as-
-
-pekto?
+—Ne estu absurdaj. ĉu mi povas eniri la urbon kun tia aspekto?
 
 Tio estus iom malagrabla por la urbo, sed ĉu ni ĉagrenu
 
@@ -2139,9 +1636,7 @@ nin eĉ iomete pro la homa suferado! Kiel Harris diris, en sia
 
 maldelikata, vulgara maniero, la urbo devos tion elteni.
 
-Ni malsupreniris por matenmanĝo. Montmorency jam in-
-
-vitis du aliajn hundojn por adiaŭo kaj ili pasigis la tempon
+Ni malsupreniris por matenmanĝo. Montmorency jam invitis du aliajn hundojn por adiaŭo kaj ili pasigis la tempon
 
 interbatalante sur la pordoŝtupo. Ni kvietigis ilin per ombrelo kaj altabliĝis por kotletoj kaj malvarma bovaĵo.
 
@@ -2150,32 +1645,23 @@ Harris diris:
 —La ĉefa afero estas manĝi bonan matenmanĝon, — kaj li
 
 
-T R I V I RO J E N B OATO
-
-
 komencis per du kotletoj dirante, ke ĉi tiujn li manĝos, dum
 
 ili estas varmaj, ĉar la bovaĵo povas atendi.
 
 Georgo prenis la ĵurnalon en la manon kaj laŭtlegis al ni pri
 
-mortoj pro boatado, kaj la veterprognozon (kiu profetis plu-
-
-von, malvarmojn, malsekan beliĝantan veteron — ĉiam pli ol
+mortoj pro boatado, kaj la veterprognozon (kiu profetis pluvon, malvarmojn, malsekan beliĝantan veteron — ĉiam pli ol
 
 kutime malbelan veteron, kiu povas esti), intermitajn lokajn
 
 fulmotondrojn, orientan venton kun ĝenerala malalta premo
 
-super la Mezaj Graflandoj (Londono kaj la Kanalo). La baro-
-
-metro falas.
+super la Mezaj Graflandoj (Londono kaj la Kanalo). La barometro falas.
 
 Mi opinias, ke el ĉiuj sensencaj, incitemaj malsaĝaĵoj, kiuj
 
-nin turmentas, ĉi tiu friponaĵo pri vetera prognozo estas pre-
-
-skaŭ la plej ĉagrena. i prognozas ĝuste tion, kio okazis hie-
+nin turmentas, ĉi tiu friponaĵo pri vetera prognozo estas preskaŭ la plej ĉagrena. i prognozas ĝuste tion, kio okazis hie-
 
 raŭ aŭ antaŭhieraŭ kaj ekzakte la malon de tio, kio okazos
 
@@ -2185,37 +1671,24 @@ Mi memoras, kiel mia libertempo en la malfrua aŭtuno
 
 estis iun fojon tute fuŝita pro tio, ke ni tro atentis la veteran raporton en la loka ĵurnalo. ”Pluvegojn kun fulmotondroj oni
 
-antaŭdiras por hodiaŭ”, ĝi anoncis iun lundon, kaj ni tial re-
+antaŭdiras por hodiaŭ”, ĝi anoncis iun lundon, kaj ni tial rezignis nian piknikon kaj restis hejme la tutan tagon, atendan-
 
-zignis nian piknikon kaj restis hejme la tutan tagon, atendan-
+te la pluvon. Preter la domo homoj pasadis, vojaĝante plejeble gaje en veturiletoj kaj kaleŝoj, la suno brilis kaj eĉ ne unu nubo videblis.
 
-te la pluvon. Preter la domo homoj pasadis, vojaĝante pleje-
-
-ble gaje en veturiletoj kaj kaleŝoj, la suno brilis kaj eĉ ne unu nubo videblis.
-
-—Ha! — ni diris, rigardante ilin tra la fenestro, — ili reve-
-
-nos tute malsekaj!
+—Ha! — ni diris, rigardante ilin tra la fenestro, — ili revenos tute malsekaj!
 
 Ni ridis en ni, pensante kiel malsekaj ili fariĝos, revenis en la ĉambron, ekbruligis fajron, havigis librojn kaj ordigis niajn specimenojn de algoj kaj kardikonkoj. Je la dekdua, kiam la
 
-suno brilis plenplene en la ĉambron, la varmego fariĝis neto-
-
-lerebla kaj ni scivolis, kiam komenciĝos tiuj pluvegoj kaj in-
+suno brilis plenplene en la ĉambron, la varmego fariĝis netolerebla kaj ni scivolis, kiam komenciĝos tiuj pluvegoj kaj in-
 
 termitaj fulmotondroj.
-
-
-T R I V I RO J E N B OATO
 
 
 —Ha! ili venos en la posttagmezo, vi vidos, — ni diris unu
 
 al la alia. — Ho! Kiel malsekiĝos tiuj homoj. Kia ŝerco!
 
-Je la unua la dommastrino venis por demandi, ĉu ni ne in-
-
-tencas eliri, ĉar la tago ŝajne estas tre bela.
+Je la unua la dommastrino venis por demandi, ĉu ni ne intencas eliri, ĉar la tago ŝajne estas tre bela.
 
 —Ne, ne, — ni respondis, ruze subridante, — ni ne. Ni ne
 
@@ -2233,35 +1706,21 @@ heliĝanta tago, multe da varmo”, ni nin vestis per malpezaj
 
 vestaĵoj kaj eliris, kaj duonhoron post la ekiro komenciĝis
 
-pluvego kaj leviĝis akre malvarma vento, ambaŭ daŭris sen-
-
-ĉese la tutan tagon, ni revenis hejmen plenaj de malvarmu-
+pluvego kaj leviĝis akre malvarma vento, ambaŭ daŭris senĉese la tutan tagon, ni revenis hejmen plenaj de malvarmu-
 
 mo kaj reŭmatismo kaj enlitiĝis.
 
 La vetero estas afero tute preter mia kompreno. Neniam
 
-mi povas ĝmpreni. La barometro estas senutila: ĝi trom-
+mi povas ĝmpreni. La barometro estas senutila: ĝi trompas same kiel la ĵurnala prognozo.
 
-pas same kiel la ĵurnala prognozo.
-
-Unu pendis en hotelo en Oksfordo, kie mi loĝis la pasin-
-
-tan printempon, kaj kiam mi alvenis tien, ĝi montris ”tute
+Unu pendis en hotelo en Oksfordo, kie mi loĝis la pasintan printempon, kaj kiam mi alvenis tien, ĝi montris ”tute
 
 hele”. Ekstere simple pluvegis, kaj tiel estis la tutan tagon; tion mi ne povis klarigi al mi. Mi frapetis la barometron kaj ĝi pli alten eksaltis kaj montris al ”tre seke”. La botpurigisto, kiu ĵus preterpasis, haltis kaj diris, ke li supozas, ke ĝi aludas al la morgaŭo. Mi opiniis, ke ĝi eble pensas pri la antaŭlasta semajno, sed la botpuriĝisto diris, ke li kredas, ke ne.
 
-La sekvantan matenon mi ĝin frapetis ankoraŭ foje, ĝi sal-
+La sekvantan matenon mi ĝin frapetis ankoraŭ foje, ĝi saltis eĉ pli alten, kaj la pluvo falis pli torente ol antaŭe. Merkrede mi iris kaj refoje batis ĝin, kaj la montrilo rondiris al ”tute hele”, ”tre seke” kaj ”multe da varmo”, ĝis haltigis ĝin la pinglo kaj pluen ĝi ne povis iri. i faris sian plejeblon, sed la instrumento estis konstruita tiel, ke ĝi ne povis prognozi belan veteron pli persisteme ol ĝi jam faris, sen ke ĝi rompiĝu. i
 
-
-T R I V I RO J E N B OATO
-
-
-tis eĉ pli alten, kaj la pluvo falis pli torente ol antaŭe. Merkrede mi iris kaj refoje batis ĝin, kaj la montrilo rondiris al ”tute hele”, ”tre seke” kaj ”multe da varmo”, ĝis haltigis ĝin la pinglo kaj pluen ĝi ne povis iri. i faris sian plejeblon, sed la instrumento estis konstruita tiel, ke ĝi ne povis prognozi belan veteron pli persisteme ol ĝi jam faris, sen ke ĝi rompiĝu. i
-
-volis evidente pluiri kaj profeti sekecon kaj senpluvecon, sun-frapon, venton el Saharo kaj tiajn aferojn, sed la pinglo mal-
-
-helpis kaj ĝi devis kontentiĝi montrante al la banala ”tre seke”.
+volis evidente pluiri kaj profeti sekecon kaj senpluvecon, sun-frapon, venton el Saharo kaj tiajn aferojn, sed la pinglo malhelpis kaj ĝi devis kontentiĝi montrante al la banala ”tre seke”.
 
 Intertempe pluvegis senĉese, kaj la malalta parto de la
 
@@ -2269,9 +1728,7 @@ urbo jam subakviĝis, ĉar la rivero superfluis.
 
 La botpurigisto diris, ke estas klare, ke ni havos daŭran
 
-periodon de belega vetero iatempe, kaj laŭtlegis poemon, de-
-
-segnitan super la orakolo, pri
+periodon de belega vetero iatempe, kaj laŭtlegis poemon, desegnitan super la orakolo, pri
 
 ,,Antaŭdiro longa: stato longdaŭra,
 
@@ -2281,25 +1738,15 @@ La bela vetero tiun someron neniam venis. Mi supozas, ke
 
 tiu aparato sendube aludis al la venonta printempo.
 
-Troviĝas ankaŭ tiuj novstiliaj barometroj, la longaj kaj rek-
+Troviĝas ankaŭ tiuj novstiliaj barometroj, la longaj kaj rektaj. Tiujn mi tute ne komprenas. Unu flanko estas por la 10-
 
-taj. Tiujn mi tute ne komprenas. Unu flanko estas por la 10-
-
-a antaŭtagmeze hieraŭ kaj la alia flanko por la 10-a antaŭtag-
-
-meze hodiaŭ; sed vi ne povas ĉiam esti tie tiel frue kiel la de-ka. i leviĝas aŭ malleviĝas por pluvo aŭ belvetero, kun multe aŭ malpli da vento, kaj se vi ĝin frapetas, ĝi nenion diras al vi.
+a antaŭtagmeze hieraŭ kaj la alia flanko por la 10-a antaŭtagmeze hodiaŭ; sed vi ne povas ĉiam esti tie tiel frue kiel la de-ka. i leviĝas aŭ malleviĝas por pluvo aŭ belvetero, kun multe aŭ malpli da vento, kaj se vi ĝin frapetas, ĝi nenion diras al vi.
 
 Vi devas ĝin ĝustigi laŭ la marnivelo, kaj ŝanĝi al Fahrenheit, kaj eĉ tiam mi ne konas la solvon.
 
-Sed kiu volas antaŭkoni la veteron? i estas sufiĉe malbo-
+Sed kiu volas antaŭkoni la veteron? i estas sufiĉe malbona, kiam ĝi venas, eĉ sen la malĝojo de la antaŭkono. Nia ŝa-
 
-na, kiam ĝi venas, eĉ sen la malĝojo de la antaŭkono. Nia ŝa-
-
-tata profeto estas la maljunulo, kiu en speciale malbela ma-
-
-teno de iu tago, kiam ni speciale deziras, ke estu bela vetero, 53
-
-T R I V I RO J E N B OATO
+tata profeto estas la maljunulo, kiu en speciale malbela mateno de iu tago, kiam ni speciale deziras, ke estu bela vetero,
 
 
 ĉirkaŭrigardas la horizonton per speciale scianta okulo kaj
@@ -2314,9 +1761,7 @@ diras:
 
 ekiras, — mirinde kion tiuj maljunuloj povas scii!
 
-Tiun viron ni amas, kion tute ne malpliigas la cirkonstan-
-
-co, ke certe ne heliĝos, sed pluvos konstante la tutan tagon.
+Tiun viron ni amas, kion tute ne malpliigas la cirkonstanco, ke certe ne heliĝos, sed pluvos konstante la tutan tagon.
 
 —Nu, — ni sentas, — li faris sian eblon.
 
@@ -2334,9 +1779,7 @@ respondas, skuante la kapon.
 
 Se lia prognozo montriĝas prava, ni revenas des pli koleraj al li, kaj kun nebula ideo ke, iamaniere, la kulpo estas lia.
 
-ĉi tiu speciala mateno estis tro hela kaj sunplena por per-
-
-mesi, ke nin maltrankviligu la sangfrostiga legado de Georgo
+ĉi tiu speciala mateno estis tro hela kaj sunplena por permesi, ke nin maltrankviligu la sangfrostiga legado de Georgo
 
 pri ”barometro falanta”, ”atmosfera tumulto pasanta oblikve
 
@@ -2344,9 +1787,7 @@ super Suda Eŭropo”, kaj ”premo pliiĝanta”; do, trovante, ke li ne povas 
 
 kaj foriris.
 
-Poste Harris kaj mi, finmanĝinte la kelkajn manĝaĵojn res-
-
-tintajn sur la tablo, pene portis nian pakaĵaron sur la por-
+Poste Harris kaj mi, finmanĝinte la kelkajn manĝaĵojn restintajn sur la tablo, pene portis nian pakaĵaron sur la por-
 
 doŝtupon kaj atendis fiakron.
 
@@ -2355,9 +1796,6 @@ Kolektita, nia pakajaro ŝajnis granda amaso. Estis valizo kaj
 leda mansako kaj du korbegoj, granda volvaĵo de tapiŝetoj kaj
 
 kvar-kvin paltoj kaj pluvmanteloj, kelkaj ombreloj, kaj estis
-
-
-T R I V I RO J E N B OATO
 
 
 ankaŭ melono sola en papera sako, ĉar ĝi estis tro dika por
@@ -2370,13 +1808,9 @@ kvankam mi ne povis kompreni kial. Preterpasis neniu fiakro,
 
 tamen alvenis stratbuboj kaj, ĉar ili verŝajne interesiĝis pri la spektaklo, ili restis.
 
-La bubo de Briggs alvenis unua. Briggs estas nia legomven-
+La bubo de Briggs alvenis unua. Briggs estas nia legomvendisto kaj lia ĉefa talento konsistas en dungo de la plej malbonaj kaj senprincipaj knaboj, kiujn ĝis nun naskis la civilizacio.
 
-disto kaj lia ĉefa talento konsistas en dungo de la plej malbonaj kaj senprincipaj knaboj, kiujn ĝis nun naskis la civilizacio.
-
-Se aperas en nia ĉirkaŭejo knabo pli kanajla ol la cetera kna-
-
-baro, ni scias, ke tio estas la plej nova de Briggs. Oni diris al mi, ke en la tempo de la murdo en Great Coram Street, la
+Se aperas en nia ĉirkaŭejo knabo pli kanajla ol la cetera knabaro, ni scias, ke tio estas la plej nova de Briggs. Oni diris al mi, ke en la tempo de la murdo en Great Coram Street, la
 
 loĝantoj en nia strato tuj konkludis, ke la ĉefa animo en la
 
@@ -2384,26 +1818,15 @@ afero estis la knabo (tiutempa) de Briggs, kaj se, responde al la severa esplora
 
 Briggs mi ne konis, sed laŭ tio, kion mi poste aŭdis pri ili, tiun alibion mi ne estus mem konsiderinta tre grava.
 
-La bubo de Briggs, kiel mi jam diris, venis ĉirkaŭ la stra-
+La bubo de Briggs, kiel mi jam diris, venis ĉirkaŭ la stratangulo. Lia komisio evidente tre urĝis, kiam li unue aperis
 
-tangulo. Lia komisio evidente tre urĝis, kiam li unue aperis
+antaŭ niaj okuloj, sed ekvidinte Harris kaj min kaj Montmorency kaj la pakaĵojn, li malrapidiĝis kaj gapis. Harris kaj mi rigardis lin malafable. Pli senteman knabon tio eble vundus,
 
-antaŭ niaj okuloj, sed ekvidinte Harris kaj min kaj Montmo-
-
-rency kaj la pakaĵojn, li malrapidiĝis kaj gapis. Harris kaj mi rigardis lin malafable. Pli senteman knabon tio eble vundus,
-
-sed la knaboj de Briggs ne estas, kutime, ofendiĝemaj. Li tute haltis je unu metro de nia porda ŝtupo, apogis sin al la pali-55
-
-T R I V I RO J E N B OATO
-
-
-saro, elektis pajleron maĉeblan kaj fiksis la okulojn sur nin.
+sed la knaboj de Briggs ne estas, kutime, ofendiĝemaj. Li tute haltis je unu metro de nia porda ŝtupo, apogis sin al la palisaro, elektis pajleron maĉeblan kaj fiksis la okulojn sur nin.
 
 Estis klare, ke li intencis observi ĉi tiun aferon ĝis la fino.
 
-Momenton pli poste la knabo de la nutraĵvendisto prete-
-
-rpasis ĉe la kontraŭa flanko de la strato. Lin alvokis la knabo de Briggs:
+Momenton pli poste la knabo de la nutraĵvendisto preterpasis ĉe la kontraŭa flanko de la strato. Lin alvokis la knabo de Briggs:
 
 —Hi! Teretaĝo de 42 translokiĝas.
 
@@ -2417,34 +1840,25 @@ Kolonoj” prenis memstaran postenon sur la trotuara rando.
 
 —Ili ne malsatos, ĉu? — diris la sinjoro de la botvendejo.
 
-—Ha! ankaŭ vi unu-du aĵojn dezirus kunpreni — respon-
-
-dis La Bluaj Kolonoj — se vi estus transironta la Atlantikon en malgranda boato.
+—Ha! ankaŭ vi unu-du aĵojn dezirus kunpreni — respondis La Bluaj Kolonoj — se vi estus transironta la Atlantikon en malgranda boato.
 
 —Ili ne estas transirontaj la Atlantikon, — enmetis la knabo
 
 de Briggs; — ili estas serĉontaj Stanley.
 
-Jam kolektiĝis malgranda homamaso kaj la homoj deman-
-
-dis, kio estas. Unu partio (la juna kaj facilanima parto de la homamaso) kredis, ke okazas edziĝo, kaj montris al Harris
+Jam kolektiĝis malgranda homamaso kaj la homoj demandis, kio estas. Unu partio (la juna kaj facilanima parto de la homamaso) kredis, ke okazas edziĝo, kaj montris al Harris
 
 kiel al la fianĉo; dum la malpli junaj kaj pli pensemaj inter la popolamaso inklinis al la ideo, ke okazas enteriĝo, kaj ke eble mi estas la frato de la mortinto.
 
 Fine aperis malplena fiakro (en la strato kutime, kaj kiam
 
-oni ne bezonas ilin, preterpasas malplenaj fiakroj po tri ĉiu-
-
-minute, rampas ĉirkaŭen kaj malhelpas la iradon), ni enpa-
+oni ne bezonas ilin, preterpasas malplenaj fiakroj po tri ĉiuminute, rampas ĉirkaŭen kaj malhelpas la iradon), ni enpa-
 
 kis nin kaj niajn apartenaĵojn, elĵetis paron da amikoj de
 
 Montmorency, kiuj evidente ĵuris, ke ili lin neniam forlasos,
 
 kaj ekveturis aklamitaj de la homamaso kaj la knabo de Briggs ĵetis post nin bonaŭguran karoton.
-
-
-T R I V I RO J E N B OATO
 
 
 Ni venis al Waterloo je la dekunua kaj demandis, de kie
@@ -2469,35 +1883,24 @@ rekurba al Windsor, sed ili estis certaj, ke ĝi ne estas la vagonaro al Kingsto
 
 Poste nia portisto diris, ke li kredas, ke ĝi estas sur la altnivela perono; li diris, ke li kredas, ke li rekonas la vagonaron.
 
-Ni do iris al la altnivela perono, parolis kun la lokomotives-
-
-tro kaj demandis lin, ĉu li iras al Kingston. Tiu diris, ke li ne povas esti certa, kompreneble, sed li emas kredi, ke jes. ĉiukaze, se li ne estas la 11.05 por Kingston, li diris, ke li estas sufiĉe certa, ke li estas la 9.32 por Virginia Water, aŭ la antaŭ-
+Ni do iris al la altnivela perono, parolis kun la lokomotivestro kaj demandis lin, ĉu li iras al Kingston. Tiu diris, ke li ne povas esti certa, kompreneble, sed li emas kredi, ke jes. ĉiukaze, se li ne estas la 11.05 por Kingston, li diris, ke li estas sufiĉe certa, ke li estas la 9.32 por Virginia Water, aŭ la antaŭ-
 
 tagmeza ekspreso je la 10-a por Isle of Wight, aŭ ie en tiu
 
-direkto, kaj ke ni ĉiuj scios, kiam ni alvenos. Ni ŝovis duon-
-
-kronon en lian manon kaj petis, ke li estu la 11.05 por Kings-
+direkto, kaj ke ni ĉiuj scios, kiam ni alvenos. Ni ŝovis duonkronon en lian manon kaj petis, ke li estu la 11.05 por Kings-
 
 ton.
 
 —Sur ĉi tiu fervojo neniu iam scios, — ni diris, — kio vi
 
 
-T R I V I RO J E N B OATO
-
-
 estas, aŭ kien vi iras. Vi konas la vojon, forŝoviĝu kviete kaj iru al Kingston.
 
 —Nu, mi ne scias, sinjoroj, — respondis la grandanima
 
-viro, — tamen mi supozas, ke iu vagonaro devos iri al Kings-
+viro, — tamen mi supozas, ke iu vagonaro devos iri al Kingston; mi iros. Donu la duonkronon.
 
-ton; mi iros. Donu la duonkronon.
-
-Tiel ni alvenis al Kingston pere de la Londono-kaj-Sud-Ok-
-
-cidenta Fervojo.
+Tiel ni alvenis al Kingston pere de la Londono-kaj-Sud-Okcidenta Fervojo.
 
 Ni eksciis poste, ke la vagonaro, kiu nin alportis, estis fakte la poŝtvagonaro al Exeter kaj ke oni ĝin serĉis dum horoj ĉe
 
@@ -2513,14 +1916,9 @@ mem paŝis en ĝin.
 
 —ĉio en ordo, — ni respondis; kun Harris ĉe la remiloj kaj
 
-mi ĉe la direktilo kaj kun Montmorency, malfeliĉa kaj profun-
-
-de suspektema en la pruo, ni pafiĝis antaŭen sur la akvo, kiu
+mi ĉe la direktilo kaj kun Montmorency, malfeliĉa kaj profunde suspektema en la pruo, ni pafiĝis antaŭen sur la akvo, kiu
 
 por du semajnoj devos esti nia hejmo.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro VI
@@ -2531,9 +1929,7 @@ Instruaj vortoj pri skulptitaj kverkaloj kaj la vivo ĝenerale — La malfeliĉa
 
 Mi forgesas, ke mi direktas — Interesa rezulto — La labirinto de Hampton Court — Harris kiel gvidanto
 
-Estis belega mateno en malfrua printempo aŭ frua some-
-
-ro, nomu ĝin kiel vi volas, kiam la delikata brilo de her-
+Estis belega mateno en malfrua printempo aŭ frua somero, nomu ĝin kiel vi volas, kiam la delikata brilo de her-
 
 bo kaj folio ŝanĝiĝas al pli profunda verdo; la jaro ŝajnas kiel bela junulino, tremanta pro nekonataj, vekiĝantaj pulsoj sur
 
@@ -2553,28 +1949,20 @@ serenan, ke malgraŭ tio, ke estis ankoraŭ frue en la tago, mi
 
 sentis, ke mi sonĝe luliĝas en revan humoron.
 
-Mi revis pri Kingston, aŭ ”Kyningestun” kiel ĝi iam nomi-
-
-ĝis, kiam tie estis kronataj la saksaj reĝoj. La granda Cezaro tie transiris la riveron kaj la romiaj legioj starigis tendaron sur la deklivoj de ĝia alta kamparo. Cezaro ŝajne loĝis tie, simile 59
-
-T R I V I RO J E N B OATO
+Mi revis pri Kingston, aŭ ”Kyningestun” kiel ĝi iam nomiĝis, kiam tie estis kronataj la saksaj reĝoj. La granda Cezaro tie transiris la riveron kaj la romiaj legioj starigis tendaron sur la deklivoj de ĝia alta kamparo. Cezaro ŝajne loĝis tie, simile
 
 
 kiel Elizabeto en posta tempo; krom tio, ke li estis pli respektinda ol la bona reĝino Bess; li ne gastis ĉe la trinkejoj.
 
 La trinkejojn fervore amis la Virga Reĝino de Anglujo. Ne
 
-troviĝas eĉ unu trinkejo kun ia ĉarmo, en la limo de dek mej-
-
-loj de Londono, kiun ŝi iam ne vizitis, aŭ restis en ĝi, aŭ tranoktis. Mi nun scivolas, se Harris, ni diru, ŝanĝus sian vivmanieron kaj fariĝus ĉefministro kaj mortus, ĉu oni metus elpen-
+troviĝas eĉ unu trinkejo kun ia ĉarmo, en la limo de dek mejloj de Londono, kiun ŝi iam ne vizitis, aŭ restis en ĝi, aŭ tranoktis. Mi nun scivolas, se Harris, ni diru, ŝanĝus sian vivmanieron kaj fariĝus ĉefministro kaj mortus, ĉu oni metus elpen-
 
 daĵojn super la trinkejojn, kiujn li vizitis: ”En ĉi tiu domo Harris trinkis glason da biero”, ”ĉi tie Harris trinkis dufoje malvarman skotan viskion en la somero de 1888”, ”Oni elĵetis
 
 Harris de ĉi tie en ”.
 
-Ne, estus tro multaj! Famiĝus nur la trinkejoj, kiujn li ne-
-
-niam vizitis. ”La sola domo en Suda Londono, kiun neniam
+Ne, estus tro multaj! Famiĝus nur la trinkejoj, kiujn li neniam vizitis. ”La sola domo en Suda Londono, kiun neniam
 
 vizitis Harris!” La homoj kurus grandare por vidi, kio mankas
 
@@ -2582,9 +1970,7 @@ al ĝi.
 
 Devas esti, ke la mense malsana reĝo Edwy tre malamis
 
-Kyningestun. Lin trosatigis la kronada festo. Eble la aproka-
-
-po farĉita per sukermigdaloj ne taŭĝis al lia stomako (ĝi ne
+Kyningestun. Lin trosatigis la kronada festo. Eble la aprokapo farĉita per sukermigdaloj ne taŭĝis al lia stomako (ĝi ne
 
 taŭgus al mia, mi scias), kaj li jam trinkis sufiĉe da sack kaj mielbiero; tial li ŝtele forlasis la bruan festadon por pasigi trankvilan horon en la lunlumo kun sia amata Elgiva.
 
@@ -2592,23 +1978,13 @@ Tiam la kruela Odo kaj sankta Dunstan perforte kaj krude
 
 eniris la kvietan ĉambron, maldelikate insultis la ĉarmvizaĝan reĝinon kaj trenis la kompatindan Edwy reen al la laŭta bruado de la ebria tumulto.
 
-Jarojn poste, akompanitaj de krakego de batalsonoj, la sak-
-
-saj reĝoj kaj la saksa festado enteriĝis unu flanke de la alia kaj dum kelka tempo la grandeco de Kingston forpasis, por leviĝi
+Jarojn poste, akompanitaj de krakego de batalsonoj, la saksaj reĝoj kaj la saksa festado enteriĝis unu flanke de la alia kaj dum kelka tempo la grandeco de Kingston forpasis, por leviĝi
 
 ankoraŭ unu fojon, kiam Hampton Court fariĝis la palaco de
 
-la Tudoroj kaj la Stuartoj, la reĝaj barkoj streĉis siajn haltigŝ-
+la Tudoroj kaj la Stuartoj, la reĝaj barkoj streĉis siajn haltigŝnurojn ĉe la riverbordo kaj hele vestitaj bravuloj fiere malsupreniris la apudbordajn ŝtupojn.
 
-
-T R I V I RO J E N B OATO
-
-
-nurojn ĉe la riverbordo kaj hele vestitaj bravuloj fiere malsupreniris la apudbordajn ŝtupojn.
-
-Multaj el la malnovaj domoj en la ĉirkaŭaĵo tre klare me-
-
-morigas pri la tagoj, kiam Kingston estis reĝa urbo kaj nobeloj kaj korteganoj loĝis tie, proksime al sia reĝo, la longa ŝoseo al la palacaj pordegoj estis vivoplena la tutan tagon kun tin-teganta ŝtalo kaj saltantaj ĉevaletoj, susurantaj silkoj kaj ve-luroj kaj belaj vizaĝoj. La grandaj kaj vastaj domoj, kun siaj elstaraj latisfenestroj, grandaj kamenoj kaj gablohavaj teg-mentoj sufloras la tagojn de helkolora ĝisgenua pantalono kaj
+Multaj el la malnovaj domoj en la ĉirkaŭaĵo tre klare memorigas pri la tagoj, kiam Kingston estis reĝa urbo kaj nobeloj kaj korteganoj loĝis tie, proksime al sia reĝo, la longa ŝoseo al la palacaj pordegoj estis vivoplena la tutan tagon kun tin-teganta ŝtalo kaj saltantaj ĉevaletoj, susurantaj silkoj kaj ve-luroj kaj belaj vizaĝoj. La grandaj kaj vastaj domoj, kun siaj elstaraj latisfenestroj, grandaj kamenoj kaj gablohavaj teg-mentoj sufloras la tagojn de helkolora ĝisgenua pantalono kaj
 
 malvasta jako, de perlobroditaj talivestoj kaj komplikitaj blasfemoj. Ili estis starigitaj en la tempo ”kiam la homoj sciis konstrui”. La malmolaj ruĝaj brikoj fiksiĝis nur pli firme kun la paso de la tempo kaj iliaj kverkaj ŝtuparoj ne knaras kaj gruntas, kiam oni penas kviete malsupreniri ilin.
 
@@ -2620,29 +1996,17 @@ estas nun butiko en la vendoplaco, sed ĝi evidente estis iam
 
 domego de gravulo. Amiko mia, kiu loĝas en Kingston, tien
 
-eniris iun tagon por aĉeti ĉapelon kaj, en senpripensa mo-
-
-mento, metis la manon en la poŝon kaj pagis ĝntante.
+eniris iun tagon por aĉeti ĉapelon kaj, en senpripensa momento, metis la manon en la poŝon kaj pagis ĝntante.
 
 La butikisto (li konas mian amikon) unue nature estis iom
 
 konsternita; li tamen regis sin rapide kaj sentis, ke oni devus ion fari por stimuli tiajn agojn, tial li demandis nian heroon, ĉu plaĉus al li vidi belan skulptitan kverkaĵon. Mia amiko jesis, kaj tuj la butikisto lndukis tra la butiko supren laŭ la ŝtuparo de la domo. La balustroj estis belega laboraĵo kaj la
 
-tuta muro estis kverke panelita kun skulptado, kiu estus ho-
+tuta muro estis kverke panelita kun skulptado, kiu estus honorinta palacon.
 
-norinta palacon.
+De la ŝtuparo ili eniris salonon, kiu estis granda, hela ĉambro, tapetita per iom stranga, sed gajiga paperaĵo kun blua
 
-De la ŝtuparo ili eniris salonon, kiu estis granda, hela ĉam-
-
-
-T R I V I RO J E N B OATO
-
-
-bro, tapetita per iom stranga, sed gajiga paperaĵo kun blua
-
-fono. La ĉambro tamen neniel estis rimarkinda, kaj mia ami-
-
-ko demandis al si, kial oni venigis lin tien. La posedanto iris al la tapeto kaj ĝin frapetis. i eligis lignan sonon.
+fono. La ĉambro tamen neniel estis rimarkinda, kaj mia amiko demandis al si, kial oni venigis lin tien. La posedanto iris al la tapeto kaj ĝin frapetis. i eligis lignan sonon.
 
 —Kverkaĵo, — li klarigis — la tuto skulptita kverkaĵo, ĝis la
 
@@ -2650,9 +2014,7 @@ plafono, same kiel vi vidis en la ŝtuparo.
 
 —Sed, granda Cezaro! amiko, — protestis mia amiko,; — vi
 
-ne diras, ke vian skulptitan kverkaĵon vi kovris per bluaj ta-
-
-petaĵoj?
+ne diras, ke vian skulptitan kverkaĵon vi kovris per bluaj tapetaĵoj?
 
 —Jes, — estis la respondo; — tio estis multekosta laboro.
 
@@ -2670,29 +2032,18 @@ vidpunkto, por la vidpunkto de normala domokupanto, kiu
 
 volas vivi kiel eble plej gaje, kaj ne por la vidpunkto de antikvaĵa maniulo.
 
-Skulptitan kverkaĵon rigardi estas agrable, kaj ankaŭ pose-
-
-di iom da ĝi, sed vivi meze de ĝi estas iom malgajige por tiuj, kiuj ne havas por tio inklinon. Estus kvazaŭ vivi en preĝejo.
+Skulptitan kverkaĵon rigardi estas agrable, kaj ankaŭ posedi iom da ĝi, sed vivi meze de ĝi estas iom malgajige por tiuj, kiuj ne havas por tio inklinon. Estus kvazaŭ vivi en preĝejo.
 
 Ne, la malfeliĉo estas, ke tiu, kiu skulptitan kverkaĵon ne
 
-multe ŝatas, devas havis salonon panelitan per ĝi, dum ho-
-
-moj, kiuj ĝin ŝatas, devus pagi grandegajn prezojn por ĝin
+multe ŝatas, devas havis salonon panelitan per ĝi, dum homoj, kiuj ĝin ŝatas, devus pagi grandegajn prezojn por ĝin
 
 akiri. Tio ŝajnas esti la regulo en ĉi tiu mondo. ĉiu havas tion, kion li ne deziras, kaj aliaj havas tion, kion tiu deziras.
 
-Edzoj havas edzinojn, kiujn ŝajne ili ne deziras; junaj fraŭ-
-
-loj laŭtkrias, ke ili ne povas akiri edzinojn. Malriĉaj homoj, kiuj apenaŭ povas nutri sin mem, havas ok sanajn infanojn.
+Edzoj havas edzinojn, kiujn ŝajne ili ne deziras; junaj fraŭloj laŭtkrias, ke ili ne povas akiri edzinojn. Malriĉaj homoj, kiuj apenaŭ povas nutri sin mem, havas ok sanajn infanojn.
 
 
-T R I V I RO J E N B OATO
-
-
-Riĉaj gemaljunuloj, kiuj havas neniun, al kiu ili povus post-
-
-lasi sian monon, mortas seninfanaj.
+Riĉaj gemaljunuloj, kiuj havas neniun, al kiu ili povus postlasi sian monon, mortas seninfanaj.
 
 Estas ankaŭ junulinoj kun amantoj. Junulinoj, kiuj havas
 
@@ -2704,9 +2055,7 @@ Pri tiaj aferoj ne utilas mediti; oni tiel malĝojiĝas.
 
 En nia lernejo estis knabo, kiun ni nomis Sandford kaj
 
-Merton. Lia vera nomo estis Stivvings. Li estis la plej nekuti-ma knabo, kiun mi iam konis. Mi kredas, ke vere li ŝatis stu-
-
-dadon. Multfoje oni lin riproĉis pro lia kutimo sidi en la lito kaj legi greklingvaĵon; pri la neregulaj verboj franclingvaj, de ili oni simple ne povis lin forteni. Lia kapo estis plena de nenaturaj ideoj pri tio, ke li devas fari honoron al siaj gepatroj kaj al sia lernejo; li deziregis gajni premiojn, fariĝi klera viro kaj havis ĉiujn tiajn mense malsanajn ideojn. Mi neniam
+Merton. Lia vera nomo estis Stivvings. Li estis la plej nekuti-ma knabo, kiun mi iam konis. Mi kredas, ke vere li ŝatis studadon. Multfoje oni lin riproĉis pro lia kutimo sidi en la lito kaj legi greklingvaĵon; pri la neregulaj verboj franclingvaj, de ili oni simple ne povis lin forteni. Lia kapo estis plena de nenaturaj ideoj pri tio, ke li devas fari honoron al siaj gepatroj kaj al sia lernejo; li deziregis gajni premiojn, fariĝi klera viro kaj havis ĉiujn tiajn mense malsanajn ideojn. Mi neniam
 
 konis estaĵon tiel strangan, tamen fakte tiel sendanĝeran kiel nenaskita infano.
 
@@ -2716,36 +2065,24 @@ Nu, tiu knabo havis la kutimon malsaniĝi ĉirkaŭ du fojojn
 
 la limo de dek mejloj de li troviĝis ia malsano, ĝi kaptis lin kaj kaptis forte. Li malsanis pro bronkito en somermezo kaj pro
 
-fojnofebro je kristnasko. Post sesmonata periodo de senplu-
-
-vo, lin sternis la reŭmatisma febro; li iris promeni en novem-
+fojnofebro je kristnasko. Post sesmonata periodo de senpluvo, lin sternis la reŭmatisma febro; li iris promeni en novem-
 
 bra nebulo kaj revenis kun sunfrapo.
 
 lun jaron oni anestezis la kompatindan knabon kaj eltiris
 
-ĉiujn dentojn kaj donis al li falsan dentaron, ĉar li tiel suferis 63
-
-T R I V I RO J E N B OATO
+ĉiujn dentojn kaj donis al li falsan dentaron, ĉar li tiel suferis
 
 
-pro dentodoloro, kiu tamen poste fariĝis neŭralgio kaj orel-
+pro dentodoloro, kiu tamen poste fariĝis neŭralgio kaj oreldoloro. Li neniam estis sen malvarmumo, krom unufoje dum
 
-doloro. Li neniam estis sen malvarmumo, krom unufoje dum
-
-naŭ semajnoj, kiam li havis skarlatinon; li ĉiam havis frost-
-
-abscesojn. Dum la granda ˛olera paniko de 1871, nia najba-
+naŭ semajnoj, kiam li havis skarlatinon; li ĉiam havis frostabscesojn. Dum la granda ˛olera paniko de 1871, nia najba-
 
 raro estis rimarkinde ŝirmita kontraŭ la malsano. Estis konata nur unu kazo en la tuta paro˛o: tiu kazo estis la juna Stivvings.
 
-Kiam li estis malsana, li devis resti en la lito kaj manĝi ko-
+Kiam li estis malsana, li devis resti en la lito kaj manĝi kokidaĵon kaj laktovaĵojn kaj varmejajn vinberojn; kuŝante tie,
 
-kidaĵon kaj laktovaĵojn kaj varmejajn vinberojn; kuŝante tie,
-
-li plorĝemadis pro tio, ke oni ne permesis al li verki latinling-vajn ekzercojn kaj ĉar oni forprenis de li germanlingvan ler-
-
-nolibron.
+li plorĝemadis pro tio, ke oni ne permesis al li verki latinling-vajn ekzercojn kaj ĉar oni forprenis de li germanlingvan lernolibron.
 
 Ni aliaj knaboj, kiuj volonte fordonus dek trimestrojn de
 
@@ -2757,29 +2094,20 @@ malsanojn, kiuj daŭris ĝis la nova trimestro komenciĝis; tiam, malgraŭ tio, 
 
 Tia estas la vivo; ni estas nur kiel herbo, kiu estas falĉita, metita sur la fornon kaj sekigita.
 
-Ni reiru tamen al la demando pri la skulptita kverkaĵo. Su-
-
-fiĉe bonajn ideojn pri la artismo kaj la beleco havis niajn pra-avoj. ĉiuj niaj hodiaŭaj arttrezoroj estas fakte nur la elfositaj banalaĵoj de antaŭ tri-kvar cent jaroj. Mi scivolas, ĉu vere
-
-
-T R I V I RO J E N B OATO
+Ni reiru tamen al la demando pri la skulptita kverkaĵo. Sufiĉe bonajn ideojn pri la artismo kaj la beleco havis niajn pra-avoj. ĉiuj niaj hodiaŭaj arttrezoroj estas fakte nur la elfositaj banalaĵoj de antaŭ tri-kvar cent jaroj. Mi scivolas, ĉu vere
 
 
 ekzistas ia esenca beleco en la malnovaj supujoj, trinkpotoj
 
 kaj kandelestingiloj, kiujn ni nun tiel ŝatas, aŭ ĉu vere ilian ĉarmon antaŭ niaj okuloj donas nur la nimbo de antikveco,
 
-kiu lumas ĉirkaŭ ili. La malnova blua fajenco, kiun ni pendi-
-
-gas sur niajn murojn kiel ornamaĵon, antaŭ kelkaj jarcentoj
+kiu lumas ĉirkaŭ ili. La malnova blua fajenco, kiun ni pendigas sur niajn murojn kiel ornamaĵon, antaŭ kelkaj jarcentoj
 
 estis vulgaraj ĉiutagaj domaĵoj; la rozkoloraj paŝtistoj kaj flavaj paŝtistinoj, kiujn ni nun enmanigas al niaj amikoj, por ke ili entuziasmiĝu kaj ŝajnigu, ke ili komprenas, estis la neŝata-taj kamenornamaĵoj, kiujn la patrino de la dekoka jarcento
 
 donis al la infano por suĉi, kiam ĝi ploris.
 
-ĉu same estos estonte? ĉu la alte taksitaj trezoroj de la ho-
-
-diaŭo ĉiam estos la malmultekostaj bagatelaĵoj de la antaŭ-
+ĉu same estos estonte? ĉu la alte taksitaj trezoroj de la hodiaŭo ĉiam estos la malmultekostaj bagatelaĵoj de la antaŭ-
 
 hieraŭo? ĉu la vicoj de niaj desegne koloritaj servicoj estos
 
@@ -2795,22 +2123,14 @@ mia loĝejo. i estas blanka hundo. iaj okuloj estas bluaj. ia nazo estas delikat
 
 dolorige rekta kaj ĝia vizaĝesprimo estas la afablo streĉa preskaŭ ĝis idioteco. Mi mem ĝin ne admiras. Konsideri ĝi kiel
 
-artaĵon, mi povas diri, tio min agacas. Senpripensemaj ami-
-
-koj priridas ĝin, eĉ mia dommastrino mem ne povas admiri
+artaĵon, mi povas diri, tio min agacas. Senpripensemaj amikoj priridas ĝin, eĉ mia dommastrino mem ne povas admiri
 
 ĝin kaj pardonpetas pro ĝia ĉeesto per la cirkonstanco, ke ĝin donacis ŝia onklino.
 
-Tamen estas pli ol probable, ke post du cent jaroj tiu hun-
-
-do, sen vosto kaj kun rompitaj kruroj, estos elfosita el unu aŭ 65
-
-T R I V I RO J E N B OATO
+Tamen estas pli ol probable, ke post du cent jaroj tiu hundo, sen vosto kaj kun rompitaj kruroj, estos elfosita el unu aŭ
 
 
-alia loko, vendita kiel malnova porcelano kaj enmetita en vit-
-
-romeblon.
+alia loko, vendita kiel malnova porcelano kaj enmetita en vitromeblon.
 
 La homoj transmanigos ĝin de unu al alia kaj admiros ĝin.
 
@@ -2830,32 +2150,19 @@ faris ĝin, kaj diros, kiel lertaj ni estis. Oni parolos pri ni kiel
 
 Pri la skizo, kiun la plejaĝa filino faris en la lernejo, oni
 
-parolos kiel pri tapeto de la viktoria epoko kaj ĝi estos pre-
+parolos kiel pri tapeto de la viktoria epoko kaj ĝi estos preskaŭ netaksebla. La bIu-blankaj trinkpotoj de la hodiaŭaj
 
-skaŭ netaksebla. La bIu-blankaj trinkpotoj de la hodiaŭaj
+apudŝoseaj trinkejoj estos elserĉitaj, jam krevintaj kaj rompiĝintaj, kaj vendataj por ilia pezo en oro, kaj ilin riĉaj homoj uzos por vintasoj; vojaĝantoj el Japanujo aĉetos ĉiujn dona-cojn el Ramsgate kaj ”Memoraĵojn de Margate”, kiuj evitis
 
-apudŝoseaj trinkejoj estos elserĉitaj, jam krevintaj kaj rom-
+detruon, kaj kunprenos ilin reen al Jedo, kiel antikvajn anglajn kuriozaĵojn.
 
-piĝintaj, kaj vendataj por ilia pezo en oro, kaj ilin riĉaj homoj uzos por vintasoj; vojaĝantoj el Japanujo aĉetos ĉiujn dona-cojn el Ramsgate kaj ”Memoraĵojn de Margate”, kiuj evitis
-
-detruon, kaj kunprenos ilin reen al Jedo, kiel antikvajn ang-
-
-lajn kuriozaĵojn.
-
-En tiu momento Harris flankenĵetis la remilojn, leviĝis, for-
-
-lasis sian lokon, surdorsiĝis kaj elstreĉis la krurojn supren.
+En tiu momento Harris flankenĵetis la remilojn, leviĝis, forlasis sian lokon, surdorsiĝis kaj elstreĉis la krurojn supren.
 
 Montmorency blekegis kaj transkapiĝis kaj la supra korbego
 
 saltis kaj ĝia tuta enhavo falis eksteren.
 
-Mi iom surpriziĝis, sed mi ne koleriĝis. Mi diris, sufiĉe afa-
-
-ble:
-
-
-T R I V I RO J E N B OATO
+Mi iom surpriziĝis, sed mi ne koleriĝis. Mi diris, sufiĉe afable:
 
 
 —Hola! Kial vi faris tion?
@@ -2864,13 +2171,9 @@ T R I V I RO J E N B OATO
 
 Ne, post pripenso, mi ne ripetos, kion Harris diris. Eble
 
-kulpis mi, tion mi konfesas; tamen fortan lingvaĵon kaj mal-
+kulpis mi, tion mi konfesas; tamen fortan lingvaĵon kaj maldelikatajn esprimojn nenio senkulpigas ĉe viro, kiu estas tiel bone edukita, kiel mi scias, ke Harris estas. Mi estis pensan-ta pri aliaj aferoj kaj forgesis, kiel oni povas facile kompreni, ke mi direktas boaton, kaj la sekvo estis, ke ni pli ol iom kunmiksiĝis kun la bordvojo. Estis malfacile diri, dum momen-
 
-delikatajn esprimojn nenio senkulpigas ĉe viro, kiu estas tiel bone edukita, kiel mi scias, ke Harris estas. Mi estis pensan-ta pri aliaj aferoj kaj forgesis, kiel oni povas facile kompreni, ke mi direktas boaton, kaj la sekvo estis, ke ni pli ol iom kunmiksiĝis kun la bordvojo. Estis malfacile diri, dum momen-
-
-to, kiu estas ni kaj kiu estas la Middlesexa bordo de la rive-
-
-ro; sed post iom da tempo ni eksciis kaj ni apartigis nin.
+to, kiu estas ni kaj kiu estas la Middlesexa bordo de la rivero; sed post iom da tempo ni eksciis kaj ni apartigis nin.
 
 Harris tamen diris, ke li jam faris sufiĉe por iom da tempo
 
@@ -2882,39 +2185,26 @@ bordas la riveron! Mi ĝin neniam preterpasas sen senti min
 
 pli feliĉa pro la nura vido. Tia matura, hela, ĉarma, malnova
 
-murego: kia ĉarma pentraĵo ĝi estus, kun la likeno rampan-
-
-ta tie kaj la musko kreskanta, kun juna hontiĝema vinberar-
+murego: kia ĉarma pentraĵo ĝi estus, kun la likeno rampanta tie kaj la musko kreskanta, kun juna hontiĝema vinberar-
 
 bo rigardanta super la supro al tiu loko, por vidi kio okazas
 
-sur la vivoplena rivero, kaj kun la maljuna kvieta hedero ama-
-
-siĝanta iom pli malproksime! Troviĝas kvindek nuancoj en
+sur la vivoplena rivero, kaj kun la maljuna kvieta hedero amasiĝanta iom pli malproksime! Troviĝas kvindek nuancoj en
 
 ĉiu dekmetra spaco de tiu malnova murego. Se mi nur povus
 
 
-T R I V I RO J E N B OATO
-
-
-desegni kaj scius pentri, mi estas certa, ke mi povus fari be-
-
-legan skizon de tiu malnova murego. Mi ofte pensis, ke mi
+desegni kaj scius pentri, mi estas certa, ke mi povus fari belegan skizon de tiu malnova murego. Mi ofte pensis, ke mi
 
 ŝatus loĝi en Hampton Court. i aspektas tiel trankvila kaj tiel kvieta kaj ĝi estas kara malnova loko por vagado en la frua
 
 mateno, antaŭ ol multaj homoj jam forlasis siajn domojn.
 
-Sed mi supozas, ke ĝi ne vere plaĉus al mi, se mi fakte lo-
-
-ĝus tie. i estus tre malgajiga kaj malĝojiga en la vespero,
+Sed mi supozas, ke ĝi ne vere plaĉus al mi, se mi fakte loĝus tie. i estus tre malgajiga kaj malĝojiga en la vespero,
 
 kiam via lampo ĵetus nenaturajn ombrojn sur la panelitajn
 
-murojn, kaj la e˛o de malproksimaj piedoj sonus tra la mal-
-
-novaj ŝtonaj koridoroj, jen ili alproksimiĝus, jen formortus,
+murojn, kaj la e˛o de malproksimaj piedoj sonus tra la malnovaj ŝtonaj koridoroj, jen ili alproksimiĝus, jen formortus,
 
 kaj ĉie estus mortsimila silento, krom la batado de la propra
 
@@ -2924,13 +2214,9 @@ Ni estas estaĵoj de la suno, ni viroj kaj virinoj. Ni amas la
 
 lumon kaj la vivon. Jen kial ni amasiĝas en urboj kaj urbegoj
 
-kaj la kamparo fariĝas pli kaj pli senhoma ĉiujare. En la sun-
+kaj la kamparo fariĝas pli kaj pli senhoma ĉiujare. En la sunlumo — en la taglumo, kiam la Naturo vivas kaj sentiĝas en
 
-lumo — en la taglumo, kiam la Naturo vivas kaj sentiĝas en
-
-nia tuta ĉirkaŭaĵo, ni sufiĉe bone amas la subĉielajn montde-
-
-klivojn kaj la profundajn arbaretojn; sed en la nokto, kiam nia Patrino, Tero, jam dormas kaj lasas nin vekaj, ho! la mondo
+nia tuta ĉirkaŭaĵo, ni sufiĉe bone amas la subĉielajn montdeklivojn kaj la profundajn arbaretojn; sed en la nokto, kiam nia Patrino, Tero, jam dormas kaj lasas nin vekaj, ho! la mondo
 
 ŝajnas tiel soleca kaj ni ektimas, simile al infanoj en silenta domo. Tiam ni sidas kaj plorĝemas, sopiras al la gaslumigitaj
 
@@ -2944,36 +2230,24 @@ vento. Tiom da fantomoj ĉirkaŭiras kaj iliaj silentaj ĝemetoj
 
 nin tiel malĝojigas. Ni grupiĝu en grandaj urboj kaj bruligu
 
-grandajn festfajrojn per miliono da gasflamoj, kriu kaj kan-
-
-tu kune kaj sentu nin kuraĝaj.
+grandajn festfajrojn per miliono da gasflamoj, kriu kaj kantu kune kaj sentu nin kuraĝaj.
 
 Harris demandis min, ĉu mi iam vizitis la labirinton ĉe
 
-Hampton Court. Li diris, ke li foje eniris por montri al iu la 68
-
-T R I V I RO J E N B OATO
+Hampton Court. Li diris, ke li foje eniris por montri al iu la
 
 
-ĝustan vojon. Li mem ĝin elstudis pere de vojplano kaj la afe-
+ĝustan vojon. Li mem ĝin elstudis pere de vojplano kaj la afero estis tiel simpla, ke ĝi ŝajnis eĉ malsaĝa — apenaŭ valoris la du pencojn postulatajn por la eniro. Harris diris, ke li kredas, ke oni elpensis tiun planon kiel ŝercartifikon, ĉar ĝi tute ne similis la realaĵon kaj nur erarigis. Lia akompananto estis provinca kuzo. Li diris:
 
-ro estis tiel simpla, ke ĝi ŝajnis eĉ malsaĝa — apenaŭ valoris la du pencojn postulatajn por la eniro. Harris diris, ke li kredas, ke oni elpensis tiun planon kiel ŝercartifikon, ĉar ĝi tute ne similis la realaĵon kaj nur erarigis. Lia akompananto estis provinca kuzo. Li diris:
+—Ni eniru ĉi tien, nur por ke vi povu diri, ke vi eniris, tamen ĝi estas tre simpla. Estas ridinde ĝin nomi labirinto. Vi
 
-—Ni eniru ĉi tien, nur por ke vi povu diri, ke vi eniris, ta-
-
-men ĝi estas tre simpla. Estas ridinde ĝin nomi labirinto. Vi
-
-prenas ĉiam la unuan vojon dekstre. Ni promenos dek minu-
-
-toj kaj poste foriros por lunĉo.
+prenas ĉiam la unuan vojon dekstre. Ni promenos dek minutoj kaj poste foriros por lunĉo.
 
 Tuj post ilia eniro ilin renkontis kelkajn homojn, kiuj diris, ke ili estas tie jam de tri horkvaronoj kaj tio jam sufiĉis. Harris diris, ke ili povas sekvi lin, se ili volas; li nur eniros, poste turnos kaj eliros. Ili diris, ke tio estas afabla liaparte, ili post-viciĝis kaj lin sekvis.
 
 Ankaŭ diversajn aliajn homojn, kiuj deziris fari finon al la
 
-afero, ili kolektis dum la pluiro, ĝis ili grupigis ĉirkaŭ si ĉiu-jn homojn en la labirinto. Homoj, kiuj jam perdis ĉiujn espe-
-
-rojn, ke ili iam eliros, aŭ ke ili iam revidos siajn hejmon kaj amikojn, kuraĝiĝis ĉe la vido de Harris kaj lia bando kaj aliĝis al la procesio kaj lin benis. Harris diris, ke li kredas, ke entute lin sekvis ne malpli ol dudek homoj; virino kun brakinfa-
+afero, ili kolektis dum la pluiro, ĝis ili grupigis ĉirkaŭ si ĉiu-jn homojn en la labirinto. Homoj, kiuj jam perdis ĉiujn esperojn, ke ili iam eliros, aŭ ke ili iam revidos siajn hejmon kaj amikojn, kuraĝiĝis ĉe la vido de Harris kaj lia bando kaj aliĝis al la procesio kaj lin benis. Harris diris, ke li kredas, ke entute lin sekvis ne malpli ol dudek homoj; virino kun brakinfa-
 
 no, kiu estis tie la tutan matenon, insiste petis, ke ŝi tenu lian brakon, por ke ŝi ne perdu lin.
 
@@ -2983,25 +2257,16 @@ lia kuzo diris, ke li supozas, ke la labirinto estas tre granda.
 
 —Ho, unu el la plej grandaj en Eŭropo, — diris Harris.
 
-—Jes, ĝi devas esti, — respondis la kuzo, — ĉar ni jam mar-
-
-ŝis pli ol du mejlojn.
+—Jes, ĝi devas esti, — respondis la kuzo, — ĉar ni jam marŝis pli ol du mejlojn.
 
 Eĉ Harris komencis pensi, ke tio estas iel rimarkinda, sed
 
 
-T R I V I RO J E N B OATO
-
-
 li daŭrigis, ĝis fine ili preterpasis duonon de unupenca kuketo kuŝanta sur la tero, pri kiu la kuzo de Harris ĵuris, ke li jam vidis ĝin tie antaŭ sep minutoj. Harris diris: ”Ho, neeble!”, sed la virino kun la brakinfano diris; ”Tute ne”, ĉar ĝin ŝi prenis mem de la infano kaj ĵetis tien, tuj antaŭ ol ŝi renkontiĝis kun Harris. ŝi diris plie, ke ŝi bedaŭras, ke ŝi iam renkontiĝis kun Harris, kaj eldiris la opinion, ke li estas trompisto. Tio kolerigis Harris, li aperigis sian planon kaj klarigis sian teorion.
 
-—La plano eble taŭgus sufiĉe bone, — diris unu el la gru-
+—La plano eble taŭgus sufiĉe bone, — diris unu el la grupo, — se vi scius, kie ni estas nun.
 
-po, — se vi scius, kie ni estas nun.
-
-Harris ne sciis kaj proponis, ke la plej bona farendaĵo es-
-
-tas, reiri al la enirejo kaj komenci denove. Komenci denove
+Harris ne sciis kaj proponis, ke la plej bona farendaĵo estas, reiri al la enirejo kaj komenci denove. Komenci denove
 
 entuziasmigis neniun; tamen pri la utilo de la reiro al la enirejo estis senmanka unuanimeco, tial ili turnis sin kaj sin trenis refoje post Harris en la kontraŭa direkto. Pasis ankoraŭ
 
@@ -3015,12 +2280,7 @@ kiel maltrafon.
 
 Tamen ili nun havis definitivan ekirpunkton. Ili sciis kie ili estas, ankoraŭ unu fojon oni esploris la planon, la afero ŝajnis eĉ pli simpla ol antaŭe kaj ili ekiris la trian fojon.
 
-Post tri minutoj ili estis denove en la mezo. Post tio, neni-
-
-un alian lokon ili povis trafi. Kien ajn ili direktis sin, ili revenis al la mezo. Tio fine fariĝis tiel regula, ke kelkaj homoj restis tie kaj atendis, ĝis la aliaj faris promenon kaj revenis. Post iom da tempo Harris reeligis la planon, sed la nura vido de tio kolerigis la homamason kaj ili ordonis, ke li iru frizi per ĝi la harojn. Harris diris, ke li ne povis ne senti, ke ĝis certa grado li fariĝis nepopulara.
-
-
-T R I V I RO J E N B OATO
+Post tri minutoj ili estis denove en la mezo. Post tio, neniun alian lokon ili povis trafi. Kien ajn ili direktis sin, ili revenis al la mezo. Tio fine fariĝis tiel regula, ke kelkaj homoj restis tie kaj atendis, ĝis la aliaj faris promenon kaj revenis. Post iom da tempo Harris reeligis la planon, sed la nura vido de tio kolerigis la homamason kaj ili ordonis, ke li iru frizi per ĝi la harojn. Harris diris, ke li ne povis ne senti, ke ĝis certa grado li fariĝis nepopulara.
 
 
 Fine ili ĉiuj freneziĝis kaj vokis per krioj la gardiston kaj la viro venis, grimpis la ŝtupetaron ekstere kaj kriis, kien ili iru.
@@ -3035,12 +2295,7 @@ Ili devis atendi, ĝis unu el la maljunaj gardistoj revenis de
 
 sia tagmanĝo antaŭ ol ili povis eliri.
 
-Harris diris, ke li opinias ĝin tre bela labirinto, kiam li estas kompetentulo; ni interkonsentis, ke ni penos instigi Ge-
-
-orgon eniri ĝin sur nia vojo returne.
-
-
-T R I V I RO J E N B OATO
+Harris diris, ke li opinias ĝin tre bela labirinto, kiam li estas kompetentulo; ni interkonsentis, ke ni penos instigi Georgon eniri ĝin sur nia vojo returne.
 
 
 ĉapitro VII
@@ -3055,19 +2310,13 @@ sinjorino Thomas — La viro, kiu ne amas tombojn kaj ĉerkojn
 
 kaj kraniojn — Harris freneziĝas — Liaj opinioj pri Georgo kaj bankoj kaj limonado — Li akrobatas
 
-Harris min informis pri sia labirinta travivaĵo, dum ni tra-
-
-pasis la kluzon ĉe Moulsey. La trapaso daŭris iom da
+Harris min informis pri sia labirinta travivaĵo, dum ni trapasis la kluzon ĉe Moulsey. La trapaso daŭris iom da
 
 tempo, ĉar nia estis la sola boato kaj la kluzo estas granda. Mi kredas, ke neniam antaŭe mi vidis la kluzon ĉe Moulsey kun
 
-nur unu boato. i estas, mi supozas, eĉ ne esceptinte la klu-
+nur unu boato. i estas, mi supozas, eĉ ne esceptinte la kluzon ĉe Boulter, la plej uzata kluzo sur la rivero.
 
-zon ĉe Boulter, la plej uzata kluzo sur la rivero.
-
-Kelkfoje mi rigardis ĝin, kiam oni tute ne povis vidi la ak-
-
-von, nur brilantan plektaĵon de helaj blazonvestoj kaj gajas-
+Kelkfoje mi rigardis ĝin, kiam oni tute ne povis vidi la akvon, nur brilantan plektaĵon de helaj blazonvestoj kaj gajas-
 
 pektaj ĉapoj, impertinentaj ĉapeloj, multkoloraj sunombreloj,
 
@@ -3080,16 +2329,9 @@ dum supre kaj malsupre sur la rivero, atendante sian vicon
 apud la pordegoj, kuŝas longaj linioj de ankoraŭ pliaj boatoj; boatoj proksimiĝas kaj forpuŝiĝas, tiel ke la sunplena rivero, de la palaco ĝis la preĝejo de Hampton, estas punktita kaj
 
 
-T R I V I RO J E N B OATO
+ornamita per flava, blua, oranĝa, blanka, ruĝa kaj roza koloroj. ĉiuj enloĝantoj de Hampton kaj Moulsey sin vestas por
 
-
-ornamita per flava, blua, oranĝa, blanka, ruĝa kaj roza kolo-
-
-roj. ĉiuj enloĝantoj de Hampton kaj Moulsey sin vestas por
-
-boatveturado, venas kaj vagas kun siaj hundoj ĉirkaŭ la klu-
-
-zo, amindumas, fumas kaj rigardas la boatojn; entute la ĉa-
+boatveturado, venas kaj vagas kun siaj hundoj ĉirkaŭ la kluzo, amindumas, fumas kaj rigardas la boatojn; entute la ĉa-
 
 poj kaj jakoj de la viroj, la helaj koloroj de la virinaj vestoj, la ekscititaj hundoj, la moviĝantaj boatoj, la blankaj veloj, la
 
@@ -3097,13 +2339,9 @@ plaĉa pejzaĝo kaj la brilanta akvo, ĉio estas unu el la plej ga-jigaj vidinda
 
 La rivero donas bonan okazon por vestaro. Almenaŭ unu
 
-fojon dum periodo ni viroj povas montri nian guston pri ko-
+fojon dum periodo ni viroj povas montri nian guston pri koloroj kaj mi opinias, ke ni prezentiĝas tre elegante, se vi min demandas. Mi ĉiam amas iom da ruĝo en miaj vestaĵoj — ru-
 
-loroj kaj mi opinias, ke ni prezentiĝas tre elegante, se vi min demandas. Mi ĉiam amas iom da ruĝo en miaj vestaĵoj — ru-
-
-ĝo kaj nigro. Vi scias, ke la koloro de miaj haroj estas ia or-bruno, sufiĉe hela nuanco, oni diris al mi, kaj kun ĝi harmo-
-
-nias belege malhela ruĝo; mi ĉiam kredas, ke kun ĝi bele
+ĝo kaj nigro. Vi scias, ke la koloro de miaj haroj estas ia or-bruno, sufiĉe hela nuanco, oni diris al mi, kaj kun ĝi harmonias belege malhela ruĝo; mi ĉiam kredas, ke kun ĝi bele
 
 akordas ankaŭ palblua kravato, paro de tiuj juftaj botoj kaj
 
@@ -3119,18 +2357,13 @@ vizaĝkoloro estas tro malhela por flavaĵoj. Ne bone taŭgas
 
 por li flavaĵoj: pri tio ĉi ne povas esti demando. Mi volas, ke li prenu bluon por la fono, kun blanko aŭ kremo por kontra-sto; sed tamen, ju malpli da gusto pri vestoj la homo havas,
 
-des pli obstina li ŝajnas. Tio estas granda domaĝo, ĉar li ne-
-
-niam povos atingi feliĉan rezulton, tamen ekzistas unu-du
+des pli obstina li ŝajnas. Tio estas granda domaĝo, ĉar li neniam povos atingi feliĉan rezulton, tamen ekzistas unu-du
 
 koloroj, en kiuj li povus fakte aspekti ne tre malbone, se li
 
 portus ĉapelon.
 
 Georgo aĉetis kelkajn novajn vestojn por ĉi tiu vojaĝo, pri
-
-
-T R I V I RO J E N B OATO
 
 
 kiuj mi iom ĉagreniĝis. La flanela jako estis brilaĉa. Mi ne volus, ke Georgo sciu, ke tion mi pensas, sed fakte neniu alia
@@ -3141,9 +2374,7 @@ lin demandis, kiel li nomas tiun koloron, kaj li diris, ke li ne scias. Li ne op
 
 ĝi estas orienta speco. Georgo ĝin surmetis kaj demandis nin,
 
-kion ni pensas pri ĝi. Harris diris, ke kiel objekton pendigo-
-
-tan super florbedo en la frua printempo por fortimigi birdojn
+kion ni pensas pri ĝi. Harris diris, ke kiel objekton pendigotan super florbedo en la frua printempo por fortimigi birdojn
 
 li povas ĝin respekti; sed ke, konsiderata kiel vestaĵo por alia homa estaĵo ol negro el Margate, ĝi naŭzas lin. Georgo ofendiĝis; sed, kiel Harris diris, se li ne volis lian opinion, kial li demandis?
 
@@ -3155,9 +2386,7 @@ Ankaŭ junulinoj ne aspektas malbone en boato, se ili estas
 
 bele vestitaj. Nenio estas pli alloga, laŭ mia opinio, ol bongusta porboata kostumo. Sed ”porboata kostumo” — estus bone,
 
-se tion komprenus ĉiuj virinoj — devus esti kostumo porte-
-
-bla en boato kaj ne nur sub vitra ŝirmilo. La vojaĝo tute mal-
+se tion komprenus ĉiuj virinoj — devus esti kostumo portebla en boato kaj ne nur sub vitra ŝirmilo. La vojaĝo tute mal-
 
 boniĝas, se estas en la boato homoj, kiuj la tutan tempon
 
@@ -3173,14 +2402,10 @@ senĝene en ili ien ajn proksimen al realaj tero, aero kaj akvo.
 
 La unua aĉaĵo estis, ke ili opiniis, ke la boato ne estas pura.
 
-Ni senpolvigis por ili ĉiujn slidlokojn kaj certigis ilin, ke ĝi 74
-
-T R I V I RO J E N B OATO
+Ni senpolvigis por ili ĉiujn slidlokojn kaj certigis ilin, ke ĝi
 
 
-nun estas pura, sed ili ne kredis al ni. Unu el ili frotis la kusenon per la montrofingro de sia ganto, kaj montris la rezul-
-
-ton al la alia, kaj ili ambaŭ ĝemspiris kaj sidiĝis kun mieno de frutempaj kristanaj martirinoj, kiuj penas konsoli unu la alian antaŭ la brulŝtiparo. Facile povas okazi, ke foje dum la remado oni iomete ŝprucigas akvon, kaj ŝajnas, ke tiujn kostu-
+nun estas pura, sed ili ne kredis al ni. Unu el ili frotis la kusenon per la montrofingro de sia ganto, kaj montris la rezulton al la alia, kaj ili ambaŭ ĝemspiris kaj sidiĝis kun mieno de frutempaj kristanaj martirinoj, kiuj penas konsoli unu la alian antaŭ la brulŝtiparo. Facile povas okazi, ke foje dum la remado oni iomete ŝprucigas akvon, kaj ŝajnas, ke tiujn kostu-
 
 mojn ruinigus unu guto da akvo. La makulo neniam foriĝus
 
@@ -3190,31 +2415,20 @@ Mi estis la ĉefremisto. Mi faris mian eblon. Mi platetendis
 
 la remilojn du futojn alte kaj mi haltis ĉe la fino de ĉiu movo por lasi la akvon forguti antaŭ ol mi denove enmetis ilin. (La remanto ĉe la antaŭparto diris post kelka tempo, ke li ne kredas sin sufiĉe sperta por remi kun mi, sed ke li sidos trankvile, se mi tion permesos, kaj studos miajn movojn. Li diris, ke ili interesas lin). Malgraŭ ĉio ĉi, kaj kiel ajn forte mi penis, mi tamen ne povis malhelpi kelkfojan aspergon de akvo sur tiujn kostumojn.
 
-La junulinoj ne plendis, ili nur kunpremiĝis kaj firme kun-
-
-premis la lipojn, kaj ĉiufoje kiam ilin tuŝis guto, ili videble kuntiriĝis kaj ektremis. Estis nobla vidindaĵo vidi ilin suferi silente, sed ĝi min tute malfortigis. Mi estas tro sentema. Mia remado fariĝis sovaĝa kaj intermita kaj mi aspergis des pli
+La junulinoj ne plendis, ili nur kunpremiĝis kaj firme kunpremis la lipojn, kaj ĉiufoje kiam ilin tuŝis guto, ili videble kuntiriĝis kaj ektremis. Estis nobla vidindaĵo vidi ilin suferi silente, sed ĝi min tute malfortigis. Mi estas tro sentema. Mia remado fariĝis sovaĝa kaj intermita kaj mi aspergis des pli
 
 multe, ju pli forte mi penis tion eviti.
 
 Fine mi rezignis; mi diris, ke mi remos en la antaŭparto.
 
-Ankaŭ la antaŭparta remanto opiniis, ke tiu aranĝo estos bo-
-
-na, kaj ni interŝanĝis lokon. La sinjorinoj senvole eligis ĝem-spirojn de senŝarĝiĝo, kiam ili vidis min foriri, kaj dum mo-
+Ankaŭ la antaŭparta remanto opiniis, ke tiu aranĝo estos bona, kaj ni interŝanĝis lokon. La sinjorinoj senvole eligis ĝem-spirojn de senŝarĝiĝo, kiam ili vidis min foriri, kaj dum mo-
 
 mento fakte gajiĝis. Kompatindaj junulinoj! Prefere ili estus
 
-min tolerintaj. La nova remanto estis gaja, facilkora, ŝtipka-
-
-pa ulo, kun tiom da sentemo, kiom havas Novlanda hundido.
+min tolerintaj. La nova remanto estis gaja, facilkora, ŝtipkapa ulo, kun tiom da sentemo, kiom havas Novlanda hundido.
 
 
-T R I V I RO J E N B OATO
-
-
-Vi povus lin malafablege rigardi dum horo, kaj li eĉ ne rimar-
-
-kus tion, kaj tio ne ĝenus lin, eĉ se li ion rimarkus. Li laboris per fortaj, gajaj, viglaj movoj, kiuj ŝprucigis akverojn kiel fon-tano sur la tutan boaton, kaj tre baldaŭ igis ĉiujn gardi sin.
+Vi povus lin malafablege rigardi dum horo, kaj li eĉ ne rimarkus tion, kaj tio ne ĝenus lin, eĉ se li ion rimarkus. Li laboris per fortaj, gajaj, viglaj movoj, kiuj ŝprucigis akverojn kiel fon-tano sur la tutan boaton, kaj tre baldaŭ igis ĉiujn gardi sin.
 
 Verŝinte pli ol duonlitron da akvo sur tiujn kostumojn, li eligis afablan etan ridon, kaj diris:
 
@@ -3240,23 +2454,14 @@ Komence ili ne komprenis lin. Kiam la ideo eniris ilian
 
 menson, ili diris, ke ili timas, ke ili ne scias purigi manĝilaron.
 
-—Ho, mi baldaŭ montros al vi, — li kriis; — tio estas mal-
+—Ho, mi baldaŭ montros al vi, — li kriis; — tio estas malofta amuzaĵo! Oni kuŝiĝas sur la … — mi volas diri, oni klini-
 
-ofta amuzaĵo! Oni kuŝiĝas sur la … — mi volas diri, oni klini-
-
-ĝas super la bordon, vi komprenas, kaj la objektojn oni sku-
-
-as rapide sub la akvo.
-
-
-T R I V I RO J E N B OATO
+ĝas super la bordon, vi komprenas, kaj la objektojn oni skuas rapide sub la akvo.
 
 
 La pliaĝa fratino diris, ke ŝi timas, ke la vestoj, kiujn ili surhavas, ne taŭĝas por tiu laboro.
 
-—Ho, ne zorgu pri tio, — li diris facilkore; — falde supren-
-
-turnu ilin.
+—Ho, ne zorgu pri tio, — li diris facilkore; — falde suprenturnu ilin.
 
 Fakte li devigis ilin fari tion. Li diris al ili, ke tiaj aferoj estas duono de la plezuro de pikniko. Ili diris, ke tio estas interesa.
 
@@ -3270,41 +2475,26 @@ iri rigardi la tombon de sinjorino Thomas.
 
 —Kiu estas sinjorino Thomas? — mi demandis.
 
-—Kiel mi povas scii? — respondis Harris. — ŝi estas sinjo-
+—Kiel mi povas scii? — respondis Harris. — ŝi estas sinjorino, kiu havas kuriozan tombon, kaj mi deziras ĝin vidi.
 
-rino, kiu havas kuriozan tombon, kaj mi deziras ĝin vidi.
+Mi kontraŭstaris. Mi ne scias, ĉu mi estas malĝuste kunmetita, sed mi neniam havis inklinon al tombŝtonoj. Mi scias, ke kiam oni alvenas al vilaĝo aŭ urbo, estas konvene kuregi al la preĝeja korto kaj ĝui la tombojn; tamen tio estas distraĵo,
 
-Mi kontraŭstaris. Mi ne scias, ĉu mi estas malĝuste kunme-
-
-tita, sed mi neniam havis inklinon al tombŝtonoj. Mi scias, ke kiam oni alvenas al vilaĝo aŭ urbo, estas konvene kuregi al la preĝeja korto kaj ĝui la tombojn; tamen tio estas distraĵo,
-
-kiun mi ĉiam rifuzas. Min ne interesas rampi ĉirkaŭe en mal-
-
-helaj kaj malvarmaj preĝejoj malantaŭ fajfspirantaj maljunu-
+kiun mi ĉiam rifuzas. Min ne interesas rampi ĉirkaŭe en malhelaj kaj malvarmaj preĝejoj malantaŭ fajfspirantaj maljunu-
 
 loj kaj legi epitafojn. Eĉ ne la vido de peco da krevinta latu-no enfiksita en ŝtonon alportas al mi tion, kion mi nomas vera feliĉo.
 
-Mi konsternas respektindajn sakristianojn per la trankvi-
-
-lo, kiun mi povas montri antaŭ kortuŝaj surskriboj, kaj per
+Mi konsternas respektindajn sakristianojn per la trankvilo, kiun mi povas montri antaŭ kortuŝaj surskriboj, kaj per
 
 mia manko de entuziasmo pri la loka familia historio, dum
 
 iliajn sentojn vundas mia malbone kaŝita deziro eliri.
 
-lun oran matenon de sunplena tago mi apogis min al mal-
-
-alta ŝtona muro, kiu gardis malgrandan vilaĝan preĝejon, mi
-
-
-T R I V I RO J E N B OATO
+lun oran matenon de sunplena tago mi apogis min al malalta ŝtona muro, kiu gardis malgrandan vilaĝan preĝejon, mi
 
 
 fumis kaj ensorbis profundan, serenan ĝojon el la ĉarma,
 
-trankviliga sceno — la griza malnova preĝejo kun sia ama-
-
-siĝanta hedero kaj la kurioze skulptita ligna portalo, la blanka vojeto serpentanta malsupren de la monteto inter altaj vicoj
+trankviliga sceno — la griza malnova preĝejo kun sia amasiĝanta hedero kaj la kurioze skulptita ligna portalo, la blanka vojeto serpentanta malsupren de la monteto inter altaj vicoj
 
 de ulmoj, la pajltegmentitaj dometoj rigardantaj trans siajn
 
@@ -3322,9 +2512,7 @@ kaj havos arĝentecajn harojn, kiam mi maljuniĝos, kaj ĉion
 
 tian.
 
-En tiu momento al ĉiuj miaj amikoj kaj parencoj mi pardo-
-
-nis iliajn malbonon kaj malbonvolon kaj mi benis ilin. Ili ne
+En tiu momento al ĉiuj miaj amikoj kaj parencoj mi pardonis iliajn malbonon kaj malbonvolon kaj mi benis ilin. Ili ne
 
 sciis, ke mi benis ilin. Ili iris sian senmoralan vojon, tute ne sciante tion, kion mi, malproksime en tiu kvieta vilaĝo, faris por ili; sed mi faris tion, ĉar mi volis ilin feliĉigi. Mi daŭre pensis ĉiujn ĉi grandanimajn, ĉarmajn pensojn, kiam mian
 
@@ -3351,14 +2539,9 @@ estas tiel vigla, kiel mi estis. ĉi tien, sinjoro.
 —Foriru, mizera maljunulo, — mi diris.
 
 
-T R I V I RO J E N B OATO
-
-
 —Mi venis kiel eble plej rapide, sinjoro, — li respondis. —
 
-Mia edzino nur ĉi tiun momenton vin vidis. Sekvu min, sinj-
-
-oro.
+Mia edzino nur ĉi tiun momenton vin vidis. Sekvu min, sinjoro.
 
 —Foriru, — mi ripetis; — lasu min antaŭ ol mi grimpos la
 
@@ -3394,9 +2577,7 @@ Li diris:
 
 estus!
 
-—Nu, — li diris, — vi deziras vidi la tombojn — enterigej-
-
-ojn — homojn enterigitajn, vi komprenas, ĉerkojn!
+—Nu, — li diris, — vi deziras vidi la tombojn — enterigejojn — homojn enterigitajn, vi komprenas, ĉerkojn!
 
 —Vi estas mensogisto, — mi respondis, ekscitiĝante; — mi
 
@@ -3406,12 +2587,7 @@ proprajn tombojn, mia familio havas. Jen, en la tombejo ĉe
 
 Kensal Green mia onklo Podger havas tombon, pri kiu fieras
 
-tiu tuta najbararo; la ĉerkujo de mia avo ĉe Bow povas akcep-
-
-ti ok gastojn, dum mia praonklino Susan havas en la preĝeja
-
-
-T R I V I RO J E N B OATO
+tiu tuta najbararo; la ĉerkujo de mia avo ĉe Bow povas akcepti ok gastojn, dum mia praonklino Susan havas en la preĝeja
 
 
 korto ĉe Finchley brikan tombon kun monumento portanta
@@ -3420,9 +2596,7 @@ bareliefaĵon de io simila al kafokruĉo, kaj tute ĉirkaŭe estas blankŝtona s
 
 Kiam vi mem estos enterigita, mi venos por vidi vian. Jen ĉio, kion mi povas fari por vi.
 
-Li ekploris. Li diris, ke unu tombo havas sur la supro ŝton-
-
-pecon, kiu laŭ kelkiuj probable estas parto de restaĵo de figu-ro de viro, kaj ke sur alia tombo estas skulptitaj kelkaj vortoj, kiujn neniu iam povis deĉifri.
+Li ekploris. Li diris, ke unu tombo havas sur la supro ŝtonpecon, kiu laŭ kelkiuj probable estas parto de restaĵo de figu-ro de viro, kaj ke sur alia tombo estas skulptitaj kelkaj vortoj, kiujn neniu iam povis deĉifri.
 
 Mi ankoraŭ obstinis kaj per korrompitaj tonoj li diris:
 
@@ -3434,33 +2608,21 @@ Eĉ ne tion mi volis vidi, tial li pafis sian lastan kuglon. Li alproksimiĝis k
 
 tiujn. Ho, venu vidi la kraniojn! Vi estas junulo ferianta kaj vi volas amuziĝi. Venu vidi la kraniojn!
 
-Tiam mi min turnis kaj forkuris, kaj dum mi kuris mi aŭ-
-
-dis lin postkrii:
+Tiam mi min turnis kaj forkuris, kaj dum mi kuris mi aŭdis lin postkrii:
 
 —Ho, venu vidi la kraniojn; revenu por vidi la kraniojn!
 
-Harris tamen raviĝas pri tomboj kaj enterigejoj kaj epita-
-
-foj kaj monumentaj surskriboj, kaj la penso, ke li ne vidos la tombon de sinjorino Thomas, lin seriozigis kaj furiozigis. Li
+Harris tamen raviĝas pri tomboj kaj enterigejoj kaj epitafoj kaj monumentaj surskriboj, kaj la penso, ke li ne vidos la tombon de sinjorino Thomas, lin seriozigis kaj furiozigis. Li
 
 diris, ke senpacience li atendis la okazon por vidi la tombon
 
-de sinjorino Thomas de la unua momento, kiam oni propo-
-
-nis la vojaĝon; — li diris, ke li ne estus aliĝinta, se ne estus la ideo vidi la tombon de sinjorino Thomas.
+de sinjorino Thomas de la unua momento, kiam oni proponis la vojaĝon; — li diris, ke li ne estus aliĝinta, se ne estus la ideo vidi la tombon de sinjorino Thomas.
 
 Mi memorigis lin pri Georgo kaj pri tio, ke la boaton ni
 
 devas venigi al Shepperton je la kvina por lin renkonti, kaj
 
-tiam li direktis sian koleron al Georgo. Kiarajte Georgo peto-
-
-
-T R I V I RO J E N B OATO
-
-
-ladas la tutan tagon kaj lasas nin tiregi mem ĉi tiun pezan
+tiam li direktis sian koleron al Georgo. Kiarajte Georgo petoladas la tutan tagon kaj lasas nin tiregi mem ĉi tiun pezan
 
 malnovan malfacilegan boataĉon laŭlonge de la rivero por
 
@@ -3474,9 +2636,7 @@ tie vizitas. Li sidas malantaŭ vitraĵo la tutan tagon kaj provas aspekti, kvaz
 
 Mi devas perlabori miajn vivrimedojn. Kial li ne laboru? Por
 
-kio li servas tie, kaj por kio servas la bankoj? Ili prenas vian monon kaj poste, kiam vi skribas ĉekon, ili resendas ĝin ĉir-kaŭŝmiritan per ”Nenia bonhavo — Turnu vin al la skribin-
-
-to”. Kiel tio helpas? Tiajn ŝercojn ili faris al mi dufoje en la lasta semajno. Tion mi ne toleros multe pli longe. Mi fermos
+kio li servas tie, kaj por kio servas la bankoj? Ili prenas vian monon kaj poste, kiam vi skribas ĉekon, ili resendas ĝin ĉir-kaŭŝmiritan per ”Nenia bonhavo — Turnu vin al la skribinto”. Kiel tio helpas? Tiajn ŝercojn ili faris al mi dufoje en la lasta semajno. Tion mi ne toleros multe pli longe. Mi fermos
 
 mian konton. Se li estus ĉi tie, ni povus iri vidi tiun tombon.
 
@@ -3484,36 +2644,22 @@ Vere mi ne kredas, ke li estas en la banko. Li petoladas ie, jen kion li faras, 
 
 Mi atentigis lin, ke ni estas mejlojn for de trinkejo; tiam li koleriĝis al la rivero, kiel helpas rivero, kaj ĉu ĉiu, kiu venas sur la riveron, devas morti pro soifo?
 
-Kiam Harris estas en tia stato, estas ĉiam plej bone senbri-
-
-digi lin. Tiam li elpumpas sin kaj poste kvietiĝas.
+Kiam Harris estas en tia stato, estas ĉiam plej bone senbridigi lin. Tiam li elpumpas sin kaj poste kvietiĝas.
 
 Mi memorigis al li, ke troviĝas en la korbego limonada
 
-esenco, kaj en la pruo kvinlitra botelego da akvo kaj ke nece-
-
-sas nur kunmiksi ilin por havigi malvarman kaj refreŝigan
+esenco, kaj en la pruo kvinlitra botelego da akvo kaj ke necesas nur kunmiksi ilin por havigi malvarman kaj refreŝigan
 
 trinkaĵon.
 
-ĉe tio li koleriĝis al limonado kaj tiaj ”dimanĉlernejaj flui-
-
-daĵoj”, kiel li nomis ilin, zingibra biero, framba siropo, k.t.p., k.t.p. Li diris, ke ili ĉiuj kaŭzas dispepsion kaj ruinigas ne nur 81
-
-
-T R I V I RO J E N B OATO
+ĉe tio li koleriĝis al limonado kaj tiaj ”dimanĉlernejaj fluidaĵoj”, kiel li nomis ilin, zingibra biero, framba siropo, k.t.p., k.t.p. Li diris, ke ili ĉiuj kaŭzas dispepsion kaj ruinigas ne nur
 
 
 la korpon sed ankaŭ la animon kaj estas la kaŭzo de duono
 
 de la krimoj en Anglujo.
 
-Li diris, ke li tamen devas ion trinki, grimpis sur la sidlo-
-
-kon kaj kliniĝis antaŭen por havigi la botelon. i estis tute en la fundo de la korbego kaj ŝajne malfacile trovebla, tial li bezonis kliniĝi pli kaj pli antaŭen kaj, penante samtempe direkti la boaton el renversita vidpunkto, li tiris la malĝustan ŝnuron kaj kurigis la boaton al la bordo. Li perdis la ekvilibron pro la subita halto, ĵetiĝis rekte en la korbegon kaj tie li restis sur la kapo, tenante, je vivo kaj morto, la flankojn de la boato, kun la kruroj etenditaj en la aero. Li ne kuraĝis movi sin pro timo, ke li falos el la boato, kaj tie li devis resti ĝis mi povis preni liajn krurojn kaj tiri lin malantaŭen, kaj tio furiozigis lin eĉ pli.
-
-
-T R I V I RO J E N B OATO
+Li diris, ke li tamen devas ion trinki, grimpis sur la sidlokon kaj kliniĝis antaŭen por havigi la botelon. i estis tute en la fundo de la korbego kaj ŝajne malfacile trovebla, tial li bezonis kliniĝi pli kaj pli antaŭen kaj, penante samtempe direkti la boaton el renversita vidpunkto, li tiris la malĝustan ŝnuron kaj kurigis la boaton al la bordo. Li perdis la ekvilibron pro la subita halto, ĵetiĝis rekte en la korbegon kaj tie li restis sur la kapo, tenante, je vivo kaj morto, la flankojn de la boato, kun la kruroj etenditaj en la aero. Li ne kuraĝis movi sin pro timo, ke li falos el la boato, kaj tie li devis resti ĝis mi povis preni liajn krurojn kaj tiri lin malantaŭen, kaj tio furiozigis lin eĉ pli.
 
 
 ĉapitro VIII
@@ -3528,17 +2674,11 @@ Kiamaniere Harris kantas komikan kanton — Altranga kunveno
 
 senutilaj informoj — Georgo aĉetas banĝon
 
-Ni haltis sub la salikoj apud Kempton Park kaj lunĉis. Be-
+Ni haltis sub la salikoj apud Kempton Park kaj lunĉis. Beleta loko tie estas: plaĉa, herboriĉa ebenaĵo laŭlonge de
 
-leta loko tie estas: plaĉa, herboriĉa ebenaĵo laŭlonge de
+la akvobordo, kie superpendas salikoj. Ni ĵus komencis la trian manĝopladon — panon kun konfitaĵo — kiam sinjoro sen
 
-la akvobordo, kie superpendas salikoj. Ni ĵus komencis la tri-
-
-an manĝopladon — panon kun konfitaĵo — kiam sinjoro sen
-
-jako kaj kun mallonga pipo alvenis kaj volis scii, ĉu ni scias, ke ni surpaŝis privatan bienon. Ni diris, ke ni ankoraŭ ne sufi-
-
-ĉe pripensis la aferon por ebligi al ni fari pri tiu punkto definitivan konkludon, sed se li certiĝas nin, je sia vorto kiel sinjoro, ke ni fakte superpaŝas privatan bienon, ni tion certe kredos sen plua hezito.
+jako kaj kun mallonga pipo alvenis kaj volis scii, ĉu ni scias, ke ni surpaŝis privatan bienon. Ni diris, ke ni ankoraŭ ne sufiĉe pripensis la aferon por ebligi al ni fari pri tiu punkto definitivan konkludon, sed se li certiĝas nin, je sia vorto kiel sinjoro, ke ni fakte superpaŝas privatan bienon, ni tion certe kredos sen plua hezito.
 
 Li donis al ni la postulitan certigon kaj ni dankis lin, sed li ankoraŭ restis en nia proksimeco kaj ŝajnis malkontenta; ni
 
@@ -3546,19 +2686,11 @@ do demandis lin, ĉu ion plian ni povas fari por li; Harris, kiu estas amikiĝem
 
 Mi kredas, ke li sendube apartenis al ia societo ĵurinta sin
 
-deteni de pano kun konfitaĵo, ĉar li ĝin malakceptis tute mal-
-
-afable, kvazaŭ ofendiĝante pro tio, ke oni provis tenti lin per
+deteni de pano kun konfitaĵo, ĉar li ĝin malakceptis tute malafable, kvazaŭ ofendiĝante pro tio, ke oni provis tenti lin per
 
 ĝi, kaj li diris, ke li havas la devon forigi nin.
 
-Harris diris, ke se estas devo, oni devas tion fari, kaj de-
-
-
-T R I V I RO J E N B OATO
-
-
-mandis la viron, kia estas lia ideo pri la plej bona rimedo por tion fari. Harris estas tio, kion oni nomus bonstatura viro, kun grandeco proksimume numero unu, kaj li aspeklas hardita
+Harris diris, ke se estas devo, oni devas tion fari, kaj demandis la viron, kia estas lia ideo pri la plej bona rimedo por tion fari. Harris estas tio, kion oni nomus bonstatura viro, kun grandeco proksimume numero unu, kaj li aspeklas hardita
 
 kaj osteca, kaj la viro lin mezuris de supre malsupren per la
 
@@ -3572,9 +2704,7 @@ enspezojn dum la someraj monatoj, vagante sur la bordoj kaj
 
 ĉantaĝante en tia maniero malfortmensajn simplulojn. Ili sin
 
-prezentas kiel senditoj de la posedanto. La vojo sekvinda es-
-
-tas doni vian nomon kaj adreson, kaj lasi al la posedanto, se
+prezentas kiel senditoj de la posedanto. La vojo sekvinda estas doni vian nomon kaj adreson, kaj lasi al la posedanto, se
 
 li fakte rilatas al la afero, vin procesalvoki kaj pruvi, kian mal-utilon vi faris al lia bieno per sidado sur peceto de ĝi. Sed plej multaj homoj estas tiel malenergiaj kaj timemaj, ke ili preferas stimuli la trompaĵon, cedante al ĝi anstataŭ fari finon al
 
@@ -3582,25 +2712,19 @@ li fakte rilatas al la afero, vin procesalvoki kaj pruvi, kian mal-utilon vi far
 
 En kazoj, kiam fakte kulpas la posedanto, oni devus lin
 
-malkovri. La egoismo de la riverbordaj bienuloj kreskas ĉiu-
-
-jare. Se ili povus, ili tute malpermesus ĉian uzon de la rivero.
+malkovri. La egoismo de la riverbordaj bienuloj kreskas ĉiujare. Se ili povus, ili tute malpermesus ĉian uzon de la rivero.
 
 Tion ili fakte jam faris en la negravaj alfluaj riveretoj kaj la flankakvoj. Ili enpuŝas fostojn en la fluujon de la rivereto,
 
 etendas ĉenojn de unu bordo al alia kaj najlfiksas grandegajn
 
-aviztabulojn sur ĉiujn arbojn. La vido de tiuj aviztabuloj ve-
-
-kas ĉiun malbonan instinkton en mia naturo. Mi sentas, ke mi
+aviztabulojn sur ĉiujn arbojn. La vido de tiuj aviztabuloj vekas ĉiun malbonan instinkton en mia naturo. Mi sentas, ke mi
 
 volas ĉiun deŝiri kaj bati per ĝi la kapon de tiu, kiu alfiksis ĝin,
 
 ĝis mi lin mortigis, kaj tiam mi enterigus lin kaj starigus la tabulon super lian tombon kiel monumenton.
 
-Mi menciis ĉi tiujn miajn sentojn al Harris kaj li diris, ke li 84
-
-T R I V I RO J E N B OATO
+Mi menciis ĉi tiujn miajn sentojn al Harris kaj li diris, ke li
 
 
 havas eĉ pli malbonajn sentojn. Li diris, ke li ne nur sentas
@@ -3615,9 +2739,7 @@ kaj tion mi diris al Harris; sed li respondis:
 
 komikajn kantojn.
 
-Mi koleriĝis, aŭdante Harris paroli en tia sangosoifa ma-
-
-niero. Ni devus neniam permesi al niaj instinktoj de justeco
+Mi koleriĝis, aŭdante Harris paroli en tia sangosoifa maniero. Ni devus neniam permesi al niaj instinktoj de justeco
 
 degeneri en nuran venĝemon. Pasis longa tempo antaŭ ol mi
 
@@ -3625,9 +2747,7 @@ povis venigi Harris al pli kristana vidpunkto pri la temo, sed fine mi sukcesis 
 
 super la ruinoj.
 
-Vi neniam aŭdis Harris kanti komikan kanton, alie vi kom-
-
-prenus, kian servon mi faris al la homaro. Harris ekhavis la
+Vi neniam aŭdis Harris kanti komikan kanton, alie vi komprenus, kian servon mi faris al la homaro. Harris ekhavis la
 
 ideon, ke li povas kanti komikajn kantojn; kontraŭe, tiuj el la amikoj de Harris, kiuj aŭdis lin provi, havas la ideon, ke li tute ne povas kaj neniam povos, kaj ke oni neniam rajtus permesi
 
@@ -3635,29 +2755,20 @@ al li eĉ provi.
 
 Kiam Harris ĉeestas amikan kunvenon kaj oni petas lin
 
-kanti, li respondas: — Nu, mi povas kanti nur komikan kan-
-
-ton, vi komprenas; — kaj li diras tion en tono, kiu sugestas,
+kanti, li respondas: — Nu, mi povas kanti nur komikan kanton, vi komprenas; — kaj li diras tion en tono, kiu sugestas,
 
 ke tian kantadon lian tamen vi devus aŭdi nur unufoje, kaj
 
 poste morti.
 
-—Ho, tio estas agrabla, — diras la dommastrino. — Alme-
-
-naŭ unu kanton, sinjoro Harris; — kaj Harris leviĝas kaj ali-
+—Ho, tio estas agrabla, — diras la dommastrino. — Almenaŭ unu kanton, sinjoro Harris; — kaj Harris leviĝas kaj ali-
 
 ras la fortepianon kun la radianta bonkoreco de grandanima
 
 viro, kiu tuj donos ion al iu.
 
 
-T R I V I RO J E N B OATO
-
-
-—Nu, silenton, mi petas, ĉiuj, — diras la dommastrino, tur-
-
-nante sin; — Sinjoro Harris kantos komikan kanton !
+—Nu, silenton, mi petas, ĉiuj, — diras la dommastrino, turnante sin; — Sinjoro Harris kantos komikan kanton !
 
 —Ho, kiel gaje! — ili murmuretas; ili rapidas de la vitra
 
@@ -3671,9 +2782,7 @@ Tiam Harris komencas.
 
 Nu, ĉe komika kanto vi ne atendas belan voĉon. Vi ne
 
-atendas ĝustan aranĝon aŭ elparolon. Vi ne zorgas, se iu, me-
-
-ze de tono, trovante ke li kantas tro alte, perforte malaltigas la voĉon. La taktmezuro vin ne ĝenas. Vi ne zorgas, se iu troviĝas du taktojn antaŭ la akompanaĵo kaj haltas meze de ver-
+atendas ĝustan aranĝon aŭ elparolon. Vi ne zorgas, se iu, meze de tono, trovante ke li kantas tro alte, perforte malaltigas la voĉon. La taktmezuro vin ne ĝenas. Vi ne zorgas, se iu troviĝas du taktojn antaŭ la akompanaĵo kaj haltas meze de ver-
 
 so por disputi kun la pianisto, kaj poste komencas la strofon
 
@@ -3689,16 +2798,11 @@ alvenis al alia parto de la kanto, kaj interrompos ĝin sen ia
 
 averto por reiri kaj ĝin doni al vi senprokraste. Vi ne atendas,
 
-— nu, mi nur donos al vi ideon pri la komikkantado de Har-
-
-ris, kaj poste vi mem povos prijuĝi ĝin.
+— nu, mi nur donos al vi ideon pri la komikkantado de Harris, kaj poste vi mem povos prijuĝi ĝin.
 
 Harris (staras antaŭ la fortepiano kaj alparolas la atendantan homamason): Mi timas, ke ĝi estas tre malnova kanto. Mi kredas, ke ĝin vi ĉiuj jam konas. Tamen ĝi estas la sola, kiun mi konas. i estas la kanto de la juĝisto en Pinafore, ne, mi ne
 
 volas diri Pinafore — mi volas diri — vi scias, kion mi volas
-
-
-T R I V I RO J E N B OATO
 
 
 diri, — tiun alian, vi komprenas. Vi ĉiuj devos kunkanti la
@@ -3736,9 +2840,6 @@ Harris:
 Junaĝe mi iĝis advokato.
 
 
-T R I V I RO J E N B OATO
-
-
 (enerala ekridego, akceptata de Harris kiel komplimento. La
 
 pianisto, pensante pri la edzino kaj sia familio, rezignas la neega-lan konkurson kaj retiriĝas; lian lokon okupas viro kun pli fortaj nervoj.)
@@ -3761,9 +2862,7 @@ De kontorknab’ ĉe advokato.
 
 (Kantas denove la du unuajn versojn, ĉifoje per alta kapvoĉo.
 
-Granda surpriziĝo flanke de la aŭskultantoj. Nervema maljunu-
-
-lino apud la kameno ekploras kaj oni kondukas ĝin eksteren.)
+Granda surpriziĝo flanke de la aŭskultantoj. Nervema maljunulino apud la kameno ekploras kaj oni kondukas ĝin eksteren.)
 
 Harris (daŭrigas):
 
@@ -3777,20 +2876,13 @@ Kaj mi poluris la plankon — ne, infero prenu ĝin — mi petas
 
 pardonon — estas rimarkinde, ke mi ne povas memori tiun
 
-verson. Kaj mi — kaj mi — Nu, bone, ni komencu la rekan-
-
-taĵon (kantas):
+verson. Kaj mi — kaj mi — Nu, bone, ni komencu la rekantaĵon (kantas):
 
 ”Kaj diddlediddlediddlediddleididdlediddledin,
 
 Kaj nun mi estas estro de l’ŝiparo de l’reĝin’.”
 
-Nu, nun la rekantaĵon — ĝi estas la du lastaj versoj ripeta-
-
-taj, vi scias.
-
-
-T R I V I RO J E N B OATO
+Nu, nun la rekantaĵon — ĝi estas la du lastaj versoj ripetataj, vi scias.
 
 
 Komuna ˛oro:
@@ -3803,9 +2895,7 @@ Harris neniam vidas, kia azeno li aspektas, kaj kiel li ĝenas
 
 aron da homoj, kiuj al li neniam malutilis. Li honeste kredas, ke li ilin bone regalis, kaj diras, ke li kantos alian komikan kanton post la vespermanĝo.
 
-Parolante pri komikaj kantoj kaj amikaj kunvenoj, mi me-
-
-moras pri kurioza okazaĵo, al kiu mi partoprenis; ĉar ĝi ĵetas multe da lumo sur la internan mensan funkciadon de la ho-ma naturo ĝenerale, ĝi rajtas, mi kredas, esti registrita en ĉi tiuj pagoj.
+Parolante pri komikaj kantoj kaj amikaj kunvenoj, mi memoras pri kurioza okazaĵo, al kiu mi partoprenis; ĉar ĝi ĵetas multe da lumo sur la internan mensan funkciadon de la ho-ma naturo ĝenerale, ĝi rajtas, mi kredas, esti registrita en ĉi tiuj pagoj.
 
 Ni estis laŭmoda kaj kulturita amikaro. Ni portis niajn plej
 
@@ -3815,9 +2905,7 @@ trivialaj junuloj, kiuj ŝajnis maltrankvilaj kaj ĝenataj, kvazaŭ ili trovus l
 
 Tie ili neniam devus esti. Pri tio ĉiuj samopiniis, poste.
 
-Ni ludis pecojn de la malnovaj germanaj majstroj. Ni dis-
-
-kutis pri filozofio kaj etiko. Ni amindumis kun gracia digno.
+Ni ludis pecojn de la malnovaj germanaj majstroj. Ni diskutis pri filozofio kaj etiko. Ni amindumis kun gracia digno.
 
 Ni eĉ estis spritaj — en altranga maniero.
 
@@ -3829,28 +2917,17 @@ kortuŝa ĝi estis.
 
 Tiam tiuj du junuloj stariĝis, kaj nin demandis, ĉu iam ni
 
-aŭdis sinjoron Slossenn Boschen (kiu ĵus alvenis kaj estis tiam malsupre en la vespermanĝa salono) kanti sian konatan ger-89
+aŭdis sinjoron Slossenn Boschen (kiu ĵus alvenis kaj estis tiam malsupre en la vespermanĝa salono) kanti sian konatan germanan komikan kanton. Neniu el ni aŭdis ĝin, laŭ kio ni
 
-T R I V I RO J E N B OATO
-
-
-manan komikan kanton. Neniu el ni aŭdis ĝin, laŭ kio ni
-
-povis memori. La junuloj diris, ke ĝi estas la plej komika kan-to iam verkita kaj ke sinjoron Slossenn Boschen, kiun ili ko-
-
-nas tre bone, ili persvados kanti ĝin, se tio plaĉos al ni. Ili diris, ke ĝi estas tiel ridiga, ke foje kiam sinjoro Slossenn Boschen ĝin kantis antaŭ la germana imperiestro, lin (la germa-
+povis memori. La junuloj diris, ke ĝi estas la plej komika kan-to iam verkita kaj ke sinjoron Slossenn Boschen, kiun ili konas tre bone, ili persvados kanti ĝin, se tio plaĉos al ni. Ili diris, ke ĝi estas tiel ridiga, ke foje kiam sinjoro Slossenn Boschen ĝin kantis antaŭ la germana imperiestro, lin (la germa-
 
 nan imperiestron) oni devis forporti al la lito.
 
-Ili diris, ke neniu povas ĝin kanti kiel sinjoro Slossenn Bo-
-
-schen; li estas tiel serioza la tutan tempon, ke oni povas kre-di, ke li deklamas tragedion, kaj tio, kompreneble, faras ĝin
+Ili diris, ke neniu povas ĝin kanti kiel sinjoro Slossenn Boschen; li estas tiel serioza la tutan tempon, ke oni povas kre-di, ke li deklamas tragedion, kaj tio, kompreneble, faras ĝin
 
 multe pli ridiga. Ili diris, ke li eĉ ne unu fojon sugestas per sia tono aŭ sinteno, ke li kantas ion komikan — tio malbonigus
 
-ĝin. Estas lia mieno, plena de seriozeco, preskaŭ de kortuŝe-
-
-co, kiu igas ĝin tiel nerezisteble amuza.
+ĝin. Estas lia mieno, plena de seriozeco, preskaŭ de kortuŝeco, kiu igas ĝin tiel nerezisteble amuza.
 
 Ni diris, ke ni sopiras aŭdi ĝin, ke ni deziras bone ridi; ili malsupreniris kaj venigis sinjoron Slossenn Boschen.
 
@@ -3864,9 +2941,7 @@ la dorson de la profesoro.
 
 Sinjoro Slossenn Boschen akompanis sin mem. La preludo
 
-ne sugestis komikan kanton. i estis stranga sentoplena me-
-
-lodio. Efektive ĝi igis venton flugi sub la haŭto; sed ni flustris unu al la alia, ke tio estas la germana maniero, kaj ni nin preparis por ĝui ĝin.
+ne sugestis komikan kanton. i estis stranga sentoplena melodio. Efektive ĝi igis venton flugi sub la haŭto; sed ni flustris unu al la alia, ke tio estas la germana maniero, kaj ni nin preparis por ĝui ĝin.
 
 La germanan lingvon mi ne komprenas. Mi lernis ĝin en la
 
@@ -3874,17 +2949,9 @@ lernejo, sed forgesis ĉiun vorton du jarojn poste kaj de tiam
 
 fartis multe pli bone. Tamen mi ne deziris, ke mian nescion
 
-divenu la homoj tie; mi do elpensis ion, kio ŝajnis al mi bo-
+divenu la homoj tie; mi do elpensis ion, kio ŝajnis al mi bonega ideo. Mi rigardis la du junajn studentojn kaj ilin sekvis.
 
-
-T R I V I RO J E N B OATO
-
-
-nega ideo. Mi rigardis la du junajn studentojn kaj ilin sekvis.
-
-Kiam ili subridaĉis, ankaŭ mi subridaĉis; kiam ili ridegis, an-kaŭ mi ridegis; mi ankaŭ aldonis kelkfoje malgrandan subri-
-
-don tute sola, kvazaŭ vidante pecon de amuzaĵo, kiun la ali-
+Kiam ili subridaĉis, ankaŭ mi subridaĉis; kiam ili ridegis, an-kaŭ mi ridegis; mi ankaŭ aldonis kelkfoje malgrandan subridon tute sola, kvazaŭ vidante pecon de amuzaĵo, kiun la ali-
 
 aj maltrafis. Tion mi konsideris aparte ruza miaflanke.
 
@@ -3895,20 +2962,13 @@ krom mi ŝajnis fikse rigardi la du junulojn. Ankaŭ ĉi tiuj ali-aj homoj subri
 kiam ridegis la junuloj; ĉar la junuloj subridaĉis kaj ridegis kaj ridis preskaŭ senĉese dum la tuta kanto, tial la akcepto estis bonega.
 
 
-T R I V I RO J E N B OATO
-
-
 Tamen tiu germana profesoro ne ŝajnis feliĉa. Unue, kiam
 
-ni komencis ridi, lia mieno registris surpriziĝon kvazaŭ rida-
-
-don li tute ne estus atendinta. Tion ni trovis tre amuza; ni
+ni komencis ridi, lia mieno registris surpriziĝon kvazaŭ ridadon li tute ne estus atendinta. Tion ni trovis tre amuza; ni
 
 diris, ke lia serioza sinteno estas duono de la ŝerco. La plej malgranda aludeto liaflanke, ke li scias, kiel ridinda li estas, estus ĉion ruiniginta. Dum ni daŭre ridis, lia surpriziĝo cedis lokon al esprimo de ĉagreniĝo kaj indigno kaj kun malsere-na vizaĝo li furioze ĉirkaŭrigardis nin ĉiujn (krom la du junuloj, kiujn li ne povis vidi, ĉar ili estis malantaŭ li). Tio nnvulsiigis de ridado. Ni diris unu al alia, ke ĉi tiu afero mortigos nin. Nur la vortoj, ni diris, sufiĉas por meti nin en parok-sismojn de ridado, sed aldonitaj al lia ŝajniga seriozeco — ho, tio estis troa!
 
-En la lasta strofo li superis sin mem. Li nin severege ĉir-
-
-kaŭrigardis per mieno tiel intense furioza, ke se ni ne estus
+En la lasta strofo li superis sin mem. Li nin severege ĉirkaŭrigardis per mieno tiel intense furioza, ke se ni ne estus
 
 antaŭe avertitaj pri la germana maniero de komika kantado,
 
@@ -3924,28 +2984,18 @@ strange estas, ke malgraŭ tiaj faktoj ekzistas ĝenerala ideo, ke mankas al la 
 
 profesoron, kial li ne tradukas anglalingven tiun kanton, por
 
-ke ankaŭ la vulgaraj homoj ĝmprenu kaj aŭdu vere ko-
-
-mikan kanton.
+ke ankaŭ la vulgaraj homoj ĝmprenu kaj aŭdu vere komikan kanton.
 
 Tiam sinjoro Slossenn Boschen stariĝis kaj elverŝis sian
 
-koleron. Li blasfemis al ni en la germana lingvo (kiun mi tak-
-
-sas rimarkinde efika lingvo por tiu celo), li dancis kaj skuis la 92
-
-T R I V I RO J E N B OATO
+koleron. Li blasfemis al ni en la germana lingvo (kiun mi taksas rimarkinde efika lingvo por tiu celo), li dancis kaj skuis la
 
 
-pugnojn, kaj nomis nin ĉio, kion permesis lia scio de la ang-
-
-la lingvo. Li diris, ke neniam en la vivo oni lin tiel insultis.
+pugnojn, kaj nomis nin ĉio, kion permesis lia scio de la angla lingvo. Li diris, ke neniam en la vivo oni lin tiel insultis.
 
 ŝajnas, ke lia kanto tute ne estis komika kanto. i temis pri
 
-junulino, kiu loĝis en la Haremontoj kaj kiu fordonis la vivon por savi la animon de sia amanto; li mortis kaj renkontis ŝian spiriton en la aero; poste, en la fina strofo, li amtrompis ŝian spiriton kaj foriris kun alia spirito — pri la detaloj mi ne estas tute certa, tamen mi scias, ke ĝi estis tre malĝoja. Sinjoro Boschen diris, ke li kantis ĝin foje antaŭ la germana imperiestro, kaj li (la germana imperiestro) ploris kiel malgranda in-
-
-fano. Li (sinjoro Boschen) diris, ke ĝi estas ĝenerale rekona-
+junulino, kiu loĝis en la Haremontoj kaj kiu fordonis la vivon por savi la animon de sia amanto; li mortis kaj renkontis ŝian spiriton en la aero; poste, en la fina strofo, li amtrompis ŝian spiriton kaj foriris kun alia spirito — pri la detaloj mi ne estas tute certa, tamen mi scias, ke ĝi estis tre malĝoja. Sinjoro Boschen diris, ke li kantis ĝin foje antaŭ la germana imperiestro, kaj li (la germana imperiestro) ploris kiel malgranda infano. Li (sinjoro Boschen) diris, ke ĝi estas ĝenerale rekona-
 
 ta kiel unu el la plej tragikaj kaj kortuŝaj kantoj en la germa-na lingvo.
 
@@ -3955,9 +3005,7 @@ estis ia respondo. Ni ĉirkaŭrigardis por trovi la du junulojn, kiuj tion okazi
 
 Tio finigis la kunvenon. Mi neniam vidis kunvenon disiĝi
 
-tiel kviete kaj kun tiel malmulte da ekscito. Ni eĉ ne diris unu al alia bonan nokton. Ni malsupreniris unuope, pagis mallaŭ-
-
-te kaj nin tenis ĉe la ombra flanko. Per flustroj ni petis de la servisto la ĉapelon kaj palton, malfermis mem la pordon, glitis eksteren kaj rapidis al la stratangulo, evitante unu la ali-an kiel eble plej multe.
+tiel kviete kaj kun tiel malmulte da ekscito. Ni eĉ ne diris unu al alia bonan nokton. Ni malsupreniris unuope, pagis mallaŭte kaj nin tenis ĉe la ombra flanko. Per flustroj ni petis de la servisto la ĉapelon kaj palton, malfermis mem la pordon, glitis eksteren kaj rapidis al la stratangulo, evitante unu la ali-an kiel eble plej multe.
 
 De tiam mi ne multe interesiĝas pri germanaj kantoj.
 
@@ -3965,22 +3013,14 @@ Ni atingis la kluzon de Sunbury je duono post la tria. Tie
 
 la rivero estas ĉarme beleta, antaŭ ol vi venas al la pordegoj, kaj la flankakvo estas ĉarma; tamen sur ĝi ne provu remi.
 
-Tion unufoje mi provis. Dum mi remis, mi demandis la di-
-
-rektantojn, ĉu ili opinias, ke tio estas farebla, kaj ili diris, ho 93
-
-T R I V I RO J E N B OATO
+Tion unufoje mi provis. Dum mi remis, mi demandis la direktantojn, ĉu ili opinias, ke tio estas farebla, kaj ili diris, ho
 
 
 jes, ili kredas, ke ni povos, se mi tiros forte. Ni estis ĝuste sub la malgranda piedponto, kiu ĝin trapasas inter la du akvoba-rieroj, kiam ili diris tion, kaj mi kliniĝis super la remiloj, rektiĝis kaj tiris.
 
-Mi tiris bonege. Mi balanciĝis regule kaj ritme. Mi labori-
+Mi tiris bonege. Mi balanciĝis regule kaj ritme. Mi laborigis la brakojn, la krurojn kaj la dorson. Mi min donis al movoj bonaj, rapidaj, viglaj kaj laboris grandioze. Miaj du amikoj
 
-gis la brakojn, la krurojn kaj la dorson. Mi min donis al movoj bonaj, rapidaj, viglaj kaj laboris grandioze. Miaj du amikoj
-
-diris, ke rigardi min estas plezuro. Post kvin minutoj mi kre-
-
-dis, ke ni devus esti preskaŭ proksime de la bariero, kaj mi
+diris, ke rigardi min estas plezuro. Post kvin minutoj mi kredis, ke ni devus esti preskaŭ proksime de la bariero, kaj mi
 
 levis la okulojn. Ni estis sub la ponto en ĝuste la sama loko, kie ni estis kiam mi komencis, kaj tie estis tiuj du idiotoj ma-lutilantaj al si per laŭta ridado. Mi laboregis kiel frenezulo nur por teni la boaton senmova sub tiu ponto. Nun mi lasas al
 
@@ -4000,27 +3040,16 @@ tial ili lasas la riverbordojn al arbaretoj kaj kampoj kaj akvo-provizejoj.
 
 Eĉ Reading, kvankam ĝi faras sian eblon por malbonigi kaj
 
-malpurigi kaj malbeligi tiom de la rivero, kiom ĝi povas atin-
-
-gi, estas sufiĉe bonanima kaj kaŝas la plejparton de sia mal-
+malpurigi kaj malbeligi tiom de la rivero, kiom ĝi povas atingi, estas sufiĉe bonanima kaj kaŝas la plejparton de sia mal-
 
 bela vizaĝo.
 
-Cezaro kompreneble havis restadejon ĉe Walton — tenda-
-
-ron, aŭ reduton, aŭ ion tian. Cezaro estis konstanta vizitan-
+Cezaro kompreneble havis restadejon ĉe Walton — tendaron, aŭ reduton, aŭ ion tian. Cezaro estis konstanta vizitan-
 
 
-T R I V I RO J E N B OATO
+to al la rivero. Ankaŭ reĝino Elizabeto vizitis ĉi tie. Tiun virinon vi neniam povas eviti, iru kien iajn vi volas. Ankaŭ Cromwell kaj Bradshaw (ne la hortabelisto, sed tiu, kiu rilatis kun la kapo de reĝo Karlo I) loĝis tie. Entute ili estis feliĉa kom-panio.
 
-
-to al la rivero. Ankaŭ reĝino Elizabeto vizitis ĉi tie. Tiun virinon vi neniam povas eviti, iru kien iajn vi volas. Ankaŭ Crom-
-
-well kaj Bradshaw (ne la hortabelisto, sed tiu, kiu rilatis kun la kapo de reĝo Karlo I) loĝis tie. Entute ili estis feliĉa kom-panio.
-
-En preĝejo de Walton troviĝas fera ”brido por riproĉuli-
-
-noj”. Tiajn objektojn oni uzis en la antikva tempo por bridi la virinajn langojn. Nun oni jam ĉesis provi tion. Mi supozas, ke la fero fariĝis malabunda, kaj nenio alia estus sufiĉe forta.
+En preĝejo de Walton troviĝas fera ”brido por riproĉulinoj”. Tiajn objektojn oni uzis en la antikva tempo por bridi la virinajn langojn. Nun oni jam ĉesis provi tion. Mi supozas, ke la fero fariĝis malabunda, kaj nenio alia estus sufiĉe forta.
 
 Troviĝas en la preĝejo ankaŭ konataj tomboj kaj mi timis,
 
@@ -4030,9 +3059,7 @@ la remvidpunkto tio vin incitetas kaj kaŭzas disputojn inter
 
 tiu, kiu remas, kaj tiu, kiu direktas.
 
-ĉi tie vi preterpasas sur la dekstra bordo la parkon de Oat-
-
-lands. i estas glora malnova loko. Henriko VIII ĝin ŝtelis de iu aŭ alia, mi nun forgesas de kiu, kaj loĝis tie. Troviĝas en la parko groto, kiun vi povas vidi kontraŭ pago kaj kiu, laŭ oni-diro, estas tre mirinda; tamen nenion gravan en ĝi mi vidis
+ĉi tie vi preterpasas sur la dekstra bordo la parkon de Oatlands. i estas glora malnova loko. Henriko VIII ĝin ŝtelis de iu aŭ alia, mi nun forgesas de kiu, kaj loĝis tie. Troviĝas en la parko groto, kiun vi povas vidi kontraŭ pago kaj kiu, laŭ oni-diro, estas tre mirinda; tamen nenion gravan en ĝi mi vidis
 
 mem. La mortinta dukino de York, kiu loĝis en Oatlands, tre
 
@@ -4042,17 +3069,11 @@ tombejon por ilia enterigo, kiam ili mortis, kaj tie ili kuŝas, ĉirkaŭ kvinde
 
 surskribita.
 
-Nu, estas eble, ke ili meritas tion same kiel ordinara kri-
+Nu, estas eble, ke ili meritas tion same kiel ordinara kristano.
 
-stano.
+ĉe Corway Stakes — la unua kurbo preter la ponto ĉe Walton — interbatalis Cezaro kaj Cassivelaunus. Cassivelaunus la
 
-ĉe Corway Stakes — la unua kurbo preter la ponto ĉe Wal-
-
-ton — interbatalis Cezaro kaj Cassivelaunus. Cassivelaunus la
-
-riveron jam pretigis por Cezaro, ĝin plene priplantis per fostoj 95
-
-T R I V I RO J E N B OATO
+riveron jam pretigis por Cezaro, ĝin plene priplantis per fostoj
 
 
 (kaj alfiksis sendube ankaŭ aviztabulojn). Tamen spite tion
@@ -4061,21 +3082,15 @@ Cezaro transiris. Cezaron oni neniel povis forteni de tiu rive-ro. Tian viron ni
 
 Halliford kaj Shepperton estas ambaŭ beletaj lokoj tie, kie
 
-ili tuŝas la riveron; sed nenio pri unu aŭ la alia estas rimarkinda. Tamen en la preĝeja korto en Shepperton troviĝas tom-
-
-bo, kiu surhavas poemon, kaj mi estis plena de timo, ke Har-
+ili tuŝas la riveron; sed nenio pri unu aŭ la alia estas rimarkinda. Tamen en la preĝeja korto en Shepperton troviĝas tombo, kiu surhavas poemon, kaj mi estis plena de timo, ke Har-
 
 ris eble deziros elboatiĝi kaj tie petoladi. Mi vidis lin turni sopirantajn okulojn al la kajeto, kiam ni alproksimiĝis, sed mi sukcesis per lerta movo skui lian ĉapon en la akvon, kaj li tiel ekscitiĝis ĝin rekaptante kaj tiel indignis pro mia mallerto, ke li tute forgesis pri siaj amataj tomboj.
 
-ĉe Weybridge Wey (beleta rivereto, navigebla de malgran-
-
-daj boatoj ĝis Guildford, kaj kiun esplori mi ĉiam decidiĝadas, sed ankoraŭ neniam esploris), Bourne, kaj Basingstoke-kanalo ĉiuj kune eniras la Tamizon. La kluzo staras ĝuste kon-
+ĉe Weybridge Wey (beleta rivereto, navigebla de malgrandaj boatoj ĝis Guildford, kaj kiun esplori mi ĉiam decidiĝadas, sed ankoraŭ neniam esploris), Bourne, kaj Basingstoke-kanalo ĉiuj kune eniras la Tamizon. La kluzo staras ĝuste kon-
 
 traŭ la urbo kaj la unua objekto, kiun ni vidis, kiam tio videb-liĝis, estis la flanela jako de Georgo sur unu el la kluzaj pordoj kaj pli proksima rigardo montris, ke en ĝi estas Georgo.
 
-Montmorency furioze bojis, mi kriegis, Harris muĝis; Ge-
-
-orgo svingis la ĉapelon kaj kriegis returne. La kluzgardisto
+Montmorency furioze bojis, mi kriegis, Harris muĝis; Georgo svingis la ĉapelon kaj kriegis returne. La kluzgardisto
 
 elkuris kun dragilo kredante, ke iu falis en la riveron, kaj estis ŝajne ĉagrenita, trovante ke neniu falis.
 
@@ -4092,19 +3107,11 @@ okuloj; — ili tute furoras ĉi sezone; ilin havas ĉiuj sur la rivero.
 i estas banĝo.
 
 
-T R I V I RO J E N B OATO
-
-
 —Mi neniam sciis, ke vi ludas banĝon! — Harris kaj mi
 
 kriis, samspire.
 
-—Ne precize, — respondis Georgo: — sed tio estas tre fa-
-
-cila, oni diris al mi; mi havas la lernolibron.
-
-
-T R I V I RO J E N B OATO
+—Ne precize, — respondis Georgo: — sed tio estas tre facila, oni diris al mi; mi havas la lernolibron.
 
 
 ĉapitro IX
@@ -4121,15 +3128,11 @@ malpli da rapido — Trenataj de knabinoj: ekscita sensacio — La mankanta kluz
 
 Akirinte Georgon ni devigis lin labori. Labori li ne volis,
 
-kompreneble. Li jam multe laboris en la urbo, tiel li kla-
-
-rigis. Harris, kiu estas nesentema laŭ sia naturo kaj ne emas
+kompreneble. Li jam multe laboris en la urbo, tiel li klarigis. Harris, kiu estas nesentema laŭ sia naturo kaj ne emas
 
 al kompato, diris:
 
-—Ha! kaj nun vi multe laboros sur la rivero, por fari ŝan-
-
-ĝon; al ĉiuj utilas ŝanĝo. Eliĝu!
+—Ha! kaj nun vi multe laboros sur la rivero, por fari ŝanĝon; al ĉiuj utilas ŝanĝo. Eliĝu!
 
 Li ne povis konscience — eĉ ne kun konscienco, kia tiu de
 
@@ -4137,13 +3140,9 @@ Georgo — kontraŭstari, kvankam li sugestis, ke eble estus pli
 
 bone, se li restus en la boato kaj pretigus la temanĝon, dum
 
-Harris kaj mi trenas, ĉar pretigo de temanĝo estas tre zorgo-
+Harris kaj mi trenas, ĉar pretigo de temanĝo estas tre zorgoplena laboro kaj Harris kaj mi aspektis lacaj. Al tio nia sola respondo estis transdoni al li la trenŝnuron, li ĝin prenis kaj elpaŝis el la boato.
 
-plena laboro kaj Harris kaj mi aspektis lacaj. Al tio nia sola respondo estis transdoni al li la trenŝnuron, li ĝin prenis kaj elpaŝis el la boato.
-
-Pri trenŝnuro estas io stranga kaj neklarigebla. Vi ĝin vol-
-
-vas kun tiom da pacienco kaj zorgo, kiom vi hezonus por
+Pri trenŝnuro estas io stranga kaj neklarigebla. Vi ĝin volvas kun tiom da pacienco kaj zorgo, kiom vi hezonus por
 
 kunfaldi novan pantalonon, kaj post kvin minutoj, kiam vi ĝin
 
@@ -4151,13 +3150,7 @@ levas, ĝi estas jam malbelega, animskua implikaĵo.
 
 Insulti mi ne volas, tamen mi firme kredas, ke se vi prenus
 
-mezan trenŝnuron kaj etendus ĝin rekte tra la mezo de kam-
-
-
-T R I V I RO J E N B OATO
-
-
-po kaj poste turnus al ĝi la dorson dum tridek sekundoj, vi
+mezan trenŝnuron kaj etendus ĝin rekte tra la mezo de kampo kaj poste turnus al ĝi la dorson dum tridek sekundoj, vi
 
 trovus, rerigardanite, ke ĝi jam kolektis sin en amason meze
 
@@ -4167,13 +3160,9 @@ plenan duonhoron, sidante tie sur la herbo kaj blasfemante
 
 la tutan tempon, por ĝin denove malimpliki.
 
-Jen mia opinio pri trenŝnuroj ĝenerale. Povas komprene-
+Jen mia opinio pri trenŝnuroj ĝenerale. Povas kompreneble esti, ke troviĝas ankaŭ honorindaj esceptoj; mi ne diras,
 
-ble esti, ke troviĝas ankaŭ honorindaj esceptoj; mi ne diras,
-
-ke ne. Povas esti, ke troviĝas trenŝnuroj, kiuj alportas hon-
-
-oron al sia profesio — konsciencaj, respektindaj trenŝnuroj —
+ke ne. Povas esti, ke troviĝas trenŝnuroj, kiuj alportas honoron al sia profesio — konsciencaj, respektindaj trenŝnuroj —
 
 trenŝnuroj, kiuj ne imagas sin kroĉtrikaĵo kaj ne penas triki
 
@@ -4187,24 +3176,15 @@ en la mezo, ĝin faldis kaj zorge demetis en la fundon de la
 
 boato. Harris ĝin levis science kaj enmetis en la manon de
 
-Georgo. Georgo ĝin prenis firme, tenis ĝin for de si kaj kom-
+Georgo. Georgo ĝin prenis firme, tenis ĝin for de si kaj komencis ĝin malvolvi kvazaŭ li demetus vindaĵon de nove naski-
 
-encis ĝin malvolvi kvazaŭ li demetus vindaĵon de nove naski-
-
-ta infano; antaŭ ol li malvolvis dek metrojn, ĝi jam pli simi-
-
-lis malbone faritan pordtapiŝeton ol ion alian. Tiel ĉiam es-
+ta infano; antaŭ ol li malvolvis dek metrojn, ĝi jam pli similis malbone faritan pordtapiŝeton ol ion alian. Tiel ĉiam es-
 
 tas kaj la samo ĉiam okazas kun ĝi. La viro sur la bordo, kiu
 
 penas ĝin malimpliki, pensas, ke la tuta kulpo apartenas al la viro, kiu ĝin volvis; kiam riverulo pensas ion, li eldiras tion.
 
-—Kion vi penis fari el ĝi, ĉu fiŝkaptan reton? Ja belan fuŝa-
-
-ĵon vi faris; kial vi ne volvis ĝin ĝuste, stulta ŝtipo? — li elgrun-tas de tempo al tempo, furioze baraktante kun ĝi, kaj metas
-
-
-T R I V I RO J E N B OATO
+—Kion vi penis fari el ĝi, ĉu fiŝkaptan reton? Ja belan fuŝaĵon vi faris; kial vi ne volvis ĝin ĝuste, stulta ŝtipo? — li elgrun-tas de tempo al tempo, furioze baraktante kun ĝi, kaj metas
 
 
 ĝin plata sur la bordvojon kaj ĉirkaŭkuras ĝin penante trovi
@@ -4221,17 +3201,13 @@ Ili sentas sin tiel koleraj unu al la alia, ke ili volonte pendigus unu la alian
 
 kaj la unua viro eligas kriegon kaj freneziĝas, dancas sur la
 
-ŝnuro kaj penas tiri ĝin rekta, kaptas la unuan pecon, kiu ve-
-
-nas al lia mano, kaj ĝin tiregas. Tio kompreneble ĝin nur im-
+ŝnuro kaj penas tiri ĝin rekta, kaptas la unuan pecon, kiu venas al lia mano, kaj ĝin tiregas. Tio kompreneble ĝin nur im-
 
 plikas pli ol antaŭe. Tiam la dua viro grimpas el la boato kaj venas por helpi lin, ili baras sian vojon kaj malhelpas unu la alian. Ili ambaŭ prenas la saman pecon de ŝnuro, ĝin tiras en
 
 kontraŭaj direktoj kaj miras, ke io haltigas ĝin. Fine ili liberi-gas ĝin kaj tiam ili sin turnas kaj trovas, ke la boato jam for-naĝis kaj veturas rekte al la akvobariero.
 
-Tio foje fakte okazis, laŭ mia propra scio. Estis apud Bove-
-
-ney, iun matenon iom ventan. Ni remadis laŭflue, kaj, ĉir-
+Tio foje fakte okazis, laŭ mia propra scio. Estis apud Boveney, iun matenon iom ventan. Ni remadis laŭflue, kaj, ĉir-
 
 kaŭirinte la kurbon, ni rimarkis du virojn sur la bordo. Ili estis rigardantaj unu la alian kun la plej konfuzita kaj senhelpe
 
@@ -4241,31 +3217,20 @@ vizaĝo, kaj ili tenis inter si longan trenŝnuron. Estis klare, ke io okazis, n
 
 —Jen, nia boato foriris! — ili respondis per indigna tono. —
 
-Ni eliris nur por malimpliki la trenŝnuron kaj kiam ni rigar-
-
-dis, ĝi estis for!
+Ni eliris nur por malimpliki la trenŝnuron kaj kiam ni rigardis, ĝi estis for!
 
 ŝajne ilin dolorigis tio, kion ili evidente konsideris kiel malnobla kaj sendanka ago flanke de la boato.
-
-
-T R I V I RO J E N B OATO
 
 
 Ni trovis por ili la forkurinton duonmejlon for, tenata de
 
 junkoj, kaj ni reportis ĝin al ili. Mi vetus, ke pluan ŝancon ili tute ne donis al tiu boato dum semajno.
 
-Mi neniam forgesos la bildon de tiuj du viroj promenan-
+Mi neniam forgesos la bildon de tiuj du viroj promenantaj tien kaj reen kun trenŝnuro sur la bordo kaj serĉantaj sian boaton.
 
-taj tien kaj reen kun trenŝnuro sur la bordo kaj serĉantaj sian boaton.
+Oni vidas sur la rivero multajn amuzaĵojn rilataj al trenado. Unu el la plej kutimaj estas la vido de paro da trenantoj, vigle marŝantaj antaŭen, enprofundiĝintaj en viglan diskuton,
 
-Oni vidas sur la rivero multajn amuzaĵojn rilataj al trena-
-
-do. Unu el la plej kutimaj estas la vido de paro da trenantoj, vigle marŝantaj antaŭen, enprofundiĝintaj en viglan diskuton,
-
-dum la viro en la boato, cent metrojn post ili, vane kriegas, ke ili haltu, kaj per remilo freneze signalas sian angoron. Io mal-
-
-ĝustiĝis; la direktilo malfiksiĝis aŭ la hokstango forglitis, aŭ lia ĉapelo falis en la akvon kaj rapide nagas laŭflue for. Li vokas, ke ili haltu, komence tute milde kaj ĝentile.
+dum la viro en la boato, cent metrojn post ili, vane kriegas, ke ili haltu, kaj per remilo freneze signalas sian angoron. Io malĝustiĝis; la direktilo malfiksiĝis aŭ la hokstango forglitis, aŭ lia ĉapelo falis en la akvon kaj rapide nagas laŭflue for. Li vokas, ke ili haltu, komence tute milde kaj ĝentile.
 
 —He! Haltu momenton, mi petas! — li krias indiferente.
 
@@ -4284,20 +3249,11 @@ Post tio li salte leviĝas kaj ĉirkaŭdancas, kriegas, ĝis lia vi-zaĝo ruĝi�
 La plejparto de tiaspecaj malfacilaĵoj estus evitita, se tiuj, kiuj trenas, tenus en la memoro tion, ke ili trenas, kaj rigardus sufiĉe ofte por vidi, kiel fartas la trenato. Estas plej bone lasi la trenadon al unu viro. Kiam du trenas, ili komencas
 
 
-T R I V I RO J E N B OATO
+interbabili kaj forgesas, kaj la boato mem fakte nur malmulte rezistante ne multe servas por rememorigi ilin.
 
+Donante ekzemplon, kiel forgesema povas esti paro da trenantoj, Georgo rakontis al ni pli malfrue en la vespero, kiam
 
-interbabili kaj forgesas, kaj la boato mem fakte nur malmul-
-
-te rezistante ne multe servas por rememorigi ilin.
-
-Donante ekzemplon, kiel forgesema povas esti paro da tre-
-
-nantoj, Georgo rakontis al ni pli malfrue en la vespero, kiam
-
-post la vespermanĝo ni diskutis la temon, tre strangan oka-
-
-zintaĵon.
+post la vespermanĝo ni diskutis la temon, tre strangan okazintaĵon.
 
 Li kaj tri aliaj viroj, tiel li diris, iun vesperon estis remantaj tre peze ŝarĝitan boaton kontraŭflue de Maidenhead. Iom
 
@@ -4307,33 +3263,22 @@ kiuj promenis sur la bordvojeto, ambaŭ enprofundiĝintaj en
 
 ŝajne interesa kaj absorba interparolo. Ili portis inter si hokstangon kaj fiksita al la hokstango estis trenŝnuro, kiu treniĝis post ili kun la fino en la akvo. Neniu boato estis apude, neniu boato estis videbla. Devas esti, ke iam boato estis ligita al tiu trenŝnuro, tio estis certa; sed kio okazis al ĝi, kia terura sorto trafis ĝin kaj tiujn, kiuj restis en ĝi, tio estis kaŝita en mistero. Kio ajn estis la malfeliĉo, ĝi neniel ĝenis la junajn gesinjorojn, kiuj estis trenantaj. Ili havis la hokstangon kaj ili havis la ŝnuron, kaj tio ŝajnis ĉio, kion ili kredis necesa por ilia laboro.
 
-Georgo estis krionta por veki ilin, sed en tiu momento eni-
+Georgo estis krionta por veki ilin, sed en tiu momento eniris lian menson brila penso kaj li ne kriis. Li anstataŭe prenis la alkroĉilon, klinis sin antaŭen kaj entiris la finon de la trenŝ-
 
-ris lian menson brila penso kaj li ne kriis. Li anstataŭe prenis la alkroĉilon, klinis sin antaŭen kaj entiris la finon de la trenŝ-
+nuro; li faris en ĝi maŝon, metis ĝin ĉirkaŭ sian maston, ordigis la remilojn, iris sidiĝi en la malantaŭo kaj bruligis sian pipon.
 
-nuro; li faris en ĝi maŝon, metis ĝin ĉirkaŭ sian maston, or-
-
-digis la remilojn, iris sidiĝi en la malantaŭo kaj bruligis sian pipon.
-
-Tiuj du gejunuloj trenis tiujn kvar dikkorpajn ulojn kaj pe-
-
-zan boaton ĝis Marlow.
+Tiuj du gejunuloj trenis tiujn kvar dikkorpajn ulojn kaj pezan boaton ĝis Marlow.
 
 Georgo diris, ke li neniam antaŭe vidis tiom da pensema
 
 malĝojo koncentrigita en unu rigardo, kiel en la momento,
 
 
-T R I V I RO J E N B OATO
-
-
 kiam ĉe la kluzo tiuj junaj geamantoj komprenis, ke dum la
 
 lastaj du mejloj ili trenis malĝustan boaton. Georgo kredis, ke se ne estus la detenanta influo de la juna virino ĉe lia flanko, la juna viro eble sin donus al forta lingvaĵo.
 
-La junulino kiel unua revenis el sia surpriziĝo, kaj revenin-
-
-te, ŝi interplektis la manojn kaj diris, freneze:
+La junulino kiel unua revenis el sia surpriziĝo, kaj reveninte, ŝi interplektis la manojn kaj diris, freneze:
 
 —Ho, Henriko, kie do estas onklinjo?
 
@@ -4341,44 +3286,30 @@ te, ŝi interplektis la manojn kaj diris, freneze:
 
 Georgo respondis, ke li ne scias.
 
-Alian ekzemplon de danĝera manko de simpatio inter tre-
+Alian ekzemplon de danĝera manko de simpatio inter trenanto kaj trenato vidis Georgo kaj mi foje apud Walton. Oka-
 
-nanto kaj trenato vidis Georgo kaj mi foje apud Walton. Oka-
-
-zis tie, kie la bordvojeto grade deklivas malsupren ĝis la akvo, dum ni tendumis sur la kontraŭa bordo kaj observis la mondon ĝenerale, ke baldaŭ aperis malgranda boato trenata ra-
-
-pidege tra la akvo de forta boatĉevalo, sur kiu sidis tre mal-
+zis tie, kie la bordvojeto grade deklivas malsupren ĝis la akvo, dum ni tendumis sur la kontraŭa bordo kaj observis la mondon ĝenerale, ke baldaŭ aperis malgranda boato trenata rapidege tra la akvo de forta boatĉevalo, sur kiu sidis tre mal-
 
 granda knabo. En la boato kvin viroj kuŝis dise en revemaj kaj ripozemaj pozoj; precipe la direktanto havis trankvilan aspekton.
 
-—Mi ŝatus vidi lin tiri la malĝustan ŝnuron, — murmure-
-
-tis Georgo, dum ili preterpasis. uste en tiu momento li tion
+—Mi ŝatus vidi lin tiri la malĝustan ŝnuron, — murmuretis Georgo, dum ili preterpasis. uste en tiu momento li tion
 
 faris kaj la boato rapidis sur la bordon kun tia bruo, kiel se ariĝus kvardek mil lintolaĵoj. Du viroj, korbego kaj tri remiloj tuj forlasis la boaton maldekstre kaj kuŝiĝis sur la bordo, post unu kaj duona momento aliaj du viroj elboatiĝis dekstre
 
-kaj sidiĝis meze de hokstangoj kaj veloj kaj valizoj kaj bote-
-
-loj. La restinto pluiris ankoraŭ dudek metrojn kaj tiam eliris kapantaŭen.
+kaj sidiĝis meze de hokstangoj kaj veloj kaj valizoj kaj boteloj. La restinto pluiris ankoraŭ dudek metrojn kaj tiam eliris kapantaŭen.
 
 Tio ŝajnis tiel malpezigi la boaton, ke ĝi pluiris pli facile, dum la knabeto kriadis plenvoĉe kaj galopigis la ĉevalon. La
 
-viroj rektiĝis kaj gapis al si reciproke. Pasis kelkaj sekundoj 103
-
-T R I V I RO J E N B OATO
+viroj rektiĝis kaj gapis al si reciproke. Pasis kelkaj sekundoj
 
 
 antaŭ ol ili konstatis, kio okazis al ili kaj, konstatinte tion, ili komencis krii plengorĝe al la knabo, ke li haltu. Li estis tamen tro okupita per la ĉevalo por aŭdi ilin, kaj ni rigardis ilin post-kuri lin ĝis la malproksimo kaŝis ilin de la vido.
 
 Mi ne povas diri, ke mi bedaŭris ilian malfeliĉon. Fakte, mi
 
-nur volas, ke similajn malfeliĉojn renkontu ĉiuj junaj malsa-
+nur volas, ke similajn malfeliĉojn renkontu ĉiuj junaj malsaĝuloj, kiuj tiamaniere trenigas siajn boatojn — kaj multaj tion faras. Krom la danĝero, al kiu ili sin submetas, ili estas mem danĝero kaj ĝeno por ĉiu alia boato, kiun ili preterpasas. Ve-turante tiel rapide ili tute ne povas moviĝi el la vojo de iu alia, nek povas iu alia boato moviĝi el ilia vojo. Ilia ŝnuro alkroĉi-
 
-ĝuloj, kiuj tiamaniere trenigas siajn boatojn — kaj multaj tion faras. Krom la danĝero, al kiu ili sin submetas, ili estas mem danĝero kaj ĝeno por ĉiu alia boato, kiun ili preterpasas. Ve-turante tiel rapide ili tute ne povas moviĝi el la vojo de iu alia, nek povas iu alia boato moviĝi el ilia vojo. Ilia ŝnuro alkroĉi-
-
-ĝas trans via masto, vin renversas, aŭ ĝi kaptas iun en la bo-
-
-ato, kaj aŭ ĵetas tiun en la akvon aŭ tranĉas al li la vizaĝon. La plej bona rimedo estas ne cedi kaj pretiĝi por bati ilin per la malantaŭo de la masto.
+ĝas trans via masto, vin renversas, aŭ ĝi kaptas iun en la boato, kaj aŭ ĵetas tiun en la akvon aŭ tranĉas al li la vizaĝon. La plej bona rimedo estas ne cedi kaj pretiĝi por bati ilin per la malantaŭo de la masto.
 
 El ĉiuj spertoj rilate al trenado la plej ekscita estas esti trenata de knabinoj. Tian sensacion neniu devus preterlasi. Por
 
@@ -4386,21 +3317,13 @@ treni boaton ĉiam necesas tri knabinoj; du tenas la ŝnuron kaj la tria ĉirka�
 
 sukcesas interplektiĝi. La ŝnuro sin volvas ĉirkaŭ iliaj kruroj, ili devas sidiĝi sur la vojeto kaj malligi unu la alian, ili volvas
 
-ĝin ĉirkaŭ la kolon kaj preskaŭ sufokiĝas. Fine tamen ili rek-
-
-tigas la ŝnuron kaj kuras, trenante la boaton kun tute danĝera rapideco. Kurinte cent metrojn ili nature estas senspiraj kaj
+ĝin ĉirkaŭ la kolon kaj preskaŭ sufokiĝas. Fine tamen ili rektigas la ŝnuron kaj kuras, trenante la boaton kun tute danĝera rapideco. Kurinte cent metrojn ili nature estas senspiraj kaj
 
 subite haltas, ĉiuj sidiĝas sur la herbo kaj ridas, kaj via boa-to fornaĝas ĝis la mezo de la rivero kaj turnas sin, antaŭ ol vi scias, kio okazis aŭ povas preni remilon. Tiam ili stariĝas, tute surprizitaj.
 
 —Ho, rigardu! — ili diras; — li foriris tute ĝis la mezo.
 
-Post tio ili kelkan tempon trenas sufiĉe regule, kiam subi-
-
-
-T R I V I RO J E N B OATO
-
-
-te unu el ili ekpensas, ke ŝi pingle fiksos la robon, kaj tiucele ili haltas kaj la boato alteriĝas.
+Post tio ili kelkan tempon trenas sufiĉe regule, kiam subite unu el ili ekpensas, ke ŝi pingle fiksos la robon, kaj tiucele ili haltas kaj la boato alteriĝas.
 
 Vi salte Ieviĝas kaj ĝin forpuŝas kaj krias, ke ili ne haltu.
 
@@ -4429,9 +3352,6 @@ komprenas — ne haltu.
 iom da rapideco.
 
 
-T R I V I RO J E N B OATO
-
-
 —Necesas kio?
 
 —Rapideco — vi devas daŭre antaŭentreni la boaton.
@@ -4444,17 +3364,13 @@ T R I V I RO J E N B OATO
 
 malfacila.
 
-—Ho, ne, tio estas simpla. Vi bezonas nur daŭrigi tion sen-
-
-halte, jen ĉio.
+—Ho, ne, tio estas simpla. Vi bezonas nur daŭrigi tion senhalte, jen ĉio.
 
 —Mi komprenas. Donu al mi mian ruĝan ŝalon, ĝi kuŝas
 
 sub la kuseno.
 
-Vi trovas la ŝalon kaj ĝin enmanigas al ŝi kaj jam alia reve-
-
-nis kaj pensas, ke ankaŭ ŝi havos la sian, kaj ili kunprenas
+Vi trovas la ŝalon kaj ĝin enmanigas al ŝi kaj jam alia revenis kaj pensas, ke ankaŭ ŝi havos la sian, kaj ili kunprenas
 
 ankaŭ la ŝalon de Mary hazardcele, sed Mary ne volis ĝin, tial ili reportas ĝin kaj prenas kombilon anstataŭe. Forpasas ĉir-kaŭ dudek minutoj antaŭ ol ili denove ekiras kaj ĉe la plej
 
@@ -4477,14 +3393,9 @@ Ni ĉiuj tamen bedaŭris poste, ke ni ne haltis ĉe Penton
 Hook. Veturigi boaton tri-kvar mejlojn estas bagatelo frue en
 
 
-T R I V I RO J E N B OATO
-
-
 la malteno, sed tio estas laciga laboro en la fino de longa tago.
 
-Nenian intereson havas por vi la pejzaĝo dum tiuj lastaj kel-
-
-kaj mejloj. Vi nek babilas nek ridas. ĉiu duonmejlo, kiun vi
+Nenian intereson havas por vi la pejzaĝo dum tiuj lastaj kelkaj mejloj. Vi nek babilas nek ridas. ĉiu duonmejlo, kiun vi
 
 trapasas, ŝajnas kiel du. Vi apenaŭ povas kredi, ke vi estas
 
@@ -4494,9 +3405,7 @@ kiu ŝajnas al vi almenaŭ dek mejloj kaj la kluzo ankoraŭ ne
 
 videbliĝas, vi pensas senŝerce, ke sendube ili forŝtelis ĝin kaj forkuris kun ĝi.
 
-Mi memoras, kiel foje sur la rivero mi terure maltrankvili-
-
-ĝis. Mi estis tie kun junulino — kuzino ĉe la patrina flanko —
+Mi memoras, kiel foje sur la rivero mi terure maltrankviliĝis. Mi estis tie kun junulino — kuzino ĉe la patrina flanko —
 
 kaj ni estis remantaj al Goring. Estis iom malfrue kaj ni tre
 
@@ -4531,24 +3440,15 @@ minutoj, kaj tiam mi ŝin petis, ke ŝi rigardu denove.
 — mi demandis heziteme, ne volante ŝin ofendi.
 
 
-T R I V I RO J E N B OATO
-
-
-La demando tamen ŝin ne ofendis kaj ŝi proponis, ke pre-
-
-fere mi rigardu mem; mi do demetis la remilojn kaj rigardis.
+La demando tamen ŝin ne ofendis kaj ŝi proponis, ke prefere mi rigardu mem; mi do demetis la remilojn kaj rigardis.
 
 La rivero etendiĝis en la krepusko ĉirkaŭ unu mejlon rekte
 
 antaŭ ni; eĉ ne ombro de kluzo estis videbl!a.
 
-—Vi ne opinias, ke ni devojiĝis, ĉu? demandis mia kunuli-
+—Vi ne opinias, ke ni devojiĝis, ĉu? demandis mia kunulino.
 
-no.
-
-Mi ne vidis, kiel tio povus esti; kvankam, kiel mi kompre-
-
-nis, ni eble iel eniris flankan rivereton kaj nun iras rekte al la akvofalo.
+Mi ne vidis, kiel tio povus esti; kvankam, kiel mi komprenis, ni eble iel eniris flankan rivereton kaj nun iras rekte al la akvofalo.
 
 ŝin tute ne konsolis tiu ideo kaj ŝi ekploris. ŝi diris, ke ni ambaŭ dronos, ke tio estas puno al ŝi pro tio, ke ŝi boatpromenis kun mi.
 
@@ -4560,13 +3460,9 @@ Mi penis kuraĝigi ŝin kaj priridis la tutan aferon. Mi diris,
 
 ke evidente mi ne remis tiel rapide, kiel mi kredis, sed ke nun la kluzon ni baldaŭ atingos kaj mi remis ankoraŭ mejlon.
 
-Tiam mi ektimis mem. Ankoraŭfoje mi rigardis la landkar-
+Tiam mi ektimis mem. Ankoraŭfoje mi rigardis la landkarton. Jen estis la kluzo ĉe Wallingford, klare signita, je mejlo kaj duono malsupre de la kluzo de Benson. i estis bona, fi-dinda landkarto; cetere, la kluzon mi memoris. Mi ĝin jam
 
-ton. Jen estis la kluzo ĉe Wallingford, klare signita, je mejlo kaj duono malsupre de la kluzo de Benson. i estis bona, fi-dinda landkarto; cetere, la kluzon mi memoris. Mi ĝin jam
-
-trapasis dufoje. Kie ni estas? Kio okazis al ni? Mi pensis, ke ĉio estas nur sonĝo kaj ke fakte mi nur dormas en la lito kaj veki-
-
-ĝos post minuto kaj oni diros al mi, ke estas jam post la deka.
+trapasis dufoje. Kie ni estas? Kio okazis al ni? Mi pensis, ke ĉio estas nur sonĝo kaj ke fakte mi nur dormas en la lito kaj vekiĝos post minuto kaj oni diros al mi, ke estas jam post la deka.
 
 Mi demandis mian kuzinon, ĉu ŝi kredas, ke ĝi estas sonĝo,
 
@@ -4574,21 +3470,13 @@ kaj ŝi respondis, ke ŝi estis faronta al mi la saman demandon; tiam ni ambaŭ 
 
 jes, kiu vere sonĝas, kaj kiu estas tiu, kiu estas nur sonĝo; tio fariĝis interesa.
 
-Mi tamen daŭre remadis, sed ankoraŭ nenia kluzo videb-
-
-
-T R I V I RO J E N B OATO
-
-
-liĝis, la rivero fariĝis pli kaj pli malhela kaj mistera sub la amasiĝantaj ombroj de la nokto kaj ĉio ŝajnis stranga kaj nenatura. Mi pensis pri koboldoj kaj fantomoj kaj erarlumoj, tiuj malbonaj knabinoj, kiuj sidas vekaj la tutan nokton sur la
+Mi tamen daŭre remadis, sed ankoraŭ nenia kluzo videbliĝis, la rivero fariĝis pli kaj pli malhela kaj mistera sub la amasiĝantaj ombroj de la nokto kaj ĉio ŝajnis stranga kaj nenatura. Mi pensis pri koboldoj kaj fantomoj kaj erarlumoj, tiuj malbonaj knabinoj, kiuj sidas vekaj la tutan nokton sur la
 
 rokoj kaj logas la homojn en turnakvojn kaj simile; kaj mi
 
 bedaŭris, ke mi ne estis pli bona homo kaj ne konas pli da
 
-himnoj. Meze de ĉi tiuj pensoj mi aŭdis la benatajn muzikso-
-
-nojn de ”Li ilin surhavas” ludata malbone per akordioneto kaj
+himnoj. Meze de ĉi tiuj pensoj mi aŭdis la benatajn muziksonojn de ”Li ilin surhavas” ludata malbone per akordioneto kaj
 
 sciis, ke ni estas savitaj.
 
@@ -4600,26 +3488,19 @@ bela ol povus soni la voĉo de Orfeo aŭ la liuto de Apolono aŭ
 
 io tia. ĉiela muziko, en nia tiama spiritstato, estus nin nur pli turmentinta. Animtuŝan harmonion, ĝuste ludatan, ni estus
 
-interpretintaj kiel demonan averton kaj estus tute malesperi-
-
-ĝintaj. Sed en la sonoj de ”Li ilin surhavas”, spasme eligataj, kun nevolaj variantoj el bruspira akordiono, estis io neordi-nare homa kaj kuraĝiga.
+interpretintaj kiel demonan averton kaj estus tute malesperiĝintaj. Sed en la sonoj de ”Li ilin surhavas”, spasme eligataj, kun nevolaj variantoj el bruspira akordiono, estis io neordi-nare homa kaj kuraĝiga.
 
 La ĉarmaj sonoj alproksimiĝis kaj baldaŭ la boato, en kiu
 
 ili produktiĝis, alflankiĝis.
 
-i enhavis grupon de provincaj plebanoj, boate prome-
-
-nantaj sub la lunlumo. (La luno ne montriĝis, sed tio ne es-
+i enhavis grupon de provincaj plebanoj, boate promenantaj sub la lunlumo. (La luno ne montriĝis, sed tio ne es-
 
 tis ilia kulpo). Neniam en la vivo mi vidis pli allogajn, amindajn homojn. Mi salutis ilin kaj demandis, ĉu ili povas diri al ni la vojon al la kluzo de Wallingford; mi klarigis, ke jam de du horoj mi ĝin serĉas.
 
 —La kluzo ĉe Wallingford! — ili respondis. — Dio vin benu,
 
 sinjoro. in oni forigis antaŭ pli ol unu jaro. Ne estas kluzo nun ĉe Wallingford, sinjoro. Vi estas nun proksime de Cleeve.
-
-
-T R I V I RO J E N B OATO
 
 
 La diablo min prenu, jen estas sinjoro serĉanta la kluzon ĉe
@@ -4639,9 +3520,6 @@ el Faŭsto kaj malgraŭ ĉio alvenis hejmen ĝustatempe por la
 vespermanĝo.
 
 
-T R I V I RO J E N B OATO
-
-
 ĉapitro X
 
 Nia unua nokto — Sub kanvaso — Peto por helpo —
@@ -4658,9 +3536,7 @@ nokto
 
 Harris kaj mi pensis, ke sendube tiel same estas forigita
 
-ankaŭ la kluzo ĉe la Bell-akvobariero. Georgo jam tre-
-
-nis nin ĝis Staines kaj de tie la boaton ni trenis mem kaj ŝajnis, ke ni trenas post ni kvindek tunojn kaj marŝis kvardek
+ankaŭ la kluzo ĉe la Bell-akvobariero. Georgo jam trenis nin ĝis Staines kaj de tie la boaton ni trenis mem kaj ŝajnis, ke ni trenas post ni kvindek tunojn kaj marŝis kvardek
 
 mejlojn. Estis duono post la sepa, kiam ni trapasis la kluzon, kaj tiam ni ĉiuj enboatiĝis kaj remis tute apud la maldekstra
 
@@ -4670,21 +3546,12 @@ Unue ni intencis iri ĝis la insulo Magna Carta, ĉarme bela
 
 parto de la rivero, kie ĝi serpentumas en mola, verda valo, por tendumi en unu el la multaj pitoreskaj golfetoj troveblaj ĉir-kaŭ tiu eta bordo. Tamen iel ni ne sentis, ke nun ni sopiras al la pitoreska tiom, kiom ni sopiris pli frue en la tago. Tiunokte nin estus kontentiginta akvo inter karboboato kaj gasproduk-tejo. Ni ne deziris pejzaĝon. Ni deziris manĝi vespermanĝon
 
-kaj enlitiĝi. Ni tamen antaŭeniris ĝis la pinto — ”Piknika Pin-to” oni ĝin nomas — kaj haltis en tre plaĉa angulo sub gran-
+kaj enlitiĝi. Ni tamen antaŭeniris ĝis la pinto — ”Piknika Pin-to” oni ĝin nomas — kaj haltis en tre plaĉa angulo sub granda ulmo, al kies etendiĝantaj radikoj ni ligis la boaton.
 
-da ulmo, al kies etendiĝantaj radikoj ni ligis la boaton.
-
-Tiam ni pensis, ke ni manĝos la vespermanĝon (ni jam sen-
-
-igis nin de la temanĝo por ŝpari tempon), sed Georgo diris ne; 111
+Tiam ni pensis, ke ni manĝos la vespermanĝon (ni jam senigis nin de la temanĝo por ŝpari tempon), sed Georgo diris ne;
 
 
-T R I V I RO J E N B OATO
-
-
-ke prefere unue ni alfiksu la kanvason, antaŭ ol tute mallumi-
-
-ĝos, kaj dum ni povas vidi, kion ni faras. Tiam, li diris, nia tuta laboro estos finita kaj ni povos sidiĝi kun trankvila animo.
+ke prefere unue ni alfiksu la kanvason, antaŭ ol tute mallumiĝos, kaj dum ni povas vidi, kion ni faras. Tiam, li diris, nia tuta laboro estos finita kaj ni povos sidiĝi kun trankvila animo.
 
 La fiksado de tiu kanvaso estis pli malfacila, mi kredas, ol
 
@@ -4693,18 +3560,13 @@ iu el ni atendis. i ŝajnis simpla en la abstrakto. Oni prenas kvin ferajn arka�
 minutojn, ni kredis.
 
 
-T R I V I RO J E N B OATO
-
-
 Tio estis malĝusta takso.
 
 Ni prenis la duonringegojn kaj lasis ilin fali en la ingojn
 
 pretigitajn por ili. Tion vi ne imagas danĝera laboro; tamen
 
-nun, rerigardante, mi miras, ke iu el ni ankoraŭ vivas por ra-
-
-konti, kio okazis. Ne duonringegoj ili estis, ili estis demonoj.
+nun, rerigardante, mi miras, ke iu el ni ankoraŭ vivas por rakonti, kio okazis. Ne duonringegoj ili estis, ili estis demonoj.
 
 Unue ili tute ne volis fiksiĝi en siaj ingoj kaj ni devis salti sur ilin, piedbati kaj marteli ilin per la hokstango; kiam fine ili eniĝis, ni trovis, ke ili ne estas la ĝustaj duonringegoj por tiuj ingoj kaj ke ili devos do ree eliĝi.
 
@@ -4714,31 +3576,17 @@ ili kvin minutojn, kiam ili subite saltis kaj penis ĵeti nin en la akvon kaj dr
 
 duonringego kaj penis ĝnsentigi al sia devo, la alia flanko friponule sin ŝovis malantaŭ nin kaj nin frapis sur la kapo.
 
-Fine ni sukcesis fiksi ilin kaj tiam bezonis nur aranĝi la ko-
+Fine ni sukcesis fiksi ilin kaj tiam bezonis nur aranĝi la kovrilon super ili. Georgo malvolvis ĝin kaj fiksis unu finaĵon sur la antaŭon de la boato. Harris staris en la mezo por preni ĝin de Georgo kaj ruli ĝin al mi kaj mi restis ĉe la malantaŭo por
 
-vrilon super ili. Georgo malvolvis ĝin kaj fiksis unu finaĵon sur la antaŭon de la boato. Harris staris en la mezo por preni ĝin de Georgo kaj ruli ĝin al mi kaj mi restis ĉe la malantaŭo por
+ĝin ricevi. Pasis Ionga tempo kaj ĝi ankoraŭ ne venis. Georgo bone faris sian parton, sed por Harris la laboro estis nova kaj li fuŝis ĝin.
 
-ĝin ricevi. Pasis Ionga tempo kaj ĝi ankoraŭ ne venis. Geor-
+Kiel li faris tion, mi ne scias, li ne povis mem klarigi; sed en iu aŭ alia mistera metodo li sukcesis, post dek minutoj de su-perhoma penado, tute volviĝi en ĝi. Li estis tiel firme ĉirkaŭvolvita kaj enfaldita kaj surkovrita, ke li ne povis eliĝi. Li kompreneble baraktis freneze por la libereco — la naskorajto de
 
-go bone faris sian parton, sed por Harris la laboro estis nova kaj li fuŝis ĝin.
-
-Kiel li faris tion, mi ne scias, li ne povis mem klarigi; sed en iu aŭ alia mistera metodo li sukcesis, post dek minutoj de su-perhoma penado, tute volviĝi en ĝi. Li estis tiel firme ĉirkaŭ-
-
-volvita kaj enfaldita kaj surkovrita, ke li ne povis eliĝi. Li kompreneble baraktis freneze por la libereco — la naskorajto de
-
-ĉiu anglo — kaj tion farante (mi eksciis poste) renversis Ge-
-
-
-T R I V I RO J E N B OATO
-
-
-orgon; tiam ankaŭ Georgo, blasfemante kontraŭ Harris, kom-
+ĉiu anglo — kaj tion farante (mi eksciis poste) renversis Georgon; tiam ankaŭ Georgo, blasfemante kontraŭ Harris, kom-
 
 encis barakti kaj ankaŭ li fariĝis ĉirkaŭvolvita kaj kunfaldita.
 
-Pri ĉio ĉi mi sciis nenion tiutempe. La aferon mi ne kom-
-
-prenis mem. Oni ordonis, ke mi restu, kie mi estas, kaj aten-
+Pri ĉio ĉi mi sciis nenion tiutempe. La aferon mi ne komprenis mem. Oni ordonis, ke mi restu, kie mi estas, kaj aten-
 
 du ĝis la kanvaso venos al mi; Montmorency kaj mi staris tie
 
@@ -4773,18 +3621,13 @@ Sur la rivero tio estas la sola rimedo por boligi kaserolon.
 Se ĝi vidas, ke vi atendas ĝin kaj malpaciencias, la akvo neni-am eĉ komencos boli. Vi devas foriri kaj komenci la manĝon,
 
 
-T R I V I RO J E N B OATO
-
-
 kvazaŭ vi tute ne intencus trinki teon. Vi devas eĉ ne rerigardi al ĝi. Tiam vi baldaŭ aŭdos ĝin ŝpruceti kaj freneze deziri, ke oni faru el ĝi teon.
 
 Estas same bona plano, se tempo urĝas, paroli tre Iaŭte
 
 unu al alia pri tio, ke vi ne bezonas teon kaj ne trs ĝin. Vi alproksimiĝas al la kaserolo, tiel ke ĝi povas aŭdi vin, kaj tiam vi krias: ”Mi ne volas havi teon; ĉu vi, Georgo?” kaj Georgo
 
-rekrias, ”Ho, ne, teon mi ne ŝatas; mi trs limonadon an-
-
-stataŭe — teo estas nedigestebla.” ĉe, tio, la akvo en la kaserolo ŝpruce bolegas kaj estingas la forneton.
+rekrias, ”Ho, ne, teon mi ne ŝatas; mi trs limonadon anstataŭe — teo estas nedigestebla.” ĉe, tio, la akvo en la kaserolo ŝpruce bolegas kaj estingas la forneton.
 
 Ni uzis ĉi tiun ruzaĵon kaj la rezulto estis, ke kiam ĉio alia estis preta, la teo jam atendis. Tiam ni bruligis la lanternon kaj sidiĝis por vespermanĝo.
 
@@ -4792,33 +3635,21 @@ Tiun manĝon ni bezonis.
 
 Dum tridek kvin minutoj neniu sono aŭdeblis tra la longo
 
-kaj larĝo de tiu boato, krom la tintado de tranĉilaro kaj fajen-co kaj la senĉesa muelado de kvar dentaroj. ĉe la fino de tri-
-
-dek kvin minutoj Harris diris ”Ha!” kaj formovis la maldeks-
+kaj larĝo de tiu boato, krom la tintado de tranĉilaro kaj fajen-co kaj la senĉesa muelado de kvar dentaroj. ĉe la fino de tridek kvin minutoj Harris diris ”Ha!” kaj formovis la maldeks-
 
 tran kruron de sub si kaj anstataŭe metis tien la dekstran.
 
 Kvin minutojn poste ankaŭ Georgo diris ”Ha!” kaj forĵetis
 
-sian teleron sur la bordon; tri minutojn pli poste, Montmo-
-
-rency donis la unuan signon de kontento montritan de li de
+sian teleron sur la bordon; tri minutojn pli poste, Montmorency donis la unuan signon de kontento montritan de li de
 
 kiam ni komencis, kaj ruliĝis sur sian flankon kaj disetendis
 
 la krurojn; tiam mi diris ”Ha!” kaj klinis la kapon malantaŭen kaj frapis ĝin al unu el la duonringegoj, sed tion mi ne atentis. Mi eĉ ne blasfemis.
 
-Kiel bone oni sentas sin, kiam oni estas sata — kiel konten-
+Kiel bone oni sentas sin, kiam oni estas sata — kiel kontenta kun si kaj kun la mondo! Tiuj, kiuj provis, diras al mi, ke senmakula konscienco igas vin feliĉa kaj kontenta; tamen la
 
-ta kun si kaj kun la mondo! Tiuj, kiuj provis, diras al mi, ke senmakula konscienco igas vin feliĉa kaj kontenta; tamen la
-
-samon plena stomako faras same bone, kaj ĝi estas pli mal-
-
-
-T R I V I RO J E N B OATO
-
-
-multekosta kaj pli facile aranĝebla. Oni sentas sin tiel pardonema kaj malavara post solida kaj bone digestita manĝo, tiel
+samon plena stomako faras same bone, kaj ĝi estas pli malmultekosta kaj pli facile aranĝebla. Oni sentas sin tiel pardonema kaj malavara post solida kaj bone digestita manĝo, tiel
 
 noblanima, tiel bonfarema.
 
@@ -4836,19 +3667,13 @@ vivon; etendu viajn blankajn flugilojn de tremanta pensado
 
 kaj flugu kiel disimila spirito super la kirlanta mondo sub vi, supren, tra longaj vojoj de flamantaj steloj al la pordoj de la eterneco!”.
 
-Post varmaj spongokukoj ĝi diras ”Estu malsprita kaj sena-
-
-nima, kiel besto sur la kampo — sencerba besto kun malvig-
+Post varmaj spongokukoj ĝi diras ”Estu malsprita kaj senanima, kiel besto sur la kampo — sencerba besto kun malvig-
 
 la okulo, lumigata de neniu radio de fantazio, aŭ espero, aŭ
 
-timo, aŭ amo, aŭ vivo.” Post brando, trinkita en sufiĉa kvan-
+timo, aŭ amo, aŭ vivo.” Post brando, trinkita en sufiĉa kvanto, ĝi diras ”Nun, venu, malsaĝulo, ridetaĉu kaj stumblu, por
 
-to, ĝi diras ”Nun, venu, malsaĝulo, ridetaĉu kaj stumblu, por
-
-ke ridu viaj samsortanoj — babiladu malsaĝe, ŝprucigu sen-
-
-sencajn sonojn kaj vidigu, kiel senhelpa naivulo estas la kom-
+ke ridu viaj samsortanoj — babiladu malsaĝe, ŝprucigu sensencajn sonojn kaj vidigu, kiel senhelpa naivulo estas la kom-
 
 patinda homaro, kies sprito kaj volo dronas kiel katidoj en
 
@@ -4865,12 +3690,7 @@ virto kaj kontento venos kaj regos en via koro, neserĉite de ia penado via; vi 
 — nobla, pia viro.
 
 
-T R I V I RO J E N B OATO
-
-
-Antaŭ la vespermanĝo Harris, Georgo kaj mi estis kverele-
-
-maj, akraparolaj kaj malbonhumoraj; post la vespermanĝo ni
+Antaŭ la vespermanĝo Harris, Georgo kaj mi estis kverelemaj, akraparolaj kaj malbonhumoraj; post la vespermanĝo ni
 
 sidis, radiante unu sur la alian, kaj ankaŭ sur la hundon ni
 
@@ -4880,21 +3700,15 @@ radiis. Ni amis nin reciproke, ĉiujn ni amis. Harris, vagante
 
 rilate al la sorto de Harris en ĉi tiu mondo kaj la transa, kiuj frosttremigus penseman homon.
 
-Anstataŭe li diris: — Atentu, maljuna knabo; estu singar-
-
-da.
+Anstataŭe li diris: — Atentu, maljuna knabo; estu singarda.
 
 Harris, anstataŭ respondi per siaj plej malagrablaj tonoj, ke
 
-oni apenaŭ povas ne treti sur iun parton de la piedo de Ge-
-
-orgo, se oni devas sin okupi ie en la distanco de dek metroj
+oni apenaŭ povas ne treti sur iun parton de la piedo de Georgo, se oni devas sin okupi ie en la distanco de dek metroj
 
 de tie, kie sidas Georgo, sugestante, ke mezgrandan boaton
 
-Georgo, kun piedoj tiel longaj, neniam rajtas eniri, kaj kon-
-
-silante, ke li pendigu ilin trans la boatrando, kiel li certe estus farinta antaŭ la manĝo, nun diris: — Ho, mi tre bedaŭras,
+Georgo, kun piedoj tiel longaj, neniam rajtas eniri, kaj konsilante, ke li pendigu ilin trans la boatrando, kiel li certe estus farinta antaŭ la manĝo, nun diris: — Ho, mi tre bedaŭras,
 
 maljuna knabo; mi esperas, ke mi vin ne dolorigis.
 
@@ -4906,9 +3720,7 @@ Estis bele aŭskulti ilin.
 
 Ni bruligis niajn pipojn, sidis, rigardis la kvietan nokton kaj interbabilis.
 
-Georgo diris, kial ni ne restu ĉiam ĉi tiel — for de la mon-
-
-do kun ĝiaj pekoj kaj tento, vivante sobran, trankvilan vivon
+Georgo diris, kial ni ne restu ĉiam ĉi tiel — for de la mondo kun ĝiaj pekoj kaj tento, vivante sobran, trankvilan vivon
 
 kaj bonfarante. Mi diris, ke ion tian mi ofte sopiris mem; ni
 
@@ -4916,13 +3728,7 @@ diskutis la eblecon de tio, ke ni kvar foriru al iu oportuna,
 
 bone ekipita senhoma insulo, kaj loĝu tie en la arbaretoj.
 
-Harris diris, ke la danĝero de senhomaj insuloj, kiel li aŭ-
-
-
-T R I V I RO J E N B OATO
-
-
-dis, estas, ke ili estas tre malsekaj; Georgo diris, ke ne, se ili estas taŭge drenitaj.
+Harris diris, ke la danĝero de senhomaj insuloj, kiel li aŭdis, estas, ke ili estas tre malsekaj; Georgo diris, ke ne, se ili estas taŭge drenitaj.
 
 Tiam ni ekparolis pri dreniloj, kaj tio memorigis Georgon
 
@@ -4934,9 +3740,7 @@ estis pretaj enlitiĝi, ankaŭ ili (ĉi tio okazis, kiam la patro de Georgo esti
 
 sama ĉambro, sed en apartaj litoj. Ili prenis la kandelon kaj
 
-supreniris. Kiam ili atingis la ĉambron, la kandelo falis kon-
-
-traŭ la muron kaj estingiĝis kaj ili devis senvestis sin kaj palpi al si vojon al la lito en mallumo. Tion ili faris; tamen, anstataŭ iri en apartajn litojn, kiel ili kredis, ke ili faras, ili ambaŭ grimpis en la saman liton sen scii tion — unu eniris kun la
+supreniris. Kiam ili atingis la ĉambron, la kandelo falis kontraŭ la muron kaj estingiĝis kaj ili devis senvestis sin kaj palpi al si vojon al la lito en mallumo. Tion ili faris; tamen, anstataŭ iri en apartajn litojn, kiel ili kredis, ke ili faras, ili ambaŭ grimpis en la saman liton sen scii tion — unu eniris kun la
 
 kapo ĉe la supro, dum la alia enrampis de la kontraŭa flanko
 
@@ -4963,9 +3767,6 @@ estu benita, se ne estas viro ankaŭ en mia lito!
 —Kion vi intencas fari? — demandis la patro de Georgo.
 
 —Nu, mi intencas lin elĵeti, — respondis Joe.
-
-
-T R I V I RO J E N B OATO
 
 
 —Ankaŭ mi, — respondis la patro de Georgo kuraĝe.
@@ -5002,9 +3803,7 @@ aŭdis lin rakonti la historion. Mi pensis, ke eble estis la sama gastejo.
 
 Tiun nokton ni retiriĝis por dormi je la deka kaj mi kredis
 
-ke, estante laca, mi dormos bone; sed ne. Kutime mi senves-
-
-tiĝas kaj metas la kapon sur la kuseno kaj poste iu brubatas
+ke, estante laca, mi dormos bone; sed ne. Kutime mi senvestiĝas kaj metas la kapon sur la kuseno kaj poste iu brubatas
 
 sur mian pordon kaj diras, ke estas duono post la oka; sed en
 
@@ -5021,9 +3820,6 @@ Kelkajn horojn mi dormis kaj tiam iu parto de la boato, kiu
 spinon. Malgraŭ tio mi dormis iom da tempo, sonĝante, ke
 
 
-T R I V I RO J E N B OATO
-
-
 mi glutis oran moneron, kaj ke oni tranĉas al mi truon en la
 
 dorso per borileto por provi ĝin elpreni. Tion mi opiniis tre
@@ -5032,9 +3828,7 @@ malĝentila iliaparte kaj mi diris, ke mi ŝuldos al ili la monon kaj ke ili ĝi
 
 La boato ŝajnis sufoka kaj mia kapo doloris; mi tial decidis
 
-promeni en la freŝa nokta aero. Mi surmetis la vestojn, kiu-
-
-jn mi povis trovi — kelkajn miajn, kelkajn de Georgo kaj de
+promeni en la freŝa nokta aero. Mi surmetis la vestojn, kiujn mi povis trovi — kelkajn miajn, kelkajn de Georgo kaj de
 
 Harris — kaj rampis sub la kanvason kaj sur la bordon.
 
@@ -5057,23 +3851,14 @@ granda ĉeesto forrampas hontigitaj niaj malgrandaj malĝojoj.
 
 La pasinta tago estis plena de ĉagreno kaj zorgo kaj nia koro
 
-plena de malbonaj kaj amaraj pensoj, la mondo ŝajnis seve-
-
-ra kaj maljusta al ni. Tiam la nokto, simile al granda amople-
+plena de malbonaj kaj amaraj pensoj, la mondo ŝajnis severa kaj maljusta al ni. Tiam la nokto, simile al granda amople-
 
 
-T R I V I RO J E N B OATO
-
-
-na patrino, milde metas la manon sur nian febran kapon, le-
-
-vas nian larmomakulitan vizaĝon al sia, ridetas, kaj kvankam
+na patrino, milde metas la manon sur nian febran kapon, levas nian larmomakulitan vizaĝon al sia, ridetas, kaj kvankam
 
 ĝi ne parolas, ni scias, kion ĝi volas diri, ĝi metas nian varman ruĝiĝintan vangon al sia sino kaj la doloro jam estas for.
 
-Kelkfoje nia doloro estas tre profunda kaj reala kaj ni sta-
-
-ras antaŭ ĝi tre silentaj, ĉar ne estas lingvo por nia doloro, nur
+Kelkfoje nia doloro estas tre profunda kaj reala kaj ni staras antaŭ ĝi tre silentaj, ĉar ne estas lingvo por nia doloro, nur
 
 ĝemo. La koro de la nokto estas plena de kompato por ni; ĝi
 
@@ -5081,9 +3866,7 @@ ne povas kvietigi nian doloron; ĝi prenas nian manon en sian,
 
 la eta mondo sub ni fariĝas tre malgranda kaj tre fora kaj portata sur ĝiaj mallumaj flugiloj, ni sentas dum momento pli
 
-grandan ĉeeston ol ĝian, kaj en la mirinda lumo de tiu gran-
-
-da ĉeesto la tuta homa vivo kuŝas antaŭ ni kiel libro kaj ni
+grandan ĉeeston ol ĝian, kaj en la mirinda lumo de tiu granda ĉeesto la tuta homa vivo kuŝas antaŭ ni kiel libro kaj ni
 
 scias, ke Doloro kaj Malĝojo estas nur la anĝeloj de Dio.
 
@@ -5091,26 +3874,17 @@ Nur tiuj, kiuj jam portis la kronon de suferado, povas vidi
 
 tiun mirindan lumon; reveninte, ili ne rajtas paroli pri ĝi, nek paroli pri la mistero, kiun ili konas.
 
-Iam rajdis kelkaj bravaj kavaliroj tra nekonata lando kaj ilia vojo estis apud profunda arbaro, kie la interimplikitaj rozuj-oj kreskis densaj kaj fortaj kaj ŝiris la karnon de tiuj, kiuj tien devojiĝis. La folioj de la arboj, kiuj kreskis en la arbaro, estis tre malhelaj kaj dikaj, tiel ke neniu lumradio trapasis la bran-
-
-ĉojn por malpliigi la mallumon kaj malĝojon.
+Iam rajdis kelkaj bravaj kavaliroj tra nekonata lando kaj ilia vojo estis apud profunda arbaro, kie la interimplikitaj rozuj-oj kreskis densaj kaj fortaj kaj ŝiris la karnon de tiuj, kiuj tien devojiĝis. La folioj de la arboj, kiuj kreskis en la arbaro, estis tre malhelaj kaj dikaj, tiel ke neniu lumradio trapasis la branĉojn por malpliigi la mallumon kaj malĝojon.
 
 Preterpasante tiun malluman arbaron unu el la rajdantaj
 
 kavaliroj devojiris de siaj kunuloj, vagis malproksimen kaj ne rekuniĝis survoje kun ili; ili, dolore bedaŭrante, rajdis an-taŭen sen li, funebrante pri li kiel pri mortinto.
 
-Atinginte la belan kastelon, al kiu ili vojaĝis, ili restis tie multajn tagojn kaj bone amuziĝis; iun nokton, dum ili sidis en gaja komforto ĉirkaŭ la ŝtipoj brulantaj en la granda salone-go kaj ŝate trinkis sian trinkaĵon, eniris la perdiĝinta kamara-121
-
-T R I V I RO J E N B OATO
-
-
-do kaj salutis ilin. Liaj vestoj estis ŝiritaj kiel vestoj de almo-zulo kaj multe da kompatindaj vundoj estis sur lia dolĉa kar-
+Atinginte la belan kastelon, al kiu ili vojaĝis, ili restis tie multajn tagojn kaj bone amuziĝis; iun nokton, dum ili sidis en gaja komforto ĉirkaŭ la ŝtipoj brulantaj en la granda salone-go kaj ŝate trinkis sian trinkaĵon, eniris la perdiĝinta kamarado kaj salutis ilin. Liaj vestoj estis ŝiritaj kiel vestoj de almo-zulo kaj multe da kompatindaj vundoj estis sur lia dolĉa kar-
 
 no, sed sur lia vizaĝo radiis granda brilo de profunda ĝojo.
 
-Ili pridemandis lin, demandante, kio okazis al li: kaj li ra-
-
-kontis al ili, kiel li perdis la vojon en la malluma arbaro kaj vagadis multajn tagojn kaj noktojn, ĝis kiam, ŝirita kaj sanganta, li sin sternis sur la tero por morti.
+Ili pridemandis lin, demandante, kio okazis al li: kaj li rakontis al ili, kiel li perdis la vojon en la malluma arbaro kaj vagadis multajn tagojn kaj noktojn, ĝis kiam, ŝirita kaj sanganta, li sin sternis sur la tero por morti.
 
 —Tiam, kiam li estis tute proksima al morto, jen! tra la
 
@@ -5128,12 +3902,7 @@ dankis la bonan sanktulon, kiu lin devojigis en tiun malbonan
 
 arbaron, ĉar pro tio li estis vidinta la vizion tie kaŝitan.
 
-La nomo de la malluma arbaro estis Malĝojo; sed pri la vi-
-
-zio, kiun la bona kavaliro vidis tie, ni rajtas nek paroli nek rakonti.
-
-
-T R I V I RO J E N B OATO
+La nomo de la malluma arbaro estis Malĝojo; sed pri la vizio, kiun la bona kavaliro vidis tie, ni rajtas nek paroli nek rakonti.
 
 
 ĉapitro XI
@@ -5148,36 +3917,23 @@ rerigardo, speciale enmetita por la uzo de lernejoj
 
 La sekvantan matenon mi vekiĝis je la sesa kaj trovis, ke
 
-ankaŭ Georgo vekiĝis. Ni ambaŭ turnis nin kaj penis re-
-
-ekdormi, sed ni ne povis. Se ekzistus speciala cirkonstanco,
+ankaŭ Georgo vekiĝis. Ni ambaŭ turnis nin kaj penis reekdormi, sed ni ne povis. Se ekzistus speciala cirkonstanco,
 
 pro kiu ni devus ne reekdormi, sed tuj leviĝi kaj vesti nin, ni dormus jam dum ni rigardas nian poŝhorloĝon kaj daŭrigus
 
-dormi ĝis la deka. ĉar ne estis ia ajn kaŭzo deviganta nin le-
+dormi ĝis la deka. ĉar ne estis ia ajn kaŭzo deviganta nin leviĝi dum pliaj du horoj minimume, kaj ĉar leviĝi je tiu horo
 
-viĝi dum pliaj du horoj minimume, kaj ĉar leviĝi je tiu horo
-
-estas plena absurdaĵo, estis nur en akordo kun la natura kon-
-
-traŭemo de aferoj ĝenerale, ke ni ambaŭ sentis, ke kuŝi pli-
+estas plena absurdaĵo, estis nur en akordo kun la natura kontraŭemo de aferoj ĝenerale, ke ni ambaŭ sentis, ke kuŝi pli-
 
 ajn kvin minutojn nin mortigus.
 
-Georgo diris, ke io simila, sed pli malbona, okazis al li an-
+Georgo diris, ke io simila, sed pli malbona, okazis al li antaŭ ĉirkaŭ dek ok monatoj, kiam li loĝis sola en la domo de
 
-taŭ ĉirkaŭ dek ok monatoj, kiam li loĝis sola en la domo de
-
-iu sinjorino Gippings. Li diris, ke iun vesperon lia poŝhorlo-
-
-go malfunkciiĝis kaj haltis je kvarono post la oka. Tiam li tion ne sciis, ĉar pro iu aŭ alia kaŭzo li forgesis ĝin tiri antaŭ ol li enlitiĝis (nekutima okazaĵo ĉe Georgo), kaj pendigis ĝin super sia kapkuseno sen kontroli ĝin.
+iu sinjorino Gippings. Li diris, ke iun vesperon lia poŝhorlogo malfunkciiĝis kaj haltis je kvarono post la oka. Tiam li tion ne sciis, ĉar pro iu aŭ alia kaŭzo li forgesis ĝin tiri antaŭ ol li enlitiĝis (nekutima okazaĵo ĉe Georgo), kaj pendigis ĝin super sia kapkuseno sen kontroli ĝin.
 
 Tio okazis en vintro, tre proksime al la plej mallonga tago,
 
 kaj krome dum nebula semajno. Tio do, ke estis ankoraŭ tre
-
-
-T R I V I RO J E N B OATO
 
 
 mallume, kiam Georgo vekiĝis, donis al li neniun indikon pri
@@ -5192,9 +3948,7 @@ kaj mi devas esti en la urbo je la naŭa. Kial neniu min vekis?
 
 Ho, tio estas hontinda! — Li deĵetis la poŝhorloĝon, elsaltis el la lito, banis sin per malvarma akvo, lavis kaj vestis sin kaj sin razis per malvarma akvo, ĉar li ne havis sufiĉe da tempo por
 
-atendi la varman, kaj poste kuregis denove rigardi la poŝ-
-
-horloĝon.
+atendi la varman, kaj poste kuregis denove rigardi la poŝhorloĝon.
 
 ĉu ĝin funkciigis la skuado, kiun ĝi ricevis, kiam ĝi estis
 
@@ -5202,49 +3956,32 @@ horloĝon.
 
 Georgo prenis ĝin kaj kuregis malsupren. En la tagĉambro
 
-estis tute mallume kaj silente: ne estis fajro, ne estis matenmanĝo. Georgo diris, ke tio estas hontinda flanke de sinjori-
-
-no Gippings kaj li nepre intencis diri sian opinion pri ŝi, kiam li revenos en la vespero. Tiam li rapidege surmetis la palton
+estis tute mallume kaj silente: ne estis fajro, ne estis matenmanĝo. Georgo diris, ke tio estas hontinda flanke de sinjorino Gippings kaj li nepre intencis diri sian opinion pri ŝi, kiam li revenos en la vespero. Tiam li rapidege surmetis la palton
 
 kaj ĉapelon, prenis la ombrelon kaj kuris al la fronta pordo.
 
-La pordo eĉ ne estis malriglita. Blasfemante pri sinjorino Gippings kiel mallaborema maljunulino, kaj opiniante tre stran-
-
-ge, ke homoj ne povas leviĝi je deca, respektinda horo, Geor-
+La pordo eĉ ne estis malriglita. Blasfemante pri sinjorino Gippings kiel mallaborema maljunulino, kaj opiniante tre strange, ke homoj ne povas leviĝi je deca, respektinda horo, Geor-
 
 go malŝlosis kaj malriglis la pordon kaj kuris eksteren.
 
-Li kuregis kvaronmejlon kaj ĉe la fino de tiu distanco eni-
-
-ris lian menson la penso, ke estas strange kaj kurioze, ke tro-viĝas sur la stratoj tiel malmulte da homoj kaj ke nenie la
+Li kuregis kvaronmejlon kaj ĉe la fino de tiu distanco eniris lian menson la penso, ke estas strange kaj kurioze, ke tro-viĝas sur la stratoj tiel malmulte da homoj kaj ke nenie la
 
 butikoj estas malfermitaj. Estis malluma kaj nebula mateno,
 
 tamen ĉesigi pro tio ĉiun komercadon ŝajnis nekutima ago. Li
 
 
-T R I V I RO J E N B OATO
-
-
 devas iri al la oficejo: kun kiu rajto la aliaj restas en la lito, nur ĉar estas mallume kaj nebule?
 
-Fine li atingis Holborn. Neniu fenestrokovrilo estis depre-
+Fine li atingis Holborn. Neniu fenestrokovrilo estis deprenita! neniu omnibuso videbla! Vidiĝis tri viroj, de kiuj unu
 
-nita! neniu omnibuso videbla! Vidiĝis tri viroj, de kiuj unu
+estis policano; vendeja ĉaro plena de brasikoj kaj kadukaspekta fiakro. Georgo eltiris la poŝhorloĝon kaj ĝin rigardis:
 
-estis policano; vendeja ĉaro plena de brasikoj kaj kadukas-
-
-pekta fiakro. Georgo eltiris la poŝhorloĝon kaj ĝin rigardis:
-
-estis kvin minutoj antaŭ la naŭa! Li staris senmove kaj kalku-
-
-lis sian pulsbatadon. Li klinis sin antaŭen kaj palpis siajn krurojn. Tiam, kun la poŝhorloĝo ankoraŭ en la mano, li iris al la policano kaj demandis, ĉu li scias, kioma horo estas.
+estis kvin minutoj antaŭ la naŭa! Li staris senmove kaj kalkulis sian pulsbatadon. Li klinis sin antaŭen kaj palpis siajn krurojn. Tiam, kun la poŝhorloĝo ankoraŭ en la mano, li iris al la policano kaj demandis, ĉu li scias, kioma horo estas.
 
 —Kioma horo estas? — diris la viro, okulante Georgon de
 
-supre malsupren kun evidenta suspektemo; — nu, se vi aŭs-
-
-kultos, vi aŭdos la horloĝon soni.
+supre malsupren kun evidenta suspektemo; — nu, se vi aŭskultos, vi aŭdos la horloĝon soni.
 
 Georgo aŭskultis kaj proksima horloĝo tuj komplezis.
 
@@ -5252,9 +3989,7 @@ Georgo aŭskultis kaj proksima horloĝo tuj komplezis.
 
 kiam ĝi finis.
 
-—Nu, kaj kiomfoje vi volas, ke ĝi sonu? — respondis la po-
-
-licano.
+—Nu, kaj kiomfoje vi volas, ke ĝi sonu? — respondis la policano.
 
 —Nu, naŭfoje, — diris Georgo, montrante la poŝhorlokon.
 
@@ -5264,16 +3999,11 @@ Georgo iom pensis kaj donis la adreson.
 
 —Ho! tie vi loĝas, ĉu? — respondis la viro; — nu, prenu
 
-mian konsilon kaj iru tien kviete kaj kunprenu tiun poŝhor-
-
-loĝon vian; for kun ĉio ĉi!
+mian konsilon kaj iru tien kviete kaj kunprenu tiun poŝhorloĝon vian; for kun ĉio ĉi!
 
 Meditante, Georgo reiris kaj eniris la domon.
 
 Unue, kiam li eniris, li intencis senvesti sin kaj reenlitiĝi; sed pensante pri la revestiĝo kaj la relaviĝo, kaj pri tio, ke li devos denove bani sin, li decidis, ke ne, sed ke li dormos, sidante en la brakseĝo.
-
-
-T R I V I RO J E N B OATO
 
 
 Sed li ne povis reekdormi: neniam en la vivo li sentis sin pli veka; tial li bruligis lampon kaj prenis ŝaktabulon, kaj ludis ŝakludon kun si mem. Sed eĉ tio ne vigligis lin: ĝi iel ŝajnis teda, tial li rezignis la ŝakludadon kaj penis legi. Ankaŭ pri legado li ŝajne ne povis interesiĝi, tial li resurmetis la palton kaj eliris promeni.
@@ -5288,9 +4018,7 @@ Tiu sinteno kompreneble igis la policanojn pli suspektemaj
 
 ol antaŭe, ili venis kaj elpelis lin kaj demandis, kion li faras tie; kiam li respondis ”Nenion”, ke li nur eliris promeni (estis tiam la kvara matene), ili aspektis kvazaŭ ili ne kredus al li kaj du neuniformitaj policanoj iris kun li al la loĝejo por scii, ĉu vere li loĝas tie, kiel li diris. Ili vidis lin eniri per sia ŝlosilo kaj poste ili postenis kontraŭ la domo kaj ĝin observis.
 
-Enirinte, li decidis bruligi fajron kaj pretigi por si maten-
-
-manĝon, nur por pasigi la tempon; sed ŝajne li ne povis pre-
+Enirinte, li decidis bruligi fajron kaj pretigi por si matenmanĝon, nur por pasigi la tempon; sed ŝajne li ne povis pre-
 
 ni ion en la manon, plenkarbujon da karbo aŭ kulereton, sen
 
@@ -5301,9 +4029,6 @@ Jam li fariĝis malsane nervoza kaj li imagis sian juĝadon kaj
 siajn penojn klarigi la cirkonstancojn al la asizo, kiu ne kredas al li, la kondamnon al dudekjara puna servado kaj sian
 
 
-T R I V I RO J E N B OATO
-
-
 patrinon mortantan pro rompita koro. Li do ĉesis klopodi pri
 
 la matenmanĝo, volvis ĉirkaŭ sin la palton kaj sidis en la
@@ -5312,22 +4037,13 @@ brakseĝo, ĝis sinjorino Gippings alvenis je duono post la sepa.
 
 Li diris, ke de tiu mateno li neniam plu leviĝis tro frue: tio estis por li granda averto.
 
-Ni sidis ĉirkaŭvolvitaj per niaj lankovriloj, dum Georgo ra-
-
-kontis al mi ĉi tiun veran historion, kaj kiam li finis, mi komencis veki Harris per remilo. La tria puŝo lin vekis: kaj li sin turnis kaj diris, ke li malsupreniros post minuto kaj ke li volas havi siajn laĉbotojn. Ni tamen baldaŭ informis lin helpe
+Ni sidis ĉirkaŭvolvitaj per niaj lankovriloj, dum Georgo rakontis al mi ĉi tiun veran historion, kaj kiam li finis, mi komencis veki Harris per remilo. La tria puŝo lin vekis: kaj li sin turnis kaj diris, ke li malsupreniros post minuto kaj ke li volas havi siajn laĉbotojn. Ni tamen baldaŭ informis lin helpe
 
 de la alkroĉilo, kie li estas, kaj li subite rektiĝis kaj ĵetis tra la boato Montmorency, kiu dormis la dormon de la justulo me-ze sur lia brusto.
 
-Tiam ni levis la kanvason, kaj ĉiuj kvar ŝovis la kapon su-
+Tiam ni levis la kanvason, kaj ĉiuj kvar ŝovis la kapon super la boatrandon, rigardis la akvon kaj frostotremis. Nia in-
 
-per la boatrandon, rigardis la akvon kaj frostotremis. Nia in-
-
-tenco en la antaŭa nokto estis, ke ni leviĝos frue en la mate-
-
-no, forĵetos niajn lankovrilojn kaj ŝalojn kaj, forŝovinte la kanvason, nin ĵetos kun ĝojokrio en la akvon kaj plezuros en Ion-
-
-
-T R I V I RO J E N B OATO
+tenco en la antaŭa nokto estis, ke ni leviĝos frue en la mateno, forĵetos niajn lankovrilojn kaj ŝalojn kaj, forŝovinte la kanvason, nin ĵetos kun ĝojokrio en la akvon kaj plezuros en Ion-
 
 
 ga dolĉega naĝo. Nun, kiam la mateno jam venis, la ideo iel
@@ -5352,9 +4068,7 @@ Mi pensis, ke tie eble troviĝas subakvaj rokoj aŭ kreskaĵoj. Mi intencis komp
 
 zorge pluen sur branĉon de arbo, kiu kliniĝis al la akvo.
 
-Estis tre malvarme. La vento tranĉis kiel tranĉilo. Mi pen-
-
-sis, ke tamen mi ne ĵetos sur min akvon. Mi reiros en la boa-
+Estis tre malvarme. La vento tranĉis kiel tranĉilo. Mi pensis, ke tamen mi ne ĵetos sur min akvon. Mi reiros en la boa-
 
 ton kaj vestos min; mi min turnis por tion fari; kiam mi min
 
@@ -5383,32 +4097,21 @@ Kial vi ne provas? Necesas nur iom da decidemo.
 Sed mi ne sukcesis persvadi ilin.
 
 
-T R I V I RO J E N B OATO
-
-
 Sufiĉe amuza afero okazis tiun matenon dum la vestado.
 
-Mi estis tre malvarma, kiam mi revenis en la boaton, kaj ra-
+Mi estis tre malvarma, kiam mi revenis en la boaton, kaj rapidante surmeti ĉemizon, mi senintence ĵetis ĝin en la akvon.
 
-pidante surmeti ĉemizon, mi senintence ĵetis ĝin en la akvon.
-
-Tio min ege furiozigis, precipe ĉar Georgo ekridegis. lon ridigan mi ne povis vidi kaj tion diris al Georgo kaj li ridis an-
-
-koraŭ pli. Mi neniam vidis viron tiom ridanta. Fine mi kole-
+Tio min ege furiozigis, precipe ĉar Georgo ekridegis. lon ridigan mi ne povis vidi kaj tion diris al Georgo kaj li ridis ankoraŭ pli. Mi neniam vidis viron tiom ridanta. Fine mi kole-
 
 riĝis al li kaj atentigis, kia sensenca frenezulo kaj sencerba idioto li estas; sed li ridegis eĉ pli laŭte. Savinte la ĉemizon mi rimarkis, ke ĝi tute ne estas mia ĉemizo, sed ĉemizo de Georgo, kiun mi erare prenis por mia; je tio la ridindo de la afero la unuan fojon frapis min kaj mi ekridis. Ju pli mi rigardis al la malseka ĉemizo de Georgo kaj al Georgo rideganta, des pli
 
-mi amuziĝis, kaj mi tiel ridis, ke mi faligis la ĉemizon anko-
-
-raŭfoje en la akvon.
+mi amuziĝis, kaj mi tiel ridis, ke mi faligis la ĉemizon ankoraŭfoje en la akvon.
 
 —ĉu vi… vi … ne intencas ĝin eltiri? — diris Georgo inter
 
 siaj ridkrioj.
 
-Dum iom da tempo mi tiom ridis, kie mi tute ne povis re-
-
-spondi, sed fine inter miaj krioj mi sukcesis eligi:
+Dum iom da tempo mi tiom ridis, kie mi tute ne povis respondi, sed fine inter miaj krioj mi sukcesis eligi:
 
 —i ne estas mia ĉemizo — ĝi estas via!
 
@@ -5424,11 +4127,7 @@ Mi penis igi lin rimarki la ridindon de la afero, sed li ne
 
 povis. Georgo kelkfoje malrapidege komprenas ŝercon.
 
-Harris proponis, ke ni havu kirle kuiritajn ovojn por ma-
-
-tenmanĝo. Li diris, ke li kuiros ilin. ŝajnis, laŭ lia rakonto, ke li estas tre sperta pri preparado de kirle kuiritaj ovoj. Li ofte 129
-
-T R I V I RO J E N B OATO
+Harris proponis, ke ni havu kirle kuiritajn ovojn por matenmanĝo. Li diris, ke li kuiros ilin. ŝajnis, laŭ lia rakonto, ke li estas tre sperta pri preparado de kirle kuiritaj ovoj. Li ofte
 
 
 faras ilin ĉe piknikoj kaj kiam li estas sur la maro en ja˛toj. Li eĉ fariĝis fama pro ili. Homoj unufoje gustintaj liajn kirle kuiritajn ovojn, tiel ni komprenis el liaj vortoj, poste neniam deziras alian manĝon, sed malfortikiĝas kaj mortas, se ili ne povas ricevi ilin.
@@ -5441,9 +4140,7 @@ ne tiom da peno ilin rompante, kiel ilin metante en la paton,
 
 kiam ili estis rompitaj, ilin fortenante de sia pantalono kaj
 
-malhelpante, ke ili kuru en lian manikon; tamen fine li suk-
-
-cesis meti seson da ili en la paton kaj tiam li kaŭris flanke de la forneto kaj ŝovadis ilin per forko.
+malhelpante, ke ili kuru en lian manikon; tamen fine li sukcesis meti seson da ili en la paton kaj tiam li kaŭris flanke de la forneto kaj ŝovadis ilin per forko.
 
 Tio ŝajnis turmenta laboro, kiel povis juĝi Georgo kaj mi.
 
@@ -5455,16 +4152,11 @@ Ni ne sciis, kio estas kirle kuiritaj ovoj, kaj ni imagis, ke tio sendube estas 
 
 la ĝusta kuiro bezonas dancojn kaj sorĉkantojn. Unufoje Montmorency metis la nazon super tion, la graso ŝprucetis
 
-kaj lin brogis, kaj tiam li komencis danci kaj malbeni. Entu-
-
-te ĝi estis unu el la plej interesaj kaj ekscitaj laboroj, kiujn mi iam vidis. Georgo kaj mi fakte malĝojis, kiam ĝi finiĝis.
+kaj lin brogis, kaj tiam li komencis danci kaj malbeni. Entute ĝi estis unu el la plej interesaj kaj ekscitaj laboroj, kiujn mi iam vidis. Georgo kaj mi fakte malĝojis, kiam ĝi finiĝis.
 
 La rezulto ne estis tute la sukceso, kiun Harris atendis. La
 
 produktaĵo ŝajnis tre malgranda post tiom da peno. Ses ovoj
-
-
-T R I V I RO J E N B OATO
 
 
 eniris la paton kaj eliris nur plenkulereto da bruligita kaj mal-bonguste aspektanta miksaĵo.
@@ -5481,41 +4173,23 @@ la vento ĉesis blovi kaj la mateno estis tiel bela, kiel oni povus deziri. Ne e
 
 sunbrilo, ni preskaŭ povis imagi, ke la jarcentoj inter ni kaj tiu ĉiamfama junia mateno en 1215 forŝoviĝis, kaj ke ni, filoj de
 
-anglaj bienetuloj, vestitaj en hejmteksita drapo, kun ponar-
+anglaj bienetuloj, vestitaj en hejmteksita drapo, kun ponardo ĉe la zono, atendas tie por rigardi la subskribon de tiu
 
-do ĉe la zono, atendas tie por rigardi la subskribon de tiu
-
-grandioza paĝo de la historio, kies signifon kvarcent kaj kel-
-
-kajn jarojn poste tradukis por la popolo iu Oliver Cromwell,
+grandioza paĝo de la historio, kies signifon kvarcent kaj kelkajn jarojn poste tradukis por la popolo iu Oliver Cromwell,
 
 kiu estis ĝin profunde studinta.
 
 Estas bela somera mateno, — sunplena, milda, kaj kvieta.
 
-Tamen tra la aero kuras la vibrado de alprokisimiĝantaj tas-
+Tamen tra la aero kuras la vibrado de alprokisimiĝantaj taskoj. Reĝo Johano dormis en Duncroft House, kaj la tutan ant-
 
-koj. Reĝo Johano dormis en Duncroft House, kaj la tutan ant-
+aŭan tagon en la urbeto Staines e˛is la tintego de armitaj viroj kaj klakado de grandaj ĉevaloj sur ĝiaj malglataj ŝtonoj, la krioj de kapitanoj, la minacaj blasfemoj, malafablaj ŝercoj de barbhavaj pafarkistoj, halebardistoj, pikarmilistoj kaj fremdaj lancistoj parolantaj stranglingve.
 
-aŭan tagon en la urbeto Staines e˛is la tintego de armitaj vi-
+Jam rajde eniris gaje vestitaj rotoj de kavaliroj kaj eskviroj, tute malpuraj de la vojaĝo kaj polvokovritaj. La tutan vesperon la pordoj de la timemaj urbanoj devis esti rapide malfermataj por enlasi arojn de krudaj soldatoj, por kiuj oni devis
 
-roj kaj klakado de grandaj ĉevaloj sur ĝiaj malglataj ŝtonoj, la krioj de kapitanoj, la minacaj blasfemoj, malafablaj ŝercoj de barbhavaj pafarkistoj, halebardistoj, pikarmilistoj kaj fremdaj lancistoj parolantaj stranglingve.
+trovi loĝejon kaj manĝon, kaj la plej bonan de ambaŭ, alikaze ve al la domo kaj ĉiuj domanoj; ĉar la glavo estas la juĝisto kaj ankaŭ la asizo, plendinto kaj ekzekutisto en ĉi tiu tumulta tempo, kaj pagas por tio, kion ĝi prenas, per la ŝparado de la vivo al tiuj, de kiuj ĝi prenas, se tio plaĉus al ĝi.
 
-Jam rajde eniris gaje vestitaj rotoj de kavaliroj kaj eskviroj, tute malpuraj de la vojaĝo kaj polvokovritaj. La tutan vesperon la pordoj de la timemaj urbanoj devis esti rapide malfer-
-
-mataj por enlasi arojn de krudaj soldatoj, por kiuj oni devis
-
-trovi loĝejon kaj manĝon, kaj la plej bonan de ambaŭ, alika-
-
-
-T R I V I RO J E N B OATO
-
-
-ze ve al la domo kaj ĉiuj domanoj; ĉar la glavo estas la juĝisto kaj ankaŭ la asizo, plendinto kaj ekzekutisto en ĉi tiu tumulta tempo, kaj pagas por tio, kion ĝi prenas, per la ŝparado de la vivo al tiuj, de kiuj ĝi prenas, se tio plaĉus al ĝi.
-
-ĉirkaŭ la tendeja fajro sur la vendoplaco kolektiĝas an-
-
-koraŭ pli da soldatoj de la baronoj, manĝegas kaj drinkegas,
+ĉirkaŭ la tendeja fajro sur la vendoplaco kolektiĝas ankoraŭ pli da soldatoj de la baronoj, manĝegas kaj drinkegas,
 
 brukrias gajajn trinkkantojn kaj vetludas kaj kverelas, dum la vespero forpasas kaj profundiĝas en nokton. La fajrolumo
 
@@ -5523,17 +4197,13 @@ brukrias gajajn trinkkantojn kaj vetludas kaj kverelas, dum la vespero forpasas 
 
 sur iliajn krudajn figurojn. La urbaj infanoj ŝtele proksimiĝas por rigardi ilin, miregante; ridantaj dikmuskolaj kampulinoj
 
-proksimiĝas por interŝanĝi trinkejajn ŝercojn kaj mokparo-
-
-lojn kun la arogantaj rajdsoldatoj tiel malsimilaj al la vilaĝaj junuloj, kiuj, nun malestimataj, staras aparte malantaŭe, kun
+proksimiĝas por interŝanĝi trinkejajn ŝercojn kaj mokparolojn kun la arogantaj rajdsoldatoj tiel malsimilaj al la vilaĝaj junuloj, kiuj, nun malestimataj, staras aparte malantaŭe, kun
 
 stultaj ridetoj sur la larĝaj gapantaj vizaĝoj. El la ĉirkaŭaj kampoj briletas la palaj lumoj de pli malproksimaj tendejoj,
 
 ĉar ĉi tie troviĝas la kolektiĝinta sekvantaro de iu granda nobelo, kaj tie ŝvebas la dungitaj francaj soldatoj de la perfida Johano, similaj al kaŭrantaj lupoj ekster la urbo.
 
-Kun gardostaranto sur ĉiu malluma strato kaj trembrilan-
-
-taj bivakfajroj sur ĉiu altaĵo ĉirkaŭe, la nokto jam forpasis kaj super ĉi tiu bela valo de la maljuna Tamizo komenciĝas la
+Kun gardostaranto sur ĉiu malluma strato kaj trembrilantaj bivakfajroj sur ĉiu altaĵo ĉirkaŭe, la nokto jam forpasis kaj super ĉi tiu bela valo de la maljuna Tamizo komenciĝas la
 
 mateno de la granda tago, kiu finiĝos graveda per la sorto de
 
@@ -5544,59 +4214,34 @@ Jam de la griza tagiĝo sur la plej suba el la du insuloj, iom
 super la loko, kie ni staras, estis granda kriado kaj bruado de multaj laboristoj. Oni starigas la grandan pavilonon alporti-tan hieraŭ vespere kaj ĉarpentistoj diligente najlas vicojn da benkoj en la ĉeesto de la lernoknaboj el Londono, kun multkoloraj ŝtofoj kaj silkoj kaj drapoj el oro kaj arĝento.
 
 
-T R I V I RO J E N B OATO
-
-
 Nun, jen! de sur la vojo serpentumanta laŭ la riverbordo ĉe
 
-Staines venas al ni, ridante kaj interparolante per sonora gor-
-
-ĝa baso, deko da fortegaj halebardistoj — partianoj de la ba-
+Staines venas al ni, ridante kaj interparolante per sonora gorĝa baso, deko da fortegaj halebardistoj — partianoj de la ba-
 
 ronoj ili estas — kaj haltas je cent kelk metroj super ni, sur la kontraŭa bordo, apogas sin sur siajn armilojn kaj atendas.
 
-Tiel, de horo al horo, marŝas antaŭen sur la vojo ĉiam no-
+Tiel, de horo al horo, marŝas antaŭen sur la vojo ĉiam novaj aroj kaj bandoj de armitaj viroj, kies kaskoj kaj brustkira-soj rebrilas la Iongajn malaltajn liniojn de la matena sunlumo,
 
-vaj aroj kaj bandoj de armitaj viroj, kies kaskoj kaj brustkira-soj rebrilas la Iongajn malaltajn liniojn de la matena sunlumo,
+ĝis, tiel malproksime, kiel povas atingi la okulo, la vojo ŝajnas densa de brilanta ŝtalo kaj saltetantaj ĉevaloj. Kriantaj rajdi-stoj galopas de aro al aro, malgrandaj standardoj flirtas malvigle en la varma venteto, de tempo al tempo la movado pli-
 
-ĝis, tiel malproksime, kiel povas atingi la okulo, la vojo ŝajnas densa de brilanta ŝtalo kaj saltetantaj ĉevaloj. Kriantaj rajdi-stoj galopas de aro al aro, malgrandaj standardoj flirtas mal-
+iĝas, jam la vicoj ambaŭflanke cedas lokon kaj iu granda barono sur sia militĉevalo, kun sia gvardio de eskviroj ĉirkaŭ si, pasas antaŭen por posteni fronte de siaj servutuloj kaj vasa-loj.
 
-vigle en la varma venteto, de tempo al tempo la movado pli-
+Sur la deklivoj de la Cooper-monteto, ĝuste kontraŭe, kolektiĝas la mirantaj kamparanoj kaj scivolemaj urbanoj, kiuj
 
-iĝas, jam la vicoj ambaŭflanke cedas lokon kaj iu granda ba-
-
-rono sur sia militĉevalo, kun sia gvardio de eskviroj ĉirkaŭ si, pasas antaŭen por posteni fronte de siaj servutuloj kaj vasa-loj.
-
-Sur la deklivoj de la Cooper-monteto, ĝuste kontraŭe, ko-
-
-lektiĝas la mirantaj kamparanoj kaj scivolemaj urbanoj, kiuj
-
-kuris el Staines, kaj neniu scias certe, pri kio temas la dismovado, sed ĉiu havas malsaman rakonton pri la granda even-
-
-to, por kiu ili venis; kelkaj diras, ke multe da bono por la tuta popolo venos el la hodiaŭa laboro, sed la maljunuloj skuas la
+kuris el Staines, kaj neniu scias certe, pri kio temas la dismovado, sed ĉiu havas malsaman rakonton pri la granda evento, por kiu ili venis; kelkaj diras, ke multe da bono por la tuta popolo venos el la hodiaŭa laboro, sed la maljunuloj skuas la
 
 kapon, ĉar tiajn historiojn ili aŭdis jam antaŭe.
 
-La tuta rivero ĝis Staines estas punktita de malgrandaj ba-
-
-rkoj kaj boatoj kaj etaj korakloj — tiuj lastaj jam elmodiĝas kaj estas uzataj nur de la malriĉuloj. Trans la rapidfluejon, kie en postaj jaroj staros la plaĉaspekta kluzo de la Bell-akvobariero, ilin perforte tiris aŭ trenis iliaj fortikaj remantoj, kaj nun ili amasiĝas tiel proksime, kiel ili kuraĝas al la grandaj kovritaj 133
-
-T R I V I RO J E N B OATO
+La tuta rivero ĝis Staines estas punktita de malgrandaj barkoj kaj boatoj kaj etaj korakloj — tiuj lastaj jam elmodiĝas kaj estas uzataj nur de la malriĉuloj. Trans la rapidfluejon, kie en postaj jaroj staros la plaĉaspekta kluzo de la Bell-akvobariero, ilin perforte tiris aŭ trenis iliaj fortikaj remantoj, kaj nun ili amasiĝas tiel proksime, kiel ili kuraĝas al la grandaj kovritaj
 
 
 boatoj, kiuj kuŝas pretaj por porti reĝon Johanon tien, kie la sortoplena ĉarto atendas lian subskribon.
 
-Estas tagmezo kaj ni kaj la tuta popolo jam atendis pacien-
+Estas tagmezo kaj ni kaj la tuta popolo jam atendis pacience multajn horojn, famo disbruiĝis, ke la elturniĝema Johano
 
-ce multajn horojn, famo disbruiĝis, ke la elturniĝema Johano
+ankoraŭ unu fojon sin savis el la manoj de la baronoj kaj elŝteliĝis el Duncroft House, sekvata de siaj dungitoj, kaj bal-
 
-ankoraŭ unu fojon sin savis el la manoj de la baronoj kaj el-
-
-ŝteliĝis el Duncroft House, sekvata de siaj dungitoj, kaj bal-
-
-daŭ faros alian laboron anstataŭ subskribi ĉarton por la libe-
-
-reco de sia popolo.
+daŭ faros alian laboron anstataŭ subskribi ĉarton por la libereco de sia popolo.
 
 Ne tiel! ĉifoje lin tenis fera preno kaj vane li turniĝis kaj
 
@@ -5616,39 +4261,24 @@ Li rajdas tien, kie kuŝas la boatoj tute pretaj, kaj la grandaj baronoj elpaŝa
 
 kiuj lin ĉirkaŭbaras.
 
-ĉu estas jam tro malfrue? Unu furiozan baton al la neni-
+ĉu estas jam tro malfrue? Unu furiozan baton al la nenion suspektanta rajdisto ĉe lia flanko, unu elkrion al liaj francaj militistoj, unu ĝismortan atakon kontraŭ la neatendantaj
 
-on suspektanta rajdisto ĉe lia flanko, unu elkrion al liaj francaj militistoj, unu ĝismortan atakon kontraŭ la neatendantaj
-
-vicoj antaŭ li, kaj ĉi tiuj ribelantaj baronoj eble pripentus la tagon, kiam ili kuraĝis malhelpi liajn planojn! Pli kuraĝa ma-no eĉ tiam estus aliiginta la ludon. Se estus tie ia Rikardo! la 134
-
-T R I V I RO J E N B OATO
+vicoj antaŭ li, kaj ĉi tiuj ribelantaj baronoj eble pripentus la tagon, kiam ili kuraĝis malhelpi liajn planojn! Pli kuraĝa ma-no eĉ tiam estus aliiginta la ludon. Se estus tie ia Rikardo! la
 
 
 kaliklo de libereco eble estus deĵetita de la lipoj de Anglujo, kaj la gusto de libereco fortenita cent jarojn.
 
-Sed la kuraĝo de reĝo Johano forvelkis antaŭ la severaj vi-
-
-zaĝoj de la anglaj militistoj, la brako de reĝo Johano refalas sur la kondukilojn kaj li deiras kaj sidiĝas en la plej antaŭa boato. La baronoj postsekvas, ĉiu kun la kirasita mano sur
+Sed la kuraĝo de reĝo Johano forvelkis antaŭ la severaj vizaĝoj de la anglaj militistoj, la brako de reĝo Johano refalas sur la kondukilojn kaj li deiras kaj sidiĝas en la plej antaŭa boato. La baronoj postsekvas, ĉiu kun la kirasita mano sur
 
 glavtenilo, kaj oni donas la ordonon ekiri.
 
-Malrapide la pezaj, gaje ornamitaj boatoj forlasas la bor-
-
-don ĉe Runningmede. Malrapide kontraŭ la rapida fluo ili
+Malrapide la pezaj, gaje ornamitaj boatoj forlasas la bordon ĉe Runningmede. Malrapide kontraŭ la rapida fluo ili
 
 pene tralaboras al si vojon ĝis, kun mallaŭta murmuro, ili
 
-grincas ĉe la bordo de la malgranda insulo, kiu de tiu tago ĝis la hodiaŭa portos la nomon Magna Carta-insulo. Reĝo Johano jam surpaŝas la bordon kaj ni atendas en senspira silen-
+grincas ĉe la bordo de la malgranda insulo, kiu de tiu tago ĝis la hodiaŭa portos la nomon Magna Carta-insulo. Reĝo Johano jam surpaŝas la bordon kaj ni atendas en senspira silento ĝis la aeron fendas granda kriego kaj la granda bazoŝtono
 
-to ĝis la aeron fendas granda kriego kaj la granda bazoŝtono
-
-en la angla templo de libereco, ni scias nun, estas firme me-
-
-tita.
-
-
-T R I V I RO J E N B OATO
+en la angla templo de libereco, ni scias nun, estas firme metita.
 
 
 ĉapitro XII
@@ -5669,9 +4299,7 @@ Velveturado — Tri fiŝkaptistoj — Ni estas malbenataj
 
 Mi sidis sur la bordo memorante ĉi tiun scenon, kiam
 
-Georgo diris, ke post mia plena ripozo mi eble bonvo-
-
-los kunhelpi en la purigado de la manĝilaro; tiel revokita de
+Georgo diris, ke post mia plena ripozo mi eble bonvolos kunhelpi en la purigado de la manĝilaro; tiel revokita de
 
 la tagoj de la glora pasinteco al banala nuntempo, kun ĝiaj
 
@@ -5683,29 +4311,15 @@ fine poluris per la malseka ĉemizo de Georgo.
 
 Ni iris al la Magna Carta-insulo kaj rigardis la ŝtonon, kiu
 
-staras tie en la dometo kaj sur kiu laŭdire la granda ĉarto estis subskribita; tamen pri tio, ĉu ĝi vere estis subsikribita tie, aŭ, kiel aliaj diras, sur la alia bordo ĉe Runningmede, mi ne volas diri ion definitivan. Koncerne mian propran opinion, ta-
+staras tie en la dometo kaj sur kiu laŭdire la granda ĉarto estis subskribita; tamen pri tio, ĉu ĝi vere estis subsikribita tie, aŭ, kiel aliaj diras, sur la alia bordo ĉe Runningmede, mi ne volas diri ion definitivan. Koncerne mian propran opinion, tamen, mi emas taksi alte la popularan insulo-teorion. Certe, se mi estus unu el la tiamaj baronoj, mi insiste konsilus al miaj kunuloj, ke tian elturniĝeman individuon, kia estis reĝo Johano, ili irigu sur la insulon, kie estis malpli da ebleco por sur-prizatakoj kaj ruzaĵoj.
 
-men, mi emas taksi alte la popularan insulo-teorion. Certe, se mi estus unu el la tiamaj baronoj, mi insiste konsilus al miaj kunuloj, ke tian elturniĝeman individuon, kia estis reĝo Johano, ili irigu sur la insulon, kie estis malpli da ebleco por sur-prizatakoj kaj ruzaĵoj.
+Ruino de malnova abatejo troviĝas sur la bieno de Ankerwyke House, kiu estas proksima al Piknika Pinto, kaj oni di-
 
-Ruino de malnova abatejo troviĝas sur la bieno de Anker-
+ras, ke en la proksimeco de la bieno de ĉi tiu malnova abatejo Henriko VIII atendis kaj renkontis Anne BoIeyn. Li ŝin ren-kontadis ankaŭ ĉe Hever Castle en la graflando Kent kaj ankaŭ ie apud St. Albans. Por la popolo de Anglujo en tiu tem-
 
+po sendube estis malfacile trovi lokon, kie ĉi tiuj senpripensaj gejunuloj ne amindumis.
 
-T R I V I RO J E N B OATO
-
-
-wyke House, kiu estas proksima al Piknika Pinto, kaj oni di-
-
-ras, ke en la proksimeco de la bieno de ĉi tiu malnova abatejo Henriko VIII atendis kaj renkontis Anne BoIeyn. Li ŝin ren-kontadis ankaŭ ĉe Hever Castle en la graflando Kent kaj an-
-
-kaŭ ie apud St. Albans. Por la popolo de Anglujo en tiu tem-
-
-po sendube estis malfacile trovi lokon, kie ĉi tiuj senpripen-
-
-saj gejunuloj ne amindumis.
-
-ĉu vi iam loĝis en domo, kie troviĝas amindumantaj gea-
-
-mantoj? Tio estas ĝenega. Vi deziras sidi en la salono kaj tien vi iras. Malfermante la pordon, vi aŭdas bruon, kiel se iu memoras ion, kaj tiam vi eniras, Emily staras ĉe la fenestro, ab-sorbe atentanta la kontraŭan flankon de la strato, kaj ĉe la
+ĉu vi iam loĝis en domo, kie troviĝas amindumantaj geamantoj? Tio estas ĝenega. Vi deziras sidi en la salono kaj tien vi iras. Malfermante la pordon, vi aŭdas bruon, kiel se iu memoras ion, kaj tiam vi eniras, Emily staras ĉe la fenestro, ab-sorbe atentanta la kontraŭan flankon de la strato, kaj ĉe la
 
 alia flanko de la ĉambro staras via amiko, Johano Edvardo,
 
@@ -5715,17 +4329,13 @@ tutanime ravegita de la fotaĵoj de la parencoj de aliaj.
 
 estas ĉi tie.
 
-—Ho! ĉu ne? — diras Emily en malvarma tono, kiu kom-
-
-prenigas, ke ŝi ne kredas vin.
+—Ho! ĉu ne? — diras Emily en malvarma tono, kiu komprenigas, ke ŝi ne kredas vin.
 
 Vi restas tie kelkan tempon kaj poste vi diras:
 
 —Estas tre mallume. Kial vi ne lumigas la gason?
 
-Johano Edvardo diras, ”Ho!” li tion ne rimarkis; Emily di-
-
-ras, ke ne plaĉas al paĉjo, ke oni lumigas la gason posttagme-
+Johano Edvardo diras, ”Ho!” li tion ne rimarkis; Emily diras, ke ne plaĉas al paĉjo, ke oni lumigas la gason posttagme-
 
 ze,
 
@@ -5736,26 +4346,17 @@ Pri ĉiu temo ili diras nur ”Ho!”, ”ĉu?”, ”ĉu jes?”, ”Jes” kaj
 Duonhoron poste venas al vi la penso fumi pipon en la
 
 
-T R I V I RO J E N B OATO
-
-
-vitra plantejo. La solan seĝon jam okupas Emily; Johano Ed-
-
-vardo, se oni povas fidi al la lingvo de vestoj, estis evidente sidanta sur la planko. Ili ne parolas, tamen ili ĵetas al vi rigardon, kiu diras ĉion direblan en civilizita komunumo; vi tuj
+vitra plantejo. La solan seĝon jam okupas Emily; Johano Edvardo, se oni povas fidi al la lingvo de vestoj, estis evidente sidanta sur la planko. Ili ne parolas, tamen ili ĵetas al vi rigardon, kiu diras ĉion direblan en civilizita komunumo; vi tuj
 
 retiriĝas kaj fermas la pordon post vi.
 
 Vi jam timas ŝovi la nazon en iun ajn ĉambron en la domo;
 
-post kelktempa marŝado supren kaj malsupren sur la ŝtupa-
-
-ro, vi eniras vian dormoĉambron kaj sidiĝas tie. Tio tamen
+post kelktempa marŝado supren kaj malsupren sur la ŝtuparo, vi eniras vian dormoĉambron kaj sidiĝas tie. Tio tamen
 
 baldaŭ tedas, tial vi surmetas la ĉapelon kaj iras promeni en
 
-la ĝardeno. Vi paŝas sur la vojeto kaj, preterpasante la ĝar-
-
-denbudon, vi enrigardas, kaj jen estas tiuj du junaj idiotoj,
+la ĝardeno. Vi paŝas sur la vojeto kaj, preterpasante la ĝardenbudon, vi enrigardas, kaj jen estas tiuj du junaj idiotoj,
 
 kunpremitaj en unu angulo de ĝi; ili vidas vin kaj inklinas,
 
@@ -5763,9 +4364,7 @@ evidente, supozi ke vi, pro ia malbona kaŭzo, ilin persekutas.
 
 —Kial oni ne havas specialan ĉambron por tiaj aferoj, por
 
-devigi la geamantojn resti tie? — vi murmuretas kaj vi kure-
-
-gas al la vestiblo, prenas la ombrelon kaj eliras.
+devigi la geamantojn resti tie? — vi murmuretas kaj vi kuregas al la vestiblo, prenas la ombrelon kaj eliras.
 
 Io tre simila al tio ĉi tre verŝajne okazis, kiam tiu malsaĝa
 
@@ -5777,17 +4376,11 @@ kveradis en la proksimeco de Windsor kaj Wraysbury, kaj
 
 kriis ”Ho! vi ĉi tie!” kaj Henriko verŝajne ruĝiĝis kaj diris ”Jes; mi ĵus venis por renkonti viron” kaj Anne verŝajne diris ”Ho,
 
-kiel mi ĝojas vin vidi! ĉu ne strange? Mi ĵus renkontis Hen-
+kiel mi ĝojas vin vidi! ĉu ne strange? Mi ĵus renkontis Henrikon VIII sur la vojeto kaj li iras en la saman direkton kiel mi”.
 
-rikon VIII sur la vojeto kaj li iras en la saman direkton kiel mi”.
+Tiam tiuj homoj verŝajne foriris kaj diris al si: ”Ho! ni prefere foriru de ĉi tie, dum daŭras ĉi tiu kverado. Ni iru en la graflandon Kent.”
 
-Tiam tiuj homoj verŝajne foriris kaj diris al si: ”Ho! ni pre-
-
-fere foriru de ĉi tie, dum daŭras ĉi tiu kverado. Ni iru en la graflandon Kent.”
-
-Ili iris al Kent kaj ĉe la unua rigardo, kiam ili tien alvenis, 138
-
-T R I V I RO J E N B OATO
+Ili iris al Kent kaj ĉe la unua rigardo, kiam ili tien alvenis,
 
 
 ili vidis Henrikon kaj Anne petolantaj proksime de Hever
@@ -5800,9 +4393,7 @@ plu povas elteni. Ni iru al St. Albans — ĉarma kvieta loko, St.
 
 Albans.
 
-Kiam ili atingis St. Albans, jen estis tiuj malbenindaj gea-
-
-mantoj, interkisantaj ĉe la muroj de la abatejo. Tiam ĉi tiuj
+Kiam ili atingis St. Albans, jen estis tiuj malbenindaj geamantoj, interkisantaj ĉe la muroj de la abatejo. Tiam ĉi tiuj
 
 homoj verŝajne fariĝis piratoj, ĝis okazis la geedziĝo.
 
@@ -5816,9 +4407,7 @@ Ouseley” pitoreska trinkejo, kiaj la plejmultaj riveraj trinkejoj estas, kaj e
 
 tiel diras Harris; pri tia afero vi povas kredi la vorton de Harris. Malnova Windsor estas fama loko en sia speco. Edvardo
 
-la Konfesanto havis palacon ĉi tie, kaj ĉi tie la grandan gra-
-
-fon Godwin la tiutempa juĝado juĝis kulpa pri instigo mor-
+la Konfesanto havis palacon ĉi tie, kaj ĉi tie la grandan grafon Godwin la tiutempa juĝado juĝis kulpa pri instigo mor-
 
 tigi la fraton de la reĝo. La grafo Godwin rompis pecon de
 
@@ -5832,20 +4421,13 @@ Li metis la panon en la buŝon kaj glutis ĝin, ĝi sufokis lin
 
 kaj li mortis.
 
-Preterpasinte Malnovan Windsor la rivero fariĝas iom sen-
-
-interesa kaj nur kiam vi proksimiĝas al Boveney ĝi denove
+Preterpasinte Malnovan Windsor la rivero fariĝas iom seninteresa kaj nur kiam vi proksimiĝas al Boveney ĝi denove
 
 trovas sian propran karakteron. Georgo kaj mi trenis preter
 
-la Hejma Parko, kiu etendas sin laŭ la dekstra bordo de Alber-
-
-ta ĝis Viktoria-ponto; dum ni preterpasis Datchet, Georgo
+la Hejma Parko, kiu etendas sin laŭ la dekstra bordo de Alberta ĝis Viktoria-ponto; dum ni preterpasis Datchet, Georgo
 
 demandis min, ĉu mi memoras nian unuan vojaĝon sur la
-
-
-T R I V I RO J E N B OATO
 
 
 rivero, kiam ni albordiĝis ĉe Datchet je la deka vespere kaj
@@ -5856,15 +4438,11 @@ Mi respondis, ke mi memoras. Pasos ankoraŭ kelka tempo
 
 antaŭ ol mi tion forgesos.
 
-Estis la sabato antaŭ la aŭgusta ferio. Ni estis lacaj kaj malsataj kaj ni — la samaj tri – atinginte Datchet prenis la kor-
-
-begon, la du valizojn, la lankovrilojn kaj paltojn kaj ankoraŭ aliajn objektojn, kaj iris serĉi loĝejon. Ni preterpasis beletan hoteleton, kun klematido kaj grimpplanto super la portiko;
+Estis la sabato antaŭ la aŭgusta ferio. Ni estis lacaj kaj malsataj kaj ni — la samaj tri – atinginte Datchet prenis la korbegon, la du valizojn, la lankovrilojn kaj paltojn kaj ankoraŭ aliajn objektojn, kaj iris serĉi loĝejon. Ni preterpasis beletan hoteleton, kun klematido kaj grimpplanto super la portiko;
 
 tamen ne troviĝis tie lonicero kaj pro iu aŭ alia kaŭzo mi jam ekhavis en la menso frenezan ideon pri lonicero kaj mi diris:
 
-—Ho, tien ni ne eniru! Ni iru iom plue por vidi, ĉu ne es-
-
-tas hoteleto kun lonicero sur ĝi.
+—Ho, tien ni ne eniru! Ni iru iom plue por vidi, ĉu ne estas hoteleto kun lonicero sur ĝi.
 
 Ni do pluiris, ĝis ni alvenis al alia hotelo. Ankaŭ tiu estis
 
@@ -5878,17 +4456,13 @@ Li diris:
 
 Ni diris:
 
-—Ho, ni jam estis tie, kaj ĝi ne plaĉis al ni — ne estis loni-
-
-cero sur ĝi.
+—Ho, ni jam estis tie, kaj ĝi ne plaĉis al ni — ne estis lonicero sur ĝi.
 
 —Nu, do, — li diris, — ”Biendomo” estas ĝuste kontraŭe.
 
 ĉu ĝin vi provis?
 
-Harris respondis, ke tien ni ne volas iri — ne plaĉas al ni la 140
-
-T R I V I RO J E N B OATO
+Harris respondis, ke tien ni ne volas iri — ne plaĉas al ni la
 
 
 aspekto de viro loĝanta tie — ne plaĉas al Harris la koloro de liaj haroj, nek plaĉas al li liaj botoj.
@@ -5901,9 +4475,7 @@ informanto; — ĉar ili estas la solaj du hoteloj en la proksime-co.
 
 —Neniuj, — respondis la viro.
 
-—Kion sur la tero ni faru? — kriis Harris. Tiam parolis Ge-
-
-orgo. Li diris, ke Harris kaj mi povas konstruigi hotelon por
+—Kion sur la tero ni faru? — kriis Harris. Tiam parolis Georgo. Li diris, ke Harris kaj mi povas konstruigi hotelon por
 
 ni, se tio plaĉas al ni, kaj kreigi homojn por meti en ĝin. Koncerne sin, li intencas reiri al ”Cervo”.
 
@@ -5919,9 +4491,7 @@ La hotelestro alproksimiĝis kaj diris:
 
 —Bonan vesperon, sinjoroj.
 
-—Ho, bonan vesperon, — diris Georgo; — ni deziras tri li-
-
-tojn, mi petas.
+—Ho, bonan vesperon, — diris Georgo; — ni deziras tri litojn, mi petas.
 
 —Mi tre bedaŭras, sinjoro, — diris la hotelestro; sed mi
 
@@ -5942,14 +4512,9 @@ tre facile dormi en unu lito.
 Fakte ni jam metas du kaj eĉ tri sinjorojn en unu liton.
 
 
-T R I V I RO J E N B OATO
-
-
 Tio nin ŝancelis kelkan tempon.
 
-Sed Harris, kiu estas malnova vojaĝanto, montris la bezo-
-
-natan kapablon, kaj gaje ridante diris:
+Sed Harris, kiu estas malnova vojaĝanto, montris la bezonatan kapablon, kaj gaje ridante diris:
 
 —Ho, nu, ne estas eviteble. Ni devos vivi malmole. Donu
 
@@ -5969,9 +4534,7 @@ Harris parolis tute bonkore kaj prudente.
 
 La homoj ĉe ”Biendomo” ne donis al ni la eblon paroli. La
 
-hotelestrino nin renkontis sur la pordoŝtupo kun la saluto, ke ni estas la dekkvara grupo, kiun ŝi malakceptis dum la pasintaj unu kaj duona horoj. Niajn mildajn aludojn al staloj, bi-
-
-lardĉambro aŭ karbejoj, ŝi forridis malestime: ĉiujn tiujn lo-
+hotelestrino nin renkontis sur la pordoŝtupo kun la saluto, ke ni estas la dekkvara grupo, kiun ŝi malakceptis dum la pasintaj unu kaj duona horoj. Niajn mildajn aludojn al staloj, bilardĉambro aŭ karbejoj, ŝi forridis malestime: ĉiujn tiujn lo-
 
 ketojn oni kaptis jam de longe.
 
@@ -5979,53 +4542,36 @@ ketojn oni kaptis jam de longe.
 
 hodiaŭa nokto?
 
-—Nu, se kruda vivmaniero nin ne ofendos — ŝi ne reko-
-
-mendas ĝin — tamen estas malgranda biervendejo duonme-
+—Nu, se kruda vivmaniero nin ne ofendos — ŝi ne rekomendas ĝin — tamen estas malgranda biervendejo duonme-
 
 jlon laŭlonge de la Etonvojo…
 
-Ni ne restis por aŭdi pli; ni prenis la korbegon kaj la vali-
-
-zojn, la paltojn kaj lankovrilojn kaj la pakaĵojn kaj kuris. La distanco ŝajnis pli mejlo ol duonmejlo, sed fine ni alvenis kaj kuregis, spirblovante, en la trinkejon.
+Ni ne restis por aŭdi pli; ni prenis la korbegon kaj la valizojn, la paltojn kaj lankovrilojn kaj la pakaĵojn kaj kuris. La distanco ŝajnis pli mejlo ol duonmejlo, sed fine ni alvenis kaj kuregis, spirblovante, en la trinkejon.
 
 La homoj en la bierejo estis malĝentilaj. Ili nur ridis al ni.
 
 
-T R I V I RO J E N B OATO
-
-
-Estis en la tuta domo nur tri litoj kaj jam dormas tie sep fraŭ-
-
-loj kaj du paroj de geedzoj. Bonkora ŝarĝboatisto, kiu okaze
+Estis en la tuta domo nur tri litoj kaj jam dormas tie sep fraŭloj kaj du paroj de geedzoj. Bonkora ŝarĝboatisto, kiu okaze
 
 estis en la trinkejo, tamen kredis, ke eble ni sukcesos ĉe la
 
 nutraĵvendisto, plej proksime al ”Cervo”, kaj ni reiris.
 
-La domo de la nutraĵvendisto estis plena. Tiam maljunu-
-
-lino, kiun ni renkontis en la butiko, ĝentile kondukis nin kvaronmejlon al sia amikino, kiu kelkfoje luigas ĉambrojn al sin-
+La domo de la nutraĵvendisto estis plena. Tiam maljunulino, kiun ni renkontis en la butiko, ĝentile kondukis nin kvaronmejlon al sia amikino, kiu kelkfoje luigas ĉambrojn al sin-
 
 joroj.
 
 ĉi tiu maljunulino iris tre malrapide kaj jam forpasis dudek
 
-minutoj antaŭ ol ni venis al ŝia amikino. ŝi gajigis nin dum-
-
-voje pentrante, dum ni trenadis nin antaŭen, la diversajn do-
+minutoj antaŭ ol ni venis al ŝia amikino. ŝi gajigis nin dumvoje pentrante, dum ni trenadis nin antaŭen, la diversajn do-
 
 lorojn, kiujn ŝi sentas en la dorso.
 
-La ĉambroj de ŝia amikino estis jam luitaj. Tie oni nin re-
-
-komendis al n-ro 27. N-ro 27 estis plena kaj sendis nin al n-
+La ĉambroj de ŝia amikino estis jam luitaj. Tie oni nin rekomendis al n-ro 27. N-ro 27 estis plena kaj sendis nin al n-
 
 ro 32, kaj n-ro 32 estis plena.
 
-Tiam ni reiris sur la ŝoseon kaj Harris sidiĝis sur la korbe-
-
-go kaj diris, ke li ne iros plu. Li diris, ke ĝi aspektas kvieta loko, kaj ke tie li volas morti. Li petis Georgon kaj min, ke ni kisu liaparte lian patrinon kaj diru al ĉiuj liaj parencoj, ke li pardonis al ili kaj mortis feliĉa.
+Tiam ni reiris sur la ŝoseon kaj Harris sidiĝis sur la korbego kaj diris, ke li ne iros plu. Li diris, ke ĝi aspektas kvieta loko, kaj ke tie li volas morti. Li petis Georgon kaj min, ke ni kisu liaparte lian patrinon kaj diru al ĉiuj liaj parencoj, ke li pardonis al ili kaj mortis feliĉa.
 
 En tiu momento alvenis anĝelo en la formo de malgranda
 
@@ -6037,53 +4583,33 @@ la alia kun io sur la fino de ŝnureto, kion li demetis sur ĉiun platan ŝtonon
 
 Ni demandis ĉi tiun ĉielan senditon (kiel ni poste eksciis,
 
-ke li estas), ĉu li konas solecan domon, kies enloĝantoj estas malmultaj kaj malfortaj (prefere maljunaj virinoj kaj parali-zitaj sinjoroj), kiujn oni povas facile teruri, ĝis ili cedos siajn 143
-
-
-T R I V I RO J E N B OATO
+ke li estas), ĉu li konas solecan domon, kies enloĝantoj estas malmultaj kaj malfortaj (prefere maljunaj virinoj kaj parali-zitaj sinjoroj), kiujn oni povas facile teruri, ĝis ili cedos siajn
 
 
 litojn por la nokto al tri sovaĝaj viroj; aŭ se ne, ĉu li povas nin rekomendi al neokupata porkstalo, aŭ neuzata kalkforno, aŭ
 
-io tia. Tiajn lokojn li ne konis — almenaŭ neniujn en la prok-
-
-simeco; sed li diris, ke se ni volas veni kun li, lia patrino havas vakantan ĉambron kaj povas enloĝigi nin por tiu nokto,
+io tia. Tiajn lokojn li ne konis — almenaŭ neniujn en la proksimeco; sed li diris, ke se ni volas veni kun li, lia patrino havas vakantan ĉambron kaj povas enloĝigi nin por tiu nokto,
 
 Tie en la lunlumo ni falis sur lian bruston kaj lin benis, kaj tio estus pentrinda bildo, se la knabo mem ne estus tiel su-perregata de nia emocio, ke li ne povis plu elteni kaj falis al la tero, lasante nin ĉiujn fali sur lin. Harris estis tiel superre-gata de ĝojo, ke li svenis kaj devis preni la bierpoton de la
 
-knabo kaj trinki duonon de la biero antaŭ ol li povis rekon-
-
-sciiĝi, kaj tiam li kuris kaj lasis Georgon kaj min por kunporti la pakaĵojn.
+knabo kaj trinki duonon de la biero antaŭ ol li povis rekonsciiĝi, kaj tiam li kuris kaj lasis Georgon kaj min por kunporti la pakaĵojn.
 
 La knabo loĝis en malgranda kvarĉambra dometo kaj lia
 
-patrino — bona animo! — donis al ni varman lardon por ves-
+patrino — bona animo! — donis al ni varman lardon por vespermanĝo, kaj ni manĝis ĉion — kvin funtojn — kaj poste
 
-permanĝo, kaj ni manĝis ĉion — kvin funtojn — kaj poste
-
-torton kaj du potojn da teo kaj poste ni enlitiĝis. En la ĉam-
-
-bro estis du litoj; unu estis 75 centimetra ligna lito kaj en ĝi dormis Georgo kaj mi kaj ni nin tenis tie kunligitaj per la litt-uko; la alia estis la lito de la malgranda knabo kaj Harris havis ĝin tute por si mem kaj ni lin trovis en la mateno kun ses-dek centimetroj da nuda kruro elstarantaj el la malsupro, kaj
+torton kaj du potojn da teo kaj poste ni enlitiĝis. En la ĉambro estis du litoj; unu estis 75 centimetra ligna lito kaj en ĝi dormis Georgo kaj mi kaj ni nin tenis tie kunligitaj per la litt-uko; la alia estis la lito de la malgranda knabo kaj Harris havis ĝin tute por si mem kaj ni lin trovis en la mateno kun ses-dek centimetroj da nuda kruro elstarantaj el la malsupro, kaj
 
 
-T R I V I RO J E N B OATO
-
-
-tion Georgo kaj mi uzis por pendigi la viŝtukojn dum ni ba-
-
-nis nin.
+tion Georgo kaj mi uzis por pendigi la viŝtukojn dum ni banis nin.
 
 Ni ne estis tiel arogantaj pri tio, kiu hotelo plaĉos al ni, la sekvantan fojon, kiam ni iris al Datchet.
 
 Ni revenu tamen al nia nuna vojaĝo; okazis nenio ekscita
 
-kaj ni trenis malrapide antaŭen ĝis iom malsupre de Monkey-
+kaj ni trenis malrapide antaŭen ĝis iom malsupre de Monkeyinsulo, kie ni albordiĝis kaj lunĉis. Por la lunĉo ni nin dediĉis al malvarma bovaĵo kaj tiam trovis, ke ni forgesis kunporti
 
-insulo, kie ni albordiĝis kaj lunĉis. Por la lunĉo ni nin dediĉis al malvarma bovaĵo kaj tiam trovis, ke ni forgesis kunporti
-
-mustardon. Mi kredas, ke neniam en la vivo, antaŭe aŭ pos-
-
-te, mi sentis tiel fortegan deziron por mustardo, kiel mi sen-
+mustardon. Mi kredas, ke neniam en la vivo, antaŭe aŭ poste, mi sentis tiel fortegan deziron por mustardo, kiel mi sen-
 
 tis tiam. Kutime mustardon mi ne tre ŝatas kaj entute mi nur
 
@@ -6097,36 +4623,24 @@ ilin ĉiujn povus havi tiu, kiu estus alportinta al mi ĝuste en tiu momento ple
 
 mi fariĝas, kiam mi deziras ion kaj ne povas ĝin akiri.
 
-Harris diris, ke por mustardo ankaŭ li donus mondojn. Es-
+Harris diris, ke por mustardo ankaŭ li donus mondojn. Estus estinte bone al tiu, kiu alvenus tiam al tiu loko kun poto da mustardo: li havus sufiĉe da mondoj por la tuta vivo.
 
-tus estinte bone al tiu, kiu alvenus tiam al tiu loko kun poto da mustardo: li havus sufiĉe da mondoj por la tuta vivo.
+Sed estas tamen verŝajne ke, akirinte la mustardon, ni ambaŭ, Harris kaj mi, provus elturniĝi el la aranĝo. Oni emas fari tiajn malavarajn ofertojn en momentoj de ekscitiĝo, kiam oni
 
-Sed estas tamen verŝajne ke, akirinte la mustardon, ni am-
+repripensas, oni tamen kompreneble vidas, kiel malproporciaj ili estas al la valoro de la komercaĵo bezonata. Iun fojon mi aŭdis viron supreniranta monton en Svisujo, ke mondojn
 
-baŭ, Harris kaj mi, provus elturniĝi el la aranĝo. Oni emas fari tiajn malavarajn ofertojn en momentoj de ekscitiĝo, kiam oni
-
-repripensas, oni tamen kompreneble vidas, kiel malpropor-
-
-ciaj ili estas al la valoro de la komercaĵo bezonata. Iun fojon mi aŭdis viron supreniranta monton en Svisujo, ke mondojn
-
-li volonte donus por glaso da biero, kaj kiam li alvenis al malgranda barako, kie ĝi estis vendata, li bruege kriis pro tio, ke oni postulis kvin frankojn por botelo da Bass-biero. Li diris, 145
-
-T R I V I RO J E N B OATO
+li volonte donus por glaso da biero, kaj kiam li alvenis al malgranda barako, kie ĝi estis vendata, li bruege kriis pro tio, ke oni postulis kvin frankojn por botelo da Bass-biero. Li diris,
 
 
 ke tio estas skandala maljustaĵo kaj li skribis pri tio al The Times.
 
 Malgajigis la tutan boaton tio, ke ne estis mustardo. En
 
-silento ni manĝis la bovaĵon. La vivo ŝajnis vana kaj seninte-
-
-resa. Ni pensis pri la feliĉaj tagoj de la infanaĝo kaj ĝemetis.
+silento ni manĝis la bovaĵon. La vivo ŝajnis vana kaj seninteresa. Ni pensis pri la feliĉaj tagoj de la infanaĝo kaj ĝemetis.
 
 Ni tamen iom gajiĝis ĉe la pomtorto kaj kiam Georgo eltiris
 
-el la fundo de la korbego ladan skatolon da ananaso kaj ru-
-
-lis ĝin en la boatmezon, ni sentis, ke la vivo valoras ion.
+el la fundo de la korbego ladan skatolon da ananaso kaj rulis ĝin en la boatmezon, ni sentis, ke la vivo valoras ion.
 
 Ananason ni tre ŝatas, ĉiuj tri. Ni rigardis la bildon sur la
 
@@ -6146,24 +4660,15 @@ tondileto kaj la tondileto ĵetiĝis supren kaj preskaŭ eligis lian okulon. Dum
 
 en la malbenindaĵo per la pinto de la alkroĉilo, la alkroĉilo
 
-glitis kaj min elpuŝis inter la boaton kaj la bordon en du fu-
+glitis kaj min elpuŝis inter la boaton kaj la bordon en du futojn da ŝlima akvo, la skatolo ruliĝis, nedifektita, kaj rompis tetason.
 
-tojn da ŝlima akvo, la skatolo ruliĝis, nedifektita, kaj rompis tetason.
-
-Tiam ni ĉiuj freneziĝis. La skatolon ni kunportis sur la bor-
-
-don kaj Harris iris sur kampon kaj akiris grandan akrapintan
+Tiam ni ĉiuj freneziĝis. La skatolon ni kunportis sur la bordon kaj Harris iris sur kampon kaj akiris grandan akrapintan
 
 ŝtonon, mi reiris en la boaton kaj elportis la maston, Georgo
 
-tenis la skatolon kaj Harris tenis sur ĝia supro la akran pin-
-
-ton de la ŝtono, mi prenis la maston kaj ĝin levis alten en la aero, kolektis ĉiujn miajn fortojn kaj frapegis.
+tenis la skatolon kaj Harris tenis sur ĝia supro la akran pinton de la ŝtono, mi prenis la maston kaj ĝin levis alten en la aero, kolektis ĉiujn miajn fortojn kaj frapegis.
 
 Estis la ĉapelo de Georgo, kiu savis lian vivon tiun tagon.
-
-
-T R I V I RO J E N B OATO
 
 
 Li ankoraŭ konservas tiun ĉapelon (kiom restis el ĝi) kaj en
@@ -6184,43 +4689,30 @@ Ni batis ĝin plata; ni rebatis ĝin kvadrata; ni batis ĝin en
 
 povis fari. Tiam Georgo atakis ĝin kaj frapis ĝin en formon tiel strangan, tiel nenaturan, tiel nemondan en sia sovaĝa malbe-lo, ke li timiĝis kaj forĵetis la maston. Tiam ni ĉiuj tri sidiĝis ĉirkaŭ ĝi sur la herbo kaj rigardis ĝin.
 
-Tra ĝia supro estis granda endentaĵo, kiu aspektis kiel rik-
-
-ana rideto, kaj ĝi nin furiozigis, tiel ke Harris kuregis al ĝi, ĝin prenis kaj ĵetis malproksimen en la mezon de la rivero kaj,
+Tra ĝia supro estis granda endentaĵo, kiu aspektis kiel rikana rideto, kaj ĝi nin furiozigis, tiel ke Harris kuregis al ĝi, ĝin prenis kaj ĵetis malproksimen en la mezon de la rivero kaj,
 
 dum ĝi subakviĝis, ni ĵetis al ĝi niajn malbenojn, eniris la boaton kaj remis for de la loko kaj neniam haltis, ĝis ni atingis Maidenhead.
 
-Maidenhead mem estas tro snoba por plaĉi. i estas la vi-
+Maidenhead mem estas tro snoba por plaĉi. i estas la vizitejo de la rivera elegantulo kaj lia trovestita kunulino. i estas la urbo de paradaj hoteloj, favorataj plejparte de dan-doj kaj baletistinoj. i estas sorĉistina kuirejo, el kiu eliras la demonoj de la rivero — la vaporŝalupoj. La duko de Londona
 
-zitejo de la rivera elegantulo kaj lia trovestita kunulino. i estas la urbo de paradaj hoteloj, favorataj plejparte de dan-doj kaj baletistinoj. i estas sorĉistina kuirejo, el kiu eliras la demonoj de la rivero — la vaporŝalupoj. La duko de Londona
-
-ĵurnalo ĉiam havas sian ”bieneton” en Maidenhead; la hero-
-
-ino de la trivoluma romano ĉiam manĝas tie, kiam ŝi diboĉas
+ĵurnalo ĉiam havas sian ”bieneton” en Maidenhead; la heroino de la trivoluma romano ĉiam manĝas tie, kiam ŝi diboĉas
 
 kun la edzo de iu alia.
 
 Ni trapasis Maidenhead rapide kaj poste malstreĉiĝis kaj
 
 
-T R I V I RO J E N B OATO
-
-
 malrapide traveturis la majestan etendaĵon preter la kluzoj de Boulter kaj Cookham. La Clieveden-arbaretoj ankoraŭ portis
 
 sian beletan veston de printempo kaj leviĝis ĉe la vando de la akvo, en unu longa harmonio de kunmiksitaj nuancoj de fe-ina verdo. En sia neinterrompita belo tio estas verŝajne la plej ĉarma etendaĵo de la tuta rivero, ni haltis kaj malrapide tiris nian boaton preter ĝia profunda trankvilo.
 
-Ni haltis en flankakvo, tuj malsupre de Cookham, kaj man-
-
-ĝis la temanĝon; kiam ni nin trovis preter la kluzo, estis jam vespero. Leviĝis sufiĉe forta vento — favora al ni, je nia miro; ĉar ĝenerale sur la rivero la vento blovas ĉiam rekte al vi, kien ajn vi iras. i blovas rekte al vi en la mateno, kiam vi komencas unutagan vojaĝon, kaj vi remas longan distancon, pens-
+Ni haltis en flankakvo, tuj malsupre de Cookham, kaj manĝis la temanĝon; kiam ni nin trovis preter la kluzo, estis jam vespero. Leviĝis sufiĉe forta vento — favora al ni, je nia miro; ĉar ĝenerale sur la rivero la vento blovas ĉiam rekte al vi, kien ajn vi iras. i blovas rekte al vi en la mateno, kiam vi komencas unutagan vojaĝon, kaj vi remas longan distancon, pens-
 
 ante kiel facile estos reveni, ĉar vi povos uzi la velon. Poste, post la temanĝo, la vento tute ŝanĝas direkton kaj vi devas
 
 forte remi kontraŭ ĝi dum la tuta revena vojaĝo.
 
-Kiam vi tute forgesas kunpreni la velon, tiam la vento blo-
-
-vas favore al vi en ambaŭ direktoj. Sed jen! ĉi tiu mondo es-
+Kiam vi tute forgesas kunpreni la velon, tiam la vento blovas favore al vi en ambaŭ direktoj. Sed jen! ĉi tiu mondo es-
 
 tas nur provado kaj homo naskiĝis por suferoj, kiel birdoj por flugado supren.
 
@@ -6232,22 +4724,16 @@ ni zorge silentis kaj rapide suprenlevis la velon antaŭ ol oni rimarkis la erar
 
 Mi direktis.
 
-Pli ravan senton ol velveturado mi ne konas. Per ĝi la ho-
+Pli ravan senton ol velveturado mi ne konas. Per ĝi la homaro atingas pli proksimen al flugado ol ĝi povis ĝis nun —
 
-maro atingas pli proksimen al flugado ol ĝi povis ĝis nun —
-
-krom en sonĝoj. La flugiloj de la kureganta vento ŝajnas porti 148
-
-T R I V I RO J E N B OATO
+krom en sonĝoj. La flugiloj de la kureganta vento ŝajnas porti
 
 
 vin antaŭen, vi ne scias kien. Ne plu vi estas la malrapida,
 
 peze marŝanta, etaĉa argilaĵo, serpente rampanta sur la tero;
 
-vi estas parto de la naturo! Via koro pulsas flanke de ĝia. iaj helegaj brakoj vin ĉirkaŭas kaj vin levas al ĝia koro; viaj mem-broj malpeziĝas! La voĉoj de la aero kantas al vi. La tero ŝajnas malproksima kaj malgranda; la nuboj, tiel proksimaj su-
-
-per via kapo, estas fratoj kaj vi etendas al ili la brakojn.
+vi estas parto de la naturo! Via koro pulsas flanke de ĝia. iaj helegaj brakoj vin ĉirkaŭas kaj vin levas al ĝia koro; viaj mem-broj malpeziĝas! La voĉoj de la aero kantas al vi. La tero ŝajnas malproksima kaj malgranda; la nuboj, tiel proksimaj super via kapo, estas fratoj kaj vi etendas al ili la brakojn.
 
 Ni estis solaj sur la rivero, krom tio, ke en la malproksimo
 
@@ -6282,16 +4768,9 @@ kun tiu prameto, kie fiŝkaptis tiuj tri maljunuloj. Unue ni ne sciis, kio okazi
 ni venis en la proksimecon de homaj estaĵoj, kaj ke ĉi tiuj estas koleraj kaj malkontentaj.
 
 
-T R I V I RO J E N B OATO
+Harris mallevis la velon kaj tiam ni vidis, kio okazis. Tiuj tri maljunajn sinjorojn ni estis faligintaj de iliaj seĝoj en ĝeneralan amason sur la fundo de la prameto, kaj nun ili malrapide kaj pene sin apartigis unu de la alla kaj deprenis de si fiŝ-
 
-
-Harris mallevis la velon kaj tiam ni vidis, kio okazis. Tiuj tri maljunajn sinjorojn ni estis faligintaj de iliaj seĝoj en ĝeneralan amason sur la fundo de la prameto, kaj nun ili malrap-
-
-ide kaj pene sin apartigis unu de la alla kaj deprenis de si fiŝ-
-
-ojn; dum ili laboris, ili malbenis nin — ne per ordinara su-
-
-praĵa malbenado, sed per longaj, zorge elpensitaj, ĉionam-
+ojn; dum ili laboris, ili malbenis nin — ne per ordinara supraĵa malbenado, sed per longaj, zorge elpensitaj, ĉionam-
 
 pleksaj malbenoj, kiuj havis rilaton al nia tuta vivo kaj foriris en la malproksiman estontecon, entenis ĉiujn niajn parencojn
 
@@ -6312,9 +4791,6 @@ Georgo diris, ke post tio li direktos. Li diris, ke oni ne rajtas devigi tian me
 en ”Krono”.
 
 
-T R I V I RO J E N B OATO
-
-
 ĉapitro XIII
 
 Marlow — La Bisham-abatejo — La mona˛oj de Medmenham
@@ -6331,38 +4807,25 @@ vulphundo ĉe la ŝtatservista Magazeno — Nia foriro el Marlow
 
 hundo — Stranga malapero de Harris kaj pasteĉo
 
-Marlow estas unu el la plej plaĉaj riverlokoj, kiujn mi ko-
+Marlow estas unu el la plej plaĉaj riverlokoj, kiujn mi konas. i estas brumova, vigla urbeto; entute ne tre pi-
 
-nas. i estas brumova, vigla urbeto; entute ne tre pi-
-
-toreska, tio estas vera, tamen tie oni povas trovi multajn ku-
-
-riozajn loketojn kaj angulojn — ankoraŭ starantajn arkaĵojn
+toreska, tio estas vera, tamen tie oni povas trovi multajn kuriozajn loketojn kaj angulojn — ankoraŭ starantajn arkaĵojn
 
 de la ponto de la tempo, super kiu nia fantazio reiras al la
 
-tagoj, kiam la feŭda bieno ĉe Marlow agnoskis la saksan Al-
-
-gar kiel sia estro, antaŭ ol la konkeranta Vilhelmo ĝin kaptis por transdoni al reĝino Alatilda, antaŭ ol ĝi transpasis al la grafoj de Warwick aŭ al la mondeca lordo Paget, la konsili-sto de kvar sinsekvaj regantoj.
+tagoj, kiam la feŭda bieno ĉe Marlow agnoskis la saksan Algar kiel sia estro, antaŭ ol la konkeranta Vilhelmo ĝin kaptis por transdoni al reĝino Alatilda, antaŭ ol ĝi transpasis al la grafoj de Warwick aŭ al la mondeca lordo Paget, la konsili-sto de kvar sinsekvaj regantoj.
 
 Troviĝas ankaŭ en ĝia ĉirkaŭaĵo bela kamparo, se post la
 
-boatveturado vi emas promeni, dum la rivero mem ĉi tie ha-
+boatveturado vi emas promeni, dum la rivero mem ĉi tie havas sian plej belan aspekton. is Cookham, preter la Quarry-
 
-vas sian plej belan aspekton. is Cookham, preter la Quarry-
-
-arbaretoj kaj herbejoj, troviĝas belega etendaĵo. Karaj malju-
-
-naj Quarry-arbaretoj! kun viaj mallarĝaj, grimpantaj vojetoj
+arbaretoj kaj herbejoj, troviĝas belega etendaĵo. Karaj maljunaj Quarry-arbaretoj! kun viaj mallarĝaj, grimpantaj vojetoj
 
 kaj malgrandaj serpentumantaj maldensejoj, kiel plenaj vi
 
 ŝajnas, eĉ ĝis la nuna horo, de ĉarmaj memoroj de sunplenaj
 
 someraj tagoj! Kiel plenaj de fantomoj de ridantaj vizaĝoj
-
-
-T R I V I RO J E N B OATO
 
 
 estas viaj ombraj vidaĵoj! Kiel ĉarme falas de viaj susurantaj folioj la voĉoj de la longepasinta tempo!
@@ -6381,9 +4844,7 @@ Marlow-ponto. La Bisham-abatejo abundas de melodramaj
 
 posedaĵoj. i enhavas tapetitan dormoĉambron kaj sekretan
 
-ĉambron kaŝitan alte en la dikaj muroj. La fantomo de lordi-
-
-no Holy, kiu mortbatis sian fileton, ankoraŭ promenas tie en
+ĉambron kaŝitan alte en la dikaj muroj. La fantomo de lordino Holy, kiu mortbatis sian fileton, ankoraŭ promenas tie en
 
 la nokto, penanta purigi siajn fantomajn manojn en fantoma
 
@@ -6391,13 +4852,9 @@ pelvo.
 
 Warwick, la reĝfaranto, ripozas tie, jam ne zorgante pri tiaj
 
-bagatelaĵoj, kiel mondaj reĝoj kaj mondaj regnoj; ankaŭ Sa-
+bagatelaĵoj, kiel mondaj reĝoj kaj mondaj regnoj; ankaŭ Salisbury, kiu brave batalis ĉe Poictiers. ĵus antaŭ ol vi alvenas al la abatejo kaj ĝuste sur la riverbordo, staras la preĝejo de Bisham, kaj se ekzistas tomboj vizitindaj, eble tio estas la
 
-lisbury, kiu brave batalis ĉe Poictiers. ĵus antaŭ ol vi alvenas al la abatejo kaj ĝuste sur la riverbordo, staras la preĝejo de Bisham, kaj se ekzistas tomboj vizitindaj, eble tio estas la
-
-tomboj kaj monumentoj en la preĝejo de Bisham. Dum li ve-
-
-turis en sia boato sub la fagoj de Bisham, Shelley, kiu tiam
+tomboj kaj monumentoj en la preĝejo de Bisham. Dum li veturis en sia boato sub la fagoj de Bisham, Shelley, kiu tiam
 
 loĝis en Marlow (lian domon ankoraŭ nun vi povas vidi en
 
@@ -6407,67 +4864,39 @@ Iom pli supre, ĉe la Hurley-akvobariero, mi ofte pensis, ke
 
 mi povos resti tie monaton, ankoraŭ ne havante sufiĉe da
 
-tempo por ensuĉi la tutan belon de la sceno. La vilaĝo Hur-
-
-ley, je kvinminuta promeno de la kluzo, estas same malnova
+tempo por ensuĉi la tutan belon de la sceno. La vilaĝo Hurley, je kvinminuta promeno de la kluzo, estas same malnova
 
 kiel aliaj loko sur la rivero, ĉar ĝi fakte daŭras, por citi la kuriozan frazeologion de tiuj malhelaj tagoj, ”de la tempo de
 
 reĝo Sebert kaj reĝo Offa”. uste preter la bariero (almonte)
 
-estas Dan-kampo, kie la invadantaj danoj iam starigis tenda-
-
-
-T R I V I RO J E N B OATO
-
-
-ron, dum sia marŝo al Gloucestershire; ankoraŭ iom pli for,
+estas Dan-kampo, kie la invadantaj danoj iam starigis tendaron, dum sia marŝo al Gloucestershire; ankoraŭ iom pli for,
 
 nestanta en ĉarma angulo de la rivereto, troviĝas la restaĵo de la abatejo de Medmenham.
 
-La konataj mona˛oj de Medmenham, aŭ la ”Inferfajra klu-
-
-bo”, kiel oni kutimis nomi ilin, kaj inter kiuj la famaĉa Wilkes estis ano, estis fratularo, kies devizo estis ”Faru laŭplaĉe” kaj tiu invito ankoraŭ staras super la ruiniĝinta portalo de la abatejo. Multajn jarojn antaŭ la fondo de tiu falsa abatejo, kun
+La konataj mona˛oj de Medmenham, aŭ la ”Inferfajra klubo”, kiel oni kutimis nomi ilin, kaj inter kiuj la famaĉa Wilkes estis ano, estis fratularo, kies devizo estis ”Faru laŭplaĉe” kaj tiu invito ankoraŭ staras super la ruiniĝinta portalo de la abatejo. Multajn jarojn antaŭ la fondo de tiu falsa abatejo, kun
 
 ĝia kongregiacio de senrespektaj ŝercistoj, staris sur tiu sama loko monaęjo de pli severa speco, kies mona˛oj estis tipo
 
 iom malsimila al la festantoj, kiuj sekvis ilin kvincent jarojn poste.
 
-La cistercianaj mona˛oj, kies monaęjo staris tie en la dek-
-
-tria jarcento, ne portis aliajn vestojn ol krudajn tunikojn kaj kapuĉojn, kaj nek manĝis viandon nek fiŝon nek ovojn. Ili
+La cistercianaj mona˛oj, kies monaęjo staris tie en la dektria jarcento, ne portis aliajn vestojn ol krudajn tunikojn kaj kapuĉojn, kaj nek manĝis viandon nek fiŝon nek ovojn. Ili
 
 kuŝis sur pajlo kaj leviĝis je noktomezo por la meso. La tagon ili pasigis laborante, legante kaj preĝante; super ilia tuta vivo regis silento kvazaŭ morta, ĉar neniu parolis.
 
-Severa fratularo, pasiganta severan vivon en tiu ĉarma lo-
+Severa fratularo, pasiganta severan vivon en tiu ĉarma loko, kiun Dio faris tiel hela! Strange, ke la voĉoj de la naturo tute ĉirkaŭ ili — la mallaŭta kantado de la akvo, la susurado
 
-ko, kiun Dio faris tiel hela! Strange, ke la voĉoj de la naturo tute ĉirkaŭ ili — la mallaŭta kantado de la akvo, la susurado
+de la riverherbo, la muziko de la kuranta vento — ne instruis al ili pli veran signifon de la vivo. Tie ili aŭskultis tra la longaj tagoj en silento, atendante voĉon el la ĉielo; la tutan tagon kaj tra la solena nokto ĝi parolis al ili per miriadaj tonoj kaj ili ne aŭdis ĝin.
 
-de la riverherbo, la muziko de la kuranta vento — ne instru-
-
-is al ili pli veran signifon de la vivo. Tie ili aŭskultis tra la longaj tagoj en silento, atendante voĉon el la ĉielo; la tutan tagon kaj tra la solena nokto ĝi parolis al ili per miriadaj tonoj kaj ili ne aŭdis ĝin.
-
-De Medmenham ĝis la ĉarma kluzo de Hambledon la rive-
-
-ro estas plena de trankvila beleco, sed post kiam ĝi preter-
+De Medmenham ĝis la ĉarma kluzo de Hambledon la rivero estas plena de trankvila beleco, sed post kiam ĝi preter-
 
 pasis Greenlands, la iom teraspekta riverborda restadejo de
 
-mia gazetvendisto — kvieta modesta maljunulo, kiun oni po-
+mia gazetvendisto — kvieta modesta maljunulo, kiun oni povas ofte renkonti en tiu regiono, en la someraj monatoj, rem-
 
+anta antaŭen en facila forta maniero, aŭ babilanta bonhumore kun maljuna kluzgardisto, dum li trapasas la kluzon — ĝis
 
-T R I V I RO J E N B OATO
-
-
-vas ofte renkonti en tiu regiono, en la someraj monatoj, rem-
-
-anta antaŭen en facila forta maniero, aŭ babilanta bonhumo-
-
-re kun maljuna kluzgardisto, dum li trapasas la kluzon — ĝis
-
-malproksime preter Henley, ĝi estas iom nudaspekta kaj sen-
-
-interesa.
+malproksime preter Henley, ĝi estas iom nudaspekta kaj seninteresa.
 
 Ni leviĝis sufiĉe frue lunde matene ĉe Marlow kaj iris bani
 
@@ -6475,17 +4904,13 @@ nin antaŭ la matenmanĝo; dum ni revenis, Montmorency
 
 agis terure malsaĝe. La sola temo pri kiu Montmorency kaj
 
-mi grave malsamopinias estas katoj. Mi ŝatas katojn; Mont-
-
-morency ne.
+mi grave malsamopinias estas katoj. Mi ŝatas katojn; Montmorency ne.
 
 Renkontante katon, mi diras ”Kompatinda kanjo!” kliniĝas
 
 kaj tiklas ĝian kapflankon; la kato suprenlevas la voston en ri-gida, fandfera maniero, arkigas la dorson kaj viŝas la nazon
 
-al mia pantalono; ĉio estas mildeco kaj trankvilo. Kiam Mont-
-
-morency renkontas katon, pri tio scias la tuta strato; dum dek sekundoj foruziĝas tiom da forta lingvaĵo, kiom sufiĉus al ordinara respektinda viro por la tuta vivo, per ŝparemo.
+al mia pantalono; ĉio estas mildeco kaj trankvilo. Kiam Montmorency renkontas katon, pri tio scias la tuta strato; dum dek sekundoj foruziĝas tiom da forta lingvaĵo, kiom sufiĉus al ordinara respektinda viro por la tuta vivo, per ŝparemo.
 
 Mi ne riproĉas la hundon (mi mntentigas kutime per
 
@@ -6499,31 +4924,20 @@ rimarkeblan plibonigon en la tumultemo de la vulphunda
 
 naturo.,
 
-Mi memoras, ke mi iun tagon estis en la vestiblo de la Hay-
+Mi memoras, ke mi iun tagon estis en la vestiblo de la Haymarket-magazeno, kaj tute ĉirkaŭ mi estis hundoj, atendan-
 
-market-magazeno, kaj tute ĉirkaŭ mi estis hundoj, atendan-
-
-taj la revenon de siaj posedantoj, kiuj butikumis interne. Es-
-
-tis tie dogo, unu-du ŝafhundoj kaj hundo sanktbernarda, kel-
+taj la revenon de siaj posedantoj, kiuj butikumis interne. Estis tie dogo, unu-du ŝafhundoj kaj hundo sanktbernarda, kel-
 
 kaj reporthundoj kaj novlandaj hundoj, aprohundo, franca
 
 pudelo kun multe da haroj ĉirkaŭ la kapo, sed fava ĉirkaŭ la
 
 
-T R I V I RO J E N B OATO
-
-
 mezo; buldogo, kelkaj fantaziaj specoj de bestoj, kiuj havis
 
-proksimume la grandecon de ratoj, kaj paro de jorkŝiraj hun-
+proksimume la grandecon de ratoj, kaj paro de jorkŝiraj hundaĉoj.
 
-daĉoj.
-
-Tie ili sidis, paciencaj, bonkondutaj kaj enpensiĝintaj. Sol-
-
-ena trankvilo ŝajnis regi en tiu vestiblo. Atmosfero de sereno kaj rezignacio — de milda malĝojo, plenigis la ĉambron.
+Tie ili sidis, paciencaj, bonkondutaj kaj enpensiĝintaj. Solena trankvilo ŝajnis regi en tiu vestiblo. Atmosfero de sereno kaj rezignacio — de milda malĝojo, plenigis la ĉambron.
 
 Tiam eniris ĉarma junulino, kondukanta mildaspektan
 
@@ -6531,31 +4945,21 @@ malgrandan vulphundon, lin katenis kaj lasis tie, inter la buldogo kaj la pudelo
 
 Tiam ĝi ĵetis la rigardon al la plafono kaj laŭ ĝia mieno ŝajnis, ke ĝi pensas pri la patrino. Tiam ĝi oscedis. Poste ĝi ĉirkaŭrigardis al la aliaj hundoj, ĉiuj silentaj, gravmienaj kaj dignople-naj.
 
-i rigardis al la buldogo, senŝonĝe dormanta dekstre. i ri-
-
-gardis al la pudelo, rekta kaj fiera, maldekstre. Tiam, sen ia averto, sen eĉ ombro de incito, ĝi mordis la pli proksiman
+i rigardis al la buldogo, senŝonĝe dormanta dekstre. i rigardis al la pudelo, rekta kaj fiera, maldekstre. Tiam, sen ia averto, sen eĉ ombro de incito, ĝi mordis la pli proksiman
 
 antaŭkruron de tiu pudelo kaj bleko de doloro sonis tra Ia
 
 trankvilaj ombroj de tiu vestiblo.
 
-La rezulto de ĝia unua eksperimento ŝajnis al ĝi tre konten-
-
-tiga, ĝi do decidis daŭrigi kaj ĉiujn vigligi. i saltis trans la pudelon kaj forte atakis ŝafhundon, la ŝafhundo vekiĝis kaj
+La rezulto de ĝia unua eksperimento ŝajnis al ĝi tre kontentiga, ĝi do decidis daŭrigi kaj ĉiujn vigligi. i saltis trans la pudelon kaj forte atakis ŝafhundon, la ŝafhundo vekiĝis kaj
 
 tuj komencis furioze kaj brue interbatali kun la pudelo. Tiam
 
 Fosĉjo revenis al sia loko, prenis la dagon ĉe la orelo kaj penis tiun forĵeti; la dogo, besto strange senpartia, atakis ĉion atingeblan, inkluzive la vestiblopordiston, kio donis okazon
 
-al tiu kara eta vulphundo ĝui propran seninterrompan bata-
+al tiu kara eta vulphundo ĝui propran seninterrompan batalon kun samintenca jorkŝira hundaĉo.
 
-lon kun samintenca jorkŝira hundaĉo.
-
-Kiu konas la hundan naturon, tiun oni ne bezonas infor-
-
-mi, ke jam ĉiuj aliaj hundoj en la ĉambro interbatalis, kvazaŭ de la batalo dependus ilia kameno kaj hejmo. La grandaj hun-155
-
-T R I V I RO J E N B OATO
+Kiu konas la hundan naturon, tiun oni ne bezonas informi, ke jam ĉiuj aliaj hundoj en la ĉambro interbatalis, kvazaŭ de la batalo dependus ilia kameno kaj hejmo. La grandaj hun-155
 
 
 doj batalis unu kontraŭ la alia, sen distingo; la malgrandaj
@@ -6568,9 +4972,7 @@ La tuta vestiblo fariĝis perfekta pandemonio kaj la bruego
 
 estis terura. La homoj kolektiĝis ekstere en Haymarket kaj
 
-demandis, ĉu estas paroą kunsido; aŭ se ne, kiu estas mur-
-
-data kaj kial? Alvenis viroj kun stangoj kaj ŝnuroj kaj penis
+demandis, ĉu estas paroą kunsido; aŭ se ne, kiu estas murdata kaj kial? Alvenis viroj kun stangoj kaj ŝnuroj kaj penis
 
 apartigi la hundojn, kaj oni venigis policanojn.
 
@@ -6592,35 +4994,22 @@ grandajn sovaĝajn bestojn, kiaj estas tiuj aliaj hundoj, enlasi en ĉambron, ki
 
 Tia estas la naturo de vulphundoj; mi tial ne riproĉas al
 
-Montmorency lian emon malpaci kun katoj; tamen li bedaŭ-
+Montmorency lian emon malpaci kun katoj; tamen li bedaŭris, ke tiun matenon li lasis sin regi de tio.
 
-ris, ke tiun matenon li lasis sin regi de tio.
-
-Kiel mi jam diris, ni estis revenantaj de nia bano kaj duon-
-
-voje sur la ĉefstrato kato eliris el unu el la domoj antaŭ ni kaj ekpaŝis tra la strato. Montmorency eligis krion de ĝojo — la
+Kiel mi jam diris, ni estis revenantaj de nia bano kaj duonvoje sur la ĉefstrato kato eliris el unu el la domoj antaŭ ni kaj ekpaŝis tra la strato. Montmorency eligis krion de ĝojo — la
 
 krion de severa batalisto, kiu vidas la malamikon liverata en
 
 liajn manojn — tian krion, kian Cromwell eble eligis, kiam la
 
-skotoj malsupreniris la monteton, — kaj fluge sekvis sian vik-
-
-timon.
-
-
-T R I V I RO J E N B OATO
+skotoj malsupreniris la monteton, — kaj fluge sekvis sian viktimon.
 
 
 Lia viktimo estis granda nigra virkato. Mi neniam vidis pli
 
-grandan katon, nek pli aĉaspektan katon. i jam perdis duo-
+grandan katon, nek pli aĉaspektan katon. i jam perdis duonon de la vosto, unu orelon kaj sufiĉe grandan parton de la
 
-non de la vosto, unu orelon kaj sufiĉe grandan parton de la
-
-nazo. i estis longa, tendena besto. i havis trankvilan, kon-
-
-tentan mienon.
+nazo. i estis longa, tendena besto. i havis trankvilan, kontentan mienon.
 
 Montmorency atake kuregis al tiu kompatinda kato je la
 
@@ -6658,19 +5047,11 @@ La kato: Ne menciinde — estas plezure. ĉu vi estas certa,
 
 ke vi nenion deziras, nu?
 
-Montmorency (ankoraŭ irante malantaŭen) : Tute ne, dan-
-
-kon — tute ne — tre ĝentila vi estas. Bonan matenon.
+Montmorency (ankoraŭ irante malantaŭen) : Tute ne, dankon — tute ne — tre ĝentila vi estas. Bonan matenon.
 
 La kato: Bonan matenon.
 
-Tiam la kato leviĝis kaj daŭrigis la promenon; Montmoren-
-
-
-T R I V I RO J E N B OATO
-
-
-cy tion, kion li nomas vosto, zorge metis en ĝian kanelaĵon,
+Tiam la kato leviĝis kaj daŭrigis la promenon; Montmorency tion, kion li nomas vosto, zorge metis en ĝian kanelaĵon,
 
 revenis al ni, kaj prenis modestan postenon malantaŭe.
 
@@ -6691,12 +5072,7 @@ diris, ke ili estas facile kuireblaj, kaj ke pri tio li zorgos mem; ni do aĉeti
 kelkajn brasikojn. ĉe la hotelo ni haviĝis bifstekan pasteĉon, du grostortojn kaj ŝafofemurajon; fruktojn, kukojn, panon
 
 
-T R I V I RO J E N B OATO
-
-
-buteron, konfitaĵon, lardon kaj ovojn; ni akiris aliajn nutra-
-
-ĵojn en diversaj partoj de la urbo.
+buteron, konfitaĵon, lardon kaj ovojn; ni akiris aliajn nutraĵojn en diversaj partoj de la urbo.
 
 Nian foriron el Marlow mi konsideras unu el niaj plej grandaj sukcesoj. i estis dignoplena kaj impona kaj samtempe ne estis parada. ĉe ĉiuj vendejoj, kiujn ni vizitis, ni insiste petis, ke la aĉetaĵojn oni tuj sendu kun ni. Ni ne volis ili-an: ”Jes, sinjoro, mi tuj alsendos ilin: la knabo estos tie antaŭ vi, sinjoro” kaj post longa atendado sur la kajeto reiri dufoje al la butiko por malpaci kun la homoj tie. Ni atendis, ĝis la
 
@@ -6706,9 +5082,7 @@ Multajn butikojn ni vizitis, ĉe ĉiu uzante ĉi tiun principon;
 
 la sekvo estis, kiam ni finis, ke ni havis ĉirkaŭ ni la plej belan aron de buboj, kiun la koro povas deziri; nia fina marŝado
 
-Iaŭlonge de la mezo de la ĉefstrato ĝis la rivero sendube es-
-
-tis la plej impona spektaklo, kiun Marlow de tre longa tem-
+Iaŭlonge de la mezo de la ĉefstrato ĝis la rivero sendube estis la plej impona spektaklo, kiun Marlow de tre longa tem-
 
 po vidis.
 
@@ -6718,13 +5092,9 @@ Montmorency, portanta bastonon.
 
 Du aĉaspektaj hundaĉoj, amikoj de Montmorency.
 
-Georgo, portanta paltojn kaj lankovrilojn kaj fumanta mal-
+Georgo, portanta paltojn kaj lankovrilojn kaj fumanta mallongan pipon.
 
-longan pipon.
-
-Harris, penanta marŝi kun facila gracio, dum li portis ŝve-
-
-lintan valizon per unu mano kaj botelon da citronsuko per la
+Harris, penanta marŝi kun facila gracio, dum li portis ŝvelintan valizon per unu mano kaj botelon da citronsuko per la
 
 alia.
 
@@ -6741,36 +5111,25 @@ Longharara hundo.
 Knabo de la fromaĝisto, kun korbo.
 
 
-T R I V I RO J E N B OATO
-
-
 Faktoto, portanta sakon.
 
-Intima amiko de la faktoto, kun manoj en la poŝoj, fuman-
-
-ta mallongan pipon.
+Intima amiko de la faktoto, kun manoj en la poŝoj, fumanta mallongan pipon.
 
 Knabo de la fruktvendisto, kun korbo.
 
-Mi, portanta tri ĉapelojn kaj paron da botoj kaj penanta as-
-
-pekti, kvazaŭ tion mi ne scius.
+Mi, portanta tri ĉapelojn kaj paron da botoj kaj penanta aspekti, kvazaŭ tion mi ne scius.
 
 Ses malgrandaj buboj kaj kvar vagantaj hundoj.
 
 Kiam ni alvenis al la kajeto, la boatisto diris:
 
-—Mi vidu, sinjoro; ĉu via estas la vaporŝalupo aŭ la dom-
-
-boato?
+—Mi vidu, sinjoro; ĉu via estas la vaporŝalupo aŭ la domboato?
 
 Kiam ni informis lin, ke ĝi estas duremila kanoto, li ŝajnis
 
 iom surprizita.
 
-Tiun matenon nin multe ĝenis vaporŝalupoj. Estis tuj an-
-
-taŭ la Henley-semajno, kaj ili alvenadis are; kelkaj iris solaj, aliaj trenis domboatojn. Vaporŝalupojn ni malamas: mi supozas, ke ilin malamas ĉiu remulo. Mi neniam vidas vaporŝalu-
+Tiun matenon nin multe ĝenis vaporŝalupoj. Estis tuj antaŭ la Henley-semajno, kaj ili alvenadis are; kelkaj iris solaj, aliaj trenis domboatojn. Vaporŝalupojn ni malamas: mi supozas, ke ilin malamas ĉiu remulo. Mi neniam vidas vaporŝalu-
 
 pon sen senti, ke mi ŝatus tromplogi ĝin al soleca parto de la rivero, kaj tie, en silento kaj soleco, ĝin sufoki.
 
@@ -6785,16 +5144,9 @@ la poŝoj, fumanta cigaron, sufiĉas por rajtigi atencon kontraŭ la publika ord
 Ili devis fajfi, por ke ni nin forigu el ilia vojo. Se mi povas diri, sen ŝajni fanfaronema, mi kredas, ke mi povas diri honeste, ke nia malgranda boato dum tiu semajno kaŭzis pli da
 
 
-T R I V I RO J E N B OATO
+ĝeno, prokrasto kaj ĉagreno al la vaporŝalupoj, kiujn ni renkontis, ol la tuta cetera boataro sur la rivero.
 
-
-ĝeno, prokrasto kaj ĉagreno al la vaporŝalupoj, kiujn ni ren-
-
-kontis, ol la tuta cetera boataro sur la rivero.
-
-—Vaporŝalupo alvenas! — unu el ni krias, vidante la mala-
-
-mikon en la malproksimo — kaj post momento ĉio estas pre-
+—Vaporŝalupo alvenas! — unu el ni krias, vidante la malamikon en la malproksimo — kaj post momento ĉio estas pre-
 
 ta por ĝia akcepto. Mi prenas la ŝnurojn, Harris kaj Georgo
 
@@ -6802,9 +5154,7 @@ sidiĝas apud mi, ĉiu kun la dorso al la ŝalupo, kaj la boato
 
 kviete drivas al la rivermezo.
 
-Antaŭen venas la ŝalupo, fajfanta, kaj antaŭen iras ni, dri-
-
-vantaj. Je la distanco de ĉirkaŭ cent metroj, ĝi komencas faj-
+Antaŭen venas la ŝalupo, fajfanta, kaj antaŭen iras ni, drivantaj. Je la distanco de ĉirkaŭ cent metroj, ĝi komencas faj-
 
 fadi freneze, la homoj kliniĝas super la rando kaj brukrias al ni; sed ni neniam aŭdas ilin! Harris rakontas al ni anekdoton
 
@@ -6816,9 +5166,7 @@ kiu preskaŭ krevigas la kaserolon, retroigas la maŝinaron kaj
 
 haltigas la vaporon kaj, por eviti nin, surteriĝas; ĉiuj surŝipe kuras al la antaŭparto kaj kriegas al ni, la homoj sur la bordo staras kaj krias al ni kaj ĉiuj aliaj preterpasantaj boatoj haltas kaj enmiksiĝas, ĝis la tuta rivero en la rondo de kelkaj mejloj supre kaj malsupre estas en stato de freneza tumulto.
 
-Harris tiam interrompas sian rakonton meze de la plej inte-
-
-resa parto, levas la okulojn kun milda surpriziĝo kaj diras al Georgo:
+Harris tiam interrompas sian rakonton meze de la plej interesa parto, levas la okulojn kun milda surpriziĝo kaj diras al Georgo:
 
 —Nu, Georgo, Dio nin benu, se ne estas tie vaporŝalupo!
 
@@ -6826,45 +5174,27 @@ Georgo respondas:
 
 —Nu, ĉu vi scias, mi pensis, ke mi aŭdas ion!
 
-ĉe tio ni nerve ekscitiĝas kaj konfuziĝas kaj ne scias kiama-
-
-niere forigi la boaton el la vojo, la homoj en la ŝalupo ko-
+ĉe tio ni nerve ekscitiĝas kaj konfuziĝas kaj ne scias kiamaniere forigi la boaton el la vojo, la homoj en la ŝalupo ko-
 
 lektiĝas kaj instruas al ni:
 
-—Tiru per via dekstra — vi, idioto! malantaŭen per via mal-
-
-
-T R I V I RO J E N B OATO
-
-
-dekstra. Ne, ne vi — la alia — lasu la ŝnurojn, ĉu vi ne povas?
+—Tiru per via dekstra — vi, idioto! malantaŭen per via maldekstra. Ne, ne vi — la alia — lasu la ŝnurojn, ĉu vi ne povas?
 
 — nun, ambaŭ kune. Ne tiel. Ho, vi … !
 
-Tiam ili mallevas boaton kaj venas helpi nin; post kvaron-
+Tiam ili mallevas boaton kaj venas helpi nin; post kvaronhora penado ili sukcesas tute forigi nin el sia vojo, tiel ke ili povas pluiri; ni tre dankas ilin kaj petas, ke ili nin trenu iomete. Sed ili neniam faras la komplezon.
 
-hora penado ili sukcesas tute forigi nin el sia vojo, tiel ke ili povas pluiri; ni tre dankas ilin kaj petas, ke ili nin trenu iomete. Sed ili neniam faras la komplezon.
+Alia bona rimedo, kiun ni elpensis por inciti la aristokratan tipon de vaporŝalupo, estis rigardi la homojn laborista
 
-Alia bona rimedo, kiun ni elpensis por inciti la aristokra-
-
-tan tipon de vaporŝalupo, estis rigardi la homojn laborista
-
-ekskurso kaj demandi ilin, ĉu ili estas la dungitaro de sinjo-
-
-roj Cubit aŭ la Bermondsey-bontemplanoj, kaj ĉu ili povas
+ekskurso kaj demandi ilin, ĉu ili estas la dungitaro de sinjoroj Cubit aŭ la Bermondsey-bontemplanoj, kaj ĉu ili povas
 
 pruntedoni al ni kaserolon.
 
-Maljunaj sinjorinoj, ne alkutimiĝintaj al la rivero, ĉiam ti-
-
-metas la vaporŝalupojn. Mi memoras, kiel foje mi veturis de
+Maljunaj sinjorinoj, ne alkutimiĝintaj al la rivero, ĉiam timetas la vaporŝalupojn. Mi memoras, kiel foje mi veturis de
 
 Staines al Windsor — etendaĵo de akvo, kie eksterordinare
 
-abundas ĉi tiuj meąnikaj monstraĵoj — kun grupo enhavan-
-
-ta tri sinjorinojn de tiu speco. Estis tre ekscite. ĉe la unua vido de ĉiu vaporŝalupo, kiu videbliĝis, ili nepre albordiĝis kaj sidi-
+abundas ĉi tiuj meąnikaj monstraĵoj — kun grupo enhavanta tri sinjorinojn de tiu speco. Estis tre ekscite. ĉe la unua vido de ĉiu vaporŝalupo, kiu videbliĝis, ili nepre albordiĝis kaj sidi-
 
 ĝis sur la bordo, ĝis ĝi denove malaperis el la vido. Ili diris, ke ili tre bedaŭras, tamen al la propra familio ili havas la devon ne meti sin en danĝeron.
 
@@ -6889,32 +5219,21 @@ volas, kaj lasu la ceteron.
 — Kie, kie vi ĝnservas?
 
 
-T R I V I RO J E N B OATO
-
-
-—i estas ĉiam en la sama loko, mia knabo, — estis la fleg-
-
-ma respondo; — ĝuste malantaŭ vi. — Mi ne vidas ĝin, — diris
+—i estas ĉiam en la sama loko, mia knabo, — estis la flegma respondo; — ĝuste malantaŭ vi. — Mi ne vidas ĝin, — diris
 
 Georgo, sin turnante.
 
 —Jen, Dio min benu, kie estas viaj okuloj? — komentis la
 
-viro, turnante Georgon kaj montrante Iaŭlonge de la rivere-
-
-to. — Estas da ĝi sufiĉe por esti videbla, ĉu ne?
+viro, turnante Georgon kaj montrante Iaŭlonge de la rivereto. — Estas da ĝi sufiĉe por esti videbla, ĉu ne?
 
 —Ho! — Georgo kriis, komprenante; — tamen ni ne povas
 
 trinki la riveron!
 
-—Ne; sed iom da ĝi vi povas trinki, respondis la maljunu-
+—Ne; sed iom da ĝi vi povas trinki, respondis la maljunulo. — Tion mi trinkas jam de dekkvin jaroj.
 
-lo. — Tion mi trinkas jam de dekkvin jaroj.
-
-Georgo diriis al li, ke lia aspekto, post la kuracado, ne ŝaj-
-
-nas sufiĉe bona reklamo por la medikamento; ke li mem ĝin
+Georgo diriis al li, ke lia aspekto, post la kuracado, ne ŝajnas sufiĉe bona reklamo por la medikamento; ke li mem ĝin
 
 prefere havus el pumpilo.
 
@@ -6930,39 +5249,26 @@ kun ĝi ni ne havis feliĉon. Ni estis remantaj kun la fluo kaj
 
 haltis por temanĝo en flankakvo apud Windsor. Nia kruĉo
 
-estis malplena kaj ni devis aŭ ne havi temanĝon aŭ preni ak-
-
-von el la rivero. Harris estis favora al riskado. Li diris, ke ni nenion riskas, se ni boligas la akvon. Li diris, ke la diversajn mikrobojn de veneno enestantaj en la akvo mortigos la boli-go. Ni do plenigis kaserolon per tamiza flankakvo kaj ĝin
+estis malplena kaj ni devis aŭ ne havi temanĝon aŭ preni akvon el la rivero. Harris estis favora al riskado. Li diris, ke ni nenion riskas, se ni boligas la akvon. Li diris, ke la diversajn mikrobojn de veneno enestantaj en la akvo mortigos la boli-go. Ni do plenigis kaserolon per tamiza flankakvo kaj ĝin
 
 boligis; tre zorge ni certiĝis, ke ĝi bolas.
 
-Ni pretigis la teon, kaj ĵus metis nmfortaj por ĝin trin-
-
-ki, kiam Georgo, kun la taso duonvoje al la lipoj, haltis kaj
+Ni pretigis la teon, kaj ĵus metis nmfortaj por ĝin trinki, kiam Georgo, kun la taso duonvoje al la lipoj, haltis kaj
 
 kriis:
 
 —Kio estas tio?
 
 
-T R I V I RO J E N B OATO
-
-
 —Kio estas kio? — demandis Harris kaj mi.
 
 —Nu, tio! — diris Georgo, rigardante okcidenten.
 
-Harris kaj mi sekvis lian rigardon, kaj vidis, ke sur la mal-
+Harris kaj mi sekvis lian rigardon, kaj vidis, ke sur la malrapida fluo alproksimiĝas al ni hundo. i estis unu el la plej kvietaj kaj trankvilaj hundoj, kiujn mi iam vidis. Mi neniam
 
-rapida fluo alproksimiĝas al ni hundo. i estis unu el la plej kvietaj kaj trankvilaj hundoj, kiujn mi iam vidis. Mi neniam
+renkontis hundon, kiu ŝajnis pli kontenta, kun animo pli trankvila. i naĝis reveme sur la dorso, kun la kvar piedoj rekte
 
-renkontis hundon, kiu ŝajnis pli kontenta, kun animo pli tran-
-
-kvila. i naĝis reveme sur la dorso, kun la kvar piedoj rekte
-
-starantaj en la aero. i estis tio, kion mi nomus dikkorpa hun-do, kun plenkreskanta brusto. Antaŭen ĝi venis, serena, dig-
-
-noplena kaj trankvila, ĝis ĝi estis flanke de nia boato, kaj tie, inter la junkoj, ĝi haltis, kaj metis sin en komforton por la
+starantaj en la aero. i estis tio, kion mi nomus dikkorpa hun-do, kun plenkreskanta brusto. Antaŭen ĝi venis, serena, dignoplena kaj trankvila, ĝis ĝi estis flanke de nia boato, kaj tie, inter la junkoj, ĝi haltis, kaj metis sin en komforton por la
 
 nokto.
 
@@ -6982,9 +5288,7 @@ Li diris: ”Ho, ne”; li opiniis, ke mi havas tre bonan ŝancon
 
 saviĝi de ĝi. ĉiukaze, mi scios post ĉirkaŭ du semajnoj, ĉu mi havas ĝin aŭ ne.
 
-Ni veturis laŭ la flankakvo ĝis Wargrave. Tio estis pli rek-
-
-ta vojo, kondukanta el la dekstra bordo duonmejlon super la
+Ni veturis laŭ la flankakvo ĝis Wargrave. Tio estis pli rekta vojo, kondukanta el la dekstra bordo duonmejlon super la
 
 Marsh-kluzo kaj ĝi bone valoras la penon laŭiri ĝin, ĉar ĝi
 
@@ -6992,21 +5296,11 @@ estas beleta, ombra peceto de la rivereto kaj krome, per ĝi oni ŝparas al si p
 
 ia eniro estas kompreneble punktita per fostoj kaj ĉenoj
 
-kaj ĉirkaŭita de aviztabuloj, minacantaj per ĉiaspecaj turmen-
+kaj ĉirkaŭita de aviztabuloj, minacantaj per ĉiaspecaj turmentoj, enkarcerigo kaj morto al ĉiu, kiu kuraĝas remi sur ĝia
 
-toj, enkarcerigo kaj morto al ĉiu, kiu kuraĝas remi sur ĝia
+akvo — mi miras, ke kelkaj el tiuj riverbordaj kruduloj ne faras pretendon pri la aero super la rivero kaj ne minacas ĉiun, kiu ĝin spiras, per monpuno de kvardek ŝilingoj — tamen la
 
-akvo — mi miras, ke kelkaj el tiuj riverbordaj kruduloj ne fa-
-
-
-T R I V I RO J E N B OATO
-
-
-ras pretendon pri la aero super la rivero kaj ne minacas ĉiun, kiu ĝin spiras, per monpuno de kvardek ŝilingoj — tamen la
-
-fostoj kaj ĉenoj estas facile eviteblaj per iom da lerto; koncerne la aviztabulojn, vi povas, se vi disponas kvin liberajn mi-
-
-nutojn kaj estas neniu en la ĉirkaŭajo, unu-du el ili depreni
+fostoj kaj ĉenoj estas facile eviteblaj per iom da lerto; koncerne la aviztabulojn, vi povas, se vi disponas kvin liberajn minutojn kaj estas neniu en la ĉirkaŭajo, unu-du el ili depreni
 
 kaj ĵeti en la akvon.
 
@@ -7051,12 +5345,7 @@ unu la alian.
 diris Georgo.
 
 
-T R I V I RO J E N B OATO
-
-
-ŝajnis esti iom da graveco en ĉi tiu kontraŭdiro, tial ni for-
-
-ĵetis la ĉielan teorion.
+ŝajnis esti iom da graveco en ĉi tiu kontraŭdiro, tial ni forĵetis la ĉielan teorion.
 
 —Mi supozas, ke la fakta vero estas, — proponis Georgo,
 
@@ -7092,34 +5381,22 @@ El la mezo de la tero, kiel ŝajnis al ni, leviĝis la pasteĉo —
 
 tre kunmiksita kaj difektita; kaj post ĝi grimpis Harris — ĉifi-ta, malpura kaj malseka.
 
-Li estis sidanta, sen scii tion, ĝuste sur la rando de mal-
+Li estis sidanta, sen scii tion, ĝuste sur la rando de malgranda kanaleto, kiun la longa herbo kaŝis de lia vido; klini-
 
-granda kanaleto, kiun la longa herbo kaŝis de lia vido; klini-
-
-ĝinte iom malantaŭen, li falis en la kavaĵon kune kun la pas-
-
-teĉo.
+ĝinte iom malantaŭen, li falis en la kavaĵon kune kun la pasteĉo.
 
 Li diris, ke neniam en la vivo li estis tiel surprizita, kiel
 
 kiam li sentis sin falanta kaj ne povis diveni, kio okazas. Li kredis unue, ke jam venas la fino de la mondo.
 
 
-T R I V I RO J E N B OATO
-
-
 Harris kredas ĝis la hodiaŭa tago, ke ĉion tion antaŭplanis
 
-Georgo kaj mi. Tiel eĉ la plej senkulpajn persekutas la malju-
-
-sta suspektemo: ĉar, kiel la poeto diras: ”Kiu povas sin savi
+Georgo kaj mi. Tiel eĉ la plej senkulpajn persekutas la maljusta suspektemo: ĉar, kiel la poeto diras: ”Kiu povas sin savi
 
 kontraŭ kalumnio?”
 
 Ja kiu?
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro XIV
@@ -7146,27 +5423,17 @@ Post la lunĉo nin kaptis venteto, kiu portis nin malrapide
 
 preter Wargrave kaj Shiplake. Dolĉigita de la dormiga
 
-sunlumo de somera posttagmezo Wargrave, kuŝanta ĉe kur-
+sunlumo de somera posttagmezo Wargrave, kuŝanta ĉe kurbiĝo de la rivero, prezentas ĉarman malnovan bildon, dum vi
 
-biĝo de la rivero, prezentas ĉarman malnovan bildon, dum vi
+preterpasas, bildon, kiu longe restas sur la retino de la menso.
 
-preterpasas, bildon, kiu longe restas sur la retino de la men-
+”Georgo” kaj ”Drako” en Wargrave fieras pri montrotabulo, kies unu flankon pentris Leslie, reĝa artisto, kaj la alian Hodgson, de la sama speco. Leslie bildigis batalon; Hodgson
 
-so.
-
-”Georgo” kaj ”Drako” en Wargrave fieras pri montrotabu-
-
-lo, kies unu flankon pentris Leslie, reĝa artisto, kaj la alian Hodgson, de la sama speco. Leslie bildigis batalon; Hodgson
-
-imagis la scenon ”Post la batalo” — Georgo, farinte sian labo-
-
-ron, ĝuis sian trn de biero.
+imagis la scenon ”Post la batalo” — Georgo, farinte sian laboron, ĝuis sian trn de biero.
 
 Day, la verkinto de Sandford kaj Merton, vivis kaj — por pli
 
-da kredito al la loko — estis mortigita en Wargrave. En la pre-
-
-ĝejo estas memoraĵo al sinjorino Sarah Hill, kiu testamentis
+da kredito al la loko — estis mortigita en Wargrave. En la preĝejo estas memoraĵo al sinjorino Sarah Hill, kiu testamentis
 
 unu pundon ĉiujare, dividotan paske inter du knaboj kaj du
 
@@ -7175,28 +5442,19 @@ knabinoj, kiuj ”neniam malobeis al siaj gepatroj; kiujn oni
 neniam aŭdis blasfemi aŭ mensogi, kiuj neniam ŝtelis aŭ
 
 
-T R I V I RO J E N B OATO
-
-
 rompis fenestrojn.” Imagu al vi, fordoni ĉion tion por kvin
 
 ŝilingoj ĉiujare! i ne valoras la penon!
 
-En la urbo oni diras, ke foje, antaŭ multaj Jaroj, aperis kna-
-
-bo, kiu fakte neniam faris ĉi tiujn malbonaĵojn — almenaŭ,
+En la urbo oni diras, ke foje, antaŭ multaj Jaroj, aperis knabo, kiu fakte neniam faris ĉi tiujn malbonaĵojn — almenaŭ,
 
 kaj jen ĉio, kion oni postulis aŭ povis esperi, oni neniam sciis, ke li faris ilin — kaj tiel gajnis la glorkronon. Oni montris lin dum la sekvantaj tri semajnoj en la urbodomo, sub vitra ŝirmilo.
 
 Kio poste okazis al la mono, neniu scias. Oni diras, ke ĝi
 
-estas ĉiam transdonita al la plej proksima ekspozicio de vaks-
+estas ĉiam transdonita al la plej proksima ekspozicio de vaksfiguroj.
 
-figuroj.
-
-Shiplake estas beleta vilaĝo, sed ĝi ne estas videbla de la rivero, ĉar ĝi troviĝas sur monteto. Tennyson edziĝis en la pre-
-
-ĝejo de Shiplake.
+Shiplake estas beleta vilaĝo, sed ĝi ne estas videbla de la rivero, ĉar ĝi troviĝas sur monteto. Tennyson edziĝis en la preĝejo de Shiplake.
 
 La rivero ĝis Sonning serpentumas inter multaj insuloj kaj
 
@@ -7204,28 +5462,19 @@ estas tre serena, silenta, kaj soleca. Nur malmultaj homoj,
 
 escepte de unu-du paroj de geamantoj, laŭiras ĝiajn bordojn,
 
-kiam krepuskiĝas. La laboriston kaj la lordon oni jam postla-
-
-sis ĉe Henley kaj la malgajigan, malpuran Reading oni an-
+kiam krepuskiĝas. La laboriston kaj la lordon oni jam postlasis ĉe Henley kaj la malgajigan, malpuran Reading oni an-
 
 koraŭ ne atingis. i estas tiu parto de la rivero, kie oni volonte revas pri pasintaj tagoj, malaperintaj figuroj kaj vizaĝoj kaj pri tio, kio estus povinta esti, sed ne estis, la infero ĝin prenu!
 
-Ni albordiĝis ĉe Sonning kaj promenis en la vilaĝo. i es-
-
-tas la plej fe-simila anguleto sur la tuta rivero. i similas pli al teatra vilaĝo ol al vilaĝo konstruita per brikoj kaj mortero.
+Ni albordiĝis ĉe Sonning kaj promenis en la vilaĝo. i estas la plej fe-simila anguleto sur la tuta rivero. i similas pli al teatra vilaĝo ol al vilaĝo konstruita per brikoj kaj mortero.
 
 ĉiun domon sufokas la rozoj, kiuj nun, en junio, floras en
 
 nubojn de ĉarma beleco. Se vi restas en Sonning, loĝigu vin
 
-ĉe ”Virbovo” malantaŭ la preĝejo. i estas vera bildo de mal-
-
-nova kampara hoteleto kun verda, kvadrata korto antaŭe kie,
+ĉe ”Virbovo” malantaŭ la preĝejo. i estas vera bildo de malnova kampara hoteleto kun verda, kvadrata korto antaŭe kie,
 
 sur benkoj sub la arboj, la maljunuloj vespere kolektiĝas por
-
-
-T R I V I RO J E N B OATO
 
 
 trinki sian bieron kaj klaĉi pri la vilaĝa politiko: kun malaltaj, kuriozaj ĉambroj kaj latisfenestroj kaj maloportunaj ŝtuparoj
@@ -7234,9 +5483,7 @@ kaj serpentumantaj koridoroj.
 
 Proksimume unu horon ni vagadis en la ĉarma Sonning kaj
 
-tiam, ĉar estis jam tro malfrue por veturi antaŭen preter Rea-
-
-ding, ni decidis reiri al unu el la Shiplake-insuloj kaj tie pasigi la nokton. Estis ankoraŭ frue, kiam ni jam ĉion pretigis, kaj Georgo diris, ke ĉar ni havas multe da tempo, estas bona
+tiam, ĉar estis jam tro malfrue por veturi antaŭen preter Reading, ni decidis reiri al unu el la Shiplake-insuloj kaj tie pasigi la nokton. Estis ankoraŭ frue, kiam ni jam ĉion pretigis, kaj Georgo diris, ke ĉar ni havas multe da tempo, estas bona
 
 okazo por provi bonan, grandiozan vespermanĝon. Li diris,
 
@@ -7244,41 +5491,28 @@ ke li montros al ni, kio estas farebla, kiam temas pri kuirado ĉe la rivero, ka
 
 stufaĵon.
 
-Tio ŝajnis rava ideo. Georgo kolektis lignon kaj bruligis faj-
+Tio ŝajnis rava ideo. Georgo kolektis lignon kaj bruligis fajron, dum Harris kaj mi komencis senŝeligi terpomojn. Mi ne-
 
-ron, dum Harris kaj mi komencis senŝeligi terpomojn. Mi ne-
-
-niam estus kredinta, ke senŝeligado de terpomoj estas tia en-
-
-trepreno. La laboro montriĝis la plej granda afero en sia spe-
+niam estus kredinta, ke senŝeligado de terpomoj estas tia entrepreno. La laboro montriĝis la plej granda afero en sia spe-
 
 co, en kiun mi iam enmiksiĝis. Ni komencis gaje, mi povus
 
-diri frivole, sed nia korfacileco jam estis for antaŭ ol ni estis pretaj kun la unua terpomo. Ju pli ni senŝeligis, des pli da ŝelo ŝajne restis; kiam ni estis forigintaj la tutan ŝelon kaj eligin-taj ĉiujn okulojn, restis neniom da terpomo — almenaŭ ne-
-
-nio menciinda. Georgo alvenis kaj ĝin rigardis — ĝi havis
+diri frivole, sed nia korfacileco jam estis for antaŭ ol ni estis pretaj kun la unua terpomo. Ju pli ni senŝeligis, des pli da ŝelo ŝajne restis; kiam ni estis forigintaj la tutan ŝelon kaj eligin-taj ĉiujn okulojn, restis neniom da terpomo — almenaŭ nenio menciinda. Georgo alvenis kaj ĝin rigardis — ĝi havis
 
 proksimume la grandon de nukskerno. Li diris:
 
 —Ho, tio ne taŭgas! Vi malŝparas ilin. Vi devas ilin skrapi.
 
-Ni do skrapis ilin kaj tio estis pli malfacila laboro ol la sen-
-
-ŝeligado. Tre nekutiman formon havas terpomoj — ilia tuta
+Ni do skrapis ilin kaj tio estis pli malfacila laboro ol la senŝeligado. Tre nekutiman formon havas terpomoj — ilia tuta
 
 eksteraĵo estas ŝvelaĵoj kaj verukoj kaj kavaĵoj. Ni daŭre laboris dudek kvin minutojn kaj finpreparis kvar terpomojn. Tiam
-
-
-T R I V I RO J E N B OATO
 
 
 ni strikis. Ni diris, ke ni bezonos la reston de la vespero por skrapi nin mem.
 
 Neniam mi vidis ion, kio povas tiel malpurigi la homon kiel
 
-terpomskrapado. Nur malfacile oni povas kredi, ke la ter-
-
-pomskrapaĵoj, en kiuj staris Harris kaj mi, duonkovritaj, ve-
+terpomskrapado. Nur malfacile oni povas kredi, ke la terpomskrapaĵoj, en kiuj staris Harris kaj mi, duonkovritaj, ve-
 
 nis de kvar terpomoj. Tio montras al vi, kio povas rezulti el
 
@@ -7292,39 +5526,27 @@ kun ŝeloj. Ni enmetis ankaŭ brasikon kaj ĉirkaŭ kvin litrojn
 
 da pizoj. Georgo kirlis la tuton kaj poste diris, ke ŝajne restas ankoraŭ multe da loko, ni do traserĉis ambaŭ korbegojn, elprenis ĉiujn pecetojn kaj restaĵojn kaj aldonis ilin al la stufaĵo.
 
-Restis duono da porkaĵa pasteĉo kaj iom da malvarma bolkui-
-
-rita lardo kaj ankaŭ ilin ni enmetis. Poste Georgo trovis du-
+Restis duono da porkaĵa pasteĉo kaj iom da malvarma bolkuirita lardo kaj ankaŭ ilin ni enmetis. Poste Georgo trovis du-
 
 onskatolon da salma konservaĵo kaj li ĵetis ĝin en la poton.
 
-Li diris, ke tio estas la avantaĝo de irlanda stufaĵo: vi liberi-
-
-ĝas de tiom da superfluaĵoj. Mi aperigis duon da krevintaj
+Li diris, ke tio estas la avantaĝo de irlanda stufaĵo: vi liberiĝas de tiom da superfluaĵoj. Mi aperigis duon da krevintaj
 
 ovoj kaj ankaŭ ilin ni enmetis. Georgo diris, ke ili densigos la viandsaŭcon.
 
 La aliajn ingrediencojn mi forgesis, tamen mi scias, ke ni
 
-malŝparis nenion; mi memoras, ke antaŭ la fino Montmoren-
+malŝparis nenion; mi memoras, ke antaŭ la fino Montmorency, kiu la tutan tempon montris grandan intereson pri la aga-
 
-cy, kiu la tutan tempon montris grandan intereson pri la aga-
+do, foriris malrapide kun serioza kaj pensema mieno kaj reaperis post kelkaj minutoj kun mortinta akvorato en la buŝo,
 
-do, foriris malrapide kun serioza kaj pensema mieno kaj re-
-
-aperis post kelkaj minutoj kun mortinta akvorato en la buŝo,
-
-kiun li evidente deziris donaci kiel sian kontribuon al la man-
-
-ĝo; mi ne povas diri, ĉu sarkasme aŭ pro ĝenerala deziro kun-
+kiun li evidente deziris donaci kiel sian kontribuon al la manĝo; mi ne povas diri, ĉu sarkasme aŭ pro ĝenerala deziro kun-
 
 helpi.
 
 Ni diskutis, ĉu la raton ni enmetu aŭ ne. Harris diris, ke li
 
-opinias, ke ĝi estos tute bona, kunmiksita kun la aliaj aĵoj, kaj 171
-
-T R I V I RO J E N B OATO
+opinias, ke ĝi estos tute bona, kunmiksita kun la aliaj aĵoj, kaj
 
 
 ke ĉiu iometo servas; Georgo tamen tenis sin ĉe precedenco.
@@ -7339,48 +5561,34 @@ estas? Estas homoj, kiel vi, kiuj malhelpas la progreson de la mondo. Pensu pri 
 
 i estis granda sukceso, tiu irlanda stufaĵo. Mi kredas, ke
 
-neniun manĝon mi ĝuis pli. Estis en ĝi io ege freŝa kaj pikan-
-
-ta. La palato tre laciĝas pro la malnovaj banalaĵoj; jen estis manĝo kun nova gusto, kun gusto simila al nenio alia sur la
+neniun manĝon mi ĝuis pli. Estis en ĝi io ege freŝa kaj pikanta. La palato tre laciĝas pro la malnovaj banalaĵoj; jen estis manĝo kun nova gusto, kun gusto simila al nenio alia sur la
 
 tero.
 
-Krome ĝi estis nutra. Kiel diris Georgo, estis en ĝi bona ma-
-
-terialo. La pizoj kaj terpomoj povus esti iom pli molaj, sed ni ĉiuj havas bonajn dentojn, do tio ne gravis: kaj koncerne la viandsaŭcon, ĝi estis poemo — eble iom tro spica por malfor-
+Krome ĝi estis nutra. Kiel diris Georgo, estis en ĝi bona materialo. La pizoj kaj terpomoj povus esti iom pli molaj, sed ni ĉiuj havas bonajn dentojn, do tio ne gravis: kaj koncerne la viandsaŭcon, ĝi estis poemo — eble iom tro spica por malfor-
 
 ta stomako, tamen nutra.
 
-Ni finis per teo kaj ĉeriza torto. Dum la tetrinkado Mont-
-
-morency interbatalis kun la kaserolo kaj forte malvenkis.
+Ni finis per teo kaj ĉeriza torto. Dum la tetrinkado Montmorency interbatalis kun la kaserolo kaj forte malvenkis.
 
 Dum la tuta vojaĝo li montris grandan scivolemon pri la
 
 kaserolo. Li kutimis sidi kaj ĝin rigardi, dum la akvo bolis, kun konfuziĝinta mieno, kaj de tempo al tempo penis ĝin inciti
 
-murmuregante al ĝi. Kiam ĝi komencis ŝpruci kaj eligi vapo-
+murmuregante al ĝi. Kiam ĝi komencis ŝpruci kaj eligi vaporon, tion li rigardis kiel batalinviton kaj volis batali kontraŭ
 
-ron, tion li rigardis kiel batalinviton kaj volis batali kontraŭ
-
-ĝi, tamen ĝuste en tiu momento iu ĉiam alkuregis kaj forpor-
-
-tis lian viktimon antaŭ ol li povis ĝin atingi.
+ĝi, tamen ĝuste en tiu momento iu ĉiam alkuregis kaj forportis lian viktimon antaŭ ol li povis ĝin atingi.
 
 Hodiaŭ li intencis nepre antaŭiĝi. Je la unua sono farita de
 
-la kaserolo li leviĝis murmuregante kaj marŝis rekte al ĝi kun 172
-
-T R I V I RO J E N B OATO
+la kaserolo li leviĝis murmuregante kaj marŝis rekte al ĝi kun
 
 
 minacanta sinteno. i estis nur malgranda kaserolo, tamen ĝi
 
 estis plena de kuraĝo kaj ĝi atakis kraĉante al li.
 
-—Ha! ĉu! — murmuregis Montmorency, montrante la den-
-
-tojn; — mi instruos al vi ne impertinenti al laborema, respektinda hundo; vi mizera, longnaza, malpura kanajlo. Venu!
+—Ha! ĉu! — murmuregis Montmorency, montrante la dentojn; — mi instruos al vi ne impertinenti al laborema, respektinda hundo; vi mizera, longnaza, malpura kanajlo. Venu!
 
 Li kuregis al la kompatinda kaseroleto kaj ĝin kaptis ĉe la
 
@@ -7390,13 +5598,9 @@ Tiam tra la vespera kvieto sonis sangonfrostiga bleko,
 
 Montmorency forlasis la boaton kaj faris sanpromenon trifoje
 
-ĉirkaŭ la insulo je la rapideco de tridek kvin mejloj hore, haltante de tempo al tempo por enterigi la nazon en iom da mal-
+ĉirkaŭ la insulo je la rapideco de tridek kvin mejloj hore, haltante de tempo al tempo por enterigi la nazon en iom da malvarma ŝlimo.
 
-varma ŝlimo.
-
-De tiu tago Montmorency rigardis la kaserolon kun mik-
-
-saĵo de respekto, suspekto kaj malamo. ĉiufoje kiam li vidis
+De tiu tago Montmorency rigardis la kaserolon kun miksaĵo de respekto, suspekto kaj malamo. ĉiufoje kiam li vidis
 
 ĝin, li kutimis murmuregi kaj maIantaŭeniri tre rapide, kun
 
@@ -7417,24 +5621,17 @@ Li renkontis tro da ĝenerala malkuraĝigo. Li klopodis du-tri
 vesperojn, dum ni estis sur la rivero, iomete ekzerci, sed tio neniam sukcesis. La lingvaĵo de Harris estis sufiĉa por malkuraĝigi iun ajn; aldone al tio Montmorency kutimis sidi kaj
 
 
-T R I V I RO J E N B OATO
-
-
 ululi senĉese tra la tuta prezentado. Justan ŝancon li ne ricevis.
 
 —Kial li tiel blekegas, kiam mi ludas? — Georgo kutimis
 
 kriis indigne, ĵetante al li boton.
 
-—Kial vi tiel Iudas, kiam li blekegas? — Harris kutimis re-
-
-spondi, kaptante la boton. — Lasu lin. Li ne povas ne bleke-
+—Kial vi tiel Iudas, kiam li blekegas? — Harris kutimis respondi, kaptante la boton. — Lasu lin. Li ne povas ne bleke-
 
 gi. Li havas muzikeman orelon, kaj via ludado igas lin blekegi.
 
-Georgo decidis prokrasti la studadon de la banĝo ĝis li re-
-
-venis hejmen. Tamen eĉ tie li ne trovis multe da ŝanco. Sin-
+Georgo decidis prokrasti la studadon de la banĝo ĝis li revenis hejmen. Tamen eĉ tie li ne trovis multe da ŝanco. Sin-
 
 jorino P. kutimis supreniri kaj diri, ke ŝi tre bedaŭras — ŝi
 
@@ -7444,17 +5641,13 @@ Poste Georgo eliris kun ĝi malfrue en la nokto kaj ekzercis
 
 per ĝi en la placo. Sed la loĝantoj plendis pri tio al la polico kaj iun nokton oni embuskis lin kaj li estis kaptita. La atestaĵo kontraŭ li estis klara kaj li estis devigita ne plu maltrankvili-gi la publikan ordon dum ses monatoj.
 
-Post tio ŝajne li malkuraĝiĝis pri la afero. Unu-du malfor-
-
-tajn provojn li faris por repreni la laboron, kiam forpasis la ses monatoj, sed ĉiam restis la sama malvarmo — la sama
+Post tio ŝajne li malkuraĝiĝis pri la afero. Unu-du malfortajn provojn li faris por repreni la laboron, kiam forpasis la ses monatoj, sed ĉiam restis la sama malvarmo — la sama
 
 manko de simpatio flanke de la mondo, kontraŭ kiu li devis
 
 batali; post kelka tempo li tute malesperiĝis kaj anoncis la
 
-instrumenton por vendo je tre rabatita prezo — ”la posedan-
-
-to ne plu bezonas ĝin” — kaj komencis anstataŭe lerni lud-
+instrumenton por vendo je tre rabatita prezo — ”la posedanto ne plu bezonas ĝin” — kaj komencis anstataŭe lerni lud-
 
 kartajn artifikojn.
 
@@ -7462,27 +5655,16 @@ Estas senkuraĝiga laboro lerni ludi muzikinstrumenton.
 
 Oni povus kredi, ke la socio, por la popra bono, faros sian
 
-plejeblon por helpi al homo akiri la arton de ludado de mu-
-
-zika instrumento. Sed ĝi ne faras!
+plejeblon por helpi al homo akiri la arton de ludado de muzika instrumento. Sed ĝi ne faras!
 
 
-T R I V I RO J E N B OATO
-
-
-Foje mi konis junulon, kiu lernis ludi sakŝalmon, kaj vi sur-
-
-priziĝus, se vi scius, kontraŭ kiom da kontraŭstaro li devis batali. Eĉ ne de la anoj de la propra familio li ricevis tion, kion oni povus nomi aktiva kuraĝigo. Lia patro ekde la komenco
+Foje mi konis junulon, kiu lernis ludi sakŝalmon, kaj vi surpriziĝus, se vi scius, kontraŭ kiom da kontraŭstaro li devis batali. Eĉ ne de la anoj de la propra familio li ricevis tion, kion oni povus nomi aktiva kuraĝigo. Lia patro ekde la komenco
 
 la aferon forte kontraŭstaris kaj parolis tute sensente pri la temo.
 
-Mia amiko kutimis leviĝi frue en la mateno por ekzerci, ta-
+Mia amiko kutimis leviĝi frue en la mateno por ekzerci, tamen li devis rezigni tiun planon pro sia fratino. ŝi estis iom piema kaj ŝi diris, ke tiel komenci la tagon ŝajnas terure.
 
-men li devis rezigni tiun planon pro sia fratino. ŝi estis iom piema kaj ŝi diris, ke tiel komenci la tagon ŝajnas terure.
-
-Li anstataŭe tenis sin veka nokte kaj ludis, post kiam la fa-
-
-milio jam enlitiĝis, sed eĉ tio ne utilis, ĉar tio havigis al la domo malbonan reputacion. Survoje hejmen malfrue la pre-terpasantoj haltis ekstere por aŭskulti kaj la sekvantan mate-
+Li anstataŭe tenis sin veka nokte kaj ludis, post kiam la familio jam enlitiĝis, sed eĉ tio ne utilis, ĉar tio havigis al la domo malbonan reputacion. Survoje hejmen malfrue la pre-terpasantoj haltis ekstere por aŭskulti kaj la sekvantan mate-
 
 non disfamiĝis tra la urbo, ke terura murdo okazis la antaŭan
 
@@ -7490,9 +5672,7 @@ nokton ĉe sinjoro Jefferson; ili rakontis, kiel ili aŭdis la plor-kriojn de la
 
 mortantan gargarsonon de la kadavro.
 
-Oni tial permesis, ke li ekzercu dum la tago en la malan-
-
-taŭa kuirejo kun ĉiuj pordoj fermitaj; tamen liaj plej trafaj
+Oni tial permesis, ke li ekzercu dum la tago en la malantaŭa kuirejo kun ĉiuj pordoj fermitaj; tamen liaj plej trafaj
 
 partoj ĝenerale estis aŭdataj en la tagĉambro, malgraŭ ĉiuj
 
@@ -7500,20 +5680,13 @@ zorgoj, kaj emociis lian patrinon preskaŭ ĝis larmoj.
 
 ŝi diris, ke tio memorigas ŝin pri la kompatinda patro (la
 
-kompatindulon englutis ŝarko, dum li sin banis ĉe la marbor-
-
-do de Nova Gvineo — sed ŝi ne povis klarigi, kia estis la in-
+kompatindulon englutis ŝarko, dum li sin banis ĉe la marbordo de Nova Gvineo — sed ŝi ne povis klarigi, kia estis la in-
 
 terrilato).
 
-Poste oni konstruis por li malgrandan barakon en la fun-
-
-do de la ĝardeno, je kvaronmejlo de la domo, kaj devigis lin
+Poste oni konstruis por li malgrandan barakon en la fundo de la ĝardeno, je kvaronmejlo de la domo, kaj devigis lin
 
 porti tien la muzikilon ĉiufoje, kiam li deziris ĝin funkciigi; kelkfoje venis en la domon vizitanto, kiu sciis nenion pri la
-
-
-T R I V I RO J E N B OATO
 
 
 afero kaj oni forgesis informi lin kaj averti, kaj li iris promeni en la ĝardeno kaj subite aŭdis tiun sakŝalmon sen esti preta por tio kaj sen scii, kio ĝi estas. Se li estis homo kun forta karaktero, ĝi nur konvulsiigis lin; sed homon kun nur meza
@@ -7522,42 +5695,29 @@ intelekto ĝi kutime frenezigis.
 
 Vere oni devas konfesi, ke troviĝas io tre malĝojiga en la
 
-fruaj penadoj de amatoraj ludantoj de sakŝalmo. Tion mi sen-
-
-tis mem, aŭskultante mian junan amikon. Tiuj muzikiloj ŝajne
+fruaj penadoj de amatoraj ludantoj de sakŝalmo. Tion mi sentis mem, aŭskultante mian junan amikon. Tiuj muzikiloj ŝajne
 
 estas penige ludeblaj. Necesas, ke vi antaŭ la komenco havu
 
-spiron sufiĉan por la tuta melodio — almenaŭ tion mi kon-
+spiron sufiĉan por la tuta melodio — almenaŭ tion mi konkludis, rigardante al Jefferson.
 
-kludis, rigardante al Jefferson.
-
-Li kutimis komenci grandioze per sovaĝa, plengorĝa, venu-
-
-al-la-batalo-speco de noto, kiu vin fakte ekscitis. Sed li fariĝis pli kaj pli mallaŭta, dum li daŭrigis la ludadon, kaj la lasta strofo kutime kolapsis en la mezo kun ŝpruceto kaj siblo.
+Li kutimis komenci grandioze per sovaĝa, plengorĝa, venual-la-batalo-speco de noto, kiu vin fakte ekscitis. Sed li fariĝis pli kaj pli mallaŭta, dum li daŭrigis la ludadon, kaj la lasta strofo kutime kolapsis en la mezo kun ŝpruceto kaj siblo.
 
 Por ludi sakŝalmon vi bezonas bonan sanon.
 
 La juna Jefferson lernis per tiu sakŝalmo ludi nur unu melodion: mi tamen neniam aŭdis plendojn pri la nesufiĉo de
 
-lia repertuaro — tute neniujn. Tiu melodio estis ”La Camp-
-
-bell-klananoj alvenas nun!” tiel li diris, tamen lia patro ĉiam insistis, ke ĝi estas ”La kampanuletoj de Skotlando”. Neniu
+lia repertuaro — tute neniujn. Tiu melodio estis ”La Campbell-klananoj alvenas nun!” tiel li diris, tamen lia patro ĉiam insistis, ke ĝi estas ”La kampanuletoj de Skotlando”. Neniu
 
 ŝajnis tute certa, kio ĝi estas, tamen ĉiuj konsentis, ke ĝi sonas skote.
 
-Al fremduloj oni permesis tri divenojn, kaj plej multaj ĉi-
-
-ufoje divenis malsaman melodion.
+Al fremduloj oni permesis tri divenojn, kaj plej multaj ĉiufoje divenis malsaman melodion.
 
 Post la vespermanĝo Harris estis malbonhumora, — mi
 
 kredas, ke sendube lin malordigis la stufaĵo: li ne kutimiĝis al eminenta manĝo — Georgo kaj mi tial lasis lin en la boato kaj
 
 interkonsentis, ke ni iru promeni en Henley. Li diris, ke li trs glason da viskio, fumos plenpipon kaj faros la necesajn
-
-
-T R I V I RO J E N B OATO
 
 
 aranĝojn por la nokto. Ni kriu, kiam ni revenos, kaj li remos
@@ -7570,43 +5730,29 @@ de la insulo kaj nin transportos.
 
 — li gruntis, remante reen al la insulo.
 
-Henley preparis sin por boatfesto kaj estis plena de mova-
-
-do. En la urbo ni renkontis multajn konatojn niajn kaj en ilia agrabla kunesto la tempo forpasis sufiĉe rapide; estis tial preskaŭ la dekunua antaŭ ol ni komencis nian kvarmejlan mar-
+Henley preparis sin por boatfesto kaj estis plena de movado. En la urbo ni renkontis multajn konatojn niajn kaj en ilia agrabla kunesto la tempo forpasis sufiĉe rapide; estis tial preskaŭ la dekunua antaŭ ol ni komencis nian kvarmejlan mar-
 
 ŝon al nia hejmo, kiel ni jam lernis nomi nian boateton.
 
-Estis malgaja nokto, iom malvarma, kaj falis maldensa plu-
-
-vo; trene marŝante tra la mallumaj, silentaj kampoj, mallaŭ-
+Estis malgaja nokto, iom malvarma, kaj falis maldensa pluvo; trene marŝante tra la mallumaj, silentaj kampoj, mallaŭ-
 
 te interparolante kaj scivolante, ĉu ni iras la ĝustan vojon aŭ ne, ni pensis pri la komforta boato kun la hela lumo radianta tra la streĉita kanvaso; pri Harris kaj Montmorency, pri la viskio kaj ni deziris, ke ni estu tie.
 
 Ni imagis bildon pri ni mem denove en la boato, lacaj kaj
 
-iomete malsataj; pri la malhela rivero kaj la senformaj arboj; sub ili, simila al grandega lampiro, nia kara boateto, tiel komforta kaj varma kaj gaja. Ni povis vidi nin tie ĉe la vesper-
-
-manĝo, mordeti la malvarman viandon kaj pasigi unu al alia
+iomete malsataj; pri la malhela rivero kaj la senformaj arboj; sub ili, simila al grandega lampiro, nia kara boateto, tiel komforta kaj varma kaj gaja. Ni povis vidi nin tie ĉe la vespermanĝo, mordeti la malvarman viandon kaj pasigi unu al alia
 
 grandajn pantranĉaĵojn; ni povis aŭdi la gajan klakadon de
 
 niaj tranĉiloj, la ridantajn voĉojn plenigantaj la tutan lokon kaj superfluantaj tra la aperturo en la nokton. Ni rapidis an-taŭen por realigi la vizion.
 
-Ni trafis fine la bordvojeton kaj tio nin feliĉiĝis; ĉar antaŭe ni ne estis tro certaj, ĉu ni marŝas al la rivero aŭ for de ĝi, kaj kiam vi estas laca kaj deziras enlitiĝi, tiaj malcertaĵoj vin maltrankviligas. Ni preterpasis Shiplake, kiam la horloĝo sono-
-
-
-T R I V I RO J E N B OATO
-
-
-ris kvaronon antaŭ la dekdua; tiam Georgo diris, enpensi-
+Ni trafis fine la bordvojeton kaj tio nin feliĉiĝis; ĉar antaŭe ni ne estis tro certaj, ĉu ni marŝas al la rivero aŭ for de ĝi, kaj kiam vi estas laca kaj deziras enlitiĝi, tiaj malcertaĵoj vin maltrankviligas. Ni preterpasis Shiplake, kiam la horloĝo sonoris kvaronon antaŭ la dekdua; tiam Georgo diris, enpensi-
 
 ĝinte:
 
 —Vi hazarde memoras, kiu el la insuloj ĝi estas, ĉu?
 
-—Ne, — mi respondis, ankaŭ enpensiĝante. — Mi ne me-
-
-moras. Kiom da ili estas?
+—Ne, — mi respondis, ankaŭ enpensiĝante. — Mi ne memoras. Kiom da ili estas?
 
 —Nur kvar, — respondis Georgo. — Estos feliĉe, se li estas
 
@@ -7622,9 +5768,7 @@ Ni kuris esperplene al la tria, kaj brukriis.
 
 Neniu respondo!
 
-La situacio jam estis serioza. Estis post noktmezo. La hote-
-
-loj ĉe Shiplake kaj Henley sendube estis plenplenaj; ni ne po-
+La situacio jam estis serioza. Estis post noktmezo. La hoteloj ĉe Shiplake kaj Henley sendube estis plenplenaj; ni ne po-
 
 vis ĉirkaŭvagi, vekante la dometanojn kaj domokupantojn
 
@@ -7646,30 +5790,20 @@ kvara insulo, sed ni ne havis pli bonan feliĉon. La pluvo jam
 
 falis rapide kaj evidente intencis daŭri. Ni estis tute malsekaj, malvarmaj kaj malfeliĉaj. Ni scivolis, ĉu vere estas nur kvar
 
-insuloj, aŭ ĉu pli; aŭ ĉu ni entute estas proksime de la insu-
-
-loj; aŭ ĉu ni estas ie ajn en la limo de unu mejlo de tie, kie ni devus esti, aŭ tute en la malĝusta parto de la rivero; ĉio ŝaj-178
-
-T R I V I RO J E N B OATO
+insuloj, aŭ ĉu pli; aŭ ĉu ni entute estas proksime de la insuloj; aŭ ĉu ni estas ie ajn en la limo de unu mejlo de tie, kie ni devus esti, aŭ tute en la malĝusta parto de la rivero; ĉio ŝaj-178
 
 
-nis tiel stranga kaj alia en la mallumo. Ni komprenis la sufe-
-
-rojn de la bubetoj en la arbareto.
+nis tiel stranga kaj alia en la mallumo. Ni komprenis la suferojn de la bubetoj en la arbareto.
 
 uste kiam ni jam tute malesperiĝis — jes, mi scias, ke tiam
 
 en la romanoj kaj rakontoj io ĉiam okazas; sed mi ne povas
 
-aliigi tion. Kiam mi komencis ĉi tiun libron, mi nepre inten-
-
-cis, ke en ĉio mi estu severe verema; tia mi restos, eĉ se tiucele mi devos fari uzon de jam trouzitaj frazoj.
+aliigi tion. Kiam mi komencis ĉi tiun libron, mi nepre intencis, ke en ĉio mi estu severe verema; tia mi restos, eĉ se tiucele mi devos fari uzon de jam trouzitaj frazoj.
 
 Estis ĝuste kiam ni tute malesperiĝis kaj tion mi devas diri.
 
-Do, ĝuste kiam ni tute malesperiĝis, mi subite vidis, iom mal-
-
-supre, strangan, nenaturan lumeton flagreti inter la arboj sur la kontraŭa bordo. Momenton mi pensis pri fantomoj: ĝi estis
+Do, ĝuste kiam ni tute malesperiĝis, mi subite vidis, iom malsupre, strangan, nenaturan lumeton flagreti inter la arboj sur la kontraŭa bordo. Momenton mi pensis pri fantomoj: ĝi estis
 
 tiel ombreca, mistera lumo. La sekvan momenton tamen mi
 
@@ -7677,17 +5811,13 @@ ekopiniis, ke tio estas nia boato, kaj trans la akvon mi eligis kriegon, kiu ŝa
 
 Dum minutoj ni atendits senspiraj kaj tiam — ho! plej ĉiela
 
-muziko de mallumo! — ni aŭdis la respondan bojon de Mont-
-
-morency. Ni rekriegis sufiĉe laŭte por veki la sep dormantojn
+muziko de mallumo! — ni aŭdis la respondan bojon de Montmorency. Ni rekriegis sufiĉe laŭte por veki la sep dormantojn
 
 — mem mi neniam povis kompreni, kial necesas pli da bruo
 
 por veki sep dormantojn ol unu — kaj post tempo, kiu ŝajnis
 
-unu horo, sed kiu estis fakte, mi supozas, ĉirkaŭ kvin minu-
-
-toj, ni vidis lumigitan boaton rampi malrapide sur la nigraĵo, kaj aŭdis la dormeman voĉon de Harris demandi, kie ni estas.
+unu horo, sed kiu estis fakte, mi supozas, ĉirkaŭ kvin minutoj, ni vidis lumigitan boaton rampi malrapide sur la nigraĵo, kaj aŭdis la dormeman voĉon de Harris demandi, kie ni estas.
 
 Estis en Harris neklarigebla strangeco. Tio estis io pli ol
 
@@ -7700,12 +5830,7 @@ kompreno; sed fine ni sukcesis kaj bone enboatiĝis.
 Harris havis malfeliĉan mienon, kiel ni rimarkis, kiam ni
 
 
-T R I V I RO J E N B OATO
-
-
-eniris la boaton. Li memorigis pri homo, kiu trasuferis mal-
-
-feliĉon. Ni demandis lin, ĉu io okazis, kaj li diris:
+eniris la boaton. Li memorigis pri homo, kiu trasuferis malfeliĉon. Ni demandis lin, ĉu io okazis, kaj li diris:
 
 —Cignoj!
 
@@ -7714,9 +5839,6 @@ feliĉon. Ni demandis lin, ĉu io okazis, kaj li diris:
 post la foriro de Georgo kaj mi la cignino revenis kaj brue
 
 skandalis. Harris ŝin forpelis, ŝi foriris kaj venigis la edzon.
-
-
-T R I V I RO J E N B OATO
 
 
 Harris diris, ke li havis plenan batalon kun tiuj du cignoj; tamen fine triumfis kuraĝo kaj lerto kaj li venkis ilin.
@@ -7737,15 +5859,11 @@ boato kaj dronigi ilin; dum kvar horoj li sin defendis kiel heroo kaj mortvundis
 
 vi kredas, ke mi ne povas kalkuli?
 
-Kio estis la veraj faktoj pri tiuj cignoj, tion ni neniam eks-
-
-ciis. Pri la temo ni pridemandis Harris la sekvantan matenon,
+Kio estis la veraj faktoj pri tiuj cignoj, tion ni neniam eksciis. Pri la temo ni pridemandis Harris la sekvantan matenon,
 
 kaj li diris, ”Kiuj cignoj?” kaj ŝajne kredis, ke Georgo kaj mi sonĝis.
 
-Ho, kiel rave estis sin trovi sekure en la boato post niaj pe-
-
-nadoj kaj timoj! Georgo kaj mi manĝis bonan vespermanĝon,
+Ho, kiel rave estis sin trovi sekure en la boato post niaj penadoj kaj timoj! Georgo kaj mi manĝis bonan vespermanĝon,
 
 poste ni trinkus viskion, se ni estus povintaj trovi la viskion, sed ni ne povis. Ni demandis Harris pri tio, kion li faris kun
 
@@ -7753,38 +5871,24 @@ poste ni trinkus viskion, se ni estus povintaj trovi la viskion, sed ni ne povis
 
 Tiun nokton mi dormus bone kaj mi estus dorminta eĉ pli
 
-bone, se Harris ne estus tie. Mi nebule memoras, ke minimu-
+bone, se Harris ne estus tie. Mi nebule memoras, ke minimume dek du fojojn dum la nokto min vekis Harris, ĉirkaŭva-
 
-me dek du fojojn dum la nokto min vekis Harris, ĉirkaŭva-
-
-ganta en la boato kun lantemo kaj serĉanta siajn vestojn. ŝaj-
-
-nas, ke pri siaj vestoj li estis maltrankvila la tutan nokton.
+ganta en la boato kun lantemo kaj serĉanta siajn vestojn. ŝajnas, ke pri siaj vestoj li estis maltrankvila la tutan nokton.
 
 Dufoje li ellitigis Georgon kaj min por vidi, ĉu ni kuŝas sur
 
 lia pantalono. La duan fojon Georgo, tute furioziĝis.
 
 
-T R I V I RO J E N B OATO
-
-
 —Je la tondro! Por kio vi deziras vian pantalonon meze de
 
-la nokto? — li demandis indigne. — Kial vi ne kuŝiĝas kaj en-
+la nokto? — li demandis indigne. — Kial vi ne kuŝiĝas kaj endormiĝas?
 
-dormiĝas?
-
-La sekvantan fojon, kiam mi vekiĝis, mi trovis lin malt-
-
-rankvila pro tio, ke li ne povas trovi siajn ŝtrumpetojn; mia
+La sekvantan fojon, kiam mi vekiĝis, mi trovis lin maltrankvila pro tio, ke li ne povas trovi siajn ŝtrumpetojn; mia
 
 lasta nebula memoro estis, ke oni min rulas sur mian flankon
 
 kaj ke mi aŭdas Harris murmureti ion pri tio, ke estas strange, kie povas esti lia ombrelo.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro XV
@@ -7803,9 +5907,7 @@ Prametveturado — Malfeliĉa akcidento — Plezuroj de amikeco
 
 dronis
 
-Ni vekiĝis malfrue la sekvantan matenon kaj je la insis-
-
-ta peto de Harris manĝis simplan matenmanĝon, kun
+Ni vekiĝis malfrue la sekvantan matenon kaj je la insista peto de Harris manĝis simplan matenmanĝon, kun
 
 ”neniuj frandaĵoj”. Poste ni reestigis la purecon kaj ĉion ordigis (daŭra laboro, kiu donis al mi sufiĉe klaran enrigardon en la demandon, pri kiu mi ofte cerbumis — nome, kiamaniere
 
@@ -7830,24 +5932,17 @@ tiu vojaĝo mi faris pli ol mian justan parton de la laboro, kaj mi indignis.
 ĉiam ŝajnas al mi, ke mi faras pli da laboro, ol mi devus.
 
 
-T R I V I RO J E N B OATO
-
-
 Ne estas tiel, ke laboro malplaĉas al mi; mi ŝatas laboron: ĝi min ravas. Mi povas sidi kaj ĝin rigardi dum horoj. Mi ŝatas
 
 teni ĝin apud mi: la penso pri ĝia foriĝo preskau rompas al mi la koron.
 
-Vi ne povas doni al mi tro multe da laboro; por mi amasi-
-
-gi laboron preskaŭ fariĝis pasio: mia studejo estas nun tiel
+Vi ne povas doni al mi tro multe da laboro; por mi amasigi laboron preskaŭ fariĝis pasio: mia studejo estas nun tiel
 
 plena de ĝi, ke troviĝas apenaŭ colo da loko por io pli. Mi
 
 devos baldaŭ alkonstruigi alon.
 
-Mi estas ankaŭ zorgema pri mia laboro. Jen parto de la la-
-
-boro, kiun mi ankoraŭ havas ĉe mi, estas posedata de mi jam
+Mi estas ankaŭ zorgema pri mia laboro. Jen parto de la laboro, kiun mi ankoraŭ havas ĉe mi, estas posedata de mi jam
 
 de jaroj kaj jaroj, kaj ne troviĝas sur ĝi eĉ fingromakulo. Mi tre fieras pri mia laboro; mi ĝin mallevas de tempo al tempo
 
@@ -7875,29 +5970,20 @@ En la boato mi ĉiam rimarkis, ke ĉiu ekhavas la ideon, ke
 
 kontraŭe, ridindigis la ideon, ke Harris faris ion pli ol manĝi kaj dormi, kaj tenis sin forte ĉe la opinio, ke estis li, Georgo mem, kiu faris la tutan laboron menciindan.
 
-Li diris, ke li neniam estis kune kun tia paro de mallabore-
-
-maj laborevituloj, kiaj estas Harris kaj mi.
-
-
-T R I V I RO J E N B OATO
+Li diris, ke li neniam estis kune kun tia paro de mallaboremaj laborevituloj, kiaj estas Harris kaj mi.
 
 
 Tio amuzigis Harris.
 
 —Jen la maljuna Georgo parolas pri laboro! — li ridis; —
 
-duonhoro da ĝi lin mortigus. ĉu vi iam vidis Georgon labo-
-
-ri? — li aldonis, sin turnante al mi.
+duonhoro da ĝi lin mortigus. ĉu vi iam vidis Georgon labori? — li aldonis, sin turnante al mi.
 
 Mi konsentis kun Harris, ke mi neniam vidis — nepre ne,
 
 de kiam ni komencis ĉi tiun vojaĝon.
 
-—Nu, mi ne vidas, kiel vi povas scii multon pri tio, — Ge-
-
-orgo, rediris al Harris; — ĉar Dio min benu, se vi ne dormis
+—Nu, mi ne vidas, kiel vi povas scii multon pri tio, — Georgo, rediris al Harris; — ĉar Dio min benu, se vi ne dormis
 
 duonon de la tempo. ĉu vi iam vidis Harris plene veka, krom
 
@@ -7905,9 +5991,7 @@ duonon de la tempo. ĉu vi iam vidis Harris plene veka, krom
 
 La vero devigis min subteni Georgon. Harris estis nur tre
 
-malmulte utila en la boato, nur malmulte helpis, ek de la ko-
-
-menco.
+malmulte utila en la boato, nur malmulte helpis, ek de la komenco.
 
 —Nu, infero, ĉiuokaze mi faris pli ol li, — rediris Harris.
 
@@ -7921,26 +6005,15 @@ Tio estis ilia dankemo al mi pro tio, ke mi portis ilin kaj ili-an mizeran malno
 
 mi ĉion kontrolis kaj administris por ili, zorgis pri ili kaj Iabo-regis por ili. Jen kiel iras la mondo.
 
-La nunan problemon ni solvis aranĝante, ke Harris kaj Ge-
+La nunan problemon ni solvis aranĝante, ke Harris kaj Georgo remu ĝis preter Reading kaj ke mi trenu la boaton de tie.
 
-orgo remu ĝis preter Reading kaj ke mi trenu la boaton de tie.
-
-Remi pezan boaton kontraŭ forta fluo min nun ne multe al-
-
-logas. Estis tempo, antaŭ longe, kiam mi laŭte postulis la mal-facilan laboron: nun mi prefere donas ŝancon al la junuloj.
+Remi pezan boaton kontraŭ forta fluo min nun ne multe allogas. Estis tempo, antaŭ longe, kiam mi laŭte postulis la mal-facilan laboron: nun mi prefere donas ŝancon al la junuloj.
 
 Mi rimarkas, ke plej multaj malnovaj riveruloj estas same
 
-sindetenemaj, ĉiufoje kiam forta remado estas necesa. Vi po-
+sindetenemaj, ĉiufoje kiam forta remado estas necesa. Vi povas ĉiam distingi malnovan riverulon per la maniero, en kiu
 
-vas ĉiam distingi malnovan riverulon per la maniero, en kiu
-
-li sin sternas sur la kusenoj sur la fundo de la boato kaj kura-185
-
-T R I V I RO J E N B OATO
-
-
-ĝiĝas la remantojn, rakontante al ili anekdotojn pri la mirin-
+li sin sternas sur la kusenoj sur la fundo de la boato kaj kuraĝiĝas la remantojn, rakontante al ili anekdotojn pri la mirin-
 
 daj faroj, kiujn li färis lastjare.
 
@@ -7958,23 +6031,15 @@ vi memoras tion, Jack?
 
 Jack, kiu jam pretigis al si liton en la pruo el ĉiuj lankovriloj kaj paltoj, kiujn li povis kolekti, kaj kiu kuŝas tie dormanta jam de du horoj, parte vekiĝas estante tiel alvokita kaj reme-moras la tutan aferon kaj memoras ankaŭ, ke la tutan vojon
 
-kuris kontraŭ ili nekutime forta fluo — kaj ankaŭ forta ven-
+kuris kontraŭ ili nekutime forta fluo — kaj ankaŭ forta vento.
 
-to.
-
-—Estis proksimume tridek kvar mejloj, mi supozas, — al-
-
-donas la unua parolanto, mallevante alian kusenon por meti
+—Estis proksimume tridek kvar mejloj, mi supozas, — aldonas la unua parolanto, mallevante alian kusenon por meti
 
 sub la kapon.
 
-—Ne, ne; ne troigu, Tom, — murmuretas Jack, admonan-
+—Ne, ne; ne troigu, Tom, — murmuretas Jack, admonante; — tridek tri maksimume.
 
-te; — tridek tri maksimume.
-
-Jack kaj Tom, tute eluzitaj de ĉi tiu interparola penado, an-
-
-koraŭfoje endormiĝas. Kaj la du simplanimaj junuloj kun la
+Jack kaj Tom, tute eluzitaj de ĉi tiu interparola penado, ankoraŭfoje endormiĝas. Kaj la du simplanimaj junuloj kun la
 
 remiloj tre fieras, ke oni lasas al ili remi tiel mirindajn remis-tojn kiel Jack kaj Tom kaj streĉas siajn fortojn pli ol antaŭe.
 
@@ -7989,14 +6054,9 @@ kaj mi — unu fojon lastjare kunprenis kun ni ”novulon” kaj
 la tutan vojon ni aplikis al li la kutimajn fabelojn pri la mirindaĵoj, kiujn ni faris.
 
 
-T R I V I RO J E N B OATO
-
-
 Ni donis al li ĉiujn kutimajn rakontojn — la grandaĝajn
 
-mensogojn, kiuj servis sur la rivero ĉe ĉiu riverulo jam de jaroj — kaj aldonis sep tute originalajn, kiujn ni elpensis mem, inkluzive de fakte tre verŝajna historio, bazita ĝis certa grado sur preskaŭ vera okazaĵo, kiu vere okazis, en modifita for-
-
-mo, antaŭ kelkaj jaroj al kelkaj amikoj niaj — historio, kiun
+mensogojn, kiuj servis sur la rivero ĉe ĉiu riverulo jam de jaroj — kaj aldonis sep tute originalajn, kiujn ni elpensis mem, inkluzive de fakte tre verŝajna historio, bazita ĝis certa grado sur preskaŭ vera okazaĵo, kiu vere okazis, en modifita formo, antaŭ kelkaj jaroj al kelkaj amikoj niaj — historio, kiun
 
 povus kredi eĉ nura infano, sen malutili multe al si.
 
@@ -8006,9 +6066,7 @@ Tiu junulo primokis ilin ĉiujn kaj deziris, ke ni ripetu la farojn tiam kaj tie
 
 rakontis historiojn pri niaj unuaj provoj en la remada arto.
 
-Mia propra plej frua rememoro temas pri kvin el ni, kiuj kon-
-
-tribuis po tri pencojn por lui strange konstruitan boaton sur
+Mia propra plej frua rememoro temas pri kvin el ni, kiuj kontribuis po tri pencojn por lui strange konstruitan boaton sur
 
 la lago en Regent Park kaj poste sekigis nin en la dometo de
 
@@ -8016,9 +6074,7 @@ la parkgardisto.
 
 Post tio, akirinte guston por la akvo, mi tre multe flosis en
 
-diversaj suburbaj brikejoj — ekzercado, kiu donis pli da inte-
-
-reso kaj ekscito ol estus kredeble, precipe kiam vi estas meze de lageto kaj la posedanto de la materialoj, el kiuj estas konstruita la floso, subite aperas sur la bordo kun granda bastono en la mano.
+diversaj suburbaj brikejoj — ekzercado, kiu donis pli da intereso kaj ekscito ol estus kredeble, precipe kiam vi estas meze de lageto kaj la posedanto de la materialoj, el kiuj estas konstruita la floso, subite aperas sur la bordo kun granda bastono en la mano.
 
 Vidante tiun sinjoron vi unue iel sentas, ke vi ne havas la
 
@@ -8029,9 +6085,6 @@ estas do albordiĝi ĉe la flanko de la lageto kontraŭa al la flanko, kie li es
 paroli kun vi.
 
 ŝajnas, ke li konas vian patron kaj estas intima konato via,
-
-
-T R I V I RO J E N B OATO
 
 
 sed tio ne igas lin simpatia al vi. Li diras, ke li instruos al vi preni liajn tabulojn kaj fari el ili floson; tamen, ĉar estas evidente, ke vi jam sufiĉe bone scias fari tion, la propono ŝajnas superflua liaparte, kvankam sendube bonvole intencita, kaj vi
@@ -8046,9 +6099,7 @@ reen laŭlonge de la lageto, por ke li povu ĝustaloke vin saluti, kiam vi albor
 
 Se li estas korpulenta kaj spirmanka, vi facile povas eviti
 
-liajn amikigajn proponojn; tamen, kiam li estas juna kaj long-
-
-krura tipo, la renkonto ne estas evitebla. La intervjuo tamen
+liajn amikigajn proponojn; tamen, kiam li estas juna kaj longkrura tipo, la renkonto ne estas evitebla. La intervjuo tamen
 
 estas ekstreme mallonga, ĉar la plejparton de la interparolo
 
@@ -8056,13 +6107,9 @@ faras li, dum viaj rimarkoj estas pleje kriaj kaj unusilabaj kaj tuj kiam vi pov
 
 Mi dediĉis proksimume tri monatojn al flosado, kaj estante
 
-tiel sperta kiel estas necese en tiu branĉo de la arto, mi decidis entrepreni veran remadon kaj aliĝis al unu el la boatve-
+tiel sperta kiel estas necese en tiu branĉo de la arto, mi decidis entrepreni veran remadon kaj aliĝis al unu el la boatveturadaj kluboj ĉe la rivero Lea.
 
-turadaj kluboj ĉe la rivero Lea.
-
-Remi boaton sur la rivero Lea, precipe en sabataj posttag-
-
-mezoj, baldaŭ lertigas vin regi la boaton kaj vigle instruas al vi savi vin en kazo de renverso flanke de kruduloj aŭ subakviĝo de trenboatoj; tio donas ankaŭ multe da okazo por
+Remi boaton sur la rivero Lea, precipe en sabataj posttagmezoj, baldaŭ lertigas vin regi la boaton kaj vigle instruas al vi savi vin en kazo de renverso flanke de kruduloj aŭ subakviĝo de trenboatoj; tio donas ankaŭ multe da okazo por
 
 akiri la plej rapidan kaj gracian manieron kuŝiĝi plata ĉe la
 
@@ -8070,19 +6117,11 @@ fundo de la boato por eviti, ke preterpasantaj trenŝnuroj vin
 
 ĵetu en la riveron.
 
-Tamen stilon tio ne donas al vi. Nur kiam mi venis sur Ta-
-
-mizon, mi akiris stilon. Mian remadan stilon oni nun multe
+Tamen stilon tio ne donas al vi. Nur kiam mi venis sur Tamizon, mi akiris stilon. Mian remadan stilon oni nun multe
 
 admiras. Oni diras, ke ĝi estas kurioza.
 
-Georgo neniam proksimiĝis al la akvo antaŭ ol li estis dek-
-
-
-T R I V I RO J E N B OATO
-
-
-sesjara. Tiam li kaj ankoraŭ ok sinjoroj proksimume samjaraj
+Georgo neniam proksimiĝis al la akvo antaŭ ol li estis deksesjara. Tiam li kaj ankoraŭ ok sinjoroj proksimume samjaraj
 
 iris kune iun sabaton al Kew, kun la intenco tie lui boaton kaj remi al Richmond kaj reen; unu el ili, vilkapa junulo nomita
 
@@ -8092,9 +6131,7 @@ diris al ili, ke boatveturado estas gaja amuziĝo.
 
 La tajdo malflusis sufiĉe rapide, kiam ili alvenis al la kajeto, kaj forta vento blovis tra la rivero, tamen ilin tio ne ĝenis kaj ili elektis sian boaton.
 
-Estis tie okremila konkursa boato, kun elstarantaj remil-
-
-ingoj jam tirita sur la kajeton; plaĉis al ili nur tiu. Ili diris, ke tiun ili prenos. La boatisto forestis kaj nur lia knabo administris. La knabo penis senkuraĝigi ilin rilate al la remboato kaj montris al ili du-tri tre komfortaspektajn boatojn de la
+Estis tie okremila konkursa boato, kun elstarantaj remilingoj jam tirita sur la kajeton; plaĉis al ili nur tiu. Ili diris, ke tiun ili prenos. La boatisto forestis kaj nur lia knabo administris. La knabo penis senkuraĝigi ilin rilate al la remboato kaj montris al ili du-tri tre komfortaspektajn boatojn de la
 
 porfamilia tipo, sed ĉi tiujn ili tute ne deziris; la konkursboato estis la boato, en kiu, ili kredis, ili aspektos plej bone.
 
@@ -8116,17 +6153,9 @@ Ili diris, ke ili estas pretaj, kaj la knabo sur la kajeto prenis hokstangon kaj
 
 Kio tiam sekvis, tion Georgo ne povas rakonti detale. Li
 
-konfuze memoras, ke tuj post la ekiro li ricevis fortegan fra-
+konfuze memoras, ke tuj post la ekiro li ricevis fortegan frapon sur la dorso, donitan de tenilparto de la remilo de nume-
 
-
-T R I V I RO J E N B OATO
-
-
-pon sur la dorso, donitan de tenilparto de la remilo de nume-
-
-ro kvin, kaj samtempe lia propra benko ŝajne magie malape-
-
-ris sub li kaj lasis lin sidanta sur la tabuloj. Li ankaŭ rimarkis, kiel kuriozan cirkonstancon, ke numero du kuŝis en la sama
+ro kvin, kaj samtempe lia propra benko ŝajne magie malaperis sub li kaj lasis lin sidanta sur la tabuloj. Li ankaŭ rimarkis, kiel kuriozan cirkonstancon, ke numero du kuŝis en la sama
 
 momento sur la dorso ĉe la fundo de la boato, kun la kruroj
 
@@ -8159,9 +6188,6 @@ diras, ke por sin ekzerci li tion preferas. Mi ne. Mi memoras, ke lastsomere mi 
 antaŭ multaj jaroj mi ofte remis sur la maro kaj mi kredis, ke ĉio estos bona; sed mi trovis, ke la arton mi jam tute forgesis. Kiam unu remilo estas profunde en la akvo, la alia sovaĝe balanciĝas en la aero. Por puŝi la akvon per ambaŭ samtempe, mi devis stariĝi. La promenejo estis plena de nobeloj kaj
 
 
-T R I V I RO J E N B OATO
-
-
 sinjoroj kaj preter ili mi devis remi en ĉi tiu ridinda maniero.
 
 Mi surteriĝis duonvoje sur la marbordo kaj uzis la servon de
@@ -8178,13 +6204,9 @@ atingas kaj preterpasas, tio lin ne ĉagrenas; fakte ili ĉiuj lin atingas kaj p
 
 kontraŭ ambicio kaj memfiero.
 
-Simpla praktika remado de la irigu-la-boaton-antaŭen-
+Simpla praktika remado de la irigu-la-boaton-antaŭenspeco ne estas arto tre malfacile akirebla, sed la viro bezonas multe da ekzercado por senti sin senĝena, kiam li remas preter junulinoj. enas la novulon la ”takto”. — Estas rimarkin-
 
-speco ne estas arto tre malfacile akirebla, sed la viro bezonas multe da ekzercado por senti sin senĝena, kiam li remas preter junulinoj. enas la novulon la ”takto”. — Estas rimarkin-
-
-de, — li diras, kiam la dudekan fojon en kvin minutoj li ma-
-
-limplikas siajn remilojn de viaj; — mi fartas tre bone, kiam mi estas sola!
+de, — li diras, kiam la dudekan fojon en kvin minutoj li malimplikas siajn remilojn de viaj; — mi fartas tre bone, kiam mi estas sola!
 
 Rigardi du novulojn penantaj observi la takton unu kun la
 
@@ -8194,21 +6216,14 @@ kun la ĉefremanto, ĉar la ĉefremanto remas en maniero tre
 
 nekutima. ĉe tio, la ĉefremanto forte indignas kaj klarigas, ke dum la lastaj dek minutoj li penis nur adapti sian metodon al
 
-la limigita kapablo de la antaŭremanto. La antaŭremanto sia-
-
-vice tiam ofendiĝas kaj petas la ĉefremanton, ke li ne rompu
+la limigita kapablo de la antaŭremanto. La antaŭremanto siavice tiam ofendiĝas kaj petas la ĉefremanton, ke li ne rompu
 
 sian kapon pro li, sed streĉu la menson por fari prudentajn
 
 movojn.
 
 
-T R I V I RO J E N B OATO
-
-
-—Aŭ, ĉu mi estu la ĉefremanto? — li aldonas, kun la evi-
-
-denta ideo, ke tio tuj ordigos la tutan aferon.
+—Aŭ, ĉu mi estu la ĉefremanto? — li aldonas, kun la evidenta ideo, ke tio tuj ordigos la tutan aferon.
 
 Ili plaŭdas antaŭen ankoraŭ cent metrojn kun ankoraŭ ne
 
@@ -8228,9 +6243,7 @@ volonte helpas al la interŝanĝo. — Nun ĉio estos en ordo.
 
 Sed ne estas — eĉ ne tiam. La ĉefremanto devas nun etendi
 
-la brakojn preskaŭ ekster iliajn ingojn por atingi siajn remi-
-
-lojn; dum la paro de la antaŭremanto, ĉe ĉiu retiro, forte frapas lin en la brusto. Ili tial denove interŝanĝas kaj konkludas, ke la viro certe donis al ili la malĝustan remilaron; super sia komuna insultado kontraŭ ĉi tiu viro ili fariĝas tute amikemaj kaj simpatiaj.
+la brakojn preskaŭ ekster iliajn ingojn por atingi siajn remilojn; dum la paro de la antaŭremanto, ĉe ĉiu retiro, forte frapas lin en la brusto. Ili tial denove interŝanĝas kaj konkludas, ke la viro certe donis al ili la malĝustan remilaron; super sia komuna insultado kontraŭ ĉi tiu viro ili fariĝas tute amikemaj kaj simpatiaj.
 
 Georgo diris, ke ofte li forte deziris prametveturi por fari
 
@@ -8247,18 +6260,13 @@ ke estis rave rigardi lin. Jen li marŝis al la kapo de la prame-to por fiksi si
 Estus daŭre grandioze, se malfeliĉe, ĉirkaŭrigardante por
 
 
-T R I V I RO J E N B OATO
-
-
 ĝui la pejzaĝon, li ne estus irinta unu paŝon pli ol estis nece-se, kaj entute elpaŝis for de la prameto. La stango estis firme fiksita en la ŝlimo, kaj li restis alkroĉita al ĝi, dum la prameto naĝis for. Tio estis por li nedigna pozo. Malĝentila knabo
 
 sur la bordo tuj kriis al malrapidanta amiko, ke li rapidu por vidi ”veran simion sur bastono”.
 
 Mi ne povis iri helpi lin, ĉar malfeliĉe ni nin ne provizis
 
-antaŭzorge per anstataŭa stango. Mi povis nur sidi kaj rigardi 193
-
-T R I V I RO J E N B OATO
+antaŭzorge per anstataŭa stango. Mi povis nur sidi kaj rigardi
 
 
 lin. Lian mienon, dum la stango malrapide malleviĝis kun li,
@@ -8285,13 +6293,9 @@ fiŝkaptistoj. lli vidis min kuranta rekte al ili, kaj ili kriis, ke mi foriru.
 
 —Sed vi ne provas, — ili respondis.
 
-Alproksimiĝante mi klarigis al ili la aferon kaj ili min kap-
+Alproksimiĝante mi klarigis al ili la aferon kaj ili min kaptis kaj pruntedonis al mi stangon. La akvobariero estis nur
 
-tis kaj pruntedonis al mi stangon. La akvobariero estis nur
-
-kvindek metrojn malsupre. Mi estas feliĉa, ke ili hazarde es-
-
-tis tie.
+kvindek metrojn malsupre. Mi estas feliĉa, ke ili hazarde estis tie.
 
 La unuan fojon, kiam mi veturis per prameto, estis en la
 
@@ -8301,13 +6305,7 @@ Mi ne povis havigi prameton tiun posttagmezon, ili ĉiuj
 
 estis jam luitaj; mi do nenion povis fari, krom sidi sur la bor-do, rigardi la riveron kaj atendi miajn amikojn.
 
-Ne longe mi sidis tie, kiam mian atenton altiris viro en pra-
-
-
-T R I V I RO J E N B OATO
-
-
-meto, kiu, kiel mi rimarkis kun iom da surpriziĝo, surhavis
+Ne longe mi sidis tie, kiam mian atenton altiris viro en prameto, kiu, kiel mi rimarkis kun iom da surpriziĝo, surhavis
 
 jakon kaj ĉapon similaj al miaj. Li evidente estis novulo en
 
@@ -8317,17 +6315,11 @@ enmetis la stangon, vi neniam sciis, kio okazos; li evidente ne sciis mem. Kelkf
 
 La homoj apud la rivero post kelka tempo absorbiĝis en lin
 
-kaj vetis unu kun la alia, kian rezulton havos lia sekvonta pu-
+kaj vetis unu kun la alia, kian rezulton havos lia sekvonta puŝo.
 
-ŝo.
+Tiam miaj amikoj alvenis sur la alian flankon, haltis kaj ankaŭ rigardis lin. Lia dorso estis turnita al ili kaj ili vidis nur la jakon kaj ĉapon. El tio ili tuj konkludis, ke estas mi, ilia ŝata-ta kunulo, kiu faras el si spektaklon, kaj ilia ĝojo estis senli-ma. Ili komencis ŝercmoki lin senkompate.
 
-Tiam miaj amikoj alvenis sur la alian flankon, haltis kaj an-
-
-kaŭ rigardis lin. Lia dorso estis turnita al ili kaj ili vidis nur la jakon kaj ĉapon. El tio ili tuj konkludis, ke estas mi, ilia ŝata-ta kunulo, kiu faras el si spektaklon, kaj ilia ĝojo estis senli-ma. Ili komencis ŝercmoki lin senkompate.
-
-Unue mi ne perceptis ilian eraron kaj pensis, ”Kiel mal-
-
-ĝentile iliaparte tiel konduti, kaj kontraŭ iu tute fremda!” Sed antaŭ ol mi povis alvoki kaj admoni ilin, mi komprenis la aferon kaj kaŝis min malantaŭ arbo.
+Unue mi ne perceptis ilian eraron kaj pensis, ”Kiel malĝentile iliaparte tiel konduti, kaj kontraŭ iu tute fremda!” Sed antaŭ ol mi povis alvoki kaj admoni ilin, mi komprenis la aferon kaj kaŝis min malantaŭ arbo.
 
 Ho, kiel bone ili amuziĝis, mokridante tiun junulon! Tutajn
 
@@ -8335,18 +6327,12 @@ kvin minutojn ili staris tie, kriis al li maldecaĵojn, lin insultis, mokis, rid
 
 estis al li tute nekompreneblaj. Tiam, ĉar li ne plu povis elteni ilian brutalan mokadon, li sin turnis al ili kaj ili vidis lian vi-zaĝon.
 
-Mi rimarkis kun feliĉo, ke ili ankoraŭ havis sufiĉe da deco-
-
-sento por aspekti konfuzitaj. Ili klarigis al li, ke ili kredis, ke 195
-
-T R I V I RO J E N B OATO
+Mi rimarkis kun feliĉo, ke ili ankoraŭ havis sufiĉe da decosento por aspekti konfuzitaj. Ili klarigis al li, ke ili kredis, ke
 
 
 li estas konato ilia. Ili diris, ke ili esperas, ke li ne konsideros ilin kapablaj tiel insulti iun alian ol propran personan amikon.
 
-Kompreneble tio, ke ili erare prenis lin por amiko, ilin sen-
-
-kulpigis. Mi memoras, ke Harris foje rakontis al mi pri travi-
+Kompreneble tio, ke ili erare prenis lin por amiko, ilin senkulpigis. Mi memoras, ke Harris foje rakontis al mi pri travi-
 
 vaĵo, kiun li havis, dum li sin banis ĉe Bulonjo. ĉirkaŭnaĝante apud la marbordo, li subite sentis, ke iu lin prenas ĉe la nuko de malantaŭe kaj perforte puŝas sub la akvon. Li baraktis furioze, sed tiu, kiu lin tenis, ŝajnis kompleta Herkulo laŭ for-to kaj ĉiuj liaj penadoj sin savi estis vanaj. Li jam ĉesis piedbati kaj penis pensi pri solenaj aferoj, kiam la kaptinto lin liberigis.
 
@@ -8362,28 +6348,19 @@ por parenco, alie li verŝajne estus tute dronigita.
 
 Ankaŭ la velveturado postulas konon kaj ekzercadon —
 
-kvankam kiel knabo mi tion ne kredis. ŝajnis al mi, ke ĝi ve-
-
-nas nature al la homo, same kiel pilk- aŭ tuŝludado. Mi konis
+kvankam kiel knabo mi tion ne kredis. ŝajnis al mi, ke ĝi venas nature al la homo, same kiel pilk- aŭ tuŝludado. Mi konis
 
 alian knabon, kiu same havis ĉi tiun vidpunkton, kaj do iun
 
-ventoplenan tagon ni decidis provi tiun sporton. Tiam ni li-
-
-bertempis en Yarmouth kaj ni decidis, ke ni iros vojaĝi sur
+ventoplenan tagon ni decidis provi tiun sporton. Tiam ni libertempis en Yarmouth kaj ni decidis, ke ni iros vojaĝi sur
 
 Yare. Ni luis velboaton ĉe la boatejo apud la ponto kaj ekiris.
 
-—Estas iom ŝtorma tago, — la viro diris al ni, kiam ni ek-
-
-veturis: — prefere faldu unu refon kaj lofu, tuj kiam vi tra-
+—Estas iom ŝtorma tago, — la viro diris al ni, kiam ni ekveturis: — prefere faldu unu refon kaj lofu, tuj kiam vi tra-
 
 pasis la kurbon.
 
 Ni diris, ke tion ni nepre faros, kaj foriris de li kun gaja
-
-
-T R I V I RO J E N B OATO
 
 
 ”Bonan matenon” demandante al ni, kiel oni ”lofas”, kaj de
@@ -8394,29 +6371,21 @@ kie ni prenos ”refon” kaj kion ni faros per ĝi, kiam ni akiris
 
 Ni remis ĝis la urbo estis ekster nia vido kaj tiam, kun la
 
-vasta etendo de la akvo antaŭ ni kaj kun vento blovanta ura-
-
-gane super ĝi, ni sentis, ke jam venis la tempo por komenci
+vasta etendo de la akvo antaŭ ni kaj kun vento blovanta uragane super ĝi, ni sentis, ke jam venis la tempo por komenci
 
 la agadon.
 
 Hektoro — mi kredas, ke tio estis lia nomo — daŭrigis la
 
-remadon, dum mi malvolvis la velon. i ŝajnis komplika la-
+remadon, dum mi malvolvis la velon. i ŝajnis komplika laboro, sed fine mi faris ĝin, kaj tiam venis la demando, kiu fino estas la supra?
 
-boro, sed fine mi faris ĝin, kaj tiam venis la demando, kiu fino estas la supra?
-
-Per ia natura instinkto mi fine decidis, ke la malsupra es-
-
-tas la supra, kaj komencis fiksi ĝin renversita, kompreneble.
+Per ia natura instinkto mi fine decidis, ke la malsupra estas la supra, kaj komencis fiksi ĝin renversita, kompreneble.
 
 Pasis tamen longa tempo antaŭ ol ni povis starigi ĝin, en tiu
 
 aŭ alia maniero. La ideo en la menso de la velo estis, ke ni
 
-ludas enterigadon kaj ke mi estas la kadavro, kaj ĝi mem es-
-
-tas la mortkitelo.
+ludas enterigadon kaj ke mi estas la kadavro, kaj ĝi mem estas la mortkitelo.
 
 Trovinte, ke ĝi havas malĝustan ideon, ĝi frapis min sur la
 
@@ -8426,9 +6395,7 @@ kapo per la bumo, kaj ne volis fari ion plu.
 
 kaj malsekigu ĝin.
 
-Li diris, ke la homoj surŝipe ĉiam malsekigas la velojn an-
-
-taŭ ol ili starigas ilin. Mi do malsekigis ĝin; sed tio malbonigis la aferon pli ol antaŭe.
+Li diris, ke la homoj surŝipe ĉiam malsekigas la velojn antaŭ ol ili starigas ilin. Mi do malsekigis ĝin; sed tio malbonigis la aferon pli ol antaŭe.
 
 Seka velo alkroĉiĝanta al viaj kruroj kaj sin volvanta ĉirkaŭ
 
@@ -8443,28 +6410,19 @@ Fine ni starigis la malbenindaĵon, ni ambaŭ kune. Ni fiksis
 alligis ĝin al la masto per la ligŝnuro, kiun ni fortranĉis tiucele.
 
 
-T R I V I RO J E N B OATO
-
-
 Ke la boato ne renversiĝis, mi simple asertas kiel fakton.
 
 Kial ĝi ne renversiĝis, mi ne povas klarigi. De tiam mi tion
 
-multe pripensis, sed neniam sukcesis havi kontentigan klari-
-
-gon de la fenomeno.
+multe pripensis, sed neniam sukcesis havi kontentigan klarigon de la fenomeno.
 
 Eble la rezulton okazigis la natura kontraŭemo de ĉio en ĉi
 
 tiu mondo. Eble la boato konkludis, juĝante de la mallonga
 
-rigardo al nia konduto, ke tiun matenon ni eliris por nin mor-
+rigardo al nia konduto, ke tiun matenon ni eliris por nin mortigi, kaj decidis malhelpi nin. Jen la sola klarigo, kiun mi povas proponi.
 
-tigi, kaj decidis malhelpi nin. Jen la sola klarigo, kiun mi povas proponi.
-
-Timante morton, ni alkroĉis nin al la boatrando kaj tiama-
-
-niere ni povis apenaŭ resti en la boato, sed tio estis lacegiga laboro. Hektoro diris, ke piratoj kaj aliaj maristoj kutime ligas la direktilon al io aŭ alia kaj entiras la grandan velon dum severaj ventegoj, kaj li opiniis, ke ion similan ankaŭ ni devus provi; sed mi favoris tion, ke ni lasu la boaton iri laŭ la vento.
+Timante morton, ni alkroĉis nin al la boatrando kaj tiamaniere ni povis apenaŭ resti en la boato, sed tio estis lacegiga laboro. Hektoro diris, ke piratoj kaj aliaj maristoj kutime ligas la direktilon al io aŭ alia kaj entiras la grandan velon dum severaj ventegoj, kaj li opiniis, ke ion similan ankaŭ ni devus provi; sed mi favoris tion, ke ni lasu la boaton iri laŭ la vento.
 
 ĉar mia konsilo estis multe pli facile sekvebla, ĝin ni fine
 
@@ -8472,9 +6430,7 @@ alprenis kaj sukcesis ĉirkaŭbraki la boatrandon kaj lasis la
 
 boaton rapidi laŭvole.
 
-La boato veturis kontraŭ la fluo ĉirkaŭ unu mejlon kun ra-
-
-pideco, kun kiu neniam mi de tiam velveturis kaj neniam vo-
+La boato veturis kontraŭ la fluo ĉirkaŭ unu mejlon kun rapideco, kun kiu neniam mi de tiam velveturis kaj neniam vo-
 
 las ankoraŭfoje. Tiam ĉe kurbiĝoo ĝi kliniĝis flanken, ĝis la
 
@@ -8482,12 +6438,7 @@ duono de la velo estis sub la akvo. Mirakle ĝi rektiĝis kaj flugis al longa ma
 
 Tiu ŝlimaĵo nin savis. La boato plugis al si vojon ĝis la mezo kaj tie fiksiĝis. Trovinte, ke ankoraŭfoje ni povas moviĝi laŭ la propraj ideoj, anstataŭ esti rulataj kaj ĉirkaŭĵetataj kiel pizoj en veziko, ni rampis antaŭen kaj fortranĉis la velon.
 
-Ni jam havis sufiĉe da velveturado. Ni ne volis fari tro mul-
-
-te kaj tiel trosatiĝi. Ni havis velpromenon bonan, kompletan,
-
-
-T R I V I RO J E N B OATO
+Ni jam havis sufiĉe da velveturado. Ni ne volis fari tro multe kaj tiel trosatiĝi. Ni havis velpromenon bonan, kompletan,
 
 
 ekscitan, interesan velpromenon — kaj nun ni decidis, ke ni
@@ -8496,9 +6447,7 @@ remos, nur por fari ŝanĝon, vi komprenas.
 
 Ni prenis la remilojn kaj penis forpuŝi la boaton el la ŝlimo, kaj farante tion, ni rompis unu remilon. Post tio, ni agis pli singardeme, sed ili estis mizera malnova paro kaj la dua rompiĝis preskaŭ pli facile ol la unua kaj lasis nin senhelpaj.
 
-La ŝlimo etendiĝis ĉirkaŭ cent metrojn antaŭ ni kaj malan-
-
-taŭ ni estis akvo. La sola ebleco estis sidi kaj atendi, ĝis iu alproksimiĝos.
+La ŝlimo etendiĝis ĉirkaŭ cent metrojn antaŭ ni kaj malantaŭ ni estis akvo. La sola ebleco estis sidi kaj atendi, ĝis iu alproksimiĝos.
 
 Ne estis tago, kiu logas la homojn sur la riveron kaj pasis
 
@@ -8506,16 +6455,11 @@ tri horoj, antaŭ ol iu aperis. Tio estis maljuna fiŝkaptisto, kiu fine, kun tr
 
 Kunkalkulante la trinkmonon al la viro, kiu nin revenigis,
 
-pagon por la rompitaj remiloj kaj tion, ke ni estis en la boa-
-
-to kvar horojn kaj duonon, tiu velveturado kostis al ni la poŝ-
+pagon por la rompitaj remiloj kaj tion, ke ni estis en la boato kvar horojn kaj duonon, tiu velveturado kostis al ni la poŝ-
 
 monon de sufiĉe konsiderinda nombro da semajnoj. Sed ni
 
 akiris sperton, kaj oni diras, ke tio estas malmultekosta je ia ajn prezo.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro XVI
@@ -8530,9 +6474,7 @@ Iom banala historio — Streatley kaj Goring
 
 Ni vidis Reading ĉirkaŭ la dekunua. La rivero ĉi tie estas
 
-malpura kaj malhela. Oni ne malrapidas en la proksi-
-
-meco de Reading. La urbo mem estas fama malnova loko,
+malpura kaj malhela. Oni ne malrapidas en la proksimeco de Reading. La urbo mem estas fama malnova loko,
 
 datiĝanta de la malluma tempo de Reĝo Ethelred, kiam la
 
@@ -8542,36 +6484,24 @@ kaj lia frato Alfred batalis kontraŭ ili kaj venkis ilin; Ethelred preĝis kaj 
 
 ŝajnas, ke en pli malfruaj jaroj oni rigardis Reading kiel
 
-taŭgan vizitindan lokon, kiam fariĝis malagrable en Londo-
-
-no. La parlamento kutime kuregis al Reading ĉiufoje, kiam
+taŭgan vizitindan lokon, kiam fariĝis malagrable en Londono. La parlamento kutime kuregis al Reading ĉiufoje, kiam
 
 estis plago en Westminster; en 1625 la juristaro faris la samon kaj ĉiuj procesoj okazis en Reading. Sendube havi de tempo
 
-al tempo nuran ordinaran plagon en Londono valoris la pe-
+al tempo nuran ordinaran plagon en Londono valoris la penon, se tio forigis samtempe la juristojn kaj la parlamenton.
 
-non, se tio forigis samtempe la juristojn kaj la parlamenton.
-
-Dum la parlamenta milito Reading estis sieĝata de la gra-
-
-fo de Essex kaj kvaronan jarcenton poste la princo de Orango
+Dum la parlamenta milito Reading estis sieĝata de la grafo de Essex kaj kvaronan jarcenton poste la princo de Orango
 
 forpelis de tie la soldatojn de reĝo Jakobo.
 
-Henriko I estas enterigita en Reading, en la benedikta aba-
-
-tejo de li fondita tie, kies ruinoj estas ankoraŭ videblaj; en tiu 200
-
-T R I V I RO J E N B OATO
+Henriko I estas enterigita en Reading, en la benedikta abatejo de li fondita tie, kies ruinoj estas ankoraŭ videblaj; en tiu
 
 
 sama abatejo la granda Johano de Gaunt edziĝis al sinjorino
 
 Blanche.
 
-ĉe la kluzo de Reading ni flankiĝis al vaporŝalupo aparte-
-
-nanta al kelkaj amikoj niaj, kaj ili nin trenis ĝis ĉirkaŭ unu mejlo de Streatley. Estas tre agrable esti trenata de ŝalupo.
+ĉe la kluzo de Reading ni flankiĝis al vaporŝalupo apartenanta al kelkaj amikoj niaj, kaj ili nin trenis ĝis ĉirkaŭ unu mejlo de Streatley. Estas tre agrable esti trenata de ŝalupo.
 
 Tion mi preferas al la remado. La irado estus eĉ pli agrabla,
 
@@ -8585,13 +6515,9 @@ krevas via kaserolego, antaŭ ol ili sin ĝenos rapidi. Mi renver-sus unu-du el 
 
 Iom super Reading la rivero fariĝas tre bela. La fervojo ĝin
 
-malbonigas apud Tilehurst, sed de Mapledurham ĝis Streat-
+malbonigas apud Tilehurst, sed de Mapledurham ĝis Streatley ĝi estas belega. Iom super la kluzo de Mapledurham vi
 
-ley ĝi estas belega. Iom super la kluzo de Mapledurham vi
-
-preterpasas Hardwick House, kie Karlo I pilkruladis. La ĉir-
-
-kaŭaĵo de Pangbourne, kie staras la kurioza cignohoteleto,
+preterpasas Hardwick House, kie Karlo I pilkruladis. La ĉirkaŭaĵo de Pangbourne, kie staras la kurioza cignohoteleto,
 
 estas sendube same konata al la vizitantoj de artekspozicioj
 
@@ -8601,16 +6527,9 @@ La ŝalupo de miaj amikoj nin lasis iom sub la groto kaj tiam
 
 Harris volis argumenti, ke la vico remi estas mia. Tio ŝajnis al mi plej absurda. Ni interkonsentis en la mateno, ke mi venigu la boaton ĝis tri mejloj preter Reading. Nu, jen ni estis dek mejlojn preter Reading! Sendube nun denove estis ilia vico.
 
-Tamen mi povis igi nek Georgon nek Harris rigardi la afe-
+Tamen mi povis igi nek Georgon nek Harris rigardi la aferon laŭ la ĝusta vidpunkto; do, por ŝpari disputadon mi pre-
 
-ron laŭ la ĝusta vidpunkto; do, por ŝpari disputadon mi pre-
-
-nis la remilojn. Mi ankoraŭ ne remis unu minuton, kiam Ge-
-
-orgo rimarkis ion nigran flosanta sur la akvo kaj ni aliris ĝin.
-
-
-T R I V I RO J E N B OATO
+nis la remilojn. Mi ankoraŭ ne remis unu minuton, kiam Georgo rimarkis ion nigran flosanta sur la akvo kaj ni aliris ĝin.
 
 
 Je nia alproksimiĝo Georgo klinis sin antaŭen kaj prenis ĝin.
@@ -8639,14 +6558,9 @@ estis la malnova, malnova banala tragedio. ŝi amis kaj estis
 
 trompita — aŭ trompis sin. ĉiukaze, ŝi pekis — tion kelkaj el
 
-ni faras de tempo al tempo — kaj ŝiaj familio kaj amikoj, na-
-
-ture skandaliĝinte kaj indignante, fermis al ŝi siajn pordojn.
+ni faras de tempo al tempo — kaj ŝiaj familio kaj amikoj, nature skandaliĝinte kaj indignante, fermis al ŝi siajn pordojn.
 
 Lasita batali sola kontraŭ la mondo, kun muelŝtono de sia
-
-
-T R I V I RO J E N B OATO
 
 
 honto ĉirkaŭ la kolo, ŝi enabismiĝis pli kaj pli. Kelkan tempon ŝi nutris sin kaj la infanon per la dek du ŝilingoj ĉiusemajne, kiujn havigis al ŝi dek du horoj da sklavlaboro ĉiutage, pagis ses ŝilingojn el tio por la infano kaj kuntenis la proprajn korpon kaj animon per la resto.
@@ -8655,9 +6569,7 @@ Ses ŝilingoj ĉiusemajne ne kuntenas tre firme la korpon kaj
 
 animon. Havante inter ili nur tiel malfortan ligilon, ili deziras disiĝi unu de la alia; iun tagon, mi supozas, la doloro kaj enua monotoneco de ŝia vivo staris antaŭ ŝiaj okuloj pli klare ol
 
-ordinare kaj la mokanta fantomo ŝin timigis. ŝi la lastan fo-
-
-jon petis siajn amikojn, sed ĉe la malvarma muro de ilia res-
+ordinare kaj la mokanta fantomo ŝin timigis. ŝi la lastan fojon petis siajn amikojn, sed ĉe la malvarma muro de ilia res-
 
 pektindeco la voĉo de la pekinta elpelito falis ne atentita; tiam ŝi iris vidi sian infanon — tenis ĝin en la brakoj kaj kisis ĝin en laca, malvigla maniero kaj sen montri apartan emocion ŝi
 
@@ -8665,17 +6577,13 @@ metis en ĝian manon unupencan skatolon da ĉokolado, kiun
 
 ŝi aĉetis por ĝi, forlasis ĝin, kaj poste, per la restintaj kelkaj ŝilingoj, aĉetis bileton kaj alvenis al Goring.
 
-ŝajnis, ke la plej amaraj pensoj de ŝia vivo sendube cen-
-
-triĝis en la arbaretajn etendaĵojn kaj la helverdajn herbejojn en la ĉirkaŭeco de Goring: sed la virinoj strange premas la
+ŝajnis, ke la plej amaraj pensoj de ŝia vivo sendube centriĝis en la arbaretajn etendaĵojn kaj la helverdajn herbejojn en la ĉirkaŭeco de Goring: sed la virinoj strange premas la
 
 tranĉilon, kiu vundas ilin, kaj eble en la amarecon miksiĝis
 
 ankaŭ sunplenaj rememoroj de pli ĉarmaj horoj pasintaj sur
 
-tiu ombra akvo, super kiu la grandaj arboj klinas tiel malal-
-
-te siajn branĉojn.
+tiu ombra akvo, super kiu la grandaj arboj klinas tiel malalte siajn branĉojn.
 
 ŝi ĉirkaŭvagis la tutan tagon en la arbaretoj apud la rando
 
@@ -8686,18 +6594,13 @@ sternis sian malhelan robon sur la akvon, ŝi etendis la manojn al la silenta ri
 ŝian lacan kapon sur sian sinon kaj kvietigis la doloron.
 
 
-T R I V I RO J E N B OATO
-
-
 Tiel en ĉio ŝi pekis — pekis vivante kaj pekis mortante. Dio,
 
 helpu al ŝi! kaj al ĉiuj aliaj pekintoj, se estas ankoraŭ aliaj.
 
 Goring sur la maldekstra bordo kaj Streatley sur la dekstra
 
-estas ambaŭ kune aŭ aparte ĉarmaj lokoj por kelktaga resta-
-
-do. La etendaĵoj ĝis Pangbourne tentas al sunplena velvetu-
+estas ambaŭ kune aŭ aparte ĉarmaj lokoj por kelktaga restado. La etendaĵoj ĝis Pangbourne tentas al sunplena velvetu-
 
 rado aŭ subluna remado kaj la ĉirkaŭa kamparo estas plena
 
@@ -8724,9 +6627,6 @@ Goring tute ne estas tiel bela loketo por loĝado kiel Streatley, se vi povas el
 foriri sen pagi la hotelan fakturon.
 
 
-T R I V I RO J E N B OATO
-
-
 ĉapitro XVII
 
 Lavo-tago — Fiŝoj kaj fiŝkaptistoj — Pri la arto de fiŝkaptado —
@@ -8737,9 +6637,7 @@ En Streatley ni restis du tagojn, kaj lavigis niajn vestaĵojn. Ni antaŭe provi
 
 Georgo kaj tio fiaskis. i estis fakte pli ol fiasko, ĉar ni fartis pli malbone post nia lavado de vestaĵoj ol ni fartis antaŭe.
 
-Antaŭ ol ni lavis ilin, ili estis tre, tre malpuraj; sed ili estis porteblaj. Post kiam ni lavis ilin — nu, la rivero inter Reading kaj Henley estis pli pura post kiam ni lavis en ĝi niajn vesta-
-
-ĵojn ol ĝi estis antaŭe. La tutan malpuraĵon enhavatan de la
+Antaŭ ol ni lavis ilin, ili estis tre, tre malpuraj; sed ili estis porteblaj. Post kiam ni lavis ilin — nu, la rivero inter Reading kaj Henley estis pli pura post kiam ni lavis en ĝi niajn vestaĵojn ol ĝi estis antaŭe. La tutan malpuraĵon enhavatan de la
 
 rivero inter Reading kaj Henley ni kolektis dum tiu lavado kaj
 
@@ -8751,16 +6649,11 @@ Ni pagis la kalkulon, senvorte.
 
 La ĉirkaŭaĵo de Streatley kaj Goring estas granda fiŝkapta
 
-centro. Bonega fiŝkaptado estas tie havebla. La rivero abun-
-
-das tie de ezokoj, plotoj, leficiskoj, gobioj kaj angiloj; vi povas sidi kaj ĉasi ilin la tutan tagon.
+centro. Bonega fiŝkaptado estas tie havebla. La rivero abundas tie de ezokoj, plotoj, leficiskoj, gobioj kaj angiloj; vi povas sidi kaj ĉasi ilin la tutan tagon.
 
 Tion faras kelkaj homoj. Ili neniam kaptas ilin. Mi neniam
 
 aŭdis pri iu, kiu kaptis ion en Tamizo, krom foksenojn kaj
-
-
-T R I V I RO J E N B OATO
 
 
 mortintajn katojn, sed tio neniel rilatas al fiŝkaptado! La loka fiŝista gvidlibro diras eĉ ne vorton pri ia ajn kaptado. i diras nur, ke la loko estas ”bona situo por fiŝkaptado”; laŭ tio, kion mi vidis mem pri tiu ĉirkaŭaĵo, mi estas tute preta konfirmi tiun aserton.
@@ -8777,9 +6670,7 @@ Ezoketoj kaj perkoj eble estas tie. Efektive, mi scias kiel fakton, ke ili estas
 
 hokofino, nek per io simila — ne ili!
 
-Mi ne estas mem bona fiŝkaptisto. Iam mi dediĉis konsi-
-
-derindan kvanton da talento al la temo kaj progresis, kiel mi
+Mi ne estas mem bona fiŝkaptisto. Iam mi dediĉis konsiderindan kvanton da talento al la temo kaj progresis, kiel mi
 
 kredis, sufiĉe bone; sed la veteranoj diris al mi, ke neniam mi estos vere kompetenta en tio kaj konsilis, ke mi rezignu. Ili
 
@@ -8790,9 +6681,6 @@ Tamen ili estas certaj, ke bona fiŝkaptisto mi neniam estos. Mi ne havas sufiĉ
 Ili diris, ke kiel poeto, aŭ romanverkanto, aŭ raportisto, aŭ
 
 io simila, mi eble estus kontentiga, sed por atingi rangon de
-
-
-T R I V I RO J E N B OATO
 
 
 tamiza fiŝkaptisto, mi bezonus pli da fantazio, pli da eltrove-mo ol mi ŝajnas posedi.
@@ -8809,31 +6697,23 @@ beligaj tuŝoj de probablo, en la ĝenerala ŝajno de skrupula
 
 preskaŭ tedanta vero, tie montriĝas la sperta fiŝkaptisto.
 
-Iu ajn povas eniri kaj diri: ”Ho, mi kaptis dek kvin dekdu-
-
-ojn da perkoj hieraŭ vespere”; aŭ ”Lastlunde mi surterigis
+Iu ajn povas eniri kaj diri: ”Ho, mi kaptis dek kvin dekduojn da perkoj hieraŭ vespere”; aŭ ”Lastlunde mi surterigis
 
 gobion pezanta dek ok funtojn, kaj havanta unu metron da
 
 longo de la kapo ĝis la vosto”.
 
-Por tio ne estas bezonata iu arto, iu lerto. i montras ku-
-
-raĝon, sed nenion pli.
+Por tio ne estas bezonata iu arto, iu lerto. i montras kuraĝon, sed nenion pli.
 
 Ne; via sperta fiŝkaptisto hontus mensogi tiamaniere. Lia
 
 metodo en si mem meritas studon.
 
-Li eniras kviete, kun la ĉapelo ankoraŭ sur la kapo, alpro-
-
-prigas la plej komfortan seĝon, bruligas pipon kaj ekfumas,
+Li eniras kviete, kun la ĉapelo ankoraŭ sur la kapo, alproprigas la plej komfortan seĝon, bruligas pipon kaj ekfumas,
 
 silente. Li permesas al la junuloj fanfaronadi kelkan tempon
 
-kaj tiam, dum momenta silento, li deprenas la pipon el la bu-
-
-ŝo kaj eldiras, frapante la pipon al la fajrujo por eligi la cin-dron:
+kaj tiam, dum momenta silento, li deprenas la pipon el la buŝo kaj eldiras, frapante la pipon al la fajrujo por eligi la cin-dron:
 
 —Nu, marde vespere mi havis tian kaptaĵon, pri kiu paroli
 
@@ -8841,20 +6721,14 @@ ne multe utilas.
 
 —Ho! kial do? — ili demandas.
 
-—Tial, ke mi ne atendas, ke iu min kredus, eĉ se mi paro-
-
-lus, — respondas la maljunulo trankvile, sen eĉ nuanco de
+—Tial, ke mi ne atendas, ke iu min kredus, eĉ se mi parolus, — respondas la maljunulo trankvile, sen eĉ nuanco de
 
 amaro en sia tono, replenigas la pipon kaj petas la trinkejestron alporti tri glasetojn da skota viskio, malvarma.
 
-Post tio sekvas paŭzo, ĉar neniu estas sufiĉe certa pri si por 207
-
-T R I V I RO J E N B OATO
+Post tio sekvas paŭzo, ĉar neniu estas sufiĉe certa pri si por
 
 
-kontraŭdiri la maljunan sinjoron. Li devas do repreni la pa-
-
-rolon mem, sen kuraĝigo.
+kontraŭdiri la maljunan sinjoron. Li devas do repreni la parolon mem, sen kuraĝigo.
 
 —Ne, — li daŭrigas penseme; — mi tion ne kredus mem, se
 
@@ -8862,15 +6736,11 @@ iu rakontus al mi, tamen malgraŭ tio, tio estas fakto. Mi jam
 
 sidis tie la tutan posttagmezon kaj kaptis laŭlitere nenion
 
-krom kelkdekon da leŭciskoj kaj ezoketoj; mi ĝuste volis re-
-
-zigni, kiam subite mi sentis sufiĉe fortan tiron ĉe la ŝnureto.
+krom kelkdekon da leŭciskoj kaj ezoketoj; mi ĝuste volis rezigni, kiam subite mi sentis sufiĉe fortan tiron ĉe la ŝnureto.
 
 Mi kredis, ke venas ankoraŭ etulo kaj mi penis ĝin altiri. Pendigu min, se mi povis movi la kanon! Mi bezonis duonhoron
 
-— duonhoron, sinjoro! — por alterigi tiun fiŝon; ĉiumomen-
-
-te mi kredis, ke la ŝnureto tuj rompiĝos! Fine mi ĝin eligis kaj kion vi pensas, ke ĝi estis? Sturgo! kvardekfunta sturgo! kaptita per ŝnureto, sinjoro! Jes, ne mirinde, ke vi aspektas surprizita — mi prenos ankoraŭ tri da skota, trinkejestro, mi pe-
+— duonhoron, sinjoro! — por alterigi tiun fiŝon; ĉiumomente mi kredis, ke la ŝnureto tuj rompiĝos! Fine mi ĝin eligis kaj kion vi pensas, ke ĝi estis? Sturgo! kvardekfunta sturgo! kaptita per ŝnureto, sinjoro! Jes, ne mirinde, ke vi aspektas surprizita — mi prenos ankoraŭ tri da skota, trinkejestro, mi pe-
 
 tas.
 
@@ -8886,21 +6756,13 @@ la aŭskultado de rakontoj de la ĉi tieaj fiŝistoj kelkfoje ne malutilas al li
 
 —Ho, ne; ne nun, sinjoro. En la unua tempo ĝi min iom
 
-ŝancelis, tamen, Dio vin benu! nun la edzino kaj mi aŭskul-
-
-tas ilin la tutan tagon. Oni alkutimiĝas, vi scias. Oni alkuti-miĝas.
+ŝancelis, tamen, Dio vin benu! nun la edzino kaj mi aŭskultas ilin la tutan tagon. Oni alkutimiĝas, vi scias. Oni alkuti-miĝas.
 
 Iam mi konis junulon, li estis ulo tre konscienca, kaj kiam
 
 li komencis fiŝkapti, li nepre intencis neniam troigi siajn kap-taĵojn je pli ol dudek kvin procentoj.
 
-—Kiam mi kaptos kvardek fiŝojn, — li diris, — tiam mi ra-
-
-
-T R I V I RO J E N B OATO
-
-
-kontos al la homoj, ke mi kaptis kvindek kaj ne pli. Sed pli ol tiom mi ne mensogos, ĉar mensogi estas peko.
+—Kiam mi kaptos kvardek fiŝojn, — li diris, — tiam mi rakontos al la homoj, ke mi kaptis kvindek kaj ne pli. Sed pli ol tiom mi ne mensogos, ĉar mensogi estas peko.
 
 Sed la plano pri la dudek kvin procentoj funkciis ne tute
 
@@ -8908,9 +6770,7 @@ bone. Li neniam povis uzi ĝin. La plej granda nombro da fiŝoj, kiun li iam kap
 
 Li do plaĝis sian procenton ĝis tridek tri kaj unu triono, sed ankaŭ tio estis maloportuna, kiam li kaptis nur unu aŭ du; do, por simpligi la aferon, li decidis nur duobligi la kvanton.
 
-Li sin tenis al tiu aranĝo dum du monatoj kaj tiam ekmal-
-
-kontentis pri ĝi. Neniu kredis lin, kiam li diris, ke li nur duobligis, tial li gajnis per tio nenian krediton, dum pro sia mo-dero li havis malavantaĝon inter aliaj fiŝkaptistoj. Kiam li fakte kaptis tri malgrandajn fiŝojn kaj diris, ke li kaptis ses, li fariĝis tute ĵaluza, aŭdante viron, kiu kaptis nur unu, kiel li fakte sciis, disbrui, ke li alterigis du dekduojn.
+Li sin tenis al tiu aranĝo dum du monatoj kaj tiam ekmalkontentis pri ĝi. Neniu kredis lin, kiam li diris, ke li nur duobligis, tial li gajnis per tio nenian krediton, dum pro sia mo-dero li havis malavantaĝon inter aliaj fiŝkaptistoj. Kiam li fakte kaptis tri malgrandajn fiŝojn kaj diris, ke li kaptis ses, li fariĝis tute ĵaluza, aŭdante viron, kiu kaptis nur unu, kiel li fakte sciis, disbrui, ke li alterigis du dekduojn.
 
 Li do faris kun si finan aranĝon, al kiu li de tiam pie sin
 
@@ -8922,16 +6782,9 @@ dum du fiŝoj kalkuliĝus kiel tridek, tri kvardek, kaj tiel plu.
 
 i estas plano simpla kaj facile funkciebla, kaj en la lasta
 
-tempo oni priparolis ĝian eventualan uzon flanke de la fiŝ-
+tempo oni priparolis ĝian eventualan uzon flanke de la fiŝkaptistaro ĝenerale. Fakte, antaŭ du jaroj ĝian alprenon reko-
 
-kaptistaro ĝenerale. Fakte, antaŭ du jaroj ĝian alprenon reko-
-
-mendis la komitato de la Tamiza Fiŝkaptista Asocio, sed kel-
-
-kaj el la pli malnovaj anoj kontraŭstaris. Ili diris, ke la ideon ili konsideros, se la nombro estos duobligita kaj ĉiu fiŝo kalkuliĝos kiel dudek.
-
-
-T R I V I RO J E N B OATO
+mendis la komitato de la Tamiza Fiŝkaptista Asocio, sed kelkaj el la pli malnovaj anoj kontraŭstaris. Ili diris, ke la ideon ili konsideros, se la nombro estos duobligita kaj ĉiu fiŝo kalkuliĝos kiel dudek.
 
 
 Se iam sur la rivero vi havos liberan vesperon, mi konsilus
@@ -8948,9 +6801,7 @@ pipargilo kaj de tiam ni ne vidis lin — Georgo kaj mi, do, kaj la hundo, lasit
 
 iom da ripozo kaj aliaj aferoj.
 
-Ni eniris la saloneton kaj sidiĝis. Estis tie maljunulo, fu-
-
-manta longan argilan pipon, kaj nature ni komencis interba-
+Ni eniris la saloneton kaj sidiĝis. Estis tie maljunulo, fumanta longan argilan pipon, kaj nature ni komencis interba-
 
 bili.
 
@@ -8979,18 +6830,11 @@ mia rigardo, — bela ulo tiu estas, ĉu ne?
 maljunulon, kiom, laŭ lia kredo, ĝi pezas.
 
 
-T R I V I RO J E N B OATO
-
-
 —Dek ok funtojn ses uncojn, — diris nia amiko, leviĝante
 
-kaj deprenante sian palton. — Jes, — li daŭriĝis, — estis an-
+kaj deprenante sian palton. — Jes, — li daŭriĝis, — estis antaŭ dek ses jaroj, la trian de la venonta monato, kiam mi ĝin
 
-taŭ dek ses jaroj, la trian de la venonta monato, kiam mi ĝin
-
-alterigis. Mi ĝin kaptis ĝuste malsupre de la ponto per fokse-
-
-no. Oni informis min, ke ĝi estas en la rivero, kaj mi diris, ke mi nepre havos ĝin kaj mi havis. Oni nun ne vidas multe da
+alterigis. Mi ĝin kaptis ĝuste malsupre de la ponto per fokseno. Oni informis min, ke ĝi estas en la rivero, kaj mi diris, ke mi nepre havos ĝin kaj mi havis. Oni nun ne vidas multe da
 
 fiŝoj de tia grando en ĉi tiu ĉirkaŭaĵo, laŭ mia opinio. Bonan nokton, sinjoroj, bonan nokton.
 
@@ -9010,13 +6854,9 @@ li.
 
 poste, preninte tiron el sia biero, li aldonis, eble vi ne estis ĉi tie, sinjoro, kiam tiu fiŝo estis kaptita?
 
-—Ne, — ni informis lin. — Ni estas fremduloj en la ĉirkaŭ-
+—Ne, — ni informis lin. — Ni estas fremduloj en la ĉirkaŭaĵo.
 
-aĵo.
-
-—Ha! — diris la transportisto, — vi do, kompreneble, cer-
-
-te ne estis. Estis antaŭ preskaŭ kvin jaroj, ke mi kaptis tiun truton.
+—Ha! — diris la transportisto, — vi do, kompreneble, certe ne estis. Estis antaŭ preskaŭ kvin jaroj, ke mi kaptis tiun truton.
 
 —Ho! ĉu estis vi, do, kiu ĝin kaptis? — mi diris.
 
@@ -9026,13 +6866,7 @@ kaptis ĝuste malsupre de la kluzo — almenaŭ kie estis tiam la
 
 kluzo — iun vendredan posttagmezon kaj la rimarkindo en la
 
-afero estas, ke mi ĝin kaptis per muŝo. Mi eliris por kapti ezo-kojn, Dio vin benu! eĉ ne pensante pri truto, kaj kiam mi vi-
-
-
-T R I V I RO J E N B OATO
-
-
-dis la grandegulon sur mia ŝnurfino, mi estu benata, se mi ne
+afero estas, ke mi ĝin kaptis per muŝo. Mi eliris por kapti ezo-kojn, Dio vin benu! eĉ ne pensante pri truto, kaj kiam mi vidis la grandegulon sur mia ŝnurfino, mi estu benata, se mi ne
 
 estis tute surprizita. Nu, vi vidas, li pezis dudek ses funtojn.
 
@@ -9062,15 +6896,11 @@ Ni diris, ke neniu informis nin, sed iel ni sentis instinkte,
 
 ke estas li, kiu tion faris.
 
-—Nu, tio estas plej rimarkinda — plej rimarkinda, — re-
-
-spondis la flegma nekonato, ridante — ĉar fakte vi estas tute
+—Nu, tio estas plej rimarkinda — plej rimarkinda, — respondis la flegma nekonato, ridante — ĉar fakte vi estas tute
 
 pravaj. Mi kaptis ĝin. Sed imagu tion, ke vi tiel divenis. Dio min benu! tio estas plej rimarkinda.
 
-Tiam li parolis plu, kaj informis nin, kiel li bezonis duon-
-
-horon por alterigi ĝin, kiel ĝi rompis lian fiŝkanon. Li diris, ke li zorge pesis ĝin, kiam li alvenis hejmen, kaj ĝi klinis la pe-silon je tridek kvar funtoj.
+Tiam li parolis plu, kaj informis nin, kiel li bezonis duonhoron por alterigi ĝin, kiel ĝi rompis lian fiŝkanon. Li diris, ke li zorge pesis ĝin, kiam li alvenis hejmen, kaj ĝi klinis la pe-silon je tridek kvar funtoj.
 
 Li foriris siavice, kaj kiam li estis for, la estro eniris al ni. Ni informis lin pri la diversaj historioj, kiujn ni aŭdis pri la truto, kaj li treege amuziĝis, kaj ni ĉiuj ridis tre gaje.
 
@@ -9079,18 +6909,11 @@ Li foriris siavice, kaj kiam li estis for, la estro eniris al ni. Ni informis li
 la maljuna Billy Maunders ĉiuj diris al vi, ke ili kaptis ĝin. Ha!
 
 
-T R I V I RO J E N B OATO
-
-
 ha! ha! Nu, tio estas bona, — diris la honesta maljunulo, gaje ridante. — Jes, ili estas la tipo kiu donus ĝin al mi, por meti en mian saloneton, se ili estus ĝin kaptintaj, jes ! Ha! ha! ha!
 
-Tiam li rakontis al ni la veran historion pri la fiŝo. ŝajnis, ke la fiŝon kaptis li mem, antaŭ multaj jaroj, kiam li estis nur knabo; ne per ia arto aŭ lerto, sed per tiu neklarigebla bon-
+Tiam li rakontis al ni la veran historion pri la fiŝo. ŝajnis, ke la fiŝon kaptis li mem, antaŭ multaj jaroj, kiam li estis nur knabo; ne per ia arto aŭ lerto, sed per tiu neklarigebla bonŝanco, kiu ŝajne ĉiam atendas knabon, kiam li forvagas de la
 
-ŝanco, kiu ŝajne ĉiam atendas knabon, kiam li forvagas de la
-
-lernejo kaj iras ĉasi en sunplena posttagmezo, kun ŝnurpece-
-
-to ligita al finaĵo de arbo.
+lernejo kaj iras ĉasi en sunplena posttagmezo, kun ŝnurpeceto ligita al finaĵo de arbo.
 
 Li diris, ke la alporto hejmen de tiu truto lin savis de batoj, kaj ke eĉ lia instruisto diris, ke ĝi valoris la tri-regulon kaj la ekzercadon kune.
 
@@ -9108,36 +6931,20 @@ Tiam la seĝo ŝoviĝis kaj por sin savi Georgo subite prenis
 
 la trutkeston, kiu falis kun krakego, kaj sur ĝin venis Georgo kaj la seĝo.
 
-—Vi ne difektis la fiŝon, ĉu — mi kriis kun timo, alkuran-
+—Vi ne difektis la fiŝon, ĉu — mi kriis kun timo, alkurante.
 
-te.
-
-—Mi esperas, ke ne, — Georgo diris kaj leviĝis singarde ri-
-
-gardante ĉirkaŭ si.
+—Mi esperas, ke ne, — Georgo diris kaj leviĝis singarde rigardante ĉirkaŭ si.
 
 Sed li difektis. Tiu truto kuŝis frakasita en mil pecojn — mi
 
-diras mil, tamen povas esti, ke estis nur naŭcent. Mi ne nom-
+diras mil, tamen povas esti, ke estis nur naŭcent. Mi ne nombris ilin.
 
-bris ilin.
-
-Ni opiniis, ke estas strange kaj ne klarigeble, ke pajloŝto-
-
-pita truto tiel frakasiĝis.
+Ni opiniis, ke estas strange kaj ne klarigeble, ke pajloŝtopita truto tiel frakasiĝis.
 
 
-T R I V I RO J E N B OATO
-
-
-Ja estus strange kaj ne klarigeble, se ĝi estus estinta pajloŝ-
-
-topita truto, sed ĝi ne estis.
+Ja estus strange kaj ne klarigeble, se ĝi estus estinta pajloŝtopita truto, sed ĝi ne estis.
 
 Tiu truto estis el gipso.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro XVIII
@@ -9154,9 +6961,7 @@ Ni foriris de Streatley frue en la sekvanta mateno, remis
 
 ĝis Culham kaj dormis sub kanvaso en la flankakvo tie.
 
-La rivero ne estas speciale interesa inter Streatley kaj Wal-
-
-lingford. De Cleve vi havas etendaĵon de ses kaj duona mej-
+La rivero ne estas speciale interesa inter Streatley kaj Wallingford. De Cleve vi havas etendaĵon de ses kaj duona mej-
 
 loj sen kluzo. Mi kredas, ke tio estas la plej longa kontinua
 
@@ -9164,15 +6969,11 @@ etendaĵo ie super Teddington kaj la Oksforda klubo ĝin uzas
 
 por ekzerca remado.
 
-Kiel ajn kontentiga ĉi tiu foresto de kluzoj estas por la re-
-
-muloj, ĝi tamen estas bedaŭrindaĵo por la nura plezurserĉan-
+Kiel ajn kontentiga ĉi tiu foresto de kluzoj estas por la remuloj, ĝi tamen estas bedaŭrindaĵo por la nura plezurserĉan-
 
 to.
 
-Rilate min, mi ŝatetas kluzojn. Ili agrable rompas la unu-
-
-tonecon de la remado. Mi ŝatas sidi en boato kaj malrapide
+Rilate min, mi ŝatetas kluzojn. Ili agrable rompas la unutonecon de la remado. Mi ŝatas sidi en boato kaj malrapide
 
 leviĝi el la malvarmetaj profundoj en novajn etendaĵojn kaj
 
@@ -9187,12 +6988,7 @@ strio de taglumo inter ili larĝiĝas, ĝis la bela ridetanta rivero
 (Noto de la aŭtoro.)
 
 
-T R I V I RO J E N B OATO
-
-
-kuŝas plene antaŭ vi kaj vi puŝas vian boateton el ĝia mal-
-
-longatempa malliberejo antaŭen, denove sur la bonvenigan
+kuŝas plene antaŭ vi kaj vi puŝas vian boateton el ĝia mallongatempa malliberejo antaŭen, denove sur la bonvenigan
 
 akvon.
 
@@ -9202,9 +6998,7 @@ estas agrablaj homoj por interbabilo, dum vi preterpasas. Tie
 
 vi renkontas aliajn boatojn, kaj oni interklaĉas pri riveraj aferoj. La Tamizo ne estus tia feinejo, kia ĝi estas, sen siaj flor-vestitaj kluzoj.
 
-Parolante pri kluzoj, mi memoras pri akcidento, kiu pre-
-
-skaŭ trafis Georgon kaj min iun someran matenon ĉe Hamp-
+Parolante pri kluzoj, mi memoras pri akcidento, kiu preskaŭ trafis Georgon kaj min iun someran matenon ĉe Hamp-
 
 ton Court.
 
@@ -9212,9 +7006,7 @@ Estis belega tago kaj la kluzo estis plenplena; kiel kutime
 
 okazas ĉe la rivero, spekulacia fotisto estis fotanta nin ĉiujn, dum ni kuŝis sur la leviĝanta akvo.
 
-Unue mi ne komprenis, kio okazas, kaj mi estis treege sur-
-
-prizita, kiam mi rimarkis Georgon rapide glatigi la pantalo-
+Unue mi ne komprenis, kio okazas, kaj mi estis treege surprizita, kiam mi rimarkis Georgon rapide glatigi la pantalo-
 
 non, ĉifi la harojn kaj surmeti la ĉapon diboĉule sur la malan-taŭon de la kapo, kaj tiam alpreni mienon de kunmiksitaj
 
@@ -9231,24 +7023,15 @@ ili aspektis ĉarmaj! ĉiuj viroj sulkigis la brovojn, kaj aspektis severaj kaj 
 Tiam fine la vero kaptis mian menson kaj mi demandis
 
 
-T R I V I RO J E N B OATO
-
-
-min, ĉu mi estos ĝustatempa. Nia estis la unua boato kaj es-
-
-tos malafable miaparte malbonigi la foton, mi pensis.
+min, ĉu mi estos ĝustatempa. Nia estis la unua boato kaj estos malafable miaparte malbonigi la foton, mi pensis.
 
 Tial mi min rapide turnis kaj min lokigis en la antaŭon, kie
 
-mi min apogis kun senzorga gracio sur la alkroĉigilon, en po-
-
-zo sugestanta viglon kaj forton. Mi aranĝis la harojn kun
+mi min apogis kun senzorga gracio sur la alkroĉigilon, en pozo sugestanta viglon kaj forton. Mi aranĝis la harojn kun
 
 buklo super la frunto kaj prenis sur la vizaĝon mienon de
 
-milda sopiro miksita kun iometa cinikeco, kio laŭdire konve-
-
-nas al mi.
+milda sopiro miksita kun iometa cinikeco, kio laŭdire konvenas al mi.
 
 Dum ni staris kaj atendis la gravan momenton, mi aŭdis
 
@@ -9258,9 +7041,7 @@ iun malantaŭe krii:
 
 Mi ne povis min turni por vidi, kio okazas, kaj kies nazon
 
-oni devas rigardi. Mi ŝtele rigardis flanken al la nazo de Ge-
-
-orgo! i estis en ordo — almenaŭ ĝi havis nenian malbona-
+oni devas rigardi. Mi ŝtele rigardis flanken al la nazo de Georgo! i estis en ordo — almenaŭ ĝi havis nenian malbona-
 
 ĵon, kiun oni povus aliigi. Mi strabis malsupren al la propra, kaj ankaŭ tio ŝajnis ĉio, kion oni povis esperi.
 
@@ -9270,13 +7051,9 @@ de la sama voĉo, pli laŭte.
 
 Tiam alia voĉo kriis:
 
-—Elpuŝu vian nazon, ĉu vi ne povas, vi, vi du kun la hun-
+—Elpuŝu vian nazon, ĉu vi ne povas, vi, vi du kun la hundo.
 
-do.
-
-Nek Georgo nek mi kuraĝis nin turni. La mano de la foti-
-
-sto estis jam sur la lensokovrilo, kaj iun ajn momenton la bil-do povis esti farita. ĉu al ni ili vokas? Kio estas al niaj nazoj?
+Nek Georgo nek mi kuraĝis nin turni. La mano de la fotisto estis jam sur la lensokovrilo, kaj iun ajn momenton la bil-do povis esti farita. ĉu al ni ili vokas? Kio estas al niaj nazoj?
 
 Kial ili estu elpuŝataj?
 
@@ -9284,19 +7061,12 @@ Sed jam la tuta kluzo komencis krii kaj sonorega voĉo kriis
 
 el la malantaŭo:
 
-—Rigardu vian boaton, sinjoro; vi en la ruĝa kaj nigra ĉa-
-
-poj. Estas viaj du kadavroj, kiuj estos sur tiu foto, se vi ne rapidas.
-
-
-T R I V I RO J E N B OATO
+—Rigardu vian boaton, sinjoro; vi en la ruĝa kaj nigra ĉapoj. Estas viaj du kadavroj, kiuj estos sur tiu foto, se vi ne rapidas.
 
 
 Tiam ni rigardis kaj vidis, ke la nazo de la boato fiksiĝis sub la lignaĵo de la kluzo, dum la eniranta akvo leviĝis tute ĉirkaŭ
 
-ĝi kaj klinis ĝin supren. Post ankoraŭ momento ni estus ren-
-
-versitaj. Fulmrapide ĉiu el ni prenis remilon kaj forta bato al la flanko de la kluzo per ĝia malantaŭo liberigis la boaton kaj nin sternis sur la dorson.
+ĝi kaj klinis ĝin supren. Post ankoraŭ momento ni estus renversitaj. Fulmrapide ĉiu el ni prenis remilon kaj forta bato al la flanko de la kluzo per ĝia malantaŭo liberigis la boaton kaj nin sternis sur la dorson.
 
 Ni ne riveliĝis bone sur tiu foto, Georgo kaj mi. Kiel oni
 
@@ -9320,31 +7090,19 @@ Malantaŭ ili oni duonvidis la aliajn boatojn kaj pecojn de la
 
 La posedanto de unu vaporŝalupo, kiu antaŭmendis ses
 
-ekzemplerojn, nuligis la mendon tuj kiam li vidis la negati-
-
-von. Li diris, ke li prenos ilin, se iu povos montri al li lian ŝalu-pon, sed neniu povis. i estis ie malantaŭ la dekstra piedo de Georgo.
+ekzemplerojn, nuligis la mendon tuj kiam li vidis la negativon. Li diris, ke li prenos ilin, se iu povos montri al li lian ŝalu-pon, sed neniu povis. i estis ie malantaŭ la dekstra piedo de Georgo.
 
 Sekvis multaj malagrablaĵoj. La fotisto opiniis, ke ĉiu el ni
 
 devus aĉeti dek du ekzemplerojn, ĉar ni estas naŭ dekonoj de
 
-la foto, sed ni malakceptis. Ni diris, ke ni havas nenion kon-
+la foto, sed ni malakceptis. Ni diris, ke ni havas nenion kontraŭ tio, ke oni nin fotu en nia tuta longo, tamen ni preferus esti fotataj en nia normala teniĝo.
 
-traŭ tio, ke oni nin fotu en nia tuta longo, tamen ni preferus esti fotataj en nia normala teniĝo.
-
-Wallingford, ses mejlojn supre de Streatley, estas tre anti-
-
-
-T R I V I RO J E N B OATO
-
-
-kva urbo kaj estis aktiva centro por la farado de la angla historio. i estis kruda, kotkonstruita urbo en la tempo de la
+Wallingford, ses mejlojn supre de Streatley, estas tre antikva urbo kaj estis aktiva centro por la farado de la angla historio. i estis kruda, kotkonstruita urbo en la tempo de la
 
 britoj, kiuj loĝis tie ĝis la romiaj legioj forpelis ilin; anstataŭis iliajn murojn el bakita argilo per grandaj fortikaĵoj, kies post-signojn la tempo ankoraŭ ne sukcesis forbalai, tiel bone sciis konstrui tiuj antikvaj masonistoj.
 
-Sed la tempo, kvankam ĝi haltis antaŭ la romiaj muroj, ta-
-
-men baldaŭ polvigis la romianojn; sur la tero, en postaj jaroj, interbatalis sovaĝaj saksoj kaj grandegaj danoj ĝis venis la
+Sed la tempo, kvankam ĝi haltis antaŭ la romiaj muroj, tamen baldaŭ polvigis la romianojn; sur la tero, en postaj jaroj, interbatalis sovaĝaj saksoj kaj grandegaj danoj ĝis venis la
 
 normandoj.
 
@@ -9372,39 +7130,25 @@ brita tempo; tiam ĝi nomiĝis Caer Doren, ”La civito sur la
 
 akvo”. Poste la romianoj starigis tie grandan tendejon kaj la
 
-fortikaĵoj, kiuj ĝin ĉirkaŭis, ŝajnas nun malaltaj, egalaj montetoj. En la saksa tempo ĝi estis la ĉefurbo de Wessex. i es-
-
-tas tre malnova kaj iam estis tre forta kaj granda. Nun ĝi si-
+fortikaĵoj, kiuj ĝin ĉirkaŭis, ŝajnas nun malaltaj, egalaj montetoj. En la saksa tempo ĝi estis la ĉefurbo de Wessex. i estas tre malnova kaj iam estis tre forta kaj granda. Nun ĝi si-
 
 das, deflankiĝinta de la moviĝanta mondo, duondormas kaj
 
 sonĝas.
 
-ĉirkaŭ Clifton Hampden, mem mirinde bela vilaĝo, mal-
-
-
-T R I V I RO J E N B OATO
-
-
-novmoda, trankvila kaj ĉarma kun floroj, la rivera pejzaĝo
+ĉirkaŭ Clifton Hampden, mem mirinde bela vilaĝo, malnovmoda, trankvila kaj ĉarma kun floroj, la rivera pejzaĝo
 
 estas abunda kaj belega. Se vi tranoktas sur la tero en Clifton, vi ne povas fari pli bone ol gasti ĉe ”Barley Mow”. Mi dirus,
 
-ke ĝi estas, senescepte, la plej kurioza, plej malnovmoda gas-
-
-tejo sur la rivero. i staras dekstre de la ponto, tute for de la vilaĝo. iaj malaltaj gabloj, pajlotegita tegmento kaj latisfenestroj donas al ĝi fe-libran aspekton, dum interne ĝi aspek-
+ke ĝi estas, senescepte, la plej kurioza, plej malnovmoda gastejo sur la rivero. i staras dekstre de la ponto, tute for de la vilaĝo. iaj malaltaj gabloj, pajlotegita tegmento kaj latisfenestroj donas al ĝi fe-libran aspekton, dum interne ĝi aspek-
 
 tas eĉ pli pratempa.
 
-i ne estus taŭga restadejo por heroino de moderna ro-
-
-mano. Heroino de moderna romano ĉiam estas ”diine altsta-
+i ne estus taŭga restadejo por heroino de moderna romano. Heroino de moderna romano ĉiam estas ”diine altsta-
 
 tura”, kaj ĉiam ”rektiĝas ĝis sia plena alto”. En ”Barley” ŝi fra-pus la kapon al la plafono ĉiufoje, kiam ŝi tion farus.
 
-Ankaŭ por gastigi ebriulon ĝi estus netaŭga domo. Tro-
-
-viĝas tro multe de tiaj surprizoj, kiaj neatendataj ŝtupoj kon-dukantaj malsupren en ĉi tiun ĉambron kaj supren en tiun;
+Ankaŭ por gastigi ebriulon ĝi estus netaŭga domo. Troviĝas tro multe de tiaj surprizoj, kiaj neatendataj ŝtupoj kon-dukantaj malsupren en ĉi tiun ĉambron kaj supren en tiun;
 
 koncerne la supreniron al la dormĉambro aŭ la trovon de la
 
@@ -9414,9 +7158,7 @@ Ni leviĝis frue la sekvantan matenon, ĉar ni deziris esti en
 
 Oksfordo ne pli malfrue ol posttagmeze. Estas surprize, kiel
 
-frue oni povas leviĝi, kiam oni tendumas. Oni ne tiom sopi-
-
-ras al ”nur ankoraŭ kvin minutoj”, kuŝante ĉirkaŭvolvita per
+frue oni povas leviĝi, kiam oni tendumas. Oni ne tiom sopiras al ”nur ankoraŭ kvin minutoj”, kuŝante ĉirkaŭvolvita per
 
 lankovrilo sur la tabuloj de boato, kun valizo por kapkuseno,
 
@@ -9424,9 +7166,7 @@ kiom oni sopiras en lanuga lito. Je duono post la oka ni jam
 
 finis la matenmanĝon kaj trapasis la Clifton-kluzon.
 
-De Clifton ĝis Culham la riverbordoj estas plataj, monoto-
-
-naj kaj seninteresaj, sed post kiam vi trapasis la Culham-klu-
+De Clifton ĝis Culham la riverbordoj estas plataj, monotonaj kaj seninteresaj, sed post kiam vi trapasis la Culham-klu-
 
 zon — la plej malvarman kaj plej profundan kluzon sur la
 
@@ -9435,38 +7175,25 @@ rivero — la pejzaĝo pliboniĝas.
 ĉe Abingdon la rivero pasas preter la stratoj. Abingdon
 
 
-T R I V I RO J E N B OATO
-
-
 estas tipa kampara urbo de la pli malgranda speco kvieta,
 
 eminente respektinda, pura kaj preterespere seninteresa. i
 
-fieras, ke ĝi estas malnova, sed ĉu ĝi estas tiurilate komparebla al Wallingford kaj Dorchester, ŝajnas dube. Fama abate-
+fieras, ke ĝi estas malnova, sed ĉu ĝi estas tiurilate komparebla al Wallingford kaj Dorchester, ŝajnas dube. Fama abatejo iam staris tie, kaj en la restaĵo de ĝiaj sanktigitaj muroj nuntempe oni faras amaran bieron.
 
-jo iam staris tie, kaj en la restaĵo de ĝiaj sanktigitaj muroj nuntempe oni faras amaran bieron.
-
-En la preĝejo de Sankta Nikolao en Abingdon troviĝas mo-
-
-numento de Johano Blackwall kaj lia edzino Johanino, kiuj
+En la preĝejo de Sankta Nikolao en Abingdon troviĝas monumento de Johano Blackwall kaj lia edzino Johanino, kiuj
 
 ambaŭ, post feliĉa vivo kiel geedzoj, mortis ĝuste en la sama
 
-tago, la 21-an de ; en la preĝejo de Sankta He-
-
-lena estas registrite, ke W. Lee, kiu mortis en 1637, ”havis en sia vivodaŭro idaron el sia lumbo sumiĝanta ĝis du cent,
+tago, la 21-an de ; en la preĝejo de Sankta Helena estas registrite, ke W. Lee, kiu mortis en 1637, ”havis en sia vivodaŭro idaron el sia lumbo sumiĝanta ĝis du cent,
 
 krom nur tri”. Se vi faros kalkulon vi trovos, ke la nombro de la familio de Sinjoro W. Lee estis cent naŭdek sep. Sinjoro W.
 
-Lee — kvinfoje urbestro de Abingdon — estis sendube bon-
-
-faranto al sia generacio, sed mi esperas, ke ne troviĝas mul-
+Lee — kvinfoje urbestro de Abingdon — estis sendube bonfaranto al sia generacio, sed mi esperas, ke ne troviĝas mul-
 
 taj de lia speco en ĉi tiu jam tro plena deknaŭa jarcento.
 
-De Abingdon ĝis Nuneham Courtenay estas ĉarma eten-
-
-daĵo. La Nuneham-parko estas treege vizitinda. in rigardi
+De Abingdon ĝis Nuneham Courtenay estas ĉarma etendaĵo. La Nuneham-parko estas treege vizitinda. in rigardi
 
 estas permesite marde kaj ĵaŭde. La domo enhavas imponan
 
@@ -9483,32 +7210,22 @@ La kluzo kaj ventmuelilo ĉe Iffley, unu mejlon antaŭ ol vi
 atingas Oksfordon, estas favorata temo ĉe la riveramanta
 
 
-T R I V I RO J E N B OATO
-
-
 penikfrataro. La vero malantaŭ la pentraĵoj estas tamen iel
 
 nekontentiga. Ne multaj aferoj, mi rimarkis, tute egalas siajn bildojn en ĉi tiu mondo.
 
 Ni trapasis la Iffley-kluzon je ĉirkaŭ duono post la dekdua,
 
-kaj tiam, ordiginte la boaton kaj pretiginte ĉion por la alteri-
-
-ĝo, ni laboris super nia lasta mejlo.
+kaj tiam, ordiginte la boaton kaj pretiginte ĉion por la alteriĝo, ni laboris super nia lasta mejlo.
 
 Inter Iffley kaj Oksfordo estas la plej malfacila parto de la
 
 rivero, kiun mi konas. Vi devas naskiĝi sur tiu peco de akvo
 
 
-T R I V I RO J E N B OATO
-
-
 por ĝmpreni. Mi traveturis ĝin jam sufiĉe ofte, tamen mi
 
-ankoraŭ ne sukcesis scipovi ĝin. Viro, kiu povas remi laŭ rek-
-
-ta vojo de Oksfordo al Iffley, povas sendube ankaŭ loĝi opor-
+ankoraŭ ne sukcesis scipovi ĝin. Viro, kiu povas remi laŭ rekta vojo de Oksfordo al Iffley, povas sendube ankaŭ loĝi opor-
 
 tune sub unu tegmento kun la edzino, la bopatrino, la plejaĝa
 
@@ -9516,23 +7233,15 @@ fratino kaj la maljuna servistino, kiu estis kun la familio, kiam li estis infan
 
 Unue la fluo vin pelas sur la dekstran bordon, poste sur la
 
-maldekstran, tiam ĝi portas vin al la mezo, turnas vin trifo-
-
-je, reportas vin almonte kaj ĉiam finas la ludon penante fra-
+maldekstran, tiam ĝi portas vin al la mezo, turnas vin trifoje, reportas vin almonte kaj ĉiam finas la ludon penante fra-
 
 kasi vntraŭ kolegia boato.
 
-Sekve de tio ni kompreneble malhelpis la iradon de mul-
+Sekve de tio ni kompreneble malhelpis la iradon de multaj aliaj boatoj en la daŭro de la mejlo kaj ili nian, kaj sekve de tio, estiĝis kompreneble multe da forta lingvaĵo.
 
-taj aliaj boatoj en la daŭro de la mejlo kaj ili nian, kaj sekve de tio, estiĝis kompreneble multe da forta lingvaĵo.
+Mi ne scias, kial estas tiel, tamen ĉiuj ĉiam estas tiel neordinare koleremaj sur la rivero. Malgrandaj malfeliĉoj, kiujn
 
-Mi ne scias, kial estas tiel, tamen ĉiuj ĉiam estas tiel neor-
-
-dinare koleremaj sur la rivero. Malgrandaj malfeliĉoj, kiujn
-
-sur la tero vi apenaŭ rimarkus, kolerigas vin preskaŭ ĝis fre-
-
-neziĝo, kiam ili okazas sur la akvo. Kiam Harris aŭ Georgo
+sur la tero vi apenaŭ rimarkus, kolerigas vin preskaŭ ĝis freneziĝo, kiam ili okazas sur la akvo. Kiam Harris aŭ Georgo
 
 montras sin azenoj sur la tero, mi ridetas indulge; kiam ili
 
@@ -9544,34 +7253,22 @@ mian iradon, mi sentas, ke mi volas preni remilon kaj mortigi
 
 Homoj, plej mildhumoraj sur la tero, fariĝas batalemaj kaj
 
-sangosoifaj en boato. Iam mi iom boatpromenis kun junuli-
-
-no. ŝi havis la plej ĉarman kaj mildan naturon imageblan,
+sangosoifaj en boato. Iam mi iom boatpromenis kun junulino. ŝi havis la plej ĉarman kaj mildan naturon imageblan,
 
 tamen sur la rivero estis terure ŝin aŭskulti.
 
-—Ho, kia viro! — ŝi kriis ĉiufoje, kiam iu malfeliĉa reman-
-
-to malhelpis ŝian iradon; — kial li ne atentas, kien li iras?
+—Ho, kia viro! — ŝi kriis ĉiufoje, kiam iu malfeliĉa remanto malhelpis ŝian iradon; — kial li ne atentas, kien li iras?
 
 — Ho, kia malsaĝa objekto! — ŝi diris indigne, ĉiufoje kiam
 
 
-T R I V I RO J E N B OATO
-
-
 la velo ne volis stariĝi ĝuste. ŝi prenis skuis ĝin preskaŭ bru-tale.
 
-Tamen, kiel mi diris, sur la tero ŝi estis bonkora kaj ŝatin-
-
-da.
+Tamen, kiel mi diris, sur la tero ŝi estis bonkora kaj ŝatinda.
 
 La aero de la rivero efikas demoralige sur la humoron, kaj
 
 estas tio, mi supozas, kio igas eĉ ŝarĝboatistojn esti kelkfoje malĝentilaj unu al la alia kaj paroli per lingvaĵo, kiun ili sendube bedaŭras en siaj plej trankvilaj momentoj.
-
-
-T R I V I RO J E N B OATO
 
 
 ĉapitro XIX
@@ -9594,9 +7291,7 @@ unuan tagon havis dek unu batalojn kaj la duan dek kvar kaj
 
 evidente kredis, ke li trafis en la ĉielon.
 
-Inter homoj denaske tro malfortaj aŭ denaske tro malla-
-
-boremaj por ĝui kontraŭfluan laboradon, laŭ via prefero, es-
+Inter homoj denaske tro malfortaj aŭ denaske tro mallaboremaj por ĝui kontraŭfluan laboradon, laŭ via prefero, es-
 
 tas kutimo lupreni boaton ĉe Oksfordo kaj remi alvale. Por la
 
@@ -9606,32 +7301,22 @@ Ne ŝajnas bone, ĉiam iri kun la fluo. Estas pli kontentige sin teni kuraĝe, b
 
 remas kaj mi direktas.
 
-Al tiuj, kiuj intencas ekiri el Oksfordo, mi dirus, ke ili pre-nu la propran boaton — krom se, kompreneble, vi povas pre-
+Al tiuj, kiuj intencas ekiri el Oksfordo, mi dirus, ke ili pre-nu la propran boaton — krom se, kompreneble, vi povas preni la boaton de iu alia sen ia ebla danĝero, ke oni vin malkovros. La boatoj, kiujn ĝenerale oni luigas sur Tamizo supre de
 
-ni la boaton de iu alia sen ia ebla danĝero, ke oni vin malkovros. La boatoj, kiujn ĝenerale oni luigas sur Tamizo supre de
-
-Marlow, estas tre bonaj boatoj. Ili estas sufiĉe netraflueblaj kaj tiel longe, ke oni traktas ilin zorge, ili nur malofte disfalas aŭ subakviĝas. En ili troviĝas lokoj, kie oni povas sidiĝi, kaj 225
-
-T R I V I RO J E N B OATO
+Marlow, estas tre bonaj boatoj. Ili estas sufiĉe netraflueblaj kaj tiel longe, ke oni traktas ilin zorge, ili nur malofte disfalas aŭ subakviĝas. En ili troviĝas lokoj, kie oni povas sidiĝi, kaj
 
 
-ili estas kompletigitaj per ĉiuj necesaj aranĝoj — aŭ per pre-
-
-skaŭ ĉiuj — por ebligi al vi remi kaj direkti ilin.
+ili estas kompletigitaj per ĉiuj necesaj aranĝoj — aŭ per preskaŭ ĉiuj — por ebligi al vi remi kaj direkti ilin.
 
 Tamen ili ne estas ornamaj. Boato luprenita sur la rivero
 
-super Marlow ne estas boato, per kiu vi povas brili kaj para-
-
-di. La luprenita riverboato tre baldaŭ ĉesigas tiaspecan sen-
+super Marlow ne estas boato, per kiu vi povas brili kaj paradi. La luprenita riverboato tre baldaŭ ĉesigas tiaspecan sen-
 
 sencaĵon flanke de siaj okupantoj. Jen ĝia ĉefa, oni povas diri,
 
 ĝia sola rekomendo.
 
-Viro en luprenita riverboato estas modesta kaj sindetene-
-
-ma. Li pli volas resti en la ombra flanko sub la arboj kaj fari la plejparton de sia veturado frue en la mateno aŭ malfrue en
+Viro en luprenita riverboato estas modesta kaj sindetenema. Li pli volas resti en la ombra flanko sub la arboj kaj fari la plejparton de sia veturado frue en la mateno aŭ malfrue en
 
 la vespero, kiam ne estas multe da homoj sur la rivero por lin vidi.
 
@@ -9639,9 +7324,7 @@ Kiam viro en luprenita riverboato vidas iun, kiun li konas,
 
 li albordiĝas kaj sin kaŝas malantaŭ arbo.
 
-Mi estis unu el grupo, kiu luprenis riverboaton iun some-
-
-ron por kelktaga vojaĝo. Neniu el ni antaŭe vidis riverboaton; ni ne sciis, kio ĝi estas, eĉ tiam, kiam ni jam vidis ĝin.
+Mi estis unu el grupo, kiu luprenis riverboaton iun someron por kelktaga vojaĝo. Neniu el ni antaŭe vidis riverboaton; ni ne sciis, kio ĝi estas, eĉ tiam, kiam ni jam vidis ĝin.
 
 Ni mendis boaton — duremilan kanoton; kiam ni alvenis
 
@@ -9653,25 +7336,15 @@ viro diris:
 
 ĉio en ordo. Jim, venigu La Fieron de Tamizo.
 
-La knabo foriris kaj reaperis post kvin minutoj baraktan-
+La knabo foriris kaj reaperis post kvin minutoj baraktanta kun granda antaŭdiluva peco de ligno, kiu aspektis kvazaŭ
 
-ta kun granda antaŭdiluva peco de ligno, kiu aspektis kvazaŭ
-
-oni antaŭ nelonge estus ĝin elfosinta el ie kaj elfosinta sen-
-
-zorge, tiel ke ĝi estis nenecese difektita dum la laboro.
+oni antaŭ nelonge estus ĝin elfosinta el ie kaj elfosinta senzorge, tiel ke ĝi estis nenecese difektita dum la laboro.
 
 Mia propra penso, kiam mi unue vidis la objekton, estis, ke
 
 ĝi estas ia romia restaĵo, — restaĵo de kio, mi ne scias, eble de ĉerko.
 
-En la proksimeco de supra Tamizo abundas romiaj resta-
-
-
-T R I V I RO J E N B OATO
-
-
-ĵoj, kaj mia diveno ŝajnis al mi tre probabla; tamen nia seri-
+En la proksimeco de supra Tamizo abundas romiaj restaĵoj, kaj mia diveno ŝajnis al mi tre probabla; tamen nia seri-
 
 oza junulo, kiu estis ioma geologo, ridindigis mian teorion pri romia restaĵo kaj diris, ke eĉ al la plej malalta intelekto (en kies kategorion, li ŝajnis bedaŭri, li ne povas konscience en-vicigi mian) estas klare, ke tio, kion la knabo trovis, estas
 
@@ -9685,15 +7358,11 @@ La knabo diris, ke ĝi estas La Fiero de Tamizo.
 
 Unue ni kredis, ke tio estas ŝerca respondo flanke de la
 
-knabo, kaj iu donis al li du pencojn kiel premion por lia vig-
-
-la spriteco; sed kiam li laŭ ni tro longe persistis en la ŝerco, ni ekkoleris al li.
+knabo, kaj iu donis al li du pencojn kiel premion por lia vigla spriteco; sed kiam li laŭ ni tro longe persistis en la ŝerco, ni ekkoleris al li.
 
 —Nu, nu, knabo mia! — nia kapitano diris akratone, — ni
 
-lasu la sensencaĵon. Reprenu hejmen la lavkuvon de via pa-
-
-trino kaj portu al ni la boaton.
+lasu la sensencaĵon. Reprenu hejmen la lavkuvon de via patrino kaj portu al ni la boaton.
 
 Tiam venis la boatkonstruisto mem kaj certigis nin, je sia
 
@@ -9707,9 +7376,7 @@ esti zorginta, ke ĝi estu jam kalkblankigita aŭ gudrita — ke io estu farita 
 
 Li ŝajnis ofendita pro niaj rimarkoj. Li diris, ke li elektis por ni la plej bonan boaton el sia tuta provizo, kaj li opiniis, ke ni povus esti pli dankemaj.
 
-Li diris, ke ĝi, La Fiero de Tamizo, estis uzata tia, kia ĝi nun 227
-
-T R I V I RO J E N B OATO
+Li diris, ke ĝi, La Fiero de Tamizo, estis uzata tia, kia ĝi nun
 
 
 staras (aŭ pli ĝuste tia, kia ĝi nun kunkroĉiĝas) jam dum la
@@ -9720,9 +7387,7 @@ lastaj kvardek jaroj kaj, laŭ lia scio, neniu antaŭe plendis pri
 
 Ni ne disputis plu.
 
-Ni kunligis la tiel nomatan boaton per kelkaj pecoj de ŝnu-
-
-reto, akiris iom da papertapeto, kaj ĝin surgluis sur la pli mal-freŝajn lokojn, preĝis kaj eniris.
+Ni kunligis la tiel nomatan boaton per kelkaj pecoj de ŝnureto, akiris iom da papertapeto, kaj ĝin surgluis sur la pli mal-freŝajn lokojn, preĝis kaj eniris.
 
 Oni postulis de ni tridek kvin ŝilingojn por la pruntedono
 
@@ -9732,84 +7397,54 @@ duona ŝilingoj ĉe vendejo de floslignaĵo sur la marbordo.
 
 La vetero ŝangiĝis en la tria tago, — Ho! mi nun parolas pri
 
-la nuna vojaĝo, — kaj ni iris el Oksfordo por la revena vetu-
+la nuna vojaĝo, — kaj ni iris el Oksfordo por la revena veturado meze de konstanta pluveto.
 
-rado meze de konstanta pluveto.
-
-Rivero — kun la sunbrilo brilanta sur ĝiaj dancantaj onde-
-
-toj, orumanta la grizverdajn fagtrunkojn, lumetanta tra la
+Rivero — kun la sunbrilo brilanta sur ĝiaj dancantaj ondetoj, orumanta la grizverdajn fagtrunkojn, lumetanta tra la
 
 mallumaj, malvarmetaj arbaretaj vojoj, ĉasanta ombrojn
 
-trans la malprofundaĵojn, ĵetanta diamantojn de la muelilra-
-
-doj, transdonanta kisojn al la lilioj, petolanta kun la blanka akvo de la bariero, arĝentumanta muskokovritajn murojn kaj
+trans la malprofundaĵojn, ĵetanta diamantojn de la muelilradoj, transdonanta kisojn al la lilioj, petolanta kun la blanka akvo de la bariero, arĝentumanta muskokovritajn murojn kaj
 
 pontojn, heliganta iun malgrandan urbeton, ĉarmiganta ĉiun
 
-vojeton kaj herbejon, kuŝanta implikita inter la junkoj, rigardanta ridante el ĉiu golfeto, gaje lumetanta sur multe da mal-
-
-proksimaj veloj, balzamanta la aeron per helo — estas ora fe-
+vojeton kaj herbejon, kuŝanta implikita inter la junkoj, rigardanta ridante el ĉiu golfeto, gaje lumetanta sur multe da malproksimaj veloj, balzamanta la aeron per helo — estas ora fe-
 
 rivereto.
 
-Sed rivero — malvarma kaj laca, kun senĉesaj pluvgutoj fa-
-
-lantaj sur ĝian brunan kaj malviglan akvon, kun sono, kvazaŭ
+Sed rivero — malvarma kaj laca, kun senĉesaj pluvgutoj falantaj sur ĝian brunan kaj malviglan akvon, kun sono, kvazaŭ
 
 virino mallaŭte plorus en malluma ĉambro; dum la arbaretoj,
 
-tute mallumaj kaj silentaj, vualitaj per siaj vapornebuloj, staras simile al fantomoj sur la rando; silentaj fantomoj kun ri-
-
-proĉantaj okuloj, kiel la fantomoj de malbonaj agoj, kiel la
+tute mallumaj kaj silentaj, vualitaj per siaj vapornebuloj, staras simile al fantomoj sur la rando; silentaj fantomoj kun riproĉantaj okuloj, kiel la fantomoj de malbonaj agoj, kiel la
 
 
-T R I V I RO J E N B OATO
+fantomoj de amikoj preterlasitaj — estas fantomvizitata rivero tra la lando de vanaj bedaŭroj.
 
-
-fantomoj de amikoj preterlasitaj — estas fantomvizitata rive-
-
-ro tra la lando de vanaj bedaŭroj.
-
-Sunlumo estas la vivsango de la naturo. Patrino Tero rigar-
-
-dis al ni per tiel malviglaj, senanimaj okuloj, kiam la sunlumo formortis el ĝi. Ni fariĝas malgajaj, estante tiam kun ŝi; ŝi ŝajnas ne koni nin, nek amis nin. ŝi estas kiel vidvino, kiu per-
+Sunlumo estas la vivsango de la naturo. Patrino Tero rigardis al ni per tiel malviglaj, senanimaj okuloj, kiam la sunlumo formortis el ĝi. Ni fariĝas malgajaj, estante tiam kun ŝi; ŝi ŝajnas ne koni nin, nek amis nin. ŝi estas kiel vidvino, kiu per-
 
 dis la edzon, kiun ŝi amis kaj ŝiaj infanoj tuŝas ŝian manon kaj rigardas supren al ŝi en la okulojn, sed ne ricevas rideton.
 
-Dum tiu tuta tago ni remadis tra la pluvo kaj tio estis me-
-
-lankolia laboro. Komence ni ŝajnigis, ke ni ĝin ĝuas. Ni diris, ke tio estas ŝanĝo, kaj ke ni ŝatas vidi la riveron sub ĝiaj diversaj aspektoj. Ni diris, ke ni ne povas esperi, ke estos ĉiam sunbrilo, nek deziri tion. Ni diris unu al la alia, ke la naturo estas belega, eĉ kun siaj larmoj.
+Dum tiu tuta tago ni remadis tra la pluvo kaj tio estis melankolia laboro. Komence ni ŝajnigis, ke ni ĝin ĝuas. Ni diris, ke tio estas ŝanĝo, kaj ke ni ŝatas vidi la riveron sub ĝiaj diversaj aspektoj. Ni diris, ke ni ne povas esperi, ke estos ĉiam sunbrilo, nek deziri tion. Ni diris unu al la alia, ke la naturo estas belega, eĉ kun siaj larmoj.
 
 Harris kaj mi fakte entuziasmiĝis pri la afero dum kelkaj
 
 unuaj horoj. Mi kantis kanton pri la vivo de cigano kaj kiel
 
-rava estas la ekzistado de cigano! — libera al ŝtormo kaj sun-
-
-brilo kaj ĉiu vento kiu blovas! — kaj kiel li ĝuas la pluvon kaj kiel li bonfartas en ĝi; kiel li priridas la homojn, kiuj ĝin ne ŝatas.
+rava estas la ekzistado de cigano! — libera al ŝtormo kaj sunbrilo kaj ĉiu vento kiu blovas! — kaj kiel li ĝuas la pluvon kaj kiel li bonfartas en ĝi; kiel li priridas la homojn, kiuj ĝin ne ŝatas.
 
 Georgo estis pli serioza kaj ne forlasis la ombrelon.
 
 Ni suprenmetis la kovrilon antaŭ ol ni lunĉis kaj lasis ĝin
 
-supre la tutan posttagmezon lasante nur malgrandan malfer-
-
-maĵon en la antaŭo, ĉe kiu unu el ni povis padeli kaj obser-
+supre la tutan posttagmezon lasante nur malgrandan malfermaĵon en la antaŭo, ĉe kiu unu el ni povis padeli kaj obser-
 
 vi. Tiamaniere ni veturis naŭ mejlojn kaj haltis por la nokto
 
 iom malsupre de la Day-kluzo.
 
-Mi ne povas honeste diri, ke ni pasigis gajan vesperon. Plu-
-
-vetis kviete kaj persiste. ĉio en la boato estis malseketa kaj gluaĉa. La vespermanĝo ne estis sukceso. Malvarma bovidaĵa
+Mi ne povas honeste diri, ke ni pasigis gajan vesperon. Pluvetis kviete kaj persiste. ĉio en la boato estis malseketa kaj gluaĉa. La vespermanĝo ne estis sukceso. Malvarma bovidaĵa
 
 pasteĉo, kiam vi ne estas malsata, emas trosatigi. Mi sentis
-
-
-T R I V I RO J E N B OATO
 
 
 deziron por blankfiŝetoj kaj kotleto; Harris babilis pri soleoj kaj blanka saŭco kaj transdonis la restaĵon de sia pasteĉo al
@@ -9826,13 +7461,9 @@ sen mustardo.
 
 Post la vespermanĝo ni ludis napoleonon por pencoj. Ni
 
-ludis ĉirkaŭ unu kaj duonan horojn, kaj en la fino de tiu tem-
+ludis ĉirkaŭ unu kaj duonan horojn, kaj en la fino de tiu tempo Georgo jam gajnis kvar pencojn — Georgo ĉiam havas
 
-po Georgo jam gajnis kvar pencojn — Georgo ĉiam havas
-
-bonŝancon ĉe kartludado — kaj Harris kaj mi perdis po pre-
-
-cize du pencoj.
+bonŝancon ĉe kartludado — kaj Harris kaj mi perdis po precize du pencoj.
 
 Tiam ni decidis, ke ni rezignos la vetludadon. Kiel Harris
 
@@ -9842,19 +7473,13 @@ rekompenci; sed Harris kaj mi decidis, ke ni ne batalu plu
 
 kontraŭ la sorto.
 
-Post tio ni pretigis punĉon kaj sidis kune kaj babilis. Geor-
-
-go rakontis al ni pri viro, kiun li konis, kiu venis sur la riveron antaŭ du jaroj, kaj tranoktis en malseka boato en nokto
+Post tio ni pretigis punĉon kaj sidis kune kaj babilis. Georgo rakontis al ni pri viro, kiun li konis, kiu venis sur la riveron antaŭ du jaroj, kaj tranoktis en malseka boato en nokto
 
 ĝuste tia, kia estas ĉi tiu, tio donis al li reŭmatikan febron kaj nenio povis lin savi kaj li mortis en granda doloro dek tagojn poste. Georgo diris, ke li estis nur junulo kaj fianĉiĝinta. Li diris, ke tio estas unu el la plej malĝojigaj aferoj, kiujn li iam spertis.
 
-Tio memorigis al Harris pri amiko lia, kiu aniĝis al la Vo-
+Tio memorigis al Harris pri amiko lia, kiu aniĝis al la Volontuloj, kaj kiu iun pluvan nokton dormis sub kanvaso ĉe
 
-lontuloj, kaj kiu iun pluvan nokton dormis sub kanvaso ĉe
-
-Aldershot, ”en nokto, ĝuste tia, kia estas ĉi tiu”, diris Harris; li vekiĝis en la mateno kripligita por la tuta vivo. Harris diris, 230
-
-T R I V I RO J E N B OATO
+Aldershot, ”en nokto, ĝuste tia, kia estas ĉi tiu”, diris Harris; li vekiĝis en la mateno kripligita por la tuta vivo. Harris diris,
 
 
 ke li prezentos nin ambaŭ al la viro, kiam ni revenos en la
@@ -9869,9 +7494,7 @@ diris, kiel maloportune estus, se iu el ni grave malsaniĝus en la nokto, konsid
 
 Post ĉi tiu interparolado ŝajne estiĝis deziro por io gajiga
 
-kaj en momento de malforteco mi proponis, ke Georgo pre-
-
-nu sian banĝon kaj vidu, ĉu li ne povas doni al ni komikan
+kaj en momento de malforteco mi proponis, ke Georgo prenu sian banĝon kaj vidu, ĉu li ne povas doni al ni komikan
 
 kanton.
 
@@ -9881,9 +7504,7 @@ multe da kuraĝigo. Estis neniu sensencaĵo pri tio, ke li lasis hejme la muzika
 
 kaj komencis ludi ”Du okuloj nigraj ravas”.
 
-Antaŭ tiu vespero mi ĉiam rigardis ”Du okuloj nigraj ra-
-
-vas” kiel sufiĉe banalan melodion. La riĉa vejno de malĝojo,
+Antaŭ tiu vespero mi ĉiam rigardis ”Du okuloj nigraj ravas” kiel sufiĉe banalan melodion. La riĉa vejno de malĝojo,
 
 kiun Georgo eltiris el ĝi surprizis min.
 
@@ -9893,9 +7514,7 @@ kaj mi la deziro fali unu sur la bruston de la alia kaj plori; tamen per granda 
 
 kaj aŭskultis la sovaĝan sopirplenan melodion en silento.
 
-Kiam venis la rekantaĵo, ni eĉ faris preteresperajn pena-
-
-dojn gajiĝi. Ni replenigis niajn glasojn kaj kunkantis; Harris per voĉo tremanta pro emocio antaŭiris kaj Georgo kaj mi
+Kiam venis la rekantaĵo, ni eĉ faris preteresperajn penadojn gajiĝi. Ni replenigis niajn glasojn kaj kunkantis; Harris per voĉo tremanta pro emocio antaŭiris kaj Georgo kaj mi
 
 sekvis kelkajn vortojn poste:
 
@@ -9908,9 +7527,6 @@ Nur ĉar mi diris, ke oni malpravas,
 Du —”
 
 
-T R I V I RO J E N B OATO
-
-
 ĉi tie ni ne povis daŭrigi plu. La neeldireblan kortuŝon de
 
 la akompanado de Georgo al tiu ”du” ni, en nia tiama stato de
@@ -9921,9 +7537,7 @@ infano kaj la hundo ululis, ĝis mi kredis, ke certe rompiĝos aŭ lia koro aŭ 
 
 Georgo deziris ludi ankoraŭ strofon. Li opiniis, ke kiam li
 
-pli bone akordiĝos kun la muziko kaj povos ĵeti pli da ”sinforlaso” por tiel diri, en sian ludadon, ĝi eble ne ŝajnos tiel mal-
-
-ĝoja. La sento de la plimulto tamen estis kontraŭ la eksperi-
+pli bone akordiĝos kun la muziko kaj povos ĵeti pli da ”sinforlaso” por tiel diri, en sian ludadon, ĝi eble ne ŝajnos tiel malĝoja. La sento de la plimulto tamen estis kontraŭ la eksperi-
 
 mento.
 
@@ -9937,9 +7551,7 @@ malrapide alvale.
 
 Unu el ni — mi jam forgesis, kiu, sed mi inklinas supozi, ke
 
-tiu estis mi — faris malfortan penadon dum la mateno entu-
-
-ziasmigi nin pri la antaŭa cigana stultaĵo, ke ni estas la infanoj de la naturo kaj ĝuas la pluvon; sed tio tute ne sukcesis.
+tiu estis mi — faris malfortan penadon dum la mateno entuziasmigi nin pri la antaŭa cigana stultaĵo, ke ni estas la infanoj de la naturo kaj ĝuas la pluvon; sed tio tute ne sukcesis.
 
 Pri unu afero ni ĉiuj samopiniis, kaj tio estas ke, okazu kio
 
@@ -9952,20 +7564,13 @@ nepre intencis ĝui. Se tio nin mortigos, nu, tio estus malfeliĉo por niaj amik
 kaj fortaj. Estas eble, ke ni postvivos tion.
 
 
-T R I V I RO J E N B OATO
-
-
-ĉirkaŭ la kvara posttagmeze ni komencis diskuti niajn pla-
-
-nojn por la vespero. Tiam ni estis iom preter Goring kaj ni
+ĉirkaŭ la kvara posttagmeze ni komencis diskuti niajn planojn por la vespero. Tiam ni estis iom preter Goring kaj ni
 
 decidis padeli ĝis Pangbourne kaj tie tranokti.
 
 —Ankoraŭ gaja vespero! — murmuretis Georgo.
 
-Ni sidis meditante pri la perspektivo. Ni estos en Pang-
-
-bourne je la kvina. Ni finos la ĉefmanĝon je, ni diru, duono
+Ni sidis meditante pri la perspektivo. Ni estos en Pangbourne je la kvina. Ni finos la ĉefmanĝon je, ni diru, duono
 
 post la sesa. Post tio ni povos promeni ĉirkaŭe en la vilaĝo,
 
@@ -9975,21 +7580,15 @@ malbone lumigita trinkeja saloneto kaj legi la almanakon.
 
 —Nu, povas esti, ke la Alhambro estos pli gajiga, — diris
 
-Harris, kiu kuraĝis meti la kapon momenton ekster la kovri-
+Harris, kiu kuraĝis meti la kapon momenton ekster la kovrilon kaj esploris la ĉielon.
 
-lon kaj esploris la ĉielon.
-
-—Kun eta vespermanĝo ĉe **) — poste, — mi aldonis duo-
-
-ne senkonscie.
+—Kun eta vespermanĝo ĉe **) — poste, — mi aldonis duone senkonscie.
 
 —Jes, estas preskaŭ domaĝo, ke ni decidis daŭre resti en la
 
 boato, — respondis Harris; tiam kelkan tempon estis silento.
 
-—Se ni ne estus decidintaj, ke ni devas certigi al ni la mor-
-
-ton en ĉi tiu malbenita ĉerko, — rimarkigis Georgo, ĵetante
+—Se ni ne estus decidintaj, ke ni devas certigi al ni la morton en ĉi tiu malbenita ĉerko, — rimarkigis Georgo, ĵetante
 
 rigardon plenan de intensa malamo sur la boaton, — tiam
 
@@ -9999,47 +7598,29 @@ scio, baldaŭ post la kvina, kaj demetus nin en Londono sufiĉe
 
 frue por ebligi al ni manĝi kotleton kaj poste iri al la ejo men-ciita de vi.
 
-Neniu parolis. Ni interrigardis kaj ĉiu ŝajnis vidi la pro-
-
-prajn malnoblajn kaj kulpajn pensojn respegulataj en la viza-
+Neniu parolis. Ni interrigardis kaj ĉiu ŝajnis vidi la proprajn malnoblajn kaj kulpajn pensojn respegulataj en la viza-
 
 ĝo de la aliaj. En silento ni eltiris kaj traserĉis la valizojn. Ni rigardis laŭlonge de la rivero supren kaj ni rigardis malsupren; nenio homa estis videbla!
 
-Dudek minutojn poste, oni povis vidi tri figurojn, sekvat-
-
-ajn de hontema hundo, ŝtele elrampi el la boatejo ĉe ”Cigno”
-
-
-T R I V I RO J E N B OATO
+Dudek minutojn poste, oni povis vidi tri figurojn, sekvatajn de hontema hundo, ŝtele elrampi el la boatejo ĉe ”Cigno”
 
 
 survoje al la stacidomo, vestitajn per la jena nek bela nek parada kostumo:
 
-Nigraj ledaj ŝuoj, malpuraj; flanelaj vestaĵoj por boatvetu-
-
-rado, tre malpuraj; bruna felta ĉapelo, tre batita; pluvmante-
+Nigraj ledaj ŝuoj, malpuraj; flanelaj vestaĵoj por boatveturado, tre malpuraj; bruna felta ĉapelo, tre batita; pluvmante-
 
 lo, tre malseka; ombrelo.
 
-Ni trompis la boatiston ĉe Pangbourne. Ni ne kuraĝis in-
-
-formi lin, ke ni forkuras de la pluvo. Ni lasis la boaton kaj ĝian tutan enhavon sub lia gardo, kun la instrukcio, ke ĝi estu preta por ni je la naŭa la sekvantan matenon. Se, ni diris — se
+Ni trompis la boatiston ĉe Pangbourne. Ni ne kuraĝis informi lin, ke ni forkuras de la pluvo. Ni lasis la boaton kaj ĝian tutan enhavon sub lia gardo, kun la instrukcio, ke ĝi estu preta por ni je la naŭa la sekvantan matenon. Se, ni diris — se
 
 okazos io neatendita, por malebligi nian revenon, ni skribos
 
 al li.
 
 
-T R I V I RO J E N B OATO
+Ni atingis Paddington je la sepa kaj veturis rekte al la restoracio, kiun mi antaŭe priskribis, kie ni manĝis etan man-
 
-
-Ni atingis Paddington je la sepa kaj veturis rekte al la res-
-
-toracio, kiun mi antaŭe priskribis, kie ni manĝis etan man-
-
-ĝon, lasis Montmorency kune kun la propono, ke vesperman-
-
-ĝo estu preta je duono post la deka, kaj poste ni pluiris ĝis
+ĝon, lasis Montmorency kune kun la propono, ke vespermanĝo estu preta je duono post la deka, kaj poste ni pluiris ĝis
 
 Leicester Square.
 
@@ -10057,32 +7638,22 @@ Interne ni estis ankoraŭ pli granda sukceso. Niaj belaj bronzitaj vizaĝoj kaj 
 
 Tio estis flera momento por ni ĉiuj.
 
-Ni foriris baldaŭ post la unua baleto kaj reiris al la resto-
-
-racio, kie la vespermanĝo jam atendis nin.
+Ni foriris baldaŭ post la unua baleto kaj reiris al la restoracio, kie la vespermanĝo jam atendis nin.
 
 Mi devas konfesi, ke mi ĝuis tiun vespermanĝon. Dum dek
 
 tagoj ŝajnis, ke ni vivas, pli malpli, nur per malvarma viando, kuko, kaj pano kun konfitaĵo. i estis simpla, nutra dieto; tamen estis en ĝi nenio ekscita, kaj nun la odoro de burgunda
 
-vino kaj la odoro de francaj saŭcoj, la vido de puraj buŝtukoj kaj longaj panbuloj, frapis kiel bonvena vizitanto ĉe la pordo de nia internaĵo. Kelkan tempon ni daŭris trinki en silento, ĝis venis la tempo, kiam, anstataŭ sidi tute rektaj, firme tenante la tranĉilon kaj forkon, ni apogis nin al la dorso de la seĝo kaj laboris malrapide kaj senzorge — kiam ni etendis la krurojn sub la tablo, lasis la buŝtukon fali nerimarkite sur la plankon kaj trovis tempon por observi la fuman plafonon pli kri-
-
-tike ol ni ĝis nun povis — kiam ni restigis niajn glasojn sur la 235
-
-T R I V I RO J E N B OATO
+vino kaj la odoro de francaj saŭcoj, la vido de puraj buŝtukoj kaj longaj panbuloj, frapis kiel bonvena vizitanto ĉe la pordo de nia internaĵo. Kelkan tempon ni daŭris trinki en silento, ĝis venis la tempo, kiam, anstataŭ sidi tute rektaj, firme tenante la tranĉilon kaj forkon, ni apogis nin al la dorso de la seĝo kaj laboris malrapide kaj senzorge — kiam ni etendis la krurojn sub la tablo, lasis la buŝtukon fali nerimarkite sur la plankon kaj trovis tempon por observi la fuman plafonon pli kritike ol ni ĝis nun povis — kiam ni restigis niajn glasojn sur la
 
 
 tablo per etendita brako kaj sentis nin bonaj, pensemaj kaj
 
 pardonemaj.
 
-Tiam Harris, kiu sidis apud la fenestro, tiris flanken la kur-
+Tiam Harris, kiu sidis apud la fenestro, tiris flanken la kurtenon kaj rigardis sur la straton.
 
-tenon kaj rigardis sur la straton.
-
-i brilis mallume en la malseko, la malbone lumigitaj lam-
-
-poj flagretis ĉe ĉiu ventopuŝo, la pluvo plaŭdis konstante en
+i brilis mallume en la malseko, la malbone lumigitaj lampoj flagretis ĉe ĉiu ventopuŝo, la pluvo plaŭdis konstante en
 
 la pluvflakoj kaj fluetis laŭ la kanaletoj en la jam pluvplenajn defluilojn. Kelkaj tute malsekaj vojirantoj rapide preterpasis, kuntiris sin sub la gutantaj ombreloj kaj la virinoj levetis la jupojn.
 
@@ -10099,9 +7670,6 @@ Montmorency, staranta sur la malantaŭaj piedoj antaŭ la
 fenestro, rigardis en la nokton kaj eligis mallongan bojon de
 
 konvinka konsento kun la tosto.
-
-
-T R I V I RO J E N B OATO
 
 
 www.omnibus.se/

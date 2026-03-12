@@ -74,7 +74,7 @@ sekso, batalo, kolero, timo) – unuvorte de la tuta “homa Ili ekzistas efekti
 
 ne estas eble per nura decido. Produkto de niaj medio kaj Sur tiu komuna trunko greftiĝas ĝiuj tendencoj nomataj hereda¼o, vivanta resumo de nia kaj de rasa estinteco, nia *derivaj*, pli propraj al ĝiu homo aparte. Ilin cetere estigas naturo estas tio, kio nin estigas kaj samtempe malhelpas.
 
-nur komplikiĝo de la unuaj, ilin nutras la sama fortika Tiamaniere nia korpo, kiu estas ni mem, estas samtempe suko. Ili starigas nian karakteron kiel produkton de niaj 5
+nur komplikiĝo de la unuaj, ilin nutras la sama fortika Tiamaniere nia korpo, kiu estas ni mem, estas samtempe suko. Ili starigas nian karakteron kiel produkton de niaj
 
 ecaro, medio, edukado. Ili estas niaj personaj emoj, propraj la plej elprovitaj maksimoj sur tiu kampo konsilas al ni bezonoj (ofte verdire imagaj bezonoj): – emo al ĝaso, ludo, regulan ekzercadon.
 
@@ -122,7 +122,7 @@ Budhismo, Stoikismo, Kristanismo – konsideris la demandon el diversaj vidpunkt
 
 (nova penso) alportis en la diskuton kelkajn novajn ele-mentojn ne egale valorajn. Æiu sistemo provizis nian volon per iu metodo por disciplinigi nian naturon. Nu, tiuj metodoj, el kiuj pluraj estas multcentjaraj, entenas homan verecon, kiu estas ĝiam aktuala.
 
-Sed ni ne interesiĝas tie ĝi pri la doktrinoj mem, sed pri la mensaj sintenadoj kaj metodoj, kiujn ili proponas al ni, por nin helpi en nia lukto kontraŭ ni mem. *Ne la etikoj* *estos la objekto de nia studo, sed la* *teknikoj* de la memdisciplino. Ni ne konsultas la etikojn, kiam ili diras, *kion* ni 7
+Sed ni ne interesiĝas tie ĝi pri la doktrinoj mem, sed pri la mensaj sintenadoj kaj metodoj, kiujn ili proponas al ni, por nin helpi en nia lukto kontraŭ ni mem. *Ne la etikoj* *estos la objekto de nia studo, sed la* *teknikoj* de la memdisciplino. Ni ne konsultas la etikojn, kiam ili diras, *kion* ni
 
 devas fari, sed kiam ili montras, *kiel* ni povas tion fari.
 
@@ -152,7 +152,7 @@ centrigo: laŭ enhavo, laŭ la objekto, kiun ili trafas (ekzem-
 
 kiuj oni devus ĝerpi hodiaŭ, se oni deziras starigi sistemon de “voledukado” aŭ, pli ĝuste kaj larĝe dirite, de psikago-Koncentrigo estas komence konscia pri sia objekto, sed gio.
 
-povas fine iĝi senkonscia. Tiun duan staton, kiun ni povas 8
+povas fine iĝi senkonscia. Tiun duan staton, kiun ni povas
 
 kompreni, komparante ĝin iom kun hipnota stato, trafas la
 
@@ -167,9 +167,7 @@ La disĝiplo meditos ĝiutage, t.e. li rezervos ĝiutage mo-Do koncentrigo havas
 movajn, malpermesante ĝiujn aliajn. Fine, en la tria grado, ĝiu distingeco inter konsiderado kaj ties objekto malaperas;
 
 
-objekto kaj konsiderado nun þajnas esti nur unu (“koncen-
-
-trigo ĝuste nomata”)(2).
+objekto kaj konsiderado nun þajnas esti nur unu (“koncentrigo ĝuste nomata”)(2).
 
 Joga ne forgesas certajn konsilojn rilate al la pure kor-Ni verþajne rajtas kompari tiun trian staton kun tiu, ki-paj aferoj.
 
@@ -209,7 +207,7 @@ Ambaŭ faktoj streĝe interrilatas, kaj oni per tio komprenas, ke la trankvilkap
 
 aspekto de tiu *brido-* kaj *haltigo-* kapablo, kiun oni hodiaŭ unuanime konsideras kiel bazon de la volo mem.
 
-Kombino de muskola malstreĝado kun la hipnotaj pro-La kontrolo, kiun ni tiel akiras, ebligos, ke ni rifuzu cedoj rezultas per tute speciala stato de korpa kaj mensa ekzemple koleran ekmovon aŭ maltrafan emocion, kiam ni 10
+Kombino de muskola malstreĝado kun la hipnotaj pro-La kontrolo, kiun ni tiel akiras, ebligos, ke ni rifuzu cedoj rezultas per tute speciala stato de korpa kaj mensa ekzemple koleran ekmovon aŭ maltrafan emocion, kiam ni
 
 sentas, ke ĝi estas tuj minaca. Ni deklinos flanken baton, Sed precipe per koncentrigo metoda kaj trankvile obsti-devenantan de iu malsano, malsukceso, maljusta¼o aŭ na, Joga aspiras konduki sian disĝiplon al la liberiĝo, “ĝar peniga okazo. Ni ne bezonos lukti fronte, ni nur interrom-por tiu, kiu ne havas koncentrigon, paco ne ekzistas(8)”.
 
@@ -240,10 +238,7 @@ riga edukado de la energio. Pro tio Stoikismo inter ĝiuj
 
 “En la momentoj de pasio, la sola rimedo por nin venki antikvaj filozofioj interesos nin tie ĝi.
 
-estas, detrui la iluzion, ke ni mem suferas aŭ deziras; disigi nian veran Mi de la malklaraj kaj tumultaj ondoj de pa-
-
-
-sio(7).”
+estas, detrui la iluzion, ke ni mem suferas aŭ deziras; disigi nian veran Mi de la malklaraj kaj tumultaj ondoj de pasio(7).”
 
 
 Unu el la fundamentaj maksimoj de tiuj filozofoj estas,
@@ -296,15 +291,11 @@ havas.”
 
 per ilia unua apero; ne aldonu vi mem ion al ĝi enmense,
 
-“Ne la a¼oj – diras Epikteto – maltrankviligas la ho-
-
-kaj nenio estos plue.”(20)
+“Ne la a¼oj – diras Epikteto – maltrankviligas la hokaj nenio estos plue.”(20)
 
 mojn, sed ilia opinio pri la a¼oj. Morto ekzemple ne estas
 
-“Kolero kaj ĝagreno, kiun ni ricevas de la agoj de aliu-malbono; se ĝi estus malbona, ĝi estus aperinta tia al loj, estas malbono, kiu nin multe pli reale vundas ol tiuj Sokrato. Nur nia opinio pri la morto igas ĝin tiam teru-
-
-kolerigantaj aŭ ĝagrenantaj agoj per si mem.”(21)
+“Kolero kaj ĝagreno, kiun ni ricevas de la agoj de aliu-malbono; se ĝi estus malbona, ĝi estus aperinta tia al loj, estas malbono, kiu nin multe pli reale vundas ol tiuj Sokrato. Nur nia opinio pri la morto igas ĝin tiam terukolerigantaj aŭ ĝagrenantaj agoj per si mem.”(21)
 
 ra(17).”
 
@@ -332,9 +323,7 @@ vi tiam rajtos vin glori, ĝar almenaŭ vi fieros pri bono, kiu
 
 “Ne maltrankviliĝu, imagante bildon de via tuta vivo vere apartenas al vi.(19)
 
-estonta. Neniam prezentu al vi kune la multecon kaj grave-13
-
-con de viaj probablaj suferoj. Sed tuj kiam okazas io al vi, ekzemple ankaŭ tiu bonega vino estas iom da suko elpre-
+estonta. Neniam prezentu al vi kune la multecon kaj gravecon de viaj probablaj suferoj. Sed tuj kiam okazas io al vi, ekzemple ankaŭ tiu bonega vino estas iom da suko elpre-
 
 ĝiufoje demandu vin: Kio estas tie netolerebla? Æar vi mita el kelkaj vinberoj; tiu purpura vesto estas nur tola hontos, tion konfesi. Poste memoru tiun veron, ke nek teksa¼o sorbigita per sango de konka molusko.” (Mark-estonteco nek estinteco vin trafas, sed nur ĝiam estanteco.
 
@@ -374,7 +363,7 @@ opiniintaj, ke tiuj ĝi rezignacias iom rapide. Sed la stoika-
 
 “Kiel ni devas þati tiujn ĝi viandojn kaj aliajn nutra¼ojn?
 
-noj, se ili ne ekvidis tutan la eblan povon de la spirito super Tio estas kadavro de fiþo, tio kadavro de birdo aŭ porko; aŭ 14
+noj, se ili ne ekvidis tutan la eblan povon de la spirito super Tio estas kadavro de fiþo, tio kadavro de birdo aŭ porko; aŭ
 
 la korpo, almenaŭ malpermesis, ke spirito konsentu esti subulo de la korpo.
 
@@ -385,14 +374,9 @@ la korpo, almenaŭ malpermesis, ke spirito konsentu esti subulo de la korpo.
 
 lhelpa¼oj al ĝi.”(27)
 
-aŭtoritatuloj egalaj al la profetoj, kaj tie oni devas serĝi la Kaj Mark-Aŭrelo prezentas ie la ekzemplon de Epikuro, fontojn de la tuta teoria parto de ilia doktrino. El tiu vi-kiu dum siaj malsanoj neniam parolis al iu pri tio, kion li dpunkto, Kristanismo estas natura sekvo de antikva filozo-
+aŭtoritatuloj egalaj al la profetoj, kaj tie oni devas serĝi la Kaj Mark-Aŭrelo prezentas ie la ekzemplon de Epikuro, fontojn de la tuta teoria parto de ilia doktrino. El tiu vi-kiu dum siaj malsanoj neniam parolis al iu pri tio, kion li dpunkto, Kristanismo estas natura sekvo de antikva filozosentis en tiu “kompatinda korpo”.(28)
 
-sentis en tiu “kompatinda korpo”.(28)
-
-fio, sed, en alia punkto, ĝi fundamente diferencas. Æar tiu racia parto estas en ĝi nur akcesora. Æar ĝi ne estas filozo-
-
-
-fio, sed religio, kaj religio, kiu eble pli ol ĝiu alia petas pri la fortoj de la koro.
+fio, sed, en alia punkto, ĝi fundamente diferencas. Æar tiu racia parto estas en ĝi nur akcesora. Æar ĝi ne estas filozofio, sed religio, kaj religio, kiu eble pli ol ĝiu alia petas pri la fortoj de la koro.
 
 Tia sinregado estas nur akirebla per ĝiutaga ekzercado.
 
@@ -469,7 +453,7 @@ arto malfacila”; ĝar estas facile montri, al kiuj malbonuzoj Ni komprenas nun
 
 tiu sistemo proponas al ni disciplinon tre fortan, efikan, estas kvazaŭ bildo kaj simbolo de Dio mem. Submetiĝo al praktikan. Kiel organizado de kutimoj, la mona¶a regulo homoj estas ekzerco por submetigo al Dio. Rezigni sian estas kaj restas majstroverko. Eĝ la maksimo – tre diskute-volon ĝe iu estro, nin helpas por ĝin ankaŭ rezigni ĝe la Dia bla el kelkaj vidpunktoj – ke ni devas rezigni nian volon, favoro. Tial estas preferinde, obei anstataŭ estri.
 
-entenas, kiel ni poste montros, psikologian verecon sendePer tio oni komprenas la signifon de tiuj disciplinoj de pendan de ĝiu dogmo. Ni ekkonos efektive, ke, laŭ unu el la humileco kaj submetiĝo: la mona¶aj reguloj; oni ankaŭ plej novaj konkludoj de la psikologio, nia volo ne estas komprenas, ke katolika eklezio povis prezenti kiel moralan ĝiam nia precipa forto, kaj ke ni devas kelkokaze ĝin 17
+entenas, kiel ni poste montros, psikologian verecon sendePer tio oni komprenas la signifon de tiuj disciplinoj de pendan de ĝiu dogmo. Ni ekkonos efektive, ke, laŭ unu el la humileco kaj submetiĝo: la mona¶aj reguloj; oni ankaŭ plej novaj konkludoj de la psikologio, nia volo ne estas komprenas, ke katolika eklezio povis prezenti kiel moralan ĝiam nia precipa forto, kaj ke ni devas kelkokaze ĝin
 
 momente forlasi por agi pli efike per nia subkonscio: tio En la sekvanta jarcento, ni aŭdas, el la voĝo de Paskal, estas la fundamenta principo de memsugestio.
 
@@ -577,7 +561,7 @@ Vero; tute Amo, super ĝio kaj ĝiuj.”(40)
 
 “Kiel vantaj, skribas F-ino Eddy, estas niaj konceptoj Konsciiĝinte pri la dia senfineco, ni neniigas ĝiujn li-pri la Dieco! Ni teorie konsentas, ke Dio estas bona, ĝiopo-mojn niajn. Materio, malbono (malsano, peko, morto) va, ĝie estanta, senfina, kaj tamen ni klopodas doni infor-aperas tiam al ni kiel iluzioj; komprenante, ke ili estas mojn al tiu senfina spirito!” (38)
 
-iluzioj, ni detruas ilin. Tiu lasta ideo estis jam la principo 20
+iluzioj, ni detruas ilin. Tiu lasta ideo estis jam la principo
 
 de Quimby. Sed al ĝi S-ino Eddy aldonis tutan mistikan Øi asertas sentreme principojn, kiujn kontraŭdiras la sistemon, kiu multe pli impresis la spiritojn kaj multe efikis faktoj de la videbla mondo (ekz. la neekziston de materio por la sukceso de la ideo .de mensa kuracado.
 
@@ -597,9 +581,7 @@ provon por eduki homaron al nova sintenado.
 “Impossible coalescence” diras la angla teksto. La sto-makmalsanuloj unue forlasu sian dieton. Unuvorte, ni
 
 
-devas ĝiujn drogojn for¼eti. “We must abandon pharmaceu-tics” por akcepti la sciencon de la reala esto “the science of *Nova Penso* (New Thought) provas enfokusigi la aki-
-
-real being.”(41) Do medicino estas malpia, drogoj estas
+devas ĝiujn drogojn for¼eti. “We must abandon pharmaceu-tics” por akcepti la sciencon de la reala esto “the science of *Nova Penso* (New Thought) provas enfokusigi la akireal being.”(41) Do medicino estas malpia, drogoj estas
 
 ra¼on de Kristana Scienco. Øi unue forigas el la doktrino nekristanaj (“unchristian”) kaj “Christian Science” forigas ĝion sistememan kaj apokalipsan. Øi aperas kiel filozofia ilin senescepte: “Christian Science exterminates the drugs.”
 
@@ -612,7 +594,7 @@ partoprenon en la dia vivo, kaj samtempe en la dia forto, kiu obligos nian indiv
 
 tiun ideon konservi, ne embarasiĝante per la kristan-Sed pli taŭge estas ekkompreni, kion reale alportis tiu sciencaj postulatoj pri nerealeco de materio. Trine esprimis doktrino kaj tiu praktiko. La merito de kristana scienco tiun koncepton en sia libro “Akorde kun la Senlimo”, kie li estas, ke ĝi instruis al la homaro spiritan sintenadon jesan, uzas tiun strangan figuron, ke homa spirito estas dinamo, decideme optimisman kaj konfideman.
 
-kaj dia spirito alia dinamo multe pli efika, kun kiu oni 21
+kaj dia spirito alia dinamo multe pli efika, kun kiu oni
 
 devas la unuan interligi per transmisia rimeno. Tiu figuro Trine citas tre oportune belan paĝon de Edward Car-esprimas sufiĝe la nuancon de tiu filozofio, malmulte penter:
 
@@ -674,7 +656,7 @@ Hodiaŭ la problemo fariĝis pli larĝa kaj malpli simpla; Komence þi spertas j
 
 estas gaja kaj sentema anstataŭ malgaja kaj indiferenta; la Danke al hipnotismo oni ofte elvokis el dormanta paci-korpaj doloroj malaperis.
 
-ento ian duan personon. En tiu stato la paciento povas unue Þi memoras pri ĝio, kio okazis dum la normala stato; rekolekti multajn memora¼ojn, kiujn li en la normala stato male þia normala personeco nenion konas pri la dua, kiun 23
+ento ian duan personon. En tiu stato la paciento povas unue Þi memoras pri ĝio, kio okazis dum la normala stato; rekolekti multajn memora¼ojn, kiujn li en la normala stato male þia normala personeco nenion konas pri la dua, kiun
 
 oni tial rajtas nomi “subkonscia stato”. La periodoj de tiu La subkonscio ankaŭ montriĝas en la intelekta laboro, dua stato fariĝas pli kaj pli longedaŭraj.
 
@@ -729,13 +711,11 @@ subkonscion, naskis tute nature terapeŭtikojn de la nervaj malordoj. Oni prave 
 
 tgen-radioj: ĝi tiujn oni povas uzi unuflanke por malkaþi Hipnotismo kaj sugestiado devenas historie de “besta malsana¼on interne de histoj, aliflanke por ĝin kuraci.
 
-magnetismo”. Oni baldaŭ rimarkis, ke magnetismo aperigis Simile psikanalizo, klarigante la sekretan agadon de kelkajn gravajn faktojn, sed ke la interpretadoj de Mesmer 25
+magnetismo”. Oni baldaŭ rimarkis, ke magnetismo aperigis Simile psikanalizo, klarigante la sekretan agadon de kelkajn gravajn faktojn, sed ke la interpretadoj de Mesmer
 
 pri tiuj faktoj estis tute nesufiĝaj. Kontraŭ la teorio de uzis la vorton “hipnoto”. Charcot studis prefere statojn pli
 
-“fluido” stariĝis la ”animismo”, kiu klarigis la fenomenojn maloftajn de pli profunda dormo, Bernheim pli ordinarajn kiel kaŭzitajn de la imago de la paciento. Tie estas la unua statojn de duondormo. Æiukaze, hipnoto pli-malpli profun-
-
-ĝermo de la estontaj teorioj pri sugestio kaj sinsugestio.
+“fluido” stariĝis la ”animismo”, kiu klarigis la fenomenojn maloftajn de pli profunda dormo, Bernheim pli ordinarajn kiel kaŭzitajn de la imago de la paciento. Tie estas la unua statojn de duondormo. Æiukaze, hipnoto pli-malpli profunĝermo de la estontaj teorioj pri sugestio kaj sinsugestio.
 
 da þajnis al ĝiuj aŭtoroj kiel kondiĝo, se ne necesa, almenaŭ Aliflanke Braid studadis pli akurate la arte elvokitan favora al sugestio: Oni konstatis, ke en tiuj statoj de dormo dormon. Lia libro Nerva dormo (1843) atestas la naskiĝon aŭ duondormo la paciento facile akceptas ideojn propona-de scienca hipnotismo. Laŭ Braid, hipnoto (t.e. arte el-tajn al li de la hipnotiginto, kaj realigas ilin. El tio mem vokita dormo) kaj sugestio estas streĝe interrilataj, kaj tiun konsistas sugestio. Oni povas tiel sugestii ideojn de certaj koncepton akceptis poste la pliparto de la aŭtoroj, ĝis la agoj, kaj la paciento tre obeeme plenumas tiujn agojn, fino de la 19a jarcento. Krome, Braid aljuĝas gravecon al kelkfoje eksterordinarajn. Sammaniere oni sugestias al certaj fizikaj procedoj por la estigo de hipnoto: precipe li nervomalsanuloj resanigon de iliaj malordoj, kaj tiel la estigas tiun staton, petante, ke la paciento fiksu sian rigar-malordoj ofte malaperas.
 
@@ -750,7 +730,7 @@ ago (43), alivorte ago ne kontrolata de la konscia menso de
 
 la fama batalo – pri kiu ni tie ĝi povas nur memorigi – inter l’ paciento. Tiu teorio supozas, ke hipnoto estas stato favora la Pariza skolo de la hospitalo Salpêtrière kaj la Nancy-a al disiĝo de konscio kaj subkonscio: pere de tiu disiĝo skolo. Laŭ Charcot, ĝefa gvidanto de la unua skolo, hipnoto hipnoto estas ankaŭ favora al sugestio.
 
-estis nur estigebla per fizikaj procedoj ĝe certaj fiziologiaj La saman ideon esprimis iom poste Grasset per sia klara kondiĝoj (unuvorte ĝe histeriuloj), kaj hipnoto estis siavice kaj fama skemo de “multlatero”. Spirito similas multlate-necesa kondiĝo por sugestio. Kontraŭe, laŭ la Nancy-aj ron, kun ĝia centro O kaj ĝiaj verticoj A, B, C, k.t.p.La kuracistoj Liébeault kaj Bernheim, sugestio estis la precipa centro O figuras la konscian personecon, al kiu ni rilatigas fenomeno, kaj hipnoto mem estis ĝia rezultato; alivorte: oni ĝiujn niajn konsciajn impresojn kaj agojn, la centron de estigis hipnoton nur, trudante al la paciento la ideon, ke li persona kontrolo kaj volo. La verticoj A, B, C k.t.p.figuras tuj dormos. Verþajne la diskuto devenis de tiu fakto, ke la diversajn cerbajn centrojn, ekzemple centrojn de vidado, ambaŭ skoloj ne parolis tute pri la sama fenomeno, kiam ili aŭdado, legado, parolado k.t.p.Ni nomu A iun ricevan 26
+estis nur estigebla per fizikaj procedoj ĝe certaj fiziologiaj La saman ideon esprimis iom poste Grasset per sia klara kondiĝoj (unuvorte ĝe histeriuloj), kaj hipnoto estis siavice kaj fama skemo de “multlatero”. Spirito similas multlate-necesa kondiĝo por sugestio. Kontraŭe, laŭ la Nancy-aj ron, kun ĝia centro O kaj ĝiaj verticoj A, B, C, k.t.p.La kuracistoj Liébeault kaj Bernheim, sugestio estis la precipa centro O figuras la konscian personecon, al kiu ni rilatigas fenomeno, kaj hipnoto mem estis ĝia rezultato; alivorte: oni ĝiujn niajn konsciajn impresojn kaj agojn, la centron de estigis hipnoton nur, trudante al la paciento la ideon, ke li persona kontrolo kaj volo. La verticoj A, B, C k.t.p.figuras tuj dormos. Verþajne la diskuto devenis de tiu fakto, ke la diversajn cerbajn centrojn, ekzemple centrojn de vidado, ambaŭ skoloj ne parolis tute pri la sama fenomeno, kiam ili aŭdado, legado, parolado k.t.p.Ni nomu A iun ricevan
 
 centron (ekzemple centron de aŭdado)kaj B iun agan ĝe personoj suferantaj pro malbona kutimo, kiun ili ne centron (ekzemple centron de parolado). Kiam mi aŭdas povis venki per si mem.
 
@@ -762,9 +742,7 @@ la energio ne estas A-B (latero de la multlatero) sed A-O-B.
 
 Æu tamen tiu metodo estas tute sendanĝera? Oni rajtas Male ĝe la paciento en hipnota dormo, la vojo estas A-B.
 
-pensi, ke la hipnotiganto restarigas ordon ĝe la paciento, Tio signifas, ke tiu paciento respondas aŭtomate, senkon-iom sammaniere kiel la aŭstria imperio iam restarigis trole: ĝu li nur ripetas la aŭditan demandon, ĝu li respondas ordon en Bosnio, okupante ĝin militiste kaj ne plu konsen-
-
-ĝin senpripense, akceptante laŭ miriga obeemo la ideojn tante poste, ĝin forlasi. Oni ofte esprimis la timon, ke la proponitajn de la hipnotiganto. Oni povas diri, ke A volo de l’ hipnotiganto ne nur momente, sed daŭre ansta-funkciigis aŭtomate B, sen interhelpo de la centro O. Oni taŭu la personan kontrolon de la paciento. Tiu timo ne estas komprenas nun la formulon de Grasset: En la hipnota stato, tute taŭga; ni hodiaŭ scias, ke la submetiĝo de paciento al
+pensi, ke la hipnotiganto restarigas ordon ĝe la paciento, Tio signifas, ke tiu paciento respondas aŭtomate, senkon-iom sammaniere kiel la aŭstria imperio iam restarigis trole: ĝu li nur ripetas la aŭditan demandon, ĝu li respondas ordon en Bosnio, okupante ĝin militiste kaj ne plu konsenĝin senpripense, akceptante laŭ miriga obeemo la ideojn tante poste, ĝin forlasi. Oni ofte esprimis la timon, ke la proponitajn de la hipnotiganto. Oni povas diri, ke A volo de l’ hipnotiganto ne nur momente, sed daŭre ansta-funkciigis aŭtomate B, sen interhelpo de la centro O. Oni taŭu la personan kontrolon de la paciento. Tiu timo ne estas komprenas nun la formulon de Grasset: En la hipnota stato, tute taŭga; ni hodiaŭ scias, ke la submetiĝo de paciento al
 
 “la multlatero de la paciento estas emancipata de ĝia centro hipnotiginto estas pliparte fakto de memsugestio: la paci-O”, kio signifas alivorte, ke la subkonscio de la paciento ne ento estas senkondiĝe submetita al tiu volo de aliulo, nur se plu estas regata de lia konscia kontrolo. Grasset aldonas, ke li kredis, ke tio okazos. Tamen oni rajtas dubi, ke tiu tiam “la multlatero de la paciento obeas la centron O de la enmiksiĝo de aliulo estas la plej oportuna solvo de la hipnotiganto.” El tiu obeemo konsistas sugestio.(44)
 
@@ -774,7 +752,7 @@ Oni ankaŭ nun komprenos la gravecon de tiuj faktoj por Oni kompreneble riproĝi
 
 noj de tiu kontrolo. Æe la nerva malsanulo, la centro O, t.e.
 
-Ni ankaŭ pensas, ke tiu riproĝo (tre proksima al la an-la konscia kontrolo, estas tro malforta por regi la multlate-taŭa) ne estas tute prava: ĝar oni eĝ kuracis per hipnoto ron. Nu, per la hipnota sugestio la volo de la hipnotiganto kazojn de dupartiĝo de personeco similajn al tiu de Felida, anstataŭas momente tiun centron kaj trudas obeemon al la pri kiu ni iom antaŭe parolis. Alivorte, oni resubmetis la ribela multlatero: Fakte, oni forigis per tiu metodo multajn elglitintan “Mi” sub la regadon de la precipa “Mi”; oni nervajn kaj karakterajn malordojn. Oni restarigis kontrolon obeigis la tendencojn kaj impulsojn, kiuj volis aŭtomate kaj senkontrole funkcii; do oni restarigis la memdisciplinon, 27
+Ni ankaŭ pensas, ke tiu riproĝo (tre proksima al la an-la konscia kontrolo, estas tro malforta por regi la multlate-taŭa) ne estas tute prava: ĝar oni eĝ kuracis per hipnoto ron. Nu, per la hipnota sugestio la volo de la hipnotiganto kazojn de dupartiĝo de personeco similajn al tiu de Felida, anstataŭas momente tiun centron kaj trudas obeemon al la pri kiu ni iom antaŭe parolis. Alivorte, oni resubmetis la ribela multlatero: Fakte, oni forigis per tiu metodo multajn elglitintan “Mi” sub la regadon de la precipa “Mi”; oni nervajn kaj karakterajn malordojn. Oni restarigis kontrolon obeigis la tendencojn kaj impulsojn, kiuj volis aŭtomate kaj senkontrole funkcii; do oni restarigis la memdisciplinon,
 
 kaj oni ja atingis tiun rezultaton per hipnota sugestio. Oni praktika idealo estas la plej efika forto por starigi aŭ resta-devas tamen rimarkigi, ke tiuj kuracadoj uzas aŭtomata¼ojn rigi sanan vivon.
 
@@ -798,7 +776,7 @@ malkaþe kontraŭbatali la nervajn malordojn per moralins-Dum la sugestianoj tut
 
 subkonscion, la duaj volas nepre tiun disiĝon eviti. Ili Dubois kaj liaj disĝiploj, inter kiuj la plej fama estas pensas, ke sugestio estas kontraŭa al la indeco de la paci-Déjerine en Paris, moralinstruas la nervomalsanulojn, ento; ili volas, ke oni ne trudu al li ideon “tra la malantaŭa diskutante kun ili la problemojn pri libereco, respondeco, pordo”.
 
-egoismo, altruismo, k.t.p.Ili asertas senĝese, ke racia kaj 28
+egoismo, altruismo, k.t.p.Ili asertas senĝese, ke racia kaj
 
 Sed tiuj distingoj estas iom teoriaj. Fakte, la disiĝo de Tiu metodo estas certe pli eduka. Øia precipa merito konscio kaj subkonscio, eĝ en hipnota dormo, estas neniam estas, ke ĝi rimarkigis la eblecon de iu edukado por la perfekta; la paciento povas ankoraŭ ĝis iu grado diskuti kaj nervaj malsanuloj, por la malfortaj karakteroj. Poste aperis rifuzi, kaj ĝiu sugestio entenas parton de persvado. Same dum la lastaj jardekoj diversaj metodoj de “reedukado”, ĝiu persvado entenas parton de sugestio. La ¼us citita teksto inter kiuj ni nomu la interesan kaj simplan metodon de de Dubois montras tion klare. Spite de la atakoj de la
 
@@ -845,7 +823,7 @@ Sed kelkaj esploradoj de Breuer baldaŭ kondukis Freud-Breuer studis sammaniere 
 
 sono kaj sukcesis klarigi ilin per similaj kaŭzoj, per emoci-La malsanulino de Breuer, kiu havis la honoron, esti la oj pli-malpli forgesitaj kaj en hipnota stato reaperantaj.
 
-unua pacientino de psikanalizo, estis 21-jara fraŭlino, kiu Æiuj malordoj estis naskiĝintaj en epoko, kiam la fraŭlino suferis pro histeriaj simptomoj. Dum la du jaroj, kiam þi flegis sian malsanan patron. Þi havis larmojn en la okuloj, estis observata, þi elmontris iom diversajn malordojn: kiam þia patro demandis þin pri la horo; la larmoj malper-kontrakturo kaj anestezio de ambaŭ dekstraj ekstrema¼oj, aŭ mesis, ke þi legu je la horloĝo, kiu krome þajnis al þi pli kelkfoje de ambaŭ maldekstraj; malordoj en la okulaj movoj granda; tio sufiĝis por estigi la okulajn malordojn. Alifoje kaj en vidkapablo; malfacileco en rekta tenado de la kapo; þisidis ĝe la litkapo de sia patro, apogante la dekstran nerva tuso. Þi elmontris precipe naŭzon al ĝiu nutra¼o kaj brakon sur la seĝdorso. Þi tiel dronis en duondormo kaj 30
+unua pacientino de psikanalizo, estis 21-jara fraŭlino, kiu Æiuj malordoj estis naskiĝintaj en epoko, kiam la fraŭlino suferis pro histeriaj simptomoj. Dum la du jaroj, kiam þi flegis sian malsanan patron. Þi havis larmojn en la okuloj, estis observata, þi elmontris iom diversajn malordojn: kiam þia patro demandis þin pri la horo; la larmoj malper-kontrakturo kaj anestezio de ambaŭ dekstraj ekstrema¼oj, aŭ mesis, ke þi legu je la horloĝo, kiu krome þajnis al þi pli kelkfoje de ambaŭ maldekstraj; malordoj en la okulaj movoj granda; tio sufiĝis por estigi la okulajn malordojn. Alifoje kaj en vidkapablo; malfacileco en rekta tenado de la kapo; þisidis ĝe la litkapo de sia patro, apogante la dekstran nerva tuso. Þi elmontris precipe naŭzon al ĝiu nutra¼o kaj brakon sur la seĝdorso. Þi tiel dronis en duondormo kaj
 
 vidis sonĝe aŭ halucinacie serpenton, kiun þi volis forpeli; bildoj sin elvokas unu la alian. Sed se iu bildo estas mala-sed þia dekstra brako þajnis al þi senviva; tio estis la origino grabla al la konscio de la dormanto, ĝi estas aŭtomate de la kontrakturo kaj anestezio.
 
@@ -867,7 +845,7 @@ sonĝoj.(50) Ne kredu, ke oni volu tiel malkaþi la estontecon!
 
 ĝiam sufiĝas por ĝin klarigi. Sed kiam, okaze de kelkaj La afero estas multe pli simpla. Sonĝo aperas al la psika-sonĝoj, la paciento ripetas la samajn asociojn, oni rajtas nalizistoj kiel alivestiĝo de la intimaj kaj pli-malpli konkludi, ke la tiel trafitaj ideoj havas iun gravecon por li subkonsciaj zorgoj de la persono. Oni facile komprenos tiun kaj estis pli-malpli kaþataj sub la diversaj sonĝoj.
 
-fakton per la leĝoj de la ideasociado. La ideoj, la imagaj 31
+fakton per la leĝoj de la ideasociado. La ideoj, la imagaj
 
 
 Eble þi prezentas ankaŭ korpajn malordojn: ekzemple la menstruo|menstruacio tute ne aperas. Freud klarigus tian Sed la psikanaliza esplorado kondukis iom post iom al okazon, parolante pri ia “samsekseca” tendenco, subpre-pli vasta koncepto, al teorio pri evoluado de l’ instinkto.
@@ -906,9 +884,7 @@ arto, religio, havas tre malnoblan instinktan originon. La Ida devenas el famili
 
 “platonigi” kaj spiritigi laŭforme de la asketa heroeco de elmontra¼aĝo, kun signifoplenaj gestoj. De tiu momento mona¶o aŭ sanktulo. Koncerne la seksan instinkton, la komenciĝis la nervaj malordoj de la junulino.
 
-psikanalizistoj interkonsentas pri la ĝeesto de ĝiaj elemen-De tiam, ĝiumonate je la menstruo|menstruacio, þi sufe-toj iom ĝie, menciinde en la mistika fervoro kaj en la ras dum kelkaj tagoj pro mensa kaj nerva atako, kiu ofte sindonemo, kiuj karakterizas la kvazaŭ patrinan humane-
-
-þajnas iom grava. Tiu atako aperas alterne laŭ du aspektoj: con de la bonfarfratino. Psikanalizisto, kiu volas eduke foje oni konstatas fobiojn, halucinaciojn, delirajn parola-agadi, devos neniam forgesi tiun ekvivalentecon de certaj dojn kun persekutideoj, foje Ida ordigas objektojn, instinktoj, kapablaj sin reciproke anstataŭi, havante saman kreska¼ojn, vesta¼ojn, pupojn, elegante kaj afekte, ne sen iu originon; li tiel pli facile certajn alivojigojn sugestios kaj eksciteco. Ambaŭ specoj de atako estas komplementaj; precipe sukcesos uzi la afektajn fortojn, tro ofte senfruktajn, kiam la unua formo aperas, la dua forestas. Krome oni
+psikanalizistoj interkonsentas pri la ĝeesto de ĝiaj elemen-De tiam, ĝiumonate je la menstruo|menstruacio, þi sufe-toj iom ĝie, menciinde en la mistika fervoro kaj en la ras dum kelkaj tagoj pro mensa kaj nerva atako, kiu ofte sindonemo, kiuj karakterizas la kvazaŭ patrinan humaneþajnas iom grava. Tiu atako aperas alterne laŭ du aspektoj: con de la bonfarfratino. Psikanalizisto, kiu volas eduke foje oni konstatas fobiojn, halucinaciojn, delirajn parola-agadi, devos neniam forgesi tiun ekvivalentecon de certaj dojn kun persekutideoj, foje Ida ordigas objektojn, instinktoj, kapablaj sin reciproke anstataŭi, havante saman kreska¼ojn, vesta¼ojn, pupojn, elegante kaj afekte, ne sen iu originon; li tiel pli facile certajn alivojigojn sugestios kaj eksciteco. Ambaŭ specoj de atako estas komplementaj; precipe sukcesos uzi la afektajn fortojn, tro ofte senfruktajn, kiam la unua formo aperas, la dua forestas. Krome oni
 
 ĝar ili ne trafis sian taŭgan objekton.”(51)
 
@@ -935,9 +911,7 @@ aperigas la egoisman kernon de neŭrozo; ĝi asertas, ke Tamen ofte sugestiistoj
 
 precipe produkto de subpremo. Tiel spontanea amemo Estas eĝ punkto, kie la kontraŭdiroj de moralistoj kaj rigidiĝas en infano, kies amemaj gestoj estas malvarme psikanalizistoj koincidas: ambaŭ konsilas, ke oni konsentu akceptataj de la ĝirkaŭuloj. Tiu infano povas “sin fermi”
 
-pli grandan aŭtonomion al la paciento, ke oni estu malpli lia mastro ol lia gvidanto. Krome tiu konsilo. estas konfor-34
-
-ma al la tuta movado de la modernaj edukadaj ideoj, kaj Kiam nia atento koncentriĝas al la ideo de iu aliiĝo en necese estis, ke ankaŭ la sugestiistoj ĝin fine konsideru.
+pli grandan aŭtonomion al la paciento, ke oni estu malpli lia mastro ol lia gvidanto. Krome tiu konsilo. estas konforma al la tuta movado de la modernaj edukadaj ideoj, kaj Kiam nia atento koncentriĝas al la ideo de iu aliiĝo en necese estis, ke ankaŭ la sugestiistoj ĝin fine konsideru.
 
 nia spirita aŭ korpa esta¼o, tiu aliiĝo fakte okazas laŭeble.
 
@@ -965,7 +939,7 @@ Iu tuþas vesta¼on, ekscias, ke ĝin surhavis persono mal-kaj lia forto konsist
 
 kiun liaj posteuloj pli kaj pli precize kaj science studos. Mi celis en du el miaj libroj starigi fundamenton por tiu La ideo de iu movo povas tiun movon estigi. Oni osce-studado. Mi rapide resumos tie ĝi la ĝefajn ideojn de tiuj das, vidante alian oscedi. Oni same imitas nevole vizaĝan verkoj.
 
-konvulsieton de alia persono. Ni memorigu ankaŭ tie ĝi pri 35
+konvulsieton de alia persono. Ni memorigu ankaŭ tie ĝi pri
 
 la eksperimentoj de la Chevreul-a pendolo. Multaj fenome-atenton, kaj la sugestio ekfunkciis; ktopodoj kontraŭ ĝi nur noj, ofte prezentataj kiel spiritismaj elmontra¼oj, estas helpis ĝin. Same kiam oni senvole ridegas, kiam artisto sur multe pli simple klarigeblaj kiel memsugestiaj movoj.
 
@@ -988,7 +962,7 @@ kiu lernas uzi bicikleton. Kiam oni ankoraŭ mallerte Klopodi kontraŭ ektimo ek
 
 “mi ektimas” per la taŭga “mi memkonfidas”, tio estas la Æiuj frenezaj klopodoj kaj gvidilturnoj dekstren-unua tasko, kaj tion oni atingas per metode praktikata maldekstren, por eviti la objekton, estigas fine rezultaton, sugestio, per “intenca sugestio”.
 
-kiu onndukas precipe al ĝi. La objekto ekkaptis la 36
+kiu onndukas precipe al ĝi. La objekto ekkaptis la
 
 Kio estas tiu sugestio? Ni vidis, ke la ideo, en iuj kon-ambaŭ malaj ideoj tendencas realiĝi per sugesto kaj sin diĝoj, ekfunkciigas forto,n, kiu per subkonscia progreso reciproke neŭtrigas parte aŭ tute.
 
@@ -1010,7 +984,7 @@ laboro.
 
 Eĝ supoze ke nia sugesto ne celus forigi maltaŭgan an-Ni devas aldoni, ke oni sola tre malofte sukcesas facile taŭan sugeston, la malhelpa¼o ĝeestus. Ni klopodos por kaj rapide lerni sinsugestion. La plimulto bezonas eksteran koncentrigi nian atenton; sed en ĝiu klopodo ekzistas helpon.
 
-samtempe ideo pri celo kaj ideo pri malhelpa¼o aŭ baro: tiuj 37
+samtempe ideo pri celo kaj ideo pri malhelpa¼o aŭ baro: tiuj
 
 Tiu helpo konsistas precipe el “sugestio elvokata” per la intencojn de aliuloj. Provis vane la plej diversajn kura-sugestanto: ĝar estus erare, tute forlasi, pretekste de sinsu-cilojn.
 
@@ -1040,7 +1014,7 @@ Post kvar monatoj ĝiuj malordoj malaperis. Li tute ne plu fumas.
 
 **3. ** Fraŭlino 39-jara, scienca doktorino. Malfacileco de l’
 
-intelekta laboro, memormankoj, afliktaj ideoj, maltrankvi-leco, incitebleco; sentas, ke þi estas malprave ema, suspekti 38
+intelekta laboro, memormankoj, afliktaj ideoj, maltrankvi-leco, incitebleco; sentas, ke þi estas malprave ema, suspekti
 
 **2. ** La **racion**, kiun la antikva filozofio eble iom tro ekskluzive kultis, oni tamen ne malþatu kiel ilon por nia memdisciplino.
 
@@ -1056,7 +1030,7 @@ persvadado, el kiu Dubois starigis terapeŭtikan sistemon, tute fidas al la ĝiu
 
 elĝerpas sian forton el la sama leĝo pri kutimeco, kaj la kristanoj ne hontas paroli pri “pieco-ekzercoj”. Prave tiu **3. ** Sed la plej ekzercita volo, la plej hardita racio ne es-principo estas unu el la plej þatataj de la modernaj aŭtoroj, tas ĝiopovaj. Unu el la bonfaroj de Kristanismo estas, ke gi kiuj skribas pri “voledukada”; la plej nova psikoterapio, ekkonigis iliajn limojn. Tiujn limojn la nuna scienco pli sinsugestiado, konsilas ankaŭ konstante ĝiutagan praktika-ekzakte esploras, malkaþante la subkonscion. Oni memoras, don.
 
-ke unu el la precipaj leĝoj de sinsugestio – la leĝo pri 39
+ke unu el la precipaj leĝoj de sinsugestio – la leĝo pri
 
 kontraŭaganta klopodo – prezentas al ni okazojn, kie la geologiaj tavoloj; la supra¼aj tavoloj apartenus nur al la volo ne nur estas senpova, sed eĝ efikas kontraŭ si mem.
 
@@ -1074,7 +1048,7 @@ kuraĝigantan evangelion de Emerson. Fine sugestiado kaj Ambaŭ konsistas el ide
 
 de la volo kaj enpensigon. Kelkajn piajn spiritojn mal-Koncerne la ekzercojn taŭgajn por plifaciligi koncentri-trankviligis tiu komparo, kiu sin altrudis al ili; oni eĝ gon de la spirito, la hindoj jam konis la fiksadon de la skribis al mi pri tio, demandante: “Æu oni devas konsideri rigardo al brilpunkto. La katolika eklezio servigas en sia preĝon nur kiel alian formon de sinsugestio?” Mi respon-ceremoniaro la unutonajn stimuladojn de la sentiloj, unuto-dis, ke el la scienca vidpunkto (t.e. vidpunkto de nura ne ripetatajn formulojn. Hodiaŭ la scienca hipnotismo konstatado) ambaŭ faktoj devas aperi kiel samspecaj, sed ne siaflanke trafas similajn procedojn.
 
-nepre identaj. Laŭ la religia vidpunkto, oni ĝiam rajtas Koncerne la momentojn helpajn al koncentrigo, la opi-akcepti la koncepton, kiu komparas subkonscion al serio de nioj ankaŭ kongruas. Pitagoro kaj stoikanoj konsilas 40
+nepre identaj. Laŭ la religia vidpunkto, oni ĝiam rajtas Koncerne la momentojn helpajn al koncentrigo, la opi-akcepti la koncepton, kiu komparas subkonscion al serio de nioj ankaŭ kongruas. Pitagoro kaj stoikanoj konsilas
 
 enpensiĝon tuj post vekiĝo; la kristanoj havas la matenan Komence de mia studo, mi riproĝis al multaj doktrinoj, kaj vesperan preĝojn; fine oni admonas, ke ni praktiku ke ili proponis al ni celojn, sed ne provizis nin per la iloj sinsugestion tuj post vekiĝo kaj ¼us antaŭ dormo. Oni povas por atingi tiujn celojn. Æu la konsiloj, kiujn ni tie ĝi ko-tion klarigi, dirante, ke apudeco de dormo estas ankaŭ lektis, estas iom pli praktikaj kaj praktikeblaj ?
 
@@ -1093,7 +1067,7 @@ Du danĝerojn oni devas timi. Dirante, ke ĝiu povas ĝion persvadado kaj psikan
 la moralan malfortecon, oni instigas multajn personojn senkulpigi sin tro facile. La etikoj estus pravaj, ekkonante,
 
 
-laŭ la ekzemplo de la psikoterapioj, ke iuj patologiaj statoj grave kontraŭstaras al nia memregado, kaj ke utile estas, unue forigi tiujn baro,in. Sed aliflanke la psikoterapioj 41
+laŭ la ekzemplo de la psikoterapioj, ke iuj patologiaj statoj grave kontraŭstaras al nia memregado, kaj ke utile estas, unue forigi tiujn baro,in. Sed aliflanke la psikoterapioj
 
 estus pravaj, penetrigante pli kaj pli per etika idealo kaj memorante la vertojn de Foerster:
 
@@ -1140,7 +1114,7 @@ La *administracio* konsistas el: Prof. C. Baudouin, gvidanto, S-roj H. Mugnier, 
 
 Æirkaŭ la Instituto *grupiĝas Internacia Societo por* *Psikagogio kaj Psikoterapio*. Øi kunigas personojn, kiuj interesiĝas je tiuj demandoj, bezonas konsilojn de la Instituto aŭ deziras ĝin mone helpi. (La Instituto vivas nur per bonvola helpado.)
 
-La kotiza¼oj estas tiel fiksitaj: Por korespondanta membro minimume 5 svis. frankoj jare; por aktiva membro 43
+La kotiza¼oj estas tiel fiksitaj: Por korespondanta membro minimume 5 svis. frankoj jare; por aktiva membro
 
 (8)
 
@@ -1148,7 +1122,7 @@ La kotiza¼oj estas tiel fiksitaj: Por korespondanta membro minimume 5 svis. fra
 
 (9)
 
-**Mark-Aŭrelo, Pensoj**, ĝap. XXVII, § 30
+**Mark-Aŭrelo, Pensoj**, ĝap. XXVII, §
 
 (10) **Epiktetes, Lernolibro**, § 12.
 
@@ -1156,7 +1130,7 @@ La kotiza¼oj estas tiel fiksitaj: Por korespondanta membro minimume 5 svis. fra
 
 (12) -, la sama verko, cap. XIX, § 22.
 
-(13) -, la sama verko, cap. XX, § 5
+(13) -, la sama verko, cap. XX, §
 
 
 ## **Aldono IIa**

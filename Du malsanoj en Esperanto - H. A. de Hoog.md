@@ -14,18 +14,11 @@ DU MALSANOJ EN ESPERANTO
 
 H. A. de Hoog
 
-DU MALSANOJ EN ESPERANTO
 
 Kia-ismo — Tiom-kiom-ismo
 
 
-@omnibus.se
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-ANTAŭPAROLO
+ANTAŬPAROLO
 
 La enhavo de ĉi tiu libreto estas represo de artikolserio, kiu aperis en la rubriko ”Nia Lingvo” sur la paĝoj de Dia Regno, organo de KELI (Kristana Esperantista Ligo Internacia),
 
@@ -33,21 +26,15 @@ en la jaroj 1949-1952.
 
 De diversaj flankoj oni petis la redakcion aŭ min mem
 
-aperigi ĝin en libroformo, por ke ĝi trovu pli ampleksan leg-
+aperigi ĝin en libroformo, por ke ĝi trovu pli ampleksan legantaron. Mi estas tre danka al la eldoninto, ke li ebligas la ple-numon de tiu peto.
 
-antaron. Mi estas tre danka al la eldoninto, ke li ebligas la ple-numon de tiu peto.
-
-Starigite antaŭ la demando aperigi la traktaton en ĝia ori-
-
-ginala formo aŭ nur post reverkado kaj reviziado, mi decidis
+Starigite antaŭ la demando aperigi la traktaton en ĝia originala formo aŭ nur post reverkado kaj reviziado, mi decidis
 
 post profunda konsidero elekti la unuan metodon. Multaj ja
 
 timas la ”sekecon” de temoj gramatikaj kaj mi kredas, ke la
 
-nuna formo, en kiu diversaj paragrafoj estas respondoj al ri-
-
-cevitaj demandoj, aproboj aŭ kritikoj, povas multe kontribui
+nuna formo, en kiu diversaj paragrafoj estas respondoj al ricevitaj demandoj, aproboj aŭ kritikoj, povas multe kontribui
 
 al la vivanteco de la traktado.
 
@@ -61,26 +48,17 @@ la verkado de miaj artikoloj per siaj aproboj, konsiloj aŭ kritikoj.
 H. A. de Hoog
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 I
 
 KARAKTERO DE LA VORTO KIEL
 
 §1
 
-La plej malfacila vorto en Esperanto sendube estas la ĉi su-
+La plej malfacila vorto en Esperanto sendube estas la ĉi supra, senkulpe aspektanta kvarlitera vorteto.
 
-pra, senkulpe aspektanta kvarlitera vorteto.
+En la lastaj vesperoj, komparante, ordigante kaj klasifikante miajn notojn, mi preskaŭ sentis koleron, abomenon, eĉ
 
-En la lastaj vesperoj, komparante, ordigante kaj klasifi-
-
-kante miajn notojn, mi preskaŭ sentis koleron, abomenon, eĉ
-
-furiozon, ĉar ĉiam denove, kiam mi kredas min trovinta kon-
-
-tentigan kaj sisteman grupigon, mi renkontas ian ”kiel” kiu
+furiozon, ĉar ĉiam denove, kiam mi kredas min trovinta kontentigan kaj sisteman grupigon, mi renkontas ian ”kiel” kiu
 
 ne volas adaptiĝi al mia sistemo kaj kvazaŭ rikanante eskapas
 
@@ -98,9 +76,7 @@ multege da jaroj de post la momento kiam mi legis la ĉarman
 
 Kion fari? Deklari sin venkita de tiu simpla kvarlitero?
 
-(kara leganto, rimarku la belan inventon, kiu naskis tiun las-
-
-tan vorton! Inversa efiko! dank’al Kalocsay!)
+(kara leganto, rimarku la belan inventon, kiu naskis tiun lastan vorton! Inversa efiko! dank’al Kalocsay!)
 
 Unusence, jes, mi estas venkita kaj rezignas pri la honoro
 
@@ -113,9 +89,6 @@ konvenan okazon elmeti la malfacilaĵojn kiujn oni renkontas
 Kie estas ĝia loko en nia kara centjarojn-malnova sistemo
 
 de vortspecoj?
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 §2
@@ -144,9 +117,7 @@ nomo sur la tuta tero! (Ps. 8:9).
 
 §3
 
-La demanda adverbo kiel povas esti la unua vorto de nerek-
-
-ta demando. En tiu okazo la adverba karaktero estas klara,
+La demanda adverbo kiel povas esti la unua vorto de nerekta demando. En tiu okazo la adverba karaktero estas klara,
 
 sed samtempe la adverbo jam havas iomete la karakteron de
 
@@ -162,12 +133,7 @@ turo estas.
 
 Sed post ĉefpropozicio kiu neniel esprimas demandon, ni
 
-havas jam novan kazon, nome la adverba karaktero pli mal-
-
-fortiĝas kaj la konjunkcia karaktero fariĝas pli forta.
-
-
-DU MALSANOJ EN ESPERANTO
+havas jam novan kazon, nome la adverba karaktero pli malfortiĝas kaj la konjunkcia karaktero fariĝas pli forta.
 
 
 f.
@@ -176,9 +142,7 @@ konjunkcia adverbo.
 
 Mi scias kiel tio estas farata. Ni vidis kiel unu cigno frapis per siaj flugiloj la marmoran rokon. (”Fabeloj” de And.).
 
-Faru kiel oni ordonas al vi. Vidu kiel bona estas la Eternu-
-
-lo (Ps. 34: 8). Maria rigardis kiel la maljuna mano trans-
+Faru kiel oni ordonas al vi. Vidu kiel bona estas la Eternulo (Ps. 34: 8). Maria rigardis kiel la maljuna mano trans-
 
 kuras la paperon (Fab. de And.).
 
@@ -208,9 +172,7 @@ h. konjunkcio.
 
 Da reĝa vino estis multe, kiel decis al la reĝo (Ester 1: 7)
 
-Li fariĝis profesoro, kiel mi jam atendis antaŭe. Ili ne be-
-
-zonis almoze levi la manon, kiel ili asertis kun fiero. (Fab.
+Li fariĝis profesoro, kiel mi jam atendis antaŭe. Ili ne bezonis almoze levi la manon, kiel ili asertis kun fiero. (Fab.
 
 de And.) Vivis iam viro, severa kredanto, kiel oni diris pri
 
@@ -221,18 +183,13 @@ fendo, kiel ŝi konfesas (Faulhaber, Nevenkebla ĝeno).
 En tiaj frazoj la enigma vorto kiel preskaŭ tute aŭ tute
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 perdis sian originan sencon. i ne plu esprimas manieron aŭ
 
 gradon, sed estas nura gramatika ligilo.
 
 Tio denove pruvas la aserton de la granda gramatikisto
 
-Kruisinga: ”La konjunkcieco de iu vorto estas en inversa ri-
-
-lato kun ĝia semantika individueco”.
+Kruisinga: ”La konjunkcieco de iu vorto estas en inversa rilato kun ĝia semantika individueco”.
 
 §7
 
@@ -242,37 +199,22 @@ gramatikistoj kiuj nomas la vorton kiel uzitan en tiaj frazoj ne konjunkcio, sed
 
 Efektive, ankaŭ tiu opinio estas pravigebla. Nome, rilata
 
-pronomo povas havi tutan propozicion kiel antecedenton (ri-
+pronomo povas havi tutan propozicion kiel antecedenton (rilataton).
 
-lataton).
+Esperanto uzas en tiaj kazoj la rilat-pronomon kio. Komparu nun la lastan frazon el par. 6 kun:
 
-Esperanto uzas en tiaj kazoj la rilat-pronomon kio. Kom-
-
-paru nun la lastan frazon el par. 6 kun:
-
-Plej multan laboron kaŭzis al panjo la fendo, kion ŝi kon-
-
-fesis nur poste.
+Plej multan laboron kaŭzis al panjo la fendo, kion ŝi konfesis nur poste.
 
 §8
 
 Mi neniel kuraĝas aserti ke per miaj ekzemploj la tuta ŝtuparo inter la adverbo kiel kaj la konjunkcio estas ilustrita. Ankaŭ mi ne asertas ke estas necese fari tiom da distingoj. Mi nur
 
-volas pruvi ke la gramatiko de iu lingvo, ankaŭ de Esperan-
+volas pruvi ke la gramatiko de iu lingvo, ankaŭ de Esperanto, estas komplika afero, simple pro la fakto ke la lingvo estas instrumento de la homa menso, la plej komplika afero en la
 
-to, estas komplika afero, simple pro la fakto ke la lingvo estas instrumento de la homa menso, la plej komplika afero en la
-
-mondo. Mia intenco estas iom averti kontraŭ la ”teruraj sim-
-
-pligantoj”, kiuj ne vidas distingojn kaj kunbalaas ĉiujn kazojn en unu grandan rubaĵon.
+mondo. Mia intenco estas iom averti kontraŭ la ”teruraj simpligantoj”, kiuj ne vidas distingojn kaj kunbalaas ĉiujn kazojn en unu grandan rubaĵon.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-Unu frazo povas aparteni al du kategorioj, sed ne sam-
-
-tempe; tio dependas de la senco.
+Unu frazo povas aparteni al du kategorioj, sed ne samtempe; tio dependas de la senco.
 
 Prenu ekzemple la Zamenhofan frazon (el Fabeloj): Li
 
@@ -307,25 +249,18 @@ plenumantoj. (Fab. de And. III 50.)
 La manieron kiel konduti en bona societo, li neniam eller-
 
 
-Tio estas bona ekzemplo kiel oni devas agi por havi sukce-
-
-son.
+Tio estas bona ekzemplo kiel oni devas agi por havi sukceson.
 
 Li donis al mi klarigon kiel li venkis la malfacilaĵojn.
 
 Tiu libro enhavas la rakonton kiel ŝi fariĝis reĝino.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §10
 
 Dualoke la rilata vorto kiel povas alpreni la karakteron de
 
-rilata pronomo aŭ prepozicio laŭ tio, ĉu ĝi enkondukas epi-
-
-tetan subpropozicion aŭ solan vorton.
+rilata pronomo aŭ prepozicio laŭ tio, ĉu ĝi enkondukas epitetan subpropozicion aŭ solan vorton.
 
 Ekz: Kiel funkcias kiel prepozicio en:
 
@@ -335,9 +270,7 @@ Ekz: Kiel funkcias kiel prepozicio en:
 
 3. Ne ekzistas faroj kiel Viaj faroj. (Ps. 86: 8)
 
-4. ĉu vi ne scias ke tia homo kiel mi facile divenos? (Gene-
-
-zo 44: 15)
+4. ĉu vi ne scias ke tia homo kiel mi facile divenos? (Genezo 44: 15)
 
 i funkcias kiel rilata pronomo en ekz.:
 
@@ -362,20 +295,13 @@ Mi petos la presiston presi la lastan frazon per la plej
 ”grasaj” litertipoj pri kiuj li disponas. ĉar multaj nuntempaj Esperantistoj, fervoraj ĉasistoj post ”pli logikaj formoj” pretervidas intence aŭ eble pro blindeco la simplan konstaton
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 kiun ĝi enhavas. Nur en esceptaj kazoj Zamenhof uzas
 
-”kiom” aŭ ”kia” en kompara senco, kaj tiam ĉiam en korela-
-
-tiveco kun tiom aŭ tia.
+”kiom” aŭ ”kia” en kompara senco, kaj tiam ĉiam en korelativeco kun tiom aŭ tia.
 
 Per sia elekto de kiel Zamenhof faris gravan simpligon
 
-kompare kun la maniero laŭ kiuj naciaj lingvoj esprimas komparojn. Tie oni uzas adverbojn, prepoziciojn aŭ konjunkciojn por tiu funkcio kaj ofte ia prepozicio estas uzata kon-
-
-junkcie aŭ inverse.
+kompare kun la maniero laŭ kiuj naciaj lingvoj esprimas komparojn. Tie oni uzas adverbojn, prepoziciojn aŭ konjunkciojn por tiu funkcio kaj ofte ia prepozicio estas uzata konjunkcie aŭ inverse.
 
 La nederlanda lingvo havas ”als” kaj ”gelijk”, la angla ”as”
 
@@ -389,9 +315,7 @@ estas ekstreme vulgare”.
 
 Aliaj kontestas tion pro la simpla fakto ke la lingvofaranta
 
-amaso ne sekvas tiun regulon! Gaja ŝercemulo kiel Prof. Lea-
-
-cock ridindigas la nenecesan distingon, kaj ĉiu povas konklu-
+amaso ne sekvas tiun regulon! Gaja ŝercemulo kiel Prof. Leacock ridindigas la nenecesan distingon, kaj ĉiu povas konklu-
 
 di ke la simileco inter prepozicioj kaj konjunkcioj estas tiel granda ke estas ofte tute neeble distingi inter ambaŭ specoj.
 
@@ -401,61 +325,37 @@ tian kaj daŭrigas sensencajn disputojn pri tiaj aferoj, asertan-te ekzemple: �
 
 povas esti konjunkcio”.
 
-Aliflanke ekzistas nenia fiksa limo inter adverboj kaj pre-
-
-pozicioj. Eĉ en Esperanto adverboj estas uzataj prepozicie,
+Aliflanke ekzistas nenia fiksa limo inter adverboj kaj prepozicioj. Eĉ en Esperanto adverboj estas uzataj prepozicie,
 
 ekz: ”rilate tion, koncerne min k. c. En tiu kazo la ”akuzativa”
 
-n estas aldonata por indiki la prepozician funkcion. Sed ĝene-
-
-rale Esperanto ne havas tiajn laŭformajn karakterizilojn por
+n estas aldonata por indiki la prepozician funkcion. Sed ĝenerale Esperanto ne havas tiajn laŭformajn karakterizilojn por
 
 indiki la vortspecojn.
 
-Tial estus multe pli saĝe kaj racie, se la esperantistaj gra-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-matikistoj tute rezignus pri la determinado de la vort-klasoj en multaj kazoj kie ia vorto estas nura ”form-vorto”, kie la funkcio estas primara kaj la senco nur duaranga.
+Tial estus multe pli saĝe kaj racie, se la esperantistaj gramatikistoj tute rezignus pri la determinado de la vort-klasoj en multaj kazoj kie ia vorto estas nura ”form-vorto”, kie la funkcio estas primara kaj la senco nur duaranga.
 
 La ĉinoj jam dum jarcentoj parolas pri ”plenaj vortoj” kaj
 
-”malplenaj vortoj”. lom post iom la okcidentlingvaj gramatiki-
+”malplenaj vortoj”. lom post iom la okcidentlingvaj gramatikistoj vidas la avantaĝojn kaj la pravecon de tia divido.
 
-stoj vidas la avantaĝojn kaj la pravecon de tia divido.
+Jam antaŭ kvindek jaroj ili komencis dubi pri la sankteco de la famaj dek (latindevenaj) vortkategorioj. Kaj nun la
 
-Jam antaŭ kvindek jaroj ili komencis dubi pri la sankte-
+termino ”strukturvorto” estas jam ĝenerale akceptita. Sed ŝajnas ke ĉio ĉi preterglitis Esperantujon nerimarkite.
 
-co de la famaj dek (latindevenaj) vortkategorioj. Kaj nun la
-
-termino ”strukturvorto” estas jam ĝenerale akceptita. Sed ŝaj-
-
-nas ke ĉio ĉi preterglitis Esperantujon nerimarkite.
-
-Kiam oni vekiĝos en tiu lando kaj vidos la infanecan stul-
-
-tecon de disputoj pri la vortklaso de vorto kiel la kompara
+Kiam oni vekiĝos en tiu lando kaj vidos la infanecan stultecon de disputoj pri la vortklaso de vorto kiel la kompara
 
 kiel.
 
 Ni simple difinu:
 
-Kiel estas struktur-vorto i. a. uzata por esprimi kom-
+Kiel estas struktur-vorto i. a. uzata por esprimi komparojn.
 
-parojn.
-
-Tia elirpunkto ŝparos al ni la superlogikaĵojn de nia tem-
-
-po. ĉar la simpleco de la Zamenhofa kiel ne plaĉas kaj kon-
+Tia elirpunkto ŝparos al ni la superlogikaĵojn de nia tempo. ĉar la simpleco de la Zamenhofa kiel ne plaĉas kaj kon-
 
 tentigas kelkajn malmodernajn modernulojn.
 
-Kaj kiel sekvo aperas la monstraĵoj: homo-kia-mi, larĝa-
-
-kiom-manplato, dika-kia-porko, peza-kiom-fero.
+Kaj kiel sekvo aperas la monstraĵoj: homo-kia-mi, larĝakiom-manplato, dika-kia-porko, peza-kiom-fero.
 
 Ridinda afero!? Certe, se tiaj formoj estus uzitaj de kelkaj
 
@@ -464,18 +364,13 @@ seninfluaj unuopuloj. Tiam oni povus ŝultrolevante diri: ”Pri
 gustoj oni ne disputu”. Sed alia estas la afero, se influriĉaj homoj komencas instrui tiajn novaĵojn. Tiam konvenas aver-toj!
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 II
 
 LA ZAMENHOFA TIA-KIEL
 
 §12
 
-Por esplori la uzadon de la kompara kiel ĉe Zamenhof mi ek-
-
-zamenadis kvar el liaj verkoj el diversaj periodoj de lia vivo: 1e. La Rabistoj el 1908 (R)
+Por esplori la uzadon de la kompara kiel ĉe Zamenhof mi ekzamenadis kvar el liaj verkoj el diversaj periodoj de lia vivo: 1e. La Rabistoj el 1908 (R)
 
 2e. Marta el 1910 (M)
 
@@ -487,9 +382,7 @@ zamenadis kvar el liaj verkoj el diversaj periodoj de lia vivo: 1e. La Rabistoj 
 
 Intence mi elektis ne la unuajn verkojn de Zamenhof, sed
 
-kelkajn el la periodo post 1905, en kiu Zamenhof kvazaŭ fe-
-
-bre tradukadis por doni la lingvon Esperanton ”kun ĝia tuta
+kelkajn el la periodo post 1905, en kiu Zamenhof kvazaŭ febre tradukadis por doni la lingvon Esperanton ”kun ĝia tuta
 
 vera kaj unuforma spirito”, el la periodo pri kiu Zamenhof
 
@@ -499,20 +392,13 @@ nuancoj havas formon tute difinitan kaj precizan” (Let. de Z.
 
 73). *)
 
-Mi scias ke la ”Londona Biblio” ne havas precize la origi-
-
-nalan Zamenhofan tekston, sed komparante grandajn par-
+Mi scias ke la ”Londona Biblio” ne havas precize la originalan Zamenhofan tekston, sed komparante grandajn par-
 
 tojn de tiu biblio kun la originala teksto, mi trovis ke la ŝanĝoj de la Londona komitato nenie koncernis la t.n. tabelvortojn.
 
 Ankaŭ la teksto de ”Fabeloj” estas, post la morto de Za-
 
-* Poste mi plivastigis mian esploron je ĉiuj verkoj de Zamenhof kaj venis al la samaj konkludoj. kuraĝas akcepti ke oni lasis la ”korelativojn” netu-
-
-ŝita.
-
-
-DU MALSANOJ EN ESPERANTO
+* Poste mi plivastigis mian esploron je ĉiuj verkoj de Zamenhof kaj venis al la samaj konkludoj. kuraĝas akcepti ke oni lasis la ”korelativojn” netuŝita.
 
 
 menhof, korektita, sed ankaŭ rilate tiun libron mi kuraĝas
@@ -529,9 +415,7 @@ La kompara senco de kiel ne estas ĉiam same klara.
 
 Oni povus distingi multajn kazojn.
 
-Por atingi mian celon, mi elektis kiel elirpunkton la uza-
-
-don de kiel post substantivo akompanita de la adjektiva pro-
+Por atingi mian celon, mi elektis kiel elirpunkton la uzadon de kiel post substantivo akompanita de la adjektiva pro-
 
 nomo tia.
 
@@ -562,9 +446,6 @@ Ankaŭ kun predikativa tia
 10. Vi pensis ke Mi estas tia kiel vi (Ps. 50: 21)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §14
 
 Zamenhof do konsekvence uzadis tia … kiel en ĉi tiu kazo. Oni
@@ -585,17 +466,13 @@ Tiaj homoj kiel via edzo (M 96) = homoj de la klaso, pri
 
 kiu via edzo estas ekzemplo.
 
-Korekti Zamenhof estas afero tre delikata. Mi tute ne vo-
-
-las aserti ke li neniam eraris, sed … sen ia ajn dubo li estis la plej kompetenta Esperantisto! Tio devus averti ĉiujn kiuj aŭ-
+Korekti Zamenhof estas afero tre delikata. Mi tute ne volas aserti ke li neniam eraris, sed … sen ia ajn dubo li estis la plej kompetenta Esperantisto! Tio devus averti ĉiujn kiuj aŭ-
 
 dacas entrepreni tiajn korektojn!!
 
 Nuntempe ”oni” volas kredigi al ni ke Zamenhof en ĉi tiu
 
-kazo eraris. Post tia ja ”povas logike sekvi nur kia”, oni in-
-
-struas. Naivaj logikuloj!!
+kazo eraris. Post tia ja ”povas logike sekvi nur kia”, oni instruas. Naivaj logikuloj!!
 
 ĉu Zamenhof vere ne rimarkis la pli grandan akordon kiu
 
@@ -603,35 +480,24 @@ ekzistas inter tia … kia ol inter tia … kiel? Kiu estas sufiĉe naiva supozi
 
 Kaj tamen li elektis tia … kiel en ĉi tiu kazo. Tio do certe
 
-okazis pro iaj motivoj, ne pro senzorgeco aŭ manko de logi-
-
-ko.
+okazis pro iaj motivoj, ne pro senzorgeco aŭ manko de logiko.
 
 Vere, ankaŭ tia … kia estas de li uzita. Sed … en diferencaj
 
 kazoj.
 
-”Teruraj simpligantoj”, ŝatante pensi rektlinie, volas aŭ-
-
-tomate uzi kia’n post ĉiuj tia’j. Ili ja postulas ”konsekvencan lingvo-uzadon ”!
+”Teruraj simpligantoj”, ŝatante pensi rektlinie, volas aŭtomate uzi kia’n post ĉiuj tia’j. Ili ja postulas ”konsekvencan lingvo-uzadon ”!
 
 Sed eĉ mia kara Plena Gramatiko (par. 390 c) ŝanceliĝas
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-kaj singarde diras: ”ŝajnas pli gramatike enkonduki la sub-
-
-propozicion per kia”.
+kaj singarde diras: ”ŝajnas pli gramatike enkonduki la subpropozicion per kia”.
 
 Kio do povas esti la Zamenhofa motivo por tia … kiel?
 
 Mi kredas, ke ĝi povus esti jena:
 
-En ĉi tiu kazo la korelativeco inter tia kaj kiel man-
-
-kas.
+En ĉi tiu kazo la korelativeco inter tia kaj kiel mankas.
 
 Tion mi esperas pruvi en la daŭrigo!
 
@@ -648,19 +514,13 @@ a. korelativeco en la vortformado
 
 b. korelativeco en la sintakso.
 
-a. La vortvico ia, tia, kia, ĉia, nenia estas formita tute laŭ la sama maniero kiel ekz. ie, tie, kie, ĉie, nenie. Tial oni diras ke inter tiuj du vicoj ekzistas korelativeco. ĉiu Espe-
-
-rantisto scias ke en Esperanto troviĝas naŭ tiaj korelati-
+a. La vortvico ia, tia, kia, ĉia, nenia estas formita tute laŭ la sama maniero kiel ekz. ie, tie, kie, ĉie, nenie. Tial oni diras ke inter tiuj du vicoj ekzistas korelativeco. ĉiu Esperantisto scias ke en Esperanto troviĝas naŭ tiaj korelati-
 
 vaj vicoj, kiuj formas la konatan tabelon de ”korelativoj”.
 
-b. Sed tian korelativecon oni nepre ne intermiksu kun la sin-
+b. Sed tian korelativecon oni nepre ne intermiksu kun la sintaksa korelativeco.
 
-taksa korelativeco.
-
-Sintaksa korelativeco ekzistas se du vortoj, havantaj simi-
-
-lan sencon kaj funkcion estas uzataj paralele en reciproka de-
+Sintaksa korelativeco ekzistas se du vortoj, havantaj similan sencon kaj funkcion estas uzataj paralele en reciproka de-
 
 pendeco.
 
@@ -669,9 +529,6 @@ Ekzemploj:
 Kaj la patro kaj la patrino mortis.
 
 Li nek aŭskultis nek parolis.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 ĉu pluvas, ĉu hajlas, ni foriros.
@@ -699,17 +556,13 @@ membroj de tia korelativa duopo
 
 ## 3. havas la saman gramatikan funkcion
 
-Se tiu paralelismo ne ekzistas, oni ne povas paroli pri kore-
-
-lativa paro. Por tuj doni ekzemplon: la vortoj pli … ol, ne formas korelativan paron. Ni prenu: Li estas pli granda ol mi. Pli granda formas fortikan tuton, la rilato inter pli kaj granda
+Se tiu paralelismo ne ekzistas, oni ne povas paroli pri korelativa paro. Por tuj doni ekzemplon: la vortoj pli … ol, ne formas korelativan paron. Ni prenu: Li estas pli granda ol mi. Pli granda formas fortikan tuton, la rilato inter pli kaj granda
 
 estas tiel forta ke la vorto ”pli” ne plu havas eblon formi paron kun ol.
 
 En: mi estis tiel laca, ke mi ne plu povis pensi, la duopo
 
-tiel … ke, ne formas korelativan paron, ĉar la gramatika pa-
-
-ralelismo tute mankas.
+tiel … ke, ne formas korelativan paron, ĉar la gramatika paralelismo tute mankas.
 
 §16
 
@@ -719,30 +572,20 @@ eventualan korelativecon.
 
 Ni rigardu ”tia homo kiel li”.
 
-Tia estas adjektiva pronomo, do speco de ĝenerala ad-
-
-jektivo, kiu simple aludas al ”speco” kaj ”kvalito”. Multan valoron ĝi ne havas, oni povus ĝin ellasi sen ŝanĝo de senco (kiel 16
-
-DU MALSANOJ EN ESPERANTO
+Tia estas adjektiva pronomo, do speco de ĝenerala adjektivo, kiu simple aludas al ”speco” kaj ”kvalito”. Multan valoron ĝi ne havas, oni povus ĝin ellasi sen ŝanĝo de senco (kiel
 
 
-Zamenhof efektive faris, vidu malsupre). i estas determinan-
-
-ta vorto kaj formas kvazaŭ unu tuton kun la substantivo
+Zamenhof efektive faris, vidu malsupre). i estas determinanta vorto kaj formas kvazaŭ unu tuton kun la substantivo
 
 homo.
 
 Kiel formas kun la pronomo ”li ” vortgrupon, kiu servas
 
-kiel suplemento al la antaŭa substantivo, kaj samtempe difi-
-
-nas la rilaton inter homo kaj li, nome, ke la lasta indikas la klason, la specon de la unua. i do estas pura prepozicio.
+kiel suplemento al la antaŭa substantivo, kaj samtempe difinas la rilaton inter homo kaj li, nome, ke la lasta indikas la klason, la specon de la unua. i do estas pura prepozicio.
 
 En Esperanto, kiu ne havas lingvistikan historion, oni ja
 
-ne povas diri: ”kiel estis adverbo, kiu evoluis ĝis ĝi farigis konjunkcio kaj nuntempe eĉ servas kiel prepozicio.” En Esperan-
-
-to, en ĝia tuteco donita al ni de Zamenhof, ni nur povas diri:
+ne povas diri: ”kiel estis adverbo, kiu evoluis ĝis ĝi farigis konjunkcio kaj nuntempe eĉ servas kiel prepozicio.” En Esperanto, en ĝia tuteco donita al ni de Zamenhof, ni nur povas diri:
 
 ”kiel estas jen adverbo, jen konjunkcio, jen prepozicio.” (kp.
 
@@ -762,35 +605,21 @@ Do: inter ili ne ekzistas korelativeco.
 
 El tio sekvas ke la rezonado ”Tia povas logike esti sekvata nur de sia korelativo kia” estas ĝisfunde falsa.
 
-Unualoke la elkovantoj de tiu regulo intermiksas korela-
-
-tivecon ĉe la formado kun la sintaksa korelativeco.
+Unualoke la elkovantoj de tiu regulo intermiksas korelativecon ĉe la formado kun la sintaksa korelativeco.
 
 Dualoke la aŭtomata sekvado de kia post tia ne povas esti
 
-ĝusta el lingva vidpunkto, ĉar aŭtomateco ne ekzistas en gra-
+ĝusta el lingva vidpunkto, ĉar aŭtomateco ne ekzistas en gramatikaj aferoj. Trialoke estas ĝuste la manko de ĉia ajn kore-
 
-matikaj aferoj. Trialoke estas ĝuste la manko de ĉia ajn kore-
-
-lativeco kiu faras la uzadon de kia en ĉi tiuj kazoj nepardone-17
-
-DU MALSANOJ EN ESPERANTO
-
-
-bla eraro kontraŭ la logiko. Nome: KIA neniam povas havi
+lativeco kiu faras la uzadon de kia en ĉi tiuj kazoj nepardonebla eraro kontraŭ la logiko. Nome: KIA neniam povas havi
 
 prepozician funkcion.
 
-Zamenhof sendube sentis tion, en sia bonega lingvokon-
-
-cepto kaj intence uzis tia … kiel ĉiam kaj senescepte ĉiufoje
+Zamenhof sendube sentis tion, en sia bonega lingvokoncepto kaj intence uzis tia … kiel ĉiam kaj senescepte ĉiufoje
 
 kiam ”kiel” estas vortenkonduka strukturvorto kun klasifika
 
 funkcio.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 III
@@ -803,13 +632,9 @@ La klasifikan funkcion de la kompara kiel ni trovas ankaŭ en
 
 kazoj, kiam la kiel-suplemento determinas substantivon ne
 
-akompanatan de la vorteto tia. Mi jam citis (§10) la Zamen-
+akompanatan de la vorteto tia. Mi jam citis (§10) la Zamenhofan ”faroj kiel viaj faroj”. Kvankam ekzemploj de tiu kazo
 
-hofan ”faroj kiel viaj faroj”. Kvankam ekzemploj de tiu kazo
-
-ne abundas en la Zamenhofa literaturo, ili certe ne estas es-
-
-ceptaj. Mi mencios el diversaj fontoj:
+ne abundas en la Zamenhofa literaturo, ili certe ne estas esceptaj. Mi mencios el diversaj fontoj:
 
 1. vera Dano kiel ni (F 66)
 
@@ -831,14 +656,9 @@ Sed kàj en la kazo kiun mi nomis en §13 kàj en ĉi lasta
 
 kazo (§18) Ili ĉiam pli kaj pli kutimas uzi la vorton kia ansta-taŭ kiel, ”korektante” Zamenhofon.
 
-Montriĝas eĉ ke pri tio la diversaj skoloj (budapeŝta, am-
-
-sterdama) kaj izoluloj samopinias!
+Montriĝas eĉ ke pri tio la diversaj skoloj (budapeŝta, amsterdama) kaj izoluloj samopinias!
 
 Jen kelkaj el la centoj da ekzemploj.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Por ŝpari spacon mi aldonas nur la nomon de la koncerna
@@ -881,41 +701,28 @@ kiaj tiuj kiujn mi ekkonis (Degenkamp).
 
 ARGUMENTOJ DE LA KIA-ISTOJ
 
-ĉar, kiel ni vidis, tia uzado de kia estas nepre ne-Zamenho-
-
-fa, oni rajtas atendi ke la modernaj verkistoj havos tre gravajn motivojn pro pravigi sian korektadon de la Zamenhofa kiel.
+ĉar, kiel ni vidis, tia uzado de kia estas nepre ne-Zamenhofa, oni rajtas atendi ke la modernaj verkistoj havos tre gravajn motivojn pro pravigi sian korektadon de la Zamenhofa kiel.
 
 Aŭ ĉu ankaŭ en aferoj kiel ĉi tiaj (pardonu: aferoj kiaj ĉi tiaj!?) ekzistas ia modo, same kaprica kiel la modo pri virinaj vestoj?
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Efektive, mi kredas ke imitemo ludas pli gravan rolon en la
 
 lingvouzado ol multaj supozas.
 
-Tamen alia faktoro estas ke la nova formo estas distrum-
-
-petita kiel pli logika, kaj neniu ja ŝatas esti rigardata kiel mal-logikulo. LOGIKO ja estas severa diino, multe adorata en Es-
+Tamen alia faktoro estas ke la nova formo estas distrumpetita kiel pli logika, kaj neniu ja ŝatas esti rigardata kiel mal-logikulo. LOGIKO ja estas severa diino, multe adorata en Es-
 
 perantujo!
 
-Antaŭ du jaroj mi priparolis la kazon kun unu el la verki-
-
-stoj menciitaj en §18. Li donis al mi tri argumentojn:
+Antaŭ du jaroj mi priparolis la kazon kun unu el la verkistoj menciitaj en §18. Li donis al mi tri argumentojn:
 
 1. Oni devas uzi kia, ĉar la vorto tia antaŭiras (§13) kvankam
 
 ĝi estas ofte subkomprenata (§18)
 
-2. Oni povas ”kompletigi ” tiajn esprimojn per la verbofor-
+2. Oni povas ”kompletigi ” tiajn esprimojn per la verboformo estas, tio estas kopulo, do logike oni devas uzi la ad-
 
-mo estas, tio estas kopulo, do logike oni devas uzi la ad-
-
-jektivan formon kia anstataŭ la Zamenhofa kiel. Ni do ha-
-
-vas:
+jektivan formon kia anstataŭ la Zamenhofa kiel. Ni do havas:
 
 Zamenhof skribis: ”knabo kiel mi”
 
@@ -933,33 +740,21 @@ la solvon al ni.
 
 Ni iom esploru tiujn argumentojn.
 
-1. Pri la uzado de kia post substantivo + tia, por enkondu-
-
-ki alian substantivon mi jam sufiĉe skribis en §§14-17. Ni
+1. Pri la uzado de kia post substantivo + tia, por enkonduki alian substantivon mi jam sufiĉe skribis en §§14-17. Ni
 
 vidis ke inter tia kaj kiel ne ekzistas korelativeco en tiaj
 
 kazoj, do ke la uzado de tia ne povas postuli la paralelan
 
-uzadon de kia. Tio kompreneble pli forte validas se la vor-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-to tia tute mankas. ĉi tie mi nur volas akcenti la prepozi-
+uzadon de kia. Tio kompreneble pli forte validas se la vorto tia tute mankas. ĉi tie mi nur volas akcenti la prepozi-
 
 cian karakteron de kiel en esprimoj kiel: knabo kiel mi.
 
-La uzado de kia ja kondukas al treege stranga lingva feno-
-
-meno. Nome: Se la esprimo ”homoj kiaj kuracistoj” estus ĝu-
+La uzado de kia ja kondukas al treege stranga lingva fenomeno. Nome: Se la esprimo ”homoj kiaj kuracistoj” estus ĝu-
 
 sta, Esperanto havus prepozicion kiun oni povus pluraligi!
 
-Tio estas konsekvenco de la uzado de vorto, pri kiu Za-
-
-menhof skribis ke ĝi estas pure adjektiva. (L. R. pĝ 64, 3a eld.), en funkcio kunliganta. Pure adjektiva, tio do signifas, ke en
+Tio estas konsekvenco de la uzado de vorto, pri kiu Zamenhof skribis ke ĝi estas pure adjektiva. (L. R. pĝ 64, 3a eld.), en funkcio kunliganta. Pure adjektiva, tio do signifas, ke en
 
 ”homoj kiaj kuracistoj” kiaj determinas la vorton kuracistoj,
 
@@ -979,9 +774,7 @@ Kelkaj estas vere virtuozaj en tio kaj scias per elegantaj
 
 kompletigoj pruvi ĉion ajn.
 
-Kiel juna Esperantisto mi ĉeestis kunvenon en Amster-
-
-dam, kie iu doktoro (ne-lingvisto) priparolis kelkajn tilklajn punktojn en la gramatiko. Iu demandis pri la fama ”tien kaj
+Kiel juna Esperantisto mi ĉeestis kunvenon en Amsterdam, kie iu doktoro (ne-lingvisto) priparolis kelkajn tilklajn punktojn en la gramatiko. Iu demandis pri la fama ”tien kaj
 
 reen”. La kuraĝa doktoro respondis: ”Ho, tio estas tre simpla, jen la solvo” kaj li skribis sur la nigran tabulon:
 
@@ -998,16 +791,9 @@ Per tiu historia anekdoto mi volas nur diri ke oni estu tre
 singarda pri elipseco kaj kompletigo!
 
 
-DU MALSANOJ EN ESPERANTO
+enerale oni eliras de la malĝusta ideo ke, kiam du formoj ekzistas unu flanke de la alia, la mallonga nepre devas esti mallongigo de la longa. Kaj tio estas tre malĝusta supozo. Jam ofte lingvistoj atentigis pri la fakto ke kontraŭe la longaj formoj estas ofte plivastigoj de la mallongaj, aŭ ke ambaŭ formoj ekzistis en tre frua periodo de la koncerna lingvo. El tio sekvas ke la moderna lingvistiko ne plu parolas pri elipseco krom en okazo de nepra gramatika neceso.
 
-
-enerale oni eliras de la malĝusta ideo ke, kiam du for-
-
-moj ekzistas unu flanke de la alia, la mallonga nepre devas esti mallongigo de la longa. Kaj tio estas tre malĝusta supozo. Jam ofte lingvistoj atentigis pri la fakto ke kontraŭe la longaj formoj estas ofte plivastigoj de la mallongaj, aŭ ke ambaŭ formoj ekzistis en tre frua periodo de la koncerna lingvo. El tio sekvas ke la moderna lingvistiko ne plu parolas pri elipseco krom en okazo de nepra gramatika neceso.
-
-Ekz: En la frazo: ”Kiu estas soldato, tiu sekvu sian gene-
-
-ralon, kiel mi” (R. 47), la esprimo ”kiel mi” ne estas komple-
+Ekz: En la frazo: ”Kiu estas soldato, tiu sekvu sian generalon, kiel mi” (R. 47), la esprimo ”kiel mi” ne estas komple-
 
 ta per si mem, do elipsa kaj oni povas kompletigi per ”faros”
 
@@ -1044,42 +830,27 @@ kompletigu jene: ”Ne ekzistas faroj kiel Viaj faroj estas”.
 ĉu vi ne rimarkas la subtilan ŝanĝon en la senco. La unua
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 kiel estas klasifika (vidu §13), ĉe la dua kiel la kompara sen-co estas multe pli forta. Gramatike, kiel fariĝas predikativa kaj poste ni vidos la etan diferencon inter la suplementa (”atribu-tiva”) kiel-esprimo kaj la predikativa.
 
 §23
 
-Trie: Eventuala verba kompletigo de la traktataj esprimoj po-
+Trie: Eventuala verba kompletigo de la traktataj esprimoj povas okazi nur per esti. Tio jam devas esti averto! La karaktero de ”esti ” povas esti temo por aparta traktaĵo.* ĉiu Esperantisto scias ke Zamenhof uzis ”kiel estas …” kaj ankaŭ ”kia
 
-vas okazi nur per esti. Tio jam devas esti averto! La karaktero de ”esti ” povas esti temo por aparta traktaĵo.* ĉiu Esperantisto scias ke Zamenhof uzis ”kiel estas …” kaj ankaŭ ”kia
+estas …” Ankaŭ tio ne okazis pro manko de logiko aŭ neglektemo! Por iom ilustri ke tiu ”nekonsekvenco” vere povus esti
 
-estas …” Ankaŭ tio ne okazis pro manko de logiko aŭ neglek-
-
-temo! Por iom ilustri ke tiu ”nekonsekvenco” vere povus esti
-
-nur ŝajna, mi citas el konata angla gramatiko: ”Estas tre mal-
-
-facile difini la ekzaktan sencon de esti kiam tiu verbo estas
+nur ŝajna, mi citas el konata angla gramatiko: ”Estas tre malfacile difini la ekzaktan sencon de esti kiam tiu verbo estas
 
 uzata por esprimi kiel (aŭ kia) iu aŭ io estas” (”how a person or a thing is”).
 
 Zamenhof havis delikatan sencon por nuancoj!
 
-La konkludo: ” ’estas’ estas kopulo, do kiel estas eraro”, es-
-
-tas eble ne tute logika!
+La konkludo: ” ’estas’ estas kopulo, do kiel estas eraro”, estas eble ne tute logika!
 
 §24
 
-Kvare: ĉu la ”kompletigo” per la verbo esti vere kaj nekontes-
+Kvare: ĉu la ”kompletigo” per la verbo esti vere kaj nekontesteble estas la ĝusta? Kial ne kompletigi alimaniere?
 
-teble estas la ĝusta? Kial ne kompletigi alimaniere?
-
-Ekz: nomo kiel Benelukso — nomo trafa kiel la nomo Be-
-
-nelukso; honorinda persono kiel la dekano — persono ho-
+Ekz: nomo kiel Benelukso — nomo trafa kiel la nomo Benelukso; honorinda persono kiel la dekano — persono ho-
 
 norinda kiel la dekano.
 
@@ -1088,12 +859,7 @@ Kontraŭ tio ja povas oponi nur tiuj kelkaj unuopuloj, kiuj
 * Vidu §§46-49.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-kondukas la konsekvencojn ĝis la absurda: nobela-kia-sinjo-
-
-rino!
+kondukas la konsekvencojn ĝis la absurda: nobela-kia-sinjorino!
 
 Atentu bone: mi estas konvinkita ke ĉia kompletigo estas
 
@@ -1106,18 +872,13 @@ En la daŭrigo mi unue parolos pri la tria argumento de la
 kia-istoj: la nekonsekvenceco de Zamenhof.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 IV
 
 LA ZAMENHOFA TIA-KIA
 
 §25
 
-En kiuj kazoj Zamenhof uzis ”tia … kia”? ĉu li vere estis ne-
-
-konsekvenca en tio? Mi kredas ke ne. Ni povas distingi du
+En kiuj kazoj Zamenhof uzis ”tia … kia”? ĉu li vere estis nekonsekvenca en tio? Mi kredas ke ne. Ni povas distingi du
 
 kazojn:
 
@@ -1131,9 +892,7 @@ Ekzemploj:
 
 1. Kia ago, tia pago; kia demando, tia respondo; kia drapo,
 
-tia vesto; kia fripono, tia bastono; kaj pluraj tiaj prover-
-
-baj esprimoj el ”Proverbaro”.
+tia vesto; kia fripono, tia bastono; kaj pluraj tiaj proverbaj esprimoj el ”Proverbaro”.
 
 2. Restu ĉiam tia, kia vi estas (F. 60)
 
@@ -1156,26 +915,17 @@ regulo, tia … kia en ĉi tiu frazo).
 10. Li estas tia, kiaj estas ĉiuj viroj (M. 171).
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 En tiaj frazoj la vorto kia estas rilata adjektiva pronomo,
 
 ”re”-sendanta al la adjektiva pronomo tia, kaj ambaŭ vortoj havas precize la saman gramatikan funkcion, en la ekzemploj
 
-sub 1 ili estas epitetoj, en 2-10 ili estas predikativoj (Ned: na-amwoordelijk deel van het gezegde of bepaling van gesteld-
-
-heid).
+sub 1 ili estas epitetoj, en 2-10 ili estas predikativoj (Ned: na-amwoordelijk deel van het gezegde of bepaling van gesteldheid).
 
 §26
 
-B. En la dua kazo la pronomo kia enkondukas epitetan sub-
+B. En la dua kazo la pronomo kia enkondukas epitetan subpropozicion, (ofte nomitan ankaŭ: adjektiva subpropozicio).
 
-propozicion, (ofte nomitan ankaŭ: adjektiva subpropozicio).
-
-1. Li ludis tian rolon, kian ludas multekosta tirilo de sono-
-
-rilo (F. 41).
+1. Li ludis tian rolon, kian ludas multekosta tirilo de sonorilo (F. 41).
 
 2. i fariĝis tia masko, kian faris al si Thespis (F.49).
 
@@ -1202,9 +952,6 @@ Kelkfoje, sed escepte, sen tia (kp §18):
 10. Mi konas vin tiel longan tempon, kian povas ampleksi mia
 
 memoro (M. 175).
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 11. Li ĵuris ekbruligi por li funebran torĉon, kian ankoraŭ
@@ -1242,9 +989,7 @@ Laŭ mia opinio alia pli kontentiga klarigo pri la uzado de
 
 kia povas esti donata.
 
-Tial mi antaŭe citas denove la tri ekzemplojn de la rilat-
-
-pronoma kiel, kiujn mi jam donis en §10.
+Tial mi antaŭe citas denove la tri ekzemplojn de la rilatpronoma kiel, kiujn mi jam donis en §10.
 
 14. Ili ne restigis tian riĉecon kiel la homoj asertis (F. 23).
 
@@ -1252,13 +997,7 @@ pronoma kiel, kiujn mi jam donis en §10.
 
 16. Oni detranĉis fajfilon de la saliko, kiel li ricevis jam de aliaj salikoj (F. 48).
 
-Mi tuj atentigas vin ke la uzado de kiel post tia por enkon-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-duki epitetan subpropozicion estas ege malofta en la Zamen-
+Mi tuj atentigas vin ke la uzado de kiel post tia por enkonduki epitetan subpropozicion estas ege malofta en la Zamen-
 
 hofa literaturo. is nun mi trovis nur ĉi tiujn tri frazojn kvankam mi traserĉis preskaŭ la tutan Zamenhofan verkaron.
 
@@ -1268,9 +1007,7 @@ forgesu informi min pri tio!
 
 Pri tiu malofteco mi cetere neniel miras. La vorto kiel, kiu
 
-estas adverbo, prepozicio aŭ konjunkcio kaj tial ne estas de-
-
-klinaciebla, tute ne taŭgas por la rolo de rilata pronomo, sa-
+estas adverbo, prepozicio aŭ konjunkcio kaj tial ne estas deklinaciebla, tute ne taŭgas por la rolo de rilata pronomo, sa-
 
 me malmulte kiel la pronomo kia taŭgus por funkcio pure
 
@@ -1284,9 +1021,7 @@ formo.
 
 Tiel: ”ni ne restigis riĉecon, kiel la homoj asertis”. Legu ĝin kun klare markita paŭzo post ”riĉecon”. Se vi havas bonan
 
-memoron flanke de sufiĉe da studemo, vi rimarkos ke tiu fra-
-
-zo estas de la tipo kiun mi menciis en §6 jam. Kiel estas kon-
+memoron flanke de sufiĉe da studemo, vi rimarkos ke tiu frazo estas de la tipo kiun mi menciis en §6 jam. Kiel estas kon-
 
 junkcio kaj la frazo havas adverban karakteron, proksimume
 
@@ -1302,19 +1037,11 @@ komo post ”riĉecon”, la kunteksto klare montras ke ni devas
 
 legi la frazon sen ia paŭzo.
 
-Nun venas la malfacilaĵoj. ”Kiel la homoj asertis” sendu-
-
-be kompletigas ”tian riĉecon”. Demandu nur: ”Kia riĉeco?”
+Nun venas la malfacilaĵoj. ”Kiel la homoj asertis” sendube kompletigas ”tian riĉecon”. Demandu nur: ”Kia riĉeco?”
 
 kaj vi ricevos la respondon: ”Nu … kiel la homoj asertis”.
 
-La frazo estas do epiteta (adjektiva). Sed samtempe ĝi ha-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-vas en si ankoraŭ multon de la adverba karaktero kiun ni tro-
+La frazo estas do epiteta (adjektiva). Sed samtempe ĝi havas en si ankoraŭ multon de la adverba karaktero kiun ni tro-
 
 vis en la unua, modifita frazo.
 
@@ -1330,15 +1057,11 @@ en §9. Certe ne! ĉu rilata pronomo? Eble! i ja resendas al
 
 Do kiel resendas al la tuta unua parto? Certe ankaŭ tio
 
-estas vera! Legantoj, mi ĉesu. ĉu vi vidas ke ĉiuj partioj po-
-
-vas iel pravigi sian opinion. Kiel estas adverbo rilate la vorton asertis, aliaj eble diras ke ĝi estas objekto de asertis, ĝi estas rilata pronomo pro la kompletigo de ”tia riĉeco”, ĝi estas konjunkcio pro … Sed sufiĉe.
+estas vera! Legantoj, mi ĉesu. ĉu vi vidas ke ĉiuj partioj povas iel pravigi sian opinion. Kiel estas adverbo rilate la vorton asertis, aliaj eble diras ke ĝi estas objekto de asertis, ĝi estas rilata pronomo pro la kompletigo de ”tia riĉeco”, ĝi estas konjunkcio pro … Sed sufiĉe.
 
 ĉu ne pli facile apliki la difinon de §11 kaj diri: Kiel estas strukturvorto, ĉi tie uzita por esprimi komparon.
 
-La malfacilaĵoj miaopinie devenas de la uzita verbo, aser-
-
-ti. Pro la uzado de tiu verbo la adverba karaktero de la subpropozicio estas pli forta ol ĝia adjektiva funkcio.
+La malfacilaĵoj miaopinie devenas de la uzita verbo, aserti. Pro la uzado de tiu verbo la adverba karaktero de la subpropozicio estas pli forta ol ĝia adjektiva funkcio.
 
 §29
 
@@ -1352,25 +1075,15 @@ En tiaj frazoj Zamenhof preskaŭ senescepte uzis la vorton
 
 kia. Oni ne povas aserti riĉecon, sed oni povas trovi ĝin, kvankam nur malmultaj spertas tiun feliĉon (aŭ malfeliĉon?).
 
-Kian estas la objekto de ”trovi”, ĝi estas rilata pronomo re-
+Kian estas la objekto de ”trovi”, ĝi estas rilata pronomo resendanta al ”tian riĉecon”. La vorto kian estas kvazaŭ ”pli
 
-
-DU MALSANOJ EN ESPERANTO
-
-
-sendanta al ”tian riĉecon”. La vorto kian estas kvazaŭ ”pli
-
-memstara” ol ”kiel” en la antaŭa frazo. i malhavas la adver-
-
-ban karakteron de kiel en tiu frazo. ĉi tiu frazo havas multe
+memstara” ol ”kiel” en la antaŭa frazo. i malhavas la adverban karakteron de kiel en tiu frazo. ĉi tiu frazo havas multe
 
 pli fortan adjektivan karakteron. Mi eĉ ne unu momenton
 
 hezitis nomi ĝin: subpropozicio epiteta.
 
-Tamen, ĉu ĝi tute perdis la adverban karakteron? i ja es-
-
-tas ankaŭ kompara, kaj komparado ja estas adverba nocio!
+Tamen, ĉu ĝi tute perdis la adverban karakteron? i ja estas ankaŭ kompara, kaj komparado ja estas adverba nocio!
 
 Ankaŭ ĉi tiu frazo do ne estas pure adjektiva, ĝi havas
 
@@ -1378,15 +1091,11 @@ etan kromguston adverban.
 
 Kaj ĝuste en tiaj frazoj Zamenhof uzas kia. Tio do ne
 
-unualoke dependas de la vorto tia aŭ de iu akompananta ad-
-
-jektivo. Ni povus formuli: Kia estas uzata en subpropozicioj epi-tetaj kun kompara senco.
+unualoke dependas de la vorto tia aŭ de iu akompananta adjektivo. Ni povus formuli: Kia estas uzata en subpropozicioj epi-tetaj kun kompara senco.
 
 §30
 
-Se tiu kompara elemento tute mankas aŭ preskaŭ tute man-
-
-kas, Zamenhof uzas tia … kiu.
+Se tiu kompara elemento tute mankas aŭ preskaŭ tute mankas, Zamenhof uzas tia … kiu.
 
 Ekzemploj:
 
@@ -1409,20 +1118,13 @@ volonte nomas (F. 9).
 la tuta regno (Dan. 11: 20).
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §31
 
 Estas evidente ke la uzado de kia en la frazoj de §26 estas pli logika ol la eventuala uzado de kiel.
 
-Kiel, pura strukturvorto, ja ne taŭgas kiel subjekto, objek-
+Kiel, pura strukturvorto, ja ne taŭgas kiel subjekto, objekto aŭ en alia grava gramatika funkcio. i ja ne estas reprezen-tanto, sed liganto! Tamen ni trovas ĉe Zamenhof kelkajn,
 
-to aŭ en alia grava gramatika funkcio. i ja ne estas reprezen-tanto, sed liganto! Tamen ni trovas ĉe Zamenhof kelkajn,
-
-kvankam tre malmultajn, esceptojn. En frazo 14 la karakte-
-
-ro de ”asertis” baras la vojon al la uzado de kia, kiel ni jam demonstris. (§28.
+kvankam tre malmultajn, esceptojn. En frazo 14 la karaktero de ”asertis” baras la vojon al la uzado de kia, kiel ni jam demonstris. (§28.
 
 En frazo 15 mi imputas la uzadon de kiel al la antaŭiranta
 
@@ -1432,9 +1134,7 @@ rimarkigojn (§34).
 
 En frazo 16 mi ne vidas ian motivon por la ne-uzado de
 
-kian. Tamen mi ne parolos pri eraro en tiu frazo, eble ke Za-
-
-menhof, verkante ĝin, sentis la adverban elementon pli for-
+kian. Tamen mi ne parolos pri eraro en tiu frazo, eble ke Zamenhof, verkante ĝin, sentis la adverban elementon pli for-
 
 te ol en aliaj tiaj frazoj. Nuancoj, nuancoj!
 
@@ -1450,12 +1150,7 @@ Verŝajne por eviti tiun dusencecon, Zamenhof aldonis estas,
 
 cetere tute superflue kiel montras la kunteksto. ”Estas” en ĉi tiu frazo havas nur iom da gramatika valoro, ne pli. i estas
 
-nur tre malgrava vosteto kiu neniel influas la antaŭajn vor-
-
-tojn (kp §23).
-
-
-DU MALSANOJ EN ESPERANTO
+nur tre malgrava vosteto kiu neniel influas la antaŭajn vortojn (kp §23).
 
 
 V
@@ -1468,9 +1163,7 @@ Elirinte de la ”klasifika kiel” (§14) mi jam iom devojiĝis. ĉar mi ne aŭ
 
 tiun klasifikan funkcion, kvankam multaj povus havi ĝin. Sed
 
-mi tute ne intencas klopodi por dividi la komparajn espri-
-
-mojn laŭ ilia logika senco. Eĉ, mi kredas ke tio estas malebla!
+mi tute ne intencas klopodi por dividi la komparajn esprimojn laŭ ilia logika senco. Eĉ, mi kredas ke tio estas malebla!
 
 Komparado estas tiel grava kaj tiel ofta lingva fenomeno ke
 
@@ -1486,13 +1179,9 @@ maniero, de kvalito, por kompari cirkonstancojn, aŭ kvalitojn
 
 sub diversaj cirkonstancoj, aŭ agojn en diversaj tempoj, aŭ …
 
-Neniu divido laŭ la logika principo kontentigus ĉiujn gra-
+Neniu divido laŭ la logika principo kontentigus ĉiujn gramatikistojn aŭ ampleksus ĉiujn eblajn kazojn.
 
-matikistojn aŭ ampleksus ĉiujn eblajn kazojn.
-
-ŝajnas al mi ke ni plej grandparte povas atingi kontenti-
-
-gan dividon laŭ la gramatika funkcio de la kiel-esprimoj. Tio
+ŝajnas al mi ke ni plej grandparte povas atingi kontentigan dividon laŭ la gramatika funkcio de la kiel-esprimoj. Tio
 
 havas ankaŭ la avantaĝon de granda simpleco. Tiamaniere ni
 
@@ -1508,9 +1197,6 @@ a. suplementa, b. predikativa.
 3. La kiel-esprimo estas komplemento de adjektivo.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 VI
 
 NENIAM UZU ”KIA ” POR ENKONDUKI
@@ -1519,15 +1205,11 @@ FRAZPARTON
 
 §33
 
-La ĝis nun traktita kazo apartenas al 1 a: suplementa kiel-es-
-
-primo. Tamen tiu klaso estas multe pli ampleksa. Estas al mi
+La ĝis nun traktita kazo apartenas al 1 a: suplementa kiel-esprimo. Tamen tiu klaso estas multe pli ampleksa. Estas al mi
 
 neeble trakti ĉion same detale kiel mi faris ĝis nun. Tio ankaŭ ne estas necesa, ĉar ekzistas paraleloj kaj analogioj kiuj ebligos simplan re-sendadon al antaŭaj paragrafoj.
 
-Prenu jenan simplan frazon: Mi neniam vidis tian hom-
-
-amason kiel nun. ”Kiel nun” estas denove duonadjektiva,
+Prenu jenan simplan frazon: Mi neniam vidis tian homamason kiel nun. ”Kiel nun” estas denove duonadjektiva,
 
 duon-adverba (vidu §§28,29). Kvankam por mi persone la
 
@@ -1557,16 +1239,12 @@ La esprimo kiel nun ja ne bezonas kompletigon. La diferenco
 
 inter la kia-(kiel)-subpropozicioj kaj la kiel-suplementoj estas ke la lastaj estas multe pli nedifinitaj, la komparo ne estas
 
-elmetita detale. Sed ĝuste tiu nedifiniteco donas al ni la eblon 34
-
-DU MALSANOJ EN ESPERANTO
+elmetita detale. Sed ĝuste tiu nedifiniteco donas al ni la eblon
 
 
 uzi ilin tiel ofte. Kiu ja povas, dum siaj paroloj, esti ĉiam konscia pri la logikaj rilatoj inter la frazelementoj kiujn li uzas kune kun ĉiaj iliaj ofte etaj nuancoj?
 
-Se oni postulus ion tian, Esperanto fariĝus multe pli mal-
-
-facila ol ĉiu ajn nacia lingvo.
+Se oni postulus ion tian, Esperanto fariĝus multe pli malfacila ol ĉiu ajn nacia lingvo.
 
 Kial ne akcepti la solvon de Zamenhof: Neniam uzu kia
 
@@ -1578,24 +1256,15 @@ Jen ankoraŭ kelkaj ekzemploj:
 
 2. Vi denove havas tian aspekton kiel tiam (M.13).
 
-Feliĉe estas ke oni preskaŭ ĝenerale ne estas ”tiel konse-
-
-kvenca” apliki kia(j)(n) en tiaj komparoj.
+Feliĉe estas ke oni preskaŭ ĝenerale ne estas ”tiel konsekvenca” apliki kia(j)(n) en tiaj komparoj.
 
 Tamen: la kia-ismo disvastiĝas kiel infekta malsano. ĉu mi
 
 ne legis sur unu paĝo de ”La Perfido” du tiajn kazojn. (pĝ 96).
 
-”Neniam li troviĝis en tia penujo kia nun.” ”Neniam li prepa-
+”Neniam li troviĝis en tia penujo kia nun.” ”Neniam li preparis tian insidon kian ĉifoje.”
 
-ris tian insidon kian ĉifoje.”
-
-Imagu: vorto en prepozicia funkcio kiun oni povas plura-
-
-ligi kaj akuzativigi!! Absurda!
-
-
-DU MALSANOJ EN ESPERANTO
+Imagu: vorto en prepozicia funkcio kiun oni povas pluraligi kaj akuzativigi!! Absurda!
 
 
 VII
@@ -1610,13 +1279,9 @@ samtempe sekvata de ia kompara esprimo, ĉu suplementa, ĉu
 
 propozicia.
 
-La vorto sama indikas identecon. Sed ekzistas diversaj gra-
+La vorto sama indikas identecon. Sed ekzistas diversaj gradoj de identeco, kaj per la lingvo-materialo de Esperanto oni
 
-doj de identeco, kaj per la lingvo-materialo de Esperanto oni
-
-POVUS distingi inter tiuj gradoj, se almenaŭ la komparo es-
-
-tas ellaborita per subpropozicio.
+POVUS distingi inter tiuj gradoj, se almenaŭ la komparo estas ellaborita per subpropozicio.
 
 Komparu nur la jenajn 3 frazojn:
 
@@ -1634,25 +1299,14 @@ samaj ekzempleroj)
 
 3. ĉar ili estas en la sama lernejo, Karlo uzas nun la samajn
 
-librojn kiujn Eriko jam finstudis. (kompleta identeco: sa-
+librojn kiujn Eriko jam finstudis. (kompleta identeco: samaj libroj kaj ankaŭ samaj ekzempleroj)
 
-maj libroj kaj ankaŭ samaj ekzempleroj)
+Tio estas bela teorio, sed … ĉu en la praktiko la Esperantistoj povus atingi tian nivelon de sagaca inteligenteco? Eble dum verkado malantaŭ la skribotablo, sed kio pri la ĉiutaga
 
-Tio estas bela teorio, sed … ĉu en la praktiko la Esperan-
-
-tistoj povus atingi tian nivelon de sagaca inteligenteco? Eble dum verkado malantaŭ la skribotablo, sed kio pri la ĉiutaga
-
-parola uzado? Cetere: ĉu tia detalemo estas dezirinda? Mi fir-
-
-me kredas, ke ne! Postulante tian altgradan akuratecon oni
+parola uzado? Cetere: ĉu tia detalemo estas dezirinda? Mi firme kredas, ke ne! Postulante tian altgradan akuratecon oni
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-malebligus la uzadon de Esperanto kaj farus ĝin morta teo-
-
-ria sistemo.
+malebligus la uzadon de Esperanto kaj farus ĝin morta teoria sistemo.
 
 §35
 
@@ -1662,9 +1316,7 @@ Pli volonte ni vidos kiel Zamenhof agis en la uzado de sama
 
 subst. + komparo.
 
-A. Post tia sama … aŭ la sama … aŭ tiu sama … Z. uzis se-
-
-nescepte la komparon kiel por enkonduki frazparton (neniam
+A. Post tia sama … aŭ la sama … aŭ tiu sama … Z. uzis senescepte la komparon kiel por enkonduki frazparton (neniam
 
 kia aŭ kiom) Kp §§13-17.
 
@@ -1691,9 +1343,6 @@ Z. II 96)
 ombrita per tia sama hedero kiel ĉi tie (M 76)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 14. Emilio havis sur si eĉ la saman veston kiel tiam. (M 120)
 
 15. … tiu sama sindona kaj multemerita Michaŭx kiel antaŭe
@@ -1702,13 +1351,9 @@ DU MALSANOJ EN ESPERANTO
 
 §36
 
-B. Subpropozicioj post sama plus subst. estas en la Zamenho-
+B. Subpropozicioj post sama plus subst. estas en la Zamenhofa lingvo sufiĉe maloftaj. Mi donas:
 
-fa lingvo sufiĉe maloftaj. Mi donas:
-
-1. La trajtoj montris ankoraŭ la saman esprimon kiu iam lu-
-
-mis sur la vizaĝo de la infano (F 103)
+1. La trajtoj montris ankoraŭ la saman esprimon kiu iam lumis sur la vizaĝo de la infano (F 103)
 
 2. i estas tia sama komercejo kiaj estas ĉiuj aliaj komercejoj (M 23)
 
@@ -1728,9 +1373,7 @@ tagoj (Let. de Z. II 92)
 
 demandis la opinion de ĉiuj aliaj. (Let. de Z. II 202)
 
-7. La enhavo de la memuaro estos la sama, kiun mi jam sen-
-
-dis al vi (Let. de Z. II 337)
+7. La enhavo de la memuaro estos la sama, kiun mi jam sendis al vi (Let. de Z. II 337)
 
 Malmultaj ekzemploj, sed sufiĉe por pruvi ke ankaŭ ĉi tie
 
@@ -1743,12 +1386,7 @@ a. kia, se la kompara senco estas klara.
 b. kiu, se tiu senco mankas aŭ estas nur en la fono.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-c. kiel: malofta escepto ne ĉiam klarigebla (krom kiel ”ana-
-
-coluthon”).
+c. kiel: malofta escepto ne ĉiam klarigebla (krom kiel ”anacoluthon”).
 
 §37
 
@@ -1772,9 +1410,7 @@ korekta formo tamen estas ’kiajn’. ”
 
 La aŭtoro do estas singarda. Ne-erara, tamen ne korekta!
 
-En akordo kun tiu tezo la tradukinto de ”La Perfido” ver-
-
-kis ekz. jenajn frazojn:
+En akordo kun tiu tezo la tradukinto de ”La Perfido” verkis ekz. jenajn frazojn:
 
 1. ŝi portis robon, kies koloro estis sama kia ŝiaj okuloj. (pĝ
 
@@ -1782,9 +1418,7 @@ kis ekz. jenajn frazojn:
 
 2. ŝi aspektas sama kia vi (pĝ 87).
 
-En la unua frazo Zamenhof certe skribus: ” … , kies kol-
-
-oro estis tia sama kiel ŝiaj okuloj”, kaj en la dua: aŭ tia sama kiel aŭ, pro la duba karaktero de la verbo aspekti, tiel same
+En la unua frazo Zamenhof certe skribus: ” … , kies koloro estis tia sama kiel ŝiaj okuloj”, kaj en la dua: aŭ tia sama kiel aŭ, pro la duba karaktero de la verbo aspekti, tiel same
 
 kiel.
 
@@ -1795,9 +1429,6 @@ revokis tiun sama-kia-instruon. ”La Progresanto” ja estas la
 fonto el kiu mi mem, kiel juna Esperantisto, kvietigis mian
 
 soifon al pli vasta kono de Esperanto, kaj … ĝi estis la sola
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 fonto trovebla por Nederlandano, ankoraŭ ne sufiĉe kapabla
@@ -1814,9 +1445,7 @@ puton kiun oni tiel alte ŝatas?
 
 ĉiam denove ni renkontas la saman, fundamentan eraron:
 
-Oni volas ”kompletigi” ĉiujn kiel-esprimojn, kaj tiam oni mal-
-
-kovras ”erarojn”. Ne mirige! ĉar inter kiel-komplemento kaj
+Oni volas ”kompletigi” ĉiujn kiel-esprimojn, kaj tiam oni malkovras ”erarojn”. Ne mirige! ĉar inter kiel-komplemento kaj
 
 kiel-subpropozicio estas grava diferenco. Subpropozicioj kaj
 
@@ -1846,29 +1475,17 @@ Lerta kompletigisto povas verŝajne fabriki frazojn kun
 
 kiaj, kiajn, kiuj, kiujn. Kio do estas ĝusta? ĉiu povas iel pravigi sin, eĉ per Zamenhofaj ekzemploj.
 
-ĉu ”La Progresanto” kaj aliaj kia-istoj vere deziras devi-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-gi la Esperantistojn al tia cerbumado? ĉu la ”nekompleta”
+ĉu ”La Progresanto” kaj aliaj kia-istoj vere deziras devigi la Esperantistojn al tia cerbumado? ĉu la ”nekompleta”
 
 kiel-esprimo en sia simpleco ne estas preferinda? (Kp §33)
 
 §39
 
-Zamenhof uzis post tiu sama kaj post la sama ĉiam kaj senes-
+Zamenhof uzis post tiu sama kaj post la sama ĉiam kaj senescepte la pronomon kiu, por enkonduki propozicion. Feliĉe ke
 
-cepte la pronomon kiu, por enkonduki propozicion. Feliĉe ke
+la Esperantistaro sekvis tiun ekzemplon, kiel ĉiu povas konstati en ĉiuj libroj kaj gazetoj. ĉar tiu uzado estas nepre logika. Nome: ”la sama ” aŭ ”tiu sama” ne esprimas unualoke la
 
-la Esperantistaro sekvis tiun ekzemplon, kiel ĉiu povas kon-
-
-stati en ĉiuj libroj kaj gazetoj. ĉar tiu uzado estas nepre logika. Nome: ”la sama ” aŭ ”tiu sama” ne esprimas unualoke la
-
-komparon, sed konstatas identecon. Tia konstato komprene-
-
-ble estas nur farebla post ia komparado, sed uzante ”la sam-
+komparon, sed konstatas identecon. Tia konstato kompreneble estas nur farebla post ia komparado, sed uzante ”la sam-
 
 an” aŭ ”tiun saman” oni jam preteriris en sia menso la stadion de komparado, tiel ke tio lasta kvazaŭ retiriĝas kaj la rezultato de la komparado, nome la identeco emerĝas kaj okupas
 
@@ -1878,9 +1495,7 @@ Tiu ĝenerala akceptita kiu-uzado donas al mi bonvenan
 
 okazon ilustri la nekonsekvencecon de … la kia-istoj.
 
-Ni prenu la unuan ekzemplon de §36: ”La trajtoj mont-
-
-ris ankoraŭ la saman esprimon kiu iam lumis sur la vizaĝo de
+Ni prenu la unuan ekzemplon de §36: ”La trajtoj montris ankoraŭ la saman esprimon kiu iam lumis sur la vizaĝo de
 
 la infano.”
 
@@ -1888,25 +1503,16 @@ Flanke de tio Zamenhof povus esti skribinta (vidu ja §35
 
 nro 8 kaj 14): La trajtoj montris ankoraŭ la saman esprimon
 
-kiel iam en lia infaneco. Ho, tiu Zamenhof! Kiel nekonsekven-
-
-ca li estis! Tio ”logike” ja devas esti: ” … la saman esprimon kiu iam”.
+kiel iam en lia infaneco. Ho, tiu Zamenhof! Kiel nekonsekvenca li estis! Tio ”logike” ja devas esti: ” … la saman esprimon kiu iam”.
 
 ”Sed tio estas freneza”, vi ekkrias. Mi konsentas!
 
 ĉi tie ni havas tute konvinkan pruvon pri la neebleco de
 
-kompletigoj de kiel-suplementoj. La diferenco inter la ne-el-
-
-laborita kiel-suplemento kaj la detalita subpropozicio estas
+kompletigoj de kiel-suplementoj. La diferenco inter la ne-ellaborita kiel-suplemento kaj la detalita subpropozicio estas
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-klara kaj nekontestebla. Strange estas nur ke oni preskaŭ ĝe-
-
-nerale sentas tion en ĉi tiu kazo, sed rifuzas la prepozician
+klara kaj nekontestebla. Strange estas nur ke oni preskaŭ ĝenerale sentas tion en ĉi tiu kazo, sed rifuzas la prepozician
 
 funkcion al kiel en aliaj tute similaj kazoj, insistante pri (ne-certaj, eĉ malsaĝaj, neĝustaj) kompletigoj por pene serĉi la
 
@@ -1928,9 +1534,7 @@ la sama lando kaj je la sama dato kiel la Olimpaj Ludoj.”
 
 Nun la sama historio en ”pli logika” formo(!!):
 
-Petro estas alta kia giganto, li estas filo de la sama popo-
-
-lo kies mi, kaj loĝas en la sama urbo kie mi, kie li vizitis la saman lernejon kiun mi. Dum la pasinta somero li intencis vo-
+Petro estas alta kia giganto, li estas filo de la sama popolo kies mi, kaj loĝas en la sama urbo kie mi, kie li vizitis la saman lernejon kiun mi. Dum la pasinta somero li intencis vo-
 
 jaĝi en la saman regionon kien mi, eĉ je la sama tempo kiam
 
@@ -1938,16 +1542,11 @@ mi, sed li devis rezigni tiun intencon pro la sama kaŭzo kial
 
 mi. Tial ni nun kune iros al la Universala Kongreso, kiu ĉi jare estos en la sama lando kaj je la sama dato, kiem la Olimpaj
 
-Ludoj. (Kiem estas kie plus kiam; ĉi tiu nova vorto estas ne-
-
-cesa pro la logiko!)
+Ludoj. (Kiem estas kie plus kiam; ĉi tiu nova vorto estas necesa pro la logiko!)
 
 Antaŭ ol transiri al la predikativa kiel-esprimo, mi finos
 
 ĉi tiun parton per du nefermitaj leteroj.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 VIII
@@ -1960,38 +1559,27 @@ Nefermita letero al iu amiko:
 
 Kara Amiko,
 
-Vi skribas: ”Kvankam mi volonte kredas ke via rubriko es-
-
-tas interesa por teoriuloj, mi ne povas vidi kian utilon povas havi mi mem kaj aliaj simplaj praktikaj homoj de viaj eble tre sagacaj, sed por mi tro malfacilaj klarigoj.”
+Vi skribas: ”Kvankam mi volonte kredas ke via rubriko estas interesa por teoriuloj, mi ne povas vidi kian utilon povas havi mi mem kaj aliaj simplaj praktikaj homoj de viaj eble tre sagacaj, sed por mi tro malfacilaj klarigoj.”
 
 Kara amiko, mi komprenas vian plendon, sed vi estas
 
-malprava pensante ke mia kiel-traktato havas nur teorian va-
-
-loron. Kontraŭe, ĝia praktika valoro povas esti granda. Mul-
+malprava pensante ke mia kiel-traktato havas nur teorian valoron. Kontraŭe, ĝia praktika valoro povas esti granda. Mul-
 
 taj praktikaj Esperantistoj ja apenaŭ kuragas paroli aŭ verki
 
-en Esperanto, ĉar ili malkovris ke tiu lingvo estas treege malfacila kaj postulas multe pli da cerbostreĉo ol la naturaj lingvoj. Tion kaŭzas la perfektigistoj kaj reformistoj, kiuj, sub la ŝajno de logiko, trudas al la lingvo pezecon kaj apenaŭ trans-salteblajn barojn. El miaj ĝisnunaj artikoloj vi povas distili 3
+en Esperanto, ĉar ili malkovris ke tiu lingvo estas treege malfacila kaj postulas multe pli da cerbostreĉo ol la naturaj lingvoj. Tion kaŭzas la perfektigistoj kaj reformistoj, kiuj, sub la ŝajno de logiko, trudas al la lingvo pezecon kaj apenaŭ trans-salteblajn barojn. El miaj ĝisnunaj artikoloj vi povas distili
 
 simplajn regulojn:
 
-1. Post substantivo oni uzu kiel se la komparo estas esprimi-
-
-ta per frazparto.
+1. Post substantivo oni uzu kiel se la komparo estas esprimita per frazparto.
 
 2. Oni uzu kia se la komparo estas esprimita per kompleta
 
 propozicio.
 
-3. Oni uzu kiu se la kompara senco de la subpropozicio es-
-
-tas ege malforta (ekz. post ”la sama”) aŭ tute mankas.
+3. Oni uzu kiu se la kompara senco de la subpropozicio estas ege malforta (ekz. post ”la sama”) aŭ tute mankas.
 
 La ekstreme maloftaj kazoj en kiuj kiel estas necesa por
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 enkonduki la komparan epitetan subpropozicion ne havas
@@ -2004,17 +1592,11 @@ Eble ke miaj tri reguloj ŝajnas al vi ankoraŭ malfacilaj.
 
 Sed, amika mia, faru la provon, kaj vi rimarkos kiel nature kaj senpene vi baldaŭ lernos uzi ilin.
 
-La tro strikta kaj lingvistike absurda regulo de la tia-kia-
+La tro strikta kaj lingvistike absurda regulo de la tia-kiaistoj postulas de vi ĉiaman haltigon de viaj pensoj, por ke vi
 
-istoj postulas de vi ĉiaman haltigon de viaj pensoj, por ke vi
+”kompletigu” frazpartojn kiuj antaŭ via menso tute ne aperis kiel ”nekompletaj”. Akceptu mian konsilon: Traduku en
 
-”kompletigu” frazpartojn kiuj antaŭ via menso tute ne ape-
-
-ris kiel ”nekompletaj”. Akceptu mian konsilon: Traduku en
-
-kajero ĉiujn Zamenhofajn ekzemplojn kiujn mi donis en la di-
-
-versaj paragrafoj, relernu ilin el via lingvo en Esperanton kaj en la daŭro de via tuta vivo vi ne plu povas fari erarojn.
+kajero ĉiujn Zamenhofajn ekzemplojn kiujn mi donis en la diversaj paragrafoj, relernu ilin el via lingvo en Esperanton kaj en la daŭro de via tuta vivo vi ne plu povas fari erarojn.
 
 Tute via, de H.
 
@@ -2024,15 +1606,11 @@ Nefermita letero al iu Eminentulo.
 
 Estimata Eminentulo,
 
-Dankon pro via letero. ia tono montras al mi ke vi ha-
-
-vas afablajn, eĉ patrajn sentojn rilate min. Ke vi ĉiam legas
+Dankon pro via letero. ia tono montras al mi ke vi havas afablajn, eĉ patrajn sentojn rilate min. Ke vi ĉiam legas
 
 mian rubrikon kun granda interesiĝo, jen, kiel flata vi povas
 
-esti! Tamen vi admonas kaj avertas kaj parolas pri ”regulfa-
-
-ristoj”, kaj finas per: ”Vi iom similas al Couturat, kiu ankaŭ faris regulojn kaj poste riproĉis al Esperanto ke ĝi ne sekvas liajn regulojn.”
+esti! Tamen vi admonas kaj avertas kaj parolas pri ”regulfaristoj”, kaj finas per: ”Vi iom similas al Couturat, kiu ankaŭ faris regulojn kaj poste riproĉis al Esperanto ke ĝi ne sekvas liajn regulojn.”
 
 Jen, kiel malflata vi povas esti!
 
@@ -2041,16 +1619,11 @@ Kara eminentulo, mi atendas kritikojn, sed esperas ke ili
 estu ”realaj”. Kelkaj personoj ja povas esti tiel malfacilaj! Post mallonga traktato ili diras: ”Sro W aŭ H aŭ N dekretas”, post
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 longa traktato: ”Sro K aŭ D aŭ M uzas mulvortecon por kaŝi
 
 sian mankon de taŭgaj argumentoj.”
 
-Eminenta Moŝto, mi ne faras regulojn, mi post tempora-
-
-ba klopodado provas formuli la regulecojn kiuj estas en la lingvo mem, ĉiam konsciante ke, unuflanke, neniu lingvo lasas
+Eminenta Moŝto, mi ne faras regulojn, mi post temporaba klopodado provas formuli la regulecojn kiuj estas en la lingvo mem, ĉiam konsciante ke, unuflanke, neniu lingvo lasas
 
 sin tute kapti en regul-reton, sed ke aliflanke, la lernanto de lingvoj bezonas regulojn.
 
@@ -2058,9 +1631,7 @@ Ankaŭ al vi mi donas konsilon. Vi komparas min kun
 
 Couturat. Mi kuraĝas supozi ke vi skribis tion freŝleginte la
 
-duan parton de la ”Leteroj de Zamenhof”. Nu, ankaŭ mi le-
-
-gis ĝin por kontroli ”miajn teoriojn”. Kaj, estimata sinjoro, tiu kontrolo havis centprocentan rezultaton! Ankaŭ vi faru la provon. Vi trovas:
+duan parton de la ”Leteroj de Zamenhof”. Nu, ankaŭ mi legis ĝin por kontroli ”miajn teoriojn”. Kaj, estimata sinjoro, tiu kontrolo havis centprocentan rezultaton! Ankaŭ vi faru la provon. Vi trovas:
 
 1. tia kiel sur pĝ 63, 96, 108, 109, 244, 263, 317.
 
@@ -2079,9 +1650,6 @@ Estimata Eminentulo, mi restas, kun la ŝuldata respekto.
 Via de H.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 IX
 
 LA PREDIKATIVA KIEL ESPRIMO
@@ -2092,9 +1660,7 @@ La kiel-esprimo povas esti predikativo. En tiu kazo Zamenhof
 
 uzis ĉiam kaj senescepte kiel.
 
-Centoj da ekzemploj estas troveblaj en la Malnova Testa-
-
-mento, kio facile estas klarigebla el la karaktero de ties stilo.
+Centoj da ekzemploj estas troveblaj en la Malnova Testamento, kio facile estas klarigebla el la karaktero de ties stilo.
 
 Sed ankaŭ en aliaj libroj ili estas oftaj. Unue mi donos kelkajn ekzemplojn kun la verboj esti aŭ fariĝi.
 
@@ -2120,12 +1686,7 @@ olivarbo, li bonodoras kiel Lebanon. (Hoŝ. 14: 5, 6)
 
 Legu ankaŭ: Alta Kanto 5: 12-16 kaj 7: 1-9.
 
-Ankaŭ inter la predikativoj la kia-ismo serĉas siajn vikti-
-
-mojn. Ekz.:
-
-
-DU MALSANOJ EN ESPERANTO
+Ankaŭ inter la predikativoj la kia-ismo serĉas siajn viktimojn. Ekz.:
 
 
 1. Li estas ĉiam kia nun (Perfido 38)
@@ -2138,9 +1699,7 @@ Kiom da ”eraroj” do faris Zamenhof! Ni nepre ŝanĝu ilin
 
 tuj kaj legu ekz. en Alta Kanto 5: 13: Liaj okuloj estas kiaj ko-lomboj ĉe la akvotorentoj; liaj vangoj estas, kiaj bedoj de aro-maĵoj, kia kesto de ŝmiraĵisto; liaj lipoj estas kiaj rozoj.
 
-Eble ke iu simpla Esperantisto tiam demandus: ”ĉu vi po-
-
-vas doni al mi kelkajn detalojn pri la ”kia-rozo” kaj la ”kia-ko-lombo”, sed tio ne gravas, se ja la logiko mem postulas tiujn
+Eble ke iu simpla Esperantisto tiam demandus: ”ĉu vi povas doni al mi kelkajn detalojn pri la ”kia-rozo” kaj la ”kia-ko-lombo”, sed tio ne gravas, se ja la logiko mem postulas tiujn
 
 korektojn!
 
@@ -2150,15 +1709,11 @@ estas: LOGIKO!!
 
 §43
 
-ĉu la predikativa kiel-esprimo vere prezentas al ni novan ka-
-
-zon? ĉu estas diferenco inter: homo kiel mia patro kaj: Li es-
+ĉu la predikativa kiel-esprimo vere prezentas al ni novan kazon? ĉu estas diferenco inter: homo kiel mia patro kaj: Li es-
 
 tas kiel mia patro. Mi opinias ke jes. Tio certe estas la kaŭzo ke nur la ĝisostaj kia-istoj uzas kia en la predikativoj, dum, kiel ni vidis, la uzado de kia en la kiel-suplementoj jam fariĝis preskaŭ ĝenerala (§18).
 
-La diferenco inter la du esprimoj estas paralela kun la di-
-
-ferenco inter la epiteta adjektivo kaj la predikativa (la alta arbo — la arbo estas alta).
+La diferenco inter la du esprimoj estas paralela kun la diferenco inter la epiteta adjektivo kaj la predikativa (la alta arbo — la arbo estas alta).
 
 Ni prenu ekzemple: ”homo-kiel-Napoleon”. Tiu esprimo
 
@@ -2171,14 +1726,9 @@ kiun ĝi elvokas povus esti nomata ankaŭ per unu sola vorto
 ekz. diktatoro, aŭ kruelulo, do la esprimo konigas unu solan
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 ideon. Kiam ni parolas pri iu kiel ”homo-kiel-Napoleon” ni
 
-klasifikas lin, ni metas lin en iun difinitan kategorion, ni ski-zas per unu esprimo lian tutan personon: Tia li estas kaj es-
-
-tis kaj estos!
+klasifikas lin, ni metas lin en iun difinitan kategorion, ni ski-zas per unu esprimo lian tutan personon: Tia li estas kaj estis kaj estos!
 
 Sed en: ”Li estas kiel Napoleon” la kiel-esprimo aldonas
 
@@ -2188,9 +1738,7 @@ elemento tute ne bezonas esti konstanta” daŭra, kontraŭe: ĝi
 
 ofte estas pasa, dependa de la cirkon’stancoj, portempa.
 
-La kiel-suplemento estas kvazaŭ rigida, la kiel-predikati-
-
-vo flua, pli libera. Tial la kiel-predikativo estas ofte esprimita per nedifinita vorto, dum la kiel-suplemento ĉiam devas
+La kiel-suplemento estas kvazaŭ rigida, la kiel-predikativo flua, pli libera. Tial la kiel-predikativo estas ofte esprimita per nedifinita vorto, dum la kiel-suplemento ĉiam devas
 
 esti difinita, kiel vi povas vidi en la ekzemploj de §18. Ekzistas do diferenco inter: ”Li estas homo kiel Napoleon” kaj ”Li
 
@@ -2200,9 +1748,7 @@ multe pli forta; oni povas diri: la dua esprimo estas nur kvali-fika, dum la unu
 
 §44
 
-Sed kial elmeti tiun distingon? Nur por montri ke oni ne po-
-
-vas disigi lingvajn elementojn, kombini ilin alimaniere kaj tiel
+Sed kial elmeti tiun distingon? Nur por montri ke oni ne povas disigi lingvajn elementojn, kombini ilin alimaniere kaj tiel
 
 ”pruvi la logikecon” de iaj formoj.
 
@@ -2211,9 +1757,6 @@ Oni ja asertas ke la frazo de Zamenhof: ”Li estis kiel bona
 patro por siaj soldatoj” estas malbona, kaj kuraĝe oni ŝanĝas:
 
 ”Li estas kia patro”. Sed: kiel patro kaj kia patro estas sintaksaj unuoj inter kiuj estas grava diferenco. Demandu cent
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Esperantistojn fari frazon kun ”kiel patro” kaj oni ricevos eble: Kiel patro li zorgis por mi; Li parolis al mi kiel patro (dusenca); Li estas kiel patro por siaj lernantoj; Kaj donu la saman peton pri kia patro kaj vi ricevos: Kia patro, tia filo; Kian pa-tron havas li? k. s. — sed mi estas certa ke neniu skribos: Li estas kia patro.
@@ -2251,9 +1794,6 @@ E: Sed ĉu tio estas ĝusta? Vi diras estas, kaj ne estis. Tio ja ne estas la sa
 K: Vi ne komprenas mian logikon.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 E: Dankon! Sed kion vi farus en la frazo de Zamenhof: ”ni
 
 fariĝis kiel pafarko”?
@@ -2264,21 +1804,15 @@ Tio ja estas simpla! Kie estas viaj cerboj?
 
 E: Sed … Sed …
 
-K: Silentu! Estas, estas, ĉiam estas! Ni logikuloj ja ĉiam mo-
+K: Silentu! Estas, estas, ĉiam estas! Ni logikuloj ja ĉiam moviĝas en la prezenco, ĝi estas la sola realaĵo. Mi daŭrigas:
 
-viĝas en la prezenco, ĝi estas la sola realaĵo. Mi daŭrigas:
-
-Nun montriĝas la eraro de Zamenhof, ĉar tiu estas ja po-
-
-stulas ”kia”, do: Li estis kia patro estas, aŭ eĉ pli bone: Li estis kia estas patro.
+Nun montriĝas la eraro de Zamenhof, ĉar tiu estas ja postulas ”kia”, do: Li estis kia patro estas, aŭ eĉ pli bone: Li estis kia estas patro.
 
 E (balbute): ĉu vi tiel ne akiris tute alian frazon? La verbo
 
 ”estas” ja ne povas esti tiel grava. En multaj lingvoj …
 
-K: Stultulo! Lasu min finparoli. Kia estas pronomo, do ĝi po-
-
-stulas antaŭ si la vorton tia aŭ ian adjektivon: Jen do la
+K: Stultulo! Lasu min finparoli. Kia estas pronomo, do ĝi postulas antaŭ si la vorton tia aŭ ian adjektivon: Jen do la
 
 kompleta frazo: Li estis tia, kia estas patro, aŭ: Li estis zorganta, kia estas patro.
 
@@ -2286,23 +1820,17 @@ E: Ho, mia kap’. Ne perdu viajn harojn!
 
 K: ĉu vi ne komprenas?
 
-E: Ne, kompare kun la alia frazo mi trovas vian teda, sensu-
-
-ka, babilaĉa kaj se mi aldonas ”por siaj soldatoj” mi eĉ
+E: Ne, kompare kun la alia frazo mi trovas vian teda, sensuka, babilaĉa kaj se mi aldonas ”por siaj soldatoj” mi eĉ
 
 trovas ĝin absurda: ”Li estis zorganta, kia estas patro, por
 
 siaj soldatoj”.
 
-K: Vi estas ege sendanka. Kompreneble oni nun devas mal-
-
-longigi la tuton: Li estis kia patro por siaj soldatoj! aŭ: Li estis por siaj soldatoj kia patro! Sed ĉu vi scias la matema-tikon?
+K: Vi estas ege sendanka. Kompreneble oni nun devas mallongigi la tuton: Li estis kia patro por siaj soldatoj! aŭ: Li estis por siaj soldatoj kia patro! Sed ĉu vi scias la matema-tikon?
 
 E: Iom.
 
-K: Aŭskultu: Li estis kiel patro. Mi enmetas tia: Li estis tia kiel 50
-
-DU MALSANOJ EN ESPERANTO
+K: Aŭskultu: Li estis kiel patro. Mi enmetas tia: Li estis tia kiel
 
 
 patro. Tiu malgrava ŝanĝo ja estas tute logika, ĉu ne? …
@@ -2333,13 +1861,9 @@ matematiko: negativa elemento kaj pozitiva elemento
 
 kompensas unu la alian. (+ 10) + (-10) = 0.
 
-E: Mirinde, mirinde … pardonu, mi devas diri: mirige, miri-
+E: Mirinde, mirinde … pardonu, mi devas diri: mirige, mirige. Sed tiu enŝovado de tia ne tre plaĉas al mi!
 
-ge. Sed tiu enŝovado de tia ne tre plaĉas al mi!
-
-K: Obstinulo! Ankaŭ tio ja estas simplega. Aŭskultu: ”Li zor-
-
-gas kiel patro”. Tio estas en ordo, ĉu ne? Nun: ”Li estas
+K: Obstinulo! Ankaŭ tio ja estas simplega. Aŭskultu: ”Li zorgas kiel patro”. Tio estas en ordo, ĉu ne? Nun: ”Li estas
 
 kiel patro”. Atentu: ni perdis la verban ideon zorgi. Sed oni
 
@@ -2353,19 +1877,12 @@ K: Ne, tion ni jam pruvis, eĉ matematike! Ni devas diri:
 
 Li estas zorganta kia patro. Sed ĉar ni ne ĉiam povas scii
 
-kia verba ideo perdiĝis, do kiun participon ni devas enŝo-
-
-vi, ni uzas la ĝelleralan vorton tia: Li estas tia kia estas
+kia verba ideo perdiĝis, do kiun participon ni devas enŝovi, ni uzas la ĝelleralan vorton tia: Li estas tia kia estas
 
 patro, el kiu frazo ni distilas: Li estas kia patro!
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-E: Dankon, sed ĉu ĉiuj tiuj ŝanĝoj, enŝovadoj, disigoj, pli-
-
-vastigoj kaj mallongigoj estas permesataj? Mi trovas la
+E: Dankon, sed ĉu ĉiuj tiuj ŝanĝoj, enŝovadoj, disigoj, plivastigoj kaj mallongigoj estas permesataj? Mi trovas la
 
 Zamenhofan: ”Li estas kiel patro” flanke de ”Li zorgis kiel
 
@@ -2376,20 +1893,13 @@ K: Ho, tiu kompatinda Zamenhof!
 E: Efektive … kompatinda Zamenhof!
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-X
-
 LA VERBO ESTI KAJ TIES PREDIKATIVA
 
 KOMPLEMENTO
 
 §46
 
-Sekvante la virtuozajn kapricojn de sinjoro Kia-isto kaj mir-
-
-ante la facilanimecon kun kiu li fendas sintaksajn unuojn por
+Sekvante la virtuozajn kapricojn de sinjoro Kia-isto kaj mirante la facilanimecon kun kiu li fendas sintaksajn unuojn por
 
 poste korfavore ripari ilin, ni rimarkas ke li atribuas grandegan valoron al la verboformo estas. Mi jam diris ke ĝuste la
 
@@ -2401,22 +1911,13 @@ Efektive, tiu regulo estas praktika. Sed ĉi tie ne temas pri
 
 la simplaj malfacilaĵoj de komencantoj, ĉi tie ni havas profundan diferencon de opinioj, kiun ni ne povas solvi per regulo
 
-por komencantoj. En: ”Li estas kiel patro” certe mankas ek-
-
-stera indiko pri adjektiveco. Sed ripari tion per: ”Li estas kia patro”, estas malĝuste, ĉar tiu kia ne havas interrilaton kun la vorto estas en la frazo mem, ĝi (laŭ la kia-istoj) dependas de iu latenta, subkomprenita estas, kiun oni povas loki post kia
+por komencantoj. En: ”Li estas kiel patro” certe mankas ekstera indiko pri adjektiveco. Sed ripari tion per: ”Li estas kia patro”, estas malĝuste, ĉar tiu kia ne havas interrilaton kun la vorto estas en la frazo mem, ĝi (laŭ la kia-istoj) dependas de iu latenta, subkomprenita estas, kiun oni povas loki post kia
 
 aŭ post patro.
 
-La indiko pri adjektiveco ĉiam mankas kiam oni uzas pre-
+La indiko pri adjektiveco ĉiam mankas kiam oni uzas prepozician grupon kiel predikativon kaj neniu, ĝis nun, trovis
 
-pozician grupon kiel predikativon kaj neniu, ĝis nun, trovis
-
-tion stranga. Kp. Li estas en bona humoro, kun: Li estas bon-
-
-humora.
-
-
-DU MALSANOJ EN ESPERANTO
+tion stranga. Kp. Li estas en bona humoro, kun: Li estas bonhumora.
 
 
 §47
@@ -2427,9 +1928,7 @@ aranĝi ilin laŭ malsupreniranta skalo tiel, ke la verbo ĉiam pli perdas sian 
 
 gramatikilo sen ia plia valoro. Mi donu kelkajn ŝtupojn el tia skalo:
 
-1. ”ĉiuj teorioj pri Esperanto estus senutilaj, se neniu Espe-
-
-ranto ekzistus. Sed Esperanto estas kaj vivas.” (D-ro A.
+1. ”ĉiuj teorioj pri Esperanto estus senutilaj, se neniu Esperanto ekzistus. Sed Esperanto estas kaj vivas.” (D-ro A.
 
 Mildwurt.)
 
@@ -2447,30 +1946,21 @@ Kio estis, tio estos (Fred. l: 9).
 
 Esti = troviĝi, moviĝi. ĉi tie ni do havas la lokan signifon
 
-kaj ĉi tie komenciĝas la hezitoj kaj malfacilaĵoj. Mi ne in-
-
-tencas tro multe detaligi sed petas ĉiun pristudi kelkajn
+kaj ĉi tie komenciĝas la hezitoj kaj malfacilaĵoj. Mi ne intencas tro multe detaligi sed petas ĉiun pristudi kelkajn
 
 ekzemplojn:
 
-Li jam longe estas for (adverba (!) predikativo aŭ loka ad-
-
-jekto)?
+Li jam longe estas for (adverba (!) predikativo aŭ loka adjekto)?
 
 Ni estas hejme (atentu la e).
 
-La ŝipo estas sur la maro — la ŝipo estas surmare — sur-
-
-mara ŝipo.
+La ŝipo estas sur la maro — la ŝipo estas surmare — surmara ŝipo.
 
 La loka pozicio povas ankaŭ esti esprimita per adjektivo:
 
 Malfeliĉo estas proksima (Ps 22: 11).
 
 Mi estas proksima al Dio (Ps 73: 28).
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Proksima estas Dio al tiuj, kies koro estas rompita (Ps 34:
@@ -2485,9 +1975,7 @@ Kiel malproksime estas la oriento de la okcidento (Ps 103).
 
 Malproksimaj ili estas de via leĝo (Ps 119: 50).
 
-Tio klare montras kiel facile la predikativa adjektivo gli-
-
-tas en la adverban (aŭ prepozician) klason, precipe se tiu
+Tio klare montras kiel facile la predikativa adjektivo glitas en la adverban (aŭ prepozician) klason, precipe se tiu
 
 adjektivo havas propran komplementon.
 
@@ -2519,16 +2007,11 @@ en tiaj frazoj la predikativa adverbo estas tre natura, pro
 
 la fakto ke ĝi esprimas unu el la cirkonstancoj de la estado,
 
-de la ”ekzistado, moviĝado, troviĝado”. Bonegan ekzem-
-
-plon donas al ni Alta Kanto 2: 2 kaj 3:
+de la ”ekzistado, moviĝado, troviĝado”. Bonegan ekzemplon donas al ni Alta Kanto 2: 2 kaj 3:
 
 Kiel rozo inter la domoj.
 
 Tiel estas mia amatino inter la knabinoj.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Kiel pomarbo inter arboj nefruktaj, tiel estas mia amato
@@ -2551,17 +2034,13 @@ Kp: Mi esperas ke sinjorino Bourlet sentas sin tute bone
 
 Alian tipan ekzemplon ni havas en Ps 131: 2:
 
-Kiel infano formetita de la mamo de sia patrino, Tiel es-
-
-tas en mi mia animo.
+Kiel infano formetita de la mamo de sia patrino, Tiel estas en mi mia animo.
 
 Tial frazo kiel: ”Lasu lin, li estas tute bone, kie li estas”, estas nepre korekta.
 
 5. La plej malsupran ŝtupon ni atingas en ekz:
 
-La tero estas ronda. Tia ”estas” estas la kopulo, nura gra-
-
-matika ligilo. Multaj lingvoj tute ne havas ĝin, (ekz: en la
+La tero estas ronda. Tia ”estas” estas la kopulo, nura gramatika ligilo. Multaj lingvoj tute ne havas ĝin, (ekz: en la
 
 hebrea lingvo psalmo 23 komenciĝas tiel: La Sinjoro, mia
 
@@ -2571,21 +2050,13 @@ Rusa lingvo ne uzas ĝin en la prezenco).
 
 §48
 
-La uzado de adjektivo aŭ adverbo post esti do jam estas dis-
-
-kutinda kaj ne ĉiam facila. ĉiu Esperantisto scias ke en tri
+La uzado de adjektivo aŭ adverbo post esti do jam estas diskutinda kaj ne ĉiam facila. ĉiu Esperantisto scias ke en tri
 
 kazoj Zamenhof ĉiam uzis la adverban formon: a) resti kun
 
 leono estas danĝere (infinitiva subjekto)
 
-(Ekz. §7). b) estus tre bele ke mi iru al la fonto (propozi-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-cia subjekto) (Ekz. §19). c) ĉu estas varme? (sensubjekta fra-
+(Ekz. §7). b) estus tre bele ke mi iru al la fonto (propozicia subjekto) (Ekz. §19). c) ĉu estas varme? (sensubjekta fra-
 
 zo) (Ekz. §25).
 
@@ -2603,23 +2074,15 @@ la objektaj predikativoj post ”sin teni”.
 
 Sufiĉe por pruvi ke en la predikativoj ekzistas ĉe Zamenhof
 
-ia ŝanceliĝado inter adverbo kaj adjektivo. Kelkaj gramatiki-
+ia ŝanceliĝado inter adverbo kaj adjektivo. Kelkaj gramatikistoj provis klarigi tion per ”influoj de la rusa lingvo”, en kiu la predikativa adjektivo havas alian formon ol la epiteta (dom nov = (la) domo estas nova; dom novyj — (la) nova domo).
 
-stoj provis klarigi tion per ”influoj de la rusa lingvo”, en kiu la predikativa adjektivo havas alian formon ol la epiteta (dom nov = (la) domo estas nova; dom novyj — (la) nova domo).
-
-Tiu ”neŭtra adjektivo” povas ankaŭ roli kiel adverbo (Ple-
-
-na Gr. §196). Nu, mi neniam kontestos ke Zamenhof estis el-
+Tiu ”neŭtra adjektivo” povas ankaŭ roli kiel adverbo (Plena Gr. §196). Nu, mi neniam kontestos ke Zamenhof estis el-
 
 metita al fortaj influoj de sia patrina lingvo, tamen mi kredas ke en ĉi tiu kazo la radikoj iras pli profunden. Nome: la predikativo havas logike kaj psikologi(k)e mezan pozicion inter la epitetoj kaj la adjektoj, alivorte ĝi estas duonadjektiva, duon-adverba.
 
-La ruslingva ”neŭtra adjektivo” estas nur la ekstera mani-
+La ruslingva ”neŭtra adjektivo” estas nur la ekstera manifestiĝo de tiu lingvistika ”leĝo”. Anstataŭ imputi la Zamenho-
 
-festiĝo de tiu lingvistika ”leĝo”. Anstataŭ imputi la Zamenho-
-
-fan ”ŝanceliĝadon” al la rusa lingvo, estas multe pli bone re-
-
-koni ke Zamenhof lasis sin influi de tiu sama lingvistika leĝo kiu en la rusa lingvo trovis sian eksteran stampon en la ”neŭ-
+fan ”ŝanceliĝadon” al la rusa lingvo, estas multe pli bone rekoni ke Zamenhof lasis sin influi de tiu sama lingvistika leĝo kiu en la rusa lingvo trovis sian eksteran stampon en la ”neŭ-
 
 tra adjektivo”. Ni ja vidas similajn fenomenojn en ne-slavaj
 
@@ -2628,14 +2091,9 @@ lingvoj.
 Ni unue prenu la svedan lingvon:
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 Han sjunger vackert — li kantas bele (adverbo).
 
-Amsterdam är vackert — Amsterdam estas bela (predi-
-
-kativo).
+Amsterdam är vackert — Amsterdam estas bela (predikativo).
 
 Det vackra landet — la bela lando (epiteto).
 
@@ -2647,9 +2105,7 @@ fleksioj.
 
 Hij zingt prachtig — li kantas belege (adverbo).
 
-Het schilderij is prachtig — la pentraĵo estas belega (pre-
-
-dikativo).
+Het schilderij is prachtig — la pentraĵo estas belega (predikativo).
 
 Hij vindt het prachtig — li trovas ĝin belega (predikativo).
 
@@ -2657,13 +2113,9 @@ Het prachtige schilderij — la belega pentraĵo (epiteto).
 
 ĉar ni renkontas similajn fenomenojn en slava lingvo, en
 
-skandinava lingvo kaj en okcident-ĝermana lingvo ni ne po-
+skandinava lingvo kaj en okcident-ĝermana lingvo ni ne povas ignori la fakton ke tiuj fenomenoj elkreskas el la sama
 
-vas ignori la fakton ke tiuj fenomenoj elkreskas el la sama
-
-radiko, havas la saman bazon, konstruiĝas sur la sama fun-
-
-damento.
+radiko, havas la saman bazon, konstruiĝas sur la sama fundamento.
 
 §50
 
@@ -2677,33 +2129,22 @@ Beleŭ (aŭ belij aŭ … ): predikativo
 
 Bele: adverbo.
 
-Kara leganto; Ne pensu eĉ dum unu sekundo ke mi dezi-
-
-ras rekomendi tian ”solvon”! Ni domaĝu nin mem kaj nian
+Kara leganto; Ne pensu eĉ dum unu sekundo ke mi deziras rekomendi tian ”solvon”! Ni domaĝu nin mem kaj nian
 
 Esperanton. Tiel agante, ni turnus la lingvistikan horloĝon
 
 kelkajn jarcentojn malantaŭen, per kiu iom stranga bildo mi
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 nur volas diri ke ni irus rekte kontraŭ la ĝenerala direkto laŭ kiu niaj hind-eŭropaj lingvoj evoluas. Ni povas esti tute kontentaj pri la praktikaj reguloj kiuj kristaliĝis el la lingvo-uzado de Zamenhof mem kaj kiuj estas pli firme fiksitaj de la dua generacio da Esperantistoj. Ni do u zu la adjektivan formon
 
 por la predikativo krom en la tri kazoj de §48.
 
-Sed ni neniam forgesu ke tio estas praktika regulo kaj ne-
+Sed ni neniam forgesu ke tio estas praktika regulo kaj neniom pli ol tio. i ne estas logika, ĉar ĝi ja ignoras la apartan karakteron de la predikativo.
 
-niom pli ol tio. i ne estas logika, ĉar ĝi ja ignoras la apartan karakteron de la predikativo.
+Iam mi legis ke la finna lingvo havas kvar diversajn formojn por la predikativo. Tio devas averti nin ke ni ne rigar-
 
-Iam mi legis ke la finna lingvo havas kvar diversajn for-
-
-mojn por la predikativo. Tio devas averti nin ke ni ne rigar-
-
-du la predikativon nur el okcident-eŭropa gramatika vid-
-
-punkto, kiu vidpunkto estas tre ofte sub la forta influo de la tradiciaj latin-devenaj lingvo-konceptoj.
+du la predikativon nur el okcident-eŭropa gramatika vidpunkto, kiu vidpunkto estas tre ofte sub la forta influo de la tradiciaj latin-devenaj lingvo-konceptoj.
 
 §51
 
@@ -2726,9 +2167,6 @@ funkcio predikativa, sed tiu aldono ne estas deviga, nek logika kaj tiu ”laten
 neniel estas tiel grava kiel oni asertas.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 XI
 
 ASPEKTI -A Aŭ -E
@@ -2741,9 +2179,7 @@ ankaŭ post aliaj kopuloj la kia-istoj postulas kia-esprimojn
 
 anstataŭ kiel-esprimoj.
 
-Kiel ekzemplon mi traktos tiun postulon post la verbo as-
-
-pekti. Zamenhof uzis ĉiam kaj senescepte: kiel.
+Kiel ekzemplon mi traktos tiun postulon post la verbo aspekti. Zamenhof uzis ĉiam kaj senescepte: kiel.
 
 1. ŝi aspektas kiel la matenruĝo (Alta Kanto 6: 10).
 
@@ -2755,28 +2191,19 @@ pekti. Zamenhof uzis ĉiam kaj senescepte: kiel.
 
 175).
 
-La Amsterdama Kia-skolo postulas kia, ”ĉar ĝi estas pli lo-
-
-gika”:
+La Amsterdama Kia-skolo postulas kia, ”ĉar ĝi estas pli logika”:
 
 1. Li aspektis kia sensignifa vireto (La Perfido 16).
 
 2. Fine la mondo denove aspektis kia antaŭe (id. 173).
 
-3. Ili aspektas kiaj la fingroj de fumanto (La Nevenkebla e-
-
-no 5) (tamen: ”ankaŭ vi aspektas kiel balono” sur pĝ 71 kaj
+3. Ili aspektas kiaj la fingroj de fumanto (La Nevenkebla eno 5) (tamen: ”ankaŭ vi aspektas kiel balono” sur pĝ 71 kaj
 
 pĝ 123).
 
 §53
 
-Tiu korektado de Dro Zamenhof, kvankam nepra konsek-
-
-venco de la kia-ismo, malhavas ĉian bazon. Eĉ la ”kompleti-
-
-
-DU MALSANOJ EN ESPERANTO
+Tiu korektado de Dro Zamenhof, kvankam nepra konsekvenco de la kia-ismo, malhavas ĉian bazon. Eĉ la ”kompleti-
 
 
 go” per estas, al kiu oni atribuas tian grandan valoron (§§19, 23, 45-51), ne povas aplikiĝi en ĉi tiu kazo.
@@ -2787,9 +2214,7 @@ al la sama klaso kiel esti, do ankaŭ postulas adjektivon.
 
 Sed ĉu oni rajtas rezoni tiamaniere? ĉu aspekti estas vera
 
-kopulo? Eĉ la verbo esti ne ĉiam estas pura kopulo, tio depen-
-
-das de la grado en kiu ĝi perdas sian originan signifon (§47).
+kopulo? Eĉ la verbo esti ne ĉiam estas pura kopulo, tio dependas de la grado en kiu ĝi perdas sian originan signifon (§47).
 
 Nu: aspekti (same kiel nomiĝi, ŝajni, mieni k. a.) neniam
 
@@ -2801,9 +2226,7 @@ Tio estas certe la kaŭzo ke Zamenhof preskaŭ ĉiam uzis
 
 adverbon post aspekti (aspekti bonege, malgaje, suferante,
 
-sane, freŝe, bele), kvankam aspekti -a ankaŭ aperas (ekz. as-
-
-pektis bonorda, sed malnova M 130). Tio kompreneble ne
+sane, freŝe, bele), kvankam aspekti -a ankaŭ aperas (ekz. aspektis bonorda, sed malnova M 130). Tio kompreneble ne
 
 kontentigis niajn ”logikulojn” kaj ili dekretis ke aspekti, estante kopulo, ĉiam postulas adjektivon post si.
 
@@ -2817,12 +2240,7 @@ aferon, sed kiu estas facila, precipe por niaj komencantoj. Oni povus akcepti ĝ
 
 2. ĉiuj kiel-esprimoj post aspekti estas ”nelogikaj” kaj devas esti ŝangataj.
 
-Tio estas tro ”logika”! Ankaŭ post aspekti ni restu ĉe la Za-
-
-menhofa kiel!
-
-
-DU MALSANOJ EN ESPERANTO
+Tio estas tro ”logika”! Ankaŭ post aspekti ni restu ĉe la Zamenhofa kiel!
 
 
 XII
@@ -2831,9 +2249,7 @@ OBJEKTAJ KAJ SUBJEKTAJ PREDIKATIVOJ
 
 §54
 
-La kiel-esprimo ankaŭ troviĝas en la funkcio de objekta pre-
-
-dikativo:
+La kiel-esprimo ankaŭ troviĝas en la funkcio de objekta predikativo:
 
 1. Mi faris mian vizaĝon kiel siliko (silik-simila: Jes. 50: 7).
 
@@ -2847,15 +2263,11 @@ nekalkulebla Gen. 13: 16).
 
 (Hoŝea 1: 3).
 
-is nun ĉi tiuj esprimoj, pro sia malofteco verŝajne, an-
-
-koraŭ ne fariĝis viktimoj de la kia-ismo, kvankam oni povus
+is nun ĉi tiuj esprimoj, pro sia malofteco verŝajne, ankoraŭ ne fariĝis viktimoj de la kia-ismo, kvankam oni povus
 
 ”kompletigi” ilin per ”estas”.
 
-Atentu, ke ili estas en la nominativo kaj ke kiel denove ha-
-
-vas prepozician karakteron.
+Atentu, ke ili estas en la nominativo kaj ke kiel denove havas prepozician karakteron.
 
 §55
 
@@ -2868,12 +2280,7 @@ Ekzistas tamen tute alikaraktera kiel-esprimo, kiu ankaŭ funkcias kiel (objekta
 3. Vi elektis la Plejaltulon kiel vian rifuĝejon (Ps 91: 9).
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-4. Li volas havi min kiel virgulinon, sed eble ne kiel stampi-
-
-lon (F 81)
+4. Li volas havi min kiel virgulinon, sed eble ne kiel stampilon (F 81)
 
 5. Ili revenas kiel homoj novaj (F 42)
 
@@ -2893,9 +2300,7 @@ I. 54)
 
 12. Dio donas al vi la landon kiel posedaĵon (Josuo 1: 11).
 
-Por tiuj, kiuj deziras pristudi tiajn kiel-esprimojn, mi re-
-
-sendas al Plena Gramatiko §§303 II, 328 A, 337 Rim. IV kaj
+Por tiuj, kiuj deziras pristudi tiajn kiel-esprimojn, mi resendas al Plena Gramatiko §§303 II, 328 A, 337 Rim. IV kaj
 
 precipe §384.
 
@@ -2916,14 +2321,9 @@ Same pri la aliaj ekzemploj. Prave ”Plena Gramatiko” (pĝ
 kiel estas ”sence preskaŭ kontraŭa” al la kompara funkcio.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §57
 
-2. El tio sekvas tuj, ke oni nepre ne povas ”kompletigi” ĉi tiujn esprimojn. Ni jam vidis ke tiaj kompletigoj ofte havas du-
-
-ban karakteron kaj estas superfluaj, aŭ iom modifas la sencon
+2. El tio sekvas tuj, ke oni nepre ne povas ”kompletigi” ĉi tiujn esprimojn. Ni jam vidis ke tiaj kompletigoj ofte havas duban karakteron kaj estas superfluaj, aŭ iom modifas la sencon
 
 (§§21-24, 33, 38, 39, 43,45, 51). Sed en ĉi tiu kazo ili ne nur estas dubaj, superfluaj, modifemaj, sed rekte eraraj, ĉar ili ŝangas la identigan kiel en la komparan kiel. Ni prenu ekzemplon:
 
@@ -2931,21 +2331,15 @@ ban karakteron kaj estas superfluaj, aŭ iom modifas la sencon
 
 ĉu tio estas la kompara kiel aŭ la identiga? Tio dependas
 
-de la kunteksto. La senco povas esti: Li ESTAS krimulo kaj tial devas forkuri (do identiga) aŭ: Li forkuris kvazaŭ li estus krimulo. Kompletigo de la frazo per ”forkuras” neprigas la kom-
-
-paran sencon. Jen: Li forkuradis de la preĝejo kiel krimulo
+de la kunteksto. La senco povas esti: Li ESTAS krimulo kaj tial devas forkuri (do identiga) aŭ: Li forkuris kvazaŭ li estus krimulo. Kompletigo de la frazo per ”forkuras” neprigas la komparan sencon. Jen: Li forkuradis de la preĝejo kiel krimulo
 
 forkuradas de malliberejo. (Rab. 7) Do: Li ne estis krimulo,
 
 sed forkuris krimulmaniere.
 
-Ofte nur la kunteksto devas decidi. En Rab. pĝ 86 oni ren-
+Ofte nur la kunteksto devas decidi. En Rab. pĝ 86 oni renkontas: ”Mi konsilas al vi kiel patro”. La teksto montras ke la parolanto ne estas la patro de la alparolito, do ke ni havas la komparan kiel: Mi konsilas al vi kiel patro konsilas. (Kp. en la nederlanda lingvo: Ik raad je als een vader aan, flanke de: Ik raad je als vader aan).
 
-kontas: ”Mi konsilas al vi kiel patro”. La teksto montras ke la parolanto ne estas la patro de la alparolito, do ke ni havas la komparan kiel: Mi konsilas al vi kiel patro konsilas. (Kp. en la nederlanda lingvo: Ik raad je als een vader aan, flanke de: Ik raad je als vader aan).
-
-ĉi tie ni do povas havi eĉ kvar sencojn: Kiel patro mi kon-
-
-silas al vi:
+ĉi tie ni do povas havi eĉ kvar sencojn: Kiel patro mi konsilas al vi:
 
 a) Mi donas al vi konsilon en patra maniera (kompara kiel).
 
@@ -2958,30 +2352,21 @@ c) Estante via patro, mi konsilas al vi.
 d) ĉar vi estas patro, mi konsilas al vi.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 b, c, kaj d estas identigaj. (Vidu ankaŭ Lingvaj Respondoj
 
 pĝ 49.)
 
-Se la kunteksto ne sufiĉe klare montras la sencon, oni po-
-
-vas uzi aliajn rimedojn por distingi (Vidu Plena Gr. pĝ
+Se la kunteksto ne sufiĉe klare montras la sencon, oni povas uzi aliajn rimedojn por distingi (Vidu Plena Gr. pĝ
 
 424).
 
 §58
 
-3. La identiga kiel sendube estas prepozicio. Tio sekvas pre-
-
-cipe el la neebleco de ia ajn kompletigo. Sed ekzistas ankoraŭ aliaj argumentoj:
+3. La identiga kiel sendube estas prepozicio. Tio sekvas precipe el la neebleco de ia ajn kompletigo. Sed ekzistas ankoraŭ aliaj argumentoj:
 
 a) La naciaj lingvoj ofte tradukas tiun kiel per prepozicio:
 
-I. Oni elektis lin kiel prezidanton: men koos hem tot voor-
-
-zitter.
+I. Oni elektis lin kiel prezidanton: men koos hem tot voorzitter.
 
 II. Jozefo estis vendita kiel sklavo (Ps 105) — Joseph was
 
@@ -3001,35 +2386,24 @@ Gr. pĝ 332). Kp. ankaŭ: ni uzis la ŝtonon kiel seĝon; ni uzis
 
 la ŝtonon por seĝo.
 
-c) Krom ĉi tiuj 3 pozitivaj argumentoj, ekzistas ankoraŭ gra-
-
-va negativa, nome: ĉiu nova Esperantisto, kiu ankoraŭ ne
+c) Krom ĉi tiuj 3 pozitivaj argumentoj, ekzistas ankoraŭ grava negativa, nome: ĉiu nova Esperantisto, kiu ankoraŭ ne
 
 estas katenita de la tro striktaj reguloj de sia lernolibro, vidas en tiu identiga kiel prepozicion.
 
 Tial Degenkamp avertas en ”La Konsilanto” (pĝ 75, dua
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 ringhien en Plena Gramatiko (§328) opinias tiun averton
 
-necesa, kvankam la funkcio de la identiga kiel tute kon-
-
-gruas kun la funkcioj de la prepozicioj, kiel ĉi lastaj estas
+necesa, kvankam la funkcio de la identiga kiel tute kongruas kun la funkcioj de la prepozicioj, kiel ĉi lastaj estas
 
 difinitaj en Pl. Gr. §152. Eĉ pli, laŭ la sama Pl. Gr. la identiga-kiel-esprimo estas nerekta predikativo. Pri tio ĉiu
 
 certe samopinias kun prof. Waringhien (vidu tamen la
 
-rimarkon post §59). Kaj en Pl. Gr. pĝ 159 en §153 ni tro-
+rimarkon post §59). Kaj en Pl. Gr. pĝ 159 en §153 ni trovas difinon de la nocio nerekta. Tie ni legas: Nerekta oni
 
-vas difinon de la nocio nerekta. Tie ni legas: Nerekta oni
-
-nomas komplementon, se ĝin antaŭas … prepozicio. An-
-
-kaŭ pri tio neniu protestos. Nu la konkludo ne povas esti
+nomas komplementon, se ĝin antaŭas … prepozicio. Ankaŭ pri tio neniu protestos. Nu la konkludo ne povas esti
 
 alia ol: Tiu kiel do estas prepozicio!
 
@@ -3047,20 +2421,11 @@ d) ĉu ne estas multsignife, ke Zamenhof, ĝuste en sia Lingva
 
 Respondo pri ĉi tiu temo, difinas la vorton kiel ne kiel
 
-konjunkcion, ne kiel prepozicion, sed kiel … ligantan vor-
+konjunkcion, ne kiel prepozicion, sed kiel … ligantan vorton (L. R. pĝ 49).
 
-ton (L. R. pĝ 49).
+Kaj tiel mi revenas preskaŭ tute al mia elirpunkto kaj ripetas: Ne limigu la sencon de kiel, ne difinu ĝin tro strikte, ne rifuzu al ĝi la prepozician funkcion, sed estu kontenta pri:
 
-Kaj tiel mi revenas preskaŭ tute al mia elirpunkto kaj ri-
-
-petas: Ne limigu la sencon de kiel, ne difinu ĝin tro strikte, ne rifuzu al ĝi la prepozician funkcion, sed estu kontenta pri:
-
-Kiel estas strukturvorto (i. a. uzata por esprimi kompa-
-
-rojn). Vidu §11 de ĉi tiu traktaĵo.
-
-
-DU MALSANOJ EN ESPERANTO
+Kiel estas strukturvorto (i. a. uzata por esprimi komparojn). Vidu §11 de ĉi tiu traktaĵo.
 
 
 §59
@@ -3075,17 +2440,11 @@ Pl. Gram. §328 Rim. I. Tiu ”akuzativo” (stranga termino, tiu
 
 vorto akuzativo, sed … sankta relikvo el la muzeo de lingvistikaj antikvaĵoj!) ne estas pli ol distinga marko, same kiel la di-rekta-”n” en: Mi iras en la ĝardenon.
 
-Ni jam vidis ke la frazo: ”Mi konsilas al vi kiel patro”, po-
+Ni jam vidis ke la frazo: ”Mi konsilas al vi kiel patro”, povas esti kvarsenca. La verbo konsili ĉiam havas objekton kun
 
-vas esti kvarsenca. La verbo konsili ĉiam havas objekton kun
+la prepozicio al. Aliaj verboj tamen havas akuzativan objekton, ekz: Mi avertas vin kiel patro.
 
-la prepozicio al. Aliaj verboj tamen havas akuzativan objek-
-
-ton, ekz: Mi avertas vin kiel patro.
-
-Por iom limigi la vere iom grandan abundon de kvar sen-
-
-coj, oni nun uzas: Mi avertas vin kiel patroN por la senco de
+Por iom limigi la vere iom grandan abundon de kvar sencoj, oni nun uzas: Mi avertas vin kiel patroN por la senco de
 
 §57 d: Mi avertas vin en via kvalito de patro.
 
@@ -3093,34 +2452,24 @@ Restas do ankoraŭ tri aliaj sencoj kaj oni vere ne povas
 
 diri ke tiu N savas multon aŭ estas necesa, aŭ logika.
 
-Eĉ, la N ne povas tute forigi la plursencecon. Ni jam ri-
-
-markis ke frazo kiel: ”Oni elektis lin kiel prezidanton” restas dusenca (§56). Tamen, la N iom helpas kaj ĝia aplikado ne estas malfacila.
+Eĉ, la N ne povas tute forigi la plursencecon. Ni jam rimarkis ke frazo kiel: ”Oni elektis lin kiel prezidanton” restas dusenca (§56). Tamen, la N iom helpas kaj ĝia aplikado ne estas malfacila.
 
 Oni instruu nur, ke la kiel-esprimo havas la saman kazon
 
 kiel la frazparto kun kiu ĝi staras paralele. Tio estas Zamenhofa (vidu L. R. pĝ 50), kvankam ne senescepta (klasifika kiel §13, vidu ankaŭ §54).
 
-En dubaj kazoj oni ne uzu la N. Ekz. en Ps 147: 16 ni le-
-
-gas: Li donas neĝon kiel lanon. Li ŝutas prujnon kiel cindron.
+En dubaj kazoj oni ne uzu la N. Ekz. en Ps 147: 16 ni legas: Li donas neĝon kiel lanon. Li ŝutas prujnon kiel cindron.
 
 Miaopinie tiuj kiel-esprimoj partoprenas la karakteron de la
 
-ekzemploj en §54 (li faras la neĝon kiel lano, li faras la neĝon 67
-
-DU MALSANOJ EN ESPERANTO
+ekzemploj en §54 (li faras la neĝon kiel lano, li faras la neĝon
 
 
 lansimila), kaj do ne rajtas porti la ”akuzativan” N. La frazo certe ne signifas ekz: Li ŝutas prujnon kiel Li ŝutas cindron.
 
-Tiu lasta ekzemplo pruvas kiel malfacile estas tiri preci-
+Tiu lasta ekzemplo pruvas kiel malfacile estas tiri precizajn limliniojn.
 
-zajn limliniojn.
-
-Rim.: Degenkamp (en ”La Konsilanto”, pĝ 75/76, dua el-
-
-dono pĝ 30) faras diferencon en la analizado de resp:
+Rim.: Degenkamp (en ”La Konsilanto”, pĝ 75/76, dua eldono pĝ 30) faras diferencon en la analizado de resp:
 
 1) Oni elektis lin kiel prezidanton.
 
@@ -3128,9 +2477,7 @@ dono pĝ 30) faras diferencon en la analizado de resp:
 
 Laŭ Degenkamp kiel prezidanton en la unua frazo estas:
 
-bijvoeglijke bepaling — ”adjektiveca komplemento”, aŭ ”sup-
-
-lemento de substantivo aŭ pronomo”).
+bijvoeglijke bepaling — ”adjektiveca komplemento”, aŭ ”suplemento de substantivo aŭ pronomo”).
 
 En la dua frazo li nomas la vorton ”prezidanto” ”objekta
 
@@ -3139,9 +2486,6 @@ predikativo”. Tiu diferenco ne povas esti ĝusta, la funkcio
 estas ja en ambaŭ kazoj tute sama. La diferenco estas nur: En
 
 la unua frazo ni havas nerektan predikativon, en la dua rektan predikativon.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 XIII
@@ -3189,20 +2533,13 @@ LA KIEL-ESPRIMO KIEL ADJEKTO
 18. La perlo lumis kiel stelo (F 80)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 19. i radiis kiel luma flamo (F 117)
 
 20. La sciigo trakuris la arbaron kiel fulmo (F 128)
 
-Ne gravas ĉu oni rigardas tiun kiel prepozicio aŭ konjunk-
+Ne gravas ĉu oni rigardas tiun kiel prepozicio aŭ konjunkcio. Laŭ mi ili estas preskaŭ ĉiam prepozicioj. Unu rimarkigo
 
-cio. Laŭ mi ili estas preskaŭ ĉiam prepozicioj. Unu rimarkigo
-
-ankoraŭ: Tiaj komparaj adjektoj inklinadas perdi sian origi-
-
-nan, komparan valoron, ili fariĝas kliŝoj, kiujn la parolanta
+ankoraŭ: Tiaj komparaj adjektoj inklinadas perdi sian originan, komparan valoron, ili fariĝas kliŝoj, kiujn la parolanta
 
 amaso uzas senpripense.
 
@@ -3224,29 +2561,18 @@ perlo lumis en tre forta grado. Jam nun, anticipante postajn
 
 paragrafojn mi volas starigi ĉi tiun tezon: En la praktika lingvo-uzado maniero kaj grado ne estas disigeblaj.
 
-Laŭ la prezidanto de nia Akademio regas inter la Espe-
+Laŭ la prezidanto de nia Akademio regas inter la Esperantistoj infekta malsano kiun li nomis la tiom-kiom-malsano.
 
-rantistoj infekta malsano kiun li nomis la tiom-kiom-malsano.
+Efektive! i ofte infektas la samajn personojn kiuj jam suferas de la kia-ismo, sed estas eĉ pli disvastiĝinta ol la lasta. Kia feliĉo ke tiuj kiom-istoj ankoraŭ ne atentis la grad-espriman
 
-Efektive! i ofte infektas la samajn personojn kiuj jam sufe-
+valoron de multaj kiel-adjektoj! ĉar tuj post kiam ili malkovros tion, ilia logiko devigos ilin ŝanĝi centojn da Zamenho-
 
-ras de la kia-ismo, sed estas eĉ pli disvastiĝinta ol la lasta. Kia feliĉo ke tiuj kiom-istoj ankoraŭ ne atentis la grad-espriman
-
-valoron de multaj kiel-adjektoj! ĉar tuj post kiam ili malkov-
-
-ros tion, ilia logiko devigos ilin ŝanĝi centojn da Zamenho-
-
-faĵoj, skribante ekz.: Li furiozas kiom apro; la perlo lumas kiom 70
-
-DU MALSANOJ EN ESPERANTO
+faĵoj, skribante ekz.: Li furiozas kiom apro; la perlo lumas kiom
 
 
 stelo! ĉar prave diris Goethe: ”En ag’ malbona kuŝas tiu ĉi
 
 malben’, ke, plu-irante, ĝi nur malbonecon povas naski.”
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 XIV
@@ -3259,9 +2585,7 @@ DE ADJEKTIVO Aŭ ADVERBO
 
 La kompara esprimo tre ofte funkcias kiel suplemento de iu
 
-adjektivo aŭ adverbo. En tiu kazo Zamenhof ĉiam kaj senes-
-
-cepte uzis kiel. El la centoj da ekzemploj mi citas kelkajn:
+adjektivo aŭ adverbo. En tiu kazo Zamenhof ĉiam kaj senescepte uzis kiel. El la centoj da ekzemploj mi citas kelkajn:
 
 1. pala kiel la folioj de la tea rozo (F 25)
 
@@ -3298,9 +2622,6 @@ cepte uzis kiel. El la centoj da ekzemploj mi citas kelkajn:
 17. malmola kiel fero (Dan. 2: 40)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 18. bela kiel delikata fraŭlino (F 90)
 
 19. bela kiel anĝelo (M 225)
@@ -3315,9 +2636,7 @@ simptomoj jam montriĝis. Vidu nur:
 
 1. malĝoja kia la alia (La Perfido 172)
 
-2. bovinoj dignaj kaj nobelaj kiaj sinjorinoj (Skizoj pri Ne-
-
-derlando 53)
+2. bovinoj dignaj kaj nobelaj kiaj sinjorinoj (Skizoj pri Nederlando 53)
 
 3. la pasaĝero samnoma kia la bremsisto (La Progresanto
 
@@ -3335,23 +2654,14 @@ Sed ankaŭ la ordinara, praktika Esperantisto, kaj eĉ la plej
 
 eminenta inter ni, estu singarda. Ni vidis ke la uzado de kia
 
-por kunligi du substantivojn jam (kaj bedaŭrinde!) fariĝis ĝe-
+por kunligi du substantivojn jam (kaj bedaŭrinde!) fariĝis ĝenerala (§§18-24). Tiu absolute ne-Zamenhofa uzado de kia
 
-nerala (§§18-24). Tiu absolute ne-Zamenhofa uzado de kia
-
-enhavas en si la ĝermojn por novaj mispaŝoj. Komparu ek-
-
-zemple jenajn tri frazojn de Profesoro Waringhien:
+enhavas en si la ĝermojn por novaj mispaŝoj. Komparu ekzemple jenajn tri frazojn de Profesoro Waringhien:
 
 1. Estas defio al la komuna saĝo kaj al la natura malpenemo
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-de la homoj, voli trudi al ili formojn kiaj urinifar, adresi-
-
-zar aŭ martelagar (Let. de Zam II: 28)
+de la homoj, voli trudi al ili formojn kiaj urinifar, adresizar aŭ martelagar (Let. de Zam II: 28)
 
 2. Oni diskutis akcesorajn punktojn kiaj minme, ultre aŭ
 
@@ -3359,19 +2669,13 @@ prox. (Let. de Zam. Il: 48)
 
 3. … tiu haladzo, kiun tuj rimarkigis homoj tiel diferencaj kiaj S-roj Aymonier kaj von Wahl … (Let. de Zam.ll: 47).
 
-En la unua frazo la vorto ”formojn” ne havas akompa-
+En la unua frazo la vorto ”formojn” ne havas akompanantan adjektivon, en la dua frazo ”punktojn” estas akompa-
 
-nantan adjektivon, en la dua frazo ”punktojn” estas akompa-
-
-nata de la antaŭstaranta adjektivo ”akcesorajn”, kaj la kompa-
-
-ro ”kiaj minme, ultre aŭ prox” rilatas al la tutaĵo ”akcesoraj punktoj”. Sed en la tria frazo la adjektivo (diferencaj) staras malantaŭe, estas determinita de la vorto tiel, kaj la komparo
+nata de la antaŭstaranta adjektivo ”akcesorajn”, kaj la komparo ”kiaj minme, ultre aŭ prox” rilatas al la tutaĵo ”akcesoraj punktoj”. Sed en la tria frazo la adjektivo (diferencaj) staras malantaŭe, estas determinita de la vorto tiel, kaj la komparo
 
 (kiaj Aymonier kaj von Wahl) rilatas nur la adjektivo. Se Prof.
 
-Waringhien estus konstruinta la frazon per helpo de subpro-
-
-pozicio epiteta ( … kiun tuj rimarkigis homoj, kiuj estas tiel diferencaj KIEL Sroj Aymonier kaj von Wahl, … ), tiam li certe
+Waringhien estus konstruinta la frazon per helpo de subpropozicio epiteta ( … kiun tuj rimarkigis homoj, kiuj estas tiel diferencaj KIEL Sroj Aymonier kaj von Wahl, … ), tiam li certe
 
 uzus kiel anstataŭ kiaj! Sed lia kutima ne-Zamenhofa uzado
 
@@ -3379,21 +2683,13 @@ de ”homoj kiaj …” glitigas lin.
 
 §63
 
-Ankaŭ la uzado de kia en la predikativoj (§42 k.c.) povas fa-
-
-cile misgvidi al kia, post la adjektivoj. Se oni rigardas kiel ĝustan la frazon: ”Li estas kia patro por siaj soldatoj”, oni nur bezonas fari unu paŝon plu por akiri: ”Li estas bona kia patro por siaj soldatoj ”, el kio bona kia patro naskiĝas por komenci sian (mizeran) vivon. Kiel malproksimen povas iri la
+Ankaŭ la uzado de kia en la predikativoj (§42 k.c.) povas facile misgvidi al kia, post la adjektivoj. Se oni rigardas kiel ĝustan la frazon: ”Li estas kia patro por siaj soldatoj”, oni nur bezonas fari unu paŝon plu por akiri: ”Li estas bona kia patro por siaj soldatoj ”, el kio bona kia patro naskiĝas por komenci sian (mizeran) vivon. Kiel malproksimen povas iri la
 
 mislogiko pruvas la jeno:
 
 Iu logikulo (mi ne mencios lian nomon, ĉar — feliĉe — li
 
-ne plu havas ian influon) eltrovis ke la esprimo alia … ol es-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-tas nepre erara kaj mallogika. Tio devus esti alia … kia!! Jen liia rezono:
+ne plu havas ian influon) eltrovis ke la esprimo alia … ol estas nepre erara kaj mallogika. Tio devus esti alia … kia!! Jen liia rezono:
 
 
 ## 1. alia signifas ne tia
@@ -3432,11 +2728,7 @@ por la unua fojo, li povus diri: ”La floroj estas blankaj”, kaj, vidante la 
 
 En skribita lingvo oni tiam uzus komon post blankaj, tiel:
 
-La floroj estas blankaj, kiel neĝo estas. (Notu bone ke mis-
-
-kompreno estas neebla, nur se la infanoj scias ke temas pri ko-75
-
-DU MALSANOJ EN ESPERANTO
+La floroj estas blankaj, kiel neĝo estas. (Notu bone ke miskompreno estas neebla, nur se la infanoj scias ke temas pri ko-75
 
 
 loroj. Se ili ne scius tion, ili povus kompreni ke la floroj estas ekz. malvarmaj, ĉar ”kiel neĝo estas” tute ne diras, kiu eco de neĝo estas aludita!) Sed en blanka kiel neĝo la kiel-esprimo
@@ -3449,33 +2741,23 @@ samtempe (kaj neapartigeble) du funkciojn:
 
 2e. ĝi esprimas la specialan specon de blankeco, la specialan
 
-aspekton de tiu speciala blankeco, oni povus diri: la manie-
-
-ron de blankeco.
+aspekton de tiu speciala blankeco, oni povus diri: la manieron de blankeco.
 
 §65
 
-”Kiel neĝo estas” per si mem ne povas esti memstara. i no-
-
-me estas nesufiĉe preciza. Ankaŭ la korektado al ”kia neĝo
+”Kiel neĝo estas” per si mem ne povas esti memstara. i nome estas nesufiĉe preciza. Ankaŭ la korektado al ”kia neĝo
 
 estas” neniel helpas por precizigi la sencon. ĉar: ”kia estas
 
-neĝo?” i estas ja ne nur blanka, sed ankaŭ malmola, malpe-
-
-za, malvarma, malseka, brila, glitiga, kristalforma, blindiga, varmo-retena.
+neĝo?” i estas ja ne nur blanka, sed ankaŭ malmola, malpeza, malvarma, malseka, brila, glitiga, kristalforma, blindiga, varmo-retena.
 
 Se oni pripensas tion, oni rimarkas ke la kompletigo NUR
 
 per ESTAS eĉ malklarigas anstataŭ kompletigas. Ekz.: ”ŝia
 
-vesto estis blanka, kiel neĝo estas” ne faras kompletan sen-
+vesto estis blanka, kiel neĝo estas” ne faras kompletan sencon. Logika kompletigo donas: ”ŝia vesto estis blanka, kiel
 
-con. Logika kompletigo donas: ”ŝia vesto estis blanka, kiel
-
-neĝo estas blanka”, t. e. ”ŝia vesto estis blanka en la sama grado de blankceo kiel la blankeco de neĝo”, kaj ankaŭ samtem-
-
-pe: ”ŝia vesto montris la saman specon, la saman aspekton de
+neĝo estas blanka”, t. e. ”ŝia vesto estis blanka en la sama grado de blankceo kiel la blankeco de neĝo”, kaj ankaŭ samtempe: ”ŝia vesto montris la saman specon, la saman aspekton de
 
 blankeco, kiun neĝo posedas”.
 
@@ -3485,13 +2767,7 @@ de la blankeco de la vesto, komparante ĝin kun la blankeco
 
 de neĝo. SE oni postulas kompletigojn de la kiel-esprimoj en
 
-§61, la ununura racia kompletigo povas okazi ne nur per ”es-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-tas”, sed per ”estas plus la koncerna adjektivo”, tiel: pala kiel la muro estas pala, nigra kiel estas nigra, nigra kiel ebono estas nigra k. t. p.
+§61, la ununura racia kompletigo povas okazi ne nur per ”estas”, sed per ”estas plus la koncerna adjektivo”, tiel: pala kiel la muro estas pala, nigra kiel estas nigra, nigra kiel ebono estas nigra k. t. p.
 
 Tio klare montras ke ekzistas nenia kaŭzo por ŝanĝi la
 
@@ -3499,13 +2775,9 @@ Zamenhofan kiel en kia.
 
 §66
 
-Ke tiaj esprimoj esprimas ne nur la gradon, sed ankaŭ la spe-
+Ke tiaj esprimoj esprimas ne nur la gradon, sed ankaŭ la specialan aspekton, evidentiĝas klare el la ekzemploj de §61, el
 
-cialan aspekton, evidentiĝas klare el la ekzemploj de §61, el
-
-kiuj multaj estas intence prenitaj kune en grupetojn. Kom-
-
-paru ekz. numerojn 9 kaj 10: alta kiel masto kaj alta kiel pop-lo. Ambaŭ esprimas altan gradon de alteco, sed tamen tiuj du
+kiuj multaj estas intence prenitaj kune en grupetojn. Komparu ekz. numerojn 9 kaj 10: alta kiel masto kaj alta kiel pop-lo. Ambaŭ esprimas altan gradon de alteco, sed tamen tiuj du
 
 esprimoj elvokas tute diferencajn bildojn en la menso de la
 
@@ -3534,12 +2806,7 @@ Tio precipe validas por la komparaj esprimoj. La amaso
 imitas oratorojn kaj verkistojn, transprenas iliajn komparojn
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-senpripense kaj ofte senkritike, kun la sekvo ke tiuj kompa-
-
-roj perdas sian freŝecon, sian esprimvaloron, sian vivantecon.
+senpripense kaj ofte senkritike, kun la sekvo ke tiuj komparoj perdas sian freŝecon, sian esprimvaloron, sian vivantecon.
 
 Ili fariĝas kliŝoj, ŝablonoj, banalaĵoj. (kp. §60.) Tiu proceso ne estas haltigebla. Kelkfoje ĝi eĉ kondukas al absurdaĵoj. Ekzemplojn ĉiu povas aŭdi ĉirkaŭ si en sia propra lingvo. Mia
 
@@ -3555,9 +2822,7 @@ Tio sama propre okazas ĉe multuzitaj kaj tial foruzitaj
 
 komparoj, kiel ekz.: forta kiel leono, hela kiel anĝelo, malvar-ma kiel glacio, klara kiel la tago, muta kiel tombo, sana kiel fiŝo, malmola kiel ŝtalo, seka kiel sablo k. a.
 
-La origina komparo de grado kaj speciala aspekto perdi-
-
-ĝas, restas nur ia gradesprima forto en tiaj diraĵoj.
+La origina komparo de grado kaj speciala aspekto perdiĝas, restas nur ia gradesprima forto en tiaj diraĵoj.
 
 §68
 
@@ -3573,19 +2838,13 @@ Tragika konflikto! Ankoraŭ ĝi ne maltrankviligas multajn.
 
 Sed iom post iom ĝi aktualiĝos.
 
-La unua kiu sisteme klopodas uzi kiom ankaŭ en ĉi tiaj ka-
+La unua kiu sisteme klopodas uzi kiom ankaŭ en ĉi tiaj kazoj, estas S-ro w. F. Kruit en sia traduko de ”La Perfido”. Tie ni trovas i. a.:
 
+ruza kiom la diablo pĝ.
 
-DU MALSANOJ EN ESPERANTO
+plena kiom sako pĝ
 
-
-zoj, estas S-ro w. F. Kruit en sia traduko de ”La Perfido”. Tie ni trovas i. a.:
-
-ruza kiom la diablo pĝ. 131
-
-plena kiom sako pĝ 98
-
-malmola kiom fero pĝ. 75
+malmola kiom fero pĝ.
 
 peza kiom martelegoj pĝ. 47.
 
@@ -3601,14 +2860,9 @@ Nederlando”, sur pĝ. 50: ”grandaj kiom manplato” (kp Ps 39:
 
 5).
 
-Sufiĉe por averti kontraŭ tiaj ekscesaj konsekvencoj. ŝaj-
-
-nas al mi plej bone trakti la tiom-kiom-problemon en sia tu-
+Sufiĉe por averti kontraŭ tiaj ekscesaj konsekvencoj. ŝajnas al mi plej bone trakti la tiom-kiom-problemon en sia tu-
 
 teco kiel duan parton de ĉi tiu traktato.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 XV
@@ -3619,9 +2873,7 @@ LA TIOM-KIOM-MALSANO
 
 Historio.
 
-En 1937 la Akademio de Esperanto ekhavis novan prezidan-
-
-ton, la nederlandanon Inĝ-o J. R. G. Isbrucker. Fervore li komencis sian novan taskon kiel ĉefkontrolanto kaj ĉefgvidanto
+En 1937 la Akademio de Esperanto ekhavis novan prezidanton, la nederlandanon Inĝ-o J. R. G. Isbrucker. Fervore li komencis sian novan taskon kiel ĉefkontrolanto kaj ĉefgvidanto
 
 en lingvaj aferoj. Malfacila tasko! Pri tio li estis profunde konvinkita, sciante ke multaj ŝafoj (pardonu la komparon) ŝatas
 
@@ -3639,39 +2891,26 @@ Ke la nova reĝo estis milda reĝo klare montriĝis el la fino de lia artikolo, 
 
 kvazaŭ subite komencas disvastiĝi en ĉiam pli vastaj rondoj.
 
-Ankaŭ en lingvoj ekzistas tiaj infektaj malsanoj, eĉ en Espe-
-
-ranto, kaj mi volas atentigi ĉi tie pri unu, kiun mi observis jam de kelkaj jaroj. Mi volas nomi ĝin la ”tiom-kiom-malsano”.
+Ankaŭ en lingvoj ekzistas tiaj infektaj malsanoj, eĉ en Esperanto, kaj mi volas atentigi ĉi tie pri unu, kiun mi observis jam de kelkaj jaroj. Mi volas nomi ĝin la ”tiom-kiom-malsano”.
 
 Kiam ni serĉas en la Universala Vortaro la vortojn kiom kaj
 
 tiom, ni facile konstatas per la donitaj tradukoj ke ili esprimas kvanton aŭ nombron, sed ne gradon. Se oni volas esprimi la
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 gradon de la kvalito, nomata de iu adjektivo, oni devas fari
 
-tion, metante la vortojn kiel kaj tiel antaŭ la koncernan adjektivon. Ekzemple, oni diras en bona Esperanto: hodiaŭ ne es-
-
-tas tiel varme kiel hieraŭ; lia embaraso estas tiel granda ke li tute ne vidis min. Oni povas kontroli tion per la ekzemploj en la Ekzercaro de la Fundamento aŭ konsultante bonan vortaron kia estas la Plena Vortaro. Sed okazis iun tagon antaŭ
+tion, metante la vortojn kiel kaj tiel antaŭ la koncernan adjektivon. Ekzemple, oni diras en bona Esperanto: hodiaŭ ne estas tiel varme kiel hieraŭ; lia embaraso estas tiel granda ke li tute ne vidis min. Oni povas kontroli tion per la ekzemploj en la Ekzercaro de la Fundamento aŭ konsultante bonan vortaron kia estas la Plena Vortaro. Sed okazis iun tagon antaŭ
 
 kelkaj jaroj, ke iu Esperantisto kiu evidente ne studis la verkojn de Zamenhof, almenaŭ ne la Fundamenton, faris eraron
 
-kaj skribis: hodiaŭ ne estas tiom varme, kiom hieraŭ; lia em-
-
-baraso estis tiom granda, ke li tute ne vidis min. La sekvantan monaton dua Esperantisto, kiu ankaŭ ne studis la Fundamenton, imitis lin (imitado estas konata eco de la homoj, eĉ de la Esperantistoj!) kaj tiam jam estis du erarintoj. Post plua monato ambaŭ samideanoj havis imitanton kaj tiam ja estis kvar.
+kaj skribis: hodiaŭ ne estas tiom varme, kiom hieraŭ; lia embaraso estis tiom granda, ke li tute ne vidis min. La sekvantan monaton dua Esperantisto, kiu ankaŭ ne studis la Fundamenton, imitis lin (imitado estas konata eco de la homoj, eĉ de la Esperantistoj!) kaj tiam jam estis du erarintoj. Post plua monato ambaŭ samideanoj havis imitanton kaj tiam ja estis kvar.
 
 Post nova monato estis 8, poste 16, 32, 64 erarantoj kaj ĉiam
 
-post unu monato la nombro de la infektitaj personoj estis du-
+post unu monato la nombro de la infektitaj personoj estis duobligita.
 
-obligita.
-
-Feliĉe ekzistas tre multaj Esperantistoj kaj tial estas an-
-
-koraŭ tre multaj inter ili, kiuj korekte uzas tiel kaj tiom, kiel kaj kiom, sed tamen mi iom timas, se almenaŭ mia kalkulma-niero estas ĝusta! Vere oni jam povas paroli pri malsano en
+Feliĉe ekzistas tre multaj Esperantistoj kaj tial estas ankoraŭ tre multaj inter ili, kiuj korekte uzas tiel kaj tiom, kiel kaj kiom, sed tamen mi iom timas, se almenaŭ mia kalkulma-niero estas ĝusta! Vere oni jam povas paroli pri malsano en
 
 la lingvo kaj estas bone, ke ni apliku kontraŭ ĝi la necesajn
 
@@ -3681,23 +2920,14 @@ infektitaj de la malsano kaj en la gazetoj la eraroj ankaŭ svarmas. Mi eĉ scia
 
 Krestomatio iun rakonton de Zamenhof por tradukigi ĝin kiel
 
-ekzamenan taskon en nacian lingvon kaj li simple anstataŭi-
-
-gis ĉiujn vortojn tiel kaj kiel de Zamenhof per tiom kaj kiom!!
+ekzamenan taskon en nacian lingvon kaj li simple anstataŭigis ĉiujn vortojn tiel kaj kiel de Zamenhof per tiom kaj kiom!!
 
 Kaj kial, kial?? Mi vere ne scias kio estas la utilo de tiu
 
 
-DU MALSANOJ EN ESPERANTO
+ŝanĝo en la vortuzo, kiu estas nek bela, nek klara. Oni eĉ povas nomi ĝntraŭ-fundamenta, ĉar ŝanĝi la signifojn de
 
-
-ŝanĝo en la vortuzo, kiu estas nek bela, nek klara. Oni eĉ po-
-
-vas nomi ĝntraŭ-fundamenta, ĉar ŝanĝi la signifojn de
-
-la korelativa tabelo ja ne estas nura enkonduko de neologis-
-
-moj. Mi povas vidi la fenomenon nur kiel senpripensan imi-
+la korelativa tabelo ja ne estas nura enkonduko de neologismoj. Mi povas vidi la fenomenon nur kiel senpripensan imi-
 
 tadon de malbona ekzemplo. Sed espereble la konstato de la
 
@@ -3713,9 +2943,7 @@ ni eble same rapide liberiĝos de tiu malsano, kiel ĝi penetris inter ni. — �
 
 Malmulte S-ro Isbrucker povis konjekti ke lia paŝtista letero
 
-vekos tiom da impeta indigniĝo. ĉu Esperantistoj ne kom-
-
-prenas ŝercojn? Lia alvoko kaŭzis reakciojn kaj disputojn en
+vekos tiom da impeta indigniĝo. ĉu Esperantistoj ne komprenas ŝercojn? Lia alvoko kaŭzis reakciojn kaj disputojn en
 
 diversaj Esperanto-gazetoj kaj precipe la tiom-tiel-problemo
 
@@ -3731,18 +2959,14 @@ al la ”Fundamento”.
 
 Iu ĝemis: ”Estas nekompreneble de D-ro Zamenhof ke,
 
-kontraŭ la sana prudento, li uzas tiel kaj kiel”. Alia alvokis al vigleco kontraŭ la ”reakcio protradicia”. Eĉ politikaj faktoroj 82
-
-DU MALSANOJ EN ESPERANTO
+kontraŭ la sana prudento, li uzas tiel kaj kiel”. Alia alvokis al vigleco kontraŭ la ”reakcio protradicia”. Eĉ politikaj faktoroj
 
 
 sentigis sian influon kaj la esprimo ”burĝa reakcio” estis uza-ta.
 
 ĉefa antaŭbatalanto por la kiom-ismo tuj estis (kaj restis)
 
-la nederlanda studgazeto de la amsterdama skolo ”La Progre-
-
-santo”.
+la nederlanda studgazeto de la amsterdama skolo ”La Progresanto”.
 
 Kelkajn semajnojn post la nefermita letero de Isbrucker
 
@@ -3750,9 +2974,7 @@ Kelkajn semajnojn post la nefermita letero de Isbrucker
 
 iom kun gradesprima valoro.
 
-Karakteriza estas jena alineo: ”Ni ne ŝatas laŭvorte ripe-
-
-ti la tutan babilon pri tiu afero. i naŭzas nin pro sia suspektiga tendenco. Eble ĝi taŭge konvenas en la kadro de organiza
+Karakteriza estas jena alineo: ”Ni ne ŝatas laŭvorte ripeti la tutan babilon pri tiu afero. i naŭzas nin pro sia suspektiga tendenco. Eble ĝi taŭge konvenas en la kadro de organiza
 
 diktatoro, al la prezidanto de Akademio ĝi estas malinda!”
 
@@ -3766,9 +2988,7 @@ venko? Kiel estas la nuna stato, 15 jarojn poste?
 
 Nu, ni povas konstati ke neniu el la du partioj cedis sian
 
-starpunkton. La kiom-ismo ankoraŭ ekzistas, kaj do montri-
-
-ĝis ke la malsano ne estas mortiga por Esperanto!
+starpunkton. La kiom-ismo ankoraŭ ekzistas, kaj do montriĝis ke la malsano ne estas mortiga por Esperanto!
 
 Sed ankaŭ la kiel-istoj ankoraŭ vivas kaj ekzistas nenia
 
@@ -3781,18 +3001,13 @@ aperus de tempo al tempo simptomoj maltrankviligaj kiel tiu,
 kiun mi menciis en §68.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 Malkontentige estas ankaŭ, ke la disputo ”finiĝis en la
 
 sablo” kaj ne havis iajn pozitivajn rezultatojn.
 
 Plue restas la fakto ke la nuna situacio strange impresas
 
-eksterulojn kaj novulojn. Iu nova Esperantisto, leginte ”kiom-
-
-istan” libron petis de mi klarigon en jena formo: ”ĉu la tra-
+eksterulojn kaj novulojn. Iu nova Esperantisto, leginte ”kiomistan” libron petis de mi klarigon en jena formo: ”ĉu la tra-
 
 dukinto eble skribas alian dialekton de Esperanto?”
 
@@ -3800,17 +3015,13 @@ Tial ŝajnas al mi konsilinde trakti la temon denove. Tion
 
 mi faros des pli volonte, ĉar la tiel-istoj ĝis nun apenaŭ povis trovi argumentojn kontraŭ la kiom-istoj.
 
-Nekontestebla vero estas ke tiuj lastaj multe pli bone de-
-
-fendis sian opinion ol la aliaj.
+Nekontestebla vero estas ke tiuj lastaj multe pli bone defendis sian opinion ol la aliaj.
 
 La tiel-partio parolis pri tradicio, belsoneco kaj fideleco al la Fundamento, kaj kvankam certe argumentoj valoraj, tiuj ne
 
 povas esti decidaj. Sed ili ankaŭ batalis per argumentoj absurdaj, kiel ekz.: ”Tiel ne esprimas unualoke la manieron, sed
 
-ĝuste la gradon ”, aŭ ”Tiom ne estas adverbo, sed nur nume-
-
-ralo”!!
+ĝuste la gradon ”, aŭ ”Tiom ne estas adverbo, sed nur numeralo”!!
 
 Mi honeste kredas ke ekzistas pli trafaj argumentoj por
 
@@ -3818,9 +3029,7 @@ subteni la Zamenhofan preferon de tiel je tiom.
 
 §72
 
-Unue mi prezentos la aferon laŭ la vidpunkto de la tiom-ki-
-
-om-istoj.
+Unue mi prezentos la aferon laŭ la vidpunkto de la tiom-kiom-istoj.
 
 1. La korelativa iel-serio esprimas la manieron: tiel labori,
 
@@ -3832,9 +3041,7 @@ kiom mi ŝuldas al vi?, kiom da kapoj, tiom da opinoj.
 
 3. Por esprimi gradojn Zamenhof uzis jen tiel-kiel (mi estas
 
-tiel forta kiel vi; kiel eble plej bona; kiel rapide li kuras!), 84
-
-DU MALSANOJ EN ESPERANTO
+tiel forta kiel vi; kiel eble plej bona; kiel rapide li kuras!),
 
 
 jen tiom-kiom (laboro iom pli malfacila; iom varmeta;
@@ -3847,9 +3054,7 @@ rajtas konkludi ke parto de liaj ekzemploj estas erara aŭ
 
 almenaŭ malpli ĝusta (L. Pr. 1938 pĝ 130).
 
-5. Estas do necese fari iom da ordo en tiu neĝusta kaj ne-
-
-konsekvenca uzado.
+5. Estas do necese fari iom da ordo en tiu neĝusta kaj nekonsekvenca uzado.
 
 6. Logika pensado kondukas al la uzado de la iom-serio por
 
@@ -3861,19 +3066,13 @@ instruanto devas nepre demandi: ”Kiom malsana?” kaj
 
 ne: ”Kiel malsana?”
 
-b) Al ĉiu kiu scias logike pensi estas klare ke la ideoj ”gra-
+b) Al ĉiu kiu scias logike pensi estas klare ke la ideoj ”grado” kaj ”maniero” estas inter si tre diferencaj kaj ke la
 
-do” kaj ”maniero” estas inter si tre diferencaj kaj ke la
-
-ideoj ”grado” kaj ”kvanto” estas inter si parencaj, ĉar gra-
-
-do estas kvanto de kvalito. (L. Pr. 1938 pĝ 131; 1948 pĝ 74.)
+ideoj ”grado” kaj ”kvanto” estas inter si parencaj, ĉar grado estas kvanto de kvalito. (L. Pr. 1938 pĝ 131; 1948 pĝ 74.)
 
 7. En La Pr. 1948 pĝ 74 Degenkamp klopodas por pruvi ”ke
 
-la iom-uzo de Zamenhof logike nepre kondukas al tiom-
-
-uzo” per jena serio da frazoj:
+la iom-uzo de Zamenhof logike nepre kondukas al tiomuzo” per jena serio da frazoj:
 
 ”Iu turo estas alta 100 metrojn. Alia turo estas iom pli alta.
 
@@ -3887,23 +3086,16 @@ Oni do scias kiom pli alta ĝi estas; kaj per tio scias ankaŭ:
 
 kiom alta ĝi estas.
 
-Tiu ĉi ekzemplo ŝajnas al ni (t. e. Degenkamp) sufiĉa pru-
-
-vo, ke la iom-korelativoj logike havas la signifon de gra-
+Tiu ĉi ekzemplo ŝajnas al ni (t. e. Degenkamp) sufiĉa pruvo, ke la iom-korelativoj logike havas la signifon de gra-
 
 do.”
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 §73
 
 Pri la unuaj tri punktoj de §72 certe ne ekzistas ia diferenco de opinioj. Tiuj diferencoj nur povas komenciĝi ĉe punkto 4,
 
-kiu enhavas la aplomban aserton ke Zamenhof estis nekon-
-
-sekvenca, el kio oni tiras la konkludon ke parto de liaj ekzemploj devas esti eraraj.
+kiu enhavas la aplomban aserton ke Zamenhof estis nekonsekvenca, el kio oni tiras la konkludon ke parto de liaj ekzemploj devas esti eraraj.
 
 ĉe la traktado de tia-kia, tia-kiu, tia-kiel, (§§13-41) jam
 
@@ -3913,18 +3105,11 @@ difinitan kaj precizan” (Let. de Z. I 73), ni devas esti iom mo-destaj. Almena
 
 eraremo aŭ neĝusteco, antaŭ ol esplori detale la koncernajn
 
-punktojn. Se el tiaj esploroj evidentiĝas ke Zamenhof senpri-
-
-pense, kvazaŭ kaprice, elektis jen iel-formojn jen iom-for-
+punktojn. Se el tiaj esploroj evidentiĝas ke Zamenhof senpripense, kvazaŭ kaprice, elektis jen iel-formojn jen iom-for-
 
 mojn, nur tiam, kaj ne pli frue ol tiam ni povas konkludi al
 
-nekonsekvenceco. Sed eĉ tiam ni gardu nntraŭ tro ra-
-
-pidaj konkludoj aŭ tro facilaj ĝeneraligoj.
-
-
-DU MALSANOJ EN ESPERANTO
+nekonsekvenceco. Sed eĉ tiam ni gardu nntraŭ tro rapidaj konkludoj aŭ tro facilaj ĝeneraligoj.
 
 
 XVI
@@ -3959,24 +3144,17 @@ iom da poezio.
 
 2. iom pli por esprimi kvanton: Mi perlaboras nur iom pli ol
 
-unu dolaron en tago (F. K. 112-10); li havis bonan porvi-
-
-vaĵon kaj eĉ iom pli (Fab. de A. III, 41).
+unu dolaron en tago (F. K. 112-10); li havis bonan porvivaĵon kaj eĉ iom pli (Fab. de A. III, 41).
 
 3. iom pli plus adjektivo (adverbo) por esprimi kvanton aŭ
 
 mezuron: La libera kampo, kiu estas iom pli alta ol la
 
-ĉambro (F. K. 225-2); ili estis iom pli grandaj kaj havis fe-
-
-nestrojn (Fab. de A. III, 138).
+ĉambro (F. K. 225-2); ili estis iom pli grandaj kaj havis fenestrojn (Fab. de A. III, 138).
 
 4. iom pli plus adjektivo (adverbo) por esprimi ian metaforan
 
 * Proverbaro 560.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 kvanton aŭ mezuron: Iom pli maljuna virino (Fab. de A.
@@ -3993,21 +3171,15 @@ mediti iom pri tiuj problemoj (id. 245); altranĉadon mi
 
 iom scias (Marta 109).
 
-6. iom plus adjektivo (adverbo) por esprimi gradon: Iom var-
-
-meta, iom strange, iom longa, iom malnova, iom mal-
+6. iom plus adjektivo (adverbo) por esprimi gradon: Iom varmeta, iom strange, iom longa, iom malnova, iom mal-
 
 proksimen.
 
-7. La esprimo iom-post-iom, kiu tamen ne esprimas la gra-
-
-don mem, sed la laŭgradan iradon de iu proceso.
+7. La esprimo iom-post-iom, kiu tamen ne esprimas la gradon mem, sed la laŭgradan iradon de iu proceso.
 
 §75
 
-ĉiu kiu pristudas tiun uzadon de iom tuj rimarkas ke Zamen-
-
-hof donis al tiu vorteto specialan sencon, kiu lokas ĝin iom
+ĉiu kiu pristudas tiun uzadon de iom tuj rimarkas ke Zamenhof donis al tiu vorteto specialan sencon, kiu lokas ĝin iom
 
 ekster la reguleco de la tabelvortoj. Nome:
 
@@ -4019,25 +3191,16 @@ proksimume ”nemulte”, kvankam ĝi tute ne estas sinonima
 
 kun: malmulte.
 
-Tion lastan oni ofte asertas (vidu ekz. Laborista Esperan-
-
-tisto 1950 pĝ 76) kaj pretervidas la veran karakteron de la Zamenhofa iom.
+Tion lastan oni ofte asertas (vidu ekz. Laborista Esperantisto 1950 pĝ 76) kaj pretervidas la veran karakteron de la Zamenhofa iom.
 
 Kiam Zamenhof kreis kaj eksperimentis je sia Esperanto,
 
 li renkontis la lingvistike interesajn esprimojn: un peu (fran-ce), ein wenig (germane), a little, a few (angle), un poco (his-pane), een beetje, een paar, een weinig (nederlande). Kun sia
 
 
-DU MALSANOJ EN ESPERANTO
+delikata sento por nuancoj li rimarkis ke ili ne estas sinonimaj kun peu, little, few, poco, beetje, paar, wenig, malmulte.
 
-
-delikata sento por nuancoj li rimarkis ke ili ne estas sinoni-
-
-maj kun peu, little, few, poco, beetje, paar, wenig, malmulte.
-
-La strukturo de Esperanto (la nedifina artikolo tie ja man-
-
-kas!) ne permesis al li uzi la samajn rimedojn por esprimi tiun nuancon. Tial li devis serĉi alian vojon kaj trovis ĝin, aparti-gante iom el la korelativa tabelo kaj atribuante al ĝi la nuancon por kiu li bezonis esprimilon.
+La strukturo de Esperanto (la nedifina artikolo tie ja mankas!) ne permesis al li uzi la samajn rimedojn por esprimi tiun nuancon. Tial li devis serĉi alian vojon kaj trovis ĝin, aparti-gante iom el la korelativa tabelo kaj atribuante al ĝi la nuancon por kiu li bezonis esprimilon.
 
 ĉu li agis neprudente, farante tion? Mia-opinie ne, ĉar li
 
@@ -4051,9 +3214,7 @@ si idolon el ia matematika kaj rigida ”logiko”!
 
 En sia tre originala kaj admirinda verko ”The Philosophy of
 
-Grammar” Prof. Otto Jespersen donas tre interesajn specime-
-
-nojn pri la aplikebleco de ”tripartaj dividoj” (tripartitions) por trakti kontrastojn. (pĝ 322 k. skv.) Li nomas ilin:
+Grammar” Prof. Otto Jespersen donas tre interesajn specimenojn pri la aplikebleco de ”tripartaj dividoj” (tripartitions) por trakti kontrastojn. (pĝ 322 k. skv.) Li nomas ilin:
 
 A. Positive (la pozitiva kampo)
 
@@ -4065,18 +3226,13 @@ Aplikite por nia celo, ĉi tiu teorio donas:
 
 A. ĉio, ĉiom. C. nenio, neniom.
 
-Inter tiuj du absolutaĵoj kuŝas la kampo B, por kiu Espe-
-
-ranto ne havas unu specialan terminon, sed kiu ampleksas
+Inter tiuj du absolutaĵoj kuŝas la kampo B, por kiu Esperanto ne havas unu specialan terminon, sed kiu ampleksas
 
 ekz. la nociojn kelkaj, diversaj, pluraj, iuj, iom, multe, malmulte.
 
 Tiu kampo B povas esti subdividata laŭ la sama principo
 
 kaj tiamaniere ni ekhavas ekz.:
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 A.
@@ -4119,26 +3275,15 @@ Rolls-Royce kaj fari kelkjaran vojaĝon tra la mondo”.
 
 Resume ni povas diri:
 
-Iom esprimas nedifinitan kvanton, limigitan tamen unu-
+Iom esprimas nedifinitan kvanton, limigitan tamen unuflanke de multe, aliflanke de malmulte.
 
-flanke de multe, aliflanke de malmulte.
+En akordo kun la lingvaj kutimoj de multaj Eŭropaj popoloj, Zamenhof uzis tiun iom, kun ĝia speciala nuanco, an-
 
-En akordo kun la lingvaj kutimoj de multaj Eŭropaj po-
-
-poloj, Zamenhof uzis tiun iom, kun ĝia speciala nuanco, an-
-
-kaŭ por esprimi gradon. Tion li faris konscie kaj poste apli-
-
-kis ĝin tre konsekvence.
+kaŭ por esprimi gradon. Tion li faris konscie kaj poste aplikis ĝin tre konsekvence.
 
 uste pro ĝia speciala senco oni ne povas uzi la vorton
 
-iom por surkonstrui teorion pri la uzado de la aliaj iom-vor-
-
-toj kiel gradesprimiloj.
-
-
-DU MALSANOJ EN ESPERANTO
+iom por surkonstrui teorion pri la uzado de la aliaj iom-vortoj kiel gradesprimiloj.
 
 
 §78
@@ -4158,9 +3303,6 @@ En la unua ekzemplo iel certe esprimas nur la manieron,
 en la dua kaj tria ekzemploj ni havas miaopinie manieron kaj
 
 gradon samtempe esprimitaj. Tion ni priparolos poste.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 VII
@@ -4210,12 +3352,7 @@ Progr. 1948 pĝ 73).
 La sekvo estas ke, kondamnante frazon kiel: ”ŝi neniam
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-kriis tiom terure kiom ĵus” (Perfido 35), oni ricevas la respondon: ”Sed, ĉu vi ne scias ke Zamenhof mem ne estis konse-
-
-kvenca?” Tial mi ripetas kun granda emfazo: Zamenhof ne-
+kriis tiom terure kiom ĵus” (Perfido 35), oni ricevas la respondon: ”Sed, ĉu vi ne scias ke Zamenhof mem ne estis konsekvenca?” Tial mi ripetas kun granda emfazo: Zamenhof ne-
 
 niam uzis tiom plus adjektivo (adverbo) plus kiom, sekvatan
 
@@ -4233,21 +3370,15 @@ apelaciante al la konata maksimo: ”En lingvo artefarita ĉiu
 
 havas la rajton uzi formon pli logikan”. ĉe tio ĝiaj disĉiploj tamen pretervidas multajn eldirojn de Zamenhof per kiuj li
 
-komentariis ĉi tiun maksimon, avertante kontraŭ ”perfektiga-
-
-do”. Oni nur legu la korespondadon inter Javal kaj Zamenhof
+komentariis ĉi tiun maksimon, avertante kontraŭ ”perfektigado”. Oni nur legu la korespondadon inter Javal kaj Zamenhof
 
 pri reformoj en ”Leteroj de Zamenhof”, kaj relegu en Letero
 
-248 la tipan kaj multsignifan ”Peza ŝtono defalis de mia bru-
-
-sto …”, skribitan kiam la reformdanĝero pasis.
+248 la tipan kaj multsignifan ”Peza ŝtono defalis de mia brusto …”, skribitan kiam la reformdanĝero pasis.
 
 La prezidanto de la Akademio jam plurfoje esprimis kiel
 
-sian opinion, ke la tiom-kiom-ismo estas kontraŭ la Funda-
-
-mento, sed oni rebatis tiun opinion per argumentoj prenitaj
+sian opinion, ke la tiom-kiom-ismo estas kontraŭ la Fundamento, sed oni rebatis tiun opinion per argumentoj prenitaj
 
 el la antaŭparolo al tiu sama Fundamento.
 
@@ -4255,19 +3386,12 @@ Efektive, tiu antaŭparolo lasas tiom da elasteco, per la
 
 ”vojo de neologismoj”, ke estas tre malfacile kondamni ian ajn novan formon. Sed oni ne pretervidu, ke en la koncerna kazo
 
-ne temas pri punkto unu de tiu antaŭparolo (la kreado de no-
-
-vaj vortoj), sed pri la dua punkto: propono de nova gramatika
+ne temas pri punkto unu de tiu antaŭparolo (la kreado de novaj vortoj), sed pri la dua punkto: propono de nova gramatika
 
 formo, de nova regulo. ĉar neniu ja kontestos ke la proponita, kaj de multaj jam enkondukita novaĵo ne rilatas la vortaron,
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-sed la gramatikon. Tial estas sofisma elturniĝo, se iu kiom-
-
-isto respondas al S-ro Isbrucker (kaj tio efektive okazis!): ”La frazo: Mi estas tiel forta kiel vi, troviĝas en la Ekzercaro kaj ne en la Gramatiko deksesregula, kaj la formoj el la Ekzercaro ne estas same strikte aplikendaj kiom (!) la reguloj de la Gramatiko”.
+sed la gramatikon. Tial estas sofisma elturniĝo, se iu kiomisto respondas al S-ro Isbrucker (kaj tio efektive okazis!): ”La frazo: Mi estas tiel forta kiel vi, troviĝas en la Ekzercaro kaj ne en la Gramatiko deksesregula, kaj la formoj el la Ekzercaro ne estas same strikte aplikendaj kiom (!) la reguloj de la Gramatiko”.
 
 Tiu sinjoro tute ne atentas ke la deksesregula gramatiko
 
@@ -4279,39 +3403,26 @@ per la Ekzercaro, kaj ke, sen tiu Ekzercaro, ni eĉ ne scius kiel uzi ĝin en la
 
 La kazo ”tiom-kiom” estas en si mem gramatika kazo, kaj
 
-neniu kun eĉ nur iom da sana prudento povos aŭ provos re-
-
-futi tion! i estas ankaŭ multe pli grava ol ĉiuj aliaj disputeblaj punktoj en la Fundamento kiel ekzemple: po tri pomoj
+neniu kun eĉ nur iom da sana prudento povos aŭ provos refuti tion! i estas ankaŭ multe pli grava ol ĉiuj aliaj disputeblaj punktoj en la Fundamento kiel ekzemple: po tri pomoj
 
 aŭ pomojn, anstataŭ kafo aŭ kafon, kvar metroj da aŭ de tiu
 
 ĉi ŝtofo. ĉar la tiom-kiom-ismo grave ŝanĝas la tutan aspekton de nia lingvo kaj impresas ĉiun kiel nova dialekto.
 
-Kiel ajn estu: La kiom-istoj ignoris el tiu sama Fundamen-
-
-to la gravan admonon, kiu koncernas ĝuste ĝian duan punk-
+Kiel ajn estu: La kiom-istoj ignoris el tiu sama Fundamento la gravan admonon, kiu koncernas ĝuste ĝian duan punk-
 
 ton, la ”perfektigadon” per novaj reguloj:
 
-”Sed ni devas kompreneble esti tre singardaj kun ĉia ”per-
-
-fektigado” de la lingvo: a. Ili devas tion fari ne facilanime, sed nur en okazoj de efektiva neceseco. b. fari tion povas ne apartaj personoj, sed nur ia centra institucio, kiu havos nedisputeblan aŭtoritatecon por la tuta Esperantistaro”.
-
-
-DU MALSANOJ EN ESPERANTO
+”Sed ni devas kompreneble esti tre singardaj kun ĉia ”perfektigado” de la lingvo: a. Ili devas tion fari ne facilanime, sed nur en okazoj de efektiva neceseco. b. fari tion povas ne apartaj personoj, sed nur ia centra institucio, kiu havos nedisputeblan aŭtoritatecon por la tuta Esperantistaro”.
 
 
 §81
 
 Ni nun vidu la tiom-kiom-malsanon en ĝiaj konsekvencoj. La
 
-unua paŝo estas, kiel ni jam diris, la uzado de tiom-kiom an-
+unua paŝo estas, kiel ni jam diris, la uzado de tiom-kiom anstataŭ tiel-kiel kun adjektivo aŭ adverbo. Ekz.:
 
-stataŭ tiel-kiel kun adjektivo aŭ adverbo. Ekz.:
-
-1. Ili ne estas tiom malbonaj kiom la homoj. (Perfido 61, Kru-
-
-it)
+1. Ili ne estas tiom malbonaj kiom la homoj. (Perfido 61, Kruit)
 
 2. Li estis tiom vanta kiom karnavala arlekeno. (Perfido 79)
 
@@ -4335,9 +3446,7 @@ Progr. Degenkamp)
 
 ĉar flanke de tiel-kiel staras same-kiel en la Zamenhofa
 
-Esperanto, kun nur eta nuanco de diferenco, ankaŭ tiu espri-
-
-mo estas kelkfoje ŝanĝita, sed nur de la ĝisostuloj:
+Esperanto, kun nur eta nuanco de diferenco, ankaŭ tiu esprimo estas kelkfoje ŝanĝita, sed nur de la ĝisostuloj:
 
 1. Tio estas same bona kiom konfesado. (Perfido 10)
 
@@ -4349,13 +3458,7 @@ mo estas kelkfoje ŝanĝita, sed nur de la ĝisostuloj:
 
 (Skizoj 142)
 
-Jam en §68 ni vidis kiel ĝisekstrema konsekvenco kondu-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-kas al uzado de kiom, eĉ kiam tiom aŭ same ne antaŭ-iras: ruza kiom la diablo; grandaj kiom manplatoj; diferenco granda
+Jam en §68 ni vidis kiel ĝisekstrema konsekvenco kondukas al uzado de kiom, eĉ kiam tiom aŭ same ne antaŭ-iras: ruza kiom la diablo; grandaj kiom manplatoj; diferenco granda
 
 kiom inter du kontraŭaj polusoj, k. s.
 
@@ -4367,9 +3470,7 @@ Sed jam ĝenerala fariĝis inter ili la uzado:
 
 A. de tiom anstataŭ tiel antaŭ adjektivo aŭ adverbo:
 
-1. Li pendis tiom dolĉe malantaŭen. (Perl. pĝ 11); tiom stran-
-
-ge nereale (idem 15); tiom nova (idem 24); ion tiom mal-
+1. Li pendis tiom dolĉe malantaŭen. (Perl. pĝ 11); tiom strange nereale (idem 15); tiom nova (idem 24); ion tiom mal-
 
 saĝan (idem 25); k.t.p.
 
@@ -4391,9 +3492,7 @@ B. de kiom anstataŭ kiel antaŭ adjektivo aŭ adverbo kiel
 
 ”ekkria aŭ demanda adverbo de grado”. Ekz.:
 
-1. Kiom malfeliĉa ĝi faris lin (Perfido, pĝ 18); kiom ajn teru-ra (idem 21); kiom komika li estas (idem 23); kiom gran-
-
-dajn okulojn li faros (idem 43); kiom bela (idem 44); kiom
+1. Kiom malfeliĉa ĝi faris lin (Perfido, pĝ 18); kiom ajn teru-ra (idem 21); kiom komika li estas (idem 23); kiom grandajn okulojn li faros (idem 43); kiom bela (idem 44); kiom
 
 strange (idem 45), k.t.p.
 
@@ -4401,12 +3500,7 @@ strange (idem 45), k.t.p.
 
 (idem 22); kiom grava malprovito (idem 32), k.t.p.
 
-Mi ripetu ke ĉiuj kvin tiaj uz-manieroj estas kontraŭ-Za-
-
-menhofaj!
-
-
-DU MALSANOJ EN ESPERANTO
+Mi ripetu ke ĉiuj kvin tiaj uz-manieroj estas kontraŭ-Zamenhofaj!
 
 
 XVIII
@@ -4427,34 +3521,20 @@ Sur tiu, certe ne tro preciza difino, ili bazas sian opinion
 
 ke por ”ĉiu, kiu scias logike pensi, estas klare”, ke la uzado de la kvanto-vortoj estas pli korekta ”por indiki gradojn.”
 
-Estas iom strange ke la Esperantistaro travivis kaj traluk-
-
-tis proksimume kvardekkvin jarojn, antaŭ ol ĉi tiu logika vero estis malkovrita. La reformistoj de ĉirkaŭ 1907 ja ofte plendis pri la tro-ofteco de tiel-kiel, sed precipe pro ties neoportuna dusilabeco, ne pro ia mallogikeco en ties uzado.
+Estas iom strange ke la Esperantistaro travivis kaj traluktis proksimume kvardekkvin jarojn, antaŭ ol ĉi tiu logika vero estis malkovrita. La reformistoj de ĉirkaŭ 1907 ja ofte plendis pri la tro-ofteco de tiel-kiel, sed precipe pro ties neoportuna dusilabeco, ne pro ia mallogikeco en ties uzado.
 
 Alia rimarkinda fakto estas ke la naturaj lingvoj preskaŭ
 
-ĉiuj montras fortan preferon por la uzado de adverboj de ma-
+ĉiuj montras fortan preferon por la uzado de adverboj de maniero por esprimi gradojn, kaj nur en malmultaj kazoj uzas
 
-niero por esprimi gradojn, kaj nur en malmultaj kazoj uzas
+por tio adverbojn de kvanto. Ankaŭ la patrolingvo de Zamenhof, la rusa, montras tiun fenomenon. En tio la kiom-ismo
 
-por tio adverbojn de kvanto. Ankaŭ la patrolingvo de Zamen-
+trovas novan argumenton: ”Zamenhof verŝajne lasis sin influi de sia propra lingvo.”
 
-hof, la rusa, montras tiun fenomenon. En tio la kiom-ismo
-
-trovas novan argumenton: ”Zamenhof verŝajne lasis sin in-
-
-flui de sia propra lingvo.”
-
-Oni tamen estu singarda kaj ne saltu al tro baldaŭaj kon-
-
-kludoj! Se iu lingva fenomeno estas tiel ĝenerala, tiel disvasti-97
-
-DU MALSANOJ EN ESPERANTO
+Oni tamen estu singarda kaj ne saltu al tro baldaŭaj konkludoj! Se iu lingva fenomeno estas tiel ĝenerala, tiel disvasti-97
 
 
-ĝinta, ke ni trovas ĝin en lingvoj de tre malproksima paren-
-
-ceco, ni povas esti preskaŭ certaj ke iu ĝenerala ”lingvistika leĝo” troviĝas ĉe la radiko, el kiu tiu fenomeno kreskas.
+ĝinta, ke ni trovas ĝin en lingvoj de tre malproksima parenceco, ni povas esti preskaŭ certaj ke iu ĝenerala ”lingvistika leĝo” troviĝas ĉe la radiko, el kiu tiu fenomeno kreskas.
 
 La lingvoj naturaj ja ne estas tieląosaj kuiraĵoj, kiel oni
 
@@ -4468,17 +3548,13 @@ La vorto devenas de la latina vorto gradus, kies signifo
 
 estas paŝo, kaj pli speciale paŝo sur ŝtuparo, do ŝtupo.
 
-Kun tiu originala signifo ĝi troviĝas tre verŝajne en 2 Re-
-
-ĝoj 20: 9, en la rakonto pri la malsaneco de la reĝo ˘izkija.
+Kun tiu originala signifo ĝi troviĝas tre verŝajne en 2 Reĝoj 20: 9, en la rakonto pri la malsaneco de la reĝo ˘izkija.
 
 Atentu speciale la vorton malsupriĝis en 2 Reĝ. 20: 11 kaj en
 
 Jesaja 38: 8.
 
-La sunhorloĝo de Aąz havis plej verŝajne ŝtuparan for-
-
-mon, kaj sur la ŝtupoj la ombro iris malsupren.
+La sunhorloĝo de Aąz havis plej verŝajne ŝtuparan formon, kaj sur la ŝtupoj la ombro iris malsupren.
 
 Duan fojon ni trovas ĝin en la surskribo super la Psalmoj
 
@@ -4488,9 +3564,7 @@ Duan fojon ni trovas ĝin en la surskribo super la Psalmoj
 
 ”Song of degrees” — kanto de gradoj.
 
-Unu el la plej akcepteblaj ekzegezoj klarigas tiun surskri-
-
-bon jene: Tiuj psalmoj estis kantataj de levidaj kaj pastraj
+Unu el la plej akcepteblaj ekzegezoj klarigas tiun surskribon jene: Tiuj psalmoj estis kantataj de levidaj kaj pastraj
 
 ˛oroj, en la templo de Jerusalem okaze de la grandaj festoj,
 
@@ -4502,9 +3576,7 @@ Nu, ni lasu la plej ĝustan ekzegezon al la specialistoj de
 
 la hebrea lingvo, por ni estas sufiĉe ke la nocio grado havas
 
-kiel sian fonon la ideon pri ”ŝtuparo”. ĉar tio montras al ni la 98
-
-DU MALSANOJ EN ESPERANTO
+kiel sian fonon la ideon pri ”ŝtuparo”. ĉar tio montras al ni la
 
 
 vojon al ĝusta kompreno de la funkcio de ĉiu gradindiko. Ni
@@ -4521,9 +3593,7 @@ La ideo pri skalo, ŝtuparo efektive ĉiam elvokas la ideon
 
 pri pli alta aŭ malpli alta, do la ideon pri mezurado.
 
-Mi neniel volas kontesti ke tial la nocio grado estas pa-
-
-renca al la nocio kvanto. Sed oni ne povas per simpla formulo
+Mi neniel volas kontesti ke tial la nocio grado estas parenca al la nocio kvanto. Sed oni ne povas per simpla formulo
 
 identigi ilin.
 
@@ -4541,9 +3611,7 @@ portas kun si la necesecon de komparado kun aliaj ŝtupoj en
 
 la sama skalo.
 
-Tiel mi venas al tiu ĉi tezo: La nocio grado implicas kom-
-
-paradon, alivorte: komparado estas inherenta en la esprimo de
+Tiel mi venas al tiu ĉi tezo: La nocio grado implicas komparadon, alivorte: komparado estas inherenta en la esprimo de
 
 ia grado.
 
@@ -4556,14 +3624,9 @@ kun granda prefero uzis la vorton kiel. (vidu §11 k. skv.)
 Sed estas pli!
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §84
 
-Ni renkontas la nocion grado ankaŭ, eĉ ofte, en la fiziko. Ver-
-
-ŝajne la vorto estas ĝuste pro tio konata al ĉiu, eĉ al la plej simpla, ordinara homo, kiu neniam okupas sin pri filozofio,
+Ni renkontas la nocion grado ankaŭ, eĉ ofte, en la fiziko. Verŝajne la vorto estas ĝuste pro tio konata al ĉiu, eĉ al la plej simpla, ordinara homo, kiu neniam okupas sin pri filozofio,
 
 lingvistiko aŭ la fiziko mem. Infano jam frue lernas ”legi la
 
@@ -4581,9 +3644,7 @@ lernejo, la dektrijarulo travivos la tagon, en kiu, je sia gran-da miro, li aŭd
 
 mem sed nur la gradon de varmeco.
 
-Kun iom da konsterniĝo li klopodos por sekvi la (ofte lon-
-
-gajn) rezonadojn de sinjoro la profesoro pri fiziko, kiu ĝisŝvite penadas por klarigi ke kvanto da varmo estas io tute alia ol
+Kun iom da konsterniĝo li klopodos por sekvi la (ofte longajn) rezonadojn de sinjoro la profesoro pri fiziko, kiu ĝisŝvite penadas por klarigi ke kvanto da varmo estas io tute alia ol
 
 grado de varmo. Kaj verŝajne li kaptos la veron de tiu aserto
 
@@ -4597,29 +3658,18 @@ En tiuj samaj lecionoj pri fiziko, li povos lerni ke ”grado”
 
 estas esprimata per diversaj metodoj. Kelkfoje per mezurado
 
-de ia kvanto. Ekz.: La gr;ado de forteco de ia solvaĵo, kiu entenas salon aŭ sukeron aŭ kalkon povas esti trovata per fik-
-
-sado de la kvanto de miligramoj da salo k. t. p. en unu litro de la solvaĵo. Kiam ni legas ekzemple: ”En Nederlando la meza
+de ia kvanto. Ekz.: La gr;ado de forteco de ia solvaĵo, kiu entenas salon aŭ sukeron aŭ kalkon povas esti trovata per fiksado de la kvanto de miligramoj da salo k. t. p. en unu litro de la solvaĵo. Kiam ni legas ekzemple: ”En Nederlando la meza
 
 ’malmoleco’ de la trink-akvo estas 10 germanaj gradoj”, tio
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-signifas: unu litro da trinkakvo entenas meze 100 mg da kal-
-
-ciaĵoj.
+signifas: unu litro da trinkakvo entenas meze 100 mg da kalciaĵoj.
 
 Sed la pli oftan kaj pli ĝeneralan manieron ni trovas ĉe la
 
-termometroj. En tiu kazo la grado (de varmeco) estas espri-
+termometroj. En tiu kazo la grado (de varmeco) estas esprimata kaj mezurata per sia efiko. Nome: la pli alta grado de
 
-mata kaj mezurata per sia efiko. Nome: la pli alta grado de
-
-varmeco havas kiel efikon, ke la termometra fluidaĵo (ĉu hid-
-
-rargo, akvo, alkoholo aŭ ia gasa) dilatiĝas, t.e. pligrandiĝas je volumeno. La hidrargo supreniras kaj tiel indikas la pli altan varmogradon.
+varmeco havas kiel efikon, ke la termometra fluidaĵo (ĉu hidrargo, akvo, alkoholo aŭ ia gasa) dilatiĝas, t.e. pligrandiĝas je volumeno. La hidrargo supreniras kaj tiel indikas la pli altan varmogradon.
 
 Do: la grado esprimiĝas per la maniero de konduto de ia
 
@@ -4627,17 +3677,11 @@ materio. Laŭ tiu principo oni mezuras ĉiajn valorojn en ĉiaj
 
 diversaj branĉoj de la fiziko.
 
-Ankaŭ en tiu sfero ni rimarkas ke la nocio ”grado” tro-
+Ankaŭ en tiu sfero ni rimarkas ke la nocio ”grado” troviĝas en la sama kategorio kiel ”mezuro, forteco, kvanta, vo-
 
-viĝas en la sama kategorio kiel ”mezuro, forteco, kvanta, vo-
+lumeno, grando, nombro, proporcio, supereco” k. s., kvankam tio neniel pravigas la difinon ke ”grado estas speco de
 
-lumeno, grando, nombro, proporcio, supereco” k. s., kvan-
-
-kam tio neniel pravigas la difinon ke ”grado estas speco de
-
-kvanto.” Oni povas konstati nur, ke tiuj du nocioj kvanto-
-
-grado estas inter si parencaj kaj sendube ĉiu filozofo klasos
+kvanto.” Oni povas konstati nur, ke tiuj du nocioj kvantogrado estas inter si parencaj kaj sendube ĉiu filozofo klasos
 
 ilin en la saman kategorion. Sed …
 
@@ -4647,23 +3691,14 @@ Sed … ĉu tio havas valoron por la gramatiko de lingvoj, por
 
 la lingvistiko? Oni lasu ĉi tiun demandon penetri profunden
 
-en sian menson! Kaj tuj oni eksentos dubon. ĉar tiu deman-
-
-do tuŝas la kernon de la tiom-tiel disputo, de ĝia respondo de-pendos la praveco de la uzado de tiu argumento, la sola ar-
+en sian menson! Kaj tuj oni eksentos dubon. ĉar tiu demando tuŝas la kernon de la tiom-tiel disputo, de ĝia respondo de-pendos la praveco de la uzado de tiu argumento, la sola ar-
 
 gumento de la kiom-istoj:
 
-”Grado estas speco de kvanto, do … grado devas esti es-
-
-primita per la kvanto-vortoj.”
+”Grado estas speco de kvanto, do … grado devas esti esprimita per la kvanto-vortoj.”
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-ĉu tio vere estas logika? ĉu vere la prezidanto de nia Aka-
-
-demio kaj ĉiuj kiuj samopinias kun li ”tordas la leĝojn de la logiko, defendante la iel-korelativojn por signifoj gradoj”?
+ĉu tio vere estas logika? ĉu vere la prezidanto de nia Akademio kaj ĉiuj kiuj samopinias kun li ”tordas la leĝojn de la logiko, defendante la iel-korelativojn por signifoj gradoj”?
 
 (atentu: tio lasta estas citaĵo!)
 
@@ -4673,13 +3708,9 @@ debaton pri la rolo de la logiko en Esperanto. Pri tio oni jam tre (eble tro) mu
 
 Eĉ pli grava tiu ĉi eraro fariĝas, se oni kuraĝas uzi ĉe tio
 
-la vorton ”logiko”, kiel tio okazas en la disputo tiom-tiel. ĉar, se la eldiro ”grado estas speco de kvanto” jam atestas pri tre granda kaj naiva supraĵemo, la konkludo: ”do grado estu esprimota per kvanto-vortoj” liveras tipan ekzemplon de malĝu-
+la vorton ”logiko”, kiel tio okazas en la disputo tiom-tiel. ĉar, se la eldiro ”grado estas speco de kvanto” jam atestas pri tre granda kaj naiva supraĵemo, la konkludo: ”do grado estu esprimota per kvanto-vortoj” liveras tipan ekzemplon de malĝusta, malkorekta koncepto pri la ideo ”lingvo”, per sia konfu-
 
-sta, malkorekta koncepto pri la ideo ”lingvo”, per sia konfu-
-
-zado de nocioj semantikaj kun nocioj sintaksaj; nome: se-
-
-mantikaj (kategorioj de signifo) tute ne bezonas korespondi
+zado de nocioj semantikaj kun nocioj sintaksaj; nome: semantikaj (kategorioj de signifo) tute ne bezonas korespondi
 
 kun sintaksaj kategorioj, eĉ ne povas ĉiam korespondi. Se oni
 
@@ -4691,21 +3722,14 @@ La konstato ke grado kaj kvanto estas parencaj ideoj, kiel
 
 ajn vera ĝi estu, neniel koncernas la praktikan lingvouzadon.
 
-ĉar tiu praktika lingvo-uzado ne servas por manifesti filozo-
-
-fiajn dividojn, ĝi neniel respegulas per siaj formoj la logikan konstruaĵon filozofian. Tion ĝi jam ne povas fari pro la simpla fakto ke la lingvo estas pli maljuna ol ”la filozofio”. Sed ankaŭ ne, ĉar tio ne estas ĝia tasko. La primara tasko de ”la lingvo”
-
-
-DU MALSANOJ EN ESPERANTO
+ĉar tiu praktika lingvo-uzado ne servas por manifesti filozofiajn dividojn, ĝi neniel respegulas per siaj formoj la logikan konstruaĵon filozofian. Tion ĝi jam ne povas fari pro la simpla fakto ke la lingvo estas pli maljuna ol ”la filozofio”. Sed ankaŭ ne, ĉar tio ne estas ĝia tasko. La primara tasko de ”la lingvo”
 
 
 estas, ke ĝi priskribas la eksteran mondon (la mondon ekster
 
 la homo) tiel, kiel ĝi montras sin, kiel ĝi manifestas sin, en siaj multnuancaj fenomenoj.
 
-Konkrete: Se ”la lingvo” priskribas graddiferencojn, ĝi fa-
-
-ras tion unualoke priskribante la efikon de tiuj diferencoj, per kiu ili manifestiĝas.
+Konkrete: Se ”la lingvo” priskribas graddiferencojn, ĝi faras tion unualoke priskribante la efikon de tiuj diferencoj, per kiu ili manifestiĝas.
 
 §86
 
@@ -4713,9 +3737,7 @@ Ni prenu simplan ekzemplon:
 
 Sinjorino N. N., transloĝiĝinte de P al R, trovas ke en ŝia
 
-nova loĝloko la akvo estas ”malmola” (vidu §84). Komprene-
-
-ble tio estas por ŝi tre malagrabla kaj en multaj konversacioj kun la novaj najbaroj ŝi plendas pri tiu ĝeno. Ni vidu kiamaniere ŝi povas esprimi sian indigniĝon pri la tro granda kvan-
+nova loĝloko la akvo estas ”malmola” (vidu §84). Kompreneble tio estas por ŝi tre malagrabla kaj en multaj konversacioj kun la novaj najbaroj ŝi plendas pri tiu ĝeno. Ni vidu kiamaniere ŝi povas esprimi sian indigniĝon pri la tro granda kvan-
 
 to da kalciaĵoj en la akvo. ŝi povas uzi simplan adverbon, dirante:
 
@@ -4723,9 +3745,7 @@ La akvo estas tre malmola, tro malmola, iom malmola,
 
 sufiĉe malmola, ekstreme malmola.
 
-Tio estas tre ĝeneralaj esprimoj, kvazaŭ nedifinitaj. Estan-
-
-te Esperantistino, ŝi eĉ havas je sia dispono specialajn espri-milojn, nome la afiksojn et kaj eg, uzotajn adverbe aŭ afikse: La akvo tie ĉi estas ete malmola, aŭ ege malmola, aŭ mal-moleta aŭ malmolega, aŭ treege malmola.
+Tio estas tre ĝeneralaj esprimoj, kvazaŭ nedifinitaj. Estante Esperantistino, ŝi eĉ havas je sia dispono specialajn espri-milojn, nome la afiksojn et kaj eg, uzotajn adverbe aŭ afikse: La akvo tie ĉi estas ete malmola, aŭ ege malmola, aŭ mal-moleta aŭ malmolega, aŭ treege malmola.
 
 Pli fortajn esprimojn ŝi povas uzi en malbona humoro:
 
@@ -4738,18 +3758,13 @@ Jam ŝi do uzas adverbojn kiuj ankaŭ — eĉ pli ofte estas
 uzataj por esprimi la manieron de ia ago, la kielecon.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 La grado de malmoleco estas esprimebla eĉ per adjektivo,
 
 se ŝi diras:
 
 ĉi tie la malmoleco de la akvo estas granda, grandega.
 
-(Atentu ke oni tamen ne povas diri: La akvo estas grande mal-
-
-mola! ĉu nova ”nelogikaĵo?)
+(Atentu ke oni tamen ne povas diri: La akvo estas grande malmola! ĉu nova ”nelogikaĵo?)
 
 Sinjorino N. N. ankoraŭ ne estas je la fino de sia Latino.
 
@@ -4763,17 +3778,13 @@ La incito kiun ŝi spertas, povas eĉ kondtiki ŝin al strangaj
 
 komparoj, tiel ke ŝi grumblas:
 
-La akvo estas malmola kiel ŝtono, malmola kiel ŝtipo, mal-
-
-mola kiel granito, malmola kiel bastono.
+La akvo estas malmola kiel ŝtono, malmola kiel ŝtipo, malmola kiel granito, malmola kiel bastono.
 
 Tiajn komparojn mi jam menciis kaj priparolis en §§61-
 
 68, kie ni ankaŭ vidis kiamaniere tiaj komparoj gradindikaj
 
-povas evolui el pli sencoplenaj komparoj, kiuj samtempe es-
-
-primas kaj manieron (aŭ specialan aspekton) kaj gradon.
+povas evolui el pli sencoplenaj komparoj, kiuj samtempe esprimas kaj manieron (aŭ specialan aspekton) kaj gradon.
 
 §87
 
@@ -4785,27 +3796,15 @@ nete specialigi? Tiam ŝi esprimos la gradon per menciado de
 
 La vorto tiel havas tie ĉi duoblan funkcion: 1e. ĝi anoncas
 
-en konciza formo en la ĉefpropozicio la enhavon de la sub-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-propozicio. 2e. ĝi estas subordigita al la adjektivo por indiki ke la enhavo de la subpropozicio servas por esprimi la gradon
+en konciza formo en la ĉefpropozicio la enhavon de la subpropozicio. 2e. ĝi estas subordigita al la adjektivo por indiki ke la enhavo de la subpropozicio servas por esprimi la gradon
 
 de tiu adjektivo.
 
-La subpropozicio esprimas ian manieron de agado aŭ su-
+La subpropozicio esprimas ian manieron de agado aŭ suferado; tiu maniero estas — tute nature — anoncita per la ma-
 
-ferado; tiu maniero estas — tute nature — anoncita per la ma-
+nier-indika vorto tiel, kiu samtempe esprimas la gradon. Alivorte: La grado estas esprimita per ia agmaniero.
 
-nier-indika vorto tiel, kiu samtempe esprimas la gradon. Ali-
-
-vorte: La grado estas esprimita per ia agmaniero.
-
-Klare ni konstatas la veron de la regulo kiun ni jam tro-
-
-vis en §60 kaj §66: En la praktika lingvo-uzado grado kaj ma-
+Klare ni konstatas la veron de la regulo kiun ni jam trovis en §60 kaj §66: En la praktika lingvo-uzado grado kaj ma-
 
 niero ne estas disigeblaj.
 
@@ -4813,9 +3812,7 @@ niero ne estas disigeblaj.
 
 Diferenco de grado do estas praktike nur esprimebla per
 
-komparado aŭ per menciado de la sekvoj de ĝia efiko. La fi-
-
-zika aŭ matematika maniero por fiksi graddiferencojn per
+komparado aŭ per menciado de la sekvoj de ĝia efiko. La fizika aŭ matematika maniero por fiksi graddiferencojn per
 
 mezurado de ia kvanto (§84) tute ne ludas ian rolon en la
 
@@ -4825,27 +3822,16 @@ nome la manieron de la termometro, kiu mezuras la gradon
 
 per la kondutmaniero (de hidrargo aŭ io tia).
 
-uste tio estas la kaŭzo ke en la naturaj lingvoj la gradin-
+uste tio estas la kaŭzo ke en la naturaj lingvoj la gradindikaj adverboj evoluis el la manierindikaj. Sed tio ne estas nur interesa historia fakto; la alternado de grado-maniero, kaj la neebleco disigi ilin montras sin ankoraŭ ĉiutage.
 
-dikaj adverboj evoluis el la manierindikaj. Sed tio ne estas nur interesa historia fakto; la alternado de grado-maniero, kaj la neebleco disigi ilin montras sin ankoraŭ ĉiutage.
+Tio estas eĉ unu el la malmultaj punktoj pri kiuj gramatikistoj modernaj kaj elmodaj samopinias. Mi citu du eldirojn: La unua estas el 1892. En parto II, pĝ 107 de sia ”Neder-landsche Spraakkunst” (kiu dum jardekoj estis la aŭtoritato
 
-Tio estas eĉ unu el la malmultaj punktoj pri kiuj grama-
-
-tikistoj modernaj kaj elmodaj samopinias. Mi citu du eldirojn: La unua estas el 1892. En parto II, pĝ 107 de sia ”Neder-landsche Spraakkunst” (kiu dum jardekoj estis la aŭtoritato
-
-en Nederlando), C. H. den Hartog skribas: ”Vanaj estos la klo-
-
-podoj por apartigi gradon kaj manieron en multaj kazoj.”
-
-
-DU MALSANOJ EN ESPERANTO
+en Nederlando), C. H. den Hartog skribas: ”Vanaj estos la klopodoj por apartigi gradon kaj manieron en multaj kazoj.”
 
 
 La dua estas el 1948, el ”Stilistische Grammatica” de G. S.
 
-Overdiep: ”Gradadjektoj estas speciala nuanco de manierad-
-
-jektoj”.
+Overdiep: ”Gradadjektoj estas speciala nuanco de manieradjektoj”.
 
 Nur kelkaj Esperanto-gramatikistoj havas alian opinion.
 
@@ -4861,13 +3847,9 @@ Kelkaj ilustraĵoj:
 
 maniero aŭ en perfekta grado? Ambaŭ!
 
-2. Kiel ili turmentis min! ĉu tio rilatas la manieron de tur-
+2. Kiel ili turmentis min! ĉu tio rilatas la manieron de turmentado aŭ la gradon? Ambaŭ! La grado (t.e. la intense-
 
-mentado aŭ la gradon? Ambaŭ! La grado (t.e. la intense-
-
-co) de la turmentado manifestiĝis per la rafinitaj manie-
-
-roj de turmentado!
+co) de la turmentado manifestiĝis per la rafinitaj manieroj de turmentado!
 
 3. ŝi estas eksterordinarie bela. (F. Krest. 19) ĉu bela en eksterordinara maniero aŭ en eksterordinara grado? Ambaŭ:
 
@@ -4883,13 +3865,7 @@ morte laca, k.t.p. (kp. §61 k. skv.)
 
 4. ŝi sentis sin neniel trankvila (Kruit en La Perfido, 41). ĉu trankvila en nenia maniero? Aŭ maltrankvila en forta grado? Ambaŭ? ĉar ŝi estas maltrankvila en ĉiaj manieroj, tial
 
-ŝi atingas la plej grandan gradon de maltrankvileco! Aten-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-tu ke eĉ sinjoro Kruit ne skribis: ŝi sentis sin neniom tran-
+ŝi atingas la plej grandan gradon de maltrankvileco! Atentu ke eĉ sinjoro Kruit ne skribis: ŝi sentis sin neniom tran-
 
 kvila, kvankam la gradindiko estas nekontestebla!
 
@@ -4929,14 +3905,9 @@ Denove la maniero de avareco (rilate manĝadon) montras
 
 la gradon de avareco.
 
-ĉi tiu dektrio estas ad libitum multobligebla! Se oni aten-
-
-tas la fenomenon dum la legado de kiu ajn libro, oni trovos
+ĉi tiu dektrio estas ad libitum multobligebla! Se oni atentas la fenomenon dum la legado de kiu ajn libro, oni trovos
 
 centojn da similaj frazoj.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 §90
@@ -4957,9 +3928,7 @@ kelkaj sekundaraj argumentoj, kiuj plifortigas la kazon por
 
 tiel-kiel. Ili estas:
 
-1. Zamenhof uzis kiom ofte en adverba funkcio, sed neni-
-
-am en prepozicia funkcio. Tiun lastan funkcion ĝi ja havas en
+1. Zamenhof uzis kiom ofte en adverba funkcio, sed neniam en prepozicia funkcio. Tiun lastan funkcion ĝi ja havas en
 
 esprimoj kiel:
 
@@ -4979,14 +3948,9 @@ prepozicia funkcio ĝi ne povas esti anstataŭigata per kia.
 
 Kiom do havas kun kia la saman komunan trajton ke ili
 
-neniam uziĝas prepozicie. Ni jam detale priparolis tion rila-
-
-te la vorton kia kaj poste vidos kian motivon Zamenhof po-
+neniam uziĝas prepozicie. Ni jam detale priparolis tion rilate la vorton kia kaj poste vidos kian motivon Zamenhof po-
 
 vus havi por agi same rilate kiom.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 §91
@@ -5005,9 +3969,7 @@ tute malgrava kaj ke ankaŭ la naturaj lingvoj evitas tiajn pez-sonajn vortojn e
 
 La reformistoj de ĉirkaŭ 1907 plendis pri la pezeco kaj
 
-maloportuneco de la dusilabaj tiel-kiel. En siaj reformprojek-
-
-toj (eldevigitaj ”kontraŭ koro” de la cirkonstancoj) Zamenhof
+maloportuneco de la dusilabaj tiel-kiel. En siaj reformprojektoj (eldevigitaj ”kontraŭ koro” de la cirkonstancoj) Zamenhof
 
 proponis la neologismajn formojn kom por kiel, kaj sik por tiel, verŝajne laŭ la franca comme kaj si (de latina sic). Feliĉe tiu propono restis mortnaskita infano. La uzadkampo de la Esperanta kiel ja estas multe pli ampleksa ol tiu de la franca
 
@@ -5019,20 +3981,12 @@ Per tio la fonetiko volas esprimi ke ĝi tre facile kombiniĝas
 
 kun ĉiaj aliaj vokaloj kaj konsonantoj.
 
-Tia facila kombin-povo estas tre taŭga ĝuste por la mult-
-
-uzita Esperanta kiel kaj la vorto kiom tute malhavas ĝin. Tial iu teksto kun multaj kiel-oj restas flua kaj facile elparolebla, dum la sama teksto kun kiom-oj sonas peze, ”morne”.
-
-
-DU MALSANOJ EN ESPERANTO
+Tia facila kombin-povo estas tre taŭga ĝuste por la multuzita Esperanta kiel kaj la vorto kiom tute malhavas ĝin. Tial iu teksto kun multaj kiel-oj restas flua kaj facile elparolebla, dum la sama teksto kun kiom-oj sonas peze, ”morne”.
 
 
 Tion ankaŭ kaŭzas la obtuza sono de o kompare kun la
 
 facila sono e. Fine ankaŭ la kombino i-e estas fonetike pli facile farebla ol i-o. Konsiderante ĉion ĉi, oni ne povas ŝultrolevante ignori la argumenton de belsoneco.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 XIX
@@ -5043,9 +3997,7 @@ DE LA IOM-VORTOJ
 
 §92
 
-Estas nekontestebla fakto ke Zamenhof uzis ankaŭ la iom-
-
-vortojn por esprimi gradojn. La kiom-istoj ne ĉesas atentigi
+Estas nekontestebla fakto ke Zamenhof uzis ankaŭ la iomvortojn por esprimi gradojn. La kiom-istoj ne ĉesas atentigi
 
 pri tio, aldonante ke en tio kuŝas ia nekonsekvenceco kaj, —
 
@@ -5067,16 +4019,11 @@ Kaj poste: ”El tio montriĝas, ke la naturo estas pli forta ol la doktrino”.
 
 ĉe tia argumentado oni nur povas levi la ŝultrojn. Imagu
 
-do: Zamenhof, ĉiam je sia gardo por obei al siaj propraj mo-
-
-deloj, sed de tempo al tempo, eble pro laceco aŭ dormo aŭ
+do: Zamenhof, ĉiam je sia gardo por obei al siaj propraj modeloj, sed de tempo al tempo, eble pro laceco aŭ dormo aŭ
 
 trorapidemo, kaptita de la potenca monstro L O G I K O, kiu
 
 devigas lin devii de siaj propraj vojoj por oferi incenson sur Lia altaro. Sceno, inda por karikaturisto!
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 ĉar efektive: Tia prezentado estas karikatura. Kontraŭ tio
@@ -5091,9 +4038,7 @@ de iom (§§74-77), ni pruvos ĝin en la daŭrigo por kelkaj aliaj kazoj.
 
 §93
 
-Unualoke ni renkontas la uzadon de tiom kaj kiom en la Za-
-
-menhofa literaturo, por esprimi kvantojn. Kelkaj ekzemploj:
+Unualoke ni renkontas la uzadon de tiom kaj kiom en la Zamenhofa literaturo, por esprimi kvantojn. Kelkaj ekzemploj:
 
 1. Mi ankaŭ neniel povas altranĉi tiom, kiom estas necese,
 
@@ -5109,26 +4054,15 @@ temas pri monŝuldo).
 
 (Marta 189).
 
-5. ĉiu delegito havas tiom da voĉoj kiomfoje po 25 anoj ha-
+5. ĉiu delegito havas tiom da voĉoj kiomfoje po 25 anoj havas la grupoj, kiujn ili reprezentas (L. d.Z. II 283).
 
-vas la grupoj, kiujn ili reprezentas (L. d.Z. II 283).
+6. La mondo ekzistos nur tiom da jaroj, kiom da versoj havas la Psalmoj (Fund. Krest. 183).
 
-6. La mondo ekzistos nur tiom da jaroj, kiom da versoj ha-
+Pri tiu ĉi uzado ne ekzistas diferenco de opinioj. Mi mencias ĝin pro kompleteco kaj ĉar ĝi donas al mi okazon diri kelkajn vortojn pri la stranga argumento, kiun kelkaj oponantoj
 
-vas la Psalmoj (Fund. Krest. 183).
-
-Pri tiu ĉi uzado ne ekzistas diferenco de opinioj. Mi men-
-
-cias ĝin pro kompleteco kaj ĉar ĝi donas al mi okazon diri kelkajn vortojn pri la stranga argumento, kiun kelkaj oponantoj
-
-al la kiom-ismo pruntis el ĝi. Tiu argumento tekstas: ”La uza-
-
-do de kiom (tiom) kiel adverbo de grado jam pro tio estas era-
+al la kiom-ismo pruntis el ĝi. Tiu argumento tekstas: ”La uzado de kiom (tiom) kiel adverbo de grado jam pro tio estas era-
 
 ra, ke kiom tute ne estas adverbo, sed numeralo!”
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Mi ne hezitas nomi tiun argumenton absurda! Ke tiom
@@ -5139,13 +4073,9 @@ la prepozicio da por ligi ilin al la determinita substantivo.
 
 Komparu: tri arboj, multe da arboj, kiom da arboj, kelke da arboj.
 
-Krom tio ni trovas en tiu eldiro la ideon ke ĉiuj vortoj ri-
+Krom tio ni trovas en tiu eldiro la ideon ke ĉiuj vortoj rilatantaj la nocion kvanto iel devas aparteni al la numeraloj.
 
-latantaj la nocion kvanto iel devas aparteni al la numeraloj.
-
-Tio ja estas tute malĝusta: kvanto-vortoj apartenas al diver-
-
-saj vortospecoj. Komparu: pokalo da vino, pluraj samideanoj,
+Tio ja estas tute malĝusta: kvanto-vortoj apartenas al diversaj vortospecoj. Komparu: pokalo da vino, pluraj samideanoj,
 
 ĉiuj homoj, multaj homoj, multe da homoj, tri homoj, kiom da
 
@@ -5153,37 +4083,24 @@ homoj, ambaŭ homoj, la tria homo.
 
 Tiu ĉi misideo estas despli grava, ke ĝuste la numeraloj tre
 
-ofte tute ne estas rigardataj kiel aparta vortklaso. En Neder-
+ofte tute ne estas rigardataj kiel aparta vortklaso. En Nederlandaj gramatikoj tio estis kutimo dum longa tempo, sed pli
 
-landaj gramatikoj tio estis kutimo dum longa tempo, sed pli
-
-modernaj gramatikoj jam forlasis tiun starpunkton. enera-
-
-la jam fariĝis la opinio ke la t.n. numeraloj povas pli taŭge kaj
+modernaj gramatikoj jam forlasis tiun starpunkton. enerala jam fariĝis la opinio ke la t.n. numeraloj povas pli taŭge kaj
 
 ĝuste esti traktataj kiel subklasoj de substantivoj, adjektivoj, adverboj kaj pronomoj. Sed plej serioze estas ke tiu absurda
 
 argumento montras nedefendeblan lingvo-koncepton. ĉar eĉ
 
-se ekzistus aparta klaso de numeraloj, kaj eĉ se kiom apar-
+se ekzistus aparta klaso de numeraloj, kaj eĉ se kiom apartenus al tiu klaso, kie estas la leĝo kiu kondamnas ian vorton resti ”enkarcerita en sia vortspeco”? Vortoj, kaj precipe partik-loj, ja ne limigas sin je nur unu servo kaj la (dek) latindevenaj vortklasoj ne estas hermete fermitaj ĉeloj! Krome: ĉiu scias ke tiu dekklasa divido estas tute ne kontentiga, kaj ke eminen-taj lingvistoj pene serĉas pli bonan kadron.
 
-tenus al tiu klaso, kie estas la leĝo kiu kondamnas ian vorton resti ”enkarcerita en sia vortspeco”? Vortoj, kaj precipe partik-loj, ja ne limigas sin je nur unu servo kaj la (dek) latindevenaj vortklasoj ne estas hermete fermitaj ĉeloj! Krome: ĉiu scias ke tiu dekklasa divido estas tute ne kontentiga, kaj ke eminen-taj lingvistoj pene serĉas pli bonan kadron.
-
-Tiu miskoncepto — la sankteco de la malnovaj kategori-
-
-oj — jam faris multe da malbono en diskutoj inter Esperan-
+Tiu miskoncepto — la sankteco de la malnovaj kategorioj — jam faris multe da malbono en diskutoj inter Esperan-
 
 to-gramatikistoj. (vidu ankaŭ §11)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §94
 
-Dualoke Zamenhof uzis la iom-korelativojn kiel komplemen-
-
-ton de verboj por esprimi metaforan kvanton, kaj en tiaj kazoj ili samtempe esprimas ofte gradojn de intenseco aŭ amplekseco.
+Dualoke Zamenhof uzis la iom-korelativojn kiel komplementon de verboj por esprimi metaforan kvanton, kaj en tiaj kazoj ili samtempe esprimas ofte gradojn de intenseco aŭ amplekseco.
 
 ĉar, notu bone, ke ekzistas diferenco inter gradesprimo
 
@@ -5191,17 +4108,13 @@ de kvalitoj (plej ofte ĉe adjektivoj) kaj gradesprimo de agoj
 
 (do plej ofte ĉe verboj). Fakte tiuj du formas tute apartajn kategoriojn.
 
-Rimarkinde estas ke ĝis nun (kiom mi scias) neniu aten-
-
-tigis pri tio, kaj ke tial la kiom-ismo kredis sin solvinta la problemon per sia difino: ”Grado estas kvanto de kvalito”, kiu
+Rimarkinde estas ke ĝis nun (kiom mi scias) neniu atentigis pri tio, kaj ke tial la kiom-ismo kredis sin solvinta la problemon per sia difino: ”Grado estas kvanto de kvalito”, kiu
 
 difino certe ne povas aplikiĝi, se oni parolas pri gradesprimo ĉe verboj.
 
 La naturaj lingvoj ofte manifestas tiun diferencon ĝuste
 
-per la uzado de la determinantaj adverboj de grado. Unuj po-
-
-vas esti uzataj por ambaŭ celoj, aliaj nur por unu el la du.
+per la uzado de la determinantaj adverboj de grado. Unuj povas esti uzataj por ambaŭ celoj, aliaj nur por unu el la du.
 
 Ekz.: En Esperanto oni povas diri: 1. Mi tre amas ŝin. 2. ŝi estas tre bela. Kaj en la Nederlanda lingvo oni povas traduki per: 1. Ik bemin haar zeer. 2. Zij is zeer mooi. Por tio lasta oni povas ankaŭ diri: 2. Zij is heel mooi, sed oni nepre ne diru: 1. Ik bemin haar heel.
 
@@ -5216,18 +4129,13 @@ min tro /multe/).
 La saman fenomenon ni trovas en la franca lingvo, kie
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 beaucoup determinas la verbojn, très uziĝas kun adjektivoj,
 
 dum la adverboj havas mezan pozicion.
 
 Kaj ĉiam ni vidas ke ekzistas tendenco uzi kvanto-vortojn
 
-por esprimi la gradon ĉe verboj, kaj aliajn vortojn ĉe adjek-
-
-tivoj. Zamenhof sekvis tiun tendencon, li do prenis — kiel
+por esprimi la gradon ĉe verboj, kaj aliajn vortojn ĉe adjektivoj. Zamenhof sekvis tiun tendencon, li do prenis — kiel
 
 ofte — la naturan vojon. Kaj miaopinie ĝi estas ankaŭ tie ĉi la
 
@@ -5247,13 +4155,9 @@ devas tamen ekzisti iaj motivoj por tio. ŝajnas al mi probable ke unu el la efi
 
 ’Espero’ ŝuldas al mi” (§93, 3) en ekzakta senco al: ”Kiom mi
 
-ŝuldas al tiu grava klubo!” en figura senco. La sekvantaj ek-
+ŝuldas al tiu grava klubo!” en figura senco. La sekvantaj ekzemploj prilumu tion:
 
-zemploj prilumu tion:
-
-1. Mi turmentas min tiom, ke al mi preskaŭ la sango elŝpru-
-
-cas el sub la ungoj (Fab. III, 74).
+1. Mi turmentas min tiom, ke al mi preskaŭ la sango elŝprucas el sub la ungoj (Fab. III, 74).
 
 2. Tiun persistecon ŝi tiom, tiom bezonis (Marta 77).
 
@@ -5261,12 +4165,7 @@ cas el sub la ungoj (Fab. III, 74).
 
 4. Kiuj estas la viroj, kiuj tiom vin zorgigas. (Ifig. 94).
 
-5. Altranĉadon mi iom scias, sed nur tiom ke mi povus al-
-
-tranĉi kolumon (Marta 109, kp 93, 1).
-
-
-DU MALSANOJ EN ESPERANTO
+5. Altranĉadon mi iom scias, sed nur tiom ke mi povus altranĉi kolumon (Marta 109, kp 93, 1).
 
 
 6. Tiu lingvo tiom fortikiĝus en la mondo, ke … (Fund. Kr.
@@ -5303,9 +4202,7 @@ DU MALSANOJ EN ESPERANTO
 
 17. Ni decidis ŝpari kiom ni nur povos kaj, kiom eble, ĉion fari mem (Fund. Kr. 114).
 
-18. Mi provas batali kontraŭ la malkontentuloj, kiom mi po-
-
-vas (Let. de Z. il 311).
+18. Mi provas batali kontraŭ la malkontentuloj, kiom mi povas (Let. de Z. il 311).
 
 19. Li devas — kiom tio estas ebla — uzi la lingvon kiom eble
 
@@ -5315,12 +4212,7 @@ plej neŭtralan (Le,t. de Z. II 330).
 
 antaŭdiras (Fund. Kr. 407).
 
-21. Kiom mi nur havas la eblon, mi jam dissendis mem la li-
-
-brojn (O. V. 477).
-
-
-DU MALSANOJ EN ESPERANTO
+21. Kiom mi nur havas la eblon, mi jam dissendis mem la librojn (O. V. 477).
 
 
 22. El Aŭstralio, kiom mi memoras, mi ricevis leterojn el M.
@@ -5329,9 +4221,7 @@ DU MALSANOJ EN ESPERANTO
 
 23. Almenaŭ tiom kiom mi ĝin aŭdis (Fund. Kr. 408).
 
-24. Nur tiom kiom povas li plenumi, la vorton sian — tio es-
-
-tas tiom kiom permesas la komuna voĉo de tuta la Danujo
+24. Nur tiom kiom povas li plenumi, la vorton sian — tio estas tiom kiom permesas la komuna voĉo de tuta la Danujo
 
 (Fund. Kr. 424).
 
@@ -5345,34 +4235,21 @@ profesio de la paciento (Fund. Kr. 233).
 
 §95
 
-Specialan kazon de tiom-kiom uzado prezentas al ni la espri-
-
-mo ne tiom … kiom. Ekz.:
+Specialan kazon de tiom-kiom uzado prezentas al ni la esprimo ne tiom … kiom. Ekz.:
 
 Li estas jam sana; kaj ne tiom dank’al la medikamentoj,
 
 kiom dank’al honesteco kaj ordo (Rev. 43).
 
-En ĉi tiu ekzemplo du kaŭzoj estas menciataj, kiuj kontri-
+En ĉi tiu ekzemplo du kaŭzoj estas menciataj, kiuj kontribuis al lia resaniĝo: 1. medikamentoj, 2. honesteco kaj ordo.
 
-buis al lia resaniĝo: 1. medikamentoj, 2. honesteco kaj ordo.
+La vortoj ne tiom … kiom indikas la proporcion laŭ kiu tiuj kaŭzoj efikis: la dua havis pli grandan parton en la proceso, kvankam oni koncedis ke ankaŭ la unua iom kontribuis. Ankaŭ tio
 
-La vortoj ne tiom … kiom indikas la proporcion laŭ kiu tiuj kaŭ-
+certe estas en ia senco gradesprimo. Sed rimarku ke la gramatika interrilato inter tiom kaj kiom estas tute diferenca en ĉi tiu frazo kompare kun ekzemple frazoj 23, 24, 25 de §94. En
 
-zoj efikis: la dua havis pli grandan parton en la proceso, kvankam oni koncedis ke ankaŭ la unua iom kontribuis. Ankaŭ tio
-
-certe estas en ia senco gradesprimo. Sed rimarku ke la grama-
-
-tika interrilato inter tiom kaj kiom estas tute diferenca en ĉi tiu frazo kompare kun ekzemple frazoj 23, 24, 25 de §94. En
-
-tiuj lastaj kiom komencas subpropozicion, kiu estas anonci-
-
-ta per kaj kvazaŭ kunprenita en la vorto tiom en la ĉefpropo-
+tiuj lastaj kiom komencas subpropozicion, kiu estas anoncita per kaj kvazaŭ kunprenita en la vorto tiom en la ĉefpropo-
 
 zicio. Tiu anoncilo eĉ ne estas ĉiam necesa, vidu kiel pruvon
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 frazon 26 (§94), kie ĝi mankas kaj konstatu ke ĝi povus manki
@@ -5383,9 +4260,7 @@ La rilato tiom — kiom do troviĝas en subordiga kadro,
 
 sed en la esprimo ne tiom … kiom de tiu ĉi paragrafo ni havas
 
-kunordigan rilaton: kunigo de du gramatike paralelaj frazpar-
-
-toj. Inter tiom kaj kiom do regas plena sintaksa korelativeco
+kunordigan rilaton: kunigo de du gramatike paralelaj frazpartoj. Inter tiom kaj kiom do regas plena sintaksa korelativeco
 
 (§15), ili ĉi tie formas korelativan duopon. Tial la uzado de
 
@@ -5404,43 +4279,26 @@ Se oni iom atente pristudas la Zamenhofajn ekzemplojn de
 
 ## 1. Kelkfoje la iom-vorto esprimas unualoke kvanton en
 
-metafora senco, kaj nur dualoke pere de tio la gradon. Tio kva-zaŭ dependas de la uzita verbo. Vidu kiel ekzemplojn la nu-
-
-merojn 2, 9, 12.
+metafora senco, kaj nur dualoke pere de tio la gradon. Tio kva-zaŭ dependas de la uzita verbo. Vidu kiel ekzemplojn la numerojn 2, 9, 12.
 
 2. En multaj frazoj la iom-vorto estus anstataŭigebla per
 
-iel-vorto. Ekz. en numeroj 1, 2, 3, 4, 6, 8-14. Sed, farinte la ŝanĝon, oni ne imagu al si, ke tio ne faras diferencon. Kontraŭe, estas mia firma konv, ke Zamenhof, kun sia sub-
+iel-vorto. Ekz. en numeroj 1, 2, 3, 4, 6, 8-14. Sed, farinte la ŝanĝon, oni ne imagu al si, ke tio ne faras diferencon. Kontraŭe, estas mia firma konv, ke Zamenhof, kun sia subtila sento por nuancoj, intence uzis la iom-vortojn en tiuj ĉi frazoj ĝuste por esprimi tian stilan nuancon.
 
-tila sento por nuancoj, intence uzis la iom-vortojn en tiuj ĉi frazoj ĝuste por esprimi tian stilan nuancon.
+Komparu ekz.: ”Kiom ili turmentis min!” kun ”Kiel ili turmentis min!” La objektiva, esenca enhavo de tiuj du frazoj
 
-Komparu ekz.: ”Kiom ili turmentis min!” kun ”Kiel ili tur-
-
-mentis min!” La objektiva, esenca enhavo de tiuj du frazoj
-
-estas la sama. Ambaŭ esprimas fortan gradon de turmentite-
-
-co. Sed tamen ili ne havas la saman subjektivan valoron, ili
+estas la sama. Ambaŭ esprimas fortan gradon de turmentiteco. Sed tamen ili ne havas la saman subjektivan valoron, ili
 
 elvokas en la menso de la aŭdanto (leganto) du diferencajn,
 
 
-DU MALSANOJ EN ESPERANTO
+apartajn bildojn. La unua akcentas la oftecon, la longan daŭron aŭ la ripetitecon de la turmentoj kaj per tio markas la
 
-
-apartajn bildojn. La unua akcentas la oftecon, la longan daŭ-
-
-ron aŭ la ripetitecon de la turmentoj kaj per tio markas la
-
-intensecon. La dua elvokas bildon pri la diverseco, la rafini-
-
-teco de la turmentoj, ĝi akcentas la manieron de turmenta do
+intensecon. La dua elvokas bildon pri la diverseco, la rafiniteco de la turmentoj, ĝi akcentas la manieron de turmenta do
 
 sed ankaŭ per tio markas la intensecon. (vidu §89) Faru la sam-an provon per ekz. 10: Kiom ajn mi provis forigi … , flanke de kiel ajn mi provis forigi …
 
-Tiun saman fenomenon oni renkontas ankaŭ ĉe la studa-
-
-do de aliaj lingvoj. Kelkfoje ili senesperigas la studanton. El propra sperto mi rememoras la saĝan respondon kiun iu
+Tiun saman fenomenon oni renkontas ankaŭ ĉe la studado de aliaj lingvoj. Kelkfoje ili senesperigas la studanton. El propra sperto mi rememoras la saĝan respondon kiun iu
 
 angla profesorino donis al mi je miaj plendoj kaj demandoj:
 
@@ -5448,67 +4306,41 @@ angla profesorino donis al mi je miaj plendoj kaj demandoj:
 
 ”Well, my dear Mr. de H., it all depends on what is in your
 
-mind!” (”tio tute dependas de tio, kion oni havas en sia men-
-
-so”), do de tio, kion la verkisto volas vortigi.
+mind!” (”tio tute dependas de tio, kion oni havas en sia menso”), do de tio, kion la verkisto volas vortigi.
 
 La gradesprimo ĉe verboj permesas la uzadon de ambaŭ
 
 rimedoj, ĝuste pro la karaktero de la verbo entute.
 
-Malpermeso de unu el ambaŭ rimedoj malriĉigus Espe-
+Malpermeso de unu el ambaŭ rimedoj malriĉigus Esperanton, ĉar forprenus la eblecon esprimi subtilajn nuancojn!
 
-ranton, ĉar forprenus la eblecon esprimi subtilajn nuancojn!
+3. En la frazoj 5, 7, eble ankaŭ en 16, 17, 18 kaj certe denove en la frazoj 19-26 la uzado de la iom-vortoj esprimas ne
 
-3. En la frazoj 5, 7, eble ankaŭ en 16, 17, 18 kaj certe de-
-
-nove en la frazoj 19-26 la uzado de la iom-vortoj esprimas ne
-
-stilan, sed gramatikan nuancon. La iom-vortoj tie havas limi-
-
-gan funkcion. (ĉi tie mi sentas la mankon de la vorto restrik-
+stilan, sed gramatikan nuancon. La iom-vortoj tie havas limigan funkcion. (ĉi tie mi sentas la mankon de la vorto restrik-
 
 tiva en Esp-o.) En tiu funkcio ili neniel estas anstataŭigeblaj per iel-vortoj. Tiu limiga funkcio signifas ke la amplekseco de iu ago estas malvastigita inter certaj limoj, ke la valideco de iu konstato, deklaro, eldiro ne estas sen rezervoj, sed ke ĝi
 
-validas nur en certa grado, nur povas aplikiĝi en specialaj kazoj, ke ĝi estas submetita al iaj plistriktigaj kondiĉoj. La nederlanda lingvo tiam uzas ”zover, voorz over, inzoverre, zo-
+validas nur en certa grado, nur povas aplikiĝi en specialaj kazoj, ke ĝi estas submetita al iaj plistriktigaj kondiĉoj. La nederlanda lingvo tiam uzas ”zover, voorz over, inzoverre, zoveel, voorzoveel”, la angla havas ”in so far as, as far as, so far as, in as much as”, la franca uzas (au) tant (que). Tre bonan
 
+ekzemplon ni trovas en Let. de Zam. II 202, eĉ kun parafrazo de Zamenhof mem:
 
-DU MALSANOJ EN ESPERANTO
-
-
-veel, voorzoveel”, la angla havas ”in so far as, as far as, so far as, in as much as”, la franca uzas (au) tant (que). Tre bonan
-
-ekzemplon ni trovas en Let. de Zam. II 202, eĉ kun parafra-
-
-zo de Zamenhof mem:
-
-”Ni aŭskultis la voĉon de Cart nur tiom same kiom ni aŭs-
-
-kultis la voĉojn de ĉiuj aliaj Esperantistoj; ni demandis oficiale la opinion de Cart nur en tia sama grado, en kiu ni deman-
+”Ni aŭskultis la voĉon de Cart nur tiom same kiom ni aŭskultis la voĉojn de ĉiuj aliaj Esperantistoj; ni demandis oficiale la opinion de Cart nur en tia sama grado, en kiu ni deman-
 
 dis la opinion de ĉiuj aliaj membroj.”
 
 §97
 
-La vorto kiom en sia limiga funkcio ĉiam troviĝas ĉe la kome-
+La vorto kiom en sia limiga funkcio ĉiam troviĝas ĉe la komeneo de limigaj subpropozicioj. (Inter krampoj: Kial tiuj pro-
 
-neo de limigaj subpropozicioj. (Inter krampoj: Kial tiuj pro-
-
-pozicioj ne estas menciitaj en Plena Gramatiko?) Tiuj kiom-
-
-oj do ĉiam havas konjunkcian funkcion. Ekzistas nur unu ka-
+pozicioj ne estas menciitaj en Plena Gramatiko?) Tiuj kiomoj do ĉiam havas konjunkcian funkcion. Ekzistas nur unu ka-
 
 zo en kiu tiu kiom ne estas sekvata de kompleta frazo, nome
 
 en la esprimo: kiom eble.
 
-Mi ripetu frazojn 19 kaj 21 el §94 kaj aldonu kelkajn Za-
+Mi ripetu frazojn 19 kaj 21 el §94 kaj aldonu kelkajn Zamenhofajn ekzemplojn pri la uzado de kiom eble.
 
-menhofajn ekzemplojn pri la uzado de kiom eble.
-
-1. Kiom mi nur havas la eblon, mi jam dissendis mem la li-
-
-brojn. (o. V. 477)
+1. Kiom mi nur havas la eblon, mi jam dissendis mem la librojn. (o. V. 477)
 
 2. Li devas — kiom tio estas ebla — uzi la lingvon kiom eble
 
@@ -5516,18 +4348,13 @@ plej neŭtralan. (Let. de Z. II 330)
 
 3. Ni decidis kiom eble ĉion fari mem. (F. K. 330)
 
-4. Mi persone volas kiom eble pli deteni min de korespon-
-
-dado kun s-ro Ostwald (sed skribos al li nur, se … ) (Let.
+4. Mi persone volas kiom eble pli deteni min de korespondado kun s-ro Ostwald (sed skribos al li nur, se … ) (Let.
 
 de Z. II 92)
 
 5. Estas dezirinde ke ĉiuj uzu la novajn vortojn kiom eble
 
 egale. (O. V. 429)
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 6. Mi kiom eble evitas tiun vorton. (Let. de Z. II 331)
@@ -5544,25 +4371,19 @@ Flanke de tiuj malmultaj ”kiom-eble”-oj (mi trovis ĝin nur
 
 en 12 lokoj) ekzistas en abunda amaso la esprimoj kun: kiel
 
-eble plej (rapide, baldaŭ, granda, etc.). Mi indikas nur kelkajn trovlokojn: en Fund. Krest. pĝ 9, 65, 112, 113, 195, 245, 308
+eble plej (rapide, baldaŭ, granda, etc.). Mi indikas nur kelkajn trovlokojn: en Fund. Krest. pĝ 9, 65, 112, 113, 195, 245,
 
-ktp.; en Or. Verk. i.a. sur pĝ 432, 437 (eĉ 4-foje), 487
+ktp.; en Or. Verk. i.a. sur pĝ 432, 437 (eĉ 4-foje),
 
 El la 8 cititaj ekzemploj klare montriĝas tamen ke la du
 
 esprimoj ne estas samvaloraj.
 
-Kiom eble ĉiam havas la limigan funkcion, kiun ni pripa-
+Kiom eble ĉiam havas la limigan funkcion, kiun ni priparolis en §96, 3. Tion tre klare montras la dua ekzemplo de tiu ĉi paragrafo, kie ni vidas ke la esprimo kiom eble devas esti rigardata kiel elipso de: kiom tio estas ebla.
 
-rolis en §96, 3. Tion tre klare montras la dua ekzemplo de tiu ĉi paragrafo, kie ni vidas ke la esprimo kiom eble devas esti rigardata kiel elipso de: kiom tio estas ebla.
+Estas do nerekomendinde instrui — kiel tio kelkfoje okazas — ke estas indiferente uzi kiel eble plej rapide aŭ kiom eble rapide. Ne nur ĉar Zamenhof neniam uzis la lastan esprimon
 
-Estas do nerekomendinde instrui — kiel tio kelkfoje oka-
-
-zas — ke estas indiferente uzi kiel eble plej rapide aŭ kiom eble rapide. Ne nur ĉar Zamenhof neniam uzis la lastan esprimon
-
-en tiu formo, sed ankaŭ kaj precipe ĉar la du esprimoj ne ha-
-
-vas la saman signifon.
+en tiu formo, sed ankaŭ kaj precipe ĉar la du esprimoj ne havas la saman signifon.
 
 ”Venu kiel eble plej rapide” estas tute pozitiva ordono; la
 
@@ -5577,14 +4398,9 @@ la signifo: Venu rapide, kiom tio estas ebla. La ordonanto do
 ne estas certa pri tiu ebleco, li scias ke ĉiaj cirkonstancoj povas malhelpi rapidan venon.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 Ankaŭ en ĉi tiu kazo Zamenhof esprimis per kiom eble
 
-specialan nuancon, kiu estas ne nur stila, sed ankaŭ grama-
-
-tika. Nome: kiom estas ĉi tie adverbo de grado, sed kun spe-
+specialan nuancon, kiu estas ne nur stila, sed ankaŭ gramatika. Nome: kiom estas ĉi tie adverbo de grado, sed kun spe-
 
 ciala, nome limiga, funkcio.
 
@@ -5594,23 +4410,15 @@ TIOM MULTE
 
 Kvare, ni renkontas en la Zamenhofa literaturo la vortojn
 
-tiom kaj kiom en kombino kun multe aŭ (kelkfoje kun) mal-
+tiom kaj kiom en kombino kun multe aŭ (kelkfoje kun) malmulte. Ekzemploj:
 
-multe. Ekzemploj:
+1. Mi scias kiom multe da malĝojo faris al vi kelkaj intrigantoj. (Let. de Z. II 60)
 
-1. Mi scias kiom multe da malĝojo faris al vi kelkaj intrigan-
-
-toj. (Let. de Z. II 60)
-
-2 …. la aferon, kiu englutis jam tiom multe da seriozaj la-
-
-boroj. (O. V. 425)
+2 …. la aferon, kiu englutis jam tiom multe da seriozaj laboroj. (O. V. 425)
 
 3. Kiom ajn multe vi laboros kaj elspezos … (Let. de Z. II 285) 4. Ne ĉiuj scias, kiom multe nia afero ŝuldas al nia kara fo-ririnto. (Let. de Z. II 342)
 
-5. Oni legas tiom multe pri bonfarado kaj tiom multe da sen-
-
-kulpaj versoj. (Fab. III 40)
+5. Oni legas tiom multe pri bonfarado kaj tiom multe da senkulpaj versoj. (Fab. III 40)
 
 6. tiom multe da tempo. (Fab. III 55)
 
@@ -5627,9 +4435,6 @@ kulpaj versoj. (Fab. III 40)
 11. Kiom ajn multe la mondo asertos, ke ŝi estas sentaŭga.
 
 (Fab. III 78)
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 12. Kiom multe la lernanto devas ekzerciĝadi. (F. K.289)
@@ -5654,13 +4459,9 @@ III 65)
 
 (Fab. II 2)
 
-Tiuj ĉi vortduopoj liveras al ni sufiĉe interesan gramati-
+Tiuj ĉi vortduopoj liveras al ni sufiĉe interesan gramatikaĵon. Juĝante laŭ la ekstera aspekto, oni diris: tiom kaj kiom estas ĉi tie adverboj de grado kiu determinas la vorton multe, do kiuj esprimas certan gradon de multeco. Sed — ĉe dua
 
-kaĵon. Juĝante laŭ la ekstera aspekto, oni diris: tiom kaj kiom estas ĉi tie adverboj de grado kiu determinas la vorton multe, do kiuj esprimas certan gradon de multeco. Sed — ĉe dua
-
-aŭ tria pripenso — oni baldaŭ faras la malkovron ke oni po-
-
-vas ellasi la vorton multe sen ia ajn katastrofa konsekvenco.
+aŭ tria pripenso — oni baldaŭ faras la malkovron ke oni povas ellasi la vorton multe sen ia ajn katastrofa konsekvenco.
 
 Provu nur:
 
@@ -5674,16 +4475,11 @@ Provu nur:
 
 Estas do klare ke inter kiom (tiom) kaj multe ne ekzistas la
 
-rilato de servanto kaj mastro, de determinanto kaj determi-
-
-nato, ke la kiom’oj ne estas subordigitaj al la multe’oj.
+rilato de servanto kaj mastro, de determinanto kaj determinato, ke la kiom’oj ne estas subordigitaj al la multe’oj.
 
 Kiel ĉi tiu stranga fenomeno estas klarigebla?
 
 La solvo ŝajnas al mi simpla: En la tabelo de korelativoj
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 tiom kaj kiom indikas aŭ demandas je nedifinitaj kvantoj. En
@@ -5704,9 +4500,7 @@ Sed dua sekvo estas ke la aldono de multe al tiom aŭ
 
 kiom, en la lingva sento de la uzanto, fariĝas preskaŭ tute
 
-pleonasma. El gramatika, teoria vidpunkto ĝi ne estas tute su-
-
-perflua, kiel montris ekz. 14 kun tiom malmulte, sed tio lasta estas tiel granda escepto (ĝi estas la sola ekzemplo kiun mi
+pleonasma. El gramatika, teoria vidpunkto ĝi ne estas tute superflua, kiel montris ekz. 14 kun tiom malmulte, sed tio lasta estas tiel granda escepto (ĝi estas la sola ekzemplo kiun mi
 
 trovis), ke mi sen ia skrupulo povas paroli pri: la pleonasma
 
@@ -5728,22 +4522,14 @@ kvant-adverboj ĉe multe, sed ili per si mem esprimas gradon
 
 aŭ kvanton de multeco.
 
-Zamenhof uzis ankaŭ la alian rimedon: Kiel multe li pen-
-
-sadis pri Anjo (Fab. III 59). Tio do estas ekvivalento de: Kiom li pensadis pri Anjo, kaj tio lasta povas esti farata pli emfaza 124
-
-DU MALSANOJ EN ESPERANTO
+Zamenhof uzis ankaŭ la alian rimedon: Kiel multe li pensadis pri Anjo (Fab. III 59). Tio do estas ekvivalento de: Kiom li pensadis pri Anjo, kaj tio lasta povas esti farata pli emfaza
 
 
-jene: Kiom multe li pensadis pri Anjo. Sed oni nepre ne kon-
-
-kludu ke ”do” kiel estas kiom, ĉar la traktita fenomeno estas
+jene: Kiom multe li pensadis pri Anjo. Sed oni nepre ne konkludu ke ”do” kiel estas kiom, ĉar la traktita fenomeno estas
 
 aparta, izolita kazo, rezultanta el la karaktero kaj signifo de tiom kaj kiom.
 
-ĉi tiuj tiom multe kaj kiom multe povas simple esti rigar-
-
-dataj kiel leksikonaj unuoj kaj oni gardu sntraŭ la jam farita miskompreno uzi ilin kiel argumenton por la tiom-kiom-
+ĉi tiuj tiom multe kaj kiom multe povas simple esti rigardataj kiel leksikonaj unuoj kaj oni gardu sntraŭ la jam farita miskompreno uzi ilin kiel argumenton por la tiom-kiom-
 
 ismo!
 
@@ -5755,13 +4541,9 @@ En la antaŭa paragrafo ni jam rimarkigis ke la vorto tiom en
 
 si mem estas nedifinita. Tial povas okazi ke por esprimi la
 
-ideon ”la saman kvanton” oni kelkfoje sentas la inklinon pli-
+ideon ”la saman kvanton” oni kelkfoje sentas la inklinon plikonkretigi ĝian enhavon per aldono de la vorto same. Ekz.:
 
-konkretigi ĝian enhavon per aldono de la vorto same. Ekz.:
-
-1. Antaŭ ĉio li penis per aparta alfabeto laŭ 33 diversaj lin-
-
-gvoj en tiom same da ŝlosiloj solvi la problemon por … (F.
+1. Antaŭ ĉio li penis per aparta alfabeto laŭ 33 diversaj lingvoj en tiom same da ŝlosiloj solvi la problemon por … (F.
 
 K. 263)
 
@@ -5779,12 +4561,7 @@ Por tiu ĉi uzado (ĝi estas tre malofta; la 6 ekzemploj de tiu
 
 ĉi paragrafo estas la solaj kiujn mi trovis), validas plej-grandparte la samaj konsideroj kiel por tiom multe (malmulte).
 
-Oni povus sen iu ajn malprofito por la senco ellasi la vor-
-
-ton same, kaj — ankaŭ tio estas pruvanta provo por la vali-
-
-
-DU MALSANOJ EN ESPERANTO
+Oni povus sen iu ajn malprofito por la senco ellasi la vorton same, kaj — ankaŭ tio estas pruvanta provo por la vali-
 
 
 deco de niaj rimarkigoj — en ĉiuj kvar ekzemploj oni povus
@@ -5801,17 +4578,11 @@ de ia verbo en metafora aŭ en gradesprima senco (eble en
 
 ekz. 3 ĝi jam estas gradesprima!).
 
-5. Ni aŭskultis la voĉon de Cart nur tiom same kiom ni aŭs-
+5. Ni aŭskultis la voĉon de Cart nur tiom same kiom ni aŭskultis la voĉon de ĉiuj aliaj. (L. de Z. 202)
 
-kultis la voĉon de ĉiuj aliaj. (L. de Z. 202)
+6. … zorgante pri vi tiom same malmulte KIEL pri aliaj subfosantoj (L. de Z. 180)
 
-6. … zorgante pri vi tiom same malmulte KIEL pri aliaj sub-
-
-fosantoj (L. de Z. 180)
-
-Ankaŭ tiuj maloftaj tiom same kazoj estas ne pli ol izoli-
-
-taj leksikonaĵoj, rigardeblaj kiel unuoj, kiel tradukoj de la na-cilingvaj evenveel, evenzeer, ebensoviel, autant, as much.
+Ankaŭ tiuj maloftaj tiom same kazoj estas ne pli ol izolitaj leksikonaĵoj, rigardeblaj kiel unuoj, kiel tradukoj de la na-cilingvaj evenveel, evenzeer, ebensoviel, autant, as much.
 
 §100
 
@@ -5830,9 +4601,6 @@ libroj. (F. K. 111)
 3. Letero iris tiom same longe KIEL hodiaŭ. (F. K. 221)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 4. Tiom same malbone KIEL longedaŭran kuntuŝiĝon kun la
 
 aero, ĝi elportas ankaŭ … F. K. 232)
@@ -5849,23 +4617,17 @@ bone la grandlitere presitajn KIEL-ojn en frazo 18 de §98, en
 
 frazoj 3, 4 kaj 6 de §99, kaj en frazoj 2, 3 kaj 4 de ĉi tiu paragrafo.
 
-Gravuru en vian cerbon: Zamenhof ne uzis tie yiom-
-
-kiom, sed tiom-KIEL. Tio estas forta bato kontraŭ tiuj logiku-
+Gravuru en vian cerbon: Zamenhof ne uzis tie yiomkiom, sed tiom-KIEL. Tio estas forta bato kontraŭ tiuj logiku-
 
 loj kiuj logikumas: ”Post tia nepre sekvu kia”, aŭ ”tiom povas logike nur esti sekvata de kiom”.
 
-Sed tiuj ĉi ekzemploj denove pruvas ke Zamenhof mala-
-
-tentas tian logikon (!) rimadon! Denove, ĉar ni rimarkis tion
+Sed tiuj ĉi ekzemploj denove pruvas ke Zamenhof malatentas tian logikon (!) rimadon! Denove, ĉar ni rimarkis tion
 
 jam antaŭe kaj priparolis ĝin en §§14-24, 31-33, k. a.
 
 Tie ni vidis ke Zamenhof neniam uzas la vorton kia kiel
 
-rimedon por enkonduki ian apartan vorton aŭ frazeron, far-
-
-ante el ili komplementon, ĉu suplementon de substantivo,
+rimedon por enkonduki ian apartan vorton aŭ frazeron, farante el ili komplementon, ĉu suplementon de substantivo,
 
 adjektivo aŭ adverbo, ĉu pli memstaran adjekton. La kaŭzo
 
@@ -5877,17 +4639,10 @@ Kaj nun ni renkontas similan fenomenon. La ekzemploj
 
 de §93 (1,4, 5, 6), de §94 (16-26), de §98 (15-17) kaj de §99 (5) pru vas ke Zamenhof donis al kiom (kune kun ĝia adverba
 
-karaktero) klaran konjunkcian valoron. En ĉiuj menciitaj fra-
-
-zoj ĝi ja enkondukas kompletan subpropozicion.
+karaktero) klaran konjunkcian valoron. En ĉiuj menciitaj frazoj ĝi ja enkondukas kompletan subpropozicion.
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-Sed se sekvas ne ia propozicio, sed ia frazparto, Zamen-
-
-hof elektas KIEL eĉ malgraŭ la antaŭiranta tiom.
+Sed se sekvas ne ia propozicio, sed ia frazparto, Zamenhof elektas KIEL eĉ malgraŭ la antaŭiranta tiom.
 
 Kompreneble ekzistas ĉi tie kazoj, kiuj estas kvazaŭ ĝuste
 
@@ -5909,13 +4664,9 @@ ke tiu ĉi lasta neniam farus al li tiom da malbono kiom lia
 
 samgenta pugno. (O. V. 346)
 
-Rimarku ke en ĉiuj tri frazoj oni bezonas nur ripeti la ĉef-
+Rimarku ke en ĉiuj tri frazoj oni bezonas nur ripeti la ĉefpropozician verbon por ekhavi propozicion de la plej simpla
 
-propozician verbon por ekhavi propozicion de la plej simpla
-
-konstruo, nome: subjekto + verba predikato. (1: kiom la de-
-
-legitoj estis vidintaj; 2: kiom mi povas, 3 kiom lia samgentano farus.)
+konstruo, nome: subjekto + verba predikato. (1: kiom la delegitoj estis vidintaj; 2: kiom mi povas, 3 kiom lia samgentano farus.)
 
 ĉi tie ni do havas la plej simplan tipon de elipseco, eĉ …
 
@@ -5933,21 +4684,12 @@ Kontraŭe, la uzado de tiom-KIEL en §98, 18, §99, 3 kaj 4,
 
 kompreneble nur de la vidpunkto de la aŭtoro mem. Sed la
 
-aliaj KIEL-uzadoj, do en frazoj ne ”kompletigeblaj” per simp-
-
-la ripeto de la jam uzita verbo, klare montras la Zamenhofan
+aliaj KIEL-uzadoj, do en frazoj ne ”kompletigeblaj” per simpla ripeto de la jam uzita verbo, klare montras la Zamenhofan
 
 
-DU MALSANOJ EN ESPERANTO
+tendencon ne uzi la vorton kiom por enduki apartan frazparton, do kvazaŭ prepozicie.
 
-
-tendencon ne uzi la vorton kiom por enduki apartan frazpar-
-
-ton, do kvazaŭ prepozicie.
-
-Frazo kiel: ”En tiu ĉi jaro ne pluvis tiom multe kiom last-
-
-jare”, kiun mi trovis en iu ekzamena tasko estus nepensebla
+Frazo kiel: ”En tiu ĉi jaro ne pluvis tiom multe kiom lastjare”, kiun mi trovis en iu ekzamena tasko estus nepensebla
 
 en la Zamenhofa lingvo. (vidu §100,3.)
 
@@ -5955,9 +4697,7 @@ La kaŭzo fakte estas la sama kiel ĉe la vorto kia.
 
 Al KIEL Zamenhof donis tre vastan, tre ĝeneralan, do tre
 
-malprecizan kaj maldifinitan sencon. Tial ĝi taŭgas eĉ en pre-
-
-pozicia funkcio por enkonduki komparojn laŭ plej ĝenerala
+malprecizan kaj maldifinitan sencon. Tial ĝi taŭgas eĉ en prepozicia funkcio por enkonduki komparojn laŭ plej ĝenerala
 
 maniero sen troa precizigo de la esprimota rilato. Sed laŭ la
 
@@ -5967,41 +4707,28 @@ tiun ”malplenecon de signifo”, kiu estas necesa kondiĉo por
 
 fari ĝin nura ”kunliganto”. Oni povus diri: la ideo de kvanto, de grado aŭ de limiganta grado estas en kiom tro drasta, tro
 
-sentebla, tro manifesta, tro evidenta, tro sintruda por uzi ĝin en prepozicia funkcio. Aŭ per pli teknika termino: Kiom havas tro grandan semantikan individuecon por ebligi ĝian prepo-
-
-zician uzadon.
+sentebla, tro manifesta, tro evidenta, tro sintruda por uzi ĝin en prepozicia funkcio. Aŭ per pli teknika termino: Kiom havas tro grandan semantikan individuecon por ebligi ĝian prepozician uzadon.
 
 Konkludo: La tiom-kiom-ismo estas rekta peko kontraŭ
 
 la Zamenhofa uzado; tiu uzado estas neniel ne konsekvenca
 
-kaj kaprica, sed sekvas konscie tre difinitan modelon, pro taŭ-
-
-gaj, ĝeneralaj sintaksaj motivoj.
+kaj kaprica, sed sekvas konscie tre difinitan modelon, pro taŭgaj, ĝeneralaj sintaksaj motivoj.
 
 §101
 
-Regule Zamenhof uzis tiom kaj kiom ĉe adjektivoj aŭ adver-
-
-boj, se tiuj jam estas determinitaj per la adverbo pli. Ekzemploj: 1. Kiel bela estas via amo, kiom pli bona estas via amo ol
+Regule Zamenhof uzis tiom kaj kiom ĉe adjektivoj aŭ adverboj, se tiuj jam estas determinitaj per la adverbo pli. Ekzemploj: 1. Kiel bela estas via amo, kiom pli bona estas via amo ol
 
 vino. (Alta Kanto 4: 10)
 
 2. Oni poste tiom pli senzorge povas ripozi. (F. K. 47)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-3. ĉe la sensignifeco de la simptomoj, tiom pli granda aten-
-
-to devas esti turnata al la plendoj de la paciento. (F. K.
+3. ĉe la sensignifeco de la simptomoj, tiom pli granda atento devas esti turnata al la plendoj de la paciento. (F. K.
 
 230)
 
-4. (Tion mi eksentu nur iom pli malfrue.) Sed tiom pli pro-
-
-funde. (Ifig. 53)
+4. (Tion mi eksentu nur iom pli malfrue.) Sed tiom pli profunde. (Ifig. 53)
 
 5. (ĉu tio ne naskas kompaton?) Kaj tiom pli en mia kor’.
 
@@ -6021,9 +4748,7 @@ estus la malkontenteco, se mi … (L. de Z. I 49)
 
 Christen ŝajnas al mi ne tre fidinda. (id. 258)
 
-10. Tio kaŭzis konfuzon, tiom pli ke samtempe kelkaj perso-
-
-noj … (id. 106)
+10. Tio kaŭzis konfuzon, tiom pli ke samtempe kelkaj personoj … (id. 106)
 
 11. Estus eble afero tro danĝera, tiom pli, ke la … (id. 316)
 
@@ -6040,9 +4765,6 @@ escepte de malsanoj de okuloj. (O. V. 486)
 15. La verko estas tre utila, tiom pli ke la eldonanto volas ĝin disvastigi en granda nombro. (O. V. 499)
 
 Ankaŭ en ĉi tiu kazo Zamenhof adaptis sian Esperanton
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 al la lingvo-kutimoj de la gravaj kulturaj lingvoj. Tie oni ja an-kaŭ renkontas kvanto-vortojn ĉe la t. n. komparativoj. Oni
@@ -6073,27 +4795,15 @@ difinita kvanto. La uzado kun aliaj adjektivoj (kiom pli bona
 
 k. s.) povus esti atribuata al analogio, kiu ja estas la plej forta lingvoformanta faktoro.
 
-Tamen mi kredas ke en ĉi tiu kazo ni devas fosi pli pro-
+Tamen mi kredas ke en ĉi tiu kazo ni devas fosi pli profunden. Tial mi imputas pli da valoro al dua motivo:
 
-funden. Tial mi imputas pli da valoro al dua motivo:
-
-2. En §83 ni difinis gradindikon kiel la fiksadon de la re-
-
-lativa pozicio de io en ia ”supozita skalo aŭ ŝtuparo”. Nu, la gradindika vorto ”pli” jam indikas la pozicion sur tia ŝtuparo, pozicion pli altan ol tiu de io alia. Kaj aldonado de dua gradesprimilo fiksas tiun pozicion ankoraŭ pli firme, eĉ tiel, ke la tuta proceso perdas sian relativan karakteron. Alimaniere: Tia gradesprimo en dua instanco tiel konkretigas, ke la parolanto
+2. En §83 ni difinis gradindikon kiel la fiksadon de la relativa pozicio de io en ia ”supozita skalo aŭ ŝtuparo”. Nu, la gradindika vorto ”pli” jam indikas la pozicion sur tia ŝtuparo, pozicion pli altan ol tiu de io alia. Kaj aldonado de dua gradesprimilo fiksas tiun pozicion ankoraŭ pli firme, eĉ tiel, ke la tuta proceso perdas sian relativan karakteron. Alimaniere: Tia gradesprimo en dua instanco tiel konkretigas, ke la parolanto
 
 en sia menso transiras de la relativa sfero en la absolutan. Por muzikamantoj: La dua grad-vorto estas la dieso kiu transpo-nas la melodion en alian tonskalon.
 
-Tio kaŭzas ke la uzanto sentas sin kvazaŭ li estus mezu-
+Tio kaŭzas ke la uzanto sentas sin kvazaŭ li estus mezuranta. Vidu la unuan ekzemplon (el Alta Kanto 4: 10): ”Vino
 
-
-DU MALSANOJ EN ESPERANTO
-
-
-ranta. Vidu la unuan ekzemplon (el Alta Kanto 4: 10): ”Vino
-
-estas bona, via amo pli bona”; per tio tiuj du havas siajn po-
-
-ziciojn indikitaj. Kaj nun la ekstaza amanto kvazaŭ mezuras la distancon inter tiuj du pozicioj en la skalo de boneco, ”Kiom
+estas bona, via amo pli bona”; per tio tiuj du havas siajn poziciojn indikitaj. Kaj nun la ekstaza amanto kvazaŭ mezuras la distancon inter tiuj du pozicioj en la skalo de boneco, ”Kiom
 
 pli bona …”!
 
@@ -6107,13 +4817,9 @@ ni novan apartan kazon, de ĉiuj lingvoj distingitan dis-de la
 
 gradesprimo en unua instanco.
 
-Tial oni povas nur miri pri la supraĵemo per kiu iaj, kiom-
+Tial oni povas nur miri pri la supraĵemo per kiu iaj, kiombatalantoj volas ”logike” pruvi ke la uzado de ”tiom pli gran-
 
-batalantoj volas ”logike” pruvi ke la uzado de ”tiom pli gran-
-
-da” pravigas la uzadon de ”tiom granda kiom”. Tre mankha-
-
-va estas la rezono kiun ni menciis en §72 sub. 7. La aŭtoro
+da” pravigas la uzadon de ”tiom granda kiom”. Tre mankhava estas la rezono kiun ni menciis en §72 sub. 7. La aŭtoro
 
 bazas sin sur ekzemplo kiu esprimas nur la kvanton: ”Kiom pli
 
@@ -6121,9 +4827,7 @@ alta ĝi estas? i estas 10 metrojn pli alta”.
 
 Tio havas nenian rilaton kun gradesprimo!
 
-Poste li saltas de ”kiom pli alta” al ”kiom alta”, kaj konklu-
-
-das, ke tio estas sufiĉa pruvo, ke la iom-korelativoj ”logike”
+Poste li saltas de ”kiom pli alta” al ”kiom alta”, kaj konkludas, ke tio estas sufiĉa pruvo, ke la iom-korelativoj ”logike”
 
 havas signifon de grado.
 
@@ -6134,24 +4838,17 @@ kiel la iel-vortoj, sed oni ne povas pruvi tion per tia riskoplena
 ”salto mortale”!
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 §103
 
 Ankoraŭ du rimarkigoj:
 
 1. En §101, 7 ni trovas tiom pli post ju pli. ŝajnas al mi pli bone uzi en tiaj frazoj: des pli, kvankam tiom pli estas certe defendebla.
 
-2. En la frazoj 5, 7, 9-15 oni povus plivastigi la solstaran-
-
-tan pli per la vorto multe (kp. §§98, 99).
+2. En la frazoj 5, 7, 9-15 oni povus plivastigi la solstarantan pli per la vorto multe (kp. §§98, 99).
 
 3. La esprimo tiom … ke ĉe la kapo de iu subpropozicio
 
-havas tre apartan funkcion. Name, ĝi anoncas ke la subpro-
-
-pozicio mencios kaŭzon aŭ motivon (ofte surprizan aŭ neaten-
+havas tre apartan funkcion. Name, ĝi anoncas ke la subpropozicio mencios kaŭzon aŭ motivon (ofte surprizan aŭ neaten-
 
 ditan) de la ĉefpropozicia ago. La gradesprima valoro de tiom
 
@@ -6167,9 +4864,7 @@ por distili el ĝi ĝeneralan regulon.
 
 §104
 
-Nun ni venas al nia lasta punkto: Ekzistas kelkaj, tre malmul-
-
-taj frazoj, en kiuj Zamenhof uzas tiom aŭ kiom kiel adverbojn
+Nun ni venas al nia lasta punkto: Ekzistas kelkaj, tre malmultaj frazoj, en kiuj Zamenhof uzas tiom aŭ kiom kiel adverbojn
 
 de grado rekte determinantajn adjektivojn aŭ adverbojn.
 
@@ -6184,18 +4879,11 @@ lastaj progresoj, estas apenaŭ komencata. (L. de Z. I 323)
 tiom malfacile laboris … (L. de Z. II 53)
 
 
-DU MALSANOJ EN ESPERANTO
-
-
-3. … Esperantistoj, kiom ajn grandaj estas iliaj personaj pre-
-
-stiĝo kaj aŭtoritato. (L. de Z. II 142)
+3. … Esperantistoj, kiom ajn grandaj estas iliaj personaj prestiĝo kaj aŭtoritato. (L. de Z. II 142)
 
 4. Estu tiom feliĉa, kiom vi estos kompatema. (Rab. 137)
 
-5. Se tamen, kontraŭ ĉia atendo, la kongreso estos tiom blin-
-
-digita, ke … (F. K. 304, kp. 300)
+5. Se tamen, kontraŭ ĉia atendo, la kongreso estos tiom blindigita, ke … (F. K. 304, kp. 300)
 
 6. Ilia lingvo prezentas ion tiom (kursive presita en la origi-nalo!) perfektan, ke … (F. K. 312)
 
@@ -6217,34 +4905,22 @@ Regule tamen estas: tiel multaj kaj kiel multaj (vidu ekz.
 
 Psalmoj 3, 25, 104)
 
-Mi nepre atentigas miajn legantojn pri la ekstreme gran-
-
-da malofteco de tiaj ekzemploj. Ekzistas diversaj libroj de Zamenhof, en kiuj mi eĉ ne trovis unu solan ekzemplon (Mar-
+Mi nepre atentigas miajn legantojn pri la ekstreme granda malofteco de tiaj ekzemploj. Ekzistas diversaj libroj de Zamenhof, en kiuj mi eĉ ne trovis unu solan ekzemplon (Mar-
 
 ta, Revizoro, Ifigenio, Maln. Test.), nur unufoje mi renkontis ĉi tiun kazon en Rabistoj, en Fabeloj II, en Fabeloj III, en Leteroj de Z. I; dufoje en Let. de Z. II, kaj en Fund. Krest.
 
-Ili preskaŭ dronas en la maro de miloj da tiel-oj en simi-
+Ili preskaŭ dronas en la maro de miloj da tiel-oj en simila pozicio. Malgraŭ tio mi ne kredas ke Zamenhof uzis ilin
 
-la pozicio. Malgraŭ tio mi ne kredas ke Zamenhof uzis ilin
-
-pro manko je sinkritiko, aŭ eĉ simple pro ”forglito de la plu-
-
-mo”. Tio ja ne estas ebla! uste pro sia malofteco ili estas tiel frapaj ke ili kvazaŭ ”saltas en la okulon”, kaj do certe estus el-134
-
-DU MALSANOJ EN ESPERANTO
+pro manko je sinkritiko, aŭ eĉ simple pro ”forglito de la plumo”. Tio ja ne estas ebla! uste pro sia malofteco ili estas tiel frapaj ke ili kvazaŭ ”saltas en la okulon”, kaj do certe estus el-134
 
 
-kribritaj ĉe eĉ tre supraĵa tralegado aŭ korektado. Ne, Zamen-
-
-hof ne eraris kaj ankaŭ ne estis devigita de ia logiko, ”kiu estis pli potenco ol lia propra modelo”. (vidu • 92)
+kribritaj ĉe eĉ tre supraĵa tralegado aŭ korektado. Ne, Zamenhof ne eraris kaj ankaŭ ne estis devigita de ia logiko, ”kiu estis pli potenco ol lia propra modelo”. (vidu • 92)
 
 Sed estas inverse!
 
 uste tiu ekstrema malofteco estis por Zamenhof rimedo
 
-por atingi ian deziritan stilan nuancon, kiun li opiniis nece-
-
-sa. Plej ofte tio estas la deziro uzi formon tre emfazan, ekz. en la n-roj 1, 3, 5, 6; komparu tiel blindigitan sur pĝ 300 de F. K.
+por atingi ian deziritan stilan nuancon, kiun li opiniis necesa. Plej ofte tio estas la deziro uzi formon tre emfazan, ekz. en la n-roj 1, 3, 5, 6; komparu tiel blindigitan sur pĝ 300 de F. K.
 
 kun: ”Se tamen, kontraŭ ĉia atendo, … tiom blindigita —” sur
 
@@ -6254,17 +4930,13 @@ En ekzemplo 2 ni povas sendube konstati la influon de
 
 tiom multe, krom la deziro emfazi plej forte. Influo de tiom
 
-multe verŝajne ankaŭ estas la kaŭzo por la uzado de la mal-
-
-ofta tiom multaj, kiu povus esti anstataŭigata per tiom multe
+multe verŝajne ankaŭ estas la kaŭzo por la uzado de la malofta tiom multaj, kiu povus esti anstataŭigata per tiom multe
 
 da.
 
 En ekz. 4, 7, 8 la afero estas iom alia.
 
-Frazo 4: ”Estu tiom feliĉa, kiom vi estos kompatema” es-
-
-tas parolita al tre senkompata homo. La parolinto, petite doni sian benon, plenumas tiun peton, tamen faras la benon dependa de la estonta kompatemo de la rabisto. Kiom do havas
+Frazo 4: ”Estu tiom feliĉa, kiom vi estos kompatema” estas parolita al tre senkompata homo. La parolinto, petite doni sian benon, plenumas tiun peton, tamen faras la benon dependa de la estonta kompatemo de la rabisto. Kiom do havas
 
 la ”limigan funkcion” de §96, 3 kaj §97. (komparu §94-14)
 
@@ -6276,40 +4948,21 @@ propozicio propre ne rilatas strikte al ”feliĉa”, sed la tuta predikato ”
 
 en §94, kiel n-ro 27.
 
-Evidente estas ĉiuokaze ke ĝi esprimas specialan nuan-
+Evidente estas ĉiuokaze ke ĝi esprimas specialan nuancon!
 
-con!
-
-Limigan nuancon ni ankaŭ trovas en n-roj 7 kaj 8. Aten-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-tu ke en n-ro 7 ne estas parolo pro efektiva alteco. En n-roj
+Limigan nuancon ni ankaŭ trovas en n-roj 7 kaj 8. Atentu ke en n-ro 7 ne estas parolo pro efektiva alteco. En n-roj
 
 5 kaj 8 verŝajne la fakto, ke ”blindigita” kaj ”prilumitaj” estas participoj, do de-verb-aĵoj, ludas ankaŭ rolon.
 
-Zamenhof estis plene konscia ke ofta uzado de tiu rime-
-
-do forprenus ĝian frapecon kaj saĝe li limigis sin je tiu kon-
+Zamenhof estis plene konscia ke ofta uzado de tiu rimedo forprenus ĝian frapecon kaj saĝe li limigis sin je tiu kon-
 
 statita maloftegeco. Tiu estu averto por tiuj personoj, kiuj tute laŭ kaprico uzas jen tiel-, jen tiom-formojn laŭ la ”inspiro” de la momento.
 
-ĉar tio estas unu el la plej fatalaj sekvoj de la ”kiel-kiom-
+ĉar tio estas unu el la plej fatalaj sekvoj de la ”kiel-kiommilito”, ke multaj, tre multaj, tiris el ĝi la solan konkludon:
 
-milito”, ke multaj, tre multaj, tiris el ĝi la solan konkludon:
+”Estas tute indiferente kion uzi, ĉu tiom-oj, ĉu tiel-oj, ĉar Zamenhof mem agis same!” Klare ni povas konstati tion en la Esperanto-literaturo de post proks. 1937. Kaj tiel kreskas la dan-
 
-”Estas tute indiferente kion uzi, ĉu tiom-oj, ĉu tiel-oj, ĉar Zamenhof mem agis same!” Klare ni povas konstati tion en la Es-
-
-peranto-literaturo de post proks. 1937. Kaj tiel kreskas la dan-
-
-ĝero ke la posta generacio ne plu povos distingi puran Espe-
-
-ranton disde fuŝita, malriĉigita.
-
-
-DU MALSANOJ EN ESPERANTO
+ĝero ke la posta generacio ne plu povos distingi puran Esperanton disde fuŝita, malriĉigita.
 
 
 XX
@@ -6318,23 +4971,17 @@ KONKLUDOJ KAJ FINO
 
 §105
 
-En §40 mi povis kapti la Zamenhofan uzadon de tia-kia, tia-
-
-kiu kaj tia-kiel en kelkaj simplaj reguloj.
+En §40 mi povis kapti la Zamenhofan uzadon de tia-kia, tiakiu kaj tia-kiel en kelkaj simplaj reguloj.
 
 Provante la samon por la uzado de tiel, kiel, tiom, kiom,
 
-en gradindika funkcio, la reguloj ne povas esti tiel simplaj, sed oni ne forgesu ke por komencantoj parto el ili jam estas sufi-
-
-ĉa. Unu averto iru antaŭe: Post §§94-104, kun iliaj multaj ilustrantaj, Zamenhofaj ekzemploj supraĵa studanto povus senti
+en gradindika funkcio, la reguloj ne povas esti tiel simplaj, sed oni ne forgesu ke por komencantoj parto el ili jam estas sufiĉa. Unu averto iru antaŭe: Post §§94-104, kun iliaj multaj ilustrantaj, Zamenhofaj ekzemploj supraĵa studanto povus senti
 
 la inklinon konkludi ke la Zamenhofa uzado de tiom kaj kiom
 
 estas tre abunda. Sed la malo estas vera. Oni povas ofte legi
 
-tutajn sinsekvajn paĝojn sen renkontado kun iaj tiom-kiom-
-
-aĵoj!
+tutajn sinsekvajn paĝojn sen renkontado kun iaj tiom-kiomaĵoj!
 
 Por indiki gradojn Zamenhof agis laŭ jenaj principoj: Oni
 
@@ -6361,9 +5008,6 @@ sen ia ajn rilato al la maniero de agado: la iom-serion (§§
 (efektiva aŭ nur sentata) bezono, esti pliprecizigataj aŭ
 
 
-DU MALSANOJ EN ESPERANTO
-
-
 pliakcentataj per multe aŭ same. (§§ 98-99) Paralele oni
 
 do havas:
@@ -6377,33 +5021,25 @@ c. tiom same, kiom same, tiom same … kiom.
 
 ## 4. La vorto kiom, enkondukante subpropozicion, povas
 
-havi limigan funkcion, limigante la ampleksecon de la va-
-
-lideco de la ĉefpropozicia enhavo. (§96, 3)
+havi limigan funkcion, limigante la ampleksecon de la valideco de la ĉefpropozicia enhavo. (§96, 3)
 
 C. Specialaj kazoj:
 
 1. Kiom eble = Kiom tio estas ebla (B 4) (§97).
 
-2. Nur tre malofte, por atingi specialan nuancon aŭ efek-
-
-ton, oni povas uzi tiom, tiom same, kaj kiom ĉe adjektivoj
+2. Nur tre malofte, por atingi specialan nuancon aŭ efekton, oni povas uzi tiom, tiom same, kaj kiom ĉe adjektivoj
 
 (adverboj) (§§100, 104). Oni tamen uzu tiun licencon
 
 same ŝpare kiel Zamenhof, t. e. preskaŭ neniam.
 
-3. La subordigan tiom … kiom oni uzu nur se kiom enkon-
-
-dukas kompletan subpropozicion.
+3. La subordigan tiom … kiom oni uzu nur se kiom enkondukas kompletan subpropozicion.
 
 En lernolibroj por komencantoj sufiĉas A1 en kombino
 
 kun B1, en daŭrigaj kursoj kaj libroj oni povus kompletigi per A2 kaj B2.
 
-B3, 4 kaj C1 estu instruataj kiel leksikonaj (vortaraj) apar-
-
-taĵoj.
+B3, 4 kaj C1 estu instruataj kiel leksikonaj (vortaraj) apartaĵoj.
 
 Forte oni avertu kontraŭ la ne-Zamenhofa tiom … kiom.
 
@@ -6414,9 +5050,6 @@ C2 restu privilegio por literaturistoj!
 Post la praktika resumo de §105 sekvu kelkaj vortoj, kiujn oni povus rigardi kiel teorian resumon.
 
 Se oni klopodas por prezenti la tutan konflikton tiom …
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 tiel en unu tezo, mi kredas ke la sekvonta redonas ĝin ĝuste
@@ -6437,13 +5070,9 @@ trian serion, sed ĝi mankas en Esperanto … bedaŭrinde”;
 
 tiaj rezonoj estas nur pruvoj pri krudaj miskonceptoj!
 
-Paroli pri ”erareco de Zamenhofaj formoj”, pri ”io kio laŭ-
+Paroli pri ”erareco de Zamenhofaj formoj”, pri ”io kio laŭlogike ne estas en ordo”, pri la ”ekzisto de grava eraro kiun
 
-logike ne estas en ordo”, pri la ”ekzisto de grava eraro kiun
-
-ni deziras korekti” (La Progr. 1938, pĝ 98, 130) nur pru-
-
-vas la supraĵemon de tiaj eldiroj. ĉar:
+ni deziras korekti” (La Progr. 1938, pĝ 98, 130) nur pruvas la supraĵemon de tiaj eldiroj. ĉar:
 
 b. Gradesprimo estas afero de priskribo de fenomenoj! Tial
 
@@ -6451,37 +5080,23 @@ b. Gradesprimo estas afero de priskribo de fenomenoj! Tial
 
 per originalaj adverboj kiel tre, tro, pli, jen per derivitaj: sufiĉe, multe, forte, terure; jen ĝi estas indikita per ia adjektivo, jen per ia afikso; jen ĝi necesigas komparon, jen ĝi
 
-estas menciita per la efikoj; jen la substantivo mem espri-
-
-mas ĝin, jen ia substantivo bezonas ĉiajn komplementojn.
+estas menciita per la efikoj; jen la substantivo mem esprimas ĝin, jen ia substantivo bezonas ĉiajn komplementojn.
 
 Kelkajn ilustrantajn ekzemplojn mi donis en §§86 kaj 87,
 
 kaj diversaj ceteraj lokoj montriĝis ke speciale la ligiteco
 
-inter maniero kaj grado estas tiel forta, ke ĝi ne estas mal-
+inter maniero kaj grado estas tiel forta, ke ĝi ne estas malligebla.
 
-ligebla.
+ĉiaj vortoj povas esprimi gradojn, sed tre speciale ĉiuj indikaj aŭ ekkriaj vortoj. Ofte nur iom pli da akcento estas sufi-
 
-ĉiaj vortoj povas esprimi gradojn, sed tre speciale ĉiuj in-
-
-dikaj aŭ ekkriaj vortoj. Ofte nur iom pli da akcento estas sufi-
-
-ĉa por ke la senco de tia vorto havu kroman gradindikan valo-
-
-
-DU MALSANOJ EN ESPERANTO
-
-
-ron. Tio validas por tiel, kiel tiom, kiom, sed same multe por tia kaj kia.
+ĉa por ke la senco de tia vorto havu kroman gradindikan valoron. Tio validas por tiel, kiel tiom, kiom, sed same multe por tia kaj kia.
 
 Ekz.: ”Kia vetero!” povas esprimi gradon de boneco aŭ
 
 (laŭ la cirkonstancoj) de malboneco.
 
-”Estis tia ventego ke la arboj renversiĝis”: grado de forte-
-
-co.
+”Estis tia ventego ke la arboj renversiĝis”: grado de forteco.
 
 ”ĉu li vere loĝas tie”: grado de malproksimeco.
 
@@ -6495,9 +5110,7 @@ Ne estas malfeliĉa bedaŭrindaĵo ke Zamenhof ne kreis
 
 apartan gradespriman korelativo-serion. Tio estu kaŭzo por
 
-granda ĝojo, ĉar — se ĝi ekzistus — neniu scius ĝin uzi korek-
-
-te, kaj la malfeliĉuloj, kiuj turmentus sin por tamen fari tion, sentus sin katenitaj kaj kaptitaj kvazaŭ en la metala strikt-vesto por mensmalsanuloj.
+granda ĝojo, ĉar — se ĝi ekzistus — neniu scius ĝin uzi korekte, kaj la malfeliĉuloj, kiuj turmentus sin por tamen fari tion, sentus sin katenitaj kaj kaptitaj kvazaŭ en la metala strikt-vesto por mensmalsanuloj.
 
 Ne estasąosa senreguleco en la Zamenhofa uzado de iel
 
@@ -6505,23 +5118,13 @@ kaj iom-vortoj. Kiu asertas tion, tiu ne donis al si la penon esplori la aferojn
 
 Kontraŭe: Zamenhof rezervis al si iom da libereco, sed
 
-agis tre regule kaj konsekvence, tiel konservante, por Espe-
+agis tre regule kaj konsekvence, tiel konservante, por Esperanto la samajn eblojn kiujn posedas la naturaj lingvoj.
 
-ranto la samajn eblojn kiujn posedas la naturaj lingvoj.
+Tial pravas S-ro Isbrucker kiam li nomis la tiom-kiom-ismon malsano. Li faris tion nur ŝerce, kaj kiel forte oni ekin-
 
-Tial pravas S-ro Isbrucker kiam li nomis la tiom-kiom-is-
+dignis kontraŭ li! Sed vere la tiom-kiom-ismo malriĉigas Esperanton, postulante unuformecon tie, kie diversaj nuancoj
 
-mon malsano. Li faris tion nur ŝerce, kaj kiel forte oni ekin-
-
-dignis kontraŭ li! Sed vere la tiom-kiom-ismo malriĉigas Es-
-
-peranton, postulante unuformecon tie, kie diversaj nuancoj
-
-postulas diversecon. Ne mirinde ke la tiom-kiom-stilo impre-
-
-sas rigide, pro la pezeco kiun la uzantoj trudas al si mem. Eĉ 140
-
-DU MALSANOJ EN ESPERANTO
+postulas diversecon. Ne mirinde ke la tiom-kiom-stilo impresas rigide, pro la pezeco kiun la uzantoj trudas al si mem. Eĉ
 
 
 ne unu momenton mi dubas ke la ”korektado”, prezentita per
@@ -6540,21 +5143,13 @@ venis al kelkaj, sufiĉe simplaj reguloj.
 
 Mi klopodis ankaŭ por trovi” la lingvistikajn influojn kiuj
 
-povus esti la kaŭzoj por la Zamenhofa prefero de certaj for-
+povus esti la kaŭzoj por la Zamenhofa prefero de certaj formoj en certaj (lingvaj) cirkonstancoj.
 
-moj en certaj (lingvaj) cirkonstancoj.
+Plene mi konscias ke pri tiu teoria pritrakto oni povas inter si forte malsamopinii kaj disputi. Tio ja estas en la karaktero de ĉiuj teoriaj klarigoj! Sed pro tio oni ne pretervidu unu tre gravan aferon:
 
-Plene mi konscias ke pri tiu teoria pritrakto oni povas in-
+Malsameco de opinioj pri la PRAKTIKA UZADO de la traktitaj punktoj en la verkoj de Zamenhof ne povas pli longe ekzis-ti.
 
-ter si forte malsamopinii kaj disputi. Tio ja estas en la karaktero de ĉiuj teoriaj klarigoj! Sed pro tio oni ne pretervidu unu tre gravan aferon:
-
-Malsameco de opinioj pri la PRAKTIKA UZADO de la trak-
-
-titaj punktoj en la verkoj de Zamenhof ne povas pli longe ekzis-ti.
-
-ĉu tial ne estus eble ke la tuta esperantistaro sekvu la Za-
-
-menhofan ekzemplon pri la koncernaj korelativoj?
+ĉu tial ne estus eble ke la tuta esperantistaro sekvu la Zamenhofan ekzemplon pri la koncernaj korelativoj?
 
 Ni havas nian Akademion. ĉu ĝi ne havan taskon en tio?
 
@@ -6562,16 +5157,11 @@ Ni havas nian Akademion. ĉu ĝi ne havan taskon en tio?
 
 ”miaj ” reguloj ĝuste kovras la Zamenhofan lingvon? Kaj se
 
-jes — kaj pri tio mi ne povas dubi — ĉu ne estas ĝia tasko re-
-
-komendi al la esperantistoj uzi la korelativojn laŭ tiuj reguloj?
+jes — kaj pri tio mi ne povas dubi — ĉu ne estas ĝia tasko rekomendi al la esperantistoj uzi la korelativojn laŭ tiuj reguloj?
 
 Tiamaniere la ”konflikto” (kiu iras pli profunden ol multaj supozas) povus iom post iom malaperi. Kiu ja ne povus akcepti
 
 la Zamenhofan uzadon kiel ĝustan bazon por propra uzado?
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 Tiun celon — la repaciĝadon de du kontraŭaj tendencoj
@@ -6585,9 +5175,6 @@ ebligos al ni transdoni Esperanton al posta generacio en ĝia
 pura originala formo.
 
 31-1-1952.
-
-
-DU MALSANOJ EN ESPERANTO
 
 
 www.omnibus.se/

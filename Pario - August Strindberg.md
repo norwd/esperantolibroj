@@ -18,11 +18,6 @@ Lingve ĝisdatigis en 2000
 Franko Luin
 
 
-@omnibus.se
-
-·
-
-
 P A R I O
 
 
@@ -41,9 +36,6 @@ Simpla ĉambro en kampara dometo; en la malantaŭaĵo,
 pordo kaj fenestro, tra kiu vidiĝas pejzaĝo. Meze sur la planko granda manĝotablo kun libroj, skribilaro, antikvaĵoj je unu flanko; mikroskopo, skatoloj kun insektoj, vitropo-toj en la alia.
 
 Maldekstre staras librobretaro. Krome la meblaro estas tia, kia ĉe riĉa vilaĝano.
-
-
-P A R I O
 
 
 S-ro B. (envenas kun insektokaptilo kaj botanikista kreskaĵujo, vestita sen jako; iras rekte al la librobretaro kaj elprenas libron, en kiu li komencas legi.
@@ -70,14 +62,10 @@ S-ro B. (eksaltetas) ĉu mi?
 
 S-ro A. Nu, vi ja morgaŭ forveturos kaj tial ne estas mirinde, se vi havas la forveturan febron!
 
-Kio nova? — Jen estas la poŝto! (prenas leterojn de la tablo) 4
-
-P A R I O
+Kio nova? — Jen estas la poŝto! (prenas leterojn de la tablo)
 
 
-Ho! Mi sentas korpremiĝon ĉiufoje kiam mi malfermas le-
-
-teron — nur ŝuldoj, ŝuldoj!
+Ho! Mi sentas korpremiĝon ĉiufoje kiam mi malfermas leteron — nur ŝuldoj, ŝuldoj!
 
 ĉu vi iam havis ŝuldon?
 
@@ -101,12 +89,7 @@ S-ro A. He! Mi kompreneble ĉion fandus kaj farus dukatojn — de la ĝusta pezo
 
 S-ro B. Kompreneble!
 
-S-ro A. Pri tio vi estu certa! ĉar se mi jam volus fari falsajn mone-rojn, tiam — mi ne bezonus antaŭe elfosi oron! (paŭzo) ĉia-5
-
-P A R I O
-
-
-okaze estas strange: se iu alia farus tion, al kio mi ne povas devigi min mem, tiam mi lin absolvus; sed min mem mi ne povas absolvi! Mi povus fari brilan defendan paroladon
+S-ro A. Pri tio vi estu certa! ĉar se mi jam volus fari falsajn mone-rojn, tiam — mi ne bezonus antaŭe elfosi oron! (paŭzo) ĉiaokaze estas strange: se iu alia farus tion, al kio mi ne povas devigi min mem, tiam mi lin absolvus; sed min mem mi ne povas absolvi! Mi povus fari brilan defendan paroladon
 
 por la ßtelisto, pruvi ke ĉi tiu oro estis res nullius aŭ nenies, ĉar ĝi venis en la teron dum tempo, kiam nenia poseda rajto ekzistis; ke ĝi ankaŭ nun estis posedata de neniu alia ol la plej frue veninta, ĉar la terposedanto ne estis ĝin kunkal-kulinta en la valoro de la posedaĵo, kaj tiel plu!
 
@@ -126,12 +109,7 @@ S-ro B. Vi tial kalkulas por granda virto, ke vi ne povas — hm! —
 
 ŝteli!
 
-S-ro A. Tio estas ĉe mi tiel nekontraŭstarebla, kiel la emo ŝteli es-6
-
-P A R I O
-
-
-tas nekontraŭstarebla ĉe aliaj, kaj sekve nenia virto. Mi ne povas fari, kaj li ne povas ne fari! — Vi ja komprenas, ke la deziro posedi tiun ĉi oron ne mankas ĉe mi! Kial mi ĝin tiam ne prenas? Mi ne povas! i estas nekapablo, kaj man-ko ja ne estas virto. Jen! (fermas la skatolon)
+S-ro A. Tio estas ĉe mi tiel nekontraŭstarebla, kiel la emo ŝteli estas nekontraŭstarebla ĉe aliaj, kaj sekve nenia virto. Mi ne povas fari, kaj li ne povas ne fari! — Vi ja komprenas, ke la deziro posedi tiun ĉi oron ne mankas ĉe mi! Kial mi ĝin tiam ne prenas? Mi ne povas! i estas nekapablo, kaj man-ko ja ne estas virto. Jen! (fermas la skatolon)
 
 (Disaj nuboj aperis super ta pejzaĝo kaj kelkfoje mallumigis la dome-ton. Nun mallumiĝas kiel ĉe proksimiĝanta fulmotondro)
 
@@ -148,9 +126,6 @@ S-ro B. Vi ne zorgu pri mi nun!
 S-ro A. Tiel vi ĉiam diras, kiam mi laciĝas paroli pri mi mem kaj volas dediĉi kelkan atenton al vi. Eble vi al mi fariĝis tiel simpatia pro tio, ke vi al mi lasis tiom paroli pri mi mem!
 
 Ni tuj fariĝis kiel malnovaj konatoj; vi havis neniajn koj-nojn, kontraŭ kiuj mi povis min ekpuŝi, neniajn pinglojn kiuj pikis. Estis io mola en via tuta persono, vi estis tiel plena de respektemo, kiel povas esti nur la plej klera; vi neniam petolis, kiam vi malfrue venis hejmen, faris nenian bru-on, kiam vi leviĝis en la mateno, malatentis bagatelojn, re-tiriĝis kiam konflikto minacis — per unu vorto, vi estis la perfekta kunulo! Sed vi estis entute tro cedema, tute tro negativa, tro silenta, por ke tio ne veku kun la tempo mian pripenson — kaj vi estas plena de timo kaj malkuraĝo —
-
-
-P A R I O
 
 
 ŝajnas, kvazaŭ vi estus dividita. Vi sciu, ke kiam mi sidas tie ĉi antaŭ la spegulo kaj vidas vian dorson — tiam estas, kvazaŭ mi vidus alian homon!
@@ -178,9 +153,6 @@ Estas strange ke vi, kun kiu mi tamen tuj fariĝis intima, apartenas al tiuj per
 S-ro B. Kiu tio estas?
 
 
-P A R I O
-
-
 S-ro A. La nomon mi ne volas diri! Nu, mi dum multaj jaroj tag-manĝis en la sama restoracio kaj ĉe la tablo mi renkontis malgrandan blondan viron kun blondaj, turmentitaj okuloj. Li havis nekredeblan kapablon sin movi en plej gran-da interpremiĝo sen tuŝi iun kaj sen esti tuŝata, li povis, kvankam starante ĉe la pordo, preni panpecon je la distanco de tri ulnoj; li ĉiam ŝajnis feliĉa esti inter homoj, kaj ki-am li ekvidis konaton, li ekridegis pro ĉarmiĝo, ĉirkaŭprenis kaj karesis lin, kvazaŭ li ne estus vidinta la homon dum multaj jaroj. Se iu paŝis sur lian piedon, li ridetis, kvazaŭ li petus pardonon, ke li ĝenis.
 
 Dum du jaroj mi lin vidis, kaj min amuzis provi diveni lian metion kaj karakteron, sed mi neniam al iu demandis, kiu li estas; tion mi ne volis scii, ĉar mia plezuro en la sama momento estus ĉesinta.
@@ -189,9 +161,7 @@ Tiu viro havis la saman econ kiel vi — li estis nedifinebla.
 
 Kelkfoje mi faris lin nediplomita instruisto, suboficiro, far-maceŭto, kancelariisto aŭ sekreta policano, kaj kiel vi li ŝajnis kumetita el du malsimilaj pecoj, ĉar la antaŭa flanko ne kongruis kun la malantaŭa flanko.
 
-Iun tagon mi hazarde legis en la gazeto pri granda falsado de kambio, farita de konata civila oficisto. — Mi poste eksciis, ke mia nedifineblulo estis kompaniano de la frato de la falsinto, kaj ke li nomiĝas Stråman, kaj poste oni al mi konigis, ke la priparolata Stråman antaŭe negocis per pruntedonado de libroj, sed ke nun li estas gazeta rapor-tanto pri policaj aferoj. Kiel mi nun povis havi ian interri-laton inter falsado, polico kuj la nekutima konduto de la nedifineblulo? Tion mi ne scias, sed kiam mi demandis al 9
-
-P A R I O
+Iun tagon mi hazarde legis en la gazeto pri granda falsado de kambio, farita de konata civila oficisto. — Mi poste eksciis, ke mia nedifineblulo estis kompaniano de la frato de la falsinto, kaj ke li nomiĝas Stråman, kaj poste oni al mi konigis, ke la priparolata Stråman antaŭe negocis per pruntedonado de libroj, sed ke nun li estas gazeta rapor-tanto pri policaj aferoj. Kiel mi nun povis havi ian interri-laton inter falsado, polico kuj la nekutima konduto de la nedifineblulo? Tion mi ne scias, sed kiam mi demandis al
 
 
 amiko, ĉu Stråman iam estis punita, li respondis nek jes nek ne — li tion ne sciis! (paŭzo)
@@ -232,14 +202,10 @@ S-ro A. Mi ja povas tion vidi!
 
 S-ro B. Kiel? Kiel vi povas tion vidi?
 
-S-ro A. Mi lernis! Tio ankaŭ estas arto, kiel multaj aliaj! Sed nun ni 10
-
-P A R I O
+S-ro A. Mi lernis! Tio ankaŭ estas arto, kiel multaj aliaj! Sed nun ni
 
 
-ne parolu pri tiu afero! (rigardas sian horlogon, antaŭmetas paperon por subskribo, trempas la plumon kaj ĝin prezentas al sinjoro B.) Mi devas pensi pri miaj konfuzitaj negocoj. Bonvolu atesti mian nomskribon sur ĉi tiu ŝuldatesto, kiun mi pre-zentos en la banko de Malmö morgaŭ, kiam mi vin akom-
-
-panos.
+ne parolu pri tiu afero! (rigardas sian horlogon, antaŭmetas paperon por subskribo, trempas la plumon kaj ĝin prezentas al sinjoro B.) Mi devas pensi pri miaj konfuzitaj negocoj. Bonvolu atesti mian nomskribon sur ĉi tiu ŝuldatesto, kiun mi pre-zentos en la banko de Malmö morgaŭ, kiam mi vin akompanos.
 
 S-ro B. Mi ne intencas iri tra Malmö!
 
@@ -260,9 +226,6 @@ Plue! Estas certe la sepa fojo, ke vi rifuzas akompani min al Malmö, kien vi ne
 tamen vi venis tien ĉi el Ameriko nur por vidi Malmö. Kaj ĉiumatene vi iras duonan mejlon suden ĝis la muelila al-taĵeto nur por vidi la tegmentojn de Malmö! Kaj kiam vi staras tie apud la dekstra fenestro, rigardante tra la tria vitro, kalkulite de malsupre, tiam vi vidas la turojn de la kas-telo kaj la kamentubojn de la gubernia malliberejo.
 
 Nun vi vidas, ke ne estas mi, kiu estas tiel lerta, sed vi kiu estas tiel malsaĝa!
-
-
-P A R I O
 
 
 S-ro B. Nun vi min malestimas!
@@ -287,9 +250,7 @@ S-ro B. (kun timemo) Jes, sed vi verßajne ne kredos, kion mi diros; mi tion rak
 
 spontane — sen libera volo, kaj pri kiuj oni ne estas kulpa!
 
-— ĉu vi permesas, ke mi iom malfermu la pordon, mi kre-
-
-das, ke la fulmotondro pasis!
+— ĉu vi permesas, ke mi iom malfermu la pordon, mi kredas, ke la fulmotondro pasis!
 
 S-ro A. Mi petas!
 
@@ -297,9 +258,7 @@ S-ro B. (malfermas la pordon; poste li sidiĝas apud la tablo kaj rakontas la se
 
 Vi aŭdu! Mi estis studento en Lund kaj iam devis preni
 
-prunton en banko. Mi ne havis iajn danĝerajn ŝuldojn kaj mia patro havis iom da riĉaĵo — nu, ne tre multe! Kiel ajn, mi estis forsendinta la ŝuldateston al la alia garantianto por havi lian subskribon, kaj kontraŭ ĉia antaŭvido mi ĝin re-ricevis kun rifuzo. Mi iom da tempo sidis senkonscia pro la 12
-
-P A R I O
+prunton en banko. Mi ne havis iajn danĝerajn ŝuldojn kaj mia patro havis iom da riĉaĵo — nu, ne tre multe! Kiel ajn, mi estis forsendinta la ŝuldateston al la alia garantianto por havi lian subskribon, kaj kontraŭ ĉia antaŭvido mi ĝin re-ricevis kun rifuzo. Mi iom da tempo sidis senkonscia pro la
 
 
 frapo, ĉar tio estis malagrabla surprizo, tre malagrabla! —
@@ -311,9 +270,6 @@ Papero kuŝis antaŭ mi sur la tablo kaj la letero kuŝis apu-de. Miaj okuloj un
 post la alia, kompreneble sen ia intenco gajni iun profiton.
 
 Kiam la letero estis plenskribita, mi estis gajninta perfek-tan spertecon skribi la nomon — (rapide forĵetas la plumon) kaj tiam mi ĉion forgesis. Dum la nokto mi dormis profun-de — kaj kiam mi vekiĝis, mi sentis, ke mi sonĝis, sed ne povis memori la sonĝon; kelkfoje tamen ŝajnis al mi, kvazaŭ pordo malfermetiĝus kaj mi vidus la skribotablon kun la ŝuldatesto kiel memoraĵo — kaj kiam mi leviĝis, mi estis pelata al la tablo, tute kiel se mi post matura pripenso prenus la neŝanĝeblan decidon skribi tiun nomon sub la fatala papero. ĉiuj pensoj pri la sekvoj, pri la risko estis mal-aperintaj — neniu ŝanceliĝo ekzistis — estis kvazaŭ mi ple-numus karan devon — kaj mi skribis! (Salte leviĝas) Kio tio povis esti? ĉu oni tion nomas inspiro, sugesto? Sed de kiu?
-
-
-P A R I O
 
 
 Mi ja dormis sola en la ĉambro! ĉu tio povus esti mia ne-civilizita mio, la sovaĝulo kiu ne aprobas kontraktojn, kiu, dum mia konscio dormis, antaŭenpaŝis kun sia krima volo kaj sia nekapablo antaŭvidi la sekvojn de la ago? Diru, kion vi pensas pri tiu afero!
@@ -333,9 +289,6 @@ S-ro B. Ne, mi ne havas.
 S-ro A. Jen, estas tio kio min maltrankviligas! Estas tio kio min maltrankviligas! — ĉu vi ne kredas, ke ĉiu homo havas ian kadavron en sia ŝipo? ĉu ne ni ĉiuj ŝtelis kaj mensogis, ki-am ni estis infanoj ? Jes, certe. Nu, nun ekzistas homoj, kiuj restas infanoj dum sia tuta vivo, tiel ke ili ne povas regi siajn kontraŭleĝajn dezirojn. Se nur la okazo venas, la krimulo jam estas preta! — Sed mi ne povas kompreni, ke vi ne sentas vin senkulpa! ĉar la infano estas rigardata kiel sen-prudenta, tial ankaŭ la krimulo devus esti rigardata kiel tia.
 
 Estas strange — nu, estas indiferente, mi eble pentos tion poste (paŭzo). Mi murdis homon, mi, kaj mi neniam havis iajn skrupulojn!
-
-
-P A R I O
 
 
 S-ro B. (treege interesita) ĉu — vi?
@@ -359,9 +312,6 @@ S-ro B. Oho, vi tiamaniere prijuĝas homan valoron?
 S-ro A. En la menciita kazo, jes!
 
 
-P A R I O
-
-
 S-ro B. Sed la sento pri ŝuldo, la ekvilibro?
 
 S-ro A. Mi havis nenian senton pri ŝuldo, ĉar mi ne estis farinta ian krimon. Nukofrapojn mi estis ricevinta kaj doninta kiel bu-bo, kaj estis nur mia nescio pri ilia efiko sur maljunajn homojn, kiu kaŭzis la morton.
@@ -370,15 +320,11 @@ S-ro B. Jes, sed estas ĝis du jaroj da punlaboro por senintenca murdo — same 
 
 S-ro A. Ankaŭ pri tio mi pensis, vi povas esti certa! Kaj dum multaj noktoj mi sonĝis, ke mi estas en malliberejo! Ho! Vi, ĉu estas tiel malfacile, kiel oni diras, sidi malantaŭ seruro kaj riglilo?
 
-S-ro B. Jes, mi certigas, ke estas. — Unue oni malbeligas vian viza-
-
-ĝon, fortondante al vi la haron, tiel ke se vi ne antaŭe as-pektis kiel krimulo, vi tion faras poste, kaj kiam vi vin rigardas en spegulo, vi konvinkiĝas, ke vi estas bandito!
+S-ro B. Jes, mi certigas, ke estas. — Unue oni malbeligas vian vizaĝon, fortondante al vi la haron, tiel ke se vi ne antaŭe as-pektis kiel krimulo, vi tion faras poste, kaj kiam vi vin rigardas en spegulo, vi konvinkiĝas, ke vi estas bandito!
 
 S-ro A. Estas la masko, kiu estas forŝirita, eble! Tio ne estas malbone elpensita!
 
-S-ro B. Nu, vi ŝercu! — Kaj tiam oni malmultigas vian manĝon, tiel ke vi en ĉiu tago kaj horo sentas certan diferencon inter vivo kaj morto! ĉiuj funkcioj de la vivo estas suben prema-taj, vi sentas kiel vi kuntiriĝas, kaj via animo, kiu tie estu resanigota, plibonigota, estas nun metata al malsatado, estas premata malantaŭen ĝis miljaroj en pasintan tempon, oni al vi nur permesas legi verkojn, kiuj estas skribitaj por la sovaĝuloj de la tempo de la popolmigradoj, oni al vi nur permesas aŭdi tion, kio neniam okazos en la ĉielo; sed kio okazas sur la tero, tio restas sekreto; vi estas forŝirita de via ĉirkaŭaĵo, estas mallevita sub via klaso, venas sub tiujn, kiuj estas sub vi, havas viziojn de tio, ke vi vivas en la bronza 16
-
-P A R I O
+S-ro B. Nu, vi ŝercu! — Kaj tiam oni malmultigas vian manĝon, tiel ke vi en ĉiu tago kaj horo sentas certan diferencon inter vivo kaj morto! ĉiuj funkcioj de la vivo estas suben prema-taj, vi sentas kiel vi kuntiriĝas, kaj via animo, kiu tie estu resanigota, plibonigota, estas nun metata al malsatado, estas premata malantaŭen ĝis miljaroj en pasintan tempon, oni al vi nur permesas legi verkojn, kiuj estas skribitaj por la sovaĝuloj de la tempo de la popolmigradoj, oni al vi nur permesas aŭdi tion, kio neniam okazos en la ĉielo; sed kio okazas sur la tero, tio restas sekreto; vi estas forŝirita de via ĉirkaŭaĵo, estas mallevita sub via klaso, venas sub tiujn, kiuj estas sub vi, havas viziojn de tio, ke vi vivas en la bronza
 
 
 epoko, sentas vin kvazaŭ vi irus en besta felo, loĝus en ka-verno kaj manĝus el trogo! Ho!
@@ -416,9 +362,6 @@ S-ro A. Mi ne murdis!
 S-ro B. Sekve ne estas murdo, se oni mortfrapas homon?
 
 
-P A R I O
-
-
 S-ro A. Ne, ne ĉiam! Ekestas murdo, senintenca murdo, perforto
 
 ĝismorta, kun la subpartoj ”intenca” kaj ”senintenca”. Kiel ajn — nun mi vin vere timas — ĉar vi apartenas al la plej danĝera kategorio de homoj — la malsaĝaj!
@@ -429,9 +372,7 @@ S-ro A. Parolu!
 
 S-ro B. ĉu vi volas konfesi, ke mi rezonas saĝe kaj konsekvence, kiam mi diras la jenon:
 
-Vi havis malfeliĉon, kiu povus al vi kaŭzi du jarojn da punlaboro. Vi evitis la malhonorantan punon, tute. Nun staras tie ĉi viro — kiu estis viktimo de malfeliĉo — senkonscia inspiro — kaj devis suferi du jarojn da punlaboro. Tiu viro nur per grandaj sciencaj meritoj povas forlavi la makulon, kiun li nevole ekhavis sur sin, sed por la atingo de tiuj meritoj li nepre bezonas monon — multe da mono — kaj mo-
-
-non tuj!
+Vi havis malfeliĉon, kiu povus al vi kaŭzi du jarojn da punlaboro. Vi evitis la malhonorantan punon, tute. Nun staras tie ĉi viro — kiu estis viktimo de malfeliĉo — senkonscia inspiro — kaj devis suferi du jarojn da punlaboro. Tiu viro nur per grandaj sciencaj meritoj povas forlavi la makulon, kiun li nevole ekhavis sur sin, sed por la atingo de tiuj meritoj li nepre bezonas monon — multe da mono — kaj monon tuj!
 
 ĉu vi ne pensas, ke la alia — la nepunita — restarigus la ekvilibron en la homaj rilatoj, se li estus juĝita pagi sufiĉe grandan punmonon por senintenca murdo? ĉu vi ne pensas?
 
@@ -444,18 +385,13 @@ S-ro A. Justa! La leĝo difinas tion kiel minimume kvindek kronoj.
 Sed ĉar la mortinto ne havis parencojn, ĉia parolo pri tiu afero nuliĝas.
 
 
-P A R I O
-
-
 S-ro B. Nu, vi ne volas kompreni! Tiam mi parolos pli klare; al mi vi pagos la punmonon.
 
 S-ro A. Mi neniam aŭdis, ke murdintoj pagu punmonon al falsin-toj. — Kaj krome nenia denuncanto okzistas tie ĉi!
 
 S-ro B. ĉu ne? — Nu, tie ĉi vi min havas!
 
-S-ro A. Nun la afero komencas klariĝi! — Kiom vi postulas por fari-
-
-ĝi kunkulpulo en la murdo?
+S-ro A. Nun la afero komencas klariĝi! — Kiom vi postulas por fariĝi kunkulpulo en la murdo?
 
 S-ro B. Ses mil kronojn!
 
@@ -478,9 +414,6 @@ S-ro B. Tute decidite! Vi ne povas elturniĝi, tial neniel utilas, ke vi provu!
 S-ro A. Vi kredas, ke mi volas doni al mia patro ŝteliston kiel filon, al mia edzino ŝteliston kiel edzon, al miaj infanoj ŝteliston kiel patron kaj al miaj kamaradoj ŝteliston kiel kolegon! Tio neniam okazos! — Nun mi iras al la distriktestro por min denunci!
 
 
-P A R I O
-
-
 S-ro B. (salte leviĝas kaj kolektas siajn objektojn) Atendu iom!
 
 S-ro A. Kion?
@@ -501,9 +434,7 @@ Pro tio mi opinias, ke mi havas la rajton konkludi, ke vi faris vian krimon pro 
 
 S-ro B. Pro mizero! Se vi scius —
 
-S-ro A. Se vi scius, en kia mizero mi vivis kaj vivas! Sed pri tio ne estas la demando! — Pluen! Ke vi estis en malliberejo — tio estas preskaŭ certa; sed tio estis en Ameriko; ĉar la vivon 20
-
-P A R I O
+S-ro A. Se vi scius, en kia mizero mi vivis kaj vivas! Sed pri tio ne estas la demando! — Pluen! Ke vi estis en malliberejo — tio estas preskaŭ certa; sed tio estis en Ameriko; ĉar la vivon
 
 
 en amerikaj malliberejoj vi priskribis; alia afero estas preskaŭ tiel certa, ke vi ne elsuferis vian punon tie ĉi.
@@ -541,9 +472,6 @@ S-ro B. Tio estas mia sekreto.
 S-ro A. Lasu min vin rigardi! — Vi intencas skribi anoniman leteron al mia edzino por rakonti mian sekreton!
 
 
-P A R I O
-
-
 S-ro B. Jes, kaj tion vi ne povas malebligi! Min malliberigi, tion vi ne kuraĝas; sekve vi devas lasi min iri; kaj kiam mi estos irinta, mi povos fari kion mi volos!
 
 S-ro A. Ho vi diablo! Vi trafis mian A˛ilan kalkanon — ĉu vi volas min devigi fariĝi murdisto?
@@ -559,9 +487,6 @@ S-ro B. Vi estis tro malkuraĝa! Same kiel vi estis tro malkuraĝa por rakonti a
 S-ro A. Vi estas alispeca homo ol mi — ĉu pli forta aŭ pli malfor-ta — tion mi ne scias — ĉu pli krima aŭ ne — tio min ne tuŝas! Sed ke vi estas pli malsaĝa, tio estas certa, ĉar vi estis malsaĝa, kiam vi skribis la nomon de alia anstataŭ peti almozon — kiel mi estis devigata fari; vi estis malsaĝa, kiam vi ŝtelis el mia libro — ĉu vi ne povis kompreni, ke mi legis miajn librojn? — Vi estis malsaĝa, kiam vi kredis, ke vi estas pli saĝa ol mi, kaj ke vi povos min delogi fariĝi ŝtelisto; vi estis malsaĝa, kiam vi opiniis, ke estos ekvilibro per tio, ke la mondo havos du ŝtelistojn anstataŭ unu, kaj vi estis plej malsaĝa, kiam vi imagis al vi, ke mi konstruis la feliĉon de mia vivo sen meti firme la fundamentan ßtonon!
 
 
-P A R I O
-
-
 Vi skribu anonimajn leterojn al mia edzino pri tio, ke ßia edzo estas murdinto — tion ßi sciis jam kiel fianĉino!
 
 ĉu nun vi cedas?
@@ -572,5 +497,3 @@ S-ro A. Nun vi nepre iru! Tuj! — Viaj objektoj venos poste! For!
 
 La kurteno falas.
 
-
-P A R I O

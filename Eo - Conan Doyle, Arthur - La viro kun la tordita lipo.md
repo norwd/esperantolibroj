@@ -1,5 +1,3 @@
-
-
 Kopirajto c pri ˆci tiu traduko ˆce Sylvan Zaft 1996. Vi rajtus fari elektronikajn kopiojn kaj paperajn kopiojn por via persona uzado kaj por disdoni tute senpage al aliaj nur se la kopioj inkluzivas tiun ˆci avizon. Vi ne rajtas enmeti tiun tradukon en iun ajn alian interretan lokon. Por alia permeso, bonvolu skribi al mi. Mia adreso estas sylvanz@aol.com.
 
 Noto pri la traduko:
@@ -125,7 +123,7 @@ la brakseˆ
 
 gon kaj la gajan sidˆcambron kaj en lu-kabrioleto rapidis orienten kun stranga komisio, kiel tiam al mi ˆsajnis, kvankam nur la postaj okazaˆoj povos montri kiagrade stranga.
 
-Nenio malfacilis dum la unua stadio de mia aventuro. Upper-Swandam-strateto estas lokaˆco 5
+Nenio malfacilis dum la unua stadio de mia aventuro. Upper-Swandam-strateto estas lokaˆco
 
 kaˆsita malanta˘
 
@@ -281,7 +279,7 @@ Malfacilas rifuzi ion al Sherlock Holmes, ˆcar liaj petoj ˆciam proponiˆ
 
 gas nepridubeble, kun ege
 
-kvieta mastreco. Mi sentis, tamen, ke tuj kiam Whitney estos en la kabrioleto, mia misio estos 8
+kvieta mastreco. Mi sentis, tamen, ke tuj kiam Whitney estos en la kabrioleto, mia misio estos
 
 kvaza˘
 
@@ -639,7 +637,7 @@ go difektita de terura cikatro, kiu, per sia kuntiriˆ
 
 go, suprenturnis la eksteran randon de la
 
-supra lipo, buldoga mentono, kaj paro de tre penetraj malhelaj okuloj kiuj unike kontrastas al la 15
+supra lipo, buldoga mentono, kaj paro de tre penetraj malhelaj okuloj kiuj unike kontrastas al la
 
 harkoloro, ˆcio diferencigas lin de la ordinara almozularo, same kiel lia sprito, ˆcar li ˆciam pretas tuj respondi al iu ajn mokpikaˆo kiun preterpasanto ekˆetas al li. La˘
 
@@ -669,7 +667,7 @@ gis apud la ungo, kaj li klarigis ke la sango venis de tie, aldonante ke li nelo
 
 ue
 
-estis ˆce la fenestro, kaj ke la makuloj tie kiujn oni jam observis, sendube samdevenis. Li energie neis ke li iel vidis Sron Neville St. Clair kaj ˆuris ke la enesto de la vestoj en lia ˆcambro estis tiom mistera por li kiom por la polico. Rilate al la aserto de S-ino St. Clair ke ˆsi vere vidis sian edzon 16
+estis ˆce la fenestro, kaj ke la makuloj tie kiujn oni jam observis, sendube samdevenis. Li energie neis ke li iel vidis Sron Neville St. Clair kaj ˆuris ke la enesto de la vestoj en lia ˆcambro estis tiom mistera por li kiom por la polico. Rilate al la aserto de S-ino St. Clair ke ˆsi vere vidis sian edzon
 
 ˆcefenestre, li deklaris ke ˆsi devis esti a˘
 
@@ -691,7 +689,7 @@ gi tion faris, kvankam ili ne trovis sur la kotbordo tion kion ili timis trovi. 
 
 “Ne, mi opinias ke vi ne povus diveni. ˆ
 
-Ciu poˆso plenplenis je pencoj kaj duonpencoj — 421
+Ciu poˆso plenplenis je pencoj kaj duonpencoj —
 
 pencoj kaj 270 duonpencoj. Ni ne miru ke la tajdo ne forportis ˆ
 
@@ -729,7 +727,7 @@ udis la baraktadon kiam la edzino klopodis traˆsovi sin supren, kaj eble li jam
 
 udis de sia
 
-hinda kunulo ke la policistoj rapide alkuras. Gravas ke li ne perdu momenton. Li rapidas al kaˆsejo 17
+hinda kunulo ke la policistoj rapide alkuras. Gravas ke li ne perdu momenton. Li rapidas al kaˆsejo
 
 kie li amasis la fruktojn de sia almozado, kaj li plenpoˆsigas ˆciujn monerojn kiujn li povas por neprigi ke la jako subiˆ
 
@@ -779,13 +777,12 @@ u briletis elfenestre.
 
 Cu vi vidas
 
-tiun lumon inter la arboj? Estas La Cedroj, kaj apud tiu lampo sidas virino kies maltrankvilaj 18
+tiun lumon inter la arboj? Estas La Cedroj, kaj apud tiu lampo sidas virino kies maltrankvilaj
 
 oreloj jam sendube kaptis la huftintadon de niaj ˆcevaloj.”
 
 “Sed kial vi ne kondukas la enketon el Baker-strato?” mi demandis.
 
-“ ˆ
 
 Car multaj esploroj farendas ˆci tie. Sino St. Clair plej bonkore metis du ˆcambrojn je mia dispono, kaj vi povas esti certa ke ˆsi nepre bonvenigos mian amikon kaj kunlaboranton. Mi malplezure renkontos ˆsin, Watson, dum mankas al mi novaˆoj pri ˆsia edzo. Jen ni estas. Haltu, vi, haltu!”
 
@@ -814,9 +811,7 @@ Si staris
 
 kun la figuro konturita kontra˘
 
-u la lumfluo, kun unu mano ˆceporde, la alia avide duonlevita, la kor-
-
-po iomete kurbiga, la kapo kaj vizaˆ
+u la lumfluo, kun unu mano ˆceporde, la alia avide duonlevita, la korpo iomete kurbiga, la kapo kaj vizaˆ
 
 go elstaraj; kun avidaj okuloj kaj disaj lipoj, ˆsi estis staranta
 
@@ -830,13 +825,11 @@ gemen
 
 kiam ˆsi vidis mian kunvenanton kapnei kaj ˆsultrolevi.
 
-“ ˆ
 
 Cu nenia bona novaˆo?”
 
 “Nenio.”
 
-“ ˆ
 
 Cu nenio malbona?”
 
@@ -890,13 +883,11 @@ go.
 
 “Malkaˆse do, sinjorino, mi ne tion opinias.”
 
-“ ˆ
 
 Cu vi opinias ke li mortis?”
 
 “Jes.”
 
-“ ˆ
 
 Cu murdita?”
 
@@ -924,7 +915,6 @@ u.” ˆ
 
 Si staris ridetante, levante folieton en la aero.
 
-“ ˆ
 
 Cu mi rajtas vidi?”
 
@@ -1003,7 +993,7 @@ go de libro, oktava formato, neniu akvomarko. Hm! Poˆstita
 
 hodia˘
 
-u en Gravesend de viro kun malpura dikfingro. Ho! Kaj la klapon leksigelis homo kiu, se mi 24
+u en Gravesend de viro kun malpura dikfingro. Ho! Kaj la klapon leksigelis homo kiu, se mi
 
 ne eraras, anta˘
 
@@ -1080,25 +1070,21 @@ u ol foriri?”
 
 “Ege.”
 
-“ ˆ
 
 Cu la fenestro estis malfermita?”
 
 Jes.”
 
-“ ˆ
 
 Cu li do povis krii al vi?”
 
 “Li povis.”
 
-“ ˆ
 
 Cu li nur, kiel mi komprenas, elˆetis sensencan krion?”
 
 “Jes.”
 
-“ ˆ
 
 Cu ekkrion por helpo, viaopinie?”
 
@@ -1137,13 +1123,11 @@ u kravato. Mi klare vidis lian nudan gorˆ
 
 gon.”
 
-“ ˆ
 
 Cu li iam ajn parolis pri Swandam-strateto?”
 
 “Neniam.”
 
-“ ˆ
 
 Cu li iam ajn montris signojn ke li prenis opion?”
 
@@ -1204,7 +1188,6 @@ gis supren, kaj la ˆcambron plenigis densa tabaka nebuleto, sed el la amaseto d
 
 uan nokton restis plu nenio.
 
-“ ˆ
 
 Cu vi vekiˆ
 
@@ -1212,7 +1195,6 @@ gis, Watson?” li demandis.
 
 “Jes.”
 
-“ ˆ
 
 Cu preta por matena veturo?”
 
@@ -1318,7 +1300,6 @@ Cu vi havas lin ˆci tie?”
 
 “En ˆcelo.”
 
-“ ˆ
 
 Cu li estas kvieta?”
 
@@ -1339,7 +1320,6 @@ gin.”
 
 “Mi tre multe dezirus vidi lin.”
 
-“ ˆ
 
 Cu vere? Ni facile tion aranˆ
 
@@ -1395,7 +1375,7 @@ kreskis malalte super la okuloj kaj la frunto.
 
 “Bela ulo, ˆcu ne?” diris la inspektisto.
 
-“Li certe bezonas lavon,” rimarkis Holmes. “Mi supozis ke tiel estos, kaj mi prenis la liberecon alporti la ilojn.” Li malfermis la Gladstone-valizon dum li parolis, kaj elprenis, je mia miro, tre 31
+“Li certe bezonas lavon,” rimarkis Holmes. “Mi supozis ke tiel estos, kaj mi prenis la liberecon alporti la ilojn.” Li malfermis la Gladstone-valizon dum li parolis, kaj elprenis, je mia miro, tre
 
 grandan lavspongon.
 
@@ -1459,7 +1439,7 @@ gon en la kapkusenon.
 
 Cielon!” kriis la inspektisto, “jen vere estas la mankanta viro. Mi rekonas lin el la foto.”
 
-La malliberulo turnis sin kun la mieno de viro elrevigita kaj donanta sin al sia sorto. “Nu, tiel 32
+La malliberulo turnis sin kun la mieno de viro elrevigita kaj donanta sin al sia sorto. “Nu, tiel
 
 estu,” diris li. “Kaj, mi petas, pri kio oni akuzas min?”
 
@@ -1550,7 +1530,7 @@ ghararo kaj ta˘
 
 ugaj vestoj, mi prenis mian lokon en la aferista
 
-parto de la urbo, ˆsajne kiel vendisto de alumetoj sed vere por almozi. Dum sep horoj mi laboradis je la metio, kaj kiam mi revenis hejmen vespere, mi mire konstatis ke mi ricevis ne malpli ol 26
+parto de la urbo, ˆsajne kiel vendisto de alumetoj sed vere por almozi. Dum sep horoj mi laboradis je la metio, kaj kiam mi revenis hejmen vespere, mi mire konstatis ke mi ricevis ne malpli ol
 
 ˆsilingojn 4 pencojn.
 

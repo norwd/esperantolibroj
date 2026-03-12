@@ -21,15 +21,11 @@ Enkonduko
 
 La neceseco eldoni tiun ĉi popolkantaro estas eviden-ta. La problemo pri la tuteca enpenetro en la kantojn sin kaŝas antaŭ ĉio en la tekstoj kaj certgrade ankaŭ en la melodio. De tie ĉi estas ankaŭ mia decido pri la vortaj kaj ne melodiaj enskriboj des pli, ke tio koncernas konatajn makedonajn kantojn.
 
-Ja, al ni koncernas porti nian scion en la poŝo kaj la melodion en la animo. Kiel ni de niaj prageavoj, tiel niaj geinfanoj devas esti portantoj de la komisioj, kolorigitaj de amo, ĝojo, feliĉo, ŝerco, tristo, eksterlandlaborado, kuraĝeco kaj aliaj vivospertaj veroj, kiujn ni renkontas en la popolkantoj. Tiamaniere ni eksentos la pli mallar-
-
-ĝan apartenecon al nia genta radiko.
+Ja, al ni koncernas porti nian scion en la poŝo kaj la melodion en la animo. Kiel ni de niaj prageavoj, tiel niaj geinfanoj devas esti portantoj de la komisioj, kolorigitaj de amo, ĝojo, feliĉo, ŝerco, tristo, eksterlandlaborado, kuraĝeco kaj aliaj vivospertaj veroj, kiujn ni renkontas en la popolkantoj. Tiamaniere ni eksentos la pli mallarĝan apartenecon al nia genta radiko.
 
 La popolkanto ne havas posedanton, sed certa malgranda nombro de tiuj ĉi kantoj estas aŭtoraj. Ilin mi enkluzivis sur la paĝoj de ĉi tiu kantaro, pro ties kortuŝe-co. Mi enskribis ilin tiel, kiel mi estas aŭskultinta de la pli aĝaj gemakedonoj.
 
-La celo de la kantaro estas daŭrigi la jarcentan vivon de la nia popolkanto. Mi kredas, ke ĉi tiu malgranda 3
-
-MAKEDONAJ PERLOJ
+La celo de la kantaro estas daŭrigi la jarcentan vivon de la nia popolkanto. Mi kredas, ke ĉi tiu malgranda
 
 
 manlibro, havanta makedonaj perlojn estos vojkamara-do viavive.
@@ -39,9 +35,6 @@ La kolekto havas malgrandan glosaron.
 Por faciligo la kantoj estas aranĝitaj alfabete de la ori-ginalaj makedontitoloj.
 
 ***Ljuben Dimkaroski***
-
-
-MAKEDONAJ PERLOJ
 
 
 Enkondukvortoj de la tradukisto Mi plezure prenis la proponon traduki esperant-lingven la 150 popolajn kantperlojn el Makedonio, kolektitaj de sinjoro Ljuben Dimkaroski. La popola kanto estas la viva ponto inter la generacioj, la luto inter la pasinteco, nuntempeco kaj futuro. i kuŝas en si mem ankaŭ la riĉeco de la popola animeco kaj komisias al ni deĉifri tiun ĉi animecon kaj eltiri el ĝi la utilon de la saĝa leciono, kiun la perloj donas al ni kiel psi˛ologio, kies profundeco estas senmezura.
@@ -55,9 +48,6 @@ Kredeble la esperantista folklorŝatanto restos konten-ta pro la aliro al kantpe
 Burgas, Bulgario
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mesaĝo venis, Donka, el l’kastel’, ***
 
 *el l’kastelo, Donka, de agao:* *vi kunvoku la bienservistoj,* *la bienservistoj, l’junedzinoj. *
@@ -65,9 +55,6 @@ MAKEDONAJ PERLOJ
 *Serpos ni horden etan, Donka,* *etan, etan, ĝis genue, Donka. *
 
 *Ili manĝos, Donka, nur bulberon* *kaj vi manĝos, Donka, ŝafidaĵon. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***El Mogil’ mesaĝ’ cirkulas***
@@ -89,9 +76,6 @@ MAKEDONAJ PERLOJ
 *Mi edzinon vian kaptos* *por haremo mia, Dimĉo! *
 
 *—Mi ĉi tie vin atendas,* *ho, Selimo — hund’ buĉista,* *por ke vin mi senfeligu* *kaj vin kroĉu je pajlejo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Ho, ekmuziku, muzikistoj, ***
@@ -123,9 +107,6 @@ Refreno:
 *ploras mi pro la juneco. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ni deiru, ho, kara Vasa, ***
 
 *ni deiru nun, *
@@ -155,9 +136,6 @@ MAKEDONAJ PERLOJ
 *al ŝi diras nun: — Kuracos mi vin,* *mi kuracos vin, je vi edziĝos! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Nun ĉu vi scias, memoras, Milica? ***
 
 *Ho, kiam estis ni malgrandaj,* *ho, kiam estis malgrandaj, Milica,* *tiam geamiĝis ambaŭe. *
@@ -173,9 +151,6 @@ MAKEDONAJ PERLOJ
 *kaj el okuloj viaj larmoj gutis. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kara Milka ni forlasu***
 
 *vilaĝeton Maleŝevon. *
@@ -189,9 +164,6 @@ MAKEDONAJ PERLOJ
 *En vilaĝo Maleŝevo, *
 
 *ja, trifoje oni serpas,* *ja trifoje oni serpas,* *vinberrikoltas dufoje,* *kara Milka, fraŭlino belega! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Sin pretigas, kara panjo, ***
@@ -213,17 +185,11 @@ MAKEDONAJ PERLOJ
 *Estas li en Solun, kara panjo,* *en drinkejo malvarmeta. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Lin priservas, kara panjo,* *lin priservas, panjo, *
 
 *unu makedona junulino —*
 
 *bona kaj belega! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***ĉu aŭskultas vi nun, Anĝa belega, ***
@@ -245,9 +211,6 @@ MAKEDONAJ PERLOJ
 *ĉu aŭskultas vi nun, turko mizera,* *min harem’ ne tentas, *
 
 *min harem’ ne tentas, turko mizera,* *vi fremdulo estas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Anica, trista animo, ***
@@ -274,17 +237,12 @@ Refreno:
 
 *Al svatanto mia diris ili:*
 
-*—Estas fianĉino jam Anta,* 15
-
-MAKEDONAJ PERLOJ
+*—Estas fianĉino jam Anta,*
 
 
 *estas fianĉino Anta jam,* *fianĉino de Dimitro. *
 
 *Proponas ni la malgrandan* *fraŭlinon Vasilkan! *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -312,9 +270,6 @@ Refreno:
 *Medan buŝon amas mi. *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Biljana tolon blankigis***
@@ -338,9 +293,6 @@ Refreno:
 *mi vinon ne deziras, *
 
 *deziras mi la junulon,* *gvidanta la karavanon! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Bitola, ***
@@ -372,9 +324,6 @@ Refreno:
 *sen plorolarmoj? *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Bitola, nur en Bitola***
@@ -398,9 +347,6 @@ Refreno:
 *por ĉiuj fraŭloj amemaj! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Dio punu tiun, kiu***
 
 *iris eksterlanden sian panon gajni,* *eksterlanden, kara mia, Amerikon. *
@@ -412,9 +358,6 @@ MAKEDONAJ PERLOJ
 *Se dezirus vi l’alvenon,* *vendu vi kolĉenon vian, kara mia. *
 
 *Se ĝi ne sufiĉos, vendu,* *kara mia, la avaran veston:* *sendu monojn, kara, por ke mi alvenu! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Dio murdu, panjo, dio murdu***
@@ -442,9 +385,6 @@ Refreno:
 *al la najbareto, al la tajloreto! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Gjorgji la rabist’ malsanas***
@@ -464,9 +404,6 @@ Refreno:
 *—Kiel gajnis vi, ho, Gjorgji,* *la havaĵon grandan? *
 
 *—Riĉularon mi perfortis* *ties monojn mi forprenis! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Nun malsanas juna Stojan, ***
@@ -489,17 +426,12 @@ MAKEDONAJ PERLOJ
 
 *Falas, kara, miaj larmoj* *pro malrajtoj vilaĝanaj:* *ĉi vespere ĉe la fonto* *l’vilaĝanoj grupiĝis, *
 
-*priparolis mian sorton:* 24
-
-MAKEDONAJ PERLOJ
+*priparolis mian sorton:*
 
 
 *kiam mortos vi, l’infanon* *deprenante de mi*
 
 *min forportos malproksime* *kaj forvendos min pro mono! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mile Pop-Ordanov malsana kuŝas; ***
@@ -513,9 +445,6 @@ MAKEDONAJ PERLOJ
 *Ties fratinoj portas funebrajn vestojn,* *ke edzinigos ili la fraton,* *lin edzinigos je Makedonio. *
 
 *Ties patrino portas funebran veston,* *ke edzinigos filon karegan,* *lin edzinigos je Makedonio. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Plantis pinon juna Evgenija, ***
@@ -559,15 +488,9 @@ MAKEDONAJ PERLOJ
 */2*
 
 
-MAKEDONAJ PERLOJ
-
-
 *miaj larmoj estas ties akvo. *
 
 *Mia karno estas ties nutro,* *miaj larmoj estas ties akvo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***ŝiris frambojn fraŭlino***
@@ -603,17 +526,11 @@ MAKEDONAJ PERLOJ
 *Se vi estas nepino, *
 
 
-MAKEDONAJ PERLOJ
-
-
 *kial ŝiras vi frambojn?! *
 
 *Ho, aman, aman, aman, aman! *
 
 */2*
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vinon drinkas mi kaj brandon. ***
@@ -633,9 +550,6 @@ MAKEDONAJ PERLOJ
 *portas. L’tria min rigardas. *
 
 *Kaj mi ŝin surĉevaligis* *kaj forportis ŝin en l’domon. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Nun ĉevalon rajdas mi***
@@ -667,9 +581,6 @@ MAKEDONAJ PERLOJ
 *nur ŝin mi povu rigardi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Forkaptis fiaj turkoj***
 
 *fraŭlinon tre belegan. *
@@ -687,9 +598,6 @@ MAKEDONAJ PERLOJ
 *—Mi mortintus, fiaj turkoj,* *l’rifuĝejon mi ne diros! *
 
 *Mi mortintus, fiaj turkoj, fiaj turkoj,* *l’rifuĝejon mi ne diros! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Masonis klostron Ilija. ***
@@ -721,9 +629,6 @@ MAKEDONAJ PERLOJ
 *l’okulojn nigrigos! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***ĉiam estu vi, patrino, malbenita, ***
 
 *ke vi donis min, patrino en Varoŝ,* *en ĉi tiu malbenita Varoŝ, panjo,* *ho, en malbenita Varoŝ! *
@@ -739,9 +644,6 @@ MAKEDONAJ PERLOJ
 *Ili diras, ke manĝinta estas mi,* *ili diras, ke manĝinta estas mi,* *ke manĝinta estas mi ĉe vi, patrino,* *ke manĝinta estas mi ĉe vi, patrino! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Da fina vino ruĝkolora***
 
 *ekdormis via amanto*
@@ -755,9 +657,6 @@ MAKEDONAJ PERLOJ
 *Se l’kapoto estas ŝtelita,* *ke estu viva l’amanto. *
 
 *Se l’kapoto estas ŝtelita,* *ke estu viva l’amanto! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vi parolis, kara:***
@@ -791,9 +690,6 @@ MAKEDONAJ PERLOJ
 *vin alia prenu. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Donu min, patrino kara, donu min***
 
 *al ĉi tiu ciganeto, kara,* *ho, al ĉi tiu ciganeto,* *ho, aman, aman! *
@@ -807,9 +703,6 @@ MAKEDONAJ PERLOJ
 *Tage vidas mi lin kiel ciganeto,* *nokte estas li por mi kolombo,* *ho, aman, ho, aman, kara, panjo,* *nokte kolombo! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Vi, senprudentaj jaroj junulaj, ***
 
 *forflugis kiel grizaj kolomboj. *
@@ -819,9 +712,6 @@ MAKEDONAJ PERLOJ
 *Almenaŭ estis liberecon* *en tiu riĉa land’ Vala˛io. *
 
 *Mi trosatiĝis je vala˛inoj,* *fraŭlinoj belaj kaj junedzinoj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Fraŭlineto, fraŭlineto, ***
@@ -847,15 +737,9 @@ MAKEDONAJ PERLOJ
 *Se vi diras kion diras panjo? *
 
 
-MAKEDONAJ PERLOJ
-
-
 *—Panjo diras, panjo diras:* *Amu lin, filino! *
 
 *Panjo diras: amu lin, filino! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***is kiam, fratoj, karaj makedonoj:***
@@ -873,9 +757,6 @@ MAKEDONAJ PERLOJ
 *kaj nia granda voĉo devas e˛i:*
 
 *—De tie ĉi — eksteren, grekoj fiaj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Endormiĝas mi, patrino kara, ***
@@ -897,15 +778,9 @@ MAKEDONAJ PERLOJ
 *ĉu ŝin oni donos, kara panjo,* *ĉu ŝin oni donos? *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Kaj se oni donos ŝin, patrino,* *vi fiakre venu, *
 
 *kaj se oni ŝin ne donos, panjo,* *restu, kaj rigardu ŝin! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Unu etfraŭlino***
@@ -925,9 +800,6 @@ MAKEDONAJ PERLOJ
 *en la nigra tero! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ho, fraŭlino, etfraŭlino, ***
 
 *mi envias la trankvilon,* *mi envias la trankvilon,* *ĉar per ĝi vi ĉe gepatroj* *tutan nokton vi dormadas. *
@@ -945,13 +817,7 @@ MAKEDONAJ PERLOJ
 *La kusenon mi brakumas,* *la kusenon mi brakumas,* *larme mi ĝin superverŝiĝas. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Larme mi ĝin superverŝiĝas,* *per naztuk’ mi elviŝiĝas,* *per naztuk’ mi elviŝiĝas,* *miabruste ĝin sekigas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Elena, ido, Elena, ***
@@ -975,9 +841,6 @@ MAKEDONAJ PERLOJ
 *belegan, panjo altprezan! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kiam mi fraŭlo estis, panjo, ***
 
 *tiam sentis mi pli bone, panjo. *
@@ -991,9 +854,6 @@ MAKEDONAJ PERLOJ
 *Eĉ la mano perdis sensivecon, panjo,* *eĉ la mano perdis sensivecon, panjo,* *Ke ne povas mi surĉevaliĝi, panjo,* *ke ne povas mi surĉevaliĝi. *
 
 *Min surĉevaligas kamaradoj, panjo,* *min surĉevaligas kamaradoj. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Edzigu min, kara panjo, ***
@@ -1013,9 +873,6 @@ MAKEDONAJ PERLOJ
 *Por paĉjo kaj vi, patrino,* *por paĉjo kaj vi, patrino,* *grandega ĝojo! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kial lumradias, Dana, vizaĝe, ***
 
 *kaj por kiu fulmas, Dana, okule,* *kaj por kiu gardas, Dana, staturon,* *tiu ĉi staturon, Dana, marmoran? *
@@ -1025,9 +882,6 @@ MAKEDONAJ PERLOJ
 *—Vi pri mi, junulo, nun ne sopiru,* *kaj ne perdu vian tempon, junulo! *
 
 *Hieraŭ vespere mia patrino* *al maljunulaĉo min jam promesis! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Jam subiras suno klara***
@@ -1043,9 +897,6 @@ MAKEDONAJ PERLOJ
 *La folioj denove kreskos,* *ho, arbar’— fratino, *
 
 *sed juneco, fratino mia* *ĉu revenos iam!? *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Adiaŭ, patrino kara, ***
@@ -1065,9 +916,6 @@ MAKEDONAJ PERLOJ
 *Kaj pri vi, patrino kara,* *kaj pri vi mi ofte ploros* *en la nekonata lando, *
 
 *kie mia vivo pasos! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kial vi, patrino, kial vi min naskis? ***
@@ -1095,9 +943,6 @@ Oni recitas:
 *prilumas mi l’naskiĝan lokon, kara panjo! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mezvilaĝe — tamburfrapoj***
 
 *kaj klarnetoj eąs forte,* *gejunuloj rum-dum-dum*
@@ -1115,9 +960,6 @@ MAKEDONAJ PERLOJ
 *—Kien iras, maljunulo*
 
 *streĉi oldan bruston?! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vi eliru, olda panjo, ***
@@ -1144,9 +986,7 @@ MAKEDONAJ PERLOJ
 
 *Li kondukos min en O˛rid,* *patrino mia. *
 
-*Li kondukos min en O˛rid,* 56
-
-MAKEDONAJ PERLOJ
+*Li kondukos min en O˛rid,*
 
 
 *pro li mi mortos. *
@@ -1154,9 +994,6 @@ MAKEDONAJ PERLOJ
 *En la lago perboate*
 
 *ni promenados! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Jana, vi amata, Jana, vi amata, ***
@@ -1172,9 +1009,6 @@ MAKEDONAJ PERLOJ
 *ĉu preparas kokinaĵon aŭ pasteĉon,* *aŭ preparas, kara Jana, ŝafidaĵon? *
 
 *Ho, ŝafidaĵo, Jana, el ŝafido juna? *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Sendis mi por klara akvo vin, Kalina. ***
@@ -1209,9 +1043,7 @@ MAKEDONAJ PERLOJ
 
 *al junuloj donas ĝin vi Kalina. *
 
-*Ne bezonas mi vinberojn, patrino,* 59
-
-MAKEDONAJ PERLOJ
+*Ne bezonas mi vinberojn, patrino,*
 
 
 *se ne estas iu kun*
@@ -1219,9 +1051,6 @@ MAKEDONAJ PERLOJ
 *mi rikoltadu, *
 
 *vin ne aŭskultas mi, ho, vi patrino. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Jovana, Jovanka, ***
@@ -1243,9 +1072,6 @@ MAKEDONAJ PERLOJ
 *malpermesas ĉiam*
 
 *vi ĉe min alvenu, kara,* *koro mia Jovana! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Diru, Jana, diru, koro, ***
@@ -1271,15 +1097,9 @@ MAKEDONAJ PERLOJ
 *Li ĉambreton mian scias,* *la ĉambreton, kalkŝmiritan, kara! *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Malgrandeta estas l’ĉambro,* *por duopo estas l’ĉambro. *
 
 *Malgrandeta estas l’ĉambro,* *por duopo estas l’ĉambro, kara! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Al mi, Katinka, vi diru***
@@ -1301,9 +1121,6 @@ Refreno:
 *Antaŭ pordo mi ekstaru,* *kaj vortojn tri mi eldiru* *kaj vortojn tri mi eldiru,* *vizaĝon vian rigardu. *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Diru, Rajna, diru, koro, ***
@@ -1323,9 +1140,6 @@ Refreno:
 *Ties estro estis, panjo,* *mia amoristo. *
 
 *Tiu lasis al mi signon* *sur l’vizaĝo blanka! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Diru, diru, Stana, kial***
@@ -1351,9 +1165,6 @@ MAKEDONAJ PERLOJ
 *kore al mi: — Panjo! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Vi nudpiede rikolti***
 
 *iras, ho, Kita! *
@@ -1377,9 +1188,6 @@ Refreno:
 *Lasu la serpon vi, Kita,* *venu ĉi tien! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Kiel tiu glaso estas plena je vino, ***
@@ -1395,9 +1203,6 @@ Refreno:
 *Tie, filo, trovos vi fidelan taĉmenton. *
 
 *Tie, filo mia, viajn zorgojn forgesos! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Diantino, fraŭlino kara, ***
@@ -1417,13 +1222,7 @@ MAKEDONAJ PERLOJ
 *Mi intencas mortigi, kara,* *kugle viajn gepatrojn. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Tre bedaŭras mi, kara, mia,* *tre bedaŭras mi, kara,* *ke vi restos orfeto, kara,* *orfeto sen gepatroj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kata, belstatura, Kata, ***
@@ -1437,17 +1236,11 @@ MAKEDONAJ PERLOJ
 *Amis ni nin reciproke,* *sed ne geedziĝis, kara! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Vi, alilandano, kara, ***
 
 *kiam iras tra la vojojn longajn,* *ĉu ne vidis mian Gjorgjon,* *tiun Gjorgjon, kiun mi amegas? *
 
 *—Ja, mi vidis lin drinkeje,* *kie dolĉe li manĝetis,* *kie dolĉe li manĝetis,* *ankaŭ ŝaŭman vinon drinkis! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kiam falis pezvundita***
@@ -1478,9 +1271,7 @@ MAKEDONAJ PERLOJ
 
 *kuracil’ ne estas. *
 
-*Makedonio aliajn naskas* 73
-
-MAKEDONAJ PERLOJ
+*Makedonio aliajn naskas*
 
 
 *ili ĝin liberigos. *
@@ -1490,9 +1281,6 @@ MAKEDONAJ PERLOJ
 *naskos aliajn, *
 
 *por ties liberec’. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kiam beliĝis vi, junedzino, ***
@@ -1513,17 +1301,12 @@ MAKEDONAJ PERLOJ
 
 *nigrahara, nigraokula? *
 
-*ĉu vi havas kaptukon por via bopanjo* 75
-
-MAKEDONAJ PERLOJ
+*ĉu vi havas kaptukon por via bopanjo*
 
 
 *kaj ŝtrumpojn por bofrato via,* *junedzino, nigrahara, *
 
 *nigrahara, nigraokula!? *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Ironte mi al fremdlando, ***
@@ -1543,9 +1326,6 @@ MAKEDONAJ PERLOJ
 *Vizaĝo via anĝela*
 
 *miamanen enfalu, kolombo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kantas mi, pensas aliaj, ***
@@ -1573,9 +1353,6 @@ MAKEDONAJ PERLOJ
 *Ne povas alveni mi, kara,* *ĉar mi pliamas alian! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***ĉe Vardaro ŝi sidis***
 
 *Orĉapeton ŝi brodis. *
@@ -1601,9 +1378,6 @@ Refreno:
 *sian patrinon malbenis. *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***El Kruŝevo alvenis***
@@ -1627,9 +1401,6 @@ Refreno:
 *kaj unu sabron akregan,* *por ribelulino mi iros* *en tiun gloran Smilevon. *
 
 *Kaj tutajn tri jarojn neniu* *homo Todorkan suspektis,* *ke Todorka estas knabino! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vi mensogu, Vera, ***
@@ -1665,9 +1436,6 @@ MAKEDONAJ PERLOJ
 *al fremdlando, kara. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *La malsano tria*
 
 *estas, kara Vera, *
@@ -1675,9 +1443,6 @@ MAKEDONAJ PERLOJ
 *ke pro amo brulas, *
 
 *brulas pro vi, kara! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Malsanas Elena***
@@ -1705,9 +1470,6 @@ MAKEDONAJ PERLOJ
 *knabon en Strumica. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Lena skribas, Lena skribas***
 
 *sur leterpapero blanka nigrajn vortojn. *
@@ -1717,9 +1479,6 @@ MAKEDONAJ PERLOJ
 *Kara Spiro, kara frato,* *jam vi scias, jam vi scias, venu hejmen,* *ĉar malsanas Angelina,* *via Angelina, via junedzino. *
 
 *Spiro venas, Spiro venas* *sur ĉevalo, sur ĉevalo rapidira,* *por ke vidu, por ke vidu* *Angelinan sian, Angelinan sian! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Liljana, kara Liljana, ***
@@ -1748,9 +1507,7 @@ MAKEDONAJ PERLOJ
 
 *knabino, bela Liljana! *
 
-*L’okuloj miaj prezindas* 85
-
-MAKEDONAJ PERLOJ
+*L’okuloj miaj prezindas*
 
 
 *je tuta via ŝafaro. *
@@ -1758,9 +1515,6 @@ MAKEDONAJ PERLOJ
 *Gjorgji tiom*
 
 *l’okuloj miaj prezindas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Knabino bela Liljana, ***
@@ -1780,9 +1534,6 @@ MAKEDONAJ PERLOJ
 *Mi pretas tutan jarcenton* *al vi sklaviĝi, Liljana! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ho, Lina, belega karulino, ***
 
 *kiun nokton mi ĉe vin alvenu. *
@@ -1790,9 +1541,6 @@ MAKEDONAJ PERLOJ
 *ĉiun nokton venu vi, Georgi* *nur ĉi tiun nokton ne alvenu,* *ĉar, Georgi, paĉjo malĉeestas* *iris li en Solun je marĉando. *
 
 *Iris, panjo, mi kaj vidis Linan,* *kiel ŝi priservas bopatrinon! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vartis Jana infanon***
@@ -1820,9 +1568,6 @@ MAKEDONAJ PERLOJ
 *kun amato vidiĝi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Gejunuloj amis sin longe, ***
 
 *tre longe amis sin ili,* *ekde infaneco ties, *
@@ -1842,9 +1587,6 @@ MAKEDONAJ PERLOJ
 *ŝi estiĝis arb’ acera, ho,* *ŝi estiĝis arb’ acera,* *li estiĝis najtingalo,* *karega mia! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Makedona knabino — makedonino, ***
 
 *vi bukedo tre bunta kaj donacita! *
@@ -1862,9 +1604,6 @@ Refreno:
 Refreno:
 
 *Kiel silkon malplektas sian hararon* *pli belega ol feino ŝi! *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -1892,9 +1631,6 @@ Refreno:
 *mia korpo bela! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mariĉa, belega knabino, ***
 
 *pro vi mi pereos kaj mortos,* *ho, aman, ho, aman! *
@@ -1909,9 +1645,7 @@ MAKEDONAJ PERLOJ
 
 *estas orfo sen panjo kaj patro mi,* *ho, aman, ho, aman. *
 
-*Se intencojn tiajn vi havas* *sola vian domon mi venos, ho,* 93
-
-MAKEDONAJ PERLOJ
+*Se intencojn tiajn vi havas* *sola vian domon mi venos, ho,*
 
 
 *ho, aman, ho, aman, *
@@ -1919,17 +1653,11 @@ MAKEDONAJ PERLOJ
 *por restadi tutan jarcenton, ho,* *ho, aman, ho, aman. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ho vi Marija, bela Marija, ***
 
 *kial vi teksas, teksas kaj ploras;* *ĉu la teksilo havas defekton* *aŭ la tekstrabo jam frakasitis? *
 
 *Nek la teksilo havas defekton* *nek la tekstrabo jam frakasiĝis,* *sed mi priploras mian amaton,* *ĉar estas tre malproksime! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Marika bela knabino, ***
@@ -1961,9 +1689,6 @@ MAKEDONAJ PERLOJ
 *—Forpasis nia Marika! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kun tri ŝarĝoveturiloj***
 
 *kanabsakoj da rizgrajno* *ekiris brunhaŭta Donĉo* *al urbo Bitola. *
@@ -1991,15 +1716,9 @@ Refreno:
 *kaj komencis lin torturi. *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 *Brave, brave, ke denuncis* *neniun Donĉo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -2017,9 +1736,6 @@ Refreno:
 *malriĉulo restis mi. *
 
 *Mia lito estas sen matracoŝtofo nun,* *malriĉulo restis mi! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Dronigita estas nia***
@@ -2055,17 +1771,11 @@ MAKEDONAJ PERLOJ
 *kaj al makedonoj ili*
 
 
-MAKEDONAJ PERLOJ
-
-
 *faris testamenton:*
 
 *luktu ili por libero, *
 
 *por Makedonio! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Laca falko trinkas***
@@ -2103,17 +1813,11 @@ Refreno:
 *pezvundita kugle? *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 *Pezvundita kugle, *
 
 *kugle kaj ponarde!? *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -2145,9 +1849,6 @@ Refreno:
 *de sireno mara! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Kuŝas miakore, panjo, ***
@@ -2173,17 +1874,11 @@ Refreno:
 *hirundoj maraj. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Havas ŝi staturon, kara panjo,* *havas ŝi staturon*
 
 *havas ŝi staturon*
 
 *tute konvenata. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Popolo makedona***
@@ -2217,9 +1912,6 @@ MAKEDONAJ PERLOJ
 *en Bitola ĉelo estas! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Bonan nokton vi ne diru, kara, ***
 
 *hejmen ne revenu frue vi. *
@@ -2239,9 +1931,6 @@ MAKEDONAJ PERLOJ
 *Printempo ne alvenas por mi,* *por mi ne floras floretoj;* *unua am’ por vi mi restas,* *kaj la lasta ankaŭ restas vi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ne nasku, panjo mia Makedonio, ***
 
 *filinojn tre belegaj. *
@@ -2255,9 +1944,6 @@ MAKEDONAJ PERLOJ
 *La filinoj modestaj kaj belaj* *kiel floroj forvelkas! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Vi ne ruĝoŝminku, Mara, ne beliĝu***
 
 *kaj ne belvestiĝu tiom, Mara,* *La najbaroj al mi ridas, Mara,* *la najbaroj, Mara, la filistroj. *
@@ -2269,9 +1955,6 @@ MAKEDONAJ PERLOJ
 *Mi estiĝis, Mara, kiel seka arbo,* *mi estiĝis seka arb’ acera. *
 
 *Prenu fajron, Mara, min bruligu,* *min bruligu, Mara, min cindrigu! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vi ne dancu ĉe mi tiom proksime; ***
@@ -2289,9 +1972,6 @@ Refreno:
 Refreno:
 
 *Ne trapasis nek unu jaro* *je alia vi edziniĝis, Donka. *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -2319,9 +1999,6 @@ Refreno:
 *birdeto bunta. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ne forvendu, Koljo, vian bienon, ***
 
 *min por vi ne donas mia patrino! *
@@ -2343,9 +2020,6 @@ Refreno:
 *Mia koleto estas je prezo,* *Koljo, de via ŝafaro! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***ĉu mi ne diris al vi, Donka, ***
@@ -2361,9 +2035,6 @@ Refreno:
 *Fraŭloj el urb’ Bitola, Donka,* *estas ŝercemuloj, *
 
 *multpromesas, kara Donka,* *tamen ne plenumas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vi nudpiede ne iru, kara! ***
@@ -2389,9 +2060,6 @@ Refreno:
 *Patrino donas min al vi, sed patro ne! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kara patrino, ne malbenu kruele, ***
 
 *ke mi estiĝis, kara panjo, alia. *
@@ -2403,9 +2071,6 @@ MAKEDONAJ PERLOJ
 *Se Blaga, kara panjo, estas malsana,* *mi min ŝajnigos kiel juna doktoro,* *kuracos mi ŝin, panjo, senpage. *
 
 *Se Blaga, panjo, estas fianĉiniĝita,* *mi min ŝajnigos kiel juna buĉisto* *kaj mi ŝin, panjo, sabrohakos je pecoj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Vegetis, elkreskis***
@@ -2443,9 +2108,6 @@ MAKEDONAJ PERLOJ
 *estas aminda! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Tiun jaron vi edzigu min, patrino, ***
 
 *ektedas al mi jam fraŭleco mia! *
@@ -2455,9 +2117,6 @@ MAKEDONAJ PERLOJ
 *Kiam ŝi ordigas ties korton larĝan,* *ties staturo mian koron brulas! *
 
 *Tiun jaron mi ne povas vin edzigi,* *filo, ĉar la jaro estas multekosta! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***ŝvebas nuboj, l’agloj kriegas, ***
@@ -2475,9 +2134,6 @@ MAKEDONAJ PERLOJ
 *ĝis kie estas nia Makedonio? *
 
 *ŝtip, Kumanovo, Strumica kaj Struga,* *tra Gevgelio ĝis urbo Solun,* *tie nur gloraj gefratoj vivas,* *gloraj gefratoj, nur makedonoj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***De Bitolo ĝis Vevĉano, ***
@@ -2507,9 +2163,6 @@ Refrreno:
 *Kaj fine sin mortigis Stavro* *pro patrino — Makedonio. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***De Pirinmontara pinto***
 
 *tristega voĉo ŝvebas, *
@@ -2531,9 +2184,6 @@ MAKEDONAJ PERLOJ
 *je oro plena tero*
 
 *kaj ĉiuj min envias! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mi plene konfuziĝis***
@@ -2573,17 +2223,11 @@ MAKEDONAJ PERLOJ
 *unu knabon el Bitolo. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Mi alian jam nun mi havas —*
 
 *unu knabon, *
 
 *unu knabon el Bitolo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Brezovo estas en fajro, Makedonio, ***
@@ -2599,9 +2243,6 @@ MAKEDONAJ PERLOJ
 *Bomboj kaj kugloj ektondris,* *Ordan subite elkriis:*
 
 *—Brezovon ni almilitis, Makedonio! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Brilis, brilis la klareca luno, ***
@@ -2623,15 +2264,9 @@ MAKEDONAJ PERLOJ
 *—Donu al ni, donu al ni, onklo* *donu al ni, onklo, pudron,* *pudron ankaŭ ruĝigilon. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Niaj edzoj estas eksterlande,* *niaj edzoj alveninte, *
 
 *alveninte, ili pagos! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Ho, Jana, Jana, Jana, belega! ***
@@ -2653,9 +2288,6 @@ MAKEDONAJ PERLOJ
 */2*
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ho, Neda, Neda, prenu min vi, ho, Neda. ***
 
 *Se vi min ne prenos, Neda* *vin, hundino, vento prenos,* *ĉar vi min malŝatas! *
@@ -2671,9 +2303,6 @@ MAKEDONAJ PERLOJ
 *Ni esperas, Neda, geedziĝon faru,* *preni, hundino, vin! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ho, vi, birdo najtingala, ***
 
 *vi, ekkantu unu kanton,* *vi, ekkantu unu kanton,* *disaŭdiĝu malproksimen. *
@@ -2687,9 +2316,6 @@ MAKEDONAJ PERLOJ
 *Ho, vi, ho, vi, gekruŝevanoj,* *kial, kial malĝojiĝas,* *kial geinfanoj ploras*
 
 *preter domoj bruligitaj?! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Ordan surverande sidas, ***
@@ -2711,9 +2337,6 @@ MAKEDONAJ PERLOJ
 *Ordan estas kirasita*
 
 *kontraŭ malamika kuglo,* *kontraŭ malamika sabro! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kanton mi kantas, makedonoj, ***
@@ -2747,9 +2370,6 @@ Refreno:
 *mi nepin’ fidela! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Tagiĝas. Kokoj jam kokerikas, ***
@@ -2767,9 +2387,6 @@ Refreno:
 *Lignistoj niaj iras vespere,* *vi kuŝu ĉe mi, bela junulo,* *hararon mian milde karesu! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***La birdo kantas frue matenon, ***
 
 *antaŭ tagiĝo, antaŭ aŭroro,* *vi ellitiĝu, mia edzino,* *pretigu la ĉevalon por vojo. *
@@ -2783,9 +2400,6 @@ MAKEDONAJ PERLOJ
 *Nek monon, nek leteron mi volas,* *nur vin reveni hejmen mi volas. *
 
 *La mon’ perdiĝas, l’leter’ ŝiriĝas,* *eterne daŭras, kara, nur l’amo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mi vagulo estas. ***
@@ -2813,9 +2427,6 @@ MAKEDONAJ PERLOJ
 *tre belega! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Vi levetu, belulino, ***
 
 *la tuketon, *
@@ -2831,9 +2442,6 @@ MAKEDONAJ PERLOJ
 *por l’najbaro, *
 
 *por l’najbaro, mia kara,* *por Janeto! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kun du kruĉoj l’knabino***
@@ -2853,9 +2461,6 @@ MAKEDONAJ PERLOJ
 *akvon volas mi trinki. *
 
 *Ho, ne prenis li l’kruĉon,* *sed ŝin kaptis je mano! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Aŭdu, aŭdu, patriotoj, ***
@@ -2883,9 +2488,6 @@ MAKEDONAJ PERLOJ
 *Tombon por mi ŝi elfosos* *kontraŭ tiu sun’ klara. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Kaj surkruce ŝi enskribos:*
 
 *”Estas entombigita*
@@ -2893,9 +2495,6 @@ MAKEDONAJ PERLOJ
 *Aleksandro tie ĉi, *
 
 *Aleksandro el O˛rid!” *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Demandu, Tinka, gepatroj, ***
@@ -2915,9 +2514,6 @@ MAKEDONAJ PERLOJ
 *ĉar estas Gjorgji drinkulo. *
 
 *Drinkante vinon kaj brandon* *pafadas li per pistoloj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Trapasis Dimĉo, trapasis***
@@ -2951,9 +2547,6 @@ MAKEDONAJ PERLOJ
 *—Vi venu, Dimĉo, veranden* *forestas niaj ŝafistoj! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Malsaniĝis juna makedono***
 
 *kaj neniu venas lin ekvidi* *Ho, kompatinda knabo, kompatinda* *makedono! *
@@ -2970,17 +2563,12 @@ MAKEDONAJ PERLOJ
 
 *Ho, kompatinda knabo, kompatinda* *makedono! *
 
-*Se ni geedziĝos, la doloro* 141
-
-MAKEDONAJ PERLOJ
+*Se ni geedziĝos, la doloro*
 
 
 *en la koro, kara mia, pasos! *
 
 *Knabineto, ho, kun nigraj okuloj* *makedonaj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Blankpiedulino vadas***
@@ -3014,15 +2602,9 @@ MAKEDONAJ PERLOJ
 *En la ĉambron buntan, *
 
 
-MAKEDONAJ PERLOJ
-
-
 *sur sternaĵo mola! *
 
 *Vian hejmon mi ŝanĝos,* *panjon anstataŭos! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Sur la domtegolo, panjo, ***
@@ -3047,17 +2629,12 @@ MAKEDONAJ PERLOJ
 
 *Ho, sternaĵon ni ne havas,* *ne malfermu, kara! *
 
-*Mia belstaturo, panjo,* 145
-
-MAKEDONAJ PERLOJ
+*Mia belstaturo, panjo,*
 
 
 *estos la sternaĵo. *
 
 *Ho, mia belstaturo, panjo,* *estos la sternaĵo! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mi miregas, Cveta, kiel***
@@ -3077,9 +2654,6 @@ MAKEDONAJ PERLOJ
 *Ho, birdo mia, Cveta, ĉe vi mi noktumos,* *ho, ŝafideto, Cveta, en buŝ’ vin mi kisos! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Enplantis Jana, panjo, enplantis Jana, ***
 
 *enplantis Jana, panjo, ocimon fruan,* *sed ŝi ne vidis kiel l’ocimo kreskis,* *sed ŝi ne vidis kiel l’ocimo kreskis. *
@@ -3089,9 +2663,6 @@ MAKEDONAJ PERLOJ
 *Survoje venas, panjo, junulo bela,* *ocimon fruan volas de Jana, panjo:*
 
 *—Deŝiru vi ocimon, se fraŭlo estas,* *se estas vidviĝinta, vi ne deŝiru! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Reve sidas mi***
@@ -3115,9 +2686,6 @@ MAKEDONAJ PERLOJ
 *vin memoras*
 
 *plenas mi je larmoj tutan glason* *kaj ĉemizon blankan trempas,* *miabruste, Trena, ĝin sekigas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Slatinaj rabistoj enen, ***
@@ -3151,9 +2719,6 @@ MAKEDONAJ PERLOJ
 *kaj bruligis l’monaęjon! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Ekaperis nigra nubo***
 
 *en direkto al kampo. *
@@ -3177,17 +2742,11 @@ MAKEDONAJ PERLOJ
 *L’ribeluloj krias: — Hura, hura,* *hura — Makedonio! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***ĉe fajrego la ĉambreto brulis, Trena, ***
 
 *la ĉambreto, kalkŝmirita, kara Trena,* *kalkŝmirita, blankigita, Trena kara. *
 
 *Mi ne tristas, kara Trena, pri l’ĉambreto* *mi bedaŭras, kara Trena, pri l’tirkesto,* *ene estis, kara Trena, la leteroj,* *la leteroj, kara Trena, de l’knabin’! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Alkliniĝis, alkliniĝis ŝar-montaro, kara. ***
@@ -3219,9 +2778,6 @@ MAKEDONAJ PERLOJ
 *Havas mi patrinon. ŝi funebros longe. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *La edzin’ funebros nur duonan tagon, kara. *
 
 *La fratin’ funebros ĝis la edziniĝo. *
@@ -3229,9 +2785,6 @@ MAKEDONAJ PERLOJ
 *La patrin’ funebros ĝis la vivofino, kara. *
 
 *La patrin’ funebros ĝis la vivofino! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kolektiĝis, kolektiĝis la svatantoj, ***
@@ -3257,9 +2810,6 @@ Refreno:
 Refreno:
 
 *La novedzo ploras por la novedzino,* *la svatantoj, la svatantoj — por l’donacoj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -3293,9 +2843,6 @@ Refreno:
 *Mian amon, nigran Gjorgji. *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Fraton la fratin’ invitas por manĝi:***
 
 *—Vespermanĝi venu, venu, ho, frato. *
@@ -3315,9 +2862,6 @@ MAKEDONAJ PERLOJ
 *Plej malgrandan filon, la plej belegan! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mi kanabinon unu amas. ***
 
 *Tio daŭras sep-ok jarojn. *
@@ -3333,9 +2877,6 @@ MAKEDONAJ PERLOJ
 *Lasu ŝin mi donas ducent, ho, aman, aman,* *donas mi tricent ŝin vidi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***ĉiuj junulinoj, panjo, edziniĝis, ***
 
 *prenis la plej belajn junulojn,* *sed la plej malgranda mi kaj la plej bela* *restis, panjo, mi senfeliĉa. *
@@ -3345,9 +2886,6 @@ MAKEDONAJ PERLOJ
 *ĉi vespere iras al drinkejo* *drinki blankan brandon kaj vinon,* *revenante el drinkejo li min batas. *
 
 *Batas min l’drinkul’ malamik’. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***L’junulinoj el Tikveŝo, ho, ***
@@ -3367,9 +2905,6 @@ MAKEDONAJ PERLOJ
 *ilin ekdeziru! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Najtingalo frue kantas, ***
 
 *frue antaŭ mateniĝo. *
@@ -3379,9 +2914,6 @@ MAKEDONAJ PERLOJ
 *La fajrejon nun fajrigas* *la knabin’ unua, *
 
 *l’dua rostas ŝafidaĵon,* *l’tria min rigardas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mi descendis en la kelon. ***
@@ -3399,9 +2931,6 @@ MAKEDONAJ PERLOJ
 *Kial guti sur la teron,* *kial guti sur la teron,* *lasu guti en la buŝon,* *lasu guti en la buŝon. *
 
 *Mi punvergon prenis mane,* *mi punvergon prenis mane,* *kaj envergis sen kalkuli! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Mi aŭdas kiel la foliaro bruas, ***
@@ -3425,9 +2954,6 @@ MAKEDONAJ PERLOJ
 *Makedonino sklavino ties estas! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mi deziras ĉe vin veni, ***
 
 *por dolĉe mi vespermanĝi* *kaj drinki vinon malnovan,* *mia karega! *
@@ -3447,9 +2973,6 @@ MAKEDONAJ PERLOJ
 *mia karega! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Mi estas splene naskita, ***
 
 *malĝoje nepre mi mortos. *
@@ -3463,9 +2986,6 @@ MAKEDONAJ PERLOJ
 *Sub tiuj ruĝaj diantoj* *deziras morti mi nepre! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Sonĝon vidis, sonĝon vidis***
 
 *la edzino de Ordano, *
@@ -3477,9 +2997,6 @@ MAKEDONAJ PERLOJ
 *—Levu, levu vi, Ordano,* *en vilaĝo sieĝita! *
 
 *—Vi, ne timu, ho, edzino,* *pro sieĝo, ĉar mi havas* *nun fusilon ĝustan, kara! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Doloron havas***
@@ -3507,9 +3024,6 @@ MAKEDONAJ PERLOJ
 *feliĉon mian serĉi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Avo paŝtas la ŝafaron***
 
 *en Pirin-montaro. *
@@ -3531,9 +3045,6 @@ MAKEDONAJ PERLOJ
 *la standardon makedonan* *por liber’ flirtigi! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Sorto mia, nigra sorto, ***
 
 *vi, malfidulino, *
@@ -3553,9 +3064,6 @@ MAKEDONAJ PERLOJ
 *kial, sorto, ŝi edzinigis* *min tre malproksime!? *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Kanonoj tondras, ĝemas la tero. ***
 
 *Flamo atingas ĝis la ĉielo:* *malĝoju, miaj fratoj geslavoj,* *Smilevo estas tute en fajro. *
@@ -3567,9 +3075,6 @@ MAKEDONAJ PERLOJ
 *Falas la nigra tiraneco. *
 
 *Sur tiu reĝlando ni ekzistos* *sub tiu vana tiranio. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Beljunulo iris frue***
@@ -3589,9 +3094,6 @@ MAKEDONAJ PERLOJ
 *Laŭ deziro via, kara, *
 
 *al mi ĉio plaĉas! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Havas mi trijaran amon***
@@ -3615,9 +3117,6 @@ Refreno:
 *Mia lasta vivotago, *
 
 *estas via nupta tago! *
-
-
-MAKEDONAJ PERLOJ
 
 
 Refreno:
@@ -3647,9 +3146,6 @@ Refreno:
 *atendante amon! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***Fartas mi malbone! De tri jaroj***
 
 *vi ne venis, Kata, min ekvidi,* *vi ne venis, Kata, min ekvidi,* *nek alportis, Kata ion al mi:* *Nek akvomelonon vintran, Kata,* *nek akvomelonon vintran, Kata,* *nek someran cidonion, Kata,* *nek someran cidonion, Kata! *
@@ -3657,9 +3153,6 @@ MAKEDONAJ PERLOJ
 *Bone faris, ke vi nun alvenis,* *vi malfermu fenestreton mian,* *vi malfermu fenestreton mian,* *por ke vidu vi la lagon, kara. *
 
 *Vidu la ondiĝon en la lago:* *Kiel ludas la ondetoj longaj,* *tiel ludas, Kata, mia koro,* *mia koro por vi, kara mia! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***L’eksterlando malbenita estu. ***
@@ -3677,9 +3170,6 @@ MAKEDONAJ PERLOJ
 *—ĉu amaton mian vi ne vidis,* *ĉu amaton mian vi ne vidis,* *ĉu el eksterlando li revenas. *
 
 *Je la jaro tria li leteron* *al mi sendis, ene min sciigas,* *ke reveni hejmen li ne povas,* *ĉar li je alia edziĝis! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Ne scias, panjo mi kiel***
@@ -3701,15 +3191,9 @@ MAKEDONAJ PERLOJ
 *Konsentis Stojan kun panjo* *kaj fontoŝtonon ekfaris* *por pura akvo malvarma. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Kaj venis ĉiuj por akvo —*
 
 *l’fraŭlinoj kaj l’junedzinoj,* *ne venis hundin’ Liljana! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Pereas, kara avino, tiu Gjorgji***
@@ -3725,9 +3209,6 @@ MAKEDONAJ PERLOJ
 *Kaj se bovidojn li vidas, kara mia,* *deziras kiel propraĵo. *
 
 *Se junedzinon li vidas, kara mia,* *deziras kiel propraĵo. *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Fatecon nigran ekhavis***
@@ -3749,13 +3230,7 @@ MAKEDONAJ PERLOJ
 *Kaj estis li pendumita* *sur urba strato komerca. *
 
 
-MAKEDONAJ PERLOJ
-
-
 *Bitola ekploris pro li,* *pro Aleksandro Turunĝe! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Disiĝas disde patrino***
@@ -3765,9 +3240,6 @@ MAKEDONAJ PERLOJ
 *—Pardonu, panjo, pardonu,* *pardonu, karaj parencoj,* *pardonu, karaj parencoj* *pro mia kulpo antaŭ vi. *
 
 *is nun al panj’ mi subiĝis,* *de nun — al mia bopanjo,* *ankoraŭ al bofratinoj,* *kaj eta mia bofrato! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Kion faru, kara mia, ***
@@ -3789,9 +3261,6 @@ MAKEDONAJ PERLOJ
 *per sopiro kaj per ĝemo* *forĝemas ofte la homoj! *
 
 
-MAKEDONAJ PERLOJ
-
-
 ***ĉevalon selis, ĉevalon selis***
 
 *Dimitro. Kien vi iras, kara? *
@@ -3805,9 +3274,6 @@ MAKEDONAJ PERLOJ
 *Vi restu tie ĉi, karulino,* *kun mi ne iru, kun mi ne iru. *
 
 *Tie malbonaj gardistoj estas,* *ekmurdos ili min, karulino,* *pro ĉarmo via, pro ĉarmo via,* *ĉar estas ili ĝuamaj, kara! *
-
-
-MAKEDONAJ PERLOJ
 
 
 ***Estas por mi plezurego***
@@ -3831,9 +3297,6 @@ Refreno:
 *portante kruĉojn buntetajn! *
 
 
-MAKEDONAJ PERLOJ
-
-
 Refreno:
 
 ***Estas por mi plezurego, ho, aman, aman! ***
@@ -3853,9 +3316,6 @@ Refreno:
 *ĉe Petro ĉiam laboras, aman, aman,* *fraŭlinoj junaj belegaj. *
 
 *ĉe Ivan ĉiam laboras, aman, aman* *avinoj oldaj malbelaj! *
-
-
-MAKEDONAJ PERLOJ
 
 
 NOMVORTARO
@@ -3885,9 +3345,6 @@ Rajna
 Sevda, Spasija, Stana
 
 Tinka, Trena, Todorka, Tarpana Vasa, Vasilikija
-
-
-MAKEDONAJ PERLOJ
 
 
 II. Viraj nomoj
@@ -3921,9 +3378,6 @@ Brezovo — vilaĝo
 Buzan
 
 Edrine = Edirne — urbo en Orienttrakio (Eŭropa Turkio)
-
-
-MAKEDONAJ PERLOJ
 
 
 Kojnik
@@ -3962,9 +3416,7 @@ IV. Kaj ceteraj
 
 nederbu — kie vi estas (Allah) lidu, lidu du (onomatopeo) rum-dum-dum (onomatopeo)
 
-rumba, rumba ba (onomatopeo) tamtamo, tamo, tam (onomatopeo) 188
-
-MAKEDONAJ PERLOJ
+rumba, rumba ba (onomatopeo) tamtamo, tamo, tam (onomatopeo)
 
 
 Enhavo
@@ -3972,7 +3424,7 @@ Enhavo
 Enkonduko
 
 
-Enkondukvortoj de la tradukisto 5
+Enkondukvortoj de la tradukisto
 
 Mesaĝo venis, Donka, el l’kastel’
 
@@ -3995,7 +3447,7 @@ Kara Milka ni forlasu
 Sin pretigas, kara panjo
 
 
-ĉu aŭskultas vi nun, Anĝa belega 14
+ĉu aŭskultas vi nun, Anĝa belega
 
 Anica, trista animo
 
@@ -4015,16 +3467,16 @@ Bitola, nur en Bitola
 Dio punu tiun, kiu
 
 
-Dio murdu, panjo, dio murdu 22
+Dio murdu, panjo, dio murdu
 
-Gjorgji la rabist’ malsanas 23
+Gjorgji la rabist’ malsanas
 
 Nun malsanas juna Stojan
 
 
-Mile Pop-Ordanov malsana kuŝas; 26
+Mile Pop-Ordanov malsana kuŝas;
 
-Plantis pinon juna Evgenija 27
+Plantis pinon juna Evgenija
 
 ŝiris frambojn fraŭlino
 
@@ -4041,27 +3493,24 @@ Forkaptis fiaj turkoj
 Masonis klostron Ilija.
 
 
-ĉiam estu vi, patrino, malbenita 35
+ĉiam estu vi, patrino, malbenita
 
 Da fina vino ruĝkolora
-
-
-MAKEDONAJ PERLOJ
 
 
 Vi parolis, kara:
 
 
-Donu min, patrino kara, donu min 38
+Donu min, patrino kara, donu min
 
-Vi, senprudentaj jaroj junulaj 39
+Vi, senprudentaj jaroj junulaj
 
 Fraŭlineto, fraŭlineto,
 
 
-is kiam, fratoj, karaj makedonoj: 42
+is kiam, fratoj, karaj makedonoj:
 
-Endormiĝas mi, patrino kara 43
+Endormiĝas mi, patrino kara
 
 Unu etfraŭlino
 
@@ -4072,12 +3521,12 @@ Ho, fraŭlino, etfraŭlino
 Elena, ido, Elena
 
 
-Kiam mi fraŭlo estis, panjo 49
+Kiam mi fraŭlo estis, panjo
 
 Edzigu min, kara panjo
 
 
-Kial lumradias, Dana, vizaĝe 51
+Kial lumradias, Dana, vizaĝe
 
 Jam subiras suno klara
 
@@ -4094,7 +3543,7 @@ Mezvilaĝe — tamburfrapoj
 Vi eliru, olda panjo
 
 
-Jana, vi amata, Jana, vi amata 58
+Jana, vi amata, Jana, vi amata
 
 Sendis mi por klara akvo vin, Kalina.
 
@@ -4117,7 +3566,7 @@ Diru, diru, Stana, kial
 Vi nudpiede rikolti
 
 
-Kiel tiu glaso estas plena je vino, 68
+Kiel tiu glaso estas plena je vino,
 
 Diantino, fraŭlino kara
 
@@ -4131,7 +3580,7 @@ Vi, alilandano, kara
 Kiam falis pezvundita
 
 
-Kiam beliĝis vi, junedzino 75
+Kiam beliĝis vi, junedzino
 
 Ironte mi al fremdlando
 
@@ -4140,9 +3589,6 @@ Kantas mi, pensas aliaj
 
 
 ĉe Vardaro ŝi sidis
-
-
-MAKEDONAJ PERLOJ
 
 
 El Kruŝevo alvenis
@@ -4154,7 +3600,7 @@ Vi mensogu, Vera
 Malsanas Elena
 
 
-Lena skribas, Lena skribas 84
+Lena skribas, Lena skribas
 
 Liljana, kara Liljana
 
@@ -4171,7 +3617,7 @@ Vartis Jana infanon
 Gejunuloj amis sin longe
 
 
-Makedona knabino — makedonino 91
+Makedona knabino — makedonino
 
 Kiu je pordo frapfrapas?
 
@@ -4206,32 +3652,32 @@ Kuŝas miakore, panjo
 Popolo makedona
 
 
-Bonan nokton vi ne diru, kara 108
+Bonan nokton vi ne diru, kara
 
-Ne nasku, panjo mia Makedonio 109
+Ne nasku, panjo mia Makedonio
 
-Vi ne ruĝoŝminku, Mara, ne beliĝu 110
+Vi ne ruĝoŝminku, Mara, ne beliĝu
 
-Vi ne dancu ĉe mi tiom proksime; 111
+Vi ne dancu ĉe mi tiom proksime;
 
 Ne gravigu vin, karega
 
 
-Ne forvendu, Koljo, vian bienon 113
+Ne forvendu, Koljo, vian bienon
 
-ĉu mi ne diris al vi, Donka 114
+ĉu mi ne diris al vi, Donka
 
 Vi nudpiede ne iru, kara!
 
 
-Kara patrino, ne malbenu kruele 116
+Kara patrino, ne malbenu kruele
 
 Vegetis, elkreskis
 
 
-Tiun jaron vi edzigu min, patrino 118
+Tiun jaron vi edzigu min, patrino
 
-ŝvebas nuboj, l’agloj kriegas 119
+ŝvebas nuboj, l’agloj kriegas
 
 De Bitolo ĝis Vevĉano
 
@@ -4239,15 +3685,12 @@ De Bitolo ĝis Vevĉano
 De Pirinmontara pinto
 
 
-MAKEDONAJ PERLOJ
-
-
 Mi plene konfuziĝis
 
 
-Brezovo estas en fajro, Makedonio 124
+Brezovo estas en fajro, Makedonio
 
-Brilis, brilis la klareca luno 125
+Brilis, brilis la klareca luno
 
 Ho, Jana, Jana, Jana, belega!
 
@@ -4261,11 +3704,11 @@ Ho, vi, birdo najtingala
 Ordan surverande sidas
 
 
-Kanton mi kantas, makedonoj 131
+Kanton mi kantas, makedonoj
 
-Tagiĝas. Kokoj jam kokerikas 132
+Tagiĝas. Kokoj jam kokerikas
 
-La birdo kantas frue matenon 133
+La birdo kantas frue matenon
 
 Mi vagulo estas.
 
@@ -4297,7 +3740,7 @@ Sur la domtegolo, panjo
 Mi miregas, Cveta, kiel
 
 
-Enplantis Jana, panjo, enplantis Jana 148
+Enplantis Jana, panjo, enplantis Jana
 
 Reve sidas mi
 
@@ -4308,24 +3751,24 @@ Slatinaj rabistoj enen
 Ekaperis nigra nubo
 
 
-ĉe fajrego la ĉambreto brulis, Trena 152
+ĉe fajrego la ĉambreto brulis, Trena
 
 Alkliniĝis, alkliniĝis ŝar-montaro, kara.
 
 
-Kolektiĝis, kolektiĝis la svatantoj 155
+Kolektiĝis, kolektiĝis la svatantoj
 
 Oni Donkan fianĉinigis
 
 
-Fraton la fratin’ invitas por manĝi: 157
+Fraton la fratin’ invitas por manĝi:
 
 Mi kanabinon unu amas.
 
 
-ĉiuj junulinoj, panjo, edziniĝis 159
+ĉiuj junulinoj, panjo, edziniĝis
 
-L’junulinoj el Tikveŝo, ho 160
+L’junulinoj el Tikveŝo, ho
 
 Najtingalo frue kantas
 
@@ -4333,10 +3776,7 @@ Najtingalo frue kantas
 Mi descendis en la kelon.
 
 
-Mi aŭdas kiel la foliaro bruas 163
-
-
-MAKEDONAJ PERLOJ
+Mi aŭdas kiel la foliaro bruas
 
 
 Mi deziras ĉe vin veni
@@ -4345,7 +3785,7 @@ Mi deziras ĉe vin veni
 Mi estas splene naskita
 
 
-Sonĝon vidis, sonĝon vidis 166
+Sonĝon vidis, sonĝon vidis
 
 Doloron havas
 
@@ -4368,7 +3808,7 @@ Havas mi trijaran amon
 Jam tri jarojn amas
 
 
-Fartas mi malbone! De tri jaroj 174
+Fartas mi malbone! De tri jaroj
 
 L’eksterlando malbenita estu.
 
@@ -4376,7 +3816,7 @@ L’eksterlando malbenita estu.
 Ne scias, panjo mi kiel
 
 
-Pereas, kara avino, tiu Gjorgji 178
+Pereas, kara avino, tiu Gjorgji
 
 Fatecon nigran ekhavis
 
@@ -4387,7 +3827,7 @@ Disiĝas disde patrino
 Kion faru, kara mia
 
 
-ĉevalon selis, ĉevalon selis 183
+ĉevalon selis, ĉevalon selis
 
 Estas por mi plezurego
 
@@ -4396,9 +3836,6 @@ Estas por mi plezurego, ho, aman, aman!
 
 
 Nomvortaro
-
-
-MAKEDONAJ PERLOJ
 
 
 www.omnibus.se/

@@ -4,7 +4,7 @@ Malnova
 
 testamento
 
-Parto 3
+Parto
 
 
 L A S A N K TA B I B L I O
@@ -14,105 +14,68 @@ La Sankta Biblio
 
 MALNOVA TESTAMENTO
 
-Parto 3
-
-
-X
-
-@omnibus.se
-
-·
-
-
-L A S A N K TA B I B L I O
+Parto
 
 
 Ezra
 
-ĉapitro 1
+ĉapitro
 
-1 En la unua jaro de Ciro, reĝo de Persujo, por ke plenumiĝu la vor-to de la Eternulo, dirita per Jeremia, la Eternulo ekscitis la spiriton de Ciro, reĝo de Persujo, kaj ĉi tiu ordonis proklami en sia tuta regno voĉe kaj skribe jenon: 2 Tiele diras Ciro, reĝo de Persujo: ĉiujn regnojn de la tero donis al mi la Eternulo, Dio de la ĉielo, kaj Li komisiis al mi konstrui al Li domon en Jerusalem, kiu estas en Judu-
-
-jo. 3 Kiu inter vi estas el Lia tuta popolo, kun tiu estu lia Dio; kaj li iru en Jerusalemon, kiu estas en Judujo, kaj konstruu la domon de
+1 En la unua jaro de Ciro, reĝo de Persujo, por ke plenumiĝu la vor-to de la Eternulo, dirita per Jeremia, la Eternulo ekscitis la spiriton de Ciro, reĝo de Persujo, kaj ĉi tiu ordonis proklami en sia tuta regno voĉe kaj skribe jenon: 2 Tiele diras Ciro, reĝo de Persujo: ĉiujn regnojn de la tero donis al mi la Eternulo, Dio de la ĉielo, kaj Li komisiis al mi konstrui al Li domon en Jerusalem, kiu estas en Judujo. 3 Kiu inter vi estas el Lia tuta popolo, kun tiu estu lia Dio; kaj li iru en Jerusalemon, kiu estas en Judujo, kaj konstruu la domon de
 
 la Eternulo, Dio de Izrael, de tiu Dio, kiu estas en Jerusalem. 4 Kaj al ĉiu, kiu restis, en kiu ajn loko li loĝas, la loĝantoj de lia loko helpu al li per arĝento, per oro, per alia havo, kaj per brutoj, kun memvola donaco por la domo de Dio, kiu estas en Jerusalem. 5 Kaj leviĝis la ĉefoj de la patrodomoj de Jehuda kaj de Benjamen, kaj la pastroj kaj la Levidoj, ĉiu, en kiu Dio vekis lian spiriton, por iri konstrui la domon de la Eternulo en Jerusalem. 6 Kaj ĉiuj iliaj ĉirkaŭantoj helpis al ili per arĝentaj objektoj, per oro, per alia havo, per brutoj, kaj per multekostaĵoj, krom ĉiuj memvolaj donacoj. 7 Kaj la reĝo Ciro
 
-elportigis la vazojn de la domo de la Eternulo, kiujn Nebukadnecar estis elportinta el Jerusalem kaj metinta en la domon de liaj dioj; 8
+elportigis la vazojn de la domo de la Eternulo, kiujn Nebukadnecar estis elportinta el Jerusalem kaj metinta en la domon de liaj dioj;
 
-Ciro, reĝo de Persujo, elportigis ilin per la trezoristo Mitredat, kiu laŭkalkule transdonis ilin al ŝeŝbacar, princo de la Judoj. 9 Kaj jen estas ilia nombro: da oraj pelvoj tridek, da arĝentaj pelvoj mil, da tranĉiloj dudek naŭ, 10 da oraj kalikoj tridek, da arĝentaj duoblaj 877
-
-L A S A N K TA B I B L I O
+Ciro, reĝo de Persujo, elportigis ilin per la trezoristo Mitredat, kiu laŭkalkule transdonis ilin al ŝeŝbacar, princo de la Judoj. 9 Kaj jen estas ilia nombro: da oraj pelvoj tridek, da arĝentaj pelvoj mil, da tranĉiloj dudek naŭ, 10 da oraj kalikoj tridek, da arĝentaj duoblaj
 
 
-kalikoj kvarcent dek, da aliaj vazoj mil. 11 La nombro de ĉiuj vazoj oraj kaj arĝentaj estis kvin mil kvarcent. ĉion ĉi tion kunportis ŝeŝ-
+kalikoj kvarcent dek, da aliaj vazoj mil. 11 La nombro de ĉiuj vazoj oraj kaj arĝentaj estis kvin mil kvarcent. ĉion ĉi tion kunportis ŝeŝbacar ĉe la foriro de la forkaptitoj el Babel en Jerusalemon.
 
-bacar ĉe la foriro de la forkaptitoj el Babel en Jerusalemon.
+ĉapitro
 
-ĉapitro 2
+1 Jen estas la loĝantoj de la lando, kiuj iris el la forkaptitoj, kiujn forkondukis en Babelon Nebukadnecar, reĝo de Babel, kaj kiuj revenis en Jerusalemon kaj en Judujon, ĉiu en sian urbon, 2 kiuj venis kun Zerubabel, Jeŝua, Neęmja, Seraja, Reelaja, Mordeąj, Bil-
 
-1 Jen estas la loĝantoj de la lando, kiuj iris el la forkaptitoj, kiujn forkondukis en Babelon Nebukadnecar, reĝo de Babel, kaj kiuj revenis en Jerusalemon kaj en Judujon, ĉiu en sian urbon, 2 kiuj ve-
-
-nis kun Zerubabel, Jeŝua, Neęmja, Seraja, Reelaja, Mordeąj, Bil-
-
-ŝan, Miŝpar, Bigvaj, Re˛um, Baana. La nombro de la viroj de la po-
-
-polo Izraela estis: 3 de la idoj de Paroŝ, du mil cent sepdek du, 4 de la idoj de ŝefatja, tricent sepdek du, 5 de la idoj de Ara˛, sepcent sepdek kvin, 6 de la idoj de Paąt-Moab, el la idoj de Jeŝua kaj Joab, du mil okcent dek du, 7 de la idoj de Elam, mil ducent kvindek kvar, 8 de la idoj de Zatu, naŭcent kvardek kvin, 9 de la idoj de Zakaj, sepcent sesdek, 10 de la idoj de Bani, sescent kvardek du, 11 de la idoj de Bebaj, sescent dudek tri, 12 de la idoj de Azgad, mil ducent dudek du, 13 de la idoj de Adonikam, sescent sesdek ses, 14 de la idoj de Bigvaj, du mil kvindek ses, 15 de la idoj de Adin, kvarcent kvindek kvar, 16 de la idoj de Ater, el la domo de ˘izkija, naŭdek ok, 17
+ŝan, Miŝpar, Bigvaj, Re˛um, Baana. La nombro de la viroj de la popolo Izraela estis: 3 de la idoj de Paroŝ, du mil cent sepdek du, 4 de la idoj de ŝefatja, tricent sepdek du, 5 de la idoj de Ara˛, sepcent sepdek kvin, 6 de la idoj de Paąt-Moab, el la idoj de Jeŝua kaj Joab, du mil okcent dek du, 7 de la idoj de Elam, mil ducent kvindek kvar, 8 de la idoj de Zatu, naŭcent kvardek kvin, 9 de la idoj de Zakaj, sepcent sesdek, 10 de la idoj de Bani, sescent kvardek du, 11 de la idoj de Bebaj, sescent dudek tri, 12 de la idoj de Azgad, mil ducent dudek du, 13 de la idoj de Adonikam, sescent sesdek ses, 14 de la idoj de Bigvaj, du mil kvindek ses, 15 de la idoj de Adin, kvarcent kvindek kvar, 16 de la idoj de Ater, el la domo de ˘izkija, naŭdek ok,
 
 de la idoj de Becaj, tricent dudek tri, 18 de la idoj de Jora, cent dek du, 19 de la idoj de ˘aŝum, ducent dudek tri, 20 de la idoj de Gibar, naŭdek kvin, 21 de la idoj de Bet-Leęm, cent dudek tri, 22 de la
 
 loĝantoj de Netofa, kvindek ses, 23 de la loĝantoj de Anatot, cent dudek ok, 24 de la idoj de Azmavet, kvardek du, 25 de la idoj de Kirjat-Arim, Kefira, kaj Beerot, sepcent kvardek tri, 26 de la idoj de Ra-ma kaj Geba, sescent dudek unu, 27 de la loĝantoj de Mi˛mas, cent
 
-dudek du, 28 de la loĝantoj de Bet-El kaj Aj, ducent dudek tri, 29 de la idoj de Nebo, kvindek du, 30 de la idoj de Magbiŝ, cent kvindek 878
-
-L A S A N K TA B I B L I O
+dudek du, 28 de la loĝantoj de Bet-El kaj Aj, ducent dudek tri, 29 de la idoj de Nebo, kvindek du, 30 de la idoj de Magbiŝ, cent kvindek
 
 
-ses, 31 de la idoj de la alia Elam, mil ducent kvindek kvar, 32 de la idoj de ˘arim, tricent dudek, 33 de la idoj de Lod, ˘adid, kaj Ono, sepcent dudek kvin, 34 de la idoj de Jeri˛o, tricent kvardek kvin, 35
+ses, 31 de la idoj de la alia Elam, mil ducent kvindek kvar, 32 de la idoj de ˘arim, tricent dudek, 33 de la idoj de Lod, ˘adid, kaj Ono, sepcent dudek kvin, 34 de la idoj de Jeri˛o, tricent kvardek kvin,
 
 de la idoj de Senaa, tri mil sescent tridek. 36 De la pastroj: de la idoj de Jedaja, el la domo de Jeŝua, naŭcent sepdek tri, 37 de la idoj de Imer, mil kvindek du, 38 de la idoj de Paŝ˛ur, mil ducent kvardek
 
 sep, 39 de la idoj de ˘arim, mil dek sep. 40 De la Levidoj: de la idoj de Jeŝua kaj Kadmiel, el la filoj de ˘odavja, sepdek kvar. 41 De la kantistoj: de la idoj de Asaf, cent dudek ok. 42 De la idoj de la pordegistoj: la idoj de ŝalum, la idoj de Ater, la idoj de Talmon, la idoj de Akub, la idoj de ˘atita, la idoj de ŝobaj, ĉiuj kune cent tridek naŭ. 43 De la Netinoj: la idoj de Cią, la idoj de ˘asufa, la idoj de Tabaot, 44 la idoj de Keros, la idoj de Siaha, la idoj de Padon, 45 la idoj de Lebana, la idoj de ˘agaba, la idoj de Akub, 46 la idoj de ˘agab, la idoj de ŝalmaj, la idoj de ˘anan, 47 la idoj de Gidel, la idoj de Gaąr, la idoj de Reaja, 48 la idoj de Recin, la idoj de Nekoda, la idoj de Gazam, 49 la idoj de Uza, la idoj de Pasea˛, la idoj de Besaj, 50 la idoj de Asna, la idoj de Meunim, la idoj de Nefusim, 51 la idoj de Bakbuk, la idoj de ˘akufa, la idoj de ˘ar˛ur, 52 la idoj de Baclut, la idoj de Me˛ida, la idoj de ˘arŝa, 53 la idoj de Barkos, la idoj de Sisra, la idoj de Tama˛, 54 la idoj de Necia˛, la idoj de ˘atifa. 55 La idoj de la servantoj de Salomono: la idoj de Sotaj, la idoj de Soferet, la idoj de Peruda, 56 la idoj de Jaala, la idoj de Darkon, la idoj de Gidel, 57 la idoj de ŝefatja, la idoj de ˘atil, la idoj de Poęret-Cebaim, la idoj de Ami. 58 La nombro de ĉiuj Netinoj kaj de la idoj de la servantoj de Salomono estis tricent naŭdek du. 59 Kaj jen estas la elirintoj el Tel-Mela˛, Tel-˘arŝa, Kerub, Adan, kaj Imer, kiuj ne
 
-povis montri sian patrodomon kaj devenon, ĉu ili devenas de Izrael: 60 la idoj de Delaja, la idoj de Tobija, la idoj de Nekoda, sescent kvindek du. 61 Kaj el la pastridoj: la idoj de ˘abaja, la idoj de Ha-879
+povis montri sian patrodomon kaj devenon, ĉu ili devenas de Izrael: 60 la idoj de Delaja, la idoj de Tobija, la idoj de Nekoda, sescent kvindek du. 61 Kaj el la pastridoj: la idoj de ˘abaja, la idoj de Hakoc, la idoj de Barzilaj, kiu prenis al si edzinon el la filinoj de Barzilaj, la Gileadano, kaj estis nomata per ilia nomo. 62 Ili serĉis siajn dokumentojn genealogiajn, sed ĉi tiuj ne troviĝis; tial ili estis eligitaj el la listo de la pastroj. 63 Kaj la regionestro diris al ili, ke ili ne manĝu el la plejsanktaĵo, ĝis aperos pastro kun la signoj de lumo kaj de justo. 64 La tuta komunumo kune konsistis el kvardek du mil
 
-L A S A N K TA B I B L I O
-
-
-koc, la idoj de Barzilaj, kiu prenis al si edzinon el la filinoj de Barzilaj, la Gileadano, kaj estis nomata per ilia nomo. 62 Ili serĉis siajn dokumentojn genealogiajn, sed ĉi tiuj ne troviĝis; tial ili estis eligitaj el la listo de la pastroj. 63 Kaj la regionestro diris al ili, ke ili ne manĝu el la plejsanktaĵo, ĝis aperos pastro kun la signoj de lumo kaj de justo. 64 La tuta komunumo kune konsistis el kvardek du mil
-
-tricent sesdek homoj, 65 krom iliaj sklavoj kaj sklavinoj, kies nombro estis sep mil tricent tridek sep, kaj al tio estis ducent kantistoj kaj kantistinoj. 66 Da ĉevaloj ili havis sepcent tridek ses; da muloj ili havis ducent kvardek kvin; 67 da kameloj ili havis kvarcent tridek kvin; da azenoj ses mil sepcent dudek. 68 Kelkaj el la ĉefoj de patrodomoj, veninte al la domo de la Eternulo en Jerusalem, faris mem-
-
-volan oferon por la domo de Dio, por restarigi ĝin sur ĝia funda-
+tricent sesdek homoj, 65 krom iliaj sklavoj kaj sklavinoj, kies nombro estis sep mil tricent tridek sep, kaj al tio estis ducent kantistoj kaj kantistinoj. 66 Da ĉevaloj ili havis sepcent tridek ses; da muloj ili havis ducent kvardek kvin; 67 da kameloj ili havis kvarcent tridek kvin; da azenoj ses mil sepcent dudek. 68 Kelkaj el la ĉefoj de patrodomoj, veninte al la domo de la Eternulo en Jerusalem, faris memvolan oferon por la domo de Dio, por restarigi ĝin sur ĝia funda-
 
 mento. 69 Laŭ sia povo ili donis en la trezorejon de la laboroj: da oro sesdek unu mil darkemonojn, da arĝento kvin mil min’ojn, kaj da
 
 pastraj vestoj cent. 70 Kaj ekloĝis la pastroj kaj la Levidoj kaj la po-polanoj kaj la kantistoj kaj la pordegistoj kaj la Netinoj en siaj urboj, kaj la tuta Izrael en siaj urboj.
 
-ĉapitro 3
+ĉapitro
 
-1 Kiam venis la sepa monato kaj la Izraelidoj estis jam en la urboj, kolektiĝis la tuta popolo, kiel unu homo, en Jerusalem. 2 Kaj leviĝis Jeŝua, filo de Jocadak, kaj liaj fratoj, la pastroj, kaj Zerubabel, filo de ŝealtiel, kaj liaj fratoj, kaj ili konstruis la altaron de Dio de Izrael, por alportadi sur ĝi bruloferojn, kiel estas skribite en la instruo de Moseo, la homo de Dio. 3 Kaj ili aranĝis la altaron sur ĝia loko, ĉar ili timis la popolojn de la landoj; kaj ili komencis alportadi sur ĝi bruloferojn al la Eternulo, bruloferojn matenajn kaj vesperajn. 4 Kaj ili solenis la feston de laŭboj, kiel estas skribite, kaj faris la ĉiutagajn 880
-
-L A S A N K TA B I B L I O
+1 Kiam venis la sepa monato kaj la Izraelidoj estis jam en la urboj, kolektiĝis la tuta popolo, kiel unu homo, en Jerusalem. 2 Kaj leviĝis Jeŝua, filo de Jocadak, kaj liaj fratoj, la pastroj, kaj Zerubabel, filo de ŝealtiel, kaj liaj fratoj, kaj ili konstruis la altaron de Dio de Izrael, por alportadi sur ĝi bruloferojn, kiel estas skribite en la instruo de Moseo, la homo de Dio. 3 Kaj ili aranĝis la altaron sur ĝia loko, ĉar ili timis la popolojn de la landoj; kaj ili komencis alportadi sur ĝi bruloferojn al la Eternulo, bruloferojn matenajn kaj vesperajn. 4 Kaj ili solenis la feston de laŭboj, kiel estas skribite, kaj faris la ĉiutagajn
 
 
-bruloferojn laŭ ilia nombro, konforme al tio, kio estas preskribita por ĉiu tago; 5 kaj post tio la ĉiutagajn bruloferojn, kaj por la monatkomencoj kaj por ĉiuj sanktigitaj festoj de la Eternulo, kaj por ĉiu, kiu alportis memvolan oferon al la Eternulo. 6 De la unua tago de la sepa monato ili komencis alportadi bruloferojn al la Eternulo. Sed la fundamento por la templo de la Eternulo ankoraŭ ne es-
-
-tis starigita. 7 Kaj ili donis monon al la ŝtonhakistoj kaj ĉarpentistoj, kaj manĝaĵon, trinkaĵon, kaj oleon al Cidonanoj kaj Tiranoj, por ke ili venigu cedrojn de Lebanon per la maro ĝis Jafo, konforme al la permeso, kiun donis al ili Ciro, reĝo de Persujo.
+bruloferojn laŭ ilia nombro, konforme al tio, kio estas preskribita por ĉiu tago; 5 kaj post tio la ĉiutagajn bruloferojn, kaj por la monatkomencoj kaj por ĉiuj sanktigitaj festoj de la Eternulo, kaj por ĉiu, kiu alportis memvolan oferon al la Eternulo. 6 De la unua tago de la sepa monato ili komencis alportadi bruloferojn al la Eternulo. Sed la fundamento por la templo de la Eternulo ankoraŭ ne estis starigita. 7 Kaj ili donis monon al la ŝtonhakistoj kaj ĉarpentistoj, kaj manĝaĵon, trinkaĵon, kaj oleon al Cidonanoj kaj Tiranoj, por ke ili venigu cedrojn de Lebanon per la maro ĝis Jafo, konforme al la permeso, kiun donis al ili Ciro, reĝo de Persujo.
 
 8 En la dua jaro post ilia alveno al la domo de Dio en Jerusalem,
 
-en la dua monato, Zerubabel, filo de ŝealtiel, kaj Jeŝua, filo de Jocadak, kaj iliaj ceteraj fratoj, la pastroj, kaj la Levidoj, kaj ĉiuj, kiuj venis el la kaptiteco en Jerusalemon, faris la komencon, kaj starigis la Levidojn, havantajn la aĝon de dudek jaroj kaj pli, por inspekti la laborojn en la domo de la Eternulo. 9 Kaj Jeŝua kun siaj filoj kaj fratoj, kaj Kadmiel kun siaj filoj, la idoj de Jehuda, stariĝis kiel unu homo, por inspekti la faradon de la laboroj en la domo de Dio, an-kaŭ la idoj de ˘enadad kun siaj filoj kaj fratoj, la Levidoj. 10 Kiam la konstruistoj starigis fundamenton por la templo de la Eternulo, tiam stariĝis la pastroj en siaj vestoj kun trumpetoj, kaj la Levidoj, idoj de Asaf, kun cimbaloj, por glori la Eternulon per la kantoj de David, reĝo de Izrael. 11 Kaj ili ekkantis gloron kaj laŭdon al la Eternulo, ke Li estas bona, ke eterna estas Lia favorkoreco al Izrael; kaj la tuta popolo ĝojkriis laŭte, glorante la Eternulon pro la fondo de la domo de la Eternulo. 12 Kaj multaj el la pastroj kaj el la Levidoj kaj el la ĉefoj de patrodomoj, maljunuloj, kiuj vidis la unuan templon, nun, ĉe la fondado de ĉi tiu templo antaŭ iliaj okuloj, laŭte ploris; sed multaj laŭte ĝojkriis. 13 Kaj la popolo ne povis distingi inter 881
-
-L A S A N K TA B I B L I O
+en la dua monato, Zerubabel, filo de ŝealtiel, kaj Jeŝua, filo de Jocadak, kaj iliaj ceteraj fratoj, la pastroj, kaj la Levidoj, kaj ĉiuj, kiuj venis el la kaptiteco en Jerusalemon, faris la komencon, kaj starigis la Levidojn, havantajn la aĝon de dudek jaroj kaj pli, por inspekti la laborojn en la domo de la Eternulo. 9 Kaj Jeŝua kun siaj filoj kaj fratoj, kaj Kadmiel kun siaj filoj, la idoj de Jehuda, stariĝis kiel unu homo, por inspekti la faradon de la laboroj en la domo de Dio, an-kaŭ la idoj de ˘enadad kun siaj filoj kaj fratoj, la Levidoj. 10 Kiam la konstruistoj starigis fundamenton por la templo de la Eternulo, tiam stariĝis la pastroj en siaj vestoj kun trumpetoj, kaj la Levidoj, idoj de Asaf, kun cimbaloj, por glori la Eternulon per la kantoj de David, reĝo de Izrael. 11 Kaj ili ekkantis gloron kaj laŭdon al la Eternulo, ke Li estas bona, ke eterna estas Lia favorkoreco al Izrael; kaj la tuta popolo ĝojkriis laŭte, glorante la Eternulon pro la fondo de la domo de la Eternulo. 12 Kaj multaj el la pastroj kaj el la Levidoj kaj el la ĉefoj de patrodomoj, maljunuloj, kiuj vidis la unuan templon, nun, ĉe la fondado de ĉi tiu templo antaŭ iliaj okuloj, laŭte ploris; sed multaj laŭte ĝojkriis. 13 Kaj la popolo ne povis distingi inter
 
 
 la sonoj de la ĝojkriado kaj la sonoj de la popola plorado; ĉar la popolo kriis tre laŭte, kaj tiu kriado estis aŭdata malproksime.
 
-ĉapitro 4
+ĉapitro
 
-1 Kiam la malamikoj de Jehuda kaj Benjamen aŭdis, ke la revenin-
-
-toj el la kaptiteco konstruas templon al la Eternulo, Dio de Izrael, 2 tiam ili venis al Zerubabel kaj al la ĉefoj de la patrodomoj, kaj diris al ili: Ni ankaŭ deziras konstrui kun vi, ĉar simile al vi ni ankaŭ ser-
+1 Kiam la malamikoj de Jehuda kaj Benjamen aŭdis, ke la revenintoj el la kaptiteco konstruas templon al la Eternulo, Dio de Izrael, 2 tiam ili venis al Zerubabel kaj al la ĉefoj de la patrodomoj, kaj diris al ili: Ni ankaŭ deziras konstrui kun vi, ĉar simile al vi ni ankaŭ ser-
 
 ĉas vian Dion, kaj al Li ni alportas oferojn de post la tempo de Esar-
 
@@ -124,27 +87,21 @@ Dario, reĝo de Persujo. 6 Kaj en la tempo de la reĝado de Aąŝveroŝ, en la k
 
 7 En la tempo de Arta˛ŝaŝt skribis Biŝlam, Mitredat, Tabeel, kaj
 
-la aliaj iliaj kunuloj al Arta˛ŝaŝt, reĝo de Persujo: la letero estis skribita Sirie kaj klarigita Sirie. 8 Re˛um, konsilisto, kaj ŝimŝaj, skribisto, skribis unu leteron kontraŭ Jerusalem al Arta˛ŝaŝt, la reĝo, en la sekvanta maniero: 9 Ni, Re˛um, konsilisto, kaj ŝimŝaj, skribisto, kaj iliaj aliaj kunuloj, Dinaanoj, Afarsatąnoj, Tarpelanoj, Afarsanoj, Arkevanoj, Babelanoj, ŝuŝananoj, Dehaanoj, Elamanoj, 10 kaj la aliaj popoloj, kiujn transloĝigis Asnapar, la granda kaj glora, kaj enloĝigis en Samario kaj en la aliaj urboj transriveraj, kaj tiel plu. 11 Jen 882
-
-L A S A N K TA B I B L I O
+la aliaj iliaj kunuloj al Arta˛ŝaŝt, reĝo de Persujo: la letero estis skribita Sirie kaj klarigita Sirie. 8 Re˛um, konsilisto, kaj ŝimŝaj, skribisto, skribis unu leteron kontraŭ Jerusalem al Arta˛ŝaŝt, la reĝo, en la sekvanta maniero: 9 Ni, Re˛um, konsilisto, kaj ŝimŝaj, skribisto, kaj iliaj aliaj kunuloj, Dinaanoj, Afarsatąnoj, Tarpelanoj, Afarsanoj, Arkevanoj, Babelanoj, ŝuŝananoj, Dehaanoj, Elamanoj, 10 kaj la aliaj popoloj, kiujn transloĝigis Asnapar, la granda kaj glora, kaj enloĝigis en Samario kaj en la aliaj urboj transriveraj, kaj tiel plu. 11 Jen
 
 
-estas la teksto de la letero, kiun ili sendis al li: Al la reĝo Arta˛ŝaŝt viaj sklavoj, la transriveranoj, kaj tiel plu. 12 Estu sciate al la reĝo, ke la Judoj, kiuj foriris de vi kaj venis al ni en Jerusalemon, rekonstruas nun tiun ribeleman kaj malbonan urbon kaj faras muregojn kaj starigas jam la fundamentojn. 13 Nun estu sciate al la reĝo, ke se tiu urbo estos konstruita kaj la muregoj estos finitaj, tiam ili ne donos tributon nek impostojn nek jarpagon, kaj la reĝa kaso havos malprofiton. 14 ĉar ni manĝas salon el la reĝa palaco, kaj ni ne volas vidi ion, kio malhonoras la reĝon, tial ni sendas kaj sciigas al la reĝo, 15
+estas la teksto de la letero, kiun ili sendis al li: Al la reĝo Arta˛ŝaŝt viaj sklavoj, la transriveranoj, kaj tiel plu. 12 Estu sciate al la reĝo, ke la Judoj, kiuj foriris de vi kaj venis al ni en Jerusalemon, rekonstruas nun tiun ribeleman kaj malbonan urbon kaj faras muregojn kaj starigas jam la fundamentojn. 13 Nun estu sciate al la reĝo, ke se tiu urbo estos konstruita kaj la muregoj estos finitaj, tiam ili ne donos tributon nek impostojn nek jarpagon, kaj la reĝa kaso havos malprofiton. 14 ĉar ni manĝas salon el la reĝa palaco, kaj ni ne volas vidi ion, kio malhonoras la reĝon, tial ni sendas kaj sciigas al la reĝo,
 
 ke oni serĉu en la kronikoj de viaj patroj, kaj vi trovos en la kronikoj kaj konkvinkiĝos, ke tiu urbo estas urbo ribelema kaj malutila por la reĝoj kaj landoj, kaj ke ribeloj estis farataj en ĝi de la plej malproksimaj tempoj, kio estas la kaŭzo, pro kiu tiu urbo estis detrui-ta. 16 Ni sciigas al la reĝo, ke se tiu urbo estos rekonstruita kaj ĝiaj muregoj estos finitaj, tiam vi poste havos nenian parton en la regiono transrivera. 17 La reĝo sendis respondon: Al Re˛um, konsilisto, ŝimŝaj, skribisto, kaj al la aliaj iliaj kunuloj, kiuj loĝas en Samario kaj en la aliaj transriveraj lokoj, pacon kaj saluton. 18 La letero, kiun vi sendis al ni, estas klare legita antaŭ mi; 19 kaj mi donis ordonon, ke oni serĉu; kaj oni trovis, ke tiu urbo de malproksima tempo ribeladis kontraŭ la reĝoj, kaj tumultoj kaj defaloj estis farataj en ĝi; 20 ke potencaj reĝoj estis en Jerusalem kaj posedis la tutan transriveran regionon, kaj tributo, impostoj, kaj jarpagoj estis donataj al ili.
 
 21 Tial agu laŭ ĉi tiu ordono: malhelpu tiujn homojn en ilia labora-do, ke la urbo ne estu rekonstruata, ĝis estos donita ordono de mi.
 
-22 Kaj estu singardaj, ke vi ne estu malatentaj en tio, por ke ne naski-
-
-ĝu granda malprofito por la reĝo. 23 Kiam ĉi tiu letero de la reĝo Arta˛ŝaŝt estis tralegita antaŭ Re˛um, la skribisto ŝimŝaj, kaj iliaj kunuloj, ili tuj iris en Jerusalemon al la Judoj kaj haltigis ilian laboradon per forta mano. 24 Tiam ĉesiĝis la laborado ĉe la domo de Dio 883
-
-L A S A N K TA B I B L I O
+22 Kaj estu singardaj, ke vi ne estu malatentaj en tio, por ke ne naskiĝu granda malprofito por la reĝo. 23 Kiam ĉi tiu letero de la reĝo Arta˛ŝaŝt estis tralegita antaŭ Re˛um, la skribisto ŝimŝaj, kaj iliaj kunuloj, ili tuj iris en Jerusalemon al la Judoj kaj haltigis ilian laboradon per forta mano. 24 Tiam ĉesiĝis la laborado ĉe la domo de Dio
 
 
 en Jerusalem; kaj tiu stato daŭris ĝis la dua jaro de reĝado de Dario, reĝo de Persujo.
 
-ĉapitro 5
+ĉapitro
 
 1 Kaj la profetoj, ˘agaj, la profeto, kaj Zeąrja, filo de Ido, profetis pri la Judoj, kiuj estis en Judujo kaj Jerusalem, en la nomo de Dio de Izrael. 2 Tiam leviĝis Zerubabel, filo de ŝealtiel, kaj Jeŝua, filo de Jocadak, kaj komencis konstrui la domon de Dio en Jerusalem, kaj
 
@@ -152,38 +109,25 @@ kun ili estis la profetoj de Dio, kiuj fortigadis ilin. 3 En tiu tempo venis al 
 
 6 Jen la enhavo de la letero, kiun sendis Tatnaj, la estro de la
 
-transrivera regiono, kaj ŝetar-Boznaj, kun siaj kunuloj la Afarse-
-
-ąnoj, kiuj estis en la transrivera regiono, al la reĝo Dario; 7 la raporto, kiun ili sendis al li, havis la sekvantan tekston: Al la reĝo Dario plenan pacon. 8 Estu sciate al la reĝo, ke ni iris en la Judan landon, al la domo de la granda Dio; ĝi estas konstruata el grandaj ŝtonoj, kaj trabojn oni enmetas en la murojn, kaj la laboro estas farata vigle kaj sukcesas en iliaj manoj. 9 Tiam ni demandis tiujn plenaĝulojn, kaj diris al ili: Kiu donis al vi la permeson konstrui ĉi tiun domon kaj starigi ĉi tiujn murojn? 10 Kaj krom tio ni demandis pri iliaj nomoj, por raporti al vi, kaj skribi la nomojn de tiuj homoj, kiuj estas iliaj ĉefoj. 11 Per la sekvantaj vortoj ili respondis al ni kaj diris: Ni estas servantoj de Dio de la ĉielo kaj de la tero, kaj ni konstru-884
-
-L A S A N K TA B I B L I O
+transrivera regiono, kaj ŝetar-Boznaj, kun siaj kunuloj la Afarseąnoj, kiuj estis en la transrivera regiono, al la reĝo Dario; 7 la raporto, kiun ili sendis al li, havis la sekvantan tekston: Al la reĝo Dario plenan pacon. 8 Estu sciate al la reĝo, ke ni iris en la Judan landon, al la domo de la granda Dio; ĝi estas konstruata el grandaj ŝtonoj, kaj trabojn oni enmetas en la murojn, kaj la laboro estas farata vigle kaj sukcesas en iliaj manoj. 9 Tiam ni demandis tiujn plenaĝulojn, kaj diris al ili: Kiu donis al vi la permeson konstrui ĉi tiun domon kaj starigi ĉi tiujn murojn? 10 Kaj krom tio ni demandis pri iliaj nomoj, por raporti al vi, kaj skribi la nomojn de tiuj homoj, kiuj estas iliaj ĉefoj. 11 Per la sekvantaj vortoj ili respondis al ni kaj diris: Ni estas servantoj de Dio de la ĉielo kaj de la tero, kaj ni konstru-884
 
 
-as la domon, kiu estis konstruita antaŭ multe da jaroj, kaj granda reĝo de Izrael konstruis ĝin kaj finis ĝin. 12 Sed kiam niaj patroj kolerigis Dion de la ĉielo, Li transdonis ilin en la manon de Nebukadnecar, reĝo de Babel, la ˘aldeo; kaj tiun domon li detruis, kaj la popolon li transloĝigis en Babelon. 13 Sed en la unua jaro de Ciro, reĝo de Babel, la reĝo Ciro donis permeson rekonstrui ĉi tiun domon de Dio. 14 Eĉ la vazojn de la domo de Dio, la orajn kaj arĝen-
-
-tajn, kiujn Nebukadnecar elportis el la templo de Jerusalem kaj
+as la domon, kiu estis konstruita antaŭ multe da jaroj, kaj granda reĝo de Izrael konstruis ĝin kaj finis ĝin. 12 Sed kiam niaj patroj kolerigis Dion de la ĉielo, Li transdonis ilin en la manon de Nebukadnecar, reĝo de Babel, la ˘aldeo; kaj tiun domon li detruis, kaj la popolon li transloĝigis en Babelon. 13 Sed en la unua jaro de Ciro, reĝo de Babel, la reĝo Ciro donis permeson rekonstrui ĉi tiun domon de Dio. 14 Eĉ la vazojn de la domo de Dio, la orajn kaj arĝentajn, kiujn Nebukadnecar elportis el la templo de Jerusalem kaj
 
 forportis en la templon de Babel, ilin la reĝo Ciro elportis el la templo de Babel, kaj oni transdonis ilin al ŝeŝbacar, kiun li starigis kiel regionestron; 15 kaj li diris al li: Prenu ĉi tiujn vazojn, iru, kaj forpor-tu ilin en la templon de Jerusalem, kaj la domo de Dio estu konstruata sur sia loko. 16 Tiam venis tiu ŝeŝbacar kaj metis la fundamenton por la domo de Dio en Jerusalem; kaj de tiu tempo ĝis nun ĝi
 
 estas konstruata, kaj ĝi ankoraŭ ne estas finita. 17 Tial, se plaĉas al la reĝo, oni serĉu en la domo de la reĝaj trezoroj tie en Babel, ĉu efektive la reĝo Ciro donis permeson konstrui ĉi tiun domon de Dio en Jerusalem; kaj la volon de la reĝo pri tio oni sendu al ni.
 
-ĉapitro 6
+ĉapitro
 
-1 Tiam la reĝo Dario ordonis, ke oni serĉu en la domo de dokumen-
-
-toj, kie la trezoroj estis deponitaj, en Babel. 2 Kaj oni trovis en A˛-
+1 Tiam la reĝo Dario ordonis, ke oni serĉu en la domo de dokumentoj, kie la trezoroj estis deponitaj, en Babel. 2 Kaj oni trovis en A˛-
 
 meta, la reĝa kastelo en la Meda lando, unu skribrulaĵon, en kiu
 
-estis skribita la sekvanta pormemoraĵo: 3 En la unua jaro de la reĝo Ciro, la reĝo Ciro donis ordonon: Pri la domo de Dio en Jerusalem, estu konstruata domo, loko, kie oni alportas oferojn, kaj fortikaj fundamentoj por ĝi estu starigitaj; la alto de la domo estu sesdek ulnoj, ĝia larĝo estu sesdek ulnoj. 4 Da vicoj el grandaj ŝtonoj estu tri, kaj unu vico el ligno; la elspezoj estu donataj el la reĝa domo. 5
+estis skribita la sekvanta pormemoraĵo: 3 En la unua jaro de la reĝo Ciro, la reĝo Ciro donis ordonon: Pri la domo de Dio en Jerusalem, estu konstruata domo, loko, kie oni alportas oferojn, kaj fortikaj fundamentoj por ĝi estu starigitaj; la alto de la domo estu sesdek ulnoj, ĝia larĝo estu sesdek ulnoj. 4 Da vicoj el grandaj ŝtonoj estu tri, kaj unu vico el ligno; la elspezoj estu donataj el la reĝa domo.
 
 
-L A S A N K TA B I B L I O
-
-
-Ankaŭ la vazojn de la domo de Dio, orajn kaj arĝentajn, kiujn Ne-
-
-bukadnecar elportis el la templo de Jerusalem kaj forportis en Ba-
+Ankaŭ la vazojn de la domo de Dio, orajn kaj arĝentajn, kiujn Nebukadnecar elportis el la templo de Jerusalem kaj forportis en Ba-
 
 belon, oni redonu, kaj ili iru en la templon de Jerusalem sur sian lokon kaj estu lokitaj en la domo de Dio. 6 Tial Tatnaj, la estro de la transrivera regiono, ŝetar-Boznaj, kaj iliaj kunuloj, la Afarseą-
 
@@ -195,9 +139,7 @@ oni elprenu trabon el lia domo, kaj li estu levita kaj alnajlita al ĝi, kaj lia
 
 13 Tiam Tatnaj, la estro de la transrivera regiono, ŝetar-Boznaj,
 
-kaj iliaj kunuloj komencis tuj agadi konforme al tio, kion ordonis la reĝo Dario. 14 Kaj la plejaĝuloj de la Judoj konstruis kun sukceso, konforme al la profetado de ˘agaj, la profeto, kaj de Zeąrja, filo de Ido. Kaj ili konstruis kaj finis laŭ la volo de Dio de Izrael, kaj laŭ la volo de Ciro, de Dario, kaj de Arta˛ŝaŝt, reĝoj de Persujo. 15 Kaj oni finis la domon en la tria tago de la monato Adar, en la sesa jaro de reĝado de la reĝo Dario. 16 Kaj la Izraelidoj, la pastroj, la Levidoj, 886
-
-L A S A N K TA B I B L I O
+kaj iliaj kunuloj komencis tuj agadi konforme al tio, kion ordonis la reĝo Dario. 14 Kaj la plejaĝuloj de la Judoj konstruis kun sukceso, konforme al la profetado de ˘agaj, la profeto, kaj de Zeąrja, filo de Ido. Kaj ili konstruis kaj finis laŭ la volo de Dio de Izrael, kaj laŭ la volo de Ciro, de Dario, kaj de Arta˛ŝaŝt, reĝoj de Persujo. 15 Kaj oni finis la domon en la tria tago de la monato Adar, en la sesa jaro de reĝado de la reĝo Dario. 16 Kaj la Izraelidoj, la pastroj, la Levidoj,
 
 
 kaj la aliaj revenintoj el la kaptiteco faris kun ĝojo la sanktigon de tiu domo de Dio. 17 Kaj oni alportis ĉe la sanktigo de tiu domo de Dio: cent bovojn, ducent ŝafojn, kvarcent ŝafidojn, kaj dek du pekoferajn kaprojn pro la tuta Izrael, laŭ la nombro de la triboj de Izrael. 18 Kaj oni starigis la pastrojn laŭ iliaj ordoj, kaj la Levidojn laŭ iliaj vicoj, por la servado al Dio en Jerusalem, kiel estas preskribite en la libro de Moseo.
@@ -206,22 +148,15 @@ kaj la aliaj revenintoj el la kaptiteco faris kun ĝojo la sanktigon de tiu domo
 
 tago de la unua monato. 20 ĉar la pastroj kaj la Levidoj purigis sin ĉiuj kiel unu homo; kaj ili buĉis Paskajn ŝafidojn por ĉiuj revenintoj el la kaptiteco, por siaj fratoj, la pastroj, kaj por si. 21 Kaj manĝis la Izraelidoj, kiuj revenis el la kaptiteco, kaj ĉiuj, kiuj apartigis sin de la malpureco de la nacioj de la tero, por turni sin al la Eternulo, Dio de Izrael. 22 Kaj ili en ĝojo solenis la feston de macoj dum sep tagoj; ĉar la Eternulo ĝojigis ilin, kaj turnis al ili la koron de la reĝo de Asirio, por ke li fortigu iliajn manojn ĉe la laborado koncerne la domon de Dio, la Dio de Izrael.
 
-ĉapitro 7
+ĉapitro
 
-1 Post tiuj okazintaĵoj, dum la reĝado de Arta˛ŝast, reĝo de Persu-jo, el Babel iris Ezra, filo de Seraja, filo de Azarja, filo de ˘ilkija, 2
+1 Post tiuj okazintaĵoj, dum la reĝado de Arta˛ŝast, reĝo de Persu-jo, el Babel iris Ezra, filo de Seraja, filo de Azarja, filo de ˘ilkija,
 
-filo de ŝalum, filo de Cadok, filo de A˛itub, 3 filo de Amarja, filo de Azarja, filo de Merajot, 4 filo de Zera˛ja, filo de Uzi, filo de Buki, 5
+filo de ŝalum, filo de Cadok, filo de A˛itub, 3 filo de Amarja, filo de Azarja, filo de Merajot, 4 filo de Zera˛ja, filo de Uzi, filo de Buki,
 
-filo de Abiŝua, filo de Pineąs, filo de Eleazar, filo de Aaron, la ĉefpastro. 6 Tiu Ezra iris el Babel. Li estis lerta scienculo koncerne la instruon de Moseo, kiun donis la Eternulo, Dio de Izrael. Kaj la reĝo donis al li ĉion laŭ lia deziro, ĉar la mano de la Eternulo, lia Dio, estis super li. 7 Ankaŭ kelkaj el la Izraelidoj, el la pastroj, el la Levidoj, el la kantistoj, el la pordegistoj, kaj el la Netinoj iris en Jeru-887
+filo de Abiŝua, filo de Pineąs, filo de Eleazar, filo de Aaron, la ĉefpastro. 6 Tiu Ezra iris el Babel. Li estis lerta scienculo koncerne la instruon de Moseo, kiun donis la Eternulo, Dio de Izrael. Kaj la reĝo donis al li ĉion laŭ lia deziro, ĉar la mano de la Eternulo, lia Dio, estis super li. 7 Ankaŭ kelkaj el la Izraelidoj, el la pastroj, el la Levidoj, el la kantistoj, el la pordegistoj, kaj el la Netinoj iris en Jerusalemon en la sepa jaro de la reĝo Arta˛ŝast. 8 Kaj li venis en Jerusalemon en la kvina monato, en la sepa jaro de la reĝo. 9 ĉar en la unua tago de la unua monato estis la komenco de la irado el Babel, kaj en la unua tago de la kvina monato li venis en Jerusalemon, ĉar la mano de lia Dio favore estis super li. 10 ĉar Ezra pretigis sian koron, por studi la instruon de la Eternulo kaj plenumi ĝin, kaj por instrui en Izrael leĝojn kaj ordonojn. 11 Kaj jen estas la teksto de la letero, kiun la reĝo Arta˛ŝast donis al Ezra, la pastro, la scienculo, kiu instruis la vortojn de la ordonoj de la Eternulo kaj Liajn leĝojn pri Izrael: 12 Arta˛ŝast, reĝo de la reĝoj, al Ezra, pastro, kaj scienculo pri la leĝoj de Dio de la ĉielo, pacon kaj saluton. 13 De mi estas ordonite, ke en mia regno ĉiu el la popolo de Izrael kaj el ĝiaj pastroj kaj Levidoj, kiu volas iri en Jerusalemon, iru kun vi. 14 ĉar vi estas sendata de la reĝo kaj de liaj sep konsilistoj, por pririgardi Judujon kaj Jerusalemon laŭ la en via mano troviĝanta leĝo de via Dio, 15 kaj por tien forporti la arĝenton kaj oron, kiun la reĝo kaj liaj konsilistoj oferis al Dio de Izrael, kies loĝejo estas en Jerusalem, 16 kaj la tutan arĝenton kaj oron, kiun vi akiros en la tuta provinco de Babel, kune kun la memvolaj donacoj de la popolo kaj de la pastroj, kiuj oferos por la domo de sia Dio, kiu estas en Jerusalem. 17 Aĉetu tuj pro tiu mono bovojn, ŝafojn, kaj ŝafidojn, kaj la al tio apartenantajn faru-noferojn kaj verŝoferojn, kaj alportu ilin sur la altaron de la domo de via Dio en Jerusalem. 18 Kaj kion vi kaj viaj fratoj trovos bona fari el la cetera arĝento kaj oro, tion laŭ la volo de via Dio faru. 19 Kaj la vazojn, kiuj estas donitaj al vi por la servado en la domo de via Dio, prezentu antaŭ la Dio de Jerusalem. 20 Kaj ĉion ceteran, kio
 
-L A S A N K TA B I B L I O
-
-
-salemon en la sepa jaro de la reĝo Arta˛ŝast. 8 Kaj li venis en Jerusalemon en la kvina monato, en la sepa jaro de la reĝo. 9 ĉar en la unua tago de la unua monato estis la komenco de la irado el Babel, kaj en la unua tago de la kvina monato li venis en Jerusalemon, ĉar la mano de lia Dio favore estis super li. 10 ĉar Ezra pretigis sian koron, por studi la instruon de la Eternulo kaj plenumi ĝin, kaj por instrui en Izrael leĝojn kaj ordonojn. 11 Kaj jen estas la teksto de la letero, kiun la reĝo Arta˛ŝast donis al Ezra, la pastro, la scienculo, kiu instruis la vortojn de la ordonoj de la Eternulo kaj Liajn leĝojn pri Izrael: 12 Arta˛ŝast, reĝo de la reĝoj, al Ezra, pastro, kaj scienculo pri la leĝoj de Dio de la ĉielo, pacon kaj saluton. 13 De mi estas ordonite, ke en mia regno ĉiu el la popolo de Izrael kaj el ĝiaj pastroj kaj Levidoj, kiu volas iri en Jerusalemon, iru kun vi. 14 ĉar vi estas sendata de la reĝo kaj de liaj sep konsilistoj, por pririgardi Judujon kaj Jerusalemon laŭ la en via mano troviĝanta leĝo de via Dio, 15 kaj por tien forporti la arĝenton kaj oron, kiun la reĝo kaj liaj konsilistoj oferis al Dio de Izrael, kies loĝejo estas en Jerusalem, 16 kaj la tutan arĝenton kaj oron, kiun vi akiros en la tuta provinco de Babel, kune kun la memvolaj donacoj de la popolo kaj de la pastroj, kiuj oferos por la domo de sia Dio, kiu estas en Jerusalem. 17 Aĉetu tuj pro tiu mono bovojn, ŝafojn, kaj ŝafidojn, kaj la al tio apartenantajn faru-noferojn kaj verŝoferojn, kaj alportu ilin sur la altaron de la domo de via Dio en Jerusalem. 18 Kaj kion vi kaj viaj fratoj trovos bona fari el la cetera arĝento kaj oro, tion laŭ la volo de via Dio faru. 19 Kaj la vazojn, kiuj estas donitaj al vi por la servado en la domo de via Dio, prezentu antaŭ la Dio de Jerusalem. 20 Kaj ĉion ceteran, kio
-
-estas necesa por la domo de via Dio, kion vi trovos bona doni, donu el la reĝa trezorejo. 21 Kaj de mi, Arta˛ŝast, la reĝo, estas farata ordono al ĉiuj trezorgardistoj trans la rivero, ke ĉio, kion postulos de vi Ezra, la pastro, instruisto de la leĝoj de Dio de la ĉielo, estu tuj 888
-
-L A S A N K TA B I B L I O
+estas necesa por la domo de via Dio, kion vi trovos bona doni, donu el la reĝa trezorejo. 21 Kaj de mi, Arta˛ŝast, la reĝo, estas farata ordono al ĉiuj trezorgardistoj trans la rivero, ke ĉio, kion postulos de vi Ezra, la pastro, instruisto de la leĝoj de Dio de la ĉielo, estu tuj
 
 
 plenumata, 22 ĝis jena kvanto: arĝento ĝis cent kikaroj, tritiko ĝis cent kor’oj, vino ĝis cent bat’oj, ankaŭ oleo ĝis cent bat’oj, kaj salo en kvanto senlima. 23 ĉio, kio estas ordonita de Dio de la ĉielo, devas esti farata tuj por la domo de Dio de la ĉielo, por ke Lia kolero ne trafu la regnon, la reĝon, aŭ liajn infanojn. 24 Kaj ni sciigas al vi, ke sur neniun el la pastroj, Levidoj, kantistoj, pordegistoj, Netinoj, aŭ servantoj ĉe tiu domo de Dio vi devas meti tributon, imposton,
@@ -230,26 +165,17 @@ aŭ depagojn. 25 Kaj vi, Ezra, laŭ la saĝo, kiun via Dio donis al vi, starigu 
 
 27 Benata estu la Eternulo, Dio de niaj patroj, kiu metis en la koron de la reĝo la ideon beligi la domon de la Eternulo en Jerusalem, 28 kaj sur min turnis favoron de la reĝo kaj de liaj konsilistoj kaj de ĉiuj potencaj princoj de la reĝo. Kaj mi ricevis kuraĝon, ĉar la mano de la Eternulo, mia Dio, estis super mi; kaj mi kolektis en Izrael ĉefojn, por ke ili iru kun mi.
 
-ĉapitro 8
+ĉapitro
 
 1 Jen estas la ĉefoj de patrodomoj kun ilia genealogio, kiuj iris kun mi el Babel en la tempo de reĝado de la reĝo Arta˛ŝast: 2 el la idoj de Pineąs: Gerŝom; el la idoj de Itamar: Daniel; el la idoj de David:
 
-˘atuŝ; 3 el la idoj de ŝeąnja: el la idoj de Paroŝ: Zeąrja, kaj kun li la familianoj, viroj en la nombro de cent kvindek; 4 el la idoj de Pa-
+˘atuŝ; 3 el la idoj de ŝeąnja: el la idoj de Paroŝ: Zeąrja, kaj kun li la familianoj, viroj en la nombro de cent kvindek; 4 el la idoj de Paąt-Moab: Eljehoenaj, filo de Zera˛ja, kaj kun li ducent virseksu-
 
-ąt-Moab: Eljehoenaj, filo de Zera˛ja, kaj kun li ducent virseksu-
-
-loj; 5 el la idoj de ŝeąnja: la filo de Jaąziel, kaj kun li tricent virseksuloj; 6 el la idoj de Adin: Ebed, filo de Jonatan, kaj kun li kvin-889
-
-L A S A N K TA B I B L I O
-
-
-dek virseksuloj; 7 el la idoj de Elam: Jeŝaja, filo de Atalja, kaj kun li sepdek virseksuloj; 8 el la idoj de ŝefatja: Zebadja, filo de Miąel, kaj kun li okdek virseksuloj; 9 el la idoj de Joab: Obadja, filo de Je˛iel, kaj kun li ducent dek ok virseksuloj; 10 el la idoj de ŝelomit: la filo de Josifja, kaj kun li cent sesdek virseksuloj; 11 el la idoj de Bebaj: Zeąrja, filo de Bebaj, kaj kun li dudek ok virseksuloj; 12 el la idoj de Azgad: Joąnan, filo de Hakatan, kaj kun li cent dek virseksuloj; 13 el la idoj de Adonikam la lastaj, kaj jen estas iliaj nomoj: Elifelet, Jeiel, kaj ŝemaja, kaj kun ili sesdek virseksuloj; 14 el la idoj de Bigvaj: Utaj kaj Zakur, kaj kun ili sepdek virseksuloj. 15 Kaj mi kolektis ilin ĉe la rivero, kiu enfluas en Ahavan, kaj ni restis tie tri tagojn; kaj kiam mi pririgardis la popolon kaj la pastrojn, mi el la idoj de Levi trovis tie neniun. 16 Tiam mi sendis Eliezeron, Arielon, ŝema-jan, Elnatanon, Jaribon, Elnatanon, Natanon, Zeąrjan, kaj Meŝu-
+loj; 5 el la idoj de ŝeąnja: la filo de Jaąziel, kaj kun li tricent virseksuloj; 6 el la idoj de Adin: Ebed, filo de Jonatan, kaj kun li kvindek virseksuloj; 7 el la idoj de Elam: Jeŝaja, filo de Atalja, kaj kun li sepdek virseksuloj; 8 el la idoj de ŝefatja: Zebadja, filo de Miąel, kaj kun li okdek virseksuloj; 9 el la idoj de Joab: Obadja, filo de Je˛iel, kaj kun li ducent dek ok virseksuloj; 10 el la idoj de ŝelomit: la filo de Josifja, kaj kun li cent sesdek virseksuloj; 11 el la idoj de Bebaj: Zeąrja, filo de Bebaj, kaj kun li dudek ok virseksuloj; 12 el la idoj de Azgad: Joąnan, filo de Hakatan, kaj kun li cent dek virseksuloj; 13 el la idoj de Adonikam la lastaj, kaj jen estas iliaj nomoj: Elifelet, Jeiel, kaj ŝemaja, kaj kun ili sesdek virseksuloj; 14 el la idoj de Bigvaj: Utaj kaj Zakur, kaj kun ili sepdek virseksuloj. 15 Kaj mi kolektis ilin ĉe la rivero, kiu enfluas en Ahavan, kaj ni restis tie tri tagojn; kaj kiam mi pririgardis la popolon kaj la pastrojn, mi el la idoj de Levi trovis tie neniun. 16 Tiam mi sendis Eliezeron, Arielon, ŝema-jan, Elnatanon, Jaribon, Elnatanon, Natanon, Zeąrjan, kaj Meŝu-
 
 lamon, la ĉefojn, kaj Jojaribon kaj Elnatanon, la scienculojn; 17 kaj mi donis al ili komision al Ido, la ĉefo en la loko Kasifja, kaj mi donis al ili instrukcion pri tio, kion ili devas diri al Ido, kaj al liaj fratoj, la Netinoj, en la loko Kasifja, por venigi al ni servistojn por la domo de nia Dio. 18 Kaj ili venigis al ni, ĉar super ni estis la favora mano de nia Dio, homon saĝan el la idoj de Ma˛li, filo de Levi, filo de Izrael, kaj ŝerebjan kun liaj filoj kaj fratoj, dek ok homojn, 19 kaj
 
-˘aŝabjan, kaj kun li Jeŝajan, el la idoj de Merari, kun liaj fratoj kaj iliaj filoj, dudek; 20 kaj el la Netinoj, kiujn David kaj la princoj starigis por servi al la Levidoj, ducent dudek Netinojn; ĉiuj ili estis re-gistritaj laŭ siaj nomoj. 21 Kaj mi proklamis tie faston ĉe la rivero Ahava, por ke ni humiligu nin antaŭ nia Dio, por peti de Li ĝustan vojon por ni, por niaj infanoj, kaj por nia tuta havo. 22 ĉar mi hontis peti de la reĝo militistojn kaj rajdistojn por defendi nntraŭ malamikoj sur la vojo; ĉar ni tiele diris al la reĝo: La mano de Dio estas bonfaranta por ĉiuj, kiuj sin turnas al Li, kaj Lia potenco kaj 890
-
-L A S A N K TA B I B L I O
+˘aŝabjan, kaj kun li Jeŝajan, el la idoj de Merari, kun liaj fratoj kaj iliaj filoj, dudek; 20 kaj el la Netinoj, kiujn David kaj la princoj starigis por servi al la Levidoj, ducent dudek Netinojn; ĉiuj ili estis re-gistritaj laŭ siaj nomoj. 21 Kaj mi proklamis tie faston ĉe la rivero Ahava, por ke ni humiligu nin antaŭ nia Dio, por peti de Li ĝustan vojon por ni, por niaj infanoj, kaj por nia tuta havo. 22 ĉar mi hontis peti de la reĝo militistojn kaj rajdistojn por defendi nntraŭ malamikoj sur la vojo; ĉar ni tiele diris al la reĝo: La mano de Dio estas bonfaranta por ĉiuj, kiuj sin turnas al Li, kaj Lia potenco kaj
 
 
 Lia kolero estas kontraŭ ĉiuj, kiuj Lin forlasas. 23 Ni do fastis, kaj petis nian Dion pri tio; kaj Li aŭskultis nin. 24 Kaj mi apartigis el la ĉefaj pastroj dek du, kaj mi aligis al ili ŝerebjan kaj ˘aŝabjan kaj dek el iliaj fratoj. 25 Kaj mi pese transdonis al ili la arĝenton kaj la oron kaj la vazojn, kiuj estis donacitaj por la domo de nia Dio kaj kiujn donacis la reĝo kaj liaj konsilistoj kaj liaj princoj, kaj ĉiuj Izraelidoj, kiuj tie troviĝis. 26 Kaj mi pese transdonis al ili: da arĝento sescent kvindek kikarojn, da arĝentaj vazoj cent kikarojn, kaj da oro cent kikarojn; 27 da oraj kalikoj dudek je la sumo de mil darkemonoj, kaj du vazojn el brilanta plej bona kupro, multekosta kiel oro. 28 Kaj mi diris al ili: Vi estas sanktaj al la Eternulo, kaj la vazoj estas sanktaj, ankaŭ la arĝento kaj la oro, memvole donacitaj al la Eternulo, Dio de viaj patroj. 29 Maldormu, kaj gardu tion, ĝis vi transdonos pese al la ĉefaj pastroj, Levidoj, kaj ĉefoj de patrodomoj de Izrael en Jerusalem, en la ĉambroj de la domo de la Eternulo. 30 Kaj la pastroj kaj la Levidoj akceptis la pesitajn arĝenton, oron, kaj vazojn, por forporti en Jerusalemon en la domon de Dio.
@@ -258,32 +184,20 @@ Lia kolero estas kontraŭ ĉiuj, kiuj Lin forlasas. 23 Ni do fastis, kaj petis n
 
 unua monato, por iri en Jerusalemon; kaj la mano de nia Dio estis
 
-super ni, kaj Li savis nntraŭ la manoj de malamikoj kaj kon-
+super ni, kaj Li savis nntraŭ la manoj de malamikoj kaj kontraŭ insidantoj ĉe la vojo. 32 Kaj ni venis en Jerusalemon kaj restis tie dum tri tagoj. 33 En la kvara tago la arĝento, oro, kaj vazoj estis transdonitaj pese en la domon de nia Dio, en la manojn de la pastro Meremot, filo de Urija, kune kun Eleazar, filo de Pineąs, kune kun Jozabad, filo de Jeŝua, kaj Noadja, filo de Binuj, la Levidoj.
 
-traŭ insidantoj ĉe la vojo. 32 Kaj ni venis en Jerusalemon kaj restis tie dum tri tagoj. 33 En la kvara tago la arĝento, oro, kaj vazoj estis transdonitaj pese en la domon de nia Dio, en la manojn de la pastro Meremot, filo de Urija, kune kun Eleazar, filo de Pineąs, kune kun Jozabad, filo de Jeŝua, kaj Noadja, filo de Binuj, la Levidoj. 34
-
-ĉio estis farita laŭnombre kaj laŭpeze, kaj ĉio pesita estis tiutem-pe enskribita. 35 La forkaptitoj, kiuj revenis el la kaptiteco, alportis bruloferojn al Dio de Izrael: dek du bovojn, pro la tuta Izrael, naŭ-
-
-dek ses ŝafojn, sepdek sep ŝafidojn, dek du pekoferajn kaprojn, ĉion kiel bruloferon al la Eternulo. 36 Kaj oni transdonis la ordonojn de 891
-
-L A S A N K TA B I B L I O
+ĉio estis farita laŭnombre kaj laŭpeze, kaj ĉio pesita estis tiutem-pe enskribita. 35 La forkaptitoj, kiuj revenis el la kaptiteco, alportis bruloferojn al Dio de Izrael: dek du bovojn, pro la tuta Izrael, naŭdek ses ŝafojn, sepdek sep ŝafidojn, dek du pekoferajn kaprojn, ĉion kiel bruloferon al la Eternulo. 36 Kaj oni transdonis la ordonojn de
 
 
 la reĝo al la satrapoj de la reĝo kaj al la transriveraj regionestroj; kaj ĉi tiuj subtenis la popolon kaj la domon de Dio.
 
-ĉapitro 9
+ĉapitro
 
-1 Kiam ĉio tio estis finita, aliris al mi la estroj, kaj diris: La popolo Izraela kaj la pastroj kaj la Levidoj ne apartigis sin de la popoloj de la landoj koncerne iliajn abomenindaĵojn, de la Kanaanidoj, ˘etidoj, Perizidoj, Jebusidoj, Amonidoj, Moabidoj, Egiptoj, kaj Amori-
-
-doj; 2 ĉar ili prenis el iliaj filinoj edzinojn por si kaj por siaj filoj, kaj miksiĝis la sankta semo kun la popoloj de la landoj; kaj la mano de la eminentuloj kaj ĉefoj estis la unua en ĉi tiu malbonago. 3 Kiam mi aŭdis tion, mi disŝiris miajn vestojn kaj mian tunikon, mi elŝiris harojn de mia kapo kaj el mia barbo, kaj mi sidis konsternite. 4
+1 Kiam ĉio tio estis finita, aliris al mi la estroj, kaj diris: La popolo Izraela kaj la pastroj kaj la Levidoj ne apartigis sin de la popoloj de la landoj koncerne iliajn abomenindaĵojn, de la Kanaanidoj, ˘etidoj, Perizidoj, Jebusidoj, Amonidoj, Moabidoj, Egiptoj, kaj Amoridoj; 2 ĉar ili prenis el iliaj filinoj edzinojn por si kaj por siaj filoj, kaj miksiĝis la sankta semo kun la popoloj de la landoj; kaj la mano de la eminentuloj kaj ĉefoj estis la unua en ĉi tiu malbonago. 3 Kiam mi aŭdis tion, mi disŝiris miajn vestojn kaj mian tunikon, mi elŝiris harojn de mia kapo kaj el mia barbo, kaj mi sidis konsternite.
 
 Kaj kolektiĝis al mi ĉiuj, kiuj timis la vortojn de Dio de Izrael, pro la krimo de la forkaptitoj; kaj mi sidis konsternite ĝis la vesperofero. 5 Kaj ĉe la vesperofero mi leviĝis de mia aflikto, kaj kun disŝiri-taj vestoj kaj tuniko mi stariĝis surgenue kaj etendis miajn manojn al la Eternulo, mia Dio, 6 kaj mi diris: Ho mia Dio, mi hontas, kaj
 
-ĝenas min levi mian vizaĝon al Vi, ho mia Dio; ĉar niaj malbona-
-
-goj kreskis pli alten ol nia kapo, kaj nia kulpo fariĝis granda ĝis la ĉielo. 7 De post la tempo de niaj patroj ni estas en granda kulpo ĝis la nuna tago; pro niaj malbonagoj ni estis transdonitaj, ni kaj niaj reĝoj kaj niaj pastroj, en la manojn de la alilandaj reĝoj, sub glavon, en kaptitecon, al disrabo kaj malhonoro, kiel tio estas nun. 8 Kaj nun antaŭ momento venis pardono de la Eternulo, nia Dio, kaj Li restigis al ni saviĝintojn kaj permesis al ni alfortikiĝi sur Lia sankta loko; nia Dio donis lumon al niaj okuloj, kaj Li permesis al ni iom reviviĝi en nia sklaveco. 9 Ni estas ja sklavoj; sed en nia sklaveco nia Dio nin ne forlasis. Kaj Li donis al ni favorkorecon de la reĝoj de Persujo, 892
-
-L A S A N K TA B I B L I O
+ĝenas min levi mian vizaĝon al Vi, ho mia Dio; ĉar niaj malbonagoj kreskis pli alten ol nia kapo, kaj nia kulpo fariĝis granda ĝis la ĉielo. 7 De post la tempo de niaj patroj ni estas en granda kulpo ĝis la nuna tago; pro niaj malbonagoj ni estis transdonitaj, ni kaj niaj reĝoj kaj niaj pastroj, en la manojn de la alilandaj reĝoj, sub glavon, en kaptitecon, al disrabo kaj malhonoro, kiel tio estas nun. 8 Kaj nun antaŭ momento venis pardono de la Eternulo, nia Dio, kaj Li restigis al ni saviĝintojn kaj permesis al ni alfortikiĝi sur Lia sankta loko; nia Dio donis lumon al niaj okuloj, kaj Li permesis al ni iom reviviĝi en nia sklaveco. 9 Ni estas ja sklavoj; sed en nia sklaveco nia Dio nin ne forlasis. Kaj Li donis al ni favorkorecon de la reĝoj de Persujo,
 
 
 por permesi al ni reviviĝi, por konstrui la domon de nia Dio kaj
@@ -298,69 +212,53 @@ plena ekstermo sen restigo de ia restaĵo kaj savitaĵo? 15 Ho Eternulo, Dio de 
 
 Jen ni estas antaŭ Vi en nia kulpo; ni ne povas teni nin antaŭ Vi pro tio.
 
-ĉapitro 10
+ĉapitro
 
 1 Kiam Ezra preĝis kaj faris konfeson, plorante kaj kuŝante antaŭ la domo de Dio, kolektiĝis al li el la Izraelidoj tre granda amaso, viroj, virinoj, kaj infanoj; ĉar ankaŭ la popolo tre multe ploris. 2 Kaj ekparolis ŝeąnja, filo de Je˛iel, el la idoj de Elam, kaj diris al Ezra: Ni faris krimon kontraŭ nia Dio, prenante edzinojn aligentajn el la popoloj de la lando. Tamen nun ekzistas espero por Izrael en ĉi tiu
 
-afero. 3 Nun ni faru interligon kun nia Dio, ke laŭ la konsilo de mia sinjoro, kaj de tiuj, kiuj havas timon antaŭ la ordonoj de nia Dio, ni 893
-
-L A S A N K TA B I B L I O
+afero. 3 Nun ni faru interligon kun nia Dio, ke laŭ la konsilo de mia sinjoro, kaj de tiuj, kiuj havas timon antaŭ la ordonoj de nia Dio, ni
 
 
 forigos ĉiujn virinojn kaj iliajn naskitojn, kaj estu farite konforme al la leĝo. 4 Leviĝu, ĉar vi devas okupi vin pri tio, kaj ni estos kun vi; estu kuraĝa, kaj agu. 5 Tiam Ezra leviĝis, kaj ĵurigis la ĉefajn pastrojn, la Levidojn, kaj la tutan Izraelon, ke ili agos tiel; kaj ili ĵuris.
 
-6 Kaj Ezra leviĝis de antaŭ la domo de Dio, kaj iris al la ĉambro de Jehoąnan, filo de Eljaŝib, kaj eniris tien. Panon li ne manĝis kaj akvon li ne trinkis, ĉar li funebris pri la krimo de la kaptitecanoj. 7
+6 Kaj Ezra leviĝis de antaŭ la domo de Dio, kaj iris al la ĉambro de Jehoąnan, filo de Eljaŝib, kaj eniris tien. Panon li ne manĝis kaj akvon li ne trinkis, ĉar li funebris pri la krimo de la kaptitecanoj.
 
 Kaj oni proklamis en Judujo kaj Jerusalem al ĉiuj, kiuj venis el la kaptiteco, ke ili kolektiĝu en Jerusalem, 8 kaj ke al ĉiu, kiu ne venos tien post paso de tri tagoj, laŭ decido de la estroj kaj plejaĝuloj estos anatemita lia tuta havo, kaj li estos ekskomunikita el la komunumo de la reenmigrintoj. 9 Kaj kolektiĝis ĉiuj idoj de Jehuda kaj de Benjamen en Jerusalem post tri tagoj. Tio estis en la naŭa monato, en la dudeka tago de la monato. Kaj la tuta popolo sidis sur la placo antaŭ la domo de Dio, tremante pro ĉi tiu afero kaj pro pluvo.
 
 10 Kaj leviĝis Ezra, la pastro, kaj diris al ili: Vi faris krimon, prenante aligentajn edzinojn kaj pligrandigante la kulpon de Izrael. 11 Tial faru nun konfeson al la Eternulo, Dio de viaj patroj, kaj plenumu
 
-Lian volon: apartigu vin de la popoloj de la lando kaj de la aligentaj edzinoj. 12 Kaj la tuta komunumo respondis kaj diris per laŭta voĉo: Jes, kiel vi diras, tiel estu farite. 13 Tamen la popolo estas grandnombra, kaj la tempo nun estas pluva, kaj ni ne havas forton, por stari sur la strato; cetere tio ne estas afero de unu tago aŭ de du, ĉar ni multe pekis en tiu afero. 14 Niaj estroj do stariĝu pro la tuta komunumo, kaj ĉiuj en niaj urboj, kiuj prenis aligentajn edzinojn, venu en difinita tempo, kaj kun ili la plejaĝuloj de ĉiu urbo kaj ĝiaj juĝistoj, ĝis oni forturnos de ni la flaman koleron de nia Dio pro tiu afero. 15 Sed Jonatan, filo de Asahel, kaj Ja˛zeja, filo de Tikva, kontraŭstaris tion, kaj Meŝulam, kaj ŝabtaj, la Levido, helpis ilin. 16 Kaj tiel faris la revenintoj el la kaptiteco. Kaj apartiĝis por tio la pastro 894
-
-L A S A N K TA B I B L I O
+Lian volon: apartigu vin de la popoloj de la lando kaj de la aligentaj edzinoj. 12 Kaj la tuta komunumo respondis kaj diris per laŭta voĉo: Jes, kiel vi diras, tiel estu farite. 13 Tamen la popolo estas grandnombra, kaj la tempo nun estas pluva, kaj ni ne havas forton, por stari sur la strato; cetere tio ne estas afero de unu tago aŭ de du, ĉar ni multe pekis en tiu afero. 14 Niaj estroj do stariĝu pro la tuta komunumo, kaj ĉiuj en niaj urboj, kiuj prenis aligentajn edzinojn, venu en difinita tempo, kaj kun ili la plejaĝuloj de ĉiu urbo kaj ĝiaj juĝistoj, ĝis oni forturnos de ni la flaman koleron de nia Dio pro tiu afero. 15 Sed Jonatan, filo de Asahel, kaj Ja˛zeja, filo de Tikva, kontraŭstaris tion, kaj Meŝulam, kaj ŝabtaj, la Levido, helpis ilin. 16 Kaj tiel faris la revenintoj el la kaptiteco. Kaj apartiĝis por tio la pastro
 
 
 Ezra kaj ĉefoj de patrodomoj laŭ iliaj patrodomoj, ĉiuj laŭnome; kaj ili sidiĝis en la unua tago de la deka monato, por esplori la aferon.
 
 17 Kaj ĝis la unua tago de la unua monato ili finis la aferon pri ĉiuj viroj, kiuj prenis aligentajn edzinojn. 18 Kaj troviĝis el la pastridoj, kiuj prenis aligentajn edzinojn, el la filoj de Jeŝua, filo de Jocadek, kaj el liaj fratoj: Maaseja, Eliezer, Jarib, kaj Gedalja. 19 Kaj ili donis sian manon, ke ili forigos siajn edzinojn, kaj ke ili alportos pro sia kulpo virŝafon kaj kulpoferon. 20 Kaj el la filoj de Imer: ˘anani kaj Zebadja; 21 el la filoj de ˘arim: Maaseja, Elija, ŝemaja, Je˛iel, kaj Uzija; 22 el la filoj de Paŝ˛ur: Eljoenaj, Maaseja, Iŝmael, Netanel, Jozabad, kaj Eleasa; 23 kaj el la Levidoj: Jozabad, ŝimei, Kelaja (an-kaŭ nomata Kelita), Peta˛ja, Jehuda, kaj Eliezer; 24 el la kantistoj: Eljaŝib; el la pordegistoj: ŝalum, Telem, kaj Uri; 25 el la Izraelidoj: el la filoj de Paroŝ: Ramja, Jizija, Malkija, Mijamin, Eleazar, Malkija, kaj Benaja; 26 el la filoj de Elam: Matanja, Zeąrja, Je˛iel, Abdi, Je-remot, kaj Elija; 27 el la filoj de Zatu: Eljoenaj, Eljaŝib, Matanja, Je-remot, Zabad, kaj Aziza; 28 el la filoj de Bebaj: Jehoąnan, ˘ananja, Zabaj, Atlaj; 29 el la filoj de Bani: Meŝulam, Malu˛, Adaja, Jaŝub, ŝeal, kaj Ramot; 30 el la idoj de Paąt-Moab: Adna, Kelal, Benaja,
 
-Maaseja, Matanja, Becalel, Binuj, kaj Manase; 31 el la filoj de ˘arim: Eliezer, Jiŝija, Malkija, ŝemaja, ŝimeon, 32 Benjamen, Malu˛, ŝemarja; 33 el la filoj de ˘aŝum: Matnaj, Matata, Zabad, Elifelet, Jeremaj, Manase, ŝimei; 34 el la filoj de Bani: Maadaj, Amram, Uel, 35 Benaja, Bedja, Keluhu, 36 Vanja, Meremot, Eljaŝib, 37 Matanja, Matnaj, Jaasaj, 38 Bani, Binuj, ŝimei, 39 ŝelemja, Natan, Adaja, 40 Ma˛nadbaj, ŝaŝaj, ŝaraj, 41 Azarel, ŝelemja, ŝemarja, 42 ŝalum, Amarja, Jozef; 43
+Maaseja, Matanja, Becalel, Binuj, kaj Manase; 31 el la filoj de ˘arim: Eliezer, Jiŝija, Malkija, ŝemaja, ŝimeon, 32 Benjamen, Malu˛, ŝemarja; 33 el la filoj de ˘aŝum: Matnaj, Matata, Zabad, Elifelet, Jeremaj, Manase, ŝimei; 34 el la filoj de Bani: Maadaj, Amram, Uel, 35 Benaja, Bedja, Keluhu, 36 Vanja, Meremot, Eljaŝib, 37 Matanja, Matnaj, Jaasaj, 38 Bani, Binuj, ŝimei, 39 ŝelemja, Natan, Adaja, 40 Ma˛nadbaj, ŝaŝaj, ŝaraj, 41 Azarel, ŝelemja, ŝemarja, 42 ŝalum, Amarja, Jozef;
 
 el la filoj de Nebo: Jeiel, Matitja, Zabad, Zebina, Jadaj, Joel, Benaja. 44 ĉiuj tiuj prenis edzinojn aligentajn; kelkaj el tiuj edzinoj naskis infanojn.
 
 
-L A S A N K TA B I B L I O
-
-
 Neęmja
 
-ĉapitro 1
+ĉapitro
 
 1 Vortoj de Neęmja, filo de ˘aąlja.
 
-En la monato Kislev, en la dudeka jaro, mi estis en la kastelur-
-
-bo ŝuŝan. 2 Kaj venis ˘anani, unu el miaj fratoj, li kaj kelkaj viroj el Judujo. Kaj mi demandis lin pri la Judoj, kiuj saviĝis kaj restis el la forkaptitaro, kaj pri Jerusalem. 3 Kaj ili diris al mi: La restintoj, kiuj restis el la forkaptitaro, troviĝas tie en la lando en granda mizero kaj malhonoro; kaj la murego de Jerusalem estas detruita, kaj ĝiaj pordegoj estas forbruligitaj per fajro. 4 Kiam mi aŭdis tiujn vortojn, mi sidiĝis kaj ekploris, kaj funebris dum kelke da tagoj; kaj mi fastis kaj preĝis antaŭ Dio de la ĉielo. 5 Kaj mi diris: Mi petas Vin, ho Eternulo, Dio de la ĉielo, Dio granda kaj timinda, kiu konservas la interligon kaj favorkorecon al Liaj amantoj kaj al la plenumantoj de Liaj ordonoj! 6 Via orelo estu atenta, kaj Viaj okuloj estu malfermi-taj, por aŭskulti la preĝon de Via servanto, per kiu mi preĝas antaŭ Vi nun tage kaj nokte pri la Izraelidoj, Viaj servantoj, dum mi faras konfeson pri la pekoj de la Izraelidoj, kiujn ni pekis antaŭ Vi; mi kaj la domo de mia patro, ni pekis. 7 Ni forte pekis antaŭ Vi, kaj ni ne plenumis la ordonojn kaj la leĝojn kaj la decidojn, kiujn Vi ordonis al Moseo, Via servanto. 8 Sed volu rememori la vorton, kiun Vi eldiris al Via servanto Moseo, nome: Se vi pekos, Mi disĵetos vin inter la popolojn; 9 sed se vi returnos vin al Mi kaj konservos Miajn ordonojn kaj plenumos ilin, tiam se viaj forpelitoj eĉ estus ĉe la rando de la ĉielo, Mi eĉ de tie kolektos ilin, kaj venigos ilin sur la lokon, 896
-
-L A S A N K TA B I B L I O
+En la monato Kislev, en la dudeka jaro, mi estis en la kastelurbo ŝuŝan. 2 Kaj venis ˘anani, unu el miaj fratoj, li kaj kelkaj viroj el Judujo. Kaj mi demandis lin pri la Judoj, kiuj saviĝis kaj restis el la forkaptitaro, kaj pri Jerusalem. 3 Kaj ili diris al mi: La restintoj, kiuj restis el la forkaptitaro, troviĝas tie en la lando en granda mizero kaj malhonoro; kaj la murego de Jerusalem estas detruita, kaj ĝiaj pordegoj estas forbruligitaj per fajro. 4 Kiam mi aŭdis tiujn vortojn, mi sidiĝis kaj ekploris, kaj funebris dum kelke da tagoj; kaj mi fastis kaj preĝis antaŭ Dio de la ĉielo. 5 Kaj mi diris: Mi petas Vin, ho Eternulo, Dio de la ĉielo, Dio granda kaj timinda, kiu konservas la interligon kaj favorkorecon al Liaj amantoj kaj al la plenumantoj de Liaj ordonoj! 6 Via orelo estu atenta, kaj Viaj okuloj estu malfermi-taj, por aŭskulti la preĝon de Via servanto, per kiu mi preĝas antaŭ Vi nun tage kaj nokte pri la Izraelidoj, Viaj servantoj, dum mi faras konfeson pri la pekoj de la Izraelidoj, kiujn ni pekis antaŭ Vi; mi kaj la domo de mia patro, ni pekis. 7 Ni forte pekis antaŭ Vi, kaj ni ne plenumis la ordonojn kaj la leĝojn kaj la decidojn, kiujn Vi ordonis al Moseo, Via servanto. 8 Sed volu rememori la vorton, kiun Vi eldiris al Via servanto Moseo, nome: Se vi pekos, Mi disĵetos vin inter la popolojn; 9 sed se vi returnos vin al Mi kaj konservos Miajn ordonojn kaj plenumos ilin, tiam se viaj forpelitoj eĉ estus ĉe la rando de la ĉielo, Mi eĉ de tie kolektos ilin, kaj venigos ilin sur la lokon,
 
 
 kiun Mi elektis, por loĝigi tie Mian nomon. 10 Ili estas ja Viaj servantoj, kaj Via popolo, kiun Vi liberigis per Via granda forto kaj per Via potenca mano. 11 Mi petas, ho Sinjoro, Via orelo estu atenta al la preĝo de Via servanto, kaj al la preĝo de Viaj servantoj, kiuj deziras timi Vian nomon; kaj donu sukceson al Via servanto hodiaŭ, kaj akirigu al li favorkorecon antaŭ ĉi tiu homo. (Mi estis vinverŝisto ĉe la reĝo.)
 
-ĉapitro 2
+ĉapitro
 
-1 En la monato Nisan, en la dudeka jaro de la reĝo Arta˛ŝast, an-
-
-taŭ li staris vino. Kaj mi prenis la vinon kaj donis al la reĝo; kaj ĝis tiam mi ne estis malgaja antaŭ li. 2 Kaj la reĝo diris al mi: Kial vi aspektas malbone, kvankam vi ne estas malsana? tio certe estas do-
+1 En la monato Nisan, en la dudeka jaro de la reĝo Arta˛ŝast, antaŭ li staris vino. Kaj mi prenis la vinon kaj donis al la reĝo; kaj ĝis tiam mi ne estis malgaja antaŭ li. 2 Kaj la reĝo diris al mi: Kial vi aspektas malbone, kvankam vi ne estas malsana? tio certe estas do-
 
 loro de koro. Kaj mi forte ektimis, 3 kaj mi diris al la reĝo: La reĝo vivu eterne; kiel mi povas ne aspekti malbone, kiam la urbo, kiu
 
 estas la tomboloko de miaj patroj, estas dezertigita, kaj ĝiaj pordegoj estas forbruligitaj per fajro? 4 Kaj la reĝo diris al mi: Kion do vi deziras? Tiam mi preĝis al Dio de la ĉielo, 5 kaj diris al la reĝo: Se al la reĝo plaĉas, kaj se via sklavo havas vian favoron, permesu al mi veturi en Judujon, en la urbon, kie troviĝas la tomboj de miaj
 
-patroj, kaj konstrui ĝin. 6 Kaj la reĝo diris al mi (la reĝino sidis apud li): Kiel longe daŭros via veturado? kaj kiam vi revenos? Kaj la reĝo bonvolis forliberigi min, kaj mi difinis al li templimon. 7 Kaj mi diris al la reĝo: Se al la reĝo plaĉas, oni donu al mi leterojn al la transriveraj regionestroj, ke ili permesu al mi trairi, ĝis mi venos en Judujon; 8 kaj ankaŭ leteron al Asaf, la gardisto de la reĝa arbaro, ke li donu al mi arbojn por tegi la pordegojn de la kastelo ĉe la templo, kaj por la murego de la urbo, kaj por la domo, en kiu mi loĝos. Kaj la reĝo donis al mi, ĉar super mi estis la favora mano de mia Dio. 9
-
-
-L A S A N K TA B I B L I O
+patroj, kaj konstrui ĝin. 6 Kaj la reĝo diris al mi (la reĝino sidis apud li): Kiel longe daŭros via veturado? kaj kiam vi revenos? Kaj la reĝo bonvolis forliberigi min, kaj mi difinis al li templimon. 7 Kaj mi diris al la reĝo: Se al la reĝo plaĉas, oni donu al mi leterojn al la transriveraj regionestroj, ke ili permesu al mi trairi, ĝis mi venos en Judujon; 8 kaj ankaŭ leteron al Asaf, la gardisto de la reĝa arbaro, ke li donu al mi arbojn por tegi la pordegojn de la kastelo ĉe la templo, kaj por la murego de la urbo, kaj por la domo, en kiu mi loĝos. Kaj la reĝo donis al mi, ĉar super mi estis la favora mano de mia Dio.
 
 
 Kaj mi venis al la transriveraj regionestroj, kaj mi donis al ili la leterojn de la reĝo. Kaj la reĝo sendis kun mi oficirojn kaj rajdistojn.
@@ -371,16 +269,11 @@ bono de la Izraelidoj. 11 Kaj mi venis en Jerusalemon. Kaj restinte tie dum tri 
 
 estis kun mi; mi al neniu ion diris pri tio, kion mia Dio inspiris al mi fari por Jerusalem; neniu besto estis kun mi, krom tiu, sur kiu mi rajdis. 13 Kaj mi trarajdis nokte tra la Pordego de la Valo, al la Fonto de la Drako kaj al la Pordego de Sterko; mi rigardis la muregojn de Jerusalem, kiel detruitaj ili estas, kaj ĝiajn pordegojn, kiel ili estas forbruligitaj per fajro. 14 Kaj mi alrajdis al la Pordego de la Fonto kaj al la Reĝa Lageto; sed tie ne estis sufiĉe da spaco, ke povu trairi la besto, kiu estis sub mi. 15 Kaj mi leviĝis nokte laŭ la torento kaj pririgardis la muregon, kaj, trarajdinte denove tra la Pordego de la Valo, mi revenis. 16 Kaj la estroj ne sciis, kien mi iris kaj kion mi faras; nek al la Judoj, nek al la pastroj, nek al la eminentuloj, nek al la estroj, nek al la ceteraj plenumantoj de la laboroj mi ion diris ĝis nun. 17 Kaj mi diris al ili: Vi vidas la mizeron, en kiu ni troviĝas, kiel Jerusalem estas dezertigita kaj ĝiaj pordegoj estas forbruligitaj per fajro; ni iru kaj konstruu la muregon de Jerusalem, ke ni ne estu plu en malhonoro. 18 Kaj mi rakontis al ili pri la mano de mia Dio, kiu favore estis super mi, ankaŭ la vortojn de la reĝo, kiujn li diris al mi.
 
-Kaj ili diris: Ni leviĝu kaj konstruu; kaj iliaj manoj fortiĝis por la bono. 19 Kiam tion aŭdis Sanbalat, la ˘oronano, kaj Tobija, la sklavo Amonida, kaj Geŝem, la Arabo, ili ridis pri ni kaj rigardis nin malestime, kaj diris: Kio estas tiu afero, kiun vi faras? ĉu ne kontraŭ la reĝo vi ribelas? 20 Kaj mi respondis al ili, kaj diris al ili: Dio de la ĉielo donos al ni sukceson, kaj ni, Liaj servantoj, leviĝos kaj konstru-898
-
-L A S A N K TA B I B L I O
-
-
-os; sed vi havas nenian parton nek rajton nek memoron en Jerusa-
+Kaj ili diris: Ni leviĝu kaj konstruu; kaj iliaj manoj fortiĝis por la bono. 19 Kiam tion aŭdis Sanbalat, la ˘oronano, kaj Tobija, la sklavo Amonida, kaj Geŝem, la Arabo, ili ridis pri ni kaj rigardis nin malestime, kaj diris: Kio estas tiu afero, kiun vi faras? ĉu ne kontraŭ la reĝo vi ribelas? 20 Kaj mi respondis al ili, kaj diris al ili: Dio de la ĉielo donos al ni sukceson, kaj ni, Liaj servantoj, leviĝos kaj konstruos; sed vi havas nenian parton nek rajton nek memoron en Jerusa-
 
 lem.
 
-ĉapitro 3
+ĉapitro
 
 1 Kaj leviĝis la ĉefpastro Eljaŝib, kaj liaj fratoj, la pastroj, kaj konstruis la Pordegon de ŝafoj; ili sanktigis ĝin kaj starigis ĝiajn pordojn, ili sanktigis ĝis la turo Mea, ĝis la turo ˘ananel. 2 Apud li konstruis la loĝantoj de Jeri˛o, apud ili konstruis Zakur, filo de Imri. 3 La Pordegon de Fiŝoj konstruis la loĝantoj de Senaa; ili tegis ĝin, kaj starigis ĝiajn pordojn, serurojn, kaj riglilojn. 4 Apud ili konstruis Meremot, filo de Urija, filo de Hakoc; apud ili konstruis Meŝulam, filo de Bere˛ja, filo de Meŝezabel; apud ili konstruis Cadok, filo de Baana. 5 Apud ili konstruis la Tekoaanoj; tamen iliaj eminentuloj ne metis sian kolon sub laboradon por sia sinjoro. 6 La Malnovan Pordegon konstruis Jojada, filo de Pasea˛, kaj Meŝulam, filo de Besod-ja; ili tegis ĝin, kaj starigis ĝiajn pordojn, ĝiajn serurojn, kaj ĝiajn riglilojn. 7 Apud ili konstruis Melatja, la Gibeonano, kaj Jadon, la Me-ronotano, la loĝantoj de Gibeon kaj de Micpa, ĝis la seĝo de la
 
@@ -388,20 +281,11 @@ transrivera regionestro. 8 Apud li konstruis Uziel, filo de ˘arhaja, fandisto; 
 
 ˘atuŝ, filo de ˘aŝabneja. 11 Alian parton konstruis Malkija, filo de
 
-˘arim, kaj ˘aŝub, filo de Paąt-Moab; ankaŭ la Turon de la Forn-
+˘arim, kaj ˘aŝub, filo de Paąt-Moab; ankaŭ la Turon de la Fornoj. 12 Apude konstruis ŝalum, filo de Haloęŝ, estro de duondistrik-to de Jerusalem, li kaj liaj filinoj. 13 La Pordegon de la Valo konstruis
 
-oj. 12 Apude konstruis ŝalum, filo de Haloęŝ, estro de duondistrik-to de Jerusalem, li kaj liaj filinoj. 13 La Pordegon de la Valo konstruis
+˘anun kaj la loĝantoj de Zanoa˛; ili konstruis ĝin, kaj starigis ĝiajn pordojn, ĝiajn serurojn, kaj ĝiajn riglilojn, kaj mil ulnojn de la murego ĝis la Pordego de Sterko. 14 La Pordegon de Sterko konstruis
 
-˘anun kaj la loĝantoj de Zanoa˛; ili konstruis ĝin, kaj starigis ĝiajn pordojn, ĝiajn serurojn, kaj ĝiajn riglilojn, kaj mil ulnojn de la mur-899
-
-L A S A N K TA B I B L I O
-
-
-ego ĝis la Pordego de Sterko. 14 La Pordegon de Sterko konstruis
-
-Malkija, filo de Reąb, estro de la distrikto de Bet-Kerem; li kon-
-
-struis ĝin, kaj starigis ĝiajn pordojn, serurojn, kaj riglilojn. 15 La Pordegon de la Fonto konstruis ŝalun, filo de Kol-˘oze, estro de la distrikto de Micpa; li konstruis ĝin kaj tegis ĝin, kaj starigis ĝiajn pordojn, serurojn, kaj riglilojn; ankaŭ la muregon ĉe la lageto ŝela˛
+Malkija, filo de Reąb, estro de la distrikto de Bet-Kerem; li konstruis ĝin, kaj starigis ĝiajn pordojn, serurojn, kaj riglilojn. 15 La Pordegon de la Fonto konstruis ŝalun, filo de Kol-˘oze, estro de la distrikto de Micpa; li konstruis ĝin kaj tegis ĝin, kaj starigis ĝiajn pordojn, serurojn, kaj riglilojn; ankaŭ la muregon ĉe la lageto ŝela˛
 
 de la reĝa ĝardeno kaj ĝis la ŝtupoj, kiuj iras malsupren de la urbo de David. 16 Post li konstruis Neęmja, filo de Azbuk, estro de duondistrikto de Bet-Cur, ĝis la loko kontraŭ la tomboj de David kaj
 
@@ -411,16 +295,14 @@ angulo, kontraŭ la loko, kie oni supreniras al la armilejo. 20 Post li vigle ko
 
 ˘enadad, alian parton, de la domo de Azarja ĝis la angulo kaj la
 
-rando. 25 Palal, filo de Uzaj, de kontraŭ la angulo kaj la turo, kiu elstaras el la supra reĝa domo, apud la korto de malliberejo. Post li Pedaja, filo de Paroŝ 26 (La Netinoj loĝis en Ofel.) ĝis kontraŭ la Pordego de la Akvo oriente, kaj ĝis la elstaranta turo. 27 Poste konstruis la Tekoaanoj, alian parton, de kontraŭ la granda elstaranta turo ĝis la muro de Ofel. 28 De post la Pordego de la ĉevaloj konstruis la pastroj, ĉiu kontraŭ sia domo. 29 Poste konstruis Cadok, filo 900
-
-L A S A N K TA B I B L I O
+rando. 25 Palal, filo de Uzaj, de kontraŭ la angulo kaj la turo, kiu elstaras el la supra reĝa domo, apud la korto de malliberejo. Post li Pedaja, filo de Paroŝ 26 (La Netinoj loĝis en Ofel.) ĝis kontraŭ la Pordego de la Akvo oriente, kaj ĝis la elstaranta turo. 27 Poste konstruis la Tekoaanoj, alian parton, de kontraŭ la granda elstaranta turo ĝis la muro de Ofel. 28 De post la Pordego de la ĉevaloj konstruis la pastroj, ĉiu kontraŭ sia domo. 29 Poste konstruis Cadok, filo
 
 
 de Imer, kontraŭ sia domo; post li konstruis ŝemaja, filo de ŝeąnja, gardisto de la Orienta Pordego. 30 Post li konstruis ˘ananja, filo de ŝelemja, kaj ˘anun, sesa filo de Calaf, alian parton. Post li konstruis Meŝulam, filo de Bere˛ja, kontraŭ sia ĉambro. 31 Post li konstruis Malkija, filo de fandisto, ĝis la domo de la Netinoj kaj de la butikistoj, kontraŭ la Pordego de Depono kaj ĝis la tegmenta ĉambro de
 
 la angulo. 32 Inter la tegmenta ĉambro de la angulo kaj la Pordego de ŝafoj konstruis la fandistoj kaj la butikistoj.
 
-ĉapitro 4
+ĉapitro
 
 1 Kiam Sanbalat aŭdis, ke ni konstruas la muregon, li koleris kaj
 
@@ -430,83 +312,55 @@ kuraĝe.
 
 7 Kiam Sanbalat kaj Tobija kaj la Araboj kaj la Amonidoj kaj la
 
-Aŝdodanoj aŭdis, ke la muregoj de Jerusalem estas riparataj kaj ke la breĉoj komencis esti fermataj, ili tre ekkoleris. 8 Kaj ili faris interkonsenton, ke ili ĉiuj kune iru milite kontraŭ Jerusalemon kaj faru al ĝi malbonon. 9 Sed ni preĝis al nia Dio, kaj ni starigis pro ili gar-901
-
-L A S A N K TA B I B L I O
-
-
-don tage kaj nokte kontraŭ ili. 10 La Judoj diris: Malgrandiĝis la forto de la portistoj, kaj da rubo estas multe; kaj ni ne povas konstrui la muregon. 11 Kaj niaj malamikoj diris: Ili ne scios kaj ne vidos, ĝis ni venos en ilian mezon kaj mortigos ilin kaj ĉesigos la laboradon. 12
+Aŝdodanoj aŭdis, ke la muregoj de Jerusalem estas riparataj kaj ke la breĉoj komencis esti fermataj, ili tre ekkoleris. 8 Kaj ili faris interkonsenton, ke ili ĉiuj kune iru milite kontraŭ Jerusalemon kaj faru al ĝi malbonon. 9 Sed ni preĝis al nia Dio, kaj ni starigis pro ili gardon tage kaj nokte kontraŭ ili. 10 La Judoj diris: Malgrandiĝis la forto de la portistoj, kaj da rubo estas multe; kaj ni ne povas konstrui la muregon. 11 Kaj niaj malamikoj diris: Ili ne scios kaj ne vidos, ĝis ni venos en ilian mezon kaj mortigos ilin kaj ĉesigos la laboradon.
 
 Kiam la Judoj, kiuj loĝis apud ili, venadis, kaj diradis al ni, dekfoje, el ĉiuj lokoj: Revenu al ni, 13 tiam mi starigis malsupre sur la lokoj malantaŭ la murego, sur la nekovritaj lokoj, mi starigis la popolon laŭfamilie, kun iliaj glavoj, lancoj, kaj pafarkoj. 14 Kaj mi pririgardis, kaj mi stariĝis, kaj diris al la eminentuloj kaj al la estroj kaj al la cetera popolo: Ne timu ilin; memoru pri la Sinjoro, la granda kaj timinda, kaj batalu por viaj fratoj, viaj filoj, viaj filinoj, viaj edzinoj, kaj viaj domoj. 15 Kiam niaj malamikoj aŭdis, ke ni scias, tiam Dio detruis ilian intencon, kaj ni ĉiuj revenis al la murego, ĉiu al sia laboro. 16 Kaj de post tiu tago duono de miaj junuloj faradis la laboron, kaj duono tenis lancojn, ŝildojn, pafarkojn, kaj kirasojn; kaj la estroj troviĝadis malantaŭ la tuta domo de Jehuda. 17 Unuj konstruis la muregon, kaj aliaj portis la ŝarĝojn, kiujn ili metis sur sin; per unu mano ĉiu faris la laboron, kaj en la dua mano li tenis batalilon.
 
 18 La konstruantoj ĉiuj havis sian glavon alligitan al siaj lumboj, kaj tiamaniere ili konstruis; kaj la trumpetisto estis apud mi. 19 Kaj mi diris al la eminentuloj kaj al la estroj kaj al la cetera popolo: La laboro estas granda kaj vasta, kaj ni estas disigitaj sur la murego, malproksime unu de la alia; 20 tial se de iu loko vi aŭdos la sonon de trumpeto, tien kolektiĝu al ni; nia Dio batalos por ni. 21 Tiamaniere ni faradis la laboron; kaj duono de ili tenis lancojn de la leviĝo de la ĉielruĝo ĝis la apero de la steloj. 22 Kaj mi ankaŭ diris en tiu tempo al la popolo, ke ĉiu kun sia knabo noktu en Jerusalem, por
 
-ke ili estu por ni nokte kiel gardo, kaj tage ili laboru. 23 Kaj nek mi, nek miaj fratoj, nek miaj knaboj, nek la gardistoj, kiuj estis malan-902
+ke ili estu por ni nokte kiel gardo, kaj tage ili laboru. 23 Kaj nek mi, nek miaj fratoj, nek miaj knaboj, nek la gardistoj, kiuj estis malantaŭ mi, neniu el ni deprenis de si siajn vestojn; nur ĉiu aparte estis sendata, por sin bani.
 
-L A S A N K TA B I B L I O
-
-
-taŭ mi, neniu el ni deprenis de si siajn vestojn; nur ĉiu aparte estis sendata, por sin bani.
-
-ĉapitro 5
+ĉapitro
 
 1 Kaj la popolo kaj iliaj edzinoj komencis forte krii kontraŭ siaj fratoj, la Judoj. 2 Estis tiaj, kiuj parolis: Estas multe da ni kaj da niaj filoj kaj filinoj; ni prenu al ni grenon kaj manĝu, por ke ni vivu. 3 Aliaj parolis: Niajn kampojn, niajn vinberĝardenojn, kaj niajn domojn ni donas proprunte, por ke ni akiru grenon kontraŭ malsato. 4 Aliaj
 
-parolis: Ni pruntas monon por impostoj por la reĝo, donante garan-
-
-tiaĵe niajn kampojn kaj vinberĝardenojn; 5 sed kiel la korpo de niaj fratoj, tia estas nia korpo, kiel iliaj infanoj, tiaj estas niaj infanoj; tamen jen ni devas humile servigi niajn filojn kaj niajn filinojn, kaj el niaj filinoj kelkaj jam estas humiligitaj. Ni ne havas forton en niaj manoj, kaj niaj kampoj kaj vinberĝardenoj apartenas al aliaj. 6 Kaj tio forte min ĉagrenis, kiam mi aŭdis ilian kriadon kaj tiujn vortojn.
+parolis: Ni pruntas monon por impostoj por la reĝo, donante garantiaĵe niajn kampojn kaj vinberĝardenojn; 5 sed kiel la korpo de niaj fratoj, tia estas nia korpo, kiel iliaj infanoj, tiaj estas niaj infanoj; tamen jen ni devas humile servigi niajn filojn kaj niajn filinojn, kaj el niaj filinoj kelkaj jam estas humiligitaj. Ni ne havas forton en niaj manoj, kaj niaj kampoj kaj vinberĝardenoj apartenas al aliaj. 6 Kaj tio forte min ĉagrenis, kiam mi aŭdis ilian kriadon kaj tiujn vortojn.
 
 7 Sed mia koro donis al mi konsilon, kaj mi faris severan riproĉon al la eminentuloj kaj al la estroj, kaj diris al ili: Vi prenas procente-gon de viaj fratoj! Kaj mi kunvokis kontraŭ ili grandan kunvenon.
 
 8 Kaj mi diris al ili: Ni elaĉetis niajn fratojn, la Judojn, kiuj estis venditaj al la nacioj, kiom ni povis; dume vi volas vendi viajn fratojn, kaj ili estas vendataj al ni! Ili silentis kaj trovis nenion por respondi. 9 Kaj mi diris: Ne bona estas tio, kion vi faras. ĉu vi ne devas konduti kun timo antaŭ nia Dio, por eviti malhonoron de la flanko
 
-de la nacioj, niaj malamikoj? 10 Ankaŭ mi kaj miaj fratoj kaj miaj junuloj donis al ili prunte monon kaj grenon; ni malŝuldigu al ili tiun ŝuldon. 11 Redonu do al ili hodiaŭ iliajn kampojn, vinberĝardenojn, olivĝardenojn, kaj domojn, kaj la procenton pro la mono, la greno, la mosto, kaj la oleo, kiujn vi pruntis al ili. 12 Kaj ili diris: Ni redo-903
-
-L A S A N K TA B I B L I O
-
-
-nos, kaj ni ne postulos de ili; ni agos tiel, kiel vi diras. Kaj mi alvokis la pastrojn, kaj mi prenis de ili ĵuron, ke ili tiel agos. 13 Kaj mi elskuis mian baskon, kaj diris: Tiele Dio elskuu el lia domo kaj el lia akiritaĵo ĉiun homon, kiu ne plenumos tiun vorton; tiele li estu el-skuita kaj senhava. Kaj la tuta komunumo diris: Amen; kaj oni gloris la Eternulon. Kaj la popolo agis tiele. 14 Krom tio, de post la tago, kiam al mi estis ordonite esti ilia regionestro en la Juda lando, de la dudeka jaro ĝis la tridek-dua jaro de la reĝo Arta˛ŝast, en la daŭro de dek du jaroj, mi kun miaj fratoj ne manĝis la panon de regionestro. 15 La antaŭaj regionestroj, kiuj estis antaŭ mi, ŝarĝadis la popolon, kaj prenadis de ili panon kaj vinon, krom kvardek sikloj da
+de la nacioj, niaj malamikoj? 10 Ankaŭ mi kaj miaj fratoj kaj miaj junuloj donis al ili prunte monon kaj grenon; ni malŝuldigu al ili tiun ŝuldon. 11 Redonu do al ili hodiaŭ iliajn kampojn, vinberĝardenojn, olivĝardenojn, kaj domojn, kaj la procenton pro la mono, la greno, la mosto, kaj la oleo, kiujn vi pruntis al ili. 12 Kaj ili diris: Ni redonos, kaj ni ne postulos de ili; ni agos tiel, kiel vi diras. Kaj mi alvokis la pastrojn, kaj mi prenis de ili ĵuron, ke ili tiel agos. 13 Kaj mi elskuis mian baskon, kaj diris: Tiele Dio elskuu el lia domo kaj el lia akiritaĵo ĉiun homon, kiu ne plenumos tiun vorton; tiele li estu el-skuita kaj senhava. Kaj la tuta komunumo diris: Amen; kaj oni gloris la Eternulon. Kaj la popolo agis tiele. 14 Krom tio, de post la tago, kiam al mi estis ordonite esti ilia regionestro en la Juda lando, de la dudeka jaro ĝis la tridek-dua jaro de la reĝo Arta˛ŝast, en la daŭro de dek du jaroj, mi kun miaj fratoj ne manĝis la panon de regionestro. 15 La antaŭaj regionestroj, kiuj estis antaŭ mi, ŝarĝadis la popolon, kaj prenadis de ili panon kaj vinon, krom kvardek sikloj da
 
 arĝento; eĉ iliaj junuloj regis super la popolo. Sed mi ne agis tiel, pro timo antaŭ Dio. 16 Mi partoprenis ankaŭ en la laborado ĉe tiu murego; kaj kampon ni ne aĉetis; kaj ĉiuj miaj junuloj kolektiĝadis tie al la laboro. 17 ĉe mia tablo estadis po cent kvindek homoj da Judoj kaj estroj, kaj ankaŭ da tiuj, kiuj venis al ni el la nacioj, kiuj estas ĉirkaŭ ni. 18 Preparataj estis por unu tago: unu bovo, ses plej bonaj ŝafoj, kaj ankaŭ birdoj estis preparataj ĉe mi; kaj en la daŭro de dek tagoj estis uzata tre multe da vino. Malgraŭ tio mi ne postulis panon de regionestro, ĉar la popolo estis ŝarĝita de malfacila laboro.
 
 19 Rememoru pri mi al bono, ho mia Dio, ĉion, kion mi faris por ĉi tiu popolo.
 
-ĉapitro 6
+ĉapitro
 
-1 Kiam Sanbalat, Tobija, la Arabo Geŝem, kaj niaj ceteraj malami-
+1 Kiam Sanbalat, Tobija, la Arabo Geŝem, kaj niaj ceteraj malamikoj aŭdis, ke mi rekonstruis la muregon kaj ke ne restis en ĝi difek-toj (kvankam ĝis tiu tempo mi ankoraŭ ne starigis pordojn en la
 
-koj aŭdis, ke mi rekonstruis la muregon kaj ke ne restis en ĝi difek-toj (kvankam ĝis tiu tempo mi ankoraŭ ne starigis pordojn en la
-
-pordegoj), 2 tiam Sanbalat kaj Geŝem sendis, por diri al mi: Venu, ni kune kunvenu en la vilaĝoj de la valo Ono. Ili intencis fari al mi 904
-
-L A S A N K TA B I B L I O
+pordegoj), 2 tiam Sanbalat kaj Geŝem sendis, por diri al mi: Venu, ni kune kunvenu en la vilaĝoj de la valo Ono. Ili intencis fari al mi
 
 
 malbonon. 3 Sed mi sendis al ili senditojn, por diri: Mi faras grandan laboron, kaj mi ne povas iri; kial ĉesiĝu la laborado, kiam mi ĝin forlasos kaj iros al vi? 4 Kaj ili sendis al mi la saman proponon kvar fojojn, kaj mi respondis tion saman. 5 Kaj Sanbalat sendis al mi kun la sama propono la kvinan fojon sian junulon, kiu havis en sia mano nefermitan leteron. 6 En ĝi estis skribite: Inter la nacioj iras la famo, kaj Geŝem diras, ke vi kaj la Judoj intencas defali; por tio vi konstruas la muregon; kaj laŭ tiu famo vi volas esti ilia reĝo. 7 Ankaŭ profetojn vi starigis, por ke ili prediku pri vi en Jerusalem, dirante: Estas reĝo en Judujo. Nun la famo pri tio venos al la reĝo; venu do, ke ni kune interkonsiliĝu. 8 Sed mi sendis al li, por diri: Nenio fariĝis el tio, kion vi diras; vi mem tion elpensis. 9 Ili ĉiuj ja timigis nin, pens-ante: Ili ellasos el siaj manoj la laboron, kaj ĝi ne estos farata. Sed nun fortiĝu miaj manoj.
 
-10 Kaj mi venis en la domon de ŝemaja, filo de Delaja, filo de Me-
-
-hetabel; li sin enŝlosis. Kaj li diris: Ni iru kune en la domon de Dio, en la mezon de la templo, kaj ni ŝlosu la pordojn de la templo; ĉar oni venos, por mortigi vin, en la nokto oni venos, por mortigi vin.
+10 Kaj mi venis en la domon de ŝemaja, filo de Delaja, filo de Mehetabel; li sin enŝlosis. Kaj li diris: Ni iru kune en la domon de Dio, en la mezon de la templo, kaj ni ŝlosu la pordojn de la templo; ĉar oni venos, por mortigi vin, en la nokto oni venos, por mortigi vin.
 
 11 Sed mi diris: ĉu tia homo, kiel mi, forkuru? ĉu tia, kiel mi, iru en la templon, por konservi la vivon? mi ne iros. 12 Mi komprenis, ke ne Dio lin sendis; ĉar la profetaĵon li eldiris pri mi pro tio, ke Tobija kaj Sanbalat lin subaĉetis. 13 Li estis subaĉetita, por ke mi timu, por ke mi agu tiel kaj peku. Tio donus al ili pretekston por malbona
 
-famo, por ke ili min malhonoru. 14 Rememoru, ho mia Dio, pri To-
-
-bija kaj Sanbalat tiujn iliajn farojn, ankaŭ pri la profetino Noadja, kaj la aliaj profetoj, kiuj timigis min.
+famo, por ke ili min malhonoru. 14 Rememoru, ho mia Dio, pri Tobija kaj Sanbalat tiujn iliajn farojn, ankaŭ pri la profetino Noadja, kaj la aliaj profetoj, kiuj timigis min.
 
 15 La murego estis finita en la dudek-kvina tago de la monato
 
 Elul, en la daŭro de kvindek du tagoj. 16 Kiam tion aŭdis ĉiuj niaj malamikoj, kaj vidis ĉiuj nacioj, kiuj estis ĉirkaŭ ni, ili multe perdis la kuraĝon; ĉar ili komprenis, ke tiu laboro estas farita de nia Dio.
 
 
-L A S A N K TA B I B L I O
-
-
 17 Krom tio, en tiuj tagoj la eminentuloj el la Judoj skribis multe da leteroj al Tobija, kaj leteroj de Tobija venis al ili; 18 ĉar multaj el la Judoj estis en ĵura ligo kun li, ĉar li estis bofilo de ŝeąnja, filo de Ara˛, kaj lia filo Jehoąnan prenis por edzino filinon de Meŝulam,
 
 filo de Bere˛ja. 19 Ili ankaŭ paroladis bone pri li antaŭ mi, kaj miajn vortojn ili transdonadis al li. Tobija sendis leterojn, por timigi min.
 
-ĉapitro 7
+ĉapitro
 
 1 Kiam la murego estis konstruita, mi starigis la pordojn; kaj ricevis siajn oficojn la pordegistoj, la kantistoj, kaj la Levidoj. 2 Kaj mi donis ordonon al mia frato ˘anani, kaj al ˘ananja, kastelestro de
 
@@ -516,28 +370,22 @@ Jerusalem (ĉar li estis homo fidela, kaj diotima pli ol multaj aliaj), 3 kaj mi
 
 Bigvaj, Ne˛um, Baana. La nombro de la viroj de la popolo Izraela
 
-estis: 8 de la idoj de Paroŝ, du mil cent sepdek du, 9 de la idoj de Sefatja, tricent sepdek du, 10 de la idoj de Ara˛, sescent kvindek du, 906
-
-L A S A N K TA B I B L I O
+estis: 8 de la idoj de Paroŝ, du mil cent sepdek du, 9 de la idoj de Sefatja, tricent sepdek du, 10 de la idoj de Ara˛, sescent kvindek du,
 
 
 11 de la idoj de Paąt-Moab, el la idoj de Jeŝua kaj Joab, du mil okcent dek ok, 12 de la idoj de Elam, mil ducent kvindek kvar, 13 de la idoj de Zatu, okcent kvardek kvin, 14 de la idoj de Zakaj, sepcent sesdek, 15 de la idoj de Binuj, sescent kvardek ok, 16 de la idoj de Bebaj, sescent dudek ok, 17 de la idoj de Azgad, du mil tricent dudek du, 18 de la idoj de Adonikam, sescent sesdek sep, 19 de la idoj de Bigvaj, du mil sesdek sep, 20 de la idoj de Adin, sescent kvindek kvin, 21 de la idoj de Ater, el la domo de ˘izkija, naŭdek ok, 22 de la idoj de ˘aŝum, tricent dudek ok, 23 de la idoj de Becaj, tricent dudek kvar, 24 de la idoj de ˘arif, cent dek du, 25 de la idoj de Gibeon, naŭdek kvin, 26 de la loĝantoj de Bet-Leęm kaj de Netofa,
 
 cent okdek ok, 27 de la loĝantoj de Anatot, cent dudek ok, 28 de la loĝantoj de Bet-Azmavet, kvardek du, 29 de la loĝantoj de Kirjat-Jearim, Kefira, kaj Beerot, sepcent kvardek tri, 30 de la loĝantoj de Rama kaj Geba, sescent dudek unu, 31 de la loĝantoj de Mi˛mas,
 
-cent dudek du, 32 de la loĝantoj de Bet-El kaj Aj, cent dudek tri, 33
+cent dudek du, 32 de la loĝantoj de Bet-El kaj Aj, cent dudek tri,
 
 de la loĝantoj de Nebo-Aęr, kvindek du, 34 de la idoj de la alia
 
-Elam, mil ducent kvindek kvar, 35 de la idoj de ˘arim, tricent du-
+Elam, mil ducent kvindek kvar, 35 de la idoj de ˘arim, tricent dudek, 36 de la idoj de Jeri˛o, tricent kvardek kvin, 37 de la idoj de Lod,
 
-dek, 36 de la idoj de Jeri˛o, tricent kvardek kvin, 37 de la idoj de Lod,
+˘adid, kaj Ono, sepcent dudek unu, 38 de la idoj de Senaa, tri mil naŭcent tridek. 39 De la pastroj: de la idoj de Jedaja, el la domo de Jeŝua, naŭcent sepdek tri, 40 de la idoj de Imer, mil kvindek du,
 
-˘adid, kaj Ono, sepcent dudek unu, 38 de la idoj de Senaa, tri mil naŭcent tridek. 39 De la pastroj: de la idoj de Jedaja, el la domo de Jeŝua, naŭcent sepdek tri, 40 de la idoj de Imer, mil kvindek du, 41
-
-de la idoj de Paŝ˛ur, mil ducent kvardek sep, 42 de la idoj de ˘arim, mil dek sep. 43 De la Levidoj: de la idoj de Jeŝua, el la domo de Kadmiel, el la filoj de Hodja, sepdek kvar. 44 De la kantistoj: de la idoj de Asaf, cent kvardek ok. 45 De la pordegistoj: la idoj de ŝalum, la idoj de Ater, la idoj de Talmon, la idoj de Akub, la idoj de ˘atita, la idoj de ŝobaj, cent tridek ok. 46 De la Netinoj: la idoj de Cią, la idoj de ˘asufa, la idoj de Tabaot, 47 la idoj de Keros, la idoj de Sia, la idoj de Padon, 48 la idoj de Lebana, la idoj de ˘agaba, la idoj de ŝalmaj, 907
-
-L A S A N K TA B I B L I O
+de la idoj de Paŝ˛ur, mil ducent kvardek sep, 42 de la idoj de ˘arim, mil dek sep. 43 De la Levidoj: de la idoj de Jeŝua, el la domo de Kadmiel, el la filoj de Hodja, sepdek kvar. 44 De la kantistoj: de la idoj de Asaf, cent kvardek ok. 45 De la pordegistoj: la idoj de ŝalum, la idoj de Ater, la idoj de Talmon, la idoj de Akub, la idoj de ˘atita, la idoj de ŝobaj, cent tridek ok. 46 De la Netinoj: la idoj de Cią, la idoj de ˘asufa, la idoj de Tabaot, 47 la idoj de Keros, la idoj de Sia, la idoj de Padon, 48 la idoj de Lebana, la idoj de ˘agaba, la idoj de ŝalmaj,
 
 
 49 la idoj de ˘anan, la idoj de Gidel, la idoj de Gaąr, 50 la idoj de Reaja, la idoj de Recin, la idoj de Nekoda, 51 la idoj de Gazam, la idoj de Uza, la idoj de Pasea˛, 52 la idoj de Besaj, la idoj de Meunim, la idoj de Nefiŝesim, 53 la idoj de Bakbuk, la idoj de ˘akufa, la idoj de
@@ -546,55 +394,34 @@ L A S A N K TA B I B L I O
 
 du mil tricent sesdek homoj, 67 krom iliaj sklavoj kaj sklavinoj, kies nombro estis sep mil tricent tridek sep, kaj al tio estis ducent kvardek kvin kantistoj kaj kantistinoj. 68 Da ĉevaloj ili havis sepcent tridek ses; da muloj ili havis ducent kvardek kvin; 69 da kameloj ili havis kvarcent tridek kvin; da azenoj ses mil sepcent dudek. 70 Kelkaj el la ĉefoj de patrodomoj donis por la laboroj: la regionestro donis por la trezorejo: mil darkemonojn da oro, kvindek aspergajn
 
-kalikojn, kvincent tridek pastrajn vestojn. 71 El la ĉefoj de patrodomoj, kelkaj donis en la trezorejon de la laboroj dudek mil darkemo-908
-
-L A S A N K TA B I B L I O
-
-
-nojn da oro kaj du mil ducent min’ojn da arĝento. 72 Kaj kion do-
+kalikojn, kvincent tridek pastrajn vestojn. 71 El la ĉefoj de patrodomoj, kelkaj donis en la trezorejon de la laboroj dudek mil darkemonojn da oro kaj du mil ducent min’ojn da arĝento. 72 Kaj kion do-
 
 nis la ceteraj el la popolo, tio estis: dudek mil darkemonoj da oro kaj du mil min’oj da arĝento kaj sesdek sep pastraj vestoj. 73 Kaj ekloĝis la pastroj kaj la Levidoj kaj la pordegistoj kaj la kantistoj kaj la po-polanoj kaj la Netinoj kaj la tuta Izrael en siaj urboj.
 
 Kiam venis la sepa monato, la Izraelidoj estis jam en siaj urboj.
 
-ĉapitro 8
+ĉapitro
 
-1 Kaj la tuta popolo, kiel unu homo, kolektiĝis sur la placo, kiu estas antaŭ la Pordego de la Akvo, kaj ili diris al Ezra, la skribisto, ke li alportu la libron de instruo de Moseo, kiun la Eternulo ordonis al Izrael. 2 Kaj la pastro Ezra alportis la instruon antaŭ la komunumon, antaŭ la virojn kaj virinojn, antaŭ ĉiujn, kiuj povis kompreni, en la unua tago de la sepa monato. 3 Kaj li legis el ĝi sur la placo, kiu estas antaŭ la Pordego de la Akvo, de la tagiĝo ĝis la tagmezo, an-taŭ la viroj kaj virinoj kaj komprenpovantoj; kaj la oreloj de la tuta popolo estis turnitaj al la libro de instruo. 4 Kaj la skribisto Ezra staris sur ligna ambono, kiun oni faris por tio, kaj apud li staris Matitja, ŝema, Anaja, Urija, ˘ilkija, kaj Maaseja, dekstre de li; kaj maldekstre de li: Pedaja, Miŝael, Malkija, ˘aŝum, ˘aŝbadana, Ze-
-
-ąrja, kaj Meŝulam. 5 Kaj Ezra malfermis la libron antaŭ la okuloj
+1 Kaj la tuta popolo, kiel unu homo, kolektiĝis sur la placo, kiu estas antaŭ la Pordego de la Akvo, kaj ili diris al Ezra, la skribisto, ke li alportu la libron de instruo de Moseo, kiun la Eternulo ordonis al Izrael. 2 Kaj la pastro Ezra alportis la instruon antaŭ la komunumon, antaŭ la virojn kaj virinojn, antaŭ ĉiujn, kiuj povis kompreni, en la unua tago de la sepa monato. 3 Kaj li legis el ĝi sur la placo, kiu estas antaŭ la Pordego de la Akvo, de la tagiĝo ĝis la tagmezo, an-taŭ la viroj kaj virinoj kaj komprenpovantoj; kaj la oreloj de la tuta popolo estis turnitaj al la libro de instruo. 4 Kaj la skribisto Ezra staris sur ligna ambono, kiun oni faris por tio, kaj apud li staris Matitja, ŝema, Anaja, Urija, ˘ilkija, kaj Maaseja, dekstre de li; kaj maldekstre de li: Pedaja, Miŝael, Malkija, ˘aŝum, ˘aŝbadana, Zeąrja, kaj Meŝulam. 5 Kaj Ezra malfermis la libron antaŭ la okuloj
 
 de la tuta popolo, ĉar li staris pli alte ol la tuta popolo; kaj kiam li
 
 ĝin malfermis, la tuta popolo stariĝis. 6 Kaj Ezra benis la Eternulon, la grandan Dion; kaj la tuta popolo respondis: Amen, amen, levante supren siajn manojn; kaj ili kliniĝis kaj faris adoron antaŭ la Eternulo vizaĝaltere. 7 Kaj Jeŝua, Bani, ŝerebja, Jamin, Akub, ŝabtaj,
 
-˘odija, Maaseja, Kelita, Azarja, Jozabad, ˘anan, Pelaja, kaj la Levidoj klarigadis al la popolo la instruon; kaj la popolo staris sur sia loko. 8 Kaj ili legis el la libro, el la instruo de Dio, klare, kun kom-909
-
-L A S A N K TA B I B L I O
-
-
-entarioj, ke oni komprenu la legataĵon. 9 Kaj Neęmja, kiu estis la regionestro, kaj la pastro Ezra, la skribisto, kaj la Levidoj, kiuj donadis klarigojn al la popolo, diris al la tuta popolo: ĉi tiu tago estas sankta al la Eternulo, via Dio; ne malĝoju kaj ne ploru. ĉar la tuta popolo ploris, aŭskultante la vortojn de la instruo. 10 Kaj li diris al ili: Iru, manĝu grasaĵon kaj trinku dolĉaĵon, kaj sendu porciojn al tiuj, kiuj nenion pretigis por si; ĉar ĉi tiu tago estas sankta al nia Sinjoro; kaj ne malĝoju, ĉar la ĝojo pri la Eternulo estas via forto.
+˘odija, Maaseja, Kelita, Azarja, Jozabad, ˘anan, Pelaja, kaj la Levidoj klarigadis al la popolo la instruon; kaj la popolo staris sur sia loko. 8 Kaj ili legis el la libro, el la instruo de Dio, klare, kun komentarioj, ke oni komprenu la legataĵon. 9 Kaj Neęmja, kiu estis la regionestro, kaj la pastro Ezra, la skribisto, kaj la Levidoj, kiuj donadis klarigojn al la popolo, diris al la tuta popolo: ĉi tiu tago estas sankta al la Eternulo, via Dio; ne malĝoju kaj ne ploru. ĉar la tuta popolo ploris, aŭskultante la vortojn de la instruo. 10 Kaj li diris al ili: Iru, manĝu grasaĵon kaj trinku dolĉaĵon, kaj sendu porciojn al tiuj, kiuj nenion pretigis por si; ĉar ĉi tiu tago estas sankta al nia Sinjoro; kaj ne malĝoju, ĉar la ĝojo pri la Eternulo estas via forto.
 
 11 Kaj la Levidoj trankviligadis la tutan popolon, dirante: ĉesu, ĉar ĉi tiu tago estas sankta; ne malĝoju. 12 Kaj la tuta popolo iris, por manĝi kaj trinki kaj sendi porciojn kaj fari grandan festenon; ĉar ili komprenis la vortojn, kiujn oni sciigis al ili.
 
-13 En la dua tago kunvenis la ĉefoj de patrodomoj de la tuta po-
-
-polo, ankaŭ la pastroj kaj la Levidoj, al la skribisto Ezra, por ke li plue klarigu al ili la vortojn de la instruo. 14 Kaj ili trovis, ke en la instruo, kiun la Eternulo ordonis per Moseo, estas skribite, ke la Izraelidoj sidu en laŭboj en la festo de la sepa monato, 15 kaj ke ili aŭdigu kaj proklamu en ĉiuj siaj urboj kaj en Jerusalem, dirante: Iru sur la monton, kaj prenu branĉojn de olivarbo, branĉojn de oleas-traj arboj, branĉojn de mirto, branĉojn de palmoj, kaj branĉojn de densfoliaj arboj, por fari laŭbojn, kiel estas skribite. 16 Kaj la popolo eliris kaj prenis, kaj faris al si laŭbojn, ĉiu sur sia tegmento, aŭ sur sia korto, aŭ sur la kortoj de la domo de Dio, aŭ sur la placo de la Pordego de la Akvo, aŭ sur la placo de la Pordego de Efraim. 17 Kaj la tuta komunumo de tiuj, kiuj revenis el la kaptiteco, faris laŭbojn kaj loĝis en la laŭboj; ĉar de la tempo de Josuo, filo de Nun, ĝis tiu tago la Izraelidoj tion ne faris. Kaj estis tre granda ĝojo. 18 Kaj oni legis el la libro de instruo de Dio ĉiutage, de la unua tago ĝis la lasta tago. Kaj oni festis dum sep tagoj, kaj en la oka tago oni faris fer-man feston, laŭ la preskribo.
+13 En la dua tago kunvenis la ĉefoj de patrodomoj de la tuta popolo, ankaŭ la pastroj kaj la Levidoj, al la skribisto Ezra, por ke li plue klarigu al ili la vortojn de la instruo. 14 Kaj ili trovis, ke en la instruo, kiun la Eternulo ordonis per Moseo, estas skribite, ke la Izraelidoj sidu en laŭboj en la festo de la sepa monato, 15 kaj ke ili aŭdigu kaj proklamu en ĉiuj siaj urboj kaj en Jerusalem, dirante: Iru sur la monton, kaj prenu branĉojn de olivarbo, branĉojn de oleas-traj arboj, branĉojn de mirto, branĉojn de palmoj, kaj branĉojn de densfoliaj arboj, por fari laŭbojn, kiel estas skribite. 16 Kaj la popolo eliris kaj prenis, kaj faris al si laŭbojn, ĉiu sur sia tegmento, aŭ sur sia korto, aŭ sur la kortoj de la domo de Dio, aŭ sur la placo de la Pordego de la Akvo, aŭ sur la placo de la Pordego de Efraim. 17 Kaj la tuta komunumo de tiuj, kiuj revenis el la kaptiteco, faris laŭbojn kaj loĝis en la laŭboj; ĉar de la tempo de Josuo, filo de Nun, ĝis tiu tago la Izraelidoj tion ne faris. Kaj estis tre granda ĝojo. 18 Kaj oni legis el la libro de instruo de Dio ĉiutage, de la unua tago ĝis la lasta tago. Kaj oni festis dum sep tagoj, kaj en la oka tago oni faris fer-man feston, laŭ la preskribo.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 9
+ĉapitro
 
 1 En la dudek-kvara tago de tiu monato kunvenis la Izraelidoj, fastante, en sakaĵoj kaj kun tero sur la kapoj. 2 Kaj la idaro de Izrael apartigis sin de ĉiuj fremduloj, kaj stariĝis, kaj faris konfeson pri siaj pekoj kaj pri la pekoj de siaj patroj. 3 Kaj ili leviĝis sur la loko, kie ili staris, kaj oni legis el la libro de instruo de la Eternulo, ilia Dio, dum kvarono de tago, kaj dum alia kvarono oni faris konfeson kaj
 
 adorkliniĝon antaŭ la Eternulo, ilia Dio. 4 Kaj sur la tribuno por la Levidoj stariĝis Jeŝua, Bani, Kadmiel, ŝebanja, Buni, ŝerebja, Bani, kaj Kenani, kaj ekvokis per laŭta voĉo al la Eternulo, ilia Dio. 5 Kaj diris la Levidoj Jeŝua, Kadmiel, Bani, ˘aŝabneja, ŝerebja, Hodija, ŝebanja, kaj Peta˛ja: Leviĝu, benu la Eternulon, vian Dion, de eterne
 
-ĝis eterne. Kaj oni benu Vian nomon, la majestan kaj plej altan super ĉia beno kaj laŭdo. 6 Vi, ho Eternulo, estas sola; Vi faris la ĉielon, la ĉielon de ĉieloj, kaj ĝian tutan armeon, la teron, kaj ĉion, kio estas sur ĝi, la marojn, kaj ĉion, kio estas en ili; kaj Vi donas vivon al ĉio, kaj la armeo de la ĉielo adorkliniĝas antaŭ Vi. 7 Vi estas la Eternulo, la Dio, kiu elektis Abramon kaj elirigis lin el Ur la ˘aldea kaj donis al li la nomon Abraham, 8 kaj trovis lian koron fidela an-taŭ Vi, kaj faris kun li interligon, por transdoni la landon de la Kanaanidoj, la ˘etidoj, la Amoridoj, la Perizidoj, la Jebusidoj, kaj la Girgaŝidoj, transdoni ĝin al lia idaro; kaj Vi plenumis Viajn vortojn, ĉar Vi estas justa. 9 Vi vidis la mizeron de niaj patroj en Egiptujo, kaj Vi aŭdis ilian kriadon ĉe la Ruĝa Maro; 10 kaj Vi faris signojn kaj miraklojn super Faraono, super ĉiuj liaj servantoj, kaj super la tuta popolo de lia lando, ĉar Vi sciis, ke ili agis fiere kontraŭ ili; kaj Vi faris al Vi nomon, kia ĝi estas ĝis nun. 11 Kaj Vi disfendis antaŭ ili la maron, kaj ili trairis meze de la maro sur seka tero; kaj iliajn per-sekutantojn Vi ĵetis en la profundon, kiel ŝtonon en potencan ak-
-
-von. 12 Per nuba kolono Vi kondukis ilin tage, kaj per fajra kolono 911
-
-L A S A N K TA B I B L I O
+ĝis eterne. Kaj oni benu Vian nomon, la majestan kaj plej altan super ĉia beno kaj laŭdo. 6 Vi, ho Eternulo, estas sola; Vi faris la ĉielon, la ĉielon de ĉieloj, kaj ĝian tutan armeon, la teron, kaj ĉion, kio estas sur ĝi, la marojn, kaj ĉion, kio estas en ili; kaj Vi donas vivon al ĉio, kaj la armeo de la ĉielo adorkliniĝas antaŭ Vi. 7 Vi estas la Eternulo, la Dio, kiu elektis Abramon kaj elirigis lin el Ur la ˘aldea kaj donis al li la nomon Abraham, 8 kaj trovis lian koron fidela an-taŭ Vi, kaj faris kun li interligon, por transdoni la landon de la Kanaanidoj, la ˘etidoj, la Amoridoj, la Perizidoj, la Jebusidoj, kaj la Girgaŝidoj, transdoni ĝin al lia idaro; kaj Vi plenumis Viajn vortojn, ĉar Vi estas justa. 9 Vi vidis la mizeron de niaj patroj en Egiptujo, kaj Vi aŭdis ilian kriadon ĉe la Ruĝa Maro; 10 kaj Vi faris signojn kaj miraklojn super Faraono, super ĉiuj liaj servantoj, kaj super la tuta popolo de lia lando, ĉar Vi sciis, ke ili agis fiere kontraŭ ili; kaj Vi faris al Vi nomon, kia ĝi estas ĝis nun. 11 Kaj Vi disfendis antaŭ ili la maron, kaj ili trairis meze de la maro sur seka tero; kaj iliajn per-sekutantojn Vi ĵetis en la profundon, kiel ŝtonon en potencan akvon. 12 Per nuba kolono Vi kondukis ilin tage, kaj per fajra kolono
 
 
 nokte, por prilumi al ili la vojon, kiun ili devis iri. 13 Kaj sur la monton Sinaj Vi malsupreniris, kaj Vi parolis al ili el la ĉielo, kaj donis al ili instrukciojn ĝustajn, instruojn verajn, leĝojn kaj ordonojn bonajn. 14 Kaj Vian sanktan sabaton Vi konigis al ili, kaj ordonojn, leĝojn, kaj instruon Vi ordonis al ili, per Via servanto Moseo. 15 Kaj panon en la ĉielo Vi donis al ili kontraŭ ilia malsato, kaj akvon el roko Vi elirigis por ili kontraŭ ilia soifo; kaj Vi diris al ili, ke ili iru ekposedi la landon, kiun per levo de la mano Vi promesis doni al
@@ -607,43 +434,28 @@ forlasis ilin en la dezerto, la nuba kolono ne foriĝis de ili tage, por konduki
 
 iliajn filojn Vi multigis kiel la steloj de la ĉielo, kaj Vi venigis ilin en la landon, pri kiu Vi diris al iliaj patroj, ke ili venos kaj ekposedos
 
-ĝin. 24 Kaj la filoj venis kaj ekposedis la landon; kaj Vi humiligis antaŭ ili la loĝantojn de la lando, la Kanaanidojn, kaj transdonis ilin en iliajn manojn, ankaŭ iliajn reĝojn kaj la popolojn de la lando, por 912
-
-L A S A N K TA B I B L I O
+ĝin. 24 Kaj la filoj venis kaj ekposedis la landon; kaj Vi humiligis antaŭ ili la loĝantojn de la lando, la Kanaanidojn, kaj transdonis ilin en iliajn manojn, ankaŭ iliajn reĝojn kaj la popolojn de la lando, por
 
 
-ke ili agu kun ĉi tiuj laŭ sia bontrovo. 25 Kaj ili venkoprenis urbojn fortikigitajn kaj teron grasan, kaj ili ekposedis domojn plenajn de ĉio bona, putojn elhakitajn en ŝtonoj, vinberĝardenojn kaj oliv-
-
-ĝardenojn, kaj multajn manĝaĵdonajn arbojn. Kaj ili manĝis, satiĝis, grasiĝis, kaj ĝuis, dank’ al Via granda boneco. 26 Kaj ili fariĝis ma-lobeemaj kaj defalis de Vi kaj ĵetis Vian instruon malantaŭ sian dorson; Viajn profetojn, kiuj admonis ilin returni sin al Vi, ili mortigis; kaj ili faris grandajn blasfemojn. 27 Tiam Vi transdonis ilin en la manojn de iliaj malamikoj, kaj ĉi tiuj premis ilin. Sed en la tempo de sia mizero ili vokis al Vi, kaj Vi el la ĉielo aŭdis, kaj pro Via granda favorkoreco Vi donis al ili savantojn, kiuj savis ilin el la manoj de iliaj malamikoj. 28 Tamen, kiam ili ricevis trankvilecon, ili denove faradis malbonon antaŭ Vi. Kaj Vi forlasis ilin en la manoj de iliaj malamikoj, kiuj regis super ili. Sed, kiam ili returnis sin kaj vokis al Vi, Vi aŭdis el la ĉielo, kaj Vi savis ilin multfoje pro Via granda kompatemeco. 29 Vi admonis ilin, ke ili returnu sin al Via instruo; sed ili estis malhumilaj kaj ne obeis Viajn ordonojn, ili pekis kontraŭ Viaj preskriboj, per kies plenumado la homo vivas, ili deturnis sian ŝul-tron, malmoligis sian nukon, kaj ne volis aŭskulti. 30 Vi atendis por ili dum multe da jaroj, Vi admonadis ilin kun Via spirito per Viaj profetoj; sed ili ne atentis; tial Vi transdonis ilin en la manojn de la popoloj alilandaj. 31 Tamen pro Via granda kompatemeco Vi ne
+ke ili agu kun ĉi tiuj laŭ sia bontrovo. 25 Kaj ili venkoprenis urbojn fortikigitajn kaj teron grasan, kaj ili ekposedis domojn plenajn de ĉio bona, putojn elhakitajn en ŝtonoj, vinberĝardenojn kaj olivĝardenojn, kaj multajn manĝaĵdonajn arbojn. Kaj ili manĝis, satiĝis, grasiĝis, kaj ĝuis, dank’ al Via granda boneco. 26 Kaj ili fariĝis ma-lobeemaj kaj defalis de Vi kaj ĵetis Vian instruon malantaŭ sian dorson; Viajn profetojn, kiuj admonis ilin returni sin al Vi, ili mortigis; kaj ili faris grandajn blasfemojn. 27 Tiam Vi transdonis ilin en la manojn de iliaj malamikoj, kaj ĉi tiuj premis ilin. Sed en la tempo de sia mizero ili vokis al Vi, kaj Vi el la ĉielo aŭdis, kaj pro Via granda favorkoreco Vi donis al ili savantojn, kiuj savis ilin el la manoj de iliaj malamikoj. 28 Tamen, kiam ili ricevis trankvilecon, ili denove faradis malbonon antaŭ Vi. Kaj Vi forlasis ilin en la manoj de iliaj malamikoj, kiuj regis super ili. Sed, kiam ili returnis sin kaj vokis al Vi, Vi aŭdis el la ĉielo, kaj Vi savis ilin multfoje pro Via granda kompatemeco. 29 Vi admonis ilin, ke ili returnu sin al Via instruo; sed ili estis malhumilaj kaj ne obeis Viajn ordonojn, ili pekis kontraŭ Viaj preskriboj, per kies plenumado la homo vivas, ili deturnis sian ŝul-tron, malmoligis sian nukon, kaj ne volis aŭskulti. 30 Vi atendis por ili dum multe da jaroj, Vi admonadis ilin kun Via spirito per Viaj profetoj; sed ili ne atentis; tial Vi transdonis ilin en la manojn de la popoloj alilandaj. 31 Tamen pro Via granda kompatemeco Vi ne
 
 ekstermis ilin tute, kaj ne forlasis ilin, ĉar Vi estas Dio indulgema kaj kompatema. 32 Kaj nun, ho nia Dio, Dio granda, potenca, kaj timinda, kiu konservas la interligon kaj la favorkorecon, ne rigardu kiel tro malgrandan la tutan suferon, kiu trafis nin, niajn reĝojn, niajn princojn, niajn pastrojn, niajn profetojn, niajn patrojn, kaj Vian tutan popolon, de la tempo de la reĝoj de Asirio ĝis la nuna tago.
 
-33 Vi estas justa en ĉio, kio trafis nin; ĉar Vi agis laŭ la vero, kaj ni agis malpie. 34 Kaj niaj reĝoj, niaj princoj, niaj pastroj, kaj niaj pa-913
-
-L A S A N K TA B I B L I O
-
-
-troj ne plenumis Vian instruon, kaj ne atentis Viajn ordonojn kaj
+33 Vi estas justa en ĉio, kio trafis nin; ĉar Vi agis laŭ la vero, kaj ni agis malpie. 34 Kaj niaj reĝoj, niaj princoj, niaj pastroj, kaj niaj patroj ne plenumis Vian instruon, kaj ne atentis Viajn ordonojn kaj
 
 admonojn, per kiuj Vi ilin admonis. 35 En la tempo de sia regno, kaj ĉe Via granda bono, kiun Vi donis al ili, sur la tero vasta kaj grasa, kiun Vi donis al ili, ili ne servis al Vi kaj ne deturnis sin de siaj malbonaj agoj. 36 Jen ni hodiaŭ estas sklavoj, kaj sur la tero, kiun Vi donis al niaj patroj, por ke ni manĝu ĝiajn fruktojn kaj ĝian bo-naĵon, jen ni estas sklavoj sur ĝi. 37 Kaj ĝiaj produktaĵoj abunde iras al la reĝoj, kiujn Vi starigis super ni pro niaj pekoj; ili regas super niaj korpoj kaj super niaj brutoj laŭ sia plaĉo, kaj en granda mizero ni estas. 38 En ĉio ĉi tio ni faras firman interligon, kaj ni skribas, kaj tion sigelas niaj eminentuloj, niaj Levidoj, niaj pastroj.
 
-ĉapitro 10
+ĉapitro
 
 1 La sigelintoj estas: Neęmja, la regionestro, filo de ˘aąlja, kaj Cidkija, 2 Seraja, Azarja, Jeremia, 3 Paŝ˛ur, Amarja, Malkija, 4 ˘atuŝ, ŝebanja, Malu˛, 5 ˘arim, Meremot, Obadja, 6 Daniel, Ginton, Ba-ru˛, 7 Meŝulam, Abija, Mijamin, 8 Maazja, Bilgaj, ŝemaja. Tio estas la pastroj. 9 La Levidoj: Jeŝua, filo de Azanja, Binuj, el la filoj de ˘enadad, Kadmiel; 10 kaj iliaj fratoj: ŝebanja, Hodija, Kelita, Pelaja,
 
-˘anan, 11 Mią, Re˛ob, ˘aŝabja, 12 Zakur, ŝerebja, ŝebanja, 13 Ho-
+˘anan, 11 Mią, Re˛ob, ˘aŝabja, 12 Zakur, ŝerebja, ŝebanja, 13 Hodija, Bani, Beninu. 14 La ĉefoj de la popolo: Paroŝ, Paąt-Moab,
 
-dija, Bani, Beninu. 14 La ĉefoj de la popolo: Paroŝ, Paąt-Moab,
-
-Elam, Zatu, Bani, 15 Buni, Azgad, Bebaj, 16 Adonija, Bigvaj, Adin, 17
+Elam, Zatu, Bani, 15 Buni, Azgad, Bebaj, 16 Adonija, Bigvaj, Adin,
 
 Ater, ˘izkija, Azur, 18 Hodija, ˘aŝum, Becaj, 19 ˘arif, Anatot, Nebaj, 20 Magpiaŝ, Meŝulam, ˘ezir, 21 Meŝezabel, Cadok, Jadua, 22 Pelatja, ˘anan, Anaja, 23 Hoŝea, ˘ananja, ˘aŝub, 24 Haloęŝ, Pilą,
 
-ŝobek, 25 Re˛um, ˘aŝabna, Maaseja, 26 A˛ija, ˘anan, Anan, 27 Ma-
-
-lu˛, ˘arim, Baana. 28 Kaj la cetera popolo, la pastroj, Levidoj, pordegistoj, kantistoj, Netinoj, kaj ĉiuj, kiuj apartiĝis de la aligentaj popoloj al la instruo de Dio, iliaj edzinoj, filoj, kaj filinoj, ĉiuj, kiuj 914
-
-L A S A N K TA B I B L I O
+ŝobek, 25 Re˛um, ˘aŝabna, Maaseja, 26 A˛ija, ˘anan, Anan, 27 Malu˛, ˘arim, Baana. 28 Kaj la cetera popolo, la pastroj, Levidoj, pordegistoj, kantistoj, Netinoj, kaj ĉiuj, kiuj apartiĝis de la aligentaj popoloj al la instruo de Dio, iliaj edzinoj, filoj, kaj filinoj, ĉiuj, kiuj
 
 
 povis kompreni, 29 aliĝis al siaj fratoj, al la eminentuloj, kaj ligis sin per ĵura promeso, ke ili sekvos la instruon de Dio, donitan per Moseo, servanto de Dio, kaj ke ili konservos kaj plenumos ĉiujn ordonojn de la Eternulo, nia Sinjoro, Liajn preskribojn kaj leĝojn; 30 ke ni ne donos niajn filinojn al la popoloj de la lando, kaj iliajn filinojn ni ne prenos por niaj filoj; 31 ke kiam la popoloj de la lando venigos la komercaĵojn aŭ ĉiaspecan grenon en sabato, por vendi, ni ne prenos de ili en sabato aŭ en alia sankta tago; ke en ĉiu sepa jaro ni forigos ĉiujn ŝuldojn. 32 Kaj ni starigis al ni kiel leĝon, ke ni donados de ni po triono de siklo ĉiujare por la servado en la domo de nia Dio: 33 por la panoj de propono, por la ĉiutaga farunofero, por la ĉiutaga brulofero, por la sabatoj, monatkomencoj, festoj, por la
@@ -652,45 +464,28 @@ sanktaĵoj, por pekoferoj, por pekliberigi Izraelon, kaj por ĉiuj laboroj en la
 
 oferdonojn, la fruktojn de ĉiuj arboj, moston, kaj oleon ni alportados al la pastroj en la ĉambrojn de la domo de nia Dio; kaj la deko-naĵon de nia tero ni donos al la Levidoj, por ke ili, la Levidoj, havu dekonaĵon en ĉiuj urboj, kie ni prilaboras la teron. 38 Kaj la pastro, la Aaronido, estos kun la Levidoj, kiam ili prenos la dekonaĵon; kaj la Levidoj venigos dekonaĵon el la dekonaĵo en la domon de nia
 
-Dio, en la ĉambrojn de la provizejo. 39 ĉar en tiujn ĉambrojn la Izra-915
+Dio, en la ĉambrojn de la provizejo. 39 ĉar en tiujn ĉambrojn la Izraelidoj kaj la Levidoj devas liveri la oferdonon el la greno, mosto, kaj oleo. Tie troviĝas la vazoj de la sanktejo, la servantaj pastroj, la pordegistoj, kaj la kantistoj. Kaj ni ne forlasos la domon de nia Dio.
 
-L A S A N K TA B I B L I O
+ĉapitro
 
-
-elidoj kaj la Levidoj devas liveri la oferdonon el la greno, mosto, kaj oleo. Tie troviĝas la vazoj de la sanktejo, la servantaj pastroj, la pordegistoj, kaj la kantistoj. Kaj ni ne forlasos la domon de nia Dio.
-
-ĉapitro 11
-
-1 La estroj de la popolo loĝis en Jerusalem. La cetera popolo faris lotadon, por ke unu parto el dek loĝu en Jerusalem, la sankta urbo, kaj la ceteraj naŭ partoj en la urboj. 2 Kaj la popolo benis ĉiujn homojn, kiuj memvole konsentis loĝi en Jerusalem. 3 Jen estas la ĉe-
-
-foj de la provinco, kiuj loĝis en Jerusalem; en la urboj de Judujo loĝis ĉiu en sia posedaĵo, laŭ siaj urboj, la Izraelidoj, pastroj, Levidoj, Netinoj, kaj idoj de la servantoj de Salomono. 4 En Jerusalem loĝis el la idoj de Jehuda kaj el la idoj de Benjamen: el la idoj de Jehuda: Ataja, filo de Uzija, filo de Zeąrja, filo de Amarja, filo de ŝefatja, filo de Mahalalel, el la filoj de Perec; 5 kaj Maaseja, filo de Baru˛, filo de Kol-˘oze, filo de ˘azaja, filo de Adaja, filo de Jojarib, filo de Zeąrja, filo de la ŝiloano. 6 La nombro de ĉiuj idoj de Perec, kiuj loĝis en Jerusalem, estis kvarcent sesdek ok, homoj ba-talkapablaj. 7 Kaj jen estas la idoj de Benjamen: Salu, filo de Meŝulam, filo de Joed, filo de Pedaja, filo de Kolaja, filo de Maaseja, filo de Itiel, filo de Jeŝaja; 8 post li Gabaj, Salaj, naŭcent dudek ok. 9 Kaj Joel, filo de Zi˛ri, estis ilia estro; kaj Jehuda, filo de Hasenua, estis dua urbestro. 10 El la pastroj: Jedaja, filo de Jojarib, Ja˛in, 11 Seraja, filo de ˘ilkija, filo de Meŝulam, filo de Cadok, filo de Merajot, filo de A˛itub, estro en la domo de Dio. 12 Kaj iliaj fratoj, kiuj plenumadis laborojn en la domo, estis en la nombro de okcent dudek du; kaj Adaja, filo de Jeroąm, filo de Pelalja, filo de Amci, filo de Zeąrja, filo de Paŝ˛ur, filo de Malkija; 13 kaj liaj fratoj, ĉefoj de patrodomoj, ducent kvardek du; kaj Amaŝsaj, filo de Azarel, filo de A˛zaj, filo de 916
-
-L A S A N K TA B I B L I O
+1 La estroj de la popolo loĝis en Jerusalem. La cetera popolo faris lotadon, por ke unu parto el dek loĝu en Jerusalem, la sankta urbo, kaj la ceteraj naŭ partoj en la urboj. 2 Kaj la popolo benis ĉiujn homojn, kiuj memvole konsentis loĝi en Jerusalem. 3 Jen estas la ĉefoj de la provinco, kiuj loĝis en Jerusalem; en la urboj de Judujo loĝis ĉiu en sia posedaĵo, laŭ siaj urboj, la Izraelidoj, pastroj, Levidoj, Netinoj, kaj idoj de la servantoj de Salomono. 4 En Jerusalem loĝis el la idoj de Jehuda kaj el la idoj de Benjamen: el la idoj de Jehuda: Ataja, filo de Uzija, filo de Zeąrja, filo de Amarja, filo de ŝefatja, filo de Mahalalel, el la filoj de Perec; 5 kaj Maaseja, filo de Baru˛, filo de Kol-˘oze, filo de ˘azaja, filo de Adaja, filo de Jojarib, filo de Zeąrja, filo de la ŝiloano. 6 La nombro de ĉiuj idoj de Perec, kiuj loĝis en Jerusalem, estis kvarcent sesdek ok, homoj ba-talkapablaj. 7 Kaj jen estas la idoj de Benjamen: Salu, filo de Meŝulam, filo de Joed, filo de Pedaja, filo de Kolaja, filo de Maaseja, filo de Itiel, filo de Jeŝaja; 8 post li Gabaj, Salaj, naŭcent dudek ok. 9 Kaj Joel, filo de Zi˛ri, estis ilia estro; kaj Jehuda, filo de Hasenua, estis dua urbestro. 10 El la pastroj: Jedaja, filo de Jojarib, Ja˛in, 11 Seraja, filo de ˘ilkija, filo de Meŝulam, filo de Cadok, filo de Merajot, filo de A˛itub, estro en la domo de Dio. 12 Kaj iliaj fratoj, kiuj plenumadis laborojn en la domo, estis en la nombro de okcent dudek du; kaj Adaja, filo de Jeroąm, filo de Pelalja, filo de Amci, filo de Zeąrja, filo de Paŝ˛ur, filo de Malkija; 13 kaj liaj fratoj, ĉefoj de patrodomoj, ducent kvardek du; kaj Amaŝsaj, filo de Azarel, filo de A˛zaj, filo de
 
 
 Meŝilemot, filo de de Imer; 14 kaj iliaj fratoj, kuraĝaj viroj, cent dudek ok. Ilia estro estis Zabdiel, filo de Hagedolim. 15 Kaj el la Levidoj: ŝemaja, filo de ˘aŝub, filo de Azrikam, filo de ˘aŝabja, filo de Buni; 16 kaj ŝabtaj kaj Jozabad super la eksteraj aferoj de la domo de Dio, el la ĉefoj de la Levidoj; 17 kaj Matanja, filo de Mią, filo de Zabdi, filo de Asaf, ĉefa komencisto de laŭdkantado ĉe la preĝoj, kaj Bakbukja, la dua inter siaj fratoj, kaj Abda, filo de ŝamua, filo de Galal, filo de Jedutun. 18 La nombro de ĉiuj Levidoj en la sankta
 
 urbo estis ducent okdek kvar. 19 Kaj la pordegistoj: Akub, Talmon, kaj iliaj fratoj, gardistoj ĉe la pordegoj, cent sepdek du. 20 La ceteraj Izraelidoj, pastroj, kaj Levidoj loĝis en ĉiuj urboj de Judujo, ĉiu en sia posedaĵo. 21 Kaj la Netinoj loĝis en Ofel; Cią kaj Giŝpa estis super la Netinoj. 22 Estro de la Levidoj en Jerusalem estis Uzi, filo de Bani, filo de ˘aŝabja, filo de Matanja, filo de Mią, el la idoj de Asaf, kantistoj ĉe la servado en la domo de Dio. 23 ĉar pri ili estis ordono de la reĝo, kaj por la kantistoj estis difinita ĉiutaga salajro.
 
-24 Kaj Peta˛ja, filo de Meŝezabel, el la idoj de Zera˛, filo de Jehuda, estis komisiita de la reĝo por ĉiuj aferoj, koncernantaj la popolon. 25 Kaj en la vilaĝoj, sur siaj kampoj multaj el la idoj de Jehuda loĝis en Kirjat-Arba kaj ĝiaj ĉirkaŭaĵoj, en Diŝon kaj ĝiaj ĉirkaŭaĵoj, en Kabceel kaj ĝiaj vilaĝoj, 26 en Jeŝua, en Molada, en Bet-Pelet, 27
+24 Kaj Peta˛ja, filo de Meŝezabel, el la idoj de Zera˛, filo de Jehuda, estis komisiita de la reĝo por ĉiuj aferoj, koncernantaj la popolon. 25 Kaj en la vilaĝoj, sur siaj kampoj multaj el la idoj de Jehuda loĝis en Kirjat-Arba kaj ĝiaj ĉirkaŭaĵoj, en Diŝon kaj ĝiaj ĉirkaŭaĵoj, en Kabceel kaj ĝiaj vilaĝoj, 26 en Jeŝua, en Molada, en Bet-Pelet,
 
 en ˘acar-ŝual, en Beer-ŝeba kaj ĝiaj ĉirkaŭaĵoj, 28 en Ciklag, en
 
 Me˛ona kaj ĝiaj ĉirkaŭaĵoj, 29 en En-Rimon, en Corea, en Jarmut,
 
-30 en Zanoa˛, en Adulam, kaj iliaj vilaĝoj, en La˛iŝ kaj sur ĝiaj kampoj, en Azeka kaj ĝiaj ĉirkaŭaĵoj. Ili starigis siajn tendojn de Beer-
+30 en Zanoa˛, en Adulam, kaj iliaj vilaĝoj, en La˛iŝ kaj sur ĝiaj kampoj, en Azeka kaj ĝiaj ĉirkaŭaĵoj. Ili starigis siajn tendojn de Beerŝeba ĝis la valo Hinom. 31 Kaj la idoj de Benjamen loĝis komencante de Geba, en Mi˛maŝ, en Aja, en Bet-El kaj ĝiaj ĉirkaŭaĵoj, 32 en Anatot, en Nob, en Ananja, 33 en ˘acor, en Rama, en Gitaim, 34 en ˘a-
 
-ŝeba ĝis la valo Hinom. 31 Kaj la idoj de Benjamen loĝis komencante de Geba, en Mi˛maŝ, en Aja, en Bet-El kaj ĝiaj ĉirkaŭaĵoj, 32 en Anatot, en Nob, en Ananja, 33 en ˘acor, en Rama, en Gitaim, 34 en ˘a-
+did, en Ceboim, en Nebalat, 35 en Lod, en Ono, en la Valo de ĉarpentistoj. 36 Kaj el la Levidoj parto el Judujo loĝis en la regiono de Benjamen.
 
-did, en Ceboim, en Nebalat, 35 en Lod, en Ono, en la Valo de ĉar-
-
-
-L A S A N K TA B I B L I O
-
-
-pentistoj. 36 Kaj el la Levidoj parto el Judujo loĝis en la regiono de Benjamen.
-
-ĉapitro 12
+ĉapitro
 
 1 Jen estas la pastroj kaj Levidoj, kiuj venis kun Zerubabel, filo de ŝealtiel, kaj kun Jeŝua: ŝeraja, Jeremia, Ezra, 2 Amarja, Malu˛, ˘a-tuŝ, 3 ŝeąnja, Re˛um, Meremot, 4 Ido, Ginton, Abija, 5 Mijamin,
 
@@ -702,69 +497,44 @@ Tio estas la ĉefoj de la pastroj kaj iliaj fratoj en la tempo de Jeŝua.
 
 ˘ananja; 13 de la domo de Ezra: Meŝulam; de la domo de Amarja:
 
-Jehoąnan; 14 de la domo de Meli˛u: Jonatan; de la domo de ŝeban-
+Jehoąnan; 14 de la domo de Meli˛u: Jonatan; de la domo de ŝebanja: Jozef; 15 de la domo de ˘arim: Adna; de la domo de Merajot:
 
-ja: Jozef; 15 de la domo de ˘arim: Adna; de la domo de Merajot:
-
-˘elkaj; 16 de la domo de Ido: Zeąrja; de la domo de Ginton: Meŝu-
-
-lam; 17 de la domo de Abija: Zi˛ri; de la domo de Minjamin, de la
+˘elkaj; 16 de la domo de Ido: Zeąrja; de la domo de Ginton: Meŝulam; 17 de la domo de Abija: Zi˛ri; de la domo de Minjamin, de la
 
 domo de Moadja: Piltaj; 18 de la domo de Bilga: ŝamua; de la domo
 
 de ŝemaja: Jehonatan; 19 de la domo de Jojarib: Matnaj; de la domo de Jedaja: Uzi; 20 de la domo de Salaj: Kalaj; de la domo de Amok: Eber; 21 de la domo de ˘ilkija: ˘aŝabja; de la domo de Jedaja: Netanel. 22 El la Levidoj estis enskribitaj la ĉefoj de patrodomoj en la tempo de Eljaŝib, Jojada, Joąnan, kaj Jadua; la pastroj dum la regado de Dario la Persa. 23 La Levidoj, ĉefoj de patrodomoj, estis
 
-enskribitaj en la libron de kroniko ĝis la tempo de Joąnan, filo de Eljaŝib. 24 La ĉefoj de la Levidoj: ˘aŝabja, ŝerebja, Jeŝua, filo de Kad-918
-
-L A S A N K TA B I B L I O
-
-
-miel, kaj iliaj fratoj apud ili estis destinitaj por la laŭdkantoj, laŭ la aranĝo de David, la homo de Dio, laŭ deĵorpartoj. 25 Matanja, Bakbukja, Obadja, Meŝulam, Talmon, kaj Akub estis pordegistoj, kaj
+enskribitaj en la libron de kroniko ĝis la tempo de Joąnan, filo de Eljaŝib. 24 La ĉefoj de la Levidoj: ˘aŝabja, ŝerebja, Jeŝua, filo de Kadmiel, kaj iliaj fratoj apud ili estis destinitaj por la laŭdkantoj, laŭ la aranĝo de David, la homo de Dio, laŭ deĵorpartoj. 25 Matanja, Bakbukja, Obadja, Meŝulam, Talmon, kaj Akub estis pordegistoj, kaj
 
 deĵoris en la provizejoj ĉe la pordegoj. 26 Ili estis en la tempo de Jojakim, filo de Jeŝua, filo de Jocadak, kaj en la tempo de Neęmja, la regionestro, kaj de Ezra, la pastro-skribisto.
 
-27 ĉe la inaŭguro de la murego de Jerusalem oni serĉis la Levi-
-
-dojn el ĉiuj iliaj lokoj, por venigi ilin en Jerusalemon, por fari inaŭ-
+27 ĉe la inaŭguro de la murego de Jerusalem oni serĉis la Levidojn el ĉiuj iliaj lokoj, por venigi ilin en Jerusalemon, por fari inaŭ-
 
 guron kaj ĝojan feston, kun glorhimnoj kaj kantoj, kun cimbaloj, ps-alteroj, kaj harpoj. 28 Kaj kunvenis la idoj de kantistoj el la regiono ĉirkaŭ Jerusalem kaj el la vilaĝoj de la Netofaanoj, 29 el Bet-Gilgal, de la kampoj de Geba kaj Azmavet; ĉar la kantistoj konstruis al si vilaĝojn en la ĉirkaŭaĵo de Jerusalem. 30 Kaj purigis sin la pastroj kaj la Levidoj, kaj ili purigis la popolon, la pordegojn, kaj la muregon.
 
-31 Tiam mi suprenirigis la estrojn de Judujo sur la muregon, kaj mi starigis du grandajn ˛orojn kaj procesiojn. Unu sur la dekstra flanko de la murego, ĉe la Pordego de Sterko. 32 Kaj post ili iris Hoŝaja, kaj duono de la estroj de Judujo, 33 kaj Azarja, Ezra, Meŝulam, 34 Jehuda, Benjamen, ŝemaja, kaj Jeremia. 35 El la pastridoj kun trumpetoj: Zeąrja, filo de Jonatan, filo de ŝemaja, filo de Matanja, filo de Mi-
+31 Tiam mi suprenirigis la estrojn de Judujo sur la muregon, kaj mi starigis du grandajn ˛orojn kaj procesiojn. Unu sur la dekstra flanko de la murego, ĉe la Pordego de Sterko. 32 Kaj post ili iris Hoŝaja, kaj duono de la estroj de Judujo, 33 kaj Azarja, Ezra, Meŝulam, 34 Jehuda, Benjamen, ŝemaja, kaj Jeremia. 35 El la pastridoj kun trumpetoj: Zeąrja, filo de Jonatan, filo de ŝemaja, filo de Matanja, filo de Miąja, filo de Zakur, filo de Asaf; 36 kaj liaj fratoj: ŝemaja, Azarel, Milalaj, Gilalaj, Maaj, Netanel, Jehuda, ˘anani, kun muzikaj instrumentoj de David, la homo de Dio; kaj antaŭ ili estis Ezra, la skribisto. 37 Apud la Pordego de la Fonto, kontraŭ ĝi, ili iris sur la ŝtupoj de la urbo de David supren sur la muregon al la domo de David, kaj
 
-ąja, filo de Zakur, filo de Asaf; 36 kaj liaj fratoj: ŝemaja, Azarel, Milalaj, Gilalaj, Maaj, Netanel, Jehuda, ˘anani, kun muzikaj instrumentoj de David, la homo de Dio; kaj antaŭ ili estis Ezra, la skribisto. 37 Apud la Pordego de la Fonto, kontraŭ ĝi, ili iris sur la ŝtupoj de la urbo de David supren sur la muregon al la domo de David, kaj
-
-ĝis la Pordego de la Akvo oriente. 38 La dua ˛oro iris kontraŭe de ili, kaj post ĝi iris mi kaj duono de la popolo, supre sur la murego, de la Turo de la Fornoj ĝis la Larĝa Murego, 39 al la Pordego de Efraim, al la Malnova Pordego, al la Pordego de Fiŝoj, al la turo de ˘ananel, al la turo Mea, ĝis la Pordego de ŝafoj; kaj ili haltis ĉe la Por-919
-
-L A S A N K TA B I B L I O
-
-
-dego de la Malliberejo. 40 Kaj ambaŭ ˛oroj haltis ĉe la domo de Dio, ankaŭ mi kaj duono de la estroj kun mi, 41 kaj la pastroj Eljakim, Maaseja, Minjamin, Miąja, Eljoenaj, Zeąrja, ˘ananja, kun trumpetoj, 42 kaj Maaseja, ŝemaja, Eleazar, Uzi, Jehoąnan, Malkija,
+ĝis la Pordego de la Akvo oriente. 38 La dua ˛oro iris kontraŭe de ili, kaj post ĝi iris mi kaj duono de la popolo, supre sur la murego, de la Turo de la Fornoj ĝis la Larĝa Murego, 39 al la Pordego de Efraim, al la Malnova Pordego, al la Pordego de Fiŝoj, al la turo de ˘ananel, al la turo Mea, ĝis la Pordego de ŝafoj; kaj ili haltis ĉe la Pordego de la Malliberejo. 40 Kaj ambaŭ ˛oroj haltis ĉe la domo de Dio, ankaŭ mi kaj duono de la estroj kun mi, 41 kaj la pastroj Eljakim, Maaseja, Minjamin, Miąja, Eljoenaj, Zeąrja, ˘ananja, kun trumpetoj, 42 kaj Maaseja, ŝemaja, Eleazar, Uzi, Jehoąnan, Malkija,
 
 Elam, kaj Ezer. Kaj laŭte kantis la kantistoj; ilia ĉefo estis Jizra˛ja.
 
 43 Kaj oni alportis en tiu tago grandajn oferojn, kaj oni estis gajaj; ĉar Dio ĝojigis ilin per granda ĝojo; eĉ la virinoj kaj la infanoj ĝojis, kaj la gajeco de Jerusalem estis aŭdata malproksime.
 
-44 Kaj en tiu tago estis starigitaj homoj por la ĉambroj de provi-
+44 Kaj en tiu tago estis starigitaj homoj por la ĉambroj de provizejo, por la oferdonoj, la unuaaĵoj, la dekonaĵoj, por kolekti en tiuj ĉambroj el la kampoj de la urboj la preskribitajn partojn por la pastroj kaj la Levidoj; ĉar la Judoj ĝojis pri la pastroj kaj Levidoj, kiuj staris. 45 Kaj ili observadis la preskribon de sia Dio kaj la preskribon pri la pureco. Kaj la kantistoj kaj pordegistoj staris konforme al la preskribo de David kaj de lia filo Salomono. 46 ĉar ankaŭ antaŭe, en la tempo de David kaj Asaf, estis ĉefoj de kantistoj, kaj glorkantoj kaj dankokantoj al Dio. 47 ĉiuj Izraelidoj en la tempo de Zerubabel kaj en la tempo de Neęmja donadis partojn ĉiutagajn al la kantistoj kaj pordegistoj; kaj ili konsekradis partojn por la Levidoj, kaj la Levidoj konsekradis partojn por la idoj de Aaron.
 
-zejo, por la oferdonoj, la unuaaĵoj, la dekonaĵoj, por kolekti en tiuj ĉambroj el la kampoj de la urboj la preskribitajn partojn por la pastroj kaj la Levidoj; ĉar la Judoj ĝojis pri la pastroj kaj Levidoj, kiuj staris. 45 Kaj ili observadis la preskribon de sia Dio kaj la preskribon pri la pureco. Kaj la kantistoj kaj pordegistoj staris konforme al la preskribo de David kaj de lia filo Salomono. 46 ĉar ankaŭ antaŭe, en la tempo de David kaj Asaf, estis ĉefoj de kantistoj, kaj glorkantoj kaj dankokantoj al Dio. 47 ĉiuj Izraelidoj en la tempo de Zerubabel kaj en la tempo de Neęmja donadis partojn ĉiutagajn al la kantistoj kaj pordegistoj; kaj ili konsekradis partojn por la Levidoj, kaj la Levidoj konsekradis partojn por la idoj de Aaron.
+ĉapitro
 
-ĉapitro 13
-
-1 En tiu tago oni legis el la libro de Moseo antaŭ la oreloj de la popolo; kaj troviĝis, ke estas skribite en ĝi, ke Amonido kaj Moabido neniam devas eniri en la komunumon de Dio; 2 ĉar ili ne venis renkonte al la Izraelidoj kun pano kaj akvo, kaj dungis kontraŭ ili Bilea-mon, por malbeni ilin; sed nia Dio ŝanĝis la malbenon en benon. 3
+1 En tiu tago oni legis el la libro de Moseo antaŭ la oreloj de la popolo; kaj troviĝis, ke estas skribite en ĝi, ke Amonido kaj Moabido neniam devas eniri en la komunumon de Dio; 2 ĉar ili ne venis renkonte al la Izraelidoj kun pano kaj akvo, kaj dungis kontraŭ ili Bilea-mon, por malbeni ilin; sed nia Dio ŝanĝis la malbenon en benon.
 
 Kiam ili aŭdis tiun leĝon, ili apartigis de Izrael ĉiun aligentulon.
 
 4 Antaŭ ĉi tio la pastroj Eljaŝib, administranto de la ĉambroj de
 
 
-L A S A N K TA B I B L I O
-
-
 la domo de nia Dio, parenco de Tobija, 5 aranĝis por li grandan
 
-ĉambron, en kiu oni antaŭe deponadis la farunoferon, olibanon, va-
-
-zojn, dekonaĵon el la greno, mosto, kaj oleo, kiuj estis destinitaj por la Levidoj, kantistoj, kaj pordegistoj, kaj la oferdonojn por la pastroj. 6 Dum ĉio ĉi tio mi ne estis en Jerusalem, ĉar en la tridek-dua jaro de Arta˛ŝast, reĝo de Babel, mi iris al la reĝo, kaj nur post kelka tempo mi forpetis min de la reĝo. 7 Kiam mi venis en Jerusalemon,
+ĉambron, en kiu oni antaŭe deponadis la farunoferon, olibanon, vazojn, dekonaĵon el la greno, mosto, kaj oleo, kiuj estis destinitaj por la Levidoj, kantistoj, kaj pordegistoj, kaj la oferdonojn por la pastroj. 6 Dum ĉio ĉi tio mi ne estis en Jerusalem, ĉar en la tridek-dua jaro de Arta˛ŝast, reĝo de Babel, mi iris al la reĝo, kaj nur post kelka tempo mi forpetis min de la reĝo. 7 Kiam mi venis en Jerusalemon,
 
 mi eksciis pri la malbono, kiun Eljaŝib faris pro Tobija, aranĝante por li ĉambron en la kortoj de la domo de Dio. 8 Tio min forte ĉagrenis, kaj mi elĵetis ĉiujn domobjektojn de Tobija for el la ĉambro.
 
@@ -774,53 +544,38 @@ kaj la servadon al Li.
 
 15 En tiu tempo mi vidis en Judujo, ke oni tretas vinpremilojn en
 
-sabato kaj portas garbojn kaj ŝarĝas sur azenoj, ankaŭ vinon, vin-
-
-berojn, figojn, kaj ĉiaspecan ŝarĝon, kaj veturigas tion en Jerusalemon en tago sabata. Kaj mi faris al ili riproĉon en la tago, kiam ili vendis manĝaĵon. 16 Ankaŭ Tiranoj loĝis tie, kaj ili alveturigadis fiŝojn kaj ĉiaspecajn komercaĵojn, kaj vendadis en sabato al la lo-921
-
-L A S A N K TA B I B L I O
+sabato kaj portas garbojn kaj ŝarĝas sur azenoj, ankaŭ vinon, vinberojn, figojn, kaj ĉiaspecan ŝarĝon, kaj veturigas tion en Jerusalemon en tago sabata. Kaj mi faris al ili riproĉon en la tago, kiam ili vendis manĝaĵon. 16 Ankaŭ Tiranoj loĝis tie, kaj ili alveturigadis fiŝojn kaj ĉiaspecajn komercaĵojn, kaj vendadis en sabato al la lo-921
 
 
 ĝantoj de Judujo kaj de Jerusalem. 17 Kaj mi faris mallaŭdon al la eminentuloj de la Judoj, kaj diris al ili: Kial vi faras tian malbonon kaj malsanktigas la tagon sabatan? 18 Tiel agis ja viaj patroj, kaj pro tio nia Dio venigis sur nin kaj sur ĉi tiun urbon ĉi tiun tutan malfeliĉon! Kaj vi pligrandigas la koleron kontraŭ Izrael, malsanktigante la sabaton! 19 Kiam ĉe la pordegoj de Jerusalem fariĝis krepusko, antaŭ sabato, mi ordonis ŝlosi la pordojn kaj ne malfermi ilin ĝis post sabato. Kaj kelkajn el miaj servantoj mi starigis ĉe la pordegoj, por ke oni ne enportu ŝarĝon en la tago sabata. 20 Kaj la komercistoj kaj vendistoj de ĉiaspeca vendeblaĵo noktis ekstere de Jerusalem
 
-unu fojon kaj duan fojon. 21 Kaj mi faris al ili riproĉon, kaj diris al ili: Kial vi noktas apud la murego? se vi faros tion duan fojon, mi metos la manon sur vin. De tiu tempo ili ne venadis en sabato. 22
+unu fojon kaj duan fojon. 21 Kaj mi faris al ili riproĉon, kaj diris al ili: Kial vi noktas apud la murego? se vi faros tion duan fojon, mi metos la manon sur vin. De tiu tempo ili ne venadis en sabato.
 
 Kaj mi diris al la Levidoj, ke ili sin purigu, kaj venu stari garde ĉe la pordegoj, por ke oni tenu sankte la tagon sabatan. Ankaŭ ĉi tion
 
-memoru pri mi, ho mia Dio, kaj indulgu min laŭ Via granda favor-
-
-koreco.
+memoru pri mi, ho mia Dio, kaj indulgu min laŭ Via granda favorkoreco.
 
 23 Ankaŭ en tiu tempo mi vidis Judojn, kiuj prenis al si edzinojn
 
 Aŝdodaninojn, Amonidinojn, kaj Moabidinojn; 24 kaj iliaj infanoj
 
-duone parolis Aŝdode, kaj ne povosciis paroli Jude, sed nur la lingvon de tiu aŭ alia popolo. 25 Mi faris al ili severan riproĉon kaj malbenis ilin, kaj batis kelkajn virojn el ili kaj ŝiris al ili la harojn, kaj devigis ilin ĵuri per Dio: Vi ne donos viajn filinojn al iliaj filoj kaj ne prenos iliajn filinojn por viaj filoj aŭ por vi mem. 26 Per tio pekis ja Salomono, reĝo de Izrael; inter la multaj nacioj ne estis reĝo simila al li, kaj li estis amata de sia Dio, kaj Dio faris lin reĝo super la tuta Izrael; tamen eĉ lin pekigis la aligentaj edzinoj. 27 Kaj ĉu pri vi oni povas aŭdi, ke vi faras ĉi tiun tutan grandan malbonon, pekante kontraŭ nia Dio kaj prenante aligentajn edzinojn? 28 El la filoj de Jojada, filo de la ĉefpastro Eljaŝib, unu estis bofilo de la ˘oronano 922
-
-L A S A N K TA B I B L I O
+duone parolis Aŝdode, kaj ne povosciis paroli Jude, sed nur la lingvon de tiu aŭ alia popolo. 25 Mi faris al ili severan riproĉon kaj malbenis ilin, kaj batis kelkajn virojn el ili kaj ŝiris al ili la harojn, kaj devigis ilin ĵuri per Dio: Vi ne donos viajn filinojn al iliaj filoj kaj ne prenos iliajn filinojn por viaj filoj aŭ por vi mem. 26 Per tio pekis ja Salomono, reĝo de Izrael; inter la multaj nacioj ne estis reĝo simila al li, kaj li estis amata de sia Dio, kaj Dio faris lin reĝo super la tuta Izrael; tamen eĉ lin pekigis la aligentaj edzinoj. 27 Kaj ĉu pri vi oni povas aŭdi, ke vi faras ĉi tiun tutan grandan malbonon, pekante kontraŭ nia Dio kaj prenante aligentajn edzinojn? 28 El la filoj de Jojada, filo de la ĉefpastro Eljaŝib, unu estis bofilo de la ˘oronano
 
 
 Sanbalat. Mi forpelis lin de mi. 29 Memoru pri ili, ho mia Dio, ke ili makulis la pastrecon kaj la interligon pastran kaj Levidan. 30 Tiamaniere mi purigis ilin de ĉio aligenta, kaj mi restarigis la servoregulojn de la pastroj kaj Levidoj, de ĉiu en lia ofico, 31 kaj por la ofer-liverado de ligno en difinitaj tempoj, kaj por la unuaaĵoj. Memoru min, ho mia Dio, al bono.
 
 
-L A S A N K TA B I B L I O
-
-
 Ester
 
-ĉapitro 1
+ĉapitro
 
-1 Tio estis en la tempo de Aąŝveroŝ, de tiu Aąŝveroŝ, kiu reĝis de Hindujo ĝis Etiopujo, super cent dudek sep landoj. 2 En tiu tempo, kiam la reĝo Aąŝveroŝ sidis sur sia reĝa trono en la kastelurbo ŝu-
-
-ŝan, 3 en la tria jaro de lia reĝado, li faris festenon por ĉiuj siaj princoj kaj siaj servantoj, por la potenculoj de Persujo kaj Medujo, por la landestroj kaj regionestroj, kiuj estis ĉe li, 4 montrante la grandan riĉecon de sia regno kaj la majestan belecon de sia grandeco, dum
+1 Tio estis en la tempo de Aąŝveroŝ, de tiu Aąŝveroŝ, kiu reĝis de Hindujo ĝis Etiopujo, super cent dudek sep landoj. 2 En tiu tempo, kiam la reĝo Aąŝveroŝ sidis sur sia reĝa trono en la kastelurbo ŝuŝan, 3 en la tria jaro de lia reĝado, li faris festenon por ĉiuj siaj princoj kaj siaj servantoj, por la potenculoj de Persujo kaj Medujo, por la landestroj kaj regionestroj, kiuj estis ĉe li, 4 montrante la grandan riĉecon de sia regno kaj la majestan belecon de sia grandeco, dum
 
 multe da tagoj, dum cent okdek tagoj. 5 Kiam finiĝis tiuj tagoj, la reĝo faris por la tuta popolo, kiu troviĝis en la kastelurbo ŝuŝan, de la grandaj ĝis la malgrandaj, festenon septagan sur la ĝardena korto de la reĝa palaco. 6 Blankaj, ruĝaj, kaj bluaj ŝtofoj, fiksitaj per bisi-naj kaj purpuraj ŝnuroj, pendis sur arĝentaj ringoj kaj marmoraj
 
 kolonoj. Oraj kaj arĝentaj benkoj staris sur podio el verda, blanka, flava, kaj nigra marmoro. 7 La trinkaĵon oni donadis en oraj vazoj kaj en vazoj ne similaj unuj al la aliaj; kaj da reĝa vino estis multe, kiel decis al la reĝo. 8 La trinkado estis en ordo, neniu devigis; ĉar tiel la reĝo ordonis al ĉiuj administrantoj de sia domo, ke oni agu laŭ la volo de ĉiu. 9 Ankaŭ la reĝino Vaŝti faris festenon por la virinoj de la reĝa domo de la reĝo Aąŝveroŝ. 10 En la sepa tago, kiam
 
-la koro de la reĝo gajiĝis de vino, li diris al Mehuman, Bizta, ˘arbona, Bigta, Abagta, Zetar, kaj Karkas, la sep eŭnukoj, kiuj servadis antaŭ la reĝo Aąŝveroŝ, 11 ke ili alkonduku la reĝinon Vaŝti al la reĝo en la reĝina krono, por montri al la popoloj kaj al la princoj 924
-
-L A S A N K TA B I B L I O
+la koro de la reĝo gajiĝis de vino, li diris al Mehuman, Bizta, ˘arbona, Bigta, Abagta, Zetar, kaj Karkas, la sep eŭnukoj, kiuj servadis antaŭ la reĝo Aąŝveroŝ, 11 ke ili alkonduku la reĝinon Vaŝti al la reĝo en la reĝina krono, por montri al la popoloj kaj al la princoj
 
 
 ŝian belecon; ĉar ŝi estis bela. 12 Sed la reĝino Vaŝti ne volis veni laŭ la ordono, kiun la reĝo donis per la eŭnukoj. Tiam la reĝo forte
@@ -831,21 +586,16 @@ la rajton rigardi la vizaĝon de la reĝo kaj okupis la unuan lokon en la regno)
 
 eŭnukoj? 16 Tiam diris Memuąn antaŭ la reĝo kaj la princoj: La
 
-reĝino Vaŝti estas kulpa, ne sole kontraŭ la reĝo, sed kontraŭ ĉiuj princoj, kaj kontraŭ ĉiuj popoloj, kiuj troviĝas en ĉiuj landoj de la reĝo Aąŝveroŝ; 17 ĉar la ago de la reĝino fariĝos konata al ĉiuj virinoj tiel, ke ili malrespektos siajn edzojn, dirante: La reĝo Aąŝ-
-
-veroŝ ordonis venigi al li la reĝinon Vaŝti, kaj ŝi ne iris. 18 Nun la Persaj kaj Medaj princedzinoj, kiuj aŭdis pri la ago de la reĝino, parolos tiel same al ĉiuj princoj de la reĝo; kaj estos sufiĉe da malhonoro kaj da ĉagreno. 19 Se al la reĝo plaĉas, oni elirigu ordonon de la reĝo, kaj oni enskribu ĝin kiel nemalobeeblan leĝon de Persujo kaj Medujo, ke la reĝino Vaŝti ne venu plu antaŭ la reĝon Aąŝ-
+reĝino Vaŝti estas kulpa, ne sole kontraŭ la reĝo, sed kontraŭ ĉiuj princoj, kaj kontraŭ ĉiuj popoloj, kiuj troviĝas en ĉiuj landoj de la reĝo Aąŝveroŝ; 17 ĉar la ago de la reĝino fariĝos konata al ĉiuj virinoj tiel, ke ili malrespektos siajn edzojn, dirante: La reĝo Aąŝveroŝ ordonis venigi al li la reĝinon Vaŝti, kaj ŝi ne iris. 18 Nun la Persaj kaj Medaj princedzinoj, kiuj aŭdis pri la ago de la reĝino, parolos tiel same al ĉiuj princoj de la reĝo; kaj estos sufiĉe da malhonoro kaj da ĉagreno. 19 Se al la reĝo plaĉas, oni elirigu ordonon de la reĝo, kaj oni enskribu ĝin kiel nemalobeeblan leĝon de Persujo kaj Medujo, ke la reĝino Vaŝti ne venu plu antaŭ la reĝon Aąŝ-
 
 veroŝ; kaj ŝian reĝinecon la reĝo transdonu al alia virino, kiu estas pli bona ol ŝi. 20 Kiam la ordono, kiun la reĝo faris, estos aŭdita en lia tuta regno, kiel ajn granda ĝi estas, tiam ĉiuj virinoj respektos siajn edzojn, de la grandaj ĝis la malgrandaj. 21 La parolo plaĉis al la reĝo kaj al la princoj, kaj la reĝo agis konforme al la parolo de Memuąn. 22 Kaj li sendis leterojn en ĉiujn landojn de la reĝo, en
 
 ĉiun landon laŭ ĝia skribmaniero kaj al ĉiu popolo en ĝia lingvo, ke ĉiu viro estu ĉefo en sia domo kaj postulu paroladon en la lingvo de lia popolo.
 
 
-L A S A N K TA B I B L I O
+ĉapitro
 
-
-ĉapitro 2
-
-1 Post tiu afero, kiam kvietiĝis la kolero de la reĝo Aąŝveroŝ, li rememoris pri Vaŝti, kaj pri tio, kion ŝi faris kaj kio estis dekretita pri ŝi. 2 Kaj diris la junuloj de la reĝo, kiuj servadis al li: Oni serĉu por la reĝo belajn junajn virgulinojn; 3 kaj la reĝo starigu en ĉiuj landoj de sia regno oficistojn, kiuj kolektus ĉiujn belajn junajn virgulinojn en la kastelurbon ŝuŝan, en la virinejon, sub la inspektadon de Hegaj, la reĝa eŭnuko, gardisto de la virinoj, kaj oni donu al ili iliajn beligaĵojn; 4 kaj la junulino, kiu plaĉos al la okuloj de la reĝo, fariĝos reĝino anstataŭ Vaŝti. Kaj la afero plaĉis al la reĝo, kaj li tiel faris. 5
+1 Post tiu afero, kiam kvietiĝis la kolero de la reĝo Aąŝveroŝ, li rememoris pri Vaŝti, kaj pri tio, kion ŝi faris kaj kio estis dekretita pri ŝi. 2 Kaj diris la junuloj de la reĝo, kiuj servadis al li: Oni serĉu por la reĝo belajn junajn virgulinojn; 3 kaj la reĝo starigu en ĉiuj landoj de sia regno oficistojn, kiuj kolektus ĉiujn belajn junajn virgulinojn en la kastelurbon ŝuŝan, en la virinejon, sub la inspektadon de Hegaj, la reĝa eŭnuko, gardisto de la virinoj, kaj oni donu al ili iliajn beligaĵojn; 4 kaj la junulino, kiu plaĉos al la okuloj de la reĝo, fariĝos reĝino anstataŭ Vaŝti. Kaj la afero plaĉis al la reĝo, kaj li tiel faris.
 
 En la kastelurbo ŝuŝan estis Judo, kies nomo estis Mordeąj, filo de Jair, filo de ŝimei, filo de Kiŝ, Benjamenido; 6 kiu estis transloĝigita el Jerusalem kune kun la transloĝigitoj, kiuj estis forkondukitaj kun Je˛onja, reĝo de Judujo, kaj kiujn transloĝigis Nebukadnecar, reĝo de Babel. 7 Li estis prizorganto de Hadasa, kiu ankaŭ estis nomata Ester, filino de lia onklo, ĉar ŝi ne havis patron nek patrinon. La junulino estis belstatura kaj belvizaĝa. Kiam mortis ŝiaj gepatroj,
 
@@ -853,20 +603,16 @@ Mordeąj prenis ŝin al si kiel filinon. 8 Kiam estis aŭdigita la ordono de la 
 
 gardisto de la virinoj. 9 La knabino plaĉis al li kaj akiris lian favoron, kaj li rapide donis al ŝi ŝiajn beligaĵojn kaj ŝian destinitaĵon, kaj sep knabinojn elektitajn el la domo de la reĝo; kaj li transloĝigis ŝin kun ŝiaj knabinoj en la plej bonan parton de la virinejo. 10 Ester ne diris pri sia popolo nek pri sia patrujo, ĉar Mordeąj ordonis al ŝi, ke ŝi ne diru. 11 ĉiutage Mordeąj iradis antaŭ la korto de la virinejo, por sciiĝi pri la farto de Ester, kaj pri tio, kio okazas al ŝi. 12 Kiam por ĉiu knabino venis la vico iri al la reĝo Aąŝveroŝ, post kiam dum
 
-dek du monatoj estis farata al ŝi la beligado destinita por la virinoj 926
-
-L A S A N K TA B I B L I O
+dek du monatoj estis farata al ŝi la beligado destinita por la virinoj
 
 
-(ĉar tiel longe daŭris la tempo de ilia beligado: ses monatoj per mirha oleo, kaj ses monatoj per aromaĵoj kaj per aliaj ŝmiraĵoj), 13 tiam la knabino eniris al la reĝo. ĉion, kion ŝi diris, oni donis al ŝi, por ke ŝi iru kun tio el la virinejo en la reĝan domon. 14 Vespere ŝi eniris, kaj matene ŝi revenis en la virinejon duan, sub la inspekton de ŝaaŝgaz, reĝa eŭnuko, gardisto de la kromvirinoj; ŝi jam ne plu iris al la reĝo, krom en la okazo, se la reĝo ŝin deziris kaj se ŝi estis vokita laŭnome. 15 Kiam por Ester, filino de Abiąil, onklo de Mor-
-
-deąj, kiu prenis ŝin al si kiel filinon, venis la vico iri al la reĝo, ŝi nenion petis, krom nur tio, kion diris Hegaj, la reĝa eŭnuko, gardisto de la virinoj. Kaj Ester akiris la favoron de ĉiuj, kiuj ŝin vidis. 16
+(ĉar tiel longe daŭris la tempo de ilia beligado: ses monatoj per mirha oleo, kaj ses monatoj per aromaĵoj kaj per aliaj ŝmiraĵoj), 13 tiam la knabino eniris al la reĝo. ĉion, kion ŝi diris, oni donis al ŝi, por ke ŝi iru kun tio el la virinejo en la reĝan domon. 14 Vespere ŝi eniris, kaj matene ŝi revenis en la virinejon duan, sub la inspekton de ŝaaŝgaz, reĝa eŭnuko, gardisto de la kromvirinoj; ŝi jam ne plu iris al la reĝo, krom en la okazo, se la reĝo ŝin deziris kaj se ŝi estis vokita laŭnome. 15 Kiam por Ester, filino de Abiąil, onklo de Mordeąj, kiu prenis ŝin al si kiel filinon, venis la vico iri al la reĝo, ŝi nenion petis, krom nur tio, kion diris Hegaj, la reĝa eŭnuko, gardisto de la virinoj. Kaj Ester akiris la favoron de ĉiuj, kiuj ŝin vidis.
 
 Ester estis prenita al la reĝo Aąŝveroŝ en lian reĝan domon en la
 
 deka monato, tio estas en la monato Tebet, en la sepa jaro de lia
 
-reĝado. 17 Kaj la reĝo ekamis Esteron pli ol ĉiujn edzinojn, kaj ŝi akiris ĉe li simpation kaj favoron pli ol ĉiuj virgulinoj; kaj li metis reĝan kronon sur ŝian kapon kaj faris ŝin reĝino anstataŭ Vaŝti. 18
+reĝado. 17 Kaj la reĝo ekamis Esteron pli ol ĉiujn edzinojn, kaj ŝi akiris ĉe li simpation kaj favoron pli ol ĉiuj virgulinoj; kaj li metis reĝan kronon sur ŝian kapon kaj faris ŝin reĝino anstataŭ Vaŝti.
 
 Kaj la reĝo faris grandan festenon por ĉiuj siaj princoj kaj servantoj, festenon je la honoro de Ester; kaj li donis ripozon al la landoj kaj disdonis reĝajn donacojn. 19 Kaj kiam oni la duan fojon kolektis junulinojn, Mordeąj sidis ĉe la pordego de la reĝo. 20 Ester ankoraŭ ne diris pri sia patrujo kaj pri sia popolo, kiel ordonis al ŝi Mordeąj; kaj la dirojn de Mordeąj Ester plenumadis tiel same,
 
@@ -875,18 +621,13 @@ kiel tiam, kiam ŝi estis sub lia prizorgado. 21 En tiu tempo, kiam Mordeąj sid
 diris al la reĝino Ester, kaj Ester diris tion al la reĝo en la nomo de Mordeąj. 23 La afero estis esplorita kaj trovita vera, kaj oni pendigis ambaŭ sur arbo. Kaj tio estis enskribita en la kronikon ĉe la reĝo.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 3
+ĉapitro
 
 1 Post tiuj okazintaĵoj la reĝo Aąŝveroŝ eminentigis Hamanon,
 
-filon de Hamedata, la Agagidon, altigis lin kaj starigis lian seĝon super ĉiuj princoj, kiuj estis ĉe li. 2 Kaj ĉiuj servantoj de la reĝo, kiuj estis ĉe la pordego de la reĝo, klinadis sin kaj ĵetadis sin vizaĝaltere antaŭ Haman, ĉar tiel ordonis pri li la reĝo. Sed Mordeąj sin ne klinadis kaj ne ĵetadis sin vizaĝaltere. 3 La servantoj de la reĝo, kiuj estis ĉe la pordego de la reĝo, diris al Mordeąj: Kial vi malobeas la ordonon de la reĝo? 4 ĉar ili diradis tion al li ĉiutage kaj li ne obeis ilin, tial ili raportis tion al Haman, por vidi, ĉu la vortoj de Mordeąj konservos sian forton; ĉar li diris al ili, ke li estas Judo. 5
+filon de Hamedata, la Agagidon, altigis lin kaj starigis lian seĝon super ĉiuj princoj, kiuj estis ĉe li. 2 Kaj ĉiuj servantoj de la reĝo, kiuj estis ĉe la pordego de la reĝo, klinadis sin kaj ĵetadis sin vizaĝaltere antaŭ Haman, ĉar tiel ordonis pri li la reĝo. Sed Mordeąj sin ne klinadis kaj ne ĵetadis sin vizaĝaltere. 3 La servantoj de la reĝo, kiuj estis ĉe la pordego de la reĝo, diris al Mordeąj: Kial vi malobeas la ordonon de la reĝo? 4 ĉar ili diradis tion al li ĉiutage kaj li ne obeis ilin, tial ili raportis tion al Haman, por vidi, ĉu la vortoj de Mordeąj konservos sian forton; ĉar li diris al ili, ke li estas Judo.
 
-Kiam Haman vidis, ke Mordeąj ne klinas sin kaj ne ĵetas sin vizaĝ-
-
-altere antaŭ li, tiam Haman pleniĝis de kolero. 6 Sed li trovis nesufi-
+Kiam Haman vidis, ke Mordeąj ne klinas sin kaj ne ĵetas sin vizaĝaltere antaŭ li, tiam Haman pleniĝis de kolero. 6 Sed li trovis nesufi-
 
 ĉa meti la manon sur Mordeąjon; ĉar oni diris al li, el kiu popolo Mordeąj estas, tial Haman ekintencis ekstermi ĉiujn Judojn, kiuj
 
@@ -902,55 +643,41 @@ ringon de sia mano, kaj donis ĝin al Haman, filo de Hamedata, la
 
 Agagido, malamiko de la Judoj. 11 Kaj la reĝo diris al Haman: La
 
-arĝento estas transdonata al vi, kaj ankaŭ la popolo, por fari al ĝi tion, kio plaĉas al vi. 12 Kaj oni vokis la skribistojn de la reĝo en la 928
-
-L A S A N K TA B I B L I O
+arĝento estas transdonata al vi, kaj ankaŭ la popolo, por fari al ĝi tion, kio plaĉas al vi. 12 Kaj oni vokis la skribistojn de la reĝo en la
 
 
 unua monato, en ĝia dek-tria tago, kaj oni skribis konforme al ĉiuj ordonoj de Haman al la satrapoj de la reĝo, kaj al la regionestroj, kiuj estis super ĉiu regiono, kaj al la princoj de ĉiu popolo, en ĉiun landon laŭ ĝia skribmaniero kaj al ĉiu popolo en ĝia lingvo; en la nomo de la reĝo Aąŝveroŝ tio estis skribita kaj sigelita per la ringo de la reĝo. 13 Kaj oni sendis per kurieroj leterojn en ĉiujn landojn de la reĝo, ke oni ekstermu, mortigu, kaj pereigu ĉiujn Judojn, de junulo ĝis maljunulo, la infanojn kaj la virinojn, en unu tago, en la dek-tria tago de la dek-dua monato, tio estas de la monato Adar, kaj ilian havaĵon oni disrabu. 14 Kopio de la letero estis transdonota kiel leĝo en ĉiun landon kaj proklamota al ĉiuj popoloj, por ke ili estu pretaj al tiu tago. 15 La kurieroj eliris rapide kun la ordono de la reĝo. La leĝo estis donita en la kastelurbo ŝuŝan. La reĝo kaj Haman sidiĝis, por drinki, sed la urbo ŝuŝan estis konsternita.
 
-ĉapitro 4
+ĉapitro
 
 1 Kiam Mordeąj eksciis ĉion, kio fariĝis, tiam Mordeąj disŝiris
 
 siajn vestojn, metis sur sin sakaĵon kaj cindron, eliris en la mezon de la urbo, kaj kriis per laŭta kaj maldolĉa voĉo. 2 Kaj li venis ĝis an-taŭ la pordego de la reĝo, ĉar estis malpermesite eniri en sakaĵo en la pordegon de la reĝo. 3 Kaj en ĉiu lando, sur ĉiu loko, kien venis la ordono de la reĝo kaj lia dekreto, estis granda malĝojo ĉe la Judoj, fastado, plorado, kaj ĝemado; kaj multaj kuŝis en sakaĵo kaj
 
-cindro. 4 Kaj venis la servistinoj de Ester kaj ŝiaj eŭnukoj, kaj rakontis al ŝi. Kaj la reĝino forte konsterniĝis. Kaj ŝi sendis vestojn, por vesti Mordeąjon kaj depreni de li la sakaĵon; sed li ne akceptis. 5
+cindro. 4 Kaj venis la servistinoj de Ester kaj ŝiaj eŭnukoj, kaj rakontis al ŝi. Kaj la reĝino forte konsterniĝis. Kaj ŝi sendis vestojn, por vesti Mordeąjon kaj depreni de li la sakaĵon; sed li ne akceptis.
 
-Kaj Ester alvokis Hata˛on, unu el la eŭnukoj de la reĝo, kiun ĉi tiu destinis por servado al ŝi, kaj ŝi sendis lin al Mordeąj, por ekscii, kio kaj pro kio tio estas. 6 Hataęliris al Mordeąj sur la urban pla-929
+Kaj Ester alvokis Hata˛on, unu el la eŭnukoj de la reĝo, kiun ĉi tiu destinis por servado al ŝi, kaj ŝi sendis lin al Mordeąj, por ekscii, kio kaj pro kio tio estas. 6 Hataęliris al Mordeąj sur la urban placon, kiu estis antaŭ la pordego de la reĝo. 7 Kaj Mordeąj rakontis al li ĉion, kio okazis al li, kaj pri la difinita sumo da mono, kiun Haman promesis doni pese en la kason de la reĝo pro la Judoj, por
 
-L A S A N K TA B I B L I O
-
-
-con, kiu estis antaŭ la pordego de la reĝo. 7 Kaj Mordeąj rakontis al li ĉion, kio okazis al li, kaj pri la difinita sumo da mono, kiun Haman promesis doni pese en la kason de la reĝo pro la Judoj, por
-
-ekstermi ilin. 8 Kaj kopion de la letera ordono, kiu estis donita en ŝuŝan, por ilin ekstermi, li donis al li, por montri al Ester kaj sciigi al ŝi, ordonante al ŝi iri al la reĝo, por petegi lin pri ŝia popolo. 9
+ekstermi ilin. 8 Kaj kopion de la letera ordono, kiu estis donita en ŝuŝan, por ilin ekstermi, li donis al li, por montri al Ester kaj sciigi al ŝi, ordonante al ŝi iri al la reĝo, por petegi lin pri ŝia popolo.
 
 Hata˛ venis kaj transdonis al Ester la vortojn de Mordeąj. 10 Kaj
 
 Ester diris al Hata˛, ordonante, ke li diru al Mordeąj: 11 ĉiuj servantoj de la reĝo kaj la popolo en la landoj de la reĝo scias, ke por ĉiu viro aŭ virino, kiu eniris al la reĝo en la internan korton ne vo-kite, ekzistas nur unu leĝo, nome la morto, krom nur en la okazo,
 
-se la reĝo etendas al li sian oran sceptron—tiam li restas vivanta; kaj mi ne estas vokita iri al la reĝo jam de tridek tagoj. 12 Kiam oni raportis al Mordeąj la vortojn de Ester, 13 tiam Mordeąj sendis re-
-
-spondon al Ester: Ne pensu en via animo, ke en la reĝa domo vi
+se la reĝo etendas al li sian oran sceptron—tiam li restas vivanta; kaj mi ne estas vokita iri al la reĝo jam de tridek tagoj. 12 Kiam oni raportis al Mordeąj la vortojn de Ester, 13 tiam Mordeąj sendis respondon al Ester: Ne pensu en via animo, ke en la reĝa domo vi
 
 saviĝos sola el ĉiuj Judoj. 14 Se vi silentos en ĉi tiu tempo, tiam liberigo kaj savo venos al la Judoj de alia loko; sed vi kaj la domo de via patro pereos. Kaj kiu scias, ĉu ne por tia tempo vi atingis reĝinecon?
 
-15 Tiam Ester diris, ke oni respondu al Mordeąj: 16 Iru, kunvenigu ĉiujn Judojn, kiuj troviĝas en ŝuŝan, fastu por mi, ne manĝu kaj ne trinku dum tri tagoj, tage kaj nokte; ankaŭ mi kaj miaj servistinoj fastos tiel same; poste mi iros al la reĝo, kvankam tio estas kontraŭ-
+15 Tiam Ester diris, ke oni respondu al Mordeąj: 16 Iru, kunvenigu ĉiujn Judojn, kiuj troviĝas en ŝuŝan, fastu por mi, ne manĝu kaj ne trinku dum tri tagoj, tage kaj nokte; ankaŭ mi kaj miaj servistinoj fastos tiel same; poste mi iros al la reĝo, kvankam tio estas kontraŭleĝa; kaj se mi pereos, mi pereu. 17 Kaj Mordeąj iris, kaj faris ĉion, kion komisiis al li Ester.
 
-leĝa; kaj se mi pereos, mi pereu. 17 Kaj Mordeąj iris, kaj faris ĉion, kion komisiis al li Ester.
-
-ĉapitro 5
+ĉapitro
 
 1 En la tria tago Ester vestis sin reĝe, kaj stariĝis sur la interna korto de la reĝa domo, kontraŭ la domo de la reĝo. La reĝo sidis sur sia reĝa trono en la reĝa domo, kontraŭ la enirejo de la domo. 2 Kiam
 
 
-L A S A N K TA B I B L I O
-
-
 la reĝo ekvidis la reĝinon Ester, starantan sur la korto, ŝi trovis favoron en liaj okuloj, kaj la reĝo etendis al Ester la oran sceptron, kiu estis en lia mano; tiam Ester aliris, kaj ektuŝis la pinton de la sceptro. 3 Kaj la reĝo diris al ŝi: Kio estas al vi, ho reĝino Ester, kaj kia estas via peto? se tio estas eĉ duono de la regno, ĝi estos donita al vi. 4 Kaj Ester respondis: Se al la reĝo plaĉas, la reĝo kune kun Haman venu hodiaŭ al la festeno, kiun mi faris por li. 5 Tiam la reĝo diris: Venigu plej rapide Hamanon, por plenumi tion, kion diris
 
-Ester. Kaj la reĝo kaj Haman venis al la festeno, kiun faris Ester. 6
+Ester. Kaj la reĝo kaj Haman venis al la festeno, kiun faris Ester.
 
 Kaj la reĝo diris al Ester dum la trinkado de vino: Kion vi petas? tio estos donita al vi; kaj kia estas via deziro? ĝis duono de la regno ĝi estos plenumita. 7 Ester respondis kaj diris: Jen estas mia peto kaj deziro: 8 se mi akiris favoron en la okuloj de la reĝo, kaj se al la reĝo plaĉas plenumi mian peton kaj fari mian deziron, la reĝo kun Haman venu al la festeno, kiun mi faros por ili; kaj morgaŭ mi faros, kion la reĝo diris. 9 Haman eliris en tiu tago, gaja kaj bonhumora.
 
@@ -961,12 +688,9 @@ leviĝis kaj ne moviĝis antaŭ li, tiam Haman pleniĝis de kolero kontraŭ Mord
 sendis, kaj venigis al si siajn amikojn kaj sian edzinon Zereŝ. 11 Kaj Haman rakontis al ili pri sia granda riĉeco, pri la multo de siaj filoj, kaj pri ĉio, per kio la reĝo lin altigis kaj starigis lin super la princoj kaj servantoj de la reĝo. 12 Kaj Haman diris: Eĉ la reĝino Ester invitis kun la reĝo al la festeno, kiun ŝi faris, neniun krom mi; ankaŭ por morgaŭ mi estas invitita al ŝi kun la reĝo. 13 Sed ĉio ĉi tio ne kontentigas min tiel longe, kiel mi vidas, ke la Judo Mordeąj sidas ĉe la pordego de la reĝo. 14 Tiam diris al li lia edzino Zereŝ kaj ĉiuj liaj amikoj: Oni pretigu arbon, havantan la alton de kvindek ulnoj, kaj matene diru al la reĝo, ke oni pendigu sur ĝi Mordeąjon; kaj
 
 
-L A S A N K TA B I B L I O
-
-
 poste iru gaje kun la reĝo al la festeno. Tio plaĉis al Haman, kaj li pretigis la arbon.
 
-ĉapitro 6
+ĉapitro
 
 1 En tiu nokto la reĝo ne povis dormi; kaj li ordonis alporti la memoraĵan libron de la kronikoj, kaj oni legis ilin antaŭ la reĝo. 2 Kaj tie troviĝis skribite, kiel Mordeąj raportis pri Bigtan kaj Tereŝ, la du reĝaj korteganoj el la sojlogardistoj, kiuj intencis meti manon sur la reĝon Aąŝveroŝ. 3 Tiam la reĝo diris: Kian honoron kaj distin-gon oni faris pro tio al Mordeąj? Kaj la junuloj servistoj de la reĝo respondis: Nenio estas farita al li. 4 La reĝo diris: Kiu estas sur la korto? Dume Haman estis veninta sur la eksteran korton de la reĝa
 
@@ -976,33 +700,22 @@ kiun li pretigis por li. 5 La junuloj de la reĝo diris al li: Jen Haman staras 
 
 kiun la reĝo volas honori. 10 Tiam la reĝo diris al Haman: Rapide
 
-prenu la veston kaj la ĉevalon, kiel vi diris, kaj agu tiel kun la Judo Mordeąj, kiu sidas ĉe la pordego de la reĝo; mankigu nenion el ĉio, kion vi diris. 11 Haman prenis la veston kaj la ĉevalon, kaj vestis Mordeąjon, kaj rajdigis lin tra la strato de la urbo, kaj proklama-932
-
-L A S A N K TA B I B L I O
-
-
-dis antaŭ li: Tiele estas farate al la homo, kiun la reĝo volas honori. 12 Poste Mordeąj revenis al la pordego de la reĝo; kaj Haman
+prenu la veston kaj la ĉevalon, kiel vi diris, kaj agu tiel kun la Judo Mordeąj, kiu sidas ĉe la pordego de la reĝo; mankigu nenion el ĉio, kion vi diris. 11 Haman prenis la veston kaj la ĉevalon, kaj vestis Mordeąjon, kaj rajdigis lin tra la strato de la urbo, kaj proklamadis antaŭ li: Tiele estas farate al la homo, kiun la reĝo volas honori. 12 Poste Mordeąj revenis al la pordego de la reĝo; kaj Haman
 
 rapidis hejmen, malĝoja kaj kun kovrita kapo. 13 Haman rakontis al sia edzino Zereŝ kaj al ĉiuj siaj amikoj ĉion, kio okazis al li. Kaj diris al li liaj saĝuloj kaj lia edzino Zereŝ: Se el la gento de la Judoj estas Mordeąj, antaŭ kiu vi komencis fali, vi nenion povas fari
 
 kontraŭ li, sed vi plue falos antaŭ li. 14 Dum ili ankoraŭ parolis kun li, venis la eŭnukoj de la reĝo kaj rapidigis Hamanon iri al la festeno, kiun pretigis Ester.
 
-ĉapitro 7
+ĉapitro
 
-1 La reĝo kaj Haman venis, por festeni ĉe la reĝino Ester. 2 Kaj an-kaŭ en la dua tago, dum la trinkado de vino, la reĝo diris al Ester: Kion vi petas, ho reĝino Ester? tio estos donita al vi; kaj kia estas via deziro? ĝis duono de la regno ĝi estos plenumita. 3 Tiam la reĝino Ester respondis kaj diris: Se mi trovis favoron en viaj okuloj, ho re-
+1 La reĝo kaj Haman venis, por festeni ĉe la reĝino Ester. 2 Kaj an-kaŭ en la dua tago, dum la trinkado de vino, la reĝo diris al Ester: Kion vi petas, ho reĝino Ester? tio estos donita al vi; kaj kia estas via deziro? ĝis duono de la regno ĝi estos plenumita. 3 Tiam la reĝino Ester respondis kaj diris: Se mi trovis favoron en viaj okuloj, ho reĝo, kaj se al la reĝo plaĉas, tiam mia vivo estu donacita al mi laŭ mia peto, kaj mia popolo laŭ mia deziro; 4 ĉar ni estas venditaj, mi kaj mia popolo, por ekstermo, mortigo, kaj pereigo. Se ni almenaŭ estus venditaj nur por esti sklavoj kaj sklavinoj, mi silentus, kvankam la malamiko ne kompensus la malprofiton de la reĝo. 5 Tiam la reĝo Aąŝveroŝ diris al la reĝino Ester: Kiu li estas kaj kie li estas, tiu, kiu prenis en sian koron la kuraĝon agi tiel? 6 Kaj Ester respondis: La malamanto kaj malamiko estas ĉi tiu malbona Haman. Kaj Haman
 
-ĝo, kaj se al la reĝo plaĉas, tiam mia vivo estu donacita al mi laŭ mia peto, kaj mia popolo laŭ mia deziro; 4 ĉar ni estas venditaj, mi kaj mia popolo, por ekstermo, mortigo, kaj pereigo. Se ni almenaŭ estus venditaj nur por esti sklavoj kaj sklavinoj, mi silentus, kvankam la malamiko ne kompensus la malprofiton de la reĝo. 5 Tiam la reĝo Aąŝveroŝ diris al la reĝino Ester: Kiu li estas kaj kie li estas, tiu, kiu prenis en sian koron la kuraĝon agi tiel? 6 Kaj Ester respondis: La malamanto kaj malamiko estas ĉi tiu malbona Haman. Kaj Haman
-
-ektremis antaŭ la reĝo kaj la reĝino. 7 La reĝo leviĝis kolere de la vintrinkado, kaj iris en la ĝardenon de la palaco; sed Haman restis, por peti pri sia vivo la reĝinon Ester, ĉar li vidis, ke la reĝo destinis por li malbonan sorton. 8 Kiam la reĝo revenis el la palaca ĝardeno en la ĉambron de la festeno, Haman estis falinta sur la litbenkon, 933
-
-L A S A N K TA B I B L I O
+ektremis antaŭ la reĝo kaj la reĝino. 7 La reĝo leviĝis kolere de la vintrinkado, kaj iris en la ĝardenon de la palaco; sed Haman restis, por peti pri sia vivo la reĝinon Ester, ĉar li vidis, ke la reĝo destinis por li malbonan sorton. 8 Kiam la reĝo revenis el la palaca ĝardeno en la ĉambron de la festeno, Haman estis falinta sur la litbenkon,
 
 
-sur kiu sidis Ester. Tiam la reĝo diris: Eĉ perforti la reĝinon li volas ĉe mi en la domo! La vorto eliris el la buŝo de la reĝo, kaj oni kovris al Haman la vizaĝon. 9 ˘arbona, unu el la eŭnukoj antaŭ la reĝo, diris: Jen eĉ la arbo, kiun Haman pretigis por Mordeąj, kiu parolis bonon por la reĝo, staras en la domo de Haman; ĝi havas la al-
+sur kiu sidis Ester. Tiam la reĝo diris: Eĉ perforti la reĝinon li volas ĉe mi en la domo! La vorto eliris el la buŝo de la reĝo, kaj oni kovris al Haman la vizaĝon. 9 ˘arbona, unu el la eŭnukoj antaŭ la reĝo, diris: Jen eĉ la arbo, kiun Haman pretigis por Mordeąj, kiu parolis bonon por la reĝo, staras en la domo de Haman; ĝi havas la alton de kvindek ulnoj. Tiam la reĝo diris: Pendigu lin sur ĝi. 10 Kaj oni pendigis Hamanon sur la arbo, kiun li pretigis por Mordeąj. Kaj la kolero de la reĝo kvietiĝis.
 
-ton de kvindek ulnoj. Tiam la reĝo diris: Pendigu lin sur ĝi. 10 Kaj oni pendigis Hamanon sur la arbo, kiun li pretigis por Mordeąj. Kaj la kolero de la reĝo kvietiĝis.
-
-ĉapitro 8
+ĉapitro
 
 1 En tiu tago la reĝo Aąŝveroŝ transdonis al la reĝino Ester la domon de Haman, la malamiko de la Judoj; kaj Mordeąj venis antaŭ
 
@@ -1010,26 +723,19 @@ la reĝon, ĉar Ester diris, kio li estas por ŝi. 2 Kaj la reĝo deprenis sian 
 
 Ester starigis Mordeąjon super la domo de Haman. 3 Kaj Ester
 
-plue parolis antaŭ la reĝo, kaj ĵetis sin antaŭ liajn piedojn, kaj ploris kaj petegis lin, ke li neniigu la malbonaĵon de Haman, la Agagi-do, kaj lian planon, kiun li entreprenis kontraŭ la Judoj. 4 La reĝo etendis al Ester sian oran sceptron, kaj Ester leviĝis kaj stariĝis an-taŭ la reĝo. 5 Kaj ŝi diris: Se al la reĝo plaĉas, kaj se mi trovis favoron antaŭ li, se la afero ŝajnas al li ĝusta, kaj se li havas simpation por mi: tiam estu skribate, ke oni revoku la leterojn, kiujn elpensis Haman, filo de Hamedata, la Agagido, kaj kiujn li skribis, por ekstermi la Judojn, kiuj troviĝas en ĉiuj landoj de la reĝo; 6 ĉar kiel mi povus vidi la malfeliĉon, kiu trafas mian popolon? kaj kiel mi povus vidi la pereon de miaj samgentanoj? 7 Tiam la reĝo Aąŝveroŝ diris al la reĝino Ester kaj al la Judo Mordeąj: Jen la domon de Ha-
-
-man mi transdonis al Ester, kaj lin mem oni pendigis sur arbo, pro tio, ke li metis sian manon sur la Judojn; 8 skribu do pri la Judoj en 934
-
-L A S A N K TA B I B L I O
+plue parolis antaŭ la reĝo, kaj ĵetis sin antaŭ liajn piedojn, kaj ploris kaj petegis lin, ke li neniigu la malbonaĵon de Haman, la Agagi-do, kaj lian planon, kiun li entreprenis kontraŭ la Judoj. 4 La reĝo etendis al Ester sian oran sceptron, kaj Ester leviĝis kaj stariĝis an-taŭ la reĝo. 5 Kaj ŝi diris: Se al la reĝo plaĉas, kaj se mi trovis favoron antaŭ li, se la afero ŝajnas al li ĝusta, kaj se li havas simpation por mi: tiam estu skribate, ke oni revoku la leterojn, kiujn elpensis Haman, filo de Hamedata, la Agagido, kaj kiujn li skribis, por ekstermi la Judojn, kiuj troviĝas en ĉiuj landoj de la reĝo; 6 ĉar kiel mi povus vidi la malfeliĉon, kiu trafas mian popolon? kaj kiel mi povus vidi la pereon de miaj samgentanoj? 7 Tiam la reĝo Aąŝveroŝ diris al la reĝino Ester kaj al la Judo Mordeąj: Jen la domon de Haman mi transdonis al Ester, kaj lin mem oni pendigis sur arbo, pro tio, ke li metis sian manon sur la Judojn; 8 skribu do pri la Judoj en
 
 
 la nomo de la reĝo tion, kio plaĉas al vi, kaj sigelu per la reĝa ringo; ĉar leteron, skribitan en la nomo de la reĝo kaj sigelitan per la reĝa ringo, oni ne povas revoki. 9 Kaj oni vokis la skribistojn de la reĝo en tiu tempo, en la tria monato, tio estas en la monato Sivan, en ĝia dudek-tria tago; kaj oni skribis ĉion tiel, kiel ordonis Mordeąj, al la Judoj, al la satrapoj, al la regionestroj, kaj al la princoj de la landoj, kiuj estis de Hindujo ĝis Etiopujo, cent dudek sep landoj, al ĉiu lando laŭ ĝia skribmaniero kaj al ĉiu popolo en ĝia lingvo, ankaŭ al la Judoj laŭ ilia skribmaniero kaj en ilia lingvo. 10 Li skribigis en la nomo de la reĝo Aąŝveroŝ, kaj sigelis per la reĝa ringo, kaj sendis per rajdantaj kurieroj sur bone kurantaj bonrasaj ĉevaloj leterojn pri tio, 11 ke la reĝo permesas al la Judoj en ĉiuj urboj kolektiĝi kaj stariĝi, por defendi sian vivon, ekstermi, mortigi, kaj pereigi ĉiujn fortulojn de la popolo kaj de la lando, kiuj atakos ilin, la infanojn, kaj la virinojn, kaj disrabi ilian havaĵon, 12 en la daŭro de unu tago en ĉiuj landoj de la reĝo Aąŝveroŝ, en la dek-tria tago de la dek-dua monato, tio estas de la monato Adar; 13 ke oni donu kopion de
 
-ĉi tiu ordonletero kiel leĝon, proklamotan al ĉiuj popoloj, kaj ke la Judoj estu pretaj por tiu tago, por venĝi al siaj malamikoj. 14 La kurieroj, rajdantaj sur bonrasaj ĉevaloj, elrajdis tuj kaj rapide kun la ordono de la reĝo. La leĝo estis donita en la kastelurbo ŝuŝan. 15
+ĉi tiu ordonletero kiel leĝon, proklamotan al ĉiuj popoloj, kaj ke la Judoj estu pretaj por tiu tago, por venĝi al siaj malamikoj. 14 La kurieroj, rajdantaj sur bonrasaj ĉevaloj, elrajdis tuj kaj rapide kun la ordono de la reĝo. La leĝo estis donita en la kastelurbo ŝuŝan.
 
 Mordeąj eliris de la reĝo en reĝa vesto el blua kaj blanka ŝtofo, kun granda ora krono, kaj en mantelo bisina kaj purpura. Kaj la urbo
 
 ŝuŝan ĝojkriis kaj estis gaja. 16 ĉe la Judoj estis lumo kaj ĝojo, gajeco kaj triumfo. 17 Kaj en ĉiu lando kaj en ĉiu urbo, sur ĉiu loko, kien atingis la ordono kaj dekreto de la reĝo, estis ĉe la Judoj ĝojo kaj gajeco, festeno kaj festo. Kaj multaj homoj el la popoloj de la lando fariĝis Judoj, ĉar falis sur ilin timo antaŭ la Judoj.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 9
+ĉapitro
 
 1 En la dek-dua monato, tio estas en la monato Adar, en ĝia dek-tria tago, kiam venis la tempo de plenumo de la reĝa ordono kaj dekreto
 
@@ -1037,11 +743,9 @@ L A S A N K TA B I B L I O
 
 la afero turniĝis, kaj la Judoj superfortis siajn malamikojn. 2 La Judoj kolektiĝis en siaj urboj en ĉiuj landoj de la reĝo Aąŝveroŝ, por etendi la manon kontraŭ siajn malbondezirantojn; kaj neniu povis
 
-kontraŭstari al ili, ĉar timo antaŭ ili falis sur ĉiujn popolojn. 3 Kaj ĉiuj landestroj, satrapoj, regionestroj, kaj oficistoj de la reĝo favoris la Judojn, ĉar falis sur ilin timo antaŭ Mordeąj. 4 ĉar Mordeąj estis granda en la domo de la reĝo, kaj la famo pri li iris tra ĉiuj landoj, ĉar la viro Mordeąj fariĝadis ĉiam pli kaj pli granda. 5 Kaj la Judoj batis ĉiujn siajn malamikojn, frapante per glavo, mortigante kaj ekstermante, kaj ili faris al siaj malamikoj, kion ili volis. 6 En la kastelurbo ŝuŝan la Judoj mortigis kaj pereigis kvincent homojn; 7
+kontraŭstari al ili, ĉar timo antaŭ ili falis sur ĉiujn popolojn. 3 Kaj ĉiuj landestroj, satrapoj, regionestroj, kaj oficistoj de la reĝo favoris la Judojn, ĉar falis sur ilin timo antaŭ Mordeąj. 4 ĉar Mordeąj estis granda en la domo de la reĝo, kaj la famo pri li iris tra ĉiuj landoj, ĉar la viro Mordeąj fariĝadis ĉiam pli kaj pli granda. 5 Kaj la Judoj batis ĉiujn siajn malamikojn, frapante per glavo, mortigante kaj ekstermante, kaj ili faris al siaj malamikoj, kion ili volis. 6 En la kastelurbo ŝuŝan la Judoj mortigis kaj pereigis kvincent homojn;
 
-ankaŭ Parŝandatan, Dalfonon, Aspatan, 8 Poratan, Adaljan, Arida-
-
-tan, 9 Parmaŝtan, Arisajon, Aridajon, kaj Vajzatan, 10 la dek filojn de Haman, filo de Hamedata kaj persekutanto de la Judoj, ili mortigis; sed sur la havaĵon ili ne metis sian manon. 11 En la sama tago la
+ankaŭ Parŝandatan, Dalfonon, Aspatan, 8 Poratan, Adaljan, Aridatan, 9 Parmaŝtan, Arisajon, Aridajon, kaj Vajzatan, 10 la dek filojn de Haman, filo de Hamedata kaj persekutanto de la Judoj, ili mortigis; sed sur la havaĵon ili ne metis sian manon. 11 En la sama tago la
 
 nombro de la mortigitoj en la kastelurbo ŝuŝan estis raportita al la reĝo. 12 Kaj la reĝo diris al la reĝino Ester: En la kastelurbo ŝuŝan la Judoj mortigis kaj pereigis kvincent homojn kaj ankaŭ la dek
 
@@ -1052,12 +756,7 @@ dek filojn de Haman oni pendigu. 14 Kaj la reĝo diris, ke oni faru tiel.
 Kaj estis donita dekreto pri tio en ŝuŝan, kaj la dek filojn de Haman oni pendigis. 15 La Judoj, kiuj estis en ŝuŝan, kolektiĝis ankaŭ en la dek-kvara tago de la monato Adar, kaj mortigis en ŝuŝan tricent
 
 
-L A S A N K TA B I B L I O
-
-
-homojn; sed sur la havaĵon ili ne metis sian manon. 16 Ankaŭ la ceteraj Judoj, kiuj estis en la landoj de la reĝo, kolektiĝis kaj stariĝis, por defendi sian vivon kaj por akiri trankvilecon antaŭ siaj malamikoj, kaj ili mortigis el siaj malamikoj sepdek kvin mil, sed sur la ha-vaĵon ili ne metis sian manon. 17 Tio estis en la dek-tria tago de la monato Adar. Kaj en ĝia dek-kvara tago estis ripozo, kaj oni faris ĝin tago de festeno kaj de gajeco. 18 Sed la Judoj, kiuj estis en ŝuŝan, kolektiĝis en la dek-tria kaj en la dek-kvara tagoj; ripozo estis en la dek-kvina tago, kaj ili faris ĝin tago de festeno kaj de gajeco. 19 Tial la Judoj, kiuj loĝas en loĝlokoj kaj urboj ne fortikigitaj, faras la dek-kvaran tagon de la monato Adar tago de ĝojo kaj de festeno, festo-
-
-tago, kaj ili sendas donacojn unuj al aliaj.
+homojn; sed sur la havaĵon ili ne metis sian manon. 16 Ankaŭ la ceteraj Judoj, kiuj estis en la landoj de la reĝo, kolektiĝis kaj stariĝis, por defendi sian vivon kaj por akiri trankvilecon antaŭ siaj malamikoj, kaj ili mortigis el siaj malamikoj sepdek kvin mil, sed sur la ha-vaĵon ili ne metis sian manon. 17 Tio estis en la dek-tria tago de la monato Adar. Kaj en ĝia dek-kvara tago estis ripozo, kaj oni faris ĝin tago de festeno kaj de gajeco. 18 Sed la Judoj, kiuj estis en ŝuŝan, kolektiĝis en la dek-tria kaj en la dek-kvara tagoj; ripozo estis en la dek-kvina tago, kaj ili faris ĝin tago de festeno kaj de gajeco. 19 Tial la Judoj, kiuj loĝas en loĝlokoj kaj urboj ne fortikigitaj, faras la dek-kvaran tagon de la monato Adar tago de ĝojo kaj de festeno, festotago, kaj ili sendas donacojn unuj al aliaj.
 
 20 Mordeąj priskribis ĉiujn tiujn okazintaĵojn, kaj sendis leterojn al ĉiuj Judoj, kiuj estis en ĉiuj landoj de la reĝo Aąŝveroŝ, la proksimaj kaj la malproksimaj, 21 ke ili akceptu por si, ke ili festados ĉiujare la dek-kvaran tagon de la monato Adar kaj ĝian dek-kvinan
 
@@ -1065,66 +764,52 @@ tagon, 22 kiel tagojn, en kiuj la Judoj ricevis trankvilecon kontraŭ siaj malam
 
 23 Kaj la Judoj akceptis tion, kion ili jam mem komencis fari kaj pri kio skribis al ili Mordeąj. 24 ĉar Haman, filo de Hamedata, la Agagido, kaj malamiko de ĉiuj Judoj, intencis pereigi la Judojn kaj ĵetis pur’on, tio estas loton, por ekstermi kaj pereigi ilin; 25 sed kiam ŝi venis antaŭ la reĝon, ĉi tiu ordonis skribe, ke lia malbona entrepreno, kiun li preparis por la Judoj, turniĝu sur lian kapon; kaj ke oni pendigu lin kaj liajn filojn sur arbo. 26 Pro tio oni donis al tiuj tagoj la nomon Purim, laŭ la vorto _pur_. Tial, konforme al ĉiuj
 
-vortoj de tiu letero, kaj al tio, kion ili mem vidis koncerne tion kaj kio trafis ilin, 27 la Judoj decidis kaj akceptis por si, por sia idaro, kaj 937
-
-L A S A N K TA B I B L I O
+vortoj de tiu letero, kaj al tio, kion ili mem vidis koncerne tion kaj kio trafis ilin, 27 la Judoj decidis kaj akceptis por si, por sia idaro, kaj
 
 
-por ĉiuj, kiuj aliĝos al ili, ke ili nepre festados tiujn du tagojn laŭ la preskribo kaj en la difinita tempo ĉiujare. 28 Tiuj tagoj devas esti memorataj kaj festataj en ĉiuj generacioj, en ĉiu familio, en ĉiu lando, kaj en ĉiu urbo; kaj tiuj tagoj de Purim ne devas esti forigitaj ĉe la Judoj, kaj la memoro pri ili ne devas malaperi inter ilia idaro. 29
+por ĉiuj, kiuj aliĝos al ili, ke ili nepre festados tiujn du tagojn laŭ la preskribo kaj en la difinita tempo ĉiujare. 28 Tiuj tagoj devas esti memorataj kaj festataj en ĉiuj generacioj, en ĉiu familio, en ĉiu lando, kaj en ĉiu urbo; kaj tiuj tagoj de Purim ne devas esti forigitaj ĉe la Judoj, kaj la memoro pri ili ne devas malaperi inter ilia idaro.
 
-Kaj la reĝino Ester, filino de Abiąil, kaj la Judo Mordeąj skribis kun plena insisto, ke oni plenumu tiun duan leteron pri Purim. 30
+Kaj la reĝino Ester, filino de Abiąil, kaj la Judo Mordeąj skribis kun plena insisto, ke oni plenumu tiun duan leteron pri Purim.
 
 Kaj ili sendis leterojn al ĉiuj Judoj en la cent dudek sep landojn de la regno de Aąŝveroŝ, kun vortoj de paco kaj de vero, 31 ke ili festa-du tiujn tagojn de Purim en ilia tempo, kiel decidis pri ili la Judo Mordeąj kaj la reĝino Ester, kaj kiel ili mem akceptis por si kaj por sia idaro koncerne la fastadon kaj preĝadon. 32 Kaj laŭ la ordono de Ester oni konfirmis tiun historion de Purim kaj enskribis en libron.
 
-ĉapitro 10
+ĉapitro
 
 1 La reĝo Aąŝveroŝ metis sub tributon la teron kaj la insulojn de
 
-la maro. 2 La tuta historio pri lia forto kaj lia potenco, kaj la deta-loj pri la grandeco de Mordeąj, kiun la reĝo grandigis, estas pri-
-
-skribitaj en la libro de kroniko de la reĝoj de Medujo kaj Persujo. 3
+la maro. 2 La tuta historio pri lia forto kaj lia potenco, kaj la deta-loj pri la grandeco de Mordeąj, kiun la reĝo grandigis, estas priskribitaj en la libro de kroniko de la reĝoj de Medujo kaj Persujo.
 
 ĉar la Judo Mordeąj estis la dua post la reĝo Aąŝveroŝ, granda
 
 inter la Judoj kaj amata inter la multo de siaj fratoj, zorganta pri la bono de sia popolo kaj donanta pacon al sia tuta idaro.
 
 
-L A S A N K TA B I B L I O
-
-
 Ijob
 
-ĉapitro 1
+ĉapitro
 
 1 Estis iu homo en la lando Uc, lia nomo estis Ijob. Tiu homo estis honesta, justa, diotima, kaj li evitadis malbonon. 2 Al li naskiĝis sep filoj kaj tri filinoj. 3 Lia brutaro konsistis el sep mil ŝafoj, tri mil kameloj, kvincent paroj da bovoj, kvincent azeninoj, kaj li havis tre multe da servistoj; kaj tiu homo estis pli eminenta, ol ĉiuj filoj de la oriento. 4 Liaj filoj havis la kutimon faradi festenon en la domo de ĉiu el ili, ĉiu en sia tago; kaj ili invitadis siajn tri fratinojn, por manĝi kaj trinki kun ili. 5 Kaj ĉiufoje, kiam la rondo de la festenaj tagoj estis finita, Ijob sendis, por sanktigi ilin, kaj li leviĝis frue matene kaj alportis bruloferojn laŭ la nombro de ili ĉiuj; ĉar, diris Ijob: Eble miaj filoj pekis kaj blasfemis Dion en sia koro. Tiel agadis Ijob ĉiam.
 
-6 Unu tagon, kiam la filoj de Dio venis, por stariĝi antaŭ la Eternulo, venis inter ili ankaŭ Satano. 7 Kaj la Eternulo diris al Satano: De kie vi venas? Kaj Satano respondis al la Eternulo, kaj diris: Mi vagadis sur la tero kaj rondiradis sur ĝi. 8 Kaj la Eternulo diris al Satano: ĉu vi atentis Mian servanton Ijob? ne ekzistas ja sur la tero homo simila al li, tiel honesta, justa, diotima, kaj evitanta malbonon. 9 Kaj Satano respondis al la Eternulo, kaj diris: ĉu vane Ijob timas Dion? 10 Vi ŝirmis ja ĉiuflanke lin kaj lian domon, kaj ĉion, kio apartenas al li; la farojn de liaj manoj Vi benis, kaj liaj brutaroj disvastiĝis sur la tero. 11 Sed etendu nur Vian manon, kaj ektuŝu ĉion, kion li havas; Vi vidos, ĉu li ne blasfemos Vin antaŭ Via vizaĝo. 12
+6 Unu tagon, kiam la filoj de Dio venis, por stariĝi antaŭ la Eternulo, venis inter ili ankaŭ Satano. 7 Kaj la Eternulo diris al Satano: De kie vi venas? Kaj Satano respondis al la Eternulo, kaj diris: Mi vagadis sur la tero kaj rondiradis sur ĝi. 8 Kaj la Eternulo diris al Satano: ĉu vi atentis Mian servanton Ijob? ne ekzistas ja sur la tero homo simila al li, tiel honesta, justa, diotima, kaj evitanta malbonon. 9 Kaj Satano respondis al la Eternulo, kaj diris: ĉu vane Ijob timas Dion? 10 Vi ŝirmis ja ĉiuflanke lin kaj lian domon, kaj ĉion, kio apartenas al li; la farojn de liaj manoj Vi benis, kaj liaj brutaroj disvastiĝis sur la tero. 11 Sed etendu nur Vian manon, kaj ektuŝu ĉion, kion li havas; Vi vidos, ĉu li ne blasfemos Vin antaŭ Via vizaĝo.
 
-Tiam la Eternulo diris al Satano: Jen ĉio, kion li havas, estas trans-939
-
-L A S A N K TA B I B L I O
-
-
-donata en vian manon; nur sur lin mem ne etendu vian manon. Kaj
+Tiam la Eternulo diris al Satano: Jen ĉio, kion li havas, estas transdonata en vian manon; nur sur lin mem ne etendu vian manon. Kaj
 
 Satano foriris de antaŭ la Eternulo.
 
 13 Unu tagon, kiam liaj filoj kaj liaj filinoj estis manĝantaj kaj trin-kantaj vinon en la domo de ilia unuenaskita frato, 14 venis sendito al Ijob, kaj diris: Dum la bovoj estis plugantaj kaj la azeninoj estis paŝtiĝantaj apud ili, 15 superfalis ilin la ŝebaanoj, kaj forprenis ilin; kaj la servistojn ili mortigis per glavo; saviĝis nur mi sola, por raporti al vi. 16 Kiam ankoraŭ tiu parolis, venis alia, kaj diris: Fajro de Dio falis el la ĉielo, bruligis la ŝafojn kaj la servistojn, kaj ekstermis ilin; saviĝis nur mi sola, por raporti al vi. 17 Kiam tiu ankoraŭ parolis, venis alia, kaj diris: La ˘aldeoj aranĝis tri taĉmentojn, atakis la kamelojn kaj forprenis ilin, kaj la servistojn ili mortigis per glavo; sa-viĝis nur mi sola, por raporti al vi. 18 Dum tiu ankoraŭ parolis, venis alia, kaj diris: Viaj filoj kaj viaj filinoj estis manĝantaj kaj trinkan-taj vinon en la domo de ilia unuenaskita frato; 19 kaj jen granda vento leviĝis de la flanko de la dezerto, puŝis la kvar angulojn de la do-mo, kaj ĉi tiu falis sur la junulojn, kaj ili mortis; saviĝis nur mi sola, por raporti al vi. 20 Tiam Ijob leviĝis, disŝiris sian veston, pritondis sian kapon, ĵetis sin sur la teron, kaj adorkliniĝis; 21 kaj li diris: Nuda mi eliris el la ventro de mia patrino, kaj nuda mi revenos tien; la Eternulo donis, kaj la Eternulo prenis; la nomo de la Eternulo estu benata. 22 Malgraŭ ĉio ĉi tio Ijob ne pekis, kaj ne eldiris blasfemon kontraŭ Dio.
 
-ĉapitro 2
+ĉapitro
 
-1 Unu tagon, kiam la filoj de Dio venis, por stariĝi antaŭ la Eternulo, venis ankaŭ Satano inter ili, por stariĝi antaŭ la Eternulo. 2 Kaj la Eternulo diris al Satano: De kie vi venas? Kaj Satano respondis al la Eternulo, kaj diris: Mi vagadis sur la tero kaj rondiradis sur ĝi. 3 Kaj 940
-
-L A S A N K TA B I B L I O
+1 Unu tagon, kiam la filoj de Dio venis, por stariĝi antaŭ la Eternulo, venis ankaŭ Satano inter ili, por stariĝi antaŭ la Eternulo. 2 Kaj la Eternulo diris al Satano: De kie vi venas? Kaj Satano respondis al la Eternulo, kaj diris: Mi vagadis sur la tero kaj rondiradis sur ĝi. 3 Kaj
 
 
-la Eternulo diris al Satano: ĉu vi atentis Mian servanton Ijob? ne ekzistas sur la tero homo simila al li, tiel honesta, justa, diotima, kaj evitanta malbonon; kaj li ĝis nun ankoraŭ estas firma en sia virteco, kvankam vi ekscitis Mntraŭ li, por pereigi lin senkulpe. 4
+la Eternulo diris al Satano: ĉu vi atentis Mian servanton Ijob? ne ekzistas sur la tero homo simila al li, tiel honesta, justa, diotima, kaj evitanta malbonon; kaj li ĝis nun ankoraŭ estas firma en sia virteco, kvankam vi ekscitis Mntraŭ li, por pereigi lin senkulpe.
 
 Tiam Satano respondis al la Eternulo, kaj diris: Haŭto pro haŭto; kaj ĉion, kion homo posedas, li fordonus pro sia vivo. 5 Sed etendu Vian manon, kaj tuŝu liajn ostojn kaj lian karnon; tiam Vi vidos, ke li blasfemos Vin antaŭ Via vizaĝo. 6 La Eternulo diris al Satano: Jen li estas transdonata en vian manon; nur lian vivon konservu. 7 Satano foriris de antaŭ la vizaĝo de la Eternulo, kaj frapis Ijobon per turmentaj abscesoj de la plando de lia piedo ĝis lia verto. 8 Li prenis potpecon, por skrapadi sin per ĝi, sidante meze de cindro. 9 Kaj lia edzino diris al li: Vi ĉiam ankoraŭ estas firma en via virteco! blasfemu Dion, kaj mortu. 10 Sed li diris al ŝi: Vi parolas tiel, kiel parolas iu el la malsaĝulinoj; ĉu bonon ni akceptu de Dio, kaj malbonon ni ne akceptu? Malgraŭ ĉio ĉi tio Ijob ne pekis per siaj lipoj.
 
 11 Kiam la tri amikoj de Ijob aŭdis pri tiu tuta malfeliĉo, kiu trafis lin, ili iris ĉiu de sia loko, Elifaz, la Temanano, Bildad, la ŝuąno, kaj Cofar, la Naamano, kaj kunvenis kune, por iri plori kun li kaj konsoli lin. 12 Kiam ili levis siajn okulojn de malproksime, ili ne rekonis lin; kaj ili levis sian voĉon kaj ekploris; kaj ĉiu el ili disŝiris sian veston, kaj ĵetis teron sur sian kapon, turnante sin al la ĉielo. 13 Kaj ili sidis kun li sur la tero dum sep tagoj kaj sep noktoj, kaj ne parolis al li eĉ unu vorton; ĉar ili vidis, ke la suferado estas tre granda.
 
-ĉapitro 3
+ĉapitro
 
 1 Poste Ijob malfermis sian buŝon, kaj malbenis sian tagon. 2 Kaj
 
@@ -1132,9 +817,6 @@ Ijob ekparolis, kaj diris:
 
 
 Pereu la tago, en kiu mi naskiĝis,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj la nokto, kiu diris: Embriiĝis homo.
@@ -1204,9 +886,6 @@ Kiuj plenigas siajn domojn per arĝento;
 16 Aŭ kiel abortitaĵo kaŝita mi ne ekzistus,
 
 
-L A S A N K TA B I B L I O
-
-
 Simile al la infanoj, kiuj ne vidis lumon.
 
 17 Tie la malpiuloj ĉesas tumulti;
@@ -1251,7 +930,7 @@ ripozon;
 
 Trafis mlero.
 
-ĉapitro 4
+ĉapitro
 
 1 Kaj ekparolis Elifaz, la Temanano, kaj diris:
 
@@ -1264,9 +943,6 @@ Sed kiu povas deteni sin de parolado?
 Jen vi multajn instruis,
 
 Kaj manojn senfortiĝintajn vi refortigis;
-
-
-L A S A N K TA B I B L I O
 
 
 Falantojn restarigis viaj vortoj,
@@ -1335,9 +1011,6 @@ Estis silento, kaj mi ekaŭdis voĉon, dirantan:
 18 Vidu, al Siaj servantoj Li ne konfidas,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj Siajn anĝelojn Li trovas mallaŭdindaj:
 
 19 Des pli koncerne tiujn,
@@ -1356,7 +1029,7 @@ Pereas por ĉiam, kaj neniu tion atentas.
 
 Ili mortas, kaj ne en saĝeco.
 
-ĉapitro 5
+ĉapitro
 
 
 Voku do! ĉu iu respondos al vi?
@@ -1401,9 +1074,6 @@ Kiel birdoj por flugado supren.
 Sed mi min turnus al Dio,
 
 Kaj al Li mi transdonus mian aferon;
-
-
-L A S A N K TA B I B L I O
 
 
 Al Tiu, kiu faras grandaĵojn, kiujn neniu povas esplori,
@@ -1467,9 +1137,6 @@ Kaj la bestojn de la tero vi ne timos;
 Kaj la bestoj de la kampo havos pacon kun vi.
 
 
-L A S A N K TA B I B L I O
-
-
 24 Kaj vi ekscios, ke paco estas en via tendo;
 
 Vi esploros vian loĝejon, kaj nenio mankos.
@@ -1486,7 +1153,7 @@ Kiel envenas garbaro en sia tempo.
 
 Atentu tion, kaj sciu tion.
 
-ĉapitro 6
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -1533,9 +1200,6 @@ Ho, se Dio komencus kaj disbatus min,
 Donus liberecon al Sia mano kaj frakasus min!
 
 10 Tio estus ankoraŭ konsolo por mi;
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj mi ĝojus, se en la turmento Li ne kompatus,
@@ -1599,9 +1263,6 @@ Aŭ liberigu min el la mano de turmentantoj?
 Komprenigu al mi, per kio mi pekis.
 
 
-L A S A N K TA B I B L I O
-
-
 25 Kial vi mallaŭdas pravajn vortojn?
 
 Kaj kion povas instrui la moralinstruanto el vi?
@@ -1626,7 +1287,7 @@ Ripetu, vi trovos mian pravecon en la afero.
 
 ĉu mia palato ne komprenas tion, kio estas malbona?
 
-ĉapitro 7
+ĉapitro
 
 
 Difinita estas ja por la homo la limtempo sur la tero,
@@ -1664,9 +1325,6 @@ Kaj pasis, lasinte nenian esperon.
 Memoru, ke mia vivo estas bloveto,
 
 Ke miaj okuloj ne plu revidos bonon;
-
-
-L A S A N K TA B I B L I O
 
 
 Ne plu revidos min okulo de vidanto;
@@ -1731,14 +1389,11 @@ Ke mi fariĝis ŝarĝo por mi mem?
 malbonagon?
 
 
-L A S A N K TA B I B L I O
-
-
 Jen mi ja baldaŭ kuŝos en la tero;
 
 Kaj kiam Vi morgaŭ serĉos min, mi ne ekzistos.
 
-ĉapitro 8
+ĉapitro
 
 1 Kaj ekparolis Bildad, la ŝuąno, kaj diris:
 
@@ -1799,9 +1454,6 @@ Kiam ĝi estas ankoraŭ en sia freŝeco,
 Kiam ĝi ankoraŭ ne estas detranĉita.
 
 
-L A S A N K TA B I B L I O
-
-
 13 Tiaj estas la vojoj de ĉiuj, kiuj forgesas Dion;
 
 Kaj pereas la espero de hipokritulo,
@@ -1842,7 +1494,7 @@ Kaj viajn lipojn per ĝojkrioj.
 
 Sed la tendo de malpiuloj malaperos.
 
-ĉapitro 9
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -1860,9 +1512,6 @@ Li ne povus respondi al Li eĉ unu kontraŭ mil.
 Li estas saĝa per Sia koro kaj potenca per Sia forto;
 
 Kiu kuraĝus stari kontraŭ Li kaj restus sendifekta?
-
-
-L A S A N K TA B I B L I O
 
 
 Li forŝovas montojn, kaj ili eĉ ne rimarkas,
@@ -1930,9 +1579,6 @@ Sed Li satigas min per maldolĉo.
 Se oni volas juĝon, kiu alvokos min?
 
 
-L A S A N K TA B I B L I O
-
-
 20 Se mi montros mian pravecon, mia propra buŝo mndamnos;
 
 Se mi montros min virtulo, Li montros min malbonagulo.
@@ -1992,9 +1638,6 @@ Ke ni povu ambaŭ iri al juĝo.
 33 Ne ekzistas inter ni arbitracianto,
 
 
-L A S A N K TA B I B L I O
-
-
 Kiu povus meti sian manon sur nin ambaŭ.
 
 34 Li forigu de mi Sian vergon,
@@ -2005,7 +1648,7 @@ Kaj Lia teruro ne timigu min;
 
 ĉar ne tia mi estas en mi mem.
 
-ĉapitro 10
+ĉapitro
 
 
 Tedis al mia animo mia vivo;
@@ -2059,9 +1702,6 @@ Kaj Vi returne faros min polvo.
 10 Vi elverŝis ja min kiel lakton,
 
 Kaj kiel fromaĝon Vi min kundensigis.
-
-
-L A S A N K TA B I B L I O
 
 
 11 Per haŭto kaj karno Vi min vestis,
@@ -2121,10 +1761,7 @@ Kie estas morta ombro kaj senordeco,
 Kie estas lume kiel en mallumego.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 11
+ĉapitro
 
 1 Kaj ekparolis Cofar, la Naamano, kaj diris:
 
@@ -2193,9 +1830,6 @@ Kaj etendas al Li viajn manojn;
 14 Se vi forigas la malvirton, kiu estas en via mano,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj vi ne permesos al malbonaĵoj resti en via tendo:
 
 15 Tiam vi povos levi vian vizaĝon sen difekto;
@@ -2224,7 +1858,7 @@ Pereos por ili la rifuĝo,
 
 Kaj ilia espero elspiros sian vivon.
 
-ĉapitro 12
+ĉapitro
 
 1 Kaj Ijob respondis kaj diris:
 
@@ -2256,9 +1890,6 @@ Pretigita por migrantoj.
 Bonstataj estas la tendoj de rabistoj,
 
 Kaj sendanĝerecon havas la incitantoj de Dio,
-
-
-L A S A N K TA B I B L I O
 
 
 Tiuj, kiuj portas Dion en sia mano.
@@ -2325,9 +1956,6 @@ Kaj forprenas de maljunuloj la prudenton.
 21 Li verŝas honton sur eminentulojn
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj malfirmigas la zonon de potenculoj.
 
 22 Li malkovras profundaĵon el meze de mallumo,
@@ -2346,7 +1974,7 @@ Kaj erarvagigas ilin en dezerto senvoja;
 
 Kaj Li ŝanceliĝigas ilin kiel ebriuloj.
 
-ĉapitro 13
+ĉapitro
 
 
 ĉion ĉi tion mia okulo vidis,
@@ -2392,9 +2020,6 @@ Aŭ pro Dio vi volas disputi?
 ĉu estos bone, kiam Li esploros vin?
 
 ĉu vi volas trompi Lin, kiel oni trompas homon?
-
-
-L A S A N K TA B I B L I O
 
 
 10 Li certe vin punos,
@@ -2458,9 +2083,6 @@ Sciigu al mi miajn krimojn kaj pekojn.
 Kaj rigardas min kiel Vian malamikon?
 
 
-L A S A N K TA B I B L I O
-
-
 25 ĉu Vi volas montri Vian forton kontraŭ deŝirita folio?
 
 Kaj ĉu sekiĝintan pajleron Vi volas persekuti?
@@ -2479,7 +2101,7 @@ Kaj Vi observas la plandojn de miaj piedoj;
 
 Kiel vesto dismanĝita de tineoj.
 
-ĉapitro 14
+ĉapitro
 
 
 Homo, naskita de virino,
@@ -2523,9 +2145,6 @@ Tamen, eksentinte la odoron de akvo, ĝi denove verdiĝas,
 Kaj kreskas plue, kvazaŭ ĵus plantita.
 
 10 Sed homo mortas kaj malaperas;
-
-
-L A S A N K TA B I B L I O
 
 
 Kiam la homo finiĝis, kie li estas?
@@ -2587,10 +2206,7 @@ Se ili estas humiligataj, li tion ne rimarkas.
 Nur pri sia propra animo li suferas.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 15
+ĉapitro
 
 1 Ekparolis Elifaz, la Temanano, kaj diris:
 
@@ -2659,9 +2275,6 @@ Kaj ke naskito de virino povus esti prava?
 Kaj la ĉielo ne estas pura en Liaj okuloj:
 
 
-L A S A N K TA B I B L I O
-
-
 16 Des pli homo, abomeninda kaj malbona,
 
 Kiu trinkas malbonagojn kiel akvon.
@@ -2723,9 +2336,6 @@ Kaj lia havaĵo ne disvastiĝos sur la tero.
 Flamo velksekigos liajn branĉojn,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj Li forigos lin per la blovo de Sia buŝo.
 
 31 La erarinto ne fidu vantaĵon,
@@ -2748,7 +2358,7 @@ Kaj fajro ekstermos la tendojn de tiuj, kiuj prenas subaĉeton.
 
 Kaj ilia ventro pretigas malicaĵon.
 
-ĉapitro 16
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -2788,9 +2398,6 @@ Li detruis mian tutan esencon.
 
 
 Vi faris al mi sulkojn, tio fariĝis atesto;
-
-
-L A S A N K TA B I B L I O
 
 
 Mia senfortiĝo staras antaŭ mia vizaĝo, kaj parolas.
@@ -2855,16 +2462,13 @@ Sed mia okulo larmas al Dio,
 21 Ke Li decidu inter homo kaj Dio,
 
 
-L A S A N K TA B I B L I O
-
-
 Inter homo kaj lia amiko.
 
 22 ĉar la nombro de la jaroj pasos,
 
 Kaj mi iros sur vojon nereveneblan.
 
-ĉapitro 17
+ĉapitro
 
 
 Mia spirito senfortiĝis, miaj tagoj mallongiĝis,
@@ -2924,9 +2528,6 @@ Kiujn havis mia koro.
 La lumon alproksimigi al la mallumo.
 
 
-L A S A N K TA B I B L I O
-
-
 13 Se mi atendas, tamen ŝeol estas mia domo,
 
 En la mallumo estas pretigita mia lito.
@@ -2943,7 +2544,7 @@ Kiu atentos mian esperon?
 
 Ni ambaŭ kune kuŝos en la polvo.
 
-ĉapitro 18
+ĉapitro
 
 1 Ekparolis Bildad, la ŝuąno, kaj diris:
 
@@ -2992,9 +2593,6 @@ Kaj pereo lin atakos.
 10 Kaŝita en la tero estas lia falilo,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj kaptiloj kontraŭ li estas sur la vojo.
 
 11 De ĉiuj flankoj timigos lin teruroj
@@ -3041,7 +2639,7 @@ Kaj la antaŭulojn kaptos timo.
 
 Kaj tia estas la loko de tiu, kiu ne konas Dion.
 
-ĉapitro 19
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -3052,9 +2650,6 @@ Kaj turmentados min per paroloj?
 
 
 Jen jam dek fojojn vi malhonoras min;
-
-
-L A S A N K TA B I B L I O
 
 
 Vi ne hontas premi min.
@@ -3124,9 +2719,6 @@ Per mia buŝo mi devas petegi lin.
 Kaj mia petado por la filoj de mia ventro.
 
 
-L A S A N K TA B I B L I O
-
-
 18 Eĉ la malgrandaj infanoj malestimas min;
 
 Kiam mi leviĝas, ili parolas kontraŭ mi.
@@ -3177,15 +2769,12 @@ Kaj ni trovu kontraŭ li la radikon de la afero,
 
 Por ke vi sciu, ke ekzistas juĝo.
 
-ĉapitro 20
+ĉapitro
 
 1 Ekparolis Cofar, la Naamano, kaj diris:
 
 
 Pro tio miaj pensoj devigas min respondi,
-
-
-L A S A N K TA B I B L I O
 
 
 Pro tio, kion mi sentas.
@@ -3256,9 +2845,6 @@ Lango de vipuro lin mortigos.
 17 Li ne vidos fluojn nek riverojn,
 
 
-L A S A N K TA B I B L I O
-
-
 Torentojn de mielo kaj de butero.
 
 18 Li redonos tion, kion li pene akiris, kaj li tion ne englutos;
@@ -3314,10 +2900,7 @@ Disŝutita ĝi estos en la tago de Lia kolero.
 Kaj la heredaĵo destinita por li de Dio.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 21
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -3386,9 +2969,6 @@ Ni ne deziras koni Viajn vojojn;
 Kaj kian utilon ni havos, se ni turnos nin al Li?
 
 
-L A S A N K TA B I B L I O
-
-
 16 Sed ne de ili dependas ilia bonstato;
 
 La pensmaniero de la malpiuloj estas malproksima de mi.
@@ -3450,9 +3030,6 @@ Kaj ne malatentu iliajn atestojn:
 30 En tago de malfeliĉo la malpiulo estas ŝirmata,
 
 
-L A S A N K TA B I B L I O
-
-
 En tago de kolero li estas metata flanken.
 
 31 Kiu montros antaŭ lia vizaĝo lian konduton?
@@ -3473,7 +3050,7 @@ Kaj sennombraj estas tiuj, kiuj iris antaŭ li.
 
 Kaj viaj respondoj enhavas nur malĝustaĵojn?
 
-ĉapitro 22
+ĉapitro
 
 1 Ekparolis Elifaz, la Temanano, kaj diris:
 
@@ -3516,9 +3093,6 @@ Kaj dank’ al eminenteco vi loĝis sur ĝi;
 Vidvinojn vi foririgis kun nenio,
 
 Kaj la brakojn de orfoj vi frakasis.
-
-
-L A S A N K TA B I B L I O
 
 
 10 Pro tio ĉirkaŭe de vi estas kaptiloj,
@@ -3582,9 +3156,6 @@ Forigu malpiaĵon el via tendo.
 Kaj la Ofiran oron sur la ŝtonojn de la torentoj;
 
 
-L A S A N K TA B I B L I O
-
-
 25 Tiam la Plejpotenculo estos via oro kaj via brilanta arĝento;
 
 26 ĉar tiam vi havos vian plezuron en la Plejpotenculo,
@@ -3607,7 +3178,7 @@ Kaj kiu mallevas la okulojn, tiu estos savita.
 
 Tia estos savita pro la pureco de viaj manoj.
 
-ĉapitro 23
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -3650,9 +3221,6 @@ Mi iras malantaŭen, kaj mi Lin ne rimarkas;
 Se Li faras ion maldekstre, mi Lin ne trovas;
 
 
-L A S A N K TA B I B L I O
-
-
 Se Li kaŝas Sin dekstre, mi Lin ne vidas.
 
 10 Sed mian vojon Li konas;
@@ -3687,7 +3255,7 @@ Kaj la Plejpotenculo mnfuzis.
 
 Kaj antaŭ mia vizaĝo Li ne kovris la mallumon.
 
-ĉapitro 24
+ĉapitro
 
 
 Kial la Plejpotenculo ne destinis tempojn,
@@ -3711,9 +3279,6 @@ La suferantoj sur la tero devas sin kaŝi.
 
 
 Jen kiel sovaĝaj azenoj ili eliras al sia laboro, por serĉi kaptaĵon; La stepo donas al ili panon por iliaj infanoj.
-
-
-L A S A N K TA B I B L I O
 
 
 Sur fremda kampo ili rikoltas,
@@ -3780,9 +3345,6 @@ Dum la tago oni kaŝas sin ĉe si, ne konante lumon.
 18 Tia homo estas malpeza sur la supraĵo de akvo;
 
 
-L A S A N K TA B I B L I O
-
-
 Malgranda estas lia parto sur la tero;
 
 Li ne iras laŭ la vojo de vinberĝardenoj.
@@ -3821,7 +3383,7 @@ Kaj kiel la kapo de spiko ili dehakiĝas.
 
 Kiu pruvos, ke mi mensogas, kaj senvalorigos mian parolon?
 
-ĉapitro 25
+ĉapitro
 
 1 Ekparolis Bildad, la ŝuąno, kaj diris:
 
@@ -3844,9 +3406,6 @@ Kaj kiel naskito de virino povas esti pura?
 Vidu, eĉ la luno ne estas hela
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj la steloj ne estas puraj antaŭ Liaj okuloj:
 
 
@@ -3854,7 +3413,7 @@ Des pli homo, la vermo!
 
 Kaj homido, la tineo!
 
-ĉapitro 26
+ĉapitro
 
 1 Ijob respondis kaj diris:
 
@@ -3913,9 +3472,6 @@ Kaj per Sia saĝo Li frakasas Rahabon.
 13 Per Lia spirito belegiĝas la ĉielo;
 
 
-L A S A N K TA B I B L I O
-
-
 Lia mano trapikas la tordiĝantan serpenton.
 
 14 Jen tio estas parto de Liaj vojoj;
@@ -3924,7 +3480,7 @@ Kaj nur iometon ni aŭdis pri Li.
 
 Kiu povas kompreni la tondron de Lia potenco?
 
-ĉapitro 27
+ĉapitro
 
 1 Kaj Ijob daŭrigis siajn sentencojn, kaj diris:
 
@@ -3981,9 +3537,6 @@ Mi ne kaŝos antaŭ vi tion, kio estas ĉe la Plejpotenculo.
 12 Jen vi ĉiuj mem vidis;
 
 
-L A S A N K TA B I B L I O
-
-
 Kial do vi parolas senenhavaĵon?
 
 13 Tia estas la sorto de malbona homo ĉe Dio,
@@ -4030,7 +3583,7 @@ De Lia mano li kuros kaj kuros.
 
 Kaj oni fajfos pri li sur lia loko.
 
-ĉapitro 28
+ĉapitro
 
 
 La arĝento havas lokon, kie oni ĝin elakiras;
@@ -4041,9 +3594,6 @@ Kaj la oro havas lokon, kie oni ĝin fandas.
 La fero estas ricevata el polvo,
 
 Kaj el ŝtono oni fandas la kupron.
-
-
-L A S A N K TA B I B L I O
 
 
 Oni faras finon al la mallumo,
@@ -4113,9 +3663,6 @@ Nek per multekosta onikso kaj safiro.
 17 Ne valoregalas al ĝi oro kaj vitro;
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj oni ne povas ŝanĝi ĝntraŭ vazoj el pura oro.
 
 18 Koraloj kaj kristalo ne estas atentataj;
@@ -4164,7 +3711,7 @@ Vidu, timo antaŭ Dio estas saĝo,
 
 Kaj evitado de malbono estas prudento.
 
-ĉapitro 29
+ĉapitro
 
 1 Kaj plue Ijob parolis siajn sentencojn, kaj diris:
 
@@ -4172,9 +3719,6 @@ Kaj evitado de malbono estas prudento.
 Ho, se estus al mi tiel, kiel en la antaŭaj monatoj,
 
 Kiel en la tempo, kiam Dio min gardis;
-
-
-L A S A N K TA B I B L I O
 
 
 Kiam Lia lumilo lumis super mia kapo;
@@ -4244,9 +3788,6 @@ Kaj juĝan aferon de homoj nekonataj mi esploradis;
 Kaj el liaj dentoj mi elŝiradis la kaptitaĵon.
 
 
-L A S A N K TA B I B L I O
-
-
 18 Kaj mi pensis: En mia nesto mi mortos,
 
 Kaj grandnombraj kiel sablo estos miaj tagoj;
@@ -4281,7 +3822,7 @@ Mi loĝis kiel reĝo inter taĉmentoj,
 
 Kiel konsolanto de funebruloj.
 
-ĉapitro 30
+ĉapitro
 
 
 Sed nun ridas pri mi homoj pli junaj ol mi,
@@ -4307,9 +3848,6 @@ Kaj kies pano estas la radiko de genisto.
 
 
 El meze de la homoj oni elpelas ilin;
-
-
-L A S A N K TA B I B L I O
 
 
 Oni krias sur ilin, kiel sur ŝteliston;
@@ -4377,9 +3915,6 @@ Premas min la rando de mia ĉemizo.
 Mi similiĝis al polvo kaj cindro.
 
 
-L A S A N K TA B I B L I O
-
-
 20 Mi krias al Vi, sed Vi ne respondas al mi;
 
 Mi staras, ke Vi atentu min.
@@ -4428,7 +3963,7 @@ Kaj miaj ostoj sekiĝis de varmego.
 
 Kaj mia fluto fariĝis voĉo de plorantoj.
 
-ĉapitro 31
+ĉapitro
 
 
 Mi faris interligon kun miaj okuloj,
@@ -4437,9 +3972,6 @@ Ke mi ne atentu virgulinon.
 
 
 Kia estas la parto, kiun donas Dio de supre?
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj kion destinas la Plejpotenculo el la altaj sferoj?
@@ -4510,9 +4042,6 @@ Kaj Tiu sama pretigis en la ventro ankaŭ lin.
 Aŭ ĉu mi turmentis la okulojn de vidvino?
 
 
-L A S A N K TA B I B L I O
-
-
 17 ĉu mian panpecon mi manĝis sola?
 
 ĉu ne manĝis de ĝi ankaŭ orfo?
@@ -4574,9 +4103,6 @@ Per eldiro de malbeno kontraŭ lia animo.
 Ho, se oni ne satiĝus de lia karno!
 
 
-L A S A N K TA B I B L I O
-
-
 32 Ne noktis fremdulo sur la strato;
 
 Miajn pordojn mi malfermadis al migrantoj.
@@ -4619,13 +4145,11 @@ Kaj anstataŭ hordeo dornoj.
 
 Finiĝis la paroloj de Ijob.
 
-ĉapitro 32
+ĉapitro
 
-1 Kaj tiuj tri viroj ĉesis respondi al Ijob, ĉar li opiniis sin prava. 2
+1 Kaj tiuj tri viroj ĉesis respondi al Ijob, ĉar li opiniis sin prava.
 
-Tiam ekflamis la kolero de Elihu, filo de Baraęl, Buzano, el la familio de Ram. Kontraŭ Ijob ekflamis lia kolero pro tio, ke li opiniis sin pli prava ol Dio; 3 kaj kontraŭ liaj tri amikoj ekflamis lia kolero pro tio, ke ili ne trovis respondon kaj akuzis Ijobon. 4 Elihu atendis, dum ili parolis kun Ijob, ĉar ili estis pli aĝaj ol li. 5 Sed kiam Elihu 994
-
-L A S A N K TA B I B L I O
+Tiam ekflamis la kolero de Elihu, filo de Baraęl, Buzano, el la familio de Ram. Kontraŭ Ijob ekflamis lia kolero pro tio, ke li opiniis sin pli prava ol Dio; 3 kaj kontraŭ liaj tri amikoj ekflamis lia kolero pro tio, ke ili ne trovis respondon kaj akuzis Ijobon. 4 Elihu atendis, dum ili parolis kun Ijob, ĉar ili estis pli aĝaj ol li. 5 Sed kiam Elihu
 
 
 vidis, ke ne troviĝas respondo en la buŝo de la tri viroj, ekflamis lia kolero.
@@ -4690,9 +4214,6 @@ Mi ankaŭ eldiros mian opinion.
 18 ĉar mi estas plena de vortoj;
 
 
-L A S A N K TA B I B L I O
-
-
 La spirito de mia interno min premas.
 
 19 Mia interno estas kiel vino ŝtopfermita,
@@ -4711,7 +4232,7 @@ Kaj mi ne flatos al homo;
 
 Aliokaze pereigu min mia Kreinto.
 
-ĉapitro 33
+ĉapitro
 
 
 Aŭskultu do, Ijob, miajn parolojn,
@@ -4757,9 +4278,6 @@ Kaj mi aŭdis la sonon de tiaj vortoj:
 Mi estas pura, sen malbonagoj;
 
 Senkulpa, mi ne havas pekon;
-
-
-L A S A N K TA B I B L I O
 
 
 10 Jen Li trovis ion riproĉindan en mi,
@@ -4823,9 +4341,6 @@ Kvankam unu el mil,
 Kiu elmontrus pri la homo lian pravecon,
 
 
-L A S A N K TA B I B L I O
-
-
 24 Tiam Li indulgas lin, kaj diras:
 
 Liberigu lin, ke li ne malsupreniru en la tombon,
@@ -4874,7 +4389,7 @@ Parolu, ĉar mi dezirus, ke vi montriĝu prava.
 
 Silentu, kaj mi instruos al vi saĝon.
 
-ĉapitro 34
+ĉapitro
 
 1 Elihu parolis plue, kaj diris:
 
@@ -4882,9 +4397,6 @@ Silentu, kaj mi instruos al vi saĝon.
 Aŭskultu, saĝuloj, miajn vortojn;
 
 Kaj vi, kompetentuloj, atentu min.
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar la orelo esploras la parolon,
@@ -4954,9 +4466,6 @@ Atentu la voĉon de miaj paroloj.
 17 ĉu povas regi malamanto de justeco?
 
 
-L A S A N K TA B I B L I O
-
-
 ĉu vi povas akuzi la Plejjustulon?
 
 18 ĉu oni povas diris al reĝo: Sentaŭgulo;
@@ -5018,9 +4527,6 @@ El la pekigantoj de popolo.
 Mi fieriĝis, mi ne plu faros malbonon;
 
 
-L A S A N K TA B I B L I O
-
-
 32 Kion mi ne vidas, pri tio instruu min;
 
 Se mi faris maljustaĵon, mi ne plu faros.
@@ -5047,7 +4553,7 @@ Pro tio, ke li aliĝas al homoj pekaj;
 
 Inter ni li mokas, kaj multe parolas kontraŭ Dio.
 
-ĉapitro 35
+ĉapitro
 
 1 Elihu parolis plue, kaj diris:
 
@@ -5083,9 +4589,6 @@ Aŭ kion Li prenas el via mano?
 
 
 Al homo, simila al vi, povas ion fari via malbonago,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj via virteco havas signifon nur por homido.
@@ -5125,7 +4628,7 @@ Kaj ne atentas la tro grandan malvirtecon,
 
 Kaj tre multe parolas malprudente.
 
-ĉapitro 36
+ĉapitro
 
 1 Kaj plue parolis Elihu, kaj diris:
 
@@ -5148,9 +4651,6 @@ Homo sincera estas antaŭ vi.
 Vidu, Dio estas potenca, kaj tamen Li neniun malŝatas;
 
 Li estas potenca per la forto de la koro.
-
-
-L A S A N K TA B I B L I O
 
 
 Al malpiulo Li ne permesas vivi,
@@ -5217,9 +4717,6 @@ Kulpo kaj juĝo tenas sin kune.
 Kaj grandeco de elaĉeto ne deklinu vin.
 
 
-L A S A N K TA B I B L I O
-
-
 19 ĉu Li atentos vian riĉecon?
 
 Ne, nek oron, nek forton aŭ potencon.
@@ -5281,10 +4778,7 @@ Kaj ordonas al ĝi aperi denove.
 Kaj eĉ la brutaroj, kiam ĝi alproksimiĝas.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 37
+ĉapitro
 
 
 Pri tio tremas mia koro
@@ -5354,9 +4848,6 @@ Por ke ili plenumu ĉion, kion Li ordonas al ili, sur la tero:
 Staru, kaj konsideru la miraklojn de Dio.
 
 
-L A S A N K TA B I B L I O
-
-
 15 ĉu vi scias, kiamaniere Dio agigas ilin
 
 Kaj aperigas lumon el Sia nubo?
@@ -5399,7 +4890,7 @@ Li neniun premas.
 
 Kaj Li atentas neniun el la saĝuloj.
 
-ĉapitro 38
+ĉapitro
 
 1 La Eternulo el ventego ekparolis al Ijob, kaj diris:
 
@@ -5415,9 +4906,6 @@ Mi vin demandos, kaj vi sciigu al Mi.
 
 
 Kie vi estis, kiam Mi fondis la teron?
-
-
-L A S A N K TA B I B L I O
 
 
 Diru, se vi havas scion.
@@ -5486,9 +4974,6 @@ Diru, ĉu vi scias ĉion ĉi tion?
 19 Kie estas la vojo al la loĝejo de la lumo,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj kie estas la loko de la mallumo,
 
 20 Ke vi konduku ĝin al ĝia limo,
@@ -5550,9 +5035,6 @@ Aŭ ĉu vi povas aranĝi ĝian regadon super la tero?
 34 ĉu vi povas levi al la nubo vian voĉon,
 
 
-L A S A N K TA B I B L I O
-
-
 Ke abundo da akvo vvru?
 
 35 ĉu vi povas sendi fulmojn,
@@ -5585,7 +5067,7 @@ Kiam ĝiaj idoj krias al Dio,
 
 Vagflugas, ne havante, kion manĝi?
 
-ĉapitro 39
+ĉapitro
 
 
 ĉu vi scias la tempon, en kiu naskas la ibeksoj sur la rokoj?
@@ -5614,9 +5096,6 @@ Kaj kiu malligis ĝiajn ligilojn?
 
 
 La dezerton Mi faris ĝia domo,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj stepon ĝia loĝejo;
@@ -5683,9 +5162,6 @@ Terura estas la beleco de ĝia ronkado.
 21 i fosas en la valo kaj estas gaja pro forteco;
 
 
-L A S A N K TA B I B L I O
-
-
 i eliras kontraŭ armiton;
 
 22 i ridas pri timo kaj ne senkuraĝiĝas,
@@ -5726,7 +5202,7 @@ Malproksime vidas ĝiaj okuloj.
 
 Kaj kie estas mortigitoj, tie ĝi estas.
 
-ĉapitro 40
+ĉapitro
 
 1 Kaj la Eternulo plue parolis al Ijob, kaj diris:
 
@@ -5744,9 +5220,6 @@ Mi metas mian manon sur mian buŝon.
 
 
 Unu fojon mi parolis, kaj mi ne respondos;
-
-
-L A S A N K TA B I B L I O
 
 
 Tion mi ne faros duan fojon.
@@ -5813,9 +5286,6 @@ ia Kreinto donis al ĝi ĝian glavon.
 Kaj ĉiuj bestoj de la kampo tie ludas.
 
 
-L A S A N K TA B I B L I O
-
-
 21 Sub ombroriĉaj arboj ĝi kuŝas,
 
 Sub kovro de kanoj kaj en ŝlimo.
@@ -5832,7 +5302,7 @@ i staras trankvile, se eĉ Jordan enverŝiĝus en ĝian buŝon.
 
 ĉu iu povas trabori per ŝnuroj ĝian nazon?
 
-ĉapitro 41
+ĉapitro
 
 
 ĉu vi povas eltiri levjatanon per fiŝhoko,
@@ -5880,9 +5350,6 @@ Vidu, la espero ĉiun trompos;
 Jam ekvidinte ĝin, li falos.
 
 10 Neniu estas tiel kuraĝa, por inciti ĝin;
-
-
-L A S A N K TA B I B L I O
 
 
 Kiu do povas stari antaŭ Mi?
@@ -5946,9 +5413,6 @@ Kaj fortika kiel suba muelŝtono.
 25 Kiam ĝi sin levas, ektremas fortuloj,
 
 
-L A S A N K TA B I B L I O
-
-
 Konsterniĝas de teruro.
 
 26 Glavo, kiu alproksimiĝas al ĝi, ne povas sin teni,
@@ -5987,7 +5451,7 @@ i estas kreita sentima.
 
 i estas reĝo super ĉiuj sovaĝaj bestoj.
 
-ĉapitro 42
+ĉapitro
 
 1 Ijob respondis al la Eternulo, kaj diris:
 
@@ -6009,9 +5473,6 @@ Aŭskultu, kaj mi parolos;
 Mi demandos Vin, kaj Vi sciigu al mi.
 
 
-L A S A N K TA B I B L I O
-
-
 Nur per la oreloj mi aŭdis pri Vi;
 
 Sed nun mia okulo Vin vidis.
@@ -6024,12 +5485,9 @@ Kaj mi pentas en polvo kaj cindro.
 7 Post kiam la Eternulo parolis tiujn vortojn al Ijob, la Eternulo diris al Elifaz, la Temanano: Mia kolero ekflamis kontraŭ vi kaj kontraŭ viaj du amikoj, pro tio, ke vi ne parolis antaŭ Mi tiel ĝuste, kiel Mia servanto Ijob. 8 Prenu do nun al vi sep bovojn kaj sep ŝafojn, kaj iru al Mia servanto Ijob, kaj alportu bruloferon pro vi; kaj Mia servanto Ijob preĝos por vi; ĉar nur lin Mi atentos, por ne fari al vi punon pro tio, ke vi ne parolis antaŭ Mi tiel ĝuste, kiel Mia servanto Ijob. 9 Kaj iris Elifaz, la Temanano, kaj Bildad, la ŝuąno, kaj Cofar, la Naamano, kaj faris tion, kion diris al ili la Eternulo. Kaj la Eternulo atentis Ijobon. 10 Kaj la Eternulo redonis la forprenitaĵon al Ijob, kiam li preĝis por siaj amikoj. Kaj la Eternulo donis al Ijob duoble pli ol ĉio, kion li havis antaŭe. 11 Kaj venis al li ĉiuj liaj fratoj kaj ĉiuj liaj fratinoj kaj ĉiuj liaj antaŭaj konatoj, kaj ili manĝis kun li en lia domo, kaj esprimis al li sian kunsenton, kaj konsolis lin pri la tuta malbono, kiun la Eternulo venigis sur lin; kaj ĉiu el ili donis al li po unu kesito, kaj ĉiu po unu ora ringo. 12 Kaj la Eternulo benis la lastajn jarojn de Ijob pli ol la komencajn; kaj li havis dek kvar mil ŝafojn kaj ses mil kamelojn kaj mil parojn da bovoj kaj mil azeni-nojn. 13 Kaj li havis sep filojn kaj tri filinojn. 14 Al unu el ĉi tiuj li donis al nomon Jemima, al la dua la nomon Kecia, kaj al la tria la nomon Keren-Hapu˛. 15 Kaj en la tuta lando ne troviĝis virinoj tiel belaj, kiel la filinoj de Ijob; kaj ilia patro donis al ili heredan posedaĵon inter iliaj fratoj. 16 Kaj post tio Ijob vivis cent kvardek jarojn, kaj li vidis siajn filojn kaj nepojn ĝis la kvara generacio. 17 Kaj Ijob mortis, maljuna kaj satiĝinta de la vivo.
 
 
-L A S A N K TA B I B L I O
-
-
 La psalmaro – Libro unua
 
-Psalmo 1
+Psalmo
 
 
 Feliĉa estas la homo, kiu ne iras laŭ konsilo de malpiuloj,
@@ -6067,7 +5525,7 @@ Nek la pekuloj en societo de piuloj.
 
 Sed la vojo de malpiuloj pereos.
 
-Psalmo 2
+Psalmo
 
 
 Kial tumultas popoloj,
@@ -6080,9 +5538,6 @@ Leviĝas reĝoj de la tero,
 Kaj eminentuloj konsiliĝas kune,
 
 Kontraŭ la Eternulo kaj kontraŭ Lia sanktoleito, dirante:
-
-
-L A S A N K TA B I B L I O
 
 
 Ni disŝiru iliajn ligilojn,
@@ -6135,7 +5590,7 @@ Kaj ĝoju kun tremo.
 
 Feliĉaj estas ĉiuj, kiuj fidas Lin.
 
-Psalmo 3
+Psalmo
 
 Psalmo de David, kiam li forkuris de sia filo Abŝalom.
 
@@ -6148,9 +5603,6 @@ Multaj leviĝis kontraŭ mi!
 Multaj diradas pri mia animo:
 
 Ne ekzistas por li savo de Dio.
-
-
-L A S A N K TA B I B L I O
 
 
 Sela.
@@ -6191,7 +5643,7 @@ Super Via popolo estu Via beno.
 
 Sela.
 
-Psalmo 4
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj. Psalmo de David.
 
@@ -6220,9 +5672,6 @@ Tremu, kaj ne peku;
 Meditu en viaj koroj, sur viaj kuŝejoj, kaj estu fortikanimaj.
 
 
-L A S A N K TA B I B L I O
-
-
 Sela.
 
 
@@ -6245,7 +5694,7 @@ Pace mi kuŝiĝas kaj tuj endormiĝas;
 
 ĉar Vi, ho Eternulo, loĝigas min sola en sendanĝereco.
 
-Psalmo 5
+Psalmo
 
 Al la ˛orestro. Por blovaj instrumentoj. Psalmo de David.
 
@@ -6293,9 +5742,6 @@ Pro miaj insidantoj ebenigu antaŭ mi Vian vojon.
 ĉar ne ekzistas vero en ilia buŝo;
 
 
-L A S A N K TA B I B L I O
-
-
 En ilia interno estas malvirteco;
 
 Malfermita tombo estas ilia gorĝo;
@@ -6320,7 +5766,7 @@ Kaj triumfos pri Vi tiuj, kiuj amas Vian nomon.
 
 Kiel per ŝildo Vi ĉirkaŭdefendas lin per favoro.
 
-Psalmo 6
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj, por basuloj.
 
@@ -6359,9 +5805,6 @@ Mi laciĝis de mia ĝemado;
 Per miaj larmoj mi malsekigas mian kuŝejon.
 
 
-L A S A N K TA B I B L I O
-
-
 Sekiĝis de malĝojo mia vizaĝo,
 
 Maljuniĝis de ĉiuj miaj premantoj.
@@ -6380,7 +5823,7 @@ La Eternulo akceptos mian preĝon.
 
 Ili forturniĝos kaj tuj estos hontigitaj.
 
-Psalmo 7
+Psalmo
 
 Senkulpiĝo de David, kiun li kantis al la Eternulo pri Kuŝ,
 
@@ -6428,9 +5871,6 @@ Kaj amaso da popoloj Vin ĉirkaŭos;
 Kaj super ili reiru supren.
 
 
-L A S A N K TA B I B L I O
-
-
 La Eternulo juĝas popolojn.
 
 Juĝu min, ho Eternulo, laŭ mia justeco kaj laŭ mia pieco.
@@ -6472,7 +5912,7 @@ Kaj sur lian verton falos lia krimo.
 
 Kaj kantos la nomon de la Eternulo Plejalta.
 
-Psalmo 8
+Psalmo
 
 Al la ˛orestro. Por la gitito. Psalmo de David.
 
@@ -6489,9 +5929,6 @@ Per la buŝo de junaj infanoj kaj suĉinfanoj
 Vi fondis al Vi potencon kontraŭ Viaj malamikoj,
 
 Por kvietigi la malamikon kaj la venĝemulon.
-
-
-L A S A N K TA B I B L I O
 
 
 Kiam mi rigardas Vian ĉielon, la faron de Viaj fingroj,
@@ -6528,7 +5965,7 @@ Ho Eternulo, nia Sinjoro,
 
 Kiel majesta estas Via nomo sur la tuta tero!
 
-Psalmo 9
+Psalmo
 
 Al la ˛orestro. Por mut-labeno. Psalmo de David.
 
@@ -6561,9 +5998,6 @@ Ilian nomon Vi ekstermis por ĉiam kaj eterne.
 La malamikoj malaperis, ruiniĝis por ĉiam;
 
 Iliajn urbojn Vi renversis,
-
-
-L A S A N K TA B I B L I O
 
 
 La memoro pri ili pereis kune kun ili.
@@ -6630,16 +6064,13 @@ Kaj la espero de mizeruloj ne pereos por eterne.
 La popoloj estu juĝataj antaŭ Via vizaĝo.
 
 
-L A S A N K TA B I B L I O
-
-
 20 Metu, ho Eternulo, timon sur ilin,
 
 La popoloj sciu, ke ili estas homoj.
 
 Sela.
 
-Psalmo 10
+Psalmo
 
 
 Kial, ho Eternulo, Vi staras malproksime?
@@ -6699,9 +6130,6 @@ Kaj la malriĉulo falas en liajn fortajn ungegojn.
 11 Li diras en sia koro: Dio forgesis,
 
 
-L A S A N K TA B I B L I O
-
-
 Li kovras Sian vizaĝon, Li neniam vidos.
 
 12 Leviĝu, ho Eternulo; ho Dio, levu Vian manon;
@@ -6736,7 +6164,7 @@ Vi fortigas ilian koron, Vi atentigas Vian orelon,
 
 Por ke oni ĉesu peli homon de la tero.
 
-Psalmo 11
+Psalmo
 
 Al la ˛orestro. De David.
 
@@ -6763,9 +6191,6 @@ Kion povas fari la justulo?
 La Eternulo estas en Sia sankta templo;
 
 
-L A S A N K TA B I B L I O
-
-
 La trono de la Eternulo estas en la ĉielo;
 
 Liaj okuloj vidas, Liaj palpebroj esploras la homidojn.
@@ -6787,7 +6212,7 @@ Brula vento estos kaliko, destinita por ili.
 
 La piulo vidos Lian vizaĝon.
 
-Psalmo 12
+Psalmo
 
 Al la ˛orestro. Por basuloj. Psalmo de David.
 
@@ -6834,10 +6259,7 @@ Vi gardos nntraŭ ĉi tiu generacio por eterne.
 Kiam malnobleco altiĝas inter la homidoj.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 13
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -6873,7 +6295,7 @@ Mi kantos al la Eternulo,
 
 ĉar Li faris al mi bonon.
 
-Psalmo 14
+Psalmo
 
 Al la ˛orestro. De David.
 
@@ -6905,9 +6327,6 @@ Kaj kiuj ne vokas al la Eternulo?
 Tie ili forte ektimis,
 
 
-L A S A N K TA B I B L I O
-
-
 ĉar Dio estas en la generacio de la justuloj.
 
 
@@ -6922,7 +6341,7 @@ Kiam la Eternulo revenigos Sian forkaptitan popolon,
 
 Tiam triumfos Jakob kaj ĝojos Izrael.
 
-Psalmo 15
+Psalmo
 
 Psalmo de David.
 
@@ -6957,7 +6376,7 @@ Kaj subaĉetajn donacojn kontraŭ senkulpulo ne akceptas.
 
 Kiu tiel agas, tiu neniam falos.
 
-Psalmo 16
+Psalmo
 
 Verko de David.
 
@@ -6968,9 +6387,6 @@ Gardu min, ho Dio, ĉar mi rifuĝas ĉe Vi.
 Mi diris al la Eternulo: Vi estas mia Sinjoro;
 
 Mi ne havas alian bonon krom Vi.
-
-
-L A S A N K TA B I B L I O
 
 
 Al la sanktuloj, kiuj estas sur la tero,
@@ -7019,7 +6435,7 @@ Multe da ĝojoj estas antaŭ Vi,
 
 ĉarmoj estas en Via dekstra mano eterne.
 
-Psalmo 17
+Psalmo
 
 Preĝo de David.
 
@@ -7037,9 +6453,6 @@ Viaj okuloj rigardos la veremecon.
 Vi esploras mian koron, ekzamenas ĝin en la nokto;
 
 Vi elprovas min,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj Vi trovas nenion, kion mi intencus,
@@ -7109,10 +6522,7 @@ Ke iliaj filoj estos sataj kaj ili lasos restaĵon por siaj infanoj.
 Vekiĝante, mi satiĝos per Via bildo.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 18
+Psalmo
 
 Al la ˛orestro. De la sklavo de la Eternulo, David, kiu eldiris
 
@@ -7180,9 +6590,6 @@ Kaj Li portiĝis sur la flugiloj de la vento.
 11 El la mallumo Li faris al Si kovron,
 
 
-L A S A N K TA B I B L I O
-
-
 Tendon Li faris ĉirkaŭ Si el la mallumo de la akvo, densaj nuboj.
 
 12 De la brilo antaŭ Li, tra Liaj densaj nuboj,
@@ -7242,9 +6649,6 @@ Kaj mi gardis min, ke mi ne peku.
 24 Kaj la Eternulo rekompencis min laŭ mia justeco,
 
 Laŭ la pureco de miaj manoj antaŭ Liaj okuloj.
-
-
-L A S A N K TA B I B L I O
 
 
 25 Kun favorkorulo Vi estas favorkora,
@@ -7308,9 +6712,6 @@ Kaj mi ne revenas, ĝis mi ilin pereigas.
 Ili falas sub miajn piedojn.
 
 
-L A S A N K TA B I B L I O
-
-
 39 Vi ĉirkaŭzonas min per forto por la milito;
 
 Miajn atakintojn Vi ĵetas sub min.
@@ -7366,10 +6767,7 @@ Kaj faras favoraĵon al Sia sanktoleito,
 Al David kaj al lia idaro, por eterne.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 19
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -7437,9 +6835,6 @@ Kiu ilin observas, tiu havas grandan rekompencon.
 Ke ili ne regu super mi.
 
 
-L A S A N K TA B I B L I O
-
-
 Tiam mi estos perfekta, kaj pura de granda peko.
 
 14 Akceptu kore la vortojn el mia buŝo kaj la parolon de
@@ -7448,7 +6843,7 @@ mia koro antaŭ Vi,
 
 Ho Eternulo, mia Roko kaj mia Liberiganto.
 
-Psalmo 20
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -7504,10 +6899,7 @@ Ho Eternulo, savu;
 La Reĝo respondu al ni, kiam ni vokas al Li.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 21
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -7577,10 +6969,7 @@ Viajn tendenojn Vi direktos kontraŭ iliajn vizaĝojn.
 Ni kantos kaj gloros Vian potencon.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 22
+Psalmo
 
 Al la ˛orestro. Por ario: Matenkrepuska Cervino.
 
@@ -7650,9 +7039,6 @@ Kiel leono ŝiranta kaj krieganta.
 14 Kiel akvo mi disverŝiĝis,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj disiĝis ĉiuj miaj ostoj;
 
 Mia koro fariĝis kiel vakso,
@@ -7714,9 +7100,6 @@ Mi plenumos miajn promesojn antaŭ Liaj respektantoj.
 26 La humiluloj manĝu kaj satiĝu,
 
 
-L A S A N K TA B I B L I O
-
-
 Gloru la Eternulon Liaj serĉantoj;
 
 Via koro vivu eterne.
@@ -7743,7 +7126,7 @@ Oni predikos pri mia Sinjoro al la estonta generacio.
 
 Pri Lia justeco kaj pri Liaj faroj.
 
-Psalmo 23
+Psalmo
 
 Psalmo de David.
 
@@ -7778,10 +7161,7 @@ Nur bono kaj favoro sekvos min en la daŭro de mia tuta vivo;
 Kaj mi restos en la domo de la Eternulo eterne.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 24
+Psalmo
 
 Psalmo de David.
 
@@ -7849,10 +7229,7 @@ Li estas la Reĝo de gloro.
 Sela.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 25
+Psalmo
 
 De David.
 
@@ -7920,9 +7297,6 @@ Li montras la vojon, kiun tiu devas elekti.
 13 Lia animo ĝuos bonon,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj liaj idoj posedos la teron.
 
 14 Konfidon de la Eternulo havas Liaj timantoj;
@@ -7961,7 +7335,7 @@ Ne lasu min hontiĝi, ĉar Vin mi fidas.
 
 Izraelon el ĉiuj liaj suferoj.
 
-Psalmo 26
+Psalmo
 
 De David.
 
@@ -7981,9 +7355,6 @@ Refandu mian internaĵon kaj mian koron.
 ĉar Via favorkoreco estas antaŭ miaj okuloj;
 
 Kaj mi marŝas en Via vero.
-
-
-L A S A N K TA B I B L I O
 
 
 Mi ne sidas kun homoj malveremaj,
@@ -8027,7 +7398,7 @@ Liberigu min kaj korfavoru min.
 
 En kunvenoj mi benos la Eternulon.
 
-Psalmo 27
+Psalmo
 
 De David.
 
@@ -8049,9 +7420,6 @@ Se elpaŝos kontraŭ min armeo,
 Mia koro ne ektimos;
 
 Se leviĝos kontraŭ min milito,
-
-
-L A S A N K TA B I B L I O
 
 
 Ankaŭ tiam mi havos fidon.
@@ -8121,14 +7489,11 @@ En la lando de vivantoj!
 14 Esperu al la Eternulo;
 
 
-L A S A N K TA B I B L I O
-
-
 Tenu vin forte, forta estu via koro;
 
 Jes, esperu al la Eternulo.
 
-Psalmo 28
+Psalmo
 
 De David.
 
@@ -8187,14 +7552,11 @@ La Eternulo estas ilia forto,
 Li estas savanta forto por Sia sanktoleito.
 
 
-L A S A N K TA B I B L I O
-
-
 Helpu Vian popolon kaj benu Vian heredon,
 
 Kaj paŝtu kaj altigu ilin eterne.
 
-Psalmo 29
+Psalmo
 
 Psalmo de David.
 
@@ -8250,10 +7612,7 @@ La Eternulo restos Reĝo eterne.
 La Eternulo benos Sian popolon per paco.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 30
+Psalmo
 
 Psalmo-kanto ĉe inaŭguro de la Domo; de David.
 
@@ -8321,10 +7680,7 @@ Vi deprenis de mi mian sakaĵon kaj zonis min per ĝojo,
 Ho Eternulo, mia Dio, eterne mi Vin gloros.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 31
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -8394,9 +7750,6 @@ Mi fariĝis kiel rompita vazo.
 13 ĉar mi aŭdas la insultojn de multaj;
 
 
-L A S A N K TA B I B L I O
-
-
 ĉirkaŭe estas minacoj;
 
 Ili kune konspiras kontraŭ mi,
@@ -8454,10 +7807,7 @@ Kaj Li repagas sufiĉege al tiuj, kiuj agas malhumile.
 Vi ĉiuj, kiuj esperas al la Eternulo!
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 32
+Psalmo
 
 Instruo de David.
 
@@ -8523,10 +7873,7 @@ Sed kiu fidas la Eternulon, tiun ĉirkaŭas favoro.
 Kaj triumfu ĉiuj, kiuj havas pian koron!
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 33
+Psalmo
 
 
 oje kantu, ho piuloj, antaŭ la Eternulo;
@@ -8596,9 +7943,6 @@ Li rigardas ĉiujn, kiuj loĝas sur la tero,
 15 Li, kiu kreis la korojn de ili ĉiuj,
 
 
-L A S A N K TA B I B L I O
-
-
 Kiu rimarkas ĉiujn iliajn farojn.
 
 16 La reĝon ne helpos granda armeo,
@@ -8629,7 +7973,7 @@ Li estas nia helpo kaj nia ŝildo.
 
 Kiel ni esperas al Vi.
 
-Psalmo 34
+Psalmo
 
 De David, kiam li ŝajnigis sin freneza antaŭ Abimele˛,
 
@@ -8659,9 +8003,6 @@ Kaj de ĉiuj miaj danĝeroj Li savis min.
 Kiuj rigardas al Li, ricevas lumon,
 
 Kaj ilia vizaĝo ne kovriĝos per honto.
-
-
-L A S A N K TA B I B L I O
 
 
 Jen ĉi tiu mizerulo vokis, kaj la Eternulo aŭdis,
@@ -8726,9 +8067,6 @@ Sed de ĉiuj la Eternulo lin savas.
 Eĉ unu el ili ne rompiĝos.
 
 
-L A S A N K TA B I B L I O
-
-
 21 La malbonulon mortigos la malbono;
 
 Kaj la malamantoj de piulo pereos.
@@ -8737,7 +8075,7 @@ Kaj la malamantoj de piulo pereos.
 
 Kaj ne pereos ĉiuj, kiuj Lin fidas.
 
-Psalmo 35
+Psalmo
 
 De David.
 
@@ -8795,9 +8133,6 @@ Triumfos pro Lia helpo.
 10 ĉiuj miaj ostoj diros: Ho Eternulo, kiu egalas Vin,
 
 
-L A S A N K TA B I B L I O
-
-
 Kiu liberigas mizerulon de lia perfortanto,
 
 Mizerulon kaj malriĉulon de lia rabanto?
@@ -8842,9 +8177,7 @@ Meze de multe da popolo mi Vin laŭdos.
 
 19 Ne ĝoju pri mi miaj maljustaj malamikoj;
 
-Kaj tiuj, kiuj malamas min sen mia kulpo, ne moku per la oku-
-
-loj.
+Kaj tiuj, kiuj malamas min sen mia kulpo, ne moku per la okuloj.
 
 20 ĉar ne pri paco ili parolas,
 
@@ -8857,9 +8190,6 @@ intencojn.
 Kaj diris: Ha, ha! nia okulo vidis.
 
 22 Vi vidis, ho Eternulo; ne silentu!
-
-
-L A S A N K TA B I B L I O
 
 
 Mia Sinjoro, ne malproksimiĝu de mi.
@@ -8894,7 +8224,7 @@ Kiu deziras bonstaton por Sia sklavo.
 
 Kaj ĉiutage pri Via gloro.
 
-Psalmo 36
+Psalmo
 
 Al la ˛orestro. De David, sklavo de la Eternulo.
 
@@ -8922,9 +8252,6 @@ Malbonon li ne abomenas.
 
 
 Ho Eternulo, ĝis la ĉielo atingas Via boneco,
-
-
-L A S A N K TA B I B L I O
 
 
 Via vereco ĝis la nuboj.
@@ -8963,7 +8290,7 @@ Kaj mano de malpiuloj ne renversu min.
 
 Ili estu renversitaj kaj ne povu sin levi.
 
-Psalmo 37
+Psalmo
 
 De David.
 
@@ -8991,9 +8318,6 @@ Kaj Li plenumos la dezirojn de via koro.
 Transdonu al la Eternulo vian vojon kaj fidu Lin,
 
 Kaj Li faros.
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj Li aperigos vian pravecon kiel lumon,
@@ -9060,9 +8384,6 @@ Kaj ilia havo restos eterne.
 Kaj en tagoj de malsato ili estos sataj.
 
 
-L A S A N K TA B I B L I O
-
-
 20 ĉar la malvirtuloj pereos,
 
 Kaj la malamikoj de la Eternulo malaperos kiel beleco de
@@ -9124,9 +8445,6 @@ Liaj paŝoj ne ŝanceliĝas.
 32 Malvirtulo subrigardas virtulon
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj celas mortigi lin.
 
 33 Sed la Eternulo ne lasos lin en liaj manoj,
@@ -9165,7 +8483,7 @@ Li savos ilin de malbonuloj kaj helpos ilin,
 
 ĉar ili fidas Lin.
 
-Psalmo 38
+Psalmo
 
 Psalmo de David. Pro memoro.
 
@@ -9186,9 +8504,6 @@ Nenio sendifekta ekzistas en miaj ostoj pro mia peko.
 
 
 ĉar miaj krimoj superas mian kapon;
-
-
-L A S A N K TA B I B L I O
 
 
 Kiel peza ŝarĝo, ili estas tro pezaj por mi.
@@ -9257,9 +8572,6 @@ Kaj mia sufero estas ĉiam antaŭ mi.
 Kaj min ĉagrenas mia peko.
 
 
-L A S A N K TA B I B L I O
-
-
 19 Kaj la malamikoj de mia vivo estas fortaj,
 
 Kaj multaj estas miaj senkaŭzaj malamantoj.
@@ -9276,7 +8588,7 @@ Mia Dio, ne malproksimiĝu de mi.
 
 Mia Sinjoro, mia helpo!
 
-Psalmo 39
+Psalmo
 
 Al la ˛orestro Jedutun. Psalmo de David.
 
@@ -9324,9 +8636,6 @@ Li kolektas, kaj ne scias, kiu ĝin ricevos.
 Kaj nun kion mi devas esperi, mia Sinjoro?
 
 
-L A S A N K TA B I B L I O
-
-
 Mia espero estas al Vi.
 
 
@@ -9363,7 +8672,7 @@ Enmigrinto, kiel ĉiuj miaj patroj.
 
 Antaŭ ol mi foriros kaj ĉesos ekzisti.
 
-Psalmo 40
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -9388,9 +8697,6 @@ Kaj ili esperos al la Eternulo.
 Feliĉa estas la homo, kiu metis sian esperon sur la Eternulon
 
 Kaj ne turnis sin al la fieruloj kaj al la mensogemuloj.
-
-
-L A S A N K TA B I B L I O
 
 
 Multon Vi faris, ho Eternulo, mia Dio!
@@ -9456,9 +8762,6 @@ Retiriĝu kaj estu mokataj tiuj, kiuj deziras al mi malbonon.
 Kiuj diras al mi: Ha, ha!
 
 
-L A S A N K TA B I B L I O
-
-
 16 Gaju kaj ĝoju pro Vi ĉiuj Viaj serĉantoj;
 
 La amantoj de Via helpo diru ĉiam:
@@ -9473,7 +8776,7 @@ Vi estas mia helpo kaj mia savanto;
 
 Ho mia Dio, ne malrapidu.
 
-Psalmo 41
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -9525,9 +8828,6 @@ Kaj ĉar li kuŝiĝis, li jam ne plu leviĝos.
 Eĉ mia konfidato, kiun mi fidis, kiu manĝis mian panon,
 
 
-L A S A N K TA B I B L I O
-
-
 Levis kontraŭ min la piedon.
 
 10 Sed Vi, ho Eternulo, korfavoru min kaj restarigu min,
@@ -9549,12 +8849,9 @@ De eterne ĝis eterne.
 Amen, kaj amen!
 
 
-L A S A N K TA B I B L I O
-
-
 La psalmaro – Libro dua
 
-Psalmo 42
+Psalmo
 
 Al la ˛orestro. Instruo de la Kora˛idoj.
 
@@ -9611,9 +8908,6 @@ En la tago la Eternulo aperigas al mi Sian bonecon,
 Kaj en la nokto mi havas kanton al Li,
 
 
-L A S A N K TA B I B L I O
-
-
 Preĝon al la Dio de mia vivo.
 
 
@@ -9635,7 +8929,7 @@ Esperu al Dio;
 
 La savanton de mia vizaĝo kaj mian Dion.
 
-Psalmo 43
+Psalmo
 
 
 Juĝu min, ho Dio, kaj defendu mian aferon kontraŭ popolo
@@ -9673,10 +8967,7 @@ Esperu al Dio;
 La savanton de mia vizaĝo kaj mian Dion.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 44
+Psalmo
 
 Al la ˛orestro. Instruo de la Kora˛idoj.
 
@@ -9746,9 +9037,6 @@ Kaj inter la popolojn Vi disĵetis nin;
 Kaj prenis por ili nenian prezon;
 
 
-L A S A N K TA B I B L I O
-
-
 13 Vi faris nin malestimataĵo por niaj najbaroj,
 
 Mokataĵo kaj insultataĵo por niaj ĉirkaŭantoj;
@@ -9804,10 +9092,7 @@ Nia korpo kliniĝis al la tero.
 26 Leviĝu; helpu kaj savu nin pro Via boneco.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 45
+Psalmo
 
 Al la ˛orestro. Por ŝoŝanoj. Instrua ama kanto de la Kora˛idoj.
 
@@ -9877,9 +9162,6 @@ Kaj forgesu vian popolon kaj la domon de via patro;
 12 Kaj la filino de Tiro venos al vi kun donacoj;
 
 
-L A S A N K TA B I B L I O
-
-
 Petegos antaŭ vi la riĉuloj de la popolo.
 
 13 En sia plena ornamo estas interne la reĝidino;
@@ -9902,7 +9184,7 @@ Vi faros ilin princoj sur la tuta tero.
 
 Tial gloros vin popoloj ĉiam kaj eterne.
 
-Psalmo 46
+Psalmo
 
 Al la ˛orestro. De la Kora˛idoj. Por sopranuloj. Kanto.
 
@@ -9944,9 +9226,6 @@ La Eternulo Cebaot estas kun ni;
 Nia defendo estas la Dio de Jakob.
 
 
-L A S A N K TA B I B L I O
-
-
 Sela.
 
 
@@ -9971,7 +9250,7 @@ Nia defendo estas la Dio de Jakob.
 
 Sela.
 
-Psalmo 47
+Psalmo
 
 Al la ˛orestro. De la Kora˛idoj. Psalmo.
 
@@ -10013,9 +9292,6 @@ Kantu al nia Reĝo, kantu!
 Kantu edifan kanton!
 
 
-L A S A N K TA B I B L I O
-
-
 Dio reĝas super la popoloj;
 
 Dio sidas sur Sia sankta trono.
@@ -10029,7 +9305,7 @@ La popolo de la Dio de Abraham;
 
 Li estas tre alta.
 
-Psalmo 48
+Psalmo
 
 Kanto-psalmo de la Kora˛idoj.
 
@@ -10083,9 +9359,6 @@ Sela.
 Ni meditis, ho Dio, pri Via boneco,
 
 
-L A S A N K TA B I B L I O
-
-
 Interne de Via templo,
 
 10 Kiel Via nomo, ho Dio,
@@ -10114,7 +9387,7 @@ Por ke vi rakontu al estonta generacio.
 
 Li estos nia kondukanto ĝis la morto.
 
-Psalmo 49
+Psalmo
 
 Al la ˛orestro. De la Kora˛idoj. Psalmo.
 
@@ -10147,9 +9420,6 @@ Kiam min ĉirkaŭas la malboneco de miaj persekutantoj,
 Kiuj fidas sian potencon
 
 Kaj fanfaronas per sia granda riĉeco?
-
-
-L A S A N K TA B I B L I O
 
 
 Fraton tute ne liberigos homo,
@@ -10215,9 +9485,6 @@ Ne iros post li malsupren lia honoro.
 Kaj oni vin laŭdas por tio, ke vi faras al vi bone,
 
 
-L A S A N K TA B I B L I O
-
-
 19 Tamen li iros al la generacio de siaj patroj,
 
 Kiuj neniam vidos lumon.
@@ -10226,7 +9493,7 @@ Kiuj neniam vidos lumon.
 
 Estas egala al bruto buĉota.
 
-Psalmo 50
+Psalmo
 
 Psalmo de Asaf.
 
@@ -10282,9 +9549,6 @@ Mi ne prenos el via domo bovidon,
 Nek el viaj kortoj kaprojn:
 
 10 ĉar al Mi apartenas ĉiuj bestoj en la arbaroj,
-
-
-L A S A N K TA B I B L I O
 
 
 Miloj da brutoj sur la montoj;
@@ -10349,10 +9613,7 @@ Kaj kiu estas singarda en la vojo,
 Al tiu Mi aperigos Dian helpon.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 51
+Psalmo
 
 Al la ˛orestro. Psalmo de David, kiam venis al li la profeto
 
@@ -10422,9 +9683,6 @@ Kaj spirito bonfara fortikigu min.
 13 Mi instruos al la krimuloj Vian vojon;
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj pekuloj revenos al Vi.
 
 14 Liberigu min de sango, ho Dio, Dio de mia savo;
@@ -10451,7 +9709,7 @@ Konstruu la murojn de Jerusalem;
 
 Tiam oni metos sur Vian altaron junajn bovojn.
 
-Psalmo 52
+Psalmo
 
 Al la ˛orestro. Instruo de David, kiam venis Doeg, la Edomido,
 
@@ -10487,9 +9745,6 @@ Tial Dio pereigos vin por ĉiam,
 Elŝiros vin el via tendo,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj elĵetos vin el la lando de la vivantoj.
 
 Sela.
@@ -10516,7 +9771,7 @@ Mi dankos Vin eterne por tio, kion Vi faris,
 
 Kaj mi esperos al Via nomo, ĉar Vi estas bona por Viaj fideluloj.
 
-Psalmo 53
+Psalmo
 
 Al la ˛orestro. Por maąlato. Instruo de David.
 
@@ -10555,14 +9810,11 @@ Vi hontigis ilin, ĉar Dio ilin forpuŝis.
 Ho, ke venu el Cion savo al Izrael!
 
 
-L A S A N K TA B I B L I O
-
-
 Kiam Dio revenigos Sian forkaptitan popolon,
 
 Tiam triumfos Jakob kaj ĝojos Izrael.
 
-Psalmo 54
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj. Instruo de David, kiam
 
@@ -10607,7 +9859,7 @@ Mi gloros Vian nomon, ho Eternulo, ĉar ĝi estas bona;
 
 Kaj venĝon sur miaj malamikoj vidas mia okulo.
 
-Psalmo 55
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj. Instruo de David.
 
@@ -10618,9 +9870,6 @@ Kaj ne kaŝu Vin de mia petego.
 
 
 Atentu min, kaj respondu al mi;
-
-
-L A S A N K TA B I B L I O
 
 
 Mi ĝemas en mia malĝojo, kaj mi ploregas,
@@ -10691,9 +9940,6 @@ Iradis en la domon de Dio en la homamaso.
 15 La morto ilin kaptu,
 
 
-L A S A N K TA B I B L I O
-
-
 Ili iru vivaj en ŝeolon;
 
 ĉar malbonagado estas en iliaj loĝejoj, en ilia mezo.
@@ -10745,10 +9991,7 @@ La homoj de sango kaj falso ne atingos la duonon de siaj tagoj;
 Sed mi fidas Vin.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 56
+Psalmo
 
 Al la ˛orestro. Por Jonatelem-re˛okim. Verko de David, kiam
 
@@ -10818,9 +10061,6 @@ Kion faros al mi homo?
 Mi plenumos al Vi dankoferojn.
 
 
-L A S A N K TA B I B L I O
-
-
 13 ĉar Vi savis mian animon de la morto,
 
 Kaj miajn piedojn de falpuŝiĝo,
@@ -10829,7 +10069,7 @@ Por ke mi iradu antaŭ Dio
 
 En la lumo de la vivo.
 
-Psalmo 57
+Psalmo
 
 Al la ˛orestro. Por Al-taŝęt. Verko de David, kiam li forkuris
 
@@ -10884,9 +10124,6 @@ Sed ili mem falis en ĝin.
 Sela.
 
 
-L A S A N K TA B I B L I O
-
-
 Fortika estas mia koro, ho Dio, fortika estas mia koro;
 
 Mi kantos kaj gloros.
@@ -10909,7 +10146,7 @@ Kaj ĝis la nuboj estas Via vero.
 
 Via gloro estu super la tuta tero.
 
-Psalmo 58
+Psalmo
 
 Al la ˛orestro. Por Al-taŝęt. Verko de David.
 
@@ -10954,9 +10191,6 @@ Kiel limako konsumiĝanta ili malaperu,
 Kiel abortaĵo virina, kiu ne vidis la sunon;
 
 
-L A S A N K TA B I B L I O
-
-
 Antaŭ ol viaj kaldronoj eksentos la dornojn,
 
 Ilin vivajn kaj freŝajn pereigu la ventego.
@@ -10969,7 +10203,7 @@ Li lavos siajn piedojn en la sango de la malvirtulo.
 
 Ekzistas Dio, juĝanto sur la tero.
 
-Psalmo 59
+Psalmo
 
 Al la ˛orestro. Por Al-taŝęt. Verko de David, kiam Saul sendis,
 
@@ -11022,9 +10256,6 @@ Sed Vi, ho Eternulo, ridos pri ili;
 Vi mokos ĉiujn popolojn.
 
 
-L A S A N K TA B I B L I O
-
-
 Ho mia forto, al Vi mi min turnas;
 
 ĉar Dio estas mia rifuĝo.
@@ -11074,10 +10305,7 @@ En la tago de mia malfeliĉo.
 ĉar Dio estas mia defendo, la Dio de mia favoro.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 60
+Psalmo
 
 Al la ˛orestro. Por ŝuŝan-eduto. Instrua verko de David, kiam li
 
@@ -11145,14 +10373,11 @@ Vi ne eliras, ho Dio, kun niaj militistaroj.
 Vanta estas helpo de homo.
 
 
-L A S A N K TA B I B L I O
-
-
 12 Kun Dio ni faros heroaĵojn;
 
 Kaj Li dispremos niajn malamikojn.
 
-Psalmo 61
+Psalmo
 
 Al la ˛orestro. Por korda instrumento. De David.
 
@@ -11198,7 +10423,7 @@ Tiel mi prikantos Vian nomon eterne,
 
 Plenumante miajn promesojn ĉiutage.
 
-Psalmo 62
+Psalmo
 
 Al la ˛orestro. Por Jedutun. Psalmo de David.
 
@@ -11209,9 +10434,6 @@ De Li venas mia savo.
 
 
 Nur Li estas mia fortikaĵo kaj mia savo, mia rifuĝejo;
-
-
-L A S A N K TA B I B L I O
 
 
 Mi ne tute renversiĝos.
@@ -11276,10 +10498,7 @@ Ke la forto estas ĉe Dio.
 ĉar Vi redonas al homo laŭ liaj faroj.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 63
+Psalmo
 
 Psalmo de David, kiam li estis en la dezerto de Judujo.
 
@@ -11341,10 +10560,7 @@ Triumfos ĉiu, kiu ĵuras al Li;
 ĉar ŝtopiĝos la buŝo de tiuj, kiuj parolas malveron.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 64
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -11401,7 +10617,7 @@ Kaj komprenos Liajn farojn.
 
 Kaj triumfos ĉiuj, kiuj havas pian koron.
 
-Psalmo 65
+Psalmo
 
 Al la ˛orestro. Psalmo de David. Kanto.
 
@@ -11409,9 +10625,6 @@ Al la ˛orestro. Psalmo de David. Kanto.
 Vin oni fidas kaj gloras, ho Dio, en Cion;
 
 Kaj al Vi oni plenumas promesojn.
-
-
-L A S A N K TA B I B L I O
 
 
 Al Vi, kiu aŭskultas preĝon,
@@ -11482,14 +10695,11 @@ Kaj la montetoj zoniĝas per ĝojo.
 13 La herbejoj kovriĝas per brutaroj,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj la kampoj vestiĝas per greno;
 
 Ili ĝojas kaj kantas.
 
-Psalmo 66
+Psalmo
 
 Al la ˛orestro. Kanto-psalmo.
 
@@ -11551,9 +10761,6 @@ Vi refandis nin, kiel oni refandas arĝenton.
 11 Vi enirigis nin en kaptilon,
 
 
-L A S A N K TA B I B L I O
-
-
 Vi metis ŝarĝon sur niajn lumbojn;
 
 12 Vi rajdigis homojn sur niaj kapoj;
@@ -11596,7 +10803,7 @@ Li atentis la voĉon de mia preĝo.
 
 Kiu ne forpuŝis mian preĝon kaj ne rifuzis al mi Sian bonecon.
 
-Psalmo 67
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj. Psalmo-kanto.
 
@@ -11611,9 +10818,6 @@ Sela.
 Oni ekkonu sur la tero Vian vojon,
 
 En ĉiuj popoloj Vian savon.
-
-
-L A S A N K TA B I B L I O
 
 
 Danku Vin popoloj, ho Dio,
@@ -11644,7 +10848,7 @@ Benos nin Dio;
 
 Kaj respektu Lin ĉiuj limoj de la tero.
 
-Psalmo 68
+Psalmo
 
 Al la ˛orestro. De David. Psalmo-kanto.
 
@@ -11681,9 +10885,6 @@ Dio donas domon al soluloj,
 Elirigas malliberulojn en liberecon;
 
 Nur la ribeluloj restas en dezerto.
-
-
-L A S A N K TA B I B L I O
 
 
 Ho Dio, kiam Vi iris antaŭ Via popolo,
@@ -11749,9 +10950,6 @@ Kaj eĉ ribeluloj povas loĝi ĉe la Eternulo, la Dio.
 Dio estas nia savo.
 
 
-L A S A N K TA B I B L I O
-
-
 Sela.
 
 20 Dio estas por ni Dio de savo,
@@ -11813,9 +11011,6 @@ Etiopujo rapidos, por etendi siajn manojn al Dio.
 Muziku al mia Sinjoro,
 
 
-L A S A N K TA B I B L I O
-
-
 Sela.
 
 33 Kiu regas en la ĉielo de la eternaj ĉieloj.
@@ -11836,7 +11031,7 @@ Li donas forton kaj potencon al la popolo.
 
 Glorata estu Dio.
 
-Psalmo 69
+Psalmo
 
 Al la ˛orestro. Por ŝoŝanoj. De David.
 
@@ -11877,9 +11072,6 @@ Ne hontiĝu per mi tiuj, kiuj esperas al Vi, ho mia Sinjoro,
 Eternulo Cebaot!
 
 Ne hontiĝu per mi tiuj, kiuj Vin serĉas, ho Dio de Izrael!
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar pro Vi mi portas malhonoron,
@@ -11945,9 +11137,6 @@ Antaŭ Vi estas ĉiuj miaj premantoj.
 Mi atendis kompatantojn, sed ili forestis;
 
 
-L A S A N K TA B I B L I O
-
-
 Konsolantojn, sed mi ne trovis.
 
 21 Kaj ili donis al mi por manĝo galon,
@@ -12009,16 +11198,13 @@ La maroj, kaj ĉio, kio en ili moviĝas.
 35 ĉar Dio helpos Cionon kaj konstruos la urbojn de Judujo,
 
 
-L A S A N K TA B I B L I O
-
-
 Ke oni tie loĝos kaj ilin heredos.
 
 36 Kaj la idaro de Liaj sklavoj ĝin heredos,
 
 Kaj la amantoj de Lia nomo loĝos en ĝi.
 
-Psalmo 70
+Psalmo
 
 Al la ˛orestro. De David. Pro memoro.
 
@@ -12055,7 +11241,7 @@ Vi estas mia helpo kaj mia savanto;
 
 Ho Eternulo, ne malrapidu.
 
-Psalmo 71
+Psalmo
 
 
 Vin, ho Eternulo, mi fidas:
@@ -12071,9 +11257,6 @@ Klinu al mi Vian orelon, kaj helpu min.
 Estu por mi fortika roko, kien mi povus ĉiam veni,
 
 Kiun Vi destinis por mia savo;
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar Vi estas mia roko kaj mia fortikaĵo.
@@ -12143,9 +11326,6 @@ Kaj ĉiam pligrandigos Vian gloron.
 Mi rakontos nur Vian justecon.
 
 
-L A S A N K TA B I B L I O
-
-
 17 Ho Dio, Vi instruis min detempe de mia juneco;
 
 Kaj ĝis nun mi predikas pri Viaj mirakloj.
@@ -12188,7 +11368,7 @@ Kaj mia animo, kiun Vi savis.
 
 al mi malbonon.
 
-Psalmo 72
+Psalmo
 
 Pri Salomono.
 
@@ -12204,9 +11384,6 @@ Kaj Viajn prematojn kun justeco.
 
 
 La montoj alportu al la popolo pacon,
-
-
-L A S A N K TA B I B L I O
 
 
 Ankaŭ la montetoj, per justeco.
@@ -12276,9 +11453,6 @@ Kaj en la urboj ĉio floru, kiel herbo sur la tero.
 17 Lia nomo estu eterna;
 
 
-L A S A N K TA B I B L I O
-
-
 Tiel longe, kiel ekzistas la suno, kresku lia nomo;
 
 ĉiuj popoloj sin benu per li kaj gloru lin.
@@ -12296,12 +11470,9 @@ Amen, kaj amen!
 20 Finiĝis la preĝoj de David, filo de Jiŝaj.
 
 
-L A S A N K TA B I B L I O
-
-
 La psalmaro – Libro tria
 
-Psalmo 73
+Psalmo
 
 Psalmo de Asaf.
 
@@ -12357,9 +11528,6 @@ Kaj ili akvon ĉerpas abunde.
 11 Kaj ili diras: Kiel Dio scias?
 
 Kaj ĉu la Plejaltulo komprenas?
-
-
-L A S A N K TA B I B L I O
 
 
 12 Jen tiuj estas malvirtuloj,
@@ -12423,9 +11591,6 @@ Kaj krom Vi mi nenion volas sur la tero.
 Sed la fortikaĵo de mia koro kaj mia parto estas Dio por eterne.
 
 
-L A S A N K TA B I B L I O
-
-
 27 Jen tiuj, kiuj malproksimiĝas de Vi, pereas;
 
 Vi ekstermas ĉiun, kiu perfidiĝis al Vi.
@@ -12436,7 +11601,7 @@ Sur mian Sinjoron, sur la Eternulon, mi metis mian fidon,
 
 Por rakonti ĉiujn Viajn farojn.
 
-Psalmo 74
+Psalmo
 
 Instruo de Asaf.
 
@@ -12490,9 +11655,6 @@ Niajn signojn ni ne vidis;
 Jam ne ekzistas profeto,
 
 Kaj neniu ĉe ni scias, kiel longe tio daŭros.
-
-
-L A S A N K TA B I B L I O
 
 
 10 Kiel longe, ho Dio, mokos la premanto?
@@ -12552,10 +11714,7 @@ Rememoru la malhonoron, kiun malsaĝulo faras al Vi ĉiutage.
 La bruo de tiuj, kiuj leviĝis kontraŭ Vi, konstante kreskas.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 75
+Psalmo
 
 Al la ˛orestro. Por Al-taŝęt. Psalmo de Asaf. Kanto.
 
@@ -12615,10 +11774,7 @@ Mi kantos al la Dio de Jakob.
 Altiĝos la kornoj de virtulo.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 76
+Psalmo
 
 Al la ˛orestro. Por kordaj instrumentoj. Psalmo de Asaf. Kanto.
 
@@ -12684,10 +11840,7 @@ Timindulo.
 Li estas timinda por la reĝoj de la tero.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 77
+Psalmo
 
 Al la ˛orestro. Por Jedutun. Psalmo de Asaf.
 
@@ -12757,9 +11910,6 @@ Kaj pri Viaj agoj mi parolos.
 13 Ho Dio, en sankteco estas Via vojo;
 
 
-L A S A N K TA B I B L I O
-
-
 Kiu estas tiel granda dio, kiel nia Dio?
 
 14 Vi estas tiu Dio, kiu faras miraklojn;
@@ -12800,7 +11950,7 @@ Sed Viaj paŝosignoj ne estis videblaj.
 
 Per la mano de Moseo kaj Aaron.
 
-Psalmo 78
+Psalmo
 
 Instruo de Asaf.
 
@@ -12818,9 +11968,6 @@ Mi eldiros enigmojn el tempo antikva.
 Kion ni aŭdis kaj sciiĝis,
 
 Kion rakontis al ni niaj patroj,
-
-
-L A S A N K TA B I B L I O
 
 
 Tion ni ne kaŝos antaŭ iliaj infanoj,
@@ -12889,9 +12036,6 @@ Kaj la tutan nokton en la lumo de fajro;
 Kaj trinkigis ilin kvazaŭ el granda abismo;
 
 
-L A S A N K TA B I B L I O
-
-
 16 Li eligis riveretojn el roko,
 
 Kaj fluigis akvon kiel riverojn.
@@ -12951,9 +12095,6 @@ Kaj flugilajn birdojn kiel apudmaran sablon;
 ĉirkaŭe de iliaj loĝejoj.
 
 29 Kaj ili manĝis kaj tre satiĝis;
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj Li venigis al ili tion, kion ili deziris.
@@ -13017,9 +12158,6 @@ La tagon, en kiu Li liberigis ilin de premanto,
 43 Kiam Li faris en Egiptujo Siajn signojn
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj Siajn miraklojn sur la kampo Coan;
 
 44 Kiam Li ŝanĝis en sangon iliajn riverojn kaj torentojn,
@@ -13079,9 +12217,6 @@ Kaj loĝigis en iliaj tendoj la tribojn de Izrael.
 56 Sed ili incitis kaj ĉagrenis Dion la Plejaltan,
 
 Kaj Liajn leĝojn ili ne observis;
-
-
-L A S A N K TA B I B L I O
 
 
 57 Ili defalis kaj perfidiĝis, kiel iliaj patroj,
@@ -13145,14 +12280,11 @@ Kaj Li prenis lin el la staloj de ŝafoj.
 Por paŝti Lian popolon Jakob kaj Lian heredon Izrael.
 
 
-L A S A N K TA B I B L I O
-
-
 72 Kaj li paŝtis ilin laŭ la fideleco de sia koro,
 
 Kaj per lertaj manoj li ilndukis.
 
-Psalmo 79
+Psalmo
 
 Psalmo de Asaf.
 
@@ -13214,9 +12346,6 @@ Fariĝu konata inter la popoloj antaŭ niaj okuloj
 La venĝo por la verŝita sango de Viaj sklavoj.
 
 
-L A S A N K TA B I B L I O
-
-
 11 Venu al Vi la ĝemoj de la malliberuloj;
 
 Per la grandeco de Via brako liberigu tiujn, kiuj estas
@@ -13235,7 +12364,7 @@ Eterne Vin dankos,
 
 De generacio al generacio ni rakontos Vian gloron.
 
-Psalmo 80
+Psalmo
 
 Al la ˛orestro. Por ŝoŝanoj. Atesto de Asaf. Psalmo.
 
@@ -13282,9 +12411,6 @@ Vinberbranĉon el Egiptujo Vi elportis,
 Vi forpelis popolojn kaj ĝin plantis;
 
 
-L A S A N K TA B I B L I O
-
-
 Vi purigis lokon por ĝi;
 
 Kaj ĝi profundigis siajn radikojn kaj plenigis la tutan landon;
@@ -13329,7 +12455,7 @@ Vivigu nin, kaj ni vokos Vian nomon.
 
 Por ke ni estu savitaj.
 
-Psalmo 81
+Psalmo
 
 Al la ˛orestro. Por la gitito. De Asaf.
 
@@ -13342,9 +12468,6 @@ oje kriu al la Dio de Jakob.
 Sonigu kanton, donu tamburinon,
 
 ĉarman harpon, kaj psalteron.
-
-
-L A S A N K TA B I B L I O
 
 
 Muziku per korno en novmonato,
@@ -13414,14 +12537,11 @@ Kaj kontraŭ iliajn premantojn Mi direktus Mian manon.
 Kaj ilia bonstato estus eterna.
 
 
-L A S A N K TA B I B L I O
-
-
 16 Kaj Mi manĝigus al ili grason de tritiko,
 
 Kaj Mi satigus vin per mielo el roko.
 
-Psalmo 82
+Psalmo
 
 Psalmo de Asaf.
 
@@ -13469,7 +12589,7 @@ Leviĝu, ho Dio, juĝu la teron;
 
 ĉar Vi heredas ĉiujn popolojn.
 
-Psalmo 83
+Psalmo
 
 Kanto-Psalmo de Asaf.
 
@@ -13477,9 +12597,6 @@ Kanto-Psalmo de Asaf.
 Ho Dio, ne silentu;
 
 Ne estu senparola kaj ne restu trankvila, ho Dio!
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar jen Viaj malamikoj ekbruis,
@@ -13550,9 +12667,6 @@ Kaj per Via fulmotondro ilin timigu.
 Por ke ili turniĝu al Via nomo, ho Eternulo.
 
 
-L A S A N K TA B I B L I O
-
-
 17 Ili estu hontigitaj kaj timigitaj por ĉiam,
 
 Ili malhonoriĝu kaj pereu.
@@ -13561,7 +12675,7 @@ Ili malhonoriĝu kaj pereu.
 
 Estas sola Plejaltulo super la tuta tero.
 
-Psalmo 84
+Psalmo
 
 Al la ˛orestro. Por la gitito. Psalmo de la Kora˛idoj.
 
@@ -13619,9 +12733,6 @@ Kaj rigardu la vizaĝon de Via sanktoleito.
 Mi preferas stari sur la sojlo de la domo de mia Dio,
 
 
-L A S A N K TA B I B L I O
-
-
 Ol loĝi en tendoj de malvirto.
 
 11 ĉar Dio, la Eternulo, estas suno kaj ŝildo;
@@ -13632,7 +12743,7 @@ Li ne domaĝas bonon al tiuj, kiuj iras en virto.
 
 12 Ho Eternulo Cebaot, bone estas al la homo, kiu Vin fidas.
 
-Psalmo 85
+Psalmo
 
 Al la ˛orestro. Psalmo de la Kora˛idoj.
 
@@ -13688,9 +12799,6 @@ Por ke ekregu honoro en nia lando.
 10 Bono kaj vero renkontiĝas,
 
 
-L A S A N K TA B I B L I O
-
-
 Justeco kaj paco sin kisas.
 
 11 Vero elkreskas el la tero,
@@ -13705,7 +12813,7 @@ Kaj nia tero donos siajn produktojn.
 
 Kaj faros vojon por Liaj paŝoj.
 
-Psalmo 86
+Psalmo
 
 Preĝo de David.
 
@@ -13757,9 +12865,6 @@ Via vizaĝo, ho mia Sinjoro,
 Kaj honoros Vian nomon.
 
 
-L A S A N K TA B I B L I O
-
-
 10 ĉar Vi estas granda kaj Vi faras miraklojn;
 
 Vi sola estas Dio.
@@ -13796,7 +12901,7 @@ Por ke miaj malamantoj vidu kaj hontiĝu,
 
 ĉar Vi, ho Eternulo, min helpos kaj konsolos.
 
-Psalmo 87
+Psalmo
 
 De la Kora˛idoj. Psalmo-kanto.
 
@@ -13819,9 +12924,6 @@ Mi parolas al miaj konatoj pri Egiptujo kaj Babel,
 Ankaŭ pri Filiŝtujo kaj Tiro kun Etiopujo:
 
 
-L A S A N K TA B I B L I O
-
-
 Jen tiu tie naskiĝis.
 
 
@@ -13841,7 +12943,7 @@ Kaj la kantistoj kaj muzikistoj:
 
 ĉiuj miaj fontoj estas en Vi.
 
-Psalmo 88
+Psalmo
 
 Kanto-psalmo de la Kora˛idoj. Al la ˛orestro.
 
@@ -13887,9 +12989,6 @@ Pezas sur mi Via furiozo,
 Kaj per ĉiuj Viaj ondoj Vi min premas.
 
 Sela.
-
-
-L A S A N K TA B I B L I O
 
 
 Vi malproksimigis de mi miajn konatojn,
@@ -13944,10 +13043,7 @@ Ili tute min ĉirkaŭsieĝas.
 Miaj konatoj estas en mallumo.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 89
+Psalmo
 
 Instruo de Etan, la Ezra˛ido.
 
@@ -14017,9 +13113,6 @@ Tabor kaj ˘ermon prikantas Vian nomon.
 Potenca estas Via mano, alta estas Via dekstra.
 
 
-L A S A N K TA B I B L I O
-
-
 14 Virto kaj justeco estas la fundamento de Via trono;
 
 Boneco kaj vero iras antaŭ Via vizaĝo.
@@ -14079,9 +13172,6 @@ Mia Dio, kaj la roko de mia savo.
 ĉefo super la reĝoj de la tero.
 
 28 Por ĉiam Mi konservos al li Mian favoron;
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj Mia interligo kun li estos fidela.
@@ -14145,9 +13235,6 @@ Vi ĝojigis ĉiujn liajn kontraŭulojn.
 43 Vi returnis la tranĉon de lia glavo,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj ne subtenis lin en la milito.
 
 44 Vi forigis lian brilon,
@@ -14191,12 +13278,9 @@ Per kiu ili malhonoras la paŝosignojn de Via sanktoleito.
 Amen, kaj Amen!
 
 
-L A S A N K TA B I B L I O
-
-
 La psalmaro – Libro kvara
 
-Psalmo 90
+Psalmo
 
 Preĝo de Moseo, homo de Dio.
 
@@ -14254,9 +13338,6 @@ Malaperis niaj jaroj, kiel sono.
 Kaj ĉe forteco okdek jaroj;
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj ilia tuta majesto estas penado kaj suferado,
 
 ĉar ĝi forkuras rapide kaj ni forflugas.
@@ -14291,7 +13372,7 @@ Kaj la faron de niaj manoj fortikigu al ni,
 
 Kaj fortikigu la faron de niaj manoj.
 
-Psalmo 91
+Psalmo
 
 
 Kiu loĝas sub la ŝirmo de la Plejaltulo,
@@ -14317,9 +13398,6 @@ Lia fideleco estas ŝildo kaj kiraso.
 
 
 Ne timu la teruron de nokto,
-
-
-L A S A N K TA B I B L I O
 
 
 Nek sagon, kiu flugas tage,
@@ -14377,10 +13455,7 @@ Mi lin liberigos kaj honoratigos.
 Kaj aperigos al li Mian helpon.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 92
+Psalmo
 
 Psalmo-kanto por la tago sabata.
 
@@ -14450,16 +13525,13 @@ Ili verdestas en la kortoj de nia Dio.
 14 Ili floras ankoraŭ en la maljuneco,
 
 
-L A S A N K TA B I B L I O
-
-
 Estas sukplenaj kaj freŝaj,
 
 15 Por sciigi, ke la Eternulo estas justa,
 
 Mia fortikaĵo, kaj ne ekzistas en Li maljusteco.
 
-Psalmo 93
+Psalmo
 
 
 La Eternulo reĝas; Li estas vestita de majesto;
@@ -14492,7 +13564,7 @@ Via domo estas ornamita de sankteco,
 
 Ho Eternulo, por eterne.
 
-Psalmo 94
+Psalmo
 
 
 Dio de venĝo, ho Eternulo,
@@ -14513,9 +13585,6 @@ Kiel longe la malvirtuloj triumfos?
 Ili estas malhumilaj, parolas arogantaĵon;
 
 Fanfaronas ĉiuj malbonaguloj.
-
-
-L A S A N K TA B I B L I O
 
 
 Vian popolon, ho Eternulo, ili premas,
@@ -14583,9 +13652,6 @@ Via boneco, ho Eternulo, min subtenis.
 Viaj konsoloj karesas mian animon.
 
 
-L A S A N K TA B I B L I O
-
-
 20 ĉu aliĝos al Vi trono de maljusteco,
 
 Kiu aranĝas maljustaĵon en la nomo de la leĝo?
@@ -14604,7 +13670,7 @@ Kaj por ilia malboneco Li ilin ekstermos;
 
 Ilin ekstermos la Eternulo, nia Dio.
 
-Psalmo 95
+Psalmo
 
 
 Venu, ni kantu al la Eternulo;
@@ -14652,9 +13718,6 @@ Kiel en la tago de Masa en la dezerto,
 Kiam viaj patroj Min incitis,
 
 
-L A S A N K TA B I B L I O
-
-
 Esploris kaj vidis Mian faron.
 
 10 Kvardek jarojn Mi indignis kontraŭ tiu generacio,
@@ -14667,7 +13730,7 @@ Kaj ili ne volas koni Miajn vojojn;
 
 Ke ili ne venos en Mian ripozejon.
 
-Psalmo 96
+Psalmo
 
 
 Kantu al la Eternulo novan kanton;
@@ -14721,9 +13784,6 @@ Kaj fortikigita estas la mondo, ke ĝi ne ŝanceliĝu;
 Li juĝas la popolojn en justeco.
 
 
-L A S A N K TA B I B L I O
-
-
 11 oju la ĉielo, kaj estu gaja la tero,
 
 Bruu la maro, kaj ĉio, kio ĝin plenigas.
@@ -14740,7 +13800,7 @@ Li juĝos la mondon kun justeco
 
 Kaj la popolojn kun Sia fideleco.
 
-Psalmo 97
+Psalmo
 
 
 La Eternulo reĝas; ĝoju la tero;
@@ -14790,9 +13850,6 @@ Pro Viaj juĝoj, ho Eternulo.
 ĉar Vi, ho Eternulo, estas Plejalta super la tuta tero,
 
 
-L A S A N K TA B I B L I O
-
-
 Vi tre alte leviĝis super ĉiuj dioj.
 
 10 Amantoj de la Eternulo, malamu malbonon.
@@ -14809,7 +13866,7 @@ Kaj ĝojo sur purkorulojn.
 
 Kaj gloru Lian sanktan nomon.
 
-Psalmo 98
+Psalmo
 
 Psalmo.
 
@@ -14858,14 +13915,11 @@ La riveroj plaŭdu per la manoj,
 La montoj kune kantu ĝoje,
 
 
-L A S A N K TA B I B L I O
-
-
 Antaŭ la Eternulo, ĉar Li venas, por juĝi la teron;
 
 Li juĝos la mondon kun justeco kaj la popolojn kun vereco.
 
-Psalmo 99
+Psalmo
 
 
 La Eternulo reĝas, tremas la popoloj;
@@ -14921,10 +13975,7 @@ Kaj kliniĝu antaŭ Lia sankta monto;
 ĉar sankta estas la Eternulo, nia Dio.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 100
+Psalmo
 
 Psalmo de dankado.
 
@@ -14957,7 +14008,7 @@ Lia favorkoreco estas eterna,
 
 Kaj de generacio al generacio daŭras Lia fideleco.
 
-Psalmo 101
+Psalmo
 
 Psalmo de David.
 
@@ -14989,9 +14040,6 @@ Malbonon mi ne volas koni.
 Kiu sekrete kalumnias sian proksimulon, tiun mi ekstermos;
 
 
-L A S A N K TA B I B L I O
-
-
 Kiu havas fieran okulon kaj malhumilan koron, tiun mi
 
 ne toleros.
@@ -15011,7 +14059,7 @@ Fervore mi ekstermos ĉiujn malvirtulojn de la lando,
 
 Por elradikigi el la urbo de la Eternulo ĉiujn krimulojn.
 
-Psalmo 102
+Psalmo
 
 Preĝo de mizerulo, kiam li perdas la fortojn kaj elverŝas
 
@@ -15056,9 +14104,6 @@ Kaj mi estas kiel birdo solulo sur tegmento.
 
 
 ĉiutage insultas min miaj malamikoj,
-
-
-L A S A N K TA B I B L I O
 
 
 Miaj mokantoj ĵuras per mi.
@@ -15123,9 +14168,6 @@ Por servi al la Eternulo.
 23 Li lacigis en la vojo miajn fortojn,
 
 
-L A S A N K TA B I B L I O
-
-
 Li mallongigis miajn tagojn.
 
 24 Mi diras: Ho mia Dio, ne forprenu min en la mezo de miaj tagoj, Vi, kies jaroj estas de generacio al generacio.
@@ -15148,7 +14190,7 @@ Kaj Viaj jaroj ne finiĝos.
 
 Kaj ilia semo fortikiĝos antaŭ Vi.
 
-Psalmo 103
+Psalmo
 
 De David.
 
@@ -15187,9 +14229,6 @@ Siajn farojn al la Izraelidoj.
 
 
 Favorkora kaj kompatema estas la Eternulo,
-
-
-L A S A N K TA B I B L I O
 
 
 Longetolerema kaj tre bona.
@@ -15250,14 +14289,11 @@ Liaj servantoj, kiuj plenumas Lian volon.
 22 Benu la Eternulon ĉiuj Liaj kreitaĵoj,
 
 
-L A S A N K TA B I B L I O
-
-
 En ĉiuj lokoj de Lia regado.
 
 Benu, ho mia animo, la Eternulon.
 
-Psalmo 104
+Psalmo
 
 
 Benu, ho mia animo, la Eternulon.
@@ -15317,9 +14353,6 @@ Kiuj iras inter montoj;
 Sovaĝaj azenoj kvietigas sian soifon.
 
 12 Apud ili loĝas la birdoj ĉielaj,
-
-
-L A S A N K TA B I B L I O
 
 
 El inter la branĉoj ili sonigas sian voĉon.
@@ -15383,9 +14416,6 @@ La tero estas plena de Viaj faritaĵoj.
 Tie estas rampaĵoj sennombraj,
 
 
-L A S A N K TA B I B L I O
-
-
 Bestoj malgrandaj kaj grandaj;
 
 26 Tie iras ŝipoj;
@@ -15434,7 +14464,7 @@ Benu, ho mia animo, la Eternulon.
 
 Haleluja!
 
-Psalmo 105
+Psalmo
 
 
 Gloru la Eternulon, voku Lian nomon;
@@ -15443,9 +14473,6 @@ Sciigu inter la popoloj Liajn farojn.
 
 
 Kantu al Li, muziku al Li;
-
-
-L A S A N K TA B I B L I O
 
 
 Parolu pri ĉiuj Liaj mirakloj.
@@ -15516,9 +14543,6 @@ Rompis ĉion, kio portis panon.
 17 Li sendis antaŭ ili homon:
 
 
-L A S A N K TA B I B L I O
-
-
 Jozef estis vendita kiel sklavo.
 
 18 Oni enpremis liajn piedojn en katenojn,
@@ -15580,9 +14604,6 @@ Pedikoj en ĉiuj iliaj regionoj.
 32 Antataŭ pluvo Li donis al ili hajlon,
 
 
-L A S A N K TA B I B L I O
-
-
 Flamantan fajron en ilia lando.
 
 33 Li batis iliajn vinbertrunkojn kaj iliajn figarbojn,
@@ -15638,10 +14659,7 @@ Kaj konservu Liajn instruojn.
 Haleluja!
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 106
+Psalmo
 
 
 Haleluja!
@@ -15711,9 +14729,6 @@ Ili ekkantis Lian gloron.
 Ili ne fidis Lian konsilon.
 
 
-L A S A N K TA B I B L I O
-
-
 14 Ili fordonis sin al siaj kapricoj en la dezerto,
 
 Kaj ili incitis Dion en la stepo.
@@ -15773,9 +14788,6 @@ Por faligi ilin en la dezerto,
 Kaj disĵeti ilin en la landojn.
 
 28 Kaj ili aliĝis al Baal-Peor,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj manĝis oferricevojn de malvivuloj.
@@ -15839,9 +14851,6 @@ Kaj iliaj malamantoj ekregis super ili.
 Kaj sub la manoj de ĉi tiuj ili humiliĝis.
 
 
-L A S A N K TA B I B L I O
-
-
 43 Multajn fojojn Li ilin savis;
 
 Sed ili ribeladis per siaj entreprenoj,
@@ -15875,12 +14884,9 @@ Kaj la tuta popolo diru: Amen.
 Haleluja!
 
 
-L A S A N K TA B I B L I O
-
-
 La psalmaro – Libro kvina
 
-Psalmo 107
+Psalmo
 
 
 Gloru la Eternulon, ĉar Li estas bona;
@@ -15936,9 +14942,6 @@ Katenitaj de mizero kaj fero;
 11 ĉar ili malobeis la vortojn de Dio
 
 Kaj malŝatis la decidon de la Plejaltulo.
-
-
-L A S A N K TA B I B L I O
 
 
 12 Kaj Li frapis ilian koron per sufero;
@@ -16002,9 +15005,6 @@ Kaj alte levis ĝiajn ondojn:
 Ilia animo konsumiĝas de sufero;
 
 
-L A S A N K TA B I B L I O
-
-
 27 Ili iras ĉirkaŭe kaj ŝanceliĝas kiel ebriulo,
 
 Kaj ilia tuta saĝeco malaperas.
@@ -16066,9 +15066,6 @@ Kaj erarvagigas ilin en dezerto senvoja.
 Kaj kreas familiojn kiel ŝafojn.
 
 
-L A S A N K TA B I B L I O
-
-
 42 La virtuloj tion vidas, kaj ĝojas;
 
 Kaj ĉia malboneco fermas sian buŝon.
@@ -16077,7 +15074,7 @@ Kaj ĉia malboneco fermas sian buŝon.
 
 Kaj oni komprenu la favoraĵojn de la Eternulo.
 
-Psalmo 108
+Psalmo
 
 Kanto. Psalmo de David.
 
@@ -16135,9 +15132,6 @@ Super Filiŝtujo Mi triumfe krios.
 Kiu alkondukos min ĝis Edom?
 
 
-L A S A N K TA B I B L I O
-
-
 11 ĉu ne Vi, ho Dio, forlasis nin?
 
 Vi ne eliras, ho Dio, kun niaj militistaroj.
@@ -16150,7 +15144,7 @@ Vanta estas helpo de homo.
 
 Kaj Li dispremos niajn malamikojn.
 
-Psalmo 109
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -16202,9 +15196,6 @@ Kaj lia edzino estu vidvino.
 10 Liaj infanoj vagadu,
 
 Kaj ili petu kaj serĉu apud siaj ruinoj.
-
-
-L A S A N K TA B I B L I O
 
 
 11 Kreditoro forprenu ĉion, kion li havas;
@@ -16268,9 +15259,6 @@ Oni forskuas min kiel akridon.
 Kaj mia karno perdis la grason.
 
 
-L A S A N K TA B I B L I O
-
-
 25 Kaj mi fariĝis mokataĵo por ili;
 
 Kiam ili vidas min, ili balancas sian kapon.
@@ -16299,7 +15287,7 @@ Kaj meze de multaj homoj mi Lin laŭdos.
 
 Por savi lin de tiuj, kiuj juĝas lian animon.
 
-Psalmo 110
+Psalmo
 
 Psalmo de David.
 
@@ -16333,9 +15321,6 @@ Laŭ la maniero de Melkicedek.
 La Sinjoro ĉe via dekstra flanko
 
 
-L A S A N K TA B I B L I O
-
-
 Frapas reĝojn en la tago de Sia kolero.
 
 
@@ -16348,7 +15333,7 @@ Li trs el rivero sur la vojo;
 
 Tial li levos la kapon.
 
-Psalmo 111
+Psalmo
 
 
 Haleluja!
@@ -16406,10 +15391,7 @@ Bonan prudenton havas ĉiuj plenumantoj.
 Lia gloro restas eterne.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 112
+Psalmo
 
 
 Haleluja!
@@ -16466,7 +15448,7 @@ Kunfrapas la dentojn kaj konsumiĝas.
 
 La deziro de malvirtuloj pereos.
 
-Psalmo 113
+Psalmo
 
 
 Haleluja!
@@ -16474,9 +15456,6 @@ Haleluja!
 Gloru, sklavoj de la Eternulo,
 
 Gloru la nomon de la Eternulo.
-
-
-L A S A N K TA B I B L I O
 
 
 La nomo de la Eternulo estu benata
@@ -16520,7 +15499,7 @@ Kaj faras ŝin ĝoja patrino de infanoj.
 
 Haleluja!
 
-Psalmo 114
+Psalmo
 
 
 Kiam Izrael eliris el Egiptujo,
@@ -16548,9 +15527,6 @@ Kio estas al vi, ho maro, ke vi forkuris?
 Jordan, kial vi turniĝis malantaŭen?
 
 
-L A S A N K TA B I B L I O
-
-
 Montoj, kial vi saltas kiel ŝafoj,
 
 Montetoj, kiel ŝafidoj?
@@ -16565,7 +15541,7 @@ Kiu ŝanĝas rokon en lagon da akvo,
 
 Graniton en akvodonan fonton.
 
-Psalmo 115
+Psalmo
 
 
 Ne al ni, ho Eternulo, ne al ni,
@@ -16619,9 +15595,6 @@ Li estas ilia helpo kaj ŝildo.
 10 Ho domo de Aaron, fidu la Eternulon;
 
 
-L A S A N K TA B I B L I O
-
-
 Li estas ilia helpo kaj ŝildo.
 
 11 Ho timantoj de la Eternulo, fidu la Eternulon;
@@ -16660,7 +15633,7 @@ De nun kaj eterne.
 
 Haleluja!
 
-Psalmo 116
+Psalmo
 
 
 Mi amas, ke la Eternulo aŭdas mian voĉon
@@ -16681,9 +15654,6 @@ Suferon kaj ĉagrenon mi trovis.
 
 
 Sed la nomon de la Eternulo mi vokis:
-
-
-L A S A N K TA B I B L I O
 
 
 Ho Eternulo, savu mian animon.
@@ -16752,16 +15722,13 @@ Kaj la nomon de la Eternulo mi vokos.
 18 Miajn promesojn al la Eternulo mi plenumos
 
 
-L A S A N K TA B I B L I O
-
-
 Antaŭ Lia tuta popolo,
 
 19 En la kortoj de la domo de la Eternulo,
 
 Interne de vi, ho Jerusalem.
 
-Psalmo 117
+Psalmo
 
 
 Haleluja!
@@ -16775,7 +15742,7 @@ Laŭdu Lin ĉiuj gentoj;
 
 Kaj la vero de la Eternulo restas eterne.
 
-Psalmo 118
+Psalmo
 
 
 Haleluja!
@@ -16816,9 +15783,6 @@ Kaj mi triumfos super miaj malamikoj.
 
 
 Pli bone estas fidi la Eternulon,
-
-
-L A S A N K TA B I B L I O
 
 
 Ol fidi homon.
@@ -16883,9 +15847,6 @@ Virtuloj iras tra ĝi.
 22 ŝtono, kiun malŝatis la konstruantoj,
 
 
-L A S A N K TA B I B L I O
-
-
 Fariĝis ŝtono bazangula.
 
 23 De la Eternulo ĉi tio fariĝis,
@@ -16948,9 +15909,6 @@ Ho, estu fortikaj miaj vojoj,
 Ke mi observu Viajn leĝojn!
 
 
-L A S A N K TA B I B L I O
-
-
 Tiam mi ne bezonos honti,
 
 Kiam mi atentos ĉiujn Viajn ordonojn.
@@ -17009,9 +15967,6 @@ Ke mi vivu kaj plenumu Vian vorton.
 18 Malfermu miajn okulojn,
 
 Ke mi vidu miraklojn de Via instruo.
-
-
-L A S A N K TA B I B L I O
 
 
 19 Migranto mi estas sur la tero;
@@ -17073,9 +16028,6 @@ Ho Eternulo, ne hontigu min.
 ĉar Vi larĝigas mian koron.
 
 
-L A S A N K TA B I B L I O
-
-
 HE.
 
 33 Montru al mi, ho Eternulo, la vojon de Viaj leĝoj,
@@ -17133,9 +16085,6 @@ Via helpo, konforme al Via vorto,
 ĉar mi serĉas Viajn ordonojn.
 
 46 Kaj mi parolos pri Viaj leĝoj antaŭ reĝoj,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj mi ne hontos.
@@ -17197,9 +16146,6 @@ Korfavoru min, konforme al Via vorto.
 59 Mi esploris miajn vojojn
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj direktis miajn paŝojn al Viaj leĝoj.
 
 60 Mi rapidas kaj ne prokrastas,
@@ -17255,9 +16201,6 @@ Por ke mi lernu Viajn leĝojn.
 72 Pli bona estas por mi la instruo de Via buŝo,
 
 Ol miloj da oreroj kaj arĝenteroj.
-
-
-L A S A N K TA B I B L I O
 
 
 JOD.
@@ -17319,9 +16262,6 @@ Kontraŭe al Viaj leĝoj.
 86 ĉiuj Viaj ordonoj estas vero;
 
 
-L A S A N K TA B I B L I O
-
-
 Maljuste oni min persekutas; helpu min.
 
 87 Oni preskaŭ pereigis min de sur la tero,
@@ -17379,9 +16319,6 @@ La tutan tagon mi meditas pri ĝi.
 99 Mi fariĝis pli saĝa, ol ĉiuj miaj instruantoj,
 
 
-L A S A N K TA B I B L I O
-
-
 ĉar Viaj leĝoj estas mia tuta meditado.
 
 100 Mi estas pli scianta ol maljunuloj,
@@ -17437,9 +16374,6 @@ Sed de Viaj ordonoj mi ne dekliniĝis.
 112 Mi klinis mian koron,
 
 Por plenumi Viajn leĝojn eterne ĝis la fino.
-
-
-L A S A N K TA B I B L I O
 
 
 SAME˘.
@@ -17501,9 +16435,6 @@ Klerigu min, ke mi sciu Viajn decidojn.
 126 Estas tempo, ke la Eternulo agu:
 
 
-L A S A N K TA B I B L I O
-
-
 Ili rompis Vian leĝon.
 
 127 Tial mi amas Viajn ordonojn
@@ -17559,9 +16490,6 @@ Kaj justaj estas Viaj juĝoj.
 Kun justeco kaj plena vero.
 
 139 Elturmentis min mia fervoro,
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar miaj malamikoj forgesis Viajn vortojn.
@@ -17621,9 +16549,6 @@ Kaj ĉiuj Viaj ordonoj estas vero.
 Ke Vi fiksis ilin por ĉiam.
 
 
-L A S A N K TA B I B L I O
-
-
 REŝ.
 
 153 Rigardu mian mizeron, kaj liberigu min,
@@ -17658,7 +16583,7 @@ Ho Eternulo, laŭ Via boneco lasu min vivi.
 
 Kaj eterna estas ĉiu juĝo de Via justeco.
 
-ŝIN.
+ŜIN.
 
 161 Princoj persekutas min senkaŭze;
 
@@ -17681,9 +16606,6 @@ Por Viaj justaj juĝoj.
 Kaj ili ne falpuŝiĝas.
 
 166 Mi atendas Vian savon, ho Eternulo,
-
-
-L A S A N K TA B I B L I O
 
 
 Viajn ordonojn mi plenumas.
@@ -17739,10 +16661,7 @@ En la Hebrea originalo la unuaj vortoj de la ok versoj en
 ĉiu parto komenciĝas ĉiuj per la litero supremontrita.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 120
+Psalmo
 
 Kanto de suprenirado.
 
@@ -17781,7 +16700,7 @@ Mi estas pacema;
 
 Sed kiam mi ekparolas, ili komencas militon.
 
-Psalmo 121
+Psalmo
 
 Kanto de suprenirado.
 
@@ -17811,9 +16730,6 @@ La Eternulo estas via gardanto;
 La Eternulo estas via ombro ĉe via dekstra mano.
 
 
-L A S A N K TA B I B L I O
-
-
 En la tago la suno vin ne frapos,
 
 Nek la luno en la nokto.
@@ -17828,7 +16744,7 @@ La Eternulo gardos vian eliron kaj eniron,
 
 De nun kaj eterne.
 
-Psalmo 122
+Psalmo
 
 Kanto de suprenirado. De David.
 
@@ -17880,10 +16796,7 @@ Pro la domo de la Eternulo, nia Dio,
 Mi deziras al vi bonon.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 123
+Psalmo
 
 Kanto de suprenirado.
 
@@ -17915,7 +16828,7 @@ De la insultado de arogantuloj,
 
 De la malhonorado de fieruloj.
 
-Psalmo 124
+Psalmo
 
 Kanto de suprenirado. De David.
 
@@ -17951,14 +16864,11 @@ Nia animo liberiĝis, kiel birdo el la reto de kaptistoj;
 La reto disŝiriĝis, kaj ni liberiĝis.
 
 
-L A S A N K TA B I B L I O
-
-
 Nia helpo estas en la nomo de la Eternulo,
 
 Kiu kreis la ĉielon kaj la teron.
 
-Psalmo 125
+Psalmo
 
 Kanto de suprenirado.
 
@@ -17991,7 +16901,7 @@ La Eternulo pereigos kune kun la malbonaguloj.
 
 Paco al Izrael!
 
-Psalmo 126
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18013,9 +16923,6 @@ Ion grandan la Eternulo faris por ĉi tiuj.
 Ion grandan la Eternulo faris por ni:
 
 
-L A S A N K TA B I B L I O
-
-
 Ni ĝojas.
 
 
@@ -18033,7 +16940,7 @@ Iras kaj ploras la portanto de semotaĵo;
 
 Venos kun kanto la portanto de siaj garboj.
 
-Psalmo 127
+Psalmo
 
 Kanto de suprenirado. De Salomono.
 
@@ -18071,10 +16978,7 @@ Ili ne estos hontigitaj,
 Kiam ili parolos kun la malamikoj ĉe la pordego.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 128
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18112,7 +17016,7 @@ Kaj vi vidos la infanojn de viaj infanoj.
 
 Paco al Izrael!
 
-Psalmo 129
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18142,9 +17046,6 @@ Hontiĝu kaj turniĝu malantaŭen
 ĉiuj malamantoj de Cion.
 
 
-L A S A N K TA B I B L I O
-
-
 Ili estu kiel tegmenta herbo,
 
 Kiu forvelkas, antaŭ ol oni ĝin elŝiris;
@@ -18161,7 +17062,7 @@ Beno de la Eternulo estu al vi,
 
 Ni benas vin per la nomo de la Eternulo.
 
-Psalmo 130
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18208,10 +17109,7 @@ Kaj Li liberigos Izraelon
 De ĉiuj liaj pekoj.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 131
+Psalmo
 
 Kanto de suprenirado. De David.
 
@@ -18236,7 +17134,7 @@ Ho Izrael, fidu la Eternulon,
 
 De nun kaj eterne.
 
-Psalmo 132
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18277,9 +17175,6 @@ Ni kliniĝu antaŭ la benketo de Liaj piedoj.
 
 
 Leviĝu, ho Eternulo, en Vian ripozejon,
-
-
-L A S A N K TA B I B L I O
 
 
 Vi kaj la kesto de Via potenco.
@@ -18327,7 +17222,7 @@ Tie Mi aranĝos lumilon por Mia sanktoleito.
 
 Sed sur li brilos lia krono.
 
-Psalmo 133
+Psalmo
 
 Kanto de suprenirado. De David.
 
@@ -18342,9 +17237,6 @@ Kiel la bona oleo,
 Kiu de la kapo defluas sur la barbon, la barbon de Aaron,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj defluas sur la randon de lia vesto;
 
 
@@ -18356,7 +17248,7 @@ Kiu de ˘ermon malleviĝas sur la montojn de Cion;
 
 Vivon por eterne.
 
-Psalmo 134
+Psalmo
 
 Kanto de suprenirado.
 
@@ -18375,7 +17267,7 @@ El Cion benu vin la Eternulo,
 
 La Kreinto de la ĉielo kaj la tero.
 
-Psalmo 135
+Psalmo
 
 
 Haleluja!
@@ -18406,9 +17298,6 @@ Kaj ke nia Sinjoro estas super ĉiuj dioj.
 
 
 ĉion, kion la Eternulo deziras, Li faras,
-
-
-L A S A N K TA B I B L I O
 
 
 En la ĉielo kaj sur la tero, sur la maroj kaj en ĉiuj abismoj.
@@ -18475,9 +17364,6 @@ Ho domo de Aaron, benu la Eternulon;
 20 Ho domo de Levi, benu la Eternulon;
 
 
-L A S A N K TA B I B L I O
-
-
 Ho timantoj de la Eternulo, benu la Eternulon.
 
 21 El Cion estu benata la Eternulo,
@@ -18486,7 +17372,7 @@ Kiu loĝas en Jerusalem.
 
 Haleluja!
 
-Psalmo 136
+Psalmo
 
 
 Gloru la Eternulon, ĉar Li estas bona,
@@ -18542,9 +17428,6 @@ La lunon kaj la stelojn, por regi en la nokto,
 ĉar eterna estas Lia boneco;
 
 12 Per forta mano kaj etendita brako,
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar eterna estas Lia boneco;
@@ -18606,10 +17489,7 @@ L A S A N K TA B I B L I O
 ĉar eterna estas Lia boneco.
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 137
+Psalmo
 
 
 Apud la riveroj de Babel
@@ -18666,7 +17546,7 @@ Bone estos al tiu,
 
 Kiu prenos kaj frakasos viajn infanetojn sur ŝtono.
 
-Psalmo 138
+Psalmo
 
 De David.
 
@@ -18674,9 +17554,6 @@ De David.
 Mi gloras Vin el mia tuta koro;
 
 Antaŭ la dioj mi Vin prikantas.
-
-
-L A S A N K TA B I B L I O
 
 
 Mi kliniĝas antaŭ Via sankta templo,
@@ -18723,7 +17600,7 @@ Ho Eternulo, Via boneco estas eterna;
 
 La kreitaĵojn de Viaj manoj ne forlasu.
 
-Psalmo 139
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -18744,9 +17621,6 @@ Kaj ĉiujn miajn vojojn Vi konas.
 ĉar antaŭ ol troviĝas vorto sur mia lango,
 
 Jen, ho Eternulo, Vi ĉion jam scias.
-
-
-L A S A N K TA B I B L I O
 
 
 De malantaŭe kaj de antaŭe Vi ĉirkaŭbaris min
@@ -18814,9 +17688,6 @@ Kiam ankoraŭ eĉ unu ne ekzistis.
 Kiel granda estas ilia nombro!
 
 
-L A S A N K TA B I B L I O
-
-
 18 Se mi ilin kalkulus, ili estus pli multaj ol la sablo;
 
 Kiam mi vekiĝas, mi estas ankoraŭ kun Vi.
@@ -18845,7 +17716,7 @@ Provu min kaj sciu miajn pensojn.
 
 Kaj gvidu min sur la vojo de eterneco.
 
-Psalmo 140
+Psalmo
 
 Al la ˛orestro. Psalmo de David.
 
@@ -18877,9 +17748,6 @@ Kiuj intencas renversi miajn paŝojn.
 Fieruloj kaŝis kaptilon por mi kaj ŝnurojn,
 
 Ili etendis reton ĉe la vojo, implikilon ili metis por mi.
-
-
-L A S A N K TA B I B L I O
 
 
 Sela.
@@ -18924,7 +17792,7 @@ La rajton de malriĉuloj.
 
 Piuloj restos antaŭ Via vizaĝo.
 
-Psalmo 141
+Psalmo
 
 Psalmo de David.
 
@@ -18945,9 +17813,6 @@ Gardu la pordon de miaj lipoj.
 
 
 Ne klinu mian koron al io malbona,
-
-
-L A S A N K TA B I B L I O
 
 
 Al partoprenado en malbonagoj kun malbonaguloj;
@@ -18985,7 +17850,7 @@ Kontraŭ la implikilo de la malbonaguloj.
 
 Dum mi preteriros.
 
-Psalmo 142
+Psalmo
 
 Instruo de David, kiam li estis en la kaverno. Preĝo.
 
@@ -19015,9 +17880,6 @@ Mi krias al Vi, ho Eternulo;
 Mi diras: Vi estas mia rifuĝejo,
 
 
-L A S A N K TA B I B L I O
-
-
 Mia parto en la lando de la vivantoj.
 
 
@@ -19030,7 +17892,7 @@ Eligu mian animon el malliberejo, por ke mi gloru Vian nomon.
 
 Min ĉirkaŭos la virtuloj, kiam Vi bonfaros al mi.
 
-Psalmo 143
+Psalmo
 
 Psalmo de David.
 
@@ -19085,9 +17947,6 @@ Aŭdigu al mi matene Vian bonecon,
 ĉar Vin mi fidas;
 
 
-L A S A N K TA B I B L I O
-
-
 Montru al mi la vojon, kiun mi devas iri,
 
 ĉar al Vi mi levas mian animon.
@@ -19111,7 +17970,7 @@ Kaj pereigu ĉiujn premantojn de mia animo,
 
 ĉar mi estas Via sklavo.
 
-Psalmo 144
+Psalmo
 
 De David.
 
@@ -19151,9 +18010,6 @@ Sendu Viajn sagojn, kaj konfuzu ilin.
 
 
 Etendu Vian manon el supre;
-
-
-L A S A N K TA B I B L I O
 
 
 Liberigu min, kaj savu min el granda akvo,
@@ -19198,7 +18054,7 @@ sur niaj stratoj;
 
 Feliĉa estas la popolo, kies Dio estas la Eternulo.
 
-Psalmo 145
+Psalmo
 
 Glorkanto de David.
 
@@ -19214,9 +18070,6 @@ Kaj mi gloros Vian nomon ĉiam kaj eterne.
 
 
 Granda estas la Eternulo kaj tre glorinda,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj Lia grandeco estas nemezurebla.
@@ -19286,9 +18139,6 @@ Kaj bona en ĉiuj Siaj faroj.
 18 Proksima estas la Eternulo por ĉiuj, kiuj Lin vokas,
 
 
-L A S A N K TA B I B L I O
-
-
 Por ĉiuj, kiuj vokas Lin sincere.
 
 19 La deziron de Siaj respektantoj Li plenumas,
@@ -19303,7 +18153,7 @@ Kaj ĉiujn malvirtulojn Li ekstermas.
 
 Kaj ĉiu karno benu Lian sanktan nomon ĉiam kaj eterne.
 
-Psalmo 146
+Psalmo
 
 
 Haleluja!
@@ -19355,9 +18205,6 @@ La Eternulo amas la virtulojn;
 La Eternulo gardas la enmigrintojn,
 
 
-L A S A N K TA B I B L I O
-
-
 Subtenas orfon kaj vidvinon;
 
 Sed la vojon de malvirtuloj Li pereigas.
@@ -19368,7 +18215,7 @@ Via Dio, ho Cion, por ĉiuj generacioj.
 
 Haleluja!
 
-Psalmo 147
+Psalmo
 
 
 Haleluja!
@@ -19424,9 +18271,6 @@ Kaj al la korvidoj, kiuj krias.
 Ne la femuroj de homo al Li plaĉas:
 
 
-L A S A N K TA B I B L I O
-
-
 11 Plaĉas al la Eternulo Liaj timantoj,
 
 Kiuj fidas Lian bonecon.
@@ -19469,7 +18313,7 @@ Kaj Liajn decidojn ili ne scias.
 
 Haleluja!
 
-Psalmo 148
+Psalmo
 
 
 Haleluja!
@@ -19485,9 +18329,6 @@ Gloru Lin, ĉiuj Liaj militistaroj.
 
 
 Gloru Lin, suno kaj luno;
-
-
-L A S A N K TA B I B L I O
 
 
 Gloru Lin, ĉiuj lumaj steloj.
@@ -19549,10 +18390,7 @@ De la filoj de Izrael, Lia plej proksima popolo.
 Haleluja!
 
 
-L A S A N K TA B I B L I O
-
-
-Psalmo 149
+Psalmo
 
 
 Haleluja!
@@ -19603,7 +18441,7 @@ Tio estas honoro por ĉiuj Liaj fideluloj.
 
 Haleluja!
 
-Psalmo 150
+Psalmo
 
 
 Haleluja!
@@ -19619,9 +18457,6 @@ Gloru Lin laŭ Lia granda majesto.
 
 
 Gloru Lin per sonado de trumpeto,
-
-
-L A S A N K TA B I B L I O
 
 
 Gloru Lin per psaltero kaj harpo.
@@ -19642,12 +18477,9 @@ Gloru Lin per tintantaj cimbaloj.
 Haleluja!
 
 
-L A S A N K TA B I B L I O
-
-
 La sentencoj de Salomono
 
-ĉapitro 1
+ĉapitro
 
 
 Sentencoj de Salomono, filo de David, reĝo de Izrael:
@@ -19703,9 +18535,6 @@ Ni embuskos por mortigi,
 Ni senkaŭze insidos senkulpulojn;
 
 12 Kiel ŝeol ni englutos ilin vivajn,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj la piulojn kiel irantajn en la tombon;
@@ -19770,9 +18599,6 @@ Kaj miajn predikojn vi ne deziris;
 26 Tial ankaŭ mi ridos ĉe via malfeliĉo;
 
 
-L A S A N K TA B I B L I O
-
-
 Mi mokos, kiam timo vin atakos.
 
 27 Kiam la timo atakos vin kiel uragano,
@@ -19805,7 +18631,7 @@ Kaj la senzorgeco de la senorduloj ilin pereigas.
 
 Kaj estos trankvila, kaj ne timos malbonon.
 
-ĉapitro 2
+ĉapitro
 
 
 Mia filo! se vi akceptos miajn parolojn
@@ -19834,9 +18660,6 @@ Kaj vi akiros konadon pri Dio.
 
 
 ĉar la Eternulo donas saĝon;
-
-
-L A S A N K TA B I B L I O
 
 
 El Lia buŝo venas scio kaj kompreno.
@@ -19903,16 +18726,13 @@ Kaj sekvu la paŝosignojn de piuloj.
 21 ĉar la piuloj loĝos sur la tero,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj la senpekuloj restos sur ĝi;
 
 22 Sed la malpiuloj estos ekstermitaj de sur la tero,
 
 Kaj la maliculoj estos malaperigitaj de tie.
 
-ĉapitro 3
+ĉapitro
 
 
 Mia filo! ne forgesu mian instruon,
@@ -19971,9 +18791,6 @@ La instruon de la Eternulo, ho mia filo, ne malŝatu;
 Kaj ne deturnu vin, kiam Li faras al vi punon;
 
 12 ĉar kiun la Eternulo amas, tiun Li punkorektas,
-
-
-L A S A N K TA B I B L I O
 
 
 Kiel patro la filon, en kiu li havas plezuron.
@@ -20037,9 +18854,6 @@ Kaj gardos vian piedon kontraŭ reto.
 27 Ne rifuzu bonon al la bezonantoj,
 
 
-L A S A N K TA B I B L I O
-
-
 Se via mano havas la forton por fari.
 
 28 Kiam vi havas ĉe vi, ne diru al via proksimulo:
@@ -20074,7 +18888,7 @@ Kaj al la humiluloj Li donas favoron.
 
 Sed malsaĝuloj forportas honton.
 
-ĉapitro 4
+ĉapitro
 
 
 Aŭskultu, infanoj, la instruon de la patro,
@@ -20100,9 +18914,6 @@ Observu miajn ordonojn, kaj vi vivos.
 
 
 Akiru saĝon, akiru prudenton;
-
-
-L A S A N K TA B I B L I O
 
 
 Ne forgesu, kaj ne deflankiĝu de la paroloj de mia buŝo.
@@ -20171,9 +18982,6 @@ Ili ne scias, je kio ili falpuŝiĝos.
 20 Mia filo, atentu miajn vortojn;
 
 
-L A S A N K TA B I B L I O
-
-
 Klinu vian orelon al miaj paroloj.
 
 21 Ili ne foriĝu de viaj okuloj;
@@ -20204,7 +19012,7 @@ Kaj ĉiuj viaj vojoj estu firmaj.
 
 Forigu de malbono vian piedon.
 
-ĉapitro 5
+ĉapitro
 
 
 Mia filo! atentu mian saĝon;
@@ -20235,9 +19043,6 @@ Akra kiel ambaŭtranĉa glavo.
 ŝi ne iras rekte laŭ la vojo de vivo;
 
 ŝiaj paŝoj ŝanceliĝas, sed tion ŝi ne scias.
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj nun, infanoj, aŭskultu min,
@@ -20303,9 +19108,6 @@ Kaj aminda kiel ibeksino;
 fremda virino
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj enbrakigi ne apartenantan al vi?
 
 21 ĉar antaŭ la okuloj de la Eternulo estas la vojoj de homo,
@@ -20320,7 +19122,7 @@ Kaj la ŝnuroj de lia peko lin tenos.
 
 Kaj la multo de lia senprudenteco lin devojigos.
 
-ĉapitro 6
+ĉapitro
 
 
 Mia filo! se vi garantiis por via proksimulo
@@ -20370,9 +19172,6 @@ is kiam, maldiligentulo, vi kuŝos?
 Kiam vi leviĝos de via dormo?
 
 10 Iom da dormo, iom da dormeto,
-
-
-L A S A N K TA B I B L I O
 
 
 Iom da kunmeto de la manoj por kuŝado;
@@ -20436,9 +19235,6 @@ Kaj edifaj predikoj estas vojo de vivo,
 Kontraŭ glata lango de fremdulino.
 
 
-L A S A N K TA B I B L I O
-
-
 25 Ne deziregu en via koro ŝian belecon,
 
 Kaj ne kaptiĝu per ŝiaj palpebroj.
@@ -20485,7 +19281,7 @@ Kaj li ne indulgas en la tempo de la venĝo.
 
 Kaj li ne akceptas, se vi volas eĉ multe donaci.
 
-ĉapitro 7
+ĉapitro
 
 
 Mia filo! konservu miajn vortojn,
@@ -20496,9 +19292,6 @@ Kaj gardu ĉe vi miajn moralordonojn.
 Konservu miajn moralordonojn, kaj vivu;
 
 Kaj mian instruon, kiel la pupilon de viaj okuloj.
-
-
-L A S A N K TA B I B L I O
 
 
 Ligu ilin al viaj fingroj;
@@ -20568,9 +19361,6 @@ Per multkoloraj teksaĵoj el Egiptujo.
 Per mirho, aloo, kaj cinamo.
 
 
-L A S A N K TA B I B L I O
-
-
 18 Venu, ni ĝuu sufiĉe volupton ĝis la mateno,
 
 Ni plezuriĝu per la amo.
@@ -20615,7 +19405,7 @@ Kaj multegaj estas ŝiaj mortigitoj.
 
 Kiuj kondukas malsupren al la ĉambroj de la morto.
 
-ĉapitro 8
+ĉapitro
 
 
 ĉu ne vokas la saĝo?
@@ -20629,9 +19419,6 @@ Apud la vojo, ĉe la vojkruĉiĝoj.
 
 
 Apud la pordegoj, ĉe la eniro en la urbon,
-
-
-L A S A N K TA B I B L I O
 
 
 ĉe la eniro tra la pordoj, ĝi kantas:
@@ -20701,9 +19488,6 @@ Kaj la potenculoj kaj ĉiuj juĝantoj sur la tero.
 Kaj miaj serĉantoj min trovos.
 
 
-L A S A N K TA B I B L I O
-
-
 18 Riĉo kaj gloro estas ĉe mi,
 
 Daŭra havo kaj justo.
@@ -20765,9 +19549,6 @@ Ludante antaŭ Li ĉiutempe.
 Kaj mia ĝojo estas inter la homidoj.
 
 
-L A S A N K TA B I B L I O
-
-
 32 Kaj nun, infanoj, aŭskultu min;
 
 Kaj feliĉaj estos tiuj, kiuj iras laŭ miaj vojoj.
@@ -20790,7 +19571,7 @@ Kaj akiros favoron de la Eternulo.
 
 ĉiuj, kiuj min malamas, amas la morton.
 
-ĉapitro 9
+ĉapitro
 
 
 La saĝo konstruis sian domon,
@@ -20831,9 +19612,6 @@ Kaj kiu penas ĝustigi malpiulon, tiu estas mokata.
 Ne penu ĝustigi blasfemanton, ke li vin ne malamu:
 
 Penu ĝustigi saĝulon, kaj li vin amos.
-
-
-L A S A N K TA B I B L I O
 
 
 Donu al saĝulo, kaj li ankoraŭ pli saĝiĝos;
@@ -20877,7 +19655,7 @@ Kaj pano kaŝita estas agrabla.
 
 Kaj ke ŝiaj invititoj estas en la profundoj de ŝeol.
 
-ĉapitro 10
+ĉapitro
 
 
 Sentencoj de Salomono.
@@ -20895,9 +19673,6 @@ Sed bonfaremo savas de morto.
 La Eternulo ne malsatigos animon de piulo;
 
 Sed la avidon de malpiulo Li forpuŝas.
-
-
-L A S A N K TA B I B L I O
 
 
 Maldiligenta mano malriĉigas;
@@ -20966,9 +19741,6 @@ Sed kiu forĵetas atentigon, tiu restas en eraro.
 Kaj kiu elirigas kalumnion, tiu estas malsaĝulo.
 
 
-L A S A N K TA B I B L I O
-
-
 19 ĉe multo da vortoj ne evitebla estas peko;
 
 Sed kiu retenas siajn lipojn, tiu estas saĝa.
@@ -21026,10 +19798,7 @@ Sed lango falsema estos ekstermita.
 Kaj la buŝo de malpiuloj malicaĵon.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 11
+ĉapitro
 
 
 Malvera pesilo estas abomenaĵo por la Eternulo;
@@ -21099,9 +19868,6 @@ Sed ĉe multe da konsilantoj estas bonstato.
 15 Malbonon faras al si tiu, kiu garantias por fremdulo;
 
 
-L A S A N K TA B I B L I O
-
-
 Sed kiu malamas donadon de mano, tiu estas ekster danĝero.
 
 16 Aminda virino akiras honoron,
@@ -21163,16 +19929,13 @@ Kaj malsaĝulo estas sklavo de saĝulo.
 30 La frukto de virtulo estas arbo de vivo;
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj akiranto de animoj estas saĝulo.
 
 31 Se virtulo ricevas redonon sur la tero,
 
 Tiom pli malvirtulo kaj pekulo!
 
-ĉapitro 12
+ĉapitro
 
 
 Kiu amas instruon, tiu amas scion;
@@ -21230,9 +19993,6 @@ Sed kiu serĉas vantaĵojn, tiu estas malsaĝulo.
 12 Malvirtulo serĉas subtenon de malnobluloj;
 
 Sed la radiko de virtuloj donas forton.
-
-
-L A S A N K TA B I B L I O
 
 
 13 Per siaj pekaj vortoj kaptiĝas malbonulo;
@@ -21296,14 +20056,11 @@ Sed la vojo de malvirtuloj ilin erarigas.
 Sed homo diligenta havas riĉecon.
 
 
-L A S A N K TA B I B L I O
-
-
 28 Sur la vojo de virto estas vivo,
 
 Kaj ĝi estos ebenigita kontraŭ morto.
 
-ĉapitro 13
+ĉapitro
 
 
 Saĝa filo lernas de la patro;
@@ -21365,9 +20122,6 @@ Sed plenumita deziro estas arbo de vivo.
 13 Kiu malŝatas diron, tiu malutilas al si mem;
 
 
-L A S A N K TA B I B L I O
-
-
 Sed respektanta ordonon estos rekompencita.
 
 14 Instruo de saĝulo estas fonto de vivo,
@@ -21421,10 +20175,7 @@ Sed kiu lin amas, tiu baldaŭ lin punas.
 Sed la ventro de malvirtuloj havas mankon.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 14
+ĉapitro
 
 
 Saĝa virino konstruas sian domon;
@@ -21494,9 +20245,6 @@ Kaj homo bona satiĝos per siaj faroj.
 15 Naivulo kredas ĉiun vorton;
 
 
-L A S A N K TA B I B L I O
-
-
 Sed saĝulo estas atenta pri sia vojo.
 
 16 Saĝulo timas, kaj forkliniĝas de malbono;
@@ -21558,9 +20306,6 @@ Kaj manko de popolo pereigas la reganton.
 Sed malpacienculo elmontras malsaĝecon.
 
 
-L A S A N K TA B I B L I O
-
-
 30 Trankvila koro estas vivo por la korpo;
 
 Sed envio estas puso por la ostoj.
@@ -21585,7 +20330,7 @@ Sed peko pereigas gentojn.
 
 Sed kontraŭ malbonkonduta li koleras.
 
-ĉapitro 15
+ĉapitro
 
 
 Milda respondo kvietigas koleron;
@@ -21624,9 +20369,6 @@ Sed la koro de malsaĝuloj ne estas tia.
 
 
 Oferdono de malvirtuloj estas abomenaĵo por la Eternulo;
-
-
-L A S A N K TA B I B L I O
 
 
 Sed la preĝo de virtuloj al Li plaĉas.
@@ -21691,9 +20433,6 @@ Sed ĉe multe da konsilantoj ili restas fortikaj.
 23 Plezuro por homo estas en la respondo de lia buŝo;
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj kiel bona estas vorto en la ĝusta tempo!
 
 24 La vojo de la vivo por saĝulo iras supren,
@@ -21736,7 +20475,7 @@ Sed kiu aŭskultas instruon, tiu akiras saĝon.
 
 Kaj humileco troviĝas antaŭ honoro.
 
-ĉapitro 16
+ĉapitro
 
 
 Al la homo apartenas la projektoj de la koro;
@@ -21752,9 +20491,6 @@ Sed la Eternulo esploras la spiritojn.
 Transdonu al la Eternulo viajn farojn;
 
 Tiam viaj entreprenoj staros forte.
-
-
-L A S A N K TA B I B L I O
 
 
 ĉiu faro de la Eternulo havas sian celon;
@@ -21823,9 +20559,6 @@ Kiu gardas sian vojon, tiu konservas sian animon.
 Kaj antaŭ la falo iras malhumileco.
 
 
-L A S A N K TA B I B L I O
-
-
 19 Pli bone estas esti humila kun malriĉuloj,
 
 Ol dividi akiron kun fieruloj.
@@ -21885,14 +20618,11 @@ Kaj kiu regas sian spiriton, tiu estas pli bona ol militakiranto
 de urbo.
 
 
-L A S A N K TA B I B L I O
-
-
 33 Sur la baskon oni ĵetas loton;
 
 Sed ĝia tuta decido estas de la Eternulo.
 
-ĉapitro 17
+ĉapitro
 
 
 Pli bona estas seka peco da pano, sed kun trankvileco,
@@ -21950,9 +20680,6 @@ Sed terura sendato estos sendita kontraŭ lin.
 12 Pli bone estas renkonti ursinon, al kiu estas rabitaj ĝiaj infanoj, Ol malsaĝulon kun lia malsaĝeco.
 
 13 Kiu redonas malbonon por bono,
-
-
-L A S A N K TA B I B L I O
 
 
 El ties domo ne malaperos malbono.
@@ -22014,14 +20741,11 @@ Nek bati noblulon, kiu agas juste.
 Kaj trankvilanimulo estas homo saĝa.
 
 
-L A S A N K TA B I B L I O
-
-
 28 Eĉ malsaĝulo, se li silentas, estas rigardata kiel saĝulo;
 
 Kaj kiel prudentulo, se li tenas fermita sian buŝon.
 
-ĉapitro 18
+ĉapitro
 
 
 Kiu apartiĝas, tiu serĉas sian volupton
@@ -22083,9 +20807,6 @@ Kaj antaŭ honoro estas humileco.
 13 Kiu respondas, antaŭ ol li aŭdis,
 
 
-L A S A N K TA B I B L I O
-
-
 Tiu havas malsaĝon kaj honton.
 
 14 La spirito de homo nutras lin en lia malsano;
@@ -22132,7 +20853,7 @@ Kaj riĉulo respondas arogante.
 
 Sed ofte amiko estas pli sindona ol frato.
 
-ĉapitro 19
+ĉapitro
 
 
 Pli bona estas malriĉulo, kiu iras en sia senkulpeco,
@@ -22143,9 +20864,6 @@ Ol homo, kiu estas malicbuŝulo kaj malsaĝulo.
 Vivo sen prudento ne estas bona;
 
 Kaj kiu tro rapidas, tiu maltrafas la vojon.
-
-
-L A S A N K TA B I B L I O
 
 
 Malsaĝeco de homo erarigas lian vojon,
@@ -22215,9 +20933,6 @@ Sed kiu ne atentas Lian vojon, tiu mortos.
 17 Kiu kompatas malriĉulon, tiu pruntedonas al la Eternulo,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj Tiu redonos al li por lia bonfaro.
 
 18 Punu vian filon, dum ekzistas espero,
@@ -22268,15 +20983,12 @@ Kaj la buŝo de malvirtuloj englutas maljustaĵon.
 
 Kaj batoj la dorson de malsaĝuloj.
 
-ĉapitro 20
+ĉapitro
 
 
 La vino estas blasfemanto, ebriiga trinkaĵo estas sovaĝa;
 
 Kaj kiu delogiĝas per ili, tiu ne estas prudenta.
-
-
-L A S A N K TA B I B L I O
 
 
 Minaco de reĝo estas kiel kriego de leono;
@@ -22347,9 +21059,6 @@ Sed buŝo prudenta estas multevalora ilo.
 Kaj pro la fremduloj prenu de li garantiaĵon.
 
 
-L A S A N K TA B I B L I O
-
-
 17 Malhonesta pano estas bongusta por homo;
 
 Sed lia buŝo poste estos plena de ŝtonetoj.
@@ -22407,10 +21116,7 @@ Kaj ornamo por maljunuloj estas grizeco.
 Kaj frapoj devas iri profunde en lian korpon.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 21
+ĉapitro
 
 
 Kiel akvaj torentoj estas la koro de reĝo en la mano de la
@@ -22480,9 +21186,6 @@ Li ankaŭ vokos kaj ne estos aŭskultata.
 Kaj donaco en la sinon, fortan furiozon.
 
 
-L A S A N K TA B I B L I O
-
-
 15 Farado de justaĵo estas ĝojo por la virtulo
 
 Kaj teruro por la malbonaguloj.
@@ -22544,9 +21247,6 @@ Sed homo, kiu mem aŭdis, parolos por ĉiam.
 Sed virtulo zorgas pri sia vojo.
 
 
-L A S A N K TA B I B L I O
-
-
 30 Ne ekzistas saĝo, ne ekzistas prudento,
 
 Ne ekzistas konsilo kontraŭ la Eternulo.
@@ -22555,7 +21255,7 @@ Ne ekzistas konsilo kontraŭ la Eternulo.
 
 Sed la helpo venas de la Eternulo.
 
-ĉapitro 22
+ĉapitro
 
 
 Nomo bona estas pli preferinda, ol granda riĉeco;
@@ -22611,9 +21311,6 @@ Kaj ĉesiĝos malkonsento kaj ofendo.
 Al tiu la reĝo estas amiko.
 
 12 La okuloj de la Eternulo gardas la prudenton;
-
-
-L A S A N K TA B I B L I O
 
 
 Sed la vortojn de maliculo Li renversas.
@@ -22677,9 +21374,6 @@ Kiuj garantias por ŝuldoj.
 27 Se vi ne havos per kio pagi,
 
 
-L A S A N K TA B I B L I O
-
-
 Oni ja prenos vian litaĵon de sub vi.
 
 28 Ne forŝovu la antikvajn limojn,
@@ -22688,7 +21382,7 @@ Kiujn faris viaj patroj.
 
 29 Se vi vidas homon lertan en sia profesio, li staros antaŭ reĝoj; Li ne staros antaŭ maleminentuloj.
 
-ĉapitro 23
+ĉapitro
 
 
 Kiam vi sidiĝos, por manĝi kun reganto,
@@ -22742,9 +21436,6 @@ En la orelojn de malsaĝulo ne parolu;
 Kaj sur la kampon de orfoj ne iru.
 
 11 ĉar ilia Liberiganto estas forta;
-
-
-L A S A N K TA B I B L I O
 
 
 Li defendos ilian aferon kontraŭ vi.
@@ -22808,9 +21499,6 @@ Kaj via naskintino triumfos.
 26 Donu, mia filo, vian koron al mi,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj al viaj okuloj plaĉu miaj vojoj.
 
 27 ĉar malĉastulino estas profunda foso,
@@ -22853,7 +21541,7 @@ Ili frapis min, sed mi ne sentis;
 
 Kiam mi vekiĝos, mi denove tion serĉos.
 
-ĉapitro 24
+ĉapitro
 
 
 Ne sekvu malbonajn homojn,
@@ -22869,9 +21557,6 @@ Kaj ilia buŝo parolas malbonaĵon.
 Per saĝo konstruiĝas domo,
 
 Kaj per prudento ĝi fortikiĝas;
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj per sciado la ĉambroj pleniĝas
@@ -22940,9 +21625,6 @@ Sed malvirtuloj implikiĝas en la malfeliĉo.
 Kaj ĉe lia malfeliĉo via koro ne plezuriĝu;
 
 
-L A S A N K TA B I B L I O
-
-
 18 ĉar eble la Eternulo vidos, kaj tio ne plaĉos al Li,
 
 Kaj Li returnos de li Sian koleron.
@@ -23004,9 +21686,6 @@ Kaj tra vinberĝardeno de sensaĝulo;
 Kaj la ŝtona muro estas detruita.
 
 
-L A S A N K TA B I B L I O
-
-
 32 Kaj kiam mi vidis, mi prenis ĝin en mian koron,
 
 Mi rigardis, kaj ricevis instruon:
@@ -23019,7 +21698,7 @@ Iom da kunmeto de la manoj por kuŝado;
 
 Kaj via senhaveco kiel viro armita.
 
-ĉapitro 25
+ĉapitro
 
 
 Ankaŭ ĉi tio estas sentencoj de Salomono, kiujn kolektis
@@ -23071,9 +21750,6 @@ Sed sekreton de aliulo ne malkaŝu;
 10 ĉar alie aŭdanto vin riproĉos,
 
 Kaj vian babilon vi jam ne povos repreni.
-
-
-L A S A N K TA B I B L I O
 
 
 11 Vorto dirita en ĝusta tempo
@@ -23137,9 +21813,6 @@ Kaj ĉagrenita vizaĝo kaŝatan parolon.
 24 Pli bone estas loĝi sur angulo de tegmento,
 
 
-L A S A N K TA B I B L I O
-
-
 Ol kun malpacema edzino en komuna domo.
 
 25 Kiel malvarma akvo por suferanto de soifo,
@@ -23158,7 +21831,7 @@ Kaj ne glore estas serĉi sian gloron.
 
 Estas urbo detruita, kiu ne havas muron.
 
-ĉapitro 26
+ĉapitro
 
 
 Kiel neĝo en somero, kaj kiel pluvo en tempo de rikolto,
@@ -23204,9 +21877,6 @@ Tiel estas tiu, kiu faras honoron al malsaĝulo.
 Kiel dorna kano en la mano de ebriulo,
 
 Tiel estas sentenco en la buŝo de malsaĝuloj.
-
-
-L A S A N K TA B I B L I O
 
 
 10 Kompetentulo ĉion bone faras;
@@ -23270,9 +21940,6 @@ Estas nepurigita arĝento, kiu kovras argilaĵon.
 Kaj en sia koro li preparas malicon.
 
 
-L A S A N K TA B I B L I O
-
-
 25 Kiam li ĉarmigas sian voĉon, ne kredu al li;
 
 ĉar sep abomenaĵoj estas en lia koro.
@@ -23289,7 +21956,7 @@ Kaj kiu rulas ŝtonon, al tiu ĝi revenos.
 
 Kaj hipokrita buŝo kaŭzas pereon.
 
-ĉapitro 27
+ĉapitro
 
 
 Ne fanfaronu pri la morgaŭa tago;
@@ -23337,9 +22004,6 @@ Oleo kaj odorfumaĵo ĝojigas la koron,
 Kaj la konsilo de amiko estas dolĉaĵo por la animo.
 
 10 Ne forlasu vian amikon kaj la amikon de via patro,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj en la domon de via frato ne iru en la tago de via mizero;
@@ -23403,9 +22067,6 @@ Atentu viajn brutarojn.
 Kaj krono ne restas por ĉiuj generacioj.
 
 
-L A S A N K TA B I B L I O
-
-
 25 Aperas herbo, montriĝas verdaĵo,
 
 Kaj kolektiĝas kreskaĵoj de la montoj.
@@ -23420,7 +22081,7 @@ vian domon,
 
 Kaj por subteni la vivon de viaj servantinoj.
 
-ĉapitro 28
+ĉapitro
 
 
 Malvirtulo kuras, kiam neniu persekutas;
@@ -23470,9 +22131,6 @@ Ties eĉ preĝo estas abomenaĵo.
 10 Kiu forlogas virtulojn al vojo malbona,
 
 Tiu mem falos en sian foson;
-
-
-L A S A N K TA B I B L I O
 
 
 Sed la senkulpuloj heredos bonon.
@@ -23532,9 +22190,6 @@ Ol tiu, kiu flatas per la lango.
 25 Fierulo kaŭzas malpacojn;
 
 
-L A S A N K TA B I B L I O
-
-
 Sed kiu fidas la Eternulon, tiu estos bonstata.
 
 26 Kiu fidas sin mem, tiu estas malsaĝa;
@@ -23549,7 +22204,7 @@ Sed kiu kovras siajn okulojn, tiu estas multe malbenata.
 
 Sed kiam ili pereas, tiam multiĝas virtuloj.
 
-ĉapitro 29
+ĉapitro
 
 
 Se homo ofte admonita restos obstina,
@@ -23599,9 +22254,6 @@ Se saĝa homo havas juĝan aferon kun homo malsaĝa,
 Tiam, ĉu li koleras, ĉu li ridas, li ne havas trankvilon.
 
 10 Sangaviduloj malamas senkulpulon;
-
-
-L A S A N K TA B I B L I O
 
 
 Sed virtuloj zorgas pri lia vivo.
@@ -23665,9 +22317,6 @@ Li aŭdas la ĵuron kaj nenion diras.
 25 Timo antaŭ homoj faligas en reton;
 
 
-L A S A N K TA B I B L I O
-
-
 Sed kiu fidas la Eternulon, tiu estas ŝirmita.
 
 26 Multaj serĉas favoron de reganto;
@@ -23680,7 +22329,7 @@ Kaj kiu iras la ĝustan vojon, tiu estas abomenaĵo por
 
 malvirtulo.
 
-ĉapitro 30
+ĉapitro
 
 
 Vortoj de Agur, filo de Jake.
@@ -23731,9 +22380,6 @@ Falsaĵon kaj mensogaĵon forigu de mi;
 Malriĉecon kaj riĉecon ne donu al mi;
 
 Nutru min per tiom da pano, kiom mi bezonas.
-
-
-L A S A N K TA B I B L I O
 
 
 ĉar alie mi eble trosatiĝus kaj neus, kaj dirus: Kiu estas
@@ -23795,9 +22441,6 @@ La vojon de ŝipo meze de la maro;
 Kaj la vojon de viro ĉe virgulino.
 
 
-L A S A N K TA B I B L I O
-
-
 20 Tia estas la vojo de virino adultanta:
 
 ŝi manĝas, viŝas la buŝon,
@@ -23857,14 +22500,11 @@ Tiam metu la manon sur la buŝon.
 33 ĉar batado de lakto produktas buteron,
 
 
-L A S A N K TA B I B L I O
-
-
 Ekbato de nazo aperigas sangon,
 
 Kaj incitado de kolero kaŭzas malpacon.
 
-ĉapitro 31
+ĉapitro
 
 
 Vortoj de la reĝo Lemuel, instruo, kiun donis al li lia patrino.
@@ -23925,9 +22565,6 @@ Kaj havo ne mankos.
 En la daŭro de ŝia tuta vivo.
 
 13 ŝi serĉas lanon kaj linon,
-
-
-L A S A N K TA B I B L I O
 
 
 Kaj volonte laboras per siaj manoj.
@@ -23991,9 +22628,6 @@ Bonkora instruo estas sur ŝia lango.
 Kaj ŝi ne manĝas panon en senlaboreco.
 
 
-L A S A N K TA B I B L I O
-
-
 28 Leviĝas ŝiaj filoj kaj ŝin gratulas;
 
 ŝia edzo ŝin laŭdegas, dirante:
@@ -24011,39 +22645,28 @@ Virino, kiu timas la Eternulon, estos glorata.
 Kaj ŝiaj faroj ŝin gloros ĉe la pordegoj.
 
 
-L A S A N K TA B I B L I O
-
-
 La predikanto
 
-ĉapitro 1
+ĉapitro
 
 1 Vortoj de la Predikanto, filo de David, reĝo en Jerusalem.
 
-2 Vantaĵo de vantaĵoj, diris la Predikanto; vantaĵo de vantaĵoj, ĉio estas vantaĵo. 3 Kian profiton havas la homo de ĉiuj siaj laboroj, kiujn li laboras sub la suno? 4 Generacio foriras kaj generacio venas, kaj la tero restas eterne. 5 Leviĝas la suno kaj subiras la suno, kaj al sia loko ĝi rapidas, kaj tie ĝi leviĝas. 6 Iras al sudo kaj reiras al nordo, turniĝas, turniĝas en sia irado la vento, kaj al siaj rondoj revenas la vento. 7 ĉiuj riveroj iras al la maro, sed la maro ne pleniĝas; al la loko, al kiu la riveroj alfluas, ili alfluas ĉiam denove. 8 ĉiuj aferoj estas lacigaj, ne povas homo tion eldiri; ne satiĝas la okulo de vida-do, kaj ne pleniĝas la orelo de aŭdado. 9 Kio estis, tio estos; kaj kio estis farata, tio estos farata; kaj ekzistas nenio nova sub la suno. 10
+2 Vantaĵo de vantaĵoj, diris la Predikanto; vantaĵo de vantaĵoj, ĉio estas vantaĵo. 3 Kian profiton havas la homo de ĉiuj siaj laboroj, kiujn li laboras sub la suno? 4 Generacio foriras kaj generacio venas, kaj la tero restas eterne. 5 Leviĝas la suno kaj subiras la suno, kaj al sia loko ĝi rapidas, kaj tie ĝi leviĝas. 6 Iras al sudo kaj reiras al nordo, turniĝas, turniĝas en sia irado la vento, kaj al siaj rondoj revenas la vento. 7 ĉiuj riveroj iras al la maro, sed la maro ne pleniĝas; al la loko, al kiu la riveroj alfluas, ili alfluas ĉiam denove. 8 ĉiuj aferoj estas lacigaj, ne povas homo tion eldiri; ne satiĝas la okulo de vida-do, kaj ne pleniĝas la orelo de aŭdado. 9 Kio estis, tio estos; kaj kio estis farata, tio estos farata; kaj ekzistas nenio nova sub la suno.
 
 Ekzistas io, pri kio oni diras: Vidu, ĉi tio estas nova; sed ĝi estis jam en la eterna tempo, kiu estis antaŭ ni. 11 Ne restis memoro pri la antaŭuloj; kaj ankaŭ pri la posteuloj, kiuj estos, ne restos memoro ĉe tiuj, kiuj estos poste.
 
-12 Mi, Predikanto, estis reĝo super Izrael en Jerusalem. 13 Kaj mi decidis en mia koro esplori kaj ekzameni per la saĝo ĉion, kio fari-
-
-ĝas sub la ĉielo: ĉi tiun malfacilan okupon Dio donis al la homidoj, por ke ili turmentiĝu per ĝi. 14 Mi vidis ĉiujn aferojn, kiuj fariĝas sub la suno; kaj jen, ĉio estas vantaĵo kaj entreprenoj ventaj. 15 Kurbi-gitan oni ne povas rerektigi, kaj mankantan oni ne povas kalkuli. 16
+12 Mi, Predikanto, estis reĝo super Izrael en Jerusalem. 13 Kaj mi decidis en mia koro esplori kaj ekzameni per la saĝo ĉion, kio fariĝas sub la ĉielo: ĉi tiun malfacilan okupon Dio donis al la homidoj, por ke ili turmentiĝu per ĝi. 14 Mi vidis ĉiujn aferojn, kiuj fariĝas sub la suno; kaj jen, ĉio estas vantaĵo kaj entreprenoj ventaj. 15 Kurbi-gitan oni ne povas rerektigi, kaj mankantan oni ne povas kalkuli.
 
 Mi meditis kun mia koro tiele: Jen mi kreskigis kaj multigis en mi 1292
 
-L A S A N K TA B I B L I O
 
+sciencon pli ol ĉiuj, kiuj estis antaŭ mi en Jerusalem; kaj mia koro penetris multon da saĝo kaj scio. 17 Sed kiam mi dediĉis mian koron, por ekkoni la saĝecon kaj ekkoni la malsaĝecon kaj sensencecon, mi eksciis, ke ankaŭ ĉi tio estas ventaĵo. 18 ĉar ĉe multe da saĝeco estas multe da zorgemeco; kaj, kiu plimultigas siajn sciojn, tiu plimultigas siajn dolorojn.
 
-sciencon pli ol ĉiuj, kiuj estis antaŭ mi en Jerusalem; kaj mia koro penetris multon da saĝo kaj scio. 17 Sed kiam mi dediĉis mian koron, por ekkoni la saĝecon kaj ekkoni la malsaĝecon kaj sensence-
-
-con, mi eksciis, ke ankaŭ ĉi tio estas ventaĵo. 18 ĉar ĉe multe da saĝeco estas multe da zorgemeco; kaj, kiu plimultigas siajn sciojn, tiu plimultigas siajn dolorojn.
-
-ĉapitro 2
+ĉapitro
 
 1 Mi diris en mia koro: Lasu, mi elprovos vin per ĝojo, kaj vi ĝuu bonon; sed jen ankaŭ ĉi tio estas vantaĵo. 2 Pri la rido mi diris: i estas sensencaĵo! kaj pri la ĝojo: Kion ĝi havigas? 3 Mi serĉis en mia koro, kiel plezurigi mian korpon per vino, kaj, dum mia koro min
 
-gvidas per saĝeco, sekvi ankaŭ malsaĝecon, ĝis mi ekvidos, kio es-
-
-tas bona por la homidoj, kion ili povus fari sub la ĉielo en la kalku-litaj tagoj de sia vivo. 4 Mi entreprenis grandajn farojn: mi konstruis al mi domojn, mi plantis al mi vinberejojn; 5 mi aranĝis al mi ĝardenojn kaj arbaretojn, kaj plantis en ili ĉiafruktajn arbojn; 6 mi aran-
+gvidas per saĝeco, sekvi ankaŭ malsaĝecon, ĝis mi ekvidos, kio estas bona por la homidoj, kion ili povus fari sub la ĉielo en la kalku-litaj tagoj de sia vivo. 4 Mi entreprenis grandajn farojn: mi konstruis al mi domojn, mi plantis al mi vinberejojn; 5 mi aranĝis al mi ĝardenojn kaj arbaretojn, kaj plantis en ili ĉiafruktajn arbojn; 6 mi aran-
 
 ĝis al mi akvujojn, por akvumi el ili arbaretojn, kiuj kreskigas arbojn; 7 mi akiris al mi sklavojn kaj sklavinojn, kaj domanojn mi havis; ankaŭ da bruto granda kaj malgranda mi havis pli multe, ol ĉiuj, kiuj estis antaŭ mi en Jerusalem; 8 mi kolektis al mi ankaŭ arĝenton kaj oron, kaj juvelojn de reĝoj kaj landoj; mi havigis al mi kantistojn kaj kantistinojn, kaj plezurojn de homidoj, kaj multajn amantinojn.
 
@@ -24051,14 +22674,10 @@ tas bona por la homidoj, kion ili povus fari sub la ĉielo en la kalku-litaj tag
 
 farojn, kiujn faris miaj manoj, kaj ĉiujn laborojn, kiujn mi plenumis, 1293
 
-L A S A N K TA B I B L I O
-
 
 por fari ilin: kaj jen, ĉio estas vantaĵo kaj ventaĵo, kaj nenia profito estas de ili sub la suno.
 
-12 Kaj mi turnis min, por rigardi saĝecon kaj malsaĝecon kaj sen-
-
-sencecon; ĉar kion povas fari homo, venonta post reĝo, en komparo
+12 Kaj mi turnis min, por rigardi saĝecon kaj malsaĝecon kaj sensencecon; ĉar kion povas fari homo, venonta post reĝo, en komparo
 
 kun tio, kion tiu jam antaŭ longe faris? 13 Kaj mi vidis, ke havas superecon la saĝeco antaŭ la malsaĝeco, kiel havas superecon lumo
 
@@ -24074,12 +22693,10 @@ kiu mi penis kaj streĉis mian saĝon sub la suno? Ankaŭ ĉi tio estas vantaĵo
 
 igi sian animon ĝui plezuron de lia laborado; ankaŭ pri ĉi tio mi vidis, ke ĝi estas de la mano de Dio. 25 ĉar kiu povas manĝi, kaj kiu 1294
 
-L A S A N K TA B I B L I O
-
 
 povas ĝui, sen Li? 26 ĉar al homo, kiu agas bone antaŭ Li, Li donas saĝon kaj scion kaj ĝojon, kaj al la pekulo Li donas la zorgemecon amasigi kaj kolekti, por poste transdoni al tiu, kiu agas bone antaŭ Dio; kaj ĉi tio estas vantaĵo kaj ventaĵo.
 
-ĉapitro 3
+ĉapitro
 
 1 Por ĉio estas sezono, kaj tempo difinita estas por ĉiu afero sub la suno; 2 estas tempo por naskiĝi, kaj tempo por morti; estas tempo
 
@@ -24087,29 +22704,22 @@ por planti, kaj tempo por elŝiri la plantitaĵon; 3 estas tempo por mortigi, ka
 
 por konstrui; 4 estas tempo por plori, kaj tempo por ridi; estas tempo por ĝemi, kaj tempo por danci; 5 estas tempo por disĵeti ŝtonojn, kaj tempo por kolekti ŝtonojn; estas tempo por ĉirkaŭbraki, kaj
 
-tempo por foriri de ĉirkaŭbrakado; 6 estas tempo por serĉi, kaj tem-po por perdi; estas tempo por konservi, kaj tempo por forĵeti; 7 estas tempo por disŝiri, kaj tempo por kunkudri; estas tempo por silenti, kaj tempo por paroli; 8 estas tempo por ami, kaj tempo por ma-
-
-lami; estas tempo por milito, kaj tempo por paco. 9 Kian profiton
+tempo por foriri de ĉirkaŭbrakado; 6 estas tempo por serĉi, kaj tem-po por perdi; estas tempo por konservi, kaj tempo por forĵeti; 7 estas tempo por disŝiri, kaj tempo por kunkudri; estas tempo por silenti, kaj tempo por paroli; 8 estas tempo por ami, kaj tempo por malami; estas tempo por milito, kaj tempo por paco. 9 Kian profiton
 
 havas faranto de tio, kion li laboras? 10 Mi vidis la penemecon, kiun Dio donis al la homidoj, por ke ili turmentiĝu per ĝi. 11 ĉion Li kreis bela ĝiatempe; kaj scion pri la mondo Li enmetis en ilian koron, sed tiel, ke homo ne povas kompreni la farojn, kiujn faris Dio de la komenco ĝis la fino. 12 Mi scias, ke ekzistas nenia bono por ili, krom
 
 ĝoji kaj fari bonon en sia vivo. 13 Kaj se homo manĝas kaj trinkas kaj
 
-ĝuas bonon de sia tuta laborado, tio estas dono de Dio. 14 Mi sci-
-
-as, ke ĉio, kion faras Dio, restas eterne; al ĝi oni nenion povas aldoni, kaj de ĝi oni nenion povas depreni; kaj Dio tion faris, ke oni Lin timu. 15 Kio fariĝis, tio ekzistas de longe; kaj kio estas fariĝonta, tio antaŭ longe jam estis, kaj Dio revokas pasintaĵon.
-
-
-L A S A N K TA B I B L I O
+ĝuas bonon de sia tuta laborado, tio estas dono de Dio. 14 Mi scias, ke ĉio, kion faras Dio, restas eterne; al ĝi oni nenion povas aldoni, kaj de ĝi oni nenion povas depreni; kaj Dio tion faris, ke oni Lin timu. 15 Kio fariĝis, tio ekzistas de longe; kaj kio estas fariĝonta, tio antaŭ longe jam estis, kaj Dio revokas pasintaĵon.
 
 
 16 Ankoraŭ mi vidis sub la suno: en la loko de juĝo, ke tie estas
 
 maljusteco; en la loko de vero, ke tie estas malico. 17 Mi diris en mia koro: Piulon kaj malpiulon juĝos Dio; ĉar estas tempo por ĉiu afero, kaj por ĉio, kio fariĝas tie. 18 Mi diris en mia koro: ĉi tio estas pri la homidoj, ke Dio ilin elprovu, kaj ke ili vidu, ke ili estas bruto per si mem. 19 ĉar la sorto de homidoj kaj la sorto de bruto estas sorto egala: kiel ĉi tiuj mortas, tiel mortas ankaŭ tiuj, kaj sama spirito estas en ĉiuj; kaj supereco de homo kontraŭ bruto ne ekzistas, ĉar ĉio estas vantaĵo. 20 ĉiuj iras al unu loko: ĉiuj fariĝis el polvo, kaj ĉiuj refariĝos polvo. 21 Kiu scias, ĉu la spirito de homidoj leviĝas supren, kaj ĉu la spirito de bruto malleviĝas malsupren en la teron? 22 Kaj mi ekvidis, ke ekzistas nenio pli bona, ol ke homo ĝuu plezuron de siaj faroj, ĉar tia estas lia sorto; ĉar kiu alkondukos lin, por vidi, kio estas post li?
 
-ĉapitro 4
+ĉapitro
 
-1 Kaj mi returniĝis, kaj mi vidis ĉiujn premojn, kiuj estas farataj sub la suno: kaj jen estas larmoj de prematoj, kaj ne ekzistas por ili konsolanto; kaj perforteco de la mano de iliaj premantoj, kaj ne ekzistas por ili konsolanto. 2 Kaj mi trovis, ke la mortintoj, kiuj jam an-taŭ longe mortis, estas pli feliĉaj ol la vivantoj, kiuj vivas ĝis nun; 3
+1 Kaj mi returniĝis, kaj mi vidis ĉiujn premojn, kiuj estas farataj sub la suno: kaj jen estas larmoj de prematoj, kaj ne ekzistas por ili konsolanto; kaj perforteco de la mano de iliaj premantoj, kaj ne ekzistas por ili konsolanto. 2 Kaj mi trovis, ke la mortintoj, kiuj jam an-taŭ longe mortis, estas pli feliĉaj ol la vivantoj, kiuj vivas ĝis nun;
 
 kaj pli feliĉa ol ili ambaŭ estas tiu, kiu ĝis nun ne ekzistis, kiu ne vidis la malbonajn farojn, kiuj estas farataj sub la suno.
 
@@ -24117,16 +22727,9 @@ kaj pli feliĉa ol ili ambaŭ estas tiu, kiu ĝis nun ne ekzistis, kiu ne vidis 
 
 ventaĵo. 5 Malsaĝulo kunmetas siajn manojn, kaj formanĝas sian
 
-korpon. 6 Pli bone estas plenmano da trankvilanimeco, ol ambaŭ-
+korpon. 6 Pli bone estas plenmano da trankvilanimeco, ol ambaŭmano da penado kaj ventaĵo.
 
-mano da penado kaj ventaĵo.
-
-7 Kaj denove mi turniĝis, kaj vidis vantaĵon sub la suno: 8 jen es-1296
-
-L A S A N K TA B I B L I O
-
-
-tas solulo, kaj neniun alian li havas; nek filon nek fraton li havas; kaj tamen ne havas finon lia laborado, kaj lia okulo ne povas satiĝi de riĉeco; por kiu do mi laboras kaj senigas mian animon de ĝuado? ĉi tio ankaŭ estas vantaĵo kaj malbona afero. 9 Pli bone estas al du ol al unu, ĉar ili havas bonan rekompencon por sia laborado. 10 ĉar se ili falos, unu levos la alian; sed ve al solulo, se li falos, kaj se ne estas alia, kiu lin levus. 11 Ankaŭ se du kuŝiĝas, estas al ili varme; sed unu—kiel li varmiĝos? 12 Kaj se iu montros sin pli forta kontraŭ unu, tiam ambaŭ kontraŭstaros lin; eĉ fadeno triopigita ne baldaŭ dis-
+7 Kaj denove mi turniĝis, kaj vidis vantaĵon sub la suno: 8 jen estas solulo, kaj neniun alian li havas; nek filon nek fraton li havas; kaj tamen ne havas finon lia laborado, kaj lia okulo ne povas satiĝi de riĉeco; por kiu do mi laboras kaj senigas mian animon de ĝuado? ĉi tio ankaŭ estas vantaĵo kaj malbona afero. 9 Pli bone estas al du ol al unu, ĉar ili havas bonan rekompencon por sia laborado. 10 ĉar se ili falos, unu levos la alian; sed ve al solulo, se li falos, kaj se ne estas alia, kiu lin levus. 11 Ankaŭ se du kuŝiĝas, estas al ili varme; sed unu—kiel li varmiĝos? 12 Kaj se iu montros sin pli forta kontraŭ unu, tiam ambaŭ kontraŭstaros lin; eĉ fadeno triopigita ne baldaŭ dis-
 
 ŝiriĝos.
 
@@ -24134,30 +22737,22 @@ tas solulo, kaj neniun alian li havas; nek filon nek fraton li havas; kaj tamen 
 
 malsaĝa, kiu jam ne povas akiri scion. 14 Iu el malliberejo eliris, kaj fariĝis reĝo; alia por reĝeco naskiĝis, kaj tamen estas malriĉa. 15 Mi vidis, ke ĉiu vivanto iras sub la suno kun la junulo: ĝi estas la alia, kiu okupos lian lokon. 16 Senfina estas la popolo, antaŭ kiu li estis, kaj tamen la posteuloj ne ĝojos pri li; ankaŭ ĉi tio estas vantaĵo kaj ventaĵo.
 
-ĉapitro 5
+ĉapitro
 
 1 Gardu vian piedon, kiam vi iros en la domon de Dio, kaj estu preta pli por aŭskultado, ol por oferdonado de malsaĝuloj; ĉar ili ne scias, ke ili agas malbone. 2 Ne rapidu kun via buŝo, kaj via koro ne rapidu elparoli vorton antaŭ Dio, ĉar Dio estas en la ĉielo, kaj vi estas sur la tero; tial malmultaj estu viaj vortoj. 3 ĉar sonĝo pre-zentiĝas per multe da agado, kaj parolo de malsaĝulo konsistas el
 
 multe da vortoj. 4 Kiam vi faros promeson al Dio, ne prokrastu ĝin plenumi; ĉar malagrablaj al Li estas malsaĝuloj: kion vi promesis, tion plenumu. 5 Pli bone estas, ke vi ne faru promeson, ol fari promeson kaj ne plenumi. 6 Ne permesu al via buŝo pekigi vian korpon, 1297
-
-L A S A N K TA B I B L I O
 
 
 kaj ne diru al la sendito de Dio, ke ĝi estas eraro; kial fari, ke Dio koleru pro via parolo, kaj ke Li detruu la faron de viaj manoj? 7 ĉe multo da sonĝoj kaj vantaĵoj estas ankaŭ multe da vortoj; sed vi
 
 timu Dion.
 
-8 Se premadon de malriĉulo kaj rompadon de justeco kaj hones-
+8 Se premadon de malriĉulo kaj rompadon de justeco kaj honesteco vi vidas en lando, ne miru; ĉar pli alta kontrolas pli altan, kaj plej altaj ilntrolas. 9 Kaj superecon en ĉio havas tiu lando, en kiu la reĝo servas al la tero.
 
-teco vi vidas en lando, ne miru; ĉar pli alta kontrolas pli altan, kaj plej altaj ilntrolas. 9 Kaj superecon en ĉio havas tiu lando, en kiu la reĝo servas al la tero.
+10 Kiu amas monon, tiu ne satiĝos per mono; kaj kiu amas riĉecon, al tiu ĝi ne donos utilon: ankaŭ ĉi tio estas vantaĵo. 11 Ju pli estas da havo, des pli multaj estas ĝiaj konsumantoj; kaj kian profiton havas ĝia mastro, krom vidi ĝin per siaj okuloj? 12 Dolĉa estas la dormo de laboranto, ĉu li manĝas malmulte aŭ multe; sed trosa-teco ne lasas la riĉulon dormi.
 
-10 Kiu amas monon, tiu ne satiĝos per mono; kaj kiu amas riĉe-
-
-con, al tiu ĝi ne donos utilon: ankaŭ ĉi tio estas vantaĵo. 11 Ju pli estas da havo, des pli multaj estas ĝiaj konsumantoj; kaj kian profiton havas ĝia mastro, krom vidi ĝin per siaj okuloj? 12 Dolĉa estas la dormo de laboranto, ĉu li manĝas malmulte aŭ multe; sed trosa-teco ne lasas la riĉulon dormi.
-
-13 Turmentan malbonon mi vidis sub la suno: riĉecon konserva-
-
-tan por la malutilo de ĝia propra mastro. 14 Kaj pereas ĉi tiu riĉeco en malfavoraj cirkonstancoj; naskiĝas filo, kaj li nenion havas en la mano. 15 Kiel li eliris el la ventro de sia patrino, tiel nuda li foriras, kiel li venis; kaj nenion li elportas el sia laboro, kion li povus porti en la mano. 16 Kaj ĉi tio estas turmenta doloro, ke kiel li venis, tiel li foriras; kian do profiton li havas de tio, ke li laboras por la vento? 17 Kaj ĉiujn siajn tagojn li konsumis en mallumo, en multe da
+13 Turmentan malbonon mi vidis sub la suno: riĉecon konservatan por la malutilo de ĝia propra mastro. 14 Kaj pereas ĉi tiu riĉeco en malfavoraj cirkonstancoj; naskiĝas filo, kaj li nenion havas en la mano. 15 Kiel li eliris el la ventro de sia patrino, tiel nuda li foriras, kiel li venis; kaj nenion li elportas el sia laboro, kion li povus porti en la mano. 16 Kaj ĉi tio estas turmenta doloro, ke kiel li venis, tiel li foriras; kian do profiton li havas de tio, ke li laboras por la vento? 17 Kaj ĉiujn siajn tagojn li konsumis en mallumo, en multe da
 
 ekscitiĝo, en malsano kaj malagrablaĵoj!
 
@@ -24166,18 +22761,13 @@ ekscitiĝo, en malsano kaj malagrablaĵoj!
 ĝui plezurojn de ĉiuj siaj laboroj, kiujn homo laboras sub la suno dum la tagoj de sia vivo, kiujn donis al li Dio; ĉar tio estas lia apartenaĵo. 19 Kaj se al iu homo Dio donis riĉecon kaj havon, kaj donis al li la povon konsumi ilin kaj preni sian parton kaj ĝui plezuron de siaj laboroj, ĉi tio estas dono de Dio. 20 ĉar ne longe li memoros la tagojn de sia vivo; Dio donas al li ĝojon de lia koro.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 6
+ĉapitro
 
 1 Ekzistas malbono, kiun mi vidis sub la suno, kaj granda ĝi estas por la homo: 2 se al iu homo Dio donas riĉecon kaj havon kaj honoron, kaj al lia animo mankas nenio, kion ajn li dezirus, sed Dio ne donas al li la povon konsumi ĝin, nur fremda homo ĝnsumas—
 
 ĉi tio estas vantaĵo kaj malfacila doloro. 3 Se iu homo naskigus cent infanojn kaj vivus multajn jarojn kaj atingus profundan aĝon, sed
 
-lia animo ne ĝuus sate la havon, kaj eĉ bonan enterigon li ne ha-
-
-vus—tiam mi dirus: Pli feliĉa ol li estas abortito. 4 ĉar ĉi tiu vante venis kaj en mallumon foriris, kaj en mallumo kaŝiĝos lia nomo. 5
+lia animo ne ĝuus sate la havon, kaj eĉ bonan enterigon li ne havus—tiam mi dirus: Pli feliĉa ol li estas abortito. 4 ĉar ĉi tiu vante venis kaj en mallumon foriris, kaj en mallumo kaŝiĝos lia nomo.
 
 Eĉ la sunon li ne vidis kaj ne konis—al li estas pli trankvile ol al tiu.
 
@@ -24187,13 +22777,11 @@ saĝulo antaŭ malsaĝulo, la inteligenta malriĉulo antaŭ aliaj vivaj estaĵoj
 
 10 Kio ajn ekzistas, tio de longe havas nomon; kaj estas sciate, kia estas la homo, kaj ke li ne povas juĝe batali kun Tiu, kiu estas pli forta ol li. 11 ĉar ekzistas multe da aferoj, kiuj plimultigas la vantaĵon; kian do superecon havas la homo? 12 ĉar kiu scias, kio estas bona por la homo dum la tagoj de lia vanta vivo, kiun li pasigas kiel ombro? kaj kiu diros al la homo, kio estos post li sub la suno?
 
-ĉapitro 7
+ĉapitro
 
 1 Pli bona estas bona nomo, ol bona oleo; kaj la tago de la morto
 
 estas pli bona, ol la tago de la naskiĝo. 2 Pli bone estas iri en domon de funebro, ol iri en domon de festenado; ĉar morto estas la fino de ĉiu homo, kaj la vivanto notos ĉi tion en sia koro. 3 Pli bona estas 1299
-
-L A S A N K TA B I B L I O
 
 
 plendo, ol rido; ĉar ĉe malĝojo de la vizaĝo pliboniĝas la koro. 4 La koro de saĝuloj estas en domo de funebro, kaj la koro de malsaĝuloj en domo de ĝojo. 5 Pli bone estas aŭskulti riproĉon de saĝulo, ol
@@ -24208,9 +22796,7 @@ konsistas en tio, ke la saĝeco donas vivon al sia posedanto. 13 Rigardu la faro
 
 atendu: ĉi tion kaj tion aranĝis Dio, por ke la homo nenion kompre-nu post Li.
 
-15 ĉion tion mi vidis en miaj vantaj tagoj: okazas, ke virtulo pe-
-
-reas ĉe sia virteco, kaj okazas, ke malvirtulo longe vivas ĉe sia malvirteco. 16 Ne estu tro virta, kaj ne rezonu tro multe: kial vi devas vnfuzi? 17 Ne malvirtu tro multe, kaj ne estu senprudenta: kial vi devas morti ne en via tempo? 18 Bone estas, se vi tenos je unu afero kaj ankaŭ de alia afero vi ne forprenos vian manon; ĉar tiu, kiu timas Dion, penas plaĉi al ĉiuj.
+15 ĉion tion mi vidis en miaj vantaj tagoj: okazas, ke virtulo pereas ĉe sia virteco, kaj okazas, ke malvirtulo longe vivas ĉe sia malvirteco. 16 Ne estu tro virta, kaj ne rezonu tro multe: kial vi devas vnfuzi? 17 Ne malvirtu tro multe, kaj ne estu senprudenta: kial vi devas morti ne en via tempo? 18 Bone estas, se vi tenos je unu afero kaj ankaŭ de alia afero vi ne forprenos vian manon; ĉar tiu, kiu timas Dion, penas plaĉi al ĉiuj.
 
 19 La saĝeco faras la saĝulon pli forta, ol dek potenculoj en la
 
@@ -24219,18 +22805,13 @@ urbo. 20 ĉar ne ekzistas sur la tero virtulo, kiu farus nur bonon kaj ne pekus.
 konsciis via koro, ke ankaŭ vi malbenis aliajn.
 
 
-L A S A N K TA B I B L I O
-
-
 23 ĉion ĉi tion mi provis per mia saĝo; mi diris al mi: Mi akiru
 
-saĝon; tamen ĝi estas malproksima de mi. 24 Kio estas malproksi-
-
-ma kaj tre profunda, kiu tion komprenos? 25 Mi turnis min kun mia
+saĝon; tamen ĝi estas malproksima de mi. 24 Kio estas malproksima kaj tre profunda, kiu tion komprenos? 25 Mi turnis min kun mia
 
 koro, por ekkoni, esplori, kaj traserĉi saĝecon kaj prudenton, kaj ekscii, ke la malvirteco estas malsaĝeco kaj ke la senscieco estas sensenca. 26 Kaj mi trovas, ke pli malbona ol la morto estas la virino, kiu estas kaptilo, kaj kies koro estas reto, kaj kies manoj estas katenoj; tiu, kiu plaĉas al Dio, sin savos de ŝi, sed pekulo estos kaptita de ŝi. 27 Jen, kion mi trovis, diris la Predikanto: oni devas kuni-gi unu fakton kun alia, por veni al konkludo. 28 Jen, kion ankoraŭ serĉis mia animo kaj ne trovis: viron unu inter mil mi trovis, sed virinon inter ĉiuj mi tute ne trovis. 29 Nur ĉi tion mi trovis, ke Dio kreis la homon virtema; sed la homoj fordonis sin al multaj artifikoj.
 
-ĉapitro 8
+ĉapitro
 
 1 Kiu estas simila al saĝulo? kaj kiu komprenas la sencon de la aferoj? Saĝeco de homo lumigas lian vizaĝon, kaj la maldelikateco de
 
@@ -24244,34 +22825,23 @@ kaj manieron de agado scias la koro de saĝulo. 6 ĉar por ĉiu afero estas ĝia
 
 malbono de tio, 7 ke li ne scias, kio estos; ĉar kiu diros al vi, kiel estos? 8 Neniu homo povas regi la venton kaj reteni la venton, neniu povas regi la tagon de la morto; ne ekzistas forpermeso en tiu milito, kaj malvirteco ne savas sian faranton. 9 ĉion ĉi tion mi vidis, kaj 1301
 
-L A S A N K TA B I B L I O
-
 
 mi atentis ĉiun aferon, kiu estas farata sub la suno, kaj tiun tempon, en kiu homo regas homon al lia malbono.
 
-10 Kaj ankaŭ mi vidis, ke oni enterigis malvirtulojn, kiuj venadis kaj eliradis el la sankta loko, kaj kiuj estis forgesitaj en la urbo, kie ili tiel agis; kaj ĉi tio ankaŭ estas vantaĵo. 11 ĉar ne baldaŭ estas farata juĝo kontraŭ malbonaj faroj, tial plene kuraĝas la koro de homidoj fari malbonon. 12 Kvankam pekulo faras malbonon cent foj-
-
-ojn, kaj Dio estas pacienca al li, tamen mi scias, ke estos bone al tiuj, kiuj timas Dion, kiuj respektas Lin. 13 Kaj ne estos bone al malvirtulo, kaj ne tenos sin longe, simile al ombro, tiu, kiu ne timas Dion.
+10 Kaj ankaŭ mi vidis, ke oni enterigis malvirtulojn, kiuj venadis kaj eliradis el la sankta loko, kaj kiuj estis forgesitaj en la urbo, kie ili tiel agis; kaj ĉi tio ankaŭ estas vantaĵo. 11 ĉar ne baldaŭ estas farata juĝo kontraŭ malbonaj faroj, tial plene kuraĝas la koro de homidoj fari malbonon. 12 Kvankam pekulo faras malbonon cent fojojn, kaj Dio estas pacienca al li, tamen mi scias, ke estos bone al tiuj, kiuj timas Dion, kiuj respektas Lin. 13 Kaj ne estos bone al malvirtulo, kaj ne tenos sin longe, simile al ombro, tiu, kiu ne timas Dion.
 
 14 Ekzistas vantaĵo, kiu fariĝas sur la tero: ekzistas virtuloj, al kiuj fariĝas tio sama, kio fariĝas al malvirtuloj; kaj ekzistas malvirtuloj, al kiuj fariĝas tio sama, kio al la virtuloj; kaj mi diris al mi, ke an-kaŭ ĉi tio estas vantaĵo. 15 Kaj mi eklaŭdis la gajecon, ĉar ne ekzistas io pli bona por homo sub la suno, ol manĝi, trinki, kaj gaji, kaj ke ĉi tio akompanu lin en liaj laboroj en la tagoj de lia vivo, kiujn donis al li Dio sub la suno.
 
-16 Kiam mi direktis mian koron, por ekkoni saĝecon, kaj por ĉir-
+16 Kiam mi direktis mian koron, por ekkoni saĝecon, kaj por ĉirkaŭrigardi la aferojn, kiuj estas farataj sur la tero tiamaniere, ke nek tage nek nokte homo vidas dormon sur siaj okuloj; kaj kiam mi rigardis ĉiujn farojn de Dio: 17 tiam mi trovis, ke homo ne povas kompreni la aferojn, kiuj fariĝas sub la suno; kiom ajn la homo penus esplori, li ne komprenos; kaj se eĉ saĝulo diras, ke li scias, li tamen ne povas kompreni.
 
-kaŭrigardi la aferojn, kiuj estas farataj sur la tero tiamaniere, ke nek tage nek nokte homo vidas dormon sur siaj okuloj; kaj kiam mi rigardis ĉiujn farojn de Dio: 17 tiam mi trovis, ke homo ne povas kompreni la aferojn, kiuj fariĝas sub la suno; kiom ajn la homo penus esplori, li ne komprenos; kaj se eĉ saĝulo diras, ke li scias, li tamen ne povas kompreni.
-
-ĉapitro 9
+ĉapitro
 
 1 Al ĉio ĉi tio mi direktis mian koron, por esplori ĉion ĉi tion, ke la virtuloj kaj saĝuloj kaj iliaj faroj estas en la mano de Dio; kaj nek amon nek malamon scias la homo, kaj nenion, kio lin atendas. 2 Al
 
 
-L A S A N K TA B I B L I O
-
-
 ĉiuj estas la sama sorto: al la virtulo kaj al la malvirtulo, al la bona kaj pura kaj al la malpura, al la oferfaranto kaj al tiu, kiu ne oferfaras, al la bonulo kaj al la pekulo, al la ĵuranto kaj al tiu, kiu timas ĵuron. 3 ĉi tio estas malbona en ĉio, kio fariĝas sub la suno, ke la sama sorto ekzistas por ĉiuj, kaj la koro de la homidoj estas plena de malbono, kaj sensencaĵo estas en ilia koro dum ilia vivado, kaj poste ili transiras al la mortintoj. 4 ĉar kiu troviĝas inter la vivuloj, tiu havas ankoraŭ esperon; ĉar eĉ al hundo vivanta estas pli bone, ol al leono mortinta. 5 ĉar la vivantoj scias, ke ili mortos; kaj la mortintoj scias nenion, kaj por ili jam ne ekzistas rekompenco, ĉar la memoro pri ili estas forgesita. 6 Kaj ilia amo, kaj ilia malamo, kaj ilia ĵaluzo jam de longe malaperis; kaj jam por neniam ili havas parto-prenon en io, kio fariĝas sub la suno.
 
-7 Iru, manĝu ĝoje vian panon, kaj trinku kun gaja koro vian vi-
-
-non, se Dio favoris viajn aferojn. 8 En ĉiu tempo viaj vestoj estu blankaj, kaj oleo ne manku sur via kapo. 9 uu la vivon kun la edzino, kiun vi amas en la tempo de via tuta vanta vivo, kaj kiun Dio donis al vi por ĉiuj viaj vantaj tagoj; ĉar ĉi tio estas via apartenaĵo en via vivo, kaj en viaj laboroj, kiujn vi laboris sub la suno. 10 Kion ajn via mano povas fari laŭ via forto, tion faru; ĉar ekzistas nek faro, nek kalkulo, nek scio, nek saĝo, en ŝeol, kien vi iros.
+7 Iru, manĝu ĝoje vian panon, kaj trinku kun gaja koro vian vinon, se Dio favoris viajn aferojn. 8 En ĉiu tempo viaj vestoj estu blankaj, kaj oleo ne manku sur via kapo. 9 uu la vivon kun la edzino, kiun vi amas en la tempo de via tuta vanta vivo, kaj kiun Dio donis al vi por ĉiuj viaj vantaj tagoj; ĉar ĉi tio estas via apartenaĵo en via vivo, kaj en viaj laboroj, kiujn vi laboris sub la suno. 10 Kion ajn via mano povas fari laŭ via forto, tion faru; ĉar ekzistas nek faro, nek kalkulo, nek scio, nek saĝo, en ŝeol, kien vi iros.
 
 11 Aliflanke mi vidis sub la suno, ke ne de la rapiduloj dependas
 
@@ -24282,31 +22852,22 @@ la kuro, ne de la fortuloj dependas la milito, kaj ne la saĝuloj havas panon, k
 granda: 14 estis urbo malgranda, kaj malmulte da homoj ĝi havis;
 
 
-L A S A N K TA B I B L I O
-
-
 venis al ĝi granda reĝo, kaj sieĝis ĝin, kaj konstruis ĉirkaŭ ĝi grandajn sieĝajn fortikaĵojn; 15 sed troviĝis en ĝi homo malriĉa sed saĝa, kaj li savis la urbon per sia saĝeco; tamen neniu rememoris tiun
 
 malriĉan homon. 16 Kaj mi diris: Pli bona estas saĝo ol forto, tamen la saĝo de malriĉulo estas malrespektata, kaj liaj vortoj ne estas aŭdataj.
 
 17 La vortoj de saĝuloj, trankvile aŭskultitaj, estas pli bonaj ol la kriado de reganto inter malsaĝuloj. 18 Pli bona estas saĝo, ol mili-taj instrumentoj; kaj unu pekulo pereigas multe da bono.
 
-ĉapitro 10
+ĉapitro
 
 1 Venenaj muŝoj putrigas kaj haladzigas la oleon de parfumisto; pli ŝatata ol saĝo kaj honoro ofte estas malgranda malsaĝaĵo. 2 La koro de saĝulo estas ĉe lia dekstra flanko, kaj la koro de malsaĝulo ĉe lia maldekstra. 3 Kaj eĉ en la vojo, laŭ kiu iras malsaĝulo, mankas al li saĝo, kaj al ĉiu li diras, ke li estas malsaĝulo. 4 Se atakos vlero de reganto, ne forlasu vian lokon, ĉar mildeco pardonigas eĉ grandajn krimojn. 5 Ekzistas malbono, kiun mi vidis sub la suno; ĝi estas kvazaŭ eraro, venanta de la reganto: 6 senscieco estas metata tre alte, kaj la riĉuloj sidas malalte. 7 Mi vidis sklavojn sur ĉevaloj, kaj princojn, irantajn piede, kiel sklavoj. 8 Kiu fosas kavon, tiu falos en
 
-ĝin; kaj kiu detruas muron, tiun mordos serpento. 9 Kiu transmo-
-
-vas ŝtonojn, tiu faras al si difekton per streĉo; kaj kiu hakas lignon, tiu sin vundas per ĝi. 10 Se malakriĝas la hakilo, kaj oni ne akrigas la tranĉan flankon, oni devas streĉi la fortojn; kaj la ĉefaĵo estas prepari ĉion saĝe. 11 Se mordis la serpento sen kuracparolo, tiam jam ne utilas kuracparolanto. 12 Vortoj el buŝo de saĝulo estas agrablaj, sed la buŝo de malsaĝulo lin mem pereigas. 13 La komenco de la
+ĝin; kaj kiu detruas muron, tiun mordos serpento. 9 Kiu transmovas ŝtonojn, tiu faras al si difekton per streĉo; kaj kiu hakas lignon, tiu sin vundas per ĝi. 10 Se malakriĝas la hakilo, kaj oni ne akrigas la tranĉan flankon, oni devas streĉi la fortojn; kaj la ĉefaĵo estas prepari ĉion saĝe. 11 Se mordis la serpento sen kuracparolo, tiam jam ne utilas kuracparolanto. 12 Vortoj el buŝo de saĝulo estas agrablaj, sed la buŝo de malsaĝulo lin mem pereigas. 13 La komenco de la
 
 parolo de lia buŝo estas malsaĝaĵo, kaj la fino de lia parolo estas 1304
 
-L A S A N K TA B I B L I O
 
-
-abomeninda sensencaĵo. 14 Malsaĝulo multe parolas, kvankam ho-
-
-mo ne scias, kio estos; kaj kio estos post li? kiu ĉi tion diros al li? 15
+abomeninda sensencaĵo. 14 Malsaĝulo multe parolas, kvankam homo ne scias, kio estos; kaj kio estos post li? kiu ĉi tion diros al li?
 
 Penado de malsaĝuloj lacigas ĉiun, kiu ne scias eĉ la vojon al la
 
@@ -24314,34 +22875,25 @@ urbo. 16 Ve al vi, ho lando, se via reĝo estas infano kaj viaj princoj manĝas 
 
 malbenu riĉulon; ĉar birdo ĉiela transportos vian voĉon, kaj flugi-la estaĵo eldiros vian parolon.
 
-ĉapitro 11
+ĉapitro
 
-1 Elsendu vian panon sur la akvon; ĉar post longa tempo vi ĝin re-
-
-trovos. 2 Donu parton al sep, kaj eĉ al ok, ĉar vi ne scias, ĉu ne estos malfeliĉo sur la tero. 3 Kiam la nuboj pleniĝos, ili verŝos pluvon sur la teron, kaj se falos arbo suden aŭ norden, ĝi tie restos, kien ĝi falis. 4 Kiu observas la venton, tiu ne semos; kaj kiu rigardas la nubojn, tiu ne rikoltos. 5 Kiel vi ne scias, kian vojon iros la vento, kaj kiel formiĝas la ostoj en la ventro de gravedulino, tiel vi ne povas scii la faron de Dio, kiu ĉion faras. 6 Matenu semu vian semon, kaj vespere via mano ne ripozu; ĉar vi ne scias, ĉu tio aŭ alio estos pli
+1 Elsendu vian panon sur la akvon; ĉar post longa tempo vi ĝin retrovos. 2 Donu parton al sep, kaj eĉ al ok, ĉar vi ne scias, ĉu ne estos malfeliĉo sur la tero. 3 Kiam la nuboj pleniĝos, ili verŝos pluvon sur la teron, kaj se falos arbo suden aŭ norden, ĝi tie restos, kien ĝi falis. 4 Kiu observas la venton, tiu ne semos; kaj kiu rigardas la nubojn, tiu ne rikoltos. 5 Kiel vi ne scias, kian vojon iros la vento, kaj kiel formiĝas la ostoj en la ventro de gravedulino, tiel vi ne povas scii la faron de Dio, kiu ĉion faras. 6 Matenu semu vian semon, kaj vespere via mano ne ripozu; ĉar vi ne scias, ĉu tio aŭ alio estos pli
 
 ĝusta, aŭ ĉu ambaŭ egale estos bonaj. 7 Agrabla estas la lumo, kaj bone estas al la okuloj vidi la sunon. 8 ĉar se eĉ multajn jarojn homo vivus, li ĝoju en ili ĉiuj; kaj li memoru pri la tagoj mallumaj, ĉar estos multe da ili; ĉio, kio venos, estas vantaĵo.
 
 9 oju, junulo, en via infaneco; kaj via koro ĝuu plezuron en la
 
-tagoj de via juneco, kaj iru, kien kondukas vin via koro kaj kien ri-1305
-
-L A S A N K TA B I B L I O
-
-
-gardas viaj okuloj; sed sciu, ke pri ĉio ĉi tio Dio venigos vin al juĝo.
+tagoj de via juneco, kaj iru, kien kondukas vin via koro kaj kien rigardas viaj okuloj; sed sciu, ke pri ĉio ĉi tio Dio venigos vin al juĝo.
 
 10 Tial forpelu malĝojon de via koro, kaj forigu malagrablaĵon de via korpo; ĉar la infaneco kaj la juneco estas vantaĵo.
 
-ĉapitro 12
+ĉapitro
 
 1 Kaj memoru vian Kreinton en la tagoj de via juneco, dum ankoraŭ
 
 ne venis la tagoj de malbono, kaj ne venis la jaroj, pri kiuj vi diros: Mi ne havas plezuron de ili; 2 dum ne mallumiĝis la suno, la lumo, la luno, kaj la steloj, kaj ne revenis nuboj post la pluvo; 3 en la tago, kiam ektremos la gardantoj de la domo, kaj malfortiĝos la militan-toj, kaj ĉesos mueli la muelantinoj, ĉar estos malmulte da ili, kaj senvidiĝos la rigardantinoj tra la fenestroj; 4 kaj fermitaj estos la pordoj al la strato, kiam eksilentos la sonado de la muelŝtono; kaj homo leviĝados laŭ la krio de birdo, kaj mallaŭtiĝos la sonoj de
 
-kantoj; 5 kaj altaĵojn ili ektimos, kaj sur la vojo aperos teruroj, kaj ekfloros la migdalarbo, kaj peziĝos la lokusto, kaj malaperos deziro: tiam homo foriros en sian eternan domon, kaj sur la strato mar-
-
-ŝos plorantoj; 6 ĝis disŝiriĝos la arĝenta ĉeneto, rompiĝos la ora lam-peto, rompiĝos la kruĉo ĉe la fonto, kaj falos la rado en la puton; 7
+kantoj; 5 kaj altaĵojn ili ektimos, kaj sur la vojo aperos teruroj, kaj ekfloros la migdalarbo, kaj peziĝos la lokusto, kaj malaperos deziro: tiam homo foriros en sian eternan domon, kaj sur la strato marŝos plorantoj; 6 ĝis disŝiriĝos la arĝenta ĉeneto, rompiĝos la ora lam-peto, rompiĝos la kruĉo ĉe la fonto, kaj falos la rado en la puton;
 
 kaj la polvo refariĝos tero, kiel ĝi estis, kaj la spirito reiros al Dio, kiu
 
@@ -24351,22 +22903,15 @@ kaj la polvo refariĝos tero, kiel ĝi estis, kaj la spirito reiros al Dio, kiu
 
 11 La paroloj de saĝuloj estas kiel akraj pintoj, kaj kiel enbatitaj najloj estas la vortoj de publikaj parolistoj; ili estas donitaj de unu paŝtisto. 12 Kaj krom tio, mia filo, akceptu mian instruon, ke se oni 1306
 
-L A S A N K TA B I B L I O
-
 
 volus verki multajn librojn, ne estus fino, kaj multe legi lacigas la korpon.
 
-13 Ni aŭskultu la finon de ĉio: timu Dion, kaj plenumu Liajn or-
-
-donojn, ĉar ĉi tio estas ĉio por la homo. 14 ĉar ĉiun faron Dio venigos al juĝo, eĉ ĉion kaŝitan, ĉu ĝi estas bona aŭ malbona.
-
-
-L A S A N K TA B I B L I O
+13 Ni aŭskultu la finon de ĉio: timu Dion, kaj plenumu Liajn ordonojn, ĉar ĉi tio estas ĉio por la homo. 14 ĉar ĉiun faron Dio venigos al juĝo, eĉ ĉion kaŝitan, ĉu ĝi estas bona aŭ malbona.
 
 
 Alta kanto de Salomono
 
-ĉapitro 1
+ĉapitro
 
 1 Alta kanto de Salomono.
 
@@ -24415,9 +22960,6 @@ Mian propran vinberĝardenon mi ne gardis.
 
 
 Diru al mi, ho vi, kiun mia animo amas,
-
-
-L A S A N K TA B I B L I O
 
 
 Kie vi paŝtas, kie vi ripozigas vian brutaron tagmeze:
@@ -24471,10 +23013,7 @@ Nia lito estas kiel freŝaj herboj;
 Niaj ĉevronoj estas abiaj.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 2
+ĉapitro
 
 
 Mi estas la lilio de ŝaron,
@@ -24536,9 +23075,6 @@ Rigardante tra la fenestro,
 Sin montrante ĉe la krado.
 
 
-L A S A N K TA B I B L I O
-
-
 10 Mia amato vokas, li parolas al mi:
 
 Leviĝu, mia amatino, mia belulino, ho venu;
@@ -24587,7 +23123,7 @@ Turnu vin, ho amato, similiĝu al gazelo aŭ al cervo
 
 Sur la montoj de aromaĵoj.
 
-ĉapitro 3
+ĉapitro
 
 
 Sur mia kuŝejo dum la nokto mi serĉis tiun, kiun mia animo
@@ -24595,9 +23131,6 @@ Sur mia kuŝejo dum la nokto mi serĉis tiun, kiun mia animo
 amas;
 
 Mi serĉis lin, sed mi lin ne trovis.
-
-
-L A S A N K TA B I B L I O
 
 
 Mi leviĝos, kaj irados tra la urbo;
@@ -24664,9 +23197,6 @@ La ĉarpentaĵon el oro, la tegaĵon el purpuro;
 La interno estas pavimita per la amo de la filinoj de Jerusalem.
 
 
-L A S A N K TA B I B L I O
-
-
 11 Iru tien, ho filinoj de Cion, kaj vidu la reĝon Salomono,
 
 Vestitan per la krono, per kiu lia patrino kronis lin en la
@@ -24675,7 +23205,7 @@ tago de lia edziĝofesto,
 
 En la tago de la ĝojo de lia koro.
 
-ĉapitro 4
+ĉapitro
 
 
 Vi estas bela, mia amatino, vi estas bela;
@@ -24727,9 +23257,6 @@ Mi foriros al la monto de mirho kaj al la altaĵo de olibano.
 Via tutaĵo estas bela, mia amatino;
 
 Vi ne havas difekton.
-
-
-L A S A N K TA B I B L I O
 
 
 Kun mi el Lebanon venu, ho mia fianĉino,
@@ -24792,14 +23319,11 @@ Kaj riveretoj elfluantaj el Lebanon.
 Trablovu mian ĝardenon, ke ĝiaj aromaĵoj elfluu.
 
 
-L A S A N K TA B I B L I O
-
-
 Venu mia amato en sian ĝardenon
 
 Kaj manĝu ĝiajn multevalorajn fruktojn.
 
-ĉapitro 5
+ĉapitro
 
 
 Mi venis en mian ĝardenon, mia fratino, mia fianĉino;
@@ -24854,9 +23378,6 @@ Sed mia amato forturniĝis kaj malaperis.
 Mia animo tremis, dum li parolis;
 
 Mi lin serĉis, sed mi lin ne trovis;
-
-
-L A S A N K TA B I B L I O
 
 
 Mi vokis lin, sed li ne respondis al mi.
@@ -24919,10 +23440,7 @@ Tia estas mia amato, kaj tia estas mia kamarado,
 Ho filinoj de Jerusalem.
 
 
-L A S A N K TA B I B L I O
-
-
-ĉapitro 6
+ĉapitro
 
 
 Kien foriris via amato,
@@ -24988,9 +23506,6 @@ La elektita de sia naskintino;
 La filinoj vidis ŝin, kaj nomas ŝin feliĉulino;
 
 
-L A S A N K TA B I B L I O
-
-
 La reĝinoj kaj la kromvirinoj laŭdas ŝin, dirante:
 
 10 Kiu estas ŝi, kiu aspektas kiel la matenruĝo,
@@ -25021,7 +23536,7 @@ Kial vi volas rigardi ŝulamiton tiel,
 
 Kiel oni rigardas la dancadon de la taĉmentoj?
 
-ĉapitro 7
+ĉapitro
 
 
 Kiel belaj estas viaj paŝoj en sandaloj, ho filino de princo!
@@ -25041,9 +23556,6 @@ Via ventro estas kiel amaso da tritiko ĉirkaŭita de rozoj;
 Viaj du mamoj estas kiel du cervidoj,
 
 emeloj de gazelino;
-
-
-L A S A N K TA B I B L I O
 
 
 Via kolo estas kiel turo el eburo;
@@ -25110,12 +23622,9 @@ Kaj apud nia enirejo troviĝas delikataj fruktoj ĉiuspecaj, fruaj
 kaj malfruaj,
 
 
-L A S A N K TA B I B L I O
-
-
 Kiujn mi provizis por vi, ho mia amato!
 
-ĉapitro 8
+ĉapitro
 
 
 Ho, se vi estus al mi kiel frato,
@@ -25173,9 +23682,6 @@ La flamo de la Eternulo.
 Granda akvo ne povas estingi la amon,
 
 
-L A S A N K TA B I B L I O
-
-
 Kaj riveroj ne povas superakvi ĝin;
 
 Se homo proponus doni la tutan havaĵon de sia domo
@@ -25225,12 +23731,6 @@ Al mi ĝin aŭdigu.
 Kaj similiĝu al gazelo aŭ al cervo
 
 Sur la montoj de aromaĵoj.
-
-
-L A S A N K TA B I B L I O
-
-
-X
 
 
 # Document Outline

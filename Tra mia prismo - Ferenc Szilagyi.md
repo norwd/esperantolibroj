@@ -17,14 +17,6 @@ TRA MIA PRISMO
 Tradukoj el diverslingvaj literaturoj
 
 
-@omnibus.se
-
-·
-
-
-T R A M I A P R I S M O
-
-
 Edeno
 
 E. A. Karlfeldt
@@ -58,9 +50,6 @@ vekas sin,
 flegas sin,
 
 inter abrotan’, salvio
-
-
-T R A M I A P R I S M O
 
 
 snufas pala naz’ al roz’; sur petalo – ruĝa – ros’.
@@ -99,9 +88,7 @@ Devos li ŝvite rasti,
 
 devos ŝi krie naski,
 
-devos draŝiĝi en ĝem’ la tent’, krimon Kainan kompensi pent’, 4
-
-T R A M I A P R I S M O
+devos draŝiĝi en ĝem’ la tent’, krimon Kainan kompensi pent’,
 
 
 migros nur ili, ho longe, pensos pri l’ hejmo nur sonĝe.
@@ -109,9 +96,6 @@ migros nur ili, ho longe, pensos pri l’ hejmo nur sonĝe.
 For la mateno de l’ firmament’, venos frostnokto de l’ okcident’.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 La birdo
@@ -131,9 +115,6 @@ Sciu, via gaja birdo
 trinkas nure ĝojolarmojn, per kares’ kaj kis’ sin nutras.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Sonoriloj sonas
@@ -177,9 +158,6 @@ Ho, kiu dormas en trankvil’ ?
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Kie mi
 
 Sándor Kisfaludy
@@ -201,9 +179,6 @@ forfluadis. Mortemul’ , baldaŭ for la vivplezur’.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Civilizo
 
 János Arany
@@ -219,9 +194,6 @@ Se la forta ajne kulpas, la kunveno ĝin – aprobas.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Kvazaŭ mi
 
 Sándor Petöfi
@@ -231,9 +203,6 @@ Kvazaŭ mi la tuta grandan mondon tenus, knabineto! – sub terura ŝarĝ’ mi 
 kiam vian etan molan manon mi ekpremas.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Letero venis
@@ -269,9 +238,6 @@ kiel de eternec’.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Sun’ subira – scen’ plej bela Pär Lagerkvist
 
 Sun’ subira – scen plej bela; ĉiu am’ sature de la
@@ -297,9 +263,6 @@ sola kaj sen spur’.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Vi mem ne estas...
 
 Pär Lagerkvist
@@ -323,9 +286,6 @@ Al ĝi mi venu nun kun pia verso, al ĉi malplena er’ de lama universo?
 Respektas mi neniel ĝian trud-edifon, estimas mi la homon, maltaksas mem la vivon.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Mia fantazio
@@ -379,9 +339,6 @@ malsupren al ruboj
 sed ĝi sen laciĝo
 
 
-T R A M I A P R I S M O
-
-
 vetflugas kun nuboj.
 
 Eĉ ne restas nubojn
@@ -427,9 +384,6 @@ kreas novan mondon,
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Vojaĝbildo: Stokholmo
 
 Dezsö Kosztolányi
@@ -443,9 +397,6 @@ Horbato milda. Ni trinkas nian teon, sub dentoj niaj la kekso krak-porozas; el l
 Silentas ĉiuj, kaj ankaŭ mi silentas, sed ĉi silentoj ne kunfandiĝas pare, ĉar estas jene: silentas ili svede, kaj mi hungare.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Antikva porcelano
@@ -475,9 +426,6 @@ La kruĉ’ antikva sen difekt’ atestas.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 La tago
 
 K. V. Böttiger
@@ -493,9 +441,6 @@ For, ho for, l’ esper’.
 Jam vesper’. Malvarma nokt’, obskuro kreskas en la kor’. For la lazuro, sun’. Mi ĝemas al la marpurpuro: Restu vi, memor’.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Vesperkanto
@@ -531,9 +476,6 @@ la nuboj sur la fingroj nur estas sang’ kaj rub’.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Noako
 
 Hjalmar Gullberg
@@ -567,9 +509,6 @@ Enpaŝu bovo, hund’, ĉeval’ , fidelaj, servopretaj!
 Tirbest’, gardbesto ĝojas al rikoltoj, kult’ kvietaj.
 
 
-T R A M I A P R I S M O
-
-
 Muzik’ nin levu en batal’
 
 ĝis venos matenlando;
@@ -583,9 +522,6 @@ vi vidos ĉirkaŭ Ararat’
 la novan sunokronon.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Mi estas ĉiel
@@ -603,9 +539,6 @@ Prefere vivus mi en la dezerto aŭ putrus sub la ter’, sub morta pist’, ĉar
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 La aŭrora stelo
 
 Jenö Heltai
@@ -619,9 +552,6 @@ Vi flustris ruĝe: ĝenas min ĉi bril’ , mi, stulta, hontas en ĉi granda hel
 Estingu lumon de l’ aŭrora stelo.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Leciono
@@ -645,9 +575,6 @@ vi vivu kaj ne devu por mi morti.
 Heziti, pri vi timi, vi ne devas, nur la senpaga don’, sen pag’ ricevas.
 
 
-T R A M I A P R I S M O
-
-
 Mi diris: mi vin amas, kaj vi ĉu?
 
 Jen estis tuto de l’ instru’.
@@ -659,9 +586,6 @@ Ja, ne naskitus ni prefere, ol ke ni nin ne amu vere.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Iam kaj nun
 
 Anna Maria Lenngren
@@ -669,9 +593,6 @@ Anna Maria Lenngren
 Malsatis iam mi, kaj mankis eĉ la pan’, ne havis mi moneron kaj ĉesis la kredit’, nun havas manĝon mi, eĉ monon en la man’, sed ĝui ne plu povas, ĉar for la apetit’!
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Malfeliĉo en la amo
@@ -691,9 +612,6 @@ Pri l’ tria vi demandas min?
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Verkita ĉe tablo, kiam akcidento okazis Anna Maria Lenngren
 
 ĉiun kreon sekvas fin’.
@@ -709,9 +627,6 @@ sunojn blinda nokt’ enfermas, mondoj iĝos nur gruzer’.
 Kial do min nun konsternas, ke rompiĝis manĝteler’?
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 ĉe la dancejo
@@ -751,9 +666,6 @@ forŝtelas karojn l’ amo.
 Trilu la fluto
 
 kaj basu bastubjo. (Korno) Bretoj krakas,
-
-
-T R A M I A P R I S M O
 
 
 barstangoj grakas,
@@ -807,9 +719,6 @@ kun sperta lerto:
 Nun ek al la verd’!
 
 
-T R A M I A P R I S M O
-
-
 Morna, decida,
 
 sed certa, memfida (Korno) Blomström gruzas
@@ -853,9 +762,6 @@ la parojn, uzas
 perforton, muĝas,
 
 kiel tempest’.
-
-
-T R A M I A P R I S M O
 
 
 Trilu la fluto
@@ -903,9 +809,6 @@ dum kant’ de l’ korn’.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Dezerta floro
 
 Nils Ferlin
@@ -937,9 +840,6 @@ Ili diris: ”Ke ĉi kakto floros, ni neniam kredis.”
 Brilis klare kaj silente antaŭ mort’. Tiel okazis, ke dezerta floro donis lumon en la hejmo, kiam panjo nin forlasis.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Kien la sango de Kristo?
@@ -977,9 +877,6 @@ Nur trinkas sangon kun prefer’.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 La infano volas ludi
 
 László Mécs
@@ -1005,9 +902,6 @@ l’ infano serĉis al si spegulon, la konduktoro gardis regulon, rigardo lia se
 Servisto griza. Li ja deĵoris.
 
 
-T R A M I A P R I S M O
-
-
 l’ infano serĉis al si spegulon, alridis min. Mi l’ etan ĉarmulon spegulis. Kiel en lago steloj: luliĝo. Kantis ie anĝeloj.
 
 Mi havas tempon. Mono min ne ĝenas, pro ama febro mi ja ne tremas.
@@ -1019,9 +913,6 @@ Spegul’ mi estas al ĉiu rideto, mi vivas nur, por ke mi ridetu arbaron, flugo
 Rerideti al Dio.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Foiro
@@ -1049,9 +940,6 @@ oni devas pagi.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Somerlumo
 
 Verner von Heidenstam
@@ -1077,9 +965,6 @@ De vi min gvidas al vi en
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Mi protestas
 
 Tamás Falu
@@ -1095,9 +980,6 @@ Kaj skribe mi apelacias, motivaro jen ĉi-kune:
 amo, kant’, feliĉ’, dometo, flor’ printempe, dolĉ’ aŭtune.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 La stelo
@@ -1139,9 +1021,6 @@ laŭ prudent’ ne marŝis plu.
 — Sed et-eta grup’ ridetis al la blu’.
 
 
-T R A M I A P R I S M O
-
-
 El la rando de l’ ĉielo sorĉobrile levis jam
 
 sin ilia propra stelo
@@ -1157,9 +1036,6 @@ spitas al la risk’, potenc’, ke ekĝermu en la vivo
 Baron rompas, vojon provas kelkaj al la land’ de l’ mir’, kontentigi ĉar ne povas ĉiun nure la sopir’.
 
 origine norvega
-
-
-T R A M I A P R I S M O
 
 
 Verdfolia, blanka
@@ -1201,9 +1077,6 @@ Molas mia sino.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 En la arbaro de Vál
 
 János Vajda
@@ -1235,17 +1108,11 @@ Nevideble, jar’ post jaro el la seka foliaro
 de l’ vivarbo je la fino fali al la tera sino.
 
 
-T R A M I A P R I S M O
-
-
 Kaj en nekonata tombo
 
 endormiĝi sub branĉ-ombro, plu nenion voli por mi, nur ripozi, dormi, dormi.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Sorĉa lago
@@ -1273,9 +1140,6 @@ Sorĉa, sorĉa, sorĉa lag’, sorĉa, sorĉa lag’.
 l’ edzoj longatempe ilin reatendis, trovi la edzinojn ili deve sentis.
 
 
-T R A M I A P R I S M O
-
-
 Kiam vagas ili ... horon sekvas horo, frapas la orelojn, aŭdu, infanploro.
 
 Sorĉa, sorĉa, sorĉa lag’, sorĉa, sorĉa lag’.
@@ -1287,9 +1151,6 @@ Apenaŭaj signoj restis post la panjoj, ili trinkis ĝise, iĝis suĉinfanoj.
 Sorĉa, sorĉa, sorĉa lag’, sorĉa, sorĉa lag’.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 La du mortintoj (1915)
@@ -1314,9 +1175,7 @@ Jen mon’ sufiĉa eĉ por dom’ el briko!
 
 La du mortintoj ja nenion sentis, nur kuŝis tie, kuŝis kaj silentis.
 
-”Fremdaĵon lasu” – al si jene diris, li trinkis brandon, tamen venkis pekojn, 47
-
-T R A M I A P R I S M O
+”Fremdaĵon lasu” – al si jene diris, li trinkis brandon, tamen venkis pekojn,
 
 
 sed centon al la patro de l’ muĵiko, li sendis al princpatro dek kopekojn.
@@ -1324,9 +1183,6 @@ sed centon al la patro de l’ muĵiko, li sendis al princpatro dek kopekojn.
 La du mortintoj ja nenion sentis, nur kuŝis tie, kuŝis kaj silentis.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Silenta vespero
@@ -1348,9 +1204,6 @@ La pluv’ kaj birdo jen kantis ĉe la voj’.
 Kunportu, eble ĝi helpos vin je ia foj’.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 La naiva kampulo
@@ -1386,9 +1239,6 @@ La poŝtisto ride miras:
 Kvar sufiĉas, jen la mezo.
 
 
-T R A M I A P R I S M O
-
-
 Ok? Duona taga peno,
 
 preskaŭ jam duonguldeno.
@@ -1421,9 +1271,7 @@ Kiam li jam tamen pagis, dum la ”poŝto” serĉis, agis, al la tabl’ sin li
 
 Kvazaŭ ĉion plenplenumis, li ekiris, ekpip-fumis.
 
-La sinjoro lin ekvidas, demandante lin alridas: 51
-
-T R A M I A P R I S M O
+La sinjoro lin ekvidas, demandante lin alridas:
 
 
 ”Nu, ĉu venis la letero, ĉu vi venis kun prospero?”
@@ -1461,9 +1309,6 @@ sed valoron por valoro.
 Du leterojn mi kromŝtelis, al pli bona prez’ mi celis.”
 
 
-T R A M I A P R I S M O
-
-
 La sinjor’ ridege diras:
 
 ”Kion per ĝi Paŭl’ akiras?
@@ -1477,9 +1322,6 @@ fraton, kiun antaŭ jaro trude varbis soldataro.
 Al li ilin – kun aldono pri l’ bonfarto de l’ patrono.”
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 La jaro de l’teruro
@@ -1505,9 +1347,6 @@ infan’ kun flor’ en haroj tamen ridetis, ludis nur.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 La plej bela kanto
 
 Ture Nerman
@@ -1525,9 +1364,6 @@ La plej belan kanton pri am’ neniam rulis la pres-instrument’.
 Tombo amasa ĝin Flandrie kaŝas kun pariza, pala student’.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Kiam oni min riproĉis
@@ -1563,9 +1399,6 @@ A˛, la homo vivas ombre de la Dio nur.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Benzino
 
 Henry Parland
@@ -1587,9 +1420,6 @@ kial tiel longe mi
 sonĝis sub la tero.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Venontnokte
@@ -1615,9 +1445,6 @@ Tio estas ultimato kaj mi demandas pri io, kio staras honestfirme
 - en ĉio.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 Spiralvojo
@@ -1665,9 +1492,6 @@ kaj pretas al la
 aŭtun’ la lito.
 
 Odor’ disforas.
-
-
-T R A M I A P R I S M O
 
 
 Al kaparĝento
@@ -1725,9 +1549,6 @@ neplenumitaj
 junaj deziroj.
 
 
-T R A M I A P R I S M O
-
-
 Iamaj amoj,
 
 iamaj tremoj,
@@ -1781,9 +1602,6 @@ Mi amblas sola
 ĉe la spiraloj.
 
 
-T R A M I A P R I S M O
-
-
 Kvazaŭ mi irus en
 
 pasintaj jaroj.
@@ -1797,9 +1615,6 @@ de l’ val’ al monto,
 de l’ mont’ al valo.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Oggi
@@ -1833,15 +1648,9 @@ Jen ŝi oscedis, dormis la ĝarden’, ne vibris tra ĝi eĉ hirtiga trem’.
 La hor’ pasadis super la virin’
 
 
-T R A M I A P R I S M O
-
-
 kaj svenspiregis la ĝardena sin’, ĉar Dio varme surblovetis ĝin.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 De animo al animo
@@ -1869,9 +1678,6 @@ la lum’ ĉiela nin sciigas pri atom’, parenca al la ter’ kaj ni.
 praplendon kian ploras ĝi al mi, ĉiel’ al ter’ – al si la element’.
 
 
-T R A M I A P R I S M O
-
-
 Doloras l’ astrojn eble la solec’, orfeco sola en la vasta spac’?
 
 Ke trans glacio, foro, nokto eĉ ne trovas ili nin en frata pac’?
@@ -1889,9 +1695,6 @@ Mi sentas lacajn lumojn de l’ okul’
 kaj inter ni: la frosta malproksim’.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 For la bravo
@@ -1915,9 +1718,6 @@ El la astroj ĝi plej posta, sen labor’, malmultekosta, staras ĝi en aĝoklin
 ĉe l’ ĉiela vilaĝfino.
 
 
-T R A M I A P R I S M O
-
-
 Bravegulo, grandsinjoro!
 
 Estas for jam via gloro.
@@ -1933,9 +1733,6 @@ Sur dorsaĉ’ la homo sidas; kien fuĝi, li ne vidas; restas, dum ĝin plagoj b
 ĝis lin Dio ekkompatas.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Domflanke...
@@ -1960,9 +1757,7 @@ Obstina branĉo, kial vi nun ne volas veni?
 
 ŝi iras ĉe l’ fruktarboj senĉese diskutante kaj tiam brilaj branĉoj kliniĝas al ŝi kante, ŝin ekkaresas ame kaj alsusuras varme, folioj etaj ridas plezure, ĝojolarme kaj supre, kiel pastroj hostion sanktan, sunon krepuskan nuboj metas en incensplenan fumon.
 
-Ho, Dio, vin kaŝanta en arb’, en kampo-sino, kiel ridet’ embuskas en ama junulino, 69
-
-T R A M I A P R I S M O
+Ho, Dio, vin kaŝanta en arb’, en kampo-sino, kiel ridet’ embuskas en ama junulino,
 
 
 Vi, kiu pli malfermis ol tiujn de poetoj l’ orelojn de l’ avino al viaj sonsekretoj: mi kvazaŭ surda stumblis kun raŭka kri’ ebria post vin en ĉi nigrega, turniĝa mond’, vizia, kiel al ŝi, ke vin ĉi vort’ alondu, kuraĝe vian vorton simile mi respondu.
@@ -1979,9 +1774,7 @@ Jen la riveroj bluaj l’ alvenan nokton kribras, pro l’ malvarmeta fluo folio
 
 Mi morgaŭ ekforiros. Ho, la sekreton diru, ke mi kun arboj, akvoj kunbabilanta iru kaj kun la ar’ senscia, kies mi estas ido kaj kiuj al sinjoroj balbutas eĉ per vido, tiel senpovas ili. Min benu per la forto: kompreni, komprenigi min, se eĉ sen vorto.
 
-En mutaj trajtdemandoj la sencon mi retrovu, al la demandoj klaraj respondi mi ekpovu, kaj miaj vortoj kiel la vortoj de l’ avino 70
-
-T R A M I A P R I S M O
+En mutaj trajtdemandoj la sencon mi retrovu, al la demandoj klaraj respondi mi ekpovu, kaj miaj vortoj kiel la vortoj de l’ avino
 
 
 sonoru plie ĉiam, sonore kaj sen fino, senpense pri la rido, senpense pri la moko: ne aŭdas oni ankoraŭ voĉon de l’ kora voko.
@@ -2001,9 +1794,6 @@ Singarde, inter bedoj – terpomplantoj – mi paŝas, en bedoj nestas fruktoj, 
 Mi iras sen adiaŭ, se mi ekriverencus, kokidarĝente ili ploreti tuj komencus.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Letero al mia edzino
@@ -2028,9 +1818,7 @@ Vi estis vero, sed nun revo sankta.
 
 En puton de l’ knab-aĝo refalanta.
 
-ĵaluza mi postulas amkonfeson, vi donu kiel iam la promeson pri ligo nia. Glimas amespero, 72
-
-T R A M I A P R I S M O
+ĵaluza mi postulas amkonfeson, vi donu kiel iam la promeson pri ligo nia. Glimas amespero,
 
 
 oscedas ree puto de la vero: mi scias, ke vi jam edzino estas; landlimoj tri, sovaĝaj tamen disarestas.
@@ -2054,9 +1842,6 @@ envolvas min la sobro de l’ duoble du.
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Vintra vespero
 
 Lörine Szabó
@@ -2073,9 +1858,7 @@ Babilas li, mi sentas kiel koreto pulsas sub la mano, mi pensas pri kapreolido, 
 
 milito, plago, defenmanko, pri ĉio, kion mi sur stratoj mem vidis ĵus veninta hejmen.
 
-Pri ĉiuj krudaj sortobatoj, 74
-
-T R A M I A P R I S M O
+Pri ĉiuj krudaj sortobatoj,
 
 
 pri ĉiu vundo de la mondo, pripensi eĉ pli ol malbone, ĉar kion mi esprimi povas, min igas ĝemi angortone.
@@ -2087,9 +1870,6 @@ La knab’ raviĝas kun aplaŭdo.
 Ho estus bone al li kredi, al ĉi senscia ĝojo, laŭdo.
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 El ”Opus incertum”
@@ -2113,9 +1893,6 @@ La eterna fine tio ne estas, kio estas aŭ ne estas.
 La eterna estas la bela provo kaj ĝia vaneco, la bela sekvas en la konscion pri ties vano.
 
 origine sveda
-
-
-T R A M I A P R I S M O
 
 
 La senmorteco de la animo Mihály Csokonai Vitéz
@@ -2142,9 +1919,7 @@ Se la vivo pasos, kial nia ter’ do?
 
 Kial la espero antaŭ certa perdo?
 
-Sole por suferi, havi mil dolorojn, sole por kalkuli en ekzil’ la horojn, 77
-
-T R A M I A P R I S M O
+Sole por suferi, havi mil dolorojn, sole por kalkuli en ekzil’ la horojn,
 
 
 sole por sopiri al pli glora lando kaj neniam iĝi ties atinganto?
@@ -2178,9 +1953,6 @@ Sed ĉe la kurteno blua de l’ esperoj ridetante brilas jam la frataj steloj in
 la plibono vivas, se mi korpon senas.
 
 
-T R A M I A P R I S M O
-
-
 Ho, vi dolĉaj sentoj de la eterniĝo, kiuj nin fortigas per konsol-feliĉo: por la eterneco jam komenco: tio kion mi nun sentas en la fantazio.
 
 Kaj vi, kiu same taksas eston, agon, kiu studas viajn forton kaj imagon, kiu ĉirkaŭ vi jam konas mil aferojn, ties formojn, kvantojn, ties manierojn; juĝi vi kuraĝas, al vi ne sufiĉas jam la ter’, aero, kiu vin provizas, sed vi ĉirkaŭ vi mem kreas mondon, novon, simiante la laboran ĉiopovon.
@@ -2190,9 +1962,6 @@ Vi, per kiu kreas, agas mi, plenumas, juĝas kaj konscias, sentas kaj cerbumas, 
 Ekmeditu, studu, vin al vi elvolvu, ĉerpu poste forton, vian eston solvu!
 
 origine hungara
-
-
-T R A M I A P R I S M O
 
 
 Nokt’ feliĉa
@@ -2222,9 +1991,6 @@ mi vizitus, belfloro!
 origine hungara
 
 
-T R A M I A P R I S M O
-
-
 Taglibro
 
 Anna Maria Lenngren
@@ -2248,9 +2014,6 @@ Dimanĉ’: forgesis mi jam ĉion.
 origine sveda
 
 
-T R A M I A P R I S M O
-
-
 Mi estas amanto
 
 Harald Fors
@@ -2258,9 +2021,6 @@ Harald Fors
 mi estas amanto de la nuancoj amiko de la nedifinita
 
 sindonanto al la misteroj mi jam sentis kison de la letargio kaj aŭdis ĝian flustron mi estas amanto de la nuancoj origine sveda
-
-
-T R A M I A P R I S M O
 
 
 + Enhavo

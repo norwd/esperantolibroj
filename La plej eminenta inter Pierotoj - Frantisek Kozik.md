@@ -39,7 +39,6 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 **2**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -47,17 +46,11 @@ Enkonduke
 
 Al ekverko de la biografia romano pri Gasparo Deburau
 
-inspiris min mia amo al teatro. Mi studis juron, sed sam-
+inspiris min mia amo al teatro. Mi studis juron, sed samtempe mi ekstudis en dram-konservatorio en Brno, kaj kon-
 
-tempe mi ekstudis en dram-konservatorio en Brno, kaj kon-
+forme al tio sporade mi helpludis, kiel juna aktoro, en plimalpli signifaj roloj sursceneje de la ŝtata Teatro en Brno.
 
-forme al tio sporade mi helpludis, kiel juna aktoro, en pli-
-
-malpli signifaj roloj sursceneje de la ŝtata Teatro en Brno.
-
-Foje oni ”purigis” germanan arkivon — kelkfoje semajne lu-
-
-dis tie germanoj — kaj libro-amaso kuŝis en koridoro; dum
+Foje oni ”purigis” germanan arkivon — kelkfoje semajne ludis tie germanoj — kaj libro-amaso kuŝis en koridoro; dum
 
 miaj liberaj horoj mi trarigardadis ĝin kaj trovis teatraĵon fare de Melchior Vischer ”DEBURAU”. Sur la unua paĝo troveblis
 
@@ -73,23 +66,16 @@ Jules Janin. Sed tiutempe mi nur poeziis kaj mankis al mi la
 
 kuraĝo verki romanon. Post kiam mi ŝparis sufiĉe da mono
 
-por vojaĝi al Parizo, mi venis al mia heroo en pli intiman kon-
+por vojaĝi al Parizo, mi venis al mia heroo en pli intiman kontakton. Mi ekkonis miniteatrojn en periferio.
 
-takton. Mi ekkonis miniteatrojn en periferio.
+En strato de la Gaité mi ekkonis kiel spektanto komedianton nomatan Monthéhus, kiu dumpaŭze de la prezentado de
 
-En strato de la Gaité mi ekkonis kiel spektanto komedian-
-
-ton nomatan Monthéhus, kiu dumpaŭze de la prezentado de
-
-sia teatraĵo ”La pariza frenezulo” prezentis kante al spektan-
-
-toj lulkanton pri morta hispana infano; tiam estis la hispana
+sia teatraĵo ”La pariza frenezulo” prezentis kante al spektantoj lulkanton pri morta hispana infano; tiam estis la hispana
 
 civila milito. Mi ekkomprenis kiakvalita aktoro estis Deburau;
 
 li donacis al la publiko la necesan por la vivo. Tial la pariza **3**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -99,89 +85,58 @@ Je la fino de la somero mi ekvojaĝis denove al Parizo por
 
 rekognoski la terenon, ekkoni la lokojn, kie Deburau vivis.
 
-Militmobilizo min revokis al la patrio. La tempo, kiun perso-
-
-ne mi travivadis, fortigis mian ideon verki libron pri la kome-
+Militmobilizo min revokis al la patrio. La tempo, kiun persone mi travivadis, fortigis mian ideon verki libron pri la kome-
 
 dianto, kies Muzo estis la popolo, ĉar li amis ĝin kaj deziris
 
-helpi al ĝi. Niaj viv-spertoj enpremis al mia suĵeto novan mi-
-
-sion — la romantika okazaĵo iĝis por mi simbolo de ĝenera-
+helpi al ĝi. Niaj viv-spertoj enpremis al mia suĵeto novan mision — la romantika okazaĵo iĝis por mi simbolo de ĝenera-
 
 la valideco. Mia Gasparo Deburau (Debiro’) estas batalanto,
 
 kiu preparas vojojn al sia arto kaj konv, naskiĝintaj pro
 
-dolorozaj okazaĵoj de lia vivkariero. Mi deziris formuli la opinion, ke tiun arton falsas, kiu servas nur por brilo de la stre-ta societo, ĉar mi kredas, ke la arto havas sian mision, apar-
+dolorozaj okazaĵoj de lia vivkariero. Mi deziris formuli la opinion, ke tiun arton falsas, kiu servas nur por brilo de la stre-ta societo, ĉar mi kredas, ke la arto havas sian mision, apartenanta al la tuta homaro.
 
-tenanta al la tuta homaro.
+Mia romano estis aprecita unuarange okaze de romankonkurso. Eble tion kaŭzis la granda sentiment-ondo, kiu
 
-Mia romano estis aprecita unuarange okaze de roman-
-
-konkurso. Eble tion kaŭzis la granda sentiment-ondo, kiu
-
-min dum la kreiva proceso portis kaj alproksimigadis la ro-
-
-manon al legantoj, emociitaj pro la spirita klimato de la na-
+min dum la kreiva proceso portis kaj alproksimigadis la romanon al legantoj, emociitaj pro la spirita klimato de la na-
 
 zia okupacio. Alvenadis leteroj, ekzemple: ”Mi dankas al vi
 
-por la tuta pierotnacio”. Tio estis tempo de la sekreta inter-
+por la tuta pierotnacio”. Tio estis tempo de la sekreta interkompreno inter aŭtoroj kaj legantoj. Sed, kiam en la jaro 1954
 
-kompreno inter aŭtoroj kaj legantoj. Sed, kiam en la jaro 1954
+mi sukcesis akiri novajn historiajn fontojn, mi korektis la tekston. Mi ne povis toleri la senton, ke mi prezentas al miaj legantoj la verkon kun biografiaj eraroj. Mia romano ”La plej
 
-mi sukcesis akiri novajn historiajn fontojn, mi korektis la tekston. Mi ne povis toleri la senton, ke mi prezentas al miaj le-
+eminenta inter Pierotoj” triumfe vojis al eksterlando. Ankoraŭ dummilite oni eldonis ĝin en Ameriko kaj en Anglio, po-
 
-gantoj la verkon kun biografiaj eraroj. Mia romano ”La plej
-
-eminenta inter Pierotoj” triumfe vojis al eksterlando. Anko-
-
-raŭ dummilite oni eldonis ĝin en Ameriko kaj en Anglio, po-
-
-ste en Svislando, en GFR, Italio, Nederlando, Jugoslavio, Pol-
-
-lando, ankaŭ en Sovet-Unio. La teatra muzikalo, verkita laŭ
+ste en Svislando, en GFR, Italio, Nederlando, Jugoslavio, Pollando, ankaŭ en Sovet-Unio. La teatra muzikalo, verkita laŭ
 
 la romano, estis ludita sur kelkaj scenejoj.
 
 **4**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Nun realiĝis do ankaŭ traduko Esperanten. La fakto min
 
-ekstreme ĝojigas, ĉar mi dediĉis al Esperanto, kiel ano de Ra-
-
-dio-Stacio en Brno, multe da intereso kaj spertis, ke ĝi larĝe
+ekstreme ĝojigas, ĉar mi dediĉis al Esperanto, kiel ano de Radio-Stacio en Brno, multe da intereso kaj spertis, ke ĝi larĝe
 
 influas la publikon. Ni elsendadis en Esperanto dramverkojn
 
-de Karel Âapek, operetojn, literaturajn horetojn pri spartaki-
+de Karel Âapek, operetojn, literaturajn horetojn pri spartakiado kaj ĝenerale pri nia patrio; la e˛o estis impona, la poŝto
 
-ado kaj ĝenerale pri nia patrio; la e˛o estis impona, la poŝto
-
-liveris al ni post ĉiu elsendado 2000 leterojn el la tuta mon-
-
-do. Tial estis Radio-Stacio en Brno honore titolita VERDA
+liveris al ni post ĉiu elsendado 2000 leterojn el la tuta mondo. Tial estis Radio-Stacio en Brno honore titolita VERDA
 
 STACIO.
 
-Ofte mi rememoris miajn amikojn, kiujn varbis por nia pa-
-
-trio, precipe en eŭropaj nacioj, nia radio-elsendado. Nun mi-
+Ofte mi rememoris miajn amikojn, kiujn varbis por nia patrio, precipe en eŭropaj nacioj, nia radio-elsendado. Nun mi-
 
 gros mia libro al iliaj infanoj kaj nepoj. Ege mi ĝojus, se la
 
-romano trovus ĉe la legantoj same ardan akcepton. Kaj evi-
+romano trovus ĉe la legantoj same ardan akcepton. Kaj evidentas, ke volonte mi sciiĝos pri la e˛o, kiun ĝi vekis. Volonte ni akceptos ankaŭ viajn kritikajn rimarkigojn al la teksto kaj
 
-dentas, ke volonte mi sciiĝos pri la e˛o, kiun ĝi vekis. Volonte ni akceptos ankaŭ viajn kritikajn rimarkigojn al la teksto kaj
-
-la traduknivelo. La libro iĝu instigo provokanta la plej inten-
-
-san dialogon de la aŭtoro kun la legantoj. Ni ambaŭ — la aŭ-
+la traduknivelo. La libro iĝu instigo provokanta la plej intensan dialogon de la aŭtoro kun la legantoj. Ni ambaŭ — la aŭ-
 
 toro kaj la tradukintoj — dankemos al ĉiuj pri ilia intereso.
 
@@ -199,7 +154,6 @@ romano en viajn manojn — kaj al viaj koroj.
 
 **5**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -207,13 +161,9 @@ LA UNUA PARTO
 
 Prologo
 
-En la medicinistan antaŭĉambron de doktoro Ricordo en-
+En la medicinistan antaŭĉambron de doktoro Ricordo eniris iun novembran vesperon 1840 magra, nigre vestita
 
-iris iun novembran vesperon 1840 magra, nigre vestita
-
-viro. La kuracisto esplore rigardis la interese aspektantan vi-
-
-zitanton, lian altan frunton, palan vizaĝon kaj mallarĝajn li-
+viro. La kuracisto esplore rigardis la interese aspektantan vizitanton, lian altan frunton, palan vizaĝon kaj mallarĝajn li-
 
 pojn.
 
@@ -241,7 +191,6 @@ La pala viro kliniĝis kaj diris triste:
 
 **6**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -269,19 +218,14 @@ kvankam neniam ekparolinte.”
 
 **7**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Naskiĝinta inter du militoj
 
-La regimento de grafo Wallis, unu el la plej malnovaj aŭ-
+La regimento de grafo Wallis, unu el la plej malnovaj aŭstriaj regimentoj, fondita en Pomeranio fare de Albrecht
 
-striaj regimentoj, fondita en Pomeranio fare de Albrecht
-
-Waldstein, trovis post multjara, longa migrado, ekde la sile-
-
-zia montaro ĝis la franca landlimo, fine pli trankvilan resta-
+Waldstein, trovis post multjara, longa migrado, ekde la silezia montaro ĝis la franca landlimo, fine pli trankvilan resta-
 
 dejon en la regiono de Kouĝim - Âáslav distrikto, kaj unu el
 
@@ -289,17 +233,11 @@ dejon en la regiono de Kouĝim - Âáslav distrikto, kaj unu el
 
 La hetmano de Peters ricevis kantonmenton en la domo
 
-”U tĝí korun” — ”ĉe tri kronoj” — ĉe viandista majstro Chu-
+”U tĝí korun” — ”ĉe tri kronoj” — ĉe viandista majstro Chudoba (˘udoba); la simpla soldato Filipo Deburau (Debiro’),
 
-doba (˘udoba); la simpla soldato Filipo Deburau (Debiro’),
+kiu zorgis pri la ĉevalo de la hetmano, loĝis en malriĉa soldatĉambro apud la ĉevalejo enkorte. Li devenis el Amiens, el ko-
 
-kiu zorgis pri la ĉevalo de la hetmano, loĝis en malriĉa soldat-
-
-ĉambro apud la ĉevalejo enkorte. Li devenis el Amiens, el ko-
-
-medianta familio, sed juna li edziĝis, juna vidviĝis, perdis la patrolandon kaj la familion, kaj tial li lasis sin foje rekruti en Majenco, persvadita de hazardaj kompanuloj. En la germa-naj kaj aŭstriaj regimentoj estis pli da francoj, kaj krome su-
-
-fiĉe da eksterlandanoj batalis en taĉmentoj de armeoj revo-
+medianta familio, sed juna li edziĝis, juna vidviĝis, perdis la patrolandon kaj la familion, kaj tial li lasis sin foje rekruti en Majenco, persvadita de hazardaj kompanuloj. En la germa-naj kaj aŭstriaj regimentoj estis pli da francoj, kaj krome sufiĉe da eksterlandanoj batalis en taĉmentoj de armeoj revo-
 
 luciaj kaj napoleonaj. Filipo Hermano Deburau estis bruska,
 
@@ -311,7 +249,6 @@ En la Chudoba-familio servis juna etulino ie el la regiono
 
 **8**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -325,13 +262,9 @@ konsolis. Li opiniis sin pli forta kaj pli kuraĝa apud ŝia time-ma animeto. ĉ
 
 Kaj iun majan tagon en la jaro 1794 oni aranĝis endome
 
-”ĉe tri kronoj” la edziĝfeston. Filipo estis tiam tridektrijara kaj lia fianĉino dudekjara; kiel edziĝatestantoj funkciis riĉaj najbaroj, vaksisto Jesenovskë kaj urbano Eckel. La novgeed-zoj transloĝiĝis al familio Kmoch (Kmo˛), numero 62, kie na-
+”ĉe tri kronoj” la edziĝfeston. Filipo estis tiam tridektrijara kaj lia fianĉino dudekjara; kiel edziĝatestantoj funkciis riĉaj najbaroj, vaksisto Jesenovskë kaj urbano Eckel. La novgeed-zoj transloĝiĝis al familio Kmoch (Kmo˛), numero 62, kie naskiĝis al ili la unua filino; analoge al la nomo de sia baptopatrino ŝi ricevis nomon Jozefa Marta. Eĉ kiam oni militis en
 
-skiĝis al ili la unua filino; analoge al la nomo de sia baptopatrino ŝi ricevis nomon Jozefa Marta. Eĉ kiam oni militis en
-
-Bavario, Pollando kaj Italio, Filipo Deburau restis jam garni-
-
-zone, kaj lante li hejmiĝis en Kolín; oni konfuzis lian nekuti-
+Bavario, Pollando kaj Italio, Filipo Deburau restis jam garnizone, kaj lante li hejmiĝis en Kolín; oni konfuzis lian nekuti-
 
 man nomon kaj tial vokis lin ”Debrio”, ”Debro” kaj iam nur
 
@@ -343,9 +276,7 @@ La milito foris, sed malfeliĉo ĉiam embuskas proksime. En
 
 varmegaj juliaj tagoj jare 1796, ĝuste en la tempo, kiam la
 
-familio Deburau estis riĉiĝonta je unu nova membro, ekfla-
-
-mis antaŭurbe de Kolín incendio, kiu detruis duonon de la
+familio Deburau estis riĉiĝonta je unu nova membro, ekflamis antaŭurbe de Kolín incendio, kiu detruis duonon de la
 
 urbo, ankaŭ la preĝejon. Deburau savis el la brulanta domo
 
@@ -363,27 +294,20 @@ por longaj jaroj.
 
 **9**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Semajnon post la incendio naskiĝis al Katarina knabo. An-
-
-koraŭ ŝi estis konsternita pro la incendio-teruro, malfeliĉa
+Semajnon post la incendio naskiĝis al Katarina knabo. Ankoraŭ ŝi estis konsternita pro la incendio-teruro, malfeliĉa
 
 pro la neintima loĝejo, ĝenata pro ĉeesto de fremdaj homoj,
 
 malforta pro doloroj.
 
-La saman tagon, la 31-an de , baptis la pola sol-
-
-dat-kapitano, Francisko Gerzanowski, la filon de Deburau,
+La saman tagon, la 31-an de , baptis la pola soldat-kapitano, Francisko Gerzanowski, la filon de Deburau,
 
 kaj tiu ricevis la nomon Jan Kĝtitel Kaôpar (Johano Baptisto
 
-Gasparo). La lastan kaj ĉefan nomon li ricevis de bakisto Stei-
-
-ner, lia baptopatro. La ceremonio finiĝis rapide; en la ruinojn de la preĝejo pluvis, kaj anstataŭ la volbo arkis super ĝi la
+Gasparo). La lastan kaj ĉefan nomon li ricevis de bakisto Steiner, lia baptopatro. La ceremonio finiĝis rapide; en la ruinojn de la preĝejo pluvis, kaj anstataŭ la volbo arkis super ĝi la
 
 ŝtorma firmamento.
 
@@ -391,9 +315,7 @@ Dum la vivkandelo de la knabo estis ekflagranta, la armeoj
 
 interbatalis, estis venkantaj, venkataj. La malamikeco inter la ŝtatoj kreskis, minacis novaj militoj. Al Filipo Deburau, kiu
 
-finis sian soldat-karieron per ”kapitulaco”, nek la aŭstria im-
-
-periestro, nek Napoleono estis simpatiaj. Sed ĉiam post unu
+finis sian soldat-karieron per ”kapitulaco”, nek la aŭstria imperiestro, nek Napoleono estis simpatiaj. Sed ĉiam post unu
 
 jaro li riĉis je unu plia infano, filo Stefano kaj filino Barbara.
 
@@ -415,27 +337,18 @@ ankaŭ li sciis skarifiki, se necesis. Liaj trukoj kaj manipulado kun boteloj a�
 
 longajn vesperojn. Cetere kien ankaŭ forpeli la povrulon kun
 
-la edzino kaj kvar infanoj? Krome ankaŭ duonvoĉe oni dira-
-
-dis, ke la vigla knabo de servistino Maria Nêmeâková (Nje-
+la edzino kaj kvar infanoj? Krome ankaŭ duonvoĉe oni diradis, ke la vigla knabo de servistino Maria Nêmeâková (Nje-
 
 **10**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-meĉkova), el la domo apud la kazerno, registrita kiel nelegi-
+meĉkova), el la domo apud la kazerno, registrita kiel nelegitima, onidire ankaŭ alparolas Filipon ”paĉjo”. Katarina ofte
 
-tima, onidire ankaŭ alparolas Filipon ”paĉjo”. Katarina ofte
+pro tiuj onidiroj ploris. Por ke la kalumnioj, koleroj kaj ĉagrenoj ĉesu, Deburau igis sin disponi al milita trupo, trans-
 
-pro tiuj onidiroj ploris. Por ke la kalumnioj, koleroj kaj ĉa-
-
-grenoj ĉesu, Deburau igis sin disponi al milita trupo, trans-
-
-portanta armilojn en Pollandon, kaj por sia konsolo li kunpre-
-
-nis la etan Gasparon; kiam post kelkaj monatoj li revenis, Ka-
+portanta armilojn en Pollandon, kaj por sia konsolo li kunprenis la etan Gasparon; kiam post kelkaj monatoj li revenis, Ka-
 
 tarina bonvenigis lin paciĝinta, laca pro nostalgio.
 
@@ -445,21 +358,15 @@ viziton; almarŝis tien la unuaj taĉmentoj de la rusa armeo kaj
 
 post ili la armeo de la francaj elmigrintoj, kiuj celis batali kontraŭ Napoleono. Veteranon Deburau disponigis la magistrato
 
-al la stabo; li servis kompleze ankaŭ en lazareto, sed li pro-
+al la stabo; li servis kompleze ankaŭ en lazareto, sed li profitis de tio kaj rapide petis ateston pri bonkonduto. Baldaŭ li prezentis peton pri pasporto por povi vojaĝi tra la aŭstria
 
-fitis de tio kaj rapide petis ateston pri bonkonduto. Baldaŭ li prezentis peton pri pasporto por povi vojaĝi tra la aŭstria
-
-teritorio kaj praktiki la ”meąnikan arton”. Tio estis la manie-
-
-ro, kiel eskapi for de la mizera vegetado en la paŭperigita
+teritorio kaj praktiki la ”meąnikan arton”. Tio estis la maniero, kiel eskapi for de la mizera vegetado en la paŭperigita
 
 urbo; li resumadis en sia memoro ĉiujn artaĵojn, kiujn li iam
 
 faris aŭ vidis kaj mem li klopodis pri la iama rutino.
 
-Kiam Katarina plendis, ke per ĵetado de la koloraj stange-
-
-toj li ne povas vivteni tiom multnombran familion, li mont-
+Kiam Katarina plendis, ke per ĵetado de la koloraj stangetoj li ne povas vivteni tiom multnombran familion, li mont-
 
 ris al ŝi infanojn, kiuj katumis surkorte, transsaltadis unu la alian, provadis kaprioli, kion li modele montris al ili antaŭe.
 
@@ -471,7 +378,6 @@ siajn infanojn ascendi ĝin kaj provi ĝin suriri, balancante longan stangon enm
 
 **11**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -481,9 +387,7 @@ lantas — ŝparis nek kriadon, nek kapfrapojn.
 
 La infanoj de Deburau aĝis kvin, ses, sep jarojn kaj ili ne
 
-plu timis kaj iris surmane same certe kiel surpiede, por pan-
-
-peco aŭ pomo ili prezentis al malgrandaj kamaradoj progra-
+plu timis kaj iris surmane same certe kiel surpiede, por panpeco aŭ pomo ili prezentis al malgrandaj kamaradoj progra-
 
 meron, kiu igis ilin reteni la spiron. Katarina kudris al ili belajn kostumojn el buntaj ĉifonoj, la infanoj aspektis aminde,
 
@@ -497,23 +401,17 @@ diris, ke pli granda grupo havas pli bonan ŝancon sukcesi, kaj
 
 ke Francisko perlaboros por si mem. Katarina koncedis.
 
-Olda italo Giacomo, kiu veturadis akompane kun la ĵon-
-
-glistoj kiel klaŭno, ekamis la infanojn de Deburau; li rakon-
+Olda italo Giacomo, kiu veturadis akompane kun la ĵonglistoj kiel klaŭno, ekamis la infanojn de Deburau; li rakon-
 
 tis al ili pri la itala komedio, pri la mimarto, prezentadis al ili la ĉefajn figurojn kaj persvadis patron Deburau, ke ili provu
 
 ŝancon en pantomimo. ”La infanoj estas ankoraŭ etaj”, ne
 
-konsentis Filipo, ”kaj la homoj ĉi-lokaj ankoraŭ ne alkutimi-
-
-ĝis al tio. Kiam la knaboj ekkuros sur la ŝnuro, ĉiu ekmiros. Vi scias mem, kiom perlaboras arlekeno kaj kiom vera artisto!”
+konsentis Filipo, ”kaj la homoj ĉi-lokaj ankoraŭ ne alkutimiĝis al tio. Kiam la knaboj ekkuros sur la ŝnuro, ĉiu ekmiros. Vi scias mem, kiom perlaboras arlekeno kaj kiom vera artisto!”
 
 La olda klaŭno, rememoranta la pasintan gloron, gloron
 
-tiom foran, ke ĝi fariĝis nekredebla revo, ŝultrolevis, braku-
-
-mis la etan Barbara kaj pacience rigardis, kiel la aliaj infanoj ekzercas. Dum iliaj kuraĝaj saltoj li mienis duone laŭde, duone moke. Gasparo ŝatis la oldan Giacomon kaj restadis ĉe li.
+tiom foran, ke ĝi fariĝis nekredebla revo, ŝultrolevis, brakumis la etan Barbara kaj pacience rigardis, kiel la aliaj infanoj ekzercas. Dum iliaj kuraĝaj saltoj li mienis duone laŭde, duone moke. Gasparo ŝatis la oldan Giacomon kaj restadis ĉe li.
 
 Li ĉesis observi la fratojn kaj rigardis la klaŭnon, liajn strangajn grimacojn kaj ridetojn. Kvankam li tion ne rimarkis, lia
 
@@ -523,7 +421,6 @@ tion surprizite. ”Vi komprenis min, ĉu?”
 
 **12**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -531,33 +428,23 @@ Ankaŭ komencinte frekventi lernejon, Gasparo mankis ĉe
 
 neniu eklezia soleno, nenie, kie estis ia spektaklo. Mire li observis, kiel la homaj vizaĝoj ŝanĝiĝas. Kiam iu negocisto lin
 
-pelis for de la vendotablo, li mienis alie, ol kiam li portis bal-dakenstangon. La olda kantoro, kantanta dum la religia pro-
+pelis for de la vendotablo, li mienis alie, ol kiam li portis bal-dakenstangon. La olda kantoro, kantanta dum la religia procesio, neniel similis tiun kun la kanvergo. Ankaŭ la militpa-
 
-cesio, neniel similis tiun kun la kanvergo. Ankaŭ la militpa-
-
-radojn Gasparo ŝatis. Okulegante pro miro, li rigardis la pa-
-
-tron, survestantan festan uniformon, butonantan bukojn kaj
+radojn Gasparo ŝatis. Okulegante pro miro, li rigardis la patron, survestantan festan uniformon, butonantan bukojn kaj
 
 brosantan ĉakon. ĉiam li trakubutis al si lokon tuj en la unua
 
 vico, por bone observi oficiron, kiel li kun la kapo klinita kaj sovaĝa rigardo levetas sin en ruĝa selo, kaj la soldatojn rigide marŝantajn kun marmoraj vizaĝoj kaj vaksitaj lipharoj. Li
 
-lude organizis soldat-paradojn, mem aŭ kune kun aliaj kna-
-
-boj enlerneje aŭ fore apudrivere. Li estis malgranda, ĉifoni-
+lude organizis soldat-paradojn, mem aŭ kune kun aliaj knaboj enlerneje aŭ fore apudrivere. Li estis malgranda, ĉifoni-
 
 ta. Ili toleris lin inter si pro pardonemo, nome tial, ĉar li sciis naive mieni; neniu scipovis imiti mornajn oficirojn aŭ aro-gantajn komercistojn kiel li. Ankaŭ hejme li ludadis tiel, kiam li solis, sed li hontis antaŭ la aliaj, ĉar la fratoj mokis lin kaj la fratinoj lin misrespektis. Fieregaj kaj aŭdacaj ili rigardis Gasparon kiel abortiton, kaj liaj stultaj grimacoj tion ankoraŭ malbonigadis. La vivo de Gasparo en tia etoso ne estis ĝuste
 
-rozkolora. La severecon de la patro kaj morozon de la patri-
-
-no li akceptadis kiel naturan neceson, sed simpation de la
+rozkolora. La severecon de la patro kaj morozon de la patrino li akceptadis kiel naturan neceson, sed simpation de la
 
 gefratoj li avidis ege, kaj ilia krueleco lin doloris. Li havis neniun, al kiu li povus plendi.
 
-Nur kiam venis vizite la olda Giacomo, li demandis la kna-
-
-bon senvorte: ”ĉu multe vi suferis?”
+Nur kiam venis vizite la olda Giacomo, li demandis la knabon senvorte: ”ĉu multe vi suferis?”
 
 Kaj li ekkomprenis la rigardon de la italo kaj faldis bedaŭre
 
@@ -567,7 +454,6 @@ la vizaĝon.
 
 **13**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -577,7 +463,6 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 **14**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -585,9 +470,7 @@ Sur la vojo plena de piedbatoj kaj vundoj
 
 Filipo Deburau en Kolín havis impreson, ke la tero brulas
 
-sub liaj piedoj. La lastaj ŝparaĵoj jam konsumiĝis. La re-
-
-giono mizeris. Francan soldaton rigardis la urbanoj preskaŭ
+sub liaj piedoj. La lastaj ŝparaĵoj jam konsumiĝis. La regiono mizeris. Francan soldaton rigardis la urbanoj preskaŭ
 
 venĝeme, kvazaŭ li kaŭzus la suferojn, kiujn semadis tra la
 
@@ -595,13 +478,9 @@ mondo la reganto de Francio. Lia ĉeesto ĉi tie malagrablis por
 
 li. Kiu lin nutros, post kiam li ekos kun la familio almozpeti?
 
-Deburau petpostulis denove, ke li povu artisme sin pre-
+Deburau petpostulis denove, ke li povu artisme sin prezentadi. Oni hezitis doni al li la permeson. Finfine, tio estis somere en la jaro 1802 — la regiona ofico en Kouĝim — jesis,
 
-zentadi. Oni hezitis doni al li la permeson. Finfine, tio estis somere en la jaro 1802 — la regiona ofico en Kouĝim — jesis,
-
-sed samtempe zorgeme spionis, kial fakte la franciano resta-
-
-das ĉi-loke kaj surbaze de kia licenco. Severa leĝo, pelanta
+sed samtempe zorgeme spionis, kial fakte la franciano restadas ĉi-loke kaj surbaze de kia licenco. Severa leĝo, pelanta
 
 civitanojn, kiuj paŭperiĝis, en la naskiĝlokon, ĝin kaj ilin hon-tigante, puŝis Deburauon for el Bohemio kaj kune ankaŭ la
 
@@ -611,9 +490,7 @@ devos forlasi sian patrolandon, kaj kune kun ŝi ankaŭ kvar
 
 infanojn kaj la kvinan, la duonparencan Franciskon.
 
-Nur unu feliĉ-ekbrilo lumigis foje la tristajn tagojn en Ko-
-
-lín, Filipo renkontiĝis kun kelkaj militkaptitoj kaj eksciis, ke de la maljuna onklino en Amiens onidire li heredis ian dome-ton. Filipo komence nur mansvingis. Sed post kiam kontro-
+Nur unu feliĉ-ekbrilo lumigis foje la tristajn tagojn en Kolín, Filipo renkontiĝis kun kelkaj militkaptitoj kaj eksciis, ke de la maljuna onklino en Amiens onidire li heredis ian dome-ton. Filipo komence nur mansvingis. Sed post kiam kontro-
 
 listoj venis denove enketadi, demandante pri la dokumentoj,
 
@@ -625,17 +502,12 @@ dometo en Amiens reaperis kiel vilao, kie la senkonsila ser-
 
 **15**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-vistaro esperplene elrigardas, kiam kaj kiu ekmastros la for-
+vistaro esperplene elrigardas, kiam kaj kiu ekmastros la forlasitan bienegon.
 
-lasitan bienegon.
-
-La ekzercado de la infanoj bruske severiĝis. La olda Giaco-
-
-mo iĝis familiano kaj kolektadis ĉiujn utilajn spertojn. Post
+La ekzercado de la infanoj bruske severiĝis. La olda Giacomo iĝis familiano kaj kolektadis ĉiujn utilajn spertojn. Post
 
 kiam la regiona ofico promesis al Filipo pasporton, por ke li
 
@@ -645,17 +517,11 @@ Kolín apud la rivero la unuan grandan prezentadon, kaj post
 
 la unua venis pluaj, por ke ili enspezu por la vojaĝo. Por ne
 
-fortimigi la spektantojn, li titolis sin Filipo, invitante la civitanojn al vizito per la nomo Dvoĝák, kiu estis lia kromno-
+fortimigi la spektantojn, li titolis sin Filipo, invitante la civitanojn al vizito per la nomo Dvoĝák, kiu estis lia kromnomo. La knabinojn rebaptis Giacomo antaŭ la granda vojaĝo
 
-mo. La knabinojn rebaptis Giacomo antaŭ la granda vojaĝo
+per pli kutimaj nomoj, kiuj jam restis al ili: Katarina kaj Dorotea.
 
-per pli kutimaj nomoj, kiuj jam restis al ili: Katarina kaj Do-
-
-rotea.
-
-Iuvespere ili forlasis la urbon Kolín. Tiutage la suno, klin-
-
-ante sin okcidenten, ekstreme ruĝis kaj la akvo-surfaco de
+Iuvespere ili forlasis la urbon Kolín. Tiutage la suno, klinante sin okcidenten, ekstreme ruĝis kaj la akvo-surfaco de
 
 Elbo estis kvazaŭ post ia masakro. Estis majo. Kiam ili estis
 
@@ -681,7 +547,6 @@ la knabo tremis tutkorpe, timis kaj se tamen li aŭdacis salti,
 
 **16**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -695,9 +560,7 @@ protektanton; la vivo de la maljuna pajaco Giacomo estingiĝis
 
 proksime de pordego de la Bohemia ĉefurbo. La gajnon el
 
-prezentado en antaŭurbo Deburau-oj donis por sepulto. Gas-
-
-paro korŝire ploris vidante ĉerkon kun sia majstro kaj instru-
+prezentado en antaŭurbo Deburau-oj donis por sepulto. Gasparo korŝire ploris vidante ĉerkon kun sia majstro kaj instru-
 
 isto terensinki. Vi finiĝis, Giacomo! Gasparo tiam certis, ke
 
@@ -709,9 +572,7 @@ tiu ĉi adiaŭo.
 
 La unuaj vesperoj, kiam ili prezentadis sin apud la limoj de
 
-Bohemio, estis sukcesaj; homoj ĉi-loke estis afablaj, danke-
-
-maj; ŝate ili admiris la familian grupon. Valoris spekti. Filipo aĉetis ĉe la vaganta ĵonglisto, al kiu li pruntadis por la diman-
+Bohemio, estis sukcesaj; homoj ĉi-loke estis afablaj, dankemaj; ŝate ili admiris la familian grupon. Valoris spekti. Filipo aĉetis ĉe la vaganta ĵonglisto, al kiu li pruntadis por la diman-
 
 ĉaj prezentadoj siajn infanojn, ĉiujn liajn skarpojn kaj zonojn, jupojn kaj bandolierojn; kio mankis, tion kudris Katarina kun
 
@@ -731,7 +592,6 @@ grince kunpremis la dentojn por venki doloron kaj ploron.
 
 **17**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -743,27 +603,17 @@ Li priĉizis sin, sed ne kutimiĝis. Li duonmortadis ĉiam pro
 
 teruro, grimpante sur la ŝultrojn de siaj fratoj, kaj ĉiun salton desupre suben li opiniis sia lasta momento. Kutime li ankaŭ
 
-fuŝis tion. ĉio funkciis senerare, oni sentis hororon pro ku-
+fuŝis tion. ĉio funkciis senerare, oni sentis hororon pro kuraĝo de la Deburau-knaboj, pro ilia elasteco kaj lerteco, sed
 
-raĝo de la Deburau-knaboj, pro ilia elasteco kaj lerteco, sed
+subite, kiam aperis Gasparo, oni komencis ridetadi kaj la impreso vaniĝis. La artistoj ridetis kaj riverencis, sed apenaŭ ili estis post kurteno, mire ke ili ne karambolis, kiel ili kuregis post Gasparon, por bati lin. La tuta intereso de Gasparo dum
 
-subite, kiam aperis Gasparo, oni komencis ridetadi kaj la im-
+la prezentadoj koncentriĝis al tio, ke li iĝu minimume okulfrapa. Timeme li ĉiam observis la vizaĝojn de la vilaĝaj spek-
 
-preso vaniĝis. La artistoj ridetis kaj riverencis, sed apenaŭ ili estis post kurteno, mire ke ili ne karambolis, kiel ili kuregis post Gasparon, por bati lin. La tuta intereso de Gasparo dum
-
-la prezentadoj koncentriĝis al tio, ke li iĝu minimume okul-
-
-frapa. Timeme li ĉiam observis la vizaĝojn de la vilaĝaj spek-
-
-tantoj, enirante la spektaklejon. Se homoj fajfos, kiam li te-
-
-renfalos, li malsatos kaj estos draŝita. Se oni ridos, li ricevos nur kelkajn kapfrapojn, kaj aldone panpecon. Sed alzacanoj
+tantoj, enirante la spektaklejon. Se homoj fajfos, kiam li terenfalos, li malsatos kaj estos draŝita. Se oni ridos, li ricevos nur kelkajn kapfrapojn, kaj aldone panpecon. Sed alzacanoj
 
 kaj bavaroj ne zorgis, kiel fartas la eta kaj ridinda friponeto.
 
-Ili pagis kaj volis sin amuzi. Gasparo sekvis iliajn larĝe mal-
-
-fermitajn okulojn kiel hundo. Timo instruis lin diferencigi la
+Ili pagis kaj volis sin amuzi. Gasparo sekvis iliajn larĝe malfermitajn okulojn kiel hundo. Timo instruis lin diferencigi la
 
 publikon kaj ĝian ridon. Li sciis, ke iu primokos lian mallertecon per altsibla maniero, oni elfajfos lin; sed, kiam aŭdiĝis
 
@@ -771,9 +621,7 @@ laŭta, larĝa rido, tio kutime influis ankaŭ la aliajn kaj ili bonhumoris. Pos
 
 la prezentado; homoj ridis kaj donadis al li pli ol al aliaj.
 
-La patro ne elbatis el Gasparo la timon, sed kiam li rimar-
-
-kis, kiel la homoj amuziĝas pro liaj faloj, li ekhavis novan ide-on. Se mankas Giacomo al ni, ni transformos Gasparon je
+La patro ne elbatis el Gasparo la timon, sed kiam li rimarkis, kiel la homoj amuziĝas pro liaj faloj, li ekhavis novan ide-on. Se mankas Giacomo al ni, ni transformos Gasparon je
 
 klaŭno! La gefratoj rigardis lin kun malestima kompato, sed
 
@@ -781,19 +629,14 @@ li ĝojis; li gajis ne plu devi grimpi sur la fremdajn ŝultrojn kaj balanci sur
 
 **18**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 li la silkan veston kaj vestis lin en la malnovajn flikitajn ĉifonaĵojn, tion li povus preteratenti; plezure li ŝminkis sian
 
-vizaĝon simile kiel iam Giacomo; sed per tio lia tasko ne fini-
+vizaĝon simile kiel iam Giacomo; sed per tio lia tasko ne finiĝis. Se antaŭe iam-tiam li falis hazarde, nun li devis fali ĉiam, sed ĉiufoje kun ega frapsono kaj kun la kruroj ĉiam supre kaj
 
-ĝis. Se antaŭe iam-tiam li falis hazarde, nun li devis fali ĉiam, sed ĉiufoje kun ega frapsono kaj kun la kruroj ĉiam supre kaj
-
-kun la kapo malsupre. Li devis esti vera malo de siaj leĝer-
-
-kruraj kaj elastaj gefratoj; ili kiel nebuleto, li kvazaŭ la plumbo. Al kapobatoj post kurteno aldoniĝis kapfrapoj antaŭ la
+kun la kapo malsupre. Li devis esti vera malo de siaj leĝerkruraj kaj elastaj gefratoj; ili kiel nebuleto, li kvazaŭ la plumbo. Al kapobatoj post kurteno aldoniĝis kapfrapoj antaŭ la
 
 publiko. Ili kutimis rigardi lin kiel mallertulon kaj frapaton
 
@@ -801,21 +644,16 @@ por nenio taŭgan. La tuta familio devis perlabori por vivteni
 
 sin. Ili per sia forto, laboro, kuraĝo, li per piedbatoj.
 
-La povra Gasparo ŝanceliradis en saktolo post siaj brave-
-
-gaj fratoj, stumblis je propraj kruroj kaj faladis naz-al-teren; li donadis, kion ili bezonis, kaj ricevadis rekompence vangofrapojn tiel fortajn, ke eblus kredi, ke post tiuj li povas fari kapriolon. Kion la ceteraj faris leĝere kaj elegante, li imitis maksimume mallerte; ili similis papiliojn; li terenfaladis kvazaŭ peza globo. Post kiam liaj fratinetoj finis la prezentadon
+La povra Gasparo ŝanceliradis en saktolo post siaj bravegaj fratoj, stumblis je propraj kruroj kaj faladis naz-al-teren; li donadis, kion ili bezonis, kaj ricevadis rekompence vangofrapojn tiel fortajn, ke eblus kredi, ke post tiuj li povas fari kapriolon. Kion la ceteraj faris leĝere kaj elegante, li imitis maksimume mallerte; ili similis papiliojn; li terenfaladis kvazaŭ peza globo. Post kiam liaj fratinetoj finis la prezentadon
 
 surŝnure, li devis tamen supren kaj post momentoj de rigida
 
-penado falegi suben. Gasparo akiris valoran sperton: pli faci-
-
-las lasi sin elfajfi, homojn malĝojigi, plorigi kaj entute fari kun ili kion ajn — ol ilin ridigi. Kiam ili ridadis pri liaj seninten-caj faloj, nenio ŝajnis al li pli facila; sed nun la samo iĝis diabla tasko. Li falegis teren kiel plej bone li kapablis, sed ree˛is eĉ ne voĉeto. Timeme li ekrigardis la patron. Komandema
+penado falegi suben. Gasparo akiris valoran sperton: pli facilas lasi sin elfajfi, homojn malĝojigi, plorigi kaj entute fari kun ili kion ajn — ol ilin ridigi. Kiam ili ridadis pri liaj seninten-caj faloj, nenio ŝajnis al li pli facila; sed nun la samo iĝis diabla tasko. Li falegis teren kiel plej bone li kapablis, sed ree˛is eĉ ne voĉeto. Timeme li ekrigardis la patron. Komandema
 
 rigardo ordonis al li: ”Ankoraŭ foje!” Li salte levis sin kaj ripetis la falon ĝis en lia kapo ekfajreris. Hura, kelkaj voĉoj ekridaĉis. Li disspecigus sin, por ke ili iom ridu; tio ja signifas manĝon kaj iom da ripozo. Li havis nenion plu por ĝoji; pecon da pano kun graso, kaj momentojn, kiam la tuta mondo
 
 **19**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -829,7 +667,6 @@ ridu tondre pri tio, ridu, vi kanajloj en la unuaj vicoj, mi petas, ridu, vi apa
 
 **20**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -837,17 +674,11 @@ La franca heredaĵo
 
 Ju pli ili alproksimiĝis al la franca limo, des pli ofte la patro enpensiĝis dum longaj silentemaj momentoj. Post kiam ni
 
-transpaŝos la limon, en la plej proksima vilaĝo ni aĉetos bo-
+transpaŝos la limon, en la plej proksima vilaĝo ni aĉetos botelon da ruĝa vino, levos ĝntraŭ la ĉielon, por ke nia su-
 
-telon da ruĝa vino, levos ĝntraŭ la ĉielon, por ke nia su-
+no incidu sur ĝin kaj poste ni eltrs ĝin. Kaj la glutkvanton ricevos ankaŭ la tero, por ke ni tostu kun ĝi! ŝajnis al li, ke ne nur li, sed ankaŭ liaj infanoj revenas en sian patrion.
 
-no incidu sur ĝin kaj poste ni eltrs ĝin. Kaj la glutkvan-
-
-ton ricevos ankaŭ la tero, por ke ni tostu kun ĝi! ŝajnis al li, ke ne nur li, sed ankaŭ liaj infanoj revenas en sian patrion.
-
-Laŭ konturo de la horizonto li antaŭvidis bone konatajn montetojn multe pli frue, antaŭ ol ili atingis Francion. Li malkovradis konatajn arbojn, riveretojn kaj stelojn sur la firma-
-
-mento. Amiens! Celo de la kelkmonata migrado, paradiza re-
+Laŭ konturo de la horizonto li antaŭvidis bone konatajn montetojn multe pli frue, antaŭ ol ili atingis Francion. Li malkovradis konatajn arbojn, riveretojn kaj stelojn sur la firmamento. Amiens! Celo de la kelkmonata migrado, paradiza re-
 
 vo de la sep homoj, kiuj malsatis, batalis kontraŭ la laco kaj
 
@@ -855,9 +686,7 @@ suferis dum longaj marŝoj kaj dum frostmalvarmaj noktoj!
 
 Amiens! Sorĉa futuro, pro kiu ili perdis sian patrolandon kaj
 
-la firman teron sub la piedoj! En ĉiu bela domo, kiun ili ek-
-
-vidis, ili antaŭvidis sian posedaĵon, sed de ĉiu sin forturnis, ĉar por ili ĝi malmulte noblis.
+la firman teron sub la piedoj! En ĉiu bela domo, kiun ili ekvidis, ili antaŭvidis sian posedaĵon, sed de ĉiu sin forturnis, ĉar por ili ĝi malmulte noblis.
 
 Komisaro de Amiens kontrolis iliajn dokumentojn; poste li
 
@@ -867,23 +696,16 @@ almigrintoj ilian heredaĵon. Deburau-oj ne kuraĝis demandi.
 
 Ili dankis kaj senvorte postiris la gardiston survoje, de kie ili venis. Ankoraŭ pli scivoleme ili rigardis ĉiujn bele konstrui-tajn domojn, preter kiuj li gvidis ilin kaj atendis ĝis ilia gvidanto levos la manon kaj diros: Jen, ĉi tie! Ili plu distancis for **21**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-de la urbo-centro. Kaj poste venis momento, kiam la gardi-
+de la urbo-centro. Kaj poste venis momento, kiam la gardisto haltis. Li alrigardis kompate la strangajn fremdulojn, le-
 
-sto haltis. Li alrigardis kompate la strangajn fremdulojn, le-
-
-vis la manon kaj diris: ”Jen!” Rapide li foriris. Kion ili vidis, estis ruino; kelke da muroj disfalontaj, rompita barilo, la tegmento trafalinta kaj rubejo ĉie ĉirkaŭe. Ankaŭ pli frue ĝi es-
-
-tis kaduka domaĉo, pri kiu la posedantoj ne tro zorgis; post
+vis la manon kaj diris: ”Jen!” Rapide li foriris. Kion ili vidis, estis ruino; kelke da muroj disfalontaj, rompita barilo, la tegmento trafalinta kaj rubejo ĉie ĉirkaŭe. Ankaŭ pli frue ĝi estis kaduka domaĉo, pri kiu la posedantoj ne tro zorgis; post
 
 kiam oni elportis el ĝi la lastan posedanton, zorgis pri ĝi jam neniu. La plej aĝa filo ekfrapis la pordon; ĝi renversiĝis. Polva nubo ruliĝis supren elinterne. Katarino enrigardis tien:
 
-araneaĵoj, malpuraĵo, ŝimo. Momenton ŝi vivigis en si espe-
-
-ron, ke oni povus ripari la konstruaĵon.
+araneaĵoj, malpuraĵo, ŝimo. Momenton ŝi vivigis en si esperon, ke oni povus ripari la konstruaĵon.
 
 ”Eĉ ne unu trabo estas bonorda,” respondis patro Deburau
 
@@ -899,9 +721,7 @@ ploro, vang-ĉevange. Ili ĉiuj estis tiel etaj kaj senfortaj; ili, kiuj ĉiam r
 
 La komediantoj ekloĝis en antaŭurba korto kaj vespere
 
-aranĝis spektaklon. Estis dimanĉo. Merkrede ili sukcesis ven-
-
-di sian heredaĵon. Subite ili havis pli da mono ol iam dum-
+aranĝis spektaklon. Estis dimanĉo. Merkrede ili sukcesis vendi sian heredaĵon. Subite ili havis pli da mono ol iam dum-
 
 vojaĝe. Iun semajnon ili ripozis. Sed frankoj elspeziĝis kaj
 
@@ -917,37 +737,26 @@ Kaj tiel iutage la patro Deburau rekalkulis la lastan monon
 
 **22**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 kaj ekiris al foiro. Kiam li estis revenanta, postiris lin lante, pezpaŝe magra ĉevalaĉino kaj post la ĉevalaĉino klakbruis
 
-korbveturilo kun kovrotuka tegmento. ĉiuj ekzaltis. La ĉeva-
-
-laĉino por dekok frankoj certe memoris kelkajn kruelajn ba-
+korbveturilo kun kovrotuka tegmento. ĉiuj ekzaltis. La ĉevalaĉino por dekok frankoj certe memoris kelkajn kruelajn ba-
 
 talojn; ĝi estis kiel sekigita kaj havis surkorpe cikatrojn de
 
 mistera origino. Sed tuj ĝi fariĝis amato de tuta familio, kiu
 
-ĝin glore akceptis kiel sian anon. Post kelke da tagoj ekvetu-
+ĝin glore akceptis kiel sian anon. Post kelke da tagoj ekveturis Deburau-anoj el Amiens returnen.
 
-ris Deburau-anoj el Amiens returnen.
-
-Ili veturis sen atingi la limon. Komenciĝis decembro, var-
-
-ma kaj malseka senneĝa decembro. En la plej proksima urbe-
+Ili veturis sen atingi la limon. Komenciĝis decembro, varma kaj malseka senneĝa decembro. En la plej proksima urbe-
 
 to ili renkontiĝis kun karavano de veturiloj celantaj al Parizo.
 
-Napoleonon Bonaparton oni kronis kiel francan imperiest-
+Napoleonon Bonaparton oni kronis kiel francan imperiestron. La komerca spirito ekprenis gvidrimenojn kaj turnis la
 
-ron. La komerca spirito ekprenis gvidrimenojn kaj turnis la
-
-komediantan ĉaron suden. Ili trabatis sin denove per siaj sal-
-
-toj kaj kaprioloj kaj bone prosperis. Ili rapidis. Sed ankoraŭ
+komediantan ĉaron suden. Ili trabatis sin denove per siaj saltoj kaj kaprioloj kaj bone prosperis. Ili rapidis. Sed ankoraŭ
 
 unu kruela senreviĝo atendis ilin. Ili ĝojis je la metropolo,
 
@@ -959,45 +768,32 @@ polico ne lasis eniri enurben elementojn suspektindajn. Vana
 
 intertraktado. Kaj vane la eta Gasparo elrigardadis el sub
 
-malseka kovrotuko, por ekvidi almenaŭ turojn de la sopira-
-
-ta urbo. ĉar pluvis kaj nebulis, li vidis nenion, nur la nigran muron de la pordego kaj vizaĝojn de la malafablaj gardistoj,
+malseka kovrotuko, por ekvidi almenaŭ turojn de la sopirata urbo. ĉar pluvis kaj nebulis, li vidis nenion, nur la nigran muron de la pordego kaj vizaĝojn de la malafablaj gardistoj,
 
 kiuj sakris, defrotadis la pluvon de siaj vangoj kaj montris al la komediantoj, ke ili leviĝu kaj vagu kun sia ĉaro al la direkto, de kiu ili venis.
 
 ”Vivu la imperiestro! Gloro al la imperiestro!”, vokis homoj
 
-ĉiuloke, kie la komediantoj veturis. Fierega kaj perfida Pari-
-
-zo restis post ili. Ili sentis sin honorofenditaj pro tio, ke ĝi forpelis ilin. Nur la eta Gasparo rememoris ĝin kun tima estimo.
+ĉiuloke, kie la komediantoj veturis. Fierega kaj perfida Parizo restis post ili. Ili sentis sin honorofenditaj pro tio, ke ĝi forpelis ilin. Nur la eta Gasparo rememoris ĝin kun tima estimo.
 
 **23**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ĉar oni malpermesis Parizon al ili, tio plialtigis ĝian atraktivecon. Dum longaj noktoj, kiam li devis gardi la ĉevalinon kaj
 
-la veturilon, li imagis ĝiajn stratojn, palacojn kaj ĝian Napo-
+la veturilon, li imagis ĝiajn stratojn, palacojn kaj ĝian Napoleonon.
 
-leonon.
+Spite la fakton, ke la nokta tempo iam senfine treniĝis, Gasparo ŝatis ripozon en arbaroj pli ol la malvarmon en vetur-
 
-Spite la fakton, ke la nokta tempo iam senfine treniĝis, Ga-
-
-sparo ŝatis ripozon en arbaroj pli ol la malvarmon en vetur-
-
-koridoroj kaj en staloj. Nur dum pluvado ili restadis en gas-
-
-tejoj aŭ ĉe komplezaj kampistoj; ili devis enpremiĝi en ia su-
+koridoroj kaj en staloj. Nur dum pluvado ili restadis en gastejoj aŭ ĉe komplezaj kampistoj; ili devis enpremiĝi en ia su-
 
 foka kamero, kie oni malfacile spiris kaj ankaŭ esti dankemaj,
 
 ke ili povis tie dormeti sur la malmola planko. Sed kiam sude
 
-komenciĝis baldaŭ printempo, ili tranoktadis denove ekste-
-
-re kaj tie sub la steloj pli bone, pli libere.
+komenciĝis baldaŭ printempo, ili tranoktadis denove ekstere kaj tie sub la steloj pli bone, pli libere.
 
 Kion prirevis la knabeto dum sendorme pasigitaj noktoj?
 
@@ -1007,9 +803,7 @@ surloke de siaj fratoj, meze de homamaso, prezentante ion,
 
 kion neniu kapablas. ĉu vi vidas? — montras al li spektantoj
 
-kun flamaj okuloj, ili aplaŭdas kaj klamas. Li riverencas kaj ridetas. Kaj poste venas gardistoj el pariza pordego; ili riverencas multe pli profunde kaj petas, ke ne plu li koleru kaj ku-
-
-niru; sinjoro, imperiestro Napoleono venigas vin montri al li
+kun flamaj okuloj, ili aplaŭdas kaj klamas. Li riverencas kaj ridetas. Kaj poste venas gardistoj el pariza pordego; ili riverencas multe pli profunde kaj petas, ke ne plu li koleru kaj kuniru; sinjoro, imperiestro Napoleono venigas vin montri al li
 
 vian arton. Kaj li do iras. Nur nun, tiu frida, kruela, pluvoza Parizo malfermas okulojn, rekonas, kiun ĝi forpelis de siaj
 
@@ -1023,7 +817,6 @@ kiujn dumtage li vidis kaj renkontis. Li rememorigas al si ĉiun aparte, kaj kiu
 
 prezentadis al si, ne estis al li antipatiaj. Li feliĉis konante **24**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1045,19 +838,14 @@ Ne, vi ne dormas, li opiniis. Same kiel mi ĉi tie gardostaras,
 
 ankaŭ vi staras apud alta fenestro de via palaco kaj gardas la
 
-mondon. Vi rigardas, kiel respiras la nacioj, kiel maltrankvi-
+mondon. Vi rigardas, kiel respiras la nacioj, kiel maltrankvile ili moviĝas dumdorme, kaj aŭskultas, kiel ili aŭdigas vian
 
-le ili moviĝas dumdorme, kaj aŭskultas, kiel ili aŭdigas vian
-
-nomon, kun kolera respekto, kun admiro kaj lace. Regas tene-
-
-bro super Eŭropo, kaj nur ni du garde staras. Nur ni du — mi
+nomon, kun kolera respekto, kun admiro kaj lace. Regas tenebro super Eŭropo, kaj nur ni du garde staras. Nur ni du — mi
 
 kaj vi, Napoleono!
 
 **25**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1067,35 +855,25 @@ Ombro de la franca imperiestro ilin persekutis. La nomoj
 
 de grandaj batalkampoj atingadis ilin, venigadis al ili en
 
-rigardejon aron da ekĝojigitaj spektantoj kaj alifoje malple-
+rigardejon aron da ekĝojigitaj spektantoj kaj alifoje malplenon, akre odorantan de tristo kaj furiozo.
 
-non, akre odorantan de tristo kaj furiozo.
-
-Napoleono venkis la aŭstrianojn apud Ulm. Trafalgar es-
-
-tis la nomo de lia malvenko surmare, sed poste venis la glo-
+Napoleono venkis la aŭstrianojn apud Ulm. Trafalgar estis la nomo de lia malvenko surmare, sed poste venis la glo-
 
 ro apud Slavkov (Austerlitz). Li detronigis Burbonidojn en
 
 Napolo kaj donacis Nederlandon al sia frato, post aŭstrianoj
 
-li humiligis ankaŭ prusojn kaj enmarŝis en Berlinon. Sur sim-
-
-pla floso meze de rivero Njemen kun caro Aleksandro li di-
+li humiligis ankaŭ prusojn kaj enmarŝis en Berlinon. Sur simpla floso meze de rivero Njemen kun caro Aleksandro li di-
 
 vidis al si Eŭropon: li okupis Portugalion, la reston de Italio kaj turnis la atenton al Hispanio.
 
 La familio de Deburau vane klopodis eskapi for de la influo
 
-de la nomo, forprenanta de homoj la dormon. Ili iĝis noma-
-
-doj kaj iris tien, kie regis pli varma vetero kaj kie ili antaŭsentis pli donacemajn polmojn; ili evitadis militojn kaj ribelojn
+de la nomo, forprenanta de homoj la dormon. Ili iĝis nomadoj kaj iris tien, kie regis pli varma vetero kaj kie ili antaŭsentis pli donacemajn polmojn; ili evitadis militojn kaj ribelojn
 
 kaj serĉis solenojn, foirojn, festojn. Ilia nomada vagado daŭris jam jarojn. Ili gajnis kelkajn groŝojn kaj denove ilin elspezis.
 
-Pasinta vivo en la ĉeą Kolín ŝajnis al ili revo preskaŭ nekre-
-
-debla. La vivo tie, jen ilia vera sorto. La infanoj kreskis kaj maturiĝis. Ili iĝis spertaj komediantoj, kies nomoj havis jam
+Pasinta vivo en la ĉeą Kolín ŝajnis al ili revo preskaŭ nekredebla. La vivo tie, jen ilia vera sorto. La infanoj kreskis kaj maturiĝis. Ili iĝis spertaj komediantoj, kies nomoj havis jam
 
 renomon. La pastro ĉesis prezentadi sin, sed la prezentado de
 
@@ -1105,25 +883,18 @@ kies nomon oni afiŝis kiel Neumenseck, estis nomata ”reĝo de
 
 **26**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-magia tapiŝo”, sur kiu la publiko ekvidos miraklojn de lerte-
-
-co; Stefano estis la plej elasta saltanto sur la tuta kontinento
+magia tapiŝo”, sur kiu la publiko ekvidos miraklojn de lerteco; Stefano estis la plej elasta saltanto sur la tuta kontinento
 
 — patro Deburau tion almenaŭ asertis, invitante la publikon.
 
 La pli oldan fratinon Katarinan oni kutimiĝis pro ŝia bruna
 
-haŭto kaj densa nigra hararo titoli ”La bela hungarino”. La pli juna, blondhara Dorotea, dancis kvazaŭ nebuleto. Nur Gasparo restis daŭre sentaŭgulo. Li aĝis dek, dekdu, dekkvar ja-
+haŭto kaj densa nigra hararo titoli ”La bela hungarino”. La pli juna, blondhara Dorotea, dancis kvazaŭ nebuleto. Nur Gasparo restis daŭre sentaŭgulo. Li aĝis dek, dekdu, dekkvar jarojn, sed ellernis ne pli ol kelkajn kapriolojn, kiuj sufiĉis por lia arlekena rolo. Nek la patro nek la fratoj ŝatis vidi, trafin-te lin grimaci antaŭspegule, kiel li provas ŝanĝi la vizaĝ-esprimon, kiel li aldonas la nigron sur brovojn kaj la ruĝon sur la
 
-rojn, sed ellernis ne pli ol kelkajn kapriolojn, kiuj sufiĉis por lia arlekena rolo. Nek la patro nek la fratoj ŝatis vidi, trafin-te lin grimaci antaŭspegule, kiel li provas ŝanĝi la vizaĝ-esprimon, kiel li aldonas la nigron sur brovojn kaj la ruĝon sur la
-
-lipojn por fari sian palan vizaĝon pli interesa. Por kio ĝi ne-
-
-cesas? Sufiĉas ja farunumi la vizaĝon kaj poste ĝin elmeti al
+lipojn por fari sian palan vizaĝon pli interesa. Por kio ĝi necesas? Sufiĉas ja farunumi la vizaĝon kaj poste ĝin elmeti al
 
 vangofrapoj.
 
@@ -1131,23 +902,15 @@ Pasante tra la franca marborda regiono Filipo Deburau
 
 provis veni kun la familianoj en Hispanion. Sed ankaŭ tien
 
-persekutis ilin Napoleon-ombro, kaj kien ĝi sterniĝis, tie ek-
+persekutis ilin Napoleon-ombro, kaj kien ĝi sterniĝis, tie ekflamis fajroj. Tuj la unuan nokton Gasparo ekvidis francajn
 
-flamis fajroj. Tuj la unuan nokton Gasparo ekvidis francajn
+soldatojn, kiujn oni krucumis; la sekvintan nokton kamaradoj de la krucumitoj masakris la tutan vilaĝon. La trian nok-
 
-soldatojn, kiujn oni krucumis; la sekvintan nokton kamara-
-
-doj de la krucumitoj masakris la tutan vilaĝon. La trian nok-
-
-ton la Deburau-anoj dormis jam denove sub la franca firma-
-
-mento. Volante vivteni sin, ili devis pluen.
+ton la Deburau-anoj dormis jam denove sub la franca firmamento. Volante vivteni sin, ili devis pluen.
 
 Ili iris en Italion, sed ĉie en la urboj koncentriĝis mistera
 
-malamego. La homoj preterpasis unu la alian kun signifople-
-
-naj rigardoj kaj nur flustre parolis. En Mantovo oni ekzeku-
+malamego. La homoj preterpasis unu la alian kun signifoplenaj rigardoj kaj nur flustre parolis. En Mantovo oni ekzeku-
 
 tis homon, kiu en Tirolo gvidis ribelon kontraŭ Napoleono.
 
@@ -1159,29 +922,20 @@ de mistero kaj heroeco. Ili aŭskultadis babiladojn de vilaĝaj
 
 virinoj, same en Francio kiel en Italio, kaj Germanio; ili ĉiuj **27**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 malamis Napoleonon, ĉar li prenadis de ili la edzojn kaj filojn.
 
-Pro lia nesatigeblo amasiĝis montoj da kadavroj kaj fluis san-
+Pro lia nesatigeblo amasiĝis montoj da kadavroj kaj fluis sango-riveroj.
 
-go-riveroj.
-
-Iam Gasparo parolis pri ĉi tio kun la patro. La olda Debu-
-
-rau diris, por klarigi tion al sia filo: ”La afero samas, knabo, kun la salto, kiun vi volus enaere haltigi. Jam tarde. Ankaŭ
+Iam Gasparo parolis pri ĉi tio kun la patro. La olda Deburau diris, por klarigi tion al sia filo: ”La afero samas, knabo, kun la salto, kiun vi volus enaere haltigi. Jam tarde. Ankaŭ
 
 same por Napoleono.”
 
-Imago de salton faranta Napoleono estis por Gasparo ri-
+Imago de salton faranta Napoleono estis por Gasparo ridinda. Kaj la ideo, ke li mismezurus la salton, ke li ne falus je piedoj… Sed ŝajnis, ke la imperiestro elastas kaj estas rapida
 
-dinda. Kaj la ideo, ke li mismezurus la salton, ke li ne falus je piedoj… Sed ŝajnis, ke la imperiestro elastas kaj estas rapida
-
-kiel leono. Li retiriĝis apud Aspern, sed apud Wagram lia ma-
-
-no estis peza kaj per packontrakto en Vieno li aneksis al Fran-
+kiel leono. Li retiriĝis apud Aspern, sed apud Wagram lia mano estis peza kaj per packontrakto en Vieno li aneksis al Fran-
 
 cio egan parton de Balkano. ĉar la papo aliancis kun Anglio,
 
@@ -1191,17 +945,11 @@ Tiutempe Deburau-anoj estis malproksime, eĉ en Turkio.
 
 Iliaj prezentadoj en Istanbulo estis la plej brilaj. Dum tuta
 
-monato ili havis prezentadojn antaŭ plenplena spaco. La tri-
+monato ili havis prezentadojn antaŭ plenplena spaco. La tridekan tagon vizitis ilin en la tendego supera oficisto. ĉiuj ektimis, ke ili atencis iujn leĝojn de alikredantoj. Sed montriĝis, ke la sultano mem invitas ilin en la palacon, por ke ili aranĝu tie programon, kiu dum la tuta monato ravis la istanbulanojn.
 
-dekan tagon vizitis ilin en la tendego supera oficisto. ĉiuj ektimis, ke ili atencis iujn leĝojn de alikredantoj. Sed montriĝis, ke la sultano mem invitas ilin en la palacon, por ke ili aranĝu tie programon, kiu dum la tuta monato ravis la istanbulanojn.
+Ega aro da gardistoj kondukis ilin tra multaj pordegoj, koridoroj kaj pordetoj, kiujn severe gardis soldatoj en turbanoj
 
-Ega aro da gardistoj kondukis ilin tra multaj pordegoj, kori-
-
-doroj kaj pordetoj, kiujn severe gardis soldatoj en turbanoj
-
-kaj kun lanco, ĝis ili venis en salonegon, kiun, rilate la pom-
-
-pon, nenio superis. i estis kolose alta. Muroj estis kvazaŭ el oro kaj meze fontano. En la fona parto pendis preskaŭ de la
+kaj kun lanco, ĝis ili venis en salonegon, kiun, rilate la pompon, nenio superis. i estis kolose alta. Muroj estis kvazaŭ el oro kaj meze fontano. En la fona parto pendis preskaŭ de la
 
 plafono longa kaj diafana blanka kurteno.
 
@@ -1211,13 +959,10 @@ ili ekvidos sian majestan publikon. Sed la kurteno eĉ ne iome-
 
 **28**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-te moviĝis. Servisto ordonis, ke ili komencu. Poste ili inter-
-
-konsentis, rememorante, ke ĝi estis ilia plej bona prezentado.
+te moviĝis. Servisto ordonis, ke ili komencu. Poste ili interkonsentis, rememorante, ke ĝi estis ilia plej bona prezentado.
 
 Sen publiko! Kia absurdaĵo! La knabinoj paŝis surŝnure kaj
 
@@ -1225,17 +970,13 @@ desaltadis. Neniu aplaŭdis al ili. Nur en la momento, kiam la
 
 knaboj prezentis pli danĝeran faron, aŭdiĝis flustreto. Krome
 
-nenio, saltoj, kaprioloj kaj arabeskoj antaŭ la senmova kurte-
-
-no. Kaj tamen io!
+nenio, saltoj, kaprioloj kaj arabeskoj antaŭ la senmova kurteno. Kaj tamen io!
 
 ĉe la finala kaj aŭdaca grup-figuro patro Deburau tenis sur
 
 la frunto persan bastonon kun apogilo, supre en la pendoreto
 
-balancis du fratoj kaj sur iliajn kapojn ascendis ankaŭ Gaspa-
-
-ro. Kaj tie desupre li ekvidis… Li ekvidis kion ne darfis vidi
+balancis du fratoj kaj sur iliajn kapojn ascendis ankaŭ Gasparo. Kaj tie desupre li ekvidis… Li ekvidis kion ne darfis vidi
 
 okulo de iu ajn mortemulo sub la minaco de la plej kruela
 
@@ -1253,9 +994,7 @@ vizaĝojn, fikse rigardantajn al la kurteno, travidebla de ilia
 
 flanko.
 
-Gasparo ekvidis multajn kolorojn sur iliaj strangaj kostu-
-
-moj, hararon falanta surŝultren, la nudajn mamojn de kelkaj
+Gasparo ekvidis multajn kolorojn sur iliaj strangaj kostumoj, hararon falanta surŝultren, la nudajn mamojn de kelkaj
 
 servistinoj, svingantaj ventumilojn sur longaj stangoj. Sed la
 
@@ -1263,9 +1002,7 @@ patro suprenĵetis la stangon kaj Gasparo devis desalti.
 
 Nek dum foriro el la sultana palaco kun riĉa rekompenco,
 
-nek alifoje li diris al siaj fratoj pri la fabela spektaklo. Tio restis lia bela sekreto. Eble unuafoje en sia vivo Gasparo ne be-
-
-daŭris, ke al li apartenas la danĝera supro de la homa pirami-
+nek alifoje li diris al siaj fratoj pri la fabela spektaklo. Tio restis lia bela sekreto. Eble unuafoje en sia vivo Gasparo ne bedaŭris, ke al li apartenas la danĝera supro de la homa pirami-
 
 do.
 
@@ -1275,7 +1012,6 @@ tra pli malriĉaj regionoj. Ili migris ree tra Germanio kaj Gas-
 
 **29**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1285,39 +1021,30 @@ antaŭe —, ĉar li dekutimiĝis plori. Li aĝis jam dekkvin jarojn, kiam post 
 
 limo. Ili sciiĝis, ke Napoleono repudiis Jozefinon, al kiu li ed-ziĝis kiel generalo, kaj festis la geedziĝon al Maria Luiza, filino de la aŭstria imperiestro. Denove ili alkutimiĝadis je la
 
-franca kampara regiono kaj timide okulcelis Parizon. Sed ve-
-
-nis printempo, marto kaj cent unu kanonpafoj anoncis, ke en
+franca kampara regiono kaj timide okulcelis Parizon. Sed venis printempo, marto kaj cent unu kanonpafoj anoncis, ke en
 
 la ĉefurbo la imperiestro havas filon, tron-heredonton, tuj en
 
 la lulilo kronitan je la romia imperiestro.
 
-Filipo Deburau decidiĝis. Kiam la imperiestro feliĉas, li es-
-
-tas afabla kaj laŭ li ankaŭ ministroj, konsilistoj, prefektoj kaj finfine eĉ la plej subalternaj oficistoj. Nun venis la ĝusta momento veni en la urbon, kiu famis antaŭ iliaj okuloj kiel hej-
+Filipo Deburau decidiĝis. Kiam la imperiestro feliĉas, li estas afabla kaj laŭ li ankaŭ ministroj, konsilistoj, prefektoj kaj finfine eĉ la plej subalternaj oficistoj. Nun venis la ĝusta momento veni en la urbon, kiu famis antaŭ iliaj okuloj kiel hej-
 
 mo kaj paradizo de ĉiuj artistoj.
 
 **30**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Bonvenigo en Parizo
 
-Parizo!Do, jen ci, monstro, kiun mi rememoris sude kaj mal-
-
-proksime en oriento! Miaj paŝoj tremetas, enirante cin. Mi ri-
+Parizo!Do, jen ci, monstro, kiun mi rememoris sude kaj malproksime en oriento! Miaj paŝoj tremetas, enirante cin. Mi ri-
 
 gardas vizaĝojn de ciaj domoj kaj palacoj. La ĵaluzioj estas
 
 mallevitaj. ĉu ci ne volas montri cin al mi?
 
-Vi diras Parizo kaj reeąs nomojn de ĝiaj reĝoj kaj revolu-
-
-ciuloj, nomojn de gloraj pentristoj, kiuj certe superas la na-
+Vi diras Parizo kaj reeąs nomojn de ĝiaj reĝoj kaj revoluciuloj, nomojn de gloraj pentristoj, kiuj certe superas la na-
 
 turon en sia arto, nomojn de aŭtoroj, kaj precipe nomojn de
 
@@ -1327,9 +1054,7 @@ Parizo palpebrumetis super la eta alilandano per verdaj
 
 okuloj de siaj fenestretoj, levetis siajn grizajn ŝton-ŝultrojn, sed samtempe logis: Venu! ĝi flustris el somera tenebro. ĉiu
 
-nova panoramo, per kiu la urbo vidigis sin al li, estis amkon-
-
-feso. Gasparo premis enpoŝe la senpovajn pugnojn. A˛, povi
+nova panoramo, per kiu la urbo vidigis sin al li, estis amkonfeso. Gasparo premis enpoŝe la senpovajn pugnojn. A˛, povi
 
 cnkeri. Signifi tiom, ke minimume unusola cia angulo
 
@@ -1337,23 +1062,16 @@ riverencu al mi, ke mi posedu almenaŭ pecon da tiu ŝtono, ke
 
 minimume unu paro da virin-okuloj min ekrigardu!
 
-Klaŭnaj piedbatoj bruldolorigis duoble antaŭ la pariza vi-
+Klaŭnaj piedbatoj bruldolorigis duoble antaŭ la pariza vizaĝo, li hontis antaŭ ĝi, antaŭ ĝia mokema atendado. Pro amo
 
-zaĝo, li hontis antaŭ ĝi, antaŭ ĝia mokema atendado. Pro amo
-
-al ĝi kaj pro spitemo naskiĝis en li granda ambicio. Deburau-
-
-anoj komence konjektis, ke ili ekloĝos en iu el la forlasitaj ejoj de Luvro aŭ Tuilerioj, kiel aliaj artistaj familioj; sed Napoleono ordonis fine la restaŭradon de ambaŭ sidejoj kaj la ĵong-
+al ĝi kaj pro spitemo naskiĝis en li granda ambicio. Deburauanoj komence konjektis, ke ili ekloĝos en iu el la forlasitaj ejoj de Luvro aŭ Tuilerioj, kiel aliaj artistaj familioj; sed Napoleono ordonis fine la restaŭradon de ambaŭ sidejoj kaj la ĵong-
 
 listojn oni elpelis. La patro Deburau trovis do por sia familio **31**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-rifuĝejon dekstraborde de Sejno en strato St. Maur Popin-
-
-court, en povra, malriĉa kvartalo, longdistance de la urbo-
+rifuĝejon dekstraborde de Sejno en strato St. Maur Popincourt, en povra, malriĉa kvartalo, longdistance de la urbo-
 
 centro kaj loĝata de neriĉaj metiistoj, laboristoj kaj homoj
 
@@ -1363,55 +1081,36 @@ kien venadis soldatoj danci. Enkorte de la granda kaj nigra,
 
 demorterigita domo, la vaganta familio ektendumis kaj tie
 
-ankaŭ komencis denove aranĝi la prezentadojn. ĉiutage, ne-
+ankaŭ komencis denove aranĝi la prezentadojn. ĉiutage, nelonge post krepuskiĝo — dimanĉe kaj dum festotagoj jam
 
-longe post krepuskiĝo — dimanĉe kaj dum festotagoj jam
+posttagmeze eliris patro Deburau sur trotuaron antaŭ la pordego kaj per flor-riĉa oratoraĵo invitadis la preterpasantojn al vizito de la grandioza spektaklo. Kaj parizanoj ne lasis sin tro devigi; tiam estis la ora tempo por ĉiuj tiaspecaj entreprenoj.
 
-posttagmeze eliris patro Deburau sur trotuaron antaŭ la por-
-
-dego kaj per flor-riĉa oratoraĵo invitadis la preterpasantojn al vizito de la grandioza spektaklo. Kaj parizanoj ne lasis sin tro devigi; tiam estis la ora tempo por ĉiuj tiaspecaj entreprenoj.
-
-Ordon ŝatanta imperiestro ja malpermesadis la miniteat-
-
-rojn kaj igis ilin fermadi, sed la homoj, tiom longe suferintaj pro milit-ĝenaĵoj, sopiris la distradon kaj volis entuziasmiĝi
+Ordon ŝatanta imperiestro ja malpermesadis la miniteatrojn kaj igis ilin fermadi, sed la homoj, tiom longe suferintaj pro milit-ĝenaĵoj, sopiris la distradon kaj volis entuziasmiĝi
 
 per interesa spektaklo. La nomo Deburau baldaŭ hejmiĝis
 
-enkvartale kaj kiel la knaboj kun siaj vivoriskaj saltoj, tiel la knabinoj per ĉarmo de siaj dancoj famiĝis en la tuta ĉirkaŭ-
-
-aĵo; kaj kiam dimanĉ-vespere aranĝis la olda Deburau post
+enkvartale kaj kiel la knaboj kun siaj vivoriskaj saltoj, tiel la knabinoj per ĉarmo de siaj dancoj famiĝis en la tuta ĉirkaŭaĵo; kaj kiam dimanĉ-vespere aranĝis la olda Deburau post
 
 fino de la prezentado artfajraĵon, kiu kostis lin entute eĉ ne
 
-dekdu centimojn, oni rememoradis tiun grandiozan spekta-
+dekdu centimojn, oni rememoradis tiun grandiozan spektaklon dum la tuta semajno.
 
-klon dum la tuta semajno.
+La komedianta familio fartis denove pli bone. i komencis revi pri la pli grandaj kaj pli variaj prezentadoj, pri propra budo ie surbulvarde, pri muziko, pri menaĝerio. ŝparinte la
 
-La komedianta familio fartis denove pli bone. i komen-
-
-cis revi pri la pli grandaj kaj pli variaj prezentadoj, pri propra budo ie surbulvarde, pri muziko, pri menaĝerio. ŝparinte la
-
-unuajn frankojn ili aĉetis klarneton. La patro ordonis al Gas-
-
-paro, ke li ellernu ĝin ludi. ĉar pro tio oni lin liberigis de la plej malbonaj faloj desur supro de la ”egipta piramido”, li ne
+unuajn frankojn ili aĉetis klarneton. La patro ordonis al Gasparo, ke li ellernu ĝin ludi. ĉar pro tio oni lin liberigis de la plej malbonaj faloj desur supro de la ”egipta piramido”, li ne
 
 hezitis. Neniu instruis lin ludi; vendisto klarigis al li kiel ma-nipuli la instrumenton, kaj tio sufiĉis. Gasparo ludis dum pre-
 
 **32**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-zentado; li ludis laŭ sia kapablo kaj propraj imagoj pri melo-
-
-dio. Homoj plejparte lin ne aŭskultis kaj ridis, nur kiam li
+zentado; li ludis laŭ sia kapablo kaj propraj imagoj pri melodio. Homoj plejparte lin ne aŭskultis kaj ridis, nur kiam li
 
 fajfis tro false.
 
-La patro akceptis en la grupon pliajn du akrobatojn, la ge-
-
-edzojn Godot. Lin mistifikis ilia glora famo, kaj li ne sciis, ke jam delonge ili fordrinkis ĝin kaj ke nun ili fordrinkas ankaŭ
+La patro akceptis en la grupon pliajn du akrobatojn, la geedzojn Godot. Lin mistifikis ilia glora famo, kaj li ne sciis, ke jam delonge ili fordrinkis ĝin kaj ke nun ili fordrinkas ankaŭ
 
 la rememoron pri ĝi. Gasparo ilin malamis, ĉar glaseto, kiun
 
@@ -1421,23 +1120,15 @@ denove; la geedzoj Godot tenis sin ĉe Deburau-oj kaj Gasparo
 
 tial fidelis al sia klarneto.
 
-Vagante dum liberaj tempetoj tra la zigzagaj stratoj, li me-
+Vagante dum liberaj tempetoj tra la zigzagaj stratoj, li meditis kaj rezonis. Ne malfacilis konkludi, ke ne eblas konkeri
 
-ditis kaj rezonis. Ne malfacilis konkludi, ke ne eblas konkeri
-
-Parizon, se oni ne konas perfekte ĝiajn loĝantojn. Sed Gaspa-
-
-ro volis ilni, ĉar al multaj jam dekomence li korinklinis.
+Parizon, se oni ne konas perfekte ĝiajn loĝantojn. Sed Gasparo volis ilni, ĉar al multaj jam dekomence li korinklinis.
 
 La povrulojn malriĉajn li konis bone, ĉar li vivis inter ili; li sciis pri ilia mizero kaj li lernis de ili malmildecon. Sed funde li observis ĉiujn homojn ĉirkaŭe. Li konatiĝis kun kiu ajn
 
-dum renkontiĝoj. Li vizitadis ankaŭ la imperiestrajn ĝarde-
+dum renkontiĝoj. Li vizitadis ankaŭ la imperiestrajn ĝardenojn kaj gvatis, kiel kondutas riĉaj urbanoj kaj oficiroj, kiel ili, laŭ la angla maniero ĵus veninta en Parizon, ĉe la renkontiĝo
 
-nojn kaj gvatis, kiel kondutas riĉaj urbanoj kaj oficiroj, kiel ili, laŭ la angla maniero ĵus veninta en Parizon, ĉe la renkontiĝo
-
-premas al si la manojn. Li vagadis preter butikoj de italaj glaciaĵistoj apud hanovera pavilono, kies krianoncoj rememori-
-
-gadis al li la oldan Giacomon. Li vizitadis parkojn, kie li aŭskultis koncertojn kaj spektis piroteknikaĵojn, scivoleme li haltadis ĉe homgrupetoj kaj aŭskultadis, kio interesas ilin. Kelk-
+premas al si la manojn. Li vagadis preter butikoj de italaj glaciaĵistoj apud hanovera pavilono, kies krianoncoj rememorigadis al li la oldan Giacomon. Li vizitadis parkojn, kie li aŭskultis koncertojn kaj spektis piroteknikaĵojn, scivoleme li haltadis ĉe homgrupetoj kaj aŭskultadis, kio interesas ilin. Kelk-
 
 foje okazis, ke viroj rimarkis lin, silente atentigis unu la alian kaj haste disiradis, kvazaŭ timigitaj. Li komprenis la kaŭzon,
 
@@ -1445,7 +1136,6 @@ kiam foje lin kaptis je la ŝultro magra longulo.
 
 **33**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1453,17 +1143,13 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Mi ne scias,” diris laŭvere Gasparo.
 
-”Atentu, ci respublikano!” minacis al li la longulo, kaj mal-
-
-aperis inter homamasoj. Tio estis lia unua renkontiĝo kun
+”Atentu, ci respublikano!” minacis al li la longulo, kaj malaperis inter homamasoj. Tio estis lia unua renkontiĝo kun
 
 sekreta policisto; pli tarde li ellernis ilin diferencigi unuavide kaj facile divenis, kiu havas sekreton kaj kiu spionas. Meze de septembro estis okupita Moskvo. En la tago, kiam la informo
 
 atingis Parizon, la metropolo brilis dum la tuta nokto per ĉiuj lumoj. Neniu sciis, ke en la sama tempo Napoleono jam delonge estis revenanta, ke dekmiloj da gvardianoj, kiuj foriris
 
-kiel belaj kaj sanaj viroj, pereis apud Berezina, kaj ke la glo-ra imperiestro sendis en la morto-regnon duonmilionan ar-
-
-meon. Parizo solene lumis kaj Gasparo admiris la parizanojn,
+kiel belaj kaj sanaj viroj, pereis apud Berezina, kaj ke la glo-ra imperiestro sendis en la morto-regnon duonmilionan armeon. Parizo solene lumis kaj Gasparo admiris la parizanojn,
 
 kiel ili solenas la venkon, kiel ili scias esti entuziasmaj kaj gajaj, malgraŭ tio, ke estas milito, eĉ se ili havas sian imperiestron kun la armeo en danĝera neĝoplena malproksimo.
 
@@ -1471,9 +1157,7 @@ Brilegaj parizanoj!
 
 Post dek tagoj venis la unua informo pri la malfeliĉa fino
 
-de la kontraŭrusa militekspedicio kaj la solena iluminado es-
-
-tingiĝis. Parizo eksilentis kaj atendis. Baldaŭ alvenis kurieroj.
+de la kontraŭrusa militekspedicio kaj la solena iluminado estingiĝis. Parizo eksilentis kaj atendis. Baldaŭ alvenis kurieroj.
 
 Ekde la limoj al Parizo devancis diliĝencoj, kaleŝoj kaj aliaj
 
@@ -1485,15 +1169,12 @@ Gasparo vidis bone: li renkontadis ofte plorantajn okulojn,
 
 sed post larmoj kreskis spita obstino.
 
-”Kiu revenis, estas je dek jaroj pli aĝa”, rakontis renkon-
-
-tiĝintoj kun soldatoj el la detruita armeo. ”Gvardianoj reko-
+”Kiu revenis, estas je dek jaroj pli aĝa”, rakontis renkontiĝintoj kun soldatoj el la detruita armeo. ”Gvardianoj reko-
 
 nis eĉ ne la imperiestron revenintan,” certigis la atestantoj.
 
 **34**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1501,9 +1182,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 domo en strato St. Maur kune kun Deburau-anoj, klopodis
 
-satisfakcie rebonigi siajn peketojn kaj estante konata kun kel-
-
-kaj statistoj el Operdomo, li sukcesis aranĝi venon de la scia-
+satisfakcie rebonigi siajn peketojn kaj estante konata kun kelkaj statistoj el Operdomo, li sukcesis aranĝi venon de la scia-
 
 vida Gasparo proksimume trifoje enteatren. La etoso plaĉis al
 
@@ -1527,17 +1206,13 @@ kiuj ne tro pesis la vortojn.
 
 ”Li plu iros. Li kolektas novan armeon.”
 
-”i ne plu estos la iama armeo. Aŭ li prudentiĝos, aŭ sek-
-
-vos katastrofo.”
+”i ne plu estos la iama armeo. Aŭ li prudentiĝos, aŭ sekvos katastrofo.”
 
 ”Atenton,” diris unu el la parolantaj junuloj kaj montris al
 
 viro en borderita jako, kiu proksimiĝis.
 
-”Vi pravas,” konsente jesis tiu homo. ”Jam sufiĉas la mili-
-
-timpostoj. Rekrutadon oni jam ĉesu.”
+”Vi pravas,” konsente jesis tiu homo. ”Jam sufiĉas la militimpostoj. Rekrutadon oni jam ĉesu.”
 
 ”Ege vi eraras, sinjoro,” diris intence la junulo, kiu ankoraŭ
 
@@ -1553,7 +1228,6 @@ lasos nin tromplogi!”
 
 **35**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1561,13 +1235,9 @@ Ne facilis por alilandano orienti sin en vortoj kaj ideoj de
 
 la hejmanoj. Nur lante Gasparo komprenis, ke Napoleono
 
-signifis por ĉiu ion alian, kvazaŭ li ekzistus en pluraj perso-
+signifis por ĉiu ion alian, kvazaŭ li ekzistus en pluraj personoj. Nobeloj lin malamis, ĉar li estis popoldevena kaj avan-
 
-noj. Nobeloj lin malamis, ĉar li estis popoldevena kaj avan-
-
-cigis lin la revolucio. La urbanoj lin taksis laŭ agoj al ili pro-fitdonaj kaj ilin limigantaj. La plej malriĉaj ligis al lia persono multajn esperojn kaj longe ilin pacience vivtenis. Lia ne-
-
-venkeblo sur batalkampo ilin unue fascinis; sed ankaŭ la mi-
+cigis lin la revolucio. La urbanoj lin taksis laŭ agoj al ili pro-fitdonaj kaj ilin limigantaj. La plej malriĉaj ligis al lia persono multajn esperojn kaj longe ilin pacience vivtenis. Lia nevenkeblo sur batalkampo ilin unue fascinis; sed ankaŭ la mi-
 
 lit-gloro ne povas satigi. Fine li senrevigis ilin. Malmulto da esperoj realiĝis; avantaĝojn havis nur soldatoj, cenzuro premis la vivon; kanon-pafoj, sub kiuj falis respublikanoj sur pla-taĵo de Grenell, estis malfruiĝinta pruvo, ke la imperiestra
 
@@ -1577,9 +1247,7 @@ Eŭropo fine interkonsentis kaj batalordigis la unuiĝintajn
 
 armeojn kontraŭ konstantaj konker-planoj de la imperiestro.
 
-Aŭstrio proponis peri la pacon. Sed Napoleono arde sopire-
-
-gis atingi novajn venkojn, reposedi la perditan potencon.
+Aŭstrio proponis peri la pacon. Sed Napoleono arde sopiregis atingi novajn venkojn, reposedi la perditan potencon.
 
 Gasparo rememorigis al si la infanan estimon, kun kiu iam
 
@@ -1593,7 +1261,6 @@ En la teatro sidis belaj virinoj. Li elektis unu el ili kaj longe paŝis post ŝ
 
 sola. Li estis revenanta kaj ĉiuj stratoj montradis al li velurajn kaj nigrajn angulojn, atendantaj amantojn, fenestroj sekreti-36
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1609,13 +1276,9 @@ amon. Mi ekamiĝis al palaj knabinetoj, ludantaj laŭlonge de
 
 vojoj, tra kiuj ni veturis, mi eksopiris la nudajn ŝultretojn de la sultan-favorantinoj, mi rigardis jupojn de multaj inoj, kiujn mi renkontis. Rare mi darfis enrigardi trans la sekretan
 
-kurtenon, kiel iam en Istanbulo… Mi timis. Sed okaze de ne-
+kurtenon, kiel iam en Istanbulo… Mi timis. Sed okaze de negravaj epizodoj en gastejoj perdis por mi ankaŭ la virinaj ma-
 
-gravaj epizodoj en gastejoj perdis por mi ankaŭ la virinaj ma-
-
-leoloj sian terure misteran atraktivecon kaj mi ellernis rigardi virinon pli memkonfide; ne ĉiam tio estis bela, sed despli ek-scitprovoka kaj potenciganta mian sopiron pri momenta sen-
-
-fortigo, pri bela amo.”
+leoloj sian terure misteran atraktivecon kaj mi ellernis rigardi virinon pli memkonfide; ne ĉiam tio estis bela, sed despli ek-scitprovoka kaj potenciganta mian sopiron pri momenta senfortigo, pri bela amo.”
 
 Sed ĉi-loke por la amo necesas mono. Mono aŭ kuraĝo.
 
@@ -1623,13 +1286,9 @@ Nenion tian Gasparo posedas. La patro donas al li eĉ ne unu
 
 moneron kaj mem li nenion gajnas. Kaj kuraĝo? Alparoli iun
 
-knabinon? Tiuj pli arogantaj dirus: ”O, jes, kavaliro, sed mon-
+knabinon? Tiuj pli arogantaj dirus: ”O, jes, kavaliro, sed montru unue monujon!” Kaj tiuj pli decaj? Ne, tiujn kontakti li ne aŭdacos. Iam li forbrulus pro la sopiro, kiam li premiĝas en
 
-tru unue monujon!” Kaj tiuj pli decaj? Ne, tiujn kontakti li ne aŭdacos. Iam li forbrulus pro la sopiro, kiam li premiĝas en
-
-homamaso apud palaco kaj kiam li kolizias kun dikaj urbani-
-
-noj kaj ridemaj modistinoj. Sed ĉu povas la franĝita kaj trivita pantalono svati silkan jupon de modistino, se ĉiun ĉirkaŭas
+homamaso apud palaco kaj kiam li kolizias kun dikaj urbaninoj kaj ridemaj modistinoj. Sed ĉu povas la franĝita kaj trivita pantalono svati silkan jupon de modistino, se ĉiun ĉirkaŭas
 
 tri belaj elegantaj studentoj? Kiel ekplaĉi en ĉemizo ŝanĝita
 
@@ -1639,13 +1298,10 @@ respondus, se iu demandus vin pri tio? Mi ludas klarneton.
 
 Mi kapablas terenfali tiel, ke iam ĝi ne tro doloras min. Kaj
 
-sekrete, sekrete mi pensas pri tio, ke mi volus prezentadi ko-
-
-medion, pantomimon. Kiel ridinda! Jes, ĉiu primokus min.
+sekrete, sekrete mi pensas pri tio, ke mi volus prezentadi komedion, pantomimon. Kiel ridinda! Jes, ĉiu primokus min.
 
 **37**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1661,7 +1317,6 @@ ni estas dekokjaraj!
 
 **38**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1669,25 +1324,15 @@ Brilaj parizanoj
 
 Brilaj parizanoj! Kiel vi ŝanĝiĝis en la okuloj de tiu, kiu ne
 
-apartenis al vi, en la komenciĝintaj printempaj tagoj. Ne-
+apartenis al vi, en la komenciĝintaj printempaj tagoj. Nelonga tempo pasis, kiam solene vi ovaciis venkon de via im-
 
-longa tempo pasis, kiam solene vi ovaciis venkon de via im-
+periestro, vi entuziasmaj patriotoj, fidelaj ĝis la lasta spiro al Napoleono? Aŭ via patriotismo estis nurnure ŝato de la milit-fortuno — kaj kiam ĝi forlasis lin, vi perdis kune kun profit-espero ankaŭ la amon al via lando?
 
-periestro, vi entuziasmaj patriotoj, fidelaj ĝis la lasta spiro al Napoleono? Aŭ via patriotismo estis nurnure ŝato de la milit-fortuno — kaj kiam ĝi forlasis lin, vi perdis kune kun pro-
+Post batal-fiasko apud Lepsiko la eventoj pasegis tion rapide, ke mankis tempo por respiri. Aliancanoj transiris Rej-
 
-fit-espero ankaŭ la amon al via lando?
+non, de Pireneoj proksimiĝis Wellington kun angloj. Napoleono ankoraŭ ie-tie per neatendita atako sporade venkis, sed
 
-Post batal-fiasko apud Lepsiko la eventoj pasegis tion ra-
-
-pide, ke mankis tempo por respiri. Aliancanoj transiris Rej-
-
-non, de Pireneoj proksimiĝis Wellington kun angloj. Napo-
-
-leono ankoraŭ ie-tie per neatendita atako sporade venkis, sed
-
-lia armeo degelis. La aliancanoj ruliĝis al Parizo. Kiam Gaspa-
-
-ro primiris iliajn venkojn, la patro diris al li: ”Ili batalas por sia propra libereco, naivulo. Kaj Napoleono? Tiu batalas nur
+lia armeo degelis. La aliancanoj ruliĝis al Parizo. Kiam Gasparo primiris iliajn venkojn, la patro diris al li: ”Ili batalas por sia propra libereco, naivulo. Kaj Napoleono? Tiu batalas nur
 
 por reteni sian potencon.”
 
@@ -1707,7 +1352,6 @@ Estis klare, ke la imperio estas falanta. La respubliko, el kiu la imperio naski
 
 **39**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1717,17 +1361,11 @@ kiel fungoj postpluve. Kiuj sciis malpli ol aliaj, kiuj opiniis sin forpuŝitaj 
 
 Necesas sekurigi al si postenon en la nova. Ministroj, pri kiuj oni opiniis, ke ili restos, akceptadis amase gastojn. La iama
 
-aristokrataro, kiu malrespektis Napoleonon, vigliĝis. Rojalista konsilantaro daŭre kunsidis kaj sendadis kurierojn ĉiudirek-ten. Mono komencis labori. Pogrupe aperis duonmaturaj bu-
+aristokrataro, kiu malrespektis Napoleonon, vigliĝis. Rojalista konsilantaro daŭre kunsidis kaj sendadis kurierojn ĉiudirek-ten. Mono komencis labori. Pogrupe aperis duonmaturaj bubaĉoj, kiuj kuraĝis proklami: ”Vivu Burbonoj!”
 
-baĉoj, kiuj kuraĝis proklami: ”Vivu Burbonoj!”
+Zorgoplenaj urbanoj fingromontradis al la proklamoj, algluitaj sur stratanguloj kaj apelanciantaj, ke Parizo trankvile kapitulacu. La laborista partio igis presi flugfoliojn, provan-taj lastmomente vivigi la patriotismon. Sed policistoj kuradis
 
-Zorgoplenaj urbanoj fingromontradis al la proklamoj, al-
-
-gluitaj sur stratanguloj kaj apelanciantaj, ke Parizo trankvile kapitulacu. La laborista partio igis presi flugfoliojn, provan-taj lastmomente vivigi la patriotismon. Sed policistoj kuradis
-
-tra stratoj kaj ŝiris ilin el la manoj. Blank-kokardistoj argu-
-
-mentis al aretoj da aŭskultantoj, ke al kontraŭbatalo instigas
+tra stratoj kaj ŝiris ilin el la manoj. Blank-kokardistoj argumentis al aretoj da aŭskultantoj, ke al kontraŭbatalo instigas
 
 nur tiuj, havantaj nenion por perdi. Kiu havas familion kaj
 
@@ -1737,9 +1375,7 @@ Gasparo ne kapablis tion kompreni. Tiuj, kiuj dankas al tiu
 
 ĉi lando por la havaĵo, por bonstato, kaj devus ĝin unuavice
 
-defendi, transdonas ĝmpleze al malamiko? ĉu ne miri-
-
-gas, ke pretaj defendi ĝin estas nur senhavuloj? Tiu ĉi lando
+defendi, transdonas ĝmpleze al malamiko? ĉu ne mirigas, ke pretaj defendi ĝin estas nur senhavuloj? Tiu ĉi lando
 
 eksigis ilin el bonfarto, fermis ilin en stratetoj, kiuj plenas de malpuro kaj malsanoj, donas al ili eĉ ne manĝon kaj tamen ili
 
@@ -1749,35 +1385,24 @@ oferemo, tio eble ne kongruas, opiniis Gasparo.
 
 Kaj poste eventoj devancis ideojn.
 
-Kozakoj sur Montmartro? La informo disportiĝis tra Pari-
-
-zo. Gasparo kuregis al sia elrigardejo. Li vidis en krepusko
+Kozakoj sur Montmartro? La informo disportiĝis tra Parizo. Gasparo kuregis al sia elrigardejo. Li vidis en krepusko
 
 fajrojn, ĉirkaŭ kiuj svarmis kozakoj en altaj ĉapoj. Estis tie
 
 **40**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ankaŭ germanoj. ĉi-loke super Parizo ili kunvenis por ĝin
 
-dispartigi al si. Kaj Gasparo kuris denove returnen. Tiuvespe-
+dispartigi al si. Kaj Gasparo kuris denove returnen. Tiuvespere entute neniu iris trankvile. ĉiuj rapidis por novaĵoj kaj profito. La prezentado en strato St. Maur ne okazis. Deburau-
 
-re entute neniu iris trankvile. ĉiuj rapidis por novaĵoj kaj profito. La prezentado en strato St. Maur ne okazis. Deburau-
+anoj timegis venontajn tagojn, ĉar unu senenspeza tago signifis mizeron. Sed estis pli bone ol oni imagis. Rusoj kaj ger-
 
-anoj timegis venontajn tagojn, ĉar unu senenspeza tago signi-
+manoj enmarŝis en Parizon, kvazaŭ liberigante ĝin de la kruela jugo. La metropolo ilin gloris.
 
-fis mizeron. Sed estis pli bone ol oni imagis. Rusoj kaj ger-
-
-manoj enmarŝis en Parizon, kvazaŭ liberigante ĝin de la kru-
-
-ela jugo. La metropolo ilin gloris.
-
-”Vivu caro Aleksandro,” vokis la publiko je la rusaj ofici-
-
-roj.
+”Vivu caro Aleksandro,” vokis la publiko je la rusaj oficiroj.
 
 ”Vivu belaj parizanoj!” ili respondadis.
 
@@ -1785,9 +1410,7 @@ Ili ne kondutis kiel okupaciantoj, sed kiel homoj venintaj
 
 ferii en la bonvivanta facilkrura Parizo. Ili scivolemis pri ĝi; neniel ili imagis okupi ĝin tiel facile. Amasoj da burbonaj fa-natikuloj, atendintaj post la pordego, etiĝis al la unua kavaleria taĉmento kaj kisis la polvoplenajn botojn de la oficiroj. El la fenestroj mansvingis junulinoj.
 
-Kiu aperus en Parizo dum la aprilaj tagoj, konjektus: la hu-
-
-miligita urbo ne kapitulacis, sed la nacio solene festas. ”Bri-
+Kiu aperus en Parizo dum la aprilaj tagoj, konjektus: la humiligita urbo ne kapitulacis, sed la nacio solene festas. ”Bri-
 
 legaj parizanoj” posedis siajn butikojn, domojn, trezorejojn.
 
@@ -1801,7 +1424,6 @@ distriĝis. Ili devis profiti al la ”ŝtata renverso”, mendi, vendi kaj tond
 
 **41**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1811,9 +1433,7 @@ kun la tempio dishakita, kun vestaĵo disŝirita, tuko sur la brusto plenis de s
 
 La patro devis uzi sian tutan aŭtoritaton por devigi lin al
 
-prezentado. Sed malfacilas salti kaj klaŭni, se Gasparo ĉiumo-
-
-mente vidas antaŭ siaj okuloj taĉmenton de francaj milit-kap-
+prezentado. Sed malfacilas salti kaj klaŭni, se Gasparo ĉiumomente vidas antaŭ siaj okuloj taĉmenton de francaj milit-kap-
 
 titoj, kondukata de germana eskorto. Ili marŝas tra stratoj,
 
@@ -1823,17 +1443,13 @@ kiuj antaŭ la krepusko plenas de laboristoj.
 
 ”En milit-tendaron.”
 
-La francaj junuloj lacas, sangoplenaj, kun bandaĝoj fran-
-
-ĝitaj, reciproke sin apogas, plenbarbaj, malgrasaj; kaj plej teruraj estas iliaj okuloj, vage rigardantaj domojn, vitrinojn,
+La francaj junuloj lacas, sangoplenaj, kun bandaĝoj franĝitaj, reciproke sin apogas, plenbarbaj, malgrasaj; kaj plej teruraj estas iliaj okuloj, vage rigardantaj domojn, vitrinojn,
 
 homojn, kiuj promenas surtrotuare kaj ridas. ŝajnas, ke la
 
 soldatoj estas el provinco; iliaj rigardoj estas mirigitaj, kvazaŭ eĉ en la mortolaco ili diradus al si: Tio do estas Parizo? Por ĉi tiuj homoj ni volis fali? Por ke nun oni gvidu nin tra nia urbo kiel sovaĝan bestaron.
 
-La dekokjara koro de Gasparo brulas pro ofendo de juste-
-
-co. Li ĉirkaŭrigardas kaj konstatas en okuloj de multaj viroj
+La dekokjara koro de Gasparo brulas pro ofendo de justeco. Li ĉirkaŭrigardas kaj konstatas en okuloj de multaj viroj
 
 la saman humiligon, kiun mem li travivas.
 
@@ -1845,23 +1461,18 @@ Aro da laboristoj etiĝis kontraŭ la prusajn bajonetojn kaj
 
 sabrojn. Ili havas nenion ol pugnigitajn manojn. Kaj tuj en la
 
-unua momento falas kelkaj sangante teren. La germana ofi-
-
-ciro komandas kaj unu eskorta vico puŝas la atakantojn sur
+unua momento falas kelkaj sangante teren. La germana oficiro komandas kaj unu eskorta vico puŝas la atakantojn sur
 
 trotuaron. Gasparo saltis furioze kontraŭ oficir-ĉevalon, sed
 
 ricevis sabro-baton kaj terenfalis. Kiam li leviĝis, la eskorto jam alproksimiĝis. Policistoj faras ordonon: arestas atakin-42
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 tojn. Ankaŭ lin iu ektuŝis, sed li elŝiriĝis kaj malaperis en la homamaso. Kaj la parizanoj, la parizanoj el lumigitaj butikoj,
 
-survoje al teatro kaj restoracioj aplaŭdas al la germana taĉ-
-
-mento. Ili aplaŭdas kvazaŭ ĵus ili vidus sukcesan farson.
+survoje al teatro kaj restoracioj aplaŭdas al la germana taĉmento. Ili aplaŭdas kvazaŭ ĵus ili vidus sukcesan farson.
 
 Gasparo kuregas, enbuŝe absinto; de malproksimo li aŭdas
 
@@ -1869,31 +1480,21 @@ ankoraŭ la teruran ”vivuon”, kiun vokas la superbaj parizanoj
 
 al la fremdaj soldatoj. Li bedaŭras, ke iam li volis esti franco.
 
-Sed la doloranta vundo sur la tempio atestas al li: jam mi fari-
-
-ĝis tiu.
+Sed la doloranta vundo sur la tempio atestas al li: jam mi fariĝis tiu.
 
 Nevolonte, nekompleze akceptis Gasparo piedbatojn por
 
-ridigi kelkajn soldatojn, kiuj iuvespere venis spekti la prezentadon. ĉar ili bone pagis kaj ne ŝparis ridon, igis la olda De-
+ridigi kelkajn soldatojn, kiuj iuvespere venis spekti la prezentadon. ĉar ili bone pagis kaj ne ŝparis ridon, igis la olda Deburau aranĝi la grandan ”milit-marŝon” kaj la ”egiptan pira-
 
-burau aranĝi la grandan ”milit-marŝon” kaj la ”egiptan pira-
-
-midon”: en la granda ”milit-marŝo” iris sinsekve surŝnure si-
-
-njoro Godot, Stefano kaj Francisko kun trikoloro enmane; la
+midon”: en la granda ”milit-marŝo” iris sinsekve surŝnure sinjoro Godot, Stefano kaj Francisko kun trikoloro enmane; la
 
 ”egiptan piramidon” personigis la geedzoj Godot, kiuj havis
 
 surŝultre bastonojn; sur ili staris Stefano kaj Francisko kaj sur iliaj ŝultroj tremis Gasparo.
 
-La geedzoj Godot ankaŭ tiutage trinkis antaŭ la prezenta-
+La geedzoj Godot ankaŭ tiutage trinkis antaŭ la prezentado, onidire por ke iliaj kruroj ne tremu; dum ili paŝis sur la
 
-do, onidire por ke iliaj kruroj ne tremu; dum ili paŝis sur la
-
-ŝnurego solaj, ili kapablis konservi ekvilibron, sed en la sama momento, kiam sur iliaj ŝultroj troviĝis la fratoj Deburau, kaj kiam ankoraŭ grimpis supren Gasparo, la piramido ekbalan-cis. Gasparo ne preventis la terenfalon. La soldatoj unuamo-
-
-mente grobe ekridis. Sed kiam Gasparo duonsvene sin levis,
+ŝnurego solaj, ili kapablis konservi ekvilibron, sed en la sama momento, kiam sur iliaj ŝultroj troviĝis la fratoj Deburau, kaj kiam ankoraŭ grimpis supren Gasparo, la piramido ekbalan-cis. Gasparo ne preventis la terenfalon. La soldatoj unuamomente grobe ekridis. Sed kiam Gasparo duonsvene sin levis,
 
 li ekaŭdis kelkajn vortojn en la lingvo, en kiu paroladis al li nur la panjo.
 
@@ -1905,7 +1506,6 @@ ekrigardis direkten, de kie eksonis la voĉo.
 
 **43**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1913,17 +1513,13 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Hej, kio vi estas?” vokis la soldato. ”Vi ne estas franco?”
 
-”Malfacile diri, sinjoro,” respondis Gasparo kaj kuris daŭ-
-
-rigi la prezentadon.
+”Malfacile diri, sinjoro,” respondis Gasparo kaj kuris daŭrigi la prezentadon.
 
 Sed kiam ĝi finiĝis, la soldato anonciĝis denove: li volis
 
 ekkoni la samlandanojn. La patro interŝanĝis kun li kelkajn
 
-vortojn, ili diris al si la regimentnumerojn, rememoris la ba-
-
-talojn kaj la komandantojn. Gasparo interesiĝis pli, kaj kiam
+vortojn, ili diris al si la regimentnumerojn, rememoris la batalojn kaj la komandantojn. Gasparo interesiĝis pli, kaj kiam
 
 la soldato forirante invitis lin trinki glaseton da vino, li hezitis eĉ ne unu momenton.
 
@@ -1933,15 +1529,11 @@ hazardo alkondukis ĉi tien la misŝancajn samlandanojn. Sed
 
 poste, eltrinkinte jam kelkajn glasetojn, li ekdemandis mem.
 
-Kia estas Bohemio? ĉu li konas urbon Kolín? De kie li deve-
-
-nas? Kaj ĉu apud Brandejs ankaŭ estas golfetoj? ĉu estas tie
+Kia estas Bohemio? ĉu li konas urbon Kolín? De kie li devenas? Kaj ĉu apud Brandejs ankaŭ estas golfetoj? ĉu estas tie
 
 plataĵo? Kaj kiaj homoj tie vivas?
 
-Kiam la lango de la soldato eklozis, sufiĉe multon li reme-
-
-moris. Li parolis mole, kvazaŭ la panmolaĵon li pecigus kaj
+Kiam la lango de la soldato eklozis, sufiĉe multon li rememoris. Li parolis mole, kvazaŭ la panmolaĵon li pecigus kaj
 
 rulus surpalate. Kompare al la kantemo de la franca lingvo la
 
@@ -1949,9 +1541,7 @@ rulus surpalate. Kompare al la kantemo de la franca lingvo la
 
 ”Ekzistas ĉe ni ebenaĵoj kaj montetoj,” diris la ĉeą soldato.
 
-”Ankaŭ rivero estas kaj kiam ĝi elbordiĝas, ve al kampoj ĉir-
-
-kaŭaj. Ne, surborde mi ne sidadis. Sur kampo laboro abun-
+”Ankaŭ rivero estas kaj kiam ĝi elbordiĝas, ve al kampoj ĉirkaŭaj. Ne, surborde mi ne sidadis. Sur kampo laboro abun-
 
 dis, de mateno ĝis vespero. Mi volis iĝi kamparano, sed la
 
@@ -1963,13 +1553,10 @@ najbar-filo kaj sciigis min, ke estas fino. Mi rekrutigis min.
 
 Kial bedaŭri? is Parizo mi venis. Iam mi rememoras, vere.
 
-Kvazaŭ hodiaŭ. Via fratino similas al Márinka. ŝi ne tiel be-
-
-lis, sed ankaŭ ŝi havis blondan hararon, kiel tritiko, kiam la
+Kvazaŭ hodiaŭ. Via fratino similas al Márinka. ŝi ne tiel belis, sed ankaŭ ŝi havis blondan hararon, kiel tritiko, kiam la
 
 **44**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -1979,15 +1566,11 @@ min ŝi forgesis.”
 
 La soldato ne venkis la triston kaj pridrinkis ĝin por la lasta mono, kiu restis al li.
 
-Kiam Gasparo akompanis lin post noktomezo hejmen, va-
-
-nis jam demandoj. Tiel nur por si mem li ripetis la ĉeąjn
+Kiam Gasparo akompanis lin post noktomezo hejmen, vanis jam demandoj. Tiel nur por si mem li ripetis la ĉeąjn
 
 vortojn; rybník, rákosí, pôenice, fiŝlago, kanaro, tritiko. Al li ŝajnis, kvazaŭ li trovus multekostajn memoraĵojn de la iama
 
-amo. Li elvokadis al si la junaĝon. Gasparo kondukis la sol-
-
-daton al la magazeno, kie situis la kazerno; ili adiaŭis kaj neniam plu renkontiĝis. Sed longe sonis al Gasparo la kanteto,
+amo. Li elvokadis al si la junaĝon. Gasparo kondukis la soldaton al la magazeno, kie situis la kazerno; ili adiaŭis kaj neniam plu renkontiĝis. Sed longe sonis al Gasparo la kanteto,
 
 kiun la trista samlandano zum-kantis, dum li kondukis tiun
 
@@ -1995,21 +1578,15 @@ el la gastejo hejmen. ”Malfeliĉa korteto, malfeliĉa kort’ ”. Kaj Gasparo
 
 Sed multis okazoj por aŭdi des pli da francaj kantoj. Kaj
 
-nome parizajn. La kanto fariĝis modesta, sed potenca armi-
+nome parizajn. La kanto fariĝis modesta, sed potenca armilo de la popolo kontraŭ la maljustec-ondo, kiu ĝin inundis.
 
-lo de la popolo kontraŭ la maljustec-ondo, kiu ĝin inundis.
-
-Ludoviko la XVIII-a surtroniĝis. La gloro de la burbona dinas-
-
-tio renoviĝis. La frato de la ekzekutita reĝo fariĝis reganto de Francio; li dankis al siaj protektintoj kaj pompe adiaŭis ilin.
+Ludoviko la XVIII-a surtroniĝis. La gloro de la burbona dinastio renoviĝis. La frato de la ekzekutita reĝo fariĝis reganto de Francio; li dankis al siaj protektintoj kaj pompe adiaŭis ilin.
 
 Germanoj kaj rusoj formarŝis el Parizo.
 
 ”Kiel parencas, ni petas vin, la nova reĝo kun Ludoviko la
 
-XVI-a?” demandis gapuloj apud la reĝa palaco. Sed nur mal-
-
-multaj tion sciis. Ankaŭ malmultaj zorgis pri tio. Kiam la reĝa kaleŝo elveturis el la pordego, ĉiuj komprenis, ke necesas ion
+XVI-a?” demandis gapuloj apud la reĝa palaco. Sed nur malmultaj tion sciis. Ankaŭ malmultaj zorgis pri tio. Kiam la reĝa kaleŝo elveturis el la pordego, ĉiuj komprenis, ke necesas ion
 
 voki. Sed prijubili la reĝon neniu emis. Nur kiam la spektantoj ekvidis, ke preter la kaleŝo trotas gardistoj en la konataj uniformoj, ili kriis: ”Vivu la nacia gvardio!” Tio estis silenta interkonsento de la armeo kun popolo, kontraŭ tiu, kiu sidis
 
@@ -2017,13 +1594,10 @@ enkaleŝe.
 
 **45**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Kiam la kaleŝo brue forruliĝis, oni kantis. La kanzonoj pa-
-
-rolis pri senpovo, sed ankaŭ pri venĝo kontraŭ tiuj, kiuj ram-
+Kiam la kaleŝo brue forruliĝis, oni kantis. La kanzonoj parolis pri senpovo, sed ankaŭ pri venĝo kontraŭ tiuj, kiuj ram-
 
 pis alten al potenco. Sufiĉis porti blankan kokardon kaj pruvi, ke vi ne apartenis al bonapartistoj; kiu ajn parolaĉulo kaj sentaŭgulo, kiu nenio estis, ĉar li nenion kapablis, subite havis
 
@@ -2031,15 +1605,11 @@ senobstaklan karieron. Al la plej grandaj nuloj elkreskis la plej akraj kubutoj.
 
 ĝis nun ne karieris; ili igis sin aŭdi, ke tio estas merito, kvankam la kaŭzo estis ilia malkapablo.
 
-Kiuj ĝustatempe lokis blankajn kokardojn surĉapelen, ek-
-
-nestis jam en novaj oficejoj. Kiam la reĝo sekurigis bone sian
+Kiuj ĝustatempe lokis blankajn kokardojn surĉapelen, eknestis jam en novaj oficejoj. Kiam la reĝo sekurigis bone sian
 
 tutan parencaron, li komencis zorgi pri la ceteraj aristokratoj, kiuj estis forpuŝitaj. ĉio, kio rememorigis Bonaparton kaj la
 
-Grandan Armeon estis malpermesita, same kiel ĉio, kio reme-
-
-morigis la revolucion. ĉiu ĉi rememoro estis opiniata ofendo
+Grandan Armeon estis malpermesita, same kiel ĉio, kio rememorigis la revolucion. ĉiu ĉi rememoro estis opiniata ofendo
 
 kontraŭ Lia Majesto. Gasparo povis atesti, ke pli ol duono de
 
@@ -2047,13 +1617,9 @@ la urbo adaptiĝis. La samaj homoj, kiuj kelkajn tagojn antaŭe
 
 vokis: ”Vivu la imperiestro!” nun vokis: ”Vivu la reĝo!” kaj
 
-antaŭ kelkaj jaroj certe: ”Vivu la respubliko!” Sed ankaŭ es-
+antaŭ kelkaj jaroj certe: ”Vivu la respubliko!” Sed ankaŭ estis, kiuj ne adiaŭis tiel facile. Ankaŭ por tiuj, kiuj Napoleonon severe juĝis — li fariĝis ekzilito sur insulo Elbo — li iĝis taŭga simbolo de la batalo kontraŭ la burbona reakcio. Lia nomo
 
-tis, kiuj ne adiaŭis tiel facile. Ankaŭ por tiuj, kiuj Napoleonon severe juĝis — li fariĝis ekzilito sur insulo Elbo — li iĝis taŭga simbolo de la batalo kontraŭ la burbona reakcio. Lia nomo
-
-rememorigis ankaŭ esperojn, kiujn li ne plenumis. Oni pen-
-
-sis pri la tempo de liaj komencoj kaj gloro, ne pri la jaroj de aŭtokratio kaj malvenkoj. ĉio ŝajnis pli bona ol restaŭro de la reĝa potenco, kiu primokis ne nur la tempon de la konsule-co kaj imperio, sed antaŭ ĉio la rememoron pri la vanaj ofe-
+rememorigis ankaŭ esperojn, kiujn li ne plenumis. Oni pensis pri la tempo de liaj komencoj kaj gloro, ne pri la jaroj de aŭtokratio kaj malvenkoj. ĉio ŝajnis pli bona ol restaŭro de la reĝa potenco, kiu primokis ne nur la tempon de la konsule-co kaj imperio, sed antaŭ ĉio la rememoron pri la vanaj ofe-
 
 roj por la revolucio, ĉiujn dolorojn, tra kiuj la lando trapuŝiĝis al libereco el sub la jugo de Burbonoj.
 
@@ -2061,7 +1627,6 @@ Komenciĝis novaj konspiroj. Bildoj de Bonaparto, dum-
 
 **46**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2071,9 +1636,7 @@ Ankaŭ ĉe Deburau-anoj oni posedis broĉon kun portreto de
 
 la imperiestro, malgraŭ tio, ke la maljuna Deburau ankoraŭ
 
-havis el tempo en Kolín kelkajn protektantojn inter aristokra-
-
-toj, iamaj elmigrintoj.
+havis el tempo en Kolín kelkajn protektantojn inter aristokratoj, iamaj elmigrintoj.
 
 Kaj Gasparo kun amikoj el bulvardo zumkantis kanzonojn,
 
@@ -2095,23 +1658,18 @@ kiuj vastiĝis kiel lavango. La polico fiaskis. La kanzonoj havis tiel facilajn 
 
 ”Ankaŭ Béranger.”
 
-ĉiam Béranger! Gasparo ekŝatis liajn kantojn, ĉar ili dira-
-
-dis ĉiam pli, ol enestis en la vortoj. ĉiupaŝe nun li konstatis: se estas en iu la forto kaj vero, do en la plej malsuperaj, kiuj ne ŝanceliĝis kaj ne rompis sin kiel kanoj kaj ankaŭ ne ŝoviĝis kiel muŝoj al kadavraĉo tien, kie estis antaŭvidebla profito.
+ĉiam Béranger! Gasparo ekŝatis liajn kantojn, ĉar ili diradis ĉiam pli, ol enestis en la vortoj. ĉiupaŝe nun li konstatis: se estas en iu la forto kaj vero, do en la plej malsuperaj, kiuj ne ŝanceliĝis kaj ne rompis sin kiel kanoj kaj ankaŭ ne ŝoviĝis kiel muŝoj al kadavraĉo tien, kie estis antaŭvidebla profito.
 
 Tial iliaj simpatioj apartenis al la homo, kiu kapablis fidele
 
 resti kun ili, eĉ se estis pli malbone, kiu ne aspiris pri favoro de la regantoj kaj restis fidela al la trompitoj kaj silentigitoj.
 
-Aristokratoj onidire sciigis Bérangeron, ke li komponu kan-
-
-tojn laŭdantaj la reĝon, ke ili bone pagos al li. Sed li respondis, ke li ne bezonas ilian monon, ke li komponos kantojn
+Aristokratoj onidire sciigis Bérangeron, ke li komponu kantojn laŭdantaj la reĝon, ke ili bone pagos al li. Sed li respondis, ke li ne bezonas ilian monon, ke li komponos kantojn
 
 senpage, kiam la reĝo donos al Francio liberecon kaj feliĉon.
 
 **47**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2123,13 +1681,9 @@ perdis ambicion konkeri la urbajn bulvardojn. Li sopiris oferi
 
 sin al periferiaj kvartaloj. Li volis esti ilia — simile kiel Béranger. Sed kiel fari tion kun kaprioloj kaj piedbatoj?
 
-Venis vintro; en la komedianta grupo okazis pli kaj pli of-
+Venis vintro; en la komedianta grupo okazis pli kaj pli oftaj konfliktoj. La geedzoj Godot trinkis tiom, ke la prezenta-
 
-taj konfliktoj. La geedzoj Godot trinkis tiom, ke la prezenta-
-
-do estis hazarda ludo. Patro Deburau ankaŭ kiel komedian-
-
-to restis iom soldato kaj li postulis severan disciplinon. An-
+do estis hazarda ludo. Patro Deburau ankaŭ kiel komedianto restis iom soldato kaj li postulis severan disciplinon. An-
 
 kaŭ li ne povis senkompate rigardi, kiel Gasparo lezas siajn
 
@@ -2137,59 +1691,42 @@ kapon kaj korpon pro senĉesaj faloj, kiujn kaŭzis la ebriuloj.
 
 La infanoj, maturiĝinte, akiris ankaŭ memkonfidon, minacis
 
-foriri, se ne okazos reboniĝo. La patro antaŭvidis, ke la gefi-
-
-loj devas foje iri propravoje, sed li scietis, ke tio estus antaŭ-
+foriri, se ne okazos reboniĝo. La patro antaŭvidis, ke la gefiloj devas foje iri propravoje, sed li scietis, ke tio estus antaŭ-
 
 tempa. Li ripete minacis al la geedzoj Godot; vidinte nenian
 
 plibonigon, li interrompis kun ili, disiris kun ili.
 
-La geedzoj Godot senlaboriĝis; sed tamen ili ne volis agno-
-
-ski la veran kaŭzon de sia fiasko; male, ili kulpigis Deburau-
+La geedzoj Godot senlaboriĝis; sed tamen ili ne volis agnoski la veran kaŭzon de sia fiasko; male, ili kulpigis Deburau-
 
 on, ke li faris tion pro envio. Plurfoje ili venis riproĉi sian mal-honorigon sub la korta fenestro en St. Maur, ĝis foje Filipo
 
 indignis, elkuris kaj forpelis Godoton per pugnobatoj. Ege li
 
-malvarmumis, sekve de varmiĝo en ekstera frida vetero. Mal-
-
-graŭ tio, ilia malamikeco ne finiĝis.
+malvarmumis, sekve de varmiĝo en ekstera frida vetero. Malgraŭ tio, ilia malamikeco ne finiĝis.
 
 Estis ĝuste Kristnaska vespero. Tra la stratoj rapidis ĝojaj,
 
-gajaj homoj; butikoj de nutra vendistoj kaj vinejoj plenis. Pa-
-
-trino Katarino pompe preparis meleagron. i staris meze de
+gajaj homoj; butikoj de nutra vendistoj kaj vinejoj plenis. Patrino Katarino pompe preparis meleagron. i staris meze de
 
 la tablo rozrostita, farĉita per fungoj. Gardis ĝin du boteloj da kvalita vino kaj la tuta ĉambro bonodoris de distranĉita ananaso. Ankoraŭ antaŭ krepuskiĝo haste envenis tri policistoj.
 
 **48**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Serĝento seke salutis kaj senprokraste demandis: ”Kie vi ha-
-
-vas Bonaparton?”
+Serĝento seke salutis kaj senprokraste demandis: ”Kie vi havas Bonaparton?”
 
 ”Neniun ni havas,” respondis la patro.
 
 ”Vi sekretigas juvelon kun portreto de la eks-imperiestro,”
 
-asertis la serĝento. ”Tio estas puninda ago. Konfesu!” La pa-
+asertis la serĝento. ”Tio estas puninda ago. Konfesu!” La patro kapneis; la tuta familio atestis, ke la denunco falsas. La
 
-tro kapneis; la tuta familio atestis, ke la denunco falsas. La
+serĝento do mansvingis kaj du aliaj komencis serĉi. Kun certeco. Broĉo kun la napoleona emblemo estis en kesteto sub-
 
-serĝento do mansvingis kaj du aliaj komencis serĉi. Kun cer-
-
-teco. Broĉo kun la napoleona emblemo estis en kesteto sub-
-
-fenestre, ne tro kaŝita, neniu ĝin opiniis aparte valora trezo-
-
-ro.
+fenestre, ne tro kaŝita, neniu ĝin opiniis aparte valora trezoro.
 
 ”En la nomo de la reĝo vi estas arestita,” diris la serĝento
 
@@ -2203,21 +1740,15 @@ Dorotea ekploris.
 
 policistoj. ”Mi aĉetis ĝin, mi kaŝis ĝin tie.”
 
-”Ne babilaĉu,” ekmuĝis la policisto, ”laŭ denunco de si-
-
-njoro Godot la posedanto estas Filipo Deburau. Nur poste li
+”Ne babilaĉu,” ekmuĝis la policisto, ”laŭ denunco de sinjoro Godot la posedanto estas Filipo Deburau. Nur poste li
 
 diris pli mildvoĉe: ”Ordono estas ordono. Mi devas tion fari.”
 
-”Atendu ĝis morgaŭ,” petis Katarina kaj montris la prepa-
-
-ritan vespermanĝon.
+”Atendu ĝis morgaŭ,” petis Katarina kaj montris la preparitan vespermanĝon.
 
 ”Ne eblas, sinjorino. Ni iru!”
 
-Gasparo kuris kun la eskorto ĝis prizono kaj ne ĉesis kon-
-
-vinki la serĝenton. Sed tiu preteraŭskultis lin. Li mem ĝojis je hejmreveno al la propra tablo. Fine la patro mem ordonis al
+Gasparo kuris kun la eskorto ĝis prizono kaj ne ĉesis konvinki la serĝenton. Sed tiu preteraŭskultis lin. Li mem ĝojis je hejmreveno al la propra tablo. Fine la patro mem ordonis al
 
 Gasparo, ke li iru hejmen kaj zorgu pri la patrino.
 
@@ -2225,13 +1756,10 @@ Gasparo, ke li iru hejmen kaj zorgu pri la patrino.
 
 ”Ili ne darfas ion fari al vi!” diris plorvoĉe Gasparo post la
 
-patro, malaperanta malantaŭ peza pordego. ”Godot ege pa-
-
-gos tion!”
+patro, malaperanta malantaŭ peza pordego. ”Godot ege pagos tion!”
 
 **49**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2239,9 +1767,7 @@ Li revenis hejmen, sufokiĝante pro kolero. Jes, la malamo
 
 mankis al li, tiun li ĝis nun ne ekkonis aŭtente. Sed nun ĝi
 
-absorbis, konsumis lin. Havi Godoton enmane, tiun venĝe-
-
-man diablon, tiun fikarakteran denuncanton! Kaj refreno de
+absorbis, konsumis lin. Havi Godoton enmane, tiun venĝeman diablon, tiun fikarakteran denuncanton! Kaj refreno de
 
 unu el la Béranger-kanzonoj e˛is en liaj oreloj:
 
@@ -2259,9 +1785,7 @@ familio ekloĝis malgajo kaj senkonsilo. La sekvan tagon ili
 
 ludis, sed ĉiuj estis kvazaŭ senanimaj. Post du semajnoj venis
 
-el malliberejo sciigo: komedianto Filipo Deburau estis kon-
-
-damnita al trimonata karcero pro la ofendo de Lia Reĝa Ma-
+el malliberejo sciigo: komedianto Filipo Deburau estis kondamnita al trimonata karcero pro la ofendo de Lia Reĝa Ma-
 
 jesto.
 
@@ -2271,13 +1795,9 @@ pri tiu ĉi maljustaĵo? Tri monatojn pro ĉi tiu ludaĵo en la kesteto! ĉu vi 
 
 Gasparo havis unu plian motivon por malami Burbonojn.
 
-Kiaj tristegaj tagoj kaj semajnoj! La maljuna Deburau ne es-
+Kiaj tristegaj tagoj kaj semajnoj! La maljuna Deburau ne estis ja paĉjo kreita por tenere ami siajn infanojn, sed nun, kiam li suferis tiel senkulpe, ili ĉiuj rekonsciigis al si liajn bonajn kvalitojn, sincerecon, energion, zorgemon.
 
-tis ja paĉjo kreita por tenere ami siajn infanojn, sed nun, kiam li suferis tiel senkulpe, ili ĉiuj rekonsciigis al si liajn bonajn kvalitojn, sincerecon, energion, zorgemon.
-
-Gasparo forĝis cent planojn, kiel liberigi la patron, sed ĉi-
-
-ujn li devis rezigni. Fine restis nur unusola konsolo: ”… ree la vero estos nia …”
+Gasparo forĝis cent planojn, kiel liberigi la patron, sed ĉiujn li devis rezigni. Fine restis nur unusola konsolo: ”… ree la vero estos nia …”
 
 Dum la regado de tiu ĉi reĝo, kiu nuligis ĉiun liberecon kaj
 
@@ -2285,15 +1805,12 @@ ankaŭ spionis tiujn, kiuj hazarde restis, la vero ne aperos. Sed kia espero res
 
 **50**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 li estas ligita al ili pro dankemo? Tamen unu. Gasparo trovas
 
-ĝin surfunde de alrigardoj, en flustraj vortoj, en kanto-alego-
-
-rioj. Kiam vigliĝis lia observemo, li malkovris ĝin ĉiupaŝe en
+ĝin surfunde de alrigardoj, en flustraj vortoj, en kanto-alegorioj. Kiam vigliĝis lia observemo, li malkovris ĝin ĉiupaŝe en
 
 malpuraj stratetoj de sia periferio.
 
@@ -2311,7 +1828,6 @@ havis neniun alian.
 
 **51**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2333,9 +1849,7 @@ oni ne ekkonu, ke surĉapele li havas pli malhelan lokon post
 
 blanka kokardo.
 
-La imperiestro revenis el Elbo. Dum la reĝo Ludoviko es-
-
-tis fuĝanta eksterlanden, Napoleono estis enirinta en Parizon.
+La imperiestro revenis el Elbo. Dum la reĝo Ludoviko estis fuĝanta eksterlanden, Napoleono estis enirinta en Parizon.
 
 Bulvardojn inundis torentoj da ĝojplenaj homoj, kiuj denove
 
@@ -2343,9 +1857,7 @@ estis amare instruitaj, kia malamiko estas la reĝo, ankoraŭ
 
 foje ili volis doni sian konfidon al la imperiestro. Laboristoj kaj metiistoj amikiĝadis kun soldatoj. Kaj kiom da bildoj pri
 
-Napoleono! Kiel vi, burbonaj spionoj, povis ĉion ĉi pretervi-
-
-di?
+Napoleono! Kiel vi, burbonaj spionoj, povis ĉion ĉi pretervidi?
 
 La malliberejoj malfermiĝis kaj Filipo Deburau, iom pli
 
@@ -2357,17 +1869,12 @@ eksidis kun gitaro sub streĉita ŝnurego kaj liaj infanoj prezentis al li belan
 
 ŝajne dronis en ĝojo. Sed la urbanoj venkis la imperiestron pli frue inter si ol la malamikoj apud Vaterlo. Ili sopiris vivi bon-52
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-state kaj ne riski novan aventuron. Cent tagoj pasis en alter-
+state kaj ne riski novan aventuron. Cent tagoj pasis en alterna jubilado kaj indigno, en konfido kaj timoj. Napoleono
 
-na jubilado kaj indigno, en konfido kaj timoj. Napoleono
-
-konstatis, ke la popolo ne bonvenigas la imperiestron, sed es-
-
-peron pri la pli bona vivo. Li volis do lastmomente fari ĝin sia apogo, akiri ĝin per liberala konstitucio. Sed jam tardis. La aliancanoj militiris tra Belgio kaj postdorse de Napoleono la
+konstatis, ke la popolo ne bonvenigas la imperiestron, sed esperon pri la pli bona vivo. Li volis do lastmomente fari ĝin sia apogo, akiri ĝin per liberala konstitucio. Sed jam tardis. La aliancanoj militiris tra Belgio kaj postdorse de Napoleono la
 
 aristokrataro ankoraŭ pli firme alianciĝis kun riĉuloj. Krome
 
@@ -2383,19 +1890,13 @@ Milionoj da mortigitoj ekstaris frunte kontraŭ la nova militiro kaj instigis la
 
 La 18-a de junio estis la tago de batalo apud Vaterlo.
 
-La aliancanoj solenis la duan venon en Parizon. Parizo ĉi-
-
-foje havis jam valoran sperton. i sciis, kio plaĉas al la gas-
+La aliancanoj solenis la duan venon en Parizon. Parizo ĉifoje havis jam valoran sperton. i sciis, kio plaĉas al la gas-
 
 toj, kiel vestiĝi, kiel ekkanti, kiel bonvenigi ilin. Samtempe
 
-kun aroj da dragonoj enfluadis torente oro enurben, kiu en-
+kun aroj da dragonoj enfluadis torente oro enurben, kiu enverŝiĝis kaj fluis en teatrojn, restoraciojn kaj bakaratejoj. ĉiuj inoj, kiuj opiniis, ke oranĝfloroj de virgeco ne tro plaĉigus ilin, nun ĝojis. Kaj kun ili ankaŭ ĉiuj honestaj gantistinoj, ĉapelistinoj, tajlorinoj. ĉiu oficiro bezonis al sia pompo amatinon, kiun li devis elegante vestadi, kondukadi en teatro-loĝion kaj
 
-verŝiĝis kaj fluis en teatrojn, restoraciojn kaj bakaratejoj. ĉiuj inoj, kiuj opiniis, ke oranĝfloroj de virgeco ne tro plaĉigus ilin, nun ĝojis. Kaj kun ili ankaŭ ĉiuj honestaj gantistinoj, ĉapelistinoj, tajlorinoj. ĉiu oficiro bezonis al sia pompo amatinon, kiun li devis elegante vestadi, kondukadi en teatro-loĝion kaj
-
-vespermanĝi kun ŝi ĉe Véry. Ludsalonoj floris, juvelistoj dis-
-
-vendis siajn varojn. Tio estis kvardek grasaj tagoj. Caro Alek-
+vespermanĝi kun ŝi ĉe Véry. Ludsalonoj floris, juvelistoj disvendis siajn varojn. Tio estis kvardek grasaj tagoj. Caro Alek-
 
 sandro onidire elspezis dum tiu tempo unu kaj duonmilionon
 
@@ -2407,49 +1908,36 @@ venkintoj la mizerigita Francio, tion oni forgesis.
 
 **53**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ĉio denove revenis.
 
-Kiel sur ruleto: para-malpara kaj denove para. La para es-
-
-tis blankaj flagoj, kokardoj kaj plumtufoj. Denove estis nuli-
+Kiel sur ruleto: para-malpara kaj denove para. La para estis blankaj flagoj, kokardoj kaj plumtufoj. Denove estis nuli-
 
 gitaj liberecoj kaj oni komencis kvitigi kontojn. Bonapartistoj perfekte perfidiĝis kaj estis facile aranĝi persekutadon kontraŭ ili. Meritoj, arto, nobleco, saĝo — ĉio ĉi por burbonaj
 
 ĉasistoj ne gravis. Gravis sole, ĉu iu estis suspekta pro liberala pensado. La filino de Maria Antoinetta, dukino el Angoule-me, postulis venĝon. Cento da aliaj gedukoj postulis venĝon.
 
-Sursceneje de la strato St. Maur denove aperis sinjoro Go-
-
-dot. La edzino forlasis lin kaj li fariĝis profesia denuncisto kaj ĉantaĝisto. Li provis de temp-al-tempo angulstrate ekkrii:
+Sursceneje de la strato St. Maur denove aperis sinjoro Godot. La edzino forlasis lin kaj li fariĝis profesia denuncisto kaj ĉantaĝisto. Li provis de temp-al-tempo angulstrate ekkrii:
 
 ”For Burbonojn!” Kiu lasis sin delogi kaj ekkriis la samon,
 
 tiun oni arestis post kelkaj paŝoj. Kaj ĉar sinjoro Godot ne
 
-povis pardoni al patro Deburau, ke tiu senigis lin de labor-
-
-enspezoj, li ripete alkondukis policon. Venis petoj kaj aludoj
+povis pardoni al patro Deburau, ke tiu senigis lin de laborenspezoj, li ripete alkondukis policon. Venis petoj kaj aludoj
 
 pri ties malsano, kiu malboniĝis; ili forkondukis Deburau-on
 
 kaj ankoraŭ kun pli granda severeco ol iam.
 
-Aprilo en la jaro 1816 estis pluvema kaj malvarma kvazaŭ no-
-
-vembro. La aero precipitiĝis je malvarmeta nebulo. Gasparo
+Aprilo en la jaro 1816 estis pluvema kaj malvarma kvazaŭ novembro. La aero precipitiĝis je malvarmeta nebulo. Gasparo
 
 jam kelkfoje iris al la malliberejo Bicetre, por sciiĝi, ĉu oni denove juĝos la patron aŭ ĉu finiĝos lia puno. Sed la venadoj
 
-vanis, eĉ se li longe preterpaŝadis la pordegon, por ĝisaten-
+vanis, eĉ se li longe preterpaŝadis la pordegon, por ĝisatendi juĝiston aŭ provoson. Iuvespere tamen li havis bonŝancon.
 
-di juĝiston aŭ provoson. Iuvespere tamen li havis bonŝancon.
-
-Jam krepuskiĝis, kiam en iu koridoro eklumiĝis kaj post mo-
-
-mento ekknaris ŝlosilo en seruro.
+Jam krepuskiĝis, kiam en iu koridoro eklumiĝis kaj post momento ekknaris ŝlosilo en seruro.
 
 Gasparo ekkuris al la pordego.
 
@@ -2457,13 +1945,10 @@ Juna viro kun aro da dokumentoj eliris eksteren, endiris
 
 ion al la provoso, kiu apertis al li; ambaŭ ekridis, kaj poste la **54**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-pordeto fermiĝis. Gasparo alkuris en la momento, kiam seru-
-
-ro jam ekklakis. Li ekfrapis la pordon. La provoso demandis.
+pordeto fermiĝis. Gasparo alkuris en la momento, kiam seruro jam ekklakis. Li ekfrapis la pordon. La provoso demandis.
 
 Gasparo balbutis sian demandon, sed la viro post la pordego
 
@@ -2481,9 +1966,7 @@ Gasparo apogis sian lacan frunton je ligno garnita per fero.
 
 ”Nenion.”
 
-”Vere?” ekridetis la juna viro. ”Kaj kion vi volas fari? Rui-
-
-nigi la malliberejon?”
+”Vere?” ekridetis la juna viro. ”Kaj kion vi volas fari? Ruinigi la malliberejon?”
 
 ”La patro malsanas,” diris Gasparo morne.
 
@@ -2491,49 +1974,34 @@ nigi la malliberejon?”
 
 ”Tiuj? Pri neniu ili zorgas.”
 
-La nekonata junulo levetis la ŝultrojn kaj deturnis sin fo-
-
-rironte. Sed poste li revenis. ”Nun ĉiuj dormas kaj vi nenion
+La nekonata junulo levetis la ŝultrojn kaj deturnis sin forironte. Sed poste li revenis. ”Nun ĉiuj dormas kaj vi nenion
 
 ekscios. Kiu vi estas?”
 
 ”Aktoro,” brave diris Gasparo.
 
-”Mi ŝatas aktorojn. Mi estas advokato. Venu kun mi trin-
-
-ki glaseton da vino. Morgaŭ mi helpos al vi.”
+”Mi ŝatas aktorojn. Mi estas advokato. Venu kun mi trinki glaseton da vino. Morgaŭ mi helpos al vi.”
 
 ”ĉu vere?” miregis Gasparo.
 
-”Mi estas konato de la prizonestro. Venu!” invitis lin la ju-
-
-na advokato kaj al Gasparo ŝajnis, kvazaŭ ankaŭ en ties voĉo
+”Mi estas konato de la prizonestro. Venu!” invitis lin la juna advokato kaj al Gasparo ŝajnis, kvazaŭ ankaŭ en ties voĉo
 
 estus iom da mildiĝo, ke li ne restos sola.
 
 ”Kien ni iru?”
 
-Gasparo konis nur unusolan trinkejon en sia kvartalo kon-
+Gasparo konis nur unusolan trinkejon en sia kvartalo kontraŭ la korteto en strato St. Maur Popincourt.
 
-traŭ la korteto en strato St. Maur Popincourt.
+”Al panjo Cadet,” decidis la junulo. i ne estis malproksime kaj ankaŭ ĝi estis nur simpla gastejo; Gasparo tre ĝojis, ke **55**
 
-”Al panjo Cadet,” decidis la junulo. i ne estis malproksi-
-
-me kaj ankaŭ ĝi estis nur simpla gastejo; Gasparo tre ĝojis, ke **55**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 li ne troviĝas en luksa restoracio, kie li certe ne scius, kion fari kun siaj manoj. ĉe du tabloj sidis veturigistoj kaj ili kub-ludis; aliloke longharaj viroj, pentristoj, kun ili kelkaj junaj virinoj.
 
-”ĉi tie vi havas ĉiujn!” diris la advokato, kiam li eksidis kaj kiam li ekrimarkis avidan rigardon de sia kunulo. ”Kantistinoj el teatro Montparnaso, amantoj el Bobino kaj fuŝpen-
+”ĉi tie vi havas ĉiujn!” diris la advokato, kiam li eksidis kaj kiam li ekrimarkis avidan rigardon de sia kunulo. ”Kantistinoj el teatro Montparnaso, amantoj el Bobino kaj fuŝpentristoj el la tuta kvartalo. ĉi tie gajas. Tial mi ŝatas vizitadi ĉi lokon.”
 
-tristoj el la tuta kvartalo. ĉi tie gajas. Tial mi ŝatas vizitadi ĉi lokon.”
-
-Bobino, Montparnaso, entute noblaj teatroj, al kiuj la mi-
-
-zera ĵonglisto nur nekuraĝe ekrigardis, paŝante sub iliaj afiŝoj.
+Bobino, Montparnaso, entute noblaj teatroj, al kiuj la mizera ĵonglisto nur nekuraĝe ekrigardis, paŝante sub iliaj afiŝoj.
 
 ”El kiu teatro vi estas?” demandis lia regalanto.
 
@@ -2549,9 +2017,7 @@ La advokato ekridis. ”Kial? Volonte mi vespermanĝos kun
 
 akrobato. Pardonu, ĝis nun neniam tio okazis al mi. Kredu, mi
 
-tre ŝatas tiajn prezentadojn, precipe nokte, dum lumo de tor-
-
-ĉoj…” li gestis al kelnerino. ”ĉu vi permesos, ke ion mi men-
+tre ŝatas tiajn prezentadojn, precipe nokte, dum lumo de torĉoj…” li gestis al kelnerino. ”ĉu vi permesos, ke ion mi men-
 
 du?”
 
@@ -2567,13 +2033,10 @@ La junulino ekridis kaj turninte sin al Gasparo, karesis lian
 
 vangon. Poste ŝi forkuretis.
 
-”Vi ankoraŭ ruĝiĝas?” miris la advokato. ”Vi ne amas kna-
-
-binojn?”
+”Vi ankoraŭ ruĝiĝas?” miris la advokato. ”Vi ne amas knabinojn?”
 
 **56**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2613,43 +2076,30 @@ Baptisto.”
 
 ĉeesto de la nova konato Gasparon iomete ĝenis; sed li
 
-ĝojis pro la kontakto kun la nova medio, kies homoj estis ka-
+ĝojis pro la kontakto kun la nova medio, kies homoj estis karaj al li. Li silentis kaj aŭskultis Eŭgenon Hugo; lia nomo
 
-raj al li. Li silentis kaj aŭskultis Eŭgenon Hugo; lia nomo
-
-fremdis al li, sed bone li ekkomprenis, ke la juna homo mal-
-
-feliĉas, ĉar li ne sukcesis akiri, kion li aspiras. Li legis al Gasparo poemon. Kiam ŝajnis al li, ke Gasparo liajn versojn ne
+fremdis al li, sed bone li ekkomprenis, ke la juna homo malfeliĉas, ĉar li ne sukcesis akiri, kion li aspiras. Li legis al Gasparo poemon. Kiam ŝajnis al li, ke Gasparo liajn versojn ne
 
 komprenas, li konvinkadis lin pri la beleco de granda pasio.
 
 ”ĉu vi kapablas havi egan pasion, ke vi oferus por ĝi entute
 
-ĉion?” Deburau ne sciis. Jam li travivis tiom da tristo, krue-
-
-leco kaj sufero, tiom da malsata sopiro, ke fakte li ne kompre-
+ĉion?” Deburau ne sciis. Jam li travivis tiom da tristo, krueleco kaj sufero, tiom da malsata sopiro, ke fakte li ne kompre-
 
 nis, kio povus lin ankoraŭ pli humiligi, rompi aŭ svenigi.
 
-Eŭgeno ĵaluzis pri sia frato Viktoro. Li admiris kaj samtem-
+Eŭgeno ĵaluzis pri sia frato Viktoro. Li admiris kaj samtempe enviis lin. Li ricevadas honorariojn de gloraj viroj, al kiuj **57**
 
-pe enviis lin. Li ricevadas honorariojn de gloraj viroj, al kiuj **57**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-li sendas siajn odojn. Ankaŭ la patrino amas lin pli kaj Eŭge-
-
-no restas ĉiam fore, senĉese sensignifa.
+li sendas siajn odojn. Ankaŭ la patrino amas lin pli kaj Eŭgeno restas ĉiam fore, senĉese sensignifa.
 
 Gasparo konis la ambicion. Li sentis en si ardon, febron kaj
 
 soifon pri io granda, pri realigo de bela kaj granda tasko esti artisto! ĉe Eŭgeno tio estis nur aspiro pri brila eksteraĵo, pri sukceso kaj honoro havi gloron de artisto! Gasparo volis la
 
-vivon multobligi kaj donaci sin; doloris lin, ke li ne scias kiel ĉi tiun pasion realigi. Eŭgeno volis montriĝi granda; senrevi-
-
-ĝo lin plenigis de vundita vantemo kaj sento pri maljusteco.
+vivon multobligi kaj donaci sin; doloris lin, ke li ne scias kiel ĉi tiun pasion realigi. Eŭgeno volis montriĝi granda; senreviĝo lin plenigis de vundita vantemo kaj sento pri maljusteco.
 
 Tio estis la unua nokto de Gasparo tiel traviglita. Ekregis
 
@@ -2657,39 +2107,26 @@ lin ĉiam pli granda maltrankvilo kaj kiam antaŭ la mateniĝo
 
 alternis kelnerinoj kaj enfalis tien grupetoj da aktorinoj kaj
 
-pentristoj Eŭgeno Hugo donis al li sian adreson kaj perme-
-
-sis, ke Gasparo venu demandi, kio okazas kun lia patro en la
+pentristoj Eŭgeno Hugo donis al li sian adreson kaj permesis, ke Gasparo venu demandi, kio okazas kun lia patro en la
 
 karcero.
 
 Parizo alivestis sin.
 
-Napoleonaj rekvizitoj migris en malnovan fatrason, en Sej-
+Napoleonaj rekvizitoj migris en malnovan fatrason, en Sejnon, en kaŝejojn; la burbona gloro rabe sin puŝis al hela tago.
 
-non, en kaŝejojn; la burbona gloro rabe sin puŝis al hela tago.
+Sur montmartra tombejo solene oni elterigis relikvojn de Ludoviko la XVI-a kaj de Maria Antoinetta kaj ne malpli solene
 
-Sur montmartra tombejo solene oni elterigis relikvojn de Lu-
+denove enterigis laŭ konvenaj ceremonioj. Reakciuloj decidiĝis, ke ĉi-foje funde ili sekurigos sntraŭ ĉiu provo renversi la reĝimon kaj sendis en arestejon ĉiun nur iom suspek-
 
-doviko la XVI-a kaj de Maria Antoinetta kaj ne malpli solene
+teblan homon, eĉ pri distanca rilato al la revolucio. Pretekstojn oni trovis facile. En kelkaj urboj organizis la burbona
 
-denove enterigis laŭ konvenaj ceremonioj. Reakciuloj deci-
-
-diĝis, ke ĉi-foje funde ili sekurigos sntraŭ ĉiu provo renversi la reĝimon kaj sendis en arestejon ĉiun nur iom suspek-
-
-teblan homon, eĉ pri distanca rilato al la revolucio. Pretek-
-
-stojn oni trovis facile. En kelkaj urboj organizis la burbona
-
-polico ŝajnigitajn masakrojn, kiucele oni dungis la korupte-
-
-blan kanajlaron kaj poste punis tiun kune kun la destinitaj
+polico ŝajnigitajn masakrojn, kiucele oni dungis la korupteblan kanajlaron kaj poste punis tiun kune kun la destinitaj
 
 viktimoj. Kelkaj povruloj el ĉirkaŭo de Gasparo estis ankaŭ
 
 trafitaj. Sed jam li ne lasis sin delogi. Li volis ĝisatendi reve-58
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2703,29 +2140,19 @@ la karcero, malfortiĝintan, sed plenan de obstina espero, sur
 
 krucvojoj brulis ŝtiparoj kaj sur ili estis formortantaj la ideoj de Lamennais, frazoj pri sociala justeco, pri demokratio.
 
-”Kantojn de Béranger oni ne forbruligos,” trankviligis Gas-
-
-paro la patron. Sufiĉas fajfeti refrenon kaj kun ĉiu vi inter-
+”Kantojn de Béranger oni ne forbruligos,” trankviligis Gasparo la patron. Sufiĉas fajfeti refrenon kaj kun ĉiu vi inter-
 
 kompreniĝos.” Sed la patro kapneis.
 
-”Ni devas atenti. Tra malliberejo ne kondukas vojo al glo-
+”Ni devas atenti. Tra malliberejo ne kondukas vojo al gloro.”
 
-ro.”
-
-Pri Napoleono oni parolis diversmaniere. Eblas, ke la sim-
-
-pla popolo baldaŭ forgesus lin. Sed okulfrapis, kun kia mal-
+Pri Napoleono oni parolis diversmaniere. Eblas, ke la simpla popolo baldaŭ forgesus lin. Sed okulfrapis, kun kia mal-
 
 amo parolas pri li la plej superaj, kiel ili emfazas lian kruelecon, spritmankon kaj egoismon. Li jam ne povis sin defendi.
 
-Tial oni faris el li fulmo-kondukilon de ĉiuj siaj eraroj kaj pe-koj. Sed la simplaj homoj havas kutime sanan, klaran pruden-
+Tial oni faris el li fulmo-kondukilon de ĉiuj siaj eraroj kaj pe-koj. Sed la simplaj homoj havas kutime sanan, klaran prudenton. Kial oni tiom ege tamburas? Kion oni kaŝu per tio? Kies
 
-ton. Kial oni tiom ege tamburas? Kion oni kaŝu per tio? Kies
-
-krimojn, kies malbonajn ideojn kaj intencojn. Tiel fariĝis Na-
-
-poleono denove simbolo de rezisto, en kies frunto neniam
+krimojn, kies malbonajn ideojn kaj intencojn. Tiel fariĝis Napoleono denove simbolo de rezisto, en kies frunto neniam
 
 mem li starus, simbolo de ĉiuj kuraĝaj penadoj. La registaro
 
@@ -2735,9 +2162,7 @@ marŝalon Ney.
 
 Tio efikis kiel oleo verŝita en fajron. Oni ĉesis paroli pri
 
-Napoleono; sed kiel simbolo de venĝo enanime de la popo-
-
-lo ankoraŭ li plifirmiĝis.
+Napoleono; sed kiel simbolo de venĝo enanime de la popolo ankoraŭ li plifirmiĝis.
 
 Gasparo Deburau sidadis kun junularo el la kvartalo sur
 
@@ -2747,7 +2172,6 @@ zumkantis: ”Rakontu al ni pri li, avinjo…”
 
 **59**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2759,15 +2183,12 @@ la junaj knaboj el la periferio kantis, en la okuloj kaŝitan ĝojon: ”Rakontu
 
 **60**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La dua amikeco
 
-La reveno de la patro unuigis denove la familion. La kna-
-
-boj forpelis pensojn pri vagado kaj komencis labori kun
+La reveno de la patro unuigis denove la familion. La knaboj forpelis pensojn pri vagado kaj komencis labori kun
 
 nova elano. Inĝenie ili elpensadis novajn trukojn, ekzercis, kaj ŝajnis al ili, ke nur nun venos ilia ĝusta tempo: vivo senmili-ta ebligos al ili artovojon supren.
 
@@ -2775,17 +2196,11 @@ Nur Gasparo ĉiumonate pli maltrankvilis. La aliaj kreskis,
 
 sed li restadis sur la sama loko, ne kontentigita, senutila. Liaj fratoj estus same bonaj ankaŭ sen li. Sed eĉ kun ili, estis li
 
-nenio. Por lia sopiro pri pantomimo ili ne havis pli da kom-
+nenio. Por lia sopiro pri pantomimo ili ne havis pli da kompreno, ol dum ili estis etaj knaboj. Kion fari? Foriri el la familio li ne kuraĝis. Sed ofte, kiam liberis tempo, li rapidis tien, kien lin logis fasadoj de malgrandaj teatroj, afiŝoj de pantomimoj, nomoj de la konataj aktoroj.
 
-preno, ol dum ili estis etaj knaboj. Kion fari? Foriri el la familio li ne kuraĝis. Sed ofte, kiam liberis tempo, li rapidis tien, kien lin logis fasadoj de malgrandaj teatroj, afiŝoj de pantomimoj, nomoj de la konataj aktoroj.
+Bulvardo du Temple, fondita antaŭ pli ol cent jaroj de Ludoviko la XIV-a, ricevis nomon laŭ la fortikaĵo de ordeno de
 
-Bulvardo du Temple, fondita antaŭ pli ol cent jaroj de Lu-
-
-doviko la XIV-a, ricevis nomon laŭ la fortikaĵo de ordeno de
-
-piaj kavaliroj; ilia ordeno estis nuligita kaj ĝiaj generaloj delonge finiĝis sur ŝtiparo, sed la nomo ligiĝis kun la loko, kie trovis rifuĝejon ĉia gajo de Parizo, de Parizo nobla kaj malri-
-
-ĉa. Tien venis komercistoj, ilin sekvis ĵonglistoj, komediantoj, dresistoj, ĉiuj povintaj proponi ion por spektaklo. Ludoviko
+piaj kavaliroj; ilia ordeno estis nuligita kaj ĝiaj generaloj delonge finiĝis sur ŝtiparo, sed la nomo ligiĝis kun la loko, kie trovis rifuĝejon ĉia gajo de Parizo, de Parizo nobla kaj malriĉa. Tien venis komercistoj, ilin sekvis ĵonglistoj, komediantoj, dresistoj, ĉiuj povintaj proponi ion por spektaklo. Ludoviko
 
 la XIV-a ankaŭ veturigadis ĉi tien sinjorinon Dubarry, sed
 
@@ -2795,7 +2210,6 @@ la publiko de laboristoj, metiistoj, studentoj. i amis siajn
 
 komediantojn, ĉar ili donacis al ĝi tion, por kio oni devis ali-61
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2803,23 +2217,17 @@ loke tro multekoste pagi kaj kio estis distraĵo por elito. Tra
 
 kelkiu tegmento pluvis sur aktorojn, sed la publiko permesis,
 
-ke ankaŭ la plej majestaj scenoj estu prezentataj sub pluvom-
-
-breloj. Pulsis tie vivo tage-nokte. El budoj sonis klarnetoj,
+ke ankaŭ la plej majestaj scenoj estu prezentataj sub pluvombreloj. Pulsis tie vivo tage-nokte. El budoj sonis klarnetoj,
 
 zimbalonoj, kantado kaj kriado. Grandaj teatroj en la centro
 
-de la urbo baldaŭ enviis la budojn en periferio pro ilia suk-
-
-ceso kaj postul-akiris de la oficoj malpermeson prezentadi
+de la urbo baldaŭ enviis la budojn en periferio pro ilia sukceso kaj postul-akiris de la oficoj malpermeson prezentadi
 
 teatraĵojn; tiel sursceniĝis en miniteatroj la pantomimo. La
 
 sukceso ne malgrandiĝis; la reĝa teatro ne instruiĝis, ke tio
 
-estas la vivo mem, respeguliĝanta en etaj scenoj kaj pantomi-
-
-moj, alloganta ĉi tien la publikon. Ja eĉ la panoptikoj kun
+estas la vivo mem, respeguliĝanta en etaj scenoj kaj pantomimoj, alloganta ĉi tien la publikon. Ja eĉ la panoptikoj kun
 
 vaks-figuroj ne estis seninteresaj por la vizitantoj. En oni ekkaptis figurojn simbole prezentantaj revolucion
 
@@ -2827,21 +2235,15 @@ kaj portis ilin en procesio, kiu marŝis al Bastilo. Svisoj tiam pafis kontraŭ 
 
 Dekreto pri libereco por teatroj ebligis al la miniscenejoj
 
-pluan evoluon. Sed Napoleono ilin subordigis, dum li ne lik-
-
-vidis ilin, al severa cenzuro. Tial post lia falo, la direktoroj libere respiris kaj la repertuaro gloris la finon de la milito. Sed la nova Burbono ankoraŭ pliakrigis la cenzuron. Liaj konsilistoj ne lin timigis vane, kia skolo por revoluciigo de la labo-
+pluan evoluon. Sed Napoleono ilin subordigis, dum li ne likvidis ilin, al severa cenzuro. Tial post lia falo, la direktoroj libere respiris kaj la repertuaro gloris la finon de la milito. Sed la nova Burbono ankoraŭ pliakrigis la cenzuron. Liaj konsilistoj ne lin timigis vane, kia skolo por revoluciigo de la labo-
 
 ristaro povus fariĝi prezentadoj en tiuj ĉi malgrandaj teatroj.
 
 Tamen la budoj ĉirkaŭ la Templo ĉiam plenis.
 
-Foje dum festotago Gasparo vizitis Eŭgenon Hugo kaj pos-
+Foje dum festotago Gasparo vizitis Eŭgenon Hugo kaj poste komune ili trairis la tutan bulvardon. Homamasoj ĉi-loke
 
-te komune ili trairis la tutan bulvardon. Homamasoj ĉi-loke
-
-ondis kaj kunpuŝiĝadis, de ĉie kria, akresona invitado; pafbu-
-
-doj bruegis; kiu ne trinkis, ridis, kantis. ”Se ĉi tie ni povus ludi,” revis Gasparo laŭtvoĉe. ”Certe ni kapablas la samon
+ondis kaj kunpuŝiĝadis, de ĉie kria, akresona invitado; pafbudoj bruegis; kiu ne trinkis, ridis, kantis. ”Se ĉi tie ni povus ludi,” revis Gasparo laŭtvoĉe. ”Certe ni kapablas la samon
 
 kion la aliaj.”
 
@@ -2849,15 +2251,12 @@ Drinkejo apud drinkejo, teatreto apud teatreto.
 
 **62**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Subite kaptis ilian atenton surskribo sur kaduka, malalta
 
-konstruaĵo: TEATRO DE INSTRUITAJ HUNDOJ. Ili ekrigar-
-
-dis unu la alian kaj celis al enirejo. Post kelke da ŝtupoj ili descendis kvazaŭ enkelen; ili troviĝis en malalta, sufiĉe ampleksa halo, kiu havis eĉ kelkajn loĝiojn. Kenoj kaj longaj kandeloj brulis ĉirkaŭ la scenejo. Sur malaltaj benkoj sidis jam
+konstruaĵo: TEATRO DE INSTRUITAJ HUNDOJ. Ili ekrigardis unu la alian kaj celis al enirejo. Post kelke da ŝtupoj ili descendis kvazaŭ enkelen; ili troviĝis en malalta, sufiĉe ampleksa halo, kiu havis eĉ kelkajn loĝiojn. Kenoj kaj longaj kandeloj brulis ĉirkaŭ la scenejo. Sur malaltaj benkoj sidis jam
 
 multe da homoj, kiuj ridaĉis, parolis, brue kriadis. Odoraĉis
 
@@ -2873,9 +2272,7 @@ kruroj, sed li ne vidis ilin ludi teatraĵon. Ili alvenadis vestitaj en belegaj 
 
 lakitajn ŝuojn. La sinjoron sekvis servisto, vestita kiel ĵokeo; li portis post ĝi pluvombrelon. Krome prezentadis sin en la
 
-teatraĵeto ankoraŭ ĝendarmo kaj soldato, kiu dizertis. La ĝen-
-
-darmo lin kaptis kaj kondukis antaŭ la tribunalon. Kelke da
+teatraĵeto ankoraŭ ĝendarmo kaj soldato, kiu dizertis. La ĝendarmo lin kaptis kaj kondukis antaŭ la tribunalon. Kelke da
 
 soldatoj plenumis mort-verdikton; tondra knalo; la mizera
 
@@ -2887,21 +2284,14 @@ senmove. Kurteno malleviĝas.
 
 Ili eliras denove inter la bruantan homamason. Tie oni vere
 
-povas forgesi la imperiestron kaj reĝon. Oni povas ĉi tie ebri-
+povas forgesi la imperiestron kaj reĝon. Oni povas ĉi tie ebriiĝi de gajo, almenaŭ per gajo de aliaj. Tio estas revuo de la
 
-iĝi de gajo, almenaŭ per gajo de aliaj. Tio estas revuo de la
+vizaĝoj. Eŭgeno subite ĵetiĝis al unu el ili kaj salutis. Li prezentis: ”Sinjoro Klemento Longval,” ”Sinjoro Gasparo Deburau”.
 
-vizaĝoj. Eŭgeno subite ĵetiĝis al unu el ili kaj salutis. Li prezentis: ”Sinjoro Klemento Longval,” ”Sinjoro Gasparo Debu-
-
-rau”.
-
-Ili interkonsentis iri en kafejon. Tuj ĉirkaŭe estas dek ka-
-
-fejoj. ”ĉe Seka Arbo” nomiĝas la unua. Ruĝe polvita planko
+Ili interkonsentis iri en kafejon. Tuj ĉirkaŭe estas dek kafejoj. ”ĉe Seka Arbo” nomiĝas la unua. Ruĝe polvita planko
 
 **63**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -2935,9 +2325,7 @@ al iu eta knabinjo?”
 
 ”Nenion vi rakontis al mi,” ekkriis Eŭgeno. ”Hontu!”
 
-”Tiam mi aĝis naŭ jarojn. Mi loĝis kun la patrino en Ville-
-
-fort kaj travivis infanan romaneton kun knabinjo pli juna ol
+”Tiam mi aĝis naŭ jarojn. Mi loĝis kun la patrino en Villefort kaj travivis infanan romaneton kun knabinjo pli juna ol
 
 mi. Apartenis al ni ĉiuj montetoj, arboj, riveretoj.”
 
@@ -2951,19 +2339,14 @@ mi. Apartenis al ni ĉiuj montetoj, arboj, riveretoj.”
 
 al Gasparo.
 
-”Kun li la sorto dume kaŝludas,” respondis anstataŭ li Eŭ-
-
-geno. ”Sinjoro Deburau aktoras. Li aspiris aliĝi al kunularo
+”Kun li la sorto dume kaŝludas,” respondis anstataŭ li Eŭgeno. ”Sinjoro Deburau aktoras. Li aspiris aliĝi al kunularo
 
 kun la ekzercitaj hundoj, sed ne sukcesis.”
 
-”Mi amas teatron,” diris Longval kaj afable ekrigardis Gas-
-
-paron. ”ĉu vi ŝatas librojn?”
+”Mi amas teatron,” diris Longval kaj afable ekrigardis Gasparon. ”ĉu vi ŝatas librojn?”
 
 **64**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3015,7 +2398,6 @@ pri libroj.”
 
 **65**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3029,29 +2411,19 @@ la privata vivo de Klemento. ”Misaj familiaj rilatoj,” li asertis aŭ eksile
 
 Gasparo do ĉesis demandi.
 
-Klemento havis en la poŝo de sia redingoto ĉiufoje alian li-
+Klemento havis en la poŝo de sia redingoto ĉiufoje alian libron. Vergilio, Katulo, sed ankaŭ Kornelio, Racino, ne eksklu-
 
-bron. Vergilio, Katulo, sed ankaŭ Kornelio, Racino, ne eksklu-
+dante Beaumarchais-on kaj Rabelezon. Gasparo popaŝe penetradis en la novan mondon. Malgraŭ la fakto, ke li ne me-
 
-dante Beaumarchais-on kaj Rabelezon. Gasparo popaŝe pe-
+moris la nomojn, li lernis vidi la mondon pli riĉa kaj profunda ol ĝis nun. Li ĉesis dividi la homojn strikte je bonaj kaj
 
-netradis en la novan mondon. Malgraŭ la fakto, ke li ne me-
-
-moris la nomojn, li lernis vidi la mondon pli riĉa kaj profun-
-
-da ol ĝis nun. Li ĉesis dividi la homojn strikte je bonaj kaj
-
-mavaj. ĉiu homo iĝis inspiro al tio, por ke li klinu sin medi-
-
-teme super supraĵon de lia aspekto kaj serĉu, kio enas en pro-
+mavaj. ĉiu homo iĝis inspiro al tio, por ke li klinu sin mediteme super supraĵon de lia aspekto kaj serĉu, kio enas en pro-
 
 fundo. Li eklernis estimi la homojn.
 
 Kiam Longval direktis siajn demandojn al li, li embarasiĝis.
 
-Eble li travivis pli ol iu alia en sia aĝo; sed nenio el tiaĵoj ŝajnis al li aparte signifa. Kiam li paŝas sur la ŝnurego, eventu-
-
-ale superabisme, tio interesas nur la spektantojn. Oni devas
+Eble li travivis pli ol iu alia en sia aĝo; sed nenio el tiaĵoj ŝajnis al li aparte signifa. Kiam li paŝas sur la ŝnurego, eventuale superabisme, tio interesas nur la spektantojn. Oni devas
 
 meti la piedojn senĉese en la sama ritmo, paŝon post paŝo.
 
@@ -3077,7 +2449,6 @@ Klemento Longval sciis pri tio nemulte, sed li havigis al si
 
 **66**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3095,17 +2466,13 @@ al ĉiuj tio plaĉis.”
 
 ”Kiam tio okazis?”
 
-”A˛, antaŭ tre longe. Du jarcentojn kaj duonon antaŭ Kris-
-
-to.”
+”A˛, antaŭ tre longe. Du jarcentojn kaj duonon antaŭ Kristo.”
 
 ”Kiel tiam ili aktoris?” volis scii Gasparo.
 
 ”Verŝajne ili eminentis kiel komediantoj, ĉar ili gloris kaj
 
-havis siajn lernejojn. Ili havis langon sur ĉiu fingra ekstre-
-
-maĵo, skribis pri ili Kasiodoro. Ili tre kleris en filozofio, muziko, retoriko.”
+havis siajn lernejojn. Ili havis langon sur ĉiu fingra ekstremaĵo, skribis pri ili Kasiodoro. Ili tre kleris en filozofio, muziko, retoriko.”
 
 ”Malgraŭ la fakto, ke ili pantomimis?”
 
@@ -3115,9 +2482,7 @@ ilin; ĝi pli bone komprenis ilin. En la Romia Imperio multis
 
 nacioj kaj la lingvo de pantomimo estis internacia.”
 
-Deburau aŭskultis streĉite. Informoj de Klemento lin ĝoji-
-
-gis kaj fortigis. Ne povas esti malbona, kio estas tiel serioza kaj glora.
+Deburau aŭskultis streĉite. Informoj de Klemento lin ĝojigis kaj fortigis. Ne povas esti malbona, kio estas tiel serioza kaj glora.
 
 ”Kiel ĉio malaperis?” li bedaŭris.
 
@@ -3133,25 +2498,18 @@ Kelkajn jardekojn antaŭ Moliero aktoris en burbona hotelo
 
 **67**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-denove italaj aktoroj. Tio estis commedia dell’arte. ĉu vi ko-
-
-nas tiujn figurojn? Pantalon, Dottore, Zani. Mi trovis enskri-
+denove italaj aktoroj. Tio estis commedia dell’arte. ĉu vi konas tiujn figurojn? Pantalon, Dottore, Zani. Mi trovis enskri-
 
 bon, ke iu Fiorelli, titolita Scaramouche, sciis silenti kvaronhoron kaj tamen senĉese li ridigis la spektantojn.”
 
-”Ah, se mi scius tiom, kiom vi,” ekkaptis Gasparo siajn tem-
-
-piojn. ”Kiom pli klare mi povus pensi! Kiel pli facile mi ekko-
+”Ah, se mi scius tiom, kiom vi,” ekkaptis Gasparo siajn tempiojn. ”Kiom pli klare mi povus pensi! Kiel pli facile mi ekko-
 
 nus, kion fakte mi serĉas?”
 
-”En malgrandaj teatroj oni prezentadas ie tie pantomi-
-
-mojn. Sed mi opinias, ke tio formortas. Efektiva teatro bezo-
+”En malgrandaj teatroj oni prezentadas ie tie pantomimojn. Sed mi opinias, ke tio formortas. Efektiva teatro bezo-
 
 nas vortojn. Kiel vi volus ludi?”
 
@@ -3179,61 +2537,42 @@ Gasparo senkonsile rerigardis. ”Mi ne scias la vortojn.”
 
 ”Do elpensu ilin… Tie ĉi kuŝas via edzino, ŝi trompis vin —
 
-aŭ minimume vi estas konvinkita pri tio — vi iras al ŝi … Ak-
-
-toru!”
+aŭ minimume vi estas konvinkita pri tio — vi iras al ŝi … Aktoru!”
 
 Klemento sin apogas je arbo kaj rigardas.
 
 Gasparo transmetis manteleton de Klemento surŝultren. Li
 
-ekpaŝis. Vortoj, vortoj! Kie vin preni? Vane li serĉas enmemo-
-
-re. Li iras do senvorte. En la arbustaro estas lito; sur ĝi kuŝas virino. Malamo ekflamis en la vizaĝo de Otelo. Li ekvidis ŝin.
+ekpaŝis. Vortoj, vortoj! Kie vin preni? Vane li serĉas enmemore. Li iras do senvorte. En la arbustaro estas lito; sur ĝi kuŝas virino. Malamo ekflamis en la vizaĝo de Otelo. Li ekvidis ŝin.
 
 Kelkaj rapidaj paŝoj. Kiel trankvile ŝi spiras. Dolĉa vango, la **68**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 buŝo senmova. Lia mieno moliĝas, sur la lipoj kuŝiĝis kortuŝo.
 
-Li forgesas, kia malbona sciigo lin venigis. Li klinas sm-
+Li forgesas, kia malbona sciigo lin venigis. Li klinas smpate super ŝiajn okulojn. Sur ŝian vizaĝon falis lia ombro. Tio ekscitas lin. Kies ombro fakte ĝi estas? Li rememoras. Tenero sur la lipoj, hu, tio estas hipokrito. La blankega frunto
 
-pate super ŝiajn okulojn. Sur ŝian vizaĝon falis lia ombro. Tio ekscitas lin. Kies ombro fakte ĝi estas? Li rememoras. Tenero sur la lipoj, hu, tio estas hipokrito. La blankega frunto
+apartenis al iu alia. La tuta korpo sindoniĝadis. Malama doloro denove ekfulmas en lia koro kaj saturigas ĉiujn vizaĝ-
 
-apartenis al iu alia. La tuta korpo sindoniĝadis. Malama do-
+trajtojn. Lian staturon trairas onde ekscito kiel en frostotremo. ŝi estis tamen mia, mi donacis ĉion al ŝi. Min tutan. Se mi ne darfas ŝin posedi, mia amo ne permesos, ke ŝi apartenu al
 
-loro denove ekfulmas en lia koro kaj saturigas ĉiujn vizaĝ-
-
-trajtojn. Lian staturon trairas onde ekscito kiel en frostotre-
-
-mo. ŝi estis tamen mia, mi donacis ĉion al ŝi. Min tutan. Se mi ne darfas ŝin posedi, mia amo ne permesos, ke ŝi apartenu al
-
-iu alia. Kiel sekurigi ŝin por mi? Kruela ideo traflugas la ka-
-
-pon kiel fulmo. Otelo mem ektimas ĝin; li kaŝas la kapon in-
+iu alia. Kiel sekurigi ŝin por mi? Kruela ideo traflugas la kapon kiel fulmo. Otelo mem ektimas ĝin; li kaŝas la kapon in-
 
 ter kubutojn. Li timas levi la okulojn, por ke la penso lin ne
 
-venku. Prefere foriru! Li retropaŝas. Sed la dua paŝo jam la-
-
-bilas. Eĉ trans la mantelon li vidas ŝin. Sed ne dormantan;
+venku. Prefere foriru! Li retropaŝas. Sed la dua paŝo jam labilas. Eĉ trans la mantelon li vidas ŝin. Sed ne dormantan;
 
 male — gajan kaj radiantan — inter la brakoj de fremda viro.
 
-Veneno de humiligo cirkulas en lia sango. Venĝi sin! Rezer-
-
-vi ŝin por si mem!
+Veneno de humiligo cirkulas en lia sango. Venĝi sin! Rezervi ŝin por si mem!
 
 Kvazaŭ lin iu kondukus; tio ne estas memvolaj paŝoj; iu
 
 elinterne ordonas al li, trenas lin al la lito. Denove li staras super la bela virina korpo, super la ĉarma vizaĝo. Adiaŭu ŝin,
 
-adiaŭu kun la lasta trista, konsterna rigardo. La manoj mal-
-
-rapide etendas sin kvazaŭ al preĝo, kvazaŭ al akcepto de sa-
+adiaŭu kun la lasta trista, konsterna rigardo. La manoj malrapide etendas sin kvazaŭ al preĝo, kvazaŭ al akcepto de sa-
 
 kramento. La fingroj eksentis la haŭt-veluron. Ili ekpremis.
 
@@ -3247,13 +2586,10 @@ Gasparo plu genuas.
 
 **69**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Klemento ekpaŝis al li kaj metis sian manon sur lian ŝul-
-
-tron. Gasparo ektremis.
+Klemento ekpaŝis al li kaj metis sian manon sur lian ŝultron. Gasparo ektremis.
 
 ”i estis terura,” elspiris Klemento.
 
@@ -3287,51 +2623,34 @@ homoj?”
 
 ”El profundo de mia animo,” elspiris mallaŭte Deburau.
 
-”Do vidu,” ekkriis Klemento Longval. ”Tio signifas, ke ta-
-
-men vi amas la homojn kaj kredas je ili.”
+”Do vidu,” ekkriis Klemento Longval. ”Tio signifas, ke tamen vi amas la homojn kaj kredas je ili.”
 
 **70**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Surmane al scenejo
 
-Proksimume tiutempe, kiam familio Deburau venis al Pa-
+Proksimume tiutempe, kiam familio Deburau venis al Parizo, komencis sian teatran agadon sur bulvardo du Tem-
 
-rizo, komencis sian teatran agadon sur bulvardo du Tem-
-
-ple du direktoroj: Bertrand kaj Fabien. Unu el ili en sia junaĝo liveradis el kamparo buteron, la dua vendadis lignon kaj poste pluvombrelojn; sed ambaŭ estis pasiaj adorantoj de teat-
-
-ro. Ili petakiris de polica prefekto licencon por prezentadoj de fortuloj kaj akrobatoj en konstruaĵo, kiun ili nomis ”Funambules” (Akrobatoj, ŝnurdancistoj). Tie ankaŭ foje vidis Gaspa-
+ple du direktoroj: Bertrand kaj Fabien. Unu el ili en sia junaĝo liveradis el kamparo buteron, la dua vendadis lignon kaj poste pluvombrelojn; sed ambaŭ estis pasiaj adorantoj de teatro. Ili petakiris de polica prefekto licencon por prezentadoj de fortuloj kaj akrobatoj en konstruaĵo, kiun ili nomis ”Funambules” (Akrobatoj, ŝnurdancistoj). Tie ankaŭ foje vidis Gaspa-
 
 ro teatraĵon kun dresitaj hundoj, tie nelonge antaŭ la fino de
 
 Napoleono, oni komencis ludi mini-arlekenaĵojn sen vortoj.
 
-Ekde ĝia estiĝo konkurencis al Funambules la najbara mal-
+Ekde ĝia estiĝo konkurencis al Funambules la najbara malgranda teatro, kiun estris glora akrobatino madam’ Saqui.
 
-granda teatro, kiun estris glora akrobatino madam’ Saqui.
+Mavaj langoj asertis, ke malamego inter la du direktoroj devenas de tempo, kiam sinjorino Saqui iutage riproĉis sur bul-
 
-Mavaj langoj asertis, ke malamego inter la du direktoroj de-
+vardo Bertrandon, ke li estas ĉantaĝisto, kiu priŝteladis homojn per miskvalita butero; pro venĝsopiro Bertrand onidi-
 
-venas de tempo, kiam sinjorino Saqui iutage riproĉis sur bul-
-
-vardo Bertrandon, ke li estas ĉantaĝisto, kiu priŝteladis ho-
-
-mojn per miskvalita butero; pro venĝsopiro Bertrand onidi-
-
-re aĉetis la najbaran konstruaĵon, igis ĝin rekonstrui je teat-
-
-ro kaj per ĝia sukceso volis sin venĝi al sinjorino Saqui. Sed
+re aĉetis la najbaran konstruaĵon, igis ĝin rekonstrui je teatro kaj per ĝia sukceso volis sin venĝi al sinjorino Saqui. Sed
 
 tiaspecaj onidiroj cirkulas en la komedianta mondo pli ol
 
-abunde. Veras, ke Bertrand kaj Fabien jam delonge faris pre-
-
-zentadojn en Funambules, kiam geedzoj Saqui transformis
+abunde. Veras, ke Bertrand kaj Fabien jam delonge faris prezentadojn en Funambules, kiam geedzoj Saqui transformis
 
 sian kafejeton je Akrobata Teatro. Sed ankaŭ estas vero, ke
 
@@ -3341,17 +2660,12 @@ Bertrand kaj Fabien ofte devis serĉi helpfortojn por sia en-
 
 **71**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-semblo. Ilia belgusto ne malbonis. En Varieteo aktoris du-
+semblo. Ilia belgusto ne malbonis. En Varieteo aktoris dudeksesjara Prosper, sed ne multis okazoj por eminentiĝi, ĉar
 
-deksesjara Prosper, sed ne multis okazoj por eminentiĝi, ĉar
-
-li nur blekegis en rolo de leono en la teatraĵo ”Piramo kaj Tis-ba”. Aspirante pli noblajn laŭrojn, li prezentis sin en Funam-
-
-bules. Li estis belkreska, de karaktera vizaĝo, subtilmova. Bertrand lin dungis po dekkvin frankoj semajne, kondiĉe, ke li
+li nur blekegis en rolo de leono en la teatraĵo ”Piramo kaj Tis-ba”. Aspirante pli noblajn laŭrojn, li prezentis sin en Funambules. Li estis belkreska, de karaktera vizaĝo, subtilmova. Bertrand lin dungis po dekkvin frankoj semajne, kondiĉe, ke li
 
 ŝanĝos sian iom tre banalan nomon. Prosper Lamaitre trovis
 
@@ -3361,15 +2675,11 @@ prezentis sin en la unua teatraĵo de la nova teatro, ”Naskiĝo
 
 de arlekeno”. Post li Bertrand dungis fraŭlinon Charton, kiu
 
-famiĝis pro tio, ke ŝia filo naskiĝis al ŝi sur ŝtuparo de teatro Gaite, ”sur ŝtupoj ascendantaj al gloro”, kiel ŝi diradis. Malgraŭ tio la teatra trupo suferis pro manko de artistoj kaj ak-
-
-toroj. Knabo, zorganta pri rekvizitoj, venis iutage al la provo malfrue. Bertrand, kiu postulis de siaj salajruloj precizecon,
+famiĝis pro tio, ke ŝia filo naskiĝis al ŝi sur ŝtuparo de teatro Gaite, ”sur ŝtupoj ascendantaj al gloro”, kiel ŝi diradis. Malgraŭ tio la teatra trupo suferis pro manko de artistoj kaj aktoroj. Knabo, zorganta pri rekvizitoj, venis iutage al la provo malfrue. Bertrand, kiu postulis de siaj salajruloj precizecon,
 
 postulis klarigon.
 
-”Pardonu,” diris la knabo, ”mi forgesis ĉion. Mi vidis bri-
-
-lajn artistojn.”
+”Pardonu,” diris la knabo, ”mi forgesis ĉion. Mi vidis brilajn artistojn.”
 
 ”Mensogo,” murmuris Betrand minace. ”Kie povas esti
 
@@ -3381,15 +2691,11 @@ min, sinjoro Bertrand, ili superas la niajn.”
 
 ”ĉu pli bonaj ol miaj artistoj?” ekmiris la direktoro. Lian
 
-kapon trafulmis ideo. ”Eble kiel ĉe tiu vent-animulino apu-
-
-de?”
+kapon trafulmis ideo. ”Eble kiel ĉe tiu vent-animulino apude?”
 
 ”Ankoraŭ pli bonaj.”
 
-”Tion mi volus vidi,” Betrand paŭtis. ”Kiam ili havos la pre-
-
-zentadon?”
+”Tion mi volus vidi,” Betrand paŭtis. ”Kiam ili havos la prezentadon?”
 
 ”Ili artistas eksterdome. Certe vi trafus ilin.”
 
@@ -3397,15 +2703,12 @@ zentadon?”
 
 **72**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Post iom da tempo li eniris kun malfidema, sed scivolema
 
-rigardo en la korton St. Maur. Preskaŭ la tuta familio Debu-
-
-rau estis ĝuste enaere: du perfektaj viroj, fortaj kaj elastaj, du graciaj knabinoj, flekseblaj kaj kuraĝaj, kaj ankaŭ unu junulo, provanta imiti la gefratojn; sed li faladis, ruliĝis kaj ridigis negrandan publikon per koleraj kaj kvietigitaj grimacoj. Vere
+rigardo en la korton St. Maur. Preskaŭ la tuta familio Deburau estis ĝuste enaere: du perfektaj viroj, fortaj kaj elastaj, du graciaj knabinoj, flekseblaj kaj kuraĝaj, kaj ankaŭ unu junulo, provanta imiti la gefratojn; sed li faladis, ruliĝis kaj ridigis negrandan publikon per koleraj kaj kvietigitaj grimacoj. Vere
 
 ĝi estis eminenta akrobata prezentado.
 
@@ -3417,15 +2720,11 @@ kiu sub ŝnurego tint-sonigis gitaron. Li alpaŝis lin.
 
 ”Aŭskultu,” li alparolis lin. ”Kiom vi gajnas potage?”
 
-La maljuna Deburau interrompis la muzikadon kaj ekri-
-
-gardis al la ĝenanto.
+La maljuna Deburau interrompis la muzikadon kaj ekrigardis al la ĝenanto.
 
 ”Tio ne rilatas vin,” li diris.
 
-”Eble mi alportas al vi feliĉon,” ne lasis sin Bertrand for-
-
-puŝi de lia iom groba tono.
+”Eble mi alportas al vi feliĉon,” ne lasis sin Bertrand forpuŝi de lia iom groba tono.
 
 ”Feliĉon al ni?” levis sin patro Deburau. ”Iam ni enkasigas
 
@@ -3435,9 +2734,7 @@ Parizo, en patrolando de artistoj. Kaj ni, sinjoro, fieras pri tio, ke ni artist
 
 ”ĉu vi scias, kun kiu vi parolas?” rebatis Bertrand orgojlon
 
-per orgojlo. ”Kun la direktoro de teatro Funambules sur bul-
-
-vardo du Temple. Mi ofertas al via familio cent dek kvin fran-
+per orgojlo. ”Kun la direktoro de teatro Funambules sur bulvardo du Temple. Mi ofertas al via familio cent dek kvin fran-
 
 kojn semajne.”
 
@@ -3453,15 +2750,12 @@ Patro Deburau atentiĝis. ”Kiom ĝi sumas potage?”
 
 **73**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 niu, ke la tutan vivon ni pasigis en tiu ĉi korto! Miaj infanoj povus rakonti al vi, kion ili vidis. Ni estis en Istanbulo. Ni
 
-artistis antaŭ la plej supera turko, en haremo. Jesu tion, Gas-
-
-paro. Kiu el viaj artistoj povas fanfaroni per tio?”
+artistis antaŭ la plej supera turko, en haremo. Jesu tion, Gasparo. Kiu el viaj artistoj povas fanfaroni per tio?”
 
 ”Tial, ĉar iom vi valoras, mi ofertas al vi, ke vi eniru en
 
@@ -3479,9 +2773,7 @@ pagos cent tridek kaj kostumojn, familio Deburau estas via.”
 
 ”Cent dekkvin sen kostumoj,” replikis Bertrand.
 
-”Mi konsentas, ke necesas kunvoki la familian konsilanta-
-
-ron,” bremsis la konflikton patro Deburau. ”La knaboj ĵus
+”Mi konsentas, ke necesas kunvoki la familian konsilantaron,” bremsis la konflikton patro Deburau. ”La knaboj ĵus
 
 finis. Ili kuniros.” Li signis al la infanoj kaj kondukis la raran vizitanton en gastejon transe al la korto. ”Ni bezonas hodiaŭ sinjoran ĉambron,” li anoncis iom fanfarone al gastejestro.
 
@@ -3495,9 +2787,7 @@ surskribo ”kredito mortis”, kiu komediantojn ofte furiozigis,
 
 ili eltrinkis dum la vigla dialogo du botelojn. La trian mendis la patro Deburau kaj proponis ĝin al la direktoro.
 
-”Sinjoro Bertrand,” li diris, post kiam ili mandone kontrak-
-
-tis, ”hodiaŭ vi akiris kvin unuarangajn artistojn.”
+”Sinjoro Bertrand,” li diris, post kiam ili mandone kontraktis, ”hodiaŭ vi akiris kvin unuarangajn artistojn.”
 
 ”Nur kvar,” korektis lin Bertrand, ”ĉi tiun mi ne kalkulas,”
 
@@ -3507,7 +2797,6 @@ La patro klinis sin al Gasparo kaj metis kompate la man-
 
 **74**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3519,47 +2808,30 @@ aldone. Li povas montradi sin eble en pantomimoj.”
 
 Gasparo Deburau venis subite en medion, kiun li aŭdacis ĝis
 
-nun rigardi nur defore. Bertrand enkondukis la familion De-
-
-burau glore al ŝnurego en sia teatro. La humiligita Gasparo
+nun rigardi nur defore. Bertrand enkondukis la familion Deburau glore al ŝnurego en sia teatro. La humiligita Gasparo
 
 jam ne plu aperis sur scenejo kun ili. Oni konfidis al li nur
 
-sensignifajn rolojn en pantomimaj scenoj, sed li estis pli hel-
+sensignifajn rolojn en pantomimaj scenoj, sed li estis pli helpanto postkulise ol aktoro. Li preparadis tapiŝojn, firmigadis
 
-panto postkulise ol aktoro. Li preparadis tapiŝojn, firmigadis
-
-kablojn, disponigadis rekvizitojn. Sed li havis akrevidajn oku-
-
-lojn kaj observis, kion pluan li povus ellerni. Nekuraĝe li ko-
+kablojn, disponigadis rekvizitojn. Sed li havis akrevidajn okulojn kaj observis, kion pluan li povus ellerni. Nekuraĝe li ko-
 
 natiĝis kun la ĉefaj anoj en la teatro de Bertrand, kiuj lin preteratentis.
 
 Bertrand bone registris, kiel vortoj ĵetitaj desur scenejo en
 
-la rigardejon streĉas kaj ardigas. Li vizitadis ankaŭ aliajn teatrojn kaj meditis. Li havis Frederikon, junan viron kun agrab-
+la rigardejon streĉas kaj ardigas. Li vizitadis ankaŭ aliajn teatrojn kaj meditis. Li havis Frederikon, junan viron kun agrabla voĉo kaj kun evidenta aktora talento. Li petis do siajn ne
 
-la voĉo kaj kun evidenta aktora talento. Li petis do siajn ne
+multsignifajn aŭtorojn, ke ili verku scenojn por du, gajajn kaj seriozajn scenojn, kie oni parolus. Li ne eraris, la publiko akceptis tion kun entuziasmo kaj Frederiko, heroo en tiuj scenoj, iĝis favorato de la publiko el Funambules, de la publiko,
 
-multsignifajn aŭtorojn, ke ili verku scenojn por du, gajajn kaj seriozajn scenojn, kie oni parolus. Li ne eraris, la publiko akceptis tion kun entuziasmo kaj Frederiko, heroo en tiuj sce-
+kiu pagas kvar centimojn, sed amuziĝas por cent frankoj, pagas kvar centimojn, sed dankemas por mil. Kaj ne eblas ĝin
 
-noj, iĝis favorato de la publiko el Funambules, de la publiko,
+trompi; aŭ vi ravas ĝin, kaj poste ĝi apartenas al vi kaj ne forlasos vin ĝis morto — aŭ ĝi demaskos vian falsecon kaj elfajfos vin.
 
-kiu pagas kvar centimojn, sed amuziĝas por cent frankoj, pa-
-
-gas kvar centimojn, sed dankemas por mil. Kaj ne eblas ĝin
-
-trompi; aŭ vi ravas ĝin, kaj poste ĝi apartenas al vi kaj ne forlasos vin ĝis morto — aŭ ĝi demaskos vian falsecon kaj elfaj-
-
-fos vin.
-
-Gasparo dividis sian admiron; duone ĝi apartenis al Frede-
-
-riko, duone al la publiko. De ambaŭ li lernis.
+Gasparo dividis sian admiron; duone ĝi apartenis al Frederiko, duone al la publiko. De ambaŭ li lernis.
 
 **75**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3583,17 +2855,11 @@ ensemblo neniu demandis, sed en lia kapo konstante sidis
 
 ideo pri enhavoriĉa, sentoplena kaj gaja pantomimo. Sed vere
 
-li havis minimumon da ebloj por povi sin prezenti. Pantomi-
+li havis minimumon da ebloj por povi sin prezenti. Pantomimo kun kaprioloj havis ege simplan intrigon kaj ĝiaj personoj,
 
-mo kun kaprioloj havis ege simplan intrigon kaj ĝiaj personoj,
+krom neceso vortigi sentojn kaj humorojn, devis ankaŭ prezenti akrobataĵojn. Jen, kiel aspektis tia teatraĵo: Venas Arlekeno kaj vidigas, ke li koleregas. Fininte, li trifoje kapriolas.
 
-krom neceso vortigi sentojn kaj humorojn, devis ankaŭ pre-
-
-zenti akrobataĵojn. Jen, kiel aspektis tia teatraĵo: Venas Arlekeno kaj vidigas, ke li koleregas. Fininte, li trifoje kapriolas.
-
-Tuj sekve alkuras Kolombina; ŝi strebas la arlekenon reami-
-
-kigi kaj li pro ĝojo super la rezulto efektivigas stelforman ”salton de surdulo” kaj krome la devigan salton kun kuntiritaj
+Tuj sekve alkuras Kolombina; ŝi strebas la arlekenon reamikigi kaj li pro ĝojo super la rezulto efektivigas stelforman ”salton de surdulo” kaj krome la devigan salton kun kuntiritaj
 
 kruroj. Poste aperas nova amindumanto; li komencas siajn
 
@@ -3601,9 +2867,7 @@ amproponojn per kelkaj saltoj returnen. Aldone estas ĉi tie
 
 Ebriulo kaj ĝuste tiun prezentas Gasparo Deburau, kiel sian
 
-unuan rolon sur la scenejo de Funambules. Li eniras surma-
-
-ne kaj daŭrigas per ”salto de ebriulo”; tio estas: li saltas desur polmoj sur la krurojn kaj retroen. Kiam Arlekeno kaj Kolombina repaciĝas, la prezentado estas finita kaj ĉiuj personoj
+unuan rolon sur la scenejo de Funambules. Li eniras surmane kaj daŭrigas per ”salto de ebriulo”; tio estas: li saltas desur polmoj sur la krurojn kaj retroen. Kiam Arlekeno kaj Kolombina repaciĝas, la prezentado estas finita kaj ĉiuj personoj
 
 foriras, kiel ili venis; Deburau do denove foriras surmane.
 
@@ -3611,21 +2875,16 @@ Evidentas, ke malmultis okazoj por montri sian vizaĝon — kaj
 
 **76**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 tiun ankoraŭ nur turnitan al la tero. Malgraŭ tio li feliĉegis, ke fine li komencas la sopiritan teatro-karieron. La unua pantomimo kun saltoj ekvidis lumon de la scenejo kaj Gasparo
 
-Deburau — sub la artisma nomo Baptisto — surpaŝis unua-
-
-foje sur lignotabulojn, kiuj signifas la mondon. Li eniris tien surmane.
+Deburau — sub la artisma nomo Baptisto — surpaŝis unuafoje sur lignotabulojn, kiuj signifas la mondon. Li eniris tien surmane.
 
 La salto-pantomimo havis ĉe la publiko el la bulvardo du
 
-Temple ege grandan sukceson. Longval venis rigardi, Eŭge-
-
-no neniam. Gasparo ne riproĉis tion al li; ĉi tio ne estis teat-ro por kavaliroj, misgustigitaj per delikatsento de pluŝaj lo-
+Temple ege grandan sukceson. Longval venis rigardi, Eŭgeno neniam. Gasparo ne riproĉis tion al li; ĉi tio ne estis teat-ro por kavaliroj, misgustigitaj per delikatsento de pluŝaj lo-
 
 ĝioj. Estis tagoj, kiam Eŭgeno igis malkonfesi sin al li, sed
 
@@ -3635,15 +2894,11 @@ la bulvardo kaj denove malaperis en aro. Li ekkonis socialajn
 
 kaj politikajn reformistojn, strangemajn verkistojn, homon,
 
-kies unusola profesio estis serĉi perditajn objektojn, kaj ali-
-
-an, kiu forŝiradis kiun ajn afiŝon. Li renkontadis ebriulojn,
+kies unusola profesio estis serĉi perditajn objektojn, kaj alian, kiu forŝiradis kiun ajn afiŝon. Li renkontadis ebriulojn,
 
 kiuj ebriigadis sin per alkoholaĵo, gaja vivo kaj tristo. Li sidadis kun homoj, kiuj disipis ĉion, kion ili havis kaj kun la ali-aj, kiuj elspezis eĉ ne unu centimon. Okazis iam, ke Eŭgeno
 
-forlasis lin meze de amuzado. Li povis poste alsidiĝi al maj-
-
-stroj-metiistoj, kiuj iam venis dronigi en alkoholaĵo sian koleron pro ordonita monpuno kaj alifoje por interkonsenti, kiom
+forlasis lin meze de amuzado. Li povis poste alsidiĝi al majstroj-metiistoj, kiuj iam venis dronigi en alkoholaĵo sian koleron pro ordonita monpuno kaj alifoje por interkonsenti, kiom
 
 da viando, pano kaj vino ili sendos en nomo de la gildo al
 
@@ -3653,13 +2908,10 @@ feliĉis, ke li ekkonas ilin, ke li aŭdas ilin lamenti, ekscitiĝi kaj gajigi s
 
 **77**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-liaj propraj aventuraj ekspedicioj. Li finis sian rundon en sa-
-
-lonego ĉe Véry kaj poste li rapidis en la mondon de Deburau,
+liaj propraj aventuraj ekspedicioj. Li finis sian rundon en salonego ĉe Véry kaj poste li rapidis en la mondon de Deburau,
 
 inter ĵonglistojn kaj kantistinojn.
 
@@ -3667,29 +2919,21 @@ inter ĵonglistojn kaj kantistinojn.
 
 la riĉajn fraŭlinetojn, brr, frosto kaj glacio! Mi amas la senmo-najn inetojn. ĉu ankaŭ vi?”
 
-Gasparo kurbigis la buŝon. Kvazaŭ por li ekzistus ia elek-
+Gasparo kurbigis la buŝon. Kvazaŭ por li ekzistus ia elekteblo! Eĉ la plej malriĉa, kompare al li, ankoraŭ ege riĉis. Li kolektadis nur eretojn da ridetoj kaj ektuŝoj, kiun li ricevis, se Eŭgeno invitis iam iun knabinon al la tablo.
 
-teblo! Eĉ la plej malriĉa, kompare al li, ankoraŭ ege riĉis. Li kolektadis nur eretojn da ridetoj kaj ektuŝoj, kiun li ricevis, se Eŭgeno invitis iam iun knabinon al la tablo.
-
-”Griza, grizeta grizetino,” diradis Eŭgeno. ”Kio en la mon-
-
-do estas la plej tenera? Fraŭlinoj en muslino nenion ŝatas. Sed kiel dankemaj scias esti ĉi tiuj knabinoj!” Kaj tiel li aĉetadis ilin al si por vespermanĝoj, vino kaj malkara juvelo. Gasparo, kvankam per prezentado sur reala scenejo, jam akiris iom
+”Griza, grizeta grizetino,” diradis Eŭgeno. ”Kio en la mondo estas la plej tenera? Fraŭlinoj en muslino nenion ŝatas. Sed kiel dankemaj scias esti ĉi tiuj knabinoj!” Kaj tiel li aĉetadis ilin al si por vespermanĝoj, vino kaj malkara juvelo. Gasparo, kvankam per prezentado sur reala scenejo, jam akiris iom
 
 da memfido, tamen ne akiris novajn am-spertojn. Klemento
 
 Longval demandis lin foje, kie aperis en li la ĵaluz-sento, kiun li sciis prezenti post la arbustaĵo en Tuilerioj.
 
-”Pri neniu,” respondis Gasparo heziteme. Kaj poste li aldi-
-
-ris laŭvere: ”Pri ĉiuj.” Havante neniun, li amis ĉiujn. Estis longaj semajnoj, kiam li vivis nur por sia artista kariero. Labor-
+”Pri neniu,” respondis Gasparo heziteme. Kaj poste li aldiris laŭvere: ”Pri ĉiuj.” Havante neniun, li amis ĉiujn. Estis longaj semajnoj, kiam li vivis nur por sia artista kariero. Labor-
 
 laco ofte ne permesis al li pensi ion alian. Li ludis ĉiutage ses, dimanĉe dek prezentadojn, li trenis sin hejmen svenema kaj
 
 ne certis, ĉu lia spino ne rompiĝis. Sed venis tagoj, kiam ĉiu
 
-virino, kiun li renkontis, signifis por li doloron. Trairi prome-ne vivecan bulvardon, estis kruc-vojo. ĉio tiutage parolis vi-
-
-rinece, ĉio surprenadis virinajn formojn; ĉiu movo signifis
+virino, kiun li renkontis, signifis por li doloron. Trairi prome-ne vivecan bulvardon, estis kruc-vojo. ĉio tiutage parolis virinece, ĉio surprenadis virinajn formojn; ĉiu movo signifis
 
 sopir-streĉon kaj doloron pro neplenumiĝo.
 
@@ -3699,17 +2943,12 @@ mandorso la jupon de Kolombina; tio estis granda aventuro,
 
 **78**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ĉar Arlekeno, sinjoro Charigni, gardis ŝin kiel buldogo. Akto-
+ĉar Arlekeno, sinjoro Charigni, gardis ŝin kiel buldogo. Aktoranta, li ĝojis, kiam li ekvidis inter la publiko virinojn. Ofte li promenis vespere tra stratoj kaj vetur-koridoroj post ina staturo, trairante la aeron, kiun ŝi trairis kaj svatante sian om-
 
-ranta, li ĝojis, kiam li ekvidis inter la publiko virinojn. Ofte li promenis vespere tra stratoj kaj vetur-koridoroj post ina staturo, trairante la aeron, kiun ŝi trairis kaj svatante sian om-
-
-bron kun la ŝia, se la luno tion permesis. Eĉ se liaj sopiroj estis la plej sovaĝaj, ĉiam, eĉ en sonĝo, li konservis estimon al virinoj. Li bedaŭris, ke li ne vivis je kelkaj jardekoj pli frue. Kiel plaĉigus lin klini sin antaŭ svelta staturo de elektita sinjorino kaj doni al ŝi bluan rozon! Kiel volonte li batalus en dan-
-
-ĝeraj dueloj, por ke poste per sia kiso sur la vangon ŝi kava-
+bron kun la ŝia, se la luno tion permesis. Eĉ se liaj sopiroj estis la plej sovaĝaj, ĉiam, eĉ en sonĝo, li konservis estimon al virinoj. Li bedaŭris, ke li ne vivis je kelkaj jardekoj pli frue. Kiel plaĉigus lin klini sin antaŭ svelta staturo de elektita sinjorino kaj doni al ŝi bluan rozon! Kiel volonte li batalus en danĝeraj dueloj, por ke poste per sia kiso sur la vangon ŝi kava-
 
 lirigu lin! Reflekto de ĉi tiu estimo rilatis ankaŭ al damoj de liaj konatoj. Neniam li konatiĝis kun ili, ĉar liaj amikoj neniam ekhavis ideon enkonduki lin en la virinan mondon. Li
 
@@ -3727,13 +2966,9 @@ havu. Mi flustros ion al ŝi.”
 
 ”Tio dolorus Klementon.”
 
-”Se ĝi estas serioza rilato, mi fiaskos. Se ne, mi havis suk-
+”Se ĝi estas serioza rilato, mi fiaskos. Se ne, mi havis sukceson kaj tiu montros, ke mi pravis. Kion vi diras?”
 
-ceson kaj tiu montros, ke mi pravis. Kion vi diras?”
-
-Iun vesperon Gasparo iris kun Eŭgeno laŭ lia deziro al aŭgu-
-
-ristino. Post strangaj manipuloj per tondilo, kiun ŝi enpikadis en kribrilon kaj kun tri potoj, kiuj plenis de salo, pipro kaj
+Iun vesperon Gasparo iris kun Eŭgeno laŭ lia deziro al aŭguristino. Post strangaj manipuloj per tondilo, kiun ŝi enpikadis en kribrilon kaj kun tri potoj, kiuj plenis de salo, pipro kaj
 
 oleo, venis vico por ludkartoj.
 
@@ -3741,7 +2976,6 @@ oleo, venis vico por ludkartoj.
 
 **79**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3761,9 +2995,7 @@ Gasparo ridis, kiam ili estis elirantaj el malalta dometo en
 
 strato ĉe trua Tamburo.
 
-”Mi devas gardi min,” diris Eŭgeno tiel serioze, ke Gaspa-
-
-ron tio maltrankviligis.
+”Mi devas gardi min,” diris Eŭgeno tiel serioze, ke Gasparon tio maltrankviligis.
 
 ”Mi antaŭvidas, kiu li estas.”
 
@@ -3781,9 +3013,7 @@ febre ekscitita.
 
 ”Absurdaĵo, Eŭgeno. Vi estas ja matura.”
 
-”ĉiunokte iradas ĉe mi tra la ĉambro nigraj miaŭinoj. Ali-
-
-foje nigraj hundoj. Poste iu frapas je mi. Eklumiginte mi vi-
+”ĉiunokte iradas ĉe mi tra la ĉambro nigraj miaŭinoj. Alifoje nigraj hundoj. Poste iu frapas je mi. Eklumiginte mi vi-
 
 das nenion.”
 
@@ -3805,15 +3035,12 @@ tute alia. Mi devas tion kredi.”
 
 **80**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Gasparo vizitis maltrankvila Eŭgenon la sekvintan tagon
 
-tagmeze. Li trovis lin pli bonhumora; trankviligis lin kuracis-
-
-to. Li ĵus banis sin. Sed restis en li vantema spito.
+tagmeze. Li trovis lin pli bonhumora; trankviligis lin kuracisto. Li ĵus banis sin. Sed restis en li vantema spito.
 
 ”Mi parolis kun Julia Heritier.”
 
@@ -3833,27 +3060,20 @@ postulas de vi. Promesu tion al mi, aŭ mi foriros.”
 
 Kolerego skuegis Eŭgenon; liaj okuloj malsanece brilis.
 
-”Iru. iskole mi satas pri vi! Kaj ne revenu ĉi tien, kompre-
-
-nite?”
+”Iru. iskole mi satas pri vi! Kaj ne revenu ĉi tien, komprenite?”
 
 Gasparo diris senreviĝe: ”Mi ne revenos. Ne necesas, ke vi
 
-kriu. Per tio vi volas silentigi vian maljustecon. Sed tion ne-
-
-niu sukcesos, Eŭgeno. La konscienco parolas alivoĉe.”
+kriu. Per tio vi volas silentigi vian maljustecon. Sed tion neniu sukcesos, Eŭgeno. La konscienco parolas alivoĉe.”
 
 ”For!” kriis Eŭgeno.
 
 Gasparo fermis post si la pordon. Momenton li staris en la
 
-koridoro. Kompato igis lin reveni, sed humiligo lin elprome-
-
-nigis de ĉi tie. Malrapide li descendis la ŝtupojn.
+koridoro. Kompato igis lin reveni, sed humiligo lin elpromenigis de ĉi tie. Malrapide li descendis la ŝtupojn.
 
 **81**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3863,31 +3083,21 @@ La plej ofta rolo, kiun Gasparo ricevis, estis prezenti unu
 
 el la rabistoj, kiuj devis teruri la senkulpajn viktimojn.
 
-Konscience li algluis al si sovaĝan barbon, surkapigis taŭzi-
-
-tan perukon kaj per ĉirkaŭbruligita korko nigrigis siajn bro-
+Konscience li algluis al si sovaĝan barbon, surkapigis taŭzitan perukon kaj per ĉirkaŭbruligita korko nigrigis siajn bro-
 
 vojn; teruregaj atakoj al vojaĝantoj en arbarego ŝajnis al li
 
-vere pli ridindaj ol hororaj, kaj laŭ tio estis la rezulto. Lia longforma vizaĝo aspektis en rabista masko ridinde kaj anstataŭ tremi pro hororo, oni komencis ridi. La aŭtoroj gardan-
+vere pli ridindaj ol hororaj, kaj laŭ tio estis la rezulto. Lia longforma vizaĝo aspektis en rabista masko ridinde kaj anstataŭ tremi pro hororo, oni komencis ridi. La aŭtoroj gardantaj sukceson de siaj minikomedioj, protestis kontraŭ vanigi-
 
-taj sukceson de siaj minikomedioj, protestis kontraŭ vanigi-
-
-ta intrigo. Ankaŭ patro Deburau kun siaj gefiloj bedaŭris hu-
-
-miligon, kiu ombrumis ankaŭ ilin. ”Hontu, Gasparo! Skandale
+ta intrigo. Ankaŭ patro Deburau kun siaj gefiloj bedaŭris humiligon, kiu ombrumis ankaŭ ilin. ”Hontu, Gasparo! Skandale
 
 vi agas kontraŭ niaj interesoj.”
 
 Gasparo akceptis la riproĉojn, suferis, serĉis manieron kiel
 
-regajni la favoron, sed helpi al si mem li ne kapablis. Li med-
+regajni la favoron, sed helpi al si mem li ne kapablis. Li meditis, por kiu figuro li taŭgus, pli ol por figuroj de rabistoj, kies sang-avidemon neniu kredis al ili. Ofte lia rigardo koncentris sin je la figuro de sinjoro Blanchard, kiu prezentadis la
 
-itis, por kiu figuro li taŭgus, pli ol por figuroj de rabistoj, kies sang-avidemon neniu kredis al ili. Ofte lia rigardo koncentris sin je la figuro de sinjoro Blanchard, kiu prezentadis la
-
-dresitan hundon Pluto kaj de temp’ al tempo prezentis figu-
-
-ron, kiun oni nomis Pieroto. Li estis servisto de sinjoro Ka-
+dresitan hundon Pluto kaj de temp’ al tempo prezentis figuron, kiun oni nomis Pieroto. Li estis servisto de sinjoro Ka-
 
 sandro, vestita ĉiel ajn, surkape kutime pintan ĉapelon kun
 
@@ -3901,7 +3111,6 @@ kaj tion li akceptadis pacience. La figuro lin iel allogadis.
 
 **82**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3911,9 +3120,7 @@ direktoro Fabien, ekvidinte, kiel Gasparo kapneis kaj polme
 
 ekfrapis apogilon.
 
-”Pardonu,” ektimis Gasparo. ”Sed kial tiu malsaĝa servis-
-
-to ĉion ĉi toleras?”
+”Pardonu,” ektimis Gasparo. ”Sed kial tiu malsaĝa servisto ĉion ĉi toleras?”
 
 ”ĉar li estas servisto, kaj tial li malsaĝas.”
 
@@ -3925,23 +3132,17 @@ opiniis serioze sian aktoran profesion; egalis al li kion kaj kiel li ludas kaj 
 
 ĉirkaŭaĵo, kie li lasis pagi siajn elspezojn de kiu ajn, kiu por tio komplezis. Sur teatraj lignotabuloj li moviĝis senidee; en
 
-la vivo li ne elektadis rimedojn kiel atingi momentan prospe-
-
-ron.
+la vivo li ne elektadis rimedojn kiel atingi momentan prosperon.
 
 Direktoro Bertrand bezonis foje infanrolon por la teatraĵo
 
-la ”Fera masko” kaj alkondukis en teatron sian nevinon Vir-
-
-ginia, apenaŭ dekkvarjaran; ŝi aspektis anĝele, sed estis tre
+la ”Fera masko” kaj alkondukis en teatron sian nevinon Virginia, apenaŭ dekkvarjaran; ŝi aspektis anĝele, sed estis tre
 
 malsaĝa. Tiuj du kvalitoj Blanchard’on allogadis. Dumpaŭze
 
 antaŭ la lasta prezentado Bertrand ekaŭdis angoran krion; li
 
-kuregis subteren kaj trovis tie konsternitan knabinon en per-
-
-forta ĉirkaŭbrako de Blanchard. Li ekfuriozis ne nur kiel on-
+kuregis subteren kaj trovis tie konsternitan knabinon en perforta ĉirkaŭbrako de Blanchard. Li ekfuriozis ne nur kiel on-
 
 klo, sed ankaŭ kiel direktoro. Li ĵetiĝis kontraŭ Blanchard’on; tiu tamen pruvis, ke li scias repagi batojn. La konflikto ne
 
@@ -3957,7 +3158,6 @@ Blanchard mem; rapide li trairis ĉiujn drinkejojn ĉirkaŭe kaj
 
 klarigis al siaj komplicoj el malseka kvartalo, ke Bertrand lin maljuste elĵetis. Tial, kiam sur la scenejo ne aperis Pieroto-83
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -3977,9 +3177,7 @@ petis minuton da trankvilo.
 
 ”Sinjoroj,” li ekparolis insiste, ”sinjoro Blanchard, kiun vi
 
-vokas, estas ja talenta aktoro, sed li ne montris sin bonkarak-
-
-tera homo.”
+vokas, estas ja talenta aktoro, sed li ne montris sin bonkaraktera homo.”
 
 ”Egale,” respondis la salono. ”Ni volas Blanchardon.”
 
@@ -3987,17 +3185,13 @@ tera homo.”
 
 ”Kaj vi la dua! For kun la oratoro! Kie estas Blanchard?”
 
-”Sinjoroj,” ekkriis senespere Fabien, kiu same kiel la pali-
-
-ĝanta Bertrand post la scenejo jam vidis, kiel bona reputacio
+”Sinjoroj,” ekkriis senespere Fabien, kiu same kiel la paliĝanta Bertrand post la scenejo jam vidis, kiel bona reputacio
 
 de ilia miniteatro ruiniĝas. ”ĉu vi vidis fraŭlinon Virginia en la ’Fera masko’?”
 
 ”Kion komunan kun tio havas infanoj?”
 
-”Tiun senmakulan anĝeleton volis sinjoro Blanchard sek-
-
-se misuzi,” devis konfesi sinjoro Fabien. ”Direktoro Bertrand
+”Tiun senmakulan anĝeleton volis sinjoro Blanchard sekse misuzi,” devis konfesi sinjoro Fabien. ”Direktoro Bertrand
 
 kaptis lin ĉe la ago.”
 
@@ -4005,9 +3199,7 @@ La sciigo efikis. La rigardejo silentiĝis. Kaj ies voĉo aŭdiĝis:
 
 ”Besto!”
 
-Silenta murmuro atestis, ke la publiko ŝanĝas sian opini-
-
-on. Fabien rapide tion eluzis.
+Silenta murmuro atestis, ke la publiko ŝanĝas sian opinion. Fabien rapide tion eluzis.
 
 ”Kiu el vi,” li diris kortuŝvoĉe, ”ne havas fratinon, filineton, nevinon? Kaj kiu ne elpelus homon, kiu volus misuzi vian
 
@@ -4019,7 +3211,6 @@ kiel honesta viro. Certe li povus transdoni la fiulon al polico.
 
 **84**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4043,13 +3234,9 @@ lia rigardo rapide revuis vizaĝojn de ĉiuj neokupitaj membroj
 
 — ”al sinjoro Baptisto el familio Deburau.” Kelkaj homoj, kiuj
 
-memoris, ke la nomo Baptisto en programoj sin ligis al ridin-
+memoris, ke la nomo Baptisto en programoj sin ligis al ridindaj rabistoj, ekridis.
 
-daj rabistoj, ekridis.
-
-”Tiu junulo,” daŭrigis Fabien en paciga tono, ”aprecita ce-
-
-tere de Frederiko mem, antaŭ nelonge klarigis al mi propran
+”Tiu junulo,” daŭrigis Fabien en paciga tono, ”aprecita cetere de Frederiko mem, antaŭ nelonge klarigis al mi propran
 
 koncepton de la rolo de Pieroto. Ni estos feliĉaj, se vi kritikos lin juste.”
 
@@ -4059,53 +3246,38 @@ Nun li certis, ke la publiko rangaltigita je arbitracianto, per tio estas trankv
 
 aŭdis. Gasparo ekhezitis.
 
-”ĉu vi ne aŭdas?” instigis lin la patro. ”Se vi sukcesos, si-
+”ĉu vi ne aŭdas?” instigis lin la patro. ”Se vi sukcesos, sinjoro Bertrand alpagos al ni tri frankojn semajne, ĉu?” Kaj al-
 
-njoro Bertrand alpagos al ni tri frankojn semajne, ĉu?” Kaj al-
-
-donis pli mallaŭte: ”Gasparo, tenu vin eminenta.” En la vor-
-
-toj estis ne nur instigo, sed ankaŭ minaco. Venis momento,
+donis pli mallaŭte: ”Gasparo, tenu vin eminenta.” En la vortoj estis ne nur instigo, sed ankaŭ minaco. Venis momento,
 
 kiun la malfeliĉa Gasparo povis imagi nur en revoj, kiujn li
 
 kuraĝis konfidi al neniu. La revo realiĝis tiel subite, kiel en la teatroj okazas, pro ies malfeliĉo aŭ eraro de iu vakiĝas posteno por alia kaj necesas de tio profiti. Rapide li survestis la **85**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-kostumon de Blanchard, reŝminkis sin kaj surkapigis la ĉape-
-
-lon.
+kostumon de Blanchard, reŝminkis sin kaj surkapigis la ĉapelon.
 
 ”Kial vi ŝminkas vin tiom pale?” miris arlekeno Felikso.
 
 ”ĉu tio ne estas pli efika?”
 
-”Ne gravas en tiel bagatela rolo. Sufiĉas trankviligi la pu-
-
-blikon.”
+”Ne gravas en tiel bagatela rolo. Sufiĉas trankviligi la publikon.”
 
 ”Surscenejen,” kriis Bertrand.
 
-Tiam Deburau aperis unuafoje en la rolo de Pieroto. Li es-
-
-tis vestita bunte, surkape la pintforman ĉapelon; sub ĝi estis
+Tiam Deburau aperis unuafoje en la rolo de Pieroto. Li estis vestita bunte, surkape la pintforman ĉapelon; sub ĝi estis
 
 lia serioza kaj ridinda magra vizaĝo. Kasandro en lingvo de
 
 mimiko ordonas: ”Brosu mian jakon.”
 
-Pieroto kompleze alpaŝas, servutule brosas la ŝultron, de-
-
-likate forigas ĉiun polveron. Kasandro malpaciencas; li puŝ-
+Pieroto kompleze alpaŝas, servutule brosas la ŝultron, delikate forigas ĉiun polveron. Kasandro malpaciencas; li puŝ-
 
 batas la serviston, puŝegas lin. La vizaĝo de Pieroto kliniĝas
 
-kun humila rideto. Sed Gasparo, klininte sin por eviti la kap-
-
-frapon, kolektas desur la tero la polverojn kaj trankvile ilin
+kun humila rideto. Sed Gasparo, klininte sin por eviti la kapfrapon, kolektas desur la tero la polverojn kaj trankvile ilin
 
 disfrotas al la sinjoro sur la jako. La publiko bonvenigis la
 
@@ -4119,21 +3291,16 @@ scenejo. Pieroto finas la taskon; sed kiam lia sinjoro turnas
 
 sin, kvazaŭ hazarde li stumblas kaj repagas al li unu el la
 
-piedbatoj. Senkulpa vizaĝo frontas kontraŭ la kolerega rigar-
-
-do de Kasandro. La tuta salonego ridas kaj la sceno finiĝas per aplaŭdo.
+piedbatoj. Senkulpa vizaĝo frontas kontraŭ la kolerega rigardo de Kasandro. La tuta salonego ridas kaj la sceno finiĝas per aplaŭdo.
 
 ”Jen sukceso,” decidas patro Deburau postkulise.
 
-”Li freneziĝis,” koleregas Lange, kiam li revenis el la scene-
-
-jo. ”Tiel neniam oni ludis tion. Kiaj stultaj klaŭnaĵoj!”
+”Li freneziĝis,” koleregas Lange, kiam li revenis el la scenejo. ”Tiel neniam oni ludis tion. Kiaj stultaj klaŭnaĵoj!”
 
 La tuta familio de Charigni tion ripetas ˛ore. Sed la patro
 
 **86**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4145,9 +3312,7 @@ Bertrand acidmiene kapjesas.
 
 Ne okazis multo. Jes, eĉ tiom malmulte, ke preskaŭ neniu tion
 
-rimarkis. Unu el la miniaturaj pantomimaj roloj en Funam-
-
-bules, la perfida, iom malsaĝeta servisto de Kasandro, iomete
+rimarkis. Unu el la miniaturaj pantomimaj roloj en Funambules, la perfida, iom malsaĝeta servisto de Kasandro, iomete
 
 ŝanĝiĝis; la figuro, kies dorso kreiĝis por batoj, traesploris
 
@@ -4161,19 +3326,13 @@ Sed li ne intencis kontentiĝi kun tio. Lin plenigis sopiro ellerni la eblan mak
 
 horojn li provadis, kiel plej klare esprimi per brakmovoj kaj
 
-polmoj la ideon, kiel ĝin harmonie akordigi kun la vizaĝ-mie-
+polmoj la ideon, kiel ĝin harmonie akordigi kun la vizaĝ-mieno. Li ekkonis, kiel gravas dum la ludo la memoro; roloj por
 
-no. Li ekkonis, kiel gravas dum la ludo la memoro; roloj por
-
-pantomimo ne estas skribitaj, ne ekzistas ĉe ili sufloro. Nece-
-
-sis memorteni precizan sekvon de la ludo kaj sukcesajn sce-
+pantomimo ne estas skribitaj, ne ekzistas ĉe ili sufloro. Necesis memorteni precizan sekvon de la ludo kaj sukcesajn sce-
 
 nojn. Li restadis en la rolo daŭranta sur scenejo, surstrate,
 
-inter homoj, malgraŭ la fakto, ke ĝi daŭris sursceneje nur kel-
-
-kajn momentojn. Ankaŭ surstrate, inter la homoj li estis hon-
+inter homoj, malgraŭ la fakto, ke ĝi daŭris sursceneje nur kelkajn momentojn. Ankaŭ surstrate, inter la homoj li estis hon-
 
 tigita ofte pro mirigitaj rigardoj de la preterpasantoj. Eĉ se lia momenta sukceso neniun endanĝerigis, la familio Charigni
 
@@ -4187,7 +3346,6 @@ inter ambaŭ klanoj; minacoj kaj malicaj maljustaĵoj ne man-
 
 **87**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4199,13 +3357,9 @@ Patro Deburau saltis kun streĉita pugno al Joigny: ĉar Pepé
 
 kaj Lange defendis la fraton, enmiksiĝis en la batalon ankaŭ
 
-Francisko kun Stefano. La postkulisejo skuiĝis pro sovaĝa in-
+Francisko kun Stefano. La postkulisejo skuiĝis pro sovaĝa interbatiĝo. Oni batalis perpugne, perkrure, per la kapo, per
 
-terbatiĝo. Oni batalis perpugne, perkrure, per la kapo, per
-
-kubutoj, rekvizitoj. ĵaluzemo, longtempe akumuliĝinta, eks-
-
-plodis. Dorotea ekluktis kontraŭ Naneta, Katarina ŝiris la ha-
+kubutoj, rekvizitoj. ĵaluzemo, longtempe akumuliĝinta, eksplodis. Dorotea ekluktis kontraŭ Naneta, Katarina ŝiris la ha-
 
 raron al Marion.
 
@@ -4219,21 +3373,13 @@ unu teatro. Bertrand kaj Fabien estis solvantaj la malfacilan
 
 kalkultaskon, kiun el tiuj duoble kvin ili povas malhavi kaj
 
-sen kiu provizore ili ne povas esti. Fabien prezentis la kon-
+sen kiu provizore ili ne povas esti. Fabien prezentis la kondiĉon: restu la eta Marion Charigni. Sed se ili preferus la tu-
 
-diĉon: restu la eta Marion Charigni. Sed se ili preferus la tu-
+tan familion Charigni, forirus kun patro Deburau ankaŭ Gasparo, nomata Baptisto, kiu mankus en la pantomimo. Pan-
 
-tan familion Charigni, forirus kun patro Deburau ankaŭ Gas-
+tomimaj scenoj suferis ĉe la publiko nepran superregon kompare al dancoj de la ĵonglistoj. Tial la direktoroj salomone dekretis, kion ankaŭ la ĉefoj de la familioj agnoskis justa. La teatro adiaŭis ĉiujn, krom Marion kaj Gasparo.
 
-paro, nomata Baptisto, kiu mankus en la pantomimo. Pan-
-
-tomimaj scenoj suferis ĉe la publiko nepran superregon kom-
-
-pare al dancoj de la ĵonglistoj. Tial la direktoroj salomone dekretis, kion ankaŭ la ĉefoj de la familioj agnoskis justa. La teatro adiaŭis ĉiujn, krom Marion kaj Gasparo.
-
-Tiel Gasparo disiĝis de la familio, kiu lin perdis sen be-
-
-daŭro, ĉar dum la prezentadoj li ne mankis al ĝi. Gasparo aki-
+Tiel Gasparo disiĝis de la familio, kiu lin perdis sen bedaŭro, ĉar dum la prezentadoj li ne mankis al ĝi. Gasparo aki-
 
 ris sian propran vivkarieron.
 
@@ -4241,19 +3387,14 @@ Disiĝo de Deburau-anoj kun Funambules signifis disiron
 
 **88**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-de la tuta familia grupo. Francisko Nêmeâek cetere eĉ ne opi-
-
-niis sin Deburau. Li konatiĝis kun fraŭlino Rozamaria Mallet
+de la tuta familia grupo. Francisko Nêmeâek cetere eĉ ne opiniis sin Deburau. Li konatiĝis kun fraŭlino Rozamaria Mallet
 
 kaj volis edziĝi al ŝi. Li petis, ke li povu forlasi la trupon kaj vivteni sin mem. Lian ekzemplon sekvis ankaŭ Stefano. Katarina volis danci, Dorotea ŝatis ĉevalojn kaj cirkon.
 
-Patro Deburau paciĝis kun la fakto, ke ĉiuj liaj infanoj eki-
-
-ros serĉi sukceson laŭ propraj kapabloj, sed li igis ilin ankoraŭ al la lasta turneo tra kamparo, kiu ilin pro la gloro akirita en Parizo, certe akceptos riĉe. Nur la patrino rifuzis kunveturi.
+Patro Deburau paciĝis kun la fakto, ke ĉiuj liaj infanoj ekiros serĉi sukceson laŭ propraj kapabloj, sed li igis ilin ankoraŭ al la lasta turneo tra kamparo, kiu ilin pro la gloro akirita en Parizo, certe akceptos riĉe. Nur la patrino rifuzis kunveturi.
 
 La vivo en Parizo ŝin ege ŝanĝis. Perdiĝis ŝiaj ridetoj, pri kiuj iam ŝi abundis, ŝi perdis ankaŭ la kvietan, silentan ploron.
 
@@ -4267,17 +3408,13 @@ decidiĝis resti kun Gasparo en Parizo. Gasparo luis por si etan ĉambron en str
 
 La koloro de la domstuko estis tiel nedifinebla, ke pravis,
 
-kiu vidis en ĝi la ruĝon, kaj tiu, kiu divenis la bluon. Rusti-
-
-ĝanta pordego kondukis al malluma koridoro, kies muroj
+kiu vidis en ĝi la ruĝon, kaj tiu, kiu divenis la bluon. Rustiĝanta pordego kondukis al malluma koridoro, kies muroj
 
 estis senĉese rositaj de nigraj ŝvitgutoj. La ŝtuparo e˛is ĉe ĉiu paŝo, kvazaŭ ĝi volus ruiniĝi.
 
 ĉu vi volas enen? Vi devas atenti. Nome oni ne eniras en
 
-la ĉambron, sed preskaŭ rekte liten, kiu en la streta mansar-
-
-do atingas ĝis la pordo. Se vi evitos la liton, vi falos sur kanapon kaj per la frunto karambolos kontraŭ ŝrankon. Eblas, ke
+la ĉambron, sed preskaŭ rekte liten, kiu en la streta mansardo atingas ĝis la pordo. Se vi evitos la liton, vi falos sur kanapon kaj per la frunto karambolos kontraŭ ŝrankon. Eblas, ke
 
 vi evitos lezon kaj trovos sur la planko iom da libera spaco.
 
@@ -4289,7 +3426,6 @@ tegmento; ĝi deklivigas la plafonon. La kurtenoj estas truitaj
 
 **89**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4299,21 +3435,13 @@ trivita kaj tra truoj ŝutiĝas gipso.
 
 Gasparon kontentigis lia unua memstara loĝejo, sed al la
 
-patrino tie ne plaĉis; ŝi foriradis ofte al siaj estintaj najbarinoj en St. Maur kaj revenadis iam nur la sekvintan tagon. Gasparo sciis kompreni, kiel naskiĝis ŝia malfeliĉo. Pro sento, ke ŝi perdis sian junecon kaj hejmon, pro la scio, kiel lante ŝi perdas la edzon kaj infanojn, kun kies profesio neniam ŝi iden-
+patrino tie ne plaĉis; ŝi foriradis ofte al siaj estintaj najbarinoj en St. Maur kaj revenadis iam nur la sekvintan tagon. Gasparo sciis kompreni, kiel naskiĝis ŝia malfeliĉo. Pro sento, ke ŝi perdis sian junecon kaj hejmon, pro la scio, kiel lante ŝi perdas la edzon kaj infanojn, kun kies profesio neniam ŝi identiĝis.
 
-tiĝis.
+Gasparo restadis en sia ĉambreto sola, kiel li tion arde deziris. Sed li solis eĉ troe. Foje, kiam li finis siajn scenojn —
 
-Gasparo restadis en sia ĉambreto sola, kiel li tion arde de-
+kvinfoje oni sieĝis la burgon — kaj mikropantomimon, li estis revenanta nokte hejmen. Tuj, kiam li malfermis la pordon,
 
-ziris. Sed li solis eĉ troe. Foje, kiam li finis siajn scenojn —
-
-kvinfoje oni sieĝis la burgon — kaj mikropantomimon, li es-
-
-tis revenanta nokte hejmen. Tuj, kiam li malfermis la pordon,
-
-li ekvidis en sombro staturon. ĉar la mansardo ne havis fene-
-
-stron, sed mise traigitan tegmentan fenestron, falis iom da
+li ekvidis en sombro staturon. ĉar la mansardo ne havis fenestron, sed mise traigitan tegmentan fenestron, falis iom da
 
 duonlumo nur sur la krurojn de la nekonato.
 
@@ -4321,9 +3449,7 @@ duonlumo nur sur la krurojn de la nekonato.
 
 ”Mi, Eŭgeno. Eklumigu!”
 
-La kandelflameto ektremetis, teginte la vizaĝon de Eŭge-
-
-no per nebula lumeto. ”Kio okazis?”
+La kandelflameto ektremetis, teginte la vizaĝon de Eŭgeno per nebula lumeto. ”Kio okazis?”
 
 ”Ega novaĵo. Vi miregos.”
 
@@ -4331,9 +3457,7 @@ Eŭgeno versimile forgesis la okazaĵon, kiu ilin disigis. La
 
 ideo, kun kiu li alvenis, absorbis lin. La hararo estis taŭzita, la vangoj ŝvitis. ”Do, parolu!”
 
-”Jes,” elspiris Eŭgeno. ”ĉu vi memoras, kio estis kun Long-
-
-val?”
+”Jes,” elspiris Eŭgeno. ”ĉu vi memoras, kio estis kun Longval?”
 
 ”Vi ankoraŭ ne trankviliĝis?”
 
@@ -4345,7 +3469,6 @@ Gasparo lacis, kaj sinkis sur kanapon atendante, al kia nova
 
 **90**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4359,9 +3482,7 @@ Gasparo ekĝemis pro malpacienco.
 
 batali kontraŭ viaj fantaziaĵoj?”
 
-”Mi sciis, ke vi ne kredos al mi. Sed mi povas vnvin-
-
-ki. Lia vera nomo estas Klemento Sanson.”
+”Mi sciis, ke vi ne kredos al mi. Sed mi povas vnvinki. Lia vera nomo estas Klemento Sanson.”
 
 ”ĉu eblas?” malfideme meditis Gasparo.
 
@@ -4369,25 +3490,17 @@ ki. Lia vera nomo estas Klemento Sanson.”
 
 evitemon … ĉu iam vi estis ĉe li vizite? ĉu entute iam iu?” Kaj Eŭgeno ekridis sarkasme kaj samtempe infanvoĉe.
 
-Gasparo enpensiĝis. Li rememorigis al si la rarajn, malkla-
-
-rajn respondojn de Klemento, triston, kiun alternas ridetoj. ĉi tiu solvo tro drastis. Kiel sciis Klemento rakonti pri malnovaj poetoj! Ekzekutisto? La filo de la homo, kiu senkapigis la tutan reĝan familion, centojn da nobeloj, Robespieron, sinjori-
+Gasparo enpensiĝis. Li rememorigis al si la rarajn, malklarajn respondojn de Klemento, triston, kiun alternas ridetoj. ĉi tiu solvo tro drastis. Kiel sciis Klemento rakonti pri malnovaj poetoj! Ekzekutisto? La filo de la homo, kiu senkapigis la tutan reĝan familion, centojn da nobeloj, Robespieron, sinjori-
 
 non Corday?
 
 ”Kiel vi eksciis tion? Kiel vi pruvos tion?”
 
-”Mortis lia patro. Klemento devis iri al notario por testa-
+”Mortis lia patro. Klemento devis iri al notario por testamento. Li estas perdita.”
 
-mento. Li estas perdita.”
+”Kial?” ekmiris Gasparo. ”Se tio estas vero, tute mi ne miras, ke li volis tion sekretigi.”
 
-”Kial?” ekmiris Gasparo. ”Se tio estas vero, tute mi ne mi-
-
-ras, ke li volis tion sekretigi.”
-
-”uste tio estas trompo,” eksaltis Eŭgeno. ”Li volis alilo-
-
-ken, ol kien li apartenas. ĉu iam sciate, kial mi devis esti atentema antaŭ li?”
+”uste tio estas trompo,” eksaltis Eŭgeno. ”Li volis aliloken, ol kien li apartenas. ĉu iam sciate, kial mi devis esti atentema antaŭ li?”
 
 ”Imagu, ke vi naskiĝus kiel li — ”
 
@@ -4399,7 +3512,6 @@ kaj Klemento estas unusola filo!”
 
 **91**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4411,37 +3523,26 @@ defendas.”
 
 ”ĉiukaze mi estas malpli ol li.”
 
-”Eble,” koncedis Eŭgeno, ”sed tion devas ekscii Julia.” Gas-
-
-paro kaptis Eŭgenon je la kubuto. ”Tion vi ne darfas. Vi perei-
+”Eble,” koncedis Eŭgeno, ”sed tion devas ekscii Julia.” Gasparo kaptis Eŭgenon je la kubuto. ”Tion vi ne darfas. Vi perei-
 
 gus ŝin — kaj lin ankaŭ!”
 
-Eŭgeno konsterniĝis, lia vizaĝo ŝtoniĝis kaj fingre li mont-
-
-ris supren. ”ĉu vi aŭdis?”
+Eŭgeno konsterniĝis, lia vizaĝo ŝtoniĝis kaj fingre li montris supren. ”ĉu vi aŭdis?”
 
 ”Kion?”
 
-”Kato falis desur plafono,” flustris la malfeliĉulo. ”Tio sig-
+”Kato falis desur plafono,” flustris la malfeliĉulo. ”Tio signifas: diablo hejmas ĉi tie.” Ankoraŭ momenton li restis en
 
-nifas: diablo hejmas ĉi tie.” Ankoraŭ momenton li restis en
-
-spasma streĉo kaj poste sinkis senpove sur la sofon. Gaspa-
-
-ro alsidiĝis. Li provis trankviligi lin helpe de sia mallerta elok-vento. La kandelo degelis kaj flamete preskaŭ estingiĝis. Eŭ-
+spasma streĉo kaj poste sinkis senpove sur la sofon. Gasparo alsidiĝis. Li provis trankviligi lin helpe de sia mallerta elok-vento. La kandelo degelis kaj flamete preskaŭ estingiĝis. Eŭ-
 
 geno levis sin kaj kun fermetitaj okuloj rigardis la vizaĝon de Gasparo.
 
 ”Vi pravas,” diris li silente. ”Mi ne iros al Julia kaj ne diros, kiu estas Klemento. Mi faros ion multe pli bonan.” Li aliris la pordon kaj apertis ĝin. ”Mi invitos ŝin al venonta ekzekuto!”
 
-Li ekridetis, kaj kiam Gasparo paŝis post lin, la pordo im-
-
-pete fermiĝis.
+Li ekridetis, kaj kiam Gasparo paŝis post lin, la pordo impete fermiĝis.
 
 **92**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4449,13 +3550,9 @@ Aktoroj sur ŝnurego
 
 Kvankam li timis renkontiĝi kun Klemento, Gasparo
 
-kelkfoje ekiris al la loĝejo de Sansonoj en strato des Mar-
+kelkfoje ekiris al la loĝejo de Sansonoj en strato des Marchands. Foje antaŭtagmeze Gasparo sukcesis lin trovi. Kle-
 
-chands. Foje antaŭtagmeze Gasparo sukcesis lin trovi. Kle-
-
-mento eliris el domo; sed li ne mornis. Male, al Gasparo ŝaj-
-
-nis, ke li ankoraŭ estas pli eleganta. En lia vizaĝo radiis la frida orgojlo.
+mento eliris el domo; sed li ne mornis. Male, al Gasparo ŝajnis, ke li ankoraŭ estas pli eleganta. En lia vizaĝo radiis la frida orgojlo.
 
 Gasparo lasis Klementon preteriri, momenton lin sekvis
 
@@ -4477,19 +3574,14 @@ mi akompanu vin?”
 
 Klemento jesis. Kelnero alportis vinon.
 
-”En la lastaj tagoj mi dekutimiĝis de la societo,” diris iro-
+”En la lastaj tagoj mi dekutimiĝis de la societo,” diris ironie Klemento. ”Tiuj sinjoroj ĉirkaŭe,” daŭrigis Klemento en
 
-nie Klemento. ”Tiuj sinjoroj ĉirkaŭe,” daŭrigis Klemento en
-
-la sama tono, ”estas ĉiuj miaj bonaj amikoj. Vi povas trankvile rerigardi, neniu plu min vidas. Realiĝis mia revo el la infana-
-
-ĝo, Gasparo. Mi fariĝis nevidebla.”
+la sama tono, ”estas ĉiuj miaj bonaj amikoj. Vi povas trankvile rerigardi, neniu plu min vidas. Realiĝis mia revo el la infanaĝo, Gasparo. Mi fariĝis nevidebla.”
 
 Al Gasparo ŝajnis, ke antaŭ li staras malsana ulo, kiu sen
 
 **93**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4499,21 +3591,15 @@ ce renkontiĝo.
 
 ”Vi devis multe suferi,” diris kompateme Gasparo.
 
-”Pli malpli rajte. Mi superruzis ilin. Mi volis vivi kiel ho-
-
-mo.”
+”Pli malpli rajte. Mi superruzis ilin. Mi volis vivi kiel homo.”
 
 ”Neniun vi maljustumis.”
 
-”Jen la mondo,” ekĝemis Klemento. ”En ĝi ĉio estas alfik-
-
-sita, alpikita, registrita. ĉio senelira. Nenio ĉe ni estas ŝan-
+”Jen la mondo,” ekĝemis Klemento. ”En ĝi ĉio estas alfiksita, alpikita, registrita. ĉio senelira. Nenio ĉe ni estas ŝan-
 
 ĝebla, eĉ ne tia metio. ĉu ni vivas en la mezepoko?”
 
-”uste tial saĝa homo vin ekkomprenos,” certigis lin Gas-
-
-paro.
+”uste tial saĝa homo vin ekkomprenos,” certigis lin Gasparo.
 
 ”Ne kredu! Sed ĉio estas kulpo de la patro. Kial li deziris,
 
@@ -4521,21 +3607,15 @@ ke oni instruu min pri Eneado kaj Iliado? Kial li ne ĵetis miajn librojn enfajr
 
 jam foras kaj mi estas senhonora.”
 
-”Mi fieras, ke mi konas vin, Klemento,” diris sincere Gas-
-
-paro. ”Tio estas honoro por mi.”
+”Mi fieras, ke mi konas vin, Klemento,” diris sincere Gasparo. ”Tio estas honoro por mi.”
 
 ”Vi estas bona, sed vi ne helpos min. Kial nur jam ekde la
 
-junaĝo mi ne estis krudulo, kiu surpikadus skarabojn sur pin-
-
-glojn kaj turmentus hundojn kaj katojn? De kie en mi la te-
+junaĝo mi ne estis krudulo, kiu surpikadus skarabojn sur pinglojn kaj turmentus hundojn kaj katojn? De kie en mi la te-
 
 nereco?”
 
-”ĉu via patro estis brutala homo?” interrompis lin Gaspa-
-
-ro. Klemento embarasiĝis.
+”ĉu via patro estis brutala homo?” interrompis lin Gasparo. Klemento embarasiĝis.
 
 ”Li estis bona homo. Ankaŭ mia patrino. Kiam ili devis
 
@@ -4545,11 +3625,8 @@ anonci al mi, kia fakte estas mia profesio, tio estis por ili peza momento.”
 
 ”Komencis la avo, poste la patro. La tuta historio iris tra
 
-iliaj manoj. Ni havas diplomojn, rajtojn, privilegiojn. Alima-
+iliaj manoj. Ni havas diplomojn, rajtojn, privilegiojn. Alimaniere ĝi ne eblis, estis mia vico. Kaj mi volis ekkonadi la mon-94
 
-niere ĝi ne eblis, estis mia vico. Kaj mi volis ekkonadi la mon-94
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4557,13 +3634,9 @@ don, vivi. Tial mi ŝanĝis mian nomon. Mi volis verki. Sed ekde
 
 tiu momento, kiam la patro enkondukis min en la kameron
 
-kaj montris al mi tiun teruraĵon —” Klemento rememore en-
+kaj montris al mi tiun teruraĵon —” Klemento rememore enpensiĝis kaj daŭrigis kun trista rideto. ”Mi ne estis tiel deprimita, kiel la patro supozis. Sinjoro Guillotin estis inĝenia ho-mo, finfine ankaŭ filantropo. Li ne pensis pri ekzekutoj, li
 
-pensiĝis kaj daŭrigis kun trista rideto. ”Mi ne estis tiel deprimita, kiel la patro supozis. Sinjoro Guillotin estis inĝenia ho-mo, finfine ankaŭ filantropo. Li ne pensis pri ekzekutoj, li
-
-deziris mildigi turmentojn al kondamnitoj. La patro ofte ra-
-
-kontis al mi pri herooj kaj poltronoj. Tiam li proksimis al ili.
+deziris mildigi turmentojn al kondamnitoj. La patro ofte rakontis al mi pri herooj kaj poltronoj. Tiam li proksimis al ili.
 
 Li paroladis kun ili dum ilia lasta vojo. Nome la virinoj estis bravaj, li diradis. Li malamis tiujn sube, sub la eŝafodo, san-gavidajn pri kruela spektaklo. Tiuj estis la veraj ekzekutistoj, diradis la patro.”
 
@@ -4577,39 +3650,28 @@ sed ĝi estas kruda, tiu procesio — kaj la ceremonio antaŭ tiom
 
 da okuloj. Ankaŭ tio estas la mezepoko. Ili mem venas kaj
 
-luktacas pri bona loko. Sed la ekzekutiston poste ili abome-
+luktacas pri bona loko. Sed la ekzekutiston poste ili abomenas.”
 
-nas.”
-
-Li eksilentis. Gasparo volus demandi pri Julia. Sed Klemen-
-
-to ĝojigite, ke li povas paroli kun iu, komencis mem.
+Li eksilentis. Gasparo volus demandi pri Julia. Sed Klemento ĝojigite, ke li povas paroli kun iu, komencis mem.
 
 ”Jam kiel dekokjara laŭ rigardoj de knabinoj mi komencis
 
-konstati, ke mi ne estas tute malbela, mi antaŭvidis, kia estos la futuro. Kiel mi ĝojis promenadi kaj interŝanĝi kun ili rigardojn! Kaj tamen mi sciis: Tiu bela mondo por mi estas mal-
-
-permesita.”
+konstati, ke mi ne estas tute malbela, mi antaŭvidis, kia estos la futuro. Kiel mi ĝojis promenadi kaj interŝanĝi kun ili rigardojn! Kaj tamen mi sciis: Tiu bela mondo por mi estas malpermesita.”
 
 ”Sed viaj gepatroj feliĉe kunvivis, ĉu?”
 
 ”La patrino sciis, ke la patro estas ordema, brava homo.
 
-Jes, ili kunvivis harmonie. Sed la knabinoj, pri kiuj mi sopi-
-
-ris —”
+Jes, ili kunvivis harmonie. Sed la knabinoj, pri kiuj mi sopiris —”
 
 **95**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Gasparo klinis la kapon. Eŭgeno do realigis sian intencon.
 
-”Ni rendevuis ĉe la Nova Ponto. ŝi surhavis blankan ve-
-
-staĵon. Mi kuris renkonte al ŝi. Sed ŝi staris senmove kaj ob-
+”Ni rendevuis ĉe la Nova Ponto. ŝi surhavis blankan vestaĵon. Mi kuris renkonte al ŝi. Sed ŝi staris senmove kaj ob-
 
 servis min malamike. ,Kial vi sekretigis al mi vian nomon?’ ŝi
 
@@ -4635,9 +3697,7 @@ ili enestas tiom da vivo. Venu foje viziti nian teatron.”
 
 ”Mi provos tion fari.”
 
-Kiam ili eliris el la kafejo, Gasparo manpremis kun Kle-
-
-mento. ”ĉu vi scias, kion vi faras?” ridetis Klemento Sanson.
+Kiam ili eliris el la kafejo, Gasparo manpremis kun Klemento. ”ĉu vi scias, kion vi faras?” ridetis Klemento Sanson.
 
 ”ĉu ni jam ne plu estas amikoj?”
 
@@ -4651,23 +3711,16 @@ kion ordigis kolegoj el teatro per mansvingo, estis por li ŝarĝo dum multaj ve
 
 ”Kion ĝi signifas?”
 
-Nekompleze li klarigadis. Li konservis ja teneron al la for-
+Nekompleze li klarigadis. Li konservis ja teneron al la forpasinta infanaĝo kaj al regiono, kiu estis lia naskiĝloko kaj de lia patrino, sed jam li ne kapablis imagi sian vivon aliloke ol **96**
 
-pasinta infanaĝo kaj al regiono, kiu estis lia naskiĝloko kaj de lia patrino, sed jam li ne kapablis imagi sian vivon aliloke ol **96**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-en Parizo. Kiam ajn li diris la nomon de sia patrolando — Bo-
-
-heme — ili nomis lin — Bohémien — ili ridis, parolis pri no-
+en Parizo. Kiam ajn li diris la nomon de sia patrolando — Boheme — ili nomis lin — Bohémien — ili ridis, parolis pri no-
 
 mada vivo, ĉar ili opiniis lin cigano.
 
-Sinjoro Bertrand fine sukcesis akiri permeson por prezen-
-
-tadi scenojn per tri personoj. Sed la ministro — en intereso de grandaj teatroj — aldonis al la permeso ordonon: ĉiuj rolantoj, antaŭ ol komenciĝos la prezentado, devas paŝi surŝnure
+Sinjoro Bertrand fine sukcesis akiri permeson por prezentadi scenojn per tri personoj. Sed la ministro — en intereso de grandaj teatroj — aldonis al la permeso ordonon: ĉiuj rolantoj, antaŭ ol komenciĝos la prezentado, devas paŝi surŝnure
 
 kaj fari tie kelkajn gimnastikaĵojn. Atentu, volis per tio diri sinjoro ministro, vi troviĝas sur la periferia bulvardo, vi tro aŭdacas, ne forgesu, ke vi ne estas aktoroj, sed akrobatoj, ĵonglistoj!
 
@@ -4677,17 +3730,13 @@ kaj la komediantoj dentgrincis. Feliĉe montriĝis, ke preskaŭ
 
 ĉiuj estas en tiu arto dresitaj. Escepte de unu: tiu estis ĝuste la malfeliĉa Frederiko, sed li deklaris, ke la ministro eĉ per la plej malsaĝa ordono ne devojigos lin de teatro. Ili streĉis ŝnuregon kaj li komencis ekzerci.
 
-Gasparo Deburau ne ektimis. Li sciis, ke surŝnure li teni-
-
-ĝos. Sed Bertrand ne invitis lin al provo.
+Gasparo Deburau ne ektimis. Li sciis, ke surŝnure li teniĝos. Sed Bertrand ne invitis lin al provo.
 
 ”Por scenoj vorte prezentataj mi bezonas novajn aktorojn,
 
 verajn artistojn. Tial ni devas minimumigi la ensemblon en
 
-pantomimo,” li diris al li. ”Vi finprezentos la rolon en Ahri-
-
-mano kaj forlasos nin.”
+pantomimo,” li diris al li. ”Vi finprezentos la rolon en Ahrimano kaj forlasos nin.”
 
 ”Sed mi scias kuri surŝnurege,” certigis lin Gasparo.
 
@@ -4703,7 +3752,6 @@ lin mildigi.
 
 **97**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4723,17 +3771,11 @@ Kvazaŭ senheredigita de ĉiu ĝojo, Gasparo observis, kiel
 
 liaj kolegoj streĉas la ŝnuregon. ”Venu teni,” vokis iu kaj li
 
-obeeme iris. La unuaj paŝoj sukcesaj. Kelkaj el la komedian-
+obeeme iris. La unuaj paŝoj sukcesaj. Kelkaj el la komediantoj estis elstaraj akrobatoj kaj intence ŝajnigis iom da malcerteco, por vuali la pasintecon, kiun ili mistaksis. Aliaj pompis per sia rutino.
 
-toj estis elstaraj akrobatoj kaj intence ŝajnigis iom da malcerteco, por vuali la pasintecon, kiun ili mistaksis. Aliaj pompis per sia rutino.
+Venis la vico de Frederiko. ĉion ili klarigis al li, montris, enmanigis al li longan stangon. Frederiko ekpaŝis. Deburau deziris al li nenion malbonan. Sed post la kvina paŝo la dieca
 
-Venis la vico de Frederiko. ĉion ili klarigis al li, montris, enmanigis al li longan stangon. Frederiko ekpaŝis. Deburau de-
-
-ziris al li nenion malbonan. Sed post la kvina paŝo la dieca
-
-Arlekeno falis. La admirata, elasta Frederiko falis kiel matu-
-
-ra piro kaj restis kuŝanta surtere. Li ĝemis. Terurite ili alkuris al li.
+Arlekeno falis. La admirata, elasta Frederiko falis kiel matura piro kaj restis kuŝanta surtere. Li ĝemis. Terurite ili alkuris al li.
 
 ”Nun vidu min la vendistinoj el nia bulvardo,” li ekridetis
 
@@ -4743,13 +3785,10 @@ kaj svenis. Ili venigis kuraciston. Tiu konstatis, ke Frederiko havas elartikigi
 
 **98**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Sed kion ni faros?” ekkaptis Bertrand sian kapon. ”Ili for-
-
-prenos de ni la koncesion.”
+”Sed kion ni faros?” ekkaptis Bertrand sian kapon. ”Ili forprenos de ni la koncesion.”
 
 ”Mi foriros al la Olimpia cirko al la fratoj Franconi, tie oni
 
@@ -4757,9 +3796,7 @@ darfas paroli. i bone konvenos al mi kaj al vi. Ne persvadu
 
 min! Jam mi decidiĝis.”
 
-”Bone,” kunsentis respondpreta Bertrand. ”Sed kiu ansta-
-
-taŭos vin?”
+”Bone,” kunsentis respondpreta Bertrand. ”Sed kiu anstataŭos vin?”
 
 ”Felikso.”
 
@@ -4769,15 +3806,11 @@ taŭos vin?”
 
 paŝi sur la ŝnuro.”
 
-”ĉu vi ne forgesis eĉ tion malmultan, kion vi sciis?” Bert-
-
-rand invitis Gasparon. Deburau enmomente estis sur eskalo
+”ĉu vi ne forgesis eĉ tion malmultan, kion vi sciis?” Bertrand invitis Gasparon. Deburau enmomente estis sur eskalo
 
 kaj kuris sur la ŝnurego kvazaŭ iu bruligus liajn kalkanojn. Li travivis jam pli malagrablajn aer-promenojn.
 
-”Li restu, do,” diris Felikso, influita per la vervo de Gaspa-
-
-ro.
+”Li restu, do,” diris Felikso, influita per la vervo de Gasparo.
 
 ”Dankon, sinjoro,” diris Gasparo kortuŝite. ”Mi sciis, ke vi
 
@@ -4799,13 +3832,10 @@ eble ĝi alportos por vi ion bonan.”
 
 ”Dankon pro la profetaĵo.”
 
-Kiam post kelkaj tagoj revenis patro Deburau kun la infa-
-
-noj el la kamparo, Gasparo kisis lian manon por bonvenigi
+Kiam post kelkaj tagoj revenis patro Deburau kun la infanoj el la kamparo, Gasparo kisis lian manon por bonvenigi
 
 lin. La patro ektimis. La filo dankis al li por ĉiuj kapfrapoj, per **99**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4813,7 +3843,6 @@ kiuj li igis lin ellerni la iradon surŝnurege. Li savis per tio la teatran kari
 
 **100**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4823,9 +3852,7 @@ Deburau, eskalon! Deburau, alportu pudron! Deburau,
 
 tuj alportu vinon por mi! Deburau, kombu la perukon!”
 
-Gasparo estis en la teatro, spiris polvon de la scenejo, ŝminkis ĉiuvespere la vizaĝon, vestadis sin en buntajn ĉifonojn, faris kelkajn paŝojn antaŭ la rigardejo kaj denove ma-
-
-laperis. Li funkciis: nevidita, nekonata, la lasta el la lastaj. Kaj unufoje monate li rolis Pieroton, senŝanĝe la stereotipan Pieroton en ĉapelo, kun klinita rando. La seĝoj en partero kaj en
+Gasparo estis en la teatro, spiris polvon de la scenejo, ŝminkis ĉiuvespere la vizaĝon, vestadis sin en buntajn ĉifonojn, faris kelkajn paŝojn antaŭ la rigardejo kaj denove malaperis. Li funkciis: nevidita, nekonata, la lasta el la lastaj. Kaj unufoje monate li rolis Pieroton, senŝanĝe la stereotipan Pieroton en ĉapelo, kun klinita rando. La seĝoj en partero kaj en
 
 la plej supraj vicoj iam ekridis pro liaj faloj, sed aplaŭdis al Arlekeno, kiu sciis lin tiel elegante piedbati. Ekzistis nek roloj, nek teatraĵoj, kiuj ebligus al li eminentiĝi sur la scenejo, ne estis Kasandro, kiun li povus provoki. Se iuvespere aperus
 
@@ -4839,15 +3866,12 @@ ekmalsanis aŭ malfruigis la prezentadon. Sed Bertrand kaj
 
 Fabien pretervidis la eblon, kiun foje li montris en Pieroto kaj ne klopodis mediti, ĉu el tiu strangulo iam io povus fariĝi.
 
-Nur Felikso, Arlekeno en la teatro, fiksrigardis lin iam aten-
-
-teme.
+Nur Felikso, Arlekeno en la teatro, fiksrigardis lin iam atenteme.
 
 Gasparon, konanta liajn mishumorojn, pli vere timigis liaj
 
 rigardoj, anstataŭ ĝoji pro ili. Post la falo de Frederiko venis pluraj faloj. Sinjoro Filibert eksuferis frakturon de la kruro kaj fraŭlino Flora, kiu al Gasparo tiel plaĉis en la brilbrila robo de **101**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4867,13 +3891,9 @@ ceteraj aktoroj. Gasparo plu prezentadis siajn sensignifajn,
 
 nerimarkeblajn etrolojn.
 
-”Deburau, balau la scenejon!” ”Deburau, iru ĉi tien!” ”De-
+”Deburau, balau la scenejon!” ”Deburau, iru ĉi tien!” ”Deburau, iru tien!” Neniu iam diris: ”Deburau, kia homo vi es-
 
-burau, iru tien!” Neniu iam diris: ”Deburau, kia homo vi es-
-
-tas?” Ekzistis tamen multaj aferoj, pri kiuj ili povus deman-
-
-di.
+tas?” Ekzistis tamen multaj aferoj, pri kiuj ili povus demandi.
 
 Li moviĝis inter fabelaj kulisoj, alkroĉadis sub la mentonon
 
@@ -4889,9 +3909,7 @@ tuj ĉe la teatro, alpremiĝinta al la muro.
 
 ”Klemento,” vokis Gasparo ĝoje, ”ĉu vi estis en la teatro?”
 
-Sed Klemento rigardis lin per vunditaj okuloj. Li kaptis Ga-
-
-sparon subbrake kaj kondukis lin tra silentiĝanta aleo.
+Sed Klemento rigardis lin per vunditaj okuloj. Li kaptis Gasparon subbrake kaj kondukis lin tra silentiĝanta aleo.
 
 ”Gasparo, venis tio, kion mi pleje timis. Morgaŭ — morgaŭ
 
@@ -4905,7 +3923,6 @@ homoj.”
 
 **102**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -4923,17 +3940,13 @@ du virinojn.”
 
 ”Do, vera krimulo,” ĝojigis lin Gasparo.
 
-”Malgraŭ tio mi sentas teruron. Veturi kune kun li tra stra-
-
-toj antaŭ ĉies okuloj!”
+”Malgraŭ tio mi sentas teruron. Veturi kune kun li tra stratoj antaŭ ĉies okuloj!”
 
 Ili iris tra tenebraj senlumaj stratoj. Ili iris orienten, preteriris mornan konstruaĵon de malliberejo Roquette kaj iratingis
 
 la tombejon Pere-Lachaise.
 
-”ĉu hodiaŭ via patrino estas hejme?” demandis Klemen-
-
-to.
+”ĉu hodiaŭ via patrino estas hejme?” demandis Klemento.
 
 ”ŝi estas kun la aliaj. La patro denove loĝas enkorte kiel pli
 
@@ -4943,9 +3956,7 @@ frue.”
 
 ”Tre volonte,” ekridis Gasparo. ”i ankoraŭ estas ĉe vi?”
 
-”Ne,” trankviligis lin Klemento, ”la helpantoj tion jam for-
-
-veturigis kaj lokumis.”
+”Ne,” trankviligis lin Klemento, ”la helpantoj tion jam forveturigis kaj lokumis.”
 
 Li konsciis pri la timo de Gasparo.
 
@@ -4969,15 +3980,12 @@ kaj eniris.
 
 **103**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 mento. ”Laŭ dekreto, konfirmita de la reĝo, respubliko kaj
 
-imperiestro, neniu darfas la realiganton de juĝ-verdiktoj no-
-
-mi ekzekutisto. Sed ĉiu nomas tiun metion tiel kaj neniu
+imperiestro, neniu darfas la realiganton de juĝ-verdiktoj nomi ekzekutisto. Sed ĉiu nomas tiun metion tiel kaj neniu
 
 aliel.” Li alportis malvarman viandon, panon kaj vinon.
 
@@ -4991,17 +3999,13 @@ portreto de pli aĝa viro kun plenbarbo.
 
 ”La avo. Li vivis en pli bonaj cirkonstancoj,” ridetis acide
 
-Klemento. ”Tiam sufiĉis, se ia junulino edziniĝis al kondam-
-
-nito kaj la ekzekuto ne okazis. Eĉ for de ŝtiparo ŝi povis lin
+Klemento. ”Tiam sufiĉis, se ia junulino edziniĝis al kondamnito kaj la ekzekuto ne okazis. Eĉ for de ŝtiparo ŝi povis lin
 
 forkonduki.”
 
 ”Iu iris eble nevolonte,” provis Gasparo ŝerci.
 
-”Imagu,” daŭrigis Klemento rememorante, ke tiu bona ol-
-
-dulo plendis al la Nacia Konvento kontraŭ leĝpropono, sur-
+”Imagu,” daŭrigis Klemento rememorante, ke tiu bona oldulo plendis al la Nacia Konvento kontraŭ leĝpropono, sur-
 
 baze de kiu estus forigota mortpuno.”
 
@@ -5013,13 +4017,9 @@ baze de kiu estus forigota mortpuno.”
 
 ”Unu jaron poste li sendis novan petskribon, nome ke ne
 
-eblas senkapigi per unu glavo tiom da kapoj, kiom la Konven-
+eblas senkapigi per unu glavo tiom da kapoj, kiom la Konvento deziris. Poste do intervenis doktoro Guillotin. Tion la avo
 
-to deziris. Poste do intervenis doktoro Guillotin. Tion la avo
-
-ne imagis,” aldiris Klemento, rigardante la malnovan portre-
-
-ton, ”ke post kelkaj monatoj li veturigos ankaŭ sian reĝon sen
+ne imagis,” aldiris Klemento, rigardante la malnovan portreton, ”ke post kelkaj monatoj li veturigos ankaŭ sian reĝon sen
 
 la kapo…”
 
@@ -5027,7 +4027,6 @@ Gasparo aŭskultis enpense. Kiel intime ligiĝas la historio de
 
 Francio kun tiu ĉi modesta ĉambreto! ĉe ĉi tiu tablo sidis tiuj, kiuj realigis la kruelajn verdiktojn de la regantoj kaj poste po-poljuĝojn super la eksaj regantoj. ĉi tien ili venadis lacaj, la-104
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5039,17 +4038,13 @@ Klemento komprenis la pensojn de sia kamarado.
 
 kiujn ni sendis transen. La patro skribis en siajn rememorojn
 
-ankaŭ tion, kion rakontis la avo. Iujn ekzekutojn li rememo-
-
-ris preskaŭ kortuŝe. Li parolis pri manifestiĝoj de favoro, ki-
+ankaŭ tion, kion rakontis la avo. Iujn ekzekutojn li rememoris preskaŭ kortuŝe. Li parolis pri manifestiĝoj de favoro, ki-
 
 ujn la ekzekutotoj montris al li.
 
 ”Travivi la lastajn sekundojn kun Maria Antoinetta, kun
 
-Charlotta Cardaz …” meditis Gasparo. ”Li estis dum tiuj mo-
-
-mentoj fakte ilia lasta amiko.”
+Charlotta Cardaz …” meditis Gasparo. ”Li estis dum tiuj momentoj fakte ilia lasta amiko.”
 
 ”Sed mia patro havis alian karakteron ol mi. Li estis firma
 
@@ -5061,9 +4056,7 @@ kaj simpla. Min teruras ĉia krudaĵo.”
 
 ”Eble vi sukcesos tion fari kun fermitaj okuloj?”
 
-”Mi timas,” kapneis la plej juna Sanson. ”Mi kapablus ba-
-
-tali por la rajto mia aŭ fremda pri vivo kaj morto. Sed fari ĉi tion? Kaj antaŭ la okuloj de tiom da homoj? Mi svenos. Mi ne
+”Mi timas,” kapneis la plej juna Sanson. ”Mi kapablus batali por la rajto mia aŭ fremda pri vivo kaj morto. Sed fari ĉi tion? Kaj antaŭ la okuloj de tiom da homoj? Mi svenos. Mi ne
 
 kapablos tion. Ankoraŭ mi malbonfaros al kondamnito.”
 
@@ -5087,13 +4080,10 @@ Jam mateniĝis. El la Sansona domo eliris du viroj; unu el ili
 
 **105**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-surhavis nigran redingoton, la dua estis en vestaĵo de la hel-
-
-pantoj. ĉeangule ilin atendis pliaj du helpantoj kun ĉaro. Ili
+surhavis nigran redingoton, la dua estis en vestaĵo de la helpantoj. ĉeangule ilin atendis pliaj du helpantoj kun ĉaro. Ili
 
 vipis ĉevalon kaj ekiris. Unu duopo iris laŭtparolante, la dua
 
@@ -5101,9 +4091,7 @@ en morna silento, nur kun rara vorto, kiu plivere atentigis pri silento, ol ĝin
 
 ”Mi iras unuafoje — kaj mi estas preskaŭ kvardekjara — ”
 
-murmuris Klemento. ”ĉu vi opinias, ke la homoj min jam ri-
-
-markis?”
+murmuris Klemento. ”ĉu vi opinias, ke la homoj min jam rimarkis?”
 
 ”Eĉ ne unu rerigardis.”
 
@@ -5115,9 +4103,7 @@ lasta komedianto el la periferia budo? Kaj tamen ekregis lin
 
 honto. La ĉaro haltis antaŭ malliberejo.
 
-Gasparo rigardis Klementon kaj vidante, ke ties frunto ek-
-
-ŝvitis, li diris — ”Venu, kamarado,” kaj prenis lin subbrake.
+Gasparo rigardis Klementon kaj vidante, ke ties frunto ekŝvitis, li diris — ”Venu, kamarado,” kaj prenis lin subbrake.
 
 Unu el la helpantoj sonorigis ĉe pordo kaj revenante al la ĉaro diris: ”Ni atendos vin, mastro.”
 
@@ -5136,27 +4122,18 @@ La pordisto transdonis ilin al gardisto, kiu kondukis ilin al
 pordo malfermiĝis. Ili eniris. La kondamnito genuis apud lito,
 
 
-sur kiu sidis pastro kun la klinita kapo. La knabo okulpasis la novalvenintojn, sed daŭrigis sian balbutan konfesadon, mik-sitan kun la angora spirado. ”La nomon de Dio mi vane dira-
+sur kiu sidis pastro kun la klinita kapo. La knabo okulpasis la novalvenintojn, sed daŭrigis sian balbutan konfesadon, mik-sitan kun la angora spirado. ”La nomon de Dio mi vane diradis. Mi blasfemis, la dimanĉojn mi ne festis.”
 
-dis. Mi blasfemis, la dimanĉojn mi ne festis.”
-
-Sanson riverencis antaŭ la pastro kaj kun krucmetitaj ma-
-
-noj staris plu ĉe la fenestro. La konfeso finiĝis.
+Sanson riverencis antaŭ la pastro kaj kun krucmetitaj manoj staris plu ĉe la fenestro. La konfeso finiĝis.
 
 **106**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-La provoso donis al Klemento grandan tondilon. La kon-
+La provoso donis al Klemento grandan tondilon. La kondamniton oni sidigis en mezon de la ĉelo kaj unu el gardistoj
 
-damniton oni sidigis en mezon de la ĉelo kaj unu el gardistoj
-
-metis sur liajn ŝultrojn puran vualtukon. La mano de Klemen-
-
-to tremis: li disigis la tondilon kaj tuŝis la kolon de la kondamnito. La junulo dolore ekploretis kaj Klemento forŝovis la ma-
+metis sur liajn ŝultrojn puran vualtukon. La mano de Klemento tremis: li disigis la tondilon kaj tuŝis la kolon de la kondamnito. La junulo dolore ekploretis kaj Klemento forŝovis la ma-
 
 non.
 
@@ -5172,9 +4149,7 @@ ekridetis je li.
 
 ”Ne?” konfideme diris la juna krimulo.
 
-”Nepre, neniel,” respondis bonkore Gasparo. Brunaj har-
-
-bukloj falis sur la tukon. ”Se la povrulo devas jam morti, al-
+”Nepre, neniel,” respondis bonkore Gasparo. Brunaj harbukloj falis sur la tukon. ”Se la povrulo devas jam morti, al-
 
 menaŭ mi faros ĉion por faciligi tion al la knabo,” meditis
 
@@ -5182,63 +4157,44 @@ Gasparo. Li sciis, ke la knabo estas kanajlo. Sed bone li konis la junecon de ma
 
 ”Ankaŭ patrinon mi ne konas,” kapneis Foulard.
 
-Gasparo demetis la tondilon. Aŭdeblis amuziĝo de la gar-
-
-distoj antaŭporde.
+Gasparo demetis la tondilon. Aŭdeblis amuziĝo de la gardistoj antaŭporde.
 
 ”Finite, patrono,” li diris. ”Ni povas iri.”
 
 La provoso ĵetis sur la ŝultrojn de la kondamnito kitelon.
 
-Isidoro Foulard ekpaŝis, sed ankoraŭ laste rerigardis sian ĉe-
+Isidoro Foulard ekpaŝis, sed ankoraŭ laste rerigardis sian ĉelon, la lastan hejmon. ”Jen,” Gasparo ekhavis ideon, ”neniam
 
-lon, la lastan hejmon. ”Jen,” Gasparo ekhavis ideon, ”neniam
+mi vidis tiel rerigardi aktoron en sia rolo, al morto kondamnitan.”
 
-mi vidis tiel rerigardi aktoron en sia rolo, al morto kondam-
-
-nitan.”
-
-Ili eliris kaj eksidis sur la ĉaro. Du helpantoj antaŭe, dor-
-
-se al ĉevalo Foulard, poste Klemento kun la tria helpanto. Ses
+Ili eliris kaj eksidis sur la ĉaro. Du helpantoj antaŭe, dorse al ĉevalo Foulard, poste Klemento kun la tria helpanto. Ses
 
 soldatoj surĉevale kaj frunte. La procesio ekmarŝis. Tiam
 
 **107**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-proksimiĝis jam tagmezo. Ilia foriro vekis pli da intereso. Ho-
-
-moj haltadis kaj miris pri la juneco de la kondamnito. Kelkaj
+proksimiĝis jam tagmezo. Ilia foriro vekis pli da intereso. Homoj haltadis kaj miris pri la juneco de la kondamnito. Kelkaj
 
 el ili aŭdis aŭ legis pri li kaj insulte alkriis lin. Ili veturis tra dense frekventitaj stratoj. Homoj sur trotuaroj kaj en kafejoj
 
-pliiĝis; oni apertadis fenestrojn. Klemento timis la rigardan-
-
-tojn, kiuj ĉiam unue trafis lian nigran staturon kaj nur poste
+pliiĝis; oni apertadis fenestrojn. Klemento timis la rigardantojn, kiuj ĉiam unue trafis lian nigran staturon kaj nur poste
 
 serĉis la kondamniton. De temp’ al tempo li ekvidis vizaĝon,
 
 kiu ŝajnis esti konata al li, kiu kvazaŭ ekbrilus pro surprizo kaj alvokis rapide aliajn vizaĝojn: Jen, tio estas Klemento Longval!”
 
-Li provis pensi pri aliaj aferoj. Sed areto da homoj, kiu ali-
+Li provis pensi pri aliaj aferoj. Sed areto da homoj, kiu aliĝis al ili kaj akompanis ilin, apenaŭ tion permesis al li. Hufobatoj, rulbrulado de lignaj radoj sur pavimo, muĝa konversa-
 
-ĝis al ili kaj akompanis ilin, apenaŭ tion permesis al li. Hufobatoj, rulbrulado de lignaj radoj sur pavimo, muĝa konversa-
-
-cio — ĉion ĉi li perceptis kiel en duondormo. Dankeme li apo-
-
-gis sin je la kubuto de Gasparo. La blanka suno senbrile dia-
+cio — ĉion ĉi li perceptis kiel en duondormo. Dankeme li apogis sin je la kubuto de Gasparo. La blanka suno senbrile dia-
 
 fanis tra nebuloj en la malvarma aero. La tegmentoj nigris kaj
 
 malsekis.
 
-Subite aperis antaŭ ili surplace sombra silueto de la eŝafo-
-
-do. La kondamnito instinkte returnis sin. Aro da homoj ama-
+Subite aperis antaŭ ili surplace sombra silueto de la eŝafodo. La kondamnito instinkte returnis sin. Aro da homoj ama-
 
 siĝis ĉirkaŭ la eŝafodo, kiu atendis ĉi tie ekde hieraŭ. La ĉaro haltis.
 
@@ -5246,21 +4202,16 @@ Klemento kun Gasparo descendis. La helpantoj helpis al la
 
 kondamnito malsupren. Li tremis. Sed nerimarkebla rideto de
 
-Gasparo lin kuraĝigis. Foulard kapjesis kaj respondis per ti-
-
-migitaj okuloj. Gasparo prenis lin je la kubuto, kaj rigard-
+Gasparo lin kuraĝigis. Foulard kapjesis kaj respondis per timigitaj okuloj. Gasparo prenis lin je la kubuto, kaj rigard-
 
 pasante la homamason sub la eŝafodo, diris al li senvorte:
 
 ”Kuraĝe ek! Ne timu! Vi ne montros vin al ili ploranta!”
 
-Foulard legis klare el la grimacoj de Deburau. Li levis la ka-
-
-pon kaj firme, nur iom spasmopaŝe ascendis la ŝtupetojn. Tie
+Foulard legis klare el la grimacoj de Deburau. Li levis la kapon kaj firme, nur iom spasmopaŝe ascendis la ŝtupetojn. Tie
 
 lin prenis la helpantoj. Ili igis lin ekgenui, katenis liajn ma-108
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5278,9 +4229,7 @@ Poste la unua helpanto signalis kaj Klemento, kun okuloj
 
 fermitaj, ektiris la ŝnuron. Eksonis metala klako, similanta
 
-pafon. Elinter la homamaso, kiu por momento eksilentis, ek-
-
-sonis laŭda murmurado.
+pafon. Elinter la homamaso, kiu por momento eksilentis, eksonis laŭda murmurado.
 
 Klemento descendis la ŝtupetojn. Gasparo lin atingis kaj
 
@@ -5290,9 +4239,7 @@ ekparolis: ”Vi faris du bonfarojn, Gasparo. Al mi kaj al li. La ĉielo rekompe
 
 ”La ĉielo? Pri la homaj aferoj ĝi malmulte zorgas.”
 
-Pretervole li rigardis supren. Sur balkono de la domo, pre-
-
-ter kiu ili veturis, staris Eŭgeno Hugo kaj apud li areto da elegante vestitaj viroj.
+Pretervole li rigardis supren. Sur balkono de la domo, preter kiu ili veturis, staris Eŭgeno Hugo kaj apud li areto da elegante vestitaj viroj.
 
 ”Bravo, Sanson, bravo!” akresonis voĉo de Eŭgeno.
 
@@ -5306,53 +4253,37 @@ La ĉaro haltis apud la pordego de la tombejo de Sankta
 
 Magdalena.
 
-”Se vi volus, patrono, ni prizorgos tion jam mem,” kom-
+”Se vi volus, patrono, ni prizorgos tion jam mem,” kompreneme diris unu el la helpantoj.
 
-preneme diris unu el la helpantoj.
-
-Klemento elpoŝigis la manon kaj metis ĝin sur la elstreĉi-
-
-tajn manplatojn. La ĉaro enveturis en la pordegon kaj Kle-
+Klemento elpoŝigis la manon kaj metis ĝin sur la elstreĉitajn manplatojn. La ĉaro enveturis en la pordegon kaj Kle-
 
 **109**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-mento kun Gasparo turnis sin por foriri. Tiumomente elku-
-
-ris el la pordego junulo, rapide pririgardis ambaŭ virojn kaj
+mento kun Gasparo turnis sin por foriri. Tiumomente elkuris el la pordego junulo, rapide pririgardis ambaŭ virojn kaj
 
 poste aliris al ili. ”ĉu vi permesos?” li diris kaj almetis sian manplaton al la maniko de Klemento.
 
 ”ĉu vi freneziĝis?” forturnis sin Klemento.
 
-”Por feliĉo,” ekridis la junulo kaj malfermis la polmon. Es-
-
-tis en ĝi kuboj. ”Dankon,” li diris kaj forkuris.
+”Por feliĉo,” ekridis la junulo kaj malfermis la polmon. Estis en ĝi kuboj. ”Dankon,” li diris kaj forkuris.
 
 ”Vi devas pacienci,” diris Gasparo. ”ĉion viŝos la tempo.”
 
-Ili faris nur kelkajn paŝojn. ”Adiaŭ, Gasparo,” haltis Kle-
-
-mento. ”Estos pli bone, se mi restos sola.”
+Ili faris nur kelkajn paŝojn. ”Adiaŭ, Gasparo,” haltis Klemento. ”Estos pli bone, se mi restos sola.”
 
 ”Kiel vi deziras.”
 
-”Mi havas nenion por rekompenci vin. Eble nur, se vi vo-
-
-lus… por feliĉo” kaj proponis al li la manikon, ne kuraĝinte
+”Mi havas nenion por rekompenci vin. Eble nur, se vi volus… por feliĉo” kaj proponis al li la manikon, ne kuraĝinte
 
 doni al li la manplaton. Gasparo manpremis kiel antaŭe. Ili
 
-disiris. Parizo ilin akceptis en sian senfinan ignoreman formi-
-
-kejon.
+disiris. Parizo ilin akceptis en sian senfinan ignoreman formikejon.
 
 **110**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5360,41 +4291,25 @@ Margot
 
 Miniteatro Funambules balanciĝis kvazaŭ sur ondoj;
 
-kiam ĝin la ministro duonsufokis, la publiko estis disi-
+kiam ĝin la ministro duonsufokis, la publiko estis disiĝanta por pli bona spektaklo; kiam la repertuaro vigliĝis, an-
 
-ĝanta por pli bona spektaklo; kiam la repertuaro vigliĝis, an-
-
-kaŭ la kaso riĉiĝis. Enkonduko de miniteatraĵoj signifis vari-
-
-igon de la programo, grandan alfluon da spektantoj. La direk-
+kaŭ la kaso riĉiĝis. Enkonduko de miniteatraĵoj signifis variigon de la programo, grandan alfluon da spektantoj. La direk-
 
 toroj el Funambules engaĝis la komediantajn familiojn de
 
-Blondin kaj Loyal. Elektante teatraĵojn, ili havis feliĉan ma-
+Blondin kaj Loyal. Elektante teatraĵojn, ili havis feliĉan manon. Iliaj artistoj kapablis alproksimiĝi al sia publiko. Dume
 
-non. Iliaj artistoj kapablis alproksimiĝi al sia publiko. Dume
+en Funambules la direktoroj igis renovigi ekipon en la salonego kaj eĉ permesis al si freŝe farbigi la fasadon — ĉiam nok-
 
-en Funambules la direktoroj igis renovigi ekipon en la salo-
+te, por ke la prezentadoj ne estu interrompataj — ĉe sinjorino Saqui la salono malplenis, kaj la aktoroj konkuris kun la
 
-nego kaj eĉ permesis al si freŝe farbigi la fasadon — ĉiam nok-
+publiko, pro malkontento. Malgraŭ tio kaj ĝuste pro tio okazis alproksimiĝo de la du entreprenoj. Antaŭis tion la geedzi-
 
-te, por ke la prezentadoj ne estu interrompataj — ĉe sinjori-
-
-no Saqui la salono malplenis, kaj la aktoroj konkuris kun la
-
-publiko, pro malkontento. Malgraŭ tio kaj ĝuste pro tio oka-
-
-zis alproksimiĝo de la du entreprenoj. Antaŭis tion la geedzi-
-
-ĝo de Felikso Charigni al la nevino de sinjorino Saqui. Ber-
-
-trandon oni invitis kiel atestanton. Nelonge post tio, vizitis
+ĝo de Felikso Charigni al la nevino de sinjorino Saqui. Bertrandon oni invitis kiel atestanton. Nelonge post tio, vizitis
 
 Bertrandon sinjoro Saqui.
 
-”Kio okazas?” miris Bertrand kaj rerigardis sian kompani-
-
-ulon. ”Vi venas en nian teatron? Al mi?”
+”Kio okazas?” miris Bertrand kaj rerigardis sian kompaniulon. ”Vi venas en nian teatron? Al mi?”
 
 Sinjoro Saqui, nekuraĝa edzo de la glora virino, humile
 
@@ -5406,19 +4321,14 @@ mienis kaj liaj kurbigitaj ŝultroj kvazaŭ ne kapablus porti la
 
 **111**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Antaŭ kelkaj jaroj mi ofendis vin. Ege mi ŝatus, se vi pardo-
-
-nus tion al mi.”
+”Antaŭ kelkaj jaroj mi ofendis vin. Ege mi ŝatus, se vi pardonus tion al mi.”
 
 ”Mi havas bonan memoron,” respondis Bertrand kaj en liaj
 
-rigardoj al Fabien ekflagris venko. ”Venis momento de repa-
-
-go. Via edzino ofendis min kaj nome tiel, ke tion ne eblas
+rigardoj al Fabien ekflagris venko. ”Venis momento de repago. Via edzino ofendis min kaj nome tiel, ke tion ne eblas
 
 forgesi.”
 
@@ -5438,9 +4348,7 @@ bone komprenas, via edzino volas, ke iel mi helpu al ŝi.”
 
 ”Jes,” ĝoje koncedis la edzeto. ”Via teatro nocas al ni.”
 
-”Haltu,” intervenis malafable Fabien. ”Vi volis konkuren-
-
-con, do vi havas ĝin. Sed niajn kasojn ĝi plenigas.”
+”Haltu,” intervenis malafable Fabien. ”Vi volis konkurencon, do vi havas ĝin. Sed niajn kasojn ĝi plenigas.”
 
 ”Mi venis,” ekbalbutis Saqui. ”Mi venis por proponi al vi
 
@@ -5452,19 +4360,12 @@ Bertrand estis kortuŝita.
 
 ”Fabien, tiu damo estas vere artistino. Se nia programo
 
-apartenas al literatura arto, ni devas esti grandanimaj. Ni sa-
+apartenas al literatura arto, ni devas esti grandanimaj. Ni savos vin.”
 
-vos vin.”
+Jam plurajn tagojn pendis surporde de la teatro Funambules presita afiŝo kun la nomoj de la aktoroj, aktorinoj kaj mu-
 
-Jam plurajn tagojn pendis surporde de la teatro Funambu-
+zikistoj, aktivantaj en la entrepreno. Gasparo, kiun la publiko konstante nomis ”Baptisto”, estis ĉi tie unuafoje citita sub **112**
 
-les presita afiŝo kun la nomoj de la aktoroj, aktorinoj kaj mu-
-
-zikistoj, aktivantaj en la entrepreno. Gasparo, kiun la publi-
-
-ko konstante nomis ”Baptisto”, estis ĉi tie unuafoje citita sub **112**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5472,17 +4373,11 @@ la nomo — erare presita — Desbureau, sed nur tial, por ke
 
 Bertrand diferencigu lin de alia Baptisto en alia teatro.
 
-Semajnon post vizito de sinjoro Saqui, kiam estis kontrak-
+Semajnon post vizito de sinjoro Saqui, kiam estis kontraktitaj detaloj kaj engaĝitaj novaj komediantoj, aperis tia afiŝ-
 
-titaj detaloj kaj engaĝitaj novaj komediantoj, aperis tia afiŝ-
+tabuleto ankaŭ sur la pordo de la ”Teatro de Akrobatoj”. Bertrand kaj Fabien figuris tie kiel kompaniuloj kaj asociitaj direktoroj; la ensemblo estis riĉigita je la fratoj Laurent, junaj angloj, danckolektivo kaj bonaj akrobatoj, inter kiujn revenis ge-
 
-tabuleto ankaŭ sur la pordo de la ”Teatro de Akrobatoj”. Bert-
-
-rand kaj Fabien figuris tie kiel kompaniuloj kaj asociitaj direktoroj; la ensemblo estis riĉigita je la fratoj Laurent, junaj angloj, danckolektivo kaj bonaj akrobatoj, inter kiujn revenis ge-
-
-fratoj Charigni. Bertrand kaj Fabien per tio malkaŝis siajn in-
-
-tencojn; ili pretis utili al la najbara teatro helpe de siaj apertoj, sed destinis ĝian aktivadon ekskluzive akrobata, dum por
+fratoj Charigni. Bertrand kaj Fabien per tio malkaŝis siajn intencojn; ili pretis utili al la najbara teatro helpe de siaj apertoj, sed destinis ĝian aktivadon ekskluzive akrobata, dum por
 
 si mem ili volis rezervi preferojn de pantomimo.
 
@@ -5492,59 +4387,38 @@ ke la anino de la nova teatro fariĝis ankaŭ lia fratino, la ”Superba hungari
 
 Dorotea venis en cirkon Olimpia. Stefano aliĝis al cirko, kiu
 
-celis Belgion. La reveno de la patro kaj lia longdaŭra pulmo-
+celis Belgion. La reveno de la patro kaj lia longdaŭra pulmomalsano denove revivigis la patrinon. ŝi zorgis pri li, reme-
 
-malsano denove revivigis la patrinon. ŝi zorgis pri li, reme-
-
-moroj pri la feliĉa amo el la junaĝo ŝin repacigis kun la ma-
-
-lamikeco de la mondo. Malgraŭ la fakto, ke la familio splitiĝis, ŝajnis, ke kun ĝiaj anoj pluiros prospero: la harda dresado
+moroj pri la feliĉa amo el la junaĝo ŝin repacigis kun la malamikeco de la mondo. Malgraŭ la fakto, ke la familio splitiĝis, ŝajnis, ke kun ĝiaj anoj pluiros prospero: la harda dresado
 
 fare de la patro estis maturiĝanta.
 
-Nur Gasparo restis surloke. La akcidento de Frederiko sig-
-
-nifis ankaŭ por li plifortiĝon kaj volon iri trans obstaklojn.
+Nur Gasparo restis surloke. La akcidento de Frederiko signifis ankaŭ por li plifortiĝon kaj volon iri trans obstaklojn.
 
 Sed lia obstaklo estis netransirebla; ĝi estis Felikso en la rolo de Arlekeno, kiu rikoltis senrezerve la inklinon de la publiko
 
-en Funambules. Deburau estimis Felikson kaj malamis Arle-
+en Funambules. Deburau estimis Felikson kaj malamis Arlekenon. Kaj la dua malhelpo, same daŭra, estis la intenco de
 
-kenon. Kaj la dua malhelpo, same daŭra, estis la intenco de
-
-la reĝaj oficoj, ne permesi al miniteatroj en periferio la pro-
-
-speradon. La polico konstatis neanoncitan kaj oficiale neper-
+la reĝaj oficoj, ne permesi al miniteatroj en periferio la prosperadon. La polico konstatis neanoncitan kaj oficiale neper-
 
 **113**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-mesitan fuzion de la du teatroj kaj provizore fermis la Teat-
+mesitan fuzion de la du teatroj kaj provizore fermis la Teatron de la Akrobatoj. La situacio de aliaj entreprenoj ne estis
 
-ron de la Akrobatoj. La situacio de aliaj entreprenoj ne estis
+pli bona. Apenaŭ ili fortiĝis, jam denove venis nova malpermeso, ke ankaŭ en pantomimo ne darfas prezenti sin sur la
 
-pli bona. Apenaŭ ili fortiĝis, jam denove venis nova malper-
-
-meso, ke ankaŭ en pantomimo ne darfas prezenti sin sur la
-
-scenejo pli da aktoroj ol nur du aŭ tri. La teatroj kontraŭba-
-
-talis unu la alian kaj la publiko helpadis al ili. Ili toleris, ke la sama aktoro prezentu sin en rapidaj metamorfozoj de akuzito, plendanto kaj akuzanto. Ili pretis kredi, ke iu sekrete es-
+scenejo pli da aktoroj ol nur du aŭ tri. La teatroj kontraŭbatalis unu la alian kaj la publiko helpadis al ili. Ili toleris, ke la sama aktoro prezentu sin en rapidaj metamorfozoj de akuzito, plendanto kaj akuzanto. Ili pretis kredi, ke iu sekrete es-
 
 tas kaŝita enŝranke, sub lito kaj post la tablo, por ke estiĝu ilu-zio, ke sur la scenejo estas pli da personoj.
 
-Sed Funambules revenis al sieĝataj kasteloj kaj al saltopan-
-
-tomimoj. En pantomimoj devis ludi Felikso, Filibert, Flora,
+Sed Funambules revenis al sieĝataj kasteloj kaj al saltopantomimoj. En pantomimoj devis ludi Felikso, Filibert, Flora,
 
 Marion. Vanis la revo de Gasparo pri Pieroto.
 
-La viro ne montradis pli favoran vizaĝon ol la scenejo. Gas-
-
-paro ne kapablis forturni sin antaŭ la malfeliĉo de aliaj; en la mondo, kie ŝanĝiĝis konv pli facile ol kokardoj, ili ellernis estimi fidelecon. Denove li provis elserĉi Klementon San-
+La viro ne montradis pli favoran vizaĝon ol la scenejo. Gasparo ne kapablis forturni sin antaŭ la malfeliĉo de aliaj; en la mondo, kie ŝanĝiĝis konv pli facile ol kokardoj, ili ellernis estimi fidelecon. Denove li provis elserĉi Klementon San-
 
 son. Sed neniam li trafis ilin hejme kaj kiam li demandis, la
 
@@ -5552,9 +4426,7 @@ najbaroj diris, ke la sinjoro vizitadas bakaratejojn, ludas je
 
 grandaj sumoj kaj revenadas hejmen antaŭ mateniĝo.
 
-La malsana Eŭgeno Hugo transloĝiĝis al sia frato en stra-
-
-ton du Dragon. Gasparo venkis sian indignon kaj ekiris tien.
+La malsana Eŭgeno Hugo transloĝiĝis al sia frato en straton du Dragon. Gasparo venkis sian indignon kaj ekiris tien.
 
 Li ascendis la ŝtuparon plena de timo, en la domo numero
 
@@ -5564,21 +4436,16 @@ Viktoro Hugo estis bela, juna viro, iom magreta, sed de
 
 aŭdaca kaj fajretanta rigardo, buklohara.
 
-”Mi estas al vi tre dankema, ke vi venis. Eŭgeno vin mult-
-
-foje menciis.”
+”Mi estas al vi tre dankema, ke vi venis. Eŭgeno vin multfoje menciis.”
 
 ”Kiel li fartas?”
 
 **114**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Li havas fortajn febrojn. La kuracisto diras, ke tio estas se-
-
-rioza psika malsano.”
+”Li havas fortajn febrojn. La kuracisto diras, ke tio estas serioza psika malsano.”
 
 Gasparo ĉirkaŭrigardis. Surprizis lin, kiel la loĝejo estas
 
@@ -5590,9 +4457,7 @@ li la duan ĉambron. Kelke da raraj objektoj atestis pli bonan
 
 pasintecon; sed la planko estis tie pavimita kaj blovetis el ĝi.
 
-La lignan liton ombrumis ŝtofo ĵetita trans fenestron. Eŭge-
-
-no sidis en fotelo, el kies florornamita tegaĵo elstaris la malnovaj krinoj, senpove retroklinita al apogilo.
+La lignan liton ombrumis ŝtofo ĵetita trans fenestron. Eŭgeno sidis en fotelo, el kies florornamita tegaĵo elstaris la malnovaj krinoj, senpove retroklinita al apogilo.
 
 Gasparo rapide alkutimiĝis al duonkrepusko reganta tie kaj
 
@@ -5606,9 +4471,7 @@ Gasparo provis kisi ŝian manon.
 
 ”Gasparo,” ekvokis la paciento en la fotelo.
 
-”Kuŝu, Eŭgeno, ne levu vin!” trankviligis lin Adela kaj en-
-
-premis lin je ŝultroj ree en la fotelon. La vizaĝo de Eŭgeno
+”Kuŝu, Eŭgeno, ne levu vin!” trankviligis lin Adela kaj enpremis lin je ŝultroj ree en la fotelon. La vizaĝo de Eŭgeno
 
 alpremis sin al la blanka mano, ordiganta al li la kapkusenon.
 
@@ -5634,7 +4497,6 @@ restis solaj.
 
 **115**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5644,9 +4506,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 Li altiris Gasparon pli proksimen kaj flustris: ”Mi konas
 
-jam la tutan diablan familion. Tio estas scienco. Nenia fanta-
-
-ziaĵo. Eŭrinom, mort-princo, enkorpiĝis en mian fraton.”
+jam la tutan diablan familion. Tio estas scienco. Nenia fantaziaĵo. Eŭrinom, mort-princo, enkorpiĝis en mian fraton.”
 
 ”Sed kiu diras al vi tiajn aferojn?”
 
@@ -5658,19 +4518,13 @@ unu el ili? Mankas al mi ĝis nun Leonardo, reĝo de Sabato, kaj
 
 Pajno, reĝo de purtagorio …”
 
-”Eŭgeno,” Gasparo metis sian manon sur lian taŭzitan ha-
-
-raron, ”ĉu vi rememoras, kiel belis, kiam ni kune sidadis en
+”Eŭgeno,” Gasparo metis sian manon sur lian taŭzitan hararon, ”ĉu vi rememoras, kiel belis, kiam ni kune sidadis en
 
 gastejoj apud la ŝoseo kondukanta al Orleano? Vespere mi
 
-akompanis vin — kaj vi recitis al mi ĉe lanternoj viajn ver-
+akompanis vin — kaj vi recitis al mi ĉe lanternoj viajn versojn…”
 
-sojn…”
-
-Li rigardis en liajn frenezajn okulojn. Lumetoj en ili apera-
-
-dis kaj denove malaperadis. ĉu kaŝas sin post ili ankoraŭ la
+Li rigardis en liajn frenezajn okulojn. Lumetoj en ili aperadis kaj denove malaperadis. ĉu kaŝas sin post ili ankoraŭ la
 
 racio?
 
@@ -5688,9 +4542,7 @@ penon kaj la buŝon tordis dolora grimaco.
 
 ”La frato zorgas pri vi.”
 
-”Tiu nocas pleje al mi. Li verkas fuŝajn versojn kaj sukce-
-
-sas. Li zorgas nur, ke neniu akceptu ion de mi, por publikigo.”
+”Tiu nocas pleje al mi. Li verkas fuŝajn versojn kaj sukcesas. Li zorgas nur, ke neniu akceptu ion de mi, por publikigo.”
 
 ”ĉu mi parolu kun li?”
 
@@ -5698,7 +4550,6 @@ sas. Li zorgas nur, ke neniu akceptu ion de mi, por publikigo.”
 
 **116**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5736,9 +4587,7 @@ vestiblo Viktoro ankoraŭ haltis kun Gasparo.
 
 kiel lin ekregis embarasoj. ”Sed vi vidis … Ni ne vivas nun plej bone.”
 
-”Domaĝe, ke mi ne povas helpi al vi,” diris simple Gaspa-
-
-ro.
+”Domaĝe, ke mi ne povas helpi al vi,” diris simple Gasparo.
 
 ”Ne tiel mi opiniis tion,” ekindignis Viktoro kaj riverencis.
 
@@ -5748,9 +4597,7 @@ Tiuvespere, kiam en la Lirika Teatro unuafoje oni lumis per
 
 gaso, la komediantoj el Funambules rapidis por baldaŭ esti
 
-pretaj: ĉiujn aktorojn tio interesis. ”ĉu gaso? En Londono ek-
-
-uzis tion Drury Lane kaj ĝi pruviĝis. Sciu, kion ĝi signifus por la teatro?” Sed ne raris ankaŭ skeptikaj voĉoj: se iu teatro
+pretaj: ĉiujn aktorojn tio interesis. ”ĉu gaso? En Londono ekuzis tion Drury Lane kaj ĝi pruviĝis. Sciu, kion ĝi signifus por la teatro?” Sed ne raris ankaŭ skeptikaj voĉoj: se iu teatro
 
 forbrulos, ŝate ni revenos al oleo, vi vidos!
 
@@ -5758,7 +4605,6 @@ Malgraŭ tio ili mallongigadis la lastajn prezentadojn, por
 
 **117**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5766,9 +4612,7 @@ vidi tiun miraklon. Deburau kuris kun ili, duoble fiera, ĉar la novan inventon 
 
 envenis, por ekvidi la solenan iluminadon. Jes, ĝi estis bela,
 
-blanka lumo. La homa vizaĝo ricevis de ĝi nenormalan pale-
-
-con, sed ĝi kreis ĉirkaŭ la rigardejo rozarion de lumantaj lar-
+blanka lumo. La homa vizaĝo ricevis de ĝi nenormalan palecon, sed ĝi kreis ĉirkaŭ la rigardejo rozarion de lumantaj lar-
 
 moj, kies radiadon oni povis ete malintensigi kaj denove plenintensigi. Pri tio oni debatis pli ol pri la prezentado.
 
@@ -5778,9 +4622,7 @@ Li rerigardis kaj ekvidis Klementon Sanson en nova, brila
 
 frako, kun blankega brustumo, senbrilan perlon enkravate.
 
-Magreta vizaĝo havis grizajn ombrojn subokule, sed la oku-
-
-loj fajreris. Laciĝo ligita kun avido.
+Magreta vizaĝo havis grizajn ombrojn subokule, sed la okuloj fajreris. Laciĝo ligita kun avido.
 
 ”Klemento,” elspiris Gasparo. ”Kie vi estis tiel longe?”
 
@@ -5790,9 +4632,7 @@ Gasparon eksteren. ”Mi devus pardonpeti, ĉu?”
 
 Gasparo tion rifuzis.
 
-”Mi scias, vi estas modesta amiko,” parolis Klemento seri-
-
-oze, sed kun nova leĝereco envoĉe, tiel kiel parolas la iom
+”Mi scias, vi estas modesta amiko,” parolis Klemento serioze, sed kun nova leĝereco envoĉe, tiel kiel parolas la iom
 
 ebrietaj: ”Vi venas, kiam necesas, kaj ne anonciĝas, kiam oni
 
@@ -5806,9 +4646,7 @@ ebloj. Tial mi preferis eviti vin.”
 
 Gasparo kapjesis kaj atestis la komprenon. Li volis adiaŭi,
 
-sed Klemento haltigis lin. ”Atendu, mi akceptas vian granda-
-
-nimecon, sed se ni hazarde renkontiĝis, ne foriru. Restu ho-
+sed Klemento haltigis lin. ”Atendu, mi akceptas vian grandanimecon, sed se ni hazarde renkontiĝis, ne foriru. Restu ho-
 
 diaŭ nokte kun mi.”
 
@@ -5816,7 +4654,6 @@ diaŭ nokte kun mi.”
 
 **118**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5840,21 +4677,15 @@ La fiakro haltis antaŭ alta domo kun belaspekta fasado kaj
 
 kun granda, verde ombrita lanterno.
 
-”Venu, amiko,” diris Klemento. ”Kredu, mi ĝojas, ke vi es-
-
-tas kun mi. Tial amuzu vin, kvazaŭ neniam falus inter nin
+”Venu, amiko,” diris Klemento. ”Kredu, mi ĝojas, ke vi estas kun mi. Tial amuzu vin, kvazaŭ neniam falus inter nin
 
 ombro de mia malĝentileco. Vi ĝojigos min.”
 
 Ili eniris tra malluma koridoro kaj troviĝis en salonego kiu
 
-plenis de lumoj, speguloj kaj leĝera bruo. En kandelingoj sur-
+plenis de lumoj, speguloj kaj leĝera bruo. En kandelingoj surmure flagris longaj kandeloj. La muroj estis tegitaj per verda
 
-mure flagris longaj kandeloj. La muroj estis tegitaj per verda
-
-atlaso. Sed la fenestroj estis garnitaj per fortaj tabuloj kaj ankoraŭ ekipitaj per seruroj. Meze de pordo pendis pezaj dra-
-
-piraĵoj.
+atlaso. Sed la fenestroj estis garnitaj per fortaj tabuloj kaj ankoraŭ ekipitaj per seruroj. Meze de pordo pendis pezaj drapiraĵoj.
 
 Kaj la homoj? La viroj estis vestitaj simile kiel Klemento. La
 
@@ -5862,21 +4693,16 @@ roboj de la virinoj pompis, iliaj lipoj karmloraj, la brovoj pentritaj per karbo
 
 inoj iomete ekmovis sin, ĉirkaŭ ŝi disvastiĝis nubo da ambra
 
-bonodoro kaj pudro. Ili sidis en foteloj, la krurojn alte krucitajn, kun la kapo retroen, aliaj ridis en grupetoj, kelkaj pre-
-
-miĝis apud granda tablo meze de la salono, kie oni kartludis.
+bonodoro kaj pudro. Ili sidis en foteloj, la krurojn alte krucitajn, kun la kapo retroen, aliaj ridis en grupetoj, kelkaj premiĝis apud granda tablo meze de la salono, kie oni kartludis.
 
 Antaŭ la kartludantoj kuŝis multe da mono. Ankaŭ la plej eta
 
-sumo, kiun Gasparo ekvidis, reprezentis lian tutjaran salaj-
-
-ron.
+sumo, kiun Gasparo ekvidis, reprezentis lian tutjaran salajron.
 
 Klemento rerigardis al Gasparo, kion li diras pri la nova,
 
 **119**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -5888,9 +4714,7 @@ liajn vortojn. Apenaŭ ili faris kelkajn paŝojn, ventsimile alkuris aro da juna
 
 estas mia fidela amiko!”
 
-Gasparo plej ŝatus malaperi. Li fiksis sian rigardon al viza-
-
-ĝo de juneta knabino, kies okuloj estis pli modestaj ol tiuj de la aliaj kaj kiun li ne tiom timis. ŝi konstatis tion kaj prenis lin je la kubuto. Ankaŭ ŝia buŝo estis karmina kaj la brakoj pudritaj. ”Margot, zorgu pri li,” ridis Klemento. ”Forpelu lian triston.”
+Gasparo plej ŝatus malaperi. Li fiksis sian rigardon al vizaĝo de juneta knabino, kies okuloj estis pli modestaj ol tiuj de la aliaj kaj kiun li ne tiom timis. ŝi konstatis tion kaj prenis lin je la kubuto. Ankaŭ ŝia buŝo estis karmina kaj la brakoj pudritaj. ”Margot, zorgu pri li,” ridis Klemento. ”Forpelu lian triston.”
 
 Margot estis bela, la vestaĵo leĝere gluiĝis al ŝia staturo,
 
@@ -5910,9 +4734,7 @@ Li ridis, respondis ŝerceme rimarkigojn de viroj kaj premis
 
 al si du belajn virinojn. Li volas superbrui sin, venis la ideo al Gasparo, kiam li aŭskultis lian plialtigitan voĉon.
 
-”ĉu vi konas longe sinjoron Klementon?” demandis Mar-
-
-got.
+”ĉu vi konas longe sinjoron Klementon?” demandis Margot.
 
 ”Jam delonge,” ridetis Gasparo, vidante Klementon, kiel li
 
@@ -5926,13 +4748,10 @@ Sed la rigardoj de Klemento postulis de la ĉeriza Margot,
 
 **120**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ke ŝi ne permesu al lia amiko deflankiĝi el la vojo de komu-
-
-na gajeco.
+ke ŝi ne permesu al lia amiko deflankiĝi el la vojo de komuna gajeco.
 
 ”Je via sano,” li vokis kaj etendis la brakon transtablen al
 
@@ -5942,9 +4761,7 @@ Gasparo. ”Je la sano de ĉiuj belulinoj!”
 
 la knabino apud si. Lian vizaĝon tuŝis io tenera kaj humida.
 
-Margot lin kisis. ”Kaj nun ludi!” ordonis Klemento post rapi-
-
-da vespermanĝo. ĉiuj kuris al la tablo meze de la ĉambro;
+Margot lin kisis. ”Kaj nun ludi!” ordonis Klemento post rapida vespermanĝo. ĉiuj kuris al la tablo meze de la ĉambro;
 
 nun tie sur buntkoloraj kampetoj saltetis ruletglobetoj. Je fino de la tablo vakiĝis lokoj post la kartludintoj. Klemento tie
 
@@ -5954,9 +4771,7 @@ eksidis kaj kontraŭ li kelkaj konatoj, ankaŭ virinoj inter ili.
 
 ”Mi ne scias.”
 
-”Do, amuzu vin.” Li ekpalpis faskon da bankbiletoj kaj kel-
-
-kajn li altrudis al Gasparo. Tiu ilin atenteme enpoŝigis, pre-
+”Do, amuzu vin.” Li ekpalpis faskon da bankbiletoj kaj kelkajn li altrudis al Gasparo. Tiu ilin atenteme enpoŝigis, pre-
 
 skaŭ timante ilin ekrigardi. La ludo dume komenciĝis.
 
@@ -5970,9 +4785,7 @@ la manon de Gasparo.
 
 ŝi kondukis lin denove al la tablo, kie ili vespermanĝis. De
 
-iu loko aŭdiĝis mallaŭte tintsonado de gitaroj kaj mola kan-
-
-to. ”Trinku, amiko,” petis Margot. ”Je kies sano?”
+iu loko aŭdiĝis mallaŭte tintsonado de gitaroj kaj mola kanto. ”Trinku, amiko,” petis Margot. ”Je kies sano?”
 
 ”Je sano de ĉiuj belulinoj!” ripetis Gasparo kaj tio sonis
 
@@ -5982,15 +4795,12 @@ kvazaŭ vere li ilin rememorus.
 
 Li brakumis ŝin kaj firme premis ŝiajn brakojn.
 
-Neniam en sia vivo li brakumis tiel ĉarman knabinon. So-
-
-piro ekardis en li kaj li esprimis deziron, kiu lin trapenetris.
+Neniam en sia vivo li brakumis tiel ĉarman knabinon. Sopiro ekardis en li kaj li esprimis deziron, kiu lin trapenetris.
 
 ”Mi volus edziĝi al vi.”
 
 **121**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6016,19 +4826,13 @@ Li ĉirkaŭrigardis kiel ensonĝe. Ankoraŭ neniam li iris tiel
 
 kun virino. Li tremetis pro avida pasio kaj samtempe timis.
 
-La ĉambro similis al miniatura ornamita groto kun oleo-
+La ĉambro similis al miniatura ornamita groto kun oleomeco super la lito. La muroj estis tegitaj per marmoreska pa-
 
-meco super la lito. La muroj estis tegitaj per marmoreska pa-
-
-pero kaj de ĉie blovetis bonodoro. Sur la tableto du malple-
-
-naj kandelingoj, seĝoj kun trivitaj apogiloj, kolora tapiŝo. Super la lito pendis ŝvebe kurteno.
+pero kaj de ĉie blovetis bonodoro. Sur la tableto du malplenaj kandelingoj, seĝoj kun trivitaj apogiloj, kolora tapiŝo. Super la lito pendis ŝvebe kurteno.
 
 Antaŭ ol Gasparo rekonsciiĝis, Margot eniris post lin. ŝi
 
-alivestis sin en robon, kiun Gasparo ne scius difini; ŝi aspek-
-
-tis en ĝi ankoraŭ pli alloge. ŝi aliris lin, brakumis lin, alpre-miĝis al li ekde la genuoj ĝis la mamoj.
+alivestis sin en robon, kiun Gasparo ne scius difini; ŝi aspektis en ĝi ankoraŭ pli alloge. ŝi aliris lin, brakumis lin, alpre-miĝis al li ekde la genuoj ĝis la mamoj.
 
 ”ĉu vere vi deziras min?”
 
@@ -6042,7 +4846,6 @@ silenta kaj dolĉa, kaj samtempe timo kaj tristo. ŝi eksidis sur liton kaj renv
 
 **122**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6054,15 +4857,11 @@ brakon, li ekgenuis kaj kisis ĝin.
 
 ”Ankaŭ mi ne kutimiĝis al tio,” ekflustris Gasparo.
 
-”Ne timu,” ŝi ekridetis triste kaj tenere. ”Mi ne povus bra-
-
-kumi vin, se vi ne plaĉus al mi, se mi ne amus vin almenaŭ
+”Ne timu,” ŝi ekridetis triste kaj tenere. ”Mi ne povus brakumi vin, se vi ne plaĉus al mi, se mi ne amus vin almenaŭ
 
 hodiaŭ vespere.”
 
-”Vi opinias min ami ankaŭ por morgaŭ?” ŝia voĉo tem-
-
-briĝis de intenca maldelikateco.
+”Vi opinias min ami ankaŭ por morgaŭ?” ŝia voĉo tembriĝis de intenca maldelikateco.
 
 Lian animon inundis amaro. ”Hodiaŭ min, morgaŭ iun
 
@@ -6074,9 +4873,7 @@ alian?”
 
 vivtenu min?”
 
-Gasparo vidis ŝin rektiĝanta surlite, denove eskapanta. Sur-
-
-haŭte rebrilis flaveta brileto de olea lampeto.
+Gasparo vidis ŝin rektiĝanta surlite, denove eskapanta. Surhaŭte rebrilis flaveta brileto de olea lampeto.
 
 ”Leviĝu kaj iru!” ŝi diris honteme kaj ne mankis multe por
 
@@ -6084,9 +4881,7 @@ ekploro.
 
 Eterna ludo de l’ interno: proksima al realiĝo de la sopiro
 
-— vi komencas vin turmenti kaj rezignacii: apenaŭ nur ĝi es-
-
-kapas de vi, denove vi avidas ĝin.
+— vi komencas vin turmenti kaj rezignacii: apenaŭ nur ĝi eskapas de vi, denove vi avidas ĝin.
 
 ”Foriru!” ŝi ripetis.
 
@@ -6104,7 +4899,6 @@ Li kisis dankeme ŝiajn manojn kaj harojn.
 
 **123**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6114,39 +4908,27 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ankaŭ ŝi lin kisis.
 
-Kiam ili leviĝis, ĝenis lin doni al ŝi monon. Sed ŝi mem de-
-
-mandis lin simplamaniere: ”ĉu vi povas doni ion al mi?” Kaj
+Kiam ili leviĝis, ĝenis lin doni al ŝi monon. Sed ŝi mem demandis lin simplamaniere: ”ĉu vi povas doni ion al mi?” Kaj
 
 ŝi alpremiĝis al li, sed ne jam pasie, pli vere amike.
 
-Li enpoŝigis la manon. Li havis tie tri bankbiletojn de Kle-
-
-mento. ”Mi donus al vi ĉion,” li diris, donante al ŝi unu el la bankbiletoj. ”Sed la restantajn nepre mi bezonas.”
+Li enpoŝigis la manon. Li havis tie tri bankbiletojn de Klemento. ”Mi donus al vi ĉion,” li diris, donante al ŝi unu el la bankbiletoj. ”Sed la restantajn nepre mi bezonas.”
 
 ”Pli multe vi ne povas doni al mi?” ŝi demandis laŭkutime.
 
 Li ne riproĉis tion al ŝi. Nur kiu ne scias, kiel malfacilas
 
-havi ĉiam ion por manĝi, sentus indignon. Sed tiuj, perla-
-
-borantaj surstrate, komprenas unu la alian, eĉ se unu falas
+havi ĉiam ion por manĝi, sentus indignon. Sed tiuj, perlaborantaj surstrate, komprenas unu la alian, eĉ se unu falas
 
 vizaĝalteren kaj la alia surdorsen.
 
-”Kion mi posedas, tion mi bezonas por mia malsana ami-
-
-ko. Kiam foje mi havos monon …”
+”Kion mi posedas, tion mi bezonas por mia malsana amiko. Kiam foje mi havos monon …”
 
 ”Bone,” diris Margot senkolere. ”Ni iru, ĉu?”
 
-Kiam ili descendis la ŝtuparon, ili aŭdis el la salono eksci-
+Kiam ili descendis la ŝtuparon, ili aŭdis el la salono ekscitan tumulton. Rapide ili trakuris la ĉambreton. Areto da kart-
 
-tan tumulton. Rapide ili trakuris la ĉambreton. Areto da kart-
-
-ludintoj staris kontraŭ Klemento, antaŭ kiu estis libera spa-
-
-co; la kartludintoj haste ŝtopis siajn poŝojn per amaso da
+ludintoj staris kontraŭ Klemento, antaŭ kiu estis libera spaco; la kartludintoj haste ŝtopis siajn poŝojn per amaso da
 
 bankbiletoj.
 
@@ -6154,9 +4936,7 @@ bankbiletoj.
 
 signis, kiajn kartojn mi havas! Mi ne toleras malhoneston.”
 
-”Atentu,” diris minace unu el la kartludintoj. ”Vi tre aŭda-
-
-cas.”
+”Atentu,” diris minace unu el la kartludintoj. ”Vi tre aŭdacas.”
 
 Sinjorino, kiun Gasparo renkontis surŝtupare, kuretis de
 
@@ -6166,7 +4946,6 @@ unu al alia kaj petis trankvilon; minacis, ke venos polico.
 
 **124**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6182,13 +4961,9 @@ Bone ni scias, ke li estas …”
 
 ”Latrono,” diris Klemento kaj saltis al li.
 
-La viro levis la manon kaj volis ekbati Klementon, sed Mar-
+La viro levis la manon kaj volis ekbati Klementon, sed Margot, staranta apud li, kroĉis sin al lia ŝultro kaj ekmordis lian pojnon.
 
-got, staranta apud li, kroĉis sin al lia ŝultro kaj ekmordis lian pojnon.
-
-”Bestio!” ekkriegis tiu viro pro kolerego kaj doloro kaj ek-
-
-kaptis la knabinon je la kolo. Tiumomente Deburau estis tie.
+”Bestio!” ekkriegis tiu viro pro kolerego kaj doloro kaj ekkaptis la knabinon je la kolo. Tiumomente Deburau estis tie.
 
 Li kaptis la surprizitan batemulon ĉirkaŭzone kaj forĵetis lin.
 
@@ -6196,21 +4971,15 @@ La viro ekŝancelis kaj rapide serĉis per ebriaj okuloj, kiu aŭdacis lin ataki
 
 ”Kion ci faris?” li kriacis.
 
-”Ho, tio ne gravas,” ekridetis Gasparo pardoneme kaj kva-
+”Ho, tio ne gravas,” ekridetis Gasparo pardoneme kaj kvazaŭ embarasite rigardis ĉirkaŭe. i estis tiom neatendita, ke
 
-zaŭ embarasite rigardis ĉirkaŭe. i estis tiom neatendita, ke
-
-ĉiuj ekridis. Ankaŭ la furiozanta batalemulo rigardis Gaspa-
-
-ron kun senpova mirego kaj anstataŭ bato, nur li braksvingis.
+ĉiuj ekridis. Ankaŭ la furiozanta batalemulo rigardis Gasparon kun senpova mirego kaj anstataŭ bato, nur li braksvingis.
 
 Duonbuŝe li diris: ”Iru, ci protektanto de putinoj.”
 
 Deburau riverencis. ”Prenu vian amikon kaj foriru,” flustris
 
-Margot. Sed ŝi ekpremis lian manon, kvazaŭ ŝi ne volus adi-
-
-aŭi lin. Gasparo kaptis Klementon je la kubuto kaj kondukis
+Margot. Sed ŝi ekpremis lian manon, kvazaŭ ŝi ne volus adiaŭi lin. Gasparo kaptis Klementon je la kubuto kaj kondukis
 
 lin el la salonego. Nur gitaro vokis post ili kaj gaja rido, kiam jam ili estis en la koridoro kaj la pordisto donis al Klemento
 
@@ -6222,7 +4991,6 @@ enpaŝis straten.
 
 **125**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6238,9 +5006,7 @@ vesperon.”
 
 havas. is mi venos alfunden, estos fino.”
 
-”Tamen vi volas plu vivi, ĉu?” admonis lin Gasparo. Kle-
-
-mento scivoleme rigardis lian vizaĝon, kvazaŭ li volus el ĝi
+”Tamen vi volas plu vivi, ĉu?” admonis lin Gasparo. Klemento scivoleme rigardis lian vizaĝon, kvazaŭ li volus el ĝi
 
 legi la kuracan fortigon.
 
@@ -6250,9 +5016,7 @@ por aldoni ilin al sia rigardo, ”vi ekkonos ĝojon el tio, kio kostas neniom, 
 
 ”Vi — vi scias tion?”
 
-Li enpensiĝis. Sed li sentis, kiel el lia vizaĝo fuĝas la kon-
-
-v. Ne, eĉ li mem ĝis nun ne sciis, sur kiu vojo kuŝas lia
+Li enpensiĝis. Sed li sentis, kiel el lia vizaĝo fuĝas la konv. Ne, eĉ li mem ĝis nun ne sciis, sur kiu vojo kuŝas lia
 
 celo.
 
@@ -6264,7 +5028,6 @@ per neregulaj, ŝanceliĝemaj paŝoj.
 
 **126**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6274,9 +5037,7 @@ Gasparo ne forportis du bankbiletojn al fratoj Hugo, kiel
 
 li intencis; ekde la tempo, kiam la patro revenis el la lasta
 
-turneo tra kamparo, li jam ne resaniĝis, malsanis kaj ĉiu mo-
-
-nero necesis.
+turneo tra kamparo, li jam ne resaniĝis, malsanis kaj ĉiu monero necesis.
 
 ”Streĉu la ŝnuregon, infanoj,” raŭke li parolis, kiam ĉe li
 
@@ -6286,9 +5047,7 @@ Gasparo renkontiĝis kun la fratinoj, ”sed ege longan, por ke
 
 Lia gajo estis komediante trista, sed suferojn li toleris kun
 
-harditeco de soldato. La infanoj kolektis monon por kuracis-
-
-to, kiu konjektis, ke temas pri epidemio de dormgripo. Li pre-
+harditeco de soldato. La infanoj kolektis monon por kuracisto, kiu konjektis, ke temas pri epidemio de dormgripo. Li pre-
 
 skribis medikamentojn, sed fine li ordonis transporton en
 
@@ -6298,13 +5057,9 @@ hospitalon.
 
 Gasparo jesis. Dorotea rerigardis al la panjo, kiu denove
 
-perdadis sian viglan kaj agrablan mienon. Sur la vizaĝo deno-
+perdadis sian viglan kaj agrablan mienon. Sur la vizaĝo denove aperis senespero.
 
-ve aperis senespero.
-
-”ĉu vi prizorgos, ke oni fortransportu la patron? Mi pro-
-
-vas enteatre kaj poste …”
+”ĉu vi prizorgos, ke oni fortransportu la patron? Mi provas enteatre kaj poste …”
 
 ”ĉu li ankoraŭ estas enamiĝinta?”
 
@@ -6312,33 +5067,24 @@ Dorotea jesis. Inter la rusa armeo, kiu antaŭ kelkaj jaroj
 
 okupis Parizon, estis ankaŭ multaj poloj kaj unu el ili estis
 
-juna oficiro, grafo Dobrowski. Li revenis nun ĉi tien en la am-
-
-basadora grupo kaj post unu solena vespero li vizitis cirkon
+juna oficiro, grafo Dobrowski. Li revenis nun ĉi tien en la ambasadora grupo kaj post unu solena vespero li vizitis cirkon
 
 Olimpia. La sorĉa blondharulino surdorse de sovaĝa nigra
 
 **127**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ĉevalo fascinis lin. Li revenis al la prezentado la duan fojon, trian fojon kaj poste la teneran artrajdistinon vizitis. Dorotea estis bone edukita. ŝi ridetis, kiam la grafo omaĝis ŝin, ŝi akceptis bukedon, sed rifuzis vespermanĝi kun li, malgraŭ la
 
-fakto, ke kolonelo Dobrowski ne apartenis al duonebriaj dan-
+fakto, ke kolonelo Dobrowski ne apartenis al duonebriaj dandoj, kiuj opiniis, ke Parizo estas ilia militrabaĵo.
 
-doj, kiuj opiniis, ke Parizo estas ilia militrabaĵo.
-
-”La grafo forveturas, sciu,” ŝi klarigis al Gasparo. ”Mi vo-
-
-las adiaŭi lin. Li revenas en Pollandon.” ŝiaj okuloj larmetis.
+”La grafo forveturas, sciu,” ŝi klarigis al Gasparo. ”Mi volas adiaŭi lin. Li revenas en Pollandon.” ŝiaj okuloj larmetis.
 
 ”Nur iru, Dorotea, ĉion mi prizorgos por la patro.”
 
-”La hospitalo estas por komedianto pli malbona ol areste-
-
-jo,” protestis la patro raŭkvoĉe. ”Gasparo, vi pekas.”
+”La hospitalo estas por komedianto pli malbona ol arestejo,” protestis la patro raŭkvoĉe. ”Gasparo, vi pekas.”
 
 ”Decidis tion la kuracisto. i estas ordono. Vi bonfartos tie
 
@@ -6346,9 +5092,7 @@ pli bone, oni zorgos pri vi.”
 
 ”Mi ne riskus mian kapon.”
 
-La patrino postrigardis ilin larmokule, kiam ili estis forve-
-
-turantaj. Kaj al Gasparo estis malfacilege, kvazaŭ li perdus pli frue la patrinon ol la patron.
+La patrino postrigardis ilin larmokule, kiam ili estis forveturantaj. Kaj al Gasparo estis malfacilege, kvazaŭ li perdus pli frue la patrinon ol la patron.
 
 ”is revido, patro,” li diris en la pordego de la hospitalo.
 
@@ -6374,15 +5118,12 @@ Li donis al Adela la bankbileton.
 
 **128**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Dankon,” ŝi akceptis ĝin. ”Se vi volus veni vespere?”
 
-”Ne necesas,” li rifuzis haste. ”Mi havas prezentadon, par-
-
-donu.”
+”Ne necesas,” li rifuzis haste. ”Mi havas prezentadon, pardonu.”
 
 Irante al sia teatro preter la palaco de Rothschild, li vidis
 
@@ -6394,13 +5135,9 @@ de la popolo el tavolo de la parvenuoj voĉdone dekretis la
 
 leĝon, kiu malpermesis importi la grenon kaj plikariĝon de la
 
-pano sub la preteksto, ke ”tro bone nutrataj laboristoj misla-
+pano sub la preteksto, ke ”tro bone nutrataj laboristoj mislaboras.” La ethomoj, inter kiuj Gasparo vivis, kaj kiuj ankaŭ
 
-boras.” La ethomoj, inter kiuj Gasparo vivis, kaj kiuj ankaŭ
-
-vizitadis teatron Funambules, tiuj faligintaj la tiranan reĝi-
-
-mon de la aristokratio, atingis nur tion, ke ili ricevis novan
+vizitadis teatron Funambules, tiuj faligintaj la tiranan reĝimon de la aristokratio, atingis nur tion, ke ili ricevis novan
 
 mastron, kaj tiu sekvis la vojon de la iama mastro. Ili vivis
 
@@ -6408,9 +5145,7 @@ denove sub jugo.
 
 La vaporo kaj maŝinoj elpeladis laboristojn el la laborejoj.
 
-Oni parolis pri sekretaj organizoj de la studentaro laŭ la ita-
-
-la modelo, sed la kortego instigis sian policon al novaj razioj.
+Oni parolis pri sekretaj organizoj de la studentaro laŭ la itala modelo, sed la kortego instigis sian policon al novaj razioj.
 
 Antaŭ tribunalon oni alpelis ankaŭ Bérangeron. Gasparo
 
@@ -6418,9 +5153,7 @@ estis inter la homoj, kiuj plenigis la spacon antaŭ la tribunalo tiel hermetike
 
 kantojn. Nur venu, sinjoroj, aŭskulti, kiam en Funambules la
 
-publiko atendas je la komenco, kiel la partero fone zumkan-
-
-tas:
+publiko atendas je la komenco, kiel la partero fone zumkantas:
 
 *”El Biblio citi nun modo, *
 
@@ -6432,7 +5165,6 @@ tas:
 
 **129**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6460,21 +5192,15 @@ regas daŭre. Gasparo tion scias kaj kapablas sian publikon
 
 kompreni. Liaj etaj roloj entenas malmulte da okazoj, sed li
 
-estas inventema. En la teatraĵo ”Arlekeno en tombejo” li pre-
+estas inventema. En la teatraĵo ”Arlekeno en tombejo” li prezentas oldulon, kiu ne povas ekdormi kaj kiu surprizas la ge-
 
-zentas oldulon, kiu ne povas ekdormi kaj kiu surprizas la ge-
-
-amantojn rendevuantajn apud la tombeja muro en nokto-
-
-ĉemizo. Gasparo surkapigis ankoraŭ la nokto-ĉapon; la vor-
+amantojn rendevuantajn apud la tombeja muro en noktoĉemizo. Gasparo surkapigis ankoraŭ la nokto-ĉapon; la vor-
 
 toj jam superfluas, ne ekzistas la ulo en la kvartalo, kiu ne
 
 dirus, vidante la ĉapeton: Jen, Ludoviko!
 
-La sceno de Deburau etas. Li kunplektas la manojn, lamen-
-
-tas kaj ekscitite forkuras. La geamantoj opinias lin fantomo.
+La sceno de Deburau etas. Li kunplektas la manojn, lamentas kaj ekscitite forkuras. La geamantoj opinias lin fantomo.
 
 Iuvespere venas al Gasparo eta varianto: li terenĵetas la ĉapon kaj kolereme tretas ĝin. Poste li krucmetas la manojn surdorse kaj foriras kun la kapo klinita antaŭen. is la vestejo akompanas lin la publiko per laŭta ”bravo!”
 
@@ -6482,13 +5208,10 @@ Iuvespere venas al Gasparo eta varianto: li terenĵetas la ĉapon kaj kolereme t
 
 tion, Deburau,” diras Bertrand. ”Tio estas bona.” Kaj Felikso
 
-rerigardas Gasparon; li morniĝas, sed liaj okuloj estas enpen-
-
-semaj.
+rerigardas Gasparon; li morniĝas, sed liaj okuloj estas enpensemaj.
 
 **130**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6500,13 +5223,9 @@ cirkan maneĝon eĉ forgesante karesi sian nigran ĉevalon. Des
 
 pli ĝoje ŝi ekridis, kiam foje post la prezentado ŝi saltis desur la ĉevalo kaj falis rekte en la brakumon de sia amato. La am-basadora grupo, kies membro li estis, restis kelke da mejloj
 
-post Parizo. Grafo Dobrowski, venkita de beleco de la reme-
+post Parizo. Grafo Dobrowski, venkita de beleco de la rememoroj kaj imagante, kiel Dorotea belaspektus en lia hejmo en
 
-moroj kaj imagante, kiel Dorotea belaspektus en lia hejmo en
-
-la bieno, decidiĝis al aŭdaca paŝo kaj revenis por sia fianĉi-
-
-no. La forlasita, morna patrino apenaŭ komprenis la ĝojon de
+la bieno, decidiĝis al aŭdaca paŝo kaj revenis por sia fianĉino. La forlasita, morna patrino apenaŭ komprenis la ĝojon de
 
 sia filino, anoncanta al ŝi, ke ŝi fariĝos grafino. Sed fratino Katarina ploris pro ĝojo kaj Gasparo ne malproksimis de tio.
 
@@ -6530,9 +5249,7 @@ anonci, kiel fartas la patro.
 
 Gasparo la tutan tagon bonhumoris kaj preparis sin elane
 
-por la gaja sceno apud la tombeja muro. Sed meze de la pre-
-
-zentado, kiam Kolombina kun Arlekeno giris ĉirkaŭ si kiel du
+por la gaja sceno apud la tombeja muro. Sed meze de la prezentado, kiam Kolombina kun Arlekeno giris ĉirkaŭ si kiel du
 
 papilioj, elstrate apertiĝis pordo en la teatran salonegon kaj
 
@@ -6542,21 +5259,16 @@ morta! Napoleono mortis!”
 
 **131**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Al la papilioj sursceneje ŝtoniĝis la flugiloj. La homoj leviĝis silenteme. La tutan aron ekregis aflikto. Estingiĝis la vivanta simbolo de la gloro, de ribelo kontraŭ reĝoj.
 
-Funebra etoso vastis tra la stratoj. ĉar la homoj timis pa-
-
-roli, ĉiu paŝis, kvazaŭ li havus antaŭ si funebran ĉaron. Mi-
+Funebra etoso vastis tra la stratoj. ĉar la homoj timis paroli, ĉiu paŝis, kvazaŭ li havus antaŭ si funebran ĉaron. Mi-
 
 loj da tiel nevideblaj sepultoj traveturadis la urbon.
 
-”Nnsolis, ke li pensas pri ni,” diris Felikso en la vest-
-
-gardejo. ”Tio eble ne veris, sed ĝi helpadis al ni.”
+”Nnsolis, ke li pensas pri ni,” diris Felikso en la vestgardejo. ”Tio eble ne veris, sed ĝi helpadis al ni.”
 
 ”Kiu fariĝos lia sekvanto?” rezonis Filibert. ĉi tie ili sentis sin sekuraj kaj ne timis paroli. ”Kiu sidas surtrone, ĉiam estas alte,” oponis mallaŭte Deburau, kiel li aŭdis tion ofte diri de studentoj surstrate.
 
@@ -6564,23 +5276,15 @@ gardejo. ”Tio eble ne veris, sed ĝi helpadis al ni.”
 
 niaj koroj.”
 
-Malgraŭ la fakto, ke Napoleono neniam helpis ilin, lia no-
+Malgraŭ la fakto, ke Napoleono neniam helpis ilin, lia nomo fariĝis en metamorfozoj de la historio la nomo de espe-
 
-mo fariĝis en metamorfozoj de la historio la nomo de espe-
-
-ro. ĉie sur la stratoj eksonis denove la kantoj el la napoleo-
-
-na periodo kaj gardistojn oni ne vidis. Kaj nur la respublika-
+ro. ĉie sur la stratoj eksonis denove la kantoj el la napoleona periodo kaj gardistojn oni ne vidis. Kaj nur la respublika-
 
 noj pli firme kaj pli decide laŭtis, kiam ili diradis al la mal-kredemaj: ”La sekvanto? Nova espero? Jen ni mem estas.”
 
-Preskaŭ ĉiuj homoj, kiujn Gasparo renkontadis, triste rigar-
+Preskaŭ ĉiuj homoj, kiujn Gasparo renkontadis, triste rigardis; rare li konstatis en ies vizaĝo malican kontentiĝon. La
 
-dis; rare li konstatis en ies vizaĝo malican kontentiĝon. La
-
-funebra etoso de la urbo venkis ankaŭ tiujn, kiuj kun Napo-
-
-leono ligis nenian imagon, eble tial, ĉar li ne falis kiel batalanto, sed kiel senpova kaptito.
+funebra etoso de la urbo venkis ankaŭ tiujn, kiuj kun Napoleono ligis nenian imagon, eble tial, ĉar li ne falis kiel batalanto, sed kiel senpova kaptito.
 
 Gasparo scivolis, kiel komentos la sciigon lia patro. Ankaŭ
 
@@ -6592,7 +5296,6 @@ malvarma koridoro, kiu similis al koridoroj en la mallibere-
 
 **132**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6608,23 +5311,15 @@ ironiis.
 
 ”ĉu mi povas viziti lin?”
 
-La flegistino klake kunfrapis la manojn. ”Sed tiu jam de-
+La flegistino klake kunfrapis la manojn. ”Sed tiu jam delonge estas morta!”
 
-longe estas morta!”
+”Ne eblas,” diris Gasparo. i efikis kvazaŭ sveniganta frapo. ”Kiam tio okazis?”
 
-”Ne eblas,” diris Gasparo. i efikis kvazaŭ sveniganta fra-
-
-po. ”Kiam tio okazis?”
-
-”Hodiaŭ matene. Jam li estas en la kapelo.” Kaj ŝi estis fori-
-
-ranta skuante la kapon, kvazaŭ ŝi komprenus, kiel eblas en
+”Hodiaŭ matene. Jam li estas en la kapelo.” Kaj ŝi estis foriranta skuante la kapon, kvazaŭ ŝi komprenus, kiel eblas en
 
 tiom grava tago ĝeni sin per tiaj vanaĵoj.
 
-La patro morta? Jam matene? uste nun oni solenis la fian-
-
-ĉiniĝon de Dorotea.
+La patro morta? Jam matene? uste nun oni solenis la fianĉiniĝon de Dorotea.
 
 ”Mi petas vin,” li kriis al la flegistino kaj kuris post ŝin. ”ĉu li sentis dolorojn?” li demandis petege.
 
@@ -6632,9 +5327,7 @@ La patro morta? Jam matene? uste nun oni solenis la fian-
 
 ”Morgaŭ oni enterigos lin.”
 
-Gasparo dankemis al ŝi pro la konsolo. Li eliris el la hospi-
-
-talo. Surstrate hodiaŭ nokte ne malpliiĝis la homoj. Sed nun
+Gasparo dankemis al ŝi pro la konsolo. Li eliris el la hospitalo. Surstrate hodiaŭ nokte ne malpliiĝis la homoj. Sed nun
 
 al Gasparo ĉio ŝajnis tute alia. Li ŝanĝiĝis kaj ĉio ŝanĝiĝis. Li estis jam senpatra. Li revenis hejmen. Li stariĝis kontraŭ la
 
@@ -6648,7 +5341,6 @@ patrino.
 
 **133**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6656,9 +5348,7 @@ Li ekdormis tiunokte kaj frumatene li eliris urben. Nun
 
 atendis lin la plej malbona tasko. Li emociiĝis kaj plej ŝate
 
-kaŝus sin ien kun sia tristego. Sed Dorotea atendis. ĉu li po-
-
-vas diri al ŝi, ke la patro mortis, kaj permesi, ke jam la unua tago de ŝia nova vivo estu nigra?
+kaŝus sin ien kun sia tristego. Sed Dorotea atendis. ĉu li povas diri al ŝi, ke la patro mortis, kaj permesi, ke jam la unua tago de ŝia nova vivo estu nigra?
 
 Strato de Montorgueil. Hotelo de la Bretagne. ”ĉu loĝas ĉi
 
@@ -6696,9 +5386,7 @@ unuan filon, li venos liadire viziti vin.”
 
 ekzerci lin je akrobato.”
 
-”Mi diros tion al mia kolonelo,” ridis Doroteo. ”Kaj ne plo-
-
-ru, eble ja ankoraŭ ni iam revidos nin. Mi alveturos foje en
+”Mi diros tion al mia kolonelo,” ridis Doroteo. ”Kaj ne ploru, eble ja ankoraŭ ni iam revidos nin. Mi alveturos foje en
 
 Parizon. ĉiujn salutu, Stefanon, Katarinon, Franciskon kaj
 
@@ -6708,23 +5396,16 @@ panjon centfoje…”
 
 **134**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Kaj tion donu al panjo por plibonfartigo — kaj tion al paĉ-
-
-jo de la grafo — kaj li ŝparu siajn fortojn!”
+”Kaj tion donu al panjo por plibonfartigo — kaj tion al paĉjo de la grafo — kaj li ŝparu siajn fortojn!”
 
 Ili brakumis sin. ”Multe da feliĉo, fratinjo!”
 
-”Rompu la peĉon, Gasparo, sursceneje, nature! Kaj mi dan-
+”Rompu la peĉon, Gasparo, sursceneje, nature! Kaj mi dankas pro la bona informo.”
 
-kas pro la bona informo.”
-
-Gasparo descendas la ŝtuparon. Li eliras el la hotelo. Lan-
-
-te li iras tra strato. Senlima tristego obsedas lin, des pli granda, ĉar li ne dividis ĝin, ĉar ĝin li konservis la tutan por si. Sed samtempe ene jubilas kromordinara kontento. Dorotea ne
+Gasparo descendas la ŝtuparon. Li eliras el la hotelo. Lante li iras tra strato. Senlima tristego obsedas lin, des pli granda, ĉar li ne dividis ĝin, ĉar ĝin li konservis la tutan por si. Sed samtempe ene jubilas kromordinara kontento. Dorotea ne
 
 forvojaĝos kun konstanta aflikto. Anstataŭ larmoj vi donacis
 
@@ -6732,13 +5413,10 @@ al ŝi ĝojon kaj ridon. Kiam foje ŝi ekscios, tie en malproksimo, ne tiom ĝi 
 
 paroli, vi konsilus la samon al mi.
 
-Kaj Gasparo vagas tra la stratoj deprimite, sed pro konten-
-
-to li riĉas pli ol franca reĝo.
+Kaj Gasparo vagas tra la stratoj deprimite, sed pro kontento li riĉas pli ol franca reĝo.
 
 **135**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6756,9 +5434,7 @@ Sejno, viaj profundaĵoj? Homkrioj ŝvebas super ili: kriado de
 
 stratvendistoj, vendantaj grenon, karbon kaj lanon, vokado
 
-de pramistoj el Luvro. Longaj barĝoj plenaj de ligno veturi-
-
-gas kune la kantojn de la morvanaj karbistoj, kantojn mono-
+de pramistoj el Luvro. Longaj barĝoj plenaj de ligno veturigas kune la kantojn de la morvanaj karbistoj, kantojn mono-
 
 tonajn kiel la flavoverda akvofluo. Kaj aliaj voĉoj kuŝas silente sub surfaco de la fluanta tombejo.
 
@@ -6776,9 +5452,7 @@ Gasparo forlasas la bordon kaj serĉas.
 
 Ankoraŭ matenas. Klemento certe hejmos. Antaŭ la domo
 
-de Sansono staras veturilo ŝarĝita per meblaro, kiun Gaspa-
-
-ro rekonas. La pordo estas apertita kaj el la vestiblo aŭdeblas voĉo de fremda homo. ”ĉu jam ĉio?”
+de Sansono staras veturilo ŝarĝita per meblaro, kiun Gasparo rekonas. La pordo estas apertita kaj el la vestiblo aŭdeblas voĉo de fremda homo. ”ĉu jam ĉio?”
 
 ”Vi forgesis la bildon,” trankvile respondas Klemento.
 
@@ -6790,7 +5464,6 @@ La juĝa oficisto kun la bildo subbrake eliras. Ekzekuciisto!
 
 **136**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6800,15 +5473,11 @@ Poste li aŭdacas pluen.
 
 ”Mi ofertis al ili la gilotinon,” ridetas Klemento meze de la
 
-malplena ĉambro, kaj lia rido estas ete senkarna. ”Ili ne vo-
-
-lis ĝin. Se vi venas kiel kreditoro, vere malmulton vi trovos ĉe mi.”
+malplena ĉambro, kaj lia rido estas ete senkarna. ”Ili ne volis ĝin. Se vi venas kiel kreditoro, vere malmulton vi trovos ĉe mi.”
 
 ”Foje mi pruntis al vi helpon. Mi iras por preni la ŝuldon.”
 
-”Tiom malmulte mi havas,” malkredeme ridetas Klemen-
-
-to.
+”Tiom malmulte mi havas,” malkredeme ridetas Klemento.
 
 ”La patrino dum pluraj tagoj ne revenis. Oni invitas min al
 
@@ -6826,9 +5495,7 @@ Ili eliras. ”ĉu vi ne ŝlosos?”
 
 ”Petskribu por ricevi monsubtenon.”
 
-”Mi faros tion alimaniere, sed tio ne gravas. Nun mi apar-
-
-tenas al vi.”
+”Mi faros tion alimaniere, sed tio ne gravas. Nun mi apartenas al vi.”
 
 ”Sciu,” penas Gasparo klarigi al li, post kiam ili revenas al
 
@@ -6836,9 +5503,7 @@ kajo. ”Estas malbona sento iri al tia celo. ĉio eblas. La patri-no vere amis 
 
 Ligna pordego kondukas al nigra antaŭĉambro. Maljuna
 
-dungito iras renkonte al ili kaj komunikas: ”Laŭ la policaj re-
-
-gistroj pri personoj malaperintaj, ŝajnas, ke la dronintino es-
+dungito iras renkonte al ili kaj komunikas: ”Laŭ la policaj registroj pri personoj malaperintaj, ŝajnas, ke la dronintino es-
 
 tas via patrino. ŝi surhavas vestaĵon kiel vi indikis. Nature, ŝi restis enakve tre longe,” li aldonas kun kompatema rigardo,
 
@@ -6846,7 +5511,6 @@ kvazaŭ li pardonpetus.
 
 **137**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6878,9 +5542,7 @@ vizaĝo.
 
 Li emas tion krii. Li ĵurdiros tion al kiu ajn. Lia patrino
 
-gajis, estis purema, ridetema. Vi devus ŝin vidi, kiam ŝi sur-
-
-metis ruĝan jupon kun la arĝentaj perloj kaj kiam ŝi ekfrapis
+gajis, estis purema, ridetema. Vi devus ŝin vidi, kiam ŝi surmetis ruĝan jupon kun la arĝentaj perloj kaj kiam ŝi ekfrapis
 
 la metalplaton. La prezentado ekas! Lia panjo havis la okulojn
 
@@ -6890,13 +5552,9 @@ kiel bluajn floretojn kun rosguto. Eĉ se ŝi maljuniĝis, ĉiam ŝi estis agrab
 
 ”Feliĉe ne,” diris Gasparo firme.
 
-Ili eliras. Varma julia tago. Klaras la ĉielo super Parizo. Am-
+Ili eliras. Varma julia tago. Klaras la ĉielo super Parizo. Ambaŭ elprofunde spiras la zefiron, kiu priblovas iliajn vangojn.
 
-baŭ elprofunde spiras la zefiron, kiu priblovas iliajn vangojn.
-
-Kiu havis ideon loki tuj apud la morna fasado de Morgue fiŝ-
-
-foiron kun gajaj pluvombreloj de vendistinoj?
+Kiu havis ideon loki tuj apud la morna fasado de Morgue fiŝfoiron kun gajaj pluvombreloj de vendistinoj?
 
 ”Estis malvarme tie,” rememoras Klemento.
 
@@ -6910,7 +5568,6 @@ foiron kun gajaj pluvombreloj de vendistinoj?
 
 **138**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -6928,9 +5585,7 @@ Dorotea estas en Pollando, Stefano en Belgio, kiu garantios,
 
 ke vojoj de la komediantoj ankoraŭ iam kruciĝos? Francisko,
 
-kiu fakte ne estis frato de Gasparo, fremdiĝis al li. Por povi en la mondo vivi, en la mondo, kiu apartenas al aliuloj, oni bezonas ĉiujn fortojn; malriĉulo devas esti egoisma. La bela Ka-
-
-tarina edziniĝis en kamparon. Gasparo restadis pli kaj pli izo-
+kiu fakte ne estis frato de Gasparo, fremdiĝis al li. Por povi en la mondo vivi, en la mondo, kiu apartenas al aliuloj, oni bezonas ĉiujn fortojn; malriĉulo devas esti egoisma. La bela Katarina edziniĝis en kamparon. Gasparo restadis pli kaj pli izo-
 
 lita, kaj daŭre nekontentigita, ĉar li volis aktori kaj tio ne estis donita al li.
 
@@ -6946,31 +5601,22 @@ decidis senpardone, ke la paciento devas esti enhospitaligita,
 
 Marcel, kie la vizitoj estas malpermesataj. Al kelkaj linioj de la sciigo almetita kvazaŭ afablaĵo aŭ danko miniatura pentraĵo, sur kies dorsa flanko estis rimarkigo: ”Skizo fare de
 
-Watteau al portreto de aktoro el la itala komedio, kiun pose-
+Watteau al portreto de aktoro el la itala komedio, kiun posedas la pentristo David.”
 
-das la pentristo David.”
-
-La vizitkarton kaj bildon oni transdonis al Gasparo en ves-
-
-tejo antaŭ la prezentado. Enpense li rigardis la propran viza-
+La vizitkarton kaj bildon oni transdonis al Gasparo en vestejo antaŭ la prezentado. Enpense li rigardis la propran viza-
 
 **139**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ĝon, respegulanta sin en la spegulero surtable, sed li vidis nek siajn okulojn, nek la perukon super la frunto. Li pensis pri la bela kaj gaja Eŭgeno, kiu tiel mallonge restadis en lia vivo.
 
-Neniam plu li ŝercos kun kelnerinoj, ne gustumos la burgun-
-
-dan vinon ĉe sinjorino panjo Cadet; en malvarman ĉelon li
+Neniam plu li ŝercos kun kelnerinoj, ne gustumos la burgundan vinon ĉe sinjorino panjo Cadet; en malvarman ĉelon li
 
 flustros siajn versojn. Tie li ekzercos diablojn kaj dio scias, kiel li finiĝos. Adiaŭ, Eŭgeno!
 
-Nur poste li levis al la okuloj ortangulon el malelasta pa-
-
-pero, sur kiu estis kelke da krajonlinioj, kvazaŭ nur prove
+Nur poste li levis al la okuloj ortangulon el malelasta papero, sur kiu estis kelke da krajonlinioj, kvazaŭ nur prove
 
 akompanataj de leĝeraj koloraj ŝmirlinioj. Postkape estis blua
 
@@ -6980,9 +5626,7 @@ fono, eble tial por ke reliefiĝu de ŝi la blanka vizaĝo.
 
 ”Naivule li aspektas?” li eksciis.
 
-Gasparo denove fikse ekrigardis la desegnaĵon, pli atente-
-
-me, kvazaŭ la vivantan vizaĝon.
+Gasparo denove fikse ekrigardis la desegnaĵon, pli atenteme, kvazaŭ la vivantan vizaĝon.
 
 ”Li ne estas stultulo,” li replikis.
 
@@ -6990,9 +5634,7 @@ me, kvazaŭ la vivantan vizaĝon.
 
 Gasparo meditis mem. Naivulo? Ja li havas mediteman
 
-frunton. Kompreneman buŝon. Seriozan kaj inteligentan ri-
-
-gardon. En tiu vizaĝo enestas la animo, sed la komedianto ĝin
+frunton. Kompreneman buŝon. Seriozan kaj inteligentan rigardon. En tiu vizaĝo enestas la animo, sed la komedianto ĝin
 
 ne montras. Pro saĝo aŭ pro timo. Pro malbonaj spertoj.
 
@@ -7002,9 +5644,7 @@ sin do nur al sia spegulo: ĉu mi similas al tiu pentraĵo?
 
 Li ŝovis la manon en pladeton kun blankaĵo kaj finŝminkis
 
-la vangojn. Li akomodis siajn trajtojn al la pentraĵo. Li mal-
-
-levis la lip-anguletojn kaj kunpremis la ruĝigitajn lipojn. Li
+la vangojn. Li akomodis siajn trajtojn al la pentraĵo. Li mallevis la lip-anguletojn kaj kunpremis la ruĝigitajn lipojn. Li
 
 malfermis la okulojn. Kaj nun la vizaĝo plenas de esprimo,
 
@@ -7016,23 +5656,18 @@ trovos kaj el la okuloj ĝi rebrilas surlipe kaj survizaĝe.
 
 **140**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Kial ĉi tiu masko de servisto Pieroto estas al li plej kara? Li ne sopiras prezentadi la bonfartan kaj regavidan Kasandron.
 
-Leandro, kiu ĉiam egalmaniere amindumas Kolombinan, es-
-
-tas ja kara al virinoj en rigardejo, sed liaj aktor-ebloj estas role limigitaj, monotonaj. La maljunaj doktoroj, soldatoj kaj gas-tejestroj diras nemulton. Kaj al li ŝajnas, ke jam multon li scias kaj domaĝe ne diri tion al la ceteraj. Li volas ludi la vivon. La servisto, ĉu li nomiĝas Pieroto aŭ alie, konas la vivon mult-flanke. Li servas kaj malriĉas; tial li devas esti inventema. Li devas klini sian dorson kaj toleri kapricojn de sia mastro; li
+Leandro, kiu ĉiam egalmaniere amindumas Kolombinan, estas ja kara al virinoj en rigardejo, sed liaj aktor-ebloj estas role limigitaj, monotonaj. La maljunaj doktoroj, soldatoj kaj gas-tejestroj diras nemulton. Kaj al li ŝajnas, ke jam multon li scias kaj domaĝe ne diri tion al la ceteraj. Li volas ludi la vivon. La servisto, ĉu li nomiĝas Pieroto aŭ alie, konas la vivon mult-flanke. Li servas kaj malriĉas; tial li devas esti inventema. Li devas klini sian dorson kaj toleri kapricojn de sia mastro; li
 
 suferas doloron, malicon, li batalas pri si per ĉiuj rimedoj —
 
 sed ankaŭ li konas simplan vivoĝojon, kiu fontas el libera
 
-glut-kvanto da aero, el floroj kaj nuboj, havantaj neniun ma-
-
-stron. Li sopiras pri inoj, kiuj estas por li neatingeblaj, kaj ĉar li scias pri la amo pli ol tiuj, kiuj ĝin posedas, kiam ajn ili nur ekdeziras ĝin. Kasandro, Leandro aŭ Arlekeno estas belaj figuroj, sed ili ne similas al homoj. La servisto Pieroto similas al tiuj lin rigardantaj, laboregantaj, vagantaj tra la vivo, li luktas kontraŭ mizero kaj lernas koni la vivon ĉiupaŝe.
+glut-kvanto da aero, el floroj kaj nuboj, havantaj neniun mastron. Li sopiras pri inoj, kiuj estas por li neatingeblaj, kaj ĉar li scias pri la amo pli ol tiuj, kiuj ĝin posedas, kiam ajn ili nur ekdeziras ĝin. Kasandro, Leandro aŭ Arlekeno estas belaj figuroj, sed ili ne similas al homoj. La servisto Pieroto similas al tiuj lin rigardantaj, laboregantaj, vagantaj tra la vivo, li luktas kontraŭ mizero kaj lernas koni la vivon ĉiupaŝe.
 
 ”ĉu vi aktoras aŭ ne aktoras?” koleris je li iam Bertrand,
 
@@ -7042,53 +5677,38 @@ de Pieroto.
 
 La trankvilo de Gasparo diferencis surprize de tio, kion
 
-prezentadis liaj antaŭuloj aŭ sinjoro Sagui en la apuda teat-
-
-ro. Pli atentemaj spektantoj tion konstatis kaj surbulvarde eĉ
+prezentadis liaj antaŭuloj aŭ sinjoro Sagui en la apuda teatro. Pli atentemaj spektantoj tion konstatis kaj surbulvarde eĉ
 
 temp-al-tempe aŭdiĝis rimarkigo: ”Mi estas trankvila kiel
 
 Baptisto.”
 
-Sed la direktoro opiniis tion manko de aktora arto. Piero-
-
-to havis nenian ŝancon pligrandigi sian repertuaron. Denove
+Sed la direktoro opiniis tion manko de aktora arto. Pieroto havis nenian ŝancon pligrandigi sian repertuaron. Denove
 
 li ekmeditis super la bildo fare de Watteau. Kio ankoraŭ man-
 
 **141**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-kas al mi por konvinki la ceterajn? En kio mi malmulte elok-
-
-ventas? En kio mi eraras? Li serĉadis antaŭ spegulo la plej
+kas al mi por konvinki la ceterajn? En kio mi malmulte elokventas? En kio mi eraras? Li serĉadis antaŭ spegulo la plej
 
 konvenan mienon.
 
-”Deburau!” oni vokis elsceneje. La pierota masko malape-
-
-ris kaj la maljuna malafablulo kun ruĝegaj lipoj kaj krispa
+”Deburau!” oni vokis elsceneje. La pierota masko malaperis kaj la maljuna malafablulo kun ruĝegaj lipoj kaj krispa
 
 peruko kuris al scenejo.
 
 Policaj reglamentoj denove plidrakoniĝis, ĉar en la laborejoj
 
-ĝermis nova malkontento. Laboristoj renkontante sin, infor-
-
-mis unu la alian, je kiom da centimoj oni malaltigis iliajn sa-
+ĝermis nova malkontento. Laboristoj renkontante sin, informis unu la alian, je kiom da centimoj oni malaltigis iliajn sa-
 
 lajrojn. ”Jen, la miliardo al la elmigrintoj!”
 
-Ne sufiĉis 700 milionoj, kiujn devis Francio sangŝvite elpa-
+Ne sufiĉis 700 milionoj, kiujn devis Francio sangŝvite elpagi al la venkintaj aliancanoj. La nobelaro voĉdone decidis al
 
-gi al la venkintaj aliancanoj. La nobelaro voĉdone decidis al
-
-si monkompenson, sume unu miliardon por tiuj, kiujn ellan-
-
-digis la respubliko aŭ la napoleona reĝimo. Tiun miliardon
+si monkompenson, sume unu miliardon por tiuj, kiujn ellandigis la respubliko aŭ la napoleona reĝimo. Tiun miliardon
 
 necesis ekspluati de la popolo. Neniu dispozicio estis sufiĉe
 
@@ -7104,9 +5724,7 @@ milionoj. Kiam la polico malkovris Karbonar-organizojn, la
 
 aristokrataro atingis, ke gilotino, kiun certe atendas riĉa rikolto — daŭre okupu sian iaman lokon.
 
-Iutage disfamiĝis informo, ke oni senkapigos kvar serĝen-
-
-tojn el la fortikaĵo La Rochelle, rifuzintaj obei la reĝon. Gasparo iris al Klemento kaj trovis lin super valizo. Li ne estis deprimita, kiel Gasparo supozis; kontraŭe, lia vizaĝo radiis de
+Iutage disfamiĝis informo, ke oni senkapigos kvar serĝentojn el la fortikaĵo La Rochelle, rifuzintaj obei la reĝon. Gasparo iris al Klemento kaj trovis lin super valizo. Li ne estis deprimita, kiel Gasparo supozis; kontraŭe, lia vizaĝo radiis de
 
 malstreĉo.
 
@@ -7114,7 +5732,6 @@ malstreĉo.
 
 **142**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7122,9 +5739,7 @@ ros al mi vojon.” Li montris grandan dokumenton, kuŝantan
 
 en fenestra niĉo.
 
-”… la petskribon plenumi kaj maldungi Klementon San-
-
-son… ,” legis Deburau. ”ĉu ili koncedis?” li ekĝojis. ”Sed kion vi faros?”
+”… la petskribon plenumi kaj maldungi Klementon Sanson… ,” legis Deburau. ”ĉu ili koncedis?” li ekĝojis. ”Sed kion vi faros?”
 
 ”Mi foriros. Mi ricevis etan kompenson. Mi farmos al mi
 
@@ -7138,9 +5753,7 @@ unu la alian?”
 
 ”Komprenu tion. Kio alia restas al mi. Mi ŝatus almenaŭ
 
-vespermanĝi kun vi, sed apenaŭ restos tempo. Mi iros anko-
-
-raŭ al brokantistoj.”
+vespermanĝi kun vi, sed apenaŭ restos tempo. Mi iros ankoraŭ al brokantistoj.”
 
 ”Pli bone estos al vi — resti sola,” konsentis Gasparo. ”ĉu
 
@@ -7158,27 +5771,20 @@ adiaŭos.”
 
 ”Gaje.”
 
-”Prenu tiun libreton memore. Kaj estu sana. La teatro al-
-
-portu al vi feliĉon!”
+”Prenu tiun libreton memore. Kaj estu sana. La teatro alportu al vi feliĉon!”
 
 ”Sed mi havas nenion por vi.”
 
 ”Kaj tamen ŝuldanto restas mi.”
 
-Ili brakumis sin reciproke. Lasta rigardo en sincerajn oku-
-
-lojn. Malplenas strato. Adiaŭ, Klemento! Mi rapidas rendevui
+Ili brakumis sin reciproke. Lasta rigardo en sincerajn okulojn. Malplenas strato. Adiaŭ, Klemento! Mi rapidas rendevui
 
 kun soleco. Li rigardis la titolpaĝon de la libro. Moli re!
 
-Pli ol unu horon Deburau atendis post la fino de la prezen-
-
-tado, ĉu la amiko ankoraŭ venos. Sed lia atendado vanis.
+Pli ol unu horon Deburau atendis post la fino de la prezentado, ĉu la amiko ankoraŭ venos. Sed lia atendado vanis.
 
 **143**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7186,69 +5792,46 @@ Vespero de la kruela gloro
 
 La fortoj de Gasparo Deburau elĉerpiĝis. Lia kranio duris,
 
-li estis hardita kaj kuraĝa; sed la batoj tro multis kaj man-
+li estis hardita kaj kuraĝa; sed la batoj tro multis kaj mankis io por apogo. La mondo malamikis. Oni povas longe ba-
 
-kis io por apogo. La mondo malamikis. Oni povas longe ba-
-
-tali. Sed oni devas ion ami. Necesas havi minimume unu es-
-
-taĵon, al kiu oni povas dediĉi la sentojn, kaj pri kiu oni scias, ke ĝi havas minimume unu bonan econ, almenaŭ tiun, ke ĝi
+tali. Sed oni devas ion ami. Necesas havi minimume unu estaĵon, al kiu oni povas dediĉi la sentojn, kaj pri kiu oni scias, ke ĝi havas minimume unu bonan econ, almenaŭ tiun, ke ĝi
 
 amas nin. Nenion tian Gasparo jam havis.
 
-La gepatroj forpasis. La gefratoj elflugis kiel vagamaj bir-
+La gepatroj forpasis. La gefratoj elflugis kiel vagamaj birdoj. La amikoj perdiĝis. Kio ankoraŭ restas?
 
-doj. La amikoj perdiĝis. Kio ankoraŭ restas?
-
-Vi junas, flustris kuraĝo per la lasta resto de la voĉo. An-
-
-koraŭ vi povas atendi kaj esperi, labori por fariĝi artisto. Sed kio estas arto? Kiel oni maturiĝas por ĝi? Kiel konvinki la
+Vi junas, flustris kuraĝo per la lasta resto de la voĉo. Ankoraŭ vi povas atendi kaj esperi, labori por fariĝi artisto. Sed kio estas arto? Kiel oni maturiĝas por ĝi? Kiel konvinki la
 
 mondon pri ĝi? Mi prezentos dum longaj jaroj negrandajn
 
 scenojn de ebriuloj kaj idiotoj; unufoje mi ne viglos sufiĉe kaj oni elĵetos min; mi ellernos kelkajn ĵonglaĵojn, mi kaŝiĝos kun ili en la lasta budo surbulvarde kaj mi timos, por ke neniu tien erarvagu, por ke tie mi mortu pro malsato almenaŭ solece,
 
-sen mokrido de infanoj kaj sen moko de kruduloj. ĉu tio es-
-
-tas mia sorto? Por kiu gravas mia vivo?
+sen mokrido de infanoj kaj sen moko de kruduloj. ĉu tio estas mia sorto? Por kiu gravas mia vivo?
 
 La juneco rezistas. Vi ludas en tragedio, sed vi ne devas
 
-rezigni. Nigraj pensoj kondukas al la fundo de Sejno. Defen-
-
-du vin! Aŭ iu vespero kunpremos viajn tempiojn tiom, ke vi
+rezigni. Nigraj pensoj kondukas al la fundo de Sejno. Defendu vin! Aŭ iu vespero kunpremos viajn tempiojn tiom, ke vi
 
 ne plu povos mediti kaj se poste vi alvagos al pontoj, facile vi **144**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-konfuzos lumojn sur la firmamento kaj sur la akvo. Kaj Sej-
+konfuzos lumojn sur la firmamento kaj sur la akvo. Kaj Sejno basigos kurtenon post vi. Defendu vin!
 
-no basigos kurtenon post vi. Defendu vin!
-
-Felikso Charigni, Arlekeno de teatro Funambules, malsa-
-
-nas. Li kuŝas en la vestgardejo, surventre li havas kompresojn
+Felikso Charigni, Arlekeno de teatro Funambules, malsanas. Li kuŝas en la vestgardejo, surventre li havas kompresojn
 
 kaj ĝemas.
 
-”Diable! ĉu vi aŭdis? Frederiko prezentas Hamleton. Fre-
-
-deriko ludas ŝekspiron kaj mi restis ĉi tie kuŝanta, similante
+”Diable! ĉu vi aŭdis? Frederiko prezentas Hamleton. Frederiko ludas ŝekspiron kaj mi restis ĉi tie kuŝanta, similante
 
 al batrompita hundo.”
 
-Direktoroj Bertrand kaj Fabien kliniĝis super li. ”Bone, bo-
-
-ne, sed kio okazos vespere? Rekuraĝiĝu! Pro iom da doloro ni
+Direktoroj Bertrand kaj Fabien kliniĝis super li. ”Bone, bone, sed kio okazos vespere? Rekuraĝiĝu! Pro iom da doloro ni
 
 ne fermos la teatron.”
 
-”Pro iom da doloro?” lamentas Felikso. ”Enventre mi ha-
-
-vas krotalon aŭ krabon!”
+”Pro iom da doloro?” lamentas Felikso. ”Enventre mi havas krotalon aŭ krabon!”
 
 ”La direktoro diris, ke vi povas ludi.”
 
@@ -7284,13 +5867,10 @@ enventre!”
 
 **145**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Gasparo venas timigite, ke iel li kulpiĝis. Estu tio nur mon-
-
-puno! Aŭ tuj oni elĵetos lin?
+Gasparo venas timigite, ke iel li kulpiĝis. Estu tio nur monpuno! Aŭ tuj oni elĵetos lin?
 
 ”Gasparo,” diras Felikso kaj frotas sian stomakon. ”Jen mia
 
@@ -7300,9 +5880,7 @@ peruko kaj ĉi tie la kostumo. Vi prezentos Arlekenon. Al mi
 
 ”Malbona ŝerco,” pensas Gasparo. Krom kelkaj supraĵaj
 
-rigardoj Felikso ĝis nun nenion bonan donacis al li, nur insul-
-
-tojn li havis de li, riproĉojn kaj koleron.
+rigardoj Felikso ĝis nun nenion bonan donacis al li, nur insultojn li havis de li, riproĉojn kaj koleron.
 
 ”ĉu vi aŭdis aŭ ne?” krias direktoro Bertrand.
 
@@ -7318,17 +5896,13 @@ Gasparo ekkaptas per unu ekpreno la buntajn ĉifonojn kaj
 
 perukon. Per du saltoj li pafas sin elporde. Li kuregas tra la
 
-koridoro. Li ĵetiĝas sur benkon kaj ŝiras de si ĉemizon. La ak-
-
-toroj estantaj kune kun li en la sama ejo opinias lin frenezu-
+koridoro. Li ĵetiĝas sur benkon kaj ŝiras de si ĉemizon. La aktoroj estantaj kune kun li en la sama ejo opinias lin frenezu-
 
 lo.
 
 ”ĉu vi perdis la saĝon?”
 
-”Hodiaŭ mi ludos Arlekenon,” balbutas Gasparo kiel enfe-
-
-bre. La aktoroj ridaĉas, sed Bertrand enfalas tra la pordo kaj
+”Hodiaŭ mi ludos Arlekenon,” balbutas Gasparo kiel enfebre. La aktoroj ridaĉas, sed Bertrand enfalas tra la pordo kaj
 
 vokas al Gasparo: ”Rapide, rapide!”
 
@@ -7336,9 +5910,7 @@ Filibert montras al Gasparo: ”Do tamen vero?”
 
 ”Restas nenio alia. Ne ekscitu min!” koleregas Bertrand.
 
-Gasparo jam havas la perukon kaj lia koro sub bunta kos-
-
-tumo batas kvazaŭ la plej granda sonorilo sur Notre-Dame,
+Gasparo jam havas la perukon kaj lia koro sub bunta kostumo batas kvazaŭ la plej granda sonorilo sur Notre-Dame,
 
 sed centoble pli rapide.
 
@@ -7348,7 +5920,6 @@ Filibert.
 
 **146**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7406,7 +5977,6 @@ La pordisto, la direktoro kaj la olda biletistino helpas lin el-pordigi. Ankora�
 
 **147**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7416,9 +5986,7 @@ vi repagos al mi, Aglae!” Tio estis kutima dirmaniero inter la
 
 aktoroj el bulvardo du Temple.
 
-Gasparo pudras sian vizaĝon. Li timas. La internaĵoj ad-
-
-stringiĝas. Do ne Pieroto, sed Arlekeno estas via sorto, li pensas. ĉu vi scias, kiel gravas ĉi tiu paŝo? ĉielo, terenfalu! Mi, Gasparo Deburau, ludas hodiaŭ Arlekenon. Arlekenon, kiun
+Gasparo pudras sian vizaĝon. Li timas. La internaĵoj adstringiĝas. Do ne Pieroto, sed Arlekeno estas via sorto, li pensas. ĉu vi scias, kiel gravas ĉi tiu paŝo? ĉielo, terenfalu! Mi, Gasparo Deburau, ludas hodiaŭ Arlekenon. Arlekenon, kiun
 
 prezentadis Frederiko kaj Felikso! Sed estas tempo nek por
 
@@ -7428,17 +5996,13 @@ surscenejen! Gasparo kraĉas sian bildon enspegule:
 
 ”Tion vi repagos al mi, Aglae!”
 
-La sursceneja lumo lin ĉirkaŭbrakas. Post kuliso Gasparo la-
-
-sas la febron. Eniras Arlekeno. Perfekte li konas la rolon.
+La sursceneja lumo lin ĉirkaŭbrakas. Post kuliso Gasparo lasas la febron. Eniras Arlekeno. Perfekte li konas la rolon.
 
 Centfoje li vidis ĝin, centfoje li ripetis ĝin al si enmense. Kelke da aŭdacaj saltoj post la eskapantan Kolombinan. Jam li estas ĉe ŝi kaj preteras ŝin molpaŝe. Li kaptas la ĵetitan rozon.
 
 Li volas ŝin brakumi. Sed atenton, venas rivalo. Ni kaŝu nin!
 
-Deburau apogas sin je la kuliso kaj anhelas. Iu dedorse fra-
-
-petas lian ŝultron. Tiu estas Fabien, sed Gasparo ne vidas lin.
+Deburau apogas sin je la kuliso kaj anhelas. Iu dedorse frapetas lian ŝultron. Tiu estas Fabien, sed Gasparo ne vidas lin.
 
 Li ardas pro batalemo. Denove li estas sur la scenejo. La rivalo ekatakas lin, sed ricevas vipofrapon kaj — kuŝas. Arlekeno lin
 
@@ -7446,25 +6010,18 @@ transsaltas, ekridas, ekdancas. Gasparo ĉion pririgardas de
 
 Felikso ĝis la lasta detalo. La imitado nedistingebla.
 
-La ludo Gasparon ebriigas. Nur en neobserveblaj momen-
+La ludo Gasparon ebriigas. Nur en neobserveblaj momentoj en lia memo eklumas demandsigno: ”ĉu tio entute ne
 
-toj en lia memo eklumas demandsigno: ”ĉu tio entute ne
-
-estas misprezentita? ĉu vi ne eraras? Sed ekbrilo de poltro-
-
-neco perdiĝas kaj Gasparo havas denove antaŭ la okuloj Fe-
+estas misprezentita? ĉu vi ne eraras? Sed ekbrilo de poltroneco perdiĝas kaj Gasparo havas denove antaŭ la okuloj Fe-
 
 likson, kiu kredas lin kaj kiu kondukas lin. Jes, li sekvas ĉiun lian paŝon, ĉiun geston, ĉiun grimacon.
 
 **148**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Ekscitiĝo post la kulisoj malaperas. Eblas sidiĝi kaj ekspi-
-
-ri. ”Ververa Felikso,” flustras Fabien al Bertrand entuziasme.
+Ekscitiĝo post la kulisoj malaperas. Eblas sidiĝi kaj ekspiri. ”Ververa Felikso,” flustras Fabien al Bertrand entuziasme.
 
 Gasparo naĝas per flugiloj de fierego. Por li, kiu estis ĉiam
 
@@ -7474,9 +6031,7 @@ prezentado pasis tiel rapide.
 
 Rendevuo kun la amatino. Kiom da tenero li metis en la
 
-rigardon! Tiel eble eĉ Felikso mem neniam ŝin rigardis. ĉar vi, Kolombina, orgojla kaj vantema, kiu min alifoje apenaŭ ekrimarkas, vi estas unu el miaj sekretaj amoj, nun fine mi prok-
-
-simas al vi. La lumoj malintensiĝis, venas vespero. Mi eksidas
+rigardon! Tiel eble eĉ Felikso mem neniam ŝin rigardis. ĉar vi, Kolombina, orgojla kaj vantema, kiu min alifoje apenaŭ ekrimarkas, vi estas unu el miaj sekretaj amoj, nun fine mi proksimas al vi. La lumoj malintensiĝis, venas vespero. Mi eksidas
 
 ĉe viaj piedoj kaj mi metas mian vizaĝon en vian sinon. Kiel
 
@@ -7486,9 +6041,7 @@ aspiris povi kun vi foje ludi! ĉu vi aŭdas la belajn vortojn,
 
 kiujn diras al vi mia rigardo?
 
-ĉu vere? Tiu ĵus alvenanta estas Deburau? Tiu ridinda ĉe-
-
-mizulo kun taŭtita hararo ĉirkaŭ la kalvaĵo kaj kun la ruĝa
+ĉu vere? Tiu ĵus alvenanta estas Deburau? Tiu ridinda ĉemizulo kun taŭtita hararo ĉirkaŭ la kalvaĵo kaj kun la ruĝa
 
 nazo? Tiu timigilo, tiu monstro? Tio estis, mi petas, iam lia
 
@@ -7496,9 +6049,7 @@ rolo. Ankoraŭ hieraŭ! Sed hodiaŭ, hodiaŭ Deburau estas ĉi
 
 tie, en la kostumo de Arlekeno — kaj ci, monstro, malaperu,
 
-ne rememorigu al mi la tristan pasintecon! Kaj Arlekeno levi-
-
-ĝas de la piedoj de la amatino, kaj pli frue ol necesas, elpelas la hidan rememoron de la hieraŭo. Li impete prenas Kolombinan al danco de la venkanta juneco.
+ne rememorigu al mi la tristan pasintecon! Kaj Arlekeno leviĝas de la piedoj de la amatino, kaj pli frue ol necesas, elpelas la hidan rememoron de la hieraŭo. Li impete prenas Kolombinan al danco de la venkanta juneco.
 
 Eĉ kredi li ne volis, ke venis jam la fino. La kurteno supren!
 
@@ -7506,19 +6057,14 @@ Eĉ kredi li ne volis, ke venis jam la fino. La kurteno supren!
 
 **149**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-aŭtomate, ĉar oni aplaŭdas. ĉio samas, kiel iam, la primado-
-
-no ĉarme riverencas kaj dissendas kisojn al flatitaj loĝioj, la ceteraj dankas kutime — nur Gasparo staras kaj rigide rigardas la spektaklejon.
+aŭtomate, ĉar oni aplaŭdas. ĉio samas, kiel iam, la primadono ĉarme riverencas kaj dissendas kisojn al flatitaj loĝioj, la ceteraj dankas kutime — nur Gasparo staras kaj rigide rigardas la spektaklejon.
 
 Iu lin puŝetas kaj subite li estas sola kun Kolombina antaŭ
 
-la kurteno. La homoj ridetas kaj ne ĉesas aplaŭdi. Ion oni vo-
-
-kas. En loĝio apud la scenejo estas belega virino. Sed Gasparo
+la kurteno. La homoj ridetas kaj ne ĉesas aplaŭdi. Ion oni vokas. En loĝio apud la scenejo estas belega virino. Sed Gasparo
 
 ne vidas ŝian vizaĝon. Li vidas nur etajn, blankajn polmojn,
 
@@ -7546,9 +6092,7 @@ Ankoraŭ kelkaj lastaj ekkrioj.
 
 lumigisto.
 
-Honte li forkuras desur la scenejo. Kion vi scias, vi maku-
-
-lulo, kia ĝi estas, kiam oni gustumas la aktoran gloron! ĉu
+Honte li forkuras desur la scenejo. Kion vi scias, vi makululo, kia ĝi estas, kiam oni gustumas la aktoran gloron! ĉu
 
 iam vi riverencis al partero kaj al loĝioj kiel Arlekeno? Tiun
 
@@ -7560,27 +6104,18 @@ Neniu diras ion al li, ĉiuj rapidas kiel ĉiam kaj parolas an-
 
 **150**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-koraŭ malpli ol iam. Bone, diras al Gasparo lia sperto. Apar-
+koraŭ malpli ol iam. Bone, diras al Gasparo lia sperto. Apartenis al vi la gloro, ĉar jam aperis ĉi tie ĝia fidela akompanan-to, envio.
 
-tenis al vi la gloro, ĉar jam aperis ĉi tie ĝia fidela akompanan-to, envio.
+Alvenas direktoro Bertrand. ”Jen vi havas peceton da sapo,” li diras al li, kaj metas ĝin surranden de lavabo. La koro de Gasparo eksaltetas. Tion la direktoro neniam al iu faris.
 
-Alvenas direktoro Bertrand. ”Jen vi havas peceton da sa-
-
-po,” li diras al li, kaj metas ĝin surranden de lavabo. La koro de Gasparo eksaltetas. Tion la direktoro neniam al iu faris.
-
-”Dankon, sinjoro Bertrand.” Etendante la manon al la sa-
-
-po, la direktoro enŝovas en lian polmon ankoraŭ kelkajn mo-
+”Dankon, sinjoro Bertrand.” Etendante la manon al la sapo, la direktoro enŝovas en lian polmon ankoraŭ kelkajn mo-
 
 nerojn.
 
-”Vi havis bonŝancon,” li diras samtempe. ”Vi ne estis dis-
-
-tingebla de Felikso.”
+”Vi havis bonŝancon,” li diras samtempe. ”Vi ne estis distingebla de Felikso.”
 
 Gasparo ŝate dirus al li, ke tio ne estis bonŝanco, ke tiel li
 
@@ -7608,9 +6143,7 @@ nur tiel: ”Bonan nokton!”
 
 Varmeta kaj bonodora somera mallumo lin alfluas. Post
 
-mucida fetoro de la nehigienaj vestgardejoj kvazaŭ oni trin-
-
-kus font-akvon. De ie alhastas robinio-aromo.
+mucida fetoro de la nehigienaj vestgardejoj kvazaŭ oni trinkus font-akvon. De ie alhastas robinio-aromo.
 
 ”i estis bela, sinjoro Deburau, kredu min,” aŭdiĝis post li.
 
@@ -7620,7 +6153,6 @@ multon. Vi ludis ĝuste kiel sinjoro Frederiko.”
 
 **151**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7628,17 +6160,13 @@ Gasparo volonte ŝin ĉirkaŭprenus kaj kisus.
 
 ”Jes, jes,” li diris nur: ”Bonan nokton.”
 
-Enpoŝe tintas kelkaj frankoj de la direktoro. Olala! Hodi-
-
-aŭ apartenas al ni la tuta bulvardo! Kian trinkaĵon ni verŝigu
+Enpoŝe tintas kelkaj frankoj de la direktoro. Olala! Hodiaŭ apartenas al ni la tuta bulvardo! Kian trinkaĵon ni verŝigu
 
 al ni? Preteriras virino kun viro. ĉu vi estas tiu, kiu antaŭ tempeto aplaŭdis al mi? Jen mi, sciate? Hodiaŭ mi estis kuraĝa
 
 Arlekeno, ĉu vi ne rekonas min? Poste subite li ekvidis eliri tra la malantaŭa pordo direktoron Bertrand. Li haltis, ĉar al li
 
-kuras la pordisto, kiu veturigis Felikson enhospitalen. La in-
-
-formoj pozitivas, la direktoro ekridis.
+kuras la pordisto, kiu veturigis Felikson enhospitalen. La informoj pozitivas, la direktoro ekridis.
 
 ”ĉu vi aŭdas?” li vokas je Gasparo. Io ene en li protestas
 
@@ -7648,9 +6176,7 @@ finpensi tion.
 
 tujsekve la doloro cedis. Morgaŭ denove ĉio bonordos.”
 
-Li levis bastonon al la ĉapelo kaj foriras. La pordisto ma-
-
-laperis en pordo de la teatro. Gasparo staras ĝis nun senmo-
+Li levis bastonon al la ĉapelo kaj foriras. La pordisto malaperis en pordo de la teatro. Gasparo staras ĝis nun senmo-
 
 ve kaj rigardas post la balanciĝanta silueto de Bertrand. Poste li faras kelkajn rapidajn saltojn al li.
 
@@ -7668,25 +6194,18 @@ Bertrand.
 
 ”Mi opiniis, ke eble iam.”
 
-”ĉu eble vi volus ludadi lin? ĉu vi opinias, ke Felikso tole-
+”ĉu eble vi volus ludadi lin? ĉu vi opinias, ke Felikso tolerus tion? Eĉ ne nunfoje!” Gasparo estis falanta pli kaj pli profunden.
 
-rus tion? Eĉ ne nunfoje!” Gasparo estis falanta pli kaj pli profunden.
-
-”Mi volas de li nenion forpreni. Nur mi pensis, eble pli po-
-
-ste aŭ se li denove ekmalsanus.”
+”Mi volas de li nenion forpreni. Nur mi pensis, eble pli poste aŭ se li denove ekmalsanus.”
 
 **152**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Ni preparos al li oleon en la vestejo. Vi aŭdis la homojn!
 
-Mi havas grandan intereson, ke Felikso estu ĉiutage sursce-
-
-neje.”
+Mi havas grandan intereson, ke Felikso estu ĉiutage sursceneje.”
 
 Des pli profunda falo, ju pli alten tiu vespero Gasparon
 
@@ -7694,19 +6213,13 @@ suprenlevis. ”Vi alportis al mi sapon… ŝajnis al mi, ke mi scius eble ion a
 
 ”Nur trankvile faru, kion vi scias fari!”
 
-Al Gasparo mankis jam vortoj por plu peti. Nur la sinkan-
+Al Gasparo mankis jam vortoj por plu peti. Nur la sinkantaj brakoj elokventis. Bertrand tion rekonis.
 
-taj brakoj elokventis. Bertrand tion rekonis.
-
-”Kaj ĉu tio ĉagrenas vin? Sensencaj ideoj! Vi ne darfas troi-
-
-gi. Se vi scias iun imiti, tio ankoraŭ ne signifas, ke vi estas aktoro.”
+”Kaj ĉu tio ĉagrenas vin? Sensencaj ideoj! Vi ne darfas troigi. Se vi scias iun imiti, tio ankoraŭ ne signifas, ke vi estas aktoro.”
 
 Li frapetis per bastoneto lian ŝultron.
 
-”Nur iru trankvile trinki — kaj estu feliĉa, ke Felikso re-
-
-saniĝis. Tiun frenezaĵon for el via kapo!”
+”Nur iru trankvile trinki — kaj estu feliĉa, ke Felikso resaniĝis. Tiun frenezaĵon for el via kapo!”
 
 Kaj denove la bastoneto ektuŝis la ĉapelon.
 
@@ -7716,7 +6229,6 @@ Deburau restis sola antaŭ la fermita pordego de la teatro.
 
 **153**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7731,9 +6243,7 @@ o
 
 nas ĉiuj sonoj ĉirkaŭ li, lumoj elmergiĝas el tenebro kaj
 
-denove en ĝin enfalas — kaj li iras kvazaŭ iu lin antaŭenpuŝe-
-
-tus, lante, pezpaŝe. Kaj la nokto lin intence kondukas en mal-
+denove en ĝin enfalas — kaj li iras kvazaŭ iu lin antaŭenpuŝetus, lante, pezpaŝe. Kaj la nokto lin intence kondukas en mal-
 
 larĝajn stratetojn, kie la domoj estas ruiniĝontaj kaj kie el
 
@@ -7743,9 +6253,7 @@ knaras en silento ventflagetoj. Iu virino lin alparolis. Sed kva-zaŭ vi alparol
 
 Oni igis ekkoni al li, kion li sopiris tiom da jaroj. Ili alŝovis al lia buŝo surŝmiritan pantranĉaĵon kaj kiam la malsata mizerulo enspiris — ili fortiris la glutpecon reen. Dum li ne sciis, kiel ebriigas sceneja sukceso, estis ĉio nur turmentado pro la
 
-malcerteco. Nun estas multe pli malbone. Kaj kiel estos mor-
-
-gaŭ.
+malcerteco. Nun estas multe pli malbone. Kaj kiel estos morgaŭ.
 
 Longe li iris. De temp’ al tempo li ekrimarkis, ke li revenas,
 
@@ -7759,19 +6267,14 @@ kuraĝa, se vi ne havas sufiĉe da kuraĝo enkore. Kanzono kaj
 
 rido alflugis al li tra malhelaj vitroj. Li ĉirkaŭrigardis . Li vagis ĉiam ronden. La gastejo ”ĉe Blanka Urso”. Li premis la
 
-kln kaj la dua mano kaptis enpoŝe la frankojn, kiujn ho-
-
-diaŭ perlaboris la falsa Arlekeno. Tio estis eta gastejo kun
+kln kaj la dua mano kaptis enpoŝe la frankojn, kiujn hodiaŭ perlaboris la falsa Arlekeno. Tio estis eta gastejo kun
 
 **154**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-nudaj muroj kaj kun batpremita planko. Malgraŭ tio ĝi as-
-
-pektis hejmece. i plenis de hom-grupetoj, densaj fumnuboj
+nudaj muroj kaj kun batpremita planko. Malgraŭ tio ĝi aspektis hejmece. i plenis de hom-grupetoj, densaj fumnuboj
 
 kaj odoro de malkara pudro. Sur la tabloj vaporis pokaletoj de
 
@@ -7779,17 +6282,11 @@ la varma cidro, frukta vino.
 
 La specialaĵo de tiu ĉi gastejo estis maskitaj kelnerinoj.
 
-Kiam knabino kun blua masko survizaĝe haltis ĉe Gaspa-
+Kiam knabino kun blua masko survizaĝe haltis ĉe Gasparo, lin tio ekscitis. ĉu ne memorigo de la perdita ludo? Aŭ
 
-ro, lin tio ekscitis. ĉu ne memorigo de la perdita ludo? Aŭ
+sekretoj de la tempo futura? Li observis ĉiun paŝon de nigraharulino kun masko, kaj kiam ŝi revenis kun vinbotelo, li en-
 
-sekretoj de la tempo futura? Li observis ĉiun paŝon de nigra-
-
-harulino kun masko, kaj kiam ŝi revenis kun vinbotelo, li en-
-
-rigardis ŝiajn okulojn timeme kaj avide, kvazaŭ volante tra-
-
-legi el ili sian sorton. La okuloj fermetiĝis kaj ekridetis. ĉu bona vino?
+rigardis ŝiajn okulojn timeme kaj avide, kvazaŭ volante tralegi el ili sian sorton. La okuloj fermetiĝis kaj ekridetis. ĉu bona vino?
 
 Kverelemaj voĉoj venadis ĝis li.
 
@@ -7801,9 +6298,7 @@ Ili estis teatro-vizitantoj kaj kverelis pri la nova lumigado
 
 en la parizaj teatroj. i estis atraktiva, sed samtempe danĝera.
 
-”Incendion sekvas incendio! Tio dum la olea erao ne oka-
-
-zis!”
+”Incendion sekvas incendio! Tio dum la olea erao ne okazis!”
 
 ĉiusemajne ie brulis.
 
@@ -7811,9 +6306,7 @@ Unu el la skermo-majstroj enmiksiĝis en la konversacion.
 
 Li parolis serioze, profundbase, kiel biblia predikanto: ”Miaj
 
-junaj amikoj, ekzistas ankoraŭ aliaj incendioj, kiujn ni travi-
-
-vas en teatro.”
+junaj amikoj, ekzistas ankoraŭ aliaj incendioj, kiujn ni travivas en teatro.”
 
 ”Kiaj?”
 
@@ -7827,7 +6320,6 @@ kapojn.
 
 **155**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7835,17 +6327,13 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 el Arlington?” senĝene diris la majstro en la skermarto.
 
-”Vi sidas en la spektaklejo. Kiam oni eklumigas, kaj li ape-
-
-ras en la blua mantelo — io ekbruletas en via interno. Li ardi-
+”Vi sidas en la spektaklejo. Kiam oni eklumigas, kaj li aperas en la blua mantelo — io ekbruletas en via interno. Li ardi-
 
 ĝas — kaj en via animo eksaltas la unuaj flametoj. Li ardas kaj ankaŭ vi kun li. Temas pri lia vivo, pri lia honoro, kaj via interno estas nura ardaĵo, blanke inkandeskanta. ĉio, kio en vi
 
 fias kaj mavas, ĉio konsumiĝas. Kaj kiam la batalo finiĝis, kaj Rikardo Arlington oferas sian vivon pro virto — la flamoj lante kuŝiĝas. Sed tio ne estas brulejo, tio ne estas brulruinoj.
 
-Nur la malbono malaperis — restas nur pura animo. ĉio ma-
-
-va forbrulis en tiu belega fajro. Jen flamoj, kiujn konas mi,
+Nur la malbono malaperis — restas nur pura animo. ĉio mava forbrulis en tiu belega fajro. Jen flamoj, kiujn konas mi,
 
 amikoj.”
 
@@ -7861,9 +6349,7 @@ la spektantoj kaj kian transformon ĝi kaŭzas en ili. La maskita knabino fiksri
 
 estas la frankoj, kiujn donacis al li la publiko, ĉar li ekflamigis en ĝi etan, fridan flameton. Du boteloj da vino el Arbois
 
-sufiĉas por unu vespero en la rolo de Arlekeno. Fakte ĝi mul-
-
-tas. Gasparo ja ŝate pagus, se li darfus ludi. Du boteloj da vino sufiĉas por Arlekeno kaj sufiĉas por Gasparo. Lia vizaĝo malkvietas, liaj trajtoj degelas. Estas momentoj kiam li emus ridi.
+sufiĉas por unu vespero en la rolo de Arlekeno. Fakte ĝi multas. Gasparo ja ŝate pagus, se li darfus ludi. Du boteloj da vino sufiĉas por Arlekeno kaj sufiĉas por Gasparo. Lia vizaĝo malkvietas, liaj trajtoj degelas. Estas momentoj kiam li emus ridi.
 
 Li flustras al si sensencajn vortojn.
 
@@ -7877,13 +6363,10 @@ homo.”
 
 **156**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Jes. Teatro estas laika templo, kie la homaj animoj kon-
-
-vertiĝas al virto,” konfirmas la skermisto. Al Fancioull ŝajnas, ke longe li silentis. Li prenas gitaron kaj tintigas la kordojn.
+”Jes. Teatro estas laika templo, kie la homaj animoj konvertiĝas al virto,” konfirmas la skermisto. Al Fancioull ŝajnas, ke longe li silentis. Li prenas gitaron kaj tintigas la kordojn.
 
 ”ĉu vi scias, kion kanti?” vokas iu el ili.
 
@@ -7911,19 +6394,13 @@ tiu imago. Ne, tio ne estas Sejno, sed la marsurfaco kaj sur ĝi navigas ŝipo.
 
 *Eĉ malamikoj hodiaŭ ekploris!” *
 
-La animo de Gasparo naĝas sur ondoj. En liaj okuloj tene-
-
-bro pro kapturno el la profundo, super kiu li naĝas. Kaj en
+La animo de Gasparo naĝas sur ondoj. En liaj okuloj tenebro pro kapturno el la profundo, super kiu li naĝas. Kaj en
 
 vidatingeblo — roko kun nigra flago. Al kiu ĝi apartenas?
 
-La olda skermisto kapbalancas. ”La gloro estas trompa afe-
+La olda skermisto kapbalancas. ”La gloro estas trompa afero kaj ne ĉiu estas kreita por ĝi. Ankaŭ Talma foriros, lia gloro forpasos. Kaj kiom da laboro, kiom da strebado li bezonis!”
 
-ro kaj ne ĉiu estas kreita por ĝi. Ankaŭ Talma foriros, lia gloro forpasos. Kaj kiom da laboro, kiom da strebado li bezonis!”
-
-”Sed kiom da feliĉo li disdonis,” diras alia kaj levas la gla-
-
-son. ”Je lia sano! Dankon pro ĉio, kion li donis al ni!”
+”Sed kiom da feliĉo li disdonis,” diras alia kaj levas la glason. ”Je lia sano! Dankon pro ĉio, kion li donis al ni!”
 
 ”Je Rikardo!” diras la grizulo.
 
@@ -7931,7 +6408,6 @@ son. ”Je lia sano! Dankon pro ĉio, kion li donis al ni!”
 
 **157**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -7941,19 +6417,13 @@ eble vi ne ŝatas niajn aktorojn?”
 
 Gasparo leviĝas. En lia cerbo naskiĝas fantoma ideo: Fariĝi
 
-Talma de pantomimo! Iĝi riĉa donacanto! Sed kiu vojo kon-
+Talma de pantomimo! Iĝi riĉa donacanto! Sed kiu vojo kondukas al tio, kaj kie li vojeraris?
 
-dukas al tio, kaj kie li vojeraris?
-
-”Je Otelo!” diras la studento, kaj ĉiuj levas la glasojn. Gas-
-
-paro trinkas la lastan glason. Liaj okuloj brulas. En la fumo
+”Je Otelo!” diras la studento, kaj ĉiuj levas la glasojn. Gasparo trinkas la lastan glason. Liaj okuloj brulas. En la fumo
 
 ŝvebas novaj kaj novaj nomoj, ĉiu el ili signifas grandan kaj
 
-belan donacon — kaj Gasparo jam trinkas absinton, ĉar li vi-
-
-das antaŭ si malplenon kaj vanecon de sia vivo, ĉar al neniu
+belan donacon — kaj Gasparo jam trinkas absinton, ĉar li vidas antaŭ si malplenon kaj vanecon de sia vivo, ĉar al neniu
 
 iam ion li donacos, neniun helpos.
 
@@ -7963,9 +6433,7 @@ al la granda aktoro.
 
 Sur la vojo de Gasparo flagras nigra standardo.
 
-”Je Arlekeno!” li vokas subite per obstina kaj venĝema ek-
-
-krio. ĉiuj turniĝas al li. Sed jam li vidas nenion, fintrinkas, metas manplenon da mono surtablen kaj stumbletas al pordo. La homoj ĉirkaŭ la tablo ne ridis. Iliaj rigardoj estis kompataj; eble ŝate ili helpus. Sed Gasparo peze aliris al pordo kaj malaperis. La maskita kelnerino fermas post li.
+”Je Arlekeno!” li vokas subite per obstina kaj venĝema ekkrio. ĉiuj turniĝas al li. Sed jam li vidas nenion, fintrinkas, metas manplenon da mono surtablen kaj stumbletas al pordo. La homoj ĉirkaŭ la tablo ne ridis. Iliaj rigardoj estis kompataj; eble ŝate ili helpus. Sed Gasparo peze aliris al pordo kaj malaperis. La maskita kelnerino fermas post li.
 
 ”Tro multe li trinkis,” diras la skermisto serioze. ”Okazis al
 
@@ -7973,35 +6441,24 @@ li versimile io malĝojiga.”
 
 **158**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Memmortigo
 
-Defendu vin, rekolektu la kuraĝon! Sed por kio? Se vi ha-
+Defendu vin, rekolektu la kuraĝon! Sed por kio? Se vi havas antaŭ vi ion, por kio vi batalas, bone. Sed se antaŭe
 
-vas antaŭ vi ion, por kio vi batalas, bone. Sed se antaŭe
-
-oni forprenis de vi ĉiujn celojn? Nigra flago! Miloj da similu-
-
-loj ekzistas, sed la lasta el ili estas mi. ĉiu havas almenaŭ unu homon, kiun li povus pridonaci. Mi jam ne. Kaj mi ne scias
+oni forprenis de vi ĉiujn celojn? Nigra flago! Miloj da similuloj ekzistas, sed la lasta el ili estas mi. ĉiu havas almenaŭ unu homon, kiun li povus pridonaci. Mi jam ne. Kaj mi ne scias
 
 vivi nur por mi mem. Mi bezonas homojn. Mi bezonas iliajn
 
 okulojn, ilian intereson, spiron, animon. Mi ne kulpas pro tio, tiel mi estas kreita. Por mi ĝi estas aero. Aŭ mi spiros aŭ pe-reos.
 
-Post fenestroj, kiujn li preterpasas, vivas homoj. Ili respi-
+Post fenestroj, kiujn li preterpasas, vivas homoj. Ili respiras trankvile dumdorme. Geedzoj, geamantoj, familioj, flank’
 
-ras trankvile dumdorme. Geedzoj, geamantoj, familioj, flank’
+ĉe flanko. Kaj aliaj eble ankaŭ solecas, sed post kiam ili leviĝos, ili renkontos konatajn vizaĝojn. Ili havas gepatrojn, in-
 
-ĉe flanko. Kaj aliaj eble ankaŭ solecas, sed post kiam ili levi-
-
-ĝos, ili renkontos konatajn vizaĝojn. Ili havas gepatrojn, in-
-
-fanojn. Nur li, se la tutan mondon li tramigrus, li trovos ne-
-
-niun. Kion fari? is hodiaŭ vi ne scias, kion al vi sufloras la vivo, vi fuŝaktoro?
+fanojn. Nur li, se la tutan mondon li tramigrus, li trovos neniun. Kion fari? is hodiaŭ vi ne scias, kion al vi sufloras la vivo, vi fuŝaktoro?
 
 Li ne komprenas, li ne volas. Li spitas kompreni. Sed kiam
 
@@ -8017,15 +6474,12 @@ viro enspegule tion diras samtempe kun li, en la spegulo de
 
 **159**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 parfumisto sur stratangulo, frakasita per bastono aŭ ŝtono.
 
-Sed Gasparo vidas bone. Tio estas ci. Kion ci volas? El la oku-
-
-loj de la kontraŭulo enspegule malaperas tristo; ili pleniĝis de malamo. Jes, mi malamas cin. Cian mallarĝan vizaĝon, ciajn
+Sed Gasparo vidas bone. Tio estas ci. Kion ci volas? El la okuloj de la kontraŭulo enspegule malaperas tristo; ili pleniĝis de malamo. Jes, mi malamas cin. Cian mallarĝan vizaĝon, ciajn
 
 perfidemajn okulojn, cian lacan kaj idiotan esprimon. Kiel ci
 
@@ -8035,13 +6489,9 @@ mastro super la vivo? Ci estas pajaco Pieroto kaj ci perfidis lin.
 
 ĉiu perfido venĝiĝas. Neniun interesas, kio sin kaŝas post cia
 
-vizaĝo, Gasparo, idioto, Pieroto, figureto konvena por vango-
+vizaĝo, Gasparo, idioto, Pieroto, figureto konvena por vangofrapoj.
 
-frapoj.
-
-Li observis sin mem per longa konsterna rigardo. Tiu kon-
-
-traŭe rigardas same. Gasparo devas sub tiu silentema juĝo de
+Li observis sin mem per longa konsterna rigardo. Tiu kontraŭe rigardas same. Gasparo devas sub tiu silentema juĝo de
 
 la severaj okuloj per sia tuta memo konfesi sian vanecon. Al
 
@@ -8049,33 +6499,24 @@ sia fino.
 
 Nun! Kion li ekperceptis? Ion novan? Li timas movi eĉ nur
 
-unu vizaĝtrajton. Ne plu estas Pieroto. Kia fizionomio ĝi es-
-
-tas? Kie li ekvidis ĝin? Kaj subite li rememoras. i estas vizaĝo de Izidoro Foulard, iranta al morto.
+unu vizaĝtrajton. Ne plu estas Pieroto. Kia fizionomio ĝi estas? Kie li ekvidis ĝin? Kaj subite li rememoras. i estas vizaĝo de Izidoro Foulard, iranta al morto.
 
 Volonte li ekmovus sin, ŝate li neniigus la esprimon, sed li
 
-ne povas. Kvazaŭ sur lia vizaĝo kuŝus marmora masko. Viza-
+ne povas. Kvazaŭ sur lia vizaĝo kuŝus marmora masko. Vizaĝo de homo, kiu adiaŭas la mondon.
 
-ĝo de homo, kiu adiaŭas la mondon.
-
-Gasparon teruras la vero, kiun montris al li la propra vi-
-
-zaĝo. Iu alia eble tion ne rekonus. Sed li jes, ĉar lia vizaĝo
+Gasparon teruras la vero, kiun montris al li la propra vizaĝo. Iu alia eble tion ne rekonus. Sed li jes, ĉar lia vizaĝo
 
 kapablas malkaŝi ankaŭ la plej sekretan ideon. Kaj li vidis
 
 lastsekunde Izidoron Foulard.
 
-Li forlasas sian socion kaj faras kelkajn paŝojn tra la stra-
-
-to. Antaŭ li aperis abomena silueto de giganta besto paŝan-
+Li forlasas sian socion kaj faras kelkajn paŝojn tra la strato. Antaŭ li aperis abomena silueto de giganta besto paŝan-
 
 ta sur kelkaj kruroj. Sub la kruraĉoj de la monstro rebrilas la ĉielo. Li volus fuĝi, malaperi, disŝiri la propran vizaĝon kaj
 
 **160**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8087,9 +6528,7 @@ Ponto d’Austerlitz!
 
 La balustrado malklare brilas. ĉio apud la akvo aspektas
 
-morbe kaj mukoze. La firmamento, kajo, rivero. Fiŝodoro as-
-
-cendas desur la akvosurfaco. Lia stomako naŭzas. Li klinas sin
+morbe kaj mukoze. La firmamento, kajo, rivero. Fiŝodoro ascendas desur la akvosurfaco. Lia stomako naŭzas. Li klinas sin
 
 trans la balustradon kaj vomas. Li abomenas sin mem. Li
 
@@ -8101,15 +6540,11 @@ li la propran spiron. Domoj kliniĝas, la ponto de Austerlitz
 
 dancas kiel urso sur mallertaj kruroj. La lumoj pikas en la
 
-okulojn. Estas malbone, malbone. Tuta li renversiĝas kaj ri-
-
-gardas la mondon per la elturnitaj okuloj.
+okulojn. Estas malbone, malbone. Tuta li renversiĝas kaj rigardas la mondon per la elturnitaj okuloj.
 
 Lante li descendas sur ŝtonoj kaj mallarĝaj ŝtupetoj al la
 
-rivero. Tuj apud la akvo malaltas digo, haveno por etaj bar-
-
-koj. Dumtage tie restadas vendistoj de fruktoj kaj lano. La
+rivero. Tuj apud la akvo malaltas digo, haveno por etaj barkoj. Dumtage tie restadas vendistoj de fruktoj kaj lano. La
 
 digo kondukas ĝis sub la ponto.
 
@@ -8117,25 +6552,18 @@ Gasparo devas iri tien, mem ne sciante kial. La vizaĝo en
 
 la spegulo ordonis tion al li. La mondo ne havas intereson, ke
 
-li vivu. ĉio vanas, malplenas, malamikas. Li staras sub la pon-
-
-to. Kiel fartis vi, panjo, kiam vi tiam iris al la rivero? Rememoro pri malvarmaj, nigraj pavimoj. Li ekhezitis. Li ĉirkaŭrigar-
+li vivu. ĉio vanas, malplenas, malamikas. Li staras sub la ponto. Kiel fartis vi, panjo, kiam vi tiam iris al la rivero? Rememoro pri malvarmaj, nigraj pavimoj. Li ekhezitis. Li ĉirkaŭrigar-
 
 das kiel frakasito. Se almenaŭ vaglumo de espero ie aperus!
 
-Sed ĉirkaŭe nur nigro. Kaj antaŭ li, ĝis kie li vidatingas, ankaŭ nur la nigro. Nenio bona kaj bela, nur la maljusteco kaj mal-justumo, anstataŭ belo malpuro. Kaj la detrua spiro de va-
+Sed ĉirkaŭe nur nigro. Kaj antaŭ li, ĝis kie li vidatingas, ankaŭ nur la nigro. Nenio bona kaj bela, nur la maljusteco kaj mal-justumo, anstataŭ belo malpuro. Kaj la detrua spiro de vaneco.
 
-neco.
-
-La nigra spegulo kun flavaj rebriloj. ĉu vi rigardas vin, Ga-
-
-sparo? ĉu vi rigardas de pli proksime?
+La nigra spegulo kun flavaj rebriloj. ĉu vi rigardas vin, Gasparo? ĉu vi rigardas de pli proksime?
 
 Surponte iu iras. Kiajn atestantojn sendas la hazardo al li?
 
 **161**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8181,23 +6609,18 @@ du el la plej aĉaj vizaĝoj el la tuta periferio. El virino, kiu en-paŝis inte
 
 ”Vi ambaŭ estas latronoj!” stridis la inaĉo.
 
-Gasparo fermetis la okulojn, kvazaŭ iu kraĉus en lian viza-
-
-ĝon. Li kaŭriĝis kaj korpflanke falis en akvon. La rivero ek-
+Gasparo fermetis la okulojn, kvazaŭ iu kraĉus en lian vizaĝon. Li kaŭriĝis kaj korpflanke falis en akvon. La rivero ek-
 
 ŝprucis iom kaj ekŝaŭmis. Fortaj humidaj manoj ekpremis
 
 lian kolon kaj komencis lin strangoli. Sovaĝe li ekbaraktis. Sed la ondopleno kovris liajn okulojn kaj peze alpremiĝis al la
 
-tuta vizaĝo. Li ekvidis strangajn, ŝanĝitajn stellumojn. Defo-
-
-re rapidege proksimiĝis ega muĝado. ĉion englutis mallumo.
+tuta vizaĝo. Li ekvidis strangajn, ŝanĝitajn stellumojn. Defore rapidege proksimiĝis ega muĝado. ĉion englutis mallumo.
 
 La lasta manmovo post lumekbrilo, sed la manplatoj de la
 
 **162**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8213,23 +6636,15 @@ sonas la riverfundo? Homaj voĉoj.
 
 ”Liaj palpebroj tremetas,” diris la virino.
 
-”Jam ĉio bona,” diras raspa, raŭka voĉo. ”Sed kredu, Adol-
+”Jam ĉio bona,” diras raspa, raŭka voĉo. ”Sed kredu, Adolfo, ĝi okazis lastmomente.”
 
-fo, ĝi okazis lastmomente.”
-
-”Eble, ke en la lasta,” konsentis la alia. ”Sed gravas, ke ĝu-
-
-statempe.”
+”Eble, ke en la lasta,” konsentis la alia. ”Sed gravas, ke ĝustatempe.”
 
 ”Tia junulo,” bedaŭras la virino. ”Kial li malesperis?”
 
-”ĉu malprudenta? Idiota!” konkludas Kristoforo. ”Mi dro-
+”ĉu malprudenta? Idiota!” konkludas Kristoforo. ”Mi dronigos min — kaj jam li kuras. Tion scius fari ĉiu.”
 
-nigos min — kaj jam li kuras. Tion scius fari ĉiu.”
-
-Gasparo apertas la okulojn. La lumo lin impete frapas. Ra-
-
-pide kaj denove li fermas la palpebrojn. Hida sento ruliĝas al
+Gasparo apertas la okulojn. La lumo lin impete frapas. Rapide kaj denove li fermas la palpebrojn. Hida sento ruliĝas al
 
 lia gorĝo. Li tusas kaj sufokiĝas.
 
@@ -8237,15 +6652,11 @@ lia gorĝo. Li tusas kaj sufokiĝas.
 
 voĉo, kaj ies manoj lin levetas. Gasparo kraĉas akvon, ruktas,
 
-balbutas. Fine li aŭdacis lasi la okulojn aperte. Li kuŝas sur-
-
-tere. Li estas senvestigita, sed transŝultre li havas kurtenon
+balbutas. Fine li aŭdacis lasi la okulojn aperte. Li kuŝas surtere. Li estas senvestigita, sed transŝultre li havas kurtenon
 
 kaj la kruroj estas volvitaj en fremda mantelo.
 
-Apud li genuas virino. Lante kaj per okuloj ankoraŭ nebu-
-
-laj, li trovas ŝian vizaĝon. De kie li konas ĝin? Encerbe lante heliĝas. Kie li troviĝas? Kaj tiu vizaĝo? i ne estas bela, frunto malalta, lentuga, la buŝo larĝa kaj la hararo taŭzita. En lia
+Apud li genuas virino. Lante kaj per okuloj ankoraŭ nebulaj, li trovas ŝian vizaĝon. De kie li konas ĝin? Encerbe lante heliĝas. Kie li troviĝas? Kaj tiu vizaĝo? i ne estas bela, frunto malalta, lentuga, la buŝo larĝa kaj la hararo taŭzita. En lia
 
 rememoro ekbriletis. La ponto. Lumo super la balustrado!
 
@@ -8255,19 +6666,14 @@ Li ekrigardas ankoraŭ unufoje. La virino ekridetas. Kaj Ga-
 
 **163**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-sparo pie okulfiksas ŝin. Kiam ŝi ekridetis, en la okuloj ape-
-
-ris tiom da boneco kaj afableco, ke ŝi aspektis kiel madono.
+sparo pie okulfiksas ŝin. Kiam ŝi ekridetis, en la okuloj aperis tiom da boneco kaj afableco, ke ŝi aspektis kiel madono.
 
 ”ĉu li jam rekonsciiĝis?” aŭdiĝis voĉo malantaŭe.
 
-Gasparo provas apogi sin je la kubuto kaj rerigardi. Li ek-
-
-vidis du virojn. La kurteno deglitis desur liaj ŝultroj. Jes, jen ili. Kanajloj desur la ponto, kiuj per sia vulgara sceno venis
+Gasparo provas apogi sin je la kubuto kaj rerigardi. Li ekvidis du virojn. La kurteno deglitis desur liaj ŝultroj. Jes, jen ili. Kanajloj desur la ponto, kiuj per sia vulgara sceno venis
 
 kuraĝigi lin por memmortigo.
 
@@ -8275,9 +6681,7 @@ kuraĝigi lin por memmortigo.
 
 ”Ni ne lasos vin ja enakve, hometo,” diras la unua.
 
-”En rivero apartenas fiŝoj, ne homoj. Tie vi malbone tra-
-
-noktus.”
+”En rivero apartenas fiŝoj, ne homoj. Tie vi malbone tranoktus.”
 
 ”ĉu vi eltiris min el la akvo?”
 
@@ -8285,17 +6689,13 @@ noktus.”
 
 Gasparo konstatas, ke Kristoforo ankaŭ estas envolvita en
 
-iun kovraĵon kaj malantaŭe super la forno sekiĝas du malse-
-
-kaj vestoj.
+iun kovraĵon kaj malantaŭe super la forno sekiĝas du malsekaj vestoj.
 
 ”ĉu vi?”
 
 Kristoforo mallevas honteme sian rigardon kaj lia terure
 
-ruĝega vizaĝo, variol-difekta, surhavas ion, kio similas al ri-
-
-deto. ”Kiel diras Adolfo, la rivero — nenio taŭga por junuloj
+ruĝega vizaĝo, variol-difekta, surhavas ion, kio similas al rideto. ”Kiel diras Adolfo, la rivero — nenio taŭga por junuloj
 
 meze de nokto.”
 
@@ -8307,17 +6707,12 @@ virino.
 
 vizaĝo, plenkreskita de robusta barbo, kuraĝe povus prezenti
 
-rabistan ĉefon en marioneta teatro. ”Li tro impetiĝis. Tio fa-
+rabistan ĉefon en marioneta teatro. ”Li tro impetiĝis. Tio facile okazas.”
 
-cile okazas.”
-
-Gasparo ankoraŭ ne havas klaran kapon. Intermite ekso-
-
-nas ene bruego, fajfado. Homoj forŝiris desur lia gorĝo pezajn
+Gasparo ankoraŭ ne havas klaran kapon. Intermite eksonas ene bruego, fajfado. Homoj forŝiris desur lia gorĝo pezajn
 
 **164**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8329,9 +6724,7 @@ manojn de l’ rivero; sed ĉe tiu rememoro li tremetas, kvazaŭ
 
 ”ĉi tie, ĉe Kristoforo,” montras la rufa rabisto-ĉefo.
 
-”Tiu, kiu okupis vian vendejlokon?” sekvas Gasparo fade-
-
-non de la lastaj impresoj.
+”Tiu, kiu okupis vian vendejlokon?” sekvas Gasparo fadenon de la lastaj impresoj.
 
 ”Li estas tiu, mizerulo,” milde diras Adolfo.
 
@@ -8353,13 +6746,9 @@ li ekhezitas; li hontas diri: ili priŝtelis.
 
 Adolfo prirabus kiun ajn.”
 
-”Malriĉa homo devas ŝpari, kie eblas,” ŝultrolevetas Adol-
+”Malriĉa homo devas ŝpari, kie eblas,” ŝultrolevetas Adolfo.
 
-fo.
-
-”Sed kiel haste ni descendis de sur la ŝtuparo! Mi estis mal-
-
-supre unua.”
+”Sed kiel haste ni descendis de sur la ŝtuparo! Mi estis malsupre unua.”
 
 ”La unua,” ironias malrespekte Kristoforo. ”Unua vi haltis
 
@@ -8373,19 +6762,14 @@ Ili ambaŭ ridas pri siaj iom grobaj ŝercoj kaj al Gasparo, kiu
 
 kuŝas surtere kaj rigardas supren al iliaj vizaĝoj, subite ŝajnas: ĉiuj ĉi friponaj kaj sentaŭgaj homoj estas sanktaj. Post iliaj
 
-malglataj vizaĝoj kaj vortoj aperas lumeto de la homa bone-
-
-co.
+malglataj vizaĝoj kaj vortoj aperas lumeto de la homa boneco.
 
 **165**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Se vi elfiŝis la gaston, vi povus forrompi gorĝon al iu bo-
-
-telo,” proponas al la dommastro Adolfo.
+”Se vi elfiŝis la gaston, vi povus forrompi gorĝon al iu botelo,” proponas al la dommastro Adolfo.
 
 ”Mi ne volas vinon,” teruriĝas Gasparo.
 
@@ -8399,13 +6783,9 @@ io en ŝranko. Li tiras botelon.
 
 ”ĉit!” atentigas Kristoforo pri la savito.
 
-”Kiu fakte vi estas?” demandas la knabino, senĉece genu-
+”Kiu fakte vi estas?” demandas la knabino, senĉece genuanta ĉe Gasparo surtere.
 
-anta ĉe Gasparo surtere.
-
-”Aktoro,” flustras Gasparo, kaj post kiam li tion eldiris, kva-
-
-zaŭ minace revenus al li ondo de timo pri la futuro.
+”Aktoro,” flustras Gasparo, kaj post kiam li tion eldiris, kvazaŭ minace revenus al li ondo de timo pri la futuro.
 
 ”Komedianto?”
 
@@ -8417,15 +6797,11 @@ malmulte da distro. Kien forpasis tempoj, kiam ĉiupaŝe vi
 
 trovis sorĉiston, akrobaton, ĵongliston!”
 
-”ĉu ankaŭ vi elsorĉas kuniklon el ĉapo?” interesiĝas la ru-
-
-fulo.
+”ĉu ankaŭ vi elsorĉas kuniklon el ĉapo?” interesiĝas la rufulo.
 
 ”Mi ludas teatron,” bedaŭras Gasparo. ”Sursceneje.”
 
-”Mi ŝatas teatron,” ekbrilas Adolfo. ”Kiam aktoris ĉi tie ita-
-
-loj, mi iradis senpage. Sed eble por komedio vi estas tro mal-
+”Mi ŝatas teatron,” ekbrilas Adolfo. ”Kiam aktoris ĉi tie italoj, mi iradis senpage. Sed eble por komedio vi estas tro mal-
 
 gaja, ĉu?”
 
@@ -8443,7 +6819,6 @@ opinias, ke elsorĉi kuniklon el ĉapo estas tamen la plej granda ĵonglaĵo.”
 
 **166**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8455,9 +6830,7 @@ la glasrandon, denove enverŝis kaj donis al Justina.
 
 ”Ne.”
 
-Vinon ne. Sed Gasparo ne povas satrigardi tiujn tri luman-
-
-tajn vizaĝojn. Tie sur la ponto nokte preskaŭ estiĝus konflik-
+Vinon ne. Sed Gasparo ne povas satrigardi tiujn tri lumantajn vizaĝojn. Tie sur la ponto nokte preskaŭ estiĝus konflik-
 
 to. Sed interrompis ĝin la stultaĵo. Salto enakven. Kaj ili ĉesis insulti kaj kuregis malsupren. Adolfo estis la unua surborde
 
@@ -8465,9 +6838,7 @@ kaj Kristoforo la unua enakve. Ili eltiris lin, savis, alportis ĉi tien. Kaj il
 
 ĉu, Gasparo, vi ne estas denove pli prudenta?
 
-Vi travivis jam multe da misaj kaj aĉaj aferoj, sed unu an-
-
-koraŭ mankis. Vi ne ekrigardis vid-al-vide la morton. Kaj al
+Vi travivis jam multe da misaj kaj aĉaj aferoj, sed unu ankoraŭ mankis. Vi ne ekrigardis vid-al-vide la morton. Kaj al
 
 kiu okazas tio, tiu povas subite pli bone kompreni la vivon.
 
@@ -8497,7 +6868,6 @@ plena de kardoj. Kaj tamen inter dornoj kaj ŝtonoj estas ia
 
 **167**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8511,27 +6881,17 @@ mienas hide. Vi devas serĉi vortojn, kiel ĝin alparoli, por ke
 
 ĝi ekridetu. Kaj en la sama momento ekbrilas ĝia malbelo per
 
-ĉielaj lumoj kaj vi plenumis vian devon kaj havas la paradi-
+ĉielaj lumoj kaj vi plenumis vian devon kaj havas la paradizon enkore.
 
-zon enkore.
+Vi estas komedianto! Nur komedianto! Kaj tamen tiuj homoj bedaŭras vin. Ili bezonas vin. Vi ne povas morti, tio es-
 
-Vi estas komedianto! Nur komedianto! Kaj tamen tiuj ho-
-
-moj bedaŭras vin. Ili bezonas vin. Vi ne povas morti, tio es-
-
-tas malbravaĵo. Vi devas vivi kaj iri la vojon, kiu hodiaŭ mal-
-
-fermiĝis al vi.
+tas malbravaĵo. Vi devas vivi kaj iri la vojon, kiu hodiaŭ malfermiĝis al vi.
 
 ”Li dormas,” flustras Justina kaj apogas lian kapon.
 
-”Povrulo. Multon versimile li ne havas. Ni devas pri li io-
+”Povrulo. Multon versimile li ne havas. Ni devas pri li iomete zorgi. Kion vi opinias, Kristoforo?”
 
-mete zorgi. Kion vi opinias, Kristoforo?”
-
-”Mi opinias, ke vi demandas malsaĝe. Tio memkomprene-
-
-blas.”
+”Mi opinias, ke vi demandas malsaĝe. Tio memkompreneblas.”
 
 ”Do ne koleru tuj, mi petas.”
 
@@ -8561,7 +6921,6 @@ Ankoraŭ ŝi glatigas lian hararon kaj ŝiaj maldelikataj
 
 **168**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8573,7 +6932,6 @@ FINO DE LA UNUA PARTO
 
 **169**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8591,23 +6949,17 @@ vibrigis iliajn animojn malamo pro ekzekuto de kvar kadetoj
 
 en la Rochelle, ĝuste en la tago, kiam la kortego brue solenis
 
-naskiĝon de la filino de duko de Berrz. La ekzekutistoj or-
-
-donintaj postlasi la korpojn de la mortintoj ĝiskrepuske sur
+naskiĝon de la filino de duko de Berrz. La ekzekutistoj ordonintaj postlasi la korpojn de la mortintoj ĝiskrepuske sur
 
 la placo, atingis vere la malon de tio, kion ili intencis kaŭzi.
 
-Homoj preteriradis silente kiel en kirko kaj profunde deme-
-
-tadis ĉapelojn. En la rigardoj ĉe renkontiĝoj enestis morna
+Homoj preteriradis silente kiel en kirko kaj profunde demetadis ĉapelojn. En la rigardoj ĉe renkontiĝoj enestis morna
 
 interkompreniĝa soleno.
 
 Surtroniĝis Karolo la X-a.
 
-Por la popolo ekde la unua tago de sia regado li estis per-
-
-dita. Li ellasis en la tronĵuro la frazon pri toleremo. Tio disfamiĝis en la antaŭurboj per rapido de vaporlokomotivo, kiu
+Por la popolo ekde la unua tago de sia regado li estis perdita. Li ellasis en la tronĵuro la frazon pri toleremo. Tio disfamiĝis en la antaŭurboj per rapido de vaporlokomotivo, kiu
 
 ĝuste en tiuj tagoj faris siajn unuajn provveturojn. Karolo,
 
@@ -8615,9 +6967,7 @@ malbelega kaj kaduka uleto, ne kontentiĝis per tio, ke li ĵetiĝis ĉe la kron
 
 potenco eklezia kreskis. Procesio alternis procesion.
 
-La popolo havis unusolan armilon: B ranger’on. El liaj ami-
-
-koj formiĝis jam potenco, kiun necesis respekti. Kiam la kort-
+La popolo havis unusolan armilon: B ranger’on. El liaj amikoj formiĝis jam potenco, kiun necesis respekti. Kiam la kort-
 
 ego postulis monon por ekspedicio al Hispanio, respondis
 
@@ -8625,25 +6975,18 @@ senatano Manuel, proksima al B ranger: Ni permesos neni-
 
 **170**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-on. Viaj elspezoj superas dum unu jaro tiujn de la imperies-
-
-tro dum dudek kvin jarojn.
+on. Viaj elspezoj superas dum unu jaro tiujn de la imperiestro dum dudek kvin jarojn.
 
 ”Kion diros je tio la reĝo?” demandis la ministroj.
 
-”Kiun reĝon vi opinias? Tiun agenton de fremdaj poten-
-
-coj?” aŭdacis Manuel. Nature, li estis arestita. Sed kiel! La tuta metropolo babilis pri tio kiel pri ago el la malnovaj belaj tempoj, kiam ankoraŭ en la mondo ekzistis la heroeco kaj ho-
+”Kiun reĝon vi opinias? Tiun agenton de fremdaj potencoj?” aŭdacis Manuel. Nature, li estis arestita. Sed kiel! La tuta metropolo babilis pri tio kiel pri ago el la malnovaj belaj tempoj, kiam ankoraŭ en la mondo ekzistis la heroeco kaj ho-
 
 noro. Oni ordonis al serĝento Mercier, ke li arestu Manuelon.
 
-La brava serĝento ne emas kompreni, sed poste li rekonscii-
-
-ĝas kaj anstataŭ la arest-formulo li komandas: ”Honore salu-
+La brava serĝento ne emas kompreni, sed poste li rekonsciiĝas kaj anstataŭ la arest-formulo li komandas: ”Honore salu-
 
 tu!”
 
@@ -8673,27 +7016,20 @@ la antikva klasikismo, kiu finiĝis en senfrukta imitado de la
 
 malmodernaj modeloj. Gasparon informis pri tio diskutoj de
 
-pli detale informitaj konatoj, polemikoj en la gazetaro, sar-
-
-kasmaj kondamnoj. La nova movado plaĉis al li; li adaptiĝis
+pli detale informitaj konatoj, polemikoj en la gazetaro, sarkasmaj kondamnoj. La nova movado plaĉis al li; li adaptiĝis
 
 al ĝi per sia tuta estado. La teorio por li ne necesis. Li estis tia, kia li devis esti, kaj la epoko deziris lin tia. Kiel ĝi naskis Musset’on, Gautier’on kaj Hugo’n, tiel ĝi naskis ankaŭ Deburau’on.
 
 **171**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Dum tagoj, en kiuj kontinuas nia rakontado, Musset aĝas
 
-dek ok jarojn. Aurora Dudevant, posta Georgo Sand, inten-
+dek ok jarojn. Aurora Dudevant, posta Georgo Sand, intencas aktivi en Parizo. Dumas preparas teatraĵojn pri romanti-
 
-cas aktivi en Parizo. Dumas preparas teatraĵojn pri romanti-
-
-kaj eksterleĝuloj, malamantaj la socion. Nerval tradukas Faŭ-
-
-ston. Delacroix, kies koloraj pentraĵoj fascinas spektantojn, li-tografas la faŭstajn scenojn, laŭ kiuj komponas Berlioz. Kean
+kaj eksterleĝuloj, malamantaj la socion. Nerval tradukas Faŭston. Delacroix, kies koloraj pentraĵoj fascinas spektantojn, li-tografas la faŭstajn scenojn, laŭ kiuj komponas Berlioz. Kean
 
 ludas en Parizo Hamleton. Talma agonias kaj kune kun li la
 
@@ -8701,9 +7037,7 @@ malmoderna kaj perfekta deklamarto kaj konekse kun ĝi la
 
 tuta malnova perfekta teatro. Hugo trovas en la tenebra turo
 
-de Notre-Dame la misteran vorton ”ananke”, ĉizitan enŝto-
-
-nen, kaj komencas prepari romanon pri la katedralo. Li lan-
+de Notre-Dame la misteran vorton ”ananke”, ĉizitan enŝtonen, kaj komencas prepari romanon pri la katedralo. Li lan-
 
 ĉas la devizon: ”Libero por la arto, libero por la socio.”
 
@@ -8735,15 +7069,12 @@ Arlekeno vi havus pli kvalitan rivalon.”
 
 **172**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Bone,” promesis Gasparo, ”morgaŭ.”
 
-Post la prezentado trankvile li foriris, sed en lia kapo svar-
-
-mis. Kiel konvinki sin, ke li iras la ĝustan vojon? Li ekiris al Sejno, tra stratetoj de sia hieraŭa malespero. Sed neniu rememoro lin malfortigis, li estis enkorpiĝinta decidiĝo.
+Post la prezentado trankvile li foriris, sed en lia kapo svarmis. Kiel konvinki sin, ke li iras la ĝustan vojon? Li ekiris al Sejno, tra stratetoj de sia hieraŭa malespero. Sed neniu rememoro lin malfortigis, li estis enkorpiĝinta decidiĝo.
 
 ”Ahoj!” li ekvokis de sur la kajo malsupren, kie en ombro
 
@@ -8755,9 +7086,7 @@ Voĉo al li konata respondis: ”Ahoj! ĉu ci, Gasparo?”
 
 ”Li estas ĉi tie. Ni atendas.”
 
-La variol-difektita Adolfo kaj la rufa Kristoforo estis vest-
-
-itaj pli pure ol hieraŭ. Unu el la vangoj de Kristoforo malse-
+La variol-difektita Adolfo kaj la rufa Kristoforo estis vestitaj pli pure ol hieraŭ. Unu el la vangoj de Kristoforo malse-
 
 ketis pro la provo razi sin; bedaŭrinde la eksperimento finiĝis antaŭtempe. Apud la tablo tronis pesilo. Adolfo plenumis la
 
@@ -8773,15 +7102,11 @@ sufiĉas. Sed vi devas savi ĝin perfekte.”
 
 Ili rigardis lin senkomprene pro lia aludo.
 
-”Kion vi diras je ĉi tio?” kaj li elpoŝigis bildeton. Ili rigardis la pentraĵon eksperte de malproksimo, deproksime, de-
-
-flanke — kaj nur kapbalancis.
+”Kion vi diras je ĉi tio?” kaj li elpoŝigis bildeton. Ili rigardis la pentraĵon eksperte de malproksimo, deproksime, deflanke — kaj nur kapbalancis.
 
 ”Iu stultuleto,” ili akordiĝis.
 
-”Kaj nun observu min,” invitis ilin Deburau. ”ĉu mi as-
-
-pektas kiel tiu sur la bildeto?”
+”Kaj nun observu min,” invitis ilin Deburau. ”ĉu mi aspektas kiel tiu sur la bildeto?”
 
 ”Preskaŭ mi dirus, ke jes,” heziteme respondis Adolfo.
 
@@ -8793,7 +7118,6 @@ kvin,” konkludas Kristoforo.
 
 **173**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8805,9 +7129,7 @@ kalkuli, ĉu?”
 
 ”Kaj nun?”
 
-Gasparo lante ŝanĝas la fizionomion. La okuloj malfermi-
-
-ĝas, same la buŝo — kvazaŭ por ekkrii — sed ne kapablante
+Gasparo lante ŝanĝas la fizionomion. La okuloj malfermiĝas, same la buŝo — kvazaŭ por ekkrii — sed ne kapablante
 
 ekvoki, ĝi rigidiĝas, unu vango turniĝas.
 
@@ -8821,21 +7143,13 @@ La buŝo de Gasparo leĝere ridetas. La brovoj levetis sin
 
 kvazaŭ en la vizaĝo de l’ servisto, kiu trompis la mastron. La
 
-lipoj tremiĝas, la mentono sulkiĝas, en la buŝanguloj io ekri-
+lipoj tremiĝas, la mentono sulkiĝas, en la buŝanguloj io ekridetas.
 
-detas.
+Adolfo kiel unua komprenas kaj minacas: ”Ci komedianto!” Tiam Gasparo mienas triste. Li klinas sian kapon oblik-
 
-Adolfo kiel unua komprenas kaj minacas: ”Ci komedian-
+ve antaŭen kaj observas Kristoforon, kvazaŭ li volus lin bedaŭri. Kristoforo subiĝas al la trista esprimo kaj lia vizaĝo akceptas sur sin pretervole lian grimacon. Sed en la momento,
 
-to!” Tiam Gasparo mienas triste. Li klinas sian kapon oblik-
-
-ve antaŭen kaj observas Kristoforon, kvazaŭ li volus lin be-
-
-daŭri. Kristoforo subiĝas al la trista esprimo kaj lia vizaĝo akceptas sur sin pretervole lian grimacon. Sed en la momento,
-
-kiam ankaŭ en lia rigardo enas kompatema kunsento, Ga-
-
-sparo perkrure faligis seĝon kaj Kristoforo ruliĝas surtere. Sed tion ja ne lasas senpune ankaŭ la rufa fripono, eĉ ne de la
+kiam ankaŭ en lia rigardo enas kompatema kunsento, Gasparo perkrure faligis seĝon kaj Kristoforo ruliĝas surtere. Sed tion ja ne lasas senpune ankaŭ la rufa fripono, eĉ ne de la
 
 homo, kiun li eltiris el la akvo. Li leviĝas kaj vidigas dentojn.
 
@@ -8845,15 +7159,12 @@ al lia ŝultro. La polmo premiĝas al la buŝo, la okuloj rigidiĝis senmove.
 
 Kion mi havas tie? pensas Kristoforo. Gasparo alpaŝas kaj
 
-senpolvigas lian ŝultron. Li mienas tiel servute, ke ankaŭ Kri-
-
-stoforo ekridetas. ŝanĝo en la ludo. Gasparo turnas sin al li
+senpolvigas lian ŝultron. Li mienas tiel servute, ke ankaŭ Kristoforo ekridetas. ŝanĝo en la ludo. Gasparo turnas sin al li
 
 kaj ekridas kune, ekbatas lian ŝultron. Adolfo volas tion repa-
 
 **174**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -8875,17 +7186,13 @@ tranĉilon kaj alŝovas seĝon al Kristoforo.
 
 ”Li perpleksigus onin,” aldiras Kristoforo.
 
-Gasparo atendis, kion ili diros. Moliero legadis siajn tea-
-
-traĵojn al maljuna guvernantino. Kial li ne povus prezentadi
+Gasparo atendis, kion ili diros. Moliero legadis siajn teatraĵojn al maljuna guvernantino. Kial li ne povus prezentadi
 
 siajn inspirojn al la novaj amikoj?
 
 ”Do, ĉu mi scias teatri?”
 
-”Nur se tio estas ia profesio — esti ĉe teatro,” rezonas Kri-
-
-stoforo. ”Posedi planedojn aŭ vaksfigurojn, tio eblas, sed pre-
+”Nur se tio estas ia profesio — esti ĉe teatro,” rezonas Kristoforo. ”Posedi planedojn aŭ vaksfigurojn, tio eblas, sed pre-
 
 zentadi sin sursceneje?”
 
@@ -8895,35 +7202,26 @@ zentadi sin sursceneje?”
 
 ”Ne miksiĝu en tion. Jen la ĝusta vorto.”
 
-”Mi ne enmiksiĝu? Mi, kiu la tutan tagon serĉis por Gas-
-
-paro laboron?”
+”Mi ne enmiksiĝu? Mi, kiu la tutan tagon serĉis por Gasparo laboron?”
 
 Ambaŭ lin surprizite ekrigardis.
 
-”Jes,” triumfis la rufulo. ”Mi serĉis kaj trovis. Mia kuzo Bi-
-
-stram el strato Bouele Noire lin dungus.”
+”Jes,” triumfis la rufulo. ”Mi serĉis kaj trovis. Mia kuzo Bistram el strato Bouele Noire lin dungus.”
 
 ”ĉu li posedas teatron?” demandis Gasparo dubeme.
 
 ”Pa, teatron! Metiejon li havas, li estas seruristo!”
 
-”Gasparo — kaj lerni seruristan metion?” frapis Adolfo si-
-
-ajn femurojn. ”Ja, li estas aktoro.”
+”Gasparo — kaj lerni seruristan metion?” frapis Adolfo siajn femurojn. ”Ja, li estas aktoro.”
 
 Gasparo estis kortuŝita. ”Sciu, Kristoforo,” li diris. ”Mi sci-
 
 **175**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-as, kion ni faros. Ankoraŭ unufoje mi provos tion. Se ĝi fias-
-
-kus, tiam vi kondukos min al via kuzo. Oni povas esti utila al
+as, kion ni faros. Ankoraŭ unufoje mi provos tion. Se ĝi fiaskus, tiam vi kondukos min al via kuzo. Oni povas esti utila al
 
 la homaro ankaŭ farante serurojn, por ke ŝtelistoj ne povu ilin malŝlosi.”
 
@@ -8937,17 +7235,13 @@ de Gasparo, flusris al ŝi malĝojege: ”Post la hieraŭo li perdis, povrulo, l
 
 Justina embarasiĝis kaj per polmo devis reteni la ekkrion.
 
-Timeme ŝi proksimiĝis al Gasparo. Tiu paŝis al ŝi kaj ekride-
-
-tis salute.
+Timeme ŝi proksimiĝis al Gasparo. Tiu paŝis al ŝi kaj ekridetis salute.
 
 ”Bonan vesperon,” ŝi respondis.
 
 Riproĉe li ekrigardis ŝin kaj kapneis.
 
-”Pli frue mi ne povis veni,” ŝi ekskuzis sin, ”mi havis labo-
-
-ron.”
+”Pli frue mi ne povis veni,” ŝi ekskuzis sin, ”mi havis laboron.”
 
 Li sidigis ŝin kaj kun bonkora rideto rigardis al ŝia vizaĝo.
 
@@ -8971,29 +7265,22 @@ Gasparo kun amika esprimo gestis al ŝi kaj ambaŭ viroj.
 
 ”Ankoraŭ mi nur balbutas. Sed eble mi ellernos tion.”
 
-”Lasu min,” ektimis Justina, vidante, ke Gasparo ŝin ĉirkaŭ-
-
-brakas. ”Tio ja ne konvenas.”
+”Lasu min,” ektimis Justina, vidante, ke Gasparo ŝin ĉirkaŭbrakas. ”Tio ja ne konvenas.”
 
 **176**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Pro la amo,” ridetis rabisto Adolfo.
 
-”Mi kaj amo?” grimacis Justina. ”Li meritus havi ian pru-
-
-dentan knabinon, kiu zorgus pri li.”
+”Mi kaj amo?” grimacis Justina. ”Li meritus havi ian prudentan knabinon, kiu zorgus pri li.”
 
 ”Antaŭ ĉio mi devas ion kapabli.”
 
 ”Bone, sed ankaŭ tiaj aferoj gravas,” eksperte diris Justina.
 
-Desur Notre-Dame aŭdeblis la ekbato. La unua post nok-
-
-tomezo.
+Desur Notre-Dame aŭdeblis la ekbato. La unua post noktomezo.
 
 ”ĉu vi venos morgaŭ denove?”
 
@@ -9023,19 +7310,14 @@ sur ĝi varma nokto.
 
 **177**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Naskiĝo de Pieroto
 
-La amikeco inter Teatro Funambules kaj Teatro de Akro-
+La amikeco inter Teatro Funambules kaj Teatro de Akrobatoj ne plu renoviĝis. Ambaŭ direktorejoj observis sin
 
-batoj ne plu renoviĝis. Ambaŭ direktorejoj observis sin
-
-reciproke kun suspektemo pro postkulisaj intencoj; kun en-
-
-vio, kiu dumtempe ŝanĝiĝis je nova malamemo. Bertrand ĉe-
+reciproke kun suspektemo pro postkulisaj intencoj; kun envio, kiu dumtempe ŝanĝiĝis je nova malamemo. Bertrand ĉe-
 
 sis dueli kaj dediĉis sin senrezerve al la propra entrepreno kaj
 
@@ -9043,9 +7325,7 @@ sis dueli kaj dediĉis sin senrezerve al la propra entrepreno kaj
 
 atraktiva.
 
-”Bertrand atendas. Kion vi do volas?” bonvenigis la sekvin-
-
-tan tagon Felikso Gasparon.
+”Bertrand atendas. Kion vi do volas?” bonvenigis la sekvintan tagon Felikso Gasparon.
 
 ”Mi volus ŝanĝi rolojn de la soldato kaj drinkulo.”
 
@@ -9059,9 +7339,7 @@ en foteloj, Felikso alsidiĝis sur angulon de kesto enangule kaj Gasparo, fidant
 
 klarigas. Pli ol vortoj efikas liaj gestoj, lia mimiko.
 
-”La ĉefa persono en ĉiu pantomimo estas Arlekeno,” opi-
-
-nias Bertrand, sed aŭskultas atenteme. ”Ni bezonas por li ko-
+”La ĉefa persono en ĉiu pantomimo estas Arlekeno,” opinias Bertrand, sed aŭskultas atenteme. ”Ni bezonas por li ko-
 
 mikajn partnerojn.”
 
@@ -9069,13 +7347,10 @@ mikajn partnerojn.”
 
 kiel li estu vestita.”
 
-”Ni havas ja por li kostumon. Tiel lin prezentadis Blan-
-
-chard, tiel Charpigni.”
+”Ni havas ja por li kostumon. Tiel lin prezentadis Blanchard, tiel Charpigni.”
 
 **178**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9085,25 +7360,17 @@ portas larĝan kolumon, sed mi ne volas ĝin; ĝi kaŝas la buŝon.
 
 Kaj la buŝo devas esti videbla.”
 
-Ili rigardas lin duonrespekte, eble kiel azeneton, kiu ŝajni-
+Ili rigardas lin duonrespekte, eble kiel azeneton, kiu ŝajnigas ĉevalon, sed samtempe kun miro, de kie aperis en li tiom
 
-gas ĉevalon, sed samtempe kun miro, de kie aperis en li tiom
-
-da certeco. ”Vi imagas lin kiel Gillo’n en blua bluzo?” deman-
-
-das Bertrand.
+da certeco. ”Vi imagas lin kiel Gillo’n en blua bluzo?” demandas Bertrand.
 
 Gasparo fikse rigardis antaŭ sin, kvazaŭ li vidus sin mem
 
 en la nova kostumo, kaj diris preskaŭ kun pia akcento: ”Mi
 
-volus havi liberan kitelon, bluzon kun grandaj butonoj, entu-
+volus havi liberan kitelon, bluzon kun grandaj butonoj, entute blankan. Mi volus havi larĝajn manikojn, larĝan pantalo-
 
-te blankan. Mi volus havi larĝajn manikojn, larĝan pantalo-
-
-non, ĉe ĉiu movo multajn faldetojn. Nur tiel la kostumo har-
-
-monias kun la aktoro kaj spiras kun li.”
+non, ĉe ĉiu movo multajn faldetojn. Nur tiel la kostumo harmonias kun la aktoro kaj spiras kun li.”
 
 ”Kaj la vizaĝo restus blanka?”
 
@@ -9119,9 +7386,7 @@ kun alĝustigita kovraĵo, kiu kaŝas la hararon.
 
 nur findiras. Observu!”
 
-ĉiuj devas agnoski, ke sub nigra ĉapeto blanka vizaĝo es-
-
-tas pli esprimiva, kaj ke peco da ŝtofo, kiu ekflirtas dum mo-
+ĉiuj devas agnoski, ke sub nigra ĉapeto blanka vizaĝo estas pli esprimiva, kaj ke peco da ŝtofo, kiu ekflirtas dum mo-
 
 vo, vivigas personon.
 
@@ -9133,39 +7398,28 @@ Felikso. ”Kaj vi aspektas malvigle.”
 
 Afliktite li jesis, turnis sin kvazaŭ akceptante riproĉon, sed
 
-stumblis kaj ŝanceliĝis. En lia vizaĝo movis sin nek unu traj-
-
-to kaj tamen ĉiuj, senvole, devis ekridi. Kaj Gasparo kun ma-
+stumblis kaj ŝanceliĝis. En lia vizaĝo movis sin nek unu trajto kaj tamen ĉiuj, senvole, devis ekridi. Kaj Gasparo kun ma-
 
 lica esprimo venke gestis: ”Jen vi vidas!”
 
 **179**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Bone, iru!” diris Bertrand. ”Provu tion! Ni ekvidos sur la
 
-scenejo!” Kaj kiam post Gasparo kaj Felikso fermiĝis la por-
+scenejo!” Kaj kiam post Gasparo kaj Felikso fermiĝis la pordo, li turnis sin al Fabien: ”Se mi ne eraras, kara kolego, aperos sur nia scenejo entute nova persono.”
 
-do, li turnis sin al Fabien: ”Se mi ne eraras, kara kolego, aperos sur nia scenejo entute nova persono.”
-
-Ankaŭ Gasparo mem ne povis ĝisatendi la scenejon. Li vo-
-
-lis scii certecon kaj eldevigus ĝin, eĉ se li devus danci sur trotuaro antaŭ kafejoj.
+Ankaŭ Gasparo mem ne povis ĝisatendi la scenejon. Li volis scii certecon kaj eldevigus ĝin, eĉ se li devus danci sur trotuaro antaŭ kafejoj.
 
 La prezentadoj en Funambules estis konstantaj improvizadoj
 
 de aktoroj, kiuj perfekte sciis siajn rolojn, skalojn de movoj
 
-kaj esprimoj. Tiu ĉi eta ŝanĝo povis neniun perpleksigi. Im-
+kaj esprimoj. Tiu ĉi eta ŝanĝo povis neniun perpleksigi. Imbecilo, li volis sin rangaltigi, ili diris nur. Malgraŭ tio Felikso-Arlekeno zorgeme turnis sin, kiam anstataŭ duonebria solda-
 
-becilo, li volis sin rangaltigi, ili diris nur. Malgraŭ tio Felikso-Arlekeno zorgeme turnis sin, kiam anstataŭ duonebria solda-
-
-to alŝoviĝis surscenejen pala Pieroto. Ili prezentis kun Kolom-
-
-bina la preskribitan ektimon kaj surprizon. Pieroto ekkuregis
+to alŝoviĝis surscenejen pala Pieroto. Ili prezentis kun Kolombina la preskribitan ektimon kaj surprizon. Pieroto ekkuregis
 
 kontraŭ ilin, simile kiel faradis tion la soldato — sed lia vizaĝo dume eĉ ne moviĝis. Duonvoje li stumblis kaj falis. La homoj
 
@@ -9175,9 +7429,7 @@ gratetis sian frunton kaj mentonon. Kial fakte mi venis ĉi
 
 tien? Mi devas reveni, eble mi rememorigos tion al mi. Mi
 
-venos ripete. La publiko komprenas lin kaj scivoleme lin ob-
-
-servas. Pieroto ekkuras kaj falas. Tuj li levas la kapon kaj atendas, ĉu en lia kapo aŭroriĝis. Nenio. Do ankoraŭ unufoje. Kaj
+venos ripete. La publiko komprenas lin kaj scivoleme lin observas. Pieroto ekkuras kaj falas. Tuj li levas la kapon kaj atendas, ĉu en lia kapo aŭroriĝis. Nenio. Do ankoraŭ unufoje. Kaj
 
 denove! Gasparo turnas sin kaj rapide, ankoraŭ pli rapide li
 
@@ -9193,7 +7445,6 @@ dorsturnita al Arlekeno, li estas kurbigita, lia kapo senpove
 
 **180**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9201,9 +7452,7 @@ pendas inter liaj genuoj. Jen li ekvidis Arlekenon. Tio estas la kaŭzo! Pro tio
 
 inter la genuoj, la korpo renversiĝas kaj el tio naskiĝas nova
 
-kaskado, la komika falo kaj poste rapidega kapriolo malan-
-
-taŭen. Li levas sin kaj ekkuras, sed ĝuste laŭ la kontraŭa di-
+kaskado, la komika falo kaj poste rapidega kapriolo malantaŭen. Li levas sin kaj ekkuras, sed ĝuste laŭ la kontraŭa di-
 
 rekto. Finfine li kuratingas, jam li havas lin.
 
@@ -9213,17 +7462,13 @@ sin. Arlekeno ŝanĝiĝis je spektanto. Sed li devis eskapi antaŭ
 
 Pieroto. Kiel reĝustigi tion?
 
-Gasparo sentas, ke al li koncentriĝas la atentemo de la pu-
-
-bliko, ke li regas sursceneje. Li povus prezentadi sian Piero-
+Gasparo sentas, ke al li koncentriĝas la atentemo de la publiko, ke li regas sursceneje. Li povus prezentadi sian Piero-
 
 ton, kiom longe li volus. Li ekhezitas nun, ĉu fakte li kaptis la homon, kiu lin ĝenis. En lia vizaĝo aperas esprimo: ĉu eblas,
 
 ke tiel facile mi sukcesis? Li pridubas sian feliĉon. La junulo estis kun damo. Li ĉirkaŭrigardas Arlekenon kaj serĉas ŝin.
 
-Felikso eluzas konvenan tempon por fuĝi. Gasparo lin post-
-
-kuras. La situacio estas savita.
+Felikso eluzas konvenan tempon por fuĝi. Gasparo lin postkuras. La situacio estas savita.
 
 La salonego dum la sceno ne ĉesis amuzi sin. La homoj tuj
 
@@ -9233,13 +7478,10 @@ vestejon. Li retenas spiron pro timo, kion oni diros al li. Sed io jubilas en li
 
 La aktoroj mienas sendecide. Al tiuj, kiuj lin vidis, li plaĉis; sed la komedianta profesio ne certas kaj sukceso de unu povas signifi malprofiton por aliaj. Tial ili silentas. Sed Gaspa-ro volas scii la veron. Ankoraŭ ne tute deŝminkita, li iras
 
-dumpaŭze al direktorejo. Ankaŭ Felikso estas tie, sen peru-
-
-ko, kun vizaĝo ŝminkita duonfrunte. Ankoraŭ elprofunde li
+dumpaŭze al direktorejo. Ankaŭ Felikso estas tie, sen peruko, kun vizaĝo ŝminkita duonfrunte. Ankoraŭ elprofunde li
 
 spiras post la finala danco. Gasparo staras, silentas kaj rigar-181
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9257,37 +7499,25 @@ La koro de Gasparo haltis.
 
 ”Kaj poste,” daŭrigis Bertrand, ”poste ordonu al sinjoro
 
-Lambert, kiu verkas por ni novan pantomimon, ke li alskri-
+Lambert, kiu verkas por ni novan pantomimon, ke li alskribu tien ege gravan rolon por Pieroto! Rolos en ĝi Deburau.”
 
-bu tien ege gravan rolon por Pieroto! Rolos en ĝi Deburau.”
+Gasparo preskaŭ estis eklarmonta. Silentigu vin, frenezulo! Ankaŭ liaj manoj, sciantaj mediti kaj pensi, vagas nuną-
 
-Gasparo preskaŭ estis eklarmonta. Silentigu vin, frenezu-
-
-lo! Ankaŭ liaj manoj, sciantaj mediti kaj pensi, vagas nuną-
-
-ose sur brusto, kaptas faldon de kitelo, la polmoj kunpre-
-
-miĝas. La kaduka tolo ne eltenis tiom vervan manifestiĝon kaj
+ose sur brusto, kaptas faldon de kitelo, la polmoj kunpremiĝas. La kaduka tolo ne eltenis tiom vervan manifestiĝon kaj
 
 disŝiriĝis.
 
-”Mi alskribos je lia konto monpunon pro neniigo de la te-
-
-atra havaĵo,” morniĝas sinjoro Fabien.
+”Mi alskribos je lia konto monpunon pro neniigo de la teatra havaĵo,” morniĝas sinjoro Fabien.
 
 ”Alskribu,” diras Felikso, ”kaj mi pagos ĝin por li.”
 
 Kaj li foriras. Deburau postsekvas lin. Nenio plia okazis,
 
-neniu diris ion plu. Kaj tamen subite klaris, kio hodiaŭ ves-
-
-pere okazis. Naskiĝis inter ili la nova artisto.
+neniu diris ion plu. Kaj tamen subite klaris, kio hodiaŭ vespere okazis. Naskiĝis inter ili la nova artisto.
 
 oje neĝoje tion registras liaj kolegoj ĉe siaj spegulsplitoj.
 
-Ion ili murmuretas kaj vi ne scias, ĉu tio estas gratulo aŭ in-
-
-sulto.
+Ion ili murmuretas kaj vi ne scias, ĉu tio estas gratulo aŭ insulto.
 
 Gasparo rapidas, ne scias kien, sed li rapidas ĝoje.
 
@@ -9297,13 +7527,10 @@ juna membro de la kolektivo; li prezentadas ĝis nun rolojn de
 
 etaj knaboj.
 
-”Ne forgesu,” respondas Gasparo al li, ”ke mi aĝas jam du-
-
-dek kvin jarojn.”
+”Ne forgesu,” respondas Gasparo al li, ”ke mi aĝas jam dudek kvin jarojn.”
 
 **182**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9311,9 +7538,7 @@ En tio eąs tiom da amaraj rememoroj, ke kiam Gasparo
 
 foriras el la vestejo, neniu ion malican diras. Kaj dum li iras tra la koridoro eksteren, ŝajnas al li, ke iu lin observas.
 
-Sursojle de la damvestejo staras Kolombina, fraŭlino Flo-
-
-ra, kaj en ŝiaj grandaj okuloj brilas admiro.
+Sursojle de la damvestejo staras Kolombina, fraŭlino Flora, kaj en ŝiaj grandaj okuloj brilas admiro.
 
 Teatro Funambules surprizis siajn spektantojn per la nova
 
@@ -9325,9 +7550,7 @@ Poste venis denove aro da arlekenaĵoj, sed Pieroto jam ne
 
 malaperis el ili. Kaj lia populareco eldevigis pluan teatraĵon, kies heroo li estis. ”Pieroto, ĉefo de banditoj.”
 
-Li prezentas sin ankaŭ en ”Botelo da ”; la aŭtoro supo-
-
-zis eble, ke la publiko havos intereson pri sorĉisto Alkofribas aŭ feino Mimozina; sed Pieroto, kiun la magiisto ensorĉis kaj
+Li prezentas sin ankaŭ en ”Botelo da ”; la aŭtoro supozis eble, ke la publiko havos intereson pri sorĉisto Alkofribas aŭ feino Mimozina; sed Pieroto, kiun la magiisto ensorĉis kaj
 
 kiun la feino protektas, kaptas atenton kaj konkeras al si en
 
@@ -9343,9 +7566,7 @@ estas por ĉiuj ĝena.
 
 Felikso. ”Pieroto ilin rimarkas kaj li kapriolas pro ĝojo.”
 
-”Sed pli frue mi atentigos mian sinjoron, Kasandron,” opo-
-
-nas Gasparo. ”Tion ja farus ĉiu homo.”
+”Sed pli frue mi atentigos mian sinjoron, Kasandron,” oponas Gasparo. ”Tion ja farus ĉiu homo.”
 
 ”Nia teatraĵo diferencas de la vivo. i estas plivere sonĝo.”
 
@@ -9359,7 +7580,6 @@ Sed Gasparo ne ĉesas interrompi per siaj etaj rezervoj.
 
 **183**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9367,13 +7587,9 @@ Perokule ĉiam antaŭe li petas pardonon, sed poste defendas
 
 sian ideon.
 
-”Pardonu, sinjoro Felikso, sed se Pieroto estu en tiu mo-
+”Pardonu, sinjoro Felikso, sed se Pieroto estu en tiu momento malica, li ja ne povas danci. Se li preparas insidojn, li ne povas saltadi kiel senkulpa infano.”
 
-mento malica, li ja ne povas danci. Se li preparas insidojn, li ne povas saltadi kiel senkulpa infano.”
-
-”Ankoraŭ mi ne vidis Pieroton filozofi, Pieroto ĉiam frene-
-
-zis. ĉu fakte vi volas fari revolucion sur la scenejo?”
+”Ankoraŭ mi ne vidis Pieroton filozofi, Pieroto ĉiam frenezis. ĉu fakte vi volas fari revolucion sur la scenejo?”
 
 ”Kial ne, sinjoro Felikso?” respondas Gasparo milde, sed lia
 
@@ -9383,9 +7599,7 @@ Felikso ne emas ridi pro tiu impertinento. ”Ni daŭrigu, mil
 
 tondroj! Aŭ mi leviĝos kaj iros for!”
 
-”Ni ekstremigis tion,” konfidas direktoro Bertrand al di-
-
-rektoro Fabien. ”Deburau tro alte sin taksas.” Li iras al la scenejo kaj proponas al Felikso: ”ĉu doni al Deburau punpa-
+”Ni ekstremigis tion,” konfidas direktoro Bertrand al direktoro Fabien. ”Deburau tro alte sin taksas.” Li iras al la scenejo kaj proponas al Felikso: ”ĉu doni al Deburau punpa-
 
 gon?”
 
@@ -9421,17 +7635,12 @@ inter la statistoj, li modestis.”
 
 **184**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Gasparo sidas en la vestejo antaŭ spegulo kaj observas la vi-
+Gasparo sidas en la vestejo antaŭ spegulo kaj observas la vizaĝon, kian li forportis el la scenejo. Jes, suras rideto. Kion ĝi signifas, kio estas en ĝi, Gasparo? Li esploras. En ĝi enestas la pasinteco. Sperto. Toleremo al la homaj malfortoj. Estas en li
 
-zaĝon, kian li forportis el la scenejo. Jes, suras rideto. Kion ĝi signifas, kio estas en ĝi, Gasparo? Li esploras. En ĝi enestas la pasinteco. Sperto. Toleremo al la homaj malfortoj. Estas en li
-
-silentema obstino de humiligitoj. Sekreta intenco de la bati-
-
-to. Saĝo de homo, kiu jam multfoje frapis sin, vundis kaj tial
+silentema obstino de humiligitoj. Sekreta intenco de la batito. Saĝo de homo, kiu jam multfoje frapis sin, vundis kaj tial
 
 lasas la aliajn vage kuradi kaj iras la plej kurtan vojon. Pasis nur kelke da semajnoj kaj ĝi estas rideto de tute alia Pieroto
 
@@ -9439,9 +7648,7 @@ ol de tiu, kiu ankoraŭ nelonge bategis per sia korpo kontraŭ
 
 la teron.
 
-Ankoraŭ neniam oni provadis en Funambules tiel eksciti-
-
-te kaj en atmosfero plena de fulmoj, kiam oni studadis la no-
+Ankoraŭ neniam oni provadis en Funambules tiel ekscitite kaj en atmosfero plena de fulmoj, kiam oni studadis la no-
 
 vajn teatraĵojn kun Pieroto.
 
@@ -9455,13 +7662,9 @@ Se ĉirkaŭe regis granda bruo, Gasparo ĉesis la provadon.
 
 ”ĉu vi aŭdis tion? Anstataŭ esti feliĉa, ke oni permesas al
 
-li ludi, li ŝovas sian nazon ĝis ŝnurejo.” Finfine lia koncentrita streĉiteco altiris al la provado la ceterajn. ĉiumatene li venadis en provojn kun novaj ideoj, per kiuj li riĉigadis sian pro-
+li ludi, li ŝovas sian nazon ĝis ŝnurejo.” Finfine lia koncentrita streĉiteco altiris al la provado la ceterajn. ĉiumatene li venadis en provojn kun novaj ideoj, per kiuj li riĉigadis sian propran kaj la tutan teatraĵon. Li ĝojis surprizi siajn gekolegojn.
 
-pran kaj la tutan teatraĵon. Li ĝojis surprizi siajn gekolegojn.
-
-Enmomente, kiam la grupo malaperis, li demetis la liphara-
-
-ron por ripozi. Kiam la rabistoj estis revenantaj, rapide li algluis ĝin denove. Sed li ŝovis la manon en alian poŝon kaj
+Enmomente, kiam la grupo malaperis, li demetis la liphararon por ripozi. Kiam la rabistoj estis revenantaj, rapide li algluis ĝin denove. Sed li ŝovis la manon en alian poŝon kaj
 
 erare fiksis al si la liphararon ruĝan. La rabistoj konsterniĝis pro la metamorfozo. Pieroto konstatis la eraron kaj volis ĝin
 
@@ -9469,7 +7672,6 @@ reĝustigi. Sed nun li ekpalpis kaj lokis subnazen la liphararon blankan. La akt
 
 **185**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9479,9 +7681,7 @@ Ne maloftfoje okazis, ke ĉiuj lin observis kun retenita spiro.
 
 ne vidis. Ankaŭ servistinoj en la salonego ĉesis viŝi polvon kaj gapis Gasparon.
 
-”Ni forgesu nian ekvilibristan pasintecon,” konkludis Fa-
-
-bien. ”Fakte ni ludas teatron.”
+”Ni forgesu nian ekvilibristan pasintecon,” konkludis Fabien. ”Fakte ni ludas teatron.”
 
 ”Ankoraŭ ni ne venkis en decida batalo,” avertis la skeptika
 
@@ -9499,9 +7699,7 @@ Felikso devas cedi, Gasparo pravas.
 
 ”Kiel vi ellernis tion, ulaĉo?”
 
-Gasparo ŝultrolevetas kaj ridetas. Li ne malkaŝos, ke li la-
-
-sis tion montri al si de la rufa Kristoforo. Li ludas plu.
+Gasparo ŝultrolevetas kaj ridetas. Li ne malkaŝos, ke li lasis tion montri al si de la rufa Kristoforo. Li ludas plu.
 
 ”Kiel vi rigardas?”
 
@@ -9513,7 +7711,6 @@ sis tion montri al si de la rufa Kristoforo. Li ludas plu.
 
 **186**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9521,23 +7718,15 @@ Romantika modelo
 
 Fajfado humiligas nur malsaĝulon kaj aplaŭdo levas kapon
 
-nur al arogantulo,” diris iam la aktoro kaj verkisto Duga-
-
-zon al Talma. Talma mortis, sed la sentenco de Dugazon vi-
+nur al arogantulo,” diris iam la aktoro kaj verkisto Dugazon al Talma. Talma mortis, sed la sentenco de Dugazon vi-
 
 vas, kaj Gasparo direktas sin laŭ ĝi. Komence li sentis sin mul-te pli grava ol iam. Elirante el la teatro, li pretis ĝoje respondi al ĉiu, kiu lin ekkonis. Sed kio ŝajnis tiom grava sur la scenejo, surstrate perdiĝis. Neniu diradis post li ”Jen li!”
 
-La homoj apatiis same kiel pli frue. Blanka masko sursce-
+La homoj apatiis same kiel pli frue. Blanka masko sursceneje entute estas io alia ol la vizaĝo, kiun oni portadas kun la ĉiutaga vesto. Li instruiĝis kaj riproĉis sin. Tamen vi ne sopiris la gloron, sed la vivplenon, Gasparo! Al vi devas sufiĉi, se
 
-neje entute estas io alia ol la vizaĝo, kiun oni portadas kun la ĉiutaga vesto. Li instruiĝis kaj riproĉis sin. Tamen vi ne sopiris la gloron, sed la vivplenon, Gasparo! Al vi devas sufiĉi, se
+grizhara biletistino interplektas la manojn, vidante vin foriri el la teatro, kaj diras dankeme: ”Sinjoro Deburau!” La pli juna kondukanta al loĝioj, nur pie rigardis kaj aŭdacis eĉ ne ekparoli. Estis ja konate, ke sinjoron Deburauon favoris lastatempe fraŭlino Flora.
 
-grizhara biletistino interplektas la manojn, vidante vin foriri el la teatro, kaj diras dankeme: ”Sinjoro Deburau!” La pli juna kondukanta al loĝioj, nur pie rigardis kaj aŭdacis eĉ ne ekparoli. Estis ja konate, ke sinjoron Deburauon favoris lastatem-
-
-pe fraŭlino Flora.
-
-Alifoje Gasparo ekĝojis, se el la galerio subite aŭdiĝis ton-
-
-dre skandita: De-bu-rau, De-bu-rau, kaj li ekkonis, ke tion
+Alifoje Gasparo ekĝojis, se el la galerio subite aŭdiĝis tondre skandita: De-bu-rau, De-bu-rau, kaj li ekkonis, ke tion
 
 krias liaj amikoj Adolfo kaj Kristoforo kaj ankoraŭ pli laŭte
 
@@ -9549,7 +7738,6 @@ la vestejo vizitkarton kun stranga enhavo:
 
 **187**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9557,9 +7745,7 @@ C A D A M O U R
 
 reĝo de modeloj
 
-Antaŭ ol li povis memori, ĉu li aŭdis iam la nomon, Cada-
-
-mour, reĝo de modeloj, staris antaŭ li. Li estis homo ekstreme
+Antaŭ ol li povis memori, ĉu li aŭdis iam la nomon, Cadamour, reĝo de modeloj, staris antaŭ li. Li estis homo ekstreme
 
 belkreska; la tempioj jam grizis, sed li grandis kaj estis forta, bizare vestita en senvualita purpura ĉemizo sub buntkolora
 
@@ -9575,15 +7761,11 @@ La reĝo de modeloj ekmienis surprizite.
 
 Romulo el Forrabo de la Sabeninoj! Ankoraŭ ne?”
 
-Kaj senrevigite li klarigis: ”Mi estas la glora modelo de ci-
-
-vitano pentristo Davido.” Nur nun al Gasparo ĉio klaris. Li
+Kaj senrevigite li klarigis: ”Mi estas la glora modelo de civitano pentristo Davido.” Nur nun al Gasparo ĉio klaris. Li
 
 rememoris, ke li aŭdis rakonti Klementon Sanson pri homo,
 
-kiu staris kiel modelo al pentristo Vauxlerc, kaj kiam tiu fini-
-
-ĝis sub gilotino, al Davido por liaj gigantaj bildoj. Longe li
+kiu staris kiel modelo al pentristo Vauxlerc, kaj kiam tiu finiĝis sub gilotino, al Davido por liaj gigantaj bildoj. Longe li
 
 rifuzadis iĝi modelo por aliaj majstroj. Li asertis, ke lia korpo apartenas al Davido, kaj sian skeleton li anticipe dediĉis al
 
@@ -9601,29 +7783,22 @@ aldiris. ”Rapidu, mi petas.”
 
 **188**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Gasparo estis ĝenata antaŭ la glora viro, sed Cadamour
 
-diris: ”Nur alivestu vin trankvile! Mi vidis jam multajn kor-
-
-pojn kaj ne nur virajn. Mi povus rakonti al vi, sinjoro!”
+diris: ”Nur alivestu vin trankvile! Mi vidis jam multajn korpojn kaj ne nur virajn. Mi povus rakonti al vi, sinjoro!”
 
 Kiam Gasparo demetis la blankan bluzon kaj pantalonon
 
-kaj vestis sin, li daŭrigis: ”Mi ne dezirus al vi, civitano Deburau, mi ne dezirus al vi, okaze de la nacia soleno prezenti De-
-
-spocion kaj havi surbruste dum la tuta ceremonio virinajn
+kaj vestis sin, li daŭrigis: ”Mi ne dezirus al vi, civitano Deburau, mi ne dezirus al vi, okaze de la nacia soleno prezenti Despocion kaj havi surbruste dum la tuta ceremonio virinajn
 
 krurojn.”
 
 ”ĉu tio malfacilas?”
 
-”Netolereble. La kruroj estis en diafana robo, ĉu vi kom-
-
-prenas? ĉu jam prete? Ankoraŭ ne? Mi ne dezirus al vi stari
+”Netolereble. La kruroj estis en diafana robo, ĉu vi komprenas? ĉu jam prete? Ankoraŭ ne? Mi ne dezirus al vi stari
 
 kiel modelo de Aciso kaj teni enbrake la nudan Galatean! Tiel
 
@@ -9635,9 +7810,7 @@ podio!”
 
 Gasparo kapskuetis, sed ne demandis kial.
 
-”Prezenti Galatean deziris baronidino … ,” parolis plu Ca-
-
-damour mem, ”baronidino, kies nomon mi prisilentos. ŝi sen-
+”Prezenti Galatean deziris baronidino … ,” parolis plu Cadamour mem, ”baronidino, kies nomon mi prisilentos. ŝi sen-
 
 vestigis sin, civitano, kvazaŭ dum la tuta vivo ŝi farus nenion alian, kaj saltis en miajn brakojn kvazaŭ sur kanapon. Sed mi
 
@@ -9663,13 +7836,10 @@ per sia vizito. ”Mi staris nun kiel modelo por civitano Bou-
 
 **189**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-quet kaj tiu komisiis min elserĉi modelon de Arlekeno. Mi vi-
-
-zitis jam tri kabaredojn — sed nur ĉi tie mi trovis sinjoron —
+quet kaj tiu komisiis min elserĉi modelon de Arlekeno. Mi vizitis jam tri kabaredojn — sed nur ĉi tie mi trovis sinjoron —
 
 sinjoron Deburau. Li ne komprenis bildojn, sed surbilde li
 
@@ -9681,19 +7851,13 @@ riverencis al Cadamour.
 
 ”Homo instruita,” rimarkigis pri li Cadamour.
 
-”Jes,” respondis Gasparo, ”sed mi volas model-stari al ne-
+”Jes,” respondis Gasparo, ”sed mi volas model-stari al neniu pentristo.”
 
-niu pentristo.”
-
-”Kial ne? ĉu vi konas pli grandan honoron ol esti eterni-
-
-gita por la futuro? Sinjoro Bouquet petis min, ke mi trovu
+”Kial ne? ĉu vi konas pli grandan honoron ol esti eternigita por la futuro? Sinjoro Bouquet petis min, ke mi trovu
 
 efektive veran klaŭnon.”
 
-”Li trovos multajn sur la foirejo kaj malantaŭe sur la bul-
-
-vardo.”
+”Li trovos multajn sur la foirejo kaj malantaŭe sur la bulvardo.”
 
 Cadamour diris je unu grado pli humile: ”Mi konfesas, ke
 
@@ -9727,27 +7891,20 @@ minacon li plenumus. Dum mi junaĝis, oni batalis pri mi. Sed
 
 **190**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-nun jam mi ne eltenas longe stari — sed Bouquet kreis hel-
-
-pe de mi Prometeon, kaj tiun oni envios ĉiam al li.”
+nun jam mi ne eltenas longe stari — sed Bouquet kreis helpe de mi Prometeon, kaj tiun oni envios ĉiam al li.”
 
 La pordisto venis atentigi, ke la teatron oni jam fermas. Ili
 
 eliris eksteren.
 
-”Kia pentristo li estas, tiu Bouquet?” Gasparo riskis deman-
-
-don al Cadamour. ”Mi devas konfesi,” sonis la respondo, ”ke
+”Kia pentristo li estas, tiu Bouquet?” Gasparo riskis demandon al Cadamour. ”Mi devas konfesi,” sonis la respondo, ”ke
 
 ankoraŭ li ne akiris la gloron, je kiu mi kutimas. Sed mi ne
 
-kunlaboras kun li longe. A˛, civitano Deburau, ĉu vi atente ri-
-
-markis la trian statuon ĉe la rando de la dekstra flanko de la
+kunlaboras kun li longe. A˛, civitano Deburau, ĉu vi atente rimarkis la trian statuon ĉe la rando de la dekstra flanko de la
 
 aleo en Tuilerioj?”
 
@@ -9771,9 +7928,7 @@ fizionomion.
 
 ”Interesan fizionomion?”
 
-”Jes,” ekridetis Cadamour. ”ĉiu ne povas havi korpon pre-
-
-destinitan por Herkuloj kaj Romuloj. Vi devas kontentigi vin
+”Jes,” ekridetis Cadamour. ”ĉiu ne povas havi korpon predestinitan por Herkuloj kaj Romuloj. Vi devas kontentigi vin
 
 pri la esprimo. Sed ankaŭ per tio vi faros al civitano Bouquet
 
@@ -9785,15 +7940,12 @@ lian vojon, li opiniis ĉiam sufiĉe bona por okupi sin pri ĝi.
 
 Cetere tio estas ankaŭ la eco de Pieroto.
 
-”Vi venos do, civitano, ĉu? La adreso troveblas sur la dor-
-
-sa flanko de mia vizitkarto. Morgaŭ posttagmeze. La kostu-
+”Vi venos do, civitano, ĉu? La adreso troveblas sur la dorsa flanko de mia vizitkarto. Morgaŭ posttagmeze. La kostu-
 
 mon vi kunportos, ĉu?
 
 **191**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -9809,17 +7961,11 @@ homamaso.
 
 Aŭgusto Bouget estis junulo, kiun lia patro, honesta majstro
 
-ĉarpentista, elĵetis el la domo, ĉar la filo intencis fariĝi pentristo. Aŭgusto vegete vivtenis sin, kiel nur eblis. Li ne hon-
+ĉarpentista, elĵetis el la domo, ĉar la filo intencis fariĝi pentristo. Aŭgusto vegete vivtenis sin, kiel nur eblis. Li ne hontis pro sia mizera stato kaj en rapidaj frazoj jam en la unuaj
 
-tis pro sia mizera stato kaj en rapidaj frazoj jam en la unuaj
+minutoj ĉion konfesis. Dume Cadamour staris post li kaj pardoneme ridetis.
 
-minutoj ĉion konfesis. Dume Cadamour staris post li kaj par-
-
-doneme ridetis.
-
-La nova vivmedio estis por Gasparo tre interesa. Li obser-
-
-vis la nudojn disĵetitajn sur la muroj kaj rimarkis ĉarmajn
+La nova vivmedio estis por Gasparo tre interesa. Li observis la nudojn disĵetitajn sur la muroj kaj rimarkis ĉarmajn
 
 detalojn en la malriĉa ateliero. Sinjoro Bouquet iom ŝajnigis
 
@@ -9827,25 +7973,19 @@ bohemianon kaj sciis, kio apartenas al tiu rolo. Neordigitaj
 
 vin-boteloj kaj koloraj rubandoj subplafone atestis tion.
 
-Gasparo alivestiĝis, ŝminkis sin kaj okupis la deziratan po-
-
-zon. Bouquet ordonis al Cadamour, ke li alportu refreŝigaĵon,
+Gasparo alivestiĝis, ŝminkis sin kaj okupis la deziratan pozon. Bouquet ordonis al Cadamour, ke li alportu refreŝigaĵon,
 
 kaj komencis labori.
 
 ”Tiu blanka koloro min incitis, sciate?” li konfidis. ”Se vi
 
-estus blua, ĉio estus centoble pli facila. Sed la blanka sur-
-
-vizaĝe, en la okuloj, sur la vesto — kiom da nuancoj entute?”
+estus blua, ĉio estus centoble pli facila. Sed la blanka survizaĝe, en la okuloj, sur la vesto — kiom da nuancoj entute?”
 
 ”Kion vi faros kun la bildo, sinjoro Bouquet?” demandis
 
 Gasparo.
 
-”Ni ekspozicios ĝin, homo. Ni ekspozicios ĝin kaj iĝos glo-
-
-raj. Mi kaj vi, ĉu komprenite?”
+”Ni ekspozicios ĝin, homo. Ni ekspozicios ĝin kaj iĝos gloraj. Mi kaj vi, ĉu komprenite?”
 
 ”Kaj kio estas tie skribite?”
 
@@ -9855,15 +7995,12 @@ kiel vi plaĉis al mi?”
 
 **192**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Li diris tion — iom kaŝintence.”
 
-”Li rekonas neniun, nur sin mem. Nun li troviĝas en mize-
-
-ro. Mi mem havas ja nenion, sed mi duonigas ĉion kun li.
+”Li rekonas neniun, nur sin mem. Nun li troviĝas en mizero. Mi mem havas ja nenion, sed mi duonigas ĉion kun li.
 
 Aliaj jam timas lin. Sed por mi tio ne gravas. Gloron ankaŭ mi
 
@@ -9871,9 +8008,7 @@ ne havas. Almenaŭ li bonfamigis min per infamio.”
 
 Tempeton li jam pentris; malfermiĝis la pordo.
 
-Eniris proksimume kvardekjara viro, delikatvizaĝa, elegan-
-
-ta, sed modeste vestita.
+Eniris proksimume kvardekjara viro, delikatvizaĝa, eleganta, sed modeste vestita.
 
 ”Kara Gerardo,” vokis Bouquet, forĵetante penikon. ”Kia
 
@@ -9889,13 +8024,9 @@ envenus ĉi tien!”
 
 komparante ĝin kun la modelo.
 
-”Mi realigas en la praktiko, kion vi enpremis en mian ka-
+”Mi realigas en la praktiko, kion vi enpremis en mian kapon. Mi abomenas la klasikajn suĵetojn. For la frostoplenajn
 
-pon. Mi abomenas la klasikajn suĵetojn. For la frostoplenajn
-
-heroojn, vi instruis min, jen mia kavaliro, ardanta kaj emocii-
-
-ga. Ne en kiraso, sed kun la koro. Pieroto!”
+heroojn, vi instruis min, jen mia kavaliro, ardanta kaj emociiga. Ne en kiraso, sed kun la koro. Pieroto!”
 
 Gerardo ankoraŭ foje rerigardis la pentraĵon.
 
@@ -9909,9 +8040,7 @@ lin faligis. ”Funambules? Kie ĝi situas?”
 
 ”Sur la bulvardo du Temple,” respondis Bouquet. ”Pli frue
 
-tie estis komediantoj. Nuntempe oni prezentas tie pantomi-
-
-mon.”
+tie estis komediantoj. Nuntempe oni prezentas tie pantomimon.”
 
 ”Kiel vi venis tien?” ekmiris Gerardo tiom senafekte, ke
 
@@ -9921,25 +8050,18 @@ Gasparo ekhontis.
 
 **193**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-La pentristo estis pli kaj pli simpatia al Gasparo. ĉu tiu ob-
+La pentristo estis pli kaj pli simpatia al Gasparo. ĉu tiu obstinulo ne similas al li kun sia fido kaj espero, kun kiu li atendas plenumiĝon de siaj kruela kaj rezigna aspiroj?
 
-stinulo ne similas al li kun sia fido kaj espero, kun kiu li atendas plenumiĝon de siaj kruela kaj rezigna aspiroj?
-
-Cadamour eniris kaj ekmienis ĉagrene, ekvidinte Gerar-
-
-don.
+Cadamour eniris kaj ekmienis ĉagrene, ekvidinte Gerardon.
 
 ”Civitano Cadamour, romantiko avancas.”
 
 ”Estu falsa profeto, civitano Gerardo!”
 
-”ĉu vi jam vidis, Bouquet, la novan Delacroix-on? Masa-
-
-krojn sur ˘ios. Ne? Do kuregu tien. Lasu ĉion kaj kuru, ku-
+”ĉu vi jam vidis, Bouquet, la novan Delacroix-on? Masakrojn sur ˘ios. Ne? Do kuregu tien. Lasu ĉion kaj kuru, ku-
 
 regu! Tio estas la vivo de la koloroj kaj formoj. Kiaj konkeroj!”
 
@@ -9947,31 +8069,21 @@ regu! Tio estas la vivo de la koloroj kaj formoj. Kiaj konkeroj!”
 
 ”Tamen ne” — kaj la okuloj de Gerard koncentriĝis al la
 
-blanka Pieroto. ”Laboru! Per tio vi helpos pleje al vi. Roman-
+blanka Pieroto. ”Laboru! Per tio vi helpos pleje al vi. Romantiko bezonas multe pli da laborego, ol sufiĉis por la antika
 
-tiko bezonas multe pli da laborego, ol sufiĉis por la antika
-
-majesteco. ĉar ni devas penetri enen en la homon — kaj elŝi-
-
-regi liajn sekretojn.”
+majesteco. ĉar ni devas penetri enen en la homon — kaj elŝiregi liajn sekretojn.”
 
 ”Sekreton de muskoloj,” proklamis Cadamour.
 
-”Sekreton de la animo kaj koro — kun ties ĝojoj kaj teru-
-
-roj,” korektis lin Gerardo. ”Ek al laboro, Bouquet, kaj se vi ion bezonas, venu!”
+”Sekreton de la animo kaj koro — kun ties ĝojoj kaj teruroj,” korektis lin Gerardo. ”Ek al laboro, Bouquet, kaj se vi ion bezonas, venu!”
 
 ”Dankon, kara Gerardo,” adiaŭis lin Bouquet, jam kun la
 
-peniko enmane. Cadamour indigne forturniĝis; male Debu-
-
-rau, kiu aŭskultis la vortojn de la pentristo kiel evangelion. Li leviĝis kaj tre sincere diris: ”is revido, sinjoro Gerardo.”
+peniko enmane. Cadamour indigne forturniĝis; male Deburau, kiu aŭskultis la vortojn de la pentristo kiel evangelion. Li leviĝis kaj tre sincere diris: ”is revido, sinjoro Gerardo.”
 
 ”Mi petas vin, komencu pozi denove,” diris Bouquet.
 
-”Dankon. Sed ne mienu tiel triste, mi petas. Ankaŭ vi aparte-
-
-nas al la romantikuloj.”
+”Dankon. Sed ne mienu tiel triste, mi petas. Ankaŭ vi apartenas al la romantikuloj.”
 
 ”ĉu vi opinias?” ĝoje demandis Gasparo.
 
@@ -9979,15 +8091,12 @@ nas al la romantikuloj.”
 
 **194**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La kontrakto
 
-La problemo pri lumigado disigis la ĝisnunajn bonajn ku-
-
-nulojn kaj amikojn, sinjoron Fabienon kaj sinjoron Ber-
+La problemo pri lumigado disigis la ĝisnunajn bonajn kunulojn kaj amikojn, sinjoron Fabienon kaj sinjoron Ber-
 
 trandon. Fabien pledis por gaso kaj nomis Bertrandon, kiu
 
@@ -10017,7 +8126,6 @@ kompleza kaj amplena al ĉiuj, kiuj lin bezonis. Li ne zorgis,
 
 **195**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10029,9 +8137,7 @@ tion per sekvinta movo transformi je miro aŭ rido. Li sentis,
 
 kvazaŭ li ludus kun e˛o. En momento li eksentis, kiam la e˛o
 
-ne respondis al lia intenco kaj kiam perdiĝis la reciproka ri-
-
-lato, la e˛o, kiun li bezonis por emfazi esprimon aŭ geston
+ne respondis al lia intenco kaj kiam perdiĝis la reciproka rilato, la e˛o, kiun li bezonis por emfazi esprimon aŭ geston
 
 ĝuste malan, ol ĉiuj atendis.
 
@@ -10051,23 +8157,16 @@ admiri sian heroon.
 
 Gasparo ne vidis ŝiajn entuziasmajn okulojn, ĉar kiam la
 
-ludo finiĝis, la vendistino devis rapide reveni al sia kiosko-
-
-tablo. Li ne rimarkis, ke ŝi penas lin ekvidi, kiam li eliras el la teatro. Kiam finiĝis aplaŭdo kaj li estis demetanta sian ŝatatan veston, li foriris en nokton, de kiu li atendis, ke ĝi donacos al li princidinon, jam anticipe pacigita, ke li ricevos nur la revon.
+ludo finiĝis, la vendistino devis rapide reveni al sia kioskotablo. Li ne rimarkis, ke ŝi penas lin ekvidi, kiam li eliras el la teatro. Kiam finiĝis aplaŭdo kaj li estis demetanta sian ŝatatan veston, li foriris en nokton, de kiu li atendis, ke ĝi donacos al li princidinon, jam anticipe pacigita, ke li ricevos nur la revon.
 
 Sed li ne atendis la fraŭlinon el bufedo. Tial ankaŭ li ne vidis **196**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ŝin, eĉ ne, kiam ŝi elkuris el sia vendejo trotuaren kaj malfeli-
+ŝin, eĉ ne, kiam ŝi elkuris el sia vendejo trotuaren kaj malfeliĉa aŭskultis la ree˛on de liaj paŝoj.
 
-ĉa aŭskultis la ree˛on de liaj paŝoj.
-
-Bertrand baldaŭ konstatis, ke sola li ne kapablas legi ma-
-
-nuskriptojn, kvereli kun aktoroj, registri monpunojn kaj di-
+Bertrand baldaŭ konstatis, ke sola li ne kapablas legi manuskriptojn, kvereli kun aktoroj, registri monpunojn kaj di-
 
 rekti la tutan teatran agadon. Li informiĝis inter ekspertoj kaj akceptis kiel novan kunulon sinjoron Cot’ d’Ordan, kiun li
 
@@ -10077,29 +8176,19 @@ Sinjoro Cot’ d’Ordan, altkreska longulo, seka kaj frida, volis
 
 demonstri, ke la famo ne mensogis. Direkti teatron signifas
 
-ŝpari, estis lia devizo. Li malaltigis la salajrojn de la muzikantoj je kvin frankoj. Al la aktoroj li ordonis kurtigi meĉojn en la lampoj, kiam ili foriras el la vestejoj. Severe li malpermesis utiligi oleon el lampoj por deŝminkado. Monpuno mina-
+ŝpari, estis lia devizo. Li malaltigis la salajrojn de la muzikantoj je kvin frankoj. Al la aktoroj li ordonis kurtigi meĉojn en la lampoj, kiam ili foriras el la vestejoj. Severe li malpermesis utiligi oleon el lampoj por deŝminkado. Monpuno minacis al tiu, kiu vestus trikoton sen ŝtrumpoj aŭ sen speciala
 
-cis al tiu, kiu vestus trikoton sen ŝtrumpoj aŭ sen speciala
-
-permeso. Bertrand miregis senmezure, de kie ĝis nun entu-
-
-te forkuradis de li centimoj.
+permeso. Bertrand miregis senmezure, de kie ĝis nun entute forkuradis de li centimoj.
 
 Sed krome Cot’ d’Ordan havis ankaŭ proprajn konceptojn
 
 pri arto kaj laŭ tiuj li volis transformi la teatron. is tiam oni ludis dum labortago kvinfoje, dum festotago okfoje. Cot’
 
-d’Ordan enkondukis nur du prezentadojn por adapti Funam-
+d’Ordan enkondukis nur du prezentadojn por adapti Funambules al pli grandaj teatroj.
 
-bules al pli grandaj teatroj.
+”Plibone impresas du prezentadoj, kiuj plenas ol kvin duonplenaj,” li asertis. Li intencis enkonduki ŝanĝojn ankaŭ en
 
-”Plibone impresas du prezentadoj, kiuj plenas ol kvin du-
-
-onplenaj,” li asertis. Li intencis enkonduki ŝanĝojn ankaŭ en
-
-la ensemblo, por ke ĝi konformu al liaj planoj. Multon li aten-
-
-dis de la anglaj akrobatoj kaj dancistoj, fratoj Laurent. Sed
+la ensemblo, por ke ĝi konformu al liaj planoj. Multon li atendis de la anglaj akrobatoj kaj dancistoj, fratoj Laurent. Sed
 
 Felikso anoncis, ke prefere li foriros al sinjorino Sagui, ĉar li ne intencas ludi sekundaran rolon. Nova danĝero por Deburau.
 
@@ -10107,7 +8196,6 @@ Felikso anoncis, ke prefere li foriros al sinjorino Sagui, ĉar li ne intencas l
 
 **197**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10145,9 +8233,7 @@ validos post du jaroj. Brilege, ĉu? Vi akceptas, ĉu? Pri tio ni devas interkon
 
 ”Sed dume?”
 
-”A˛, vi trabatiĝos. Preskaŭ ĉiuj niaj aktoroj havas flank-
-
-okupojn. Unu estas ladaĵisto, alia vitras fenestrojn, la tria komercas kun vino. Ankaŭ niaj primadonoj kudras kaj faras ĉa-
+”A˛, vi trabatiĝos. Preskaŭ ĉiuj niaj aktoroj havas flankokupojn. Unu estas ladaĵisto, alia vitras fenestrojn, la tria komercas kun vino. Ankaŭ niaj primadonoj kudras kaj faras ĉa-
 
 pelojn. Kaj vi tamen majstras naŭ metiojn.”
 
@@ -10163,7 +8249,6 @@ vivo, ne nur vespere por kromenspezi.”
 
 **198**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10181,13 +8266,9 @@ rolo! ĉu vi ne komprenas tion? Pieroto estas mia!”
 
 havas ĉi tie la publikon, mi ne povas ĝin forlasi. Kaj mi ne
 
-povas donaci mian Pieroton al iu alia. Kvazaŭ mi estus don-
+povas donaci mian Pieroton al iu alia. Kvazaŭ mi estus donanta mian propran vivon.”
 
-anta mian propran vivon.”
-
-La pordo apertiĝis kaj eniris Cot d’Ordan kun Felikso. Bert-
-
-rand kun ili interŝanĝis rigardon kaj Gasparo ĝin ekkaptis.
+La pordo apertiĝis kaj eniris Cot d’Ordan kun Felikso. Bertrand kun ili interŝanĝis rigardon kaj Gasparo ĝin ekkaptis.
 
 ”Sinjoro Felikso, vi scias kiom longe mi atendis. Nun mi
 
@@ -10213,21 +8294,16 @@ mi ne volas. Sed jungi teatron al io mi ne povas. Kiam mi ne
 
 povos plu, mi foriros.”
 
-”Sed nia kontrakto validas!” montris Bertrand al la subskri-
-
-bo.
+”Sed nia kontrakto validas!” montris Bertrand al la subskribo.
 
 ”Oni promesis al mi postenon. Mi lernos esti seruristo.”
 
 Gasparo estis kaptita, kaptita kaj katenita. Bertrand fariĝis
 
-lia mastro. Nun atendis lin la malsataj semajnoj po naŭ fran-
-
-koj. Li elserĉis la adreson de seruristo Bistram.
+lia mastro. Nun atendis lin la malsataj semajnoj po naŭ frankoj. Li elserĉis la adreson de seruristo Bistram.
 
 **199**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10239,27 +8315,19 @@ Temple kvar pli oldaj, elegante vestitaj viroj. Ili plenis
 
 de indigno; ili diskutis pri novaj cenzur-leĝoj, minancantaj
 
-ruinigi la tutan evoluon de la arto en Francio, pri la malper-
+ruinigi la tutan evoluon de la arto en Francio, pri la malpermesita pentrista salono, pri subpremado de la gazetaro.
 
-mesita pentrista salono, pri subpremado de la gazetaro.
-
-Tiuj kvar viroj konsiderinde rolis en la artisma vivo: ili es-
-
-tis Picard, aŭtoro de komedio, kiun oni miskomprenis kaj pro
+Tiuj kvar viroj konsiderinde rolis en la artisma vivo: ili estis Picard, aŭtoro de komedio, kiun oni miskomprenis kaj pro
 
 tio ĝi fiaskis; Fontaine, arkitekto, kiu grandiozstile renovigis Tuileriojn; Redouté, fama pentristo de florsolejoj; kaj fine Gé-
 
-rard, glora kreinto de Batalo apud Slavkov kaj aŭtoro de ali-
-
-aj signifaj pentraĵoj, instruisto de Bouquet kaj adepto de la
+rard, glora kreinto de Batalo apud Slavkov kaj aŭtoro de aliaj signifaj pentraĵoj, instruisto de Bouquet kaj adepto de la
 
 nova romantikisma tendenco.
 
 Gvidataj de afliktaj ideoj ili venis dum hazarda promeno al
 
-antaŭurba bulvardo. Ili paŝis lante laŭlonge de subteraj kar-
-
-bovendejoj, preter tabloj kun afiŝoj kaj fruktoj, kaj por aliaj kaj ankaŭ por si mem amare plendis kontraŭ tio, kio ilin sincere doloris.
+antaŭurba bulvardo. Ili paŝis lante laŭlonge de subteraj karbovendejoj, preter tabloj kun afiŝoj kaj fruktoj, kaj por aliaj kaj ankaŭ por si mem amare plendis kontraŭ tio, kio ilin sincere doloris.
 
 ”Kiom pli facile vivas tiuj homoj,” montris Fontaine al la
 
@@ -10277,7 +8345,6 @@ si vojon en la Francan komedion?”
 
 **200**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10286,9 +8353,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 asertis Gérard. ”Nur rigardu tiujn vizaĝojn. Sur ili estas sana, nedifektita kerno.”
 
-”Ili posedas la sanan kernon pro tio, ĉar pri nenio ili zor-
-
-gas,” mansvingis Redouté. ”Kaj vi turmentu vin kaj meditu,
+”Ili posedas la sanan kernon pro tio, ĉar pri nenio ili zorgas,” mansvingis Redouté. ”Kaj vi turmentu vin kaj meditu,
 
 kiel eblas aŭtodafei la kantojn fare de Chénier, karceri Bé-
 
@@ -10296,17 +8361,13 @@ ranger’on kaj havi la reĝon, kiu opinias marianan procesion
 
 artmanifestiĝo.”
 
-Kaj denove ili iris kaj rigardis ĉirkaŭ si morne kaj malafa-
-
-ble.
+Kaj denove ili iris kaj rigardis ĉirkaŭ si morne kaj malafable.
 
 ”Kion vi diras pri la ideo viziti ie kabaredon?” proponis
 
 Fontaine.
 
-”Nenion kontraŭ,” ekridetis Gérard. ”Al niaj teatristoj ne-
-
-pre helpus de temp’ al tempo tien veni. Ili povus tie ĉerpi iom da reala vivo anstataŭ siaj artefaritaj teorioj.”
+”Nenion kontraŭ,” ekridetis Gérard. ”Al niaj teatristoj nepre helpus de temp’ al tempo tien veni. Ili povus tie ĉerpi iom da reala vivo anstataŭ siaj artefaritaj teorioj.”
 
 Kelke da homgrupetoj preterpasis ilin.
 
@@ -10330,17 +8391,12 @@ La metiistoj reciprokis kun rido kaj plu iris.
 
 ”Mi proponas, sinjoroj, ke ni obeu la voĉon de la popolo.
 
-Se ni volas la hodiaŭan vesperon pasigi senfare, ĝi okazu per-
+Se ni volas la hodiaŭan vesperon pasigi senfare, ĝi okazu perfekte,” opiniis Picard. Post nelonge ili staris antaŭ la fasado de **201**
 
-fekte,” opiniis Picard. Post nelonge ili staris antaŭ la fasado de **201**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Funambules. Raŭkvoĉa krianoncanto logis eniri per florple-
-
-naj frazoj.
+Funambules. Raŭkvoĉa krianoncanto logis eniri per florplenaj frazoj.
 
 ”La arto havas ĉi tie alian voĉon ol en Komedio.”
 
@@ -10354,9 +8410,7 @@ anoncanta la pantomimon ”Furioza taŭro”.
 
 Kvankam la teatraĵo de Laurent jam longe havis sukceson,
 
-la krianoncanto patro Royer konsterne malfermegis la oku-
-
-lojn, kiam li ekvidis, ke ĉi tiuj kvar nobele aspektantaj kava-
+la krianoncanto patro Royer konsterne malfermegis la okulojn, kiam li ekvidis, ke ĉi tiuj kvar nobele aspektantaj kava-
 
 liroj fakte aliras al la kaso.
 
@@ -10370,9 +8424,7 @@ el la tuta salonego,” balbutis la kasistino. Tiajn vizitantojn la teatro ankor
 
 Ili pagis kaj transiris la straton al enirejo de Funambules.
 
-Daŭre bonhumoraj kaj kritikante la iom nekutiman atmosfe-
-
-ron per ironiaj rimarkigoj, ili rezigne fordonis sin al la gvido de biletistino. Ili trairis la salonegon, plenan de senpacienca publiko. Metiistoj en solenaj veŝtoj tostis per etaj glasetoj kaj la botelojn ili deponis subbenken; iliaj edzinoj trinketis oranĝsukon. Malantaŭe en la partero kaj sur la galerio aŭdiĝis
+Daŭre bonhumoraj kaj kritikante la iom nekutiman atmosferon per ironiaj rimarkigoj, ili rezigne fordonis sin al la gvido de biletistino. Ili trairis la salonegon, plenan de senpacienca publiko. Metiistoj en solenaj veŝtoj tostis per etaj glasetoj kaj la botelojn ili deponis subbenken; iliaj edzinoj trinketis oranĝsukon. Malantaŭe en la partero kaj sur la galerio aŭdiĝis
 
 sovaĝa bruado.
 
@@ -10382,37 +8434,24 @@ Juna biletistino ilndukis ĝis la subscenejo.
 
 ŝi apertis al ili loĝion. Dum la ceteraj demetis la ĉapelojn
 
-kaj rigardis la publikon, Picard serĉis enpoŝe monerojn. Li ri-
-
-markis, ke la biletistino estis plorinta.
+kaj rigardis la publikon, Picard serĉis enpoŝe monerojn. Li rimarkis, ke la biletistino estis plorinta.
 
 **202**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Kio okazis?” li demandis, donante monon al ŝi. ”Kio mal-
+”Kio okazis?” li demandis, donante monon al ŝi. ”Kio malgaja okazis al vi en tiu ĉi ĝoja teatro?”
 
-gaja okazis al vi en tiu ĉi ĝoja teatro?”
+”A˛, pardonu,” ekskuze petis la knabino kaj viŝis siajn okulojn per poŝtuko.
 
-”A˛, pardonu,” ekskuze petis la knabino kaj viŝis siajn oku-
+”Nu diru tion al mi,” klinis sin Picard al ŝi kaj ankaŭ la ceteraj turnis sin scivoleme al ŝi.
 
-lojn per poŝtuko.
-
-”Nu diru tion al mi,” klinis sin Picard al ŝi kaj ankaŭ la ce-
-
-teraj turnis sin scivoleme al ŝi.
-
-”Sinjoro Deburau ludas hodiaŭ lastfoje,” diris ŝi deprimi-
-
-te.
+”Sinjoro Deburau ludas hodiaŭ lastfoje,” diris ŝi deprimite.
 
 ”Kaj tio estas tiel tragedia,” ekridetis Picard. ”Amikoj, ni
 
-elektis malbone. ĉi tie ni ne forgesos la amarecon de la mon-
-
-do.”
+elektis malbone. ĉi tie ni ne forgesos la amarecon de la mondo.”
 
 ”Sinjoro Deburau certe vin amuzos,” certigis la knabino,
 
@@ -10450,7 +8489,6 @@ Komenciĝis varia kaj fabela okazaĵo de la pantomimo. ĉiuj
 
 **203**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10464,9 +8502,7 @@ Fulme enkuris la scenejon Pieroto.
 
 ”Estas li,” diris Gérard. ”La klaŭno de Bouquet.”
 
-Pieroto sola, kiel ŝajnis, ne atentis la eksterordinaran vizi-
-
-ton. ĉu gravis por li loĝio, se hodiaŭ li devas adiaŭi kun sia
+Pieroto sola, kiel ŝajnis, ne atentis la eksterordinaran viziton. ĉu gravis por li loĝio, se hodiaŭ li devas adiaŭi kun sia
 
 amata partero, se lin lastfoje karesis la rebrilo de la senbrilaj lumoj, lastfoje lin tuŝis ondo de surprizo kaj rido? Se li teatris alifoje trankvile kaj rezoneme, hodiaŭ kuŝis sur li nova pezo,
 
@@ -10482,15 +8518,12 @@ ironia rideto, kiu ĉiufoje signifis ion alian. La ceteraj: Arlekeno, Leandro, K
 
 kun ardo. Dume ŝajnis, ke ĉio karuselas ĉirkaŭ li kaj li restas meze sola, kun sia mava rideto. En la momento, kiam vi atendis, ke iun li malutilos, lia mava rideto ŝanĝiĝis en teneran
 
-esprimon, plena de bonkoreco, radianta per interna ĝojo. In-
-
-ter tiuj du polusoj variis sur lia vizaĝo tuta skalo de la sentoj kaj humoroj. Sed liaj lipoj eĉ ne unufoje rikanis, eĉ ne unufoje ekridis plene. ĉiam tio manifestis nur la internan streĉon kaj travivaĵon.
+esprimon, plena de bonkoreco, radianta per interna ĝojo. Inter tiuj du polusoj variis sur lia vizaĝo tuta skalo de la sentoj kaj humoroj. Sed liaj lipoj eĉ ne unufoje rikanis, eĉ ne unufoje ekridis plene. ĉiam tio manifestis nur la internan streĉon kaj travivaĵon.
 
 Pieroto faris apenaŭ kvaronon de iliaj paŝoj. Apenaŭ deko-
 
 **204**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10510,23 +8543,17 @@ la loĝio aplaŭdis. La aktoroj riverencis, Kolombina sendadis
 
 kisojn, Kasandro kaj la aliaj provis koncentri al si atenton per stultaj ŝokaĵoj. Pieroto staris senmove; la blanka vizaĝo kvazaŭ estus el marmoro kaj nur la okuloj lante sekvis homojn
 
-de unu al alia; neniu tion antaŭvidis, nur la biletistinoj, kel-ke da muzikistoj — kaj la kvar amikoj, kiam lia rigardo almi-
-
-gris ankaŭ al ili.
+de unu al alia; neniu tion antaŭvidis, nur la biletistinoj, kel-ke da muzikistoj — kaj la kvar amikoj, kiam lia rigardo almigris ankaŭ al ili.
 
 ”Kuraĝon, Pieroto,” ekmurmuretis Gérard. Sed Pieroto lin
 
-ne rekonis, lia vizaĝo leviĝis al la galerio, kaj tiel ĝi jam restis, ĝis kiam la kurteno falis lastfoje. Tio aspektis, kiam li staris tiel senmove, kvazaŭ li elmetus sin pli al vipobatoj ol al aplaŭ-
-
-do.
+ne rekonis, lia vizaĝo leviĝis al la galerio, kaj tiel ĝi jam restis, ĝis kiam la kurteno falis lastfoje. Tio aspektis, kiam li staris tiel senmove, kvazaŭ li elmetus sin pli al vipobatoj ol al aplaŭdo.
 
 Paŭzo.
 
 ”Oranĝoj! Sukeraĵoj! Figoj!”
 
-En la loĝio longe neniu ekparolis. Post momento deman-
-
-dis Redouté: ”Kion vi ekflustris, Gérard?”
+En la loĝio longe neniu ekparolis. Post momento demandis Redouté: ”Kion vi ekflustris, Gérard?”
 
 ”ĉu ion mi flustris?”
 
@@ -10538,13 +8565,10 @@ La homamaso malsupre bruis kaj ridis. Viro kun ladkruĉo
 
 ofertis frukt-sukon po du centimoj, vendistinoj disportadis
 
-sukerajn stangetojn po du spesoj, kaj en ilian vokadon pene-
-
-tris kanzono de la konata refreno.
+sukerajn stangetojn po du spesoj, kaj en ilian vokadon penetris kanzono de la konata refreno.
 
 **205**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10560,15 +8584,11 @@ maskeradon en arton.”
 
 rimarkigis Gérard.
 
-La partero eksilentis. La lumigisto estingis kelkajn flirt-
-
-lumetojn. Eksonis denove simpla preludo kaj ripete apertiĝis
+La partero eksilentis. La lumigisto estingis kelkajn flirtlumetojn. Eksonis denove simpla preludo kaj ripete apertiĝis
 
 la kurteno. La ludo daŭris.
 
-Pieroto kuracis sian mastron. Sed kiam ajn li metis medi-
-
-kamentojn por la mastro sur sukerkubon, la sukeron li for-
+Pieroto kuracis sian mastron. Sed kiam ajn li metis medikamentojn por la mastro sur sukerkubon, la sukeron li for-
 
 manĝis mem. Sed li sentis, kvazaŭ li englutus venenon.
 
@@ -10578,19 +8598,13 @@ manifesti ĉiam malfortecon de la homa karaktero. Li evitadis
 
 lukton, elektadis por la rivalo malpli bonajn armilojn, pli kurtajn sabrojn, kaj finfine, por eltiri sin el la konflikto kun sana haŭto, li persvadis la rivalon, ke prefere li mortpafu atestantojn ol ili sin reciproke.
 
-La spektantoj brue amuzis sin per tio, kiel Pieroto senmas-
+La spektantoj brue amuzis sin per tio, kiel Pieroto senmaskigis karaktertrajtojn, kiujn oni kutime konfesas eĉ ne al si
 
-kigis karaktertrajtojn, kiujn oni kutime konfesas eĉ ne al si
-
-mem; malkuraĝon, egoismon, senskrupulecon. Sed la krue-
-
-la rideto ĉe ĉiu sceno pruvadis, ke Pieroto ne nur imitas la
+mem; malkuraĝon, egoismon, senskrupulecon. Sed la kruela rideto ĉe ĉiu sceno pruvadis, ke Pieroto ne nur imitas la
 
 vivon, sed ankaŭ ĝin kritikas.
 
-La kvar amikoj nun pli ofte montris sian kontenton kaj for-
-
-tigis unu la alian per reciproka konsento.
+La kvar amikoj nun pli ofte montris sian kontenton kaj fortigis unu la alian per reciproka konsento.
 
 ”Tiu knabo estas eĉ kuraĝa,” diris Redouté, kiam Pieroto ĉe
 
@@ -10604,7 +8618,6 @@ ekfrapis sursceneje la pordon.
 
 **206**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10614,25 +8627,17 @@ trans la balustradon. ”Rigardu Pieroton!” kaptis lin Picard je
 
 la mano.
 
-La prezentado estis ĉefine. La tumulto sur la scenejo pli-
-
-grandiĝis, ĉio giris kaj dancis, nur Pieroto estis ĉiam pli lantema. Kiam li devis bati kaj miscelis, jam vi ne ekkonis, ĉu tio estas intence aŭ ĉu lia vido malheliĝis. Kiam li estis batita, vi hezitis, ĉu li ŝajnigas sensentemon, aŭ ĉu fakte li estis sveni-gita. Por sentema artisto, detale informita pri postkulisa vero de tiu ĉi komedio, tio estis korprema spektaklo.
+La prezentado estis ĉefine. La tumulto sur la scenejo pligrandiĝis, ĉio giris kaj dancis, nur Pieroto estis ĉiam pli lantema. Kiam li devis bati kaj miscelis, jam vi ne ekkonis, ĉu tio estas intence aŭ ĉu lia vido malheliĝis. Kiam li estis batita, vi hezitis, ĉu li ŝajnigas sensentemon, aŭ ĉu fakte li estis sveni-gita. Por sentema artisto, detale informita pri postkulisa vero de tiu ĉi komedio, tio estis korprema spektaklo.
 
 Pieroto ridigis la rigardantojn per lastaj ideoj. Sed kiam
 
-Arlekeno kuniĝis enbrake kun Kolombina kaj kiam ĉiuj res-
-
-tantaj ekĝojis en sovaĝa ŝarivario, Pieroto staris meze de ili
+Arlekeno kuniĝis enbrake kun Kolombina kaj kiam ĉiuj restantaj ekĝojis en sovaĝa ŝarivario, Pieroto staris meze de ili
 
 kiel statuo sur forlasita sarkofago. La publiko ankoraŭ ridis
 
-kaj la ondoj de kontento verŝadis trans lian vizaĝon; sed ali-
+kaj la ondoj de kontento verŝadis trans lian vizaĝon; sed aliaj ondoj forlavadis desur ĝi la scenejan maskon, ĝis li staris
 
-aj ondoj forlavadis desur ĝi la scenejan maskon, ĝis li staris
-
-proksime al la loĝio, kvazaŭ nudigita, kun la vizaĝo fiksita en la tenebran futuron. Kaj liaj okuloj diris: ”Mi volis tiom donaci al vi kaj vi ne akceptis tion.” Gasparo Deburau funebre en-
-
-terigis Pieroton el Funambules.
+proksime al la loĝio, kvazaŭ nudigita, kun la vizaĝo fiksita en la tenebran futuron. Kaj liaj okuloj diris: ”Mi volis tiom donaci al vi kaj vi ne akceptis tion.” Gasparo Deburau funebre enterigis Pieroton el Funambules.
 
 ”Terura rideto,” ekflustris Redouté.
 
@@ -10654,47 +8659,34 @@ fermiĝis. Nelonge poste ĉeporde aperis la geaktoroj. Ili ĉir-
 
 **207**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 kaŭrigardis, enspiris freŝan aeron kaj poste lante aŭ rapidpaŝe foriradis. Je Mariana kaj Flora atendis fiakroj kun frako interne. Ili estis forveturantaj, fiere desupre rigardante la kolegojn, fuĝantajn antaŭ la nokta pluvo.
 
-La firmamento larmis dum la hodiaŭa sepulto. Subite aŭdi-
-
-ĝis rapida klakado de ŝuoj. La kvar viroj, kiuj la unuaj forla-
+La firmamento larmis dum la hodiaŭa sepulto. Subite aŭdiĝis rapida klakado de ŝuoj. La kvar viroj, kiuj la unuaj forla-
 
 sis la teatron, estis revenantaj. Preskaŭ ili devancis unu la
 
 alian. Kio kondukis ilin ĉi tien? La trotuaro malplenis. Picard volis aperti la pordon kaj eniri. Tiumomente iu estis eliranta
 
-per lanta, malrapida paŝo supren. Picard retropaŝis kaj de-
+per lanta, malrapida paŝo supren. Picard retropaŝis kaj demandis: ”Pardonu, sinjoro, ĉu estas tie malsupre ankoraŭ si-
 
-mandis: ”Pardonu, sinjoro, ĉu estas tie malsupre ankoraŭ si-
-
-njoro Deburau, kiu hodiaŭ vespere prezentis la rolon de Pie-
-
-roto?”
+njoro Deburau, kiu hodiaŭ vespere prezentis la rolon de Pieroto?”
 
 ”Mi estas tiu,” diris la viro kaj haltis.
 
 ”Vi?” vokis Picard kaj rigardis scivoleme lian vizaĝon.
 
-”Per kio mi povas servi al vi?” demandis Pieroto, alivesti-
-
-ta nun kiel malriĉa parizano.
+”Per kio mi povas servi al vi?” demandis Pieroto, alivestita nun kiel malriĉa parizano.
 
 ”ĉu vi irus kune kun ni iom promeni?”
 
-En societo de ĉi tiuj noble aspektantaj viroj estis nenio ti-
-
-minda. Li jesis kaj atendis. Ili prenis lin inter sin, sed iris senvorte. Ili pririgardis sian aktoron per kaŝrigardoj. La mizera
+En societo de ĉi tiuj noble aspektantaj viroj estis nenio timinda. Li jesis kaj atendis. Ili prenis lin inter sin, sed iris senvorte. Ili pririgardis sian aktoron per kaŝrigardoj. La mizera
 
 kitelo, surmanike ĉifonita, mallarĝa, plilongigita pantalono.
 
-Sed la vizaĝo restis karakteriza kiel sur la scenejo: alpremiĝa, malhela, leĝere ondumita hararo, alta frunto kun kelkaj fru-tempaj sulkoj, profunde enkavaj grizbluaj okuloj, kavaj van-
-
-goj kaj stretaj lipoj super la angulhava mentono. Antaŭ la plej proksima restoracio la stranga kvaropo ankaŭ kun Deburau
+Sed la vizaĝo restis karakteriza kiel sur la scenejo: alpremiĝa, malhela, leĝere ondumita hararo, alta frunto kun kelkaj fru-tempaj sulkoj, profunde enkavaj grizbluaj okuloj, kavaj vangoj kaj stretaj lipoj super la angulhava mentono. Antaŭ la plej proksima restoracio la stranga kvaropo ankaŭ kun Deburau
 
 haltis.
 
@@ -10704,23 +8696,18 @@ haltis.
 
 **208**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Sed ĝuste pri tio temas,” decidis Fontaine kaj la tuta grupo
 
-eniris. Ili ordonis vespermanĝon. Gasparo konkludis: filantro-
-
-poj, kiuj volas lin gastigi. Eble vespere en la teatro li forpelis malbonhumoron kaj ili volas lin iomete rekompenci per kelkaj manĝopecoj. Sed li akceptis, ĉar malsato venkis fieron.
+eniris. Ili ordonis vespermanĝon. Gasparo konkludis: filantropoj, kiuj volas lin gastigi. Eble vespere en la teatro li forpelis malbonhumoron kaj ili volas lin iomete rekompenci per kelkaj manĝopecoj. Sed li akceptis, ĉar malsato venkis fieron.
 
 ”Je via Pieroto!” diris unu el la sinjoroj kaj levis glason. ”ĉu vi ne rekonas min?”
 
 ”Majstro Gérard!” ekvokis Gasparo. Venis nova ideo al li:
 
-tiuj homoj estas pentristoj kaj deziros lin portreti. Li prepa-
-
-ris sin por rifuzi tion. Bouquet lin pentris jam multfoje, sed lia bildo estis rifuzita pro nekonvena suĵeto.
+tiuj homoj estas pentristoj kaj deziros lin portreti. Li preparis sin por rifuzi tion. Bouquet lin pentris jam multfoje, sed lia bildo estis rifuzita pro nekonvena suĵeto.
 
 La kvar viroj tostis, interkompreniĝis perokule kaj Gérard
 
@@ -10734,9 +8721,7 @@ takto, ke Gasparo volonte respondadis.
 
 ”Kiam?”
 
-”Morgaŭ. Morgaŭ ankaŭ mi anoncos min ĉe nova patro-
-
-no. ”
+”Morgaŭ. Morgaŭ ankaŭ mi anoncos min ĉe nova patrono. ”
 
 ”ĉe seruristo?”
 
@@ -10748,21 +8733,16 @@ kiun donas al vi la direktoro. Kiom vi ricevas salajre?”
 
 ”Semajne naŭ frankojn.”
 
-Ili ne povis reteni surprizon. ”Tiu homo insidas pri via vi-
-
-vo!”
+Ili ne povis reteni surprizon. ”Tiu homo insidas pri via vivo!”
 
 Gasparo ŝultrolevetis. ”Mi havas kontrakton multe pli
 
-avantaĝan, sed ĝi ekvalidos nur post du jaroj. Mi provis mal-
-
-sati, sed mi ne povas tion plu elteni. Mi suferis spasmojn kaj
+avantaĝan, sed ĝi ekvalidos nur post du jaroj. Mi provis malsati, sed mi ne povas tion plu elteni. Mi suferis spasmojn kaj
 
 daŭran kapdoloron.”
 
 **209**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10772,9 +8752,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Dek ok?” ili miris.
 
-Ili tostis je la sano. La voĉo de Gérard mallaŭtiĝis, sed sam-
-
-tempe fariĝis emfaza: ”Jen, sinjoro Deburau. Ni aŭdis pri via
+Ili tostis je la sano. La voĉo de Gérard mallaŭtiĝis, sed samtempe fariĝis emfaza: ”Jen, sinjoro Deburau. Ni aŭdis pri via
 
 foriro kaj ni vidis vin ludi. Ni certas, ke vi havas grandan talenton. Domaĝus, se ĝi malaperus desur la scenejo.”
 
@@ -10812,9 +8790,7 @@ entute nekutima afableco.
 
 ”Tio tamen ne eblas — ”
 
-”Ni aranĝas tion nur por vi, — sed ankaŭ por ni. Se vi sen-
-
-tas en vi la volon esti vera artisto kaj per via ludo ion diri al la homoj — vi devas tion akcepti. Vi havas tiun devon al vi
+”Ni aranĝas tion nur por vi, — sed ankaŭ por ni. Se vi sentas en vi la volon esti vera artisto kaj per via ludo ion diri al la homoj — vi devas tion akcepti. Vi havas tiun devon al vi
 
 mem.”
 
@@ -10824,7 +8800,6 @@ Vi estas aliaj ol la ceteraj.”
 
 **210**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10836,9 +8811,7 @@ ankaŭ mi scias, kial.”
 
 Gasparo ne sciis, ĉu ili ŝercas aŭ parolas serioze.
 
-”Do, kara sinjoro Deburau, ĉu vi akceptas nian kontrak-
-
-ton?”
+”Do, kara sinjoro Deburau, ĉu vi akceptas nian kontrakton?”
 
 ”Mi ne kuraĝas.”
 
@@ -10848,13 +8821,9 @@ ton?”
 
 unu el ni kaj transdonos al vi …”
 
-”Se vi permesos, sinjoroj,” interrompis ilin peteme Debu-
+”Se vi permesos, sinjoroj,” interrompis ilin peteme Deburau. ”Mi akceptos vian proponon tiom afablan. Sed mi petas
 
-rau. ”Mi akceptos vian proponon tiom afablan. Sed mi petas
-
-vin, ne donadu al mi pli multe ol mi havis pli frue. Naŭ fran-
-
-kojn posemajne.”
+vin, ne donadu al mi pli multe ol mi havis pli frue. Naŭ frankojn posemajne.”
 
 ”Ni volis doni pli,” oponis Redouté.
 
@@ -10876,15 +8845,12 @@ timeme.
 
 ”Mi dankas al vi, sinjoroj.”
 
-La nokto floris per belo, kiam Gasparo estis foriranta hej-
-
-men. Kian ludon la vivo aranĝas kun li? i svingis bastonon
+La nokto floris per belo, kiam Gasparo estis foriranta hejmen. Kian ludon la vivo aranĝas kun li? i svingis bastonon
 
 de Arlekeno kaj li estis almozulo, senigita eĉ de ĉifonoj de
 
 espero. Kaj ĝi svingis denove kaj li estis riĉulo, ricevinta la plej valoran donacon: kredon pri la homa komprenemo. Kaj an-211
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10892,9 +8858,7 @@ koraŭ multe pli: kredon pri si mem. La homoj el kvartalo
 
 aplaŭdis, ĉar ili distris sin, ĉar li ĝojigis ilin kaj ridigadis. ĉu ne estis ĉi tiuj la unuaj, kiuj aplaŭdis al li kiel al artisto?”
 
-Iliaj kvarfoje naŭ frankoj, kiujn ili decidiĝis pagi tiom lon-
-
-ge, ĝis la teatra mondo lin malkovros kaj ekkomprenos, savis
+Iliaj kvarfoje naŭ frankoj, kiujn ili decidiĝis pagi tiom longe, ĝis la teatra mondo lin malkovros kaj ekkomprenos, savis
 
 Gasparon Deburau por la teatro. Iliaj kvarfoje naŭ frankoj,
 
@@ -10902,15 +8866,12 @@ kiuj regule la naŭan ektintis en poŝo de Gasparo, ebligis al li vivi kaj ludi.
 
 **212**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Desirée
 
-Bertrand estis sincere surprizita, kiam Gasparo la venin-
-
-tan matenon sciigis lin, ke li volas resti ankaŭ kun la mal-
+Bertrand estis sincere surprizita, kiam Gasparo la venintan matenon sciigis lin, ke li volas resti ankaŭ kun la mal-
 
 altigita salajro.
 
@@ -10924,9 +8885,7 @@ al la publiko, ne bagatelas. Almenaŭ Gasparo ne malaperos
 
 for de liaj okuloj antaŭ ol li bezonos lin.
 
-Do, ĉio restis al Deburau: ĝoja rido de la publiko kaj envi-
-
-emaj rigardoj de la amikoj. Nur li ne komprenis, kial la mal-
+Do, ĉio restis al Deburau: ĝoja rido de la publiko kaj enviemaj rigardoj de la amikoj. Nur li ne komprenis, kial la mal-
 
 granda biletistino el loĝioj ĉiuvespere tiom feliĉe ridetas, kiam li preteriras ŝin.
 
@@ -10938,15 +8897,12 @@ estis revenanta, li elektis intence pli longan vojon preter ĝardenoj; li volis 
 
 Irante laŭlonge de la verda kaj unuetaĝa dometo, vento,
 
-kiu blovis kontraŭ lian vizaĝon, subite eksaltetis kaj desur ia fenestro terenĵetis kelkajn paperfoliojn. Gasparo rigardis supren kaj enfenestre li ekvidis vizaĝon de bela blondhara kna-
-
-bino, serĉanta pervide, kien la vento forblovegis ŝiajn foliojn.
+kiu blovis kontraŭ lian vizaĝon, subite eksaltetis kaj desur ia fenestro terenĵetis kelkajn paperfoliojn. Gasparo rigardis supren kaj enfenestre li ekvidis vizaĝon de bela blondhara knabino, serĉanta pervide, kien la vento forblovegis ŝiajn foliojn.
 
 Alifoje Gasparo sendube mallevus la kapon kaj irus plu kun
 
 **213**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -10976,21 +8932,15 @@ onklino ŝlosis min ĉi tie. Mi ne darfas malsupren.”
 
 ”ĉu vi volas esti tiel afabla? Sed ne legu ilin, mi petas.”
 
-”Ne,” promesis Gasparo, sed la scivolemo lin devigis sur-
-
-voje laŭ la ŝtuparo enrigardi la manuskripton: ”Mia kara …”
+”Ne,” promesis Gasparo, sed la scivolemo lin devigis survoje laŭ la ŝtuparo enrigardi la manuskripton: ”Mia kara …”
 
 Nun li estis supre kaj ne sciis, al kiu pordo iri, ĝis el unu eksonis frapado. ”ĉi tie, sinjoro.”
 
 ”Kiel mi transdonu tion al vi?”
 
-”ŝovu tion, mi petas, subporden. Do. Vere vi estas tre ka-
+”ŝovu tion, mi petas, subporden. Do. Vere vi estas tre kara.”
 
-ra.”
-
-”Jes,” konsentis Gasparo. ”ĉu mi ne meritus etan rekom-
-
-pencon?”
+”Jes,” konsentis Gasparo. ”ĉu mi ne meritus etan rekompencon?”
 
 ”Nenion mi havas, sinjoro.”
 
@@ -11008,13 +8958,10 @@ La knabino evidente meditis.
 
 **214**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Promesu tion al mi! Morgaŭ je la sama tempo kiel hodi-
-
-aŭ, ĉu?”
+”Promesu tion al mi! Morgaŭ je la sama tempo kiel hodiaŭ, ĉu?”
 
 ”Jes.”
 
@@ -11024,31 +8971,23 @@ ne redonis al vi.”
 
 ”Hontu, sinjoro!”
 
-”Mi redonos ĝin subkondiĉe, ke vi donos al mi alian garan-
-
-tion.”
+”Mi redonos ĝin subkondiĉe, ke vi donos al mi alian garantion.”
 
 ”Kio ĝi estu?”
 
-”Ia bagatelaĵo, por ke mi povu rememorigi al mi nian inter-
-
-konatiĝon.”
+”Ia bagatelaĵo, por ke mi povu rememorigi al mi nian interkonatiĝon.”
 
 ”ĉu eble tion?” Subporde aperis flava rubandeto.
 
 ”Bonege,” li vokis.
 
-Post momenta silentado la knabino denove aŭdiĝis: ”An-
-
-koraŭ vi estas ĉi tie?”
+Post momenta silentado la knabino denove aŭdiĝis: ”Ankoraŭ vi estas ĉi tie?”
 
 ”Mi pririgardas vian rubandeton.”
 
 ”Jam foriru. La onklino kolerus.”
 
-”Jam mi kuras. Sed mi forgesos vin eĉ ne por unu momen-
-
-to.”
+”Jam mi kuras. Sed mi forgesos vin eĉ ne por unu momento.”
 
 Li estis foriranta, venke forportanta la trofeon. Garantiaĵo
 
@@ -11056,19 +8995,14 @@ de la aventuro: la flava rubandeto. Kion ĝi ornamis? ŝultron?
 
 hararon? manikon? Por Gasparo ĝi kaŝis la tutan sekreton de
 
-la knabina estaĵo. Gasparo ligis kun la aperaĵo de la nekona-
+la knabina estaĵo. Gasparo ligis kun la aperaĵo de la nekonatino ĉiujn romantikajn revojn kaj imagojn. La tutan tagon li
 
-tino ĉiujn romantikajn revojn kaj imagojn. La tutan tagon li
-
-bedaŭris, ke li ne demandis pri la nomo. Kio, se ŝi trans-
-
-loĝiĝus? Se ŝi ne venus?
+bedaŭris, ke li ne demandis pri la nomo. Kio, se ŝi transloĝiĝus? Se ŝi ne venus?
 
 La kvina horo lin trafis ekscitita antaŭ la verda domo. Li ne
 
 certis, ĉu li amos la knabinon. Li konsciis, ke li tro malŝparis la senton en aventuroj realigataj nur enreve. Li vivis el rigardoj kolektitaj surstrate, el ridetoj ekkaptitaj kaj el odoroj pli **215**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11078,9 +9012,7 @@ kredis, ke tiu ĉi nova knabina figuro povus penetri ĝis fundo
 
 de lia animo.
 
-Kiam finbatis la kvina, la knabino eliris. Gasparo, kiu pasa-
-
-dis sur la kontraŭa trotuaro, ekvidis en fenestro de la dua
+Kiam finbatis la kvina, la knabino eliris. Gasparo, kiu pasadis sur la kontraŭa trotuaro, ekvidis en fenestro de la dua
 
 etaĝo virinan vizaĝon.
 
@@ -11102,9 +9034,7 @@ rakontis al ŝi pri vi. ĉu vi havas mian rubandeton?”
 
 ”ĉu mi povas iam iri vin rigardi?”
 
-”Se vi permesos, ke ankaŭ mi venadu vidi vin ĉiutage, fraŭ-
-
-lino… ?”
+”Se vi permesos, ke ankaŭ mi venadu vidi vin ĉiutage, fraŭlino… ?”
 
 ”Divenu!”
 
@@ -11114,21 +9044,16 @@ lino… ?”
 
 ”Mi divenis,” li ekridetis feliĉe. ”Jen signo, ke ni ne adiaŭos nin tro baldaŭ.” Krom la tenera nomo, signifanta sopiron,
 
-Desirée havis ankaŭ suplan blondan hararon, kiun malheli-
-
-gis ombroj de etaj ondetoj, malhelbluajn okulojn, diafanan
+Desirée havis ankaŭ suplan blondan hararon, kiun malheligis ombroj de etaj ondetoj, malhelbluajn okulojn, diafanan
 
 vizaĝon kaj belan ruĝan buŝeton.
 
 ”ĉu iri por iom da tempo al Luksemburgia ĝardeno?” li
 
-proponis. Tra stratoj blovetis malseka malvarmeto kaj la ven-
-
-anta aŭtuno rekolorigadis suprojn de aleoj per sia kruda spi-
+proponis. Tra stratoj blovetis malseka malvarmeto kaj la venanta aŭtuno rekolorigadis suprojn de aleoj per sia kruda spi-
 
 ro. Gasparo aŭskultis, feliĉa, kiel apud li klaketas sur la rufo-216
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11142,17 +9067,13 @@ fraŭlino Désirée, kiu kaj kio vi estas?”
 
 ”Do, modistino,” diris li kun admiro. Modistinoj estis
 
-unuarangaj inter grizetinoj. Kudristineto, vendistino, konfi-
-
-tistino devis esti dankema, se hazardo alkondukis al ŝi kava-
+unuarangaj inter grizetinoj. Kudristineto, vendistino, konfitistino devis esti dankema, se hazardo alkondukis al ŝi kava-
 
 liron, kiu pretus aĉeti al ŝi de temp’ al tempo vespermanĝon,
 
 donaci al ŝi ĉapelon kun rubandoj, montri sin kun ŝi dimanĉe
 
-en Robinson kaj sendi al ŝi bukedeton da violoj adiaŭe. ĉa-
-
-pelistino inter ili estis nobela damo. ŝi povis esti kapricema, koketema, ŝi rajtis malŝati donaceton, kiu ne plaĉis al ŝi kaj
+en Robinson kaj sendi al ŝi bukedeton da violoj adiaŭe. ĉapelistino inter ili estis nobela damo. ŝi povis esti kapricema, koketema, ŝi rajtis malŝati donaceton, kiu ne plaĉis al ŝi kaj
 
 moki vin. Famo pri ĉapelistinoj diris, ke ili estas etaj tiraninoj.
 
@@ -11164,19 +9085,13 @@ Germain ŝi liveras.” Désirée gaje ekridis kaj Gasparo trovis en la rido sig
 
 ”Kial vi loĝas do en tiu ĉi strateto?”
 
-”Kaprico de la onklino. Plaĉas al ŝi, ke somere ĉi tie bono-
-
-doras robinioj. Sed nia apartamento estas bela. La onklino
+”Kaprico de la onklino. Plaĉas al ŝi, ke somere ĉi tie bonodoras robinioj. Sed nia apartamento estas bela. La onklino
 
 konas multajn vojaĝistojn kaj tiuj alveturigis al ŝi raraĵojn el Hindio, ĉinio kaj Hispanio. Ankaŭ ĉiuj dukinoj estas ŝiaj amikinoj kaj superŝutas ŝin per donacetoj.”
 
-La knabino haltis kaj rigardis antaŭen, kvazaŭ ame ŝi sor-
+La knabino haltis kaj rigardis antaŭen, kvazaŭ ame ŝi sorĉus antaŭ sia rigardo imagon de la hejmo.
 
-ĉus antaŭ sia rigardo imagon de la hejmo.
-
-”Surmure marmorpapero — belaj bildoj, en angulo blan-
-
-keta forno el majoliko — seĝoj el pajlo — longaj tapiŝoj. ĉu
+”Surmure marmorpapero — belaj bildoj, en angulo blanketa forno el majoliko — seĝoj el pajlo — longaj tapiŝoj. ĉu
 
 ankaŭ vi havas majolikan fornon?”
 
@@ -11184,7 +9099,6 @@ ankaŭ vi havas majolikan fornon?”
 
 **217**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11194,21 +9108,15 @@ neniam spertis, kio estas varmo.
 
 ”Kaj en salono orizita meblaro kun veluro, ĉu?” scivolis la
 
-knabino arde. ŝi ŝatas lukson, ekpensis Gasparo, mi estas per-
+knabino arde. ŝi ŝatas lukson, ekpensis Gasparo, mi estas perdita. Sed tamen li diris: ”i estas kun veluro, sed ne estas orizita.”
 
-dita. Sed tamen li diris: ”i estas kun veluro, sed ne estas orizita.”
-
-”Domaĝe. Al vi ne plaĉas, kiam vespere la sunsubiro rebri-
-
-las sur oraj ornamaĵoj, ĉu?”
+”Domaĝe. Al vi ne plaĉas, kiam vespere la sunsubiro rebrilas sur oraj ornamaĵoj, ĉu?”
 
 ŝi estas poeziema, ekkonsciigis al si Gasparo. Neniam mi
 
 akiros ŝian inklinon pro mia malparolemo.
 
-”Mi vidis superban meblaron utre˛tan ĉe dukino de Ar-
-
-tois.”
+”Mi vidis superban meblaron utre˛tan ĉe dukino de Artois.”
 
 ”ĉu vi estis ĉe la dukino de Artois?” konsterniĝis Pieroto.
 
@@ -11224,9 +9132,7 @@ bulvardo.”
 
 estis preskaŭ ĉiam aliloke. Mi ne povas ĉion memori.”
 
-”Kaj la teatron vi ne vizitadis, ĉu?” provis Gasparo trans-
-
-konduki parolon al alia sfero, kie li pli certis.
+”Kaj la teatron vi ne vizitadis, ĉu?” provis Gasparo transkonduki parolon al alia sfero, kie li pli certis.
 
 ”Jes. En opero.”
 
@@ -11242,19 +9148,14 @@ Gasparo observis la knabinon kun sekreta suspekto. Sed ŝi
 
 mienis serioze kaj ŝiaj okuloj brilis. ŝia sopiro pri lukso lin embarasis. Sed plaĉis al li ŝia entuziasmo kaj la infana gaje-218
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-mo, kiu influis ankaŭ lin. Nature, se li kredos al ŝi, tio sam-
-
-tempe signifas perdon de esperoj.
+mo, kiu influis ankaŭ lin. Nature, se li kredos al ŝi, tio samtempe signifas perdon de esperoj.
 
 ”Kial tamen vi venis al mi?” li miris sincere. La knabino
 
-embarasiĝis. ”Kial ne?” ŝi perdis la certecon, kvazaŭ ŝi antaŭ-
-
-sentus la motivon de la stranga demando. ”Nia renkontiĝo
+embarasiĝis. ”Kial ne?” ŝi perdis la certecon, kvazaŭ ŝi antaŭsentus la motivon de la stranga demando. ”Nia renkontiĝo
 
 estis tiel rara, ĉu? Kaj se vi aktoras … ĉu vi rakontos al mi pri teatro?”
 
@@ -11266,17 +9167,11 @@ mi restis ekstere tiel longe. Nur venonte!”
 
 Ili revenis al la pordego de la parko, tra kiu ili eniris. La
 
-malvarmo forpelis la patrinojn kun infanoj, ankaŭ la geaman-
+malvarmo forpelis la patrinojn kun infanoj, ankaŭ la geamantojn kaj nur kelke da verdetaj statuoj rigardis Gasparon, kiu
 
-tojn kaj nur kelke da verdetaj statuoj rigardis Gasparon, kiu
+vane meditis, kion belan fine diri al sia Dulcinea, por alproksimiĝi al ŝia koro.
 
-vane meditis, kion belan fine diri al sia Dulcinea, por alprok-
-
-simiĝi al ŝia koro.
-
-Li ekrimarkis kaŝtan-vendistinon, kiu apud stratangulo es-
-
-tablis sian kioskon. ”La unuaj kaŝtanoj ĉi-jare,” li diris. ”ĉu vi ŝatas ilin?”
+Li ekrimarkis kaŝtan-vendistinon, kiu apud stratangulo establis sian kioskon. ”La unuaj kaŝtanoj ĉi-jare,” li diris. ”ĉu vi ŝatas ilin?”
 
 ”Tre. Kiel bele ili bonodoras.”
 
@@ -11284,13 +9179,9 @@ Li manpesis moneron destinitan por la morgaŭa tagmanĝo
 
 kaj aĉetis al ŝi kaŝtanojn. Désirée prenis unu per la gracilaj
 
-fingretoj kaj metis ĝin en la buŝon. La ŝelo krakis inter den-
+fingretoj kaj metis ĝin en la buŝon. La ŝelo krakis inter dentoj. Samtempe la knabino ekkriis pro doloro, ĉar ŝi brulvun-
 
-toj. Samtempe la knabino ekkriis pro doloro, ĉar ŝi brulvun-
-
-dis sian langon. ”Dio mia, tio estas ja ŝelo!” Désirée ekrigar-
-
-dis lin kun doloroza riproĉo kaj samtempe kolere. ”ĉu vi ne
+dis sian langon. ”Dio mia, tio estas ja ŝelo!” Désirée ekrigardis lin kun doloroza riproĉo kaj samtempe kolere. ”ĉu vi ne
 
 povis tion diri?”
 
@@ -11304,7 +9195,6 @@ kolero ŝi estis tre ĉarma. Sed Gasparo komprenis tiumomente
 
 **219**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11312,9 +9202,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 havis ilin ĝis nun en la buŝo. Ili iris senvorte. Kiam ili venis al la domo, Gasparo volis ebligi al ŝi honoran retiriĝon.
 
-”La utre˛ta meblaro, loĝio en operejo, veluro, tio estis ŝer-
-
-coj, ĉu?” li diris kore. ”ĉu ni nun diros al ni la veron?”
+”La utre˛ta meblaro, loĝio en operejo, veluro, tio estis ŝercoj, ĉu?” li diris kore. ”ĉu ni nun diros al ni la veron?”
 
 Ironia nuanco de lia rideto, kiu senvole aperis sur liaj lipoj, kaŭzis tion, kio okazis. ”ŝercoj?” ŝi respondis dolore. ”Tio
 
@@ -11322,19 +9210,14 @@ estis eĉ tro serioza.”
 
 ŝia voĉo rompiĝis, la polmoj kaŝis la vangon kaj Désirée
 
-ekkuris al la domo. Antaŭ ol Gasparo rekonsciiĝis, ŝi malape-
+ekkuris al la domo. Antaŭ ol Gasparo rekonsciiĝis, ŝi malaperis sur la ŝtuparo.
 
-ris sur la ŝtuparo.
-
-Vane li preterpasadis. La fenestro restis fermita. El la roz-
-
-kolora posttagmezo restis al li nur malvarmiĝinta kornsake-
+Vane li preterpasadis. La fenestro restis fermita. El la rozkolora posttagmezo restis al li nur malvarmiĝinta kornsake-
 
 to kun perfidaj kaŝtanoj.
 
 **220**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11342,23 +9225,15 @@ La amo sen ŝuetoj
 
 Unue Gasparo indignis je Désirée pro ŝia fanfaronado.
 
-Sed por li klaris, ke ŝiaj naivaj mensogoj estas fantazi-
+Sed por li klaris, ke ŝiaj naivaj mensogoj estas fantaziado pri la pli bela vivo. Kaj ĝojigis lin, ke la bela Désirée ne distas de li kiel la majolika forno de malvarmo en lia mansardo.
 
-ado pri la pli bela vivo. Kaj ĝojigis lin, ke la bela Désirée ne distas de li kiel la majolika forno de malvarmo en lia mansardo.
+Post tri tagoj li revenis al la domo ĉe la luksemburgia ĝardeno. Longe li promenis tra la strato kaj atendis. Subite unu
 
-Post tri tagoj li revenis al la domo ĉe la luksemburgia ĝar-
-
-deno. Longe li promenis tra la strato kaj atendis. Subite unu
-
-fenestro malfermiĝis; aperis knabino, kiun ĝis nun li ne konis, kaj energie ŝi gestis al li, ke li iru supren. Sopiro revidi Dési-réen venkis embarasojn. Li ascendis la ŝtuparon. Konata por-
-
-do estis apertita. Eksonis krio, sed jam en la koridoron alku-
+fenestro malfermiĝis; aperis knabino, kiun ĝis nun li ne konis, kaj energie ŝi gestis al li, ke li iru supren. Sopiro revidi Dési-réen venkis embarasojn. Li ascendis la ŝtuparon. Konata pordo estis apertita. Eksonis krio, sed jam en la koridoron alku-
 
 ris knabino, invitinta lin supren; ŝi kaptis lin energie je la maniko kaj tiris lin enen.
 
-”Venu,” ŝi diris kaj kondukis lin tra mallarĝa tenebra ves-
-
-tiblo en la ĉambron. Gasparo konsciiĝis, ke li staras antaŭ la
+”Venu,” ŝi diris kaj kondukis lin tra mallarĝa tenebra vestiblo en la ĉambron. Gasparo konsciiĝis, ke li staras antaŭ la
 
 fenestroj videblaj de la strato. Li ĉirkaŭrigardis. Li ne trovis majolikan fornon, sed malriĉan kaj foruzitan kamenon. La
 
@@ -11378,7 +9253,6 @@ kapablis plibeligi la mizeron de la frotdifektitaj muroj.
 
 **221**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11434,15 +9308,12 @@ mi siajn revojn — ne la realaĵojn.”
 
 Fine ŝi mem ne scias solvon.”
 
-”Tiom katastrofe ne statas la afero,” volis Gasparo konso-
-
-li la knabinon kuŝantan apude.
+”Tiom katastrofe ne statas la afero,” volis Gasparo konsoli la knabinon kuŝantan apude.
 
 ”La afero pli mizeras, ol vi opinias. Se vi kuraĝus kaj deme-
 
 **222**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11470,9 +9341,7 @@ la kanapo kuŝis amaso da tolaĵo, atendanta riparon.
 
 ”Iun tagon, kiam estis malpli da laboro kaj pli da malsato,
 
-ni decidiĝis, ke unu paro da ŝuetoj superfluas. La tutan semaj-
-
-non ni vespermanĝis por ili.”
+ni decidiĝis, ke unu paro da ŝuetoj superfluas. La tutan semajnon ni vespermanĝis por ili.”
 
 ”ĉu vi vendis ilin?” ekteruris Gasparo.
 
@@ -11492,9 +9361,7 @@ neniu virino malsekretigus.”
 
 ”Sed ĝuste tial mi estimas vin tre,” certigis ŝin Gasparo.
 
-”Mi faris tion por havi neniajn konscienc-riproĉojn. Dési-
-
-rée bravas kiel knabino,” ŝi aliris al la seĝo kaj karesis ŝian hararon, kuŝantan senmove sur la tegaĵo,” sed ŝi ne kuraĝis
+”Mi faris tion por havi neniajn konscienc-riproĉojn. Désirée bravas kiel knabino,” ŝi aliris al la seĝo kaj karesis ŝian hararon, kuŝantan senmove sur la tegaĵo,” sed ŝi ne kuraĝis
 
 konfesi al vi siajn mensogojn. Kaj al mi malagrablis vidi vin,
 
@@ -11504,21 +9371,14 @@ kiel vi promenas ekstere — kaj Désirée tion riproĉas al si.”
 
 **223**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Demandu ŝin mem,” trankvile diris Aneta. ”Via afero. Ho-
+”Demandu ŝin mem,” trankvile diris Aneta. ”Via afero. Hodiaŭ nome mi havas promentagon. Mi foriras.”
 
-diaŭ nome mi havas promentagon. Mi foriras.”
+”Mi eĉ ne kapablas diri al vi, fraŭlino Aneta, kiel mi dankemas al vi.”
 
-”Mi eĉ ne kapablas diri al vi, fraŭlino Aneta, kiel mi danke-
-
-mas al vi.”
-
-”Désirée malĝojas,” haltis ankoraŭ Aneta, ”ŝi estas pruden-
-
-ta. Nun, kiam vi ĉion scias, ekzistas por vi du ebloj: foriri aŭ resti. Mi konsilas al vi: foriru!”
+”Désirée malĝojas,” haltis ankoraŭ Aneta, ”ŝi estas prudenta. Nun, kiam vi ĉion scias, ekzistas por vi du ebloj: foriri aŭ resti. Mi konsilas al vi: foriru!”
 
 ”Mi volas resti, fraŭlino Aneta,” li rapidis diri.
 
@@ -11528,9 +9388,7 @@ apertu. Mi revenos post du horoj. is!”
 
 Gasparo lante sin turnis. Kion fari? La kanapo ekknaris,
 
-kiam Désirée sin ekmovis, kaj nekuraĝa kaj spitema voĉo de-
-
-mandis:
+kiam Désirée sin ekmovis, kaj nekuraĝa kaj spitema voĉo demandis:
 
 ”Kial vi ne foriris?” Deburau silentis. La hararo moviĝis,
 
@@ -11540,9 +9398,7 @@ la palan frunton, pente premitajn lipojn kaj tristajn vangojn.
 
 En la malsekaj okuloj estis demando. Gasparo genuis apud la
 
-kanapo. Lia vizaĝo sciis respondi ankaŭ senvorte. Désirée su-
-
-bite ekĝojis, ekprenis lin per unu brako ĉirkaŭkole kaj delika-
+kanapo. Lia vizaĝo sciis respondi ankaŭ senvorte. Désirée subite ekĝojis, ekprenis lin per unu brako ĉirkaŭkole kaj delika-
 
 te alpremis lin al si. Li trovis per siaj lipoj ŝian buŝon kaj eksentis survange la plorintan vizaĝon. Longe ili restis kvazaŭ
 
@@ -11566,7 +9422,6 @@ pli karaktera, pli bela, pli sprita.”
 
 **224**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11582,29 +9437,19 @@ vivi.”
 
 ”Mi ne volas, ke vi devu helpi al ni,” diris Désirée malfeliĉe.
 
-”Sed mia kara, la ŝuetojn vi bezonas, por ke ni povu pro-
+”Sed mia kara, la ŝuetojn vi bezonas, por ke ni povu promenadi ĉiutage kaj ne nur ĉiun duan tagon.”
 
-menadi ĉiutage kaj ne nur ĉiun duan tagon.”
+”Pagu prefere la lupagon,” ŝi ekridis silente. ”Se vi vizitados min ĉi tie, mi ne bezonas la ŝuetojn por la amo.”
 
-”Pagu prefere la lupagon,” ŝi ekridis silente. ”Se vi vizita-
-
-dos min ĉi tie, mi ne bezonas la ŝuetojn por la amo.”
-
-ŝiaj vortoj sonis al Gasparo kvazaŭ refreno de Béranger-
-
-kanto.
+ŝiaj vortoj sonis al Gasparo kvazaŭ refreno de Bérangerkanto.
 
 La postaj tagoj kaj semajnoj estis por Gasparo ĉeno de ĝis nun
 
 nekonata feliĉo. i estis malriĉa kaj modeste beligata nur per
 
-bonfarto per kelkaj groŝoj, kiujn ankoraŭ eblis ŝpari je tag-
+bonfarto per kelkaj groŝoj, kiujn ankoraŭ eblis ŝpari je tagmanĝoj, sed al du junaj koroj ĝi sufiĉis. Gasparo ardis kaj Dé-
 
-manĝoj, sed al du junaj koroj ĝi sufiĉis. Gasparo ardis kaj Dé-
-
-sirée varmĝuis; ŝi rebriladis lian senton kiel la Luno respegu-
-
-las la sunbrilon. Sed Gasparon tio ne ĝenis. Baldaŭ li hejmiĝis en la loĝejo super la ĝardenoj, li amikiĝis kun Aneta kaj an-kaŭ kun ŝia serĝento kaj ĉiuj kvar aŭ alterne du kaj du travi-
+sirée varmĝuis; ŝi rebriladis lian senton kiel la Luno respegulas la sunbrilon. Sed Gasparon tio ne ĝenis. Baldaŭ li hejmiĝis en la loĝejo super la ĝardenoj, li amikiĝis kun Aneta kaj an-kaŭ kun ŝia serĝento kaj ĉiuj kvar aŭ alterne du kaj du travi-
 
 vadis en la malriĉa dometo ne malproksime de la robinioj
 
@@ -11616,9 +9461,7 @@ la amon kun sia laboro; ĝi estis por li apogo, kiu donis al li
 
 kuraĝon kaj inventemon sur la scenejo.
 
-Baldaŭ li spertis, ke ridindas nur tio, kio estas homa. Ne-
-
-niu kuliso, neniu dekoraĵo ridendis per si mem, sed nur kiam
+Baldaŭ li spertis, ke ridindas nur tio, kio estas homa. Neniu kuliso, neniu dekoraĵo ridendis per si mem, sed nur kiam
 
 ĝi ekrilatis al homo. Hundo ne estas ridinda per si mem, sed
 
@@ -11626,13 +9469,10 @@ alivestita je homo, ridigis. Truita ĉapelo elvokas kompaton aŭ
 
 **225**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-abomenon; kiam Pieroto ĝin alfrapis al Arlekeno sur la ka-
-
-pon, ĝi provokis gajon.
+abomenon; kiam Pieroto ĝin alfrapis al Arlekeno sur la kapon, ĝi provokis gajon.
 
 ”Aktoro zorgu pri la scenejo kaj ne pri la spektejo,” instruis
 
@@ -11640,9 +9480,7 @@ la aktorojn reĝisoro Cot d’Ordan. Sed Gasparo ne povis ne
 
 senti, kion li perceptas per la tuta supraĵo de sia korpo. Li
 
-konstatis: ju pli da homoj estas en la salonego, des pli gran-
-
-das la resono de la teatraĵo. Rido de unu eksonigis ridon de
+konstatis: ju pli da homoj estas en la salonego, des pli grandas la resono de la teatraĵo. Rido de unu eksonigis ridon de
 
 tri aliaj, kvazaŭ se vi vokas en montaro kaj deklivoj redonas
 
@@ -11664,13 +9502,9 @@ stumblas je la kaŝita Arlekeno kaj falas. Eraro! Surprizo! Oni
 
 ridas. Mi intencas ekbati Arlekenon, mi svingas bastonon, sed
 
-ĝi kroĉiĝas je najlo kaj mi ekbatas min mem. Ju pli forta ima-
+ĝi kroĉiĝas je najlo kaj mi ekbatas min mem. Ju pli forta imago, des pli granda malkonsento. La homoj ridas. En la homa
 
-go, des pli granda malkonsento. La homoj ridas. En la homa
-
-rido iam estas ia malhumaneco. Se stumblus komizo, kiu si-
-
-das en partero, li ne ridus. Se florpoto falus sur lian kapon,
+rido iam estas ia malhumaneco. Se stumblus komizo, kiu sidas en partero, li ne ridus. Se florpoto falus sur lian kapon,
 
 certe li furiozus. Se tio okazus al mi, li ridas, opinias tion bona ŝerco! i estas subkonscia malamemo, kiu jubilas, ke la malfeliĉo trafis ne lin, sed iun alian, ke la malfeliĉo eraris pri la adreso. Sed kiam la rido forpasis, tamen postrestas spuro de
 
@@ -11680,13 +9514,10 @@ kompato.
 
 **226**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ventaj? Pantomimo havas tiun avantaĝon, ke ĝi senigas dia-
-
-logon de superfluaj detaloj kaj ebligas prezenti nur la ĉefan
+ventaj? Pantomimo havas tiun avantaĝon, ke ĝi senigas dialogon de superfluaj detaloj kaj ebligas prezenti nur la ĉefan
 
 ideon. Sed vorto ne darfas manki al spektanto. Pantomimo
 
@@ -11696,17 +9527,13 @@ Gasparo: ”Pli laŭte!” — kvankam tiu tute ne ekparolis.
 
 Meditadoj ne mortigas en Pieroto la vivon. Tial li estis al la
 
-spektantoj en Funambules tiel proksima, ke li havis ĝuste ti-
-
-om da bono kaj malbono kiom ĉiu el ili. La novan teatran fi-
+spektantoj en Funambules tiel proksima, ke li havis ĝuste tiom da bono kaj malbono kiom ĉiu el ili. La novan teatran fi-
 
 guron kreis el li sarkasmo, kun kiu li akceptadis la sortobatojn kaj faris el ili ankoraŭ avantaĝon por si je konto de tiuj, kiuj lin maljustumis. Lia Pieroto ne beligis homon. Li senvualigis
 
 lin.
 
-Akrevido de la popolo tial elektis Deburauon, kiel sian fa-
-
-voratan aktoron. Pro tio la partero kaj la galerio post la pre-
+Akrevido de la popolo tial elektis Deburauon, kiel sian favoratan aktoron. Pro tio la partero kaj la galerio post la pre-
 
 zentado bisis: ”Ho-ho-ho! De-bu-rau!”
 
@@ -11726,17 +9553,12 @@ Foje — estis jam vintro — Gasparo akceptis la kvinan fojon
 
 el la manoj de majstro Gérard la monatan kvoton — li kuraĝis
 
-inviti Désiréen unuafoje en la teatron. Tio estis la saman ves-
+inviti Désiréen unuafoje en la teatron. Tio estis la saman vesperon, kiam li ricevis en la vestejo bukedeton da violoj.
 
-peron, kiam li ricevis en la vestejo bukedeton da violoj.
-
-Désirée malfortis post antaŭnelonga malvarmumo, kaj an-
-
-koraŭ la unua akto ne finiĝis, kiam Gasparo rimarkis — li ne
+Désirée malfortis post antaŭnelonga malvarmumo, kaj ankoraŭ la unua akto ne finiĝis, kiam Gasparo rimarkis — li ne
 
 okullasis ŝin, eĉ se li estis kaŝita post kuliso, ke ŝi paliĝas kaj **227**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11754,19 +9576,13 @@ devis kontentiĝi pri plendoj je kapdoloroj, je enuiga teatraĵo, je malodoro en
 
 ”Mi ne eltenos ĉi tie, akompanu min,” ŝi postulis obstine
 
-kiel malsana infano. Kaj kiam li hezitis, ŝi fiksis al li la malfeli-
-
-ĉajn okulojn kaj konfesis deprimite: ”Mi atendas infanon.”
+kiel malsana infano. Kaj kiam li hezitis, ŝi fiksis al li la malfeliĉajn okulojn kaj konfesis deprimite: ”Mi atendas infanon.”
 
 Momente li decidiĝis. Li survestis nigretan pantalonon sur
 
-la blankan, trans la kitelon ĵetis malhelan mantelon kaj pre-
+la blankan, trans la kitelon ĵetis malhelan mantelon kaj prenis Désiréen subbrake. Li kondukis ŝin al elirejo. Sur la sce-
 
-nis Désiréen subbrake. Li kondukis ŝin al elirejo. Sur la sce-
-
-nejo ĝuste finiĝis akto kaj la publiko vane vokis Pieroton. Pluvis kaj la trotuaroj estis kotplenaj. Gasparo brakumis Dési-
-
-réen tiel, ke per la larĝa mantelo li kaŝis ŝin antaŭ pluvo kaj rapidpaŝe kondukis ŝin al la hejmo. Li ekvidis droŝkon kaj venigis ĝin.
+nejo ĝuste finiĝis akto kaj la publiko vane vokis Pieroton. Pluvis kaj la trotuaroj estis kotplenaj. Gasparo brakumis Désiréen tiel, ke per la larĝa mantelo li kaŝis ŝin antaŭ pluvo kaj rapidpaŝe kondukis ŝin al la hejmo. Li ekvidis droŝkon kaj venigis ĝin.
 
 ”Vi estas tiel bonkora, Gasparo,” ripetis Désirée. ”Pardonu
 
@@ -11786,35 +9602,26 @@ teatro.”
 
 **228**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Li ne atendas ĝis la veturilo haltos, kaj tra pluvo kaj flakoj
 
-li kuras al la enirejo. Kasandro kun Arlekeno ludas. Ilia sce-
-
-no finiĝas — Pieroto devas alkonduki Kolombinan. Kasand-
+li kuras al la enirejo. Kasandro kun Arlekeno ludas. Ilia sceno finiĝas — Pieroto devas alkonduki Kolombinan. Kasand-
 
 ro kun Arlekeno ripetas la scenon. Sed Pieroto ankoraŭ ne
 
 venas. Direktoro Bertrand rapidas en vestejon. i malplenas.
 
-Li kuras ree al la scenejo, kie la aktoroj jam trifoje komencas sian scenon kaj post la kulisoj tremas Kolombina. Tiumomente aperis Pieroto. Dumvoje li senvestigas pantalonon kaj ĵe-
+Li kuras ree al la scenejo, kie la aktoroj jam trifoje komencas sian scenon kaj post la kulisoj tremas Kolombina. Tiumomente aperis Pieroto. Dumvoje li senvestigas pantalonon kaj ĵetas survizaĝen pudronubojn. Li kaptas Kolombinan je la ma-
 
-tas survizaĝen pudronubojn. Li kaptas Kolombinan je la ma-
-
-no kaj entiras ŝin sur la scenejon. Lia hararo estas tramalse-
-
-kigita, la blanka pantalono estas makulita de koto. De sur la
+no kaj entiras ŝin sur la scenejon. Lia hararo estas tramalsekigita, la blanka pantalono estas makulita de koto. De sur la
 
 vangoj fluas akvo. Li transdonas Kolombinan al Kasandro. Li
 
 ŝanceliras pro laco kaj impete spiras. Iu el la publiko ekridas kaj la ceteraj aliĝas.
 
-Gasparo daŭrigas sangmalvarme la ludon. Impete li eksku-
-
-as la kapon kaj priŝprucas Arlekenon. Kiam la ceteraj lin for-
+Gasparo daŭrigas sangmalvarme la ludon. Impete li ekskuas la kapon kaj priŝprucas Arlekenon. Kiam la ceteraj lin for-
 
 pelas, fone li demetas la akvon el la manikoj. La homoj lin
 
@@ -11822,9 +9629,7 @@ observas kaj amuzas sin.
 
 La plej granda pluso de teatro Funambules estis la bona
 
-volo de ĝiaj spektantoj. Ili kredis al ĉiu ŝanĝo, ĉar ili kredis al sia Pieroto. Lia malseka vizaĝo bone harmonias kun la ŝtormo, kiu venas surscenejen. Lian korpon trafis fulmo. Sed pa-
-
-cienca Pieroto kun kompatema rido ordigas sian ĉapon. Per
+volo de ĝiaj spektantoj. Ili kredis al ĉiu ŝanĝo, ĉar ili kredis al sia Pieroto. Lia malseka vizaĝo bone harmonias kun la ŝtormo, kiu venas surscenejen. Lian korpon trafis fulmo. Sed pacienca Pieroto kun kompatema rido ordigas sian ĉapon. Per
 
 improvizo li motivis sian tardan kaj malsekan alvenon. Kiam
 
@@ -11838,7 +9643,6 @@ priĉizis ĝuste por prezenti ĉi tiun scenejan figuron. Pri nenio li miras. Li 
 
 **229**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11848,7 +9652,6 @@ traktis sur la cenejo, sed ĝi estas kuraĝigo por liaj fratoj en la rigardejo. 
 
 **230**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11862,17 +9665,13 @@ Bertrand. Sed nenio alia restas.
 
 ”ĉu ci scias, kion ci faris?” raŭkegas Bertrand.
 
-”Neniu ion rimarkis,” tremas la voĉo de Gasparo. ”Mi kon-
-
-scias, ke mi agis kontraŭ la reguloj. Sed mia fianĉino ekmalsa-
+”Neniu ion rimarkis,” tremas la voĉo de Gasparo. ”Mi konscias, ke mi agis kontraŭ la reguloj. Sed mia fianĉino ekmalsa-
 
 nis …” La spiro de Gasparo rompiĝas. Li ne maldungos lin ja,
 
 ĝuste, kiam li bezonas tiom lukri! Sed la hodiaŭa prezentado
 
-havas alian epilogon, ol ĉiuj atendis. El la koridoro venas Cot d’Ordan kaj lin postsekvas alia nigrahara viro, vestita tiel elegante, kiel oni ne kutimas en Funambules. Tiu alta kaj blan-
-
-ka kolumo normalas nur en kafejo Procope. Cot d’Ordan res-
+havas alian epilogon, ol ĉiuj atendis. El la koridoro venas Cot d’Ordan kaj lin postsekvas alia nigrahara viro, vestita tiel elegante, kiel oni ne kutimas en Funambules. Tiu alta kaj blanka kolumo normalas nur en kafejo Procope. Cot d’Ordan res-
 
 pekte rerigardas kaj kaptas Bertrandon je la kubuto.
 
@@ -11880,9 +9679,7 @@ pekte rerigardas kaj kaptas Bertrandon je la kubuto.
 
 estas sinjoro Charles Nodier, verkisto kaj historiisto!”
 
-”Sinjoro Nodier?” ripetas respektoplene Bertrand kaj rive-
-
-rencas.
+”Sinjoro Nodier?” ripetas respektoplene Bertrand kaj riverencas.
 
 ”Rekomendis vin al mi amiko Picard,” diras digne Nodier,
 
@@ -11894,7 +9691,6 @@ bona konsilo.”
 
 **231**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11904,9 +9700,7 @@ Mi abonos por ĉiu sabato loĝion. Mi alkondukos ĉi tien mian
 
 amikaron.”
 
-”Granda honoro, Majstro,” balbutis Bertrand. ”ĉu vi dezi-
-
-ras vidi ankaŭ sinjoron Laŭrenton aŭ Felikson?”
+”Granda honoro, Majstro,” balbutis Bertrand. ”ĉu vi deziras vidi ankaŭ sinjoron Laŭrenton aŭ Felikson?”
 
 ”Bonaj aktoroj. Sed tiu ĉi mimus albus (mimo blanka) min
 
@@ -11914,15 +9708,11 @@ simple fascinis. Via nomo?”
 
 ”Deburau.”
 
-”La nomo estas malfacile memorebla, sed via ludo ne. u-
-
-ste mi verkas historion pri Polichinello. ĉu vi scias, ke vi estas ĝia epilogo? Kiu konsilis al vi la kitelon? La maskon? Mi
+”La nomo estas malfacile memorebla, sed via ludo ne. uste mi verkas historion pri Polichinello. ĉu vi scias, ke vi estas ĝia epilogo? Kiu konsilis al vi la kitelon? La maskon? Mi
 
 devas paroli kun vi. ĉu vi venos al mi?” Denove li turnis sin:
 
-”Direktoro Bertrand, vi estas malkovrinto. Deburau? Mirin-
-
-da! Jen mia vizitkarto. Sendu al mi fakturon por la abono. Kaj
+”Direktoro Bertrand, vi estas malkovrinto. Deburau? Mirinda! Jen mia vizitkarto. Sendu al mi fakturon por la abono. Kaj
 
 vi, Pieroto, vi estas ĉe mi bonvena ĉiun ajn antaŭtagmezon.
 
@@ -11938,17 +9728,11 @@ tremus.”
 
 ”Vi volis min versimile elĵeti,” rememorigis Gasparo al li.
 
-”Sed tio ne estis miaflanke maldisciplino, kredu! Eble vi po-
+”Sed tio ne estis miaflanke maldisciplino, kredu! Eble vi povus tion pardoni al mi.”
 
-vus tion pardoni al mi.”
+La direktoroj ekrigardis unu la alian. ”Hm,” kapjesis Bertrand. ”Ni interkonsentos kun sinjoro Cot d’Ordan.”
 
-La direktoroj ekrigardis unu la alian. ”Hm,” kapjesis Bert-
-
-rand. ”Ni interkonsentos kun sinjoro Cot d’Ordan.”
-
-”Mi opinias, ke ne necesas fari tuj la plej severajn konklu-
-
-dojn,” diris Cot d’Ordan glacitone.
+”Mi opinias, ke ne necesas fari tuj la plej severajn konkludojn,” diris Cot d’Ordan glacitone.
 
 ”Certe,” konsentis Bertrand. ”Vi havas feliĉon, Gasparo!
 
@@ -11956,7 +9740,6 @@ dojn,” diris Cot d’Ordan glacitone.
 
 **232**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -11972,9 +9755,7 @@ pantalono rememorigis al li la malsanan Désiréen. Sed subite
 
 li ekkonis, ke post li iu staras. Li turnis sin. Tiu estis Felikso.
 
-”ĉu ankaŭ vi koleras je mi, ke mi malfruis?” leviĝis Gaspa-
-
-ro.
+”ĉu ankaŭ vi koleras je mi, ke mi malfruis?” leviĝis Gasparo.
 
 ”Ne,” diris Felikso obtuzvoĉe. Gasparo ekkomprenis, ke
 
@@ -11992,17 +9773,13 @@ foriru tro malfrue.”
 
 ”Jam ne, Deburau. Mi volas preventi, ke foje li elĵetu min.”
 
-La koro de la honesta Gasparo ĉe tiuj vortoj angoris. Felik-
-
-so, kiu malgraŭ sia ĵaluzo tamen estis unu el la fondintoj de
+La koro de la honesta Gasparo ĉe tiuj vortoj angoris. Felikso, kiu malgraŭ sia ĵaluzo tamen estis unu el la fondintoj de
 
 lia feliĉo, devas foriri el la teatro, kie li tiel longe rolis?
 
 ”Ne eblas. Do mi foriros.”
 
-”Vana afero ĝi estus. Mi ne faras tiel pro nobleco. La teat-
-
-ro bezonas nin ambaŭ. Sed mi ne volas esti ĉi tie la dua.”
+”Vana afero ĝi estus. Mi ne faras tiel pro nobleco. La teatro bezonas nin ambaŭ. Sed mi ne volas esti ĉi tie la dua.”
 
 ”Sed la direktoro — ”
 
@@ -12016,13 +9793,10 @@ Frederiko foriris kaj venkis. Mi foriras kun la sama espero.”
 
 kapriolo! Iru kun mi al la direktoroj.”
 
-Deburau obeeme postsekvis Felikson, nur duone demaski-
-
-ta kaj alivestita. ”Mi foriras,” diris Felikso.
+Deburau obeeme postsekvis Felikson, nur duone demaskita kaj alivestita. ”Mi foriras,” diris Felikso.
 
 **233**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12050,9 +9824,7 @@ timis Felikson.
 
 diris Cot d’Ordan.
 
-”Vi pagos al li, sinjoroj tiom, kiom garantias al li la kon-
-
-trakto ekde la venonta jaro. Tridek kvin! Aŭ mi prizorgos al
+”Vi pagos al li, sinjoroj tiom, kiom garantias al li la kontrakto ekde la venonta jaro. Tridek kvin! Aŭ mi prizorgos al
 
 li alian engaĝon.”
 
@@ -12064,9 +9836,7 @@ ankaŭ.
 
 ”ĉu vi scias, kion signifas, ke li plaĉis hodiaŭ al Nodier? ĉu
 
-vi komprenas entute kian publikon li alkondukos ĉi tien? De-
-
-burau estas artisto — kaj nur via blindeco kaŭzis, ke tiom ob-
+vi komprenas entute kian publikon li alkondukos ĉi tien? Deburau estas artisto — kaj nur via blindeco kaŭzis, ke tiom ob-
 
 stine vi preferis min antaŭ li.”
 
@@ -12086,23 +9856,16 @@ mondo kapablas kompensi, kion hodiaŭ vi donacis al mi.”
 
 **234**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Dankon pro sincereco, Deburau. Eble jam mi ne iĝos emi-
+”Dankon pro sincereco, Deburau. Eble jam mi ne iĝos eminenta aktoro. Eble la historio alskribos al mia konto, ke alme-
 
-nenta aktoro. Eble la historio alskribos al mia konto, ke alme-
-
-naŭ mi sciis ĝustatempe flankeniri. Adiaŭ, Deburau. Kaj fami-
-
-gu nian Funambules.”
+naŭ mi sciis ĝustatempe flankeniri. Adiaŭ, Deburau. Kaj famigu nian Funambules.”
 
 Kiam li foriris, al Gasparo ŝajnis, ke ĵus iu mortis.
 
-”Venu, sinjoro Deburau,” diris Bertrand, unuafoje ne ci-
-
-dirante al li. ”Ni preparos la kontrakton, kiel famigi Funam-
+”Venu, sinjoro Deburau,” diris Bertrand, unuafoje ne cidirante al li. ”Ni preparos la kontrakton, kiel famigi Funam-
 
 bules.”
 
@@ -12112,9 +9875,7 @@ dankis tiun pro la ĝisnuna helpo, kiu estonte ne plu necesos.
 
 Li adiaŭis Felikson Charigni kaj enviis al li nur unu: Felikso
 
-estis forveturanta kun komedianta grupo orienten, en Ger-
-
-manion, kaj oni kontrakte garantiis al li la prezentadojn en
+estis forveturanta kun komedianta grupo orienten, en Germanion, kaj oni kontrakte garantiis al li la prezentadojn en
 
 Prago. Tien foje veni!
 
@@ -12138,61 +9899,40 @@ vestejon al Deburau.
 
 scias, kiom mi estas devoligita al vi,” li rekonis honeste. ”Mi havas novan kontrakton.”
 
-Nodier rifuzis lian dankemon, sed pro scivolemo li ekpre-
-
-nis la dokumenton, kiun Deburau montris al li. Dum Gasparo
+Nodier rifuzis lian dankemon, sed pro scivolemo li ekprenis la dokumenton, kiun Deburau montris al li. Dum Gasparo
 
 **235**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ĝustigis al si la maskon, li enprofundiĝis en la legaĵon. Subi-
-
-te li ekridis.
+ĝustigis al si la maskon, li enprofundiĝis en la legaĵon. Subite li ekridis.
 
 ”Mi ne estas informita, kiajn kontraktojn faras la arestitoj
 
-kun la ŝtata administrejo sur la Diablaj Insuloj, sed mi opi-
-
-nias, ke iliaj kondiĉoj estas pli favoraj.”
+kun la ŝtata administrejo sur la Diablaj Insuloj, sed mi opinias, ke iliaj kondiĉoj estas pli favoraj.”
 
 ”Neniam mi havis tiel brilegan kontrakton.”
 
-”Kiel vi povas konsenti, ke vi ludos kian ajn rolon? Vi es-
+”Kiel vi povas konsenti, ke vi ludos kian ajn rolon? Vi estas ja Pieroto.”
 
-tas ja Pieroto.”
+”Mi esperas, ke oni lasos min ludi Pieroton,” rediris Gasparo.
 
-”Mi esperas, ke oni lasos min ludi Pieroton,” rediris Gas-
+”Certe, certe. Ili eĉ petos vin. Sed ĉi tio estas simple brutaleco. Kiam vi malsaniĝos, ĉu la direktoro ne pagos al vi?”
 
-paro.
-
-”Certe, certe. Ili eĉ petos vin. Sed ĉi tio estas simple bruta-
-
-leco. Kiam vi malsaniĝos, ĉu la direktoro ne pagos al vi?”
-
-”Kiam mi malsanos, mi ne laboros,” senkulpigis tion De-
-
-burau.
+”Kiam mi malsanos, mi ne laboros,” senkulpigis tion Deburau.
 
 ”Tiam, kiam vi ekstreme bezonos subtenon, li donos al vi
 
 nenion? Tio estas kruela. Kaj vi malsaniĝos ĉi tie eble baldaŭ,”
 
-li frostotremis kaj ĉirkaŭrigardis. Gasparo postsekvis lian ri-
-
-gardon kaj vidis malsekajn makulojn, kiuj verdis sur ĉiuj mu-
+li frostotremis kaj ĉirkaŭrigardis. Gasparo postsekvis lian rigardon kaj vidis malsekajn makulojn, kiuj verdis sur ĉiuj mu-
 
 roj. La plafono estis tegita de flavverdaj gutoj.
 
-”Jam Felikso tion montris al mi. Mi diris tion al la direk-
+”Jam Felikso tion montris al mi. Mi diris tion al la direktoro, sed ili atentigis min pri la tria punkto de la kontrakto.
 
-toro, sed ili atentigis min pri la tria punkto de la kontrakto.
-
-Mi devas kontentiĝi kun hejtmaterialo kaj lumo, kiujn la ad-
-
-ministrantaro de la teatro disponigos al mi.”
+Mi devas kontentiĝi kun hejtmaterialo kaj lumo, kiujn la administrantaro de la teatro disponigos al mi.”
 
 ”Kaj se vi malsanos je pulmito?”
 
@@ -12208,7 +9948,6 @@ mi iomete avancis.”
 
 **236**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12232,9 +9971,7 @@ tie kontrastis kiel rozo sur fatrasejo. ”ĉu iam vi rigardis post la ŝrankon?
 
 Deburau helpis ĝin forŝovi. Aperis muro tute korodita de
 
-malseko. La ligna planko estis tute traputriĝinta kaj el la hu-
-
-mida balaaĵo kreskis violkolore nigraj fungoj.
+malseko. La ligna planko estis tute traputriĝinta kaj el la humida balaaĵo kreskis violkolore nigraj fungoj.
 
 ”ĉu vi kultivas ĉi tie trufojn?” ekmiris Nodier. La fungoj
 
@@ -12242,9 +9979,7 @@ havis krustiĝintan supraĵon kaj ŝime haladzis.
 
 ”Imagu la gloran tribunalon,” ridetis Nodier kaj pikis la
 
-fungojn per bastono, ”kiel ĝi okulegos, kiam ĉio antaŭ ĝi ape-
-
-ros kiel corpus delicti. Mi ĝojas je la proceso.”
+fungojn per bastono, ”kiel ĝi okulegos, kiam ĉio antaŭ ĝi aperos kiel corpus delicti. Mi ĝojas je la proceso.”
 
 ”Mi ne volas procesi kontraŭ la direkcio,” oponis Deburau.
 
@@ -12266,13 +10001,10 @@ kiu unuafoje prese atentigis Parizon de grandaj bulvardoj pri
 
 **237**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-aktoro el Funambules, ĝis nun ne konata. La subskribo man-
-
-kis; sed spertaj legantoj divenis en la skribinto Nodieron, kiun oni konis kiel spritan noveliston, adoranton de Shakespeare,
+aktoro el Funambules, ĝis nun ne konata. La subskribo mankis; sed spertaj legantoj divenis en la skribinto Nodieron, kiun oni konis kiel spritan noveliston, adoranton de Shakespeare,
 
 artiston de polurita stilo kaj romantikulon plene absorbitan
 
@@ -12288,21 +10020,15 @@ kvartalo Saint Germain kaj Chaussée d’Antin?
 
 reprezentas? Deburau estas artisto fakte admirinda. Li ne
 
-dankas por sia famo al la arto paroli. Li ne parolas. Sed ĉiu-
+dankas por sia famo al la arto paroli. Li ne parolas. Sed ĉiuvespere li aperas sursceneje de sia teatro kaj liaj vizitantoj lin ŝatas kiel la plej grandajn aktorojn.”
 
-vespere li aperas sursceneje de sia teatro kaj liaj vizitantoj lin ŝatas kiel la plej grandajn aktorojn.”
-
-En serio de la tranĉe spritaj komparoj kun la konataj arti-
-
-stoj tiutempaj la aŭtoro pruvadis siajn preferojn kaj malkaŝis, ke la figuro, kiun la aktoro prezentas, portis la nomon Gilles.
+En serio de la tranĉe spritaj komparoj kun la konataj artistoj tiutempaj la aŭtoro pruvadis siajn preferojn kaj malkaŝis, ke la figuro, kiun la aktoro prezentas, portis la nomon Gilles.
 
 ”Tiun ĉi figuron Deburau kreis en teatro Funambules. Jam
 
 plurfoje mi vidis tiun ĉi nature veran artiston sursceneje, al
 
-kiu mankas nenio krom alta salajro, kaleŝo kaj barnuma re-
-
-klamo en la gazetaro, ke li fariĝu moda.
+kiu mankas nenio krom alta salajro, kaleŝo kaj barnuma reklamo en la gazetaro, ke li fariĝu moda.
 
 La ĉefrolantoj en teatro Funambules estas Laurent senioro
 
@@ -12310,15 +10036,12 @@ kaj Deburau. Laurent estas neordinara viro, mi certigas vin:
 
 li verkas teatraĵojn, surscenejigas ilin, pentras dekoraĵojn kaj ĉefrolas. Eminentas precipe lia Arlekeno.
 
-Deburau havas la same bonan famon kiel lia amiko, kvan-
-
-kam li estas nek aŭtoro, nek pentras, nek estas mekanikisto;
+Deburau havas la same bonan famon kiel lia amiko, kvankam li estas nek aŭtoro, nek pentras, nek estas mekanikisto;
 
 li estas nur Gilles; jam el tio videblas la supereco de lia uni-ka talento. Mi estas ravita de li kaj mi donus kvin viajn komi-
 
 **238**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12328,9 +10051,7 @@ unu simpla, modesta kaj tiel perfekta en sia malfacila fako.
 
 Gilles havas karakteron, kies senfinajn nuancojn oni povas
 
-malfacile eldiri. Li simplas kiel infano; malkuraĝa, ruza, pi-
-
-gra, instinkte mava, servutula; ŝercemulo, manĝemulo, ŝtelis-
+malfacile eldiri. Li simplas kiel infano; malkuraĝa, ruza, pigra, instinkte mava, servutula; ŝercemulo, manĝemulo, ŝtelis-
 
 to, fanfaronulo, avidema, mallerta, sprita en elpensaĵoj, kiel
 
@@ -12346,7 +10067,6 @@ Sed vi ne volas iri rigardi, kiu estas Deburau!”
 
 **239**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12366,19 +10086,13 @@ sinjoroj! ĉi tie troveblas, kio ankoraŭ ĝis nun ne estis vidita, eĉ ne ĉe a
 
 minimuma prezo vi ekvidos ĉe ni eminentajn artistojn. Nur
 
-ĉi tie kaj nenie aliloke! Muziko ek! ĉu vi aŭdas? ĉe ni vi ek-
-
-vidos superban sinjoron Laurenton en la rolo de Arlekeno kaj
+ĉi tie kaj nenie aliloke! Muziko ek! ĉu vi aŭdas? ĉe ni vi ekvidos superban sinjoron Laurenton en la rolo de Arlekeno kaj
 
 lian pli junan fraton en la rolo de Leandro! Ni prezentas la
 
-pantomimon ”Ora sonĝo”! Sinjoro Placido prezentas Kasand-
+pantomimon ”Ora sonĝo”! Sinjoro Placido prezentas Kasandron! ĉe ni vi povas rigardi Morfeon, dion de sonĝoj! Die ĉar-
 
-ron! ĉe ni vi povas rigardi Morfeon, dion de sonĝoj! Die ĉar-
-
-ma fraŭlino Mariana prezentas Kolombinan! Ni ludas hodi-
-
-aŭ la plej belan el ĉiuj pantomimoj, kiuj iam aperis surscene-
+ma fraŭlino Mariana prezentas Kolombinan! Ni ludas hodiaŭ la plej belan el ĉiuj pantomimoj, kiuj iam aperis surscene-
 
 je. Vi demandas, kiu ĝin verkis? Tion solan mi ne povas diri
 
@@ -12394,7 +10108,6 @@ Elegante vestitaj sinjoroj ĝis nun ridetas pri la kuraĝo de
 
 **240**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12402,21 +10115,15 @@ patro Royer, kiu ankaŭ kontraŭ ili aŭdacas ĵeti sian foirejan
 
 defion.
 
-Ili ne antaŭvidas, ke baldaŭ devancos unu la alian por ri-
-
-cevi tie kian ajn biletojn. Sed la anonciston tio ne afliktas kaj li alparolas aliajn.
+Ili ne antaŭvidas, ke baldaŭ devancos unu la alian por ricevi tie kian ajn biletojn. Sed la anonciston tio ne afliktas kaj li alparolas aliajn.
 
 La ”noblaj sinjoroj” en drap-kiteloj kaj kun ĉapoj surkape
 
-ne lasas sin tiom invitadi. Ili hastas suben. La majstroj kon-
-
-dukos siajn edzinojn kaj pagos al si la antaŭscenon. Kelkaj
+ne lasas sin tiom invitadi. Ili hastas suben. La majstroj kondukos siajn edzinojn kaj pagos al si la antaŭscenon. Kelkaj
 
 amant-paroj trovis rifuĝejon en la loĝioj. Sed la plej pasia publiko sidas malantaŭe kaj en minigalerio, nomata ”edeno”. Tie
 
-estas tiuj, kiuj aplaŭdas pro senpacienco jam duonhoron an-
-
-taŭ la komenco kaj entuziasme salutas ĉiun novan lumon, kiu
+estas tiuj, kiuj aplaŭdas pro senpacienco jam duonhoron antaŭ la komenco kaj entuziasme salutas ĉiun novan lumon, kiu
 
 eklumas en la salonego. ĉi tiuj spektantoj pleje gravas; se la
 
@@ -12430,9 +10137,7 @@ al ĝi, kion ĝi deziras havi, ĝi amos vin ĝismorte kaj lokos vin en la koron 
 
 ”Eniru, sinjoroj,” raŭkas la anoncisto antaŭ la enirejo kaj
 
-sinjorino Bertrand ne kapablas kontroli biletojn. Jam prok-
-
-simiĝas la tempo por komenci.
+sinjorino Bertrand ne kapablas kontroli biletojn. Jam proksimiĝas la tempo por komenci.
 
 Post la kulisoj regas streĉo. i ekis regi jam ekde tiu tago,
 
@@ -12450,21 +10155,16 @@ Cot d’Ordan komprenis, sed tuj li igis studi la teatraĵon.
 
 **241**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Post akordiĝo kun Bertrand li komisiis la reĝisoradon al Lau-
-
-rent, sed ĉar la respondeco pri sukceso kuŝis sur Deburau, ili
+Post akordiĝo kun Bertrand li komisiis la reĝisoradon al Laurent, sed ĉar la respondeco pri sukceso kuŝis sur Deburau, ili
 
 donis al tiu la eblon adapti la proprajn scenojn laŭ sia plaĉo.
 
 Pri la aŭtoro de la ”Ora sonĝo” oni ne parolis. Sed Charles
 
-Nodier kun kelkaj plej proksimaj amikoj sidis dum la premie-
-
-ro en la loĝio plej proksima al la scenejo.
+Nodier kun kelkaj plej proksimaj amikoj sidis dum la premiero en la loĝio plej proksima al la scenejo.
 
 La ”Ora sonĝo”, pantomimo, kiu havis sur la scenejo multe
 
@@ -12476,13 +10176,9 @@ grandan sukceson.
 
 Aŭdeblis onidiroj, ke la aŭtoro estas Nodier, sed li neadis
 
-tion. Kalumniuloj asertis, ke tial, por ke li povu pri la verke-to des pli entuziasme paroli. Li venadis preskaŭ al ĉiu prezen-
+tion. Kalumniuloj asertis, ke tial, por ke li povu pri la verke-to des pli entuziasme paroli. Li venadis preskaŭ al ĉiu prezentado kaj alkondukadis ofte gastojn. ĉiam pli ofte aperadis en
 
-tado kaj alkondukadis ofte gastojn. ĉiam pli ofte aperadis en
-
-la loĝioj de Funambules vizitantoj, pri kiuj miregis la scene-
-
-jo kaj la partero. Estis cititaj nomoj, kiujn al ”garbejo en periferio” enviis ankaŭ grandaj teatroj: Gautier, Balzac, Nerval.
+la loĝioj de Funambules vizitantoj, pri kiuj miregis la scenejo kaj la partero. Estis cititaj nomoj, kiujn al ”garbejo en periferio” enviis ankaŭ grandaj teatroj: Gautier, Balzac, Nerval.
 
 Sed en la gazetoj aperis eĉ ne unu linio. La raporteto en
 
@@ -12490,9 +10186,7 @@ Pandora sene˛is kaj neniu opiniis konvena, ke indus skribi pri
 
 la spektaklo sur bulvardo du Temple.
 
-Por Gasparo ”La Ora sonĝo” signifis venkon. En ĉi tiu te-
-
-atraĵo li evidente superis ankaŭ Laurenton. Sed Deburau dis-
+Por Gasparo ”La Ora sonĝo” signifis venkon. En ĉi tiu teatraĵo li evidente superis ankaŭ Laurenton. Sed Deburau dis-
 
 donis al homoj tiom da rido, ke Funambules por ĉiam famiĝis
 
@@ -12502,7 +10196,6 @@ Homoj el la periferio ĝin ŝatis ĉiam pli kaj pli. i fariĝis ilia frato, ĝi 
 
 **242**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12522,9 +10215,7 @@ kiam li forveturigis ŝin tra pluvema nokto, en la unua vespero
 
 de la vizito de Nodier. Désirée embarasiĝis pro lia danko, sed
 
-ne oponis; Gasparo ne hezitis. Sed la konval-bukedeto ape-
-
-ris en la vestejo plurfoje. Li ekkonis, ke la floroj ne venas el la manoj de Désirée. Li riverencis tial sekret-signife al ĉiuj damoj, kiuj aplaŭdis el loĝioj, kaj ĝojis, ke unu el ili estas lia nekonatino.
+ne oponis; Gasparo ne hezitis. Sed la konval-bukedeto aperis en la vestejo plurfoje. Li ekkonis, ke la floroj ne venas el la manoj de Désirée. Li riverencis tial sekret-signife al ĉiuj damoj, kiuj aplaŭdis el loĝioj, kaj ĝojis, ke unu el ili estas lia nekonatino.
 
 Dum la unuaj reprizoj de la ”Ora sonĝo” Nodier sukcesis
 
@@ -12536,15 +10227,12 @@ sed la pli sperta Bertrand sagace silentis. Okazis fakte la proceso kaj Nodier n
 
 kiel la viol-nigrajn fungojn, kiuj aperis surtable. ĵurnalistoj rapidis al la tribunala halo. Sed ne estis malfacile pacigi la
 
-indignitajn partiojn; Bertrand kompleze promesis igi la ves-
-
-tejon purigi kaj adapti, Deburau, ke li subordiĝos al la regu-
+indignitajn partiojn; Bertrand kompleze promesis igi la vestejon purigi kaj adapti, Deburau, ke li subordiĝos al la regu-
 
 laro. ĉiuj gazetoj publikigis informojn pri la kurioza proceso, kaj la nomo de la teatro denove renkontiĝis kun la nigra pres-farbo. La tutan venintan semajnon la teatro estis tute okupita.
 
 **243**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12554,9 +10242,7 @@ Ekde la momento, kiam ili disiris ĉe la tribunalo, ili ĝis nun
 
 ne parolis unu kun alia. Inter ili estas pulvobarelo. ”Deburau,”
 
-leviĝas la direktoro de la tablo: ”Malagrablas agnoski malven-
-
-kon.” Sed lia voĉo ne estas severa. En ĝi estas male malica
+leviĝas la direktoro de la tablo: ”Malagrablas agnoski malvenkon.” Sed lia voĉo ne estas severa. En ĝi estas male malica
 
 rideto. ”Tion mi surprenas. La proceso estis bonega ideo.”
 
@@ -12606,7 +10292,6 @@ ajn vi volas. Mi estas poreterne via,” diris li ĝuste tion, kio gravis por Be
 
 **244**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12644,9 +10329,7 @@ sirée. Post la prezentado ja, li ne iradis al ŝi; ŝi diras, ke baldaŭ ŝi de
 
 Jam de malproksime li ekvidis lumon enfenestre. Li volis
 
-ekfajfi, sed tiumomente videblis, ke iu forportas la kandelin-
-
-gon. ĉu Aneta havis vizitanton? Sur la ŝtuparo aŭdiĝis paŝoj.
+ekfajfi, sed tiumomente videblis, ke iu forportas la kandelingon. ĉu Aneta havis vizitanton? Sur la ŝtuparo aŭdiĝis paŝoj.
 
 Li flankenpaŝis por ne ĝeni. ŝlosilo malfermis seruron. Vira
 
@@ -12654,9 +10337,7 @@ staturo eliris el la domo — post ĝin elrigardis knabina kapo.
 
 Ankoraŭ iom da flustrado, ĉirkaŭpreno, kiso; poste la viro
 
-forŝiris sin de ŝi, foriris. La knabino lin postrigardis kaj pos-te retiris la brakon kun la lumo kaj volis fermi la pordon. Ga-
-
-sparo elkuris el ombro de la mureto kaj saltis al la pordo.
+forŝiris sin de ŝi, foriris. La knabino lin postrigardis kaj pos-te retiris la brakon kun la lumo kaj volis fermi la pordon. Gasparo elkuris el ombro de la mureto kaj saltis al la pordo.
 
 ”Aneta!”
 
@@ -12664,7 +10345,6 @@ La lumo ektremis, ekŝancelis, kvazaŭ infan-ŝipeton ekfra-
 
 **245**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12686,9 +10366,7 @@ Désirée sopiris travivi etan aventuron? ĉu tamen ŝi restas via?
 
 ĉu forĵeti ĉiun esperon? Désirée gravedas. Feliĉon, Gasparo,
 
-vi gajnas nur per la doloro. Humiliĝu, oferu tiun ĉi momen-
-
-ton, pardonu kaj vi gajnos multe pli, la tutan vivon.
+vi gajnas nur per la doloro. Humiliĝu, oferu tiun ĉi momenton, pardonu kaj vi gajnos multe pli, la tutan vivon.
 
 Ili venis supren.
 
@@ -12698,27 +10376,19 @@ senviva sur la malnovan konatan sofon; ŝi rigardis senmove
 
 antaŭ sin.
 
-”Ne timu, mi demandos vin pri nenio,” li diris per trankvi-
-
-liga voĉo.
+”Ne timu, mi demandos vin pri nenio,” li diris per trankviliga voĉo.
 
 ”Kial vi spionis min?”
 
-”Pro tio mi ne venis. Mi venis kun sciigo. La direktoro al-
-
-tigis mian salajron. Ni povas geedziĝi.”
+”Pro tio mi ne venis. Mi venis kun sciigo. La direktoro altigis mian salajron. Ni povas geedziĝi.”
 
 Désirée ne sciis, ĉu tio estas ŝerco aŭ moko.
 
-”Kaj nun vi trafis min ĉe la ago,” ŝi modifis la voĉon al in-
-
-fana dureco, ”kaj vi pruvos al mi, kiel mi fuŝis mian feliĉon.
+”Kaj nun vi trafis min ĉe la ago,” ŝi modifis la voĉon al infana dureco, ”kaj vi pruvos al mi, kiel mi fuŝis mian feliĉon.
 
 ĉu mi aplaŭdu?”
 
-”Kial vi turmentas vin?” bonkore ekridetis Gasparo. ”Ne-
-
-nio ŝanĝiĝis. Mi amas vin, Désirée. Mi diras tion simple kaj
+”Kial vi turmentas vin?” bonkore ekridetis Gasparo. ”Nenio ŝanĝiĝis. Mi amas vin, Désirée. Mi diras tion simple kaj
 
 normale, ĉar mi deziras vivi kun vi. Kvazaŭ mi dirus: estas
 
@@ -12726,7 +10396,6 @@ nokto aŭ tago. i estas same vera.”
 
 **246**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12736,9 +10405,7 @@ komunan vivon por ĉiam.
 
 ”Kaj la hodiaŭo?”
 
-”Mi kredas,” pliiĝis en lia voĉo la ardego, ”ke vi zorgos ku-
-
-ne kun mi, por ke nia vivo ne fuŝiĝu. ĉu vi deziras?”
+”Mi kredas,” pliiĝis en lia voĉo la ardego, ”ke vi zorgos kune kun mi, por ke nia vivo ne fuŝiĝu. ĉu vi deziras?”
 
 ŝi leviĝis kun la okuloj ĝis nun senfidemaj. ”Kaj kio okazos,
 
@@ -12752,13 +10419,9 @@ se mi ne estas tiel bona, kiel vi opinias?”
 
 Nur tiam Désirée ekploris pro honto kaj pento.
 
-Vespere post la okazaĵo kun Désirée ekfrapis iu subite la por-
+Vespere post la okazaĵo kun Désirée ekfrapis iu subite la pordon. ”Bonan vesperon, Deburau,” diris la eniranta viro.
 
-don. ”Bonan vesperon, Deburau,” diris la eniranta viro.
-
-”Bonan vesperon,” respondis Gasparo kaj kun intereso ri-
-
-gardis la vizitanton.
+”Bonan vesperon,” respondis Gasparo kaj kun intereso rigardis la vizitanton.
 
 ”Malnovaj konatoj renkontiĝas, ĉu?”
 
@@ -12770,27 +10433,20 @@ eniri?”
 
 ”Mi diris al ili, ke ni estas bonaj konatoj.”
 
-Botelo da ruĝa vino staris surtable kaj rememorigis al Gas-
+Botelo da ruĝa vino staris surtable kaj rememorigis al Gasparo la proksimiĝantan solenon. ”Vi havas bonŝancon, sinj-
 
-paro la proksimiĝantan solenon. ”Vi havas bonŝancon, sinj-
-
-oro Godot. Hodiaŭ eble estas la unua tago, kiam mi scias for-
-
-gesi, kion vi faris al ni.”
+oro Godot. Hodiaŭ eble estas la unua tago, kiam mi scias forgesi, kion vi faris al ni.”
 
 ”Proponu do al la malnova amiko gluteton da vino.”
 
 Li eksidis kaj ekprenis glason. ”Kial mi venis? Mi fartis iel
 
-tiel. De temp’ al tempo mi aŭdis pri vi. Mi loĝas ne malprok-
-
-sime.”
+tiel. De temp’ al tempo mi aŭdis pri vi. Mi loĝas ne malproksime.”
 
 ”Neniam mi vidis vin.”
 
 **247**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12798,17 +10454,13 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 malkvietigi? Hieraŭ mi eksciis de unu el viaj muzikantoj, ke
 
-vi edziĝos. Do certe vi fartas bonege. Kaj mi diris al mi: Cer-
-
-te li helpos al malnova konato.”
+vi edziĝos. Do certe vi fartas bonege. Kaj mi diris al mi: Certe li helpos al malnova konato.”
 
 Deburau deturniĝis de la vinglaseto kaj ekmienis serioze.
 
 ”Sinjoro Godot, mi havas multe da kaŭzoj juĝi pri vi plej
 
-malbone. Vi damaĝis min tiel, ke neniu povas tion kompen-
-
-si al mi. ĉiam mi deziris venĝi al vi. Sed mi estas en pacema
+malbone. Vi damaĝis min tiel, ke neniu povas tion kompensi al mi. ĉiam mi deziris venĝi al vi. Sed mi estas en pacema
 
 humoro, mi volas ĉion ĉi enterigi. Mi scias, vi fartis mizere, vi vivtenis vin kiel eblis, ankaŭ je konto de aliaj.”
 
@@ -12818,9 +10470,7 @@ ekmuĝis Godot.
 
 ”Kial mi instruu vin? Vivu kiel plaĉas al vi. ĉiun latronon
 
-la sorto trafos. Sed prefere ne krucu mian vojon. ĉu kompre-
-
-nite? Viakulpe malsaniĝis mia patro en malliberejo. Al murd-
+la sorto trafos. Sed prefere ne krucu mian vojon. ĉu komprenite? Viakulpe malsaniĝis mia patro en malliberejo. Al murd-
 
 uloj mi ne donas almozon.”
 
@@ -12840,13 +10490,9 @@ sekreton.”
 
 iros plu. Se ne, mi diros al ili pri via napoleona juvelo.”
 
-”Vi scias ja, ke tamen oni forportis ĝin jam tiam kaj neni-
+”Vi scias ja, ke tamen oni forportis ĝin jam tiam kaj nenion alian mi havas. Via Napoleono ne interesas min.”
 
-on alian mi havas. Via Napoleono ne interesas min.”
-
-”Klarigu tion al la reĝa polico, sinjoro Deburau,” diris ma-
-
-lice Godot. ”ĉu sciate, kion signifas ilia suspekto?”
+”Klarigu tion al la reĝa polico, sinjoro Deburau,” diris malice Godot. ”ĉu sciate, kion signifas ilia suspekto?”
 
 La vizaĝo de Gasparo denove paliĝis. ”Sinjoro Godot,” li
 
@@ -12854,13 +10500,10 @@ diris glacivoĉe kaj akre, ”mi komprenas, ke mavulo povas
 
 **248**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-malaltiĝi al ĉantaĝo. Sed veni al homo, kies patron vi nenii-
-
-gis kaj provi sian brutalecon ankaŭ je li …”
+malaltiĝi al ĉantaĝo. Sed veni al homo, kies patron vi neniigis kaj provi sian brutalecon ankaŭ je li …”
 
 ”Sinjoro Deburau,” volis Godot ĉantaĝi, ”vi devas rekoni…”
 
@@ -12880,13 +10523,9 @@ sulketoj pliprofundiĝis.
 
 ”Sur la scenejon!” ordonis mem sinjoro Cot d’Ordan.
 
-Deburau iras. Malbone li komencas la ludon. La korpo pe-
+Deburau iras. Malbone li komencas la ludon. La korpo pezas kaj la membroj kvazaŭ el plumbo. Surfunde de la memo
 
-zas kaj la membroj kvazaŭ el plumbo. Surfunde de la memo
-
-kuŝas pezilo, kiu permesas movon, sed ne salton. Li enpro-
-
-fundiĝas en la ludon kiel en purigan banon. Mi devas tion
+kuŝas pezilo, kiu permesas movon, sed ne salton. Li enprofundiĝas en la ludon kiel en purigan banon. Mi devas tion
 
 deskui de sur mi, mi devas forigi la malpuraĵon. Poste jam li
 
@@ -12898,43 +10537,28 @@ ludas hodiaŭ! pensas la aktoroj ĉirkaŭ li. Estis preskaŭ neeble ankoraŭ ald
 
 ne estas el la aktoro. La homa animo sopiras elserĉi ne nur
 
-por la publiko, sed ankaŭ por si mem alian mondon, pli bo-
+por la publiko, sed ankaŭ por si mem alian mondon, pli bonan, pli belan, en kiu la homo solenas sian renaskiĝon.
 
-nan, pli belan, en kiu la homo solenas sian renaskiĝon.
+Sed tiumomente, kiam Pieroto ĉasis Arlekenon en la ĉambro de drinkejestro, okazis io neatendita. Io ne aŭdita. Meze
 
-Sed tiumomente, kiam Pieroto ĉasis Arlekenon en la ĉam-
+de la kontenta kaj laŭta rido eksonis el la rigardejo laŭta ekfajfo. La aktoroj kaj la spektantoj por momento konsterniĝis.
 
-bro de drinkejestro, okazis io neatendita. Io ne aŭdita. Meze
-
-de la kontenta kaj laŭta rido eksonis el la rigardejo laŭta ek-
-
-fajfo. La aktoroj kaj la spektantoj por momento konsterniĝis.
-
-Sed Gasparo ne perdis la kapon. Li turnis sin, kvazaŭ esplo-
-
-rante, de kie la fajfado venas, kaj li ĉirkaŭrigardis la meblaron.
+Sed Gasparo ne perdis la kapon. Li turnis sin, kvazaŭ esplorante, de kie la fajfado venas, kaj li ĉirkaŭrigardis la meblaron.
 
 **249**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Li frapetis sian frunton. La poto sur kameno! La vaporo fori-
+Li frapetis sian frunton. La poto sur kameno! La vaporo foriras! Kaj fakte: eksonis nova fajfo, sed tiumomente, kiam Gas-
 
-ras! Kaj fakte: eksonis nova fajfo, sed tiumomente, kiam Gas-
-
-paro demetis kovrilon desur la poto, la fajfado ĉesis. Gaspa-
-
-ro mem ekfajfis. Sed la ekscesulo malantaŭe ne lasis sin reba-
+paro demetis kovrilon desur la poto, la fajfado ĉesis. Gasparo mem ekfajfis. Sed la ekscesulo malantaŭe ne lasis sin reba-
 
 ti. Li komencis denove, kaj ankoraŭ pli laŭte ol antaŭe. La
 
 publiko ne konsentis kun la provokanto; sed kiam klaris, ke
 
-Deburau akceptis la defion kaj batalas kontraŭ la malkonten-
-
-tulo, ĉiujn ekinteresis, kiu venkos. Laurent kiel Arlekeno restis post kulisoj. Li sciis: nun Deburau devas resti sola. Bertrand
+Deburau akceptis la defion kaj batalas kontraŭ la malkontentulo, ĉiujn ekinteresis, kiu venkos. Laurent kiel Arlekeno restis post kulisoj. Li sciis: nun Deburau devas resti sola. Bertrand
 
 alrigardis sorĉite. La aktoroj sin kunvokadis reciproke: ”Iru
 
@@ -12942,9 +10566,7 @@ rapide, Deburau improvizas!”
 
 Gasparo kapablis trovi dek manierojn kiel konvinkiĝi, ĉu
 
-fajfas la poto, ĉu knaras la fenestro aŭ ĉu aliloke fuĝas vapo-
-
-ro. La fajf-ladeto sub lia lango gaje konkurencis kun la fajfa-
+fajfas la poto, ĉu knaras la fenestro aŭ ĉu aliloke fuĝas vaporo. La fajf-ladeto sub lia lango gaje konkurencis kun la fajfa-
 
 do el la partero. Sed kiam la fiulo en la fono ne intencis ĉesi, li decidiĝis la intermezon energie fini. Li aliris la scenejrandon.
 
@@ -12960,19 +10582,14 @@ mi jam unufoje englutis.”
 
 El la loĝio aŭdiĝis rido de tiu, kiu la unua ekkomprenis la
 
-ridindigan mokon. La partero aldoniĝis. ĉiuj ridis pro sinte-
-
-no de Pieroto. Gasparo instinkte ekrigardis al la loĝio. Sidis tie bela viro kun vizaĝo delikata, iom simila al Nodier. Poste li
+ridindigan mokon. La partero aldoniĝis. ĉiuj ridis pro sinteno de Pieroto. Gasparo instinkte ekrigardis al la loĝio. Sidis tie bela viro kun vizaĝo delikata, iom simila al Nodier. Poste li
 
 eksvingis kaj ĵetis la fajfileton en la salonegon. La publiko
 
 decidis, ke Deburau estas venkinto en la duelo, kaj kiam la
 
-brutulo enfone ne komprenis tion kaj volis daŭrigi la fajfa-
+brutulo enfone ne komprenis tion kaj volis daŭrigi la fajfadon, ĝi opiniis tion ofendo. Kelkaj junuloj ekkuris serĉi la pro-250
 
-don, ĝi opiniis tion ofendo. Kelkaj junuloj ekkuris serĉi la pro-250
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -12992,29 +10609,19 @@ Godoton ili traktis simple. Malgraŭ la fakto, ke li defendis
 
 sin, ili transdonadis lin el unu vico al la alia kaj poste lin elĵetis tra la pordo.
 
-Gasparo leĝere riverencis. Li turnis sin por repreni la for-
+Gasparo leĝere riverencis. Li turnis sin por repreni la fortojn, kaj jam en la sekvinta movo li estis denove Pieroto. Ek-
 
-tojn, kaj jam en la sekvinta movo li estis denove Pieroto. Ek-
+kuro, akra halto, surprizego — kaj jam denove li kaptis atenton de la publiko, kiu mallaŭtiĝis.
 
-kuro, akra halto, surprizego — kaj jam denove li kaptis aten-
-
-ton de la publiko, kiu mallaŭtiĝis.
-
-”Bravo!” eksonis laŭde en la loĝio. La interrompo estis for-
-
-gesita kaj la prezentado estis unu el la plej sukcesaj prezen-
+”Bravo!” eksonis laŭde en la loĝio. La interrompo estis forgesita kaj la prezentado estis unu el la plej sukcesaj prezen-
 
 tadoj. Jam longe ne ĝojigis Gasparon la teatra ludo kiel tiam
 
-kaj preskaŭ li timis, ke ĝi finiĝos. Li konfesis amon al la scenejo kaj amikecon al la publiko, dankinte por la aplaŭdo. Ki-
-
-am fine li estis revenanta en la vestejon kaj Bertrand al li diris kelkajn laŭd-vortojn, invadis en la koridoron Cot d’Ordan,
+kaj preskaŭ li timis, ke ĝi finiĝos. Li konfesis amon al la scenejo kaj amikecon al la publiko, dankinte por la aplaŭdo. Kiam fine li estis revenanta en la vestejon kaj Bertrand al li diris kelkajn laŭd-vortojn, invadis en la koridoron Cot d’Ordan,
 
 pli pala ol Pieroto mem.
 
-”Bertrand! Deburau!” li kriis, ”ĉu vi scias, kiu estis tiu ho-
-
-mo sidanta en la loĝio?”
+”Bertrand! Deburau!” li kriis, ”ĉu vi scias, kiu estis tiu homo sidanta en la loĝio?”
 
 ”Eĉ ne ideeton mi havas,” diris Bertrand, kiu en la artistaj
 
@@ -13028,15 +10635,12 @@ Li sin apogis je la muro.
 
 **251**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La edziĝdonaco
 
-Postmorgaŭ aperis en ”Journal des Débats” artikolo sub-
-
-skribita fare de Janin, kiu ondigis la surfacon de la teatra
+Postmorgaŭ aperis en ”Journal des Débats” artikolo subskribita fare de Janin, kiu ondigis la surfacon de la teatra
 
 vivo ĝisfunde, kaj pri kiu oni parolis en postkulisejoj de ĉiuj parizaj teatroj kaj en promenkoridoroj de ĉiuj rigardejoj. Jen
 
@@ -13054,9 +10658,7 @@ dum ĝia sepulto ploris Figaro ankaŭ kun Almaviva.
 
 Sed mi opinias mia devo informi Parizon, ke se ne ekzistas
 
-teatro, ekzistas Funambules. Kaj se ne estas partero el kafe-
-
-jo Procope, estas partero el teatro Funambules, verva kaj ela-
+teatro, ekzistas Funambules. Kaj se ne estas partero el kafejo Procope, estas partero el teatro Funambules, verva kaj ela-
 
 na publiko, kiu ŝatas fortan vinon kaj bonan spriton. Pli frue Arto veturadis en kaleŝo, nuntempe ĝi piediras. i moviĝis
 
@@ -13066,7 +10668,6 @@ teatra arto havis siajn noktajn solenojn, reĝon ĉe la kruroj, sa-lonegojn en P
 
 terpomojn sur bulvardo du Temple, riparas siajn ŝiritajn ŝtrumpojn ĉe la pordego de sia teatro kaj ebriigas sin per mal-252
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13080,9 +10681,7 @@ devo, kiu deziras entuziasmiĝi kaj esti samtempe artisto, sekvas sian pasion. M
 
 nekonataj teatroj, en la plej malgranda kaj plej malbona el ili, en lumo de kvar mizeraj kandeloj, en bruego de menaĝerio,
 
-penetranta ĝis tie… Tie mi malkovris klaŭnon, kiu estas gran-
-
-da aktoro, kaj mi devis lin admiri. Li estas Deburau.”
+penetranta ĝis tie… Tie mi malkovris klaŭnon, kiu estas granda aktoro, kaj mi devis lin admiri. Li estas Deburau.”
 
 Deburau vespere trankvile ekkuŝis kaj ne antaŭvidis, pro kiaj
 
@@ -13090,19 +10689,13 @@ demandoj, protestoj kaj informpetoj li fariĝis heroo. Matene
 
 vekis lin freneza frapado sur la pordon. Kiam, ankoraŭ en
 
-duondormo, li malfermis la pordon, aperis direktoro Bert-
-
-rand, falis en lian brakon, vino ankoraŭ senteblis el li, brakumadis Gasparon, kisis kaj kriis: ”Ni venkis, Gasparo, ni ven-
+duondormo, li malfermis la pordon, aperis direktoro Bertrand, falis en lian brakon, vino ankoraŭ senteblis el li, brakumadis Gasparon, kisis kaj kriis: ”Ni venkis, Gasparo, ni ven-
 
 kis.”
 
-Gasparo opiniis, ke la direktoro estas ebria, misvojis hej-
+Gasparo opiniis, ke la direktoro estas ebria, misvojis hejmen. Sed Bertrand elprenas ĵurnalon, eksidas liten kaj mon-
 
-men. Sed Bertrand elprenas ĵurnalon, eksidas liten kaj mon-
-
-tras la artikolon. Kaj Gasparo legas, se tion permesas la fin-
-
-gro de Bertrand, moviĝanta sur la linioj.
+tras la artikolon. Kaj Gasparo legas, se tion permesas la fingro de Bertrand, moviĝanta sur la linioj.
 
 ”Journal ne estas Pandora. Tion ili rimarkos!” promesas la
 
@@ -13122,7 +10715,6 @@ signifas.
 
 **253**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13146,21 +10738,15 @@ mi, eble surbranĉe. Sed dimanĉe oni devas ludi.”
 
 ”Kaj la geedziĝo? Kiel aranĝi la aferon?”
 
-”Sciu, Deburau,” venas ideo al Bertrand. ”Kuru por la kna-
+”Sciu, Deburau,” venas ideo al Bertrand. ”Kuru por la knabino kaj rapidu en preĝejon. Petu, ke oni pardonu al vi la las-
 
-bino kaj rapidu en preĝejon. Petu, ke oni pardonu al vi la las-
-
-tan eklezian anoncon, mi pagos tion. Kuregu, geedziĝu — ho-
-
-diaŭ ne, hodiaŭ ni devas ankoraŭ ludi — sed morgaŭ!”
+tan eklezian anoncon, mi pagos tion. Kuregu, geedziĝu — hodiaŭ ne, hodiaŭ ni devas ankoraŭ ludi — sed morgaŭ!”
 
 Bertrand enpoŝigas la ĵurnalon kaj galopas for. En kiom da
 
 kafejoj li devas ankoraŭ tiutage fanfaroni pri la kritiko fare de Janin. La tuta Parizo fingromontros al li. La direktoro el Funambules! Ili demandos: mi petas vin, kion eksterordinaran
 
-vi faras en tiu via teatro? Li ne respondos. Li mienos miste-
-
-re. Venu rigardi!
+vi faras en tiu via teatro? Li ne respondos. Li mienos mistere. Venu rigardi!
 
 Ankaŭ Gasparo eliras post nelonge el la domo. Nekuraĝe
 
@@ -13180,7 +10766,6 @@ Inter la amikoj-aktoroj estis malpli da envio, ol li atendis.
 
 **254**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13192,9 +10777,7 @@ lokoj subite sidis alia publiko ol kutimis. Scivoluloj el la centro de Parizo ha
 
 proklamis artisto. En iliaj vizaĝoj estis multe da malfido, kiam ili kritike ekzamenis la ekipon de la teatro kaj la publikon en la malantaŭaj vicoj; malestime ili kapneis, vidante kelkajn fu-mantajn lampojn kaj aŭskultante nekvalitan muzikon. Damoj
 
-apenaŭ kapablis levadi al la vizaĝo bonodoran salon aŭ bo-
-
-teleton kun kolonja akvo. Ili ne povis kredi! ĉu Janin ne mo-
+apenaŭ kapablis levadi al la vizaĝo bonodoran salon aŭ boteleton kun kolonja akvo. Ili ne povis kredi! ĉu Janin ne mo-
 
 kis al siaj legantoj?
 
@@ -13218,19 +10801,14 @@ homo el antaŭurba bulvardo, bildo de ĉiuj eksidintoj en la
 
 partero. Vi prezentas al ili ilin mem. Vi prezentas al ili nur la pli varian kaj allogan vivon, mondon, kie regas la amo. Oni
 
-ne ŝarĝas tie karbon, ne flikas ŝtrumpojn, ne balaas trotua-
+ne ŝarĝas tie karbon, ne flikas ŝtrumpojn, ne balaas trotuarojn, oni ne frostas en butiketoj. Sed la homoj restas. Vi sci-
 
-rojn, oni ne frostas en butiketoj. Sed la homoj restas. Vi sci-
-
-as, kiun vi prezentas al ili. Tial vi certas pri vi mem. Tial ĉio eksilentas, kiam vi aperas. ĉiuj vin vidantaj devas demeti malfidon kaj malrespekton, kaj ili observas vin senspire. Via ri-
-
-deto, travidanta malbonon de la mondo, regas al ili.
+as, kiun vi prezentas al ili. Tial vi certas pri vi mem. Tial ĉio eksilentas, kiam vi aperas. ĉiuj vin vidantaj devas demeti malfidon kaj malrespekton, kaj ili observas vin senspire. Via rideto, travidanta malbonon de la mondo, regas al ili.
 
 Antaŭ ol tiuvespere la spektantoj forlasis la salonegon,
 
 **255**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13238,17 +10816,13 @@ aperis direktoro Bertrand en frako kaj sciigis, ke la salonegon Funambules, kiu 
 
 de la estimata publiko, oni restaŭros kaj novajn prezentadojn
 
-oni inaŭguros precize post unu semajno per la glora panto-
-
-mimo ”Ora sonĝo”. Kaj kun afektitaj embarasoj li aldonas, ke
+oni inaŭguros precize post unu semajno per la glora pantomimo ”Ora sonĝo”. Kaj kun afektitaj embarasoj li aldonas, ke
 
 tiu ĉi paŭzo ege plaĉos al la favorato de la publiko, al sinjoro Deburau, ĉar morgaŭ li edziĝos. Tio vekis bruplenan ĝojon.
 
 ”Revenu tuta, Pieroto.”
 
-Pieroto ĝoje dankis por la aplaŭdo, feliĉa kiel ĉiam pro ga-
-
-jeco de nekonataj amikoj.
+Pieroto ĝoje dankis por la aplaŭdo, feliĉa kiel ĉiam pro gajeco de nekonataj amikoj.
 
 Kiam matene Deburau iris por Désirée, enpoŝe de lia nigra
 
@@ -13260,9 +10834,7 @@ formetis togon de la seriozeco kaj similas al tro scivolema
 
 bubino, gapanta surstrate. Kaj sinjoro Janin strebante trovi la arton, trovis Pieroton, sed tiel li mem fariĝis klaŭno.
 
-Tio iom mishumorigis Gasparon, ĉar ĉagrenis lin, ke sinjo-
-
-ro Janin devas pro li suferi. Sed Bertrand kaj amiko Laurent,
+Tio iom mishumorigis Gasparon, ĉar ĉagrenis lin, ke sinjoro Janin devas pro li suferi. Sed Bertrand kaj amiko Laurent,
 
 kiu estis la dua atestanto, trankviligadis lin, asertante, ke Janin restos neniom ŝulda al la rivalo.
 
@@ -13276,7 +10848,6 @@ Kiam ili estis elirantaj el la kirko, atendis ilin tie homama-
 
 **256**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13288,9 +10859,7 @@ Désirée brilis pro kontento pro tia gloro, kiun ŝi ricevis.
 
 Gasparo jam transloĝiĝis en la novan apartamenton. La plej
 
-necesa meblaro pruntita el la teatra magazeno, apenaŭ per-
-
-mesis al la gastoj okupi lokon ĉirkaŭ la malriĉa festena tab-
+necesa meblaro pruntita el la teatra magazeno, apenaŭ permesis al la gastoj okupi lokon ĉirkaŭ la malriĉa festena tab-
 
 lo. Krom la geedza paro kaj la atestantoj estis tie nur Aneta
 
@@ -13314,21 +10883,15 @@ Denove la fajfado. Ion ili vokis.
 
 ”Kiun mi surhavas?” defendis sin Désirée.
 
-”Provizore mi pruntedonos al vi la mian,” promesis Ane-
+”Provizore mi pruntedonos al vi la mian,” promesis Aneta. Gasparo en rolo de feliĉa edzo elkliniĝis kaj ĵetis eksteren bluan rubandeton.
 
-ta. Gasparo en rolo de feliĉa edzo elkliniĝis kaj ĵetis eksteren bluan rubandeton.
-
-Malsupre komenciĝis pri ĝi batalo, sed la homamaso rice-
-
-vis jam sian trofeon kaj fine ĝi formarŝis. Antaŭ la vesperiĝo
+Malsupre komenciĝis pri ĝi batalo, sed la homamaso ricevis jam sian trofeon kaj fine ĝi formarŝis. Antaŭ la vesperiĝo
 
 foriris ankaŭ la solenaj gastoj. Sed apenaŭ Gasparo ŝlosis post ili kaj revenis al Désirée, eksonis bategoj sur la pordon.
 
 ”Kiu estas.”
 
-”Mi, Bertrand. Rapide malfermu, aŭ mi ruinigos la do-
-
-mon.”
+”Mi, Bertrand. Rapide malfermu, aŭ mi ruinigos la domon.”
 
 ”Kio okazis?”
 
@@ -13336,7 +10899,6 @@ La direktoro ĵetiĝis enen kun la nova numero de ”Journal”.
 
 **257**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13350,9 +10912,7 @@ diri la veron al la homoj. Sinjoro Payat volas ja diri la veron, sed oni konside
 
 ripeti, ke en teatro Funambules ludas aktoro Deburau, kiu
 
-majstras sian fakon, ĉar, kiel mi vidis, li scias per sia farunumita vizaĝo esprimi la tutan skalon de homaj doloroj kaj ĝo-
-
-joj, sen eldiri eĉ unu vorton, kaj li bezonas por tio nek Molieron, nek Shakespearon. Laŭ la e˛o, kiun mia artikolo vekis,
+majstras sian fakon, ĉar, kiel mi vidis, li scias per sia farunumita vizaĝo esprimi la tutan skalon de homaj doloroj kaj ĝojoj, sen eldiri eĉ unu vorton, kaj li bezonas por tio nek Molieron, nek Shakespearon. Laŭ la e˛o, kiun mia artikolo vekis,
 
 ŝajnas, ke tiun aktoron mi malkovris. Mi akceptas tion kiel
 
@@ -13366,43 +10926,28 @@ ludo ne estas hazardo; ĝi estas laboro, sed ankaŭ amo. En la
 
 tempo, kiam ŝajnis, ke ĉiuj variantoj de la itala komedio jam
 
-elĉerpiĝis, li venas kun entute nova speco. La malnova mon-
+elĉerpiĝis, li venas kun entute nova speco. La malnova monstra kitelo de Gilles sur li fandiĝas en faldoj kun la antikva
 
-stra kitelo de Gilles sur li fandiĝas en faldoj kun la antikva
-
-ĉarmo. La blanka vizaĝo faras el li vivantan statuon de pan-
-
-tomimo. Tio jam ne estas la olda klaŭno Gilles, sencele bar-
+ĉarmo. La blanka vizaĝo faras el li vivantan statuon de pantomimo. Tio jam ne estas la olda klaŭno Gilles, sencele bar-
 
 aktanta sur la scenejo. Li estas sangmalvarma stoikulo, sed
 
-ĉiam bonhumora, eĉ sen vorto, sen pasio, preskaŭ sen la vi-
+ĉiam bonhumora, eĉ sen vorto, sen pasio, preskaŭ sen la vizaĝo. Sed kontraste al tio, lia vizaĝo esprimas ĉion. Li estas
 
-zaĝo. Sed kontraste al tio, lia vizaĝo esprimas ĉion. Li estas
+postsekvanto de Roscius Gallus, kiu en sia muta lingvo scipovis tradukadi Ciceronon laŭvorte. La postsekvanto de Pi-
 
-postsekvanto de Roscius Gallus, kiu en sia muta lingvo sci-
+lado, Ezopo kaj de Bathylles, pri kiu petis la poncia reĝo Neronon, ke li donu lin al li kiel ambasadoron por nacioj de ne-
 
-povis tradukadi Ciceronon laŭvorte. La postsekvanto de Pi-
-
-lado, Ezopo kaj de Bathylles, pri kiu petis la poncia reĝo Ne-
-
-ronon, ke li donu lin al li kiel ambasadoron por nacioj de ne-
-
-konata lingvo. Lia vizaĝo sulkigita nur de muta kaj venka sar-
-
-kasmo, diras ĉion. Deburau paŝas, rigardas, malfermas la bu-
+konata lingvo. Lia vizaĝo sulkigita nur de muta kaj venka sarkasmo, diras ĉion. Deburau paŝas, rigardas, malfermas la bu-
 
 **258**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ŝon, fermas la okulojn, ridigas vin, li ĉarmas. En Funambules
 
-vi ripozos post spektado de la figuroj de nia tragedio. ĉar De-
-
-burau estas ĉio. Deburau estas la popolo. Li estas mil aktoroj
+vi ripozos post spektado de la figuroj de nia tragedio. ĉar Deburau estas ĉio. Deburau estas la popolo. Li estas mil aktoroj
 
 en unu. Ne demandu lin pri lia nomo kaj profesio. Li estas
 
@@ -13416,15 +10961,11 @@ lasta reprezentanto. Li potencigas ĝin al majesteco. Li estas
 
 aktoro de sia popolo. Eble li ne plaĉos al nia moŝtularo, se ĝi kuraĝos descendi en la salonegon Funambules. Sed artisto li
 
-restos, kaj tio ne estas mia merito. Li estis artisto ankaŭ an-
-
-taŭ mi. Mi estas nur lia Amerigo Vespucci.”
+restos, kaj tio ne estas mia merito. Li estis artisto ankaŭ antaŭ mi. Mi estas nur lia Amerigo Vespucci.”
 
 Ili finlegis. Bertrand ion diris, sed Gasparo lin ne aŭdis. Li
 
-rekonsciiĝis, nur kiam ĉiuj jam foriris kaj Désirée lin braku-
-
-mis kaj kisis.
+rekonsciiĝis, nur kiam ĉiuj jam foriris kaj Désirée lin brakumis kaj kisis.
 
 ”Gasparo,” ŝi vokis, ”kiam vi famiĝos, vi eĉ ne rimarkos
 
@@ -13436,9 +10977,7 @@ nun senĉese tra koto, eterne en la pluvo. Sed nun mi sentas
 
 sub miaj kruroj la firman teron, super mi la sunon — kaj la
 
-mondo donas al mi la manon. Sed maksimume mi estas feli-
-
-ĉa, ĉar mi ne petis pri tio. Mi iris vojon, kiu plaĉis al mi, mi volis min disdoni al la homoj — kaj ili ekkredis al mi.”
+mondo donas al mi la manon. Sed maksimume mi estas feliĉa, ĉar mi ne petis pri tio. Mi iris vojon, kiu plaĉis al mi, mi volis min disdoni al la homoj — kaj ili ekkredis al mi.”
 
 Sed Désirée tamen tristiĝis.
 
@@ -13448,41 +10987,30 @@ Sed Désirée tamen tristiĝis.
 
 **259**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 En la vicoj de romantikuloj
 
-Gasparo Deburau entreprenis kun sia edzino edziĝ-
-
-vojaĝon. Kien? Al bulvardo du Temple. Kiom da jaroj li
+Gasparo Deburau entreprenis kun sia edzino edziĝvojaĝon. Kien? Al bulvardo du Temple. Kiom da jaroj li
 
 travivadis siajn vesperojn nur sur la scenejo kiel aktoro. Li
 
 ekavidis unufoje fariĝi mem spektanto. Dum la tuta tago li
 
-provadis en la restaŭrata teatro, dum falado de stuko kaj mar-
-
-telado; post vespermanĝo en malkara restoracio kun Désirée
+provadis en la restaŭrata teatro, dum falado de stuko kaj martelado; post vespermanĝo en malkara restoracio kun Désirée
 
 ŝate li enmiksiĝis en la bulvardan tumulton.
 
 Oftis okazoj vidi, kiel antaŭ Funambules haltas kaleŝoj kaj
 
-kiel sinjoroj, post kiam ili tralegis la afiŝon, ĉagrene anoncas al damoj en kaleŝo, ke provizore oni ne ludas. La nova artikolo fare de Janin efikis kiel bombo. Sinjoro Payat ne plu aŭ-
+kiel sinjoroj, post kiam ili tralegis la afiŝon, ĉagrene anoncas al damoj en kaleŝo, ke provizore oni ne ludas. La nova artikolo fare de Janin efikis kiel bombo. Sinjoro Payat ne plu aŭdigis sin.
 
-digis sin.
-
-Gasparo volis fariĝi dum la sep vesperoj spektanto, entu-
-
-ziasma spektanto, kiu devas rekompenci sin por tio, kion li
+Gasparo volis fariĝi dum la sep vesperoj spektanto, entuziasma spektanto, kiu devas rekompenci sin por tio, kion li
 
 preterlasis, kiam por ĉiam li enkarcerigis sin sur la scenejo.
 
-Kaj tiel man-en-mane kun Désirée, li vizitis salonon kun vaks-figuroj, ili dancis kune ĉe ”La Blua Kvadrato,” ili amuzis sin super aŭtomatoj ĉe Thevelenin, ili eksidis inter spek-
-
-tantojn je ĉinaj ombrobildoj kaj dimanĉe iris al cirko Olym-
+Kaj tiel man-en-mane kun Désirée, li vizitis salonon kun vaks-figuroj, ili dancis kune ĉe ”La Blua Kvadrato,” ili amuzis sin super aŭtomatoj ĉe Thevelenin, ili eksidis inter spektantojn je ĉinaj ombrobildoj kaj dimanĉe iris al cirko Olym-
 
 pia, kie ili aplaŭdis al hindaj ĵonglistoj, al ĉinaj saltistoj, alt-rajdistoj kaj al dresitaj kaprinoj kaj elefantoj.
 
@@ -13490,13 +11018,10 @@ Rigardado je la vespera amuzo de Parizo utilis al Gasparo.
 
 Denove li instruiĝis, kio plaĉas al homoj, kiaj ili estas. Ofte lin Désirée admonis, ke li rigardu la scenejon. ŝi pensis, ke li ko-260
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ketas kun ia virino. Sed Gasparo tiel kompletigadis siajn stu-
-
-dojn, kio la homojn streĉas, kio ilin ridigas.
+ketas kun ia virino. Sed Gasparo tiel kompletigadis siajn studojn, kio la homojn streĉas, kio ilin ridigas.
 
 Dimanĉe oni komencis ludi.
 
@@ -13508,9 +11033,7 @@ li ĝenis preterpasantojn eĉ ne per unu vorto. Bonstate kaj
 
 leĝere li staris sur la trotuaro kaj maksimume dirsendis ian
 
-ŝercon post belan knabinon. Malgraŭ tio alvenadis kaj vetu-
-
-radis pluraj homoj kaj petis ĉe la kaso biletojn. Sinjorino ka-
+ŝercon post belan knabinon. Malgraŭ tio alvenadis kaj veturadis pluraj homoj kaj petis ĉe la kaso biletojn. Sinjorino ka-
 
 sistino ĝentile ridetis.
 
@@ -13524,9 +11047,7 @@ sistino ĝentile ridetis.
 
 ”Por la tuta semajno disvendite. ĉu mi povas vendi al vi
 
-biletojn por venonta dimanĉo? Por nealtigitaj prezoj, mi pe-
-
-tas.”
+biletojn por venonta dimanĉo? Por nealtigitaj prezoj, mi petas.”
 
 Gasparo iom elreviĝis, kiam li pririgardis la publikon. En la
 
@@ -13550,21 +11071,16 @@ kaj ĉagreno.
 
 **261**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 revo pri variaĵoj de la vivo; plena de ĝojo kaj senreviĝo, kiun la homoj vivas, kaj kiu finiĝas per venko de la amo kaj justeco.
 
-Post la sukceso en la ”Ora sonĝo” jam neniu aŭtoro pen-
-
-sis je Arlekeno, sed ĉiuj reflikis siajn tekstojn por Pieroto. En la pantomimo ”Vendisto de salato” Deburau ankoraŭ plipro-fundigis sian rolon pri la senindulga vivbatalo de ethomoj.
+Post la sukceso en la ”Ora sonĝo” jam neniu aŭtoro pensis je Arlekeno, sed ĉiuj reflikis siajn tekstojn por Pieroto. En la pantomimo ”Vendisto de salato” Deburau ankoraŭ plipro-fundigis sian rolon pri la senindulga vivbatalo de ethomoj.
 
 Malespero kaj malamo pezis en unusolaj du vortoj, kiujn li
 
-eldiris dum la tuta teatra prezentado: ”Aĉetu salaton!” Li ti-
-
-mis en ili pri gajno, ĵurpetis la homojn, malamis iliajn malvarmon kaj orgojlon. La teatraĵo triumfis; la lignoŝuojn kaj la paj-loĉapelon el ĉi tiu rolo lasis al si Deburau por ĉiam en la vestejo kiel la feliĉan rememoraĵon.
+eldiris dum la tuta teatra prezentado: ”Aĉetu salaton!” Li timis en ili pri gajno, ĵurpetis la homojn, malamis iliajn malvarmon kaj orgojlon. La teatraĵo triumfis; la lignoŝuojn kaj la paj-loĉapelon el ĉi tiu rolo lasis al si Deburau por ĉiam en la vestejo kiel la feliĉan rememoraĵon.
 
 La teatro Funambules fariĝis fokuso de la tuta kvartalo. La
 
@@ -13578,19 +11094,13 @@ Malgraŭ tio, ke la polico de Karolo la X-a spionis pri ĉiaj
 
 manifestiĝoj, rememorigantaj la revolucion aŭ Bonaparton, la
 
-teatreto konservis ankaŭ dum la periodo de la kreskanta glo-
-
-ro viglan rilaton al la pensmaniero de sia publiko. La olda
+teatreto konservis ankaŭ dum la periodo de la kreskanta gloro viglan rilaton al la pensmaniero de sia publiko. La olda
 
 aktoro Viktoro regajnis ĝian favoron, kiam en la teatraĵo ”La
 
-reveno” en rolo de maljuna ĉasisto, vestita en verda unifor-
+reveno” en rolo de maljuna ĉasisto, vestita en verda uniformo, aŭdacis preni el tabakujo tabakon laŭ la sama maniero,
 
-mo, aŭdacis preni el tabakujo tabakon laŭ la sama maniero,
-
-kiu estis konata ĉe Napoleono. ”Bravo,” aŭdiĝis en la salone-
-
-go. Sed malfeliĉe ĉeestis komisaro. La sekvintan tagon oni
+kiu estis konata ĉe Napoleono. ”Bravo,” aŭdiĝis en la salonego. Sed malfeliĉe ĉeestis komisaro. La sekvintan tagon oni
 
 malpermesis la teatraĵon kaj Viktoro estis kondamnita al
 
@@ -13598,31 +11108,22 @@ granda monpuno kaj al unumonata karcero, ĉar li imitis la
 
 **262**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-homon ”kiun nomi malhelpas honto.” Tiel tekstis la verdik-
-
-to.
+homon ”kiun nomi malhelpas honto.” Tiel tekstis la verdikto.
 
 Kiam aperis en la Teatro de la Gajeco sukcesa teatraĵo ”La
 
 kokejestro”, Bertrand aranĝis inter siaj aŭtoroj konkurson pri
 
-la sama suĵeto. Dum tri tagoj li ricevis dudek kvin manuskrip-
+la sama suĵeto. Dum tri tagoj li ricevis dudek kvin manuskriptojn. Vane ordonadis sinjoro inspektoro Vauqelin, viglanta pri
 
-tojn. Vane ordonadis sinjoro inspektoro Vauqelin, viglanta pri
-
-ordo en la teatroj, ke junulo ŝtelanta pro malsato kokinojn, ne darfas aspekti ribele, kaj ke oni ne darfas prezenti strikon. La publiko el la kvartalo, formanta ĉiam la kadron de la rigardejo, vivis kun siaj aktoroj ĉiam en konstanta sekreta interkom-
-
-preno.
+ordo en la teatroj, ke junulo ŝtelanta pro malsato kokinojn, ne darfas aspekti ribele, kaj ke oni ne darfas prezenti strikon. La publiko el la kvartalo, formanta ĉiam la kadron de la rigardejo, vivis kun siaj aktoroj ĉiam en konstanta sekreta interkompreno.
 
 Pieroto nur ekridetis kaj liaj spektantoj ekridis.
 
-”Kion li diris?” demandis ofte nekomprene, kiuj ĉi tien ve-
-
-nis unuafoje. En la tago, kiam sur la bulvardo inter amikoj de
+”Kion li diris?” demandis ofte nekomprene, kiuj ĉi tien venis unuafoje. En la tago, kiam sur la bulvardo inter amikoj de
 
 la teatro famiĝis la sciigo, ke populara Pieroto fariĝis patro, Deburau ludis nur etan interludon en la vespera programo
 
@@ -13646,15 +11147,12 @@ al la filino. Vespere en la rolo de Pieroto, kiu estas devigata prezenti guverna
 
 **263**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Tiel agas la patro? Fi, al la patro!”
 
-Pieroto embarasiĝis. Lia manplato ekhaltis, tenere li obser-
-
-vis la etan infanan postaĵeton antaŭ si, mankaresis la infanon
+Pieroto embarasiĝis. Lia manplato ekhaltis, tenere li observis la etan infanan postaĵeton antaŭ si, mankaresis la infanon
 
 kaj poste arde lin ĉirkaŭprenis kaj alpremis al si.
 
@@ -13662,9 +11160,7 @@ kaj poste arde lin ĉirkaŭprenis kaj alpremis al si.
 
 partero entuziasmajn ovaciojn al sia amata artisto.
 
-Tiun vesperon kaj en multaj venintaj Gasparo treege rapi-
-
-dis al Désirée, al kiu li ege dankemis. Nun li havis ion vere
+Tiun vesperon kaj en multaj venintaj Gasparo treege rapidis al Désirée, al kiu li ege dankemis. Nun li havis ion vere
 
 propran; sian infanon. Li plezure atendis ĉiun renkontiĝon
 
@@ -13674,13 +11170,9 @@ Sed ofte okazis, ke Gasparon atendis iu antaŭ la teatro,
 
 vizitadis lin en la vestejo, aŭ almenaŭ sendis al li gratulon. Li havis okazon denove riverenci al Gérard kaj liaj amikoj. Plej
 
-grandan ĝojon alportis al li sukceso ĉe grupo de junaj roman-
+grandan ĝojon alportis al li sukceso ĉe grupo de junaj romantikuloj, kiuj venadis po tri, po kvar, por eksidi ne diste de la scenejo kaj kapablis amikiĝi ankaŭ kun la originaleca publiko hejma. Ili atendadis lin ekstere kaj estis tiom intime kor-
 
-tikuloj, kiuj venadis po tri, po kvar, por eksidi ne diste de la scenejo kaj kapablis amikiĝi ankaŭ kun la originaleca publiko hejma. Ili atendadis lin ekstere kaj estis tiom intime kor-
-
-aj, ke li ne povis rifuzi mallongan kuneston ĉe Napolano Gra-
-
-ciani aŭ ie alie.
+aj, ke li ne povis rifuzi mallongan kuneston ĉe Napolano Graciani aŭ ie alie.
 
 Oftis, ke iliaj dialogoj rilatis la arton de Deburau. Malgraŭ
 
@@ -13690,9 +11182,7 @@ sia hezitemo, li devis aŭskulti, respondi demandojn, klarigadi.
 
 en purpura veŝto. ”Vi devas kuniri; ili kondukis lin en gastejeton, ”eĉ se ni devus vin kvaronumi kaj po pecetoj forporti.”
 
-Kaj kiam li eksidis inter la aliaj, laŭde li ripetis: ”Kia feliĉo, ne aŭdi unufoje en teatro la vanajn parolaĉojn de niaj komedioj kaj povi finpensi, kion viaj figuroj volas diri. La pantomi-
-
-mo estas kreita por delikataj karakteroj, kun sufiĉe da fanta-
+Kaj kiam li eksidis inter la aliaj, laŭde li ripetis: ”Kia feliĉo, ne aŭdi unufoje en teatro la vanajn parolaĉojn de niaj komedioj kaj povi finpensi, kion viaj figuroj volas diri. La pantomimo estas kreita por delikataj karakteroj, kun sufiĉe da fanta-
 
 zio.”
 
@@ -13700,33 +11190,24 @@ zio.”
 
 **264**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 estas sekura antaŭ ĉiuj spritecoj, dusencoj, doktaj laŭdegadoj, ankaŭ antaŭ la fama konversacia perfekteco de niaj aŭtoroj.”
 
-”Tuj kiam unufoje mi vidis vin,” diris Teofilo, la agnoska-
-
-ta gvidanto de la artista kunularo, ”mi komprenis, ke vi apar-
+”Tuj kiam unufoje mi vidis vin,” diris Teofilo, la agnoskata gvidanto de la artista kunularo, ”mi komprenis, ke vi apar-
 
 tenas al ni. Vi senigis nin de la bankieroj kaj iliaj filoj el modernaj komedioj, de ĉiuj distingaj kavaliroj.”
 
 ”Ili ankaŭ enestas en niaj komedioj.”
 
-”Ne pli ol la tuta cetera mondo. Via Pieroto, mi dirus, ha-
-
-vas ĉiujn profesiojn.”
+”Ne pli ol la tuta cetera mondo. Via Pieroto, mi dirus, havas ĉiujn profesiojn.”
 
 ”ojigas min,” jesis Deburau, ”kiam Pieroto devas okupi
 
-sin pri diversaj profesioj. Mi povas montri suferojn de solda-
+sin pri diversaj profesioj. Mi povas montri suferojn de soldato. La malfacilaĵojn, kiujn travivas kuracisto mem kaj kiujn li kaŭzas al ni. La roloj pli riĉas kaj gajas.”
 
-to. La malfacilaĵojn, kiujn travivas kuracisto mem kaj kiujn li kaŭzas al ni. La roloj pli riĉas kaj gajas.”
-
-”Ne nur tio,” diris Nerval. ”Pieroto de Deburau havas an-
-
-kaŭ ĉiujn homajn karakterojn.”
+”Ne nur tio,” diris Nerval. ”Pieroto de Deburau havas ankaŭ ĉiujn homajn karakterojn.”
 
 Deburau eksilentis, kiam la laŭdo tro ekstremis. Sed lia
 
@@ -13734,57 +11215,38 @@ ludo ilin afekciis. Li sentis, ke ili amas lin. Ili sparketis de ku-raĝo kaj pr
 
 ”Tiu griza, enuiga kaj perfekte vestita mondo disfalu! Ni
 
-serĉas la perditan sekreton de la homaro, la poezion. Vi tro-
-
-vis ĝin sur la scenejo.”
+serĉas la perditan sekreton de la homaro, la poezion. Vi trovis ĝin sur la scenejo.”
 
 Ili opiniis lin sia akiraĵo kaj la nova aliancano.
 
-”Pieroto venĝas,” meditis Nerval. ”Pro tio lia sarkasma gri-
+”Pieroto venĝas,” meditis Nerval. ”Pro tio lia sarkasma grimaco.”
 
-maco.”
-
-”Sed en ĝi enestas ankaŭ pardono,” diris Gautier. ”Alima-
-
-niere li ne povus komencadi la novajn aventurojn tiel leĝere.”
+”Sed en ĝi enestas ankaŭ pardono,” diris Gautier. ”Alimaniere li ne povus komencadi la novajn aventurojn tiel leĝere.”
 
 Gasparo aŭskultis kun granda intereso. Tiuj inteligentaj
 
 junaj viroj malkovradis la fontojn de lia kreado, kiujn li mem
 
-nur subkonscie antaŭsentis. El fragmentoj de la vivo li kom-
+nur subkonscie antaŭsentis. El fragmentoj de la vivo li kombinis sian Pieroton, ili nun analizis lin kaj pli profunde ol li **265**
 
-binis sian Pieroton, ili nun analizis lin kaj pli profunde ol li **265**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 mem kapablus tion. Sed ili igis lin mediti, por ke li trovu klarigon, kiu ankaŭ por li verus.
 
-”Se vi permesos,” li intervenis escepte, ”en la vivo de Pie-
+”Se vi permesos,” li intervenis escepte, ”en la vivo de Pieroto estas ambaŭ: li venĝas al tiuj, al kiuj ordinaraj homoj tute ne povas venĝi. Kaj li helpas al tiuj, kiujn riĉeco kaj krueleco de aliaj damaĝas. Sed mi ne volus, ke li estu ekstreme nobla.
 
-roto estas ambaŭ: li venĝas al tiuj, al kiuj ordinaraj homoj tute ne povas venĝi. Kaj li helpas al tiuj, kiujn riĉeco kaj krueleco de aliaj damaĝas. Sed mi ne volus, ke li estu ekstreme nobla.
+Homoj en nia rigardejo nur rare povas al si permesi tian kvaliton.”
 
-Homoj en nia rigardejo nur rare povas al si permesi tian kva-
-
-liton.”
-
-”Kaj tamen la publiko estas simpatia al mi,” certigis Gau-
-
-tier. ”Ili ne estas enuantaj individuoj sen animo, markizinoj,
+”Kaj tamen la publiko estas simpatia al mi,” certigis Gautier. ”Ili ne estas enuantaj individuoj sen animo, markizinoj,
 
 zorgantaj nur pri siaj roboj. La knaboj kun nudaj manoj kaj
 
 kun la ĉapo surorele plaĉas al mi. Ja ankaŭ en ili kaj en iliaj kunulinoj devas esti poezio, kiun Pieroto al ili prezentas. La
 
-tuta mondo ĉirkaŭe estas granda poeto kaj havas pli da spi-
+tuta mondo ĉirkaŭe estas granda poeto kaj havas pli da spirito ol aŭtoroj de niaj komediaĵoj.”
 
-rito ol aŭtoroj de niaj komediaĵoj.”
-
-Kiam ili ekis rememori kaj plani, Gasparo eksilentis. La ku-
-
-nularo kutime iris ankaŭ al ”Blanka kuniklo”, kie la seĝoj kaj
+Kiam ili ekis rememori kaj plani, Gasparo eksilentis. La kunularo kutime iris ankaŭ al ”Blanka kuniklo”, kie la seĝoj kaj
 
 tabloj estis alforĝitaj al planko kaj glasoj ĉenfiksitaj. Dum siaj afekciaj disputoj ne raris, ke la artistoj eĉ ne rimarkis, kiam Gasparo eskapis de ili kaj foriris hejmen. Sed ili ne koleris kaj venis denove.
 
@@ -13792,13 +11254,9 @@ Gasparo dividis sian amikecon inter ĉiujn. Kun infaneca
 
 ĝojo li kaptadis oranĝojn, kiujn oni ĵetadis al ili el la galerio; la oranĝoj signifas en la teatra florlingvo rekonon, same kiel
 
-pomkernaĵoj estas elokventa esprimo de malkontento. Li feli-
+pomkernaĵoj estas elokventa esprimo de malkontento. Li feliĉis pro la fakto, ke li kompreniĝas kun la plej proksimaj al li.
 
-ĉis pro la fakto, ke li kompreniĝas kun la plej proksimaj al li.
-
-Kiam Gautier kun amikoj eksidis en la loĝio sur antaŭscene-
-
-jo, simila al aperta tirkesto de ŝranko, nenia solenaĵo sursce-
+Kiam Gautier kun amikoj eksidis en la loĝio sur antaŭscenejo, simila al aperta tirkesto de ŝranko, nenia solenaĵo sursce-
 
 neje pasis sen e˛o ĉe ili.
 
@@ -13806,7 +11264,6 @@ Plurfoje aperis en loĝio la konata vizaĝo de Janin kaj Gas-
 
 **266**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13822,17 +11279,13 @@ post prezentado antaŭ la teatro.
 
 ”Plezurigas min,” li diris, premante la manon al Gasparo,
 
-”ke mi povas saluti vin post tiel longa tempo. ĉiuj miaj kona-
-
-toj vin tre ŝatas. Vi enspiris en pantomimon la vivon. Tio es-
+”ke mi povas saluti vin post tiel longa tempo. ĉiuj miaj konatoj vin tre ŝatas. Vi enspiris en pantomimon la vivon. Tio es-
 
 tas granda merito.”
 
 Hugo kondutis multe pli rezoneme ol liaj amikoj, en liaj
 
-movoj kaj vortoj estis la meditema tranvilo. Gasparo deman-
-
-dis pri Eŭgeno. ”Jam tiutempe mi vidis vin en favora lumo,”
+movoj kaj vortoj estis la meditema tranvilo. Gasparo demandis pri Eŭgeno. ”Jam tiutempe mi vidis vin en favora lumo,”
 
 rememorigis al si Viktoro. ”Eble mi afliktos vin. La vivo de
 
@@ -13842,31 +11295,22 @@ ke tio lin savis antaŭ pli granda sufero.”
 
 Tiuvespere Gasparo ne restis kun la artistoj, sed li devis
 
-promesi al ili ĉeesti, kiam Viktoro legos al la amikoj sian nov-an teatraĵon ”Hernani”. Li akceptis la inviton, kaj kelkajn ta-
-
-gojn poste li troviĝis kun minimume tridek aliaj junuloj en la
+promesi al ili ĉeesti, kiam Viktoro legos al la amikoj sian nov-an teatraĵon ”Hernani”. Li akceptis la inviton, kaj kelkajn tagojn poste li troviĝis kun minimume tridek aliaj junuloj en la
 
 loĝejo de gesinjoroj Hugo en strato Gujon. Kelkajn nomojn
 
-jam li konis, aliajn li aŭdis unuafoje: Balzac, Mérimée, Sain-
+jam li konis, aliajn li aŭdis unuafoje: Balzac, Mérimée, Sainte-Beuve, Alfredo de Vigny. La blondhara sinjorino Hugo do-
 
-te-Beuve, Alfredo de Vigny. La blondhara sinjorino Hugo do-
-
-nis al Gasparo sincere sian manon kaj memorigis la renkonti-
-
-ĝon ĉe la malsana Eŭgeno.
+nis al Gasparo sincere sian manon kaj memorigis la renkontiĝon ĉe la malsana Eŭgeno.
 
 Hugo eklegis. Sed lia voĉo ne agrablis, des pli, ke alternante
 
-la personojn, li same alternis du tonojn, basan kaj altan. Gas-
-
-paro komprenis, ke la versoj estas belaj, ke ili esprimas kava-
+la personojn, li same alternis du tonojn, basan kaj altan. Gasparo komprenis, ke la versoj estas belaj, ke ili esprimas kava-
 
 lirajn sentojn; ripetiĝis en li ideo, ke ankaŭ ĉifoje eblus diri ĉion pli koncize! Sed la aliaj aŭskultantoj estis entuziasmigitaj.
 
 **267**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -13882,17 +11326,13 @@ forvaporiĝis. Post kiam Hugo finlegis, sinjoro Saint-Beuve
 
 klarigis, ke Hernani baldaŭ havos premieron, ĉar tio estas la
 
-unua romantika dramo sur la scenejo, necesas atendi rezis-
-
-ton de la reakciuloj.
+unua romantika dramo sur la scenejo, necesas atendi reziston de la reakciuloj.
 
 ”La direktoraro de la teatro proponis klakistojn, sed mi
 
 kontraŭstaras tion. La venko aŭ fiasko de tiu ĉi verko estas nia komuna afero. Aŭ ni trabreĉos la barilon de klasikismo, aŭ ni
 
-enterigos la romantikismon por longa tempo. Pro tio ni rifu-
-
-zas klakistojn, sed ni alvenos tien, amikoj, kaj ĉeestos tie an-kaŭ nia junularo, kiu iras kun ni. ĉu vi konsentas?”
+enterigos la romantikismon por longa tempo. Pro tio ni rifuzas klakistojn, sed ni alvenos tien, amikoj, kaj ĉeestos tie an-kaŭ nia junularo, kiu iras kun ni. ĉu vi konsentas?”
 
 ”Jes,” respondis ĉiuj.
 
@@ -13908,9 +11348,7 @@ Kiam Gasparo estis alvenanta kun la ensemblo, li renkontis
 
 Balzacon.
 
-”Brave, Deburau!” vokis la verkisto kaj skuetis sian leonsi-
-
-milan hararon. ”Hierro!”
+”Brave, Deburau!” vokis la verkisto kaj skuetis sian leonsimilan hararon. ”Hierro!”
 
 La premiero estis komenciĝonta je la sepa. Sed la amikoj de
 
@@ -13918,17 +11356,12 @@ Hugo invadis enen jam je la tria. Ili amuzis sin tiel, ke ili vokis de partero a
 
 **268**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Ni estas rabistoj de la ideo. Piratoj de l’ arto! Teatraj sova-
+”Ni estas rabistoj de la ideo. Piratoj de l’ arto! Teatraj sovaĝuloj!”
 
-ĝuloj!”
-
-Deburau ne bedaŭris, ke li lasis sin allogi al batalo. Li vidis foje ankaŭ en la granda teatro homojn pretajn por sia konv vere batali. Li rememoris la parizanojn antaŭ dek kvin ja-
-
-roj, kiam invadis enurben la armeoj de okupaciantoj. Eble
+Deburau ne bedaŭris, ke li lasis sin allogi al batalo. Li vidis foje ankaŭ en la granda teatro homojn pretajn por sia konv vere batali. Li rememoris la parizanojn antaŭ dek kvin jaroj, kiam invadis enurben la armeoj de okupaciantoj. Eble
 
 elkreskis jam nova generacio, en kies vejnoj denove cirkulas
 
@@ -13936,13 +11369,9 @@ la sango kaj ĝi kapablas entuziasmiĝi kaj levi la pugnon.
 
 Li okupis kun sia grupo lokon malantaŭe en la partero kaj
 
-salutis sin reciproke kun Gautier, Nerval, Borel. ”For la peru-
+salutis sin reciproke kun Gautier, Nerval, Borel. ”For la perukojn!” vokis liaj grupanoj unisone kun la ceteraj.
 
-kojn!” vokis liaj grupanoj unisone kun la ceteraj.
-
-Kiam ili malsatiĝis, ili ekis vespermanĝi kaj intence la man-
-
-ĝadon longigis, por ke agrable pasu la tempo. Ili legis ĵur-
+Kiam ili malsatiĝis, ili ekis vespermanĝi kaj intence la manĝadon longigis, por ke agrable pasu la tempo. Ili legis ĵur-
 
 nalojn; lante ili remaĉis fumumitan viandon kaj fromaĝon
 
@@ -13954,29 +11383,20 @@ Sed oni trinkis multe kaj kvar horoj estas longa tempo. Pro
 
 la fakto, ke la biletistinoj ankoraŭ ne venis kaj ĉie estis ŝlosi-te, el orkestrejo fariĝis rifuĝejo kaj dum la posttagmezo fariĝis el ĝi eta lageto.
 
-Je la sesa venis Sainte-Beuve kaj lin sekvis Vigny, kiun De-
+Je la sesa venis Sainte-Beuve kaj lin sekvis Vigny, kiun Deburau igis bonvenigi per triobla aplaŭdo-salvo.
 
-burau igis bonvenigi per triobla aplaŭdo-salvo.
+Ne mankis vakaj lokoj. Ne eblis akiri ĉiujn por Hugo-adeptoj kaj klaris, ke sur la balkono superos ilin la kontraŭuloj. La vicoj lante pleniĝis de triangulaj kolumoj, en kiuj sidis la kapoj de ne malpli batalemaj defendantoj de la klasika arto.
 
-Ne mankis vakaj lokoj. Ne eblis akiri ĉiujn por Hugo-adep-
-
-toj kaj klaris, ke sur la balkono superos ilin la kontraŭuloj. La vicoj lante pleniĝis de triangulaj kolumoj, en kiuj sidis la kapoj de ne malpli batalemaj defendantoj de la klasika arto.
-
-”Al gilotino la kalvulojn!” skandis fanatike la partero. La at-
-
-mosfero densiĝis pro streĉiteco.
+”Al gilotino la kalvulojn!” skandis fanatike la partero. La atmosfero densiĝis pro streĉiteco.
 
 Iom mildigis ĝin belulinoj, kiuj sporade aperadis en loĝioj.
 
 **269**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-La junularo sciis, kiun bonvenigi. Pasie ĝi aplaŭdis, kiam eni-
-
-ris la orhara Delfina Gay, poetino kaj ĵurnalistino, amatino de Alfredo de Vigny. Oni aplaŭdis al la edzino de Hugo, kiu amike dankis.
+La junularo sciis, kiun bonvenigi. Pasie ĝi aplaŭdis, kiam eniris la orhara Delfina Gay, poetino kaj ĵurnalistino, amatino de Alfredo de Vigny. Oni aplaŭdis al la edzino de Hugo, kiu amike dankis.
 
 La komenco alportis silenton. Tri batoj je ligno. Sed apenaŭ
 
@@ -14010,9 +11430,7 @@ Sol, aplaŭdis la virinoj sendiference en partero kaj en loĝioj.
 
 ”Vivu la virinoj!” dankeme akceptis tion la junularo.
 
-La aktoroj komence suferis pro timo kaj necerteco. Endan-
-
-ĝerigadis ilin bruego el la salonego. Viktoro estis jen en la
+La aktoroj komence suferis pro timo kaj necerteco. Endanĝerigadis ilin bruego el la salonego. Viktoro estis jen en la
 
 rigardejo, jen post kulisoj, por stimuli ilin. Sed samtempe ju
 
@@ -14024,39 +11442,29 @@ finiĝis venke.
 
 **270**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La eldonisto Mame avide serĉis la sukcesan aŭtoron en
 
-postkulisejo, por havigi al si lian manuskripton. La romanti-
-
-kismo venkis en sia unua batalo kaj ekmarŝis tra la breĉita
+postkulisejo, por havigi al si lian manuskripton. La romantikismo venkis en sia unua batalo kaj ekmarŝis tra la breĉita
 
 pordego de la klasikisma teatro en la mondon.
 
 **271**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Sur la barikadoj
 
-La memorinda jaro 1830 komenciĝis por Funambules suk-
+La memorinda jaro 1830 komenciĝis por Funambules sukcese. La sperta aŭtoro sinjoro Lambert liveris teatraĵon
 
-cese. La sperta aŭtoro sinjoro Lambert liveris teatraĵon
-
-”Arlekeno kaj la ora ovo” aŭ ”La patrino Ansero”, kie li inven-
-
-teme akumulis ĉiujn trukojn kaj ĉarmon, kiuj en la ĝisnunaj
+”Arlekeno kaj la ora ovo” aŭ ”La patrino Ansero”, kie li inventeme akumulis ĉiujn trukojn kaj ĉarmon, kiuj en la ĝisnunaj
 
 teatraĵoj tre plaĉis.
 
-Pieroto ne ĉesis regi sian scenejon. Pro tio oni vizitadis tea-
-
-tron Funambules. Kaj oni rakontadis pri liaj scenoj: kiel li tiras el la korpo de Kasandro kuglon per korktirilo, kiel li falis en vitrodomon kaj elprenas vitrerojn, kiel li scias fascini la
+Pieroto ne ĉesis regi sian scenejon. Pro tio oni vizitadis teatron Funambules. Kaj oni rakontadis pri liaj scenoj: kiel li tiras el la korpo de Kasandro kuglon per korktirilo, kiel li falis en vitrodomon kaj elprenas vitrerojn, kiel li scias fascini la
 
 publikon, ke ”ĉiu lia vorto kompreneblas”, kiel li silentigas kaj plorigas arogantulojn, kiel li ridigas ankaŭ la plej seriozajn
 
@@ -14084,7 +11492,6 @@ nei.”
 
 **272**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14098,9 +11505,7 @@ Kaj volas surlite havi amantojn fortajn kaj freŝajn.”
 
 koncedis Viktoro Hugo. ”Via opinio, Deburau, ĉu?”
 
-Gasparo volonte aŭskultis, sed neŝate parolis. Sed deman-
-
-dita, li ne afektis. ”ŝajnas al mi, ke viaj herooj estas tro noblaj.”
+Gasparo volonte aŭskultis, sed neŝate parolis. Sed demandita, li ne afektis. ”ŝajnas al mi, ke viaj herooj estas tro noblaj.”
 
 ”Lukrecia Borgia al vi ne plaĉas?”
 
@@ -14110,19 +11515,13 @@ sur trotuaro estaĵon pli multflankan, ol estis Lukrecia.”
 
 ”Sed vi mem sur la scenejo prezentas nur neordinaraĵojn,”
 
-necedeme asertis Hugo. ”Por la teatraĵo necesas serĉi ion spe-
+necedeme asertis Hugo. ”Por la teatraĵo necesas serĉi ion specifan, eksterordinaran.”
 
-cifan, eksterordinaran.”
-
-Alfredo de Vigny ekridetis kaj diris laŭ sia trankvila manie-
-
-ro: ”Vi prezentas la mondon tiel, ke ĝi bildigas nur la raraĵojn.
+Alfredo de Vigny ekridetis kaj diris laŭ sia trankvila maniero: ”Vi prezentas la mondon tiel, ke ĝi bildigas nur la raraĵojn.
 
 Via junularo jam hontas, se ĝi estas kombita. Vi homplenigos
 
-Parizon per morbuloj, viv-teditoj, suferantaj pro mondo-do-
-
-loro kaj malestimantaj la vivon. Viaj belulinoj preferas ne
+Parizon per morbuloj, viv-teditoj, suferantaj pro mondo-doloro kaj malestimantaj la vivon. Viaj belulinoj preferas ne
 
 manĝi por aspekti melankolie. Kiel unusolan menuon baldaŭ
 
@@ -14130,9 +11529,7 @@ ili havos citronon kaj vinagron, por esti sufiĉe diafanaj.”
 
 ”Vidu la predikanton!” ili miris. ”ĉu vi volas revenigi nin?”
 
-”La gaslumigado ŝanĝis Parizon. ĵonglistoj cedas antaŭ tea-
-
-troj. Mi supozas nur, ke necesas pli da realismo.”
+”La gaslumigado ŝanĝis Parizon. ĵonglistoj cedas antaŭ teatroj. Mi supozas nur, ke necesas pli da realismo.”
 
 ”Vi ne rajtas muti ankaŭ inter amikoj,” Musset turnis sin
 
@@ -14146,7 +11543,6 @@ la Deka nomumis dukon de Polignac prezidanto de la regis-
 
 **273**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14158,17 +11554,11 @@ En teatro Funambules oni povis vidi en la kvina akto de la
 
 nova teatraĵo Pieroton kun Kasandro, genuantajn vid-al-vide
 
-kaj preĝantajn. Kiam ili leviĝis, Kasandro transdonis al Piero-
+kaj preĝantajn. Kiam ili leviĝis, Kasandro transdonis al Pieroto pajlokronon kiel ordenon. Estis konate, ke konsultiĝoj de
 
-to pajlokronon kiel ordenon. Estis konate, ke konsultiĝoj de
+la reĝo kun lia ĉefministro pri bezonoj de la lando kaj popolo okazas surgenue kaj dum preĝado.
 
-la reĝo kun lia ĉefministro pri bezonoj de la lando kaj popo-
-
-lo okazas surgenue kaj dum preĝado.
-
-En la lasta akto de la teatraĵo Pieroto kun Kolombina pre-
-
-zentas sinjoraron. Nek duko nek princo, asertis ĉiuj verkistoj, kapablus kisi la manon de virino kun tia gracio kiel Pieroto de Deburau. Kiam li survestis puntjakon, subite li iĝis aroganta
+En la lasta akto de la teatraĵo Pieroto kun Kolombina prezentas sinjoraron. Nek duko nek princo, asertis ĉiuj verkistoj, kapablus kisi la manon de virino kun tia gracio kiel Pieroto de Deburau. Kiam li survestis puntjakon, subite li iĝis aroganta
 
 nobelo. Li invitis Kolombinan danci menueton. Sed subite
 
@@ -14176,9 +11566,7 @@ ekflagris sub ili flamo kaj rulleviĝis fumo. Ili ne antaŭsentis, ke ili dancas
 
 Eĉ ne la pariza kortego tion antaŭsentis.
 
-Dimanĉe matene eliras la tuta metropolo al provinco, dan-
-
-ci en Romainville. Gastejoj en Batignolles plenas de la meti-
+Dimanĉe matene eliras la tuta metropolo al provinco, danci en Romainville. Gastejoj en Batignolles plenas de la meti-
 
 istaj familioj. La grizetinoj survestis la plej belajn puntojn ĉir-kaŭ la kolo. Estas trankvile kaj gaje, ĉar oni preskaŭ ne legis gazetojn. Impostmarko dek centimojn, poŝtpago kvin, kiu el
 
@@ -14186,9 +11574,7 @@ ili povas permesi al si tian lukson?
 
 Sed ĵurnalistoj legis la matenan ”Moniteur’on”. ”Libereco
 
-de la gazetaro likvidita!” Kaj Deburau revenanta el promena-
-
-do, renkontas en la strato, kie aperas la ĵurnalo ”National”,
+de la gazetaro likvidita!” Kaj Deburau revenanta el promenado, renkontas en la strato, kie aperas la ĵurnalo ”National”,
 
 amason de furiozantaj redaktoroj. Ili portas la manifeston, kiu vespere inundos la stratangulojn.
 
@@ -14200,13 +11586,10 @@ La sciigo vastiĝis kaj bruvekis inertulojn, homoj revenan-
 
 **274**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-taj el kamparo trovis la stratojn plenajn de homamasoj. An-
-
-kaŭ ili renkontadis patrolojn de la reĝa gardistaro, kiuj sige-
+taj el kamparo trovis la stratojn plenajn de homamasoj. Ankaŭ ili renkontadis patrolojn de la reĝa gardistaro, kiuj sige-
 
 lis presejojn. Sed en la periferio oni jam presis permane la
 
@@ -14222,14 +11605,10 @@ la teatro regas streĉo, en la rigardejo kaj sur la scenejo.
 
 ĉiumomente elkuras iu el statistoj bulvarden por novaĵoj.
 
-Deputitoj onidire akceptis rezolucion pri konservado de tran-
-
-kvilo, por ke senbezone ne estu verŝata la sango. Iu alportis
+Deputitoj onidire akceptis rezolucion pri konservado de trankvilo, por ke senbezone ne estu verŝata la sango. Iu alportis
 
 
-decidiĝu, ĉu sekvi dezirojn de la majoritato aŭ de la minori-
-
-tato.
+decidiĝu, ĉu sekvi dezirojn de la majoritato aŭ de la minoritato.
 
 Gasparo iras kun ĵurnalo sur la scenejon. En la sceno, kie
 
@@ -14241,13 +11620,9 @@ publiko ĝin vidu.
 
 ”Bravo, Deburau!”
 
-Gasparo ĝojas, sed Bertrand tordas la manojn. Se iu de-
+Gasparo ĝojas, sed Bertrand tordas la manojn. Se iu denuncos tion, iros malliberejen ne nur Pieroto, sed ankaŭ li.
 
-nuncos tion, iros malliberejen ne nur Pieroto, sed ankaŭ li.
-
-Sed la aktoroj antaŭvidas, ke proksimiĝas la decida momen-
-
-to, kiam necesas ion oferi. Dum la aplaŭdo de la laboristoj el
+Sed la aktoroj antaŭvidas, ke proksimiĝas la decida momento, kiam necesas ion oferi. Dum la aplaŭdo de la laboristoj el
 
 la kvartalo Gasparo fartas bone. Li estas jam ne nur aktoro,
 
@@ -14261,13 +11636,10 @@ batal-konfliktoj inter la kirasitoj kaj ribeluloj. Kiam la teatraĵo estas fini�
 
 **275**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Sed ili pafas. Antaŭ la teatro Nouveautés ili mortigis viri-
-
-non.”
+”Sed ili pafas. Antaŭ la teatro Nouveautés ili mortigis virinon.”
 
 ”Sed kiel defendi sin, se mankas bataliloj?”
 
@@ -14285,9 +11657,7 @@ Geste li trankviligas la publikon, ekscititan de informoj. La
 
 levita fingro avertas. Li signas al Arlekeno, kiu ekatakas lin
 
-per elingigita glavo. Pieroto iras kontraŭpinten kun nearmi-
-
-taj manoj, ricevas baton kaj falas. Sed tuj li ekstaras, ekkap-
+per elingigita glavo. Pieroto iras kontraŭpinten kun nearmitaj manoj, ricevas baton kaj falas. Sed tuj li ekstaras, ekkap-
 
 tas du rapirojn kaj ĵetiĝas kontraŭ Arlekenon. Al la teatraĵo tio ne apartenas, sed la publiko komprenas: Kontraŭ armiloj ne
 
@@ -14299,17 +11669,11 @@ brakoj ekkaptas ilin.
 
 ”Kaj ni?” aŭdiĝis krio.
 
-Komanda gesto. La tuta salonego leviĝas. Oni iras pli prok-
+Komanda gesto. La tuta salonego leviĝas. Oni iras pli proksimen. Oni transrampas benkojn. Oni amase kuras al la sce-
 
-simen. Oni transrampas benkojn. Oni amase kuras al la sce-
+nejo. Oni grimpas al la scenejo. Deburau forŝovas la malantaŭan dekoraĵon. Li malfermas pordon al magazeno. Li dist-
 
-nejo. Oni grimpas al la scenejo. Deburau forŝovas la malan-
-
-taŭan dekoraĵon. Li malfermas pordon al magazeno. Li dist-
-
-ribuas armilojn: malnovajn musketojn, sabrojn, lancojn, ha-
-
-lebardojn, pistolojn.
+ribuas armilojn: malnovajn musketojn, sabrojn, lancojn, halebardojn, pistolojn.
 
 ”Redonu,” li nur ekflustras.
 
@@ -14319,27 +11683,20 @@ Post momento la magazeno malplenas. Malaperis ankaŭ
 
 malnovaj glavoj kaj arkebuzoj. ĉio, kio povas servi por batalo.
 
-Bertrand sidas en la vestgardejo, silentas, sufokiĝas pro ko-
-
-lerego.
+Bertrand sidas en la vestgardejo, silentas, sufokiĝas pro kolerego.
 
 **276**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Kaj Pieroto staras, laca kaj elĉerpiĝinta sur la malplena sce-
-
-nejo kaj kontente viŝas ŝviton desur la frunto.
+Kaj Pieroto staras, laca kaj elĉerpiĝinta sur la malplena scenejo kaj kontente viŝas ŝviton desur la frunto.
 
 ”Vidu, kiel ĉio trankvilas,” diris vespere Karolo la X-a al sia ministro. ”Mi donis al ili omnibusojn kaj vaporŝipojn. Ni konstruas tri novajn pontojn. Kial ili ribelu?”
 
 La fumo de la unuaj pafoj disiĝis kaj la homoj malaperis.
 
-Nur kelkaj mortigitoj restis surstrate. Kaj la ceteraj? Vi trovus ilin en la malantaŭaj ejoj, en anguloj de la loĝejoj, post vua-litaj ŝutroj. Estis riparataj malnovaj armiloj. Oni faris kar-
-
-toĉojn.
+Nur kelkaj mortigitoj restis surstrate. Kaj la ceteraj? Vi trovus ilin en la malantaŭaj ejoj, en anguloj de la loĝejoj, post vua-litaj ŝutroj. Estis riparataj malnovaj armiloj. Oni faris kartoĉojn.
 
 La nokto pasis en senĉesa laboro.
 
@@ -14357,17 +11714,13 @@ kvin jaroj! En la stratojn kuras homoj kaj unu apud la alia:
 
 studentoj, ĵurnalistoj en frakoj, proletoj en ĉifonoj. Virinoj kuras al balkonoj kaj trotuaroj kaj aplaŭdas la virojn. Pli kaj pli da trikoloroj aperas.
 
-Pli frue ol Deburau venis urben, la urbodomo kaj la ban-
-
-ko estis konkeritaj. De ĉiuj flankoj pliiĝis amasoj. Ili alvenadis, amikiĝadis, marŝis pluen. Maljunaj laboristoj, honestaj
+Pli frue ol Deburau venis urben, la urbodomo kaj la banko estis konkeritaj. De ĉiuj flankoj pliiĝis amasoj. Ili alvenadis, amikiĝadis, marŝis pluen. Maljunaj laboristoj, honestaj
 
 kaj bonaj knaboj el periferioj, nudkapaj, kun siaj edzinoj kaj
 
 amatinoj. Gasparo ekaŭdis subite sian nomon.
 
-Li serĉas inter la kapoj. Bela temperamenta vizaĝo kun ar-
-
-dantaj okuloj. Kie li ekkonis ŝin?
+Li serĉas inter la kapoj. Bela temperamenta vizaĝo kun ardantaj okuloj. Kie li ekkonis ŝin?
 
 ”ĉu vi rekonas min?” ridas la juna virino kaj iras plu ĉe lia
 
@@ -14377,7 +11730,6 @@ flanko.
 
 **277**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14391,15 +11743,11 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 Generalo Marmont, en kies manojn la kortego konfidis la
 
-komandon, entreprenis atakon kontraŭ la ribeluloj en du di-
-
-rektoj. Unu sin direktis al la kajoj, la dua sur bulvardoj kaj
+komandon, entreprenis atakon kontraŭ la ribeluloj en du direktoj. Unu sin direktis al la kajoj, la dua sur bulvardoj kaj
 
 ambaŭ aloj celas al la urbodomo. Laŭlonge de Sejno la armeo
 
-avancas sukcese. Sed la batalantoj de la revolucio estas herooj kaj ne kapitulacas. Juna politeknikisto kun flago enmane kuregas al ponto kontraŭ la superforto kaj vokas: ”Se mi mor-
-
-tos, amikoj, rememoru, ke mia nomo estis Arcole!”
+avancas sukcese. Sed la batalantoj de la revolucio estas herooj kaj ne kapitulacas. Juna politeknikisto kun flago enmane kuregas al ponto kontraŭ la superforto kaj vokas: ”Se mi mortos, amikoj, rememoru, ke mia nomo estis Arcole!”
 
 La brava knabo estis mortigita. Sed la popolo ne forgesas.
 
@@ -14423,13 +11771,10 @@ havas kolorajn ŝtrumpojn, ne bonodoras de pudro, ŝi estas pli
 
 aĝa kaj pli malriĉa, sed por Gasparo ŝi estas pli bela ol iam.
 
-Margot levas la lacajn palpebrojn kaj mallaŭte kantetas. ŝi re-
-
-memoris ankoraŭ:
+Margot levas la lacajn palpebrojn kaj mallaŭte kantetas. ŝi rememoris ankoraŭ:
 
 **278**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14439,23 +11784,15 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Vi ne plu estas tie, ĉu?” demandas Gasparo kun certeco.
 
-Margot laŭte ekridas. Longe ŝi rigardas Gasparon, kvazaŭ he-
+Margot laŭte ekridas. Longe ŝi rigardas Gasparon, kvazaŭ hezitante, ĉu diri tion aŭ ne. Sed poste tre serioze ŝi diras: ”Vi ne kredos al mi. Mi foriris sammatene kiel vi. Neniam mi revenis tien.”
 
-zitante, ĉu diri tion aŭ ne. Sed poste tre serioze ŝi diras: ”Vi ne kredos al mi. Mi foriris sammatene kiel vi. Neniam mi revenis tien.”
+”Kial?” demandas Gasparo kaj rememorigas al si longe kaŝatan dankemon pro la unua brakumo.
 
-”Kial?” demandas Gasparo kaj rememorigas al si longe ka-
-
-ŝatan dankemon pro la unua brakumo.
-
-”Kial? Divenu!” nekompleze respondas Margot. ŝi rideks-
-
-plodas: ”Ne kredu, ke pro vi!”
+”Kial? Divenu!” nekompleze respondas Margot. ŝi rideksplodas: ”Ne kredu, ke pro vi!”
 
 ”Kial ni jam ne renkontiĝis?”
 
-”Nenion mi sciis pri vi. oju,” denove ŝi ridas, ”ĉu vi sci-
-
-as, kion vi promesis al mi?”
+”Nenion mi sciis pri vi. oju,” denove ŝi ridas, ”ĉu vi scias, kion vi promesis al mi?”
 
 ”Kion?”
 
@@ -14465,9 +11802,7 @@ La suno flamigis rozojn sur la vangoj, ŝiaj brakoj firmas,
 
 estas brunaj. ŝiaj lipoj iĝis dolorozaj.
 
-”Mi ne vendadis min tiam,” ŝi diras, kvazaŭ jam delong-
-
-tempe ŝi pretigus sin, kvazaŭ ŝi atendus tiun momenton. ”La
+”Mi ne vendadis min tiam,” ŝi diras, kvazaŭ jam delongtempe ŝi pretigus sin, kvazaŭ ŝi atendus tiun momenton. ”La
 
 aliaj vendadis mian malsaĝan junecon. Kiam vi demandis min
 
@@ -14481,39 +11816,28 @@ pri mia aĝo, tiam du jarojn mi aldonis.”
 
 ”Kaj kion vi faras?”
 
-”Mi faras hejme artefaritajn florojn. ĉu vi vidas?” ŝi mont-
-
-ras al dekolto de sia bluzo, kie ardas ruĝega papavo. ”Venu
+”Mi faras hejme artefaritajn florojn. ĉu vi vidas?” ŝi montras al dekolto de sia bluzo, kie ardas ruĝega papavo. ”Venu
 
 **279**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 vizite al kajo Valma. Por sinjoroj kiel vi, ni havas ankaŭ freŝajn florojn.”
 
-”Mi ne estas sinjoro. ĉu vi konas mian nomon? Mi nomi-
-
-ĝas Deburau.”
+”Mi ne estas sinjoro. ĉu vi konas mian nomon? Mi nomiĝas Deburau.”
 
 ”Ie mi aŭdis tiun nomon,” ŝi sulkigis la frunton. Kaj denove
 
-ŝi ekmemoris. ”Vi estis tiel senkulpa, tiel juna. Hazardo ĝi estis. Sed kion ĝi kaŭzis? Mi ege dankemis al vi. ĉu vi kompre-
-
-nos min?”
+ŝi ekmemoris. ”Vi estis tiel senkulpa, tiel juna. Hazardo ĝi estis. Sed kion ĝi kaŭzis? Mi ege dankemis al vi. ĉu vi komprenos min?”
 
 Li rigardas de proksime la brulantan vizaĝon, la sincerajn
 
-kaj kuraĝajn okulojn. ŝi estas ĉiam pli kara al li. Margot! Preskaŭ dek jaroj pasis, ekde kiam ili renkontiĝis. Kial li ne ser-
-
-ĉis ŝin?
+kaj kuraĝajn okulojn. ŝi estas ĉiam pli kara al li. Margot! Preskaŭ dek jaroj pasis, ekde kiam ili renkontiĝis. Kial li ne serĉis ŝin?
 
 Malgrandaj knaboj ĵus alportis al la barikadoj korbojn kun
 
-vinboteloj. Margot leviĝis kaj observis kun Gasparo la soldat-
-
-taĉmentojn, kiuj kuŝas je fino de la strato en siaj pezaj uniformoj kvazaŭ mortaj kaj buŝkaptas la aeron. Senavize ŝi deci-
+vinboteloj. Margot leviĝis kaj observis kun Gasparo la soldattaĉmentojn, kiuj kuŝas je fino de la strato en siaj pezaj uniformoj kvazaŭ mortaj kaj buŝkaptas la aeron. Senavize ŝi deci-
 
 diĝis.
 
@@ -14521,9 +11845,7 @@ diĝis.
 
 ”Se mi ne revenus, rememoru iam!”
 
-ŝi prenis la korbeton, transsaltis barikadon kaj iris al sol-
-
-datoj. Ili genuas, leviĝas, etendas la brakojn al la boteloj. La barikad-komandanto komprenis ŝian intencon.
+ŝi prenis la korbeton, transsaltis barikadon kaj iris al soldatoj. Ili genuas, leviĝas, etendas la brakojn al la boteloj. La barikad-komandanto komprenis ŝian intencon.
 
 ”Kuru, virinoj!” li instigis la ceterajn.
 
@@ -14533,13 +11855,10 @@ parlamentanino.
 
 ”Ne pafu!” Ili petegas la soldatojn.
 
-Nur post kiam la boteloj malplenas, la komandanto surĉe-
-
-vale forpelas la virinojn kaj minacas. Sed tio estis bona leci-
+Nur post kiam la boteloj malplenas, la komandanto surĉevale forpelas la virinojn kaj minacas. Sed tio estis bona leci-
 
 **280**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14547,9 +11866,7 @@ ono. La soldatoj meditas. Diable, kial ni pafas kontraŭ ilin? ĉu fakte ni ne a
 
 La batalo terurigas ilin. La ribeluloj kaŝis sin en fenestroj,
 
-post kamentuboj, en keloj. ĉiu domo — bastiono. Diable! Ser-
-
-vo al reĝo — peniga servo. La komandantoj ne kuraĝas ordoni
+post kamentuboj, en keloj. ĉiu domo — bastiono. Diable! Servo al reĝo — peniga servo. La komandantoj ne kuraĝas ordoni
 
 atakon. La nokto pasis trankvile.
 
@@ -14559,17 +11876,13 @@ barikadojn. Kaj la popolo ne restis kaŝita post ili. La studentoj el politeknik
 
 la Artilerian Muzeon. Iu prenas pafarkon de reĝo Karolo, alia
 
-kaskon de kavaliro de Bouillon. Post nelonge la tuta homa-
-
-maso aspektas kiel statistoj el Opero, kiam estas ludata kava-
+kaskon de kavaliro de Bouillon. Post nelonge la tuta homamaso aspektas kiel statistoj el Opero, kiam estas ludata kava-
 
 lira teatraĵo. Sed ĝi teruras.
 
 Tagmeze falis Luvro.
 
-La reĝo-portretojn la ribeluloj dishakis, alie ili kondutis in-
-
-dulgeme. ”ĉio estas nia posedaĵo, ne rabu!” Do la konkerin-
+La reĝo-portretojn la ribeluloj dishakis, alie ili kondutis indulgeme. ”ĉio estas nia posedaĵo, ne rabu!” Do la konkerin-
 
 toj survestis sur siajn ĉifonajn kaj sangmakulajn vestojn nur
 
@@ -14583,9 +11896,7 @@ taĉmentoj alianciĝadis al ĝi. Ankaŭ oficiroj transiradis al la
 
 ribeluloj, rompis siajn spadojn kaj forŝiris epoletojn. Regulaj regimentoj ekmarŝis kun flagoj kaj muziko kaj enmiksiĝis inter la popolon.
 
-Posttagmeze disvastiĝis sciigo, ke Karolo la X-a pretas trak-
-
-ti kun la popolo. Sed la popolo jam ne volis trakti kun la reĝo.
+Posttagmeze disvastiĝis sciigo, ke Karolo la X-a pretas trakti kun la popolo. Sed la popolo jam ne volis trakti kun la reĝo.
 
 Jam ne gravis la ministro. Jam temis pri Burbonoj. Karolo la
 
@@ -14595,7 +11906,6 @@ La placojn kaj bulvardojn inundis jubilantaj homamasoj.
 
 Sinjoroj burĝoj manpremis kun laboristoj, fratiĝis kun ili, bra-281
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14611,15 +11921,11 @@ premieroj ĉie apartenis al vidvinoj kaj al orfoj post la herooj falintaj por la
 
 Gasparo estis revenanta en teatron. Margot lin akompanis.
 
-Ili pasigis kune du tagojn kaj unu nokton sur la barikado. Mo-
-
-mentoj seriozaj, ekscitaj kaj danĝeraj, valorantaj mil norma-
+Ili pasigis kune du tagojn kaj unu nokton sur la barikado. Momentoj seriozaj, ekscitaj kaj danĝeraj, valorantaj mil norma-
 
 lajn tagojn kaj noktojn.
 
-”Kio nun okazos?” li demandis, kiam ŝi etendis al li la ma-
-
-non. Li premis ĝin kaj ŝi ekkriis. ”Kion via vundo?”
+”Kio nun okazos?” li demandis, kiam ŝi etendis al li la manon. Li premis ĝin kaj ŝi ekkriis. ”Kion via vundo?”
 
 ”Vi ne bandaĝos ĝin al mi,” ŝi diris iom malmilde.
 
@@ -14645,7 +11951,6 @@ Ili distanciĝis unu de la alia.
 
 teatroj!” La teatroj skuiĝis de aktualaj kupletoj. Viktoro, kiu **282**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14653,15 +11958,11 @@ famiĝis pro sia aresto, kantis sur la scenejo de Funambules
 
 Marseljezon kaj la publiko poste volis ĝin aŭdi ĉiuvespere.
 
-La tuta Parizo vivis en nova patriota etoso. La razistoj ton-
-
-dis favore al vunditoj. Hugo rezignis je honorarioj por ”Her-
+La tuta Parizo vivis en nova patriota etoso. La razistoj tondis favore al vunditoj. Hugo rezignis je honorarioj por ”Her-
 
 nani”. Deburau sendis al la gazeto ”Figaro” donacon por la
 
-orfoj. La burĝoj, al kiuj la laboristaro elbatalis la venkon kaj pagis ĝin per mil mortigitoj, jam havis en rezervo sian homon. La malsuperaj klasoj ne kredis, necesis do ilnvin-
-
-ki per komplika taktiko. Emisaroj laŭdis en diversaj medioj
+orfoj. La burĝoj, al kiuj la laboristaro elbatalis la venkon kaj pagis ĝin per mil mortigitoj, jam havis en rezervo sian homon. La malsuperaj klasoj ne kredis, necesis do ilnvinki per komplika taktiko. Emisaroj laŭdis en diversaj medioj
 
 patriotismon kaj la vivon de la nova reĝo. Necesis kredigi al
 
@@ -14675,17 +11976,13 @@ devis kisi Ludovikon Filipon de Orleano sub la trikolora flago.
 
 Kaj la nova tronkandidato mienis milde, alparoladis rideme,
 
-bonkore. Li salute alparoladis la homojn okaze de renkonti-
-
-ĝoj. Sed li akceptis la kronon de la riĉuloj kaj li restis al ili dankema.
+bonkore. Li salute alparoladis la homojn okaze de renkontiĝoj. Sed li akceptis la kronon de la riĉuloj kaj li restis al ili dankema.
 
 Historiisto skribis en la kronikon: En elpelis la
 
 brava popolo la malamatan reĝon kaj batalis por libereco. La
 
-cetero jam ne apartenas al historio. Sed oni ne vivas en bib-
-
-liotekoj, sed surstrate, en laborejoj, sur kampoj. Se la popo-
+cetero jam ne apartenas al historio. Sed oni ne vivas en bibliotekoj, sed surstrate, en laborejoj, sur kampoj. Se la popo-
 
 lo atendis, ke ĝi ion akiros per sia sango, denove ĝi senreviĝis.
 
@@ -14701,13 +11998,10 @@ Kien vi malaperis, gloraj herooj, marŝantaj en la unuaj vi-
 
 **283**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-coj? Kiel rekompencis vin bankieroj, al kiuj vi gajnis la rega-
-
-don kaj kiuj enkasigis tridek milionan ŝtatan prunton?
+coj? Kiel rekompencis vin bankieroj, al kiuj vi gajnis la regadon kaj kiuj enkasigis tridek milionan ŝtatan prunton?
 
 Vivu la libereco!
 
@@ -14721,25 +12015,18 @@ civitanaj virtoj. ”Vivu la patrio! Trikoloron sur ĉies koron!”
 
 estis la inĝenia devizo de trikolor-produktantoj.
 
-Vi, juliaj herooj, vi estas vunditaj, vi malsanas, vi malfor-
+Vi, juliaj herooj, vi estas vunditaj, vi malsanas, vi malfortas. Multaj el vi falis, necesas vin indulgi. Pli bone estos labo-rigi infanojn kaj virinojn. Pro patriotismaj motivoj! Necesas
 
-tas. Multaj el vi falis, necesas vin indulgi. Pli bone estos labo-rigi infanojn kaj virinojn. Pro patriotismaj motivoj! Necesas
-
-konkurenci kontraŭ la angla industrio. Kaj la infanmanoj es-
-
-tas la plej malkaraj.
+konkurenci kontraŭ la angla industrio. Kaj la infanmanoj estas la plej malkaraj.
 
 Ke infanoj devas ellitiĝi je la tria matene kaj nur je la deka
 
-revenas? Ke ili laboras dek sep horojn? Dio mia, ja ili aĝas jam ok jarojn! Ni ĉiuj devas ion oferi sur altaron de la patrio. Kiu parolis pri niaj milionoj? Tio ja estas la nacia posedaĵo, ser-vanta al la ŝtato. ĉi tien la infanojn! ĉu la mortokvanto alti-
-
-ĝas? Do pli da infanoj konsekvence! Brave, civitanoj! Kion vi
+revenas? Ke ili laboras dek sep horojn? Dio mia, ja ili aĝas jam ok jarojn! Ni ĉiuj devas ion oferi sur altaron de la patrio. Kiu parolis pri niaj milionoj? Tio ja estas la nacia posedaĵo, ser-vanta al la ŝtato. ĉi tien la infanojn! ĉu la mortokvanto altiĝas? Do pli da infanoj konsekvence! Brave, civitanoj! Kion vi
 
 sentas, herooj de la julia revolucio? Ne, pri tio la kronikisto jam ne skribas.
 
 **284**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14747,9 +12034,7 @@ Stranga amiko
 
 Kontraŭ propraj doloroj oni povas batali kaj oni povas ilin
 
-venki en si mem. Sed la sentema animo de Pieroto por-
-
-tas novan ŝarĝon; seniluziiĝon pro la vana luktado, triston, ke la justeco tiom neatingeblas. Li pensas pri la bravaj knaboj,
+venki en si mem. Sed la sentema animo de Pieroto portas novan ŝarĝon; seniluziiĝon pro la vana luktado, triston, ke la justeco tiom neatingeblas. Li pensas pri la bravaj knaboj,
 
 kiuj apud li falis sur la barikado, pri la espero, kun kiu ili ens-piradis la pulvon, pri la libereco, kiun ili antaŭvidis kun Margot super siaj kapoj dum tiu somera stelplena nokto inter du
 
@@ -14757,15 +12042,11 @@ bataloj. ĉu neniam cenzuro? Akraj ordonoj jam spionas ĉe
 
 teatro. ĉu ne ekzistas por la malriĉuloj vojo el malsato kaj
 
-mizero? Nur tra tiu tre streta ponto kondukas vojo al trankvi-
-
-ligo de lia malkvieto.
+mizero? Nur tra tiu tre streta ponto kondukas vojo al trankviligo de lia malkvieto.
 
 ”Estimata sinjoro Pieroto Deburau,
 
-dankon por la prezentado kaj pro la maniero kiel vi akto-
-
-ras. Hieraŭ vespere mi ege ekkoleris kontraŭ la vivo kaj mi
+dankon por la prezentado kaj pro la maniero kiel vi aktoras. Hieraŭ vespere mi ege ekkoleris kontraŭ la vivo kaj mi
 
 volis ĉion fini. Mi pensis pri la fino. Mi iris hazarde preter via teatro kaj mi diris al mi: lastfoje mi rigardos kaj mi eniris. Kaj post kiam la kurteno falis, ŝajnis al mi: mi vivas en alia mondo kaj estis al mi pli bone kaj ankoraŭ mi ridetis, irante for de vi.
 
@@ -14775,7 +12056,6 @@ Tion mi volis skribi al vi kaj danki. ĉu sen vi tio okazus? Respektplene …”
 
 **285**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14791,13 +12071,9 @@ galerio. Li ne volis, ke oni elpelu el la teatro liajn laboristojn, karbistojn, 
 
 Ili bezonas min, ĉefe dum tiu ĉi tempo, li ripetis al si. Ili statas pli malbone, ĉar oni trompis ilin. Mi devas donaci al ili
 
-iom da bonfara rido, memfidon kaj esperon. Tio estis lia am-
+iom da bonfara rido, memfidon kaj esperon. Tio estis lia ambicio, kiun li ne sekretigis antaŭ siaj literaturaj amikoj.
 
-bicio, kiun li ne sekretigis antaŭ siaj literaturaj amikoj.
-
-Alfredo de Musset enketadis Gasparon pri modestaj travi-
-
-vaĵoj kaj en la okazaĵo pri la ŝuetoj, kiujn reciproke prunte-
+Alfredo de Musset enketadis Gasparon pri modestaj travivaĵoj kaj en la okazaĵo pri la ŝuetoj, kiujn reciproke prunte-
 
 donadis al si du knabinoj, li trovis forton de popola balado.
 
@@ -14809,9 +12085,7 @@ Kaj iuvespere li estis entuziasmigita pro neatendita vizito
 
 en loĝio kaj lia koro flugis renkonten al la gasto. Venis viziti lin tiu, kiun Gasparo tiom da jaroj amis: Béranger.
 
-Dum la prezentado li rememoris nekalkuleblajn momen-
-
-tojn, kiam kanto de Béranger vortigis doloron kaj malamon
+Dum la prezentado li rememoris nekalkuleblajn momentojn, kiam kanto de Béranger vortigis doloron kaj malamon
 
 de la popolo. Kiomfoje li povis, li enrigardis la duonluman
 
@@ -14821,13 +12095,10 @@ la prezentado finiĝis kaj la kurteno falis, kiam ankaŭ Béranger jam staris en
 
 Gasparo petis silenton, kaj li, kiu neniam parolis kaj kantis,
 
-profunde kliniĝis direkte al la loĝio kaj doninte signon al gi-
-
-taristo en la orkestro, li kantis kanton, kanton de Béranger:
+profunde kliniĝis direkte al la loĝio kaj doninte signon al gitaristo en la orkestro, li kantis kanton, kanton de Béranger:
 
 **286**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14853,25 +12124,17 @@ La homoj komprenis. Béranger ridetis kaj amike gestis, kiel
 
 kamarado al kamarado, kaj la publiko aplaŭdis al ambaŭ —
 
-pro dankemo kaj admiro. Al Béranger, kiu pro amo al ili kan-
-
-tis, kaj al Deburau, kiu ludis al ili. Ili ambaŭ havis la komu-
+pro dankemo kaj admiro. Al Béranger, kiu pro amo al ili kantis, kaj al Deburau, kiu ludis al ili. Ili ambaŭ havis la komu-
 
 nan Muzon. La popolon.
 
-La familia vivo de Gasparo estis monotona, sed ĝi kontenti-
-
-gis lin. Li dediĉis al Désirée ĉiun liberan tempeton, kiun li
+La familia vivo de Gasparo estis monotona, sed ĝi kontentigis lin. Li dediĉis al Désirée ĉiun liberan tempeton, kiun li
 
 ŝtelis de la teatro. Sed ĉar tio malmultis al ŝi, ŝi malamis salonojn, renkontiĝojn kun literaturistoj; ŝi ĵaluzis je teatro kaj la virinoj. Désirée ne sentis ĝojon, kiam Gasparo alportis al si hejmen poemon de Béranger al li dediĉitan, aŭ kiam li entuziasme rakontis pri la ribelo en Pollando, konsiderante sin
 
-ekde la infanaĝo, ekde la restado apud Varsovio, ankaŭ iome-
+ekde la infanaĝo, ekde la restado apud Varsovio, ankaŭ iomete polo. Nur por la infanoj iliaj sentoj renkontiĝis kaj alproksimiĝis.
 
-te polo. Nur por la infanoj iliaj sentoj renkontiĝis kaj alproksimiĝis.
-
-Sed ankaŭ en tio estis diferenco. Por Gasparo, kiu plejpar-
-
-ton de la tago restadis en la teatro, la infanoj estis konsolo kaj
+Sed ankaŭ en tio estis diferenco. Por Gasparo, kiu plejparton de la tago restadis en la teatro, la infanoj estis konsolo kaj
 
 ĝojo. Zorgojn portis Désiréé, al kiu la vivo ŝajnis monotona
 
@@ -14879,13 +12142,10 @@ kaj plenis de malagrablaĵoj. Pro malkontento, pro sento, ke ŝi
 
 **287**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-estas subpremata kaj pro ordonemo, ŝi komencis batali kon-
-
-traŭ la teatro.
+estas subpremata kaj pro ordonemo, ŝi komencis batali kontraŭ la teatro.
 
 ”Volu forpermeson, ne partoprenu provadon,” ŝi postulis.
 
@@ -14893,9 +12153,7 @@ Sed por Gasparo lia arto estis devo. Li supozis, ke Désirée
 
 paciĝis kun tio. Kiam li foje parolis pri la afero kun Laurent, Arlekeno ŝultrolevis kaj diris sperte: ”Kiam ŝi ĉesos vin riproĉi? is ŝi trovos por vi kompenson. Pli frue ne.”
 
-Gasparo embarasiĝis. ŝajnis al li vere, ke Désirée lastatem-
-
-pe ĉesigis la riproĉadon. ĉu tio eblus? Li rapidis hejmen kiel
+Gasparo embarasiĝis. ŝajnis al li vere, ke Désirée lastatempe ĉesigis la riproĉadon. ĉu tio eblus? Li rapidis hejmen kiel
 
 eble li povis. Enveninte la ĉambron, li aŭdis triopan spiradon.
 
@@ -14911,9 +12169,7 @@ Li haltis super la infanlito. Rozina ion diris el dormo. Gasparo klinis sin al �
 
 ”ĉu iu estis ĉe ni hodiaŭ vespere?”
 
-Désirée eksidis sur la lito. ”Kiu povus ĉeesti, se mi dor-
-
-mas?” Li alsidis al ŝi kaj karese tuŝis ŝin.
+Désirée eksidis sur la lito. ”Kiu povus ĉeesti, se mi dormas?” Li alsidis al ŝi kaj karese tuŝis ŝin.
 
 ”ĉu vi scias, kion oni diras al mi hodiaŭ? Vi estas onidire
 
@@ -14923,9 +12179,7 @@ Mi ne deziras, ke oni fingre montradu al mi kaj moku min.”
 
 La voĉo de Désirée eksonis dure kaj bataleme:
 
-”Eĉ se tio estus vero, vi rajtas min nek akuzi, nek min par-
-
-doni — dum la vivo, kiun vi donas al mi.”
+”Eĉ se tio estus vero, vi rajtas min nek akuzi, nek min pardoni — dum la vivo, kiun vi donas al mi.”
 
 ”Tamen vi sciis, ke mi estas aktoro.”
 
@@ -14937,7 +12191,6 @@ La knabo vekiĝis kaj ekploris.
 
 **288**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -14951,9 +12204,7 @@ mi solas. Vi ne rajtas mntroli.”
 
 ”Do tamen ĝi estas vero?” ekmiris Gasparo.
 
-Iu frapis la pordon, Gasparo levis sin kaj malfermis. Vid-al-
-
-vide staris juna, svelta viro, kies vizaĝon pro ombro oni ne
+Iu frapis la pordon, Gasparo levis sin kaj malfermis. Vid-alvide staris juna, svelta viro, kies vizaĝon pro ombro oni ne
 
 povis vidi. ”Kion vi deziras?” demandis Gasparo abrupte.
 
@@ -14961,19 +12212,13 @@ povis vidi. ”Kion vi deziras?” demandis Gasparo abrupte.
 
 patrino kaj fratino malsanas.”
 
-Gasparo lin leĝere ekkaptis je la ŝultro kaj eliris kun li koridoren. ”Kiel eblas, ke vi estas vestita?” li demandis, konduk-
+Gasparo lin leĝere ekkaptis je la ŝultro kaj eliris kun li koridoren. ”Kiel eblas, ke vi estas vestita?” li demandis, kondukante lin al fenestro alkorta.
 
-ante lin al fenestro alkorta.
-
-”Mi volas eliri. Dumtage mi dormas kaj dumnokte mi eli-
-
-ras, sinjoro Deburau. Pro tio ni ankoraŭ ne renkontiĝis. Ni
+”Mi volas eliri. Dumtage mi dormas kaj dumnokte mi eliras, sinjoro Deburau. Pro tio ni ankoraŭ ne renkontiĝis. Ni
 
 transloĝiĝis ĉi tien antaŭ du semajnoj.”
 
-Gasparo rigardis en la profundajn nigrajn okulojn de la ju-
-
-nulo kaj la sveltan kaj brunan vizaĝon, kies vangojn la lun-
+Gasparo rigardis en la profundajn nigrajn okulojn de la junulo kaj la sveltan kaj brunan vizaĝon, kies vangojn la lun-
 
 lumo ankoraŭ pli profundigis. En la timema rigardo sin kaŝis
 
@@ -14987,9 +12232,7 @@ al mi negrandan servon? Eble vi povas diri al mi, ĉu estis ĉe
 
 mi hodiaŭ vespere iu viro?”
 
-La junulo lin serioze ekrigardis. Li aĝis ne multe pli ol du-
-
-dek jarojn, sed la suferplena esprimo de la vizaĝo lin pli mal-
+La junulo lin serioze ekrigardis. Li aĝis ne multe pli ol dudek jarojn, sed la suferplena esprimo de la vizaĝo lin pli mal-
 
 junigis.
 
@@ -14999,7 +12242,6 @@ junigis.
 
 **289**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15017,9 +12259,7 @@ volas havi klaron minimume en mi mem.”
 
 ”Kie vi ekkonis min?”
 
-”Dum la vespera renkontiĝo ĉe sinjoro Hugo, kiam unua-
-
-foje oni legis ’Hernani’. Oni permesis al mi legi unu mian ba-
+”Dum la vespera renkontiĝo ĉe sinjoro Hugo, kiam unuafoje oni legis ’Hernani’. Oni permesis al mi legi unu mian ba-
 
 ladon; sed certe vi dormis.”
 
@@ -15029,9 +12269,7 @@ ladon; sed certe vi dormis.”
 
 ”Venu, mi petas. Kaj pardonu min pro mia konduto.”
 
-”Treege mi respektas vin, sinjoro Deburau. Sed ne forge-
-
-su, okazu kio okazu, la amon vi ne trovos dum la kiso.”
+”Treege mi respektas vin, sinjoro Deburau. Sed ne forgesu, okazu kio okazu, la amon vi ne trovos dum la kiso.”
 
 ”Kiam do?”
 
@@ -15041,9 +12279,7 @@ kaj mateniĝas. En pasinteco aŭ en futuro. En la nuntempo
 
 neniu ĵuro ĝin garantios al vi.”
 
-”Dankon, sinjoro Bertrand,” diris Deburau. ”Oni estas nai-
-
-va kaj devas ĉiam lerni.”
+”Dankon, sinjoro Bertrand,” diris Deburau. ”Oni estas naiva kaj devas ĉiam lerni.”
 
 ”Konfidu venton, ondon, nubon kaj neniam vi trompiĝos.”
 
@@ -15059,27 +12295,20 @@ plorsingultadon. Désirée ploris. Gasparo etendis la manon al
 
 ŝi. Li parolis al ŝi kareseme, ĝis li certis, ke ŝi ekdormis.
 
-La lasta teatraĵo en Funambules estis ”Dudek ses akciden-
-
-toj de Pieroto.” Preparis ĝin la maljuna reĝisoro Lafargue,
+La lasta teatraĵo en Funambules estis ”Dudek ses akcidentoj de Pieroto.” Preparis ĝin la maljuna reĝisoro Lafargue,
 
 **290**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-iama skribisto ĉe ekzekuciisto konsiderata tre klera. Al la pu-
-
-bliko li tiel dankemis pro la e˛o, ke kiam aŭdiĝis aplaŭdo, li
+iama skribisto ĉe ekzekuciisto konsiderata tre klera. Al la publiko li tiel dankemis pro la e˛o, ke kiam aŭdiĝis aplaŭdo, li
 
 demetis ĉapeton kaj riverencis al la salonego, negrave ĉu li
 
 estis kie ajn post kulisoj aŭ en la enfalejo.
 
-Kiam Gasparo post la prezentado estis eliranta el la teat-
-
-ro, li scivolemis, ĉu la nova amiko Bertrand atendas.
+Kiam Gasparo post la prezentado estis eliranta el la teatro, li scivolemis, ĉu la nova amiko Bertrand atendas.
 
 ”Nu, kiel vi kontentas?”
 
@@ -15099,9 +12328,7 @@ la homojn pri turmentaj zorgoj?”
 
 ”Kio ĝi estas?”
 
-”Balado, kiun mi verkis dumpaŭze en la teatro Funambu-
-
-les.”
+”Balado, kiun mi verkis dumpaŭze en la teatro Funambules.”
 
 ”Ni iru! Vi rakontos al mi dumvoje ion pri vi.”
 
@@ -15115,13 +12342,9 @@ Kio okazos kun miaj patrino kaj fratino?”
 
 ”Ili kredas ĝin blinde. Sed kiel ilin vivteni? Multfoje jam mi
 
-opiniis, ke mi freneziĝos pro doloro kaj mizero. Se mi deme-
+opiniis, ke mi freneziĝos pro doloro kaj mizero. Se mi demetus mian jakon, vi vidus, ke mia ĉemizo ĝisas nur al la unua
 
-tus mian jakon, vi vidus, ke mia ĉemizo ĝisas nur al la unua
-
-butono. La reston mi havas en la ŝuoj kiel ŝtrumpojn. Ni far-
-
-tas tre malbone. Pardonu, vi ne devis demandi.”
+butono. La reston mi havas en la ŝuoj kiel ŝtrumpojn. Ni fartas tre malbone. Pardonu, vi ne devis demandi.”
 
 ”Vi rememorigas miajn proprajn pasintajn jarojn,” diris
 
@@ -15131,7 +12354,6 @@ Kiam ili haltis antaŭ la komuna restadejo, rigardis Gaspa-
 
 **291**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15151,27 +12373,20 @@ Deburau enpoŝigis monon al li. ”Kiu li estas?”
 
 ”Pentristo de ventumiloj el tiu ĉi strato.”
 
-Gasparo malŝlosis. Ili lante ascendis. La luno glitis laŭŝtu-
+Gasparo malŝlosis. Ili lante ascendis. La luno glitis laŭŝtupare same kiel hieraŭ. Supre ili haltis.
 
-pare same kiel hieraŭ. Supre ili haltis.
-
-”Mi volis nur scii, ĉu tio doloros min,” diris Gasparo mal-
-
-laŭte. ”Sed mi sentas nenion.”
+”Mi volis nur scii, ĉu tio doloros min,” diris Gasparo mallaŭte. ”Sed mi sentas nenion.”
 
 ”Tiel do ĝi statas? Tio signifas, ke vi suprenlevis vin al la
 
 belo kaj revoj.”
 
-”Ne,” respondis Deburau. ”Tio signifas, ke mi mem trom-
-
-pas Désiréen.”
+”Ne,” respondis Deburau. ”Tio signifas, ke mi mem trompas Désiréen.”
 
 Ili disiris sen manpremo.
 
 **292**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15179,13 +12394,9 @@ La libro de Janin
 
 Baronino Dudevant — laŭ verkista nomo Georgo Sand —
 
-aranĝis etan festan tagmanĝon por siaj spritplenaj gas-
+aranĝis etan festan tagmanĝon por siaj spritplenaj gastoj. Kies vangoj kliniĝas super la tablo? Ovala vizaĝo kun mo-
 
-toj. Kies vangoj kliniĝas super la tablo? Ovala vizaĝo kun mo-
-
-laj trajtoj kaj firma bona brilo en la okuloj, kun malhela ha-
-
-raro, vizaĝo de la suda tipo, jen Viktoro Hugo. Apud li, kun
+laj trajtoj kaj firma bona brilo en la okuloj, kun malhela hararo, vizaĝo de la suda tipo, jen Viktoro Hugo. Apud li, kun
 
 aŭdaca rigardo, voluptema trajto en la buŝanguloj — Balzac.
 
@@ -15193,25 +12404,17 @@ Poste mulata tipo kun densa nigra hararo, alta, svelta Dumas.
 
 Elegantulo en ruĝa veŝto, nigra pantalono kaj griza jako —
 
-Gautier. Du redaktoroj el ”Revuo de du Mondoj” kaj fine ga-
+Gautier. Du redaktoroj el ”Revuo de du Mondoj” kaj fine gastoj hodiaŭ plej signifaj: filozofo Lerminier, profesoro de Sorbono, kaj apud li membro de la angla parlamento, kiu — kla-
 
-stoj hodiaŭ plej signifaj: filozofo Lerminier, profesoro de Sorbono, kaj apud li membro de la angla parlamento, kiu — kla-
+rigas tion sinjorino Georgo — vojaĝas kun sekreta ŝtata misio.
 
-rigas tion sinjorino Georgo — vojaĝas kun sekreta ŝtata mi-
-
-sio.
-
-La anglo venis kiel lasta, kiel decas por la majesta diploma-
-
-to: li eksidis, tenas sin rekte kaj silentas. Li estas senriproĉe vestita, surkole silka kravato, liaj ŝuoj brilas. Kiam profesoro Lerminier igas lin paroli, li nur kapjesas aŭ murmuras ion, kio ne kompreneblas. Vane la fervoraj redaktoroj disvolvas antaŭ
+La anglo venis kiel lasta, kiel decas por la majesta diplomato: li eksidis, tenas sin rekte kaj silentas. Li estas senriproĉe vestita, surkole silka kravato, liaj ŝuoj brilas. Kiam profesoro Lerminier igas lin paroli, li nur kapjesas aŭ murmuras ion, kio ne kompreneblas. Vane la fervoraj redaktoroj disvolvas antaŭ
 
 li la plej gravajn politikajn demandojn; la angla diplomato
 
 silentas kvazaŭ sfingo.
 
-Momenton oni atendas kun la manĝado je Musset, sed Al-
-
-fredo estas kiel ĉiam neakurata. Por ke la anglo ne ofendiĝu,
+Momenton oni atendas kun la manĝado je Musset, sed Alfredo estas kiel ĉiam neakurata. Por ke la anglo ne ofendiĝu,
 
 gestas do la gastigantino — kiu kun manĝaĵoj disdonas ankaŭ
 
@@ -15219,7 +12422,6 @@ la spriton kaj kun vino verŝas ankaŭ bonan humoron — kaj
 
 **293**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15233,13 +12435,9 @@ pri la malfeliĉa sorto de la plej granda kantistino en Opero,
 
 kiu vundis sin pro falo desur ĉevalo. Ankaŭ pri la nova espero
 
-de la franca teatro, juna aktorino Raęl. ”Mi scias certe,” di-
+de la franca teatro, juna aktorino Raęl. ”Mi scias certe,” diris Dumas, ”ke ankoraŭ pasintjare ŝi kantis surstrate en Lio-
 
-ris Dumas, ”ke ankoraŭ pasintjare ŝi kantis surstrate en Lio-
-
-no. Sed ŝi malvarmumis kaj perdis la voĉon. ŝi intencas do te-
-
-atri?”
+no. Sed ŝi malvarmumis kaj perdis la voĉon. ŝi intencas do teatri?”
 
 ”Sed ŝi ankaŭ tion kapablas. Vi vidos, ke post kelkaj jaroj
 
@@ -15257,9 +12455,7 @@ turnis sin al la angla deputito.
 
 ”ŝate mi volus scii vian opinion, Ekscelenco, pri la aktuala
 
-situacio en Eŭropo. Persone mi opinias, ke ĝi bone ekvili-
-
-bras.”
+situacio en Eŭropo. Persone mi opinias, ke ĝi bone ekvilibras.”
 
 ”En bona ekvilibro ĝi?” diris en la fuŝita franca lingvo la
 
@@ -15275,19 +12471,14 @@ kaj ĵetis ĝis alten. Sed antaŭ ol la telero terenfalis, li ekkaptis
 
 Li klinas sin kiel komedianto post finita prezentado. ĉiuj
 
-ekridis. Kaj Gasparo Deburau, la glora Deburau el Funambu-
-
-les, demetas perukon kaj ridetas al la surprizita Lerminier.
+ekridis. Kaj Gasparo Deburau, la glora Deburau el Funambules, demetas perukon kaj ridetas al la surprizita Lerminier.
 
 **294**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Sed la profesoro komprenas la ŝercon kaj scias apreci la lu-
-
-don, kiu lin venke fascinis.
+Sed la profesoro komprenas la ŝercon kaj scias apreci la ludon, kiu lin venke fascinis.
 
 ”Mi opiniis, ke vi prezentas nur Pieroton,” li ridas.
 
@@ -15295,9 +12486,7 @@ don, kiu lin venke fascinis.
 
 en Pieroto?”
 
-”Bone,” ridetas la profesoro. ”Sed tamen tiom vi ne super-
-
-ruzis min, amikoj.”
+”Bone,” ridetas la profesoro. ”Sed tamen tiom vi ne superruzis min, amikoj.”
 
 Li paŝas al la gaja servistino kaj pinĉetas ŝian vangon.
 
@@ -15313,31 +12502,21 @@ Musset gaje demetas la jupon kaj tukon.
 
 ”Deburau pravas,” analizas Musset, ”ĉiuj sentvibroj estas
 
-en ĉiu homo. Estas tasko de poeto, ke li malkovru kaj demas-
+en ĉiu homo. Estas tasko de poeto, ke li malkovru kaj demasku ilin.”
 
-ku ilin.”
-
-”Estas bele,” parolas Georgo, ”flugsekvi ideon. Fine vi ek-
-
-kaptas ĝin kaj sentas, kiel ĝi vibras, vivanta submane.”
+”Estas bele,” parolas Georgo, ”flugsekvi ideon. Fine vi ekkaptas ĝin kaj sentas, kiel ĝi vibras, vivanta submane.”
 
 ”Kaj se vi rigardas ĝin,” kapskuas Hugo, ”vi konsterniĝos,
 
 ke vi ne trovis pli frue, kiel simpla ĝi estas. En la naturo enestas lernolibro de la vero.”
 
-”Mi ne amas, kio estas natura,” defendas Gautier la pro-
-
-pran teorion. ”Mi amas, kio estas artefarita: bonodorojn,
+”Mi ne amas, kio estas natura,” defendas Gautier la propran teorion. ”Mi amas, kio estas artefarita: bonodorojn,
 
 ŝmjn, kolorojn. Deburau ankaŭ estas artefarita.”
 
-”Ne kredigu tion al vi,” diras Hugo. ”Li ne estus tiom for-
+”Ne kredigu tion al vi,” diras Hugo. ”Li ne estus tiom forta, se li ne estus natura.”
 
-ta, se li ne estus natura.”
-
-Gasparo volas foriĝi, sed Georgo atendis ĉi tiun momen-
-
-ton. ”Mi havas por vi deserton, sinjoro Deburau.”
+Gasparo volas foriĝi, sed Georgo atendis ĉi tiun momenton. ”Mi havas por vi deserton, sinjoro Deburau.”
 
 ŝi alportas vitran kloŝon, sub kiu kuŝas enpakita libro.
 
@@ -15345,7 +12524,6 @@ ton. ”Mi havas por vi deserton, sinjoro Deburau.”
 
 **295**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15357,13 +12535,9 @@ estas skribite per majuskloj:
 
 DEBURAU
 
-”Deburau,” legas Gasparo. Kaj sube: Historio de la kvar-
+”Deburau,” legas Gasparo. Kaj sube: Historio de la kvargroŝa teatro. Verkis Jules Janin. Eldonisto Charles Gosselin. La fingro turnas la paĝon. La pentraĵo de Bouquet — Deburau
 
-groŝa teatro. Verkis Jules Janin. Eldonisto Charles Gosselin. La fingro turnas la paĝon. La pentraĵo de Bouquet — Deburau
-
-kiel Pieroto. La libro estas dika, ĝi estas duparta. Sed Gaspa-
-
-ro embarasiĝas tralegi unu nuran linion. ĉu eblas pri lia vivo
+kiel Pieroto. La libro estas dika, ĝi estas duparta. Sed Gasparo embarasiĝas tralegi unu nuran linion. ĉu eblas pri lia vivo
 
 verki tricent paĝojn?
 
@@ -15371,19 +12545,13 @@ verki tricent paĝojn?
 
 ”Al mia plej kara aktoro dediĉas respektplene Jules Janin.”
 
-ĉiuj amasiĝas ĉirkaŭ li kaj scivoleme rigardas la libron. Bal-
+ĉiuj amasiĝas ĉirkaŭ li kaj scivoleme rigardas la libron. Balzac foliumas kaj legas la sinsekvon de la ĉapitroj.
 
-zac foliumas kaj legas la sinsekvon de la ĉapitroj.
-
-”Kiel eble?” li ekvokas. ”ĉu vi ne estas franco? Janin skri-
-
-bas, ke vi naskiĝis en Novë Kolín.” Kaj li legas plu laŭtvoĉe:
+”Kiel eble?” li ekvokas. ”ĉu vi ne estas franco? Janin skribas, ke vi naskiĝis en Novë Kolín.” Kaj li legas plu laŭtvoĉe:
 
 ”Deburau estas la lasta kaj la plej granda donaco, kiun dediĉis al ni la boema Bohemio, la reĝolando konata el la mezepoko;
 
-plena de gajaj kaj maltrankvilaj komediantoj, belaj kaj leĝer-
-
-kruraj knabinoj, la boema mondo ridanta, kiam Eŭropo plo-
+plena de gajaj kaj maltrankvilaj komediantoj, belaj kaj leĝerkruraj knabinoj, la boema mondo ridanta, kiam Eŭropo plo-
 
 ras, mondo de ĝojo, libereco kaj de bona kulinara arto, de
 
@@ -15403,7 +12571,6 @@ estas ja cigano. Bohemio ne estas tia, kiel li skribas.”
 
 **296**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15421,9 +12588,7 @@ Mia lando ne ridas, kiam la tuta mondo ploras. Mi opinias, ke
 
 ”Kial?”
 
-”Pro la perdita krono. Pro la perdita kredo. ĉiuj ĉe˛oj, ki-
-
-ujn mi renkontis, diris tion.”
+”Pro la perdita krono. Pro la perdita kredo. ĉiuj ĉe˛oj, kiujn mi renkontis, diris tion.”
 
 ”Ili do ne estas nomadoj?”
 
@@ -15438,9 +12603,7 @@ Balzac absorbiĝis de la legado kaj postmomente denove li
 
 recitis laŭtvoĉe el la alineoj: ”Antaŭen, mia Gilles! Gilles estas homo sen difinita nomo, sen preciza socia pozicio. Gilles —
 
-jen la popolo. Gilles, momenton gaja, momenton trista, mal-
-
-sana, sana, muzikanto, latrono, poeto, tio estas la popolo,
+jen la popolo. Gilles, momenton gaja, momenton trista, malsana, sana, muzikanto, latrono, poeto, tio estas la popolo,
 
 kiun Deburau prezentas. Li havas ĝian senton. Li scias, pri kio la popolo ridas, kion ĝi amas, kia ĝi estas. En neniu sia rolo
 
@@ -15448,19 +12611,14 @@ eĉ vorton li diras, sed komparu vin kun li, vi maljuniĝintaj
 
 gloroj kaj posedantoj de la reputacioj, kaj kiel malgrandaj vi
 
-fariĝos. Li neniigos vin per unusola sia ekrideto, per kiu opi-
+fariĝos. Li neniigos vin per unusola sia ekrideto, per kiu opinius sin venkita eĉ Beaumarchais mem kun ĉiu sia spriteco.
 
-nius sin venkita eĉ Beaumarchais mem kun ĉiu sia spriteco.
-
-En li enestas, mi ripetas, mil aktoroj, mil vizaĝoj, mil grima-
-
-coj, subita ĝojo kaj subita doloro, sento, kiu komenciĝas, vi ne scias kiel, finiĝas, vi ne scias kiam, kaj ĉio ĉi entute havas neniun alian nomon, nur unusolan — kaj tiu sonas — DEBU-
+En li enestas, mi ripetas, mil aktoroj, mil vizaĝoj, mil grimacoj, subita ĝojo kaj subita doloro, sento, kiu komenciĝas, vi ne scias kiel, finiĝas, vi ne scias kiam, kaj ĉio ĉi entute havas neniun alian nomon, nur unusolan — kaj tiu sonas — DEBU-
 
 RAU!”
 
 **297**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15472,9 +12630,7 @@ En prezento, farita de Balzac, ĝi sonis kiel solena fanfaro.
 
 ”Mi ŝatas esti detalema,” diras Balzac.
 
-Deburau ekvidis indikon de la prezo, 7 frankojn kaj 50 cen-
-
-timojn. Tiu libro ne estos atingebla por liaj amikoj. Ili devus labori tri tagojn, por povi aĉeti ĝin.
+Deburau ekvidis indikon de la prezo, 7 frankojn kaj 50 centimojn. Tiu libro ne estos atingebla por liaj amikoj. Ili devus labori tri tagojn, por povi aĉeti ĝin.
 
 ”Pri kio vi meditas?”
 
@@ -15494,9 +12650,7 @@ malbone.”
 
 La angla diplomato nigre vestita turnas sin, eltiras la libron
 
-el la mano de Balzac, senparole klinas sin kaj kuras el la por-
-
-do. La ceteraj vokas post lin esprimojn de kunsento, sed re-
+el la mano de Balzac, senparole klinas sin kaj kuras el la pordo. La ceteraj vokas post lin esprimojn de kunsento, sed re-
 
 spondas al ili nur rapidaj paŝoj surŝtupare.
 
@@ -15504,25 +12658,18 @@ spondas al ili nur rapidaj paŝoj surŝtupare.
 
 fiakro apud la juna poeto.
 
-”ŝia sanstato malboniĝis. ŝi vokis vin. Ni venigis kuracis-
-
-ton. Li diagnozis kaj ordonis venigi vin.”
+”ŝia sanstato malboniĝis. ŝi vokis vin. Ni venigis kuraciston. Li diagnozis kaj ordonis venigi vin.”
 
 ”Kion diris mia edzino?”
 
 ”ŝi nur ĝemis.”
 
-El la koro de Gasparo perdiĝis lastatempe trankvilo kaj te-
+El la koro de Gasparo perdiĝis lastatempe trankvilo kaj tenero. Li riproĉis al si, sed ne sciis ekregi sin. Ankaŭ super la kapoj de la infanoj ekfuriozis inter li kaj Désirée konflikto,
 
-nero. Li riproĉis al si, sed ne sciis ekregi sin. Ankaŭ super la kapoj de la infanoj ekfuriozis inter li kaj Désirée konflikto,
-
-plena de malafablo, ofte pro plej bagatelaj kaŭzoj. La patri-
-
-neco ne kontentigas Désiréen. Incitita pro la fakto, ke Gaspa-
+plena de malafablo, ofte pro plej bagatelaj kaŭzoj. La patrineco ne kontentigas Désiréen. Incitita pro la fakto, ke Gaspa-
 
 **298**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15530,27 +12677,17 @@ ro ne apartenas tute al ŝi, ŝi inklinis al malfeliĉaj sentoj kaj estadis pro 
 
 ”Havunte edzinon, ŝi estu kia ajn,” diras Aloizio, ”mi ne
 
-vespermanĝus kaj aĉetadus al ŝi violetojn. Konservu ŝian ani-
+vespermanĝus kaj aĉetadus al ŝi violetojn. Konservu ŝian animon por vi kaj en ŝia animo vi restu klara kaj granda.”
 
-mon por vi kaj en ŝia animo vi restu klara kaj granda.”
+Sed Gasparo sentis, ke tion li ne kapablas, ĉar en profundo de sia koro li eĉ ne volis tion. Li bezonis por sia laboro
 
-Sed Gasparo sentis, ke tion li ne kapablas, ĉar en profun-
-
-do de sia koro li eĉ ne volis tion. Li bezonis por sia laboro
-
-koncentriĝon kaj la malharmonia hejmo prenis de li pruden-
-
-ton. Amikoj en la teatro ne rekonadis la amplenan Pieroton,
+koncentriĝon kaj la malharmonia hejmo prenis de li prudenton. Amikoj en la teatro ne rekonadis la amplenan Pieroton,
 
 kiu nun ofte ekscitiĝis pro bagateloj. Lia modesteco ĝis nun
 
-al neniu vidigis, ke li regas la teatron kaj ankaŭ ĝiajn direk-
+al neniu vidigis, ke li regas la teatron kaj ankaŭ ĝiajn direktorojn.
 
-torojn.
-
-La disĵetitaj skatoloj kun pudro kaj rompitaj teleroj kondu-
-
-kis ilin al falsa suspekto, ke kreskas la vantemo de Deburau.
+La disĵetitaj skatoloj kun pudro kaj rompitaj teleroj kondukis ilin al falsa suspekto, ke kreskas la vantemo de Deburau.
 
 Ili kulpigadis lin pro manko de forto kaj sentimento. Sed ne
 
@@ -15566,9 +12703,7 @@ Estu Gasparo de la vivo!”
 
 ”Tial venos momentoj, kiam vi solecos. Tia estas la sorto de
 
-ĉiuj Gasparoj. Ankaŭ la mia. Mi prezentas miajn scenojn nok-
-
-te. i donas al mi dekoraĵojn kaj kulisojn, ĝi estas mia scenejo kaj rigardejo.”
+ĉiuj Gasparoj. Ankaŭ la mia. Mi prezentas miajn scenojn nokte. i donas al mi dekoraĵojn kaj kulisojn, ĝi estas mia scenejo kaj rigardejo.”
 
 ”Gravas, kion ni portas en la animo,” agnoskis Gasparo.
 
@@ -15578,7 +12713,6 @@ te. i donas al mi dekoraĵojn kaj kulisojn, ĝi estas mia scenejo kaj rigardejo.
 
 **299**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15594,19 +12728,13 @@ decidiĝis konfesi al li, Gasparo nur malvarme ekridetis kaj
 
 kapjesis. Li ellernis ami la belecon. Sed jam li ne amis Dé-
 
-siréen plu. Nur la nova gravedeco kaj malsano, kiu ŝin eka-
+siréen plu. Nur la nova gravedeco kaj malsano, kiu ŝin ekatakis, lin redonis al ŝi pro kompato. Li preteriradis ŝin silentema kiel frosto, sed kiam ŝi ekĝemis, li turnis al ŝi siajn konsternitajn okulojn kaj li timis.
 
-takis, lin redonis al ŝi pro kompato. Li preteriradis ŝin silentema kiel frosto, sed kiam ŝi ekĝemis, li turnis al ŝi siajn konsternitajn okulojn kaj li timis.
-
-Fiakro kuregis tra la stratoj. Kiam ĝi haltis, Gasparo fulmo-
-
-rapide suprenkuris la ŝtuparon kaj falis al ŝia lito. ŝia vango kuŝis surkusene, pala, serioza, senigita de sia paŝtela beleco.
+Fiakro kuregis tra la stratoj. Kiam ĝi haltis, Gasparo fulmorapide suprenkuris la ŝtuparon kaj falis al ŝia lito. ŝia vango kuŝis surkusene, pala, serioza, senigita de sia paŝtela beleco.
 
 Sed ŝi estis al li pli kara kun la grizaj ombroj sub la okuloj kaj survizaĝe.
 
-”Désirée,” li flustris kaj kisis ŝian manon, brulantan de fe-
-
-bro.
+”Désirée,” li flustris kaj kisis ŝian manon, brulantan de febro.
 
 ”Onidire mi grave malsanas,” ŝi turnis al li siajn glimajn
 
@@ -15630,13 +12758,10 @@ bukloj platiĝis, lacis, sed al Gasparo tio rememorigis momen-
 
 **300**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-tojn, kiam li sekrete kaŝiradis en la ĉambron super la bon-
-
-odoranta parko.
+tojn, kiam li sekrete kaŝiradis en la ĉambron super la bonodoranta parko.
 
 ŝi ekĝemis pro doloro.
 
@@ -15658,9 +12783,7 @@ lin.”
 
 ŝi fermis la okulojn pro honto kaj decidiĝo.
 
-Gasparo, ĉu tio estas grandanimeco aŭ indiferento? Vi ka-
-
-pablis jam plurfoje abnegacii vin, por ĝojigi la aliajn. ĉu vi
+Gasparo, ĉu tio estas grandanimeco aŭ indiferento? Vi kapablis jam plurfoje abnegacii vin, por ĝojigi la aliajn. ĉu vi
 
 opinias, ke vi redonos al vi ŝian vivon, ke hodiaŭ vi ambaŭ
 
@@ -15670,9 +12793,7 @@ farus ĉion por ensorĉi almenaŭ iom da brilo en la tenebrajn
 
 okulojn de Désirée.
 
-La strato indiferente bruas. Vendeja fenestro estas aperti-
-
-ta kaj ĉe ĝi sidas juna ventumil-pentristo. Lin ĉirkaŭas farboj kaj penikoj kaj li pentras sur la ligno-tabuletojn miniaturajn
+La strato indiferente bruas. Vendeja fenestro estas apertita kaj ĉe ĝi sidas juna ventumil-pentristo. Lin ĉirkaŭas farboj kaj penikoj kaj li pentras sur la ligno-tabuletojn miniaturajn
 
 pejzaĝojn. Gasparo haltis kaj observas lian klinitan kapon kaj
 
@@ -15680,19 +12801,14 @@ liajn delikatajn manojn. La pentristo ekrimarkis la rompitan
 
 ombron, falantan al la piedoj. Li levis la kapon.
 
-”Kion vi deziras, mi petas?” li diras kun ĝentila rideto. Ga-
+”Kion vi deziras, mi petas?” li diras kun ĝentila rideto. Gasparo momenton silentas, enprofundiĝinte en liajn okulojn.
 
-sparo momenton silentas, enprofundiĝinte en liajn okulojn.
-
-Tiumomente la pentristo ekkonis lin. Li rapide formetis ven-
-
-tumilon kaj penikojn kaj ripetis sian demandon per treman-
+Tiumomente la pentristo ekkonis lin. Li rapide formetis ventumilon kaj penikojn kaj ripetis sian demandon per treman-
 
 ta voĉo.
 
 **301**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15700,9 +12816,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 deziras, ke vi vizitu ŝin.”
 
-”Pardonu, sinjoro, pri nenio mi scias,” ektremetis la men-
-
-tono de la junulo kaj li retropaŝis en la ĉambron.
+”Pardonu, sinjoro, pri nenio mi scias,” ektremetis la mentono de la junulo kaj li retropaŝis en la ĉambron.
 
 ”Mi diras al vi: ne timu,” ripetis Gasparo. ”ŝi volas adiaŭi
 
@@ -15712,9 +12826,7 @@ vin. ŝi iras en hospitalon.”
 
 volas de mi?”
 
-Gasparon tia malkuraĝo ofendis. ”Désirée grave ekmalsa-
-
-nis,” li altigis la voĉon. ”Mi volas, ke vi iru al ŝi. Tio gravas por mi. ŝi ĝojos.”
+Gasparon tia malkuraĝo ofendis. ”Désirée grave ekmalsanis,” li altigis la voĉon. ”Mi volas, ke vi iru al ŝi. Tio gravas por mi. ŝi ĝojos.”
 
 ”ĉu mi iru al ŝi?”
 
@@ -15726,9 +12838,7 @@ La junulo jam estis ĉe pordo. ”Nenien mi iros! Mi volas
 
 neniel rilati kun vi. Kaj kun via edzino ankaŭ ne.”
 
-Tio jam estis troe. Gasparo etendis la manon tra la fenes-
-
-tro, kaptis, kio estis kaptebla — penikojn, tinetojn, ventumi-
+Tio jam estis troe. Gasparo etendis la manon tra la fenestro, kaptis, kio estis kaptebla — penikojn, tinetojn, ventumi-
 
 lojn — kaj ĵetegis ĉion ĉi post la fuĝantan pentriston. La pordo ekkrakis. Kolora pluvo makulis ĝin.
 
@@ -15740,9 +12850,7 @@ hejmen.
 
 Kolero lin ekregis. Li estas histriono ĝuste en momento,
 
-kiam li estas pleje homo. Unuafoje lin tiu vorto pikis. Li aĉe-
-
-tis rapide bukedon ĉe florvendistino kaj rapidis hejmen. An-
+kiam li estas pleje homo. Unuafoje lin tiu vorto pikis. Li aĉetis rapide bukedon ĉe florvendistino kaj rapidis hejmen. An-
 
 taŭ la domo jam staris ambulanca veturilo.
 
@@ -15752,21 +12860,16 @@ la ŝtuparo. ”Mi atendas nur, kiam vi pagos al mi.”
 
 **302**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Momenton, doktoro,” elspiris Gasparo. ”ĉu la afero fak-
-
-te estas tiel danĝera?”
+”Momenton, doktoro,” elspiris Gasparo. ”ĉu la afero fakte estas tiel danĝera?”
 
 ”Se ni rapide veturos — kaj se la pacientino estos forta, ĉio
 
 reordiĝos,” respondis la doktoro.
 
-Gasparo enkuris la ĉambron. La okuloj de Désirée bonve-
-
-nigis lin elrevigite. Pieroto, montru la duan vangon!
+Gasparo enkuris la ĉambron. La okuloj de Désirée bonvenigis lin elrevigite. Pieroto, montru la duan vangon!
 
 ”Kia hazardo, Désirée! Sinjoro Alban ankaŭ malsanas, li
 
@@ -15782,9 +12885,7 @@ ne bezonas veni.”
 
 ”Jes. Vi venu!”
 
-Eniras du viroj kun brankardo. Li helpas al ili ankoraŭ de-
-
-scendi desur la ŝtuparo, poste ascendi en la veturilon — kaj
+Eniras du viroj kun brankardo. Li helpas al ili ankoraŭ descendi desur la ŝtuparo, poste ascendi en la veturilon — kaj
 
 denove unu trista adiaŭo finiĝis. Lante li revenas supren.
 
@@ -15806,7 +12907,6 @@ al si por konvinki sin pri maldankemo.
 
 **303**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15826,33 +12926,22 @@ ujo-ĉe˛io”. )
 
 **304**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Du invitoj
 
-Gasparo estis revenanta el la hospitalo. Estis sankta Vend-
+Gasparo estis revenanta el la hospitalo. Estis sankta Vendredo. Homamasoj torentis al arbaretoj ĉe rando de Pa-
 
-redo. Homamasoj torentis al arbaretoj ĉe rando de Pa-
-
-rizo. El ĝardenoj bonodoris siringoj. Inter la homoj serpentu-
-
-mis pezaj omnibusoj kaj elegantaj kaleŝoj. Fine Gasparo ve-
+rizo. El ĝardenoj bonodoris siringoj. Inter la homoj serpentumis pezaj omnibusoj kaj elegantaj kaleŝoj. Fine Gasparo ve-
 
 nis en flankstraton. De ie sonis orgenmuziko.
 
-”La sanstato multe pliboniĝis,” oni diris al li en la hospita-
+”La sanstato multe pliboniĝis,” oni diris al li en la hospitalo. Li vidis mem, ke Désirée estas pli gaja. Samtempe mal-
 
-lo. Li vidis mem, ke Désirée estas pli gaja. Samtempe mal-
+pliiĝis sur ŝiaj vangoj tenero kaj amo. En amikeco kun la infanoj li trovadis ĉiam pli da konsolo kaj forto. Karolo nun
 
-pliiĝis sur ŝiaj vangoj tenero kaj amo. En amikeco kun la in-
-
-fanoj li trovadis ĉiam pli da konsolo kaj forto. Karolo nun
-
-estis en la aĝo, kiam komenciĝis liaj propraj unuaj rememo-
-
-roj; Gasparo promesis al si, ke al Karolo li faros tiujn multe pli belajn. Kaj al Rosina li enmetadis ĉiun teneran senton, kiu
+estis en la aĝo, kiam komenciĝis liaj propraj unuaj rememoroj; Gasparo promesis al si, ke al Karolo li faros tiujn multe pli belajn. Kaj al Rosina li enmetadis ĉiun teneran senton, kiu
 
 restis en li, rilate al inaj estaĵoj. Li ĝojis je momentoj, kiam li revenadis hejmen, je iliaj demandoj kaj ludoj kun ili.
 
@@ -15868,9 +12957,7 @@ montris al la oficiro, sed li ne atentis tion.
 
 ”Kiel eble, ke vi trovis min? Kiu diris al vi, kie mi loĝas?”
 
-”En la teatro. Mi venis peti vin, ke vi vizitu malsanan infa-
-
-non.”
+”En la teatro. Mi venis peti vin, ke vi vizitu malsanan infanon.”
 
 ”Kial mi vizitu lin?”
 
@@ -15878,7 +12965,6 @@ non.”
 
 **305**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15886,9 +12972,7 @@ ni en la teatro ĉe vi kaj vidis vin. Li malsanas, grave malsanas.
 
 La knabo senĉese ĝemas, ke li ŝatus vidi vin. Se vi venus tien
 
-por momento, ege vi ĝojigus lin; kiu scias, ĉu eble ne lastfo-
-
-je. Sed via edzino onidire ankaŭ malsanas? Certe vi ne emas
+por momento, ege vi ĝojigus lin; kiu scias, ĉu eble ne lastfoje. Sed via edzino onidire ankaŭ malsanas? Certe vi ne emas
 
 ludi?”
 
@@ -15914,13 +12998,9 @@ povus veni al la kortego alifoje?”
 
 La oficiro pensis, ke li parolas kun frenezulo.
 
-Sed Margot intervenis: ”Iru tien, Gasparo,” ŝi diris paci-
+Sed Margot intervenis: ”Iru tien, Gasparo,” ŝi diris paciĝeme. ”La malgranda Jacques dumtage trankvilas. Nur ves-
 
-ĝeme. ”La malgranda Jacques dumtage trankvilas. Nur ves-
-
-pere li ne povas dormi kaj ploras. Ludu al la infanoj en la ka-
-
-stelo kaj poste vi povas veni al ni. Mi diros al vi la adreson.”
+pere li ne povas dormi kaj ploras. Ludu al la infanoj en la kastelo kaj poste vi povas veni al ni. Mi diros al vi la adreson.”
 
 ”Kiel vi deziras,” konsentis Gasparo. ”Kaj kiam mi venu al
 
@@ -15938,7 +13018,6 @@ ne ĝuis grandan estimon. Li ŝajnigis ja strebadon pri bono
 
 **306**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -15950,25 +13029,17 @@ En la signo de pluvombrelo oni regis plu. Sed la rezista
 
 movado viglis per nova pasia aktiveco. La trompita popolo
 
-rekuracis siajn vundojn, preparante sin por venĝo. La labo-
-
-ristaj kluboj ”Morton al tiranoj” certigadis sin, ke tio ne de-
+rekuracis siajn vundojn, preparante sin por venĝo. La laboristaj kluboj ”Morton al tiranoj” certigadis sin, ke tio ne de-
 
 vas okazi tuj. Post unu jaro, post du, post dek. Foje venos tiu tago.
 
-Gasparon ne ĝenis, ke la reĝo promenadas kun pluvom-
-
-brelo. Ne ĝenis lin, ke okaze de ĉiu karnavalo ridindigadis la
+Gasparon ne ĝenis, ke la reĝo promenadas kun pluvombrelo. Ne ĝenis lin, ke okaze de ĉiu karnavalo ridindigadis la
 
 reĝon masko, kiu al ĉiuj en la ĉirkaŭo senĉese etendadis la
 
-manojn. Sed li malamis la reĝon tial, ĉar li mem montris ek-
+manojn. Sed li malamis la reĝon tial, ĉar li mem montris ekzemplon por avareco kaj senskrupula pliriĉigado. Post bul-
 
-zemplon por avareco kaj senskrupula pliriĉigado. Post bul-
-
-vardo du Temple nove elkreskis du paperfabrikoj kaj sapfa-
-
-rejo. En tiuj tri ŝtataj fabrikoj laboris du mil infanoj el Parizo kaj ĉirkaŭaĵo. La reĝo, kiu tion permesas, meritas nek respekton, nek kompaton.
+vardo du Temple nove elkreskis du paperfabrikoj kaj sapfarejo. En tiuj tri ŝtataj fabrikoj laboris du mil infanoj el Parizo kaj ĉirkaŭaĵo. La reĝo, kiu tion permesas, meritas nek respekton, nek kompaton.
 
 ”ĉu en la palaco estos nur infanoj?”
 
@@ -15990,7 +13061,6 @@ En ampleksa salonego, kies larĝaj fenestroj rigardis al la
 
 parko, estis longaj tabloj en formo de hufofero kaj ĉe ili sidis **307**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16018,13 +13088,9 @@ etendatan.
 
 sed mi vidis ĝin kaj iu diris ion pri ĝi al mi,” diris la reĝo. ”La infanoj scivolas kaj miaj gastoj ankaŭ.”
 
-”Mi timas, Siro, ke mi ne montros al vi perfektan prezen-
+”Mi timas, Siro, ke mi ne montros al vi perfektan prezentaĵon pri mia ludo, kiam mi devas roli sola.”
 
-taĵon pri mia ludo, kiam mi devas roli sola.”
-
-”Mi havas intereson ĉefe pri vi. Kion vi opinias pri la nun-
-
-tempa progreso? ĉu sur bulvardo du Temple estas jam ankaŭ
+”Mi havas intereson ĉefe pri vi. Kion vi opinias pri la nuntempa progreso? ĉu sur bulvardo du Temple estas jam ankaŭ
 
 pavimo?”
 
@@ -16036,13 +13102,9 @@ pavimo?”
 
 estas instalataj unue en kvartaloj de la riĉuloj. En la malriĉaj ne.”
 
-”Eble tial,” konkludis la reĝo, ”ĉar tie loĝas malpli da ho-
+”Eble tial,” konkludis la reĝo, ”ĉar tie loĝas malpli da homoj.”
 
-moj.”
-
-Deburau kapneis. ”Nur se ili estus formortintaj pro ˛ole-
-
-ro.”
+Deburau kapneis. ”Nur se ili estus formortintaj pro ˛olero.”
 
 ”La popolo ne kondutis dum la epidemio dece,” diris la
 
@@ -16050,17 +13112,12 @@ reĝo afliktite. ”Ili ruinigis la palacon de la arkiepiskopo, ili survestis or
 
 **308**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Ni ĉiuj pensis, ke ni freneziĝos, Siro, kaj al iuj tio eĉ oka-
+”Ni ĉiuj pensis, ke ni freneziĝos, Siro, kaj al iuj tio eĉ okazis. Estis karnavalo, se la reĝa Majesto bonvolas memori. La
 
-zis. Estis karnavalo, se la reĝa Majesto bonvolas memori. La
-
-homoj mortadis en maskoj sur la stratoj. Ankaŭ multajn Pie-
-
-rotojn mi vidis tiel morti.”
+homoj mortadis en maskoj sur la stratoj. Ankaŭ multajn Pierotojn mi vidis tiel morti.”
 
 ”Bone, bone,” mansvingis la reĝo. ”Mi ne koleros, ĉion mi
 
@@ -16076,9 +13133,7 @@ La reĝo forlasis lin. Gasparo finis la preparon kaj atendis.
 
 Post nelonga paŭzo oni vokis lin.
 
-Per kelkaj kaprioloj li atingis la podion. La malgranda pu-
-
-bliko lin bonvenigis per ĝoja aplaŭdo. Dependante nur de si
+Per kelkaj kaprioloj li atingis la podion. La malgranda publiko lin bonvenigis per ĝoja aplaŭdo. Dependante nur de si
 
 mem, Gasparo prezentis nur kelkajn solo-scenojn. La plej
 
@@ -16098,43 +13153,30 @@ infanoj ebriiĝis — kaj nun ili vomas.”
 
 Gasparo rapide deŝminkis kaj alivestis sin. Li ne volis tie ĉi
 
-resti, sed lia akompananto igis lin eksidi inter la maldensi-
-
-ĝintajn vicojn de infanoj kaj vespermanĝi. La reĝo alikaze
+resti, sed lia akompananto igis lin eksidi inter la maldensiĝintajn vicojn de infanoj kaj vespermanĝi. La reĝo alikaze
 
 kolerus. La infanoj, kiuj ne tro naŭzis, spitis kuraĝe la sekvin-309
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-tan programon. Duopo estis finanta dueton, kiam subite ek-
-
-ŝanceliĝis voĉoj de la kantistoj. Tra la apertitaj fenestroj penetris internen refreno de la kontraŭfilipa kanzono:
+tan programon. Duopo estis finanta dueton, kiam subite ekŝanceliĝis voĉoj de la kantistoj. Tra la apertitaj fenestroj penetris internen refreno de la kontraŭfilipa kanzono:
 
 *Jen la reĝo po-po*
 
 *po-po-populara…*
 
-”Fermu la fenestrojn!” vokis iu. La kantistoj klopodis daŭri-
-
-gi kaj persekutis sin reciproke en intervalo de du taktoj. De-
+”Fermu la fenestrojn!” vokis iu. La kantistoj klopodis daŭrigi kaj persekutis sin reciproke en intervalo de du taktoj. De-
 
 burau levis la kapon de la telero kaj aŭskultis. La dungitaj
 
-misuloj versimile ne kontentiĝis kun la rekompenco kaj ve-
-
-nis koncerti al la reĝo sub fenestron. La duopo vane klopodis
+misuloj versimile ne kontentiĝis kun la rekompenco kaj venis koncerti al la reĝo sub fenestron. La duopo vane klopodis
 
 ilin superkrii.
 
-”Morto al aristokratoj!” eksonis tute klare. Kaj kiel krisig-
+”Morto al aristokratoj!” eksonis tute klare. Kaj kiel krisigno ektintegis la fenestra tabulo kaj sub bato de ŝtono ŝutiĝis
 
-no ektintegis la fenestra tabulo kaj sub bato de ŝtono ŝutiĝis
-
-vitro. Inter la infanoj aŭdiĝis ploro kaj krio, sed neniu aten-
-
-tis ilin.
+vitro. Inter la infanoj aŭdiĝis ploro kaj krio, sed neniu atentis ilin.
 
 ”Kie estas husaroj?” aŭdis Gasparo ekscitiĝi la reĝon.
 
@@ -16142,9 +13184,7 @@ tis ilin.
 
 ”Jam ili intervenas, via reĝa Moŝto.”
 
-Gasparo eksakris kaj rigardis el fenestro. En lumo de tor-
-
-ĉoj brilis bajonetoj kaj orizitaj uniformoj. Soldatoj elpuŝis la ekscesantojn al la parko. Eksonis kelke da pafoj.
+Gasparo eksakris kaj rigardis el fenestro. En lumo de torĉoj brilis bajonetoj kaj orizitaj uniformoj. Soldatoj elpuŝis la ekscesantojn al la parko. Eksonis kelke da pafoj.
 
 ”Daŭrigu!” ordonis la kortegano al kantistoj. ”Sur lokojn!”
 
@@ -16152,21 +13192,16 @@ sonis la vokado.
 
 Sed la fotelo de Gasparo jam estis vaka.
 
-En la tenebra antaŭĉambro li ĵetis sur sin kitelon kaj surka-
-
-pen metis nigran ĉapeton.
+En la tenebra antaŭĉambro li ĵetis sur sin kitelon kaj surkapen metis nigran ĉapeton.
 
 ”Atentu!” diris Margot al la malsana knabo, kiu suferis pro
 
 **310**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-doloroj en la tuta korpo. ”Atentu, aperos Pieroto, kiu tiel pla-
-
-ĉis al vi…”
+doloroj en la tuta korpo. ”Atentu, aperos Pieroto, kiu tiel plaĉis al vi…”
 
 La knabo ĉesis plori kaj fiksrigardis la pordon. Lia patrino,
 
@@ -16192,9 +13227,7 @@ feliĉe ridetas. Sed dum lia patrino kunpremas la lipojn, por ne ekplori pro dan
 
 akompanas la paŝojn de Gasparo per malseketaj okuloj.
 
-Pieroto anhelante haltis. Margot volas lin danki, sed mal-
-
-granda Jakobo etendas al li peteme la manojn, kvazaŭ por
+Pieroto anhelante haltis. Margot volas lin danki, sed malgranda Jakobo etendas al li peteme la manojn, kvazaŭ por
 
 preĝi.
 
@@ -16212,7 +13245,6 @@ Gasparo proksimiĝas kaj Jakobo kaptas per la etaj manplatoj
 
 **311**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16238,15 +13270,11 @@ al li demeti la kitelon.
 
 ”Sed morgaŭ mi ludos. Mi ne povas veni,” timas Pieroto.
 
-Eniras la patrino de la knabo kaj senvorte premas liajn ma-
-
-nojn. Gasparo hejmeniras kaj portas enanime ĝojigan senton,
+Eniras la patrino de la knabo kaj senvorte premas liajn manojn. Gasparo hejmeniras kaj portas enanime ĝojigan senton,
 
 ke li faris ion utilan. Li ascendas en mallumo laŭ la ŝtuparo,
 
-sed apud la pordo li stumblas je io. La staturo leviĝas. Li es-
-
-tas la juna poeto.
+sed apud la pordo li stumblas je io. La staturo leviĝas. Li estas la juna poeto.
 
 ”Kion vi faras ĉi tie, Aloizio?”
 
@@ -16270,15 +13298,12 @@ sin kaj kaptas Aloizion je la jako. ”Kion vi volas diri al mi?”
 
 ”Iru, Gasparo,” diras delikate la poeto kaj prenas lin je la
 
-kubuto. ”Mi devas hodiaŭ multon rakonti al vi — pri la do-
-
-loro, kiu purigas kaj fortigas.”
+kubuto. ”Mi devas hodiaŭ multon rakonti al vi — pri la doloro, kiu purigas kaj fortigas.”
 
 ”Kio okazis kun Désirée?”
 
 **312**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16286,19 +13311,14 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”ĉu ŝi revenis?”
 
-”Jes. Por mallonga tempo. Poste ŝi transdonis al ni la infa-
-
-nojn.”
+”Jes. Por mallonga tempo. Poste ŝi transdonis al ni la infanojn.”
 
 ”Kien ŝi iris?”
 
-”Malsupre atendis la ventumil-pentristo. Kune ili forvetu-
-
-ris per kaleŝo.” Ili descendas. La larĝa, libera nokto ilin invitas per konsola spirado.
+”Malsupre atendis la ventumil-pentristo. Kune ili forveturis per kaleŝo.” Ili descendas. La larĝa, libera nokto ilin invitas per konsola spirado.
 
 **313**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16322,9 +13342,7 @@ Plejparton de la tago la infanoj pasigas ĉe la najbaroj.
 
 Helpe de Viktoro Hugo Gasparo sukcesis akiri por Aloizio
 
-postenon de korektisto en negrava gazeto. Li kuraĝiĝis deno-
-
-ve. Kiam kaŝeldonisto proponis al li por liaj poemoj en pro-
+postenon de korektisto en negrava gazeto. Li kuraĝiĝis denove. Kiam kaŝeldonisto proponis al li por liaj poemoj en pro-
 
 
 havis titolon ”Gasparo de la nokto.”
@@ -16335,9 +13353,7 @@ havis titolon ”Gasparo de la nokto.”
 
 ”Tamen ĝi restos en la mondo por ĉiam.”
 
-”Malnova, ŝima, de vermoj tramordita. Mi enskribos de-
-
-diĉon al Viktoro Hugo. Lia nomo vivos certe ankoraŭ post
+”Malnova, ŝima, de vermoj tramordita. Mi enskribos dediĉon al Viktoro Hugo. Lia nomo vivos certe ankoraŭ post
 
 cent jaroj, mian libron oni delonge forgesos. Sed kiam iu ĝin
 
@@ -16349,13 +13365,10 @@ Hugo.”
 
 **314**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Kaj el lia sekiĝinta voĉo, strangolata de ftizo, sonas eta es-
-
-pero je plilongigo de la vivo lante estingiĝanta.
+Kaj el lia sekiĝinta voĉo, strangolata de ftizo, sonas eta espero je plilongigo de la vivo lante estingiĝanta.
 
 ”Aĉetu ’Malgranda okazaĵo de granda artisto’! Nur dek
 
@@ -16389,9 +13402,7 @@ malice hodiaŭ li elprenas el la tabakujo cigaredon kaj donas
 
 ĝin al Charton: ”Prenu ĝin, vi fumas!” ĉiuj kliniĝas super
 
-ŝmj kaj subridas. Pieroto hodiaŭ evidente bonhumore-
-
-gas. La teatraĵo estas bonega. Sur la tableto de Pieroto kuŝas
+ŝmj kaj subridas. Pieroto hodiaŭ evidente bonhumoregas. La teatraĵo estas bonega. Sur la tableto de Pieroto kuŝas
 
 bukedeto da konvaloj.
 
@@ -16401,21 +13412,16 @@ bukedeto da konvaloj.
 
 amiko. Laplace estis fariĝonta patro.
 
-”Necesas multe da obstino por akiri virinon, sed pli mul-
-
-te por defendi sntraŭ ŝi.”
+”Necesas multe da obstino por akiri virinon, sed pli multe por defendi sntraŭ ŝi.”
 
 ”Mi finis kun tiu dolĉa brikabrako,” murmuretas Gasparo,
 
-ŝminkante siajn frunton kaj vizaĝon. ”Nek larmojn, nek sus-
-
-pirojn, nek ĵurojn mi volas.”
+ŝminkante siajn frunton kaj vizaĝon. ”Nek larmojn, nek suspirojn, nek ĵurojn mi volas.”
 
 En la tago de la premiero estas en Funambules multe da
 
 **315**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16423,9 +13429,7 @@ belaj virinoj. Eble multaj el ili fierus, se ili povus kalkuli la gloran aktoron
 
 nek Georgo Sand nek Jozefino Duplessis nomata ”La damo
 
-kun kamelioj.” La tutan salonegon brilblindigas per sia ĉar-
-
-mo Maria de Mandrot, ornamo de la plej belaj salonoj, unu
+kun kamelioj.” La tutan salonegon brilblindigas per sia ĉarmo Maria de Mandrot, ornamo de la plej belaj salonoj, unu
 
 el la virinoj, kun kiuj aperi enteatre signifas sukceson kaj envion.
 
@@ -16433,17 +13437,11 @@ el la virinoj, kun kiuj aperi enteatre signifas sukceson kaj envion.
 
 ”Montru! Diable, kia virino! Gasparo, rigardu!”
 
-Gasparo mansvingas. Sed dum la prezentado li havas su-
+Gasparo mansvingas. Sed dum la prezentado li havas sufiĉe da okazoj ekrigardi al ŝia loĝio. Belega, li opinias, sed ne alia, ol statuo aŭ pentraĵo. Kien vi forpasis, tempoj, kiam oni enamiĝis je la unua vido?
 
-fiĉe da okazoj ekrigardi al ŝia loĝio. Belega, li opinias, sed ne alia, ol statuo aŭ pentraĵo. Kien vi forpasis, tempoj, kiam oni enamiĝis je la unua vido?
+Kiam la prezentado finiĝis kaj Pieroto dankas pro la aplaŭdo, Maria de Mandrot staras ĉe balustrado de la loĝio, gracila
 
-Kiam la prezentado finiĝis kaj Pieroto dankas pro la aplaŭ-
-
-do, Maria de Mandrot staras ĉe balustrado de la loĝio, gracila
-
-kaj svelta kiel nigra tigo. Kvazaŭ mem la tenebro post ŝi pre-
-
-nus sur sin la vibrantan rebrilon de ŝia beleco. Multaj viroj el la publiko rigardas ŝin.
+kaj svelta kiel nigra tigo. Kvazaŭ mem la tenebro post ŝi prenus sur sin la vibrantan rebrilon de ŝia beleco. Multaj viroj el la publiko rigardas ŝin.
 
 La kurtenego falas lastfoje.
 
@@ -16455,41 +13453,28 @@ jam nenio restas al mi.”
 
 La premiero denove triumfis. Bertrand kalkulas la monon.
 
-La aktoroj pave promenas. Nur Gasparo revenas en la veste-
+La aktoroj pave promenas. Nur Gasparo revenas en la vestejon kun la kapo klinita.
 
-jon kun la kapo klinita.
-
-Apenaŭ li demetis la perukon, iu frapas la pordon. La bi-
-
-letistino, kies larmoj savis iam por la teatro la grandan Pieroton. La jaroj alportantaj al Gasparo rikolton de gloro, tavoliĝis en ŝia vizaĝo pro spuroj de kaŝataj tristoj. Sed en la okuloj
+Apenaŭ li demetis la perukon, iu frapas la pordon. La biletistino, kies larmoj savis iam por la teatro la grandan Pieroton. La jaroj alportantaj al Gasparo rikolton de gloro, tavoliĝis en ŝia vizaĝo pro spuroj de kaŝataj tristoj. Sed en la okuloj
 
 **316**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-senĉese flagras admiro al la proksima kaj tamen tiel dista ak-
-
-toro.
+senĉese flagras admiro al la proksima kaj tamen tiel dista aktoro.
 
 ”Kio okazis?”
 
-La biletistino donas al li karteton, kaj Gasparo legas ”Bou-
-
-levard des Capucines, 4.”
+La biletistino donas al li karteton, kaj Gasparo legas ”Boulevard des Capucines, 4.”
 
 ”Kies vizitkarto tio estas?”
 
 ”De la belega damo,” flustras la virino kaj kisas perrigarde
 
-la vizaĝon de Pieroto en spegulo. ”Ekstere atendis multaj vi-
+la vizaĝon de Pieroto en spegulo. ”Ekstere atendis multaj viroj por vidi ŝin.”
 
-roj por vidi ŝin.”
-
-Gasparo lasis fali la vizitkarton. Li metis sian vizaĝon en-
-
-manen. La biletistino alpaŝas nekuraĝe al li.
+Gasparo lasis fali la vizitkarton. Li metis sian vizaĝon enmanen. La biletistino alpaŝas nekuraĝe al li.
 
 ”Kio okazis al vi? ĉu vi ne rapidas hodiaŭ hejmen?”
 
@@ -16509,9 +13494,7 @@ akvofluo ŝiras ankaŭ bordojn.”
 
 ”Ne. ĉu vi malfermos al mi alian elirejon?”
 
-Li trairas haste preter kelkaj brakumoj, rifuzas kelkajn in-
-
-vitojn al vespermanĝo kaj foriras tra flanka elirejo, la buke-
+Li trairas haste preter kelkaj brakumoj, rifuzas kelkajn invitojn al vespermanĝo kaj foriras tra flanka elirejo, la buke-
 
 deton da konvaloj enmane.
 
@@ -16519,43 +13502,30 @@ deton da konvaloj enmane.
 
 ”Bonan nokton, Aimée. Pardonu, ke iom mi forgesis …”
 
-La soleca virino staras longe ĉe la elirejo sen ŝlosi. Gaspa-
+La soleca virino staras longe ĉe la elirejo sen ŝlosi. Gasparo iras al Sejno. Li bezonas spacon, larĝan spacon, altan fir-
 
-ro iras al Sejno. Li bezonas spacon, larĝan spacon, altan fir-
-
-mamenton super si. Li ne estas kontenta pri si. Li batalas kon-
-
-traŭ imagobildoj. La steloj formas brilantan kolieron kaj se
+mamenton super si. Li ne estas kontenta pri si. Li batalas kontraŭ imagobildoj. La steloj formas brilantan kolieron kaj se
 
 **317**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Gasparo mallevas la okulojn, li trovas ĝin sur la river-sufra-
-
-co.
+Gasparo mallevas la okulojn, li trovas ĝin sur la river-sufraco.
 
 La refoja prezentado de la nova teatraĵo estis same sukcesa.
 
-En la vestgardejo bonodoras la konvaloj, sed la loĝio malple-
-
-nas. Sed dum la paŭzo Laplace sciigas: ”Do tamen ŝi venis!”
+En la vestgardejo bonodoras la konvaloj, sed la loĝio malplenas. Sed dum la paŭzo Laplace sciigas: ”Do tamen ŝi venis!”
 
 Maria de Mandrot estas pli pala kaj pli bela ol hieraŭ. ŝi
 
-estas sola. ŝi aspektas kvazaŭ malsana, pririgardas ŝin la ak-
-
-toroj.
+estas sola. ŝi aspektas kvazaŭ malsana, pririgardas ŝin la aktoroj.
 
 Mi ne estas juna frenezulo, opinias Gasparo, mi ne falos en
 
 logejon, eĉ se ĝi estus el diamantoj. Li volus tion diri fine de la prezentado al la belulino kun fieregaj okuloj. Sed la loĝio
 
-estas malplena. Kelkaj konvaloj velkas surrande de la balu-
-
-strado.
+estas malplena. Kelkaj konvaloj velkas surrande de la balustrado.
 
 Post prezentado Gasparo atendas sciigon, sed nenio venas.
 
@@ -16571,9 +13541,7 @@ Kelkaj vesperoj pasis. La loĝio restis malplena. La sesan tagon, kiam Gasparo e
 
 ”Vi ne mortis?” ekvortis la surprizita Gasparo.
 
-”Ne, sinjoro,” diris gaje la knabo. ”Mi resaniĝis. Mi frek-
-
-ventas lernejon.”
+”Ne, sinjoro,” diris gaje la knabo. ”Mi resaniĝis. Mi frekventas lernejon.”
 
 ”ĉu vi ne sentas dolorojn?”
 
@@ -16585,7 +13553,6 @@ ventas lernejon.”
 
 **318**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16601,15 +13568,11 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Kie loĝas tiu damo?”
 
-”Sur bulvardo de Capucins, numero kvar. ŝi estas tre bra-
-
-va. Mi ricevis de ŝi jam multajn ludilojn. La panjo iradas kudri vestaĵojn por ŝi.”
+”Sur bulvardo de Capucins, numero kvar. ŝi estas tre brava. Mi ricevis de ŝi jam multajn ludilojn. La panjo iradas kudri vestaĵojn por ŝi.”
 
 ”Kiu do sendis vin? La panjo aŭ fraŭlino Maria?”
 
-”La fraŭlino diris, ke kiam vi estis ĉe mi — kaj kiam vi ĉiu-
-
-sabate vizitadas hospitalon — ke eble vi venos ankaŭ al ŝi. Mi
+”La fraŭlino diris, ke kiam vi estis ĉe mi — kaj kiam vi ĉiusabate vizitadas hospitalon — ke eble vi venos ankaŭ al ŝi. Mi
 
 devas vin peti pri tio.”
 
@@ -16623,17 +13586,13 @@ li la knabo fideman rigardon.
 
 diris Gasparo impete.
 
-La knabo ekjubilis, turnis sin, kaj jam videblis nur liaj kal-
-
-kanoj. Gasparo levis la manon, sed jam estis malfrue. Li for-
+La knabo ekjubilis, turnis sin, kaj jam videblis nur liaj kalkanoj. Gasparo levis la manon, sed jam estis malfrue. Li for-
 
 gesis demandi, kion faras la amikino de la patrino — Margot.
 
 Numero kvar, bulvardo de Kapucenoj.
 
-La koĉero saltis malsupren kaj apertas la pordeton. Gaspa-
-
-ro momenton staras antaŭ la enirejo, sed la pordo malfer-
+La koĉero saltis malsupren kaj apertas la pordeton. Gasparo momenton staras antaŭ la enirejo, sed la pordo malfer-
 
 miĝas pli frue ol li sonorigis. Olda mastrino invitas lin kaj
 
@@ -16643,7 +13602,6 @@ Granda vestiblo kun blanka krado kaj kun volvrampaj
 
 plantoj. Salono inkrustita per kverkligno kun reliefaj kaj oraj **319**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16653,9 +13611,7 @@ el purpura veluro. Kristala lustro plena de kandeloj.
 
 La okuloj de Gasparo vage migras de unu objekto al la alia
 
-kaj lia miro pligrandiĝas. Drapiraĵo en la kontraŭa pordo ek-
-
-moviĝis. ŝi aspektas tiel, kiel li vidis ŝin en la loĝio. Juna, svelta, nigre vestita, kun briliantoj en la hararo. Sed ŝia rigardo estas agrabla kaj bonkora. Plej belaj estas ŝiaj okuloj: viglaj, mirantaj, maltrankvilaj, virgaj, kvankam certe ili kaŝas sekreton.
+kaj lia miro pligrandiĝas. Drapiraĵo en la kontraŭa pordo ekmoviĝis. ŝi aspektas tiel, kiel li vidis ŝin en la loĝio. Juna, svelta, nigre vestita, kun briliantoj en la hararo. Sed ŝia rigardo estas agrabla kaj bonkora. Plej belaj estas ŝiaj okuloj: viglaj, mirantaj, maltrankvilaj, virgaj, kvankam certe ili kaŝas sekreton.
 
 ”ĉu vi malsanas?” surprizite demandas Gasparo.
 
@@ -16663,31 +13619,23 @@ moviĝis. ŝi aspektas tiel, kiel li vidis ŝin en la loĝio. Juna, svelta, nigr
 
 ”Mi malsaniĝis pro la sopiro ekkoni vin. ĉu vi sidiĝos?”
 
-Fotelo estas tegita per ĉina silko ĉerizkolora. ”ĉu vi ne fu-
-
-ĝos de mi?” ŝi etendas la blankan polmon al li. Li ekpremas
+Fotelo estas tegita per ĉina silko ĉerizkolora. ”ĉu vi ne fuĝos de mi?” ŝi etendas la blankan polmon al li. Li ekpremas
 
 ĝin kaj premas aventuron.
 
 ”ĉu vi opinias, ke mi scipovas kuraci?”
 
-”Por mia malsano mi scias nur unu medikamenton — ĝo-
-
-jon kaj konscion, ke vi estas vivanta. En via vizaĝo estas tiom da vivo. Mi volas vin aŭdi.”
+”Por mia malsano mi scias nur unu medikamenton — ĝojon kaj konscion, ke vi estas vivanta. En via vizaĝo estas tiom da vivo. Mi volas vin aŭdi.”
 
 ”Mi ne kapablas paroli.”
 
-”Aŭdi vian koron, amiko Pieroto?” ŝi verŝis vinon en kris-
-
-talajn glasojn. ”Havi Pieroton nur por mi mem — tion mi de-
+”Aŭdi vian koron, amiko Pieroto?” ŝi verŝis vinon en kristalajn glasojn. ”Havi Pieroton nur por mi mem — tion mi de-
 
 ziris.” Gasparo trinkas la unuan vingluton el la kristalo.
 
 El la okuloj de Maria malaperas la virgeco kaj restas en ili
 
-mistero. Kiam ŝi ekstaris, voluptemo ekflagris el ŝia tuta viza-
-
-ĝo. Gasparo volas fronti al ŝi, kaj ankaŭ ekstaras. Sed ŝiaj al-logaj okuloj jam alproksimiĝis al lia vango. ŝi alpremiĝas al li kiel vento.
+mistero. Kiam ŝi ekstaris, voluptemo ekflagris el ŝia tuta vizaĝo. Gasparo volas fronti al ŝi, kaj ankaŭ ekstaras. Sed ŝiaj al-logaj okuloj jam alproksimiĝis al lia vango. ŝi alpremiĝas al li kiel vento.
 
 ŝia vango deiĝas, kvazaŭ ŝi volus vidi sian kison. ĉu tial
 
@@ -16695,13 +13643,10 @@ tiom da abnegaciado, Gasparo, tial tiom da mortaj tagoj, por
 
 **320**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ke iam venu feino kun diamantoj en la hararo? ŝia pura van-
-
-go bonodoras, la korpo floras. Super la kapo cirkulas ilumi-
+ke iam venu feino kun diamantoj en la hararo? ŝia pura vango bonodoras, la korpo floras. Super la kapo cirkulas ilumi-
 
 nita kristalo. Ardanta spiro intermiksiĝas reciproke. Gasparo
 
@@ -16719,19 +13664,13 @@ li venadas gaje, ofte li kantas — sed denove foriras kaj longe
 
 ne revenas.
 
-”Kial la patro ridas?” demandas la knabino sinjoron Aloi-
-
-zion.
+”Kial la patro ridas?” demandas la knabino sinjoron Aloizion.
 
 ”ĉar li estas feliĉa.”
 
-Kaj adiaŭante Gasparon, mem pli kaj pli malforta kaj mal-
+Kaj adiaŭante Gasparon, mem pli kaj pli malforta kaj malsana, li diradas: ”Vi trovis poemon. Vivu por la poezio!”
 
-sana, li diradas: ”Vi trovis poemon. Vivu por la poezio!”
-
-Gasparo iras, sed la konsilo lin ne kontentigas. ĉu mi per-
-
-dis la vojon? Tamen mi volis la vivon, ne la poezion. Ne nur
+Gasparo iras, sed la konsilo lin ne kontentigas. ĉu mi perdis la vojon? Tamen mi volis la vivon, ne la poezion. Ne nur
 
 la brileton kaj florodoron, sed ankaŭ la homan animon, ne
 
@@ -16743,15 +13682,12 @@ li akceptas ĝin eĉ kontraŭ sia volo, li alproprigas ĝin, kvazaŭ li volus pe
 
 La unua estas la plej riĉa. En ĝi enas kurtenoj el blanka
 
-muslino, konverĝantaj en arĝentan rozon, enestas en ĝi gon-
-
-dolo el citrona ligno, puntoj, blanka tenero. Se vi rigardas iom malsupren, vi trovas blankan tapiŝon similan al neĝoplena
+muslino, konverĝantaj en arĝentan rozon, enestas en ĝi gondolo el citrona ligno, puntoj, blanka tenero. Se vi rigardas iom malsupren, vi trovas blankan tapiŝon similan al neĝoplena
 
 gazono kun disĵetitaj someraj rozoj. Alta horloĝo tiktakas. Kaj apud via ŝultro spiras la plej bela buŝo de Parizo.
 
 **321**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16783,9 +13719,7 @@ kaj sur ŝiaj lipoj estas fremdeca rideto. ŝi eskapas de li. Li devas ektuŝi �
 
 kun sia animo. Alifoje ŝi intimas, ridas pri liaj ideoj kaj teatraĵoj, aŭskultas pri la vojaĝado surŝnure tra la tuta Eŭropo.
 
-”ĉu ankaŭ mi rakontu al vi mian pasintecon?” ŝi deman-
-
-das.
+”ĉu ankaŭ mi rakontu al vi mian pasintecon?” ŝi demandas.
 
 ”Mi ne bezonas ĝni. La sekreto mntentigas.”
 
@@ -16795,43 +13729,30 @@ das.
 
 ke iu feliĉo daŭras eterne.”
 
-Denove ŝi silentas. ŝia mano leviĝas kaj karesas lian hara-
-
-ron, sed la lipoj silentas. Kial provoki la futuron, kiam la nuntempo estas tiel nekredebla?
+Denove ŝi silentas. ŝia mano leviĝas kaj karesas lian hararon, sed la lipoj silentas. Kial provoki la futuron, kiam la nuntempo estas tiel nekredebla?
 
 Kiel belas dum tiuj tagoj Parizo. La arboj sur itala placo
 
-pompas per verdaĵo, la blua firmamento gaje sin volbas su-
-
-per la placo de Bastilo, en ĉiuj fenestroj brilas la suno. Gas-
+pompas per verdaĵo, la blua firmamento gaje sin volbas super la placo de Bastilo, en ĉiuj fenestroj brilas la suno. Gas-
 
 **322**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-paro enteatre estas plena de energio. Post la tagoj de ofen-
-
-diĝemo venas momentoj, kiuj plenas de kamaradeco kaj
+paro enteatre estas plena de energio. Post la tagoj de ofendiĝemo venas momentoj, kiuj plenas de kamaradeco kaj
 
 komprenemo. Por ĉiu li havas kuraĝigan vorton. Li volas vidi
 
 ĉirkaŭ si kiom eble plej multe da feliĉo. Nur al Aloizio jam li ne povas helpi. En la tago, kiam oni nomumis la povrulon
 
-bibliotekisto, Gasparo transdonas lin al flegistoj en hospita-
-
-lo, ĝisoste magran.
+bibliotekisto, Gasparo transdonas lin al flegistoj en hospitalo, ĝisoste magran.
 
 ”Ftizo,” murmuretis kuracisto. ”Progresinta tuberkulozo.”
 
-Ege li bedaŭras Aloizion. Kiom da mizeroj ĉirkaŭ li tiel va-
+Ege li bedaŭras Aloizion. Kiom da mizeroj ĉirkaŭ li tiel vane batalas kaj tiel amare estas venkitaj. La tristo subfosas ĝojon, kiam vespere li rapidas al bulvardo de Kapucenoj. Li so-
 
-ne batalas kaj tiel amare estas venkitaj. La tristo subfosas ĝojon, kiam vespere li rapidas al bulvardo de Kapucenoj. Li so-
-
-norigis. Sed la mastrino komunikas al li, ke la sinjorino ho-
-
-diaŭ malsanas kaj ne povas lin akcepti. Enfenestre estas lumo.
+norigis. Sed la mastrino komunikas al li, ke la sinjorino hodiaŭ malsanas kaj ne povas lin akcepti. Enfenestre estas lumo.
 
 Se li disrompus la vitron, eble li ekaŭdus ridon. Li paŝas sur
 
@@ -16849,19 +13770,14 @@ mian mondon surbulvardan mi ne perfidis. La teatron mi ne
 
 trompis. Al miaj infanoj mi restis fidela. Kaj tamen estis en mi unu klara ideo kiam mi restis sola, pli sincera ol mi mem ol
 
-pli frue. Kien ĝi malaperis? Kiun mi damaĝis? Tutan semaj-
-
-non li ne kuraĝis frapi la konatan pordon. Kiam denove tien
+pli frue. Kien ĝi malaperis? Kiun mi damaĝis? Tutan semajnon li ne kuraĝis frapi la konatan pordon. Kiam denove tien
 
 li venis, li ekvidis stari ĉe trotuaro belan blukoloran kaleŝon.
 
-En ĝi sidis Maria kun nekonata junulo. ŝi ekvidis lin kaj el-
-
-kliniĝis.
+En ĝi sidis Maria kun nekonata junulo. ŝi ekvidis lin kaj elkliniĝis.
 
 **323**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16877,25 +13793,17 @@ amplene. Demandon darfas ankaŭ la viro enkaleŝe. Gasparo
 
 vidas la okulojn de Maria, belajn, elokventajn; ili malkaŝas
 
-hodiaŭ sian sekreton kaj enhavas peton: amiko Pieroto, ek-
+hodiaŭ sian sekreton kaj enhavas peton: amiko Pieroto, ekkomprenu kaj iru…”
 
-komprenu kaj iru…”
-
-”Rosina estas la unua en la tuta lernejo,” respondas Piero-
-
-to. ”Karolo estis hieraŭ unuafoje en teatro.”
+”Rosina estas la unua en la tuta lernejo,” respondas Pieroto. ”Karolo estis hieraŭ unuafoje en teatro.”
 
 ”Tio estis por li certe granda impreso,” ridetas Maria.
 
 ”Mi petas, prenu por li tiun ĉi ludilon de mi!” Kaj ŝi donas
 
-al li belan pupon, fiksitan interne de la kaleŝo sur la porde-
+al li belan pupon, fiksitan interne de la kaleŝo sur la pordeto.
 
-to.
-
-”ĉu vi permesos?” ŝi turnas sin al la viro enkaleŝe. La junu-
-
-lo jesas kaj kisas ŝian manon. ”Ek!” vokas Maria al la koĉero.
+”ĉu vi permesos?” ŝi turnas sin al la viro enkaleŝe. La junulo jesas kaj kisas ŝian manon. ”Ek!” vokas Maria al la koĉero.
 
 Gasparo soliĝis sur la trotuaro. Li rerigardas. La mano de
 
@@ -16911,9 +13819,7 @@ la kuracisto.
 
 Tagon poste li renkontiĝas ĉelite de la morta amiko kun
 
-skulptisto David d’Angere, kiu venis pentri lian lastan portre-
-
-ton por medalioneto de la kompatinda patrino. La volumeto
+skulptisto David d’Angere, kiu venis pentri lian lastan portreton por medalioneto de la kompatinda patrino. La volumeto
 
 ”Gasparo de nokto” ĵus aperis. Sed la mortinto ne plu ekvidos
 
@@ -16925,25 +13831,19 @@ Post kiam oni alportis la ĉerkon el la kapelo, ekfuriozis
 
 **324**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ŝtormo. Kaj dum la pastro preĝis super la tombo, fulmoj kru-
-
-cis la ĉielon kiel en la poemo de Aloizio Bertrand.
+ŝtormo. Kaj dum la pastro preĝis super la tombo, fulmoj krucis la ĉielon kiel en la poemo de Aloizio Bertrand.
 
 **325**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Krimo
 
-Pro la krima karaktero de teatraĵoj prezentataj en iuj teat-
-
-roj, oni titolis bulvardon du Temple jam delonge per
+Pro la krima karaktero de teatraĵoj prezentataj en iuj teatroj, oni titolis bulvardon du Temple jam delonge per
 
 kromnomo ”krim-bulvardo”. La julia defilo en la jaro 1835
 
@@ -16953,9 +13853,7 @@ idilian solenon, okaze de kiu civitanoj ludis defendantojn de
 
 la ordo kaj la reĝo mem kun sia sekvantaro estis honoronta
 
-ilin per sia ĉeesto. Aktoroj, statistoj, kantistoj vokis je amik-koj; vendistinoj kun junaj laboristinoj ridis al siaj patroj, fratoj, amantoj. Oni solenis la kvinan datrevenon de la lasta re-
-
-volucio.
+ilin per sia ĉeesto. Aktoroj, statistoj, kantistoj vokis je amik-koj; vendistinoj kun junaj laboristinoj ridis al siaj patroj, fratoj, amantoj. Oni solenis la kvinan datrevenon de la lasta revolucio.
 
 Reĝo Ludoviko Filipo kun oficira korpuso kaj korteganoj
 
@@ -16963,9 +13861,7 @@ ekiris revui la tutan parizan garnizonon starantan laŭlonge de
 
 la bulvardoj. La sesa legio de la nacia gardo, kies membro kun
 
-aliaj estimataj anoj de miniteatroj iĝis ankaŭ Gasparo Debu-
-
-rau, viciĝis antaŭ Turka Kafejo, kiu plenis de iliaj familioj.
+aliaj estimataj anoj de miniteatroj iĝis ankaŭ Gasparo Deburau, viciĝis antaŭ Turka Kafejo, kiu plenis de iliaj familioj.
 
 Gasparo alkondukis tien ankaŭ siajn infanojn.
 
@@ -16977,13 +13873,10 @@ el la tabletoj. Gasparo ekhontis sub forto de ŝia rekta rigardo.
 
 ĉu ŝi scias pri lia vantema aventuro, pri lia tromemfido kaj la falo? Certe ŝi scias. Sed ŝiaj brunaj okuloj rigardis kviete kaj amike.
 
-”Mi serĉas nian biletistinon, mi volis konfidi al ŝi la infa-
-
-nojn,” li diris.
+”Mi serĉas nian biletistinon, mi volis konfidi al ŝi la infanojn,” li diris.
 
 **326**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -16991,9 +13884,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 kaj Rosinan je iliaj manoj. ”ĉu vi soifas, infanoj? De tie vi vidos bone. Kaj Karolo ĉi tie havas amikon. Kie estas Jakobo?”
 
-”Dankon,” ekridis Gasparo. ”Poste mi revenos por la infa-
-
-noj. Jam kvin jaroj pasis, ĉu vi rememoras?”
+”Dankon,” ekridis Gasparo. ”Poste mi revenos por la infanoj. Jam kvin jaroj pasis, ĉu vi rememoras?”
 
 Defore eksonis tamburoj kaj Gasparo rapidis al sia loko. La
 
@@ -17011,65 +13902,46 @@ La reĝo veturis lante laŭlonge de la unua vico kaj rigardis
 
 la vizaĝojn de la naciaj gardistoj kun afableco, post kiu estis timo. En la momento, kiam li troviĝis kun sia akompanantaro
 
-kontraŭ la Turka Kafejo, li levis la manon por saluti. Tiumo-
-
-mente ekvidis la gardistoj kaj la homoj malantaŭe en la kafe-
+kontraŭ la Turka Kafejo, li levis la manon por saluti. Tiumomente ekvidis la gardistoj kaj la homoj malantaŭe en la kafe-
 
 jo, kiel en la fenestro de tria etaĝo de la transa malnova domo blindige ekfulmis, laŭtiĝis multaj surditaj knaloj unu post la
 
 alia, elruliĝis fumnubo — kaj dum terurkrioj kaj doloroj, dum
 
-henado de vunditaj ĉevaloj en sangfluoj tordiĝis surtere vun-
-
-ditaj oficiroj, soldatoj, virinoj kaj infanoj. Marŝalo Mortier, generalo Lachasse kaj kune kun ili dek oficiroj kaj dudek soldatoj agoniis sur la pavimo.
+henado de vunditaj ĉevaloj en sangfluoj tordiĝis surtere vunditaj oficiroj, soldatoj, virinoj kaj infanoj. Marŝalo Mortier, generalo Lachasse kaj kune kun ili dek oficiroj kaj dudek soldatoj agoniis sur la pavimo.
 
 La gardistoj kure elviciĝis kaj portis dekojn da vunditoj en
 
 la kafejon, kiun oni ŝanĝis je lazareto. Terurigita, pala, la reĝo sinkis sur la fundon de la kaleŝo. Nenio okazis al li. Sur du lokoj de lia ĉapelo estis paftruoj.
 
-emado laŭtiĝis sur la tuta bulvardo, de ĉie alkuradis ho-
-
-moj, premiĝis ĉirkaŭ la sangflakoj, serĉis konatojn, ploregis,
+emado laŭtiĝis sur la tuta bulvardo, de ĉie alkuradis homoj, premiĝis ĉirkaŭ la sangflakoj, serĉis konatojn, ploregis,
 
 **327**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-vokis helpon. Dum la resto de la reĝa akompanantaro forraj-
-
-dis, policistoj kaj soldatoj invadis la domon apud la kafejo
+vokis helpon. Dum la resto de la reĝa akompanantaro forrajdis, policistoj kaj soldatoj invadis la domon apud la kafejo
 
 ”Mil Kolonoj”. Oni trovis la ”eksplod-maŝinon”, kiu konsistis
 
 el dudek kvin fusiloj, ŝargitaj per kugloj kaj kunigitaj per ka-nelo kun pulvo. Baldaŭ poste oni kaptis ankaŭ la farinton,
 
-korsikanon Fieschi. Komercisto Morey, kiu helpis al li kon-
-
-strui la mitralon, ja difektis konscie kvar pafiltubojn, por ke Fieschi pereu samtempe kun sia ago, kaj ne povu iun perfidi; sed tiu ĉi intenco jam ne sukcesis. Ili perfidis ankaŭ la trian helpanton, veturigiston Pepin, lante rajdintan antaŭ la kafejo; laŭ li Fieschi alcelis sian maŝinon.
+korsikanon Fieschi. Komercisto Morey, kiu helpis al li konstrui la mitralon, ja difektis konscie kvar pafiltubojn, por ke Fieschi pereu samtempe kun sia ago, kaj ne povu iun perfidi; sed tiu ĉi intenco jam ne sukcesis. Ili perfidis ankaŭ la trian helpanton, veturigiston Pepin, lante rajdintan antaŭ la kafejo; laŭ li Fieschi alcelis sian maŝinon.
 
 Preskaŭ ĉiuj familioj de la gardistoj estis sur teraso de la
 
 kafejo. Dum la kriado, kiu aŭdiĝis post la eksplodoj, ĉiu el ili aŭdis kriadi helpopetojn kaj doloran ĝemadon de siaj plej
 
-karaj. Kun teruro envizaĝe ili prempuŝiĝis en pasejo al la ka-
+karaj. Kun teruro envizaĝe ili prempuŝiĝis en pasejo al la kafejo, por ekscii la veron.
 
-fejo, por ekscii la veron.
-
-Ankaŭ Deburau kuris tien. Neniu sciis, ĉu la murdado fini-
-
-ĝis. La homoj faladis unu sur la alian pro hororo, sangado.
+Ankaŭ Deburau kuris tien. Neniu sciis, ĉu la murdado finiĝis. La homoj faladis unu sur la alian pro hororo, sangado.
 
 ”Gasparo!” aŭdiĝis impeta voĉo.
 
-Post la renversita tablo kaŭris virinoj. Margot premis am-
+Post la renversita tablo kaŭris virinoj. Margot premis ambaŭ infanojn al si tiel, ke ŝi ilin ŝirmis eĉ per sia korpo.
 
-baŭ infanojn al si tiel, ke ŝi ilin ŝirmis eĉ per sia korpo.
-
-”ĉu nenio okazis al vi?” ĉiuj virinoj estis palaj kaj timigi-
-
-taj.
+”ĉu nenio okazis al vi?” ĉiuj virinoj estis palaj kaj timigitaj.
 
 ”Kiu pafis? Atenco? ĉu estas mortigitoj? Kaj la reĝo?” oni
 
@@ -17087,7 +13959,6 @@ okazis al la infanoj. Sed apenaŭ li elspiris, denove li leviĝis.
 
 **328**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17095,23 +13966,17 @@ Rapide alvokitaj kuracistoj liveris al la vunditoj la unuan
 
 helpon. Hejmecaj ejoj de la kafejo plenis de lamentado kaj
 
-malbenado. Sed surbulvarde jam estis trankvilo kaj nur pur-
-
-puraj makuloj sur la pavimo rememorigis, kio ĉi tie okazis.
+malbenado. Sed surbulvarde jam estis trankvilo kaj nur purpuraj makuloj sur la pavimo rememorigis, kio ĉi tie okazis.
 
 Sur la militveturiloj estis mortigitoj forlasantaj la bulvardon de la krimo.
 
-Kiam Gasparo revenis al la teraso, Margot estis trankvili-
-
-ganta la timigitajn infanojn per gaja rakontado. Momenton li
+Kiam Gasparo revenis al la teraso, Margot estis trankviliganta la timigitajn infanojn per gaja rakontado. Momenton li
 
 staris flanke kaj observis ŝin. ŝi kondutis al ili iom embarase, kun ia kortuŝo, sed ŝia vizaĝo rebrilis la patrinan teneron, kaj la maniero, laŭ kiu ŝi parolis kun ili, estis elkora, amika. ŝia amikino kun eta Jakobo estis malproksimiĝanta. La knabo
 
 mansvingis al Pieroto.
 
-Tio rememorigis al li la mesaĝon, kiun la knabo iutage al-
-
-portis al li. Tiam li volis demandi Jakobon pri io, sed mankis
+Tio rememorigis al li la mesaĝon, kiun la knabo iutage alportis al li. Tiam li volis demandi Jakobon pri io, sed mankis
 
 jam tempo, poste ĉion ensorbis vantema ciklono de puntoj
 
@@ -17125,25 +13990,18 @@ Li paŝis al la infanoj.
 
 ”Ni iru hejmen,” li invitis ilin.
 
-Margot liberlasis Rosinan el la brakumo; rideme ŝi ekrigar-
+Margot liberlasis Rosinan el la brakumo; rideme ŝi ekrigardis Gasparon, kvazaŭ lin dankante, ke li konfidis al ŝi la infanojn. La infanoj kroĉiĝis al lia mano. Li sendecide staris plu.
 
-dis Gasparon, kvazaŭ lin dankante, ke li konfidis al ŝi la infanojn. La infanoj kroĉiĝis al lia mano. Li sendecide staris plu.
-
-”Feliĉe, ke nenio malbona okazis al ili,” diris Margot em-
-
-barase. Ankoraŭ li ne moviĝis kaj sur lia vizaĝo aperis reme-
+”Feliĉe, ke nenio malbona okazis al ili,” diris Margot embarase. Ankoraŭ li ne moviĝis kaj sur lia vizaĝo aperis reme-
 
 moroj, riproĉoj, akuzoj. Tiam unuafoje diris liaj okuloj, ni am-baŭ estis tro junaj kaj ne sciis distingi inter sopiro kaj vivo. Ni hontis unu antaŭ la alia. Eble tio nin ambaŭ plibonigis. Do-maĝe, ke ni ne renkontiĝis unuafoje pli tarde!
 
 **329**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Margot rigardis lian elokventan vizaĝon, liajn serioziĝin-
-
-tajn okulojn. Sed ne, diris la vizaĝo, ne estas tarde. Certe ni iris similajn vojojn, ĉar ni kunvenis iun julian tagon flank-ĉe-flanko. Kaj liaj okuloj ekbrilis per brilo de la varmega tago,
+Margot rigardis lian elokventan vizaĝon, liajn serioziĝintajn okulojn. Sed ne, diris la vizaĝo, ne estas tarde. Certe ni iris similajn vojojn, ĉar ni kunvenis iun julian tagon flank-ĉe-flanko. Kaj liaj okuloj ekbrilis per brilo de la varmega tago,
 
 kiam oni riskis la vivon; ili tenebriĝis pro rememoro pri la
 
@@ -17153,9 +14011,7 @@ Ankaŭ Margot ekrememoris.
 
 Vi estis ekde tiu tempo tiel proksima al mi, diris la amaraj
 
-sulkoj ĉirkaŭ lia buŝo, sed mi ne konis vojon al vi. Mi ne ka-
-
-pablis iri al propra kontento kaj preterpasi samtempe la frem-
+sulkoj ĉirkaŭ lia buŝo, sed mi ne konis vojon al vi. Mi ne kapablis iri al propra kontento kaj preterpasi samtempe la frem-
 
 dan doloron. Poste la vojo liberiĝis, mi ekpaŝis kaj blindigis
 
@@ -17169,17 +14025,13 @@ misvojis. Mi kulpis. Sed — kaj liaj okuloj denove ekbrilis —
 
 tiam mi ne sciis tion tiom certe. Mi ebriigis min per la nova
 
-libereco. Mi ne sciis, kiom belas, havi en virino grandan ami-
-
-kon. Tion mi komprenis nur post kelka tempo.
+libereco. Mi ne sciis, kiom belas, havi en virino grandan amikon. Tion mi komprenis nur post kelka tempo.
 
 Margot atendis.
 
 Hodiaŭ mi scias tion. Mi vidas vin matura, luktanta pri via
 
-vivo, laborema, nobla. Kruele vi pagis por mizero en la june-
-
-co. Sed vi ne timas. Vi estas fidela. Vi estas brava. Vi estas
+vivo, laborema, nobla. Kruele vi pagis por mizero en la juneco. Sed vi ne timas. Vi estas fidela. Vi estas brava. Vi estas
 
 energia.
 
@@ -17197,7 +14049,6 @@ solecas.”
 
 **330**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17205,9 +14056,7 @@ En la profundo de la okuloj de Margot varmas brilo. ”ĉu
 
 vi opinias, ke tio eblas?”
 
-”Iam oni renkontiĝas tarde. Sed se ni ambaŭ tion ege de-
-
-ziros, ni estos eble preskaŭ feliĉaj.”
+”Iam oni renkontiĝas tarde. Sed se ni ambaŭ tion ege deziros, ni estos eble preskaŭ feliĉaj.”
 
 Ili ne estas junaj kaj gajaj. En iliaj animoj estas laco kaj re-zigno. Sed tamen ili sentas en vento, blovanta kontraŭ ilin,
 
@@ -17215,7 +14064,6 @@ promeson de modesta feliĉo. Ili iras firme, inter ili scivolemaj kaj surprizita
 
 **331**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17227,9 +14075,7 @@ ministro Thiers konsilas al la reĝo, ke li ne malhelpu la
 
 sopiron de la popolo pri grandeco, pri rememoroj je la heroaj
 
-tempoj de Francio. Por la reĝo tio estas pli sekura vojo ol ba-
-
-talo kontraŭ respublikanoj. Li konsilas transporti la restaĵojn de Napoleono el Sankta Helena en la patrion.
+tempoj de Francio. Por la reĝo tio estas pli sekura vojo ol batalo kontraŭ respublikanoj. Li konsilas transporti la restaĵojn de Napoleono el Sankta Helena en la patrion.
 
 Kaj se tion farus la filo de la reĝo mem?
 
@@ -17243,21 +14089,16 @@ pasintecon ene kaj scias tion. Tial Gasparo strebas kun tia
 
 insisto pri divorco kaj nova geedziĝo. Tial Margot neniam
 
-riproĉas al li la vivon kun Désirée. ŝi scias, ke trovis sin du vrakuloj, sed ŝia boneco estas kuraĝa, necedema kaj ŝi klopo-das, ke ili vivu feliĉe sur sia insulo, kiel nur la homoj tion scipovas. ŝi devas forigadi la malfidon de la eta Karolo, sed Ros-
-
-ina jam dekomence ŝin amas. Kaj Margot forpelas ombrojn
+riproĉas al li la vivon kun Désirée. ŝi scias, ke trovis sin du vrakuloj, sed ŝia boneco estas kuraĝa, necedema kaj ŝi klopo-das, ke ili vivu feliĉe sur sia insulo, kiel nur la homoj tion scipovas. ŝi devas forigadi la malfidon de la eta Karolo, sed Rosina jam dekomence ŝin amas. Kaj Margot forpelas ombrojn
 
 per gajeco, per kanto kaj estas firme decidiĝinta konservi la
 
 vivon tiel tarde rekomencitan. Iutage ŝi eksciis, ke ŝi havos infanon kun Gasparo.
 
-La animo de Gasparo plenas de silenta feliĉo. Li aĝos kvar-
-
-dek jarojn, ankoraŭ li ne estas maljuna. Margot estas bela. Lia koro trovis amon kaj amikecon. La dankemo donas al li riĉan
+La animo de Gasparo plenas de silenta feliĉo. Li aĝos kvardek jarojn, ankoraŭ li ne estas maljuna. Margot estas bela. Lia koro trovis amon kaj amikecon. La dankemo donas al li riĉan
 
 havaĵon de afableco, li sopiras doni sin al la publiko pli bona **332**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17267,23 +14108,17 @@ certigis lin pri lia perfekteco, li ne ĉesas provadi movojn, ofte studas sin an
 
 kompletigas geston.
 
-”Ne opiniu, ke mi plaĉas al mi mem,” li ridetas ĉe la spe-
-
-gulo al Margot. ”Infanoj ankaŭ lernas skribi, ĝis ili havas ru-
+”Ne opiniu, ke mi plaĉas al mi mem,” li ridetas ĉe la spegulo al Margot. ”Infanoj ankaŭ lernas skribi, ĝis ili havas ru-
 
 tinan manon. Kaj mi devas scii skribi survizaĝen sentojn kaj
 
 pensojn.”
 
-Krom Margot ofte observas lin la eta Karolo kaj iam ili tra-
-
-fas lin imitanta la movojn de la patro.
+Krom Margot ofte observas lin la eta Karolo kaj iam ili trafas lin imitanta la movojn de la patro.
 
 ”Ankaŭ li certe estos aktoro,” opinias Margot.
 
-”Tian sorton mi ne dezirus al li. Tio estas dolorplena karie-
-
-ro. Ekzistas tamen tiom da metioj.”
+”Tian sorton mi ne dezirus al li. Tio estas dolorplena kariero. Ekzistas tamen tiom da metioj.”
 
 ”Kiun metion vi elektus por mi?” demandas Karolo.
 
@@ -17291,15 +14126,11 @@ ro. Ekzistas tamen tiom da metioj.”
 
 ”La aktorado ankaŭ estas metio, ĉu?”
 
-”Jes, sed estas diferenco inter metio kaj arto. En arto me-
-
-tio jam ne vidiĝas.”
+”Jes, sed estas diferenco inter metio kaj arto. En arto metio jam ne vidiĝas.”
 
 ”Kaj kion oni bezonas por fariĝi artisto? Kion plej multe?”
 
-”Kion plej multe?” ripetas Deburau meditante pri la de-
-
-mando. ”Eble — multe ami la homojn kaj ege ami la arton.”
+”Kion plej multe?” ripetas Deburau meditante pri la demando. ”Eble — multe ami la homojn kaj ege ami la arton.”
 
 La demandoj de Karolo multiĝas. Margot devis kudri por
 
@@ -17309,9 +14140,7 @@ li etan pierotan kitelon.
 
 ”Tio estas nur infanludo. Tiel li ĝojis.”
 
-Sed Karolo ne rare surprizas lin per demando, pri kiu de-
-
-vas la patro mem enpensiĝi. ”Paĉjo, kie envizaĝe sidas la bo-
+Sed Karolo ne rare surprizas lin per demando, pri kiu devas la patro mem enpensiĝi. ”Paĉjo, kie envizaĝe sidas la bo-
 
 neco?”
 
@@ -17321,23 +14150,16 @@ neco?”
 
 **333**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Surfrunte kaj en brovoj.”
 
-Iam sentas sin Gasparo laca. Iam la malfacilaĵoj de la spi-
+Iam sentas sin Gasparo laca. Iam la malfacilaĵoj de la spirado kaj doloroj surbruste anoncas la jarojn de la juneco,
 
-rado kaj doloroj surbruste anoncas la jarojn de la juneco,
+noktojn en nebuloj kaj en malvarmaj steloj, vojaĝojn tra malagrablaj aŭtunoj. Sed sursceneje li povas spiri pli facile ol surstrate. Eĉ se lin tiranus tusado kaj manko de aero en la vest-
 
-noktojn en nebuloj kaj en malvarmaj steloj, vojaĝojn tra mal-
-
-agrablaj aŭtunoj. Sed sursceneje li povas spiri pli facile ol surstrate. Eĉ se lin tiranus tusado kaj manko de aero en la vest-
-
-gardejoj, tuj kiam li venas inter kulisojn, estas venkite. La entuziasma animo venkas korpo-lezojn. ĉu li ne devenas el lan-
-
-do, kie oni scias batali ĝis la lasta spiro? Li ne cedas. La akci-dentoj de Pieroto estis ĉiam pli evidentaj. Liajn malfacilaĵojn kaj esperojn sentis ĉiuj en la publiko kiel siajn proprajn. Li
+gardejoj, tuj kiam li venas inter kulisojn, estas venkite. La entuziasma animo venkas korpo-lezojn. ĉu li ne devenas el lando, kie oni scias batali ĝis la lasta spiro? Li ne cedas. La akci-dentoj de Pieroto estis ĉiam pli evidentaj. Liajn malfacilaĵojn kaj esperojn sentis ĉiuj en la publiko kiel siajn proprajn. Li
 
 estis pli gaja ol iam kaj la homoj ridis.
 
@@ -17355,9 +14177,7 @@ Kiam li eliris, la spektantoj salutis lin per la kutimaj ekkrioj kaj dumvoje ank
 
 ”is revido, amikoj!”
 
-Sed la familio tiutage ne soliĝis. Iu ege kuraĝa metiist-hel-
-
-pisto, plie instigata de sia majstro kaj lia edzino, sekvis Deburauon kaj ne sin lasis forrifuzi. Volante sin eminentigi antaŭ
+Sed la familio tiutage ne soliĝis. Iu ege kuraĝa metiist-helpisto, plie instigata de sia majstro kaj lia edzino, sekvis Deburauon kaj ne sin lasis forrifuzi. Volante sin eminentigi antaŭ
 
 sia majstro, kiu per tio bone amuzis sin, kaj por ke oni povu
 
@@ -17367,7 +14187,6 @@ ekvokis: ”Jen la mizera ŝnurgrimpanto Pieroto! Nur rigardu
 
 **334**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17387,23 +14206,17 @@ Ili eskapis for de la krioj, kiuj e˛is post ili elfore.
 
 Ankaŭ Deburau estis ekscitita, sed li ekregis sin kaj volis
 
-trankviligi ankaŭ Margotan kaj la infanojn, kiuj timigite reri-
-
-gardis. Sed montriĝis, ke la ekscesantoj ilin postsekvis kaj decidiĝis denove konflikti kun Gasparo kaj fakte post du horoj
+trankviligi ankaŭ Margotan kaj la infanojn, kiuj timigite rerigardis. Sed montriĝis, ke la ekscesantoj ilin postsekvis kaj decidiĝis denove konflikti kun Gasparo kaj fakte post du horoj
 
 je fino de la promeno, ili sukcesis.
 
 ”Li estas tiu pajaco,” kriis la ebria junulo plenbuŝe. ”Kiu ne
 
-konas lin, tiu rigardu. Jen la mizera klaŭno kondukanta pu-
-
-tinon Margot. Jen baldaŭ li havos kun ŝi arlekenidan bastar-
+konas lin, tiu rigardu. Jen la mizera klaŭno kondukanta putinon Margot. Jen baldaŭ li havos kun ŝi arlekenidan bastar-
 
 don!”
 
-Gasparo ekrigardis la paliĝintan edzinon, sed ŝajnigis ne-
-
-nion aŭdi. La eta Karolo haltis: ”Paĉjo, denove estas tie ĉi la homo, kiu insultas vin.”
+Gasparo ekrigardis la paliĝintan edzinon, sed ŝajnigis nenion aŭdi. La eta Karolo haltis: ”Paĉjo, denove estas tie ĉi la homo, kiu insultas vin.”
 
 Gasparo puŝetis iom la filon kaj signis al li silenti. Sed la
 
@@ -17423,7 +14236,6 @@ Multaj homoj tion aŭdis. Kelkaj el ili ekridis. Gasparo es-
 
 **335**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17435,9 +14247,7 @@ Margot, kiu ekvidis tion, saltis al li kaj pendigis sin sur lian ŝultron. Malgr
 
 Li faris kelkajn ŝancelpaŝojn, apogis sntraŭ muro kaj falis denove sur trotuaron, sur amason da ŝtonoj.
 
-Homoj kure alvenis ĉirkaŭ li. Oni venigis kuraciston. De-
-
-burau estis foriranta. Margot apogis lin. Ili konsolis unu la
+Homoj kure alvenis ĉirkaŭ li. Oni venigis kuraciston. Deburau estis foriranta. Margot apogis lin. Ili konsolis unu la
 
 alian, ke eble al la malfeliĉulo nenio okazis.
 
@@ -17447,9 +14257,7 @@ kiel ĝi okazis, ekde la komenco ĝis la tragika finiĝo. Li riproĉis al si, ke
 
 certigadis sin, ke li ne havis malbonan intencon.
 
-Li anoncis sin al komisaro de sia distrikto. Li havis malbo-
-
-nan nokton. Venintan tagon li eksciis, ke la metia helpisto
+Li anoncis sin al komisaro de sia distrikto. Li havis malbonan nokton. Venintan tagon li eksciis, ke la metia helpisto
 
 Viélin mortis pro lezo de la kranko. Posttagmeze envenis en
 
@@ -17465,51 +14273,36 @@ kiam lia arto povis tiom donadi al homoj, kiam bezonis lin la
 
 infanoj kaj kiam devis baldaŭ enmondiĝi nova infano. ĉu tio
 
-estas fino? Tiutage li dormis jam en malliberejo de St. Péla-
-
-gie.
+estas fino? Tiutage li dormis jam en malliberejo de St. Pélagie.
 
 **336**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Neniu volis kredi la raporton en la ĵurnaloj. La dolĉa kaj bon-
-
-fara Pieroto murdis? La donancanto de gajeco, rido kaj bona
+Neniu volis kredi la raporton en la ĵurnaloj. La dolĉa kaj bonfara Pieroto murdis? La donancanto de gajeco, rido kaj bona
 
 humoro mortigis?
 
 Sed la detaloj konfirmas la agon.
 
-La bulvardoj dividiĝas por kaj kontraŭ. Enviuloj forĝas in-
+La bulvardoj dividiĝas por kaj kontraŭ. Enviuloj forĝas inkandeskan feron kaj helpas al la malbona akcidento. Ili mal-
 
-kandeskan feron kaj helpas al la malbona akcidento. Ili mal-
-
-honoras lin, parolas pri lia koleremo, ofendiĝemo, pri la mal-
-
-bona karaktero. Se li mortigis homon, certe li agis tiel pro
+honoras lin, parolas pri lia koleremo, ofendiĝemo, pri la malbona karaktero. Se li mortigis homon, certe li agis tiel pro
 
 ofendita vantemo, pro venĝemo. Aliaj kuraĝe lin defendas:
 
-Musset, Gautier, Sand. La eldonisto Bourdin eldonis kaj ven-
-
-dis dudek kvin mil koncizajn biografiojn pri Deburau po kvar
+Musset, Gautier, Sand. La eldonisto Bourdin eldonis kaj vendis dudek kvin mil koncizajn biografiojn pri Deburau po kvar
 
 centimoj.
 
-Bertrand komisiis la rolon de Pieroto eksperimente al Hen-
-
-ri, kiu dumtage estis funebra salajrulo kaj aspiris anstataŭigi ploron, kiun tiom li ĝuis dumtage, per vespera rido. Post tiu
+Bertrand komisiis la rolon de Pieroto eksperimente al Henri, kiu dumtage estis funebra salajrulo kaj aspiris anstataŭigi ploron, kiun tiom li ĝuis dumtage, per vespera rido. Post tiu
 
 li elprovis la plej bonajn kaj popularajn komikulojn, sed la
 
 publiko ne venis.
 
-Gasparo en la malliberejo plenis de malĝojo. Ege li bedaŭ-
-
-ris la mortigitan junulon. ”Nepre mi ne antaŭvidis, ke mi le-
+Gasparo en la malliberejo plenis de malĝojo. Ege li bedaŭris la mortigitan junulon. ”Nepre mi ne antaŭvidis, ke mi le-
 
 zos lin,” li ripetas al la juĝisto preskaŭ plore. ”Neniam iun mi maljustumis. Se mi estus sciinta, kiel ĝi finiĝos, prefere mi
 
@@ -17517,13 +14310,9 @@ lasus min ekbati. Mi bastonsvingis hazarde kaj trafis lin.”
 
 ”Pri tio decidos tribunalo.”
 
-”Mi scias, sinjoro juĝisto. Sed mi mem tion neniam pardo-
+”Mi scias, sinjoro juĝisto. Sed mi mem tion neniam pardonos al mi. Tiu junulo certe havis gepatrojn, amatinon…”
 
-nos al mi. Tiu junulo certe havis gepatrojn, amatinon…”
-
-”Li havis neniun kaj jam kelkfoje li estis punita pro ŝtela-
-
-do.”
+”Li havis neniun kaj jam kelkfoje li estis punita pro ŝtelado.”
 
 ”A˛, tio ne gravas. Nur konsolas min, ke li solis kaj ke mia
 
@@ -17531,7 +14320,6 @@ kulpo ne estas pli granda pro la fremda aflikto. Tamen, sinjo-
 
 **337**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17563,19 +14351,13 @@ Malĝoje li adiaŭas kaj vivas nur duone. La tagoj en la ĉelo
 
 lante treniĝas kaj ekster la muroj de la malliberejo la vivo
 
-pluiras, infanoj ridas, teatroj ludas. Semajno viciĝas al semaj-no. La juĝa enketado daŭras jam unu monaton. Parizo enve-
+pluiras, infanoj ridas, teatroj ludas. Semajno viciĝas al semaj-no. La juĝa enketado daŭras jam unu monaton. Parizo envenas someren.
 
-nas someren.
-
-Fine alproksimiĝis la tago de la juĝa proceso. Ankaŭ la aku-
-
-zanto kredis, ke Deburau ne faris la agon konscie. Sed la pa-
+Fine alproksimiĝis la tago de la juĝa proceso. Ankaŭ la akuzanto kredis, ke Deburau ne faris la agon konscie. Sed la pa-
 
 ragrafo 309 de la punleĝo fiksas eĉ por krimo de nekonscia
 
-mortigo punon en longo de dudek jaroj en bagno; se oni kon-
-
-sideras ĉiujn malpligravigajn cirkonstancojn, minimume du
+mortigo punon en longo de dudek jaroj en bagno; se oni konsideras ĉiujn malpligravigajn cirkonstancojn, minimume du
 
 jarojn enkarcere.
 
@@ -17583,19 +14365,14 @@ Redaktoro de la ”Juĝista Bulteno” publikigis la 22-an de
 
 majo interesan artikolon pri la komenco de la proceso.
 
-”Oni alkondukis Deburau-on; li paŝas nekuraĝe, necert-
+”Oni alkondukis Deburau-on; li paŝas nekuraĝe, necertpaŝe. Li ŝajnas esti emociita. Vere kelkaj larmoj aperis en liaj okuloj kaj ili akirus por li certe inklinon de la publiko, se tiu **338**
 
-paŝe. Li ŝajnas esti emociita. Vere kelkaj larmoj aperis en liaj okuloj kaj ili akirus por li certe inklinon de la publiko, se tiu **338**
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ne apartenus al li jam delonge. Unue mirigite li ekrigardis al
 
-la eleganta partero. Sed tio ne etas la mondo, kiun serĉas De-
-
-burau. Tien foren rigardu, en profundon de la juĝejo. Tie es-
+la eleganta partero. Sed tio ne etas la mondo, kiun serĉas Deburau. Tien foren rigardu, en profundon de la juĝejo. Tie es-
 
 tas via efektiva publiko, en veŝtoj kaj kun refalditaj manikoj, la kvargroŝa publiko, kiu hodiaŭ ekstraordinare pagis nenion. Fakte, nur vidu, kiam rigardon interŝanĝis reciproke tiu
 
@@ -17607,9 +14384,7 @@ La publiko konas Pieroton el Funambules, sed ne konas
 
 Deburau-on. is nun ĝi ne vidis la realajn trajtojn de sia kara klaŭno alie ol post la farunumita masko, sen kiu ĝis nun li ne
 
-montriĝis sur la scenejo. Neniam ĝi aŭdis lin ekparoli! i ko-
-
-nas lian karakterizan spritan kaj ŝerceman geston, senfine
+montriĝis sur la scenejo. Neniam ĝi aŭdis lin ekparoli! i konas lian karakterizan spritan kaj ŝerceman geston, senfine
 
 ŝanĝiĝantan esprimon de la vizaĝo, sed lian voĉon ĝis nun ĝi
 
@@ -17635,19 +14410,14 @@ Prezidanto de la tribunalo aliris al la enketado.
 
 **339**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 ”Baldaŭ mi estos kvardekjara.”
 
-”Vi naskiĝis en eksterlando. Kiel longe vi estas en Fran-
+”Vi naskiĝis en eksterlando. Kiel longe vi estas en Francio?”
 
-cio?”
-
-”Mi foriris, kiam mi aĝis ok jarojn. En Francio mi estas tri-
-
-dek du jarojn.”
+”Mi foriris, kiam mi aĝis ok jarojn. En Francio mi estas tridek du jarojn.”
 
 ”Via profesio?”
 
@@ -17657,13 +14427,9 @@ dek du jarojn.”
 
 Deburau pezvorte, kun oftaj paŭzoj priskribis la malfeliĉan
 
-promenon, la insultojn de la junulo, la kolizion kun li. Neni-
+promenon, la insultojn de la junulo, la kolizion kun li. Nenion li neis, nur ripetis, ke la juna Viélinon li ne volis vundi.
 
-on li neis, nur ripetis, ke la juna Viélinon li ne volis vundi.
-
-La prezidanto ordonis enketadon de la atestantoj. La ates-
-
-tanto Marolis, kiu observis la scenon, diris: ”Kiam tio okazis, mi riproĉis sinjoron Léger, kial li permesis al sia dungito ofendi la akuziton. Sinjoro Léger diris al mi, ke li malpermesis tion al li. Sed la akuzito mem rimarkigis, ke tio ne estas vero, male, ke sinjoro Léger daŭre instigis sian submajstron. Kaj Léger
+La prezidanto ordonis enketadon de la atestantoj. La atestanto Marolis, kiu observis la scenon, diris: ”Kiam tio okazis, mi riproĉis sinjoron Léger, kial li permesis al sia dungito ofendi la akuziton. Sinjoro Léger diris al mi, ke li malpermesis tion al li. Sed la akuzito mem rimarkigis, ke tio ne estas vero, male, ke sinjoro Léger daŭre instigis sian submajstron. Kaj Léger
 
 dume silentis.”
 
@@ -17675,9 +14441,7 @@ tion li kaŭzis,” diris alia atestanto, sinjoro Sartelet. ”Kaj tuj mi donis 
 
 diris al li: ’Vi havas bonŝancon, ke ni ĉeestis kaj povas atesti la veron.’ Sed li respondis al mi: ’i estas feliĉo kaj malfeliĉo.
 
-Se mi estintus sola, certe mi tolerus la ofendojn plu. Sed an-
-
-taŭ tiom da homoj tamen nur mi volis min defendi kontraŭ
+Se mi estintus sola, certe mi tolerus la ofendojn plu. Sed antaŭ tiom da homoj tamen nur mi volis min defendi kontraŭ
 
 la humiligo kaj tial mi haltis.”
 
@@ -17689,7 +14453,6 @@ de la akuzito, rakontis pri lia modereco kaj afableco. Sinjoro
 
 **340**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -17705,55 +14468,40 @@ dek jarojn, ĉiam alte li taksis lian humanecon kaj bonkorecon.
 
 Prokuroro Tardif ripetis la akuzon.
 
-Defendanto estis advokato Delange, posta ministro de jus-
+Defendanto estis advokato Delange, posta ministro de justeco.
 
-teco.
-
-”Ne multo mankas kaj oni kredus je la fato,” li diris. ”De-
-
-burau, fundamenta ŝtono de teatro Funambules, ludas ĉiudi-
+”Ne multo mankas kaj oni kredus je la fato,” li diris. ”Deburau, fundamenta ŝtono de teatro Funambules, ludas ĉiudi-
 
 manĉe. Li ricevis ferion posttagmeze, la unuan fojon ekde la
 
 tempo, kiam li edziĝis. Kaj vi scias, kio okazis.” Li emfazis, per kiaj ofendoj malfeliĉa Viélin incitis la akuziton kaj kiahazar-de okazis lia vundiĝo. ”ĉiu ĉi tie laŭdis al ni la karakteron de Deburau. Li estas bona edzo, eminenta patro kaj la nuntempo
 
-certe alskribos je lia konto meriton, ke li estas ankaŭ konsci-
-
-enca nacia gardisto.”
+certe alskribos je lia konto meriton, ke li estas ankaŭ konscienca nacia gardisto.”
 
 En la aŭditorio estiĝis gaja etoso, sed la prezidanto diris:
 
-”Kiu konscience aktivas en la gardo, tiu estas honesta civi-
-
-tano. Ni havas ĉi tie peticion, kiun subskribis tricent naŭ oficiroj kaj soldatoj de la blua bataliono de la sesa legio. Tiuj
+”Kiu konscience aktivas en la gardo, tiu estas honesta civitano. Ni havas ĉi tie peticion, kiun subskribis tricent naŭ oficiroj kaj soldatoj de la blua bataliono de la sesa legio. Tiuj
 
 totale garantias pri la senkulpeco de la akuzito.”
 
 ”Mi povas fini,” diris la plendanto. ”Deburau dum sia tuta
 
-vivo ridigadis aliajn. Ni ne kondamnu al larmoj ĉi tiun hone-
-
-stan viron kaj lian edzinon, la junan familion por kies viv-
+vivo ridigadis aliajn. Ni ne kondamnu al larmoj ĉi tiun honestan viron kaj lian edzinon, la junan familion por kies viv-
 
 tenadon necesas lia laboro.”
 
 La konsultiĝo de la kortumo daŭris nur kelkajn minutojn.
 
-Deburau ne estis rekonita kulpa pri la akuza ago kaj la pre-
-
-zidanto deklaris lian absolvon.
+Deburau ne estis rekonita kulpa pri la akuza ago kaj la prezidanto deklaris lian absolvon.
 
 **341**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Deburau staris dum deklaro de la verdikto senmove, en
 
-streĉo, kaj tamen profunde enpensiĝinta. ŝajnis, ke la verdik-
-
-ton li ne komprenis. Nur kiam sin trapuŝis al li amikoj el la
+streĉo, kaj tamen profunde enpensiĝinta. ŝajnis, ke la verdikton li ne komprenis. Nur kiam sin trapuŝis al li amikoj el la
 
 teatro, aperis sur lia vizaĝo senmezura ĝojo. Margot lin arde
 
@@ -17771,19 +14519,13 @@ Bertrand. Finiĝis monato de angoraj turmentoj. Fino de majo
 
 ridis el ĝardenoj.
 
-En la gazeto ”Teatra mondo”, kiun fondis Gérard de Ner-
+En la gazeto ”Teatra mondo”, kiun fondis Gérard de Nerval kaj ĉirkaŭ kiu li koncentris multe da interesaj artistoj, ni legas sub titolo ”Reveno de Deburau”:
 
-val kaj ĉirkaŭ kiu li koncentris multe da interesaj artistoj, ni legas sub titolo ”Reveno de Deburau”:
-
-”La tribunala pordego malfermiĝis, la liberiga verdikto re-
-
-donis Deburau-on al la familio, infanoj, amikoj sur bulvardo.
+”La tribunala pordego malfermiĝis, la liberiga verdikto redonis Deburau-on al la familio, infanoj, amikoj sur bulvardo.
 
 La sekvan merkredon poste teatro Funambules iluminis sian
 
-fasadon por soleni la revenon de la amata pajaco, intima ami-
-
-ko de silento, amiko de piedbatoj, A˛ilo de streĉita ŝnurego,
+fasadon por soleni la revenon de la amata pajaco, intima amiko de silento, amiko de piedbatoj, A˛ilo de streĉita ŝnurego,
 
 kies Homero kaj Anakreonto fariĝis Janin. Neniam, de kiam
 
@@ -17791,9 +14533,7 @@ oni memoras, okazis io tiel elkora, kiel estis la bonvenigo,
 
 kiun preparis al Deburau la deputitaroj el ĉiuj kvartaloj de Parizo… Jes, Deburau, enkorpiĝinta moko, ironio, kiu fariĝis
 
-homo, personigita pajaco, tiu Deburau havis humidajn oku-
-
-lojn kaj ni, kiujn invado en la salonegon kaj atako al loĝioj
+homo, personigita pajaco, tiu Deburau havis humidajn okulojn kaj ni, kiujn invado en la salonegon kaj atako al loĝioj
 
 forpelis post kulisojn, ni vidis lian kortuŝiĝon deproksime kaj ni komprenis, ke tiu ĉi aktoro, kiu ludis kaj vivis enombre, en-tenebre kaj en silento, povis travivi egale ĝuste tiom da ĝojo, ekstazo kaj raviĝo, kiom alportadas festotagoj, triumfoj kaj
 
@@ -17801,13 +14541,10 @@ sukcesoj en la plej grandaj teatroj. Kaj Deburau havis mo-
 
 **342**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-tivon por plori. ĉar povis okazi al li, ke li alkroĉus la kostumon sur la saman najlon kaj prenus la blankaĵon sur sian ĉi-
-
-fonon, sed ne plu renkontiĝus kun la sama rido kaj kun en-
+tivon por plori. ĉar povis okazi al li, ke li alkroĉus la kostumon sur la saman najlon kaj prenus la blankaĵon sur sian ĉifonon, sed ne plu renkontiĝus kun la sama rido kaj kun en-
 
 tuziasmo kiel antaŭe. ĉar li, kiu kutime punas per rido, mem
 
@@ -17815,15 +14552,12 @@ ekploris ankaŭ unuafoje pro tristo. Sed feliĉe ĉio jam estis sur sia loko. Mu
 
 **343**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 Laciĝo
 
-Ke denove li darfis sur la scenejon, ke oni akceptis lin, ri-
-
-dis, aplaŭdis, tio ŝajnis al Gasparo la plej grava nur ĉe la
+Ke denove li darfis sur la scenejon, ke oni akceptis lin, ridis, aplaŭdis, tio ŝajnis al Gasparo la plej grava nur ĉe la
 
 unuaj paŝoj post lia reveno. Sovaĝe li impetis sur la scenejon
 
@@ -17833,35 +14567,24 @@ la vivo.
 
 Kiam li revenis hejmen, konscie li defendis sntraŭ la
 
-dormo, por povi kun sia tuta konscio akceptadi ĝuon de spi-
+dormo, por povi kun sia tuta konscio akceptadi ĝuon de spirado, kiu aŭdiĝis apud li, plura spirado, kiun li precize distingis kaj kiu lin trankviligadis. Sed tiu ĉi silenta akordo nelonge post la reveno diseriĝis. La vivo de la eta Magdalena estingiĝis baldaŭ post la reveno de Gasparo hejmen. Tio estis nova kruela sortobato, ne nur por li, sed ankaŭ por Margot. Kvazaŭ
 
-rado, kiu aŭdiĝis apud li, plura spirado, kiun li precize distingis kaj kiu lin trankviligadis. Sed tiu ĉi silenta akordo nelonge post la reveno diseriĝis. La vivo de la eta Magdalena estingiĝis baldaŭ post la reveno de Gasparo hejmen. Tio estis nova kruela sortobato, ne nur por li, sed ankaŭ por Margot. Kvazaŭ
+surhorizonte de ilia komuna vivo aperus sinistra signo, kvazaŭ ilin persekutus malbeno. Sed Margot sciis, ke Gasparo
 
-surhorizonte de ilia komuna vivo aperus sinistra signo, kva-
-
-zaŭ ilin persekutus malbeno. Sed Margot sciis, ke Gasparo
-
-bezonas ŝian kuraĝon; sekrete ŝi enterigadis sian propran do-
-
-loron kaj mienis, kvazaŭ ŝi rapide repaciĝus kun la perdo. ŝi
+bezonas ŝian kuraĝon; sekrete ŝi enterigadis sian propran doloron kaj mienis, kvazaŭ ŝi rapide repaciĝus kun la perdo. ŝi
 
 ridetis; ŝi estis ŝajne pli forta rilate lin ol ŝin mem.
 
 ”Kial vi ne ridas, sinjoro Pieroto?”
 
-”Mi ŝparas gajon por la vespero,” respondadis Gasparo se-
-
-rioze. En sentimentaleco pro la forpaso de la lasta infano de-
+”Mi ŝparas gajon por la vespero,” respondadis Gasparo serioze. En sentimentaleco pro la forpaso de la lasta infano de-
 
 nove revenadis la vortoj diritaj ĉe la proceso, la vortoj de la juĝistoj, atestantoj, spektantoj. Subite li ekhaltis surstrate, ĉar ŝajnis al li, ke li renkontis homon, similantan al Viélin. Abrupte li vekiĝis el la sonĝo, ĉar li ekaŭdis sonorileton de la tribu-344
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-nala prezidanto. Timigite li aŭskultis en tenebro kaj li tran-
-
-kviliĝis, nur kiam li ekaŭdis la voĉon de sia edzino? ”ĉio mal-
+nala prezidanto. Timigite li aŭskultis en tenebro kaj li trankviliĝis, nur kiam li ekaŭdis la voĉon de sia edzino? ”ĉio mal-
 
 bona foras de vi?”
 
@@ -17869,9 +14592,7 @@ bona foras de vi?”
 
 ”Sur la scenejo ĝi ne mankas al vi.”
 
-”Kiam mi ektuŝas bastonon, kvazaŭ mi bruldolorigus mi-
-
-ajn fingrojn. Mi sentas kapturniĝon kaj la koro ĉesas bati. Tiu morto ĉiam staros inter mi kaj la publiko.”
+”Kiam mi ektuŝas bastonon, kvazaŭ mi bruldolorigus miajn fingrojn. Mi sentas kapturniĝon kaj la koro ĉesas bati. Tiu morto ĉiam staros inter mi kaj la publiko.”
 
 ”La tempo ĉion kuracas,” ŝi karesis lin tenere. Kaj per la
 
@@ -17911,31 +14632,22 @@ pro tio, ke ili bezonas vin, vi devas ludi, kiom plej bone vi
 
 **345**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-scias. Vi havas do devon forgesi ankaŭ viajn malĝojajn pen-
+scias. Vi havas do devon forgesi ankaŭ viajn malĝojajn pensojn. ĉu vi ne sentas, ke jam ilia amo vin purigas?”
 
-sojn. ĉu vi ne sentas, ke jam ilia amo vin purigas?”
-
-Miregante, kiel ĉiam ŝi scias trovi la ĝustan ideon por for-
-
-peli lian deprimon, li premis ŝian manon kaj jesis: ”Jes. Kaj ilia amo taskas al mi devojn. A˛, kiom multe ankoraŭ mi kapablas. Nur se mi havos sufiĉe da forto!”
+Miregante, kiel ĉiam ŝi scias trovi la ĝustan ideon por forpeli lian deprimon, li premis ŝian manon kaj jesis: ”Jes. Kaj ilia amo taskas al mi devojn. A˛, kiom multe ankoraŭ mi kapablas. Nur se mi havos sufiĉe da forto!”
 
 Li ekdormis, premita al ŝia brako. Matene, kiam la suno
 
-metis siajn manplatojn surfenestren, vekis lin la infana flus-
-
-trado. Iam li ellitiĝis por ĝojigi sin kun Karolo kaj Rosina. Iam li lasis intence la okulojn fermitaj kaj ĝojis pro ilia atentemo, pro iliaj voĉetoj, pro la hastado ĉe matenmanĝo. Sed Margot
+metis siajn manplatojn surfenestren, vekis lin la infana flustrado. Iam li ellitiĝis por ĝojigi sin kun Karolo kaj Rosina. Iam li lasis intence la okulojn fermitaj kaj ĝojis pro ilia atentemo, pro iliaj voĉetoj, pro la hastado ĉe matenmanĝo. Sed Margot
 
 konis tiun lian sekreton — ŝajnis, ke ŝi konas ĝin ekde ĉiam
 
 kaj kiam la infanoj foriris, ŝi komencis kanteti, ĉar ŝi sciis, ke jam li vekiĝis.
 
-”Cezaro,” ŝi ordonis foje al eta buldogo, kiun la infanoj el-
-
-petis de la patro, ”veku la mastron!”
+”Cezaro,” ŝi ordonis foje al eta buldogo, kiun la infanoj elpetis de la patro, ”veku la mastron!”
 
 La hundo surmetis la piedojn sur la brakon de Gasparo.
 
@@ -17945,9 +14657,7 @@ La hundo surmetis la piedojn sur la brakon de Gasparo.
 
 ”Cezaro, iru por gazeto!”
 
-La hundo, sentema je ĉiu rigardo, je ĉiu movo en fiziono-
-
-mio de sia mastro, desaltis kaj rigardis al Margot, ĉu ŝi donos al ĝi monon en saketon surkole. ”Nenion mi donos al la hundo,” diris Margot, ”jam trifoje ĝi aĉetis al si bulkojn anstataŭ gazeto.”
+La hundo, sentema je ĉiu rigardo, je ĉiu movo en fizionomio de sia mastro, desaltis kaj rigardis al Margot, ĉu ŝi donos al ĝi monon en saketon surkole. ”Nenion mi donos al la hundo,” diris Margot, ”jam trifoje ĝi aĉetis al si bulkojn anstataŭ gazeto.”
 
 ”Eble ĝi scias, ke tio estas pli nutriva,” ridis Gasparo kaj
 
@@ -17955,19 +14665,14 @@ palpebrumis je la hundo, ke li ne prirabos ĝin pri la matena
 
 promeno.
 
-”ĉu vi rememoras, kion vi sonĝis hodiaŭ nokte?” deman-
-
-dis Margot Gasparon.
+”ĉu vi rememoras, kion vi sonĝis hodiaŭ nokte?” demandis Margot Gasparon.
 
 **346**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-”Ke mi havas la plej bonan edzinon en la mondo. Gard-
-
-anĝelon.”
+”Ke mi havas la plej bonan edzinon en la mondo. Gardanĝelon.”
 
 ”Vi donas al mi malfacilan taskon.”
 
@@ -17987,9 +14692,7 @@ kanteton ankaŭ dumvoje sur la ŝtuparo. Se li rerigardis al la
 
 fenestro, certe li trovis tie ŝian vizaĝon kaj ŝian gestantan manon. Margot soliĝis, por momento ŝi eksilentis. ŝi ne diris ĝis nun al Gasparo, ke antaŭ nelonge revenis Désirée kaj volis
 
-resti en sia ekshejmo. Tio estis malagrabla interparolo, ko-
-
-mence proksima al larmoj, fine proksime al interbatiĝo. Sed
+resti en sia ekshejmo. Tio estis malagrabla interparolo, komence proksima al larmoj, fine proksime al interbatiĝo. Sed
 
 Margot estis multe pli forta — kiel estas ĉiu malegoista koro.
 
@@ -18009,19 +14712,14 @@ oni maljuniĝas, des malpli oni scias ekzaltiĝi, sed des pli oni emfazas gravec
 
 Bertrand alkondukis sian filon en la administracion de la
 
-teatro; li enoficiĝis per nova listo de punpagoj. Sed vera es-
-
-tro de la teatro restis Deburau.
+teatro; li enoficiĝis per nova listo de punpagoj. Sed vera estro de la teatro restis Deburau.
 
 **347**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Gasparo, pli kaj pli malkontenta kun la tekstoj, kiujn por-
-
-tadis en la teatron la aŭtoroj rifuzitaj en Bobino kaj aliloke, kaj decidita plenumi la maksimumon, enpensiĝadis, ĉerpis el
+Gasparo, pli kaj pli malkontenta kun la tekstoj, kiujn portadis en la teatron la aŭtoroj rifuzitaj en Bobino kaj aliloke, kaj decidita plenumi la maksimumon, enpensiĝadis, ĉerpis el
 
 multegaj spertoj kaj provis kiel jam unufoje — verki proprajn
 
@@ -18043,9 +14741,7 @@ Charles Legrand, kiun Bertrand laŭ sia kutimo rebaptis je
 
 Paŭlo — ĉar tia nomo ankoraŭ en la ensemblo ne ekzistis —
 
-estis finlerninta juvelisto. Sed ekde la momento, kiam li ek-
-
-vidis ludi Deburau-on, li estis certa, kiel multaj aliaj, ke lia vivcelo estas teatro.
+estis finlerninta juvelisto. Sed ekde la momento, kiam li ekvidis ludi Deburau-on, li estis certa, kiel multaj aliaj, ke lia vivcelo estas teatro.
 
 ”Mi volas fariĝi Pieroto,” li diris al Bertrand, kiu lin dungis.
 
@@ -18055,13 +14751,10 @@ vidis ludi Deburau-on, li estis certa, kiel multaj aliaj, ke lia vivcelo estas t
 
 Oni dungis lin por salajro de sep frankoj. Li ellasis fakte
 
-neniun eblon por vidi sian modelon sur la scenejo. Li retena-
-
-dis kun li la spiron, tremis pri li, travivadis kun li ĝojon kaj malĝojon, ĉiam denove ravita.
+neniun eblon por vidi sian modelon sur la scenejo. Li retenadis kun li la spiron, tremis pri li, travivadis kun li ĝojon kaj malĝojon, ĉiam denove ravita.
 
 **348**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18081,25 +14774,19 @@ knabinoj, kiujn rare ekfavoris feliĉo; venis iam riĉa junulo, kiu edziĝis al 
 
 La pantomimoj de Deburau estis alispecaj. Certe estis en ili
 
-multo fabela. Se ekzemple Arlekeno malbonstatis, devis laŭ-
-
-tradicie aperi feino Diamantina aŭ Siringa feino, por defen-
+multo fabela. Se ekzemple Arlekeno malbonstatis, devis laŭtradicie aperi feino Diamantina aŭ Siringa feino, por defen-
 
 di lin per sia sorĉo. Ankaŭ tie ĉi venkis la amo. Sed tio estis la amo de mizerulo, kiu spertis malfacilajn okazaĵojn kaj fine
 
 venkis pro sia volo kaj fideleco, sagaco, inĝenio. Tiel estis en la teatraĵo ”Doloremulo”, kie Deburau prezentis la rolon de
 
-persekutata bakist-lernanto, en ”Amo kaj frenezo”, kie li or-
-
-namis sin per tintileto, por amuzi infanojn, venintajn kune
+persekutata bakist-lernanto, en ”Amo kaj frenezo”, kie li ornamis sin per tintileto, por amuzi infanojn, venintajn kune
 
 kun la gepatroj por spekti la posttagmezan prezentadon, kaj
 
 en multaj aliaj.
 
-”Kion ili diris?” li demandas la biletistinon Aimée scivole-
-
-me.
+”Kion ili diris?” li demandas la biletistinon Aimée scivoleme.
 
 ”Ili kontentis kiel ĉiam,” respondis la maljuniĝinta Aimée.
 
@@ -18113,7 +14800,6 @@ vidante post si en la spegulo la konatan vizaĝon, de kiu la aĝo deprenas ĉarm
 
 **349**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18121,9 +14807,7 @@ Aimée helpas dumtage al la maljuna patro en horloĝista
 
 metiejo; ŝi ekridetas per palaj lipoj.
 
-”Malsaĝulo!” volas ŝnsoli Gasparo. ”Kie li restis kaŝi-
-
-ta?” Kaj li meditas: ”Tiel finiĝas la afero, se knabino ne montras sin al la mondo. Kaj tamen ĉi tie vidis vin tiom da junu-
+”Malsaĝulo!” volas ŝnsoli Gasparo. ”Kie li restis kaŝita?” Kaj li meditas: ”Tiel finiĝas la afero, se knabino ne montras sin al la mondo. Kaj tamen ĉi tie vidis vin tiom da junu-
 
 loj.”
 
@@ -18133,15 +14817,11 @@ biletistino.”
 
 ”Eble iu post la prezentado atendis vin?”
 
-”Eble. Sed antaŭ ol oni purigas la loĝiojn, antaŭ ol oni ordi-
-
-gas la vestgardejon — antaŭ ol mi ĝisatendis por povi ŝlosi …”
+”Eble. Sed antaŭ ol oni purigas la loĝiojn, antaŭ ol oni ordigas la vestgardejon — antaŭ ol mi ĝisatendis por povi ŝlosi …”
 
 ”Vere,” murmuras Deburau. ”Sciu, mi konatigos vin kun
 
-mia nova edzino. ŝi fakte havas multe da laboro kun la infa-
-
-noj, sed volonte vin bonvenigos. Mi dirus, ke vi multrilate
+mia nova edzino. ŝi fakte havas multe da laboro kun la infanoj, sed volonte vin bonvenigos. Mi dirus, ke vi multrilate
 
 similas al ŝi.”
 
@@ -18157,9 +14837,7 @@ la iama amikino.
 
 tia ideo neniam al mi venis. Bonan nokton!”
 
-La favoriteco de Gasparo ne ŝanĝiĝis kaj ne maljuniĝis en te-
-
-atro Funambules. Sed Pieroto estis maljuniĝanta. Pli ofte li
+La favoriteco de Gasparo ne ŝanĝiĝis kaj ne maljuniĝis en teatro Funambules. Sed Pieroto estis maljuniĝanta. Pli ofte li
 
 malsanis. Bertrand foje konfidis al Paŭlo Legrand la rolon de
 
@@ -18171,7 +14849,6 @@ kuracisto de Deburau”. Sed Gasparo ofte fakte ne fartis bone,
 
 kaj liaj amikoj zorgeme observis, kiel li subite forkuras el la **350**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18179,9 +14856,7 @@ vestejo al koridoro kondukanta al la strato, por spiri freŝan
 
 aeron. Li suferis ankaŭ pro malsano de lieno; kiam li ekridis
 
-pro sukcesa improvizo de iu el aktoroj, li devis perpugne pre-
-
-mi sian maldekstran flankon, por defendi sntraŭ la do-
+pro sukcesa improvizo de iu el aktoroj, li devis perpugne premi sian maldekstran flankon, por defendi sntraŭ la do-
 
 loro.
 
@@ -18191,9 +14866,7 @@ kaj proponis al li 500 frankojn monate. Li rifuzis kaj sentis,
 
 kiel la aplaŭdo de lia publiko pli ardiĝis.
 
-”Iru al kuracisto,” petis Margot sian edzon. ”Viajn melan-
-
-koliajn ideojn certe kaŭzas malsano. Faru tion pro mia volo.”
+”Iru al kuracisto,” petis Margot sian edzon. ”Viajn melankoliajn ideojn certe kaŭzas malsano. Faru tion pro mia volo.”
 
 Tial foje iun novembran vesperon en la jaro 1840 li frapetis
 
@@ -18203,17 +14876,11 @@ prezentadon en Funambules. Sed li ne rekonis la eminentan
 
 pajacon en la serioza, pala, melankolia viro. Li konsilis al la paciento, ke li iru rigardi Deburau-on. Post kiam Gasparo
 
-prezentis sin, la kuracisto konsterniĝis kaj kun des pli gran-
+prezentis sin, la kuracisto konsterniĝis kaj kun des pli granda scivolemo li ekigis dialogon kun sia paciento.
 
-da scivolemo li ekigis dialogon kun sia paciento.
+”ĉu eble tia melankolio estas sorto de ĉiuj, ofereme vivantaj por aliaj homoj?” li meditis. ”Versimile tro multe vi disdonas vin kaj tial restas al vi malmulte da forto por vi mem.”
 
-”ĉu eble tia melankolio estas sorto de ĉiuj, ofereme vivan-
-
-taj por aliaj homoj?” li meditis. ”Versimile tro multe vi disdonas vin kaj tial restas al vi malmulte da forto por vi mem.”
-
-La medicinisto preskribis al Gasparo trankvilon, bonan nu-
-
-tradon, promenojn, dormigajn pulvorojn. ”Vi devas helpi al
+La medicinisto preskribis al Gasparo trankvilon, bonan nutradon, promenojn, dormigajn pulvorojn. ”Vi devas helpi al
 
 la kuracisto,” li diris adiaŭante lin. ”Serĉu en vi, kio vin doloras, kaj malkaŝinte tion, ne timu kaj montru tion.”
 
@@ -18225,7 +14892,6 @@ Li scias, kio doloras lin kaj li montros tion. Li ekintencis
 
 **351**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18245,7 +14911,7 @@ Surbaze de speciala oficiala permeso oni ludas la 1-an de
 
 unuafoje eksterordinare teatraĵon
 
-ĉIFFFONULO
+ĈIFFFONULO
 
 Pantomimo en kvar scenoj de
 
@@ -18269,15 +14935,12 @@ Servistino… Klara
 
 **352**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La rigardejo plenplenas. Rido, vokado de vendistoj, kantado.
 
-La publiko rigardas la programon de la teatraĵo, kiun antici-
-
-pas sensaciaj sciigoj. La krianoncanto finas sian raŭkan arion:
+La publiko rigardas la programon de la teatraĵo, kiun anticipas sensaciaj sciigoj. La krianoncanto finas sian raŭkan arion:
 
 ”Nepre vi devas vidi Pieroton. Vi devas vidi Deburau-on!”
 
@@ -18285,13 +14948,9 @@ La lumigisto lumigas la scenejrandon. En la salonego estas
 
 mallumo. Tri batoj. Partero eksilentas.
 
-Orkestro, konsistanta el du violonoj, kelkaj klarionoj, kon-
+Orkestro, konsistanta el du violonoj, kelkaj klarionoj, kontrabaso, tubo kaj piano komencas per Mozarto. Kurteno.
 
-trabaso, tubo kaj piano komencas per Mozarto. Kurteno.
-
-La juvelisto Kasandro akceptas el la mano de bela ar˛idu-
-
-kino juvelon por ripari ĝin. Lia helpanto kaj servisto Pieroto
+La juvelisto Kasandro akceptas el la mano de bela ar˛idukino juvelon por ripari ĝin. Lia helpanto kaj servisto Pieroto
 
 amindumas ŝin. Sed moko estas rekompenco. Li, mizerulo,
 
@@ -18309,111 +14968,71 @@ sia sopiro.
 
 Societo en loĝioj okaze de scenŝanĝo, kiam post malleviĝo
 
-de la kurteno ludis malgranda orkestro Hayden-on, inter-
-
-ŝanĝis rimarkigojn.
+de la kurteno ludis malgranda orkestro Hayden-on, interŝanĝis rimarkigojn.
 
 En la sama momento envenis rigardejon Teofilo Gautier,
 
-kiu jam longe ne aperis ĉi tie. Li pretermalfruis la unuan ak-
+kiu jam longe ne aperis ĉi tie. Li pretermalfruis la unuan akton, sed kun tiom pli granda intereso li observis la pluan lu-
 
-ton, sed kun tiom pli granda intereso li observis la pluan lu-
-
-don. Tri tagojn poste li verkis por la ”Pariza Revuo” felieto-
-
-non. Ni donu parolon al okul-atestanto de la premiero!
+don. Tri tagojn poste li verkis por la ”Pariza Revuo” felietonon. Ni donu parolon al okul-atestanto de la premiero!
 
 La scenejo prezentas straton, lokon ie ekstere, kiel kutimas
 
-en la komedioj de Moliero. Pieroto promenas, la manoj sur-
+en la komedioj de Moliero. Pieroto promenas, la manoj surdorse, la kapo klinita, li iras popaŝete. Li tristas. Sekreta me-353
 
-dorse, la kapo klinita, li iras popaŝete. Li tristas. Sekreta me-353
-
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-lankolio ruinigas lian animon. Lia koro malplenas, kaj la bur-
+lankolio ruinigas lian animon. Lia koro malplenas, kaj la burso similas al la koro; Kasandro, lia mastro, respondas je pe-
 
-so similas al la koro; Kasandro, lia mastro, respondas je pe-
+toj pri mono per ega piedbato, kiaj tiom oftas en la pantomim-dialogoj.
 
-toj pri mono per ega piedbato, kiaj tiom oftas en la panto-
-
-mim-dialogoj.
-
-Povra Pieroto! Kiel tristas la situacio! Senĉese batoj, salaj-
-
-ro nenia, manĝo malmultas kaj raras, ne mirinde, ke pro tio
+Povra Pieroto! Kiel tristas la situacio! Senĉese batoj, salajro nenia, manĝo malmultas kaj raras, ne mirinde, ke pro tio
 
 la homo paliĝas. Por ke pokalo de la malfeliĉo estu plena,
 
 Pieroto krome estas enamiĝinta, sed ne al juna bela vizaĝeto
 
-aŭ al kvadratita jupo, sed al granda damo, al tre granda da-
+aŭ al kvadratita jupo, sed al granda damo, al tre granda damo, al Dukino! — kiun li vidis descendi el kaleŝo antaŭ pre-
 
-mo, al Dukino! — kiun li vidis descendi el kaleŝo antaŭ pre-
+ĝejo aŭ antaŭ la Operejo; ni ne povas precize difini, kie. Pieroto timas, ke pro la amo kaj devigaj festoj suferas lia mieno.
 
-ĝejo aŭ antaŭ la Operejo; ni ne povas precize difini, kie. Pie-
-
-roto timas, ke pro la amo kaj devigaj festoj suferas lia mieno.
-
-Li pripalpas sian malgrasan nazon kaj krurojn, kiuj estas mal-
-
-dikaj kiel brakoj de dancistino. Sed tio ne turmentas lin ple-
+Li pripalpas sian malgrasan nazon kaj krurojn, kiuj estas maldikaj kiel brakoj de dancistino. Sed tio ne turmentas lin ple-
 
 je; la enamiĝinto povas aspekti pale kaj dolorplene. La plej
 
 grava afero estas: li ŝatus veni en la societon, por vidi tiun, kiun li amas. Sed li havas nenian alian veston ol pantalonon
 
-kaj kitelon el blanka tolo. Kuru al supeo, kiun aranĝas la Du-
+kaj kitelon el blanka tolo. Kuru al supeo, kiun aranĝas la Dukino, tiel ridinde dandigitaj! Nek vesto, nek mono — kion
 
-kino, tiel ridinde dandigitaj! Nek vesto, nek mono — kion
-
-fari? Kiel atingi la nealireblan paradizon, brilantan per kris-
-
-talo, lumoj, virinoj kaj floroj, supozataj post lumplenaj pala-
+fari? Kiel atingi la nealireblan paradizon, brilantan per kristalo, lumoj, virinoj kaj floroj, supozataj post lumplenaj pala-
 
 caj fenestroj?
 
-Pieroto estas tute obsedita de siaj amaraj pensoj kaj kulpi-
+Pieroto estas tute obsedita de siaj amaraj pensoj kaj kulpigas diojn, la Fortunon kaj faton. Tiam neatendite venas ko-
 
-gas diojn, la Fortunon kaj faton. Tiam neatendite venas ko-
-
-mercisto kun vestoj, brokantisto kun paketo da eluzita vesta-
-
-ro. Ho, se mi havus fajrere verdan frakon kaj la lukse larĝan
+mercisto kun vestoj, brokantisto kun paketo da eluzita vestaro. Ho, se mi havus fajrere verdan frakon kaj la lukse larĝan
 
 kozakan pantalonon! diras al si Pieroto, enokule avid-brilon,
 
-la fingroj tremantaj pro nesuperebla deziro; li etendas la bra-
-
-kojn kaj denove ilin mallevas al la korpo. La brokantisto ver-
+la fingroj tremantaj pro nesuperebla deziro; li etendas la brakojn kaj denove ilin mallevas al la korpo. La brokantisto ver-
 
 simile ĵus aĉetis malnovan vestaron de nacia gardisto kaj por-
 
 **354**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-tas subbrake ankaŭ sabron, en nebatalema pozo, kiel pluv-
-
-ombrelon, sabrotenilon malantaŭe. Sufiĉas tutsimple etendi
+tas subbrake ankaŭ sabron, en nebatalema pozo, kiel pluvombrelon, sabrotenilon malantaŭe. Sufiĉas tutsimple etendi
 
 la manon kaj vi havas la kupran tenilon enmane. Pieroto tion
 
-faris. La komercisto, nenion antaŭvidante, iras pluen. Piero-
+faris. La komercisto, nenion antaŭvidante, iras pluen. Pieroto staras senmove, sed firme li premas la tenilon, la nuda
 
-to staras senmove, sed firme li premas la tenilon, la nuda
+klingo mem elglitis el ingo. Kiam ekbrilas la ŝtalo, diabla ideo naskiĝas en la cerbo de Pieroto. Li retroenigas la klingon, tamen ne en la ingon, sed en la korpon de la malfeliĉa ĉifonulo; la akraĵo lin tute traas. La brokantisto falas morta.
 
-klingo mem elglitis el ingo. Kiam ekbrilas la ŝtalo, diabla ideo naskiĝas en la cerbo de Pieroto. Li retroenigas la klingon, tamen ne en la ingon, sed en la korpon de la malfeliĉa ĉifonu-
-
-lo; la akraĵo lin tute traas. La brokantisto falas morta.
-
-Pieroto ne perdas tempon. Rapide li elserĉas en lia sorti-
-
-mento veston, kiu plaĉas al li. Por ke oni ne malkovru la kri-
+Pieroto ne perdas tempon. Rapide li elserĉas en lia sortimento veston, kiu plaĉas al li. Por ke oni ne malkovru la kri-
 
 mon, li fortrenas la kadavron al la kela fenestreto kaj ĵetas ĝin enen.
 
@@ -18421,9 +15040,7 @@ Opiniante, ke tiel li forigis ĉiujn spurojn post sia ago, li
 
 volas rapide hejmeniri por alivesti sin kaj kaleŝi al la Dukino.
 
-Sed tiam subite leviĝas la kela fermaĵo, en la mortokitelo ape-
-
-ras la animo de lia viktimo, sabro-pinton enbruste kaj obtuz-
+Sed tiam subite leviĝas la kela fermaĵo, en la mortokitelo aperas la animo de lia viktimo, sabro-pinton enbruste kaj obtuz-
 
 voĉe ekkrias: ”ĉiffonoj, malnovaj ĉiffonoj!”
 
@@ -18433,13 +15050,9 @@ Pieroto? Sed li rekuraĝiĝas, eltiras el lignoamasego grandan
 
 ŝtipon kaj en malespera decidiĝo, por senigi sin de la terura
 
-vizio, li komencas teruran lukton kontraŭ la fantomo. La om-
+vizio, li komencas teruran lukton kontraŭ la fantomo. La ombro defendas sin, sed la sveniga kapbato faligas ĝin enkelen.
 
-bro defendas sin, sed la sveniga kapbato faligas ĝin enkelen.
-
-Por sekurigi sin, li rulamasigas sur la fermaĵon amason da lig-
-
-no. Kaj poste aldoninte al sia fiago mokon, li klinas sin super la fenestreto, kaj imitante la fantom-voĉon, li krias post ĝi:
+Por sekurigi sin, li rulamasigas sur la fermaĵon amason da ligno. Kaj poste aldoninte al sia fiago mokon, li klinas sin super la fenestreto, kaj imitante la fantom-voĉon, li krias post ĝi:
 
 ĉiffffonoj! Malnovaj ĉifonoj!
 
@@ -18451,17 +15064,12 @@ La scenejo alternas. Pieroto revenas hejmen kaj kun res-
 
 **355**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-pekta mieno survestas larĝan pantalonon kaj sukplene ver-
+pekta mieno survestas larĝan pantalonon kaj sukplene verdan frakon; li butonas kolumon, alfiksas nigrajn lipharojn por
 
-dan frakon; li butonas kolumon, alfiksas nigrajn lipharojn por
-
-kaŝvuali la kriman palon de sia vizaĝo, li lokas en sian farun-
-
-blankon du ruĝetajn nubetojn. Pieroto eniras al la Dukino; li
+kaŝvuali la kriman palon de sia vizaĝo, li lokas en sian farunblankon du ruĝetajn nubetojn. Pieroto eniras al la Dukino; li
 
 scias jam kiel konduti, li estas sang-frida, societema, digna. Li riverencas tiel perfekte, kiel scipovas nur danc-instruisto aŭ
 
@@ -18477,9 +15085,7 @@ Sed subite, meze de la plej bela frazo, Pieroto embarasiĝas.
 
 Liaj falsaj lipharoj hirtiĝas pro teruro, la ruĝo defalas, la ĉapelo tremetas, la frak-manikoj kvazaŭ kurtiĝus; obtuza voĉo,
 
-spirmanka kiel stertorado de agonianto, ekmurmuras la sinis-
-
-trajn vortojn: ”ĉifffonoj! Malnovaj ĉifffonoj!”
+spirmanka kiel stertorado de agonianto, ekmurmuras la sinistrajn vortojn: ”ĉifffonoj! Malnovaj ĉifffonoj!”
 
 Kapo aperas surplanke. Nenia dubo, jen la fantomo. La
 
@@ -18489,9 +15095,7 @@ terurigita Pieroto metas sian kruron sur la kranion kaj premas
 
 sia patro: ”Sufiĉe! Sufiĉe, malbenita talpo!” Li daŭrigas sian
 
-konfeson kun heroa kuraĝo. La fantomo aperas kelkajn pa-
-
-ŝojn pli malproksime. Ankoraŭ unufoje Pieroto enpremas ĝin
+konfeson kun heroa kuraĝo. La fantomo aperas kelkajn paŝojn pli malproksime. Ankoraŭ unufoje Pieroto enpremas ĝin
 
 teren per sia kalkanumo.
 
@@ -18501,9 +15105,7 @@ fantomo, kaj fordonas sin al eksplode spasma ĝojo. Li dancas
 
 sovaĝan galopon, furioze li dancas. Kaj kiam li saltdancis, li
 
-sentas varmegon kaj volas sin refreŝigi per glaciaĵo. Sed ĉie-
-
-lo! La fantomo aperis denove, alportas pleton, kaj kiam Pie-
+sentas varmegon kaj volas sin refreŝigi per glaciaĵo. Sed ĉielo! La fantomo aperis denove, alportas pleton, kaj kiam Pie-
 
 roto etendas al ĝi la manon, ĝi ekmuĝas per la tono ankoraŭ
 
@@ -18511,23 +15113,16 @@ pli tombeca ol antaŭe: ”ĉiffonoj! Malnovaj ĉiffffonoj!”
 
 **356**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ĉi tie disvolviĝas inter la frandemo de Pieroto kaj lia mal-
+ĉi tie disvolviĝas inter la frandemo de Pieroto kaj lia malkuraĝo unu el veraj kaj profunde ridindaj luktoj, kiujn Debu-
 
-kuraĝo unu el veraj kaj profunde ridindaj luktoj, kiujn Debu-
-
-rau scias tiel perfekte esprimi. Venkas la avido, Pieroto elek-
-
-tas glaciaĵ-porcion irizkoloran, sed tuj kiam li ektuŝas ĝin per siaj pekemaj lipoj, la glaciaĵo ŝanĝiĝas je fajro kaj teruras lin.
+rau scias tiel perfekte esprimi. Venkas la avido, Pieroto elektas glaciaĵ-porcion irizkoloran, sed tuj kiam li ektuŝas ĝin per siaj pekemaj lipoj, la glaciaĵo ŝanĝiĝas je fajro kaj teruras lin.
 
 Mire, ke li ne sufokiĝas.
 
-La terura supeo finiĝis. Malgraŭ la teruraj vizioj de la fan-
-
-tomo Pieroto sukcesis proksimiĝi al la koro de la Dukino kaj
+La terura supeo finiĝis. Malgraŭ la teruraj vizioj de la fantomo Pieroto sukcesis proksimiĝi al la koro de la Dukino kaj
 
 esperas fariĝi baldaŭ unu el la plej feliĉaj homoj. Rememoro
 
@@ -18537,21 +15132,15 @@ kaj de la homa karaktero ni devas rekoni, ke Pieroto estas
 
 feliĉa. ĉie li sukcesas, estas bonŝanca en la kartludado, li povas aĉetadi cigaredojn, silkajn gantojn, novan kravaton.
 
-Sed Pieroto, kiu vivas en nobela societo, akceptis de ĝi an-
-
-kaŭ ĝiajn elegantajn malvirtojn. La amo al la Dukino ne mal-
+Sed Pieroto, kiu vivas en nobela societo, akceptis de ĝi ankaŭ ĝiajn elegantajn malvirtojn. La amo al la Dukino ne mal-
 
 helpas lin rilati ankoraŭ kun kelkaj dancistinoj el la Operejo, kaj la povrulo baldaŭ aperas sur la alia rando. Restas al li nenio alia ol vendi la belegan frakon en koloro de la espero, al
 
 kiu li ŝuldas por tiom da sukcesoj, kaj la miraklan pantalonon, kiu kaŝis liajn sveltegajn krurojn sen suroj.
 
-Nun venas la drameca situacio multsignifa kaj horora, fi-
+Nun venas la drameca situacio multsignifa kaj horora, filozofie profunda. Pieroto persekutata de rememoro pri sia
 
-lozofie profunda. Pieroto persekutata de rememoro pri sia
-
-krimo ne kuraĝas alvoki la brokantiston, por ne allogi la te-
-
-ruran viziton. Sed la fantomo, kvazaŭ alvokite, iras senaten-
+krimo ne kuraĝas alvoki la brokantiston, por ne allogi la teruran viziton. Sed la fantomo, kvazaŭ alvokite, iras senaten-
 
 de trans la straton kaj stertoras raŭkvoĉe, kvazaŭ lia buŝo plenus de argilo: ”ĉifffonoj! Malnovaj ĉifffonoj!…”
 
@@ -18561,7 +15150,6 @@ kuraĝo, kiu superas tiun de Don Juano, proponas al la fanto-
 
 **357**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18571,19 +15159,13 @@ La fantomo montras, ke ĉio estas eluzita kaj proponas tridek
 
 centimojn. Pieroto riproĉas al ĝi, ke ĝi volas lin priŝteli, sed finfine kapjesas kaj transdonas al ĝi la vestaĵon. Sed la fantomo proklamas, ke la aĵoj estas fakte ĝia propraĵo kaj ne volas
 
-pagi. La justa kolero de Pieroto estas senlima; li atakas la fantomon perpiede, poste perpugne. La fantomo eltiras la sa-
+pagi. La justa kolero de Pieroto estas senlima; li atakas la fantomon perpiede, poste perpugne. La fantomo eltiras la sabron, ĝis nun enigitan enbrusten, kaj skermas, por defendi
 
-bron, ĝis nun enigitan enbrusten, kaj skermas, por defendi
-
-sin. Pieroto agas tiel kuraĝe, ke li denove ekposedas la vesta-
-
-ron kaj restas venkinto sur batalejo.
+sin. Pieroto agas tiel kuraĝe, ke li denove ekposedas la vestaron kaj restas venkinto sur batalejo.
 
 Sed malgraŭ ĉi tiu venko, lia pozicio ne pliboniĝis. Mankas
 
-mono. Kion fari? Li rifuĝas al ruzo inda je Maskariloj kaj Ska-
-
-pinoj de Moliero. Li trovas Kasandron kaj diras al li: ”Vidu,
+mono. Kion fari? Li rifuĝas al ruzo inda je Maskariloj kaj Skapinoj de Moliero. Li trovas Kasandron kaj diras al li: ”Vidu,
 
 krudaj korsaroj elŝiris mian langon, donacu al mi, mi petas,
 
@@ -18593,9 +15175,7 @@ iun aĵon!”
 
 do ci povas paroli ne havante la langon?”
 
-”A˛, sinjoro, mi posedas ĝin nur tiom, por povi peti ho-
-
-nestajn homojn pri kompato.”
+”A˛, sinjoro, mi posedas ĝin nur tiom, por povi peti honestajn homojn pri kompato.”
 
 Kasandro emociita de la respondo, donas al Pieroto kelkajn
 
@@ -18607,9 +15187,7 @@ diri al vi, ke tiuj ferocaj korsaroj elpikis ankaŭ miajn okulojn.”
 
 ”Kiel ci do povas min sekvi, ne vidante?”
 
-”Nobla sinjoro, mi vidas nur tiom, por distingi mizerikor-
-
-dajn animojn!”
+”Nobla sinjoro, mi vidas nur tiom, por distingi mizerikordajn animojn!”
 
 ”Ci emociigas min,” diras Kasandro. ”Jen la mono kaj iru
 
@@ -18621,21 +15199,16 @@ oni bezonas ankoraŭ pli grandan kuraĝon; li volas ekposedi
 
 **358**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-la tutan monujon. Li eltiras la brakojn el la manikoj de la ki-
-
-telo tiel, ke tiuj malplenas kvazaŭ post amputo kaj svingas per ili kiel pingveno per flugiletoj. ”Sinjoro Kasandro, la mavaj
+la tutan monujon. Li eltiras la brakojn el la manikoj de la kitelo tiel, ke tiuj malplenas kvazaŭ post amputo kaj svingas per ili kiel pingveno per flugiletoj. ”Sinjoro Kasandro, la mavaj
 
 turkoj dehakis miajn manojn.”
 
 ”Kiel malbone, sed kion mi povas fari?”
 
-Dume Pieroto enŝovas la polmon en la poŝon de Kasand-
-
-ro, sed tiu ekrimarkas tion: ”Kiel, latrono, ci asertas, ke turkoj dehakis al ci la manojn, kaj unu el ili ci havas en mia po-
+Dume Pieroto enŝovas la polmon en la poŝon de Kasandro, sed tiu ekrimarkas tion: ”Kiel, latrono, ci asertas, ke turkoj dehakis al ci la manojn, kaj unu el ili ci havas en mia po-
 
 ŝo!”
 
@@ -18663,9 +15236,7 @@ Edziĉeremonio.
 
 Pieroto ebria de orgojlo, ekstaras frunte de la procesio kaj
 
-ekprenas la tenerajn fingretojn de sia blankega fianĉino. Ne-
-
-atendite — el budeto de la sufloro — aperas antaŭ li la teru-
+ekprenas la tenerajn fingretojn de sia blankega fianĉino. Neatendite — el budeto de la sufloro — aperas antaŭ li la teru-
 
 ra fantomo kaj kriaĉe ripetas la fatalajn vortojn: ”ĉifffonoj!
 
@@ -18673,9 +15244,7 @@ Malnovaj ĉifffonoj!”
 
 Pieroto preskaŭ svenonta forlasas la fianĉinon kaj atakas la
 
-fantomon, forpelas ĝin per furiozaj pugnobatoj. Fine li ek-
-
-sidas sur la budeto, por malhelpi al la demono revenon el la
+fantomon, forpelas ĝin per furiozaj pugnobatoj. Fine li eksidas sur la budeto, por malhelpi al la demono revenon el la
 
 tomba subtero. La fianĉino miregas pro lia stranga konduto;
 
@@ -18683,7 +15252,6 @@ la spirito videblas nome nur al la pekinta Pieroto. La Dukino
 
 **359**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18695,33 +15263,23 @@ per longaj brakoj kaj igas lin danci inferan galopon, centfoje
 
 pli teruran ol estas la fama valso de Mefistofelo, kiun dancis
 
-tiel mirinde Frederiko Lemaitre. La mortigito premas la mur-
-
-dulon al sia brusto tiel, ke la sabropinto trairas la korpon de Pieroto kaj eliĝas inter liaj skapoloj. La viktimo kun kun la
+tiel mirinde Frederiko Lemaitre. La mortigito premas la murdulon al sia brusto tiel, ke la sabropinto trairas la korpon de Pieroto kaj eliĝas inter liaj skapoloj. La viktimo kun kun la
 
 murdinto estas trapikitaj per la sama ŝtalo, kiel du skaraboj
 
-sur unu pinglo. La fantasta duopo kelkfoje turnas sin kaj pos-
-
-te ĝi malaperas en la enfalejo meze de giganta flamo. La fi-
+sur unu pinglo. La fantasta duopo kelkfoje turnas sin kaj poste ĝi malaperas en la enfalejo meze de giganta flamo. La fi-
 
 anĉino svenas, ŝiaj gepatroj dronas en mirego kaj doloro, la
 
 kurteno falas, la publiko aplaŭdas.
 
-El la libro-suĵeto de la aŭtoro, eĉ se ĝi konserviĝus, ni eksci-us eĉ ne la dekonon de tio, kion kapablis vidi kaj noti la spi-
-
-ritplena Teofilo Gautier. Ni ne volas malriĉigi nin je konklu-
+El la libro-suĵeto de la aŭtoro, eĉ se ĝi konserviĝus, ni eksci-us eĉ ne la dekonon de tio, kion kapablis vidi kaj noti la spiritplena Teofilo Gautier. Ni ne volas malriĉigi nin je konklu-
 
 doj, kiujn li deduktis al la verko:
 
-”ĉu tiu dramo ne estas mirinda? En ĝi alternas rido kun teru-
+”ĉu tiu dramo ne estas mirinda? En ĝi alternas rido kun teruro. Pieroto promenanta tra strato en blanka kitelo, en blan-
 
-ro. Pieroto promenanta tra strato en blanka kitelo, en blan-
-
-ka pantalono, kun la vizaĝo farunumita, malkvieta pro ned-
-
-ifinitaj sopiroj — ĉu tio ne prezentas al ni simbolon de la ho-
+ka pantalono, kun la vizaĝo farunumita, malkvieta pro nedifinitaj sopiroj — ĉu tio ne prezentas al ni simbolon de la ho-
 
 ma animo, ĝis nun senkulpa, blanka, baraktanta pro senfinaj
 
@@ -18729,21 +15287,16 @@ instinktoj?
 
 ĉu la sabro-tenilo, kiu mem sin proponas al la mano de
 
-Pieroto kaj allogas lin per sia perfida brilo, ne estas konvin-
-
-ka simbolo kaj signo de potenco, donanta ŝancojn al animoj
+Pieroto kaj allogas lin per sia perfida brilo, ne estas konvinka simbolo kaj signo de potenco, donanta ŝancojn al animoj
 
 ŝanceliĝantaj, dronantaj en tentoj? La impeto, kun kiu eniĝas
 
 la klingo en la korpon de la viktimo, atestas, kiel facilas fari krimon kaj kiel unu simpla movo povas nin poreterne dam-360
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-ni. Pieroto ekkaptis la sabron, ankoraŭ ne havante alian ide-
-
-on, ol petoli. Sed el ŝerco naskiĝis krimo. La fantomo eliran-
+ni. Pieroto ekkaptis la sabron, ankoraŭ ne havante alian ideon, ol petoli. Sed el ŝerco naskiĝis krimo. La fantomo eliran-
 
 ta el profundo de la kelo, montras, ke krimon oni ne povas
 
@@ -18751,23 +15304,15 @@ forigi. ĉia klopodo de Pieroto forpeli la plendantan ombron
 
 de sia viktimo denove en subteron, laŭ intenco de la aŭtoro
 
-komprenigas, ke la singardemo povas eble prokrasti la mal-
+komprenigas, ke la singardemo povas eble prokrasti la malkaŝon de la krimo, sed la venĝotago certe foje venos. La fan-
 
-kaŝon de la krimo, sed la venĝotago certe foje venos. La fan-
-
-tomo enkorpigas laŭ neordinare drameca kaj vere terura ma-
-
-niero la konscienc-riproĉojn.
+tomo enkorpigas laŭ neordinare drameca kaj vere terura maniero la konscienc-riproĉojn.
 
 La simpla ekkrio: ”Mallllnovaj ĉifffonoj!” kiu plenigas la
 
-animon de Pieroto de tia teruro, estas same genia kaj elok-
+animon de Pieroto de tia teruro, estas same genia kaj elokventa kiel la mondfama diraĵo de Makbeto: ”Li plenis de san-
 
-venta kiel la mondfama diraĵo de Makbeto: ”Li plenis de san-
-
-go.” i estas ekkrio, kiun elvortigis la viktimo en la momen-
-
-to de la murdo. La vortoj kaj ilia akcento estas neforviŝeble
+go.” i estas ekkrio, kiun elvortigis la viktimo en la momento de la murdo. La vortoj kaj ilia akcento estas neforviŝeble
 
 enĉizitaj en la memoron de la murdinto. ĉu la sceno pri la
 
@@ -18787,13 +15332,9 @@ La sceno, en kiu Pieroto arogante frontas al la fantomo kaj
 
 vendas al ĝi la vestaron, kiun li rabis de ĝi, montras per la
 
-senhonta aŭdaco, ke la disnodiĝo de la problemo alproksi-
+senhonta aŭdaco, ke la disnodiĝo de la problemo alproksimiĝas kaj ke en la subtera mondo oni jam preparas bengalan
 
-miĝas kaj ke en la subtera mondo oni jam preparas bengalan
-
-flamon. Pieroto, same kiel Don Juano, provokas la ĉielan ko-
-
-leron kaj venis al la lasta grado de la obstinego; kiam la ven-
+flamon. Pieroto, same kiel Don Juano, provokas la ĉielan koleron kaj venis al la lasta grado de la obstinego; kiam la ven-
 
 ĝema fantomo dum la edziĝfesto reaperas, li jam ne havas
 
@@ -18801,7 +15342,6 @@ forton ĝin forpeli. La infera galopo, kiam la sabro-pinto el la korpo de la bro
 
 **361**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18813,9 +15353,7 @@ traos ankoraŭ pli profunden lian propran koron. ĉu vi konas
 
 multe da tragedioj, kiuj ebligus tian analizon?”
 
-Eĉ se multaj homoj ne komprenis la esencon de la panto-
-
-mimo, ĉiuj konstatis, ke la teatraĵo per sia tuta karaktero di-
+Eĉ se multaj homoj ne komprenis la esencon de la pantomimo, ĉiuj konstatis, ke la teatraĵo per sia tuta karaktero di-
 
 ferencas de ĉio, kion ĝis nun li ludis.
 
@@ -18845,15 +15383,12 @@ kun ili. Nature, ĉiuj sciis, ke la teatraĵo malaperos el la repertuaro, se Deb
 
 suĵeto sur la scenejo de Funambules kaŭzis, ke la malico kaj
 
-envio makulis Pieroton per koto. Li ne trovis tiutempe mul-
-
-te da voĉoj, kiuj protektus lin. Iuj el la literaturaj eksadmirantoj ascendis al apogeo tro rapide tiel, ke mankis al ili tempo
+envio makulis Pieroton per koto. Li ne trovis tiutempe multe da voĉoj, kiuj protektus lin. Iuj el la literaturaj eksadmirantoj ascendis al apogeo tro rapide tiel, ke mankis al ili tempo
 
 por rerigardi. Aliaj haltis nur leĝere. Aliaj entute evitis renkontiĝon. Gérard de Nerval ĝis la lasta tempo skribis pri li,
 
 kiel pri neanstataŭigebla mim-artisto, sed kiam ili renkontiĝis persone, Gasparo jam ne kapablis sekvi lian perpleksan spi-362
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18877,21 +15412,15 @@ efikis. Kion la vivo ne povis donaci al li, redonis al li la scenejo. Li konfesi
 
 sovaĝan batalon kontraŭ ili, akceptis la punon antaŭ ĉies
 
-okuloj, en lumo de la bengalo. Irante hejmen post la prezen-
+okuloj, en lumo de la bengalo. Irante hejmen post la prezentado li sentis sin purigita kaj lia koro malpezis.
 
-tado li sentis sin purigita kaj lia koro malpezis.
-
-”Do, kion fari,” murmuretis Bertrand. ”Ni forigos do la ĉi-
-
-fonulon. Sed kion anstataŭ ĝi?”
+”Do, kion fari,” murmuretis Bertrand. ”Ni forigos do la ĉifonulon. Sed kion anstataŭ ĝi?”
 
 Deburau rekompencis la direktoraron per rolo de angla
 
 soldato en la pantomimo ”Mandareno Chu-Hun-Li”, kiun li
 
-prezentis kun tiel freŝa kaj superabunda humuro, ke la ak-
-
-toroj sursceneje ofte ne kapablis daŭrigi pro rido. Li rekom-
+prezentis kun tiel freŝa kaj superabunda humuro, ke la aktoroj sursceneje ofte ne kapablis daŭrigi pro rido. Li rekom-
 
 pencis la publikon per figuro de perpleksa soldato Pichounot
 
@@ -18901,9 +15430,7 @@ buldogo. La periferio laŭde akceptis la mokon pri soldatismo
 
 kaj kontraŭ militemo. Lia cerbo funkciis post la puriga bano
 
-en la ”ĉifonulo” duoble freŝe kaj klare kaj alportis al li ama-
-
-sojn da inspiroj; la homoj amuzis sin per liaj scenoj pli kaj pli laŭte kaj ankoraŭ li ne finis sian inventemon, ĉiam ankoraŭ
+en la ”ĉifonulo” duoble freŝe kaj klare kaj alportis al li amasojn da inspiroj; la homoj amuzis sin per liaj scenoj pli kaj pli laŭte kaj ankoraŭ li ne finis sian inventemon, ĉiam ankoraŭ
 
 li signis al kapelestro, por ke tiu ripetu la muzikon la duan
 
@@ -18913,17 +15440,12 @@ Sur la flankseĝo ĉeporde sidis nun ofte juna viro kun skiz-
 
 **363**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-bloko surgenue. Li strebis kapti la esprimon de ĉiuj metamor-
+bloko surgenue. Li strebis kapti la esprimon de ĉiuj metamorfozoj de Pieroto. Sed ofte li ankaŭ turnis sin de la scenejo kaj krokizis el epizodoj sur la galerio. Ankoraŭ antaŭ nelonge li
 
-fozoj de Pieroto. Sed ofte li ankaŭ turnis sin de la scenejo kaj krokizis el epizodoj sur la galerio. Ankoraŭ antaŭ nelonge li
-
-estis ĉe advokato. Lia talento lndukis al litografio, li komencis publikigadi desegnaĵojn, kritikantaj la burĝaron, de-
-
-fendis la revolucion, laŭdis la sovaĝan publikon el Funambu-
+estis ĉe advokato. Lia talento lndukis al litografio, li komencis publikigadi desegnaĵojn, kritikantaj la burĝaron, defendis la revolucion, laŭdis la sovaĝan publikon el Funambu-
 
 les. Li estis Charles Daumier. Por la profunda populareco de
 
@@ -18935,31 +15457,21 @@ vidis lin danci kankanon el ”Pieroto en Afriko”. ”Mi ne plu
 
 atendos vin. Mi edziniĝos.”
 
-Sian postenon ĉe la loĝioj ŝi devis cedi al pli juna biletisti-
-
-no, sed restis al ŝi zorgo pri la vestejo kaj ordigado en la vestejoj. ”Do, ĉu la krudulo, kiu lasis vin tiel longe atendi, tamen venis?”
+Sian postenon ĉe la loĝioj ŝi devis cedi al pli juna biletistino, sed restis al ŝi zorgo pri la vestejo kaj ordigado en la vestejoj. ”Do, ĉu la krudulo, kiu lasis vin tiel longe atendi, tamen venis?”
 
 ”Li estas iu alia. Se vi konus tiun krudulon!”
 
-Sed al Gasparo jam delonge estis klara la sekreto de la vi-
+Sed al Gasparo jam delonge estis klara la sekreto de la virino, kiu maljuniĝis apud li kaj en la silentema admiro vani-
 
-rino, kiu maljuniĝis apud li kaj en la silentema admiro vani-
-
-gis sian vivon. Ankaŭ Margot konfirmis tion al li, kiam ŝi ko-
-
-natiĝis kun ŝi.
+gis sian vivon. Ankaŭ Margot konfirmis tion al li, kiam ŝi konatiĝis kun ŝi.
 
 ”La konvaloj estis ĉiam de vi, Aimée?”
 
 ”Ne,” neas la virino.
 
-”Tiam miaj pensoj vagis ĉiam tro fore. Oni devas recipro-
+”Tiam miaj pensoj vagis ĉiam tro fore. Oni devas reciproke multon pardoni al si, ĉu?”
 
-ke multon pardoni al si, ĉu?”
-
-Feliĉe, ke ili solecas en la vestgardejo. Stranga duopo, mal-
-
-juniĝinta komedianto, forvelkinta virino — kaj ili mienas kva-
+Feliĉe, ke ili solecas en la vestgardejo. Stranga duopo, maljuniĝinta komedianto, forvelkinta virino — kaj ili mienas kva-
 
 zaŭ ĉe la unua rendevuo!
 
@@ -18969,7 +15481,6 @@ zaŭ ĉe la unua rendevuo!
 
 **364**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -18977,9 +15488,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 fidelis.”
 
-”Kiomfoje oni faras maljustaĵon al iu, ne sciante tion. Res-
-
-tis en mi ankoraŭ iom da sento. ĉu vi kontentiĝos pri mia
+”Kiomfoje oni faras maljustaĵon al iu, ne sciante tion. Restis en mi ankoraŭ iom da sento. ĉu vi kontentiĝos pri mia
 
 modesta amikeco?”
 
@@ -18989,39 +15498,26 @@ kun Margot.”
 
 Deburau ekaŭdis el la salonego melodion, kiun li atendis.
 
-En la revuo ”La jaro 1843 en infero” Klemento kantas kanzo-
+En la revuo ”La jaro 1843 en infero” Klemento kantas kanzonon pri Deburau.
 
-non pri Deburau.
+”Pardonu, Aimée, versimile mi fariĝis en miaj maljunaj jaroj vantemulo. Sed ĉiam ŝate mi aŭdas tion.”
 
-”Pardonu, Aimée, versimile mi fariĝis en miaj maljunaj ja-
-
-roj vantemulo. Sed ĉiam ŝate mi aŭdas tion.”
-
-Li foriras post kulisojn kaj time aŭskultas la kanton pri Pie-
-
-roto. Oni aplaŭdas. Kaj lia delikata aŭdosento konstatas, ke
+Li foriras post kulisojn kaj time aŭskultas la kanton pri Pieroto. Oni aplaŭdas. Kaj lia delikata aŭdosento konstatas, ke
 
 la aplaŭdo ne estas pli malforta ol hieraŭ.
 
 **365**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La lasta prezentado
 
-ĉar la filon de Bertrand la teatro ne tro interesis, li akcep-
+ĉar la filon de Bertrand la teatro ne tro interesis, li akceptis kiel kompaniulon sian nevon, nomatan Billion. Li estis
 
-tis kiel kompaniulon sian nevon, nomatan Billion. Li estis
+novtempa viro. Bertrand volis profiti, havis aron da malvirtoj, sed elkore amis la teatran mondon, kaj se ĝi ne kostis
 
-novtempa viro. Bertrand volis profiti, havis aron da malvir-
-
-toj, sed elkore amis la teatran mondon, kaj se ĝi ne kostis
-
-multe, li sentis kompaton al siaj aktoroj. La juna Bilion apre-
-
-cadis tian naivecon malrespekte. Li estis fridsenta, sprita kaj agresema.
+multe, li sentis kompaton al siaj aktoroj. La juna Bilion aprecadis tian naivecon malrespekte. Li estis fridsenta, sprita kaj agresema.
 
 Li elserĉis al si en Bobino la plej belan feinon kaj akceptis
 
@@ -19051,7 +15547,6 @@ antaŭaj, nigroharulino kun nigraj okuloj; sed ŝia voluptema
 
 buŝo, kiun kisi aspiris ĉiuj junuloj el la partero, estis menso-366
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19073,13 +15568,9 @@ Billion estri la teatron firmamane laŭ la propraj intencoj. Sed li faris tion, 
 
 Li konvinkiĝadis ĉiupaŝe, ke li devas kalkuli kun Deburau
 
-kiel kun la granda potenco en la teatro. Kiam la aktoroj ape-
+kiel kun la granda potenco en la teatro. Kiam la aktoroj apelaciis al Deburau, li ne povis protesti.
 
-laciis al Deburau, li ne povis protesti.
-
-Neniu direktoro en la mondo povus lin venki, ĉar al li apa-
-
-tenis ĉiu publiko, antaŭ kiu li aperis. Sed granda venkinto
+Neniu direktoro en la mondo povus lin venki, ĉar al li apatenis ĉiu publiko, antaŭ kiu li aperis. Sed granda venkinto
 
 estis la malsano. Atakoj de astmo pli kaj pli oftis. Deburau
 
@@ -19089,23 +15580,18 @@ Deburau ne povas veni.
 
 Billion havis enrezerve Paŭlon Legrand. Li fakte estis bona
 
-disĉiplo de Gasparo, sed estis pli juna. Tial li ne kapablis el-krei Pieroton sang-malvarma, aŭdaca, sperta. Li estis pli in-
-
-fano, kiu jen ridis, jen larmis.
+disĉiplo de Gasparo, sed estis pli juna. Tial li ne kapablis el-krei Pieroton sang-malvarma, aŭdaca, sperta. Li estis pli infano, kiu jen ridis, jen larmis.
 
 Kiam Gasparo malsaniĝis, li atendadis streĉe la vizitojn de
 
 Aimée aŭ de iu alia aktoro, por ekscii, kia estis la prezentado.
 
-Li ŝatis Legrand-on kaj tamen senvole ĵaluzis je li, ĉar dolo-
-
-re li sentis, ke en aplaŭdo al Legrand forpasas lante lia vivo.
+Li ŝatis Legrand-on kaj tamen senvole ĵaluzis je li, ĉar dolore li sentis, ke en aplaŭdo al Legrand forpasas lante lia vivo.
 
 ”Kial li ne atendas, ĝis mi mortos?” li koleretis ŝerce.
 
 **367**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19113,9 +15599,7 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 ”Jam morgaŭ mi ludos. Nenio mankas al mi.”
 
-Tamen denove li eksciis, kiel kiun scenon Legrand prezen-
-
-tis kaj sur kia nivelo.
+Tamen denove li eksciis, kiel kiun scenon Legrand prezentis kaj sur kia nivelo.
 
 Paŭlo Legrand estis ne nur talenta aktoro, sed ankaŭ nobla
 
@@ -19141,9 +15625,7 @@ fortoj, pro la prospero de la teatro.”
 
 Kaj fakte, la tempo ne atendas. Malsano estas peza tasko kaj
 
-postlasas malbonajn spurojn. Nur en la okuloj de Margot Ga-
-
-sparo sin ankoraŭ rekonas. Sed spegulo montras al li homon,
+postlasas malbonajn spurojn. Nur en la okuloj de Margot Gasparo sin ankoraŭ rekonas. Sed spegulo montras al li homon,
 
 kies frunto profunde sulkiĝis, la kapo kliniĝis kaj la plej tristaj el ĉio estas profunde enkavaj okuloj en mallumaj kavetoj.
 
@@ -19151,9 +15633,7 @@ Kiam li darfis iri promene, li vizitadis malnovajn konatajn
 
 lokojn, kiel tombomonumentojn. Foje li ekskursis al ponto de
 
-Slavkov. Dum krepusko li aŭskultis ankaŭ la silenton, grinca-
-
-don de lanternoj super la kapo. Sed la budoj sur la rivero ne
+Slavkov. Dum krepusko li aŭskultis ankaŭ la silenton, grincadon de lanternoj super la kapo. Sed la budoj sur la rivero ne
 
 plu estis. Kie estas liaj iamaj savintoj?
 
@@ -19163,7 +15643,6 @@ Karolo aĝas jam dek sep jarojn. Kiam Margot kun Rosina
 
 eksidas al siaj eternaj floretoj, la patro demetas la metiistajn instrumentojn, per kiuj nun ŝate li okupiĝas, kaj invitas la fi-368
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19183,23 +15662,15 @@ Karolo unue lernis esti horloĝisto en la butiko de la patro
 
 de la biletistino Aimée. Sed foje ŝi mem konsilis al Gasparo,
 
-ke li ne devigu la filon lerni tiun metion. Tiu malĝojas ĉe la laboro, turmentas sin. Li trovis do lernolokon por li ĉe porce-
+ke li ne devigu la filon lerni tiun metion. Tiu malĝojas ĉe la laboro, turmentas sin. Li trovis do lernolokon por li ĉe porcelanpentristo.
 
-lanpentristo.
-
-”Hodiaŭ?” ekridetas Karolo, kiu similas al la patro, sed ha-
-
-vas pli subtilajn trajtojn, hereditajn de la patrino.
+”Hodiaŭ?” ekridetas Karolo, kiu similas al la patro, sed havas pli subtilajn trajtojn, hereditajn de la patrino.
 
 ”Mi pentris iun Pieroton kaj Kolombinan.”
 
-Super la monotona ludo flugetas pensoj. Kial ne almeti su-
+Super la monotona ludo flugetas pensoj. Kial ne almeti subite tute alian ŝtonon, la seson al la trio, kial la ludo ne povus havi alian direkton? Karolo meditas, kiel komenci, por ke la
 
-bite tute alian ŝtonon, la seson al la trio, kial la ludo ne povus havi alian direkton? Karolo meditas, kiel komenci, por ke la
-
-tempesto ne venu tro impete. ”ĉu vi scias, ke Billion akcep-
-
-tis Aleksandron en la ensemblon de Funambules?”
+tempesto ne venu tro impete. ”ĉu vi scias, ke Billion akceptis Aleksandron en la ensemblon de Funambules?”
 
 Aleksandro Guyon estas amiko de Karolo, li estas samaĝa
 
@@ -19219,7 +15690,6 @@ si terenon. ”Por esti al vi proksime!”
 
 **369**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19227,17 +15697,13 @@ moj povas esti proksime al vi, kaj mi ne. ĉu vi permesus, ke
 
 ankaŭ mi iru al teatro?”
 
-”Mi opinias, ke tion ni jam priparolis,” respondas Gaspa-
-
-ro trankvile. ”Vi ne povas fari, kion vi ne lernis.”
+”Mi opinias, ke tion ni jam priparolis,” respondas Gasparo trankvile. ”Vi ne povas fari, kion vi ne lernis.”
 
 ”Mi lernas.”
 
 ”Kie? Kiel?”
 
-”En teatroj. En Funambules. Mi observas homojn, kiel sa-
-
-me vi faris tion.”
+”En teatroj. En Funambules. Mi observas homojn, kiel same vi faris tion.”
 
 ”ĉio ĉi ne sufiĉas.”
 
@@ -19245,15 +15711,11 @@ me vi faris tion.”
 
 konservatorion.”
 
-Patro Deburau levis sin. Li promenis tra la ĉambro. Li re-
-
-gis sin kaj strebis pri trankvila tono.
+Patro Deburau levis sin. Li promenis tra la ĉambro. Li regis sin kaj strebis pri trankvila tono.
 
 ”Kiel vi povis ekhavi tian ideon? ĉiam mi strebis defendi
 
-vin antaŭ tiu mondo, kiu alportas tiom da tristo kaj minimu-
-
-man ĝojon.”
+vin antaŭ tiu mondo, kiu alportas tiom da tristo kaj minimuman ĝojon.”
 
 ”Tamen vi havis tiom da gloro.”
 
@@ -19263,15 +15725,11 @@ dresita simio. Esti aktoro estas ankoraŭ nun granda honto.
 
 Malmultaj sukcesas akiri iom da rekono aŭ iom da civitana
 
-honoro. Male, ĉiu povas vin ofendi, nomi vin per plej malbo-
-
-naj insultoj — kaj la mondo laŭdos lin kaj vin malhonoros. ĉu
+honoro. Male, ĉiu povas vin ofendi, nomi vin per plej malbonaj insultoj — kaj la mondo laŭdos lin kaj vin malhonoros. ĉu
 
 vi komprenas, kion mi volas per tio diri?”
 
-Li ekrigardis la filon kaj serĉis, kian efikon havis lia elok-
-
-venteco. La knabo sidis super domeno kun malĝoja vizaĝo.
+Li ekrigardis la filon kaj serĉis, kian efikon havis lia elokventeco. La knabo sidis super domeno kun malĝoja vizaĝo.
 
 ”Kiel vi povas tiel paroli?” li diris mallaŭte. ”Vi mem ja
 
@@ -19281,7 +15739,6 @@ amas vian profesion.”
 
 **370**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19289,13 +15746,9 @@ kiom da doloroj ĝi alportas. Mi ne volas, ke foje oni moku
 
 vin.”
 
-Karolo estis preparita por duelo. ”La antikvaj grekoj hono-
+Karolo estis preparita por duelo. ”La antikvaj grekoj honoris la aktoran arton. Tio povas reveni.”
 
-ris la aktoran arton. Tio povas reveni.”
-
-”Tiam ĝi estis metio. i estis honesta prezentado de ho-
-
-moj, kiuj okupiĝas pri alia libera profesio.”
+”Tiam ĝi estis metio. i estis honesta prezentado de homoj, kiuj okupiĝas pri alia libera profesio.”
 
 ”Mi legis, ke tie aktoris armeestroj kaj la plej gloraj viroj,”
 
@@ -19307,23 +15760,17 @@ aktoroj fariĝis sklavoj. La direktoroj aĉetadis ilin en bazaroj kaj ekzercis i
 
 batata kaj malsata. Jes, aktoroj estis sklavoj kaj ni restis sklavoj. Tial vi ne fariĝos aktoro.”
 
-Margot estis intervenonta, se estiĝus kverelo. ”Rosina dor-
-
-mas,” ŝi ekflustris.
+Margot estis intervenonta, se estiĝus kverelo. ”Rosina dormas,” ŝi ekflustris.
 
 Sed Karolo jam ne oponis plu. Li eksilentis kaj lia vizaĝo
 
 tristiĝis. La patro eksidis. Post iom da tempo li rigardis la
 
-filon, vidis, ke sur lia vango fluas du grandaj larmoj. Profun-
-
-de li ekĝemis. Kiam liaj infanoj ekploris, ĉiam tio ŝiremis lian koron. La seĝo kvazaŭ brulis. Denove li leviĝis. Alproksimi-
+filon, vidis, ke sur lia vango fluas du grandaj larmoj. Profunde li ekĝemis. Kiam liaj infanoj ekploris, ĉiam tio ŝiremis lian koron. La seĝo kvazaŭ brulis. Denove li leviĝis. Alproksimi-
 
 ĝinte al la filo, li metis sian manon sur lian ŝultron. ”Estu
 
-saĝa,” li diris mallaŭte: ”Ni devas tion primediti.” Kaj deno-
-
-ve li eksplodis pli impete: ”Se almenaŭ mi scius, ke vere vi
+saĝa,” li diris mallaŭte: ”Ni devas tion primediti.” Kaj denove li eksplodis pli impete: ”Se almenaŭ mi scius, ke vere vi
 
 kapablas tion.” La malsekaj okuloj de Karolo ekflamis. ”Tion
 
@@ -19333,13 +15780,10 @@ ja oni prijuĝos en konservatorio.”
 
 do pli ofte iri en teatron. Observu ĉiujn aktorojn. Antaŭ ol vi **371**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-firmigos vian memoron, notu ĉion, kion vi vidis. Poste ripe-
-
-tu, ekzercu tion.”
+firmigos vian memoron, notu ĉion, kion vi vidis. Poste ripetu, ekzercu tion.”
 
 ”Plej ŝate mi rigardas vin, paĉjo. Ofte pri tio vi eĉ ne sciis.
 
@@ -19367,9 +15811,7 @@ kapablos, vi ekvidos. ĉu vi aŭdas, Margot?”
 
 Kaj nokte neniu el ili povas ekdormi pro ĝoja malpacienco.
 
-”Ripozon kaj trankvilon,” ripetis kuracisto senĉese. Sed ripo-
-
-zo signifis foriron el la teatro kaj finon de aktoro. Somere fini-
+”Ripozon kaj trankvilon,” ripetis kuracisto senĉese. Sed ripozo signifis foriron el la teatro kaj finon de aktoro. Somere fini-
 
 ĝos la valideco de la dekjara kontrakto. Kio, se Billion ĝin ne renovigos? Li devis roli, kvankam li sciis, ke la astmo signifas mort-verdikton, en kiu ankoraŭ mankas dato. Sed li batalis
 
@@ -19377,23 +15819,18 @@ kiel heroo.
 
 Li rolis kaj fakte la publiko ne povis plendi, ke li ion ŝuldus al ĝi. En la vestgardejo lin atendadis la filo. Karolo heredis de la patro lian persistemon, firman volon kaj ankaŭ iom da Pierota sagaco. Li sciis, ke li afliktus la patron per troigata mem-372
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 fido. Li volis trapenetri ĉiujn sekretojn de lia arto. Konscie li ŝajnigis, ke li ne komprenis, kaj la patro denove klarigis al li apartajn gestojn. Karolo ilnscie ripetadis mallerte, por ke li igu la patron al fundamenteco.
 
-”Malbone!” korektis lin Gasparo. ”La brako devas iri sam-
-
-tempe kun la kruro. Vi nur grimacas. Tamen survizaĝe ne
+”Malbone!” korektis lin Gasparo. ”La brako devas iri samtempe kun la kruro. Vi nur grimacas. Tamen survizaĝe ne
 
 darfas esti grimaco, sed esprimo. Pensu, Karolo! Antaŭ ĉio
 
 dum la ludado pensu. Se vi volas esprimi bedaŭron, bedaŭru!
 
-Se vi devas vortigi ĝojon, estu feliĉa! Amu, malesperu, plen-
-
-du. Se en via cerbo estas ideo, se vi mem estos konvinkita pri
+Se vi devas vortigi ĝojon, estu feliĉa! Amu, malesperu, plendu. Se en via cerbo estas ideo, se vi mem estos konvinkita pri
 
 io, vi esprimos ĉion maksimume konvinke.”
 
@@ -19405,59 +15842,42 @@ enketadis lin.
 
 ”Se mi devas diri la veron — ne, verdire ne!”
 
-”Sen malcerteco ne ekzistas vera arto. Kie mankas serĉa-
-
-do, tie estas nur hazardo kaj tiun akompanas aroganteco kaj
+”Sen malcerteco ne ekzistas vera arto. Kie mankas serĉado, tie estas nur hazardo kaj tiun akompanas aroganteco kaj
 
 tromemfido. Kiu certe scias pri si, ke li scias multon — tiu
 
-certe ne estas artisto. ĉiu honesta aktoro devas sperti mo-
-
-mentojn, kiam li malbenas sin, kiam li malamas sian malfor-
+certe ne estas artisto. ĉiu honesta aktoro devas sperti momentojn, kiam li malbenas sin, kiam li malamas sian malfor-
 
 ton kaj kiam li konsterniĝas, kiom malmulte li scias kompare
 
 al tio, kion li volus krei.”
 
-Karolo aŭskultas kaj kredas al la patro laŭvorte. Nun ili es-
-
-tas kvazaŭ unu estaĵo. Neniam ili brakumas sin reciproke,
+Karolo aŭskultas kaj kredas al la patro laŭvorte. Nun ili estas kvazaŭ unu estaĵo. Neniam ili brakumas sin reciproke,
 
 nek diras al si varmkoran vorton, sed ili scias, kiel ili amas
 
 unu la alian.
 
-Sed Deburau trostreĉis siajn fortojn. Okaze de iu prezen-
-
-tado februare 1846 li suferis lezon. Kiam li devis je la fino de la pantomimo malaperi en trafalejo, la maŝino, kiu funkciis
+Sed Deburau trostreĉis siajn fortojn. Okaze de iu prezentado februare 1846 li suferis lezon. Kiam li devis je la fino de la pantomimo malaperi en trafalejo, la maŝino, kiu funkciis
 
 neregule, haltis kaj poste tabulo enplanke impete sinkis. Pie-
 
 **373**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-roto, kiu jam lacis, renversiĝis malantaŭen kaj kapfrapis kon-
+roto, kiu jam lacis, renversiĝis malantaŭen kaj kapfrapis kontraŭ la rando. Dum oni anoncis la akcidenton al reĝisoro, oni
 
-traŭ la rando. Dum oni anoncis la akcidenton al reĝisoro, oni
+paŭzis. Sed Deburau baldaŭ rekonsciiĝis kaj aperis sursceneje. Li volis daŭrigi sian rolon.
 
-paŭzis. Sed Deburau baldaŭ rekonsciiĝis kaj aperis surscene-
-
-je. Li volis daŭrigi sian rolon.
-
-”Ne. Sufiĉe!” postulis la publiko, kiu volis ŝpari liajn for-
-
-tojn. Sed Deburau klarigis al la publiko per elokventaj gestoj, ke al li ne mankas fortoj, nek kuraĝo; li komencis danci. Billion ektimis, ke la publiko malkonstruos pro entuziasmo la
+”Ne. Sufiĉe!” postulis la publiko, kiu volis ŝpari liajn fortojn. Sed Deburau klarigis al la publiko per elokventaj gestoj, ke al li ne mankas fortoj, nek kuraĝo; li komencis danci. Billion ektimis, ke la publiko malkonstruos pro entuziasmo la
 
 teatron. ĉiuj rakontis, kiel bela estis la vespero, nur Pieroto revenanta nokte hejmen, opiniis, ke li eĉ ne atingos la kvaran
 
 etaĝon. Li haltis, la tuso minacis disŝiri lian bruston, kaj najbaroj frapis la murojn, ke ili ne povas dormi.
 
-Georgo Sand, la plej fidela el la estintaj adorantoj, hazar-
-
-de ĉeestis la prezentadon kaj dediĉis al Deburau emociigan
+Georgo Sand, la plej fidela el la estintaj adorantoj, hazarde ĉeestis la prezentadon kaj dediĉis al Deburau emociigan
 
 artikolon, en kiu ŝi nomis lin la lasta Pieroto el starpunkto de la historio, sed la unua el vidpunkto de la arto.
 
@@ -19475,43 +15895,30 @@ povis eniri, staras surŝtupare, enporde kaj aplaŭdas kun la
 
 ceteraj, eĉ se ili ne vidas la scenejon.
 
-Post la ”Edziĝo de Pieroto” prezentas hodiaŭ, la trian ves-
+Post la ”Edziĝo de Pieroto” prezentas hodiaŭ, la trian vesperon, Deburau la ŝatatan pantomimon ”La bravaj soldatoj”.
 
-peron, Deburau la ŝatatan pantomimon ”La bravaj soldatoj”.
-
-Scivolemo alternas en la spektaklejo kun admiro. Tian ro-
-
-lon li elektis, por demonstri, ke lia stelo ankoraŭ ne malape-
+Scivolemo alternas en la spektaklejo kun admiro. Tian rolon li elektis, por demonstri, ke lia stelo ankoraŭ ne malape-
 
 ris desur la teatra firmamento! Lia nomo estas en ĉies buŝoj.
 
 **374**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 La kurteno leviĝas. La homoj ĉesis spiri.
 
-Jes, li estas tiu, ilia malnova konato. La paŝmaniero, rekti-
+Jes, li estas tiu, ilia malnova konato. La paŝmaniero, rektigita korpo, masko. Nenio ŝanĝiĝis, nek la jaroj de lia vivo, nek monatoj de la malsano. Nur kiam li ekkuras, aŭdiĝas tra la
 
-gita korpo, masko. Nenio ŝanĝiĝis, nek la jaroj de lia vivo, nek monatoj de la malsano. Nur kiam li ekkuras, aŭdiĝas tra la
-
-salonego mallaŭta murmuretado. Li aspektas svelta kaj gra-
-
-cila, juneca. Sed subite aperas en la movoj pezo kaj elĉerpiĝo.
+salonego mallaŭta murmuretado. Li aspektas svelta kaj gracila, juneca. Sed subite aperas en la movoj pezo kaj elĉerpiĝo.
 
 Ne, li ne plu estas li.
 
 La sentemo de la aktoro tion perceptas. La spirito leviĝas
 
-supren, sed la korpo malobeas. Li konstatas, ke jam li ne mas-
+supren, sed la korpo malobeas. Li konstatas, ke jam li ne mastras siajn movojn plu. La publikon oni povas mistifiki. Sed ne
 
-tras siajn movojn plu. La publikon oni povas mistifiki. Sed ne
-
-sin mem. Impete li spiras, retenas la spiron por stopi la tusa-
-
-don, doloro premegas lian gorĝon. Laco lin rompas.
+sin mem. Impete li spiras, retenas la spiron por stopi la tusadon, doloro premegas lian gorĝon. Laco lin rompas.
 
 Ne, mem li sentas, tio jam ne estas Pieroto. Li timas falon,
 
@@ -19519,9 +15926,7 @@ jam ne kuraĝas salton, li hontas.
 
 Fininte la akton kaj kaŝinte sin for de la spektejo, li premas
 
-la polmojn albrusten kaj la vizaĝo montras doloron pro el-
-
-ĉerpiĝo.
+la polmojn albrusten kaj la vizaĝo montras doloron pro elĉerpiĝo.
 
 ”Paĉjo, ŝparu vin, mi petas,” postulas Karolo.
 
@@ -19537,43 +15942,30 @@ parkere.
 
 ”Kankanon! Kio kun la danco!” aŭdiĝas ekkrioj.
 
-Oni opinias, ke okazis eraro, kaj ne volas malhavi la plezu-
+Oni opinias, ke okazis eraro, kaj ne volas malhavi la plezuron, por povi aplaŭdi al Pieroto. Ene de Pieroto — lukto. ĉu
 
-ron, por povi aplaŭdi al Pieroto. Ene de Pieroto — lukto. ĉu
-
-ludi plu aŭ fuĝi el la scenejo? Ankoraŭ momenton li kontraŭ-
-
-staras, hontas reveni tiel senglore el la vojo, kiun li ekis — sed poste perdas la lastan forton — kaj sentas, ke tiel estos plej
+ludi plu aŭ fuĝi el la scenejo? Ankoraŭ momenton li kontraŭstaras, hontas reveni tiel senglore el la vojo, kiun li ekis — sed poste perdas la lastan forton — kaj sentas, ke tiel estos plej
 
 bone kaj pli kuraĝe. Kaj li ekhaltas meze de la ludo kaj lasas
 
 **375**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
 fali la manojn laŭ sia korpo. Li ne povas danci. Li scias, ke
 
-necesas klarigi tion al la spektejo. Lante li iras al scenejran-do. Li vidas antaŭ si la publikon, por kiu li tiomfoje ludis, por doni al ĝi feliĉon kaj ĝojon. Kiel klarigi? Li volas paroli, malfermas la buŝon — sed la gorĝo kunpremiĝis. Kaj tial li rezig-
+necesas klarigi tion al la spektejo. Lante li iras al scenejran-do. Li vidas antaŭ si la publikon, por kiu li tiomfoje ludis, por doni al ĝi feliĉon kaj ĝojon. Kiel klarigi? Li volas paroli, malfermas la buŝon — sed la gorĝo kunpremiĝis. Kaj tial li rezignas je perfidaj vortoj kaj komencas per sia propra parolo. Mi
 
-nas je perfidaj vortoj kaj komencas per sia propra parolo. Mi
-
-volas ludi, diras lia vizaĝo kaj manoj. Mi revenis. Mi apart-
-
-enas ja al vi, kaj estis al mi bone kun vi. Sed mi misaŭskultis.
+volas ludi, diras lia vizaĝo kaj manoj. Mi revenis. Mi apartenas ja al vi, kaj estis al mi bone kun vi. Sed mi misaŭskultis.
 
 Mia koro doloras, kaj tro mi malsanas. Mi ne povas danci. Mi
 
 petas, pardonu min. Li staras ĉe la scejrando, movas eĉ ne la
 
-manon, nur li rigardas kaj rigardas — kaj tamen kelkcent ho-
+manon, nur li rigardas kaj rigardas — kaj tamen kelkcent homoj tion komprenis, kvazaŭ ĉion ĉi li dirus al ili, vorton post vorto.
 
-moj tion komprenis, kvazaŭ ĉion ĉi li dirus al ili, vorton post vorto.
-
-Maljunaj kaj junaj laboristoj, metiistoj, kudristinoj, adoles-
-
-kantoj el fabrikoj. ĉiuj komprenis, se li dancus, kiel ili deziris, ilia kara Pieroto falus morta sur la scenejo. Kaj tiam el
+Maljunaj kaj junaj laboristoj, metiistoj, kudristinoj, adoleskantoj el fabrikoj. ĉiuj komprenis, se li dancus, kiel ili deziris, ilia kara Pieroto falus morta sur la scenejo. Kaj tiam el
 
 malantaŭaj benkoj ekis kriado, kaj ĝi vastiĝas, ĝis ĝi inundas
 
@@ -19581,27 +15973,20 @@ la tutan spektaklejon; ĝi bolas kiel furiozanta lago: ”Ne, ne,
 
 ni ne volas dancon. Ne dancu, Pieroto!”
 
-Pieroto Deburau ploris. ”Mallevu la kurtenon,” petis bal-
-
-bute Karolo post la kulisoj. La reĝisoro konsentis. Necesis
+Pieroto Deburau ploris. ”Mallevu la kurtenon,” petis balbute Karolo post la kulisoj. La reĝisoro konsentis. Necesis
 
 ebligi al Deburau, ke li rekonsciiĝu. Ili alkondukis lin en la
 
-vestejon. Gasparo peze spiris. Triste li rigardis la pajloĉape-
-
-lon el ”Vendisto de salato”, la blondan perukon el ”Fripone-
+vestejon. Gasparo peze spiris. Triste li rigardis la pajloĉapelon el ”Vendisto de salato”, la blondan perukon el ”Fripone-
 
 tino”, la ĉinajn lignoŝuojn el la ”Ensorĉita pagodo”. La atestantojn de siaj plej grandaj sukcesoj li petis ankoraŭ pri iom da
 
 forto, ke li finludu almenaŭ ĉi tiun prezentadon.
 
-Kiam post iom da tempo oni daŭrigis la ludon, Pieroto es-
-
-tis akceptita denove aplaŭde, sed kvazaŭ ĉi-foje kuŝus sur li
+Kiam post iom da tempo oni daŭrigis la ludon, Pieroto estis akceptita denove aplaŭde, sed kvazaŭ ĉi-foje kuŝus sur li
 
 **376**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19611,9 +15996,7 @@ dankemo, komprenemo. Kaj — adiaŭado.
 
 ĉiuj en la rigardejo komprenis, ke la hazardo el ili faris
 
-atestantojn de la rara kaj tristega spektaklo. Ili vidis la lastan prezentadon de Gasparo Deburau. En la salonego kaj rigardejo regis humoro kvazaŭ ĉe lito de agonianto. Kiam fine Ga-
-
-sparo finludis, ne plu li riverencis. Li staris kun la pendantaj manoj kaj kun vizaĝo tombe trista. La homoj ekstaris. La lasta
+atestantojn de la rara kaj tristega spektaklo. Ili vidis la lastan prezentadon de Gasparo Deburau. En la salonego kaj rigardejo regis humoro kvazaŭ ĉe lito de agonianto. Kiam fine Gasparo finludis, ne plu li riverencis. Li staris kun la pendantaj manoj kaj kun vizaĝo tombe trista. La homoj ekstaris. La lasta
 
 adiaŭo. Subite falis kurteno. La homoj silente foriris. Pluraj
 
@@ -19621,7 +16004,6 @@ viŝis la okulojn.
 
 **377**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19629,35 +16011,23 @@ Malproksima vojo
 
 Bulvardo du Temple lumegas en la krepuskiĝanta vespe
 
-ro. La gas-steloj invitas kaj logas la publikon, promenan-
+ro. La gas-steloj invitas kaj logas la publikon, promenantan sub florantaj kaŝtanoj. Enaere flugetas polvo kaj parfu-
 
-tan sub florantaj kaŝtanoj. Enaere flugetas polvo kaj parfu-
-
-moj. El la Turka ardeno aŭdiĝas orkestro de Julien. Gaja ru-
-
-moro ŝvebas super la tabletoj kaj la am-rigardoj flugetas pa-
+moj. El la Turka ardeno aŭdiĝas orkestro de Julien. Gaja rumoro ŝvebas super la tabletoj kaj la am-rigardoj flugetas pa-
 
 piliosimile preter la vendistinoj de limonado.
 
-Sed nenio logas la maljunan magran viron kun la mallevi-
-
-taj ŝultroj, kiu tien enrigardas tra arbustaro. Neniun li serĉas, malgraŭ tio, ke tiom malsate li rigardas la nubojn, kiuj plenas de ridetoj. Li pluiras. La lum-reklamo kondukas lin preter
+Sed nenio logas la maljunan magran viron kun la mallevitaj ŝultroj, kiu tien enrigardas tra arbustaro. Neniun li serĉas, malgraŭ tio, ke tiom malsate li rigardas la nubojn, kiuj plenas de ridetoj. Li pluiras. La lum-reklamo kondukas lin preter
 
 teatro-fasadoj. Li paŝas lante. ĉe ĉiu enirejo li haltas, kvazaŭ li trinketus pokalon da amara trinkaĵo.
 
-Kaj ĉie tie regas tenebro. Kio estadis ĉi tie? Kaj nun ekku-
+Kaj ĉie tie regas tenebro. Kio estadis ĉi tie? Kaj nun ekkuraĝu, nia vespera pilgrimanto! Numero 54, ”Funambules”.
 
-raĝu, nia vespera pilgrimanto! Numero 54, ”Funambules”.
-
-Ne, ĉi tie vi eĉ ne rigardas, kion hodiaŭ oni ludas, kaj prefe-
-
-re iomete vi flankeniĝos sur rando de trotuaro, en tenebron,
+Ne, ĉi tie vi eĉ ne rigardas, kion hodiaŭ oni ludas, kaj prefere iomete vi flankeniĝos sur rando de trotuaro, en tenebron,
 
 por ke la krianoncisto vin ne ekvidu. Poste ankoraŭ Cirko. Pli
 
-fore estas triste. Tie staradis la budoj de la bazar-artistoj. Eble io fone, kie eĉ la lumo mankas kaj kien la hom-piedo ne er-arvagas, vi trovus en iu forgesita angulo vian propran portre-
-
-ton. Revenu!
+fore estas triste. Tie staradis la budoj de la bazar-artistoj. Eble io fone, kie eĉ la lumo mankas kaj kien la hom-piedo ne er-arvagas, vi trovus en iu forgesita angulo vian propran portreton. Revenu!
 
 Se vi ekpaŝus flankan strateton, vi trovus kafejeton kun la
 
@@ -19665,13 +16035,10 @@ nomo ”ĉe Deburau”. Tien iradas, kiuj vin ankoraŭ amas, al
 
 **378**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-kiuj estas bone ĉe via nomo de honesta famo kaj gloro, nas-
-
-kiĝinta el la amo.
+kiuj estas bone ĉe via nomo de honesta famo kaj gloro, naskiĝinta el la amo.
 
 La pilgrimanto foriras. Post li, antaŭ li kaj ĉirkaŭ li bruas la teatra bulvardo, la steloj brilas kaj la novaj naskiĝas, sonas
 
@@ -19689,21 +16056,15 @@ envizaĝe, kun lipoj senfajraj. Rosina alportadas kompresojn
 
 kaj sidas kun ŝi apud la patro.
 
-Karolo preterpasas la liton kaj lia rigardo evitas vidi la viza-
-
-ĝon de la patro; sed li bone vidas ĉiun lian movon, ĉiun traj-
+Karolo preterpasas la liton kaj lia rigardo evitas vidi la vizaĝon de la patro; sed li bone vidas ĉiun lian movon, ĉiun traj-
 
 ton. Iam frapas la pordon kaj demandas sursojle malnovaj
 
 amikoj el la teatro: Laplace, Legrand, Vautier, Guyon. ŝajnis,
 
-ke Gasparo ankoraŭ rekonsciiĝos. Sed sciigo pri lia peza mal-
+ke Gasparo ankoraŭ rekonsciiĝos. Sed sciigo pri lia peza malsaniĝo rapide disvastiĝis, la sciigo kreskis, oni eldiris timzor-gon, oni ne atendis konfirmon. Iu ĵurnalisto rapidis kaj publi-
 
-saniĝo rapide disvastiĝis, la sciigo kreskis, oni eldiris timzor-gon, oni ne atendis konfirmon. Iu ĵurnalisto rapidis kaj publi-
-
-kigis informon, ke Deburau el Funambules mortis. Pro mal-
-
-feliĉa hazardo la gazeto venis al Gasparo enmanen. Tio lin
+kigis informon, ke Deburau el Funambules mortis. Pro malfeliĉa hazardo la gazeto venis al Gasparo enmanen. Tio lin
 
 rompis. Imagivo, kiu estis lia forto, lin malfortigis. Homoj,
 
@@ -19717,19 +16078,14 @@ gastojn kaj rekompencas ilin per silenta dankemo. Li luktas
 
 pri spiro. La pulmoj batalas. La korpo elĉerpiĝis kaj mankas
 
-la fortoj. Sed la rigardo de silentaj okuloj flugetas kvazaŭ papilio de vizaĝo al vizaĝo kaj en ĝi estas ĉio, kion la koro vo-
-
-las diri. Peto, pardono, mizerikordo, danko.
+la fortoj. Sed la rigardo de silentaj okuloj flugetas kvazaŭ papilio de vizaĝo al vizaĝo kaj en ĝi estas ĉio, kion la koro volas diri. Peto, pardono, mizerikordo, danko.
 
 **379**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Nokte, kiam ĉiu paciento solas, venadas al lia lito tute ali-
-
-aj staturoj, diafanaj ombroj, kiuj kliniĝas al li kaj renkontiĝas bonvenige kun lia trista rideto.
+Nokte, kiam ĉiu paciento solas, venadas al lia lito tute aliaj staturoj, diafanaj ombroj, kiuj kliniĝas al li kaj renkontiĝas bonvenige kun lia trista rideto.
 
 Tiel li vidas ankaŭ la gepatrojn, kiel ili trenas sin tra peza, suferplena vivo. Li vidas siajn gefratojn. Kaj venadas al lia lito ombroj de la amikoj, kiujn li perdis kaj pri kiuj jam li ne scias, ĉu ili vivas, la tuta estinta vivo defilas dum la febro-noktoj ĉe lia lito, kvazaŭ ĝi lastfoje honorsalutus.
 
@@ -19743,33 +16099,24 @@ Venas Margot, tiu kun la ĉerizkoloraj ŝtrumpoj, venadas
 
 Désirée, tiu el la Luksemburga ĝardeno, venadas Aimée, tiu
 
-kun la gaja rigardo. Venis ankaŭ la feino en la arĝenta mus-
+kun la gaja rigardo. Venis ankaŭ la feino en la arĝenta muslino kaj en ŝiaj okuloj estis kompato kaj humileco.
 
-lino kaj en ŝiaj okuloj estis kompato kaj humileco.
-
-Dankon pro via vizito, dolĉaj vizioj! ĉar kiam vin ne forpe-
-
-las pluvo, tamburanta sur ladon, aŭ ventflageto, lamentanta
+Dankon pro via vizito, dolĉaj vizioj! ĉar kiam vin ne forpelas pluvo, tamburanta sur ladon, aŭ ventflageto, lamentanta
 
 surtegmente, venos baldaŭ la taglumo kaj necesas adiaŭi kun
 
-vi. Matene estas ĉi tie doktoro kun siaj piloloj kaj vanaj kon-
-
-siloj; matene estas ĉi tie la tuta mizera vivo, amaraj kuraciloj, senfinaj tusatakoj, senpovo de frutempe olda kaj malsana ho-mo.
+vi. Matene estas ĉi tie doktoro kun siaj piloloj kaj vanaj konsiloj; matene estas ĉi tie la tuta mizera vivo, amaraj kuraciloj, senfinaj tusatakoj, senpovo de frutempe olda kaj malsana ho-mo.
 
 ”Imagu, patro, ree nova teatro komencas kun farso. Jam
 
 tiuj kanzonaĉoj vastiĝas tra la tuta bulvardo.”
 
-”Fino de la malnova, bona arto,” flustras spirpeze Gaspa-
-
-ro.
+”Fino de la malnova, bona arto,” flustras spirpeze Gasparo.
 
 ”Funambules tion certe eltenos.”
 
 **380**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19793,17 +16140,13 @@ sur mian tombon.”
 
 aŭdinte tion, ekploras.
 
-”Mi havas tian ideon: ’ĉi tie kuŝas tiu, kiu ĉion diris, kvan-
-
-kam neniam ekparolinte.’ Kion vi opinias, ĉu tio ne estas tro
+”Mi havas tian ideon: ’ĉi tie kuŝas tiu, kiu ĉion diris, kvankam neniam ekparolinte.’ Kion vi opinias, ĉu tio ne estas tro
 
 memfida?”
 
 ”i estas vera. Sed kial vi vin kaj nin senbezone afliktas? Mi
 
-diris hodiaŭ al Aleksandro kaj Paŭlo, ke hodiaŭ vi fartas mul-
-
-te pli bone. La direktoro devis tion afiŝi ankaŭ sur la teatro.”
+diris hodiaŭ al Aleksandro kaj Paŭlo, ke hodiaŭ vi fartas multe pli bone. La direktoro devis tion afiŝi ankaŭ sur la teatro.”
 
 ”Estas bone, filo.”
 
@@ -19831,19 +16174,14 @@ Alproksimiĝas vespero metante la manplatojn elekstere
 
 **381**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-sur la fenestron. Baldaŭ videblas la arbo-pintoj sur la firma-
-
-mento nur kiel siluetoj, kaj poste krepusko vualas ĉion.
+sur la fenestron. Baldaŭ videblas la arbo-pintoj sur la firmamento nur kiel siluetoj, kaj poste krepusko vualas ĉion.
 
 ”Mi devas iri en la teatron,” ekskuzas sin mallaŭte Aimée.
 
-Poste venas Margot, sidiĝas al la lito kaj Gasparo sentas, kva-
-
-zaŭ alsidiĝus al li lia propra animo. Nun li estas pleje kun si mem. En tiu ĉi amo li hejmis.
+Poste venas Margot, sidiĝas al la lito kaj Gasparo sentas, kvazaŭ alsidiĝus al li lia propra animo. Nun li estas pleje kun si mem. En tiu ĉi amo li hejmis.
 
 ”Sciu, Margot, kion pleje mi bedaŭras?” li kuraĝas diri sole
 
@@ -19855,9 +16193,7 @@ al ŝi.
 
 ”ĉu vi kapablas ankoraŭ tion rememori?”
 
-”uste nun tiuj imagoj ŝajnas al mi en la memoro plej vi-
-
-vantaj. Mi rememoras iun ŝoseon. Poploj kreskis laŭlonge de
+”uste nun tiuj imagoj ŝajnas al mi en la memoro plej vivantaj. Mi rememoras iun ŝoseon. Poploj kreskis laŭlonge de
 
 ĝi. ĉio ŝajnas al mi esti tre distanca — kaj tre bela.”
 
@@ -19865,27 +16201,19 @@ Margot metas la fingron sur sian buŝon, por rememorigi
 
 ordonon de la kuracisto.
 
-”Ne timu, mi fartas multe pli bone,” apenaŭ flustras Gas-
+”Ne timu, mi fartas multe pli bone,” apenaŭ flustras Gasparo, sed sur lia vizaĝo estas rideto, kia jam longe ne videblis.
 
-paro, sed sur lia vizaĝo estas rideto, kia jam longe ne videblis.
-
-”La noktoj estis tie malsekaj. Proksime de nia dometo es-
-
-tis herbejoj. Tie restadis ĉevaloj ankaŭ dumnokte. Mi aŭda-
+”La noktoj estis tie malsekaj. Proksime de nia dometo estis herbejoj. Tie restadis ĉevaloj ankaŭ dumnokte. Mi aŭda-
 
 dis vespere antaŭ ekdormo iliajn sonoriletojn.”
 
-Margot, plena de angoro, klinas sin super li kaj tuŝas leĝe-
-
-rete lian manon.
+Margot, plena de angoro, klinas sin super li kaj tuŝas leĝerete lian manon.
 
 ”Dormu iomete,” petas Margot.
 
 La okuloj de Gasparo diras, ke ankoraŭ estas tempo. ”Mi
 
-rememoras. Dimanĉe regis silento sur la rivero, kaj en la ka-
-
-naro ĉirpis birdo. Mi atendis je tiuj tintiloj de la brunaj kaj blankaj ĉevaloj.”
+rememoras. Dimanĉe regis silento sur la rivero, kaj en la kanaro ĉirpis birdo. Mi atendis je tiuj tintiloj de la brunaj kaj blankaj ĉevaloj.”
 
 Iu ekfrapis.
 
@@ -19893,19 +16221,14 @@ Iu ekfrapis.
 
 **382**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-Margot ekstaris kaj iris al la pordo. Leterportisto transdo-
-
-nas karteton kun bukedeto, ĉirkaŭligitan per arĝenta ruban-
+Margot ekstaris kaj iris al la pordo. Leterportisto transdonas karteton kun bukedeto, ĉirkaŭligitan per arĝenta ruban-
 
 do. Margot ĝin obeeme akceptas. ŝi observas la mirindajn
 
-florojn, kiujn ŝiaj malmolaj fingroj neniam elsorĉus. ŝi re-
-
-venas al la lito. La korpo de Gasparo kuŝas nenature, kvazaŭ
+florojn, kiujn ŝiaj malmolaj fingroj neniam elsorĉus. ŝi revenas al la lito. La korpo de Gasparo kuŝas nenature, kvazaŭ
 
 ĝi subite kaj senpove deglitus. La kapo falis malantaŭen kaj
 
@@ -19919,9 +16242,7 @@ ili. Kaj lia elokventa vizaĝo diras al ŝi per la lasta esprimo: Vidu, Margot, 
 
 malproksimen…
 
-La fidela Margot, kies koro tiumomente mortis, surgenui-
-
-ĝas al la lito, sinkas per sia frunto kaj per malsekaj okuloj sur la senpovan manon de la mortinto, kaj al lia manplato ŝi almetas la bukedeton en arĝenta rubando, sur kiu estas skribi-
+La fidela Margot, kies koro tiumomente mortis, surgenuiĝas al la lito, sinkas per sia frunto kaj per malsekaj okuloj sur la senpovan manon de la mortinto, kaj al lia manplato ŝi almetas la bukedeton en arĝenta rubando, sur kiu estas skribi-
 
 te:
 
@@ -19929,7 +16250,6 @@ AL LA PLEJ EMINENTA INTER PIEROTOJ
 
 **383**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -19939,17 +16259,11 @@ En la nigran brakumon la nokto akceptis Pieroton en la
 
 blanka kitelo la 16-an de .
 
-La trista sciigo disvastiĝis tra la laborista bulvardo. i kli-
+La trista sciigo disvastiĝis tra la laborista bulvardo. i klinis sin al la homoj sur benkoj, frostigis ridon de la spektan-
 
-nis sin al la homoj sur benkoj, frostigis ridon de la spektan-
+toj antaŭ panoptiko, alsidiĝis por momento al la viroj en kafejoj; ilia trink-gluto amariĝis. i enrigardis en la teatrojn.
 
-toj antaŭ panoptiko, alsidiĝis por momento al la viroj en ka-
-
-fejoj; ilia trink-gluto amariĝis. i enrigardis en la teatrojn.
-
-Foriris via plej bona amiko, ĝi diris al poetoj. Homoj renkon-
-
-tiĝadis, reciprokis la rigardojn: ĉu vi scias jam? kaj oni silente kapjesis. Infanoj, al kiuj la gepatroj alportis la tristan sciigon, kuris al fenestroj kaj senparole rigardis en mallumon. La lumoj surstrate malheliĝis, kvazaŭ el fasado de ĉiu teatro flir-
+Foriris via plej bona amiko, ĝi diris al poetoj. Homoj renkontiĝadis, reciprokis la rigardojn: ĉu vi scias jam? kaj oni silente kapjesis. Infanoj, al kiuj la gepatroj alportis la tristan sciigon, kuris al fenestroj kaj senparole rigardis en mallumon. La lumoj surstrate malheliĝis, kvazaŭ el fasado de ĉiu teatro flir-
 
 tus nigra flago.
 
@@ -19959,9 +16273,7 @@ malsana, ili sciis, ke li hejmas. Kiam li mortis, li revenis inter ilin. Li esti
 
 ”Mi ne povas ludi,” disŝminkis Pieroto Legrand la ruĝon
 
-survizaĝe. ”Li rajtas havi nian rememoron, kaj ankaŭ ni raj-
-
-tas funebri.”
+survizaĝe. ”Li rajtas havi nian rememoron, kaj ankaŭ ni rajtas funebri.”
 
 La aktoroj konsentis. Sed direktoro Billion sentis sin fine
 
@@ -19973,19 +16285,14 @@ Do ili ludis. Ili similis al vaksfiguroj el plumbo.
 
 **384**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-La tago de enterigo alkondukis al la domo milkapan hom-
-
-amason. ”Li estis la fiero de nia antaŭurbo,” diris al si la laboristoj kaj metiistoj, solene vestitaj, enmane la spikon, vua-
+La tago de enterigo alkondukis al la domo milkapan homamason. ”Li estis la fiero de nia antaŭurbo,” diris al si la laboristoj kaj metiistoj, solene vestitaj, enmane la spikon, vua-
 
 litan per gazo. ”Plej bona amiko,” ripetadis la aktoroj el ĉiuj teatroj, akompanante lin okaze de tiu ĉi foriro el la scenejo.
 
-Al sulkiĝintaj vizaĝoj pliiĝis nova sulketo. Ili sentis sin forlasitaj kiel vrakuloj sen kapitano. ”Li estis bona homo, bon-
-
-karaktera homo,” diris ĉiuj, kiam la funebra procesio ekpaŝis
+Al sulkiĝintaj vizaĝoj pliiĝis nova sulketo. Ili sentis sin forlasitaj kiel vrakuloj sen kapitano. ”Li estis bona homo, bonkaraktera homo,” diris ĉiuj, kiam la funebra procesio ekpaŝis
 
 al la preĝejo de sankta Elizabeta, kie Deburau solenis sian
 
@@ -19999,9 +16306,7 @@ Aleksandro, Paŭlo kaj la ceteraj junaj aktoroj rememoris
 
 kaj reciproke kapjesis: ”Kie ni trovos tian instruiston?”
 
-La funebristoj rigardis. La laboristoj el la teatro ne volis rezigni la honoron, kaj la ĉerko sur iliaj ŝultroj lante pasis tra la stratoj. Post ĝi iris Margot kun la infanoj, Francisko Nême-
-
-âek-Neumentz kun sia familio, Charignoj, Saquioj, entute ĉiuj
+La funebristoj rigardis. La laboristoj el la teatro ne volis rezigni la honoron, kaj la ĉerko sur iliaj ŝultroj lante pasis tra la stratoj. Post ĝi iris Margot kun la infanoj, Francisko Nêmeâek-Neumentz kun sia familio, Charignoj, Saquioj, entute ĉiuj
 
 Arlekenoj kaj Leandroj, Kolombinoj; ĉies okuloj ruĝiĝintaj
 
@@ -20021,7 +16326,6 @@ Malfacile, dure sonis vortoj super la ĉerko de tiu, kiu kapablis eldiri ĉian h
 
 **385**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20039,13 +16343,9 @@ Janin kaj la ceteraj adorantoj de Deburau honoris la forpason
 
 de Pieroto per ardaj nekrologoj. La publiko rimarkis ilin, eĉ
 
-se ties intereson katenis la milito en Alĝerio, la elekto de papo kaj la inaŭguro de fervojo el Parizo al Bruselo. Pluraj salonĵurnalistoj uzis la okazon por kvitigi literaturajn saldojn. La mor-ta Pieroto fariĝis batalkampo. Bulvardo du Temple kun stra-
+se ties intereson katenis la milito en Alĝerio, la elekto de papo kaj la inaŭguro de fervojo el Parizo al Bruselo. Pluraj salonĵurnalistoj uzis la okazon por kvitigi literaturajn saldojn. La mor-ta Pieroto fariĝis batalkampo. Bulvardo du Temple kun stratetoj ĉirkaŭe ne zorgis pri tio, per kiuj ofendoj sin regalas la sinjoroj el la kafejoj ĉe la Operejo kaj eĉ ne scietis, kiel ofte falos salivo sur tombon de ĝia aktoro. Sed la plej mava malami-
 
-tetoj ĉirkaŭe ne zorgis pri tio, per kiuj ofendoj sin regalas la sinjoroj el la kafejoj ĉe la Operejo kaj eĉ ne scietis, kiel ofte falos salivo sur tombon de ĝia aktoro. Sed la plej mava malami-
-
-ko de lia memoro estiĝis direktoro de teatro Funambules. Bil-
-
-lion, kiu strikte postulis de la vidvino du frankojn, kiujn li pagis al la tombo-fosisto, jam kelkajn tagojn post la enterigo,
+ko de lia memoro estiĝis direktoro de teatro Funambules. Billion, kiu strikte postulis de la vidvino du frankojn, kiujn li pagis al la tombo-fosisto, jam kelkajn tagojn post la enterigo,
 
 publikigis la devizon: ”Pieroto mortis — vivu Pieroto!”
 
@@ -20053,9 +16353,7 @@ Li igis skribi, ke Legrand superas per siaj freŝo kaj gajo la
 
 mortintan Deburau. En sia etanimeco li ne komprenis, ke nur
 
-la spirito de Deburau-arto povas vivteni la teatron. ĉar ansta-
-
-taŭi Deburau-on ne eblis. Li estis ne nur la ĉefa figuro de la
+la spirito de Deburau-arto povas vivteni la teatron. ĉar anstataŭi Deburau-on ne eblis. Li estis ne nur la ĉefa figuro de la
 
 teatraĵoj, sed samtempe ilia ideo, impliko kaj mesaĝo. Post
 
@@ -20065,21 +16363,16 @@ vendadis po dek centimoj kanzoneton, kiu hejmiĝis en ĉiu
 
 **386**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-butiketo, en ĉiu hejmo. Billion furiozis, ĉar li timis, ke la rememoroj malaltigos la vizitadon. Li sendis kontraŭ kamelo-
-
-tojn policistojn kaj provis ilrupti. Sed ili restis fidelaj, kaj la nomo de Deburau vivis almenaŭ ĉe la pordo de lia teatro.
+butiketo, en ĉiu hejmo. Billion furiozis, ĉar li timis, ke la rememoroj malaltigos la vizitadon. Li sendis kontraŭ kamelotojn policistojn kaj provis ilrupti. Sed ili restis fidelaj, kaj la nomo de Deburau vivis almenaŭ ĉe la pordo de lia teatro.
 
 Post la unua kanzono aperis la dua, ankoraŭ pli atakema.
 
 Ja Pieroto — pro malriĉo, koro kaj kuraĝo, reprezentanto de
 
-la popolo — multfoje esprimis per sia muta vizaĝo, kio tur-
-
-mentis lian publikon.
+la popolo — multfoje esprimis per sia muta vizaĝo, kio turmentis lian publikon.
 
 ”La renkontiĝo de Deburau kun Talma” nomiĝis la nova
 
@@ -20119,7 +16412,6 @@ alportas amarajn spertojn kaj konsilas singardenon:
 
 **387**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20129,17 +16421,11 @@ aktorojn.
 
 La nomo de la glora Pieroto sonis sur ĉiuj stratanguloj de
 
-la bulvardo, kaj kanzonoj pri li sonis ankaŭ postkulise. Gas-
+la bulvardo, kaj kanzonoj pri li sonis ankaŭ postkulise. Gasparo Deburau ne ĉesis esti heroo de sia teatro. La tro fidema
 
-paro Deburau ne ĉesis esti heroo de sia teatro. La tro fidema
+juĝisto nomumis kiel kuratoron de la neplenaĝa Karolo direktoron Billion. Tiu rifuzis dediĉi kion ajn por la epitafo sur la tombomonumento de Gasparo, sed plenumis la petojn de
 
-juĝisto nomumis kiel kuratoron de la neplenaĝa Karolo di-
-
-rektoron Billion. Tiu rifuzis dediĉi kion ajn por la epitafo sur la tombomonumento de Gasparo, sed plenumis la petojn de
-
-Karolo kaj post ioma tempo li konfidis al li en iuj ludoj sen-
-
-signifajn rolojn. Foje devis okazi duelo inter kelkaj pulĉineloj kaj kelkaj pierotoj. Al ili enviciĝis reĝisoro Karolon Deburau.
+Karolo kaj post ioma tempo li konfidis al li en iuj ludoj sensignifajn rolojn. Foje devis okazi duelo inter kelkaj pulĉineloj kaj kelkaj pierotoj. Al ili enviciĝis reĝisoro Karolon Deburau.
 
 Kiam li aperis ŝminkita inter aliaj statistoj, ĉiuj konsterniĝis, kiel la filo similis al la patro per sia vizaĝo, per la rideto en la blanka masko, ironia rigardo.
 
@@ -20147,9 +16433,7 @@ Karolo ludis apud Legrand. Li observis ĉiun lian movon
 
 kiel akcipitro, kaj li memorigis al si ĉion, kion diris la patro al li. Legrand provis ridigi la publikon kaj groteskis en multaj
 
-grimacoj. Tiel la patro ne ludus tion, pensis Karolo kaj ekzer-
-
-cis hejme unu scenon post la alia. Tri tagojn antaŭ la premie-
+grimacoj. Tiel la patro ne ludus tion, pensis Karolo kaj ekzercis hejme unu scenon post la alia. Tri tagojn antaŭ la premie-
 
 ro ”Tri planedoj” Legrand ricevis brilan oferton el Londono
 
@@ -20171,7 +16455,6 @@ plene sukcesis. Neatendite. Nun ne nur la aktoroj, sed ankaŭ
 
 **388**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20217,25 +16500,18 @@ en la teatro.
 
 *inter ni ne plu estas. *
 
-Kiu ĉeestis, rakontis, ke la publiko respondis ne per aplaŭ-
-
-do, sed per tempesto, tondrado, uragano. La muzikistoj en la
+Kiu ĉeestis, rakontis, ke la publiko respondis ne per aplaŭdo, sed per tempesto, tondrado, uragano. La muzikistoj en la
 
 orkestro ekstaris kaj aliĝis al la spektantoj.
 
-”Tiu vespero valoris la tutan vivon,” diris la filo de Debu-
-
-rau, kiam svene li estis foriranta el la scenejo. La sekvintan
+”Tiu vespero valoris la tutan vivon,” diris la filo de Deburau, kiam svene li estis foriranta el la scenejo. La sekvintan
 
 **389**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-tagon li alportis sur la tombon de sia patro bukedon da imor-
-
-teloj. Li venadis tien ofte. Antaŭ ĉiu premiero, antaŭ ĉiu tur-
+tagon li alportis sur la tombon de sia patro bukedon da imorteloj. Li venadis tien ofte. Antaŭ ĉiu premiero, antaŭ ĉiu tur-
 
 neo. Oni vidadis lin paroli al la tombomonumento.
 
@@ -20243,9 +16519,7 @@ Ankaŭ sursceneje Karolo Deburau forpeladis la angoron
 
 alvokante por helpo la vizaĝon de la patro. Tiuj du vivis kune
 
-plu kaj unu donadis la vivon al la alia. La nomoj Funambu-
-
-les kaj Deburau denove identiĝis.
+plu kaj unu donadis la vivon al la alia. La nomoj Funambules kaj Deburau denove identiĝis.
 
 En la jaro 1848 la spirito de Deburau kondukis aktorojn al
 
@@ -20259,25 +16533,17 @@ en lazareto, kiun oni instalis en la rigardejo kaj sur la scene-jo por la vundit
 
 Ankaŭ poste la partero en Funambules ne rezignis pri sia
 
-amiko kaj konsilanto Pieroto, enkorpigita per Deburau. Ho-
+amiko kaj konsilanto Pieroto, enkorpigita per Deburau. Homoj frutempe oldiĝintaj, labor-konsumitaj, senrevigitaj kaj
 
-moj frutempe oldiĝintaj, labor-konsumitaj, senrevigitaj kaj
-
-malcedemaj pro la nova sang-ofero, volis, ke por ili vivu figu-
-
-ro, kiun la profunda sento kaj la granda arto de Gasparo De-
+malcedemaj pro la nova sang-ofero, volis, ke por ili vivu figuro, kiun la profunda sento kaj la granda arto de Gasparo De-
 
 burau plenigis per ilia vivo kaj kiun denove rekreis lia filo.
 
 Konflikto kun la direktoro finiĝis per venko de la publiko. Eĉ
 
-kiam revenis Legrand kaj post li venis ankoraŭ Guyon, Piero-
+kiam revenis Legrand kaj post li venis ankoraŭ Guyon, Pieroto de Deburau de sur la scenejo ne darfis malaperi, kaj do ili
 
-to de Deburau de sur la scenejo ne darfis malaperi, kaj do ili
-
-ludis la teatraĵon ”Du Pierotoj” kaj poste ankoraŭ ”Tri Piero-
-
-toj”.
+ludis la teatraĵon ”Du Pierotoj” kaj poste ankoraŭ ”Tri Pierotoj”.
 
 La disiro de Karolo Deburau kaj de la direktoro signifis por
 
@@ -20291,19 +16557,14 @@ tial iun martan vesperon en la jaro 1862 la malnova salone-
 
 **390**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
-go denove pleniĝis. Entekste de la tria sceno estis simpla ri-
-
-markigo: Ludos Pieroto. Sed kia inaŭguro ĝi estis! En pluvo
+go denove pleniĝis. Entekste de la tria sceno estis simpla rimarkigo: Ludos Pieroto. Sed kia inaŭguro ĝi estis! En pluvo
 
 da bukedoj kaj florkronoj, en alfluo de krioj kaj entuziasma
 
-aplaŭdo. Nun, post la jaroj la simileco de la patro kaj filo estis preskaŭ nedistingebla, malgraŭ tio, ke Karolo havis mal-
-
-pli da dureco kaj pli da tenero.
+aplaŭdo. Nun, post la jaroj la simileco de la patro kaj filo estis preskaŭ nedistingebla, malgraŭ tio, ke Karolo havis malpli da dureco kaj pli da tenero.
 
 ”La ora frondo” triumfis. Parizo denove komencis iradi al
 
@@ -20311,23 +16572,15 @@ Deburau. Tuj estis preparata nova premiero ”Rememoroj de
 
 Pieroto”. Deburau dudek-kvar-foje alivestis sin kaj rolis ĉiujn figurojn, en kiuj estis konata lia patro: serviston, soldaton,
 
-masoniston, koĉeron, markizon, sukeraĵiston, bakiston, gale-
+masoniston, koĉeron, markizon, sukeraĵiston, bakiston, galerulon, rabiston kaj nature la blankan Pieroton.
 
-rulon, rabiston kaj nature la blankan Pieroton.
-
-La premiero okazis en majo. ian e˛on frostigis la infor-
-
-mo, ke la registaro dekretis malkonstruon de bulvardo du
+La premiero okazis en majo. ian e˛on frostigis la informo, ke la registaro dekretis malkonstruon de bulvardo du
 
 Temple. Vane ribelis la popoleto de la artistoj kaj aktoroj kontraŭ tiu ĉi verdikto. La 14-an de julio estis fiksita la lasta tago de la prezentadoj.
 
-”Vidu, kiel ili elektis la tagon!” brulis la artistoj pro kole-
+”Vidu, kiel ili elektis la tagon!” brulis la artistoj pro kolero. ”Antaŭ sepdek jaroj la popolo detruis la bastionon de ti-
 
-ro. ”Antaŭ sepdek jaroj la popolo detruis la bastionon de ti-
-
-ranismo. Por venĝi, la tiranoj ruinigos la saman tagon la ba-
-
-stionon de nia ĝojo.”
+ranismo. Por venĝi, la tiranoj ruinigos la saman tagon la bastionon de nia ĝojo.”
 
 ”Tiam estis mortigitoj,” trankviligadis ilin la pli trankvilaj.
 
@@ -20345,7 +16598,6 @@ La 14-an de julio jam lastfoje leviĝis la kurteno en Funam-
 
 **391**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20359,29 +16611,21 @@ rideto. Oni ne aplaŭdis. Post la prezentado la aktoroj forportis la skatolojn k
 
 kulisojn kaj rekvizitojn. Manuskriptoj venditaj laŭ pezo estis
 
-forveturigitaj sur ĉaretoj. La aktoroj portis ankaŭ ioman es-
-
-peron, kiun imputu al ili la figuro de Progreso el la lasta sce-no, ke ili ricevos novan teatron. La nova reganto, denove im-
+forveturigitaj sur ĉaretoj. La aktoroj portis ankaŭ ioman esperon, kiun imputu al ili la figuro de Progreso el la lasta sce-no, ke ili ricevos novan teatron. La nova reganto, denove im-
 
 periestro kaj denove Napoleono — tiun konsolon neniam
 
 plenumis. Do tial falo de tiu ĉi bastiono de la popola gajeco
 
-postlasis siajn viktimojn, dum jaroj estingiĝintajn sen scenej-
+postlasis siajn viktimojn, dum jaroj estingiĝintajn sen scenejoj, sen subvencio, pro mizero kaj malsato.
 
-oj, sen subvencio, pro mizero kaj malsato.
-
-Multaj aktoroj kaj iliaj amikoj traviglis la nokton ĝis mate-
-
-no, kiam batis la lasta horo de la glora bulvardo. Kiam ekba-
+Multaj aktoroj kaj iliaj amikoj traviglis la nokton ĝis mateno, kiam batis la lasta horo de la glora bulvardo. Kiam ekba-
 
 tegis la unua pioĉo, fosanta kontraŭ la muron, aŭdiĝis ĝemoj
 
 el trotuaroj. Kune kun tiuj ĉi ŝtonoj foriris multaj rememoroj
 
-kaj amoj de tiu ĉi popolo. Adiaŭ, teneraj Kolombinoj kaj ra-
-
-vaj feinoj, adiaŭ Arlekeno, Leandro, Kasandro, figuroj ama-
+kaj amoj de tiu ĉi popolo. Adiaŭ, teneraj Kolombinoj kaj ravaj feinoj, adiaŭ Arlekeno, Leandro, Kasandro, figuroj ama-
 
 taj, lastfoje adiaŭ, kunulo la plej fidela, pala Pieroto, kiu estis enkorpiĝo de nia animo.
 
@@ -20389,15 +16633,12 @@ La vera patrio de Pieroto malaperis. Kolosa pulvonubo, kiu
 
 leviĝis el la malkonstruataj teatretoj, estis la lasta apoteozo de lia saĝa kaj kompatema vizaĝo. Li vivos nun nur en rememoroj, en legendoj, en libroj.
 
-La homoj ĉe stratanguloj aĉetadisla kanzonojn, kies refre-
-
-no sonis ankoraŭ dum la bruego de falantaj muroj kiel la lasta
+La homoj ĉe stratanguloj aĉetadisla kanzonojn, kies refreno sonis ankoraŭ dum la bruego de falantaj muroj kiel la lasta
 
 dankema adiaŭo:
 
 **392**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20451,7 +16692,6 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 **393**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20501,7 +16741,6 @@ ruĝaj sangobuloj
 
 **394**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20511,9 +16750,7 @@ D-ro Frantiôek Koòík (nask. 16. 5. 1909), estas klasikulo de
 
 la moderna ĉeą literaturo, samregionano de Komenio
 
-(ambaŭ devenas el la sudmoravia urbo Uherskë Brod) kaj fa-
-
-voranto de Esperanto, honora membro de ĉEA. Aktive li par-
+(ambaŭ devenas el la sudmoravia urbo Uherskë Brod) kaj favoranto de Esperanto, honora membro de ĈEA. Aktive li par-
 
 toprenis la Esperanto-programojn de Verda Stacio en Brno
 
@@ -20547,7 +16784,6 @@ Liaj ĉefaj verkoj:
 
 **395**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 
@@ -20569,7 +16805,6 @@ LA PLEJ EMINENTA INTER PIEROTOJ
 
 **396**
 
-LA PLEJ EMINENTA INTER PIEROTOJ
 
 *e* LIBRO
 

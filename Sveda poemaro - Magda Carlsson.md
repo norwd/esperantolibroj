@@ -10,14 +10,6 @@ Magda carlsson
 SVEDA POEMARO
 
 
-@omnibus.se
-
-·
-
-
-SVEDA POEMARO
-
-
 Antaŭvortoj de la tradukintino
 
 Kun ĝojo mi kaptas la okazon, ĉi tie esprimi mian plej var-man kaj humilan dankon al la Estraro de Eldona Societo Esperanto, Stockholm, kaj ĝa eksprezidanto, S-ro Bern-hard Eriksson, Stockholm, al D-ro John Stenström, Jönkö-
@@ -32,18 +24,13 @@ Traduki poezion estas ja delikata afero, kiu tre ofte nece-sigas doloran komprom
 Magda Carlsson
 
 
-SVEDA POEMARO
-
-
 Enkonduko
 
 SVEDA POEMARO! Oni povus skribi nun multe pri la mankoj de la kulturekonomio kaj lingva demokratio, kiam nacia lingvo trudas, aŭ provas trudi sin en la rolon de universala lingvo. Tion oni speciale sentas, kiam temas pri kulturaj ĝemoj de malgrandaj nacioj. Por vi, kiu legas tiun ĉi libron oni ne devas paroli multe pri la diferenco, kiam nia lingvo estas peranto de grandaj kulturvaloroj de ĉiuj litera-turoj.
 
 La nomo de Magda Carlsson estas konata ne nur en la Nordo, sed en ĉiuj regionoj, kie oni ŝatas kaj altetaksas nian literaturon. ŝia neordinara talento vekis atenton jam en la dua, brila periodo de Literatura Mondo. (Tiu periodo komenciĝis en 1931 kaj finiĝis kun la milito.)
 
-En tiu altnivela kaj kun manksento rememorata revuo oni vidis ofte la nomon de Magda Carlsson kaj mi bone scias, ke ŝi apartenis al tiuj kunlaborantoj, kiuj ne devis longe atendi la aperon de siaj kontribuaĵoj. Kiam antaŭ iom da tempo aperis la ”Evangelia Kantaro” en kiu la leona parto de la tradukoj reprezentis ŝian tradukarton, certe multaj, eĉ recenzistoj, ne donis tiom da atento al tiuj tradukoj, kiom ili vere meri-tas. Ili ne estis nuraj kantotradukoj kun nenaturaj trudsolvoj de poeziaj kaj prozodiaj problemoj, sed reprezentaj verketoj de granda kaj — ĝuste tial — humila talento. En recenzo mi kuraĝis tiam — kaj certe ne senrajte — paroli pri literatura 4
-
-SVEDA POEMARO
+En tiu altnivela kaj kun manksento rememorata revuo oni vidis ofte la nomon de Magda Carlsson kaj mi bone scias, ke ŝi apartenis al tiuj kunlaborantoj, kiuj ne devis longe atendi la aperon de siaj kontribuaĵoj. Kiam antaŭ iom da tempo aperis la ”Evangelia Kantaro” en kiu la leona parto de la tradukoj reprezentis ŝian tradukarton, certe multaj, eĉ recenzistoj, ne donis tiom da atento al tiuj tradukoj, kiom ili vere meri-tas. Ili ne estis nuraj kantotradukoj kun nenaturaj trudsolvoj de poeziaj kaj prozodiaj problemoj, sed reprezentaj verketoj de granda kaj — ĝuste tial — humila talento. En recenzo mi kuraĝis tiam — kaj certe ne senrajte — paroli pri literatura
 
 
 sensacio. Nun tiu ĉi literatura sensacio eĉ pligraviĝas: en la Sveda Poemaro la multfaceta talento de la tradukistino brilas eĉ en pli multaj koloroj de ŝia poezia prismo. Magda Carlsson estas pia animo, kiun logas la altaj sferoj de la kredo, sed ŝi ne rifuzas la arton ekster la religia mondo. ŝi ne vivas nur en la mondo de la psalmoj kaj himnoj; ŝi amas la poezion mem, la arton, kaj konsideras la veran arton sankta, di-benita.
@@ -55,9 +42,6 @@ Tial ne estas kontraŭdiro, ke la horizonto de la Poemaro estas vasta kaj varia,
 Kun plezuro mi rekomendas la SVEDA POEMARO-n en la atenton de ĉiu esperantisto, kiun interesas la kulturo, la animo de Svedlando, pri kiu digne atestas tiu ĉi libro.
 
 D-ro F. Szilägyi, Ak.
-
-
-SVEDA POEMARO
 
 
 Johan Olof Wallin (1779-1839)
@@ -103,9 +87,6 @@ de l’tera vivo, de l’kreita tuto,
 do kiel bela fonto senkompara,
 
 eterne klara!
-
-
-SVEDA POEMARO
 
 
 Johan Olof Wallin
@@ -159,9 +140,6 @@ paci povu,
 hejmon malfermitan trovu.
 
 
-SVEDA POEMARO
-
-
 Li venas, nia savo, pac’,
 
 ke sun’ ekluma de la grac’
@@ -183,9 +161,6 @@ beatronde
 ni jubilos,
 
 glorigite lin similos.
-
-
-SVEDA POEMARO
 
 
 Johan Olof Wallin
@@ -233,9 +208,6 @@ Feliĉa estas la servant’,
 se tia Vi lin trovos;
 
 
-SVEDA POEMARO
-
-
 ĉe la reveno, ho Savant’,
 
 Vi lnduki volos
@@ -243,9 +215,6 @@ Vi lnduki volos
 al Via Patro laŭ promes’ —
 
 al gloro kaj al senmortec’.
-
-
-SVEDA POEMARO
 
 
 Johan Olof Wallin
@@ -295,9 +264,6 @@ jam trilis ili por lasta foj.
 Por tag’ morgaŭa vi maltrankvile,
 
 kun timo ĝemas kiel kolomb’,
-
-
-SVEDA POEMARO
 
 
 sed sub piedoj, klapokaptile
@@ -357,9 +323,6 @@ viktimojn trafas. En ĉi batal’
 ne ŝirmas muroj, nek ŝilda ŝtal’.
 
 
-SVEDA POEMARO
-
-
 Flugilon volvas mi ĉirkaŭ ŝtormon,
 
 marondon rulas al ĝia cel’,
@@ -417,9 +380,6 @@ en ĝia korto
 en la jugo falas;
 
 
-SVEDA POEMARO
-
-
 katen’, korligo samkiel kan’
 
 ŝiriĝas tie pro sama man’.
@@ -466,9 +426,7 @@ ne tie restas, ne iĝis nul,
 
 (ĉi tiu poemo gajnis la duan premion en la branĉo ”Traduka Poezio”
 
-de Belarta Konkurso de Universala Esperanto Asocio, 1954.) 14
-
-SVEDA POEMARO
+de Belarta Konkurso de Universala Esperanto Asocio, 1954.)
 
 
 Esaias Tegnér (1782-1846)
@@ -518,9 +476,6 @@ karniĝas por ago subite:
 la just’ havas brakon kaj voĉon la ver’ —
 
 
-SVEDA POEMARO
-
-
 popoloj leviĝas ßanĝite.
 
 Kaj viaj oferoj kaj via danĝer’
@@ -550,9 +505,6 @@ al ili ni apelaciu.
 Kion temp’ al vi donis, redonos vi,
 
 se nestos en vi la eternaj tri.
-
-
-SVEDA POEMARO
 
 
 J. L. Runeberg (1804-I877)
@@ -608,9 +560,6 @@ Ne multe donas mondo —
 trezorojn Dia dom’.
 
 
-SVEDA POEMARO
-
-
 Lina Sandell-Berg (1832-1903)
 
 Tagon nur, momenton nur
@@ -664,9 +613,6 @@ tagon nur, momenton, ĝis mi transe
 vidos ĝoje bonan landon jam.
 
 
-SVEDA POEMARO
-
-
 Lina Sandell-Berg
 
 Sekureco
@@ -710,9 +656,6 @@ Patro tamen same bonas,
 kaj la cel’ de lia amo
 
 estas bono de l’infano.
-
-
-SVEDA POEMARO
 
 
 Lina Sandell-Berg
@@ -768,9 +711,6 @@ Do portu hejmen, ho Sinjor’,
 kolombon al arkeo!
 
 
-SVEDA POEMARO
-
-
 Carl David af Wirsén (1842-1912)
 
 Sankta vendredo
@@ -818,17 +758,11 @@ Profunde en la tombosin’
 ripozos mi estonte.
 
 
-SVEDA POEMARO
-
-
 Sed morto ne timigas plu,
 
 ĉar mi en fido al Jesu’
 
 leviĝos, lin renkonte.
-
-
-SVEDA POEMARO
 
 
 Selma Sundelius-Lagerström (1859-1927)
@@ -866,9 +800,6 @@ ke ni ne palpu en la noktmalplen’;
 Nin al la tuta vero paŝe gvidu,
 
 ĝis estos plena fine la kompren’!
-
-
-SVEDA POEMARO
 
 
 Verner von Heidenstam (1859–1940)
@@ -920,9 +851,6 @@ Sub noktĉiela, frosta lun’
 mi faras al mi diojn
 
 
-SVEDA POEMARO
-
-
 por fidi, kiam kantas jun’
 
 la tombomelodiojn.
@@ -942,9 +870,6 @@ nur en silent’, malfrue,
 se kun soleca korokri’
 
 mi ploris surgenue.
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding (I860-1911)
@@ -974,9 +899,6 @@ koloron ŝanĝas jen magi-asperg’,
 ĉar kio veras en Berlin’ aŭ Jena,
 
 nur estas stulta ŝerc’ en Heidelberg.
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding
@@ -1026,9 +948,6 @@ ol ke botelon oni min enfermus.
 Se Salomono de Jerusalem’
 
 
-SVEDA POEMARO
-
-
 de sep provincoj la impostojn sternus
 
 je sia dekstra flank’ por tiuj, kiuj kline
@@ -1040,9 +959,6 @@ maldekstre la baston’ de ĉifonul’,
 kaj dirus: ”Nun elektu! Jen postul’!” —
 
 bastonon sen hezit’ mi prenus, kaj post danko fiere irus mi al la maldekstra flanko.
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding
@@ -1072,9 +988,6 @@ la feĉo — feĉo estas,
 kaj rozoj en fendita vaz’
 
 ja ĉiam rozoj restas.
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding
@@ -1112,9 +1025,6 @@ tro freŝas pro roso petalo,
 tro hele vi brilas, blindiga radi’:
 
 tro ĵus mi en ombra mortvalo.
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding
@@ -1162,9 +1072,6 @@ Inter pompo kaj bril’ en tronhalo
 pli sentiĝas la melankoli’.”
 
 
-SVEDA POEMARO
-
-
 ”is piedoj eksangos survoje,
 
 sub tagmeza sunbrul’, tra la ŝtorm’
@@ -1182,9 +1089,6 @@ ho, feliĉe kaj dance mi iras —
 volas esti ĉe vi, Salomon’!”
 
 Salem = Jerusalemo
-
-
-SVEDA POEMARO
 
 
 Gustaf Fröding
@@ -1234,9 +1138,6 @@ la kaldronojn brilantajn, el kupra metalo
 — ĉu toleri viraĉon, pri li pacienci?
 
 
-SVEDA POEMARO
-
-
 Tre kaduka li estas: vidvina vualo …
 
 jes, pri tiom rezigni ja estus domaĝ’,
@@ -1264,9 +1165,6 @@ Litkusenoj nubŝvelas, plenplenas la ŝrankoj.
 per bovinoj kaj porkoj kaj mono en bankoj.
 
 Hm, mi kredas, ke jes … Ho, mi kredas, ke jes, eĉ se estus infanoj dekses!
-
-
-SVEDA POEMARO
 
 
 Oscar Levertin (I862-I9o6)
@@ -1316,9 +1214,6 @@ de Feliĉo. Vestas ĝin
 bridoj, hufoj oraj.
 
 Revas ĝi pri fremda land’,
-
-
-SVEDA POEMARO
 
 
 kie flamas super strand’
@@ -1374,9 +1269,6 @@ Krist’ indulga helpu nin
 en la nokt’ novjara.
 
 
-SVEDA POEMARO
-
-
 Oscar Levertin
 
 En la juda tombejo de Praha
@@ -1412,9 +1304,6 @@ ne moku pacon bela tromp’.
 Ne florojn metu ama mano,
 
 sed ŝtonojn. ŝtonojn al la tomb’!
-
-
-SVEDA POEMARO
 
 
 Oscar Levertin
@@ -1462,9 +1351,6 @@ kaj vizaĝoj tre amataj
 neniiĝis, fornebulis.
 
 El la mallumo min levu!
-
-
-SVEDA POEMARO
 
 
 Portu min, vent’, orienten!
@@ -1522,9 +1408,6 @@ floro, frukt’, virina sino,
 * La aŭtoro estis de juda deveno.
 
 
-SVEDA POEMARO
-
-
 de la akvogut’ brileto,
 
 greno en matura klino,
@@ -1552,9 +1435,6 @@ Tero sur okulo plora.
 Tero sur la koro cindra.
 
 Kovru per tero min, ventoj.
-
-
-SVEDA POEMARO
 
 
 Oscar Levertin
@@ -1604,9 +1484,6 @@ sambuko ekstermure.
 ĉe nia vojo de amsol’
 
 purpuras la diantoj,
-
-
-SVEDA POEMARO
 
 
 kaj sonas inter la lupol’
@@ -1662,9 +1539,6 @@ kaj ĉiam alten sin la kron’
 etendas al zenito.
 
 
-SVEDA POEMARO
-
-
 Oscar Levertin
 
 El ”La gepatra lingvo”
@@ -1718,9 +1592,6 @@ kant’ unua ĉe la lulil’,
 lasta spir’ en la fino!
 
 
-SVEDA POEMARO
-
-
 Erik Axel Karlfeldt (1864-1931)
 
 Virgulino Maria
@@ -1758,9 +1629,6 @@ Vi iras, kvazaŭ junulin’ de l’sankta komuni’: ŝi volas en printempa nokt
 ** vilaĝo en Dalekarlio.
 
 
-SVEDA POEMARO
-
-
 maldormi, kaj kun trema kor’ mediti volas ŝi
 
 pri sankta vort’, mistera sakramento.
@@ -1790,9 +1658,6 @@ Klarigo pri la supra kaj sekva poemoj
 Por ornami la murojn de siaj ĉambroj, precipe ĉe festaj aranĝoj, la kamparanoj pendigis bildojn pentritajn sur tolo aŭ kartono. La kamparaj pentristoj prenis ĉefe siajn motivojn el bibliaj ilustraĵoj, sed naive translokigis ilin al la hejma pejzaĝo kaj enmetis detalojn el sveda kampara vivo, kio donas tute novan poezian freŝecon al la bildserioj.
 
 Karlfeldt, filo de Dalekarlio, jam de sia infanaĝo lernis ĝuste kompreni kaj ŝati tiun specialan artoformon, kiu inspiris lin al kelkaj plej belaj poemoj. Li sukcesis redoni la naivecon de la religia sento tiel bone, ke la leganto volonte lasas sin kapti de, ekzemple, la grandiozo kaj bonhumoro de Elija ĉielveturo kaj la senlime etera personeco de Virgulino Maria.
-
-
-SVEDA POEMARO
 
 
 Erik Axel Karlfeldt
@@ -1829,9 +1694,7 @@ Jen ekbrilas grandaj lagoj. Kiel borda garnitur’
 
 buntvestite floras vigla virinar’,
 
-kaj knabetoj gapas supren al la stranga nubvetur’: 46
-
-SVEDA POEMARO
+kaj knabetoj gapas supren al la stranga nubvetur’:
 
 
 ”Kien hastas najbaronklo per la ĉar’?”
@@ -1885,9 +1748,6 @@ gvidas nun ĉevalojn ŝvitajn al kampet’.
 ** Granda lago en Dalekarlio.
 
 
-SVEDA POEMARO
-
-
 Erik Axel Karlfeldt
 
 Temp’ atenda
@@ -1935,9 +1795,6 @@ mi en rev’ atendi volos,
 en Eden’ maldorma solos
 
 sub la ekburĝona flor’.
-
-
-SVEDA POEMARO
 
 
 Erik Axel Karlfeldt
@@ -1991,9 +1848,6 @@ dum sortouragan’.
 tra mortoocean’.
 
 
-SVEDA POEMARO
-
-
 Erik Axel Karlfeldt
 
 Malsano
@@ -2031,9 +1885,6 @@ kuŝantan sfinkson: jen
 ŝi mole stariĝas … sin ŝovas
 
 katmove al mia kusen’.
-
-
-SVEDA POEMARO
 
 
 Sin kaŝas en brusto sopiro.
@@ -2086,9 +1937,6 @@ mi vorton aŭdis de mister’
 ĉe la mirinda pord’.
 
 
-SVEDA POEMARO
-
-
 Se dronos en bruo sur viva voj’
 
 la tono el trans la konsci’,
@@ -2130,9 +1978,6 @@ Sufer’ sufiĉis kaj ĝu’ ĝisfunda,
 sed por pretiĝo afero restis:
 
 feliĉon krei el kulp’ abunda.
-
-
-SVEDA POEMARO
 
 
 Erik Axel Karlfeldt
@@ -2188,9 +2033,6 @@ En foro Baltmara aklame
 respondas per muĝa ekspir’.
 
 
-SVEDA POEMARO
-
-
 Per Hallström (1866–1960)
 
 Kanto pri la tero
@@ -2234,9 +2076,6 @@ tra kiu flamis matena sun’,
 kaj al okcidento fenestron:
 
 forpalis tie la lum’;
-
-
-SVEDA POEMARO
 
 
 ĝi havis ujon por fajro,
@@ -2288,9 +2127,6 @@ nun fluis sur vangojn palajn
 kun duboj, demandoj, la plor’:
 
 
-SVEDA POEMARO
-
-
 ”ĉu la koro ne flamas plej varme
 
 sur tero — en ĝojo, mizero, malfort’?
@@ -2330,9 +2166,6 @@ vekiĝas en maja aer’.”
 kaj aŭdu, kiel belsonas la kord’,
 
 se ludas ĝin morto, dolor’!”
-
-
-SVEDA POEMARO
 
 
 Bo Bergman (1869–1967)
@@ -2376,9 +2209,6 @@ volus gliti mi ventpele
 kun la cign’ al vi.
 
 
-SVEDA POEMARO
-
-
 Bo Bergman
 
 La revuloj
@@ -2420,9 +2250,6 @@ La grando troviĝas post tiu rand’,
 kie svene haltis la penso.
 
 
-SVEDA POEMARO
-
-
 Bo Bergman
 
 Kritiko
@@ -2448,9 +2275,6 @@ Ne vort’ pro vort’. Nur tio povas mem
 eniĝi unge koron kaj radike teron,
 
 en kio kuŝas vere viva sem’.
-
-
-SVEDA POEMARO
 
 
 Bo Bergman
@@ -2486,9 +2310,6 @@ ni ree falas
 kaj eksilente
 
 eniras nokton.
-
-
-SVEDA POEMARO
 
 
 Bo Bergman
@@ -2536,9 +2357,6 @@ malfermas nun sin la buŝ’ de knabin’,
 surŝipe de Feliĉo!
 
 
-SVEDA POEMARO
-
-
 Sed kredu al mi, kun ĉi pasaĝer’
 
 la ŝipo pereos; kredu al ver:
@@ -2546,9 +2364,6 @@ la ŝipo pereos; kredu al ver:
 knabinoj sur mar’, knabinoj sur ter’
 
 danĝeras al Feliĉo.
-
-
-SVEDA POEMARO
 
 
 Bo Bergman
@@ -2590,9 +2405,6 @@ Ludas viv’ mallonge tre,
 pupo gaja kaj mi tre,
 
 gajas pleje Panjo.
-
-
-SVEDA POEMARO
 
 
 Bo Bergman
@@ -2640,9 +2452,6 @@ kaj en la ĝardeno logis de fragoj,
 fabele, tre dolĉa kaj ruĝa land’.
 
 
-SVEDA POEMARO
-
-
 Kaj spite al aĉaj, malindaj faroj
 
 la festa ĉambro brilegis de pur’,
@@ -2676,9 +2485,6 @@ Kaj oni al tombo en ĉerko transportis
 l’ alian, kio ne estis ŝi.
 
 
-SVEDA POEMARO
-
-
 Bo Bergman
 
 La lasta stelo
@@ -2698,9 +2504,6 @@ ankaŭ tiun for.
 Nokto min atingos,
 
 pezas mia kor’.
-
-
-SVEDA POEMARO
 
 
 Karl Erik Forsslund (1872–1941)
@@ -2748,9 +2551,6 @@ malsato … kaj petegis:
 en la preĝejo jaŭdojn tri
 
 vespere ke ricevu mi liberon!”
-
-
-SVEDA POEMARO
 
 
 Sed vanas sanktaj sonoj. Sen kompato
@@ -2812,9 +2612,6 @@ en domon de la patro, la maljuna.
 Eksonas voĉo rava. Kante
 
 
-SVEDA POEMARO
-
-
 foriĝas ĝi en monton kaj forondas,
 
 mallaŭte jubilante:
@@ -2823,9 +2620,7 @@ mallaŭte jubilante:
 
 ho Rangila en Roberg!’’
 
-(Prezentita kun muzikakompano ĉe U. K. en Stockholm, 1934.) 69
-
-SVEDA POEMARO
+(Prezentita kun muzikakompano ĉe U. K. en Stockholm, 1934.)
 
 
 Bertel Gripenberg (1878-1947)
@@ -2881,9 +2676,6 @@ kiel neĝo malpeze kristalas
 sur mole kovrita spur’!
 
 
-SVEDA POEMARO
-
-
 Jeanna Oterdahl (1879–1965)
 
 Preĝo
@@ -2923,9 +2715,6 @@ Patro kaj Dio!
 Libera traduko
 
 
-SVEDA POEMARO
-
-
 Wilhelm Ekelund (1880–1949)
 
 Tiam estis helaj la fagoj
@@ -2941,9 +2730,6 @@ Nun silente pluvas. La ĉielo pendas malalte
 sur nudaj arboj. Ekfajfas. Denove la trajno moviĝas.
 
 En la nokton malrapide nigriĝantan mi foriras senamika.
-
-
-SVEDA POEMARO
 
 
 Vilhelm Ekelund
@@ -2967,9 +2753,6 @@ Tre baldaŭ dormos ĉio,
 tre baldaŭ venos fin’.
 
 
-SVEDA POEMARO
-
-
 Wilhelm Ekelund
 
 Adoro
@@ -2985,9 +2768,6 @@ ne tiel dolĉe odoras kiel viaj lipoj odorantaj.
 Blindiga belo de homo — ho vidu … la polvon,
 
 la polvon, sur kiu vi paŝas, kisas balbute, adorante la sklavo.
-
-
-SVEDA POEMARO
 
 
 Sigfrid Siwertz (1882–1970)
@@ -3017,9 +2797,6 @@ Tubo, korno kaj tambur’,
 Créme Ninon kaj Rose d’amour,
 
 solv’ safrana, ambro, mosk’!
-
-
-SVEDA POEMARO
 
 
 Dancu gaje en la bosk’!
@@ -3081,9 +2858,6 @@ Jes, pentu — jam ne eblas fuĝ’:
 tondilmakzeloj de la juĝ’
 
 
-SVEDA POEMARO
-
-
 oscedas kun malpleno
 
 por via vivfadeno.
@@ -3123,9 +2897,6 @@ Mutu kornoj, nigru scen
 Exit Isidor’ Filén.
 
 Exit = eliras. (Sceninstrukcio por aktoro.)
-
-
-SVEDA POEMARO
 
 
 Anders Österling (1884–1981)
@@ -3173,9 +2944,6 @@ el la cerbum’ post egoisma baro
 nur unu elirpord’: al la homaro!
 
 
-SVEDA POEMARO
-
-
 Anders Österling
 
 Monokordo
@@ -3221,9 +2989,6 @@ la tero ne estas nur pilko en danc’,
 ŝvebante en spaco dezerta.
 
 
-SVEDA POEMARO
-
-
 Anders Österling
 
 Pejzaĝo kun steloj
@@ -3259,9 +3024,6 @@ sur ter’ troviĝas jen por mi azil’,
 ĉe maro, kiu ondas al la dunoj
 
 kaj kortsalikoj kanton pri trankvil’.
-
-
-SVEDA POEMARO
 
 
 Ture Nerman (1886–1969)
@@ -3309,9 +3071,6 @@ nur kiam, plenkreska, iame
 sen ĝeno vi scios pri vira inklin’,
 
 kiel ĝi fajras flame.
-
-
-SVEDA POEMARO
 
 
 Por mi: matura florĝarden’.
@@ -3371,9 +3130,6 @@ kaj dankas ridlarme al la saĝa natur’
 pro ĉiam novaj burĝonoj.
 
 
-SVEDA POEMARO
-
-
 Harriet Löwenhielm (I887-1918)
 
 Al la malgranda frat’ de mia koro
@@ -3419,9 +3175,6 @@ el via riĉo gemon multfacetan
 el ĝoj’ senlima donu, ho, al li!
 
 
-SVEDA POEMARO
-
-
 — feliĉon tian, ke ĝi, eĉ sentate
 
 momenton nur, lin ravu ĝis kapturn’,
@@ -3435,9 +3188,6 @@ Donacu senmezure!
 Sed, Dio, kiam regos li purpure,
 
 ho faru, ke li ne forgesu min …
-
-
-SVEDA POEMARO
 
 
 Dan Andersson (I888–1920)
@@ -3465,9 +3215,6 @@ Eble sidos vi, maljuna, sur farmej’ en Alabama, dum kribriĝas sur tempiojn gr
 Eble vi forgesos Stinjon pro glaset’ en Jokohama —
 
 jes, ne virte, sed tre home, kantu hejo hoj!
-
-
-SVEDA POEMARO
 
 
 Erik Lindorm (1889-1941)
@@ -3499,9 +3246,6 @@ Kaj post nelonge ne estos ver’:
 ”neniu mankas.”
 
 
-SVEDA POEMARO
-
-
 Erik Lindorm
 
 Minuto de feliĉo
@@ -3529,9 +3273,6 @@ De kie min portis la vent’?
 Mi eble atendis dum jarmilion’
 
 por tiu ĉi sola moment’.
-
-
-SVEDA POEMARO
 
 
 Evert Taube (I890–1976)
@@ -3579,9 +3320,6 @@ la dua estas brig’,
 la tria havas velojn ĉifonajn.
 
 
-SVEDA POEMARO
-
-
 Lul — lal — lul’, la kaldrono sur brul’,
 
 ŝipkest’ havas tri figuretojn,
@@ -3591,9 +3329,6 @@ unua estas kred’
 kaj dua la esper’,
 
 la tria estas amo, la tre ruĝa.
-
-
-SVEDA POEMARO
 
 
 Pär Lagerkvist (1891–1974)
@@ -3643,9 +3378,6 @@ por mondon klare vidi
 kaj trovi la certecon.
 
 
-SVEDA POEMARO
-
-
 Nur mia brust’, nur vi …
 
 L’animon vi katenas,
@@ -3667,9 +3399,6 @@ Nur vi, ho brust’,
 dolorprofundo,
 
 estas indulgita.
-
-
-SVEDA POEMARO
 
 
 Pär Lagerkvist
@@ -3723,9 +3452,6 @@ Kial kuŝi tiel peze,
 tiel preme sur la sanganta rodo?
 
 
-SVEDA POEMARO
-
-
 Edit Södergran (1892-1923)
 
 Ni virinoj
@@ -3741,9 +3467,6 @@ Iam viron mi amis, li al nenio kredis …
 En frosta tago li venis kun senanimaj okuloj; en peza tago li foriris kun forgesemo sur la frunto.
 
 Se mia infano ne vivas, ĝi lia estas …
-
-
-SVEDA POEMARO
 
 
 Edit Södergran
@@ -3765,9 +3488,6 @@ Senti, senti nur unu nokton,
 en nokto kia la nuna,
 
 vian pezan kapon sur mia brusto …
-
-
-SVEDA POEMARO
 
 
 Edit Södergran
@@ -3805,9 +3525,6 @@ Via mano: libido.
 Mia mano: sopiro.
 
 
-SVEDA POEMARO
-
-
 Erik Blomberg (1894–1965)
 
 Patrino
@@ -3835,9 +3552,6 @@ kaj sankta orrivero,
 sed de la lampo nimbas lum’
 
 patrinon sur la tero.
-
-
-SVEDA POEMARO
 
 
 Hjalmar Gullberg (1898–1961)
@@ -3871,9 +3585,6 @@ Jesus, la di’ krucumita, kun tuta la gento
 malpermesita en nia dudeka jarcento.
 
 
-SVEDA POEMARO
-
-
 Kristus (signifas: sanktoleita je reĝo).
 
 ”Ilin pardonu, ĉar ili ne scias …” — jen lia preĝo.
@@ -3899,9 +3610,6 @@ Xerxes la maron per skurĝoj forte batfendis,
 ĉar de mardioj la greka libero dependis.
 
 Zeus onidire forestas. La dioj potencaj la homojn fuĝis, post unu alia. Neniu memoras la nomojn.
-
-
-SVEDA POEMARO
 
 
 Hjalmar Gullberg
@@ -3941,9 +3649,6 @@ land’, kie ludas kun ŝafo besti’
 kaj dancas la cerv’ kun leonoj.
 
 
-SVEDA POEMARO
-
-
 Hjalmar Gullberg
 
 Parolas la disĉiplo plej amata
@@ -3963,9 +3668,6 @@ ne por defendi aŭ perforte preni.
 Vespere, kiam li komencis laci,
 
 en miajn buklojn ili emis veni.
-
-
-SVEDA POEMARO
 
 
 Nils Ferlin (1898–1961)
@@ -3995,9 +3697,6 @@ nur apendicet’, sinjor’ Johanson`!
 in detondas ni tuj, kaj poste al vi
 
 venos bona ekdorm’, sinjor’ Johanson’.
-
-
-SVEDA POEMARO
 
 
 Nils Ferlin
@@ -4045,9 +3744,6 @@ nur tien eĉ Salomono,
 kaj — tute egalas al mi.
 
 
-SVEDA POEMARO
-
-
 Nils Ferlin
 
 Sen titolo
@@ -4059,9 +3755,6 @@ vaporas for la timo kaj doloro.
 Etiĝis la distanco de dom’ al domo, dum
 
 longiĝis tiu inter kor’ kaj koro.
-
-
-SVEDA POEMARO
 
 
 Nils Ferlin
@@ -4087,9 +3780,6 @@ Estas rimarkinde, ke en la mondhistorio neniam troviĝis pli
 Tiu de Kain.
 
 
-SVEDA POEMARO
-
-
 Nils Ferlin
 
 Ludo
@@ -4113,9 +3803,6 @@ Sian vicon neniu suspektas.
 Ekster la rond’ pacience sinjor’
 
 Morto rastante kolektas.
-
-
-SVEDA POEMARO
 
 
 Hans Botwid (1901–1989)
@@ -4163,9 +3850,6 @@ kiuj sin hardis
 per tera ĝojo.
 
 
-SVEDA POEMARO
-
-
 Vera Flygare
 
 Bonvensaluto
@@ -4209,9 +3893,6 @@ mezepoko kaj memor’,
 en Snäckgärd-banej’ senfinoj
 
 (En 1936 Vera Flygare verkis la jenan bonvensaluton de la Sveda Trafik-Asocio al internacia kongreso en Stockholm. La kongresaranĝantoj petis tradukon ankaŭ en Esperanto.)
-
-
-SVEDA POEMARO
 
 
 da salfreŝo kaj sunor’.
@@ -4269,9 +3950,6 @@ Fojnodoro, somersuno!
 Violona melodi’ …
 
 
-SVEDA POEMARO
-
-
 Aerklaro de l’autuno,
 
 vigla sporto sur glaci’.
@@ -4291,9 +3969,6 @@ por adiaŭ ĉe la strand’
 estu la donaco flora:
 
 la memoroj el Svedland’.
-
-
-SVEDA POEMARO
 
 
 Aŭtoro nekonata
@@ -4333,9 +4008,6 @@ Baldaŭ ridos ree sun’
 sur river’ arĝenta.
 
 
-SVEDA POEMARO
-
-
 Sveda popolkanto mezepoka
 
 Sven el Rozĝarden’
@@ -4371,9 +4043,6 @@ nia patrinet’.
 Atendu malfrue … neniam.
 
 
-SVEDA POEMARO
-
-
 El la Biblio
 
 Eternulo, grace benu
@@ -4393,9 +4062,6 @@ Laŭdu danke mi, savito,
 vin, ho Patro, Fil’, Spirito!
 
 Nombroj 6: 24-26
-
-
-SVEDA POEMARO
 
 
 El la Biblio
@@ -4432,10 +4098,7 @@ elire kaj enire,
 
 eterne kiel nun.
 
-Psalmo 121
-
-
-SVEDA POEMARO
+Psalmo
 
 
 www.omnibus.se/

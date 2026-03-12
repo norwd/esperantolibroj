@@ -6,20 +6,10 @@ La aventuroj
 Pinokjo
 
 
-### 1
-
 LA AVENTUROJ DE PINOKJO
 
 
 Carlo Collodi
-
-LA AVENTUROJ DE PINOKJO
-
-
-@omnibus.se
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 1 Kiel okazis, ke majstro ĉerizo, lignaĵisto, trovis lignopecon, kiu ploris kaj ridis kiel infano
@@ -34,19 +24,11 @@ i ne estis io luksa, sed simpla peco el stako, tia, kian vintre oni metas en la 
 
 Mi ne scias, kiel okazis, sed fakto estas, ke iun tagon tiu lignopeco venis en la laborejon de maljuna lignaĵisto, kies nomo estis majstro Antono, kvankam ĉiuj nomis lin nur ĉerizo pro makulo sur la nazopinto, ĉiam brila kaj ruĝa, simile al matura ĉerizo!
 
-Kiam majstro ĉerizo ekvidis la lignopecon, li tre ek-
-
-ĝojis, kontente kunfrotis la manojn, kaj murmuris duonlaŭte:
+Kiam majstro ĉerizo ekvidis la lignopecon, li tre ekĝojis, kontente kunfrotis la manojn, kaj murmuris duonlaŭte:
 
 —ĉi tiu ligno venis ĝustatempe: mi uzos ĝin por fari el ĝi piedon por tablo.
 
-Dirite, farite: senplie li prenis akran adzon por senŝe-3
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-ligi ĝin, sed kiam li ĝuste pretis fari la unuan frapon, lia brako restis en la aero, ĉar li ekaŭdis voĉeton tre mallaŭtetan, kiu diris peteme:
+Dirite, farite: senplie li prenis akran adzon por senŝeligi ĝin, sed kiam li ĝuste pretis fari la unuan frapon, lia brako restis en la aero, ĉar li ekaŭdis voĉeton tre mallaŭtetan, kiu diris peteme:
 
 —Ne batu min tiel forte!
 
@@ -57,16 +39,11 @@ Gape li ĉirkaŭokulis en la ejo por vidi, de kie povis veni la voĉeto, sed nen
 —Mi jam komprenas, — li diris ridetante, kaj gratis sian perukon, — estas klare: mi ĝin nur imagis. Ni reiru al la laboro.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Kaj li reprenis la adzon, donis fortegan frapon sur la lignopecon.
 
 —Oj, vi kaŭzas al mi doloron! — kriis plendeme la sa-ma voĉeto.
 
-ĉi-foje majstro ĉerizo konsterniĝis, liaj okuloj elkavi-
-
-ĝis pro teruro, lia buŝo malfermiĝis, la lango elpendiĝis
+ĉi-foje majstro ĉerizo konsterniĝis, liaj okuloj elkaviĝis pro teruro, lia buŝo malfermiĝis, la lango elpendiĝis
 
 ĝis la mentono, simile al fontana monstrokapo. Kiam li reakiris la parolpovon, tremante kaj balbutante pro timo li demandis:
 
@@ -78,9 +55,7 @@ Parolante tiel, li kaptis ambaŭmane tiun malfeliĉan lignopecon, kaj komencis f
 
 Kaj ĉar granda timo lin ekregis, li provis kanteti por sin kuraĝigi.
 
-Intertempe li flankenmetis la adzon, prenis rabotilon 5
-
-LA AVENTUROJ DE PINOKJO
+Intertempe li flankenmetis la adzon, prenis rabotilon
 
 
 por prilabori kaj glatigi la pecon. Sed dum li ŝovis-tiris la instrumenton tra ĝi, refoje li ekaŭdis la voĉeton, kiu petis lin ridante:
@@ -90,9 +65,6 @@ por prilabori kaj glatigi la pecon. Sed dum li ŝovis-tiris la instrumenton tra 
 ĉi-foje la kompatinda majstro ĉerizo falis sur la plankon, kiel fulmofrapito. Kiam li remalfermis la okulojn, li trovis sin sidanta sur la planko.
 
 Lia vizaĝo ŝajnis aliiĝinta, kaj eĉ la nazopinto, kutime ruĝa, fariĝis nun verde blua pro la granda timo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 2 Majstro ĉerizo donacas la lignopecon al sia amiko epeto, kiu volas skulpti el
@@ -118,9 +90,6 @@ Kion vi faras tie surplanke?
 —Kio portis vin al mi, kamarado epeto?
 
 —La gamboj. Sciu, majstro Antono, ke mi venis al vi por peti komplezeton.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Jen mi, por via servo, — respondis la lignaĵisto, kaj stariĝis sur la genuojn.
@@ -151,9 +120,7 @@ LA AVENTUROJ DE PINOKJO
 
 —Jes!
 
-Kaj ĉiam pli arde, ili transiris de vortoj al agoj, kaj kap-tinte unu la alian je la haroj, ili skrapis, mordis kaj knedis unu la alian. Kiam la interbatiĝo finiĝis, majstro Antono trovis la flavan perukon de epeto en siaj manoj, kaj 8
-
-LA AVENTUROJ DE PINOKJO
+Kaj ĉiam pli arde, ili transiris de vortoj al agoj, kaj kap-tinte unu la alian je la haroj, ili skrapis, mordis kaj knedis unu la alian. Kiam la interbatiĝo finiĝis, majstro Antono trovis la flavan perukon de epeto en siaj manoj, kaj
 
 
 epeto rimarkis, ke li havas la grizecan perukon de majstro Antono en la buŝo.
@@ -189,9 +156,6 @@ Majstro Antono, kontenta en si, iris tuj preni de la tablo la lignopecon, kiu ka
 —epeto, ne ofendu min, alie mi nomos vin Polento! …
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Azeno!
 
 —Polento!
@@ -208,17 +172,9 @@ Aŭdante jam la trian fojon, ke oni nomas lin Polento,
 
 epeto sentis nebuliĝi la okulojn, kaj ĵetis sin sur la lignaĵiston.
 
-Post la finiĝo de la batalo troviĝis du pliaj skrapoj sur la nazo de majstro Antono kaj du malpliaj butonoj sur la jako de lia kontraŭulo. Aranĝinte tiamaniere la kon-10
-
-LA AVENTUROJ DE PINOKJO
-
-
-tojn, ili reciproke premis la manojn, kaj ĵuris resti bonaj amikoj por la tuta vivo.
+Post la finiĝo de la batalo troviĝis du pliaj skrapoj sur la nazo de majstro Antono kaj du malpliaj butonoj sur la jako de lia kontraŭulo. Aranĝinte tiamaniere la kontojn, ili reciproke premis la manojn, kaj ĵuris resti bonaj amikoj por la tuta vivo.
 
 Dume epeto prenis al si la neordinaran lignopecon, dankis majstron Antono, kaj lamante reiris al sia hejmo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 3 Hejmenirinte epeto tuj komencas skulpti la marioneton. Li donas al ĝi la nomon Pinokjo. La unuaj bubaĵoj de la marioneto
@@ -236,9 +192,6 @@ La plej riĉa el ili petadis almozon.
 Trovinte nomon al sia marioneto, li rekomencis diligente labori; post nelonge li elĉizis la harojn, poste la frunton kaj la okulojn.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Imagu lian miron, kiam elforminte la okulojn, li rimarkis, ke ili moviĝas kaj fikse-firme observas lin.
 
 Vidante, ke li estas observata de tiuj lignookuloj, li preskaŭ ekfartis malbone, kaj diris kun ofendiĝema voĉo:
@@ -252,9 +205,6 @@ Post la okuloj do li ĉizis la nazon; sed apenaŭ farita, ĝi komencis kreski: k
 La malfeliĉa epeto klopodis retranĉi ĝin; sed ju pli li tranĉadis kaj mallongigadis ĝin, des pli impertinente ĝi kreskis.
 
 Post la nazo li elĉizis la buŝon.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Li ankoraŭ ne finis, kiam ĝi subite ekridis, kaj komencis lin moki.
@@ -290,9 +240,6 @@ Kiam epeto finfaris la piedojn, li sentis, ke piedo donas frapon sur lian nazopi
 —Mi meritas tion! — li diris en si. Mi devus pensi pli frue! Nun jam estas malfrue.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Post tio li prenis la marioneton sub la akseloj, metis lin sur la plankon de la ĉambro por lin marŝigi.
 
 La gamboj de Pinokjo estis rigidaj, ne povis moviĝi, tial epeto kondukis lin je lia mano por instrui lin meti regule piedon post piedo.
@@ -305,9 +252,7 @@ Kaj la malfeliĉa epeto ek post li, tamen sen espere-to atingi lin, ĉar tiu bub
 
 Fine la bona hazardo venigis renkonte ĝendarmon, kiu aŭdante la bruon kaj kredante, ke temas pri forkurinta ĉevalido, metis sin sur la vojmezon kun disstreĉitaj kruroj kun la firma intenco, haltigi ĝin kaj malhelpi, ke okazu pli granda malfeliĉo.
 
-La ĝendarmo, sen formovi sin de la loko, kaptis lin fikse-firme ĉe la nazo (ĝi estis ekstreme granda nazego, ŝajne farita por tio, ke ĝendarmoj kaptu ĝin), kaj transdonis lin en la proprajn manojn de epeto, kiu, por rebonigi lin, volis tuj tiri liajn orelojn. Sed imagu, kiel li ekmiris, kiam serĉante la orelojn, li ne trovis ilin: kaj ĉu 15
-
-LA AVENTUROJ DE PINOKJO
+La ĝendarmo, sen formovi sin de la loko, kaptis lin fikse-firme ĉe la nazo (ĝi estis ekstreme granda nazego, ŝajne farita por tio, ke ĝendarmoj kaptu ĝin), kaj transdonis lin en la proprajn manojn de epeto, kiu, por rebonigi lin, volis tuj tiri liajn orelojn. Sed imagu, kiel li ekmiris, kiam serĉante la orelojn, li ne trovis ilin: kaj ĉu
 
 
 vi scias, kial? ĉar en la hasto skulpti la marioneton, li forgesis ilin fari.
@@ -333,9 +278,6 @@ Sume: tiom oni babilis, tiom oni parolis, ke la ĝendarmo lasis Pinokjon libera,
 Kio poste okazis, estas nekredebla historio. Mi rakontos ĝin en la sekvaj ĉapitroj.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 4 Aventuro de Pinokjo kun la Parolanta Grilo; el ĝi ni ekscios, kiel tedas malbonajn knabojn, se iu pli saĝa ilin admonas
 
 Nun mi rakontos al vi, geknaboj, ke dum oni kondukis la kompatindan, senkulpan epeton al la malliberejo, tiu knabaĉo Pinokjo, post kiam li liberiĝis el la ungoj de la ĝendarmo, pelis siajn piedojn tra la kampoj, por kiel eble plej baldaŭ reesti hejme; kaj en la granda fervoro de kurado li trasaltis super fojnorakoj plej altaj, heĝoj el dornaj arbustoj kaj fosaĵoj plenaj de akvo, super kiaj kapablus trasalti nur kapridoj aŭ leporetoj, kiuj estas tre persekutataj de ĉasistoj.
@@ -347,9 +289,6 @@ Sed tiu kontento nelonge daŭris, ĉar li ekaŭdis iun en la ĉambro, kiu diradi
 —ĉirp-ĉirp-ĉirp!
 
 —Kiu estas, kiu min vokas? — demandis Pinokjo plena de timo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Estas mi!
@@ -376,12 +315,7 @@ Kaj por lernado, konfidence al vi mi malkaŝos, mi ĝuste ne havas emon, kaj min
 
 —Silentu, Grilaĉo fivola! — kriis Pinokjo.
 
-Sed la grilo, kiu estis pacienca kaj saĝa, anstataŭ ofen-18
-
-LA AVENTUROJ DE PINOKJO
-
-
-diĝi pro tiu impertinenteco, daŭrigis kun la sama trankvila voĉo:
+Sed la grilo, kiu estis pacienca kaj saĝa, anstataŭ ofendiĝi pro tiu impertinenteco, daŭrigis kun la sama trankvila voĉo:
 
 —Se vi ne bonvolas viziti lernejon, kial vi ne lernas almenaŭ metion por gajni honeste la ĉiutagan panon?
 
@@ -406,9 +340,6 @@ Je ĉi lastaj vortoj Pinokjo salte leviĝis, ege furioza, kaptis lignomartelon d
 Eble li ne pensis, ke tiu trafiĝos: sed malbonŝance li trafis lin ĝuste sur la kapo, tiel ke al la malfeliĉa Grilo apenaŭ restis spiro por eligi kelkajn ĉirpetojn, kaj li restis morte knedita sur la muro.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 5 Pinokjo malsatas kaj serĉas ovon por fari fritaĵon; sed en la plej bela momento la fritaĵo forflugas tra la fenestro
 
 Intertempe komencis noktiĝi kaj ekmemorinte, ke li nenion manĝis, Pinokjo sentis murmuregon en la stomako, kio tre similis al apetito.
@@ -417,16 +348,9 @@ Sed apetito ĉe knaboj progresas rapide; kaj fakte: post kelkaj minutoj la apeti
 
 La malfeliĉa Pinokjo subite kuris al la fajrujo, kie pendis poto bolanta, kaj rapidis malfermi ĝin por vidi, kio enestas, sed la poto estis … pentrita sur la muro. Imagu, kiel li sentis sin! Lia nazo, jam ankaŭ sen tio sufiĉe ob-longa, fariĝis almenaŭ kvar colojn pli longa.
 
-Tiam li komencis kuradi tra la ĉambro, serĉante en ĉiuj tirkestoj, en ĉiuj rezervujoj por trovi iom da pano, eĉ se nur sekan krusteton de ĝi, oston postlasitan de hundo, iom da ŝima polento, fiŝosteton, kernon de ĉe-20
+Tiam li komencis kuradi tra la ĉambro, serĉante en ĉiuj tirkestoj, en ĉiuj rezervujoj por trovi iom da pano, eĉ se nur sekan krusteton de ĝi, oston postlasitan de hundo, iom da ŝima polento, fiŝosteton, kernon de ĉerizo, mallonge ĉion ajn por maĉi: sed li trovis nenion, grandan nenion, plejan nulon.
 
-LA AVENTUROJ DE PINOKJO
-
-
-rizo, mallonge ĉion ajn por maĉi: sed li trovis nenion, grandan nenion, plejan nulon.
-
-Kaj dume lia malsato kreskis kaj ĉiam pli: la malfeli-
-
-ĉa Pinokjo trovis nenian mildiĝon krom oscedi: kaj li eligis oscedegojn tiel longajn, ke foje-foje lia buŝo tiriĝegis
+Kaj dume lia malsato kreskis kaj ĉiam pli: la malfeliĉa Pinokjo trovis nenian mildiĝon krom oscedi: kaj li eligis oscedegojn tiel longajn, ke foje-foje lia buŝo tiriĝegis
 
 ĝis la oreloj. Kaj post la oscedoj li kraĉis; kaj li sentis, ke la stomako elflugas tra la buŝo.
 
@@ -440,10 +364,7 @@ Ne eblas priskribi la ĝojon de la marioneto: necesas imagi ĝin. Kredante tion 
 
 —Kaj nun kiamaniere mi ĝin pretigu? ĉu fari el ĝi fritaĵon? … Ne, pli bone boligi ĝin en kaserolo! … Aŭ ĉu ĝi ne estus pli bongusta, se mi fritus ĝin en pato? Aŭ male, mi kuiros ĝin malmola por eltrinki ĝin. Ne, plej rapide estas friti ĝin en kaseroleto aŭ pato: mi havas tro grandan deziron ĝin manĝi!
 
-Dirite kaj farite: li metis paton sur la fajrujon, plenan de ardaĵoj: enverŝis anstataŭ oleo aŭ butero iom da 21
-
-
-LA AVENTUROJ DE PINOKJO
+Dirite kaj farite: li metis paton sur la fajrujon, plenan de ardaĵoj: enverŝis anstataŭ oleo aŭ butero iom da
 
 
 akvo; kaj kiam la akvo komencis vaporiĝi, tak! … li rompis la ŝelon de la ovo, kaj jamis ĝin enverŝi.
@@ -455,17 +376,11 @@ Sed anstataŭ blanko kaj flavo, salte eloviĝis kokido tre vigla kaj ĝentila, k
 Dirinte tion, ĝi disetendis la flugilojn, flugis sur la fe-nestron, ĝuste malfermitan, kaj malaperis tra ĝi el la vido.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 La malfeliĉa knabo Pinokjo restis senmova kiel roko, kun okuloj fiksitaj, buŝo malfermita kaj ovoŝeloj en la manoj. Rekonsciiĝinte cetere de la unua konsterno li ekploris, ŝrikis, piedbatis la plankon pro senesperiĝo, kaj diris inter larmoj:
 
 —Jen, la Parolanta Grilo pravis! Se mi ne estus forkurinta el la hejmo, kaj se mia paĉjo estus ĉi tie, nun mi ne estus mortonta pro malsato! Ho, kiel aĉa malsano estas la malsato!
 
 Kaj ĉar la stomako daŭre murmuris al li, eĉ pli ol iam, kaj li ne sciis, kiel mildigi ĝin, li decidis eliri kaj fari eks-kurson al la najbara vilaĝo, ĉar li esperis trovi bonkoru-lon, kiu regalos lin per iom da pano.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 6 Pinokjo ekdormas kun piedoj sur braĝujo, kaj la sekvan matenon vekiĝas kun tute forbrulintaj piedoj Furiozis ĝuste vintra noktaĉo. Tondris tamburege, kaj fulmis kvazaŭ incendio glutus la ĉielon, kaj malvar-ma, ŝira ventaĉo fajfis furioze, kaj levis senfinan polvo-nubon, sibligis kaj grincigis ĉiujn arbojn de la kamparo.
@@ -478,10 +393,7 @@ Pinokjo, kaptita de malespero kaj malsato, pendigis sin tutforte sur la ŝnuro d
 
 —Iu certe elmetos la kapon.
 
-Vere aperis maljunuleto kun noktoĉapo sur la kapo, kaj tre kolere malsuprenkriis al li: 24
-
-
-LA AVENTUROJ DE PINOKJO
+Vere aperis maljunuleto kun noktoĉapo sur la kapo, kaj tre kolere malsuprenkriis al li:
 
 
 —Kion vi volas en tia horo?
@@ -492,18 +404,13 @@ LA AVENTUROJ DE PINOKJO
 
 ĝeni honestajn civitanojn.
 
-Post duonminuto la fenestro remalfermiĝis, kaj li aŭ-
-
-dis la voĉon de la maljunulo:
+Post duonminuto la fenestro remalfermiĝis, kaj li aŭdis la voĉon de la maljunulo:
 
 —Substarigu vin, kaj etendu la ĉapelon!
 
 Pinokjo, kiu ankoraŭ ne havis ĉapelon, paŝis pli proksimen, kaj subite sentis sin inundiĝi per sitelego da rub-akvo, kiu malsekigis lin de la kapo ĝis la plandoj, kvazaŭ li estus florpoto de sekega geranio.
 
 Li hejmeniris, malseka ĝishaŭte kaj duonmorta pro laco kaj malsato: kaj ĉar li malhavis forton eĉ por sin rektigi, li sidiĝis, metis la malsekajn kaj kotŝmiritajn piedojn sur braĝujon plenan de ardaĵo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Kaj li ekdormis kaj dum la dormado liaj piedoj, kiuj estis el ligno, ekbrulis, kaj iom post iom karbiĝis, cin-driĝis.
@@ -515,9 +422,6 @@ Kaj Pinokjo daŭre nur dormis, eĉ ronkis, kvazaŭ liaj piedoj estus tiuj de iu 
 —Estas mi, — respondis voĉo.
 
 La voĉo estis tiu de epeto.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 7 epeto revenas hejmen kaj la kompatindulo donas sian kunportitan matenmanĝeton al la marioneto La malfeliĉa Pinokjo, kies okulojn la sonĝo ankoraŭ vualis, ne rimarkis la piedojn, kiuj senreste forbrulis; kaj tial apenaŭ li ekaŭdis la voĉon de sia paĉjo, li eksaltis de sur la tabureto por fortiri la riglilon; sed anstataŭ tio, post du aŭ tri stumbloj li falsterniĝis sur la planko.
@@ -539,9 +443,6 @@ Kaj falante sur la plankon li faris bruon, kvazaŭ sako da kuleroj pluvus de sur
 —Malfermu, mi diras, — ripetis epeto, — ĉar se ne, mi amare memorigos al vi tiun katon.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Mi ne povas stariĝi, kredu min! Oj, mi malfeliĉulo, oj mi malfeliĉulo! Mi devos iri surgenue dum mia tuta vivo! …
 
 Kredante, ke tiuj lamentoj estas nur plia bubaĵo de la marioneto, epeto pensis fini kun ĝi rapide, kaj li grimpis sur la muron kaj paŝis en la domon tra la fenestro.
@@ -552,13 +453,7 @@ Komence li volis fari, kion li decidis, sed kiam li vidis sian Pinokjon kuŝi su
 
 —Mi ne scias, paĉjo, sed kredu, ke tio estis infera nokto kaj mi memoros ĝin, dum mi vivos. Tondris, fulmis, kaj mi estis tre malsata, kaj tiam la Parolanta Grilo diris al mi: ”Bone tiel, vi estis malbona, vi meritas tion”, kaj mi respondis al li: ”Atentu, Grilo! … ”, kaj li diris al mi: ”Vi estas marioneto, vi havas lignokapon”, kaj mi ĵetis lignan martelon kontraŭ lin, kaj li mortis, sed tio estis lia kulpo, ĉar mi ne volis mortigi lin, kion pruvas, ke mi metis kaserolon sur la fajron, sed la kokido elflugis kaj diris:
 
-”ĝis revido … transdonu miajn salutojn al la hejmanoj”, kaj la malsato ĉiam pliiĝis, pro kio tiu maljunulo en noktoĉapo elmetis la kapon tra la fenestro kaj diris: ”Substarigu vin kaj etendu la ĉapelon”, kaj mi ricevis tiun site-legon da akvo sur la kapon, peto de pano ja ne estas honto, ĉu ne? Mi tuj reiris hejmen, kaj ĉar mi daŭre havis grandan malsaton, mi metis la piedojn sur la bra-28
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-ĝujon por sekigi ilin, kaj vi revenis, kaj mi trovis ilin forbrulintaj, kaj dume mi daŭre havas malsategon, kaj mal-havas piedojn! Ih! … ih! … ih! … ih!
+”ĝis revido … transdonu miajn salutojn al la hejmanoj”, kaj la malsato ĉiam pliiĝis, pro kio tiu maljunulo en noktoĉapo elmetis la kapon tra la fenestro kaj diris: ”Substarigu vin kaj etendu la ĉapelon”, kaj mi ricevis tiun site-legon da akvo sur la kapon, peto de pano ja ne estas honto, ĉu ne? Mi tuj reiris hejmen, kaj ĉar mi daŭre havis grandan malsaton, mi metis la piedojn sur la braĝujon por sekigi ilin, kaj vi revenis, kaj mi trovis ilin forbrulintaj, kaj dume mi daŭre havas malsategon, kaj mal-havas piedojn! Ih! … ih! … ih! … ih!
 
 Kaj la malfeliĉa Pinokjo komencis plori kaj bleki tiel forte, ke oni aŭdis lin el kvinkilometra distanco.
 
@@ -567,9 +462,6 @@ epeto, kiu komprenis el tiu konfuza rakonto nur unu aferon, ke la marioneto sent
 —ĉi tri pirojn mi ricevis por matenmanĝo: sed mi donos ilin volonte al vi. Manĝu ilin, ili servu je via sano!
 
 —Se vi volas, ke mi manĝu, bonvolu ilin senŝeligi.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉu senŝeligi? — miris epeto. — Neniam mi kredus, filo mia, ke vi estas tiel elektema kaj delikatbuŝa. En ĉi tiu mondo oni devas alkutimi manĝi ĉion, kaj ankaŭ knabetoj, ĉar oni ne povas scii, kio restos al ni. ĉio povas okazi!
@@ -595,25 +487,17 @@ Kiam Pinokjo formanĝis, pli precize glutegis la tri pirojn, oscedis longege kaj
 —Sed, fileto mia, mi havas nenion por doni al vi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —ĉu vere nenion? Absolute nenion?
 
 —Se ne paroli pri ĉi tiuj stumpoj kaj ŝeloj.
 
 —Nu, kion fari, — konsentis Pinokjo, — se ne troviĝas io alia, unu ŝelon mi povas manĝi.
 
-Kaj li komencis maĉaĉi ĝin. Unue li iom fortiris la bu-
-
-ŝon, sed dum spireto li malaperigis ĉiujn ŝelojn, poste ankaŭ la stumpojn, kaj kiam li manĝis ĉion, kontente li palpis sian ventron kaj diris ĝoje-gaje:
+Kaj li komencis maĉaĉi ĝin. Unue li iom fortiris la buŝon, sed dum spireto li malaperigis ĉiujn ŝelojn, poste ankaŭ la stumpojn, kaj kiam li manĝis ĉion, kontente li palpis sian ventron kaj diris ĝoje-gaje:
 
 —Jen, fine mi sentas min bone!
 
 —ĉu vi nun vidas, — rimarkigis epeto, — ke mi pravis, kiam mi diris, ke oni ne estu tro elektema, nek tro delikatbuŝa. Kara mia, oni ne scias, kio restas al ni en ĉi tiu mondo. Ja ĉio povas okazi!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 8 epeto refaras la piedojn al Pinokjo, kaj vendas sian mantelon por aĉeti al li abocolibron
@@ -632,12 +516,7 @@ ke ekde nun mi reboniĝos …
 
 —Sed mi ne estas kiel la ceteraj infanoj! Mi estas pli bona ol ĉiuj, kaj ĉiam diras nur la veron. Mi promesas al vi, paĉjo, ke mi ellernos metion, kaj estos via konsolo kaj apogo dum via maljuneco.
 
-Kvankam epeto montris sin nefleksebla, pleniĝis liaj okuloj de larmoj, kaj lia granda koro de kompato, kiam li vidis la malfeliĉan Pinokjon en tiel mizera stato, li re-32
-
-LA AVENTUROJ DE PINOKJO
-
-
-spondis nenion: sed prenis instrumentojn plus du rek-tajn lignopecetojn, kaj metis sin al laboro kun fervoro plej granda.
+Kvankam epeto montris sin nefleksebla, pleniĝis liaj okuloj de larmoj, kaj lia granda koro de kompato, kiam li vidis la malfeliĉan Pinokjon en tiel mizera stato, li respondis nenion: sed prenis instrumentojn plus du rek-tajn lignopecetojn, kaj metis sin al laboro kun fervoro plej granda.
 
 Post horeto la piedoj komplete pretis, du piedoj svel-taj, belformaj, plenaj de vivo, kvazaŭ modelitaj de genia artisto.
 
@@ -662,9 +541,6 @@ Pinokjo tuj kuris rigardi sin en la akvo de sitelo, kaj fariĝis tiel kontenta, 
 —Mi aspektas kvazaŭ sinjoro!
 
 —Vere, — atentigis epeto, — tamen tenu en la menso: valoras ne la vesto, sed la enesto.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Tio igas min memori, — aldonis la marioneto, — ke io ankoraŭ mankas al mi por iri en lernejon, io plej grava kaj necesa.
@@ -698,9 +574,6 @@ Kaj Pinokjo, kvankam li estis laŭnature gaja infano, same senesperiĝis: ĉar m
 Pinokjo flugrapide komprenis tiun respondon, kaj ne povis bremsi la impeton de sia bona koro, saltis sur la kolon de epeto, kaj kovris lian vizaĝon per miloj da kisoj.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 9 Pinokjo vendas la abocolibron por viziti pupteatron
 
 Apenaŭ ĉesis neĝi, Pinokjo ekiris kun sia nova, bela abocolibro sub la brako sur la vojo al la lernejo.
@@ -713,9 +586,7 @@ Tute oran kaj arĝentan mi farigos al li, kun briliantaj butonoj. Ja tiu kompati
 
 Dum tiel kortuŝite li parolis en si, ŝajnis al li aŭdi de malproksime flaĝoletan muzikon kaj tamburfrapojn: pi-pi-pi, pi-pi-pi, bum-bum-bum.
 
-Li haltis, streĉe ekaŭskultis. La sonoj venis el fundo de 35
-
-LA AVENTUROJ DE PINOKJO
+Li haltis, streĉe ekaŭskultis. La sonoj venis el fundo de
 
 
 longega krucostrato, kiu kondukis al malgranda vilaĝeto sur la marbordo.
@@ -743,9 +614,6 @@ Kaj jen, subite li trovis sin meze de placo plena de homoj, kiuj tumultis ĉirka
 —Nun ĝi komenciĝas.
 
 —Kaj kiom kostas bileto?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Kvar groŝojn.
@@ -780,15 +648,7 @@ Fine li elbuŝigis:
 
 —Por kvar groŝoj mi aĉetos la abocolibron, — proponis brokantisto de vestoj, kiu kunaŭdis la konversacion.
 
-Kaj la libro vendiĝis pli frue ol direble. Eĉ pensi teru-37
-
-LA AVENTUROJ DE PINOKJO
-
-
-re: tiu kompatinda homo epeto restis hejme, tremante pro frosto en nura ĉemizo, nur ĉar li aĉetis abocolibron al sia filo!
-
-
-LA AVENTUROJ DE PINOKJO
+Kaj la libro vendiĝis pli frue ol direble. Eĉ pensi terure: tiu kompatinda homo epeto restis hejme, tremante pro frosto en nura ĉemizo, nur ĉar li aĉetis abocolibron al sia filo!
 
 
 10 La marionetoj rekonas sian fraton Pinokjo, kaj aranĝas por li grandiozan feston, sed ĝuste kiam estas plej amuze, aperas la teatrestro. Fajromanĝulo kaj Pinokjo riskas havi aĉan finon Kiam Pinokjo paŝis en la pupteatron, okazis io, kio sekvigis preskaŭ revolucion.
@@ -799,9 +659,7 @@ Sur la scenejo vidiĝis Arlekeno kaj Pulĉinelo, kiuj ĝuste kverelis unu kun la
 
 La publiko tre atentis kaj skuiĝis de ridegoj aŭskultan-te la akran kvereladon de la du marionetoj, kiuj gestadis kaj traktis unu la alian per insultoj tiel versimile, kvazaŭ ili estus du raciaj estaĵoj, similaj al ni.
 
-Kaj tiam neatendite, pro ia aŭ alia kaŭzo, Arlekeno ĉesis reciti, kaj turnis sin al la publiko, montris al iu en la fundo de la spektejo, kaj ekkriis kun drameca voĉo: 39
-
-LA AVENTUROJ DE PINOKJO
+Kaj tiam neatendite, pro ia aŭ alia kaŭzo, Arlekeno ĉesis reciti, kaj turnis sin al la publiko, montris al iu en la fundo de la spektejo, kaj ekkriis kun drameca voĉo:
 
 
 —Je ĉiuj dioj! ĉu mi sonĝas aŭ maldormas? ĉu tie malsupre mi vidas Pinokjon?
@@ -828,18 +686,12 @@ La spektaklo estis emociiga, sendube: sed la publiko, kiu vidis, ke la komedio n
 
 Vane oni uzis la buŝojn: ĉar la marionetoj, anstataŭ daŭrigi la prezentadon, duobligis la vokojn kaj jubilojn, kaj levinte Pinokjon sur la ŝultron, portis lin triumfire en la lumon de la antaŭscenejo.
 
-En tiu momento eliris la marionetisto, homo tiel malbela, ke eĉ rigardeto al li elvokis teruron. Li havis peĉe 40
-
-
-LA AVENTUROJ DE PINOKJO
+En tiu momento eliris la marionetisto, homo tiel malbela, ke eĉ rigardeto al li elvokis teruron. Li havis peĉe
 
 
 nigran barbon, tiel longan, ke ĝi torentis de la mentono
 
 ĝis la tero: sufiĉas diri, ke kiam li marŝis, daŭre-ade li tretis ĝin per la piedoj. Lia buŝo larĝis kiel aperturo de forno, liaj okuloj ŝajnis lanternoj kun ruĝaj vitroj kaj fla-manta fajro ene, kaj per la mano li klakigis vipon, kun-plektitan el serpentoj kaj vulpovostoj.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 ĉe lia apero haltis en ĉiuj la spiro. Oni povis aŭdi muŝoflugon. Tiuj malfeliĉaj marionetoj, inaj kaj viraj, tremis kiel folioj de arboj.
@@ -859,9 +711,6 @@ Arlekeno kaj Pulĉinelo komence hezitis, sed terurite de oblikva alrigardaĉo de
 —Paĉjo mia, savu min! Mi ne volas morti, mi ne volas morti!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 11 Fajromanĝulo ternas kaj indulgas Pinokjon, kiu siavice savas sian amikon Arlekenon de la morto
 
 La marionetisto Fajromanĝulo (ĉar tiel oni nomis lin) aspektis terure, mi ne kuraĝus aserti malon, ĉefe pro sia nigra barbaĉo, kiu, kiel antaŭtuko, plene kovris lian bruston; tamen vere kaj fakte li ne estis malbonulo. Kion pruvas ankaŭ, ke kiam li vidis alporti tiun malfeliĉan Pinokjon, kiu baraktis en ĉiuj direktoj kaj kriadis ”Mi ne volas morti, mi ne volas morti!”, li subite komencis kortuŝiĝi kaj mildiĝi, kaj post momento da rezistado, li ne povis plu, kaj ellasis sonoran ternegon.
@@ -871,9 +720,6 @@ Je tiu terno la vizaĝo de Arlekeno, ĝis tiam afliktita kaj malĝoja kiel plors
 —Bona novaĵo, frateto. La marionetisto ternis, kio estas signo, ke lin kaptis kompato, vi do estas savita.
 
 Necesas ja scii, ke dum iuj homoj, sentante kompaton al iu aŭ ploras aŭ almenaŭ ŝajnigas viŝi la larmojn, Fajromanĝulo agis male: ĉiufoje, kiam li profunde emociiĝis, li ekhavis la strangan emon terni.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Tio estis la kutima maniero, montri la sentemon de lia koro.
@@ -905,9 +751,6 @@ Pene spirante la marionetisto ordonis al ili:
 —Kaptu al mi Arlekenon, zorge ligu kaj ĵetu lin sur la fajron. Mi volas, ke mia ŝafaĵo bone trarostiĝu.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Imagu la malfeliĉan Arlekenon! Lin kaptis tia teruro, ke la gamboj fleksiĝis al li, kaj li falis kun vizaĝo sur la teron.
 
 Vidante tiun korŝiran scenon, Pinokjo ĵetis sin antaŭ la piedojn de la marionetisto, torente ekploris, banis per larmoj ĉiujn harojn de la longega barbo de la marionetisto, kaj komencis petegi lin kun humila voĉo:
@@ -921,9 +764,6 @@ Vidante tiun korŝiran scenon, Pinokjo ĵetis sin antaŭ la piedojn de la marion
 —ĉi tie ne estas kavaliroj!
 
 —Indulgon, sinjoro Komandanto!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉi tie ne estas komandantoj!
@@ -949,9 +789,6 @@ Fajromanĝulo restis komence malmola kaj neŝancele-bla kiel roko, sed post mome
 Pinokjo tuj alkuris, kaj grimpante sciure tra la barbo de la marionetisto, metis belegan kison sur lian nazopinton.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —ĉu mi estas indulgita? — demandis la kompatinda Arlekeno kun voĉeto apenaŭ aŭdebla.
 
 —Vi estas indulgita! — respondis Fajromanĝulo: poste aldonis suspirante kaj balancante la kapon: — En ordo!
@@ -959,9 +796,6 @@ LA AVENTUROJ DE PINOKJO
 ĉi tiun vesperon mi rezignas kaj manĝos duonkrudan ŝafon, sed alian fojon ve al tiu, kiu kolerigos min!
 
 Sciiĝinte pri la indulgo, ĉiuj marionetoj elkuris sur la scenejon, bruligis lampojn kaj lampionojn, kiel en festa vespero, kaj komencis saltadi, dancadi. Venis matenkre-pusko, ili ankoraŭ ne ĉesis.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 12 Fajromanĝulo donacas kvin orajn monerojn al Pinokjo, por ke li portu ilin al sia paĉjo epeto; sed anstataŭe, Pinokjo lasas sin superruzi de la Vulpo kaj Kato, kaj foriras kun ili La sekvan tagon Fajromanĝulo flankenvokis Pinokjon, kaj demandis lin:
@@ -980,10 +814,7 @@ LA AVENTUROJ DE PINOKJO
 
 —Kompatinda mizerulo! Li preskaŭ igas mmpati lin. Jen kvin oraj moneroj. Ekiru tuj, portu ilin al li, kaj salutu lin en mia nomo.
 
-Pinokjo, oni povas facile imagi, multfoje dankis la ma-rionetiston, brakumis ĉiujn marionetojn de la trupo unu 48
-
-
-LA AVENTUROJ DE PINOKJO
+Pinokjo, oni povas facile imagi, multfoje dankis la ma-rionetiston, brakumis ĉiujn marionetojn de la trupo unu
 
 
 post alia, ankaŭ la ĝendarmojn, kaj ekster si pro la ĝojo, li ekiris al sia hejmo.
@@ -999,9 +830,6 @@ Sed li ankoraŭ ne postlasis duonkilometron, kiam sur la vojo li renkontiĝis ku
 —Mi bone konas vian patron.
 
 —Kie vi lin vidis?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Hieraŭ mi vidis lin antaŭ lia domo.
@@ -1020,22 +848,15 @@ LA AVENTUROJ DE PINOKJO
 
 —Vi ridas sen kialo, — kriis Pinokjo ofendite. — Mi vere bedaŭras, ke mi devas kunfluigi la salivon en via buŝo, sed jen vidu, se vi komprenas pri la afero: kvin plej belaj oraj moneroj.
 
-Kaj li elpoŝigis la monerojn, donacitajn de Fajroman-
-
-ĝulo.
+Kaj li elpoŝigis la monerojn, donacitajn de Fajromanĝulo.
 
 Je la simpatia tintado de la moneroj, la Vulpo, per kontraŭvola movo, alŝovis la piedon ŝajne paralizitan, kaj la Kato malfermegis ambaŭ okulojn, similajn al du verdaj lanternoj, sed poste li tuj refermis ilin, tiel ke Pinokjo rimarkis nenion.
 
 —Kaj nun, — demandis lin la Vulpo, — kion vi volas fari kun tiuj moneroj?
 
-—Antaŭ ĉio, — respondis la marioneto, — mi volas aĉeti al mia paĉjo belan novan mantelon el oro kaj ar-
-
-ĝento kaj butonoj el brilianto: poste mi volas aĉeti abocolibron al mi.
+—Antaŭ ĉio, — respondis la marioneto, — mi volas aĉeti al mia paĉjo belan novan mantelon el oro kaj arĝento kaj butonoj el brilianto: poste mi volas aĉeti abocolibron al mi.
 
 —Al vi?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Jes ja: mi volas iri en lernejon, kaj diligente lerni.
@@ -1069,9 +890,6 @@ Ili faris pli ol la duonon de la vojo, kiam la Vulpo subite haltis, kaj demandis
 —La maniero estas simplega. Anstataŭ reiri hejmen, vi devus veni kun ni.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Kaj kien vi volas konduki min?
 
 —En la landon Azenio.
@@ -1098,9 +916,7 @@ Pinokjo iom enpensiĝis, poste diris decideme:
 
 —Tuj mi al vi klarigos, — diris la Vulpo. — Oni devas scii, ke en la lando Azenio troviĝas benita kampo, nomata de ĉiuj Kampo de Mirakloj. Vi fosos malgrandan truon sur tiu kampo, kaj enmetos ekzemple unu zekinon.
 
-Poste vi kovros la truon per ioma tero: priŝprucigos ĝin per du siteloj da fontakvo, surŝutos pinĉon da salo, kaj 52
-
-LA AVENTUROJ DE PINOKJO
+Poste vi kovros la truon per ioma tero: priŝprucigos ĝin per du siteloj da fontakvo, surŝutos pinĉon da salo, kaj
 
 
 vespere vi iros trankvile dormi. Dume, nokte la zekino ekĝermos kaj ekfloros kaj la sekvan matenon, reirante ĉe sunapero al la kampo, kion vi trovos? Vi trovos belan arbon, kovre plenan de tiom da oraj zekinoj, kiom matura spiko havas grajnojn en junio.
@@ -1126,9 +942,6 @@ vespere vi iros trankvile dormi. Dume, nokte la zekino ekĝermos kaj ekfloros ka
 —Do ek, ni iru ! Mi sekvas vin.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 13 La gastejo ”La Ruĝa Krabo”
 
 Ili marŝis, marŝadis, kaj fine ĉe vesper-krepusko, morte lacaj, ili venis al la gastejo ”La Ruĝa Krabo”.
@@ -1137,36 +950,24 @@ Ili marŝis, marŝadis, kaj fine ĉe vesper-krepusko, morte lacaj, ili venis al 
 
 Enirinte la gastejon, ili ĉiuj sidiĝis al tablo, sed neniu el ili havis apetiton.
 
-La malfeliĉa Kato, sentante la stomakon difektita, povis manĝi nenion alian, nur tridekkvin triglojn en tomata saŭceto kaj kvar porciojn da tripoj kun Parma fromaĝeto: kaj ĉar la tripoj ne ŝajnis al li sufiĉe kondimen-titaj, trifoje li portigis al si buteron kaj raspitan froma-
-
-ĝon.
+La malfeliĉa Kato, sentante la stomakon difektita, povis manĝi nenion alian, nur tridekkvin triglojn en tomata saŭceto kaj kvar porciojn da tripoj kun Parma fromaĝeto: kaj ĉar la tripoj ne ŝajnis al li sufiĉe kondimen-titaj, trifoje li portigis al si buteron kaj raspitan fromaĝon.
 
 Ankaŭ la Vulpo volonte senplumigus ion: sed ĉar la kuracisto preskribis al li severan dieton, li devis kontentiĝi per unu simpla leporo kun plej malpeza garnaĵeto el grasigitaj koketoj kaj virkokoj same junaj.
 
 Post la leporaĵo li mendis,— por revigligi la apetiton —
 
-frikasaĵon el perdrikoj, kunikloj, ranoj, lacertoj kaj para-54
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-dizaj vinberoj; plue li volis nenion alian. Li tiel naŭziĝis de la nutraĵo, li diris, ke li povis meti nenion en la buŝon.
+frikasaĵon el perdrikoj, kunikloj, ranoj, lacertoj kaj paradizaj vinberoj; plue li volis nenion alian. Li tiel naŭziĝis de la nutraĵo, li diris, ke li povis meti nenion en la buŝon.
 
 Kiu plej malmulte manĝis, estis Pinokjo. Li mendis unu kvaronnukson kaj unu panangulon, kaj lasis ĉion sur la telero. La malfeliĉan fileton, kiu kun siaj pensoj restadis daŭre sur la Kampo de Mirakloj, trafis antaŭa misdigesto pro la oraj moneroj.
 
 Kiam ili finis la vespermanĝon, la Vulpo diris al la gastejestro:
 
-—Donu al ni du bonajn ĉambrojn, unu por sinjoro 55
-
-LA AVENTUROJ DE PINOKJO
+—Donu al ni du bonajn ĉambrojn, unu por sinjoro
 
 
 Pinokjo kaj unu por mi kaj mia kamarado. Antaŭ ol ekiri, ni bezonas dormeton. Sed ne forgesu veki nin noktomeze, ĉar ni volas daŭrigi la vojaĝon.
 
-—Jes, sinjoroj, — respondis la gastejestro kaj okulumis al la Vulpo kaj Kato kvazaŭ dirante: ”Mi scias, kion vi volas diri, ni bone komprenas unu la alian.” Enlitiĝinte Pinokjo ekdormis dum palpebrumeto kaj komencis son-
-
-ĝi. Kaj sonĝante ŝajnis al li troviĝi meze de kampo: kaj tiu kampo plenis de arbetoj, ŝarĝitaj de grapoloj, kaj tiuj plenplenis de oraj zekinoj, kaj kiam la vento balancis ilin, aŭdiĝis tin, tin tin, kvazaŭ ili volus diri: ”Kiu volas nin, venu preni nin!” Sed ĝuste kiam Pinokjo etendis la manon por pluki manplenon da tiuj belaj moneroj kaj enpoŝigi ilin, li abrupte vekiĝis pro tri potencaj frapoj sur la pordo de sia ĉambro.
+—Jes, sinjoroj, — respondis la gastejestro kaj okulumis al la Vulpo kaj Kato kvazaŭ dirante: ”Mi scias, kion vi volas diri, ni bone komprenas unu la alian.” Enlitiĝinte Pinokjo ekdormis dum palpebrumeto kaj komencis sonĝi. Kaj sonĝante ŝajnis al li troviĝi meze de kampo: kaj tiu kampo plenis de arbetoj, ŝarĝitaj de grapoloj, kaj tiuj plenplenis de oraj zekinoj, kaj kiam la vento balancis ilin, aŭdiĝis tin, tin tin, kvazaŭ ili volus diri: ”Kiu volas nin, venu preni nin!” Sed ĝuste kiam Pinokjo etendis la manon por pluki manplenon da tiuj belaj moneroj kaj enpoŝigi ilin, li abrupte vekiĝis pro tri potencaj frapoj sur la pordo de sia ĉambro.
 
 Venis la gastejestro por diri al li, ke la horloĝo sonoris je noktomezo.
 
@@ -1181,9 +982,6 @@ Venis la gastejestro por diri al li, ke la horloĝo sonoris je noktomezo.
 —Kaj ĉu ili pagis la vespermanĝon?
 
 —Kiel vi pensas? Ili estas tro bone edukitaj por tiel ofendi vian moŝton.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Domaĝe! Tia ofendo tre plaĉus al mi! — diris Pinokjo gratante al si la kapon.
@@ -1205,9 +1003,6 @@ Sed oni povas diri, ke li iris palpe, ĉar ekster la gastejo estis tiel mallume,
 —Kion vi volas de mi? — demandis la marioneto.
 
 —Mi volas doni al vi konsilon. Returnu vin, kaj portu la restintajn kvar zekinojn al via malfeliĉa patro, kiu ploras kaj perdas la esperon pro tio, ke li vin ne plu vidas.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Morgaŭ mia paĉjo fariĝos granda sinjoro, ĉar ĉi kvar zekinoj pliobliĝos al dumil.
@@ -1237,9 +1032,6 @@ LA AVENTUROJ DE PINOKJO
 Apenaŭ li elparolis ĉi tiujn lastajn vortojn, la Parolanta Grilo subite estingiĝis, kiel priblovita kandelo, kaj la vojo restis pli malluma ol antaŭe.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 14 Pinokjo, ĉar li ne obeis la bonajn konsilojn de la Parolanta Grilo, trafas banditojn
 
 Vere, — diris al si la marioneto, daŭrigante sian vojon, — kiel malfeliĉaj ni estas, kompatindaj knaboj.
@@ -1250,10 +1042,7 @@ Bone, ke mi ne kredas pri murdistoj, kaj neniam mi kredis. Laŭ mi la murdistojn
 
 Eĉ en sonĝo ne! Mi irus renkonte al ili kriante: ”Sinjoroj murdistoj, kion vi volas de mi? Amare pentos, kiu ŝercas kun mi! Foriru do por viaj aferoj, kaj eĉ vorton ne plu!”
 
-Je ĉi tiu serioza paroladeto, ŝajnas al mi, tiuj malfeliĉaj murdistoj forportus sin kiel vento. Kaj se ili estus tiel 59
-
-
-LA AVENTUROJ DE PINOKJO
+Je ĉi tiu serioza paroladeto, ŝajnas al mi, tiuj malfeliĉaj murdistoj forportus sin kiel vento. Kaj se ili estus tiel
 
 
 malbone edukitaj, ke ili ne volus forkuri, tiam forkurus mi, kaj tiel mi metus finon al la afero …
@@ -1264,15 +1053,11 @@ Li turnis sin por rigardi, kaj en la mallumo li ekvidis du nigrajn figuraĉojn t
 
 —Jen ili fakte! — li flustris al si, kaj ne sciante, kien kaŝi siajn kvar zekinojn, li metis ilin en la buŝon, sub la langon.
 
-Poste li provis forkuri. Sed antaŭ ol fari la unuan pa-
-
-ŝon, li jam sentis siajn brakojn kaptitaj, kaj aŭdis du terurajn voĉojn ordonantajn:
+Poste li provis forkuri. Sed antaŭ ol fari la unuan paŝon, li jam sentis siajn brakojn kaptitaj, kaj aŭdis du terurajn voĉojn ordonantajn:
 
 —Monon aŭ vivon!
 
-Ne povante respondi pro la moneroj en la buŝo, Pinokjo faris mil klinojn kaj mienojn por komprenigi al tiuj du envolvitoj, de kiuj vidiĝis nur la okuloj tra la truoj 60
-
-LA AVENTUROJ DE PINOKJO
+Ne povante respondi pro la moneroj en la buŝo, Pinokjo faris mil klinojn kaj mienojn por komprenigi al tiuj du envolvitoj, de kiuj vidiĝis nur la okuloj tra la truoj
 
 
 de la sakoj, ke li estas malriĉa marioneto, kaj eĉ groŝo falsa ne troviĝas en lia poŝo.
@@ -1304,9 +1089,6 @@ Tiam la pli malalta bandito eltiris tranĉilegon, kaj provis ĝin perforte premi
 ĝi estus ĉizilo aŭ levilo: sed tiu fulmorapide kaptis lian manon per la dentoj, kaj demordis, poste elkraĉis ĝin.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Kaj imagu lian miron, kiam li rimarkis, ke anstataŭ ma-no li elkraĉis katpiedon.
 
 Kuraĝigita de ĉi unua venko, Pinokjo liberigis sin perforte el la ungoj de la banditoj, transsaltis la arbetojn sur la vojrando, kaj ĵetis sin kure tra la kampoj. Kaj la banditoj ĉiam sekve al li, kiel du hundoj post leporo: kaj tiu, kiu perdis unu piedon, kuris per unu gambo, oni ne scias, kiamaniere.
@@ -1317,10 +1099,7 @@ Sed ili ne konsideris sin venkitaj: sed kolektis faskon da sekaj branĉoj sub la
 
 Vidante, ke la flamoj ĉiam pli altiĝas, kaj ne volante fini kiel rostita kolombo, Pinokjo puŝis sin per saltego de sur la arbo, kaj ree li ekkuregis tra kampoj kaj valoj. Kaj la banditoj ek, post li, ĉiam poste, sen plej eta signo de laciĝo.
 
-Dume komencis tagiĝi, kaj ili daŭre kuris; kiam Pinokjo trovis subite la vojon barita de larĝa kaj profundega fosaĵo, plenplena de malpura akvaĉo simila al kafolakto. Kion fari? ”Unu, du, tri!” — kriis la marioneto, ekpuŝis sin kun granda elano, kaj transsaltis sur la alian 62
-
-
-LA AVENTUROJ DE PINOKJO
+Dume komencis tagiĝi, kaj ili daŭre kuris; kiam Pinokjo trovis subite la vojon barita de larĝa kaj profundega fosaĵo, plenplena de malpura akvaĉo simila al kafolakto. Kion fari? ”Unu, du, tri!” — kriis la marioneto, ekpuŝis sin kun granda elano, kaj transsaltis sur la alian
 
 
 flankon. Kaj ankaŭ la murdistoj postsaltis, sed ne bone prenis la mezuron, pum! … ili falis en la mezon de la fosaĵo. Pinokjo, kiu aŭdis la falbruon kaj la akvoŝpru-cojn, ekkriis ridante kaj plukurante:
@@ -1328,9 +1107,6 @@ flankon. Kaj ankaŭ la murdistoj postsaltis, sed ne bone prenis la mezuron, pum!
 —Bonan baniĝon, sinjoroj murdistoj!
 
 Kaj li jam imagis, ke ili estas bele dronintaj, kiam li returnis sin por rigardi, kaj rimarkis, ke anstataŭ tio ili ambaŭ kuras post li, envolvitaj en siaj sakoj kaj gutegan-taj kiel du senfundaj korboj.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 15 La banditoj persekutas Pinokjon kaj atinginte, pendigas lin sur branĉon de la Granda Kverko
@@ -1349,11 +1125,7 @@ Li ree frapis, pli forte, ĉar li aŭdis proksimiĝi paŝo-bruojn kaj la penan s
 
 Denove silento.
 
-Vidante, ke la frapado neniel utilas, en sia senesperi-
-
-ĝo li komencis piedbatadi, puŝadi la pordon. Tiam aperis en la fenestro bela knabino kun blua hararo kaj vizaĝo blanka kiel eburo, fermitaj okuloj kaj manoj krucigitaj 64
-
-LA AVENTUROJ DE PINOKJO
+Vidante, ke la frapado neniel utilas, en sia senesperiĝo li komencis piedbatadi, puŝadi la pordon. Tiam aperis en la fenestro bela knabino kun blua hararo kaj vizaĝo blanka kiel eburo, fermitaj okuloj kaj manoj krucigitaj
 
 
 sur la brusto, kaj apenaŭ movante la lipojn ŝi diris per voĉeto, kiu ŝajne venis el trans la mondo:
@@ -1376,21 +1148,13 @@ Li ne povis fini la vorton, li jam sentis sin kaptita ĉe la kolo, kaj aŭdis la
 
 —Nun vi ne forkuros de ni!
 
-La marioneton, kiu vidis ekfulmi la morton antaŭ siaj okuloj, kaptis tiel fortaj tremoj, ke pro la tremado aŭ-
-
-diĝis la kunigiloj de liaj lignogamboj kaj la kvar zekinoj, kiujn li tenis sub la lango.
+La marioneton, kiu vidis ekfulmi la morton antaŭ siaj okuloj, kaptis tiel fortaj tremoj, ke pro la tremado aŭdiĝis la kunigiloj de liaj lignogamboj kaj la kvar zekinoj, kiujn li tenis sub la lango.
 
 —Do? — demandis lin la murdistoj, — ĉu vi bonvolas malfermi la buŝon aŭ ne? Ha, vi ne respondas? … Ne zorgu: ĉi-foje malfermos ĝin ni anstataŭ vi!
 
 Kaj ili eltiris longajn, longegajn tranĉilojn, akrajn kiel razilo, kaj pum … puŝis ilin en la mezon de lia ventro.
 
-Sed feliĉe, la marioneto estis farita el plej malmola ligno, pro kio la klingoj dissaltis en mil pecojn, kaj la mur-65
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-distoj restis tie kun nuraj teniloj en la manoj. Ili mire gapis unu al la alia.
+Sed feliĉe, la marioneto estis farita el plej malmola ligno, pro kio la klingoj dissaltis en mil pecojn, kaj la murdistoj restis tie kun nuraj teniloj en la manoj. Ili mire gapis unu al la alia.
 
 —Mi komprenas, — diris tiam unu, — ni devas lin pendigi! Ni lin pendigu!
 
@@ -1399,12 +1163,7 @@ distoj restis tie kun nuraj teniloj en la manoj. Ili mire gapis unu al la alia.
 Dirite, farite: ili kunligis liajn manojn sur la dorso, kaj ŝovinte ŝnurmaŝon ĉirkaŭ lian kolon, pendigis lin sur branĉon de dika kverko, nomata la Granda Kverko.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
-Post tio ili sidiĝis sur la herbo, kaj atendis, ke la marioneto faru la lastan piedfrapon; sed post tri horoj la marioneto ankoraŭ tenis la okulojn malfermitaj, la bu-
-
-ŝon fermita, kaj piedbaraktis pli ol iam.
+Post tio ili sidiĝis sur la herbo, kaj atendis, ke la marioneto faru la lastan piedfrapon; sed post tri horoj la marioneto ankoraŭ tenis la okulojn malfermitaj, la buŝon fermita, kaj piedbaraktis pli ol iam.
 
 Fine ili tediĝis de tioma atendado, kaj turniĝinte al Pinokjo diris rikane:
 
@@ -1421,12 +1180,7 @@ Iom post iom liaj okuloj nebuliĝis; kaj kvankam li sentis proksimiĝi la morton
 Kaj li malhavis spiron por diri alion. Li fermis la okulojn, malfermis la buŝon, etendis la gambojn, kaj post skuiĝo li restis rigide senmova.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
-16 La bela Bluhara Knabino ordonas depreni la marioneton, metas lin en liton, kaj vokas tri kuracistojn por ekscii, ĉu li vivas aŭ mortis Dum la kompatinda Pinokjo, kiun la banditoj pendigis sur branĉon de la Granda Kverko, jam ŝajnis pli morta ol viva, la bela Bluhara Knabino denove aperis en la fenestro, kaj tuŝite de la vidaĵo de tiu malfeliĉu-lo, kiu pendigita ĉe la kolo balanciĝis laŭ la kapricoj de 68
-
-LA AVENTUROJ DE PINOKJO
+16 La bela Bluhara Knabino ordonas depreni la marioneton, metas lin en liton, kaj vokas tri kuracistojn por ekscii, ĉu li vivas aŭ mortis Dum la kompatinda Pinokjo, kiun la banditoj pendigis sur branĉon de la Granda Kverko, jam ŝajnis pli morta ol viva, la bela Bluhara Knabino denove aperis en la fenestro, kaj tuŝite de la vidaĵo de tiu malfeliĉu-lo, kiu pendigita ĉe la kolo balanciĝis laŭ la kapricoj de
 
 
 la nordaj ventoj, klakigis trifoje per la manoj kaj frape-tis trifoje.
@@ -1447,22 +1201,14 @@ La Falko forflugis, kaj post du minutoj revenis anon-cante:
 
 —Kaj kia vi trovis lin, ĉu viva aŭ morta?
 
-—ĉe la unua alrigardo li ŝajnis morta, sed li ne mortis komplete, ĉar apenaŭ mi malligis la nodon, kiu ĉir-kaŭpremis lian gorĝon, li ellasis suspiron kaj balbutis duonlaŭte: ”Nun mi pli bone fartas!” Tiam la Feino klakigis per la manoj, faris du frapetojn, je kio aperis pom-pa Barba Hundo, kiu marŝis sur la postaj piedoj, kvazaŭ li estus homo. Li havis sur la kapo trikornan ĉapelon kun ora galonaĵo, blankan perukon kun krispoj falantaj tute 69
-
-
-LA AVENTUROJ DE PINOKJO
+—ĉe la unua alrigardo li ŝajnis morta, sed li ne mortis komplete, ĉar apenaŭ mi malligis la nodon, kiu ĉir-kaŭpremis lian gorĝon, li ellasis suspiron kaj balbutis duonlaŭte: ”Nun mi pli bone fartas!” Tiam la Feino klakigis per la manoj, faris du frapetojn, je kio aperis pom-pa Barba Hundo, kiu marŝis sur la postaj piedoj, kvazaŭ li estus homo. Li havis sur la kapo trikornan ĉapelon kun ora galonaĵo, blankan perukon kun krispoj falantaj tute
 
 
 ĝis la kolo, ĉokoladkoloran jakon kun briliantaj butonoj kaj du grandaj poŝoj por la ostoj, kiujn la mastrino donis al li por matenmanĝo, mallongan, kremkoloran ve-lurpantalonon, silkajn ŝtrumpojn, leĝerajn ŝuetojn, kaj malantaŭe ion similan al ombrelo el blua sateno, por ke li povu enmeti la voston, se ekpluvas.
 
 La Barba Hundo estis vestita kiel koĉero en parada livreo.
 
-—Ek brave, Medoro, — diris la Feino al la Barba Hundo, — ekipu la plej belan kaleŝon en mia stalo, kaj ekve-70
-
-LA AVENTUROJ DE PINOKJO
-
-
-turu al la arbaro. Kiam vi atingos la Grandan Kverkon, vi trovos malfeliĉan marioneton, kiu kuŝas duone morta sur la herbo. Levu lin delikate, metu singarde sur la kusenojn de la kaleŝo kaj alportu al mi. ĉu vi komprenis min?
+—Ek brave, Medoro, — diris la Feino al la Barba Hundo, — ekipu la plej belan kaleŝon en mia stalo, kaj ekveturu al la arbaro. Kiam vi atingos la Grandan Kverkon, vi trovos malfeliĉan marioneton, kiu kuŝas duone morta sur la herbo. Levu lin delikate, metu singarde sur la kusenojn de la kaleŝo kaj alportu al mi. ĉu vi komprenis min?
 
 La Barba Hundo balancis tri- aŭ kvarfoje la bluan om-brelaĵon ĉe la postaĵo por montri, ke li komprenis ĉion, kaj ekiris kvazaŭ elpafita.
 
@@ -1476,19 +1222,14 @@ La kuracistoj baldaŭ alvenis, unu post alia: unue la Korvo, poste la Noktuo kaj
 
 mi volus ekscii, ĉu tiu ĉi kompatinda marioneto estas viva aŭ morta!
 
-Post tiu invito la Korvo paŝis antaŭen kiel unua, palpis la pulson de Pinokjo, poste la nazon, la etfingrojn de 71
-
-
-LA AVENTUROJ DE PINOKJO
+Post tiu invito la Korvo paŝis antaŭen kiel unua, palpis la pulson de Pinokjo, poste la nazon, la etfingrojn de
 
 
 la piedoj, kaj kiam li ĉion sufiĉe trapalpis, solene li pro-noncis la sekvajn vortojn:
 
 —Laŭ mia opinio la marioneto estas jam morta: sed se pro misfortuno li ne estus mortinta, tiam vidiĝus signo de tio, ke li ankoraŭ vivas!
 
-—Mi bedaŭras, — diris la Noktuo, — ke mi devas kontraŭdiri al sinjoro Korvo, mia elstara amiko kaj kolego: por mi male, la marioneto ankoraŭ estas viva, sed se pro 72
-
-LA AVENTUROJ DE PINOKJO
+—Mi bedaŭras, — diris la Noktuo, — ke mi devas kontraŭdiri al sinjoro Korvo, mia elstara amiko kaj kolego: por mi male, la marioneto ankoraŭ estas viva, sed se pro
 
 
 misfortuno li ne vivus, ekzistus signo de tio, ke li vere mortis!
@@ -1516,9 +1257,6 @@ En tiu momento ekaŭdiĝis sufokataj ploro kaj singultoj en la ĉambro. Imagu la
 —Bedaŭrante mi kontraŭdiras al mia elstara amiko kaj kolego, — aldonis la Noktuo, — ĉar laŭ mi, se mortinto ploras, tio estas signo de tio, ke al li ne plaĉas morti.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 17 Pinokjo manĝas la bombonojn, sed ne volas preni laksigilon; sed kiam li vidas la enterigistojn, kiuj venas forporti lin, li tamen ĝin glutas. Poste li mensogas, kaj pune pro tio lia nazo komencas kreski
 
 Apenaŭ la tri kuracistoj forlasis la ĉambron, la Feino sidiĝis apud Pinokjo, tuŝis lian frunton, kaj rimarkis, ke lin turmentas nedireble alta febro.
@@ -1540,9 +1278,6 @@ Pinokjo rigardis la glason, iom fortiris la lipojn kaj demandis:
 —Amaraĵoj al mi ne plaĉas.
 
 —Trinku ĝin, se vi ĝin trs, mi donos al vi pecon da bombonoj por redolĉigi al vi la buŝon.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Kie estas la bombono?
@@ -1580,9 +1315,6 @@ La Feino forprenis la kusenon.
 —Kio vin ankoraŭ ĝenas?
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Min ĝenas la pordo de la ĉambro, estas duone malfermita.
 
 La Feino aliris, kaj fermis tute la pordon.
@@ -1615,13 +1347,7 @@ En tiu momento la pordo de la ĉambro malfermiĝis, kaj enpaŝis kvar peĉe nigr
 
 —Ankoraŭ ne: sed restis al vi nur kelkaj minutoj da vivo, ĉar vi rifuzis trinki la medikamenton, kiu resanigus vin el la febro!
 
-—Ho Feino mia, Feineto, — komencis vekrii la mario-76
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-neto, — tuj donu al mi tiun glason … Foriru, mi petas vin, ĉar mi ne volas morti, ne … mi ne volas morti …
+—Ho Feino mia, Feineto, — komencis vekrii la marioneto, — tuj donu al mi tiun glason … Foriru, mi petas vin, ĉar mi ne volas morti, ne … mi ne volas morti …
 
 Kaj li kaptis la glason per ambaŭ manoj, kaj malple-nigis ĝin en unu gluto.
 
@@ -1630,9 +1356,6 @@ Kaj li kaptis la glason per ambaŭ manoj, kaj malple-nigis ĝin en unu gluto.
 Kaj ili relevis la malgrandan ĉerkon sur la ŝultrojn, kaj grumblante kaj murmurante tra la dentoj ili forlasis la ĉambron.
 
 Faktas, ke kelkajn minutojn poste Pinokjo saltis sana kaj vigla el la lito; ĉar necesas scii, ke lignopupoj havas la bonŝancon malofte malsaniĝi kaj rapidege resaniĝi.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Kiam la Feino vidis lin kuradi kaj petoli vigle kaj gaje, simile al juna kokido tra la ĉambro, ŝi lin demandis:
@@ -1659,9 +1382,7 @@ Kiam la Feino vidis lin kuradi kaj petoli vigle kaj gaje, simile al juna kokido 
 
 Venu kun ni, ni kondukos vin al la Kampo de Mirakloj.”
 
-Kaj mi diris: ”Ni iru!”, kaj ili proponis: ”Ni haltu ĉi tie, en la gastejo ”La Ruĝa Krabo” kaj post noktomezo ni ekiros.” Kaj kiam mi vekiĝis, ili ne plu troviĝis tie, ĉar intertempe ili jam ekiris. Do ankaŭ mi ekiris nokte en kompleta mallumo, ŝajne neebla, kaj dumvoje mi trafis du banditojn, ambaŭ en karbosakoj, kiuj diris al mi: ”Elmetu la monerojn”; kaj mi diris: ”Mi ne havas”; ĉar la kvar 78
-
-LA AVENTUROJ DE PINOKJO
+Kaj mi diris: ”Ni iru!”, kaj ili proponis: ”Ni haltu ĉi tie, en la gastejo ”La Ruĝa Krabo” kaj post noktomezo ni ekiros.” Kaj kiam mi vekiĝis, ili ne plu troviĝis tie, ĉar intertempe ili jam ekiris. Do ankaŭ mi ekiris nokte en kompleta mallumo, ŝajne neebla, kaj dumvoje mi trafis du banditojn, ambaŭ en karbosakoj, kiuj diris al mi: ”Elmetu la monerojn”; kaj mi diris: ”Mi ne havas”; ĉar la kvar
 
 
 orajn monerojn mi kaŝis en la buŝo, kaj unu el la murdistoj provis meti la manon en mian buŝon, kaj mi per ekmordo formanĝis lian manon, kaj elkraĉis ĝin, sed anstataŭ mano mi elkraĉis katpiedon. Kaj la murdistoj ĵetis sin post mi, kaj mi kuris, kuregis, ĝis ili atingis min, ligis min ĉe la kolo sur branĉo en ĉi tiu arbaro, kaj diris al mi: ”Morgaŭ ni revenos, ĝis tiam vi mortos kaj malfermos la buŝon, kaj tiel ni forprenos viajn ormonerojn, kiujn vi kaŝis sub la lango”.
@@ -1682,9 +1403,7 @@ Je ĉi dua mensogo la nazo ekkreskis plu.
 
 —Ho! nun ke mi bone ekmemoras, — respondis la marioneto embarasite, — mi ne perdis la kvar monerojn, sed pro neatento hazarde mi glutis ilin, dum mi trinkis vian medikamenton.
 
-Je ĉi tria mensogo lia nazo komencis longiĝi kun tiel freneza rapido, ke la kompatinda Pinokjo povis turni sin al neniu flanko. Se li turnis sin ĉi-flanken, li batis la nazon kontraŭ la liton aŭ la fenestrovitrojn, se li turnis sin 79
-
-LA AVENTUROJ DE PINOKJO
+Je ĉi tria mensogo lia nazo komencis longiĝi kun tiel freneza rapido, ke la kompatinda Pinokjo povis turni sin al neniu flanko. Se li turnis sin ĉi-flanken, li batis la nazon kontraŭ la liton aŭ la fenestrovitrojn, se li turnis sin
 
 
 aliflanken, li batis ĝntraŭ la murojn aŭ la pordon de la ĉambro, kaj se li iom levis la kapon, li riskis puŝi ĝin en la okulojn de la Feino.
@@ -1702,9 +1421,6 @@ Kaj la Feino rigardis lin kaj ridis.
 Pinokjo ne sciis, kie kaŝi sin pro la honto, kaj li provis forkuri el la ĉambro; sed li ne sukcesis. Lia nazo tiomgra-de kreskis, ke ĝi ne trapasis la pordon.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 18 Pinokjo retrovas la Vulpon kaj la Katon, kaj iras kun ili semi la kvar monerojn sur la Kampo de Mirakloj Kiel vi povas imagi, la Feino lasis la marioneton plori kaj ĝoji bonan duonhoron pro tio, ke lia nazo ne pasis tra la pordo; kaj ŝi faris tion por doni al li severan lecionon, kaj por ke li reboniĝu de la malbona kutimo mensogi, plej malbona kutimo, kiun geknaboj povas nur havi. Sed kiam ŝi vidis lin en tiel mizera stato, kun okuloj traploritaj pro la senesperiĝo, ŝi ekkompatis lin, kunfrapis la manojn, kaj je tiu signo tra la fenestro enflugis arego da grandaj birdoj nomataj Pegoj, kiuj sidiĝis sur la nazego de Pinokjo, kaj komencis ĝin bekofrapi tiel ler-te-sperte, ke post kelkaj minutoj la nazo malgrandiĝis al sia natura longo.
 
 —Kiel bona vi estas, mia Feino, — diris la marioneto, viŝante la larmojn, — kiel mi vin amas.
@@ -1712,9 +1428,6 @@ LA AVENTUROJ DE PINOKJO
 —Ankaŭ mi vin amas, — respondis la Feino, — kaj se vi volas resti kun mi, vi povos iĝi mia frateto, kaj mi via bona fratino …
 
 —Mi volonte restus … sed mia kompatinda paĉjo?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Mi pensis pri io. Mi jam sciigis vian paĉjon: antaŭ noktiĝo li estos ĉi tie.
@@ -1744,9 +1457,6 @@ Pinokjo ekiris: kaj apenaŭ li eniris la arbaron, li ekkuris kiel kaprido. Sed k
 —Sed mi komencis kuri, — daŭrigis la marioneto, —
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 kaj ili ĉiam post mi, fine ili atingis kaj pendigis min sur branĉo de tiu kverko …
 
 Kaj Pinokjo montris la Grandan Kverkon, kiu staris apenaŭ du paŝojn for de ili.
@@ -1772,9 +1482,6 @@ Ankaŭ Pinokjo kortuŝiĝis, paŝis al la kato, kaj flustris en ĝian orelon:
 —Mi atendas mian paĉjon, kiu baldaŭ devas alveni.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Kaj viaj oraj moneroj?
 
 —Mi havas ilin ĉi tie, en la poŝo krom unu, kiun mi elspezis en la gastejo ”La Ruĝa Krabo”.
@@ -1795,21 +1502,13 @@ LA AVENTUROJ DE PINOKJO
 
 Post duonhoreto vi alvenos: rapide semos la monerojn, post kelkaj minutoj kolektos dumil da ili kaj ĉi-vespere vi reestos ĉi tie kun plenaj poŝoj. ĉu vi volas veni kun ni?
 
-Pinokjo hezitis iomete per la respondo, ĉar rememori-
-
-ĝis al li la bona Feino, la maljuna epeto kaj la admonoj de la Parolanta Grilo; sed poste li tamen faris, kiel ĉiuj geknaboj sen prudento kaj koro; li kapjesis kaj diris al la Vulpo kaj Kato:
+Pinokjo hezitis iomete per la respondo, ĉar rememoriĝis al li la bona Feino, la maljuna epeto kaj la admonoj de la Parolanta Grilo; sed poste li tamen faris, kiel ĉiuj geknaboj sen prudento kaj koro; li kapjesis kaj diris al la Vulpo kaj Kato:
 
 —Nu, ni iru: mi vin akompanos.
 
 Kaj ili ekiris.
 
-Post duontaga marŝado ili atingis urbon, kiu nomiĝis Stultulkapta. Kiam ili eniris en la urbon, Pinokjo vidis stratojn plenajn de hundoj kun maldensa hararo, kiuj oscedis pro malsato, tonditajn ŝafojn, kiuj tremis pro malvarmo, kokinojn sen krestoj kaj bekoloboj, kiuj al-84
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-moze petis maizgrajnojn, grandajn papiliojn, kiuj ne povis flugi, ĉar ili vendis siajn belegajn multkolorajn flugilojn, senvostajn pavojn, kiuj hontis tiel vidiĝi, faza-nojn, kiuj silente lamadis, kaj priploris siajn por ĉiam perditajn brilantajn plumojn orajn kaj arĝentajn.
+Post duontaga marŝado ili atingis urbon, kiu nomiĝis Stultulkapta. Kiam ili eniris en la urbon, Pinokjo vidis stratojn plenajn de hundoj kun maldensa hararo, kiuj oscedis pro malsato, tonditajn ŝafojn, kiuj tremis pro malvarmo, kokinojn sen krestoj kaj bekoloboj, kiuj almoze petis maizgrajnojn, grandajn papiliojn, kiuj ne povis flugi, ĉar ili vendis siajn belegajn multkolorajn flugilojn, senvostajn pavojn, kiuj hontis tiel vidiĝi, faza-nojn, kiuj silente lamadis, kaj priploris siajn por ĉiam perditajn brilantajn plumojn orajn kaj arĝentajn.
 
 Meze de tiu amaso de almozuloj kaj hontemaj malfeliĉuloj pasadis de tempo al tempo sinjoraj kaleŝoj, en kiuj sidis certaj vulpoj, pigoj ŝtelistoj aŭ iaj rabobirdoj.
 
@@ -1818,9 +1517,6 @@ Meze de tiu amaso de almozuloj kaj hontemaj malfeliĉuloj pasadis de tempo al te
 —Je apenaŭ du paŝoj.
 
 Kaj vere, kiam ili trairis la urbon, kaj venis ekster la murojn, ili haltis sur nuda kampo, kiu cetere similis al la aliaj kampoj.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Jen, ni alvenis, — diris la Vulpo al la marioneto. —
@@ -1842,9 +1538,6 @@ La malfeliĉa marioneto, ekster si pro la ĝojo, multfoje dankis la Vulpon kaj l
 Dirinte tion, ili salutis Pinokjon, deziris al li abundan rikolton, kaj foriris laŭ siaj farendoj.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 19 Pinokjo estas prirabita je siaj moneroj, kaj por puno li ricevas kvar monatojn da malliberejo
 
 Reveninte en la urbon, la marioneto komencis nombri la minutojn: unu, du, tri; kaj kiam ŝajnis al li, ke jam tempo estas, li tuj ekmarŝis sur la vojo al la Kampo de Mirakloj.
@@ -1853,10 +1546,7 @@ Dum li marŝis per hastaj paŝoj, lia koro forte batis, kaj tik-takis kiel murho
 
 —Se anstataŭ mil, troviĝus dumil moneroj sur la branĉoj? … Kaj se anstataŭ dumil pendus kvinmil? … Kaj se anstataŭ kvinmil mi trovus centmil? Ho, kiel granda sinjoro mi fariĝus! Mi volus havi belan palacon, mil lignoĉevalojn kaj mil stalojn por povi amuziĝi, kelon plenan de rosolio kaj alkermeso, librobretojn plenajn de konfitaĵoj, tortoj, kukoj, migdalaĵoj kaj kremaj vaflaĵoj.
 
-Inter tiaj revoj, li venis proksimen al la kampo kaj haltis por rigardi, ĉu li jam povas vidi kreskantan arbon kun branĉoj pezaj de moneroj: sed li vidis nenion. Li do pluiris cent paŝojn: ree nenio; paŝis sur la kampon … tute 87
-
-
-LA AVENTUROJ DE PINOKJO
+Inter tiaj revoj, li venis proksimen al la kampo kaj haltis por rigardi, ĉu li jam povas vidi kreskantan arbon kun branĉoj pezaj de moneroj: sed li vidis nenion. Li do pluiris cent paŝojn: ree nenio; paŝis sur la kampon … tute
 
 
 ĝisiris la truon, kie li enterigis la zekinojn: denove nenio.
@@ -1864,9 +1554,6 @@ LA AVENTUROJ DE PINOKJO
 Tiam li enpensiĝis, kaj forgesante la regulojn de deco kaj bona konduto, li eltiris la manon el la poŝo, kaj longe gratis la kapon.
 
 En tiu momento li ekaŭdis ŝiran ridegon en la oreloj, kaj suprenturninte la rigardon, li vidis sur arbo grandan papagon, kiu elŝiradis tiujn malmultajn plumojn, kiuj al li ankoraŭ restis.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Kial vi ridas, — demandis lin Pinokjo kun kolera voĉo.
@@ -1891,24 +1578,13 @@ Nun, jam tro malfrue, mi devis konvinkiĝi, ke por kun-meti honeste iom da mono,
 
 —Aŭskultu min! Mi klarigos la aferon pli detale, —
 
-daŭrigis la Papago. — Sciu do, ke dum vi forestis en la urbo, la Vulpo kaj la Kato revenis al tiu ĉi kampo, elpre-89
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-nis la monon el sub la tero kaj malaperis, kiel guto en la maro. Kiu atingos ilin, estas pli ol brava!
+daŭrigis la Papago. — Sciu do, ke dum vi forestis en la urbo, la Vulpo kaj la Kato revenis al tiu ĉi kampo, elprenis la monon el sub la tero kaj malaperis, kiel guto en la maro. Kiu atingos ilin, estas pli ol brava!
 
 Pinokjo restis kun malfermita buŝo, kaj ĉar li ne volis kredi la vortojn de la Papago, komencis fosi fingre-unge la teron, kiun li akvumis. Li fosis, fosadis, faris truon tiel profundan, ke eniĝus pajlostako: sed la moneroj ne retroviĝis.
 
 Tiam, kaptita de senesperiĝo, kure li reiris al la urbo, kaj iris rekte al la juĝejo por denunci al la juĝisto la du trompistojn, kiuj tiel aĉe priŝtelis lin.
 
-La juĝisto estis simio el la raso de Goriloj: simio maljuna, kiun oni respektis pro liaj granda aĝo, blanka barbo kaj precipe pro liaj oraj senlensaj okulvitroj, kiujn li de-90
-
-LA AVENTUROJ DE PINOKJO
-
-
-vis ĉiam surhavi pro okula sangabundo, turmentanta lin de pluraj jaroj.
+La juĝisto estis simio el la raso de Goriloj: simio maljuna, kiun oni respektis pro liaj granda aĝo, blanka barbo kaj precipe pro liaj oraj senlensaj okulvitroj, kiujn li devis ĉiam surhavi pro okula sangabundo, turmentanta lin de pluraj jaroj.
 
 Antaŭ la tribunalo Pinokjo rakontis per ĉiuj detaloj la malindan trompon, kies viktimo li fariĝis; li diris la nomon, antaŭnomon kaj rekonilojn de la trompistoj, kaj fine petis fari justecon.
 
@@ -1927,17 +1603,11 @@ Li devis restadi tie kvar monatojn, kvar longegajn monatojn, kaj li ankaŭ plue 
 —Se la aliaj eliros el la malliberejo, ankaŭ mi volas eliri, — diris Pinokjo al la gardisto.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Vi ne, — respondis la gardisto, — ĉar vi ne estas grava fripono.
 
 —Mi petas pardonon, — respondis Pinokjo, — ankaŭ mi estas malbonfarinto.
 
 —En tiu kazo vi havas por tio mil kaŭzojn, — diris la gardisto; kaj li levis respektoplene sian ĉapelon, kaj kun saluto malfermis la pordojn de la malliberejo, kaj ellasis Pinokjon.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 20 Post kiam li ellasiĝas el la malliberejo, Pinokjo ekiras por reiri al la domo de la Feino; sed dumvoje li trafas teruregan serpenton, kaj poste falas en kaptilon Imagu al vi la ĝojon de Pinokjo, kiam li sentis sin libera. Sen heziti kaj mediti, li tuj forlasis la urbon, kaj turnis sin al la vojo, kiu rekondukos lin al la Dometo de la Feino.
@@ -1946,10 +1616,7 @@ Pro la pluveca vetero la vojo fariĝis kompleta marĉo, kaj oni iris ĝisgenue e
 
 —Kiom da malfeliĉoj okazis al mi … Kaj mi ilin meritas! ĉar mi estas obstina kaj kverelema marioneto …
 
-volas ĉiam agi laŭ mia gusto kaj plaĉo, ne aŭskultas tiujn, kiuj volas al mi bonon, kaj havas miloble pli da saĝo ol mi! … Sed ekde nun, mi promesas, mi ŝanĝos mian vivon, kaj fariĝos knabo bonkonduta kaj obeema 93
-
-
-LA AVENTUROJ DE PINOKJO
+volas ĉiam agi laŭ mia gusto kaj plaĉo, ne aŭskultas tiujn, kiuj volas al mi bonon, kaj havas miloble pli da saĝo ol mi! … Sed ekde nun, mi promesas, mi ŝanĝos mian vivon, kaj fariĝos knabo bonkonduta kaj obeema
 
 
 … Mi nun spertis, ke se geknaboj malobeas, tio ĉiam al ili malutilas, kaj neniom ili profitas el tio.
@@ -1959,9 +1626,6 @@ Kaj ĉu mia paĉjo min atendos? … ĉu mi trovos lin en la domo de la Feino? Pa
 Dum li tiel riproĉadis sin, li haltis abrupte terurita kaj faris kelkajn paŝojn returne.
 
 Kion li ekvidis?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Li vidis antaŭ si grandegan serpenton, kiu kuŝis kruce tra la vojo. i havis verdan haŭton, fajrerantajn okulojn, pintan voston, kiu fumis kiel ĉapo de kamentubo.
@@ -1982,22 +1646,11 @@ Tiam li rekomencis kun la sama voĉeto:
 
 Li atendis signeton de respondo al sia peto, sed ĝi ne venis: eĉ la serpento, kiu ĝis tiam ŝajnis vigla kaj vivople-na, fariĝis senmova, preskaŭ ŝtonrigida.
 
-—ĉu eble li mortis? … — demandis Pinokjo, kaj kunfrotis la manojn pro ĝojo: kaj sen plia prokrasto li pretigis sin por superpasi lin, kaj veni al la alia flanko de la vojo. Sed li ankoraŭ ne levis tute la gambon, kiam la Ser-95
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-pento, ellasita kiel risorto, abrupte rektiĝis: kaj la marioneto, dum li retropaŝis terurite, stumblis kaj falis sur la teron.
+—ĉu eble li mortis? … — demandis Pinokjo, kaj kunfrotis la manojn pro ĝojo: kaj sen plia prokrasto li pretigis sin por superpasi lin, kaj veni al la alia flanko de la vojo. Sed li ankoraŭ ne levis tute la gambon, kiam la Serpento, ellasita kiel risorto, abrupte rektiĝis: kaj la marioneto, dum li retropaŝis terurite, stumblis kaj falis sur la teron.
 
 Kaj li falis tiel malfeliĉe, ke lia kapo profundiĝis ĝuste en la koton de la vojo, kaj liaj gamboj ekpendolis alĉie-le.
 
-Kiam la Serpento vidis tiun marioneton kun freneze rapide svingataj piedoj kaj kapo malsupre, li kaptiĝis de tia skuridego, ke li ridis, ridis, ridis, kaj pro la streĉo kaŭ-
-
-zita de la trorido, ĉiu vejno ŝiriĝis en lia brusto, kaj ĉifoje li vere mortis.
-
-
-LA AVENTUROJ DE PINOKJO
+Kiam la Serpento vidis tiun marioneton kun freneze rapide svingataj piedoj kaj kapo malsupre, li kaptiĝis de tia skuridego, ke li ridis, ridis, ridis, kaj pro la streĉo kaŭzita de la trorido, ĉiu vejno ŝiriĝis en lia brusto, kaj ĉifoje li vere mortis.
 
 
 Tiam Pinokjo kure reekiris por alveni al la domo de la Feino antaŭ mallumiĝo. Sed dumvoje li ne povis kontraŭstari al la turmentoj de la malsato, deiriĝis sur kampon kun la intenco pluki kelkajn muskatajn grapolojn.
@@ -2007,9 +1660,6 @@ Se li nur neniam farus tion!
 Apenaŭ li paŝis al vito, krak … li sentis pinĉiĝi la krurojn per du tranĉaj feroj, kiuj igis lin vidi ĉiujn stelojn de la firmamento pro la doloro.
 
 La malfeliĉan marioneton ekkatenis kaptilo, elmeta-ta kutime de kamparanoj por kapti grandajn foinojn, kiuj estas plago por ĉiuj kokejoj de la ĉirkaŭaĵo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 21 Pinokjon kaptas kamparano kaj devigas lin servi kiel gardohundo ĉe kokejo Pinokjo, vi povas imagi, komencis plori, bleki, petegi. Sed vanis ploro kaj krio, ĉar ĉirkaŭe vidiĝis nek domoj, nek pasis animo viva sur la vojo.
@@ -2029,9 +1679,6 @@ Eble pro la doloroj kaŭzitaj de la tranĉa kaptilo, seg-anta liajn tibiojn, ebl
 —Ne …
 
 —Kiu do instruis al vi forpreni aliulan propraĵon?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Mi malsatis …
@@ -2060,10 +1707,7 @@ Kaj li malfermis la kaptilon, prenis la marioneton ĉe la nuko kaj hejmenportis 
 
 Alveninte al la korto de la domo, li ĵetis Pinokjon sur la teron, metis unu piedon sur lian kolon, kaj diris al li:
 
-—Hodiaŭ estas malfrue, kaj mi volas enlitiĝi. La konton ni kvitigos morgaŭ. Kaj ĉar mortis mia hundo, kiu 99
-
-
-LA AVENTUROJ DE PINOKJO
+—Hodiaŭ estas malfrue, kaj mi volas enlitiĝi. La konton ni kvitigos morgaŭ. Kaj ĉar mortis mia hundo, kiu
 
 
 gardis nokte la domon, vi tuj transprenos ĝian oficon. Vi hundogardos por mi.
@@ -2072,19 +1716,11 @@ Farite, kiel dirite: la mastro metis dikan ringon kun latunaj pikiloj sur lian k
 
 —Se ĉi-nokte pluvos, — diris la kamparano, — vi povos retiriĝi en la lignan hundejon, kie vi ĉiam trovas pajlon, kiu servis lite dum kvar jaroj al mia malfeliĉa hundo. Kaj se eventuale venus ŝtelistoj, ne forgesu pintigi la orelojn kaj boji.
 
-Post tiu admono, la kamparano eniris la domon, fer-100
-
-LA AVENTUROJ DE PINOKJO
-
-
-mis la pordon per ĉeno: kaj la malfeliĉa Pinokjo restis kaŭre sur la korto pli morta ol viva pro la malvarmo, malsato kaj timo. De tempo al tempo li per la manoj freneze skuis la kolumon premanta lian kolon, kaj diris plorante:
+Post tiu admono, la kamparano eniris la domon, fermis la pordon per ĉeno: kaj la malfeliĉa Pinokjo restis kaŭre sur la korto pli morta ol viva pro la malvarmo, malsato kaj timo. De tempo al tempo li per la manoj freneze skuis la kolumon premanta lian kolon, kaj diris plorante:
 
 —Bone tiel! … Bedaŭrinde, bone tiel! Mi volis senfa-radi, vagabondi … mi volis obei al malbonaj kamaradoj, kaj pro tio la sorto min persekutas. Se mi estus bona knabo, kiel multaj aliaj, se mi havus emon lerni kaj labori, se mi restus hejme kun mia malfeliĉa paĉjo, en ĉi tiu horo mi ne troviĝus ĉi tie, meze de kamparo por hundo-gardi antaŭ la domo de kamparano. Ho, se mi nur povus iam renaskiĝi! … Sed nun jam estas malfrue, kaj necesas toleri!
 
 Eldirinte tiujn plendojn, venantajn rekte el lia koro, li eniris la hundejon kaj endormiĝis.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 22 Pinokjo malkovras la ŝtelistojn kaj, rekompence por sia fideleco, fariĝas libera
@@ -2106,9 +1742,6 @@ Unu el tiuj foinoj apartiĝis de siaj kamaradoj, iris al la aperturo de la hunde
 —Mi hundogardas.
 
 —Kaj kie estas Melampo? Kie estas la maljuna hundo, kiu loĝis en ĉi tiu dometo?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Li mortis ĉi-matene.
@@ -2138,9 +1771,6 @@ LA AVENTUROJ DE PINOKJO
 —Mi povus diri: eĉ tro! — respondis Pinokjo, kaj balancis la kapon iel minace, kvazaŭ li volus diri: ”Baldaŭ ni reparolos pri tio!” Kiam la kvar foinoj kredis esti se-kuraj en sia faro, ili iris senhezite al la kokejo tre proksima al la hundejo; kaj unge-dente ili malfermis la lignan pordeton, kiu baris la eniron, kaj englitis unu post alia.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Sed ili ankoraŭ ne finis enpaŝi, kiam ili aŭdis fermiĝi kun bruego la pordon.
 
 Estis Pinokjo, kiu ĝin fermis, kaj kiu ne kontentiĝis per tio, ke li fermis ĝin, sed por pli granda sekureco li metis antaŭ ĝin ŝtonon kiel apogilon.
@@ -2154,9 +1784,6 @@ Je tiu bojado la kamparano elsaltis el la lito, prenis pafilon, kaj elmetinte la
 —Alvenis la ŝtelistoj! — respondis Pinokjo.
 
 —Kie ili estas?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —En la kokejo.
@@ -2177,9 +1804,7 @@ Tiam la marioneto povus rakonti tion, kion li sciis: do li povus rakonti la hont
 
 —ĉu vi dormis aŭ maldormis, kiam la foinoj venis al la korto? — demandis plu la kamparano.
 
-—Mi dormis, — konfesis Pinokjo, — sed la foinoj vekis min per siaj babilaĉoj, kaj unu eĉ venis al mi al la hundejo por diri: ”Se vi promesas ne boji, kaj ne veki la 105
-
-LA AVENTUROJ DE PINOKJO
+—Mi dormis, — konfesis Pinokjo, — sed la foinoj vekis min per siaj babilaĉoj, kaj unu eĉ venis al mi al la hundejo por diri: ”Se vi promesas ne boji, kaj ne veki la
 
 
 mastron, ni donacos al vi belan kokineton senplumigitan!” ĉu vi komprenas? Ili aŭdacis fari al mi tian propo-non! ĉar oni devas scii, ke mi estas marioneto, kiu eble havas ĉiujn mankojn de ĉi tiu mondo: sed mi ne manĝas ĉe la sama tablo kun tiel malhonestaj homoj, kaj mi ne mantelas iliajn fiagojn!
@@ -2189,25 +1814,20 @@ mastron, ni donacos al vi belan kokineton senplumigitan!” ĉu vi komprenas? Il
 Kaj li deprenis la hundokolumon.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 23 Pinokjo priploras la morton de la bela Bluhara Knabino: poste li trovas kolombon, kiu portas lin al la marbordo, kaj tie li ĵetas sin en la maron por helpi al sia paĉjo epeto Apenaŭ Pinokjo ne plu sentis la pezon de la malmola, humiliga ringo ĉirkaŭ la kolo, li ĵetis sin kure tra kampoj kaj arbaroj, kaj eĉ momenteton ne haltis, ĝis li alvenis al la ĉefvojo, kiu rekondukos lin al la dometo de la Feino.
 
-Kiam li atingis la ĉefvojon, li turnis sin por rigardi malsupren al la sube etendiĝanta ebenaĵo, kaj nudoku-le li bone distingis la arbaron, kie malfeliĉe li renkontiĝis kun la Vulpo kaj la Kato: li vidis leviĝi inter aliaj arboj la supron de tiu Granda Kverko, sur kiu li estis pendole 107
-
-LA AVENTUROJ DE PINOKJO
+Kiam li atingis la ĉefvojon, li turnis sin por rigardi malsupren al la sube etendiĝanta ebenaĵo, kaj nudoku-le li bone distingis la arbaron, kie malfeliĉe li renkontiĝis kun la Vulpo kaj la Kato: li vidis leviĝi inter aliaj arboj la supron de tiu Granda Kverko, sur kiu li estis pendole
 
 
 pendumita je la kolo: kaj li rigardis ĉi tien, li rigardis tien, sed li ne sukcesis ekvidi la dometon de la bela Bluhara Knabino.
 
-Tiam li ekhavis ian malĝojan antaŭsenton, kaj ekkuris per ĉiuj fortoj, kiuj restis en liaj gamboj, kaj post kelkaj minutoj li troviĝis sur la kampo, kie iam la Blanka Dometo troviĝis. Sed ĝi ne plu troviĝis. Staris anstataŭe malgranda marmora ŝtono, sur kiu oni povis legi per majuskloj la sekvajn dolorajn vortojn: ĉI TIE RIPOZAS
+Tiam li ekhavis ian malĝojan antaŭsenton, kaj ekkuris per ĉiuj fortoj, kiuj restis en liaj gamboj, kaj post kelkaj minutoj li troviĝis sur la kampo, kie iam la Blanka Dometo troviĝis. Sed ĝi ne plu troviĝis. Staris anstataŭe malgranda marmora ŝtono, sur kiu oni povis legi per majuskloj la sekvajn dolorajn vortojn: ĈI TIE RIPOZAS
 
 LA BLUHARA KNABINO,
 
 KIU MORTIS PRO DOLORO
 
-ĉAR FORLASIS ŝIN
+ĈAR FORLASIS ŜIN
 
 LA FRATETO PINOKJO.
 
@@ -2215,10 +1835,7 @@ Mi lasas al vi imagi, kion sentis la marioneto, kiam li pene elsilabumis tiujn v
 
 Kaj plorante li ripetadis:
 
-—Ho, Feino mia, kial vi mortis? Kial ne mortis mi anstataŭ vi, mi, kiu estas tiel malbona, dum vi estis tiel bonega? Kaj kie estas mia paĉjo? Ho, Feineto mia, diru, kie mi trovos lin, ĉar mi volas resti ĉiam kun li kaj neniam, 108
-
-
-LA AVENTUROJ DE PINOKJO
+—Ho, Feino mia, kial vi mortis? Kial ne mortis mi anstataŭ vi, mi, kiu estas tiel malbona, dum vi estis tiel bonega? Kaj kie estas mia paĉjo? Ho, Feineto mia, diru, kie mi trovos lin, ĉar mi volas resti ĉiam kun li kaj neniam,
 
 
 neniam forlasi lin! Ho, Feino mia, diru, ne estas vero, ke vi mortis! … Se vi vere amas min … se vi amas vian fra-teton, reviviĝu … revenu viva, kiel antaŭe! … ĉu ne estas malbone al vi, vidi min sola kaj forlasita de ĉiuj? … Se alvenos la murdistoj, ili denove pendigos min sur branĉo de arbo … kaj tiam mi mortos por ĉiam. Kion vi volas, ke mi faru, sola en ĉi tiu mondo? Nun, kiam mi perdis vin kaj mian paĉjon, kiu donos manĝon al mi ? Kie mi dormos nokte? Kiu pretigos al mi la novan jaketon? Ho, estus pli bone, centoble pli bone, se ankaŭ mi mortus!
@@ -2231,9 +1848,7 @@ Intertempe preterflugis supre granda kolombo, kiu haltis kun disetenditaj flugil
 
 —Diru knabeto, kion vi faras tie malsupre?
 
-—ĉu vi ne vidas? Mi ploras! — diris Pinokjo, kaj levis 109
-
-LA AVENTUROJ DE PINOKJO
+—ĉu vi ne vidas? Mi ploras! — diris Pinokjo, kaj levis
 
 
 la kapon al tiu voĉo, kaj viŝis la okulojn per la maniko de sia jaketo.
@@ -2267,17 +1882,11 @@ Tiu kompatinda homo jam pli ol kvar monatojn vetura-das ĉirkaŭ la tero kaj ser
 —Kiel?
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Rajde sur mia dorso. ĉu vi tre pezas?
 
 —Pezas? Mi tute ne! … Mi estas malpeza, kiel folio.
 
 Kaj tiam senhezite Pinokjo saltis sur la dorson de la Kolombo, metis unu gambon unuflanken, la alian aliflanken kaj kriis kontentege: ”Galopu, galopu, ĉevaleto, ĉar mi urĝas alveni rapide! … ” La Kolombo levis sin, kaj en kelkaj minutoj li flugis tiel alten, ke preskaŭ li tuŝis la nubojn. Kiam li leviĝis al tia alteco, la marioneto scivole turnis sin por rigardi malsupren: kaj lin kaptis tia teruro kaj tia kapturniĝo, ke por eviti la danĝeron fali el tia alto, per la brakoj preme-streĉe li ĉirkaŭprenis la kolon de sia plumhava rajdbesto.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Ili flugis la tutan tagon. ĉe vesperiĝo la Kolombo diris:
@@ -2288,9 +1897,7 @@ Ili flugis la tutan tagon. ĉe vesperiĝo la Kolombo diris:
 
 —Ni haltu por kelkaj minutoj ĉe tiu kolombejo; poste ni daŭrigos la vojaĝon por esti morgaŭ matene ĉe sunleviĝo sur la marbordo.
 
-Ili eniris malplenan kolombejon, kie estis nur pelve-to plena de akvo kaj korbo kun viciaj grajnoj. La marioneto dum sia tuta vivo ne ŝatis viciaĵojn: laŭ li ili naŭ-
-
-zas, renversas al li la stomakon: sed tiun vesperon li manĝis da ili ĝis stomakokrevo, kaj kiam li jam preskaŭ finis, li turnis sin al la Kolombo kaj diris:
+Ili eniris malplenan kolombejon, kie estis nur pelve-to plena de akvo kaj korbo kun viciaj grajnoj. La marioneto dum sia tuta vivo ne ŝatis viciaĵojn: laŭ li ili naŭzas, renversas al li la stomakon: sed tiun vesperon li manĝis da ili ĝis stomakokrevo, kaj kiam li jam preskaŭ finis, li turnis sin al la Kolombo kaj diris:
 
 —Neniam mi antaŭe pensus, ke la viciaj grajnoj estas tiel bonaj!
 
@@ -2303,9 +1910,6 @@ La Kolombo surterigis Pinokjon, kaj ĉar li tute ne volis, ke Pinokjo ĝenu lin 
 La bordo estis plena de homoj, kiuj kriadis kaj gestadis rigardante al la maro.
 
 —Kio okazis? — demandis Pinokjo al maljunulino.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Okazis tio, ke malfeliĉa patro, kiu perdis la filon, volis enŝipiĝi por retrovi lin sur la alia flanko de la maro; sed la maro hodiaŭ estas tre malica, kaj minacas gluti la ŝipeton …
@@ -2324,14 +1928,9 @@ Kaj Pinokjo stariĝis sur rokopinto, kaj daŭre vokadis sian paĉjon per lia nom
 
 Kaj tiel ŝajnis, ke epeto — kvankam li estis tre malproksime de la marbordo — rekonis sian filon, ĉar ankaŭ li levis sian bereton, kaj salutis lin, kaj pere de gestoj li komprenigis al li, ke volonte li returniĝus, sed la maro estis tiel granda, ke ĝi malhelpis al li remi kaj proksimiĝi al la tero.
 
-Kaj tiam abrupte terura ondego leviĝis, kaj la ŝipeto malaperis. Oni atendis, ke ĝi releviĝu, sed ĝi ne plu vidi-
-
-ĝis.
+Kaj tiam abrupte terura ondego leviĝis, kaj la ŝipeto malaperis. Oni atendis, ke ĝi releviĝu, sed ĝi ne plu vidiĝis.
 
 —Malfeliĉa homo! — diris tiam la fiŝistoj, kaj murmurante preĝon duonlaŭte, ekiris por reiri al siaj hejmoj.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Kaj tiam ili ekaŭdis senesperan krion, kaj turninte sin ili ekvidis knabeton, kiu ĵetis sin de rokopinto en la maron kriante:
@@ -2343,9 +1942,6 @@ Pinokjo estis tute el ligno, do li flosis facile, kaj naĝis kiel fiŝo. Jen li 
 —Malfeliĉa knabo! — diris tiam la fiŝistoj, kiuj ariĝis sur la bordo, kaj murmurante preĝon duonlaŭte, ili disiris al siaj domoj.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 24 Pinokjo venas al la insulo de la Laboremaj Abeloj, kaj retrovas la Feinon
 
 Pinokjo, kiun entuziasmigis la espero, alveni ĝustatempe por helpi al sia malfeliĉa paĉjo, naĝis dum la tuta nokto.
@@ -2354,18 +1950,13 @@ Kiel terura estis tiu nokto! Torente pluvis, hajlis, timi-ge tondris kaj tiom fu
 
 ĉe mateniĝo li ekvidis longan terlangon proksime an-taŭ si. Tio estis insulo meze de la maro.
 
-Li streĉis ĉiujn siajn fortojn por atingi la bordon, sed vane. La ondoj rekuradis kaj kunpuŝiĝis, ĵetadis lin inter si, kvazaŭ li estus branĉeto aŭ pajlero. Fine por lia bon-
-
-ŝanco venis tiel potenca kaj impeta ondo, ke ĝi ĵetis lin facile sur la sablon de la strando.
+Li streĉis ĉiujn siajn fortojn por atingi la bordon, sed vane. La ondoj rekuradis kaj kunpuŝiĝis, ĵetadis lin inter si, kvazaŭ li estus branĉeto aŭ pajlero. Fine por lia bonŝanco venis tiel potenca kaj impeta ondo, ke ĝi ĵetis lin facile sur la sablon de la strando.
 
 La bato estis tiel forta, ke krakis ĉiuj liaj ripoj kaj arti-koj: sed li konsolis sin dirante:
 
 —Ankaŭ ĉi-foje propradire mi bonŝance saviĝis!
 
 Intertempe la ĉielo iom post iom sereniĝis; la suno aperis en sia tuta brilo, kaj la maro fariĝis kvietega kaj glata kiel oleo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Tiam la marioneto sternis siajn vestojn en la suno por sekigi ilin kaj rigardadis tien-reen, ĉu li povus rimarki sur tiu senfina akvoplato ian malgrandan barketon kun hometo en ĝi. Sed post kiam li sufiĉe rigardadis, li vidis antaŭ si nenion alian ol ĉielon, maron kaj kelkajn velojn de ŝipoj, sed tiel malproksime, ke ili ŝajnis muŝoj.
@@ -2382,16 +1973,11 @@ Ne sciante, per kiu nomo alparoli lin, la marioneto laŭte alkriis por rimarkigi
 
 —Eĉ du, — respondis la fiŝo, kiu estis tiel ĝentila del-feno, da kiaj troviĝas tre malmulte en la maroj de la mondo.
 
-—ĉu vi bonvolus diri al mi, ĉu troviĝas loko sur ĉi tiu insulo, kie oni povus manĝi sen la danĝero, esti man-
-
-ĝata?
+—ĉu vi bonvolus diri al mi, ĉu troviĝas loko sur ĉi tiu insulo, kie oni povus manĝi sen la danĝero, esti manĝata?
 
 —Mi certas pri tio, — respondis la Delfeno. — Eĉ proksime vi trovos unu tian.
 
 —Laŭ kiu vojo oni atingas ĝin?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Elektu tiun vojeton maldekstre, kaj iru ĉiam post la nazo. Vi ne misiros.
@@ -2411,9 +1997,6 @@ la ŝipeto certe subakviĝis.
 —Verŝajne ĉi-hore glutis lin la terura ŝarko, kiu venis antaŭ kelkaj tagoj al niaj akvoj por amase buĉi kaj eks-termi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —ĉu estas tre granda tiu ŝarko? — demandis Pinokjo, kiu jam komencis tremi pro la timo.
 
 —Jes ja, granda! … — respondis la Delfeno. — Por ke vi havu ideon pri tio, mi diras al vi, ke li estas pli granda ol kvinetaĝa domego, kaj havas tiel larĝan kaj profundan buŝegon, ke tra ĝi oportune enirus tuta vagonaro kune kun la lokomotivo.
@@ -2431,9 +2014,6 @@ Post duonhoro da marŝo li venis al vilaĝeto, nomata Vilaĝo de la Laboremaj Ab
 Dume malsato turmentis lin, ĉar pasis dudek kvar horoj, dum li manĝis nenion, eĉ ne pladeton da viciaj grajnoj.
 
 Kion fari?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Al li restis nur du ebloj por ĉesigi la malsaton: aŭ peti iom da laboro, aŭ almoze peti moneron aŭ pecon da pano.
@@ -2459,9 +2039,6 @@ Pinokjo juĝis lin bona homo laŭ la vizaĝo, kaj paŝis al li kun mallevitaj ok
 Post kelkaj minutoj preterpasis masonisto, kiu portis sur la ŝultroj korbon plenan de kalko.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Sinjoro, ĉu vi bonvolus doni moneron al malfeliĉa knabo, kiu morte malsatas?
 
 —Volonte; venu kun mi, portu kalkon, — respondis la masonisto, — kaj anstataŭ unu mi donos al vi kvin monerojn.
@@ -2474,9 +2051,7 @@ Dum duonhoro pasis pluaj dudek homoj, kaj Pinokjo petis ĉiujn pri almozo, sed i
 
 —ĉu vi ne hontas? Anstataŭ stari kiel gapulo surstra-te, iru prefere serĉi al vi iom da laboro, kaj lernu perlabori vian panon!
 
-Finfine preterpasis bonema virino, kiu portis du kru-
-
-ĉojn da akvo.
+Finfine preterpasis bonema virino, kiu portis du kruĉojn da akvo.
 
 —ĉu vi permesas al mi, bona sinjorino, ke mi trinku gluton da akvo el via kruĉo? — demandis Pinokjo, kiu preskaŭ brulis pro soifo.
 
@@ -2487,9 +2062,6 @@ Kiam Pinokjo trinkis, kiel spongo, murmuris duonlaŭte, viŝante al si la buŝon
 —La soifon mi kvietigis! Se mi nur povus tiel kvietigi la malsaton!
 
 Kiam la bona virino aŭdis tiujn vortojn, ŝi tuj rimarkis:
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Se vi helpos al mi hejmenporti unu el ĉi du kruĉoj, mi donos al vi belan pecon da pano.
@@ -2509,9 +2081,6 @@ Al la tento de ĉi lasta frandaĵo Pinokjo ne povis kontraŭstari, kaj decideme 
 La kruĉo estis tre peza, kaj ĉar liaj manoj ne estis su-fiĉe fortaj, li metis ĝin sur la kapon.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Alveninte hejmen, la bona virino sidigis Pinokjon al tableto garnita por manĝo, kaj metis panon, preparitan florbrasikon kaj konfitaĵon antaŭ lin.
 
 Pinokjo ne manĝis, sed glutegis. Lia stomako ŝajnis loĝejo, forlasita kaj neloĝata de kvin monatoj.
@@ -2520,9 +2089,7 @@ Post kiam li kvietigis la furiozajn mordojn de la malsato, Pinokjo levis la kapo
 
 —Kial vi tiel miras? — demandis ridetante la bona sinjorino.
 
-—Estas tiel … — respondis Pinokjo balbutante, — estas tiel … ke vi similas … vi memorigas, jes, jes, jes, la 122
-
-LA AVENTUROJ DE PINOKJO
+—Estas tiel … — respondis Pinokjo balbutante, — estas tiel … ke vi similas … vi memorigas, jes, jes, jes, la
 
 
 sama voĉo … ankaŭ vi havas bluajn harojn … kiel ŝi! …
@@ -2532,9 +2099,6 @@ Ho, Feino mia! … Ho, Feineto mia! … Diru al mi, diru, ke estas vi, vere vi! 
 Mi tiel mi ploris, mi tiel turmentiĝis!
 
 Dirante tion, Pinokjo eklarmis torente, ĵetis sin sur la genuojn, kaj ĉirkaŭbrakis la genuojn de tiu mistera virino.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 25 Pinokjo promesas al la Feino esti bona kaj lerni, ĉar tedas lin esti marioneto kaj volas fariĝi brava knabo Komence la bona virino asertis, ke ŝi ne estas la Bluhara Feineto: sed poste ŝi vidis, ke ŝi estas mal-kovrita, kaj ne volis tro longigi la komedion, kaj fine ŝi igis sin rekoni, kaj diris al Pinokjo:
@@ -2554,9 +2118,6 @@ LA AVENTUROJ DE PINOKJO
 —Sed vi ne povas kreski, — respondis la Feino.
 
 —Kial?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉar marionetoj neniam kreskas. Ili naskiĝas marionetoj, vivas kiel marionetoj, kaj mortas kiel marionetoj.
@@ -2597,14 +2158,10 @@ LA AVENTUROJ DE PINOKJO
 
 —Mi kredas, ke jes: mi eĉ estas certa pri tio.
 
-Je tiu respondo estis tiel granda la ĝojo de Pinokjo, ke li prenis la manojn de la Feino, kaj komencis ilin kisi kun 125
-
-LA AVENTUROJ DE PINOKJO
+Je tiu respondo estis tiel granda la ĝojo de Pinokjo, ke li prenis la manojn de la Feino, kaj komencis ilin kisi kun
 
 
-tia fervoro, ke li ŝajnis esti ekster si. Poste li levis la viza-
-
-ĝon, rigardis ŝin ameme kaj demandis:
+tia fervoro, ke li ŝajnis esti ekster si. Poste li levis la vizaĝon, rigardis ŝin ameme kaj demandis:
 
 —Diru al mi, panjo, do estas vero, ke vi ne mortis?
 
@@ -2641,9 +2198,6 @@ ke viziti lernejon, ŝajnas al mi iom malfrue …
 —ĉar la laboro al mi ŝajnas pena.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Filo mia, — diris la Feino, — tiuj, kiuj tiel parolas, preskaŭ ĉiam finas aŭ en malliberejo aŭ en malsanulejo. La homo laŭ via opinio naskiĝas riĉa aŭ malriĉa, li devas fari ion en ĉi tiu mondo, okupi sin, labori. Malbone al tiuj, kiuj transdonas sin al nenifarado! La nenifarado estas la plej malbela malsano, kaj necesas tuj kuraci ĝin, ekde infanaĝo: se ne, en plenkreskula aĝo ĝin oni ne povas kuraci.
 
 ĉi tiuj vortoj tuŝis la animon de Pinokjo, kiu vigle levis la kapon kaj diris al la Feino:
@@ -2653,14 +2207,9 @@ LA AVENTUROJ DE PINOKJO
 —Mi promesis al vi, nun ĉio dependas de vi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 26 Pinokjo iras kun siaj kunlernantoj al la marbordo por vidi la teruran ŝarkon La sekvan tagon Pinokjo iris al la elementa lernejo.
 
-Imagu tiujn knabojn bubojn, kiam ili vidis enpaŝi marioneton en la lernejon! Eksonis ridego, kiu ne volis ĉesi. Iu faris al li ian ŝercon, dua alian ŝercon: ĉi tiu forprenis lian bereton el la mano, tiu tiris lian jaketon de malantaŭe; kelkaj provis pentri grandajn lipharojn al li 128
-
-LA AVENTUROJ DE PINOKJO
+Imagu tiujn knabojn bubojn, kiam ili vidis enpaŝi marioneton en la lernejon! Eksonis ridego, kiu ne volis ĉesi. Iu faris al li ian ŝercon, dua alian ŝercon: ĉi tiu forprenis lian bereton el la mano, tiu tiris lian jaketon de malantaŭe; kelkaj provis pentri grandajn lipharojn al li
 
 
 sub la nazo per , kaj eĉ estis knabo, kiu aŭdacis ligi ŝnurojn sur la piedoj kaj manoj por dancigi lin.
@@ -2681,9 +2230,7 @@ Fakto estas, ke post tiu pied- kaj kubutbatoj Pinokjo tuj akiris la respekton ka
 
 Kaj ankaŭ la instruisto laŭdis lin, ĉar li ĉiam atentis, estis diligenta, saĝa, enpaŝis unua en la lernejon kaj stariĝis lasta post la fino de la instruado.
 
-La sola manko, kiun li havis, estis, ke li amikiĝis kun 129
-
-LA AVENTUROJ DE PINOKJO
+La sola manko, kiun li havis, estis, ke li amikiĝis kun
 
 
 tro multaj kamaradoj, inter kiuj estis buboj vaste konataj pro sia negranda emo al lernado kaj malemo esti eminentaj.
@@ -2692,9 +2239,7 @@ La instruisto avertis lin ĉiutage, kaj ankaŭ la bona Feino ne preterlasis diri
 
 —Atentu, Pinokjo! Tiuj viaj kamaradoj pli aŭ malpli frue prenos al vi la emon al lernado, kaj eble venigos al vi grandan malfeliĉon.
 
-—Estas nenia danĝero! — respondis la marioneto lev-ante la ŝultrojn, kaj tuŝis la frunton per la fingro, kvazaŭ por diri: ”Mi havas sufiĉan saĝon ĉi-ene!” Okazis foje, iun certan tagon, dum li iris al la lernejo, ke li renkonti-
-
-ĝis kun grupo de la kutimaj kamaradoj, kiuj iris al li kaj diris:
+—Estas nenia danĝero! — respondis la marioneto lev-ante la ŝultrojn, kaj tuŝis la frunton per la fingro, kvazaŭ por diri: ”Mi havas sufiĉan saĝon ĉi-ene!” Okazis foje, iun certan tagon, dum li iris al la lernejo, ke li renkontiĝis kun grupo de la kutimaj kamaradoj, kiuj iris al li kaj diris:
 
 —ĉu vi scias la grandan novaĵon?
 
@@ -2711,9 +2256,6 @@ La instruisto avertis lin ĉiutage, kaj ankaŭ la bona Feino ne preterlasis diri
 —Kial gravas al vi la lernejo? En la lernejon ni iros morgaŭ. Unu lecionon pli aŭ malpli, oni restas la sama azeno.
 
 —Kaj kion diros la instruisto?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —La instruisto diru, kion li volas. Lin oni pagas ĝuste por tio, ke li grumblu la tutan tagon.
@@ -2739,15 +2281,9 @@ Ricevinte la signalon por ekmarŝo, tiu bando de buboj
 — kun libroj kaj kajeroj subbrake — ĵetis sin kuri tra la kampoj; kaj Pinokjo kuris ĉiam antaŭ la bando: ŝajnis, ke anstataŭ piedoj li havas flugilojn.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 De tempo al tempo li turnis sin, mokis siajn kamaradojn postrestintajn kelkan distancon, kaj kiam li vidis, ke ili spiregas, ŝvitegas, estas polvokovritaj kaj elpendegas iliaj langoj, li ridis pri ili el la tuta gorĝo.
 
 La malfeliĉulo ne sciis en tiu momento, al kiaj teruraĵoj kaj misfortunoj li kuras renkonte.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 27 Granda batalo inter Pinokjo kaj liaj kamaradoj, unu el kiuj vundiĝas, pro kio Pinokjon arestas la ĝendarmoj Kiam Pinokjo atingis la bordon, li ĵetis rigardegojn al la maro, sed li vidis neniun ŝarkon. La maro estis tute glata, kiel granda spegulo.
@@ -2765,9 +2301,6 @@ El tiuj konfuzaj respondoj kaj aĉaj ridoj Pinokjo komprenis, ke liaj kamaradoj 
 —Sencon certe tio havis! … — respondis ˛ore tiuj aĉaj buboj.
 
 —Kaj tio estas?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Ni volis, ke vi preteriru la lernejon, kaj venu kun ni.
@@ -2794,18 +2327,13 @@ Ankaŭ ni havas memamon!
 
 —Vi vere preskaŭ ridigas min, — diris la marioneto kun kapbalanco.
 
-—Ej, Pinokjo! — kriis tiam la plej granda el la knaba-
-
-ĉoj, kaj klinis sin al la vizaĝo de Pinokjo.
+—Ej, Pinokjo! — kriis tiam la plej granda el la knabaĉoj, kaj klinis sin al la vizaĝo de Pinokjo.
 
 —Ne ludu al ni la bravan koketon! Ne ludu al ni la fanfaronulon! ĉar se vi ne timas nin, ni same ne timas vin! Memoru, ke vi estas sola kaj ni sep.
 
 —Sep, kiel la mortaj pekoj, — diris Pinokjo kun granda rido.
 
 —ĉu vi aŭdis? Li insultis nin ĉiujn! Li nomis nin sep mortaj pekoj!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Pinokjo! Petu pardonon pro la ofendo … se ne, ve al vi!
@@ -2834,22 +2362,13 @@ Pinokjo, kvankam li estis sola, defendis sin heroe. Per siaj piedoj el plej malm
 
 Kien liaj piedoj povis atingi kaj tuŝi, tie ĉiufoje ili lasis bluaĵon por rememoro.
 
-Kiam la knaboj, koleraj, ke ili ne povas mezuri la fortojn korpo al korpo kun la marioneto, ekpensis utiligi aliajn armilojn: ili malligis siajn lernejajn librofaskojn, kaj komencis pluvigi kontraŭ Pinokjon abocolibrojn, legolibrojn, ekzercokajerojn, gramatikojn kaj aliajn ler-135
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-nejajn librojn: sed la marioneto, kiu havis rapidajn kaj viglajn okulojn, ĝustatempe flankenigis la kapon, tiel ke la libroj preterflugis super lia kapo, kaj ĉiuj falis en la maron.
+Kiam la knaboj, koleraj, ke ili ne povas mezuri la fortojn korpo al korpo kun la marioneto, ekpensis utiligi aliajn armilojn: ili malligis siajn lernejajn librofaskojn, kaj komencis pluvigi kontraŭ Pinokjon abocolibrojn, legolibrojn, ekzercokajerojn, gramatikojn kaj aliajn lernejajn librojn: sed la marioneto, kiu havis rapidajn kaj viglajn okulojn, ĝustatempe flankenigis la kapon, tiel ke la libroj preterflugis super lia kapo, kaj ĉiuj falis en la maron.
 
 Imagu la fiŝojn! La fiŝoj kredis, ke la libroj estas io por manĝi, kaj ili naĝis amase sur la akvosurfacon; sed post kiam ili enbuŝigis kelkajn paĝojn kaj kovrilojn, ili tuj elkraĉis ilin, mistiris la buŝon, kvazaŭ ili volus diri: ”Ne estas aĵo por ni: ni alkutimiĝis multe pli bone nutri nin!”
 
 Intertempe la batalo fariĝis ĉiam pli arda, kiam jen granda krabo elmetis la kapon el la akvo, iom post iom el-rampis sur la strandon, kaj ekkriis kun voĉo de trombo-no raŭka:
 
 —ĉesu friponetoj, ĉar vi estas tio! ĉi tiuj pugnobata-loj inter knaboj malofte finiĝas bone. Io malfeliĉa ĉiam okazas.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Malfeliĉa Krabo! Kvazaŭ li predikus al muro. Eĉ tiu bubo Pinokjo, kiu turnis sin malantaŭen kun malbonvo-la rigardo, diris al li malĝentile:
@@ -2872,18 +2391,14 @@ Vidante tiun mortinteton la timiĝintaj knaboj forkuris, kaj post kelkaj minutoj
 
 Sed Pinokjo restis tie, kvankam pro la doloro kaj teruriĝo ankaŭ li estis pli morta ol viva, sed malgraŭ tio li kuris por trempi sian nazotukon en la marakvon, kaj pansi la tempiojn de sia malfeliĉa lerneja kamarado. Kaj intertempe li ploris torente kaj senespere, kaj vokadis lin per lia nomo dirante:
 
-—Eŭgeno! Kompatinda Eŭgeno mia! Malfermu la 137
-
-LA AVENTUROJ DE PINOKJO
+—Eŭgeno! Kompatinda Eŭgeno mia! Malfermu la
 
 
 okulojn, kaj rigardu al mi! Kial vi ne respondas? Ne estis mi, ĉu vi scias, kiu faris al vi tiun malbonon! Kredu al mi, ne estis mi! … Malfermu la okulojn, Eŭgeno! Se vi tenos la okulojn fermitaj, vi mortigos ankaŭ min … Ho, Dio mia! kiel mi reiros hejmen? … Kiel mi povus aperi antaŭ mia bona panjo? Kio nun estos kun mi? Kien mi forkuru? … Kie mi povos kaŝi min? … Oj! kiom pli bone, milfoje pli bone estus iri al la lernejo! … Kial mi obeis al miaj kamaradoj, kiuj estas por mi damniĝo? … La instruisto ja admonis min! … kaj panjo ripetis same: ”Gardu vin de la malbonaj kamaradoj!” Sed mi estas obstina …
 
 malcedema … mi lasas ĉiujn paroli, kaj poste mi ĉiam agas laŭ mia plaĉo! Kaj sekve mi devas pentopagi … De kiam mi ekzistas en ĉi tiu mondo, eĉ kvaronhoron mi ne faris ion bonan. Dio mia! Kio estos el mi, kio estos el mi, kio estos el mi?
 
-Kaj Pinokjo ploris, blekis sen ĉeso, batis sian kapon per pugnoj kaj vokadis per la nomo la malfeliĉan Eŭ-
-
-genon; kiam neatendite li ekaŭdis bruon de proksimi-
+Kaj Pinokjo ploris, blekis sen ĉeso, batis sian kapon per pugnoj kaj vokadis per la nomo la malfeliĉan Eŭgenon; kiam neatendite li ekaŭdis bruon de proksimi-
 
 ĝantaj paŝoj.
 
@@ -2897,13 +2412,7 @@ Li returnis sin: estis du ĝendarmoj.
 
 —ŝajnas, ke jes!
 
-—ĉu misfartas! — diris unu el la ĝendarmoj, kiu kli-138
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-niĝis kaj observis Eŭgenon de proksime. — ĉi tiu knabo vundiĝis ĉe la tempio: kiu lin vundis?
+—ĉu misfartas! — diris unu el la ĝendarmoj, kiu kliniĝis kaj observis Eŭgenon de proksime. — ĉi tiu knabo vundiĝis ĉe la tempio: kiu lin vundis?
 
 —Ne mi, — balbutis la marioneto, kiu apenaŭ povis spiri.
 
@@ -2920,9 +2429,6 @@ Kaj la marioneto levis de sur la tero la Lernolibron de Aritmetiko, binditan en 
 —Kies estas ĉi tiu libro?
 
 —Mia.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Tiom sufiĉas: nenio plu necesas. Stariĝu tuj, kaj venu kun ni.
@@ -2950,9 +2456,6 @@ Liaj okuloj vidis ĉion duoble: la gamboj tremis, la lango gluiĝis al la palato
 Ili alvenis kaj volis ĝuste eniri la vilaĝon, kiam forta blovo deŝiris la bereton de la kapo de Pinokjo, kaj portis ĝin dek paŝojn for.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —ĉu vi bonvolas permesi, — petis la marioneto la
 
 ĝendarmojn, — ke mi iru preni mian bereton?
@@ -2964,25 +2467,17 @@ La marioneto iris, prenis la bereton … sed anstataŭ remeti ĝin sur la kapon,
 La ĝendarmoj juĝis, ke estus malfacile atingi lin, incitis do post lin grandan buldogon, kiu gajnis la unuan premion en ĉiuj hundovetkuroj. Pinokjo kuris, kaj la hundo kuris pli: kaj pro tio la tuta vilaĝo iris scivoleme al la fenestroj, kaj ariĝis meze de la strato por vidi la finon de tiu arda konkurso. Sed vane ili rigardis: ĉar la buldogo kaj Pinokjo levis laŭlonge de la strato tian pol-vegon, ke post kelkaj minutoj nenio estis videbla.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 28 Pinokjon trafas danĝero
 
 esti fritita en pato kiel fiŝo Dum tiu senespera kurado estis terura momento, en kiu Pinokjo kredis, ke li estas perdita. ĉar necesas scii, ke Alidoro (tio estis la nomo de la buldogo) dum la freneza kurado preskaŭ atingis lin. Sufiĉas diri, ke la marioneto sentis post si, en manlarĝa distanco la pezan spiregon de tiu bestaĉo, kaj sentis eĉ la varman elspiraĵon.
 
-Feliĉe la strando estis nun proksima, kaj la maro vidi-
-
-ĝis kelkajn paŝojn de tie.
+Feliĉe la strando estis nun proksima, kaj la maro vidiĝis kelkajn paŝojn de tie.
 
 Apenaŭ li estis ĉe la marbordo, la marioneto faris belan salton, kian povus produkti nur ranoj, kaj falis en la mezon de la akvo. Alidoro, male, volis halti; tamen la elano plupuŝis lin, do ankaŭ li ĵetiĝis en la akvon. Kaj tiu malfeliĉulo ne kapablis naĝi, pro kio li komencis barakti per la piedoj por resti sur la surfaco: sed ju pli li baraktis, des pli li profundiĝis kun la kapo en la akvon.
 
 Kiam la malfeliĉa hundo ree elakvigis la kapon, li havis timplenajn kaj ruliĝantajn okulojn, kaj bojis kaj kriis:
 
 —Mi dronos, mi dronos!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Krevu! — respondis al li Pinokjo de malproksime, ĉar li nun sentis sin sekura kontraŭ ĉiuj danĝeroj.
@@ -2997,18 +2492,13 @@ Je tiuj korŝiraj krioj la marioneto, kiu cetere havis bonegan koron, moviĝis a
 
 —Mi promesas! Mi promesas! Movu vin, pro Dio, ĉar se vi malfruos ankoraŭ duonminuton, mi certe mortos.
 
-Pinokjo iomete hezitis, tamen li rememoris, ke lia paĉ-
-
-jo ofte diris al li, ke fari bonan agon neniam malutilas, kaj li komencis naĝi por atingi Alidoron, li kaptis lin ambaŭmane ĉe la vosto, kaj eltiris lin sendifekta kaj sekura sur la sekan sablon de la marbordo.
+Pinokjo iomete hezitis, tamen li rememoris, ke lia paĉjo ofte diris al li, ke fari bonan agon neniam malutilas, kaj li komencis naĝi por atingi Alidoron, li kaptis lin ambaŭmane ĉe la vosto, kaj eltiris lin sendifekta kaj sekura sur la sekan sablon de la marbordo.
 
 La malfeliĉa hundo ne povis stariĝi sur la piedoj. Malgraŭvole li trinkis tiom da salakvo, ke li pufiĝis kiel pilk-ego. Aliflanke la marioneto ne volis tro fidi al li, kaj opi-niis konsilinde resalti en la maron; kaj foriĝinte de la bordo, li rekriis al la savita amiko:
 
 —Adiaŭ, Alidoro, iru feliĉe, kaj mi salutas la hejmanojn.
 
 —Adiaŭ, Pinokjo, — respondis la hundo, — mi tre dankas, ke vi liberigis min el la certa morto. Vi faris al mi grandan servon: kaj en ĉi tiu mondo kiu regalas per bona koro, dankiĝas per favoro, por bono atendu bonon. Se venos okazo por tio, ni priparolos la aferon.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Pinokjo plunaĝis, kaj tenis sin daŭre proksime al la bordo: finfine ŝajnis al li, ke li atingis sekuran lokon.
@@ -3029,10 +2519,7 @@ Kiam la fiŝisto eltiris la reton el la maro, li kriis tre kontente:
 
 —Bonŝance mi ne estas fiŝo! — diris Pinokjo al si, iom kuraĝigite.
 
-La reton, plenan de fiŝoj la fiŝisto portis en la malluman kaj trafumumitan groton, en kies mezo bolis oleo 144
-
-
-LA AVENTUROJ DE PINOKJO
+La reton, plenan de fiŝoj la fiŝisto portis en la malluman kaj trafumumitan groton, en kies mezo bolis oleo
 
 
 en granda pato, eliganta odoron sufokan de fumanta kandelo.
@@ -3041,9 +2528,7 @@ en granda pato, eliganta odoron sufokan de fumanta kandelo.
 
 —Bonaj estas ĉi tiuj trigloj! — li diris, kaj observis kaj flaris ilin kun plezuro. Kaj flarinte, li ĵetis ilin en kuvon sen akvo.
 
-Poste li ripetis la saman agon; kaj post ke li iom post 145
-
-LA AVENTUROJ DE PINOKJO
+Poste li ripetis la saman agon; kaj post ke li iom post
 
 
 iom elprenis ĉiujn fiŝojn, li sentis kunflui la salivon en la buŝo, kaj ĝojoplene li diris:
@@ -3081,22 +2566,15 @@ Mi estas vera marioneto!
 —ĉu manĝi min? ĉu vi bonvolus kompreni, ke mi ne estas fiŝo? Aŭ ĉu vi ne aŭdas, ke mi parolas kaj pensas, kiel vi?
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Pura vero, — aldonis la fiŝisto, — kaj ĉar mi vidas, ke vi estas fiŝo, kiu havas la bonŝancon paroli kaj pensi, kiel mi, mi volas doni al vi decan trakton.
 
 —Kaj tiu ĉi trakto estas?
 
-—Signe de amikeco kaj aparta estimo mi lasas al vi la elekton, kiel vi volas esti fritita. ĉu vi deziras fritiĝi en pato, aŭ vi preferas friton en kaserolo kun tomata saŭ-
-
-co.
+—Signe de amikeco kaj aparta estimo mi lasas al vi la elekton, kiel vi volas esti fritita. ĉu vi deziras fritiĝi en pato, aŭ vi preferas friton en kaserolo kun tomata saŭco.
 
 —Por diri la veron, — respondis Pinokjo, — se mi devas elekti, mi preferas, ke vi lasu min libera, por ke mi povu hejmeniri.
 
-—Vi ŝercas! ĉu al vi ŝajnas, ke mi volas preterpasi la okazon gustumi tiel maloftan fiŝon? Ne ĉiutage venas marioneta fiŝo al ĉi tiuj akvoj. Lasu min fari: mi fritos vin 147
-
-LA AVENTUROJ DE PINOKJO
+—Vi ŝercas! ĉu al vi ŝajnas, ke mi volas preterpasi la okazon gustumi tiel maloftan fiŝon? Ne ĉiutage venas marioneta fiŝo al ĉi tiuj akvoj. Lasu min fari: mi fritos vin
 
 
 en pato kune kun la aliaj fiŝoj, kaj vi estos kontenta. Fritiĝo en societo estas ĉiam ĝojo.
@@ -3114,9 +2592,6 @@ Kiun, kiam li vidis sin esti tiel proksime al la morto (kaj kiel aĉa morto!), k
 La malfeliĉa fileto petegis per la okuloj! Sed la verda fiŝisto tute ne atentis lin, rulis lin kvin- aŭ sesfoje en la faruno, kaj tiel bone li farunis lin de la kapo ĝis la piedoj, ke li ŝajnis gipsofiguro. Poste li prenis lin ĉe la kapo, kaj …
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 29 Pinokjo revenas al la domo de la Feino, kiu promesas al li, ke ekde la sekva tago li ne plu estos marioneto, kaj fariĝos vera knabo. Granda kafo-lakto-trinkado por festi tiun eksterordinaran eventon
 
 uste kiam la fiŝisto volis ĵeti Pinokjon en la paton, enpaŝis en la groton granda hundo, kiun gvidis tien la tre akra kaj franda odoro de fritaĵo.
@@ -3130,9 +2605,6 @@ Sed la malfeliĉa hundo havis apetiton sufiĉan por kvar hundoj, kaj dum li murm
 —Iru for, mi diras! — ripetis la fiŝisto, kaj etendis la gambon por doni al li piedfrapon.
 
 Tiam la hundo, kiu vere malsatis, kaj ne alkutimiĝis al tia bonvenigo, turnis sin grince kontraŭ la fiŝisto, kaj montris al li siajn terurajn dentegojn.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Dume li ekaŭdis en la groto voĉeton mallaŭtan, tre mallaŭtan, kiu vokis:
@@ -3159,13 +2631,7 @@ Tiu odoreto eltiklis mian apetiton, kaj mi ekiris serĉe de
 
 ĝi. Se mi alvenus unu minuton pli malfrue!
 
-—Ne diru tion! — kriis Pinokjo, kiu ankoraŭ tremis pro la teruro. — Ne diru tion al mi! Se vi estus alvenin-150
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-ta unu minuton pli malfrue, mi nun jam estus bele fritita, manĝita kaj digestita. Brrr! … Min kaptas tremoj je la nura penso!
+—Ne diru tion! — kriis Pinokjo, kiu ankoraŭ tremis pro la teruro. — Ne diru tion al mi! Se vi estus alveninta unu minuton pli malfrue, mi nun jam estus bele fritita, manĝita kaj digestita. Brrr! … Min kaptas tremoj je la nura penso!
 
 Ridetante Alidoro etendis la dekstran piedon al la marioneto, kiu premis ĝin forte signe de granda amikeco.
 
@@ -3183,12 +2649,7 @@ La hundo daŭrigis sian vojon hejmen, kaj Pinokjo restinta sola, ekvidis kabanon
 
 —ĉu vere, verege? — kriis la marioneto, kaj eksaltis pro la ĝojo. — Do la vundo ne estis grava?
 
-—Sed ĝi povus fariĝi gravega, eĉ mortiga, — respon-151
-
-LA AVENTUROJ DE PINOKJO
-
-
-dis la maljunuleto, — ĉar oni ĵetis grandan libron binditan en kartono kontraŭ la kapon.
+—Sed ĝi povus fariĝi gravega, eĉ mortiga, — respondis la maljunuleto, — ĉar oni ĵetis grandan libron binditan en kartono kontraŭ la kapon.
 
 —Kaj kiu ĵetis ĝin?
 
@@ -3216,9 +2677,7 @@ Apenaŭ li elparolis tiujn vortojn, lia nazo mallongiĝis, kaj rehavis sian natu
 
 —Kaj kial vi tiel paliĝis? — demandis lin subite la maljunuleto.
 
-—Mi diras sincere al vi, ke mi frotiĝis al muro freŝe 152
-
-LA AVENTUROJ DE PINOKJO
+—Mi diras sincere al vi, ke mi frotiĝis al muro freŝe
 
 
 kalkita, — respondis la marioneto, ĉar li hontis konfesi, ke oni farunis lin kiel fiŝon por poste friti lin en pato.
@@ -3238,12 +2697,7 @@ Sed dumvoje li neniel sentis trankvilon: por diri la veron, li faris unu paŝon 
 Kiam li venis al la vilaĝo, jam estis malluma nokto, kaj ĉar estis veteraĉo kaj pluvis torente, li iris rekte-direkte al la domo de la Feino kun la firma intenco, ke li frapos ĉe la pordo, kaj montros sin al ŝi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
-Sed kiam li jam estis surloke, li sentis degeli la kura-
-
-ĝon, kaj anstataŭ frapi, li kuris for kelkan distancon.
+Sed kiam li jam estis surloke, li sentis degeli la kuraĝon, kaj anstataŭ frapi, li kuris for kelkan distancon.
 
 Ankaŭ duafoje li proksimiĝis al la pordo, kaj la rezulto estis nenio: li alproksimiĝis la trian fojon, kaj nenio: la kvaran fojon, kun tremanta mano, li prenis la feran por-dofrapilon, kaj faris apenaŭ aŭdeblan frapeton.
 
@@ -3282,16 +2736,11 @@ diris la Limakino. — Atendu
 tie, tuj mi malsupreniros kaj malfermos al vi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Rapidu, pro Dio, ĉar mi mortos pro malvarmo.
 
 —Knabo mia, mi estas limakino, kaj limakinoj neniam rapidas.
 
-Dume pasis horo, pasis du, kaj la pordo ne malfermi-
-
-ĝis: pro kio Pinokjo, kiu tremis de malvarmo kaj timo, kaj de la abunda pluvo, kuraĝigis sin, kaj frapis duafoje, nun pli forte.
+Dume pasis horo, pasis du, kaj la pordo ne malfermiĝis: pro kio Pinokjo, kiu tremis de malvarmo kaj timo, kaj de la abunda pluvo, kuraĝigis sin, kaj frapis duafoje, nun pli forte.
 
 Je tiu dua frapo malfermiĝis fenestro de la pli mal-supra etaĝo, kaj aperis la sama Limakino.
 
@@ -3307,22 +2756,14 @@ Tiam Pinokjo perdis la paciencon, kaj kolerege kaptis la frapilon por svingi gra
 
 —Ha tiel! — kriis Pinokjo, kiun daŭre blindigis la kolero. — Se la frapilo malaperis, mi frapos do per la piedoj.
 
-Kaj iom li retiriĝis, kaj svingis sonoran piedbaton sur 155
-
-
-LA AVENTUROJ DE PINOKJO
+Kaj iom li retiriĝis, kaj svingis sonoran piedbaton sur
 
 
 la pordon de la domo. La bato estis tiel forta, ke lia piedo enpuŝiĝis meze en la lignon: kaj kiam la marioneto provis ĝin eltiri, lia peno estis tute senutila: ĉar la piedo fiksiĝis ene, kiel enbatita najlo.
 
 Imagu al vi la malfeliĉan Pinokjon! Kiel pasigi la tutan restintan nokton kun unu piedo sur la tero kaj la alia en la aero.
 
-Matene, ĉe sunleviĝo la pordo fine malfermiĝis. Tiu brava besto limakino bezonis nur naŭ horojn por mal-156
-
-LA AVENTUROJ DE PINOKJO
-
-
-suprenveni de la kvara etaĝo ĝis la enirejo. Oni devas rimarki, ke ŝi tutkorpe ŝvitegis!
+Matene, ĉe sunleviĝo la pordo fine malfermiĝis. Tiu brava besto limakino bezonis nur naŭ horojn por malsuprenveni de la kvara etaĝo ĝis la enirejo. Oni devas rimarki, ke ŝi tutkorpe ŝvitegis!
 
 —Kion vi faras kun tiu piedo en la pordo? — ridante ŝi demandis la marioneton.
 
@@ -3348,9 +2789,7 @@ Kaj fakte, post tri kaj duona horoj Pinokjo vidis ŝin reveni kun arĝenta pleto
 
 ĉe la vido de tia Di-donaco la marioneto sentis snsoliĝi. Sed kiel granda estis lia trompiĝo, kiam kom-encante manĝi li devis rimarki, ke la pano estis el gipso, la kokinaĵo el kartono kaj la kvar abrikotoj el alabastro, farbitaj kvazaŭ naturaj!
 
-Li volis plori, volis cedi sin al senesperiĝo, volis forĵeti 157
-
-LA AVENTUROJ DE PINOKJO
+Li volis plori, volis cedi sin al senesperiĝo, volis forĵeti
 
 
 la pleton kaj kio surestis: sed anstataŭ tio, ĉu pro la granda doloro, ĉu pro la granda malpleno en la stomako, li falis svene.
@@ -3376,9 +2815,6 @@ Malfeliĉe, en la vivo de marionetoj ĉiam troviĝas iu
 ”sed”, kiu fuŝas ion.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 30 Anstataŭ fariĝi knabo, Pinokjo sekrete ekiras kun sia amiko Meĉo al Senfario Memkompreneble, Pinokjo tuj petis permeson de la Feino iri tra la urbo por inviti siajn kamaradojn.
 
 La Feino lin admonis:
@@ -3402,9 +2838,6 @@ La Feino lin admonis:
 —Ni vidos, ĉu vi diras la veron.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Sen aldoni ion pli, la marioneto salutis sian bonan Feinon, kiu estis por li kiel amema patrino, kaj kantante, dancante, li eliris tra la dompordo.
 
 Post apenaŭ pli ol horo, ĉiujn liajn amikojn kaj kun-lernantojn li invitis. Kelkaj tuj akceptis la inviton kun bona koro, kelkaj komence lasis sin peti, sed kiam ili eksciis, ke la panoj por la kafolakto estas ŝmiritaj ankaŭ aliflanke, ili fine diris senescepte: ”Ankaŭ ni venos gra-tuli vin.” Nun oni devas scii, ke inter siaj amikoj kaj kunlernantoj Pinokjo havis unu tre ŝatatan kaj plej karan, kiun oni nomis Romeo, sed ĉiuj vokis lin nur kromno-me Meĉo pro lia figuro seka, senkarna kaj fosteca, simila al nova meĉo de noktolampo.
@@ -3424,9 +2857,6 @@ De kie elhoki lin? Li serĉis tie, serĉis aliloke, fine li ekvidis lin kaŝiĝi
 —Kaj mi serĉis vin trifoje en via hejmo!
 
 —Kaj kion vi volas de mi?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉu vi ne scias pri la granda evento? ĉu vi ne scias pri la feliĉo, kiu min trafis?
@@ -3454,14 +2884,9 @@ LA AVENTUROJ DE PINOKJO
 —Senfario ĝi nomiĝas. Kial ne venos ankaŭ vi?
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —ĉu mi? Ne, mi ne. Vere!
 
-—Vi malpravas, Pinokjo! Kredu min; se vi ne venos, vi pentos tion. Kie vi trovus pli sanigan landon por ni, knaboj? Tie ne ekzistas lernejoj, malestas instruistoj, fore-stas libroj. En tiu benata lando oni neniam lernas. ĵaŭ-
-
-de ne estas instruado; kaj ĉiu semajno konsistas el ses ĵaŭdoj kaj unu dimanĉo. Imagu, la aŭtunaj ferioj komenciĝas la unuan de januaro, kaj finiĝas kun la lasta tago de decembro. Jen lando, kiu vere plaĉas al mi! Jen kiaj devus esti ĉiuj landoj civilizitaj!
+—Vi malpravas, Pinokjo! Kredu min; se vi ne venos, vi pentos tion. Kie vi trovus pli sanigan landon por ni, knaboj? Tie ne ekzistas lernejoj, malestas instruistoj, fore-stas libroj. En tiu benata lando oni neniam lernas. ĵaŭde ne estas instruado; kaj ĉiu semajno konsistas el ses ĵaŭdoj kaj unu dimanĉo. Imagu, la aŭtunaj ferioj komenciĝas la unuan de januaro, kaj finiĝas kun la lasta tago de decembro. Jen lando, kiu vere plaĉas al mi! Jen kiaj devus esti ĉiuj landoj civilizitaj!
 
 —Kaj kiel oni pasigas la tagojn en Senfario?
 
@@ -3480,9 +2905,6 @@ de ne estas instruado; kaj ĉiu semajno konsistas el ses ĵaŭdoj kaj unu diman�
 —Atendu du minutojn.
 
 —Mi tro malfruos.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Nur du minutetojn.
@@ -3530,9 +2952,6 @@ LA AVENTUROJ DE PINOKJO
 —Kiel bela lando! — suspiris Pinokjo, kaj sentis kunflui la salivon en la buŝo. — Kiel bela lando! Mi neniam estis tie, sed mi povas imagi ĝin!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Kial ne venos ankaŭ vi?
 
 —Senutile tenti min! Mi jam promesis al mia bona Feino, ke mi fariĝos prudenta knabo, kaj mi ne volas rompi mian promeson.
@@ -3570,9 +2989,6 @@ Poste li decideme aldonis haste-rapide:
 —Mi jam malfruas! … kaj reiri hejmen unu horon pli aŭ malpli frue egalas.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Malfeliĉa Pinokjo! Kaj se la Feino krios al vi?
 
 —Ne gravas! Mi lasos ŝin krii. Kiam ŝi ĝissate krios, ŝi trankviliĝos.
@@ -3594,15 +3010,9 @@ Dume fariĝis nokto, nigra nokto, kiam subite ili vidis moviĝi en la malproksim
 —Kiel bela lando! … Ho belega lando!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 31 Post kvin monatoj de senfarado, je sia konsterno Pinokjo sentas kreski belan paron da azenoreloj, kaj li fariĝas vera azeneto kun vosto kaj ĉio cetera Fine la veturilo alvenis: ĝi alvenis sen la plej eta bruo, ĉar la radoj estis vinditaj en stupoj kaj ĉifonoj. in tiris dek du paroj da azenetoj, ĉiuj de la sama grando, sed kun diversaj feloj.
 
 Kelkaj estis grizaj, aliaj blankaj, ĉi tiuj arĝente grize-caj, tiuj striitaj kun grandaj flavaj kaj bluaj linioj.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Sed la plej strange estis, ke tiuj dekdu paroj aŭ dudek kvar azenetoj, anstataŭ esti hufumitaj, kiel ĉiuj ordina-raj tirbestoj aŭ azenoj, havis homajn botojn el blanka bovinledo sur la piedoj.
@@ -3615,18 +3025,13 @@ Apenaŭ la knaboj ekvidis lin, tuj ĉiuj enamiĝis al li, kaj vete saltadis sur 
 
 Vere, la veturilo jam kreve plenis de infanoj inter ok kaj dek du jaroj, kiuj sidis dense, kiel fiŝoj en ladskato-lo. Ili malbone fartis, kunpremiĝis, kaj apenaŭ povis spiri: sed neniu diris ”oj!”, neniu plendis. La espero, ke post kelkaj horoj ili alvenos al lando, kie estas nek libroj, nek lernejoj, nek instruistoj, faris ilin tiel kontentaj kaj toleremaj, ke ili sentis nek ĝenojn, nek penojn, nek malsaton, nek soifon, nek dormemon.
 
-Apenaŭ la veturilo haltis, la hometo turnis sin al Me-
-
-ĉo, kaj demandis lin kun mil kaĵoloj kaj kliniĝoj:
+Apenaŭ la veturilo haltis, la hometo turnis sin al Meĉo, kaj demandis lin kun mil kaĵoloj kaj kliniĝoj:
 
 —Diru al mi, bela knabo, ĉu ankaŭ vi volas veni en tiun feliĉan landon?
 
 —Jes ja, mi volas.
 
 —Sed mi atentigas vin, karuleto, ke en la veturilo ne plu estas loko. Kiel vi vidas, ĝi plene plenas!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Ne gravas! — respondis Meĉo. — Se mankas loko ene, mi sidiĝos sur la stangojn de la veturilo.
@@ -3645,9 +3050,7 @@ Kaj li suprensaltis, kaj lokiĝis rajde sur la stangoj.
 
 —Ne, ne, ne!
 
-—Venu kun ni, kaj ni estos gajaj, — kriis kvar aliaj vo-
-
-ĉoj el-ene de la veturilo.
+—Venu kun ni, kaj ni estos gajaj, — kriis kvar aliaj voĉoj el-ene de la veturilo.
 
 —Venu kun ni, kaj ni estos gajaj, — blekis ĉiuj cent voĉoj kune el la veturilo.
 
@@ -3668,9 +3071,6 @@ Sed por montri al vi, kiel kara vi estas, mi cedos al vi mian lokon sur la benko
 —Mi iros piede.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Ne, vere, tion mi ne permesas. Prefere mi sidiĝos sur la gropo de iu el ĉi tiuj azenetoj! — kriis Pinokjo.
 
 Dirite, farite, li paŝis al la dekstra azeneto de la unua paro, kaj volis sursidiĝi: sed la besteto turnis sin neatendite, kaj donis fortan muzelbaton en lian ventron, kaj renversis lin gamboĉielen.
@@ -3685,9 +3085,7 @@ Kaj la salto estis tiel bela, ke la knaboj — kiuj ĉesis ridi
 
 — komencis krii: ”Vivu, Pinokjo!” kaj laŭte aplaŭdis, ŝaj-ne sen fino.
 
-Kaj tiam la azeneto abrupte levis ambaŭ siajn postajn 169
-
-LA AVENTUROJ DE PINOKJO
+Kaj tiam la azeneto abrupte levis ambaŭ siajn postajn
 
 
 krurojn, kaj per elana puŝo deĵetis la malfeliĉan marioneton vojmezen, sur ŝtoneramason.
@@ -3708,9 +3106,7 @@ Meĉo ronkis kiel dormomuso, kaj la hometo sur la benko kantetis tra la dentoj:
 
 Post traveturo de alia duonkilometro Pinokjo aŭdis la saman mallaŭtan voĉeton, kiu diris al li:
 
-—Memoru, stultuleto! La knabojn, kiuj ĉesas lerni kaj turnas la dorson al la libroj, lernejo kaj instruistoj por dediĉi sin tute al ludoj kaj amuzoj, ne povas trafi alio ol malfeliĉa fino! … Mi scias tion el propra sperto! … kaj mi 170
-
-LA AVENTUROJ DE PINOKJO
+—Memoru, stultuleto! La knabojn, kiuj ĉesas lerni kaj turnas la dorson al la libroj, lernejo kaj instruistoj por dediĉi sin tute al ludoj kaj amuzoj, ne povas trafi alio ol malfeliĉa fino! … Mi scias tion el propra sperto! … kaj mi
 
 
 povas rakonti tion al vi! Venos tago, kiam ankaŭ vi ploros, kiel nun mi ploras … sed tiam estos malfrue!
@@ -3733,11 +3129,7 @@ Kaj imagu, kiel li miris, kiam li rimarkis, ke la azeneto ploras … kaj ploris 
 
 Pinokjo obeis sen respondi. La veturilo ree ekiris: kaj matene, ĉe sunleviĝo, ili feliĉe alvenis al Senfario.
 
-ĉi tiu lando similis al neniu alia en la mondo. ia loĝ-
-
-antaro konsistis nur el geknaboj. La plej aĝaj apenaŭ havis dekkvar jarojn, la plej junaj apenaŭ ok. Kaj sur la stratoj regis gajo, bruo, petolado, tute ĝis freneziĝo! Bandoj de buboj ĉie: iuj ludis per nuksoj, aliaj per disketoj, triaj per pilkoj, iu iris bicikle, alia sur lignoĉevalo: ĉi tiuj blindoludis, tiuj persekutoludis, aliaj en klaŭnaj vestoj 171
-
-LA AVENTUROJ DE PINOKJO
+ĉi tiu lando similis al neniu alia en la mondo. ia loĝantaro konsistis nur el geknaboj. La plej aĝaj apenaŭ havis dekkvar jarojn, la plej junaj apenaŭ ok. Kaj sur la stratoj regis gajo, bruo, petolado, tute ĝis freneziĝo! Bandoj de buboj ĉie: iuj ludis per nuksoj, aliaj per disketoj, triaj per pilkoj, iu iris bicikle, alia sur lignoĉevalo: ĉi tiuj blindoludis, tiuj persekutoludis, aliaj en klaŭnaj vestoj
 
 
 glutis bruligitan stupon, iuj recitis, aliaj kantis, iuj mortosaltis, iuj amuziĝis per marŝado sur la manoj kun gamboj alĉiele, aliaj celĵetis ringojn, iuj promenis en generala vestaĵo kun paperkasko kaj skadro el kartono, aliaj ridis, iuj kriis, aliaj vokis, iuj kunfrapis la manojn, aliaj fajfis, kaj fine estis iuj, kiuj imitis kokinojn, eligante ovojn: su-me estis tia konfuzo, babilbruo kaj diabla tumulto, ke oni devis ŝtopi la orelojn per vato por ne surdiĝi. Sur ĉiuj placoj vidiĝis teatraj tendoj, plenplenaj de geknaboj de mateno ĝis vespero, kaj sur ĉiuj muroj de la domoj oni povis legi tiel belajn aferojn en karba skribo, kiel: Vivu la musoj! (anstataŭ amuzoj), ni ne plu volas ternejojn (anstataŭ lernejojn), for la ridmetikon (anstataŭ aritme-tikon) kaj aliajn similajn spritaĵojn.
@@ -3748,10 +3140,7 @@ Meze de senĉesaj ŝercoj kaj variaj amuzoj la horoj, tagoj kaj semajnoj pasis f
 
 —Ho, kiel bela vivo, — diris Pinokjo ĉiufoje, se li hazarde renkontiĝis kun Meĉo.
 
-—Vidu, ĉu mi ne pravis? — respondis Meĉo per demando. — Se mi pensas, ke vi ne volis veni! Kaj ke vi metis al vi en la kapon, reiri en la domon de via Feino, kaj perdi la tempon per lernado! Tion, ke hodiaŭ vi estas li-berigita de la tedaj libroj kaj lernejo, vi ŝuldas al mi, al 172
-
-
-LA AVENTUROJ DE PINOKJO
+—Vidu, ĉu mi ne pravis? — respondis Meĉo per demando. — Se mi pensas, ke vi ne volis veni! Kaj ke vi metis al vi en la kapon, reiri en la domon de via Feino, kaj perdi la tempon per lernado! Tion, ke hodiaŭ vi estas li-berigita de la tedaj libroj kaj lernejo, vi ŝuldas al mi, al
 
 
 miaj konsiloj, al miaj urĝoj, ĉu vi konsentas? Nur veraj amikoj kapablas je tiaj grandaj bonfaroj.
@@ -3762,15 +3151,10 @@ miaj konsiloj, al miaj urĝoj, ĉu vi konsentas? Nur veraj amikoj kapablas je ti
 
 —Granda animo! — diris Pinokjo, kaj ĉirkaŭbrakis ameme sian amikon, kaj kisis lin sur la frunto.
 
-Intertempe jam pasis kvin monatoj, dum daŭris tiu 173
-
-LA AVENTUROJ DE PINOKJO
+Intertempe jam pasis kvin monatoj, dum daŭris tiu
 
 
 restado en la fabellando de ludoj kaj amuzoj tuttagaj, sen vidi eĉ unu libron, nek unu lernejon, kiam iun matenon Pinokjo vekiĝis kaj trafis lin — kiel oni kutimas diri — aĉa surprizo, kiu agordis lin al malbona humoro.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 32 Azenoreloj kreskas al Pinokjo, kaj poste li fariĝas vera azeneto kaj komencas iai
@@ -3788,12 +3172,7 @@ Vi scias, ke la marioneto havis ekde naskiĝo tre-tre malgrandajn orelojn: tiel 
 Tuj li iris serĉi spegulon por rigardi sin; sed li ne trovis, do li plenigis lavujon per akvo, kaj en la spegulbil-do li ekvidis tion, kion neniam li estus volinta vidi: li ja vidis sian kapon ornamitan per majesta paro da azenoreloj.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
-Mi lasas vin imagi la doloron, honton kaj senesperi-
-
-ĝon de la kompatinda Pinokjo.
+Mi lasas vin imagi la doloron, honton kaj senesperiĝon de la kompatinda Pinokjo.
 
 Li komencis plori, krii, frapi la kapon kontraŭ la muron; sed ju pli li senesperiĝis, des pli liaj oreloj kreskis, kreskadis, kaj fariĝis harplenaj ĉe la pintoj.
 
@@ -3807,9 +3186,7 @@ Pro la bruo kaj akraj krioj envenis en la ĉambron bela marmoteto, kiu loĝis en
 
 —Palpu do, ĉu mi havas febron!
 
-La Marmoteto levis la dekstran antaŭan piedon, palpis la pulson de Pinokjo, kaj diris al li kun suspiro: 176
-
-LA AVENTUROJ DE PINOKJO
+La Marmoteto levis la dekstran antaŭan piedon, palpis la pulson de Pinokjo, kaj diris al li kun suspiro:
 
 
 —Amiko, kontraŭ mia plaĉo mi devas diri al vi malbonan novaĵon!
@@ -3843,9 +3220,6 @@ Sciu do, ke post du aŭ tri horoj vi ne plu estos marioneto, nek knabo …
 —Bedaŭrinde estas tiel! Kaj nun la ploro ne utilas. Pli frue vi devus pensi!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Sed ne estas mia kulpo: la kulpo, kredu, Marmoteto, estas tute de Meĉo!
 
 —Kaj kiu estas ĉi tiu Meĉo?
@@ -3861,9 +3235,6 @@ Venu prefere kun mi en Senfarion: tie ni ne plu lernos, tie ni amuziĝos de mate
 Kaj li ekiris por eldomiĝi. Sed sur la sojlo li ekmemoris, ke li havas azenorelojn, kaj hontante montri ilin al la publiko, jen kion li elpensis? Li prenis grandan kotonan ĉapon, metis ĝin sur la kapon kaj malsuprentiris ĝin ĝis la nazopinto.
 
 Poste li eliris, kaj komencis serĉi Meĉon en ĉiuj anguloj. Li serĉis lin sur la stratoj, sur la placoj, en la teat-roj, en ĉiuj ejoj kaj lokoj: sed li ne trovis lin.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Tiam li hejmeniris por serĉi lin tie, kaj veninte al la pordo, li frapis sur ĝi:
@@ -3887,9 +3258,6 @@ Kaj ŝajnigante, ke li nenion rimarkis, demandis lin kun rideto:
 —Bonege: kiel kuko en butero!
 
 —ĉu vi diras tion serioze?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Kial mi devus al vi mensogi?
@@ -3933,9 +3301,6 @@ Fine la marioneto diris per mielflua kaj flatema voĉo al sia kamarado:
 —Kial ne? Sed unue mi volus vidi viajn, kara Pinokjo.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Ne: unua devas esti vi.
 
 —Ne, karulo! Unue vi, poste mi!
@@ -3954,16 +3319,9 @@ Kaj Pinokjo komencis nombri laŭte:
 
 —Unu, du, tri! ĉe la vorto ”tri” ambaŭ knaboj deprenis la ĉapon de la kapo, kaj suprenĵetis ĝin.
 
-Kaj tiam okazis sceno, kiu ŝajnus nekredebla, se ĝi ne estus vera. Okazis nome, ke Pinokjo kaj Meĉo vidis, ke la sama malfeliĉo plagas ilin, kaj anstataŭ honti kaj be-181
+Kaj tiam okazis sceno, kiu ŝajnus nekredebla, se ĝi ne estus vera. Okazis nome, ke Pinokjo kaj Meĉo vidis, ke la sama malfeliĉo plagas ilin, kaj anstataŭ honti kaj bedaŭri, ili komencis movi siajn enorme kreskintajn orelojn, kaj post multaj nedecaĵoj, ili eksplodis en sonoran ridegon.
 
-LA AVENTUROJ DE PINOKJO
-
-
-daŭri, ili komencis movi siajn enorme kreskintajn orelojn, kaj post multaj nedecaĵoj, ili eksplodis en sonoran ridegon.
-
-Kaj ili ridis, ridadis tiom, ke preskaŭ ili renversiĝis, sed meze de la pleja rido, Meĉo abrupte ĉesis, kaj ŝanceli-
-
-ĝante kaj ŝanĝante koloron, diris al sia amiko:
+Kaj ili ridis, ridadis tiom, ke preskaŭ ili renversiĝis, sed meze de la pleja rido, Meĉo abrupte ĉesis, kaj ŝanceliĝante kaj ŝanĝante koloron, diris al sia amiko:
 
 —Helpu, helpu min, Pinokjo!
 
@@ -3984,9 +3342,6 @@ En tiu momento oni frapis ĉe la pordo, kaj voĉo de ekstere vokis:
 —Malfermu! Mi estas la Hometo, kiu kondukis vin en ĉi tiun landon. Tuj malfermu, aŭ ve al vi!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 33 Pinokjo fariĝas vera azeno kaj forkondukiĝas por vendado, lin aĉetas Direktoro de klaŭna trupo por instrui lin danci kaj salti tra ringoj; sed li lamiĝas iun vesperon, kaj aĉetas lin aliulo por fari tamburon el lia felo ĉar la Hometo vidis, ke la pordo ne malfermiĝas, li enrompis ĝin per piedfrapego, kaj enpaŝinte en la ĉambron, li diris al Pinokjo kaj Meĉo kun sia kutima rideto:
 
 —Bravaj knaboj! Bone vi blekis, mi tuj rekonis vin laŭ la voĉo. Kaj jen pro tio mi venis.
@@ -3998,15 +3353,9 @@ Unue la Hometo karesis, glatumis, palpetis ilin, poste elprenis pajlofaskon kaj 
 Kaj fakte, aĉetontoj ne longe lasis sin atendi.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Meĉo estis vendita al kamparano, kies tirbesto mortis unu tagon pli frue, kaj Pinokjon aĉetis Direktoro de klaŭna kaj ŝnurdancista trupo kun la celo dresi lin, kaj saltigi kaj dancigi lin kune kun la aliaj bestoj de la trupo.
 
 ĉu vi nun jam komprenas, karaj miaj malgrandaj le-gantoj, kiun metion la Hometo praktikis? ĉi tiu malgranda monstraĉo kun miele dolĉa mieno vagadis de tempo al tempo tra la mondo per sia veturilo: dumvoje li kolektis per promesoj kaj kaĵoloj ĉiujn malemajn knabojn, kiuj tediĝis de libroj kaj lernejo: kaj li sidigis ilin sur sian veturilon, portis ilin al Senfario, por ke ili pasigu sian tempon per ludoj, distriĝoj kaj amuzoj. Kiam tiuj malfeliĉaj knaboj iluziitaj — pro furioza amuziĝemo kaj nelernemo — azeniĝis, li gaje kaj kontentege prenis kaj kondukis ilin por vendi ilin en bazaroj kaj foiroj. Kaj tiel, dum kelkaj jaroj li gajnis amason da mono, kaj iĝis mi-lionulo.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Mi ne scias, kio okazis kun Meĉo: mi nur scias, ke Pinokjon trafis ekde la unuaj tagoj plej malfacila kaj peni-ga vivo.
@@ -4015,9 +3364,7 @@ Pinokjon atendis ekde la unuaj tagoj dura kaj ŝvitiga vivo.
 
 Kiam la mastro kondukis lin en la stalon, li plenigis la manĝujon per pajlo: sed post kiam Pinokjo gustumis buŝplenon da ĝi, li elkraĉis ĝin.
 
-Tiam la mastro inter multaj grumbloj plenigis la man-
-
-ĝujon per fojno: sed ankaŭ la fojno ne plaĉis al li.
+Tiam la mastro inter multaj grumbloj plenigis la manĝujon per fojno: sed ankaŭ la fojno ne plaĉis al li.
 
 —Ha! ĉu eĉ la fojno ne plaĉas al vi? — kriis kolere la mastro. Ne zorgu, bela azeneto, se vi havas kapricojn en la kapo, mi volonte elpelos ilin al vi!
 
@@ -4035,9 +3382,7 @@ Pro la doloro Pinokjo komencis plori kaj bleki kaj diris iae:
 
 Je tiu dua vipobato Pinokjo — pro prudento — tuj ĉesis, kaj diris nenion plu.
 
-Dume la mastro fermis la stalon, kaj Pinokjo restis 185
-
-LA AVENTUROJ DE PINOKJO
+Dume la mastro fermis la stalon, kaj Pinokjo restis
 
 
 sola: kaj ĉar jam pasis multaj horoj, de kiam li manĝis, li oscedegis pro la granda malsato.
@@ -4058,24 +3403,22 @@ Tiam li prenis buŝplenon da pajlo: sed dum li morda-dis ĝin, li devis rimarki,
 
 —Ne gravas? Via bleko ne gravas! — kriis la mastro, kiu en tiu momento enpaŝis en la stalon. — ĉu vi eble kredas, mia bela azeneto, ke mi aĉetis vin nur por vin manĝigi kaj trinkigi? Mi aĉetis vin, por ke vi laboretu, kaj mi gajnu multan monon. Ek do nu, vigle! Venu kun mi en la Cirkon, tie mi instruos vin salti tra ringoj, rompi paperbarilon per la kapo, kaj danci valson kaj polkon starante sur la malantaŭaj piedoj.
 
-La kompatinda Pinokjo — ĉu eme aŭ treme — devis 186
-
-LA AVENTUROJ DE PINOKJO
+La kompatinda Pinokjo — ĉu eme aŭ treme — devis
 
 
 lerni ĉiujn ĉi belegajn aferojn. Sed por lerni ilin, necesis tri monatoj da lecionoj kaj multaj vipobatoj feloŝiraj.
 
 Fine alvenis la tago, en kiu lia mastro povis anonci la vere eksterordinaran spektaklon. La multkoloraj afiŝoj sur ĉiuj anguloj de la stratoj tekstis jene: GRANDA FESTPREZENTADO
 
-ĉI-VESPERE VIDEBLOS
+ĈI-VESPERE VIDEBLOS
 
 LA KUTIMAJ SALTOJ
 
 KAJ SURPRIZAJ EKZERCOJ
 
-DE ĉIUJ ARTISTOJ
+DE ĈIUJ ARTISTOJ
 
-KAJ DE ĉIUJ ĉEVALOJ
+KAJ DE ĈIUJ ĈEVALOJ
 
 EL AMBAŭ SEKSOJ
 
@@ -4100,18 +3443,13 @@ LA TEATREJO ESTOS
 TAGHELE LUMIGITA.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Tiun vesperon, vi povas imagi, jam unu horon antaŭ la komenco de la spektaklo la spektejo estis plenplena.
 
 Ne troviĝis libera unu foteleto, unusola bona loko, ununura loĝio — eĉ se oni pagus per oro.
 
 La benkoj de la Cirko svarmis de knaboj kaj knabinoj, infanoj de ĉiuj aĝoj, kiuj febre deziregis vidi, kiel dancas la fama azeneto Pinokjo.
 
-Kiam la unua parto de la prezentado finiĝis, la Direktoro de la trupo en nigra jako, blanka pantalono kaj ĝis-genuaj ledobotoj prezentis sin al la multnombrega publiko, faris profundan klinon, kaj diris kun alta solene-co la sekvan konfuzan paroladon: ”Estimata publiko, kavaliroj kaj damoj! Mi, humila subskribinto — trapasan-te ĉi tiun elstaran metroon … hm … —polon — volis pro-friti la honoron, kaj ne malpli la plezuron prezenti al ĉi tiu inteligenta kaj rimarkinda aŭdantaro faman azeneton, kiu jam havis la honoron danci antaŭ Iliaj Reĝaj kaj Imperiestraj Moŝtoj de ĉiuj ĉefaj kaj grafaj kortumoj de Eŭropo. Kaj dankante ilin helpu al ni per via animiga ĉeesto plezurigi nin!” Oni akceptis tiun paroladon kun multaj ridoj kaj aplaŭdoj: sed la aplaŭdoj duobliĝis kaj fariĝis iaspeca uragano, kiam la azeneto Pinokjo aperis meze de la Cirko. Li estis feste ornamita. Sur la kapo li havis novan bridon el brila ledo kun latunaj fiboloj kaj najloj; en la oreloj du blankajn kameliojn, la kolhararo estis kombita en multajn buklojn, kiuj estis ligitaj per rozkoloraj silkaj bantoj; granda or- kaj arĝentkolora 188
-
-LA AVENTUROJ DE PINOKJO
+Kiam la unua parto de la prezentado finiĝis, la Direktoro de la trupo en nigra jako, blanka pantalono kaj ĝis-genuaj ledobotoj prezentis sin al la multnombrega publiko, faris profundan klinon, kaj diris kun alta solene-co la sekvan konfuzan paroladon: ”Estimata publiko, kavaliroj kaj damoj! Mi, humila subskribinto — trapasan-te ĉi tiun elstaran metroon … hm … —polon — volis pro-friti la honoron, kaj ne malpli la plezuron prezenti al ĉi tiu inteligenta kaj rimarkinda aŭdantaro faman azeneton, kiu jam havis la honoron danci antaŭ Iliaj Reĝaj kaj Imperiestraj Moŝtoj de ĉiuj ĉefaj kaj grafaj kortumoj de Eŭropo. Kaj dankante ilin helpu al ni per via animiga ĉeesto plezurigi nin!” Oni akceptis tiun paroladon kun multaj ridoj kaj aplaŭdoj: sed la aplaŭdoj duobliĝis kaj fariĝis iaspeca uragano, kiam la azeneto Pinokjo aperis meze de la Cirko. Li estis feste ornamita. Sur la kapo li havis novan bridon el brila ledo kun latunaj fiboloj kaj najloj; en la oreloj du blankajn kameliojn, la kolhararo estis kombita en multajn buklojn, kiuj estis ligitaj per rozkoloraj silkaj bantoj; granda or- kaj arĝentkolora
 
 
 bendo ĉirkaŭis lian talion, la vosto estis traplektita per sangoruĝaj kaj lazuraj rubandoj el veluro.
@@ -4121,9 +3459,6 @@ Unuvorte, li estis amindega azeneto!
 Por prezenti lin al la publiko, la Direktoro aldonis ĉi tiujn vortojn: ”Miaj estimataj aŭskultantoj! Mi venis, ne por diri al vi mensogojn pri la grandaj malfacilaĵoj, kiujn mi devis superi por kunpreni kaj subjugiĝi tiun mambe-ston, dum ĝi libere paŝtiĝis de monto al monto sur la ebenaĵoj de la varmega klimato. Observu, mi vin petas, kia sovaĝeco elradias el ĝiaj okuloj, sekve de kio sukcesis vanaj ĉiuj metodoj de dresado, kies celo estis, ke li vivu dece, kiel la ceteraj civilizitaj kvarpieduloj, tiel do mi devis turni min plurfoje al la afabla lingvo de la vipo.
 
 Sed mia ĝentileco — anstataŭ amigi min, — plej malfa-vore efikis al mia animo. Sed mi sekvis la sistemon de Galles, kaj trovis en ia kranio malgrandan kartilagon ostan, kiun mem la Mediĉea Fakultato de Parizo rekonis kiel regeneran bulbon de haroj kaj stabila dancado. Kaj pro tio mi volis ĝin instrui pri dancado, kaj ne malpli pri la rilataj traringa saltado kaj trarompado de paperbari-loj. Admiru ĝin, kaj vi mem juĝu! Sed antaŭ ol ade-ami vin, permesu al mi, gesinjoroj, inviti vin al la taga spektaklo por morgaŭ vespere: sed sub-pozante, ke la pluveca vetero eble minacus akvon, la spektaklo anstataŭ morgaŭ vespere prokrastiĝos al morgaŭ, la dekunua horo antaŭtagmeza de la posttagmezo.” Kaj tiam la Direktoro faris alian profundegan klinon: kaj turnante sin al Pinokjo li diris:
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Kuraĝon, Pinokjo! Ek, komencu viajn ekzercojn, salutu ĉi tiun respektindan publikon, kavalirojn, damojn kaj infanojn!
@@ -4139,9 +3474,6 @@ Post kelka tempo la Direktoro vokis:
 —Troto! — kaj Pinokjo obeante al la ordono, ŝanĝis la marŝon al troto.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Galopo! — kaj Pinokjo transiris al galopo.
 
 —Kurego! — kaj Pinokjo ĵetiĝis kuri kun plej granda rapideco. Sed dum li freneze kuregis, la Direktoro levis la brakon, kaj ekpafis per la pistolo.
@@ -4150,9 +3482,7 @@ Je tiu pafo la azeneto — kvazaŭ vundita — falsterniĝis en la Cirko, kaj ŝ
 
 Kiam li releviĝis de sur la tero meze de eksplodo de aplaŭdoj, krioj kaj manoklakoj, atingantaj la stelojn, li devis kompreneble levi la kapon kaj suprenrigardi, kaj dum li tion faris, li ekvidis en loĝio belan sinjorinon, kiu havis sur la kolo grandan oran kolĉenon, de kiu pendis medaliono. Sur la medaliono estis la pentrita portreto de marioneto.
 
-—Tiu portreto estas la mia! … tiu sinjorino estas la Feino! — diris al si Pinokjo, kiam li tuj rekonis ŝin: kaj lin ekregis granda ĝojo, kaj li provis krii: 191
-
-LA AVENTUROJ DE PINOKJO
+—Tiu portreto estas la mia! … tiu sinjorino estas la Feino! — diris al si Pinokjo, kiam li tuj rekonis ŝin: kaj lin ekregis granda ĝojo, kaj li provis krii:
 
 
 —Ho, Feineto mia! Ho, Feineto mia!
@@ -4172,9 +3502,6 @@ Li ekhavis la senton, ke li tuj mortos: liaj okuloj pleniĝis de larmoj, kaj li 
 Pinokjo provis du-tri fojojn: sed ĉiufoje, kiam li alvenis antaŭ la ringon, anstataŭ salti tra ĝi, li oportuneme preterpasis sub ĝi. Fine li puŝis sin antaŭen, kaj trasaltis: sed malfeliĉe, liaj postaj gamboj implikiĝis en la ringo, kaj li falis kiel malplena sako sur la teron en la alia flanko.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Kiam li rektiĝis, li estis lamigita, kaj nur pene li povis reiri al la stalo.
 
 —Eksteren, Pinokjon! Ni volas la azeneton! Eksteren la azeneton! — kriis la infanoj de la partero, kiuj ekkompatis lin, kaj tuŝiĝis ĝiskore pro la malfeliĉa okazaĵo.
@@ -4185,9 +3512,7 @@ La sekvan matenon la veterinaro aŭ bestkuracisto, post kiam li ekzamenis lin, d
 
 Tiam la Direktoro ordonis al la staloknabo:
 
-—Kion vi volas, ke mi faru kun lama azeno? Panman-
-
-ĝulo sen utilo. Konduku ĝin al la placo, kaj vendu ĝin.
+—Kion vi volas, ke mi faru kun lama azeno? Panmanĝulo sen utilo. Konduku ĝin al la placo, kaj vendu ĝin.
 
 Kiam ili alvenis al la placo, tuj troviĝis aĉetonto, kiu demandis la staloknabon:
 
@@ -4202,13 +3527,7 @@ Mi lasas vin imagi, infanoj, kian plezuron sentis la malfeliĉa Pinokjo, kiam li
 Fakto estas, ke apenaŭ la aĉetanto elpagis la dudek monerojn, li kondukis la azeneton sur rokon ĉe la marbordo, fiksis ŝtonon al ĝia kolo, ligis unu el ĝiaj piedoj per ŝnuro, kiun li tenis fikse en la mano, kaj abrupte li depuŝis la malfeliĉan beston en la akvon.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Pinokjo — kun tiu rokopeco sur la kolo, tuj sinkis sur la fundon; kaj la aĉetinto kun la streĉe tenita ŝnuro en la mano, sidiĝis sur roko, kaj atendis, ke dume la azeneto dronu, kaj li povu ĝin senfeligi.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 34 Post la ĵeto en la maron fiŝoj manĝas Pinokjon, kaj li refariĝas marioneto.
@@ -4219,9 +3538,7 @@ Kvindek minutojn post kiam li ĵetis la azenon en la akvon, la aĉetinto diris a
 
 —Mia malfeliĉa lama azeneto nun jam certe perfekte dronis. Ni retiru ĝin supren, kaj faru tiun belan tamburon el ĝia felo.
 
-Kaj li komencas tiri la ŝnuron, per kiu li ligis unu gambon de la azeno: kaj li tiras, tiradas ĝin … kaj fine li vidas aperi sur la surfaco … ĉu vi divenas, kion? Anstataŭ 195
-
-LA AVENTUROJ DE PINOKJO
+Kaj li komencas tiri la ŝnuron, per kiu li ligis unu gambon de la azeno: kaj li tiras, tiradas ĝin … kaj fine li vidas aperi sur la surfaco … ĉu vi divenas, kion? Anstataŭ
 
 
 mortintan azeneton, li vidas aperi vivantan marioneton, kiu baraktas kiel angilo.
@@ -4250,12 +3567,7 @@ Kiam li revenis al si el la unua surprizo, li diris plorante kaj balbutante:
 
 —Nu bone, mastro, ĉu vi volas scii la tutan historion veran? Malligu mian gambon, kaj mi ĝin rakontos al vi.
 
-Tiu bona aĉetinto-fuŝulo, scivolema ekkoni la veran historion, malligis la nodon de la ŝnuro, kiu tenis Pinok-196
-
-LA AVENTUROJ DE PINOKJO
-
-
-jon mallibera: kaj tiam Pinokjo, libera kiel birdo, komencis rakonti jene sian historion:
+Tiu bona aĉetinto-fuŝulo, scivolema ekkoni la veran historion, malligis la nodon de la ŝnuro, kiu tenis Pinokjon mallibera: kaj tiam Pinokjo, libera kiel birdo, komencis rakonti jene sian historion:
 
 —Sciu do, ke ĉiam mi estis ligna marioneto, kiel nun; sed mi jam estis pli-malpli baldaŭ fariĝonta knabo vera, kiel la ceteraj infanoj, se pro mia malmulta emo al lernado kaj sekvado de malbonaj kamaradoj mi ne estus forkurinta el mia hejmo … kaj kiam mi vekiĝis iun belan tagon, mi trovis min ŝanĝita en azenon kun tiel longaj oreloj … kaj kun tiel longa vosto! … Kia honto estis! …
 
@@ -4265,25 +3577,15 @@ Kara mastro, honto, kian eĉ vi neniam sentis dum la tuta vivo! Oni kondukis min
 
 —Ne senesperiĝu, mastro. Da azenetoj estas tro multe en ĉi tiu mondo!
 
-—Diru al mi, bubo impertinenta, ĉu via historio fini-
+—Diru al mi, bubo impertinenta, ĉu via historio finiĝas ĉi tie?
 
-ĝas ĉi tie?
-
-—Ne, — respondis la marioneto, — Iom ankoraŭ dir-indas, poste fino. Post kiam vi aĉetis min, vi kondukis min ĉi tien por mortigi min, tamen vi lasis konvinki vin de la sento de kompatemo, kaj vi prefere ligis ŝtonon sur mian kolon, kaj ĵetis min sur la fundon de la maro. ĉi tiu delikata sento multe honoras vin, kaj neniam mi for-197
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-gesos ĝin. Aliflanke, mia kara mastro, ĉi tiun fojon vi ne kalkulis kun la Feino …
+—Ne, — respondis la marioneto, — Iom ankoraŭ dir-indas, poste fino. Post kiam vi aĉetis min, vi kondukis min ĉi tien por mortigi min, tamen vi lasis konvinki vin de la sento de kompatemo, kaj vi prefere ligis ŝtonon sur mian kolon, kaj ĵetis min sur la fundon de la maro. ĉi tiu delikata sento multe honoras vin, kaj neniam mi forgesos ĝin. Aliflanke, mia kara mastro, ĉi tiun fojon vi ne kalkulis kun la Feino …
 
 —Kaj kiu estas ĉi tiu Feino?
 
 —ŝi estas mia panjo, kiu similas al ĉiu el tiuj bonaj panjoj, kiuj tre amas siajn filojn, kaj neniam perdas ilin el la vido, kaj helpas ilin amoplene en ĉiuj malfeliĉoj, an-kaŭ kiam ĉi tiuj infanoj pro sia senbrideco kaj malbona konduto meritus esti forpuŝitaj kaj forlasitaj al si mem.
 
-Mi do volis rakonti, ke apenaŭ la bona Feino vidis min en danĝero tuj droni, sendis ĉirkaŭ min amasegon da fiŝoj, kiuj kredis min vera azeno mortinta, kaj komencis 198
-
-LA AVENTUROJ DE PINOKJO
+Mi do volis rakonti, ke apenaŭ la bona Feino vidis min en danĝero tuj droni, sendis ĉirkaŭ min amasegon da fiŝoj, kiuj kredis min vera azeno mortinta, kaj komencis
 
 
 min manĝi! Kaj kiel grandajn mordojn ili faris! Mi neniam estus kredinta, ke la fiŝoj estas pli frandemaj ol la infanoj. Unu formanĝis al mi la orelojn, alia la muzelon, la tria la kolon kaj la kolhararon … Kelkaj manĝis la pied-felon kaj la dorsofelon, kaj inter la ceteraj estis fiŝeto tiel
@@ -4305,9 +3607,6 @@ min manĝi! Kaj kiel grandajn mordojn ili faris! Mi neniam estus kredinta, ke la
 —Revendu min do, mi ĝojas, — diris Pinokjo.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Sed apenaŭ li elparolis tion, li eksvingis sin kaj saltis en la mezon de la akvo. Kaj li naĝis gaje, foriĝis malproksimen de la bordo, kaj rekriis al la malfeliĉa aĉetinto:
 
 —Adiaŭ, mastro; se vi bezonos felon por tamburo, rememoru min!
@@ -4322,10 +3621,7 @@ Mi lasas al vi imagi, ĉu la koro de la malfeliĉa Pinokjo komencis pli forte ba
 
 Kaj ĉu vi scias, kiu estis tiu mara monstro?
 
-Tiu mara monstro estis ne pli kaj ne malpli ol la gi-ganta ŝarko, menciita plurfoje en ĉi tiu historio, kaj kiun 200
-
-
-LA AVENTUROJ DE PINOKJO
+Tiu mara monstro estis ne pli kaj ne malpli ol la gi-ganta ŝarko, menciita plurfoje en ĉi tiu historio, kaj kiun
 
 
 oni konis pro la masakroj kaj nesatigebla devoremo sub la kromnomo ”Atilo de la fiŝoj kaj fiŝistoj”.
@@ -4344,9 +3640,7 @@ Kaj Pinokjo kolektis ĉiujn siajn fortojn, duoble prenis la aeron pro la klopodo
 
 … Jen ĝi! … Rapidu pro Dio, aŭ vi perdiĝos!
 
-Kaj Pinokjo naĝis pli klopode ol iam, kaj plu, kaj plu, 201
-
-LA AVENTUROJ DE PINOKJO
+Kaj Pinokjo naĝis pli klopode ol iam, kaj plu, kaj plu,
 
 
 kaj plu, kvazaŭ flugus kuglo de pafilo. Kaj li jam estis tute ĉe la roko, kaj la kaprineto elklinis sin tute super la maron, jam etendis al li siajn antaŭpiedetojn por helpi lin el la akvo!
@@ -4365,12 +3659,7 @@ Komence Pinokjo klopodis kuraĝigi sin, sed kiam li certiĝis kaj recertiĝis, k
 
 —De kiu vi postulas, ke oni savu vin, malfeliĉulo? —
 
-diris en tiu mallumo raŭka voĉaĉo simila al misagordi-
-
-ĝinta gitaro.
-
-
-LA AVENTUROJ DE PINOKJO
+diris en tiu mallumo raŭka voĉaĉo simila al misagordiĝinta gitaro.
 
 
 —Kiu parolas? — demandis Pinokjo, kaj sentis sin ri-gidiĝi pro la teruro.
@@ -4408,9 +3697,6 @@ demandis la marioneto.
 —Imagu: ĝia korpo pli longas ol unu kilometro, ne kalkulante la voston.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 Dum ili tiel interparoladis en la mallumo, ŝajnis al Pinokjo, ke li vidas fore-fore ian helon.
 
 —Kio povas esti tiu fora-malproksima lumeto? — demandis Pinokjo.
@@ -4430,9 +3716,6 @@ Dum ili tiel interparoladis en la mallumo, ŝajnis al Pinokjo, ke li vidas fore-
 —Kiu scias? … Pli bone eĉ ne pensi pri tio!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 35 En la korpo de la ŝarko Pinokjo retrovas … nu, kiun li retrovas? Legu tiun ĉi ĉapitron, kaj vi ekscios.
 
 Apenaŭ Pinokjo diris adiaŭ al sia bona amiko Tinuso, li ekiris balanciĝante meze de tiu mallumo, kaj direktis sin palpe, paŝo post paŝo tra la korpo de la ŝarko al tiu eta lumo, kiu briletis fore-malproksime.
@@ -4441,10 +3724,7 @@ Kaj dum la marŝado li sentis, ke liaj piedoj glitadas en flako de graseca kaj m
 
 Kaj ju pli li antaŭeniĝis, des pli la helo fariĝis brila, distingebla. Fine post longa marŝado li atingis ĝin, kaj atinginte ĝin, kion li trovis? Vi povas diveni inter mil ebloj: li trovis tableton primetitan kun bruligita kandelo en verda vitrobotelo kaj ĉe la tableto maljunuleton tute blankan, kvazaŭ li estus el neĝo aŭ batita kremo. Li manĝis kelkajn vivantajn fiŝetojn, sed tiel vivajn, ke dum li manĝis ilin, ili eĉ elglitis el lia buŝo.
 
-Je tiu vidaĵo la malfeliĉa Pinokjo ekhavis tiel grandan kaj neatenditan ĝojon, ke ne multo mankis, ke li falu en 205
-
-
-LA AVENTUROJ DE PINOKJO
+Je tiu vidaĵo la malfeliĉa Pinokjo ekhavis tiel grandan kaj neatenditan ĝojon, ke ne multo mankis, ke li falu en
 
 
 deliron. Li volis ridi, volis plori, volis diri amasegon da aferoj; sed anstataŭ tio li langumis konfuze kaj balbutis stumpajn kaj nerekoneblajn vortojn. Finfine li sukcesis eligi krion el la gorĝo, kaj disetendis la brakojn, ĵetis sin ĉirkaŭ la kolon de la maljunuleto, kaj kriis feliĉe:
@@ -4453,16 +3733,10 @@ deliron. Li volis ridi, volis plori, volis diri amasegon da aferoj; sed anstata�
 
 —Do miaj okuloj diras al mi la veron! — ekparolis la maljunuleto, viŝante al si la okulojn. — Do estas vi mem, mia kara Pinokjo?
 
-—Jes ja, jes ja, estas mi! Ho, paĉjeto mia, kiel bona vi 206
-
-LA AVENTUROJ DE PINOKJO
+—Jes ja, jes ja, estas mi! Ho, paĉjeto mia, kiel bona vi
 
 
-estas! … Kaj pensu, ke mi, male … Ho, ĉu vi scias, kiom da malfeliĉoj pluvis sur mian kapon, kaj kiom da aferoj misiris al mi! Imagu, tiun tagon, kiam vi, malfeliĉa paĉ-
-
-jeto aĉetis al mi abocolibron preze de via mantelo, por ke mi povu iri al la lernejo, kaj mi misiris por vidi la marionetojn, kaj la marionetisto volis min ĵeti sur la fajron, por ke lia ŝafaĵo rostiĝu ruĝeca, kaj la sama marionetisto donis al mi poste kvin orajn monerojn, ke mi portu ilin al vi, sed mi trafis la Vulpon kaj la Katon, kiuj kondukis min al la gastejo ”Ruĝa Krabo”, kie ili manĝegis kiel maldikegaj lupoj, kaj kiam mi ekiris sola en la nokto, mi trafis murdistojn, kiuj ĵetis sin kure post mi, kaj mi for, kaj ili ĉiam poste, kaj mi for, kaj ili ree poste, kaj fine ili pendigis min sur branĉon de la Granda Kverko, de kie la bela Bluhara Knabino ordonis forpreni min en kaleŝo, kaj la kuracistoj, kiam ili ekzamenis min, tuj diris: ”Se li ne mortis, tio estas signo de tio, ke li ankoraŭ vivas”, kaj tiam elglitis mensogo el mia buŝo, kaj mia nazo komencis kreski, kaj mi ne povis eliri tra la pordo de la ĉambro, post kio mi foriris kun la Vulpo kaj Kato por subterigi la kvar orajn monerojn, ĉar unu mi elspezis en la gastejo, kaj la Papago komencis ridi pri mi, kaj kiam mi reiris por la dumil moneroj, mi trovis neniom, kaj kiam la Juĝisto eksciis, ke oni priŝtelis min, li tuj metigis min en malliberejon por rekompenci la ŝtelistojn, kaj kiam mi foriris de tie, mi vidis belan grapolon de vinberoj sur kampo, kie min prenis kaptilo, kaj la kamparano pro dia ideo metis hundokolumon sur min, por ke mi gardu la koke-207
-
-LA AVENTUROJ DE PINOKJO
+estas! … Kaj pensu, ke mi, male … Ho, ĉu vi scias, kiom da malfeliĉoj pluvis sur mian kapon, kaj kiom da aferoj misiris al mi! Imagu, tiun tagon, kiam vi, malfeliĉa paĉjeto aĉetis al mi abocolibron preze de via mantelo, por ke mi povu iri al la lernejo, kaj mi misiris por vidi la marionetojn, kaj la marionetisto volis min ĵeti sur la fajron, por ke lia ŝafaĵo rostiĝu ruĝeca, kaj la sama marionetisto donis al mi poste kvin orajn monerojn, ke mi portu ilin al vi, sed mi trafis la Vulpon kaj la Katon, kiuj kondukis min al la gastejo ”Ruĝa Krabo”, kie ili manĝegis kiel maldikegaj lupoj, kaj kiam mi ekiris sola en la nokto, mi trafis murdistojn, kiuj ĵetis sin kure post mi, kaj mi for, kaj ili ĉiam poste, kaj mi for, kaj ili ree poste, kaj fine ili pendigis min sur branĉon de la Granda Kverko, de kie la bela Bluhara Knabino ordonis forpreni min en kaleŝo, kaj la kuracistoj, kiam ili ekzamenis min, tuj diris: ”Se li ne mortis, tio estas signo de tio, ke li ankoraŭ vivas”, kaj tiam elglitis mensogo el mia buŝo, kaj mia nazo komencis kreski, kaj mi ne povis eliri tra la pordo de la ĉambro, post kio mi foriris kun la Vulpo kaj Kato por subterigi la kvar orajn monerojn, ĉar unu mi elspezis en la gastejo, kaj la Papago komencis ridi pri mi, kaj kiam mi reiris por la dumil moneroj, mi trovis neniom, kaj kiam la Juĝisto eksciis, ke oni priŝtelis min, li tuj metigis min en malliberejon por rekompenci la ŝtelistojn, kaj kiam mi foriris de tie, mi vidis belan grapolon de vinberoj sur kampo, kie min prenis kaptilo, kaj la kamparano pro dia ideo metis hundokolumon sur min, por ke mi gardu la koke-207
 
 
 jon, sed poste li rekonis mian senkulpecon kaj lasis min foriri, kaj la Serpento kun la fumanta vosto komencis ridi, kaj ŝiriĝis vejno en lia brusto, kaj tiel mi reiris al la domo de la bela Knabino, kiu jam mortis, kaj kiam la Kolombo vidis, ke mi ploras, li diris al mi: ”Mi vidis vian paĉjon, kiu fabrikas al si ŝipeton por serĉi vin”, kaj mi diris al li: ”Ho, se ankaŭ mi havus flugilojn! Kaj li diris al mi: ”ĉu vi volas veni al via paĉjo?” — kaj mi respondis al li: ”Jes ja! Sed kiu min alportos?” — kaj li diris al mi:
@@ -4476,9 +3750,6 @@ jon, sed poste li rekonis mian senkulpecon kaj lasis min foriri, kaj la Serpento
 —Ekde tiu tago jam proksimume du jarojn, kiuj ŝajnis al mi du jarcentoj, Pinokjo mia!
 
 —Kaj kiel vi povis resti viva? Kaj kie vi trovis kandelon? Kaj alumetojn por bruligi ĝin, kiu donis ilin al vi?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —Nu, mi rakontos ĉion laŭvice. Vi devas scii, ke la tempesto, kiu renversis mian ŝipeton, alfundigis ankaŭ komercan ŝipon. ĉiuj maristoj saviĝis, sed la ŝipo sinkis funden. La sama ŝarko, kiu en tiu tago havis eksterordinaran apetiton, post mi englutis ankaŭ la ŝipon …
@@ -4501,12 +3772,7 @@ LA AVENTUROJ DE PINOKJO
 
 —ĉu gravas … Vi sidiĝos rajde sur miajn ŝultrojn, kaj mi, kiu estas bona naĝanto, portos vin alborde.
 
-—Iluzioj, filo mia! — respondis epeto, kaj skuis la ka-209
-
-LA AVENTUROJ DE PINOKJO
-
-
-pon malgaje ridetante. — ĉu ŝajnas eble al vi, ke marioneto, apenaŭ unu metron alta, kiel vi, povas havi tiom da forto, ke li portu min naĝe sur la ŝultroj al la bordo?
+—Iluzioj, filo mia! — respondis epeto, kaj skuis la kapon malgaje ridetante. — ĉu ŝajnas eble al vi, ke marioneto, apenaŭ unu metron alta, kiel vi, povas havi tiom da forto, ke li portu min naĝe sur la ŝultroj al la bordo?
 
 —Provu, kaj vi vidos! Malgraŭ ĉio, se estas skribite en la ĉielo, ke ni devas morti, ni havos almenaŭ la grandan konsolon, ke ni mortos brakumante unu la alian.
 
@@ -4522,10 +3788,7 @@ Oni devas scii, ke la ŝarko, kiu estis tre maljuna, kaj suferis je astmo kaj tr
 
 Dirite kaj farite: ili ekiris tra la gorĝo de la mara monstro, kaj kiam ili alvenis al tiu grandega buŝo, ili komencis marŝi piedfingre sur la lango, kiu estis tiel longa, ke
 
-ĝi similis al ĝardena vojo. Kaj ili jam pretigis por sin ĵeti 210
-
-
-LA AVENTUROJ DE PINOKJO
+ĝi similis al ĝardena vojo. Kaj ili jam pretigis por sin ĵeti
 
 
 en la maron, kiam en la plej bela momento la ŝarko ek-ternegis, kaj pro la terno tiel forte ĝi ekskuiĝis, ke Pinokjo kaj epeto reflugis en la fundon de stomako de la monstro.
@@ -4545,15 +3808,9 @@ Pro la granda falpuŝiĝo la kandelo estingiĝis, kaj patro kaj filo restis en m
 Dirinte tion, Pinokjo prenis la manon de sia paĉjo, kaj marŝante kune sur piedfingroj, ili trairis la gorĝon de la monstro. Poste ili pasis laŭlonge de la tuta lango, kaj trapaŝis la tri dentovicojn. Antaŭ ol elsalti, la marioneto diris al sia paĉjo:
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Grimpu rajde sur miajn ŝultrojn, kaj brakumu min forte! Pri la cetero zorgos mi mem.
 
 Apenaŭ epeto lokis sin oportune sur la ŝultroj de la filo, Pinokjo, tre certa pri sia afero, ĵetis sin en la akvon, kaj komencis naĝi. La maro estis glata, kiel oleo, la luno helis en sia tuta brilo, kaj la ŝarko daŭre dormis tiel profunde, ke eĉ kanonpafo ne povus ĝin veki.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 36 Finfine Pinokjo ĉesas esti marioneto kaj fariĝas knabo
@@ -4570,9 +3827,7 @@ Eble iomete de unu, iomete de la alia. Pinokjo diris por kuraĝigi lin:
 
 La malfeliĉa Pinokjo ŝajnigis havi bonan humoron, sed fakte male: li komencis senkuraĝiĝi, liaj fortoj mal-pliiĝis, lia spiro fariĝis peza kaj sufoka … sume li ne povis plu, kaj la bordo ankoraŭ estis malproksime.
 
-Li naĝis, dum li havis spiron: poste li returnis la kapon al epeto, kaj diris per interrompata voĉo: 213
-
-LA AVENTUROJ DE PINOKJO
+Li naĝis, dum li havis spiron: poste li returnis la kapon al epeto, kaj diris per interrompata voĉo:
 
 
 —Paĉjo, helpu min … ĉar mi mortos!
@@ -4605,16 +3860,12 @@ epeto kaj Pinokjo — kiel vi povas imagi, — tuj akceptis la inviton, sed anst
 
 Kiam ili alvenis al la bordo, Pinokjo elsaltis kiel unua sur la teron por singarde elhelpi sian paĉjon, poste li turnis sin al la Tinuso, kaj kun emocia voĉo diris al li:
 
-—Amiko mia, vi savis mian paĉjon! Do mi ne havas 214
-
-LA AVENTUROJ DE PINOKJO
+—Amiko mia, vi savis mian paĉjon! Do mi ne havas
 
 
 vortojn por sufiĉe danki vin! Permesu al mi almenaŭ, ke mi donu al vi kison signe de eterna rekono.
 
-La Tinuso elmetis la nazon el la akvo, Pinokjo genuiĝis sur la teron, kaj metis amoplenan kison sur lian bu-
-
-ŝon. Je tiu spontana kaj plej viva tenereco la malfeliĉa Tinuso, kiu ne estis alkutimiĝinta al io simila, sentis tiel profundan kortuŝiĝon, ke pro la honto, ke oni vidas lin plori kiel infanon, li subite remetis la kapon sub la akvon kaj malaperis.
+La Tinuso elmetis la nazon el la akvo, Pinokjo genuiĝis sur la teron, kaj metis amoplenan kison sur lian buŝon. Je tiu spontana kaj plej viva tenereco la malfeliĉa Tinuso, kiu ne estis alkutimiĝinta al io simila, sentis tiel profundan kortuŝiĝon, ke pro la honto, ke oni vidas lin plori kiel infanon, li subite remetis la kapon sub la akvon kaj malaperis.
 
 Dume tagiĝis.
 
@@ -4628,9 +3879,7 @@ Tiam Pinokjo proponis sian brakon al epeto, kiu apenaŭ havis spiron por rektiĝ
 
 Ili ankoraŭ ne faris cent paŝojn, kiam ili ekvidis du malbelajn figuraĉojn sidi sur la vojrando, kiuj intencis peti almozon.
 
-Tio estis la Kato kaj la Vulpo: sed ili eĉ ne similetis al siaj iamaj memoj. Imagu, la Kato, kiu tiom klopodis ŝajni blinda, fine vere blindiĝis, kaj la Vulpo maljuniĝis, ska-biiĝis, kaj eĉ la voston li perdis. Jes, tiel estis. Tiu malica ŝtelisto, kiam li falis en la plej profundan mizeron, 215
-
-LA AVENTUROJ DE PINOKJO
+Tio estis la Kato kaj la Vulpo: sed ili eĉ ne similetis al siaj iamaj memoj. Imagu, la Kato, kiu tiom klopodis ŝajni blinda, fine vere blindiĝis, kaj la Vulpo maljuniĝis, ska-biiĝis, kaj eĉ la voston li perdis. Jes, tiel estis. Tiu malica ŝtelisto, kiam li falis en la plej profundan mizeron,
 
 
 deviĝis iun tagon vendi eĉ sian belegan voston al iu mig-ranta komercisto, kiu aĉetis ĝin por fari el ĝi muŝpelilon.
@@ -4674,9 +3923,6 @@ Ni iru kaj frapu!
 Ili fakte aliris, kaj frapis sur la pordo.
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Kiu vi? — demandis voĉeto el-ene.
 
 —Ni estas malfeliĉaj paĉjo kaj filo, sen pano kaj tegmento, — respondis la marioneto.
@@ -4704,9 +3950,6 @@ Paĉjo kaj filo turnis sin al la plafono, kaj ekvidis supre, sur herbeto la Paro
 ĝentileco en la tagoj de neceso.
 
 —Vi pravas, Grileto, vi perfekte pravas, kaj mi tenos en la kapo la lecionon, kiun vi donis. Sed diru, kiel vi aĉetis ĉi tiun belan kabanon?
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉi tiun kabanon donacis al mi hieraŭ plaĉaspekta kaprino, kiu havis belegan blukoloran lanon.
@@ -4738,9 +3981,6 @@ Pinokjo kure iris al la domo de la ĝardenisto anĝo, sed tiu diris al li:
 —Glaso da lakto kostas unu groŝon. Unue donu al mi la monon!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Mi ne havas eĉ groŝeron, — respondis Pinokjo tute senespere kaj dolore.
 
 —Malbone, mia marioneto, — respondis la ĝardenisto. — Se vi ne havas eĉ groŝeron, mi ne havas eĉ guteton da lakto.
@@ -4759,12 +3999,7 @@ LA AVENTUROJ DE PINOKJO
 
 —En ordo.
 
-anĝo kondukis la marioneton en la ĝardenon kaj in-219
-
-LA AVENTUROJ DE PINOKJO
-
-
-struis al li turni la norion. Pinokjo tuj metis sin al laboro; sed antaŭ ol suprentiri la cent sitelojn da akvo el la cisterno, li naĝis en ŝvito de la kapo ĝis la piedoj. Tian penan laboron neniam li toleris.
+anĝo kondukis la marioneton en la ĝardenon kaj instruis al li turni la norion. Pinokjo tuj metis sin al laboro; sed antaŭ ol suprentiri la cent sitelojn da akvo el la cisterno, li naĝis en ŝvito de la kapo ĝis la piedoj. Tian penan laboron neniam li toleris.
 
 —is nun la noriumado estis la tasko de mia azeneto, — diris la ĝardenisto, — sed hodiaŭ tiu malfeliĉa besto venis al la fino de sia vivo.
 
@@ -4793,9 +4028,6 @@ Poste ĝi refermis la okulojn kaj suspiris.
 —Mi diros al vi la kialon: li estis mia amiko!
 
 
-LA AVENTUROJ DE PINOKJO
-
-
 —Via amiko?
 
 —Lerneja kamarado!
@@ -4808,14 +4040,9 @@ La marioneto, kiu sentis sin humiligita de tiuj vortoj, ne respondis: sed li pre
 
 Kaj ekde tiu tago dum kvin monatoj li ellitiĝis ĉiuma-tene antaŭ sunleviĝo por turni la norion kaj perlabori tiamaniere po unu glason da lakto, kiu tiel bone efikis al la malforta sanstato de lia paĉjo. Li eĉ ne kontentiĝis per tio: ĉar kun la tempo li lernis plekti korbojn kaj panujojn el junko, kaj per la ricevita mono kun multa saĝo li kovris la ĉiutagajn elspezojn. Interalie li faris elegantan ĉa-reton por promenveturigi sian paĉjon en belaj tagoj, kaj por ebligi al li spiri freŝan aeron.
 
-Kaj dum vesperoj sen laboro li ekzercis sin en la lega-do kaj skribado. En la proksima vilaĝo li aĉetis por kelkaj groŝoj grandan libron, al kiu mankis la kovrilpaĝo kaj la enhavtabelo, kaj li legadis el ĝi. Kio koncernas la skribadon, li uzis pintigitan osteton kiel plumon; kaj ĉar li havis nek n, nek ujon por ĝi, li trempis ĝin en kru-
-
-ĉeton plenan de rubus- kaj ĉerizosuko.
+Kaj dum vesperoj sen laboro li ekzercis sin en la lega-do kaj skribado. En la proksima vilaĝo li aĉetis por kelkaj groŝoj grandan libron, al kiu mankis la kovrilpaĝo kaj la enhavtabelo, kaj li legadis el ĝi. Kio koncernas la skribadon, li uzis pintigitan osteton kiel plumon; kaj ĉar li havis nek n, nek ujon por ĝi, li trempis ĝin en kruĉeton plenan de rubus- kaj ĉerizosuko.
 
 Fakto estas, ke per sia bonvola klopodo labori kaj pli-bonigi la vivon li sukcesis ne nur vivteni en bonega stato sian patron cetere malsaneman, sed li povis ankaŭ flankenmeti kvardek groŝojn por aĉeti al si novan veston.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 Iun matenon li diris al sia patro: — Mi iros al la proksima foiro por aĉeti al mi jakon, bereton kaj paron da ŝuoj. Kiam mi reiros hejmen, — li aldonis ridante, — mi estos vestita tiel bone, ke vi interŝanĝos min kun granda sinjoro.
@@ -4837,9 +4064,6 @@ Al tiuj demandoj, kiujn la marioneto faris haste-rapide, sen preni aeron, la Lim
 —En malsanulejo?
 
 —Bedaŭrinde! Pro amaso da malfeliĉoj ŝi grave malsaniĝis, kaj havas neniom por aĉeti al si pecon da pano.
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 —ĉu vere? Ve, kiel grandan doloron vi kaŭzis al mi!
@@ -4866,14 +4090,10 @@ Tiun vesperon, anstataŭ ĝis la deka, Pinokjo maldormis ĝis la noktomeza horba
 
 Poste li iris en liton kaj ekdormis. Kaj dormante ŝajnis al li, ke li vidas en sonĝo la Feinon, kiu estis tre bela kaj ridetis. ŝi donis al li kison, kaj tiel parolis al li:
 
-—Brave, Pinokjo! Dank’al via bona koro, mi pardonas 223
-
-LA AVENTUROJ DE PINOKJO
+—Brave, Pinokjo! Dank’al via bona koro, mi pardonas
 
 
-al vi ĉiujn bubaĵojn, kiujn vi faris ĝis nun. La infanoj, kiuj ameme helpas al siaj gepatroj en ilia mizero kaj malsano, meritas ĉiam grandan laŭdon kaj varman amon, eĉ se oni ne povas montri ilin kiel modelojn de obeemo kaj bona konduto. Estu saĝa en la estonteco, kaj vi estos feli-
-
-ĉa.
+al vi ĉiujn bubaĵojn, kiujn vi faris ĝis nun. La infanoj, kiuj ameme helpas al siaj gepatroj en ilia mizero kaj malsano, meritas ĉiam grandan laŭdon kaj varman amon, eĉ se oni ne povas montri ilin kiel modelojn de obeemo kaj bona konduto. Estu saĝa en la estonteco, kaj vi estos feliĉa.
 
 En tiu momento la sonĝo finiĝis, kaj Pinokjo vekiĝis kun larĝe malfermitaj okuloj.
 
@@ -4881,25 +4101,15 @@ Imagu, kiel granda estis lia miro, kiam post vekiĝo li rimarkis, ke li ne plu e
 
 Apenaŭ li vestis sin, per natura gesto li enpoŝigis la manojn, kaj eltiris de tie etan monujon el eburo, sur kiu estis ĉizitaj la sekvaj vortoj: ”La Bluhara Feino redonas la kvardek groŝojn al sia kara Pinokjo, kaj tre dankas lin por lia bona koro.” Kaj kiam li malfermis la monujon, anstataŭ kvardek kuprajn groŝojn li trovis en ĝi kvardek brilantajn zekinojn el oro.
 
-Poste li iris rigardi sin en spegulo, kaj al li ŝajnis esti iu alia. Li ne plu vidis la kutiman figuron de la ligna marioneto, sed vidis la spritan kaj inteligentan vizaĝon de knabo kun kaŝtankoloraj haroj, ĉielbluaj okuloj kaj gaja-
+Poste li iris rigardi sin en spegulo, kaj al li ŝajnis esti iu alia. Li ne plu vidis la kutiman figuron de la ligna marioneto, sed vidis la spritan kaj inteligentan vizaĝon de knabo kun kaŝtankoloraj haroj, ĉielbluaj okuloj kaj gajaĝoja vizaĝo.
 
-ĝoja vizaĝo.
-
-Meze de tiuj mirakloj, kiuj okazis unu post la alia, Pi-224
-
-
-LA AVENTUROJ DE PINOKJO
-
-
-nokjo ne sciis, ĉu li vere maldormas, aŭ ankoraŭ sonĝas kun malfermitaj okuloj.
+Meze de tiuj mirakloj, kiuj okazis unu post la alia, Pinokjo ne sciis, ĉu li vere maldormas, aŭ ankoraŭ sonĝas kun malfermitaj okuloj.
 
 —Kaj mia paĉjo, kie li estas? — li ekkriis subite, kaj enpaŝis en la apudan ĉambron, kaj li trovis la maljunan
 
 epeton sana, vigla kaj bonhumora, kiel ĉiam, kaj kiu jam ree praktikis sian profesion de lignaĵisto, kaj de-segnis ĝuste belegan kornicon plenan de folioj, floroj kaj kapetoj de diversaj bestoj.
 
-—Malkaŝu al mi misteron, paĉjo: kiel klarigeblas ĉi tiu 225
-
-LA AVENTUROJ DE PINOKJO
+—Malkaŝu al mi misteron, paĉjo: kiel klarigeblas ĉi tiu
 
 
 subita ŝanĝiĝo? — demandis lin Pinokjo, kaj saltis sur lian kolon, kaj kovris lin per mil kisoj.
@@ -4919,9 +4129,6 @@ Pinokjo turnis sin por rigardi ĝin, kaj observante ĝin momenton, li diris al s
 —Kiel ridinda mi estis kiel marioneto! … kaj kiel mi
 
 ĝojas nun, ke mi fariĝis vera knabo!
-
-
-LA AVENTUROJ DE PINOKJO
 
 
 www.omnibus.se/

@@ -3,9 +3,6 @@ Stellan Engholm
 Al Torento
 
 
-### 1
-
-
 Stellan Engholm
 
 AL TORENTO
@@ -15,27 +12,15 @@ Unua libro en la Torento-trilogio
 Lingve reviziita en 2001
 
 
-@omnibus.se
-
-·
-
-
-AL TORENTO
-
-
 I.
 
 Estis sabata vespero.
 
-La taga laboro estis finita, kaj la trankvilo de ripozo eni-
-
-ĝis en animojn kaj lacajn korpojn en la malgranda bieno sur la montdeklivo. Kaj al la homoj, kiuj nun povis rigardi la mondon sen tuja penso pri postulata laboro, estis kvazaŭ la tuta naturo kvietiĝis kiel laborinto, kies rigidaj membroj mal-streĉiĝas post peza laboro. La varmeta aero estis senmova, plena de frusomeraj bonodoroj, el la floramasoj de la ĉerizar-boj venis mallaŭta zumado de burdoj kaj abeloj. ĉasantaj hi-rundoj tranĉis la aeron sub la serena ĉielo, kaj iliaj movoj estis molaj kiel revoj de laciĝinto. Okcidente ripozis la suno en kuŝejo de purpuraj, senmovaj nubetoj.
+La taga laboro estis finita, kaj la trankvilo de ripozo eniĝis en animojn kaj lacajn korpojn en la malgranda bieno sur la montdeklivo. Kaj al la homoj, kiuj nun povis rigardi la mondon sen tuja penso pri postulata laboro, estis kvazaŭ la tuta naturo kvietiĝis kiel laborinto, kies rigidaj membroj mal-streĉiĝas post peza laboro. La varmeta aero estis senmova, plena de frusomeraj bonodoroj, el la floramasoj de la ĉerizar-boj venis mallaŭta zumado de burdoj kaj abeloj. ĉasantaj hi-rundoj tranĉis la aeron sub la serena ĉielo, kaj iliaj movoj estis molaj kiel revoj de laciĝinto. Okcidente ripozis la suno en kuŝejo de purpuraj, senmovaj nubetoj.
 
 Karlo envenis en la kuirejon. Hezite li haltis ĉe la pordo kaj turnis la rigardon al la patro, kiu sidis apud la tablo.
 
-—ĉu vi povus prunti al mi du kronojn? li demandis mal-
-
-laŭte. La patro rigardis lin silente, kvazaŭ pripensante, kaj la filo je tiu rigardo sentis iom da ĝeno pro sia dimanĉa kostumo kaj la ĵus cirumitaj ŝuoj.
+—ĉu vi povus prunti al mi du kronojn? li demandis mallaŭte. La patro rigardis lin silente, kvazaŭ pripensante, kaj la filo je tiu rigardo sentis iom da ĝeno pro sia dimanĉa kostumo kaj la ĵus cirumitaj ŝuoj.
 
 —Por kio? — li fine diris.
 
@@ -50,9 +35,6 @@ La filo iom kuntiris la brovojn.
 —Nu … sed vi ja scias same bone kiel mi, kien mi volas iri.
 
 ĉu vi volas prunti la monon al mi?
-
-
-AL TORENTO
 
 
 —La sumeto ne tre gravas. Kaj mi ne estas avara. Sed ĉu vi ne povus uzi la monon pli bone ol por viziti dancejon? Mi nur demandas.
@@ -86,9 +68,6 @@ Post momento de silento la patro turnis sin al la edzino:
 —Certe. Tamen estas strange. ĉu ni en niaj junaj tagoj bezonis monon por danci kaj amuziĝi? Sed nun? Nenia amuzo, kiu ne kostas monon; kaj amuzo, kiu ne kostas iom, ne estas amuzo plu.
 
 
-AL TORENTO
-
-
 Nur rigardu la knabinojn, nian propran Anjon ekzemple!
 
 Kiom da mono kostas la plej etaj amuzoj al ŝi! ŝi volas danci aŭ kunesti kun gejunuloj, same kiel Karlo. Bone, mi ne kontraŭdiras tion. Sed por povi tion, ŝi devas havi vestojn kaj ŝuojn kiel grafino. Kial? ĉar alie la buboj ne volas danci kun ŝi! Alie ili ne invitas ŝin al kino aŭ dancejo, alie ili ne volos edziĝi al ŝi, kiam tiu tempo venos. Kaj same la junuloj rilate al la knabinoj! Junulojn, kiuj ne povas elspezi multe da mono, la knabinoj ne volas vidi. ĉe la sovaĝuloj svatanto, laŭdire, devas pagi por la edzino. ĉe ni ambaŭ partoj devas pagi, kaj en la daŭro multe pli ol la sovaĝuloj. Diable, kia estas la mondo! —
@@ -97,12 +76,7 @@ De la malgranda bieno sur la montdeklivo la rigardo havas vastan, liberan spacon
 
 — monton post monto ĝis la malproksima loko, kie estas la pordoj de la sunsubiro. Sed en sudo la aspekto de la pejzaĝo ŝanĝiĝas. La valo tie larĝiĝas, kaj la malgranda rivero, kiu brue kaj ŝaŭme elfluas la lagon pli supre, fariĝas profunda kaj trankvila. Arbaro de betuloj kaj aliaj foliarboj kovras la deklivojn, la kampoj en la valo estas pli vastaj, la domoj pli grandaj kaj belaj. Post kelkaj kilometroj la valo tute forpuŝas la altrudemajn montojn kaj fariĝas vastega ebeno kun riĉaj teroj, kie somere la greno ondadas sur senfinaj kampoj.
 
-uste ĉe la fino de la valo estas domplena loko kun grandaj konstruaĵoj kaj altegaj fumtuboj, kiuj staras tie meze en la valo kvazaŭ gigantaj postenantoj ĉe la enirejo al la montoj kaj arbaroj. Nigraj fumnuboj ŝvebas super la loko, kaj la brue-5
-
-AL TORENTO
-
-
-gon el la uzinoj oni aŭdas je distanco de multaj kilometroj, falantan kaj altiĝantan laŭ la forto de la vento. —
+uste ĉe la fino de la valo estas domplena loko kun grandaj konstruaĵoj kaj altegaj fumtuboj, kiuj staras tie meze en la valo kvazaŭ gigantaj postenantoj ĉe la enirejo al la montoj kaj arbaroj. Nigraj fumnuboj ŝvebas super la loko, kaj la bruegon el la uzinoj oni aŭdas je distanco de multaj kilometroj, falantan kaj altiĝantan laŭ la forto de la vento. —
 
 Per rapidaj kaj facilaj paŝoj Karlo malsupreniris la vojon al la valo. Nubeto de malkontento iom malheligis la vizaĝon, kaj li fajfis iun sovaĝan marŝon, laŭ kies takto estis facile iri kaj per kiu li samtempe forblovis iom de la momenta incito.
 
@@ -116,9 +90,7 @@ Liaj trajtoj heliĝis, plenpulme li ensorbis la spicitan, vivi-gan aeron. La sov
 
 ĝisĉielaj fumtubegoj kaj gigantaj konstruaĵoj.
 
-De liaj plej fruaj jaroj Torento estis objekto de liaj junaj revoj kaj sopiroj. Li vidis ĝin de sia hejmo: ruĝajn kaj grizajn domegojn, multajn domojn, la eternan fumtavolon super ĝi, 6
-
-AL TORENTO
+De liaj plej fruaj jaroj Torento estis objekto de liaj junaj revoj kaj sopiroj. Li vidis ĝin de sia hejmo: ruĝajn kaj grizajn domegojn, multajn domojn, la eternan fumtavolon super ĝi,
 
 
 aŭdis la malproksiman, difuziĝan bruadon. Kiom da beleco kaj kiom da interesaj aferoj li atribuis al tiu ioko, kiun li tiam ankoraŭ ne vizitis!
@@ -135,12 +107,7 @@ Lia patro ne havas monon por meti lampojn apud la solecajn vojojn, la aliaj kamp
 
 Li fariĝis pli aĝa; sed Torento same sorĉe altiris al si liajn rigardojn. Li vidis ĝin en plena sunlumo de l’somero, tra la molaj, senkonturaj nebulvualoj de printempaj vesperoj. Kaj ĉiam ĝi estis same interesa, same sorĉe alloga.
 
-Tie finiĝas la senhomaj arbaroj, la sovaĝaj montoj, la mal-7
-
-AL TORENTO
-
-
-riĉaj farmetoj. Tie komenciĝas la granda, nevidita mondo, pri kiu oni povas legi en gazetoj kaj libroj, kaj pri kiu rakontas la filmoj. La granda, vera mondo estas malproksima, post la senfina ebeno en la sudo, post maroj kaj montoj. Tamen Torento apartenas al ĝi, estas ĝia lasta malgranda urbeto ĉe la enirejo al vastegaj arbaroj, kie la homoj ankoraŭ vivas tut-same kiel iliaj geavoj.
+Tie finiĝas la senhomaj arbaroj, la sovaĝaj montoj, la malriĉaj farmetoj. Tie komenciĝas la granda, nevidita mondo, pri kiu oni povas legi en gazetoj kaj libroj, kaj pri kiu rakontas la filmoj. La granda, vera mondo estas malproksima, post la senfina ebeno en la sudo, post maroj kaj montoj. Tamen Torento apartenas al ĝi, estas ĝia lasta malgranda urbeto ĉe la enirejo al vastegaj arbaroj, kie la homoj ankoraŭ vivas tut-same kiel iliaj geavoj.
 
 Tie malproksime okazas tiom da interesaj kaj neordinaraj aferoj! Tie estis la granda milito, de kiu la junulo memoras nur nutraĵkartojn, karbidlampojn, gigantajn rubrikojn en la gazetoj kaj senfinajn diskutadojn de la plenaĝuloj. Tie estas urbegoj kun lukso kaj mirigaĵoj de la moderna tempo, tie ŝvebas flugmaŝinoj super landoj kaj maroj, tie naĝas gigantaj ŝipoj. Tie estas grandaj diskutoj inter grandaj sinjoroj, kiuj gvidas la popolojn, estas bataloj inter popoloj, bataloj inter riĉuloj kaj malriĉuloj. Tie estas plenplena vivo, interesaj okazoj.
 
@@ -152,32 +119,24 @@ Samtakte kun la melodioj, kiujn la lipoj formis, sen ke li mem rimarkis tion, ne
 
 Li venis sur la ŝoseon apud la rivero kaj daŭrigis suden. La aspekto de la ĉirkaŭaĵo ŝanĝiĝis. La vojon borderis kaŝtanarboj kun blankaj florkandeloj sur fingrosimilaj folioj. Vojeto post vojeto flankeniĝis al belaj domoj kaj dometoj kun floran-taj kaj bone prizorgitaj ĝardenetoj.
 
-Kaj baldaŭ li ne plu estis sola. Unuope kaj kelkope venis 8
-
-AL TORENTO
+Kaj baldaŭ li ne plu estis sola. Unuope kaj kelkope venis
 
 
 sur la vojon gejunuloj kaj aliaj homoj, ĉiuj bele vestitaj, ĉiuj kun sinteno kaj vizaĝa esprimo de sabatvespera libereco, ĉiuj irante en la sama direkto.
 
-Kelkaj venis el apudaj domoj. Ili estis pli laŭmode vestitaj ol la aliaj, precipe la knabinoj, kaj el iliaj ŝercoj kaj liberaj ridoj, el ilia tuta sinteno oni povis tuj diveni, ke ili estas indi-
-
-ĝenoj kaj promenas sur hejma grundo.
+Kelkaj venis el apudaj domoj. Ili estis pli laŭmode vestitaj ol la aliaj, precipe la knabinoj, kaj el iliaj ŝercoj kaj liberaj ridoj, el ilia tuta sinteno oni povis tuj diveni, ke ili estas indiĝenoj kaj promenas sur hejma grundo.
 
 Aliaj alvenis de arbaraj flankvojoj, plenaj de ŝtonoj aŭ ŝli-mo, kiuj alkondukas de, Dio scias, kie. Kvankam ankaŭ tiuj estis sufiĉe bone vestitaj, oni je la unua rigardo vidis, ke ili ne apartenas al la loko. Iliaj movoj estas iom pezaj, sentenaj aŭ kvazaŭ timemaj, kelkafoje la ŝuoj portas postsignojn de dum-hora marŝado trans montojn kaj marĉojn. El iliaj okuloj, el la tutaj vizaĝoj elrigardas la malriĉeco kaj subsopiro de grandaj sovaĝejoj.
 
 Iom antaŭ la unuaj domoj de Torento ĉiuj forlasas la ŝoseon kaj suriras vojeton, kiu laŭŝajne kondukas arbaren.
 
-Tie ĉi estas pli multe da homoj. Kelkaj iras, aliaj staras en malgrandaj grupoj kaj babilas. Tie kaj tie grupetoj da junuloj kaŝeme nestas post arbetoj kaj densejoj. Se oni alproksimiĝas, oni vidas botelon pasi el mano en manon, de buŝo al buŝo, kaj nebulecaj okuloj kaj balbutantaj voĉoj atestas pri la kaŭ-
-
-zo de la kaŝemo.
+Tie ĉi estas pli multe da homoj. Kelkaj iras, aliaj staras en malgrandaj grupoj kaj babilas. Tie kaj tie grupetoj da junuloj kaŝeme nestas post arbetoj kaj densejoj. Se oni alproksimiĝas, oni vidas botelon pasi el mano en manon, de buŝo al buŝo, kaj nebulecaj okuloj kaj balbutantaj voĉoj atestas pri la kaŭzo de la kaŝemo.
 
 Subite la vojeto finiĝas antaŭ lata pordego. Super tiu estas granda ligna tabulo kun surskribo: ”Popola parko”.
 
 Karlo ekhaltis tie. Post mallonga atendo li trovis konaton, kiu pruntis al li iom da mono. Li aĉetis bileton kaj eniris.
 
-En la mezo de la parko estas sufiĉe vasta ebeno, kiu laŭvide iam estis natura herbejeto. Nun la tero estas preskaŭ senher-ba, nudigita de centoj kaj centoj da piedoj, kiuj semajnon post 9
-
-AL TORENTO
+En la mezo de la parko estas sufiĉe vasta ebeno, kiu laŭvide iam estis natura herbejeto. Nun la tero estas preskaŭ senher-ba, nudigita de centoj kaj centoj da piedoj, kiuj semajnon post
 
 
 semajno mortpremas la restantajn herbetojn. Dekstre staras granda dancpavilono, kie poluritaj blovinstrumentoj brilas kiel oro kaj eligas valson, kiu povus veki mortintojn. En la fono estas arbaro kun vojetoj, benkoj kaj tabletoj.
@@ -194,12 +153,7 @@ Kaj la sento de malegaleco transformiĝas en neklaran senton de envio, sopiro ka
 
 Sed serĉante vojon inter la dense starantaj grupoj da homoj, li baldaŭ forgesas la malagrablon. Sencele li zigzagas tien kaj tien kaj fine atingas la arbaron ĉe la alia flanko, kie li sen-decide restas, apogante la dorson kontraŭ trunko de arbo.
 
-Tie li staras ekster la svarmanta aro, kaj la malmola arbo-10
-
-AL TORENTO
-
-
-trunko iamaniere donas al li senton de sekureco, forto, mem-fido. Li pensas pri nenio. Liaj okuloj ensorbas kolorojn, li-niojn, movojn, kaj liajn orelojn plenigas simfonio de mil difuziĝaj sonoj de vortoj, ridoj, flustroj, muziko, piedfrapado, kiujn li eĉ ne provas diferencigi. Kvazaŭ en sonĝo li rigardas kaj aŭskultas kaj dume forgesas sin mem kaj ĉion alian.
+Tie li staras ekster la svarmanta aro, kaj la malmola arbotrunko iamaniere donas al li senton de sekureco, forto, mem-fido. Li pensas pri nenio. Liaj okuloj ensorbas kolorojn, li-niojn, movojn, kaj liajn orelojn plenigas simfonio de mil difuziĝaj sonoj de vortoj, ridoj, flustroj, muziko, piedfrapado, kiujn li eĉ ne provas diferencigi. Kvazaŭ en sonĝo li rigardas kaj aŭskultas kaj dume forgesas sin mem kaj ĉion alian.
 
 Kaj tiu rigardado estas lia ĉefa plezuro. Li ne tre emas danci, kaj li ne povas elspezi monon por konfitaĵoj aŭ io alia, eĉ ne deziras tion. Por li, kaj eĉ por multaj, kiuj loĝas en Torento, la nura kunesto en la popola parko estas sufiĉe da plezuro.
 
@@ -209,16 +163,9 @@ Kaj same nun. Iom post iom la kvazaŭ sonĝaj impresoj de l’bolanta vivo anta�
 
 La vido iom ŝanĝiĝas, fariĝas pli reala. Oni povas havi plezuron rigardante ĝin, sed tio estas plezuro de eksterulo. i kontentigas okulojn kaj orelojn, sed ne la altrudemajn revojn, ne la postulemon de juna sango. Finfine, kion valoras la nura alrigardo? La ludo de l’vivo antaŭ li estas bela. Sed ĝi ekha-vas sian plenan signifon kaj intereson nur, kiam oni mem fariĝas ano de la ludo.
 
-Estas kvazaŭ li vidus antaŭ si riveron, kies junaj fortoj bolas kaj ŝaŭmas en printempa libero. Kiom da tremantaj aten-11
+Estas kvazaŭ li vidus antaŭ si riveron, kies junaj fortoj bolas kaj ŝaŭmas en printempa libero. Kiom da tremantaj atendoj kaj dolĉaj revoj briletas en knabinokuloj en la duonlumo de la frusomera nokto! Kiom da vekiĝantaj sentoj tremigas kaj batigas la junajn korojn, kiom da senmakula vivoĝojo en mole plaŭdantaj ridoj kaj en molaj movoj de junaj korpoj!
 
-AL TORENTO
-
-
-doj kaj dolĉaj revoj briletas en knabinokuloj en la duonlumo de la frusomera nokto! Kiom da vekiĝantaj sentoj tremigas kaj batigas la junajn korojn, kiom da senmakula vivoĝojo en mole plaŭdantaj ridoj kaj en molaj movoj de junaj korpoj!
-
-Lampoj eklumas — bluaj, ruĝaj, verdaj. La homo plivig-
-
-liĝas, la sentoj fariĝas pli intensaj. ĉirkaŭe staras betularo en nokta trankvilo kaj silento, kaj tra verdaj kronoj brilas la luno kiel ora disko sur la helblua silko de la alta ĉielo.
+Lampoj eklumas — bluaj, ruĝaj, verdaj. La homo plivigliĝas, la sentoj fariĝas pli intensaj. ĉirkaŭe staras betularo en nokta trankvilo kaj silento, kaj tra verdaj kronoj brilas la luno kiel ora disko sur la helblua silko de la alta ĉielo.
 
 Li ekmoviĝis kaj ree komencis zigzagi inter la homoj, tien kaj reen, kvazaŭ burdo inter floroj.
 
@@ -231,9 +178,6 @@ Kelkafoje rigardoj ekbriletas kvazaŭ de iu interna lumo, kaŝita sub mallevitaj
 Ankoraŭfoje li karesas ŝin per reva, petanta rigardo, deturnas sin kaj iras for …
 
 Post kelka tempo li revenis al la rifuĝejo ĉe la arbo. La ĉir-kaŭrigardado ne interesis lin plu. Lacamiene li plenŝtopis sian pipon, bruligis ĝin kaj ĉirkaŭvolvis sin per nubo de fumo.
-
-
-AL TORENTO
 
 
 Subite iu tuŝis lian ŝultron. Turninte la kapon, li rekonis bonan kamaradon, filon de najbaro.
@@ -254,9 +198,7 @@ volas trinki kafon kun ni. ĉu mi ankaŭ devas respondi? Nu, venu do!
 
 Li metis sian brakon ĉirkaŭ la dorson de Karlo kaj ŝovis lin antaŭ si. Iom ĝenite sed kun sento de interna varmo Karlo akceptis la proponon.
 
-Ili aliĝis al la atendantaj kamaradoj. Kafo estis alportata, kaj ili komencis trinki kaj manĝi kukojn. Post eltr ili kun silenta interkonsento replenigis la tasojn duone. Bertil dum momento ekzamenis la ĉirkaŭon kaj poste elpoŝigis botelon kaj rapide kaj lerte plenplenigis la tasojn per brando. Al Karlo la partopreno de malpermesita trinkado estis tute nova kaj 13
-
-AL TORENTO
+Ili aliĝis al la atendantaj kamaradoj. Kafo estis alportata, kaj ili komencis trinki kaj manĝi kukojn. Post eltr ili kun silenta interkonsento replenigis la tasojn duone. Bertil dum momento ekzamenis la ĉirkaŭon kaj poste elpoŝigis botelon kaj rapide kaj lerte plenplenigis la tasojn per brando. Al Karlo la partopreno de malpermesita trinkado estis tute nova kaj
 
 
 vole-nevole li ĉirkaŭrigardis kun iom da maltrankvilo. Sed ekzamenante la apudajn tablojn, li vidis tie kaj tie duone kaŝitajn botelojn kaj vizaĝojn kun varma koloro, aŭdis voĉojn de nenormala vigleco.
@@ -287,14 +229,10 @@ kaj dume alrigardos, kiel furiozas la junularo.
 
 Karlo paŝis pluen. uste ĉe la enirejo al la pavilono li subite trovis sin antaŭ knabino, kiu staris tute sola kaj ŝajne enpensiĝinta. Sen pripensi, ĉu li kuraĝu aŭ ne, li tuj levis la ĉapelon kaj petis pri danco. Kaj ŝi levis la okulojn, klinetis la kapon senvorte kaj prenis lian brakon.
 
-ĉio okazis tiel rapide kaj senkonsidere, ke li konsciiĝis pri sia faro nur, kiam li estis paginta la eniron kaj ili jam staris sur 14
-
-AL TORENTO
+ĉio okazis tiel rapide kaj senkonsidere, ke li konsciiĝis pri sia faro nur, kiam li estis paginta la eniron kaj ili jam staris sur
 
 
-la planko de la dancejo. Sed estis jam tro malfrue pripensi, ĉu li agis malsprite aŭ ne. Kaj ili enmiksiĝis inter la kirle movi-
-
-ĝantajn parojn.
+la planko de la dancejo. Sed estis jam tro malfrue pripensi, ĉu li agis malsprite aŭ ne. Kaj ili enmiksiĝis inter la kirle moviĝantajn parojn.
 
 Unue li iom miris pri sia neatendita kuraĝo, sed baldaŭ li interne priridetis sin mem. Kial li antaŭe estis tiel malsprite senkuraĝa antaŭ tiu unua paŝo de alproksimiĝo? Kvankam la afero havis la freŝecon de io tute nova, li jam rigardis ĝin kiel sufiĉe simplan kaj facilan entreprenon. Nu, ĉu liaj paŝoj estas sufiĉe lertaj kaj ĉu li gvidas ŝin kiel bona kavaliro, pri tio li ne kuraĝis pensi. Sufiĉos, se ŝi ne primokos lin.
 
@@ -310,9 +248,7 @@ Subite Karlo ekmemoris pri Bertil kaj la aliaj kamaradoj kaj ŝtele rigardis fla
 
 Kaj ili ekiris.
 
-Li komencis paroli, komence iom hezite, poste pli flue, kaj baldaŭ li mem miris pri sia parolpovo, pri kiu li antaŭe ne sciis. Verdire li parolis nur pri la plej ĉiutagaj aferoj, aferoj tiel 15
-
-AL TORENTO
+Li komencis paroli, komence iom hezite, poste pli flue, kaj baldaŭ li mem miris pri sia parolpovo, pri kiu li antaŭe ne sciis. Verdire li parolis nur pri la plej ĉiutagaj aferoj, aferoj tiel
 
 
 ridinde malgravaj, ke neniam estus veninta en lian kapon paroli pri tiaj al iu kamarado almenaŭ ne tiel serioze, kiel li nun traktis ilin. Sed li havis la senton, ke la vortoj kaj frazoj per si mem ne tre gravas kaj ke ili havas iun tute alian signifon ol ordinare kaj mirige esprimas ĝuste tion, kion li interne sentas kaj volas diri.
@@ -336,9 +272,6 @@ Sed subite ŝi rektigis sin kaj kun milda perforto deligis lian brakon de sia ta
 Mi devas eniri.
 
 Ili eliris el la laŭbo, kaj denove ŝi donis sian manon por adiaŭo.
-
-
-AL TORENTO
 
 
 —ĉu vi koleras je mi? — Karlo demandis iom konfuzite.
@@ -370,14 +303,9 @@ Sed liaj rigardoj petegis kaj karesis kaj ne volis lasi ŝin sen promeso.
 Sed fine ŝi ŝajnis rezigni antaŭ liaj petantaj rigardoj, kaj je lia demando, ĉu li morgaŭ vespere revidos ŝin en la parko, ŝi klinis la kapon kaj movis la lipojn kiel por diri jes. Poste ŝi premis lian manon kaj senvorte forlasis lin.
 
 
-AL TORENTO
-
-
 II.
 
-Post kelkhora, sensonĝa dormo Karlo vekiĝis tute refreŝigita. Larĝa, varmkolora strio de sunlumo enfalis tra la fenestreto de la subtegmenta malgranda ĉambro, kie li kaj unu pli juna frato kuŝis. Estis ankoraŭ frue. La frato dormis trankvile. En la kuirejo, kiu estis rekte sube, estis tute silente. Ver-
-
-ŝajne la gepatroj kaj la gefratoj ankoraŭ dormis.
+Post kelkhora, sensonĝa dormo Karlo vekiĝis tute refreŝigita. Larĝa, varmkolora strio de sunlumo enfalis tra la fenestreto de la subtegmenta malgranda ĉambro, kie li kaj unu pli juna frato kuŝis. Estis ankoraŭ frue. La frato dormis trankvile. En la kuirejo, kiu estis rekte sube, estis tute silente. Verŝajne la gepatroj kaj la gefratoj ankoraŭ dormis.
 
 Dum kelka tempo li restis en la lito, rigardante la moviĝon de la sunstrio sur la kontraŭa muro kaj pensante pri sia nokta aventuro.
 
@@ -387,12 +315,7 @@ Li nur povis memori, ke la okuloj havis iun grizverdan kolo-ron kaj kvazaŭ lume
 
 Sed kial ŝi tiel strange kondutis? Kial ŝi ne volis renkonti lin plu? Li neniel povis trovi akcepteblan kaŭzon kaj fine supozis, ke ŝia konduto estis iu stranga maniero fari sin interesa.
 
-Eble la virinoj estas tiaj, li pensis. Diras ion, sed pensas kaj deziras ion tute alian. Pri tio li ja aŭdis, pri tio li legis en no-veloj de gazetoj, tion li mem vidis en la kino. Sed ĉu la homoj, la aŭtoroj kaj la filmoj diras la veron tiurilate? Li tute ne me-18
-
-AL TORENTO
-
-
-ditis pri tio pli frue, kaj eĉ nun li ne povis konvinkiĝi pri la praveco de la asertoj.
+Eble la virinoj estas tiaj, li pensis. Diras ion, sed pensas kaj deziras ion tute alian. Pri tio li ja aŭdis, pri tio li legis en no-veloj de gazetoj, tion li mem vidis en la kino. Sed ĉu la homoj, la aŭtoroj kaj la filmoj diras la veron tiurilate? Li tute ne meditis pri tio pli frue, kaj eĉ nun li ne povis konvinkiĝi pri la praveco de la asertoj.
 
 Tamen — ĉu oni povus alimaniere klarigi ŝian strangan
 
@@ -412,17 +335,13 @@ La patrino rigardis lin mirigite.
 
 La patro komencis movi sin sub la kovrilo, levis la kapon kaj post larĝa oscedo diris:
 
-—Estas bonege. Surmetu alian veston kaj akompanu pan-
-
-jon en la brutejon! Anjo kredeble dormos ĝis tagmezo. ŝi iris hieraŭ vespere al la popolparko en Torento, kaj post la tiea nokta ekzercado ŝi certe ne estas vekebla. Sed kie estis vi?
+—Estas bonege. Surmetu alian veston kaj akompanu panjon en la brutejon! Anjo kredeble dormos ĝis tagmezo. ŝi iris hieraŭ vespere al la popolparko en Torento, kaj post la tiea nokta ekzercado ŝi certe ne estas vekebla. Sed kie estis vi?
 
 —Ankaŭ mi estis tie. Sed mi ne vidis ŝin.
 
 —Ankaŭ vi! Verdire la dancejoj estas kvazaŭ daŭrigaj lernejoj. La tuta infanaro kuras tien. Espereble ili tie enkapigas, kion ili malakceptis en la popola lernejo. ĉu ne?
 
-Sed post tiuj akraĵoj li trankviliĝis kaj komencis tiel detale eldemandi Karlon pri la parko kaj la vivo tie, ke oni povus 19
-
-AL TORENTO
+Sed post tiuj akraĵoj li trankviliĝis kaj komencis tiel detale eldemandi Karlon pri la parko kaj la vivo tie, ke oni povus
 
 
 supozi, ke li mem havas grandan deziron iri tien. Kaj eble li havis, malgraŭ sia grumblado. Sed li ne estis plu juna.
@@ -431,9 +350,7 @@ La tutan tagon lia interno estis plena de helaj revoj pri la renkonto en la veno
 
 Kiamaniere havigi iom da mono?
 
-Li kalkulis la restantajn monerojn. Ili sufiĉos por eniro kaj por tri dancbiletoj. Sed se li renkontus ŝin jam antaŭ la enirejo? Tiam estus malĝentile ne pagi eniron ankaŭ por ŝi. Kaj poste li devus inviti ŝin al kafo aŭ almenaŭ aĉeti iujn dolĉa-
-
-ĵojn.
+Li kalkulis la restantajn monerojn. Ili sufiĉos por eniro kaj por tri dancbiletoj. Sed se li renkontus ŝin jam antaŭ la enirejo? Tiam estus malĝentile ne pagi eniron ankaŭ por ŝi. Kaj poste li devus inviti ŝin al kafo aŭ almenaŭ aĉeti iujn dolĉaĵojn.
 
 Eble la patro donus monon, se li demandus. Sed li ne volis demandi, ne pro timo de grumblado, sed pro fiereco. Se la patro ne volas kompreni la aferon, estas pli bone lasi lin en trankvilo kaj provi aliajn vojojn.
 
@@ -453,12 +370,7 @@ Li silentis momenton kaj poste daŭrigis per mallaŭta voĉo:
 
 —Mi ne koleriĝos. Diru!
 
-—Nu do, estu iom singarda rilate al la junulinoj! Se vi iros kun knabino, vi ne devas lasi vian prudenton hejme. Vi povos trovi bonan knabinon, sed ankaŭ iun kun aliaj kvalitoj. Ili es-20
-
-AL TORENTO
-
-
-tas de diversaj specoj. Kaj pro tio estas plej bone iomete atenti pri ili — kaj ankaŭ pri si mem.
+—Nu do, estu iom singarda rilate al la junulinoj! Se vi iros kun knabino, vi ne devas lasi vian prudenton hejme. Vi povos trovi bonan knabinon, sed ankaŭ iun kun aliaj kvalitoj. Ili estas de diversaj specoj. Kaj pro tio estas plej bone iomete atenti pri ili — kaj ankaŭ pri si mem.
 
 —Bone. Sed mi ne intencas fariĝi patro.
 
@@ -468,9 +380,7 @@ Nu, kaj krom tio ekzistas tie en Torento kelkaj aĉulinoj, kvazaŭ ĉiesulinoj, 
 
 Karlo ruĝiĝis kaj diris iom ĝenite:
 
-—Mi komprenas vian bonan volon. Sed mi ne volas post-
-
-kuri ĉiujn knabinojn, kaj mi ne volas fari bestaĵojn. Do …
+—Mi komprenas vian bonan volon. Sed mi ne volas postkuri ĉiujn knabinojn, kaj mi ne volas fari bestaĵojn. Do …
 
 —Vidu, nun vi tamen iomete koleriĝis. Sed tio ne gravas.
 
@@ -486,9 +396,7 @@ Rideto ekludis ĉirkaŭ la lipoj de Bertil, kaj liaj bluaj okuloj brilis bonkore
 
 —Mi nenion opinias. Mi vidis ŝin kelkafoje, sed scias nenion pri ŝi. ŝi aspektas serioza; tio estas la sola, kion mi povas opinii. Rimarku, aspektas. Se ŝi ĉagrenos vin, vi ne diru, ke mi asertis, ke ŝi estas serioza.
 
-—Nu, nu, estas tute bone, kaj mi ne koleras. Se tentulinoj 21
-
-AL TORENTO
+—Nu, nu, estas tute bone, kaj mi ne koleras. Se tentulinoj
 
 
 venos, mi rememoros viajn konsilojn. ĉu vi mem iros al la parko hodiaŭ?
@@ -509,13 +417,9 @@ La ĉiutagaj kaj ne tre gajaj impresoj el la hejmo baldaŭ estis forviŝataj de 
 
 Kiam li alvenis, li povis trovi Enjon nek ekster la parko nek interne.
 
-Estas ankoraŭ tre frue, li pensis. ŝi tuj venos. Kaj dum li atendis, li sencele kaj senintence iradis tien kaj reen en la par ko, kvazaŭ pelate de interna maltrankvilo. La bolantan vivon li ne priatentis. i ne interesis lin plu. Li rimarkis tiun ŝan-
+Estas ankoraŭ tre frue, li pensis. ŝi tuj venos. Kaj dum li atendis, li sencele kaj senintence iradis tien kaj reen en la par ko, kvazaŭ pelate de interna maltrankvilo. La bolantan vivon li ne priatentis. i ne interesis lin plu. Li rimarkis tiun ŝanĝiĝon en si mem kaj ridetis, Kiamaniere koncernas min tiu foira vivo? li demandis sin mem. Neniel!
 
-ĝiĝon en si mem kaj ridetis, Kiamaniere koncernas min tiu foira vivo? li demandis sin mem. Neniel!
-
-De kiam li renkontis ŝin, estis pasintaj nur iom pli ol dudek horoj. ĉu vere nur tiom? ŝajnis al li, ke estas longa, longa tempo de tiam. Ne nur pro la atendado. Li sentis, kvazaŭ li 22
-
-AL TORENTO
+De kiam li renkontis ŝin, estis pasintaj nur iom pli ol dudek horoj. ĉu vere nur tiom? ŝajnis al li, ke estas longa, longa tempo de tiam. Ne nur pro la atendado. Li sentis, kvazaŭ li
 
 
 mem ŝanĝiĝis kaj pliaĝiĝis. Hodiaŭ li estas juna viro, hieraŭ li estis granda knabo.
@@ -543,9 +447,6 @@ Karlo skuis la kapon kaj komprenigis, ke mankas al li mo-no.
 La viro mezuris lin per ekzamena rigardo.
 
 —Eble vi diras la veron. Sed se vi promesas, ke vi legos ĝin, mi donacos al vi numeron. Se vi renkontos min post semajno, vi diros, kiel la enhavo plaĉis al vi. ĉu konsentite?
-
-
-AL TORENTO
 
 
 Karlo ne emis legi la gazeton; sed, por liberiĝi de la homo, li murmuris ”jes” kaj akceptis. Pro nura ĝentileco al la gru-panoj li dum momento rigardis la unuan paĝon, sed vidis preskaŭ nur la titolon: ”La Flamo”, en krudaj kaj kvazaŭ ener-giradiantaj literoj.
@@ -577,9 +478,6 @@ Poste ili ree silentis. ŝajne ŝi enpensiĝis kaj preskaŭ forgesis lin. Li, si
 —Mi ne tre ŝatas. Se vi ne kontraŭas, mi preferas eliri el la parko kaj fari promeneton.
 
 
-AL TORENTO
-
-
 Li iomete miris pri ŝia propono, sed ĝoje konsentis forlasi la parkon. Ekstere homaj rigardoj ne tiel ĝenos ilin, kaj li havos ŝin pli por si mem.
 
 Veninte sur la grandan vojon ili senvorte sed kvazaŭ inter-konsentinte suriris alian ŝoseon, kiu kondukis okcidenten, rekte en densan, malhelan pice-arbaron. Tie estis neniuj domoj je distanco de multaj kilometroj, kaj ili ne bezonis timi scivolemajn rigardojn de konatoj aŭ aliaj.
@@ -592,9 +490,7 @@ Kaj plaĉis al li, kiam li trovis, ke ŝiaj vestoj estas modestaj, eĉ uzitaj. C
 
 ŝi ja ne povas iri nuda.
 
-Tiaj etaj kaj malgravaj konfidaĵoj iom post iom pli proksimigis ŝin al li. La estaĵo de liaj junaj revoj fariĝis pli reala pli simila al li mem. Kaj samtempe liaj en la ĉielo ŝvebintaj revoj surteriĝis kaj transformiĝis en senton de trankviliga feliĉo. Ili estis jam sufiĉe malproksime de Torento, kaj ŝi proponis, ke 25
-
-AL TORENTO
+Tiaj etaj kaj malgravaj konfidaĵoj iom post iom pli proksimigis ŝin al li. La estaĵo de liaj junaj revoj fariĝis pli reala pli simila al li mem. Kaj samtempe liaj en la ĉielo ŝvebintaj revoj surteriĝis kaj transformiĝis en senton de trankviliga feliĉo. Ili estis jam sufiĉe malproksime de Torento, kaj ŝi proponis, ke
 
 
 ili reiru. Sed tio ne plaĉis al li, kaj li serĉis iun pretekston por iri pli foren.
@@ -611,12 +507,7 @@ Per kelkaj vortoj ŝi rakontis la legendon pri la fonto. Antaŭ preskaŭ mil jar
 
 Li eksidis sur la tero, ŝi sur ŝtono kelkajn paŝojn de li. Senvorte li rigardis ŝin, la fonton kaj la forfluantan akvostrieton, kiu spegule briletis en la nokta lumo.
 
-Stranga sento ekkaptis lin. Mil jaroj! Kiom da tempo, kiom da tagoj kaj noktoj! Sed certe la somera nokto same silente kaj kviete kiel nun envolvis la teron per siaj helaj, molaj vualoj. Eble la malamikaj homoj ĝuste dum tia nokto mortbatis la kompatindan predikiston. Sed same molsone kiel nun su-suris la elfluanta akvo, ĉar kredeble ĝi ekzistis jam antaŭe, same dolĉe venis odoroj de herboj, floroj kaj folioj, same pale lumetis la du-tri apenaŭ videblaj steloj sur la hela ĉielo. Aŭ povas esti, ke la tuta afero estas nura diraĵo. Eble ŝteliris junulo kaj junulino al la silenta bosko kun la plaŭdanta fonte-26
-
-AL TORENTO
-
-
-to por flustri unu al la alia la hezitemajn vortojn, kiujn fortimigis la akra lumo de la tago.
+Stranga sento ekkaptis lin. Mil jaroj! Kiom da tempo, kiom da tagoj kaj noktoj! Sed certe la somera nokto same silente kaj kviete kiel nun envolvis la teron per siaj helaj, molaj vualoj. Eble la malamikaj homoj ĝuste dum tia nokto mortbatis la kompatindan predikiston. Sed same molsone kiel nun su-suris la elfluanta akvo, ĉar kredeble ĝi ekzistis jam antaŭe, same dolĉe venis odoroj de herboj, floroj kaj folioj, same pale lumetis la du-tri apenaŭ videblaj steloj sur la hela ĉielo. Aŭ povas esti, ke la tuta afero estas nura diraĵo. Eble ŝteliris junulo kaj junulino al la silenta bosko kun la plaŭdanta fonteto por flustri unu al la alia la hezitemajn vortojn, kiujn fortimigis la akra lumo de la tago.
 
 Antaŭ mil jaroj … Post mil jaroj … ĉu la lando tiam samsame ripozos en kvieto de la somera noktomezo … ĉu junu-lo kaj junulino same ŝteliros la vojon ĉi tien? …
 
@@ -633,9 +524,6 @@ Li rigardis ŝnfuzite, demande, preskaŭ kun ioma ko-lereto. Kion ŝi do volas, 
 —Jes, mi promesas. Kaj pardonu, se mi estis malĝentila, malsaĝa!
 
 
-AL TORENTO
-
-
 —Ne, ne, ne tiel. Vi miskomprenas … kaj mi ne povas klarigi. Sed sufiĉos, se vi tenos vian promeson. ĉu vi scias, ke vi tre plaĉas al mi? Ne tiel, kiel junulo ordinare plaĉas al knabino aŭ male; estas io alia. ŝajnas al mi, ke vi estas pli molkora ol la plejmulto, pli sentema. Mi havas la senton, ke vi iel similas al mi mem, ke vi eble povus kompreni min …
 
 … Mi estas absolute tutsola en la mondo. Patrino kaj frato, jes … sed pro tio ankoraŭ pli sola. Pli bone estus, se ili ne estus. Al neniu mi povas paroli, la homoj ne komprenas kaj ne volas kompreni alian homon. Sed kun vi mi povas samsen-ti. Al vi mi ankaŭ ne povas paroli … sed estas bone iri kune kun vi kaj babileti, estas trankvilige. Sed forgesu, ke mi estas knabino … rigardu min kiel kamaradinon, fratinon! Tiel estos pli bone.
@@ -649,24 +537,17 @@ Sed ŝi viŝis la okulojn kaj levis sin kaj provis rideti.
 —Ni ne fariĝu sentimentalaj! Estas tempo reiri.
 
 
-AL TORENTO
-
-
 Super verdaj kronoj brilis la suno sur serena, lumplena ĉie-lo. iaj radioj filtriĝis tra la densa branĉaro kaj faris orajn vojetojn inter verdaj pingletoj kaj brunaj trunkoj kaj sur la molverdaj muskejoj ĉe la piedoj de la arboj. En araneaj retoj sur arbetoj kaj branĉoj brilegis stelaro de gutetoj kiel multko-loraj sunetoj.
 
 Malrapide kaj per silentaj paŝoj li iris sur la pinglokovrita vojeto, kiu serpentumis inter trunkegoj, borderita de mirte-loj, vakcinioj kaj solece kreskantaj arbarfloretoj.
 
-Kiom da fojoj li jam paŝis tiel, rigardante la matenan bele-con! Kiom da fojoj li vizitis la solecajn kaŝejojn inter rokoj kaj arbegoj, en marĉoj kaj densejoj! Kiom da delikataj, infanaj revoj naskiĝis tie ĉi en la sensona silento aŭ dum la multvo-
-
-ĉa simfonio de trilantaj birdetoj! Sed neniam li vidis la arbaron tiel bela kiel nun.
+Kiom da fojoj li jam paŝis tiel, rigardante la matenan bele-con! Kiom da fojoj li vizitis la solecajn kaŝejojn inter rokoj kaj arbegoj, en marĉoj kaj densejoj! Kiom da delikataj, infanaj revoj naskiĝis tie ĉi en la sensona silento aŭ dum la multvoĉa simfonio de trilantaj birdetoj! Sed neniam li vidis la arbaron tiel bela kiel nun.
 
 Kvankam tuŝita de homa mano, ĝi ankoraŭ staras kiel pu-ra, senmakula paradizo, kie la malbonoj kaj malbelaĵoj de la homa mondo ne havas lokon, — freŝa kaj plenvive juna, kvazaŭ ĵus elirinta el la mano de la kreinto.
 
 Ho, kiel bela estas la mondo de liaj junaj revoj! Sed de malproksime vokas lin alia mondo, kaj tiu voko fariĝas pli kaj pli forta. Tie ĉi regas la eterne samsama paradiza trankvilo kaj beleco. Tie regas la intensa vivo de ago kaj laboro, tie loĝas la multaj kunfratoj, al kiuj li tamen apartenas. Eble ekzistas malbelaĵoj kaj malbonoj tie, sed la plej altan feliĉon oni iam akiros, iam …
 
-La sentoj kaj pensoj vokas kaj vokas en lia interno kaj li komprenas, ke li ne povos rezisti, eble eĉ ne volas. Sed tiu sensona silento de l’arbaro, tiu pureco de juna paradizo — kie estos ĝi? Estis al li, kvazaŭ li diras adiaŭon al la mondo de sia 29
-
-AL TORENTO
+La sentoj kaj pensoj vokas kaj vokas en lia interno kaj li komprenas, ke li ne povos rezisti, eble eĉ ne volas. Sed tiu sensona silento de l’arbaro, tiu pureco de juna paradizo — kie estos ĝi? Estis al li, kvazaŭ li diras adiaŭon al la mondo de sia
 
 
 infanaĝo por baldaŭ iri en la alian, grandan mondon, kiu revigas kaj allogas sed samtempe timigas. Sed al ĝi li apartenas, tien li iros. Kaj se mankos tiu ĉi paradizo, li kreos alian!
@@ -683,9 +564,7 @@ La loko, kie li laboris, ne estis konvena por fari multan monon. Branĉoplenaj p
 
 La tagoj estis longaj. Je la sepa aŭ pli frue li foriris kun pa-keto da buterpano en unu poŝo kaj botelo da lakto en alia.
 
-Dum la tuta tago li vidis neniun, estis tutsola kun si mem, siaj pensoj kaj sopiroj. Poste li revenis ĉirkaŭ la kvina vespere, laca kaj sentante sin kvazaŭ ermito, kiu post longa tempo 30
-
-AL TORENTO
+Dum la tuta tago li vidis neniun, estis tutsola kun si mem, siaj pensoj kaj sopiroj. Poste li revenis ĉirkaŭ la kvina vespere, laca kaj sentante sin kvazaŭ ermito, kiu post longa tempo
 
 
 elvenas el sia rifuĝejo kaj kun timigitaj okuloj rigardas la homojn kaj la domojn. Kaj hejme oni postulis de li plian laboron, en la brutejo, sur la kampoj aŭ aliloke.
@@ -698,9 +577,7 @@ Tiel li sidis, ĝis la okuloj per si mem fermiĝis kaj li vole-ne vole devis enl
 
 Unu vesperon li rememoris pri la gazeto, kiun li ricevis sed poste tute forgesis. Li elprenis ĝin el la poŝo, kie ĝi ankoraŭ restis, kaj komencis legi ĝin. Kial ne? ĉar li promesis, li ja devas legi ĝin; cetere, iom da legado povas esti same bona aŭ same sensenca, kiel rigardado al la okcidentaj montoj kaj du-ma revado pri ĉio kaj nenio.
 
-Estis sukplenaj vortoj kaj esprimoj, prenitaj el la vortaro de ordinaraj laboristoj kaj pri kies senco li ne povis dubi. Li iom miris, ke oni rajtas diri tiajn aferojn pri la superuloj de diversaj specoj, kaj, se oni rajtas, ke ekzistas homoj, kiuj kuraĝas diri ilin. Kelkaloke estis tiel, aliloke temis pri pli subtilaj aferoj kaj tie estis sufiĉe da fremdaj vortoj, kies signifon li ne tre bone komprenis. Sed la sencon de tiuj subtilaĵoj li kredis kompreni. Temis pri bena, feliĉa estonteco al la malriĉuloj kaj mizeruloj. ĉiu rajtas vivi feliĉe. ĉar la superuloj ignoras tiun 31
-
-AL TORENTO
+Estis sukplenaj vortoj kaj esprimoj, prenitaj el la vortaro de ordinaraj laboristoj kaj pri kies senco li ne povis dubi. Li iom miris, ke oni rajtas diri tiajn aferojn pri la superuloj de diversaj specoj, kaj, se oni rajtas, ke ekzistas homoj, kiuj kuraĝas diri ilin. Kelkaloke estis tiel, aliloke temis pri pli subtilaj aferoj kaj tie estis sufiĉe da fremdaj vortoj, kies signifon li ne tre bone komprenis. Sed la sencon de tiuj subtilaĵoj li kredis kompreni. Temis pri bena, feliĉa estonteco al la malriĉuloj kaj mizeruloj. ĉiu rajtas vivi feliĉe. ĉar la superuloj ignoras tiun
 
 
 rajton, oni devas iamaniere repreni ĝin kaj realigi la pacon kaj fratecon sur la tero …
@@ -728,20 +605,13 @@ vespere vi havos respondon.
 Fruvespere la postan tagon venis Bertil al la hejmo de Karlo. Karlo ĵus estis veninta el la arbaro kaj kune kun la tuta familio sidis ĉe la kuireja tablo kaj trinkis kafon. Bertil komu-nikis al li, ke oni akceptos lin. Li povos komenci lundon matene.
 
 
-AL TORENTO
-
-
 La patro mirigite rigardis al Bertil, poste al Karlo. Unue li ŝajnis ne kompreni, poste li ridetis iom sarkasme.
 
 —ŝajnas, ke vi fariĝis plenkreskulo! — li turnis sin al la filo.
 
-—Jes, mi demandis pri laboro en Torento. ĉu vi malkon-
+—Jes, mi demandis pri laboro en Torento. ĉu vi malkontentas pri tio?
 
-tentas pri tio?
-
-—Kontentas, malkontentas! Sensencaĵo! ĉu vi ne komen-
-
-cis jam iri vian propran vojon? Iru do, pro Diablo!
+—Kontentas, malkontentas! Sensencaĵo! ĉu vi ne komencis jam iri vian propran vojon? Iru do, pro Diablo!
 
 —Ne koleru! Kiom mi akiras per hakado? Vi ja scias mem!
 
@@ -759,15 +629,7 @@ Bertil diris la proksimuman tagan akiron. La patro balan-cis la kapon kaj ŝajni
 
 …
 
-Mi konas la aferojn. Kaj konservu mian konsilon, — li tur-33
-
-AL TORENTO
-
-
-nis sin al Bertil kaj Karlo: Neniam fariĝu terkulturistoj, antaŭ ĉio ne fariĝu lufarmistoj kiel mi! Tiu ĉi profesio estas la plej mizera en la mondo. Sed kiam mi estis juna, ne ekzistis multe da industrio; due, mi ne komprenis la aferojn. Kaj nun mi estas tro maljuna por ŝanĝi. Sed ĉiu juna homo, kiu havas siajn kvin sensojn en sana stato, ne povas heziti pri tio, kion li faru. Tia estas mia opinio.
-
-
-AL TORENTO
+Mi konas la aferojn. Kaj konservu mian konsilon, — li turnis sin al Bertil kaj Karlo: Neniam fariĝu terkulturistoj, antaŭ ĉio ne fariĝu lufarmistoj kiel mi! Tiu ĉi profesio estas la plej mizera en la mondo. Sed kiam mi estis juna, ne ekzistis multe da industrio; due, mi ne komprenis la aferojn. Kaj nun mi estas tro maljuna por ŝanĝi. Sed ĉiu juna homo, kiu havas siajn kvin sensojn en sana stato, ne povas heziti pri tio, kion li faru. Tia estas mia opinio.
 
 
 III.
@@ -789,27 +651,20 @@ Li demandis pri la prezoj, sed je la respondo li skuis la kapon.
 Sed la mieno de la vendisto fariĝis ankoraŭ pli afabla.
 
 
-AL TORENTO
-
-
 —Ne tre gravas. Vi pagu, kiom vi povas kaj volas poste vi laŭplaĉe depagos posemajne. Estas tre facile aranĝi la aferon.
 
 —Mi ne ŝatas tiun sistemon, — respondis Karlo, sed li sentis, ke li duone mensogas. — Kiam mi aĉetas objekton, mi volas, ke ĝi ankaŭ fariĝu mia, entute kaj ne nur parte.
 
 —Mi komprenas vin. Estas ja tute natura penso sed tamen naiva. Vidu, la mondo nun estas alia ol antaŭdudek jaroj, ho, tute alia ol antaŭ dek jaroj. La mondo estas plena de bonaj kaj benindaj aferoj, objektoj kiuj parte ekzistis jam pli frue, sed kiuj tiam estis haveblaj nur por la riĉuloj. Sed ĉu ne malpli riĉaj homoj aŭ eĉ malriĉaj ankaŭ rajtas posedi la nuntempajn benindaĵojn? Kompreneble, jes! Sed kiamaniere? Mi deziris havi aŭtomobilon. Sed mi estis malriĉa same kiel vi, kaj devus ŝpari dek, dek-kvin jarojn por havigi ĝin. Kaj se mi provus ŝpari, mi certe malsukcesus, disdonante la monon por mil aliaj malgrandaĵoj. Nu, mi aĉetis depage, kaj mi tute ne be-daŭras tion, sed kontraŭe benas la bonan sistemon. Unue, mi havas la aŭton jam nun; due, mi estas devigita ŝpari monon por la fiksitaj depagoj.
 
-Kaj same la laboristoj. Verdire, ili akiras relative bonan salajron. Sed tiom kaj tiom la junuloj devas lasi en la hejmo aŭ en loĝejo kaj restoracio, tiom kaj tiom por aliaj bezonataj aferoj. Kiom poste restas? Se juna laboristo volus aĉeti kostumon per ŝparita mono, li en plej bona okazo povus aĉeti la some-ran kostumon aŭtune kaj la vintran — printempe. ĉu vi vizitis, ekzemple, la popolan parkon? Tie vi povas vidi tre bone kaj dece vestitajn junulojn. ĉu vi kredas, ke la kostumoj plene apartenas al la junuloj? Se jes, vi tre eraras. Jes, verdire kelkaj; sed multaj, multaj estos plene pagitaj nur venontan krist-naskon aŭ eĉ pli poste. Kaj mi tute ne riproĉas ilin pro tio. Ili 36
-
-AL TORENTO
+Kaj same la laboristoj. Verdire, ili akiras relative bonan salajron. Sed tiom kaj tiom la junuloj devas lasi en la hejmo aŭ en loĝejo kaj restoracio, tiom kaj tiom por aliaj bezonataj aferoj. Kiom poste restas? Se juna laboristo volus aĉeti kostumon per ŝparita mono, li en plej bona okazo povus aĉeti la some-ran kostumon aŭtune kaj la vintran — printempe. ĉu vi vizitis, ekzemple, la popolan parkon? Tie vi povas vidi tre bone kaj dece vestitajn junulojn. ĉu vi kredas, ke la kostumoj plene apartenas al la junuloj? Se jes, vi tre eraras. Jes, verdire kelkaj; sed multaj, multaj estos plene pagitaj nur venontan krist-naskon aŭ eĉ pli poste. Kaj mi tute ne riproĉas ilin pro tio. Ili
 
 
 estas honestaj homoj, kaj mi ricevos mian monon. Kaj ili, siaflanke, tre gaje dancas kaj amuzas sin kaj tute ne pensas pri tio, ke la kostumoj ne estas plene pagitaj. ĉu ne? La mono cirkuladas rapide, kaj la ĉefa afero estas, ke oni povu iomete
 
 ĝui de la benindaĵoj de nia tempo.
 
-Tiu mallonga prelego en moderna socia ekonomio iom mi-
-
-rigis Karlon. La ideoj ŝajnis al li iomete strangaj, kaj li ne apro-bis ilin tute. Sed cetere li ne multe zorgis pri la diritaĵo. Pli grava estis la demando, ĉu li aĉetu la kostumon aŭ ne. Li ja povus fari tion, — sed kion dirus la patro? Eble tiom da novaj vestaĵoj estus tro multe al li en unu tago. Kaj li decidis atendi almenaŭ ĝis venonta sabato.
+Tiu mallonga prelego en moderna socia ekonomio iom mirigis Karlon. La ideoj ŝajnis al li iomete strangaj, kaj li ne apro-bis ilin tute. Sed cetere li ne multe zorgis pri la diritaĵo. Pli grava estis la demando, ĉu li aĉetu la kostumon aŭ ne. Li ja povus fari tion, — sed kion dirus la patro? Eble tiom da novaj vestaĵoj estus tro multe al li en unu tago. Kaj li decidis atendi almenaŭ ĝis venonta sabato.
 
 Li diris tion, kaj la komercisto same afable rigardis lin.
 
@@ -823,9 +678,7 @@ Karlo ne sciis, kion respondi al tiu demando, kiu ŝajnis al li iom tro intima.
 
 —Eble, mi ne scias …
 
-—Malsaĝa estas tiu, kiu diras, ke la junularo ne devas amuziĝi! Sufiĉe frue venos la tempo de seriozeco. Ho, bela estas la vivo en junaj tagoj! Iri en gajan societon en la dancejo, gvidi la junajn, belvestitajn fraŭlinojn ĉe danco, akompani beluli-non al la pordo de trankvile dormantaj gepatroj … Malsaĝuloj riproĉas la junularon, sed laŭ mia opinio la gejunuloj plene 37
-
-AL TORENTO
+—Malsaĝa estas tiu, kiu diras, ke la junularo ne devas amuziĝi! Sufiĉe frue venos la tempo de seriozeco. Ho, bela estas la vivo en junaj tagoj! Iri en gajan societon en la dancejo, gvidi la junajn, belvestitajn fraŭlinojn ĉe danco, akompani beluli-non al la pordo de trankvile dormantaj gepatroj … Malsaĝuloj riproĉas la junularon, sed laŭ mia opinio la gejunuloj plene
 
 
 pravas, kiam ili volas ĝui la printempon de la vivo. Tio ne estas peko, tio ne malbonigas ilin. Kontraŭe.
@@ -848,12 +701,7 @@ Vespere li iris al la parko por renkonti Enjon.
 
 Post la promenado al la Martira fonto li kunestis kun ŝi ankoraŭ du fojojn. Ili iris la saman solecan vojon, same interparolis pri kelkaj ĉiutagaĵoj, kaj li pli kaj pli intimiĝis kun ŝi.
 
-Same ili flankeniĝis de la ŝoseo, atingis la fonton kaj tie eksi-38
-
-AL TORENTO
-
-
-dis. Tiam la vortoj mutiĝis, silente kaj senmove ili rigardis unu la alian. Kvazaŭ en sonĝo li vidis antaŭ si ŝiajn harojn, okulojn, buŝon. La ardo en lia juna koro reflamiĝis, kaj li volis levi sin por ĉirkaŭbraki tiun gracian, molforman kolon, karesi la abundan, blondetan hararon, kisi la briletantajn okulojn kaj la maldikajn, belajn lipojn.
+Same ili flankeniĝis de la ŝoseo, atingis la fonton kaj tie eksidis. Tiam la vortoj mutiĝis, silente kaj senmove ili rigardis unu la alian. Kvazaŭ en sonĝo li vidis antaŭ si ŝiajn harojn, okulojn, buŝon. La ardo en lia juna koro reflamiĝis, kaj li volis levi sin por ĉirkaŭbraki tiun gracian, molforman kolon, karesi la abundan, blondetan hararon, kisi la briletantajn okulojn kaj la maldikajn, belajn lipojn.
 
 Sed io retenis lin. Estis kvazaŭ ŝi vidus liajn pensojn kaj kvazaŭ ŝia mieno demandus, ĉu li ne rememoras sian promeson. Li vidis la seriozecon de ŝiaj rigardoj kaj respektis ĝin, ĉar li tro alte estimis ŝin por fari ion, kio ne plaĉus al ŝi. Tiel ili restis silentaj kaj senmovaj, kaj al li estis kvazaŭ inter ili stariĝus nevidebla muro, kiu senkompate disigas ilin unu de la alia. Liaj rigardoj serĉis ŝiajn, petis klarigon. Kaj ŝajnis al li, ke ŝiaj okuloj respondis: Mi komprenas vin, kaj mi tre ŝatas vin, sed tio ne povas esti. Estis kvazaŭ ili tra dika fera krado tuŝus kaj premus la manojn unu de la alia, kunigitaj kaj tamen di-sigitaj.
 
@@ -866,9 +714,6 @@ Sed la postan matenon li jam forgesis tiun decidon, kaj lia unua penso post la v
 Ree li sopiris kaj revis, kaj la estonta semajno ŝajnis al li senfine longa.
 
 
-AL TORENTO
-
-
 Li laboris en grupo de ŝarĝistoj, kaj dum la tagoj li ne trovis multan tempon por meditado. Sed kiam vesperiĝis kaj li forlasis la bruplenan Torenton por iri hejmen al la trankvila bieno en la arbaro, liaj pensoj koncentriĝis ĉirkaŭ ŝi, kaj la moviĝema fantazio de la revanta junulo kreis belajn konstruaĵojn por la estonteco. ŝi jam fariĝis centro de lia interna vivo, io de kio li ne povis kaj ne volis plu liberiĝi. —
 
 Li alvenis al la parko, kaj kiel kutime li devis longe atendi ŝin. Dume li ĉirkaŭpromenis, tie kaj tie parolante kelkajn vortojn kun la novaj konatoj el Torento. La novaj vestoj donis al li senton de memstareco kaj egaleco kun ili, kaj por la unua fojo li sentis sin plene hejme en tiu ĉi societo.
@@ -879,9 +724,7 @@ Baldaŭ Bertil aliĝis al la duopo, kaj ili eksidis ĉe tableto por trinki kafon
 
 —Vi tamen devas konsenti pri tio, ke la homoj estas la plej stultaj estaĵoj en la tuta mondo, — diris Andreo al Bertil. — Ili kredas sin prudentaj, sed verdire ili nur stultiĝas laŭ la gra-do de ilia pretendita prudentiĝo. Ili parolas pri frateco. Kio estas ĝi? Idolo farita el teorioj! La doktrino de frateco estas nova religio, kiu mistifikas la homojn same kiel la malnova.
 
-Frateco en kutima senco apartenas al la mondo de intelektaj fantazioj kaj tute ne korespondas al la reala vivo. ĉiu deziras 40
-
-AL TORENTO
+Frateco en kutima senco apartenas al la mondo de intelektaj fantazioj kaj tute ne korespondas al la reala vivo. ĉiu deziras
 
 
 por si mem kiel eble plej grandan pecon da mono kaj pano, kiel eble plej grandan porcion da ĝuaĵoj. Tia estas la vero pri la homoj. Rigardu nin mem! ĉu ni ne volontege akceptus dudek kronojn potage, aŭ kiom ajn pli, se ni povus akiri tiom?
@@ -892,9 +735,7 @@ Same rilate la interpopolan paciĝon, kiu estas iu subidolo de frateco. oni fara
 
 Same en rilatoj inter la seksoj. Rigardu nur tien! Kial ili estas tiel belvestitaj, kial ili venis tien ĉi? La idolana regularo diras: ni portas belajn vestojn, ĉar tio estas klara rajto de ĉiu, kiu honeste plenumas sian oficon en la socio; esti bone kaj bele vestita — pri laboristoj, kompreneble — signifas nur efektiviĝon de la frateco. Ni iras al dancejo, ĉar estas nia plena rajto amuziĝi, ankaŭ la pli kaj pli komuna amuziĝo atestas pri la efektiviĝo de la frateco.
 
-Tiel diras la regularo de la idolanoj. Sed kion diras la reala vivo? Jene: Ni portas belajn vestojn, ĉar tio treege plaĉas al ni kaj niaj enspezoj ja permesas tion. Se kelkaj ne povas esti vestitaj kiel ni — ni bedaŭras, sed tio ja ne estas nia afero. Per 41
-
-AL TORENTO
+Tiel diras la regularo de la idolanoj. Sed kion diras la reala vivo? Jene: Ni portas belajn vestojn, ĉar tio treege plaĉas al ni kaj niaj enspezoj ja permesas tion. Se kelkaj ne povas esti vestitaj kiel ni — ni bedaŭras, sed tio ja ne estas nia afero. Per
 
 
 niaj vestoj ni akiras la respekton de aliaj homoj, precipe de junaj homoj de la alia sekso. Por trovi ilin, ni venis tien ĉi. La amuziĝo estas ja sufiĉe gaja afero, sed ververe ĝi estas nur prologo al pli gravaj aferoj. Sed ĉar tiu prologo estas neevitebla, oni devas scii amuziĝi kaj precipe amuzi la kunulon aŭ kunulinon kun granda sperto kaj konvena gusto. Tial la belaj vestoj, tial la gajaj ridoj, tial la decaj vortoj, tial la lertaj paŝoj en la danco. Nur por akiri la plej bongustan pecon da
@@ -907,9 +748,7 @@ Karlo rigardis la bene tranĉitan profilon de la alpude sid-anta parolanto, miri
 
 —Mi kredis vin socialisto. ĉu vi ne estas? ĉu vi ne kredas, ke frateco estas ebla?
 
-—Mi estis. Sed kiamaniere mi nun povus esti? Mi pli ŝatas la realecon ol mondon de fantomoj. En la socialismo estas tiom da sektoj kiom en la religioj. Kaj ĉiu pretendas, ke ĝi sola pravas. Laŭ mia opinio tute perfekta socialisto devus samtempe esti malriĉulo kaj kapitalisto, idealisto kaj materialisto, pacemulo kaj militisto, religiano kaj ateisto. Tia homo estus socialisto en la vera senco de la vorto. Sed kredeble tia homo 42
-
-AL TORENTO
+—Mi estis. Sed kiamaniere mi nun povus esti? Mi pli ŝatas la realecon ol mondon de fantomoj. En la socialismo estas tiom da sektoj kiom en la religioj. Kaj ĉiu pretendas, ke ĝi sola pravas. Laŭ mia opinio tute perfekta socialisto devus samtempe esti malriĉulo kaj kapitalisto, idealisto kaj materialisto, pacemulo kaj militisto, religiano kaj ateisto. Tia homo estus socialisto en la vera senco de la vorto. Sed kredeble tia homo
 
 
 ne estas ebla. Vere la homo estas salamandra, sed tio superas eĉ la plej altan kapablon. Mi malŝatas vortfantomojn, tial mi ne povas konfesi iun ajn religion.
@@ -924,12 +763,7 @@ Andreo ŝajnis iom surprizita je la demando, sed post momento da silento respond
 
 —Povas esti. Alie oni ne povas klarigi ĝin. Verdire ĝi estas bela, sed sendube ĝi estas la plej malgranda kaj plej malforta el la homaj instinktoj. ĉiuokaze ĝi havas neniun gravecon en la nuna tempo.
 
-Vidu, la laboristoj nomas sin sklavoj, kaj verdire ili estas tiaj, — ne nur ili, sed la plej multaj el la homoj. Ne en ekonomia senco, tio estas duaranga demando, sed spirite. Rigardu la vizaĝojn de la homoj! ĉu vi ne vidas, ke iliaj esprimoj estas teksitaj e] plej pura sklaveco sub la idoloj, kiuj loĝas en libroj kaj gazetoj kaj antaŭ ĉio en la propraj cerboj de la ho-43
-
-AL TORENTO
-
-
-moj? Por renkonti unu vizaĝon, kiu esprimas liberecon kaj memstarecon, vi devas serĉi inter miloj da homoj.
+Vidu, la laboristoj nomas sin sklavoj, kaj verdire ili estas tiaj, — ne nur ili, sed la plej multaj el la homoj. Ne en ekonomia senco, tio estas duaranga demando, sed spirite. Rigardu la vizaĝojn de la homoj! ĉu vi ne vidas, ke iliaj esprimoj estas teksitaj e] plej pura sklaveco sub la idoloj, kiuj loĝas en libroj kaj gazetoj kaj antaŭ ĉio en la propraj cerboj de la homoj? Por renkonti unu vizaĝon, kiu esprimas liberecon kaj memstarecon, vi devas serĉi inter miloj da homoj.
 
 Rigardu la gejunulojn tie ĉi! Vi ja scias, kial ili alvenis, t. e.
 
@@ -938,9 +772,6 @@ la plej multaj, ĉar kredeble la sama deziro loĝas en via propra brusto. Sed il
 Tiuj ideoj, tute novaj al Karlo, konsternis lin. Li volis kontraŭdiri kaj demandi, sed ne havis sufiĉe klaran koncepton pri la pensoj de Andreo, nek pri sia propra opinio. Tial li silentis kaj enpensiĝis. Sed la vortoj restis en lia memoro kaj donis al li objekton por meditado dum tagoj kaj semajnoj.
 
 Kiam Bertil subite ekparolis, li levis la okulojn al li. Hazarde lia rigardo dum momento ripozis ĉe la vestoj de tiu, kaj subita penso frapis lin. Bertil ne estis vestita kiel la plimulto el la junuloj. Li estis bone vestita, tamen estis iu diferenco, eble eleganteco mankis. Karlo ne povis tute klarigi al si la diferen-con sed konstatis ke, vidante la amikon, li vidis preskaŭ nur la personon kaj nur hazarde rimarkis la kostumon. Certe li impresus bone, eĉ se li portus malbonan kostumon. Kaj la elegantaj junuloj kaj junulinoj tute apude? Rigardante ilin, li preskaŭ ne rimarkis la personojn, nur belkolorajn robojn kaj mantelojn, zorge gladitajn kostumojn, kolorajn, atentopostul-antajn tuketojn en la brustpoŝoj de la sinjoroj. Se oni forpre-nus de ili tiujn vestojn kaj anstataŭe surmetus pli ĉiutagajn …
-
-
-AL TORENTO
 
 
 kio tiam restus? Kredeble la memcerteco de junuloj kaj junulinoj tiam forflugus, kaj poste ili estus nur … nu, kio? En la uzinoj ili estas laboristoj, labormaŝinoj; sed kio ili estus tie ĉi?
@@ -953,9 +784,7 @@ Norde kuŝis Torento kvazaŭ duone dormanta en la nokta
 
 trankvilo. Malrapide kaj ombrosimile la fumo eliĝis el la bri-kaj tubegoj kaj iom post iom disiĝis en la senventa aero, restanta en la alto kiel maldensa travidebla vualo. Oriente de la uzinoj kuŝis la kvartaloj de laboristaj domoj kiel unutone pen-tritaj kaj plensimetrie metitaj lignaj kubetoj de tute samaj formo kaj grandeco. Tiam kaj tiam ekaŭdiĝis malforta brue-to, kiam porcio da ferŝtono estis deŝarĝita ĉe la supro de la rostfornoj kaj la vagoneto poste rapidis malsupren sur sia rel-paro. Griza kaj fulgokolora kuŝis Torento kontraŭ la fono de bluetaj montoj kaj helverdaj betularoj. Vidita en medio de plensomera abundeco ĝi nun ŝajnis al Karlo iomete ĉiutage-ca kaj teda.
 
-Sed sude etendiĝis la vastega ebeno, en preskaŭ nevidebla malproksimo borderita de montoj aŭ arbaroj, kiuj aspektis 45
-
-AL TORENTO
+Sed sude etendiĝis la vastega ebeno, en preskaŭ nevidebla malproksimo borderita de montoj aŭ arbaroj, kiuj aspektis
 
 
 kiel etaj strioj de blua fumo ĉe la rando de la ĉielo. Tie kaj tie vilaĝoj aŭ solecaj domoj dormis inter la senfinaj kampoj de verda greno, tie kaj tie en malproksimo preĝejaj turoj leviĝis el la verdaĵo de ĉirkaŭaj arboj. En la mezo de la ebeno kuŝis la rivero kiel helgriza rubando sur verda robo.
@@ -982,12 +811,7 @@ Li elreviĝis kaj rigardis al ŝi. ŝi ŝajnis laca kaj ĉagrenita, kaj li eksen
 
 … Mi ĝojas, ke mi renkontis vin … kaj samtempe bedaŭras.
 
-Via amikeco havas por mi pli grandan valoron ol vi povas kompreni. Se vi iam estos tutsola en la mondo, senamika, senforta, tiam vi eble komprenos min. Sed samtempe mi sen-46
-
-AL TORENTO
-
-
-tas, ke mi misuzas vian amikecon, ke mi estas malhonesta, ke mi trompas vin. Vidu, vi donas tiom al mi, la nura kunesto kun vi estas al mi la plej granda feliĉo, ĉar vi sentas kiel mi kaj eble povus kompreni min. Sed kiom mi donas al vi? Neniom.
+Via amikeco havas por mi pli grandan valoron ol vi povas kompreni. Se vi iam estos tutsola en la mondo, senamika, senforta, tiam vi eble komprenos min. Sed samtempe mi sentas, ke mi misuzas vian amikecon, ke mi estas malhonesta, ke mi trompas vin. Vidu, vi donas tiom al mi, la nura kunesto kun vi estas al mi la plej granda feliĉo, ĉar vi sentas kiel mi kaj eble povus kompreni min. Sed kiom mi donas al vi? Neniom.
 
 Mia feliĉo estas en la momentoj de trankvila kunesto kun vi, en la negrava babilado kaj en la sento de via bonkoreco. Sed vi esperas venontan feliĉon … kiu ne venos. Mi ŝatas vin pli ol vi kredas, kaj mi kredas, ke viaj vortoj kaj pensoj estas pli ol momenta ludo de sentoj. Tial mia kunesto kun vi estas malhonesta, trompa! ĉar neniam mi povos fariĝi via. Neniam
 
@@ -999,12 +823,7 @@ Li rigardis ŝnsternite kaj tuŝite, kaj la lastaj mallaŭtaj vortoj trafis lin 
 
 Kiam vi venis en mian vivon, ĉio aliiĝis kaj ekhavis novan sencon, pri kiu mi antaŭe tute ne sciis. Nur nun mi komprenas, kiel malplena mia vivo antaŭe estis, kial ĝi kelkafoje ŝajnis al mi teda kaj senenhava. Vi ne povas imagi, kiom mi dum la lastaj semajnoj pensis kaj revis pri vi, pri ni, pri estontaj tagoj de ĝojo kaj feliĉo. De miaj plej junaj jaroj mi ĉiam revis pri Torento kaj pri la granda mondo, kaj mi pensis ke, kiam mi estos pli aĝa, mi iros tien por trovi pli feliĉan vivon ol tiu de mia arbara hejmo. ĉar mi kredis, ke tie ĉi kaj tie en la granda mondo troviĝos la vera feliĉo. Nun mi jam duone venis tien ĉi. Verdire estas pli bone, pli komforte ol en la sovaĝejo.
 
-Tamen, al la mondo de miaj junaj revoj la loko ne tute simi-47
-
-AL TORENTO
-
-
-las. Sed mi trovis vin, kaj vi fariĝis mia plej bela revo pri la vivo kaj la mondo. Dum la lastaj tagoj mi ofte diris al mi mem: la vivo ankoraŭ estas malbela kaj malbona. Do ni devas fari ĝin pli bela, pli bona, pli simila al niaj deziroj. Vidu, kiel riĉa estas la vivo! Ekzistas sufiĉe da materialo por kon-strui novan kaj pli bonan homan vivadon. Ni faru tion, ni faru tion! Tiel mi pensis. Tia estis mia revo, sen kiu la vivo estus nenio … Kaj vi diras, ke ĝi neniam realiĝos? Kial? …
+Tamen, al la mondo de miaj junaj revoj la loko ne tute similas. Sed mi trovis vin, kaj vi fariĝis mia plej bela revo pri la vivo kaj la mondo. Dum la lastaj tagoj mi ofte diris al mi mem: la vivo ankoraŭ estas malbela kaj malbona. Do ni devas fari ĝin pli bela, pli bona, pli simila al niaj deziroj. Vidu, kiel riĉa estas la vivo! Ekzistas sufiĉe da materialo por kon-strui novan kaj pli bonan homan vivadon. Ni faru tion, ni faru tion! Tiel mi pensis. Tia estis mia revo, sen kiu la vivo estus nenio … Kaj vi diras, ke ĝi neniam realiĝos? Kial? …
 
 —i ne povas realiĝi. Pardonu, ke mi iam cedis je via peto pri renkonto! Sed tempo pasos, baldaŭ vi forgesos tiun ĉi revon, trovos novan, trovos la feliĉon. Sed diru, ĉu vi estas malkontenta je mi?
 
@@ -1023,9 +842,6 @@ Dum mallonga momento li kredis senti iom da malŝato al ŝi, kaj liaj lipoj male
 —Ni estas sklavoj …
 
 ŝi subite rektiĝis kaj rigardis lin kun stranga esprimo.
-
-
-AL TORENTO
 
 
 —Kion vi volas diri?
@@ -1047,25 +863,17 @@ Karlo iomete ruĝiĝis, sed demandis:
 Kaj la ioma malestimo tuj malaperis kiel neĝo en printempa suno.
 
 
-AL TORENTO
-
-
 IV.
 
 Lia interno similis al nuda tero sub influo de printempa suno.
 
-Unue Torento estis iom fremda al li, sed baldaŭ li kutimi-
-
-ĝis, kaj la novaj impresoj ŝajnis al li sufiĉe ĉiutagaj. Sed post mallonga tempo estis al li, kvazaŭ li vekiĝus el sonĝo, kaj ti-am li vidis multon, kion li antaŭe ne vidis, faris eltrovojn en aferoj, kiujn li kredis jam tute esploritaj. Lia vidkapablo pli-akriĝis, lia mensa vivo plivigliĝis.
+Unue Torento estis iom fremda al li, sed baldaŭ li kutimiĝis, kaj la novaj impresoj ŝajnis al li sufiĉe ĉiutagaj. Sed post mallonga tempo estis al li, kvazaŭ li vekiĝus el sonĝo, kaj ti-am li vidis multon, kion li antaŭe ne vidis, faris eltrovojn en aferoj, kiujn li kredis jam tute esploritaj. Lia vidkapablo pli-akriĝis, lia mensa vivo plivigliĝis.
 
 Kiam li unue estis inter la laboristoj, li rigardis ilin en tute ordinara maniero. Ili estis al li nur laboristoj kaj kamaradoj en laboro, ne pli. Kiel tiaj ili ne povis tre interesi liajn pensojn.
 
 Sed nun li subite ekvidis ilin el alia vidpunkto.
 
 Li ne sciis mem, kiamaniere la penso venis en lian kapon, ĉu ĝi naskiĝis tie, ĉu li trovis ĝin en iu gazeto aŭ aŭdis ĝin de iu kamarado. Sed subite li demandis sin mem: Kiun sencon havas la vivo de ĉiuj tiuj homoj, kiun sencon ili mem donas al siaj vivoj? Kaj li trovis nur unu respondon: La senco de iliaj vivoj estas nur — vivi, vivteni sin kaj laŭeble ĝui de tio, kion akirita mono kaj favoraj cirkonstancoj donas al ili. Kaj per unu fojo tia vivo, kiu antaŭe ŝajnis al li tute natura, fariĝis teda, senenhava, abomeninda. Kaj li mem? ĉu ankaŭ li ne havas antaŭ si senfinan perspektivon de tute simila vivo, senfinan ĉenon, en kiu ĉiu ero estas tago de peza, maŝinsimile farita laboro? Tamen ne li kontraŭdiris al sia propra demando.
-
-
-AL TORENTO
 
 
 Se li devos trapasi vivon, kiu ekstere plene similos al tiu de centoj da aliaj, li tamen trapasos ĝin kune kun ŝi. Eble la ekstera diferenco ne estos tre granda. Sed la interna estos gran-dega.
@@ -1080,12 +888,7 @@ Kaj en lia memoro revekiĝis vortoj kaj frazoj el tiu gazeto, super kiu li iam e
 
 Li iris al la vendanto de ”La Flamo”, interparolis kun li, ricevis prunte pakon da libroj kaj gazetoj kaj dum tri semajnoj
 
-— en vespleroj kaj noktoj — li pli multe legis ol en sia tuta antaŭa vivo. Li komencis aĉeti kaj legi ĉiutagajn gazetojn kaj fine, kvankam nur pere, trovis kontakton kun la granda mon-51
-
-AL TORENTO
-
-
-do, pri kiu li antaŭe tiel ofte revis. La gazetisto invitis lin al kunveno de la Flamanoj. Li akceptis kaj trovis tie kelkajn vig-lajn junulojn, kiuj kun intereso kaj granda entuziasmo diskutis pri reformado de socio kaj pensmaniero.
+— en vespleroj kaj noktoj — li pli multe legis ol en sia tuta antaŭa vivo. Li komencis aĉeti kaj legi ĉiutagajn gazetojn kaj fine, kvankam nur pere, trovis kontakton kun la granda mondo, pri kiu li antaŭe tiel ofte revis. La gazetisto invitis lin al kunveno de la Flamanoj. Li akceptis kaj trovis tie kelkajn vig-lajn junulojn, kiuj kun intereso kaj granda entuziasmo diskutis pri reformado de socio kaj pensmaniero.
 
 —ĉu vi estas la solaj socialistoj en Torento? — li demandis.
 
@@ -1101,9 +904,7 @@ Kelkafoje li parolis al Bertil pri tiaj aferoj. Kaj tiu ridetis bonvoleme: — J
 
 —Sed vi ne komprenas … La frateco …
 
-—ĉu vi do volas diri, ke mi estas ies malamiko? Absolute 52
-
-AL TORENTO
+—ĉu vi do volas diri, ke mi estas ies malamiko? Absolute
 
 
 ne! Mi estas same bona frato al la homoj kiel ili al mi, kelkafoje eĉ iom pli bona. Kion ili do povus postuli de mi? —
@@ -1123,9 +924,7 @@ Vesperon en la mezo de julio ili ree sidis sub la betuloj ĉe la rando de la gra
 
 Ili babiletis kiel kutime; sed subite ŝi diris kun mallaŭta kaj tremetanta voĉo:
 
-—Niaj vojoj jam disiĝos, kaj verŝajne ni ne renkontos nin 53
-
-AL TORENTO
+—Niaj vojoj jam disiĝos, kaj verŝajne ni ne renkontos nin
 
 
 plu. Tial mi devas paroli al vi, ne por justigi min, sed por peti pri via pardono …
@@ -1146,9 +945,7 @@ Kun fantomece trankvila voĉo ŝi daŭrigis, kvazaŭ parolante al si mem:
 
 ŝi eksilentis kaj subite boris siajn dentojn en la lipojn, dum ŝia rigardo fariĝis akra kaj stranga kiel tiu de frenezulo. Liaj okuloj per unu fojo pleniĝis per larmoj, kiuj en grandaj gutoj disfluis laŭ liaj vangoj. ŝi sidis kvazaŭ ŝtoniĝinta, sen vorto, sen ĝemo, sen suspiro. Estis kvazaŭ ŝi eĉ ne spirus. Nur la fluantaj larmoj atestis pri vivo.
 
-La mallaŭtaj vortoj trafis lin kiel subitega ekvido de proksima kaj blindiga fulmo, kaj li ekskuiĝis kvazaŭ de profunda 54
-
-AL TORENTO
+La mallaŭtaj vortoj trafis lin kiel subitega ekvido de proksima kaj blindiga fulmo, kaj li ekskuiĝis kvazaŭ de profunda
 
 
 ektimego. Poste ili ŝajnis korpiĝi kaj staris inter ŝi kaj li kiel minacantaj monstroj de iu terura sonĝo. Li sentis iun blindan kaj fortegan deziron alsalti al ŝi kaj disŝiri, bati, frakasi ŝin.
@@ -1168,9 +965,6 @@ lnstinkte kaj sen pensi pri tio, li etendis sian brakon kaj lia tremanta mano ko
 Li rektigis sin kaj provis ordigi siajn pensojn. Ho, fine li do kisis kaj karesis ŝin, sian prirevitan amatinon … Sed dum kiaj cirkonstancoj! Ankoraŭ li sidas apud ŝi, tenas ŝian manon en sia, apogas ŝian dorson per la alia brako. Strange, strange …
 
 
-AL TORENTO
-
-
 ŝi estis la amatino de alia, portas estiĝantan estaĵeton en sia juna malforta korpo … kaj ŝi estis lia revo pri la vivo … strange, nekompreneble. Kial li ne koleras je ŝi, insultas ŝin, batas ŝin? ĉu li estas malkuraĝa, senforta, sen vira fiero? Ne, ne, estu kiel ajn, ŝi tamen estis lia plej bela revo, kaj ankoraŭ ŝi estas lia malfeliĉa fratino. —
 
 Subite li ekvekiĝis. Brua signalo de rapide preterpasanta aŭtomobilo tondris sur la alia flanko de la kaŝantaj arbustoj kaj arboj. Nebuleto de strata polvo ekleviĝis kaj poste malrapide malleviĝis, restante kiel griza tavoleto sur folioj kaj herboj. Aŭdiĝis raŭkaj, fortaj voĉoj de junuloj kaj kverantaj voĉoj de ridetantaj junulinoj, kaj post momento kelkaj paroj sur bicikloj preterveturis. Kaj see regis silento.
@@ -1181,9 +975,7 @@ vekis lin el lia stranga stato. Dum tiuj momentoj de doloro la mondo kaj la homo
 
 Nun li ekmemoris pri la ekstera mondo, kaj suspiro de laceco kaj rezigno eliĝis el lia brusto. Kial ĝi do ekzistas, tiu mondo kun tiuj homoj, fremdaj kaj sen komprenemo? Se ĝi ne estus! Sed ĝi estas; kaj iliaj vojo disiĝos, kaj post kelkaj horoj lia revo kaj la terura vekiĝo el ĝi estos nura memoro —
 
-sed turmentanta kaj neforviŝebla memoro, kiun li kunportos 56
-
-AL TORENTO
+sed turmentanta kaj neforviŝebla memoro, kiun li kunportos
 
 
 inter la homoj, kiuj ne scias nek scios pri la nevortigeblaj ĝojo kaj doloro de lia interno.
@@ -1210,9 +1002,7 @@ Ankaŭ mi estis inter la homoj de la nova tempo, kiuj provas faligi la idolojn k
 
 Ne lin mi amis, sed mian revon pri liberiĝo. Kaj cetere mi nur obeis al miaj deziroj.
 
-Estas strange. Mi havas kaj havos ankoraŭ pli da ĉagreno pro tio. Tamen ŝajnas ankoraŭ al mi, ke mi pravis. Kaj tamen ne pravis, ĉar mi fariĝis ja sencele malfeliĉa. Liberiĝo ŝajnas 57
-
-AL TORENTO
+Estas strange. Mi havas kaj havos ankoraŭ pli da ĉagreno pro tio. Tamen ŝajnas ankoraŭ al mi, ke mi pravis. Kaj tamen ne pravis, ĉar mi fariĝis ja sencele malfeliĉa. Liberiĝo ŝajnas
 
 
 al mi bona, malgraŭ ĉio. Sed por esti libera, la homo devas esti saĝa kaj ĉiurilate pli perfekta ol la sklavo … Alie la homo ree fariĝas sklavo, meze de sia libereco, sklavo sub la sekvoj de sia malbone kaj malsaĝe uzita libereco. Nun mi komprenas tion, tiam ne.
@@ -1231,9 +1021,7 @@ Mi ne estis la kaŭzo de lia foriro, ĉar eĉ pli frue ol mi unue renkontis lin,
 
 Se li nur estus dirinta antaŭe: “Mi ne povas resti kun vi plu, mi devas iri for, tial adiaŭ!” Tiam mi estus dirinta al li: “Bone, vi estas libera kiel mi. Mi portos mian sorton, kaj vi ŝuldos al mi nenion. ” — Sed tiel!
 
-Mi enfalis en abismon de nigraj pensoj, kaj por la unua fojo, pensante pri patrino kaj frato, mi ektimis la sekvojn de mia libereco. Por la unua fojo mi komprenis la sentojn de mia 58
-
-AL TORENTO
+Mi enfalis en abismon de nigraj pensoj, kaj por la unua fojo, pensante pri patrino kaj frato, mi ektimis la sekvojn de mia libereco. Por la unua fojo mi komprenis la sentojn de mia
 
 
 patrino, kiam ŝi sciiĝos pri tio. Noktiĝis ĉirkaŭ mi. Unue mi preskaŭ freneziĝis kaj ne sciis kion fari, ĉu iri en la riveron por foriĝi aŭ al la dancejo por havigi alian patron al mia infano?
@@ -1250,12 +1038,7 @@ Kaj tiam vi venis.
 
 Stranga sento ekkaptis min, kiam mi vidis vin. Estus sensence diri, ke vi plaĉis al mi. Pri tiaj aferoj mi ne povis pensi tiam. Estis io tute alia. ĉu iam okazis al vi, kiam vi estis pli juna, eble preskaŭ infano, ke vi revis pri renkonto kun homo, ĉu samseksa aŭ male, kiu plene komprenos vin kaj en ĉio sentos kaj pensos same kiel vi mem? Tiamaniere mi ofte revis, kiam mi estis infanino, kaj la soleco fariĝis preskaŭ ne eltene-bla. Sed kiam mi fariĝis pli aĝa, tiuj revoj iom post iom malaperis, eble transformiĝis laŭ la vera aspekto de la mondo.
 
-Kiam vi venis, estis al mi, kvazaŭ unu el tiuj revofiguroj de miaj knabinetaj jaroj subite estus aperinta antaŭ mi. Mi sen-59
-
-AL TORENTO
-
-
-tis, ke tie staras junulo, kiu ĉiam povus frate kaj plene kompreni min, eĉ en mia plej profunda doloro, kaj kies nura ĉe-esto povus esti plej trankviliga konsolo. Estis nur revekiĝinta infanorevo. Tamen ĝi estis pli forta ol mia racio. En tempoj de profunda doloro la homo eble fariĝas kiel infano, kaj de longe forgesitaj pensoj kaj revoj ree viviĝas.
+Kiam vi venis, estis al mi, kvazaŭ unu el tiuj revofiguroj de miaj knabinetaj jaroj subite estus aperinta antaŭ mi. Mi sentis, ke tie staras junulo, kiu ĉiam povus frate kaj plene kompreni min, eĉ en mia plej profunda doloro, kaj kies nura ĉe-esto povus esti plej trankviliga konsolo. Estis nur revekiĝinta infanorevo. Tamen ĝi estis pli forta ol mia racio. En tempoj de profunda doloro la homo eble fariĝas kiel infano, kaj de longe forgesitaj pensoj kaj revoj ree viviĝas.
 
 Mi provis kontraŭstari kaj esti saĝa, kiam vi petis pri renkonto, sed mi malsukcesis. Mi estis fariĝinta infanino, senforta, helposerĉanta — ja, eble sentimentala. Mi diris al mi, ke mi agas freneze kaj malhoneste, kaj mi hontis pri mi mem. Tamen mi konsentis al viaj petoj.
 
@@ -1273,9 +1056,7 @@ Kaj en lia interno estis sento, kiu similis al tiu nokta silento, trankviliga ka
 
 Senvorte ŝi premis lian manon kaj poste ekstaris. Ili returnis sin al Torento.
 
-Veninte al ŝia hejmo ili dum kelkaj momentoj restis sub la 60
-
-AL TORENTO
+Veninte al ŝia hejmo ili dum kelkaj momentoj restis sub la
 
 
 siringaj arbustegoj. El malproksimo aŭdiĝis la muziko de la dancejo, kaj dum momento li vidis interne la homplenan lokon, kie juna vivo bolas kiel ŝaŭmanta printempa rivero. Lipoj ridas, okuloj briletas kaj serĉadas, demandas senvorte, respondas senvorte. Lampoj brilas: ruĝaj, flavaj, verdaj. Junaj voĉoj kveradas kaj flustradas, kaj parope gejunuloj promenas sur solecaj vojetoj … Kaj li miris pri si mem. Kiel ĉio ĉi povis interesi lin?
@@ -1284,16 +1065,11 @@ siringaj arbustegoj. El malproksimo aŭdiĝis la muziko de la dancejo, kaj dum m
 
 ŝi ektremis.
 
-—Eble fariĝos nebone. Sed mi portos mian sorton. Dan-
-
-kon, amiko! De nun ni ne vidos nin plu, ne povos. Vi ja komprenas.
+—Eble fariĝos nebone. Sed mi portos mian sorton. Dankon, amiko! De nun ni ne vidos nin plu, ne povos. Vi ja komprenas.
 
 —Jes … sed kiel vi povos elteni ĉion? Se mi nur povus helpi al vi … Sed kiel? … Aŭtune mi iros fari mian militservon. Mi skribos kelkajn leterojn al vi, donos mian adreson. Sendu vor-teton por ke mi sciu pri via sorto! Mi ne povos mildigi ĝin; sed miaj pensoj restos ĉe vi. Eble estas sensence diri tiel … tamen …
 
 Ili rigardis longe unu la alian kaj senvorte disiĝis.
-
-
-AL TORENTO
 
 
 V.
@@ -1306,9 +1082,7 @@ Kelkafoje li vidas ŝin iranta trans la korteton aŭ staranta antaŭ la pordo, o
 
 Tiam li eksentas piketon en la interno, kvazaŭ li estus perdin-ta ŝin denove. Sed lia penso tuj diras: Devas ja esti tiel. ĉu ŝi povus agi alie? Kaj vi — ĉu vi povus akcepti ŝin, se ŝi volus reveni al vi kaj fariĝi via? ĉu vi povus akcepti la infanon de ŝia estinta amanto?
 
-Sed liaj sentoj intervenas. Tamen vi amis ŝin, tamen vi amis 62
-
-AL TORENTO
+Sed liaj sentoj intervenas. Tamen vi amis ŝin, tamen vi amis
 
 
 ŝin, ili dolorige kantas en lia senluma interno. Kaj la pensoj respondas: Tio estis, sed ne estas plu.
@@ -1325,9 +1099,7 @@ Tiel li parolis al si mem, sed la parolo ne havis grandan efi-kon. Senĉese kaj 
 
 ĝoja, lian tutan mensan vivon.
 
-La semajnoj pasis limake malrapide. Estis al li, kvazaŭ li 63
-
-AL TORENTO
+La semajnoj pasis limake malrapide. Estis al li, kvazaŭ li
 
 
 irus en aŭtuna nebulo, griza, trista kaj mortosilenta. Neniu vivosigno, neniu esperigo, pri suno kaj printempo oni ne povas eĉ revi. Kiel velkintaj folioj liaj esperoj je la vivo unu post alia disiĝis de lia animo, falis teren kaj dissolviĝis.
@@ -1345,27 +1117,17 @@ Kaj tamen la anoj de tiu societo nomas sin individuistoj! ĉu ili ne vidas la pa
 Li demandis la gazetvendiston, la plej kleran en la grupo, pri tiuj aferoj, ĉar interesis lin scii, ĉu ili mem aŭ almenaŭ iuj el ili estas konsciaj pri la diferenco inter teorioj kaj vivo.
 
 
-AL TORENTO
-
-
 La malgranda homo rigardis lin momente, kaj liaj okuloj ekbriletis en sia profundaj kavoj.
 
-—Vi faras grandan demandon. La homoj ankoraŭ ne kom-
-
-prenas tiujn aferojn. ĉu ili iam komprenos, mi ne scias. Sed ni esperu. Vere la interna vivo de homo estas pli grava ol ĉiuj teorioj en la mondo, ĉar ĝi sola estas la vivo mem. La ekstera vivo, kutimoj, sociordo ktp. estas nur spegulbildo de la internoj de la homoj. Sed tion oni ne komprenas. Kontraŭe, oni plej ofte pretendas, ke eksteraj plibonigoj donos la feliĉon al la homoj. Kiel vi diras, la homoj ankoraŭ estas idolanoj. Ili pli konfidas al objektoj kaj eksteraj aferoj ol al si mem, al siaj propraj internoj. Veraj individuistoj ankoraŭ ne ekzistas. Jes, ekzistas, sed eble unu po dekmilo da homoj. Kaj vi demandas, ĉu restos tiel. Kiu povas diri? Tio estas demando, kiun nur la venonteco solvos.
+—Vi faras grandan demandon. La homoj ankoraŭ ne komprenas tiujn aferojn. ĉu ili iam komprenos, mi ne scias. Sed ni esperu. Vere la interna vivo de homo estas pli grava ol ĉiuj teorioj en la mondo, ĉar ĝi sola estas la vivo mem. La ekstera vivo, kutimoj, sociordo ktp. estas nur spegulbildo de la internoj de la homoj. Sed tion oni ne komprenas. Kontraŭe, oni plej ofte pretendas, ke eksteraj plibonigoj donos la feliĉon al la homoj. Kiel vi diras, la homoj ankoraŭ estas idolanoj. Ili pli konfidas al objektoj kaj eksteraj aferoj ol al si mem, al siaj propraj internoj. Veraj individuistoj ankoraŭ ne ekzistas. Jes, ekzistas, sed eble unu po dekmilo da homoj. Kaj vi demandas, ĉu restos tiel. Kiu povas diri? Tio estas demando, kiun nur la venonteco solvos.
 
 Vi ankoraŭ estas juna, kaj viaj sentoj ankorau estas plene vivaj. Tial vi demandas tiel. Sed post kelkaj jaroj vi eble ne demandos plu. La homoj plejparte ne havas multe da sentoj.
 
-Tial ni havas tiom da teorioj. La teorioj ne donas grandan profiton, sed aliflanke ili ankaŭ ne donas doloron. lli estas tute konvenaj por senanima tempo … Kaj dume ni laboru laŭ-
-
-pove!
+Tial ni havas tiom da teorioj. La teorioj ne donas grandan profiton, sed aliflanke ili ankaŭ ne donas doloron. lli estas tute konvenaj por senanima tempo … Kaj dume ni laboru laŭpove!
 
 —Sed via laboro koncernas ja nur eksterajn aferojn! ĉu mi akiras du kronojn aŭ kvin aŭ dek potage, povas esti tute indiferente. Mi ne diras, ke ĝi estas, sed povas esti. ĉar en homa vivo ekzistas ĉagrenoj kaj afliktoj, kiujn la plej alta salajro kaj la plej luksa vivo ne povas mildigi.
 
 —Jes. Sed tion vi diras, ĉar vi ankoraŭ estas tre juna, ĉar viaj sentoj ankoraŭ ne velkis, ĉar vi eble estas tre bona homo.
-
-
-AL TORENTO
 
 
 Li silentis dum momento kaj rigardis Karlon serioze, kaj ree liaj profundaj okuloj ekbriletis kiel fosforo en mallumo.
@@ -1377,24 +1139,17 @@ Li parolis mallaŭte kaj trankvile, sed kun iu interna ardo, kiu tamen ne povis 
 La somero pasis, kaj li estis sola kun siaj pensoj kaj perditaj revoj. Al neniu li parolis pri sia travivaĵo, kaj malmulte li parolis pri aliaj aferoj. La peza laboro plifortigis liajn musko-lojn, lia korpo fariĝis fortika kaj tendena. Liaj trajtoj maturiĝis kaj malmoliĝis, la esprimo de la okuloj profundiĝis.
 
 
-AL TORENTO
-
-
 Iun aŭtunan matenon li sidis en vagonaro, kiu portis lin kaj kelkajn kamaradojn suden al la ĉefurbo.
 
 Torento kaj la bluaj montoj estis malaperintaj ĉe la horizonto. Sur ambaŭ flankoj de la fervojo etendis sin la vasta ebeno.
 
-Antaŭ liaj okuloj rapide preterglitas avenaj kampoj kun ri-koltantoj, ĉevaloj kaj rikoltaj maŝinoj. Jen proksimiĝas verda ejo kun arego da bovinoj, kiuj flegme sin paŝtas aŭ ripozas en la matena trankvilo. Jen venas stoplejoj kun ĉevaloj kaj plu-gantoj aŭ peze kaj malrapide marŝantaj traktoroj. Tie kaj tie kuŝas ruĝaj domoj kaj vilaĝoj dissemitaj sur la vastaj teroj. Tie kaj tie vidiĝas por momento blankaj preĝejoj kun silentaj tombejoj kiel memorigoj pri la nenieco de homa laboro kaj penado. Sed ree venas kampoj kun homoj, kiuj salute svingas siajn manojn al la veturantoj kaj ridas kaj gajas, kvazaŭ pre-
-
-ĝejoj kaj tombejoj nenie ekzistus. La blua strieto en la sudo proksimiĝas kaj grandiĝas, kaj baldaŭ li povas pli klare distingi tiun regionon, kiun li antaŭe vidis nur de malproksime.
+Antaŭ liaj okuloj rapide preterglitas avenaj kampoj kun ri-koltantoj, ĉevaloj kaj rikoltaj maŝinoj. Jen proksimiĝas verda ejo kun arego da bovinoj, kiuj flegme sin paŝtas aŭ ripozas en la matena trankvilo. Jen venas stoplejoj kun ĉevaloj kaj plu-gantoj aŭ peze kaj malrapide marŝantaj traktoroj. Tie kaj tie kuŝas ruĝaj domoj kaj vilaĝoj dissemitaj sur la vastaj teroj. Tie kaj tie vidiĝas por momento blankaj preĝejoj kun silentaj tombejoj kiel memorigoj pri la nenieco de homa laboro kaj penado. Sed ree venas kampoj kun homoj, kiuj salute svingas siajn manojn al la veturantoj kaj ridas kaj gajas, kvazaŭ preĝejoj kaj tombejoj nenie ekzistus. La blua strieto en la sudo proksimiĝas kaj grandiĝas, kaj baldaŭ li povas pli klare distingi tiun regionon, kiun li antaŭe vidis nur de malproksime.
 
 De malproksime … Li memoras la kvietan vesperon, kiam
 
 li sidis kun Enjo sub la betuloj apud la norda rando de la ebeno. Nur du monatoj pasis de tiam. Tamen kiel longa estis tiu tempo. Bone, ke ĝi fine estas pasinta. Sed la memoroj restas, restos. Li iras al la granda mondo, kiu troviĝas ie en la malproksimo, kaj ĉion hejman li jam forlasis, ĉion — krom la memoroj. Eble ili iom post iom paliĝos en la brua vivo de la kazerno, sur la stratoj de la granda urbo. Paliĝos sed ne foriĝos.
 
-La trajno trapasas grandajn vilaĝojn kaj grandajn urbojn kun belaj domegoj kaj aroj da fumantaj tubegoj. Kelkafoje li momente ekkaptas la vidon de larĝa strato kie homoj iras kaj intermiksiĝas kiel formikoj sur formikovojo en la arbaro. En 67
-
-AL TORENTO
+La trajno trapasas grandajn vilaĝojn kaj grandajn urbojn kun belaj domegoj kaj aroj da fumantaj tubegoj. Kelkafoje li momente ekkaptas la vidon de larĝa strato kie homoj iras kaj intermiksiĝas kiel formikoj sur formikovojo en la arbaro. En
 
 
 la senĉese moviĝanta kaj fluanta homamaso la aŭtomobiloj glitas glate kaj rapide kiel glitbobenoj en giganta teksilo.
@@ -1410,9 +1165,6 @@ Antaŭe li mem pensis kun malŝato kaj abomeno pri tiu
 tempo, kiam oni sklavigos lin per uniformo kaj ordonoj. Sed nun estas iel alie. Dum la vintra sklaveco li eble povos iomete forgesi, eble la memoroj iomete paliĝos. Kaj cetere li ja havos okazon vidi, kia estas la granda mondo, al kiu li antaŭe tiel sopiris. Do, kial ne?
 
 
-AL TORENTO
-
-
 En malnovega, senluma kaj falema domaĉo en la plej malnova parto de la urbo loĝas lia kuzo kaj ties edzino. En sabataj vesperoj, kiam li ricevas forpermeson ĝis la dimanĉa noktomezo, li iras tien. Tra kurbaj kaj mallarĝaj mezepokaj stratoj kun grupoj da kriantaj kaj kverelantaj transportistoj kaj havenlaboristoj li hezite serĉas sian vojon al la strato kaj domo, kies nomon kaj numeron li zorge fiksis en sia memoro.
 
 La loko plenigas lin per melankolio kaj neklara abomeno.
@@ -1423,12 +1175,7 @@ La kuzo laboras en iu malproksima sukerfabriko, same lia edzino. Kiam unu venas 
 
 Al Karlo ĝi ŝajnas kiel terura sonĝo. Kiamaniere homoj povas pasigi sian vivon tiel? li demandas sin mem. Se li estus devigita vivi tiel, li certe forkurus el la urbo. Sed strange, ili mem ne ŝajnas kompreni sian sorton, tiu vivmaniero laŭvide ŝajnas tute memkomprenebla al ili. Verdire ili estas fervoraj komunistoj, verdire ili kelkafoje plendas pri la mizera vivo.
 
-Sed tio estas nur momentaj kaj maloftaj erupcioj. enerale ili ŝajnas sufiĉe kontentaj, eĉ gajaj kaj vivavidaj, same kiel la la-69
-
-AL TORENTO
-
-
-boristoj en Torento aŭ la lufarmetantoj en la profundaj arbaroj. Tuj kiam li alvenas, li forĵetas la uniformon en angulon kaj surmetas civilan kostumon, enbuŝigas iom da manĝaĵo kaj tason da kafo kaj poste iras en la urbon, Horon post horo ĝis malfrua nokto li iras sur la stratoj, aŭskultas, rigardas, meditas, ensorbas per ĉiuj sentoj la vivon de tiu monstra estaĵo, kiu estas la grandurbo.
+Sed tio estas nur momentaj kaj maloftaj erupcioj. enerale ili ŝajnas sufiĉe kontentaj, eĉ gajaj kaj vivavidaj, same kiel la laboristoj en Torento aŭ la lufarmetantoj en la profundaj arbaroj. Tuj kiam li alvenas, li forĵetas la uniformon en angulon kaj surmetas civilan kostumon, enbuŝigas iom da manĝaĵo kaj tason da kafo kaj poste iras en la urbon, Horon post horo ĝis malfrua nokto li iras sur la stratoj, aŭskultas, rigardas, meditas, ensorbas per ĉiuj sentoj la vivon de tiu monstra estaĵo, kiu estas la grandurbo.
 
 La perfekta soleco en la senfine fluanta homotorento unue tre plaĉis al li. Cent miloj da homoj preterpasas onin, sed ĉiu zorgas nur pri si mem. Kion unu pensas kaj sentas, estas absolute indiferenta al la alia, kaj se iu vidas onin, oni estas al li nura ombro, kiu preterglitas sur lia vojo. Tian perfektan solecon li ne trovis eĉ en la arbaroj. Tiutempe li malŝatis la solecon. Nun ĝi ŝajnas al li bona afero.
 
@@ -1444,12 +1191,7 @@ Tiam la bildo de Enjo komencis reviviĝi en lia interno. Ree li sentis doloron p
 
 Li ekmemoris la promeson skribi al ŝi, sed hezitis plenumi
 
-ĝin. ĉu ne estus sensence, sentimentale? Sed aliflanke ŝi es-70
-
-AL TORENTO
-
-
-tis kompatinda, sola, senespera. Eble signeto de kompato kaj kompreno donus iom da konsolo al ŝi.
+ĝin. ĉu ne estus sensence, sentimentale? Sed aliflanke ŝi estis kompatinda, sola, senespera. Eble signeto de kompato kaj kompreno donus iom da konsolo al ŝi.
 
 En la komenco de la vintro li fine sendis al ŝi mallongan leteron. Post kelkaj tagoj li ricevis respondon. Estis sabata vespero, kaj li jam pretigis sin por foriro el la kazerno, kiam la letero atingis lin. Lia unua penso estis disŝiri la koverton kaj tuj legi ĝin, sed ĉirkaŭrigardinte en la homplena koridoro, kie duonvestitaj junuloj bruadis kaj kondutis kiel petolemaj bo-voj, li metis ĝin en la poŝon kaj rapidis al la loĝejo de sia kuzo.
 
@@ -1463,16 +1205,12 @@ Amiko!
 
 Mi dankas vin! Vi ne scias, kiom mi pensis pri vi dum la pasintaj monatoj, kiom mi deziris ricevi kelkajn vortojn de vi.
 
-Post nia disiĝo mi fariĝis soleca … Mi ja diris al vi, ke mi portos mian sorton. Jes, mi portis, portas kaj portos ĝin. Tamen … Post via foriro mi komencis esperi. Hodiaŭ mi ricevos leteron, mi pensis ĉiumatene. Sed semajnoj pasis, monatoj pasis. Fine mi komencis honti pri mi mem. Kia mi do estas, ke mi povus atendi signon de amikeco de homo, al kiu mi tiamaniere kondutis? Mi soliĝis ankoraŭ pli kaj kredis, ke vi 71
-
-AL TORENTO
+Post nia disiĝo mi fariĝis soleca … Mi ja diris al vi, ke mi portos mian sorton. Jes, mi portis, portas kaj portos ĝin. Tamen … Post via foriro mi komencis esperi. Hodiaŭ mi ricevos leteron, mi pensis ĉiumatene. Sed semajnoj pasis, monatoj pasis. Fine mi komencis honti pri mi mem. Kia mi do estas, ke mi povus atendi signon de amikeco de homo, al kiu mi tiamaniere kondutis? Mi soliĝis ankoraŭ pli kaj kredis, ke vi
 
 
 estas forgesinta min. Nu, kial vi ne forgesu? Estus ja nur bone por vi, kaj mi ne devus esti ĉagrenita pro tio.
 
-Estis strange al mi, kiam mi legis viajn bonajn, fratajn vortojn. Mi ja neniel meritis ilin, kontraŭe, kaj mi demandis min, ĉu estas vere, ke ekzistas homo, kiu komprenas kaj kompatas, kvankam li devus malŝati. Pardonu, eble mi fari-
-
-ĝas sentimentala!
+Estis strange al mi, kiam mi legis viajn bonajn, fratajn vortojn. Mi ja neniel meritis ilin, kontraŭe, kaj mi demandis min, ĉu estas vere, ke ekzistas homo, kiu komprenas kaj kompatas, kvankam li devus malŝati. Pardonu, eble mi fariĝas sentimentala!
 
 Mia patrino nun scias ĉion. Fine mi ne povis silenti plu kaj parolis al ŝi. Ho, kiel mi timis ŝiajn larmojn, ŝian korŝiran doloron. Estis preskaŭ neeble eligi la vortojn. Sed ŝi ne ploris, ne ĝemis, nur rigardis min longe kaj iom kolere kaj poste diris: “Aĉa bubino, tion mi povis antaŭvidi jam de longe. Kaj kiu estas la patro? ĉu li estas en tia stato, ke li povas pagi? Aŭ ĉu li edziĝos al vi?” Mi ne povis klarigi la aferon al ŝi, ŝi ja ne estus kompreninta min, kaj tial mi nur diris, ke li estas for kaj neniam revenos. Tiam ŝi komencis lamenti, sed ne pro mi kaj la naskiĝonto nek pro si mem. Nur pro la mo-no ŝi lamentis. Mi asertis, ke mi laboros kaj honeste vivtenos la infanon kaj min mem. Jes, jes, tion ŝi kredis. Sed tamen
 
@@ -1483,9 +1221,6 @@ Tuj kiam mia frato venis hejmen, ŝi sciigis ĉion al li. Li rigardis min scivol
 Do — vi komprenas. Se ili ĉagreniĝas, ili ĉagreniĝas pro mono. Kiam mi ekkomprenis tion, mi liberiĝis de peza sarĝo kaj preskaŭ gajiĝis interne. Sed samtempe ili fariĝis plene fremdaj al mi. Kaj mi estas fremdulino en tiu ĉi domo. Eble estis tiel jam antaŭe, estis ĉiam, kvankam mi ne kredis aŭ ne volis kredi tion. Kaj same la filo al la patrino, kaj ŝi al li.
 
 Strange. ĉu la homoj ĝenerale vivas tiel?
-
-
-AL TORENTO
 
 
 Tamen estas multe pli facile nun ol antaŭe. Se mi nur restos sana, ĉio ordiĝos. — —
@@ -1510,25 +1245,16 @@ diris Karlo, kiam ili sidis trinkante. — Vi laboras manĝas, dormas kaj kuras 
 
 Lia kuzo ekridetis.
 
-—Povas ŝajni stranga al vi. Sed kion fari? Eble ni povus vivteni nin per mia salajro. Sed neniom restus. Kaj la homo ne 73
-
-AL TORENTO
+—Povas ŝajni stranga al vi. Sed kion fari? Eble ni povus vivteni nin per mia salajro. Sed neniom restus. Kaj la homo ne
 
 
 povas vivi nur de pano. Oni devas adaptiĝi al la cirkonstancoj. ĉar mia edzino ankaŭ laboras, ni povas akiri iom pli. Ni aĉetis iom da mebloj, aĉetis bonan gramofonon, ni povas kelkafoje iri en kinon, kaj printempe ni espereble sukcesos aĉeti motorbiciklon. Kiam oni loĝas meze en la urbo, oni volas kelkafoje vidi iom da vera naturo kaj enspiri iom da pura aero.
 
 Pro tio ni aĉetos ĝin. Kelkafoje ni povas inviti amikojn por kelkhora kunesto. Kaj tiel plu. ĉion ĉi ni ne povus nur per mia salajro, aŭ almenaŭ nur post longa tempo. Verdire estas ja malgrandaĵoj. Sed iel la homoj bezonas tiajn malgrandaĵojn, kiuj tamen donas iom da lumo al la vivo. —
 
-Tiu ĉi mallonga kaj ne tre grava interparolo donis novan nutraĵon al la pensoj de Karlo, kaj li komencis rigardi la ur-banojn en iel alia maniero ol antaŭe. Ili ne nur laboras, man-
+Tiu ĉi mallonga kaj ne tre grava interparolo donis novan nutraĵon al la pensoj de Karlo, kaj li komencis rigardi la ur-banojn en iel alia maniero ol antaŭe. Ili ne nur laboras, manĝas, dormas kaj kuras sur la stratoj sed ili havas sentojn, pensojn kaj dezirojn kiel aliaj homoj. Kaj ĉiu el tiuj centmiloj da ombroj sur la bulvardoj portas sian propran sorton, sian ŝar-
 
-ĝas, dormas kaj kuras sur la stratoj sed ili havas sentojn, pensojn kaj dezirojn kiel aliaj homoj. Kaj ĉiu el tiuj centmiloj da ombroj sur la bulvardoj portas sian propran sorton, sian ŝar-
-
-ĝon da malfeliĉoj kaj zorgoj, eble ankaŭ iom da ĝojo kaj feli-
-
-ĉo. Eterne, senĉese fluanta torento el homsortoj. Ili do ne estas nuraj ombroj. Tamen, ĉu ne ombroj unu al la alia?
-
-
-AL TORENTO
+ĝon da malfeliĉoj kaj zorgoj, eble ankaŭ iom da ĝojo kaj feliĉo. Eterne, senĉese fluanta torento el homsortoj. Ili do ne estas nuraj ombroj. Tamen, ĉu ne ombroj unu al la alia?
 
 
 Kara Enjo!
@@ -1537,9 +1263,7 @@ Jam pasis la novjara festo, kaj post kelka tempo mi liberiĝos.
 
 Kion mi tiam faros, mi ankoraŭ ne scias. Mi ne tre emas reveni hejmen. Estas al mi, kvazaŭ mi ne plu apartenus al la lokoj de mia junaĝo, kvazaŭ ĉiuj ligiloj estus tranĉitaj kaj mi devus resti fremdulo, se mi revenus. Aliflanke mi ankaŭ ne ŝatas la urbon, ĉar ankaŭ ĝi estas fremda al mi kaj kredeble restos tia. Sed iamaniere ĝi altiras min. Ne la urbo per si mem, sed tiu giganta rivero de homoj kaj homsortoj. Ankaŭ mi estas ja akvero en la granda fluo. Kaj — ĉu ne ĉiuj apartenas al ĝi, kvankam pli malpli? Eĉ la loĝantoj en la malproksimaj, profundaj arbaroj kaj intermontaj valoj! Almenaŭ ŝajnas al mi, ke devus esti tiel. Mi volas rigardi tiun riveron kaj mediti pri ĝi. Tial mi restos, se mi trovos laboron.
 
-Kiel fremdaj la homoj estas unu al la alia! Kiel etaj kaj kutimecaj iliaj pensoj kaj sentoj! En tiu ĉi regimento estas momente ĉirkaŭ mil junuloj. Kun kiom el ili mi povus paroli, kiel mi parolas kun vi? Eble kun du aŭ tri. Kompreneble mi ne konas ĉiujn kaj ne povas certe diri, sed oni ja renkontas unu la alian, aŭskultas diskutojn kaj babilojn, rigardas vizaĝojn. La plej multaj certe estas sufiĉe bonaj homoj. Se mi volas pruntepreni moneron, ili volonte donas al mi, se ili povas. Se mi parolas al ili pri sporto, amuzoj, vetero kaj aliaj ĉiutagaj aferoj, ili montras intereson kaj respondas kun bon-kora mieno. Sed tie estas ilia limo. Aŭ ĉu ili ne kuraĝas paroli pri aliaj aferoj, hontetas pro sentoj kaj pensoj, kiuj ne apartenas al la kutimoj? Ekzistas kelkaj dekoj da socialistoj de diversaj partioj. Kun ili mi povas paroli pri forigo de la militoj, pri plibonigo de la socio, pri popolklerigo kaj aliaj tiaj aferoj. ĉiuj estas sufiĉe inteligentaj kaj viglaj. Sed nur 75
-
-AL TORENTO
+Kiel fremdaj la homoj estas unu al la alia! Kiel etaj kaj kutimecaj iliaj pensoj kaj sentoj! En tiu ĉi regimento estas momente ĉirkaŭ mil junuloj. Kun kiom el ili mi povus paroli, kiel mi parolas kun vi? Eble kun du aŭ tri. Kompreneble mi ne konas ĉiujn kaj ne povas certe diri, sed oni ja renkontas unu la alian, aŭskultas diskutojn kaj babilojn, rigardas vizaĝojn. La plej multaj certe estas sufiĉe bonaj homoj. Se mi volas pruntepreni moneron, ili volonte donas al mi, se ili povas. Se mi parolas al ili pri sporto, amuzoj, vetero kaj aliaj ĉiutagaj aferoj, ili montras intereson kaj respondas kun bon-kora mieno. Sed tie estas ilia limo. Aŭ ĉu ili ne kuraĝas paroli pri aliaj aferoj, hontetas pro sentoj kaj pensoj, kiuj ne apartenas al la kutimoj? Ekzistas kelkaj dekoj da socialistoj de diversaj partioj. Kun ili mi povas paroli pri forigo de la militoj, pri plibonigo de la socio, pri popolklerigo kaj aliaj tiaj aferoj. ĉiuj estas sufiĉe inteligentaj kaj viglaj. Sed nur
 
 
 teorioj kaj pli malpli komunaj sentoj rilate la sociajn aferojn ligas unu al la alia. Teorie ili estas fratoj, reale ili estas fremduloj unu al la alia. Kaj mi komencas kredi, ke la malfeliĉoj de la homaro, militoj kaj interbataloj de diversaj specoj pleje dependas de tio, ke la homoj estas fremdaj unu al la alia. Mi iam diris tion, kiam mi diskutis kun kelkaj el tiuj junuloj. Ili diris, ke mi estas naiva, kaj klarigis al mi, ke ĉiuj sociaj malfeliĉoj dependas de la ekonomia sistemo. Mi povus kompreni tion, se homa feliĉo konsistus nur el bona salajro, bona loĝejo, bonaj vestoj, bonaj lernejoj ktp. Kompreneble ĉio ĉi estas bonaj kaj atingindaj aferoj. Tamen, ili ne povos multe proksimigi la homojn unu al la aliaj. Aŭ ĉu la homoj estas tiaj, ke tiaj aferoj signifas al ili plenan feliĉon, ĉu ili ne deziras ion alian? Se estas tiel, mi restos izolulo. Se estas tiel, mia amiko Bertil estas la plej saĝa homo en la mondo. Sed bedaŭrinde mi ne povas kaj ne povos rigardi la mondon kiel li.
@@ -1547,9 +1271,6 @@ teorioj kaj pli malpli komunaj sentoj rilate la sociajn aferojn ligas unu al la 
 Kelkafoje mi hontas pri mi mem. Mi malbenas la militojn, malbenas la militservon. Kial mi do ne foriras, rifuzas lerni tiun sovaĝulan metion? Stranga afero, kiun mi mem ne povas kompreni. Mi deziras fari tion kaj havas neniujn skru-pulojn; kontraŭe, mi scias, ke mia obeemo al la leĝo estas silenta konsento pri senfina mortigo. Kaj tamen ne foriras!
 
 Kial? … Eble la aliaj sentas la samon. Almenaŭ ili diras same kiel mi. Sed ankaŭ ili restas. Se milito okazus, ili same dezirus rifuzi. Certe. Tamen ili ne rifuzus, sed irus en la mili-ton. Kial? … Tio certe ne dependas de ekonomia sistemo, sed de tio, ke la homoj estas fremdaj unu al la alia. La homoj havas multajn komunajn aferojn, sed pri la komuneco de la homoj mem neniu pensas, eble revemaj izoluloj …
-
-
-AL TORENTO
 
 
 Hazarde li trovis laboron tuj post la liberiĝo el la kazerno.
@@ -1568,21 +1289,14 @@ Por kiom longa tempo, mi ne scias. Sed espereble mi sukcesos aranĝi la aferojn,
 
 Mi estas sola kun miaj pensoj; la sola, al kiu mi povas paroli, estas vi, kaj estas ja malofte, ke mi sendas kelkajn vortojn al vi. Sed ne, mi tamen mensogas. Mi ankaŭ parolas al mia knabeto. Eble estas naive, li ja ne povas kompreni miajn senvortajn parolojn, miajn revojn pri la vivo. Sed eble li iam komprenos. Strangaj sentoj kelkafoje ekkaptas min. Mi
 
-rigardas mian infanon, kaj subite mi demandas: Kio estas 77
-
-AL TORENTO
+rigardas mian infanon, kaj subite mi demandas: Kio estas
 
 
-vi? Kio estas vi? Kaj mi ektremas de timeto kaj feliĉo, kiam mi respondas: Tie en la liteto dormetas la estonteco, kaj mi mem estas ĝia patrino kaj vartistino. Per mia sango, per miaj sentoj kaj pensoj mi nutros ĝin. Iom post iom ĝi veki-
-
-ĝos. Venos nova tago. Kaj kia ĝi estos? Ho, mi ne scias, povas nur revi pri tio. Pro tio mi timetas kaj estas feliĉa. Sed mi nutros ĝin per miaj plej belaj revoj, miaj plej bonaj sentoj, miaj plej bonaj vortoj, miaj plej bonaj agoj. Kiel mi iam revis pri estonteco, pri liberiĝo kaj elĉeniĝo, kiu per si mem venos kaj donos al ni la sopiratan feliĉon! Jes, ĝi venos, sed
+vi? Kio estas vi? Kaj mi ektremas de timeto kaj feliĉo, kiam mi respondas: Tie en la liteto dormetas la estonteco, kaj mi mem estas ĝia patrino kaj vartistino. Per mia sango, per miaj sentoj kaj pensoj mi nutros ĝin. Iom post iom ĝi vekiĝos. Venos nova tago. Kaj kia ĝi estos? Ho, mi ne scias, povas nur revi pri tio. Pro tio mi timetas kaj estas feliĉa. Sed mi nutros ĝin per miaj plej belaj revoj, miaj plej bonaj sentoj, miaj plej bonaj vortoj, miaj plej bonaj agoj. Kiel mi iam revis pri estonteco, pri liberiĝo kaj elĉeniĝo, kiu per si mem venos kaj donos al ni la sopiratan feliĉon! Jes, ĝi venos, sed
 
 ĝi estas infano, kiu jus naskiĝis, kaj kies gepatroj kaj nutran-toj ni mem estas. Ni estas ligiloj inter pasinteco kaj estonteco. Ni portis doloron pro pasintaj eraroj kaj malbonoj, pro propraj eraroj kaj nekomprenoj. Tial ni komprenas aŭ devus kompreni, kaj el vera kompreno devas kreski la estonteco, la elĉeniĝo… Eble mi ŝajnas al vi naiva, ja, eble mi estas. Tamen, mi ne povas alie. Iam mi kredis, ke mi komprenas la grandajn doktrinojn. Ne, mi ne komprenis nek komprenas.
 
 Mi fariĝis fremdulino en la mondo. Mia mondo estas en mi mem, kaj ĝia estonteco estas infaneto, kiu ankoraŭ dormetas kaj atendas la tagiĝon …”
-
-
-AL TORENTO
 
 
 VI.
@@ -1593,9 +1307,7 @@ Estas vespero, la mateno de la granda urbo. La malforta lumo de la subiranta sun
 
 Tiel li pensas.
 
-ĉiu lampo en la nokto estas malgranda suno, kiun la ho-mo lumigis al si mem, kopio kaj samtempe parteto de la granda lumfonto en la vastaj malproksimaj spacoj, sen kiu nia tero estus morta kaj glacia. Tiu povo faris el la homo tion, kio li estas. La fontoj de varmo kaj lumo, kiujn la homo kreis al si mem, fortigis lian konfidon al si mem. Kiam la homo lumigis siajn malgrandajn sunojn en la tera nokto, li mem fariĝis kre-anto kaj dio. Li ne vidas, ke tiu kredo nur estas nova maniero akcepti la varmon kaj lumon, kiujn la granda suno mem dissendas al ni jam de la lumplena mateno de l’pratempo. Li ne konas la grandan interrilaton, konas nur sian propran po-von kaj siajn proprajn malgrandajn lumojn. La sunkulto de la 79
-
-AL TORENTO
+ĉiu lampo en la nokto estas malgranda suno, kiun la ho-mo lumigis al si mem, kopio kaj samtempe parteto de la granda lumfonto en la vastaj malproksimaj spacoj, sen kiu nia tero estus morta kaj glacia. Tiu povo faris el la homo tion, kio li estas. La fontoj de varmo kaj lumo, kiujn la homo kreis al si mem, fortigis lian konfidon al si mem. Kiam la homo lumigis siajn malgrandajn sunojn en la tera nokto, li mem fariĝis kre-anto kaj dio. Li ne vidas, ke tiu kredo nur estas nova maniero akcepti la varmon kaj lumon, kiujn la granda suno mem dissendas al ni jam de la lumplena mateno de l’pratempo. Li ne konas la grandan interrilaton, konas nur sian propran po-von kaj siajn proprajn malgrandajn lumojn. La sunkulto de la
 
 
 pratempoj malaperis, nun oni adoras nur la malgrandajn lampojn.
@@ -1606,9 +1318,7 @@ Tiaj estas la mateno kaj sunleviĝo de la granda urbo. La tiea povo kaj beleco e
 
 Kiam la mateno venas, ĉio vivanta pleniĝas de la vekiĝa
 
-ĝojo. La homo iras al sia laboro kaj la infano al sia ludo. Sed en tiu nokta mateno ĉiuj iras tien, kien la hazardo gvidas ilin, vagante senhejme kiel almozulo, kiu ĉe tagiĝo vagas de domo al domo, petante pri peco da pano. Ili rapidas de elmontrejo 80
-
-AL TORENTO
+ĝojo. La homo iras al sia laboro kaj la infano al sia ludo. Sed en tiu nokta mateno ĉiuj iras tien, kien la hazardo gvidas ilin, vagante senhejme kiel almozulo, kiu ĉe tagiĝo vagas de domo al domo, petante pri peco da pano. Ili rapidas de elmontrejo
 
 
 al elmontrejo, de strato al strato, en sentrankvila serĉado de loko, kie iliaj sentoj satiĝos kaj ili gajnos novan forton.
@@ -1621,9 +1331,7 @@ Kio do mankas? ĉu la homa animo? Tiu animo, kiu aŭskultas por trovi la sencon 
 
 Tiuj alvenis sen scio pri kialo, ili aŭskultas kaj ridas, sed senkaŭze, nur pro malnova kutimo, nur ĉar ili de sia junaĝo vidis aliajn fari tiel. Iliaj rigardoj vagas kaj vidas, sed senim-pulse, senesprimaj kaj malplene brilantaj kiel tiuj de blindulo.
 
-Ili iradas, sed ne scias kial, ne scias kien. ĉio estas kiel maŝi-neca kaj nekonscia ripetado de io, kion ili jam multfoje faris: eble iam en junaĝo por renkonti amatinon, por renkonti amikon, por enspiri la pli puran aeron de la parko, por rigardi la vivon. Eble neniam estis celado en iliaj agoj; eble ili dekomence faris nur tion, kion ili vidis aliajn fari. Eble ilia tuta vivo 81
-
-AL TORENTO
+Ili iradas, sed ne scias kial, ne scias kien. ĉio estas kiel maŝi-neca kaj nekonscia ripetado de io, kion ili jam multfoje faris: eble iam en junaĝo por renkonti amatinon, por renkonti amikon, por enspiri la pli puran aeron de la parko, por rigardi la vivon. Eble neniam estis celado en iliaj agoj; eble ili dekomence faris nur tion, kion ili vidis aliajn fari. Eble ilia tuta vivo
 
 
 estas nur sensenca imitado de tiu de la gepatroj. Iliaj gepatroj vivis, laboris, fartis bone aŭ malbone, amis kaj geedziĝis, ekhavis infanojn, vivis sian tempon kaj fine mortis. ĉu la vivo de tiuj ĉi ne estas senpensa imitado de tio, nura ripetado de agoj, kiuj ne havas sencon al ili, agoj kiuj ne naskiĝis en la propra konscio kaj ne influas al ĝi? — Kelkafoje li subite ve-kiĝis el tiuj nigraj pensoj kaj sentoj kaj diris al si mem: Tamen vi certe eraras. ĉiu devas esti homo kiel vi mem, ĉiu havas siajn revojn kaj sentojn, pri kiuj vi ne scias. Sed ili estas fremdaj al vi, kaj vi al ili. Kion vi vidas, estas nur la rebrilo de via propra interno.
@@ -1637,12 +1345,7 @@ Hezite li suriras la vojeton al la dometo inter la siringoj, alvenas al la pordo
 
 ŝi sidas apud la fenestro kaj riparas ŝtrumpetojn. Sur la planko ludas ŝia knabeto. Stranga sento de hezito kaj honteto ekkaptis lin. Kial li envenis tien ĉi? ĉu ne estas freneze?
 
-Kiam ŝi ekvidas lin, ŝi paliĝas, restas senmova dum momento, sed poste aliras al li, donas sian manon kaj diras bon-82
-
-AL TORENTO
-
-
-venon. Li rigardas ŝin, senintence liaj okuloj serĉas ŝiajn kiel iam antaŭe. Sed poste li konsterniĝas. Kion fari, kion diri?
+Kiam ŝi ekvidas lin, ŝi paliĝas, restas senmova dum momento, sed poste aliras al li, donas sian manon kaj diras bonvenon. Li rigardas ŝin, senintence liaj okuloj serĉas ŝiajn kiel iam antaŭe. Sed poste li konsterniĝas. Kion fari, kion diri?
 
 —Vi ne atendis min?
 
@@ -1664,14 +1367,9 @@ mallaŭta voĉo, kvazaŭ meditante.
 
 —Jes, mi scias … — Li rigardas la knabeton medite kaj du-me daŭrigas: — Jes, kial ne? La estonteco, pri kiu vi iam skribis … jen, ni devas bone flegi ĝin. ĉu vi ne volas? Li ne estos fremdulo al ni, ni ne estos fremduloj al li. ĉu vi ne volas tion?
 
-ŝi prenis liajn manojn kaj longe rigardis lin. En iliaj okuloj reviviĝis doloroj kaj esperoj de pasintaj jaroj, reviviĝis kaj fori-
-
-ĝis kiel nebuletoj de juna mateno.
+ŝi prenis liajn manojn kaj longe rigardis lin. En iliaj okuloj reviviĝis doloroj kaj esperoj de pasintaj jaroj, reviviĝis kaj foriĝis kiel nebuletoj de juna mateno.
 
 —Jes … Kaj nun la estonteco fariĝis nuno …
-
-
-AL TORENTO
 
 
 www.omnibus.se/

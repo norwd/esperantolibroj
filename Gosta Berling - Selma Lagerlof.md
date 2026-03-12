@@ -10,15 +10,8 @@ GÖSTA BERLING
 
 Selma Lagerlöf
 
-GÖSTA BERLING
 
 Ela la sveda tradukis Stellan Engholm Lingve reviziita en 2002
-
-
-@omnibus.se
-
-
-GÖSTA BERLING
 
 
 Antaŭparolo
@@ -34,9 +27,6 @@ Tiu grandbiena kulturo multe signifis por la tutlanda kulturo, kaj tiurilate la 
 Sed la vivo de tiu regiono havis ankaŭ aliajn gravajn trajtojn. Tie restis ankoraŭ popolaj tradicioj kaj kutimoj, superstiĉo, popolaj muziko kaj kantoj, fantaziplena kaj kolororiĉa popola rakontado.
 
 
-GÖSTA BERLING
-
-
 En tiu medio naskiĝis Selma Lagerlöf 1858, en la ne granda ”sinjorbieno” Mårbacka, ŝia nuna hejmo, kaj tie ŝi pasigis la unuajn dudek jarojn de sia vivo. Laŭ sia propra atesto la rakontoj kaj fabeloj, kiujn ŝi aŭskultis en sia infanaĝo, tute okupis ŝian mensan vivon. Sed certe ankaŭ tiu speciala kul-turmedio multe influis al ŝi. Jam en sia infanaĝo ŝi revis pri verkado kaj ankaŭ verkis. Tiu revo kaj tiu verkemo restis, sed ŝi ne baldaŭ trovis klaran esprimon por sia spirita vivo.
 
 Selma Lagerlöf fariĝis instruistino, ŝiaj verkplanoj plima-turiĝis. 1890 ŝi per la kvin unuaj ĉapitroj el Gösta Berling gajnis la unuan premion en literatura konkurso de la semajna gazeto Idun. La finverkita libro aperis en la posta jaro. Komence renkontis ŝin sufiĉe granda kontraŭstaro, sed post kelkaj jaroj ŝia pozicio en la literaturo estis firma. ŝi tiam forlasis la instrulaboron kaj tute dediĉis sin al verkado.
@@ -45,9 +35,7 @@ Selma Lagerlöf fariĝis instruistino, ŝiaj verkplanoj plima-turiĝis. 1890 ŝi
 
 krom Gösta Berling — estas Jerusalem kaj La imperiestro de Por-tugalio.
 
-Multajn el ŝiaj verkoj inspiris la hejmregiono, sed cetere ŝiaj motivoj estas tre variaj. Ofte la rakontoj estas tre intime ligitaj al apartaj lokoj, sed ŝi ĉiam lerte kaptas tiujn aferojn de la homanima vivo, kiuj estas komunaj por ĉiuj homoj kaj sa-me gravaj en ĉiuj terpartoj kaj ĉiuj tempoj. ŝiaj homoj senescepte estas agantaj homoj, sed la agado sur la materia plano estas nur esprimo kaj rimedo, la esenca afero estas la vivo kaj la evoluo de la homa animo. ĉion ŝi rakontas tre simple, tiel simple, ke multaj legantoj eĉ ne rimarkas la majstran 4
-
-GÖSTA BERLING
+Multajn el ŝiaj verkoj inspiris la hejmregiono, sed cetere ŝiaj motivoj estas tre variaj. Ofte la rakontoj estas tre intime ligitaj al apartaj lokoj, sed ŝi ĉiam lerte kaptas tiujn aferojn de la homanima vivo, kiuj estas komunaj por ĉiuj homoj kaj sa-me gravaj en ĉiuj terpartoj kaj ĉiuj tempoj. ŝiaj homoj senescepte estas agantaj homoj, sed la agado sur la materia plano estas nur esprimo kaj rimedo, la esenca afero estas la vivo kaj la evoluo de la homa animo. ĉion ŝi rakontas tre simple, tiel simple, ke multaj legantoj eĉ ne rimarkas la majstran
 
 
 aranĝon de la materialo kaj la profundegan sencon de ofte ĉiutagaj okazoj.
@@ -60,9 +48,7 @@ Pro tiu simpleco kaj tiu ĝeneraleco kaj pro la profunda homeco en ŝiaj verkoj 
 Kiam Gösta Berling unue aperis en sia nuna formo, renkontis
 
 
-Eble multo en Gösta Berling unuavide ŝajnas al vi kiel al la unuaj kritikistoj — stranga, plena de romantiko kaj senkontrola fantazio. Sed ne juĝu tro rapide! La medio, kiu povas ŝajni nekredebla al alilandanoj kaj eĉ al svedoj el aliaj provincoj, ne estas elpensaĵo. En la malnovaj feruzinaj bienoj fakte ekzistis tiaj homoj, precipe en Vermlando. Cetere tiaj karak-tertrajtoj estas tipe vermlandaj. Plue oni atentu pri la rakont-maniero. Unue, ankaŭ ĝi estas tipe Vermlanda: ĝi ŝajnas al 5
-
-GÖSTA BERLING
+Eble multo en Gösta Berling unuavide ŝajnas al vi kiel al la unuaj kritikistoj — stranga, plena de romantiko kaj senkontrola fantazio. Sed ne juĝu tro rapide! La medio, kiu povas ŝajni nekredebla al alilandanoj kaj eĉ al svedoj el aliaj provincoj, ne estas elpensaĵo. En la malnovaj feruzinaj bienoj fakte ekzistis tiaj homoj, precipe en Vermlando. Cetere tiaj karak-tertrajtoj estas tipe vermlandaj. Plue oni atentu pri la rakont-maniero. Unue, ankaŭ ĝi estas tipe Vermlanda: ĝi ŝajnas al
 
 
 eksteruloj pli romantika ol ĝi efektive estas. Kiam Selma Lagerlöf iam laŭtlegis en radio ĉapitron el Gösta Berling, mi kun surprizo rimarkis ke tiu rakonto, kiun mi antaŭe opiniis romantika, efektive estas brila bonhumoraĵo. Due, ŝia rakont-maniero fakte estas tiu de la fabelo. Kelkfoje ni renkontas en ŝiaj verkoj okazojn, kiuj laŭ racia vidpunkto eble ŝajnas al ni ne plene motivitaj, ekz. la forpelo de la majorino kaj la komenco de la kavalira regado en Ekeby. Sed efektive tiuj mankoj estas nur ŝajnaj. Ilia kaŭzo estas nek manko de kompon-kapablo nek romantikemo. Por ŝi okazoj kaj okazoĉenoj estas konstruŝtonoj, kiujn ŝi kunmetas laŭ sia propra, plene lo-gika metodo. ŝi ne celas fari fotografan bildon de la homa vivo nek — kvankam majstra priskribanto de karakteroj —
@@ -76,9 +62,6 @@ Kiel ajn konkreta estas ŝia priskribado — la vera okazado troviĝas sur la sp
 Stellan Engholm
 
 [1934]
-
-
-GÖSTA BERLING
 
 
 I. La pastro
@@ -96,9 +79,6 @@ La homoj en la preĝejo sentis strangan subiĝemon, kiam ili vidis lin tia. Pli 
 Li drinkis tiel terure, ke li dum pluraj semajnoj ne povis plenumi sian oficon, kaj la paro˛o devis plendi pri li, unue ĉe lia ĉerfparoęstro1 kaj poste ĉe la episkopo kaj la konsistorio.
 
 Nun la episkopo venis al la paro˛o por esplori kaj inspekti. Li 1 ĉefparoęstro — paroęstro, kiu havas certan superecon super la pastroj en kelkaj paro˛oj.
-
-
-GÖSTA BERLING
 
 
 sidis en la absido kun ora kruco sur la brusto, lernejaj pastroj2
@@ -124,26 +104,17 @@ Estis ja vere, ke li drinkis, sed kiu rajtus akuzi lin pro tio?
 3 Karlstad — provinca ĉefurbo de Vermlando.
 
 
-GÖSTA BERLING
-
-
-ro staris nigra kaj malgaja ĝis la fenestroj. Malsekaĵo gutis tra la nigraj plafonoj, laŭ la ŝimaj muroj. ĉu oni ne bezonis brandon por konservi la kuraĝon, kiam pluvo aŭ kirloneĝo ensaltis tra rompitaj vitroj, kiam la neprizorgita tero ne donis sufi-
-
-ĉe da pano por forpeli la malsaton?
+ro staris nigra kaj malgaja ĝis la fenestroj. Malsekaĵo gutis tra la nigraj plafonoj, laŭ la ŝimaj muroj. ĉu oni ne bezonis brandon por konservi la kuraĝon, kiam pluvo aŭ kirloneĝo ensaltis tra rompitaj vitroj, kiam la neprizorgita tero ne donis sufiĉe da pano por forpeli la malsaton?
 
 Li pensis, ke li estis ĝuste tia pastro, kian ili meritas. Ili ja drinkis ĉiuj. Kial li sola detenu sin? La viro, kiu enterigis sian edzinon, ebriigis sin dum la funebra regalo, la patro, kiu baptis sian infanon, poste aranĝis drinkfeston. La preĝejvizitantoj drinkis sur la vojo al la hejmo, tiel ke plej multaj estis ebriaj je la reveno. Drdetruita pastro estis sufiĉe bona por ili.
 
 Li ekamis la brandon, kiam li faris oficajn vojaĝojn, kiam li en maldika surtuto veturis, multmejle sur glacikovritaj lagoj, kie ĉiuj malvarmaj ventoj renkontiĝis, kiam lia boato sur la samaj lagoj estis ĵetata tien kaj reen en ventego kaj pluve-go, kiam li en neĝoblovo devis iri el la sledo kaj fari vojon por la ĉevalo tra neĝamasoj, altaj kiel domoj, aŭ kiam li devis vadi tra arbaraj marĉoj.
 
-La tagoj de la jaro fortrenis sin en peza malgajo. Kamparano kaj sinjoro iris kun ĉiuj pensoj ligitaj al la polvo de la tero, sed vespere la animoj ĵetis siajn katenojn, liberigitaj de la brando. Inspiro venis, la koro varmiĝis, la vivo ekbrilis, kantoj sonis, rozoj odoris. Tiam la drinkĉambro de la gastejo fari-
-
-ĝis por li sudlanda florĝardeno: vinberoj kaj olivoj pendis super lia kapo, marmoraj statuoj brilis en malhela foliaro, saĝuloj kaj poetoj promenis sub palmoj kaj platanoj.
+La tagoj de la jaro fortrenis sin en peza malgajo. Kamparano kaj sinjoro iris kun ĉiuj pensoj ligitaj al la polvo de la tero, sed vespere la animoj ĵetis siajn katenojn, liberigitaj de la brando. Inspiro venis, la koro varmiĝis, la vivo ekbrilis, kantoj sonis, rozoj odoris. Tiam la drinkĉambro de la gastejo fariĝis por li sudlanda florĝardeno: vinberoj kaj olivoj pendis super lia kapo, marmoraj statuoj brilis en malhela foliaro, saĝuloj kaj poetoj promenis sub palmoj kaj platanoj.
 
 Ne, li, la pastro sur la katedro, sciis, ke sen brando oni ne povas vivi en tiu parto de la lando; ĉiuj liaj aŭskultantoj sciis tion kaj tamen nun volis kondamni lin.
 
-Ili volis forŝiri de li la pastran mantelon, pro tio ke li venis 9
-
-GÖSTA BERLING
+Ili volis forŝiri de li la pastran mantelon, pro tio ke li venis
 
 
 ebria en la domon de ilia Dio. Ho, tiuj homoj, ĉu ili havis, ĉu ili kredis havi alian dion ol la brandon?
@@ -164,9 +135,7 @@ La preĝo finiĝis. Li volis komenci laŭtlegi sian predikon.
 
 Tiam nova penso ekregis lin kaj haltigis la vortojn sur liaj lipoj. Li pensis, ke estas la lasta fojo, kiam li povas stari sur la katedro kaj paroli pri la gloro de Dio.
 
-La lasta fojo — tio kortuŝis la pastron. Li forgesis ĉion pri 10
-
-GÖSTA BERLING
+La lasta fojo — tio kortuŝis la pastron. Li forgesis ĉion pri
 
 
 brando kaj episkopo. Li pensis, ke li devas uzi la okazon por paroli pri la gloro de Dio.
@@ -175,9 +144,7 @@ brando kaj episkopo. Li pensis, ke li devas uzi la okazon por paroli pri la glor
 
 Li estis homo de la inspiro. Li forlasis la skribitan, la pensoj venis al li kiel aro da hejmaj kolomboj. Li sentis, kvazaŭ parolus ne li mem, sed li ankaŭ komprenis, ke tio estas la plej alta sur la tero, kaj ke neniu povas atingi pli altajn brilon kaj gloron ol li, kiu staras tie kaj parolas pri la gloro de Dio.
 
-Dum la fajrolango de la inspiro flamis super li, li parolis, sed kiam ĝi estingiĝis kaj la tegmento malleviĝis sur la pre-
-
-ĝejon kaj la planko ree venis supren el tre, tre granda profundo, tiam li klinis sin kaj ploris, ĉar li pensis, ke la vivo donis al li sian plej bonan horon, kaj nun ĝi jam pasis.
+Dum la fajrolango de la inspiro flamis super li, li parolis, sed kiam ĝi estingiĝis kaj la tegmento malleviĝis sur la preĝejon kaj la planko ree venis supren el tre, tre granda profundo, tiam li klinis sin kaj ploris, ĉar li pensis, ke la vivo donis al li sian plej bonan horon, kaj nun ĝi jam pasis.
 
 Post la diservo okazis inspektado kaj kunveno de la ekle-zia konsilantaro. La episkopo demandis la paroąnojn, ĉu ili havas plendojn kontraŭ sia pastro.
 
@@ -188,9 +155,6 @@ Sed ne venis. Estis tute silente ĉirkaŭ la granda tablo en la paroą kunvenejo
 La pastro levis la rigardon: unue al la sakristiano, ne, li silentis, poste al la aplombaj bienuloj kaj uzinestroj. ĉiuj silentis. Ili forte kunpremis la lipojn kaj iom ĝenite rigardis sur la tablon.
 
 ”Ili atendas, ĝis iu komencos,” pensis la pastro.
-
-
-GÖSTA BERLING
 
 
 Unu el la du preĝejaj prizorgantoj gorĝobruis.
@@ -218,9 +182,6 @@ Unu el la najbaraj sinjorinoj transprenis la festaranĝojn, ĉar la pastro estis
 La longa manĝotablo estis pretigita ekstere sub la piceoj kaj aspektis agrabla kun blanka tuko, kun blua kaj blanka porcelano, kun briletantaj glasoj kaj arte falditaj manĝotukoj. Du betuloj klinis sin super la enirejo, junipera branĉaĵo estis sternita sur la planko en la vestiblo, ĉe la tegmentodorso pendis florkrono, en ĉiuj ĉambroj staris floroj, la ŝimodoro estis forpelita, kaj la verdaj fenestrovitroj vigle brilis en la sunlumo.
 
 
-GÖSTA BERLING
-
-
 La pastro ĝojis per plena koro. Li pensis, ke li neniam plu drs.
 
 Estis neniu, kiu ne ĝojis dum tiu tagmanĝo. ojis tiuj, kiuj grandanime pardonis, kaj ĝojis la pli eminentaj el la pastroj pro tio, ke ili sukcesis eviti skandalon.
@@ -238,9 +199,6 @@ Viro transiris la herbokovritan korton kaj venis al la fenestro. La pastro elrig
 Vojiranta homo sen domo kaj tero li estis, tiu kapitano Kristian, giganto laŭ staturo kaj forto. Alta li estis kiel la monto Gurlita kaj stulta kiel monta monstro.
 
 
-GÖSTA BERLING
-
-
 ”Kompreneble mi ne dormas, kapitano Kristian,” la pastro respondis. ”ĉu ŝajnas al vi, ke oni povas dormi en tia nokto?”
 
 Jen aŭdu, kion tiu kapitano Kristian diras al li!
@@ -256,9 +214,6 @@ Kiam la episkopo kaj la du lernejaj pastroj prenis lokon en sia tegita veturilo 
 Kaj tiam Kristian Bergh lasis la altmoŝtojn senti, kiel facile la vivo povas eliri el la homa korpo. Li igis la ĉevalojn kuri en plej freneza rapido. Tio estis rekompenco al ili pro tio, ke ili ne permesis ebrion al honesta homo.
 
 ĉu vi kredas, ke li veturigis ilin sur la vojo, ĉu vi kredas, ke li gardis ilntraŭ puŝoj? Li veturis trans drenfosojn kaj stoplokampojn, li veturis en kapturna galopo malsupren sur la deklivoj, li veturis laŭ la lagobordo, tiel ke la akvo ŝprucis ĉirkaŭ la radoj, li preskaŭ fiksiĝis en la marĉoj, kaj li veturis malsupren sur nudaj montoj, tiel ke la ĉevaloj staris kun rigidaj kruroj kaj glitadis. Dume la episkopo kaj la lernejaj pas-4 Mejlo — en ĉiuj lokoj sveda mejlo = 10 km.
-
-
-GÖSTA BERLING
 
 
 troj sidis kun palaj vizaĝoj kaj murmuris preĝojn malantaŭ la ledaj kurtenoj. Pli teruran veturon ili neniam faris.
@@ -281,12 +236,7 @@ La pastro eĉ levis la brakon kaj celis teruran baton al la kruda, stulta vizaĝ
 
 Li, super kiu flamis la fajrolango de inspiro, li, kiu parolis pri la gloro de Dio, li staris tie kaj pensis, ke Dio mokas lin.
 
-ĉu la episkopo ne kredos, ke kapitano Kristian estis sendita de la pastro? ĉu li ne kredos, ke la pastro hipokritis kaj men-15
-
-GÖSTA BERLING
-
-
-sogis dum la tuta tago? Nun li faros la proceson kontraŭ li serioza, nun li eloficigos kaj ekspastrigos lin.
+ĉu la episkopo ne kredos, ke kapitano Kristian estis sendita de la pastro? ĉu li ne kredos, ke la pastro hipokritis kaj mensogis dum la tuta tago? Nun li faros la proceson kontraŭ li serioza, nun li eloficigos kaj ekspastrigos lin.
 
 En la mateno la pastro estis for de la pastrodomo. ŝajnis al li sensence resti por defendi sin. Dio mokis lin. Dio ne volis helpi lin. Li sciis, ke oni eksigos lin. Dio volis. Estis same bone tuj foriri.
 
@@ -295,9 +245,6 @@ Tio okazis en malproksima paro˛o de okcidenta Vermlando en la komenco de la tri
 Tio estis la unua malfeliĉo, kiu okazis al Gösta Berling; sed ne estis la lasta.
 
 ĉar tiaj ĉevalidoj trovas la vivon malfacila, kiuj ne toleras spronon aŭ vipon. Je ĉiu doloro, kiu pikas ilin, ili forkuras sur sovaĝaj vojoj al faŭkantaj abismoj. Kiam la vojo fariĝas ŝton-plena kaj la veturo malfacila, ili ne trovas alian rimedon ol renversi la ŝarĝon kaj freneze forkuri.
-
-
-GÖSTA BERLING
 
 
 II. La almozulo
@@ -315,9 +262,6 @@ Antaŭ li sur la deklivo iris malgranda knabino, kiu tiris sledeton kun farunsak
 La infano turnis sin kaj rigardis lin. Estis dek du jara etulino kun esploraj, akraj okuloj kaj kunpremita buŝo.
 
 5 Finnaj arbaroj — nomataj tiel, ĉar la unuaj loĝantoj estis koloniistoj el Finnlando.
-
-
-GÖSTA BERLING
 
 
 ”Dio donu, ke la ĉevalo estu malpli granda kaj la ŝarĝo pli granda, tiam pli longe sufiĉus,” la knabino respondis.
@@ -357,9 +301,6 @@ La knabino aŭskultis kaj rigardis kaj poste komencis plor-krii.
 ”Estas patro,” ŝi plorsingultis. ”Li mortbatos min. Li mortbatos min.”
 
 
-GÖSTA BERLING
-
-
 ”Nu, nun bonaj konsiloj estas valoraj kaj rapidaj konsiloj pli bonaj ol arĝento kaj oro,” la almozulo diris.
 
 ”Jen,” la infano diris, ”vi povas helpi min. Prenu la ŝnuron kaj tiru la sledeton, tiam patro kredos, ke ĝi estas via.”
@@ -378,9 +319,7 @@ Tiu kompatindulo havis revon, kiam li iris en la neĝo kun duone nudaj piedoj. L
 
 Tie ĉi en Bro, kie li nun iris laŭ la akvokolo, kiu kunligas Supran Löven kun la Malsupra, en tiuj famaj regionoj de riĉo kaj ĝojo, kie grandbieno kuŝas apud grandbieno, uzino apud uzino, tie ĉi ĉiu vojo estis por li tro peza, ĉiu ĉambro tro mallarĝa, ĉiu kuŝejo tro malmola. Tie ĉi li korŝire sopiris al la paco de la grandaj, eternaj arbaroj.
 
-Li aŭdis draŝilojn bati en ĉiu draŝejo, kvazaŭ troviĝus greno senfine. Trunkoŝarĝoj kaj karbosledoj senĉese venis el la ne-elĉerpeblaj arbaroj. Senfinaj karavanoj kun ferŝtonaj ŝarĝoj veturis sur la vojoj en profundaj sulkoj, kiujn fosis centoj da antaŭveturintoj. Tie ĉi li vidis sledojn, plenajn de homoj, rapidi inter la bienoj, kaj ŝajnis al li, ke la ĝojo tenas la kondukrimenojn kaj belo kaj amo staras malantaŭe sur la glitiloj. Ho, 19
-
-GÖSTA BERLING
+Li aŭdis draŝilojn bati en ĉiu draŝejo, kvazaŭ troviĝus greno senfine. Trunkoŝarĝoj kaj karbosledoj senĉese venis el la ne-elĉerpeblaj arbaroj. Senfinaj karavanoj kun ferŝtonaj ŝarĝoj veturis sur la vojoj en profundaj sulkoj, kiujn fosis centoj da antaŭveturintoj. Tie ĉi li vidis sledojn, plenajn de homoj, rapidi inter la bienoj, kaj ŝajnis al li, ke la ĝojo tenas la kondukrimenojn kaj belo kaj amo staras malantaŭe sur la glitiloj. Ho,
 
 
 kiel la vaganta kompatindulo sopiris al la paco de la grandaj, eternaj arbaroj!
@@ -399,12 +338,7 @@ Sed pli ŝi ne volis doni al li, kaj la almozulo plene malesperiĝis. Li devis t
 
 Jen li interŝanĝis unue la farunon, poste la sakon kaj fine la sledeton kontraŭ brando. Tiu donis al li bonan ebrion, kaj li fordormis grandan parton de la posttagmezo sur benko en la drinkejo.
 
-Kiam li vekiĝis, li komprenis, ke nun restas nur unu farota afero. ĉar la aĉa korpo plene regas lian animon, ĉar li po-20
-
-GÖSTA BERLING
-
-
-vis fordrinki tion, kion infano konfidis al li, ĉar li estas hon-tigo por la tero, li devas liberigi tiun de la aĉega ŝarĝo. Li devas redoni la liberecon al sia animo, lasi ĝin iri al Dio.
+Kiam li vekiĝis, li komprenis, ke nun restas nur unu farota afero. ĉar la aĉa korpo plene regas lian animon, ĉar li povis fordrinki tion, kion infano konfidis al li, ĉar li estas hon-tigo por la tero, li devas liberigi tiun de la aĉega ŝarĝo. Li devas redoni la liberecon al sia animo, lasi ĝin iri al Dio.
 
 Li kuŝis sur la benko en la trinkejo kaj kondamnis sin mem:
 
@@ -428,9 +362,7 @@ Iu alveturis sur la ŝoseo.
 
 ”Pro la diablo, kiu krias?” demandis ordontona voĉo.
 
-”Mi volas ekscii, kien tiu ĉi viro metis miajn farunsakon kaj 21
-
-GÖSTA BERLING
+”Mi volas ekscii, kien tiu ĉi viro metis miajn farunsakon kaj
 
 
 sledeton,” la infano plorsingultis kaj per pugnigitaj manoj martelis la bruston de la almozulo.
@@ -448,9 +380,7 @@ Tia, kia Gösta Berling nun vidis ŝin, veturante hejmen de karbotransportado en
 
 ŝi estis la plej potenca virino en Vermlando, estrino de sep uzinoj, ordonanta kaj obeata; kaj li estis nur kompatinda, mortkondamnita homo, senigita je ĉio, scianta, ke ĉiu vojo estas por li tro peza, ĉiu ĉambro tro mallarĝa. Lia korpo tremis pro teruro, dum ŝi rigardis lin.
 
-ŝi staris silenta kaj rigardis la homan aĉaĵon antaŭ si, la ruĝajn ŝvelintajn manojn, la maldikan figuron kaj la mirindan 22
-
-GÖSTA BERLING
+ŝi staris silenta kaj rigardis la homan aĉaĵon antaŭ si, la ruĝajn ŝvelintajn manojn, la maldikan figuron kaj la mirindan
 
 
 kapon, kiu eĉ en degenero kaj malprizorgo brilis per sovaĝa beleco.
@@ -474,9 +404,6 @@ Mi vidas, ke via kapo estas kranio, kaj ŝajnas al mi, ke la vermoj rampas el vi
 Vi dronigis vin en brando, Gösta Berling, kaj mortinta vi estas.
 
 
-GÖSTA BERLING
-
-
 Kio movas sin ĉe vi, estas nur ostoj de mortinto, kaj vi ne volas permesi al ili vivi, se vi volas nomi tion vivo. Estas, kvazaŭ vi envius al mortinto dancon sur la tomboj en la stela lumo.
 
 ĉu vi hontas pro la eksigo, ĉar vi volas morti? Estus pli honore, se vi uzus vian kapablon kaj farus ian utilon sur la tero, tion mi diras al vi. Kial vi ne tuj venis al mi, mi estus povinta ordigi ĉion por vi? Nu, nun vi verŝajne atendas grandan honoron de tio, ke oni mortvestos vin kaj kuŝigos vin sur se-gaĵon kaj nomos vin bela kadavro?”
@@ -488,9 +415,6 @@ Sed la majorino silentis kaj kelkfoje iris tien kaj reen en la ĉambro. Poste ŝ
 ”Mil diabloj!” ŝi diris, kaj ridetis por si mem. ”Tio, kion mi diras, estas pli vera, ol mi mem rimarkas. ĉu vi ne kredas, Gösta Berling, ke plej multaj homoj en tiu ĉi mondo estas mortintaj aŭ duone mortintaj? ĉu vi kredas, ke mi vivas? Ho ne! Ho ne!
 
 Jes, rigardu min, se vi volas! Mi estas la majorino de Ekeby, certe la plej potenca sinjorino en Vermlando. Se mi signas per unu fingro, la guberniestro kuras, se mi signas per du, la episkopo kuras, kaj se mi signas per tri, la konsistorio kaj la urbkonsilantoj kaj ĉiuj uzinestroj en Vermlando dancos pol-skon6 sur la placo de Karlstad. Mil diabloj, knabo, mi diras al 6 Polsko — sveda popola danco en 3/4 takto, veninta el Polujo.
-
-
-GÖSTA BERLING
 
 
 vi, ke mi estas nur vestita kadavro. Dio scias, kiel malmulte da vivo estas en mi.”
@@ -509,12 +433,7 @@ Estis belstatura viro, li nomiĝis Altringer. Dio scias, kiel okazis, ke li iris
 
 Sed li estis malriĉa, kaj ili interkonsentis atendi unu la alian dum kvin jaroj, kiel en la kanto.
 
-Kiam tri jaroj pasis, venis alia svatanto. Li estis malbela kaj malagrabla, sed ŝiaj gepatroj kredis, ke li estas riĉa, kaj per tento kaj devigo, per batoj kaj krudaj vortoj ili devigis Mar-25
-
-GÖSTA BERLING
-
-
-garetan Celsing edziniĝi kun li. Vidu, tiun tagon mortis Margareta Celsing.
+Kiam tri jaroj pasis, venis alia svatanto. Li estis malbela kaj malagrabla, sed ŝiaj gepatroj kredis, ke li estas riĉa, kaj per tento kaj devigo, per batoj kaj krudaj vortoj ili devigis Margaretan Celsing edziniĝi kun li. Vidu, tiun tagon mortis Margareta Celsing.
 
 Post tiu tago Margareta Celsing ne ekzistis plu, nur la majoredzino Samzelius, kaj ŝi ne estis bona, ne timida, ŝi kredis, ke ekzistas multe da malbono, kaj ne atentis pri bono.
 
@@ -530,12 +449,7 @@ Sed cirkulis malbonaj diroj pri Altringer kaj mi. Tio estus doninta grandan dolo
 
 La diroj pri ni venis al miaj patro kaj patrino, kiam ili iris inter la karbigstakoj en la arbaro de Elvdalen. La maljunulino ne longe pripensis; ŝi veturis tien ĉi por paroli kun mi.
 
-Iun tagon, kiam mi sidis manĝante kun Altringer kaj kelkaj aliaj, ŝi alvenis. Mi vidis ŝin eniri, sed mi ne povis senti, ke ŝi estas mia patrino, Gösta Berling. Mi salutis ŝin kiel fremdu-26
-
-GÖSTA BERLING
-
-
-linon kaj invitis ŝin eksidi ĉe mia tablo kaj partopreni la man-
+Iun tagon, kiam mi sidis manĝante kun Altringer kaj kelkaj aliaj, ŝi alvenis. Mi vidis ŝin eniri, sed mi ne povis senti, ke ŝi estas mia patrino, Gösta Berling. Mi salutis ŝin kiel fremdulinon kaj invitis ŝin eksidi ĉe mia tablo kaj partopreni la man-
 
 ĝon.
 
@@ -553,9 +467,7 @@ linon kaj invitis ŝin eksidi ĉe mia tablo kaj partopreni la man-
 
 ,Jes,’ mi diris, ’nun mi estas kontenta. Mi ĉiam estos kontenta kaj obeos la volon de miaj karaj gepatroj.’
 
-ŝi demandis, ĉu estis la volo de miaj gepatroj, ke mi kaŭ-
-
-zu honton al mi kaj ili kaj trompu mian edzon. Malgrandan honoron mi montris al miaj gepatroj, kiam mi donis okazon al ĉiu homo klaĉi pri mi.
+ŝi demandis, ĉu estis la volo de miaj gepatroj, ke mi kaŭzu honton al mi kaj ili kaj trompu mian edzon. Malgrandan honoron mi montris al miaj gepatroj, kiam mi donis okazon al ĉiu homo klaĉi pri mi.
 
 ’Ili ne plendu pri siaj propraj aranĝoj,’ mi respondis al ŝi.
 
@@ -566,9 +478,6 @@ Ni du manĝis. La viroj ĉirkaŭ ni sidis silentaj kaj ne povis levi tranĉilon 
 La maljunulino restis unu tagnokton por ripozi, poste ŝi forveturis.
 
 Sed dum la tuta tempo mi ne povis kompreni, ke ŝi estas mia patrino. Mi sciis nur, ke mia patrino mortis.
-
-
-GÖSTA BERLING
 
 
 Kiam ŝi estis preta foriri, Gösta Berling, kaj mi staris apud ŝi sur la perono, kaj la veturilo jam alveturis, ŝi diris al mi:
@@ -587,19 +496,13 @@ Kaj mi redonis al ŝi la vangofrapon.
 
 En la sama momento la veturilo forveturis, sed tiam, Gösta Berling, mi sciis, ke Margareta Celsing mortis.
 
-’ŝi estis bona kaj senkulpa, sciis pri nenio malbona. La an-
-
-ĝeloj ploris ĉe ŝia tombo. Se ŝi estus vivinta, ŝi ja ne estus batinta sian patrinon.”
+’ŝi estis bona kaj senkulpa, sciis pri nenio malbona. La anĝeloj ploris ĉe ŝia tombo. Se ŝi estus vivinta, ŝi ja ne estus batinta sian patrinon.”
 
 La almozulo ĉe la pordo estis aŭskultinta, kaj la vortoj por momento forprenis la sonon de la loga susuro de la eternaj arbaroj. Jen, tiu potenca sinjorino montris sin simila al li en peko, kiel fratino en la kondamno, por doni al li vivkuraĝon!
 
 Tiel li lernu, ke malĝojo kaj kulpo troviĝas ne nur ĉe li. Li levis sin kaj iris al la majorino.
 
-”ĉu vi nun volas vivi, Gösta Berling?” ŝi demandis per vo-
-
-ĉo, kiun ploro sufokis. ”Kial vi volas morti? Vi havis eblon fariĝi bona pastro, sed neniam tiu Gösta Berling, kiun vi dro-28
-
-GÖSTA BERLING
+”ĉu vi nun volas vivi, Gösta Berling?” ŝi demandis per voĉo, kiun ploro sufokis. ”Kial vi volas morti? Vi havis eblon fariĝi bona pastro, sed neniam tiu Gösta Berling, kiun vi dro-28
 
 
 nigis en brando, estis tiel brile senkulpe blanka, kiel tiu Margareta Celsing, kiun mi sufokis per malamo. ĉu vi volas vivi?”
@@ -625,9 +528,6 @@ Kiam li venis al la pordo, li deve turnis sin. Tiam li renkontis la rigardon de 
 La majorino ĵetis la argilpipon en la kamenon kaj iris al Gösta. ŝiaj movoj subite fariĝis molaj kiel tiuj de patrino.
 
 
-GÖSTA BERLING
-
-
 ”Nu, nu, mia knabo!”
 
 Kaj ŝi sidigis lin apud si sur la benkon ĉe la pordo, kaj li ploris kun la kapo sur ŝia genuo.
@@ -650,9 +550,7 @@ Tiam li tordis la manojn en malespero. Li vidis antaŭ si la esplorajn okulojn, 
 
 ”Gösta Berling!” ŝi diris solene. ”Mi batalis pri vi kiel pri mi mem. Mi diris al Dio: ’Se io de Margareta Celsing restas vivanta en mi, tiam permesu, ke ŝi aperu kaj montru sin, por ke tiu homo ne mortigu sin!’ Kaj li permesis tion, kaj vi vidis ŝin, kaj tial vi ne povis foriri. Kaj ŝi flustris al mi, ke por la kompatinda infano vi certe forlasos vian intencon morti. Vi flugas kuraĝe, vi sovaĝaj birdoj, sed nia Sinjoro scias pri la reto, kiu povas kapti vin.”
 
-”Li estas granda kaj mistera Dio,” Gösta Berling diris. ”Li 30
-
-GÖSTA BERLING
+”Li estas granda kaj mistera Dio,” Gösta Berling diris. ”Li
 
 
 mokis min kaj kondamnis min, sed li ne volas lasi min morti. Okazu laŭ lia volo!”
@@ -660,10 +558,7 @@ mokis min kaj kondamnis min, sed li ne volas lasi min morti. Okazu laŭ lia volo
 De tiu tago Gösta Berling estis kavaliro en Ekeby. Dufoje li provis foriri de tie kaj fari al si propran vojon por vivteni sin per propra laboro. La unuan fojon la majorino donacis al li bieneton proksime al Ekeby. Li transloĝiĝis tien kaj intencis vivi kiel laboristo. Tio sukcesis dum kelka tempo, sed la soleco kaj la ĉiutaga peno baldaŭ tedis lin, kaj li ree fariĝis kavaliro. La duan fojon li fariĝis guvernisto en Borg por grafo Henrik Dohna. Dum tiu tempo li ekamis la junan Ebban Dohna, la fratinon de la grafo, sed kiam ŝi mortis, ĝuste kiam li kredis, ke li baldaŭ gajnos ŝin, li forlasis ĉiun penson pri alia okupo ol tiu de kavaliro en Ekeby. ŝajnis al li, ke por eksigita pastro ĉiuj vojoj al releviĝo estas baritaj.
 
 
-GÖSTA BERLING
-
-
-UNUA ĉAPITRO
+UNUA ĈAPITRO
 
 La pejzaĝo
 
@@ -671,9 +566,7 @@ Nun mi devas priskribi la longan lagon, la riĉan ebenon kaj la bluajn montojn, 
 
 La lago havas siajn fontojn sufiĉe malproksime en la nordo, kaj estas belega lando por lago. La arbaro kaj la montoj neniam ĉesas kolekti akvon por ĝi, torentoj kaj riveretoj saltas en ĝin dum la tuta jaro. i havas delikatan, blankan sablon, sur kiu ĝi povas etendi sin, terlangojn kaj insuletojn ĝi povas rigardi kaj respeguli, nikso kaj nimfo libere movas sin tie, kaj rapide ĝi kreskas, fariĝas granda kaj bela. Tie norde ĝi estas gaja kaj afabla: oni vidu ĝin en somera mateno, kiam ĝi kuŝas novvekiĝinta sub nebula vualo, kaj oni tuj rimarkas, kiel gaja ĝi estas. Unue ĝi iom petolas, tre, tre malrapide el-rampas el la malpeza kovraĵo, tiel sorĉe bela, ke oni apenaŭ rekonas ĝin, sed poste ĝi per unu movo fortiras la tutan kovrilon kaj kuŝas tie nuda kaj roza kaj briletas en la matena lumo.
 
-Sed tiu luda vivo ne kontentigas la lagon, ĝi enpremas sin en malvastan akvokolon, trabreĉas kelkajn sabloaltaĵojn sude kaj serĉas por si novan regnon. i ankaŭ trovas; ĝi fariĝas pli granda kaj potenca, devas plenigi senfundajn profundaĵojn kaj ornami bonkulturitan regionon. Sed nun la akvo fariĝas pli malhela, la bordo malpli varia, la ventoj pli akraj, la tuta 32
-
-GÖSTA BERLING
+Sed tiu luda vivo ne kontentigas la lagon, ĝi enpremas sin en malvastan akvokolon, trabreĉas kelkajn sabloaltaĵojn sude kaj serĉas por si novan regnon. i ankaŭ trovas; ĝi fariĝas pli granda kaj potenca, devas plenigi senfundajn profundaĵojn kaj ornami bonkulturitan regionon. Sed nun la akvo fariĝas pli malhela, la bordo malpli varia, la ventoj pli akraj, la tuta
 
 
 karaktero pli severa. Impona kaj belega lago ĝi estas. Multaj ŝipoj kaj trunkoflosoj veturas tie, malfrue ĝi ekĝuas vintrori-pozon, plej ofte nur post kristnasko. Ofte ĝi estas en grumbla humoro, ĝi povas ŝaŭmi blanke pro kolero kaj renversi velboatojn, sed ĝi ankaŭ povas kuŝi en reva kvieto kaj respeguli la ĉielon.
@@ -684,9 +577,7 @@ La bordoj malaltiĝas kaj fariĝas unutonaj, pli mildaj ventoj venas, la lago fr
 
 — ĝi estas lago kiel ĉiuj aliaj. Per du brakoj ĝi palpe serĉas vojon al Venern, kaj kiam tiu estas trovita, ĝi en maljunaĝa kadukeco ĵetas sin malsupren sur grandaj krutaĵoj kaj dum lasta, brua grandfaro eniras la ripozon.
 
-Same longa kiel la lago estas la ebeno; sed estu certa, ke estas malfacile por ĝi iri antaŭen inter lagoj kaj montoj, ekde la kaldrona valo ĉe la plej norda punkto de la lago, kie ĝi unue kuraĝas etendi sin kaj poste dum la tuta vojo, ĝis ĝi, venkin-te, trankvile ekkuŝas apud la bordo de Venern. Kompreneble la ebeno preferus sekvi la lagobordon laŭ ĝia tuta longo, sed la montoj ĉiam kontraŭstaras. La montoj estas grandegaj muroj el gnejso, kovritaj de arbaroj plenaj de ravinoj malfacili-gaj por vojaĝo, riĉaj de musko kaj likeno, en tiuj malnovaj tempoj hejmo por amasoj da ĉasaĵo. Ofte oni renkontas akvo-plenan torfejon aŭ lageton kun malhela akvo meze inter la 33
-
-GÖSTA BERLING
+Same longa kiel la lago estas la ebeno; sed estu certa, ke estas malfacile por ĝi iri antaŭen inter lagoj kaj montoj, ekde la kaldrona valo ĉe la plej norda punkto de la lago, kie ĝi unue kuraĝas etendi sin kaj poste dum la tuta vojo, ĝis ĝi, venkin-te, trankvile ekkuŝas apud la bordo de Venern. Kompreneble la ebeno preferus sekvi la lagobordon laŭ ĝia tuta longo, sed la montoj ĉiam kontraŭstaras. La montoj estas grandegaj muroj el gnejso, kovritaj de arbaroj plenaj de ravinoj malfacili-gaj por vojaĝo, riĉaj de musko kaj likeno, en tiuj malnovaj tempoj hejmo por amasoj da ĉasaĵo. Ofte oni renkontas akvo-plenan torfejon aŭ lageton kun malhela akvo meze inter la
 
 
 longaj altaĵoj. Tie kaj tie troviĝas karbigejo aŭ loko senarba, kie oni prenis trunkojn aŭ brullignon, aŭ kulturita terpeco, kaj tuj atestas, ke la montoj toleras ankaŭ laboron. Sed ordinare ili kuŝas en senzorga kvieto, dum ombroj kaj helaĵoj ludas sian eternan ludon sur iliaj deklivoj.
@@ -703,11 +594,7 @@ La ebeno plendas pri tio, ke ĝi havas malgrandan lokon kaj ne povas rigardi mal
 
 ”Vi estas stulta,” la montoj respondas, ”vi devus senti la blovon tie ĉi apud la lago. Por elteni ion tian oni bezonas almenaŭ ŝtonan dorson kaj picean pelton. Cetere vi povas rigardi nin kaj esti kontenta.”
 
-Jes, ĝuste tion la ebeno faras, rigardas la montojn. i bone konas ĉiujn misterajn nuancojn de helo kaj ombro, kiuj movi-
-
-ĝas sur ili. i scias, kiel ili en tagmeza lumo malaltiĝas al la horizonto, malaltaj kaj hele bluetaj, kaj en matena kaj vespera lumo levas sin respektinde altaj, klarbluaj kiel la ĉielo en ze-34
-
-GÖSTA BERLING
+Jes, ĝuste tion la ebeno faras, rigardas la montojn. i bone konas ĉiujn misterajn nuancojn de helo kaj ombro, kiuj moviĝas sur ili. i scias, kiel ili en tagmeza lumo malaltiĝas al la horizonto, malaltaj kaj hele bluetaj, kaj en matena kaj vespera lumo levas sin respektinde altaj, klarbluaj kiel la ĉielo en ze-34
 
 
 nito. Kelkfoje la lumo falas tiel akre sur ilin, ke ili fariĝas verdaj aŭ nigrebluaj, kaj ĉiu unuopa pino, ĉiu vojo kaj ravino estas videbla de mejlolonga distanco.
@@ -716,16 +603,11 @@ Kelkie okazas ja, ke la montoj iras flanken, donante lokon al la ebeno, por ke �
 
 De la plej malnova tempo la homoj kulturis la belegan ebenon, kaj tie fariĝis riĉa regiono. Uzinoj kaj muelejoj estiĝis ĉiuloke, kie rivereto kun sia blankŝaŭma torento ĵetas sin malsupren sur la borda deklivo. Sur la helaj, senarbaj lokoj, kie la ebeno venas al la lago, oni konstruis preĝejojn kaj pas-trodomojn, sed ĉe la valrandoj, meze sur la deklivoj sur ŝton-plena tero, kie la greno ne bone kreskas, tie kuŝas la domoj de la kamparanoj, loĝejoj de oficiroj kaj kelkaj grandbienoj.
 
-Tamen oni rimarku, ke la regiono dum la 1820-aj jaroj tute ne estis tiel kulturita kiel nun. Estis arbaro, lago aŭ marĉo en multaj lokoj, kiuj nun estas kulturataj. La homoj ankaŭ ne estis tre multnombraj. Ili akiris sian vivtenon parte per transportado aŭ per laboro ĉe la multaj uzinoj, parte per laboro en aliaj lokoj; la agrikulturo ne povis nutri ilin. En tiu tempo la loĝantoj de la ebeno vestis sin per hejme teksitaj vestoj, man-
-
-ĝis avenan panon kaj kontentiĝis pri taga salajro de dekdu ŝilingoj7. La mizero estis granda ĉe multaj el ili, sed ofte mildigis ĝin gaja kaj agrabla humoro kaj denaska lerteco kaj taŭ-
+Tamen oni rimarku, ke la regiono dum la 1820-aj jaroj tute ne estis tiel kulturita kiel nun. Estis arbaro, lago aŭ marĉo en multaj lokoj, kiuj nun estas kulturataj. La homoj ankaŭ ne estis tre multnombraj. Ili akiris sian vivtenon parte per transportado aŭ per laboro ĉe la multaj uzinoj, parte per laboro en aliaj lokoj; la agrikulturo ne povis nutri ilin. En tiu tempo la loĝantoj de la ebeno vestis sin per hejme teksitaj vestoj, manĝis avenan panon kaj kontentiĝis pri taga salajro de dekdu ŝilingoj7. La mizero estis granda ĉe multaj el ili, sed ofte mildigis ĝin gaja kaj agrabla humoro kaj denaska lerteco kaj taŭ-
 
 geco.
 
 7 ŝilingo — iama sveda monero, laŭ la nuna monsistemo ĉ. 2 oeroj.
-
-
-GÖSTA BERLING
 
 
 Tiuj tri, la longa lago, la riĉa ebeno kaj la bluaj montoj formis la plej belan pejzaĝon, kiel ankoraŭ nun, same la homoj ankoraŭ nuntempe estas fortikaj, kuraĝaj kaj tre talentaj. Nun ili ankaŭ faris bonan progreson kaj en bonstato kaj en kleriĝo.
@@ -733,16 +615,11 @@ Tiuj tri, la longa lago, la riĉa ebeno kaj la bluaj montoj formis la plej belan
 Bone prosperu por ili, kiuj loĝas ĉe la longa lago kaj la bluaj montoj! Estas kelkaj el iliaj memoroj, kiujn mi nun priskribos.
 
 
-GÖSTA BERLING
-
-
-DUA ĉAPITRO
+DUA ĈAPITRO
 
 La kristnaska nokto
 
-Sintram nomiĝas la malica uzinposedanto en Fors, li kun la malgracia simia korpo kaj la longaj brakoj, kun la kalva kapo kaj la malbela, rikana vizaĝo, li, kies ĝojo estas kaŭ-
-
-zi malbonon.
+Sintram nomiĝas la malica uzinposedanto en Fors, li kun la malgracia simia korpo kaj la longaj brakoj, kun la kalva kapo kaj la malbela, rikana vizaĝo, li, kies ĝojo estas kaŭzi malbonon.
 
 Sintram nomiĝas li, kiu prenas nur friponojn kaj batalemu-lojn kiel servistojn kaj dungas nur kverelemajn, mensoge-majn servistinojn, li, kiu furiozigas la hundojn pikante iliajn nazojn per pingloj kaj vivas feliĉa inter malamantaj homoj kaj atakemaj bestoj.
 
@@ -757,12 +634,7 @@ Tiru la grandan sledeton por brulligno en la forĝejon, haltu meze sur la planko
 
 Jen ni havas tablon. Hura por la tablo, la tablo estas preta!
 
-Alportu seĝojn, ĉion, sur kio oni povas sidi! Alportu tripie-37
-
-GÖSTA BERLING
-
-
-dajn ŝuistajn seĝojn kaj malplenajn kestojn! Alportu difek-tajn, malnovajn brakseĝojn sen apogiloj kaj la senglitilan sledon kaj la malnovan kaleŝon! Ha, ha, ha, alportu la malnovan kaleŝon! i estu tribuno.
+Alportu seĝojn, ĉion, sur kio oni povas sidi! Alportu tripiedajn ŝuistajn seĝojn kaj malplenajn kestojn! Alportu difek-tajn, malnovajn brakseĝojn sen apogiloj kaj la senglitilan sledon kaj la malnovan kaleŝon! Ha, ha, ha, alportu la malnovan kaleŝon! i estu tribuno.
 
 Jen vidu, unu rado mankas kaj la tuta supra parto. Restas nur la veturigista seĝo, la kuseno estas difektita, la rembura musko polvas ĉirkaŭ ĝi, la ledo estas ruĝa pro aĝo. Alta kiel domo estas la malnova kadukaĵo. Apogu, apogu, alie ĝi falos!
 
@@ -773,9 +645,6 @@ Malantaŭ la silkaj kurtenoj de la baldakena lito dormas la majoro kaj lia edzin
 Nudkruraj forĝistoj ne turnas la fandaĵojn, fulgaj knaboj ne transportas karbĉarojn, la granda martelo pendas kiel brako kun pugnita mano sub la tegmento, la amboso estas malplena, la fornoj ne malfermas siajn ruĝajn faŭkojn por engluti karbon, la balgo ne grincas. Estas kristnasko. La forĝejo dormas.
 
 Dormas, dormas! Ho, vi homido, ĉu dormas, kiam la kavaliroj maldormas! La longaj preniloj staras sur la planko kun sebokandeloj inter siaj makzeloj. El la dudekkvinlitra kaldrono el brila kupro flagras la bluaj flamoj de la brulpunĉo alten al la mallumo de la tegmento. La korna lanterno de Beerencreutz pendas sur la stangfera martelo8. La flava punĉo bri-8 Stangfera martelo — grandega, akvoforte movata martelo, per kiu oni forĝis stangojn el ferpecoj. Temas pri forĝejo, kie oni faris ŝtalon el krudfero.
-
-
-GÖSTA BERLING
 
 
 las kiel klara suno en la ujo. Troviĝas tabloj tie, troviĝas benkoj. La kavaliroj festas la kristnaskan nokton en la forĝejo.
@@ -799,9 +668,6 @@ Ekeby ne estas plu la destinita rifuĝejo de senhejmaj kavaliroj. Pensiitaj ofic
 ĉiuj tiuj famaj viroj scias ludi unu aŭ plurajn instrumen-9 Kamfio — kartludo.
 
 
-GÖSTA BERLING
-
-
 tojn. ĉiuj estas tiel plenaj de apartecoj kaj proverboj, de ka-pricoj kaj kantoj kiel la formikejo de formikoj, sed tamen ĉiu el ili havas sian apartan grandan kvaliton, sian alte ŝatatan kavaliran virton, kiu apartigas lin de ĉiuj aliaj.
 
 Kiel unuan de tiuj, kiuj sidas ĉirkaŭ la tasego, mi volas no-mi Beerencreutz, la kolonelon kun la grandaj blankaj lipharoj, kamfiludanton, Bellman-kantiston10, kaj kune kun li lian amikon kaj militkamaradon, la silenteman majoron, la grandan ursoĉasiston Anders Fuchs, kaj kiel la trian en la rondo la malgrandan Ruster, la tamburiston, kiu longe estis servisto de la kolonelo sed gajnis kavaliran rangon pro sia lerto en
@@ -811,9 +677,6 @@ Kiel unuan de tiuj, kiuj sidas ĉirkaŭ la tasego, mi volas no-mi Beerencreutz, 
 Tie troviĝis ankaŭ la granda germano Kevenhüller, eltro-vinto de la memiranta veturilo kaj la flugmaŝino, li, kies no-mo ankoraŭ resonas en la susurantaj arbaroj. Nobelo li estis laŭ deveno kaj ankaŭ laŭ aspekto, kun grandaj, torditaj lip-10 Bellman — sveda poeto 1740–95. Li komponis aŭ adaptis muzikon por ĉiuj siaj poemoj.
 
 11 eneralbaso — iama maniero skribi la basan voĉon por muzikinstrumento. i postulas grandan lertecon de la ludanto.
-
-
-GÖSTA BERLING
 
 
 haroj, pinta barbo, aglonazo kaj mallarĝaj, oblikvaj okuloj en reto de kruciĝantaj sulketoj. Tie sidis la granda militisto, kuzo Kristoffer, kiu neniam eliris el la kavalira domo, escepte kiam oni povis atendi ursoĉason aŭ danĝeran aventuron, kaj apud li onklo Eberhard, la filozofo, kiu venis al Ekeby ne por plezuro kaj ludo sed por povi finfari, neĝenita de nutrozorgoj, sian grandan verkon pri la scienco de la sciencoj.
@@ -832,9 +695,7 @@ Lia hela kapo briletas en ĝi kiel tiuj de la junaj dioj, la junaj lumportantoj,
 
 ”Frateto Gösta!” krias sinjoro Julius. ”Ne estas tie ĉi iu dektria, ni estas nur dek du.”
 
-”En Ekeby ĉiujare mortas unu viro,” Gösta daŭrigas per pli 41
-
-GÖSTA BERLING
+”En Ekeby ĉiujare mortas unu viro,” Gösta daŭrigas per pli
 
 
 kaj pli malgaja voĉo. ”Unu el la gastoj de la kavalira domo mortas, mortas unu el la gajaj, la senzorgaj, la eterne junaj.
@@ -852,9 +713,6 @@ Gösta Berling, kiun ili nomis la poeto, kvankam li neniam skribis poezion, daŭ
 Profunda maltrankvilo pentriĝis sur la vizaĝo de Gösta.
 
 
-GÖSTA BERLING
-
-
 ”ĉu ni estas nur dek du?” li diras. ”Kial? ĉu ni malaperos de la tero? ĉu en la venonta jaro ni estos nur dekunu, en la posta nur dek? ĉu nia nomo transiros al la legendo, ĉu nia rondo neniiĝos? Mi vokas lin, la dektrian, ĉar mi ekstaris por trinki por lia sano. El la profundo de la maro, el la interno de la tero, el la ĉielo, el la infero mi vokas lin, kiu kompletigos la rondon de la kavaliroj.”
 
 Tiam bruas en la kamentubo, malfermiĝas la pordo de la fandforno, venas la dektria.
@@ -870,9 +728,6 @@ Jen li do venis, la malnova malamiko de la homoj, venis al la maltimuloj, kiuj �
 Multaj el ili estis pretaj forkuri en teruro, sed baldaŭ ili komprenis, ke la kornulo ne venis por preni ilin al sia malhela regno, sed ĉar allogis la sonoro de la pokaloj kaj la kantoj. Li volis ĝui la ĝojon de la homoj en la sankta kristnaska nokto kaj formeti de si la regŝarĝon dum tiu tempo de ĝojo.
 
 12 Blåkulla — laŭdire la sorĉistinoj veturis al iu loko, Blåkulla (Blumonto), por tie diboĉi kun la diablo. Kp. germanajn rakontojn pri Blocksberg.
-
-
-GÖSTA BERLING
 
 
 Ho, kavaliroj, kavaliroj, kiu el vi nun memoras, ke estas kristnaska nokto? Nun anĝeloj kantas por la paŝtistoj sur la kampoj. Nun la kuŝantaj infanoj maltrankvilas pro tio, ke ili eble ne vekiĝos ĝis la belega frumatena solenaĵo en la preĝejo.
@@ -893,9 +748,7 @@ Plaĉas al li, la kornportanto, kiam li kun princa teniĝo klinas sin malantaŭe
 
 Sed Gösta Berling kompreneble faras paroladon por li.
 
-”Via moŝto,” li diras, ”ni longe atendis vin tie ĉi en Ekeby, 44
-
-GÖSTA BERLING
+”Via moŝto,” li diras, ”ni longe atendis vin tie ĉi en Ekeby,
 
 
 ĉar apenaŭ vi povas eniri en alian paradizon. Tie ĉi oni vivas sen semi aŭ ŝpini, kiel via moŝto eble jam scias. Tie ĉi rostitaj paseroj flugas en la buŝon, tie ĉi maldolĉa biero kaj dolĉa brando fluas kiel riveretoj kaj torentoj. Tie ĉi estas bona loko, rimarku tion, via moŝto!
@@ -917,9 +770,6 @@ Via moŝto, mi bonvensalutas vin!”
 17 Loke — dio en la malnova mitologio, malica kaj perfidema.
 
 
-GÖSTA BERLING
-
-
 boj, okupoj. Devas tujtuje foriri, alie mi volonte estus al via dispono en kiu ajn rolo. Dankon por tiu ĉi vespero, maljunaj babiluloj! Ni ree renkontigos.”
 
 La kavaliroj demandas, kien li intencas iri, kaj li respondas, ke la nobla majorino, la estrino de Ekeby, atendas lin por re-novigo de sia kontrakto.
@@ -934,18 +784,11 @@ Kaj li respondas al ili, la nigrulo, ke li donacis al la majorino siajn sep uzin
 
 Ho, kia teruro tiam kunpremas la korojn de la kavaliroj! Ili ja sciis tion, sed li komprenas nur nun.
 
-En Ekeby ĉiujare mortas unu viro, mortas unu el la gastoj de la kavalira domo, mortas unu el la gajaj, la senzorgaj, la eterne junaj. Nu? Kavaliroj ne devas maljuniĝi. Se iliaj tremantaj fingroj ne povas levi la glason, iliaj estingiĝantaj oku-46
-
-GÖSTA BERLING
-
-
-loj ne distingi la kartojn, kion tiam la vivo signifas por ili, kaj kion ili signifas por la vivo? Papilioj devas scii morti, kiam la suno ankoraŭ brilas.
+En Ekeby ĉiujare mortas unu viro, mortas unu el la gastoj de la kavalira domo, mortas unu el la gajaj, la senzorgaj, la eterne junaj. Nu? Kavaliroj ne devas maljuniĝi. Se iliaj tremantaj fingroj ne povas levi la glason, iliaj estingiĝantaj okuloj ne distingi la kartojn, kion tiam la vivo signifas por ili, kaj kion ili signifas por la vivo? Papilioj devas scii morti, kiam la suno ankoraŭ brilas.
 
 Sed nun, nur nun ili ekkomprenas la ĝustan sencon de la aferoj.
 
-Ve al tiu virino! Tial ŝi multfoje donis al ili bonan man-
-
-ĝaĵon, tial ŝi lasis ilin trinki la maldolĉan bieron kaj la dolĉan brandon, pro tio ke ili de la drinksalonoj kaj ludotabloj en Ekelby ebriiru al la reĝo de la kondamno, unu ĉiujare, unu en ĉiu forpasanta jaro.
+Ve al tiu virino! Tial ŝi multfoje donis al ili bonan manĝaĵon, tial ŝi lasis ilin trinki la maldolĉan bieron kaj la dolĉan brandon, pro tio ke ili de la drinksalonoj kaj ludotabloj en Ekelby ebriiru al la reĝo de la kondamno, unu ĉiujare, unu en ĉiu forpasanta jaro.
 
 Ve al tiu virino, tiu sorĉistino! Fortaj, brilaj viroj venis al Ekeby, venis tien por perei. ĉar ŝi pereigis ilin tie. Iliaj cerboj estis kiel fungoj. Iliaj pulmoj kiel seka cindro, kaj mallumo estis en ilia spirito, kiam ili ekkuŝis sur la mortlito, pretaj por la longa vojaĝo, sen espero, sen animo, sen virto.
 
@@ -961,9 +804,7 @@ Kristian Bergh, la forta kapitano, jam metis la plej pezan martelegon de la for�
 
 ”Kaj jen vi, kornulo, vin ni metos sur la amboson kaj funk-ciigos la stangferan martelon. Per preniloj ni tenos vin sub la martelbatoj, por ke vi ne iru plu ĉasi kavaliranimojn.”
 
-Malkuraĝa li estas, la nigra sinjoro, tion oni delonge scias, kaj la parolo pri la stangfera martelo ne plaĉas al li. Li vokas 47
-
-GÖSTA BERLING
+Malkuraĝa li estas, la nigra sinjoro, tion oni delonge scias, kaj la parolo pri la stangfera martelo ne plaĉas al li. Li vokas
 
 
 al Kristian Bergh reveni kaj komencas intertrakti kun la kavaliroj.
@@ -985,9 +826,6 @@ al Kristian Bergh reveni kaj komencas intertrakti kun la kavaliroj.
 ”Fermu la buŝon! Mi ja mem helpis enigi vin en la fornon tie.”
 
 ”ĉu tio faras iun diferencon, ĉu mi ne povas esti same bona diablo kiel iu alia! Estu certa, Gösta Berling, ke vi estas kaptita. Vere vi jam fariĝis mirinda sub la traktado de la majorino.”
-
-
-GÖSTA BERLING
 
 
 ”Estas ŝi, kiu savis min,” Gösta diras. ”Kio mi estus sen ŝi?”
@@ -1014,9 +852,7 @@ Gösta ekridis.
 
 ”Bone, ke vi ne plu kontraŭstaras la feliĉon!”
 
-La kavaliroj komencis spiri pli facile. Tiel ili nun dependis de Gösta, ke ili nenion povis fari sen li. Se li estus rifuzinta fari 49
-
-GÖSTA BERLING
+La kavaliroj komencis spiri pli facile. Tiel ili nun dependis de Gösta, ke ili nenion povis fari sen li. Se li estus rifuzinta fari
 
 
 kontrakton, ĝi ne estus farata. Kaj tamen estis granda afero por senhavaj kavaliroj ekregi sep uzinojn.
@@ -1025,9 +861,7 @@ kontrakton, ĝi ne estus farata. Kaj tamen estis granda afero por senhavaj kaval
 
 ”Vortoj de la saĝo mem,” murmuras la nigra sinjoro.
 
-”Tial, se vi volas doni al ni la sep uzinojn por unu jaro, ni akceptos ilin, sed rimarku: se ni dum tiu tempo faros ion, kio ne estos kavalireca, se ni faros ion prudentan, utilan aŭ virinaĉan, tiam vi povos preni nin ĉiujn dekdu, kiam la jaro fini-
-
-ĝos, kaj doni la uzinojn al kiu vi volas.”
+”Tial, se vi volas doni al ni la sep uzinojn por unu jaro, ni akceptos ilin, sed rimarku: se ni dum tiu tempo faros ion, kio ne estos kavalireca, se ni faros ion prudentan, utilan aŭ virinaĉan, tiam vi povos preni nin ĉiujn dekdu, kiam la jaro finiĝos, kaj doni la uzinojn al kiu vi volas.”
 
 La diablo ravite frotas la manojn.
 
@@ -1042,9 +876,6 @@ La diablo ravite frotas la manojn.
 Poste oni skribas la kontrakton per sango el la malgrandfingro de Gösta Berling sur la nigra papero de la diablo kaj per lia ansera plumo.
 
 
-GÖSTA BERLING
-
-
 Sed kiam tio estas farita, la kavaliroj jubilas. Nun ĉio agrabla en la mondo apartenos al ili dum tuta jaro, kaj poste oni certe trovos iun eliron.
 
 Ili formetas la seĝojn, faras rondon ĉirkaŭ la punĉkaldrono, kiu staras meze sur la nigra planko, kaj ĉirkaŭsaltas en sovaĝa danco. Meze en la rondo dancas la diablo per altaj saltoj, kaj fine li ekkuŝas apud la kaldrono, klinas ĝin kaj trinkas.
@@ -1054,10 +885,7 @@ Tiam Beerencreutz ekkuŝas apud li kaj same Gösta Berling, kaj ĉiuj aliaj, unu
 La diablo estas for, kiam ili kun blasfemoj levas sin, sed liaj oraj promesoj ŝvebas kiel brilaj kronoj super la kapoj de la kavaliroj.
 
 
-GÖSTA BERLING
-
-
-TRIA ĉAPITRO
+TRIA ĈAPITRO
 
 La kristnaskotaga tagmanĝo
 
@@ -1071,11 +899,7 @@ En la angulo ĉe la kahela forno la kavaliroj sidas ĉe aparta tablo; tiun ĉi t
 
 Sed la kavaliroj estas kiel malsovaĝigitaj ĉevalidoj, kiel sataj rabobestoj. La nokto donis nur unu horon da dormo, poste ili veturis al la frumatena diservo, lumitaj de torĉoj kaj steloj. Ili vidis la kristnaskajn kandelojn, aŭskultis la kristnaskajn psalmojn, iliaj vizaĝoj aspektis kiel tiuj de ridetantaj infanoj. Ili forgesis la nokton en la forĝejo, kiel oni forgesas malagrablan sonĝon.
 
-Granda kaj potenca estas la majorino en Ekeby. Kiu kura-
-
-ĝas levi sian brakon por bati ŝin, movi sian langon por akuzi 52
-
-GÖSTA BERLING
+Granda kaj potenca estas la majorino en Ekeby. Kiu kuraĝas levi sian brakon por bati ŝin, movi sian langon por akuzi
 
 
 ŝin? Certe ne malriĉaj kavaliroj, kiuj dum multaj jaroj manĝis ŝian panon kaj dormis sub ŝia tegmento. ŝi sidigas ilin, kie ŝi volas, ŝi fermas sian pordon por ili, kiam ŝi volas, kaj ili eĉ ne kapablas forkuri de ŝia potenco. Dio kompatu iliajn animojn!
@@ -1095,9 +919,6 @@ Kiel timemaj gastoj venas la gajaj spritaĵoj kaj la ridigaj mensogoj al la tabl
 Sed nur malforta rideto ludas sur la lipoj sub la severaj lipharoj de kolonelo Beerencreutz, kaj Gösta la tutan tagon aspektas, kvazaŭ li volus mortbati iun.
 
 ”ĉu ne iu ajn manĝaĵo taŭgas por kavaliroj?” li demandas.
-
-
-GÖSTA BERLING
 
 
 Sed fine superplena plado kun tetraoj venas al la malgranda tablo.
@@ -1125,9 +946,6 @@ La kavaliraro jubilas.
 Tiam la kolera voĉo de la majorino atingas la orelojn de la kavaliroj.
 
 ”Eligu lin!” ŝi krias al la servistoj.
-
-
-GÖSTA BERLING
 
 
 Sed ili ne kuraĝas ataki lin. Li tamen estas Kristian Bergh, la forta kapitano.
@@ -1160,12 +978,7 @@ Li staras kontraŭ la majorino kaj manminacas ŝin.
 
 ”ĉu vi volas silenti!”
 
-”ĉar vi estis tiel fidela edzino, Margareta Samzelius. Kaj la majoro akceptis la sep uzinojn kaj lasis al vi estri ilin kaj ŝaj-55
-
-GÖSTA BERLING
-
-
-nigis, ke li scias nenion. Kaj la satano aranĝis ĉion; sed nun venos fino por vi.”
+”ĉar vi estis tiel fidela edzino, Margareta Samzelius. Kaj la majoro akceptis la sep uzinojn kaj lasis al vi estri ilin kaj ŝajnigis, ke li scias nenion. Kaj la satano aranĝis ĉion; sed nun venos fino por vi.”
 
 La majorino eksidas, ŝi estas pala kaj tremas. Poste ŝi konfirmas per nelaŭta, stranga voĉo: ”Jes, nun venos fino por mi, kaj tion vi kaŭzas, Kristian Bergh.”
 
@@ -1179,12 +992,7 @@ Kaj mirinde estas vidi, kiel li ekgenuas antaŭ ŝi kaj petas pardonon. Kaj ĉar
 
 Sed ne malproksime de la majorino sidas malgranda, forta viro. Li havas krispajn harojn, malgrandajn, oblikvajn okulojn kaj elstarantan suban makzelon. Li similas al urso. Mal-multvorta homo li estas, kiu prefere iras siajn proprajn, silen-tajn vojojn kaj lasas la mondon zorgi pri si mem. Li estas majoro Samzelius.
 
-Li levas sin, kiam li aŭdas la akuzajn vortojn de kapitano Kristian, kaj levas sin la majorino kaj ĉiuj kvindek gastoj. La virinoj time ploras pro tio, kio nun venos, la viroj staras senkuraĝaj, kaj ĉe la piedoj de la majorino kuŝas kapitano Kris-56
-
-GÖSTA BERLING
-
-
-tian, kisante ŝian juprandon, dum liaj larmoj falas sur la plankon.
+Li levas sin, kiam li aŭdas la akuzajn vortojn de kapitano Kristian, kaj levas sin la majorino kaj ĉiuj kvindek gastoj. La virinoj time ploras pro tio, kio nun venos, la viroj staras senkuraĝaj, kaj ĉe la piedoj de la majorino kuŝas kapitano Kristian, kisante ŝian juprandon, dum liaj larmoj falas sur la plankon.
 
 La larĝaj, haraj manoj de la majoro malrapide pugniĝas, leviĝas lia brako.
 
@@ -1200,9 +1008,7 @@ La viro forturnas sin de ŝi kaj rigardas la ĉeestantojn. En iliaj vizaĝoj li 
 
 ”Mi ne sciis tion,” li diras kaj piedfrapas la plankon.
 
-”Bone, ke vi nun scias,” ŝi interrompas per atake sonanta voĉo. ”Mi timis, ke vi mortos sen ekscii tion. Bone, ke vi scias tion nun, por ke mi povu paroli libere kun vi, kiu estis mia 57
-
-GÖSTA BERLING
+”Bone, ke vi nun scias,” ŝi interrompas per atake sonanta voĉo. ”Mi timis, ke vi mortos sen ekscii tion. Bone, ke vi scias tion nun, por ke mi povu paroli libere kun vi, kiu estis mia
 
 
 mastro kaj gardisto. Sciu nun, ke mi tamen apartenis al li, de kiu vi ŝtelis min! Ili nun eksciu tion, ĉiuj kiuj kalumniis min!”
@@ -1223,18 +1029,13 @@ Nun ja ĉio plenumiĝas, kion antaŭdiris la nigrulo. Jen ili vidas la sekvojn d
 
 ”Foriru!” daŭrigas la majoro. ”Petu pri via pano sur la vojo!
 
-Vi ne havos ĝojon de lia mono, vi ne loĝos en liaj bienoj. Fini-
-
-ĝis la majorino en Ekeby. Mi mortbatos vin tiun tagon, kiam vi ree metos vian piedon en mian domon.”
+Vi ne havos ĝojon de lia mono, vi ne loĝos en liaj bienoj. Finiĝis la majorino en Ekeby. Mi mortbatos vin tiun tagon, kiam vi ree metos vian piedon en mian domon.”
 
 ”ĉu vi forpelas min el mia hejmo?”
 
 ”Vi ne havas hejmon. Ekeby apartenas al mi.”
 
 Sento de malforto ekregas la majorinon. ŝi retiras sin ĝis la pordo, kaj li sekvas ŝin tute apude.
-
-
-GÖSTA BERLING
 
 
 ”Vi, kiu estis la malfeliĉo de mia vivo,” ŝi plendas, ”ĉu vi nun havas forton fari al mi ankaŭ tion?”
@@ -1257,9 +1058,7 @@ Je tiu vorto la majorino levas sian kapon kaj reprenas sian malnovan kuraĝon.
 
 La majoro ne respondas, sed li gardas ĉiun ŝian movon, preta ekbati, se li ne povos liberiĝi de ŝi alimaniere.
 
-”Helpu min, bonaj sinjoroj,” ŝi krias, ”ligu tiun ĉi viron kaj eligu lin, ĝis lia prudento revenos! Memoru, kiu estas mi, kaj kiu estas li! Pensu pri tio, antaŭ ol mi devos cedi al li! Mi estras ĉiun faron de Ekeby, sed li sidas la tutan tagon ĉe la urso-kavo, nutrante la ursojn. Helpu min, bonaj amikoj kaj najbaroj! Tie ĉi estos mizero senlima, se mi ne estos plu. La kamparano hakas mian arbaron kaj transportas mian krudferon 59
-
-GÖSTA BERLING
+”Helpu min, bonaj sinjoroj,” ŝi krias, ”ligu tiun ĉi viron kaj eligu lin, ĝis lia prudento revenos! Memoru, kiu estas mi, kaj kiu estas li! Pensu pri tio, antaŭ ol mi devos cedi al li! Mi estras ĉiun faron de Ekeby, sed li sidas la tutan tagon ĉe la urso-kavo, nutrante la ursojn. Helpu min, bonaj amikoj kaj najbaroj! Tie ĉi estos mizero senlima, se mi ne estos plu. La kamparano hakas mian arbaron kaj transportas mian krudferon
 
 
 kaj tiel akiras sian vivtenon. La karbigisto akiras sian panon havigante karbon al mi, la flosisto la sian kondukante miajn trunkojn. Estas mi, kiu disdonas la riĉigan laboron. Forĝistoj, metiistoj kaj ĉarpentistoj vivtenas sin servante min. ĉu vi kredas, ke tiu homo povas daŭrigi mian laboron? Mi diras al vi, se vi forpelos min, tiam vi enlasos malsaton.”
@@ -1274,16 +1073,11 @@ Je tiuj vortoj malleviĝas la levitaj manoj.
 
 Tiam, en sia ekstrema senhelpeco, la majorino turnas sin al la kavaliroj.
 
-”ĉu ankaŭ vi, kavaliroj, permesos, ke mi estu forpelata el mia hejmo? ĉu mi lasis vin senti froston en la neĝo dum la vintro: ĉu mi rifuzis al vi maldolĉan bieron kaj dolĉan brandon? ĉu mi prenis rekompencon aŭ laboron de vi pro tio, ke mi donis al vi nutraĵon kaj vestojn? ĉu vi ne ludis ĉe miaj piedoj, sekuraj kiel infanoj apud la patrino? ĉu la danco ne bruis en miaj salonoj? ĉu plezuroj kaj ridoj ne estis por vi ĉiutaga pano? Kavaliroj, ne permesu al tiu ĉi viro, kiu estis la malfeliĉo de mia vivo, forpeli min el mia hejmo! Ne lasu min fari-
-
-ĝi almozulino sur la vojo.”
+”ĉu ankaŭ vi, kavaliroj, permesos, ke mi estu forpelata el mia hejmo? ĉu mi lasis vin senti froston en la neĝo dum la vintro: ĉu mi rifuzis al vi maldolĉan bieron kaj dolĉan brandon? ĉu mi prenis rekompencon aŭ laboron de vi pro tio, ke mi donis al vi nutraĵon kaj vestojn? ĉu vi ne ludis ĉe miaj piedoj, sekuraj kiel infanoj apud la patrino? ĉu la danco ne bruis en miaj salonoj? ĉu plezuroj kaj ridoj ne estis por vi ĉiutaga pano? Kavaliroj, ne permesu al tiu ĉi viro, kiu estis la malfeliĉo de mia vivo, forpeli min el mia hejmo! Ne lasu min fariĝi almozulino sur la vojo.”
 
 Je tiuj vortoj Gösta Berling ŝteliris al bela, malhelhara knabino, kiu estis sidinta ĉe la granda tablo.
 
 ”Vi ofte estis en Borg, antaŭ kvin jaroj, Anna,” li diras. ”ĉu vi scias, ĉu estis la majorino, kiu diris al Ebba Dohna, ke mi estas eksigita pastro?”
-
-
-GÖSTA BERLING
 
 
 ”Helpu la majorinon, Gösta!” estas la sola respondo de la knabino.
@@ -1317,9 +1111,6 @@ Kaj Gösta Berling restas surloke, senvorta kaj senmova.
 Ne, de tiu minaca, murmuranta kaj batalanta kavaliraro la majorino ne ricevos iun helpon.
 
 
-GÖSTA BERLING
-
-
 Tiam ŝi ree iras al la pordo kaj levas la falditajn manojn al la okuloj.
 
 ”Oni malakceptu vin, kiel vi malakceptis min!” ŝi krias al si mem en sia amara malĝojo. ”La vojo estu via hejmo, fojnstako via lito!”
@@ -1339,9 +1130,6 @@ Jen la majorino malfermas la pordon, sed tiam kapitano Kristian levas la kapon k
 Tiam la majorino forte batalas kontraŭ si, sed ŝi vidas, ke se ŝi pardonos lin, tiam li ekstaros por batali kontraŭ ŝia edzo, kaj la viro, kiu fidele amis ŝin dum kvardek jaroj, fariĝos murdinto.
 
 
-GÖSTA BERLING
-
-
 ”ĉu mi eĉ devas pardoni?” ŝi diras. ”ĉu vi ne kulpas pri mia tuta malfeliĉo, Kristian Bergh? lru al la kavaliroj, kaj ĝoju pro via faro!”
 
 La majorino foriris. ŝi iris trankvile, kaj postlasis teruron.
@@ -1356,14 +1144,10 @@ La postan tagon majoro Samzelius foriris de Ekeby kaj transloĝiĝis al sia prop
 
 En la testamento de Altringer, per kiu la majoro ricevis la uzinojn, estis klare dirite, ke li ne rajtas vendi aŭ donaci iun el ili, sed post lia morto ili herede transiru al lia edzino aŭ ŝiaj heredantoj. ĉar li do ne povis detrui la malamatan heredaĵon, li metis la kavalirojn kiel ĝiajn estrojn, kredante ke li tiama-niere faras la plej grandan malutilon al Ekeby kaj al la ses aliaj uzinoj.
 
-ĉar neniu en la lando dubis pri tio, ke Sintram estas komi-siita de la diablo, kaj ĉar ĉio, kion li promesis al la kavaliroj, tiel brile plenumiĝis, ili estis tute certaj, ke la kontrakto estos plenumata tute laŭlitere. Kaj ili estis tute firmaj en sia decido 63
-
-GÖSTA BERLING
+ĉar neniu en la lando dubis pri tio, ke Sintram estas komi-siita de la diablo, kaj ĉar ĉio, kion li promesis al la kavaliroj, tiel brile plenumiĝis, ili estis tute certaj, ke la kontrakto estos plenumata tute laŭlitere. Kaj ili estis tute firmaj en sia decido
 
 
-ne fari ion prudentan, utilan aŭ virinaĉan dum la jaro. Ili an-kaŭ estis plene konvinkitaj, ke la majorino estas malica sor-
-
-ĉistino, kiu volis pereigi ilin.
+ne fari ion prudentan, utilan aŭ virinaĉan dum la jaro. Ili an-kaŭ estis plene konvinkitaj, ke la majorino estas malica sorĉistino, kiu volis pereigi ilin.
 
 La maljuna onklo Eberhard, la filozofo, mokis ilin pri ilia opinio, sed kiu atentis pri tia homo, kiu estis tiel obstina en sia nekredo, ke se li kuŝus meze en la inferaj flamoj kaj vidus ĉiujn diablojn rikani al li, li tamen asertus, ke ili ne ekzistas, pro tio ke ili ne povas ekzisti. ĉar onklo Eberhard estis granda filozofo.
 
@@ -1372,10 +1156,7 @@ Gösta Berling diris al neniu, kion li kredas. Certe estas, ke ŝajnis al li, ke
 Estis kristnaska tempo kun festoj kaj plezuroj, la koroj de la kavaliroj estis plenaj de jubilo, kaj se iu malĝojo pezis sur la animo de Gösta Berling, li ĉiuokaze ne portis ĝin sur la vizaĝo aŭ sur la lipoj.
 
 
-GÖSTA BERLING
-
-
-KVARA ĉAPITRO
+KVARA ĈAPITRO
 
 Gösta Berling, la poeto
 
@@ -1394,9 +1175,6 @@ La frako kun la brilaj butonoj estis nova, la krispkolumo estis rigida, kaj la l
 Li fajfe vokis sian blankan Tankredon kaj prenis la plekti-tan kondukrimenon. Jubilante li forveturis, ĉirkaŭita de la 18 Vetsledo — laŭkonstrue vetvetura sledo kun nur unu sidloko.
 
 
-GÖSTA BERLING
-
-
 brilo de riĉo kaj pompo, li, kiu tamen sufiĉe brilis per la beleco de sia korpo kaj la ludanta genio de sia spirito.
 
 Li veturis frue en la antaŭtagmezo. Estis dimanĉo, kaj li aŭdis psalmkantadon el la preĝejo en Bro, kiam li preterveturis tie. Poste li sekvis la solecan arbaran vojon, kiu kondukas al Berga, kie kapitano Uggla tiam loĝis. Tie li intencis resti dum la tagmanĝo.
@@ -1407,13 +1185,9 @@ Maljuna fraŭlino Ulrika Dillner, kiu superrigardis la mastrumaĵon kaj la teksa
 
 Mizero staras antaŭ la pordo, ŝi diris, severa tempo regas en la bieno Berga. Ili ne havas eĉ krenon por la tagmanĝo por sia peklita viando, sed Ferdinand kaj la knabinoj jungis Disan al sledo kaj veturis al Munkerud por prunti.
 
-La kapitano ree estas en la arbaro kaj verŝajne revenos kun ledeca leporo, por kiu oni devos foruzi pli da butero dum la preparo, ol kiom ĝi mem valoros. Tion li nomas havigi man-
+La kapitano ree estas en la arbaro kaj verŝajne revenos kun ledeca leporo, por kiu oni devos foruzi pli da butero dum la preparo, ol kiom ĝi mem valoros. Tion li nomas havigi manĝaĵon al la domo. Estos tamen bone, se li ne venos kun aĉa vulpo, la plej senvalora besto, kiun nia Sinjoro kreis, senutila ĉu mortinta ĉu viva.
 
-ĝaĵon al la domo. Estos tamen bone, se li ne venos kun aĉa vulpo, la plej senvalora besto, kiun nia Sinjoro kreis, senutila ĉu mortinta ĉu viva.
-
-Kaj la kapitanedzino, nu, ŝi ankoraŭ ne ellitiĝis. ŝi kuŝas 66
-
-GÖSTA BERLING
+Kaj la kapitanedzino, nu, ŝi ankoraŭ ne ellitiĝis. ŝi kuŝas
 
 
 legante romanojn, kiel ŝi faras ĉiujn tagojn. ŝi ja ne estas kreita por labori, tiu Dia anĝelo.
@@ -1423,9 +1197,6 @@ Ne, tion devas fari tiu, kiu estas maljuna kaj griza kiel Ulrika Dillner. Penadi
 ”ĉar kiu scias, kio okazos?” ŝi diris, kaj viŝis siajn okulojn, kiuj ĉiam estis tre ploremaj. ”Ni havas ŝuldon al la malica uzinposedanto Sintram, kaj li povas preni ĉion de ni. Ferdinand ja fianĉiĝis kun la riĉa Anna Stjärnhök, sed ŝi tediĝos, ŝi tediĝos pri li. Kaj kio tiam okazos al ni kun niaj tri bovinoj kaj naŭ ĉevaloj, kun niaj junaj, gajaj fraŭlinoj, kiuj volas veturi de balo al balo, kun niaj sekaj kampoj, kie nenio kreskas, kun nia afabla Ferdinand, kiu neniam fariĝos vera viro? Kio okazos al tiu tuta benita domo, kie prosperas ĉio krom laboro?”
 
 Sed venis tagmezo, kaj la domanoj kolektiĝis. La afabla Ferdinand, la milda filo de la domo, kaj la gajaj fraŭlinoj venis hejmen kun la pruntita kreno. La kapitano venis, freŝigita de bano en glacitruo sur la marĉo kaj de ĉaso en la arbaro. Li malfermis la fenestron por havigi aeron kaj premis la manon de Gösta per vira forto. Kaj la kapitanedzino venis, vestita per silko, kun larĝaj puntoj pendantaj malsupren sur la blankajn manojn, kiujn ŝi etendis al Gösta por kisi.
-
-
-GÖSTA BERLING
 
 
 ĉiuj salutis Göstan kun ĝojo, la ŝerco enflugis en la rondon, gaje ili demandis lin:
@@ -1446,22 +1217,16 @@ Poste la kapitanedzino, milda kiel patrino, parolis pri lia malbonuzita vivo. �
 
 Kaj sentiĝis al li dolĉa la instigo de tiu milda virino, kiu estis tiel fidela amikino, kaj kies granda, romantika koro flamis pro amo al grandaj agoj.
 
-Kiam ili finis la gajan manĝon, dum kiu ili ĝuis krenvian-don, brasikon, graskuiritajn kukojn kaj kristnaskan bieron kaj Gösta vokis ridojn kaj larmojn el iliaj okuloj per rakontoj pri la majoro kaj la majorino kaj la pastro de Broby, tiam aŭdi-
+Kiam ili finis la gajan manĝon, dum kiu ili ĝuis krenvian-don, brasikon, graskuiritajn kukojn kaj kristnaskan bieron kaj Gösta vokis ridojn kaj larmojn el iliaj okuloj per rakontoj pri la majoro kaj la majorino kaj la pastro de Broby, tiam aŭdiĝis ĉevalsonoriloj sur la korto, kaj tuj poste la malica Sintram envenis al ili.
 
-ĝis ĉevalsonoriloj sur la korto, kaj tuj poste la malica Sintram envenis al ili.
-
-Li radiis pro kontento, de la kalva kapo ĝis la longaj, plataj piedoj. Li svingis siajn longajn brakojn, kaj la vizaĝo faris 68
-
-GÖSTA BERLING
+Li radiis pro kontento, de la kalva kapo ĝis la longaj, plataj piedoj. Li svingis siajn longajn brakojn, kaj la vizaĝo faris
 
 
 grimacojn. Estis facile kompreni, ke li kunportas malbonajn novaĵojn.
 
 ”ĉu vi aŭdis,” la maliculo demandis, ”ĉu vi aŭdis, ke hodiaŭ en la preĝejo de Svartsjö estis anoncita la unuan fojon geedziĝo de Anna Stjärnhök kaj la riĉa Dahlberg? ŝajne ŝi forgesis, ke ŝi estis fianĉino de Ferdinand.”
 
-Ili ne aŭdis eĉ unu vorton pri tio. Ili konsterniĝis kaj mal-
-
-ĝojis.
+Ili ne aŭdis eĉ unu vorton pri tio. Ili konsterniĝis kaj malĝojis.
 
 Jam ili imagis la hejmon detruita por pagi la ŝuldon al la maliculo: la amatajn ĉevalojn venditaj kaj same la eluzitajn meblojn, kiujn ili heredis el la hejmo de la kapitanedzino. Ili vidis la finon de la gaja vivo kun festoj kaj veturoj de balo al balo. La ursoŝ ree venos sur la tablon, kaj la junaj devos serĉi laboron ĉe aliaj homoj.
 
@@ -1473,9 +1238,7 @@ Tamen, Gösta Berling sidis inter ili, kaj la nevenkebla viro formis mil planojn
 
 Estas la pastroedzino en Svartsjö, kiu aranĝis tion ĉi. ŝi ekregis la volon de Anna, nun, kiam tiu loĝas ĉe ŝi en la pastrodomo. Estas ŝi, kiu persvadis ŝin forlasi Ferdinandon por la maljuna Dahlberg, sed ankoraŭ ili ne geedziĝis kaj ankaŭ ne geedziĝos. Mi nun veturos al Borg, kaj tie mi renkontos Annan. Mi parolos kun ŝi, mi forŝiros ŝin de la pastrofamilio, de la fianĉo. Mi kunprenos ŝin tien ĉi en la venonta nokto. Poste la maljuna Dahlberg ne havos iun ĝojon de ŝi.”
 
-Okazis tiel. Gösta veturis sola al Borg, sen akompano de iu el la gajaj fraŭlinoj, sed la hejme restantaj sekvis lian veturon per varma bondeziro. Kaj Sintram, kiu ĝojis, ke la maljuna 69
-
-GÖSTA BERLING
+Okazis tiel. Gösta veturis sola al Borg, sen akompano de iu el la gajaj fraŭlinoj, sed la hejme restantaj sekvis lian veturon per varma bondeziro. Kaj Sintram, kiu ĝojis, ke la maljuna
 
 
 Dahlberg estos trompita, decidis resti en Berga por vidi, kiam Gösta revenos kun la malfidelulino. En erupcio de bonvolo li eĉ metis ĉirkaŭ lin sian verdan veturskarpon, kiu estis donaco de mastrino Ulrika.
@@ -1499,9 +1262,6 @@ La gejunuloj unue silentis, sed poste ŝi komencis interparoli, spitema kiel la 
 ”ĉu li diris, ke vi estas la plej bela knabino inter Löven kaj la rivero Klarelven?”
 
 ”Vi estas stulta, tion la homoj tamen certe scias. Li anoncis geedziĝon de mi kaj la maljuna Dahlberg.”
-
-
-GÖSTA BERLING
 
 
 ”Vere mi ne estus permesinta al vi sidi en la sledo kaj mem eksidinta tie ĉi malantaŭe, se mi estus sciinta tion. Vere mi tute ne estus ŝatinta veturigi vin.”
@@ -1539,9 +1299,6 @@ Ne tre bonhumora la spitema belulino de la regiono eniris en la balsalonon kaj r
 19 Virao — sveda kartludo (vira).
 
 
-GÖSTA BERLING
-
-
 Kiel unuan el ĉiuj ŝi ekvidis la malgrandan, kalvan Dahlberg, apud la longa, svelta, helbukla Gösta Berling. ŝi sentis emon forpeli ilin ambaŭ el la ĉambro.
 
 ŝia fianĉo venis por inviti ŝin al danco, sed ŝi renkontis lin per frakasa miro.
@@ -1565,9 +1322,6 @@ Li kaj la aliaj junaj viroj faris konspiron kontraŭ ŝi. ŝi pripensu, kiel mal
 Je la dekunua danco venis viro, la plej sensignifa el sensig-nifaj viroj, kompatindulo, kun kiu neniu alia volis danci, kaj invitis ŝin.
 
 ”La kukoj finiĝis, ni metu nigran panon sur la tablon,” ŝi diris.
-
-
-GÖSTA BERLING
 
 
 Ili ludis punludon. Helbuklaj knabinoj kunmetis siajn kapojn kaj juĝis ŝin kisi tiun, kiun ŝi plej ŝatas. Kaj kun ridetantaj buŝoj ili atendis, ke ili vidos la fieran belulinon kisi la maljunan Dahlberg.
@@ -1596,12 +1350,7 @@ Li ankoraŭ ne havis mildajn vortojn sur la lango, ankaŭ ne ŝajnis al li prude
 
 Tiam la koro de la poeto tuŝiĝis. Li hontis pro sia severo. Li parolis en karesa tono.
 
-”Ho, infano, infano, pardonu min! Pardonu la malriĉan Göstan Berling! Neniu priatentas, kion diras aŭ faras tia kom-73
-
-GÖSTA BERLING
-
-
-patindulo, tion vi ja scias. Neniu ploras pro lia kolero, same bone oni povus plori pro piketo de kulo. Estis freneze, sed mi volis kontraŭstari tion, ke nia plej bela kaj riĉa junulino edziniĝos kun tiu maljunulo. Kaj jen mi nur malgajigis vin.”
+”Ho, infano, infano, pardonu min! Pardonu la malriĉan Göstan Berling! Neniu priatentas, kion diras aŭ faras tia kompatindulo, tion vi ja scias. Neniu ploras pro lia kolero, same bone oni povus plori pro piketo de kulo. Estis freneze, sed mi volis kontraŭstari tion, ke nia plej bela kaj riĉa junulino edziniĝos kun tiu maljunulo. Kaj jen mi nur malgajigis vin.”
 
 Li eksidis apud ŝi sur la sofo. Milde li metis sian brakon ĉirkaŭ ŝian talion por apogi kaj rebonigi per karesa kompa-temo.
 
@@ -1632,18 +1381,13 @@ Tiam bolis la sango de la poeto. ŝi estis bela kaj dolĉa en sia amo. Li ĉirka
 Permesu al mi veturigi vin al Ekeby nunnokte. Tie mi scios defendi vin, ĝis ni povos festi edziĝon.”
 
 
-GÖSTA BERLING
-
-
 Venis muĝa veturo en la nokto. Obeante la ordonon de amo ili lasis Don Juanon forporti ilin. ŝajnis, kvazaŭ la grinco sub la glitiloj estus la plendo de la trompitoj. Kiom ili atentis pri tio? ŝi pendis ĉirkaŭ lia kolo, kaj li klinis sin kaj flustris en ŝian orelon:
 
 ”ĉu iu feliĉo estas komparebla al la dolĉo de ŝtelita ĝojo?”
 
 Kiom gravis la anoncado pri edziĝo. Ili havis amon. Kaj la kolero de la homoj! Gösta Berling kredis pri la sorto, la sorto devigis ilin: kontraŭ la sorto neniu povas batali.
 
-Se la steloj estus edziĝaj kandeloj, bruligitaj por ŝia edzini-
-
-ĝo, se la sonoriloj de Don Juan estus preĝejaj sonoriloj, kiuj vokus la homojn por rigardi ŝian edziniĝon kun la maljuna Dahlberg, tiam ŝi tamen devu forkuri kun Gösta Berling. Tiel potenca estas la sorto.
+Se la steloj estus edziĝaj kandeloj, bruligitaj por ŝia edziniĝo, se la sonoriloj de Don Juan estus preĝejaj sonoriloj, kiuj vokus la homojn por rigardi ŝian edziniĝon kun la maljuna Dahlberg, tiam ŝi tamen devu forkuri kun Gösta Berling. Tiel potenca estas la sorto.
 
 Ili jam feliĉe preterveturis la pastrodomon kaj Munkerud.
 
@@ -1662,18 +1406,13 @@ Ili vidis longan, grizan linion moviĝi antaŭen laŭ la stang-barilo. Estis alm
 Anna ne ektimis. La tago estis riĉe benita per aventuroj, kaj la nokto promesis fariĝi simila. Tio estis vivo, rapidegi an-taŭen sur fajrere brilanta neĝo, spitante rabobestojn kaj homojn.
 
 
-GÖSTA BERLING
-
-
 Gösta ekblasfemis, streĉis sin antaŭen kaj donis al Don Juan fortan frapon per la vipo.
 
 ”ĉu vi timas?” ŝi demandis.
 
 ”Ili intencas trafi nin tie, kie la vojo kurbiĝas.”
 
-Don Juan kuris, vetkurante kun la rabobestoj de la arbaro, kaj Tankred hurlis pro furiozo kaj timo. Ili atingis la vojkurbi-
-
-ĝon samtempe kun la lupoj, kaj Gösta forpelis la unuan per la vipo.
+Don Juan kuris, vetkurante kun la rabobestoj de la arbaro, kaj Tankred hurlis pro furiozo kaj timo. Ili atingis la vojkurbiĝon samtempe kun la lupoj, kaj Gösta forpelis la unuan per la vipo.
 
 ”Ho, Don Juan, mia knabo, kiel facile vi forkurus de dek du lupoj, se vi ne devus treni nin!”
 
@@ -1686,9 +1425,6 @@ Tiam ili ekvidis la domon de Berga ĉe la arbara rando. Kandeloj lumis en la fen
 Tamen, nun la lupoj forkuris, timante la proksimecon de homoj, kaj Gösta preterveturis Bergan. Li tamen atingis nur tiun lokon, kie la vojo ree profundiĝas en la arbaron, kiam li ekvidis malhelan grupon antaŭ si: la lupoj atendis lin.
 
 ”Ni reiru al la pastrodomo kaj diru, ke ni faris plezurve-turon en la stellumo! Tio ĉi ne estas ebla.”
-
-
-GÖSTA BERLING
 
 
 Ili returnis sin, sed en la posta momento la lupoj ĉirkaŭis la sledon. Grizaj figuroj videtiĝis preterkure, blankaj dentoj brilis en vastaj faŭkoj, kaj la ardaj okuloj lumis. Ili hurlis pro malsato kaj sangsoifo. La brilaj dentoj estis pretaj ekmordi molan homviandon. La lupoj saltis sur Don Juanon kaj ek-pendis ĉe la jungilaro. Anna demandis sin, ĉu la bestoj tute formanĝos ilin, aŭ ĉu io restos, tiel ke la homoj la venontan matenon trovos disŝiritajn membrojn sur la tretita, sanga neĝo.
@@ -1714,16 +1450,11 @@ Oni ne faris multajn demandojn. Estis malfrue en la nokto, la veturantoj estis a
 La tuta domo dormis. Tiam Gösta leviĝis, vestis sin kaj ŝtele eliris. Tute nerimarkite li prenis Don Juanon el la stalo, metis lin antaŭ la sledon kaj intencis forveturi. Tiam Anna Stjärnhök venis el la domo.
 
 
-GÖSTA BERLING
-
-
 ”Mi aŭdis vin eliri,” ŝi diris. ”Tiam ankaŭ mi ellitiĝis. Mi estas preta kunveturi kun vi.”
 
 Li iris al ŝi kaj prenis ŝian manon.
 
-”ĉu vi ankoraŭ ne komprenas? Tio ne povas okazi. Dio ne volas tion. Aŭskultu nun, kaj provu kompreni! Mi estis tie ĉi tagmeze kaj vidis ilian ĝemon pro via malfidelo. Tiam mi veturis al Borg por revenigi vin al Ferdinand. Sed mi ĉiam estis aĉulo kaj neniam fariĝos io alia. Mi perfidis lin kaj retenis vin por mi. Tie ĉi troviĝas maljuna virino, kiu kredas, ke mi fari-
-
-ĝos viro. ŝin mi perfidis. Kaj alia maljuna kompatindulino volas vivi tie ĉi en malvarmo kaj malsato nur por iam morti inter amikoj, sed mi estis preta lasi la malican Sintram preni ŝian hejmon. Vi estis bela kaj la peko dolĉa. Gösta Berling estas tre facile logebla. Ho, kia malfortulo mi estas! — Mi scias, kiel ili amas sian hejmon, tiuj ĉi homoj, sed — tamen mi ĵus estis preta lasi ĝin por detruo. Mi forgesis ĉion pro vi, vi estis tiel dolĉa en via amo. Sed nun, Anna, nun kiam mi vidis ilian ĝojon, mi ne volas reteni vin por mi, ne, mi ne volas. Vi estas tiu, kiu povus fari homon el mi, sed mi ne rajtas reteni vin. Ho, mia amata! Li en la ĉielo ludas kun nia volo. Estas tempo por ni obei al la punanta mano. Diru, ke vi de tiu ĉi tago volas porti vian ŝarĝon. ĉiuj en tiu ĉi domo fidas al vi!
+”ĉu vi ankoraŭ ne komprenas? Tio ne povas okazi. Dio ne volas tion. Aŭskultu nun, kaj provu kompreni! Mi estis tie ĉi tagmeze kaj vidis ilian ĝemon pro via malfidelo. Tiam mi veturis al Borg por revenigi vin al Ferdinand. Sed mi ĉiam estis aĉulo kaj neniam fariĝos io alia. Mi perfidis lin kaj retenis vin por mi. Tie ĉi troviĝas maljuna virino, kiu kredas, ke mi fariĝos viro. ŝin mi perfidis. Kaj alia maljuna kompatindulino volas vivi tie ĉi en malvarmo kaj malsato nur por iam morti inter amikoj, sed mi estis preta lasi la malican Sintram preni ŝian hejmon. Vi estis bela kaj la peko dolĉa. Gösta Berling estas tre facile logebla. Ho, kia malfortulo mi estas! — Mi scias, kiel ili amas sian hejmon, tiuj ĉi homoj, sed — tamen mi ĵus estis preta lasi ĝin por detruo. Mi forgesis ĉion pro vi, vi estis tiel dolĉa en via amo. Sed nun, Anna, nun kiam mi vidis ilian ĝojon, mi ne volas reteni vin por mi, ne, mi ne volas. Vi estas tiu, kiu povus fari homon el mi, sed mi ne rajtas reteni vin. Ho, mia amata! Li en la ĉielo ludas kun nia volo. Estas tempo por ni obei al la punanta mano. Diru, ke vi de tiu ĉi tago volas porti vian ŝarĝon. ĉiuj en tiu ĉi domo fidas al vi!
 
 Diru, ke vi volas resti ĉe ili kaj esti por ili helpo kaj apogo! Se vi amas ilin, se vi volas faciligi mian profundan malĝojon, tiam promesu tion al mi! Mia amata, ĉu via koro estas tiel granda, ke ĝi povas venki sin mem kaj rideti je tio?”
 
@@ -1734,9 +1465,6 @@ Ekstaze ŝi akceptis la ordonon de rezigno.
 ”Kaj ne malamos miajn malriĉajn amikojn?”
 
 ŝi ridetis melankolie.
-
-
-GÖSTA BERLING
 
 
 ”Tiel longe, ke mi amos vin, mi amos ilin.”
@@ -1764,10 +1492,7 @@ Ankoraŭfoje li etendis al ŝi la brakojn, sed Don Juan malpacienciĝis kaj ektr
 Ho, Gösta Berling, plej forta kaj plej malforta inter homoj!
 
 
-GÖSTA BERLING
-
-
-KVINA ĉAPITRO
+KVINA ĈAPITRO
 
 La cachucha
 
@@ -1779,21 +1504,14 @@ Estas griza, krepuskiĝa horo en la kavalira flankdomo. En la granda ĉambro la 
 
 Sed en la ĉambro aŭdiĝas la violono de Lilliecrona. Li ludas la cachuchan20 en la krepuskiĝo. Ree kaj ree li ludas ĝin.
 
-Tranĉu la kordojn, rompu la arĉon! Kial li ludas tiun mal-benitan dancon! Kial li ludas ĝin, kiam Örneclou, la subleŭ-
-
-tenanto, ĝuste kuŝas malsana en podagraj doloroj tiel suferi-gaj, ke li ne povas movi sin el la lito? Ne, fortiru de li la violonon kaj ĵetu ĝntraŭ la muron, se li ne volas fini!
+Tranĉu la kordojn, rompu la arĉon! Kial li ludas tiun mal-benitan dancon! Kial li ludas ĝin, kiam Örneclou, la subleŭtenanto, ĝuste kuŝas malsana en podagraj doloroj tiel suferi-gaj, ke li ne povas movi sin el la lito? Ne, fortiru de li la violonon kaj ĵetu ĝntraŭ la muron, se li ne volas fini!
 
 ĉu la cachucha estas por ni, majstro? ĉu oni dancu ĝin sur 20 Cachucha — hispana danco. Elp. kaĉuĉa.
 
 
-GÖSTA BERLING
-
-
 la fleksiĝantaj planktabuloj de la kavalira domo, inter mallarĝaj muroj; fulgigitaj de fumo kaj grasaj de malpuraĵo, sub tiu malalta plafono? Ve al vi, ĉar vi tiel ludas!
 
-ĉu la cachucha estas por ni, por ni kavaliroj? Ekstere mu-
-
-ĝas la neĝovento. ĉu vi intencas instrui la flokojn danci laŭ-
+ĉu la cachucha estas por ni, por ni kavaliroj? Ekstere muĝas la neĝovento. ĉu vi intencas instrui la flokojn danci laŭ-
 
 takte, ĉu vi ludas por la facilpiedaj infanoj de la kirliĝanta neĝo?
 
@@ -1804,9 +1522,6 @@ La kavaliroj sekigas siajn malsekajn vestojn ĉe la fajro. ĉu ili dancu en alta
 Vespera ĉielo brilanta de steloj, ruĝaj rozoj en malhela virina hararo, tremiga dolĉo en la vespera aero, neinstruita pla-stiko en la movoj, amo, kiu levas sin el la tero, pluve falas de la ĉielo, ŝvebanta en la aero, ĉu tio troviĝas tie ĉi, majstro? Se ne, kial igi nin sopiri al tiaj aferoj?
 
 Plej kruela inter homoj, ĉu vi vokas ligitan batalĉevalon al batalo? Rutger von Örneclou kuŝas en sia lito, katenita de podagraj doloroj. Ne suferigu lin per amaro de dolĉaj memo-21 Maŭroj — araboj, kiuj regis Hispanujon en la mezepoko.
-
-
-GÖSTA BERLING
 
 
 roj, majstro! Ankaŭ li iam portis sombreron22 kaj multkolo-ran harreton, ankaŭ li posedis veluran jakon kaj ponardorna-mitan zonon. Ne suferigu la maljunan Örneclou, majstro!
@@ -1834,9 +1549,6 @@ Kia kavaliro li estis, tiel svelta, tiel bela, tiel ĝentila! La belan 22 Sombre
 23 Pas de deux — franca vorto, elp. pa dö dö. Danco de du personoj.
 
 
-GÖSTA BERLING
-
-
 Örneclou nomis lin tiuj junaj knabinoj, kiuj povis mortige malpaciĝi pri danco kun li.
 
 Jen Lilliecrona ree komencas la cachuchan, ĉiam la cachuchan, kaj Örneclou estas rekondukata al malnovaj tempoj.
@@ -1859,12 +1571,7 @@ Bela señor, vi fariĝis maljuna.
 
 Eble ankaŭ señorita?
 
-Nur sub la platanoj de Granada la cachuchan dancas eter-83
-
-GÖSTA BERLING
-
-
-ne junaj gitanas24. Eterne junaj, kiel estas la rozoj, pro tio ke ĉiu printempo alportas novajn.
+Nur sub la platanoj de Granada la cachuchan dancas eterne junaj gitanas24. Eterne junaj, kiel estas la rozoj, pro tio ke ĉiu printempo alportas novajn.
 
 Jen do venis la momento por tranĉi la kordojn.
 
@@ -1879,10 +1586,7 @@ Diru, ke vi amas la trumpetan sonon, kiu logas vin al galopo, eĉ se la fera lig
 24 Gitanas — hispana vorto, elp. ˛itanas. Ciganinoj.
 
 
-GÖSTA BERLING
-
-
-SESA ĉAPITRO
+SESA ĈAPITRO
 
 La balo en Ekeby
 
@@ -1900,12 +1604,7 @@ Sed la kavaliroj ja estis solaj estroj de Ekeby en tiu tempo.
 
 La majorino vagis en la lando kun almozulaj sako kaj bastono, kaj la majoro loĝis en Sjö. Li ne povis eĉ partopreni la feston, ĉar en Sjö variolo aperis, kaj li volis eviti disvastigon de la infektaĵo.
 
-Kiom da ĝuo ampleksis tiuj dolĉaj dek du horoj, ekde la klako de la unua vinbotelo ĉe la tagmanĝa tablo ĝis la lasta arĉmovo, kiam la noktomezo jam antaŭ longe pasis! Ili mal-85
-
-GÖSTA BERLING
-
-
-aperis en la abismo de la tempo, tiuj florumitaj horoj, sorĉitaj de plej fajra vino, de plej franda manĝaĵo, de plej bela muziko, de plej spritaj teatraĵoj, de plej okulravaj scenbildoj. Ili malaperis, ebriaj de plej ebriiga danco. Kie ekzistis tiel glataj plankoj, tiel ĝentilaj kavaliroj, tiel belaj virinoj?
+Kiom da ĝuo ampleksis tiuj dolĉaj dek du horoj, ekde la klako de la unua vinbotelo ĉe la tagmanĝa tablo ĝis la lasta arĉmovo, kiam la noktomezo jam antaŭ longe pasis! Ili malaperis en la abismo de la tempo, tiuj florumitaj horoj, sorĉitaj de plej fajra vino, de plej franda manĝaĵo, de plej bela muziko, de plej spritaj teatraĵoj, de plej okulravaj scenbildoj. Ili malaperis, ebriaj de plej ebriiga danco. Kie ekzistis tiel glataj plankoj, tiel ĝentilaj kavaliroj, tiel belaj virinoj?
 
 Ho, virinoj de tempoj pasintaj, bone vi komprenis doni brilon al festo. Torentoj de fajro, de sprito kaj juneca forto tra-fluis ĉiun, kiu proksimiĝis al vi. Valoris la koston fordoni sian oron por la vaksaj kandeloj, kiuj prilumis vian belecon, por la vino, kiu naskis gajecon en viaj koroj, valoris la penon neniigi la ŝuplandojn per danco kaj ĝis paraliziĝo movi la brakon, kiu tenis la arĉon.
 
@@ -1915,9 +1614,7 @@ En la salonoj de Ekeby svarmas la plej dolĉaj el via dolĉa aro. Tie estas la j
 
 ŝi, la fama, kiu brilis ĉe la kortego de la reĝo kaj en la grafaj kasteloj, la reĝino de beleco, kiu traveturis la landon kaj ĉie estis adore akceptata, ŝi, kiu flamigis la fajreron de amo, kie ajn ŝi montris sin, ŝi honoris la feston de la kavaliroj per sia ĉeesto.
 
-Alte radiis tiutempe la gloro de Vermlando, portata de multaj fieraj nomoj. Pro multo la gajaj infanoj de la bela lando 86
-
-GÖSTA BERLING
+Alte radiis tiutempe la gloro de Vermlando, portata de multaj fieraj nomoj. Pro multo la gajaj infanoj de la bela lando
 
 
 povis fieri, sed kiam ili menciis siajn glorulojn, ili neniam preterlasis mencii pri Marianne Sinclaire.
@@ -1936,18 +1633,11 @@ Ofte ŝi mem amis, ofte, ofte, sed neniam tia plezurfajro daŭris sufiĉe longe 
 
 ”Mi atendas ĝin, la fortan konkeranton,” ŝi kutimis diri pri la amo. ”is nun ĝi ne transgrimpis remparojn aŭ transnaĝis kastelfosojn. Obeema ĝi venis, sen sovaĝo en rigardo kaj mal-prudento en koro. Mi atendas la potenculon, kiu kondukos min for de mi mem. Tiel forta mi volus scii la amon en mi, ke mi devus timi pro ĝi; nun mi sentis nur tiun amon, pri kiu mia prudento ridetas.”
 
-ŝia ĉeesto donis fajron al la parolo, vivon al la vino. ŝia ar-87
-
-GÖSTA BERLING
-
-
-danta animo rapidigis la arĉojn, kaj la dancantoj ŝvebis en pli dolĉa sentebrio ol antaŭe sur tiuj planktabuloj, kiujn tuŝis ŝia maldika piedo. ŝi radiis en la scenbildoj, ŝi donis spriton al la komedioj, ŝiaj belaj lipoj
+ŝia ĉeesto donis fajron al la parolo, vivon al la vino. ŝia ardanta animo rapidigis la arĉojn, kaj la dancantoj ŝvebis en pli dolĉa sentebrio ol antaŭe sur tiuj planktabuloj, kiujn tuŝis ŝia maldika piedo. ŝi radiis en la scenbildoj, ŝi donis spriton al la komedioj, ŝiaj belaj lipoj
 
 Silentu, tio ne estis ŝia kulpo, neniel ŝi intencis! Kulpis la balkono, la lunlumo, la puntvualo, la kavalira kostumo kaj la kanto. La kompatindaj junaj homoj estis senkulpaj.
 
-ĉio tio, kio alportis tiom da malfeliĉo, tamen estis farita en granda bonintenco. Sinjoro Julius, kiu komprenis ĉion, aran-
-
-ĝis scenbildon speciale por ke Marianne brilu en plena gloro.
+ĉio tio, kio alportis tiom da malfeliĉo, tamen estis farita en granda bonintenco. Sinjoro Julius, kiu komprenis ĉion, aranĝis scenbildon speciale por ke Marianne brilu en plena gloro.
 
 En la teatro, aranĝita en la granda salono de Ekeby, sidis la cent gastoj kaj vidis sur la scenejo la flavan lunon de Hispanujo moviĝi sur malhela nokta ĉielo. Iu Don Juan venis ŝtelire sur strato en Sevilla kaj haltis sub hederokovrita balkono. Li estis vestita kiel mona˛o, tamen oni vidis broditan manumon iom elstari sub la maniko kaj brilan spadpinton sub la rando de la kapoto.
 
@@ -1972,9 +1662,6 @@ Al krad’ ne venu tien ĉi,
 señora en beleca glor’,
 
 forpelus min la tent’.
-
-
-GÖSTA BERLING
 
 
 Por mi kapot’ kaj rozari’,
@@ -2009,12 +1696,7 @@ Li ne atentis pri la averto de la belulino, tute male grimpis supren laŭ unu el
 
 Ameme ŝi ridetis al li, etendante sian manon al li por kisi, kaj dum la du junaj homoj rigardis unu la alian, kaptitaj de amo, la kurteno falis.
 
-Kaj antaŭ ŝi genuis Gösta Berling, kun vizaĝo molesprima kiel tiu de poeto kaj kuraĝa kiel tiu de militestro, kun profun-89
-
-GÖSTA BERLING
-
-
-daj okuloj, kiuj briletis de petolemo kaj sprito, kiuj petis kaj trudis. Gracia kaj fortika li estis, fajra kaj rava.
+Kaj antaŭ ŝi genuis Gösta Berling, kun vizaĝo molesprima kiel tiu de poeto kaj kuraĝa kiel tiu de militestro, kun profundaj okuloj, kiuj briletis de petolemo kaj sprito, kiuj petis kaj trudis. Gracia kaj fortika li estis, fajra kaj rava.
 
 Dum la kurteno leviĝadis kaj faladis la du gejunuloj ĉiam restis en la sama pozicio. La okuloj de Gösta kapte tenis la belan Marianne, ili petis, ili trudis.
 
@@ -2026,20 +1708,13 @@ Sed la tutan kulpon havis la balkono, la lunlumo, la puntvualo, la kavalirkostum
 
 sta Berling, kaj li ja ne forgesis ankoraŭ Annan Stjärnhök. Ne, ili estis senkulpaj, neniu el ili volis tion.
 
-La milda Lövenborg, li kun larmo en la okulo kaj rideto sur la lipoj, estis kurtenlevanto tiun tagon. Distrita de multaj mal-
+La milda Lövenborg, li kun larmo en la okulo kaj rideto sur la lipoj, estis kurtenlevanto tiun tagon. Distrita de multaj malĝojaj memoroj li malmulton rimarkis de la aferoj de tiu ĉi mondo kaj neniam lernis prizorgi ilin bone. Kiam li nun ekvidis, ke Gösta kaj Marianne prenis novan pozicion, li kredis, ke ankaŭ tio apartenas al la scenbildo, kaj jen li komencis tiri la kurtenan ŝnuron.
 
-ĝojaj memoroj li malmulton rimarkis de la aferoj de tiu ĉi mondo kaj neniam lernis prizorgi ilin bone. Kiam li nun ekvidis, ke Gösta kaj Marianne prenis novan pozicion, li kredis, ke ankaŭ tio apartenas al la scenbildo, kaj jen li komencis tiri la kurtenan ŝnuron.
-
-La junaj sur la balkono rimarkis nenion, ĝis tondraj aplaŭ-
-
-doj ree salutis ilin.
+La junaj sur la balkono rimarkis nenion, ĝis tondraj aplaŭdoj ree salutis ilin.
 
 Marianne ekmovis sin kaj volis forkuri, sed Gösta retenis ŝin, flustrante:
 
 ”Restu, ili kredas, ke tio ĉi apartenas al la scenbildo!”
-
-
-GÖSTA BERLING
 
 
 Li sentis, kiel ŝia korpo tremas pro frostosento, kaj kiel la ardo de la kisoj estingiĝas sur ŝiaj lipoj.
@@ -2075,9 +1750,6 @@ Kaj ili tute pace interkonsentis konservi trankvilan mienon, por ke neniu suspek
 ”Ili kredos nenion, ili scios, ke tio ĉi signifas nenion. Ili pensos, ke la rolo kaptis nin kaj ni daŭrigis la ludon.”
 
 
-GÖSTA BERLING
-
-
 Ankoraŭ unu demando ŝtele aperis sub la mallevitaj palpebroj, sub la alprenita rideto.
 
 ”Sed vi mem, sinjoro Gösta? Kion vi pensas pri la afero?”
@@ -2109,9 +1781,6 @@ Lia koro doloris pro la rigardo de Marianne, kvazaŭ vun-dus ĝin akra ŝtalo. L
 Estis hontinde ami lin, estis hontinde esti amata de li, honto pli terura ol morto.
 
 
-GÖSTA BERLING
-
-
 Li neniam plu volis danci, neniam plu vidi ilin, la belajn virinojn.
 
 Li ja sciis. Tiuj belaj okuloj, tiuj ruĝaj vangoj ne flamis por li. Ne por li ŝvebis tiuj malpezaj piedoj, sonoris tiuj nelaŭtaj ridoj. Jes, danci kun li, amindumi kun li ili povis, sed neniu el ili sincere deziris fariĝi la lia.
@@ -2128,14 +1797,9 @@ Sed ankaŭ antaŭ Gösta kolektiĝis kaj moneroj kaj monbiletoj, kaj baldaŭ li 
 
 Li tamen trovis solvon. Li forludis la horloĝon kaj la kasto-ran pelton kaj ĝuste volis ekludi pri siaj ĉevalo kaj sledo, kiam Sintram haltigis lin.
 
-”Enmetu ion, kio donos gajnon!” la malica uzinposedanto de Fors konsilis al li. ”Metu ion, kio povas rompi la malbon-
-
-ŝancon!”
+”Enmetu ion, kio donos gajnon!” la malica uzinposedanto de Fors konsilis al li. ”Metu ion, kio povas rompi la malbonŝancon!”
 
 ”Diablo scias, kion mi tiam eltrovu!”
-
-
-GÖSTA BERLING
 
 
 ”Ludu pri via plej ruĝa korsango, frato Melchior, ludu pri via filino!”
@@ -2150,18 +1814,13 @@ Gösta emnetis sian tutan gajnon, kaj la ludo komenciĝis. Li gajnis, kaj sinjor
 
 La noktaj horoj pasis, jam estis post noktomezo. La vangoj de la belaj virinoj komencis paliĝi, la buklaj haroj rektiĝis, la robaj krispgarnaĵoj ĉifiĝis. La maljunaj sinorinoj levis sin el la sofanguloj kaj diris, ke ĉar la festo daŭris jam dum dek du horoj, povas esti tempo iri hejmen.
 
-Kaj la bela festo devus finiĝi, sed tiam Lilliecrona prenis la violonon kaj ekludis la lastan polskon. La ĉevaloj staris antaŭ la pordo, la maljunaj sinjorinoj vestis sin per peltoj kaj kuf-
-
-ĉapeloj, la maljunaj sinjoroj surmetis la veturskarpojn kaj bu-tonis la superbotojn.
+Kaj la bela festo devus finiĝi, sed tiam Lilliecrona prenis la violonon kaj ekludis la lastan polskon. La ĉevaloj staris antaŭ la pordo, la maljunaj sinjorinoj vestis sin per peltoj kaj kufĉapeloj, la maljunaj sinjoroj surmetis la veturskarpojn kaj bu-tonis la superbotojn.
 
 Sed la junaj ne povis forŝiri sin de la danco. Oni dancis en supervestoj, dancis kvaro-polskon, kurpolskon, rondpolskon, estis furioza dancado. Kiam kavaliro forlasis sian sinjorinon, tuj venis alia kaj kuntiris ŝin.
 
 Kaj ankaŭ la malgaja Gösta Berling kuntiriĝis en la kirlon.
 
 Li volis fordanci la malĝojon kaj humiligon, li volis reenigi tremigan vivĝojon en la sangon, li volis esti gaja, li kiel la aliaj.
-
-
-GÖSTA BERLING
 
 
 Kaj li dancis tiel, ke la muroj de la ĉambro rondiris kaj liaj pensoj deliris.
@@ -2184,23 +1843,16 @@ Sintram ordigis la kondukrimenojn kaj levis la vipon, an-taŭ ol li respondis:
 
 La potenca uzinposedanto levis la brakon por mortiga bato, sed Sintram jam estis for. Li forveturis, vipis la ĉevalon en sovaĝan rapidon kaj ne kuraĝis rigardi malantaŭen, ĉar Melchior Sinclaire havis pezan manon kaj mallongan paciencon.
 
-La uzinposedanto de Björne iris en la dancsalonon por ser-
-
-ĉi sian filinon kaj tiam vidis, ke Gösta kaj Marianne dancas kune.
+La uzinposedanto de Björne iris en la dancsalonon por serĉi sian filinon kaj tiam vidis, ke Gösta kaj Marianne dancas kune.
 
 Sovaĝa kaj furioza aspektis la lasta polsko. Iuj paroj estis palaj, aliaj flame ruĝaj, la polvo ŝvebis kiel fumo en la salono, la konsumitaj vakskandeloj ardis en la ingoj, kaj meze en la fantomeca detruiĝo ili flugis antaŭen, Gösta kaj Marianne, reĝaj en sia nevenkita forto, en senmakula beleco, feliĉaj en la sindono al la belega moviĝo.
-
-
-GÖSTA BERLING
 
 
 Melchior Sinclaire rigardis ilin dum tempeto; sed jen li foriris sen ĝeni la dancadon de Marianne. Li brue fermis la pordon, piedbruis terure sur la ŝtuparo kaj tuj eksidis en la sledo, kie lia edzino jam atendis, kaj veturis hejmen.
 
 Kiam Marianne ĉesis danci kaj demandis pri siaj gepatroj, ili jam estis for.
 
-Eksciante pri tio ŝi tamen ne montris iun surprizon. ŝi silente vestis sin kaj iris sur la korton. La sinjorinoj en la vest-
-
-ĉambro kredis, ke ŝi veturas per propra sledo.
+Eksciante pri tio ŝi tamen ne montris iun surprizon. ŝi silente vestis sin kaj iris sur la korton. La sinjorinoj en la vestĉambro kredis, ke ŝi veturas per propra sledo.
 
 Sed en siaj maldikaj silkaj ŝuoj ŝi rapidis antaŭen sur la vojo sen paroli al iu pri sia mizero. En la mallumo neniu rekonis ŝin, kiam ŝi iris apud la vojrando, neniu povis kredi, ke tiu malfruhora irantino, kiun la preterflugantaj sledoj pelis flanken en la altajn neĝamasojn, estas la bela Marianne.
 
@@ -2214,9 +1866,7 @@ Neniu venis por malfermi, sed kiam ŝi lasis la feron, kiun ŝi kaptis per nudaj
 
 La granda uzinposedanto Melchior Sinclaire veturis hejmen por fermi la pordojn de Björne por sia sola infano.
 
-Li estis ebria pro multa trinkado, sovaĝa pro kolero. Li 96
-
-GÖSTA BERLING
+Li estis ebria pro multa trinkado, sovaĝa pro kolero. Li
 
 
 malamis sian filinon, pro tio ke ŝi ŝatis Göstan Berling. Li enfermis la geservistojn en la kuirejo kaj sian edzinon en la dormĉambro. Per fortaj ĵuroj li promesis al ili, ke li kripligos tiun, kiu provos enlasi Marianne. Ili sciis, ke li ne rompos la promeson.
@@ -2233,29 +1883,19 @@ Li kuŝas en sia lito kaj aŭdas, kiel ŝi frapas sur la vestibla pordo. ĉu tio
 
 Jes, sian benon li ne povos rifuzi al ili. in li forludis. Sed sian pordon li ne malfermos por ŝi. Ho, Marianne!
 
-La bela, juna virino ankoraŭ staris antaŭ la pordo de la hej-97
-
-GÖSTA BERLING
-
-
-mo. Jen ŝi skuis la seruron en senpova kolero, jen ŝi ekgenuis, faldis siajn vunditajn manojn kaj petis pri pardono.
+La bela, juna virino ankoraŭ staris antaŭ la pordo de la hejmo. Jen ŝi skuis la seruron en senpova kolero, jen ŝi ekgenuis, faldis siajn vunditajn manojn kaj petis pri pardono.
 
 Sed neniu aŭdis ŝin, neniu respondis, neniu malfermis.
 
 Ho, ĉu tio ne estis terura? Angoro kaptas min, kiam mi rakontas tion. ŝi venis de balo, kies reĝino ŝi estis. ŝi estis fiera, riĉa, feliĉa, kaj en unu momento ŝi ĵetiĝis en tian abismon de mizero. Elfermita de sia hejmo, viktimo de la frosto, ne mokita, ne batita, ne malbenita, nur elfermita per malvarma nefleksebla sensenteco.
 
-Mi pensas pri la frosta, stelklara nokto, kiu volbis sin ĉir-kaŭ ŝi, la granda, vasta nokto, kun la malplenaj, dezertaj ne-
-
-ĝokampoj kaj la silentaj arbaroj ĉio dormis, ĉio ripozis en sen-dolora dormo, nur unu vivanta punkto troviĝis en tiu dormanta blankaĵo. ĉio malĝoja, angora kaj terura, kio alitempe estas dividita en ĉiuj lokoj de la mondo, rampis antaŭen al tiu sola punkto. Ho, Dio, suferi sola meze en dormanta, glaciiĝinta mondo!
+Mi pensas pri la frosta, stelklara nokto, kiu volbis sin ĉir-kaŭ ŝi, la granda, vasta nokto, kun la malplenaj, dezertaj neĝokampoj kaj la silentaj arbaroj ĉio dormis, ĉio ripozis en sen-dolora dormo, nur unu vivanta punkto troviĝis en tiu dormanta blankaĵo. ĉio malĝoja, angora kaj terura, kio alitempe estas dividita en ĉiuj lokoj de la mondo, rampis antaŭen al tiu sola punkto. Ho, Dio, suferi sola meze en dormanta, glaciiĝinta mondo!
 
 La unuan fojon en ŝia vivo renkontis ŝin malkompato kaj krudeco. ŝia patrino ne forlasis sian liton por savi ŝin. Maljunaj, fidelaj geservistoj, kiuj gvidis ŝiajn unuajn paŝojn, aŭdis ŝin sed ne movis eĉ piedon por ŝi. Pro kia krimo ŝi do estis punata? Kie ŝi povus esperi kompaton se ne ĉe tiu ĉi pordo?
 
 Se ŝi estus murdinta, ŝi tamen estus frapinta ĝin, kredante ke la homoj en la domo pardonos ŝin. Se ŝi falinte estus la plej aĉa el estaĵoj, venus detruita kaj en ĉifonoj, jen, tamen ŝi konfide irus al tiu ĉi pordo kaj atendus amoplenan bonvenon. Tiu ĉi pordo estis la enirejo al ŝia hejmo. Malantaŭ ĝi ŝi povus renkonti nur amon.
 
 ĉu ŝia patro ne suferigis ŝin jam sufiĉe longe? ĉu ili ne malfermos baldaŭ?
-
-
-GÖSTA BERLING
 
 
 ”Patro, patro!” ŝi vokis. ”Enlasu min! Mi frostas, mi timas.
@@ -2291,9 +1931,6 @@ Sed silentu! Fine, fine! Facilaj paŝoj sonas en la vestiblo.
 ”ĉu mi nun rajtas eniri?”
 
 
-GÖSTA BERLING
-
-
 ”Patro ne volas permesi al vi enveni.”
 
 ”Mi kuris en la neĝo en miaj maldikaj ŝuoj de Ekeby kaj tien ĉi. Mi staris tie ĉi dum unu horo kaj frapis kaj vokis. Mi frostmortos tie ĉi. Kial vi forveturis de mi?”
@@ -2308,9 +1945,7 @@ GÖSTA BERLING
 
 ”Patrino, patrino, ĉu mi iru al fremduloj, kvankam mi havas hejmon? ĉu vi estas same kruda kiel patro? Kiel vi povas permesi tion, ke mi estu elfermita? Mi ekkuŝos en la neĝo tie ĉi ekstere, se vi ne enlasos min.”
 
-Tiam la patrino de Marianne metis sian manon sur la seruron por malfermi, sed en la sama momento aŭdiĝis pezaj pa-
-
-ŝoj sur la alsupra ŝtuparo, kaj severa voĉo vokis ŝin.
+Tiam la patrino de Marianne metis sian manon sur la seruron por malfermi, sed en la sama momento aŭdiĝis pezaj paŝoj sur la alsupra ŝtuparo, kaj severa voĉo vokis ŝin.
 
 Marianne aŭskultis; ŝia patrino rapidis for, la severa voĉo insultis ŝin kaj jen Marianne aŭdis ion teruran. ŝi povis aŭdi ĉiun sonon en la silenta domo.
 
@@ -2320,9 +1955,7 @@ Li batis ŝian patrinon, la terura! La herostatura Melohior Sinclaire batis sian
 
 Kaj pala pro teruro Marianne ĵetis sin sur la sojlon kaj tordiĝis en angoro. Nun ŝi ploris, kaj ŝiaj larmoj glaciiĝis sur la sojlo de la hejmo.
 
-Kompaton, indulgon! Malfermu, malfermu, por ke ŝi povu 100
-
-GÖSTA BERLING
+Kompaton, indulgon! Malfermu, malfermu, por ke ŝi povu
 
 
 klini sian propran dorson sub la batoj! Ho, ke li povis bati la patrinon, bati ŝin pro tio, ke ŝi ne volis vidi sian filinon mortinta en la neĝo la venontan tagon, pro tio, ke ŝi volis konsoli sian infanon!
@@ -2337,9 +1970,7 @@ Post tio la bela Marianne iris por ripozi en la neĝo. ŝi de-metis la pelton ka
 
 Ho, morto, pala amiko! ĉu estas same vere kiel konsole, ke mi neniel povos eviti renkonton kun vi? Ankaŭ al mi, la plej inerta de la teraj laboristoj, vi venos, deprenos la eluzitan ledŝuon de mia piedo, fortiros la kirlilon kaj la farunujon el mia mano, demetos la laborvestojn de mia korpo. Per milda perforto vi etendos min sur puntornamita kuŝejo, per ĝispie-daj, drapiritaj tolvestoj vi ornamos min. Miaj piedoj ne bezonos ŝuojn plu, sed miajn manojn oni vestos per neĝoblankaj gantoj, kiujn laboro neniam malpurigos. Sanktigita de vi por la dolĉa ripozo, mi dormos miljaran dormon. Ho, liberiganto! La plej inerta el la teraj laboristoj mi estas, kaj kun tremo de plezuro mi revas pri la momento, kiam mi estos prenata en vian regnon.
 
-Pala amiko, libere uzu kontraŭ mi vian forton, sed mi diras al vi: pli malfacila estis por vi la batalo kontraŭ la virinoj 101
-
-GÖSTA BERLING
+Pala amiko, libere uzu kontraŭ mi vian forton, sed mi diras al vi: pli malfacila estis por vi la batalo kontraŭ la virinoj
 
 
 de tempoj pasintaj. La fortoj de la vivo estis potencaj en iliaj sveltaj korpoj, neniu frosto povis malvarmigi ilian ardantan sangon.
@@ -2350,12 +1981,7 @@ En Ekeby ĉiuj kandeloj estis estingitaj kaj ĉiuj gastoj forveturintaj. La kava
 
 Tiam Gösta tinte tuŝis la randon de la tasego kaj faris paroladon por vi, virinoj de tempoj pasintaj. Paroli pri vi, li diris, estas kiel paroli pri la regno ĉiela, nur beleco vi estis, nur lu-mo. Eterne junaj, eterne belaj vi estis kaj mildaj kiel okuloj de patrino, kiam ŝi rigardas sian infanon. Molaj kiel sciuridoj vi pendis ĉirkaŭ la kolo de la viro. Neniam via voĉo tremis pro kolero, neniam sulkiĝis via frunto, via mola mano neniam fariĝis kruda kaj malmola. Dolĉaj sanktulinoj vi estis, ornamitaj statuoj en la templo de la hejmo. La viroj genuis antaŭ viaj piedoj, oferante al vi incenson kaj preĝojn. Pere de vi la amo plenumis siajn miraklojn, sur vian frunton la poezio fiksis orbrilan aŭreolon.
 
-Kaj la kavaliroj eksaltis, ekstazaj de vino, ekstazaj de liaj vortoj, kun la sango ŝaŭmanta en festa ĝojo. La maljuna onklo Eberhard kaj la maldiligenta kuzo Kristoffer ne foriris de la ludo. En fluga rapido la kavaliroj jungis ĉevalojn al la sle-102
-
-GÖSTA BERLING
-
-
-doj kaj rapidis for en la malvarma nokto por ankoraŭfoje honori tiujn, kiujn oni ne povis sufiĉe honori, por kanti serena-don al ĉiu el tiuj, kiuj posedis la ruĝajn vangojn kaj la klarajn okulojn, kiuj ĵus brilis en la vastaj salonoj de Ekeby.
+Kaj la kavaliroj eksaltis, ekstazaj de vino, ekstazaj de liaj vortoj, kun la sango ŝaŭmanta en festa ĝojo. La maljuna onklo Eberhard kaj la maldiligenta kuzo Kristoffer ne foriris de la ludo. En fluga rapido la kavaliroj jungis ĉevalojn al la sledoj kaj rapidis for en la malvarma nokto por ankoraŭfoje honori tiujn, kiujn oni ne povis sufiĉe honori, por kanti serena-don al ĉiu el tiuj, kiuj posedis la ruĝajn vangojn kaj la klarajn okulojn, kiuj ĵus brilis en la vastaj salonoj de Ekeby.
 
 Ho, virinoj de tempoj pasintaj, certe plaĉis al vi, kiam vi eniris la ĉielon de belaj sonĝoj, ke vekis vin serenado de la plej fidelaj el viaj kavaliroj! Certe plaĉis al vi, kiel plaĉas al endormiĝinta animo, ke vekas ĝin la dolĉa muziko de la ĉie-lo.
 
@@ -2373,9 +1999,7 @@ Gösta Berling ekgenuis apud ŝi.
 
 Kaj Gösta levis la senvivulinon sur fortaj brakoj.
 
-”Hejmen al Ekeby kun ŝi!” li kriis. ”Nun ŝi estas mia. En la 103
-
-GÖSTA BERLING
+”Hejmen al Ekeby kun ŝi!” li kriis. ”Nun ŝi estas mia. En la
 
 
 neĝo mi trovis ŝin, neniu prenos ŝin de mi. Ni ne veku ilin en la domo. Kion ŝi povus fari malantaŭ tiuj pordoj, sur kiuj ŝi frapis sian manon ĝissange.”
@@ -2392,9 +2016,7 @@ La frosto paralizis ŝiajn membrojn, sed la sovaĝa maltrankvila koro ankoraŭ b
 
 Kiam ŝi kisis Göstan Berling sur la balkono, tiam ŝi la unuan fojon forgesis sin mem.
 
-Kaj jen la pasio ree kaptis ŝin, ŝia koro tiel laboris, ke ŝi 104
-
-GÖSTA BERLING
+Kaj jen la pasio ree kaptis ŝin, ŝia koro tiel laboris, ke ŝi
 
 
 aŭdis ĝiajn batojn. ĉu ŝi ne povos baldaŭ estri siajn membrojn? ŝi sentis furiozan ĝojon pro la forpelo el la hejmo. Nun ŝi senhezite donos sin al Gösta. Kiel stulta ŝi estis, dum kiom da jaroj ŝi bridis sian amon! Ho, dolĉe, dolĉe estas cedi al la amo. Sed ĉu ŝi do neniam liberiĝos el tiuj glaciaj katenoj? ŝi estis glacio en sia interno kaj fajro ekstere, nun estas male, fajranimo en glacikorpo.
@@ -2406,10 +2028,7 @@ Apenaŭ li sentis la premon, sed Marianne opiniis, ke ŝi per sufoka ĉirkaŭbra
 Sed kiam Beerencreutz vidis tion, li lasis la ĉevalon kuri laŭplaĉe sur la konata vojo. Li levis la rigardon kaj persiste kaj senĉese rigardis al la Plejadoj.
 
 
-GÖSTA BERLING
-
-
-SEPA ĉAPITRO
+SEPA ĈAPITRO
 
 La malnovaj veturiloj
 
@@ -2421,18 +2040,11 @@ Oni nome ne forgesu, ke en tiu tempo la maljuna majorino ĉirkaŭvagis en la lan
 
 Pasinta estis la tempo, kiam ŝi sidis en brilo kaj gloro en Ekeby kaj semis ĝojon sur la teron, kiel Dio semas stelojn sur la ĉielon. Kaj dum ŝi senhejma vagis tra la lando, la potenco kaj gloro de la granda bieno estis donita en la manojn de la kavaliroj por gardo, kiel la vento gardas la cindron, kiel la printempa suno gardas la neĝon.
 
-Kelkiam okazis, ke la kavaliroj elveturis ses aŭ okope sur longa sledo kun jungitaro, sonorilaro kaj plektitaj kondukri-106
-
-GÖSTA BERLING
-
-
-menoj. Se ili tiam renkontis la majorinon, kiu iris kiel almozulino, ili ne mallevis la okulojn.
+Kelkiam okazis, ke la kavaliroj elveturis ses aŭ okope sur longa sledo kun jungitaro, sonorilaro kaj plektitaj kondukrimenoj. Se ili tiam renkontis la majorinon, kiu iris kiel almozulino, ili ne mallevis la okulojn.
 
 Pugnitajn manojn la bruanta aro etendis al ŝi. Per subita movo de la sledo ili devigis ŝin rifuĝi en la neĝamasojn ĉe la vojrando, kaj majoro Fuchs, la ursomortiganto, ĉiam kraĉis trifoje por forigi ĉiun malbonan efikon de renkonto kun virino.
 
-Ili havis neniun indulgon por ŝi. Irante laŭ la vojo ŝi ŝajnis al ili malica kiel sorĉistino. Se akcidento trafus ŝin, ili ne mal-
-
-ĝojus pli multe ol tiu, kiu en la paska vespero pafas per pafilo ŝarĝita per latunaj agrafoj, malĝojas pro tio, ke li okaze trafas preterflugantan sorĉistinon.
+Ili havis neniun indulgon por ŝi. Irante laŭ la vojo ŝi ŝajnis al ili malica kiel sorĉistino. Se akcidento trafus ŝin, ili ne malĝojus pli multe ol tiu, kiu en la paska vespero pafas per pafilo ŝarĝita per latunaj agrafoj, malĝojas pro tio, ke li okaze trafas preterflugantan sorĉistinon.
 
 Estis animsava afero por la kompatindaj kavaliroj persekuti la majorinon. La homoj ofte estis kruelaj kaj turmentis unu la alian en granda krudeco, kiam ili timis pri siaj animoj.
 
@@ -2444,12 +2056,7 @@ Iliaj animoj ne estus en pli granda danĝero, se la majorino restus en Ekeby. Pl
 
 La majorino ne sentis tre grandan koleron kontraŭ tiuj kavaliroj.
 
-Se ŝi havus la potencon, ŝi punus ilin per vergo kiel fripo-107
-
-GÖSTA BERLING
-
-
-necajn bubojn kaj poste denove montrus al ili bonvolon kaj helpemon.
+Se ŝi havus la potencon, ŝi punus ilin per vergo kiel friponecajn bubojn kaj poste denove montrus al ili bonvolon kaj helpemon.
 
 Sed nun ŝi timis pro la amata bieno, kiu estis donita en la manojn de la kavaliroj por gardo, kiel la lupoj gardas la ŝafojn, kiel la gruoj gardas la printempan grenon.
 
@@ -2459,9 +2066,7 @@ Multaj sentas sin kiel krimuloj, kiam ili vidas la arbojn tie vegeti sub likenoj
 
 Ili volus ekgenui sur tiuj kampoj, kiuj iam fieris pro riĉaj rikoltoj, por peti al ili, ne akuzi ilin pro la honto, kiu trafis ilin.
 
-Kaj ili turnas sin for de la maljunaj, kompatindaj ĉevaloj, lasante al pli arogaj homoj renkonti iliajn rigardojn. Li ne kura-
-
-ĝas stari ĉe la barilpordo por rigardi la brutaron, kiu venas de la paŝtejo. Neniu peco de la tero tiel malŝatigas vizitanton, kiel neprizorgita hejmo.
+Kaj ili turnas sin for de la maljunaj, kompatindaj ĉevaloj, lasante al pli arogaj homoj renkonti iliajn rigardojn. Li ne kuraĝas stari ĉe la barilpordo por rigardi la brutaron, kiu venas de la paŝtejo. Neniu peco de la tero tiel malŝatigas vizitanton, kiel neprizorgita hejmo.
 
 Ho, mi petas vin, vin ĉiujn, kiuj flegas kampojn, herbejojn, parkojn kaj la amatajn, ĝojodonajn flor ĝardenojn, flegu ilin bone! flegu ilin en amo, en laboro! Ne estas bone, ke la naturo malĝojas pro la homoj.
 
@@ -2470,9 +2075,6 @@ Kiam mi pripensas, kiom tiu fiera Ekeby suferis sub la regado de la kavaliroj, t
 Ne estis ŝia intenco mem rekapti la potencon.
 
 Nur unu celon ŝi havis: liberigi sian hejmon de tiuj frenezuloj, tiuj akridoj, tiuj sovaĝaj rabistoj, post kies invado herbo ne kreskis.
-
-
-GÖSTA BERLING
 
 
 Kiam ŝi vagis tra la lando kaj vivis per almozoj, ŝi ĉiam pensis pri sia patrino, kaj firmiĝis en ŝia koro tiu penso, ke ŝi ne povos atingi reboniĝon, antaŭ ol la patrino forprenos de ŝi la malbenon.
@@ -2490,9 +2092,6 @@ Jen la majorino volis iri al la maljunulino, por ke ili ambaŭ ekhavu trankvilon
 Ho ne, ankoraŭfoje ŝi levos sin plenforte por forpeli la kavalirojn.
 
 
-GÖSTA BERLING
-
-
 Bone ŝi komprenis, ke ŝia edzo kun plezuro vidas, ke ŝia heredaĵo estas detruata. Sed ŝi konis lin sufiĉe por scii, ke se ŝi nur forpelos liajn akridojn, tiam li estos tro inerta por venigi novajn. Se la kavaliroj nur estus for, tiam ŝiaj malnovaj terlaborestro kaj administranto prizorgus la faron de Ekeby laŭ malnova kutimo.
 
 Kaj tial ŝia malhela ombro dum multaj noktoj glitis an-taŭen sur la nigraj uzinaj vojoj. ŝtelire ŝi vizitis la dometojn de la farmetistoj, ŝi flustris kun la muelisto kaj liaj helpantoj en la suba etaĝo de la granda muelejo, ŝi interkonsiliĝis kun la forĝistoj en la malluma karbdomo.
@@ -2506,9 +2105,6 @@ Kaj en tiu ĉi nokto, kiam la gajaj sinjoroj dancis, ludis kaj drinkis, ĝis ili
 Tiam ŝi levis sin kaj eliris.
 
 La majorino ordonis, ke ĉiuj homoj de la uzino kolektiĝu apud la kavalira domo; ŝi mem iris antaŭe supren al la korto. Tie ŝi iris al la granda domo, frapis kaj estis enlasata. Renkontis ŝin la juna filino de la pastro en Broby, kiun ŝi edukis je taŭga servistino.
-
-
-GÖSTA BERLING
 
 
 ”Mia sinjorino estu kore bonvena!” la servistino diris kaj kisis ŝian manon.
@@ -2529,12 +2125,7 @@ Fine ŝi iris en la ĉambrojn. En la manĝosalono ŝi palpis la tabulojn de la g
 
 ”Multaj satiĝis ĉe tiu ĉi tablo,” ŝi diris.
 
-ŝi iris tra ĉiuj ĉambroj. ŝi trovis la longajn, larĝajn sofojn en iliaj lokoj, ŝi metis sian manon sur la malvarmetajn tabu-111
-
-GÖSTA BERLING
-
-
-lojn de la marmoraj tabloj, kiuj, apogitaj de oritaj grifoj, sub-tenis spegulojn, kiuj havis frison el dancantaj diinoj.
+ŝi iris tra ĉiuj ĉambroj. ŝi trovis la longajn, larĝajn sofojn en iliaj lokoj, ŝi metis sian manon sur la malvarmetajn tabulojn de la marmoraj tabloj, kiuj, apogitaj de oritaj grifoj, sub-tenis spegulojn, kiuj havis frison el dancantaj diinoj.
 
 ”Tiu ĉi domo estas riĉa,” ŝi diris. ”Mirinda viro estis tiu, kiu donis ĉion tion al mi por estri.”
 
@@ -2565,9 +2156,6 @@ Tiam la majorino ektiris la kurtenan ŝnuron kaj montris eksteren al la korto.
 Kaj ili pluiris. Neniu el ili pensis aŭ sciis pri tio, ke Marianne dormas ĝuste en tiu ĉambro.
 
 
-GÖSTA BERLING
-
-
 Cetere ŝi ne dormis. ŝi estis plene maldorma, aŭdis kaj komprenis ĉion.
 
 ŝi kuŝis en la lito kaj verkis himnon al la amo.
@@ -2576,9 +2164,7 @@ Cetere ŝi ne dormis. ŝi estis plene maldorma, aŭdis kaj komprenis ĉion.
 
 En la neĝamasoj li trovis ŝin. Do ni kune aranĝu nian neston, ne en altaj salonoj sed en farmetista domo ĉe la rando de la arbaro! Mi helpos lin gardi la karbigstakon, mi helpos lin meti kaptmaŝojn por urogaloj kaj leporoj, mi kuiros lian manĝaĵon kaj flikos liajn vestojn. Ho, mia amato, mi malĝojos kaj sopiros, kiam mi sidos sola ĉe la arbara rando kaj atendos vin, ĉu vi kredas tion? Tion mi faros, tion mi faros, sed ne pro la tagoj de riĉeco, nur pro vi, nur pro vi mi atende rigardos kaj sopiros, al viaj paŝoj sur la arbara vojeto, al via gaja kanto, kiam vi venos kun la hakilo sur la dorso. Ho, mia amato, mia amato! Dum mia tuta vivo mi povus sidi kaj atendi vin.”
 
-Tiel ŝi kuŝis verkante himnojn al la ĉionreganta dio de la 113
-
-GÖSTA BERLING
+Tiel ŝi kuŝis verkante himnojn al la ĉionreganta dio de la
 
 
 koro kaj tute ne fermis siajn okulojn por dormo, kiam la majorino envenis.
@@ -2595,11 +2181,7 @@ Kiam la majorino adiaŭis sian hejmon, ŝi iris sur la korton, kie la homoj aten
 
 La majorino starigas la homojn ĉirkaŭ la alta, mallarĝa do-mo, kies supra etaĝo estas la fama hejmo de la kavaliroj. La kavaliroj dormas tie supre en la granda ĉambro kun la kalkitaj muroj, la ruĝpentritaj kestoj kaj la granda, faldotablo, kie la kamfiokartoj naĝas en elverŝita brando, kaj kun larĝaj litoj kovritaj de flavkvadrataj kurtenoj. Ho, la senzorguloj!
 
-Kaj en la stalo la kavalirĉevaloj staras antaŭ plena manĝujo kaj sonĝas pri la veturoj de sia junaĝo. En la tagoj de ripozo estas dolĉe sonĝi pri la sovaĝaj faroj de junaĝo, pri foirvoja-
-
-ĝoj, kiam ili tage kaj nokte devis stari ekstere, pri vetveturo de la frumatena kristnaska diservo, pri provveturo antaŭ 114
-
-GÖSTA BERLING
+Kaj en la stalo la kavalirĉevaloj staras antaŭ plena manĝujo kaj sonĝas pri la veturoj de sia junaĝo. En la tagoj de ripozo estas dolĉe sonĝi pri la sovaĝaj faroj de junaĝo, pri foirvojaĝoj, kiam ili tage kaj nokte devis stari ekstere, pri vetveturo de la frumatena kristnaska diservo, pri provveturo antaŭ
 
 
 ĉevalinterŝanĝo, kiam ebriaj sinjoroj kun la kondukrimeno levita por bato streĉis sin el la veturilo super iliajn dorsojn kaj kriaĉis blasfemojn en iliajn orelojn. Dolĉe estas al ili sonĝi, kiam ili scias, ke ili neniam plu forlasos la plenajn manĝujojn, la varmajn stalfakojn de Ekeby. Ho, la senzorguloj!
@@ -2611,9 +2193,6 @@ Plue estis vetsledoj, senfine da vetsledoj.
 Multaj estas la kavaliroj, kiuj vivis kaj mortis en Ekeby. Iliaj nomoj estas forgesitaj sur la tero, kaj ili ne havas lokon plu en la koroj de la homoj, sed la majorino konservis la veturillojn, per kiuj ili venis al la bieno. ŝi kolektis ĉiujn en la malnova veturilejo.
 
 25 Perdrikoj, kafrostiloj, unukajduonlokuloj — veturiloj, kies kares-nomojn kaŭzis ilia aspekto aŭ aliaj kvalitoj. La unukajduonlokulo ricevis sian nomon pro tio, ke en ĝi estis loko por plenkreska homo kaj infano.
-
-
-GÖSTA BERLING
 
 
 Tie ili staras dormante kaj lasas la polvon kovri sin dense, dense.
@@ -2632,9 +2211,7 @@ La polvo jam kuŝas sur ili kiel ĉerkokovrilo, kaj sub ĝia protekto ili cedas 
 
 Sed jen en la februara nokto la majorino malfermas la pordon de la veturilejo.
 
-Kaj lumate de lanternoj kaj torĉoj ŝi elserĉigas la veturilojn, kiuj apartenas al la nunaj kavaliroj de Ekeby: la malnovan 116
-
-GÖSTA BERLING
+Kaj lumate de lanternoj kaj torĉoj ŝi elserĉigas la veturilojn, kiuj apartenas al la nunaj kavaliroj de Ekeby: la malnovan
 
 
 kariolon de Beerencreutz, la blazonornamitan sledon de Örneclou kaj la mallarĝan kovrilsledon, kiu protektis kuzon Kristoffer.
@@ -2647,18 +2224,13 @@ La sonĝo veriĝos, senzorguloj.
 
 Ree vi spertos la krutajn deklivojn kaj la mucidan fojnon en la domaĉoj de la gastejoj, pikilvipon de ebriaj ĉevalkomercistoj kaj furiozajn vetveturojn sur novglacio tiel glitiga, ke suriro tremigas vin.
 
-Nun la malnovaj veturiloj ricevas sian ĝustan aspekton, kiam oni jungas la malgrandajn grizajn norvegulojn26 al alta fantomeca kabrioleto aŭ la altkrurajn, ostecajn kavaleriajn ĉevalojn al malaltaj vetsledoj. La maljunaj bestoj grimacas kaj snufas, kiam oni metas la bridferojn en iliajn sendentajn bu-
-
-ŝojn, kaj la malnovaj veturiloj grincas kaj knaras. Oni eltiras por pririgardo kompatindan kadukecon, kiu devus havi permeson trankvile dormi ĝis la lasta tempo de la mondo; montriĝas rigidaj piedartikoj, lamaj antaŭkruroj, spato kaj laringa kataro.
+Nun la malnovaj veturiloj ricevas sian ĝustan aspekton, kiam oni jungas la malgrandajn grizajn norvegulojn26 al alta fantomeca kabrioleto aŭ la altkrurajn, ostecajn kavaleriajn ĉevalojn al malaltaj vetsledoj. La maljunaj bestoj grimacas kaj snufas, kiam oni metas la bridferojn en iliajn sendentajn buŝojn, kaj la malnovaj veturiloj grincas kaj knaras. Oni eltiras por pririgardo kompatindan kadukecon, kiu devus havi permeson trankvile dormi ĝis la lasta tempo de la mondo; montriĝas rigidaj piedartikoj, lamaj antaŭkruroj, spato kaj laringa kataro.
 
 La stalservistoj tamen sukcesas jungi la tirantojn al la veturiloj. Poste ili iras al la majorino kaj demandas, per kiu Gös-ta Berling veturu, ĉar, kiel ĉiu homo scias, li venis al Ekeby veturante en la karbosledo de la majorino.
 
 ”Jungu Don Juanon al nia plej bona vetsledo,” la majorino diras, ”kaj sternu la ursofelon kun arĝentaj ungoj sur ĝi!”
 
 Kiam la servisto grumblas, ŝi daŭrigas: ”Ne troviĝas ĉevalo en 26 Norveguloj — ĉevaloj de norvega raso.
-
-
-GÖSTA BERLING
 
 
 mia stalo, kiun mi ne fordonus por liberiĝi de tiu viro, memoru tion!”
@@ -2686,9 +2258,6 @@ Forte premita neĝobulo frakasas la vitron kaj flugas en la ĉambron, repuŝata 
 Ili sonĝas, ke bela knabino ĵetas al ili naztukon, ili sonĝas pri aplaŭdoj post mallevita kurteno, ili sonĝas pri gajaj ridoj kaj surdiga bruo de noktomezaj festoj.
 
 
-GÖSTA BERLING
-
-
 Por veki ilin estus bezonata kanonpafo ĉe iliaj oreloj, maro da glacimalvarma akvo.
 
 Ili salutklinis sin, dancis, muzikis, aktoris kaj ludis. Pezaj de vino, kun elĉerpitaj fortoj, ili dormas dormon, kiu estas profunda kiel tiu de la morto.
@@ -2705,9 +2274,7 @@ Tiuj viroj estas ruzaj, batalpovaj, ion devas signifi ilia silento. Kiu povas kr
 
 Ree kaj ree la homoj kriegas ”fajro”, sed nenio efikas.
 
-ĉar ĉiuj timas, la majorino mem kaptas hakilon kaj trabre-
-
-ĉas la eksteran pordon.
+ĉar ĉiuj timas, la majorino mem kaptas hakilon kaj trabreĉas la eksteran pordon.
 
 Poste ŝi sola kuras supren sur la ŝtuparo, ektire malfermas la pordon de la kavalira ĉambro kaj krias alinterne: ”Fajro!”
 
@@ -2715,9 +2282,7 @@ Tio estas voĉo, kiu pli facile ol la kriaĉo de la homamaso trovas atenton en l
 
 Sed en la pordo staras la granda majstroforĝisto kaj du manfirmaj muelistaj helpantoj, kaj granda malhonoro tiam trafas la kavalirojn. Laŭ ilia alveno oni kaptas ilin, ĵetas ilin sur la teron kaj ligas al ili la piedojn. Poste oni sen pluaj klarigoj forportas ilin, ĉiun al la veturilo, kiu estas decidita por li.
 
-Neniu saviĝas, ĉiuj estas kaptitaj: Beerencreutz, la severa 119
-
-GÖSTA BERLING
+Neniu saviĝas, ĉiuj estas kaptitaj: Beerencreutz, la severa
 
 
 kolonelo, estis ligita kaj forkondukita, same Kristian Bergh, la forta kapitano, kaj onklo Eberhard, la filozofo.
@@ -2746,14 +2311,10 @@ La majorino alportigas iliajn vestojn kaj kestojn el la kavalira domo kaj ordona
 
 Sed dume longa tempo pasis, kaj Marianne atingis la bienon Sjö.
 
-La majoro ne estis matendormema homo, li estis vestita 120
-
-GÖSTA BERLING
+La majoro ne estis matendormema homo, li estis vestita
 
 
-kiam ŝi venis. ŝi trafis lin sur la korto, li ĵus donis matenman-
-
-ĝon al siaj ursoj.
+kiam ŝi venis. ŝi trafis lin sur la korto, li ĵus donis matenmanĝon al siaj ursoj.
 
 Li malmullte respondis al ŝiaj vortoj. Li nur eniris al la ursoj, metis buŝrimenojn sur ilin kaj rapidis al Ekeby.
 
@@ -2782,9 +2343,6 @@ La homoj tamen restis.
 La majorino turnis sin al Marianne.
 
 
-GÖSTA BERLING
-
-
 ”Mi scias, ke vi amas,” ŝi diris. ” Vi agas en frenezo de amo.
 
 Neniam venu tago, kiam vi senpova devos rigardi detruon de via hejmo! ĉiam vi estu estro de viaj lango kaj mano, kiam kolero plenigas la animon!”
@@ -2806,9 +2364,6 @@ Marianne aliris kaj malligis la ligitojn.
 Kaj jen, kara leganto, kio plu okazis en tiu nokto, kiel la malnovaj veturiloj venis en la ejon, la ĉevaloj en la stalon kaj la kavaliroj en la kavaliran domon, tion mi ne provos rakonti. La matena lumo komencis montri sin super la orientaj montoj, kaj la tago venis kun klareco kaj trankvilo. Kiel pli trankvilaj estas la helaj, sunlumaj tagoj ol la malhelaj noktoj, sub kies protekta flugilo la rabobestoj ĉasas kaj la gufoj ululas.
 
 
-GÖSTA BERLING
-
-
 Nur tion mi volas diri, ke kiam la kavaliroj ree envenis kaj en la lasta tasego trovis kelkajn gutojn por verŝi en siajn glasojn, tiam subita ekstazo ekkaptis ilin.
 
 ”Sanon al la majorino!” ili kriis.
@@ -2818,10 +2373,7 @@ Nur tion mi volas diri, ke kiam la kavaliroj ree envenis kaj en la lasta tasego 
 ĉu ne estas dolore, ke la diablo ekhavis potencon super ŝi kaj ke ŝia tuta penado celas sendi la animojn de la kavaliroj al la infero?
 
 
-GÖSTA BERLING
-
-
-OKA ĉAPITRO
+OKA ĈAPITRO
 
 La granda urso sur la monto Gurlita En la mallumo de la arbaroj loĝas malsanktaj bestoj, kies makzeloj estas armitaj per timige brilantaj dentoj aŭ akraj bekoj, kies piedoj portas pikajn ungojn, kiuj sopiras ekmordi sangoplenan kolon, kaj kies okulo brilas pro murdemo.
 
@@ -2836,9 +2388,6 @@ Tie loĝas la gufo, kiu ululas en la krepusko. Se oni tiam imitas ĝin, ĝi susu
 ĝi estas.
 
 
-GÖSTA BERLING
-
-
 Kaj tie loĝas la plej terura el ĉiuj, la urso, kiu havas forton de dekdu viroj, kaj kiu, kiam ĝi fariĝis frapurso27 estas mortigebla nur per arĝenta kuglo. ĉu io povas doni al besto pli da nimbo de teruro ol tio, ke ĝi estas mortigebla nur per arĝenta kuglo? Kiuj misteraj, teruraj fortoj loĝas en ĝi kaj hardas ĝntraŭ ordinara plumbo? ĉu mirige, se infano en la lito dum multaj horoj maldormas, timtremante pro tiu malbona besto, kiun protektas la malbonaj fortoj?
 
 Se oni renkontas ĝin en la arbaro, grandan kaj altan kiel vaganta roko, tiam oni ne kuru nek defendu sin, sed ĵetu sin sur la teron kaj ŝajnigu sin mortinta. Multaj malgrandaj infanoj image kuŝis sur la tero kun la urso super si. Per la piede-go ĝi rulis ilin, ili sentis ĝian varman, snufan spiron sur sia vizaĝo, sed ili kuŝis senmovaj, ĝis ĝi foriris por fari foson, en kiu li kaŝos ilin. Tiam ili singarde leviĝis kaj ŝteliris for, unue malrapide sed poste per fluga rapido.
@@ -2848,9 +2397,6 @@ Sed jen, jen, se la urso opinius ilin ne vere mortintaj kaj momente ekmordus, a�
 Ho, Dio!
 
 Sorĉistino estas la teruro. i sidas en la krepusko de la arbaroj, formas sorĉkantojn por la oreloj de la homoj kaj plenigas iliajn korojn per teruraj pensoj. De tio venas paraliza timo, kiu pezas sur la vivo kaj kaŝas la belecon de ridetantaj regionoj. Malica estas la naturo, perfida kiel dormanta serpento, al nenio oni povas fidi. Jen kuŝas la lago Löven en rava beleco, sed ne fidu ĝin! i atendas rabaĵon: ĉiujare ĝi devas ricevi tributon de mortintoj. Jen kuŝas la arbaro, loge kvieta, sed ne fidu ĝin! La arbaro estas plena de malsanktaj bestoj, en 27 Frapurso — urso kiu kutimiĝis al vianda nutraĵo kaj mortigis bestojn.
-
-
-GÖSTA BERLING
 
 
 kiuj loĝas la animoj de malicaj sorĉistinoj kaj murdemaj friponoj.
@@ -2865,9 +2411,7 @@ La granda urso havas sian hejmon sur tiu fortika montpin-to, kiu nomiĝas Gurlit
 
 La radikoj de falinta pino, inter kiuj la muskaĵo ankoraŭ pendas, formas muron kaj tegmenton de ĝia loĝejo, branĉoj kaj branĉetoj protektas ĝin, la neĝo densigas la murojn. i povas kuŝi en ĝi kaj dormi trankvile de somero ĝis somero.
 
-ĉu ĝi do estas poeto, senenergia revulo, tiu vila reĝo de la 126
-
-GÖSTA BERLING
+ĉu ĝi do estas poeto, senenergia revulo, tiu vila reĝo de la
 
 
 arbaro, tiu oblikvokula rabisto? ĉu ĝi volas fordormi la mal-agrablajn noktojn kaj senkolorajn tagojn de la malvarma vintro, por ke veku ĝin birdokanto kaj plaŭdantaj riveretoj? ĉu
@@ -2878,22 +2422,16 @@ Ekstere la kirloneĝo siblas inter la pinoj, ekstere vagas lupo kaj vulpo, frene
 
 i leviĝu por senti, kiel la frosto mordas, kiel peze estas vadi en profunda neĝo! i levigu!
 
-i faris tiel varman kuŝejon por si. i similas la dormantan princinon de la fabelo. Kiel vekis ŝin la amo, tiel ĝi volas esti vekata de la printempo. De sunradio, kiu penetras tra la bran-
-
-ĉaĵo kaj varmigas ĝian nazon, ĝi volas esti vekata, de kelkaj gutoj de la degelanta neĝo, kiuj malsekigas la felon. Ve al tiu, kiu tro frue ĝenas ĝin!
+i faris tiel varman kuŝejon por si. i similas la dormantan princinon de la fabelo. Kiel vekis ŝin la amo, tiel ĝi volas esti vekata de la printempo. De sunradio, kiu penetras tra la branĉaĵo kaj varmigas ĝian nazon, ĝi volas esti vekata, de kelkaj gutoj de la degelanta neĝo, kiuj malsekigas la felon. Ve al tiu, kiu tro frue ĝenas ĝin!
 
 Se oni nur atentus pri tio, kiel la reĝo de la arbaro volas aranĝi sian vivon? Se svarmo da plumberoj ne tute subite sib-lus tra la branĉaĵo kaj pikus ĝian haŭton kiel koleraj kuloj!
 
 i subite aŭdas rkriojn, bruon kaj pafojn. i skuas la dormon el la membroj kaj forŝovas la branĉojn por vidi, kio okazas. Laboro atendas la maljunan batalulon. Ne estas la printempo, kiu tumultas kaj bruas ekster la travintrejo, nek la vento, kiu faligas piceojn kaj kirlas neĝon, sed estas la kavaliroj, la kavaliroj de Ekeby.
 
-Malnovaj konatoj de la arbara reĝo. i ja memoris la nokton, kiam Fuchs kaj Beerencreutz sidis embuske en bovinstalo de kamparano en Nygård, kie oni atendis ĝian viziton. Ili ĵus ekdormis super sia brandobotelo, kiam ĝi ĵetis sin tra la 127
-
-GÖSTA BERLING
+Malnovaj konatoj de la arbara reĝo. i ja memoris la nokton, kiam Fuchs kaj Beerencreutz sidis embuske en bovinstalo de kamparano en Nygård, kie oni atendis ĝian viziton. Ili ĵus ekdormis super sia brandobotelo, kiam ĝi ĵetis sin tra la
 
 
-herbaĵa tegmento, sed ili vekiĝis, kiam ĝi volis levi la morti-gitan bovinon el la stalfako, kaj atakis ĝin per pafilo kaj tran-
-
-ĉilo. La bovinon ili prenis de ĝi kaj unu okulon, sed la vivon
+herbaĵa tegmento, sed ili vekiĝis, kiam ĝi volis levi la morti-gitan bovinon el la stalfako, kaj atakis ĝin per pafilo kaj tranĉilo. La bovinon ili prenis de ĝi kaj unu okulon, sed la vivon
 
 ĝi savis.
 
@@ -2908,9 +2446,6 @@ Ve al ĉiuj poetoj, ĉiuj revuloj, ĉiuj amherooj. Jen, tie staras Gösta Berlin
 Kial li ne tuj sendas kuglon en la larĝan bruston? Li staras en ia ĝusta loko por fari tion. La aliaj ne povas pafi precize en la ĝusta momento. ĉu li kredas, ke li staras parade antaŭ la arbara majesto?
 
 Gösta kompreneble revis pri la bela Marianne, kiu dum tiuj ĉi tagoj kuŝis tre malsana en Ekeby, malvarmuminta post la nokto, kiam ŝi dormis en la neĝo.
-
-
-GÖSTA BERLING
 
 
 Li pensas pri ŝi, kiu ankaŭ estas viktimo de tiu malbeno de mallumo, kiu kovras la teron, kaj li sentas abomenon pri si mem, ĉar li eliris por persekuti kaj mortigi.
@@ -2929,9 +2464,7 @@ Fuchs kverelas, kaj Beerencreutz blasfemas, sed Gösta nur ridas.
 
 Kiel ili povas postuli, ke tiel feliĉa homo kiel li, faru malbonon al iu el la kreitaĵoj de Dio?
 
-La granda urso de Gurlita do venis kun la vivo el tiu afero, kaj vekita el la vintrodormo ĝi estas, tion la kamparanoj spertas. Neniu urso estas pli lerta ol ĝi disŝiri la tegmentojn sur 129
-
-GÖSTA BERLING
+La granda urso de Gurlita do venis kun la vivo el tiu afero, kaj vekita el la vintrodormo ĝi estas, tion la kamparanoj spertas. Neniu urso estas pli lerta ol ĝi disŝiri la tegmentojn sur
 
 
 iliaj mazitaj, kelsimilaj bovinstaloj, neniu pli ruze ol ĝi evitas la provojn kapti ĝin.
@@ -2944,26 +2477,17 @@ Sed iom post iom oni komprenas, kia urso tiu estas, kaj kial Gösta Berling ne p
 
 En Ekeby troviĝas viro, kiu pli ol iu alia devas ĉagreniĝi pro tio. Kiel oni facile povas kompreni, tiu estas Anders Fuchs, la ursmortiganto. Li perdas kaj apetiton kaj dormon pro la ĉagreno, ke li ne povas faligi la grandan urson sur Gurlita. Fine komprenas ankaŭ li, ke oni povas mortigi la urson nur per arĝenta kuglo.
 
-La severa majoro Anders Fuchs ne estis bela viro. Li havis pezan, malgracian korpon kaj larĝan, ruĝan vizaĝon kun pen-130
-
-GÖSTA BERLING
-
-
-dantaj saketoj sub la vangoj kaj multoblan mentonon. Malmolaj kiel porkharoj sidis la nigraj lipharoj super liaj dikaj lipoj, kaj la nigraj haroj staris densaj kaj malmolaj rekte supren sur lia kapo. Krome li estis silentema homo kaj man-
+La severa majoro Anders Fuchs ne estis bela viro. Li havis pezan, malgracian korpon kaj larĝan, ruĝan vizaĝon kun pendantaj saketoj sub la vangoj kaj multoblan mentonon. Malmolaj kiel porkharoj sidis la nigraj lipharoj super liaj dikaj lipoj, kaj la nigraj haroj staris densaj kaj malmolaj rekte supren sur lia kapo. Krome li estis silentema homo kaj man-
 
 ĝeganto. Li ne estis tia viro, kian la virinoj renkontas kun sunaj ridetoj kaj etenditaj brakoj, kaj li ankaŭ ne donis mildajn rigardojn al ili. Oni ne kredis, ke li iam trovos virinon, kiun li povos toleri, kaj ĉio, kio apartenas al amo kaj amindumo, estis malproksima de li.
 
 Jen venas ĵaŭda vespero, kiam la luno estas du fingrojn larĝa kaj restas super la horizonto kelkajn horojn post la sunsubiro. Tiam majoro Fuchs malaperas de Ekeby sen diri, kien li intencas iri. Li havas fajroŝtalon kaj kuglofandujon en la ĉassako kaj la pafilon sur la dorso kaj iras supren al la preĝejo de Bro por vidi, kion la bonsorto volas fari por honesta viro.
 
-La preĝejo staras sur la orienta bordo de la mallarĝa akvokolo inter supra kaj malsupra Löven, kaj majoro Fuchs devis transiri la Kolponton por atingi tien. Do li iras malsupren al tiu, en pezaj pensoj, ne rigardante supren al la deklivoj de Broby, kie la domoj akre konturiĝas kontraŭ la klara vesper-
-
-ĉielo, nek al Gurlita, kiu levas sian rondan verton en la ves-perbrilo, li vidas nur la teron kaj cerbumas pri tio, kiel li sen ies scio havigu al si la preĝejan ŝlosilon.
+La preĝejo staras sur la orienta bordo de la mallarĝa akvokolo inter supra kaj malsupra Löven, kaj majoro Fuchs devis transiri la Kolponton por atingi tien. Do li iras malsupren al tiu, en pezaj pensoj, ne rigardante supren al la deklivoj de Broby, kie la domoj akre konturiĝas kontraŭ la klara vesperĉielo, nek al Gurlita, kiu levas sian rondan verton en la ves-perbrilo, li vidas nur la teron kaj cerbumas pri tio, kiel li sen ies scio havigu al si la preĝejan ŝlosilon.
 
 Kiam li venas sur la ponton, li aŭdas iun krii tiel terure, ke li devas levi la okulojn.
 
-Tiutempe la malgranda germano Faber estis orgenisto en Bro. Li estis maldika viro, nesignifa kaj laŭpeze kaj laŭvalo-re. Kaj sakristiano estis Jan Larsson, taŭga terkulturisto sed 131
-
-GÖSTA BERLING
+Tiutempe la malgranda germano Faber estis orgenisto en Bro. Li estis maldika viro, nesignifa kaj laŭpeze kaj laŭvalo-re. Kaj sakristiano estis Jan Larsson, taŭga terkulturisto sed
 
 
 malriĉa, ĉar la pastro en Broby per ruzo alproprigis lian tutan patran heredaĵon, sumon de kvincent taleroj28.
@@ -2981,9 +2505,6 @@ Dum sia tuta vivo li neniam estis tiel proksima al malsat-morto kiel dum tiu tem
 La malgranda Faber volas kuri al la prokuroro Scharling por akuzi la sakristianon pro murdprovo, sed la majoro sciigas al li, ke tio ne valoras la penon, ĉar en tiu ĉi lando kostas neniom mortbati germanon.
 
 28 Talero — malnova sveda monero = 1 sveda krono.
-
-
-GÖSTA BERLING
 
 
 Tiam la malgranda Faber trankviliĝas kaj invitas la majoron al sia hejmo por manĝi porkaĵkolbason kaj trinki mu-mon29.
@@ -3009,9 +2530,6 @@ Dum la viroj manĝas kaj trinkas, ŝi ripete el- kaj eniras la ĉambron. Iun foj
 29 Mumo — svede: mumma. Trinkaĵo el biero, portero kaj sukero.
 
 
-GÖSTA BERLING
-
-
 ”Mil diabloj, ĉu vi havas tiom da bovinoj?” diras la majoro.
 
 Sed la kerno de tio estis, ke la orgenisto havis nur du bovinojn, sed li nomis unu el ili ”dek unu” kaj la alian ”dek du”
@@ -3035,9 +2553,6 @@ Des pli firmiĝas ankaŭ lia decido fari ion por fraŭlino Faber.
 Dume li sendis rigardojn al la granda ŝlosilo kun la krispa alo, kiu pendas sur butono apud la pordo, kaj tuj kiam la malgranda Faber, kiu devis akompani la majoron ĉe la kruĉo, metas la kapon sur la tablon kaj ekronkas, majoro Fuchs kaptas la ŝlosilon, surmetas la ĉapon kaj rapidas for.
 
 
-GÖSTA BERLING
-
-
 Unu minuton poste li palpiras supren sur la turŝtuparoj lumate de sia malgranda kornlanterno, kaj fine venas en la sonorilejon, kie la sonoriloj pendas kun vastaj faŭkoj super li.
 
 Tie li unue per fajlilo deskrapas iom da sonorilmetalo kaj
@@ -3054,9 +2569,7 @@ La majoro bone konas lin, estas la avara pastro de Broby.
 
 Li, kiu estas preskaŭ freneza pro avaro, havas la kutimon kaŝi siajn trezorojn en la plej strangaj lokoj. Jen li venas kun pako da monbiletoj, kiun li volas kaŝi en la turĉambro. Li ne scias, ke iu vidas lin. Li levas tabulon de la planko kaj malsupren-metas la monon, kaj poste li ree foriras.
 
-Sed la majoro ne longe pripensas, li levas la saman tabulon. Ho, kiom da mono! Pako apud pako da monbiletoj kaj 135
-
-GÖSTA BERLING
+Sed la majoro ne longe pripensas, li levas la saman tabulon. Ho, kiom da mono! Pako apud pako da monbiletoj kaj
 
 
 inter ili brunaj ledsaketoj, plenaj de arĝentaj moneroj. La majoro prenas ĝuste tiom da arĝento, kiom li bezonas por kuglo; la ceteron li lasas.
@@ -3075,14 +2588,10 @@ Li iras al la sakristiana loĝejo, vekas la sakristianon, elkondukas lin duone v
 
 li diras, ”ĉar tiam vi tuj fariĝos honorata viro. Tiu ne estas ordinara urso, kaj la plej bonaj viroj en la lando rigardus kiel grandan honoron faligi ĝin.”
 
-Kaj li metas en lian manon sian propran pafilon, ŝarĝitan per kuglo el arĝento kaj sonorilmetalo, fandita en preĝeja turo en ĵaŭda vespero dum novluno, kaj li ne povas ne tremi 136
-
-GÖSTA BERLING
+Kaj li metas en lian manon sian propran pafilon, ŝarĝitan per kuglo el arĝento kaj sonorilmetalo, fandita en preĝeja turo en ĵaŭda vespero dum novluno, kaj li ne povas ne tremi
 
 
-pro envio pro tio, ke iu alia ol li faligos la grandan arbarore-
-
-ĝon, la maljunan urson de Gurlita.
+pro envio pro tio, ke iu alia ol li faligos la grandan arbaroreĝon, la maljunan urson de Gurlita.
 
 La sakristiano celas, Dio helpu, celas kvazaŭ li intencus faligi la grandan urson, alie nomatan la Karla veturilo, kiu alte sur la ĉielo iras cirkle ĉirkaŭ la polusa stelo, sed ne urson irantan sur la plata tero, kaj la pafo eksonas kun klako aŭdebla ĝis Gurlita.
 
@@ -3097,9 +2606,6 @@ La majoro kuntiras siajn brovojn kaj frapas per la piedo en kolero pro tia aĉec
 Ho, estas absolute nekompreneble por li, ke la farinto de tia heroaĵo ne meritus gajni la plej fieran fianĉinon!
 
 La sakristiano kaj kelkaj junaj viroj volas senfeligi la urson, ili iras al la akrigŝtono kaj akrigas la tranĉilojn, la aliaj eniras kaj enlitiĝas, majoro Fuchs restas sola apud la mortinta urso.
-
-
-GÖSTA BERLING
 
 
 Tiam li ankoraŭfoje iras al la preĝejo, ree metas la preĝejan ŝlosilon en la seruron, grimpas supren sur mallarĝaj ŝtuparoj kaj oblikvaj ŝtupetaroj, vekas la dormantajn kolombojn kaj ankoraŭfoje atingas la turĉambron.
@@ -3118,9 +2624,7 @@ Li venas en la kavaliran domon, kie la kavaliroj sidas ĉir-kaŭ la fajro, kaj s
 
 La kavaliroj ekzamenis la felon.
 
-”Estas bela felo”, diras Beerencreurtz. ”Mi ŝatus scii, kiel tiu 138
-
-GÖSTA BERLING
+”Estas bela felo”, diras Beerencreurtz. ”Mi ŝatus scii, kiel tiu
 
 
 ĉi knabo venis el la vintroripozo, aŭ eble vi pafis ĝin en la travintrejo?”
@@ -3136,10 +2640,7 @@ Fuchs ekblasfemas pro sia stulteco, sed poste lia vizaĝo ekradias tiel, ke li f
 ”Sinjoro Dio, kiel bona vi estas!” li diras kaj faldas la manojn.
 
 
-GÖSTA BERLING
-
-
-NAŭA ĉAPITRO
+NAŬA ĈAPITRO
 
 La aŭkcio en Björne
 
@@ -3152,9 +2653,6 @@ Ofte ni junaj devas miri pri la rakontoj de la maljunaj.
 Tiam la maljunaj skuis siajn respektindajn kapojn kaj komencis rakonti pri susuro de ŝpiniloj kaj bruo de teksiloj, pri kuirejaj okupoj, pri batado de draŝiloj kaj la kanto de la hakilo en la arbaroj; sed ne longe daŭris, antaŭ ol ili ree troviĝis sur la malnova vojo. Tiam sledoj alveturis al la vestibla ŝtuparo, ĉevaloj rapidis tra malhelaj arbaroj kun junaj, gajaj homoj, la danco kirlis, kaj violonkordoj rompiĝis. Kun tondro kaj krako muĝis la furioza pelĉaso de la aventuroj ĉirkaŭ la longa lago Löven. De malproksime oni aŭdis ĝian bruon. La arbaro ŝanceliĝis kaj falis, ĉiuj fortoj de detruo liberiĝis; akcidenta fajro flamis, la torento ruinigis, la sovaĝaj bestoj iris malsataj ĉirkaŭ la domoj. Sub la hufoj de la okpiedaj ĉevaloj30
 
 ĉiu kvieta feliĉo polviĝis. Kie ajn la pelĉaso pretermuĝis, tie la 30 Okpiedaj ĉevaloj — Odin, la ĉefdio en la malnova mitologio havis okpiedan ĉevalon. En la popola fantazio teruraj ventegoj estis ”la sovaĝa pelĉaso de Odin”.
-
-
-GÖSTA BERLING
 
 
 koroj de la viroj ekflamis pro sovaĝeco, kaj la virinoj devis palaj pro teruro forkuri de siaj hejmoj.
@@ -3181,9 +2679,7 @@ Tamen estis ja unu el la homoj de tiu tempo, kiu malfermis sian animon por la sp
 
 La bela Marianne portis en si la spiriton de memobservo.
 
-ŝi sentis ĝiajn glaciajn okulojn kaj mokridojn sekvi ĉiun ŝian paŝon, ĉiun ŝian vorton. ŝia vivo fariĝis dramo, kie ĝi estis la 141
-
-GÖSTA BERLING
+ŝi sentis ĝiajn glaciajn okulojn kaj mokridojn sekvi ĉiun ŝian paŝon, ĉiun ŝian vorton. ŝia vivo fariĝis dramo, kie ĝi estis la
 
 
 sola rigardanto. ŝi ne estis homo plu, ŝi ne suferis, ne ĝojis, ne amis, ŝi ludis la rolon de la bela Marianne Sinclaire, kaj la memobservo sidis kun rigidrigardaj glaciokuloj kaj diligentaj, disŝirantaj fingroj kaj vidis ŝin aktori.
@@ -3202,12 +2698,7 @@ Jen ili venis, la fortaj ŝtormbirdoj, la grifoj de disŝiraj pasioj.
 
 Kun flugiloj el fajro kaj ungoj el ŝtalo ili susure ĵetis sin sur vin, spirito kun glaciaj okuloj, ili premis siajn ungojn en vian nukon kaj ĵetis vin en nekonatan foron. Mortinta kaj frakasita vi estis.
 
-Sed ili jam flugis pluen, la fieraj, la potencaj, kies vojon ne-142
-
-GÖSTA BERLING
-
-
-niu prikakulo scias kaj neniu observanto sekvis; kaj el la nekonataj profundoj la spirito de memobservo releviĝis kaj ankoraŭfoje ekloĝis en la animo de la bela Marianne.
+Sed ili jam flugis pluen, la fieraj, la potencaj, kies vojon neniu prikakulo scias kaj neniu observanto sekvis; kaj el la nekonataj profundoj la spirito de memobservo releviĝis kaj ankoraŭfoje ekloĝis en la animo de la bela Marianne.
 
 Dum la tuta februaro Marianne kuŝis malsana en Ekeby.
 
@@ -3223,9 +2714,7 @@ Kaj dum Marianne kuŝis rigardante sin mem per ĉiuj rigidaj glaciokuloj, mortis
 
 ŝi estis ĉio tio, kaj tamen estis rolado. ĉio fariĝis roleca kaj nereala antaŭ la glaciaj okuloj, kiuj observis ŝin, kaj kiuj sia-vice estis observataj de okulparo malantaŭe, kaj tiujn okulojn observis aliaj en senfina perspektivo.
 
-ĉiuj grandaj fortoj de la vivo endormiĝis. ŝi havis forton 143
-
-GÖSTA BERLING
+ĉiuj grandaj fortoj de la vivo endormiĝis. ŝi havis forton
 
 
 por arda malamo kaj sindona amo dum unu sola nokto, ne plu.
@@ -3238,16 +2727,9 @@ Dum la malsano regis, ŝi havis nur unu klaran penson: ŝi prizorgis, ke oni ne 
 
 Sed nun la malsano kaj febro estis for. ŝi ree estis malvarme prudenta. ŝajnis al ŝi, ke ŝi estas la sola prudenta en tiu ĉi mondo de frenezuloj. ŝi nek malamis nek amis. ŝi komprenis sian patron, ŝi komprenis ilin ĉiujn. Kiu komprenas, tiu ne malamas.
 
-ŝi eksciis, ke Melchior Sinclaire intencas fari aŭkcion en Björne kaj detrui sian tutan posedaĵon, por ke ŝi ne ricevu heredaĵon de li. Oni diris, ke li volas fari la detruon kiel eble plej kompleta: unue li vendos meblojn kaj hejmaĵon, poste brutaron kaj ilojn kaj fine la bienon, kaj la monon li metos en sakon, kiun li malsuprenigos en la profundon de Löven. Di-144
+ŝi eksciis, ke Melchior Sinclaire intencas fari aŭkcion en Björne kaj detrui sian tutan posedaĵon, por ke ŝi ne ricevu heredaĵon de li. Oni diris, ke li volas fari la detruon kiel eble plej kompleta: unue li vendos meblojn kaj hejmaĵon, poste brutaron kaj ilojn kaj fine la bienon, kaj la monon li metos en sakon, kiun li malsuprenigos en la profundon de Löven. Disigo, malordo kaj detruo estos ŝia heredaĵo. Marianne ridetis aprobe, kiam ŝi aŭdis tion: tia estas lia karaktero, tiel li devas agi.
 
-GÖSTA BERLING
-
-
-sigo, malordo kaj detruo estos ŝia heredaĵo. Marianne ridetis aprobe, kiam ŝi aŭdis tion: tia estas lia karaktero, tiel li devas agi.
-
-Strange ŝajnis al ŝi, ke ŝi verkis la grandan amhimnon. ŝi revis pri karbigista kabano, ŝi kiel aliaj. Nun ŝajnis strange al ŝi, ke ŝi iam havis revon. ŝi sopiris al la naturo. Tiu ĉiama rolado tedis ŝin. Neniam ŝi havis fortan senton. ŝi apenaŭ mal-
-
-ĝojis pro sia perdita beleco; sed la penso pri kompato de fremduloj tremigis ŝin.
+Strange ŝajnis al ŝi, ke ŝi verkis la grandan amhimnon. ŝi revis pri karbigista kabano, ŝi kiel aliaj. Nun ŝajnis strange al ŝi, ke ŝi iam havis revon. ŝi sopiris al la naturo. Tiu ĉiama rolado tedis ŝin. Neniam ŝi havis fortan senton. ŝi apenaŭ malĝojis pro sia perdita beleco; sed la penso pri kompato de fremduloj tremigis ŝin.
 
 Ho, sekundon da forgeso pri si mem! Iun geston, iun vorton, iun agon, kiuj ne estus elpensitaj!
 
@@ -3258,15 +2740,11 @@ En Björne vere estis granda aŭkcio. Estis malnova, riĉa hejmo. Homoj venis de
 
 La granda Melchior Sinclaire amasigis la tutan havaĵon de la domo en la granda salono. Tie kuŝis miloj da objektoj, metitaj en amasojn, kiuj atingis la plafonon.
 
-Li iris mem tra la domo kiel anĝelo de detruo en la tago de la lasta juĝo kaj kunportis ĉion, kion li volis vendi. La apartenaĵojn de la kuirejo: la nigrajn potojn, la lignajn seĝojn, la stankruĉojn, la kupropelvojn, ĉion tion li ne tuŝis, ĉar ĉe ili nenio memorigis pri Marianne; sed tio estis la sola, kio savi-
-
-ĝis de lia kolero.
+Li iris mem tra la domo kiel anĝelo de detruo en la tago de la lasta juĝo kaj kunportis ĉion, kion li volis vendi. La apartenaĵojn de la kuirejo: la nigrajn potojn, la lignajn seĝojn, la stankruĉojn, la kupropelvojn, ĉion tion li ne tuŝis, ĉar ĉe ili nenio memorigis pri Marianne; sed tio estis la sola, kio saviĝis de lia kolero.
 
 Li enŝtormis en la ĉambron de Marianne, forigante ĉion.
 
-ŝia pupŝranko staris tie kaj ŝia librobretaro, la malgranda 145
-
-GÖSTA BERLING
+ŝia pupŝranko staris tie kaj ŝia librobretaro, la malgranda
 
 
 seĝo, kiun li farigis por ŝi, ŝiaj ornamaĵoj kaj vestoj, ŝiaj sofo kaj lito, ĉio devis malaperi.
@@ -3277,12 +2755,7 @@ Marianne dormis sur ili.
 
 Li ĵetis kolerajn rigardojn al la malnovaj bone konataj mebloj. ĉu ekzistis tie seĝo, sur kiu ŝi ne sidis iam, aŭ sofo, kiun ŝi ne uzis, pentraĵo, kiun ŝi ne rigardis, aŭ lucerno, kiu ne lumis al ŝi, spegulo, kiu ne iam redonis ŝiajn trajtojn? Minace li pugnis la manon kontraŭ tiu mondo da memoroj! Volonte li kurus sur ilin kun levita klabo por frakasi ĉion en erojn kaj splitojn.
 
-Tamen ŝajnis al li ankoraŭ pli drasta venĝo aŭkcie forigi ĉion. For al fremduloj! For, por malpuriĝi en farmetistaj dometoj, por senprizorgiĝi en la manoj de indiferentaj fremduloj. ĉu li ne konis ilin, la puŝdifektitajn aŭkciajn meblojn de la kamparanaj domoj, falintaj en malhonoron kiel lia bela fi-146
-
-GÖSTA BERLING
-
-
-lino? For! Ili staru kun elŝirita remburaĵo kaj skrapita oritaĵo, kun duonrompitaj piedoj kaj makulitaj tabuloj, sopirante al sia antaŭa hejmo! For al ĉiuj anguloj de la ĉielo, tiel ke neniu okulo trovu ilin, neniu mano kolektu ilin!
+Tamen ŝajnis al li ankoraŭ pli drasta venĝo aŭkcie forigi ĉion. For al fremduloj! For, por malpuriĝi en farmetistaj dometoj, por senprizorgiĝi en la manoj de indiferentaj fremduloj. ĉu li ne konis ilin, la puŝdifektitajn aŭkciajn meblojn de la kamparanaj domoj, falintaj en malhonoron kiel lia bela filino? For! Ili staru kun elŝirita remburaĵo kaj skrapita oritaĵo, kun duonrompitaj piedoj kaj makulitaj tabuloj, sopirante al sia antaŭa hejmo! For al ĉiuj anguloj de la ĉielo, tiel ke neniu okulo trovu ilin, neniu mano kolektu ilin!
 
 Kiam la aŭkcio komenciĝis, li estis pleniginta la salonon per nekredebla miksaĵo de amasigitaj hejmaĵoj.
 
@@ -3294,16 +2767,12 @@ Li tre miris, kie troviĝas la patrino de Marianne dum ĉio tio. Kaj nun li iris
 
 Li devis iri tra multaj pordoj, antaŭ ol li trovis ŝin. La granda uzinposedanto havis mallongan paciencon kaj malmulte ŝatis ĝemon kaj lamenton de virinoj. Tedis lin vidi ŝiajn larmojn flui pro la sorto, kiun renkontis la trezoroj de ŝia hejmo.
 
-Li furioziĝis pro tio, ke ŝi priploras tolaĵon kaj litaĵon, kiam 147
-
-GÖSTA BERLING
+Li furioziĝis pro tio, ke ŝi priploras tolaĵon kaj litaĵon, kiam
 
 
 estas perdita io, kio estas pli valora, lia bela filino, kaj jen li kun pugnita mano pelis ŝin antaŭ si tra la domo en la kuirejon kaj la manĝaĵprovizejon.
 
-Pluen ŝi ne povis iri, kaj li kontentiĝis vidante ŝin tie, kaŭ-
-
-rantan malantaŭ la portebla ŝtuparo, dum ŝi atendis krudajn batojn, eble la morton. Li lasis ŝin resti tie sed la pordon li ŝlosis, kaj la ŝlosilon li metis en sian poŝon. ŝi povos sidi tie dum la aŭkcio. ŝi ja ne bezonos malsati, kaj ŝia ĝemado ne turmentos liajn orelojn.
+Pluen ŝi ne povis iri, kaj li kontentiĝis vidante ŝin tie, kaŭrantan malantaŭ la portebla ŝtuparo, dum ŝi atendis krudajn batojn, eble la morton. Li lasis ŝin resti tie sed la pordon li ŝlosis, kaj la ŝlosilon li metis en sian poŝon. ŝi povos sidi tie dum la aŭkcio. ŝi ja ne bezonos malsati, kaj ŝia ĝemado ne turmentos liajn orelojn.
 
 Tie ŝi sidis kiel kaptito en sia propra provizejo ankoraŭ kiam Gösta venis tra la koridoro inter la kuirejo kaj la salono.
 
@@ -3321,16 +2790,11 @@ Tiu ŝlosilo funkcias tie ĉi.”
 
 Gösta obeis, kaj post kelkaj minutoj la malgranda virino staris en la kuirejo, kiu estis tute senhoma.
 
-”Kial vi ne igis iun el la servistinoj malfermi per la salon-
-
-ŝlosilo?” Gösta diris.
+”Kial vi ne igis iun el la servistinoj malfermi per la salonŝlosilo?” Gösta diris.
 
 ”ĉu vi imagas, ke mi volus instrui tiun sekreton al ili? Tiam mi neniam povus esti trankvila pri la provizejo. Cetere mi komencis ordigi sur la supraj bretoj. Vere estis bezonate. Mi ne komprenas, kiel mi povis lasi ilin tiel pleniĝi de aĉaĵo.”
 
 ”Vi havas tiom por prizorgi,” Gösta diris senkulpige.
-
-
-GÖSTA BERLING
 
 
 ”Jes, estu certa. Se mi ne ĉeestas ĉie, nek teksilo nek ŝpinilo moviĝas laŭ ĝusta takto. Kaj se …”
@@ -3361,9 +2825,7 @@ GÖSTA BERLING
 
 ”Verŝajne vi scias, ke Marianne edziniĝos kun mi?”
 
-”Ho, Gösta, tion ŝi neniam faros. Tion ŝi diras nur por inciti 149
-
-GÖSTA BERLING
+”Ho, Gösta, tion ŝi neniam faros. Tion ŝi diras nur por inciti
 
 
 lin. ŝi estas tro dorlotita por edziniĝi kun malriĉa viro kaj ankaŭ tro fiera. Veturu hejmen kaj diru al ŝi, ke ŝi perdos sian tutan heredaĵon, se ŝi ne venos hejmen baldaŭ. Ho, verŝajne li forvendos ĉion sen ricevi ion por ĝi.”
@@ -3384,9 +2846,7 @@ Gösta rigardis ŝin. Kiel li povis kolere paroli al tia homo kiel ŝi? Timigita
 
 Gösta ne eltenis plu. Li estis sovaĝa, li estis furioza — kelkiam Dio devis sendi siajn lupojn al li por obeigi lin — sed estis pli malfacile por li toleri la larmojn kaj ĝemon de la maljunulino ol la hurlon de la lupoj. Li diris la veron al ŝi.
 
-”Marianne estis malsana dum la tuta tempo,” li diris. ”ŝi 150
-
-GÖSTA BERLING
+”Marianne estis malsana dum la tuta tempo,” li diris. ”ŝi
 
 
 havis variolon. Hodiaŭ ŝi volis ellitiĝi kaj kuŝi sur la sofo. Mi ne vidis ŝin de la unua nokto.”
@@ -3419,9 +2879,7 @@ En la vestiblo li renkontis Sintramon.
 
 ”Pli amuze estos post momento,” Gösta flustris. ”La pastro de Broby venis kun sledo plena de mono. Oni diras, ke li volas aĉeti la tutan Björnen kaj pagi kontante. uste tiam, Sintram, mi ŝatus vidi la grandan uzinposedanton.”
 
-Sintram tiris la kapon malsupren inter la ŝultrojn kaj longe 151
-
-GÖSTA BERLING
+Sintram tiris la kapon malsupren inter la ŝultrojn kaj longe
 
 
 ridis interne. Sed jen li iris en la aŭkcian ĉambron kaj al Melchior Sinclaire.
@@ -3449,9 +2907,6 @@ Li kaptis kandelingon kaj inkujon kaj ĵetis ilin en la homamason.
 Estis la amaro de lia kompatinda koro, kiu fine liberiĝis.
 
 
-GÖSTA BERLING
-
-
 Blekante kiel sovaĝa besto li pugnis la manon al la ĉirkaŭstarantoj kaj ĵetis kontraŭ ilin kiun ajn ĵetarmilon, kiun li trovis.
 
 Brandoglasoj kaj boteloj flugis tra la ĉambro. Li estis sen konscio en sia kolero.
@@ -3474,12 +2929,7 @@ Sed Gösta alvenis pasante la ŝtuparon per du paŝoj, tremanta pro fervoro kaj 
 
 Li volis ĝui la ĉielan feliĉon vidi ŝin.
 
-ĉar ŝi estis bela, lia amatino. Neniu posedis tiel molajn ha-153
-
-GÖSTA BERLING
-
-
-rojn, tiel klaran, radian frunton. ŝia tuta vizaĝo estis ludo de belkurbaj linioj.
+ĉar ŝi estis bela, lia amatino. Neniu posedis tiel molajn harojn, tiel klaran, radian frunton. ŝia tuta vizaĝo estis ludo de belkurbaj linioj.
 
 Li pensis pri la brovoj, akre kaj klare desegnitaj kiel la miel-signoj sur lilio, pri la kuraĝa kurblinio de la nazo kaj pri la lipoj, mole kurbaj kiel ruliĝantaj ondoj, pri la longa ovalo de la vango kaj la delikate bela formo de la mentono.
 
@@ -3501,9 +2951,7 @@ Kiam lia amo eksonigos sian kanton, tiel altan kaj puran, ke neniu malbela tono 
 
 Li pripensis, kiel li diru adiaŭ al ŝi.
 
-”Estas granda ĝemo en via hejmo,” li diros. ”Mia koro estas disŝirata je la penso pri tio. Vi devas veturi hejmen kaj 154
-
-GÖSTA BERLING
+”Estas granda ĝemo en via hejmo,” li diros. ”Mia koro estas disŝirata je la penso pri tio. Vi devas veturi hejmen kaj
 
 
 redoni la prudenton al via patro. Via patrino vivas ĉiam en vivodanĝero. Vi devas iri hejmen, mia amata.”
@@ -3525,9 +2973,6 @@ Neeldireblaj sentoj plenigis lian animon. Ju pli longe li rigardis ŝin, des pli
 Ho, ami ŝin, defendi ŝin, kompensi al ŝi, kompensi!
 
 Esti ŝia sklavo, ŝia gardspirito!
-
-
-GÖSTA BERLING
 
 
 Forta estas la amo, ricevinte la fajrobapton de doloro. Li ne povis paroli kun Marianne pri disiĝo kaj rezigno. Li ne povis forlasi ŝin. Li ŝuldis al ŝi sian vivon. Li povus fari mortpekojn pro ŝi.
@@ -3555,18 +3000,11 @@ Per tio ĉio estis ordigita inter ili.
 
 Unu horon poste la granda uzinposedanto estis survoje al Ekeby.
 
-Oni ne povis vidi pli noblan kaj bonvolan maljunan sin-156
-
-GÖSTA BERLING
-
-
-joron ol la uzinpozedanton, kiam li sidis en sia sledo kun mallevita kovrilo, en siaj plej bona pelto kaj plej bona skarpo.
+Oni ne povis vidi pli noblan kaj bonvolan maljunan sinjoron ol la uzinpozedanton, kiam li sidis en sia sledo kun mallevita kovrilo, en siaj plej bona pelto kaj plej bona skarpo.
 
 Nun la hararo kuŝis glatkombita sur la verto, la vizaĝo estis pala, kaj la okuloj profundiĝis en siajn kavojn.
 
-Kaj senmezura estis la brilo, kiu de la klara ĉielo fluis malsupren sur la februaran tagon. La neĝo bri lis kiel okuloj de junaj knabinoj, kiam oni ekludas la unuan valson. La betuloj streĉis sian delikatan puntaĵon de maldikaj, brunruĝaj bran-
-
-ĉetoj al la alto, kaj sur kelkaj el ili sidis franĝo de brilaj glaci-pingletoj.
+Kaj senmezura estis la brilo, kiu de la klara ĉielo fluis malsupren sur la februaran tagon. La neĝo bri lis kiel okuloj de junaj knabinoj, kiam oni ekludas la unuan valson. La betuloj streĉis sian delikatan puntaĵon de maldikaj, brunruĝaj branĉetoj al la alto, kaj sur kelkaj el ili sidis franĝo de brilaj glaci-pingletoj.
 
 La tago estis plena de brilo kaj festa lumvibro. La ĉevaloj dance levis la antaŭkrurojn, kaj la veturigisto pro nura ĝojo devis klaki per la vipo.
 
@@ -3593,9 +3031,6 @@ La uzinposedanto ridis tiel, ke e˛is sur la silenta korto. Li donis al la lakeo
 La viro malaperis, kaj la uzinposedanto komencis sian atendon.
 
 
-GÖSTA BERLING
-
-
 Tiun tagon li estis en tiel radia humoro, ke nenio povis inciti lin. Li ja pensis, ke li devos iom atendi Marianne, eble ŝi eĉ ne ellitiĝis. Dume li povas distri sin rigardante ĉirkaŭen.
 
 Sur la tegmenta rando pendis longa glacio, pri kiu la sunlumo havis grandegan penon. i komencis de supre, degeli-gis guton kaj poste volis, ke tiu laŭ la glacio falu al la tero. Sed jam antaŭ la vojmezo ĝi ree rigidiĝis. La sunlumo ĉiam faris novajn provojn kaj ĉiam malsukcesis. Sed fine iu kaperista sunradieto, kiu lumis kaj fajreris pro fervoro, fiksis sin al la pinto de la glacio, kaj jen ĝi atingis sian celon, guto falis so-nore al la tero.
@@ -3620,12 +3055,7 @@ La kolombo venis tiel regule, ke li elprenis la horloĝon kaj kun tiu en la mano
 
 Kaj mem li devis atendi; sed tempo ne mankis.
 
-La ĉevaloj unue skrapis malpacience en la neĝo, sed pos-158
-
-GÖSTA BERLING
-
-
-te fariĝis dormemaj pro starado kaj okulĝena sunlumo. Ili kunklinis siajn kapojn kaj dormis.
+La ĉevaloj unue skrapis malpacience en la neĝo, sed poste fariĝis dormemaj pro starado kaj okulĝena sunlumo. Ili kunklinis siajn kapojn kaj dormis.
 
 La veturigisto sidis rekta sur sia seĝo kun vipo kaj kondukrimenoj en la mano kaj la vizaĝo rekte al la suno kaj dormis, dormis tiel, ke li ronkis.
 
@@ -3639,12 +3069,7 @@ Ili aŭdas la frapon de la paruo, kaj la tuta abelujo ekzumas pro scivolo. ĉu a
 
 La reĝino havas malbonan konsciencon. ŝi ne povas trankvile atendi. ĉu estas spiritoj de murditaj virabeloj, kiuj fantomas ekstere? ”Eliru por esplori!” ŝi ordonas al fratino pordistino.
 
-Kaj tiu foriras. Kun ”Vivu la reĝino!” ŝi elkuras, kaj hej! jen la paruo atakas ŝin. Kun streĉita kolo kaj la flugiloj tremantaj pro fervoro li kaptas ŝin, frakasas ŝin, manĝas ŝin, kaj neniu portas sciigon pri sia sorto al la regantino. Sed la paruo ree frapas, la reĝino daŭre sendas siajn pordistinojn, kaj ili ĉiuj malaperas. Neniu revenas por sciigi, kiu frapis. Uf, estas timi-159
-
-GÖSTA BERLING
-
-
-ge en la malluma abelujo! Venĝemaj spiritoj ludas ekstere. Se oni nur ne havus orelojn! Se oni nur povus venki la scivolon!
+Kaj tiu foriras. Kun ”Vivu la reĝino!” ŝi elkuras, kaj hej! jen la paruo atakas ŝin. Kun streĉita kolo kaj la flugiloj tremantaj pro fervoro li kaptas ŝin, frakasas ŝin, manĝas ŝin, kaj neniu portas sciigon pri sia sorto al la regantino. Sed la paruo ree frapas, la reĝino daŭre sendas siajn pordistinojn, kaj ili ĉiuj malaperas. Neniu revenas por sciigi, kiu frapis. Uf, estas timige en la malluma abelujo! Venĝemaj spiritoj ludas ekstere. Se oni nur ne havus orelojn! Se oni nur povus venki la scivolon!
 
 Se oni nur povus trankvile atendi!
 
@@ -3665,9 +3090,6 @@ Sed ĝuste kiam ĝi levas la kapon por esplori, ĉu ĝi povas trankvile manĝi �
 La hundo atakas ilin, kaj ili fuĝas per inertaj flugilbatoj. La hundo postkuras, saltas kaj bojas. Dum ĝi ĉasas unu el ili, la alia jam revenas. ŝi flugas en la truon, ŝiras la viandopecon sed ne havas forton por levi ĝin. La hundo kaptas la viandon, tenas ĝin inter la piedoj kaj mordas. La pigoj eksidas tuj an-taŭ ĝi kaj diras malicaĵojn. Manĝante ĝi kolere rigardas ilin, kaj kiam la afero fariĝas netolerebla, ĝi salte forpelas ilin.
 
 La suno komencis malaltiĝi al la okcidentaj montoj. La granda uzinposedanto rigardis sian horloĝon. Estis la tria. Kaj la edzino pretigis la tagmanĝon ĝis la dekdua!
-
-
-GÖSTA BERLING
 
 
 En tiu momento la lakeo elvenis kaj sciigis, ke fraŭlino Marianne deziras paroli kun li.
@@ -3694,9 +3116,7 @@ Antaŭ lia eniro, ŝi ordonis levi la kurtenojn, kaj ŝi ekkuŝis tiel, ke la vi
 
 Per tio ŝi certe intencis iel ekzameni lin, sed Melchior Sinclaire estis rimarkinda viro en tiu tago.
 
-Vidante ŝin li ne faris movon de aflikto, ne ekkriis. Estis 161
-
-GÖSTA BERLING
+Vidante ŝin li ne faris movon de aflikto, ne ekkriis. Estis
 
 
 kvazaŭ li ne vidus iun ŝanĝon ĉe ŝi. ŝi sciis, kiel li adoris ŝian belan eksteron. Sed li ne montris malĝojon. Li estris sian tutan estaĵon por ne ĉagreni ŝin. Tio kaptis ŝin. ŝi komencis kompreni, kial ŝia patrino ankoraŭ amas lin.
@@ -3719,9 +3139,6 @@ La granda uzinposedanto levis ŝin, portis ŝin malsupren al la sledo, levis la 
 Kelkajn tagojn poste ŝia patrino aranĝis tiel, ke ŝi povis renkonti Göstan. ŝi venigis lin, dum la uzinposedanto faris sian longan promenon al la trunktransportistoj, kaj kondukis lin al Marianne.
 
 Gösta envenis, sed li nek salutis nek parolis. Li restis staranta ĉe la pordo kaj rigardis al la planko kiel obstina bubo.
-
-
-GÖSTA BERLING
 
 
 ”Sed, Gösta!” Marianne diris. ŝi sidis en sia brakseĝo kaj rigardis lin duone amuzita.
@@ -3748,9 +3165,7 @@ Verdire ŝi estis amuzita. Se plaĉas al li esti ĵaluza al ŝiaj gepatroj, nu, 
 
 Kaj nun ŝi komencis paroli, fervora por regajni lin. ŝi diris, ke ne estis ŝia intenco forlasi lin por ĉiam, sed dum kelka tempo ili devas ŝajne rompi sian interrilaton. Li ja povis mem vidi, ke ŝia patro staris sur la sojlo de freneziĝo, kaj ŝia patrino vivis en ĉiama vivodanĝero. Li ja devas kompreni, ke ŝi nepre devis veturi hejmen.
 
-Tiam lia kolero eksplodis en vortojn. ŝi ne bezonas ŝajnigi. Li ne volas plu esti ŝia ludilo. ŝi forlasis lin tuj, kiam ŝi rajtis veturi hejmen, kaj li ne povas ami ŝin plu. Kiam li antaŭhieraŭ 163
-
-GÖSTA BERLING
+Tiam lia kolero eksplodis en vortojn. ŝi ne bezonas ŝajnigi. Li ne volas plu esti ŝia ludilo. ŝi forlasis lin tuj, kiam ŝi rajtis veturi hejmen, kaj li ne povas ami ŝin plu. Kiam li antaŭhieraŭ
 
 
 revenis de la ĉaso kaj trovis, ke ŝi estas for sen iu ajn saluto, sen iu ajn vorto, tiam la sango frostiĝis en liaj vejnoj; li preskaŭ mortis pro sufero. Li ne povas ami tiun, kiu faris al li tiel grandan doloron. Cetere ŝi neniam amis lin. ŝi estas koketulino, kiu volis havi iun, kiu kisis kaj karesis ŝin ankaŭ tie ĉi en la hejmregiono, tio estis ĉio.
@@ -3768,9 +3183,6 @@ Ree kaj ree li revenis al tio. ŝi preskaŭ ĝuis la scenon. Koleriĝi ŝi ne po
 ”Gösta!” ŝi diris. ”ĉu mi estas egoista, kiam mi iris al Sjö por venigi la majoron? Mi memoris ja, ke oni havas variolon tie. Ankaŭ ne estas facile iri ekstere en maldikaj ŝuoj en frosto kaj neĝo.”
 
 ”La amo vivas de amo, sed ne de servoj kaj bonfaroj,” Gös-ta diris.
-
-
-GÖSTA BERLING
 
 
 ”Vi do volas, ke de nun ni estu fremduloj unu al la alia, Gösta?”
@@ -3806,9 +3218,6 @@ Post tio li foriris.
 Kaj kiam li nur fermis la pordon, la sopiro kaj la doloro en sia tuta majesto eniris la koron de Marianne.
 
 
-GÖSTA BERLING
-
-
 Estis la amo, la infano de ŝia propra koro, kiu aperis el la angulo, kien la glaciaj okuloj forpelis ĝin. i venis, la sopire atendita, nun kiam estis tro malfrue. Nun ĝi aperis, serioza kaj ĉionreganta, kaj sopiro kaj doloro portis la trenaĵon de ĝia reĝomantelo.
 
 Kiam Marianne kun efektiva certeco povis diri al si mem, ke Gösta Berling forlasis ŝin, ŝi sentis eĉ korpan doloron, tiel teruran, ke ŝi preskaŭ senkonsciiĝis. ŝi premis siajn manojn al la koro kaj dum horoj sidis en la sama loko, batalante kontraŭ senlarma malĝojo.
@@ -3830,9 +3239,6 @@ Ho, li estis la sola, li estis ia reganto de ŝia koro! De li ŝi povus ĉion to
 Kiam ŝi finis, ŝi pensis, ke se li vidos tion, tiam li tamen kredos, ke ŝi amas lin. Nu, kial ŝi ne sendu la skribaĵon al li.
 
 
-GÖSTA BERLING
-
-
 La venontan tagon ŝi sendos ĝin, kaj ŝi emis kredi, ke ĝi rekondukos lin al ŝi.
 
 En la posta tago ŝi angore batalis en si mem. Kion ŝi skribis, ŝajnis al ŝi mizera kaj stulta. i havis nek rimojn nek me-tron. Estis nur prozo. Verŝajne li nur ridos pri tiaj versoj.
@@ -3850,9 +3256,6 @@ Sed fariĝis la malĝojo de ŝia vivo, ke ŝi ne sendis tiujn versojn, kiam anko
 Tiuj skribitaj vortoj estus gajnintaj al ŝi la feliĉon de la vivo, almenaŭ la realecon de la vivo. ŝi estis konvinkita, ke ili re-kondukus lin al ŝi.
 
 La sufero tamen faris al ŝi la saman servon kiel la amo. i faris el ŝi tutan homon, povantan tute doni sin al bono kiel al malbono. Bolantaj sentoj fluis tra ŝia animo, kaj la glacia malvarmo de memobservo ne baris ilian vojon. Kaj ŝi estis, malgraŭ sia malbeleco, tre amata.
-
-
-GÖSTA BERLING
 
 
 Oni tamen diras, ke ŝi neniam forgesis Göstan Berling. ŝi malĝojis pri li tiel, kiel oni malĝojas pro malbone uzita vivo.
@@ -3882,9 +3285,6 @@ Neniam plu malleviĝos al profrunda doloro, neniam plu!
 Infano, vi amis, sed neniam plu
 
 flamos fajro en via animo.
-
-
-GÖSTA BERLING
 
 
 Vi estis kiel kampo de seka herbo,
@@ -3924,9 +3324,6 @@ La plej malforta el ĉio malforta, ĉu tio ne estas hom koro?
 Kiel ĝi povus vivi kun la vunda penso, ke ĝi donas suferon al alia?
 
 
-GÖSTA BERLING
-
-
 Ho, mia amato, se vi volas mortigi min, ne havigu ponardon, ne aĉetu venenon aŭ ŝnuron!
 
 Sed nur sciigu al mi, ke vi volas, ke mi malaperu de la verdaj herbejoj de la tero, de la regnoj de la vivo.
@@ -3944,10 +3341,7 @@ Mi tamen amas la vivon. Ho, memoru tion!
 Sed mi scias, ke mi mortos sub la ŝarĝo de la malamo.
 
 
-GÖSTA BERLING
-
-
-DEKA ĉAPITRO
+DEKA ĈAPITRO
 
 La juna grafino
 
@@ -3962,9 +3356,6 @@ La patro de la juna grafino estas sveda nobelo, kiu loĝis en Italujo dum sia tu
 31 Tamburbrodaĵo — speco de brodaĵo farita sur ŝtofo streĉita per kadro (de la franca vorto tambour, brodkadro).
 
 
-GÖSTA BERLING
-
-
 Plej multe ŝatis la junan grafinon la maljunaj sinjoroj. Estis mirinde, kian sukceson ŝi trovis ĉe maljunaj sinjoroj. Kiam ili vidis ŝin en balo, oni povis esti certa, ke ĉiuj, kaj la leĝisto en Munkerud kaj la ĉefparoęstro en Bro kaj Melchior Sinclaire kaj la kapitano en Berga, en plej profunda konfidenco klarigos al siaj edzinoj, ke se ili estus renkontintaj la junan grafinon antaŭ kvardek aŭ tridek jaroj
 
 ”Nu, tiam ŝi ja ankoraŭ ne naskiĝis,” diras la maljunaj sinjorinoj.
@@ -3977,9 +3368,7 @@ La juna grafino tre volas fariĝi bona mastrino. ŝi ne scias ion pli bonan ol l
 
 ”Henrik tre volas, ke mi lernu fariĝi taŭga mastrino,” ŝi diras, ”kia estas lia patrino. Instruu al mi, kiel oni aranĝas tekson!”
 
-Tiam la maljunaj faras duoblan suspiron: unue pro grafo Henrik, kiu povas kredi, ke lia patrino estas taŭga mastrino, kaj due pro la malfacilo komprenigi al tiu juna, neinstruita estaĵo tiel komplikajn aferojn. Oni bezonas nur paroli al ŝi pri 172
-
-GÖSTA BERLING
+Tiam la maljunaj faras duoblan suspiron: unue pro grafo Henrik, kiu povas kredi, ke lia patrino estas taŭga mastrino, kaj due pro la malfacilo komprenigi al tiu juna, neinstruita estaĵo tiel komplikajn aferojn. Oni bezonas nur paroli al ŝi pri
 
 
 pasmoj32 kaj varpmaŝoj, pri varpalternigiloj kaj vektoj, pri unufadenaĵo kaj dualternigila tekso, kaj tuj turniĝas ŝia kapo, des pli, kiam oni komencas paroli pri ”grajndreliko”, ”anserokulo” kaj ”migranto.”33
@@ -4011,9 +3400,6 @@ Ne, tion ŝi ne povis.
 33 Migranto, anserokulo, grajndreliko — specoj de teksaĵo.
 
 
-GÖSTA BERLING
-
-
 li ja havas flavan haŭton kaj sulkojn sur la frunto. La kapo certe estis uzata kaj de la patro kaj de la avo. Se ne, kial la haroj estas tiel maldensaj, la lipoj tiel sensangaj kaj la mentono tiel pinta?”
 
 ĉiam li havas ĉirkaŭ si ŝercantojn, kiuj igas lin diri stultaĵojn kaj poste konservas ilin, disvastigas ilin, plibonigas ilin.
@@ -4029,17 +3415,11 @@ La kvinan fojon li sukcesis preterpasi la branĉon.
 Sed tamen estas tiel, ke la juna grafino amas lin malgraŭ lia maljunula kapo. ŝi ja ne sciis, kiam ŝi vidis lin en Romo, ke li en sia propra lando portas tian martirkronon de stulteco. Tie li posedis iun brilon de juneco, kaj ili kuniĝis dum ekstreme romantikaj cirkonstancoj. Oni nur aŭdu la grafinon rakonti, kiel grafo Henrik devis forkonduki ŝin. Mona˛oj kaj kardinaloj ekkoleris pro tio, ke ŝi volas forlasi la religion de sia patrino, al kiu ŝi antaŭe apartenis, kaj fariĝi protestanto. La tuta popolaĉo estis ribelanta. La palaco de ŝia patro estis sieĝata.
 
 
-GÖSTA BERLING
-
-
 Banditoj persekutis Henrikon. La patrino kaj la fratino petis ŝin rezigni pri la edziniĝo. Sed ŝia patro ekfuriozis pro tio, ke la itala aĉularo volas malpermesi al li doni sian filinon al kiu li volas. Li ordonis al grafo Henrik forkonduki ŝin. Kaj ĉar ne estis eble por ili esti geedzigitaj hejme, sen ke oni ekscios tion, ŝi kaj Henrik ŝteliris sur apudaj stratoj kaj diversaj mallumaj vojoj al la sveda konsulejo. Kaj kiam ŝi tie cedis sian katolikan kredon kaj fariĝis protestanto, oni tuj geedzigis ilin kaj sendis ilin norden en rapide kondukata veturilo. ”Ne estis tempo por anonci la geedziĝon, vi komprenas. Tute ne estis tempo,” la juna grafino kutimas diri. ”Kaj estis ja malgaje edziniĝi en konsulejo kaj ne en unu el la belaj preĝejoj, sed alie Henrik devus rezigni pri mi. Tie sude ĉiuj estas tiel koleremaj, kaj patro kaj patrino kaj kardinaloj kaj mona˛oj, ĉiuj estas koleremaj. Pro tio ĉio devis okazi tiel sekrete, kaj se la homoj estus vidintaj nin ŝteliri de la hejmo, ili certe estus mortbatintaj nin ambaŭ nur por savi mian animon. Henrik kompreneble jam estis sub la kondamno.”
 
 Sed la juna grafino ŝatas sian edzon ankaŭ post kiam ili venis al Borg kaj vivas pli trankvilan vivon. ŝi amas ĉe li la brilon de la malnova nomo kaj de grandfaraj prapatroj. ŝi ŝatas vidi, kiel ŝia ĉeesto moligas lian rigidecon, kaj aŭdi, kiel lia voĉo moliĝas, kiam ŝi parolas kun li. Kaj krome li ŝatas ŝin kaj dorlotas ŝin, kaj fine ŝi ja estas lia edzino. La juna grafino ne povas imagi, ke edziniĝinta virino ne ŝatu sian edzon.
 
 En certa maniero li ankaŭ respondas al ŝia idealo pri vire-co. Li estas justa kaj verama. Li neniam rompis promeson. ŝi rigardas lin kiel veran nobelon.
-
-
-GÖSTA BERLING
 
 
 La okan de marto prokuroro Scharling festas sian naskiĝotagon, kaj tiam multe da homoj veturas supren sur la deklivoj de Broby. Homoj el oriento kaj okcidento, konataj kaj nekonataj, invititaj kaj neinvititaj tiam venas al la prokurora domo. ĉiuj estas bonvenaj. Por ĉiuj estas sufiĉe da manĝaĵo kaj trinkaĵo, kaj en la balsalono estas surfiĉe da loko por dan-cemuloj el sep paro˛oj.
@@ -4061,14 +3441,9 @@ Estis la horo de laciĝo, de malvenko, de senpoveco, por ŝi same kiel por la tu
 ŝi pensis pri tio, ke ŝia koro, kiu nun en vigla gajeco ornamis la ekziston per purpuro kaj oro, ke tiu koro eble iam perdos sian forton doni lumon al ŝia mondo.
 
 
-GÖSTA BERLING
-
-
 ”Ho, senpoveco, senpoveco de mia propra koro!” ŝi diris al si. ”Sufoke griza diino de la krepusko, iam vi estos estrino en mia animo. Tiam mi vidos la vivon malbela kaj griza, kiel ĝi eble ankaŭ estas, tiam miaj haroj blankiĝos, mia dorso kurbiĝos, mia cerbo paraliziĝos.”
 
-En tiu momento la sledo enveturis sur la prokuroran korton, kaj kiam la juna grafino ĝuste tiam levis la rigardon, ŝi ekvidis kradfenestron sur flankdomo kiaj severaspektan viza-
-
-ĝon malantaŭ ĝi.
+En tiu momento la sledo enveturis sur la prokuroran korton, kaj kiam la juna grafino ĝuste tiam levis la rigardon, ŝi ekvidis kradfenestron sur flankdomo kiaj severaspektan vizaĝon malantaŭ ĝi.
 
 Tiu vizaĝo apartenis al la majorino de Ekeby, kaj la juna virino sentis, ke nun ŝia plezuro estas detruita por tiu ĉi vespero.
 
@@ -4079,14 +3454,9 @@ La grafino scias ja, ke prokuroro Scharling metis la majorinon en arestejon, kaj
 La juna grafino dancas ja kaj valson kaj kvadrilon. ŝi partoprenas kaj la menueton kaj la angleson34, sed post ĉiu danco ŝi ŝteliras al la fenestro kaj rigardas al la flankdomo. Lumas el la fenestro de la majorino, kaj ŝi povas vidi, kiel tiu iras tien 34 Angleso — danco.
 
 
-GÖSTA BERLING
-
-
 kaj reen en sia ĉambro. ŝajnas, ke ŝi neniam ripozas sed ĉiam iras.
 
-La grafino neniel ĝojas pro la danco. ŝi nur pensas pri la majorino, kiu iras tien kaj reen en sia malliberejo kiel kaptita sovaĝa besto. ŝi miras, ke ĉiuj aliaj povas danci. Certe trovi-
-
-ĝas tie multaj, kiuj estas same ekscititaj kiel ŝi, sciante ke la majorino estas tiel proksime al ili, sed tamen neniu montras tion. En Vermlando loĝas toleremaj homoj.
+La grafino neniel ĝojas pro la danco. ŝi nur pensas pri la majorino, kiu iras tien kaj reen en sia malliberejo kiel kaptita sovaĝa besto. ŝi miras, ke ĉiuj aliaj povas danci. Certe troviĝas tie multaj, kiuj estas same ekscititaj kiel ŝi, sciante ke la majorino estas tiel proksime al ili, sed tamen neniu montras tion. En Vermlando loĝas toleremaj homoj.
 
 Sed post ĉiu elrigardo ŝiaj piedoj moviĝas pli peze en la danco, kaj la rido preskaŭ fiksiĝas en ŝia gorĝo.
 
@@ -4100,9 +3470,7 @@ La edzino de la prokuroro observas ŝin, kiam ŝi viŝas la vaporon de la fenest
 
 ”ŝi ne devus esti arestita,” la juna grafino diras severe.
 
-”Jes, tio estas vera, grafino, sed oni ne povis fari ion alian, por ke ne okazu ankoraŭ pli grandaj malfeliĉoj. Neniu ja 178
-
-GÖSTA BERLING
+”Jes, tio estas vera, grafino, sed oni ne povis fari ion alian, por ke ne okazu ankoraŭ pli grandaj malfeliĉoj. Neniu ja
 
 
 malpermesis al ŝi bruligi siajn proprajn pajlostakojn kaj forpeli la kavalirojn, sed la majoro ĉirkaŭiris por ĉasi ŝin. Dio scias, kion li estus farinta, se ŝi ne estus arestita. Scharling suferis multan ĉagrenon, pro tio ke li arestis la majorinon. Eĉ en Karlstad ili estis malkontentaj pri li, ĉar li ne malatentis pri tio, kio okazis en Ekeby. Sed li faris tion, kion li opiniis plej bona.
@@ -4123,12 +3491,7 @@ Sinjorino Scharling fervore prenas ŝian manradikon kaj elkondukas ŝin. En la v
 
 ”Ne estas certe, ke ŝi eĉ parolos al ni,” la edzino de la prokuroro diras. ”Sed ŝi tamen vidos, ke ni ne forgesis ŝin.”
 
-Ili venas en la unuan ĉambron de la flankdomo, kie la du viroj sidas gardante ĉe la fermita pordo, kaj sen malhelpo eniras al la majorino. ŝi loĝas en granda ĉambro plena de tek-179
-
-GÖSTA BERLING
-
-
-siloj kaj aliaj iloj. Efektive oni uzas ĝin kiel teksĉambron, sed
+Ili venas en la unuan ĉambron de la flankdomo, kie la du viroj sidas gardante ĉe la fermita pordo, kaj sen malhelpo eniras al la majorino. ŝi loĝas en granda ĉambro plena de teksiloj kaj aliaj iloj. Efektive oni uzas ĝin kiel teksĉambron, sed
 
 ĝi havas kradon antaŭ la fenestro kaj fortikajn serurojn sur la pordo, por ke oni en ekstrema okazo povu uzi ĝin kiel arestejon.
 
@@ -4146,9 +3509,7 @@ Kaj ŝia patrino, kiu ekvidas ŝin alveni, almozpetantan kiel ŝi volis, venas r
 
 Kiam la majorino atingis tion, ŝi ĉiam levas la okulojn, rigardas ĉirkaŭen, vidas la fermitan pordon kaj scias, kie ŝi estas.
 
-Tiam ŝi demandas sin, ĉu ŝi komencas freneziĝi, kaj eksidas 180
-
-GÖSTA BERLING
+Tiam ŝi demandas sin, ĉu ŝi komencas freneziĝi, kaj eksidas
 
 
 por pensi kaj ripozi. Sed post tempeto ŝi ree komencas, sumigas ulnojn kaj klaftojn en duonmejlojn kaj mejlojn, faras mallongajn paŭzojn en finnaj dometoj kaj dormas nek tage nek nokte, ĝis ŝi ree finiris la dudek mejlojn.
@@ -4166,9 +3527,6 @@ Sed kion la grafino klare memoris, tio estis la okuloj el-kaviĝintaj, kun la ri
 Ili staris tie sufiĉe longe, kiam la majorino subite haltas antaŭ la juna virino kaj severe rigardas ŝin. La grafino faras paŝon malantaŭen kaj prenas la brakon de sinjorino Scharling.
 
 La trajtoj de la majorino tuj ekhavas vivon kaj esprimon, kaj ŝi rigardas en la mondon kun plena prudento.
-
-
-GÖSTA BERLING
 
 
 ”Ho ne, ho ne,” ŝi diras kaj ridetas, ”tiel malbone ankoraŭ ne estas, mia kara juna sinjorino.”
@@ -4196,9 +3554,6 @@ La majorino interrompas ŝin kaj karese ŝovas la krispan, helan hararon supren 
 ”Bonkonduta infano kaj nenio pli, ploras kun la ĉagrenitoj kaj ridas kun la gajuloj. Kaj povas diri nur ’jes’ al la unua, kiu diras: ’Mi amas vin’. Jes ja. Nun eniru kaj dancu, mia kara juna grafino! Dancu kaj estu gaja! Ekzistas nenio malbona en vi.”
 
 
-GÖSTA BERLING
-
-
 ”Sed mi volas fari ion por vi.”
 
 ”Infano,” la majorino diras solene. ”En Ekeby loĝis maljuna virino, kiu tenis la ventojn de la ĉielo kaptitaj. Nun ŝi estas kaptita, kaj la ventoj estas liberaj. ĉu strange, ke ŝtormo iras tra la lando?
@@ -4211,9 +3566,7 @@ Mi, kiu estas maljuna, vidis ĝin antaŭe, grafino. Mi konas
 
 ŝtormo de Dio, benita ventego de la Sinjoro, blovu tra la mondo! Voĉoj en la aero, voĉoj en la akvo, sonu kaj timigu!
 
-Igu muĝeganta la ŝtormon de Dio! Igu terura la ŝtormon de Dio! La ŝtormoj flugu tra la lando, ataku ŝanceliĝantajn murojn, rompu la serurojn, kiuj rustis, kaj la domojn, kiuj klini-
-
-ĝas faleme!
+Igu muĝeganta la ŝtormon de Dio! Igu terura la ŝtormon de Dio! La ŝtormoj flugu tra la lando, ataku ŝanceliĝantajn murojn, rompu la serurojn, kiuj rustis, kaj la domojn, kiuj kliniĝas faleme!
 
 Angoro kovros la landon. La birdaj nestetoj falos de sia loko sur la branĉo. La akcipitra nesto en la supro de la pino kun granda muĝo estos ŝirata teren, kaj ĝis en la gufonesto en la montofendo! La vento siblos per sia draklango.
 
@@ -4225,12 +3578,7 @@ Subite forto mankas al ŝi.
 
 Mi devas iri. Nun iru, kaj gardu vntraŭ tiuj, kiuj rajdas sur la ŝtormnuboj!”
 
-Post tio ŝi ree komencas iri. La trajtoj malfirmiĝas, la rigar-183
-
-GÖSTA BERLING
-
-
-do turniĝas alinterne. La grafino kaj sinjorino Scharling devas forlasi ŝin.
+Post tio ŝi ree komencas iri. La trajtoj malfirmiĝas, la rigardo turniĝas alinterne. La grafino kaj sinjorino Scharling devas forlasi ŝin.
 
 Kiam ili denove estas ĉe la dancantoj, la juna grafino tuj iras al Gösta Berling.
 
@@ -4253,9 +3601,6 @@ La juna grafino turnas sin de li sen respondi. ŝi estas kolera.
 Post tempeto Gösta venas por inviti ŝin al danco. ŝi tuj rifuzas.
 
 
-GÖSTA BERLING
-
-
 ”ĉu vi ne volas danci kun mi, grafino?” li demandas kaj tre ruĝiĝas.
 
 ”Nek kun vi nek kun iu alia el la kavaliroj de Ekeby” ŝi diras.
@@ -4276,9 +3621,7 @@ Li vokas Beerencreutzon, la kolonelon, kaj Kristianon Bergh, la fortan kapitanon
 
 Venas la fino de la festo. Longa vico da sledoj veturas sur la korton. La sinjoroj surmetas la peltojn. La sinjorinoj serĉas siajn vestojn en la terura intermiksiĝo, de la vestĉambro.
 
-La juna grafino urĝas forlasi tiun malŝatatan balon. ŝi pretiĝas kiel unua el la virinoj. Kun rideto ŝi staras meze sur la 185
-
-GÖSTA BERLING
+La juna grafino urĝas forlasi tiun malŝatatan balon. ŝi pretiĝas kiel unua el la virinoj. Kun rideto ŝi staras meze sur la
 
 
 planko kaj rigardas la konfuzon, kiam la pordo malfermiĝas kaj Gösta Berling montriĝas sur la sojlo.
@@ -4299,11 +3642,7 @@ Sed tiu kuŝas en la sledo, firmtenante la junan grafinon.
 
 Li forte premas ŝin al si, sed ŝi ne provas fuĝi. ŝia vizaĝo kuŝas ĉe lia brusto, blanka kaj rigida.
 
-Ho, kion viro faru, kiam li havas palan, komplatindan viza-
-
-ĝon tiel proksime al si, kiam li vidas flankenŝovitaj la helajn harojn, kiuj alitempe ombras la blankan, radian frunton, kiam 186
-
-GÖSTA BERLING
+Ho, kion viro faru, kiam li havas palan, komplatindan vizaĝon tiel proksime al si, kiam li vidas flankenŝovitaj la helajn harojn, kiuj alitempe ombras la blankan, radian frunton, kiam
 
 
 la palpebroj peze fermiĝis super la petola brileto de la grizaj okuloj?
@@ -4331,18 +3670,13 @@ Sed Bergh kaj kuzo Kristoffer en plena trankvilo iris al la pordo, rompis la ser
 ŝi elvenis. Ili staris ambaŭflanke de la pordo, rektaj kiel bastonoj, kaj ne rigardis ŝin.
 
 
-GÖSTA BERLING
-
-
 ”Vi havas ĉevalon kaj sledon tie ĉi ekstere.”
 
 Tiam ŝi eliris, eksidis en la sledo kaj forveturis.
 
 Neniu persekutis ŝin. Neniu sciis, kien ŝi veturis.
 
-Don Juan rapidas malsupren sur la deklivoj de Broby al la glacikovrita surfaco de Löven. La fiera kuranto flugas antaŭ-
-
-en. Freŝiga, glacimalvarma aero pretersiblas la vangojn de la veturantoj. Tintas la sonoriloj. Brilas la luno kaj la steloj. La neĝo kuŝas blublanka kaj brilas per propra lumo.
+Don Juan rapidas malsupren sur la deklivoj de Broby al la glacikovrita surfaco de Löven. La fiera kuranto flugas antaŭen. Freŝiga, glacimalvarma aero pretersiblas la vangojn de la veturantoj. Tintas la sonoriloj. Brilas la luno kaj la steloj. La neĝo kuŝas blublanka kaj brilas per propra lumo.
 
 Gösta sentas poeziajn pensojn vekiĝi en si. ”Beerencreutz,”
 
@@ -4362,9 +3696,7 @@ Jubila kanto estas al li la krioj de la persekutantoj. ojo plenigas lian sovaĝa
 
 Subite malfiksiĝis la fera preno, per kiu li tenis ŝin. Li ekstaras en la sledo kaj svingas sian ĉapon.
 
-”Mi estas Gösta Berling,” li krias, ”sinjoro de dekmil kisoj 188
-
-GÖSTA BERLING
+”Mi estas Gösta Berling,” li krias, ”sinjoro de dekmil kisoj
 
 
 kaj dektrimil amleteroj. Hura por Gösta Berling! Kaptu lin tiu, kiu povas!”
@@ -4395,9 +3727,7 @@ Je tio li subite fariĝis tute trankvila. Li eksidas orde en la sledo, kiel eble
 
 ”Ne timu, grafino,” li diras. ”ĉu vi ne vidas, kien ni veturas? Vi ja povas kompreni, ke ni ne kuraĝas fari ion malbonan al vi.”
 
-ŝi, kiu preskaŭ freneziĝis pro teruro, vidas nun, ke ili jam 189
-
-GÖSTA BERLING
+ŝi, kiu preskaŭ freneziĝis pro teruro, vidas nun, ke ili jam
 
 
 transveturis la lagon, kaj ke Don Juan penas supren sur la krutaj deklivoj de Borg.
@@ -4423,9 +3753,6 @@ Ili do ne scias, kiel severa kaj justa homo li estas. Ili ne timas la ekzamenon,
 Li, kiu estas por ŝi nur amemo kaj mildeco, li levos sin en justa severo kontraŭ ŝiaj persekutantoj. La amo donos fajron al lia parolo. Li, kiu protektis kaj gardis ŝin kiel estaĵon de pli delikata specimeno ol ĉiu alia, li ne toleros, ke krudaj viroj atakis ŝin kiel rabobirdoj la paseron. ŝi ardis pro venĝavido.
 
 
-GÖSTA BERLING
-
-
 Beerencreutz, la kolonelo kun la densaj, blankaj lipharoj, tamen sentime iris en la salonon kaj al la fajro, kiu ĉiam devis bruli, kiam la grafino venis hejmen de festeno.
 
 Gösta restis en la malhelo apud la pordo kaj silente rigardis la grafinon, dum la servistoj liberigis ŝin de la supervestoj.
@@ -4448,16 +3775,12 @@ Li ne povis kredi tion antaŭe. ŝi estis ja nur dancemo kaj gajeco. Kaj krome �
 
 Jes, li estos ŝia sklavo ĝis la morto: hundo kaj sklavo, kiel kutimis diri kapitano Kristian, kaj nenio pli.
 
-Gösta Berling sidis ĉe la pordo kaj kun falditaj manoj faris ian diservon. De tiu tago, kiam li unuafoje sentis la fajrolangon de inspiro flami super si, li ne spertis tian sanktecon en 191
-
-GÖSTA BERLING
+Gösta Berling sidis ĉe la pordo kaj kun falditaj manoj faris ian diservon. De tiu tago, kiam li unuafoje sentis la fajrolangon de inspiro flami super si, li ne spertis tian sanktecon en
 
 
 sia animo. Li ne lasis ĝeni sin kvankam grafo Dohna envenis kun amaso da homoj, kiuj blasfemis kaj lamentis pro la pa-jacaĵo de la kavaliroj.
 
-Li lasis al Beerencreutz akcepti la ŝtormon. Hardita de multaj aventuroj tiu en flegma trankvilo staris ĉe la fajro. Li suprenmetis la piedon sur la kamenkradon, apogis la kubuton sur la genuo kaj la mentonon sur la mano kaj rigardis la en-
-
-ŝtormantojn.
+Li lasis al Beerencreutz akcepti la ŝtormon. Hardita de multaj aventuroj tiu en flegma trankvilo staris ĉe la fajro. Li suprenmetis la piedon sur la kamenkradon, apogis la kubuton sur la genuo kaj la mentonon sur la mano kaj rigardis la enŝtormantojn.
 
 ”Jen, kion signifas ĉio ĉi?” la malgranda grafo tondris al li.
 
@@ -4480,9 +3803,6 @@ La malgranda grafo rektigis sian rigidan korpon kaj streĉis supren sian maljunu
 La grafino ne suferis domaĝon, kaj per tio la afero povas esti finita.”
 
 ”Ne!” la grafo diris. ”Per tio ĝi ne povas esti finita. Estas mi, kiu respondas pri la agoj de mia edzino. Nun mi demandas, kial Gösta Berling ne turnis sin al mi por ricevi kompenson, kiam mia edzino ofendis lin.”
-
-
-GÖSTA BERLING
 
 
 Beerencreutz ridetis.
@@ -4508,9 +3828,6 @@ La juna grafino ne tuj komprenis. Kion oni rigardu kiel nenion? ŝia angoro, la 
 ”Silentu!” li diris. Kaj li rektigis sin por fari punparolon al ŝi. ”Ve al vi, ĉar vi, kiu estas virino, volis fari vin juĝanto de viroj!” li diras. ”Ve al vi, ĉar vi, kiu estas mia edzino, kuraĝas ofendi iun, kies manon mi volonte premas! Kiom koncernas vin, ke la kavaliroj metis la majorinon en arestejon? ĉu ili ne pravas? Vi neniel povas kompreni, kiel viro devas koleri en la profundo de sia animo, kiam li ekscias pri malfidelo de virinoj. ĉu vi mem intencas iri la malbonan vojon, ĉar vi defendas tian virinon?”
 
 
-GÖSTA BERLING
-
-
 ”Sed, Henrik …”
 
 ŝi ĝemis kiel infano kaj etendis la brakojn kvazaŭ por defendi sntraŭ la malbonaj vortoj. Eble ŝi neniam antaŭe aŭdis tiel malbonajn vortojn direktitaj al ŝi. ŝi estis tiel malforta inter tiuj krudaj viroj, kaj jen ŝia sola defendanto turnis sntraŭ ŝi. Neniam plu ŝia koro havos forton ĵeti lumon sur la mondon.
@@ -4519,9 +3836,7 @@ GÖSTA BERLING
 
 Gösta Berling atentis nun, kiam estis tro malfrue.
 
-Vere li ne sciis kion fari. Li tre emis helpi ŝin. Sed li ne kura-
-
-ĝis starigi sin inter edzon kaj edzinon.
+Vere li ne sciis kion fari. Li tre emis helpi ŝin. Sed li ne kuraĝis starigi sin inter edzon kaj edzinon.
 
 ”Kie estas Gösta Berling?” la grafo demandis.
 
@@ -4542,9 +3857,6 @@ Gösta restis ne sciante kion fari. La grafino staris tute pala; sed ŝi ne movi
 ”Iru!” la grafo diris.
 
 ”Henrik, mi ne povas.”
-
-
-GÖSTA BERLING
 
 
 ”Vi povas,” la grafo diris akre. ”Vi povas. Sed mi scias, kion vi volas. Vi volas devigi min batali kontraŭ tiu viro, pro tio ke vi kaprice ne ŝatas lin. Bone, se vi ne volas kompensi lin, mi faros tion. ĉiam plaĉas al vi, virinoj, se viroj estas mortigataj pro vi. Via estas la kulpo, sed vi ne volas rebonigi ĝin. Sekve mi devas fari tion. Mi duelos, mia grafino. Post kelkaj horoj mi estos sanga kadavro.”
@@ -4573,12 +3885,7 @@ Gösta ankoraŭ tenis siajn manojn sur la dorso. Li rigardis la situacion. Li pr
 
 ”Se vi ne akceptas la kompenson, kiun proponas mia edzino, tiam mi devos batali kontraŭ vi, Gösta Berling, kaj krome devos meti sur ŝin alian pli malfacilan punon.”
 
-La grafino skuis la ŝultrojn. ”Li ja estas freneza pro mal-195
-
-GÖSTA BERLING
-
-
-kuraĝo,” ŝi flustris. ”Lasu tion okazi! Estas sensignife, ke mi humiliĝos. Tion vi ja volis dum la tuta tempo.”
+La grafino skuis la ŝultrojn. ”Li ja estas freneza pro malkuraĝo,” ŝi flustris. ”Lasu tion okazi! Estas sensignife, ke mi humiliĝos. Tion vi ja volis dum la tuta tempo.”
 
 ”ĉu mi volis tion? ĉu vi kredas, ke mi volis tion? Nu, se mi ne havos manojn plu por kisi, tiam vi tamen vidos, ke mi ne volis tion,” li diris.
 
@@ -4592,12 +3899,7 @@ Antaŭ ol li trovis tempon por leviĝi, la grafino genuis apud li. ŝi prenis la
 
 Tiel li fariĝis por ŝi kiel revelacio de nekonata grandioze-co. Ke tiuj aferoj ankoraŭ povas okazi sur la tero, ke io tia povas okazi por ŝi! Ho, kia viro tamen estas tiu, kapabla fari ĉion, grandega en bono kiel en malbono, viro de la grandfaroj, de la fortaj vortoj kaj la brilaj agoj! Heroo, heroo, kreita el alia ŝtofo ol aliaj! Sklavo de kaprico, de momenta deziro, sovaĝa kaj terura, sed posedanto de furioza forto, evitanta nenion.
 
-ŝi estis tre premita dum la tuta vespero, vidis nenion krom malĝojo, kruelo kaj malkuraĝo. Nun ĉio estis forgesita. La juna grafino ree ĝojis pri la vivo. La diino de la krepusko es-196
-
-GÖSTA BERLING
-
-
-tis venkita. La juna grafino vidis lumon kaj kolorojn briligi la mondon.
+ŝi estis tre premita dum la tuta vespero, vidis nenion krom malĝojo, kruelo kaj malkuraĝo. Nun ĉio estis forgesita. La juna grafino ree ĝojis pri la vivo. La diino de la krepusko estis venkita. La juna grafino vidis lumon kaj kolorojn briligi la mondon.
 
 
 Estis en la sama nokto en la kavalira domo.
@@ -4615,9 +3917,6 @@ Tie estos radiaj salonoj kaj altaj turoj kun oritaj pintoj. Tio estos konvena lo
 Kiam li dum kelka tempo elokventis, jen kaj jen eksonis ronko malantaŭ la flavkvadrataj kurtenoj. Sed la plej multaj blasfemis kaj lamentis pri li kaj liaj malsaĝaĵoj.
 
 
-GÖSTA BERLING
-
-
 ”Homoj,” li tiam solene diras, ”mi vidas la verdan teron kovrita de homfaritaĵoj aŭ ruinoj de homfaritaĵoj. La pirami-doj pezas sur la tero, la babela turo traboris la ĉielon, la belaj temploj kaj la grizaj kasteloj leviĝis el la polvo. Sed el ĉio konstruita de homaj manoj, kio ne falis aŭ falos? Ho, homoj, ĵetu la masonilon kaj la argilformujon! Sternu la masonistan antaŭtukon sur via kapo kaj ekkuŝu por konstrui la helajn kastelojn de la revoj! Kiom utilas al la spirito temploj el ŝto-no kaj argilo? Lernu konstrui nepere eblajn kastelojn el revoj kaj vizioj!”
 
 Post tio li ridante iris ripozi.
@@ -4627,26 +3926,17 @@ Kiam la grafino post nelonge eksciis, ke la majorino estas liberigita, ŝi faris
 Per tio komenciĝis la longa amikeco inter ŝi kaj Gösta Berling.
 
 
-GÖSTA BERLING
-
-
-DEKUNUA ĉAPITRO
+DEKUNUA ĈAPITRO
 
 Fantomrakontoj
 
 Ho, infanoj de tempo estanta!
 
-Mi ne havas ion novan por rakonti al vi, nur tion, kio estas malnova kaj preskaŭ forgesita. Rakontojn mi havas el la infanĉambro, kie la etuloj sidis sur malaltaj taburetoj ĉirkaŭ la fabelrakontantino kun la blanka hararo, aŭ de la ŝtipfajro en ĉambro, kie terlaboristoj kaj farmetistoj sidis parolante, dum vaporo leviĝis el iliaj malsekaj vestoj kaj ili tiris tranĉilojn el ledaj ingoj ĉe la kolo por meti buteron sur dikan, molan panon, aŭ el la salono, kie maljunaj sinjoroj sidis en movi-
+Mi ne havas ion novan por rakonti al vi, nur tion, kio estas malnova kaj preskaŭ forgesita. Rakontojn mi havas el la infanĉambro, kie la etuloj sidis sur malaltaj taburetoj ĉirkaŭ la fabelrakontantino kun la blanka hararo, aŭ de la ŝtipfajro en ĉambro, kie terlaboristoj kaj farmetistoj sidis parolante, dum vaporo leviĝis el iliaj malsekaj vestoj kaj ili tiris tranĉilojn el ledaj ingoj ĉe la kolo por meti buteron sur dikan, molan panon, aŭ el la salono, kie maljunaj sinjoroj sidis en moviĝantaj balancoseĝoj kaj, vigligitaj de la vaporanta varmgrogo, parolis pri pasintaj tempoj.
 
-ĝantaj balancoseĝoj kaj, vigligitaj de la vaporanta varmgrogo, parolis pri pasintaj tempoj.
+Kiam en vintra vespero ĉe la fenestro staris infano, kiu aŭskultis al la fabelrakontantino, al la laboristoj, al la maljunaj sinjoroj, tiam ĝi vidis ne nubojn ĉe la rando de la ĉielo, sed la nuboj estis kavaliroj, kiuj en ŝanceliĝaj unuĉevalaj veturiloj flugas antaŭen sur la firmamento, la steloj estis la vakskandeloj, kiujn oni lumigas en la malnova grafa domo sur la terlango de Borg, kaj la ŝpinilo, kiu zumis en la apuda ĉambro, estas movigata de la maljuna Ulrika Dillner. ĉar la kapo de la infano estis plena de homoj el malnovaj tempoj. Por ili ĝi vivis, pri ili fantaziis.
 
-Kiam en vintra vespero ĉe la fenestro staris infano, kiu aŭ-
-
-skultis al la fabelrakontantino, al la laboristoj, al la maljunaj sinjoroj, tiam ĝi vidis ne nubojn ĉe la rando de la ĉielo, sed la nuboj estis kavaliroj, kiuj en ŝanceliĝaj unuĉevalaj veturiloj flugas antaŭen sur la firmamento, la steloj estis la vakskandeloj, kiujn oni lumigas en la malnova grafa domo sur la terlango de Borg, kaj la ŝpinilo, kiu zumis en la apuda ĉambro, estas movigata de la maljuna Ulrika Dillner. ĉar la kapo de la infano estis plena de homoj el malnovaj tempoj. Por ili ĝi vivis, pri ili fantaziis.
-
-Sed se oni sendis tian infanon, kies tuta animo estis saturita de rakontoj, tra la malhela subtegmentejo al la provizejo por alporti linon aŭ biskvitojn, tiam la piedetoj rapidegis, 199
-
-GÖSTA BERLING
+Sed se oni sendis tian infanon, kies tuta animo estis saturita de rakontoj, tra la malhela subtegmentejo al la provizejo por alporti linon aŭ biskvitojn, tiam la piedetoj rapidegis,
 
 
 tiam ĝi en fluga rapido venis malsupren sur la ŝtuparo, tra la vestiblo kaj en la kuirejon. ĉar tie supre en la mallumo ĝi devis pensi pri ĉiuj malnovaj historioj, kiujn ĝi aŭdis pri la malica uzinposedanto en Fors, pri tiu, kiu faris interkonsen-ton kun la diablo.
@@ -4661,12 +3951,7 @@ Kiam Sintram vivis sur la tero, li estis unu el tiuj, kies alvenon sciigas spiri
 
 Uf, teruraj homoj, kiujn serĉas la malbonaj spiritoj! Kiu estis tiu granda, nigra hundo, kiu aperis en Forsen la tempo de Sintram? i havis terurajn fajrerantajn okulojn kaj longan, sangogutantan langon, kiu tre elpendis el la spireganta faŭko.
 
-Iun tagon, kiam la terlaboristoj ĝuste estis en la kuirejo por tagmanĝi, ĝi gratis sur la pordo, kaj ĉiuj servistinoj kriis pro teruro, sed la plej granda kaj forta el la laboristoj kaptis bru-200
-
-GÖSTA BERLING
-
-
-lantan ŝtipon el la kameno kaj ĵetis ĝin en la faŭkon de la hundo.
+Iun tagon, kiam la terlaboristoj ĝuste estis en la kuirejo por tagmanĝi, ĝi gratis sur la pordo, kaj ĉiuj servistinoj kriis pro teruro, sed la plej granda kaj forta el la laboristoj kaptis brulantan ŝtipon el la kameno kaj ĵetis ĝin en la faŭkon de la hundo.
 
 Tiam ĝi forkuris kun terura blekego, flamoj, kaj fumo ŝprucis el ĝia buŝo, fajreroj kirliĝis ĉirkaŭ ĝi, kaj ĝiaj piedspuroj sur la vojo lumis kiel fajro.
 
@@ -4676,9 +3961,7 @@ Jes, vere la piedetoj devis rapidi por trakuri la grandan, malluman subtegmentej
 
 Amikoj, homidoj, vi, kiuj dancas, vi, kiuj ridas! Mi kore petas vin, dancu singarde, ridu milde, ĉar povos kaŭzi tiom da malfeliĉo, se viaj maldikplandaj silkŝuoj tretos sur sentemajn korojn anstataŭ sur malmolajn tabulojn, kaj via gaja, arĝent-sonora rido povos peli animon en malesperon.
 
-Certe estis tiel, ke la piedoj de la gejunuloj tro peze tretis sur la maljunan Ulrikan Dillner kaj la ridoj sonis tro memfi-de en ŝiaj oreloj, ĉar subite kaptis sin nekontraŭstarebla sopiro al la titoloj kaj dignoj de edziniĝinta virino. ŝi fine diris jes al la longa svatado de la malica Sintram, akompanis lin al Fors kiel lia edzino kaj vivis disigita de la malnovaj amikoj en 201
-
-GÖSTA BERLING
+Certe estis tiel, ke la piedoj de la gejunuloj tro peze tretis sur la maljunan Ulrikan Dillner kaj la ridoj sonis tro memfi-de en ŝiaj oreloj, ĉar subite kaptis sin nekontraŭstarebla sopiro al la titoloj kaj dignoj de edziniĝinta virino. ŝi fine diris jes al la longa svatado de la malica Sintram, akompanis lin al Fors kiel lia edzino kaj vivis disigita de la malnovaj amikoj en
 
 
 Berga, la malnovaj karaj okupoj kaj la malnova maltrankvilo pro ĉiutaga pano.
@@ -4695,9 +3978,7 @@ Sed ĉu ne estas kaj plorinde kaj ridinde? ĉu vi scias, kion ŝi ludas? Nur pol
 
 ŝi ne scipovas ion alian. Antaŭ ol ŝiaj fingroj rigidiĝis ĉir-kaŭ kirlilo kaj viandtranĉilo, ŝi lernis tiun solan polskon. i restas en ŝiaj fingroj, sed ŝi ne scias ludi alian pecon, nek funebran marŝon, nek pasian sonaton, eĉ ne iun melankolian popolkanton, nur tiun polskon.
 
-in ŝi ludas ĉiam, kiam ŝi havas ion por konfidi al la malnova piano. ŝi ludas ĝin kaj kiam ŝi volas plori kaj kiam ŝi 202
-
-GÖSTA BERLING
+in ŝi ludas ĉiam, kiam ŝi havas ion por konfidi al la malnova piano. ŝi ludas ĝin kaj kiam ŝi volas plori kaj kiam ŝi
 
 
 volas rideti. Kiam ŝi festis sian edziniĝon, ŝi ludis ĝin, kiam ŝi la unuan fojon venis en sian propran hejmon, kaj same nun.
@@ -4714,9 +3995,7 @@ La homoj malfacile lernas, ke ŝi estas sinjorino Sintram.
 
 La maljuna Ulrika Dillner ludas, kvazaŭ ŝi volus rompi la kordojn. Estas tiel multe por supervoĉi: ĝemkrioj de malriĉaj kamparanoj, malbenoj de elturmentitaj farmetistoj, mokridoj de obstinaj servistoj kaj unue kaj laste, la honto esti edzino de malica viro.
 
-Je tiuj tonoj Gösta Berling kondukis la junan grafinon Dohna en la dancon. Marianne Sinclaire kaj ŝiaj multaj admiran-toj dancis laŭ ĝi, kaj la majorino en Ekeby moviĝis laŭ ĝia takto, kiam la bela Altringer ankoraŭ vivis. ŝi vidas ilin paron 203
-
-GÖSTA BERLING
+Je tiuj tonoj Gösta Berling kondukis la junan grafinon Dohna en la dancon. Marianne Sinclaire kaj ŝiaj multaj admiran-toj dancis laŭ ĝi, kaj la majorino en Ekeby moviĝis laŭ ĝia takto, kiam la bela Altringer ankoraŭ vivis. ŝi vidas ilin paron
 
 
 post paro preterŝvebi, kunligitajn de juneco kaj beleco. Fluo de gajeco iris de ili al ŝi, de ŝi al ili. Estis ŝia polsko, kiu ardigis iliajn vangojn, radiigis iliajn okulojn. Nun ŝi estas disigita de ĉio tio. Sonegu la polsko — tiom da memoroj, tiom da dolĉaj memoroj por supervoĉi!
@@ -4737,12 +4016,7 @@ Sed en la posta momento ŝi kuŝas sveninta sur la planko.
 
 Ne estis ŝia edzo, kiu sidis en la seĝo, sed iu alia — tiu, kies nomon infanetoj ne kuraĝas diri, tiu, kiu timmortigus ilin, se ili renkontus lin en la soleca subtegmentejo.
 
-ĉu tiu, kies animo estis saturata per rakontoj, iam povos liberigi sin de ilia potenco? La nokta vento hurlas ekstere, fig-204
-
-GÖSTA BERLING
-
-
-arbeto35 kaj oleandro vipas la kolonojn de la balkono per siaj rigidaj folioj, la ĉielo volbiĝas nigra super la longaj montoj.
+ĉu tiu, kies animo estis saturata per rakontoj, iam povos liberigi sin de ilia potenco? La nokta vento hurlas ekstere, figarbeto35 kaj oleandro vipas la kolonojn de la balkono per siaj rigidaj folioj, la ĉielo volbiĝas nigra super la longaj montoj.
 
 Kaj mi, kiu sidas sola en la nokto kaj skribas, kun lumigita lampo kaj levita kurteno, mi kiu nun estas maljuna kaj devus esti prudenta, mi sentas timtremetojn rampi supren laŭ la spino same kiel kiam mi unuafoje aŭdis tiun ĉi historion, kaj mi senĉese devas levi la okulojn de la laboro por esplori, ĉu iu ne envenis kaj kaŝis sin tie en la angulo; mi devas iri sur la balkonon por rigardi, ĉu nigra kapo ne levas sin super la barilon. Neniam ĝi forlasas min, tiu timo, kiun vekas la malnovaj rakontoj, kiam la nokto estas malluma kaj la soleco profunda. Fine ĝi tiel superregas min, ke mi devas formeti la plumon, ekkuŝi en mia lito kaj tiri la kovrilon super la okulojn.
 
@@ -4757,9 +4031,6 @@ Aŭ ke vi ne restu senkonsilaj, kiam griza kapo klinas sin al via brusto por ric
 Kiom signifas la plendo de la junaj? Ili havas forton, ili havas esperon. Sed kia mizero estas, kiam la maljunaj homoj ploras, kia malespero, kiam tiuj, kiuj estis la apogo de viaj junaj tagoj, subiĝas en senpovan plendon!
 
 35 Figarbeto — Ficus elastica.
-
-
-GÖSTA BERLING
 
 
 Tie sidis Anna Stjärnhök kaj aŭskultis al maljuna Ulrika, kaj ŝi ne vidas elirejon por ŝi.
@@ -4778,9 +4049,7 @@ Sed Anna Stjärnhök venkis ŝian kontraŭstaron parte per ŝerco, parte per min
 
 ĉar ŝi havis bonan humoron kaj kuraĝan animon, tiu maljuna mastrumsklavino, ŝi ĉesis plori, kiam ili veturis preter Arvidstorp, ĉe Högberg ŝi jam ridis, kaj kiam ili veturis preter Munkeby, ŝi rakontadis, kiel estis en ŝia junaĝo, kiam ŝi servis ĉe la grafino en Svanaholm.
 
-Ili nun veturis en la solecan, hommalriĉan regionon norde de Munkeby, sur dekliva kaj ŝtona vojo. La vojo serĉis ĉiujn 206
-
-GÖSTA BERLING
+Ili nun veturis en la solecan, hommalriĉan regionon norde de Munkeby, sur dekliva kaj ŝtona vojo. La vojo serĉis ĉiujn
 
 
 altaĵojn, kiujn ĝi iel povis atingi, rampis al ilia supro en malrapida kurbiĝo, ĵetis sin malsupren en krutega deklivo, sed rapidis kiel eble plej rekte trans la ebenan valfundon por tuj trovi novan krutaĵon por transgrimpi.
@@ -4805,9 +4074,7 @@ Dume la sonorila tinto pli kaj pli proksimiĝis.
 
 ”Estas li, estas li! Mi konas liajn sonorilojn,” la maljuna Ulrika ĝemas.
 
-La tinto pli kaj pli proksimiĝas. Foje ĝi estas tiel nenature forta, ke Anna turnas sin por vidi, ĉu la ĉevalo de Sintram ne havas sian kapon tute ĉe ŝia sledo, foje ĝi formortas. Jen ili aŭdas ĝin dekstre de la vojo, jen maldekstre, sed ili ne vidas 207
-
-GÖSTA BERLING
+La tinto pli kaj pli proksimiĝas. Foje ĝi estas tiel nenature forta, ke Anna turnas sin por vidi, ĉu la ĉevalo de Sintram ne havas sian kapon tute ĉe ŝia sledo, foje ĝi formortas. Jen ili aŭdas ĝin dekstre de la vojo, jen maldekstre, sed ili ne vidas
 
 
 veturanton. Estas, kvazaŭ la sonorila tinto sola persekutus ilin.
@@ -4833,9 +4100,6 @@ Tiam ŝi haltas kaj iras el la sledo. Tio ĉi devas finiĝi. Kial ŝi fuĝu, kva
 Fine ŝi vidas ĉevalkapon aperi en la kreskanta krepusko kaj post la kapo venas tuta ĉevalo, tuta sledo, kaj en la sledo sidas Sintram.
 
 ŝi tamen rimarkas, ke ŝajnas, kvazaŭ ili alvenus, ne laŭ la ŝoseo, tiu sledo kaj tiu ĉevalo kaj tiu uzinposedanto, sed prefere kvazaŭ ili kreiĝus ĝuste antaŭ ŝiaj okuloj kaj aperus en la krepusko laŭ ilia formiĝo.
-
-
-GÖSTA BERLING
 
 
 Anna ĵetas la kondukrimenojn al Ulrika kaj iras renkonte al Sintram.
@@ -4865,16 +4129,11 @@ Rezigni, tio estas bona, kaj ami, tio estas malbona.”
 ”Jes ja, tiel estas, rezigni estas bone, sed ami estas malbone. La bona Dio ne ŝatas vidi la homojn feliĉaj. Li sendas lupojn post ili. Sed jen, se ne estus Dio, kiu faris tion, fraŭlino Anna? ĉu ne same bone povus esti mi, kiu vokis miajn grizajn ŝafidojn el la montoj de Dovre por ĉasi la junan viron kaj la junan virinon? Jen, se estus mi, kiu sendis la lupojn, ĉar mi ne volis perdi unu el la miaj! Imagu, se ne estus Dio, kiu faris tion!”
 
 
-GÖSTA BERLING
-
-
 ”Vi ne logu min al duboj pri tiu afero,” Anna diras per malforta voĉo. ”Tiam mi estus perdita.”
 
 ”Jen rigardu,” Sintram diras kaj klinas sin super la dormanta Gösta Berling, ”rigardu lian malgrandfingron! Tiu vundeto neniam saniĝos. Tie ni prenis sangon, kiam li subskribis la kontrakton. Li estas mia. Estas speciala forto en sango. Li estas mia, nur la amo povos liberigi lin, sed se mi povos reteni lin, li fariĝos delikata.”
 
-Anna Stjärnhök bataladas por liberiĝi de la sorĉo, kiu kaptis ŝin. ĉio tio estas ja frenezaĵo, frenezaĵo. Neniu povas for-
-
-ĵuri sian animon al la malica tentanto. Sed ŝi ne povas regi siajn pensojn, la krepusko kuŝas tiel peze ĉirkaŭ ŝi, la arbaro staras tiel nigra kaj silenta. ŝi ne sukcesas eviti la korpreman teruron de tiu momento.
+Anna Stjärnhök bataladas por liberiĝi de la sorĉo, kiu kaptis ŝin. ĉio tio estas ja frenezaĵo, frenezaĵo. Neniu povas forĵuri sian animon al la malica tentanto. Sed ŝi ne povas regi siajn pensojn, la krepusko kuŝas tiel peze ĉirkaŭ ŝi, la arbaro staras tiel nigra kaj silenta. ŝi ne sukcesas eviti la korpreman teruron de tiu momento.
 
 ”ĉu vi opinias,” la uzinposedanto daŭrigas, ”ke ne restas ĉe li multe por detrui? Ne kredu tion. ĉu li turmentis kamparanojn, ĉu li perfidis malriĉajn amikojn, ĉu li ludis false? ĉu li estis, fraŭlino Anna, amanto de edziniĝintaj virinoj?”
 
@@ -4888,12 +4147,7 @@ Sintram grimacis.
 
 ”Kion mi volas havi? Ho, mntentigas malmulto. Mi volas havi nur tiun maljunan virinon en via sledo, fraŭlino Anna.”
 
-”Satano, tentanto,” Anna krias, ”foriru de mi! ĉu mi per-210
-
-GÖSTA BERLING
-
-
-fidu malnovan amikinon kiu fidas al mi! ĉu mi transdonu ŝin al vi, por ke vi turmentu ŝin ĝis freneziĝo!”
+”Satano, tentanto,” Anna krias, ”foriru de mi! ĉu mi perfidu malnovan amikinon kiu fidas al mi! ĉu mi transdonu ŝin al vi, por ke vi turmentu ŝin ĝis freneziĝo!”
 
 ”Jen, jen, jen, trankvilon, fraŭlino Anna! Pripensu la aferon! Tie ĉi estas juna, ĉarma viro, kaj tie maljuna elĉerpita virinaĉo. Unu el ili mi devas havi. Kiun vi volas permesi al mi?”
 
@@ -4910,9 +4164,6 @@ Li klinas sin por levi Göstan, sed tiam Anna klinas sin ĝis lia vizaĝo, akre 
 ”En la nomo de Dio, veturu hejmen! ĉu vi ne scias, kiu sidas en la balancoseĝo en la salono kaj atendas vin? ĉu vi ku-raĝas atendigi tiun sinjoron?”
 
 Vidi kiel tiuj vortoj efikis al la maliculo estis por Anna preskaŭ la kulmino de la teruraĵoj de tiu tago. Li altiras la kondukrimenojn, turnas kaj veturas hejmen, pelante la ĉevalon en kuregon per vipbatoj kaj sovaĝaj krioj. Malsupren sur la terura deklivo pasas la vivodanĝera veturo, dum longa vico da fajreroj krakas sub glitiloj kaj hufoj en la maldika marta neĝo-kovraĵo.
-
-
-GÖSTA BERLING
 
 
 Anna Stjärnhök kaj Ulrika Dillner staras solaj sur la vojo, sed ili diras nenion. Urika timtremetas pro la sovaĝaj rigardoj de Anna, kaj tiu havas nenion por diri al la maljuna kompatindulino, pro kiu ŝi rezignis sian amaton.
@@ -4932,22 +4183,14 @@ Ho, infanoj de tempo estanta!
 
 Mi ja ne postulas, ke iu kredu tiujn malnovajn rakontojn.
 
-Ili ja ne povas esti io alia ol mensogo kaj elpensaĵoj. Sed la pento, kiu balanciĝas tien kaj reen sur la koro, ĝis tiu ĝemas kiel la planktabuloj sub la balanciĝanta seĝo en la salono de Sintram, sed la dubo, kiu sonoras por la oreloj, kiel la sonori-212
-
-GÖSTA BERLING
-
-
-loj tintis por Anna Stjärnhök en la soleca arbaro, kiam ili fari-
+Ili ja ne povas esti io alia ol mensogo kaj elpensaĵoj. Sed la pento, kiu balanciĝas tien kaj reen sur la koro, ĝis tiu ĝemas kiel la planktabuloj sub la balanciĝanta seĝo en la salono de Sintram, sed la dubo, kiu sonoras por la oreloj, kiel la sonoriloj tintis por Anna Stjärnhök en la soleca arbaro, kiam ili fari-
 
 ĝos mensogo kaj elpensaĵo?
 
 Ho, ke ili povu fariĝi tio!
 
 
-GÖSTA BERLING
-
-
-DEKDUA ĉAPITRO
+DEKDUA ĈAPITRO
 
 La historio de Ebba Dohna
 
@@ -4965,9 +4208,7 @@ Sed tamen mi diras al vi: ne iru tien!
 
 Ne, estas pli bone ne vidi la belan terlangon, ĉar en Borg la feliĉo ne povas loĝi. Sciu, kiom ajn riĉa, kiom ajn feliĉa estu vi, kiu enloĝiĝus tien, tiuj malnovaj, larmosaturitaj plankoj baldaŭ trinkus ankaŭ viajn larmojn, kaj tiuj muroj, kiuj povus redoni tiom da ĝemoj, kolektus ankaŭ viajn suspirojn.
 
-Malfavora sorto regas tiun belan bienon. Estas, kvazaŭ la malfeliĉo estus enterigita tie sed ne trovus ripozon en sia tombo, sed ĉiam releviĝus el ĝi por angorigi la vivantojn. Se mi estus estro de Borg, tiam mi traserĉus la teron tie, kaj la 214
-
-GÖSTA BERLING
+Malfavora sorto regas tiun belan bienon. Estas, kvazaŭ la malfeliĉo estus enterigita tie sed ne trovus ripozon en sia tombo, sed ĉiam releviĝus el ĝi por angorigi la vivantojn. Se mi estus estro de Borg, tiam mi traserĉus la teron tie, kaj la
 
 
 ŝtongrundon de la picea parko kaj la kelfundon de la loĝodomo kaj la fruktodonan humon sur la kampoj, ĝis mi trovus la vermoroditan kadavron de la sorĉistino, kaj tiam mi donus al ĝi tombon en sanktigita tero en la tombejo de Svartsjö. Kaj je la enterigo mi ne malavarus pri la pago al la sonorigisto, sed la sonoriloj sonus longe kaj forte por ĝi, kaj al pastro kaj sakristiano mi sendus riĉajn donacojn, por ke ili per parolo kaj kanto por eterne ripozigu ĝin.
@@ -4978,14 +4219,9 @@ Poste neniu rajtus surpaŝi tiun kondamnitan lokon, nur al la nigraj monedoj el 
 
 Tamen mi certe angorus, kiam mi vidus la flamojn envolvi la tegmenton, kiam dika fumo, ruĝiĝanta pro la fajrolumo kaj plena de flajreroj, ruliĝis el la malnova grafdomo. En la krakado kaj susuro mi kredus aŭdi la plendon de senhejmaj memoroj, sur la bluaj suproj de la flamoj mi kredus vidi ĝeni-tajn spiritojn ŝvebi. Mi pensus pri tio, kiel beligas la ĉagreno, kiel ornamas la malfeliĉo, kaj plorus, kvazaŭ templo al malnovaj dioj estus kondamnita al detruo.
 
-Tamen, silentu vi, kiu grakas pri malfeliĉoj! Ankoraŭ Borg kuŝas brilanta sur la altaĵo de la terlango, ŝirmita de sia parko el grandegaj piceoj, kaj la neĝokovritaj kampoj pli malsupre brilas en la pika sunlumo de la marta tago, ankoraŭ aŭdi-
-
-ĝas inter ĝiaj muroj la gaja rido de grafino Elisabet.
+Tamen, silentu vi, kiu grakas pri malfeliĉoj! Ankoraŭ Borg kuŝas brilanta sur la altaĵo de la terlango, ŝirmita de sia parko el grandegaj piceoj, kaj la neĝokovritaj kampoj pli malsupre brilas en la pika sunlumo de la marta tago, ankoraŭ aŭdiĝas inter ĝiaj muroj la gaja rido de grafino Elisabet.
 
 Dimanĉe ŝi iras al la preĝejo de Svartsjö, kiu staras proksime al Borg, kaj kolektas malgrandan tagmanĝan societon.
-
-
-GÖSTA BERLING
 
 
 La familio de la leĝisto en Munkerud kutime akompanas ŝin, same tiu de la kapitano en Berga, de la helppastro kaj la malica Sintram. Se Gösta Berling venas al Svartsjö, irante sur la glacio de Löven, tiam ŝi invitas ankaŭ lin. Kial ŝi ne invitu Göstan Berling?
@@ -4994,9 +4230,7 @@ Verŝajne ŝi ne scias, ke la kalumnio komencas flustri pri tio, ke Gösta tiel 
 
 Eble li venas ankaŭ por drinki kaj kartludi ĉe Sintram, sed tion oni ne tre atentas, ĉiuj scias, ke lia korpo estas el fero, sed estas alia afero pri lia koro. Apenaŭ iu kredas, ke li povas sen enamiĝo vidi paron da briletantaj okuloj kaj helan hararon, kiu krispiĝas ĉirkaŭ blanka frunto.
 
-La juna grafino estas bona al li. Tio neniel estas neordinara; ŝi estas bona al ĉiuj. ŝi metas ĉifonajn almozulidojn sur sian genuon, kaj kiam sur la ŝoseo ŝi preterveturas maljunan kom-patindulon, ŝi igas la veturigiston haltigi kaj prenas la malri-
-
-ĉan piediranton en sian sledon.
+La juna grafino estas bona al li. Tio neniel estas neordinara; ŝi estas bona al ĉiuj. ŝi metas ĉifonajn almozulidojn sur sian genuon, kaj kiam sur la ŝoseo ŝi preterveturas maljunan kom-patindulon, ŝi igas la veturigiston haltigi kaj prenas la malriĉan piediranton en sian sledon.
 
 Gösta kutimas sidi en la malgranda blua kabineto, kie oni havas la belegan vidon al la lago, kaj legas poezion por ŝi. Ne povas esti io malbona en tio. Li ne forgesas, ke ŝi estas grafino kaj li senhejma aventurulo, kaj estas bone por li interrilati kun iu, kiu ŝajnas al li alta kaj sankta. Kun la sama sukceso li povus enamiĝi al la reĝino de ŝeba, kiu ornamas la galerian barieron en la preĝejo de Svartsjö, kiel al ŝi.
 
@@ -5004,9 +4238,7 @@ Li kontentiĝas servi ŝin, kiel paĝio servas sian altan estri-non, ligi ŝiajn
 
 ĝusta viro por trovi sian feliĉon en romantika, sendanĝera amfantazio.
 
-La juna grafo estas silenta kaj serioza, kaj Gösta estas gaja 216
-
-GÖSTA BERLING
+La juna grafo estas silenta kaj serioza, kaj Gösta estas gaja
 
 
 kiel birdo. Li estas tia kunulo, kian la juna grafino deziras.
@@ -5029,12 +4261,7 @@ Jes, unu, kiu venenas ŝian animon.
 
 ŝi deziras signojn, ŝi deziras miraklojn. ŝi esplore rigardas ĉielon kaj teron. Sed ŝi ne vidas fingron etendi sin el la ĉielo por montri ŝian vojon. Kolonoj nuba kaj fajra ne iras antaŭ ŝi.
 
-Kiam ŝi nun sidas kontraŭ la grafino en la blua kabineto, ŝiaj rigardoj falas sur malgrandan bukedon de bluaj anemonoj, kiun la grafino tenas en sia blanka mano. Kiel fulmo fra-217
-
-GÖSTA BERLING
-
-
-pas ŝin, ke ŝi sclas, kie tiuj anemonoj kreskis, kaj ŝi scias, kiu kolektis ilin.
+Kiam ŝi nun sidas kontraŭ la grafino en la blua kabineto, ŝiaj rigardoj falas sur malgrandan bukedon de bluaj anemonoj, kiun la grafino tenas en sia blanka mano. Kiel fulmo frapas ŝin, ke ŝi sclas, kie tiuj anemonoj kreskis, kaj ŝi scias, kiu kolektis ilin.
 
 ŝi ne bezonas demandi. Kie en la tuta regiono kreskas blu-anemonoj jam komence de marto krom en la betula arbareto, kiu staras sur la borda deklivo ĉe Ekeby?
 
@@ -5047,9 +4274,6 @@ pas ŝin, ke ŝi sclas, kie tiuj anemonoj kreskis, kaj ŝi scias, kiu kolektis i
 Tion ŝi pensas kaj ŝi komencas batalon kontraŭ la bluaj steletoj. En la salono la maljunaj sinjorinoj klinas siajn respektindajn kapojn al la seĝodorsoj kaj suspektas nenion, la sinjoroj en kvieto kaj trankvilo fumas siajn pipojn en la ĉambro de la grafo, ĉio estas paco, nur en la blua kabineto furiozas sovaĝa batalo.
 
 Kiel bone ili agas, tiuj, kiuj tenas siajn manojn for de la glavo, kiuj komprenas trankvile atendi, kiuj trankviligas siajn korojn kaj lasas Dion aranĝi! ĉiam la maltrankvila koro eraras. ĉiam malbono igas la malbonon pli forta.
-
-
-GÖSTA BERLING
 
 
 Sed Anna Stjärnhök kredas, ke nun ŝi fine vidis fingron sur la ĉielo.
@@ -5072,9 +4296,7 @@ Tiam parolas Anna Stjärnhök, parolas en mallongaj stro-foj kiel malnova himnar
 
 ”Kio estas amo de kavaliro, kio estas fidelo de kavaliro?
 
-Unu amatinon hodiaŭ, alian morgaŭ, unu en oriento, unu en okcidento. Nenio estas por li tro alta, nenio tro malalta: unu tagon filinon de grafo, alian tagon filinon de almozulo. Nenio sur la tero estas tiel vasta kiel lia koro. Sed kompatinda, kompatinda tiu, kiu amas kavaliron! ŝi devas serĉi lin, kiam li kuŝas ebria ĉe la vojrando. ŝi devas silente rigardi, kiam li ĉe la ludtablo detruas la hejmon de ŝiaj infanoj. ŝi devas toleri, ke li amindumas kun aliaj virinoj. Ho, Elisabet, se kavaliro petas honestan virinon pri danco, ŝi devus rifuzi, kaj se li donacas al ŝi florbukedon, ŝi devus ĵeti la florojn sur la teron 219
-
-GÖSTA BERLING
+Unu amatinon hodiaŭ, alian morgaŭ, unu en oriento, unu en okcidento. Nenio estas por li tro alta, nenio tro malalta: unu tagon filinon de grafo, alian tagon filinon de almozulo. Nenio sur la tero estas tiel vasta kiel lia koro. Sed kompatinda, kompatinda tiu, kiu amas kavaliron! ŝi devas serĉi lin, kiam li kuŝas ebria ĉe la vojrando. ŝi devas silente rigardi, kiam li ĉe la ludtablo detruas la hejmon de ŝiaj infanoj. ŝi devas toleri, ke li amindumas kun aliaj virinoj. Ho, Elisabet, se kavaliro petas honestan virinon pri danco, ŝi devus rifuzi, kaj se li donacas al ŝi florbukedon, ŝi devus ĵeti la florojn sur la teron
 
 
 kaj treti ilin; se ŝi amas lin, ŝi devus prefere morti ol edziniĝi kun li. Troviĝis inter la kavaliroj iu, kiu estis eksigita pastro.
@@ -5095,12 +4317,7 @@ Li perdis la pastroveston pro drinkado. Li estis ebria en la preĝejo. Li fordri
 
 Jen li venis tien ĉi al Borg. Li haltis tuj interne de la pordo, eksidis sur la rando de la seĝo, silentis ĉe la tablo kaj fuĝis en la parkon, kiam venis vizitantoj.
 
-Sed tie ekstere sur la solecaj vojoj li ofte renkontis la junan Ebban Dohna. ŝi ne amis la tumultajn festojn, kiuj bruis en la salonoj de Borg, post kiam la grafino vidviniĝis. ŝi ne rigardis la mondon per spitemaj okuloj. ŝi estis tiel milda, tiel timida. Kiam ŝi jam fariĝis deksepjara, ŝi ankoraŭ estis delikata infano, sed ŝi tamen estis tre bela kun siaj brunaj okuloj, kaj la eta, delikata ruĝiĝo sur la vangoj. ŝia malforta, svelta kor-220
-
-GÖSTA BERLING
-
-
-po iomete kliniĝis antaŭen. ŝia mallarĝa mano ŝtelmetis sin en la vian per timema premo. ŝia buŝeto estis la plej silenta el buŝoj kaj la plej serioza. Ho, ŝia voĉo, ŝia dolĉa voĉeto, kiu elparolis la vortojn malrapide kaj bone, sed kiu neniam sonoris junece freŝa, junece varma, sed treniĝis en malfortaj akcentoj kiel la finakordoj de laca muzikisto!
+Sed tie ekstere sur la solecaj vojoj li ofte renkontis la junan Ebban Dohna. ŝi ne amis la tumultajn festojn, kiuj bruis en la salonoj de Borg, post kiam la grafino vidviniĝis. ŝi ne rigardis la mondon per spitemaj okuloj. ŝi estis tiel milda, tiel timida. Kiam ŝi jam fariĝis deksepjara, ŝi ankoraŭ estis delikata infano, sed ŝi tamen estis tre bela kun siaj brunaj okuloj, kaj la eta, delikata ruĝiĝo sur la vangoj. ŝia malforta, svelta korpo iomete kliniĝis antaŭen. ŝia mallarĝa mano ŝtelmetis sin en la vian per timema premo. ŝia buŝeto estis la plej silenta el buŝoj kaj la plej serioza. Ho, ŝia voĉo, ŝia dolĉa voĉeto, kiu elparolis la vortojn malrapide kaj bone, sed kiu neniam sonoris junece freŝa, junece varma, sed treniĝis en malfortaj akcentoj kiel la finakordoj de laca muzikisto!
 
 ŝi ne estis kiel aliaj. ŝia piedo tuŝis la teron tiel malpeze, tiel silente, kvazaŭ ŝi estus nur timema fuĝinto sur la tero. ŝi tenis siajn palpebrojn mallevitaj por ne esti ĝenata en la rigardado de la belegeco de la internaj vidaĵoj. ŝia animo forturnis sin de la tero, jam kiam ŝi estis infano.
 
@@ -5110,9 +4327,7 @@ Sed ankoraŭ la mano de la knabineto kuŝis sur la jupo de la maljunulino, kaj �
 
 Tiam la maljunulino tre trankvile komencis rakonti pri infaneto en Judlando, pri infaneto, kiu naskiĝis por fariĝi granda reĝo. La anĝeloj plenigis la teron per glorkantoj, kiam ĝi naskiĝis. Reĝoj de Oriento venis, gviditaj de la stelo de la ĉie-lo, kaj donacis al ĝi oron kaj olibanon, kaj maljunaj viroj kaj virinoj antaŭdiris ĝian gloron. Tiu infano kreskis pli bela kaj saĝa ol ĉiuj aliaj infanoj. Jam kiam ĝi estis dekdujara, lia saĝo estis pli granda ol tiu de la ĉefpastroj kaj skribistoj.
 
-Jen la maljunulino rakontis al ŝi pri la plej bela, kion la tero 221
-
-GÖSTA BERLING
+Jen la maljunulino rakontis al ŝi pri la plej bela, kion la tero
 
 
 vidis, pri lia vivo de tiu infano, kiam ĝi estis inter la homoj, la malbonaj homoj, kiuj ne volis rekoni ĝin kiel sian reĝon.
@@ -5138,9 +4353,6 @@ Ho, kiel la senvivaĵoj malĝojis pro lia morto!
 La suno perdis sian lumon, la montoj tremis, la kurteno en la templo disŝiriĝis kaj la tomboj malfermiĝis por la mortintoj, por ke ili eliru por montri sian malĝojon.
 
 
-GÖSTA BERLING
-
-
 Tiam la kapo de la etulino kuŝis sur la genuoj de la avino, kaj ŝi tiel ploris, ke la koro povus krevi.
 
 ’Ne ploru, etulino, la bona reĝo releviĝis el sia tombo kaj iris al sia patro en la ĉielo.’
@@ -5155,9 +4367,7 @@ Sed tio ne konsolis ŝin. ŝi ploris tiel senhelpe kaj nehaltigeble, kiel infano
 
 Tiu frakasa malĝojo preskaŭ timigis la maljunulinon.
 
-’Diru, avino, diru, ke vi ne rakontis ĝuste! Diru, ke ne fini-
-
-ĝis tiel! Diru, ke ili ne estis tiel malbonaj al la bona reĝo! Diru, ke li ricevis regnon sur la tero!’
+’Diru, avino, diru, ke vi ne rakontis ĝuste! Diru, ke ne finiĝis tiel! Diru, ke ili ne estis tiel malbonaj al la bona reĝo! Diru, ke li ricevis regnon sur la tero!’
 
 ŝi metis stajn brakojn ĉirkaŭ la maljunulinon kaj petis ŝin kun ankoraŭ fluantaj larmoj.
 
@@ -5170,9 +4380,6 @@ Tiam la vizaĝo de la etulino heliĝis sub la larmoj.
 ’Tronon el oro.’
 
 ’Kaj servistojn kaj korteganojn kaj oran kronon?’
-
-
-GÖSTA BERLING
 
 
 ’Li ricevos tion.’
@@ -5198,9 +4405,6 @@ Kiam la vesperruĝo malfermis la pordon de la okcidento, tiam ŝi demandis sin, 
 ŝi ankaŭ ŝatis pensi pri la piaj sinjorinoj, kiuj metis vualon sur sian kapon kaj neniam levis la rigardojn de la tero sed enfermis sin en la trankvilo de la grizaj mona˛inejoj en la mallumo de la ĉeletoj por povi ĉiam vidi la radiajn viziojn, kiuj aperas en la nokto de la animo.
 
 
-GÖSTA BERLING
-
-
 Tia ŝi kreskis, tia ŝi estis, kiam ŝi kaj la nova guvernisto renkontiĝis sur la solecaj vojetoj de la parko.
 
 Mi ne volas diri pli da malbono pri li ol mi devas. Mi volas kredi, ke li amis tiun infanon, kiu baldaŭ elektis lin kiel gvidanton dum solecaj promenoj. Mi kredas, ke lia animo reprenis siajn flugilojn, kiam li iris apud tiu silenta knabino, kiu neniam antaŭe konfidis sin al iu alia. Mi pensas, ke li sentis sin kiel infano, bona, pia, virta.
@@ -5218,9 +4422,6 @@ Io en Anna Stjärnhök komencas timi pro tio, kion ŝi faras.
 ŝi komencas pensi, ke ŝi ne diros al la grafino, kiu estas tiu viro, pri kiu ŝi parolas, kaj ŝi lasos ŝin kredi, ke li mortis.
 
 
-GÖSTA BERLING
-
-
 ”Tiutempe li ankoraŭ estis juna,” ŝi rekomencas sian rakonton. ”La ĝojo pri la vivo relumiĝis en li. La doto de belaj vortoj estis lia, kaj tiu de fajra, facilentuziasma koro.
 
 Venis vespero, kiam li parolis kun Ebba Dohna pri amo. ŝi ne respondis. ŝi diris al li nur tion, kion ŝia avino rakontis al ŝi en la vintra vespero, kaj priskribis por li la landon de siaj revoj. Poste ŝi igis lin fari promeson. ŝi igis lin ĵuri, ke li fariĝos unu el la sciigantoj de la vortoj de Dio, unu el tiuj, kiuj preparos la vojon de la Sinjoro por plirapidigi lian alvenon.
@@ -5231,9 +4432,7 @@ Pli da vortoj ne estis bezonataj inter ili. Estis klare, ke ŝi iam fariĝos lia
 
 Sed vi komprenas, ke lia peko estis tio, ke li forgesis kaj la pasintan tempon kaj la estontan. Ke li estas malriĉa kaj senranga, tion li sendomaĝe povus forgesi, sed li tamen devus scii, ke iam venos tago, kiam en ŝia animo amo levos sntraŭ amo, tero kontraŭ ĉielo, kaj tiam ŝi devos elekti inter li kaj la radia reganto de la miljara regno. Kaj ŝi ne estis homo, kiu povus elteni tian batalon.
 
-Pasis unu somero, unu aŭtuno, unu vintro. Kiam la printempo venis kaj la glacio degelis, Ebba Dohna malsaniĝis. La 226
-
-GÖSTA BERLING
+Pasis unu somero, unu aŭtuno, unu vintro. Kiam la printempo venis kaj la glacio degelis, Ebba Dohna malsaniĝis. La
 
 
 frosto elteriĝis en la valoj, estis glacio sur la deklivoj, la lagoj estis nesekuraj, sur la vojoj estis neeble veturi kaj per sledo kaj per ĉaro.
@@ -5253,9 +4452,6 @@ Anna Stjärnhök subite eksilentas.
 ”Nu kaj poste, kaj poste do?” grafino Elisabet demandas.
 
 ”Jen povas sufiĉi,” Anna respondas, ĉar ŝi estas unu el tiuj homoj, kiuj vivas sub la angoro kaj timo de la dubo. ŝi nun vivis tiel dum tuta semajno. ŝi ne scias, kion ŝi volas. Tio, kio en unu momento ŝajnas al ŝi prava, en la alia fariĝas malprava. Nun ŝi deziras, ke ŝi tute ne estus komencinta tiun historion.
-
-
-GÖSTA BERLING
 
 
 ”Mi komencas kredi, ke vi volas moki min, Anna. ĉu vi ne komprenas, ke mi devas aŭdi la finon de tiu historio?”
@@ -5288,9 +4484,7 @@ Kiam ŝi aŭdis tiujn vortojn, ŝi admone levis siajn brunajn okulojn al la patr
 
 ŝi ne volis paroli al sia patrino pri la miljara regno de siaj revoj, por kies realigo ŝia amato devus helpi ŝin.
 
-’Ebba,’ la grafino diris, ’se vi amas lin, tiam vi ne atentu pri 228
-
-GÖSTA BERLING
+’Ebba,’ la grafino diris, ’se vi amas lin, tiam vi ne atentu pri
 
 
 tio, kia li estis, sed edziniĝu kun li. Edzo de grafino Dohna fariĝas sufiĉe riĉa kaj potenca, por ke oni pardonu liajn pekojn de junaĝo.’
@@ -5312,9 +4506,6 @@ Sed ĉion ĉi ŝi diras nur tial, ĉar ŝi ne toleras, ke iu kontraŭas ŝian vo
 La junulino longe restis sur la sofo, kiam la grafino forlasis ŝin. ŝi trapasis sian lukton. Tero levis sntraŭ ĉielo, amo kontraŭ amo, sed la amo de ŝia infanaĝo venkis. Kie ŝi kuŝis, ĝuste sur tiu ĉi sofo, ŝi vidis la okcidentan ĉielon ardi de belega sunsubiro. ŝi pensis, ke tio estas saluto de la bona reĝo, kaj ĉar ŝi ne povos resti fidela al li, se ŝi vivos, ŝi decidis morti. Ion alian ŝi ne povis fari, ĉar ŝia patrino volis, ke ŝi apartenu al iu, kiu ne povos fariĝi servisto de la bona reĝo.
 
 ŝi iris al la fenestro, malfermis ĝin kaj lasis la malvarman, malsekan aeron de la krepusko tramalvarmigi ŝian kompatindan malfortan korpon.
-
-
-GÖSTA BERLING
 
 
 Estis facile por ŝi kaŭzi al si morton. i estus neevitebla, se la malsano rekomenciĝis, kaj ĝi revenis.
@@ -5342,9 +4533,6 @@ Anna Stjärnhök komencis ridi.
 ”Vi estas malica, Anna.”
 
 ”Povas esti. Ankaŭ mi ne estas tro feliĉa, mi povas diri. —
-
-
-GÖSTA BERLING
 
 
 Sed la sinjorinoj vekiĝis kaj la sinjoroj venis en la salonon. Ni iru tien!”
@@ -5376,9 +4564,6 @@ ombroj ŝtele sur brilan, roskovritan herbon elvagas.
 Tiel al la hela spaco de ĉiel,
 
 el la korpa mallum’ sopiras la anim’, al lok’, kiun ĝi apenaŭ imagas,
-
-
-GÖSTA BERLING
 
 
 al la hela, palblua, alta for’,
@@ -5416,9 +4601,6 @@ Jen ŝi metis sur mian ŝultron sian kapon kun mola harar’, ŝi, kiu amis min,
 En la animon de hom’ amata mia senhejma animo iros, kaj mi venos kaj loĝos en vi.”
 
 
-GÖSTA BERLING
-
-
 Ho angoro! Krevi volas koro mia.
 
 ĉu ŝi mortos? ĉu estas la lasta nokto ŝia?
@@ -5454,9 +4636,6 @@ Sed kun senfina malfacilo unu vorto transiras ŝiajn lipojn.
 ”Elisabet, tamen silentu!”
 
 
-GÖSTA BERLING
-
-
 ”La pastro-drinkulo devas for el mia domo!”
 
 ”Anna, Anna,” Gösta demandas, ”kion ŝi volas diri?”
@@ -5474,9 +4653,7 @@ La grafino kunmordas la dentojn kaj bridas sian emocion.
 ”Sinjoro Berling,” ŝi diras kaj iras al li, ”vi havas mirindan povon igi la homojn forgesi, kiu vi estas. Mi eksciis tion nur hodiaŭ. Mi ĵus aŭdis la rakonton pri la morto de Ebba Dohna, kaj ke estis la sciigo, ke ŝi amas neindulon, kiu mortigis ŝin.
 
 
-Via poemo komprenigis al mi, ke tiu viro estas vi. Mi ne povas kompreni, kiel iu kun tiuj pasintaĵoj, kiujn vi travivis, povas rajti montri sin en akompano de honesta virino. Mi ne povas kompreni tion, sinjoro Berling. ĉu mi nun parolas sufi-
-
-ĉe klare?”
+Via poemo komprenigis al mi, ke tiu viro estas vi. Mi ne povas kompreni, kiel iu kun tiuj pasintaĵoj, kiujn vi travivis, povas rajti montri sin en akompano de honesta virino. Mi ne povas kompreni tion, sinjoro Berling. ĉu mi nun parolas sufiĉe klare?”
 
 ”Jes, grafino. Mi volas diri nur unu vorton kiel defendon.
 
@@ -5486,12 +4663,7 @@ Li foriras.
 
 Kaj en la sama momento grafino Dohna metas sian mallarĝan piedon sur la malgrandan bukedon kun la bluaj steletoj.
 
-”Vi faris, kion mi volis,” Anna Stjärnhök malmole diras al la grafino, ”sed jen ankaŭ finiĝis nia amikeco. Ne kredu, ke mi povas pardoni, ke vi estis kruela al li. Vi forigis lin, mokis kaj ofendis lin, sed mi volus akompani lin en malliberejon, al malhonora benko, se tiel estus. Estas mi, kiu gardos lin, pro-234
-
-GÖSTA BERLING
-
-
-tektos lin. Vi faris, kion mi volis, sed mi neniam pardonos vin.”
+”Vi faris, kion mi volis,” Anna Stjärnhök malmole diras al la grafino, ”sed jen ankaŭ finiĝis nia amikeco. Ne kredu, ke mi povas pardoni, ke vi estis kruela al li. Vi forigis lin, mokis kaj ofendis lin, sed mi volus akompani lin en malliberejon, al malhonora benko, se tiel estus. Estas mi, kiu gardos lin, protektos lin. Vi faris, kion mi volis, sed mi neniam pardonos vin.”
 
 ”Sed Anna, Anna!”
 
@@ -5504,10 +4676,7 @@ tektos lin. Vi faris, kion mi volis, sed mi neniam pardonos vin.”
 ”Kial? Tial, aŭdu, ke mi ne volis — ne volis, ke li fariĝu amanto de edziniĝinta virino …”
 
 
-GÖSTA BERLING
-
-
-DEKTRIA ĉAPITRO
+DEKTRIA ĈAPITRO
 
 Fraŭlino Marie
 
@@ -5522,9 +4691,6 @@ Kaj sur la kvara flanko kuŝas griza dometo.
 La rozkvartalon, pri kiu mi nun pensas, posedis antaŭ sesdek jaroj la maljuna sinjorino Moreus en Svartsjö, ŝi, kiu vivtenis sin kudrante litkovrilojn al la kamparanoj kaj preparan-te ilian regalmanĝaĵon.
 
 Karaj amikoj! Inter ĉio bona, kion mi deziras al vi, mi volas unue mencii litkovrilan stebstablon kaj due rozkvartalon.
-
-
-GÖSTA BERLING
 
 
 Grandan, ŝanceliĝan, malnovtempan stebstablon kun eluzitaj sraŭbkaneloj kaj randpuŝitaj dentradoj, mi deziras al vi, tian, ĉe kiu kvin, ses personoj povas samtempe labori, kie oni vetkudras kaj konkuras fari belajn steberojn sur la suba flanko, kie oni manĝas rostitajn pomojn, babilas, ”veturas al Grenlando”, ”kaŝas la ringon kun kondiĉo”36 kaj tiel ridas, ke la sciuroj en la arbaro pro timo ekfalas sur la teron. Stebstablon por la vintro, karaj amikoj, rozkvartalon por la somero!
@@ -5542,9 +4708,6 @@ Jen mi ankaŭ diru, ke en la dometo de sinjorino Moreus 36 ”Veturi al Grenland
 37 Imperiestraj kronoj — kulturita speco de Fritillaria.
 
 
-GÖSTA BERLING
-
-
 troviĝis luanto, malgranda, seka fraŭlino, ĉirkaŭ kvardekjara, kiu loĝis en aloĉambro en la subtegmentejo. Fraŭlino Marie, kiel ŝi ĉiam estis nomata, havis proprajn opiniojn pri multaj aferoj, kiel facile ekhavas tiu, kiu ofte sidas sola kaj okupigas la pensojn pri tio, kion la propraj okuloj vidis.
 
 Fraŭlino Marie kredis, ke la amo estas la radiko kaj kaŭzo de ĉio malbona en tiu ĉi mondo.
@@ -5559,12 +4722,7 @@ Tagon post tago ŝi sidis en la mansardo de la dometo de sinjorino Moreus kaj tr
 
 Kiam ŝi en someraj vesperoj aŭdis violonon soni ĉe vojkruciĝo, kie la muzikisto sidis sur la barilŝtuparo kaj la junaj svingiĝis en polskdanco, tiel ke la polvo kirliĝis, tiam ŝi iris longan ĉirkaŭvojon tra la arbaro por ne bezoni aŭdi kaj vidi.
 
-La postkristnaskan tagon, kiam kvin, ses kamparanaj fian-
-
-ĉinoj venis por esti vestitaj de sinjorino Moreus kaj ŝiaj filinoj, kiam ili estis ornamataj per krono el mirto kaj altaj kronoj el silko kaj vitraj perloj, per brilaj silkoskarpoj kaj brustbukedoj 38 Skvamtekniko — la trikitaj figuroj iel similas al skvamoj.
-
-
-GÖSTA BERLING
+La postkristnaskan tagon, kiam kvin, ses kamparanaj fianĉinoj venis por esti vestitaj de sinjorino Moreus kaj ŝiaj filinoj, kiam ili estis ornamataj per krono el mirto kaj altaj kronoj el silko kaj vitraj perloj, per brilaj silkoskarpoj kaj brustbukedoj 38 Skvamtekniko — la trikitaj figuroj iel similas al skvamoj.
 
 
 el hejmefaritaj rozoj, kiam la jupoj estis borderataj per girlan-doj el taftaj floroj, tiam ŝi restis en sia ĉambro por ne vidi, kiel oni ornamas ilin, honore al la amo.
@@ -5583,12 +4741,7 @@ La rozarbeto de ŝia patrino staris en la fenestro. ŝi apenaŭ donis al ĝi akv
 
 La folioj pendis polvokovritaj. Araneoj ludis inter la branĉetoj, kaj la burgonoj neniam malfermiĝis.
 
-Kaj malofte ŝi metis sian piedon en la rozkvartalon de sinjorino Moreus, kie papilioj flirtis kaj birdoj kantis, kie odoran-239
-
-GÖSTA BERLING
-
-
-taj floroj sendis amsciigojn al ŝvebantaj abeloj, kie ĉio parolis pri la abomenulo.
+Kaj malofte ŝi metis sian piedon en la rozkvartalon de sinjorino Moreus, kie papilioj flirtis kaj birdoj kantis, kie odorantaj floroj sendis amsciigojn al ŝvebantaj abeloj, kie ĉio parolis pri la abomenulo.
 
 Jen venis tempo, kiam la paro˛o Svartsjö metis novan orgenon en sian preĝejon. Estis en la somero antaŭ tiu jaro, kiam la kavaliroj regis. Juna orgenkonstruisto venis tien. An-kaŭ li fariĝis luanto ĉe sinjorino Moreus, kaj ankaŭ li ricevis aloĉambreton en la subtegmentejo.
 
@@ -5607,12 +4760,7 @@ Sed kiam li jam loĝis kelkajn semajnojn en la aloĉambreto de sinjorino Moreus,
 39 Axel, Fritiof, poemoj de la sveda poeto Esaias Tegnér, 1782-1846.
 
 
-GÖSTA BERLING
-
-
-Estis tempo de malĝojo kaj ĝojo. Larmoj falis sur la stebstablon kaj forigis la kretstrekojn. En la vesperoj ofte sidis pala revantino en la siringa laŭbo, kaj en la ĉambreto de fraŭ-
-
-lino Marie eksonis la novkordita gitaro akompane al palaj amkantetoj, kiujn ŝi lernis de sia patrino.
+Estis tempo de malĝojo kaj ĝojo. Larmoj falis sur la stebstablon kaj forigis la kretstrekojn. En la vesperoj ofte sidis pala revantino en la siringa laŭbo, kaj en la ĉambreto de fraŭlino Marie eksonis la novkordita gitaro akompane al palaj amkantetoj, kiujn ŝi lernis de sia patrino.
 
 La juna orgenkonstruisto tamen estis same senzorga kaj gaja kaj ŝutis ridetojn kaj servojn inter tiuj sopirantaj virinoj, kiuj disputis pri li, kiam li es tis en la laboro. Kaj fine venis la tago, kiam li devis forveturi.
 
@@ -5632,9 +4780,7 @@ knabino per tuta animo!”
 
 Poste ŝi metis la florojn en lian butontruon kaj kisis lin rekte sur la buŝo. Jes, kaj poste la maljuna aperaĵo ree malaperis sur la subtegmenteja ŝtuparo.
 
-La amo venĝis sin al ŝi kaj ridindigis ŝin al ĉiu homo. Sed 241
-
-GÖSTA BERLING
+La amo venĝis sin al ŝi kaj ridindigis ŝin al ĉiu homo. Sed
 
 
 ŝi neniam plu plendis pri ĝi. ŝi neniam plu formetis la gitaron kaj neniam forgesis flegi la rozarbeton de sia patrino.
@@ -5659,9 +4805,6 @@ Ludoj kaj ridoj estis ŝiaj regatoj. Ludo, danco kaj aventuroj fariĝis ŝia par
 ŝi nun preskaŭ atingis sian kvindekan jaron, sed ŝi estis unu el la saĝaj, kiuj ne kalkulas la nombron de la jaroj. ”Kiu ne povas levi la piedon en danco aŭ movi la buŝon en rido,”
 
 
-GÖSTA BERLING
-
-
 ŝi diris, ”tiu estas maljuna. Li sentas la teruran ŝarĝon de la jaroj, mi ne.”
 
 La ĝojo ne havis firman tronon en la tagoj de ŝia junaĝo, sed la ŝanĝoj kaj la necerteco nur pliagrabligis ĝian gajan vivon. La majesto kun la papiliaj flugiloj unu tagon faris kaf-regalon en la apartamento de la korteganinoj en la reĝa palaco en Stokholmo, kaj la postan tagon en frako kun tubera bastono ĝi dancis en Parizo. i vizitis la milittendaron de Na-poleono, ĝi veturis sur la militŝiparo de Nelson sur la blua Mediteraneo, ĝi ĉeestis kongreson en Vieno, ĝi riskis viziti balon en Bruselo en la nokto antaŭ fama batalo.
@@ -5673,14 +4816,9 @@ Dancfaligis tronojn, ludis écarté40 pri duklandoj, per ŝerco kreis detruajn m
 Kiam la ĝojo kelkiam estis senhejma en mondo transformi-ta en batalkampon, ŝi por pli malpli longa tempo kutimis veturi al la malnova grafdomo apud la longa lago Löven. Same ŝi veturis tien, kiam la dukoj kaj iliaj kortegoj fariĝis tro malgajaj por ŝi en la tempo de la sankta alianco. Dum iu tia vizito ŝi faris Göstan Berling guvernisto por sia filo. Ordinare plaĉis al ŝi tie. La ĝojo neniam havis pli brilan regnon. Tie troviĝis kanto kaj muziko, aventuremaj viroj kaj belaj, gajaj virinoj. Tie ne mankis al ŝi regaloj kaj baloj, boatveturoj sur 40 Écarté — franca vorto, elp. ekarté, dupersona kartludo.
 
 
-GÖSTA BERLING
-
-
 lunlumataj lagoj, sledveturoj tra malhelaj arbaroj, ankaŭ ne mankis korskuaj okazoj kaj la malĝojo kaj sufero de la amo.
 
-Sed post la morto de ŝia filino ŝi ĉesigis siajn vizitojn al Borg. ŝi ne vidis ĝin dum kvin jaroj. Nun ŝi venis por vidi, kiel ŝia bofilino eltenas la vivon inter picearbaroj, ursoj kaj neĝ-
-
-amasoj. ŝi konsideris kiel sian devon veturi tien por esplori, ĉu la stulta Henrik ne mortturmentis ŝin per sia tedo. Jen ŝi volis esti la milda anĝelo de hejma paco. Sunbrilo kaj feliĉo estis pakitaj en ŝiaj kvardek ledaj valizoj, gajo nomiĝis ŝia ĉambristino, ŝerco ŝia veturigisto, ludo ŝia akompanistino.
+Sed post la morto de ŝia filino ŝi ĉesigis siajn vizitojn al Borg. ŝi ne vidis ĝin dum kvin jaroj. Nun ŝi venis por vidi, kiel ŝia bofilino eltenas la vivon inter picearbaroj, ursoj kaj neĝamasoj. ŝi konsideris kiel sian devon veturi tien por esplori, ĉu la stulta Henrik ne mortturmentis ŝin per sia tedo. Jen ŝi volis esti la milda anĝelo de hejma paco. Sunbrilo kaj feliĉo estis pakitaj en ŝiaj kvardek ledaj valizoj, gajo nomiĝis ŝia ĉambristino, ŝerco ŝia veturigisto, ludo ŝia akompanistino.
 
 Kaj kiam ŝi suprenkuris sur la peronon, renkontis ŝin etenditaj brakoj. ŝiaj malnovaj ĉambroj en la malsupra etaĝo atendis ŝin. ŝia lakeo, ŝiaj akompanistino kaj ĉambristino, ŝiaj kvardek ledaj valizoj, ŝiaj tridek ĉapelskatoloj, ŝiaj necesujoj kaj ŝaloj kaj peltoj, ĉio iom post iom venis en la domon. ĉie estis bruo kaj tumulto. Estis bruo de pordoj kaj kurado sur ŝtuparoj. Oni povis rimarki, ke grafino Märta alvenis.
 
@@ -5689,9 +4827,7 @@ Estis printempa vespero, vere bela vespero, kvankam estis nur en aprilo kaj la g
 
 La gitaro kaj la memoroj tiel okupis ŝin, ke ŝi ne rimarkis, ke veturilo venas sur la vojo kaj haltas antaŭ la dometo. En la veturilo sidis grafino Märta, kaj amuzis ŝin vidi fraŭlinon Marie, kiu sidis apud la fenestro kun la gitara rubando ĉirkaŭ la kolo kaj kantis malnovajn eluzitajn amkantaĵojn, kun la okuloj turnitaj al la ĉielo.
 
-Fine la grafino iris el la veturilo kaj en la dometon, kie la 244
-
-GÖSTA BERLING
+Fine la grafino iris el la veturilo kaj en la dometon, kie la
 
 
 bonaj knabinoj sidis ĉirkaŭ la stebstablo. ŝi ne estis fiera: la vento de la revolucio susuris super ŝi kaj blovis freŝan aeron en ŝiajn pulmojn.
@@ -5711,9 +4847,6 @@ Kaj la rido de la grafino estis tia muziko, ke la frostantaj birdoj en la rozkva
 ĝuemo, ŝajnis al fraŭlino Marie tiel bela, ke ŝi miris, ke la spe-guleto povas lasi ĝian bildon malaperi, kiam ĝi jam kaptis ĝin per sia brila surfaco.
 
 
-GÖSTA BERLING
-
-
 Forirante ŝi kisis fraŭlinon Marie kaj petis ŝin veni al Borg.
 
 La koro de fraŭlino Marie estis malplena kiel la nesto de la hirundetoj en la kristnaska tempo. ŝi estis libera, sed ŝi sopiris al katenoj kiel en sia maljunaĝo liberigita sklavo.
@@ -5726,9 +4859,7 @@ Jen la grafino sidis kaj rigardis kiel la seka, maldika figuro kaj la malbela ka
 
 Jen fariĝis festo en Borg, kompreneble, ĉar la patrino de la grafo venis hejmen. Kaj kiel ordinare estis gaje. Tamen la societo ne estis granda. Nur paroąnoj estis invititaj.
 
-La manĝosalono estis en la malsupra etaĝo, kaj post la ves-permanĝo okazis, ke la gastoj ne reiris supren sed eksidis en la ĉambroj de grafino Märta, kiuj kuŝis malantaŭ la manĝosalono. Jen la grafino kaptis la gitaron de fraŭlino Marie kaj komencis kanti por la societo. ŝi estis petola sinjorino, grafino Märta, kaj ŝi povis imiti ĉiujn homojn. Jen ŝi ekhavis la ideon 246
-
-GÖSTA BERLING
+La manĝosalono estis en la malsupra etaĝo, kaj post la ves-permanĝo okazis, ke la gastoj ne reiris supren sed eksidis en la ĉambroj de grafino Märta, kiuj kuŝis malantaŭ la manĝosalono. Jen la grafino kaptis la gitaron de fraŭlino Marie kaj komencis kanti por la societo. ŝi estis petola sinjorino, grafino Märta, kaj ŝi povis imiti ĉiujn homojn. Jen ŝi ekhavis la ideon
 
 
 imiti fraŭlinon Marie. ŝi turnis la okulojn al la ĉielo kaj kantis per eta, kria infanvoĉo.
@@ -5753,9 +4884,7 @@ Poste ŝi ŝutis la rozpetalojn sur ŝian kapon. La homoj ridis, sed fraŭlino M
 
 Ankaŭ grafino Märta ekkoleris.
 
-”For de tie ĉi, fraŭlino!” ŝi diris. ”Viaj frenezaĵoj jam sufi-
-
-ĉas.”
+”For de tie ĉi, fraŭlino!” ŝi diris. ”Viaj frenezaĵoj jam sufiĉas.”
 
 ”Jes, mi foriros,” fraŭlino Marie diris, ”sed unue mi volas havi pagon por miaj tukoj kaj kurtenoj, kiujn vi metis tien ĉi.”
 
@@ -5763,9 +4892,7 @@ Ankaŭ grafino Märta ekkoleris.
 
 Poste la grafino ĵetis al ŝi la tukojn kaj forŝiris la kurtenojn, ĉar nun ŝi estis plene furioza.
 
-La postan tagon la juna grafino petis sian bopatrinon, ke 247
-
-GÖSTA BERLING
+La postan tagon la juna grafino petis sian bopatrinon, ke
 
 
 ŝi repaciĝu kun fraŭlino Marie, sed la grafino ne volis. ŝi tediĝis pri ŝi.
@@ -5775,10 +4902,7 @@ Grafino Elisabet tiam veturis al fraŭlino Marie kaj aĉetis de ŝi la tutan pro
 Grafino Märta multe ŝercis kun sia bofilino pri ŝia amo al skvamtrikaĵoj. ŝi povis konservi ankaŭ sian koleron, konservi ĝin freŝa kaj nova dum jaroj. ŝi estis riĉe dotita estaĵo.
 
 
-GÖSTA BERLING
-
-
-DEKKVARA ĉAPITRO
+DEKKVARA ĈAPITRO
 
 Kuzo Kristoffer
 
@@ -5788,9 +4912,7 @@ En pasinta tempo li apartenis al tiu svarmo, kiu en la sekvantaro de la granda i
 
 Je sia honoro li promesis al la kronprinco ne forlasi Vermlandon kaj ne nebezonate mencii, kiu li estas. Kaj jen li estis sendita al Ekeby kun manskribaĵo al la majoro de la kronprinco, kiu bone rekomendis lin. Tiam malfermiĝis por li la pordoj de la kavalira domo.
 
-Komence oni tre miris, kiu estas la famulo, kiu kaŝas sin sub lia prenita nomo. Sed iom post iom li transformiĝis en 249
-
-GÖSTA BERLING
+Komence oni tre miris, kiu estas la famulo, kiu kaŝas sin sub lia prenita nomo. Sed iom post iom li transformiĝis en
 
 
 kavaliron kaj vermlandanon. ĉiu nomis lin kuzo Kristoffer sen precize scii, kiel li ricevis tiun nomon.
@@ -5812,9 +4934,7 @@ Ho, kuzo Kristoffer, kuzo Kristoffer, ĉu vi ne scias?
 
 Ridetante ĝi alvenis, la loga printempo.
 
-La naturo saltete vekiĝas el inerta dormo, kaj en la blua alto papiliflugilaj spiritoj movas sin en vigla ludo. Dense kiel 250
-
-GÖSTA BERLING
+La naturo saltete vekiĝas el inerta dormo, kaj en la blua alto papiliflugilaj spiritoj movas sin en vigla ludo. Dense kiel
 
 
 la rozoj sur la sovaĝa arbeto brilas iliaj vizaĝoj inter la nube-toj.
@@ -5836,9 +4956,6 @@ Tamen li estas kompatinda, la sola, maljuna ennestiĝinto, kiu sidas en la kaval
 Ho, kuzo Kristoffer, sufiĉe longe vi revis en la kavalira do-mo. Leviĝu kaj trinku la ŝaŭmantan vinon de la vivo en la altaj kasteloj! Sciu, kuzo Kristoffer, ke en tiu ĉi tago venis letero al la majoro, reĝa letero kun la sigelo de la Sveda regno! i estas adresita al la majoro, sed la enhavo koncernas vin. Mirinde estas vidi vin, maljuna rabobirdo, kiam vi legas la leteron.
 
 
-GÖSTA BERLING
-
-
 La okulo ekbrilas kaj la kapo leviĝas. Vi vidas la pordon de la kaĝo malfermita kaj la liberan spacon alirebla por viaj sopirantaj flugiloj.
 
 
@@ -5855,9 +4972,6 @@ Li levas sin sur la selo kaj ekflugas en galopo. Flirtas la pelt-subŝtofa dolmo
 Rimarkinda estas lia rajdo. Kie li rajdas, ŝprucas riveretoj el la tero, eldormiĝas anemonoj. La migrobirdoj krias kaj jubilas ĉirkaŭ la liberigita kaptito. La tuta naturo partoprenas lian ĝojon.
 
 Brila kiel triumfanto li venas. La printempo mem rajdas antaŭe sur ŝvebanta nubeto. Malpeza kaj aereca ĝi estas, la hela spirito. i tenas kurban kornon antaŭ la buŝo kaj saltetas pro feliĉo, kiam ĝi moviĝas supren kaj malsupren sur la selo. Kaj ĉirkaŭ kuzo Kristoffer stabo de malnovaj armilkama-radoj dancigas siajn ĉevalojn: jen estas la feliĉo, kiu staras sur la piedpintoj en la piedingoj, jen la gloro sur sia brila kuru-41 Dolmo — husara jako.
-
-
-GÖSTA BERLING
 
 
 lo, kaj la amo sur sia arda arabo. Rimarkinda estas la rajdo, rimarkinda la rajdanto. La parolscianta turdo krias al li.
@@ -5885,9 +4999,6 @@ La granda militisto kuzo Kristoffer rigardas ŝin per bruli-gaj okuloj.
 ”Tio estas alia afero!” la grafino diras.
 
 
-GÖSTA BERLING
-
-
 ”Dio prenis de mi feliĉon kaj patrolandon kaj devigis min manĝi la panon de fremduloj,” kuzo Kristoffer diras serioze.
 
 ”Jen mi lernis respekton al la malriĉeco.”
@@ -5911,24 +5022,16 @@ Kuzo Kristoffer staras kaj rigardas kun malgajsevera mieno. Subite li ŝiras la 
 Eble li imagis, ke estas grafino Märta, kiu brulas sur la ŝtiparo.
 
 
-GÖSTA BERLING
-
-
 Eble ŝajnis al li, ĉar tiu virino finfine konsistas nur el ĉifonoj kaj pajlo, ke do ne ekzistas plu sur la tero io valora.
 
-Li ree iras en la kavaliran domon, bruligas la fajron kaj ka-
-
-ŝas la uniformon. Ree li eksidas en la kamenangulo, kaj per ĉiu tago li fariĝas pli kaj pli hirta kaj griza. Li mortas iom post iom, kiel kutime kaptitaj agloj.
+Li ree iras en la kavaliran domon, bruligas la fajron kaj kaŝas la uniformon. Ree li eksidas en la kamenangulo, kaj per ĉiu tago li fariĝas pli kaj pli hirta kaj griza. Li mortas iom post iom, kiel kutime kaptitaj agloj.
 
 Li ne estas plu kaptito; sed li ne penas uzi sian liberecon.
 
 La aero estas alirebla por li. Atendas lin la batalkampoj, la gloro, la vivo. Sed li ne plu havas forton etendi siajn flugilojn por flugo.
 
 
-GÖSTA BERLING
-
-
-DEKKVINA ĉAPITRO
+DEKKVINA ĈAPITRO
 
 La vojoj de la vivo
 
@@ -5944,13 +5047,9 @@ Belaj kaj noblaj virinoj amis lin, sed ili ne levu sin por kon-kuri pri lia mano
 
 Kiun li elektos, kiun li serĉos?
 
-Foje venas al Ekeby malriĉa knabino el soleca arbarvilaĝo malproksime inter la montoj. ŝi vendas balailojn. En tiu vila-
+Foje venas al Ekeby malriĉa knabino el soleca arbarvilaĝo malproksime inter la montoj. ŝi vendas balailojn. En tiu vilaĝo, kie regas ĉiam malriĉeco kaj granda mizero, troviĝas multaj, kiuj ne havas plenan prudenton, kaj la knabino kun la balailoj estas unu el ili.
 
-ĝo, kie regas ĉiam malriĉeco kaj granda mizero, troviĝas multaj, kiuj ne havas plenan prudenton, kaj la knabino kun la balailoj estas unu el ili.
-
-Sed bela ŝi estas. ŝia granda, nigra hararo formas tiel dikajn plektojn, ke ili apenaŭ trovas lokon sur ŝia kapo, ŝiaj vangoj estas bele rondaj, la nazo estas rekta kaj proporcie granda, la okuloj estas bluaj. ŝi apartenas al melankolia, madonsimila 256
-
-GÖSTA BERLING
+Sed bela ŝi estas. ŝia granda, nigra hararo formas tiel dikajn plektojn, ke ili apenaŭ trovas lokon sur ŝia kapo, ŝiaj vangoj estas bele rondaj, la nazo estas rekta kaj proporcie granda, la okuloj estas bluaj. ŝi apartenas al melankolia, madonsimila
 
 
 tipo de beleco, tia, kian oni ankoraŭ trovas ĉe belaj knabinoj ĉe la bordoj de la longa lago Löven.
@@ -5965,9 +5064,7 @@ Ne, ne, la juna, milda grafino en Borg ne ĝenos la planojn de Gösta Berling. �
 
 Dum la longa diservo en la preĝejo de Svartsjö ŝi klinos sian kapon, faldos siajn manojn kaj preĝos por li. En sendor-maj noktoj ŝi povos plori kaj angori pri li, sed ŝi ne havas florojn por ŝuti sur la vojon de la forpuŝito, ne havas guton da akvo por doni al la soifanto. ŝi ne etendas sian manon por rekonduki lin de la rando de abismo.
 
-Gösta Berling ne penas kovri sian elektitinon per silko kaj ornamaĵoj. Li lasas ŝin iri de domo al domo kun balailoj, kiel estas ŝia kutimo, sed kiam li estos kolektinta ĉiujn eminentajn virojn kaj virinojn al granda regalo en Ekeby, li sciigos sian 257
-
-GÖSTA BERLING
+Gösta Berling ne penas kovri sian elektitinon per silko kaj ornamaĵoj. Li lasas ŝin iri de domo al domo kun balailoj, kiel estas ŝia kutimo, sed kiam li estos kolektinta ĉiujn eminentajn virojn kaj virinojn al granda regalo en Ekeby, li sciigos sian
 
 
 fianĉiĝon. Tiam li vokos ŝin el la kuirejo, kia ŝi venis de siaj longaj iroj, kun polvo kaj koto de la vojo sur siaj vestoj, eble ĉifona, eble nekombita, kun konfuzitaj okuloj, kun torento da konfuzaj vortoj sur la lipoj. Kaj li demandos la gastojn, ĉu li ne elektis konvenan fianĉinon, ĉu la freneza pastro ne devas
@@ -5976,16 +5073,11 @@ fianĉiĝon. Tiam li vokos ŝin el la kuirejo, kia ŝi venis de siaj longaj iroj
 
 Estis lia intenco, ke neniu sciu pri tio antaŭe, sed li ne sukcesis gardi la sekreton, kaj unu el tiuj, kiuj eksciis ĝin, estis la juna grafino Dohna.
 
-Sed kion ŝi povas fari por haltigi lin? Estas en la gefianĉi-
-
-ĝa tago, venis ĝia krepuska horo. La grafino staras apud la fenestro en la blua kabineto kaj rigardas norden. ŝi preskaŭ kredas, ke ŝi povas vidi Ekebyn, kvankam larmoj kaj nebulaĵoj kovras. ŝi tre bone vidas, kiel la granda, trietaĝa domo brilas kun tri lumigitaj fenestrovicoj, ŝi imagas, kiel oni verŝas ĉam-panon en la glasojn, kiel la tosto sonas, kaj kiel Gösta Berling sciigas sian fianĉiĝon kun la balailknabino.
+Sed kion ŝi povas fari por haltigi lin? Estas en la gefianĉiĝa tago, venis ĝia krepuska horo. La grafino staras apud la fenestro en la blua kabineto kaj rigardas norden. ŝi preskaŭ kredas, ke ŝi povas vidi Ekebyn, kvankam larmoj kaj nebulaĵoj kovras. ŝi tre bone vidas, kiel la granda, trietaĝa domo brilas kun tri lumigitaj fenestrovicoj, ŝi imagas, kiel oni verŝas ĉam-panon en la glasojn, kiel la tosto sonas, kaj kiel Gösta Berling sciigas sian fianĉiĝon kun la balailknabino.
 
 Se ŝi nun estus proksime al li kaj delikate metus la manon sur lian brakon aŭ donus al li nur amikecan rigardon, ĉu tiam li ne revenus de la malbona vojo de la forpuŝitoj? Se vorto de ŝi igis lin fari tian senesperaĵon, ĉu vorto de ŝi do ne povus haltigi lin?
 
 ŝi timtremas pro la peko, kiun li faros kontraŭ tiu kompatinda, mizera infano. ŝi timtremas pro lia peko kontraŭ la kompatinda estaĵo, kiu nun estos logata ami lin, eble nur por la ŝerco de unu tago. Aŭ eble ŝi — kaj ŝi ankoraŭ pli timtremas pro la peko, kiun li faras kontraŭ si mem — ŝi kiel prema ŝarĝo estos ligita al lia vivo kaj por ĉiam forprenos de lia spirito la forton atingi la alton.
-
-
-GÖSTA BERLING
 
 
 Kaj funde la kulpo estas ŝia. Per vorto de kondamno ŝi ĵetis lin sur la malbonan vojon. ŝi, kiu venis por beni, por mildigi, kial ŝi plektis ankoraŭ unu pikilon en la dornkronon de la pekinto?
@@ -6005,9 +5097,6 @@ Tamen: venas la nokto, kaj ŝia edzo estas for, nun ŝi estas libera.
 Veturi ŝi ne povas, servistojn ŝi ne kuraĝas voki, sed ŝia angoro pelas ŝin el ŝia hejmo. ŝi devas.
 
 
-GÖSTA BERLING
-
-
 Malfacilaj estas la vojoj, kiujn la homoj iras sur la tero: de-zertovojoj, marĉovojoj, rokovojoj.
 
 Sed tiu nokta vojo trans degelantan glacion, kun kio mi komparu ĝin? ĉu ne estas tiu vojo, kiun la malgrandaj florkolektantinoj mem devas iri, malfirma, ondanta, glitiga, la vojo de tiuj, kiuj volas sanigi frapitajn vundojn, de tiuj, kiuj volas rebonigi, la vojo de la malpeza piedo, de la rapida okulo kaj de la kuraĝa, amoplena koro?
@@ -6024,9 +5113,7 @@ Tiu juna, altranga sinjorino tamen estis aminda heroineto.
 
 Tiajn vojojn ŝi ne iris en sia bela hejmlando. Sidante ĉe la rando de tiu timiga, terura lago, malseka, laca, malfeliĉa kiel ŝi estas, ŝi vere rajtas pensi pri la mildaj, florborderitaj vojetoj de sia suda patrolando.
 
-Por ŝi ne estas plu demando pri sudo kaj nordo. ŝi staras meze en la vivo. ŝi ne ploras pro hejmsopiro. Ploras la malgranda florkolektantino, la malgranda heroino, pro tio, ke ŝi 260
-
-GÖSTA BERLING
+Por ŝi ne estas plu demando pri sudo kaj nordo. ŝi staras meze en la vivo. ŝi ne ploras pro hejmsopiro. Ploras la malgranda florkolektantino, la malgranda heroino, pro tio, ke ŝi
 
 
 estas tiel laca, ke ŝi ne povos atingi ties vojon, kiun ŝi volas florŝuti. ŝi ploras pro tio, ke ŝi kredas, ke ŝi venis tro malfrue.
@@ -6038,9 +5125,7 @@ Tiam homoj venas kurante laŭ la bordo. Ili preterrapidas ŝin sen vidi ŝin, se
 Tiam ŝi ricevas novan kuraĝon, leviĝas kaj sekvas ilin.
 
 
-La muelejo kaj forĝejo de Ekeby kuŝis sur mallarĝa terlango, ĉirkaŭ kiu muĝis la Björksjö-rivero. i torentis malsupren al la terlango, blankvipita en la granda falo supre de ĝi, kaj por protekti la surkonstruitan lokon kontraŭ la akvo kuŝis tiutempe granda ondrompilo antaŭ la terlango. Sed la digo kaduki-
-
-ĝis, kaj la kavaliroj regis. En ilia tempo estis danco sur la uzina tero, sed neniu donis al ŝi tempon por rigardi, kiel la torento, la frosto kaj la tempo prilaboris la malnovan ŝtondigon.
+La muelejo kaj forĝejo de Ekeby kuŝis sur mallarĝa terlango, ĉirkaŭ kiu muĝis la Björksjö-rivero. i torentis malsupren al la terlango, blankvipita en la granda falo supre de ĝi, kaj por protekti la surkonstruitan lokon kontraŭ la akvo kuŝis tiutempe granda ondrompilo antaŭ la terlango. Sed la digo kadukiĝis, kaj la kavaliroj regis. En ilia tempo estis danco sur la uzina tero, sed neniu donis al ŝi tempon por rigardi, kiel la torento, la frosto kaj la tempo prilaboris la malnovan ŝtondigon.
 
 Jen venas la printempa fluo, kaj la digo komencas cedi.
 
@@ -6048,9 +5133,7 @@ La akvofalo ĉe Ekeby estas granda gnejsŝtuparo, sur kiu la ondoj de la Björkn
 
 Kaj jen tiuj sovaĝaj, ekscititaj ondoj, ebriaj pro printempa aero, senprudentaj pro la novgajnita libero, atakas la malnovan ŝtonmuron. ŝirante kaj siblante ili venas, ŝtormas alten al
 
-ĝi kaj poste retiras sin, kvazaŭ ili puŝus siajn blankbuklajn kapojn. Estas militatako, same taŭga kiel iu ajn, ili prenas 261
-
-GÖSTA BERLING
+ĝi kaj poste retiras sin, kvazaŭ ili puŝus siajn blankbuklajn kapojn. Estas militatako, same taŭga kiel iu ajn, ili prenas
 
 
 grandajn glacipecojn kiel ŝirmtegmentojn, ili prenas trunkojn kiel murrompilojn, ili premlevas, ili disigas, muĝas kontraŭ tiun kompatindan muron, ĝis subite ŝajnas, kvazaŭ iu krius al ili atenton. Tiam ili ree kuras, kaj ilin sekvas granda ŝtono, kiu malfiksiĝis de la digo kaj brue falas en la torenton.
@@ -6068,9 +5151,6 @@ Venis la tago de libero! Aŭdu tion, ondoj supre en la lago Bjorksjön, aŭdu ti
 Kaj ili venas — ondo post ondo malsuprensaltas la falon por puŝi sian kapon kontraŭ la digmuron, por doni sian helpon al la granda laboro. Ebriaj pro la novgajnita libero de la printempo, multnombraj, unuanimaj ili venas kaj malfiksas ŝtonon post ŝtono, terpecon post terpeco de la cedetanta ondrompilo.
 
 
-GÖSTA BERLING
-
-
 Sed kial la homoj sen kontraŭstaro lasas la sovaĝajn ondojn furiozi? ĉu Ekeby estas mortinta?
 
 Ne, homoj troviĝas tie, konfuzita, senkonsila, senhelpa aro da homoj. Malhela estas la nokto, ili ne vidas unu la alian, ne vidas sian propran vojon. Fortege muĝas la akvofalo, terura estas la bruego de rompiĝanta glacio kaj alpuŝantaj trunkoj, ili ne aŭdas sian propran voĉon. La sovaĝa deliro, kiu regas la muĝantajn ondojn, plenigas ankaŭ la cerbojn de la homoj, restas ĉe ili neniu penso, neniom da prudento.
@@ -6085,14 +5165,10 @@ Kaj dume sendito post sendito iras al la granddomo por venigi la kavalirojn.
 
 ĝojas pro la ŝtoniga surprizo, kiu ekregos la ĉeestantojn.
 
-Sur la glacio de Löven iras la juna grafino Dohna teruran, 263
-
-GÖSTA BERLING
+Sur la glacio de Löven iras la juna grafino Dohna teruran,
 
 
-vivodanĝeran vojon por flustri vorton de averto al Gösta Berling. ĉe la akvofalo la ondoj kure atakas la gloron kaj potencon de Ekeby, sed en la vastaj salonoj regas nur ĝojo kaj stre-
-
-ĉita atendo, la vakskandeloj radias, kaj la vino fluas. Endome neniu pensas pri tio, kio okazas ekstere en la malluma, ŝtorma printemponokto.
+vivodanĝeran vojon por flustri vorton de averto al Gösta Berling. ĉe la akvofalo la ondoj kure atakas la gloron kaj potencon de Ekeby, sed en la vastaj salonoj regas nur ĝojo kaj streĉita atendo, la vakskandeloj radias, kaj la vino fluas. Endome neniu pensas pri tio, kio okazas ekstere en la malluma, ŝtorma printemponokto.
 
 uste nun venas la momento. Gösta leviĝas kaj eliras por envenigi la fianĉinon. Li devas iri tra la vestiblo, kaj ties grandaj pordoj staras tute malfermitaj. Li haltas, li elrigardas en la karbonigran nokton … Kaj li aŭdas, li aŭdas.
 
@@ -6104,12 +5180,7 @@ Nun ve al vi, ribelaj ondoj, nun vere vi devos batale gajni vian liberon! Jen G�
 
 Aŭdu, kiel li krias al la homoj! Li ordonas, li agigas ĉiujn.
 
-”Lumon ni devas havi, lumon antaŭ ĉio, tie ĉi ne sufiĉas la kornlanterno de la muelisto. Jen tiuj branĉamasoj, portu ilin sur la deklivon kaj bruligu ilin! Tio estas laboro por virinoj kaj infanoj. Nur rapide, metu grandan flamantan branĉostakon kaj bruligu ĝin! i lumos por nia laboro, ĝi estos vaste vide-264
-
-GÖSTA BERLING
-
-
-bla kaj alvokos helpantojn. Kaj neniam lasu ĝin estingiĝi! Alportu pajlon, branĉojn, lasu klarajn flamojn leviĝi al la ĉielo!
+”Lumon ni devas havi, lumon antaŭ ĉio, tie ĉi ne sufiĉas la kornlanterno de la muelisto. Jen tiuj branĉamasoj, portu ilin sur la deklivon kaj bruligu ilin! Tio estas laboro por virinoj kaj infanoj. Nur rapide, metu grandan flamantan branĉostakon kaj bruligu ĝin! i lumos por nia laboro, ĝi estos vaste videbla kaj alvokos helpantojn. Kaj neniam lasu ĝin estingiĝi! Alportu pajlon, branĉojn, lasu klarajn flamojn leviĝi al la ĉielo!
 
 Jen, jen, vi plenkreskaj viroj, estas laboro por vi! Tie ĉi estas trunkoj, tabulegoj, faru defendan digon, kiun ni povos malsuprenigi antaŭ la rompiĝanta muro. Rapide, rapide al laboro, faru ĝin fortika kaj firma! Pretigu ŝtonojn kaj sablosakojn, per kiuj ni malsuprenigos ĝin! Rapide, svingu viajn hakilojn, sonigu la martelojn, igu la borilon mordi la lignon, igu la segilon grinci en la sekaj tabulegoj!
 
@@ -6124,9 +5195,6 @@ Gösta prenas lokon plej ekstere sur la digo kaj staras tie surŝprucita de ŝa�
 La savlaboro rapide progresas, la fajroj flamas, bruas la hakiloj de la ĉarpentistoj, kaj la digo staras.
 
 Ankaŭ la aliaj kavaliroj kaj la cent gastoj venis al la akvofalo. Homoj alkuras de proksime kaj malproksime, ĉiuj laboras: ĉe la fajroj, ĉe la defenda digo, ĉe la sablosakoj, sur la cedetanta, tremanta ŝtondigo.
-
-
-GÖSTA BERLING
 
 
 Jen, la ĉarpentistoj pretigis la defendan digon, oni malsuprenigos ĝin antaŭ la ŝanceliĝanta ondrompilo. Tenu ŝtonojn kaj sablosakojn pretaj, hokstangojn kaj ŝnuregojn, por ke ĝi ne forŝiriĝu, por ke la venko apartenu al la homoj kaj la subigitaj ondoj reiru al sklavlaboro!
@@ -6144,27 +5212,19 @@ Inter tiuj centoj da homoj, kiuj laboras kaj estas okupitaj sur la riverbordo, �
 ”Vere mi devas forpeli ŝin,” li diras.
 
 
-GÖSTA BERLING
-
-
 Li prenas hokstangon, kuras sur la bordon kaj rapidas al la virino.
 
 Li forlasas sian lokon sur la ekstremo de la ondrompilo por forpeli la lagnimfon. En tiu momento de ekscito ŝajnas al li, kvazaŭ la malbonaj fortoj de la profundo batalas kontraŭ li.
 
 Li ne sciis, kion li pensas, kion li kredas, sed li devis forpeli la nigrulinon de la ŝtono sur la rando de la rivero.
 
-Ho, Gösta, kial via loko estas malplena en la decida momento? Jen ili venas kun la defenda digo, longa vico da viroj prenas lokon sur la ondrompilo. Ili havas ŝnuregojn, ŝtonojn kaj sablosakojn pretaj por pezigi ĝin, reteni ĝin, ili staras pretaj, ili atendas, aŭskultas. Kie estas la ordonanto? ĉu ne aŭdi-
-
-ĝas la voĉo, kiu devas ordoni kaj ordigi?
+Ho, Gösta, kial via loko estas malplena en la decida momento? Jen ili venas kun la defenda digo, longa vico da viroj prenas lokon sur la ondrompilo. Ili havas ŝnuregojn, ŝtonojn kaj sablosakojn pretaj por pezigi ĝin, reteni ĝin, ili staras pretaj, ili atendas, aŭskultas. Kie estas la ordonanto? ĉu ne aŭdiĝas la voĉo, kiu devas ordoni kaj ordigi?
 
 Ne, Gösta Berling ĉasas la lagnimfon, lia voĉo ne estas aŭdebla, liaj ordonoj gvidas neniun.
 
 Tiam oni devas malsuprenigi la defendan digon sen li. La ondoj forpuŝiĝas, ĝi falas en la profundon kaj ŝtonoj kaj sablosakoj sekvas ĝin. Sed kiel la laboro plenumiĝis sen la gvidanto? Neniu priatento, neniu ordo. La ondoj ree alkuras, kun renovigita furiozo ili atakas tiun novan baron, ili komencas forruli la sablosakojn, disŝiras la ŝnuregojn, malfiksas la ŝtonojn. Kaj ili sukcesas, ili sukcesas! Mokante, jubilante ili levas la tutan digon sur fortaj ŝultroj, tiras kaj ŝiras ĝin, kaj jen ili ekregas ĝin. Forigu la aĉan defendaĵon, ĝi iru malsupren en Löven! Raj jen ree antaŭen kontraŭ la ŝanceliĝantan, senhel-pan ŝtondigon.
 
 Sed Gösta Berling ĉasas la lagnimfon. ŝi vidis lin, kiam li venis kontraŭ ŝin, svingante hokstangon. ŝi ektimis. ŝajnas, kvazaŭ ŝi volus ĵeti sin en la akvon, sed ŝi retenas sin kaj kuras for de la bordo.
-
-
-GÖSTA BERLING
 
 
 ”Lagnimfo!” Gösta krias kaj svingas la hokstangon super ŝi.
@@ -6189,14 +5249,9 @@ Sed ĉar ŝi estas ne nur altranga sinjorino sed esence bona virineto, kiu ne po
 
 ”ĉu vi piediris trans la lagon?”
 
-”Jes ja, sed, sinjoro Berling, jen diru al mi tion! ĉu vi fian-
-
-ĉiĝis? Vi komprenas: mi tiel volus, ke vi ne estus farinta tion.
+”Jes ja, sed, sinjoro Berling, jen diru al mi tion! ĉu vi fianĉiĝis? Vi komprenas: mi tiel volus, ke vi ne estus farinta tion.
 
 Estas tiel maljuste, vi vidas, kaj mi sentis, kvazaŭ la tuta kulpo estus mia. Vi ne devus tiom atenti pri vorto de mi. Mi estas fremdulino, kiu ne konas la kutimon de la lando. Estas tiel solece en Borg, kiam vi ne venas tien plu, sinjoro Berling.”
-
-
-GÖSTA BERLING
 
 
 ŝajnas al Gösta Berling, kiam li staras inter la malsekaj alnetoj sur la marĉeca tero, kvazaŭ iu ĵetus sur lin tutajn plen-brakojn da rozoj. Li vadas en rozoj ĝisgenue, ili lumas en la mallumo antaŭ liaj okuloj, avide li enspiras ilian odoron.
@@ -6215,9 +5270,7 @@ Jen estas sufiĉe da floroj sur la vojo de la poeto. ĉio malluma, malbona, mala
 
 Por la du junaj homoj ŝajnas tute nature, ke Gösta akompanos la grafinon hejmen. Li ja ne povas lasi ŝin sola en la malluma nokto, ne lasi ŝin ankoraŭfoje iri sola trans la degelantan glacion. Ili ne pensas eĉ pri tio, ke li estas bezonata ĉe la forĝejo, ili tiel feliĉas pro tio, ke ili ree estas geamikoj.
 
-Estas tre facile kredi, ke tiuj junaj homoj sentas varman 269
-
-GÖSTA BERLING
+Estas tre facile kredi, ke tiuj junaj homoj sentas varman
 
 
 amon unu por la alia, sed kiu povas certe scii tion? En rompitaj kaj disaj splitoj la radia aventuro de ilia vivo atingis min.
@@ -6236,32 +5289,23 @@ Ree la benita vivo estas gaja ludo, kaj ili estas infanoj, kiuj estis malĝentil
 
 La onidiro vagis. Fine la rakonto pri la promeno de la grafino venis al Anna Stjärnhök.
 
-”Jen mi vidas,” ŝi diris, ”ke Dio havas ne nur unu kordon 270
-
-GÖSTA BERLING
+”Jen mi vidas,” ŝi diris, ”ke Dio havas ne nur unu kordon
 
 
 por sia arko. Mi ripozigu mian koron kaj restu, kie mi estas bezonata. Li povas sen mia helpo fari viron el Gösta Berling.”
 
 
-GÖSTA BERLING
-
-
-DEKSESA ĉAPITRO
+DEKSESA ĈAPITRO
 
 Pentofaro
 
-Karaj amikoj, se okazas al vi, ke vi sur via vojo renkontas kompatindan mizerulon, malgrandan, ĉagrenitan esta-
-
-ĵon, kiu lasas la ĉapelon pendi sur la dorso kaj tenas la ŝuojn en la mano por ne havi protekton kontraŭ la ardo de la suno kaj la ŝtonoj de la vojo, sendefendulon, kiu propravole alvo-kas ĉian malbonon sur sian kapon, jen, preteriru lin en silenta timeto! Estas la pentofaranto, vi komprenas, survoje al la sanktaj tomboj.
+Karaj amikoj, se okazas al vi, ke vi sur via vojo renkontas kompatindan mizerulon, malgrandan, ĉagrenitan estaĵon, kiu lasas la ĉapelon pendi sur la dorso kaj tenas la ŝuojn en la mano por ne havi protekton kontraŭ la ardo de la suno kaj la ŝtonoj de la vojo, sendefendulon, kiu propravole alvo-kas ĉian malbonon sur sian kapon, jen, preteriru lin en silenta timeto! Estas la pentofaranto, vi komprenas, survoje al la sanktaj tomboj.
 
 La pentofaranto devas porti krudan kapoton kaj vivi de nemiksita akvo kaj seka pano, eĉ se li estus reĝo. Li devas piediri kaj ne veturi. Li devas almozpeti, ne posedi. Li devas dormi inter kardoj. Li devas froti la malmolajn tomboplatojn per genuado. Li devas svingi la pikilan skurĝon sur sian dorson. Li ne povas senti dolĉon krom en sufero, feliĉon krom en malĝojo.
 
 Iam la juna grafino Elisabet portis la krudan kapoton kaj iris la dornajn vojojn. ŝia koro akuzis ŝin pri peko. i sopiris al sufero kiel laciĝinto al varmeta bano. Kruelan malbonon ŝi venigis al si, dum ŝi jubilante malsupreniris en la nokton de sufero.
 
-ŝia edzo, la juna grafo kun la maljunula kapo, venis hejmen al Borg la matenon post tiu nokto, kiam la printempa altakvo detruis la muelejon kaj la forĝejon de Ekeby. Apenaŭ 272
-
-GÖSTA BERLING
+ŝia edzo, la juna grafo kun la maljunula kapo, venis hejmen al Borg la matenon post tiu nokto, kiam la printempa altakvo detruis la muelejon kaj la forĝejon de Ekeby. Apenaŭ
 
 
 li alvenis, kiam grafino Märta vokis lin al si kaj rakontis por li strangajn aferojn.
@@ -6281,9 +5325,6 @@ Ho, kia sceno nun sekvis! Io pli kompatinda certe neniam prezentiĝis en tiu dom
 Multajn malbonajn vortojn la juna viro aŭdigis al la juna virino. Li etendis siajn manojn al la ĉielo kaj akuzis ĝin pro tio, ke ĝi permesis al senhonta virino treni lian nomon en la koton. Li skuis sian pugnitan manon antaŭ sia vizaĝo kaj demandis ŝin, kiun punon ŝi opinias kontentige granda por tia krimo, kia estas la ŝia.
 
 ŝi tute ne timis la viron. ŝi ankoraŭ kredis, ke ŝi agis juste.
-
-
-GÖSTA BERLING
 
 
 ŝi diris al li, ke ŝi jam ricevis teruran nazkataron, kaj ke tiu puno povas sufiĉi.
@@ -6307,9 +5348,6 @@ La grafo turnis sin al sia patrino.
 ”Mi diras,” la grafino respondis, ”ke Anna Stjärnhök estas saĝa knabino, kaj ke ŝi sciis, kion ŝi faras, kiam ŝi rakontis tiun historion por Elisabet.”
 
 
-GÖSTA BERLING
-
-
 ”Plaĉas al mia patrino miskompreni min,” la grafo diris.
 
 ”Mi demandas, kion mia patrino pensas pri tiu ĉi rakonto. ĉu grafino Märta Dohna provis persvadi sian filinon, mian fratinon, edziniĝi kun eksigita pastro?”
@@ -6330,12 +5368,7 @@ Tiam ŝi ekmalŝatis sin mem. ŝi volis eviti la juston de Dio.
 
 La senesperulino ekgenuis antaŭ sia edzo, kaj la konfeso venis torente de ŝiaj lipoj.
 
-”Kondamnu min, forpuŝu min. Mi amis lin. Ne dubu, ke mi amis lin! Mi ŝiras miajn harojn, mi ŝiras mian veston pro malĝojo. Nun, kiam li mortis, mi atentas pri nenio. Mi ne vo-275
-
-GÖSTA BERLING
-
-
-las savi min. Vi ekscios la tutan veron. La amon de mia koro mi prenis de mia edzo kaj donacis al fremdulo. Ho, mi kon-damnito, mi estas unu el tiuj, kiujn logis nepermesita amo!”
+”Kondamnu min, forpuŝu min. Mi amis lin. Ne dubu, ke mi amis lin! Mi ŝiras miajn harojn, mi ŝiras mian veston pro malĝojo. Nun, kiam li mortis, mi atentas pri nenio. Mi ne volas savi min. Vi ekscios la tutan veron. La amon de mia koro mi prenis de mia edzo kaj donacis al fremdulo. Ho, mi kon-damnito, mi estas unu el tiuj, kiujn logis nepermesita amo!”
 
 Vi juna senesperulino, kuŝu antaŭ la piedoj de viaj juĝantoj kaj diru ĉion al ili! Bonvenon, martireco! Bonvenon malhonoro, bonvenon! Ho, kiel vi povos devigi la fulmojn de la ĉielo frapi vian junan kapon!
 
@@ -6351,9 +5384,7 @@ Dio sola sciis tion, kaj li kondamnis vin. Li frapis la idolon de via koro. Li g
 
 Diru al ili, ke vi scias, ke ne troviĝas savo en kaŝado! La demonoj ŝatas la mallumon. La manoj de viaj juĝantoj ekpre-nu la skurĝon! La puno falos kiel mildiga balzamo sur la vundojn de peko. Via koro sopiras al sufero.
 
-Diru ĉion tion al ili, dum vi genuas sur la planko kaj tordas la manojn enskuanta malĝojo, parolante kun la sovaĝaj akcentoj de malespero, salutante per akra rido la penson pri 276
-
-GÖSTA BERLING
+Diru ĉion tion al ili, dum vi genuas sur la planko kaj tordas la manojn enskuanta malĝojo, parolante kun la sovaĝaj akcentoj de malespero, salutante per akra rido la penson pri
 
 
 puno kaj malhonoro, ĝis via edzo kaptos vin kaj levos vin de la planko!
@@ -6373,16 +5404,11 @@ Kiel longe fiera koro sukcesos obeigi sin? Kiel longe mal-paciencaj lipoj povos 
 
 Dolĉa estas la mizero de malhonoriĝo. Dum la dorso doloras pro peza laboro, la koro estas trankvila. La dormo venas senvoke al tiu, kiu dum kelkaj mallongaj horoj dormas sur malmola kuŝejo de pajlo.
 
-La maljuna virino transformiĝu en demonon por povi sufi-
-
-ĉe turmenti la junan! ŝi dankas sian bonfarantinon. Ankoraŭ la malbono ne mortis en ŝi. ĉasu la dormemulinon el la lito je la kvara horo ĉiumatene! Postulu de la nekutimiĝinta laboristino absurdan laborkvanton ĉe la peniga drelika tekso!
+La maljuna virino transformiĝu en demonon por povi sufiĉe turmenti la junan! ŝi dankas sian bonfarantinon. Ankoraŭ la malbono ne mortis en ŝi. ĉasu la dormemulinon el la lito je la kvara horo ĉiumatene! Postulu de la nekutimiĝinta laboristino absurdan laborkvanton ĉe la peniga drelika tekso!
 
 Estas bone. Eble la pentulino ne havas sufiĉe da forto por mem svingi la skurĝon kun dezirinda severeco.
 
 Kiam venas la granda printempa lavado, grafino Märta igas ŝin stari ĉe la kuvo en la lavejo. ŝi venas mem por kontroli ŝian laboron. ”La akvo estas tro malvarma en via kuvo,”
-
-
-GÖSTA BERLING
 
 
 ŝi diras kaj prenas bolantan akvon el kaldrono kaj versas sur ŝiajn nudajn brakojn.
@@ -6402,9 +5428,6 @@ Nur pri unu afero ŝi angoras. Kio okazos al ŝia bopatrino, kies koron Dio malm
 La maljunulino ne konscias pri ia malbono. ŝi kredas, ke ŝi nur punas malmoralan edzinon. En la noktoj ŝi iam kuŝas sendorma kaj cerbumas pri novaj turmentiloj.
 
 Iun vesperon ŝi iras tra la domo, kaj la grafino lumigas al ŝi per kandelo. ŝi portas ĝin en la mano sen ingo.
-
-
-GÖSTA BERLING
 
 
 ”La kandelo finiĝis,” diras la juna.
@@ -6427,9 +5450,7 @@ Jen venas la tento: Anna Stjärnhök, kiu estis ŝia amikino, kaj la leĝisto en
 
 Kaj per unu vorto ĉiuj tagmanĝaj gastoj deklaras, ke se ŝi ne eksidos ĉe la tablo, tiam ili devos foriri. Ili ne estas ekze-kutistaj helpantoj. Ili ne estas servantoj de Märta Dohna. Ili ne lasas trompi sin tiel facile kiel ŝafkapaj grafoj.
 
-”Ho, bonaj sinjoroj! Ho, amataj geamikoj! Ne estu tiel 279
-
-GÖSTA BERLING
+”Ho, bonaj sinjoroj! Ho, amataj geamikoj! Ne estu tiel
 
 
 kompataj! Vi devigas min mem elkrii mian pekon. Estas iu, kiun mi tro multe amis.”
@@ -6449,9 +5470,6 @@ Foje grafino Märta devigas ŝin sidi longajn tagojn ĉe la ku-drokadro, kaj tia
 ŝi preskaŭ volus defendi lin kaj diri, ke ŝi mem malpermesis al li doni al ŝi ian helpon. Sed ne, pli bone estas silenti, silenti kaj suferi.
 
 
-GÖSTA BERLING
-
-
 Tagon post tago pli kaj pli konsumas ŝin la fajro de troeks-citiĝo. ŝi ĉiam havas febron kaj estas tiel malforta, ke ŝi apenaŭ povas resti surpiede. ŝi volas nur morti. La potencaj fortoj de la vivo estas subpremitaj. La amo kaj la ĝojo ne kuraĝas moviĝi. ŝi ne timas plu la suferon.
 
 
@@ -6465,9 +5483,7 @@ Grafino Märta diris vorton, kiu mortigis ĉiun amon en li:
 
 ”ŝi donis sin pro la mono.” Neniu viro ja toleras ion tian. i estingas la tutan amon. Estis nun indiferente al li, kio okazas al la juna virino. Se lia patrino rekondukos ŝin sur la vojon de devo, estos bone. Grafo Henrik tre admiris sian patrinon.
 
-Tiu mizeraĵo daŭris dum unu monato. Tamen la tempo ja ne estis tiel ŝtorma kaj tumulta, kiel povas ŝajni, kiam oni kunpremas la okazojn sur kelkajn skribitajn paĝojn. Laŭdire grafino Elisabet ĉiam estis ekstere trankvila. Nur tiun solan 281
-
-GÖSTA BERLING
+Tiu mizeraĵo daŭris dum unu monato. Tamen la tempo ja ne estis tiel ŝtorma kaj tumulta, kiel povas ŝajni, kiam oni kunpremas la okazojn sur kelkajn skribitajn paĝojn. Laŭdire grafino Elisabet ĉiam estis ekstere trankvila. Nur tiun solan
 
 
 fojon, kiam ŝi eksciis pri la laŭdira morto de Gösta Berling, superregis ŝin emocio. Sed tiel angorigis ŝin tio, ke ŝi ne povis konservi sian amon al sia edzo, ke verŝajne ŝi estus lasinta grafinon Märta mortturmenti ŝin, se ŝia maljuna dommastri-no ne estus parolinta kun ŝi en iu vespero.
@@ -6484,9 +5500,7 @@ En tiu nokto ŝi silente vestis sin kaj eliris. ŝi portis la kos-tumon de ordin
 
 ŝi ne iris per facilaj paŝoj, ĉar ŝi kredis, ke ŝi ne repaciĝis kun Dio. Sed tamen ŝi ĝojis, ke ŝi de nun portos la ŝarĝon de sia peko inter fremduloj. Iliaj indiferentaj okuloj tuŝos ŝin, dolĉe kiel ŝtalo metita sur ŝvelintan membron.
 
-ŝi intencis iri, ĝis ŝi trovos malriĉan farmeton ĉe la rando de la arbaro, kie neniu povus koni ŝin. ”Okazis al mi, kiel vi 282
-
-GÖSTA BERLING
+ŝi intencis iri, ĝis ŝi trovos malriĉan farmeton ĉe la rando de la arbaro, kie neniu povus koni ŝin. ”Okazis al mi, kiel vi
 
 
 vidas, kaj miaj gepatroj forpelis min,” ŝi diros. ”Donu al mi nutraĵon kaj tegmenton tie ĉi, ĝis mi povos mem akiri mian panon! Mi ne estas sen mono.”
@@ -6499,15 +5513,10 @@ Ho, majo, kara, hela monato, ĉu vi iam observis infanon, kiu sidas sur la genuo
 
 Kiam la infano aŭdas pri kruelaj gigantoj kaj maldolĉaj suferoj de belaj princinoj, ĝi tenas la kapon supren kaj la okulojn malfermitaj, sed se la patrino komencas paroli pri feliĉo kaj sunlumo, tiam la etulo fermas siajn okulojn kaj trankvile endormiĝas kun la kapo klinita al ŝia brusto.
 
-Jen, vi bela monato, tia infano estas ankaŭ mi. Aliaj aŭskultu al parolo pri floroj kaj sunlumo, sed mi elektas por mi la nigrajn noktojn, plenajn de vizioj kaj aventuroj, por mi la severajn sortojn, por mi la malĝojoplenajn pasiojn de sovaĝi-
-
-ĝintaj koroj.
+Jen, vi bela monato, tia infano estas ankaŭ mi. Aliaj aŭskultu al parolo pri floroj kaj sunlumo, sed mi elektas por mi la nigrajn noktojn, plenajn de vizioj kaj aventuroj, por mi la severajn sortojn, por mi la malĝojoplenajn pasiojn de sovaĝiĝintaj koroj.
 
 
-GÖSTA BERLING
-
-
-DEKSEPA ĉAPITRO
+DEKSEPA ĈAPITRO
 
 La fero el Ekeby
 
@@ -6522,9 +5531,6 @@ Sed la printempo venis, kaj en la grandkomercaj kontoroj en Gotenburgo oni komen
 Sed kiom la kavaliroj zorgis pri la kontrakto de la majorino? Ili prosperigis la ĝojon, la violonludon kaj la regalojn. Ili zorgis pri tio, ke la danco kirliĝu sur la tero de la uzino.
 
 Fero venis el Stömne, fero el Sölje. La fero de Kymsberg trovis vojon tra la solecaj regionoj al Venern. De Uddeholm 42 ŝipfunto — malnova pezunuo = 170 kg.
-
-
-GÖSTA BERLING
 
 
 ĝi venis kaj de Munkfors kaj de ĉiuj la multaj uzinoj. Sed kie estas la fero de Ekeby?
@@ -6548,18 +5554,13 @@ Nu, sed se ripozis la marteloj de Ekeby, oni tamen laboris en niaj ses aliaj uzi
 Jen Gösta Berling forveturas por paroli kun la administrantoj en la ses aliaj uzinoj.
 
 
-GÖSTA BERLING
-
-
 Jen mi volas unue mencii, ke li ne trovis motivon veturi al Högfors, kiu kuŝas apud la Björksjö-rivero, iom supre de Ekeby. i kuŝas tro proksime al Ekeby, ĝi estis preskaŭ sub la regado de la kavaliroj.
 
 Sed li veturis kelkajn mejlojn norden, ĝis li venis al Lötafors. Estas bela loko, ne estas dubo pri tio. Supra Löven estas sternita antaŭ ĝi, kaj tuj malantaŭ ĝi estas Gurlita kun krute leviĝanta supro kaj peco da sovaĝeco kaj romantiko, kiu bone konvenas al malnova monto. Sed la forĝejo ne estas tia, kia ĝi devus esti: la movrado estis difektita, kaj tia ĝi estis dum la tuta jaro.
 
 ”Nu, sed kial oni ne riparis ĝin?”
 
-”La lignaĵisto, mia kara amiko, kiu estas la sola en la tuta distrikto, kiu povas ripari ĝin, estis okupita aliloke. Ni ne for-
-
-ĝis eĉ unu ŝipfunton.”
+”La lignaĵisto, mia kara amiko, kiu estas la sola en la tuta distrikto, kiu povas ripari ĝin, estis okupita aliloke. Ni ne forĝis eĉ unu ŝipfunton.”
 
 ”Nu, kial vi ne venigis la lignaĵiston?”
 
@@ -6569,9 +5570,7 @@ Tiam Gösta tuj komprenas, kiel sukcesos al li tiu ĉi vojaĝo.
 
 Li pluveturas norden al Björnidet. Bela kaj bonega loko ankaŭ ĝi, kun situo, kiu konvenus por kastelo. La granda loĝodomo tronas en duoncirkla valo, kiun ĉirkaŭas sur tri flankoj grandegaj altaĵoj kaj sur la kvara Löven, kiu tie havas sian ekstremon. Kaj Gösta scias, ke ne ekzistas pli bona loko por lunlumaj promenoj kaj amindumo ol la bordvojoj laŭ la rivero, preter la akvofalo kaj malsupren al la forĝejo, kiu havas lokon en grandegaj volbĉambroj eksplodfaritaj en la monto. Sed fero, ĉu tie ekzistas fero?
 
-Ne, kompreneble ne. Oni ne havis karbon, kaj el Ekeby oni 286
-
-GÖSTA BERLING
+Ne, kompreneble ne. Oni ne havis karbon, kaj el Ekeby oni
 
 
 ne sukcesis ricevi monon por pagi al karbigistoj kaj veturigistoj. La tuta uzina laboro ripozis dum la vintro.
@@ -6589,16 +5588,12 @@ Sed kiel tio estas ebla? En Ekeby troviĝis ja nur kvindek ŝipfuntoj da fero, e
 
 La kavaliroj estas mem sur la pezaj, malbelaj ŝipoj, ili intencas mem akompani la feron de Ekeby al Gotenburgo.
 
-Ordinara barĝisto, ordinara mortulo ne rajtas akompani la feron. La kavaliroj venis kun boteloj kaj manĝajkorboj, kun 287
-
-GÖSTA BERLING
+Ordinara barĝisto, ordinara mortulo ne rajtas akompani la feron. La kavaliroj venis kun boteloj kaj manĝajkorboj, kun
 
 
 kornoj kaj violonoj, kun pafiloj, fiŝfadenoj kaj kamfiaj kartoj.
 
-Ili faros ĉion por sia kara fero kaj ne forlasos ĝin antaŭ ol ĝi kuŝos malŝarĝita sur la kajo en Gotenburgo. Ili mem mal-
-
-ŝarĝos kaj ŝarĝos, mem prizorgos velojn kaj direktilojn. Vere ili estas la ĝustaj por tia tasko. ĉu ekzistas sablorifo en Klar-
+Ili faros ĉion por sia kara fero kaj ne forlasos ĝin antaŭ ol ĝi kuŝos malŝarĝita sur la kajo en Gotenburgo. Ili mem malŝarĝos kaj ŝarĝos, mem prizorgos velojn kaj direktilojn. Vere ili estas la ĝustaj por tia tasko. ĉu ekzistas sablorifo en Klar-
 
 älven aŭ rifo en Venern, kiun ili ne konas? ĉu iliaj manoj ne same lerte traktas direktilojn kaj pulion kiel arĉon kaj kondukrimenon?
 
@@ -6612,9 +5607,7 @@ Sed por Lövenborg ne estas utile vidi Klarälven. Li ne vidis ĝin dum tridek s
 
 Nome estis tiel, ke Lövenborg antaŭ tridek sep jaroj vidis sian fianĉinon droni en Klarälven, kaj post tio lia kompatinda kapo ofte estis en malordo.
 
-Kiam li staras tie kaj rigardas la riveron, lia maljuna cerbo pli kaj pli konfuziĝas. La griza rivero, kiu fluas kun multaj 288
-
-GÖSTA BERLING
+Kiam li staras tie kaj rigardas la riveron, lia maljuna cerbo pli kaj pli konfuziĝas. La griza rivero, kiu fluas kun multaj
 
 
 briletantaj ondetoj, estas granda serpento kun arĝentaj skvamoj, kiu embuskas por kaptaĵo. La flavaj, altaj sablomuroj, tra kiuj la rivero tranĉis sian sulkon, estas la muroj de falkapti-lo, sur kies fundo embuskas la serpento, kaj la larĝa ŝoseo, kiu faras truon tra la muro kaj tra profunda sablo vadas malsupren al la pramo, apud kiu la barĝoj estas ligitaj, estas ĝuste la enirejo al la terura mortkaverno.
@@ -6631,14 +5624,10 @@ Kaj li, kiu vidas, ke la rivero embuskas por kaptaĵo, kaj ke iu nepre venos por
 
 ĉiu scias ja, ke la vivo ŝatas aranĝi tiajn renkontojn kiel tiun, kiu nun sekvis. Kiu ankoraŭ povas miri pri io, tiu ja devas ekmiri pri tio, ke la kavaliroj estis kun siaj barĝoj ĉe la pramloko ĉe Klarälven ĝuste tiun matenon, kiu sekvis la nokton, kiam grafino Elisabet ekiris orienten. Sed certe estus pli mirige, se la juna virino ne trovus ian helpon en sia mizero.
 
-Jen okazis tiel, ke ŝi, irinte la tutan nokton, venis sur la vojon, 289
-
-GÖSTA BERLING
+Jen okazis tiel, ke ŝi, irinte la tutan nokton, venis sur la vojon,
 
 
-kiu kondukis al la pramo, ĝuste kiam la kavaliroj intencis debordiĝi, kaj ili restis rigardantaj ŝin, dum ŝi parolis kun la pramisto kaj li malfiksis la boaton. ŝi estis vestita kiel kamparana servistino, kaj ili ne suspektis, kiu ŝi estas. Sed tamen ili rigardadis ŝin, ĉar estis io konata ĉe ŝi. Dum ŝi staris tie kaj parolis kun la pramisto, vidiĝis polvonubo sur la ŝoseo, kaj en ĝi videtiĝis granda, flava kaleŝo. ŝi komprenis, ke ĝi venas de Borg, ke oni serĉas ŝin, kaj ke ŝi nun estos trovita. ŝi ne povis plu pensi pri saviĝo per la boato de la pramisto, kaj la bar-
-
-ĝoj de la kavaliroj estis la sola kaŝejo, kiun ŝi vidis. ŝi kuregis al ili sen vidi, kiuj homoj troviĝas surŝipe. Kaj bone estis, ke ŝi ne vidis tion, ĉar alie ŝi versajne preferus ĵeti sin sub la hu-fojn de la ĉevaloj ol serĉi rifuĝejon tie.
+kiu kondukis al la pramo, ĝuste kiam la kavaliroj intencis debordiĝi, kaj ili restis rigardantaj ŝin, dum ŝi parolis kun la pramisto kaj li malfiksis la boaton. ŝi estis vestita kiel kamparana servistino, kaj ili ne suspektis, kiu ŝi estas. Sed tamen ili rigardadis ŝin, ĉar estis io konata ĉe ŝi. Dum ŝi staris tie kaj parolis kun la pramisto, vidiĝis polvonubo sur la ŝoseo, kaj en ĝi videtiĝis granda, flava kaleŝo. ŝi komprenis, ke ĝi venas de Borg, ke oni serĉas ŝin, kaj ke ŝi nun estos trovita. ŝi ne povis plu pensi pri saviĝo per la boato de la pramisto, kaj la barĝoj de la kavaliroj estis la sola kaŝejo, kiun ŝi vidis. ŝi kuregis al ili sen vidi, kiuj homoj troviĝas surŝipe. Kaj bone estis, ke ŝi ne vidis tion, ĉar alie ŝi versajne preferus ĵeti sin sub la hu-fojn de la ĉevaloj ol serĉi rifuĝejon tie.
 
 Kiam ŝi estis surŝipe, ŝi kriis nur: ”Kaŝu min, kaŝu min!” Kaj jen ŝi stumblis kaj falis sur la ferŝarĝon. Sed la kavaliroj petis ŝin esti trankvila. Ili rapide debordiĝis, tiel ke la pramo venis en la flusulkon kaj drivis malsupren al Karlstad, ĝuste kiam la kaleŝo atingis la pramejon.
 
@@ -6656,12 +5645,7 @@ Sed ĉar grafo Henrik hontetis demandi pri forkurinta edzino, li diris nur:
 
 ”Nu, estas egale, sed io perdiĝis. Mi demandas, ĉu vi remis iun trans la riveron hodiaŭ.”
 
-Tiamaniere li tamen eksciis nenion, kaj grafino Märta de-290
-
-GÖSTA BERLING
-
-
-vis mem paroli kun la viro. Post minuto ŝi sciis, ke la perdi-tino troviĝas sur unu el la inerte forglitantaj barĝoj.
+Tiamaniere li tamen eksciis nenion, kaj grafino Märta devis mem paroli kun la viro. Post minuto ŝi sciis, ke la perdi-tino troviĝas sur unu el la inerte forglitantaj barĝoj.
 
 ”Kiuj homoj estas sur tiuj barĝoj?”
 
@@ -6680,9 +5664,7 @@ Respondeco vere komencas pezi sur la kapoj de la senzorguloj. Jam tiu fero estis
 
 Kiam ili renkontis tiun junan virinon dum la festoj de la vintro, iu kaj iu el ili ekpensis pri fratineto, kiun li iam amis.
 
-Kiam li ludis kaj luktis kun tiu fratino, li devis singarde preni, kaj kiam li babilis kun ŝi, li lernis atenti pri si mem por ne diri malbelajn vortojn. Se fremda knabo tro sovaĝe ĉasis ŝin dum la ludo aŭ kantis por ŝi malbelajn kantojn, tiam la frato kun senlima kolero atakis lin kaj preskaŭ elbatis el li la vivon, 291
-
-GÖSTA BERLING
+Kiam li ludis kaj luktis kun tiu fratino, li devis singarde preni, kaj kiam li babilis kun ŝi, li lernis atenti pri si mem por ne diri malbelajn vortojn. Se fremda knabo tro sovaĝe ĉasis ŝin dum la ludo aŭ kantis por ŝi malbelajn kantojn, tiam la frato kun senlima kolero atakis lin kaj preskaŭ elbatis el li la vivon,
 
 
 ĉar lia juna fratino devas neniam aŭdi ion malbonan aŭ suferi malĝojon aŭ renkontiĝi kun malico kaj malamo.
@@ -6701,9 +5683,7 @@ Dio ree volas ekzameni ŝin. Vidu, ŝi staras inter amikoj. ĉu ŝi intencas for
 
 La kavaliroj provis trankviligi ŝin. Ili diris al ŝi, ke ŝi ne bezonas timi. Ili protektos ŝntraŭ ĉiu persekuto.
 
-ŝi petis, ke ŝi nur povu iri en la malgrandan boaton, kiu 292
-
-GÖSTA BERLING
+ŝi petis, ke ŝi nur povu iri en la malgrandan boaton, kiu
 
 
 sekvis la barĝon, kaj remi al la bordo por sola daŭrigi sian iron.
@@ -6722,9 +5702,7 @@ Sed li vekiĝis el ili, ĉar la juna grafino estis en plena malespero, kaj ŝiaj
 
 Gösta vidis, ke neniu el la aliaj povas obei ŝin, kaj li komprenas, ke li devas fari tion. Li, kiu amas ŝin, devas fari tion.
 
-Li sentis malfacilon dum la iro, kvazaŭ ĉiu membro de lia 293
-
-GÖSTA BERLING
+Li sentis malfacilon dum la iro, kvazaŭ ĉiu membro de lia
 
 
 korpo kontraŭstarus lian volon, sed li trenis sin al ŝi kaj diris, ke li volas konduki ŝin al la bordo.
@@ -6754,12 +5732,7 @@ Ankoraŭ kelkajn tagojn li konservis la kuraĝon, ĝis la honoro de Ekeby estis 
 La kavaliroj ne rimarkis iun ŝanĝiĝon ĉe li, kiam ili ankoraŭ estis surŝipe. Li streĉis ĉiun nervon por konservi la gajon kaj senzorgecon, ĉar per gajo kaj senzorgeco la honoro de Ekeby estos savata. Kiel la aŭdacaĵo sukcesos por ili, se ili provos fari ĝin kun ĉagrenitaj vizaĝoj kaj senkuraĝaj koroj?
 
 
-GÖSTA BERLING
-
-
-Sed se estas vere, kiel diras la famo, ke la kavaliroj tiun fojon havis pli da sablo ol fero en la barĝoj, se estas vere, ke ili senĉese portis supren kaj malsupren la samajn stangojn ĉe la pesejo de Kanikenäset, ĝis la multaj centoj da ŝipfuntoj estis kontrolpesitaj; se estas vere, ke tio povis okazi, ĉar la pesmastro kaj liaj homoj estis tiel bone regalataj el la manĝaĵ-
-
-korboj kaj boteloj kunportitaj de Ekeby, tiam oni povas kompreni, ke ili estis gajaj sur la barĝoj.
+Sed se estas vere, kiel diras la famo, ke la kavaliroj tiun fojon havis pli da sablo ol fero en la barĝoj, se estas vere, ke ili senĉese portis supren kaj malsupren la samajn stangojn ĉe la pesejo de Kanikenäset, ĝis la multaj centoj da ŝipfuntoj estis kontrolpesitaj; se estas vere, ke tio povis okazi, ĉar la pesmastro kaj liaj homoj estis tiel bone regalataj el la manĝaĵkorboj kaj boteloj kunportitaj de Ekeby, tiam oni povas kompreni, ke ili estis gajaj sur la barĝoj.
 
 Kiu scias tion nun? Se estis tiel, do estas certe, ke Gösta Berling ne havis tempon por malĝojo. La ĝojon de aventuro kaj danĝero li tamen neniel sentis. Tuj kiam li kuraĝis fari tion, li profundiĝis en malesperon.
 
@@ -6767,9 +5740,7 @@ Kiu scias tion nun? Se estis tiel, do estas certe, ke Gösta Berling ne havis te
 
 Kiam la kavaliroj ricevis la kvitancon de la pesmastro, ili tuj ŝarĝis sian feron sur ŝipon de Venern. Alie ŝipistoj ordinare zorgis pri la transporto al Gotenburgo, kaj kiam la vermlandaj uzinoj ricevis de la pesmastro la kvitancon pri plenumita livero, ili ĝenerale ne bezonis zorgi plu pri sia fero. Sed la kavaliroj ne volis fari sian aferon duone, ili akompanos la feron ĝis Gotenburgo.
 
-Survoje tien renkontis ilin la malfeliĉo. Ekŝtormis en la nokto, la ŝipo fariĝis nedirektebla, drivis sur rifon kaj sub-akviĝis kun sia tuta valora ŝarĝo. Kornoj, ludkartoj kaj plenaj vinboteloj tiam iris al la fundo. Sed se oni ĝuste rigardas la aferon, kiom gravis, ke la fero perdiĝis? La honoro de Ekeby tamen estis savita. La fero estis kontrolpesita en la ferpesejo de Kanikenäset. Kaj ankaŭ ne gravis, ke la majoro devis per sektona letero sciigi al la grandkomercistoj en la granda urbo, 295
-
-GÖSTA BERLING
+Survoje tien renkontis ilin la malfeliĉo. Ekŝtormis en la nokto, la ŝipo fariĝis nedirektebla, drivis sur rifon kaj sub-akviĝis kun sia tuta valora ŝarĝo. Kornoj, ludkartoj kaj plenaj vinboteloj tiam iris al la fundo. Sed se oni ĝuste rigardas la aferon, kiom gravis, ke la fero perdiĝis? La honoro de Ekeby tamen estis savita. La fero estis kontrolpesita en la ferpesejo de Kanikenäset. Kaj ankaŭ ne gravis, ke la majoro devis per sektona letero sciigi al la grandkomercistoj en la granda urbo,
 
 
 ke li ne volas havi ilian monon, ĉar ili ne ricevis lian feron.
@@ -6785,10 +5756,7 @@ Kiam la kavaliroj venis hejmen, renkontis ilin novaĵoj. La edziĝo de grafo Doh
 Verŝajne la juna virino sciis nenion pri tio. ŝi vivis inter kamparanoj en malproksimaj regionoj, se ŝi vivis.
 
 
-GÖSTA BERLING
-
-
-DEKOKA ĉAPITRO
+DEKOKA ĈAPITRO
 
 La hejmo de Lilliecrona
 
@@ -6796,16 +5764,9 @@ Inter la kavaliroj estis unu, kiun mi ofte menciis kiel grandan muzikiston. Li e
 
 Iun posttagmezon li metis la violonon sub brakon kaj foriris de Ekeby. Li diris adiaŭ al neniu, tamen estis lia intenco neniam reveni. Lin naŭzis la vivo tie, de kiam li vidis grafinon Elisabet en ŝia malfeliĉo. Sen ripozo li iris la tutan vesperon kaj la tutan nokton, ĝis li fine en la frua sunleviĝo venis al grandbieneto, nomata Lövdala, kiu apartenis al li.
 
-Estis tiel frue, ke neniu homo ankoraŭ vekiĝis. Lilliecrona eksidis sur la verda balanctabulo antaŭ la loĝodomo kaj rigardis sian bienon. Dio! Pli bela loko ne ekzistis. La herbtapiŝo antaŭ la domo kuŝis sur dekliveta grundo kaj estis kovrita de delikata, helverda herbo. Egala herbtapiŝo ne ekzistis. La ŝafoj rajtis paŝtiĝi sur ĝi kaj la infanoj rajtis tumulti tie dum siiaj ludoj, sed tamen ĝi ĉiam estis same densa kaj verda. Falĉilo neniam tuŝis ĝin, sed minimume unufoje semajne la mastrino forbalaigis el la freŝa herbo la splitojn, velkintajn trunke-tojn kaj sekajn foliojn. Li rigardis la sablovojeton antaŭ la do-mo kaj subite altiris la piedojn. Malfrue en la vespero la infanoj rastis ĝin figure, kaj liaj grandaj piedoj tre difektis la be-297
+Estis tiel frue, ke neniu homo ankoraŭ vekiĝis. Lilliecrona eksidis sur la verda balanctabulo antaŭ la loĝodomo kaj rigardis sian bienon. Dio! Pli bela loko ne ekzistis. La herbtapiŝo antaŭ la domo kuŝis sur dekliveta grundo kaj estis kovrita de delikata, helverda herbo. Egala herbtapiŝo ne ekzistis. La ŝafoj rajtis paŝtiĝi sur ĝi kaj la infanoj rajtis tumulti tie dum siiaj ludoj, sed tamen ĝi ĉiam estis same densa kaj verda. Falĉilo neniam tuŝis ĝin, sed minimume unufoje semajne la mastrino forbalaigis el la freŝa herbo la splitojn, velkintajn trunke-tojn kaj sekajn foliojn. Li rigardis la sablovojeton antaŭ la do-mo kaj subite altiris la piedojn. Malfrue en la vespero la infanoj rastis ĝin figure, kaj liaj grandaj piedoj tre difektis la belan laboron. Mirinde, kiel ĉio kreskas en tiu ĉi loko! La ses sorparboj, kiuj gardas la korton, estas altaj kiel fagoj kaj vastaj kiel kverkoj miajn arbojn oni certe neniam antaŭe vidis. Ili estas belaj kun la dikaj trunkoj kovritaj de flavaj likenoj kaj grandaj, blankaj floraroj eliĝantaj tie kaj tie el la malhela verdaĵo. Li devas pensi pri la ĉielo kaj ĝiaj steloj. Estas mirinde, kiel la arboj kreskas en tiu bieno. Tie staras maljuna saliko, tiel dika, ke du viroj ne povas ĉirkaŭbraki ĝin. i nun estas putreta kaj kava interne, kaj la fulmo forprenis ĝian supron, sed ĝi ne volas morti. ĉiun printempon leviĝas el la rompita ĉeftrunko fasko da freŝa verdaĵo por montri, ke ĝi ankoraŭ vivas. Tiu paduso ĉe la orienta alo fariĝis tiel granda, ke ĝi pendas super la tuta domo. La tuta herbaĵa tegmento estas blanka de ĝiaj falintaj petaloj, ĉar la padusoj jam finfloris. Kaj la betuloj, kiuj staras arete tie kaj tie sur la kampoj, certe havas sian paradizon en lia bieno. Tie ili prezentas tiom da kreskmanieroj, kvazaŭ ili volus imiti ĉiujn aliajn arbojn. Unu similas al tilio, densa kaj foliriĉa, kun vasta volbo super ŝi, alia staras ebena kaj piramidsimila kiel poplo, kaj sur la tria la branĉoj pendas kiel sur plorsaliko. Eĉ unu ne similas al alia, kaj belaj ili ĉiuj estas.
 
-GÖSTA BERLING
-
-
-lan laboron. Mirinde, kiel ĉio kreskas en tiu ĉi loko! La ses sorparboj, kiuj gardas la korton, estas altaj kiel fagoj kaj vastaj kiel kverkoj miajn arbojn oni certe neniam antaŭe vidis. Ili estas belaj kun la dikaj trunkoj kovritaj de flavaj likenoj kaj grandaj, blankaj floraroj eliĝantaj tie kaj tie el la malhela verdaĵo. Li devas pensi pri la ĉielo kaj ĝiaj steloj. Estas mirinde, kiel la arboj kreskas en tiu bieno. Tie staras maljuna saliko, tiel dika, ke du viroj ne povas ĉirkaŭbraki ĝin. i nun estas putreta kaj kava interne, kaj la fulmo forprenis ĝian supron, sed ĝi ne volas morti. ĉiun printempon leviĝas el la rompita ĉeftrunko fasko da freŝa verdaĵo por montri, ke ĝi ankoraŭ vivas. Tiu paduso ĉe la orienta alo fariĝis tiel granda, ke ĝi pendas super la tuta domo. La tuta herbaĵa tegmento estas blanka de ĝiaj falintaj petaloj, ĉar la padusoj jam finfloris. Kaj la betuloj, kiuj staras arete tie kaj tie sur la kampoj, certe havas sian paradizon en lia bieno. Tie ili prezentas tiom da kreskmanieroj, kvazaŭ ili volus imiti ĉiujn aliajn arbojn. Unu similas al tilio, densa kaj foliriĉa, kun vasta volbo super ŝi, alia staras ebena kaj piramidsimila kiel poplo, kaj sur la tria la branĉoj pendas kiel sur plorsaliko. Eĉ unu ne similas al alia, kaj belaj ili ĉiuj estas.
-
-Jen li levis sin kaj iris ĉirkaŭ la domo. Tie kuŝis la ĝardeno tiel mirinde bela, ke li devis halti kaj profunde spiri. La pomarboj floris. Nu, tion li ja sciis. Tion li vidis ankaŭ en ĉiuj aliaj grandbienoj, sed estis nur tio, ke ili en neniu alia loko floris tiel, kiel en tiu ĉi bieno, kie li vidis ilin flori, de kiam li estis infano. Kun falditaj manoj kaj singardaj paŝoj li iris tien kaj reen sur la sablovojetoj. La tero estis blanka, kaj la arboj estis blankaj, iu kaj iu kun nuanco de helruĝo. Ion tiel belan li neniam vidis. Li konis ĉiun arbon tiel, kiel oni konas siajn 298
-
-GÖSTA BERLING
+Jen li levis sin kaj iris ĉirkaŭ la domo. Tie kuŝis la ĝardeno tiel mirinde bela, ke li devis halti kaj profunde spiri. La pomarboj floris. Nu, tion li ja sciis. Tion li vidis ankaŭ en ĉiuj aliaj grandbienoj, sed estis nur tio, ke ili en neniu alia loko floris tiel, kiel en tiu ĉi bieno, kie li vidis ilin flori, de kiam li estis infano. Kun falditaj manoj kaj singardaj paŝoj li iris tien kaj reen sur la sablovojetoj. La tero estis blanka, kaj la arboj estis blankaj, iu kaj iu kun nuanco de helruĝo. Ion tiel belan li neniam vidis. Li konis ĉiun arbon tiel, kiel oni konas siajn
 
 
 gefratojn kaj ludkamaradojn. La astrakanarboj estis tute blankaj, same la vintrofruktaj arboj. Sed la floroj de la ”somer-oruloj” estis helruĝaj kaj tiuj de la paradizpomoj estis preskaŭ ruĝaj. Plej bela estis la maljuna negreftita pomarbo, kies malgrandajn, maldolĉajn pomojn neniu povis manĝi. i ne mal-avaris pri floroj, ĝi aspektis kiel granda neĝamaso en la matena brilo.
@@ -6816,9 +5777,7 @@ Jen li staris senmova kaj rigardis la grandajn legombedojn inter la ĝardenaj vo
 
 Nun la semitaĵo komencas montriĝi.
 
-Dio benu ilin, kiel kuraĝaj ili staras tie, kaj pizoj kaj faboj 299
-
-GÖSTA BERLING
+Dio benu ilin, kiel kuraĝaj ili staras tie, kaj pizoj kaj faboj
 
 
 kun siaj du dikaj kotiledonoj! Kaj kiel plenvice kaj bonorde venis kaj karotoj kaj rapoj! Plej amuzaj estis la krispaj petroselaj folietoj, kiuj levetis la tertavolon super ŝi kaj ankoraŭ ludis kaŝludon kun la vivo.
@@ -6837,9 +5796,7 @@ En la domo la mastrino kuŝas dormante en ĉambro al la
 
 Ne la unuan fojon ŝi aŭdis violonmuzikon sub sia fenestro. Li kutimas veni tiel, ŝia edzo, kiam ili faris iun neordinare so-vaĝan petolaĵon en Ekeby.
 
-Li staras tie kaj konfesas kaj petas pri pardono. Li priskribas al ŝi la mallumajn fortojn, kiuj forlogas lin de tio, kion li 300
-
-GÖSTA BERLING
+Li staras tie kaj konfesas kaj petas pri pardono. Li priskribas al ŝi la mallumajn fortojn, kiuj forlogas lin de tio, kion li
 
 
 plej amas: de ŝi kaj la infanoj. Sed li amas ilin. Ho, vere li amas ilin!
@@ -6863,9 +5820,6 @@ Kiam la infanoj vekiĝas, estiĝas jubilo kaj ekstazo pro la alveno de patro. Il
 Jen patro, patrino kaj infanoj faras longan iron tra la kampoj. Li devas vidi kiel densa staras la sekalo, kiel kreskas la trifolio, kaj kiel la terpomoj komencas elterigi la ĉifajn foliojn.
 
 
-GÖSTA BERLING
-
-
 Li devas vidi la bovinojn, kiam ili revenas de la paŝto, saluti la novvenintojn en bovidfakoj kaj ŝafdomo, serĉi ovojn kaj doni sukeron al ĉiuj ĉevaloj.
 
 La infanoj persiste sekvas lin la tutan tagon. Neniuj legtas-koj, neniu laboro, nur ĉirkaŭvagi kun patro!
@@ -6881,16 +5835,11 @@ En lia bieno ĉio iris en kutima trankvilo. ĉio prosperis kaj kreskis sub la fl
 Kio estas nevenkebla krom la humilo? Kio estas venkocerta krom la pacienco?
 
 
-GÖSTA BERLING
-
-
-DEKNAŭA ĉAPITRO
+DEKNAŬA ĈAPITRO
 
 La sorĉistino de Dovre
 
-Jen la sorĉistino de Dovre43 iras sur la bordo de Löven. Tie oni vidis ŝin, malgrandan kaj kurbdorsan, en leda jupo kaj kun arĝentogarnita zono. Kiel ŝi venas el lupokavernoj al la mondo de la homoj? Kion la maljunulino de la montegoj ser-
-
-ĉas en la verdaĵo de la valoj?
+Jen la sorĉistino de Dovre43 iras sur la bordo de Löven. Tie oni vidis ŝin, malgrandan kaj kurbdorsan, en leda jupo kaj kun arĝentogarnita zono. Kiel ŝi venas el lupokavernoj al la mondo de la homoj? Kion la maljunulino de la montegoj serĉas en la verdaĵo de la valoj?
 
 Almozpetante ŝi venas. ŝi estas avara, avida pri donacoj, kvankam tiel riĉa. En la fendoj de la montoj la maljunulino kaŝas pezajn fandaĵojn el blanka arĝento, kaj sur sukaj herbejoj profunde inter la montegoj pastiĝas ŝiaj grandaj gregoj el nigraj, orkornaj bovinoj. Tamen ŝi iras en betulŝelaj ŝuoj kaj grasa ledvesto, sur kiu multkolora randbrodaĵo videtiĝas sub la koto de jarcentoj. ŝi havas muskon en la pipo kaj almozpetas de la plej malriĉa. Diablo donu al tiu, kiu neniam dankas, neniam ricevas sufiĉe!
 
@@ -6901,18 +5850,13 @@ Iliaj gepatroj vidis ŝin maljuna, kiam ili estis junaj. Kaj ankoraŭ ŝi ne mor
 Potenca ŝi estas. ŝi, filino de sorĉpovaj finnoj, subiĝas al 43 Dovre — montegaro en Norvegujo.
 
 
-GÖSTA BERLING
-
-
 neniu. ŝiaj larĝaj piedoj ne metas malkuraĝajn spurojn sur la gruzon de la ŝoseoj. Hajlon ŝi povas alvoki, fulmon ŝi povas direkti. ŝi povas devojigi gregojn kaj sendi lupojn sur la ŝafojn. Malmulte da bono ŝi povas kaŭzi, sed multe da malbono. Plej bone bonrilati kun ŝi. Se ŝi petus eĉ pri la sola kaprino kaj tuta kilogramo da lano, nur donu al ŝi! Alie mortfalos la ĉevalo, brulos la domo, alie infektiĝos la bovino, mortos la infano, alie troŝparema mastrino perdos la prudenton.
 
 Bonvena gasto ŝi neniam estas. Tamen plej bone renkonti ŝin kun ridetanta buŝo. Kiu scias, por kies malbonŝanco ŝi vagas tra la valo? ŝi venas ne nur por tiu celo plenigi la almo-zosakon. Malbonsignaj supernaturaĵoj akompanas ŝin: ”ar-vermo”44 aperas, vulpo kaj gufo hurlas terure en la krepusko, ruĝa kaj nigra ”elmo”45, kiu ŝprucigas venenon, rampas el la arbaro ĝis la domsojlo.
 
 Fiera ŝi estas. En ŝia kapo kaŝiĝas la saĝo de la prapatroj.
 
-Tio dignigas la animon. Valoraj runoj46 estas tranĉitaj sur ŝia bastono. Por la tuta oro de la valo ŝi ne volus vendi ĝin. Sorĉ-
-
-kanton ŝi povas kanti, sorĉkuiraĵon ŝi povas prepari, herbo-scion ŝi havas, sorĉpafon ŝi povas malŝargi super akvosurfa-co, kaj ŝtormnodojn ŝi povas ligi.
+Tio dignigas la animon. Valoraj runoj46 estas tranĉitaj sur ŝia bastono. Por la tuta oro de la valo ŝi ne volus vendi ĝin. Sorĉkanton ŝi povas kanti, sorĉkuiraĵon ŝi povas prepari, herbo-scion ŝi havas, sorĉpafon ŝi povas malŝargi super akvosurfa-co, kaj ŝtormnodojn ŝi povas ligi.
 
 Se mi ja povus interpreti la strangajn pensojn de multjar-centa cerbo! Veninte el la krepusko de la arbaroj kaj de la potencaj montegoj, kion ŝi pensas pri la homoj en la valoj?
 
@@ -6921,9 +5865,6 @@ Se mi ja povus interpreti la strangajn pensojn de multjar-centa cerbo! Veninte e
 45 ”Elmo” — svede: elma. Ankaŭ ia larvo, teruraspekta.
 
 46 Runoj — la literoj en la antikva nordlanda alfabeto. Ili estis uzataj ankaŭ por magiaj celoj. En kelkaj izolaj lokoj la scio pri la runoj restis vivanta ĝis sufiĉe malfrua tempo.
-
-
-GÖSTA BERLING
 
 
 Por ŝi, kiu kredas al Tor, la gigantmortiganto, kaj al potencaj finnaj dioj, la kristanoj ŝajnas kiel malsovaĝaj domhundoj por griza lupo. Nebridebla kiel la neĝoŝtormo, forta kiel la torento, ŝi neniam povas ami la filojn de la ebenregiono.
@@ -6938,9 +5879,7 @@ Jen okazas, ke grafino Märta ĝuste eliris sur la peronon por rigardi la pompon
 
 Grafino Märta, mastrino en Borg en tiu tempo, klinas sin trans la balustradon kaj rigardas la viandon, sed en la sama momento la finna maljunulino metas sian manon sur unu el la ŝj.
 
-Vidu tiun brunan, brilan porkhaŭton, tiun dikan tavolon 305
-
-GÖSTA BERLING
+Vidu tiun brunan, brilan porkhaŭton, tiun dikan tavolon
 
 
 da graso! Sentu tiun freŝan juniperan odoron de la novfumaĵitaj ŝj! Ho, manĝaĵo por pasintaj dioj! La sorĉistino volas posedi ĉion tion. ŝi metas sian manon sur la viandon.
@@ -6971,12 +5910,7 @@ Tiam la maljunulino ektremas sub la ŝtormo de kolero. Al la alto ŝi etendas la
 
 ŝi foriras, murmurante malbenojn, sovaĝe svingante la bastonon. ŝi iras returne hejmen. Pli suden ŝi ne iras. Jen la filino de la solecejo plenumis tiun aferon, por kiu ŝi forlasis la montojn.
 
-Grafino Märta restas sur la perono kaj ridas pri ŝia senli-306
-
-GÖSTA BERLING
-
-
-ma kolero. Sed sur siaj lipoj la rido baldaŭ silentiĝos, ĉar jen ili venas! ŝi ne povas kredi siajn okulojn. ŝi pensas, ke ŝi son-
+Grafino Märta restas sur la perono kaj ridas pri ŝia senlima kolero. Sed sur siaj lipoj la rido baldaŭ silentiĝos, ĉar jen ili venas! ŝi ne povas kredi siajn okulojn. ŝi pensas, ke ŝi son-
 
 ĝas, sed jen ili venas, la pigoj, kiuj manĝos ŝin.
 
@@ -6986,18 +5920,14 @@ Per tio ŝi ankaŭ estis enfermita for de la dolĉo kaj verdaĵo de la somero ka
 
 Freneza povas ja ŝajni ankaŭ tiu ĉi rakonto, sed tamen ĝi devas esti vera. Centoj da homoj rekonos ĝin kaj atestos, ke tia estis la malnova legendo.
 
-La birdoj eksidis sur la balustrado kaj la tegmento. Ili sidis, kvazaŭ ili nur atendus, ke la grafino montru sin, por ke ili povu ataki ŝin. Ili ekloĝis en la parko, kaj tie ili restis. Estis neeble forpeli ilin de la bieno. Fariĝis nur pli terure, se oni pafis. Anstataŭ unu falinta dek novaj alflugis. Kelkiam grandaj aroj devis ja forflugi por serĉi nutraĵon, sed fidelaj postenantoj ĉiam restis. Kaj se grafino Märta montris sin, se ŝi elrigardis tra fenestro aŭ nur por momento fortiris kurtenon, 307
-
-GÖSTA BERLING
+La birdoj eksidis sur la balustrado kaj la tegmento. Ili sidis, kvazaŭ ili nur atendus, ke la grafino montru sin, por ke ili povu ataki ŝin. Ili ekloĝis en la parko, kaj tie ili restis. Estis neeble forpeli ilin de la bieno. Fariĝis nur pli terure, se oni pafis. Anstataŭ unu falinta dek novaj alflugis. Kelkiam grandaj aroj devis ja forflugi por serĉi nutraĵon, sed fidelaj postenantoj ĉiam restis. Kaj se grafino Märta montris sin, se ŝi elrigardis tra fenestro aŭ nur por momento fortiris kurtenon,
 
 
 se ŝi provis eliri sur la peronon, tuj ili venis. La tuta terura svarmo ĵetis sin per muĝaj flugilbatoj al la domo, kaj la grafino fuĝis en sian plej internan ĉambron.
 
 ŝi loĝis en la dormĉambro malantaŭ la ruĝa salono. Ofte mi aŭdis priskribon pri la ĉambro, kia ĝi estis dum tiu tempo de teruro, kiam la pigoj sieĝis Borgon. Pezaj kovriloj an-taŭ pordoj kaj fenestroj, densaj tapiŝoj sur la planko, ŝteliran-taj, flustrantaj homoj.
 
-En la koro de la grafino loĝis pala teruro. ŝiaj haroj grizi-
-
-ĝis. ŝia vizaĝo ĉifiĝis. En unu monato ŝi fariĝis maljunulino.
+En la koro de la grafino loĝis pala teruro. ŝiaj haroj griziĝis. ŝia vizaĝo ĉifiĝis. En unu monato ŝi fariĝis maljunulino.
 
 ŝi ne povis hardi la koron por dubi pri la abomena sorĉo. ŝi eksaltis el la noktaj sonĝoj kun altaj krioj, ke la pigoj manĝas ŝin. ŝi ploris tra la tuta tago pro tiu sorto, kiun ŝi ne povis eviti. Kaŝiĝema antaŭ homoj, timante ke la birdsvarmo sekvos ĉiun eniranton, ŝi plejofte sidis silenta kun la manoj antaŭ la vizaĝo, balanciĝante tien kaj reen en sia apogseĝo, malbon-humora kaj animpremita en la sufoketa aero, foje eksaltetan-te kun plendaj krioj.
 
@@ -7012,10 +5942,7 @@ Sed estas tiel, kvankam tiu kompatinda migrantino ne sciis tiom, ke la animo est
 Tio estas la senco de la legendo.
 
 
-GÖSTA BERLING
-
-
-DUDEKA ĉAPITRO
+DUDEKA ĈAPITRO
 
 Somermezo
 
@@ -7029,12 +5956,7 @@ Estis en la tempo, kiam Sintram, la malica uzinposedanto en Fors, angoris kaj ma
 
 Kiam la pompo de la somermeza tago kuŝis sur la montoj kaj la vibranta aero portis la sonorilsonon de la preĝejo de Bro eĉ ĝis Fors, kiam la nevortigebla kvieto de la festotago regis la landon, tiam li levis sin en kolero. ŝajnis al li, kvazaŭ Dio kaj homoj kuraĝus forgesi, ke li ekzistas, kaj li decidis veturi al la preĝejo, ankaŭ li. Tiuj, kiuj jubilis pro la somero, vidos lin, Sintram, la amanton de mallumo sen mateno, de morto sen releviĝo, de vintro sen printempo.
 
-Li surmetis lupopelton kaj vilajn senfingrajn gantojn. Li jungigis la ruĝan ĉevalon al vetsledo kaj metigis sonorilojn sur la brilan, konkornamitan jungilaron. Ekipita, kvazaŭ regus tridekgrada malvarmo, li veturis al la preĝejo. Li kredis, ke la grinco sub la glitiloj dependas de akra malvarmo. Li kredis, ke la blanka ŝaŭmo sur la dorsĉevalo estas prujno. Li sen-309
-
-GÖSTA BERLING
-
-
-tis neniun varmon. Malvarmo elradiis de li kiel varmo de la suno.
+Li surmetis lupopelton kaj vilajn senfingrajn gantojn. Li jungigis la ruĝan ĉevalon al vetsledo kaj metigis sonorilojn sur la brilan, konkornamitan jungilaron. Ekipita, kvazaŭ regus tridekgrada malvarmo, li veturis al la preĝejo. Li kredis, ke la grinco sub la glitiloj dependas de akra malvarmo. Li kredis, ke la blanka ŝaŭmo sur la dorsĉevalo estas prujno. Li sentis neniun varmon. Malvarmo elradiis de li kiel varmo de la suno.
 
 Li veturis tra la larĝa ebeno norde de la preĝejo de Bro.
 
@@ -7053,12 +5975,7 @@ Sur la multaj vojoj, kiuj kondukas al Bro, venis piedire la preĝejvizitantoj. L
 Kaj la homoj ne ĉesis ĝoji pro la festotaga kvieto kaj la ripozo de la ĉiutaga laboro, pro la dolĉa varmo, pro la bonpro-mesa rikolto kaj pro la fragoj, kiuj komencis ruĝiĝi ĉe la vojrando. Ili observis la kvieton de la aero, la sennuban ĉielon kaj la alaŭdan kanton kaj diris: ”Oni vidas, ke la tago apartenas al Nia Sinjoro.”
 
 
-GÖSTA BERLING
-
-
-Jen Sintram venis. Li blasfemis kaj svingis la vipon super la tireganta ĉevalo. La sablo grincis malagrable sub la glitiloj, la akra sonorado de la sonoriloj superregis la sonon de la pre-
-
-ĝejsonoriloj. Sub la peltĉapo sterniĝis koleraj sulkoj sur lia frunto.
+Jen Sintram venis. Li blasfemis kaj svingis la vipon super la tireganta ĉevalo. La sablo grincis malagrable sub la glitiloj, la akra sonorado de la sonoriloj superregis la sonon de la preĝejsonoriloj. Sub la peltĉapo sterniĝis koleraj sulkoj sur lia frunto.
 
 Tiam frostotremis la preĝejvizitantoj kaj opiniis, ke ili vidas la inferulon. Eĉ hodiaŭ dum la festo de la somero ili ne rajtis forgesi la malbonon kaj la malvarmon. Maldolĉa estas la sorto de la surteruloj.
 
@@ -7070,29 +5987,16 @@ Sed neniu kuraĝis elpeli Sintramon. Li ĝenis la piecon de la homoj, sed oni tr
 
 Vane la maljuna pastro parolis pri la hela festo de la somero. Neniu aŭskultis lin. La homoj pensis nur pri la malbono kaj la malvarmo kaj pri la mistera malfeliĉo, kiun la malica uzinposedanto antaŭsignis al ili.
 
-Kiam ĉio finigis, oni vidis la maliculon elpaŝi sur la kru-311
-
-GÖSTA BERLING
-
-
-taĵon de la altaĵo, kie kuŝas la preĝejo de Bro. Li rigardis malsupren sur la akvokolon de Broby kaj sekvis ĝin per la okuloj ĝis Löven, preter la ĉefparoęstra domo kaj la tri terlangoj de la okcidenta bordo. Oni vidis kiel li pugnis la manon kaj skuis ĝin al la akvokolo kaj ĝiaj verdantaj bordoj. Poste liaj rigardoj glitis suden al malsupra Löven ĝis la bluaj terlangoj, kiuj ŝajnas bari la lagon. Kaj norden ili flugis mejlovaste preter Gurlita al Björnidet, kie la lago finiĝas. Li rigardis okcidenten kaj orienten, kie la longaj montoj borderas la valon, kaj ree li pugnis la manon. Kaj ĉiu sentis, ke se li havus faskon da fulmoj en sia dekstra mano, li en sovaĝa ĝojo disĵetus ilin sur la kvietan landon kaj disvastigus ĝemon kaj morton tiel malproksimen, kiel li povus. ĉar tiel li kutimigis sian koron al malbono, ke li trovis plezuron nur en malfeliĉo. Iom post iom li instruis al si ami ĉion malbelan kaj aĉan. Li estis pli freneza ol la plej furioza frenezulo, sed tion neniu komprenis.
+Kiam ĉio finigis, oni vidis la maliculon elpaŝi sur la krutaĵon de la altaĵo, kie kuŝas la preĝejo de Bro. Li rigardis malsupren sur la akvokolon de Broby kaj sekvis ĝin per la okuloj ĝis Löven, preter la ĉefparoęstra domo kaj la tri terlangoj de la okcidenta bordo. Oni vidis kiel li pugnis la manon kaj skuis ĝin al la akvokolo kaj ĝiaj verdantaj bordoj. Poste liaj rigardoj glitis suden al malsupra Löven ĝis la bluaj terlangoj, kiuj ŝajnas bari la lagon. Kaj norden ili flugis mejlovaste preter Gurlita al Björnidet, kie la lago finiĝas. Li rigardis okcidenten kaj orienten, kie la longaj montoj borderas la valon, kaj ree li pugnis la manon. Kaj ĉiu sentis, ke se li havus faskon da fulmoj en sia dekstra mano, li en sovaĝa ĝojo disĵetus ilin sur la kvietan landon kaj disvastigus ĝemon kaj morton tiel malproksimen, kiel li povus. ĉar tiel li kutimigis sian koron al malbono, ke li trovis plezuron nur en malfeliĉo. Iom post iom li instruis al si ami ĉion malbelan kaj aĉan. Li estis pli freneza ol la plej furioza frenezulo, sed tion neniu komprenis.
 
 Poste strangaj diroj iris tra la lando. Oni diris, ke kiam la pedelo venis por fermi la preĝejon, rompiĝis la alo de la ŝlosilo, ĉar en la seruro estis enmetita forte kunfaldita papero. Li donis ĝin al la ĉefparoęstro. Kiel oni povas kompreni, tio estis skribaĵo intencita por estaĵo en la alia mondo.
 
-Oni flustris pri tio, kio estis skribita tie. La ĉefparoęstro bruligis la paperon, sed la pedelo rigardis, kiam la diablaĵo brulis. La literoj brilis klare ruĝaj sur nigra fono. Li ne povis ne legi. Li legis, oni diris, ke la maliculo volas dezertigi la landon tiel vaste, kiel la preĝejturo de Bro estas videbla. Li volas vidi, ke la arbaro kaŝos la preĝejon. Li volas vidi, ke urso kaj vulpo loĝos en la homaj loĝejoj. La kampoj kuŝos nekul-turitaj, kaj nek hundo nek koko estos aŭdeblaj en tiuj regio-312
-
-GÖSTA BERLING
-
-
-noj. La maliculo volis servi sian sinjoron kaŭzante malbonon al ĉiu homo. Tio estis lia promeso.
+Oni flustris pri tio, kio estis skribita tie. La ĉefparoęstro bruligis la paperon, sed la pedelo rigardis, kiam la diablaĵo brulis. La literoj brilis klare ruĝaj sur nigra fono. Li ne povis ne legi. Li legis, oni diris, ke la maliculo volas dezertigi la landon tiel vaste, kiel la preĝejturo de Bro estas videbla. Li volas vidi, ke la arbaro kaŝos la preĝejon. Li volas vidi, ke urso kaj vulpo loĝos en la homaj loĝejoj. La kampoj kuŝos nekul-turitaj, kaj nek hundo nek koko estos aŭdeblaj en tiuj regionoj. La maliculo volis servi sian sinjoron kaŭzante malbonon al ĉiu homo. Tio estis lia promeso.
 
 Kaj la homoj atendis la estontecon dum silenta malespero, ĉar ili sciis, ke la potenco de la maliculo estas granda, ke li malamas ĉion vivan, ke li volas vidi la sovaĝejon invadi la valon, ke li volonte prenus peston, malsaton aŭ militon en sian servon por forpeli ĉiun, kiu amas la bonan, ĝojodonan laboron.
 
 
-GÖSTA BERLING
-
-
-DUDEKUNUA ĉAPITRO
+DUDEKUNUA ĈAPITRO
 
 Sinjorino Musica
 
@@ -7103,9 +6007,6 @@ Tial ili en iu junia vespero malfermigis la pordojn de la granda salono de Ekeby
 Oni forprenis la striitajn kovraĵojn de la mebloj, malfermis la pianon kaj forprenis la ŝirmvualon ĉirkaŭ la veneciaj lucer-noj. La oraj grifoj sub la blankaj tabuloj de la marmoraj tabloj ree brilis al la lumo. La blankaj diinoj dancis en la nigra enkadraĵo super la spegulo. La multformaj floroj de la silka damasko briletis en la vesperardo. Oni kolektis kaj enportis rozojn. Ilia odoro plenigis la tutan ĉambron. Tie troviĝis rozoj sen konataj nomoj, kiuj el fremdaj landoj estis portitaj al Ekeby. Tie estis la flavaj, en kies vejnoj la sango briletis ruĝe kiel tiu de homo, kaj la kremflavaj kun ŝiritaj randoj, kaj la helruĝaj kun la grandaj folioj, kiuj tuj ĉe la rando fariĝas senkoloraj kiel akvo, kaj la malhele ruĝaj kun nigraj ombroj. Ili enportis ĉiujn rozojn de Altringer, kiuj venis el malproksimaj landoj por plezurigi la okulojn de belaj virinoj.
 
 Oni enportas notojn kaj notstablojn, komojn, arĉojn kaj 47 Sinjorino Musica — personigo de la muziko. Lat. vorto, elp. Músika.
-
-
-GÖSTA BERLING
 
 
 violonojn de ĉiuj mezuroj, ĉar la bona sinjorino Musica nun ekregos en Ekeby kaj provos konsoli Göstan Berling.
@@ -7123,9 +6024,6 @@ Bone iras, brile iras. El la senviva notskribo ili elsorĉas sinjorinon Musica m
 Ho, ke estas Gösta Berling, kiu sidas tie, pala kaj senkuraĝa, kaj kiun la maljunaj sinjoroj devas amuzi, kvazaŭ li estus infano! Nun estos malmulte da ĝojo en Vermlando.
 
 
-GÖSTA BERLING
-
-
 Mi komprenas, kial la maljunuloj amis lin. Mi scias, kiel longa povas fariĝi la vintrovespero, kaj kiel malgajo povas ekregi la animon malproksime en la solecaj bienoj. Mi bone komprenas, kiel oni sentis, kiam li venis.
 
 Imagu dimanĉan posttagmezon, kiam la laboro ripozis kaj la pensoj estis inertaj! Imagu obstinan nordventon, kiu vipis malvarmon en la ĉambron, malvarmon, kiun neniu fajro povis mildigi! Imagu la solan sebokandelon, kiun oni senĉese devis meĉtondi! Imagu la unutonan psalmkantadon el la kuirejo!
@@ -7136,9 +6034,7 @@ Sed nun, ĝuste dum ili ludas, li ekploras. ŝajnas al li, ke la vivo, la tuta v
 
 La bona sinjorino Musica, kiu amas Göstan Berling, preskaŭ perdas la kuraĝon, ankaŭ ŝi, sed jen ŝi memoras, ke ŝi havas ankoraŭ unu grandan batalulon inter la kavaliroj.
 
-Estas la milda Lövenborg, li, kiu perdis sian fianĉinon en 316
-
-GÖSTA BERLING
+Estas la milda Lövenborg, li, kiu perdis sian fianĉinon en
 
 
 la malpura rivero, kaj kiu estas la sklavo de Gösta Berling pli ol iu alia. Li ŝteliras al la piano. Li iras ĉirkaŭ ĝi, singarde tuŝas
@@ -7151,9 +6047,7 @@ Tie li povas sidi dum horoj kaj lasi la fingrojn gliti trans la nigrajn kaj blan
 
 Sed la maljunulo ne kuraĝas ekfrapi alian instrumenton ol la lignan tablon. Por la piano li sentas estimplenan teruron.
 
-i logas lin, sed ĝi timigas lin ankoraŭ pli. La bruanta instrumento, el kiu oni eltondrigis tiom da polskoj, estas lia sanktejo. Li neniam kuraĝis tuŝi ĝin. Jen la mirinda objekto kun la multaj kordoj, kiu povus doni vivon al la kreaĵoj de la granda majstro! Li bezonas nur meti la orelon al ĝi, kaj tuj li aŭ-
-
-das, kiel andantoj kaj skercoj susuras interne. Jes, la piano vere estas la ĝusta altaro, kie oni devas adori sinjorinon Musica. Sed li neniam ludis tian instrumenton. Mem li ja neniam tiel riĉiĝos, ke li povos aĉeti iun, kaj sur tiu ĉi li neniam kura-
+i logas lin, sed ĝi timigas lin ankoraŭ pli. La bruanta instrumento, el kiu oni eltondrigis tiom da polskoj, estas lia sanktejo. Li neniam kuraĝis tuŝi ĝin. Jen la mirinda objekto kun la multaj kordoj, kiu povus doni vivon al la kreaĵoj de la granda majstro! Li bezonas nur meti la orelon al ĝi, kaj tuj li aŭdas, kiel andantoj kaj skercoj susuras interne. Jes, la piano vere estas la ĝusta altaro, kie oni devas adori sinjorinon Musica. Sed li neniam ludis tian instrumenton. Mem li ja neniam tiel riĉiĝos, ke li povos aĉeti iun, kaj sur tiu ĉi li neniam kura-
 
 ĝis ludi. La majorino ankaŭ ne tre emis malfermi ĝin por li.
 
@@ -7161,12 +6055,7 @@ Li ja aŭdis, kiel oni ludis polskojn kaj valsojn kaj tintigis Bellman-melodiojn
 
 Jen li pensas, ke venis la tempo por li kaj Beethoven. Li alprenos kuraĝon por tuŝi la sanktejon kaj lasos sian junan sinjoron kaj mastron ĝoji pro la dormetantaj belsonoj.
 
-Li eksidas kaj komencas ludi. Li estas tute necerta kaj eks-317
-
-GÖSTA BERLING
-
-
-citita, sed li trapalpas kelkajn taktojn, provas kapti la ĝustan sonoron, sulkigas la frunton, denove provas kaj jen metas la manojn antaŭ la vizaĝon kaj komencas plori.
+Li eksidas kaj komencas ludi. Li estas tute necerta kaj ekscitita, sed li trapalpas kelkajn taktojn, provas kapti la ĝustan sonoron, sulkigas la frunton, denove provas kaj jen metas la manojn antaŭ la vizaĝon kaj komencas plori.
 
 Jes, kara sinjorino Musica, estas maldolĉe por li. La sanktejo ja ne estas sanktejo. Ne kuŝas klaraj, puraj tonoj dormante en ĝia interno, ne ekzistas obtuza, potenca tondro, ne potence muĝanta uragano. Nenio de la senfina belsono, kiu tra-susuris la aeron de la paradizo, sinforgese restis tie. Estas malnova, bruanta piano kaj nenio pli.
 
@@ -7184,9 +6073,7 @@ Ju pli longe li ludas, des pli li entuziasmiĝas. Li aŭdas ĉiun tonon en super
 
 ”Malgojo, malĝojo,” li ludas, ”kial mi ne amu vin? Pro tio ke viaj lipoj estas malvarmaj, viaj vangoj velkintaj, ĉar via ĉir-kaŭbrako sufokas, viaj rigardoj ŝtonigas?
 
-Majĝojo, malĝojo, vi estas unu el tiuj fieraj, belaj virinoj, kies amo estas malfacile gajnebla, sed kiu brulas pli forte ol 318
-
-GÖSTA BERLING
+Majĝojo, malĝojo, vi estas unu el tiuj fieraj, belaj virinoj, kies amo estas malfacile gajnebla, sed kiu brulas pli forte ol
 
 
 tiu de aliaj. Vi forpuŝitino, mi metis vin al mia koro kaj amis vin. Mi elkaresis la froston el viaj membroj, kaj via amo plenigis min per ĉielfeliĉo.
@@ -7202,9 +6089,6 @@ La akcidenta fajro bruligu la kreskaĵojn kaj la pesto batu la homojn! Mi vokis 
 Malĝojo, malĝojo! Tiam vi fariĝis mia amikino. Kial mi ne amu vin, kiel oni amas tiujn fierajn, severajn virinojn, kies amo estas malfacile gajnebla sed brulas pli forte ol tiu de aliaj?”
 
 Tiel li ludis, la kompatinda mistikulo. Li sidis tie, radiante de entuziasmo kaj emocio, aŭdante la plej mirindajn tonojn, konvinkita pri tio, ke Gösta Berling ankaŭ devas aŭdi ilin kaj esti konsolata.
-
-
-GÖSTA BERLING
 
 
 Gösta sidis rigardante lin. Komence li estis severa pro tiu arlekenaĵo, sed iom post iom li mildiĝis. La maljunulo estis nekontraŭstarebla, kiam li sidis kaj ĝuis sian Beethoven.
@@ -7226,9 +6110,6 @@ Kurago kaj ĝojo! Estas, kvazaŭ tiuj du estus la unuaj devoj de la vivo. Vi per
 ĉu vi estas pli malforta ol Lövenborg, kiu sidas tie apud sia ligna piano, ol ĉiuj aliaj kavaliroj, la kuraĝaj, la senzorgaj, la eterne junaj? Vi ja scias, ke neniu el ili sukcesis eviti la suferon.”
 
 
-GÖSTA BERLING
-
-
 Kaj Gösta rigardas ilin. Ho, kia aranĝo! Ili ĉiuj sidas tie profunde seriozaj kaj aŭskultas tiun muzikon, kiun neniu aŭdas.
 
 Subite gaja rido ektiras Lövenborgon el liaj revoj. Li levas la manojn de la klavoj kaj aŭskultas kvazaŭ en ekstazo. Estas la malnova rido de Gösta Berling, lia bona, amikeca, infekta rido. Tio estas la plej dolĉa muziko, kiun la maljunulo aŭdis dum sia tuta vivo.
@@ -7238,10 +6119,7 @@ Subite gaja rido ektiras Lövenborgon el liaj revoj. Li levas la manojn de la kl
 ”Jen vi ree estas sana.” Tiel la bona sinjorino Musica kuracis la splenon de Gösta Berling.
 
 
-GÖSTA BERLING
-
-
-DUDEKDUA ĉAPITRO
+DUDEKDUA ĈAPITRO
 
 La pastro de Broby
 
@@ -7255,9 +6133,7 @@ is la ŝoseo oni aŭdas la blekadon de la malsataj ŝafoj. La kamparanoj donace 
 
 Malfrue li edziĝis, sed pli bone estus, se li neniam estus farinta tion. Turmentita kaj laborelĉerpita mortis lia edzino.
 
-Nun lia filino servas ĉe fremduloj. Li maljuniĝas sed la aĝo ne 322
-
-GÖSTA BERLING
+Nun lia filino servas ĉe fremduloj. Li maljuniĝas sed la aĝo ne
 
 
 donas faciligon en lia penado. La frenezo de avaro neniam forlasas lin.
@@ -7279,18 +6155,13 @@ Radbruas la kaleŝo veturante supren sur la deklivoj, kaj sur la krutaĵo la pas
 ”moneron al malriĉa homo!”
 
 
-GÖSTA BERLING
-
-
 La nobla sinjorino donas al li arĝentan moneron kaj demandas, ĉu la pastrodomo de Broby troviĝas proksime.
 
 La almozulo direktas al ŝi ruzan, akran rigardon.
 
 ”La pastrodomo kuŝas tie,” li diras, ”sed la pastro ne estas hejme, neniu estas hejme en la pastrodomo.”
 
-La delikata malgranda fraŭlino ŝajnis tute forpaliĝi. La fre-
-
-ŝa laŭbo malaperas, la amato ne estas tie. Kiel ŝi povis pensi, ke ŝi nun, post kvardekjara atendo, retrovos lin tie?
+La delikata malgranda fraŭlino ŝajnis tute forpaliĝi. La freŝa laŭbo malaperas, la amato ne estas tie. Kiel ŝi povis pensi, ke ŝi nun, post kvardekjara atendo, retrovos lin tie?
 
 Kion la fraŭlina moŝto volas en la pastrodomo? La fraŭlina moŝto venas por renkonti la subpastron. ŝi konis lin en pasintaj tagoj.
 
@@ -7298,16 +6169,11 @@ Kvardek jaroj kaj kvardek mejloj disigis ilin. Kaj dum ĉiu mejlo, per kiu ŝi p
 
 La almozulo rigardas ŝin, vidas ŝin antaŭ siaj okuloj transformiĝi de dudek ĝis sesdek jaroj, kaj ree de sesdek ĝis dudek.
 
-”La pastro revenos posttagmeze,” li diras. La fraŭlina moŝ-
-
-to farus plej bone, se ŝi veturus al la gastejo de Broby kaj revenus posttagmeze. La almozulo asertas, ke la subpastro tiam estos hejme.
+”La pastro revenos posttagmeze,” li diras. La fraŭlina moŝto farus plej bone, se ŝi veturus al la gastejo de Broby kaj revenus posttagmeze. La almozulo asertas, ke la subpastro tiam estos hejme.
 
 En la posta momento la peza kaleŝo kun la velkinta sinjorineto ruliĝas malsupren sur la deklivoj al la gastejo, sed la almozulo staras tremanta kaj postrigardas ŝin. ŝajnas al li, ke li volus ekgenui por kisi la radsulkojn.
 
 Belvestita, novrazita kaj polurita, en ŝuoj kun brilaj bukoj, kun silkaj ŝtrumpoj, kun krispkolumo kaj manumoj la pastro en Broby tagmeze en la sama tago staras antaŭ la edzino de la ĉefparoęstro en Bro.
-
-
-GÖSTA BERLING
 
 
 ”ŝi estas nobla fraŭlino,” li diras, ”filino de grafo, via sinjorina moŝto. ĉu vi kredas, ke mi, malriĉa homo, povas peti ŝin eniri al mi? Miaj plankoj estas nigraj, mia salono sen mebloj, la manĝoĉambra plafono estas verda de ŝimo kaj mucido.
@@ -7328,14 +6194,9 @@ Helpu min, por ke mi povu akcepti ŝin! Jen estas mono, se mono povos helpi, sed
 
 Ho, Eroso! La virinoj amas vin. Prefere ili iras cent paŝojn por vi ol unu por aliaj dioj.
 
-En la ĉefparoęstra domo de Bro oni malplenigas la ĉambrojn, malplenigas la kuirejon, malplenigas la provizejon. ĉe la ĉefparoęstra domo en Bro oni plenŝarĝas la laborveturi-lojn kaj veturigas ilin al la subpastra domo. Kiam la ĉefparo-
-
-ęstro revenos de la instruado al la konfirmotoj, li iros en malplenaj ĉambroj, malfermetos la kuirejan pordon por demandi pri sia tagmanĝo sed trovos neniun tie. Nek tagman-
+En la ĉefparoęstra domo de Bro oni malplenigas la ĉambrojn, malplenigas la kuirejon, malplenigas la provizejon. ĉe la ĉefparoęstra domo en Bro oni plenŝarĝas la laborveturi-lojn kaj veturigas ilin al la subpastra domo. Kiam la ĉefparoęstro revenos de la instruado al la konfirmotoj, li iros en malplenaj ĉambroj, malfermetos la kuirejan pordon por demandi pri sia tagmanĝo sed trovos neniun tie. Nek tagman-
 
 ĝon, nek sinjorinon, nek servistinon! Kiu estas kulpa? Eroso tiel volis, Eroso, la ĉionreganto.
-
-
-GÖSTA BERLING
 
 
 Jen en la posttagmezo la peza kaleŝo radbruas veturante supren sur la deklivoj de Broby. Kaj la malgranda fraŭlino demandis sin, ĉu ne okazos nova malfacilaĵo, ĉu efektive estas vero, ke ŝi nun iras por renkonti la solan ĝojon de sia vivo.
@@ -7350,9 +6211,7 @@ Kaptas ŝin ŝtormo de sentoj pli varmaj ol iam antaŭe. ŝi memoras, ke li iam 
 
 ŝi ne vidas la nigrajn plankojn, la mucide verdajn plafonojn, ŝi vidas nur liajn radiajn okulojn. En tiu momento la pastro de Broby estas pompa viro, bela sinjoro. Li beliĝas de la nura rigardo al ŝi.
 
-ŝi aŭdas lian voĉon, lian klaran, fortan voĉon, karese ĝi sonas. Tiel li parolas nur al ŝi. Por kio li bezonis meblojn el la ĉefparoęstra hejmo por siaj malplenaj ĉambroj, por kio manĝaĵon, por kio servistojn? La maljuna fraŭlino certe ne 326
-
-GÖSTA BERLING
+ŝi aŭdas lian voĉon, lian klaran, fortan voĉon, karese ĝi sonas. Tiel li parolas nur al ŝi. Por kio li bezonis meblojn el la ĉefparoęstra hejmo por siaj malplenaj ĉambroj, por kio manĝaĵon, por kio servistojn? La maljuna fraŭlino certe ne
 
 
 sentus la mankon de tio. ŝi aŭdas lian voĉon kaj vidas liajn okulojn.
@@ -7369,9 +6228,7 @@ Ne estas eble, ke la fiera junulo iam amos la oron tiel, ke li rampe serĉos ĝi
 
 La amatino de lia junaĝo ne iras apud malestimata aĉulo, neinda por la ofico, kiun li kuraĝis akcepti! Tion ŝi ne faras.
 
-Ho, Eroso, ĉionreganta dio, ne en tiu ĉi vespero! En tiu ĉi 327
-
-GÖSTA BERLING
+Ho, Eroso, ĉionreganta dio, ne en tiu ĉi vespero! En tiu ĉi
 
 
 vespero li ne estas la pastro de Broby, nek morgaŭ nek post-morgaŭ.
@@ -7387,10 +6244,7 @@ Ridetante ŝi reveturis al sia kastelo kaj siaj memoroj. ŝi poste neniam aŭdis
 En sia soleca hejmo sidis la pastro de Broby kaj ploris kiel senesperulo. ŝi rejunigis lin. ĉu li nun remaljuniĝos? ĉu la malbona spirito revenos, kaj li fariĝos malŝatinda, malŝatinda, kia li antaŭe estis?
 
 
-GÖSTA BERLING
-
-
-DUDEKTRIA ĉAPITRO
+DUDEKTRIA ĈAPITRO
 
 Sinjoro Julius
 
@@ -7402,9 +6256,7 @@ Ve al la ekzisto! Kiel ĝi povas posedi tiom da mallumo!
 
 Estis veneno en la manĝaĵo, galo en la vino. La gorĝoj de la kavaliroj same kiel la lia estis kunpremitaj de emocio. La nebulo de larmoj kovris la rigardojn. Plorsingultoj interrompis la adiaŭajn parolojn. Ve al la ekzisto! De nun lia vivo estos nur longa sopiro. Neniam liaj lipoj moviĝos por rido, la kanzonoj formortos el lia memoro, kiel la floroj mortas sur aŭtuna tero.
 
-Li forpaliĝos, malfortiĝos, velkos kiel frostmordita rozo, kiel 329
-
-GÖSTA BERLING
+Li forpaliĝos, malfortiĝos, velkos kiel frostmordita rozo, kiel
 
 
 soifanta lilio. Neniam plu la kavaliroj vidos la kompatindan Julius. Pezaj antaŭsentoj pasis tra lia animo, kiel ombroj de ŝtormpelataj nuboj trapasas niajn novkulturitajn kampojn. Li veturos hejmen por morti.
@@ -7423,9 +6275,7 @@ Sinjoro Julius iris en la kuirejon por diri adiaŭ al la domanoj. ĉiujn, de la 
 
 Sinjoro Julius ordonis, ke oni eltiru lian veturilon el la veturilejo kaj prenu lian ĉevalon el la stalo.
 
-La voĉo preskaŭ perfidis sinjoron Julius, kiam li faris tiun ordonon. La ĉaro do ne putros en kvieto en Ekeby, la maljuna Kajsa do devos forlasi la konatan manĝujon. Li ne volis diri 330
-
-GÖSTA BERLING
+La voĉo preskaŭ perfidis sinjoron Julius, kiam li faris tiun ordonon. La ĉaro do ne putros en kvieto en Ekeby, la maljuna Kajsa do devos forlasi la konatan manĝujon. Li ne volis diri
 
 
 ion malbonan pri sia patrino, sed ŝi devus pensi pri la ĉaro kaj pri Kajsa, se ŝi ne pensas pri li. Kiel ili povos elteni la longan vojaĝon?
@@ -7444,17 +6294,10 @@ Vipo klakis, la veturilo moviĝis sub li. Oni forkondukis lin.
 
 Kiam li rericevis sian vidpovon, li estis sur la ŝoseo.
 
-Vere la kavaliroj ploris kaj estis kortuŝitaj de profunda mal-
-
-ĝojo, tamen la malĝojo ne sufokis ĉe ili ĉiujn gajajn emociojn de la koro. Unu el ili — ĉu estis Gösta Berling, la poeto, aŭ Beerencreutz, la kamfiludanta maljuna militisto, aŭ la vivlaca kuzo Kristoffer? — aranĝis tiel, ke oni ne bezonis preni la maljunan Kajsan el la stalo nek la putrantan ĉaron el ĝia re-48 Reĝo Gösta — Gustav Vasa, sveda reĝo 1523–-60.
+Vere la kavaliroj ploris kaj estis kortuŝitaj de profunda malĝojo, tamen la malĝojo ne sufokis ĉe ili ĉiujn gajajn emociojn de la koro. Unu el ili — ĉu estis Gösta Berling, la poeto, aŭ Beerencreutz, la kamfiludanta maljuna militisto, aŭ la vivlaca kuzo Kristoffer? — aranĝis tiel, ke oni ne bezonis preni la maljunan Kajsan el la stalo nek la putrantan ĉaron el ĝia re-48 Reĝo Gösta — Gustav Vasa, sveda reĝo 1523–-60.
 
 
-GÖSTA BERLING
-
-
-mizo. Sed oni jungis grandan, blankmakulan bovon al fojnveturilo, kaj metinte la ruĝan keston, la verdan bareleton kaj la skulptitan manĝajkeston sur ĝi, oni fine metis sinjoron Julius, kies okuloj estis kovritaj de larmoj, ne sur la manĝaĵ-
-
-keston aŭ la vestkeston sed sur la dorson de la blankmakula bovo.
+mizo. Sed oni jungis grandan, blankmakulan bovon al fojnveturilo, kaj metinte la ruĝan keston, la verdan bareleton kaj la skulptitan manĝajkeston sur ĝi, oni fine metis sinjoron Julius, kies okuloj estis kovritaj de larmoj, ne sur la manĝaĵkeston aŭ la vestkeston sed sur la dorson de la blankmakula bovo.
 
 Jen, tia estas la homo! Tro malforta por renkonti la doloron en ĝia tuta maldolĉo! La kavaliroj ja malĝojis pri tiu amiko, kiu foriris por morti, tiu velkanta lilio, tiu mortpafita kant-cigno. Tamen mildiĝis la premo sur iliaj koroj, kiam ili vidis lin foriri rajdante sur la dorso de la granda bovo, dum lia korpo skuiĝis pro plorsingultoj, dum liaj brakoj, etenditaj por iu lasta ĉirkaŭbrako, senespere falis malsupren, kaj liaj okuloj serĉis juston ĉe malmilda ĉielo.
 
@@ -7475,9 +6318,6 @@ Unu, du,
 vermlandaj soldatoj venas nun.”
 
 
-GÖSTA BERLING
-
-
 Tiel sonoris renkonte al li, sed soldatoj ne estis sed la gajaj fraŭlinoj el Berga kaj du el la belaj filinoj de la leĝisto en Munkerud, kiuj venis piedire laŭ la vojo. Ili metis siajn tuk-paketojn kun manĝaĵo sur longajn stangojn, kiuj kuŝis kiel fusiloj sur iliaj ŝultroj, kaj ili kuraĝe marŝis antaŭen en la somera varmego, kantante en bona takto: ”Unu, du, unu, du —
 
 — —”
@@ -7492,11 +6332,7 @@ Tiel sonoris renkonte al li, sed soldatoj ne estis sed la gajaj fraŭlinoj el Be
 
 Post tio li volis pluveturi, sed tio neniel plaĉis al la gajaj knabinoj. Ili intencis supreniri al la monto Dunderklatten por surgrimpi ĝin, sed la vojo estis longa, kaj ili tre deziris veturi en la fojnveturilo de Julius ĝis la piedo de la monto.
 
-Feliĉaj tiuj, kiuj povas ĝoji pri la sunlumo de la vivo kaj ne bezonas hederon por ŝirmi sian verton! Post du minutoj la volo de la knabinoj jam venkis. Sinjoro Julius turnis kaj direktis supren al Dunderklatten. Ridetanta li sidis sur la man-
-
-ĝaĵkesto, dum la veturilo pleniĝis de knabinoj. Laŭ la vojo 333
-
-GÖSTA BERLING
+Feliĉaj tiuj, kiuj povas ĝoji pri la sunlumo de la vivo kaj ne bezonas hederon por ŝirmi sian verton! Post du minutoj la volo de la knabinoj jam venkis. Sinjoro Julius turnis kaj direktis supren al Dunderklatten. Ridetanta li sidis sur la manĝaĵkesto, dum la veturilo pleniĝis de knabinoj. Laŭ la vojo
 
 
 kreskis lekantoj, kamomiloj kaj kukolpizoj49. Foje la bovo devis iom ripozi. Tiam la knabinoj eliris por kolekti florojn.
@@ -7510,9 +6346,6 @@ Ju pli la tago pasis, des pli milda kaj hela fariĝis sinjoro Julius. Li disdoni
 ”Ho, Vermlando,” li diris, ”vi bela, vi brila! Ofte, kiam mi vidis vin sur karto antaŭ mi, mi demandis min, al kio vi similas, sed nun mi komprenas, kio vi estas. Vi estas maljuna, pia ermito, kiu sidas senmova kaj revas, kun krucmetitaj kruroj kaj la manoj ripozantaj sur la sino. Vi portas pintan ĉapon malsuprentiritan al viaj duonfermitaj okuloj. Vi estas medi-tanto, sankta revanto, kaj vi estas tre bela. Vastaj arbaroj estas via vesto. Longaj rubandoj el blua akvo kaj paralelaj ĉenoj el bluaj altaĵoj borderas ĝin. Vi estas tiel simpla, ke la fremdulo ne vidas, kiel bela vi estas. Vi estas malriĉa, kiel la piuloj deziras esti. Vi sidas senmova, dum la ondoj de Venern lavas viajn piedojn kaj viajn krucmetitajn krurojn. Maldekstre vi havas viajn ercejojn kaj minojn. Tie estas via batanta 49 Kukolpizoj — Lathyrus montanus (Orobus tuberosus).
 
 
-GÖSTA BERLING
-
-
 koro. Norde vi havas la malhelajn, belajn regionojn de la soleco kaj mistero. Tie estas via revanta kapo.
 
 Kiam mi vidas vin, vi gigantsimila, vi serioza, mia okulo pleniĝas de larmoj. Vi estas severa en via beleco, vi estas me-dito, malriĉo, rezigno, kaj tamen mi vidas meze en via severo la dolĉajn trajtojn de mildo. Mi vidas vin kaj adoras. Se mi nur rigardas en la vastan arbaron, se tuŝas min nur rando de via vesto, mia spirito saniĝas. Horon post horo, jaron post jaro mi rigardis vian sanktan vizaĝon. Kiujn enigmojn vi kaŝas sub mallevitaj palpebroj, dieco de rezigno? ĉu vi solvis la enigmon de vivo kaj morto, aŭ ĉu vi ankoraŭ cerbumas, vi sankta, gigantsimila? Por mi vi estas fleganto de grandaj, seriozaj pensoj. Sed mi vidas homojn rampi sur vi kaj ĉirkaŭ vi, estaĵojn, kiuj ŝajnas neniam rimarki la majeston de seriozo sur via frunto. Ili vidas nur la belecon de via vizaĝo kaj viaj membroj, kaj ĝi ravas ilin tiel, ke ili forgesas ĉion.
@@ -7522,9 +6355,6 @@ Ve al mi, ve al ni ĉiuj, infanoj de Vermlando! Belon, belon kaj nenion alian ni
 Ho, Vermlando, vi bela, vi brila!”
 
 Tiel li parolis kun larmoj en la okuloj, kaj la voĉo tremis pro emocio. La knabinoj aŭskultis lin kun miro kaj ne sen emocio. Malmulte ili komprenis la profundecon de tiuj sentoj, kiuj kaŝiĝis sub tiu surfaco briletanta pro ŝercoj kaj ridoj.
-
-
-GÖSTA BERLING
 
 
 Kiam vesperiĝis kaj ili ree iris en la veturilon, la knabinoj apenaŭ sciis, kien sinjoro Julius kondukas ilin, ĝis ili haltis antaŭ la perono de Ekeby.
@@ -7538,19 +6368,13 @@ Kion diris la kavaliroj, kiam ili vidis sinjoron Julius reveni kun velkinta flor
 Li estis grandioza viro, sinjoro Julius. Li estis malpeza en la danco, vigla ĉe la ludtablo. Plumon, penikon kaj arĉon lia ma-no same lerte traktis. Li havis facile tuŝeblan koron, belajn vortojn sur la lango, la gorĝon plena de kanzonoj. Sed por kio utilus ĉio tio, se li ne posedus konsciencon, kiu sentigas sin nur unufoje en la jaro, simile al tiuj efemeroj, kiuj liberigas sin el la malgajaj profundoj kaj prenas flugilojn por vivi nur kelkajn horojn en taglumo kaj sunbrilo?
 
 
-GÖSTA BERLING
-
-
-DUDEKKVARA ĉAPITRO
+DUDEKKVARA ĈAPITRO
 
 La argilaj sanktuloj
 
 La preĝejo de Svartsjö estas blanka kaj ekstere kaj interne: blankaj estas la muroj, la katedro, la benkoj, la galerio, la plafono, la fenestrokadroj, la altartuko, ĉio estas blanka. En la preĝejo de Svartsjö troviĝas neniuj ornamaĵoj, neniuj bildoj, neniuj blazonoj. Super la altaro staras nur ligna kruco kun blanka tolŝtofo. Antaŭe ne estis tiel. Tiam la plafono estis plena de pentraĵoj, kaj multaj diverskoloraj bildoj el ŝto-no kaj argilo ekzistis en tiu domo de Dio.
 
 Iam antaŭ tre longe artisto en Svartsjö rigardis la ĉielon de somera tago kaj observis, kiel la nuboj veturis al la suno. Li vidis la blankajn, brilajn nubojn, kiuj matene staras ĉe la horizonto, turiĝi pli kaj pli alten, vidis ĉiujn atendantajn kolo-sojn vastiĝi kaj levi sin por ŝtormi al la alto. Ili suprenmetis velojn kiel ŝipoj. Ili levis standardojn kiel militistoj. Ili moviĝis por invadi la tutan ĉielon. Antaŭ la suno, la estrino de la spaco, ili transformis sin, tiuj kreskantaj monstroj, kaj alprenis sendanĝeran aspekton. Jen estis avidega leono. i transformis sin en pudritan sinjorinon. Jen estis giganto kun sufokaj brakoj. Li ekkuŝis kiel revanta sfinkso. Kelkaj ornamis sian blankan nudecon per orborderitaj manteloj. Aliaj ŝutis ruĝan ŝmn sur vangojn el neĝo. Jen estis ebenoj. Jen estis arbaroj. Jen estis masonitaj kasteloj kun altaj turoj. La blankaj nuboj fariĝis la estroj de la somera ĉielo. Ili plenigis la tutan bluan volbon. Ili atingis la sunon kaj kovris ĝin.
-
-
-GÖSTA BERLING
 
 
 ”Ho, kiel bele,” la pia artisto pensis, ”se la sopirantaj animoj povus grimpi sur tiujn turiĝantajn montojn, por ke tiuj portu ilin pli kaj pli alten kiel ŝanceliĝanta ŝipo!”
@@ -7560,9 +6384,6 @@ Kaj tuj li komprenis, ke la blankaj nuboj de la somera tago estas la veturiloj, 
 Li vidis ilin tie. Ili staris sur la glitantaj amasoj kun lilioj en la manoj kaj orkronoj sur la kapoj. La spaco resonis de ilia kanto. Anĝeloj ŝvebis malsupren sur larĝaj, fortaj flugiloj, renkonte al ili. Ho, kia amaso da feliĉuloj! Laŭ la disvastiĝo de la nuboj pli kaj pli multaj fariĝis videblaj. Ili ripozis sur la nubkuŝejoj kiel nimfoj sur la lago. Ili ornamis ilin, kiel la lilioj ornamas la herbejon. Kia jubila alteniro! Nuboj suprenruliĝis malantaŭ nuboj. Kaj ĉiuj estis plenaj de ĉielaj militistaroj kun arĝentaj kirasoj, de senmortaj kantistoj en purpurborderitaj manteloj.
 
 Tiu artisto poste pentris la plafonon en la preĝejo de Svartsjö. Tie li volis redoni la leviĝantajn nubojn de la somertago, kiuj portis la feliĉulojn en la brilon de la ĉielo. La mano, kiu kondukis la penikon, estis forta, sed ankaŭ iom rigida, tiel ke la nuboj pli similis al la krispaj bukloj de allonge-peruko50 ol la kreskantaj montoj el mola nebulo. Kaj tiel, kiel la sanktuloj prenis figuron en la fantazio de la artisto, li ne kapablis redoni ilin, sed li laŭ homa maniero vestis ilin per longaj, ruĝaj kapotoj kaj rigidaj episkopaj ĉapoj aŭ per nigraj kaftanoj kun rigidaj tubkolumoj. Li donis al ili grandajn kapojn kaj malgrandajn korpojn, kaj li provizis ilin per naztukoj kaj preĝo-libroj. Latinaj sentencoj flugis el iliaj buŝoj, kaj por tiuj, kiujn li opiniis plej eminentaj, li metis firmajn lignajn seĝojn sur la 50 Allonge-peruko — peruko kun longaj bukloj, multe uzata en la 17-a jarcento. Allonge, franca vorto, elp. proks. alonĵ.
-
-
-GÖSTA BERLING
 
 
 nubdorsojn, tiel ke ili komforte sidante povu veturi en la eter-necon.
@@ -7580,31 +6401,19 @@ Sed imagu nur: tie troviĝis sankta Olof kun krono ĉirkaŭ la kasko, hakilo en 
 Multajn dimanĉojn mi sidis en la preĝejo de Svartsjö kaj ĉagreniĝis pro tio, ke la bildoj estas for, kaj sopiris pri ili. Mi 51 Sibilaj libroj — Sibila (lat. Sibylla) antaŭdiristino en la grek-roma tempo. Sibilaj libroj estis orakolaj libroj en la antikva Romo.
 
 
-GÖSTA BERLING
-
-
-ne tre atentus, se mankus al ili nazo aŭ piedoj, se la oritaĵo estus paliĝinta kaj la farbo defalinta. Mi vidus ilin ĉirkaŭ-
-
-radiitaj de la brilvibro de la legendoj.
+ne tre atentus, se mankus al ili nazo aŭ piedoj, se la oritaĵo estus paliĝinta kaj la farbo defalinta. Mi vidus ilin ĉirkaŭradiitaj de la brilvibro de la legendoj.
 
 Laŭdire la afero ĉiam estis, ke tiuj sanktuloj perdis siajn sceptrojn, orelojn aŭ manojn, kaj oni devis ripari kaj bonigi ilin. Tio tedis la paroąnojn kaj ili sopiris liberiĝi de ili. Sed la kamparanoj certe ne estus farintaj ian domaĝon al la sanktuloj, se grafo Dohna ne estus. Estis li, kiu forprenigis ilin.
 
 Mi malamis lin pro tio, kiel nur infano povas malami. Mi malamis lin, kiel la malsata almozulo malamas la avaran mastrinon, kiu rifuzas al li panon. Mi malamis lin, kiel malriĉa fiŝisto malamas difekteman bubon, kiu detruis liajn retojn kaj hakis truon en lia boato. ĉu mi ne malsatis kaj soifis dum tiuj longaj diservoj? Kaj li forprenis panon, per kiu mia animo povus vivi. ĉu mi ne sopiris al la senfineco, al la ĉielo? Kaj li detruis mian veturilon kaj disŝiris la reton, per kiu mi povus kapti sanktajn viziojn.
 
-En la mondo de la plenkreskuloj ne troviĝas loko por vera malamo. Kiel mi nun povus malami tiel mizeran estaĵon kiel tiun grafon Dohna aŭ frenezulon kiel Sintram aŭ senforti-
-
-ĝintan mondecan sinjorinon kiel grafinon Märta? Sed tiam mi estis infano. Estis ilia feliĉo, ke ili antaŭ longe mortis.
+En la mondo de la plenkreskuloj ne troviĝas loko por vera malamo. Kiel mi nun povus malami tiel mizeran estaĵon kiel tiun grafon Dohna aŭ frenezulon kiel Sintram aŭ senfortiĝintan mondecan sinjorinon kiel grafinon Märta? Sed tiam mi estis infano. Estis ilia feliĉo, ke ili antaŭ longe mortis.
 
 Eble la pastro staris antaŭe en la preĝejo kaj parolis pri paco kaj interpaciĝemo, sed al nia loko en la preĝejo liaj vortoj neniam estis aŭdeblaj. Ho, se mi havus ilin tie, la malnovajn argilsanktulojn! Certe ili predikus por mi tiel, ke mi povus kaj aŭdi kaj kompreni.
 
 Sed jen mi sidis plej ofte kaj pensis pri tio, kiel estis, kiam oni forrabis kaj detruis ilin.
 
-Kiam grafo Dohna deklarigis sian edziĝon nuligita ansta-340
-
-GÖSTA BERLING
-
-
-taŭ serĉi sian edzinon kaj leĝigi ĝin, tio vekis inciton ĉe ĉiuj, ĉar oni sciis, ke lia edzino forlasis lian hejmon nur por ne esti mortturmentata. ŝajnis nun, kvazaŭ li volus regajni la lavoron de Dio kaj la estimon de homoj per bona faro, kaj jen li riparigis la preĝejon de Svartsjö. Li blankpentrigis la tutan preĝejon kaj forigis la plafonpentraĵojn. Li mem kaj liaj servistoj portis la bildojn en boaton kaj malsuprenigis ilin en la profundon de Löven.
+Kiam grafo Dohna deklarigis sian edziĝon nuligita anstataŭ serĉi sian edzinon kaj leĝigi ĝin, tio vekis inciton ĉe ĉiuj, ĉar oni sciis, ke lia edzino forlasis lian hejmon nur por ne esti mortturmentata. ŝajnis nun, kvazaŭ li volus regajni la lavoron de Dio kaj la estimon de homoj per bona faro, kaj jen li riparigis la preĝejon de Svartsjö. Li blankpentrigis la tutan preĝejon kaj forigis la plafonpentraĵojn. Li mem kaj liaj servistoj portis la bildojn en boaton kaj malsuprenigis ilin en la profundon de Löven.
 
 Kiel li tamen kuraĝis meti sian manon sur tiujn potencu-lojn de la Sinjoro?
 
@@ -7612,11 +6421,7 @@ Ho, ke la malbonfaro povis okazi! ĉu la mano, kiu dehakis la kapon de Holoferno
 
 Mi pensis pri tiu boato kun ĝia ŝarĝo de sanktuloj, kiu en kvieta somervespero glitis antaŭen sur la surfaco de Löven.
 
-La remanta viro faris malrapidajn remmovojn kaj sendis fuĝ-
-
-emajn rigardojn al la strangaj pasaĝeroj, kiuj kuŝis en la pruo kaj la poŭpo, sed grafo Dohna, kiu ankaŭ kunestis, ne timis, li prenis ilin unu post la alia per siaj plejmoŝtaj manoj kaj ĵetis 341
-
-GÖSTA BERLING
+La remanta viro faris malrapidajn remmovojn kaj sendis fuĝemajn rigardojn al la strangaj pasaĝeroj, kiuj kuŝis en la pruo kaj la poŭpo, sed grafo Dohna, kiu ankaŭ kunestis, ne timis, li prenis ilin unu post la alia per siaj plejmoŝtaj manoj kaj ĵetis
 
 
 en la akvon. Lia frunto estis serena, kaj li spiris profunde. Li sentis sin kiel batalanto por la pura evangelia kredo. Kaj neniu miraklo okazis al la honoro de la malnovaj sanktuloj. Silentaj kaj senkuraĝaj ili malsupreniĝis en la pereon.
@@ -7629,9 +6434,7 @@ Tiun dimanĉon grafo Dohna sidis en la absido sur florornamita apogseĝo por est
 
 Nun oni honoru lin, kiu riparigis la malnovajn benkojn, detruis la malornamajn bildojn, metigis novan vitron en ĉiujn rompitajn fenestrojn kaj pentrigis la tutan preĝejon per kalko. Tion li verdire rajtis libere fari. Se li volis mildigi la koleron de la Plejpotenculo, estis ja bone, ke li ornamis lian temp-lon laŭ sia kompreno. Sed kial li do prenis laŭdon pro tio?
 
-Li, kiu venis kun nepacigita severo sur sia konscienco, li ja povus ekgenui sur la malhonora benketo kaj peti siajn fratojn kaj fratinojn en la preĝejo preĝi al Dio, ke li toleru lin en sia sanktejo. Estus pli bone por li, se li starus tie kiel kompatinda malbonfaranto, ol ke li sidus honorata kaj benata antaŭe 342
-
-GÖSTA BERLING
+Li, kiu venis kun nepacigita severo sur sia konscienco, li ja povus ekgenui sur la malhonora benketo kaj peti siajn fratojn kaj fratinojn en la preĝejo preĝi al Dio, ke li toleru lin en sia sanktejo. Estus pli bone por li, se li starus tie kiel kompatinda malbonfaranto, ol ke li sidus honorata kaj benata antaŭe
 
 
 en la absido, prenante laŭdon pro tio, ke li volas paciĝi kun Dio.
@@ -7649,9 +6452,6 @@ Ion tian ili ne povas toleri. Tial ili supreniris el sia malseka tombo kaj enira
 Jen iras sankta Olof, kun la krono ĉirkaŭ la ĉapelo, kaj sankta Erik, kun la orfloroj sur la kapoto, kaj la griza sankta Goran kaj sankta Kristoffer, neniuj pli: la reĝino de ŝeba kaj Judit ne venis.
 
 Sed kiam la homoj trankviliĝis post sia konsterniĝo, aŭdebla flustro trairas la preĝejon.
-
-
-GÖSTA BERLING
 
 
 ”La kavaliroj!”
@@ -7672,24 +6472,17 @@ Estis peko veni al la preĝejo kun sovaĝaj petolaĵoj, sed kaj la pastro kaj la
 
 ”Kiam homoj silentas, ŝtonoj devas paroli,” ili diris.
 
-Sed post tiu tago grafo Henrik ne povis senti hejmecon en Borg. En malluma nokto komence de aŭgusto tegita kaleŝo alveturis tuj apud la grandan peronon. ĉiuj servistoj starigis sin ĉirkaŭ ĝi kaj grafino Märta elvenis, envolvita per ŝaloj kaj kun densa vualo antaŭ la vizaĝo. La grafo kondukis ŝin, sed 344
-
-GÖSTA BERLING
+Sed post tiu tago grafo Henrik ne povis senti hejmecon en Borg. En malluma nokto komence de aŭgusto tegita kaleŝo alveturis tuj apud la grandan peronon. ĉiuj servistoj starigis sin ĉirkaŭ ĝi kaj grafino Märta elvenis, envolvita per ŝaloj kaj kun densa vualo antaŭ la vizaĝo. La grafo kondukis ŝin, sed
 
 
 ŝi tremis kaj timskuiĝis. Nur per plej granda peno oni povis igi ŝin iri tra la vestiblo kaj trans la peronon.
 
-Jen ŝi do venis en la veturilon, la grafo saltis en ĝin post ŝi, la pordoj klakfermiĝis, kaj la veturigisto igis la ĉevalojn movi-
-
-ĝi kvazaŭ timkure. Kiam la pigoj vekiĝis la postan matenon, ŝi estis for.
+Jen ŝi do venis en la veturilon, la grafo saltis en ĝin post ŝi, la pordoj klakfermiĝis, kaj la veturigisto igis la ĉevalojn moviĝi kvazaŭ timkure. Kiam la pigoj vekiĝis la postan matenon, ŝi estis for.
 
 La grafo poste vivis malproksime en la sudo. Borg vendiĝis kaj multfoje ŝangis posedanton. ĉiuj devas ami ĝin. Certe estas malmultaj, kiuj posedis ĝin kun feliĉo.
 
 
-GÖSTA BERLING
-
-
-DUDEKKVINA ĉAPITRO
+DUDEKKVINA ĈAPITRO
 
 La migranto de Dio
 
@@ -7699,12 +6492,7 @@ Tiam kapitano Lennart ankoraŭ ne sciis, ke li estos unu el la migrantoj de Dio 
 
 La migranto de Dio, kapitano Lennart, havis gajan humoron. ĉar li ne trovis iun homon en la kuirejo, li kondutis tie, kvazaŭ li estus petola bubo. Rapide li faris misrandon en la tekso kaj malordigis la ŝnuron de la ŝpinila rado. Li ĵetis la katon sur la kapon de la hundo kaj ridis tiel, ke sonis en la tuta domo, kiam la du kamaradoj lasis la koleron de la momento rompi malnovan amikecon kaj atakis unu la alian kun streĉitaj ungoj, koleraj okuloj kaj hirtaj haroj.
 
-Jen envenis la mastrino, logita de la bruo. ŝi haltis sur la sojlo kaj rigardis la viron, kiu ridis pri la batalantaj bestoj. ŝi bone konis lin, sed kiam ŝi lastfoje vidis lin, li sidis sur la kaptitĉaro kaj portis mankatenojn. ŝi bone memoris tion. An-taŭ kvin kaj duona jaroj ŝtelistoj dum la vintra foiro en Karl-346
-
-GÖSTA BERLING
-
-
-stad ŝtelis la ornamaĵojn de la edzino de la guberniestro. Tiam perdiĝis multaj ringoj, brakringoj kaj bukoj, alte ŝatataj de la nobla sinjorino, ĉar la plejmulto estis heredaĵoj kaj donacoj.
+Jen envenis la mastrino, logita de la bruo. ŝi haltis sur la sojlo kaj rigardis la viron, kiu ridis pri la batalantaj bestoj. ŝi bone konis lin, sed kiam ŝi lastfoje vidis lin, li sidis sur la kaptitĉaro kaj portis mankatenojn. ŝi bone memoris tion. An-taŭ kvin kaj duona jaroj ŝtelistoj dum la vintra foiro en Karlstad ŝtelis la ornamaĵojn de la edzino de la guberniestro. Tiam perdiĝis multaj ringoj, brakringoj kaj bukoj, alte ŝatataj de la nobla sinjorino, ĉar la plejmulto estis heredaĵoj kaj donacoj.
 
 Ili neniam retroviĝis. Sed baldaŭ tra la lando kuris diro, ke kapitano Lennart en Helgesater estas la ŝtelinto.
 
@@ -7719,9 +6507,6 @@ Mem li diris, ke li estis en la foiro sed forveturis de tie, antaŭ ol li ekaŭd
 53 Glavordeno — sveda ordeno.
 
 
-GÖSTA BERLING
-
-
 li timis pro la atesto, kiun kapitano Lennart povus doni kontraŭ li. Nun oni malkondamnis lin pro manko de pruvo.
 
 La mastrino ne povis satrigardi la viron. Liaj haroj griziĝis kaj la dorso kurbiĝis, certe estis malfacile por li. Sed sian afablan vizaĝon kaj sian gajan humoron li konservis. Li ankoraŭ estis la sama kapitano Lennart, kiu kondukis ŝin al la altaro, kiam ŝi edziniĝis, kaj dancis dum ŝia edziniĝa festo. Certe li devas ankoraŭ halti kaj paroli kun ĉiu homo, kiun li renkontas sur la vojo kaj ĵeti moneron al ĉiu infano. Li ankoraŭ diros al ĉiu sulka maljunulino, ke ŝi fariĝas pli juna kaj bela per ĉiu tago, kaj li ankoraŭfoje povus ekstari sur barelo por ludi violonon por tiuj, kiuj dancas ĉirkaŭ la somermeza stango.
@@ -7732,9 +6517,7 @@ Ho Dio mia, ja!
 
 Verdire li venis tien por ekscii, kiel statas en lia hejmo kaj ĉu ili atendas lin. Ili ja povas scii, ke li trapasis la punon je tiu ĉi tempo.
 
-La mastrino donis al li nur bonajn novaĵojn. Lia edzino estis brava kiel viro. ŝi farmis la bieneton de la nova havan-to, kaj ĉio prosperis al ŝi. La infanoj estas sanaj, kaj estas ĝojo vidi ilin. Kaj kompreneble ili atendas lin. La kapitanedzino estis severa sinjorino, kiu neniam diris, kion ŝi pensas, sed tiom la mastrino sciis, ke neniu rajtis manĝi per la kulero de kapitano Lennart aŭ sidi sur lia seĝo, dum li estis for. Nun en la printempo neniu tago pasis, sen ke ŝi iris al la ŝtono sur la supro de la deklivoj de Broby kaj rigardis malsupren laŭ la vojo por vidi, ĉu li venas. Kaj novajn vestojn ŝi faris por li, hejmteksitajn vestojn, pri kiuj ŝi mem faris la plej multan 348
-
-GÖSTA BERLING
+La mastrino donis al li nur bonajn novaĵojn. Lia edzino estis brava kiel viro. ŝi farmis la bieneton de la nova havan-to, kaj ĉio prosperis al ŝi. La infanoj estas sanaj, kaj estas ĝojo vidi ilin. Kaj kompreneble ili atendas lin. La kapitanedzino estis severa sinjorino, kiu neniam diris, kion ŝi pensas, sed tiom la mastrino sciis, ke neniu rajtis manĝi per la kulero de kapitano Lennart aŭ sidi sur lia seĝo, dum li estis for. Nun en la printempo neniu tago pasis, sen ke ŝi iris al la ŝtono sur la supro de la deklivoj de Broby kaj rigardis malsupren laŭ la vojo por vidi, ĉu li venas. Kaj novajn vestojn ŝi faris por li, hejmteksitajn vestojn, pri kiuj ŝi mem faris la plej multan
 
 
 laboron. Jen, de tio oni povas scii, ke li estas atendata, kvankam ŝi nenion diris.
@@ -7753,17 +6536,13 @@ La kavaliroj de Ekeby ĝuste alvenis al la gastejo. Sintram invitis ilin tien po
 
 ”Hontu, fripono!” kapitano Lennart kriis. ”ĉu vi kredas, ke mi ne scias, ke ne estis nia Sinjoro, kiu savis vin de la eŝafo-do?”
 
-La aliaj ridis. Sed Sintram neniel koleriĝis. Li tute ne mal-
-
-ŝatis, ke oni aludas al lia interkonsento kun la inferulo.
+La aliaj ridis. Sed Sintram neniel koleriĝis. Li tute ne malŝatis, ke oni aludas al lia interkonsento kun la inferulo.
 
 Nu, jen ili kunprenis Lennarton internen por eltrinki kun li bonvenan glason. Poste li ja povus tuj pluiri. Sed tiam iris malbone por li. Li ne trinkis tiajn perfidajn aĵojn dum kvin jaroj. Eble li ne manĝis dum la tuta tago, kaj li estis elĉerpita de sia longa iro. Sekve lia kapo turniĝis pro kelkaj glasoj.
 
 Kiam la kavaliroj tiom regalis lin, ke li ne sciis plu kion li faras, ili devigis lin trinki glason post glaso, kaj ili ne intencis ion malbonan per tio, estis nura bonintenco por li, kiu nenion bonan gustumis dum kvin jaroj.
 
-Alie li estis la plej sobra homo. Oni ja ankaŭ povas kompreni, ke li ne intencis ebriigi sin, li ja volis iri hejmen al la 349
-
-GÖSTA BERLING
+Alie li estis la plej sobra homo. Oni ja ankaŭ povas kompreni, ke li ne intencis ebriigi sin, li ja volis iri hejmen al la
 
 
 edzino kaj la infanoj. Sed anstataŭe li restis kuŝanta sur la benko en la drinkĉambro kaj endormiĝis tie.
@@ -7772,9 +6551,7 @@ Kiam li nun kuŝis tie, tente senkonscia, Gösta prenis karbon kaj iom da vakcin
 
 ĝin.
 
-”Lasu ĝin,” Sintram diris, ”por ke li vidu ĝin, kiam li veki-
-
-ĝos! Tio amuzos lin.”
+”Lasu ĝin,” Sintram diris, ”por ke li vidu ĝin, kiam li vekiĝos! Tio amuzos lin.”
 
 Do oni lasis tion, kia ĝi estis, kaj la kavaliroj ne pensis plu pri kapitano Lennart. La festeno daŭris la tutan nokton. Ili foriris en la tagiĝo. Tiam certe estis pli da vino ol da prudento en iliaj cerboj.
 
@@ -7782,9 +6559,7 @@ Jen la demando estis, kion ili faru pri kapitano Lennart. ”Ni veturigos lin al
 
 Tiu penso kortuŝis ilin ĉiujn. Sinjoro Dio, kiel ŝi ĝojos, la severa sinjorino en Helgesäter!
 
-Ili skuis vivon en kapitano Lennart kaj levis lin en unu el la veturiloj, kiujn la dormemaj stalservistoj antaŭ longe alve-turigis. Kaj jen la tuta aro suprenveturis al Helgesäter. Kelkaj duondormis kaj preskaŭ falis el la veturilo, aliaj kantis por ne ekdormi. Ili ĉiuj aspektis ne multe pli bonaj ol friponaro, inertaj kaj kun ŝvelintaj vizaĝoj. Ili tamen alvenis, lasis la ĉevalojn sur la malantaŭa korto kaj kun certa soleneco marŝis al la 350
-
-GÖSTA BERLING
+Ili skuis vivon en kapitano Lennart kaj levis lin en unu el la veturiloj, kiujn la dormemaj stalservistoj antaŭ longe alve-turigis. Kaj jen la tuta aro suprenveturis al Helgesäter. Kelkaj duondormis kaj preskaŭ falis el la veturilo, aliaj kantis por ne ekdormi. Ili ĉiuj aspektis ne multe pli bonaj ol friponaro, inertaj kaj kun ŝvelintaj vizaĝoj. Ili tamen alvenis, lasis la ĉevalojn sur la malantaŭa korto kaj kun certa soleneco marŝis al la
 
 
 perono. Beerencreutz kaj Julius kondukis kapitanon Lennart inter si.
@@ -7814,9 +6589,6 @@ Estis Beerencreutz, kiu respondis:
 ŝi faris paŝon malantaŭen, li postiris kun etenditaj brakoj.
 
 
-GÖSTA BERLING
-
-
 ”Vi foriris kiel ŝtelisto,” ŝi diris, ”kaj venas hejmen kiel fripono!” Post tio ŝi intencis eniri.
 
 Li ne komprenis. Li volis sekvi ŝin, sed tiam ŝi puŝis lin sur la bruston.
@@ -7837,9 +6609,7 @@ Kiam kapitano Lennart aŭdis ilian ridon, li postkuris ilin kaj volis bati ilin.
 
 Li iris for de sia hejmo, kredante, ke tio estas la volo de Dio.
 
-Kiam la suno leviĝis, li staris sur la supro de la deklivoj de Broby kaj rigardis la valon. Ho, ja ne sciis tiam la kompatindaj homoj en la valo, ke proksimiĝas ilia savanto! Malriĉulo aŭ ĉagrenito ne plektis kronojn el malfrue velkanta vakcinio por pendigi super la pordo de sia dometo. Oni ne metis sur la sojlojn, kiujn li baldaŭ transpaŝos, foliojn de odoranta la-vendo kaj florojn de la kamporando. La patrinoj ne levis siajn 352
-
-GÖSTA BERLING
+Kiam la suno leviĝis, li staris sur la supro de la deklivoj de Broby kaj rigardis la valon. Ho, ja ne sciis tiam la kompatindaj homoj en la valo, ke proksimiĝas ilia savanto! Malriĉulo aŭ ĉagrenito ne plektis kronojn el malfrue velkanta vakcinio por pendigi super la pordo de sia dometo. Oni ne metis sur la sojlojn, kiujn li baldaŭ transpaŝos, foliojn de odoranta la-vendo kaj florojn de la kamporando. La patrinoj ne levis siajn
 
 
 infanojn sur la brakon, por ke ili vidu lin, kiam li venos. La interno de la kabanoj ne estis purigita kaj ordigita, kaj la nigra kameno ne kaŝita de odoranta junipero. La viroj ne laboris kun fervora diligento sur la kampoj, por ke liaj rigardoj
@@ -7852,12 +6622,7 @@ Sed eble estis bone por li, ke li vidis tion. ĉar li ne havis la favoron vidi v
 
 Kapitano Lennart staris tie sur la deklivoj de Broby kaj komencis pensi, ke Dio eble bezonas lin.
 
-Estas rimarkinde, ke la kavaliroj poste neniel povis kom-353
-
-GÖSTA BERLING
-
-
-preni, kiamaniere ili kulpas pri la malmoleco de la kapitanedzino. Sintram silentis. Tra la regiono iris multe da mallaŭ-
+Estas rimarkinde, ke la kavaliroj poste neniel povis kompreni, kiamaniere ili kulpas pri la malmoleco de la kapitanedzino. Sintram silentis. Tra la regiono iris multe da mallaŭ-
 
 da parolo pri la edzino, kiu estis tro fiera por akcepti tiel bonan edzon. Oni diris, ke ŝi tuj interrompis ĉiun, kiu provis paroli al ŝi pri la edzo. ŝi ne toleris, ke oni mencias lian nomon. Kapitano Lennart faris nenion por ŝangi ŝiajn pensojn.
 
@@ -7879,9 +6644,7 @@ Mi ne translokis limmarkojn. Mi ne vipis la ĉevalojn sur alsupraj deklivoj. Mi 
 
 Kaj ĉirkaŭ li la plorantaj geservistoj ripetas kiel eno: ”Li estis bona mastro. Ho, Sinjoro Dio! Li ne vipis la ĉevalon sur la deklivoj, ne lasis la ŝafojn ŝviti en ilia lano en la somero.”
 
-Sed tra la pordo nerimarkite venis malriĉa viro por peti pri 354
-
-GÖSTA BERLING
+Sed tra la pordo nerimarkite venis malriĉa viro por peti pri
 
 
 manĝaĵo. Ankaŭ li aŭdas la vortojn de la mortanto, kiam li staras silenta ĉe la pordo.
@@ -7902,9 +6665,7 @@ Li iras al la malsanulo kaj prenas lian manon.
 
 La okuloj de la maljunulo vastiĝas, lia buŝo moviĝas pro teruro, liaj stertoroj peziĝas.
 
-”Ne paŝu antaŭ vian Dion kun grandaj vortoj!” la migranto 355
-
-GÖSTA BERLING
+”Ne paŝu antaŭ vian Dion kun grandaj vortoj!” la migranto
 
 
 daŭrigas. ”La potenculoj sur la tero estas kiel draŝita pajlo en lia provizejo. Lia taglaboro estas konstrui sunojn. Li fosis la marojn kaj starigis la montojn. Li vestis la teron per plantoj.
@@ -7930,9 +6691,6 @@ Kiam ili levas la rigardojn, la maljuna kamparano kuŝas en tranlkvila paco. Lia
 ”Li vidis Dion,” la filo diras kaj fermas la okulojn de la mortinto.
 
 
-GÖSTA BERLING
-
-
 ”Li vidis la ĉielon malfermita,” plorsingultas la infanoj kaj geservistoj.
 
 La maljuna mastrino metas sian tremantan manon en tiun de kapitano Lennart.
@@ -7946,12 +6704,7 @@ Estis tiu momento, kiu pelis kapitanon Lennart inter la homojn. Alie li verŝajn
 
 Kapitano Lennart iun tagon venis al la malriĉaj kamparanoj, kiuj loĝis proksime al Gurlita. Inter ili la mizero estis granda, la terpomoj elĉerpiĝis, kaj la sekalsemado, kiu devis okazi en la nudbruligitaj hakitejoj, ne estis ebla, ĉar oni ne havis semaĵon.
 
-Tiam kapitano Lennart prenis malgrandan platboaton kaj remis oblikve trans la lagon al Fors kaj petis Sintramon donaci al la homoj sekalon kaj terpomojn. Sintram bone akceptis lin: li kunprenis lin supren en grandajn bonprovizitajn gren-
-
-ĉambrojn kaj malsupren en kelojn, kie ankoraŭ restis terpomoj de la pasintjara rikolto, kaj lasis lin plenigi ĉiujn sakojn kaj saketojn, kiujn li kunportis.
-
-
-GÖSTA BERLING
+Tiam kapitano Lennart prenis malgrandan platboaton kaj remis oblikve trans la lagon al Fors kaj petis Sintramon donaci al la homoj sekalon kaj terpomojn. Sintram bone akceptis lin: li kunprenis lin supren en grandajn bonprovizitajn grenĉambrojn kaj malsupren en kelojn, kie ankoraŭ restis terpomoj de la pasintjara rikolto, kaj lasis lin plenigi ĉiujn sakojn kaj saketojn, kiujn li kunportis.
 
 
 Sed kiam Sintram ekvidis la malgrandan boaton, li trovis, ke ĝi estas tro malgranda por tiel granda ŝarĝo. La maliculo portigis la sakojn en unu el siaj grandaj boatoj kaj ordonis al sia servisto, la forta Måns, remi ĝin trans la lagon. Kapitano Lennart havis nur la malplenan platboaton por prizorgi.
@@ -7963,9 +6716,6 @@ Tremos la plumtufoj de la pistiloj, la pulvo de la stamenoj bloviĝos ĝis la ar
 La servisto de Sintram albordiĝis ĉe la boatloko de la Gurlita-homoj, kaj multaj malsataj homoj venis al la boato. Tiam la viro diris, kiel lia mastro ordonis al li:
 
 ”La uzinposedanto jen sendas al vi malton kaj grenon, kamparanoj. Li aŭdis, ke vi ne havas brandon.”
-
-
-GÖSTA BERLING
 
 
 Tiam la homoj kvazaŭ freneziĝis. Ili kuregis al la boato kaj saltis en la akvon por tiri al si saketojn kaj sakojn, sed ion tian ne intencis kapitano Lennart. Ankaŭ li nun alvenis, kaj li ekkoleris, kiam li vidis la konduton de la homoj. Li volis havi la terpomojn por manĝaĵo kaj la sekalon por semado. Peti malton li eĉ ne pensis.
@@ -7984,18 +6734,13 @@ En la sama momento aspektis, kvazaŭ kapitano Lennart faris miraklon. Du virinoj
 
 ”Tamen veturu!” kapitano Lennart diris per tiel ordona voĉo, ke li forveturis.
 
-Poste kapitano Lennart sciigis al la homoj, ke Sintram trompis ilin, sed iel ili ne povis ne kredi, ke miraklo okazis. La famo pri tio baldaŭ disvastiĝis, kaj ĉar la homa ŝato de mirakloj estas granda, oni ĝenerale kredis, ke kapitano Lennart 359
-
-GÖSTA BERLING
+Poste kapitano Lennart sciigis al la homoj, ke Sintram trompis ilin, sed iel ili ne povis ne kredi, ke miraklo okazis. La famo pri tio baldaŭ disvastiĝis, kaj ĉar la homa ŝato de mirakloj estas granda, oni ĝenerale kredis, ke kapitano Lennart
 
 
 povas fari miraklojn. De tio li ricevis grandan influon inter la kamparanoj, kaj ili nomis lin la migranto de Dio.
 
 
-GÖSTA BERLING
-
-
-DUDEKSESA ĉAPITRO
+DUDEKSESA ĈAPITRO
 
 La tombejo
 
@@ -8006,20 +6751,13 @@ Tiam venis Beerencreutz, la kolonelo kun la blankaj lipharoj, malalta, batalule 
 Sur la alia flanko de la lago kuŝas la tombejo, la neprizorgita tombejo de la paro˛o Svartsjö, sur kiu maldense staras oblikvaj, tintantaj ferkrucoj, tufeca kiel neniam plugita herbejo, surkreskita de karekso kaj stria homherbo, kiun oni semis tie por memorigi pri tio, ke nenies vivo similas al tiu de alia sed diferencas kiel la folioj de la herbo. Tie ne ekzistas gruzitaj irejoj, ne estas ombrantaj arboj krom la granda tilio sur la forgesita tombo de maljuna helppastro. La ŝtonbarilo, kruta kaj alta, enkadras la mizeran kampon. Mizera kaj mal-gajiga estas la tombejo, malbela kiel la vizaĝo de avarulo, velkinta pro la vekrioj de tiuj, kies feliĉon li ŝtelis. Kaj tamen ili estas feliĉaj, kiuj ripozas tie interne, tiuj, kiujn oni metis en 54 Sunnebulo — nebulsimila, nedensa polvaĵo en la aero post periodo de seko kaj varmego. Pro la varmego estiĝas fortaj alsupraj aerfluoj, kiuj kunportas la polverojn.
 
 
-GÖSTA BERLING
-
-
 sanktigitan teron dum psalmosonoj kaj preĝoj. Acquilon, la hazardludanton, kiu pasintjare mortis en Ekeby, lin oni devis enterigi ekster la muro. Tiu viro, kiu iam estis tiel fiera kaj kavalira, la brava militisto, la kuraĝa ĉasanto, la ludanto, kiu tenis la bonŝancon kaptita, li finis per tio, ke li detruis la heredaĵon de siaj infanoj, ĉion, kion li mem akiris, ĉion, kion lia edzino prizorgis. Antaŭ multaj jaroj li forlasis edzinon kaj infanojn por vivi la vivon de kavaliro en Ekeby. Iun vesperon en la pasinta somero li forludis la bienon, kiu donis al ili ilian vivtenon. Prefere ol pagi sian ŝuldon li pafis sin. Sed la kadavron de la memmortiginto oni enterigis ekster la muskokovrita muro de la mizera tombejo.
 
 Post lia morto la kavaliroj estis nur dek du; post lia morto venis neniu por preni la lokon de la dektria, neniu krom la nigrulo, kiu la kristnaskan vesperon elrampis el la fandforno.
 
-La kavaliroj trovis lian sorton pli amara ol tiun de liaj an-taŭuloj. Ili ja sciis, ke en ĉiu jaro devas morti unu el ili. Kia malbono estis en tio? Kavaliroj ne devas maljuniĝi. Se iliaj malfortaj okuloj ne povas diferencigi la kartojn, se iliaj tremantaj manoj ne povas levi la glasojn, kion la vivo tiam signifas por ili, kion ili signifas por la vivo? Sed ripozi kiel hundo ĉe la muro de la tombejo, kie la kovranta tero ne ripozas kviete, sed estas tretata de la pastiĝanta ŝafo, estas vundata de fosilo kaj plugilo, kie la iranto pasas sen malrapidigi siajn pa-
+La kavaliroj trovis lian sorton pli amara ol tiun de liaj an-taŭuloj. Ili ja sciis, ke en ĉiu jaro devas morti unu el ili. Kia malbono estis en tio? Kavaliroj ne devas maljuniĝi. Se iliaj malfortaj okuloj ne povas diferencigi la kartojn, se iliaj tremantaj manoj ne povas levi la glasojn, kion la vivo tiam signifas por ili, kion ili signifas por la vivo? Sed ripozi kiel hundo ĉe la muro de la tombejo, kie la kovranta tero ne ripozas kviete, sed estas tretata de la pastiĝanta ŝafo, estas vundata de fosilo kaj plugilo, kie la iranto pasas sen malrapidigi siajn paŝojn, kie la infanoj ludas sen mallaŭtigi ridon kaj ŝercon, ripozi tie, kien la sono ne povos atingi pro la baro de la ŝtonmuro, kiam la juĝotaga anĝelo per sia trombono vekos la mortintojn interne de ĝi — ho, ripozi tie!
 
-ŝojn, kie la infanoj ludas sen mallaŭtigi ridon kaj ŝercon, ripozi tie, kien la sono ne povos atingi pro la baro de la ŝtonmuro, kiam la juĝotaga anĝelo per sia trombono vekos la mortintojn interne de ĝi — ho, ripozi tie!
-
-Jen Beerencreutz remas sian boaton trans Löven. En la vespero li veturas sur la lago de miaj revoj, ĉirkaŭ kies bordoj mi 362
-
-GÖSTA BERLING
+Jen Beerencreutz remas sian boaton trans Löven. En la vespero li veturas sur la lago de miaj revoj, ĉirkaŭ kies bordoj mi
 
 
 vidis diojn iri, kaj el kies profundo levigas mia sorĉkastelo. Li preterveturas la lagunojn de Lagön, kie la piceoj levas sin rekte el la akvo, kreskantaj sur malaltaj, cirkloformaj sablodunoj, kaj kie la ruinoj de la detruita pirata kastelo ankoraŭ kuŝas sur la kruta supro de la insulpinto. Li veturas sub la piceparko sur la terlango de Borg, kie la maljuna pino sur dikaj radikoj ankoraŭ elpendas super la ravino, kie oni kaptis grandegan urson, kaj kie malnovaj ŝtonaj kaj teraj tombaltaĵetoj atestas pri la ago de la loko.
@@ -8042,11 +6780,7 @@ Jen tiuj tri indaj homoj sidas ĉirkaŭ la tombo kaj serioze kaj fervore disdona
 
 Mi elrigardas sur la mondon, mi vidas multajn tombojn.
 
-Jen ripozas la potenculo, pezita de marmoro. La funebra mar-
-
-ŝo muĝas super li. Flagoj malleviĝas super la tombo. Mi vidas la tombojn de tiuj, kiujn oni multe amis. Floroj, malsekaj de larmoj, karesitaj de kisoj, kuŝas malpeze sur iliaj verdaj ta-363
-
-GÖSTA BERLING
+Jen ripozas la potenculo, pezita de marmoro. La funebra marŝo muĝas super li. Flagoj malleviĝas super la tombo. Mi vidas la tombojn de tiuj, kiujn oni multe amis. Floroj, malsekaj de larmoj, karesitaj de kisoj, kuŝas malpeze sur iliaj verdaj ta-363
 
 
 piŝoj. Forgesitajn tombojn mi vidas, arogajn tombojn, men-sogantajn ripozejojn kaj aliajn, kiuj nenion diras, sed neniam antaŭe mi vidis, ke oni proponis por la ĝojo de la tomba gasto la nigre kaj blankkvadratan kamfian arlekenon kun la arle-kensonorilo sur la ĉapo.
@@ -8064,18 +6798,13 @@ Amikoj, homidoj, kiam mi mortos, mi certe povos ripozi en la mezo de la tombejo,
 Oni eĉ ne venos — kion mi pli ŝatus, ĉar la kartoj malmulte logas min — al la tombo kun violono kaj arĉo, por ke mia animo, kiu vagas ĉirkaŭ la dissolviĝanta cindro, estu lulata sur la fluo de tonoj kiel cigno sur ondoj briletantaj.
 
 
-GÖSTA BERLING
-
-
-DUDEKSEPA ĉAPITRO
+DUDEKSEPA ĈAPITRO
 
 Malnovaj popolkantoj
 
 Iun kvietan posttagmezon en la fino de aŭgusto Marianne Sinclaire sidis en sia ĉambro kaj ordigis siajn leterojn kaj aliajn paperojn.
 
-ĉirkaŭ ŝi estis malordo. Grandaj ledvalizoj kaj fergarnitaj veturkestoj estis trenitaj en la ĉambron. ŝiaj vestoj kovris se-
-
-ĝojn kaj sofojn. El subtegmentejoj kaj ŝrankoj kaj el la kestoj de la poluritaj komodoj ĉio estis elprenita, silko kaj tolo brilis, ornamaĵoj estis elmetitaj por polurado, ŝaloj kaj felaĵoj estis elektotaj kaj ekzamenotaj.
+ĉirkaŭ ŝi estis malordo. Grandaj ledvalizoj kaj fergarnitaj veturkestoj estis trenitaj en la ĉambron. ŝiaj vestoj kovris seĝojn kaj sofojn. El subtegmentejoj kaj ŝrankoj kaj el la kestoj de la poluritaj komodoj ĉio estis elprenita, silko kaj tolo brilis, ornamaĵoj estis elmetitaj por polurado, ŝaloj kaj felaĵoj estis elektotaj kaj ekzamenotaj.
 
 Marianne ordigis por longa vojaĝo. Estis necerte, ĉu ŝi iam ajn revenos. ŝi staris ĉe turnpunkto en sia vivo kaj tial bruligis amason da malnovaj leteroj kaj taglibroj. ŝi volis, ke la memoroj de la pasinteco ne pezu sur ŝi.
 
@@ -8084,9 +6813,6 @@ Kiam ŝi sidas tie, ŝi jen ekhavas sub la manoj pakon da malnovaj versoj. Estis
 Leginte dum iom da tempo ŝi ridetis melankolie. Strangan saĝon sciigis ai ŝi la malnovaj popolkantoj: Ne fidu la feliĉon, ne fidu signojn de feliĉo, ne fidu al rozoj kaj ravaj folioj!
 
 Ne fidu la ridon, ili diris. Jen la bela fraŭlino Valborg veturas en orita veturilo, kaj ŝiaj lipoj ridetas, sed ŝi tiel malĝojas, kvazaŭ hufoj kaj radoj transirus la feliĉon de ŝia vivo.
-
-
-GÖSTA BERLING
 
 
 Ne fidu la dancon! ili diris. Multaj piedoj facile ŝvebas sur vaksita planktabulo, dum la menso estas peza kiel plumbo.
@@ -8105,25 +6831,13 @@ Sed la ĝojo estas nur malĝojo, kiu hipokritas. Sur la tero verdire ekzistas ne
 
 ŝi iris al la fenestro kaj rigardis en la ĝardenon, kie ŝiaj gepatroj plezurpromenis. Ili iris tien kaj reen sur la larĝaj vojetoj kaj parolis pri ĉio, kion iliaj okuloj renkontis, pri la herboj de la tero kaj la birdoj de la ĉielo.
 
-”Jen,” Marianne diris, ”tie estas koro, kiu suspiras pro mal-
+”Jen,” Marianne diris, ”tie estas koro, kiu suspiras pro malĝojo, dum ĝi neniam antaŭe estis tiel feliĉa!”
 
-ĝojo, dum ĝi neniam antaŭe estis tiel feliĉa!”
+Kaj subite ŝi pensis, ke eble finfine ĉio kuŝas en la homo mem, ke malĝojo kaj ĝojo dependas nur de liaj diversaj manieroj rigardi la aferojn. ŝi demandis sin, ĉu estis feliĉo aŭ malfeliĉo, kiu trafis ŝin en tiu jaro. ŝi mem apenaŭ sciis tion.
 
-Kaj subite ŝi pensis, ke eble finfine ĉio kuŝas en la homo mem, ke malĝojo kaj ĝojo dependas nur de liaj diversaj ma-366
-
-GÖSTA BERLING
-
-
-nieroj rigardi la aferojn. ŝi demandis sin, ĉu estis feliĉo aŭ malfeliĉo, kiu trafis ŝin en tiu jaro. ŝi mem apenaŭ sciis tion.
-
-ŝi travivis amarajn tempojn. ŝia animo estis malsana. ŝi estis klinita al la tero sub sia profunda malhonoro. ĉar kiam ŝi revenis al sia hejmo, ŝi diris al si: ”Mi ne volas memori ion malbonan pri mia patro.” Sed tiel ne diris ŝia koro. ”Li faris al mi tiel mortigan malĝojon,” ĝi diris, ”li disigis min de tiu, kiun mi amis, li malesperigis min, kram li batis patrinon. Mi deziras nenion malbonan al li, sed mi timas lin.” Kaj jen ŝi rimarkis, kiel ŝi devas devigi sin resti sidanta, kiam sia patro eksidis apud ŝi. ŝi volis nur fuĝi de li. ŝi provis kuraĝigi sin, ŝi parolis kun li kiel ordinare kaj estis preskaŭ ĉiam en lia akompano. ŝi sukcesis regi sin, sed ŝi suferis nedireble. Fini-
-
-ĝis tiel, ke ŝi abomenis ĉion ĉe li: lian krudan, fortan voĉon, lian pezan iron, liajn grandajn manojn, la tutan potencan ba-talulfiguron. ŝi deziris nenion malbonan al li, ŝi ne volis do-maĝi lin, sed ŝi ne povis plu proksimiĝi al li sen ekhavi senton de timo kaj abomeno. ŝia subigita koro venĝis sin. ”Vi ne permesis al mi ami,” ĝi diris, ”sed mi tamen estas via estro, finiĝos per tio, ke vi malamos.”
+ŝi travivis amarajn tempojn. ŝia animo estis malsana. ŝi estis klinita al la tero sub sia profunda malhonoro. ĉar kiam ŝi revenis al sia hejmo, ŝi diris al si: ”Mi ne volas memori ion malbonan pri mia patro.” Sed tiel ne diris ŝia koro. ”Li faris al mi tiel mortigan malĝojon,” ĝi diris, ”li disigis min de tiu, kiun mi amis, li malesperigis min, kram li batis patrinon. Mi deziras nenion malbonan al li, sed mi timas lin.” Kaj jen ŝi rimarkis, kiel ŝi devas devigi sin resti sidanta, kiam sia patro eksidis apud ŝi. ŝi volis nur fuĝi de li. ŝi provis kuraĝigi sin, ŝi parolis kun li kiel ordinare kaj estis preskaŭ ĉiam en lia akompano. ŝi sukcesis regi sin, sed ŝi suferis nedireble. Finiĝis tiel, ke ŝi abomenis ĉion ĉe li: lian krudan, fortan voĉon, lian pezan iron, liajn grandajn manojn, la tutan potencan ba-talulfiguron. ŝi deziris nenion malbonan al li, ŝi ne volis do-maĝi lin, sed ŝi ne povis plu proksimiĝi al li sen ekhavi senton de timo kaj abomeno. ŝia subigita koro venĝis sin. ”Vi ne permesis al mi ami,” ĝi diris, ”sed mi tamen estas via estro, finiĝos per tio, ke vi malamos.”
 
 Kutimiĝinta, kiel ŝi estis, observi ĉion, kio moviĝis en ŝi, ŝi klare rimarkis, kiel tiu abomeno pliprofundiĝis, kiel ĝi kreskis kun ĉiu tago. Samtempe estis, kvazaŭ ŝi nun poreterne estus ligita al la hejmo. ŝi komprenis, ke estus plej bone, se ŝi forveturus al aliaj homoj, sed por tio ŝi ne havis decidforton nun post la malsano. Neniam venos mildiĝo en ĉio ĉi. ŝi estos nur pli kaj pli turmentata, kaj iun tagon ŝia sinrego cedos, kaj ŝi erupcios kontraŭ sia patro kaj montros al li la amaron de sia koro, kaj jen venos malpaciĝo kaj malfeliĉo.
-
-
-GÖSTA BERLING
 
 
 Tiel pasis la printempo kaj la frusomero. En julio ŝi fianĉi-niĝis kun barono Adrian por ekhavi propran hejmon.
@@ -8155,9 +6869,6 @@ Tiamaniere ĉio estis preta inter ili, antaŭ ol barono Adrian eĉ saltis de la 
 Poste la svatanto envenis al Marianne kaj tuj alŝtormas kun sia afero.
 
 
-GÖSTA BERLING
-
-
 ”Ho, Marianne, kara Marianne! Mi jam parolis kun via patro. Mi tiel deziras, ke vi fariĝu mia edzino. Diru, ke vi volas, Marianne.”
 
 ŝi ellogis la veron. La maljuna barono, lia patro, ree lasis trompi sin kaj aĉetis kelkajn malplenajn minojn. La maljuna barono aĉetis minojn dum sia tuta vivo, kaj neniam estis io en ili. Lia patrino estis maltrankvila, mem li akiris ŝuldojn, kaj jen li svatas ŝin por tiel savi sian familian hejmon kaj sian hu-sarjakon.
@@ -8170,25 +6881,16 @@ Lia hejmo estis la bieno Hedeby, ĝi kuŝis sur la alia flanko de la lago, presk
 
 ”Nu, koncerne amon mi tute ne atentas pri tiu rubo,” li tiam deklaris. ”Mi ŝatas rajdi bonan ĉevalon kaj ĉasi, sed mi ne estas kavaliro, ja, mi estas laboristo. Se mi nur ricevus monon, tiel ke mi povus transpreni la bienon kaj doni trankvi-lajn tagojn al patrino, tiam mi estus kontenta. Mi kaj plugus kaj semus, ĉar mi ŝatas laboron.”
 
-Li rigardis ŝin per siaj honestaj okuloj, kaj ŝi sciis, ke li diras la veron kaj ke li estas viro, al kiu oni povas fidi. ŝi fian-
+Li rigardis ŝin per siaj honestaj okuloj, kaj ŝi sciis, ke li diras la veron kaj ke li estas viro, al kiu oni povas fidi. ŝi fianĉiniĝis al li, precipe por povi forlasi la hejmon, sed ankaŭ ĉar ŝi ĉiam tre ŝatis lin.
 
-ĉiniĝis al li, precipe por povi forlasi la hejmon, sed ankaŭ ĉar ŝi ĉiam tre ŝatis lin.
-
-Sed neniam ŝi forgesos tiun monaton, kiu sekvis la aŭgus-369
-
-GÖSTA BERLING
-
-
-tan vesperon, kiam oni anoncis ŝian fianĉiniĝon, tiun tutan frenezan tempon.
+Sed neniam ŝi forgesos tiun monaton, kiu sekvis la aŭgustan vesperon, kiam oni anoncis ŝian fianĉiniĝon, tiun tutan frenezan tempon.
 
 Barono Adrian per ĉiu tago fariĝis pli kaj pli malgaja kaj silenta. Li ja venis al Björne tre ofte, iam eĉ plurfoje dum unu tago, sed ŝi ne povis ne rimarki, kiel premita li estas. Kune kun aliaj li ankoraŭ povis ŝerci, sed en ŝia akompano li estis neebla: silento kaj tedo la tuta viro. ŝi ja komprenis, kio mo-viĝas en li. Ne estis tiel facile, kiel li kredis, edziĝi kun malbela virino. Jen li ne ŝatas ŝin plu. Neniu sciis pli bone ol ŝi mem, kiel malbela ŝi estas. ŝi ja montris al li, ke ŝi ne deziras kare-sojn kaj ampruvojn, sed tamen turmentis lin pensi pri ŝi kiel sia edzino, kaj plimalfaciliĝis tagon post tago. Kial li do tiel turmentiĝis? Kial li ne faris finon? ŝi faris al li aludojn, kiuj estis sufiĉe klaraj. Mem ŝi povis nenion fari. ŝia patro tute simple deklaris al ŝi, ke ŝia reputacio ne toleras pluajn aven-turaĵojn rilate al fianĉiniĝoj. Tiam ŝi malŝatis ilin ambaŭ same profunde, kaj por saviĝi de tiuj siaj sinjoroj ĉiu elirejo ŝajnis al ŝi akceptinda.
 
 Jen, nur kelkajn tagojn post la granda gefianĉiĝa festo, la ŝanĝiĝo venis subite kaj strange.
 
 
-En la sablovojeto ĝuste antaŭ la perono de Björne kuŝis granda ŝtono, kiu kaŭzis multe da peno kaj incito. Veturiloj renversiĝis sur ĝi, ĉevaloj kaj homoj stumblis sur ĝi, servistinoj, kiuj venis kun pezaj laktsiteloj, kunpuŝiĝis kun ĝi kaj disverŝis la lakton, sed tamen oni lasis la ŝtonon tie, ĉar ĝi kuŝis tie jam tiom da jaroj. i ja estis tie en la tempo de la gepatroj de la uzinposedanto, longe antaŭ ol oni intencis konstrui la domon 370
-
-GÖSTA BERLING
+En la sablovojeto ĝuste antaŭ la perono de Björne kuŝis granda ŝtono, kiu kaŭzis multe da peno kaj incito. Veturiloj renversiĝis sur ĝi, ĉevaloj kaj homoj stumblis sur ĝi, servistinoj, kiuj venis kun pezaj laktsiteloj, kunpuŝiĝis kun ĝi kaj disverŝis la lakton, sed tamen oni lasis la ŝtonon tie, ĉar ĝi kuŝis tie jam tiom da jaroj. i ja estis tie en la tempo de la gepatroj de la uzinposedanto, longe antaŭ ol oni intencis konstrui la domon
 
 
 de Björne. La uzinposedanto ne komprenis, kial li elprenu ĝin el la tero.
@@ -8204,9 +6906,6 @@ Tuj kiam la ŝtono estis elprenita, la uzinposedanto venis hejmen kaj tuj li vid
 Kaj jen li iris rekte al la ŝtono, levis ĝin per vira forto kaj portis ĝin trans la malantaŭan korton kaj la korton ĝis la lo-ko, kie ĝi kuŝis, kaj tie li malsuprenĵetis ĝin. Kaj tio estis ŝto-no, kiun ses viroj pene povis levi. Tiu faro estis treege admi-rata tra tuta Vermlando.
 
 Dum li portis la ŝtonon trans la korton, Marianne staris ĉe la fenestro en la manĝosalono kaj rigardis lin. Neniam ŝi vidis lin tiel terura. Li estas ŝia sinjoro, tiu terurulo kun la senlima forto, senracia, kaprica sinjoro, kiu neniam atentas pri io alia ol sia propra deziro.
-
-
-GÖSTA BERLING
 
 
 Ili matenmanĝis, kaj ŝi staris kun manĝotranĉilo en la ma-no. Impulse ŝi levis la tranĉilon.
@@ -8229,9 +6928,7 @@ Kial ĉio ne povas boniĝi nun, kiam vi ricevis novan fianĉon?”
 
 Sed tiam sinjorino Gustava tute ne estis la sama kiel an-taŭe. ŝi ekhavis forton kaj kuraĝon kaj parolis aplomblajn vortojn.
 
-”Vi gardu vin, Marianne. ŝajnas al mi, ke via patro preskaŭ 372
-
-GÖSTA BERLING
+”Vi gardu vin, Marianne. ŝajnas al mi, ke via patro preskaŭ
 
 
 pravis, kiam li elfermis vin lastvintre. Vi vidos, ke trafos vin puno pro tio ĉi. Vi lernu toleri sen malami, Marianne, suferi sen venĝi.”
@@ -8250,20 +6947,11 @@ La maljuneco trafis lin. Li ne povis igi sin skribi leteron. Lia edzino devis fa
 
 ”Ho kara Melchior,” tiu tiam diris, ”tamen vi ja scias, ke mi preferus, ke vi resaniĝus.”
 
-Kaj certe ŝi deziris tion. Estis ŝia plezuro paroli pri la gran-373
+Kaj certe ŝi deziris tion. Estis ŝia plezuro paroli pri la granda uzinposedanto, kia li estis en la tagoj de plenforto. ŝi rakontis, kiel li eltenis ĝuon kaj bruon same bone kiel iu el la kavaliroj de Ekeby, kiel li faris komercojn kaj gajnis multe da mono, poste kiam ŝi kredis, ke li en sia furiozo senigos ilin je hejmo kaj grundo. Sed Marianne sciis, ke ŝi estas feliĉa malgraŭ ĉiuj plendoj. Esti ĉio por tiu viro, tio ja sufiĉis por ŝi. Ili ambaŭ aspektis maljunaj, rompitaj tro frue. Marianne kredis, ke ŝi povas vidi ilian estontan vivon. Li iom post iom pli kaj pli malfortiĝos, la apopleksiaj atakoj venos kaj faros lin pli kaj pli senhelpa, kaj ŝi gardos lin, ĝis la morto disigos ilin. Sed la fino povus ja esti tre malproksima. Sinjorino Gustava ĝuos trankvilan feliĉon ankoraŭ dum iom da tempo, ŝajnis al Marianne, ke devas fariĝi tiel. La vivo ŝuldas al ŝi.
 
-GÖSTA BERLING
+Ankaŭ por ŝi mem fariĝis pli bone. Angoriga malespero ne devigis ŝin edziniĝi por ricevi alian sinjoron. ŝia vundita koro trankviliĝis. Iam la malamo muĝis tie same kiel la amo, sed ŝi plu ne pensis pri la suferoj, kiujn tio kostis al ŝi. ŝi devis konfesi, ke ŝi estas pli vera, pli riĉa, pli alta homo ol antaŭe. Kion ŝi do povus deziri nefarita el tio, kio okazis? ĉu do estas tiel, ke ĉiu sufero estas io bona? ĉu ĉio povas transformiĝi en feliĉon? ŝi komencis konsideri bona ĉion, kio povus akceli ŝian evoluon al pli alta grado de homeco. La malnovaj popolkantoj ne pravis. La malĝojo ne estis la sola daŭra. Nun ŝi forveturos por trovi iun lokon, kie ŝi estas bezonata. Se ŝia patro estus en sia malnova humoro, li neniam permesus al ŝi rompi la gefianĉiĝon. Jen sinjorino Gustava peris la aferon. Marianne eĉ ricevis permeson doni al barono Adrian la monhelpon, kiun li bezonas.
 
-
-da uzinposedanto, kia li estis en la tagoj de plenforto. ŝi rakontis, kiel li eltenis ĝuon kaj bruon same bone kiel iu el la kavaliroj de Ekeby, kiel li faris komercojn kaj gajnis multe da mono, poste kiam ŝi kredis, ke li en sia furiozo senigos ilin je hejmo kaj grundo. Sed Marianne sciis, ke ŝi estas feliĉa malgraŭ ĉiuj plendoj. Esti ĉio por tiu viro, tio ja sufiĉis por ŝi. Ili ambaŭ aspektis maljunaj, rompitaj tro frue. Marianne kredis, ke ŝi povas vidi ilian estontan vivon. Li iom post iom pli kaj pli malfortiĝos, la apopleksiaj atakoj venos kaj faros lin pli kaj pli senhelpa, kaj ŝi gardos lin, ĝis la morto disigos ilin. Sed la fino povus ja esti tre malproksima. Sinjorino Gustava ĝuos trankvilan feliĉon ankoraŭ dum iom da tempo, ŝajnis al Marianne, ke devas fariĝi tiel. La vivo ŝuldas al ŝi.
-
-Ankaŭ por ŝi mem fariĝis pli bone. Angoriga malespero ne devigis ŝin edziniĝi por ricevi alian sinjoron. ŝia vundita koro trankviliĝis. Iam la malamo muĝis tie same kiel la amo, sed ŝi plu ne pensis pri la suferoj, kiujn tio kostis al ŝi. ŝi devis konfesi, ke ŝi estas pli vera, pli riĉa, pli alta homo ol antaŭe. Kion ŝi do povus deziri nefarita el tio, kio okazis? ĉu do estas tiel, ke ĉiu sufero estas io bona? ĉu ĉio povas transformiĝi en feli-
-
-ĉon? ŝi komencis konsideri bona ĉion, kio povus akceli ŝian evoluon al pli alta grado de homeco. La malnovaj popolkantoj ne pravis. La malĝojo ne estis la sola daŭra. Nun ŝi forveturos por trovi iun lokon, kie ŝi estas bezonata. Se ŝia patro estus en sia malnova humoro, li neniam permesus al ŝi rompi la gefianĉiĝon. Jen sinjorino Gustava peris la aferon. Marianne eĉ ricevis permeson doni al barono Adrian la monhelpon, kiun li bezonas.
-
-Ankaŭ pri li ŝi povis pensi kun ĝojo. ŝi ja liberiĝos de li. En sia vigleco kaj vivemo li ĉiam rememorigis ŝin pri Gösta, jen 374
-
-GÖSTA BERLING
+Ankaŭ pri li ŝi povis pensi kun ĝojo. ŝi ja liberiĝos de li. En sia vigleco kaj vivemo li ĉiam rememorigis ŝin pri Gösta, jen
 
 
 ŝi ree vidos lin gaja. Ree li fariĝos tiu rajdanto de sunlumo, kiu en sia brilo venis al la domo de ŝia patro. ŝi havigos al li teron, kie li povos plugi kaj fosi laŭ la deziro de sia koro, kaj ŝi vidos lnduki belan fianĉinon al la altaro.
@@ -8295,9 +6983,6 @@ Tiam malforta tremo trakuras Marianne. ŝi ne estas novu-lino en la studo pri la
 Li venis kaj preskaŭ sufokis ŝin per karesoj. Kompatinda knabo, kiel li suferis kaj sopiris!
 
 
-GÖSTA BERLING
-
-
 Post tempeto ŝi elrigardis. Tie iris ankoraŭ sinjorino Gustava kaj parolis kun la granda uzinposedanto pri floroj kaj birdoj, kaj tie ĉi ŝi sidas kaj infanbabilas pri amo. ”La vivo sentigis al ni ambaŭ sian krudan seriozecon,” ŝi pensis kaj melankolie ridetis. ”i volas konsoli nin, ni ambaŭ ricevis grandan infanon, kun kiu ni povas ludi.”
 
 Tamen estis bone, ke ŝi povas esti amata. Estis dolĉe aŭdi lin flustri pri la sorĉa forto kiu eliras de ŝi, pri tio, kiel li hontis pro tio, kion li diris dum ilia unua interparolo. Tiam li ne sciis, kian potencon ŝi havas. Ho, neniu viro povas proksimiĝi al ŝi sen ekami ŝin, sed ŝi timigis lin; li sentis sin strange subigita.
@@ -8309,10 +6994,7 @@ Ne estis feliĉo, ne malfeliĉo, sed ŝi provos vivi kun tiu viro.
 Tiel ankaŭ ŝi ne iros al la fonto de la vivo por trinki klaran, nemiksitan feliĉon. Malklarigita de melankolio, tiel la vivo plej plaĉis al ŝi.
 
 
-GÖSTA BERLING
-
-
-DUDEKOKA ĉAPITRO
+DUDEKOKA ĈAPITRO
 
 La Morto-Liberiganto
 
@@ -8324,12 +7006,7 @@ La morto ŝteliris en la malnovan arbareton malantaŭ la loĝodomo, kie ankoraŭ
 
 Ho Eroso! Vi estas la dio, kiu plej ofte posedis la arbareton.
 
-La maljunaj povas rakonti, kiel amantaj paroj en pasinta tempo serĉis ĝian kvieton. Kaj ankoraŭ hodiaŭ, kiam mi preter-377
-
-GÖSTA BERLING
-
-
-veturas la bienon Berga, plendante pro la penigaj deklivoj kaj la sufoka polvo, mi sentas plezuron vidante tiun arbareton, kun ĝiaj maldensaj blankaj trunkoj, kiuj brilas en la memoro pri la amo de junaj, belaj homoj.
+La maljunaj povas rakonti, kiel amantaj paroj en pasinta tempo serĉis ĝian kvieton. Kaj ankoraŭ hodiaŭ, kiam mi preterveturas la bienon Berga, plendante pro la penigaj deklivoj kaj la sufoka polvo, mi sentas plezuron vidante tiun arbareton, kun ĝiaj maldensaj blankaj trunkoj, kiuj brilas en la memoro pri la amo de junaj, belaj homoj.
 
 Sed tiam la morto staris tie, kaj la bestoj de la nokto vidis lin. Vesperon post vespero la homoj en Berga aŭdis, kiel la vulpo hurlas por sciigi lian alvenon. La kolubro serpentis sur la sablovojo al la loĝdomo. i ne povis paroli, sed ili ja komprenis, ke ĝi venas kiel antaŭiranto de la potenculo. Kaj sur la pomarbo antaŭ la fenestro de la kapitanedzino la strigo aŭdigis sian krion. ĉar ĉio en la naturo sentas la morton kaj timas.
 
@@ -8337,12 +7014,7 @@ Jen okazis, ke la leĝista familio en Munkerud, kiu ĉeestis regalon en la pastr
 
 Tiam ridis la gajaj fraŭlinoj en Berga kaj diris, ke la leĝista familio havis vizion, ĉar la sebokandeloj en ilia hejmo elĉer-piĝis, finbruligitaj jam en marto. Tiam ĵuris la kapitano, ke dum tagoj kaj semajnoj neniu loĝis en la gastĉambro. Sed la kapitanedzino silentis kaj paliĝis, ĉar tiu blanka kandelo kun la klara flamo kutimis montri sin, kiam iun el ŝiaj parencoj liberigos la morto, la Morto-Liberiganto.
 
-Nelonge post tio, iun tagon en la radia aŭgusto, Ferdinand venis hejmen de la termezurista ofico en la nordaj arbaroj. Li venis, pala kaj malsana kaj kun iu nesanigebla malbono loĝ-
-
-anta en la pulmoj, kaj kiam la kapitanedzino vidis lin, ŝi tuj sciis, ke ŝia filo devos morti.
-
-
-GÖSTA BERLING
+Nelonge post tio, iun tagon en la radia aŭgusto, Ferdinand venis hejmen de la termezurista ofico en la nordaj arbaroj. Li venis, pala kaj malsana kaj kun iu nesanigebla malbono loĝanta en la pulmoj, kaj kiam la kapitanedzino vidis lin, ŝi tuj sciis, ke ŝia filo devos morti.
 
 
 Li do foriros, tiu bona filo, kiu neniam kaŭzis eĉ unu ĉagrenon al siaj gepatroj. La junulo forlasos la ĝojon kaj feliĉon de la tero kaj la belan amatan fianĉinon, kiu atendas lin, kaj la riĉajn bienojn, la tondrantajn martelojn, kiuj alie fariĝis liaj.
@@ -8365,9 +7037,7 @@ Tiam ŝi ellitiĝis, malfermis sian fenestron kaj vidis strigojn kaj vespertojn 
 
 Tiam la morto englitis en la domon, ĝoja kiel kompatinda eksigita majesto, kiu en la kadukeco de sia maljunaĝo rericevas sian kronon, ĝoja kiel infano, kiam oni vokas ĝin por ludo.
 
-La postan tagon la kapitanedzino eksidis ĉe la malsanlito 379
-
-GÖSTA BERLING
+La postan tagon la kapitanedzino eksidis ĉe la malsanlito
 
 
 de sia filo kaj parolis kun li pri la feliĉo kaj la bela vivo de la liberigitaj animoj.
@@ -8380,9 +7050,7 @@ Memoru min, mia filo, kiam vi vidos tiom da belo! Via kompatinda patrino neniam 
 
 Sed iun tagon vi paŝos antaŭ nian Sinjoron kiaj petos lin, ke li donu al vi unu el tiuj malgrandaj mondoj, kiuj ruliĝas en la spaco, kaj li donos ĝin al vi. Kiam vi ricevos ĝin, ĝi estos malvarma kaj malhela, plena de abismoj kaj rokoj, kaj tie troviĝas nek floroj nek bestoj. Sed vi laboros pri tiu stelo, kiun Dio donis al vi. Vi kondukos tien lumon, varmon kaj aeron, vi havigos plantojn kaj najtinglalojn kaj klarokulajn gazelojn, vi igos torentojn salti en la abismojn, vi starigos montojn kaj prisemos la ebenojn per plej ruĝaj rozoj. Kaj kiam mi mortos, Ferdinand, kiam mia animo timos pro la longa vojaĝo kaj timos forlasi konatajn regionojn, tiam vi sidos atendante ekster la fenestro en veturilo, al kiu estos jungitaj paradizbirdoj, en glimanta orveturilo, mia Ferdinand.
 
-Kaj mia mizera, maltrankvila animo estos prenata en vian veturilon kaj sidos apud vi, honorata kiel reĝino. Poste ni veturos tra la spaco preter la brilvibrantaj mondoj, kaj kiam ni 380
-
-GÖSTA BERLING
+Kaj mia mizera, maltrankvila animo estos prenata en vian veturilon kaj sidos apud vi, honorata kiel reĝino. Poste ni veturos tra la spaco preter la brilvibrantaj mondoj, kaj kiam ni
 
 
 pliproksimiĝos al tiuj domoj de la ĉielo kaj ili fariĝos pli kaj pli brilaj, tiam mi, kiu ne komprenos pli bone, demandos: ’ĉu ni ne haltu tie aŭ tie?’
@@ -8399,24 +7067,18 @@ Mia pala amiko, la Morto-Liberiganto, neniam travivis ion tiel dolĉan. Vere tro
 
 Neniam oni tiel honoris mian palan amikon kiel dum la enterigo de Ferdinand Uggla. Se li kuraĝus montri sin, li venus en plumornamita bireto kaj orbrodita mantelo kaj dancus antaŭen sur la tombeja vojo antaŭ la funebra procesio, sed jen la maljuna solulo sidis kaŭre sur la tombeja muro kun sia malnova nigra mantelo sur si kaj rigardis la alvenon de la procesio.
 
-Ho, tio estis stranga funebra procesio! Suno kaj helaj nu-betoj gajigis la tagon, longaj vicoj da palisoj kun sekalgarboj 381
-
-GÖSTA BERLING
+Ho, tio estis stranga funebra procesio! Suno kaj helaj nu-betoj gajigis la tagon, longaj vicoj da palisoj kun sekalgarboj
 
 
 ornamis la kampojn, la astrakanoj en la paroęstra ĝardeno brilis diafanaj kaj klaraj, kaj en la rozkvartalo de la sakristiana domo brilis dalioj kaj studentdiantoj.
 
-Estis stranga funebra procesio, kiu iris inter la tilioj. Antaŭ la florornamita ĉerko iris belaj infanoj kaj ŝutis florojn. Neniuj funebraj vestoj estis videblaj, neniu krepo, neniuj blankaj funebrokolumoj kun larĝaj randoj, ĉar la kapitanedzino volis, ke li, kiu mortis en ĝojo, ne estu kondukata al la bona rifu-
-
-ĝejo de malgaja funebra procesio, sed de brila edziĝofesta procesio.
+Estis stranga funebra procesio, kiu iris inter la tilioj. Antaŭ la florornamita ĉerko iris belaj infanoj kaj ŝutis florojn. Neniuj funebraj vestoj estis videblaj, neniu krepo, neniuj blankaj funebrokolumoj kun larĝaj randoj, ĉar la kapitanedzino volis, ke li, kiu mortis en ĝojo, ne estu kondukata al la bona rifuĝejo de malgaja funebra procesio, sed de brila edziĝofesta procesio.
 
 Tuj post la ĉerko iris Anna Stjärnhök, la bela, radia fianĉi-no de la mortinto. ŝi metis la edziniĝan kronon sur sian kapon, surmetis la edziniĝan vualon kaj vestis sin per edziniĝa trenrobo el blanka, nuanciĝanta silko. Tiel ornamita ŝi iris por esti kunligita kun la tombo, kun polviĝanta fianĉo.
 
 Post ŝi ili venis duope, altaj, maljunaj sinjorinoj kaj belsta-turaj viroj. La imponaj brilaj sinjorinoj venis kun fulmradiaj bukoj kaj broĉoj, kun laktoblankaj perloĉenoj kaj brakringoj el oro. La plumoj en iliaj turbanoj leviĝis kun silko kaj puntoj alte super la kanonbukloj, kaj de iliaj ŝultroj ŝvebis la maldikaj silkoteksitaj ŝaloj, kiujn ili iam ricevis kiel edziniĝdonacon, malsupren sur robojn el multkolora silko. Kaj la viroj venis en sia plej bona ornamaĵo, kun pufiĝantaj krispkolumoj, en altkolumaj frakoj kun oritaj butonoj kaj en vestoj el rigida brokato aŭ riĉe brodita veluro. Estis edziĝa procesio; tiel volis la kapitanedzino.
 
-Mem ŝi iris tuj post Anna Stjärnhök, kondukata de sia edzo. Se ŝi posedus robon el brila brokato, ŝi portus ĝin, se ŝi posedus ornamaĵojn kaj brilan turbanon, ŝi portus ankaŭ ilin por honori sian filon en lia festotago. Sed jen ŝi posedis nur 382
-
-GÖSTA BERLING
+Mem ŝi iris tuj post Anna Stjärnhök, kondukata de sia edzo. Se ŝi posedus robon el brila brokato, ŝi portus ĝin, se ŝi posedus ornamaĵojn kaj brilan turbanon, ŝi portus ankaŭ ilin por honori sian filon en lia festotago. Sed jen ŝi posedis nur
 
 
 tiun nigran taftrobon kaj tiujn flaviĝintajn puntojn, kiuj vidis tiom da festoj, kaj ŝi portis ilin ankaŭ dum tiu ĉi.
@@ -8429,9 +7091,7 @@ Kiam la preĝoj estis diritaj kaj la tombo plenŝutita, ĉiuj iris de tie al la 
 
 ”Jen”, la kapitanedzino diris, ”mi diris al Dio: ’Igu la Morton-Liberiganton veni por forkonduki mian filon, igu lin forkonduki tiun, kiun mi plej amas, al la paco de la kvietaj domoj, kaj neniuj larmoj krom tiuj pro ĝojo aperos en miaj okuloj. Kun edziĝa pompo mi volas akompani lin al lia tombo, kaj mian ruĝan rozarbeton, la riĉflorantan, kiu staras ekster mia ĉambrofenestro, mi translokos en la tombejon al li.’ Kaj jen estas tiel: mia filo mortis. Mi salutis la morton kiel amikon, nomis lin per la plej dolĉaj nomoj, mi ploris ĝojlarmojn sur la rigidan vizaĝon de mia filo, kaj aŭtune, kiam la folioj defalos, mi translokos tien ĉi mian ruĝan rozarbeton. Sed ĉu scias vi, kiu jen sidas apud mi, kial mi sendis tiajn preĝojn al Dio?”
 
-ŝi demande rigardas Annan Stjärnhök, sed la knabino sidis 383
-
-GÖSTA BERLING
+ŝi demande rigardas Annan Stjärnhök, sed la knabino sidis
 
 
 silenta kaj pala apud ŝi. Eble ŝi batalis por silentigi internajn voĉojn, kiuj jam tie ĉi, sur la tombo de la mortinto, komencis flustri al ŝi, ke nun ŝi fine estas libera.
@@ -8448,9 +7108,7 @@ Sciu tion, Anna Stjärnhök, kiu hodiaŭ surprenis vian edziniĝan veston por ak
 
 Mi vidis tion: vi venis nur pro kompato, ĉar vi volis mildigi nian krudan sorton. Vi ne amis lin. ĉu vi kredas, ke mi ne konas la amon, ke mi ne vidas ĝin, kie ĝi ekzistas, kaj ne komprenas, kiam ĝi forestas? Tiam mi pensis: Dio prenu la vivon de mia filo, antaŭ ol malfermiĝos liaj okuloj!
 
-Ho, se vi estus aminta lin! Ho, se vi neniam estus veninta al ni por dolĉigi nian vivon, ĉar vi ne amis lin. Mi sciis mian devon. Se li ne estus mortinta, mi estus devinta diri al li, ke vi ne amas lin, kaj ke vi volas edziniĝi kun li, ĉar vi estas la 384
-
-GÖSTA BERLING
+Ho, se vi estus aminta lin! Ho, se vi neniam estus veninta al ni por dolĉigi nian vivon, ĉar vi ne amis lin. Mi sciis mian devon. Se li ne estus mortinta, mi estus devinta diri al li, ke vi ne amas lin, kaj ke vi volas edziniĝi kun li, ĉar vi estas la
 
 
 kompato mem. Mi estus devinta igi lin liberigi vin, kaj poste la feliĉo de lia vivo estus detruita. Vidu, tial mi preĝis al Dio, ke li povu morti, por ke mi ne bezonu ĝeni la maltrankvilon de lia koro. Kaj mi ĝojis pro liaj kaviĝantaj vangoj, ĝojis pro lia stertora spiro, timis, ke la morto ne plenumos sian taskon.”
@@ -8477,9 +7135,7 @@ Tiam la knabino levis sin kun la okuloj ardantaj pro ekstazo. ŝi forŝiris la e
 
 ĝin.
 
-”Jen vidu, kiel mi amas lin!” ŝi diris. ”Mi donas al li miajn 385
-
-GÖSTA BERLING
+”Jen vidu, kiel mi amas lin!” ŝi diris. ”Mi donas al li miajn
 
 
 kronon kaj vualon. Mi kunligas min kun li. Neniam mi apartenos al iu alia.”
@@ -8493,10 +7149,7 @@ Sed mia pala amiko, la Morto-Liberiganto, ektremis, kiam li vidis tiujn larmojn.
 Li tiris la kapuĉon profunde sur la vizaĝon, malrapide glitis de la tombeja muro kaj malaperis inter la garbopalisoj de la kampoj.
 
 
-GÖSTA BERLING
-
-
-DUDEKNAŭA ĉAPITRO
+DUDEKNAŬA ĈAPITRO
 
 La seko
 
@@ -8510,41 +7163,31 @@ La spirito de la vivo ankoraŭ loĝas en la senvivaj aĵoj. Kion
 
 ĝi perceptas, dormetante en sensonĝa ripozo? La voĉon de Dio ĝi aŭdas. ĉu ĝi rimarkas ankaŭ tiun de la homoj?
 
-Ho, infano de tempo estanta, ĉu vi ne vidis tion? Kiam malpaco kaj malamo plenigas la teron, tiam ankaŭ la senvivaj aĵoj devas multesuferi. Tiam la ondo fariĝas sovaĝa kaj rabavida 387
-
-GÖSTA BERLING
+Ho, infano de tempo estanta, ĉu vi ne vidis tion? Kiam malpaco kaj malamo plenigas la teron, tiam ankaŭ la senvivaj aĵoj devas multesuferi. Tiam la ondo fariĝas sovaĝa kaj rabavida
 
 
 kiel rabisto, tiam la kampo fariĝas nedonema kiel avarulo.
 
 Sed ve al tiu, pro kiu la arbaro suspiras kaj la montoj ploras!
 
-Rimarkinda estis tiu jaro, kiam regis la kavaliroj, ŝajnas al mi, kvazaŭ la maltrankvilo de la homoj tiam ĝenis la trankvilon de la senvivaj aĵoj. Kiel mi prisikribu infektaĵon, kiu tiam disvastiĝis tra la lando? ĉu oni ne povus kredi, ke la kavaliroj estis la dioj de la regiono, kaj ke ĉio estis influata de ilia spirito? La spirito de la aventuroj, de la senzorgeco kaj sova-
-
-ĝeco.
+Rimarkinda estis tiu jaro, kiam regis la kavaliroj, ŝajnas al mi, kvazaŭ la maltrankvilo de la homoj tiam ĝenis la trankvilon de la senvivaj aĵoj. Kiel mi prisikribu infektaĵon, kiu tiam disvastiĝis tra la lando? ĉu oni ne povus kredi, ke la kavaliroj estis la dioj de la regiono, kaj ke ĉio estis influata de ilia spirito? La spirito de la aventuroj, de la senzorgeco kaj sovaĝeco.
 
 Se oni povus rakonti ĉion, kio tiam okazis inter la homoj sur la bordo de Löven, tiam la tuta mondo mirus. ĉar tiam vekiĝis malnova amo, ekardis nova. Tiam ekflamis malnova malamo, kaj longe ŝparita venĝo kaptis sian viktimon. Tiam ĉiuj viglis pro avido pri la dolĉo de la vivo: dancon kaj ludon, kartludon kaj drinkaĵon ili serĉis. Tiam malkaŝiĝis ĉio, kio kaŝas sin plej interne en la animo.
 
 De Ekeby tiu infektaĵo de maltrankvilo eliris. i unue disvastiĝis al la uzinoj kaj grandbienoj kaj pelis la homojn al malfeliĉo kaj peko. is tie ni povis iom sekvi ĝin, ĉar la maljunaj konservis la memoron pri la okazoj en kelkaj el la grandaj bienoj, sed kiel ĝi pludisvastiĝis inter la homoj, pri tio ni malmulte scias. Tamen neniu dubu pri tio, ke la maltrankvilo de la tempo iris de vilaĝo al vilaĝo, de kabano al kabano.
 
-Kie troviĝis kaŝita malvirto, ĝi ekmontris sin, kie ekzistis fen-deto inter viro kaj virino, ĝi fariĝis ravino, kie kaŝis sin granda virto aŭ forta volo, ankaŭ tiuj devis montri sin. ĉar ne ĉio estis malbona, kio okazis, tamen la tempo estis tia, ke la bono efikis same detrue kiel la malbono. Similis al la grandaj arbo-faligoj de la vento profunde en la arbaro, kie arbo falas sur 388
-
-GÖSTA BERLING
+Kie troviĝis kaŝita malvirto, ĝi ekmontris sin, kie ekzistis fen-deto inter viro kaj virino, ĝi fariĝis ravino, kie kaŝis sin granda virto aŭ forta volo, ankaŭ tiuj devis montri sin. ĉar ne ĉio estis malbona, kio okazis, tamen la tempo estis tia, ke la bono efikis same detrue kiel la malbono. Similis al la grandaj arbo-faligoj de la vento profunde en la arbaro, kie arbo falas sur
 
 
 arbon, pino kuntiras pinon kaj ankaŭ la subarbaro estas ŝirata teren de la falantaj gigantoj.
 
 Ne dubu pri tio, ke la frenezo venis al kamparanoj kaj servistoj! ĉie koroj sovaĝiĝis kaj cerboj konfuziĝis. Neniam la danco estis tiel gaja sur la vojkruciĝo, neniam oni tiel rapide eltrinkis la bierbarelon, neniam oni ĵetis tiom da greno en la brandkaldronon. Neniam la regaloj estis tiel multaj, neniam estis pli mallonga vojo inter la kolera vorto kaj la tranĉilpiko.
 
-Sed la maltrankvilo estis ne nur inter la homoj. i disvasti-
-
-ĝis al ĉio viva. Neniam lupo kaj urso pli detrue atakis, neniam vulpo kaj gufo hurlis pli timige kaj rabis pli sentime, neniam la ŝafoj pli ofte erariris en la arbaro, neniam tiom da malsano difektis la valoran brutaron.
+Sed la maltrankvilo estis ne nur inter la homoj. i disvastiĝis al ĉio viva. Neniam lupo kaj urso pli detrue atakis, neniam vulpo kaj gufo hurlis pli timige kaj rabis pli sentime, neniam la ŝafoj pli ofte erariris en la arbaro, neniam tiom da malsano difektis la valoran brutaron.
 
 Kiu volas vidi la interrilaton de la aferoj, tiu foriru de la urboj kaj loĝu en soleca kabano ĉe la rando de la arbaro. Li gardu la karbigstakon la tutajn noktojn aŭ loĝu sur la longaj lagoj tage kaj nokte dum hela somera monato, dum la trunkfloso faras sian malrapidan veturon al Venern, kaj li lernos observi ĉiujn signojn en la naturo kaj komprenos, kiel la senvivaj aĵoj dependas de la vivaj. Li vidos, ke la trankvilo de la senvivaj aĵoj estas ĝenata, kiam estas maltrankvilo sur la tero.
 
-La simplaj homoj scias tion. En tiaj tempoj la arbarnimfo estingas la karbigstakon, la lagnimfo disbatas la boaton, la nikso sendas malsanon, la koboldo malsatigas la bovinon. Kaj tiel estis en tiu jaro. Neniam la printempa fluo estis tiel detrua. La muelejo kaj la forĝejo de Ekeby ne estis ĝiaj solaj vik-timoj. Malgrandaj riveroj, kiuj antaŭe, kiam la printempo donis al ili forton, maksimume povis forporti malplenan fojnejon, nun atakis tutajn domojn kaj forlavis ilin. Neniam oni 389
-
-GÖSTA BERLING
+La simplaj homoj scias tion. En tiaj tempoj la arbarnimfo estingas la karbigstakon, la lagnimfo disbatas la boaton, la nikso sendas malsanon, la koboldo malsatigas la bovinon. Kaj tiel estis en tiu jaro. Neniam la printempa fluo estis tiel detrua. La muelejo kaj la forĝejo de Ekeby ne estis ĝiaj solaj vik-timoj. Malgrandaj riveroj, kiuj antaŭe, kiam la printempo donis al ili forton, maksimume povis forporti malplenan fojnejon, nun atakis tutajn domojn kaj forlavis ilin. Neniam oni
 
 
 aŭdis, ke la fulmotondro tiel detruis jam antaŭ somermezo —
@@ -8561,12 +7204,7 @@ Dum tiaj jaroj oni komencas angori en la arbaraj kabanoj, kaj de la montoj la te
 
 ”Estas iu, kiun la mano de Dio serĉas,” la homoj diras.
 
-Kaj ĉiu frapas sian bruston kaj diras: ”ĉu estas mi? Ho, patrino, ho, naturo, ĉu estas mi? ĉu pro teruro pro mi la pluvo tenas sin for? ĉu pro kolero al mi la severa tero sekiĝas kaj malmoliĝas? Kaj tiu eterna sunlumo, ĉu ĝi en sia mildo ĉiutage fluas de sennuba ĉielo por amasigi sur sian kapon la faj-390
-
-GÖSTA BERLING
-
-
-rajn karbojn? Aŭ, se ne estas mi, kiu do estas, kiun la mano de Dio serĉas?”
+Kaj ĉiu frapas sian bruston kaj diras: ”ĉu estas mi? Ho, patrino, ho, naturo, ĉu estas mi? ĉu pro teruro pro mi la pluvo tenas sin for? ĉu pro kolero al mi la severa tero sekiĝas kaj malmoliĝas? Kaj tiu eterna sunlumo, ĉu ĝi en sia mildo ĉiutage fluas de sennuba ĉielo por amasigi sur sian kapon la fajrajn karbojn? Aŭ, se ne estas mi, kiu do estas, kiun la mano de Dio serĉas?”
 
 Dum la sekalgrajnoj forvelkas en la malgrandaj spikoj, dum la terpomoj ne povas kolekti nutraĵon el la tero, dum la brutoj kun ruĝaj okuloj kaj spiregantaj pro varmego kunpremas sin ĉe la elsekiĝantaj fontoj, dum timo pri la estonteco kunpremas la korojn, iras stranga parolo tra la regiono.
 
@@ -8574,14 +7212,9 @@ Dum la sekalgrajnoj forvelkas en la malgrandaj spikoj, dum la terpomoj ne povas 
 
 Estis dimanĉo en aŭgusto. La diservo estis finita. La homoj iris grupe sur la sunvarmegaj vojoj. ĉirkaŭ si ili vidis bruni-gitajn arbarojn kaj detruitajn rikoltojn. La sekalo estis metita sur palisoj por sekiĝi, sed ili staris maldense kun maldikaj garboj. Tiuj, kiuj havis hakitejojn por bruligi, havis bonan kaj facilan laboron en tiu jaro, sed multfoje ankaŭ okazis, ke ili bruligis la sekan arbaron. Kaj kion indulgis la arbarfajro, tion prenis la insektoj: la koniferarbaro perdis la pinglojn kaj staris nuda, kiel foliarbaro en la vintro, la folioj de la betuloj pendis dis ŝiritaj kun nudaj nervoj kaj detruitaj foliplatoj.
 
-Al la pezhumoraj grupoj ne mankis paroltemoj. Estis tie multaj, kiuj povis rakonti, kiel malfacile estis dum la mizer-jaroj mil okcent ok kaj naŭ kaj dum la malvarma vintro mil okcent dek du, kiam la paseroj frostmortis. La malsato ne estis fremda al ili, ili ja pli frue renkontis ĝian severan viza-
-
-ĝon. Ili sciis, kiel oni preparas pinŝelon por pano, kaj kiel oni povas kutimigi la bovinojn manĝi muskon.
+Al la pezhumoraj grupoj ne mankis paroltemoj. Estis tie multaj, kiuj povis rakonti, kiel malfacile estis dum la mizer-jaroj mil okcent ok kaj naŭ kaj dum la malvarma vintro mil okcent dek du, kiam la paseroj frostmortis. La malsato ne estis fremda al ili, ili ja pli frue renkontis ĝian severan vizaĝon. Ili sciis, kiel oni preparas pinŝelon por pano, kaj kiel oni povas kutimigi la bovinojn manĝi muskon.
 
 Estis virino, kiu faris provon kun nova speco de pano el vakcinioj kaj hordefaruno. ŝi kunportis specimenon de ĝi kaj igis la homojn gustumi. ŝi fieris pro la eltrovaĵo.
-
-
-GÖSTA BERLING
 
 
 Sed super ili ĉiuj ŝvebis la sama demando, ĝi rigardis el ĉiuj okuloj, ĝin flustris ĉiuj lipoj:
@@ -8612,9 +7245,7 @@ Homoj, kiuj postvenas, vidas kion ili faras kaj aŭdas kion ili diras. Jen ili r
 
 Kaj ĉiu haltas, ĉiu diras sian vorton kaj ĵetas sian branĉon, antaŭ ol li pluiras.
 
-En la angulo inter la vojoj kuŝis baldaŭ amaseto el ŝtipetoj 392
-
-GÖSTA BERLING
+En la angulo inter la vojoj kuŝis baldaŭ amaseto el ŝtipetoj
 
 
 kaj sektrunketoj: la malhonora amaseto al la pastro de Broby.
@@ -8629,26 +7260,20 @@ Tre rapide fariĝis kutimo, ke ĉiu, kiu preteriris la pastrodomon, ĵetis sekan
 
 ”Dio kaj homoj vidu tion!” ĉiu iranto pensis. ”Ankaŭ mi malestimas lin, kiu altiris al ni la koleron de Dio.”
 
-La maljuna avarulo baldaŭ rimarkis la amaseton ĉe la vojrando. Li forportigis ĝin. Kelkaj diris, ke li hejtis sian kuirejan fornon per ĝi. La postan tagon sur la sama loko jam kolektiĝis nova amaseto, kaj kiam li forportigis tiun, tuj nova estis kun-
-
-ĵetata.
+La maljuna avarulo baldaŭ rimarkis la amaseton ĉe la vojrando. Li forportigis ĝin. Kelkaj diris, ke li hejtis sian kuirejan fornon per ĝi. La postan tagon sur la sama loko jam kolektiĝis nova amaseto, kaj kiam li forportigis tiun, tuj nova estis kunĵetata.
 
 La sekaj branĉetoj kuŝis tie kaj parolis: ”Malhonoro, malhonoro al la pastro de Broiby!”
 
 Estis varmegaj, sekaj tagoj de la ”putrigmonato”. Peza de fumo, saturita de brulodoro, la aero kuŝis super la regiono, por enspiro simila al premanta malespero. La pensoj kirliĝis en varmigitaj cerboj. La pastro de Broby fariĝis la demono de seko. ŝajnis al la kamparanoj, ke la maljuna avarulo sidas gardante la fontojn de la ĉielo.
 
-Baldaŭ la intenco de la homoj klariĝis al la pastro de Broby. Li komprenis, ke ili signas lin kiel la kaŭzon de la malfeliĉo. En kolero pro li Dio lasas la teron soifi. La ŝipanoj, kiuj 393
-
-GÖSTA BERLING
+Baldaŭ la intenco de la homoj klariĝis al la pastro de Broby. Li komprenis, ke ili signas lin kiel la kaŭzon de la malfeliĉo. En kolero pro li Dio lasas la teron soifi. La ŝipanoj, kiuj
 
 
 estas en danĝero sur la senvoja maro, lotas inter si. Li estas la viro, kiun oni elĵetos. Li provis ridi pri ili kaj iliaj branĉetoj, sed kiam la afero daŭris unu semajnon, li ne ridis plu. Ho, kia infanaĵo! Kiel tiuj sekaj ŝtipetoj povus domaĝi lin? Li komprenis, ke multjara malamo serĉis okazon por esprimi sin. Nu! Li ne kutimiĝis al amo.
 
 Tio ne mildigis lin. Eble li deziris reboniĝi, post la vizito de la maljuna fraŭlino. Nun li ne povis. Li ne ŝatis esti devigata al rebonigo.
 
-Sed iom post iom tiu amaseto fariĝis tro potenca por li. Li ĉiam devis pensi pri ĝi, kaj la penso, kiun ĉiuj havis, radikiĝis ankaŭ en li. Tio estis la plej terura atestado, tiu ĵetado de la sekaj branĉetoj. Li observis tiun amaseton, kalkulis la bran-
-
-ĉojn, kiuj ĉiutage estis aldonataj. La penso pri ĝi vastiĝis kaj superregis ĉiujn aliajn pensojn. Tiu amaseto detruis lin.
+Sed iom post iom tiu amaseto fariĝis tro potenca por li. Li ĉiam devis pensi pri ĝi, kaj la penso, kiun ĉiuj havis, radikiĝis ankaŭ en li. Tio estis la plej terura atestado, tiu ĵetado de la sekaj branĉetoj. Li observis tiun amaseton, kalkulis la branĉojn, kiuj ĉiutage estis aldonataj. La penso pri ĝi vastiĝis kaj superregis ĉiujn aliajn pensojn. Tiu amaseto detruis lin.
 
 Per ĉiu tago li devis pli kaj pli pravigi la homojn. Li ne zorgis pri si mem kaj fariĝis kadukmaljuna dum kelkaj semajnoj.
 
@@ -8658,9 +7283,6 @@ Fine li sidis tie kaj gardis la tutajn tagojn. Sed la homoj estis senkompataj, n
 
 
 Iun tagon Gösta Berling veturis sur la vojo. La pastro de Broby sidis apud la vojrando, maljuna kaj kaduka. Li sidis pal-pante la sekajn ŝtipetojn, kunmetis ilin en vicojn kaj amase-tojn, ludante per ili kvazaŭ en maljunaĝa naiveco. Gösta ĉagreniĝis pro lia mizero.
-
-
-GÖSTA BERLING
 
 
 ”Kion vi faras?” li diras kaj vigle saltas el la veturilo.
@@ -8696,9 +7318,6 @@ Gösta ja komprenas, kion li aludas. Li konas tiujn paro˛ojn en norda Vermlando
 55 Fumkabanoj — tiel nomataj, ĉar la fumo de la fajro eliris tra tegmenta luko.
 
 
-GÖSTA BERLING
-
-
 ”La juna pastro venas tien,” Gösta klarigas, ”malriĉa kiel ĉiuj aliaj. Li diras al la drinkulo: ’Ne drinku!’”
 
 ”Tiam la drinkulo respondas,” la pastro enŝovas: ” ’Do do-nu al mi tion, kio estas pli bona ol brando. La brando estas pelto en la vintro, freŝo en la somero. La brando estas varma ĉambro kaj mola lito. Donu al mi tion, kaj mi ne drs plu!’”
@@ -8713,9 +7332,7 @@ Sed tiam la ŝtelinto respondas: ’Donu al mi panon!’ kaj la maliculo diras: 
 
 Kaŝita ĉagreno maldolĉigis la langojn de la virinoj. Manko de hejmeco pelis la edzon al drinkado. Kampojn kaj brutojn ili ne povis prizorgi. Ili timis la superulon kaj ridindigis la pastron. Kion fari pri ili? Kion mi diris al ili de la katedro, ili ne komprenis. Kion mi volis instrui al ili, ili ne kredis. Kaj neniu kun kiu interkonsiliĝi, neniu, kiu povis helpi mnservi la kuraĝon!”
 
-”Ekzistas homoj, kiuj eltenis,” Gösta diras. ”La favoro de Dio estis tiel granda super kelkaj, ke ili revenis de tia vivo ne kiel rompitaj homoj. Iliaj fortoj sufiĉis; ili eltenis la solecon, la malriĉon, la senesperecon. Ili faris la etan bonon, kiun ili 396
-
-GÖSTA BERLING
+”Ekzistas homoj, kiuj eltenis,” Gösta diras. ”La favoro de Dio estis tiel granda super kelkaj, ke ili revenis de tia vivo ne kiel rompitaj homoj. Iliaj fortoj sufiĉis; ili eltenis la solecon, la malriĉon, la senesperecon. Ili faris la etan bonon, kiun ili
 
 
 povis, kaj ne malesperis. Tiaj viroj ĉiam ekzistis kaj ankoraŭ ekzistas. Mi volas saluti ilin kiel heroojn. Mi volas honori ilin dum mia tuta vivo. Mi ne estus elteninta.”
@@ -8746,9 +7363,7 @@ La pastro de Broby nefirme rigardis lin. Li demandis sin, ĉu Gösta sidas tie k
 
 ”Logas lin tiel dolĉe la penso pri la varmaj dometoj, por kies konstruo li helpos la malriĉulojn.”
 
-La pastro rigardas malsupren sur la etajn konstruaĵojn, 397
-
-GÖSTA BERLING
+La pastro rigardas malsupren sur la etajn konstruaĵojn,
 
 
 kiujn li starigis el la ŝtipetoj de la malhonora amaseto. Ju pli longe li parolas kun Gösta, des pli li konvinkiĝas, ke tiu pravas. Li ĉiam havis tiun penson iam fari bonon, kiam li estos kolektinta sufiĉe. Li alkroĉas sin al tio: kompreneble li havis tiun penson.
@@ -8776,9 +7391,6 @@ Poste ni instruigos al la homoj kulturi la kampojn kaj flegi la brutojn.”
 ”Ni konstruos kluzojn ĉe la torentoj de Berg, tiel ke estos rekta vojo inter Löven kaj Venern.”
 
 56 Dividi la teron — en pasinta tempo la terpecoj de la kamparanoj estis multaj kaj intermiksitaj. Temas tie ĉi pri novdivido, per kiu ĉiu ricevu unu solan grandan pecon.
-
-
-GÖSTA BERLING
 
 
 ”La tuta riĉaĵo, kiu troviĝas en la arbaro, donos duoblan benon, kiam vojo estas malfermita al la maro.”
@@ -8809,18 +7421,13 @@ Kiam Gösta malsuprenveturis sur la deklivoj de Broby, li miris pri si mem kaj p
 En la preĝejo de Broby la prediko ĝuste finiĝis kaj la kutimaj preĝoj estis diritaj. La helppastro ĝuste estis preta malsupreniri la ŝtuparon de la katedro. Sed li hezitis. Fine li ekgenuis tie supre kaj preĝis pri pluvo.
 
 
-GÖSTA BERLING
-
-
 Li preĝis, kiel preĝas senespera homo, per malmultaj vortoj, sen vera penskunligo.
 
 ”Se estas mia peko, kiu kaŭzis vian koleron, punu nur min!
 
 Se ekzistas kompato ĉe vi, Dio de kompato, lasu pluvon fali!
 
-Forprenu de mi la malhonoron! Lasu pluvon fali pro mia pre-
-
-ĝo. Lasu pluvon fali sur la kampon de la malriĉulo! Donu panon al via popolo!”
+Forprenu de mi la malhonoron! Lasu pluvon fali pro mia preĝo. Lasu pluvon fali sur la kampon de la malriĉulo! Donu panon al via popolo!”
 
 La tago estis varmega, regis neeltenebla sufokaĵo. La pa-roąnoj sidis kvazaŭ en duonkonscio, sed je tiuj balbutaj sonoj, je tiu raŭka malespero ĉiu vekiĝis.
 
@@ -8837,16 +7444,10 @@ Sed la ventpuŝo estis nur la antaŭkuranto de la fulmotondro. i alvenis kun nev
 La pastro de Broby estis la sola, kiu ne elvenis en la pluvon.
 
 
-GÖSTA BERLING
-
-
 Li genuis ĉe la altaro kaj ne levis sin. La ĝojo estis tro forta por li. Li mortis pro ĝojo.
 
 
-GÖSTA BERLING
-
-
-TRIDEKA ĉAPITRO
+TRIDEKA ĈAPITRO
 
 La patrino de la infano
 
@@ -8860,22 +7461,16 @@ La mastro opiniis, ke ŝi ŝajnas malforta, kaj ne multe atendis de ŝia laborka
 
 Estis io ĉe ŝi, kio igis ĉiujn en la bieno esti afablaj al ŝi. ŝi venis al bona loko. La homoj estis seriozaj kaj silentemaj. La mastrino ŝatis ŝin, de kiam ŝi eltrovis, ke ŝi scias teksi dreli-kon. Ili pruntis drelikteksilon en la pastrodomo, kaj la patrino de la infano sidis ĉe la teksilo la tutan someron.
 
-Neniu ekhavis la penson, ke ŝi bezonas ripozon. ŝi devis 402
-
-GÖSTA BERLING
+Neniu ekhavis la penson, ke ŝi bezonas ripozon. ŝi devis
 
 
-labori kiel kamparanino la tutan tempon. ŝi mem ankaŭ plej ŝatis labori. ŝi ne plu estis malfeliĉa. La vivo inter la kamparanoj plaĉis al ŝi, kvankam ŝi devis malhavi ĉiujn komforta-
-
-ĵojn, al kiuj ŝi kutimiĝis. Sed tie oni traktis ĉion simple kaj trankvile. La pensoj de ĉiuj turniĝis ĉirkaŭ la laboro, kaj la tagoj pasis tiel egalaj kaj unutonaj, ke oni eraris pri ili kaj kredis, ke oni estas meze en la semajno, kiam venis la dimanĉo.
+labori kiel kamparanino la tutan tempon. ŝi mem ankaŭ plej ŝatis labori. ŝi ne plu estis malfeliĉa. La vivo inter la kamparanoj plaĉis al ŝi, kvankam ŝi devis malhavi ĉiujn komfortaĵojn, al kiuj ŝi kutimiĝis. Sed tie oni traktis ĉion simple kaj trankvile. La pensoj de ĉiuj turniĝis ĉirkaŭ la laboro, kaj la tagoj pasis tiel egalaj kaj unutonaj, ke oni eraris pri ili kaj kredis, ke oni estas meze en la semajno, kiam venis la dimanĉo.
 
 Iun tagon en la fino de aŭgusto estis urĝo pri la avenrikol-to, kaj la patrino de la infano iris sur la kampon por ligi gar-bojn. Tiam ŝi trolacigis sin, kaj la inflano naskiĝis, sed tro frue.
 
 ŝi atendis ĝin en oktobro.
 
-Jen la mastrino staris en la grandĉambro kun la infano por varmigi ĝin ĉe la fajro, ĉar la kompatindulo frostis en la aŭ-
-
-gusta varmo. La patrino de la infano kuŝis en la malantaŭa ĉambreto kaj aŭskultis tion, kion oni diris pri la etulo. ŝi povis imagi, kiel servistoj kaj servistinoj alpaŝis por rigardi lin.
+Jen la mastrino staris en la grandĉambro kun la infano por varmigi ĝin ĉe la fajro, ĉar la kompatindulo frostis en la aŭgusta varmo. La patrino de la infano kuŝis en la malantaŭa ĉambreto kaj aŭskultis tion, kion oni diris pri la etulo. ŝi povis imagi, kiel servistoj kaj servistinoj alpaŝis por rigardi lin.
 
 ”Kia eta kompatindulo!” ili ĉiam diris, kaj poste ĉiam kaj senescepte sonis:
 
@@ -8885,18 +7480,14 @@ Ili ne plendis pri la kriado de la infano. Iel ili estis konvinkitaj, ke infanoj
 
 La patrino kuŝis aŭskultante kaj meditante. Subite la afero ŝajnis al ŝi nekredeble grava. Kiel li povos trapasi la vivon, la kompatindulo?
 
-ŝi faris siajn planojn antaŭe. ŝi restos en la kamparana do-mo la unuan jaron. Poste ŝi luos ĉambreton kaj akiros sian panon ĉe la teksilo. ŝi intencis mem perlabori sufiĉe por nutri kaj vesti la infanon. ŝia edzo ja povos plu kredi, ke ŝi estas 403
-
-GÖSTA BERLING
+ŝi faris siajn planojn antaŭe. ŝi restos en la kamparana do-mo la unuan jaron. Poste ŝi luos ĉambreton kaj akiros sian panon ĉe la teksilo. ŝi intencis mem perlabori sufiĉe por nutri kaj vesti la infanon. ŝia edzo ja povos plu kredi, ke ŝi estas
 
 
 neinda por li. ŝi pensis, ke la infano eble fariĝos pli bona homo, se ŝi sola edukos lin, ol se stulta kaj fieraĉa patro gvidos lin.
 
 Sed nun, kiam la infano naskiĝis, ŝi ne povis rigardi la aferon tiel. Nun ŝajnis al ŝi, ke ŝi estis egoisma. ”La infano devas havi patron,” ŝi diris al si mem.
 
-Se la etulo ne estus tiel mizera kompatindulo, se li povus manĝi kaj dormi kiel aliaj infanoj, se la kapo ne kliniĝus sen-
-
-ĉese al unu ŝultro, kaj se li ne estus tiel proksima al morto, kiam venis la krampfatakoj, tiam la demando ne estus tiel nemezureble grava.
+Se la etulo ne estus tiel mizera kompatindulo, se li povus manĝi kaj dormi kiel aliaj infanoj, se la kapo ne kliniĝus senĉese al unu ŝultro, kaj se li ne estus tiel proksima al morto, kiam venis la krampfatakoj, tiam la demando ne estus tiel nemezureble grava.
 
 Ne estis tre facile decidiĝi, kaj ŝi devis tuj fari decidon. La infano havis tri tagojn, kaj la kamparanoj en Vermlando malofte prokrastas pli longe por konduki siajn infanojn al la bapto.
 
@@ -8906,9 +7497,7 @@ La patrino de la infano ja rimarkis, ke ordinare estas ĝojo kaj tumulto, kiam i
 
 ŝi volis vidi lin dormi sur silko kaj puntoj, kiel decas por filo de grafo. ŝi volis vidi lin ĉirkaŭita de ĝojo kaj fiereco.
 
-La patrino de la infano komencis opinii, ke ŝi agas tro maljuste al ĝia patro. ĉu ŝi havas rajton teni ĝin por si sola? Ne povas esti tiel. Tian altvaloran aĵeton, kies valoron homa 404
-
-GÖSTA BERLING
+La patrino de la infano komencis opinii, ke ŝi agas tro maljuste al ĝia patro. ĉu ŝi havas rajton teni ĝin por si sola? Ne povas esti tiel. Tian altvaloran aĵeton, kies valoron homa
 
 
 kompreno ne povas pritaksi, ĉu ŝi povas preni ĝin nur por si?
@@ -8934,9 +7523,6 @@ Ankaŭ oni sendis al ŝi leteron, kiu verŝajne venis al Borg kelkajn tagojn pos
 Oni povas kompreni, ke kolero pli ol malĝojo ekregis la patrinon de la infano, kiam ŝi aŭdis la rakonton de la kamparano.
 
 La tutan nokton la dormo ne venis al ŝia lito. ”La infano devas havi patron,” ŝi ree kaj ree pensis.
-
-
-GÖSTA BERLING
 
 
 La postan matenon la kamparano devis por ŝi veturi al Ekeby por venigi Göstan Berling.
@@ -8966,9 +7552,6 @@ Jen oni devas scii, ke ŝi, kies blanka vizaĝo lumis al li el la krepusko, anko
 ”Bonan vesperon, Gösta!”
 
 
-GÖSTA BERLING
-
-
 ŝi etendis al li sian manon, kiu ŝajne ree fariĝis mola kaj diafana. ŝi kuŝis silenta, dum li batalis kontraŭ sia emocio.
 
 La patrino de la infano ne estis skuata de forte ekŝtormantaj sentoj, kiam ŝi vidis Göstan. Nur tio mirigis ŝin, ke li ŝaj-ne plej atentas pri ŝi, kvankam li ja devas kompreni, ke nun temas nur pri la infano.
@@ -8993,12 +7576,7 @@ Kion ŝi postulas de li?
 
 Sed la patrino de la infano daŭrigis:
 
-”Estas multaj, Gösta, kiuj volis edziniĝi kun vi pro amo, sed pri mi ne estas tiel. Se mi amus vin, mi ne kuraĝus paroli tiel, kiel mi nun parolas. Por mi mem mi ne volus peti pri io tia, Gösta, sed vidu, pro la infano mi povas fari tion. Certe vi jam komprenas, pri kio mi intencas peti vin. Certe estas granda malhonoro por vi, ĉar mi estas senedza virino, kiu havas in-407
-
-GÖSTA BERLING
-
-
-fanon. Mi ne pensis pri tio, ke vi volas fari tion, ĉar vi estas pli malbona ol aliaj, sed jes! mi pensis ankaŭ pri tio. Sed plej multe mi pensis pri tio, ke vi eble volas fari tion, ĉar vi estas bona, Gösta, ĉar vi estas heroo kaj povas oferi vin. Sed eble mi tro multe postulas. Eble io tia ne estas ebla por viro. Se vi tro malestimas min, se estas tro abomene por vi esti nomata patro de infano de iu alia, jen nur diru tion! Mi ne koleros. Mi ja komprenas, ke mi postulas tro multe, sed la infano estas tiel malsana, Gösta. Estas tiel kruele, ke je ĝia bapto oni ne povos diri la nomon de la edzo de ĝia patrino.”
+”Estas multaj, Gösta, kiuj volis edziniĝi kun vi pro amo, sed pri mi ne estas tiel. Se mi amus vin, mi ne kuraĝus paroli tiel, kiel mi nun parolas. Por mi mem mi ne volus peti pri io tia, Gösta, sed vidu, pro la infano mi povas fari tion. Certe vi jam komprenas, pri kio mi intencas peti vin. Certe estas granda malhonoro por vi, ĉar mi estas senedza virino, kiu havas infanon. Mi ne pensis pri tio, ke vi volas fari tion, ĉar vi estas pli malbona ol aliaj, sed jes! mi pensis ankaŭ pri tio. Sed plej multe mi pensis pri tio, ke vi eble volas fari tion, ĉar vi estas bona, Gösta, ĉar vi estas heroo kaj povas oferi vin. Sed eble mi tro multe postulas. Eble io tia ne estas ebla por viro. Se vi tro malestimas min, se estas tro abomene por vi esti nomata patro de infano de iu alia, jen nur diru tion! Mi ne koleros. Mi ja komprenas, ke mi postulas tro multe, sed la infano estas tiel malsana, Gösta. Estas tiel kruele, ke je ĝia bapto oni ne povos diri la nomon de la edzo de ĝia patrino.”
 
 Li, kiu aŭskultis ŝin, spertis la saman senton, kiel en tiu printempa tago, kiam li devis surbordigi ŝin kaj lasi ŝin al sia sorto. Nun li devas helpi al ŝi detrui ŝian estontecon, ŝian tutan estontecon. Li, kiu amas ŝin, devas fari tion.
 
@@ -9015,9 +7593,6 @@ Lia rakonto tuŝis la bonan, maljunan ĉefparoęstron, kaj li promesis zorgi pri
 ”Tion vi tute ne rajtas fari, Gösta. Nun vi devas fariĝi racia viro, kiam vi devos zorgi pri edzino kaj infano.”
 
 ĉiuokaze la paroęstro volas iri al Svartsjö por paroli kun 57 Fianĉindonanto — laŭ malnova juro reprezentanto de la familio de la fianĉino, kun kiu oni interkonsentis pri geedziĝo.
-
-
-GÖSTA BERLING
 
 
 la helppastro kaj la leĝisto. ĉio finiĝis tiel, ke la postan dimanĉon, la unuan de septembro, estis anoncata en Svartsjö geedziĝo de Gösta Berling kaj Elisabet von Thurn.
@@ -9043,9 +7618,6 @@ Kelkajn tagojn poste la patro kaj la patrino funebris. La infano mortis dum kram
 Al multaj ŝajnis, ke la patrino de la infano ne malĝojis tiel forte kaj profunde, kiel oni atendis. Estis brilo de triumfo sur ŝi. Estis, kvazaŭ ŝi jubilis pro tio, ke ŝi povis detrui sian tutan estontecon por la infano. Kiam la etulo venos al la anĝeloj, li tamen memoros, ke li sur la tero havis patrinon, kiu amis lin.
 
 
-GÖSTA BERLING
-
-
 ĉio tio okazis silente kaj nerimarkite. Kiam la edziĝo de Gösta Berling kun Elisabet von Thurn anonciĝis en Svartsjö, plej multaj eĉ ne sciis kiu estas la fianĉino. La pastroj kaj la superuloj, kiuj ja sciis pri la afero, parolis malmulte pri ĝi. Estis, kvazaŭ ili timus, ke iu, kiu perdis fidon al la potenco de la konscienco, malbone interpretus la agon de la juna virino. Ili tre, tre timis, ke iu venos kaj diros: ”Jen, tamen estis tiel, ke ŝi ne povis venki sian amon al Gösta. Jen ŝi edziniĝis kun li sub belŝajna preteksto.” Ho, la maljunaj ankoraŭ tiel protektis la junan virinon. Neniam ili povis toleri, ke oni diras ion malbonan pri ŝi. Ili apenaŭ volis konfesi, ke ŝi pekis. Ili ne volis vidi, ke ia kulpo makulas tiun animon, kiu tiel timis la malbonon.
 
 Alia grava afero okazis ĝuste tiam, kiu ankaŭ kaŭzis, ke oni malmulte parolis pri la edziĝo de Gösta.
@@ -9057,10 +7629,7 @@ Li ankaŭ estis danĝera, ĉar li ĉiam portis sian ŝargitan pafilon kaj fojon 
 La majoro devis resti en la lito kaj mortis pro tiu vundo, sed nur tuj antaŭ kristnasko. Se la majorino estus sciinta, ke li estas malsana, ŝi estus povinta repreni la potencon super Ekeby. Sed la kavaliroj sciis ja, ke ŝi ne revenos, antaŭ ol ilia jaro finiĝos.
 
 
-GÖSTA BERLING
-
-
-TRIDEKUNUA ĉAPITRO
+TRIDEKUNUA ĈAPITRO
 
 Amor vincit omnia
 
@@ -9081,9 +7650,6 @@ Vi, ho amo, estas verdire eterna. Malnovaj estas la homoj sur la tero, sed vi ak
 58 Amor vincit omnia — lat.: la amo venkas ĉion. — Labor vincit omnia: laboro venkas ĉion.
 
 
-GÖSTA BERLING
-
-
 Kie estas la dioj de la oriento, la fortaj herooj, kiuj portis la fulmon kiel armilon, tiuj, kiuj sur la bordoj de la sanktaj riveroj akceptis oferojn el mielo kaj lakto? Mortintaj ili estas.
 
 Mortis Bel, la forta militisto, kaj Thot, la akcipitrokapa batalulo. Mortis la brilaj, kiuj ripozis sur la nubkuŝejoj de Olimpo, same la grandfaruloj, kiuj loĝis en la murĉirkaŭita Valhalo.
@@ -9097,9 +7663,7 @@ Kio ekzistas, kio ne sopiras kaj estas logata? Kio ekzistas, kio povas eviti lia
 
 La maljuna onklo Eberhard sidas ĉe sia skribpupitro, rava meblo kun cent kestoj, kun marmora tabulo kaj garnaĵoj el malheliĝinta latuno. Li laboras fervore kaj diligente, sola tie supre en la kavalira domo.
 
-Ho, Eberhard, kial vi ne vagas en la naturo dum la lastaj tagoj de la malaperanta somero kiel la aliaj kavaliroj! Neniu, tion vi scias, senpune adoras la diinon de saĝo. Klinita estas via dorso je sesdek kaj kelkaj jaroj, la hararo, kiu kovras vian verton, ne estas via propra, la sulkoj interpremiĝas sur via frunto, kiu volbas sin super enprofundiĝintaj okulkavoj, kaj 412
-
-GÖSTA BERLING
+Ho, Eberhard, kial vi ne vagas en la naturo dum la lastaj tagoj de la malaperanta somero kiel la aliaj kavaliroj! Neniu, tion vi scias, senpune adoras la diinon de saĝo. Klinita estas via dorso je sesdek kaj kelkaj jaroj, la hararo, kiu kovras vian verton, ne estas via propra, la sulkoj interpremiĝas sur via frunto, kiu volbas sin super enprofundiĝintaj okulkavoj, kaj
 
 
 la detruo de la maljunaĝo desegniĝas en la mil faldetoj ĉirkaŭ via malplena buŝo.
@@ -9118,9 +7682,7 @@ Jen ŝi do kviete envenas kaj rigardas la stukitajn murojn kaj la flavkvadratajn
 
 Onklo Eberhard solene iras al ŝi kaj kondukas ŝin al la granda amaso de skribita papero.
 
-”Jen, grafino!” li diras. ”Nun mia laboro estas preta. Nun 413
-
-GÖSTA BERLING
+”Jen, grafino!” li diras. ”Nun mia laboro estas preta. Nun
 
 
 tio, kion mi skribis, iros en la mondon. Nun grandaj aferoj okazos.”
@@ -9143,9 +7705,7 @@ tio, kion mi skribis, iros en la mondon. Nun grandaj aferoj okazos.”
 
 ”Kiu tiam regos la mondon?”
 
-”ĉu vi kredas, ke iu regis ĝin antaŭe? ĉu vi kredas al tiu 414
-
-GÖSTA BERLING
+”ĉu vi kredas, ke iu regis ĝin antaŭe? ĉu vi kredas al tiu
 
 
 providenco, kiu atentis pri paseroj kaj kapharoj? Neniu regis
@@ -9168,9 +7728,7 @@ providenco, kiu atentis pri paseroj kaj kapharoj? Neniu regis
 
 ”Neniu.”
 
-La juna virino pasas al la fenestro. ŝi elrigardas sur la flaviĝintajn foliojn de la aŭtuno, sur daliojn kaj asterojn, kiuj kun pezaj kapoj pendas sur tigoj rompitaj de la aŭtuna vento. ŝi vidas la nigrajn ondojn de Löven, la malhelan ŝtorm-
-
-ĉielon de la aŭtuno, kaj por tempeto ŝi transdonas sin al ne-ado.
+La juna virino pasas al la fenestro. ŝi elrigardas sur la flaviĝintajn foliojn de la aŭtuno, sur daliojn kaj asterojn, kiuj kun pezaj kapoj pendas sur tigoj rompitaj de la aŭtuna vento. ŝi vidas la nigrajn ondojn de Löven, la malhelan ŝtormĉielon de la aŭtuno, kaj por tempeto ŝi transdonas sin al ne-ado.
 
 ”Onklo Eberhard,” ŝi diras, ”kiel la mondo estas griza kaj malbela, kiel ĉio estas senutila! Mi volas ekkuŝi por morti.”
 
@@ -9180,12 +7738,7 @@ Sed tiam ŝi aŭdas kvazaŭ ĝemon en sia animo. La grandaj fortoj de la vivo ka
 
 ”La laboro,” la maljunulo respondas.
 
-Sed ŝi ree elrigardas kaj sento de malsato al tiu mizera saĝo ŝtelkaptas ŝin. La neeltrovebla levas sin antaŭ ŝi, ŝi sentas, ke la spirito loĝas en ĉio, ŝi sentas la potencon, kiu kuŝas kate-415
-
-GÖSTA BERLING
-
-
-nita en ŝajne senviva materio, sed kiu povas disvolvi milas-pekte nuanciĝantan vivon. Kun svenanta penso ŝi serĉas nomon por la ĉeesto de la spirito de Dio en la naturo.
+Sed ŝi ree elrigardas kaj sento de malsato al tiu mizera saĝo ŝtelkaptas ŝin. La neeltrovebla levas sin antaŭ ŝi, ŝi sentas, ke la spirito loĝas en ĉio, ŝi sentas la potencon, kiu kuŝas katenita en ŝajne senviva materio, sed kiu povas disvolvi milas-pekte nuanciĝantan vivon. Kun svenanta penso ŝi serĉas nomon por la ĉeesto de la spirito de Dio en la naturo.
 
 ”Ho, onklo Eberhard,” ŝi diras, ”kio estas la laboro? ĉu estas dio? ĉu ĝi per si mem posedas celon? Diru ion alian!”
 
@@ -9215,9 +7768,7 @@ Kaj en profunda ĉagreno ŝi foriras de la filozofo.
 
 Sed kiam ŝi foriris, li longe sidas cerbumante.
 
-Tiuj malnovaj folipakoj, plenigitaj per blasfema skribo, 416
-
-GÖSTA BERLING
+Tiuj malnovaj folipakoj, plenigitaj per blasfema skribo,
 
 
 ankoraŭ ne estas ekzamenitaj de la mondo. La nomo de onklo Eberhard ankoraŭ ne atingis la altojn de la famo.
@@ -9231,10 +7782,7 @@ Jen komprenu: la veron li amis, ne propran gloron. Tial li oferis la lastan, ne 
 Ho, amo, vi estas la verdire eterna!
 
 
-GÖSTA BERLING
-
-
-TRIDEKDUA ĉAPITRO
+TRIDEKDUA ĈAPITRO
 
 La knabino el Nygård
 
@@ -9251,12 +7799,7 @@ Infanoj de superuloj, kiuj ne rajtas akompani la irantaron, staras ĉe la vojran
 ĉiuj, kiuj loĝas ĉe la vojo, eksaltas kaj demandas: ”ĉu malfeliĉo trafis la landon? ĉu la malamiko atakas nin? Kien vi iras, irantoj? Kien?”
 
 
-GÖSTA BERLING
-
-
-”Ni serĉas,” ili respondas. ”Ni serĉis dum du tagoj. Ni ser-
-
-ĉos ankaŭ hodiaŭ, poste ni ne eltenos plu. Ni traserĉos la arbaron de Björne kaj la pvritajn altaĵojn okcidente de Ekeby.”
+”Ni serĉas,” ili respondas. ”Ni serĉis dum du tagoj. Ni serĉos ankaŭ hodiaŭ, poste ni ne eltenos plu. Ni traserĉos la arbaron de Björne kaj la pvritajn altaĵojn okcidente de Ekeby.”
 
 La irantoj unue ekmarŝis de Nygård, malriĉa regiono inter la orientaj montoj. La bela knabino kun la peza, nigra hararo kaj la ruĝaj vangoj estas malaperinta dum ok tagoj. La balailknabino, kiun Gösta Berling volis preni kiel fianĉinon, erariris en la grandaj arbaroj. Dum ok tagoj neniu vidis ŝin.
 
@@ -9268,9 +7811,7 @@ Ofte okazas, ke iu novveninto demandas:
 
 ”Neniu ĝenas ŝin,” ili tiam respondas, ”ŝi ĝenas neniun. ŝi iras sekura kiel infano. Kiu iras pli sekura ol tiu, kiun Dio devas mem gardi? Antaŭe ŝi ĉiam revenis.”
 
-Tiel la serĉantaro iris tra la orientaj arbaroj, kiuj disigas Nygård de la ebeno. Nun en la tria tago ĝi preteriras la pre-
-
-ĝejon de Bro supren al la arbaroj okcidente de Ekeby.
+Tiel la serĉantaro iris tra la orientaj arbaroj, kiuj disigas Nygård de la ebeno. Nun en la tria tago ĝi preteriras la preĝejon de Bro supren al la arbaroj okcidente de Ekeby.
 
 Sed kie la serĉantaro preteriras, muĝas ŝtormo de miro.
 
@@ -9282,12 +7823,7 @@ Sed kie la serĉantaro preteriras, muĝas ŝtormo de miro.
 
 ”Kial ŝi ekkuŝis en la arbaro por morti? ĉu ŝi estis malsata? ĉu ŝi estis malfeliĉa?”
 
-”Mizeron ŝi ne suferis, sed la malfeliĉo trafis ŝin lastprin-419
-
-GÖSTA BERLING
-
-
-tempe. ŝi vidis la frenezan pastron, Göstan Berling, kaj amis lin dum multaj jaroj. ŝi ne komprenis pli bone. Dio prenis ŝian prudenton.”
+”Mizeron ŝi ne suferis, sed la malfeliĉo trafis ŝin lastprintempe. ŝi vidis la frenezan pastron, Göstan Berling, kaj amis lin dum multaj jaroj. ŝi ne komprenis pli bone. Dio prenis ŝian prudenton.”
 
 ”Vere Dio forprenis de ŝi la prudenton, viroj el Nygård.”
 
@@ -9305,9 +7841,7 @@ Venu ĉiuj, viroj kaj virinoj kaj infanoj! Kiu kuraĝas resti hejme? Kiu scias, 
 
 Venu! Dio prenis ŝian prudenton, kaj la arbaro estas granda.
 
-Kiu konas vojon al la loko, kie la piceoj staras plej dense kaj la musko kuŝas plej mole? ĉu estas io malhela tie tuj sub la 420
-
-GÖSTA BERLING
+Kiu konas vojon al la loko, kie la piceoj staras plej dense kaj la musko kuŝas plej mole? ĉu estas io malhela tie tuj sub la
 
 
 rokmuro? Nur la pinglostako de la brunaj formikoj. Nur tio, laŭdon al tiu, kiu gvidas la paŝojn de la frenezuloj!
@@ -9322,12 +7856,7 @@ i plenigas la ŝoseon, tiu procesio de ĉagrenitaj serĉantoj.
 
 Per seriozaj okuloj ili mezuras la arbaron, malgajaj ili iras an-taŭen, ĉar ili scias, ke ili pli verŝajne serĉas mortinton ol vi-vanton.
 
-Tio nigra sub la rokmuro, ĉu tamen ne estas la pinglosta-421
-
-GÖSTA BERLING
-
-
-ko de la formikoj sed falinta arbo? Laŭdon al la ĉielo, nur falinta arbo! Sed oni ja ne povas vidi tre precize, ĉar la piceoj staras tiel dense.
+Tio nigra sub la rokmuro, ĉu tamen ne estas la pinglostako de la formikoj sed falinta arbo? Laŭdon al la ĉielo, nur falinta arbo! Sed oni ja ne povas vidi tre precize, ĉar la piceoj staras tiel dense.
 
 Tiel longaj estas la vicoj, ke la unuaj, la fortaj viroj, atingis la arbaron okcidente de Björne, kiam la lastaj, la kripluloj, la laborrompitaj maljunuloj, kaj la virinoj, kiuj portas siajn in-fanetojn, apenaŭ preteriris la preĝejon de Broby.
 
@@ -9338,9 +7867,6 @@ Estas la tria tago de ilia serĉo: ili kutimiĝis al tiu laboro. Ili serĉas sub
 La travintrejon de la urso, la tunelon de la vulpo, la profundan loĝejon de la melo, la nigran fundon de la karbigstako, la ruĝan vakcinian deklivon, la piceon kun la blankaj pingloj, la monton, kie la arbarfajro furiozis antaŭ unu monato, la ŝtonon, kiun ĵetis la giganto: ĉion tion ili trovis, sed ne la lokon sub la rokmuro, kie kuŝas la nigraĵo. Neniu estis tie por esplori, ĉu estas formikstako aŭ arbotrunko aŭ homo. Ho, certe estas homo, sed neniu estis tie por rigardi.
 
 La suno de la vespero vidis ilin sur la alia flanko de la arbaro, sed la juna virino, kies prudenton Dio prenis, ne estas trovita. Kion ili nun faru? ĉu ili ankoraŭfoje traserĉu la arbaron? La arbaro estas danĝera en la mallumo: tie troviĝas sen-fundlaj marĉoj kaj krutegaj ravinoj. Kaj kion tiuj povos trovi post la malapero de la suno, kiuj nenion trovis, dum ĝi lumis!
-
-
-GÖSTA BERLING
 
 
 ”Ni iru al Ekeby!” iu el la aro krias.
@@ -9357,9 +7883,7 @@ Jen minacmienaj, koleraj viroj marŝas malsupren al la granda bieno Ekeby, malsa
 
 Estas la aŭtunfluo, kiu venas. Kavaliroj, ĉu vi memoras la printempan fluon? Jen novaj ondoj fluas malsupren de la montoj, jen nova atako trafos la gloron kaj brilon de Ekeby.
 
-Farmetisto, kiu plugas sur kampo ĉe la rando de la arbaro, aŭdas la furiozan kriadon de la homoj. Li dejungas unu el la 423
-
-GÖSTA BERLING
+Farmetisto, kiu plugas sur kampo ĉe la rando de la arbaro, aŭdas la furiozan kriadon de la homoj. Li dejungas unu el la
 
 
 ĉevaloj, saltas sur ĝin kaj fluge rajdas al Ekeby. ”Malfeliĉo venas,” li krias, ”la ursoj venas, la lupoj venas, la monstroj venas por preni Ekebyn!”
@@ -9376,9 +7900,7 @@ Estas la spiritoj de la montoj, kiuj rompis ferŝtonon, estas la spiritoj de la 
 
 Tie ĉi estas, kie la brando fluas torente. Tie ĉi la oro kuŝas amasigita en la kelvolboj. Tie ĉi la provizejoj estas plenaj de greno kaj viando. Kial la infanoj de justo devas malsati kaj malbonfarantoj havi sufiĉe?
 
-Sed nun via tempo finiĝis, la mezurujo estas plena, kavaliroj. Vi lilioj, kiuj neniam ŝpinis, vi birdoj, kiuj neniam kolektis, la mezurujo estas plena. En la arbaro kuŝas tiu, kiu kondamnas vin; ni estas ŝiaj senditoj. Leĝistoj kaj prokuroroj ne 424
-
-GÖSTA BERLING
+Sed nun via tempo finiĝis, la mezurujo estas plena, kavaliroj. Vi lilioj, kiuj neniam ŝpinis, vi birdoj, kiuj neniam kolektis, la mezurujo estas plena. En la arbaro kuŝas tiu, kiu kondamnas vin; ni estas ŝiaj senditoj. Leĝistoj kaj prokuroroj ne
 
 
 eldiras vian verdikton. Tiu, kiu kuŝas en la arbaro, kondamnis vin.
@@ -9396,9 +7918,6 @@ Kaj la homoj haltas antaŭ tiu areto de trankvilaj viroj. Tie troviĝas homoj, k
 ”Karaj amikoj,” la kavaliroj diras, ”karaj amikoj, vi estas lacaj kaj malsataj, permesu al ni doni al vi pecon da manĝaĵo, kaj unue gustumi gluton de la propra, hejmfarita brando de Ekeby!”
 
 
-GÖSTA BERLING
-
-
 La nomoj ne volas aŭskulti tian parolon; ili krias kaj minacas. Sed la kavaliroj ne ekkoleras.
 
 ”Atendu nur,” ili diras, ”atendu nur unu sekundon! Jen, Ekeby estas malfermita. La kelpordo estas malfermita, la provizejo estas malfermita, la laktoĉambro estas malfermita. Viaj virinoj falas pro laco, la infanoj krias. Lasu nin unue havigi al ili manĝaĵon! Poste vi povos mortigi nin. Ni ne forkuros. Sed nia subtegmentejo estas plena de pomoj. Lasu nin iri por alporti pomojn al la infanoj.”
@@ -9410,9 +7929,7 @@ Oni bruligis disigitajn lignostakojn, sur la tuta korto flamas ŝtiparo apud ŝt
 
 Decidemaj viroj iris en la bovinstalon kaj prenis, kion oni bezonis. Bovidojn kaj ŝafojn oni mortigis kaj ankaŭ kelkajn grandbestojn. Per unu manturno oni dispecigis kaj rostis la bestojn. Tiuj centoj da malsatantoj englutas la manĝaĵon. Be-ston post besto oni elkondukas kaj mortigas. ŝajnas, kvazaŭ oni malplenigus la tutan bovinstalon en unu nokto.
 
-uste en tiuj tagoj oni havis la aŭtunan bakadon en Ekeby. Post kiam la juna grafino venis tien, la endomaj okupoj ree ekmoviĝis. ŝajnis, ke la juna virino ne memoras eĉ dum unu momento, ke ŝi estas la edzino de Gösta Berling. Nek li nek ŝi atentis pri tiu afero, sed samtempe ŝi faris sin mastrino en Ekeby. Kiel bona kaj taŭga virino ĉiam devas fari, ŝi kun arda 426
-
-GÖSTA BERLING
+uste en tiuj tagoj oni havis la aŭtunan bakadon en Ekeby. Post kiam la juna grafino venis tien, la endomaj okupoj ree ekmoviĝis. ŝajnis, ke la juna virino ne memoras eĉ dum unu momento, ke ŝi estas la edzino de Gösta Berling. Nek li nek ŝi atentis pri tiu afero, sed samtempe ŝi faris sin mastrino en Ekeby. Kiel bona kaj taŭga virino ĉiam devas fari, ŝi kun arda
 
 
 fervoro provis forigi la malŝparon kaj la nezorgemon, kiu regis en la bieno. Kaj oni obeis ŝin. Estis certa agrablo por la homoj ree havi mastrinon super si.
@@ -9430,9 +7947,6 @@ Laŭ la paso de la nokto la aroj plimildiĝas. La varmo, la ripozo, la manĝaĵo
 La infanoj atakas tiujn fruktamasojn, kiujn oni alportas al ili. Malriĉaj farmetistaj infanoj, kiuj rigardas okcikokojn kaj 59 Pano — oni metas la panojn, kiuj havis truon en la mezo, sur stangojn kaj pendigis tiujn sub la plafono por ke la pano sekiĝu.
 
 
-GÖSTA BERLING
-
-
 vakciniojn kiel frandaĵojn, atakas diafanajn astrakanojn, kiuj fandiĝas en la buŝo, longformajn, dolĉajn paradizpomojn, flavblankajn citronpomojn, pirojn kun ruĝaj vangoj kaj pru-nojn de ĉiuj specoj, flavajn, ruĝajn kaj bluajn. Ho, nenio estas tro bona por la popolo, kiam plaĉas al ĝi montri sian potencon.
 
 ŝajnas, kiam noktomezo proksimiĝas, ke la aroj preparas sin por foriro. La kavaliroj ĉesas alporti manĝaĵon kaj vinon, eltiri korkojn kaj elkrani bieron. Ili spiras pli facile, en la sento ke la danĝero pasis.
@@ -9447,9 +7961,7 @@ Daŭris nur dum momento. La vidaĵo malaperas, sed la homoj kredas, ke ili rekon
 
 La malsovaĝigita sovaĝbesto blekegas kaj hurlas. Per kelkaj furiozaj saltoj ĝi ĵetas sin al Ekeby.
 
-La homoj estas rapidaj, ankoraŭ pli rapidaj estas la kavaliroj. Ili eksaltas kaj ŝlosas la vestiblan pordon. Sed kion ili povas fari kontraŭ tiu alpremanta aro? Pordo post pordo estas perforte malfermata. La kavalirojn oni ĵetas flanken: ili ne havas armilojn. Ili estas enpremataj en la densan aron, tiel ke 428
-
-GÖSTA BERLING
+La homoj estas rapidaj, ankoraŭ pli rapidaj estas la kavaliroj. Ili eksaltas kaj ŝlosas la vestiblan pordon. Sed kion ili povas fari kontraŭ tiu alpremanta aro? Pordo post pordo estas perforte malfermata. La kavalirojn oni ĵetas flanken: ili ne havas armilojn. Ili estas enpremataj en la densan aron, tiel ke
 
 
 ili ne povas movi sin. La homoj volas eniri por trovi la knabinon el Nygård.
@@ -9475,9 +7987,6 @@ La homoj el la arbaro renkontas la homojn el la domo. ŝti-paroj flamas ĉirkaŭ
 Kial oni diris al ni, ke ŝi estas tre malproksime aŭ mortinta?
 
 
-GÖSTA BERLING
-
-
 En la nomo de la sankta justo ni saltos sur la kavalirojn kaj polvigos ilin sub niaj fergarnitaj kalkanumoj!”
 
 Tiam aŭdiĝas vaste sonanta voĉo. Gösta Berling suriris la balustradon de la perono kaj parolas de tie.
@@ -9493,9 +8002,6 @@ Sed jen mi diras al vi, ke vi lasu ŝin, kiun vi eltiris el la do-mo. Lasu ŝin,
 Jen mi diru al vi, kiu ŝi estas. Unue ŝi estas anĝelo el la ĉie-lo, due estas ŝi, kiu estis edzino de la grafo en Borg. Sed ŝia bopatrino turmentis ŝin tage kaj nokte. ŝi devis stari ĉe la lago kaj lavi vestojn kiel ordinara servistino, ŝi estis tiel batata kaj turmentata, ke neniu el viaj virinoj povas havi pli malfacilan vivon. Jes, ŝi preskaŭ volis salti en la riveron, ĉar oni elturmentis la vivon el ŝi. Mi ŝatus scii, kiu el vi, kanajloj, tiam ĉeestis por savi ŝian vivon. Neniu el vi estis tie, sed ni kavaliroj, ni faris tion. Jen, ni faris tion.
 
 
-GÖSTA BERLING
-
-
 Kaj kiam ŝi poste naskis infanon fore en kamparana domo kaj la grafo sendis sciigon al ŝi: ’Ni geedziĝis en fremda lando, ni ne sekvis leĝon kaj statutojn. Vi ne estas mia edzino, mi ne estas via edzo. Mi ne zorgas pri via infano,’ jes, kiam estis tiel kaj ŝi ne volis, ke la infano staru kiel senpatra en la preĝeja libro, tiam vi certe fierus se ĝi estus dirinta al unu el vi: ’Venu kaj edziĝu kun mi. Mi devas havi patron por la infano.’ Sed ŝi ne elektis iun el vi. ŝi elektis Göstan Berling, la malriĉan pastron, kiu neniam plu rajtos prediki la vorton de Dio. Jes, tion mi diras al vi, kamparanoj, ke pli malfacilan aferon mi neniam plenumis, ĉar mi estis tiel neinda al ŝi, ke mi ne kuraĝis rigardi en ŝiajn okulojn, sed mi ankaŭ ne kuraĝis rifuzi, ĉar ŝi estis en granda malespero.
 
 Kaj nun vi laŭplaĉe kredu kion ajn malbonan pri ni kavaliroj, sed al ŝi ni faris ĉion bonan, kion ni povis. Kaj estas ŝia merito, ke ni ne mortpafis vin ĉiujn en tiu ĉi nokto. Sed jen mi diras al vi: liberigu ŝin kaj foriru, ĉar mi pensas, ke alie la tero malfermiĝos por engluti vin! Kaj kiam vi foriros de tie ĉi, tiam petu Dion pardoni vin pro tio, ke vi timigis kaj ĉagrenis tiun, kiu estas tiel bona kaj senkulpa! Kaj jen malaperu! Ni ne volas vidi vin plu!”
@@ -9509,9 +8015,6 @@ Post li venis alia kaj donis al ŝi singardan manpremon.
 ”Dankon kaj bonan nokton! Vi ne koleru al ni!”
 
 
-GÖSTA BERLING
-
-
 Gösta malsuprensaltis kaj prenis lokon apud ŝi. Tiam ili prenis ankaŭ lian manon.
 
 Jen ili alvenis malrapidaj kaj malviglaj, unu post la alia, por diri al ili bonan nokton antaŭ ol foriri. Ili ree estis subigitaj, ree ili estis homoj, kiel ili estis, kiam ili en la mateno forlasis siajn hejmojn, antaŭ ol malsato kaj venĝemo transformis ilin en sovaĝajn bestojn. Ili rigardis rekte al la vizaĝo de la grafino, kaj Gösta rimarkis, kiel la senkulpeco kaj pieco, kiujn ili vidis tie, aperigis larmojn en la okuloj de multaj. Estis ĉe ili ĉiuj silenta adoro al la plej nobla, kion ili iam vidis. Estis homoj, kiuj ĝojis pro tio, ke unu el ili havas tiel grandan amon al la bono.
@@ -9522,12 +8025,7 @@ Gösta staris kiel en sonĝo. En lia koro naskiĝis en tiu vespero nova amo.
 
 ”Ho, mia popolo,” li pensis, ”ho, mia popolo, kiel mi amas vin!” li sentis, kiel li amas tiun tutan aron, kiu foriris en la nokta mallumo kun la mortinta knabino en la komenco de la procesio, ĉiujn tiujn krudajn vestojn kaj malbonodorajn ŝuojn, ĉiujn tiujn, kiuj loĝis en la grizaj dometoj ĉe la rando de la arbaro, ĉiujn tiujn, kiuj ne sciis movi plumon kaj ofte eĉ ne legi, ĉiujn tiujn, kiuj ne konis la plenon kaj riĉon de la vivo, nur penadon por la ĉiutaga pano.
 
-Li amis ilin per dolora, arda mildemo, kiu aperigis larmojn en liaj okuloj. Li ne sciis, kion li volas fari por ili, sed li amis ilin, ĉiun kaj ĉiujn, kun iliaj mankoj kaj malvirtoj kaj malfor-432
-
-GÖSTA BERLING
-
-
-taĵoj. Ho, Sinjoro Dio, se povus veni la tago, kiam ankaŭ li estus amata de li.”
+Li amis ilin per dolora, arda mildemo, kiu aperigis larmojn en liaj okuloj. Li ne sciis, kion li volas fari por ili, sed li amis ilin, ĉiun kaj ĉiujn, kun iliaj mankoj kaj malvirtoj kaj malfortaĵoj. Ho, Sinjoro Dio, se povus veni la tago, kiam ankaŭ li estus amata de li.”
 
 Li vekiĝis el sia revo; lia edzino metis sian manon sur lian brakon. La homoj estis for. Ili estis solaj sur la perono.
 
@@ -9546,10 +8044,7 @@ Li staris rigardante ŝin.
 ”Ho, mia amikino, mia amata!” li diris kviete. ”Kiel feliĉa estas vi, kiu estas tiel bona! Kiel feliĉa estas vi, kiu en via interno havas tiel belan animon!”
 
 
-GÖSTA BERLING
-
-
-TRIDEKTRIA ĉAPITRO
+TRIDEKTRIA ĈAPITRO
 
 Kevenhüller
 
@@ -9564,9 +8059,6 @@ Kevenhüller ne estis ordinara horloĝisto, li volis fariĝi granda inventisto k
 Tramigrinte multajn landojn li iris ankaŭ al Vermlando por 60 Kastelgrafo — en mezepoko titolo de komandanto de fortikigita urbo aŭ kastelo. Poste ordinare nura titolo, en kelkaj okazoj titolo de grafo kun graflando.
 
 
-GÖSTA BERLING
-
-
 studi muelejajn radojn kaj la lignajn movtransigilojn de la minoj. En bela somera mateno okazis, ke li transiris la placon en Karlstad. Sed en la sama bela matenhoro plaĉis al la arbarnimfo plilongigi sian promenon ĝis en la urbo. Ankaŭ tiu alta sinjorino iris trans la placon, sed de la kontraŭa flanko, kaj jen ŝi renkontiĝis kun Kevenhüller.
 
 Tio estis renkonto por horloĝisto. ŝi havis lumajn, verdajn okulojn, kaj densan, helan hararon, kiu preskaŭ atingis la teron; kaj ŝi estis vestita per verda, nuanciĝanta silko. Monstro kaj paganino ŝi estis kaj pli bela ol ĉiuj kristanaj virinoj, kiujn Kevenhüller iam vidis. Li staris kiel frenezulo kaj rigardis ŝin, kiam ŝi venis kontraŭ lin.
@@ -9578,9 +8070,6 @@ Vere mi volus esti sur la loko de Kevenhüller por povi rigardi ŝin, kiam ŝi v
 Kiel la homoj certe gapis al ŝi, kiam ŝi ekhavis la ideon transiri la placon de Karlstad! ĉevaloj certe timkuris pro ŝia longa hararo, kiu flirtis en la somera vento. La stratbuboj postkuris ŝin. La viroj faligis pesilon kaj viandhakilon por pri-gapi ŝin. La virinoj kriante kuris al la episkopo kaj la konsistorio, por ke ili forpelu la satanaĵojn el la urbo.
 
 Sed ŝi iris trankvila kaj majesta kaj nur ridetis al la tumulto, je kio Kevenhüller vidis ŝiajn pintajn rabobestajn dentetojn brili malantaŭ la ruĝaj lipoj.
-
-
-GÖSTA BERLING
 
 
 ŝi metis mantelon sur la dorson, por ke neniu rimarku, kiu ŝi estas, sed malfeliĉe ŝi forgesis kaŝi la voston. Jen ĝi treniĝis sur la stratŝtonoj.
@@ -9600,9 +8089,6 @@ Kevenhüller restis en Karlstad kaj luis metiejon tie. Li martelis kaj laboris t
 Kevenhüller nun fariĝis fama homo kaj ricevis amikojn en la tuta urbo. Li estis tiel fiera pro sia veturilo, ke li veturis al Stokholmo por montri ĝin al la reĝo. Li ne bezonis atendi veturĉevalojn aŭ kvereli kun veturigistoj. Li ne bezonis sikuiĝi en ”perdriko” aŭ dormi sur lignaj benkoj en la haltejoj. Li veturis fiere en sia propra veturilo kaj atingis la celon post kelkaj horoj.
 
 
-GÖSTA BERLING
-
-
 Li veturis rekte al la kastelo, kaj la reĝo elvenis kun korteganinoj kaj korteganoj kaj rigardis, kiam li veturis. Ili ne povis sufiĉe laŭdi lin.
 
 Tiam la reĝo diris: ”Tiun veturilon vi tamen povas doni al mi, Kevenhüller.” Kaj kvankam li rifuzis, la reĝo estis persis-ta kaj volis havi la veturilon.
@@ -9613,9 +8099,7 @@ Reveninte al Karlstad li provis fari novan veturilon. Sed li ne povis. Tiam li t
 
 Kaj la klera, multlerta viro tiel sopiris al trankvila, prudenta laboro, ke li fariĝis ŝtonhakisto kaj masonisto. Dum tiu tempo li konstruis la grandan ŝtonturon ĉe Okcidenta ponto laŭ la modelo de la ĉefturo en la kavalirkastelo de sia patro, kaj certe lia intenco estis konstrui ankaŭ domojn, portalojn, kas-telkortojn, remparojn kaj pendturojn, tiel ke tuta kavalirkastelo estiĝos sur la bordo de Klarälven.
 
-Kaj en ĝi li efektivigos la revon de sia infanaĝo. ĉio, kio nomiĝas industrio kaj metio, havos sian hejmon en la salone-goj de la kastelo. Blankaj muelisthelpantoj kaj nigraj forĝistoj, 437
-
-GÖSTA BERLING
+Kaj en ĝi li efektivigos la revon de sia infanaĝo. ĉio, kio nomiĝas industrio kaj metio, havos sian hejmon en la salone-goj de la kastelo. Blankaj muelisthelpantoj kaj nigraj forĝistoj,
 
 
 horloĝistoj kun verdaj ŝirmiloj antaŭ la lacigitaj okuloj, far-bistoj kun malhelaj manoj, teksistoj, tornistoj, fajlistoj, ĉiuj havos siajn metiejojn en lia kastelo.
@@ -9634,12 +8118,7 @@ Du stratbuboj kaj unu gimnaziano, kiuj sidis sur la ponto-kestoj kaj fisis album
 
 Tiu staris tute trankvile sur la turtegmento kaj fiksis al si la flugilojn, kaj dume la homamasoj elsvarmis el la mallarĝaj stratoj de la malnova Karlstad.
 
-La servistinoj forlasis la bolantan poton kaj la fermentan-tan farunpaston. La maljunulinoj faligis la ŝtrumptrikaĵon, surmetis la okulvitrojn kaj alkuris laŭ la strato. La konsilantoj kaj la urbestro leviĝis de la juĝista tablo. La rektoro ĵetis la gramatikon en la angulon, la lernantoj elkuris el la klas-
-
-ĉambroj sen peti permeson. La tuta urbo kuris al Okcidenta ponto.
-
-
-GÖSTA BERLING
+La servistinoj forlasis la bolantan poton kaj la fermentan-tan farunpaston. La maljunulinoj faligis la ŝtrumptrikaĵon, surmetis la okulvitrojn kaj alkuris laŭ la strato. La konsilantoj kaj la urbestro leviĝis de la juĝista tablo. La rektoro ĵetis la gramatikon en la angulon, la lernantoj elkuris el la klasĉambroj sen peti permeson. La tuta urbo kuris al Okcidenta ponto.
 
 
 Baldaŭ la ponto estis nigra de homoj. La Salplaco estis plenplena, kaj homoj svarmis sur la tuta riverbordo ĝis la episkopa domo. Estis pli granda interpremiĝo ol en la foiro de la Petrotago, oni vidis tie pli multe da rigardemuloj, ol kiam la reĝo Gustav III veturis tra la urbo, tirata de ok ĉevaloj kaj kun tiel terura rapido, ke la veturilo staris sur du radoj en la kur-boj.
@@ -9648,20 +8127,13 @@ Kevenhüller fine surhavis la flugilojn kaj ekmovis sin. Li faris kelkajn movojn
 
 Li enspiris la aeron plenpulme, ĝi estis fortiga kaj pura. Lia brusto plivastiĝis, kaj la malnova kavalira sango komencis boli en li. Li kapriolis kiel kolombo, ŝvebis kiel akcipitro, liaj flugiloj estis rapidaj kiel tiuj de la hirundo, li direktis sin firme kiel la falko. Kaj li rigardis malsupren sur la tutan terligi-tan amason, kiu rigardis supren al li, kiu kuŝis naĝante en la aero. Se li nur povus fari paron da similaj flugiloj al ĉiu el ili!
 
-Se li nur povus doni potencon al ĉiu el ili levi sin en tiun fre-
-
-ŝan aeron! Kiaj homoj ili tiam fariĝus! La memoro pri la mizero de lia vivo ne forlasis lin eĉ en tiu momento de venko. Li ne povis ĝui nur por sia propra parto. Tiu arbarnimfo, se li nur povus trafi ŝin!
+Se li nur povus doni potencon al ĉiu el ili levi sin en tiun freŝan aeron! Kiaj homoj ili tiam fariĝus! La memoro pri la mizero de lia vivo ne forlasis lin eĉ en tiu momento de venko. Li ne povis ĝui nur por sia propra parto. Tiu arbarnimfo, se li nur povus trafi ŝin!
 
 Tiam ekvidis liaj okuloj, kiuj estis preskaŭ blindigitaj de la akra sunlumo kaj la brilvibra aero, kiel io alflugas rekte al li.
 
 Li vidis grandajn flugilojn, kiuj tute similis liajn proprajn, movi sin, kaj inter la flugiloj naĝis homa korpo. Flavaj haroj flirtis, verda silko ondis, sovaĝaj okuloj lumis. Jen ŝi estas, jen ŝi estas!
 
-Kevenhüller ne pripensis. En furioza rapido li saltis sur la monstron por kisi ŝin aŭ bati ŝin — li ne sciis kion — sed ĉiu-439
-
-GÖSTA BERLING
-
-
-okaze por devigi ŝin forpreni la malbenon de lia ekzisto. En tiu sovaĝa rapido perfidis lin trankvilo kaj racio. Li ne vidis, kien li direktas sin, li rimarkis nur la flirtantan hararon kaj la sovaĝajn okulojn. Li venis tute proksime al ŝi kaj etendis la brakojn por kapti sin. Tiam liaj flugiloj implikiĝis en ŝiajn, kaj tiuj estis pli fortaj. Liaj flugiloj fendiĝis kaj detruiĝis, li svinge turniĝis kaj ekfalis, li ne sciis kien.
+Kevenhüller ne pripensis. En furioza rapido li saltis sur la monstron por kisi ŝin aŭ bati ŝin — li ne sciis kion — sed ĉiuokaze por devigi ŝin forpreni la malbenon de lia ekzisto. En tiu sovaĝa rapido perfidis lin trankvilo kaj racio. Li ne vidis, kien li direktas sin, li rimarkis nur la flirtantan hararon kaj la sovaĝajn okulojn. Li venis tute proksime al ŝi kaj etendis la brakojn por kapti sin. Tiam liaj flugiloj implikiĝis en ŝiajn, kaj tiuj estis pli fortaj. Liaj flugiloj fendiĝis kaj detruiĝis, li svinge turniĝis kaj ekfalis, li ne sciis kien.
 
 Kiam li rekonsciiĝis, li kuŝis sur la tegmento de sia propra turo kun la frakasita flugmaŝino apud si. Li flugis rekte sur sian propran muelejon: la flugiloj kaptis lin, rondiris kun li dufoje kaj poste ĵetis lin sur la turtegmenton.
 
@@ -9675,18 +8147,14 @@ Li havigis al si ĉevalon kaj veturilon, ĉar li ne estis plu tiel juna kaj faci
 
 ”Arbarnimfo, arbarnimfo, estas mi, Kevenhüller, Kevenhüller! Venu, venu!” Sed ŝi ne venis.
 
-Dum tiuj vojaĝoj li venis al Ekeby, kelkajn jarojn antaŭ la forpelo de la majorino. Tie oni bone akceptis lin, kaj tie li restis. Kaj la aro en la kavalirdomo plinombriĝis per alta, forta kavalirfiguro, vigla sinjoro, kiu povis fari sian devon ĉe la 440
-
-GÖSTA BERLING
+Dum tiuj vojaĝoj li venis al Ekeby, kelkajn jarojn antaŭ la forpelo de la majorino. Tie oni bone akceptis lin, kaj tie li restis. Kaj la aro en la kavalirdomo plinombriĝis per alta, forta kavalirfiguro, vigla sinjoro, kiu povis fari sian devon ĉe la
 
 
 bierkruĉo kaj dum la ĉasiro. La memoroj el lia infanaĝo revenis: li permesis, ke oni nomas lin grafo, kaj li pli kaj pli ricevis la aspekton de maljuna germana rabobarono, kun sia granda aglonazo, siaj severaj brovoj, sia plenbarbo, kiu estis pinta sub la mentono kaj kuraĝe suprentordita super la lipoj.
 
 Li tiam fariĝis kavaliro inter la kavaliroj kaj ne estis pli bo-na ol iu alia en tiu aro, kiun, laŭ la kredo de la homoj, la majorino preparis por la malica malamiko. Liaj haroj griziĝis, kaj lia cerbo dormis. Tiel maljuna li estis, ke li eĉ ne povis kredi pri la grandfaroj de sia junaĝo. Li ne estis la viro kun la mi-raklofortoj. Ne estis li, kiu faris la memirantan veturilon kaj la flugmaŝinon. Ho, ne, fabeloj, fabeloj!
 
-Sed jen okazis, ke la majorino estis forpelita de Ekeby, kaj la kavaliroj fariĝis estroj de la granda bieno. Tiam komenciĝis tie vivo, kiu neniam estis pli terura. ŝtormo flugis tra la lando: ĉiu malnova malsaĝaĵo ekflamis en juneca viglo, ĉio malbona ekmoviĝis, ĉio bona timtremis, la homoj batalis sur la tero kaj la spiritoj en la ĉielo. Lupoj venis de Dovre kun sor-
-
-ĉistinoj sur la dorso, la naturfortoj liberiĝis, kaj la arbarnimfo venis al Ekeby.
+Sed jen okazis, ke la majorino estis forpelita de Ekeby, kaj la kavaliroj fariĝis estroj de la granda bieno. Tiam komenciĝis tie vivo, kiu neniam estis pli terura. ŝtormo flugis tra la lando: ĉiu malnova malsaĝaĵo ekflamis en juneca viglo, ĉio malbona ekmoviĝis, ĉio bona timtremis, la homoj batalis sur la tero kaj la spiritoj en la ĉielo. Lupoj venis de Dovre kun sorĉistinoj sur la dorso, la naturfortoj liberiĝis, kaj la arbarnimfo venis al Ekeby.
 
 La kavaliroj ne konis ŝin. Ili kredis, ke ŝi estas malriĉa kaj enmizera virino, kiun kruela bopatrino pelis en malesperon.
 
@@ -9694,9 +8162,7 @@ Tial ili donis al ŝi protekton, respektis ŝin kiel reĝinon kaj amis ŝin kiel
 
 Nur Kevenhüller vidis, kiu ŝi estas. Unue li ja estis trompita kiel ĉiuj aliaj. Sed iun tagon ŝi portis robon el verda, nuanciĝanta silko, kaj kiam ŝi surmetis ĝin, Kevenhüller rekonis ŝin.
 
-Tie ŝi sidis, duonkuŝante sur silko, sur la plej bona sofo en Ekeby, kaj ĉiuj maljunaj viroj ridindigis sin por servi al ŝi. Unu 441
-
-GÖSTA BERLING
+Tie ŝi sidis, duonkuŝante sur silko, sur la plej bona sofo en Ekeby, kaj ĉiuj maljunaj viroj ridindigis sin por servi al ŝi. Unu
 
 
 estis kuiristo, alia ĉambristo, unu estis laŭtleganto, unu kortega muzikisto, unu ŝuisto: ĉiu prenis sian okupon.
@@ -9715,9 +8181,7 @@ La mondo vidos novan miraklon. Kio ĝi estos? ĉu li nun instruos al ni iri sur 
 
 Nenio estas neebla por tia viro. Niaj propraj okuloj vidis, kiel flugiloj portis lin tra la aero. Ni vidis lian veturilon muĝi tra la stratoj. Li havas la doton de la arbarnimfo: nenio estas neebla por li.
 
-Iun nokton, la unuan aŭ duan en oktobro, la miraklo estis preta. Li venis el la laborejo kaj portis ĝin en la mano. Estis rado, kiu senĉese turniĝis. Kiam ĝi turniĝis, ĝiaj radioj lumis 442
-
-GÖSTA BERLING
+Iun nokton, la unuan aŭ duan en oktobro, la miraklo estis preta. Li venis el la laborejo kaj portis ĝin en la mano. Estis rado, kiu senĉese turniĝis. Kiam ĝi turniĝis, ĝiaj radioj lumis
 
 
 kiel fajro, kaj varmo kaj lumo eliris de ĝi. Kevenhüller faris sunon. Kiam li venis el la laborejo kun ĝi, la nokto fariĝis tiel hela, ke la paseroj komencis pepi kaj la nuboj matenruĝe ekardis.
@@ -9734,16 +8198,9 @@ Eksonis vokoj kaj krioj sur la korto. Jen oni komencis rimarki, ke grandfaraĵo 
 
 Jes, kuru, kriu, sonorigu! Jen ŝi tamen mortbrulas, la arbarnimfo, kiun vi kuŝigis sur silkon!
 
-ĉu ŝi tordiĝas en doloroj, ĉu ŝi forkuras de la flamoj el ĉam-443
+ĉu ŝi tordiĝas en doloroj, ĉu ŝi forkuras de la flamoj el ĉambro en ĉambron? Ho, kiel flamos la verda silko, kiel ludos la flamoj en la densa hararo! Freŝan kuraĝon, flamoj, freŝan ku-raĝon, kaptu ŝin, bruligu ŝin! Sorĉistinoj brulas! Ne timu ŝiajn sorĉvortojn, flamoj! Lasu ŝin bruli! Ekzistas iu, kiu pro ŝi devis bruli dum sia tuta vivo.
 
-GÖSTA BERLING
-
-
-bro en ĉambron? Ho, kiel flamos la verda silko, kiel ludos la flamoj en la densa hararo! Freŝan kuraĝon, flamoj, freŝan ku-raĝon, kaptu ŝin, bruligu ŝin! Sorĉistinoj brulas! Ne timu ŝiajn sorĉvortojn, flamoj! Lasu ŝin bruli! Ekzistas iu, kiu pro ŝi devis bruli dum sia tuta vivo.
-
-Sonoriloj sonis, veturiloj grincis, oni eltiris ŝprucigilojn, oni elmane-almane transportis akvon de la lago, homoj alkuris el ĉiuj vilaĝoj. Estis kriado kaj ĝemoj kaj ordonoj, estis tegmentoj, kiuj falis, estis la terura kraketado kaj muĝo de la brulego. Sed Kevenhüller estis ĝenata de nenio. Li sidis sur la hak-
-
-ŝtipo kaj frotis la manojn.
+Sonoriloj sonis, veturiloj grincis, oni eltiris ŝprucigilojn, oni elmane-almane transportis akvon de la lago, homoj alkuris el ĉiuj vilaĝoj. Estis kriado kaj ĝemoj kaj ordonoj, estis tegmentoj, kiuj falis, estis la terura kraketado kaj muĝo de la brulego. Sed Kevenhüller estis ĝenata de nenio. Li sidis sur la hakŝtipo kaj frotis la manojn.
 
 Jen li aŭdis krakegon, kvazaŭ falus la ĉielo, kaj li jubilante eksaltis. ”Jen estas farite!” li diris. ”Nun ŝi ne povos saviĝi, nun ŝi estas frakasita sub la traboj aŭ bruligita de la flamoj.
 
@@ -9759,12 +8216,7 @@ Kevenhüller rigardis sin mem, ŝtonigita pro teruro.
 
 En la sama momento malfermiĝis la bone fermita pordo de la laborejo, kaj la verdvestita enpaŝis.
 
-La arbarnimfo staris tie sur la sojlo, ridetanta kaj bela. ŝia verda robo ne havis difekton aŭ makulon, brulfumo ne fik-444
-
-GÖSTA BERLING
-
-
-siĝis al ŝia densa hararo. ŝi estis tia, kia li en siaj junaj tagoj vidis ŝin sur la placo en Karlstad, la sovaĝbesta vosto treniĝis inter ŝiaj piedoj, kaj ŝi kunportis la sovaĝon kaj odoron de la tuta arbaro.
+La arbarnimfo staris tie sur la sojlo, ridetanta kaj bela. ŝia verda robo ne havis difekton aŭ makulon, brulfumo ne fiksiĝis al ŝia densa hararo. ŝi estis tia, kia li en siaj junaj tagoj vidis ŝin sur la placo en Karlstad, la sovaĝbesta vosto treniĝis inter ŝiaj piedoj, kaj ŝi kunportis la sovaĝon kaj odoron de la tuta arbaro.
 
 ”Nun brulas Ekeby,” ŝi diris kaj ridis.
 
@@ -9784,9 +8236,7 @@ Kevenhüller ekgenuis antaŭ ŝi. ”Vi rompis mian veturilon, vi frakasis miajn
 
 ”Unue vi devas detrui tiun ĉi,” ŝi diris kaj ĵetis la fajroradon sur la teron antaŭ li.
 
-Li ne hezitis. Li svingis la martelegon super la glimanta fajrorado, kiu estis nur abomena sorĉo, ĉar li ne rajtis uzi ĝin por la utilo de miloj. Fajreroj traflugis la ĉambron, splitoj kaj 445
-
-GÖSTA BERLING
+Li ne hezitis. Li svingis la martelegon super la glimanta fajrorado, kiu estis nur abomena sorĉo, ĉar li ne rajtis uzi ĝin por la utilo de miloj. Fajreroj traflugis la ĉambron, splitoj kaj
 
 
 flamoj dancis ĉirkaŭ li, kaj jen ankaŭ lia lasta miraklo kuŝis frakasita.
@@ -9808,10 +8258,7 @@ Ho, infanoj de tempo estanta, se vi aŭ mi estus renkontinta la arbarnimfon sur 
 Kiu en niaj tagoj plendas pro tio, ke li ricevis tro multe de ŝiaj donacoj?
 
 
-GÖSTA BERLING
-
-
-TRIDEKKVARA ĉAPITRO
+TRIDEKKVARA ĈAPITRO
 
 La foiro de Broby
 
@@ -9824,26 +8271,17 @@ Kaj en la unua foirtago — kia svarmanta aro tiam moviĝas supren sur la dekliv
 Budoj estas starigitaj, kie la komercistoj de la urboj elmetis siajn varojn, dum dalekarlianoj kaj vestrogotianoj61 amasigis siajn komercaĵojn sur senfinaj vicoj da tabuloj, super kiuj flir-61 Dalekarlianoj kaj vestrogotianoj — provincanoj el Dalekarlio kaj Vestrogotio, ambaŭ provincoj konataj pro multe da hejmindustrio.
 
 
-GÖSTA BERLING
-
-
 tas blankaj ŝtoftegmentoj. Da ŝnurdancistoj, gurdoj kaj blin-daj violonistoj ekzistas tie sufiĉe, same da antaŭdiristoj, bom-bonvendantoj kaj brandodrinkejoj. Post la budoj staras vice lignaj kaj argilaj vazoj. Cepo kaj kreno, pomoj kaj piroj estas vendataj de la ĝardenistoj de la grandaj bienoj. Vastaj kvadratoj de la tero estas okupitaj de ruĝbrunaj kupraj ujoj kun brila stano.
 
 Tamen oni bone rimarkas en la foira vivo, ke mizero regas en Svartsjö, Bro, Lövvik kaj la aliaj paro˛oj de la distrikto Löv-sjö: la komerco iras malbone ĉe budoj kaj tabuloj. Plej granda viglo regas sur la brutloko, ĉar multaj devas vendi kaj ĉevalon kaj bovinon por povi travivi la vintron. Tie okazas an-kaŭ la sovaĝa, interesostreĉa ĉevalinterŝanĝo.
 
-Estas gaje en la foiro de Broby. Se oni havas monon almenaŭ por kelkaj glutoj da brando, oni povas konservi la kura-
+Estas gaje en la foiro de Broby. Se oni havas monon almenaŭ por kelkaj glutoj da brando, oni povas konservi la kuraĝon. Kaj ne estas nur la brando, kiu kaŭzas la ĝojon: kiam la homoj el la solecaj arbaraj hejmoj venas al la foirkampo kun
 
-ĝon. Kaj ne estas nur la brando, kiu kaŭzas la ĝojon: kiam la homoj el la solecaj arbaraj hejmoj venas al la foirkampo kun
-
-ĝiaj moviĝantaj amasoj kaj aŭdas la muĝon de la tuta krianta, ridanta aro, iliaj kapoj kvazaŭ turniĝas pro ĝojo, la mu-
-
-ĝanta foira vivo kvazaŭ sovaĝigas ilin.
+ĝiaj moviĝantaj amasoj kaj aŭdas la muĝon de la tuta krianta, ridanta aro, iliaj kapoj kvazaŭ turniĝas pro ĝojo, la muĝanta foira vivo kvazaŭ sovaĝigas ilin.
 
 Kompreneble okazas multe da komerco inter tiom da homoj, sed tio tamen apenaŭ estas la ĉefafero. La plej grava afero estas kuntiri aron da parencoj kaj amikoj al la ĉaroj por regali per ŝafvianda hakaĵo, buterpano kaj brando aŭ persvadi la knabinon akcepti psalmlibron kaj silkan kaptukon aŭ elserĉi foirdonacojn al la etuloj en la hejmo.
 
-ĉiuj homoj, kiuj ne devis resti hejme por prizorgi domon kaj brutojn, venis al tiu ĉi foiro de Broby. Tie estas kavaliroj 448
-
-GÖSTA BERLING
+ĉiuj homoj, kiuj ne devis resti hejme por prizorgi domon kaj brutojn, venis al tiu ĉi foiro de Broby. Tie estas kavaliroj
 
 
 de Ekeby kaj arbarbienuloj el Nygård, ĉevalkomercistoj el Norvegujo, finnoj el la nordaj arbaroj, friponoj62 de la ŝoseo.
@@ -9857,9 +8295,6 @@ La forta Måns el Fors fervore partoprenas la ludon. Ebria li estas, kaj kolera 
 Li estas terura viro, la forta Måns. Estis li, kiu piedbate rompis muron en la arestejo en Filipstad, li, kiu povis levi 62 Friponoj — laŭvorta traduko. Signifas tie ĉi kaj en la sekvonta ĉapitro rasmikso de ciganoj kaj svedoj.
 
 
-GÖSTA BERLING
-
-
 boaton el la lago kaj porti ĝin sur siaj ŝultroj. Estas klare, ke la tuta homamaso kaj ankaŭ la vestrogotianoj forkuras, kiam li komencas bati ĉirkaŭ si per la peza tabulo. Sed Måns persekutas ilin, batante ĉirkaŭ si per la peza tabulo. Por li ne temas plu pri amikoj aŭ malamikoj, li nur serĉas iun por bati, kiam li nun ricevis armilon.
 
 La homoj en teruro fuĝas de li. Viroj kaj virinoj krias kaj kuras. Sed kiel forkuro estus ebla por la virinoj, el kiuj multaj tenas siajn infanojn ĉe la mano? Budoj kaj ĉaroj baras ilian vojon, bovoj kaj bovinoj, kiuj sovaĝiĝas pro la tumulto, malhelpas ilian forkuron.
@@ -9871,9 +8306,6 @@ Sed kiam la tabulo fulme falas sur ilin, ĝia forto estas rompata de la etendita
 La forta Måns ne levas sian tabulon por kuri pluen. Li renkontis la rigardon de la viro, ĝuste kiam la tabulo falis sur lian verton, kaj ĝi paralizis lin. Sen kontraŭstaro li lasis ilin ligi kaj forkonduki lin.
 
 Sed flugrapide kuras tra la foiro la diro, ke forta Måns mortbatis kapitanon Lennart. Oni diras, ke li, kiu estis amiko de la popolo, mortis por savi virinojn kaj senŝirmajn infanojn.
-
-
-GÖSTA BERLING
 
 
 Kaj silentiĝas sur la vastaj kampoj, kie la vivo ĵus muĝis en sia plej sovaĝa rapido: la komerco haltas, la batalo ĉesas, la regaloj ĉe la manĝaĵkestoj finiĝas, la ŝnurdancistoj vane vokas rigardantojn.
@@ -9892,9 +8324,7 @@ La vundita kapo ripozis sur la malmola benko de la malliberejo, sur la garbo en 
 
 Nun li ne venas kiel krimulo, kondukata de ŝanceliĝantaj drinkfratoj: lin akompanas funebranta popolo, en kies kabanoj li loĝis, dum li mildigis ĝiajn suferojn. Nun portu lin hejmen!
 
-Kaj ili faras tiel. Ses viroj levas sur siajn ŝultrojn la tabulon, sur kiu li kuŝas, kaj forportas lin de la foirkampo. Kie ili preteriras, la homoj paŝas flanken kaj staras senmovaj: la viroj 451
-
-GÖSTA BERLING
+Kaj ili faras tiel. Ses viroj levas sur siajn ŝultrojn la tabulon, sur kiu li kuŝas, kaj forportas lin de la foirkampo. Kie ili preteriras, la homoj paŝas flanken kaj staras senmovaj: la viroj
 
 
 nudigas siajn kapojn, la virinoj genufleksas, kiel ili faras en la preĝejo, kiam la nomo de Dio estas dirata. Multaj ploras kaj viŝas siajn okulojn, aliaj komencas paroli pri tio, kia viro li estis, tiel bona, tiel gaja, tiel facile solvanta malfacilaĵojn kaj tiel pia. Mirinde estas vidi, kiel iu alia tre kviete aliras kaj metas sian ŝultron sub la tabulon, kiam iu el la portantoj lacigis.
@@ -9917,9 +8347,7 @@ Post kio la kolonelo respondas, kiel li respondis iam an-taŭe:
 
 ”Ni venas kun via edzo.”
 
-ŝi rigardas lin, kie li staras rektdorsa kaj sekurmiena kiel 452
-
-GÖSTA BERLING
+ŝi rigardas lin, kie li staras rektdorsa kaj sekurmiena kiel
 
 
 ĉiam. ŝi rigardas la portantojn malantaŭ li, kiuj ploras, kaj la tutan homamason malantaŭ ili. ŝi staras tie sur la perono kaj rigardas centojn da plorantaj okuloj, kiuj timete fiksigas al ŝi.
@@ -9959,9 +8387,6 @@ La kolonelo ekmoviĝas. Nun li komprenas, nur nun li komprenas.
 ”Gösta ja pentris lin!”
 
 
-GÖSTA BERLING
-
-
 ”Do pro kavalira petolaĵo mi elfermis lin de lia hejmo. Kiel vi volas respondi pri tio, kolonelo?”
 
 Beerencreutz levis la larĝajn ŝultrojn.
@@ -9994,9 +8419,7 @@ Estas malfacile por mi vidi ilin, kiam mi sidas ĉe la mortlito de mia edzo.”
 
 Sen plua vorto la kolonelo tiam leviĝas kaj foriras. Tiel faras ankaŭ Gösta Berling kaj kelkaj aliaj kavaliroj, kiuj akompanis kapitanon Lennart. La homoj timetante paŝas flanken antaŭ la grupeto de humiligitaj viroj.
 
-Kiam ili estas for, la kapitanedzino diras: ”ĉu iu el tiuj, kiuj 454
-
-GÖSTA BERLING
+Kiam ili estas for, la kapitanedzino diras: ”ĉu iu el tiuj, kiuj
 
 
 vidis mian edzon dum tiu ĉi tempo, volas diri al mi, kie li estis, kaj kion li faris?”
@@ -10015,9 +8438,7 @@ oni diras kaj donas lokon al li. Kaj ili elpaŝas el la mallumo, faras sian ates
 
 ”Kion ŝi nun diras?” la ekstere starantaj demandas, kiam iu elvenas. ”Kion ŝi diras, la severa sinjorino en Helgesater?”
 
-”ŝi radias kiel reĝino. ŝi ridetas kiel fianĉino. ŝi metis lian 455
-
-GÖSTA BERLING
+”ŝi radias kiel reĝino. ŝi ridetas kiel fianĉino. ŝi metis lian
 
 
 apogseĝon al la lito kaj metis sur ĝin tiujn vestojn, kiujn ŝi mem teksis por li.”
@@ -10033,10 +8454,7 @@ Tiam silentiĝas la rakontoj, sed iu voĉo ekkantas morto-psalmon. ĉiuj kunkant
 Estas la adiaŭsaluto de la tero al la foriranta animo.
 
 
-GÖSTA BERLING
-
-
-TRIDEKKVINA ĉAPITRO
+TRIDEKKVINA ĈAPITRO
 
 La arbara bieneto
 
@@ -10059,9 +8477,6 @@ Tien kondukis dekliva arbara vojo, ĉirkaŭe staris montoj kaj kaŝis la sunon, 
 Restaĵo de jama serpentkulto.
 
 
-GÖSTA BERLING
-
-
 La paŝtknabo kaj la paŝtknabino iam geedziĝos, loĝos en tiu arbara bieneto kaj vivos per la laboro de siaj manoj. Sed antaŭ la geedziĝo la malfeliĉo de milito venis al la lando, kaj la knabo soldatiĝis. Li revenis hejmen sen vundo aŭ difektita membro, sed tiu vojaĝo donis al li postesignojn por la tuta vivo. Tro multe li vidis de la malbono en la mondo kaj de la kruelaj agoj de homoj al homoj. Li ne povis vidi plu la bonon.
 
 Unue neniu vidis ian ŝanĝigon ĉe li. Kune kun la amatino de sia infanaĝo li iris al la pastro por anoncigi la geedziĝon.
@@ -10076,12 +8491,7 @@ La arbaro fariĝas terura loĝejo por tiu, kiu portas en si malbonajn pensojn.
 
 Helajn memorojn akiru tiu, kiu volas vivi en solecejoj! Alie li vidos nur murdon kaj subpremon inter kreskaĵoj kaj bestoj, kiel li antaŭ e vidis tion inter homoj. Li atendos malbonon de ĉio, kion li renkontos.
 
-Jan Hök, la soldato, ne povis mem klarigi, kio mankas al li, sed li rimarkis, ke nenio iras bone por li. Malmulte da paco donis la hejmo. La filoj, kiuj kreskis tie, fariĝis fortaj sed sova-
-
-ĝaj. Harditaj kaj kuraĝaj viroj ili estis, sed ankaŭ ili vivis en malpaco kun ĉiu homo.
-
-
-GÖSTA BERLING
+Jan Hök, la soldato, ne povis mem klarigi, kio mankas al li, sed li rimarkis, ke nenio iras bone por li. Malmulte da paco donis la hejmo. La filoj, kiuj kreskis tie, fariĝis fortaj sed sovaĝaj. Harditaj kaj kuraĝaj viroj ili estis, sed ankaŭ ili vivis en malpaco kun ĉiu homo.
 
 
 En sia malĝojo la edzino ekhavis emon esplori la sekretojn de la solecejo. En marĉoj kaj densejoj ŝi kolektis sanigajn plantojn. La ecojn de la subteruloj ŝi primeditis, kaj ŝi sciis, kiaj oferoj plaĉas al ili. ŝi povis kuraci malsanon kaj doni bonajn konsilojn al tiuj, kiuj havis amĉagrenon. ŝi famiĝis pro sorĉoscio kaj oni evitis ŝin, kvankam ŝi faris grandan utilon al la homoj.
@@ -10090,9 +8500,7 @@ Iam la edzino komencis paroli kun la viro pri liaj ĉagrenoj.
 
 ”De kiam vi estis en la milito,” ŝi diris, ”vi estas kvazaŭ alia homo. Kion oni faris al vi tie?”
 
-Tiam li eksaltis kaj preskaŭ batis ŝin, kaj same okazis ĉiufoje, kiam ŝi parolis pri la milito. Tiam kaptis lin freneza kolero. De neniu li toleris aŭdi la vorton milito, kaj baldaŭ koni-
-
-ĝis, ke li ne povas elteni parolon pri ĝi. Do la homoj evitis tiun paroltemon.
+Tiam li eksaltis kaj preskaŭ batis ŝin, kaj same okazis ĉiufoje, kiam ŝi parolis pri la milito. Tiam kaptis lin freneza kolero. De neniu li toleris aŭdi la vorton milito, kaj baldaŭ koniĝis, ke li ne povas elteni parolon pri ĝi. Do la homoj evitis tiun paroltemon.
 
 Sed neniu el liaj militkamaradoj povis rakonti, ke li faris pli da malbono ol iu alia. Li batalis kiel bona soldato. Estis nur tio, ke ĉio terura, kion li vidis, tiel timigis lin, ke li poste povis vidi nenion krom malbono. De la milito li devenigis sian tutan ĉagrenon. Li pensis, ke la tuta naturo malamas lin, ĉar li partoprenis en tiaj aferoj. Tiuj, kiuj pli multe scias, povas konsoli sin per tio, ke ili batalis por patrujo kaj gloro. Kiom li sciis pri tiaj aferoj? Li sentis nur ke ĉio malamas lin, ĉar li elverŝis sangon kaj difektis.
 
@@ -10100,12 +8508,7 @@ En la tempo, kiam la majorino estis forpelata de Ekeby, li loĝis sola en sia do
 
 Dum la foirtempoj la arbara bieneto tamen pleniĝis de gastoj. La nigreharaj, malhelvizaĝaj friponoj gastiĝis tie. Ili sentas plej bonan hejmecon ĉe tiu, kiun la plej multaj malŝatas.
 
-Malgrandaj, longharaj ĉevaloj tiam grimpis supren sur la ar-459
-
-GÖSTA BERLING
-
-
-bara vojo, tirante ĉarojn ŝarĝitajn per stanistaj iloj, per infanoj kaj ĉifonbulaĵoj. La ĉarojn sekvis frue maljuniĝintaj virinoj, kun la vizaĝoj ŝvelintaj pro fumado kaj drinkado, kaj viroj kun palaj akraj vizaĝoj kaj tendenecaj korpoj. Kiam la friponoj venis al la arbara bieneto, fariĝis tie gaja vivo. Brandon kaj kartludon kaj laŭtan ŝercadon ili kunportis. Pri ŝteloj kaj ĉevalinterŝanĝoj kaj sangaj bataloj ili povis rakonti.
+Malgrandaj, longharaj ĉevaloj tiam grimpis supren sur la arbara vojo, tirante ĉarojn ŝarĝitajn per stanistaj iloj, per infanoj kaj ĉifonbulaĵoj. La ĉarojn sekvis frue maljuniĝintaj virinoj, kun la vizaĝoj ŝvelintaj pro fumado kaj drinkado, kaj viroj kun palaj akraj vizaĝoj kaj tendenecaj korpoj. Kiam la friponoj venis al la arbara bieneto, fariĝis tie gaja vivo. Brandon kaj kartludon kaj laŭtan ŝercadon ili kunportis. Pri ŝteloj kaj ĉevalinterŝanĝoj kaj sangaj bataloj ili povis rakonti.
 
 Vendrede komenciĝis la foiro de Broby, kaj tiam kapitano Lennart estis mortigita. La forta Måns, kiu faris la mortigan baton, estis filo de la maljunulo en la arbara bieneto. Kiam la friponoj en la dimanĉa posttagmezo sidis kune tie, ili pli ofte ol ordinare donis la brandobotelon al la maljuna Jan Hök kaj parolis kun li pri mallibereja vivo kaj malliberulmanĝaĵo kaj juĝekzamenoj, ĉar tiajn aferojn ili ofte spertis.
 
@@ -10116,9 +8519,6 @@ Jen la pordo malfermiĝis tre kviete, kaj du virinoj enpaŝis.
 Estis la juna grafino Elisabet, kaj ŝin akompanis la filino de la pastro en Broby. Miriga ŝi aspektis al la maljunulo, kiam ŝi, aminda kaj radia de milda beleco, paŝis en la lumrondon de la fajro. ŝi rakontis al ili, ke oni ne vidis Göstan Berling en Ekeby post la morto de kapitano Lennart. ŝi kaj ŝia servistino iris en la arbaron kaj serĉis lin la tutan posttagmezon. Nun ŝi vidas, ke tie ĉi troviĝas viroj, kiuj multe migras kaj konas ĉiujn vojetojn. ĉu ili vidis lin? ŝi eniris por ripozi kaj demandi, ĉu ili vidis lin.
 
 Estis vana demando. Neniu el ili vidis lin.
-
-
-GÖSTA BERLING
 
 
 Ili proponis seĝon al ŝi. ŝi eksidis sur ĝi kaj restis silenta dum tempeto. La tumulto en la ĉambro jam silentiĝis. ĉiuj rigardis ŝin kaj miris pri ŝi. Jen ŝi ektimis pro la silento, ekmoviĝis kaj serĉis indiferentan paroltemon.
@@ -10137,13 +8537,9 @@ La grafino levis sin kaj diris adiaŭ. ŝi ripozis sufiĉe. La virino, kiu parol
 
 ”Vi komprenas, grafino,” ŝi diris, ”mi devis ion diri, ĉar oni ne povas paroli kun la maljunulo pri milito. Li ne toleras aŭdi tiun vorton. Mi havis nur bonan intencon.”
 
-Grafino Elisabet rapidis for, sed baldaŭ ŝi haltis. ŝi vidis la minacan arbaron, la kaŝantan monton kaj la vaporantan mar-
+Grafino Elisabet rapidis for, sed baldaŭ ŝi haltis. ŝi vidis la minacan arbaron, la kaŝantan monton kaj la vaporantan marĉon. Certe estas terure loĝi tie ĉi por tiu, kies animo estas plena de malbonaj memoroj. ŝi sentis kompaton al la maljunulo, kiu sidis tie kun la malhelaj friponoj kiel akompanantoj.
 
-ĉon. Certe estas terure loĝi tie ĉi por tiu, kies animo estas plena de malbonaj memoroj. ŝi sentis kompaton al la maljunulo, kiu sidis tie kun la malhelaj friponoj kiel akompanantoj.
-
-”Anna Lisa,” ŝi diris, ”ni reiru! Ili estis bonaj al ni tie, sed mi 461
-
-GÖSTA BERLING
+”Anna Lisa,” ŝi diris, ”ni reiru! Ili estis bonaj al ni tie, sed mi
 
 
 kondutis malbone. Mi volas paroli kun la maljunulo pri pli gajaj aferoj.”
@@ -10160,9 +8556,7 @@ La maljuna Jan Hök sidis senmova kaj rigardis antaŭ sin kun senbrilaj okuloj. 
 
 Baldaŭ ŝi estis bona amikino kun la babilantaj virinoj kaj igis ilin montri al ŝi la plej malgrandajn infanojn.
 
-La viroj revenis post unu horo. Ili kondukis Göstan Berling ligita en la ĉambron. Antaŭ la fajro ili malsuprenmetis lin sur la plankon. Lia vesto estis ŝirita kaj malpura, la vizaĝo maldika kaj la okuloj sovaĝaj. Terura estis lia vivo dum tiuj tagoj: li kuŝis sur la malseka tero, li premis la vizaĝon kaj la manojn en la muskon, trenis sin trans platrokojn, penetris tra la plej 462
-
-GÖSTA BERLING
+La viroj revenis post unu horo. Ili kondukis Göstan Berling ligita en la ĉambron. Antaŭ la fajro ili malsuprenmetis lin sur la plankon. Lia vesto estis ŝirita kaj malpura, la vizaĝo maldika kaj la okuloj sovaĝaj. Terura estis lia vivo dum tiuj tagoj: li kuŝis sur la malseka tero, li premis la vizaĝon kaj la manojn en la muskon, trenis sin trans platrokojn, penetris tra la plej
 
 
 baraj densejoj. Libervole li ne sekvis la virojn, sed ili superfor-tis kaj ligis lin.
@@ -10192,16 +8586,11 @@ Liaj trajtoj tordiĝis.
 ”Kial tiuj ĉi homoj ne povus aŭskulti nin?” ŝi diris, parolante kun akra akcento. ”ĉu ni estas pli bonaj ol iu el ili? ĉu iu el ili kaŭzis pli da ĉagreno kaj domaĝo ol ni? Ili estas la infanoj de la arbaro kaj de la vojo, ĉiu homo malamas ilin. Lasu ilin aŭdi, ke peko kaj ĉagreno troviĝas ankaŭ ĉe la estro de Ekeby, ĉe Gösta Berling, kiun ĉiuj amas! ĉu vi kredas, ke via edzino konsideras vin pli bona ol iu el ili aŭ ĉu vi kredas tion?”
 
 
-GÖSTA BERLING
-
-
 Li pene levis sin sur la kubuto kaj rigardis ŝin kun ekfla-manta spito. ”Mi ne estas tiel aĉa, kiel vi kredas.”
 
 Tiam ŝi aŭdis la historion de tiuj du tagoj. La unuan tagnokton Gösta vagis en la arbaro, pelata de konsciencaj riproĉoj. Li ne povis elteni renkonton kun homa rigardo. Sed li ne pensis pri morto. Li intencis iri al malproksima lando.
 
-Dimanĉe li tamen malsupreniris de la altaĵoj kaj iris al la pre-
-
-ĝejo de Bro. Ankoraŭfoje li volis vidi la popolon: la malriĉan, malsatan popolon de Lövsjö, pri kiu li revis, ke li servos al ĝi, kiam li sidis ĉe la malhonora amaseto de la pastro en Broby, kaj kiun li ekamis, kiam li vidis ĝin en la nokto foriri kun la mortinta knabino el Nygård.
+Dimanĉe li tamen malsupreniris de la altaĵoj kaj iris al la preĝejo de Bro. Ankoraŭfoje li volis vidi la popolon: la malriĉan, malsatan popolon de Lövsjö, pri kiu li revis, ke li servos al ĝi, kiam li sidis ĉe la malhonora amaseto de la pastro en Broby, kaj kiun li ekamis, kiam li vidis ĝin en la nokto foriri kun la mortinta knabino el Nygård.
 
 La diservo jam komenciĝis, kiam li eniris la preĝejon. Li ŝteliris sur galerion kaj rigardis malsupren sur la homojn.
 
@@ -10210,9 +8599,6 @@ Kruelaj suferoj tiam atakis lin. Li volus paroli al ili, konsoli ilin en iliaj m
 Tiam li forlasis la preĝejon, iris en la sakristion kaj skribis tiun sciigon, kiun lia edzino jam konis. Li promesis, ke oni ree komencos labori en Ekeby kaj tie disdonos grenon al tiuj, kiuj plej bezonas. Li esperis, ke lia edzino kaj la kavaliroj plenumos liajn promesojn, kiam li estos for.
 
 Elveninte li vidis ĉerkon antaŭ la komunuma kunvenejo. i estis kruda, rapide farita, sed ornamita per nigra krepo kaj kronoj el vakcinio. Li komprenis, ke estas tiu de kapitano Lennart. Verŝajne la homoj petis la kapitanedzinon rapidigi la enterigon, por ke la granda amaso da foirvizitantoj povu ĉeesti la enterigon.
-
-
-GÖSTA BERLING
 
 
 Li staris kaj rigardis la ĉerkon, kiam peza mano metiĝis sur lian ŝultron. Sintram alvenis al li.
@@ -10227,9 +8613,7 @@ Tiam Gösta demandis lin, kian utilon alportus ĉio tio.
 
 ”Tio plaĉus al mi, Gösta, ĉar mi estas malica. Mi estas la frapurso sur la monto, mi estas la neĝoŝtormo sur la ebeno, mi ŝatus murdi kaj persekuti. For, mi diras, for homoj kaj homaj kreaĵoj! Mi ne ŝatas ilin. Mi povas lasi ilin kuri inter miaj ungoj kaj fari siajn kaprosaltojn — ankaŭ tio povas plezurigi dum tempeto — sed nun mi satiĝis pri ludo, Gösta, nun mi volas ekhaki, nun mi volas mortigi kaj detrui.”
 
-Li estis freneza, tute freneza. Antaŭ longe li ŝerce komencis tiujn inferokupojn, kaj nun la malico superregis lin, nun li kredis, ke li estas spirito el la infero. Li nutris kaj flegis la 465
-
-GÖSTA BERLING
+Li estis freneza, tute freneza. Antaŭ longe li ŝerce komencis tiujn inferokupojn, kaj nun la malico superregis lin, nun li kredis, ke li estas spirito el la infero. Li nutris kaj flegis la
 
 
 malbonon en si, tiel ke ĝi prenis la potencon super lia animo.
@@ -10257,9 +8641,6 @@ Tiam Gösta staris tute apud li kaj ĉirkaŭprenis liajn brakojn.
 Iom mi tamen povos fari, antaŭ ol venos la prokuroro. Batalu kontraŭ mi, se vi tion volas! Estus gaja vidaĵo tie ĉi antaŭ la preĝejo. Ni batalu inter florkronoj kaj ĉerkotukoj!”
 
 
-GÖSTA BERLING
-
-
 ”Mi volas aĉeti trankvilon al la mortinto por kiu ajn prezo.
 
 Prenu mian vivon, prenu ĉion!”
@@ -10280,12 +8661,7 @@ Poste Gösta ree iris al la arbaro. ŝajnis al li plej bone morti en tiu loko, k
 
 Tion li rakontis al sia edzino, dum li kuŝis ligita sur la planko en la arbara bieneto.
 
-”Ho,” ŝi malgaje diris, kiam li finis, ”kiel bone mi konas tion! Heroaj gestoj, heroa brilo! ĉiam preta meti la manojn en la fajron, Gösta, ĉiam preta forĵeti vin mem! Kiel granda tio iam ŝajnis al mi! Kiel mi nun laŭdas trankvilon kaj konside-467
-
-GÖSTA BERLING
-
-
-remon! Kiom vi utilis al la mortinto per tia promeso! Jen, se Sintram estus povinta renversi la ĉerkon kaj forŝiri la krepon?
+”Ho,” ŝi malgaje diris, kiam li finis, ”kiel bone mi konas tion! Heroaj gestoj, heroa brilo! ĉiam preta meti la manojn en la fajron, Gösta, ĉiam preta forĵeti vin mem! Kiel granda tio iam ŝajnis al mi! Kiel mi nun laŭdas trankvilon kaj konsideremon! Kiom vi utilis al la mortinto per tia promeso! Jen, se Sintram estus povinta renversi la ĉerkon kaj forŝiri la krepon?
 
 Certe oni estus relevinta ĝin, certe troviĝis nova krepo, novaj florkronoj. Se vi estus metinta vian manon sur la ĉerkon de la bona viro, tie antaŭ la okuloj de Sintram, kaj ĵurinta, ke vi vivos por helpi tiun ĉi malriĉan popolon, kiun li volis detrui, tion mi nun laŭdus. Se vi estus pensinta, kiam vi vidis la homojn en la preĝejo: ’Mi volas helpi ilin, mi volas uzi ĉiujn fortojn por helpi ilin,’ kaj ne estus metinta tiun ŝarĝon sur vian malfortan edzinon kaj sur maljunajn virojn kun cedan-taj fortoj, tiam mi laŭdus ankaŭ tion.”
 
@@ -10293,17 +8669,13 @@ Gösta Berling dum tempeto kuŝis silenta.
 
 ”Ni kavaliroj ne estas liberaj viroj,” li fine diris. ”Ni promesis unu al la alia vivi por la ĝojo, kaj nur por la ĝojo. Ve al ni ĉiuj, se unu perfidas.”
 
-”Ve al vi,” la grafino diris incitite, ”ke vi estas la plej malkuraĝa el la kavaliroj kaj la lasta, kiu volas reboniĝi. Hieraŭ vespere ĉiuj dekunu sidis en la kavalirdomo, kaj malgajaj ili estis. Vi estis for, kapitano Lennart estis for, la brilo kaj gloro de Ekeby estis for. La pleton kun varmgrogo ili ne tuŝis, al mi ili ne volis montri sin. Tiam Anna Lisa, kiu staras tie ĉi, supreniris al ili. Vi scias, ke ŝi estas fervora virineto, kiu dum jaroj ĝis malesperiĝo batalis kontraŭ malprizorgo kaj mal-
-
-ŝparo.
+”Ve al vi,” la grafino diris incitite, ”ke vi estas la plej malkuraĝa el la kavaliroj kaj la lasta, kiu volas reboniĝi. Hieraŭ vespere ĉiuj dekunu sidis en la kavalirdomo, kaj malgajaj ili estis. Vi estis for, kapitano Lennart estis for, la brilo kaj gloro de Ekeby estis for. La pleton kun varmgrogo ili ne tuŝis, al mi ili ne volis montri sin. Tiam Anna Lisa, kiu staras tie ĉi, supreniris al ili. Vi scias, ke ŝi estas fervora virineto, kiu dum jaroj ĝis malesperiĝo batalis kontraŭ malprizorgo kaj malŝparo.
 
 ’Hodiaŭ mi ree estis hejme por serĉi la monon de patro,’ ŝi diris al la kavaliroj, ’sed mi povis nenion trovi. ĉiuj ŝuldatestoj estas trastrekitaj, kaj la kestoj kaj ŝrankoj estas malplenaj.’
 
 ’Vi estas bedaŭrinda, Anna Lisa,’ opiniis Beerencreutz.
 
-’Kiam la majorino foriris de Ekeby,’ daŭrigis la filino de la pastro en Broby, ’ŝi petis min zorgi pri ŝia domo. Kaj se mi 468
-
-GÖSTA BERLING
+’Kiam la majorino foriris de Ekeby,’ daŭrigis la filino de la pastro en Broby, ’ŝi petis min zorgi pri ŝia domo. Kaj se mi
 
 
 estus trovinta la monon de la patro, mi rekonstruus Ekebyn.
@@ -10329,9 +8701,6 @@ La aliaj iom post iom sekvis lin. ĉu vi scias, kien ili iris, Gösta? Nu, al la
 Li trovis ankoraŭ unu respondon al ŝi.
 
 
-GÖSTA BERLING
-
-
 ”Kion vi postulas de mi, de eksigita pastro? Mi estas forpuŝita de homoj, abomena al Dio.”
 
 ”Ankaŭ mi estis en la preĝejo de Broby hodiaŭ, Gösta. Mi havas salutojn al vi de du virinoj. ’Diru al Gösta,’ diris Marianne Sinclaire, ’ke virino ne volas honti pro tiu, kiun ŝi amis!’
@@ -10346,9 +8715,7 @@ Sed ni ĉiuj malĝojas pro Gösta. Ni fidas al li kaj preĝas al Dio por li — 
 
 Aŭ ĉu vi estas abomena al Dio? Kial vi ne restis kaj vidis la enterigon de kapitano Lennart?
 
-ĉar li mortis en foirtago, la famo pri li estis vaste disportata. Post la diservo miloj da homoj venis al la preĝejo. La tombejo kaj la muro kaj la kampoj ĉirkaŭe estis kovritaj de homoj. La funebra procesio ordigis sin antaŭ la komunuma kunvenejo. Oni atendis nur la maljunan ĉefparoęstron. Li estis malsana kaj ne predikis. Sed li promesis veni al la enterigo de kapitano Lennart. Kaj jen li venis, kun klinita kapo kaj revante siajn proprajn revojn, kiel li kutimas nun en sia maljunaĝo, kaj prenis lokon en la komenco de la funebra procesio. Nenion neordinaran li rimarkis. Li iris en multaj funebraj procesioj, la maljunulo. Li iris antaŭen sur la konata vojo kaj ne levis la rigardon. Li diris la preĝojn kaj ĵetis teron sur la 470
-
-GÖSTA BERLING
+ĉar li mortis en foirtago, la famo pri li estis vaste disportata. Post la diservo miloj da homoj venis al la preĝejo. La tombejo kaj la muro kaj la kampoj ĉirkaŭe estis kovritaj de homoj. La funebra procesio ordigis sin antaŭ la komunuma kunvenejo. Oni atendis nur la maljunan ĉefparoęstron. Li estis malsana kaj ne predikis. Sed li promesis veni al la enterigo de kapitano Lennart. Kaj jen li venis, kun klinita kapo kaj revante siajn proprajn revojn, kiel li kutimas nun en sia maljunaĝo, kaj prenis lokon en la komenco de la funebra procesio. Nenion neordinaran li rimarkis. Li iris en multaj funebraj procesioj, la maljunulo. Li iris antaŭen sur la konata vojo kaj ne levis la rigardon. Li diris la preĝojn kaj ĵetis teron sur la
 
 
 ĉerkon kaj ankoraŭ ne rimarkis ion. Sed jen la sakristiano ekkantis psalmon. Mi ne kuraĝis atendi, ke la kruda voĉo, kiu ĉiam ordinare kantis sola, povos veki la ĉefparonestron el liaj revoj.
@@ -10359,17 +8726,13 @@ Tiam la maljuna ĉefparoęstro komencis tremi kaj angori. Kion li diru al tiuj h
 
 Kiam la kanto silentiĝis, li etendis la brakojn super la homoj.
 
-’Mi vidas, ke la homojn trafis malĝojo,’ li diris, ’kaj la mal-
-
-ĝojo estas pli peza por tiu, kiu longe iros sur la vojo de la tero, ol por mi, kiu baldaŭ foriros.’
+’Mi vidas, ke la homojn trafis malĝojo,’ li diris, ’kaj la malĝojo estas pli peza por tiu, kiu longe iros sur la vojo de la tero, ol por mi, kiu baldaŭ foriros.’
 
 Li eksilentis terurite. Lia voĉo estis tro malforta, kaj li hezitis pri la vortelekto.
 
 Sed baldaŭ li ree komencis. Lia voĉo rericevis la forton de lia junaĝo, kaj liaj okuloj radiis.
 
-Li faris belegan parolon al ni, Gösta. Unue li rakontis tion, kion li sciis, pri la migranto de Dio. Poste li memorigis al ni, ke neniu ekstera brilo aŭ granda talento igis tiun viron tiel honorata, kiel li nun estas, sed nur tio, ke li ĉiam iris la vojojn de Dio. Kaj nun li petis nin pro Dio kaj Kristo agi same. ĉiu amu la alian kaj helpu lin. ĉiu kredu bonon pri la alia. ĉiu agu 471
-
-GÖSTA BERLING
+Li faris belegan parolon al ni, Gösta. Unue li rakontis tion, kion li sciis, pri la migranto de Dio. Poste li memorigis al ni, ke neniu ekstera brilo aŭ granda talento igis tiun viron tiel honorata, kiel li nun estas, sed nur tio, ke li ĉiam iris la vojojn de Dio. Kaj nun li petis nin pro Dio kaj Kristo agi same. ĉiu amu la alian kaj helpu lin. ĉiu kredu bonon pri la alia. ĉiu agu
 
 
 kiel tiu bona kapitano Lennart, ĉar por tio ne estas bezonata granda talento, nur pia animo. Kaj li interpretis al ni ĉion, kio okazis en tiu ĉi jaro. Li diris, ke tio estis preparo por tiu tempo de amo kaj feliĉo, kiu nun certe venos. En tiu ĉi jaro li ofte vidis homan bonecon aperi en disaj radioj. Nun ĝi aperos kiel tuta brila suno.
@@ -10388,9 +8751,7 @@ estro parolas pri vi. La homoj, kiuj aŭdis vian sciigon, iris hejmen parolante 
 
 Jes, Gösta, estas certe, ke la maljunulo parolis pri vi, kaj eble tio povas instigi vin pluvivi. Sed mi, kiu estas via edzino, mi diras al vi, ke vi tute simple faru vian devon. Vi ne revu, ke vi estas sendita de Dio. Verŝajne ĉiu estas, vi komprenas.
 
-Vi laboru sen heroaj gestoj, vi ne brilu kaj mirigu, vi faru tiel, 472
-
-GÖSTA BERLING
+Vi laboru sen heroaj gestoj, vi ne brilu kaj mirigu, vi faru tiel,
 
 
 ke via nomo ne tro ofte sonu sur la lipoj de la popolo. Tamen bone pripensu antaŭ ol rompi vian promeson al Sintram! Vi nun havigis al vi ian rajton morti, kaj de nun la vivo verŝaj-ne ne donos multe da agrablo al vi. En iu tempo mi deziris iri hejmen al la sudo, Gösta. Al mi, pekoŝarĝita, ŝajnis tro granda feliĉo esti via edzino kaj akompani vin tra la vivo. Sed nun mi restos. Se vi kuraĝos vivi, mi restos. Sed ne atendu feliĉon de tio! Mi devigos vin iri la vojon de pezaj devoj. Neniam atendu de mi vortojn de ĝojo kaj espero! ĉiujn ĉagrenon kaj malfeliĉon, kiun ni ambaŭ kaŭzis, mi starigos postene ĉe nia hejmo. ĉu koro, kiu tiel suferis kiel la mia, povos ami plu?
@@ -10412,9 +8773,6 @@ Li klinis sin al Gösta, malnodis liajn ligilojn kaj levis lin.
 Poste li solene prenis lian manon.
 
 
-GÖSTA BERLING
-
-
 ”Abomena al Dio,” li diris, ”ĝuste tio estas la afero. Sed nun vi ne estas tia plu, kaj ankaŭ mi ne estas, post kiam ŝi staris en mia hejmo. ŝi estas bona.”
 
 La postan tagon la maljuna Jan Hök venis al prokuroro Scharling. ”Mi volas preni mian krucon,” li diris. ”Mi estis malbona viro, tial mi ricevis malbonajn filojn.” Kaj li petis, ke li povu iri en malliberejon anstataŭ sia filo, sed tio ja ne estis ebla.
@@ -10422,10 +8780,7 @@ La postan tagon la maljuna Jan Hök venis al prokuroro Scharling. ”Mi volas pr
 La plej bela el malnovaj historioj estas tiu, kiu priskribas, kiel li akompanis sian filon, irante apud la kaptitĉaro; kiel li dormis ekster lia malliberejo, kiel li ne forlasis lin antaŭ ol li trapasis sian punon. Certe ankaŭ ĝi trovos rakontanton.
 
 
-GÖSTA BERLING
-
-
-TRIDEKSESA ĉAPITRO
+TRIDEKSESA ĈAPITRO
 
 Margareta Celsing
 
@@ -10437,15 +8792,11 @@ La filino de la pastro en Broby, kiu de oktobro estis ĉe ŝi ĉe la uzino en la
 
 ”Por ni iras bone,” oni tiam respondis al ŝi. ”Venos pli bonaj tempoj. La freneza pastro en Ekeby kaj lia edzino helpas nin ĉiujn.”
 
-”Bona tempo venis,” diras iu alia. ”Sintram estas for. La kavaliroj de Ekeby laboras. La mono de la pastro en Broby estas trovita en la preĝeja turo de Bro. Estas tiom, ke oni povas restarigi la gloron kaj potencon de Ekeby per ĝi. i sufi-
-
-ĉas ankaŭ por havigi panon al la malsatantoj.”
+”Bona tempo venis,” diras iu alia. ”Sintram estas for. La kavaliroj de Ekeby laboras. La mono de la pastro en Broby estas trovita en la preĝeja turo de Bro. Estas tiom, ke oni povas restarigi la gloron kaj potencon de Ekeby per ĝi. i sufiĉas ankaŭ por havigi panon al la malsatantoj.”
 
 ”Nia maljuna ĉefparoęstro vekiĝis al nova vivo kaj nova forto,” diras la tria. ”ĉiun dimanĉon li parolas kun ni pri la alveno de la Dia regno. Kiu povas peki plu? La regado de la bono venas.”
 
-Kaj la majorino malrapide pluveturis, demandante ĉiun, 475
-
-GÖSTA BERLING
+Kaj la majorino malrapide pluveturis, demandante ĉiun,
 
 
 kiun ŝi renkontis: ”Kiel iras por vi? ĉu vi ne suferas pro manko en tiu ĉi regiono?”
@@ -10468,9 +8819,7 @@ Neniam ŝi sentis sin pli sana, ol kiam ŝi sidis tie kaj lasis la malvarman aer
 
 Estis la mizero kaj la korskuaj okazoj, kiuj ŝanĝis ilin ĉiujn.
 
-Ho, certe daŭros nur dum mallonga tempo! Sed tamen estis 476
-
-GÖSTA BERLING
+Ho, certe daŭros nur dum mallonga tempo! Sed tamen estis
 
 
 bone reveni al lando, kie ili servas unu la alian, kaj kie ĉiuj volas fari bonon. La majorino sentis, ke ŝi povas pardoni la kavalirojn, kaj ŝi dankis Dion pro tio.
@@ -10491,9 +8840,7 @@ Tamen estas tiom por diri al tiu, kiu estas mortanta. La vortoj interpremiĝas s
 
 Tion oni volus diri kaj multe, multe da aliaj vortoj.
 
-Sed la majorino kuŝis en brula febro, kaj la vortoj de la kavaliroj ne povis atingi ŝin. ĉu ŝi do neniam ekscios, kiel ili 477
-
-GÖSTA BERLING
+Sed la majorino kuŝis en brula febro, kaj la vortoj de la kavaliroj ne povis atingi ŝin. ĉu ŝi do neniam ekscios, kiel ili
 
 
 laboris, kiel ili daŭrigis ŝian agadon, kiel ili savis la gloron kaj brilon de Ekeby? ĉu ŝi neniam ekscios tion?
@@ -10516,9 +8863,7 @@ Gösta kaj Julius transportis karbon. Kelkaj el la aliaj sidis sur la amboso sub
 
 ”Vi, kiu kredas al tiaj aferoj, certe scias, ke ni ankaŭ faris multon, kio ne estis kavalirmaniera. Unue ni ne helpis la majorinon, due ni komencis labori, trie ne estis tute ĝuste, ke Gösta ne mortigis sin, ĉar li promesis tion.”
 
-”Mi pensis ankaŭ pri tio,” Lövenborg diris, ”sed mi opinias, ke vi ne ĝuste komprenas la aferon. Agi kun konsidero pri propraj, aĉaj avantaĝoj estis malpermesite al ni, sed ne agi 478
-
-GÖSTA BERLING
+”Mi pensis ankaŭ pri tio,” Lövenborg diris, ”sed mi opinias, ke vi ne ĝuste komprenas la aferon. Agi kun konsidero pri propraj, aĉaj avantaĝoj estis malpermesite al ni, sed ne agi
 
 
 tiel, kiel postulas la amo, la honoro aŭ nia eterna feliĉo. Mi kredas, ke Sintram perdis.”
@@ -10547,9 +8892,7 @@ Kiam li diris tion, fajrofasko elĵetiĝis el la forno kaj kovris la forĝistojn
 
 ”Tion oni ja povas pensi kaj deziri, sed tio malmulte helpas. ĉu vi ne vidas, kiel li staras tie ĉe la fosto kaj rikanas al ni? Sed verdire ŝajnas al mi, ke li malfiksas la martelon!”
 
-Li eksaltis kaj kuntiris Ebenhardon. En la posta momento 479
-
-GÖSTA BERLING
+Li eksaltis kaj kuntiris Ebenhardon. En la posta momento
 
 
 la martelo tondre falis sur la amboson. Estis nur krampo, kiu malfiksigis, sed Eberhard kaj Lövenborg lastmomente evitis la morton.
@@ -10565,9 +8908,7 @@ Poste oni ja eksciis, ke Lövenborg pravis, kaj ke Sintram mortis en la kristnas
 Ekzistis aliaj, kiuj kredis, ke malhela sinjoro alveturis en nigra veturilo, tirata de nigraj ĉevaloj, kaj forprenis lin el la malliberejo. Kaj Lövenborg ne estis la sola, kiu vidis lin en la kristnaska nokto. Ankaŭ en Fors li estis vidata kaj en la sonĝoj de Ulrika Dillner. Multaj rakontis, ke li montris sin al ili, ĝis Ulrika Dillner translokis lian kadavron al la tombejo de Bro. ŝi ankaŭ forpelis la malbonajn servistojn de Fors kaj enkondukis tie bonan regadon. Post tio fantomoj ne aperas plu tie.
 
 
-Oni diras, ke antaŭ ol Gösta atingis la domon, venis tien fremdulo kaj transdonis leteron al la majorino. Neniu konis la senditon, sed oni enportis la leteron kaj metis ĝin sur la tablon apud la majorino. Tuj poste ŝi neatendite plibonfartiĝis; 480
-
-GÖSTA BERLING
+Oni diras, ke antaŭ ol Gösta atingis la domon, venis tien fremdulo kaj transdonis leteron al la majorino. Neniu konis la senditon, sed oni enportis la leteron kaj metis ĝin sur la tablon apud la majorino. Tuj poste ŝi neatendite plibonfartiĝis;
 
 
 la febro mildiĝis, la doloroj faciliĝis kaj ŝi povis legi la skribaĵon.
@@ -10580,12 +8921,7 @@ Kaj la majorino kuŝis tie legante, ke ĉar ŝi estis sorĉistino kaj sendis kav
 
 La majorino malrapide faldis la paperon kaj metis ĝin en la kovraĵon. Poste ŝi kuŝis senmove kaj pripensis, kion ŝi eksciis. Kun amara doloro ŝi komprenis, ke tiel pensas la homoj pri ŝi. Sorĉistino ŝi estis por ĉiuj tiuj, kiujn ŝi servis, al kiuj ŝi donis laboron kaj panon. Tio estis ŝia rekompenco, tia estos la postmorta famo pri ŝi. Ili ne povas kredi pli bone pri adultulino.
 
-Sed kiom ŝi atentis sensciulojn? Ili tamen staris malproksime de ŝi. Sed tiuj malriĉaj kavaliroj, kiuj vivis pro ŝia favoro kaj bone konis ŝin, ankaŭ ili kredis aŭ ŝajnigis kredi tion por havi pretekston preni por si Ekebyn. Rapide moviĝis ŝiaj pensoj. Sovaĝa kolero kaj venĝemo flamis en ŝia febrobrula cerbo. ŝi igis la filinon de la pastro en Broby, kiu kune kun grafino Elisabet flegis ŝin, sendi sciigon al Högfors por alvo-481
-
-GÖSTA BERLING
-
-
-ki la administrantojn de la tero kaj de la uzino. ŝi volis fari sian testamenton.
+Sed kiom ŝi atentis sensciulojn? Ili tamen staris malproksime de ŝi. Sed tiuj malriĉaj kavaliroj, kiuj vivis pro ŝia favoro kaj bone konis ŝin, ankaŭ ili kredis aŭ ŝajnigis kredi tion por havi pretekston preni por si Ekebyn. Rapide moviĝis ŝiaj pensoj. Sovaĝa kolero kaj venĝemo flamis en ŝia febrobrula cerbo. ŝi igis la filinon de la pastro en Broby, kiu kune kun grafino Elisabet flegis ŝin, sendi sciigon al Högfors por alvoki la administrantojn de la tero kaj de la uzino. ŝi volis fari sian testamenton.
 
 Ree ŝi pensis. ŝiaj brovoj kuntiriĝis, la sufero terure tordis ŝiajn trajtojn.
 
@@ -10612,9 +8948,6 @@ La juna virino ekmoviĝis.
 Veturu hejmen al viaj patro kaj patrino, antaŭ ol ili venos por malbeni vin. ĉu vi kuraĝas rigardi Göstan Berling kiel vian edzon? Forveturu de li! Mi donos al li Ekebyn. Mi donos al li potencon kaj gloron. ĉu vi kuraĝas dividi tion kun li? ĉu vi kuraĝas akcepti la feliĉon kaj gloron? Mi kuraĝis tion. ĉu vi memoras, kiel iris por mi? ĉu vi memoras la kristnaskan tagmanĝon en Ekeby? ĉu vi memoras la arestejon en la prokurora domo?”
 
 
-GÖSTA BERLING
-
-
 ”Ho, majorino, ni pekoŝarĝitoj iras tie ĉi unu apud la alia sen feliĉo. Mi estas tie ĉi por gardi, ke neniu ĝojo ekloĝu en nia hejmo. ĉu vi ne kredas, ke mi sopiras hejmen? Ho, amare mi sopiras al la protekto kaj apogo de la hejmo, sed mi neniam plu ĝuos tion. Tie ĉi mi loĝos en timo kaj angoro, sciante, ke ĉio, kion mi faras, kondukas al peko kaj ĉagreno, sciante, ke per helpo al unu mi malhelpas iun alian. Tro malforta kaj malprudenta por la vivo tie ĉi kaj tamen devigita vivi ĝin, ligita de eterna pentofaro.”
 
 ”Per tiaj pensoj ni kontentigas nian koron!” la majorino diris. ”Sed tio estas malforto. Vi ne volas for de li, tio estas la sola kaŭzo.”
@@ -10627,9 +8960,7 @@ Unue mi dirus al vi, kio okazis printempe, kiam mi venis hejmen al mia patrino, 
 
 En marto mi piedire venis al la uzino en la arbaroj de Elvdalen. Malmulte pli bona ol almozulino mi tiam aspektis. Oni sciigis al mi, kiam mi alvenis, ke mia patrino estas en la laktoĉambro. Tien mi eniris kaj longe staris silenta ĉe la pordo.
 
-ĉirkaŭ la ĉambro estis longaj bretoj, kaj sur ili staris brilaj kupropelvoj, plenaj de lakto. Kaj mia patrino, kiu estis pli ol naŭdekjara, prenis pelvon post pelvo kaj forprenis de ili la 483
-
-GÖSTA BERLING
+ĉirkaŭ la ĉambro estis longaj bretoj, kaj sur ili staris brilaj kupropelvoj, plenaj de lakto. Kaj mia patrino, kiu estis pli ol naŭdekjara, prenis pelvon post pelvo kaj forprenis de ili la
 
 
 kremon. ŝi estis sufiĉe vigla, la maljunulino, sed mi rimarkis, kiel penige estas al ŝi rektigi la dorson por atingi la pelvojn.
@@ -10648,13 +8979,9 @@ Kaj poste subite estis, kvazaŭ ŝi ne havus forton plu. ŝi sidis senmova en si
 
 La majorino eksilentis. Komencis fariĝi malfacile por ŝi spiri, sed ŝi devigis sin kaj daŭrigis:
 
-”Estas vere, Gösta, ke mi ŝatis havi vin tie ĉi en Ekeby. Vi estas tia, ke ĉiuj ĝojas esti en via akompano. Se vi estus fari-
+”Estas vere, Gösta, ke mi ŝatis havi vin tie ĉi en Ekeby. Vi estas tia, ke ĉiuj ĝojas esti en via akompano. Se vi estus fariĝinta firmkonduta homo, mi estus doninta al vi grandan potencon. Mia espero ĉiam estis, ke vi trovos bonan edzinon.
 
-ĝinta firmkonduta homo, mi estus doninta al vi grandan potencon. Mia espero ĉiam estis, ke vi trovos bonan edzinon.
-
-Unue mi kredis, ke estos Marianne Sinclaire, ĉar mi vidis, ke ŝi amas vin, jam kiam vi vivis kiel hakisto en la arbaro. Poste mi kredis, ke estos Ebba Dohna, kaj iun tagon mi veturis al 484
-
-GÖSTA BERLING
+Unue mi kredis, ke estos Marianne Sinclaire, ĉar mi vidis, ke ŝi amas vin, jam kiam vi vivis kiel hakisto en la arbaro. Poste mi kredis, ke estos Ebba Dohna, kaj iun tagon mi veturis al
 
 
 Borg kaj diris al ŝi, ke se ŝi edziniĝos kun vi, mi lasos vin heredi Ekebyn. Pardonu min, se mi agis malbone per tio.”
@@ -10671,9 +8998,7 @@ Gösta genuis apud la lito kun la frunto sur la litrando. Li eligis pezan ĝemon
 
 Vi devas havi servistinon, Gösta.’
 
-Kaj mi ja konsentis kun li, sed mi ne sciis, kiel mi havos monon por dungi iun. Jen li iun tagon alportis siajn notojn kaj 485
-
-GÖSTA BERLING
+Kaj mi ja konsentis kun li, sed mi ne sciis, kiel mi havos monon por dungi iun. Jen li iun tagon alportis siajn notojn kaj
 
 
 sian tablon kun la pentritaj klavoj kaj metis ilin en la dometon. ’Certe estas vi, Lövenborg, kiu estos servistino’, mi tiam diris al li. Li respondis, ke certe li estos bezonata. ĉu mi volas, ke la juna grafino preparos manĝaĵon kaj portos lignon kaj akvon? Ne, mi ne volas, ke ŝi faru ion ajn, kiam mi ankoraŭ havas du brakojn por laboro. Sed li tamen opiniis, ke estos pli bone, se ni estos du, por ke ŝi povu sidi la tutan tagon en sia sofangulo por fari tamburbrodaĵon. Neniel mi scias, li diris al mi, kiom da servoj tia virineto bezonas.”
@@ -10689,9 +9014,6 @@ Li miris pro ŝia mokplena tono, sed daŭrigis.
 ”Sed vi mem, Gösta Berling?”
 
 ”Mi havos mian laboron ĉe la rabotstablo kaj la tornostab-lo, majorino. Mi de nun vivos mian propran vivon. Se mia edzino ne volos akompani min, do estu tiel. Se oni nun pro-ponus al mi la tutan riĉon de la mondo, ĝi ne logus min. Mi volas vivi mian propran vivon. Nun mi estos kaj restos malriĉa homo inter la kamparanoj kaj helpos ilin per tio, kion mi povos. Ili bezonas iun, kiu ludas polskojn por ili dum edziĝo-festoj kaj kristnaskregaloj, ili bezonas iun, kiu skribas la leterojn al la forveturintaj filoj, kaj tiu do estos mi. Sed malriĉa mi devos esti, majorino.”
-
-
-GÖSTA BERLING
 
 
 ”Estos malgaja vivo por vi, Gösta.”
@@ -10715,9 +9037,6 @@ Kredu min, majorino, mi estas la sama freneza Gösta Berling, kiu mi antaŭe est
 ”Mi volas doni al vi Ekebyn, vi komprenas.”
 
 
-GÖSTA BERLING
-
-
 ŝi parolis raspe kaj malmole sen iu ajn afableco. Angoro kaptis lin.
 
 ”Ne metu tian tenton antaŭ la maljunulojn, majorino! Tio ja ree farus el ili maldiligentulojn kaj drinkulojn. Dio en la ĉielo, riĉaj kavaliroj! Kio fariĝus el ni?”
@@ -10726,9 +9045,7 @@ GÖSTA BERLING
 
 Sed nun grafino Elisabet iris al la majorino kaj ekgenuis apud la lito.
 
-”Mi ne sopiras plu, majorino. Li, kiu estas mia edzo, solvis la enigmon kaj trovis la vivon, kiun mi povas vivi. Mi ne bezonos plu iri severa kaj malvarma apud li kaj memorigi lin pri pento kaj pentofaro. Malriĉo kaj mizero kaj forta laboro plenumos tiun taskon. La vojojn, kiuj kondukas al malriĉuloj kaj malsanuloj, mi povos senpeke iri. Mi ne timas plu la vivon tie ĉi en la nordo. Sed ne riĉigu lin, majorino! Tiam mi ne kura-
-
-ĝos resti.”
+”Mi ne sopiras plu, majorino. Li, kiu estas mia edzo, solvis la enigmon kaj trovis la vivon, kiun mi povas vivi. Mi ne bezonos plu iri severa kaj malvarma apud li kaj memorigi lin pri pento kaj pentofaro. Malriĉo kaj mizero kaj forta laboro plenumos tiun taskon. La vojojn, kiuj kondukas al malriĉuloj kaj malsanuloj, mi povos senpeke iri. Mi ne timas plu la vivon tie ĉi en la nordo. Sed ne riĉigu lin, majorino! Tiam mi ne kuraĝos resti.”
 
 La majorino levis sin en la lito.
 
@@ -10736,9 +9053,7 @@ La majorino levis sin en la lito.
 
 ŝi kaptis la leteron kaj ĵetis ĝin sur la vizaĝon de Gösta. La nigra papero flirte disfaldiĝis kaj falis al la planko. Gösta ja konis ĝin.
 
-”Vi pekis kontraŭ mi, Gösta. Vi malprave malŝatis tiun, kiu 488
-
-GÖSTA BERLING
+”Vi pekis kontraŭ mi, Gösta. Vi malprave malŝatis tiun, kiu
 
 
 estis por vi dua patrino. ĉu vi kuraĝas rifuzi akcepti vian punon de mi? Vi devas akcepti Ekebyn, kaj tio detruos vin, ĉar vi estas malforta. Vi devas sendi vian edzinon hejmen, por ke neniu povu savi vin. Kiam vi mortos, via nomo estos same abomenata kiel la mia. La postmorta famo pri Margareta Celsing estos tiu de sorĉistino. La via estos tiu de malŝparulo kaj kamparanturmentanto.”
@@ -10753,12 +9068,7 @@ estis por vi dua patrino. ĉu vi kuraĝas rifuzi akcepti vian punon de mi? Vi de
 
 Gösta eksilentis, sed la martelo daŭrigis sian parolon. ĉiuj voĉoj, kiuj parolis bone kaj afable al la majorino, miksiĝis kun la martelsonoro. Iom post iom la streĉiĝo malaperis el ŝiaj trajtoj. Ili malstreĉigis, kaj estis, kvazaŭ la ombro de la morto falus sur ŝin.
 
-La filino de la pastro en Broby envenis kaj sciigis, ke la sin-489
-
-GÖSTA BERLING
-
-
-joroj el Högfors alvenis. La majorino lasis ilin foriri. ŝi ne volis fari testamenton.
+La filino de la pastro en Broby envenis kaj sciigis, ke la sinjoroj el Högfors alvenis. La majorino lasis ilin foriri. ŝi ne volis fari testamenton.
 
 ”Ho, Gösta Berling, homo de multaj grandfaroj,” ŝi diris,
 
@@ -10768,9 +9078,7 @@ La febro revenis kun duobla forto. La stertoroj komenciĝis.
 
 La korpo treniĝis tra peza sufero, sed la animo baldaŭ ne sciis pri tio. i komencis rigardi en la ĉielojn, kiuj malfermiĝas por la mortantoj.
 
-Tiel pasis horo, kaj la mallonga agonio finiĝis. ŝi kuŝis tie tiel pacradia kaj bela, ke la ĉirkaŭstarantoj profunde kortuŝi-
-
-ĝis.
+Tiel pasis horo, kaj la mallonga agonio finiĝis. ŝi kuŝis tie tiel pacradia kaj bela, ke la ĉirkaŭstarantoj profunde kortuŝiĝis.
 
 ”Mia kara maljuna majorino,” Gösta tiam diris,” tia mi vidis vin iam antaŭe! Nun Margareta Celsing revenis al la vivo.
 
@@ -10785,9 +9093,7 @@ Kiam la kavaliroj venis el la forĝejo, renkontis ilin la sciigo pri la morto de
 
 Poste ili eksciis, ke ŝi intencis doni al ili Ekebyn, sed ke la testamento ne estis farita. Tion ili rigardis kiel grandan honoron kaj laŭdis sin pro tio dum sia tuta vivo. Sed neniu aŭdis ilin plendi pro la riĉaĵoj, kiujn ili tiel perdis.
 
-Oni diras ankaŭ, ke tiun kristnaskonokton Gösta Berling staris apud sia juna edzino kaj faris sian lastan paroladon al la kavaliroj. Li estis ĉagrenita pro ilia sorto, ĉar nun ili ĉiuj foriros de Ekeby. La doloroj de maljunaĝo atendas ilin. Frostan bonvenon renkontos la maljunulo ĉe la gastigonta amiko. La malriĉa kavaliro, kiu estos devigata serĉi hejmon en la 490
-
-GÖSTA BERLING
+Oni diras ankaŭ, ke tiun kristnaskonokton Gösta Berling staris apud sia juna edzino kaj faris sian lastan paroladon al la kavaliroj. Li estis ĉagrenita pro ilia sorto, ĉar nun ili ĉiuj foriros de Ekeby. La doloroj de maljunaĝo atendas ilin. Frostan bonvenon renkontos la maljunulo ĉe la gastigonta amiko. La malriĉa kavaliro, kiu estos devigata serĉi hejmon en la
 
 
 kamparanaj domoj, ne havos gajajn tagojn: disigita de amikoj kaj aventuruloj la solulo forvelkos.
@@ -10799,25 +9105,18 @@ Li ja sciis, ke la ĝojo estas bono por la infanoj de la tero,, kaj ke ĝi devas
 ĝojo kaj mizero, de feliĉo kaj ĉagreno.
 
 
-Ho, vi bonaj sinjoroj kavaliroj, ankaŭ por mi la amaro de adiaŭdiro plenigas tiun ĉi momenton! Tiu ĉi nokto estas la lasta, kiun ni kune tramaldormis. La gajajn ridojn mi ne aŭ-
-
-dos plu nek la gajajn kanzonojn. Nun mi disiĝos de vi kaj ĉiuj gajaj homoj sur la bordo de Löven.
+Ho, vi bonaj sinjoroj kavaliroj, ankaŭ por mi la amaro de adiaŭdiro plenigas tiun ĉi momenton! Tiu ĉi nokto estas la lasta, kiun ni kune tramaldormis. La gajajn ridojn mi ne aŭdos plu nek la gajajn kanzonojn. Nun mi disiĝos de vi kaj ĉiuj gajaj homoj sur la bordo de Löven.
 
 Vi karaj maljunaj! En tempoj pasintaj vi donis al mi bonajn donacojn. Al tiu, kiu vivis en granda soleco, vi portis la unuan sciigon pri la pĉaj ŝanĝiĝoj de la vivo. En grandegaj Ragnarök-bataloj65 mi vidis vin lukti ĉirkaŭ la lago de miaj infanaĝaj revoj. Sed kiom mi donis al vi?
 
 Eble tamen faros plezuron al vi, ke viaj nomoj ree sonos 65 Ragnarök — en la malnova mitologio la finiĝo de la nuna mondo estas nomata Ragnarök. Tiam okazos grandegaj bataloj.
 
 
-GÖSTA BERLING
-
-
 kune kun tiuj de la amataj bienoj? La tuta brilo, kiu apartenis al via vivo, ree falu sur la regionon, kie vi vivis! Ankoraŭ restas Borg, ankoraŭ restas Björne, ankoraŭ Ekeby kuŝas apud Löven, belege ĉirkaŭita de torento kaj lago, de parko kaj ridetantaj arbarherbejoj, kaj kiam oni staras sur la larĝaj al-tanoj, la rakontoj svarmas ĉirkaŭ oni kiel la abeloj de la somero.
 
 Sed parolante pri abeloj, permesu al mi rakonti ankoraŭ unu malnovan historion! La malgranda Ruster, kiu kiel tamburisto iris antaŭ la fronto de la sveda armeo, kiam ĝi 1813
 
-eniris Germanujon, poste neniam laciĝis rakonti historiojn pri la mirinda lando en la sudo. La homoj tie estis altaj kiel pre-
-
-ĝejaj turoj, la hirundoj estis grandaj kiel agloj, la abeloj kiel anseroj.
+eniris Germanujon, poste neniam laciĝis rakonti historiojn pri la mirinda lando en la sudo. La homoj tie estis altaj kiel preĝejaj turoj, la hirundoj estis grandaj kiel agloj, la abeloj kiel anseroj.
 
 ”Nu, sed la abelujoj do?”
 
@@ -10828,9 +9127,6 @@ eniris Germanujon, poste neniam laciĝis rakonti historiojn pri la mirinda lando
 ”Jes, tio estis por ili malfacila afero,” diris la malgranda Ruster.
 
 Karaj legantoj, ĉu mi ne devas diri la samon? Jen la gigantaj abeloj de la fantazio svarmis ĉirkaŭ ni dum tagoj kaj jaroj, sed kiel ili povu eniri en la abelujon de la realeco, tio vere estas por ili malfacila afero.
-
-
-GÖSTA BERLING
 
 
 RIMARKIGOJ
@@ -10860,9 +9156,6 @@ Fine mi volas esprimi mian koran dankon al dro F. Szilá-
 gyi kaj sro B. Gerdman pro kontrolo de la manuskripto.
 
 La tradukinto
-
-
-GÖSTA BERLING
 
 
 PROPRAJ NOMOJ
@@ -10904,9 +9197,6 @@ Anna Stjärnhök — A. ŝernhök.
 Scharling — ŝarling.
 
 
-GÖSTA BERLING
-
-
 Rosalie von Berger — Rosali fon Berjer.
 
 Broby — Bruby.
@@ -10920,9 +9210,6 @@ Svartsjö — Svartŝö.
 Berga — Berja.
 
 Björksjö — Björkŝö.
-
-
-GÖSTA BERLING
 
 
 www.omnibus.se/

@@ -53,9 +53,7 @@ leteron per kiu miaj legantoj regalos min.
 
 Certigante al vi ke mia amo al vi neniam
 
-ŝanceliĝis kaj esperante ke la Oz-Libroj plu plezur-
-
-igos vin dum mi ankoraŭ povos verki ilin, mi estas
+ŝanceliĝis kaj esperante ke la Oz-Libroj plu plezurigos vin dum mi ankoraŭ povos verki ilin, mi estas
 
 Ame via,
 
@@ -72,56 +70,56 @@ en KALIFORNIO
 
 LISTO DE ĈAPITROJ
 
-1 Monto Manĝto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 17
+1 Monto Manĝto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-2 La Falko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 27
+2 La Falko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-3 Du Malbonuloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 34
+3 Du Malbonuloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-4 Kunkomplotantoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 48
+4 Kunkomplotantoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-5 Feliĉa Angulo de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . . 53
+5 Feliĉa Angulo de Oz . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-6 Naskiĝtagaj Donacoj por Ozma . . . . . . . . . . . . . . . . . . . . . 65
+6 Naskiĝtagaj Donacoj por Ozma . . . . . . . . . . . . . . . . . . . . .
 
-7 La Arbaro de Gugu . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 81
+7 La Arbaro de Gugu . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-8 La Le-Sim-Agoj Minacas. . . . . . . . . . . . . . . . . . . . . . . . . . 87
+8 La Le-Sim-Agoj Minacas. . . . . . . . . . . . . . . . . . . . . . . . . .
 
-9 La Insulo de la Magia Floro . . . . . . . . . . . . . . . . . . . . . . . 99
+9 La Insulo de la Magia Floro . . . . . . . . . . . . . . . . . . . . . . .
 
-10 Firme Fiksitaj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 112
+10 Firme Fiksitaj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-11 La Bestoj de la Arbaro de Gugu. . . . . . . . . . . . . . . . . . . . 121
+11 La Bestoj de la Arbaro de Gugu. . . . . . . . . . . . . . . . . . . .
 
-12 Kiki Uzas Sian Magion . . . . . . . . . . . . . . . . . . . . . . . . . 131
+12 Kiki Uzas Sian Magion . . . . . . . . . . . . . . . . . . . . . . . . .
 
-13 Perdiĝas la Nigra Valizo . . . . . . . . . . . . . . . . . . . . . . . . . 144
+13 Perdiĝas la Nigra Valizo . . . . . . . . . . . . . . . . . . . . . . . . .
 
-14 La Sorĉisto Lernas la Magian Vorton . . . . . . . . . . . . . . . . . 157
+14 La Sorĉisto Lernas la Magian Vorton . . . . . . . . . . . . . . . . .
 
-15 La Soleca Anaso . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 169
+15 La Soleca Anaso . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-16 La Vitra Kato Trovas la Nigran Valizon . . . . . . . . . . . . . . . 183
+16 La Vitra Kato Trovas la Nigran Valizon . . . . . . . . . . . . . . .
 
-17 Rimarkinda Veturo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 197
+17 Rimarkinda Veturo . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-18 La Magio de la Sorĉisto . . . . . . . . . . . . . . . . . . . . . . . . . 209
+18 La Magio de la Sorĉisto . . . . . . . . . . . . . . . . . . . . . . . . .
 
-19 Doroteo kaj la Burdoj. . . . . . . . . . . . . . . . . . . . . . . . . . . 217
+19 Doroteo kaj la Burdoj. . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-20 Problemo por la Simioj. . . . . . . . . . . . . . . . . . . . . . . . . . 226
+20 Problemo por la Simioj. . . . . . . . . . . . . . . . . . . . . . . . . .
 
-21 La Kolegio de Atletaj Artoj . . . . . . . . . . . . . . . . . . . . . . . 235
+21 La Kolegio de Atletaj Artoj . . . . . . . . . . . . . . . . . . . . . . .
 
-22 La Naskiĝtaga Festo de Ozma . . . . . . . . . . . . . . . . . . . . . 240
+22 La Naskiĝtaga Festo de Ozma . . . . . . . . . . . . . . . . . . . . .
 
-23 La Fonto de Forgeso . . . . . . . . . . . . . . . . . . . . . . . . . . . 255
+23 La Fonto de Forgeso . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Monto Manĝto
 
-ĈAPITRO 1
+ĈAPITRO
 
 Ĉe la orienta bordo de la
 
@@ -131,9 +129,7 @@ Manĝtuloj, estas granda, alta
 
 m o n t e t o n o m a t a M o n t o
 
-Manĝto. Unuflanke la mal-
-
-supro de tiu monteto tuŝas la
+Manĝto. Unuflanke la malsupro de tiu monteto tuŝas la
 
 Mortigan Sablan Deserton
 
@@ -331,9 +327,7 @@ feliĉa ĉar li volas malsupreniri la monton kaj viziti la
 
 grandan suban mondon sed lia patro ne permesas.
 
-Tute neniu atentis Kikin Arun, ĉar li estis tute mal-
-
-grava.
+Tute neniu atentis Kikin Arun, ĉar li estis tute malgrava.
 
 Unufoje dum ĉiu jaro okazis festo sur Monto
 
@@ -524,7 +518,7 @@ komencis la longan flugon.
 
 La Falko
 
-ĈAPITRO 2
+ĈAPITRO
 
 Eĉ falko devas alte flugi por
 
@@ -534,9 +528,7 @@ de kiu konstante leviĝas
 
 venenaj fumoj. Kiki Ar u
 
-sentis malsanon kaj mal-
-
-fortecon jam antaŭ ol reatingi
+sentis malsanon kaj malfortecon jam antaŭ ol reatingi
 
 bonan teron, ĉar li ne povis
 
@@ -661,9 +653,7 @@ li facile promenos de unu al alia.
 
 Kiam proksimiĝis la vespero li atingis bonan
 
-Hotelon kaj petis de la Hotelestro manĝon kaj tra-
-
-nokton.
+Hotelon kaj petis de la Hotelestro manĝon kaj tranokton.
 
 “Jes, se vi povos pagi per mono,” diris la viro, “se
 
@@ -765,7 +755,7 @@ La pasero timoplene pepis kaj forflugis.
 
 Du Malbonuloj
 
-ĈAPITRO 3
+ĈAPITRO
 
 Kiki turnis sin kaj vidis
 
@@ -802,9 +792,7 @@ plenigite per io.
 
 “Mi ne sciis ke vi estas tie,” diris Kiki.
 
-“Mi venis nur post vi,” diris la stranga maljun-
-
-ulo.
+“Mi venis nur post vi,” diris la stranga maljunulo.
 
 “Kiu vi estas?” demandis Kiki.
 
@@ -1018,17 +1006,13 @@ li enkarcerigos vin.”
 
 Kiki ridis pro tio.
 
-“Antaŭ ol li povos fari tion,” diris li, “mi trans-
-
-formos min en leonon kaj disŝiros lin, aŭ en urson kaj
+“Antaŭ ol li povos fari tion,” diris li, “mi transformos min en leonon kaj disŝiros lin, aŭ en urson kaj
 
 manĝos lin, aŭ en muŝon kaj forflugos kien li ne
 
 povos trovi min.”
 
-“Ĉu vi vere povas fari tiajn mirindajn trans-
-
-formojn?” demandis la maljuna Knomo, rigardante lin
+“Ĉu vi vere povas fari tiajn mirindajn transformojn?” demandis la maljuna Knomo, rigardante lin
 
 scivoleme.
 
@@ -1135,9 +1119,7 @@ ne ekzistis, kaj kvankam Rugedo traserĉis ĉiujn
 
 poŝojn, li trovis tute nenion magian. Do li reenlitiĝis
 
-kaj komencis dubi ke Kiki ja povas fari trans-
-
-formojn.
+kaj komencis dubi ke Kiki ja povas fari transformojn.
 
 La sekvan matenon li diris:
 
@@ -1373,7 +1355,7 @@ atentindaj.”
 
 Kunkomplotantoj
 
-ĈAPITRO 4
+ĈAPITRO
 
 Kiki Aru malmulton sciis pri
 
@@ -1426,9 +1408,7 @@ trompi Rugedon; do ambaŭ sentis plezuron.
 
 “La vojo trans la Dezerton estas longa,” komentis
 
-la knabo, “kaj la sabloj estas varmegaj kaj supren-
-
-sendas venenajn vaporojn. Ni atendu ĝis la vespero
+la knabo, “kaj la sabloj estas varmegaj kaj suprensendas venenajn vaporojn. Ni atendu ĝis la vespero
 
 kaj transflugu dum la nokto kiam estos malpli
 
@@ -1527,7 +1507,7 @@ ovo tuŝas Knomon, li poreterne ruiniĝas.”
 
 Feliĉa Angulo de Oz
 
-ĈAPITRO 5
+ĈAPITRO
 
 Ne ekzistas alia lando egale
 
@@ -1545,9 +1525,7 @@ admiras sian belan knabinan
 
 Reganton, Ozma de Oz, kaj
 
-ili kombinas laboron kaj lud-
-
-adon tiel juste ke ambaŭ estas
+ili kombinas laboron kaj ludadon tiel juste ke ambaŭ estas
 
 ĝuplenaj kaj kontentigaj kaj
 
@@ -1637,9 +1615,7 @@ kaj iliaj loĝantoj konatiĝos kun sia Reganto, ĉar en la
 
 palaco de Ozma estas pluraj amikoj ŝiaj kiuj tiom
 
-scivolemas ke ili konstante trovas novajn kaj ekster-
-
-ordinarajn lokojn kaj loĝantojn.
+scivolemas ke ili konstante trovas novajn kaj eksterordinarajn lokojn kaj loĝantojn.
 
 Unu el la plej aktivaj trovantoj de tiuj kaŝitaj lokoj
 
@@ -1736,9 +1712,7 @@ La Magio de Oz
 
 staras en ora florpoto kaj produktas ĉiajn florojn, unu
 
-post alia. Unu minuton ĝi produktas belajn rozburĝon-
-
-ojn kaj florojn, poste tulipon, kaj poste kriz—kriz—”
+post alia. Unu minuton ĝi produktas belajn rozburĝonojn kaj florojn, poste tulipon, kaj poste kriz—kriz—”
 
 “—antemon,” diris Doroteo, helpante lin.
 
@@ -1977,7 +1951,7 @@ preparojn por la veturo.
 
 Naskiĝtagaj Donacoj por Ozma
 
-ĈAPITRO 6
+ĈAPITRO
 
 Kiam K ap’tano Vilĉjo kaj
 
@@ -1993,9 +1967,7 @@ F l o r o n , D o r o t e o d e n o v e
 
 demandis al si kion ŝi povos
 
-doni al Ozma por ŝia naskiĝ-
-
-tago. Ŝi renkontis la Miks-
+doni al Ozma por ŝia naskiĝtago. Ŝi renkontis la Miks-
 
 ĉifonan Knabinon kaj diris:
 
@@ -2036,9 +2008,7 @@ Festu ĉiam tre feliĉe,
 
 Ozma kara!”
 
-“Ĉu vi amas ĝin, Doroteo?” demandis la Miks-
-
-ĉifona Knabino.
+“Ĉu vi amas ĝin, Doroteo?” demandis la Miksĉifona Knabino.
 
 “Ĉu ĝi estas bona poezio, Ĉifoneroj?” demandis
 
@@ -2131,9 +2101,7 @@ certa ke al ŝi plaĉos tiuj belaj pajlaj pantofloj.”
 
 Ĉapitro Ses
 
-amikoj,” diris la knabino. “Kio ĝenas *min*, Birdo-
-
-timigilo, estas kion doni al Ozma kion ŝi ne jam
+amikoj,” diris la knabino. “Kio ĝenas *min*, Birdotimigilo, estas kion doni al Ozma kion ŝi ne jam
 
 havas.”
 
@@ -2363,9 +2331,7 @@ grandan naskiĝtagan kukon por Ozma, kaj ĉirkaŭigu
 
 ĝin per kandeloj.”
 
-“Ho, ĉu nur *kukon*!” krietis Doroteo, sen-
-
-entuziasme.
+“Ho, ĉu nur *kukon*!” krietis Doroteo, senentuziasme.
 
 “Nenio estas pli agrabla por naskiĝtago,” diris la
 
@@ -2418,9 +2384,7 @@ Doroteo dankis sian amikinon kaj eniris la Ruĝan
 
 la palaco en la Smeralda Urbo.
 
-Survoje ŝi serioze pripensis fari surprizan naskiĝ-
-
-tagan kukon kaj fine decidis kion fari.
+Survoje ŝi serioze pripensis fari surprizan naskiĝtagan kukon kaj fine decidis kion fari.
 
 Atinginte sian hejmon ŝi tuj iris al la Sorĉisto de
 
@@ -2506,9 +2470,7 @@ multegaj simioj.”
 
 “Nu, vi kaj mi iros tien, kaj ni akiros kelkajn el la
 
-grandaj simioj, kaj vi malgrandigos ilin—ĝis ok centi-
-
-metroj da alteco—per via magio, kaj ni metos la simi-
+grandaj simioj, kaj vi malgrandigos ilin—ĝis ok centimetroj da alteco—per via magio, kaj ni metos la simi-
 
 etojn en korbon kaj portos ilin hejmen kun ni. Post tio
 
@@ -2535,9 +2497,7 @@ instigi la sovaĝajn simiojn konsenti.”
 
 “Jes; sed eble ni povos persvadi ilin. Iuokaze, valoros
 
-provi, kaj mi helpos vin se vi akceptos ke tiu Surpriz-
-
-kuko estu donaco por Ozma de kaj vi kaj mi. Mi
+provi, kaj mi helpos vin se vi akceptos ke tiu Surprizkuko estu donaco por Ozma de kaj vi kaj mi. Mi
 
 demandadis al mi kion *mi* povus doni al Ozma, kaj ĉar
 
@@ -2605,7 +2565,7 @@ tagoj.”
 
 La Arbaro de Gugu
 
-ĈAPITRO 7
+ĈAPITRO
 
 En la centra okcidenta parto
 
@@ -2744,9 +2704,7 @@ la alia aglo.
 
 “Estas sufiĉe da bestoj ĉi tie mem por ebligi ke ni
 
-konkeru la popolon de Oz, se ni povos instigi iln-
-
-senti unuiĝi kun ni. Por fari tion ni devos iri inter ilin
+konkeru la popolon de Oz, se ni povos instigi ilnsenti unuiĝi kun ni. Por fari tion ni devos iri inter ilin
 
 kaj informi ilin pri niaj planoj, do ni devas nun decidi
 
@@ -2873,7 +2831,7 @@ bezonis multan tempon por atingi la teron.
 
 La Le-Sim-Agoj Minacas
 
-ĈAPITRO 8
+ĈAPITRO
 
 Estis konfliktoj en la
 
@@ -2922,9 +2880,7 @@ en ĝian korpon.
 
 Ĉio ĉi estis kontraŭ la Leĝoj de la Arbaro, kaj kiam
 
-la ekscito ĉesis, Gugu la Reĝo de la Leopardoj kun-
-
-vokis siajn reĝajn Konsilistojn por decidi la plej bonan
+la ekscito ĉesis, Gugu la Reĝo de la Leopardoj kunvokis siajn reĝajn Konsilistojn por decidi la plej bonan
 
 metodon puni la ofendintojn.
 
@@ -2944,9 +2900,7 @@ Leopardo kaŭris plene etendite sur falinta arbotrunko.
 
 Bru la Urso sidis surkokse antaŭ la Reĝo; Rango la
 
-Griza Simio staris kun siaj muskolaj brakoj kun-
-
-plektitaj, kaj Loo la Unukornulo kuŝis, tre simile al
+Griza Simio staris kun siaj muskolaj brakoj kunplektitaj, kaj Loo la Unukornulo kuŝis, tre simile al
 
 ĉevalo, inter siaj kunkonsilantoj. Unuakorde ili silentis,
 
@@ -2969,9 +2923,7 @@ severe. “Kiu vi estas, kaj kial vi venis en la arbaron de
 
 Gugu?”
 
-“Ni estas du Le-Sim-Agoj,” diris Rugedo, invent-
-
-ante la nomon. “Nia hejmo estas en Ĉielinsulo, kaj ni
+“Ni estas du Le-Sim-Agoj,” diris Rugedo, inventante la nomon. “Nia hejmo estas en Ĉielinsulo, kaj ni
 
 alteriĝis por averti la arbarajn bestojn ke la Ozuloj
 
@@ -3020,9 +2972,7 @@ inter ni. Ili ne havas sklavojn. Ili ne povus utiligi
 
 nin kiel sklavojn se ili konkerus nin. Mi kredas ke
 
-vi mensogas al ni, vi stranga Le-Sim-Ago—kun-
-
-miksita besto kiu estas nek de unu specio nek de
+vi mensogas al ni, vi stranga Le-Sim-Ago—kunmiksita besto kiu estas nek de unu specio nek de
 
 alia.”
 
@@ -3228,9 +3178,7 @@ homo ol esti Unukornulo.”
 
 “Vi aspektas stultulo,” diris la Griza Simio.
 
-“Nu, mi *sentas* min bonega!” deklaris la homo-
-
-besto.
+“Nu, mi *sentas* min bonega!” deklaris la homobesto.
 
 “Mi kredas preferi esti Urso,” diris Granda Bru.
 
@@ -3334,7 +3282,7 @@ en arbon, ĉar li mensogas kaj mi ne povas fidi lin.”
 
 La Insulo de la Magia Floro
 
-ĈAPITRO 9
+ĈAPITRO
 
 La Vitra K ato estis bona
 
@@ -3449,9 +3397,7 @@ fidis ke Kap’tano Vilĉjo protektos ŝin. Kaj efektive
 
 neniu besto eliris el la arbaro ataki ilin.
 
-Je la mateniĝo ili releviĝis, kaj post simpla maten-
-
-manĝo Kap’tano Vilĉjo diris al la Vitra Kato:
+Je la mateniĝo ili releviĝis, kaj post simpla matenmanĝo Kap’tano Vilĉjo diris al la Vitra Kato:
 
 “Levu la ankron, Maato, kaj ni veturu antaŭen. Mi
 
@@ -3520,9 +3466,7 @@ granda poŝo de sia mantelo hakiloklingon, vinditan en
 
 malnova tuko por ke la akra rando ne tranĉu liajn
 
-vestojn. Poste, per granda poŝtranĉilo li tranĉis mal-
-
-grandan branĉon de arbo kaj ĉizis ĝin por fari el ĝi
+vestojn. Poste, per granda poŝtranĉilo li tranĉis malgrandan branĉon de arbo kaj ĉizis ĝin por fari el ĝi
 
 tenilon por la hakilo.
 
@@ -3694,9 +3638,7 @@ rekomencis sian laboron pri la floso.
 
 La Kolizulo, konsciante post multa baraktado ke ĝi
 
-ne povos eskapi, nun kvietiĝis, sed ĝi diris per mal-
-
-agrabla, minaca voĉo:
+ne povos eskapi, nun kvietiĝis, sed ĝi diris per malagrabla, minaca voĉo:
 
 “Mi supozas ke vi opinias vin lerta, ĉar vi tiel fiksis
 
@@ -3813,7 +3755,7 @@ kunligi ilin.
 
 Firme Fiksitaj
 
-ĈAPITRO 10
+ĈAPITRO
 
 La taglumo preskaŭ jam
 
@@ -3905,9 +3847,7 @@ kelka tempo.
 
 sidiĝis por rigardi la ŝanĝiĝantajn kolorojn de la floroj.
 
-“Mi certas ke neniu alia donos al ŝi egale belan naskiĝ-
-
-tagan donacon.”
+“Mi certas ke neniu alia donos al ŝi egale belan naskiĝtagan donacon.”
 
 “Ĉu vi s’pozas ke ĝi estas tre peza, Kap’tano? Kaj
 
@@ -3925,9 +3865,7 @@ viandan piedon de la tero. Lia ligna kruro ŝajnis sufiĉe
 
 libera, sed la alia rifuzis moviĝi.
 
-“Ŝajne mi fiksiĝis, Trot,” li diris, perplekse rigard-
-
-ante sian piedon. “Ne ’stas koto, kaj ne ’stas gluo, sed
+“Ŝajne mi fiksiĝis, Trot,” li diris, perplekse rigardante sian piedon. “Ne ’stas koto, kaj ne ’stas gluo, sed
 
 io neebligas moviĝon.”
 
@@ -4190,7 +4128,7 @@ ne rapidos, mi ne scias kio okazos al ni!”
 
 La Bestoj de la Arbaro de Gugu
 
-ĈAPITRO 11
+ĈAPITRO
 
 Belega kungrupiĝo de sovaĝaj
 
@@ -4208,9 +4146,7 @@ de la rando de la arbaro, kaj
 
 granda, estis en la granda
 
-libera spaco kie okazis kun-
-
-venoj tre gravaj.
+libera spaco kie okazis kunvenoj tre gravaj.
 
 En la centro de la libera
 
@@ -4247,9 +4183,7 @@ ili amis inciti la aliajn bestojn kaj estis tre petolemaj.
 
 Malantaŭ la simioj estis la pumoj, jaguaroj, tigroj kaj
 
-leonoj, kaj similaj bestoj; malantaŭ ili la ursoj, ĉiu-
-
-dimensiaj kaj ĉiakoloraj; malantaŭ ili bizonoj, sovaĝaj
+leonoj, kaj similaj bestoj; malantaŭ ili la ursoj, ĉiudimensiaj kaj ĉiakoloraj; malantaŭ ili bizonoj, sovaĝaj
 
 azenoj, zebroj kaj unukornuloj; poste la rinoceroj kaj
 
@@ -4351,9 +4285,7 @@ Knomo estas senpova sen lia magia povo, sed li
 
 ankaŭ sciis ke Rugedo estas la plej bona parolisto. Do
 
-li volonte konsentis ke la Knomo estu la por-
-
-parolanto.
+li volonte konsentis ke la Knomo estu la porparolanto.
 
 “Bestoj de la Arbaro de Gugu,” komencis la
 
@@ -4522,11 +4454,9 @@ respondi, mi aŭskultos vin.”
 
 Kiki Uzas Sian Magion
 
-ĈAPITRO 12
+ĈAPITRO
 
-Nun fariĝis granda son-
-
-konfuzo kiam ĉiuj bestoj
+Nun fariĝis granda sonkonfuzo kiam ĉiuj bestoj
 
 komencis paroli unu al la
 
@@ -4577,9 +4507,7 @@ dorso rajdis knabineto kiu ridetis sentime al la arego
 
 da bestoj. Kaj post la Leono kaj la knabineto venis alia
 
-besto—monstra Tigro, kiu portis sur sia dorso kurioz-
-
-aspektan vireton kiu havis nigran valizon. Preter la
+besto—monstra Tigro, kiu portis sur sia dorso kuriozaspektan vireton kiu havis nigran valizon. Preter la
 
 vicojn de mirantaj bestoj la strangaj bestoj marŝis,
 
@@ -4695,9 +4623,7 @@ pruvita amiko, la Malsata Tigro, kiu loĝas kun mi en
 
 la Smeralda Urbo.”
 
-“Ĉu li *ĉiam* malsatas?” demandis Loo la Unukorn-
-
-ulo.
+“Ĉu li *ĉiam* malsatas?” demandis Loo la Unukornulo.
 
 “Jes,” respondis la Tigro, mem respondante. “Mi
 
@@ -4984,7 +4910,7 @@ estis antaŭe, tion mi ne povas memori.”
 
 Perdiĝas la Nigra Valizo
 
-ĈAPITRO 13
+ĈAPITRO
 
 Kiki Aru, en la formo de la
 
@@ -5041,9 +4967,7 @@ aŭdi kion ili diras.
 
 “Ĉi tio certe estas misfortuno,” komentis la
 
-Sorĉisto en la formo de la Vulpo, “sed niaj trans-
-
-formiĝoj estas speco de sorĉo kiu estas tre facile
+Sorĉisto en la formo de la Vulpo, “sed niaj transformiĝoj estas speco de sorĉo kiu estas tre facile
 
 nuligebla—kiam oni scias la kielon kaj havas la
 
@@ -5249,9 +5173,7 @@ kies nomo estis Heŭreka.
 
 “Mi devas tuj trovi la Sorĉiston!” diris la Vitra Kato.
 
-“Do serĉu lin,” konsilis Heŭreka, kaj ĝi reendorm-
-
-iĝis.
+“Do serĉu lin,” konsilis Heŭreka, kaj ĝi reendormiĝis.
 
 La Vitra Kato rapidis supren laŭ la ŝtuparo kaj
 
@@ -5274,9 +5196,7 @@ al la Granda Arbaro en la Manĝtula Lando.”
 
 “Ve,” diris la Vitra Kato; “tre longa veturo.”
 
-“Sed ili rajdas la Malsatan Tigron kaj la Mal-
-
-kuraĝan Leonon,” klarigis Toto, “kaj la Sorĉisto
+“Sed ili rajdas la Malsatan Tigron kaj la Malkuraĝan Leonon,” klarigis Toto, “kaj la Sorĉisto
 
 kunportas sian Nigran Valizon da Magiiloj.”
 
@@ -5395,9 +5315,7 @@ Kiam la Vitra Kato atingis la liberan spacon, ĝi
 
 vidis Vulpon, Ŝafidon, Kuniklon, Manĝtulan knabon
 
-kaj dikan Gilikulinon, kiuj ĉiuj vagadas kvazaŭ-
-
-hazarde, ĉar denove ili serĉas la Nigran Valizon de
+kaj dikan Gilikulinon, kiuj ĉiuj vagadas kvazaŭhazarde, ĉar denove ili serĉas la Nigran Valizon de
 
 Magiiloj.
 
@@ -5497,9 +5415,7 @@ ni povus facile trovi lin se ni dezirus.”
 
 “Plej malbone,” diris la Sorĉisto, “estas ke mia
 
-Nigra Valizo perdiĝis. Ĝi malaperis kiam mi trans-
-
-formiĝis. Se mi povus trovi ĝin mi povus facile nuligi
+Nigra Valizo perdiĝis. Ĝi malaperis kiam mi transformiĝis. Se mi povus trovi ĝin mi povus facile nuligi
 
 la sorĉojn per mia magio, kaj ni rericevus niajn
 
@@ -5550,9 +5466,7 @@ de li la Nigran Valizon. Eble ni sukcesos ŝteli ĝin, aŭ
 
 eble ni povos persvadi lin redoni ĝin al ni.”
 
-“Kial ne unue trovi la Anseron?” demandis Doro-
-
-teo. “La Ansero koleros pro la Magiisto, kaj eble li
+“Kial ne unue trovi la Anseron?” demandis Doroteo. “La Ansero koleros pro la Magiisto, kaj eble li
 
 povos helpi nin.”
 
@@ -5567,11 +5481,9 @@ lin ĉi tien, kie ni ĉiuj rerenkontiĝos post unu horo.”
 
 La Sorĉisto Lernas la Magian Vorton
 
-ĈAPITRO 14
+ĈAPITRO
 
-Nu, la Ansero estis la transf-
-
-ormita maljuna Rugedo, kiu
+Nu, la Ansero estis la transformita maljuna Rugedo, kiu
 
 iam estis Reĝo de la Knomoj,
 
@@ -5622,9 +5534,7 @@ alveno de la Sorĉisto timigis Kikin, kaj li ne
 
 bedaŭris ke la knabo transformis la Sorĉiston kaj
 
-Doroteon kaj senpovigis ilin. Lia propra trans-
-
-formiĝo ĉagrenis lin kaj indignigis lin, do li kuris
+Doroteon kaj senpovigis ilin. Lia propra transformiĝo ĉagrenis lin kaj indignigis lin, do li kuris
 
 tra la arbaro serĉante Kikin, por akiri pli bonan
 
@@ -5800,9 +5710,7 @@ Agoj.
 
 La Magio de Oz
 
-“Jen mia plano,” diris la Knomo al Kiki, parol-
-
-ante tiel mallaŭte ke la Sorĉisto nur povis aŭdi la
+“Jen mia plano,” diris la Knomo al Kiki, parolante tiel mallaŭte ke la Sorĉisto nur povis aŭdi la
 
 bruon de lia voĉo. “Ĉar vi povas transformi ion ajn
 
@@ -5814,9 +5722,7 @@ la Ozulojn.”
 
 “La simioj ne faros grandan armeon,” obĵetis Kiki.
 
-“Ni bezonas fortan armeon, sed ne multe-
-
-nombran,” respondis la Knomo. “Vi transformos ĉiun
+“Ni bezonas fortan armeon, sed ne multenombran,” respondis la Knomo. “Vi transformos ĉiun
 
 simion en gigantan viron, vestitan per bela uniformo
 
@@ -6004,9 +5910,7 @@ Sed ankaŭ la Knomo misprononcis la vorton, ĉar
 
 ĝi ja nur unufoje aŭdis ĝin parolata, kaj tiam la
 
-prononcmaniero estis erara. Do la Vulpo ne trans-
-
-formiĝis, sed ĝi devis forkuri por ne kaptiĝi de la
+prononcmaniero estis erara. Do la Vulpo ne transformiĝis, sed ĝi devis forkuri por ne kaptiĝi de la
 
 kolera Knomo.
 
@@ -6087,7 +5991,7 @@ mi supozas ke ili ankoraŭ staras en la arbaro.”
 
 La Soleca Anaso
 
-ĈAPITRO 15
+ĈAPITRO
 
 Trot kaj Kap’tano Vilĉjo staris
 
@@ -6269,9 +6173,7 @@ alia. La Kap’tano ĉesis manĝi nelonge por pluki belan
 
 La Magio de Oz
 
-kantalupon, kiun li tenis sub la brako, kaj Trot, fin-
-
-manĝinte siajn prunojn, prenis manplenon da ĉerizoj
+kantalupon, kiun li tenis sub la brako, kaj Trot, finmanĝinte siajn prunojn, prenis manplenon da ĉerizoj
 
 kaj oranĝon; sed kiam preskaŭ ĉiu specio de fruktoj
 
@@ -6295,9 +6197,7 @@ knabino. “Mi ne estas feino aŭ sorĉistino aŭ ia
 
 magiulino.”
 
-“Verŝajne,” respondis Kap’tano Vilĉjo, “ĉi tiu insul-
-
-eto estas magia insulo, kaj kiu ajn sur ĝi povas ordoni
+“Verŝajne,” respondis Kap’tano Vilĉjo, “ĉi tiu insuleto estas magia insulo, kaj kiu ajn sur ĝi povas ordoni
 
 al la arbusto kion ĝi produktu, kaj ĝi produktas tion.”
 
@@ -6642,9 +6542,7 @@ Tamen eĉ dum li parolis la velisto sentis ion tuŝi
 
 lin malantaŭe, kaj, turninte sian kapon, li trovis ke
 
-granda agariko estas precize ĝustaloke kaj ĝusta-
-
-dimensia por sido. Ankaŭ troviĝis similaĵo malantaŭ
+granda agariko estas precize ĝustaloke kaj ĝustadimensia por sido. Ankaŭ troviĝis similaĵo malantaŭ
 
 
 La Magio de Oz
@@ -6674,7 +6572,7 @@ gracie fornaĝis.
 
 La Vitra Kato Trovas la Nigran Valizon
 
-ĈAPITRO 16
+ĈAPITRO
 
 Kiam Kiki Aru transformis
 
@@ -6925,9 +6823,7 @@ Floron kiel naskiĝtagan donacon por Ozma kaj ke
 
 ilin kaptis la magio de la stranga insulo. La Sorĉiston
 
-vere alarmis la raporto, sed li kapneis kaj diris mal-
-
-feliĉe:
+vere alarmis la raporto, sed li kapneis kaj diris malfeliĉe:
 
 “Mi timas ke mi ne povos helpi miajn karajn
 
@@ -7033,9 +6929,7 @@ kio devigus ilin batali kaj mordi.”
 
 “La popolo ne vidos ilin antaŭ la naskiĝtaga festeno
 
-de Ozma,” promesis la Sorĉisto. “Mi multe mal-
-
-grandigos ilin—ĝis dekcentimetra alto, kaj mi gardos
+de Ozma,” promesis la Sorĉisto. “Mi multe malgrandigos ilin—ĝis dekcentimetra alto, kaj mi gardos
 
 ilin en bela kaĝo en mia propra ĉambro, kie ili estos
 
@@ -7150,9 +7044,7 @@ la Sorĉisto, sed kiam la fumo forvaporis montriĝis ke
 
 la telero ŝanĝiĝis en oran kaĝon kun arĝentaj stangoj,
 
-kaj la dek du simioj fariĝis proksimume ok centi-
-
-metrojn altaj kaj sidas komforte en la kaĝo.
+kaj la dek du simioj fariĝis proksimume ok centimetrojn altaj kaj sidas komforte en la kaĝo.
 
 La miloj da vilaj bestoj kiuj vidis tiun magian agon
 
@@ -7208,7 +7100,7 @@ en la Smeralda Urbo.”
 
 Rimarkinda Veturo
 
-ĈAPITRO 17
+ĈAPITRO
 
 “Komprenu,” klarigis la Vitra
 
@@ -7595,9 +7487,7 @@ rekomencis sian veturon.
 
 ĝi diris ke neniu magio povos savi Troton kaj
 
-Kap’tanon Vilĉjon?” demandis la knabino per mal-
-
-trankvila tono.
+Kap’tanon Vilĉjon?” demandis la knabino per maltrankvila tono.
 
 “Ne, mi ne kredas ke la Soleca Anaso pravis kiam
 
@@ -7617,9 +7507,7 @@ de la rivero, ili povis vidi la Magian Insulon.
 
 “Jen ili!” kriis Doroteo fervore.
 
-“Jes, mi vidas ilin,” respondis la Sorĉisto, kapjes-
-
-ante. “Ili sidas sur du grandaj agarikoj.”
+“Jes, mi vidas ilin,” respondis la Sorĉisto, kapjesante. “Ili sidas sur du grandaj agarikoj.”
 
 “Estas strange,” komentis la Vitra Kato. “Ne estis
 
@@ -7692,7 +7580,7 @@ valizon kaj komencis fari siajn preparojn.
 
 La Magio de la Sorĉisto
 
-ĈAPITRO 18
+ĈAPITRO
 
 Li unue starigis malgrandan
 
@@ -7973,7 +7861,7 @@ Vilĉjon.”
 
 Doroteo kaj la Burdoj
 
-ĈAPITRO 19
+ĈAPITRO
 
 Doroteo multe malfeliĉis kaj
 
@@ -8010,13 +7898,9 @@ la agarikoj kaj malgrandiĝante pli kaj pli.
 
 Subite Doroteo diris: “Sorĉisto, mi elpensis ion!”
 
-“Kion vi elpensis?” li demandis, rigardante la knab-
+“Kion vi elpensis?” li demandis, rigardante la knabineton interesate.
 
-ineton interesate.
-
-“Ĉu vi povas memori la Magian Vorton kiu trans-
-
-formas?” ŝi demandis.
+“Ĉu vi povas memori la Magian Vorton kiu transformas?” ŝi demandis.
 
 “Kompreneble,” diris li.
 
@@ -8188,15 +8072,11 @@ super la leda plandumo.
 
 reiros al tiu insulo.”
 
-“Kaj refariĝos sorĉita?” kriis Trot, evidente mal-
-
-aprobe.
+“Kaj refariĝos sorĉita?” kriis Trot, evidente malaprobe.
 
 “Ne; ĉifoje mi evitos la magion de la insulo. Mi
 
-rimarkis ke mia ligna kruro ne fiksiĝis, nek enradik-
-
-iĝis, nek la vitraj piedoj de la Vitra Kato. Nur ion el
+rimarkis ke mia ligna kruro ne fiksiĝis, nek enradikiĝis, nek la vitraj piedoj de la Vitra Kato. Nur ion el
 
 viando—kia homo kaj bestoj—la magio povas teni kaj
 
@@ -8329,7 +8209,7 @@ al Ozma, por ke ŝi sciu kiom bone vi kondutis.”
 
 Problemo por la Simioj
 
-ĈAPITRO 20
+ĈAPITRO
 
 “Nun,” diris la Sorĉisto, “ni
 
@@ -8358,9 +8238,7 @@ minuton.”
 
 Ĉapitro Dudek
 
-“Ĉu ni ne povus meti ĝin sur vian dorson?” Doro-
-
-teo demandis al la Malkuraĝa Leono, kun amikema
+“Ĉu ni ne povus meti ĝin sur vian dorson?” Doroteo demandis al la Malkuraĝa Leono, kun amikema
 
 oscedo.
 
@@ -8530,9 +8408,7 @@ baldaŭ trovis ke la fleksiĝo de la stangoj ebligis ke ili
 
 Ĉapitro Dudek
 
-trapremu sin. Tamen ili ne eliris el la kaĝo, sed kun-
-
-flustrinte ili eletendis siajn vostojn kaj ĉio estis kvieta.
+trapremu sin. Tamen ili ne eliris el la kaĝo, sed kunflustrinte ili eletendis siajn vostojn kaj ĉio estis kvieta.
 
 Baldaŭ la Vitra Kato kaŝe proksimiĝis denove al ilia
 
@@ -8712,7 +8588,7 @@ kiel normale. Sed ŝi ŝajnigis ne vidi ilin, kaj ili pasis
 
 La Kolegio de Atletaj Artoj
 
-ĈAPITRO 21
+ĈAPITRO
 
 D o r o t e o k a j ŝ i a j a m i k o j
 
@@ -8720,9 +8596,7 @@ atingis la Reĝan Palacon
 
 oportuntempe, ĉar Ozma
 
-formale oficis en sia Trono-
-
-ĉambro, kie Profesoro M. P.
+formale oficis en sia Tronoĉambro, kie Profesoro M. P.
 
 Ŝancelinsekto P. E. petas ŝin
 
@@ -8747,9 +8621,7 @@ tempon al atleta ekzercado, kia boatado, futbalo, k.s.,
 
 Profesoro Ŝancelinsekto inventis aron da Lernopiloloj.
 
-Unu tia pilolo, manĝite de studento post la maten-
-
-manĝo, tuj ebligis ke li komprenu aritmetikon aŭ
+Unu tia pilolo, manĝite de studento post la matenmanĝo, tuj ebligis ke li komprenu aritmetikon aŭ
 
 algebron aŭ iun alian branĉon matematikan. Alia
 
@@ -8820,9 +8692,7 @@ manĝi la Kompletmanĝajn Pilolojn. Profesoro
 
 kaptis la erudician Profesoron unu tagon kaj ĵetis lin
 
-en la riveron—plene vestitan. Ĉiu scias ke ŝancel-
-
-insekto ne scipovas naĝi, do la inventinto de la
+en la riveron—plene vestitan. Ĉiu scias ke ŝancelinsekto ne scipovas naĝi, do la inventinto de la
 
 mirindaj Kompletmanĝaj Piloloj kuŝis senhelpe sur la
 
@@ -8917,7 +8787,7 @@ Ozma.
 
 La Naskiĝtaga Festo de Ozma
 
-ĈAPITRO 22
+ĈAPITRO
 
 Ŝajnas strange ke feino havas
 
@@ -9092,9 +8962,7 @@ la Lando de la Kveluloj, kiel ankaŭ en la Smeralda
 
 Urbo. Ne ĉiuj homoj povis iri gratuli sian Reganton,
 
-sed ĉiuj povis festi ŝian naskiĝtagon, unu- aŭ ali-
-
-maniere, negrave kiom malproksime de ŝia palaco ili
+sed ĉiuj povis festi ŝian naskiĝtagon, unu- aŭ alimaniere, negrave kiom malproksime de ŝia palaco ili
 
 
 Ĉapitro Dudek Du
@@ -9376,9 +9244,7 @@ partoprenis en la ĝojo. Sed post la danco la simioj
 
 faris kelkajn mirindajn akrobataĵojn, kaj poste ili kuris
 
-al la kavo de la kuko kaj elprenis kelkajn band-
-
-instrumentojn el polurita oro—kornetojn, trumpetojn,
+al la kavo de la kuko kaj elprenis kelkajn bandinstrumentojn el polurita oro—kornetojn, trumpetojn,
 
 tamburojn, k.s.—kaj forminte procesion la simioj
 
@@ -9444,11 +9310,9 @@ ilin.
 
 La Fonto de Forgeso
 
-ĈAPITRO 23
+ĈAPITRO
 
-La matenon post la naskiĝ-
-
-taga festo, dum la Sorĉisto kaj
+La matenon post la naskiĝtaga festo, dum la Sorĉisto kaj
 
 D o r o t e o p r o m e n i s e n l a
 
@@ -9540,9 +9404,7 @@ kvankam ili eble montriĝos magiistoj kaj niaj
 
 malamikoj.”
 
-“Mi ne estas egale certa pri tio,” protestis la Sorĉ-
-
-isto, kun skuiĝo de sia kalva kapo. “La unusola peco
+“Mi ne estas egale certa pri tio,” protestis la Sorĉisto, kun skuiĝo de sia kalva kapo. “La unusola peco
 
 de magio kiun mi forprenis de ili—nome, la Vorto de
 

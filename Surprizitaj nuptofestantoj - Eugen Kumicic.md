@@ -26,26 +26,20 @@ I
 
 En la paroą preĝejo de Luĉica la maljuna pastro don Jure
 
-Ratkoviĉ legis mallaŭtan diservon. Al li respondadis mal-
-
-forta, malsupren fleksita maljunuleto, la pedelo Fran. Estis antaŭkristnaska sezono. Forta vento, furioza tempesto muĝis kaj knaris ĉirkaŭ la preĝejo. La pastro kaj la pedelo rigardis al la vitroj de la altaj fenestroj apud la altaro, kiuj tremis kaj skuiĝis pro la vento. Jam tagiĝis. La palaj flamoj de la vaks-kandeloj sur la altaro senĉese tremetas. Frosta aero cirkulas en la malgranda preĝejo, kaj humida malvarmo leviĝadas de sur la pavimita, frotita planko. En la preĝejo troviĝas kelkaj kriptoj, kaj sur ĝiaj ŝtonaj kovriloj estas ĉizitaj mortintokra-nioj kaj sub ili longecaj fort-artikaj ostoj. ĉi tiuj ostoj certe prezentas brakojn de mortinto. La piedoj de piaj Luĉicanoj forfrotis ankaŭ la ŝtonajn kovrilojn kaj la ĉizitajn kraniojn kaj la ostojn.
+Ratkoviĉ legis mallaŭtan diservon. Al li respondadis malforta, malsupren fleksita maljunuleto, la pedelo Fran. Estis antaŭkristnaska sezono. Forta vento, furioza tempesto muĝis kaj knaris ĉirkaŭ la preĝejo. La pastro kaj la pedelo rigardis al la vitroj de la altaj fenestroj apud la altaro, kiuj tremis kaj skuiĝis pro la vento. Jam tagiĝis. La palaj flamoj de la vaks-kandeloj sur la altaro senĉese tremetas. Frosta aero cirkulas en la malgranda preĝejo, kaj humida malvarmo leviĝadas de sur la pavimita, frotita planko. En la preĝejo troviĝas kelkaj kriptoj, kaj sur ĝiaj ŝtonaj kovriloj estas ĉizitaj mortintokra-nioj kaj sub ili longecaj fort-artikaj ostoj. ĉi tiuj ostoj certe prezentas brakojn de mortinto. La piedoj de piaj Luĉicanoj forfrotis ankaŭ la ŝtonajn kovrilojn kaj la ĉizitajn kraniojn kaj la ostojn.
 
 Al la meso venis kelkaj virinoj kiuj surgenuis sen ordo en la nigriĝintaj kaj vermotruaj benkoj. Iom for de la virinoj en unu angulo genuis maljunulo, envolvita en varman kaj longan vintran surtuton. La alta kolumo de la mantelo, en kiun la tuta homo sintiriĝis, estis levita. Nur la verto de la griza kapo videblis. Li mallevis ĝin sur la brakojn, kiujn li metis sur la benkon antaŭ si, ŝovinte unu manon en vastan manikon de
 
 la alia.
 
-Jam pasis kelkaj minutoj depost kiam la sonorilo ektintis 3
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Jam pasis kelkaj minutoj depost kiam la sonorilo ektintis
 
 
 signante la komencon de la meso, la pastro jam kelkfoje turnis sin ĉe la altaro, kaj tiam virino haste eniris la preĝejon. La maljunulino ne fermis la pordon tuj post si, la malvarma frapo de la vento envadis la preĝejon kaj trafis la kalvan pikilforman kapon de la maljuna sonorigisto.
 
 —Baptanino, ĉu vi hejme ne havas pordon? ĉu decas veni
 
-en la preĝejon nun? Estas jam la epistola momento! — ek-
-
-murmuris la sonorigisto, turnante sin al la virino kiu forgesis fermi la pordon.
+en la preĝejon nun? Estas jam la epistola momento! — ekmurmuris la sonorigisto, turnante sin al la virino kiu forgesis fermi la pordon.
 
 —Fran, mallaŭte, mallaŭte! La pastro flustrante admonis la sonorigiston.
 
@@ -61,17 +55,11 @@ Kiam la pastro venis en la sakristion, li senvestis sin kaj spirblovinte en la m
 
 —Malvarme, malvarme kara Fran!
 
-—Kion fari kontraŭ tio, sinjoro! Nenio stranga, ja Kristnasko estos post kelkaj tagoj. ĉio en sia propra tempo! — kura-
-
-ĝigis sin la maljunuleto vagante tra la sakristio.
+—Kion fari kontraŭ tio, sinjoro! Nenio stranga, ja Kristnasko estos post kelkaj tagoj. ĉio en sia propra tempo! — kuraĝigis sin la maljunuleto vagante tra la sakristio.
 
 —Fran, mi dirus, ke vi iomete tremas!
 
-—Mi… mi, sinjoro? is kiam la benita akvo en la aspergi-
-
-lo ne glaciiĝas, ĝis tiam Fran vintron ne konas! Alispecan vin-4
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Mi… mi, sinjoro? is kiam la benita akvo en la aspergilo ne glaciiĝas, ĝis tiam Fran vintron ne konas! Alispecan vin-4
 
 
 tron mi trasuferis en Odesa, — mansvingis Fran kaj eklulis sin sur siaj kruroj.
@@ -82,53 +70,32 @@ tron mi trasuferis en Odesa, — mansvingis Fran kaj eklulis sin sur siaj kruroj
 
 sonorigisto, rememorante pri siaj junaĝaj jaroj, kiujn li travi-vis surmare.
 
-—Nu, nu, Fran, ankaŭ mi iom trasuferis! — asertis la pas-
-
-tro kaj tuj daŭrigis: — Hodiaŭ la maljuna Tomo povas doni al vi du glasetojn da brando…
+—Nu, nu, Fran, ankaŭ mi iom trasuferis! — asertis la pastro kaj tuj daŭrigis: — Hodiaŭ la maljuna Tomo povas doni al vi du glasetojn da brando…
 
 —Bona homo! He, facile al li!
 
-—ĉu Tomo ĉeestis la meson? Mi eksciis, ke li iom malsa-
-
-nas.
+—ĉu Tomo ĉeestis la meson? Mi eksciis, ke li iom malsanas.
 
 —Kio damaĝas lin? Li tenacas kiel vera siliko! ŝajnas ke li estas almenaŭ dek jarojn pli juna ol mi. Jes, jes vera siliko! Ja mi konjektas, ke nin ne forpelos mortigulo; oni devos mortigi nin per maleo. Se mi tiel bonfartus kiel Tomo, mi ĝisvivus la centan jaron! — findiris Fran spirblovante en siajn manojn.
 
-La paroęstro poste foriris hejmen, dum la pedelo fermin-
-
-te la pordojn, fortrenis sin malantaŭ la preĝejon por vidi, kiel aspektas la maro.
+La paroęstro poste foriris hejmen, dum la pedelo ferminte la pordojn, fortrenis sin malantaŭ la preĝejon por vidi, kiel aspektas la maro.
 
 Sur la orienta bordo de Istrio, sur alta klifo, sur tenaca ro-ko, kiu el la maro vertikale leviĝas, ariĝis ĝis ĉirkaŭ kvindek domoj de la urbeto Luĉica. La urbeto situas super la maro kvarcent futojn alte. ia bordo ravigas ĉies okulon per sia sovaĝa kaj trista beleco. i tuta estas kruta, nur kelkloke ali-rebla. La rokan deklivon sekvas kalva klifo, mistera plantaro intime verdas ĝis la posta promontoro, kiu etendas sin en la maron kvazaŭ malglata langego. Malantaŭ la promontoro
 
-malfermiĝas malviva golfo, kaj sub la grandegaj krutaĵoj blan-5
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-kas fajna sablo sur la malprofunda strando. El la tenebra ma-ro, malantaŭ la interrokaĵo leviĝas teruraj striitaj elstarantaj klifoj kaj malglataj ŝtontraboj, sur kiuj kaŭras korvoj kaj grizaj kolomboj. uste super la marnivelo gapas mallumaj aper-turoj de humidaj kavernoj al la golfeto. Dumtajde la akvo transverŝas sin muĝe bruante. Fore de la maro verdas malof-taj arbaretoj; malaltaj piceoj videbletas el inter la gruzo kaj ŝtonaro. Inter la ŝtonbaraĵoj ŝovas sin el la ŝtonaro unuopaj olivarboj, ie-ie ankaŭ ope. La flavaj riveretoj, trafosintaj al si flueojn inter la rokoj de la kalvaj klifoj, krute malsupreniĝas en la maron, dividante unu rokon de la alia, kiuj aspektas kvazaŭ nigraj fortikaĵoj, se oni nokte observas ilin de sur la maro. ĉiu rivereto dumsomere senakviĝas.
+malfermiĝas malviva golfo, kaj sub la grandegaj krutaĵoj blankas fajna sablo sur la malprofunda strando. El la tenebra ma-ro, malantaŭ la interrokaĵo leviĝas teruraj striitaj elstarantaj klifoj kaj malglataj ŝtontraboj, sur kiuj kaŭras korvoj kaj grizaj kolomboj. uste super la marnivelo gapas mallumaj aper-turoj de humidaj kavernoj al la golfeto. Dumtajde la akvo transverŝas sin muĝe bruante. Fore de la maro verdas malof-taj arbaretoj; malaltaj piceoj videbletas el inter la gruzo kaj ŝtonaro. Inter la ŝtonbaraĵoj ŝovas sin el la ŝtonaro unuopaj olivarboj, ie-ie ankaŭ ope. La flavaj riveretoj, trafosintaj al si flueojn inter la rokoj de la kalvaj klifoj, krute malsupreniĝas en la maron, dividante unu rokon de la alia, kiuj aspektas kvazaŭ nigraj fortikaĵoj, se oni nokte observas ilin de sur la maro. ĉiu rivereto dumsomere senakviĝas.
 
 La bordo de Luĉica aspektas grandioze kaj tristece. Se oni admiras ĝin, sidante fore en barko, oni ne povas perokule sufiĉe ĝui pro la teruraj klifegoj. La grizaj kaj akraj krutaĵoj ne povas la koron ĝojigi, nek vigligi, nek mildigi. Se oni rigardas ilin dum ili kviete en la maro speguliĝas, la animo trankvilas, la koro batas pli lante, dolĉaj kaj sensonaj sentoj enfluas la bruston, kaj la okulrigardo malleviĝas laŭ la krutaĵoj al la ravaj profundoj, kie rebrilas la lazura ĉielvolbo. La maro prezentas sin kiel nemezurebla senfino, samkiel la ĉielo mem.
 
-Observante la tenebrajn ŝtontrabojn kaj rokojn, kiel ili longiĝas kaj malaperas en la senfinon sub la nigra barketo, la penso mergiĝas pli kaj pli profunden, ĝis kiam ĝi subite ĉesas animtreme… La fiŝo klupeo ekplaŭdis sur la kvieta su-
-
-praĵo, oni ektremetas, la spirito kursvingiĝas en la malvar-majn profundojn, timo ekokupas la koron, ĉar oni opinias, ke ĉio ĉirkaŭa estas sorĉita ĝiseterne, ke nenie ekzistas vivo. La okulo ankoraŭ vagas en la bluaj profundoj; sed kiam oni ri-6
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Observante la tenebrajn ŝtontrabojn kaj rokojn, kiel ili longiĝas kaj malaperas en la senfinon sub la nigra barketo, la penso mergiĝas pli kaj pli profunden, ĝis kiam ĝi subite ĉesas animtreme… La fiŝo klupeo ekplaŭdis sur la kvieta supraĵo, oni ektremetas, la spirito kursvingiĝas en la malvar-majn profundojn, timo ekokupas la koron, ĉar oni opinias, ke ĉio ĉirkaŭa estas sorĉita ĝiseterne, ke nenie ekzistas vivo. La okulo ankoraŭ vagas en la bluaj profundoj; sed kiam oni ri-6
 
 
 markas aron da mevoj, kaj kiam oni aŭdas super la kapo su-suron de la flugiloj, ilian ĉirpon, oni ekobservas la ĉielon sekvante la flugon de la liberaj mevoj, oni enluliĝas en sentimen-talajn pensojn…
 
-Spirante tiun prispicitan kaj salecan odoron de la marak-
-
-vo, oni pensas tute pri nenio…
+Spirante tiun prispicitan kaj salecan odoron de la marakvo, oni pensas tute pri nenio…
 
 ĉe la norda flanko de la urbo Luĉica staras la malnova pa-roą preĝejo inter la maristaj domoj kaj la duone ruiniĝinta murego, kiu estas for de la preĝejo je kvino da paŝoj. ĉi tiu, per hedero ĉirkaŭkreskita murego, per kiu en la antikvaj tempoj estis ĉirkaŭbarita tuta Luĉica, nun leviĝas nur ĉe la norda flanko. En la fendiĝinta murego troviĝas pluraj breĉoj kaj truoj, kie la tempesto grincas kiel serpento en fendaĵo. Se oni ŝovas la kapon en iun de tiuj breĉoj, oni povas vidi preskaŭ la tutan golfon de Rijeka kaj la ŝtonozajn kaj per tempesto razitajn montojn, kiuj etendas sin de Uĉka ĝis Senj.
 
-La sonorigisto Fran, lulante sin sur la feblaj kaj kurbaj kruroj, venis ĝis tiuj breĉoj; sed enŝovinte sian pikilforman kapon en iun el ili, li tuj retiris ĝin. La malvarma kaj furioza frapo de la vento fermigis liajn okulojn. Muĝante kaj fajfante la tempesto ĵetadas sablon kaj polvon de sur la rando de la murego. i roras tra la mallarĝaj breĉoj kaj ululas tra la truoj. i tremi-gas kaj skuigas la oldan hederon kaj kirlas la balaaĵon en la anguloj de malvasta strateto. La sonorigisto, tenante sian bluan nazon, klopodas ĵeti rigardon al la maro. Li volas vidi, ĉu malfeliĉe boato en la golfo troviĝas; sed la vento akre pikas la vizaĝon kaj senkompate frapas la palpebrojn. Jen li en-
-
-ŝovas la kapon en la truon, jen li haste eltiras ĝin. La razitaj kaj sulkigitaj vangoj nigriĝis violkolore pro la malvarmo; la mallarĝaj lipoj, turnitaj en la buŝon trans la sendenta makzelo 7
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La sonorigisto Fran, lulante sin sur la feblaj kaj kurbaj kruroj, venis ĝis tiuj breĉoj; sed enŝovinte sian pikilforman kapon en iun el ili, li tuj retiris ĝin. La malvarma kaj furioza frapo de la vento fermigis liajn okulojn. Muĝante kaj fajfante la tempesto ĵetadas sablon kaj polvon de sur la rando de la murego. i roras tra la mallarĝaj breĉoj kaj ululas tra la truoj. i tremi-gas kaj skuigas la oldan hederon kaj kirlas la balaaĵon en la anguloj de malvasta strateto. La sonorigisto, tenante sian bluan nazon, klopodas ĵeti rigardon al la maro. Li volas vidi, ĉu malfeliĉe boato en la golfo troviĝas; sed la vento akre pikas la vizaĝon kaj senkompate frapas la palpebrojn. Jen li enŝovas la kapon en la truon, jen li haste eltiras ĝin. La razitaj kaj sulkigitaj vangoj nigriĝis violkolore pro la malvarmo; la mallarĝaj lipoj, turnitaj en la buŝon trans la sendenta makzelo
 
 
 kuntiriĝis eĉ pli, kaj la elstaranta mentono etendas sin en la venton kvazaŭ intencanta trahaki kaj malfortigi ĝin. La sonorigisto havas longan kolon, kaj kiam li entiras ĝin inter siajn ŝultrojn, la olda nigriĝinta haŭto faldiĝas kaj sulkiĝas kiel ĉe la kolo de testudo, kiam ĝi retiras la kapon sub sian kirason.
@@ -145,18 +112,12 @@ palpebrojn. Nun ŝajnis aperi io en la fumo de la furiozaj ondoj; sed tio ne est
 
 La maljuna Fran nun fortrenis sin, haste lulante, al Tomo Bariloviĉ, al la riĉa negocisto, por sciigi, kion li vidis surmare, kaj por trinki glaseton da brando. La domo de la negocisto staras proksime de la preĝejo.
 
-La maljuna Tomo, sidante apud la fajrejo sur malalta ben-
-
-keto, varmigas siajn manojn ĉe la granda flamo, kiu alten krakas inter du aŭ tri grandaj potoj. La plenpufaj, glataj kaj ruĝaj vangoj malverigas la fakton, ke la maljunulon premas sepde-ko da jaroj. Lia edzino Tonka, maljunulino kun malgranda kaj 8
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La maljuna Tomo, sidante apud la fajrejo sur malalta benketo, varmigas siajn manojn ĉe la granda flamo, kiu alten krakas inter du aŭ tri grandaj potoj. La plenpufaj, glataj kaj ruĝaj vangoj malverigas la fakton, ke la maljunulon premas sepde-ko da jaroj. Lia edzino Tonka, maljunulino kun malgranda kaj
 
 
 rekta staturo, aranĝas potojn ĉirkaŭ la fajro kaj koleras pro la fumo en la kuirejo.
 
-—Bonan matenon! — ekmurmuris la sonorigisto, balanci-
-
-ĝinte en la kuirejon. Lia buŝo moviĝis kvazaŭ maĉanta ion.
+—Bonan matenon! — ekmurmuris la sonorigisto, balanciĝinte en la kuirejon. Lia buŝo moviĝis kvazaŭ maĉanta ion.
 
 —Burasko, burasko, kara Fran! Verdire, mi ĉinokte sentis
 
@@ -168,13 +129,9 @@ muĝis, nek tondris en la kamentubo kiel nun. Al diablo, ĉi fumo; ĝi elmordos 
 
 —Vi havas ĉion, ĉion, kara baptanjo, sed kia utilo de figoj, ĉar mi ne havas dentojn, — plendis Fran, montrante perfingre sian sendentan makzelon.
 
-—Maljunaj, jes maljunaj ni estas jam, kara Fran! — kapje-
+—Maljunaj, jes maljunaj ni estas jam, kara Fran! — kapjesas Tonka.
 
-sas Tonka.
-
-— Kiom ajn ni estas maljunaj, tian tempeston ni ne travi-
-
-vis ankoraŭ. i tiel disflamis, ke la maro bolas, ĝi tondras kaj tremas, kvazaŭ ĝi detruos la kampanilon. ĵus mi venis el depost la kirko; io malbona okazas, velo vidiĝas en la maro.
+— Kiom ajn ni estas maljunaj, tian tempeston ni ne travivis ankoraŭ. i tiel disflamis, ke la maro bolas, ĝi tondras kaj tremas, kvazaŭ ĝi detruos la kampanilon. ĵus mi venis el depost la kirko; io malbona okazas, velo vidiĝas en la maro.
 
 —ĉu, pro Dio! Dum tia vetero! — miras Tomo.
 
@@ -187,14 +144,9 @@ trafis ilin! — balbutas la sonorigisto.
 —Ve al ĉiu, kiu hodiaŭ ne estas sub sia tegmento! — vespiras Tonka.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Fran, vi certe trompiĝis, tio nur ŝajnis al vi, — rimarkis Tomo.
 
-—Kunprenu la lornon, baptano, kaj ni ekiru, ke vi konvin-
-
-kiĝu, — rediris Fran, rigardante la manojn de la baptanino, kiu portas botelon kun la brando.
+—Kunprenu la lornon, baptano, kaj ni ekiru, ke vi konvinkiĝu, — rediris Fran, rigardante la manojn de la baptanino, kiu portas botelon kun la brando.
 
 —Mi ja diris, mi jam vespere diris, kiam komencis muĝi, ke la tempesto ne pasos sen akcidento. Dio scias, kion signifas ĉi tiu vento!
 
@@ -218,27 +170,18 @@ En tiu momento haste venis al la sojlo de la kuirejo junu-lo stature malalta kaj
 
 —Kio okazis, Antonio? — demandas Tomo la junulon.
 
-—Barko surmare, — respondis Antonio basvoĉe, daŭre sta-
-
-rante sur la sojlo kaj kructenante fortajn brakojn antaŭ la lar-
+—Barko surmare, — respondis Antonio basvoĉe, daŭre starante sur la sojlo kaj kructenante fortajn brakojn antaŭ la lar-
 
 ĝa dekoltita brusto.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —ĉu vi, Antonio, ŝatus iom da brando? — proponis al li
 
 Tomo.
 
-—Ne. Barko estas surmare, — li svingis per sia iom gran-
+—Ne. Barko estas surmare, — li svingis per sia iom granda kapo, de kiu montriĝis nigra kaj vila hararo el sub la marista malpura ĉapo.
 
-da kapo, de kiu montriĝis nigra kaj vila hararo el sub la marista malpura ĉapo.
-
-ŝajnas, kvazaŭ la granda kapo premas la mallongan, tena-
-
-can kolon. La vestaĵo de Antonio estas ĉifonita, ie eĉ fliko fli-kon kovras. Estas furioza malvarmo, sed li kvazaŭ ne sentas
+ŝajnas, kvazaŭ la granda kapo premas la mallongan, tenacan kolon. La vestaĵo de Antonio estas ĉifonita, ie eĉ fliko fli-kon kovras. Estas furioza malvarmo, sed li kvazaŭ ne sentas
 
 ĝin, ĉar la pantalono sur unu gambo estas kuspita ĝisgenue.
 
@@ -254,16 +197,9 @@ Tonka, ekrigardante al lia nigreca vizaĝo kaj lia mallonga vila barbo, diris:
 
 —Jes, ĝi frakasiĝos! ree diris Antonio, kaj liaj okuloj ekbrilis. La okuloj estas grandaj, nigraj kaj brilaj.
 
-Tomo kaj Antonio nun ekiris al la malnova murego, kie ili renkontis kelkajn maristojn, traktantaj pri la sorto de la barko. Tomo preninte unue inter la genuojn la baskojn de la lar-
+Tomo kaj Antonio nun ekiris al la malnova murego, kie ili renkontis kelkajn maristojn, traktantaj pri la sorto de la barko. Tomo preninte unue inter la genuojn la baskojn de la larĝa kaj longa palto, por ke la vento ne faldu ilin, metis en unu breĉon de la murego flavan lornon, rimarkis la barkon kaj spektante ĝin diris al la aliaj:
 
-ĝa kaj longa palto, por ke la vento ne faldu ilin, metis en unu breĉon de la murego flavan lornon, rimarkis la barkon kaj spektante ĝin diris al la aliaj:
-
-—Ili pereis, pereis! ŝajnas, ke ĝi estas Istria barko, jes, de nia bordo. i estas malgranda kutro. i havas nur parton de velo, nu jen, jen, la barko turniĝas al ĉiuj direktoj; certe la stirilo rompiĝis. Jes, ili pereis. La vento kaj la ondoj laŭplaĉe portas la barkon; sed aŭdu, homoj, al mi ŝajnas, ke ili tro mal-11
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-rapide moviĝas. Mi vetus, ke ili trenas, ke ili elklusas la ankron post si de sur la poŭpo.
+—Ili pereis, pereis! ŝajnas, ke ĝi estas Istria barko, jes, de nia bordo. i estas malgranda kutro. i havas nur parton de velo, nu jen, jen, la barko turniĝas al ĉiuj direktoj; certe la stirilo rompiĝis. Jes, ili pereis. La vento kaj la ondoj laŭplaĉe portas la barkon; sed aŭdu, homoj, al mi ŝajnas, ke ili tro malrapide moviĝas. Mi vetus, ke ili trenas, ke ili elklusas la ankron post si de sur la poŭpo.
 
 —Eble neniu troviĝas en la barko. La forteco de la maro, la ondoj eble forportis ilin de sur la ferdeko, — rimarkis fosisto.
 
@@ -271,31 +207,20 @@ rapide moviĝas. Mi vetus, ke ili trenas, ke ili elklusas la ankron post si de s
 
 — Homoj, ne babilu, pri sensencaĵoj! ĉu vi opinias, ke mi vane fordonis tri orajn frankojn por mia lorno? Ja mi vidas ilin, kvazaŭ sur mia manplato. Jes, jes, kvaropo ariĝis sur la poŭpo.
 
-—Ho povraj, ho zorgoplenaj homoj! — lamentis maljunu-
+—Ho povraj, ho zorgoplenaj homoj! — lamentis maljunulino
 
-lino
-
-—Vi povis, baptanino, resti hejme, ĉe ŝpinilo, — ekgrum-
-
-blis Tomo.
+—Vi povis, baptanino, resti hejme, ĉe ŝpinilo, — ekgrumblis Tomo.
 
 —Ankaŭ mi vidas, ke ili tro malrapide moviĝas malgraŭ tia potenco de la vento. Certe ili havas ankron post la poŭpo. Ili ĵetis ĝin esperante, ke la vento ĉesos, kaj por veni ĝisborde antaŭ la tagiĝo, — asertis Antun ŝabariĉ, maljuna ŝipano.
 
-—Mi diras, ke sur la barko ne troviĝas taŭga maristo. Kiu ne taŭgas por la maro, li paŝtu siajn kaprojn hejme. Se ili havus iom da prudento, ili levus la ankron, aŭ eĉ pli, ili detran-
-
-ĉus la ŝnuron kaj direktiĝus per tia malgranda velo, sub la bordon de Cres. Tie estas malpli intensa maro kaj malplia vento, — koleris Tomo.
+—Mi diras, ke sur la barko ne troviĝas taŭga maristo. Kiu ne taŭgas por la maro, li paŝtu siajn kaprojn hejme. Se ili havus iom da prudento, ili levus la ankron, aŭ eĉ pli, ili detranĉus la ŝnuron kaj direktiĝus per tia malgranda velo, sub la bordon de Cres. Tie estas malpli intensa maro kaj malplia vento, — koleris Tomo.
 
 —He, facile al ni ĉi tie! — kapbalancis Antun ŝabariĉ.
 
 — Se ili povus veni sub ĉi tiun kabon, por ŝirmi sin en la golfeto, ĉar se ili ruliĝus al la sama direkto, ili venus ien sub la urbon, kaj tie eĉ muso ne savus sin, se iu troviĝas en la barko, — konkludis la maljuna Tomo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-La homamaso ariĝadis malantaŭ la kirko. La boato, mal-
-
-granda kutro kun unu masto, alproksimiĝante la bordon, ĝuste pasis la longecan rifan promontoron ŝipak kaj la malgrandan golfon sub ĉi tiu promontoro. En la golfeto la maro estis pli kvieta. La homoj divenadis, kien la boato venus, se tiel pelata per la vento kaj per la grandegaj ondoj.
+La homamaso ariĝadis malantaŭ la kirko. La boato, malgranda kutro kun unu masto, alproksimiĝante la bordon, ĝuste pasis la longecan rifan promontoron ŝipak kaj la malgrandan golfon sub ĉi tiu promontoro. En la golfeto la maro estis pli kvieta. La homoj divenadis, kien la boato venus, se tiel pelata per la vento kaj per la grandegaj ondoj.
 
 —Se ili ne foriĝos for de la bordo, ili frakasiĝos ĉe Sadriŝĉe, se miaj okuloj ne perfidas min, — diris Antun ŝabariĉ.
 
@@ -305,26 +230,18 @@ ekkriis la negocisto Stipe, filo de la maljuna Tomo.
 
 —Mi iras serĉi ŝnuregojn, — diris Antonio kaj forkuris kriante: — Helpon, homoj helpon! Boato, la boato rompiĝos!
 
-—Anoncu al la pastro, ke li venu al la kabo. Li benos la mi-zerulojn, li rekomendos iliajn spiritojn al la Dio, se Dio ne kompatos savi iliajn vivojn, — parolis Tomo kun ĉagrena vo-
+—Anoncu al la pastro, ke li venu al la kabo. Li benos la mi-zerulojn, li rekomendos iliajn spiritojn al la Dio, se Dio ne kompatos savi iliajn vivojn, — parolis Tomo kun ĉagrena voĉo, viŝante la larmojn de la okuloj.
 
-ĉo, viŝante la larmojn de la okuloj.
-
-La tuta urbeto maltrankviliĝis, la dompordoj malfermiĝa-
-
-dis, la homoj intervokadis sin, kuniĝadis kaj kuris portante longajn ŝnurojn sur altajn klifojn, kiuj altiĝas super la ravine-to Sadriŝĉe. ĉi tiu krutejo, ĉi tiu kaldrono, vastiĝas iom sude de la loko Luĉica, granda kvazaŭ ronda halo, kaj malfermita
+La tuta urbeto maltrankviliĝis, la dompordoj malfermiĝadis, la homoj intervokadis sin, kuniĝadis kaj kuris portante longajn ŝnurojn sur altajn klifojn, kiuj altiĝas super la ravine-to Sadriŝĉe. ĉi tiu krutejo, ĉi tiu kaldrono, vastiĝas iom sude de la loko Luĉica, granda kvazaŭ ronda halo, kaj malfermita
 
 ĝuste al la tempesto, al la nordorienta vento, tiel ke ĝi ricevas rekte la ondojn, kiuj venas en ĝin kun tiu vento. ĉe tri flankoj de la ravino la rokoj leviĝas vertikale el la maro. ĉe ĝiaj randoj la klifoj estas pli altaj ol la hororaspekta, super la maron elstaranta roko en la mezo.
 
-Jam estis la oka horo. La tago estis serena, la ĉielo travidebla. Nur super la nordorienta montaro de Kvarner kirliĝas grizaj nuboj. La malsupraj finoj de tiuj nuboj pendas kvazaŭ 13
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Jam estis la oka horo. La tago estis serena, la ĉielo travidebla. Nur super la nordorienta montaro de Kvarner kirliĝas grizaj nuboj. La malsupraj finoj de tiuj nuboj pendas kvazaŭ
 
 
 disŝiritaj purpuraj ĉifonegoj, origitaj per la ruĝo de la sunradioj. La maristoj luĉicanoj disŝutiĝis laŭ la rokoj super la ravino de Sadriŝĉe.
 
-Sur la rifo elstaranta de la kalva kabo malantaŭ Luĉica ari-
-
-ĝis kelkaj virinoj, maljunuloj kaj pli aĝaj infanoj. La vento, muĝante inter la klifoj, kuspadis la robojn ĉirkaŭ la korpojn kaj skuis la malaltajn kaj maldensajn juniperojn. La infanoj klakante per dentoj, tremante pro la malvarmo, mute rigardis la boaton. La pastro vestita kiel por sepulto, tenis en la mano malgrandan krucifikson, kaj liaj palaj lipoj lante movi-
+Sur la rifo elstaranta de la kalva kabo malantaŭ Luĉica ariĝis kelkaj virinoj, maljunuloj kaj pli aĝaj infanoj. La vento, muĝante inter la klifoj, kuspadis la robojn ĉirkaŭ la korpojn kaj skuis la malaltajn kaj maldensajn juniperojn. La infanoj klakante per dentoj, tremante pro la malvarmo, mute rigardis la boaton. La pastro vestita kiel por sepulto, tenis en la mano malgrandan krucifikson, kaj liaj palaj lipoj lante movi-
 
 ĝis, flustris ardan preĝon.
 
@@ -336,12 +253,7 @@ La barko ŝoviĝas al la bordo, ĉiuj okuloj estas direktitaj al
 
 ĝi. La kolosaj ondoj ĵetas ĝin sur siajn pintojn, lavas ĝian ferdekon, transverŝas sin tra ĝin, faligas ĝin en la konfuzajn kaj verdecajn akvovalojn. ĉirkaŭ la barko la maro bolas, la akvo kirliĝas, ĉie volviĝas fumo, ĉie disigita ŝaŭmo, muĝado, krakado, furioza horora neniigado.
 
-La homoj ne ŝiras for siajn okulojn de la malfeliĉa barko, kiun la ondoj alpelis sub la klifojn. ĉiuj klinas sin de super la rokoj, kaj la barko troviĝas sube, kvazaŭ en abismo. Kvar homoj troviĝas en ĝi; la povruloj tenas sin je la rompita floso, por ke la ondoj ne forportu ilin de sur la ferdeko, por ke la ondoj ne transverŝu ilin en la profundon. Kiam la barko res-14
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-tas sur la ondo, la suno eklekas ĝian lavitan ferdekon kaj ek-brilas ĉe ĝia nigra trunko.
+La homoj ne ŝiras for siajn okulojn de la malfeliĉa barko, kiun la ondoj alpelis sub la klifojn. ĉiuj klinas sin de super la rokoj, kaj la barko troviĝas sube, kvazaŭ en abismo. Kvar homoj troviĝas en ĝi; la povruloj tenas sin je la rompita floso, por ke la ondoj ne forportu ilin de sur la ferdeko, por ke la ondoj ne transverŝu ilin en la profundon. Kiam la barko restas sur la ondo, la suno eklekas ĝian lavitan ferdekon kaj ek-brilas ĉe ĝia nigra trunko.
 
 Fine jen la mizeruloj en la golfeto. La pastro krucsignas la barkon per la krucifikso, li benas ĝin per la sankta akvo, as-pergante la abismon. La larmoj tremetas sur lia pala vizaĝo.
 
@@ -353,12 +265,7 @@ kiel fiŝista barko. Inter la rifo kaj la nigriĝinta kaj ĉirkaŭmordita klifba
 
 Granda ondo enŝovis la barkon inter la rifon kaj la bordon, sur tiun malprofundaĵon. La barko per la masto frapis la el-starantan klifon, la masto rompiĝis kaj falis en la maron kune kun la velo. Kiam la ondo retiriĝis de sur la malprofundaĵo,
 
-ĝi kuntiris la barkon, kiu per la flanko frapis la rifon. ĉimomente la maristoj elsaltis sur la rifon. La barko rompiĝis kaj dum momento malaperis frakasita en la ondoj. La homoj super la klifoj respiris, vidinte tiujn povrulojn sur la rifo, je kiu ili gluiĝis kiel hirudoj. Sur la klifoj oni intervokas sin, ordonas, oni mallevas la ŝnuregojn en la ravinon. Nun oni povas vidi la malfeliĉajn ŝipanojn kaj la rifon, sed nun ĉio malaperas en la ŝaŭmo, kiam ondo superverŝas ilin. La vento svingas la ŝnuregojn, unu venis al la rifo. Unu ŝipano kaptis ĝin kaj en-
-
-ŝovis sin en la pretan kaptilon, kiu premis lin sub la akseloj.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+ĝi kuntiris la barkon, kiu per la flanko frapis la rifon. ĉimomente la maristoj elsaltis sur la rifon. La barko rompiĝis kaj dum momento malaperis frakasita en la ondoj. La homoj super la klifoj respiris, vidinte tiujn povrulojn sur la rifo, je kiu ili gluiĝis kiel hirudoj. Sur la klifoj oni intervokas sin, ordonas, oni mallevas la ŝnuregojn en la ravinon. Nun oni povas vidi la malfeliĉajn ŝipanojn kaj la rifon, sed nun ĉio malaperas en la ŝaŭmo, kiam ondo superverŝas ilin. La vento svingas la ŝnuregojn, unu venis al la rifo. Unu ŝipano kaptis ĝin kaj enŝovis sin en la pretan kaptilon, kiu premis lin sub la akseloj.
 
 
 Tiuj sur la klifego, kie estas la pastro, signalis svingante per manoj al la aliaj, kiuj estas super la krutejo, ke ili tiru la ŝnuregon. La luĉicanoj komencis levi la malfeliĉulon, kaj la homoj ekkriis: — Unu estas savita! Unu estas savita!
@@ -369,16 +276,12 @@ Kiel estis savita la unua, tiel estis savitaj ankoraŭ du, sed tiuj ne vundiĝis
 
 La knabo tenis sin longtempe sur la rifo, kaj la vento kva-zaŭ ne volis alĵeti la ŝnuregon. ĉiuj jam perdis la esperon savi lin. Kiam la luĉicanoj demandis, el kiu familio devenas ĉi tiu knabo, la savitoj respondis, ke li en Jelenŝĉica ne havas patron nek patrinon, nek iun ajn el parencaro, ke li estas trovito, alportita el Triesto. Aŭdinte tiujn vortojn, Antonio komencis krii, kiel rabia.
 
-—Mallevigu min sub la klifon, mi firme ligos min. Inter la 16
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Mallevigu min sub la klifon, mi firme ligos min. Inter la
 
 
 rifo kaj la bordo la maro estas malprofunda; kiam la ondo retiriĝos, mi saltos sur la rifon, mi kunligos la knabon apud min, kaj kiam mi signalos esti preta, vi levu min.
 
-—Ne, ne frenezu, Antonio! — alkriis multaj. — Ne, vi mor-
-
-tigus vin!
+—Ne, ne frenezu, Antonio! — alkriis multaj. — Ne, vi mortigus vin!
 
 Antonio faris lazon ĉe la fino de la ŝnurego, kaj enŝoviĝinte en ĝin, li malespere ekululis:
 
@@ -398,12 +301,7 @@ La maristoj laŭ la signalo de sur la alia klifo komencis levi la duopon. La ama
 
 Antonio kaj la knabo balancas je apenaŭ tri klaftoj super la maro, la sango premiĝis en koroj de la homoj sur la klifego.
 
-ĉiuj ŝtoniĝis. La ŝnuro, jam ĉirkaŭronĝita de la akraj ŝtonoj, derompiĝis kvazaŭ maldika fadeno. La malfeliĉuloj falegis en la maron. Giganta ondo, rompante kaj tondrante envagis en la malprofundan golfeton, kovris ilin kaj superverŝis. La ondego muĝante kaj surfante retiris sin, kaj tiuj de sur la klifo rimarkis homon, kiu etendiĝis ventrokuŝe inter akraj ŝtonoj de la rifo. Tiu estis Antonio. Li ekstaris, rektiĝis dummomen-17
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-te, ĉirkaŭrigardis la golfeton kaj rimarkis sur la kresto de la ondo, kiu ruliĝis al la rifo, du kunmetitajn manojn inter la dispecigita ŝaŭmo. Antonio rapide kuŝiĝis sur la rifon, firmiĝis sur ĝin, kaj kiam la ondokresto transverŝis lin, li reek-staris. Li malespera ĉirkaŭrigardis la maron, sed ĉie ŝaŭmo, ĉie klakado, ĉie timinda neniaĵo…
+ĉiuj ŝtoniĝis. La ŝnuro, jam ĉirkaŭronĝita de la akraj ŝtonoj, derompiĝis kvazaŭ maldika fadeno. La malfeliĉuloj falegis en la maron. Giganta ondo, rompante kaj tondrante envagis en la malprofundan golfeton, kovris ilin kaj superverŝis. La ondego muĝante kaj surfante retiris sin, kaj tiuj de sur la klifo rimarkis homon, kiu etendiĝis ventrokuŝe inter akraj ŝtonoj de la rifo. Tiu estis Antonio. Li ekstaris, rektiĝis dummomente, ĉirkaŭrigardis la golfeton kaj rimarkis sur la kresto de la ondo, kiu ruliĝis al la rifo, du kunmetitajn manojn inter la dispecigita ŝaŭmo. Antonio rapide kuŝiĝis sur la rifon, firmiĝis sur ĝin, kaj kiam la ondokresto transverŝis lin, li reek-staris. Li malespera ĉirkaŭrigardis la maron, sed ĉie ŝaŭmo, ĉie klakado, ĉie timinda neniaĵo…
 
 La popolo sur la klifoj genuiĝis. La vento siblas kaj fajfas, frakasiĝante kontraŭ la rokoj kaj skuigante la mallumajn juniperojn. Sub la serena kaj lazura ĉielo etendiĝas senfina maro.
 
@@ -415,16 +313,9 @@ La amaso ekiris nun en la urbeton, interparolante pri la
 
 barkorompiĝo kaj pri ĉio, kio okazis. Bonaj homoj akceptis en siajn domojn la du savitojn, kaj la grave vundita mastro de la boato troviĝis jam duonhore en la domo de Antun ŝabariĉ. La vundita Mato Bartoliĉ estis negocisto el Jelenŝĉica. ĉiun se-majnon li, unu aŭ du foje, kutimis veturigi vinon, oleon kaj aliajn artiklojn en Rijekon per sia barko, kiu jen sub la klifo rompiĝis.
 
-Unu horon post la barkorompiĝo, la maljuna Fran sonori-
+Unu horon post la barkorompiĝo, la maljuna Fran sonorigis funebre en la malluma kaj malvarma turo. La malĝoja so-no, anoncante la teruran morton de la droninto, perdiĝis kaj malviviĝis en la bruo de la vento.
 
-gis funebre en la malluma kaj malvarma turo. La malĝoja so-no, anoncante la teruran morton de la droninto, perdiĝis kaj malviviĝis en la bruo de la vento.
-
-La maljuna Tonka, trenante sin ĉirkaŭ la fajrujo kaj ploran-18
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-te pro la okazinta akcidento kaj kolerante pro la fumo, parolis lamentante.
+La maljuna Tonka, trenante sin ĉirkaŭ la fajrujo kaj plorante pro la okazinta akcidento kaj kolerante pro la fumo, parolis lamentante.
 
 —Ho ci maro, malbona maro! Jam sufiĉe ci forglutis, sufiĉe da ostoj blankas en cia fundo! Ja kial kara Dio tiel destinis?
 
@@ -448,9 +339,7 @@ diris Tomo. — ĉu vi scias ion pri la mondo! Jen, kia saĝo virina! Vi parolas
 
 mansvingis Tomo, sidiĝante ĉe la fajrujo en varma palto.
 
-Ankaŭ mi sufiĉe, dum mia vivo, vartis infanojn kaj zorgis 19
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Ankaŭ mi sufiĉe, dum mia vivo, vartis infanojn kaj zorgis
 
 
 pri la domo kaj ĉirkaŭ ĝi, ja tiu ĉi fumo formordis jam miajn okulojn kaj la vidkapablon!
@@ -473,9 +362,7 @@ Morti aŭ iri sub la tilion, en Luĉica estas la sama nocio.
 
 —Ho, kara Stipe, vi ŝercas facile, ĉar vi ne scias, ke mi ne povas miajn okulojn fermi, dum nia domo tremas pro tempesto, dum vi forestas el sub nia tegmento! Akcidento okazas, dum oni plej malmulte pensas pri ĝi, kaj pri malfeliĉo oni ne devas preĝi, kutimis diri via forpasinta avo.
 
-—Kion oni fari povas, panjo! La maro kiel la maro! La kna-bo dronis, li ne ekzistas plu, al li estas bone nun, li finis sian 20
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Kion oni fari povas, panjo! La maro kiel la maro! La kna-bo dronis, li ne ekzistas plu, al li estas bone nun, li finis sian
 
 
 taskon, sed se li vivus plu, li eble suferus pro malvarmo, malsato kaj pro ĉiaj malbonoj.
@@ -488,20 +375,13 @@ kapbalancis la maljunulino.
 
 —Parolu vi, filo, kio ajn plaĉas al vi, sed mi ne volas iri for de ĉi tie, ĉar mi scias, kiel ĉi tie estas; sed kiel estas tie, kie la knabo estas nun, pri tio malmultaj povas ion diri! — svingis Tomo per la kapo.
 
-—Kiel oni diras, tiu knabo havis neniun parencon en Je-
+—Kiel oni diras, tiu knabo havis neniun parencon en Jelenŝĉica. Ke li estas trovito. Panjo kara, vi scias, ke Antonio estas pli bona ol multaj aliaj; sed jen, oni ne ŝatas rilati kun li. Tiuj orfoj spertis multajn amarecojn! Povra Antonio! Mi satigos kaj trinkigos lin dek tagojn, tuj poste li venos al ni. Kiu pli sindone oferus sin al proksimulo, ol li faris hodiaŭ? — demandis Stipe atentante por precize mezuri la kafsakegon.
 
-lenŝĉica. Ke li estas trovito. Panjo kara, vi scias, ke Antonio estas pli bona ol multaj aliaj; sed jen, oni ne ŝatas rilati kun li. Tiuj orfoj spertis multajn amarecojn! Povra Antonio! Mi satigos kaj trinkigos lin dek tagojn, tuj poste li venos al ni. Kiu pli sindone oferus sin al proksimulo, ol li faris hodiaŭ? — demandis Stipe atentante por precize mezuri la kafsakegon.
-
-Stipe bezonis Antonion jam samtage, kiam rompiĝis la bo-
-
-ato de Mato Bartoliĉ. Oni serĉis Antonion dum la tuta posttagmezo, sed vane.
+Stipe bezonis Antonion jam samtage, kiam rompiĝis la boato de Mato Bartoliĉ. Oni serĉis Antonion dum la tuta posttagmezo, sed vane.
 
 Antonio Marola estas trovito. ĉirkaŭ tridek jarojn li aĝas.
 
 Malriĉa virino, Kata, alportis lin el Triesto, kiam li aĝis apenaŭ unu jaron. En lia kvina jaro mortis Kata, kaj li restis tutsola en tiu ĉi mondo. Bonaj homoj nutris kaj vestis lin, por ke li ne pereu pro mizero. La vilaĝa infanaro ludis kun Antonio, sed se ili ekdisputis, ili primokis lin, ĉar li estis trovita, kaj ili nomis lin bastardo. Ju pli aĝa li estiĝis, des pli li sintiriĝis for de la aliaj infanoj. Lia plej kara amuzo estis fiŝkaptado.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Kiam li superruzis iun fiŝon per delikata hokkaptilo kaj eltiris ĝin el la maro per fajna fibro, liaj nigraj okuloj briletis de
@@ -512,9 +392,7 @@ Nun la fumo kvietiĝis, la ligno ardiĝis, sur la karbo, kiu palis kontraŭ la a
 
 Antonio estis fort- kaj firmstatura. Jam kiel dekjara knabo, li laboris eĉ plej malfacilajn laborojn silente kaj suferante ĉian penon, nur por panpeco aŭ por pelvo da lento. Iĝinte dekdu jara, lin prenis en sian hejmon la maristo Antun ŝabariĉ.
 
-Krom aliaj laboroj, Antonio zorgis pri la infanoj de ŝabariĉ: 22
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Krom aliaj laboroj, Antonio zorgis pri la infanoj de ŝabariĉ:
 
 
 pri la eta Marko kaj pri lia pli juna fratino Marija. Foje li laboris ankaŭ alie, sed plej ofte ĉe la negocisto Stipe.
@@ -527,9 +405,7 @@ Nenie en Luĉica oni povis vidi lin. Dum pluraj horoj li sidis sur la klifo apud
 
 en la akvo.)
 
-Li spasme skuiĝis per la tuta korpo, kaj haltinte dummo-
-
-mente, li rapide ekkuris al la maro. Li rigardis. Homo kuŝis en la akvo. Duono de la korpo estis sur la malprofunda duno. La kapo estis en la maro, kun la vizaĝo turnita al la fundo. Antonio alpaŝis en la maron, li prenis la korpon ĉe la ŝultro, levis kaj trenis ĝin eksteren. Li kuŝigis ĝin duonside. Genuinte li kliniĝis al la kadavro kaj ekrigardis al ĝi. Malsekaj kaj ĉifonitaj vestoj ĉirkaŭtordis la junan korpon. La luno rebrilis ĉe la pala kaj blua vizaĝo. El la nigra senorda hararo gutis akvo.
+Li spasme skuiĝis per la tuta korpo, kaj haltinte dummomente, li rapide ekkuris al la maro. Li rigardis. Homo kuŝis en la akvo. Duono de la korpo estis sur la malprofunda duno. La kapo estis en la maro, kun la vizaĝo turnita al la fundo. Antonio alpaŝis en la maron, li prenis la korpon ĉe la ŝultro, levis kaj trenis ĝin eksteren. Li kuŝigis ĝin duonside. Genuinte li kliniĝis al la kadavro kaj ekrigardis al ĝi. Malsekaj kaj ĉifonitaj vestoj ĉirkaŭtordis la junan korpon. La luno rebrilis ĉe la pala kaj blua vizaĝo. El la nigra senorda hararo gutis akvo.
 
 La genuoj estis nudaj kaj rompitaj; la frunto rompita, duloke.
 
@@ -537,23 +413,11 @@ En la verdetaj truoj blankis la kraniostoj. Ankaŭ la makzelo rompiĝis. Sango n
 
 Antonio prenis la droninton je la mano. i estis malseka
 
-kaj malvarma. Li lasis ĝin. Tiam li metis sian manon sur la rompitan frunton, li rigardis al la blua lavita vizaĝo, li movi-
+kaj malvarma. Li lasis ĝin. Tiam li metis sian manon sur la rompitan frunton, li rigardis al la blua lavita vizaĝo, li moviĝis, kaj tiam raŭke kaj dolore elbuŝigis: —Bastardo! — li forŝovis la kadavron…
 
-ĝis, kaj tiam raŭke kaj dolore elbuŝigis: —Bastardo! — li forŝovis la kadavron…
+Poste sidiĝinte apud la kapo de la mortinto, li sinkis en pensadon. Longtempe poste li eksentis malvarman nokton; li rememoris pri la varma ĉambro en la domo de Antun ŝabariĉ, li rememoris pri lia filino Marija, kiu ĉiam estis tiel bona al li, kaj li ekploris…
 
-Poste sidiĝinte apud la kapo de la mortinto, li sinkis en pensadon. Longtempe poste li eksentis malvarman nokton; li rememoris pri la varma ĉambro en la domo de Antun ŝaba-23
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-riĉ, li rememoris pri lia filino Marija, kiu ĉiam estis tiel bona al li, kaj li ekploris…
-
-Frumatene Antonio prenis la kadavron surbraken kaj ek-
-
-grimpis laŭ ŝtonozaj krutaj padoj. Portante la kadavron, li haste marŝis de ŝtono al ŝtono laŭ deklivoj, tra arbaretoj kaj trans riveretoj. Jen li kaŝiĝis de la lunlumo, jen li kaj la mortinto, nur momente estis superverŝitaj de la lunlumo. Finfine li alvagis antaŭ la tombejon de Luĉica. Tie staris ruiniĝinta mortintdometo. Antonio eniris kaj metis la mortinton sur la portilon. Nun li denove ekrigardis al la kadavro. Grandaj larmoj komencis rapide guti laŭ la vangoj. Li falis surgenuen kaj preĝinte laŭte mallongan preĝon li ekstaris kaj denove ekrigardis dolorsente kaj karese al tiu blua vizaĝo. Kisinte la fra-kasitan kaj malvarman buŝon de la mortinto li eliris el la dometo viŝante la larmojn de sur la nigreca vizaĝo per la mandorso de sia vejnoŝvela mano.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Frumatene Antonio prenis la kadavron surbraken kaj ekgrimpis laŭ ŝtonozaj krutaj padoj. Portante la kadavron, li haste marŝis de ŝtono al ŝtono laŭ deklivoj, tra arbaretoj kaj trans riveretoj. Jen li kaŝiĝis de la lunlumo, jen li kaj la mortinto, nur momente estis superverŝitaj de la lunlumo. Finfine li alvagis antaŭ la tombejon de Luĉica. Tie staris ruiniĝinta mortintdometo. Antonio eniris kaj metis la mortinton sur la portilon. Nun li denove ekrigardis al la kadavro. Grandaj larmoj komencis rapide guti laŭ la vangoj. Li falis surgenuen kaj preĝinte laŭte mallongan preĝon li ekstaris kaj denove ekrigardis dolorsente kaj karese al tiu blua vizaĝo. Kisinte la fra-kasitan kaj malvarman buŝon de la mortinto li eliris el la dometo viŝante la larmojn de sur la nigreca vizaĝo per la mandorso de sia vejnoŝvela mano.
 
 
 II
@@ -562,9 +426,7 @@ Unu horon post la ŝiprompiĝo la paroęstro venis en la
 
 domon de la maristo ŝabariĉ konfesigi kaj komunii la
 
-vunditan Bartoliĉ. La paroęstron akompanis multaj luĉica-
-
-noj. La ĉambreto, en kiu kuŝis la povra mastro de la rompita barko, pleniĝis de la popolo. Maton oni metis sur altan liton, kiu okupis preskaŭ la duonon de la ĉambreto. Li kuŝis iom levita kaj li spiris malfacile. Jela ŝabariĉ kaj ŝia filino Marija zorge ellavis, purigis kaj bandaĝis la teruran vundon sur la kapo de la malsanulo.
+vunditan Bartoliĉ. La paroęstron akompanis multaj luĉicanoj. La ĉambreto, en kiu kuŝis la povra mastro de la rompita barko, pleniĝis de la popolo. Maton oni metis sur altan liton, kiu okupis preskaŭ la duonon de la ĉambreto. Li kuŝis iom levita kaj li spiris malfacile. Jela ŝabariĉ kaj ŝia filino Marija zorge ellavis, purigis kaj bandaĝis la teruran vundon sur la kapo de la malsanulo.
 
 La pastro preĝis longe, rigardante al la tristeca lito, kaj kiam li finis preĝi, li ordonis al la virinoj, ke ili tuj anoncigu al li, se Bartoliĉ rekonsciiĝos kaj povos paroli. ĉiuj ĉeestantoj opiniis, ke Mato ne resaniĝos pro la grava vundo kiun faris la granda ŝtono, kiam oni levadis lin el la krutejo Sadriŝĉe.
 
@@ -575,12 +437,7 @@ La pastro preĝis longe, rigardante al la tristeca lito, kaj kiam li finis preĝ
 —Bone, Jela, bone! No, kiu skribis la leteron? Bona Dio,
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-mildigu afliktdoloron al la maljunaj gepatroj de tiu ĉi malfeli-
-
-ĉa junulo, — suspiris la paroęstro.
+mildigu afliktdoloron al la maljunaj gepatroj de tiu ĉi malfeliĉa junulo, — suspiris la paroęstro.
 
 —Terura malfeliĉo trafis ilin! Stipe, nia bona Stipe, konas la patron de Mato. Li skribis la leteron; kion alian ni povis, li devis sciigi la veron! — ŝi klakis per la manoj.
 
@@ -600,9 +457,7 @@ mildigu afliktdoloron al la maljunaj gepatroj de tiu ĉi malfeli-
 
 La maristoj longe konversaciis, kaj fine ili ĉiuj eliris el la do-mo, postlasante en ĝi nur Jelan kaj Marijan. La maljuna Jela ekiris en la ĉambron al Marija por vidi, kiel fartas la malsanulo. Reveninte en la kuirejon, ŝi batis per vergo grandan nigran katon, kiu sterniĝis sur la varmaj brikoj ĉe la fajrujo.
 
-Jela surmetis kelkajn dikajn ŝtipojn sur la fajron kaj klopodis prepari ian tagmanĝon. La eniro en la ĉambron, kie kuŝas la 26
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Jela surmetis kelkajn dikajn ŝtipojn sur la fajron kaj klopodis prepari ian tagmanĝon. La eniro en la ĉambron, kie kuŝas la
 
 
 malsanulo, situas ĉe la kuirejo. La pordo estas duonfermita.
@@ -611,12 +466,7 @@ La patrino kaj la filino mallaŭte konversaciis kaj atentis, ĉu Mato ekmovos si
 
 Al granda najlo apud la akvo estas alligita fasko da velkiĝintaj olivbranĉetoj, kiujn oni brulos dum tondrado aŭ hajlo. La sankta kaj odora fumo havas potencon forpeli nigrajn kaj gri-zajn nubojn, ĉiujn sorĉistinojn kaj malbonajn spiritojn kiuj svarmas en iliaj sinoj. Sanktigitaj olivbranĉetoj estas uzataj de virinoj en Luĉica ankaŭ por aliaj intencoj. La maljuna Jela resanigis plurfoje sian Marijan, dum ŝia infanaĝo, kiam malbona okulo de najbarino damaĝis, pro envio, ĉar Marija estis bela kaj fortstatura knabineto. Kontraŭ sorĉo ne ekzistas pli efika kuracilo ol olivfumo.
 
-En la ĉambreto estas ĉio pura, kaj ĉiu objekto staras sur sia loko. Grandaj kestoj estas vicigitaj laŭlonge de la vando, ŝranko brilas inter la fenestroj, kaj sur ĝi ruĝflavas pomoj en malgrandaj tasoj. La odoro de la pomoj disvastiĝas tra la ĉambreto. Sur la ŝranko estas granda horloĝo tegita per oro sub so-norilforma vitro. Super la ŝranko estas enbatitaj en la vandon du kejloj, sur kiuj estas malgranda breteto, kaj sur ĝi granda ŝipo, du futojn longa. La ŝipo havas tri mastojn, la veloj fla-27
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-viĝis. Sur la poŭpo estas hisita flago el papero, sed per sia koloro ĝi prezentas neniun standardon en la mondo. i estas verko de la ĉarma Marija.
+En la ĉambreto estas ĉio pura, kaj ĉiu objekto staras sur sia loko. Grandaj kestoj estas vicigitaj laŭlonge de la vando, ŝranko brilas inter la fenestroj, kaj sur ĝi ruĝflavas pomoj en malgrandaj tasoj. La odoro de la pomoj disvastiĝas tra la ĉambreto. Sur la ŝranko estas granda horloĝo tegita per oro sub so-norilforma vitro. Super la ŝranko estas enbatitaj en la vandon du kejloj, sur kiuj estas malgranda breteto, kaj sur ĝi granda ŝipo, du futojn longa. La ŝipo havas tri mastojn, la veloj flaviĝis. Sur la poŭpo estas hisita flago el papero, sed per sia koloro ĝi prezentas neniun standardon en la mondo. i estas verko de la ĉarma Marija.
 
 La brakoj de Mato kuŝas trankvile apud la korpo, kiu eten-diĝis sub la violkolora kovrilo. Lia kapo estas pansita per blankaj tukoj sub kiuj montras sin nigra hararo. La supra parto de la frunto estas blanka kvazaŭ neĝo, kaj la malsupra varias al pli nigra koloro. Kontraŭ la lito sidas Marija kaj de tempo al tempo ekrigardas al la vizaĝo de Mato. La okuloj estas fermitaj, kaj la longaj nigraj palpebroj malsupreniĝis al la iom ŝvelinta blua haŭto sub la okuloj. Mallonga nigra barbo ĉir-kaŭrandas lian vizaĝon, sur kiu luktas la morto kun la vivo.
 
@@ -632,9 +482,7 @@ Super la dolore tordita lipo nigras bela kaj supla liphararo. La supra vico de l
 
 —Dio plenumu vian esperon!
 
-—Ni scias nenion; sed mi konjektas, io parolas en mia ko-
-
-ro, ke li ne mortos.
+—Ni scias nenion; sed mi konjektas, io parolas en mia koro, ke li ne mortos.
 
 — Estus domaĝo, se pereus tiel tenaca kaj bela junulo!
 
@@ -642,9 +490,7 @@ Marija ekrigardis la doloran vizaĝon de Mato, kaj pensis: la patrino prave dira
 
 —Jes, jes, li ne mortos, li havas firman konstitucion, nun mi rimarkis, kiel fortikajn brakojn li havas.
 
-—Nia baptano Stipe rakontis al mi… for vi olda cindrulino, 28
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Nia baptano Stipe rakontis al mi… for vi olda cindrulino,
 
 
 ŝic; ŝic! — koleris Jela pro la kato, — jes, li rakontis al mi, ke Mato estas bona kaj prudenta junulo.
@@ -667,11 +513,7 @@ al ni, ke ni ne faris ĉion eblan.
 
 —Vi ne pravas, kara panjo! Mi kaj vi ne vizitis lernejon, ni nenion scias, sed kuracistoj lernas pri ĉiaĵoj en grandaj urboj, ili ankaŭ mortintajn homojn sekcas kaj distranĉas.
 
-—Hontinda ago, ĉu ili ne abomenas homan korpon! Ma-
-
-rija, ne parolu al mi pri tio, ĉar mi tuj rememoras mian Markon! Sufiĉe mi penis pri li, multfoje mi persvadis lin, ke la pastra profesio estas la plej utila kaj la plej bela en tiu ĉi mondo. Jes, vanas paroli aŭ peti, la gefiloj ne taŭgas, kiel iam an-taŭe! Se li estus obeinta min, mi certe savus mian spiriton, sed tiele, Dio scias kien sankta Miąelo dum la juĝtago pelos min. Ne estus malkomforte por Marko, se li mencius kel-29
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Hontinda ago, ĉu ili ne abomenas homan korpon! Marija, ne parolu al mi pri tio, ĉar mi tuj rememoras mian Markon! Sufiĉe mi penis pri li, multfoje mi persvadis lin, ke la pastra profesio estas la plej utila kaj la plej bela en tiu ĉi mondo. Jes, vanas paroli aŭ peti, la gefiloj ne taŭgas, kiel iam an-taŭe! Se li estus obeinta min, mi certe savus mian spiriton, sed tiele, Dio scias kien sankta Miąelo dum la juĝtago pelos min. Ne estus malkomforte por Marko, se li mencius kel-29
 
 
 kiam ankaŭ mian nomon dum nigra meso! Ho, gefiloj! Li ne
@@ -692,12 +534,7 @@ tion. Lia voĉo konvenas al pastro, ja, la tuta preĝejo ree˛us dum la ĉefa me
 
 —Kial ne, karnjo!? ĉu vi ne scias, ke ĉiuj luĉicanoj petici-us al la episkopo, por sendi lin al ili? Ja ankaŭ Marica de To-mo, la patrino de Stipe, ploris eksciinta, ke Marko ne estos pastro.
 
-Jela daŭre parolis pri sia filo Marko, kiu lernis medicinon en Vieno, kaj pri liaj kapabloj, kiuj farus el li la unuan Istri-30
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-an pastron. Marija ne aŭskultis ŝin plu, ĉar ŝi rigardadis al la dolora kaj suferoplena vizaĝo de la maristo.
+Jela daŭre parolis pri sia filo Marko, kiu lernis medicinon en Vieno, kaj pri liaj kapabloj, kiuj farus el li la unuan Istrian pastron. Marija ne aŭskultis ŝin plu, ĉar ŝi rigardadis al la dolora kaj suferoplena vizaĝo de la maristo.
 
 —Marija, kial vi ekmutis?
 
@@ -725,11 +562,7 @@ sur lia kapo.
 
 Marija, restariĝinte mallaŭte, proksimiĝis al la lito kaj apogis sin al ĝi ĉe la piedoj de Mato. ŝi mallevis sian belan kapon en la polmon de sia dekstra mano kaj sinkis en melankoliajn pensojn.
 
-Marija surhavis nigran jupon, kun pezaj kaj densaj faldoj, kiu falis laŭ ŝia svelta kaj plenforma korpo. Sur ŝia ĉarma vi-zaĝo vidiĝis melankolia konsterniĝo kaj dolora angoro. Ama-ro enverŝiĝis en ŝian animon. Granda tristeco krispigis la tu-taĵon de vejnetoj super la profundaj okuloj, akra doloro premis ŝiajn nigrajn brovojn, dolĉa kaj indulgema kompato ver-
-
-ŝiĝis laŭ ŝia tuta korpo. La nigra kaj glate kombita hararo pre-31
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Marija surhavis nigran jupon, kun pezaj kaj densaj faldoj, kiu falis laŭ ŝia svelta kaj plenforma korpo. Sur ŝia ĉarma vi-zaĝo vidiĝis melankolia konsterniĝo kaj dolora angoro. Ama-ro enverŝiĝis en ŝian animon. Granda tristeco krispigis la tu-taĵon de vejnetoj super la profundaj okuloj, akra doloro premis ŝiajn nigrajn brovojn, dolĉa kaj indulgema kompato verŝiĝis laŭ ŝia tuta korpo. La nigra kaj glate kombita hararo pre-31
 
 
 zentis modestan kaj subtilan ĉarmon de ŝia malserena frun-to. La brilaj okuloj de Marija, evidente konsternitaj, ripozis sur la suferplena vizaĝo de la vundita junulo. La knabino longtempe karesis lin per siaj mildaj rigardoj, observante kaj rigardante jen la frunton, jen la buŝon, kaj jen la fermitajn okulojn de la malsanulo. Kiam ŝi eksentis larmojn sur siaj palpebroj, ŝi venis al la fenestro kaj rigardis al la maro, kiu ankoraŭ ŝaŭmis. La vento iom malintensiĝis, kaj la nebulo super la maro kelkie disŝiriĝis. Nun estis eble vidi la verdajn kaj konfuzajn ondojn kaj ilian salan akvon, kiu flugis kiel nebulo trans la ondanta surfaco. Marija, starante proksime ĉe la vitro kaj malklariginte ĝin per sia elspiro, viŝis ĝin kaj denove rigardis al la maro. Kiam la vitro denove malklariĝis, ŝi perfingre surskribis: Mato.
@@ -757,9 +590,6 @@ Ekpreninta la manon de Mato, ŝi palpis la pulson, kaj ne
 povinta trovi ĝin, ŝi ekbalbutis.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Ja kie tio okazos? ĉu li ion diris, ĉu li moviĝis en la lito?
 
 —Li malfermis la okulojn.
@@ -778,9 +608,7 @@ Marija prenis lian dekstran manon, kliniĝis super la lito kaj super lia vizaĝo
 
 —Kiel vi fartas?
 
-Mato rondpromenis okule tra la ĉambro, rigardis la patri-
-
-non kaj ŝian filinon, kaj kunpremis la palpebrojn malrapide.
+Mato rondpromenis okule tra la ĉambro, rigardis la patrinon kaj ŝian filinon, kaj kunpremis la palpebrojn malrapide.
 
 —Ne timu, kara! Vi frapiĝis; nenia malbono, konfidu Dion!
 
@@ -805,9 +633,6 @@ Mato kapneis.
 Marija kaj Jela kompreninte ekrigardis unu la alian: — Li ne mortos.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 La povra Mato, rigardante al la virinoj per malklaraj duo-nestingitaj okuloj, malfacile ekflustris:
 
 —La maristoj?
@@ -818,9 +643,7 @@ La povra Mato, rigardante al la virinoj per malklaraj duo-nestingitaj okuloj, ma
 
 —ĉu ĉiuj?
 
-—Trankviliĝu, kara amiko, ne timu, nenia malbono, — kon-
-
-solis lin Jela.
+—Trankviliĝu, kara amiko, ne timu, nenia malbono, — konsolis lin Jela.
 
 —Kie mi troviĝas?
 
@@ -856,16 +679,12 @@ Mato, milde ridetinte al la knabino, elbuŝigis:
 
 —Ho, panjo mia! — Mato ekĝemis.
 
-—Mi tuj iros por alvenigi la pastron, — diris Jela kaj ekiris 34
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Mi tuj iros por alvenigi la pastron, — diris Jela kaj ekiris
 
 
 al la paro˛domo. Dumvoje ŝi rakontis, ke Mato denove parolas.
 
-La vizaĝo de Mato komencis sereniĝi, kaj en la koro Ma-
-
-rija sentis grandan ĝojon. La okuloj de la maristo pleniĝis per febla brilo. Li milde rigardis la knabinon kaj mallaŭte diris:
+La vizaĝo de Mato komencis sereniĝi, kaj en la koro Marija sentis grandan ĝojon. La okuloj de la maristo pleniĝis per febla brilo. Li milde rigardis la knabinon kaj mallaŭte diris:
 
 —ĉiuj do estas savitaj?
 
@@ -883,9 +702,7 @@ rija sentis grandan ĝojon. La okuloj de la maristo pleniĝis per febla brilo. L
 
 —Mia patro nomiĝas Antun ŝabariĉ.
 
-—Mi konas lin…Ho ve al mi, ho mia kapo! — ĝemis la kom-
-
-patinda Mato.
+—Mi konas lin…Ho ve al mi, ho mia kapo! — ĝemis la kompatinda Mato.
 
 —Estu pacienca iom; ni zorgos alvenigi kuraciston.
 
@@ -916,9 +733,6 @@ Marija diris pudore.
 granda peno.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Kiel rekompenci al vi?
 
 —Ne parolu tiel! — Marija diris afable.
@@ -929,21 +743,15 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 Liaj nigraj okuloj ekbrilis kaj pli malfermiĝis. Perokule li sekvis la karan vizaĝon de la bona Marija. ĉi tiu ĉarma virgu-lino ŝajnis al li kiel anĝelo gardanto, kiu venis el la ĉielo al lia kapkuseno por konsoli kaj mildigi lian kordoloron. Spektante la knabinon, li pensis pri morto, sed ĉi momente spasmo skuis lian animon.
 
-En tiu ĉi sama tago dum krepusko Maton vizitis la maljuna paroęstro, la negocisto Tomo Bariloviĉ kaj lia filo Stipe. La povra Mato povis jam pli facile paroli. Ili konsolis lin kaj kura-
+En tiu ĉi sama tago dum krepusko Maton vizitis la maljuna paroęstro, la negocisto Tomo Bariloviĉ kaj lia filo Stipe. La povra Mato povis jam pli facile paroli. Ili konsolis lin kaj kuraĝigis parolante, ke li estas ankoraŭ juna kun fortika konstitucio, kaj ke li, post nelonge, per Dia helpo, ellitiĝos kaj resaniĝos.
 
-ĝigis parolante, ke li estas ankoraŭ juna kun fortika konstitucio, kaj ke li, post nelonge, per Dia helpo, ellitiĝos kaj resaniĝos.
-
-Mato kaj Stipe konis unu la alian jam laŭvide. Ili intervidi-
-
-ĝis jam kelkfoje sur la bordo de Rijeka.
+Mato kaj Stipe konis unu la alian jam laŭvide. Ili intervidiĝis jam kelkfoje sur la bordo de Rijeka.
 
 La savitaj maristoj ĉiel deziris viziti sian vunditan mastron la saman vesperon, sed tion ne permesis la familianoj, ĉe kiuj ili estis loĝigitaj, zorgante, ke ili tiel ĉifonvestitaj ne malvar-mumu.
 
 (Dum la familianoj zorgis pri la vundita Mato, al Luĉica
 
-venis liaj gepatroj, kiujn tuj sciigis pri la akcidento de ilia filo la domestro Antun ŝabariĉ. La emocia kaj karesa renkontiĝo de la gepatroj kun la vundita filo estis larmige kortuŝa. La gepatroj de Mato, kiuj de antaŭe konis la familion ŝabariĉ, estis feliĉaj, ke ilia filo Mato kuŝas ĝuste en ilia domo. Sekvis paroloj kaj rakontoj pri la akcidento, ĝis la krepusko. Marija 36
-
-SURPRIZITAJ NUPTOFESTANTOJ
+venis liaj gepatroj, kiujn tuj sciigis pri la akcidento de ilia filo la domestro Antun ŝabariĉ. La emocia kaj karesa renkontiĝo de la gepatroj kun la vundita filo estis larmige kortuŝa. La gepatroj de Mato, kiuj de antaŭe konis la familion ŝabariĉ, estis feliĉaj, ke ilia filo Mato kuŝas ĝuste en ilia domo. Sekvis paroloj kaj rakontoj pri la akcidento, ĝis la krepusko. Marija
 
 
 adiaŭis la ĉeestantojn, kaj ŝiaj rigardoj renkontiĝis kun la rigardoj de la vundita Mato. La sekvontan tagon Maton vizitis liaj fidelaj maristoj Menego kaj Pero kaj ili decidis, ke ili vespere revenos al Jelenŝĉica, kun la patrino de Mato. Ili pli frue ne povas.)
@@ -965,18 +773,11 @@ proponis al ili sidlokojn. Pero kaj Menego, time ĉirkaŭobservis, kaj tiam eksi
 La edzino de la urbestro Anastazija kaj ilia filino Ida alportis sur larĝaj teleroj rompitajn juglandojn kaj tranĉitajn pan-pecojn kaj du botelojn da ruĝa vino. La urbestro verŝis ĝin en glasojn kaj regalis la homojn.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Nu, nu, ek, trinku glason da vino, kaj tiam ni ekiros al la laboro!
 
-Li parolis afable, dolĉe kaj ridetante laŭ sia maniero, kiel kutime. Lia vizaĝo estis rondforma kaj ruĝa, mallonga kaj lar-
+Li parolis afable, dolĉe kaj ridetante laŭ sia maniero, kiel kutime. Lia vizaĝo estis rondforma kaj ruĝa, mallonga kaj larĝa liphararo movis sin laŭ la supra lipo dum la parolo. La urbestro estis pli juna ol lia edzino Anastazija.
 
-ĝa liphararo movis sin laŭ la supra lipo dum la parolo. La urbestro estis pli juna ol lia edzino Anastazija.
-
-—Kia estas via nomo? — la magra kaj alta Anastazija de-
-
-mandis Menegon.
+—Kia estas via nomo? — la magra kaj alta Anastazija demandis Menegon.
 
 —Menego Paĉiĉ.
 
@@ -984,9 +785,7 @@ mandis Menegon.
 
 —Mi?
 
-—Jes, jes, vi! — ripetis Anastazija, rigardante en lian viza-
-
-ĝon per siaj malgrandaj okuloj ruĝiĝintaj pro inflamo.
+—Jes, jes, vi! — ripetis Anastazija, rigardante en lian vizaĝon per siaj malgrandaj okuloj ruĝiĝintaj pro inflamo.
 
 —Mi nomiĝas Pero Streha, — respondis la maristo.
 
@@ -1003,9 +802,6 @@ via hejmo, — instigis ilin la mastrino klopodante, ke ŝia nigro-haŭta kaj io
 —Diru al mi, kara Streha, kiam vi ekiris el Rijeka kaj kie la tempesto atakis vin? Diru al mi ĉion, kiel plej bone vi scias.
 
 —Jes, mi volas, — respondis Menego.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Nu, diru do vi. Mi demandis la amikon Streha. Nu, ne
@@ -1051,14 +847,9 @@ La triopo el Luĉica sidis kaj trankvile fumis, sorbetante la vinon kaj ŝmacant
 Anastazija koleris, ĉar ŝi vane klopodis fari afablan rideton per siaj magraj lipoj, kiuj malkovris ŝian sendentan makzelon, La faldoj sur ŝia vizaĝo ondetis. La grizaj haroj de la veruko movis sin kvazaŭ anasvostoj super kota marĉo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Nu, parolu jam, ĉu unu aŭ la alia! Parolu do vi! — perma-ne Anastazija svingis al Menego.
 
-—Noktomezo estis kiam ni atingis, — komencis paroli Me-
-
-nego.
+—Noktomezo estis kiam ni atingis, — komencis paroli Menego.
 
 —Tiel, jes, ĉirkaŭ noktomezo, — enfalis Streha en la parolon. — Ni velis pelataj per la vento, sidante ĉe la stirilo, kon-versaciante kaj fumante.
 
@@ -1066,13 +857,9 @@ nego.
 
 Salutinte ankoraŭfoje, li revenis en la ĉambron frotante ĝoje la manojn kaj saltetante.
 
-—Kion vi opinias? — demandis la edzino, streĉante la van-
+—Kion vi opinias? — demandis la edzino, streĉante la vangosulkojn, kaj verve rigardante lin al la okuloj.
 
-gosulkojn, kaj verve rigardante lin al la okuloj.
-
-—Sen dubo, kara Anastazija! — respondis ŝia Ermano, ri-
-
-detante acide kaj skrabe rigardante al ŝia sulkigita vizaĝo.
+—Sen dubo, kara Anastazija! — respondis ŝia Ermano, ridetante acide kaj skrabe rigardante al ŝia sulkigita vizaĝo.
 
 La amikoj de la urbestro longtempe trinkis mute, en la
 
@@ -1084,9 +871,7 @@ La luĉicanoj ne estimis tiujn virojn, kiuj nur ĉiuokaze kapje-sadis al Murelli
 
 al miaj kalkuloj, — flustris Ermano al sia edzino en la orelon.
 
-—Ne babilu, malsaĝulo, sed klopodu, ke tiuj homoj eliru el 40
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ne babilu, malsaĝulo, sed klopodu, ke tiuj homoj eliru el
 
 
 la domo. Ili fortrs la tutan barelon! Kial ili disverŝus nian vinon en nia domo! — Anastazija rediris al li mallaŭte.
@@ -1117,9 +902,7 @@ Antonio eniris en la ĉambron. ĉiuj estis surprizitaj. Li rigardis al Marija ka
 
 —Kio okazas al vi, Antonio? Ni serĉis vin ĉie.
 
-—Ankaŭ mi serĉis kaj mi trovis lin, — li respondis abrup-
-
-te.
+—Ankaŭ mi serĉis kaj mi trovis lin, — li respondis abrupte.
 
 Post kiam Mato aŭdis, ke la knabo dronis kaj ke Antonio
 
@@ -1132,9 +915,6 @@ trovis la korpon, liajn okulojn plenigis larmoj, kaj li diris:
 volis malĝojigi vin, — pretekstis Marija.
 
 Antonio mirigita rigardas al Mato, kvazaŭ kolera, kvazaŭ
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 li envius, ke Mato kuŝas en tiu varma lito kaj ke Marija lin flegas.
@@ -1158,9 +938,6 @@ Pasis unu monato, kaj Mato tiom plifortiĝis, ke li povis ekiri al Jelenŝĉica.
 Mato ne povis trovi ĝustan vorton kiel danki al Jela kaj Marija, kiam li adiaŭis ilin.
 
 —Kiam vi komplete resaniĝos, vizitu nin. Ne troviĝas Luĉi-ca en alia parto de la mondo, — diris Jela al li.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Ankaŭ la patrino de Mato kaj lia patro Andro, kiuj venis
@@ -1188,36 +965,19 @@ de Luĉica, — ankaŭ mi opinias ke ĝi estis interesa spektaklo.
 Kredu al mi, mi bedaŭras, ke en tiu tago mi ne estis en Luĉi-ca. Nur la sekvantan tagon mi revenis el Triesto, kie mi vizitis miajn parencojn.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 III
 
-Duonhoron de piedirado de Luĉica al la nordo serpentu-
-
-mas inter la montoj ”La nigra rivero” malleviĝante krute
+Duonhoron de piedirado de Luĉica al la nordo serpentumas inter la montoj ”La nigra rivero” malleviĝante krute
 
 al la marbordo. La fluejbordoj altiĝas kun la perakve glatigi-taj rokoj. Nelonge for la marbordo sekvas kaskadoj unu post la alia, la fluejo estiĝas pli profunda kaj pli larĝa, kaj fine ĝi falas sur longan sablejon, nomata ”Kolonoj”. La sablejo havas longecon de iaj cent paŝoj. Super la sablejo elstaras rifa roko, kiu etendas sin en la maron kiel alta kabo. Kiam laŭ la rivereto eksturmas akvo, ĝi alrulas teron kaj gruzon sur la platan sablejon, sed la ondoj pelataj el la suda flanko ĉion forviŝas, tuj post la estiĝo de seka sezono. La ondoj, disverŝiĝantaj laŭ la sablejo, rulas sur ĝi ŝtonojn, ŝovas ilin al la kabo, tiras ilin post si dum retiriĝado, kaj la ŝtonoj estiĝas pli kaj pli etaj, ĝis kiam la maro ilin globigas, blankigas kaj glatigas. Ju pli proksime al la maro, des pli la ŝtonglobetoj estas pli etaj. La sablejo malleviĝas laŭgrade en la akvon. Dek paŝetojn for la bordo la akvo atingas ĝis la kolo de homo. La dunoj blankas kvazaŭ neĝo, ili brilas, se la suno al ili kliniĝas. Ankaŭ la marfun-do blankas proksime de la bordo, sed iom fore, maldika ŝlim-sablo verdas transirante en grizan koloron. La fundo tiam estiĝas tenebroverda pro la musko, kiu ĉirkaŭkreskas la ŝtonojn dikajn kiel homkranioj, kaj pro la maraj plantoj, kiuj moviĝas apenaŭ percepteble kaj kreskas inter tiuj ŝtonoj.
 
-Dum la kvieto, la maro estas tiom trankvila kaj tiom travide-44
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-bla kaj inerta, ke ĝi aspektas kiel plej pura kristalo, ke oni preskaŭ kredus esti vidanta sekan fundon, se ne videblus hela arĝenta strio, kie la akvo interkisas kun la bordo. Pli fore de la musko, la fundo malaperas, kaj la marvasto tenebriĝas, ĝis
+Dum la kvieto, la maro estas tiom trankvila kaj tiom travidebla kaj inerta, ke ĝi aspektas kiel plej pura kristalo, ke oni preskaŭ kredus esti vidanta sekan fundon, se ne videblus hela arĝenta strio, kie la akvo interkisas kun la bordo. Pli fore de la musko, la fundo malaperas, kaj la marvasto tenebriĝas, ĝis
 
 ĝi fine konvertiĝas al blua kaj al pli hela koloro, kiu ravigas la okulon, kiu plenigas la bruston per dolĉa sopiro kaj per reva nostalgio. La sablejo ”Kolonoj” etendas sin de la okcidento al la oriento. ĉe la orienta flanko el la maro montriĝas glata rifo, granda kiel malgranda tablo. Dum alta tajdo, ĝi estas super la maro je unu futo. La rifo estas for de la bordo je tri paŝoj, kaj la ĉirkaŭanta maro atingas al plenkreskinta homo apenaŭ ĝis genuo. Sur tiu ĉi glata roko la virinoj lavas tolaĵon, kiam oni en Luĉica ne havas akvon kaj se la marĉetoj de la riveretoj sekiĝas.
 
-Iun tagon fine de la monato julio la ĉarma Marija, la filino de la maristo ŝabariĉ, lavis tolaĵon sur ĉi tiu glata roko. La tutan tagon la suno apogas sajn radiojn sur la sablejon ekspo-nitan al ĝi. La brulanta aero vibris super la kalva kaj la ŝtono-riĉa bordo kiel delikata kaj travidebla nebulo. Antaŭ Marija sterniĝis trankvila kaj nemezurebla maro, interkisante kun la ĉielo en malproksimego de la brilanta horizonto. La glata surfaco kvazaŭ estus kunfandita kun la lazura ĉielo. La bordoj de Istrio, la bordoj de la insuloj kaj insuletoj, la krutaĵoj kaj la arbaretoj, la blankaj kirketoj sur la montetoj, la grizaj vila-
+Iun tagon fine de la monato julio la ĉarma Marija, la filino de la maristo ŝabariĉ, lavis tolaĵon sur ĉi tiu glata roko. La tutan tagon la suno apogas sajn radiojn sur la sablejon ekspo-nitan al ĝi. La brulanta aero vibris super la kalva kaj la ŝtono-riĉa bordo kiel delikata kaj travidebla nebulo. Antaŭ Marija sterniĝis trankvila kaj nemezurebla maro, interkisante kun la ĉielo en malproksimego de la brilanta horizonto. La glata surfaco kvazaŭ estus kunfandita kun la lazura ĉielo. La bordoj de Istrio, la bordoj de la insuloj kaj insuletoj, la krutaĵoj kaj la arbaretoj, la blankaj kirketoj sur la montetoj, la grizaj vilaĝetoj kaj la malhelaj urbetoj kaj unuopaj vilaĝdomoj, ĉio tio duobliĝante spegulis sin kviete kaj rave en la bluaj profundoj.
 
-ĝetoj kaj la malhelaj urbetoj kaj unuopaj vilaĝdomoj, ĉio tio duobliĝante spegulis sin kviete kaj rave en la bluaj profundoj.
-
-La suno jam kliniĝis al la okcidento. La ombroj de la klifoj falis al la maro kaj la ombroj de la juniperoj kaj de la mont-krestoj longiĝis laŭ la promontoro kiel pintoformaj makuloj, kiel disŝiritaj ĉifonegoj. La oraj radioj, ŝutiĝante tra la inter-45
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-krutejo, per la rivereto dispartigitaj montoj kaj trans la ravinoj, ardigis la sablon kaj per punca oro surverŝis la belan knabinon. Marija, starante en la akvo, fleksiĝis super la rifon, sur kiu ŝi lavis la tolaĵon.
+La suno jam kliniĝis al la okcidento. La ombroj de la klifoj falis al la maro kaj la ombroj de la juniperoj kaj de la mont-krestoj longiĝis laŭ la promontoro kiel pintoformaj makuloj, kiel disŝiritaj ĉifonegoj. La oraj radioj, ŝutiĝante tra la interkrutejo, per la rivereto dispartigitaj montoj kaj trans la ravinoj, ardigis la sablon kaj per punca oro surverŝis la belan knabinon. Marija, starante en la akvo, fleksiĝis super la rifon, sur kiu ŝi lavis la tolaĵon.
 
 La klara aero, la brilo de la subiranta suno, la akvoodoro, la odoro de salvioj kaj oleastroj, varma spiro de la varmigitaj rokoj, ĉiu tiu rava beleco de la varma somera tago, ĉio tio ĉir-kaŭis la ĉarman, junan kaj sanan knabinon.
 
@@ -1245,9 +1005,7 @@ kaptis.
 
 —Ho, kia utilo el fiŝoj! Atentu, ke vi ne trempu vin en la akvon!
 
-Antonio, grimpante, proksimiĝis al la sablejo. En la ombro 46
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Antonio, grimpante, proksimiĝis al la sablejo. En la ombro
 
 
 sub tiuj rifoj ŝajnis al Marija, ke ŝi jen vidas lin, kaj kiam li malaperis, ŝi timis, ke li falus en la maron. Kaj kiam li fine saltis sur la sablon, la knabino demandis lin:
@@ -1274,9 +1032,7 @@ belan maron, opiniis, ke ne noktiĝos baldaŭ, kaj ke mi povos malsupreniri sub 
 
 —Tuj, tuj, — diris Antonio. Lia vizaĝo sereniĝis rigardan-te la bonan knabinon.
 
-—Mi esperas, ke ni atingos hejmen ĝis la vespera Anĝe-
-
-luso. Vi scias, ke mia patrino tuj maltrankviliĝas.
+—Mi esperas, ke ni atingos hejmen ĝis la vespera Anĝeluso. Vi scias, ke mia patrino tuj maltrankviliĝas.
 
 —Ankoraŭ pli frue, Marija! Kiom da irado ni havas de ĉi
 
@@ -1293,16 +1049,11 @@ vetero, — diris la knabino enpensiĝinta.
 —ĉu mi?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Jes, ion vi diris.
 
 —Ke la maro estas trankvila.
 
-—Hodiaŭ neniu boato rompiĝos, — rimarkis Marija rigar-
-
-dante laŭ la bordo.
+—Hodiaŭ neniu boato rompiĝos, — rimarkis Marija rigardante laŭ la bordo.
 
 —Ankaŭ la boato de Bartoliĉ…
 
@@ -1314,9 +1065,7 @@ voĉo.
 
 —ĉu tiel?
 
-Post mallonga paŭzo Antonio demandis ŝin, rigardante su-
-
-den.
+Post mallonga paŭzo Antonio demandis ŝin, rigardante suden.
 
 —ĉu vi… ĉu vi ne pensas?
 
@@ -1349,16 +1098,11 @@ Marija honteme elbuŝigis.
 Jelenŝĉica, kaj dimanĉon li venos al Luĉica.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Nu diru al mi, kie vi vidis lian boaton.
 
 —Mi vidis ĝin antaŭ ne longe tie de sur la promontoro, kie mi hakis la brulolignon. La boato glitas laŭborde, kaj ĝi certe baldaŭ eliros el tiu golfeto.
 
-—ĉu ĝi estas ankoraŭ malproksime? — demandis la kna-
-
-bino ridetante al li.
+—ĉu ĝi estas ankoraŭ malproksime? — demandis la knabino ridetante al li.
 
 —Ne estas malproksime, — li rediris per haka voĉo.
 
@@ -1390,16 +1134,9 @@ La knabino aŭskultis, kaj ŝia vizaĝo sereniĝis. Aŭdiĝis alterna plaŭdado 
 
 La frunto de Antonio sulkiĝis…
 
-Kvar maristoj, starantaj sur la ferdeko, apogis sin sur lon-49
+Kvar maristoj, starantaj sur la ferdeko, apogis sin sur longajn remilojn, kiuj kurbiĝis en la fortikaj manoj de la maristoj.
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-gajn remilojn, kiuj kurbiĝis en la fortikaj manoj de la maristoj.
-
-La maristoj jen klinis sin antaŭen kaj etendis sin, kaj jen baŭ-
-
-mante rektiĝis. Po du remiloj ĉiuflanke trempiĝis en la maron kaj ŝmacoŝpruce leviĝis el ĝi. Antaŭ la boato gliteglate sterniĝis arĝentoblua akvo. ĉe la pinto de la promontoro la boato turniĝis en la golfeton, kaj pasante sub la klifoj, ĝi baldaŭ alrampis proksime de la sablejo.
+La maristoj jen klinis sin antaŭen kaj etendis sin, kaj jen baŭmante rektiĝis. Po du remiloj ĉiuflanke trempiĝis en la maron kaj ŝmacoŝpruce leviĝis el ĝi. Antaŭ la boato gliteglate sterniĝis arĝentoblua akvo. ĉe la pinto de la promontoro la boato turniĝis en la golfeton, kaj pasante sub la klifoj, ĝi baldaŭ alrampis proksime de la sablejo.
 
 Marija ekiris hejmen, sed veninte al la apikaj klifoj, kiuj elstaras el la maro proksime de la sablejo, ŝi apogis sin kun la pezaĵo sur altan ŝtonon. Nun la boato alrampis sub la klifon, sur kiu Marija atendis. Tiu ĉi klifo altas je unu masto.
 
@@ -1419,26 +1156,18 @@ Menego.
 
 —Lin ankaŭ mi rekonis! — balancis Streha per sia kapo.
 
-—Ne babilu! Kion vi scias? — Streha malaprobis malesti-
-
-me.
+—Ne babilu! Kion vi scias? — Streha malaprobis malestime.
 
 Marija atente aŭskultis tiun ĉi mallongan parolon sur la
 
-boato. Arda ruĝo superverŝis ŝian kolon kaj la ĉarman viza-
-
-ĝon. ŝia koro batis forte en la brusto. Antonio sidante sur malalta ŝtono, apogis siajn kubutojn sur la genuojn kaj mallevis sian grandan kapon en la polmojn. Liaj okuloj morne 50
-
-SURPRIZITAJ NUPTOFESTANTOJ
+boato. Arda ruĝo superverŝis ŝian kolon kaj la ĉarman vizaĝon. ŝia koro batis forte en la brusto. Antonio sidante sur malalta ŝtono, apogis siajn kubutojn sur la genuojn kaj mallevis sian grandan kapon en la polmojn. Liaj okuloj morne
 
 
 rigardis al la pinto de la masto kiu moviĝis super la klifo. Lia vizaĝo aspektis malserena.
 
 La boato lante turnis sin sub la klifo, foriĝis de ĝi je kelkaj remsvingoj kaj ekveturis laŭlonge de la sablejo al la kabo.
 
-Marija rimarkis la frontan parton de la ŝipeto. Sur la ferdeko troviĝis ordigitaj hejtŝtipoj kaj kelkaj kaĝoj plenigitaj per kokidoj. Jam videblis duono de la boato. ĉe la masto sur la ferdeko kuŝis kelkaj meleagroj. Ili estis kunligitaj duope. Inter la meleagroj kuŝis unu bovido, kaj iom fore ankoraŭ kelkaj ka-
-
-ĝoj da kokidoj kaj kokinoj. ĉiu besto plendis kaj lamentis per siaspeca voĉo. Sed jen ankaŭ la kapoj de la maristoj, jen la nigra kaj la krispohara kapo de Mato! La tuta barko jam malkaŝiĝis. La koro de Marija vibris pro ĝojo. Mato staris sur la poŭpo. Li apogis sin al la remilo, direktis per la stirilo ŝovante
+Marija rimarkis la frontan parton de la ŝipeto. Sur la ferdeko troviĝis ordigitaj hejtŝtipoj kaj kelkaj kaĝoj plenigitaj per kokidoj. Jam videblis duono de la boato. ĉe la masto sur la ferdeko kuŝis kelkaj meleagroj. Ili estis kunligitaj duope. Inter la meleagroj kuŝis unu bovido, kaj iom fore ankoraŭ kelkaj kaĝoj da kokidoj kaj kokinoj. ĉiu besto plendis kaj lamentis per siaspeca voĉo. Sed jen ankaŭ la kapoj de la maristoj, jen la nigra kaj la krispohara kapo de Mato! La tuta barko jam malkaŝiĝis. La koro de Marija vibris pro ĝojo. Mato staris sur la poŭpo. Li apogis sin al la remilo, direktis per la stirilo ŝovante
 
 ĝin dekstren aŭ maldekstren, laŭbezone. Mato ekrigardis al la bordo, li rimarkis Marijan, li remetis la remilon en la barkon kaj ekkriis:
 
@@ -1461,9 +1190,6 @@ viŝante la ŝviton de sur la frunto per la mandorso.
 rediris Marija.
 
 —Ekblovos poste, kiam malvarmiĝos, — elspiris Menego.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Marija, kion vi faris sur la sablejo? — demandis ŝin la
@@ -1492,13 +1218,9 @@ demandis lin Mato.
 
 bruske.
 
-—ĉu la dentoj doloras vin, ke tian acidan mienon vi mont-
+—ĉu la dentoj doloras vin, ke tian acidan mienon vi montras? — ŝercis Streha.
 
-ras? — ŝercis Streha.
-
-—Remu, remu, Rijeka estas malproksime! — Antonio mon-
-
-tris la maron al ili.
+—Remu, remu, Rijeka estas malproksime! — Antonio montris la maron al ili.
 
 —Kiel estas hejme? Marija, ĉu alvenis via frato el Vieno? —
 
@@ -1521,20 +1243,13 @@ belaj urboj. Kion ja vi vidis? Vi ne vojaĝis pli fore ol al Rijeka aŭ Pula! �
 Luĉica. He, Menego, Pero! enmarigu la remilojn! Kial, pro diablo, vi babilas? Voga! Remu! Streĉu! Marija, adiaŭ! — krie-tis la juna mastro, la ĉarma Mato.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Feliĉon, feliĉon! — ekkriis Marija rigardante al la boato, kiu ektangis kaj moviĝis per la unua forta remstreĉo.
 
-—Adiaŭ, karulino! Salutu viajn familianojn! Se Dio perme-
-
-sos, ni baldaŭ vidos nin, — kriis Mato.
+—Adiaŭ, karulino! Salutu viajn familianojn! Se Dio permesos, ni baldaŭ vidos nin, — kriis Mato.
 
 —Feliĉon! feliĉon! — ekdeziris al li la knabino.
 
-Iom poste la boato komencis kaŝiĝi post la kabon, sed an-
-
-taŭ ol ĝi malaperis, Mato turnis sin al la klifo kaj eksvingis permane al la knabino. La sulko, kiu nigris sur la trankvila kaj blanka surfaco, kaj ankaŭ la larĝaj kaj unu de la alia egale distancitaj ŝaŭmcirkloj, kie estis la remiloj enmergitaj, markis la vojon, kie la boato pasis.
+Iom poste la boato komencis kaŝiĝi post la kabon, sed antaŭ ol ĝi malaperis, Mato turnis sin al la klifo kaj eksvingis permane al la knabino. La sulko, kiu nigris sur la trankvila kaj blanka surfaco, kaj ankaŭ la larĝaj kaj unu de la alia egale distancitaj ŝaŭmcirkloj, kie estis la remiloj enmergitaj, markis la vojon, kie la boato pasis.
 
 Marija enpense rigardis al la maro kaj al la sulko kiu fine trankviliĝis kaj senmoviĝis. La suno ankoraŭ origis la montojn de la insulo Cres kaj ĝiajn verdajn kverkajn arbaretojn.
 
@@ -1547,18 +1262,13 @@ La brusto de Marija lante moviĝis supren kaj malsupren,
 ŝia koro batis trankvile, kaj malantaŭ la promontoro, el la silenta golfo, oni aŭdis obtuzajn plaŭdojn de la remiloj, oni aŭdis ĝojkrietojn. La montara aero komencis malleviĝi sur la maron, movante per la varmego sekigitajn salviojn kaj zu-mante inter la pingloj de la juniperoj. Malgrandaj ondetoj vibris kaj nigrigis la marom ĉe la sablejo. La malprofunda fundo ŝajnis luliĝi. La leĝeraj blovetoj de ĉi tiu vespera venteto svingiĝis al la vasta maro, sed ili malaperis iom for la bordo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 Antonio sidis kaŭre sur ŝtono. Liaj okuloj estis malklaraj kaj angoraspektaj.
 
 Liaj nigraj okuloj gapis al la maro mute kaj dolore, kaj la spirado de Marija ŝajnas al li veni el sub la grizaj klifegoj. An-kaŭ li volus elspiri, sed lian koron ĉirkaŭvolvis serpento, kiu premis ĝin kaj turmentis, nu ĝi ne povis frakasi tiun veneni-tan koron. La granda maro sternis sin antaŭ li, kaj li bedaŭris, ke Marija ne troviĝis en ĝ profundo. Li volus salti en la akvon de sur la klifo, por kuniĝi kun ŝi. Tie sube, inter la mola musko li forte brakumus ŝin, neniu tion vidus, nek ŝi, nek tiu…
 
 tiu Mato…
 
-—Antonio, ni iru hejmen, — fine diris Marija, ekrigardin-
-
-te al la kabo, malantaŭ kiu la boato kaŝiĝis.
+—Antonio, ni iru hejmen, — fine diris Marija, ekrigardinte al la kabo, malantaŭ kiu la boato kaŝiĝis.
 
 —Jes.
 
@@ -1584,9 +1294,7 @@ Tiel grimpante ili krepuske atingis la imperiestran ŝoseon.
 
 Tie ili ambaŭ apogiĝis al malalta muro, por denove ripozi. is la hejmo ili devis piediri ankoraŭ preskaŭ duonon da horo.
 
-Marija viŝante la ŝviton de sur sia frunto, rimarkis viron ves-titan laŭ la sinjora vestmodo. La homo malrapide promenis 54
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Marija viŝante la ŝviton de sur sia frunto, rimarkis viron ves-titan laŭ la sinjora vestmodo. La homo malrapide promenis
 
 
 laŭvoje al Luĉica, kaj ludis kun eta blanka hundo, devigante
@@ -1607,9 +1315,7 @@ vidis lin nur momente sur la vojo, kiu kurbiĝas ĝuste tie.
 
 —La juna…ĉu vi ne konas lin?
 
-—Mi konas lin, mi vidis lin nur dum momento, — respon-
-
-dis Marija, kaj ŝia frunto malsereniĝis. Post ioma paŭzo ŝi flustris ripete: — Ankaŭ mia frato venos baldaŭ el Vieno.
+—Mi konas lin, mi vidis lin nur dum momento, — respondis Marija, kaj ŝia frunto malsereniĝis. Post ioma paŭzo ŝi flustris ripete: — Ankaŭ mia frato venos baldaŭ el Vieno.
 
 —Jes, Marko venos.
 
@@ -1634,12 +1340,7 @@ Proksimiĝinte al Marija, li salutis ŝin per afabla voĉo:
 vin! Vi estas Antonio… Antonio, — la sinjoro silabumis, gla-tante sian vangon per la mano.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—Nature, vi konas min! — Antonio respondis kolere, iran-
-
-te kelkajn paŝojn antaŭ Marija.
+—Nature, vi konas min! — Antonio respondis kolere, irante kelkajn paŝojn antaŭ Marija.
 
 —Nu, belega Marija, kiel vi fartas? — la sinjoro ekflustris, rigardante al ŝia vizaĝo per siaj nigraj kaj grandaj okuloj.
 
@@ -1682,9 +1383,6 @@ vojo, vi iru laŭ la via.
 —Vi, ke vi ne faris malbonon al mi? Vi faris, karulino, vi faris! Vi vundis mian koron por ĉiam! — li flustris, por ke lin ne aŭdu Antonio.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Pri via koro mi ne zorgas!
 
 —Jes, kara Marija, de kiam vi kreskis, mia okulo ĉiam postsekvas vin! Mi neniel povas sufiĉe ĝurigardi vin!
@@ -1717,14 +1415,10 @@ Marija eltiris sian manon el lia, forpuŝis lin kaj ekkriis:
 
 La vizaĝo de Antonio ardiĝis per nigra ruĝo, kaj nenion demandante pri la evento kun Marija, li saltis al tiu sinjoro, prenis lin ĉe la gorĝo per unu mano, kaj per la alia batis tiel forte lian bruston, ke li tuj falis sur la ŝoseon.
 
-(Alfredo Saletti estis konsternita. Rekonsciiĝinte el la unua embaraso, li tuj ekpensis pri venĝo. La filo de la riĉulo, procentegulo kaj sangsuĉulo de la honesta ĉemara popolo, — de 57
-
-SURPRIZITAJ NUPTOFESTANTOJ
+(Alfredo Saletti estis konsternita. Rekonsciiĝinte el la unua embaraso, li tuj ekpensis pri venĝo. La filo de la riĉulo, procentegulo kaj sangsuĉulo de la honesta ĉemara popolo, — de
 
 
-la maljuna Saletti, li opiniis, ke li rajtas fari ĉion volatan. Ven-
-
-ĝo okupis ĉimomente lian animon kaj pensojn.)
+la maljuna Saletti, li opiniis, ke li rajtas fari ĉion volatan. Venĝo okupis ĉimomente lian animon kaj pensojn.)
 
 Dum Alfredo cerbumis en arbareto kiel venĝi al Antonio,
 
@@ -1759,9 +1453,6 @@ Vi ĉiam nur ŝatas fumon sub viaj nazoj! Antun, pli bone estus enmeti tiujn mon
 —Ne brulos, se ne brulis ĝis nun. Sed donu la pelvon kun
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 la terpomoj ĉi tien, — diris la maristo, kaj preninte la pelvon inter siajn genuojn, li komencis senŝeligi la terpomojn.
 
 —Vi do vidis la boaton de Mato? — diris Jela post ioma
@@ -1772,9 +1463,7 @@ paŭzo.
 
 laborema, nu kial esti alia! Jes, kiel vera vermo! Ja, ĉiam la-boranta! Mi vetus je ĉi tiuj terpomoj kaj je ĉi tiuj fiŝoj, ke li jam forgesis la akcidenton okazintan pasintvintre.
 
-—Kiam oni alportis lin povran en nian domon, mi ne kre-
-
-dis pri lia resaniĝo. Dio tion volis! — Jela svingis per siaj manoj.
+—Kiam oni alportis lin povran en nian domon, mi ne kredis pri lia resaniĝo. Dio tion volis! — Jela svingis per siaj manoj.
 
 —Li asertas, ke lin neniam doloras la korpoparto kiu estis frapita.
 
@@ -1787,9 +1476,6 @@ mankas, ĉion, kion ni priŝparis, foriris kun Marko en Vienon.
 —He, he, se infanoj estus tiaj, kiel iam antaŭe estis! Mar-ko estas sinjoro, sed ni, kiuj ni estas? Povruloj, malriĉuloj! Se Dio estus doninta al mi ankoraŭ unu filon, tiu ne spertus tiujn altajn studojn!
 
 —Jela, turnu la fiŝojn. Do vi opinias, ke Mato svatos nian Marijan?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Kion vi volas, ke mi diru al vi? — Jela skue movis per siaj ŝultroj. — Mi dirus ke io koviĝos el tio. Ja kiom foje Mato kutimis veni al Luĉica, antaŭ la rompiĝo de lia boato? Nun ne pasas dekkvin tagoj sen lia vizito al ni. Taŭgan kaj honestan bofilon Dio donus al ni! Feliĉan baldaŭan fianĉiĝon! Kompreneble, mi ŝatus, ke mia filino restu en nia hejmo, nu, ne estas Jelenŝĉica trans Karlovac! — Jela findiris kaj renversis la fiŝojn sur grandan pladon.
@@ -1816,12 +1502,7 @@ La maljuna ŝabariĉ alvokis Antonion, kiu eniris senvorte, rigardante embarasit
 
 —Marija, mi rigardas vin kaj observas, kial vi tiel mutiĝis, kial vi estas tiel deprimita kaj trista?
 
-La patro observis la filinon okuloblikve kaj kvazaŭ li ekti-mus. Marija apogis sian maldekstran kubuton kontraŭ la tab-lo, kaj mallevinte la kapon en la manon, ŝi rigardis la patri-60
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-non. ŝiaj lipoj spasmis ploroprete, ŝi ion elbuŝigis, sed la vortoj sufokiĝis en la gorĝo, grandaj larmeroj komencis ruliĝi laŭ la kara vizaĝo kaj guti sur la maldelikatan tablotukon.
+La patro observis la filinon okuloblikve kaj kvazaŭ li ekti-mus. Marija apogis sian maldekstran kubuton kontraŭ la tab-lo, kaj mallevinte la kapon en la manon, ŝi rigardis la patrinon. ŝiaj lipoj spasmis ploroprete, ŝi ion elbuŝigis, sed la vortoj sufokiĝis en la gorĝo, grandaj larmeroj komencis ruliĝi laŭ la kara vizaĝo kaj guti sur la maldelikatan tablotukon.
 
 —Karulino, doloro mia, ja kial vi ploras, ja kiaj malbonaĵoj vin atakis? — demandis la timanta patrino kun miro.
 
@@ -1833,9 +1514,7 @@ non. ŝiaj lipoj spasmis ploroprete, ŝi ion elbuŝigis, sed la vortoj sufokiĝi
 
 liaj nigraj, profundaj okuloj fulmobrilis viva flamo, lia frunto malsereniĝis, la brovoj spasme tremetis.
 
-—Panjo! — elspiris Marija kaj per la manoj kovris la oku-
-
-lojn kaj la larmorositan vizaĝon.
+—Panjo! — elspiris Marija kaj per la manoj kovris la okulojn kaj la larmorositan vizaĝon.
 
 —Marija, mia kara ido, diru, pro Dio, kio okazis al vi? —
 
@@ -1856,9 +1535,6 @@ tentas ŝin kaj ke ŝi tion ne volis diri, por ne malĝojigi ilin. La maljunuloj
 —Mia zorgo! — ekkriis la dentogrincanta Antonio.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Diaj homoj, gardu vin de malbono! — eklamentis Jela.
 
 —Li falegis sur la ŝoseon kvazaŭ sako, kiam mi frapis lin.
@@ -1877,18 +1553,12 @@ trafis nian hejmon! Ne, ne, nur Dio povas helpi al ni!
 
 —Antun, ĉu vi Dion ne timas? Ja ankaŭ li estas baptita! Ni gardu nin de tiu familio surmonte, vi mem scias, ke jam la tuta Luĉica sufiĉe suferis pro ili. Malbone por ĉiu, kiu havas rilaton kun la maljuna Saletti! Kia patro, tia filo. Trankviliĝu, kara Antun, al Dio preĝu, por ke la malbona spirito ne devo-jigu vin. Ni devas ne peki, ĉar se Dio tuŝus lin perfingre, lia orgojlo…, —Jela ne findiris, ĉar ŝia edzo interrompis ŝian parolon.
 
-—Ne kriaĉu, edzino! Vi ne ekkonis la mondon! Se oni pe-
-
-kas pervorte, oni tamen ne vendis al diablo sian spiriton. Mi diris, ke mi mortpafus lin, sed tamen mi ankoraŭ ne pafis al li! Marija, filino mia, trankviliĝu, ne ploru! Jes, jes! Tiaj estas la sinjoroj! ĉion tiuj friponoj forrabis, konfiskis, senhaŭtigis nin, kaj nun ili volas ankoraŭ profani nian sangon. Malbono, malbono por ni, ĉar ni ne estas mastroj en niaj domoj. Ili alvagis ĉi tien malsataj kaj ĉifonvestitaj, kaj nun ili estras super ni; por ili ŝvitas niaj povraj fosistoj, ĉion kio valoras en Luĉi-62
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ne kriaĉu, edzino! Vi ne ekkonis la mondon! Se oni pekas pervorte, oni tamen ne vendis al diablo sian spiriton. Mi diris, ke mi mortpafus lin, sed tamen mi ankoraŭ ne pafis al li! Marija, filino mia, trankviliĝu, ne ploru! Jes, jes! Tiaj estas la sinjoroj! ĉion tiuj friponoj forrabis, konfiskis, senhaŭtigis nin, kaj nun ili volas ankoraŭ profani nian sangon. Malbono, malbono por ni, ĉar ni ne estas mastroj en niaj domoj. Ili alvagis ĉi tien malsataj kaj ĉifonvestitaj, kaj nun ili estras super ni; por ili ŝvitas niaj povraj fosistoj, ĉion kio valoras en Luĉi-62
 
 
 ca ili forrabis trompe kaj ruze. Kion ni povas kontraŭ ili? Dio ne pagas ĉiusabate, kaj la imperiestro estas malproksime, li ne konas niajn suferojn!
 
-—ĉu justo ne ekzistas en la mondo? Antun, pri niaj tur-
-
-mentoj ni sciigos la sinjoron paroęstron kaj Stipen, ili helpos al ni, ili diros kion fari, — kapjesis Jela.
+—ĉu justo ne ekzistas en la mondo? Antun, pri niaj turmentoj ni sciigos la sinjoron paroęstron kaj Stipen, ili helpos al ni, ili diros kion fari, — kapjesis Jela.
 
 —Mia zorgo! — premdiris Antonio tradente.
 
@@ -1914,16 +1584,12 @@ per la friponaĵo de Saletti, ankoraŭ nun min la koro doloras,
 
 —Atendu, ke mi diru! Mia mortinta patro prunteprenis de
 
-Saletti kvindek forintoj, jes, kvindek. Estiĝis plagaj jaroj, la ŝuldo kreskis kaj kreskis, mi ĵuras per mia animo, ke tiujn vitojn mi ne donus eĉ kontraŭ mil forintoj. Tiam mi estis ju-na, mi forestis de la hejmo. Jes, mi ne eraras, la patro ŝuldis 63
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Saletti kvindek forintoj, jes, kvindek. Estiĝis plagaj jaroj, la ŝuldo kreskis kaj kreskis, mi ĵuras per mia animo, ke tiujn vitojn mi ne donus eĉ kontraŭ mil forintoj. Tiam mi estis ju-na, mi forestis de la hejmo. Jes, mi ne eraras, la patro ŝuldis
 
 
 tiujn kvindek forintoj dum kvin jaroj, kaj tiam li malbenis, Dio pardonu, kaj la advokatojn kaj la justecon. Sed kion povas fari la plej bona kaj la plej justa juĝisto kontraŭ tiaj kanajloj?
 
-—Marija, trankviliĝu kaj obeu vian patrinon! — la malju-
-
-nulino konsolis sian solan filinon, karesante ŝian frunton.
+—Marija, trankviliĝu kaj obeu vian patrinon! — la maljunulino konsolis sian solan filinon, karesante ŝian frunton.
 
 —Panjo, mi pli ŝatus renkonti diablon, ol lin.
 
@@ -1947,9 +1613,7 @@ de Antonio. Sur la flikoj de la ĉemizo ankoraŭ troviĝis pece-toj de la sekaj 
 
 La nigra hararo, la pajla ĉapelo, kaj la ruĝa ĉemizo malaperis en la mallumo. La familianoj interrigardis sin. Jela sus-pekte balancis la kapon, konjektante grandan malfeliĉon.
 
-Jam pasis ĉirkaŭ tri horoj post kiam la lastaj sunradioj malaperis de sur la ŝtonoza montaro de Velebit. La nokto estis 64
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Jam pasis ĉirkaŭ tri horoj post kiam la lastaj sunradioj malaperis de sur la ŝtonoza montaro de Velebit. La nokto estis
 
 
 malluma. La blua ĉielo ŝutiĝis per grandaj steloj. Sur malalta plata monteto, kiu kaŝas sin en la mallumo proksime de Luĉica, brilas vico da lumigitaj fenestroj de la granda domo.
@@ -1962,13 +1626,9 @@ Malfrue en la nokto laŭ la ŝoseo iras malalta, fortika viro, singarde observan
 
 La viro estis Antonio. Li ne foriris fiŝkapti, kiel li estis dir-inta al la ŝabariĉanoj antaŭ proksimume du horojn, sed li venis antaŭ la domon de Saletti.
 
-Antonio apogis sin, starante sur trunko, per ambaŭ kubu-
+Antonio apogis sin, starante sur trunko, per ambaŭ kubutoj kontraŭ la muron, kaj rigardis al la lumigitaj fenestroj. La kverkopintoj lante moviĝis pro la spiro de la nokta brizo. Inter la branĉoj susuris la foliaro. La okuloj de Antonio brilis en la mallumo sub dika kverka branĉo. La fenestroj estis malfermitaj. En la ĉambroj pendis orumitaj lumigiloj. La brizo ŝve-bigis la blankajn altajn kurtenojn. La lumo el la ĉambroj disverŝis sin laŭ la arboverdaĵo. En unu ĉambro brue tintis kor-doj, kiujn iu plukis. Kun la kordosono fandiĝis arĝenteca vo-
 
-toj kontraŭ la muron, kaj rigardis al la lumigitaj fenestroj. La kverkopintoj lante moviĝis pro la spiro de la nokta brizo. Inter la branĉoj susuris la foliaro. La okuloj de Antonio brilis en la mallumo sub dika kverka branĉo. La fenestroj estis malfermitaj. En la ĉambroj pendis orumitaj lumigiloj. La brizo ŝve-bigis la blankajn altajn kurtenojn. La lumo el la ĉambroj disverŝis sin laŭ la arboverdaĵo. En unu ĉambro brue tintis kor-doj, kiujn iu plukis. Kun la kordosono fandiĝis arĝenteca vo-
-
-ĉo. Elvira Saletti kantis, sed ne kiel aliaj junulinoj en Luĉica, ne kiel maristaj filinoj. La voĉo aŭdiĝis jen pli silente, jen pli 65
-
-SURPRIZITAJ NUPTOFESTANTOJ
+ĉo. Elvira Saletti kantis, sed ne kiel aliaj junulinoj en Luĉica, ne kiel maristaj filinoj. La voĉo aŭdiĝis jen pli silente, jen pli
 
 
 laŭte, tiam plorsingulte, suspire, kaj tiam, kvazaŭ ŝi kverus.
@@ -1981,9 +1641,7 @@ Antonio aŭskultis kaj miris, li rememoris pri la altsona gorĝo de Marija kaj p
 
 Ne sciante kion fari, kaj por forpeli iujn obskurajn pensojn, li komencis nombri la fenestrojn. Estis multaj. Surtere dekdu, meze granda pordo, supre ankaŭ dekdu, kaj ankoraŭ plus
 
-unu, dektri, jes dektri. Kaj super la granda dompordo troviĝis unu vitra, ke tie oni povas eliri el ĉambro. Por ne elfali la for-
-
-ĝistoj faris feran kradbarilon. — Granda domo estas tio, —
+unu, dektri, jes dektri. Kaj super la granda dompordo troviĝis unu vitra, ke tie oni povas eliri el ĉambro. Por ne elfali la forĝistoj faris feran kradbarilon. — Granda domo estas tio, —
 
 Antonio ekpensis, — ankaŭ la episkopa en Triesto similas. —
 
@@ -2002,9 +1660,6 @@ Iom poste aperis alia silueto iom for la domo.
 —Kiu estas? — demandis la promenanto.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 Antonio skuiĝis rekoninte la voĉon de Alfredo.
 
 —Mi estas, sinjoro, mi, Lovro.
@@ -2021,17 +1676,13 @@ pro vi! — ekflustris Lovro, dum io svingiĝis aere. Li estis de-preninta sian 
 
 —Venu ĉi tien, al la arbaro, for de la domo, — diris Alfre-do, ekirinte laŭ mallarĝa ebenaĵo al Antonio, kiu sin tuta kuntiriĝis.
 
-—Kie estas Luko? — Alfredo demandis la kaleŝiston Lov-
-
-ron.
+—Kie estas Luko? — Alfredo demandis la kaleŝiston Lovron.
 
 —Se vi ordonas, mi serĉos lin.
 
 —Iru, sed singarde. Vi tuj venigu lin ĉi tien.
 
-Kiam iom poste revenis Lovro kun Luko, la nobelo mallaŭ-
-
-te diris al ili:
+Kiam iom poste revenis Lovro kun Luko, la nobelo mallaŭte diris al ili:
 
 —Aŭskultu, mi ŝercon ne konas! ĉu mi povas konfidi al vi?
 
@@ -2039,9 +1690,7 @@ te diris al ili:
 
 —Vi povas helpi al mi pri io…
 
-—Kompreneble, ni povas, — respondis la servistoj mirigi-
-
-taj.
+—Kompreneble, ni povas, — respondis la servistoj mirigitaj.
 
 —Infanoj vi ne estas plu, sufiĉe prudentaj vi estas, sed nur singarde! Mi ne dubas, ke vi sukcesos.
 
@@ -2050,14 +1699,9 @@ Lovro kaj Luko mansvingis, kvazaŭ dirante: Nia zorgo!
 —Prenu, jen tion, kaj poste vi ricevos pli, — promesis la nobelo mallaŭte, enpremante al ĉiu monbileton en la manojn.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 La donacitoj ekrigardis unu la alian, palpis la paperojn, kiuj eksusuris en iliaj manoj, kaj metis ilin en siajn poŝojn.
 
-—Nun vi aŭskultu min! Mallaŭte! Mi ne ŝatus, ke iu rimar-
-
-ku nin. Vi, do, estas pretaj plenumi ĉiun mian ordonon?
+—Nun vi aŭskultu min! Mallaŭte! Mi ne ŝatus, ke iu rimarku nin. Vi, do, estas pretaj plenumi ĉiun mian ordonon?
 
 —Ni estas.
 
@@ -2065,9 +1709,7 @@ ku nin. Vi, do, estas pretaj plenumi ĉiun mian ordonon?
 
 maristo?
 
-Antonio ektremis sub la muro. Lia vizaĝo ekflamis kun fe-
-
-bra ardo, kunpreminte la dentojn kaj la pugnojn, li streĉis siajn orelojn por ne preterlasi eĉ unu vorton.
+Antonio ektremis sub la muro. Lia vizaĝo ekflamis kun febra ardo, kunpreminte la dentojn kaj la pugnojn, li streĉis siajn orelojn por ne preterlasi eĉ unu vorton.
 
 —Ni konas, li estas Antonio.
 
@@ -2091,12 +1733,7 @@ bra ardo, kunpreminte la dentojn kaj la pugnojn, li streĉis siajn orelojn por n
 
 Luko kaj Lovro timidaj ekrigardis unu la alian.
 
-—Vi devas kaŝobservi lin, kaj kiam okazo oportunos, ata-
-
-ku, finbatu lin ĝis la sankta oleo (ĝismorte). Atentu, ke neniu vidu vin. Ts! Aŭskultu! Plejbone estus…, — proponis Alfredo, etendinte rapide la manon en la mallumon anstataŭ fini siajn vortojn.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Vi devas kaŝobservi lin, kaj kiam okazo oportunos, ataku, finbatu lin ĝis la sankta oleo (ĝismorte). Atentu, ke neniu vidu vin. Ts! Aŭskultu! Plejbone estus…, — proponis Alfredo, etendinte rapide la manon en la mallumon anstataŭ fini siajn vortojn.
 
 
 La servistoj ektimis, komprenante la signon.
@@ -2144,12 +1781,7 @@ mi laborigos vin. ĉu vi konas la filinon de la maristo ŝabariĉ?
 —Vi observu kien sola ŝi iras. Pridemandu.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—Tio estas pli facila ol la unua, — respondis Luko skuan-
-
-te la ŝultrojn.
+—Tio estas pli facila ol la unua, — respondis Luko skuante la ŝultrojn.
 
 —Atentu, ke oni ne elflaru viajn intencojn. Mi restos hej-me tutajn tri monatojn; sufiĉan tempon vi havas.
 
@@ -2157,9 +1789,7 @@ te la ŝultrojn.
 
 Antonio skuiĝis, kvazaŭ iu surtretis lian koron.
 
-—Kion, se oni ekscios! Se la junulino akuzus nin? — sus-
-
-pektis Lovro.
+—Kion, se oni ekscios! Se la junulino akuzus nin? — suspektis Lovro.
 
 —Ne frenezu! Ne estas ŝi tiom stulta! Kredu, ŝi silentos, —
 
@@ -2183,9 +1813,7 @@ Iom poste Antonio aŭdis la malproksimiĝantajn paŝbatojn,
 
 kiuj grincetis sur la sablo, per kiu estis surŝutitaj la vojetoj sur la ebenejeto antaŭ la domo. Antonio leviĝis malrapide kaj ekrigardis en la mallumon. ĉimomente Alfredo eniris la domon. La okuloj de la bastardo ŝutis fajron en la malluman nokton. En lia koro la sango ekbrulis, en lia tuta korpo ĝi ŝanceliĝis kaj ĉiuj liaj vejnoj pufiĝis, la naztruoj vibris larĝiĝante, liaj dentoj grincetis pro doloro kaj furiozo, la lipoj kuntiriĝis.
 
-Lia fereca mano eligis mallongan maristan tranĉilon el la zo-no, kaj la akra pinto de tiu ĉi tranĉilo ektremis en la spasme 70
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Lia fereca mano eligis mallongan maristan tranĉilon el la zo-no, kaj la akra pinto de tiu ĉi tranĉilo ektremis en la spasme
 
 
 kunpremita pugno kaj pale ekbrilis en la nokta mallumo sub la muro…
@@ -2200,15 +1828,7 @@ en la fenestro. La manoj moviĝis, kaj apud la dommuro malleviĝis blanka letero
 
 La nokto estas varma, la aero filtrita per la marodoro. La maro verŝadis sin obtuze trans la obskuraj rifoj kaj tra la teruraj kavernoj sub la koroditaj klifegoj. Antonio entiris sin inter du ŝtonojn, kie troviĝis iom pli mola tero, etendis sin kaj ekdormis profunde.
 
-Sur la griza oriento ekflamis plena luno. La granda bulo, ĉirkaŭita de nebulo, pli sangokolora ol ora, leviĝis el malan-71
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-taŭ Velebit. Leviĝinte je du lancoj sur la ĉielo, ĝi surverŝis la korpon de Antonio per sia brilo. Lia larĝa dorso lante leviĝis kaj malleviĝis. La lunlumo rampis laŭ lia krispa nigra hararo, de sur kiu defalis la pajla ĉapelo, laŭ la plenforma etendita korpo kaj laŭ la vejnoplenaj kaj nudaj piedoj. Lia kapo malleviĝis sur la ruĝetan teron, kiun li premis per unu vango. Li dormis kvazaŭ murdita; vidinte la ruĝetan kaj suplan teron trempitan per likva lunlumo, antaŭ lia vizaĝo, kiu treege bru-niĝis, oni ekpensus, ke ĝi eligis sangon.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Sur la griza oriento ekflamis plena luno. La granda bulo, ĉirkaŭita de nebulo, pli sangokolora ol ora, leviĝis el malantaŭ Velebit. Leviĝinte je du lancoj sur la ĉielo, ĝi surverŝis la korpon de Antonio per sia brilo. Lia larĝa dorso lante leviĝis kaj malleviĝis. La lunlumo rampis laŭ lia krispa nigra hararo, de sur kiu defalis la pajla ĉapelo, laŭ la plenforma etendita korpo kaj laŭ la vejnoplenaj kaj nudaj piedoj. Lia kapo malleviĝis sur la ruĝetan teron, kiun li premis per unu vango. Li dormis kvazaŭ murdita; vidinte la ruĝetan kaj suplan teron trempitan per likva lunlumo, antaŭ lia vizaĝo, kiu treege bru-niĝis, oni ekpensus, ke ĝi eligis sangon.
 
 
 IV
@@ -2225,9 +1845,7 @@ La paro˛o de Luĉica konsistas el pluraj malgrandaj vilaĝoj, vilaĝetoj kaj do
 
 En Luĉica estas du pastroj: la paroęstro kaj ankoraŭ unu
 
-maljuna. Tiu kvankam emerito kaj oldaĝa, tamen ĉiudimanĉe servas la malgrandan meson frumatene. La paroęstro servas la grandan kantatan meson kun prediko. Al tiu okazo kutimis 73
-
-SURPRIZITAJ NUPTOFESTANTOJ
+maljuna. Tiu kvankam emerito kaj oldaĝa, tamen ĉiudimanĉe servas la malgrandan meson frumatene. La paroęstro servas la grandan kantatan meson kun prediko. Al tiu okazo kutimis
 
 
 eksonori jam je la naŭa horo, kaj finsonori nur je la deka.
@@ -2240,26 +1858,18 @@ La maljuna Fran penige sonoris, kaj kiam infanoj alkuris
 
 antaŭ la turon kriante: ”Fran, la sinjoro paroęstro jam estas en sakristio!”, li prenis ambaŭ ŝnurojn, de la granda kaj la malgranda sonorilo kune, kaj tirante ĉiujn tri sonorilojn samtempe, li avertis la popolon rapidi en la preĝejon.
 
-Iun dimanĉon sonoris la meza sonorilo. La suno jam su-
-
-prensaltis alten. Ega varmego ŝoviĝis en la golfon de Kvarner.
+Iun dimanĉon sonoris la meza sonorilo. La suno jam suprensaltis alten. Ega varmego ŝoviĝis en la golfon de Kvarner.
 
 Sufoka aero vibris super la griza ŝtonaro kaj ŝtonbaraĵoj, super la arbaretoj kaj super la flaviĝinta herbaro. Sur la ĉielo vidiĝis eĉ ne unu nubfloketo, nur super la suda horizonto leviĝis super la maro longaj helaj nebuloj kvazaŭ tuloj. La maro estis blanka. Meze de la golfo, en la larĝa fluo, rebrilis suna oro, kaj ene de tiu ĉi oro rampis, svarmis juveloj.
 
-Laŭ la ŝoseo, kondukanta al Luĉica, de la sudo kaj la nordo, homamaso rapidis al la granda meso. La homoj iris ope. Sur montdeklivo videblas deko, iom fore eniras la valeton kvino, kaj sur alia monteto aperas denove kelkaj aroj. Ekzistas an-kaŭ unuopuloj, tiuj estas kurbiĝintaj maljunulinoj, kiujn la pli junaj atingis, salutis kaj postlasis. Laŭ la ŝoseo blankis la ĉe-mizmanikoj de gajaj vilaĝaninoj. Buntkolorajn silkajn kaptu-kojn ili surmetis super siaj ruĝecaj kaj sanaspektaj vizaĝoj por 74
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Laŭ la ŝoseo, kondukanta al Luĉica, de la sudo kaj la nordo, homamaso rapidis al la granda meso. La homoj iris ope. Sur montdeklivo videblas deko, iom fore eniras la valeton kvino, kaj sur alia monteto aperas denove kelkaj aroj. Ekzistas an-kaŭ unuopuloj, tiuj estas kurbiĝintaj maljunulinoj, kiujn la pli junaj atingis, salutis kaj postlasis. Laŭ la ŝoseo blankis la ĉe-mizmanikoj de gajaj vilaĝaninoj. Buntkolorajn silkajn kaptu-kojn ili surmetis super siaj ruĝecaj kaj sanaspektaj vizaĝoj por
 
 
-ŝirmi sin de la suno. La knabinoj ne iras solaj; kune enmiksiĝis junaj maristoj. Ili devestis siajn jakojn kaj transmetis ilin surŝultren. La ĉapelojn ili ŝovis nuken. ŝercante kaj kolereti-gante la knabinojn, ili viŝis ŝviton de sur siaj vizaĝoj per blankaj tukoj, kiujn ili tenis en siaj manoj tuttempe. La knabinoj de tempo al tempo ekridis, revenĝante sammaniere, ripro-
-
-ĉante la petolemajn maristojn, ili koleretis pro ili, ne pro la diroj, sed se iu pinĉus ĉe plenforma kubuto, kaj nur tiam, se ili eksentus doloron ĉe la freŝa kaj sana karno pinĉita.
+ŝirmi sin de la suno. La knabinoj ne iras solaj; kune enmiksiĝis junaj maristoj. Ili devestis siajn jakojn kaj transmetis ilin surŝultren. La ĉapelojn ili ŝovis nuken. ŝercante kaj kolereti-gante la knabinojn, ili viŝis ŝviton de sur siaj vizaĝoj per blankaj tukoj, kiujn ili tenis en siaj manoj tuttempe. La knabinoj de tempo al tempo ekridis, revenĝante sammaniere, riproĉante la petolemajn maristojn, ili koleretis pro ili, ne pro la diroj, sed se iu pinĉus ĉe plenforma kubuto, kaj nur tiam, se ili eksentus doloron ĉe la freŝa kaj sana karno pinĉita.
 
 Tiu tuta popolo estas gaja, senzorga kaj kontenta. Ja kial ne esti tia! Ili dum tiuj ses pasintaj labortagoj sufiĉe penis kaj ŝvitis, kaj hodiaŭ ili iom ripozos, iom kantos en la preĝejo, ili aŭskultos la predikon de la sinjoro paroęstro, kiu estas vera patro al ĉiu, ĉiuj lin estimas kaj amas, kiu multfoje ĝislarme kortuŝis ilin, kiu predikas tiel bele kaj kore, jes, tiel bele, kiel neniu pastro, nek en Jelenŝĉica, nek en Lovran, nek en Plomin. Nur posttagmeze, post la beno! La bonaj virinoj eksidos en ombron antaŭ la domo de najbarino, ili interparolos pri rikolto, pri vino, pri enamiĝintaj gefianĉoj, pri malsana baptanino, pri reveninta maristo, ili pridemandos ankaŭ, pri kio leterskribas la soldatoj de sur la imperiestraj ŝipoj kaj pri centoj da aliaj aferoj. Dum krepuskobeata freŝeco, kiam la freŝaj ombroj kovras la kvietan diecan maron, juna maristo surme-tas sian jakon ŝultren, li plukas bukedeton da fratina bazilio, kaj ekiras kantante en foran vilaĝeton al sia karulino, kiu atendos lin ĝoja kun rideto, ne povante sufiĉe ĝui rigardante lian junan kaj altan staturon vestita en puraj festovestaĵoj.
 
-Li, por montri sian horloĝon je arĝenta ĉeneto, elpoŝigos ĝin kaj diros al sia amata trezoro, ke jam estas malfrue, ke baldaŭ li devas hejmen iri. Sed ankaŭ pasintfoje li diris la samon, 75
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Li, por montri sian horloĝon je arĝenta ĉeneto, elpoŝigos ĝin kaj diros al sia amata trezoro, ke jam estas malfrue, ke baldaŭ li devas hejmen iri. Sed ankaŭ pasintfoje li diris la samon,
 
 
 tamen jam duonnokto pasis, kiam li surpremis lastan kison al la ardaj kaj ruĝaj lipoj de sia trezoro…
@@ -2270,13 +1880,9 @@ la sunon kaj diras: ”Franina baldaŭ finsonoros! Ho, kiel varme estos en la pr
 
 La fajna polvo sur la blanka ŝoseo estas kvazaŭ ardigita; la polvita ruĝa papavo en la fosaĵo apud la ŝoseo fleksiĝas pro la terura varmego, la ora spikaro tute ne luliĝas. Ne ekzistas laŭbo, krom malsolida ombro de malofta olivarbo, kiu tube-roriĉa kreskas sub la muro de la ŝoseo. La homoj tra palpebroj rigardadas al la maro tra la ebeno de la tremetanta lumo, kompatante la ŝipetojn, kiuj rigidiĝis en la blanka kvieto. Iliaj veloj pendas senmove kaj splene respeguliĝante precize sub la nigra renversita trunko.
 
-Franina ankoraŭ ne prenis la ŝnuron de la granda sonori-
+Franina ankoraŭ ne prenis la ŝnuron de la granda sonorilo, sed la homoj jam rapidas kaj rapidas. Ju pli proksime al la urbeto, des pli la aroj de la homoj pligrandiĝas kaj kunfandiĝas. La malhela Luĉica jen montriĝas kaj jen rekaŝiĝas malantaŭ la monteto, kiam ili malaperas en la valeton, kie malsupren fluas profunda rivereto al la maro. La fluejo estas seka, la ruĝa tero en ĝi fendetiĝis pro la varmego. Ne ekzistas akvo eĉ por palumbo. Oni reeltordas sin sur la deklivon de la monto, kaj jen urbeto staranta antaŭ ili. ŝajnas, ke la kampanilo balanciĝas tra la vibranta aero. Sur la muregoj, detruiĝantaj, verdas maljuna hedero, la ora kruco sur la preĝejo gaje rebrilas. La domo de Stipe blankas, la vitroj de ĝiaj fenestroj flamas de sunradioj.
 
-lo, sed la homoj jam rapidas kaj rapidas. Ju pli proksime al la urbeto, des pli la aroj de la homoj pligrandiĝas kaj kunfandiĝas. La malhela Luĉica jen montriĝas kaj jen rekaŝiĝas malantaŭ la monteto, kiam ili malaperas en la valeton, kie malsupren fluas profunda rivereto al la maro. La fluejo estas seka, la ruĝa tero en ĝi fendetiĝis pro la varmego. Ne ekzistas akvo eĉ por palumbo. Oni reeltordas sin sur la deklivon de la monto, kaj jen urbeto staranta antaŭ ili. ŝajnas, ke la kampanilo balanciĝas tra la vibranta aero. Sur la muregoj, detruiĝantaj, verdas maljuna hedero, la ora kruco sur la preĝejo gaje rebrilas. La domo de Stipe blankas, la vitroj de ĝiaj fenestroj flamas de sunradioj.
-
-Kiam la homoj proksimiĝis al la urbeto, la knabinoj haltis iomete ĉe vojkurbiĝo. ĉi tie ili malligis bluan grandan tukon, kiun ili portis enmane, kaj sub la suno ekbrilis malgrandaj 76
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Kiam la homoj proksimiĝis al la urbeto, la knabinoj haltis iomete ĉe vojkurbiĝo. ĉi tie ili malligis bluan grandan tukon, kiun ili portis enmane, kaj sub la suno ekbrilis malgrandaj
 
 
 ŝuetoj, kiuj difektiĝus dum longa vojo. Tiam ili iom malligas siajn opankojn, kaj dum ili surpiedigas siajn ŝuetojn, iuj pli kuraĝaj maristoj turniĝus, se ili ne hontus pro ĉeesto de pliaĝulo, jes, ili turniĝus por admiri blankan ŝtrumpon kaj eĉ pli plenforman kruron.
@@ -2285,9 +1891,7 @@ Kiam ĉiuj aroj proksimiĝis al Luĉica, atingis ilin laste bel-statura ĉarma j
 
 —Bonan matenon, homoj! — salutis la junulo.
 
-—Halo, Mato! Bonan matenon! Kiel estas? — ĝojkriis tena-
-
-ca junulo kun brulanta vizaĝo.
+—Halo, Mato! Bonan matenon! Kiel estas? — ĝojkriis tenaca junulo kun brulanta vizaĝo.
 
 —Varme, mi fandiĝos.
 
@@ -2297,9 +1901,7 @@ plezure vizitas, ĉar vi ekiris el Jelenŝĉica dum tia varmego, —
 
 pikis lin gaja knabino.
 
-—He, kiu scius! Eble ambaŭ aferoj! — svingis Mato senzor-
-
-ge.
+—He, kiu scius! Eble ambaŭ aferoj! — svingis Mato senzorge.
 
 —Nenio stranga! — ĝojkriis maristo.
 
@@ -2307,9 +1909,7 @@ ge.
 
 —Ja, pro animo mia, ne ekzistas pli bela en Jelenŝĉica! Jes, jes, ŝi estas bela kaj ĉarma, sed tio ne estas plej grava! ŝi estas bona, laborema kaj kvieta, kaj tio plej gravas ĉe virino, kiu onidire povas alĝustigi eĉ plej malĝentilan krudulon, — filozofiis maljuna maristo, kies profundaj haŭtsulkoj etendiĝis laŭ lia frunto, kaj kuniĝis ĉe la mezo super la tuberoida nazo.
 
-—Ankaŭ ŝia patrino! Ne ekzistis pli bela junulino ol ŝi! Jes, jes, pomo ne falas for de sia pomujo. Ho, multon pekus tiu, kiu ion malbonan dirus kontraŭ Jela ŝabariĉ! Ne ekzistas pli honesta virino en Luĉica ol ŝi estas. Jes, jes, neniam aŭdiĝis, 77
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ankaŭ ŝia patrino! Ne ekzistis pli bela junulino ol ŝi! Jes, jes, pomo ne falas for de sia pomujo. Ho, multon pekus tiu, kiu ion malbonan dirus kontraŭ Jela ŝabariĉ! Ne ekzistas pli honesta virino en Luĉica ol ŝi estas. Jes, jes, neniam aŭdiĝis,
 
 
 ke la najbarinoj blasfemus ŝin. ŝi ne estas babilema muelilo por senĉese klakadi antaŭ alies sojlo! — elspiris maljunulino, frotante sian vizaĝon, plenan kun profundaj sulkoj, per sia magra mandorso, je kiu pendis rozario.
@@ -2318,9 +1918,7 @@ ke la najbarinoj blasfemus ŝin. ŝi ne estas babilema muelilo por senĉese klak
 
 —Ja, kiel, mi sciu, mi nur hodiaŭ matene venis el Rijeka.
 
-—Ho, pro hundopiedo, kiel ĉarma junulo! Vere ni ĉiuj mul-
-
-te bedaŭras, ke li ne estiĝos sacerdoto. Ni havus junan paro˛-
+—Ho, pro hundopiedo, kiel ĉarma junulo! Vere ni ĉiuj multe bedaŭras, ke li ne estiĝos sacerdoto. Ni havus junan paro˛-
 
 estron. Sed sciu, mi ne dirus, ke la nuna paroęstro ne estas la vera anstataŭanto de Dio en la preĝejo kaj ekster ĝi. Nu, kion ni povas, li jam sufiĉan neĝon posedas ĉi tie, — diras maljuna maristo, malkovrinte sian kalvan kapon kaj montrante ĝin kvazaŭ la lunlumon briligus la nuna suno.
 
@@ -2329,9 +1927,6 @@ estron. Sed sciu, mi ne dirus, ke la nuna paroęstro ne estas la vera anstataŭa
 nia, nu, kiel diri? Jes ankaŭ nia estas bona paŝtisto, sed ŝajnas al mi, kion mi scias? Jes, mi dirus tamen, ke li tro foriĝas de la popolo; jes, tiel, tiel! Jes, mi dirus ke tio ne estas bone! La pastro estu pastro nur en la preĝejo, sed ekster ĝi li estu an-kaŭ simpla homo, simile al ni ĉiuj. Li vivas kune kun ni, li konas ĉiujn niajn zorgojn, kaj, kredu al mi, li povus multfoje helpi al ni. Ho juna mi estas, sed mi rimarkas, ke malbonaj tempoj ekestis, — kapjesis Mato.
 
 —Prave vi parolas! Tia diro estas ĝusta! La pastroj kiuj kon-stante gapas en librojn, tiuj nur taŭgas, mia Mato, por grandaj urboj, sed por ni taŭgus iu kiu komprenas nin. La episkopo devus sendi al ni paroęstron, filon de fosisto! — asertis maljuna maristo, frapante per la mandorso de la dekstra al la polmo de la maldekstra mano.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —ĉu vi, Mato, ĵaŭdon posttagmeze veturis sub niaj klifoj
@@ -2352,9 +1947,7 @@ trafis vin la pasintan vintron? — demandis lin junulino rigardanta lian ĉarma
 
 —Kia utilo estus de tio? Pli konvenas forgesi tiajn malagrablaĵojn! — diris Mato kaj svingis permane.
 
-—Certe vi nun pli atentas; ĉu vi ne timas la maron? — re-
-
-demandis la junulino.
+—Certe vi nun pli atentas; ĉu vi ne timas la maron? — redemandis la junulino.
 
 —Kial timi! Oni ne dronas ĉiutage!
 
@@ -2370,12 +1963,7 @@ Post momento ili iris en la urbeton. Mato ekiris tra la malgrandaj sratetoj, kaj
 
 La junulo eniris en la kuirejon, kaj kiam post ioma atendo neniu respondis al li, li denove kuraĝe ekkriis:
 
-—Homoj, Dio donu sanon! He, ĉu vi ĉiuj foriris en la pre-
-
-ĝejon?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Homoj, Dio donu sanon! He, ĉu vi ĉiuj foriris en la preĝejon?
 
 
 En la ĉambro iu moviĝis, la pordo malrapide malfermiĝis,
@@ -2429,9 +2017,6 @@ ekkoni lin! Se li similas al vi, Marija, tiam li estas tre…
 —Kiu?… Jes, jes, tiu riĉa…
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Vi konas ankaŭ lin?
 
 —Jes, mi konas; sed via vizaĝo iom malsereniĝis…
@@ -2452,9 +2037,7 @@ Jes, kara mia, mi ne venadis ofte al Luĉica antaŭe. Sed nun, depost la rompiĝ
 
 —Marija, aŭskultu al mi! Se ne okazus tiu malfeliĉo…
 
-La tuta korpo de la knabino ekskuis. Mato prenis ŝian ma-
-
-non. Kaj lia, kaj ŝia, ambaŭ manoj tremetis.
+La tuta korpo de la knabino ekskuis. Mato prenis ŝian manon. Kaj lia, kaj ŝia, ambaŭ manoj tremetis.
 
 —Marija…
 
@@ -2464,16 +2047,11 @@ La knabinon trafluis eksterordinaraj skusentoj. Per siaj nigraj brilaj okuloj ŝ
 
 —Mato!
 
-—Jes, karulino, mi tute hontas, ĉar mi ankoraŭ nenion di-
-
-ris al vi!
+—Jes, karulino, mi tute hontas, ĉar mi ankoraŭ nenion diris al vi!
 
 La knabino premis lian manon apenaŭ senteble.
 
 —Trezoro mia, estas malfacile, sed tion diri al vi, mi devas, ĉar jam tempas: jes, Marija mi venadas al Luĉica nur pro vi…
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Marija verve rigardis al liaj okuloj. La vortoj de Mato dolĉe dormigis ŝian koron; torento da amdoloro kunfluis en ŝian animon. Tremetis la malsekaj lipoj, kaj en ŝian karan vizaĝon abrupte enfluis sango, febre ardigante ĝin, vastiĝante tra la plenforma kolo ĝis la luksoaspekta brusto, kiu dolore ŝveliĝis pro la fortaj korbatoj.
@@ -2500,14 +2078,9 @@ La floranta korpo de Marija tremetis en lia brakumo. ŝi
 
 apogis sian kapon al lia fortika ŝultro kaj ambaŭ silentis …
 
-—Marija, vi do amas min? — ekdemandis Mato per trem-
-
-raŭka voĉo.
+—Marija, vi do amas min? — ekdemandis Mato per tremraŭka voĉo.
 
 La knabino levis sian kapon, ŝi rigardis al li tra la larmoj, ŝi dolĉe ekridetis kaj elbuŝigis mallaŭte:
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Jes, mi ĉiam pensas pri vi.
@@ -2549,9 +2122,6 @@ mondo.
 —Certe surstrate antaŭ la poŝtoficejo. Tagmeze li certe venos. Ankaŭ la meso tiam finiĝos.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Marija, hodiaŭ mi devas ion diri al viaj gepatroj, ja ankaŭ vi tion deziras?
 
 —Mato, ne diru! — Marija rapidis subtile por defendi sin.
@@ -2560,9 +2130,7 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Jes, sed…
 
-—Nu, kio okazas kun vi, Marija? ĉu vi ne volas, ke mi pa-
-
-rolu kun via patro?
+—Nu, kio okazas kun vi, Marija? ĉu vi ne volas, ke mi parolu kun via patro?
 
 —Parolu, sed sen mia ĉeesto, — ekridetis la knabino kaj ŝiaj okuloj malklariĝis.
 
@@ -2580,18 +2148,13 @@ Marija brakumis la kolon de Mato kaj apogis sian kapon sur lian ŝultron. Nenion
 
 ĉimomente aŭdiĝis el la kuirejo:
 
-—Ho ve, kiam ni hodiaŭ tagmanĝos? Kien ŝi, pro Dio, for-
-
-iris? La fajro tute estingiĝis!
+—Ho ve, kiam ni hodiaŭ tagmanĝos? Kien ŝi, pro Dio, foriris? La fajro tute estingiĝis!
 
 Marija ekrigardis Maton kaj dampe elbuŝigis:
 
 —Ho, mi forgesis pri la tagmanĝo! Ho ve, kion la patrino
 
 diros?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Marija, Marija, ja kie vi estas, ho, neniam mizera estu, kie vi estas, — vokis Jela.
@@ -2616,18 +2179,13 @@ Mato, ĉu vi jam vidis mian filon? Jes, jes, hieraŭ vespere li venis. Ankaŭ pr
 
 —Ja kial?
 
-—Mi ĉiam bedaŭros, ke li ne estas nia paroęstro. Jes, an-
-
-kaŭ vin ni atendis, kaj pro tio ni prenis ankaŭ iom da bona viando, kaj nun jen, ĉio ankoraŭ estas kruda. Kion ni povas nun? Iom pacienca vi estu, se vi estas malsata.
+—Mi ĉiam bedaŭros, ke li ne estas nia paroęstro. Jes, ankaŭ vin ni atendis, kaj pro tio ni prenis ankaŭ iom da bona viando, kaj nun jen, ĉio ankoraŭ estas kruda. Kion ni povas nun? Iom pacienca vi estu, se vi estas malsata.
 
 —Ho, pri mi estas facile! Unu horon pli- aŭ malpli frue,
 
 estas egale, — respondis Mato ridetante.
 
 —Marija, vi estas ruĝa kiel omaro. Mato, Mato, vi ion flustris en ŝian orelon! — diris Jela rigardante al la junulo, kvazaŭ volante diri: Jes, vi opinias, ke vi povas ruzi kontraŭ mi kaj trompi min!
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 — Ne mi, Jela, eĉ unu vorton mi ne diris.
@@ -2642,9 +2200,7 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 Tiel do, Mato, tiel? Kaj jen ŝi, tiu ĉi sanktulino! — ŝercis Jela alkoksiginte siajn manojn.
 
-—Nek mi estas sanktulino, nek Mato ŝtelisto estas! Kom-
-
-prenu, panjo! — diris Marija ridante sonore.
+—Nek mi estas sanktulino, nek Mato ŝtelisto estas! Komprenu, panjo! — diris Marija ridante sonore.
 
 —Vi kara Jela scias laŭ vi mem, ke ekzistas aferoj, kiujn oni povas anonci nur kvar-okule.
 
@@ -2657,14 +2213,9 @@ prenu, panjo! — diris Marija ridante sonore.
 —Jes, karulino, vi pravas! Nu, nu, lasu min senĝena nun! —
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 diris Jela kaj komencis inciti la fajron kaj pli konvene aranĝi la potojn.
 
-En tiu momento en la domon eniris Antun, la patro de Ma-
-
-rija, kaj rimarkinte Maton, li salutis lin:
+En tiu momento en la domon eniris Antun, la patro de Marija, kaj rimarkinte Maton, li salutis lin:
 
 —Ho, Mato! Bonan tagon! Kia bono okazis?
 
@@ -2704,21 +2255,11 @@ jen! ĉu estas vi, Mato? Jes, jes, laŭ la priskribo de mia fratino, plejeble es
 
 mallonga tempo de mia restado hejme, oni diris, ke vi estis atendata hodiaŭ.
 
-—Kion fari? Hodiaŭ estas dimanĉo! Nenio grava estis far-
+—Kion fari? Hodiaŭ estas dimanĉo! Nenio grava estis farenda hejme, kaj mi ekiris laŭ la ŝoseo direkte al Luĉica. Ja en tiu ĉi domo mi sentas min kvazaŭ en mia domo, kaj ne estus dece, se mi ne vizitus viajn gepatrojn kelkatempe.
 
+—ĉu neniun alian pli? — aldonis Marko ridetante kaj akcentante ĉiun vorton.
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-enda hejme, kaj mi ekiris laŭ la ŝoseo direkte al Luĉica. Ja en tiu ĉi domo mi sentas min kvazaŭ en mia domo, kaj ne estus dece, se mi ne vizitus viajn gepatrojn kelkatempe.
-
-—ĉu neniun alian pli? — aldonis Marko ridetante kaj ak-
-
-centante ĉiun vorton.
-
-Mato ĵetis rigardon al Marija, kaj kiam li rimarkis ŝin ruĝi-
-
-ĝanta, li ruĝiĝis same.
+Mato ĵetis rigardon al Marija, kaj kiam li rimarkis ŝin ruĝiĝanta, li ruĝiĝis same.
 
 —Marko, vi ĉiam emas paroli vantaĵojn! — riproĉis lin lia patro.
 
@@ -2726,9 +2267,7 @@ Mato ĵetis rigardon al Marija, kaj kiam li rimarkis ŝin ruĝi-
 
 Marija mallaŭte.
 
-—Marko, hontu iom! Ne koncernu vin pri tio, kio ne rila-
-
-tas al vi! Vi persiste klopodas inciti Marijan kaj tiklas ŝin sen-
+—Marko, hontu iom! Ne koncernu vin pri tio, kio ne rilatas al vi! Vi persiste klopodas inciti Marijan kaj tiklas ŝin sen-
 
 ĉese, de kiam vi venis hejmen, — diris Jela ridetante.
 
@@ -2742,20 +2281,11 @@ ridetis Mato.
 
 —Ho, kia utilo de li!? — ekkriis Jela kaj afable rigardis al sia filo.
 
-—Aŭskultu, Marko, aŭskultu! Nia panjo ĉiam ion kontraŭ-
+—Aŭskultu, Marko, aŭskultu! Nia panjo ĉiam ion kontraŭas al kuracistoj, — aldonis Marija.
 
-as al kuracistoj, — aldonis Marija.
+—He, tio estas malnovaj paroloj! ŝi volus aŭdi min prediki al la luĉicanoj; sed mi ne scius kion! ĉu mi pravas, kara panjo?
 
-—He, tio estas malnovaj paroloj! ŝi volus aŭdi min predi-
-
-ki al la luĉicanoj; sed mi ne scius kion! ĉu mi pravas, kara panjo?
-
-—Filĉjo, vi prave parolas! Mi eĉ mian vidpovon ŝanĝedo-
-
-nus por tio! Sed nun, mi povra maljunulino, kion povas fari?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Filĉjo, vi prave parolas! Mi eĉ mian vidpovon ŝanĝedonus por tio! Sed nun, mi povra maljunulino, kion povas fari?
 
 
 Se tiel okazis, estu tiel pro la gloro de Dio! Ja, ĉu tiel aŭ aliel, egale mallonge daŭras. Jes, jes, nur ĝis la tombo. ĉio rapide forpasas; la juneco, la fiereco kaj la sano!
@@ -2780,18 +2310,13 @@ Mato svingante alte per la mano.
 
 Iom poste Marija kaj Jela plenigis la telerojn per la supo, kaj ĉiuj sidiĝis al la tablo. La ruĝa vino gaje respeguliĝis en granda botelo; vaporo de la varma supo leviĝis trankvile al la plafono de la ĉambro. La viroj demetis siajn jakojn.
 
-—Sinjoro Marko, vi pardonos, — senkulpigis sin Mato, ĵet-
-
-inte sian jakon sur la liton.
+—Sinjoro Marko, vi pardonos, — senkulpigis sin Mato, ĵetinte sian jakon sur la liton.
 
 —Ja, ne zorgu! Jen mi; unu, du, tri, nun estas bone! — elspiris Mato deĵetinte la jakon, la veŝton, la kolumon kaj la brakumojn sur la liton.
 
 Marko denove sidiĝis, allokiĝis, kaj dolĉe ekmanĝis.
 
 —Filĉjo, ĉu vi ne hontas? — riproĉis lin la patrino.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Kial?
@@ -2808,9 +2333,7 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Ja, eĉ pli malbonaj ol senkreduloj! — refutis lin la maljunulino.
 
-Marko tordis supren la manikojn de sia ĉemizo, kaj ne plu aŭskultis la vortojn de sia patrino. Li estis tre ĉarma junulo, ĉirkaŭ dudekkvin-jara. La dekoltita, fortika kaj blankhaŭta kolo super la larĝa brusto, iom pli malhela haŭtkoloro de la sana vizaĝo kaj liaj gajaj nigraj okuloj, ĉio atestis, ke Marko posedas tenacan kaj kiel siliko fortikan kompleksion. Li man-
-
-ĝis, kiel manĝas sanaj kaj malsataj junaj homoj. Li rigardis al la fratino kaj al Mato per siaj brilaj okuloj, kiuj permanente radiis gajan mienon. Li estas eksterordinare ĝoja kaj kontenta en tiu ĉi malgranda ĉambreto, en tiu ĉi modesta marista dometo kiu respeguliĝis en la kalma maro de sur la imponaj
+Marko tordis supren la manikojn de sia ĉemizo, kaj ne plu aŭskultis la vortojn de sia patrino. Li estis tre ĉarma junulo, ĉirkaŭ dudekkvin-jara. La dekoltita, fortika kaj blankhaŭta kolo super la larĝa brusto, iom pli malhela haŭtkoloro de la sana vizaĝo kaj liaj gajaj nigraj okuloj, ĉio atestis, ke Marko posedas tenacan kaj kiel siliko fortikan kompleksion. Li manĝis, kiel manĝas sanaj kaj malsataj junaj homoj. Li rigardis al la fratino kaj al Mato per siaj brilaj okuloj, kiuj permanente radiis gajan mienon. Li estas eksterordinare ĝoja kaj kontenta en tiu ĉi malgranda ĉambreto, en tiu ĉi modesta marista dometo kiu respeguliĝis en la kalma maro de sur la imponaj
 
 klifoj.
 
@@ -2822,11 +2345,7 @@ filon.
 
 —Sed, kara filĉjo, kiu kredus, ke tie kie vivas nia imperiestro, povas vivi ankaŭ la filo de la maristo ŝabariĉ, — kapbalancis Jela.
 
-—Sed mi ne manĝas kun la imperiestro! Kredu min: la su-
-
-po en Vieno estas vera postlavaĵo. Kaj ĉu vi opinias, ke oni tie 90
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Sed mi ne manĝas kun la imperiestro! Kredu min: la supo en Vieno estas vera postlavaĵo. Kaj ĉu vi opinias, ke oni tie
 
 
 plenigas poton per rizo kiel ĉe ni? Jes, oni preskaŭ laciĝas kaptante kelkajn grajnojn, kiuj sur ĝi flosas kvazaŭ vermoj.
@@ -2851,9 +2370,7 @@ urbo, — asertis Mato.
 
 —Al ni la sinjoro paroęstro parolis, ke ekzistas grandaj
 
-urboj en la nova mondoparto, nu kiel ĝi nomiĝas? — deman-
-
-dis Marija embarase.
+urboj en la nova mondoparto, nu kiel ĝi nomiĝas? — demandis Marija embarase.
 
 —Ameriko, — instruis ŝin la frato.
 
@@ -2866,16 +2383,11 @@ dis Marija embarase.
 —Kial vi krucosignas vin, ja ankaŭ ili estas same bonaj kiel ni! — sciigis ŝin Antun trankvile. —La ŝipestro ofte parolis al ni, ke ekzistas landoj, kie tiaj nigraj homoj manĝas nin blan-kulojn, sed mi ne kredas al tio, ĉar mi scias, ke la sinjoraro ofte ŝerce kredigas povrulojn pri ĉiaĵoj. Kiel vi opinias, Mato?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Mi ne scias kion diri! — la junulo skuigis la ŝultrojn.
 
 —Enmonde ekzistas ĉiaj malbonaĵoj! — elspiris Jela.
 
-—Ekzistas ankaŭ bonaĵoj, kara panjo! — korektis ŝin Mar-
-
-ko.
+—Ekzistas ankaŭ bonaĵoj, kara panjo! — korektis ŝin Marko.
 
 —ĉiel, Jela? Iuj penas perkape, aliaj per remiloj. Sed, mi opinias, ke ne estas agrable strabi al libroj, — diris Mato.
 
@@ -2902,9 +2414,6 @@ komprenis eĉ ne unu vorton, ĉar ili parolis itallingve.
 —Se ili parolus kroate, ĉiuj rijekanoj komprenus ilin. Mi vizitas Rijekon ĉiusemajne. Mi rilatas kun multnombra popolo, kaj ĉiuj komprenas min parolantan nian lingvon, — eldiris Mato.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Por sinjoroj konvenas la itala lingvo, dum la kroata estas por ni malriĉuloj, — mansvingis Antun.
 
 —Kial? — demandis Marko skuiĝinte malagrable.
@@ -2927,9 +2436,7 @@ Tiel ŝercante kaj parolante, finiĝis la tagmanĝo. Kiam Jela alportis kafon, M
 
 ĉiujn poŝojn de la jako.
 
-—Mi havis kelkajn, sed mi forfumis ilin dumvoje, — plen-
-
-dis Mato, ke li ne povas regali sinjoron Markon.
+—Mi havis kelkajn, sed mi forfumis ilin dumvoje, — plendis Mato, ke li ne povas regali sinjoron Markon.
 
 —Sendu iun al butiko por alporti kelkajn; ja kie estas Antonio? He, Antonio! — ekvokis Marko.
 
@@ -2947,12 +2454,7 @@ Marko.
 
 —Mi konas, sed iel strang-konduta li aspektas.
 
-—Jes, strang-konduta; foje pasas po du tagoj ĝis li elbuŝi-93
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-gas vorton, kaj lastatempe li daŭre estas pli kaj pli malgaja kaj silentema. Dio scias, kio kirliĝas en lia kapo, — diris Jela svingante per sia kapo.
+—Jes, strang-konduta; foje pasas po du tagoj ĝis li elbuŝigas vorton, kaj lastatempe li daŭre estas pli kaj pli malgaja kaj silentema. Dio scias, kio kirliĝas en lia kapo, — diris Jela svingante per sia kapo.
 
 Marija eliris el la domo por aĉeti cigarojn. ĉiuj en la ĉambreto silentiĝis. Post ioma paŭzo la silenton interrompis Antun, kiu demandis Maton:
 
@@ -2968,9 +2470,7 @@ La junulo intencis ion diri, sed li ne povis pro ekcitiĝo, kiu evidente kreskis
 
 ne logus bela junulino en nia loko! ĉu jes, ke mi trafis? — diris Marko ridetante.
 
-—Iel simile, jes, — elbalbutis Mato, kaj lia bela vizaĝo ruĝi-
-
-ĝis.
+—Iel simile, jes, — elbalbutis Mato, kaj lia bela vizaĝo ruĝiĝis.
 
 —Nu, diru al mi ŝian nomon, kaj mi amike konsilos kaj
 
@@ -2989,16 +2489,11 @@ vorto haltis en la gorĝo.
 —Ek, Mato, vi malpeziĝos! — kuraĝigis lin Marko.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Antun, pardonu al mi, ke mi nomas vin amiko. Mi tiel ne
 
 rajtas, ĉar vi povus esti mia bopatro. Vi scias…
 
-—Mato, mi aŭskultas vin, — diris Antun post longa aten-
-
-do, rigardante tra la fenestro.
+—Mato, mi aŭskultas vin, — diris Antun post longa atendo, rigardante tra la fenestro.
 
 —Vere dirite, aŭskultu, mi volus, ke vi donu vian Marijan al mi kiel edzinon. Mi esperas, ke vi ne kontraŭos; mi estas juna, ankaŭ sub propra tegmento, kvankam mi spertis akcidenton ĉi-vintre, tamen mi ne devas vagi ĉirkaŭ alies sojloj.
 
@@ -3008,18 +2503,11 @@ Mia patrino maljuniĝis kaj malfortiĝis, en la hejmo estas bezonataj junaj musk
 
 ĝojas elkore kaj ĉian feliĉon mi deziras al vi. Vi pridiskutu kun Marija pri tio, kaj se ŝi konsentos, Dio donu, ke tiu ĉi momento estu feliĉiga! — elbuŝigis Antun turninte sin al la maro, por ke iu ne rimarku liajn malklariĝintajn okulojn.
 
-—Mato, kvazaŭ vi ambaŭ naskiĝis unu por la alia! Vi estas junaj kaj sanaj; laboru kaj ŝparu kaj ne mankos pankrusto al vi. Mi ne volas laŭdi min, sed ĉiu patrino estus fiera pri mia Marija. Vi, Mato estas saĝa kaj laborema, iom da havaĵo vi havas, ankaŭ al Marija ni donos iom, kiom ni povas. ŝi ne foriros el nia domo kvazaŭ orfo, ja ni ne estas malriĉaj kiel preĝejaj musoj! — finis Jela viŝante la larmojn per la antaŭ-
+—Mato, kvazaŭ vi ambaŭ naskiĝis unu por la alia! Vi estas junaj kaj sanaj; laboru kaj ŝparu kaj ne mankos pankrusto al vi. Mi ne volas laŭdi min, sed ĉiu patrino estus fiera pri mia Marija. Vi, Mato estas saĝa kaj laborema, iom da havaĵo vi havas, ankaŭ al Marija ni donos iom, kiom ni povas. ŝi ne foriros el nia domo kvazaŭ orfo, ja ni ne estas malriĉaj kiel preĝejaj musoj! — finis Jela viŝante la larmojn per la antaŭtuko.
 
-tuko.
-
-ĉimomente Marija surpaŝis trans la sojlon, portanta ci-
-
-garojn enmane. ŝi ekrigardis al la frato kaj li per grava mieno ekridetis al ŝi. La mokrideto de Marko, la silento en la ĉambro kaj embaraso sur la vizaĝoj de ĉiuj, alforĝis ŝin al la sojlo; tiel surprizita ŝi restis tie kun la malsupren klinita kapo.
+ĉimomente Marija surpaŝis trans la sojlon, portanta cigarojn enmane. ŝi ekrigardis al la frato kaj li per grava mieno ekridetis al ŝi. La mokrideto de Marko, la silento en la ĉambro kaj embaraso sur la vizaĝoj de ĉiuj, alforĝis ŝin al la sojlo; tiel surprizita ŝi restis tie kun la malsupren klinita kapo.
 
 —Marija, — Jela elbuŝigis, — ĵus ni parolis pri vi.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 La ĉarma knabino ruĝiĝis kole kaj la vange ĝis la nigra kaj brila hararo. ŝi rigardis teren.
@@ -3034,17 +2522,13 @@ Marko saltopaŝis al la fratino, li kaptis ŝian kapon per siaj ambaŭ manoj kaj
 
 —Nu, karulino, ĉu vi amas lin aŭ ne?
 
-—Marko, Marko? — Marija petis, sed ŝia voĉo ĝoje treme-
-
-tis.
+—Marko, Marko? — Marija petis, sed ŝia voĉo ĝoje tremetis.
 
 —ĉu jes, aŭ ne?
 
 —Lasu ŝin! — minacetis la patrino.
 
-Mato alpaŝis al la junulino, kaj preninte ŝian manon, li dol-
-
-ĉavoĉe demandis:
+Mato alpaŝis al la junulino, kaj preninte ŝian manon, li dolĉavoĉe demandis:
 
 —Kara Marija, diru, trankviligu nin ĉiujn, diru al mi, ĉu vi volas iri kun mi al Jelenŝĉica?
 
@@ -3053,35 +2537,21 @@ Marija diris nenion, sed ŝi tenere svingiĝis al lia brakumo kaj enŝovis sian 
 —Estu feliĉaj! — singultis Jela. —Vi ne ekkonu malbonaĵojn kaj dolorojn! Dio benu vin kaj donu sian gracon por la sano kaj la honesto!
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
+Dum Jela parolis, Marko enverŝis la ruĝan vinon en la glasojn. Al la ĉarma junulo, kun nudigita brusto, la vizaĝo iom ruĝiĝis kaj la okuloj ĝoje brilvibris sub la densaj brovoj. Marko levis la glason supren, skuis sian ĉarman kapon por tiamaniere alĝustigi la suprajn buklojn de sia nigra hararo, kiu on-diĝis belaspekte. Li alte tenis la glason, soleneco transverŝiĝis sur la vizaĝo. La larĝa maniko de lia blanka ĉemizo sinkis sub la kubuton, dum lia forta nuda brako, ŝajne, verŝos en ĉi tiun ĉambreton la tutan feliĉon de la vasta universo.
 
-
-Dum Jela parolis, Marko enverŝis la ruĝan vinon en la glasojn. Al la ĉarma junulo, kun nudigita brusto, la vizaĝo iom ruĝiĝis kaj la okuloj ĝoje brilvibris sub la densaj brovoj. Marko levis la glason supren, skuis sian ĉarman kapon por tiamaniere alĝustigi la suprajn buklojn de sia nigra hararo, kiu on-diĝis belaspekte. Li alte tenis la glason, soleneco transverŝi-
-
-ĝis sur la vizaĝo. La larĝa maniko de lia blanka ĉemizo sinkis sub la kubuton, dum lia forta nuda brako, ŝajne, verŝos en ĉi tiun ĉambreton la tutan feliĉon de la vasta universo.
-
-—La glasojn enmanen! — Marko ekkriis, kaj kiam ĉiuj obe-
-
-is lin, li per sia forta kaj sonora voĉo ekklamis: — Gratulon al Marija kaj Mato!
+—La glasojn enmanen! — Marko ekkriis, kaj kiam ĉiuj obeis lin, li per sia forta kaj sonora voĉo ekklamis: — Gratulon al Marija kaj Mato!
 
 La glasoj ektintis. La maljuna Antun ridetis kaj viŝis la larmojn de sur sia sulkiĝinta vizaĝo.
 
 —Ke mi kisu vin, franjo kara, — diris Marko kaj surpremis ardan kison unue al la lipoj, kaj poste li kisadis ŝin ĉe la vangoj, ĉe la frunto kaj kie ajn li povis, ĉar la fratino klopodis ŝir-mi sin per siaj manoj.
 
-—Marko, kial vi tiel bonhumoriĝis? — demandis lin la pa-
-
-trino.
+—Marko, kial vi tiel bonhumoriĝis? — demandis lin la patrino.
 
 —Bonhumoriĝis! Ja, en mi bolas cent vivoj! Vidante vin
 
 ĉiujn tiel feliĉaj, tio ĉi ĝojigas min.
 
-—Sed, ĉu ankaŭ vi iun serĉis en la vasta mondo? — aldo-
-
-nis Jela. — Ho, vi estas sinjoro, la via vestos sin per pluŝo kaj silko, sed ne en tia ĉi robo! Eĉ pli, ŝi surhavos ĉapeleton, kvazaŭ Bodolinoj (insulaninoj en Venecio). Ankaŭ sunombrelon, por ke ŝin la suno ne bruligu. ĉu vi venigos ŝin al ni en Luĉican, ke ŝi ellernu de sia bopatrino kiel kreskigi fazeolojn kaj terpomojn?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Sed, ĉu ankaŭ vi iun serĉis en la vasta mondo? — aldonis Jela. — Ho, vi estas sinjoro, la via vestos sin per pluŝo kaj silko, sed ne en tia ĉi robo! Eĉ pli, ŝi surhavos ĉapeleton, kvazaŭ Bodolinoj (insulaninoj en Venecio). Ankaŭ sunombrelon, por ke ŝin la suno ne bruligu. ĉu vi venigos ŝin al ni en Luĉican, ke ŝi ellernu de sia bopatrino kiel kreskigi fazeolojn kaj terpomojn?
 
 
 —Ankoraŭ sufiĉan tempon mi havas por tio, kara panjo, —
@@ -3125,9 +2595,6 @@ Marko diris kaj prenis lian dekstran manon kaj firme premis
 —Ankaŭ mi estas homo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Kompreneble, kiel ĉiu alia.
 
 —Ne, mi ne estas homo; ĉiu ajn libervole povas mortigi
@@ -3169,14 +2636,9 @@ Ili disiĝis. Marko tragrimpis la arbareton ĝis la muro, kiu ĉirkaŭas la eben
 Elvira! — Li altiris brusten la sveltan kaj junan virinon.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 V
 
-La maljuna nobelo Saletti estis tre severa, ŝparema kaj ri-
-
-ĉaĵavida homo. En lia domo oni ne ŝiris panon senlabo-
+La maljuna nobelo Saletti estis tre severa, ŝparema kaj riĉaĵavida homo. En lia domo oni ne ŝiris panon senlabo-
 
 re. ĉiuj servistoj ĉiam estis okupitaj per senĉesa laboro, krom Lovro kaj Luko, kiuj, per preteksto kutimis vagi en Luĉican, por ekscii ion pri Marija de ŝabariĉ. La servistoj senĉese spi-onis la junan knabinon, klopodante sciiĝi, kie ŝi iras; singarde kaj ruze ili demandadis bonintencajn homojn en espero, ke ili tamen ion priflaros, per kio ili povus trankviligi sian mastron. Ili tutkorpe sentis jukon pro granda kaj blinda sen-pacienco, tial ili plej baldaŭ intencis plenumi la teruran taskon, kaj akiri la promesitan premion.
 
@@ -3186,16 +2648,9 @@ Tiuj pensoj ŝajnis ridindaj por Alfredo, kaj se ili enkapiĝus al iu alia, ili 
 
 (La servistoj Luka kaj Lovro ĉiun vesperon kuniĝadis kun
 
-Alfredo por raporti pri la plenumo de la farendaj taskoj. La malsukcesintaj servistoj ne povis fieri, sed Alfredo instigis ilin pli kaj pli. Liajn pensojn insidis Antonio. Iun tagon li rememoris pri evento el sia knabaĝo. La krompatrino de Antonio venis kun povra kaj ĉifonita Antonio al la maljuna Saletti pe-100
+Alfredo por raporti pri la plenumo de la farendaj taskoj. La malsukcesintaj servistoj ne povis fieri, sed Alfredo instigis ilin pli kaj pli. Liajn pensojn insidis Antonio. Iun tagon li rememoris pri evento el sia knabaĝo. La krompatrino de Antonio venis kun povra kaj ĉifonita Antonio al la maljuna Saletti petante helpon, montrante lin. La maljuna Saletti forpelis ŝin el sia domo, kaj la etan Antonion li forpuŝis per piedo kontraŭ lian dorson, ke li falis sur Alfredon, kiu tie ludis. La furioza Alfredo prenis bastonon kaj frapis la kapon de Antonio, ke li eksangis.
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-tante helpon, montrante lin. La maljuna Saletti forpelis ŝin el sia domo, kaj la etan Antonion li forpuŝis per piedo kontraŭ lian dorson, ke li falis sur Alfredon, kiu tie ludis. La furioza Alfredo prenis bastonon kaj frapis la kapon de Antonio, ke li eksangis.
-
-Alfredo sopiris amon kaj belan Marijan. Li samtempe kon-
-
-sideris pri Antonio, kiu ĝenis liajn intencojn kaj, kiun li ĉiamaniere devis forigi. Siajn pagservulojn li urĝigis fari la taskon baldaŭ, senkonsidere pri la konsekvencoj. Intertempe
+Alfredo sopiris amon kaj belan Marijan. Li samtempe konsideris pri Antonio, kiu ĝenis liajn intencojn kaj, kiun li ĉiamaniere devis forigi. Siajn pagservulojn li urĝigis fari la taskon baldaŭ, senkonsidere pri la konsekvencoj. Intertempe
 
 Luka ŝance renkontis Jelan. ŝi estis reveninta el la montaro, kie ŝi rikoltis, ŝanceliris portante kunligaĵon de hordeo ĝis la montopiedo kaj tie ŝi intencis ripozi. Luka aliris komencan-te interparolon. Li sciiĝis, ke ŝia Marija la venontan matenon ekiros al la montaro por alporti la restantan pezaĵon de la hordeo. Luka adiaŭis Jelan kaj forkuris al Alfredo. Jam noktiĝis. Antaŭ la palaco de Saletti Alfredo kaj Luka faris diable-cajn planojn por la venonta tago sen konjekto, ke Antonio ilin aŭskultas. Li kaŭris ĉe la muro, atendante okazon por transdoni leteron de Marko al Elvira. Li tiel aŭdis la tutan teruran planon de Alfredo, kiu promesis allogan premion, se la krimago sukcesos senrimarke. Antonio sukcesis transdoni la leteron de Marko al Elvira kaj rapide forkuris al sia amiko…) Nur duono da horo pasis ankoraŭ, kaj de sur alta promontoro disvastiĝis basa voĉo laŭ la marebenaĵo kaj ĝi fine ree˛is sub la klifoj de la mallumaj golfetoj.
 
@@ -3205,9 +2660,7 @@ Luka ŝance renkontis Jelan. ŝi estis reveninta el la montaro, kie ŝi rikoltis
 
 Antonio surgrimpis la kabon, sub kiu troviĝas la sablejo
 
-nomata ”La Kolonoj”, por de tie alkrii al la amiko Joso, kiu 101
-
-SURPRIZITAJ NUPTOFESTANTOJ
+nomata ”La Kolonoj”, por de tie alkrii al la amiko Joso, kiu
 
 
 kutimis tie fiŝkapti. Antonio nun komencis malsupreniri al la maro, permane firme sin tenante kaj atentante kien meti la piedon, jen unu, jen la alian. Kiam li atingis la maron, li sidiĝis sur rokon, lavita kaj ĉirkaŭmordita per ondoj, li ekrigardis al la malluma golfeto, de kiu aŭdiĝis la remilplaŭdado. La boato de Joso rampis laŭ la glata akvosurfaco al la kabo. Am-baŭflanke de la boato plaŭdis po unu remilo. La barko kun siaj remiloj aspektis en la mallumo kiel granda, nigra kaj ek-zotika birdo, kiu malvigle dormeme ŝancelas super la trankvila maro, trempante en ĝin la ekstremaĵojn de siaj pezaj flugiloj.
@@ -3235,9 +2688,6 @@ renversiĝis.
 —Jen prenu la remilon! Ni iru al ”la ripozejo” kie mi ĝis nun estis. ĉe tiu klifo, vi scias, oni nomas ĝin, precipe la infanoj, ”La kokino”. Tie ankaŭ salvelinoj troviĝas.
 
 —ĉu vi Joso havas iom da logfiŝoj por ”grasumi” la maron?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Mi ne havas kaj ili ne estas bezonataj, ĉar la fiŝoj hok-avidiĝis kvazaŭ ili karesmon fastis. ĉie nurnuraj glutaviduloj!
@@ -3276,26 +2726,15 @@ Vere li ne havis ankron, sed li havis ligitan grandan ŝton-blokon je longa eluz
 
 Post kiam ili ankriĝis, aŭ pli korekte, ŝtonankriĝis, Joso demandis:
 
-—Antonio, ĉu vi havas bruligilon? Mi deziras iom prifumi-
-
-gi mian nazon.
+—Antonio, ĉu vi havas bruligilon? Mi deziras iom prifumigi mian nazon.
 
 —Mi havas kelkajn alumetojn; jen prenu!
 
-Joso streĉis sin trans la boateto kaj etendis sian longan brakon, prenis la alumetujon kaj ekbruligis la pipon. La alume-103
+Joso streĉis sin trans la boateto kaj etendis sian longan brakon, prenis la alumetujon kaj ekbruligis la pipon. La alumeto ekflamis kaj prilumis la malnovan, abraziitan fiŝ-boaton, la magran kaj flavecan vizaĝon de Joso, lian tordan buŝon, la hokoidan nazon kaj iom da blua kaj kvieta maro.
 
-SURPRIZITAJ NUPTOFESTANTOJ
+—Joso, antaŭ la tagiĝo, do baldaŭ, ni surbordigos la boaton, sur la sablejon de ”La Kolonoj”.
 
-
-to ekflamis kaj prilumis la malnovan, abraziitan fiŝ-boaton, la magran kaj flavecan vizaĝon de Joso, lian tordan buŝon, la hokoidan nazon kaj iom da blua kaj kvieta maro.
-
-—Joso, antaŭ la tagiĝo, do baldaŭ, ni surbordigos la boa-
-
-ton, sur la sablejon de ”La Kolonoj”.
-
-—Kial? — miris Joso tenante perdente la mallongan fumin-
-
-gon de la pipo.
+—Kial? — miris Joso tenante perdente la mallongan fumingon de la pipo.
 
 —ĉu vi konas tiun sinjoron?
 
@@ -3334,12 +2773,7 @@ alporti kunligaĵon da hordeo.
 —ĉu vi ekiros do kun mi?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—Kompreneble, volonte, kvazaŭ nuptofesti! Ja mi mortba-
-
-tos lin!
+—Kompreneble, volonte, kvazaŭ nuptofesti! Ja mi mortbatos lin!
 
 —La maljuna Saletti vendis aŭkcie la havaĵon de via patro.
 
@@ -3351,16 +2785,11 @@ Sperta ruzulo li estas! Tombo elĵetu liajn ostojn! Ho, ts! Antonio io hokiĝis,
 
 Joso jen tiras, jen iom lasas, kaj li retiras, malrapide kaj atente por ne interrompi la fadenojn. Fine sur la supraĵon ekplaŭdis granda kaj larĝa salvelino. Joso levis la fiŝon en la boaton, li kunpremis ĝin per siaj genuoj, eltiris la hokon el ĝia buŝo, kaj ĵetinte ĝin al la fundo de la boato, li diris serioze:
 
-—i pezas ses funtojn minimume! Deca manĝopeco sur-
-
-table eĉ de nia sinjoro paroęstro ĝi estus!
+—i pezas ses funtojn minimume! Deca manĝopeco surtable eĉ de nia sinjoro paroęstro ĝi estus!
 
 En la silento de la malluma golfeto nun aŭdiĝis la saltado de la fiŝo sur la malfirmaj bretetoj kiuj tegis la boatfundon.
 
 Post la trankviliĝo de la fiŝo, en la golfeto ree ekregis la sama rigida silento, kiun interrompas de temp’ al tempo kvieta levo kaj mallevo de la akvo, kiu dormeme verŝis sin kaj ensorbiĝis en la fragilan kaj porozan markremon, per kiu garniĝis la ro-kaĵo ĝuste ĉe la marsurfaco. Aŭskultante la mallaŭtan marsu-floron kaj la dampan, mildan kluk-klukadon de la akvo, oni opinius, ke ankaŭ la klifegoj suspiras en la mallumo, ke an-kaŭ ili vivas, ke ankaŭ ili ĝuas la markisadon, la karesan pet-oladon kun la densa kaj longa musko. La glata marblua ebe-no lante ŝveliĝas kaj leviĝas kvazaŭ dolĉe dormiĝinta marfe-ino, sonĝanta pri grandaj kaj brilaj steloj, kiuj respeguliĝas de sur la ĉielvolbo en la misteraj marprofundoj, kiuj flagretas ĉirkaŭ ŝia orhara kapo.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Joso, ankoraŭfoje ni enĵetos la fiŝkaptilojn, kaj poste ni iros al la sablejo. Vidu, tie malantaŭ la montoj jam la ĉielo heliĝas.
@@ -3389,9 +2818,7 @@ per necerta voĉo.
 
 —Mi jam diris, dronigi lin!
 
-—Jen, mia tranĉilo! Mi akrigis ĝin; se ili atakos min, mi dis-
-
-ŝiros iliajn ventrojn!
+—Jen, mia tranĉilo! Mi akrigis ĝin; se ili atakos min, mi disŝiros iliajn ventrojn!
 
 —ĉu tiel? Tranĉ! Kaj la intestojn eksteren! — montris Joso svinganta permane laŭlonge de la ventro de Antonio, de la umbiliko ĝis la brusto.
 
@@ -3401,18 +2828,13 @@ per necerta voĉo.
 
 —He, tie temas pri armeoj.
 
-—Defendanta sin, oni kondutas kiel armeo! ĉu vi vere ti-
-
-mas tiujn fiulojn?
+—Defendanta sin, oni kondutas kiel armeo! ĉu vi vere timas tiujn fiulojn?
 
 —Jes, liaj servistoj intencas mortigi min.
 
 —Li havas multajn servistojn?
 
 —Lovro kaj Luka.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Kiu tion diris al vi? Ne kredu, Antonio! Nu, eĉ se deko da tiaj atakus vin, al ĉiuj vi frakasus iliajn kraniojn!
@@ -3433,41 +2855,25 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Se ili estus mortintaj, ili neniel povos mortigi vin…
 
-—Joso, mi ne volas peki fatale. En tiu ĉi mondo mi ne vi-
-
-vas bone; kaj mi deziras, ke en la alia estu al mi pli bone.
+—Joso, mi ne volas peki fatale. En tiu ĉi mondo mi ne vivas bone; kaj mi deziras, ke en la alia estu al mi pli bone.
 
 —He, mi ne saĝumus tiel, ĉar ili ne estas honestaj homoj!
 
 —Baptitaj ili estas, samkiel ni! Joso, mi ne volas, krom se ili devigos min. Homa sango ne estas hunda. Dio scias, ke mi ne prisoifas ilian sangon, kaj li juĝos al ĉiu.
 
-—uste bonege vi hakparolas! Tiel ne scipovas eĉ nia pa-
+—uste bonege vi hakparolas! Tiel ne scipovas eĉ nia paroęstro! Antonio, vi estas admirenda homo!
 
-roęstro! Antonio, vi estas admirenda homo!
+—Aŭskultu, Joso! — Antonio diris post ioma silento, — permesu, ke mi demandu vin pri io: ĉu vi memoras vian patrinon?
 
-—Aŭskultu, Joso! — Antonio diris post ioma silento, — permesu, ke mi demandu vin pri io: ĉu vi memoras vian patri-
-
-non?
-
-—Ne precize; mi ne plenumis la duan jaron, kiam ŝi mor-
-
-tis… ĉu vi, Antonio, aŭdas birdflirtadon en la mallumaj roko-kavoj? — Joso demandis mallaŭte kaj krucosignis sin.
+—Ne precize; mi ne plenumis la duan jaron, kiam ŝi mortis… ĉu vi, Antonio, aŭdas birdflirtadon en la mallumaj roko-kavoj? — Joso demandis mallaŭte kaj krucosignis sin.
 
 —ĉu via patro estis en Luĉica, kiam la patrino mortis?
 
-—Ne estis; nu, kial vi demandas min pri tio? ĉu vi ne aŭ-
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-das, ke la birdoj pli intense flirtas kaj blekas? Vere, Antonio, ĉiun fojon, kiam dumnokte mi fiŝkaptas ĉi tie kaj kiam mi memore pensas pri la forpasinta patrino, la birdoj moviĝas kaj translokiĝas ĉirkaŭ la rokokavo, kvazaŭ ili ĉirpante kaj siblante plendas. Nu, diru, kial vi demandas min pri tio?
+—Ne estis; nu, kial vi demandas min pri tio? ĉu vi ne aŭdas, ke la birdoj pli intense flirtas kaj blekas? Vere, Antonio, ĉiun fojon, kiam dumnokte mi fiŝkaptas ĉi tie kaj kiam mi memore pensas pri la forpasinta patrino, la birdoj moviĝas kaj translokiĝas ĉirkaŭ la rokokavo, kvazaŭ ili ĉirpante kaj siblante plendas. Nu, diru, kial vi demandas min pri tio?
 
 —Kial… kial? — mi ne scias…
 
-—Mia patro estis surmare kiam la patrinon oni entombi-
-
-gis. Tion mi klare rememoras, ĉar post la patrina forpaso, min prenis la onklino…
+—Mia patro estis surmare kiam la patrinon oni entombigis. Tion mi klare rememoras, ĉar post la patrina forpaso, min prenis la onklino…
 
 —La onklino Kata?
 
@@ -3477,9 +2883,7 @@ gis. Tion mi klare rememoras, ĉar post la patrina forpaso, min prenis la onklin
 
 —Antonio, kial vi timiĝis? Via voĉo sonas kvazaŭ ĝi venas el tombo.
 
-—Via onklino tre karesis min; kiel mi atingis en ŝian do-
-
-mon?
+—Via onklino tre karesis min; kiel mi atingis en ŝian domon?
 
 —Jes, ŝi tre amis vin. Mi neniam forgesos la tagon, kiam ŝi alportis vin…
 
@@ -3500,14 +2904,9 @@ patrinon.
 —Sed, se li estus droninta?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 Antonio kaj Joso eksilentis rigardante al la fiŝkaptiloj. Tuta horo jam pasis.
 
-Super la orientaj montoj la noktaj vualoj delikatiĝis kaj ŝiri-
-
-ĝis. La ĉielo nubokrispiĝis. La norda brizo descendis desur la montaro de Kastav al la maro kaj nigrigis ĝian surfacon meze de la golfo.
+Super la orientaj montoj la noktaj vualoj delikatiĝis kaj ŝiriĝis. La ĉielo nubokrispiĝis. La norda brizo descendis desur la montaro de Kastav al la maro kaj nigrigis ĝian surfacon meze de la golfo.
 
 —Joso, ni kunvolvu la fiŝkaptilojn! Jen, jam tagiĝas.
 
@@ -3525,16 +2924,10 @@ La fiŝboato eksvingiĝis kiel sur sebo, ĝi gratis per sia fundo la ŝlimon kaj
 
 Ili elĵetis sur la sablon kelkajn mallongajn kaj malsekajn bretetojn, kiuj kovradis la fundon de la boato. Kiam ili mem elsaltis surborden, ili metis la mukajn bretetojn antaŭ la boaton, kaj preninte ĝin ĉiu ĉe sia flanko ili tiris la boaton sur la bretetoj je kvin paŝoj for de la maro. Tion fininte, ili prenis la bretetojn, la remilojn, la fiŝojn kaj la ankroŝnuregon, kaj ĉion ĉi ili kaŝis en groton for de la sablejo. Se ili restigus la remilojn sur la boato, certe Joso poste ne povus trovi ĝin sur la sama loko, ĉar la infanoj kiuj kutimas ĉiutage venadi al la ma-ro, enmarigus ĝin por amuziĝi remante sub la klifegoj.
 
-La fiŝistoj tiam ekiris al la montaro. Antonio silente mar-
-
-ŝis antaŭ sia amiko. Joso, svingante per la manoj, mezuris longajn paŝojn kaj spiregis ŝvitante. Lia maldekstra kruro estis 109
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La fiŝistoj tiam ekiris al la montaro. Antonio silente marŝis antaŭ sia amiko. Joso, svingante per la manoj, mezuris longajn paŝojn kaj spiregis ŝvitante. Lia maldekstra kruro estis
 
 
-nefleksebla, kaj la dekstra etendiĝis flanken el la genuo, kvazaŭ ĝi rompiĝus ĉe la artiko. Dum ĉiu paŝo, lia magra kaj alta korpo, — la plej alta en la tuta Luĉica, — kliniĝis super la dekstran kokson, dum la malrekta kruro duoncirklis antaŭen pa-
-
-ŝanta.
+nefleksebla, kaj la dekstra etendiĝis flanken el la genuo, kvazaŭ ĝi rompiĝus ĉe la artiko. Dum ĉiu paŝo, lia magra kaj alta korpo, — la plej alta en la tuta Luĉica, — kliniĝis super la dekstran kokson, dum la malrekta kruro duoncirklis antaŭen paŝanta.
 
 Belega tago estiĝos. En la valetoj brizis freŝa matena venteto, kiu milde karesis la vizaĝojn de la fiŝistoj, ankaŭ iliajn nudigitajn brustojn ŝovante sin en la sinojn de iliaj ruĝaj fli-kitaj ĉemizoj. La montokrestoj kaj la foraj insuloj jam plene distingiĝis. La juna ĉarma lumo ĉie ŝveliĝis, kreskis, trapenetris la ombrojn, ĉie dispersis ilin. Tiu ĉi konsoliga lumo, la pura kaj milda aero, la naturo, kiu vekiĝis el plifortiga dormo, la leĝera odoro, kiun oni sorbas volupteme, la grandioza tag-naskiĝo ege impresis la nervojn, la koron kaj la animon de, —
 
@@ -3542,9 +2935,7 @@ Antonio…
 
 —Kien do ni grimpas? — koleretis Joso.
 
-—Ni jam iris longan distancon de la maro. Nun ni traha-
-
-kos trans tiu ĉi monto, kaj jen ni ĉe la valeto de ŝabariĉ! Marija venos sendube.
+—Ni jam iris longan distancon de la maro. Nun ni trahakos trans tiu ĉi monto, kaj jen ni ĉe la valeto de ŝabariĉ! Marija venos sendube.
 
 —Ni kaŝos nin post ŝtonmuro. La hodiaŭan tagon Saletti
 
@@ -3560,9 +2951,7 @@ Pa… Pafilojn!? — konsterniĝis Joso kaj haltis ekstarante sur la rekta kruro
 
 —Tial ni devas nin gardi.
 
-Antonio kaj Joso kvazaŭ ne laciĝis irante laŭ la krutaj padoj. Fine ili ĝislamis al la kampo de ŝabariĉ. Tiu ĉi kampero 110
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Antonio kaj Joso kvazaŭ ne laciĝis irante laŭ la krutaj padoj. Fine ili ĝislamis al la kampo de ŝabariĉ. Tiu ĉi kampero
 
 
 troviĝas sub kruta elstaraĵo de la plej alta monto. i estas eta kaldrono, kiaj multnombre troviĝas en la karsta regiono. La kampo havas diametron je cent paŝoj, kiun ĉirkaŭas alta ŝto-na muro. En la mezo de la kampo troviĝas aro da hordeogarboj. Tie estas garboj en kvanto de du kunligaĵoj. Joso kaj Antonio kaŝis sin apud la muro ekster la kampo, en la fosaĵon protektanta kontraŭ torento tiun ĉi malgrandan havaĵon de ŝabariĉ. Ili sidiĝis, kaj en malproksimo sub la montaro disvastiĝadis la matena saluto al la patrino dia. La fiŝistoj demetis siajn ĉapojn, krucsignis sin, kaj fininte la preĝon, Joso diris:
@@ -3581,9 +2970,7 @@ troviĝas sub kruta elstaraĵo de la plej alta monto. i estas eta kaldrono, kiaj
 
 —Mi vere tremas pro malvarmo. Sciu, en la montaro ni
 
-troviĝas; ĉi tie ĉiam estas malvarme, verdire, mi ŝvitiĝis laŭ-
-
-voje. Rigardu, la tuta ĉemizo ĉifoniĝis. Mi havis kudrilon, sed mi perdis ĝin. ĉu vi havas monon? Mi aĉetus ĉemizon ĉe Stipe.
+troviĝas; ĉi tie ĉiam estas malvarme, verdire, mi ŝvitiĝis laŭvoje. Rigardu, la tuta ĉemizo ĉifoniĝis. Mi havis kudrilon, sed mi perdis ĝin. ĉu vi havas monon? Mi aĉetus ĉemizon ĉe Stipe.
 
 —Mi ne havas, sed Stipe kreditos vin. Li estas bona homo.
 
@@ -3594,9 +2981,6 @@ voje. Rigardu, la tuta ĉemizo ĉifoniĝis. Mi havis kudrilon, sed mi perdis ĝi
 La fiŝistoj kurbfleksiĝis sub la muron. El la monto trans la kampo vere aŭdiĝis leĝeraj piedbatoj.
 
 —ĉu ŝi estas? — ekflustris Joso.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Mi opinias; sinjoroj havas ŝuojn, dum ŝiaj opankoj ne
@@ -3617,22 +3001,13 @@ kampon, — diris Antonio kaj iom leviĝis por vidi, kie ŝi estas.
 
 —Kial ŝi hezitas sur la monto?
 
-—ŝi staras sur ŝtono, — respondis Antonio kaj li amplek-
+—ŝi staras sur ŝtono, — respondis Antonio kaj li ampleksis ŝian gracian staturon per siaj grandaj okuloj.
 
-sis ŝian gracian staturon per siaj grandaj okuloj.
-
-La suno, la juna matena suno, jam ŝutis siajn orruĝajn radiojn laŭ la montara regiono. La svelta staturo de Marija pi-toreske reliefiĝis sur la blua ĉielo banante sin en tiuj brilaj radioj. La knabino ŝajnis al Antonio pli alta ol ŝi vere estis. ŝi rigardis la maron. ŝiaj okuloj vagis laŭ la trankvila marsupraĵo kaj la verdaj bordoj de la malproksimaj insuloj, serĉante etajn kaj kvietajn velojn. ŝi melankolie ekridetis al la maro, ŝi ĉir-kaŭrigardis la naskiĝregionon kaj observis la fumon leviĝanta maldiligente super la vilaĝaj dometoj. Tiam ŝi aŭdis magran bovineton, kiu muĝis ie sub monto, ankaŭ la malsatajn ŝa-fojn, kiuj blekis ĉe la kruta flanko de Luĉica. La naztruoj de Marija vastiĝis, la brusto ŝveliĝis spirante la puran aeron, tra kiu solviĝis la odoro de salvio kaj piceo kaj la odoro de la mo-la tero. La griza ŝtonaro, la rokoj homalte altaj helis kaj rebrilis pro la abunda nokta roso, ili kvazaŭ ŝajnus vekiĝi por ĉerpi la varmon de vivodonaj radioj de la potenca suno. En la maldensa herbaro ĉio viva rampis kaj svarmis, ĉio susuris inter la koroniloj kaj piceoj, ĉio viglis kaj spiris, la tuta naturo ekvi-112
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-vis. Super Marija en la klara aero griza alaŭdo ŝvebis kaj ĝoje pepis; super la montego flugis aglo, svingante kaj susurante per grandaj flugiloj, kaj pli supre sur la ĉiela firmamento, trankvile naĝis orumitaj nuboflokoj.
+La suno, la juna matena suno, jam ŝutis siajn orruĝajn radiojn laŭ la montara regiono. La svelta staturo de Marija pi-toreske reliefiĝis sur la blua ĉielo banante sin en tiuj brilaj radioj. La knabino ŝajnis al Antonio pli alta ol ŝi vere estis. ŝi rigardis la maron. ŝiaj okuloj vagis laŭ la trankvila marsupraĵo kaj la verdaj bordoj de la malproksimaj insuloj, serĉante etajn kaj kvietajn velojn. ŝi melankolie ekridetis al la maro, ŝi ĉir-kaŭrigardis la naskiĝregionon kaj observis la fumon leviĝanta maldiligente super la vilaĝaj dometoj. Tiam ŝi aŭdis magran bovineton, kiu muĝis ie sub monto, ankaŭ la malsatajn ŝa-fojn, kiuj blekis ĉe la kruta flanko de Luĉica. La naztruoj de Marija vastiĝis, la brusto ŝveliĝis spirante la puran aeron, tra kiu solviĝis la odoro de salvio kaj piceo kaj la odoro de la mo-la tero. La griza ŝtonaro, la rokoj homalte altaj helis kaj rebrilis pro la abunda nokta roso, ili kvazaŭ ŝajnus vekiĝi por ĉerpi la varmon de vivodonaj radioj de la potenca suno. En la maldensa herbaro ĉio viva rampis kaj svarmis, ĉio susuris inter la koroniloj kaj piceoj, ĉio viglis kaj spiris, la tuta naturo ekvivis. Super Marija en la klara aero griza alaŭdo ŝvebis kaj ĝoje pepis; super la montego flugis aglo, svingante kaj susurante per grandaj flugiloj, kaj pli supre sur la ĉiela firmamento, trankvile naĝis orumitaj nuboflokoj.
 
 Jam tagiĝis.
 
-Antonio ne demetis siajn okulojn for la knabino prilumi-
-
-ta de la suno, dum Joso pensis pri la pafilo de Saletti kaj permane li palpis sub la flikita ĉemizo sur la brusto. Li gladis permane sian ruĝan kaj magran bruston, li palpis siajn ripojn, kiujn oni povis nombri facile sub la mizera haŭto. Joso kapbalancis pensante, kiel li fartus, se ie aŭ tie plumbo inter liaj ripoj traflugus, li streĉis sian kolon, malfacile englutis salivon, kaj lia eksterordinare granda adampomo en la gorĝo eksaltis,
+Antonio ne demetis siajn okulojn for la knabino prilumita de la suno, dum Joso pensis pri la pafilo de Saletti kaj permane li palpis sub la flikita ĉemizo sur la brusto. Li gladis permane sian ruĝan kaj magran bruston, li palpis siajn ripojn, kiujn oni povis nombri facile sub la mizera haŭto. Joso kapbalancis pensante, kiel li fartus, se ie aŭ tie plumbo inter liaj ripoj traflugus, li streĉis sian kolon, malfacile englutis salivon, kaj lia eksterordinare granda adampomo en la gorĝo eksaltis,
 
 ĝi ŝreĉis la haŭton kiel ĉe meleagro, kiun oni grasigas por kristnaskaj festoj per juglandoj aŭ per maiza polento. Joso tiam rigardis siajn magrajn krurojn, kiuj longiĝis antaŭ li sur la tero kaj trans la fosaĵo. Lia vizaĝo sereniĝis, la grizaj okuloj ĝoje palpebrumis pensante, ke ankaŭ la difektita kruro taŭgus, se necesus forkuri.
 
@@ -3647,9 +3022,6 @@ Antonio rigardante al Marija, mansvingis al li por silenti, sed iom poste li ka�
 —Mallaŭte! Iu descendas en la kampon.
 
 —Kiu? ĉu Saletti? — Joso ekgapis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Ne. ŝi. Silentu!
@@ -3683,9 +3055,6 @@ tiam ili rapide descendis en la kampon, kie ili apogis la pafilojn al la muro, k
 —Bonan matenon, ĉarma Marija! He, ho, vi kutimas fruiĝi!
 
 — Diris Alfredo kaj karesis ŝian vangon.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 La knabino diris nenion, sed intencis leviĝi kun la pezaĵo.
@@ -3728,18 +3097,13 @@ Luka provis fuĝi, sed Joso ekgrakegis:
 —Haltu, rabisto, alie mi traboros vin!
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Donu la pafilojn, — petis Luka.
 
 —Silentu, hundaĉo, alie mi pafos! — minacis Joso denove.
 
 Alfredo furioze ekrigardis al Antonio kaj ekpaŝis al la eliro.
 
-—Haltu, ni kune iros en Luĉican! — anonciĝis Antonio raŭ-
-
-ke kaj trankvile.
+—Haltu, ni kune iros en Luĉican! — anonciĝis Antonio raŭke kaj trankvile.
 
 La nobelo rigidiĝis.
 
@@ -3753,9 +3117,7 @@ mi estas viva. Joso, atentu pri Luka!
 
 —ĉu vi volas, ke mi surspicu vin?
 
-La nobelo tremis pro ĉagreno kaj timo, vidante la malbon-
-
-humoran mienon de Antonio, kaj lian nigriĝintan kaj mal-
+La nobelo tremis pro ĉagreno kaj timo, vidante la malbonhumoran mienon de Antonio, kaj lian nigriĝintan kaj mal-
 
 serenan vizaĝon.
 
@@ -3767,9 +3129,7 @@ Kiam Marija pretiĝis, Antonio ordonis:
 
 —Dek paŝojn for, — daŭrigis Antonio.
 
-Unu horon poste, la homoj sur la ŝoseo antaŭ Luĉica mi-
-
-regis.
+Unu horon poste, la homoj sur la ŝoseo antaŭ Luĉica miregis.
 
 La humiligita nobelo kaj la timigita servisto marŝis rigardante teren antaŭ Antonio kaj Joso. Iom post ili iris Marija kun la ŝarĝo. La knabino estis ploranta. Iuj virinoj, revenan-taj de la frumatena diservo afliktiĝis, vidante la povran knabinon. Ili kapbalancis, mansvingis kaj iris plu, ĉiu laŭ sia vojo.
 
@@ -3780,14 +3140,9 @@ Luĉica, Antonio diris al la nobelo kaj la servisto:
 —Nun vi povas iri kien vi volas.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Donu la pafilojn, — ekpetis Luka.
 
-—Ne boju, hundaĉo! Mi frakasos vian kapon! — ekmina-
-
-cis Joso.
+—Ne boju, hundaĉo! Mi frakasos vian kapon! — ekminacis Joso.
 
 —Viaj pafiloj ne perdiĝos! — hakdiris Antonio.
 
@@ -3821,9 +3176,6 @@ La vilaĝaj infanoj iris post Antonio kaj Joso kaj kriis: —Ili havas pafilojn,
 Ankaŭ Antonion ili fermos!
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Ni defendos nin; ni ĉiujn mortigos.
 
 
@@ -3841,9 +3193,7 @@ Tiu ĉi viraĉo, kanajlo, kun longforma kaj razita vizaĝo, kvazaŭ ion maĉanta
 
 diris Stipe puŝante la dekvalorajn monbiletojn sur la tablo.
 
-—Ho, diablo! De kie vi ekposedis tiun monon? — deman-
-
-dis Antonio.
+—Ho, diablo! De kie vi ekposedis tiun monon? — demandis Antonio.
 
 Lovro malfermis sian grandan buŝon kaj rigardis al la fiŝistoj.
 
@@ -3858,9 +3208,6 @@ Lovro tute sintiriĝis kaj ŝovis la monbiletojn en la poŝon de la larĝa kaj l
 — defendis lin Stipe.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Jes, la juna mastro, — ekbalbutis Lovro.
 
 —Ja kial vi timas? Kia furiozo atakis vin? — miris Stipe pro la kaleŝisto.
@@ -3873,27 +3220,19 @@ Lovro skuiĝis, eksvingis per la kapo, kaj ekmurmuris:
 
 —Mi jam trovis lin! — ekkriis Joso, kaj streĉis sian kolon.
 
-—ĉu kelkfoje la juna mastro donas al vi monon? — deman-
-
-dis lin Antonio gravmiene.
+—ĉu kelkfoje la juna mastro donas al vi monon? — demandis lin Antonio gravmiene.
 
 Lovron atakis spasmoj. Antonio trapikis lin per sia rigardo.
 
-—ĉu monon!… Li!… Jes, skurĝobatojn al mia dorso, — ek-
-
-balbutis Lovro.
+—ĉu monon!… Li!… Jes, skurĝobatojn al mia dorso, — ekbalbutis Lovro.
 
 —Antonio! — surprizegiĝis la negocisto.
 
-—Tiu mono fariĝos naŭza por li! — Antonio ekminacis raŭ-
-
-ke.
+—Tiu mono fariĝos naŭza por li! — Antonio ekminacis raŭke.
 
 Lovro forŝancelis el la vendejo.
 
-—Antonio, pro konfesio mia, mi ne komprenas viajn di-
-
-rojn! Kial do vi atakis lin tiel? Kian kulpoagon li povra faris?
+—Antonio, pro konfesio mia, mi ne komprenas viajn dirojn! Kial do vi atakis lin tiel? Kian kulpoagon li povra faris?
 
 —Nenian!
 
@@ -3910,9 +3249,6 @@ Antonio rakontis pri ĉio okazinta en la montaro kaj pri kiel li alpelis la nobe
 —Ja kial vi alportis la pafilojn ĉi tien? Forportu ilin al la urbestro kaj diru, ke li raportu al la tribunalo.
 
 —La urbestro enkarcerigus nin! — diris Joso tranaze.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Vi pravas Joso! Mi preskaŭ forgesis! La urbestro estas
@@ -3947,9 +3283,7 @@ demandis Stipe.
 
 —Liaj servistoj postsekvas ŝin ĉie, — respondas Antonio.
 
-—Ve al mi! Se vi Stipe aŭdus la kriadon de Marija! Mi tute teruriĝis! — diris Joso kaj levis buklon da flavaj haroj de sur 120
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ve al mi! Se vi Stipe aŭdus la kriadon de Marija! Mi tute teruriĝis! — diris Joso kaj levis buklon da flavaj haroj de sur
 
 
 sia verto por montri pli precize kiel li fartis apud la muro de la kamparo.
@@ -3966,12 +3300,7 @@ Liaj gepatroj provis trankviligi lin, sed vane. Stipe kriis kvazaŭ senracia. Ki
 
 Antonio kaj Joso lasis la pafilojn en la vendejo, eliris el la domo kaj ekiris al la domo de ŝabariĉ.
 
-Jela kaj Marija sidis ĉe la fajrejo plorante kaj veante. Mar-121
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-ko promenis en la kuirejo. Lia vizaĝo estis pala kaj enpensi-
+Jela kaj Marija sidis ĉe la fajrejo plorante kaj veante. Marko promenis en la kuirejo. Lia vizaĝo estis pala kaj enpensi-
 
 ĝinta. Post kiam la virinoj rimarkis Antonion kaj Joson, ili laŭte eksingultis. En la ĉambro sur alta lito kuŝis la maljuna Antun. La malfeliĉa maristo rigardis per siaj vitrecaj kaj larmoplenaj okuloj al la fenestroj kaj aŭskultis la singultadon de siaj edzino kaj filino.
 
@@ -3999,12 +3328,7 @@ pri ĉiaĵoj. Kara mia Marija, doloro mia, ne singultu plu! Vi neniam plu iros s
 
 Antonio rigardis lin ridetante, kompate, amare kaj preskaŭ malestime…
 
-—Marko, filĉjo kara, ne impliku vin en aferojn de senkre-
-
-duloj, por ke plia malbono ne trafu nin! — petis Jela.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Marko, filĉjo kara, ne impliku vin en aferojn de senkreduloj, por ke plia malbono ne trafu nin! — petis Jela.
 
 
 Ekestis silento. El la ĉambro aŭdiĝis voĉo de la malsanulo.
@@ -4029,23 +3353,15 @@ diris amare.
 
 —ĉu vi estus sciigonta Maton en Jelenŝĉica, por veni ĉi
 
-tien? — demandis Antonio kun adstringeca kaj malfirma vo-
+tien? — demandis Antonio kun adstringeca kaj malfirma voĉo.
 
-ĉo.
-
-Marija ektremis rigardante lian vizaĝon, trans kiu tiumo-
-
-mente traflugis dolorega mieno.
+Marija ektremis rigardante lian vizaĝon, trans kiu tiumomente traflugis dolorega mieno.
 
 —Neniel! Kial li venus ĉi tien? Estu mia zorgo kvitiĝi kun Saletti. Mi prudentigos lin baldaŭ! — Marko kriis kolere.
 
 Laŭ lia bela vizaĝo sterniĝis amara zorgo kaj furioza ĉagreno.
 
-—Jes, jes, filĉjo, estus pli konvene, ke Mato ne venu en Lu-
-
-ĉican, kial do malĝojigi lin? Plej konvenus, ke ni petu pri konsilo sinjoron paroęstron kaj Stipen; ili scias kion ni faru kaj al kiu ni turnu nin. Feliĉe, ke ni havas tiajn homojn en Luĉi-ca! Sinjoro paroęstro eĉ helpus nekredulon, des pli li helpos nin! Marko, se vi estus pastro, tiaj aferoj ne estus okazintaj al 123
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Jes, jes, filĉjo, estus pli konvene, ke Mato ne venu en Luĉican, kial do malĝojigi lin? Plej konvenus, ke ni petu pri konsilo sinjoron paroęstron kaj Stipen; ili scias kion ni faru kaj al kiu ni turnu nin. Feliĉe, ke ni havas tiajn homojn en Luĉi-ca! Sinjoro paroęstro eĉ helpus nekredulon, des pli li helpos nin! Marko, se vi estus pastro, tiaj aferoj ne estus okazintaj al
 
 
 via fratino. Kiu ja kuraĝus eĉ tuŝi fratinon de pastro? Ho, kion ni povruloj rajtas fari, ni malriĉaj fiŝistoj!
@@ -4071,9 +3387,6 @@ flankoj.
 Iom poste, kiam la tempesto trankviliĝis, la urbestro rigardis la flavan vizaĝon de sia edzino, kaj la harojn kiuj tremetis sur la verukoj, aŭskultante la kriadon, kiu translokiĝis en alian strateton.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 VI
 
 Sur la pitoreska monteto, kiu leviĝas pafdistance okcidente de tenebra Luĉica sub la kalva kruta flanko de griza monto, montriĝas sinjoreca palaco el inter la densaj arboj. La ronda ebena supraĵo de la monteto estas tute ĉirkaŭita de arbaro. Inter la monteto kaj la monto fendiĝis mistera ravino. Se enpensiĝinta maristo vagus per siaj okuloj, senkonsidere kien li navigus ene de la mirinda golfo, liaj okuloj certe alkroĉiĝus al la blanka palacfronto sur la monteto. Post kiam li rimarkus
@@ -4082,11 +3395,7 @@ Sur la pitoreska monteto, kiu leviĝas pafdistance okcidente de tenebra Luĉica 
 
 Elvira Saletti melankolie enpensiĝis, rigardante al la kalma marebeno, kiu antaŭ ŝi briletis kaj respeguliĝis. ŝiaj nigrobru-naj okuloj idle vagis laŭ la dezertaj regionoj de la insulo Cres serĉante en ĝiaj laŭtegaj montopintoj la plej izolitajn valojn kaj ravinojn.
 
-La suno pura kaj brila baldaŭ ss malantaŭ la altan Uĉ-
-
-kan. Sur ĝiaj fieraj suproj ekflamis ega fajro. La kalva Velebit kaj iuj altaj pintoj de la insuloj de Kvarner sunumis sin en la lasta ruĝa brilo. ĉie ĉirkaŭe ĝis la vidatingo, en la tuta golfo, 125
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La suno pura kaj brila baldaŭ ss malantaŭ la altan Uĉkan. Sur ĝiaj fieraj suproj ekflamis ega fajro. La kalva Velebit kaj iuj altaj pintoj de la insuloj de Kvarner sunumis sin en la lasta ruĝa brilo. ĉie ĉirkaŭe ĝis la vidatingo, en la tuta golfo,
 
 
 kiu sterniĝas de Kapela ĝis Uĉka kaj de Osor ĝis la karsta montaro super Kraljevica, ĉie interplektiĝas, ĉie interŝanĝiĝas grandegaj ombroj kun longaj fragmentaj makuloj de la suna oro. La orienta montoĉeno de Istrio, leviĝas kaj malleviĝas kvazaŭ giganta ondo, kiu abrupte disigas la okcidentan ĉielon kaj ombrigas la tutan maron kune kun la malgrandaj insuloj, kiuj modeste montriĝas el la maro.
@@ -4106,9 +3415,6 @@ La nigraj okuloj de Elvira iom malsekiĝis de larmoj, dum
 en la ĉambro malantaŭ ŝi subite ekknaris la pordo. La knabino spasme turnis sin kaj rimarkis sian fraton antaŭ si. Alfredo rigardis al ŝi kaj komencis paŝi laŭlonge de la ĉambro.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 (Alfredo venis al Elvira por peti ŝin helpi kaj elpeti favoron de la patro, de la majuna Saletti. Lin jam la urbestro Murelli informis pri la hontindaĵo kaj pri la humiligo de Alfredo. Alfredo tre koleris antaŭ la fratino pro Murelli, nomante lin azeno, same li blasfemis la patron, kiu laŭ lia opinio, ankaŭ malestimindas. Elvira protektis la patron kaj rifuzis helpi al Alfredo, pensante pri la amata Marko kaj pri lia fratino, la bela Marija. ŝi kaj Alfredo disiĝis kiel malamikoj.)
 
 Elvira mallaŭte singultis…
@@ -4120,20 +3426,13 @@ unu busto. La dika glora maestro Rossini kontente ridetis kaj primiris la aflikt
 En la ĉambro vastiĝis intensa odoro de diversaj sapoj kaj pudroj; la saniga odoro de la laŭra bosko, de la kverkaro, de la centjaraj tilioj, de la rosmarenoj kaj de la buntkoloraj floroj, plenigis la ĉambron, jen pli intense, jen malpli intense, laŭ la blovo de la vespera venteto, kiu petolis per la altaj silkaj kurtenoj, kvazaŭ sinjoreca infano ludus per vualo de sia lulilo sonĝante pri kareso per la maneto al la vizaĝo de sia patrino.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 Elvira ĉesis singulti. ŝiaj plenformaj ŝultroj ne plu tremetis. ŝi enspiris kaj levis sian kapon malrapide kaj apogante sin ŝi restis trankvila. ŝia vizaĝo estis pala kaj larmemalseka; ŝiaj ruĝaj lipoj ankoraŭ kelktempe tremetis pro la ploro. La lipoj estis malfermitaj; la supra iomete leviĝis kaj malkovris kelkajn malgrandajn blankajn dentetojn. ŝiaj nigraj kaj larmoplenaj okuloj estis tute malfermitaj, sed ŝi rigardis eĉ ne unu objek-ton en la ĉambro, sed iun alian mondon, — sian koron. Rigardante tiun ĉi ĉarman ĉastulinon, ĉiuj ŝiaj allogfortoj malaperas, ĉio perdiĝas en belega harmonio, nur la profundaj, brilantaj kaj pensoriĉaj okuloj malfermiĝas kaj obsedas per sia magia rondo, kvazaŭ oni dronus en ŝian karesan rigardon, en la profundojn de ŝia nobla animo.
 
 Elvira ekstaris kaj ekiris al la fenesto. ŝi estis altstatura kaj svelta. De la seĝo ĝis la fenestro distancis apenaŭ kvin paŝoj, sed ŝia korpo, la ĉarma harmonio de ŝiaj plaĉaj, rondformaj membroj moviĝis noble kaj digne ene de tiu ĉi mallonga distanco. ŝi apogis sin al la fenestro kaj rigardis la estiĝantan nokton.
 
 Super Velebit la ĉielo lumis, kaj super la lumo, iom pli al nordo palis belvida stelo. En la arbareto ĉirkaŭ de la domo pepis birdoj serĉantaj tranoktejojn ene de la branĉoj. El Luĉi-ca aŭdeblis diversaj voĉoj kaj ies rido.
 
-Elvira rigardis en la mallumon. El malantaŭ Velebit mon-
-
-triĝis peco de brila arĝento. La luno leviĝis lante, kaj post ĝia elkoviĝo, ĝia lumo disŝutiĝis super la tutan Kvarner kaj prilumis ankaŭ la karan vizaĝon de Elvira, kiun vualigis tristo kaj ĉagreno. Elvira spiris peze; sub la disflorinta brusto ŝian koron premis amara doloro, io bruligis ŝian animon, kie inter-128
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Elvira rigardis en la mallumon. El malantaŭ Velebit montriĝis peco de brila arĝento. La luno leviĝis lante, kaj post ĝia elkoviĝo, ĝia lumo disŝutiĝis super la tutan Kvarner kaj prilumis ankaŭ la karan vizaĝon de Elvira, kiun vualigis tristo kaj ĉagreno. Elvira spiris peze; sub la disflorinta brusto ŝian koron premis amara doloro, io bruligis ŝian animon, kie inter-128
 
 
 kruciĝis amaraj kaj pesimismaj antaŭsentoj, dum la ora lunlumo logis ŝin al ekzotaj mondopartoj…
@@ -4148,9 +3447,7 @@ servisto.
 
 Elvira suspiris kaj trairinte kelkajn ĉambrojn, ŝi venis en la manĝoĉambron.
 
-—Bonan vesperon, kara paĉjo! — la knabino salutis mal-
-
-laŭte.
+—Bonan vesperon, kara paĉjo! — la knabino salutis mallaŭte.
 
 Marino Saletti jam sidis ĉe la tablo kaj atendis siajn infanojn. Por plirapidigi la tempon, li legis gazeton. Super la okuloj li havis verdan vizieron kontraŭ la lumo. i estas ligita al lia kapo. Saletti legis tra okulvitroj. Post kiam Elvira salutis lin, li skuis sian kapon al ŝi. La maljuna Saletti aĝis ĉirkaŭ sesdek jarojn. Li havis densan grizan, tonditan barbon.
 
@@ -4160,13 +3457,9 @@ voĉo, palpante sian mentonon kiun kovris mallongaj pikaj
 
 haroj kvazaŭ robobroso.
 
-—Mi estis en mia ĉambro, — respondis la knabino rigar-
+—Mi estis en mia ĉambro, — respondis la knabino rigardante time al la malhela vizaĝo de la patro.
 
-dante time al la malhela vizaĝo de la patro.
-
-—Kie estas Alfredo? — ekmurmuris Saletti sorbante la su-
-
-pon kaj rigardante la teleron, super kiun li klinis sian dikan, tute rondecan kapon.
+—Kie estas Alfredo? — ekmurmuris Saletti sorbante la supon kaj rigardante la teleron, super kiun li klinis sian dikan, tute rondecan kapon.
 
 —Mi ne scias, kara paĉjo, antaŭ nelonge…
 
@@ -4181,16 +3474,11 @@ pon kaj rigardante la teleron, super kiun li klinis sian dikan, tute rondecan ka
 —ĉu li nenion parolis pri mi?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Jes, li petis min, ke mi diru al vi, ke vi ne riproĉu lin, —
 
 diris Elvira aŭdace.
 
-—Mi ne riproĉas lin, sed li hontigis min! — ekkriis Saletti levinte la kapon tiom, ke sur lian pufforman kaj nigran viza-
-
-ĝon falis la lumo de la lumigilo, kiu pendis super la tablo.
+—Mi ne riproĉas lin, sed li hontigis min! — ekkriis Saletti levinte la kapon tiom, ke sur lian pufforman kaj nigran vizaĝon falis la lumo de la lumigilo, kiu pendis super la tablo.
 
 La nobelo metis viŝtukon al la kolumo de la ĉemizo, kaj
 
@@ -4219,9 +3507,6 @@ La nobelo manĝis rapide kaj avide; li terure dentmuelis kaj maĉis frititan kok
 ordonis Saletti al Luka, kiu enkuris en la salonon.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Mi jam sciigis al la sinjoro, ke la vespermanĝo estas sur-table, — Luka elbuŝigis humile.
 
 —Azeno, eliru!
@@ -4232,9 +3517,7 @@ Luka eliris kaŝe el la ĉambro ĉirkaŭrigardante time.
 
 koleros.
 
-Viŝante per la tuko siajn grandajn lipojn, la nobelo ek-
-
-grumblis :
+Viŝante per la tuko siajn grandajn lipojn, la nobelo ekgrumblis :
 
 —Evitu min, ne tentu min!
 
@@ -4256,9 +3539,7 @@ grumblis :
 
 Tiumomente en la ĉambron eniris Alfredo. Ne elbuŝiĝinte
 
-eĉ vorton, li sidiĝis sur sian lokon. En la salono ekregis silento. La vizaĝo de Alfredo estis malserena kaj trista. La maljunulo manĝis kaj glutis eĉ pli haste ol antaŭe. La koro de Elvira batis eĉ pli intense, la tomba silento en la salono premis ŝian bruston. ĉiu engluto kroĉiĝis en la gorĝo. Fine ŝi lasis la manĝaĵon, ne sciante kion fari, ŝi komencis rigardi la pentraĵojn, kiuj pendis sur la muro kontraŭ ŝi. Rigardante rigide 131
-
-SURPRIZITAJ NUPTOFESTANTOJ
+eĉ vorton, li sidiĝis sur sian lokon. En la salono ekregis silento. La vizaĝo de Alfredo estis malserena kaj trista. La maljunulo manĝis kaj glutis eĉ pli haste ol antaŭe. La koro de Elvira batis eĉ pli intense, la tomba silento en la salono premis ŝian bruston. ĉiu engluto kroĉiĝis en la gorĝo. Fine ŝi lasis la manĝaĵon, ne sciante kion fari, ŝi komencis rigardi la pentraĵojn, kiuj pendis sur la muro kontraŭ ŝi. Rigardante rigide
 
 
 la bildon de sia patrino, kiu melankolie ridetis al ŝi el la duonlumo, ŝi eksentis larmojn sur la palpebroj. La knabino penis dampi la ploron, por ne kolerigi la patron, sed ne povis de-teni sin, ĉar ŝia koro ŝiriĝis pro tristo. Konsciante, ke ŝi ne povos supervenki la sentojn, ŝi ekstaris kaj iris en angulon de la granda ĉambro, kaj sidiĝinte sur ledan divanon, ŝi laŭte eksingultis. Kiam la maljuna Saletti aŭdis la singultadon de Elvira, liaj manoj komencis tremi. Rigardante furioze la filon, li elfoteliĝis, ĵetis la viŝtukon sur la tablon kaj komencis promeni en la salono per grandaj paŝoj. La nobelo estis malaltstatura kaj kun ekterorde larĝa dorso. Lia pantalono estis mallonga, ĝis maleoloj, ĉar li rapide iris, li saltadis, kvazaŭ elasta bulo. La krurumoj de la vasta pantalono ŝanceliĝis super la grandaj ŝuoj.
@@ -4269,26 +3550,19 @@ la bildon de sia patrino, kiu melankolie ridetis al ŝi el la duonlumo, ŝi ekse
 
 mansvingis Alfredo.
 
-—Hontu! Nur bubaĉo? Vera malĉastulo vi estas! Vi meri-
-
-tas ke mi mortpafu vin.
+—Hontu! Nur bubaĉo? Vera malĉastulo vi estas! Vi meritas ke mi mortpafu vin.
 
 —Finu jam! Ankaŭ en miaj vejnoj fluas sango! — ekkriis
 
 Alfredo.
 
-—Malfeliĉulo, ne hontigu mian nomon, ne ridigu min an-
-
-taŭ tiu popolaĉo, inter kiu ni vivas! ĉu vi forgesis, kiu estas via patro? ĉu vi opinias, ke vi estas filo de maristo?
+—Malfeliĉulo, ne hontigu mian nomon, ne ridigu min antaŭ tiu popolaĉo, inter kiu ni vivas! ĉu vi forgesis, kiu estas via patro? ĉu vi opinias, ke vi estas filo de maristo?
 
 —Ne deliru!
 
 —Alfredo, gardu vin, por ke mi ne strangolu vin! ĉu vi volas, ke ili batu vin?
 
 —Vi freneziĝis!
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Silentu friponaĉo! — ekkriegis la nobelo.
@@ -4311,15 +3585,9 @@ Foriru, kara filinjo, mi petas, iru…
 
 Elvira rigardis la patron per siaj larmoplenaj okuloj kaj foriris el la ĉambro kun malsupren klinita kapo.
 
-La maljuna Saletti kuŝiĝis en grandan brakseĝon kaj ĉir-
+La maljuna Saletti kuŝiĝis en grandan brakseĝon kaj ĉirkaŭpreninte sian kapon per ambaŭ manoj, li gapis al la pistolo, kiun li lasis sur la seĝo. Grandaj gutoj de ŝvito glitis sur la perpleksa vizaĝo. La malsupra malfirma lipo, meze kvazaŭ distranĉita, pendiĝis kaj renversiĝis, kaj tiel malkovris la fortikajn, nigriĝintajn dentojn. La vortoj de Alfredo firmiĝis en lia kapo; lia cerbo ŝiriĝis. La nobelo eksentis sin senforta kaj foriris en sian dormoĉambron. Etendinte sin sur divano, li kovris la vizaĝon per siaj vilaj brakoj. Li klopodis pensi, sed ne povis, ĉar la vortoj de la filo senĉese alrampis, trapikante lian cerbon kirlante en ĝi. Saletti tremis: la ĉemizo gluiĝis al lia malvarma ŝvito surdorse, en lia kapo muĝis, la ĉambro rondiris ĉirkaŭ li, kaj antaŭ liaj okuloj ŝvebis la ploranta juna marista virino kaj…
 
-kaŭpreninte sian kapon per ambaŭ manoj, li gapis al la pistolo, kiun li lasis sur la seĝo. Grandaj gutoj de ŝvito glitis sur la perpleksa vizaĝo. La malsupra malfirma lipo, meze kvazaŭ distranĉita, pendiĝis kaj renversiĝis, kaj tiel malkovris la fortikajn, nigriĝintajn dentojn. La vortoj de Alfredo firmiĝis en lia kapo; lia cerbo ŝiriĝis. La nobelo eksentis sin senforta kaj foriris en sian dormoĉambron. Etendinte sin sur divano, li kovris la vizaĝon per siaj vilaj brakoj. Li klopodis pensi, sed ne povis, ĉar la vortoj de la filo senĉese alrampis, trapikante lian cerbon kirlante en ĝi. Saletti tremis: la ĉemizo gluiĝis al lia malvarma ŝvito surdorse, en lia kapo muĝis, la ĉambro rondiris ĉirkaŭ li, kaj antaŭ liaj okuloj ŝvebis la ploranta juna marista virino kaj…
-
-La saman vesperon ĉirkaŭ la dekunua, Elvira promenis an-
-
-taŭ la domo. La nokto estis trankvila kaj serena. La plena luno 133
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La saman vesperon ĉirkaŭ la dekunua, Elvira promenis antaŭ la domo. La nokto estis trankvila kaj serena. La plena luno
 
 
 naĝis kviete en la mezo de la firmamento; la milda nokta venteto reve cirkulis tra arĝenta aero kaj kaĵole susuris tra la folioj de la tilioj.
@@ -4336,12 +3604,7 @@ amon, ili arde sopiris unu pri la alia, iliaj vizaĝoj brulis en dolĉaj brakumo
 
 Antonio, la fidela Antonio, nur li sola sciis pri ilia sekreta amo. Ili tute konfidis al li, ĉar se oni eĉ tranĉus lin, li ne malkaŝus la sekreton.
 
-Elvira preskaŭ ĉiuvespere eliris promeni en la ĝardeno ĉir-134
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-kaŭ la domo kaj ĝui freŝan noktan aeron. ŝi ofte plendis an-taŭ la patro, ke ŝi ne povas en la lito fermi siajn okulojn, kaj tial ŝi devas iom promeni por laciĝi, por povi endormiĝi. ŝia patro, samkiel la servistaro, tute ne konjektis, ke Elvira renkontiĝas kun la ĉarma Marko, kiun ŝi amis per sia tuta ĉasta virgulina animo, kiel iam la unuaj kristanaj martirinoj amis sian konfesion.
+Elvira preskaŭ ĉiuvespere eliris promeni en la ĝardeno ĉirkaŭ la domo kaj ĝui freŝan noktan aeron. ŝi ofte plendis an-taŭ la patro, ke ŝi ne povas en la lito fermi siajn okulojn, kaj tial ŝi devas iom promeni por laciĝi, por povi endormiĝi. ŝia patro, samkiel la servistaro, tute ne konjektis, ke Elvira renkontiĝas kun la ĉarma Marko, kiun ŝi amis per sia tuta ĉasta virgulina animo, kiel iam la unuaj kristanaj martirinoj amis sian konfesion.
 
 Sur la kampanilo en Luĉica lante batis la dekunua horo.
 
@@ -4350,9 +3613,6 @@ Elvira ĉirkaŭrigardis ĉiuflanken, ekrigardis al la fenestroj kaj vidinte, ke 
 En la arbareto post la sinjora domo displektiĝas reto de
 
 vojetoj, kiuj kurbiĝas kaj kruciĝas multmaniere. Apud la stretaj vojetoj surŝutitaj per blanka sablo, pleje elkreskis densa laŭro, kies branĉoj supre kuniĝas meze de la vojetoj por formi iaspecajn verdajn volbojn. Tiuj misteraj padoj tre similas al longaj koridoroj de antikvaj monaęjoj. La lunlumo pene traŝoviĝas inter la densan branĉaron; nur ie-ie ĝi lumas sur la blanka sablo, kvazaŭ grandeta ora makulo. Inter la malluma laŭra verdaĵo blankas kelkaj skulptaĵoj. Al tiuj malvarmaj difektitaj grekaj diinoj estas lumigitaj ĉu kapo, ĉu ŝultro, ĉu duono de vizaĝo, rompita nazo, aŭ duono de brusto kaj kruro sur kiu iuj fingroj estas difektitaj.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Ju pli for de la domo, des pli rapide Elvira marŝis. Sub la etaj ŝuoj grincetis blanka sablo. De sur unu padeto al la alia, kaj ŝi fine venis sur la ebenaĵon. Tie la lunlumo surverŝis ŝian belegan korpon. Nun ŝi denove rapidis kaj malaperis en la malluman laŭron. Iom poste ŝi eniris la plej kaŝan lokon de la arbareto kaj abrupte ŝi haltis antaŭ junulo kiu staris indiferente apogita ĉe la piedestalo de unu skulptaĵo.
@@ -4384,21 +3644,13 @@ eniris la laŭbon. Liaj nigraj okuloj terure ekbrilis.
 —Adiaŭ! — flustris Elvira.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Morgaŭ! Elvira, morgaŭ! Je la sama horo, — diris Marko
 
 kaj li foriris kun Antonio.
 
 Elvira deprimita kaj malgaja ekiris lante paŝante al la do-mo. Meze de la arbareto ŝin renkontis Luka kaj Lovro, ili humile salutis ŝin mirante, ke ŝi ankoraŭ ne enlitiĝis.
 
-Veninte en sian ĉambron, Elvira peze senvestiĝis kaj en-
-
-dormis en febro.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Veninte en sian ĉambron, Elvira peze senvestiĝis kaj endormis en febro.
 
 
 VII
@@ -4415,16 +3667,12 @@ Tiu malfeliĉo terure batis lin. La singultado de Marija kaj la
 
 ĝemplorado de Jela ankoraŭ pli malfortigis la jam senpovan mariston. La negocisto Stipe, por konsoli la amikon kaj la baptopatron, instigis lin kaj riproĉis promesante al li, ke li mem iros al tribunalo, eĉ se necese al la imperiestro mem, por akuzi la sinjoron sur la monteto. Antun plenfide rigardis al la okuloj de Stipe tuŝante sian mallongan grizan barbon, kiu elkreskis sur lia pala kaj malfreŝa vizaĝo dum tiu mallonga tempo de lia senpovo.
 
-Venis gaja sabato. Brila matena suno apogis siajn radiojn al la fronto de la domo de Antun. Estas la naŭa horo. En la ĉambro regas milda duonlumo, kvazaŭ dum krepusko. Marija atente balais la plankon, poste ŝi fermis la malnovajn ŝu-trotabulojn sur la fenestroj, por ke la lumo ne ĝenu la okulojn de ŝia patro. En la brilaj radioj, kiuj oblikve eniris en la ĉambron tra la truetoj de la malfirmaj ŝutroj, vibris kaj miksiĝis 138
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Venis gaja sabato. Brila matena suno apogis siajn radiojn al la fronto de la domo de Antun. Estas la naŭa horo. En la ĉambro regas milda duonlumo, kvazaŭ dum krepusko. Marija atente balais la plankon, poste ŝi fermis la malnovajn ŝu-trotabulojn sur la fenestroj, por ke la lumo ne ĝenu la okulojn de ŝia patro. En la brilaj radioj, kiuj oblikve eniris en la ĉambron tra la truetoj de la malfirmaj ŝutroj, vibris kaj miksiĝis
 
 
 kirlita polvo, kiu ne estis videbla ĉie en la grizeta kaj iomete roza aero en la ĉambro, sed nur ene de tiuj rektaj sunstrioj.
 
-ĉar la truetoj estis plejnombre rondaj, ŝajnas, kvazaŭ oni sur-
-
-ŝutis kelkajn diversgrandajn orajn monerojn sur la plankon kaj sur la liton. Tiuj oraj makuloj malrapide movis sin, mal-grandiĝis, vastiĝis, iuloke malaperis kaj reaperis brile aliloke.
+ĉar la truetoj estis plejnombre rondaj, ŝajnas, kvazaŭ oni surŝutis kelkajn diversgrandajn orajn monerojn sur la plankon kaj sur la liton. Tiuj oraj makuloj malrapide movis sin, mal-grandiĝis, vastiĝis, iuloke malaperis kaj reaperis brile aliloke.
 
 Ili longiĝis kaj rampis sur la litkovrilon, sur la kusenon kaj sur la magrajn kaj nigriĝintajn manojn de la malsanulo.
 
@@ -4434,9 +3682,7 @@ per febla voĉo.
 
 —Li ne foriris; mi jam parolis kun li hodiaŭ, li diris, ke li iros post du aŭ tri tagoj, — respondis Marko legante libron kaj rigardante la vizaĝon de la patro.
 
-—Ne estus bone prokrasti tiujn aferojn. Kiam Antonio pre-
-
-nis la pafilojn de tiu krimulo? Ho ve, mia menso forlasas min!
+—Ne estus bone prokrasti tiujn aferojn. Kiam Antonio prenis la pafilojn de tiu krimulo? Ho ve, mia menso forlasas min!
 
 —Antaŭ hieraŭ, paĉjo!
 
@@ -4452,9 +3698,7 @@ nis la pafilojn de tiu krimulo? Ho ve, mia menso forlasas min!
 
 —uste pro tio ni devas klopodi plibonigi la staton de nia popolo.
 
-—Filĉjo, mi ne estas tiel saĝa kiel vi; mi estas maristo! Mi 139
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Filĉjo, mi ne estas tiel saĝa kiel vi; mi estas maristo! Mi
 
 
 ne studis tiom da jaroj kiel vi, sed multon en la mondo mi vidis…
@@ -4477,16 +3721,11 @@ same ankaŭ la libro de Kaĉiĉ. Sed auskultu, Marko! Oni diras, ke unu juĝisto
 
 —Mi konas lin; li ne apartenas al ni! — Marko svingis permane.
 
-—Nu, konsentite, Stipe ekiru! Li estas estimata kaj hone-
-
-sta kaj li ne timas tiujn, kun kiuj ni ne povas konversacii! Ja, povraj ni estas! En multaj lokoj, kiujn mi vizitis, eĉ en Londono mem, oni parolas la saman lingvon, kaj riĉuloj kaj malriĉuloj. Nu, kial mi babilas. Pri tiuj aferoj vi scias pli ol mi! Nu, kie troviĝas la oldunjo kaj Marija?
+—Nu, konsentite, Stipe ekiru! Li estas estimata kaj honesta kaj li ne timas tiujn, kun kiuj ni ne povas konversacii! Ja, povraj ni estas! En multaj lokoj, kiujn mi vizitis, eĉ en Londono mem, oni parolas la saman lingvon, kaj riĉuloj kaj malriĉuloj. Nu, kial mi babilas. Pri tiuj aferoj vi scias pli ol mi! Nu, kie troviĝas la oldunjo kaj Marija?
 
 —Ili foriris en la ĝardenon; ili revenos baldaŭ. —Paĉjo, mi devas iri en la poŝtoficejon.
 
 —Iru, filĉjo, alportu la mensogojn! — la patro afable ekridetis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Marko eliris kaj ekster la domo trovis Antonion, kiu sidan-te sur la tero plektis grandan vergokorbon.
@@ -4507,9 +3746,7 @@ Marko eliris kaj ekster la domo trovis Antonion, kiu sidan-te sur la tero plekti
 
 —Pro mi?… Parolu pli mallaŭte!
 
-—Kompreneble! Pripensu, je la unua horo post la nokto-
-
-mezo! Ni renkontiĝas tie jam du jarojn, neniu iam trovis nin!
+—Kompreneble! Pripensu, je la unua horo post la noktomezo! Ni renkontiĝas tie jam du jarojn, neniu iam trovis nin!
 
 —Se mi ne estus veninta, la servistoj trovus vin.
 
@@ -4538,9 +3775,6 @@ kial?
 —ĉu ili antaŭsentas ion; ĉu ili rimarkis vin, kiam vi portis leterojn?
 
 —Ili ne rimarkis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Antonio, parolu, mi petas!… ĉio tie okazanta rilatas al
@@ -4588,24 +3822,17 @@ inter la juna nobelo kaj la servistoj…
 —Ili postsekvus min, kaj kiu portus viajn leterojn?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Vi pravas! Jen, mi ne pensis pri tio! Antonio, dankon!
 
 Sed, kion vi intencas nun?
 
-—Gardi mian haŭton kaj ne pekigi mian animon. Se ili fri-
-
-pone atakos min, mi defendos min per tiu ĉi tranĉilo. Mi devas ne akuzi ilin, ĉar mi ne havas atestantojn, eĉ se mi havus, mi ne farus tion, ĉar tiam oni ekscius, kiel mi aŭdis iliajn in-terparolojn kaj kial mi iris tien. Se mi akuzus ilin, mi devus ne porti viajn leterojn, kaj ŝi tiam plorus…, — Antonio ne findiris, ĉar li rimarkis la komunuman serviston Tompiĉon, kiu alvenis laŭ la streta strateto. La iranta Tompiĉ ne iris samra-pide, li kutimis iom kuri, kaj poste iri pli malrapide. Tia estas lia kutima irado.
+—Gardi mian haŭton kaj ne pekigi mian animon. Se ili fripone atakos min, mi defendos min per tiu ĉi tranĉilo. Mi devas ne akuzi ilin, ĉar mi ne havas atestantojn, eĉ se mi havus, mi ne farus tion, ĉar tiam oni ekscius, kiel mi aŭdis iliajn in-terparolojn kaj kial mi iris tien. Se mi akuzus ilin, mi devus ne porti viajn leterojn, kaj ŝi tiam plorus…, — Antonio ne findiris, ĉar li rimarkis la komunuman serviston Tompiĉon, kiu alvenis laŭ la streta strateto. La iranta Tompiĉ ne iris samra-pide, li kutimis iom kuri, kaj poste iri pli malrapide. Tia estas lia kutima irado.
 
 —Bonan matenon, Miro! Kia novaĵo, — Marko salutis kaj
 
 demandis Tompiĉon.
 
-—Bonan matenon, bonan matenon, sinjoro! Kiel vi dor-
-
-mis? Min ĉi tien sendis la sinjoro urbestro; lia edzino diris, ke mi kuru, kuru, sed mi flugis, vi ja vidas, ke mi paroli ne povas, — Miro siblis kaj mallerte svingis sian kapon kaj kunpremis la palpebrojn.
+—Bonan matenon, bonan matenon, sinjoro! Kiel vi dormis? Min ĉi tien sendis la sinjoro urbestro; lia edzino diris, ke mi kuru, kuru, sed mi flugis, vi ja vidas, ke mi paroli ne povas, — Miro siblis kaj mallerte svingis sian kapon kaj kunpremis la palpebrojn.
 
 Tompiĉ estis plurjara viro. Lia korpo estis longa, la kruroj mallongaj, la ŝultroj mallarĝaj kaj ekterordinare mallevitaj.
 
@@ -4621,9 +3848,7 @@ La urbestro ampleksis je tri tiaj Miroj.
 
 —Pro kio Murelli sendis vin ĉi tien? — demandis Marko.
 
-—Li sendis min, ja vi scias! Jes, mi estis hejme; mi razis 143
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Li sendis min, ja vi scias! Jes, mi estis hejme; mi razis
 
 
 min, la sinjoro urbestro alvokis min, kaj lia edzino, la sinjorino Anastazija, sendis min ĉi tien, jes, pro la pafiloj…
@@ -4677,9 +3902,6 @@ negocisto Stipe, kiu inspektis grandajn barelojn en la korto, sur kiujn la labor
 —Ho, Marko! Bonan matenon! — Stipe mansvingis al li.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Vi ĉiam laboras!
 
 —Ne ĉiu ĝuas kiel vi! Sed, kien vi ekiris?
@@ -4696,17 +3918,11 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Atedu iom, ke ni iru kune.
 
-Post kiam ili alpromenis sur la ŝoseon, ili haltis antaŭ do-mo, kie en teretaĝo troviĝis la poŝtoficejo. En eta ĉambreto maljuna poŝtoficisto preparis, kunligis kaj sigelis tri aŭ kvar leterojn. De sur la ŝoseo oni facile povis vidi lian enpensi-
+Post kiam ili alpromenis sur la ŝoseon, ili haltis antaŭ do-mo, kie en teretaĝo troviĝis la poŝtoficejo. En eta ĉambreto maljuna poŝtoficisto preparis, kunligis kaj sigelis tri aŭ kvar leterojn. De sur la ŝoseo oni facile povis vidi lian enpensiĝintan kapon, ĉar la fenestro estis tute malfermita.
 
-ĝintan kapon, ĉar la fenestro estis tute malfermita.
+—Bonan tagon, sinjoro Miko, ĉu venis iu poŝto? — demandis Stipe.
 
-—Bonan tagon, sinjoro Miko, ĉu venis iu poŝto? — deman-
-
-dis Stipe.
-
-—Lasu min nun! Kial pro diablo vi ĝenas min? — ekkole-
-
-ris la poŝtoficisto. —ĉu vi ne vidas, ke mi havas multe da laboro? Bonan tagon! Jes, unu poŝto pasis, tiu el Pazin, kaj nun
+—Lasu min nun! Kial pro diablo vi ĝenas min? — ekkoleris la poŝtoficisto. —ĉu vi ne vidas, ke mi havas multe da laboro? Bonan tagon! Jes, unu poŝto pasis, tiu el Pazin, kaj nun
 
 ĝisknaros unu el Rijeka, — li diris rigardante tra la okulvitroj la horloĝon pendantan sur la muro. La horloĝo surhavis nur unu montrilon, eĉ tiun rompitan.
 
@@ -4715,9 +3931,6 @@ ris la poŝtoficisto. —ĉu vi ne vidas, ke mi havas multe da laboro? Bonan tag
 Stipe diras ŝerce.
 
 —Senzorgaj vi estas! Vi ankoraŭ ne spertis la guston de la imperiestra pankrusto. Se mi faros ion malkorekte, ĉu vi pagos kvincent monerojn pro tio? Nu, kiom signifas por vi la kvincent moneroj! Sed ankoraŭ tricent naŭdek naŭ foje tiom egalas mia tutjara salajro!
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —ĉu venis letero el la direkto de Pazin?
@@ -4736,29 +3949,20 @@ Estis varme ĉi-tage. La ĉevalo ŝvitis pro malforteco. Rimarkinte tufon da her
 
 —La tuta mondo forgesis pri Luĉica! — ekridetis Marko.
 
-—Ni ne fordonu nin! Morgaŭ certe venos io, — Stipe kon-
+—Ni ne fordonu nin! Morgaŭ certe venos io, — Stipe konsolis sin. —Mi esperas… ho, jen ili! Trafspeca kompanio! — li flustris post kiam li rimarkis la urbestron kaj Alfredon de Saletti iom fore sur la ŝoseo.
 
-solis sin. —Mi esperas… ho, jen ili! Trafspeca kompanio! — li flustris post kiam li rimarkis la urbestron kaj Alfredon de Saletti iom fore sur la ŝoseo.
-
-—Stipe ni foriru! Mi ne volas renkonti ilin, — Marko eki-
-
-ris paliĝinte vizaĝe.
+—Stipe ni foriru! Mi ne volas renkonti ilin, — Marko ekiris paliĝinte vizaĝe.
 
 —Ili opinios, ke ni timas ilin!
 
 —Ni foriru, Stipe! Ili estas abomenindaj, kaj vi konas la impertinentecon kaj malĝentilecon de Saletti. Ni kverelos certe, sed nun ne estas oportuna tempo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Se ni estos devigitaj pugnobati, ni rompos iliajn nazojn!
 
 —Stipe, mi terure ekscitiĝis.
 
-—Trankviliĝu, ne kondutu kiel infano. Jen, kvazaŭ du ka-
-
-najloj! Jes, ili destiniĝis ĉi tien.
+—Trankviliĝu, ne kondutu kiel infano. Jen, kvazaŭ du kanajloj! Jes, ili destiniĝis ĉi tien.
 
 ĵus atingis Alfredo kaj Murelli.
 
@@ -4785,9 +3989,6 @@ Marko turnis sin al la maro.
 —Kanajlo! — la negocisto dentogrincis.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 Alfredo rigidiĝis. ĉi-momonte el la domo haste eliris la di-ka urbestro, la poŝtoficisto kaj lia edzino.
 
 —ĉe la juĝejo oni ekscios, kiu estas impertinenta aŭ krimu-lo! — elbuŝigis Marko obtuze.
@@ -4804,9 +4005,7 @@ Alfredo per ridinda digno.
 
 Tiuj vortoj trafis Alfredon malfeliĉige.
 
-—Stipe, lasu tiun arogantulon! — mansvingis Marko ma-
-
-lestime.
+—Stipe, lasu tiun arogantulon! — mansvingis Marko malestime.
 
 Alfredo svingiĝis al li intencante frapi la vizaĝon, sed la negocisto forpuŝis lin per sia tuta forto for de la amiko.
 
@@ -4818,16 +4017,11 @@ La urbestro prenis la nobelon subbrake kaj elirigis lin perforte kun si.
 
 Luĉica malpaciĝis denove, post kiam disvastiĝis la sciigo pri la kverelo antaŭ la poŝtoficejo. ĉiuj pri ĉio riproĉegis al la sinjora palaco sur la monteto…
 
-La saman posttagmezon Elvira ploris nedeteneble, aŭskul-
-
-tante la patron kaj la fraton kverelantajn kaj sakrantajn en la najbara ĉambro.
+La saman posttagmezon Elvira ploris nedeteneble, aŭskultante la patron kaj la fraton kverelantajn kaj sakrantajn en la najbara ĉambro.
 
 —Kial vi rilatas kun la brutuloj? Kia do nobelo vi estas? Vi surstrate disputas kun maristaj filoj kaj negoculoj? — kriis la maljuna Saletti.
 
 —Ja mi jam diris al vi, ke mi hazarde renkontis ilin.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Ne mensogu!
@@ -4858,12 +4052,7 @@ konversacii.
 
 —Malfacile; ĉi tiuj stultuloj ne volos atesti; sed, pri kio atesti?
 
-—He! Facila afero pri tio! Ili atestu laŭ mia volo, aŭ ilia propraĵo aŭkciiĝos! ĵurigitaj ili asertos, ke ili vidis, kiam la bas-149
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-tardo, jes, la bastardo atakis vin… kaj forprenis vian pafilon dum ĉaso, kaj neniu junulino estis ie proksime.
+—He! Facila afero pri tio! Ili atestu laŭ mia volo, aŭ ilia propraĵo aŭkciiĝos! ĵurigitaj ili asertos, ke ili vidis, kiam la bastardo, jes, la bastardo atakis vin… kaj forprenis vian pafilon dum ĉaso, kaj neniu junulino estis ie proksime.
 
 —Patro, mi ne kredas, ke niaj servutuloj false ĵuros, ĉar vi scias…
 
@@ -4877,9 +4066,7 @@ kaj Murelli prokrastigos la aferon, kiel eble plej longtempe. Se estus necese, v
 
 —Sed, se la juĝistaro ne kredos?
 
-—Vi aldonos en la leteron eĉ dekon da atestiloj de kura-
-
-cistoj.
+—Vi aldonos en la leteron eĉ dekon da atestiloj de kuracistoj.
 
 —ĉu vi ŝatus, ke mi iru en Francujon?
 
@@ -4906,9 +4093,6 @@ li diris rigardante en liajn okulojn etendante sian manon al li.
 La maljuna Saletti rigardanta post li kaj kapbalancanta,
 
 enfoteliĝis, disvolvis iun larĝan gazeton antaŭ si kaj eklegis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Li kovris sin preskaŭ tuta per la gazeto; nur la kruroj sub la genuoj videblis, kaj duono de la dikaj kaj vilaj fingroj surran-de de la gazeto.
@@ -4938,9 +4122,6 @@ Alfredo ĉirkaŭrigardis la ĉambron kaj tiam vigle alrigardis la urbestron al l
 —Multon vi disipas! Vi kolerigos vian patron, — flustris la urbestro.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Murelli!
 
 —Kiom?
@@ -4951,13 +4132,9 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Tss! Eĉ ne vorton! Murelli!
 
-—Granda sumo! Vi jam ŝuldas al mi trimil kvarcent tri fo-
+—Granda sumo! Vi jam ŝuldas al mi trimil kvarcent tri forintojn.
 
-rintojn.
-
-—En Parizo mi multe bezonos. Mi ne volas kolerigi la pa-
-
-tron.
+—En Parizo mi multe bezonos. Mi ne volas kolerigi la patron.
 
 —Mi kredas, sed kvincent! Kvincent!
 
@@ -4971,15 +4148,11 @@ tron.
 
 —Proponu.
 
-—Sinjoro! Neniam! Neniam! ĉu vi ne traktas min kiel ami-
-
-kon? Mia konscienco estis ĉiam senmakula. Se mi povas, mi helpos al vi, kiel amiko. He, se mi havus mian propran monon, estus facile! Mi devas peni! Kredu, mi ne ricevas sufiĉe eĉ por la tabako. Ja, kiom Maletti donas al mi? Du pocentojn!
+—Sinjoro! Neniam! Neniam! ĉu vi ne traktas min kiel amikon? Mia konscienco estis ĉiam senmakula. Se mi povas, mi helpos al vi, kiel amiko. He, se mi havus mian propran monon, estus facile! Mi devas peni! Kredu, mi ne ricevas sufiĉe eĉ por la tabako. Ja, kiom Maletti donas al mi? Du pocentojn!
 
 —Maletti? ĉu la urbestro en Jelenŝĉica?
 
-—Jes, mi negocas per lia mono. Ek diru, kiom vi superdo-
-
-nos al li.
+—Jes, mi negocas per lia mono. Ek diru, kiom vi superdonos al li.
 
 —Kvincent.
 
@@ -4996,9 +4169,6 @@ nos al li.
 —Kvincent, eĉ ne unu moneron pli!
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —El kio vi intencas redoni tiun ĉi sumon?
 
 —La propraĵo de Saletti valoras…
@@ -5013,9 +4183,7 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Probable! Vi skribu al mi!
 
-La interkonsenton ili surmetis sub skriboplumon. La urbe-
-
-stro nombris al la nobelo kvincent forintojn. Ili poste longe trinketis kaj ŝercis, fidele, amike ĝis malfrua nokto, ĝis tre malfrua…
+La interkonsenton ili surmetis sub skriboplumon. La urbestro nombris al la nobelo kvincent forintojn. Ili poste longe trinketis kaj ŝercis, fidele, amike ĝis malfrua nokto, ĝis tre malfrua…
 
 Jam noktomezo batis sur la kampanilo de Luĉica. En neniu
 
@@ -5027,20 +4195,13 @@ Malantaŭ la domo de Saletti, en la arbareto, flustris du viroj.
 
 Lovro.
 
-—Mi opinias, ke ne. Sed kion signifas la rapida decido voja-
-
-ĝi? — diris Luka.
+—Mi opinias, ke ne. Sed kion signifas la rapida decido vojaĝi? — diris Luka.
 
 —Al mi plaĉas lia foriro. Ni facile perlaboris kelkajn dekojn da monbiletoj.
 
-—Ho ili povus kaŭzi al ni kapdoloron! Mi supozas, ke An-
-
-tonio ĉi tie ĉirkaŭiras, kaj probable li kaŝe aŭskultis nin.
+—Ho ili povus kaŭzi al ni kapdoloron! Mi supozas, ke Antonio ĉi tie ĉirkaŭiras, kaj probable li kaŝe aŭskultis nin.
 
 —Ankaŭ mi opinias tiel; ĉu alimaniere li povus scii, de kiu mi ricevis la centvaloran monbileton, kiun mi ŝanĝis ĉe la negocisto.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Li nur diris, ke li scias la devenon de la tioma mono, sed li ne diris al vi, ke ilin donis la juna sinjoro mem.
@@ -5067,16 +4228,11 @@ tempo vidis, ke iu de sur la ŝoseo kaŝis sin en la arbaro.
 
 La servistoj komencis ĉirkaŭiri tra la arbareto irante unu post la alia, aŭskultante, mansvingante kaj trarigardante ĉiun anguleton. ĉiu portis pezan bastonon.
 
-Dum ili rampiris ĉe unu flanko, Marko kaj Elvira konver-
-
-saciis ĉe la alia en la kutima loko, en la laŭbo.
+Dum ili rampiris ĉe unu flanko, Marko kaj Elvira konversaciis ĉe la alia en la kutima loko, en la laŭbo.
 
 La nokto estis belega. La luno jam alte leviĝis sur la ĉiela firmamento. ĉarme fluis ĝia ora brilo laŭ la marebenaĵo. Re-viga nokta venteto blovetis varme kaj mole en la vizaĝon de Elvira. La foliaro de la laŭroj tremetis, la rozoj malfermis sian sinon al la tenera roso, la steloj helis lukse, la brusto ŝveliĝis volupte, la revsopiroj tiriĝas tra la koroj, iaĵo am-alloga solviĝis tra la aminda aero, kaj la ombro de la alta kaj trista cipreso longiĝis laŭ la etaj montetoj sur la tombejo de Luĉica.
 
 —Pardonu Elvira, mi ne povas plenumi vian deziron. Mi
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 oferus ĉion por via feliĉo, sed mian honoron mi neniam sur-tretos!
@@ -5099,24 +4255,16 @@ Marko, rigardu al mia vizaĝo, ne tiel malserene, ekridetu al mi, indulgu miajn 
 
 vi… Vi ne konas lin sufiĉe.
 
-—Neniun mi timas! Mia fratino estas ofendita, mia patri-
+—Neniun mi timas! Mia fratino estas ofendita, mia patrino veas, via frato afliktis mian maljunan kaj malsanan patron, la popolo furiozas, dum vi volas, ke mi paciĝu, ke mi forgesu ĉion! Elvira, se mi tion farus, ĉu vi ne hontus antaŭ mi kaj antaŭ mia amo?
 
-no veas, via frato afliktis mian maljunan kaj malsanan patron, la popolo furiozas, dum vi volas, ke mi paciĝu, ke mi forgesu ĉion! Elvira, se mi tion farus, ĉu vi ne hontus antaŭ mi kaj antaŭ mia amo?
-
-—El via koro parolas homa fiero kaj malestiminda ven-
-
-ĝemo. Pardonu al li kaj kompatu lin! Marko, ĉu vi ne zorgas pri nia feliĉo, pri nia estonto? ĉu vi ne povas ian oferon de-diĉi al mi?
+—El via koro parolas homa fiero kaj malestiminda venĝemo. Pardonu al li kaj kompatu lin! Marko, ĉu vi ne zorgas pri nia feliĉo, pri nia estonto? ĉu vi ne povas ian oferon de-diĉi al mi?
 
 —Mi povas, sed la honoron neniam!
 
-—Vi deziras venĝi al li; ĉu la venĝemo kongruas kun la honoro? Marko, estu nobla, estu pli taŭga ol mia frato! Alfredo faris grandan hontigon al via familio, li kondutas impertinente; mi ne protektas lin, mi ne defendas lin, sufiĉe mi preĝas 155
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Vi deziras venĝi al li; ĉu la venĝemo kongruas kun la honoro? Marko, estu nobla, estu pli taŭga ol mia frato! Alfredo faris grandan hontigon al via familio, li kondutas impertinente; mi ne protektas lin, mi ne defendas lin, sufiĉe mi preĝas
 
 
-Dion por tiu malfeliĉigulo, sed mia animo suferas pro via sen-kompato, Marko. Mi ĉiam opiniis, ke via koro ne konas ali-on ol noblajn kaj sublimajn sentojn, sed nun mi ekkonas, ke vi okupiĝas pri trivialaj pensoj pri malgrava kaj onidire dama-
-
-ĝita digno.
+Dion por tiu malfeliĉigulo, sed mia animo suferas pro via sen-kompato, Marko. Mi ĉiam opiniis, ke via koro ne konas ali-on ol noblajn kaj sublimajn sentojn, sed nun mi ekkonas, ke vi okupiĝas pri trivialaj pensoj pri malgrava kaj onidire damaĝita digno.
 
 —Elvira!
 
@@ -5138,29 +4286,20 @@ Mi centfoje mortigus min, por ke oni kuŝigu min apud vi en la saman tombon! Mar
 
 —Kara Elvira!
 
-—La nokto estos belega, same kiel la nun, kaj se mi reve-
-
-nos ĉi tien, kiam mi brakumos vin por ekiri kun vi, la lunlumo ekflamos…
+—La nokto estos belega, same kiel la nun, kaj se mi revenos ĉi tien, kiam mi brakumos vin por ekiri kun vi, la lunlumo ekflamos…
 
 —Elvira, silente! Mi aŭdas ion… homojn…
 
 Ili eksilentis.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—Iu kuras laŭ la ŝoseo malsupren de la monteto, — ek-
-
-flustris Elvira.
+—Iu kuras laŭ la ŝoseo malsupren de la monteto, — ekflustris Elvira.
 
 —Malantaŭ la arbareto?
 
 —Jes. Kiu en la nuna tempo estus ĉi tie?
 
-—Mi ne scias… Probable Antonio, — respondis Marko, al-
-
-klinante Elviran al sia brusto.
+—Mi ne scias… Probable Antonio, — respondis Marko, alklinante Elviran al sia brusto.
 
 Sur la ŝoseo de Saletti, malantaŭ la arbareto, aŭdiĝis hastaj kaj pezaj paŝbatoj.
 
@@ -5184,9 +4323,7 @@ silento; ili verŝajne haltis.
 
 Kelkajn momentojn poste Elvira ekflustris:
 
-—Aŭskultu, nun denove iu kuras, sed supren, sur la mon-
-
-teton.
+—Aŭskultu, nun denove iu kuras, sed supren, sur la monteton.
 
 —Jes, supren… Kio okazis?
 
@@ -5194,9 +4331,7 @@ teton.
 
 —Mallaŭte, Elvira! Nun ili iras pli malrapide, jen ili tro-viĝas sur tiu pado. Jes, ili iras al la domo.
 
-—Kie, kie? Mi ne vidas ilin; la arbareto estas densa… Jen, ili venis al la lunlumo! Ili kliniĝas kaj fleksiĝas! Marko, ili nun 157
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Kie, kie? Mi ne vidas ilin; la arbareto estas densa… Jen, ili venis al la lunlumo! Ili kliniĝas kaj fleksiĝas! Marko, ili nun
 
 
 ne estas malproksime… Jen, estas niaj servistoj, ŝajnas al mi…
@@ -5225,20 +4360,13 @@ Dolĉe dormu, mia bona Elvira. Iru, karulino, iru! Morgaŭ mi denove atendos vin
 
 —Elvira ekiris laŭ mallarĝa pado, dum li rigardis post ŝi, ĝis kiam ŝi malaperis de antaŭ liaj okuloj. Marko sentis ian pezon ĉe la koro. Li enspiris profunde kaj per la mandorso viŝis sian frunton kaj enpensiĝis… Sur la kampanilo en Luĉica batis la dua horo. La junulo vekiĝis el siaj pensoj kaj eliris el la ŝir-mejo kaj irinte tra la arbareto, li surpaŝis la ŝoseon, kiu descendis de sur la monteto al la imperiestra ŝoseo. Marko iris malsupren plena de zorgoj.
 
-La ŝoseo estis surŝutita per blanka sablo. ĉie ĉirkaŭe regis perfekta silento. Marko paŝis lante kaj rigardis al la ĉielo kaj al la arboj surverŝitaj de la lunlumo. Elvira kvazaŭ ŝvebis an-taŭ liaj okuloj ene de la mirinda aero… Marko skuiĝis neaten-158
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-dite kaj li haltis. Kelkajn paŝojn fore trans la ŝoseo, en la lunlumo, kuŝas surdorse homo. Marko alproksimiĝis kaj tuta
+La ŝoseo estis surŝutita per blanka sablo. ĉie ĉirkaŭe regis perfekta silento. Marko paŝis lante kaj rigardis al la ĉielo kaj al la arboj surverŝitaj de la lunlumo. Elvira kvazaŭ ŝvebis an-taŭ liaj okuloj ene de la mirinda aero… Marko skuiĝis neatendite kaj li haltis. Kelkajn paŝojn fore trans la ŝoseo, en la lunlumo, kuŝas surdorse homo. Marko alproksimiĝis kaj tuta
 
 ektremis. Alfredo. Sur la blanka ĉemizo kaj sur la brusto va-poris, pro la luna lumo, sango. La fortikaj kaj blankaj manoj, kiuj falis teren senmovaj, estis sangmakulitaj. Vitrecaj okuloj vaste malfermitaj gapis en la ĉarman nokton. La pala vizaĝo kaj la sangumita buŝo spasme aliformiĝis. Marko metis sian manon sur la frunton de Alfredo kaj li ŝtoniĝis. i estis malvarma.
 
 —Sinjoro Saletti, ĉu vi aŭdas min? Sinjoro!… Mortinta!
 
-Apud la kadavro sur la ŝoseo kuŝis pistolo. Marko ektre-
-
-mis, malvarma ŝvito surverŝis lian frunton. Li komencis pensi, kion fari. — Jes! — li kapbalancis kaj ekreiris supren sur la supron de la monteto. Li pasis tra la arbareto kaj venis antaŭ la domon de Saletti. La ombro kaŝis la fermitan pordon. Marko prenis sonorilon kaj forte skuis ĝin. Elvira kaj ŝia patro venas al la fenestro, malfermis ĝin kaj ili rimarkis homon an-taŭ la domo. Nur Elvira rekonis lin en la ombro. ŝia ĉambro estas for de la ĉambro de ŝia patro. Rimarkinte Markon ŝi surpriziĝis.
+Apud la kadavro sur la ŝoseo kuŝis pistolo. Marko ektremis, malvarma ŝvito surverŝis lian frunton. Li komencis pensi, kion fari. — Jes! — li kapbalancis kaj ekreiris supren sur la supron de la monteto. Li pasis tra la arbareto kaj venis antaŭ la domon de Saletti. La ombro kaŝis la fermitan pordon. Marko prenis sonorilon kaj forte skuis ĝin. Elvira kaj ŝia patro venas al la fenestro, malfermis ĝin kaj ili rimarkis homon an-taŭ la domo. Nur Elvira rekonis lin en la ombro. ŝia ĉambro estas for de la ĉambro de ŝia patro. Rimarkinte Markon ŝi surpriziĝis.
 
 —Kiu sonoras? — ekkriis kolere la maljuna Saletti.
 
@@ -5252,50 +4380,31 @@ respondis Marko starante ĝuste sub lia fenestro.
 
 —Kiu vi estas? — demandis raŭke la patro.
 
-Marko estis jam malaperinta de antaŭ la domo. Preterpas-
-
-inte sub la fenestroj de Elvira, ŝajnis al li, ke iu ekĝemis. Elvira svenis kaj falis planken.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Marko estis jam malaperinta de antaŭ la domo. Preterpasinte sub la fenestroj de Elvira, ŝajnis al li, ke iu ekĝemis. Elvira svenis kaj falis planken.
 
 
 VIII
 
-Se oni iras el Luĉica, dum mateniĝo, al la norda direkto laŭ la ŝtonozaj padoj, kiuj volviĝas super la klifoplena bordo, oni ascendos sur hororaspektan rokaĵon, kaj la suno ĝoje ek-brilos. Kune kun tiu ĉi rokaĵo, paralele malsupreniĝas ankoraŭ unu super la maron, sed neniu etendas sin en la maron mem, sed ili falas vertikale kvazaŭ per hakilo tranĉitaj, en la tenebran profundan akvon. En la ravino inter tiuj ĉi du ro-kaĵoj, sed sur la suda flanko de la norda rokaĵo, videblas malnova sola domo, sub kiu fluas rivereto. ĉirkaŭ la domo elkreskis aro da olivarboj, kaŝtanoj kaj figarboj. Super la tenebrajn riveretnodojn kliniĝas kaŝtanbranĉoj. Sur la sunekspo-nita loko troviĝas iom da kultivata agro, sed se tie ne troviĝus ŝtonbaraĵoj, la torentoj ĉion forlavus ĝisŝtone, kiam peza nu-bo malŝarĝas sin sur la rokaĵon. La norda rokaĵo ŝirmas la domon kaj la maldensan vitaron kontraŭ la ventegoj, kiuj rui-nigus la malnovan tegmenton kaj pereigus junajn fruktoar-
+Se oni iras el Luĉica, dum mateniĝo, al la norda direkto laŭ la ŝtonozaj padoj, kiuj volviĝas super la klifoplena bordo, oni ascendos sur hororaspektan rokaĵon, kaj la suno ĝoje ek-brilos. Kune kun tiu ĉi rokaĵo, paralele malsupreniĝas ankoraŭ unu super la maron, sed neniu etendas sin en la maron mem, sed ili falas vertikale kvazaŭ per hakilo tranĉitaj, en la tenebran profundan akvon. En la ravino inter tiuj ĉi du ro-kaĵoj, sed sur la suda flanko de la norda rokaĵo, videblas malnova sola domo, sub kiu fluas rivereto. ĉirkaŭ la domo elkreskis aro da olivarboj, kaŝtanoj kaj figarboj. Super la tenebrajn riveretnodojn kliniĝas kaŝtanbranĉoj. Sur la sunekspo-nita loko troviĝas iom da kultivata agro, sed se tie ne troviĝus ŝtonbaraĵoj, la torentoj ĉion forlavus ĝisŝtone, kiam peza nu-bo malŝarĝas sin sur la rokaĵon. La norda rokaĵo ŝirmas la domon kaj la maldensan vitaron kontraŭ la ventegoj, kiuj rui-nigus la malnovan tegmenton kaj pereigus junajn fruktoarbojn, kiam dum la kristnaskaj tagoj ventegoj kutime ekfajfas kaj ekfumas. Ene de tiu izolo loĝas la maristo Martĵuliĉ kaj lia filo Joso, amiko de Antonio.
 
-bojn, kiam dum la kristnaskaj tagoj ventegoj kutime ekfajfas kaj ekfumas. Ene de tiu izolo loĝas la maristo Martĵuliĉ kaj lia filo Joso, amiko de Antonio.
-
-La nokto estis serena. La orienta duono de la golfo Kvar-
-
-ner troviĝis ankoraŭ en nebulo kaj en pala brilo de la luno, kiu jam alproksimiĝis al la Istria montego naĝante trankvile sur la blua ĉiela firmamento. Milda nokta venteto de sur la bordo glitis meze de la golfo, kiu nigris kvazaŭ larĝa strio. Ie 160
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La nokto estis serena. La orienta duono de la golfo Kvarner troviĝis ankoraŭ en nebulo kaj en pala brilo de la luno, kiu jam alproksimiĝis al la Istria montego naĝante trankvile sur la blua ĉiela firmamento. Milda nokta venteto de sur la bordo glitis meze de la golfo, kiu nigris kvazaŭ larĝa strio. Ie
 
 
 tie en la lunlumo rebrilis ondoŝaŭmo. Antonio, grimpante sur la rokoplenaj padoj, venis sur la supron de la rokaĵo, kiu elstaris vid-al-vide de la domo de Koĵuliĉ, kaj, sursaltinte klifon, li ekrigardis al la ravino. Tra la olivbranĉoj montriĝis iom da tegmento, parto de nigriĝinta muro kaj blankaj vitroj de fenestreto. Li decidis atendi la tagiĝon, kaj sidiĝis sur ŝtonon kaj la brakojn krucigis ĉe sia brusto. Ankoraŭfoje li rigardis al la kontraŭa deklivo por vidi, ĉu lumo videblas en la dometo de la maristo, li entiris sian kapon inter la ŝultrojn, kunpremis sin, rondfleksis sian dorson kaj komencis mute rigardi la maron.
 
 Palaj kaj bluaj ondoj, malrapide moviĝantaj, venadis al la bordo, kie ili lante verŝiĝis plaŭdante kontraŭ la mallumaj klifoj. Antonio aŭskultis la verŝadon kaj rigardis al la malproksimo, al la oriento, de kie li atendis konsoligan lumon. La ombroj de la luno etendiĝis pli kaj pli sur la marebenaĵon, kaj fine ili atingis la insulojn kaj la karstan kalvaĵon de Velebit.
 
-Antonion ĉirkaŭis mallumo. Li denove rigardis orienten; liaj okuloj estis tute malfermitaj, lia dorso estiĝis rondforma, li tuta fleksiĝis. Lin ekkaptis timego; ŝajnis al li, ke ies kapo levi-
-
-ĝis el sub la eĝoj de la klifoj, kaj, ke iu kliniĝas kaj kurbiĝas inter la ŝtonegoj kaj klifoj, kiuj elstaras antaŭ li en la mallumo sur la soleca rokaĵo. Li surprizege rigardis kaj pro hororo krucosignis sin, sed vane, ĉar ŝajnis al li, ke li aŭdas iun ĝemanta raŭke kaj dolore, ke iu suspiras ie ĉirkaŭe inter la klifoj kaj la piceoj. Li turnus sin, se li povus, por rigardi en la ravinon, ke li vidu, ĉu en la marista domo jam lumas, sed li kvazaŭ ŝtoniĝis, hororo atakis lin, terurtremoj kaptis lian korpon. Li ektremis tuta, ĉar ŝajne io flirtis, io ĉirkaŭflugis, kaj kiam li eksentis ies varman elspiron sur sia nuko, ies misteran tuŝon 161
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Antonion ĉirkaŭis mallumo. Li denove rigardis orienten; liaj okuloj estis tute malfermitaj, lia dorso estiĝis rondforma, li tuta fleksiĝis. Lin ekkaptis timego; ŝajnis al li, ke ies kapo leviĝis el sub la eĝoj de la klifoj, kaj, ke iu kliniĝas kaj kurbiĝas inter la ŝtonegoj kaj klifoj, kiuj elstaras antaŭ li en la mallumo sur la soleca rokaĵo. Li surprizege rigardis kaj pro hororo krucosignis sin, sed vane, ĉar ŝajnis al li, ke li aŭdas iun ĝemanta raŭke kaj dolore, ke iu suspiras ie ĉirkaŭe inter la klifoj kaj la piceoj. Li turnus sin, se li povus, por rigardi en la ravinon, ke li vidu, ĉu en la marista domo jam lumas, sed li kvazaŭ ŝtoniĝis, hororo atakis lin, terurtremoj kaptis lian korpon. Li ektremis tuta, ĉar ŝajne io flirtis, io ĉirkaŭflugis, kaj kiam li eksentis ies varman elspiron sur sia nuko, ies misteran tuŝon
 
 
 sur sia dorso, li rapide saltis de sur la ŝtono, ekkaŭris sur la teron, lia hararo hirtiĝis, li kaŝis sian vizaĝon, li komplete kunvolvis sin. Nun Antonio estis vera bulo el homa karno, en kiu tremas ĉiu vejneto, en kiu spasmas ĉiu nervo. La sango muĝis en liaj oreloj, la tenacajn fingrojn li enpikis en sian kris-pan hararon, ĉar iu vekriis tie surstrande sub la rokdeklivo, ĉar sur la ŝtonaro ĉirkaŭ li iaj malklaraj estaĵoj akrigis tranĉilojn. Li sentis gutojn de tepida sango sur siaj manoj, li viŝis la manojn ĉe sia ĉifonita pantalono, li krucosignis sin kaj pensis pri la kliforando. Li volus ekstari kaj alkuri al la rando, por ĵeti sin en la malvarman maron, por forgesi ĉion en la akvo, ke ĉesu la teruraj turmentoj, sed sur la malluma strando inter la rokoj transverŝis sin akvo, ĝi verŝiĝis lante, kvazaŭ glu-glante en ekmovita kadavro. Antonio provis ekstari, sed li ne povis eĉ moviĝi, io katenigis lin al la granda ŝtono, antaŭ kiu li volviĝis. Li rigardis al la maro kaj li tuta ektremis. El la blua surfaco elmontris sin du blankaj brakoj. Antonio pene ekstaris, preninte sian koron, li apogis siajn nigrajn kaj grandajn okulojn al la brakoj. Nun ankaŭ kapo montriĝis el la maro. La frunto estis frakasita kaj pala; la disbatitaj lipoj ridetis al li.
 
 Antonio rigardis konsternite al la konata vizaĝo. La brakoj svingis kun sangigita tranĉilo, lavis ĝin en la maro, kaj svingis denove. akra eĝo ekbrilis pure kaj hele, tiam ili forĵetis ĝin al la deklivo. La tranĉilo eksiblis tra la malluma aero, kaj frapinte kontraŭ la ŝtonaro sur la deklivo, ĝi ektintis kaj komplete dispeciĝis. Antonio kaŝpremis sin sub la roko…
 
-Post kiam li malfermis la okulojn, li rimarkis la serenan ĉielon oriente. Li ekstaris, rigardis al la ravino, kaj vidinte lumon en la domo de la maristo, li ekkuris malsupren laŭ la deklivo. Transpasinte la trabon, la ponton sur la rivereto, li 162
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Post kiam li malfermis la okulojn, li rimarkis la serenan ĉielon oriente. Li ekstaris, rigardis al la ravino, kaj vidinte lumon en la domo de la maristo, li ekkuris malsupren laŭ la deklivo. Transpasinte la trabon, la ponton sur la rivereto, li
 
 
-paŝis pli malrapide al la oblikva kampo al la domo. Kiam li proksimiĝis al la fenestro de la teretaĝa dometo, sur lian viza-
-
-ĝon falis flamolumo tra fumigitaj vitroj. En la fumplena kuirejo, ĉe malalta fajrejo sidis griza kaj magra homo ĵetante sekajn branĉojn en la fajron. La branĉetoj kraketis kaj klakadis kaj la flamoj flagris alten kaj lekis la nigran feran ujon, kiu pendis je longaj ĉenoj. Ankaŭ la vizaĝon de la maljunulo prilumis la arda flamo.
+paŝis pli malrapide al la oblikva kampo al la domo. Kiam li proksimiĝis al la fenestro de la teretaĝa dometo, sur lian vizaĝon falis flamolumo tra fumigitaj vitroj. En la fumplena kuirejo, ĉe malalta fajrejo sidis griza kaj magra homo ĵetante sekajn branĉojn en la fajron. La branĉetoj kraketis kaj klakadis kaj la flamoj flagris alten kaj lekis la nigran feran ujon, kiu pendis je longaj ĉenoj. Ankaŭ la vizaĝon de la maljunulo prilumis la arda flamo.
 
 Antonio ekfrapis kontraŭ la vitro, dum la maljunulo skuiĝis kaj tute malferminte siajn okulojn, li ekrigardis al la fenestro demandante:
 
@@ -5323,11 +4432,7 @@ La majunulo turnis ŝlosilon en la seruro, kaj kiam post longa tempo li sukcesis
 
 —Mi ne kaptadis.
 
-—Ja via vizaĝo aspektas kvazaŭ oni eltirus vin el toloblan-kigujo! — rimarkis la maristo, balancante per sia kapo. —Sidi-
-
-ĝu, Antonio, sidiĝu, — li daŭrigis, — sed kia feliĉo aŭ malfeliĉo pelas vin ĉi tien? He, kia vetero estas ekstere? He, bela, 163
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ja via vizaĝo aspektas kvazaŭ oni eltirus vin el toloblan-kigujo! — rimarkis la maristo, balancante per sia kapo. —Sidiĝu, Antonio, sidiĝu, — li daŭrigis, — sed kia feliĉo aŭ malfeliĉo pelas vin ĉi tien? He, kia vetero estas ekstere? He, bela,
 
 
 bela! Mi rekonas ĝin laŭ la fumo; jen ĝi plenigis la domon! Jes, jes, la vento blovas de sur la bordo. Hieraŭ vespere la suno subiris en serenaĵon. Plej konvene por navigi orienten! Sed la akvo neniel volas ekboli. Mi volus ekfumi pipon, sed ne an-taŭ ol iome trinki, ne ĉe malplena stomako. Antonio, unu kulero da kafo estas bona substanco por sendormigi sin kaj
@@ -5377,9 +4482,6 @@ bruligis min! Kion, kion vi diris? Kaŝi?
 —Salettin?
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Mi ĉinokte lin…
 
 —Antonio!
@@ -5420,12 +4522,7 @@ ekĝemis la maristo kovrinte sian vizaĝon per la manoj.
 
 —Lovro, jes, li rakontis, ke la maljuna sinjoro nokte vizitadis iun virinon, ke li havas filon kun ŝi…
 
-—Ho, malfeliĉa virino!… Jes, tiel estas. Antonio, aŭskultu min! Mi forestis de la hejmo dum kvin jaroj, mi navigis. Kiam mi ekiris velŝipe el Triesto, Joso ĵus naskiĝis. Jes, kvin jarojn mi forestis de mia hejmo!… Saletti rimarkis mian edzinon, ŝi estis juna kaj bela, la fripono tentis ŝin kaj perfortis, ĝis mal-165
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-ĉastigo. Kiel ŝi ja povis defendi sin en tiu ĉi izolo?… Mia malfeliĉa Marica! Antonio, jam pasis tridek jaroj de tiam, pro ŝi mi ankoraŭ nun sentas kordoloron, kvankam ŝiaj ostoj jam
+—Ho, malfeliĉa virino!… Jes, tiel estas. Antonio, aŭskultu min! Mi forestis de la hejmo dum kvin jaroj, mi navigis. Kiam mi ekiris velŝipe el Triesto, Joso ĵus naskiĝis. Jes, kvin jarojn mi forestis de mia hejmo!… Saletti rimarkis mian edzinon, ŝi estis juna kaj bela, la fripono tentis ŝin kaj perfortis, ĝis malĉastigo. Kiel ŝi ja povis defendi sin en tiu ĉi izolo?… Mia malfeliĉa Marica! Antonio, jam pasis tridek jaroj de tiam, pro ŝi mi ankoraŭ nun sentas kordoloron, kvankam ŝiaj ostoj jam
 
 putriĝis en la tombo! — ĝemis la griza maristo.
 
@@ -5455,9 +4552,7 @@ Kiam Kata revenis el Triesto en tiun ĉi povran dometon, ŝi trovis mian edzinon
 
 —Oni trovis kaj donis vin al Kata, kiu alportis vin ĉi tien.
 
-La luĉicanoj kredis kaj ankoraŭ kredas, ke vi estas trovito, ke 166
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La luĉicanoj kredis kaj ankoraŭ kredas, ke vi estas trovito, ke
 
 
 oni ne scias pri viaj patro kaj patrino. Antonio, vi scias, ke pluraj niaj virinoj venigis ĉi tien alies infanojn, edukis ilin, kaj fine ekamis ilin kiel siajn proprajn. Kiam Kata prenis vin el la orfejo, vi ĵus plenigis la unuan jaraĝon. Vi vivis kune kun mia Joso en la domo de Kata, ĝis kiam mi rehejmiĝis, kaj poste, kiam Kata mortis…
@@ -5491,16 +4586,11 @@ Aŭskultu, mi aŭdas liajn paŝojn; jes, Joso alvenas.
 Joso eniris en la kuirejon, portante korbeton da fiŝoj. Kiam li rimarkis Antonion, li ekkriis:
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —De kie vi elmergis? Kial vi ne venis fiŝkapti kune? Paĉjo, jen, sufiĉa kvanto da fiŝoj, ni fritos ilin abunde!
 
 —Joso, silentu! Aŭskultu pri la evento!
 
-—Kio okazas kun vi ambaŭ? Rigardu la fiŝojn; jen, unu vivanta ankoraŭ! He, ili ne menciindas eĉ! Mi haŭlis labrakon, jes, dek funtojn, sed ĝi baraktis tien-reen, la kaptilfadeno stre-
-
-ĉiĝis, mi malstreĉis ĝin, sed tamen ĝi ĉion rompis, forfuĝis, al diablo, kvazaŭ oni metis salon sur la voston, — ridas Joso.
+—Kio okazas kun vi ambaŭ? Rigardu la fiŝojn; jen, unu vivanta ankoraŭ! He, ili ne menciindas eĉ! Mi haŭlis labrakon, jes, dek funtojn, sed ĝi baraktis tien-reen, la kaptilfadeno streĉiĝis, mi malstreĉis ĝin, sed tamen ĝi ĉion rompis, forfuĝis, al diablo, kvazaŭ oni metis salon sur la voston, — ridas Joso.
 
 Liaj manoj odoris laŭ la marfiŝoj; sur liaj fingroj gluiĝis kelkaj skvameroj, same sur lia makulita tola ĉapo.
 
@@ -5532,12 +4622,7 @@ la kapon.
 
 ili mortigu min. ĉinokte mi kaŭris apud la ŝoseo, malantaŭ la domo de Saletti. La servistoj trovis min. Ili havis grandajn bastonojn. Por eviti ilin, mi kuris malsupren de la monteto.
 
-Mi ne timis iliajn bastonojn, sed mian rekonon far ili. Mi es-168
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-tis kuranta, kiam antaŭ mi aperis Alfredo. Li diris, ke mi…
+Mi ne timis iliajn bastonojn, sed mian rekonon far ili. Mi estis kuranta, kiam antaŭ mi aperis Alfredo. Li diris, ke mi…
 
 estas bastardo. Li etendis pistolon al mi, sed, por savi min, mi salte alproksimiĝis kaj enŝovis tranĉilon en lian bruston.
 
@@ -5553,9 +4638,7 @@ La triopo eksilentis…
 
 —La servistoj probable.
 
-—Via haŭto eksentos malbonegon, se oni kaptos vin, — Jo-
-
-so skuis la kapon, malfacile englutante salivon.
+—Via haŭto eksentos malbonegon, se oni kaptos vin, — Joso skuis la kapon, malfacile englutante salivon.
 
 —Kaŝu min. Joso, iru antaŭvespere al Luĉica por aŭskulti
 
@@ -5566,37 +4649,26 @@ la onidirojn.
 —Jes, — kapjesis Antonio kaj enpensiĝinte rigardis al la flamoj.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 IX
 
-La urbestro Ermano Murelli okupiĝis iom longe en sia ofi-
-
-cejo, foliumante kaj rigardante diversajn aktojn. Jam es-
+La urbestro Ermano Murelli okupiĝis iom longe en sia oficejo, foliumante kaj rigardante diversajn aktojn. Jam es-
 
 tis malfrue; pasis jam kompleta horo post kiam Alfredo foriris hejmen ĝoja kaj kontenta palpante la poŝon, en kiu troviĝis la mono, la kvincent forintoj. La urbestro legis ankaŭ liajn leterojn same ridetante kaj karesante sian rondan kaj ruĝan vizaĝon. La malgranda ĉambreto estis plena de fumo.
 
 Sur la tablo ankoraŭ ruĝis iom da vino en botelo. Murelli, tenante cigaron per siaj dentoj, iom flanken, supren, klinis sian kapon al la dekstra ŝultro, fermis sian dekstran okulon, por tiel eviti fumon, li spektis la subskribon de Alfredo sur la obligacio. Ankaŭ li trinkis sufiĉe de la saniga vino, ke ruĝis liaj vangoj kaj oreloj, kiuj estis vilaj interne. Ridetante super la subskribo de la nobelo, li trinketis, ŝmacis, lekis siajn lipojn kaj rigardis al la flamo de la sebkandelo, kies meĉo fumegis.
 
-La urbestro ekrigardis la polvumitan horloĝon sur la muro. La dua horo. Iom poste li ekstaras, fermis la tirkestojn, preninte la sebkandelon, ekiris al sia dormoĉambro, sed rimarkin-te sur la muro malgrandan kadron, li haltis antaŭ ĝi, levis la kandelon kaj komencis legi la unuajn vortojn, presitajn sur bela papero en la kadro. Tiu bela kaj glata papero estis dekreto, per kiu la aŭtoritatoj anoncis, ke li estis honorita per ora kruceto pro granda ofero okaze de la konata ŝiporompiĝo. La urbestro ekridetis pri la granda sigelo de la dekreto, kontente 170
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La urbestro ekrigardis la polvumitan horloĝon sur la muro. La dua horo. Iom poste li ekstaras, fermis la tirkestojn, preninte la sebkandelon, ekiris al sia dormoĉambro, sed rimarkin-te sur la muro malgrandan kadron, li haltis antaŭ ĝi, levis la kandelon kaj komencis legi la unuajn vortojn, presitajn sur bela papero en la kadro. Tiu bela kaj glata papero estis dekreto, per kiu la aŭtoritatoj anoncis, ke li estis honorita per ora kruceto pro granda ofero okaze de la konata ŝiporompiĝo. La urbestro ekridetis pri la granda sigelo de la dekreto, kontente
 
 
 kapjesis, ekbalancis, paŝante kelkpaŝe li eniris silente en la dormoĉambron.
 
 (Kvankam Murelli klopodis eniri en la ĉambron kiel eble
 
-plej silente, tamen li vekis la edzinon Anastazijan kaj la filinon Idan en la najbara ĉambro. Anastazija antaŭ iom da tem-po brue ronkis. Murelli singarde eniris, tamen ŝi vekiĝis. ŝi persiste demandadis lin kaj ŝi eksciis, ke li pruntedonis al Alfredo 500 forintojn. Ekestis kverelego inter la geedzoj. Dum ilia plej verva kverelo iu frapetis ĉe la dompordo. Murelli eltiris sin el la lito kaj konstatis, ke antaŭ la pordo staras Luka, la servisto de Saletti. Li venis por sciigi al li, ke Alfredo estas murdita, kaj ke Saletti petas lin veni al li. Post kiam Anastazija aŭdis pri tio, ŝi komencis lamenti pri la 500 forintoj, riproĉante al la edzo, ke li pereigis la tutan domon, — ŝin kaj la filinon, — kaj minacante, ke ŝi mortigos lin, se li ne revenos de la maljuna Saletti kun la pruntitaj kvincent forintoj.) La urbestro senĉese krucsignis sin paŝante kun Luka el Lu-
-
-ĉica.
+plej silente, tamen li vekis la edzinon Anastazijan kaj la filinon Idan en la najbara ĉambro. Anastazija antaŭ iom da tem-po brue ronkis. Murelli singarde eniris, tamen ŝi vekiĝis. ŝi persiste demandadis lin kaj ŝi eksciis, ke li pruntedonis al Alfredo 500 forintojn. Ekestis kverelego inter la geedzoj. Dum ilia plej verva kverelo iu frapetis ĉe la dompordo. Murelli eltiris sin el la lito kaj konstatis, ke antaŭ la pordo staras Luka, la servisto de Saletti. Li venis por sciigi al li, ke Alfredo estas murdita, kaj ke Saletti petas lin veni al li. Post kiam Anastazija aŭdis pri tio, ŝi komencis lamenti pri la 500 forintoj, riproĉante al la edzo, ke li pereigis la tutan domon, — ŝin kaj la filinon, — kaj minacante, ke ŝi mortigos lin, se li ne revenos de la maljuna Saletti kun la pruntitaj kvincent forintoj.) La urbestro senĉese krucsignis sin paŝante kun Luka el Luĉica.
 
 —ĉion, do ĉion oni rabis de li?
 
-—Jes, ĉion, ĉar nenion ni trovis, ni priserĉis ĉiujn liajn po-
-
-ŝojn, sciu, antaŭ la ĉeestanta patro, antaŭ la maljuna sinjoro.
+—Jes, ĉion, ĉar nenion ni trovis, ni priserĉis ĉiujn liajn poŝojn, sciu, antaŭ la ĉeestanta patro, antaŭ la maljuna sinjoro.
 
 —Kie oni murdis lin?
 
@@ -5613,9 +4685,6 @@ Ne, neeble.
 —Iu viro anoncis al la maljuna sinjoro, ke lia filo kuŝas en la sango.
 
 —Kiu viro?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Neniu scias; Ni ĉiuj dormis tiam.
@@ -5657,9 +4726,6 @@ demandis Luka deperpleksiĝinte.
 —Mi estas certa, ja antaŭ la ĉeestanta patro, antaŭ ĉiuj do-manoj ni traserĉis ĉiujn liajn poŝojn. Jes, antaŭ la patro; ĉiuj estis ĉirkaŭ la kadavro, jes, ĉiuj.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Sed, kiel vi opinias, kiu murdis lin? ĉi tie rabistoj ne ekzistas.
 
 —Aŭskultu, sinjoro, en mia kapo ne troviĝas tro da cerbaĵo, tamen mi ne stultas, ŝajnas al mi…
@@ -5694,9 +4760,7 @@ inter si?
 
 La urbestro paliĝis.
 
-—Luka, aŭskultu, ĉu vi traserĉis tie? ĉi tie, kie ili murdis lin, 173
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Luka, aŭskultu, ĉu vi traserĉis tie? ĉi tie, kie ili murdis lin,
 
 
 en la fosaĵo, ie proksime? Sciu, ĉi tie eble troveblus lia monujo…
@@ -5723,9 +4787,6 @@ Sur granda tablo, meze de la ĉambro, kuŝis la korpulenta kadavro de Alfredo, k
 —Sinjoro, ni iru, bonvolu sur la unuan etaĝon; supre atendas vin la maljuna sinjoro, — diris Luka al la perpleksita urbestro.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Ni iru, — flustris Murelli kaj sekvis la serviston.
 
 Kiam ili supreniĝis sur la koridoreton en la unua etaĝo,
@@ -5745,25 +4806,11 @@ unu tago dum kverelo ĉe la poŝtoficejo furioze ekminacis al li. Oni devas, do,
 Iom poste Saletti kaj la urbestro verkis raporton al la tribunalo. Jam antaŭ la sunleviĝo, la magistrata servisto Miro Tompiĉ ensinigis la leteron de la urbestro. Miro krucosignis sin en ĉiu rivereto. Li saltetis, iris haste kaj haltadis sur la ŝoseo, kiu kunligas Luĉican kun Volosko.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
+La orumita kruco sur la preĝeja tegmento, la maljuna hedero sur la duonruinigita murego ĉirkaŭanta Luĉican,
 
+ĉiuj fenestroj de la maristaj domoj de la orienta flanko de la urbeto, jam ĉio rebrilis kaj banis sin en la ruĝa suna lumo. La suno ardis brile kaj majeste malantaŭ la blua Velebit. Ekestis gaja dimanĉo. El la kamentuboj leviĝetis grizaj fumoj, ili rampis sur la nigriĝintajn tegmentojn kaj solviĝis en la pura kaj la travidebla matena aero. La silenta Luĉica estis jam vekiĝinta el la dolĉa dormo. Sur la malaltaj fajrejoj jam bolis akvo en kafpotetoj; la maristaj filinoj lavis antaŭ la domoj siajn freŝajn vizaĝojn kaj la plenformajn kubutojn; la maljunuloj ri-gardantaj tra la fenestroj, preĝis la matenpreĝojn kaj palpis siajn mentonojn por pruviĝi pri la senriproĉa fajna razglatigo, kaj la junaj maristoj plukis plej belajn bukedojn el la fratinaj bazilioj, per kiuj ili ellogos honteman rideton al la ruĝaj lipoj de siaj amatinoj, kiam ili alkroĉos la bukedetojn al la floran-taj brustoj.
 
-X
-
-La orumita kruco sur la preĝeja tegmento, la maljuna he-
-
-dero sur la duonruinigita murego ĉirkaŭanta Luĉican,
-
-ĉiuj fenestroj de la maristaj domoj de la orienta flanko de la urbeto, jam ĉio rebrilis kaj banis sin en la ruĝa suna lumo. La suno ardis brile kaj majeste malantaŭ la blua Velebit. Ekestis gaja dimanĉo. El la kamentuboj leviĝetis grizaj fumoj, ili rampis sur la nigriĝintajn tegmentojn kaj solviĝis en la pura kaj la travidebla matena aero. La silenta Luĉica estis jam veki-
-
-ĝinta el la dolĉa dormo. Sur la malaltaj fajrejoj jam bolis akvo en kafpotetoj; la maristaj filinoj lavis antaŭ la domoj siajn freŝajn vizaĝojn kaj la plenformajn kubutojn; la maljunuloj ri-gardantaj tra la fenestroj, preĝis la matenpreĝojn kaj palpis siajn mentonojn por pruviĝi pri la senriproĉa fajna razglatigo, kaj la junaj maristoj plukis plej belajn bukedojn el la fratinaj bazilioj, per kiuj ili ellogos honteman rideton al la ruĝaj lipoj de siaj amatinoj, kiam ili alkroĉos la bukedetojn al la floran-taj brustoj.
-
-La sonorigisto Fran stumblis laŭ la stretaj, zorge balaitaj urbaj stratetoj, irante de sia domo en la kampanilon por voki la pian popolon al la frumatena sankta diservo. La maljunulo tusetis, plenigis sian pikilforman nazon per pistita tabako, ternis kaj tostis al si mem: Sanon, Fran! Homoj aŭdante lin, diris: Fran iras en la kampanilon. La sonorigisto survoje renkontis kelkajn homojn, kiuj rakontis al li, ke en Luĉica oka-176
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-zis io, pri kio oni ne konjektus eĉ en sonĝo. Kiam Fran eksciis, ke rabistoj murdis la junan sinjoron de sur la monteto, li fermis la okulojn, li entiris la kolon en inter la ŝultrojn kaj rapide plenigis la naztruojn per la tabako. Gapante konsternite al la homoj, li ternis, skuiĝis kaj murmuris: Ho, Dio kompatu lin! Mi ne povas helpi al li!
+La sonorigisto Fran stumblis laŭ la stretaj, zorge balaitaj urbaj stratetoj, irante de sia domo en la kampanilon por voki la pian popolon al la frumatena sankta diservo. La maljunulo tusetis, plenigis sian pikilforman nazon per pistita tabako, ternis kaj tostis al si mem: Sanon, Fran! Homoj aŭdante lin, diris: Fran iras en la kampanilon. La sonorigisto survoje renkontis kelkajn homojn, kiuj rakontis al li, ke en Luĉica okazis io, pri kio oni ne konjektus eĉ en sonĝo. Kiam Fran eksciis, ke rabistoj murdis la junan sinjoron de sur la monteto, li fermis la okulojn, li entiris la kolon en inter la ŝultrojn kaj rapide plenigis la naztruojn per la tabako. Gapante konsternite al la homoj, li ternis, skuiĝis kaj murmuris: Ho, Dio kompatu lin! Mi ne povas helpi al li!
 
 Luliĝante sur siaj kurbiĝintaj kruroj, li alvagis fine al la in-terkrutejo, en la strateton, kie troviĝas la domo de ŝabariĉ. La pordo estis tute malfermita. Fran etendis sian kolon, por rigardi en la kuirejon, kaj salutinte Jelan kaj Marijan, li ekdeziris bonan matenon al ili kaj elbalbutis:
 
@@ -5790,9 +4837,6 @@ Fran ternis.
 —Pri kio do vi parolas al mi? — Jela mirante krucsignis sin.
 
 Marija paliĝis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —He, tiel oni diras, — diris la maljunulo movante siajn ŝultrojn.
@@ -5834,9 +4878,6 @@ aŭdis tumulton aŭ pafadon? — demandis la fratino.
 —Mi ne aŭdis.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Tion faris vojaĝantoj. Ve, tre grava peko certe tio estas!
 
 — flustris Marija.
@@ -5849,30 +4890,22 @@ La virinoj eliris el la ĉambro.
 
 La vizaĝo de Marko estis tre pala. Li kutimis legi kaj lerni longe ĝis malfruaj noktaj horoj. Pri liaj eliroj por promeni post la lernado, liaj familianoj ne miris. Ili opinias, ke li eliras el la domo, por spiri freŝan aeron kaj por ripozi post la pena lernado.
 
-Marko kuŝis surdorse. Lian ĉarman vizaĝon kovris mal-
+Marko kuŝis surdorse. Lian ĉarman vizaĝon kovris malĝojego. ĉiuj trajtoj de lia vizaĝo aspektis trankvilaj kaj kvietaj.
 
-ĝojego. ĉiuj trajtoj de lia vizaĝo aspektis trankvilaj kaj kvietaj.
-
-Liaj okuloj malrapide moviĝis. Li pensis la tutan nokton pri nenio, li ne volis pensi, li ne volis devualigi sin ĉirkaŭvolvitan de la sorto. Nur la figuro de Elvira ŝvebis antaŭ liaj okuloj, sed tamen ie fore en neatingebla alto. Al li ŝajnis, ke li falis en teruran abismon; la spertintaĵo de la lasta nokto malleviĝis sur lin kvazaŭ peza plumba kovrilo el abismo. En sia animo li sentis nemezureblan kaj dezertan malplenon kaj li miris pri sia stoikeco kaj kvieto. Li volus esti malfeliĉa, malĝoja kaj tre-tita de doloro kaj ĉagreno. Li ĉirkaŭrigardis kaj spektis la bil-detojn sur la muroj, ĉio aspektis nova kaj nekonata. En la brusto li eksentis ion, nur momente, sed ĝi ne estis doloro, nek tristo, nek dolĉo, nek ĝojo. La kadavro de Alfredo ŝajnis al li kiel alta kolono prilumita de trista lunlumo. La kolono leviĝis antaŭ lia spirito kaj staris rande de lia ĝisnuna vivo. Kiam en la ĉambron enbrilis la unuaj radioj de la juna suno, en lia cerbo, sen lia volo komenciĝis disvolvadi strangaj pensoj. La tuta pensofluo, kaj la imagado estis malrapida kaj komplika. Elvira 179
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Liaj okuloj malrapide moviĝis. Li pensis la tutan nokton pri nenio, li ne volis pensi, li ne volis devualigi sin ĉirkaŭvolvitan de la sorto. Nur la figuro de Elvira ŝvebis antaŭ liaj okuloj, sed tamen ie fore en neatingebla alto. Al li ŝajnis, ke li falis en teruran abismon; la spertintaĵo de la lasta nokto malleviĝis sur lin kvazaŭ peza plumba kovrilo el abismo. En sia animo li sentis nemezureblan kaj dezertan malplenon kaj li miris pri sia stoikeco kaj kvieto. Li volus esti malfeliĉa, malĝoja kaj tre-tita de doloro kaj ĉagreno. Li ĉirkaŭrigardis kaj spektis la bil-detojn sur la muroj, ĉio aspektis nova kaj nekonata. En la brusto li eksentis ion, nur momente, sed ĝi ne estis doloro, nek tristo, nek dolĉo, nek ĝojo. La kadavro de Alfredo ŝajnis al li kiel alta kolono prilumita de trista lunlumo. La kolono leviĝis antaŭ lia spirito kaj staris rande de lia ĝisnuna vivo. Kiam en la ĉambron enbrilis la unuaj radioj de la juna suno, en lia cerbo, sen lia volo komenciĝis disvolvadi strangaj pensoj. La tuta pensofluo, kaj la imagado estis malrapida kaj komplika. Elvira
 
 
 montriĝis fore, ŝia vizaĝo brilis, ŝi tuta transformiĝis al suno, kaj li vidis la radiojn de la suno proksimiĝantaj, haltantaj duonvoje, kaj ili ne povis atingi lin, ili ne povis traŝovi sin tra la mallumo, kiu ĉirkaŭis lin, por ke ili varmigu lin kaj revivi-gu lian koron. Li konsciis, ke li devas esti malfeliĉa, li konsciis, ke li estas malfeliĉa kaj tial li koleris, pro sia nesentema kaj glacia koro. Li dezirus esti milda, se lin torturus nigra male-spero kaj se lian koron ŝirus malĝojo.
 
 Marko prenis malgrandan libron, kiu kuŝis sur tableto
 
-apud la lito. Li malfermis ĝin, kaj komencis legi la senmortajn strofojn, per kiuj poeto priskribis per grandioza hororo la turmenton kaj suferon de kompatinda popolo. Vortoj, vortoj, vantaj vortoj kaj nenio pli! Marko turnis la foliojn, sed ĉie nekompreneblo, ĉie vanteco, nenio reeąs en lia koro. Li rememoras, ke multfoje larmoj sturmis en la okulojn dum le-
-
-gado de tiuj ĉi strofoj, kaj li ekpensis pri la pasinteco…
+apud la lito. Li malfermis ĝin, kaj komencis legi la senmortajn strofojn, per kiuj poeto priskribis per grandioza hororo la turmenton kaj suferon de kompatinda popolo. Vortoj, vortoj, vantaj vortoj kaj nenio pli! Marko turnis la foliojn, sed ĉie nekompreneblo, ĉie vanteco, nenio reeąs en lia koro. Li rememoras, ke multfoje larmoj sturmis en la okulojn dum legado de tiuj ĉi strofoj, kaj li ekpensis pri la pasinteco…
 
 Trista bildo riveliĝis antaŭ lia animo: ĉie nur nuda karsto kaj povra, subpremata kaj malsata popolo. Marko legis: ”Panon, panon, mastro! Delonge ni ne vidis panon!” Li pene suspiris, kvazaŭ krevis lia koro, lia tuta korpo ektremis, la libreto falis el la manoj sur lian bruston, kaj preminte la pugnon li dolore elbuŝigis:
 
 —Elvira!…
 
-Estis la sepa horo. Antaŭ la preĝejo kolektiĝis arego da popolo. Oni ankoraŭ sonoris por la meso. ĉiuj interparolis pri la sama afero, pri Alfredo. Iuj rakontis, iuj demandadis, ĉiu sciis pri io, sur ĉies vizaĝo vidiĝis necerta timo kaj zorgo. Virinoj haltas laŭvoje, kapbalancis, manklakis; la maljunulinoj suspiris, kaj aŭskultis la pli junajn. Infanoj intermiksiĝis kun la popolo, ili ŝovis sin inter la maristaron, ili embarase gapis 180
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Estis la sepa horo. Antaŭ la preĝejo kolektiĝis arego da popolo. Oni ankoraŭ sonoris por la meso. ĉiuj interparolis pri la sama afero, pri Alfredo. Iuj rakontis, iuj demandadis, ĉiu sciis pri io, sur ĉies vizaĝo vidiĝis necerta timo kaj zorgo. Virinoj haltas laŭvoje, kapbalancis, manklakis; la maljunulinoj suspiris, kaj aŭskultis la pli junajn. Infanoj intermiksiĝis kun la popolo, ili ŝovis sin inter la maristaron, ili embarase gapis
 
 
 al ili kaj atente aŭskultis ĉiun vorton. Du luĉicanoj rakontis, ke Alfredo estis ebrieta; ke lin vidis iri hejmen du noktaj gardistoj dum malfrua nokto. Antaŭ la preĝejo inter la maristoj troviĝis ankaŭ Mato Bartoliĉ. Antaŭ unu tago, sabaton, kiam li revenis per sia boato el Rijeka al Jelenŝĉica, li eksciis, ke la juna sinjoro Saletti atakis en la montaro lian fianĉinon kun intenco perforte malĉastigi ŝin. En la koro de Mato ekbolis sango, tial frumatene dum la freŝo ekiris al Luĉica, por pridemandi, por inspekti la okazaĵon, kaj por konsoli sian Marijan. Oni sciiĝis ankaŭ en Jelenŝĉica, ke Antonio kaj Joso forprenis pafilojn de la juna Saletti, nenio stranga, la du paro-
@@ -5900,9 +4933,6 @@ Inter la popolo ŝteliris ankaŭ du malŝatataj luĉicanoj, por ruze informiĝi,
 —Jes; li estas la fianĉo de Marija ŝabariĉ.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Mi komprenas, komprenas! Vi saĝe faris, sciigante min,
 
 ke li estas ĉi tie. Vi reiru en la urbon kaj ne revenu pli frue ol vi ekscios ion pri la duopo, pri Marko kaj Antonio.
@@ -5925,9 +4955,7 @@ La urbestro trovis la maljunan Saletti kaj sciigis lin pri la ĉeesto de Mato en
 
 —Sendube! Li eksciis en Jelenŝĉica pri la pafiloj, kaj venis ĉinokte por venĝi. Jes, li certe…
 
-—Ankaŭ lin oni devas postsekvi! La tutan triopon ni kate-
-
-nigos. Unu el ili certe estis. ĉu pri io vi eksciis?
+—Ankaŭ lin oni devas postsekvi! La tutan triopon ni katenigos. Unu el ili certe estis. ĉu pri io vi eksciis?
 
 —is nun nenion.
 
@@ -5940,9 +4968,6 @@ nigos. Unu el ili certe estis. ĉu pri io vi eksciis?
 —Kiu kaptu ilin? La magistrata servisto foriris al Volosko, kaj eĉ se li estus ĉi tie, li utilus malmulte. La luĉicanoj ne volus eĉ tuŝi Markon, eĉ se oni al ili minacus per morto; se la imperiestro mem venus por ordoni ligi Markon, ili ne obeus lin.
 
 —Do, nenia eblo?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Nenia, sinjoro! Ni devos esti paciencaj ĝis la alveno de la
@@ -5984,9 +5009,6 @@ Post la diservo, Mato Bartoliĉ iris al ŝabariĉanoj. La malgranda familio ari�
 —Kial? — demandis Mato surprizite.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Ho, tiu neatendita morto! De kiam mi vivas, io simila
 
 ankoraŭ ne okazis en Luĉica.
@@ -6001,9 +5023,7 @@ afliktiĝis, kiam mi eksciis, ke la mortinto atakis Marijan en la montaro.
 
 diris Mato rigardante en ŝiajn nigrajn okulojn.
 
-—Kian utilon de la plorado? — ekridetis malĝoje la knabi-
-
-no al li.
+—Kian utilon de la plorado? — ekridetis malĝoje la knabino al li.
 
 —Aŭskultu al mi, pli utilus priparoli aliajn aferojn. La ulo pereis, la mondo ne pereos pro tio. Estus damaĝo, se pereus bona kaj ĉasta homo, aŭ patro de multnobraj infanoj, sed ne estus racie priplori tian ulon. La luĉicanoj sufiĉe suferis de tiu domo; ni scias kia estas lia patro, kaj certe la filo estus eĉ pli malbona, — diris Marko rigardante tra la fenestro en la maron.
 
@@ -6013,9 +5033,7 @@ no al li.
 
 fine konkludis; se Antonio mortigis Alfredon, li nenial rabis lin, sed nepre tion faris la servistoj de Alfredo, liaj partneroj.
 
-Dum kortuŝa momento, Marko konfide diris al Stipe pri lia amo al Elvira. Stipe demandis Markon, ĉu li scias. kie troviĝas 184
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Dum kortuŝa momento, Marko konfide diris al Stipe pri lia amo al Elvira. Stipe demandis Markon, ĉu li scias. kie troviĝas
 
 
 Antonio, kiu malaperis post la murdo. Post kiam Marko sincere asertis, ke la restadejo de Antonio ne estas konata al li, Stipe konsolis kaj kuraĝigis Markon, por ke li timu neniun, ĉar li ne spertos malagrablaĵojn. Samtempe venis en Luĉican la tribunala komisiono. La komisiono eniris en la ĉambron de la urbestro por esplori pri la murdo. Marko ŝabariĉ, Mato Bartoliĉ, kaj Antonio Marola estas kulpigitaj de Murelli pro la murdo. Li ĉefe menciis la monujon.)
@@ -6030,9 +5048,7 @@ Antonio, kiu malaperis post la murdo. Post kiam Marko sincere asertis, ke la res
 
 —ĉinokte, sinjoro doktoro, ĉinokte.
 
-—ĉu li havas pliajn vundojn surkorpe? — la kuracisto de-
-
-mandis denove.
+—ĉu li havas pliajn vundojn surkorpe? — la kuracisto demandis denove.
 
 —Nur unu, jes, nur unu. Kredu al mi, sinjoroj, kredu al mi, la mortinto estis bonanima homo. Samkiel lia afliktita patro.
 
@@ -6042,13 +5058,9 @@ mandis denove.
 
 kuracisto enpensiĝinte.
 
-—Mia koro krevas pro doloro, konsciante, kiom la luĉi-
+—Mia koro krevas pro doloro, konsciante, kiom la luĉicanoj perdis per tiu ĉi malfeliĉo. Sub la tuta ĉielo ne ekzistis pli granda altruisto ol li.
 
-canoj perdis per tiu ĉi malfeliĉo. Sub la tuta ĉielo ne ekzistis pli granda altruisto ol li.
-
-—Mi petas vin, kara urbestro, kie loĝas la suspektatoj, ĉu 185
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Mi petas vin, kara urbestro, kie loĝas la suspektatoj, ĉu
 
 
 en la urbo aŭ en la ĉirkaŭaĵo? — la juĝisto interrompis lian parolon.
@@ -6075,21 +5087,14 @@ ankaŭ reiros kun ili, — akceptas Mato, kiu alvenis el Jelenŝĉi-ca kun du ka
 
 —Jes, kara Jela, jes. Ili atendos min ĉe Stipe; ili ofertas sian vinon.
 
-—Ne estas ankoraŭ malfrue, — ekridetis Marija melanko-
-
-lie kaj honteme.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ne estas ankoraŭ malfrue, — ekridetis Marija melankolie kaj honteme.
 
 
 —Mi havas lertajn krurojn. Mi rapidas kvazaŭ vento, —
 
 fanfaronis Mato. —Sed jen, Marko, kial vi tiel enpensiĝis? ĉu hodiaŭ vi ellitiĝis sur la maldekstran piedon? ĉar vi aspektas malĝoja, ankaŭ ni ne povas ĝoji. Kial vi senĉese cerbumas? Vi ne riproĉos al mi; mi ne scias, kiaj estas viaj dikaj libroj, mi scias nur pri remilo kaj velo.
 
-—Nenia zorgo, kara Mato! Kredu al mi, nenia zorgo, — re-
-
-spondis Marko evitante la rigardon de la fratino.
+—Nenia zorgo, kara Mato! Kredu al mi, nenia zorgo, — respondis Marko evitante la rigardon de la fratino.
 
 —Ja, kien enŝovis sin Antonio? Jam la tutan tagon li forestas el la hejmo, — miris Jela.
 
@@ -6109,16 +5114,11 @@ Du ĝendarmoj kun bajonetoj sur pafiloj eniris. ĉiuj en la ĉambro ektremis, ĉ
 
 —Bonvolu, sinjoroj?
 
-—ĉu ĉi tiu? — unu ĝendarmo demandis la magistratan ser-
-
-viston.
+—ĉu ĉi tiu? — unu ĝendarmo demandis la magistratan serviston.
 
 —Jes, tiu ĉi, kaj tiu alia, — respondis la servisto montrante per sia tremanta mano al Mato.
 
 La ĝendarmoj ekrigardis grave kaj kapjesis unu al la alia.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Alirinte ĉiu al po unu el la junuloj, el poŝoj ili eligis katenojn en daŭro de palpebrumo kaj trankvile diris:
@@ -6133,9 +5133,7 @@ ekĝemis kaj svenis.
 
 —Kio? — Marko nun paliĝis.
 
-—Mi petas, ni ne volas ŝercon. La manojn ĉi tien! — ordo-
-
-nis la ĝendarmo.
+—Mi petas, ni ne volas ŝercon. La manojn ĉi tien! — ordonis la ĝendarmo.
 
 —Mi volas scii, kial vi volas katenigi miajn brakojn? —
 
@@ -6168,12 +5166,7 @@ Jela kaŝis sian vizaĝon per siaj manoj, apogis sin al la lito kaj malesperante
 Antun ne respondis. La virino, vidinte lin pala kaj svenin-ta, ŝi konsterniĝis kaj ekkriis:
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—Ili mortigis mian edzon! Marija, donu vinagron! Ho, ni-
-
-gra tago!
+—Ili mortigis mian edzon! Marija, donu vinagron! Ho, nigra tago!
 
 La ĝendarmoj ligis la junulojn kaj ekkriis:
 
@@ -6185,9 +5178,7 @@ La ĝendarmoj ligis la junulojn kaj ekkriis:
 
 —Ne ploru! Mi ne scias, kial ili ligis min, — kriis Mato rigardante al la embarasiĝinta vizaĝo de Marija.
 
-La ĝendarmoj puŝis la junulojn el la ĉambro. Marko kom-
-
-pate rigardas ilin kaj hake diris:
+La ĝendarmoj puŝis la junulojn el la ĉambro. Marko kompate rigardas ilin kaj hake diris:
 
 —Mi petas trakti nnvene! Vidu, ni obeas al vi.
 
@@ -6202,9 +5193,6 @@ La maljuna Saletti promenis rapidpaŝe en sia ĉambro. Liaj okuloj estis pli ru�
 La maljunulo promenis, dum Elvira sidis sur divano. Per blanka tuko ŝi premis siajn okulojn. ŝi ĉesis plori, sed ŝiaj sinjorecaj ŝultroj tremis pro mallaŭta singultado.
 
 —Elvira, ne malĝojigu min! Mi petas vin, ĉesu singulti!…
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Ho, mi ne povas plu, — suspiris Saletti kaj mallevis slap-se sur la apogseĝon.
@@ -6227,12 +5215,7 @@ eliris el la ĉambro suspirante: —Mia filino! Mia Elvira!
 
 La knabino, rigardante post li, enpensiĝis dummomente.
 
-Laŭ ŝia vizaĝo io ekfulmis, ŝi ektremis kaj forkuris en sian ĉambron. ĉirkaŭvolvinte sian kapon per granda vualo, ŝi surmetis koltukon kaj eliris el la domo. Irante tra la arbareto, laŭ soleca vojeto, ŝi direktiĝis al Luĉica. La paroęstro Jure Rat-190
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-koviĉ estis ŝia spirita patro. ŝi ege adoris kaj ŝatis lin. Konvinkiĝinta, ke ŝia patro ne korfavoros, ŝi tuj rememoris pri la bona pastro, ĉar ŝi konsciis, ke li povas helpi al ŝi per bona konsilo. Dum ŝia irado tra Luĉica, oni mirante rigardis post ŝi kompate, ĉar ŝi estis favorata de la popolo pro ŝia bona kaj afabla koro. Elvira venis antaŭ la loĝejon de la paroęstro kaj tie ŝi trovis la sonorigiston Fran. La maljunulo ŝovis sian tutan maldekstran brakon en longan boton de la paroęstro,
+Laŭ ŝia vizaĝo io ekfulmis, ŝi ektremis kaj forkuris en sian ĉambron. ĉirkaŭvolvinte sian kapon per granda vualo, ŝi surmetis koltukon kaj eliris el la domo. Irante tra la arbareto, laŭ soleca vojeto, ŝi direktiĝis al Luĉica. La paroęstro Jure Ratkoviĉ estis ŝia spirita patro. ŝi ege adoris kaj ŝatis lin. Konvinkiĝinta, ke ŝia patro ne korfavoros, ŝi tuj rememoris pri la bona pastro, ĉar ŝi konsciis, ke li povas helpi al ŝi per bona konsilo. Dum ŝia irado tra Luĉica, oni mirante rigardis post ŝi kompate, ĉar ŝi estis favorata de la popolo pro ŝia bona kaj afabla koro. Elvira venis antaŭ la loĝejon de la paroęstro kaj tie ŝi trovis la sonorigiston Fran. La maljunulo ŝovis sian tutan maldekstran brakon en longan boton de la paroęstro,
 
 kaj apoginte sntraŭ la malalta muro, li lante trenis bro-son, blovante ofte en la ledon, por ke ĝi estu kiel eble plej brila. Rimarkinte Elviran, li eltiris la brakon el la boto, glatu-mis sian nazon per la mandorso de la brako kaj streĉinte la kolon, li ekgrumblis:
 
@@ -6242,13 +5225,9 @@ kaj apoginte sntraŭ la malalta muro, li lante trenis bro-son, blovante ofte en 
 
 —Al la ŝabariĉanoj, por konsoli ilin. Mi admonis lin ne iri, sed li neniam obeas min. La virinoj ĉiam ploras.
 
-—Kie troviĝas la domo de la ŝabariĉanoj? — demandis El-
+—Kie troviĝas la domo de la ŝabariĉanoj? — demandis Elvira preskaŭ mallaŭte.
 
-vira preskaŭ mallaŭte.
-
-—Kio? Pli laŭte! — atentigis la surdeta sonorigisto, ĉirkaŭ-
-
-ante la orelon permane.
+—Kio? Pli laŭte! — atentigis la surdeta sonorigisto, ĉirkaŭante la orelon permane.
 
 —Kie loĝas la ŝabariĉanoj, — Elvira ripetis pli laŭte.
 
@@ -6256,11 +5235,7 @@ ante la orelon permane.
 
 —Jes, mi loĝas en Luĉica; jes, la filino de Saletti.
 
-—Ankaŭ mi tion diras! Kompreneble, vi estas! Mi bone ko-
-
-nas vin! ĉiun fojon, kiam mi elŝutas la nigrajn krejcerojn el almozkolektujo sur la benkon en la sakristio, mi tuj scias, ke la blankaj estas la viaj, la sesoj. He, he! La almozo plej gran-191
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Ankaŭ mi tion diras! Kompreneble, vi estas! Mi bone konas vin! ĉiun fojon, kiam mi elŝutas la nigrajn krejcerojn el almozkolektujo sur la benkon en la sakristio, mi tuj scias, ke la blankaj estas la viaj, la sesoj. He, he! La almozo plej gran-191
 
 
 da prebendo! Kiel do vi ne scias, kie estas la domo de la ŝabariĉanoj?
@@ -6281,21 +5256,14 @@ Marsejlo mi vidis placon, sur kiu povus danci tri niaj Luĉicaj!
 
 He, kiam tio estis! Momenton, Fran, momenton! Jes, jam
 
-kvindek jaroj pasis de tiam. La ŝabariĉanoj estas bonaj homoj, kvietaj. Jela oron valoras, sed domaĝe, ke Marko ne iĝis pastro. Eĉ via patro ne pli ĝuas ol la sinjoro pastro. Jes, eĉ via patro pli ne ĝuas! Jen mi, mi estas eĉ ne kapelano, kaj kio mankus al mi, se miaj kruroj taŭgus? Krejceron post la krejcero, kaj fine tiel guto post la guto, ekestas forinto! Domaĝo, la eterna domaĝo pri Marko! Do ankaŭ vi… ankaŭ vi konsolos ilin? Vi vidos nur larmojn kaj ploron. Kompatinduloj! Eĉ satano mem tian ideon ne elpensus! La ĝendarmoj do elcer-bumis, ke Marko mortigis vian fraton! Dio pardonu al mi! He, oni preskaŭ furiozfrenezis. Tial, ĉar ilia mano neniam tuŝis la benitan akvon. He, he, mi interparolos kun la maljuna Tomo; li diros al mi pri la kaŭzo de tiu ĉi misharmonio. ĉu vi ne konas Tomon? Bona homo! Sed vi… vi ne kutimas trinki bran-
-
-don, dumvintre po unu glaseto, sciu, antaŭ enlitiĝo. Jes, mi bedaŭras, ke tio okazis en via domo. Dio indulgu la spiriton de via frato, sed por diri la veron, li ne vivis ĝuste laŭ la diaj ordonoj. He, ankaŭ mi estis juna, sed ĝeni kaj tuŝi honestajn fraŭlinojn! Jen, ni atingis, vidu la pordon, tie troviĝas la ŝabariĉanoj.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+kvindek jaroj pasis de tiam. La ŝabariĉanoj estas bonaj homoj, kvietaj. Jela oron valoras, sed domaĝe, ke Marko ne iĝis pastro. Eĉ via patro ne pli ĝuas ol la sinjoro pastro. Jes, eĉ via patro pli ne ĝuas! Jen mi, mi estas eĉ ne kapelano, kaj kio mankus al mi, se miaj kruroj taŭgus? Krejceron post la krejcero, kaj fine tiel guto post la guto, ekestas forinto! Domaĝo, la eterna domaĝo pri Marko! Do ankaŭ vi… ankaŭ vi konsolos ilin? Vi vidos nur larmojn kaj ploron. Kompatinduloj! Eĉ satano mem tian ideon ne elpensus! La ĝendarmoj do elcer-bumis, ke Marko mortigis vian fraton! Dio pardonu al mi! He, oni preskaŭ furiozfrenezis. Tial, ĉar ilia mano neniam tuŝis la benitan akvon. He, he, mi interparolos kun la maljuna Tomo; li diros al mi pri la kaŭzo de tiu ĉi misharmonio. ĉu vi ne konas Tomon? Bona homo! Sed vi… vi ne kutimas trinki brandon, dumvintre po unu glaseto, sciu, antaŭ enlitiĝo. Jes, mi bedaŭras, ke tio okazis en via domo. Dio indulgu la spiriton de via frato, sed por diri la veron, li ne vivis ĝuste laŭ la diaj ordonoj. He, ankaŭ mi estis juna, sed ĝeni kaj tuŝi honestajn fraŭlinojn! Jen, ni atingis, vidu la pordon, tie troviĝas la ŝabariĉanoj.
 
 
 Elvira dankis al la sonorigisto, kaj paŝinte ankoraŭ kelkfoje, ŝi surtretis la sojlon de modesta marista domo. Tie ŝi iom haltis, kaj tiam elspirinte, eniris en la kuirejon. ŝi frapetis la pordon kaj aŭdis kelkajn samtempajn voĉojn: Eniru! sed kvazaŭ ŝtoniĝinta ŝi restis antaŭ la pordo de la ĉambro. Nun Stipe malfermis la pordon de interne. ĉiuj embarasiĝis, vidinte la ĉarman palan knabinon antaŭ la pordo.
 
 —Fraŭlino! — ekkriis la paroęstro ĝoje, kaj veninte al ŝi, li prenis ŝin je la mano kaj akompanis ŝin al unu seĝo. Elvira sidiĝis kaj per siaj manoj kovris la vizaĝon. En la ĉambro ekestis silento. La maljuna ŝabariĉ jam rekonsciiĝis. ĉi tie ĉeestis ankaŭ la paroęstro, Stipe, Jela kaj Marija. La virinoj ploris. La ĉambro pleniĝis de ĝuiga krepusko. Marija rigardis la blankajn manojn de Elvira. La vizaĝo de la paroęstro sereniĝis.
 
-—Fraŭlino Elvira, vi mem bezonas konsolon, sed eviden-
-
-te vi alvenis por konsoli aliajn. Bona fraŭlino, kun agrablo en mia koro mi salutas vin en tiu ĉi trista kaj modesta marista dometo. Feliĉan tempon vi alportis! Estu konsoliga anĝelo por tiuj ĉi homoj, estu matenkrepusko de feliĉo kaj de dia beno! Parolu, kara fraŭlino, malpliigu la doloron al tiu ĉi afliktita familio…
+—Fraŭlino Elvira, vi mem bezonas konsolon, sed evidente vi alvenis por konsoli aliajn. Bona fraŭlino, kun agrablo en mia koro mi salutas vin en tiu ĉi trista kaj modesta marista dometo. Feliĉan tempon vi alportis! Estu konsoliga anĝelo por tiuj ĉi homoj, estu matenkrepusko de feliĉo kaj de dia beno! Parolu, kara fraŭlino, malpliigu la doloron al tiu ĉi afliktita familio…
 
 Elvira mallaŭte singultis…
 
@@ -6310,9 +5278,6 @@ Jela konsterne kaj time rigardis ŝin.
 —Fraŭlino, mi aŭskultas vin kaj mi esperas, ke mi helpos
 
 al vi per mia konsilo, — elbuŝigis la paroęstro konsolige kaj prenis ŝin je ŝiaj varmaj manoj.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Li estas senkulpa, li parolis kun mi, kiam mian fraton…
@@ -6354,20 +5319,13 @@ Stipe viŝis siajn larmojn.
 —Fraŭlino, ne utilus atendi. Marko…, — la paroęstro ĉesis, ĉar la pordo malfermiĝis neatendite.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Antonio! — ekkriis ĉiuj.
 
-—Kie estas Marko? — demandis Antonio sentemperamen-
-
-te.
+—Kie estas Marko? — demandis Antonio sentemperamente.
 
 —ĉe Murelli, katenita! — respondis Stipe.
 
-—Li estas senkulpa. Alfredon mi mortigis. Ek, oni pendu-
-
-mu min.
+—Li estas senkulpa. Alfredon mi mortigis. Ek, oni pendumu min.
 
 —Vi mortigis lin? — ĉiuj konsterniĝis.
 
@@ -6381,9 +5339,7 @@ Liaj okuloj senĉese fulme moviĝis. Ekrigardinte Marijan, lia frunto malsereni�
 
 —Povra Antonio, kion vi faris, — diris la paroęstro.
 
-—Mi defendis min. Mi estas trovito, eksteredzecido, bas-
-
-tardo. Al la pendumilo!
+—Mi defendis min. Mi estas trovito, eksteredzecido, bastardo. Al la pendumilo!
 
 —Antonio! — flustris Marija.
 
@@ -6398,18 +5354,13 @@ ne ploru…, — Antonio elbuŝigis per dampita voĉo.
 Antonio prenis Elviran je ŝiaj manoj kaj tiris ŝin post si. La knabino sur la sojlo turnis sin, ĉirkaŭrigardis laŭ la ĉambro, mansvingis al Marija, al Jela kaj al la malsana Antun, kaj ŝi malaperis. Jela rigardis perpleksite post ŝi. ŝi volis ion diri, sed la vortoj kroĉiĉis kaj ŝtopiĝis en la gorĝo.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 La paroęstro kaj Stipe salutis la ŝabariĉanojn, kaj ankaŭ ili ekiris al la urbestro. Survoje ili atingis Elviran kaj Antonion.
 
 Dum tiaj okazaĵoj en Luĉica, la komisiono finis sian malag-rablan taskon en la domo de Saletti. La kuracistoj zorge inspektis la kadavron de Alfredo. Trarigardinte la lokon de la krimago, kaj post la esploroj, ili ĉion surpaperigis.
 
 Kiam ili revenis en la urbeton, jam krepuskiĝis.
 
-La juĝisto tre surpriziĝis, same la kuracistoj, kiam ili rimarkis Markon ŝabariĉ, kiu atendis ilin en la koridoro antaŭ la magistrata oficejo, sidante inter la ĝendarmoj kaj la malfeli-
-
-ĉa fianĉo de lia fratino.
+La juĝisto tre surpriziĝis, same la kuracistoj, kiam ili rimarkis Markon ŝabariĉ, kiu atendis ilin en la koridoro antaŭ la magistrata oficejo, sidante inter la ĝendarmoj kaj la malfeliĉa fianĉo de lia fratino.
 
 La sinjoraro kaj Marko sen vervo intersalutis kapbalancan-te. La juĝisto eniris en la oficejon kaj tuj ekagis. Maton hazarde oni komencis priesplori pli frue, kaj iom poste li aŭdis la konatajn voĉojn el la koridoro.
 
@@ -6425,14 +5376,9 @@ estro? Kiel vi, Stipe, kiel vi fartas?
 
 —Malfeliĉo, malfeliĉo! — kapbalancis la paroęstro.
 
-—Nek la unua, nek la lasta! — respondis la juĝisto kares-
-
-ante sian longan barbon.
+—Nek la unua, nek la lasta! — respondis la juĝisto karesante sian longan barbon.
 
 (Sekvis esploro de la akuzitoj kaj la suspektitoj. Stipe kaj la paroęstro atestis la evidentan senkulpecon de Marko kaj
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Mato okaze de la murdo, dum Antonio malkaŝe konfesis la
@@ -6443,9 +5389,7 @@ Alfredo, kiu, renkontinte lin sur la ŝoseo, intencis mortpafi lin per pistolo. 
 
 Antonio aliris al Elvira, kaj li surgenuiĝis antaŭ ŝi.)
 
-La krispa kapo de Antonio kolapsis sur la genuojn de El-
-
-vira…
+La krispa kapo de Antonio kolapsis sur la genuojn de Elvira…
 
 Elvira metis siajn blankajn manojn sur lian kapverton. La rozkoloraj ungoj kaj kelkiuj plenformaj fingroj kaŝiĝis en lia nigra abunda kaj krispa hararo.
 
@@ -6453,14 +5397,9 @@ La koroj de ĉiuj ĉeestantoj silente batis, ĉiuj estis kortuŝitaj, kelkaj oku
 
 ĝis la tenaca dika suro, liaj nudaj piedoj kelkloke vundiĝis pro la ŝtonaj padoj kaj pro la herbaĉoj.
 
-La silenton en la ĉambro interrompis grumblego de la no-
-
-belo. La maljuna Saletti, tremanta kaj skuanta kvazaŭ leono vundita en la koron, saltis al Elvira, prenis ŝian manon, levis
+La silenton en la ĉambro interrompis grumblego de la nobelo. La maljuna Saletti, tremanta kaj skuanta kvazaŭ leono vundita en la koron, saltis al Elvira, prenis ŝian manon, levis
 
 ĝin kaj rabie ekkriis: —Tiu ĉi bastardo mensogas, mensogas!
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 — li tiris ŝin post si, malfermis la pordon kaj rapide malaperis.
@@ -6479,9 +5418,7 @@ La sekvontan tagon oni esploris Martinon Koĵuliĉ kaj lian filon Joson kiel ate
 
 —Via mono?… Parolu!
 
-—Antaŭhieraŭ, sabate, mi pruntedonis al Alfredo kvin-
-
-cent…
+—Antaŭhieraŭ, sabate, mi pruntedonis al Alfredo kvincent…
 
 —ĉu vi pruntedonis monon al Alfredo? Mi ne kredas!
 
@@ -6492,9 +5429,6 @@ cent…
 —Lian ob… obligacion, — ekridetis la urbestro rigardante
 
 teren.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Denove Murelli spertis skandalon kaj hontigon. Saletti diris: —Mi tion ne pagos! — Sed la ĉagrenita urbestro montris la obligacion de Alfredo. La nobelo ne redonis eĉ moneron, sed insultis kaj blasfemis pro lia uzura konduto kaj minacis al li per akuzo. Murelli kvazaŭ frenezis, des pli ĉar la juĝisto konversaciinte kun Stipe kaj la paroęstro, interparolis ankaŭ pri la ŝiprompiĝo sub Luĉica, kaj pri la meritordeno de Murelli. Post kiam li eksciis, ke Murelli forestis el Luĉica dum la ŝiprompiĝo, kion li do faru krom miri? La juĝisto diris: —
@@ -6511,30 +5445,19 @@ antaŭ Luĉica. La sinjoroj, membroj de la komisiono manpremis kun la paroęstro
 
 La homoj ne spektis plejparte la kaleŝojn kaj la ĉevalojn, sed la foran monteton, sur kies deklivo kurbiĝis la imperiestra ŝoseo.
 
-—Jen denove! — kriis infanoj. —Jen vidu la brilajn longajn bajonetojn sur la fusiloj! Jes, ili estas, kvinopo; du ĝendarmoj, kaj antaŭ ili la servistoj kaj Antonio. Ili atingos Volosko an-taŭ la vespero; ili rapidis. Jen ili denove kaŝiĝos en la riveret-ravinon. La kompatinda Antonio! Al mi mia patro diris, ke oni ne pendumos lin, ĉar li, mortigante la sinjoron defendis 199
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Jen denove! — kriis infanoj. —Jen vidu la brilajn longajn bajonetojn sur la fusiloj! Jes, ili estas, kvinopo; du ĝendarmoj, kaj antaŭ ili la servistoj kaj Antonio. Ili atingos Volosko an-taŭ la vespero; ili rapidis. Jen ili denove kaŝiĝos en la riveret-ravinon. La kompatinda Antonio! Al mi mia patro diris, ke oni ne pendumos lin, ĉar li, mortigante la sinjoron defendis
 
 
 sin. Mi vidis la sangon sur la ŝoseo; ankoraŭ hieraŭ videblis la postsigno sur la loko, kie li kuŝis. Dumnokte mi timas, ke la sinjoro tirus min el la lito. ĉi nokte mi dormis kun mia patro. Jen, kia longa barbo de tiu sinjoro! Jes, li estas juĝisto! Jen, denove videblas la bajonetoj sur la fusiloj!…
 
-La kaleŝoj moviĝis kaj forveturis laŭ la glata ŝoseo. La ju-
-
-ĝisto fajrigis cigaron, li sidis duonkuŝe en angulo de la kaleŝo kaj komencis mediti pri la antaŭesploro. Post ioma medito, li konkludis, ke Antonio portis la leterojn, ke li mortigis Alfredon kaj verŝajne la asizo deklaros lin senkulpa. Li estis plue konvinkita, ke la luĉicanoj estaj bonaj homoj, ke Marko kaj Mato estas tute senkulpaj, ke Alfredon rabis la servistoj kaj Murelli estas granda fripono, trompanto kaj uzuristo. Rememorante pri la bonega vino de Stipe, li konkludis en si, ke en sia vivo ĝis nun li ne vidis pli belan knabinon ol Elvira kaj milde ridetante li ekdormis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La kaleŝoj moviĝis kaj forveturis laŭ la glata ŝoseo. La juĝisto fajrigis cigaron, li sidis duonkuŝe en angulo de la kaleŝo kaj komencis mediti pri la antaŭesploro. Post ioma medito, li konkludis, ke Antonio portis la leterojn, ke li mortigis Alfredon kaj verŝajne la asizo deklaros lin senkulpa. Li estis plue konvinkita, ke la luĉicanoj estaj bonaj homoj, ke Marko kaj Mato estas tute senkulpaj, ke Alfredon rabis la servistoj kaj Murelli estas granda fripono, trompanto kaj uzuristo. Rememorante pri la bonega vino de Stipe, li konkludis en si, ke en sia vivo ĝis nun li ne vidis pli belan knabinon ol Elvira kaj milde ridetante li ekdormis.
 
 
 XI
 
-Grizaj densaj nuboj, similaj al ondego, kliniĝis super la ro kaj montopintoj, kiuj ĉirkaŭfermas nordoflanke la kal-dronegon de Kvarner. Ankaŭ la fiera Uĉka surĉapeligis sian verton per plumbokolora nubaĉo, ankaŭ la trista Osor, ĉe la fora sudo, kaŝis sian vizaĝon kaj ĉirkaŭvolvis sian kapon per malhela nebulo ignorante, ke la intensa burasko razis ĝiajn nudajn ripojn kaj forpelis la molan teron en la malklaran maron. Sur la pala vintra ĉielo flugis kaj vetkuris grandaj ĉifonitaj pecoj da ombroj kaj kovris de tempo al tempo la feblan sunon, kiu klinis sin al la varma sudo. La nubombroj trenis sin super la marsurfaco, super la oldaj Istriaj regionoj, super la deklivoj kaj la montokrestoj. La suda horizonto estis serena kaj travidebla, sed la oriento, tie super Velebit, ĝi ege survua-lis sin. La neĝo premis nudajn arbarojn, paŝtejojn kaj herbej-ojn. Ju pli proksime al la kliforiĉa bordo, des pli ĝi maldikas, ĉar la maro ĝin mordas, diras la tiea popolo. Nur super la blanka Kraljevica, la neĝo ankaŭ hodiaŭ mole falis. Super la marsurfaco razis burasko, la nordorienta vento, jen pli, jen malpli forte, laŭ la okaza sturmo el sub la nuboj al la ondi-
+Grizaj densaj nuboj, similaj al ondego, kliniĝis super la ro kaj montopintoj, kiuj ĉirkaŭfermas nordoflanke la kal-dronegon de Kvarner. Ankaŭ la fiera Uĉka surĉapeligis sian verton per plumbokolora nubaĉo, ankaŭ la trista Osor, ĉe la fora sudo, kaŝis sian vizaĝon kaj ĉirkaŭvolvis sian kapon per malhela nebulo ignorante, ke la intensa burasko razis ĝiajn nudajn ripojn kaj forpelis la molan teron en la malklaran maron. Sur la pala vintra ĉielo flugis kaj vetkuris grandaj ĉifonitaj pecoj da ombroj kaj kovris de tempo al tempo la feblan sunon, kiu klinis sin al la varma sudo. La nubombroj trenis sin super la marsurfaco, super la oldaj Istriaj regionoj, super la deklivoj kaj la montokrestoj. La suda horizonto estis serena kaj travidebla, sed la oriento, tie super Velebit, ĝi ege survua-lis sin. La neĝo premis nudajn arbarojn, paŝtejojn kaj herbej-ojn. Ju pli proksime al la kliforiĉa bordo, des pli ĝi maldikas, ĉar la maro ĝin mordas, diras la tiea popolo. Nur super la blanka Kraljevica, la neĝo ankaŭ hodiaŭ mole falis. Super la marsurfaco razis burasko, la nordorienta vento, jen pli, jen malpli forte, laŭ la okaza sturmo el sub la nuboj al la ondiĝanta marsurfaco. Ialoke la ondoj ŝaŭmis: ialoke la maro
 
-ĝanta marsurfaco. Ialoke la ondoj ŝaŭmis: ialoke la maro
-
-blankis, kvazaŭ la vento forestus, kaj ie tie super la surfaco flugis frida nigra ventoblovo, kiu subite ŝveligis la buntkolo-rajn velojn de la italaj fiŝistoj, kiuj krozis ene meze de la golfo. Malmilda estis la vintro. La korpo de Alfredo Saletti jam 201
-
-SURPRIZITAJ NUPTOFESTANTOJ
+blankis, kvazaŭ la vento forestus, kaj ie tie super la surfaco flugis frida nigra ventoblovo, kiu subite ŝveligis la buntkolo-rajn velojn de la italaj fiŝistoj, kiuj krozis ene meze de la golfo. Malmilda estis la vintro. La korpo de Alfredo Saletti jam
 
 
 duonon de la jaro putris en la tombejo de Luĉica, sub trista kaj soleca cipreso.
@@ -6551,18 +5474,11 @@ piedoj! — diris la maljuna ŝabariĉ.
 
 —i apenaŭ je unu fingro altas. Laŭ mia opinio, la poŝto
 
-malfruos hodiaŭ. Vian filon atingis malbela vetero; la burasko kvazaŭ neniam ĉesos! He, mi razis min, kvankam hodi-
-
-aŭ ne estas sabato, volonte aspekti pli juna, kaj la vento ŝiras miajn vangojn kvazaŭ per razilo. ĉu vi estas certa, ke Marko venos?
+malfruos hodiaŭ. Vian filon atingis malbela vetero; la burasko kvazaŭ neniam ĉesos! He, mi razis min, kvankam hodiaŭ ne estas sabato, volonte aspekti pli juna, kaj la vento ŝiras miajn vangojn kvazaŭ per razilo. ĉu vi estas certa, ke Marko venos?
 
 —Li venos, Stipe, ĉial li venos. Li leterskribis al sia fratino, ke li plenumos siajn devojn, por veni ĝustatempe. Ni baldaŭ konvinkiĝos; jam estas la naŭa horo, certe la poŝto jam proksimiĝas.
 
-—Ja, ne estus dece, se li ne ĉeestus la edziniĝon de sia fra-202
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-tino. Tiel, kiel vi diris…, — Stipe ĉesis subite kaj ekridetis al Antun.
+—Ja, ne estus dece, se li ne ĉeestus la edziniĝon de sia fratino. Tiel, kiel vi diris…, — Stipe ĉesis subite kaj ekridetis al Antun.
 
 El la suda flanko aŭdiĝis pafado el pistolegoj kaj ĝoja kantado. Tuj poste ektondris pafoj en Luĉica.
 
@@ -6574,9 +5490,7 @@ El la suda flanko aŭdiĝis pafado el pistolegoj kaj ĝoja kantado. Tuj poste ek
 
 —Vere ili frapegas! Kvazaŭ dum milito!
 
-—Ankaŭ tiuj el la urbo! ĉu vi ne aŭdas la tondradon? Sa-
-
-me, kiel tiam, kiam la imperiestro vizitis Rijekan.
+—Ankaŭ tiuj el la urbo! ĉu vi ne aŭdas la tondradon? Same, kiel tiam, kiam la imperiestro vizitis Rijekan.
 
 —He! Tio estas miaj pistujoj, — fanfaronis Stipe. —Antun, elkore mi ĝojas, ke vi bone endomigos vian Marijan. Mi scias, oni ne regalos ŝin per luksaĵo, aŭ per ega sinjorineco, sed same kiel ŝi estas estimata, same ŝi estas diligenta kaj lerta.
 
@@ -6590,21 +5504,13 @@ nuptanoj!
 
 Impona procesio montriĝis el malantaŭ la ŝosekurbiĝo!
 
-oja kaj sanaspekta akompanantaro venis el Jelenŝĉica. Tie troviĝis plurjaraĝuloj, junaj maristoj, infanoj kaj knabinetoj, belegaj junulinetoj, kiuj baldaŭ kandidiĝos por fianĉinoj. Tie troviĝis ankaŭ enpensiĝintaj kaj feliĉaj junaj edzinoj, ĉiuj estis serenaj, ĝojaj kaj sanaj kiel kornuso. Mato marŝis kun digno-203
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-pleno, li salutis la luĉicanojn kaj svingis permane. Antonio paŝis serioze. ĉiuj primiris lin, la infanoj gapis al li. Hodiaŭ li ne estis hirthara kaj ĉifonvestita, ĉar Mato sufiĉe penis per-svadante lin survesti iom pli bonajn robojn el sia ŝranko. Li estis belaspekte kombita, ankaŭ lia barbo estis ordigita. Sur la kapo li havis nigran ĉapelon, iom tro malvastan, sed ĉu oni rimarkos tion? Liaj roboj estis el blua angla tolo. Ordinara marista vestaĵo. Oni dirus: —Vidu lin! — Ankaŭ la knabinoj dirus: —Ja li aspektas eleganta kaj bela, kvazaŭ iu el niaj maristoj!
+oja kaj sanaspekta akompanantaro venis el Jelenŝĉica. Tie troviĝis plurjaraĝuloj, junaj maristoj, infanoj kaj knabinetoj, belegaj junulinetoj, kiuj baldaŭ kandidiĝos por fianĉinoj. Tie troviĝis ankaŭ enpensiĝintaj kaj feliĉaj junaj edzinoj, ĉiuj estis serenaj, ĝojaj kaj sanaj kiel kornuso. Mato marŝis kun dignopleno, li salutis la luĉicanojn kaj svingis permane. Antonio paŝis serioze. ĉiuj primiris lin, la infanoj gapis al li. Hodiaŭ li ne estis hirthara kaj ĉifonvestita, ĉar Mato sufiĉe penis per-svadante lin survesti iom pli bonajn robojn el sia ŝranko. Li estis belaspekte kombita, ankaŭ lia barbo estis ordigita. Sur la kapo li havis nigran ĉapelon, iom tro malvastan, sed ĉu oni rimarkos tion? Liaj roboj estis el blua angla tolo. Ordinara marista vestaĵo. Oni dirus: —Vidu lin! — Ankaŭ la knabinoj dirus: —Ja li aspektas eleganta kaj bela, kvazaŭ iu el niaj maristoj!
 
 Antonio pasigis du tagojn en Jelenŝĉica por helpi al Mato kalkblankigi la ĉambretojn en lia domo. Inter la nuptanoj troviĝis ankaŭ Pero kaj Menego. La nigrokulaj knabinoj kantis plengorĝe, la maristoj levis siajn brakojn, kaj la pistolegoj tondris unu post la alia. La povraj paseroj kaŭrantaj sub la de-fluiloj, tremis pro malvarmo kaj pro timo. Ili volus forflugi desur la domoj, kiuj troviĝas apud la ŝoseo, en Luĉican, sur la preĝejan tegmenton, sed ankaŭ tie la ĉielo e˛is pro la pafe-goj. Ankaŭ tie tremis aliaj paseroj kaj rigardis al iaj bestaĉoj, fakte al la pistiloj de Stipe, el kiuj de momento al momento elflugis alten aro da fajreroj, kiuj tondris kaj vibrigis la aeron kaj kiuj ruliĝis sur la placo antaŭ la preĝejo. Sur la domo de Stipe flirtis granda trikoloro. La maristoj diras, ke la franca flago enhavas la samajn kolorojn, pluraj luĉicanoj admiras Stipen, kiu parolis, ke iuj sinjoroj volis malpermesi al li hisi la flagon sur la domo, kaj ke li ĉiun trian vorton ilian hakis per nur unu sia vorto.
 
 —Saluton, Antun! Saluton, Stipe! Bonan tagon!
 
 —Saluton, feliĉon, ĝojon! — ĝojkriis la luĉicanoj.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Antonio spektis sombre la apudstarantojn kaj ekrigardis al la kampanilo, sur kiu ekluliĝis la sonorilo.
@@ -6627,9 +5533,7 @@ La poŝtoficisto Miko montriĝis sur la fenestro kaj diris sarkasme al Antun:
 
 —Laŭ la cirkostancoj! — respondis la poŝtoficisto rigardan-te la montegon.
 
-—Miko, kie postrestis la hodiaŭa poŝto? — demandis Sti-
-
-pe.
+—Miko, kie postrestis la hodiaŭa poŝto? — demandis Stipe.
 
 —ĉu vi opinias, ke tie sur la ŝoseo blankas sebo?
 
@@ -6643,12 +5547,7 @@ la ministerio por komunikado, skuante siajn ŝultrojn.
 
 —Jes, vi pravas! He! La oreloj taŭgas, sed la okuloj, la okuloj! — Antun plendis.
 
-—Samtia estas mia patro. Ja, eĉ se la virinoj en la kuirejo flustrus plej atente, li povas aŭdi ilin! Kiam liaj okuloj malsanis, kuracistoj donis al li ian verdetan fluaĵon, kaj nun li ka-205
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-pablas vidi tiom, ke li povas frapi la patrinan brakon, se ŝi intencas per vergo bati la katon ĉe la fajrejo. Antun, ni eniru en la domon! ĉe sinjoro Miko estas varme.
+—Samtia estas mia patro. Ja, eĉ se la virinoj en la kuirejo flustrus plej atente, li povas aŭdi ilin! Kiam liaj okuloj malsanis, kuracistoj donis al li ian verdetan fluaĵon, kaj nun li kapablas vidi tiom, ke li povas frapi la patrinan brakon, se ŝi intencas per vergo bati la katon ĉe la fajrejo. Antun, ni eniru en la domon! ĉe sinjoro Miko estas varme.
 
 Kiam ili eniris en la ĉambron de la poŝtoficisto, li ekkoleris kaj kriis:
 
@@ -6683,9 +5582,6 @@ Marko kunprenis la robon, por ke ĝi ne alkroĉiĝu je najlo, kaj elsaltis singa
 Interkisinte kun la patro kaj la negocisto li diris:
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —ĉu vi opiniis, ke mi ne venos?
 
 —Filĉjo, vi prave faris, ke vi venis hodiaŭ, ĉar sen vi, kiu
@@ -6716,55 +5612,34 @@ Ili ekiris. Marko iom ektimis kaj paliĝis post kiam li turnis sin al la monteto
 
 —ĉu ankoraŭ oni estas parolantaj pri nia proceso?
 
-—Ho, kial ne? Grandan damaĝon ĝi kaŭzis al mi, — plen-
-
-dis la negocisto.
+—Ho, kial ne? Grandan damaĝon ĝi kaŭzis al mi, — plendis la negocisto.
 
 —Kio okazas pri Antonio? ĉu ankoraŭ li estas silentema?
 
-—Li strange kondutas, same kiel antaŭe, kiel vera strang-
+—Li strange kondutas, same kiel antaŭe, kiel vera strangulo! — respondis la patro.
 
-ulo! — respondis la patro.
-
-—Li povra, tamen li suferis en malliberejo dum kvar mo-
-
-natoj, — Marko kompatis lin.
+—Li povra, tamen li suferis en malliberejo dum kvar monatoj, — Marko kompatis lin.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-—La krimulo sur la monteto, ankaŭ nun suferigas la popo-
-
-lon. He, se ekzistus justeco ĉi-monde, li ne ĝuus spektante la sunon aŭ la lunon, sed liaj ostoj putrus en karcero. Eble eĉ hodiaŭ vivus la edzino de Koĵuliĉ, se li ne estus afliktinta ŝin.
+—La krimulo sur la monteto, ankaŭ nun suferigas la popolon. He, se ekzistus justeco ĉi-monde, li ne ĝuus spektante la sunon aŭ la lunon, sed liaj ostoj putrus en karcero. Eble eĉ hodiaŭ vivus la edzino de Koĵuliĉ, se li ne estus afliktinta ŝin.
 
 Kion fari? Riĉulo monpufa ĉies inklinon ĝuas, eĉ se li la sunon deprenus de sur la ĉielo, tamen troviĝus uloj dirantaj, ke li estas bonanima homo!
 
 —Stipe, ne koleru. Ni devas esti kontentaj pri la afero finita tiamaniere! Marko skuis siajn ŝultrojn.
 
-—La proceso ja ne povis finiĝi pli kontentige! — mansvin-
+—La proceso ja ne povis finiĝi pli kontentige! — mansvingis la patro.
 
-gis la patro.
-
-—En la momento, kiam lin forpelis la ĝendarmoj el Luĉi-
-
-ca, mi tuj konsciis, ke la asizo deklaros lian senkulpecon kaj la tribunalo forigos la akuzon, — asertis Marko.
+—En la momento, kiam lin forpelis la ĝendarmoj el Luĉica, mi tuj konsciis, ke la asizo deklaros lian senkulpecon kaj la tribunalo forigos la akuzon, — asertis Marko.
 
 —ĉu vi memoras pri la advokato, kiu korekte pledis pri lia afero? Oni diris al mi, ke li estas la plej lerta advokato en la tuta Istrio, — mansvingis Stipe kaj li ekfajfis ĉe la fino de la frazo.
 
-—Sed, kiomaj homoj el vi iris al Triesto? — demandis An-
+—Sed, kiomaj homoj el vi iris al Triesto? — demandis Antun.
 
-tun.
-
-—Ho, eĉ pli ol dekkvin; ja ĉiujn mi povus mencii rememor-
-
-ante, — Stipe frapis sian frunton per la mano.
+—Ho, eĉ pli ol dekkvin; ja ĉiujn mi povus mencii rememorante, — Stipe frapis sian frunton per la mano.
 
 —Jes preskaŭ dekkvin, — konfirmis Marko.
 
-—Por diri sincere, mi kontente rigardis la juĝistojn kaj la tuton de la ĉeestinta sinjoraro, — denove komencis paroli Stipe. He, saĝaj homoj! Sed, ĉu vi scias kiun mi plej rigardis? La nigretan juĝiston, kiu demandadis nin. Bela viro! Oni tuj konvinkiĝas pri lia saĝeco laŭ la aspekto de lia vizaĝo! Ankaŭ la sinjorinojn super ni, ankaŭ ilin mi rigardis. La tutan tagon ili sidis tie, kvazaŭ ili ne havas aliajn zorgojn. He, riĉuloj povas 208
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Por diri sincere, mi kontente rigardis la juĝistojn kaj la tuton de la ĉeestinta sinjoraro, — denove komencis paroli Stipe. He, saĝaj homoj! Sed, ĉu vi scias kiun mi plej rigardis? La nigretan juĝiston, kiu demandadis nin. Bela viro! Oni tuj konvinkiĝas pri lia saĝeco laŭ la aspekto de lia vizaĝo! Ankaŭ la sinjorinojn super ni, ankaŭ ilin mi rigardis. La tutan tagon ili sidis tie, kvazaŭ ili ne havas aliajn zorgojn. He, riĉuloj povas
 
 
 permesi al si senlaborecon! La sinjorinoj senĉese rigardis Antonion kaj la filinon de Saletti, kaj ili enmane havis vitrojn kiel en teatro, kvazaŭ binoklojn. Antun, mia koro vere doloris, kiam mi vidis la filinon de Saletti tiel trista kaj morna.
@@ -6794,16 +5669,11 @@ suspiris Antun. —Ho, kiajn servistojn dungas Saletti! ŝtelistoj kaj friponoj!
 —Ke sekretoj monden elmergiĝas pure, — Stipe finis la
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 proverbon kaj daŭrigis: —Jes, friponoj! Nun ili havas sufiĉan tempon por mediti, kiel savi sian animon. Ho, kiel perfekte ili pariĝis, la friponoj, Lovro, Luka! Sako trovis sakflikaĵon. Sed tri jaroj en karcero ne sufiĉas por tiaj friponoj.
 
 —Luka kaj Lovro estas do kondamnitaj je tri jaroj de severa malliberejo? — demandis Marko enpensiĝinte.
 
-—Se mi estus juĝinta, ili balanciĝus je pendumilo! Fripo-
-
-noj! — koleris Stipe. —ĉu vi ne aŭdis ilian pledon? Sed la atestantoj ĉion refutis! La mono de Murelli kaj la mono, kiun mi ŝanĝis al la koĉero? Pri ĉio la juĝistoj eksciis kaj la sinjoroj…
+—Se mi estus juĝinta, ili balanciĝus je pendumilo! Friponoj! — koleris Stipe. —ĉu vi ne aŭdis ilian pledon? Sed la atestantoj ĉion refutis! La mono de Murelli kaj la mono, kiun mi ŝanĝis al la koĉero? Pri ĉio la juĝistoj eksciis kaj la sinjoroj…
 
 —Asizo, — helpis Marko.
 
@@ -6833,9 +5703,7 @@ respondis Stipe per morna voĉo.
 
 —Fripono!
 
-—Krimulo, ŝtelisto! Jes, fripono, li prirabis nin ĝis la nuda 210
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Krimulo, ŝtelisto! Jes, fripono, li prirabis nin ĝis la nuda
 
 
 haŭto. Oni eksciis ĉion, sed kia utilo: la stalo restu fermita post la forfuĝinta bovino.
@@ -6852,9 +5720,7 @@ povra popolo! i ne scipovas liberiĝi el sub la sinjoraro! El neniu flanko ĝi r
 
 —Mi bedaŭras, ke vi forestis el la hejmo! Murelli dum la
 
-foriro ne esperis tielan pritrakton de la luĉicanoj! Multe de tumulto, rikanado kaj bruo akompanis la fuĝantan sentaŭ-
-
-gulon. Mi opiniis, ke li ne sukcesos forporti sian kapon viva.
+foriro ne esperis tielan pritrakton de la luĉicanoj! Multe de tumulto, rikanado kaj bruo akompanis la fuĝantan sentaŭgulon. Mi opiniis, ke li ne sukcesos forporti sian kapon viva.
 
 Jen, ni atingis la domon. Mi baldaŭ venos al vi, iujn farendaĵojn mi devas fini. ĉu ni ne eniros en la preĝejon? Jam oni sonorigas dum duono de la horo. He, ni flanken metos niajn zorgojn dum la hodiaŭa tago! — ĝoje kriis Stipe.
 
@@ -6863,9 +5729,6 @@ Jen, ni atingis la domon. Mi baldaŭ venos al vi, iujn farendaĵojn mi devas fin
 vojaĝo, ili ja rigidiĝis sur la ĉareto. Stipe, ni vidu nin baldaŭ!
 
 — Marko mansvinge salutis lin.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Ne permesu, ke ni devos atendi vin! — ekkriis Antun
@@ -6884,16 +5747,12 @@ La nuptofestantoj plenigis la domon de ŝabariĉ, eĉ antaŭ
 
 Jela havis sufiĉe da laboro pri la ampleksa fajrejo, sur kiu digne staris grandaj potoj, laŭvice unu apud la alia. La maljunulino ligis grandan viŝtukon je la zono; grandaj ŝvitgutoj elŝoviĝis sur ŝia sulkiĝinta frunto, ŝi profunde spiris kaj koleris pro la virkato kaj pro iuj najbarinoj, kiuj helpis al ŝi kuiri.
 
-En la malgranda kuirejo estis ĉio ordigita, lavita kaj purigita; la tuta dometo aspektis eksterordinare solene. Marija plendis al sia patrino zorgante, ke Marko eble ne venos, ĉar pasis jam la tempo kiam la poŝta kaleŝo kutime venas al Luĉica. La patrino kaj Mato konsolis ŝin, kiam bubo alkuris, haste spiranta anoncis, ke Marko ĵus venis. Marija ekĝojis, ŝia vizaĝo sereniĝis, ŝiaj lipoj ĝoje ekridetis; ja ŝi petoliĝis kaj maltrankviliĝis 212
-
-SURPRIZITAJ NUPTOFESTANTOJ
+En la malgranda kuirejo estis ĉio ordigita, lavita kaj purigita; la tuta dometo aspektis eksterordinare solene. Marija plendis al sia patrino zorgante, ke Marko eble ne venos, ĉar pasis jam la tempo kiam la poŝta kaleŝo kutime venas al Luĉica. La patrino kaj Mato konsolis ŝin, kiam bubo alkuris, haste spiranta anoncis, ke Marko ĵus venis. Marija ekĝojis, ŝia vizaĝo sereniĝis, ŝiaj lipoj ĝoje ekridetis; ja ŝi petoliĝis kaj maltrankviliĝis
 
 
 pli ol iam ajn antaŭe. La koro de Mato degelis pro feliĉo, ĉiuj liaj sentoj speguliĝis en la okuloj, kiuj tenere karesis la vizaĝon de Marija per daŭraj rigardoj. Jela miris pro sia filino kaj per avertaj ridetoj ŝi riproĉis pro ŝia troa ĝojo, kiu ne konvenas, ĉar ŝi nun foriras el la naskiĝdomo, for de sia patrino, kun kiu ŝi vivis nur feliĉe kaj bonorde. La maljunulino okupis sin ĉe la potoj, ŝi suspiris kaj pensis: — Ho, Dio kara, mi edukis ilin, mi penis multe por kreskigi ilin, kaj nun ili lasas min en mia maljuna aĝo. Jam hodiaŭ Marija ennestiĝos aliloke, kaj Marko estas sinjoro, ankaŭ li ne enuos ĉi tie en Luĉi-ca. Mi kaj mia Antun restos solaj kvazaŭ du arbotrunkoj ĉir-kaŭbrulitaj surkampe!
 
-Marija moviĝis endome, ŝi pudore ridetis al la nuptofes-
-
-tantoj, ŝi spektis jen tion, jen ĉi tion, kaj rememorinte pri tiom de la plaĉaj objektoj dum la pasintaj tagoj, la verdanta bazilio tenere karesata per ŝiaj okuloj kortuŝis ŝin grave. Tristo vualis ŝian vizaĝon, dolora rideto montriĝis sur ŝiaj ruĝaj lipoj. Iranta enĉambre ŝi haltis antaŭ fenestro kaj rigardis al la maro. La vitroj malklariĝis pro ŝia elspiro. ŝi perfingre skribis la nomon de sia trezoro…
+Marija moviĝis endome, ŝi pudore ridetis al la nuptofestantoj, ŝi spektis jen tion, jen ĉi tion, kaj rememorinte pri tiom de la plaĉaj objektoj dum la pasintaj tagoj, la verdanta bazilio tenere karesata per ŝiaj okuloj kortuŝis ŝin grave. Tristo vualis ŝian vizaĝon, dolora rideto montriĝis sur ŝiaj ruĝaj lipoj. Iranta enĉambre ŝi haltis antaŭ fenestro kaj rigardis al la maro. La vitroj malklariĝis pro ŝia elspiro. ŝi perfingre skribis la nomon de sia trezoro…
 
 Mato staris post ŝi, sana, ĝoja, bonstata kaj beata, sed ne en spo, kun sanganta kapo, kiel…
 
@@ -6906,9 +5765,6 @@ Starante post ŝi, li rigardis ŝian skribadon kaj ĉirkaŭpremis tenere ŝian s
 pasintan vintron, rememoru, kiam vi sur la lito…
 
 —Karulino mia, ne pensu plu pri tio!
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Mi ne pensos, Mato, — la knabino ekridetis konfide kaj
@@ -6933,9 +5789,7 @@ Antun kaj lia filo Marko stumble eniris la kuirejon. Jela brakumis la filon sing
 
 Antun riproĉis la edzinon.
 
-—Vi pravas, Antun, riproĉu mian baptaninon! Ja, kiel as-
-
-pektus la aferoj, se ni atentus pri la najbaraj babiladoj, — diris ŝerce najbarino.
+—Vi pravas, Antun, riproĉu mian baptaninon! Ja, kiel aspektus la aferoj, se ni atentus pri la najbaraj babiladoj, — diris ŝerce najbarino.
 
 —Marko, ĉu vi ne reiros al Vieno plu? — diris la patrino per peza spiro el sia brusto.
 
@@ -6946,9 +5800,6 @@ pektus la aferoj, se ni atentus pri la najbaraj babiladoj, — diris ŝerce najb
 patrino.
 
 —Panjo, ne kolerigu lin! — petas Marija.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Panjo, ne obeu Marijan! Elŝutu la zorgojn el via koro, por tiel plifaciligi la vivon! — ŝercis la juna kuracisto.
@@ -6994,9 +5845,6 @@ Marko kaj Marija eniris en ĉambreton, en kiu ne troviĝis
 la nuptanoj. Estante tiel solaj, la frato prenis la fratinon je la ŝultroj, ekrigardis serioze al ŝiaj okuloj kaj demandis ŝin mallaŭte:
 
 —Kiam vi ricevis mian leteron?
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Antaŭhieraŭ.
@@ -7052,9 +5900,6 @@ Marko enpensiĝis. Lia frunto malsereniĝis.
 —Neniu alia, mi opinias!
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 —Kiel Antonio kondutas?
 
 —Depost nia alveno el Triesto, li elparolis apenaŭ cent vortojn.
@@ -7065,17 +5910,13 @@ SURPRIZITAJ NUPTOFESTANTOJ
 
 —Kara franjo, baldaŭ vi ekgenuos antaŭ la altaro!
 
-Marko brakumis ŝin, kaj mallevis sian kapon sur ŝian ŝul-
-
-tron…
+Marko brakumis ŝin, kaj mallevis sian kapon sur ŝian ŝultron…
 
 El la kuirejo aŭdiĝis la voĉo de Stipe.
 
 —La baptopatro venis, — flustris Marija.
 
-—Marija, Marko, Mato, nuptanoj, sinjoro parohestro tro-
-
-viĝas jam en la preĝejo! — kriis Stipe.
+—Marija, Marko, Mato, nuptanoj, sinjoro parohestro troviĝas jam en la preĝejo! — kriis Stipe.
 
 La gefratoj eliris el la ĉambreto. Multnombra nuptanaro!
 
@@ -7095,11 +5936,7 @@ Stipe demandis la mariston.
 
 Jela aspergis la geedziĝontojn per benita akvo, ŝi malĝoje ekrigardis la filon Marko, ŝi suspiris kaj forviŝis siajn larmojn.
 
-La nuptanaro eliris el la domo, la homkolono ekiris al la pre-
-
-ĝejo laŭ la malgranda strateto. Antaŭ la preĝejo kolektiĝis homamaso. ĉies okuloj direktiĝis al Marija kaj Mato. La nuptanoj eniris en la templon de Dio. Antonio eniris lasta. En la preĝejo regis silento, nur de tempo al tempo la vento skuis la 217
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La nuptanaro eliris el la domo, la homkolono ekiris al la preĝejo laŭ la malgranda strateto. Antaŭ la preĝejo kolektiĝis homamaso. ĉies okuloj direktiĝis al Marija kaj Mato. La nuptanoj eniris en la templon de Dio. Antonio eniris lasta. En la preĝejo regis silento, nur de tempo al tempo la vento skuis la
 
 
 altajn fenestrojn. La paroęstro benis la sanktan ligon kaj demandis la junajn geedzojn…
@@ -7108,9 +5945,7 @@ Antonio staris rigida malantaŭ la preĝeja pordo. Post kiam li aŭdis la respon
 
 estro, li skuiĝis, li mallevis siajn brakojn apud la korpon, li eksentis mallumon antaŭ siaj okuloj, kaj lia kapo kolapsis brusten… Senfortigita, kun fendita koro, li kaŝe eliris el la preĝejo.
 
-Iom poste la nov-geedzoj montriĝis sur la sojlo de la pre-
-
-ĝejo. Pafiloj tondris, pistolegoj krakis, la malnovaj pistiloj tre-migis la preĝejon. La verda hedero tremis sur la duone ruini-
+Iom poste la nov-geedzoj montriĝis sur la sojlo de la preĝejo. Pafiloj tondris, pistolegoj krakis, la malnovaj pistiloj tre-migis la preĝejon. La verda hedero tremis sur la duone ruini-
 
 ĝinta murego, infanoj kriegis surbrake de siaj patrinoj, kaj paseroj freneziĝis pro timo, aŭdace ili elflugis el sub la tego-loj por disiĝi en la arbustoj diskutonte pri la puno kiu trafis ilin. La nuptofestantoj laŭte bruegis en la stretaj stratetoj, tra la tuta Luĉica oni aŭdis nur ĝojan jubiladon kaj popolkantojn.
 
@@ -7120,11 +5955,7 @@ Plue, plue, tiel, tiel! La maristoj kantis dancante, ili instigis siajn amantino
 
 ĝuas rigardante tiujn fortikajn, ĝojajn kaj fierajn gejunulojn, tiujn ornamitajn nuptofestantojn, tiujn lertajn maristajn fili-nojn, sveltajn, fleksajn, kies ĉiu vejneto vibris, kiuj afable ridetis al siaj kundancantoj turniĝante ĉirkaŭ ili.
 
-Dum la dancado de la nuptofestantoj, Marko en sia ĉam-
-
-breto skribis sur blanka papero. Fininte la skribadon, li faldis 218
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Dum la dancado de la nuptofestantoj, Marko en sia ĉambreto skribis sur blanka papero. Fininte la skribadon, li faldis
 
 
 ĝin, sigelis kaj ekiris serĉi sian fidelan Antonion. Li demandis kaj demandis pri li, sed neniu vidis lin. Fine knabo diris, ke li vidis Antonion malantaŭ la preĝejo, ĉe la malnova muro.
@@ -7163,9 +5994,7 @@ anoncas al ŝi, ke mi venis hodiaŭ en Luĉican kaj mi volas konversacii kun ŝi
 
 —ŝi ne venos.
 
-—Mi mem irus, sed kion oni dirus, se mi forestus el la do-mo hodiaŭ? Mi malĝojigus miajn gepatrojn, ĉar ili divenus, 219
-
-SURPRIZITAJ NUPTOFESTANTOJ
+—Mi mem irus, sed kion oni dirus, se mi forestus el la do-mo hodiaŭ? Mi malĝojigus miajn gepatrojn, ĉar ili divenus,
 
 
 kien mi estus foririnta. Plue, Elvira ne atendas min hodiaŭ, sed morgaŭ ŝi iel aranĝos resti kun mi iom pli longe.
@@ -7202,13 +6031,9 @@ Triesto, mi ne havis tempon demandi vin pri io ajn. Kiel vi pasigis la tempon en
 
 —Mi ne komprenas vin.
 
-—Mi ĉie fartas same, ĉu ĉe nuptofesto, aŭ ĉu en mallibe-
+—Mi ĉie fartas same, ĉu ĉe nuptofesto, aŭ ĉu en malliberejo.
 
-rejo.
-
-—Kial vi, homo, tiel parolas? — Marko demandis lin pre-
-
-ninte liajn manojn amikece.
+—Kial vi, homo, tiel parolas? — Marko demandis lin preninte liajn manojn amikece.
 
 —Mi bastardo…
 
@@ -7217,9 +6042,6 @@ ninte liajn manojn amikece.
 certe venos.
 
 —Malfacile. Li, la maljuna… li gardas.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 —Vi ne ŝatas iri sur la monteton.
@@ -7244,9 +6066,7 @@ grandan komplezon al mi kaj al ŝi.
 
 —Mi iros… jes… mi iros.
 
-—Dankon, Antonio! Mi petas vin, estu ĝoja almenaŭ hodi-
-
-aŭ.
+—Dankon, Antonio! Mi petas vin, estu ĝoja almenaŭ hodiaŭ.
 
 Antonio ektremis. Marko surpriziĝis kaj demandis lin:
 
@@ -7256,21 +6076,14 @@ Antonio ektremis. Marko surpriziĝis kaj demandis lin:
 
 —Povra mia Antonio!
 
-Longa vintra nokto enŝoviĝis en la golfon de Kvarner. Te-
-
-nebraj nuboj vualigis la ĉielon. La vento iom malintensiĝis. El Luĉica aŭdeblis sporada krakado de pistolegoj, ankoraŭ oni aŭdis ululadon de la nupta popolkanto tra la malhela, peza, plumbeca mallumo. En la domo de ŝabariĉ sidis la nuptanoj ĉe ĝojiga vespermanĝo. Ili plenigis tri ĉambretojn, dum en la kuirejo aparte lokiĝis infanoj, kiuj vete kverelis pri la pli belaj pecoj de la flava viandfritaĵo. Antaŭ ili regaliĝis abundego, pro tio ili hodiaŭ ne bezonas skrapi ostojn per tranĉiloj. La nuptanoj sufiĉe dancis antaŭ kaj post la tagmanĝo, eĉ ĝis la malluma nokto. Kiam la negocisto Stipe frapis permane la
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
+Longa vintra nokto enŝoviĝis en la golfon de Kvarner. Tenebraj nuboj vualigis la ĉielon. La vento iom malintensiĝis. El Luĉica aŭdeblis sporada krakado de pistolegoj, ankoraŭ oni aŭdis ululadon de la nupta popolkanto tra la malhela, peza, plumbeca mallumo. En la domo de ŝabariĉ sidis la nuptanoj ĉe ĝojiga vespermanĝo. Ili plenigis tri ĉambretojn, dum en la kuirejo aparte lokiĝis infanoj, kiuj vete kverelis pri la pli belaj pecoj de la flava viandfritaĵo. Antaŭ ili regaliĝis abundego, pro tio ili hodiaŭ ne bezonas skrapi ostojn per tranĉiloj. La nuptanoj sufiĉe dancis antaŭ kaj post la tagmanĝo, eĉ ĝis la malluma nokto. Kiam la negocisto Stipe frapis permane la
 
 
 malsupraĵon de unu el liaj grandaj bareloj, ĝi malĝoje ree˛is en la supra duono de la duonmalplenigita barelo. Sekve de tio, la okuloj de la plejparta ĉeestantaro brilis kaj la oreloj ruĝis. Sur ĉies vizaĝo flagris ĝojo. La nuptanoj kantis kaj re-frenis; rapide viciĝis spritaj tostparoloj. Jen parolas la paro˛-
 
 estro, jen Marko, kaj Stipe, poste ankaŭ Menego, en kies parolon enplektiĝis tiu de la amiko Pero. La ĝojo kaj la ĝojkrioj daŭris kaj daŭris!
 
-—Marija, mi estas scivolema, kiel vi akomodiĝos en Jelen-
-
-ŝĉica, — flustris Mato.
+—Marija, mi estas scivolema, kiel vi akomodiĝos en Jelenŝĉica, — flustris Mato.
 
 Marija milde ridetis kaj rigardis malsupren, dum li daŭrigis:
 
@@ -7280,9 +6093,7 @@ kiom aspiras nin miaj gepatroj!
 
 —Kial ni irus en tia malbela nokto, — riproĉis al li la juna novedzino milde kaj honteme.
 
-—Ja ni estas junaj, karulino! Je la dua horo post la nok-
-
-tomezo vin brakumos mia patrino ĉe la sojlo de nia domo.
+—Ja ni estas junaj, karulino! Je la dua horo post la noktomezo vin brakumos mia patrino ĉe la sojlo de nia domo.
 
 Sen forta vento, malvarmo ne ekzistas. Mi mem intencis ekiri pli frue de ĉi tie. Rigardu, kara mia, rigardu, kiel Stipe elkore
 
@@ -7294,38 +6105,21 @@ Sen forta vento, malvarmo ne ekzistas. Mi mem intencis ekiri pli frue de ĉi tie
 
 —Kie estas Antonio?
 
-—Antaŭ ne longe mi vidis lin en la kuirejo, — Marija el-
+—Antaŭ ne longe mi vidis lin en la kuirejo, — Marija elbuŝigis mallaŭte kaj enpensiĝis…
 
-buŝigis mallaŭte kaj enpensiĝis…
-
-Sur la monteto, antaŭ la domo de Saletti, staris homo meze de senfolia arbaro kaj rigardis al Luĉica, kie sangkolore brilis la fenestroj de nur unu domo. La kampanilo elstaris en la nokta mallumo kvazaŭ giganta fantomo; en kvieta valo rebri-222
-
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-lis granda marĉo, dum iom fore, la kirketo en la tombejo.
+Sur la monteto, antaŭ la domo de Saletti, staris homo meze de senfolia arbaro kaj rigardis al Luĉica, kie sangkolore brilis la fenestroj de nur unu domo. La kampanilo elstaris en la nokta mallumo kvazaŭ giganta fantomo; en kvieta valo rebrilis granda marĉo, dum iom fore, la kirketo en la tombejo.
 
 Densaj kaj pezaj nuboj malleviĝis super la teron, la malluma horizonto premiĝis de ĉiuj flankoj kaj katenis la tristecan vintran noktopejsaĝon kaj la koron de Antonio. Raraj neĝflokoj kirliĝis en la frosta mallumo. La burasko blovis per varia in-tenseco, dum la nudaj branĉoj de la arbustoj, kiuj mistere elstaris, frapis unu la alian, gratis sin reciproke kaj tremis kvazaŭ olda mortintoskeleto. La vastan, rigidan kaj frostan silenton interrompis raŭka bojado kaj trista ululado de malsataj hundoj, pafilkrakado kaj sekretaj voĉoj, kiuj alflugis el la urbeto. Ie malproksime muĝis ankaŭ la vento; aere io ektremis, ekflirtis, ekĉirpis kaj ekfajfis.
 
-Jam delonge batis la naŭa horo de sur la kampanilo. Anto-
+Jam delonge batis la naŭa horo de sur la kampanilo. Antonio streĉis siajn grandajn okulojn en la sangajn fenestrojn en Luĉica. Lian nemezureblan malĝojon, kiu sterniĝis laŭ lia vi-zaĝo, ĉirkaŭvolvis la malluma nokto. Li rigardis al la fenestroj kun malfacila kaj intensa spirado. Dikaj ŝvitgutoj trapenetris el lia frosta frunto. Venena serpento ĉirkaŭvolvis lian vunditan koron kaj ĝi ĉirkaŭpremis ĝin per siaj malvarmaj kaj fe-raj ringoj, sed ne povante rompi kaj dispecigi ĝin. Antonio
 
-nio streĉis siajn grandajn okulojn en la sangajn fenestrojn en Luĉica. Lian nemezureblan malĝojon, kiu sterniĝis laŭ lia vi-zaĝo, ĉirkaŭvolvis la malluma nokto. Li rigardis al la fenestroj kun malfacila kaj intensa spirado. Dikaj ŝvitgutoj trapenetris el lia frosta frunto. Venena serpento ĉirkaŭvolvis lian vunditan koron kaj ĝi ĉirkaŭpremis ĝin per siaj malvarmaj kaj fe-raj ringoj, sed ne povante rompi kaj dispecigi ĝin. Antonio
+ĝuus en la ĉirkaŭanta nokto, se lia koro ne estus krevinta, se el tiu ĉi povra koro ne estus elverŝiĝinta kaj disiĝinta la naŭza mallumo, kiu plenigis kaj nigrigis ĉiujn spacojn…
 
-ĝuus en la ĉirkaŭanta nokto, se lia koro ne estus krevinta, se el tiu ĉi povra koro ne estus elverŝiĝinta kaj disiĝinta la naŭ-
-
-za mallumo, kiu plenigis kaj nigrigis ĉiujn spacojn…
-
-Ankoraŭfoje krakis pafilo en Luĉica, ankoraŭ oni povis aŭ-
-
-di diversajn voĉojn el la marista domo.
+Ankoraŭfoje krakis pafilo en Luĉica, ankoraŭ oni povis aŭdi diversajn voĉojn el la marista domo.
 
 La nuptanoj de ŝabariĉ ĝoje vespermanĝis…
 
-La nuboj pendis super la arbaroj, la horizonto kunpremi-
-
-ĝis, en la nebulo malaperis la kampanilo kaj la kirketo sur la tombejo. La neĝo falis kirle; la flokoj plioftiĝis, kelkaj jam 223
-
-SURPRIZITAJ NUPTOFESTANTOJ
+La nuboj pendis super la arbaroj, la horizonto kunpremiĝis, en la nebulo malaperis la kampanilo kaj la kirketo sur la tombejo. La neĝo falis kirle; la flokoj plioftiĝis, kelkaj jam
 
 
 blankiĝis sur la nigra barbo de Antonio kaj sur liaj larĝaj ŝultroj. La fenestroj ankoraŭ sangis…
@@ -7344,9 +6138,7 @@ Antonio, konvinkinta, ke tiu estaĵo estas virino, ekiris post ŝi. Post kiam El
 
 —Jen letero, — Antonio diris, kiam li paŝis antaŭ ŝin, kaj transdoninte la leteron, li intencis tuj foriri.
 
-—Atendu, mi petas! —ĉu Marko venis? — flustris la kna-
-
-bino.
+—Atendu, mi petas! —ĉu Marko venis? — flustris la knabino.
 
 —Jes hodiaŭ.
 
@@ -7354,9 +6146,7 @@ bino.
 
 —Legu la leteron…
 
-(Elvira pridemandis Antonion pri la nuptofesto en la domo 224
-
-SURPRIZITAJ NUPTOFESTANTOJ
+(Elvira pridemandis Antonion pri la nuptofesto en la domo
 
 
 de Marko ŝabariĉ, ankaŭ pri la humuro de Marko. Antonio
@@ -7377,14 +6167,9 @@ Antonio komprenis tiujn aferojn dum la juĝa priesploro, ke li kaŝe postsekvas 
 
 maljuna Saletti, kaj preninta Elviron per sia maldekstra ma-no, li tiris ŝin al si, dum li etendis la dekstran al Antonio. Pistolego ekfulmis kaj ekkrakis. Antonio ektreminte, eligis sian tranĉilon el la zono, li saltis sur Saletti kaj per sia tuta forto enŝovis ĝin en lian bruston. La maljunulo balanciĝis kaj renversiĝis en neĝon. Elvira ekĝemis, svenis kaj falis sur la korpon de la patro. La okuloj de Antonio ekbrilis. Li levis la knabinon surbraken, haste eliris el la ĝardeno, rapidis malsupren de la monteto kaj malaperis en la mallumo…
 
-La nuptofestantoj de Marija finis la vespermanĝon. Mar-
-
-ko tostis per elkoraj vortoj, sed kriado en la kuirejo interrompis lian parolon. ĉiuj miris pro la krioj. Antonio pala haste eniris en la ĉambron, portante Elviran surbrake.
+La nuptofestantoj de Marija finis la vespermanĝon. Marko tostis per elkoraj vortoj, sed kriado en la kuirejo interrompis lian parolon. ĉiuj miris pro la krioj. Antonio pala haste eniris en la ĉambron, portante Elviran surbrake.
 
 La nuptanoj konsterniĝis kaj ŝtoniĝis.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 Antonio kuŝigis Elviran sur la liton, li ekrigardis al Marija, Mato kaj al Marko, kaj li raŭke kaj seniluziiĝinte elbuŝigis:
@@ -7406,44 +6191,27 @@ Marko forskuis la neĝon de sur Elvira, li ektimis kaj li malesperiĝinta ekkrii
 elspiris Elvira, kaj ŝi fermis siajn nigrajn okulojn.
 
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
 XII
 
 Du tagojn post la edziniĝo de Marija en Luĉican venis la
 
-komisiono por inspekti la kadavron de la maljuna Salet-
-
-ti. La kuracistoj sekcis la vundon, tra kiu elĉerpiĝis la sango el la koro de la nobelo, kaj vidinte la mortinton antaŭ si, la komisiono registris en la protokolo, ke tiu sola vundo kaŭzis la morton. La ĝendarmoj serĉis Antonion ĉie, sed vane.
+komisiono por inspekti la kadavron de la maljuna Saletti. La kuracistoj sekcis la vundon, tra kiu elĉerpiĝis la sango el la koro de la nobelo, kaj vidinte la mortinton antaŭ si, la komisiono registris en la protokolo, ke tiu sola vundo kaŭzis la morton. La ĝendarmoj serĉis Antonion ĉie, sed vane.
 
 Malmultaj homoj akompanis Salettin al la tombejo. Neĝo
 
 ŝute faladis dum la enterigo. Sub la soleca cipreso faŭke malfermiĝis profunda fosaĵo, kaj apud ĝi, sur la grasa argila tero, staris nigra portilo. La neĝo blankis sur la paroęstro, sur la homoj, sur la kapo kaj la ŝultroj de la juna knabino, kiu kliniĝis super la ĉerkon kaj apogis sian vizaĝon sur la ĉerkokov-rilon. Apud la knabino staris Marko ŝabariĉ kaj rigardis la kirlantajn neĝflokojn super la malfermita tombo, kie ili trankviliĝintaj descendis laŭ ĝia vakaĵo al la mola fundo, kie ili tuj malaperis, kiam ili falis sur la malsekan teron…
 
-Dum la paroęstro preĝis super la mortinto, iuj buboj va-
-
-gis laŭ la tombejo por nombri la krucojn, kiuj elstaris el la neĝo. Rimarkinte ion strangan sub unu neĝa araĵo, inter du tombmontetoj, ili ektimis kaj kuris al homoj por diri, ke homo kuŝas tie sub la neĝo. La homoj ekmiris, ili ekiris kun la buboj al la loko, ili forigis la neĝon kaj konsterniĝis.
+Dum la paroęstro preĝis super la mortinto, iuj buboj vagis laŭ la tombejo por nombri la krucojn, kiuj elstaris el la neĝo. Rimarkinte ion strangan sub unu neĝa araĵo, inter du tombmontetoj, ili ektimis kaj kuris al homoj por diri, ke homo kuŝas tie sub la neĝo. La homoj ekmiris, ili ekiris kun la buboj al la loko, ili forigis la neĝon kaj konsterniĝis.
 
 Antonio!
 
-ĉe unu lia flanko la neĝo estis sangemakulita. Kiam la pa-227
+ĉe unu lia flanko la neĝo estis sangemakulita. Kiam la paroęstro eksciis, ke Antonion oni trovis mortinta, li plenpul-me elspiris, li ekrigardis la malserenan ĉielon kaj petis la homojn meti la trovitan korpon en ĉerkon, kiu estis en la tom-beja dometo. Nun la homoj komencis ĵeti teron per ŝoveliloj sur la tombon de la nobelo. La knabino mallevis sian kapon sur la ŝultron de Marko, ŝi tremis pro plorado kaj aflikto.
 
-SURPRIZITAJ NUPTOFESTANTOJ
-
-
-roęstro eksciis, ke Antonion oni trovis mortinta, li plenpul-me elspiris, li ekrigardis la malserenan ĉielon kaj petis la homojn meti la trovitan korpon en ĉerkon, kiu estis en la tom-beja dometo. Nun la homoj komencis ĵeti teron per ŝoveliloj sur la tombon de la nobelo. La knabino mallevis sian kapon sur la ŝultron de Marko, ŝi tremis pro plorado kaj aflikto.
-
-Dum oni fosis alian kavon proksime de Saletti, ĉe la kon-
-
-traŭa flanko de la cipreso, la paroęstro preĝis kun la aliaj en la malgranda kirketo por la spirito de Antonio. Iu kamparano tombofosanto konjektis, ke probable Antonio intencis iri al Martĵuliĉ laŭ la vojeto apud la tombejo, sed li kolapsis kaj konscia, ke li ne povos iri pluen, li trenis sin ĝis la tombo-monteto, kie li finis siajn malĝojajn tagojn… La sama tombofosanto asertas, ke sub la tombmonteton estis enterigita la trovito, kiu dronis okaze de la ŝiprompiĝo sub Luĉica.
+Dum oni fosis alian kavon proksime de Saletti, ĉe la kontraŭa flanko de la cipreso, la paroęstro preĝis kun la aliaj en la malgranda kirketo por la spirito de Antonio. Iu kamparano tombofosanto konjektis, ke probable Antonio intencis iri al Martĵuliĉ laŭ la vojeto apud la tombejo, sed li kolapsis kaj konscia, ke li ne povos iri pluen, li trenis sin ĝis la tombo-monteto, kie li finis siajn malĝojajn tagojn… La sama tombofosanto asertas, ke sub la tombmonteton estis enterigita la trovito, kiu dronis okaze de la ŝiprompiĝo sub Luĉica.
 
 Marko viŝis la vizaĝon de Antonio, li sekigis kaj ordigis lian nigran hararon kaj inspektis la vundon sub la ŝultro, super la koro. Forviŝinte la koagulitan sangon de sur lia larĝa brusto, li rigardis mute kaj dolore al la palaj vangoj, al la kunpremi-taj bluetaj lipoj kaj al la rigidiĝintaj kaj vaste malfermitaj okuloj. Ardaj kaj abundaj larmoj glitis gute laŭ la vizaĝo de Marko, post kiam li mallevis la pezan kaj malvarman dekstran manon de sia fidela Antonio.
 
 Kiam post ioma tempo la ŝnuregoj gratis la tristajn bretojn, kaj sur ilin tondre falis la unuaj terbuloj. En la soleca cipreso eksusuris la vento, ĝi ekbalancis la branĉojn kaj deskuis iom da neĝo sur la ĉerkon de Antonio. En la tombon mallevis po unu bulon da tero ankaŭ la paroęstro, Marko kaj Elvira, fratino de la mortinto.
-
-
-SURPRIZITAJ NUPTOFESTANTOJ
 
 
 www.omnibus.se/

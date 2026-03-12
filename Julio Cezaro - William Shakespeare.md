@@ -10,20 +10,12 @@ JULIO CEZARO
 
 William Shakespeare
 
-JULIO CEZARO
 
 D. H. Lambert
 
 
-@omnibus.se
-
-
-JULIO CEZARO
-
-
 PERSONOJ
 
-JULIO CEZARO
 
 OKTAVIO CEZARO
 
@@ -80,16 +72,13 @@ JUNA KATONO
 VOLUMNIO
 
 
-JULIO CEZARO
-
-
 VARRONO
 
 servistoj de Bruto
 
 KLITO
 
-KLAŭDIO
+KLAŬDIO
 
 STRATONO
 
@@ -114,9 +103,6 @@ Antaŭdiristo
 Senatanoj, urbanoj, gardistoj, sekvantoj, k.c.
 
 La agado havas lokon en Romo dum la tri unuaj aktoj; poste en la ĉirkaŭaĵoj de Sardiso kaj Filippo.
-
-
-JULIO CEZARO
 
 
 UNUA AKTO
@@ -168,9 +154,6 @@ Marullo
 ĉesigu, petolulo, vian ŝercon,
 
 Klarigu, tuj.
-
-
-JULIO CEZARO
 
 
 Dua urbano
@@ -230,9 +213,6 @@ Kaj semis viajn florojn sur la vojon
 De l’elverŝinto de Pompeja sango?
 
 For, for!
-
-
-JULIO CEZARO
 
 
 Rekuru hejmen, kaj genufleksante
@@ -298,14 +278,11 @@ Kaj ĉiam teni nin en terurego.
 Ili foriras.
 
 
-JULIO CEZARO
-
-
 SCENO 2 — PUBLIKA PLACO
 
 Trumpetado. CEZARO eniras; ANTONIO por la kurado; KALFURNINO, PORTINO, DECIO, CICERONO,
 
-BRUTO, KASSIO, kaj KASKO; granda popolamaso sekvas, inter ili ANTAŭDIRISTO.
+BRUTO, KASSIO, kaj KASKO; granda popolamaso sekvas, inter ili ANTAŬDIRISTO.
 
 Cezaro
 
@@ -366,9 +343,6 @@ Kiu vokas?
 Kassio
 
 Mutiĝu ĉiu bruo, vi silentu!
-
-
-JULIO CEZARO
 
 
 Cezaro
@@ -448,9 +422,6 @@ Mi serĉas vane tiun ĝentilecon
 Kaj amon, kiujn vi al mi antaŭe
 
 
-JULIO CEZARO
-
-
 Montradis; kaj amiko via kara
 
 Nun trovas nur malvarman singardemon.
@@ -518,9 +489,6 @@ Bruto
 En kiajn vi danĝerojn mndukus,
 
 
-JULIO CEZARO
-
-
 Volante, ke mi serĉu, por eltrovi
 
 En mi mem ion, kion mi ne havas?
@@ -586,9 +554,6 @@ Sen ŝanceliĝo ambaŭ mi rigardus,
 ĉar ju pli mi honoran nomon amas,
 
 
-JULIO CEZARO
-
-
 Des malpli mi el ĉio timas morton.
 
 Kassio
@@ -648,9 +613,6 @@ Mi savis la Cezaron lacigitan.
 Kaj li fariĝas dio, kaj Kassio
 
 Mizeregulo, kiu devas sin
-
-
-JULIO CEZARO
 
 
 Kurbigi, se Cezar’ lin nur rigardas.
@@ -716,9 +678,6 @@ El la du nomoj, Bruto kaj Cezaro:
 Komparu ilin, via estas bela,
 
 
-JULIO CEZARO
-
-
 Egale el la buŝ’ belsone iras,
 
 Pesite ĝi kun lia egalpezas,
@@ -778,9 +737,6 @@ Vi ne insistu plu. Mi konsideros
 Parolojn viajn; tion, kion plue
 
 Vi diros, mi tre pacience aŭdos
-
-
-JULIO CEZARO
 
 
 Je la konvena tempo: sed ĝis tiam,
@@ -852,9 +808,6 @@ Kassio havas la malgrasajn vangojn
 De avarulo; tiajn mi malfidas.
 
 
-JULIO CEZARO
-
-
 Antonio
 
 Ne timu lin, ĉar li fidinda estas,
@@ -918,9 +871,6 @@ Bruto
 Se vere, mi de Kasko ne demandus.
 
 
-JULIO CEZARO
-
-
 Kasko
 
 Nu, oni proponis al li kronon: kiun propo-nitan li forpuŝis per la postaĵo de sia mano.
@@ -967,9 +917,7 @@ Kasko
 
 Oni povus pendigi min pli facile, ol mi povus priskribi ĝin: ĝi estis nura sensencaĵo; Mi ne ĝin atentis. Mi vidis Markon Antonion al li proponantan kronon: — ne veran kronon tamen, sed specon de kroneto, —
 
-kaj, kiel mi diris al vi, li la unuan fojon ĝin forpuŝis: sed malgraŭ tio, laŭ mia opinio, li tre deziris ĝin akcepti. Tiam li proponis denove ĝin al Cezaro: tiam li denove ĝin forpuŝis, sed, laŭ mia opinio, li tre kontraŭvole detenis sin akcepti ĝin. Kaj tiam li ĝin proponis la trian fojon: li forpuŝis ĝin la trian 17
-
-JULIO CEZARO
+kaj, kiel mi diris al vi, li la unuan fojon ĝin forpuŝis: sed malgraŭ tio, laŭ mia opinio, li tre deziris ĝin akcepti. Tiam li proponis denove ĝin al Cezaro: tiam li denove ĝin forpuŝis, sed, laŭ mia opinio, li tre kontraŭvole detenis sin akcepti ĝin. Kaj tiam li ĝin proponis la trian fojon: li forpuŝis ĝin la trian
 
 
 fojon: kaj ankoraŭ, kiam li ĝin rifuzis, la popolamaso ĝoje ekkriis kaj aplaŭdis per malpuraj manoj, kaj ĵetis en aeron siajn ŝvitajn ĉapojn, kaj eldonis tiom da malodora spiraĵo, tial ke Cezaro rifuzis la kronon, ke li preskaŭ sufokiĝis; ĉar li svenis kaj falis; kaj miaparte mi ne kuraĝis ridi, timigite, ke mi malfermante la buŝon enhaladziĝu.
@@ -1002,12 +950,7 @@ Kion li diris rekonsciiĝinte?
 
 Kasko
 
-Vere, rimarkinte, antaŭ ol li falis, ke la popolamaso ĝojas pri lia rifuzo de la krono, disŝirante la subveston li petis, ke ili tranĉu al li la gorĝon. Se mi estus metiisto, mi pro-fitus la okazon, alie, sendu min en la inferon kun la friponaro. Tiam li falis. Rekonsciiĝin-18
-
-JULIO CEZARO
-
-
-te, li diris, ke se li estas farinta aŭ dirinta ion ajn malprave, li deziras ke iliaj moŝtoj pensu, ke lia malsano estas la kaŭzo. Tri aŭ kvar knabinoj apud mi ekkriis: ”Ho ve! bona ho-mo,” kaj bonkore pardonis lin: sed ne zorgu pri ili: se Cezaro mortigus iliajn patri-nojn, ili agus tiel same.
+Vere, rimarkinte, antaŭ ol li falis, ke la popolamaso ĝojas pri lia rifuzo de la krono, disŝirante la subveston li petis, ke ili tranĉu al li la gorĝon. Se mi estus metiisto, mi pro-fitus la okazon, alie, sendu min en la inferon kun la friponaro. Tiam li falis. Rekonsciiĝinte, li diris, ke se li estas farinta aŭ dirinta ion ajn malprave, li deziras ke iliaj moŝtoj pensu, ke lia malsano estas la kaŭzo. Tri aŭ kvar knabinoj apud mi ekkriis: ”Ho ve! bona ho-mo,” kaj bonkore pardonis lin: sed ne zorgu pri ili: se Cezaro mortigus iliajn patri-nojn, ili agus tiel same.
 
 Bruto
 
@@ -1031,9 +974,7 @@ Je kiu celo?
 
 Kasko
 
-Ne, se mi al vi diros tion, mi neniam kura-
-
-ĝos rerenkonti vin: sed tiuj, kiuj komprenis la sencon, ekridetis reciproke, kaj balancis la kapojn; sed miaparte — pri la greka — ĝi estis nekomprenebla. Mi povas al vi diri eĉ pli da novaĵoj; oni mallaŭdis Marullon kaj Flavion, tial ke ili senvestigis la idolojn de Cezaro. Adiaŭ. Estis ankoraŭ pli da sensencaĵo, sed mi ne rememoras ĝin.
+Ne, se mi al vi diros tion, mi neniam kuraĝos rerenkonti vin: sed tiuj, kiuj komprenis la sencon, ekridetis reciproke, kaj balancis la kapojn; sed miaparte — pri la greka — ĝi estis nekomprenebla. Mi povas al vi diri eĉ pli da novaĵoj; oni mallaŭdis Marullon kaj Flavion, tial ke ili senvestigis la idolojn de Cezaro. Adiaŭ. Estis ankoraŭ pli da sensencaĵo, sed mi ne rememoras ĝin.
 
 Kassio
 
@@ -1046,9 +987,6 @@ Ne, mi jam promesis.
 Kassio
 
 ĉu vi volas tagmanĝi morgaŭ ĉe mi?
-
-
-JULIO CEZARO
 
 
 Kasko
@@ -1116,9 +1054,6 @@ Nedelogeblan kie oni trovos?
 Cezaro ne min amas; amas Bruton.
 
 
-JULIO CEZARO
-
-
 Sed se mi estus Bruto, li Kassio,
 
 Li ne efektivigus sur mi mem
@@ -1166,9 +1101,6 @@ Sed mi neniam, kiel nun, trapasis
 Tra fulmotondro vere flamnaskanta.
 
 Aŭ en ĉielo oni ekmilitas
-
-
-JULIO CEZARO
 
 
 Aŭ la senmortaj dioj kolerante
@@ -1232,9 +1164,6 @@ Kasko
 Jes, li Antonion petis
 
 Sciigi vin pri lia ĉeestado.
-
-
-JULIO CEZARO
 
 
 Cicerono
@@ -1310,9 +1239,6 @@ De la spirito, kiun devus montri
 Romano, al vi tute mankas, aŭ
 
 
-JULIO CEZARO
-
-
 Vi ĝin ne uzas. Ja, vi rigardadas,
 
 Paliĝas, kaj surmetas miran veston,
@@ -1376,9 +1302,6 @@ Jes oni diras, ke la senatanoj
 Cezaron kiel reĝon volas nomi:
 
 
-JULIO CEZARO
-
-
 Kaj li la kronon, kie ajn li estos —
 
 Sed ne en Italujo — ĉiam portos.
@@ -1438,9 +1361,6 @@ Cezaro lumigilon! Kordoloro,
 Min kien vi kondukis? Eble mi
 
 Parolas kun sklavecamanto; tiam
-
-
-JULIO CEZARO
 
 
 Mi tuj respondos. Sed ne sen armiloj
@@ -1512,9 +1432,6 @@ Mi ĝojas. Dum ĉi tiu nokt’ timinda
 Kunfratoj kelkaj ĵus strangaĵojn vidis.
 
 
-JULIO CEZARO
-
-
 Kassio
 
 ĉu oni min atendas?
@@ -1580,9 +1497,6 @@ De ĉiuj estas li tre estimata:
 Posedi veran virton kaj indecon.
 
 
-JULIO CEZARO
-
-
 Kassio
 
 Tre ĝuste vi valoron lian taksas,
@@ -1594,9 +1508,6 @@ Tre ĝuste vi valoron lian taksas,
 Vekinte lin, ni nepre lin enskribos.
 
 Ili foriras.
-
-
-JULIO CEZARO
 
 
 DUA AKTO
@@ -1654,9 +1565,6 @@ Jen staras la problemo. Hela tago
 Eltiras la kolubron; piedire
 
 
-JULIO CEZARO
-
-
 De ĝi ni devas gardi nin. Lin kroni?
 
 Per tio ni lin armus per pikilo,
@@ -1712,9 +1620,6 @@ Eltrovis tiun ĉi skribaĵon, kiu
 Donante leteron
 
 Ne kuŝis tie, kiam mi kuŝiĝis.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -1782,9 +1687,6 @@ Bruto
 Tre bone. Oni frapas ĉe la pordo.
 
 
-JULIO CEZARO
-
-
 LUCIO foriras.
 
 De l’tempo, kiam min Kassio pikis
@@ -1848,9 +1750,6 @@ Se vi malkovri la minacan brovon
 Eĉ en la nokto hontas, vi ne tage
 
 Kavernon trovos, kie via monstra
-
-
-JULIO CEZARO
 
 
 Vizaĝ’ sin maskos. Tial, konspireco,
@@ -1922,9 +1821,6 @@ Kassio
 Permesu unu vorton.
 
 
-JULIO CEZARO
-
-
 BRUTO kaj KASSIO kune parolas mallaŭte.
 
 Decio
@@ -1994,9 +1890,6 @@ Instigon kian, krom afero nia,
 Por nin pravigi, kian kunligilon
 
 
-JULIO CEZARO
-
-
 Aliajn ni bezonas, ol Romanojn
 
 Unuanimajn, ne hipokritontajn?
@@ -2058,9 +1951,6 @@ Konsilo lia ŝajnos nin influi,
 Junecon nian kaj nezorgemecon
 
 La singardemo lia anstataŭos.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -2132,9 +2022,6 @@ Kaj, kiel lertaj mastroj, niaj koroj
 Incitu la servistojn al venĝaĵo,
 
 
-JULIO CEZARO
-
-
 Kaj poste ŝajnon de mallaŭdo portu;
 
 Pro tio oni kredos nin justemaj,
@@ -2200,9 +2087,6 @@ Pri fantazioj kaj ceremonioj;
 Kaj eble tiuj ŝajnaj antaŭsignoj,
 
 La nekutimaj noktaj teruraĵoj,
-
-
-JULIO CEZARO
 
 
 Kaj la konsil’ de sonĝoklarigistoj
@@ -2274,9 +2158,6 @@ Bruto
 Sinjoroj, elrigardu ĉiuj vigle;
 
 
-JULIO CEZARO
-
-
 Ne la mienoj nian celon montru,
 
 Sed agu, kiel la aktoroj niaj,
@@ -2336,9 +2217,6 @@ Vi sur la teron per piedo frapis;
 Al mia redemand’ vi ne respondis,
 
 Sed balancante kun koler’ la manon,
-
-
-JULIO CEZARO
 
 
 Ekmontris, ke mi vin forlasu; tion
@@ -2402,9 +2280,6 @@ Pri kiu mi, per mia leĝa rajto,
 Sciiĝus dece; kaj genufleksante,
 
 ŝi genufleksas.
-
-
-JULIO CEZARO
 
 
 Per la belec’, al vi antaŭe kara,
@@ -2472,9 +2347,6 @@ Konfese mi virino estas; tamen
 Virin’, kun kiu via moŝt’ edziĝis:
 
 
-JULIO CEZARO
-
-
 Konfese mi virino estas; tamen
 
 Bonfama, la filino de Katono,
@@ -2532,9 +2404,6 @@ Bruto
 Ha, Ligario, kiun Cimbro nomis.
 
 Do, flanken, knab’. ĉu Kajo Ligario?
-
-
-JULIO CEZARO
 
 
 Ligario
@@ -2608,9 +2477,6 @@ Sekvu do.
 Ili foriras.
 
 
-JULIO CEZARO
-
-
 SCENO 2 — SALONO EN
 
 LA PALACO DE CEZARO
@@ -2676,9 +2542,6 @@ Sur strato leonino naskis idojn;
 El tomboj malfermitaj sin mortintoj
 
 
-JULIO CEZARO
-
-
 Ellevis; kaj fieraj militistoj
 
 Kruele sur la nuboj ekbatalis,
@@ -2742,9 +2605,6 @@ Ke vi hodiaŭ ne eliru, ĉar,
 De besto eltirante l’internaĵon,
 
 
-JULIO CEZARO
-
-
 Ne povis ili tie koron trovi.
 
 Cezaro
@@ -2806,9 +2666,6 @@ Saluti miaparte la senaton
 Dirante, ke ĉeesti mi ne volas:
 
 ”Ne povas,” ”ne kuraĝas,” estus ambaŭ
-
-
-JULIO CEZARO
 
 
 Malveraj; diru do, Decio, ke
@@ -2878,9 +2735,6 @@ Romanoj multaj banis sin, elmontras,
 Ke per vi granda Rom’ ensorbos sangon
 
 
-JULIO CEZARO
-
-
 Revivigantan, kaj insiste petos
 
 Emblemojn sangkolorajn, kiel signojn
@@ -2942,9 +2796,6 @@ METELLO, KASKO, TREBONIO, kaj
 CINNO.
 
 Ho, jen Publio venas mnduki.
-
-
-JULIO CEZARO
 
 
 Publio
@@ -3010,9 +2861,6 @@ Eniru ĉiuj, ke mi vin regalu;
 Kaj ni, amikoj, volas iri kune.
 
 
-JULIO CEZARO
-
-
 Bruto
 
 (flanken) Ho, kiom mi sopiras pro la penso, Internon ne prijuĝi laŭ ekstero.
@@ -3042,9 +2890,6 @@ Cezaro legu tion ĉi kaj vivu:
 Se ne, la sorto helpos perfidulojn.
 
 Foriras.
-
-
-JULIO CEZARO
 
 
 SCENO 4 — ALIA PARTO DE LA SAMA
@@ -3110,9 +2955,6 @@ Mi nenion
 Ekaŭdas, sinjorino.
 
 
-JULIO CEZARO
-
-
 Portino
 
 Sed aŭskultu;
@@ -3125,7 +2967,7 @@ Lucio
 
 Sed mi nenion aŭdis.
 
-Eniras la ANTAŭDIRISTO.
+Eniras la ANTAŬDIRISTO.
 
 Portino
 
@@ -3188,9 +3030,6 @@ Mi tuj elektu lokon pli liberan,
 Por vidi, kaj paroli, kun Cezaro.
 
 
-JULIO CEZARO
-
-
 Li foriras.
 
 Portino
@@ -3214,9 +3053,6 @@ Kaj al mi poste portu la respondon.
 Ili disiras.
 
 
-JULIO CEZARO
-
-
 TRIA AKTO
 
 SCENO 1 — ROMO
@@ -3225,11 +3061,11 @@ ANTAŭ LA KAPITOLIO
 
 LA SENATO SIDAS SUPRE
 
-Popolamaso; inter ili ARTEMlDORO kaj la ANTAŭDIRISTO. Trumpetado. Eniras CEZARO, BRUTO, KASSIO, KASKO, DECIO, METELLO, TREBONIO, CINNO, ANTONIO, LEPlDO, POPILIO, PUBLIO, kaj aliaj.
+Popolamaso; inter ili ARTEMlDORO kaj la ANTAŬDIRISTO. Trumpetado. Eniras CEZARO, BRUTO, KASSIO, KASKO, DECIO, METELLO, TREBONIO, CINNO, ANTONIO, LEPlDO, POPILIO, PUBLIO, kaj aliaj.
 
 Cezaro
 
-al la ANTAŭDIRISTO
+al la ANTAŬDIRISTO
 
 L’Idusoj martaj estas jam venintaj.
 
@@ -3268,9 +3104,6 @@ Cezaro
 Publio
 
 Flanken, flanken!
-
-
-JULIO CEZARO
 
 
 Cezaro
@@ -3340,9 +3173,6 @@ Forkondukante.
 Foriras ANTONIO kaj TREBONIO.
 
 
-JULIO CEZARO
-
-
 Decio
 
 Kie Metello estas? Li baldaŭe
@@ -3410,9 +3240,6 @@ Mi vin repuŝos kiel hundon. Sciu,
 Cezaro nek maljuste agas, nek
 
 
-JULIO CEZARO
-
-
 Li sen rezonoj bonaj kontentiĝos.
 
 Metello
@@ -3476,9 +3303,6 @@ Mi montru eĉ en jena maniero:
 Konstanta ke Publio ekziliĝu,
 
 Konstanta pri l’ekzilo mi restadas.
-
-
-JULIO CEZARO
 
 
 Cinno
@@ -3554,9 +3378,6 @@ Vin forte kunstarigu, kaj atentu,
 ĉu ia partiano de Cezaro —
 
 
-JULIO CEZARO
-
-
 Bruto
 
 Ne priparolu tion. Trankviliĝu,
@@ -3628,9 +3449,6 @@ De lia tim’ pri morto, ĉesiginte.
 Vin klinu, ho Romanoj, kaj ni banu
 
 
-JULIO CEZARO
-
-
 La manojn en la sango de Cezaro
 
 is la kubutoj, kaj la glavojn ŝmiru:
@@ -3700,9 +3518,6 @@ Potenca, kuraĝulo, kaj amema;
 Mi amas Bruton, kaj mi lin honoras;
 
 
-JULIO CEZARO
-
-
 Cezaron mi honoris, timis, amis.
 
 Se Bruto lasos do, ke Antonio
@@ -3768,9 +3583,6 @@ Cezar’ potenca. ĉu vi kuŝas tie?
 Plimalvastiĝis tiel? Ha! adiaŭ.
 
 
-JULIO CEZARO
-
-
 Mi tute ne, sinjoroj, scias kion
 
 Intencas vi, nek kiu malsanulo
@@ -3830,9 +3642,6 @@ Kaj niaj brakoj, sen malica forto,
 Kaj niaj koroj, plenaj je bonvolo,
 
 Kun frata ĝentileco vin enhavas.
-
-
-JULIO CEZARO
 
 
 Kassio
@@ -3898,9 +3707,6 @@ Ol kontraŭulojn viajn pace trakti.
 Juli’! pardonu! Jen vi turnis vin,
 
 Por frapi kvazaŭ cervo inter hundoj,
-
-
-JULIO CEZARO
 
 
 Jen falis; jen ĉasistoj viaj staras,
@@ -3970,9 +3776,6 @@ Nenion pIu mi petas, krom permeso
 Sur la vendej’ kuŝigi lian korpon;
 
 
-JULIO CEZARO
-
-
 Kaj el tribun’, laŭ rajto de amiko,
 
 ĉe la funebro fari paroladon.
@@ -4038,9 +3841,6 @@ Post mia parolado vi parolu
 El la tribuno, kien nun mi iras.
 
 
-JULIO CEZARO
-
-
 Antonio
 
 Tiele estu; pli mi ne deziras.
@@ -4104,9 +3904,6 @@ Servisto eniras.
 Vi servas Oktavion. ĉu ne vere?
 
 
-JULIO CEZARO
-
-
 Servisto
 
 En vero, Antonio.
@@ -4168,9 +3965,6 @@ Helpu al mi, mi petas.
 Ili foriras portantaj la korpon de CEZARO.
 
 
-JULIO CEZARO
-
-
 SCENO 2 — LA FORUMO
 
 Eniras BRUTO kaj KASSIO, kaj amaso da URBANOJ.
@@ -4215,9 +4009,7 @@ Bruto
 
 Atentu ĝis la fino.
 
-Romanoj, patrujanoj, kaj amantoj! Aŭdu min pro miaj celoj, kaj silentu, por ke vi aŭdu; kredu al mi pro mia honoro, kaj res-pektu mian honoron, por ke vi kredu; juĝu pri mi laŭ mia saĝo, kaj ekscitu la sentojn, por ke vi pli bone juĝu. Se estas iu en tiu ĉi kolektiĝo, iu kara amiko de Cezaro, al li mi diras, ke la amo de Bruto al Cezaro egalis al lia. Se do tiu amiko demandos, kial Bruto al 68
-
-JULIO CEZARO
+Romanoj, patrujanoj, kaj amantoj! Aŭdu min pro miaj celoj, kaj silentu, por ke vi aŭdu; kredu al mi pro mia honoro, kaj res-pektu mian honoron, por ke vi kredu; juĝu pri mi laŭ mia saĝo, kaj ekscitu la sentojn, por ke vi pli bone juĝu. Se estas iu en tiu ĉi kolektiĝo, iu kara amiko de Cezaro, al li mi diras, ke la amo de Bruto al Cezaro egalis al lia. Se do tiu amiko demandos, kial Bruto al
 
 
 Cezaro kontraŭstaris, jen mia respondo: —
@@ -4238,9 +4030,7 @@ Eniras ANTONIO kaj aliaj, portantaj la
 
 korpon de CEZARO.
 
-Jen venas lia korpo, funebrata de Marko Antonio; kiu, kvankam li ne partoprenis en lia mortigo, ricevos profiton el lia morto, 69
-
-JULIO CEZARO
+Jen venas lia korpo, funebrata de Marko Antonio; kiu, kvankam li ne partoprenis en lia mortigo, ricevos profiton el lia morto,
 
 
 oficon sub la respubliko, tiel same kiel an-kaŭ vi ĉiuj. Mi nun foriras, sciante ke, mortiginte mian plej bonan amikon pro la bono de Romo, mi retenas mian propran ponardon por mi mem, kiam miaj sampatrujanoj deziros mian morton.
@@ -4302,9 +4092,6 @@ Neniu iru for, ĝis Antonio
 Fininta estos sian paroladon.
 
 Li foriras.
-
-
-JULIO CEZARO
 
 
 Unua urbano
@@ -4382,9 +4169,6 @@ Kaj terurege li senmakuliĝis;
 Nun, kun permeso de la Brutanaro,
 
 
-JULIO CEZARO
-
-
 ĉar Bruto estas honorinda homo
 
 Kaj ili ĉiuj estas honorindaj,
@@ -4444,9 +4228,6 @@ Kaj mi, ke ĝi revenu, devas paŭzi.
 Unua urbano
 
 Li ŝajnas laŭ prudento argumenti.
-
-
-JULIO CEZARO
 
 
 Dua urbano
@@ -4520,9 +4301,6 @@ i estas de Cezar’ la testamento.
 Se nur la popolanoj ĝin tralegus —
 
 
-JULIO CEZARO
-
-
 Pardonu, — mi ĝin legi ne intencas —
 
 Konkurse ili kisus liajn vundojn,
@@ -4590,9 +4368,6 @@ La testamenton, ho; la testamenton!
 Dua urbano
 
 Ili estas friponoj, mortigintoj; legu la testamenton.
-
-
-JULIO CEZARO
 
 
 Antonio
@@ -4664,9 +4439,6 @@ La enviema Kasko tie faris! —
 Kaj kiam li forŝiris la kruelan
 
 
-JULIO CEZARO
-
-
 Armilon, jen elŝprucis tuj la sango
 
 Cezara, kvazaŭ ĝi ne volas resti
@@ -4730,9 +4502,6 @@ Ho perfiduloj, friponoj!
 Unua urbano
 
 Ho plej sanga vidaĵo!
-
-
-JULIO CEZARO
 
 
 Dua urbano
@@ -4802,9 +4571,6 @@ Por ke ĉi tiuj buŝoj senparolaj
 Je mia flanko ankaŭ forte plendu.
 
 Sed se mi estus Bruto, Bruto mi,
-
-
-JULIO CEZARO
 
 
 Jen ia Antonio, kiu povus
@@ -4884,9 +4650,6 @@ Privatajn laŭbojn, ĉiujn pomarbejojn
 Apudtiberajn; li al vi kaj viaj
 
 
-JULIO CEZARO
-
-
 Donacis je eterne, plezurigajn,
 
 Sanigajn lokojn, por vin refreŝigi.
@@ -4958,9 +4721,6 @@ Kaj Bruto kvazaŭ frenezuloj rajdis
 Tra la pordegoj Romaj.
 
 
-JULIO CEZARO
-
-
 Antonio
 
 Kompreneble
@@ -5023,9 +4783,7 @@ Jes, kaj vere; estos plej bone al vi.
 
 Cinno
 
-Kiun nomon mi havas? Kien mi iras? Kie mi 80
-
-JULIO CEZARO
+Kiun nomon mi havas? Kien mi iras? Kie mi
 
 
 loĝas? ĉu mi estas edzo aŭ fraŭlo? Tiam, por respondi al ĉiu rekte kaj mallonge, saĝe kaj vere: saĝe, mi diras, ke mi estas fraŭlo.
@@ -5090,17 +4848,12 @@ Elŝiru nur lian nomon el lia koro, kaj ellasu lin.
 
 Tria urbano
 
-ŝiru lin, ŝiru lin! Venu, brulaĵoj! fajriloj; al la 81
-
-JULIO CEZARO
+ŝiru lin, ŝiru lin! Venu, brulaĵoj! fajriloj; al la
 
 
 dom’ de Bruto, de Kassio, bruligu ĉion; unuj al la dom’ de Decio, aliaj al tiu de Kasko; aliaj al tiu de Ligario: iru, for!
 
 ĉiuj foriras.
-
-
-JULIO CEZARO
 
 
 KVARA AKTO
@@ -5160,9 +4913,6 @@ Lepido
 Oktavio
 
 ĉi tie, aŭ ĉe la Kapitolio.
-
-
-JULIO CEZARO
 
 
 LEPIDO foriras.
@@ -5232,9 +4982,6 @@ Furaĝon, kaj instruas kelkajn artojn:
 Batali, vigle turni sin, kuradi
 
 
-JULIO CEZARO
-
-
 Antaŭen, halti, ĉar animo mia
 
 Movadas lian korpon; kaj Lepido
@@ -5280,9 +5027,6 @@ Kaj kelkaj jam sub ridetanta masko
 Sennombrajn malicaĵojn konspiradas.
 
 Ambaŭ foriras.
-
-
-JULIO CEZARO
 
 
 SCENO 2 — TENDARO APUD SARDISO
@@ -5348,9 +5092,6 @@ Sed ne kun pruvoj de la intimeco,
 Nek per l’amika interparolado
 
 De antaŭ kelkaj jaroj.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -5420,9 +5161,6 @@ Dua soldato
 Haltu!
 
 
-JULIO CEZARO
-
-
 Tria soldato
 
 Haltu!
@@ -5482,9 +5220,6 @@ Kunsidon nian ni finintaj estos.
 Lucio staru garde.
 
 Ili foriras.
-
-
-JULIO CEZARO
 
 
 SCENO 3 — INTERNE DE
@@ -5552,9 +5287,6 @@ Memoru Marton, jes, l’Idusojn martajn;
 ĉu ne Julio pro justec’ pereis?
 
 Kaj ĉu ne ĉiuj ni frapantoj frapis
-
-
-JULIO CEZARO
 
 
 Pro mem justeco? Kiu do el ni,
@@ -5630,9 +5362,6 @@ Kaj pli; rompiĝu la fiera koro;
 La sklavojn viajn kaj neliberulojn
 
 
-JULIO CEZARO
-
-
 Per via koleremo eltremigu.
 
 Sed, ĉu mi devas paŭzi, kaj aŭskulti?
@@ -5706,9 +5435,6 @@ Pri mia amo
 Ne tro kalkulu, Bruto; eble faros
 
 
-JULIO CEZARO
-
-
 Mi tion, kion poste mi bedaŭros.
 
 Bruto
@@ -5772,9 +5498,6 @@ Disŝiris mian koron; vera frato
 Kunporti devus fratajn malfortaĵojn,
 
 Sed Bruto miajn multe trograndigas.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -5842,9 +5565,6 @@ Mi ne insulton ĉerpos el humoro;
 Kassio, kun ŝafido vi kuniĝas,
 
 Ekkolerema, kiel la siliko
-
-
-JULIO CEZARO
 
 
 Ekbruliĝema, kiu incitite
@@ -5920,9 +5640,6 @@ Poeto
 Nenio krom la morto min retenos.
 
 
-JULIO CEZARO
-
-
 Eniras POETO sekvata de LUCILIO,
 
 TITINIO, kaj LUCIO.
@@ -5992,9 +5709,6 @@ Bruto
 Lucio, ho, pokalon
 
 Da vino.
-
-
-JULIO CEZARO
 
 
 LUCIO foriras.
@@ -6072,9 +5786,6 @@ Kassio
 Ho senmortaj dioj!
 
 
-JULIO CEZARO
-
-
 Reeniras LUCIO kun vino kaj torĉeto.
 
 Bruto
@@ -6138,9 +5849,6 @@ Messalo
 Mi ricevis
 
 Leterojn laŭ la sama mem signifo.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -6220,9 +5928,6 @@ La veron aŭdu do kiel Romano.
 ŝi certe mortis per rimedoj strangaj.
 
 
-JULIO CEZARO
-
-
 Bruto
 
 Adiaŭ, ho Portino. Ni, Messalo,
@@ -6294,9 +5999,6 @@ Landlimo, sian nombron pliigados,
 Antaŭeniros kun kuraĝo freŝa;
 
 
-JULIO CEZARO
-
-
 Sed ni je tiu helpo lin senigos,
 
 Se ni renkontos lin apud Filippo,
@@ -6358,9 +6060,6 @@ Kassio
 Ne, bonan nokton:
 
 Ni morgaŭ frumatene ekforiros.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -6432,10 +6131,7 @@ Lucio
 Varrono, kaj Klaŭdio!
 
 
-JULIO CEZARO
-
-
-Eniras VARRONO kaj KLAŭDIO.
+Eniras VARRONO kaj KLAŬDIO.
 
 Varrono
 
@@ -6467,7 +6163,7 @@ Lucio, jen la dezirita libro;
 
 Mi metis ĝin en poŝon de la robo.
 
-VARRONO kaj KLAŭDIO kuŝiĝas.
+VARRONO kaj KLAŬDIO kuŝiĝas.
 
 Lucio
 
@@ -6506,9 +6202,6 @@ Junuloj multe da ripoz’ bezonas.
 Lucio
 
 Sed jam mi dormis, via moŝto.
-
-
-JULIO CEZARO
 
 
 Bruto
@@ -6572,9 +6265,6 @@ Ke vi min vidos en Filippo.
 Bruto
 
 Bone;
-
-
-JULIO CEZARO
 
 
 Mi vin revidos.
@@ -6652,9 +6342,6 @@ Varrono, Klaŭdio
 ĉu vere, via moŝto?
 
 
-JULIO CEZARO
-
-
 Bruto
 
 ĉu vi ion
@@ -6688,12 +6375,9 @@ Certe, via moŝto.
 ĉiuj foriras.
 
 
-JULIO CEZARO
-
-
 KVINA AKTO
 
-SCENO 1 — LA EBENAĵOJ DE FILIPPO
+SCENO 1 — LA EBENAĴOJ DE FILIPPO
 
 Venas OKTAVIO, ANTONIO, kaj ilia militistaro.
 
@@ -6740,9 +6424,6 @@ Sendito
 Vigle, generaloj,
 
 Nun vin preparu, ĉar la malamiko
-
-
-JULIO CEZARO
 
 
 Antaŭeniras kun parad’ milita,
@@ -6820,9 +6501,6 @@ Malbonaj frapoj, Bruto, bonajn vortojn
 Vi donas: vidu la ŝiraĵon, kiun
 
 
-JULIO CEZARO
-
-
 Vi faris en la koro de Cezaro,
 
 Samtempe kiam laŭte vi ekkriis
@@ -6890,9 +6568,6 @@ EItiras ŝviton el muskoloj niaj,
 ŝviterojn en sangerojn baldaŭ ŝanĝos
 
 
-JULIO CEZARO
-
-
 Mem la pruvado; vidu:
 
 Mi tiras glavon kontraŭ konspirantoj
@@ -6956,9 +6631,6 @@ Por batalad’.
 Foriras OKTAVIO, ANTONIO, kaj ilia
 
 militistaro.
-
-
-JULIO CEZARO
 
 
 Kassio
@@ -7030,9 +6702,6 @@ Hodiaŭ tamen ili malaperis,
 Kaj korvoj, falkoj, milvoj anstataŭe
 
 
-JULIO CEZARO
-
-
 Rigardas superfluge nin malsupren,
 
 Akiron preskaŭ certan; baldakeno
@@ -7098,9 +6767,6 @@ De tiuj potenculoj, kiuj ĉiam
 De supre nin direktas.
 
 
-JULIO CEZARO
-
-
 Kassio
 
 Se ni tial
@@ -7158,9 +6824,6 @@ Kaj ni la finon konos. Venu for!
 ĉiuj foriras.
 
 
-JULIO CEZARO
-
-
 SCENO 2 — LA SAMA
 
 La kampo de batalado. Trumpetado. Venas BRUTO kaj MESSALO.
@@ -7208,9 +6871,6 @@ L’ordonon ekbatali Bruto donis
 Tro frue; ekvenkante Oktavion,
 
 Li tro rapide prenis la sukceson;
-
-
-JULIO CEZARO
 
 
 Soldatoj liaj falis sur rubaĵon,
@@ -7278,9 +6938,6 @@ PINDARO supreniras la monton.
 ĉi tiu tagon mi l’unuan fojon
 
 
-JULIO CEZARO
-
-
 Ekspiris: kun la jar’ la dat’ rondiras; La sama tag’ komencon mian vidos
 
 Kaj finon; vivo mia sian rondon
@@ -7338,9 +6995,6 @@ Plenumu vian ĵuron; liberulo
 Fariĝu: per ĉi tiu glavo, kiu
 
 Disŝiris la inteston de Cezaro,
-
-
-JULIO CEZARO
 
 
 Trapiku mian bruston. Ne respondu:
@@ -7406,9 +7060,6 @@ Messalo
 ĉu ne tie
 
 Ripozas li sur tero?
-
-
-JULIO CEZARO
 
 
 Titinio
@@ -7480,9 +7131,6 @@ La koron lian per raporto tiel
 Fatala: mi ja diras, ĝin trapiki,
 
 
-JULIO CEZARO
-
-
 ĉar akra ŝtal’, kaj sagoj venenitaj
 
 Ne trafus pli maldolĉe lian koron,
@@ -7546,9 +7194,6 @@ De Titinio la vizaĝo supren
 Rigardas.
 
 
-JULIO CEZARO
-
-
 Katono
 
 Li jam mortis.
@@ -7604,9 +7249,6 @@ Nun estas tria horo: je noktiĝo
 Ni provos sorton en batiĝo dua.
 
 Ili foriras.
-
-
-JULIO CEZARO
 
 
 SCENO 4 — ALIA PARTO DE LA KAMPO
@@ -7666,9 +7308,6 @@ Lucilio
 Mi ĉesas, sed kondiĉe ke mi mortu.
 
 Jen oro, prenu ĝin, kaj min mortigu.
-
-
-JULIO CEZARO
 
 
 Mortigu Bruton, ke mortigo lia
@@ -7736,9 +7375,6 @@ Okazis.
 ĉiuj foriras.
 
 
-JULIO CEZARO
-
-
 SCENO 5 — ALIA PARTO DE LA KAMPO
 
 Venas BRUTO, DARDANIO, KLITO, STRATONO, kaj VOLUMNIO.
@@ -7800,9 +7436,6 @@ Dardanio!
 Dardanio
 
 Ho Klito!
-
-
-JULIO CEZARO
 
 
 Klito
@@ -7874,9 +7507,6 @@ Antaŭe ni du kunlernantoj estis:
 Per tiu nia amo mi vin petas,
 
 
-JULIO CEZARO
-
-
 Subtenu mian glavon, dum mi ĝin
 
 Surkuras.
@@ -7942,9 +7572,6 @@ KLITO, DARDANIO, kaj VOLUMNIO
 foriras.
 
 
-JULIO CEZARO
-
-
 Stratono, restu apud mi, mi petas;
 
 Vi estas estiminda: via vivo
@@ -8006,9 +7633,6 @@ Lucilio
 En vivo kaj en morto Bruto pruvis
 
 Sin ĉiam nobla: Bruto, mi vin dankas.
-
-
-JULIO CEZARO
 
 
 Oktavio
@@ -8082,9 +7706,6 @@ Ni ne avaru ĉiujn plej konvenajn
 Ceremoniojn kaj funebrajn morojn.
 
 
-JULIO CEZARO
-
-
 Ripozu lia korp’ hodiaŭ nokte,
 
 En mia tendo, kun vestaĵo nobla
@@ -8096,9 +7717,6 @@ Alvoku ni l’amason sub tendarojn:
 Kaj ni disdonu inter ni l’akiron
 
 Gloregan de ĉi tiu bela tago.
-
-
-JULIO CEZARO
 
 
 www.omnibus.se/

@@ -72,9 +72,7 @@ ga romano da˘
 
 ure haveblas je ˆcirka˘
 
-u 10 EUR ˆce la eldonejo Pro Esperanto (nun: Inter-
-
-nacia Esperanto-Muzeo Vieno), la [libroservo de UEA ](http://www.uea.org)kaj multaj aliaj movadaj libroservoj.
+u 10 EUR ˆce la eldonejo Pro Esperanto (nun: Internacia Esperanto-Muzeo Vieno), la [libroservo de UEA ](http://www.uea.org)kaj multaj aliaj movadaj libroservoj.
 
 Wiesbaden, 20.03.1996/21.01.2001
 
@@ -90,9 +88,7 @@ uparolo
 
 Ne tiom ofte oni a˘
 
-udacas malferme paroli pri la internaj problemoj de la propra komplika per-
-
-soneco, sincere esprimi sin, malkovri en si la homon - tiun, kiu bezonas amon kaj kiu kapablas ami.
+udacas malferme paroli pri la internaj problemoj de la propra komplika personeco, sincere esprimi sin, malkovri en si la homon - tiun, kiu bezonas amon kaj kiu kapablas ami.
 
 Tradicie, la indeco de la malferma eldiro estas pridubata pli ofte (verˆsajne pro la edukado) inter pli aˆ
 
@@ -178,7 +174,6 @@ u izolon?
 
 ...
 
-ˆ
 
 Guste tiu ˆci suferiga sento de izoleco kaj la strebo tamen kompreni ˆci misterajn aliulojn (W.A.) inspiris la rakontiston delikate observi la scenojn el ˆciutaga vivo kaj instigis lin vidigi siajn kaˆsitajn tendencojn almena˘
 
@@ -268,7 +263,6 @@ uflanka rideto, mi denove estas ege feliˆca...” - konstatas la rakontisto. Li
 
 gojn por rigardi, rideti al ili”.
 
-ˆ
 
 Cio ˆci igas nin enpensiˆ
 
@@ -374,9 +368,7 @@ goj.
 
 Homojn, kiuj ˆsatus pli subtile ekkoni ne nur landojn, forajn kaj ekzotikajn, sed anka˘
 
-u la proksi-
-
-majn, ˆciam eˆc preska˘
+u la proksimajn, ˆciam eˆc preska˘
 
 u apude situantajn misterajn insulojn de enigma kaj unika homa animo,
 
@@ -410,7 +402,7 @@ Enhavo
 
 5.
 
-. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 102
+. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 1.
 
@@ -479,9 +471,7 @@ La matenmanˆ
 
 go rapide enstomakiˆ
 
-gas. Mi iras en la kelon, suprenportas mian biciklon kaj ekve-
-
-turas.
+gas. Mi iras en la kelon, suprenportas mian biciklon kaj ekveturas.
 
 La klara, matena, somerfina aero freˆsigas mian spiriton. Mi veturas la˘
 
@@ -865,8 +855,6 @@ parolema, sed tamen li ne sukcesis eligi multajn vortojn el mi. Nur de tempo al 
 1.
 
 
-ˆ
-
 Cu li rimarkis, ke mi tamen ˆ
 
 gojis pri la interparolo? A˘
@@ -944,8 +932,6 @@ u ˆcio eblas aperigi ion en
 1.
 
 
-ˆ
-
 gi.
 
 Mi remetas la gazeton sur la bretaron kaj komencas fari miajn hejmtaskojn. Poste mi iras en la loˆ
@@ -982,7 +968,6 @@ gin? Eˆc ne pluvas.”
 
 “Jes, sed kial?”
 
-“ ˆ
 
 Cu vi enmetos vian biciklon?”, li demandas minace.
 
@@ -1122,7 +1107,6 @@ gis sia morto anta˘
 
 u tri jaroj.
 
-ˆ
 
 Ciudimanˆce nia familio vizitis lin. Ofte ni, la infanoj, enuis tie. Iam mi prenis malnovan libron de sur lia bretaro, ˆcar sur ˆ
 
@@ -1185,7 +1169,6 @@ Si ja devas puni min!”. Sed poste mi komprenis, ke ne ˆciuj
 
 virinoj estas kiel panjo.
 
-ˆ
 
 Cu panjo mem travivis kruelan edukadon? Eble ne tiom. Sed ˆsi rakontis, ke avinjo ofte vespere 1.
 
@@ -1222,7 +1205,6 @@ Mi povas ekzakte kalkuli, ke tiam mi havis tri jarojn kaj du monatojn. Verˆsajn
 
 gas miaj memoroj, mia vivo! Dum la tuta vivo mi ne plu amis avinjon.
 
-ˆ
 
 Ciuj kredis, ke ˆsi eˆc ne kapablis mortigi muˆson. Ne multe mankis, kaj anka˘
 
@@ -1251,7 +1233,6 @@ insultoj. Sed verˆsajne anka˘
 
 u ili estas rigoraj, kruelaj...
 
-ˆ
 
 Sajnas, ke la problemo vere estas ege ampleksa. ˆ
 
@@ -1465,7 +1446,7 @@ utune dum dekoj da posttagmezoj, kaj en la ferioj anka˘
 
 u matene. La salajro altiˆ
 
-gis de 50
+gis de
 
 pfenigoj tra unu marko kaj du markoj iom post iom al kvin markoj por unu posttagmezo - ˆ
 
@@ -1503,13 +1484,10 @@ u blankaj folioj...
 
 Iun vesperon kelkaj familianoj sidas en la loˆ
 
-gˆcambro, kiam paˆcjo eniras kaj malbonhumore plen-
-
-das:
+gˆcambro, kiam paˆcjo eniras kaj malbonhumore plendas:
 
 “Dum la tuta tago ili sidaˆcas hejme! Kvar viroj! Se oni tion rakontus al iu!” Kaj li demandas min en malafabla tono:
 
-“ ˆ
 
 Cu vi ne povas pasigi la vesperon kun viaj amikoj? Ha, vi ne havas amikojn? Nek amikon, nek amikinon? Mi diras al vi, kial: ˆ
 
@@ -1536,7 +1514,6 @@ Mi kolektas kuraˆ
 
 gon, sukcesas venki fortan reziston en mi kaj diras:
 
-“ ˆ
 
 Car vi tiom min subpremas!”
 
@@ -1582,7 +1559,6 @@ ue, kvaza˘
 
 u ˆsi tute ne estus ricevinta mian leteron.
 
-ˆ
 
 Cu povus esti tiel? Subite mi komencas dubi, ˆcu vere ˆsi ektimis pli ol kutime. Povus esti, ke tiu 1.
 
@@ -1597,7 +1573,6 @@ Si do verˆsajne ricevis ˆ
 
 gin. Eble mi neniam ekscios, kiu supozo
 
-ˆ
 
 gustas...
 
@@ -1662,7 +1637,6 @@ gojn. Ralf, Irene kaj Klaus salutas
 
 min.
 
-“ ˆ
 
 Cu vi volas iomete kunhelpi?”, demandas min Ralf.
 
@@ -1879,7 +1853,6 @@ Tiu ˆci teksto estas nematura, ˆcar la pensinstigoj fare de instruostoj kaj sa
 
 guloj malabundis.
 
-ˆ
 
 Gi ofertas enrigardon en pensojn, kiuj parte jam de multaj jaroj okupas min, sen ke mi povis paroli pri ili, kaj kiuj nun anka˘
 
@@ -1907,9 +1880,7 @@ u tute malaperis, mi sentas min certagrade feliˆca.
 
 Ralf proponas, ke ni nun traserˆcu iujn kajerojn kaj librojn por trovi ta˘
 
-ugajn ˆsercojn kaj de-
-
-segnaˆojn por la gazeto. Mi volonte konsentas, kvankam mi konscias pri tio, ke tiu okupo estas 1.
+ugajn ˆsercojn kaj desegnaˆojn por la gazeto. Mi volonte konsentas, kvankam mi konscias pri tio, ke tiu okupo estas 1.
 
 
 supraˆa. Sed ial mi ˆ
@@ -2019,7 +1990,6 @@ gu solaj pri la
 
 pensinstigoj liveritaj de mi...
 
-ˆ
 
 Cio aspektas malklare, nebule. Mi ne scias, kion fari nun. Mi remalfermas la gazeton, sed zorge atentas pri tio, ke mi ne vidu la malˆ
 
@@ -2242,7 +2212,6 @@ u tiaj danˆ
 
 geraj opinioj mi volis batali...
 
-ˆ
 
 Si ne komprenis, ne volas kompreni, ne povas kompreni... Feliˆce ˆsi kritikis nur tion, pri kio mi estas plej firme konvinkita!
 
@@ -2279,9 +2248,7 @@ udacas malfermi ˆ
 
 gin kaj eklegas. Subite miaj ˆ
 
-gojo kaj feliˆco malaperas, restas sci-
-
-volemo, timo kaj miro.
+gojo kaj feliˆco malaperas, restas scivolemo, timo kaj miro.
 
 Saluton Manfred!
 
@@ -2334,7 +2301,6 @@ Sed plej malplaˆcas al mi la fakto, ke vi serˆcas la kulpon pri viaj problemoj
 
 Mi petas vin, bonvolu pensi pri tio, kion mi skribis al vi.
 
-ˆ
 
 Gis,
 
@@ -2383,7 +2349,6 @@ u Martina
 
 diris tion, eble eˆc ne tute malprave.
 
-ˆ
 
 Cu povas esti, ke oni en la infanaˆ
 
@@ -2438,7 +2403,6 @@ go.
 
 “Venontfoje!”, diris panjo, kaj, ˆcar paˆcjo ne ˆceestis, ˆsi simple remetis lian brasikon en la poton.
 
-“ ˆ
 
 Ciam nur venontfoje”, mi plendis ˆcagrene, “ˆciam nur venontfoje!”
 
@@ -2507,7 +2471,6 @@ gusta. Mi provis klarigi tion en mia artikolo, sed ˆsajnas, ke neniu
 
 komprenis.
 
-ˆ
 
 Ce la komenco de la kristnaskaj ferioj mi memoras, ke mi ja skribis en mia artikolo, ke mi malˆsatas pasigi miajn feriojn sen iu kontakto kun miaj samklasanoj. ˆ
 
@@ -2550,9 +2513,7 @@ u Kristnasko panjo denove donas leteron al mi. “Jen - por vi!”, ˆsi diras. 
 
 rigardo sur la adreson sufiˆcas por ekscii, kiu sendis ˆ
 
-gin: Tiuj belaj, grandaj, rondetaj literoj memo-
-
-rigas min pri Veronika. Mi tre ˆ
+gin: Tiuj belaj, grandaj, rondetaj literoj memorigas min pri Veronika. Mi tre ˆ
 
 gojas pri tiu letero, sed - kontraste kun dum ricevo de tiu de Martina
 
@@ -2599,7 +2560,6 @@ gu kontenta en via
 
 vivo.
 
-ˆ
 
 Gis - kaj ˆ
 
@@ -2707,7 +2667,6 @@ kial?”
 
 “Mi estas Manfred.”
 
-“ ˆ
 
 Cu vi loˆ
 
@@ -2715,7 +2674,6 @@ gas ˆci tie en Warburg?”
 
 “Ne, en Ossendorf, la najbara urbo. Sed ˆci tie mi iras al la lernejo.”
 
-“ ˆ
 
 Cu al la gimnazio?”
 
@@ -2743,7 +2701,6 @@ u staras anta˘
 
 u la kinejo, kiam li fine demandas min:
 
-“ ˆ
 
 Cu ni eniru - mi pagos!” Mi konsentas kaj kuniras. ˆ
 
@@ -2784,7 +2741,6 @@ u ne bezonas multon...”
 
 Poste li direktas al mi demandon, kiu ˆsajnas esti grava por li:
 
-“ ˆ
 
 Cu ni eble havas komunajn interesojn?”
 
@@ -2792,7 +2748,6 @@ Cu ni eble havas komunajn interesojn?”
 
 Li ridetas, kaj mi komprenas: “Pardonu - Erik!”
 
-“ˆ
 
 Sajnas, ke ni ankora˘
 
@@ -2839,7 +2794,6 @@ gis al vi.”
 
 Mi silentas.
 
-“ ˆ
 
 Cu ˆ
 
@@ -2855,7 +2809,6 @@ u ofte okazos, ke viro enamiˆ
 
 gos al vi.”
 
-“ ˆ
 
 Cu vi nun komprenas, kial mi parolis pri komunaj interesoj?”
 
@@ -2943,9 +2896,7 @@ gas for de li ˆ
 
 gis la dekstra parto de mia seˆ
 
-go kaj metas mian maldek-
-
-stran gambon sur la dekstran.
+go kaj metas mian maldekstran gambon sur la dekstran.
 
 “Ne, lasu min, mi petas vin, kunludu!”, diras Erik, sed mi jam sentas iom da na˘
 
@@ -2987,7 +2938,6 @@ goju pri ˆ
 
 gi...
 
-ˆ
 
 Cio do restas kiel anta˘
 
@@ -3045,7 +2995,6 @@ u nur knaboj.
 
 Mi alparolas studenton apud mi:
 
-“ ˆ
 
 Cu vi jam faris la hejmtaskojn?”
 
@@ -3092,9 +3041,7 @@ gas?” kaj fino. Mi rimarkas, ke ankora˘
 
 u mankas al mi la kapablo da˘
 
-urigi inter-
-
-parolojn tiel, ke la konversacio fariˆ
+urigi interparolojn tiel, ke la konversacio fariˆ
 
 gu interesa. Poste mi plusidas kaj plumanˆ
 
@@ -3151,7 +3098,6 @@ gas telefoni.
 
 Post iom da silentado la virina voˆco demandas:
 
-“ ˆ
 
 Cu konvenas al vi la postvenonta ˆaudo, je la 14a?”
 
@@ -3170,7 +3116,6 @@ Gis revido venontsemajne ˆa˘
 
 ude!”
 
-“ ˆ
 
 Gis revido!”
 
@@ -3235,9 +3180,7 @@ Vidante, ke ˆsi ne emas interrompi min, mi da˘
 
 urigas: “Min ˆ
 
-genas, ke mi sidas sola dum la prele-
-
-goj kaj en la studenta manˆ
+genas, ke mi sidas sola dum la prelegoj kaj en la studenta manˆ
 
 gejo. Mi timas alparoli aliajn homojn kaj havas malfacilaˆojn da˘
 
@@ -3316,7 +3259,6 @@ Subite ˆsi ekparolas:
 
 gu... knabino.
 
-ˆ
 
 Si do traktis vin kvaza˘
 
@@ -3348,13 +3290,11 @@ gas pri tio, ˆcu mi vere estas feliˆca...
 
 Kaj subite ˆsi komencas vigle demandi min:
 
-“ ˆ
 
 Cu vi ˆsatas vidi pornografiajn filmojn?”
 
 “Ne, ne tre...”
 
-“ ˆ
 
 Cu vi masturbas?”
 
@@ -3470,7 +3410,6 @@ uis ˆsin. Tamen, mi ne
 
 estas maldiligenta, sed timema. La informo, ke mi estis batita, tute ne interesis ˆsin...
 
-ˆ
 
 Cu mi, malgra˘
 
@@ -3555,7 +3494,6 @@ da informstandoj, el kiuj preska˘
 
 u la duono aspektas forlasite.
 
-ˆ
 
 Ce kelkaj aliaj standoj mi vidas ofertojn, kiuj ˆsajnas al mi komercaj: Du semajnojn da lingvo-2.
 
@@ -4118,11 +4056,7 @@ u havas ˆsancon esti akceptataj ˆce ni.
 
 Sed la enkonduko de dua lingvo por ˆciu havus anka˘
 
-u plian, iom malpli facile esprimeblan avanta-
-
-ˆ
-
-gon: Estiˆ
+u plian, iom malpli facile esprimeblan avantagon: Estiˆ
 
 gos la ebleco helpi al ˆciu kaj amikiˆ
 
@@ -4181,9 +4115,7 @@ Sed Anja tamen iel pravas. ˆ
 
 Guste hodia˘
 
-u la pozitiva influo de Esperanto sur la evoluon de person-
-
-eco povas esti aparte grava. Mi pensas pri mi mem, memoras mian unuan Esperanto-renkontiˆ
+u la pozitiva influo de Esperanto sur la evoluon de personeco povas esti aparte grava. Mi pensas pri mi mem, memoras mian unuan Esperanto-renkontiˆ
 
 gon,
 
@@ -4358,9 +4290,7 @@ go ni ankora˘
 
 u iomete sidas kune, kaj mi a˘
 
-udas Sandra rakonti al alia parto-
-
-prenantino, ke jam post duona horo ˆsi devos forveturi. Mi denove ridetas al ˆsi - kaj jen... ˆ
+udas Sandra rakonti al alia partoprenantino, ke jam post duona horo ˆsi devos forveturi. Mi denove ridetas al ˆsi - kaj jen... ˆ
 
 Si vere
 
@@ -4372,7 +4302,6 @@ Sandra adia˘
 
 uas nin.
 
-“ ˆ
 
 Gis revido en Kerkrade!”, mi diras post la adia˘
 
@@ -4514,7 +4443,6 @@ Kelkajn semajnojn poste mi partoprenas en la renkontiˆ
 
 go en Ostrava. En la unua vespero mi
 
-ˆ
 
 gojas revidi geamikojn de anta˘
 
@@ -4565,7 +4493,6 @@ Beata:
 
 Beata longe pripensas kaj fine respondas:
 
-“ˆ
 
 Si diris... ke bone.”
 
@@ -4896,7 +4823,6 @@ gojo, ni nur ne rimarkas ˆ
 
 gin.
 
-ˆ
 
 Cu mi iomete konsolis vin?
 
@@ -4927,7 +4853,6 @@ gis la deka klaso ˆciam iris al la konsultaj horoj por gepatroj kaj ˆciam devi
 
 udi la samon.
 
-ˆ
 
 Cu en la elementa lernejo, ˆcu en la gimnazio - la instruistoj ˆciam diris, ke mi estas bona lernanto, sed tro trankvila. Mi devas plivigliˆ
 
@@ -5042,7 +4967,6 @@ Cio eksteren! Kun paszport eksteren! Bagaz restas ene!”
 
 Ekstere ˆce la kontrolo alia doganisto mirigite rigardas min, ekvidante mian FRG-an pasporton:
 
-“ ˆ
 
 Cu vi anka˘
 
@@ -5154,7 +5078,6 @@ salutas kaj mallonge kisas unu la alian. Mi sentas min eˆc multe pli gaja ol an
 
 ue, feliˆca eˆc.
 
-“ ˆ
 
 Cu vi ricevis mian leteron?”, demandas Beata.
 
@@ -5164,7 +5087,6 @@ gojis pri ˆ
 
 gi!”
 
-“ ˆ
 
 Cu anka˘
 
@@ -5188,7 +5110,6 @@ gis. Sur la universitata tereno, tra kiu ni iras, blovetas friska vento.
 
 Post momento Beata demandas min:
 
-“ ˆ
 
 Cu mi faris multajn erarojn en ˆ
 
@@ -5208,7 +5129,6 @@ gojas pri tiu komplimento.
 
 “Jen la diskoteko!”, diras Beata fine, kaj klarigas al mi:
 
-“ ˆ
 
 Gi nomiˆ
 
@@ -5312,7 +5232,6 @@ kun la polo kaj du polinoj, kiuj jam sidis ˆcirka˘
 
 u tiu tablo.
 
-“ ˆ
 
 Cu vi deziras trinki ion?”, demandas min Beata.
 
@@ -5344,7 +5263,6 @@ ga araneo.”
 
 Fine, post duona horo da sidado, ni rigardas unu al la alia, kaj mi demandas:
 
-“ ˆ
 
 Cu ni plu dancu?”
 
@@ -5405,7 +5323,6 @@ ui ilin. Mi rimarkas, ke anka˘
 
 u ili ˆsatas foriri, kaj fakte: Fine ni eliras en grupeto de ses personoj.
 
-ˆ
 
 Ce mia brusto, ventro kaj pelvo postrestas la agrabla sento de ˆsia korpo, kvaza˘
 
@@ -5468,7 +5385,6 @@ gejo. Mia koro bategas
 
 rapide.
 
-“ ˆ
 
 Cu vi bone dormis?”, demandas min Beata.
 
@@ -5508,7 +5424,6 @@ gejon, kie ni unue prenas niajn manˆ
 
 gaˆojn kaj poste serˆcas lokon.
 
-“ ˆ
 
 Cu ni iru al iom pli fora loko?”, mi demandas ˆsin.
 
@@ -5531,7 +5446,6 @@ La matenmanˆ
 
 go gustas bonege al mi, kvankam la bulkoj estas sufiˆce sekaj.
 
-“ ˆ
 
 Cu vi poste volas iri al la konversacia kurso a˘
 
@@ -5587,7 +5501,6 @@ nin, ne sciante pri la ˆ
 
 germinta feliˆco, kiu ligas nin du.
 
-“ ˆ
 
 Cu mi rajtas?”, mi demandas Beata, kaj prenas ˆsian manon, dum ni iras unu apud la alia.
 
@@ -5713,7 +5626,6 @@ gojn
 
 per siaj spertoj kun polaj militkaptitoj.”
 
-“ ˆ
 
 Cu vi do konsentas kun mi?”, demandas Beata.
 
@@ -5811,7 +5723,6 @@ anka˘
 
 u vian religiemon ili ˆsatos.”
 
-“ ˆ
 
 Cu vi anka˘
 
@@ -5845,7 +5756,6 @@ gos. Kutime
 
 Krist-Infano ja mem elektas la donacojn.
 
-“ ˆ
 
 Cu la blankan ursidon?”
 
@@ -5903,7 +5813,6 @@ gis, Kristo naskiˆ
 
 gis,
 
-ˆ
 
 goju, ˆ
 
@@ -6041,7 +5950,6 @@ uas...”
 
 “Mi scias. Sed mi pensas, ke ni bonege harmonias, tiom bone, ke ˆciuj problemoj ne gravas. Vi ne povas imagi, kiom vi signifas por mi. Neniam mi tiom entuziasme ˆsatis knabinon. Vi estus mia unua amikino.”
 
-“ ˆ
 
 Cu vere? Sed vi jam havas 22 jarojn...”
 
@@ -6057,8 +5965,6 @@ Post iom da tempo Beata demandas min en malgaja tono:
 
 4.
 
-
-“ ˆ
 
 Cu vi vere povas resti nur ˆ
 
@@ -6430,7 +6336,6 @@ u ekstaras kaj iras
 
 al ˆsi. Kiel kutime ni ridetas unu al la alia.
 
-“ ˆ
 
 Cu vi jam iras dormi?”, mi demandas ˆsin.
 
@@ -6448,7 +6353,6 @@ u ˆcu mi faru tion kiel planite per mia letero. Mi
 
 decidas preferi la duan eblecon kaj demandas al-ˆsi-nur ion supraˆan:
 
-“ ˆ
 
 Cu vi vidis amba˘
 
@@ -6696,7 +6600,6 @@ pripensas, ˆcu mi eksidu apud ˆsi. Fine Brigitte iras al mi. ˆ
 
 Si alparolas min:
 
-“ ˆ
 
 Cu vi scias, kiam la diskoteko komenciˆ
 
@@ -6710,7 +6613,6 @@ ua. Sed ja ofte io malfruiˆ
 
 gas.”
 
-“ ˆ
 
 Cu anka˘
 
@@ -6746,7 +6648,6 @@ go restas iel senmova, kvankam ˆsi ankora˘
 
 u parolas.
 
-“ˆ
 
 Si havas la ˆcarmon de fiˆso”, mi pensas.
 
@@ -6762,7 +6663,6 @@ u mi. Mi rigardas ˆsin, ridetas. ˆ
 
 Si rerigardas mirigite. Mi vidas Annegret dancante.
 
-ˆ
 
 Sia vizaˆ
 
@@ -6841,7 +6741,6 @@ Derk dum momento silentas, ˆ
 
 gis Ute subite alparolas min:
 
-“ ˆ
 
 Cu vi eltenas vian silentadon?”, ˆsi demandas min afable, ne riproˆce.
 
@@ -6878,13 +6777,10 @@ gos nur je la na˘
 
 ua...
 
-ˆ
 
 Ce tablo sidas grupeto da junaj germanoj, francoj kaj nederlandanoj. Mi sidiˆ
 
-gas ˆce ili. Ili interparo-
-
-las pri politiko. Mi vidas Katharina sidanta inter ili. Uwe venas kaj komencas karesi ˆsiajn ˆsultrojn.
+gas ˆce ili. Ili interparolas pri politiko. Mi vidas Katharina sidanta inter ili. Uwe venas kaj komencas karesi ˆsiajn ˆsultrojn.
 
 De malanta˘
 
@@ -6979,7 +6875,6 @@ Reinhard kaj Anne interparolas. Mi ne. Mi jam sentas min en stato, en kiu mi eˆ
 
 u eˆc
 
-ˆ
 
 gojus pri tio, ˆcar certe anka˘
 

@@ -73,23 +73,23 @@ LISTO DE ĈAPITROJ
 
 PAĜO
 
-1—Kiel la Reĝo de la Knomoj Koleriĝis . . . . . . . . . . . . . . . . . . . . . 11
+1—Kiel la Reĝo de la Knomoj Koleriĝis . . . . . . . . . . . . . . . . . . . . .
 
-2—Kiel Onklo Henriko Embarasiĝis . . . . . . . . . . . . . . . . . . . . . . . . 21
+2—Kiel Onklo Henriko Embarasiĝis . . . . . . . . . . . . . . . . . . . . . . . .
 
-3—Kiel Ozma Plenumis la Peton de Doroteo. . . . . . . . . . . . . . . . . . 29
+3—Kiel Ozma Plenumis la Peton de Doroteo. . . . . . . . . . . . . . . . . .
 
-4—Kiel la Reĝo de la Knomoj Planis Venĝon. . . . . . . . . . . . . . . . . . 39
+4—Kiel la Reĝo de la Knomoj Planis Venĝon. . . . . . . . . . . . . . . . . .
 
-5—Kiel Doroteo Fariĝis Princino . . . . . . . . . . . . . . . . . . . . . . . . . . 48
+5—Kiel Doroteo Fariĝis Princino . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-6—Kiel Guf Vizitis la Kapriclojn . . . . . . . . . . . . . . . . . . . . . . . . . . 59
+6—Kiel Guf Vizitis la Kapriclojn . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-7—Kiel Onklino Em Konkeris la Leonon . . . . . . . . . . . . . . . . . . . . 66
+7—Kiel Onklino Em Konkeris la Leonon . . . . . . . . . . . . . . . . . . . .
 
-8—Kiel la Granda Galiputo Alianciĝis kun la Knomoj. . . . . . . . . . . . 78
+8—Kiel la Granda Galiputo Alianciĝis kun la Knomoj. . . . . . . . . . . .
 
-9—Kiel la Ŝancelinsekto Instruis Atletikon . . . . . . . . . . . . . . . . . . . . 87
+9—Kiel la Ŝancelinsekto Instruis Atletikon . . . . . . . . . . . . . . . . . . . .
 
 10—Kiel Vivis la Tranĉtondoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . .100
 
@@ -2361,9 +2361,7 @@ pri lia groteska falsa kapo.
 
 La Smeralda Urbo de Oz
 
-La falsa kapo de la Ĉefo havis bluan hararon, supren-
-
-kurbigitan nazon, kaj buŝon kiu etendiĝis trans duonon
+La falsa kapo de la Ĉefo havis bluan hararon, suprenkurbigitan nazon, kaj buŝon kiu etendiĝis trans duonon
 
 de la vizaĝo. Grandaj verdaj okuloj estis surpentritaj, sed
 
@@ -7198,9 +7196,7 @@ La Smeralda Urbo de Oz
 
 regno,” respondis Reĝo Viandohakilo.
 
-“Escepte de mi,” diris kribrilo. “Mi estas la plej-tru-
-
-multa de la tru-po.”
+“Escepte de mi,” diris kribrilo. “Mi estas la plej-trumulta de la tru-po.”
 
 “Kion ni bezonas,” komentis la Reĝo riproĉe, “estas
 
@@ -7849,9 +7845,7 @@ La edzino de Pufo estis multe malpli hela ol sia edzo.
 
 ŝi.
 
-“Tute ne,” respondis la virino. “Mi estas nek tro-ku-
-
-irita nek tro-ku-venita; mi estas nur S-ino Pufo, kaj mi
+“Tute ne,” respondis la virino. “Mi estas nek tro-kuirita nek tro-ku-venita; mi estas nur S-ino Pufo, kaj mi
 
 estas Prezidanto de la Kukia Matenmanĝa Bando.”
 
@@ -7920,7 +7914,7 @@ rigardante lin kritikeme.
 
 “Eble, infano. Sed ne kredu min gala, ĉar neniam mi
 
-f a r t i s p l i b o n e d u m m i a t u t a v i v o , ” r e s p o n d i s l a 188
+f a r t i s p l i b o n e d u m m i a t u t a v i v o , ” r e s p o n d i s l a
 
 Ĉapitro Dek Sep
 
@@ -12338,9 +12332,7 @@ povas esprimi sufiĉe mian ĝojon ke mia bela stana kastelo
 
 ne estas detruota de fimalamikoj.”
 
-“Ta-men,” diris Tiktoko, “a-li-aj mal-ami-koj eb-le ve-
-
-nos al Oz i-u-n ta-go-n.”
+“Ta-men,” diris Tiktoko, “a-li-aj mal-ami-koj eb-le venos al Oz i-u-n ta-go-n.”
 
 “Kial vi permesas ke via mekanisma cerbo interrompu
 
@@ -12348,9 +12340,7 @@ nian ĝojon?” demandis Ombi Ambi, sulkante la frunton
 
 kontraŭ la mekanismulo.
 
-“Mi di-ras ti-o-n por ki-o es-tas stre-ĉi-ta mi-aj ri-sor-
-
-toj,” respondis Tiktoko.
+“Mi di-ras ti-o-n por ki-o es-tas stre-ĉi-ta mi-aj ri-sortoj,” respondis Tiktoko.
 
 “Kaj vi pravas,” deklaris Ozma. “Mi pripensadis tiun
 

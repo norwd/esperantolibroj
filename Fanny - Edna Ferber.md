@@ -3,27 +3,16 @@ Edna Ferber
 Fanny
 
 
-### 1
-
 FANNY
 
 
 Edna Ferber
 
-FANNY
 
 El la la angla tradukis Berno Fabo Lingve reviziita en 2003
 
 
-X
-
-@omnibus.se
-
-
-FANNY
-
-
-ĉAPITRO I.
+ĈAPITRO I.
 
 Pli ol unu semajnon neniu povus loĝi en Winnebago sen ekscii pri sinjorino Brandeis. Winnebago estis urbo kun dekmil loĝantoj, kaj ĉiuj estis gravaj personoj, de Hen Cody, dum la labortagoj veturilisto, en blua sekuriga kitelo, (dimanĉmatene transsorĉita per nigra togo en mildaniman diakonon de la preĝejo) de Hen Cody ĝis A. J. Dawes, kiu estis posedanto de la akvokondukilaro, antaŭ ol la urbestraro aĉetis ĝin.
 
@@ -31,67 +20,43 @@ Nu, sinjorino Brandeis estis la superlativo de graveco.
 
 Winnebago ne sciis tion. La Winnebaganoj, kiuj aĉetis ludilojn, argilaĵojn, rubandon, ladajn ilojn kaj pupojn ĉe sinjorino Brandeis en la bazaro de Brandeis, nur iomete komprenis, ke ŝi ja estas alia iu.
 
-Kiam oni eniris la tubforman, malvarmaspektan vendejon en Elmstrato, sinjorino Brandeis mem iris renkonte por servi, se ŝi ne estis okupita de servado de du albäj klientoj. Servis du komizoj en la butiko, pli ĝuste tri, se oni kunnombris Aloision, la komisibubon — sed sinjorino Brandeis rezervis al si la rajton malfermi la inter-traktadon kun la klientoj. Kiam okaze estis neniu aĉetanto en la butiko, oni, enirinte, preskaŭ certe povis tro-3
-
-FANNY
-
-
-vi sinjorinon Brandeis leganta en la maldekstra antaŭa angulo apud la ŝranko de la pupokapoj, plumoj, krajo-noj kaj lerniloj. Kaj tiam oni vidus fortikan, rektestaran virinon; ŝi estis de la tipo, kiu ŝajnas esti pli granda ol ŝi estas efektive, virino kun rekta, inteligenta nazo, kiu donas impreson pri ŝia karaktero. Ja ĉio en ŝi efikis tiel: ŝia densa kaj abunda buklohararo ne malpli ol la maniero, en kiu ŝi metis la kalkanumojn sur la teron. ŝi estis, oni povus diri, tre decidema virino. Sed unue frapis la atenton ja ŝiaj okuloj. Okuloj povas esti penetraj kaj samtempe veluraj, ĉu ne? Nu, mi supozas, ke la penetra-da en ŝiaj okuloj estas spirita eco, la velura, io fizika. Sed kiel ajn, ŝiaj okuloj ĉiam pensigis pri sovaĝaj violoj, la bruna speco. Se Winnebagano estus peninta atenti la titolon de la libro, kiun ŝi metis renverse sur la krajon-skatolojn, kiam iu eniris, tiu Winnebagano estus vidin-ta, ke estas libro de Balzac aŭ eble de Zangwill aŭ Zola.
+Kiam oni eniris la tubforman, malvarmaspektan vendejon en Elmstrato, sinjorino Brandeis mem iris renkonte por servi, se ŝi ne estis okupita de servado de du albäj klientoj. Servis du komizoj en la butiko, pli ĝuste tri, se oni kunnombris Aloision, la komisibubon — sed sinjorino Brandeis rezervis al si la rajton malfermi la inter-traktadon kun la klientoj. Kiam okaze estis neniu aĉetanto en la butiko, oni, enirinte, preskaŭ certe povis trovi sinjorinon Brandeis leganta en la maldekstra antaŭa angulo apud la ŝranko de la pupokapoj, plumoj, krajo-noj kaj lerniloj. Kaj tiam oni vidus fortikan, rektestaran virinon; ŝi estis de la tipo, kiu ŝajnas esti pli granda ol ŝi estas efektive, virino kun rekta, inteligenta nazo, kiu donas impreson pri ŝia karaktero. Ja ĉio en ŝi efikis tiel: ŝia densa kaj abunda buklohararo ne malpli ol la maniero, en kiu ŝi metis la kalkanumojn sur la teron. ŝi estis, oni povus diri, tre decidema virino. Sed unue frapis la atenton ja ŝiaj okuloj. Okuloj povas esti penetraj kaj samtempe veluraj, ĉu ne? Nu, mi supozas, ke la penetra-da en ŝiaj okuloj estas spirita eco, la velura, io fizika. Sed kiel ajn, ŝiaj okuloj ĉiam pensigis pri sovaĝaj violoj, la bruna speco. Se Winnebagano estus peninta atenti la titolon de la libro, kiun ŝi metis renverse sur la krajon-skatolojn, kiam iu eniris, tiu Winnebagano estus vidin-ta, ke estas libro de Balzac aŭ eble de Zangwill aŭ Zola.
 
 ŝi ne povis preterlasi okazon ŝtellegi ĉapitron en tiuj senklientaj momentoj; ŝi ne povis venki tiun kutimon.
 
-Vespere ŝi estis tro laca por povi legi. Okazis ofte, ke ŝi havas momenton por sin fordoni al tiu kutimo, kiam la Wisconsina urbeto kuŝis fermentanta en la aŭgusta suno aŭ kiam ĝi formaldilatiĝis dum la januaraj pluvovente-goj kaj la plej grava butikstrato estis same senhoma kiel la ĉefstrato de tre fora vilaĝo. Sed pli ofte ŝi venis en tiaj tagoj el la malantaŭaĵo de la butiko kun ĉie sur la nigr-4
-
-FANNY
-
-
-atlasa antaŭtuko tufoj da lignofibraĵo. Tiam oni sciis, ke ŝi helpas Aloision ĉe la elpakado de sendaĵo da lavpel-voj aŭ de kesto da porcelanaĵoj aŭ glasaro. Per kreto ŝi skribis la prezon sur ĉiu peco, kiam ĝi estis elfosita el sia nesto el pajlo kaj papero.
+Vespere ŝi estis tro laca por povi legi. Okazis ofte, ke ŝi havas momenton por sin fordoni al tiu kutimo, kiam la Wisconsina urbeto kuŝis fermentanta en la aŭgusta suno aŭ kiam ĝi formaldilatiĝis dum la januaraj pluvovente-goj kaj la plej grava butikstrato estis same senhoma kiel la ĉefstrato de tre fora vilaĝo. Sed pli ofte ŝi venis en tiaj tagoj el la malantaŭaĵo de la butiko kun ĉie sur la nigratlasa antaŭtuko tufoj da lignofibraĵo. Tiam oni sciis, ke ŝi helpas Aloision ĉe la elpakado de sendaĵo da lavpel-voj aŭ de kesto da porcelanaĵoj aŭ glasaro. Per kreto ŝi skribis la prezon sur ĉiu peco, kiam ĝi estis elfosita el sia nesto el pajlo kaj papero.
 
 ”Kiel vi fartas?” ŝi ĉiam diris, ”per kio mi povas servi?”
 
 Kaj dirante tion, ŝi jam klasifikis kaj taksis iun. ĉu oni estis kamparanino kun nigra ŝalo kaj tre eluzita ĉapelo, kiun flirtanta velkinta rozo ornamis, ĉu unu el la dandi-noj el la orienta kvartalo, kiuj frekventis la Brandeis-bazaron, (ĉar sinjorino Brandeis posedis tiel abund-sortimentan, senegalan kolekton da rubandoj kaj bantoj, kiel nenie ĉiflanke de ĉikago), se sinjorino Brandeis, salutinte, vokis: ”Sadie, ŝtrumpojn!” (supozite, ke vi petis pri tio), nepre vi sciis, ke sinjorino Brandeis taksis vin kaj konstatis ion nekontentigan en vi.
 
-ĉiam estis ilia butiko, almenaŭ tiom longe, kiom Fanny povis memori. Ofte ŝi pensis pri tio, ke estos mirige, se ŝi devos a ĉ e t i pinglojn, kudrilojn, telerojn, sapon aŭ aliajn mercerojn. ĉiuj ĉi tiuj objektoj estis en provizo en la vendejo kaj ankoraŭ pli. Oni nur bezonis rigardi la fe-nestran elmontrejon por havi ideon pri la diverseco interne. Winnebago trovis tiujn elmontrejojn verdire iom nedignindaj. Estis ankoraŭ antaŭ la modo de sobreco pri dekoracio kaj la du stabloj, starantaj sub la fenestroj estis abunde provizitaj per lampoj, vazoj, kaldronoj, 5
-
-FANNY
+ĉiam estis ilia butiko, almenaŭ tiom longe, kiom Fanny povis memori. Ofte ŝi pensis pri tio, ke estos mirige, se ŝi devos a ĉ e t i pinglojn, kudrilojn, telerojn, sapon aŭ aliajn mercerojn. ĉiuj ĉi tiuj objektoj estis en provizo en la vendejo kaj ankoraŭ pli. Oni nur bezonis rigardi la fe-nestran elmontrejon por havi ideon pri la diverseco interne. Winnebago trovis tiujn elmontrejojn verdire iom nedignindaj. Estis ankoraŭ antaŭ la modo de sobreco pri dekoracio kaj la du stabloj, starantaj sub la fenestroj estis abunde provizitaj per lampoj, vazoj, kaldronoj,
 
 
 balailoj kaj korbetoj. Foje la ”Winnebaga Kuriero” publi-kigis sarkasman artikoleton, en kiu temis pri ”orienta bazaro” (la kaŭzo estis, ke la ĉefredaktoro, Lem Davis, iun fojon estis faletinta pro elstaranta ludveturilo, kiu skrapvundetis lin), sed sinjorino Brandeis lasis ĉion tia, kia ĝi estis. ŝi sciis, ke la farmistinoj, kiuj kun siaj edzoj preteriris en vivoplenaj sabatoj, nenion komprenos pri la ”sobreco en la elmontrejo,” sed ke ili komprenos plej bone tion, kion surhavas la preziloj, pendantaj de la elmontritaj artikloj — ĉi tiu fruktvazaro 1,59 dolarojn, ĉi tiu lampo 1,23 dolarojn, ke ili parolos pri tio kaj forpaŝetos, revenos kaj poste eniros por aĉeti.
 
 ŝi tre bone sciis, kiam ŝi estu antikva kaj kiam moderna. Sinjorino Brandeis vere povis esti hipermoderna siatempe. ŝi estis la unua en Winnebago, kiu portis mal-longajn jupojn. Tiuj longaj jupoj nur treniĝis sur la planko kaj kaŭzis nubojn da polvo. Unu el ŝiaj indignitaj naj-barinoj (sinjorino Nathan Pereles) foje ŝtele flustris al ŝi, ke deca virino ne povas vesti sin tiel.
 
-”Venontjare, kiam ankaŭ vi portos tiajn jupojn,” diris sinjorino Brandeis, ”mi memorigos vin foje pri tio.” Kaj ŝi faris tion efektive. ŝi portis ĉemizbluzon kun larĝa ŝul-trofaldetaĵo, ”à la Gibson,” kiam la aliaj Winnebaganinoj marŝis ankoraŭ laĉpremitaj en korsetoj kaj rigidaj sub-
-
-ŝtofoj.
-
-
-FANNY
+”Venontjare, kiam ankaŭ vi portos tiajn jupojn,” diris sinjorino Brandeis, ”mi memorigos vin foje pri tio.” Kaj ŝi faris tion efektive. ŝi portis ĉemizbluzon kun larĝa ŝul-trofaldetaĵo, ”à la Gibson,” kiam la aliaj Winnebaganinoj marŝis ankoraŭ laĉpremitaj en korsetoj kaj rigidaj subŝtofoj.
 
 
 Tamen ne supozu, ke ŝi okupiĝas pri emancipado aŭ feminismo aŭ io alia progresema. Oni apenaŭ pensis pri tio en tiuj tagoj. ŝi ne estis io plia ol eksterordinare vigla virino, kaj spirite kaj fizike, kun klara komprenpovo pri la komerco.
 
 Molly Brandeis ne povis pretigi tablon sen forgesi ku-lerojn, salon aŭ ion alian, sed fulmrapide ŝi adiciis parkere du vicetojn da ciferoj.
 
-Ferdinando Brandeis estis revulo kaj ĉiurilate poeto kaj tio estas malbonaj ecoj por viro, kiu komercas ĉiajn artiklojn. Kvarfoje post sia edziniĝo Molly Brandeis mal-starigis siajn mastrumaĵojn, adiaŭis siajn geamikojn kaj sekvis kun siaj du idoj, Fanny kaj Teodoro, sian edzon sur novaj vojoj. Tio estis lamentiga historio, sed plivasti-gis la rigardon. ĵus edziniĝinte, ŝi nenion sciis pri aĉetado kaj vendado, sed en la daŭro de la jaroj ŝi lernis nekonscie, kion oni prefere ne faru en komerco, nur vidinte, kiel Ferdinando Brandeis faris ĉion malĝuste. ŝi eĉ decidis proponi ŝangon, sed tio neniel efikis. Ferdinando estis dolĉanima kaj afabla viro hejme, sed en sia butiko li estis grumblulo kaj koleremulo. Tion kaŭzis la fakto, ke li vidis de la komenco, ke lia entrepreno estas malsukceso kaj li restis okupanta sin pri ĝi tiel longe, ke pasis la tempo por komenci ion alian. Li ne fariĝis amiko de la multgestaj vojaĝistoj, kiuj atake enkuris lian butikon, frapis liajn ŝultrojn, proponis cigaron, informiĝis 7
-
-FANNY
+Ferdinando Brandeis estis revulo kaj ĉiurilate poeto kaj tio estas malbonaj ecoj por viro, kiu komercas ĉiajn artiklojn. Kvarfoje post sia edziniĝo Molly Brandeis mal-starigis siajn mastrumaĵojn, adiaŭis siajn geamikojn kaj sekvis kun siaj du idoj, Fanny kaj Teodoro, sian edzon sur novaj vojoj. Tio estis lamentiga historio, sed plivasti-gis la rigardon. ĵus edziniĝinte, ŝi nenion sciis pri aĉetado kaj vendado, sed en la daŭro de la jaroj ŝi lernis nekonscie, kion oni prefere ne faru en komerco, nur vidinte, kiel Ferdinando Brandeis faris ĉion malĝuste. ŝi eĉ decidis proponi ŝangon, sed tio neniel efikis. Ferdinando estis dolĉanima kaj afabla viro hejme, sed en sia butiko li estis grumblulo kaj koleremulo. Tion kaŭzis la fakto, ke li vidis de la komenco, ke lia entrepreno estas malsukceso kaj li restis okupanta sin pri ĝi tiel longe, ke pasis la tempo por komenci ion alian. Li ne fariĝis amiko de la multgestaj vojaĝistoj, kiuj atake enkuris lian butikon, frapis liajn ŝultrojn, proponis cigaron, informiĝis
 
 
 pri lia sanstato, malŝlosis siajn specimenkofrojn, fioku-lumis al la butikistino, ĉio en unu spiro. Li estis viro, kiu malmulte parolis, aŭdis malmulte kaj lernis malmulton.
 
 Li neniam sukcesis kapti la artifikon rapide en- kaj elspezi monon, tiun artifikon nepre necesan por la bon-farto de provinca vendejo.
 
-Kaj tial okazis, ke en la jaro antaŭ la morto de Ferdinando Brandeis ofte malafabla vizitanto eniris la butikon. Hermano Walthers, kasisto de la ”Unua nacia banko” en Winnebago, alitempe estis boneca, kvankam ruza urbeta bankiero, sed al Ferdinando Brandeis kaj lia edzino tiuj ade plinombriĝantaj vizitoj ŝajnis ĉiel teruraj kaj timigaj, por ili tiuj vizitoj signifis mizeron kaj senesperiĝon. Li kutimis, ekzemple, eniri en bela somerma-teno kun afabla saluto. Tiam li restis momenton staranta en la antaŭa parto de la vendejo, dolĉe balanciĝante jen surkalkane, jen surpiedfingre, ĉirkaŭrigardis, laŭvice perokule laŭiris ĉiujn bretojn kaj ŝrankojn kaj same reen, kun parada sintenado, rapide kalkulante. Post tio li kviete kaj atente promenis laŭlonge de la bretaro, dum liaj ruzaj germanaj okuletoj taksis la provizon. Zumkantante nediveneblan arieton, li vagis tute kviete tra la unua interirejo kaj poste tra la dua (estis nur du), okaze elprenis porcelanan tason, turnis ĝin por rigardi la markon, frapis kontraŭ ĝi perfingre, remetis ĝin singarde, post kio, akompanante sin per mallaŭta muziko, li pluiris al 8
-
-FANNY
+Kaj tial okazis, ke en la jaro antaŭ la morto de Ferdinando Brandeis ofte malafabla vizitanto eniris la butikon. Hermano Walthers, kasisto de la ”Unua nacia banko” en Winnebago, alitempe estis boneca, kvankam ruza urbeta bankiero, sed al Ferdinando Brandeis kaj lia edzino tiuj ade plinombriĝantaj vizitoj ŝajnis ĉiel teruraj kaj timigaj, por ili tiuj vizitoj signifis mizeron kaj senesperiĝon. Li kutimis, ekzemple, eniri en bela somerma-teno kun afabla saluto. Tiam li restis momenton staranta en la antaŭa parto de la vendejo, dolĉe balanciĝante jen surkalkane, jen surpiedfingre, ĉirkaŭrigardis, laŭvice perokule laŭiris ĉiujn bretojn kaj ŝrankojn kaj same reen, kun parada sintenado, rapide kalkulante. Post tio li kviete kaj atente promenis laŭlonge de la bretaro, dum liaj ruzaj germanaj okuletoj taksis la provizon. Zumkantante nediveneblan arieton, li vagis tute kviete tra la unua interirejo kaj poste tra la dua (estis nur du), okaze elprenis porcelanan tason, turnis ĝin por rigardi la markon, frapis kontraŭ ĝi perfingre, remetis ĝin singarde, post kio, akompanante sin per mallaŭta muziko, li pluiris al
 
 
 la lavilaro, lampoj, ŝtrumpoj, feraj iloj, ludiloj. Kaj fine, ĉiam zumetante, kun la manoj sur la dorso, li iris tra la eksteren malfermebla pordo, reen al la sunbrila Elmstrato, postlasante timon kaj angoron. Iun jaron, post kiam Molly Brandeis estis transpreninta la komercon, la vizitoj de Hermano Walthers ĉesis kaj ankoraŭ unu jaron pli poste eĉ okazis, ke li ekstaras en sia anguleto por saluti ŝin, kiam ŝi eniris la bankon.
 
 Nevole mi nun devos tuŝi la aferon pri la pluŝa por-tretalbumo. La pluŝa portretalhumo estas konkreta ekzemplo por montri, kiel butikentrepreno povos sukcesi aŭ ne. Pli ĝuste, la mallonga historio de la pluŝa portret-albumo karakterizas komplete Ferdinandon kaj Molly’n Brandeis. Antaŭ dek jaroj Ferdinando aĉetis grandan kvanton da kristnaskartikloj, celuloidaj tualetiloj, ledaj kolumskatoloj, veluraj gantujoj. Ankaŭ troviĝis en tiu kolekto glanforma, giganta fotoalbumo kun pluŝa bindaĵo, ĝi estis abomeninda kaj krom tio tre multekosta. i staris sur kupra subtenilo, la folioj estis sur la rando orumitaj, la koloroj estis palblua kaj palverda kaj ĉion konsiderante, oni destinus ĝin por ornami malvarmaspektan, senvivan, pompan ĉambron de iu Wisconsina farmdomo. Ferdinando Brandeis fiksis la prezon je ses dolaroj kaj elmontris ĝin kiel kristnaskan donacon. Tio okazis antaŭ dek jaroj.
-
-
-FANNY
 
 
 i estis tro multekosta aŭ tro parada, eble eĉ tro malbela, por mistifiki kamparanon. Kiel ajn, ĉiujare ili reprenis ĝin el la elmontrejo, senpolvigis ĝin kaj denove starigis ĝin sur la starilon, dek sinsekvajn jarojn. La tagon post Kristnasko ĝi ĉiam ĉeestis, kun sia brilglata pluŝa
@@ -106,35 +71,23 @@ La riverencintino facile ruĝiĝis, sed subridante, ŝi respondis: ”Mi salutas
 
 ĝin revidis.”
 
-Ferdinando Brandeis mortis subite pli ol unu semajnon post tio. Tio estis terura tempo, kiu tute estus em-barasinta malpli decideman virinon. Montriĝis esti mal-10
-
-FANNY
-
-
-novaj ŝuldoj, krom la pagota sumo por la tuta provizo da kristnaskartikloj.
+Ferdinando Brandeis mortis subite pli ol unu semajnon post tio. Tio estis terura tempo, kiu tute estus em-barasinta malpli decideman virinon. Montriĝis esti malnovaj ŝuldoj, krom la pagota sumo por la tuta provizo da kristnaskartikloj.
 
 La tagon post la enterigo Winnebago estis mutkon-sternita. La domo de Molly Brandeis estis laŭvorte superŝutita de kondolencantaj vizitantoj. ĉiuj anoj de la malgranda juda societo en Winnebago faris funebran viziton, same kiel ili ĉeestis la enterigon. Kaj tiuj, kiuj tiam ne kunportis kukon, salaton, viandon aŭ torton, faris tion nun laŭ netuŝebla prakutimo en la funebraj tagoj.
 
-Sed ankaŭ aliaj homoj el la urbo vizitis ŝin, estis amikoj kaj konatoj de Ferdinando Brandeis. Kaj kio ĉiujn tiujn homojn gapigis, estis tio: sinjorino Brandeis forlasis la domon. Laŭ ĉies supozo, ŝi nun estus sidanta hejme en mallumigita ĉambro, en nigra vesto, kun Fanny kaj Teodoro premataj kontraŭ ŝi, dum ŝi tenis poŝtukon kun nigra rando en la mano, por senlarmigi la ruĝajn okulojn. Kaj por diri la veron, ŝi ŝatus fari tion ĉi, ĉar ŝi amis sian edzon multe kaj volonte plenumis ceremoniajn kutimojn. Sed tamen ŝi faris alie: la tagon post la enterigo ŝi surmetis matene je la sepa blankan bluzon kaj nigran antaŭtukon. La butiko estis fermita la antaŭan tagon. Kvaronon antaŭ la oka ŝi eniris la butikon, kie Aloisio estis balaanta per segaĵo kaj balaileto. Je la oka aŭ iom pli poste alvenis la vendistinoj, speciale dungitaj por Kristnasko, supozante, ke dum unu horo almenaŭ aŭ du estos festeno por la musoj. Dek minutojn post la 11
-
-FANNY
+Sed ankaŭ aliaj homoj el la urbo vizitis ŝin, estis amikoj kaj konatoj de Ferdinando Brandeis. Kaj kio ĉiujn tiujn homojn gapigis, estis tio: sinjorino Brandeis forlasis la domon. Laŭ ĉies supozo, ŝi nun estus sidanta hejme en mallumigita ĉambro, en nigra vesto, kun Fanny kaj Teodoro premataj kontraŭ ŝi, dum ŝi tenis poŝtukon kun nigra rando en la mano, por senlarmigi la ruĝajn okulojn. Kaj por diri la veron, ŝi ŝatus fari tion ĉi, ĉar ŝi amis sian edzon multe kaj volonte plenumis ceremoniajn kutimojn. Sed tamen ŝi faris alie: la tagon post la enterigo ŝi surmetis matene je la sepa blankan bluzon kaj nigran antaŭtukon. La butiko estis fermita la antaŭan tagon. Kvaronon antaŭ la oka ŝi eniris la butikon, kie Aloisio estis balaanta per segaĵo kaj balaileto. Je la oka aŭ iom pli poste alvenis la vendistinoj, speciale dungitaj por Kristnasko, supozante, ke dum unu horo almenaŭ aŭ du estos festeno por la musoj. Dek minutojn post la
 
 
 oka Molly Brandeis paŝis neatendite al la pluŝa albumo, forigis la prezmontrilon de ses dolaroj kaj alligis al ĝi belaspektan karteton, sur kiu estis zorge skribite: ”Hodiaŭ 79 cendojn!” Tiun posttagmezon la pluŝa albumo estis portata en farmista veturilo al nova hejmo.
 
 
-FANNY
-
-
-ĉAPITRO II.
+ĈAPITRO II.
 
 Nun mi rakontu iom pri Fanny Brandeis. Sed ŝajnas al mi, kiam mi volas okupi min pri ŝi, kvazaŭ mi sentas ŝian patrinon tiranta mian manikon. Tiam mi refoje vidas sinjorinon Brandeis iri tra la Norrisstrato, kiel ŝi faris ĉiun matenon kvaronon antaŭ la oka, paŝante firme kaj mezurite kiel marŝanta soldato kun kapo alten levita kaj kun mentono iom elstaranta, tute kiel soldato, nur ne militema, kun la griza, mallonga jupo kaj la ŝultroj preskaŭ konscie tenataj larĝe. En tiu horo aliaj virinoj okupis sin per plektado de vostosimilaj harligoj de siaj filinetoj irontaj lernejon, aŭ per brospurigado de la perono aŭ per akvumado de floroj en la eksterdomaj florujoj. La loĝantoj de Norrisstrato baldaŭ aranĝis siajn okupaĵojn laŭ la preterirado de sinjorino Brandeis. Kiam ŝi preterpasis je kvarono antaŭ la oka kaj oni okaze rigardis eksteren, oni komencis rapidi pri la hararanĝado.
 
 Kiam ŝi denove preteriris, iom antaŭ la dekdua, tiam estis instigo por plihejti la fornon sub la terpomoj kaj pretigi la farunon por la grasaĵo.
 
-Sinjorino Brandeis komprenis baldaŭ, ke Fanny kaj Teodoro tre bone povos vesti sin sen helpo, kvankam 13
-
-FANNY
+Sinjorino Brandeis komprenis baldaŭ, ke Fanny kaj Teodoro tre bone povos vesti sin sen helpo, kvankam
 
 
 kelkfoje ili bezonis admonon de la servistino Mattie. Sed ŝia kontrolo estis necesa por malkovri, ke Aloisio forgesis la angulojn ĉe la purigado kun malseka segaĵo. ŝi absolute ĉeestu, se ŝi volas esti certa, ke oni je la oka estos formetinta kaj kunfaldinta la stablokovrilojn, ke la ekstera elmontrejo estos senpolvigita kaj rearanĝita, ke la fenestroj estos viŝpurigitaj kaj la tuta butiko estas freŝa kaj preta por akcepti la klientojn. Kaj tiel Fanny lernis mem kombi siajn densajn, brile nigrajn harojn, kiuj buklante pendis sur la ŝultrojn kaj kiujn ŝi tenis kune per nigra banto. Estis malsekaj, ”obeemaj” kaj trakteblaj bukloj je la oka matene, sed proksimume je la kvara, kiam ŝi eliris el la lernejo, tiuj bukloj estis netrakteblaj kaj sovaĝaj, kvazaŭ ili estus ŝarĝitaj per elektro. Eble tio povus esti vera, ĉar ja la bukloj estis portataj de tia malgranda di-namo!
@@ -143,32 +96,21 @@ Sinjorino Brandeis bezonis iom malpli ol duonhoron por atingi de la butiko prete
 
 Por malpli sana kaj energia virino tio signifus mortigon, ĉiutage iradi tien kaj reen, al ŝi ĝi efikis kiel stimulo kaj ŝi tial restis korpe kaj mense forta kaj freŝa en aĝo, en kiu aliaj virinoj fariĝas malviglaj, inertaj kaj malrapidaj.
 
-Somere la urbeto ofte kuŝis sufereganta pro varmego, la flava strato fariĝis bakforno, la ruĝaj tegoloj de la lernejo fariĝis fajraĵo, eĉ la pinarboj de la flankvojoj fariĝis mal-14
+Somere la urbeto ofte kuŝis sufereganta pro varmego, la flava strato fariĝis bakforno, la ruĝaj tegoloj de la lernejo fariĝis fajraĵo, eĉ la pinarboj de la flankvojoj fariĝis malsekaj, gluecaj pro rezino, tiel ke ili disdonis odoron, kiu pensigis pri arbaro kaj kiu tamen faris la aeron sufokpre-ma. En tiaj tagoj la tento ne povis ne esti neeltenebla por ŝi, ŝi ja ŝatis momenton rekonsciiĝi en la ombro de la varmeta butikportiko kun ĝiaj verdfarbitaj florujoj, sub la densa foliaro de la platano. Sed ŝi ne faris tion. Estis io, kvazaŭ pasio en ŝiaj energio kaj decidemo. La nepa-gitaj ŝuldoj ŝvebis antaŭ ŝiaj okuloj; la infanoj ja bezonis vestojn kaj la lernopago estis kvitigota; la mastrumado postulegis monon; ŝi ne povis neglekti la violoninstruon de Teodoro — absolute ne post tio, kion profesoro Bauer diris pri ĝi.
 
-FANNY
-
-
-sekaj, gluecaj pro rezino, tiel ke ili disdonis odoron, kiu pensigis pri arbaro kaj kiu tamen faris la aeron sufokpre-ma. En tiaj tagoj la tento ne povis ne esti neeltenebla por ŝi, ŝi ja ŝatis momenton rekonsciiĝi en la ombro de la varmeta butikportiko kun ĝiaj verdfarbitaj florujoj, sub la densa foliaro de la platano. Sed ŝi ne faris tion. Estis io, kvazaŭ pasio en ŝiaj energio kaj decidemo. La nepa-gitaj ŝuldoj ŝvebis antaŭ ŝiaj okuloj; la infanoj ja bezonis vestojn kaj la lernopago estis kvitigota; la mastrumado postulegis monon; ŝi ne povis neglekti la violoninstruon de Teodoro — absolute ne post tio, kion profesoro Bauer diris pri ĝi.
-
-Vi eble opinios, ke mi tro laŭdas ŝiajn energion kaj fervoron. Sed ne forgesu, ke daŭros dek kvin jarojn aŭ ankoraŭ pli, antaŭ ol la virinoj milope estos surprize venkintaj la mondon por postuli sian lokon, flanko ĉe flanko kaj salajro laŭ salajro, flanke de la viroj. Ho, jes, estis sufiĉe da virinoj, kiuj perlaboris siajn porvivaĵojn: stenografiistinoj, instruistinoj, oficistinoj. En la paperfabriko kaj ankaŭ en la konservaĵfabriko ja nur laboristinoj. Sed jen estis bone edukita virino, nenion scianta pri komerco, vidvino kun du idoj, tridekokjara, senmona, ne, pli terure, dronanta en ŝuldoj. Krom tio, kiel edzino de Ferdinando Brandeis ŝi okupis certan pozicion en la malgranda juda societo de Winnebago. Certe, ili neniam estis sufiĉe riĉaj, dum iliaj samreligianoj en la urbeto jam 15
-
-FANNY
+Vi eble opinios, ke mi tro laŭdas ŝiajn energion kaj fervoron. Sed ne forgesu, ke daŭros dek kvin jarojn aŭ ankoraŭ pli, antaŭ ol la virinoj milope estos surprize venkintaj la mondon por postuli sian lokon, flanko ĉe flanko kaj salajro laŭ salajro, flanke de la viroj. Ho, jes, estis sufiĉe da virinoj, kiuj perlaboris siajn porvivaĵojn: stenografiistinoj, instruistinoj, oficistinoj. En la paperfabriko kaj ankaŭ en la konservaĵfabriko ja nur laboristinoj. Sed jen estis bone edukita virino, nenion scianta pri komerco, vidvino kun du idoj, tridekokjara, senmona, ne, pli terure, dronanta en ŝuldoj. Krom tio, kiel edzino de Ferdinando Brandeis ŝi okupis certan pozicion en la malgranda juda societo de Winnebago. Certe, ili neniam estis sufiĉe riĉaj, dum iliaj samreligianoj en la urbeto jam
 
 
 perlaboris sian renton kaj pro tio estis fieraj. La plimulto de ili posedis veturilojn kun du ĉevaloj kaj iliaj domoj estis vastaj, havis verandon kaj staris en ombroplenaj kampoj. Kiam la familio Brandeis antaŭ kvin jaroj ek-loĝis en Winnebago, ĉi tiuj samreligianoj unue atendis, informiĝis pri ili kaj fine vizitis ilin. Ili estis tiaj, kiajn oni trovas en ĉiu malgranda urbo, bonstataj, konservativaj, bonaj civitanoj kun multe da sento pri malsamrangeco, sed tamen ne tiom, kiom iliaj parencoj en la grandaj urboj. Ja la cirkonstancoj ebligis, ke ili rilatis kun la elito de la urbeto, dum ili vivis komforte, elspezis sian monon laŭplaĉe, zorgante plej bone pri la edukado de siaj gefiloj.
 
 Nu, jen Molly Brandeis neatendite komencis perlabori sian panon en butiko, kiel viro. Ne estas mirige, ke la juda kongregacio tremegis ĝisfundamente. Judinoj ja ne agis tiel. Ili ja igis siajn fraton aŭ filon laborenspezi. ”Ho, tion mi ne sciis,” diris sinjorino Brandeis, kiam ŝi eksciis pri tio, ”sed mi memoretas, ke iam estis judino, Rut ŝi nomiĝis, kies edzo mortis kaj kiu ja rikoltis spikojn sur la kampo por vivteni sin. Kaj, kiom mi scias, ŝiaj najba-rinoj neniam priklaĉis ŝin. Eĉ mi kredas, ke oni ĝis hodiaŭ honoradas ŝin ĝuste pro tiu faro.”
 
-Sed tio neniel efikis, ŝia reputacio inter la geamikoj tial suferis. Oni ne facile malligas sin de ”dececo” kaj de tio, kio estis tia! Molly Brandeis tamen estis tro okupita 16
-
-FANNY
+Sed tio neniel efikis, ŝia reputacio inter la geamikoj tial suferis. Oni ne facile malligas sin de ”dececo” kaj de tio, kio estis tia! Molly Brandeis tamen estis tro okupita
 
 
 de sia butiko por ĉagreniĝi de tiaĵoj. La multokupiga kristnaska tempo post la morto de ŝia edzo estis terura periodo, sed ankaŭ tre neordinara. ĉar ĝi estis fajropro-vo por Molly Brandeis, en kiu ŝi montriĝis purora. En la unua semajno de januaro ŝi inventaris kun Sadie kaj Pearl — la du komizinoj — kaj Aloisio siajn komercaĵojn.
 
-Tio estis ĉagrena afero, saldado de kontoj, ĉar evidentiĝ-
-
-is tiel konvinke, ke la bilanco indikas misiran progreson.
+Tio estis ĉagrena afero, saldado de kontoj, ĉar evidentiĝis tiel konvinke, ke la bilanco indikas misiran progreson.
 
 La tri virinoj kaj la knabo laboris kun iu speco de obstina bonhumoro: nombris, gluis etikedojn, senpolvigis, lavis. Ili trovis bretojn plenajn de forgesitaj provizoj, kun polvotavolo kaj tute senvaloriĝintaj. Ili trovis ĉiaspecajn tielnomitajn ”praaĵojn,” parencojn de la pluŝa albumo; ekzemple: estis oleujaroj — dum apartaj boteletoj estis modernaj — lampoj kun rekta meĉo, en la tempo, kiam rondmeĉaj jam ĝuis preferon. Ili sappurigis la bretojn, multjara polvo forbrosiĝis de skatoloj, vicamasoj da teleroj, tasoj, subtasoj kaj ankoraŭ multe pli estis lavataj.
 
@@ -177,21 +119,14 @@ Estis peza, malpura laborego, kiu ĝisoste lacigis, kiu detruis la ungojn de la 
 La tuta kvaropo estis ankoraŭ multajn semajnojn poste malvarmume malsana.
 
 
-FANNY
-
-
 La inventarado kaŭzis novan malafablan trajton ĉir-kaŭ la buŝo de sinjorino Brandeis kaj fosis unu plian sulkon en ĉiu okulangulo. Kiam ĝi finiĝis, ŝi lavis siajn harojn, prenis vaporbanon super pelvo kun varmega akvo kaj pakis du valizojn. ŝi donis al Mattie detalajn kaj akcentajn instrukciojn pri la mastrumado kaj al Sadie kaj Pearl pri la butiko kaj ekiris al ĉikago por sia unua komerca vojaĝo. ŝi kunprenis Fanjon pro ekvilibrigo. Tio estis riska entrepreno, kiun pli ol unu viro ne kuraĝus fari. De la ĝusta konsiderado kaj ruzeco dum ĉi tiu unua aĉetvojaĝo dependis la estonteco de la Brandeisa bazaro, de sinjorino Brandeis, de Fanny kaj Teodoro.
 
-Sinjorino Brandeis ofte estis akompaninta sian edzon dum liaj aferekskursoj al ĉikago. ŝi eĉ akompanis lin, kiam li vizitis la gravajn pograndkomercistojn en la kvartalo de Sallestrato en Madison kaj Kvina Avenuo, sed neniam ŝi mem aĉetis por valoro de unu dolaro. ŝi bone vidis, ke li aĉetas malrapide, prudente kaj sen fantazio. Kaj ŝi intencis fari aĉetojn rapide kaj intuicie. ŝi konis iomete kelkajn vendistojn de firmoj, oni donacis al ŝi foje vazeton, notlibreton, poŝtukon aŭ ornamaĵon, kiujn ŝi akceptis ĉiam kontraŭvole, almenaŭ se ŝi akceptis ilin. Poste konsiderinte, ŝi nun ĝojis, ke ŝi ĉeestis tiujn vizitojn, tiel ke ŝi nun memoris pri iliaj detaloj. Fiksiĝis en ŝia kapo, ke ĉi foje nenial ŝi akceptos donacojn, nek invitojn al la teatro, lunĉo aŭ festeneto. ŝi ja venis por 18
-
-FANNY
+Sinjorino Brandeis ofte estis akompaninta sian edzon dum liaj aferekskursoj al ĉikago. ŝi eĉ akompanis lin, kiam li vizitis la gravajn pograndkomercistojn en la kvartalo de Sallestrato en Madison kaj Kvina Avenuo, sed neniam ŝi mem aĉetis por valoro de unu dolaro. ŝi bone vidis, ke li aĉetas malrapide, prudente kaj sen fantazio. Kaj ŝi intencis fari aĉetojn rapide kaj intuicie. ŝi konis iomete kelkajn vendistojn de firmoj, oni donacis al ŝi foje vazeton, notlibreton, poŝtukon aŭ ornamaĵon, kiujn ŝi akceptis ĉiam kontraŭvole, almenaŭ se ŝi akceptis ilin. Poste konsiderinte, ŝi nun ĝojis, ke ŝi ĉeestis tiujn vizitojn, tiel ke ŝi nun memoris pri iliaj detaloj. Fiksiĝis en ŝia kapo, ke ĉi foje nenial ŝi akceptos donacojn, nek invitojn al la teatro, lunĉo aŭ festeneto. ŝi ja venis por
 
 
 komerci. Jes, estis pli ol komercado, estis senkompata milito.
 
-La vojaĝo al ĉikago daŭris nur ses horojn. La okuloj de Fanny Brandeis, origine ja sufiĉe grandaj, certe fariĝis duoble pli grandaj ol ordinare dum la ducentmejla voja-
-
-ĝo. Ili lunĉos en la vagonaro! Ili loĝos en hotelo! Ili iros al teatro! Fanny estus forreviĝinta en la ruĝpluŝaj kupe-kusenoj en ebrieco pro ĝojego, se ŝi ne povus rigardi tiom da vidindaĵoj en la kupeo mem kaj tra la fenestroj.
+La vojaĝo al ĉikago daŭris nur ses horojn. La okuloj de Fanny Brandeis, origine ja sufiĉe grandaj, certe fariĝis duoble pli grandaj ol ordinare dum la ducentmejla vojaĝo. Ili lunĉos en la vagonaro! Ili loĝos en hotelo! Ili iros al teatro! Fanny estus forreviĝinta en la ruĝpluŝaj kupe-kusenoj en ebrieco pro ĝojego, se ŝi ne povus rigardi tiom da vidindaĵoj en la kupeo mem kaj tra la fenestroj.
 
 ”Ni nun prenos ion, kion ni hejme neniam manĝis,”
 
@@ -201,33 +136,18 @@ diris sinjorino Brandeis, kiam ili sidis en la restoracia vagono por lonĉi, ”
 
 ”ion strangan, ion alian, kio . . . nu . . . estas ne tiel saniga!”
 
-Ili ricevis ostrojn (Novjorkano estus suprentirinta la nazon pro ili), kokaĵpasteĉon en ia ujo, asparagojn kaj glaciaĵon. Se tio ne nomiĝas malŝparego, mi volonte scius, kio efektive estas malŝparego! Ili elektis la hotelon Windsor-Clifton kiel loĝejon, ĉar ĝi estis pli kvieta ol Palmer House kaj ne tiel multekosta, kvankam oni trovis tie malpli da pluŝo kaj nuksligno. Krome, ŝi estis loĝ-
-
-inta kun sia edzo en Palmer House, kaj ŝi sciis, kiel tie la aĉetantoj verdire estas sieĝataj de la vendemuloj kaj superŝutataj per klarigiloj pri artikloj, zorge elmontritaj en la diversaj ekspozoĉambroj.
-
-
-FANNY
+Ili ricevis ostrojn (Novjorkano estus suprentirinta la nazon pro ili), kokaĵpasteĉon en ia ujo, asparagojn kaj glaciaĵon. Se tio ne nomiĝas malŝparego, mi volonte scius, kio efektive estas malŝparego! Ili elektis la hotelon Windsor-Clifton kiel loĝejon, ĉar ĝi estis pli kvieta ol Palmer House kaj ne tiel multekosta, kvankam oni trovis tie malpli da pluŝo kaj nuksligno. Krome, ŝi estis loĝinta kun sia edzo en Palmer House, kaj ŝi sciis, kiel tie la aĉetantoj verdire estas sieĝataj de la vendemuloj kaj superŝutataj per klarigiloj pri artikloj, zorge elmontritaj en la diversaj ekspozoĉambroj.
 
 
 Fanny Brandeis estis dektrijara, inteligenta, vigla kaj nekredeble lernema. Estas neeble rakonti, kion ŝi lernis dum tiu vojaĝo al ĉikago, estis tia abundo da ŝatindaĵoj.
 
-ŝi iris kun sia patrino al la pograndistoj, aŭskultis ĉion, vidis ĉion kaj asimilis ĉion nekonscie. Kiam ŝi laciĝis pro la sufoka aero en la malfreŝaj elmontraj salonoj kun senfinaj vicoj da fakoj, en kiuj oni ekspozis ĉiaspecajn artiklojn, ŝi sidigis sin sur seĝon en kvieta angulo kaj rigardis la elegantajn, ĝissate manĝintajn vendistojn. Ili aspektis tiel gajaj kaj ili maĉis iomete ekscititaj sian cigaron, kiam sinjorino Brandeis ne konsentis pri iliaj ofer-toj. Kelkfoje ŝi ne akompanis sian patrinon, sed restis en la lito, rave agrable, ĝis pasis la pli granda parto de la mateno, tiam ŝi vestis sin, babilante kun la irlanda ĉambristino kaj poste legis iom ĝis fine tagmeze ŝia patrino revenis por kunpreni ŝin. ĉio, kion ŝi faris kaj vidis, estis rava aventuro, estis nova. Fanny Brandeis vidos multon strangan kaj belan en sia aventurplena vivo, sed ver-
-
-ŝajne neniam ŝi estos sentanta refoje tiun emocion, kiun kaŭzis la malbelaj, premaeraj hotelkoridoroj kun la ruĝaj irtapiŝoj kaj la gaslampoj aŭ la malhejma dormoĉambro kun siaj nukslignaj mebloj kaj Nottinghamtolaj kurtenoj.
+ŝi iris kun sia patrino al la pograndistoj, aŭskultis ĉion, vidis ĉion kaj asimilis ĉion nekonscie. Kiam ŝi laciĝis pro la sufoka aero en la malfreŝaj elmontraj salonoj kun senfinaj vicoj da fakoj, en kiuj oni ekspozis ĉiaspecajn artiklojn, ŝi sidigis sin sur seĝon en kvieta angulo kaj rigardis la elegantajn, ĝissate manĝintajn vendistojn. Ili aspektis tiel gajaj kaj ili maĉis iomete ekscititaj sian cigaron, kiam sinjorino Brandeis ne konsentis pri iliaj ofer-toj. Kelkfoje ŝi ne akompanis sian patrinon, sed restis en la lito, rave agrable, ĝis pasis la pli granda parto de la mateno, tiam ŝi vestis sin, babilante kun la irlanda ĉambristino kaj poste legis iom ĝis fine tagmeze ŝia patrino revenis por kunpreni ŝin. ĉio, kion ŝi faris kaj vidis, estis rava aventuro, estis nova. Fanny Brandeis vidos multon strangan kaj belan en sia aventurplena vivo, sed verŝajne neniam ŝi estos sentanta refoje tiun emocion, kiun kaŭzis la malbelaj, premaeraj hotelkoridoroj kun la ruĝaj irtapiŝoj kaj la gaslampoj aŭ la malhejma dormoĉambro kun siaj nukslignaj mebloj kaj Nottinghamtolaj kurtenoj.
 
 Kio koncernas la stratojn de ĉikago, kun la danĝeraj kruciĝoj (tiutempe ankoraŭ ne estisla ”bluvestitaj ĉaroj,”
 
-kiuj reguligas la trafikon), pli maljunaj kaj naivaj piedi-20
-
-FANNY
-
-
-rantoj suferis ja sufiĉe multe pro angoro, riskante transiri ĉe la angulo de State kaj Madison.
+kiuj reguligas la trafikon), pli maljunaj kaj naivaj piedirantoj suferis ja sufiĉe multe pro angoro, riskante transiri ĉe la angulo de State kaj Madison.
 
 La vojaĝo daŭris dek tagojn. La aĉetado estis laciga afero, kaj korpe kaj mense. Dum multaj horoj oni devis paŝadi laŭlonge de la elmontrejoj en la ekspozejoj. Tio nur kaŭzis korpan elĉerpiĝon. Sed unualoke la mensa streĉiĝo faris sinjorinon Brandeis ĝisspine laca en la fino de la tago. ĉu ŝi aĉetis prudente? ĉu tro multe? Kion ŝi fakte sciis pri aĉeto? Kelkfoje ŝi estis, reveninte je la sesa en la hotelon, tiel laca, ke ŝi ne povis atenti la manĝejon nek la manĝaĵojn. ŝi portigis la manĝaĵojn en sian ĉambron — denove entuziasmiga aventuro por Fanny. ŝi klopodis tiam tenti la tute lacan virinon en ŝia lito per ĉiaj frandaĵoj de la sennombraj pladoj alportitaj. Sed Molly Brandeis, senenergia kaj senpova pro lacego, neniel kapablis manĝi. Sed kelkfoje estis alie. Jen okazis la neforgesebla vespero por rigardi la grandan Sarah Bern-hard. Fanny pasigis lu tutan postan matenon antaŭ la dormeja spegulo kun senorda hartufo sur la frunto, kun malnova mustelpelta ŝalo alte kaj dense volvita ĉirkaŭ la kolo, dum ŝi penis ridi kun tiu melankolia, splena, penetra, larmiga rideto, sed malgraŭ siaj mimikaj talentoj ŝi devis rezigni. ŝi nur sukcesis fari mienon, kvazaŭ iu pi-kus ŝin per pinglo. La propra rideto de Fanny ja estis gaja, vidigis belbrilajn blankajn dentojn kaj ŝi forgesis ĉiam tro malfrue aldoni mediteman trajton.
-
-
-FANNY
 
 
 Mi scivolas, ĉu la historio pri la porcelanaj sanktulaj figuroj al vi donos malbonan impreson pri sinjorino Brandeis. Kredeble ne, kiam vi pensas pri la maldikaj, preskaŭ blankaj lipoj de ĉi tiu virino, en kiuj manifestiĝis ŝia nevenkebla volo por konkeri el la mondo la vivte-naĵojn por si kaj siaj gefiloj. Ili estis unu semajnon en ĉikago kaj ŝi faris aĉetojn ĉe Bauder kaj Peck. La impor-tistoj Bauder kaj Peck estis mondkonataj kaj verŝajne ne estas usonano, kiu neniam ricevis ian importitan porcelanan aŭ kristalan objekton, francan binoklon, artplenan ludilon, kiu devenis el la grandaj magazenoj de tiu firmo en ĉikago kaj Novjorko.
@@ -236,9 +156,7 @@ La juna Bauder mem servis sinjorinon Brandeis kaj li iom koleris, ĉar li absolu
 
 Sinjorino Brandeis ne longe pripensis. ”Kiom kostas tiu kolekto?” ŝi montris la breton. Bauder mire rigardis.
 
-La figuroj estis altaj de kvin coloj ĝis unu futo, kolorigitaj 22
-
-FANNY
+La figuroj estis altaj de kvin coloj ĝis unu futo, kolorigitaj
 
 
 akre bluaj, ruĝaj kun blanka fono, orumitaj. ĉiuj sanktuloj ĉeestis, diversspecaj, krome lulilo en trogo; estis en-tute proksimume du cent aŭ eĉ pli. ”Tiuj?” demandis la juna Bauder neinteresite, ”ho, tio ja estas nenio por vi.
@@ -261,12 +179,7 @@ Ruboj! Mi eĉ ne sciis, ke ili estas tie.”
 
 ”Ducent,” ripetis sinjorino Brandeis, ”se ne, tiam mi nuligas mian tutan mendon pro tiuj Limoges-figuroj. Mi volas nepre havi ilin.” Kaj ŝi akiris ilin.
 
-Sed tio ne estas la kerno de la rakonto. La figuroj estis bonaj specimenoj de eksterlandaj varoj kaj sub la polvotavolo la koloroj montriĝis klaraj kaj puraj, kiajn oni vidas sur figuroj en eŭropaj preĝejoj. Ili alvenis bonsta-23
-
-FANNY
-
-
-taj al Winnebago, pakitaj en pajlo kaj papero, ĉiam ankoraŭ polvohavaj kaj malpuraj pro konservado. Sinjorino Brandeis, Sadie kaj Pearl sidis sur renversitaj kestoj ĉirkaŭ la kolekto en la magazena ĉambreto malantaŭ la butiko, kie ili ĉiam elpakis la alvenintajn varojn. Aloisio ĉiufoje svingis sin en la keston kaj samfoje aperigis figuron, kiun la virinoj banis en sapakvo, tiel ke fine la tuta societo de sanktuloj, anĝeloj kaj keruboj, dece purigitaj, aspektis freŝa kaj alloga.
+Sed tio ne estas la kerno de la rakonto. La figuroj estis bonaj specimenoj de eksterlandaj varoj kaj sub la polvotavolo la koloroj montriĝis klaraj kaj puraj, kiajn oni vidas sur figuroj en eŭropaj preĝejoj. Ili alvenis bonstataj al Winnebago, pakitaj en pajlo kaj papero, ĉiam ankoraŭ polvohavaj kaj malpuraj pro konservado. Sinjorino Brandeis, Sadie kaj Pearl sidis sur renversitaj kestoj ĉirkaŭ la kolekto en la magazena ĉambreto malantaŭ la butiko, kie ili ĉiam elpakis la alvenintajn varojn. Aloisio ĉiufoje svingis sin en la keston kaj samfoje aperigis figuron, kiun la virinoj banis en sapakvo, tiel ke fine la tuta societo de sanktuloj, anĝeloj kaj keruboj, dece purigitaj, aspektis freŝa kaj alloga.
 
 Aloisio sentis vekiĝi en si siajn irlandajn elpensemon kaj artamon, kiam li ĉiufoje ree malaperis en la keston kaj el ĝi serĉkaptis multkoloran figuron. ”Tio fariĝos belega elmontrejo,” li certigis el la profundo sub la pajlo, dum lia longa korpo kiel kunfaldebla tranĉilo pendis trans la rando de iu kesto, ”kaj malmultekosta!” ĉar li jam tuj antaŭdivenis, kiom estos la vendoprezoj.
 
@@ -279,21 +192,13 @@ Li sternis nigran kreppaperon sur la planko kaj pendigis
 ĝin en grandaj rubandoj, kvazaŭ kurtenoj, sur la muroj.
 
 
-FANNY
-
-
 Kontraŭ tia fono efektive trembrilis la orumitaĵo de la bastonoj kaj laŭrokronoj kaj pli bele kontrastis la viola, ruĝa kaj blua koloroj de la manteloj. La tuto estis spektaklo, okulfrapa per koloro kaj brilo.
 
 Vere, frato Fitzpatrick, tre granda kaj rektestara, bela figuro, kun siaj grizaj haroj kaj knabinece ruĝetaj vangoj, preterpasis la postan matenon survoje al la poŝtoficejo.
 
-Laŭ oniflustro frato Fitzpatrick estis en sia juneco aktoro. Li forlasis seniluziigite la scenejan lumon por la altar-lumo. Nu, la perdo de la drama arto estis malperdo por la preĝejo. Estis absolute aŭskultinde, kiam li dimanĉ-
-
-matene alterne laŭte riproĉas aŭ laŭdegas ilin. Li ĉiam ankoraŭ posedis la flekseblan aktorvoĉon, vibrantan, so-norantan kaj akran laŭ deziro. Neniu fastado aŭ piega-do, malgraŭ sia longa daŭro, povis iam malplifortigi certan ion en liaj okuloj, kio faras dimanĉmatenajn piulojn.
+Laŭ oniflustro frato Fitzpatrick estis en sia juneco aktoro. Li forlasis seniluziigite la scenejan lumon por la altar-lumo. Nu, la perdo de la drama arto estis malperdo por la preĝejo. Estis absolute aŭskultinde, kiam li dimanĉmatene alterne laŭte riproĉas aŭ laŭdegas ilin. Li ĉiam ankoraŭ posedis la flekseblan aktorvoĉon, vibrantan, so-norantan kaj akran laŭ deziro. Neniu fastado aŭ piega-do, malgraŭ sia longa daŭro, povis iam malplifortigi certan ion en liaj okuloj, kio faras dimanĉmatenajn piulojn.
 
 Ne nur li preterpasis ĉi tiun matenon, sed li eĉ turnis sin kaj revenis, restis staranta antaŭ la butiko. ”Sinjorino,” li diris al sinjorino Brandeis, ”vi verŝajne savos per via elmontrejo pli da animoj ol mi povus fari, eĉ se mi predikus unu monaton senĉese pri la purgatorio.” Li levis la manon: ”Vi ricevas la benon de la eklezio.” Kaj tio estis la komenciĝo de stranga amikeco inter la katolika pastro kaj la juda komercistino, kiu daŭris tiom longe, kiom vivis Molly Brandeis.
-
-
-FANNY
 
 
 ĉirkaŭ tagmezo la tuta loĝantaro de Winnebago ŝaj-ne fariĝis pia. La figuroj, kiuj tre moderpreze estis ven-dataj, kvankam ili donis grandan profiton, ŝajnis forfandiĝi de la stabloj. Je la tria sinjorino Brandeis anoncis: ”Oni nur vendos po unu figuro al aĉetanto!” Kelkajn tagojn poste la bela spektaklo malaperis de la fenestra stablo, kaj unu semajnon pli poste nur restis malmultaj figuroj, malpli belaj kaj malpli havindaj . . . la ”malaltrangaj” sanktuloj, ni povus diri.
@@ -301,51 +206,26 @@ FANNY
 Tiun sabatvesperon sinjorino Brandeis faris kalkule-ton sur peco da papero. La kvanto kostis al ŝi ducent dolarojn. ŝi enspezis por ĝi sescent dolarojn. Ses malpli du estas kvar. Kvarcent dolarojn! Kviete ŝi ripetis ĝin. ŝi pensis pri la pluŝa albumo kaj pri la juna Bauder, pri lia sindetenada agmaniero. Kaj tiam superŝutis ŝin bonfara ardo de certeco kaj venko. Kvarcent dolarojn. Ne multe en tempoj de vasta komerco. Sed ja ne estis granda entrepreno, kiun ŝi prezentis al si, estis nur interakta negoceto, sed honesta negoceto kaj samtempe bela, ĉar ĝi donis al Molly Brandeis tiun karan econ: memfidon, kiu naskas sukceson.
 
 
-FANNY
-
-
-ĉAPITRO III.
+ĈAPITRO III.
 
 Printempe la farmistinoj venis por aĉeti ĉe sinjorino Brandeis mastrumilojn kaj kuirilojn kaj la aristokra-taj loĝantoj de Westend por aĉeti la premiojn por siaj vistvesperoj. Konvinkita, ke la favoraj tagoj por ĉiovendejo estas malmultnombraj, ŝi fervoris speciale okupi sin pri merceroj. Estis io kruela en la obstina maniero, en kiu ŝi oferis sin al la afero. ŝi ne estis pli ol tridekokjara, ŝi estis inteligenta, sana kaj gaja, sed neniam ŝi forlasis la butikon. ŝi aŭskultis ĉiun, parolis kun ĉiu kaj lernis multe. ŝi faris al si centojn da amikoj kaj amikoj en komerco valoras kapitalon. La gajanimaj, elegante vestitaj kaj ĉiam flue parolantaj vojaĝistoj rakontis al ŝi siajn zorgojn, por kio ili sidiĝis sekure en la anguleto apud la forno; ili montris al ŝi la portreton de sia fianĉino, kiun ili konservis en sia poŝhorloĝo kaj proponis al ŝi festo-non ĉe Haley. ŝi aŭskultis la rakontojn pri iliaj ĉagrenoj, konsilis ilin; ŝi admiris la portreton de la fianĉino, disdonis utilajn atentigojn pri la solece hejmsidantaj edzinoj de la vojaĝistoj; sed ŝi neniam kuniris festeni ĉe Haley.
 
-ŝi ankaŭ aŭskultis la farmistinojn, la fabriklaboristinojn, kaptis la karajn perlojn, kiuj malofte gutfalis de la aris-27
-
-FANNY
-
-
-tokratinaj lipoj el Westend. Estis io en ŝiaj brunaj okuloj, en ŝia rekta, inteligenta nazo, kio naskis fidon, kaj neniu vidis en ŝi ion de tiu preskaŭ kruela obstineco, kiun ŝi havis, ne povis ne posedi, ĉar alie ŝi ne estus povinta kontraŭstari tiujn seniluziigojn, elteni la penadon, la pezan batalon de la vivo.
+ŝi ankaŭ aŭskultis la farmistinojn, la fabriklaboristinojn, kaptis la karajn perlojn, kiuj malofte gutfalis de la aristokratinaj lipoj el Westend. Estis io en ŝiaj brunaj okuloj, en ŝia rekta, inteligenta nazo, kio naskis fidon, kaj neniu vidis en ŝi ion de tiu preskaŭ kruela obstineco, kiun ŝi havis, ne povis ne posedi, ĉar alie ŝi ne estus povinta kontraŭstari tiujn seniluziigojn, elteni la penadon, la pezan batalon de la vivo.
 
 Oni povas doni de la plimulto de la familioj puran bildon kontraŭ la fono de ilia hejmo, sed koncerne la familion Brandeis la butiko estis la spino de la hejmo. La manĝo-, distro- kaj dormo-tempoj estis fiksitaj laŭ la butiko. Ili ĉiuj lernis multe per la butiko, vivis per la butiko kaj al ili mankis multo pro la butiko. Fanny Brandeis ĉiam diris, ke ŝi malamas la butikon, sed la butiko faris ŝin prudenta, tolerema kaj poste fama. Ja de kiu ajn entrepreno oni povus pli atendi. La butiko kontaktigis ŝin kun viroj kaj virinoj kaj instruis ŝin interrilati kun ili. Reveninte el la lernejo, ŝi ofte vizitis sian patrinon, dum Teodoro iris hejmen por ekzerci kaj sidante sur tabure-to, ŝi aŭskultis kaj asimilis. Estis bonega instruado por la impresiĝema, inteligenta kaj dramece sentema juda knabino.
 
-Estis proksimume la tempo, kiam Fanny Brandeis ekkonsciis, ke ŝi estas malsama kompare kun aliaj. Nu, jes, la patrinoj de aliaj knabinoj en Winnebago kompreneble ne laboris en butiko kiel viro. Kaj ŝi kaj Bella Weinberg estis tiuj du el la klaso, kiuj ne iris al la lernejo en 28
-
-FANNY
+Estis proksimume la tempo, kiam Fanny Brandeis ekkonsciis, ke ŝi estas malsama kompare kun aliaj. Nu, jes, la patrinoj de aliaj knabinoj en Winnebago kompreneble ne laboris en butiko kiel viro. Kaj ŝi kaj Bella Weinberg estis tiuj du el la klaso, kiuj ne iris al la lernejo en
 
 
 la Granda Sabato, la Novjartagoj kaj en la malpli gravaj judaj festotagoj. ŝi ja iris al preĝejo en vendredvesperoj kaj sabatomatenoj, dum aliaj knabinoj, kiujn ŝi konis, iris dimanĉe al la preĝejo. Pro ĉio tio ŝi stariĝis iom aparta en la malgranda mezokcidenta urbo, sed ankaŭ estis alia diferenco. ŝi ludis, dormis kaj manĝis, lernis siajn lecionojn kiel tiuj aliaj samaĝaj ulinoj. La efektiva diferenco troviĝis ĉu en la temperamento, ĉu en la sentimento aŭ en la drameca sentemo aŭ en la historiamo, eble en ĉiuj kvar ecoj. Ekzemple, la infanoj estis ludantaj en unu el la varmetaj, ombroplenaj valetoj, kiuj estis la belaj lokoj ĉirkaŭ la urbeto. Tiuj valetoj kuŝis kiel nestoj, ŝir-mataj de la montoj kaj la urbana libervolo ankoraŭ ne kovris ilin per malplenaj skatoloj, ladaj legomujoj, cindro, malpuraĵo kaj forĵetindaĵoj, por poste vendi ilin kiel konstruterenon. La indianoj siatempe kampis kaj ĉasis tie. Precipe la valeto sub la Courtstrat-ponto apud la katolikaj preĝejo kaj pastrejo estis preferata ludejo. i kuŝis tie dormanta kaj gracia ĉe la piedo de la varmega urbeto, tute verda, sukplene freŝa; rivereto serpentume-tis tra ĝi. La dikaj kapucenaj fratoj en siaj krudaj, brunaj roboj, tenataj ĉe la talio per ŝnuro, sur sandaloj, venis promeni aŭ sin dorloti en la sunbrilo sur ŝtona benko, ne tre malproksime de la monaęjo sur la montdeklivo.
 
-Kaj tiam okazis foje, ke Fanny meze de kurludado haltis, trafita de bildo, kiun la nuntempo donis pri la pasin-29
-
-FANNY
-
-
-teca. Kun sia orienta karaktero ŝi povis kombini la sekan tekston de sia historilibro kun la verdaĵo de la arboj, la grizaĵo de la preĝejo kaj la brunaĵo de la monaąj roboj, ŝi kreis el tiu kombinaĵo vivantan bildon. La kurludo kaj ŝiaj bruantaj kamaradoj malaperis kaj ŝi vidis en la bildo de sia imago singarde ŝtelirantajn indianojn, kiuj ardis pro kuraĝego kaj batalemo. Ili estis tute malsimilaj al la ĉifonaj, aĉaj oneidoj kun ilia haladzo, kiuj venis some-re frumatene al la malantaŭaj pordoj en ŝiritaj katunaj kiteloj kun korbetoj da virteloj; ili estis kadukiĝintaj estaĵoj de subpremata kaj venkita popolo. ŝi vidis sova-
+Kaj tiam okazis foje, ke Fanny meze de kurludado haltis, trafita de bildo, kiun la nuntempo donis pri la pasinteca. Kun sia orienta karaktero ŝi povis kombini la sekan tekston de sia historilibro kun la verdaĵo de la arboj, la grizaĵo de la preĝejo kaj la brunaĵo de la monaąj roboj, ŝi kreis el tiu kombinaĵo vivantan bildon. La kurludo kaj ŝiaj bruantaj kamaradoj malaperis kaj ŝi vidis en la bildo de sia imago singarde ŝtelirantajn indianojn, kiuj ardis pro kuraĝego kaj batalemo. Ili estis tute malsimilaj al la ĉifonaj, aĉaj oneidoj kun ilia haladzo, kiuj venis some-re frumatene al la malantaŭaj pordoj en ŝiritaj katunaj kiteloj kun korbetoj da virteloj; ili estis kadukiĝintaj estaĵoj de subpremata kaj venkita popolo. ŝi vidis sova-
 
 ĝajn, liberajn, majestajn indianojn kaj inter ili ne estis grasaĵaj oneidoj. Ili estis siuks-idoj kaj potavaton-idoj (tio sonas vere indiane), winnebag-idoj, menomon-idoj, utagam-idoj. Ili estis silentemaj indianoj kun brilaj okuloj kaj elastaj korpoj kaj rapidaj piedoj kaj kun ĉiaj eblaj ecoj, kiujn oni povus indiki per adjektivoj, elpenseblaj per sia fantazio kaj helpe de la historilibro.
 
-La dikaj, pacamaj kapucenoj sur la montodeklivo fariĝis jezuitoj, timtremigaj, misteraj, potencaj, subtena-taj de Francujo kaj la Roma eklezio. De malantaŭ tiu dika kverko en ĉiu momento povus aperi Nicolet, la ku-raĝa, kiu estis la unua, kiu esploris Wisconsinon kaj la lasta, por kiu temis pri merito pro aŭdacplena vivo, Jean Nicolet! ŝi amis la sonon de tiu nomo. Kun li estis La Salle, rektestara, svelta kaj gracia, kiu kompreneble por-30
+La dikaj, pacamaj kapucenoj sur la montodeklivo fariĝis jezuitoj, timtremigaj, misteraj, potencaj, subtena-taj de Francujo kaj la Roma eklezio. De malantaŭ tiu dika kverko en ĉiu momento povus aperi Nicolet, la ku-raĝa, kiu estis la unua, kiu esploris Wisconsinon kaj la lasta, por kiu temis pri merito pro aŭdacplena vivo, Jean Nicolet! ŝi amis la sonon de tiu nomo. Kun li estis La Salle, rektestara, svelta kaj gracia, kiu kompreneble portis faldmanumojn kaj plumojn sur la ĉapelo, belan gla-von, eĉ kiam li veturvagis en kanoto. Kaj jen estis Tonty, lia indiana amiko kaj kunvagulo, Tonty, la viro en atlaso kaj veluro, eleganta, taktplena, sambrava — cetere iom mistera figuro — kun sia minaca, fera mano, tiam timata de la malkleraj sovaĝuloj, ĉiam kovrata per ganto. Kompreneble estis parfumita ganto . . .
 
-FANNY
-
-
-tis faldmanumojn kaj plumojn sur la ĉapelo, belan gla-von, eĉ kiam li veturvagis en kanoto. Kaj jen estis Tonty, lia indiana amiko kaj kunvagulo, Tonty, la viro en atlaso kaj veluro, eleganta, taktplena, sambrava — cetere iom mistera figuro — kun sia minaca, fera mano, tiam timata de la malkleraj sovaĝuloj, ĉiam kovrata per ganto. Kompreneble estis parfumita ganto . . .
-
-Bum! Maldelikata puŝo, kiu klinegis ŝian kapon malantaŭen kaj preskaŭ faligis ŝin antaŭen, trafis ŝin. ”Hop, jen, tuŝita, via vico, Fanny devas persekuti!” Indianoj, jezuitoj, kavaliroj, arbaregvagistoj, ĉiuj foriĝis subite, Fanny tiam staris momenton konsternita, sed tuj poste ŝi kuregis jam refoje rapide kiel la plej lerta knabo, persekutis unu el la kunludantoj, tute entuziasma por la ludo mem. ŝi estis stranga miksaĵo de petolemulino kaj libromaniulino — cetere bonega kombinaĵo, kaj por la menso kiel por la korpo. ŝia spirito ĉiam palpis, serĉis kaj provis, kiel oni renkontas plej ofte en knabinoj kun eksterordinare fantazia spirito kaj patrino labore tre okupita. Tiu serĉado kaj palpado kaŭzis en iu Granda Sabato (jude: Jam Kippur) post la morto de ŝia patro, memorindan okazaĵon. Neniam estis permesite al Fanny fasti en tiu tago, la plej grava kaj solena el ĉiuj judaj festotagoj. Molly Brandeis kun sia moderna spirito ne povis decidi instigi al la infanoj sin deteni de ĉiu nutraĵo dum tuta tago. Fanny do sciis, ke ŝia patrino ne konsen-31
-
-FANNY
-
-
-tos, kiam ŝi, formanĝinte grandan kvanton da bifsteko kaj frititaj terpomoj, konigis sian intencon post ĉi tiu manĝo fasti ĝis la sekvonta tago. Dirante tion, ŝi ĝuste prezentis sian teleron por tria porcio da terpomoj. Kaj Teodoro, kiu ĵus sukcesis malplenigi sian unuan teleron, protestis indignite.
+Bum! Maldelikata puŝo, kiu klinegis ŝian kapon malantaŭen kaj preskaŭ faligis ŝin antaŭen, trafis ŝin. ”Hop, jen, tuŝita, via vico, Fanny devas persekuti!” Indianoj, jezuitoj, kavaliroj, arbaregvagistoj, ĉiuj foriĝis subite, Fanny tiam staris momenton konsternita, sed tuj poste ŝi kuregis jam refoje rapide kiel la plej lerta knabo, persekutis unu el la kunludantoj, tute entuziasma por la ludo mem. ŝi estis stranga miksaĵo de petolemulino kaj libromaniulino — cetere bonega kombinaĵo, kaj por la menso kiel por la korpo. ŝia spirito ĉiam palpis, serĉis kaj provis, kiel oni renkontas plej ofte en knabinoj kun eksterordinare fantazia spirito kaj patrino labore tre okupita. Tiu serĉado kaj palpado kaŭzis en iu Granda Sabato (jude: Jam Kippur) post la morto de ŝia patro, memorindan okazaĵon. Neniam estis permesite al Fanny fasti en tiu tago, la plej grava kaj solena el ĉiuj judaj festotagoj. Molly Brandeis kun sia moderna spirito ne povis decidi instigi al la infanoj sin deteni de ĉiu nutraĵo dum tuta tago. Fanny do sciis, ke ŝia patrino ne konsentos, kiam ŝi, formanĝinte grandan kvanton da bifsteko kaj frititaj terpomoj, konigis sian intencon post ĉi tiu manĝo fasti ĝis la sekvonta tago. Dirante tion, ŝi ĝuste prezentis sian teleron por tria porcio da terpomoj. Kaj Teodoro, kiu ĵus sukcesis malplenigi sian unuan teleron, protestis indignite.
 
 ”Kion vi nun faras, vi ne estas la sola ŝatanto de frititaj terpomoj, ne pensu tion!”
 
@@ -364,44 +244,25 @@ Sinjorino Brandeis rigardis sian filineton kun interesiĝo. ”Sed tio ne estas 
 ”Tion mi ne faros,” protestis Fanny emfaze. ”Tion farus Teodoro, sed ne mi!”
 
 
-FANNY
-
-
 ”Tion mi tute ne farus,” certigis Teodoro, ”sed se mi devos ludi violonsolon en la memoriga servo, mi bezonas mian kutiman porcion, mi pensas.”
 
-Teodoro nome ludis kelkokaze en la sinagogo. Kaj la malgranda religianaro nur havis neklaran komprenon pri tio, ke estas io konfuze kaj kortuŝe bela en la pulsan-taj plifortiĝo kaj malfortiĝo de lia ludado. Ili ne sciis, ke estas io genia, kion ili aŭdis. Tiun ĉi antaŭsabatan vesperon de la grava tago Molly Brandeis iris al la preĝejo, modeste vestita, kun siaj gefiloj flanke de si. ŝi decidis ne tro embarasiĝi pro la kortuŝe bela diservo de la sekvonta tago. Estis la unua Granda Sabato post la morto de la edzo kaj ĝuste la memoriga servo okazonta je la tria posttagmeze, estis la fierindaĵo de rabeno Thallmann. ĉi tiu rabeno Thallmann estis klerulo, brava mildanima viro. Sed lia kongregacio ne multe ŝatis lin. Li ĉerpis siajn tekstojn el la biblio, ĉar li trovis Moseon pli granda gvidanto ol Roosevelt kaj la miraklo de la brulanta rubus-arbaro estis liaopinie pli mirinda ol la mirakloj de la du-dekjarcentaj tekniko kaj elektro. Li estis malgranda viro kaj liaj manoj kaj piedoj ne estis malpli delikataj kaj malgrandaj ol tiuj de virino. Fanny ĉiam ĝuis, rigardante lin en lia rabena togo, portanta ambaŭ okulvitrojn sur sia maldika nazeto, kiam li legis. En la katedro li staris tute rekta, sed surstrate oni povus vidi, ke lia dorso estas kurba — estas eble, ke tion nur kaŭzis, ke li ĉiam medi-33
-
-FANNY
-
-
-tante iris tra la stratoj, la rigardon teren, kaj ke li fumis siajn maldikajn, amuze helbrunajn cigaretojn, kiuj estis kvazaŭ speciale fabrikitaj por li.
+Teodoro nome ludis kelkokaze en la sinagogo. Kaj la malgranda religianaro nur havis neklaran komprenon pri tio, ke estas io konfuze kaj kortuŝe bela en la pulsan-taj plifortiĝo kaj malfortiĝo de lia ludado. Ili ne sciis, ke estas io genia, kion ili aŭdis. Tiun ĉi antaŭsabatan vesperon de la grava tago Molly Brandeis iris al la preĝejo, modeste vestita, kun siaj gefiloj flanke de si. ŝi decidis ne tro embarasiĝi pro la kortuŝe bela diservo de la sekvonta tago. Estis la unua Granda Sabato post la morto de la edzo kaj ĝuste la memoriga servo okazonta je la tria posttagmeze, estis la fierindaĵo de rabeno Thallmann. ĉi tiu rabeno Thallmann estis klerulo, brava mildanima viro. Sed lia kongregacio ne multe ŝatis lin. Li ĉerpis siajn tekstojn el la biblio, ĉar li trovis Moseon pli granda gvidanto ol Roosevelt kaj la miraklo de la brulanta rubus-arbaro estis liaopinie pli mirinda ol la mirakloj de la du-dekjarcentaj tekniko kaj elektro. Li estis malgranda viro kaj liaj manoj kaj piedoj ne estis malpli delikataj kaj malgrandaj ol tiuj de virino. Fanny ĉiam ĝuis, rigardante lin en lia rabena togo, portanta ambaŭ okulvitrojn sur sia maldika nazeto, kiam li legis. En la katedro li staris tute rekta, sed surstrate oni povus vidi, ke lia dorso estas kurba — estas eble, ke tion nur kaŭzis, ke li ĉiam meditante iris tra la stratoj, la rigardon teren, kaj ke li fumis siajn maldikajn, amuze helbrunajn cigaretojn, kiuj estis kvazaŭ speciale fabrikitaj por li.
 
 La vesperservo komenciĝis je la sepa. La kongregaci-anoj de ĉiuj flankoj iris al la preĝejo, vestitaj per krakanta silko. Interne estis obtuza zumado de voĉoj. La loko de la familio Brandeis estis malantaŭe, kiel decas al malpli bonstataj anoj de la riĉa kongregacio. Sed pro tio ili akiris belan vidaĵon trans la orname vestita ĉeestantaro.
 
-Fanny, kun siaj brilaj okuloj, ĝuis multe. La senornamaj, flave lakitaj benkoj brilis pro la reflektado de la lamplumo. La sepbrakaj kandelabroj ambaŭflanke de la pre-dikejo estis ornamitaj per hedero. Anstataŭ la ruĝpluŝa kurteno, kiu pendis en ordinaraj tagoj antaŭ la Kesto de Interligo kaj la ruĝpluŝa katedrotuko, oni metis tukojn el blanka, brilanta atlaso, borderita de ora franĝo kaj kun pezaj orumitaj kvastoj ĉe la anguloj. Kiel brilis la blanka atlaso en la elektra lumo! Fanny Brandeis ĉiam estis ravata de tiom da lumo, da brilado kaj de la solena muziko, raviĝis pro la malgranda rabeno, atente sidanta kontraŭ la alta apogilo de sia seĝo aŭ staranta, kiam li legis en la granda biblio. ĉio ĉi vekis en ŝi emociiĝon, kiu, mi timas, ne ekestis pro religia fervoro. Estis precipe la drameco en la tuta afero, kiu kaptis ŝin. Kaj ankaŭ la devo, per kiu ŝi ŝarĝis sin tiun tagon, nur malmulte koncernis religion. Sinjorino Brandeis ja komprenis tion 34
-
-FANNY
+Fanny, kun siaj brilaj okuloj, ĝuis multe. La senornamaj, flave lakitaj benkoj brilis pro la reflektado de la lamplumo. La sepbrakaj kandelabroj ambaŭflanke de la pre-dikejo estis ornamitaj per hedero. Anstataŭ la ruĝpluŝa kurteno, kiu pendis en ordinaraj tagoj antaŭ la Kesto de Interligo kaj la ruĝpluŝa katedrotuko, oni metis tukojn el blanka, brilanta atlaso, borderita de ora franĝo kaj kun pezaj orumitaj kvastoj ĉe la anguloj. Kiel brilis la blanka atlaso en la elektra lumo! Fanny Brandeis ĉiam estis ravata de tiom da lumo, da brilado kaj de la solena muziko, raviĝis pro la malgranda rabeno, atente sidanta kontraŭ la alta apogilo de sia seĝo aŭ staranta, kiam li legis en la granda biblio. ĉio ĉi vekis en ŝi emociiĝon, kiu, mi timas, ne ekestis pro religia fervoro. Estis precipe la drameco en la tuta afero, kiu kaptis ŝin. Kaj ankaŭ la devo, per kiu ŝi ŝarĝis sin tiun tagon, nur malmulte koncernis religion. Sinjorino Brandeis ja komprenis tion
 
 
 ĝuste. i estis planita kiel eltenprovo. Fanny en sia plen-sana ekzistado neniam fastis. Reveninte el la lernejo, ŝi forkonsumis amaseton da buterpanoj kun bruna sukero aŭ pomsiropo, prenis kelkajn pomojn el la barelo en la kelo kiel deserton. Du horojn poste ŝi atakis la tagmanĝon el frititaj terpomoj kun hepato, teo, persika konfitaĵo, poste denove porcion da buterpanoj. Kaj ni nun ne menciis la ĉerizujojn en la ĝardeno kaj la ber-arbustojn, ni eĉ ne tuŝis la saketojn kun ĉiaj frandaĵoj sukeraj, kiuj tiel bonege taŭgas por nerimarkita uzado en la lernejo.
 
 Bella Weinberg ne malpli ol Fanny Brandeis ŝatis multaj manĝindaĵoj, kvankam ŝi estis nur blondulino kun kremsimila koloro. Dum la vesperservo la du knabinoj intersanĝis daŭre signojn de interkompreniĝo. La Wein-berganoj sidis, konforme al sia rango, en la tria vico dekstre, kaj Bella devis turnadi sin por doni signon al Fanny. La vesperservo daŭris nur mallonge. Rabeno Thallmann same kiel la urbanoj volis ŝpari fortojn por la sekvonta tago. Sinjorino Brandeis promenis en la prem-varmeta septembra vespero hejmen kun siaj idoj, kiuj penis konser vi sian Jam-Kippuran dignecon, ne surtre-tante provente kolektiĝintan amason da sekaj aŭtunfo-lioj.
 
-Teodoro iris rekte al la kelo kaj serĉis pomon, kiun li manĝis, laŭ Fanny, kun multe da superflua ŝmacado. Estis 35
-
-FANNY
+Teodoro iris rekte al la kelo kaj serĉis pomon, kiun li manĝis, laŭ Fanny, kun multe da superflua ŝmacado. Estis
 
 
-granda sukplena pomo, kiu krakis, kiam Teodoro enfosis siajn dentojn. Fanny rigardis tion kun aplombo de mal-estima supereco kaj iris en la liton. ŝi intencis longe dormi, pro gastronomiaj konsideroj, sed la korpo ne kapablis obei la menson kaj ŝi frue vekiĝis kun peza sento. Sed malgraŭ la frua horo Molly Brandeis estis jam momenton suprenirinta por rigardi sian strangan filineton. ŝi faris tion pli ol unu fojon sabate, kiam ŝi frumatene iris al la butiko kaj Fanny longe dormis. La haroj de Fanny kuŝis sternitaj sur la kuseno, unu brako estis etendita, la dua sur la brusto. Estis ĉarmega bildo en nigra, blanka kaj ruĝeta koloroj, kiam ŝi kuŝis dormanta. Fanny mem ofte faris tiajn desegnaĵojn kun grandaj, akraj kolorfakoj. Sinjorino Brandeis rigardis la infanon kun siaj nigraj haroj kaj ruĝaj lipoj kaj ŝi refoje vidis tiun decideman ion en la formo de la blanka frunto. ŝi malmulte diris pri la plano de Fanny fasti, ŝi ne konsentis pri ĝi, sed enkore ŝi esperis, ke la infano persistos, kion ŝi unufoje komencis. Fanny vekiĝis duonon post la sepa kaj ŝiaj nazoloboj tremetis pro la tenta, agrabla odoro de freŝa kafo. La domo estis plenigita de tiu odoro, kiu incitis la sentojn kaj vekis viziojn pri varmaj, brunbakitaj bulkoj, ovoj kaj butero. Precipe la matenmanĝo estis tiel bongusta manĝo! Fanny turnis sin kaj intencis reekdormi, sed ŝi ne sukcesis. ŝi ellitiĝis, vestis sin malrapide kaj zorge. Neniu nun estis, kiu rapidigis ŝin per voko: ”Fanny! Via ovo malvarmiĝas,” malsupre de la ŝtu-36
+granda sukplena pomo, kiu krakis, kiam Teodoro enfosis siajn dentojn. Fanny rigardis tion kun aplombo de mal-estima supereco kaj iris en la liton. ŝi intencis longe dormi, pro gastronomiaj konsideroj, sed la korpo ne kapablis obei la menson kaj ŝi frue vekiĝis kun peza sento. Sed malgraŭ la frua horo Molly Brandeis estis jam momenton suprenirinta por rigardi sian strangan filineton. ŝi faris tion pli ol unu fojon sabate, kiam ŝi frumatene iris al la butiko kaj Fanny longe dormis. La haroj de Fanny kuŝis sternitaj sur la kuseno, unu brako estis etendita, la dua sur la brusto. Estis ĉarmega bildo en nigra, blanka kaj ruĝeta koloroj, kiam ŝi kuŝis dormanta. Fanny mem ofte faris tiajn desegnaĵojn kun grandaj, akraj kolorfakoj. Sinjorino Brandeis rigardis la infanon kun siaj nigraj haroj kaj ruĝaj lipoj kaj ŝi refoje vidis tiun decideman ion en la formo de la blanka frunto. ŝi malmulte diris pri la plano de Fanny fasti, ŝi ne konsentis pri ĝi, sed enkore ŝi esperis, ke la infano persistos, kion ŝi unufoje komencis. Fanny vekiĝis duonon post la sepa kaj ŝiaj nazoloboj tremetis pro la tenta, agrabla odoro de freŝa kafo. La domo estis plenigita de tiu odoro, kiu incitis la sentojn kaj vekis viziojn pri varmaj, brunbakitaj bulkoj, ovoj kaj butero. Precipe la matenmanĝo estis tiel bongusta manĝo! Fanny turnis sin kaj intencis reekdormi, sed ŝi ne sukcesis. ŝi ellitiĝis, vestis sin malrapide kaj zorge. Neniu nun estis, kiu rapidigis ŝin per voko: ”Fanny! Via ovo malvarmiĝas,” malsupre de la ŝtuparo. ŝi surmetis purajn, susurantajn subvestojn kaj tre atentis sian hararon. Por ne fuŝi sian novan silkan veston antaŭ la tempo por iri en preĝejon, ŝi surmetis grandan antaŭtukon, kiu aspektis kvazaŭ jupo. ŝi supozis, ke Teodoro jam estos preta per la matenmanĝo. Sed malsupren-veninte, ŝi vidis lin sidanta ĉe la tablo, ĵus komencinta.
 
-FANNY
-
-
-paro. ŝi surmetis purajn, susurantajn subvestojn kaj tre atentis sian hararon. Por ne fuŝi sian novan silkan veston antaŭ la tempo por iri en preĝejon, ŝi surmetis grandan antaŭtukon, kiu aspektis kvazaŭ jupo. ŝi supozis, ke Teodoro jam estos preta per la matenmanĝo. Sed malsupren-veninte, ŝi vidis lin sidanta ĉe la tablo, ĵus komencinta.
-
-Ovo, orflava kaj blanka kun fritbrunaj randokrustoj kuŝis sur lia telero. Teodoro manĝis sian ovon kutime pli-malpli laŭ matematika sistemo. Unue li rapide manĝis la blankaĵon, kiun li ne ŝatis, sed sinjorino Brandeis postulis, ke li manĝu ĝin. Poste li sidis en adoro antaŭ la flavaĵo, kiu kuŝis kompleta kaj netuŝita en la mezo de lia telero, kvazaŭ sukcena, ambra juvelo. Tiam li subite metis sian forkon en la koron de la juvelo, tiel ke la flavaĵo disfluis sur la telero, miksiĝis kun la butero kaj en tiun miksaĵon li trempis la varmajn freŝpanajn krustojn. Fanny preterpasis la tablon, ĝuste kiam Teodoro trapikis la flavaĵon. ŝi retenis la spiron kaj fermis la okulojn. Post tio ŝi fuĝis al la antaŭpordo kaj enspiris avide kaj profunde la fortigan venton, tian, kia blovas en septembraj matenoj en Wisconsin. Tia, kiel ŝi staris tie kun siaj rigidaj, mallongaj, nigraj, ankoraŭ malseke brilantaj bukloj, kun siaj festotagaj ŝuoj kaj ŝtrumpoj, sia fortika, akre konturiĝanta figureto en la ĉiokovranta antaŭtuko, la brilon pro batalo kaj obstineco en siaj trajtoj, ŝi estis tipo de surtera beleco. Sed la vera batalo venos nur poste. Ili iris je la deka 37
-
-FANNY
+Ovo, orflava kaj blanka kun fritbrunaj randokrustoj kuŝis sur lia telero. Teodoro manĝis sian ovon kutime pli-malpli laŭ matematika sistemo. Unue li rapide manĝis la blankaĵon, kiun li ne ŝatis, sed sinjorino Brandeis postulis, ke li manĝu ĝin. Poste li sidis en adoro antaŭ la flavaĵo, kiu kuŝis kompleta kaj netuŝita en la mezo de lia telero, kvazaŭ sukcena, ambra juvelo. Tiam li subite metis sian forkon en la koron de la juvelo, tiel ke la flavaĵo disfluis sur la telero, miksiĝis kun la butero kaj en tiun miksaĵon li trempis la varmajn freŝpanajn krustojn. Fanny preterpasis la tablon, ĝuste kiam Teodoro trapikis la flavaĵon. ŝi retenis la spiron kaj fermis la okulojn. Post tio ŝi fuĝis al la antaŭpordo kaj enspiris avide kaj profunde la fortigan venton, tian, kia blovas en septembraj matenoj en Wisconsin. Tia, kiel ŝi staris tie kun siaj rigidaj, mallongaj, nigraj, ankoraŭ malseke brilantaj bukloj, kun siaj festotagaj ŝuoj kaj ŝtrumpoj, sia fortika, akre konturiĝanta figureto en la ĉiokovranta antaŭtuko, la brilon pro batalo kaj obstineco en siaj trajtoj, ŝi estis tipo de surtera beleco. Sed la vera batalo venos nur poste. Ili iris je la deka
 
 
 al la preĝejo, Teodoro kun sia amata violono, premita sub la brako. Bella Weinberg atendis apud la enirejo.
@@ -416,18 +277,14 @@ al la preĝejo, Teodoro kun sia amata violono, premita sub la brako. Bella Weinb
 
 ”Ne!” tre akcente.
 
-Ili eniris la preĝejon, al siaj lokoj. Estis beleta vidaĵo: la enirado de la urbanoj, la virinoj susurantaj, la viroj mallertaj pro la nekutima soleneco de nigraj vestoj en labortago. Unu rigardo super la flavaj benkoj donis kompletan trarigardon pri la socia kaj financa katalogoj de la kunvenantoj. La klasifiko de la lokoj estis la Gotha alma-nako de la kongregacio. La maljuna Ben Reitmann, la patriarko de la juda kolonio de Winnebago, kiu venis kiel juna enmigranto kaj kiu nun posedis centojn da hektaroj da fruktodona tero, multajn domojn, fabrikojn kaj bankojn, estis la reĝo, kiu pretendis sian tronon sur la plej antaŭa sidloko en la mezo. Li estis belega tipo de maljunulo kun ruĝetkolora vizaĝo, karakteriza kapo kun densaj, grizaj haroj, klaraj okuloj, kiuj ne perdis sian brilon pro maljuniĝo kaj kun surpriza kaveto en unu el siaj vangoj, kiu donis al li petolan, knabecan aspekton. Malantaŭ ĉi tiu altrangulo sidis liaj filoj kun siaj edzinoj kaj 38
-
-FANNY
+Ili eniris la preĝejon, al siaj lokoj. Estis beleta vidaĵo: la enirado de la urbanoj, la virinoj susurantaj, la viroj mallertaj pro la nekutima soleneco de nigraj vestoj en labortago. Unu rigardo super la flavaj benkoj donis kompletan trarigardon pri la socia kaj financa katalogoj de la kunvenantoj. La klasifiko de la lokoj estis la Gotha alma-nako de la kongregacio. La maljuna Ben Reitmann, la patriarko de la juda kolonio de Winnebago, kiu venis kiel juna enmigranto kaj kiu nun posedis centojn da hektaroj da fruktodona tero, multajn domojn, fabrikojn kaj bankojn, estis la reĝo, kiu pretendis sian tronon sur la plej antaŭa sidloko en la mezo. Li estis belega tipo de maljunulo kun ruĝetkolora vizaĝo, karakteriza kapo kun densaj, grizaj haroj, klaraj okuloj, kiuj ne perdis sian brilon pro maljuniĝo kaj kun surpriza kaveto en unu el siaj vangoj, kiu donis al li petolan, knabecan aspekton. Malantaŭ ĉi tiu altrangulo sidis liaj filoj kun siaj edzinoj kaj
 
 
 liaj filinoj kun siaj edzoj kaj gefiloj, malantaŭ ili la Wein-berganoj ktp. ĝis Molly Brandeis kun siaj infanoj en la tria benko de malantaŭe. Sekvis nur kelkaj dubrangaj familioj, stampitaj kiel ”rusoj” — kiel nur la germanna-skita judo povas brulstampi iun, kiu malfeliĉe naskiĝis en la vasta regiono, enlimigata per la nomo ĝenerala
 
 ”preterberlina.”
 
-La mateno preterpasis kun sia muziko, siaj respond-kantoj, la germanlingva prediko, plena de kvar aŭ kvin-silabaj germanaj vortoj, kiaj ”Barmherzigkeit” kaj ”Eigentümlichkeit”. Dum la prediko Fanny sidis reve rigardanta la ombron sur la fenestro pro la pinarbo flanke de la preĝejo aŭ ŝi amuzis sin per la fiŝeca vizaĝo de la ri-dinde ornamita sinjorino Nathan Pereles, kiun ĝuste kaptis lumradio tra la flava vitro. De tempo al tempo Bella rigardis malantaŭ sin kaj prenis mienon, kiu klopodis esprimi profundan suferadon, sed samtempe ĝis-mortan senŝancelemon. Fanny absolute ignoris ĉi tiujn senvortajn komunikojn. Ili ekscitis ŝin, kvankam ŝi ne povus diri kial. En la tempo inter la matena kaj posttagmeza diservoj, ŝi ne iris hejmen, kie estis tento en formo de manĝaja odoro, sed ŝi promenis tra la urba parketo, laŭlonge de la rivero, kie ŝi sidiĝis por senti sin tre vir-ta, religia kaj malplenstomaka. Kiam la posttagmeza servo komenciĝis, ŝi refoje sidis sur sia loko. Kelkaj piuloj estis restintaj por preĝi. Sed la plimulto de ili foriris 39
-
-FANNY
+La mateno preterpasis kun sia muziko, siaj respond-kantoj, la germanlingva prediko, plena de kvar aŭ kvin-silabaj germanaj vortoj, kiaj ”Barmherzigkeit” kaj ”Eigentümlichkeit”. Dum la prediko Fanny sidis reve rigardanta la ombron sur la fenestro pro la pinarbo flanke de la preĝejo aŭ ŝi amuzis sin per la fiŝeca vizaĝo de la ri-dinde ornamita sinjorino Nathan Pereles, kiun ĝuste kaptis lumradio tra la flava vitro. De tempo al tempo Bella rigardis malantaŭ sin kaj prenis mienon, kiu klopodis esprimi profundan suferadon, sed samtempe ĝis-mortan senŝancelemon. Fanny absolute ignoris ĉi tiujn senvortajn komunikojn. Ili ekscitis ŝin, kvankam ŝi ne povus diri kial. En la tempo inter la matena kaj posttagmeza diservoj, ŝi ne iris hejmen, kie estis tento en formo de manĝaja odoro, sed ŝi promenis tra la urba parketo, laŭlonge de la rivero, kie ŝi sidiĝis por senti sin tre vir-ta, religia kaj malplenstomaka. Kiam la posttagmeza servo komenciĝis, ŝi refoje sidis sur sia loko. Kelkaj piuloj estis restintaj por preĝi. Sed la plimulto de ili foriris
 
 
 kaj jen revenis duope, triope. Multaj virinoj anstataŭigis la ornamaĵon de la mateno, en kiu ili estis enpremitaj, per pli simpla vesto, kvankam ĝi estis ankaŭ el silko.
@@ -442,12 +299,7 @@ Fanny kaj Bella renkontiĝis mokridetante en la vestiblo.
 
 La domo, granda kaj komforta, bele konstruita, kun ĉirkaŭanta verando kaj bone prizorgata gazono, estis tuj apude. Ili transiris la straton kaj trairis la malantaŭan pordon. En la granda sunplena kuirejo estis neniu. Estis tute kviete en la domo. Estis odoro de freŝa bakitaĵo.
 
-Bella kun mieno de tentata senkulpulino, kuntrenis Fanjon al la provizoĉambro, kiu estis granda kiel mezgran-da kuirejo. Tie staris sur pladoj kaj ladaj platoj, sur pu-40
-
-FANNY
-
-
-raj blankaj buŝtukoj aro da bongustaĵoj, kompare kun kiuj tiuj, proponitaj al Tantalo, estis nur bagatelo.
+Bella kun mieno de tentata senkulpulino, kuntrenis Fanjon al la provizoĉambro, kiu estis granda kiel mezgran-da kuirejo. Tie staris sur pladoj kaj ladaj platoj, sur puraj blankaj buŝtukoj aro da bongustaĵoj, kompare kun kiuj tiuj, proponitaj al Tantalo, estis nur bagatelo.
 
 En la antikvaj judaj familioj estas kutimo komenci la vespermanĝon post plentaga sindetenado per kafo kaj ĉiuspecaj kukoj. Tio kuŝas kvazaŭ plumbo en la stomako, sed estas eksterordinare bongusta. La patrino de Bella povis senegale kuiri kaj instruis la du servistinojn same bone pri la kuirarto. ĉi tiun vesperon la gefratoj kaj parencoj eksterurbaj faros viziton kaj sinjorino Weinberg superis sin mem.
 
@@ -455,9 +307,7 @@ En la antikvaj judaj familioj estas kutimo komenci la vespermanĝon post plentag
 
 ”Nu, prenu senĝene!” diris Bella, la tentantino. Odo-ris en la manĝoprovizejo kiel en ĝardeno kun spicoj, estis odoro de fruktoj, de ĵusbakita, sukerizita pasto. Tie staris pladego plena de rosintortetoj, rondaj tortetoj el sufiĉe ŝvelinta pasto kun internaĵo el rosina konfitaĵo, ĉio kovrita de neĝsimila pudra sukero. Estis ankaŭ tortetoj kun abrikotoj, pura, fandita oro en la brilo de la suno. Estis makulhavaj kampoj de fromaĝpanoj kun fen-detoj en la orbruna krusto, tra kiuj oni povis vidi la ci-tronflavan fromaĝon; tutfreŝa, mola fromaĝo ĝi estis, batmiksita kun ovoj, spicoj, sukero kaj citronoj. Estis konfitaĵtortetoj kaj cinamaĵpanoj, genie kombinitaj bakitaĵoj, tegitaj de migdalaj detranĉaĵoj. Estis freŝa pano —
 
-plektitaj panoj kun papavsemoj sur la plektkavoj kun 41
-
-FANNY
+plektitaj panoj kun papavsemoj sur la plektkavoj kun
 
 
 brilaj flankoj pro la abunda butero, surŝmirita antaŭ ol ili enŝoviĝis en la bakfornon. Fanny Brandeis prigapis ĉion tion, konsternite. Dum ŝi rigardis, Bella prenis rosintorteton, mordis en ĝin, plena, avida mordo ĝi estis, tiel ke ŝiaj blankaj dentoj renkontis sin meze en la mola ruĝbruna konfitaĵo, kiu ĉiuflanke eliĝis tra la krusto, tiel ke aŭdiĝis ŝmaco. Fanny tremegis per sia tuta dorlotita, sed nun malsatanta korpeto.
@@ -470,21 +320,14 @@ brilaj flankoj pro la abunda butero, surŝmirita antaŭ ol ili enŝoviĝis en la
 
 La unua buŝprenaĵo da abrikotoj malaperis inter la du vicoj da akraj dentoj. Fanny fermis la okulojn, kvazaŭ iu, kiu suferegas. ŝi batalis la grandan batalon de sia vivo.
 
-ŝi ja renkontos aliajn tentojn en sia vivo, kiuj eble estos pli fortaj, sed ĝis sia morto ŝi ne forgesos tiun unuan 42
-
-FANNY
+ŝi ja renkontos aliajn tentojn en sia vivo, kiuj eble estos pli fortaj, sed ĝis sia morto ŝi ne forgesos tiun unuan
 
 
-batalon inter la karno kaj la menso tie en la manĝ-
-
-aĵoprovizejo kun la dolĉa odoro. Kaj la menso venkis.
+batalon inter la karno kaj la menso tie en la manĝaĵoprovizejo kun la dolĉa odoro. Kaj la menso venkis.
 
 Kiam Bella prenis la duan plenbuŝon da abrikotoj — ŝiaj okuloj jam serĉis migdalajan torteton, dum ŝi en la mano tenis la tentilon por Fanny — ĉi tiu turnis sin sur la kalkanoj kiel soldato, elpaŝis decideme el la domo, de la ŝtuparo, trans la straton kaj reen al la preĝejo.
 
 Oni ĵus ekbruligis la lampojn. La homoj en la preĝejo estis lacaj, senenergiaj, elĉerpitaj de malsato, la plimulto sidis silenta kaj senatenta, escepte kiam la preĝolibro postulis parolitajn respondojn. La voĉo de la malgranda rabeno, malfortiĝinta pro laceco, sonis nun eksterordinare malforta, klara kaj melodia. Fanny ŝteliris al sia loko apud sinjorino Brandeis kaj premis sian malsekan malvarman maneton en la varmajn, labore eluzitajn manojn de sia patrino. ĉi tiu turnis la okulojn, en kiuj brilis larmoj, de la preĝolibro al la pala vizaĝeto, kiu rigardis al ŝi kun preskaŭ petega rideto. La preĝolibro estis malfermita ĉe la malĝusta paĝo. uste kiam Fanny rimarkis tion, dum momento ĝemo trairis la neinter-rompitan diservon de la festotago — la memoriga servo komenciĝis. La malgranda doktoro Thallmann skrape tusis. La preĝantoj sidigis sin alimaniere por rektigi la krurojn. Bella, la pekintino, kaŝe eniris; ŝi estis bildo en oro kaj ruĝeto kvazaŭ anĝelo. Fanny rigardis ŝin kaj sentis sin tre alte super ŝi, en pli alta sfero de senpekeco.
-
-
-FANNY
 
 
 Estis, kvazaŭ Molly Brandeis sentis, kio okazis. — ”Vi ja ne faris ĝin, ĉu?” Fanny nee skuis la kapon.
@@ -493,16 +336,9 @@ Rabeno Thallmann sidis en sia granda skulptita seĝo.
 
 Liaj okuloj estis fermitaj. La lace spiranta, malgranda orgeno en la ˛orejo en la malantaŭo de la preĝejo ekĝemis la unuajn tonojn de ”Traümerei” de Schumann.
 
-Kaj tiam, super la raŭketa sono de la orgeno sonis kortuŝa plendludo de violono. Teodoro Brandeis komencis ludi. Vi sendube konas ludadon de ordinara, dekkvinjara knabo, tiun nervigan, sensentan skrapadon. Sed nenio tia estis en la sonoj, kiujn ĉi tiu knabo scipovis kantigi per arĉo el la ligna skatolo kun streĉitaj tripkordoj. Kio ajn ĝi estu — ĉu la longeco de maldikaj, sentemaj fingroj, la movado de la manartiko, la elasta rapideco de la sub-brako aŭ io stranga en la cerbo — aŭ eble ĉio kune, Teodoro Brandeis nepre posedis ion, kio antaŭdestinas al la artisteco. Pri tio ĉiu konsciis, kiu vidis lin kliniĝi kun kaj super sia violono, por eligi el ĝi la malaltajn sonojn, kvazaŭ violonĉelajn. Dum lia ludado ĉi tiun tagon ĉiu sidis tre trankvile kaj meditis pri tio, kion li deziris kaj neniam atingis, pri perdita amo, pri neplenumita devo, pri seniluziiĝo, pri malbono neniam rebonigita, pri perdo de iu, kies memorigo vekis penton. La ĉeestantoj sidis trankvile kaj pli ol unu sentis ion sur siaj lipoj, kio havis salan guston, levis la manon por kaŝe viŝpurigi sian vangon kaj vidis, ke tiu, kiu sidas antaŭ li, faras same. Tio oka-44
+Kaj tiam, super la raŭketa sono de la orgeno sonis kortuŝa plendludo de violono. Teodoro Brandeis komencis ludi. Vi sendube konas ludadon de ordinara, dekkvinjara knabo, tiun nervigan, sensentan skrapadon. Sed nenio tia estis en la sonoj, kiujn ĉi tiu knabo scipovis kantigi per arĉo el la ligna skatolo kun streĉitaj tripkordoj. Kio ajn ĝi estu — ĉu la longeco de maldikaj, sentemaj fingroj, la movado de la manartiko, la elasta rapideco de la sub-brako aŭ io stranga en la cerbo — aŭ eble ĉio kune, Teodoro Brandeis nepre posedis ion, kio antaŭdestinas al la artisteco. Pri tio ĉiu konsciis, kiu vidis lin kliniĝi kun kaj super sia violono, por eligi el ĝi la malaltajn sonojn, kvazaŭ violonĉelajn. Dum lia ludado ĉi tiun tagon ĉiu sidis tre trankvile kaj meditis pri tio, kion li deziris kaj neniam atingis, pri perdita amo, pri neplenumita devo, pri seniluziiĝo, pri malbono neniam rebonigita, pri perdo de iu, kies memorigo vekis penton. La ĉeestantoj sidis trankvile kaj pli ol unu sentis ion sur siaj lipoj, kio havis salan guston, levis la manon por kaŝe viŝpurigi sian vangon kaj vidis, ke tiu, kiu sidas antaŭ li, faras same. Tio okazis, kiam ĉi tiu dekkvinjara knabo metis sian arĉon sur sian violonon. Kaj tiu, kiu kapablas okazigi ĉion tion, certe posedas tion nedifineblan, magian, grandiozan, kion oni nomas genio.
 
-FANNY
-
-
-zis, kiam ĉi tiu dekkvinjara knabo metis sian arĉon sur sian violonon. Kaj tiu, kiu kapablas okazigi ĉion tion, certe posedas tion nedifineblan, magian, grandiozan, kion oni nomas genio.
-
-Kiam estis pasinte, tra la salono iris ĝemo de malstre-
-
-ĉiĝo. Rabeno Thallmann metis dum momento sian manon sur la laciĝintajn okulojn, kvazaŭ li revenus de malproksima spirita vojaĝo, post tio li ekstaris kaj paŝis al la katedro. Li parolis, hebrelingve, la komencajn vortojn de la memoriga servo kaj daŭrigis ĝis la preĝoj, en la angla lingvo, kun iliaj vortoj de senfinaj humileco kaj saĝeco:
+Kiam estis pasinte, tra la salono iris ĝemo de malstreĉiĝo. Rabeno Thallmann metis dum momento sian manon sur la laciĝintajn okulojn, kvazaŭ li revenus de malproksima spirita vojaĝo, post tio li ekstaris kaj paŝis al la katedro. Li parolis, hebrelingve, la komencajn vortojn de la memoriga servo kaj daŭrigis ĝis la preĝoj, en la angla lingvo, kun iliaj vortoj de senfinaj humileco kaj saĝeco:
 
 ”Ci metis en nin la povon fari pekon, sed ne la pekon mem.” Fanny ektimis. Antaŭ duonhoro ŝi mem spertis.
 
@@ -510,9 +346,7 @@ La servo estis daŭrigata, emocie kaj kortuŝe. La amenoj eliĝis kun renovigita
 
 Nun estis nenio komika en la maniero, en kiu la maljuna Ben Reitmann kun siaj malrapide legantaj okuloj, ĉiam estis kvin vortojn post la aliaj, tiel ke liaj vortoj implikiĝis en la laŭtaj respondoj, kaj lia bela, maljuna voĉo kun iom da raŭketo kaj hezito en sola majesto postsoni-gis la ”Omein.”
 
-Oni atingis la juvelon de sindono, la malnovan kaj ĉiam solenan pregon ”Kaddiŝ”. Ne ekzistas skribitaj vortoj, kiuj povas prezenti la imponegon de la ”Kaddiŝ” tiel, kiel ĝi estas kantata hebree. Kiam rabeno Thallmann ekkantis kun sia monotona ripetado de honorigo, kelkaj 45
-
-FANNY
+Oni atingis la juvelon de sindono, la malnovan kaj ĉiam solenan pregon ”Kaddiŝ”. Ne ekzistas skribitaj vortoj, kiuj povas prezenti la imponegon de la ”Kaddiŝ” tiel, kiel ĝi estas kantata hebree. Kiam rabeno Thallmann ekkantis kun sia monotona ripetado de honorigo, kelkaj
 
 
 nigre vestitaj urbanoj ekstaris kaj restis starantaj, kun la kapo klinita super la preĝolibro. Ili estis la homoj, de kiuj la morto postulis siajn oferaĵojn. Fanny stariĝis samtempe kun sia patrino kaj Teodoro, kiu revenis al ili el la
@@ -521,26 +355,20 @@ nigre vestitaj urbanoj ekstaris kaj restis starantaj, kun la kapo klinita super 
 
 ŝi sentis la manon de sia patrino sur sia, per kiu ŝi tenis la libron. La preĝo — preĝo ne de funebro, sed honoriga, finiĝis per finkrescendo de la orgeno. La silentaj nigraj figuroj residiĝis.
 
-Super la laciĝinta piularo venis atmosfero de grandioza liberiĝo. ĉi tiuj judoj, kiuj tie aŭskultis la vortojn, parolitajn de la profetoj de Izraelo, ĉi tiun tagon iris image reen milojn da jaroj, al la tempo, kiam la detruo de la templo estis same reala, kiel nun la detruo de la kolonoj kaj kupolo de la Reimsa katedralo. La maljuna Ben Reitmann sentante sin malbona pro fastado, estis for de siaj ĉiutagaj zorgoj pri ĉevaloj, segejoj, farmdomoj kaj hipotekoj. Eĉ sinjorino Nathan Pereles, en nigra atlaso, kun siaj vitraj kaj gagataj perloj, sia malagrabla, kutime malserena mieno, sen heliĝo pro simpatio aŭ amo, ŝajnis senti ion de la emocia ondo. Fanny estis embarasita de ĝi. ŝia kapo doloris (tion kaŭzis la malsato) kaj 46
-
-FANNY
+Super la laciĝinta piularo venis atmosfero de grandioza liberiĝo. ĉi tiuj judoj, kiuj tie aŭskultis la vortojn, parolitajn de la profetoj de Izraelo, ĉi tiun tagon iris image reen milojn da jaroj, al la tempo, kiam la detruo de la templo estis same reala, kiel nun la detruo de la kolonoj kaj kupolo de la Reimsa katedralo. La maljuna Ben Reitmann sentante sin malbona pro fastado, estis for de siaj ĉiutagaj zorgoj pri ĉevaloj, segejoj, farmdomoj kaj hipotekoj. Eĉ sinjorino Nathan Pereles, en nigra atlaso, kun siaj vitraj kaj gagataj perloj, sia malagrabla, kutime malserena mieno, sen heliĝo pro simpatio aŭ amo, ŝajnis senti ion de la emocia ondo. Fanny estis embarasita de ĝi. ŝia kapo doloris (tion kaŭzis la malsato) kaj
 
 
 ŝiaj manoj estis glacie malvarmaj. La malgranda ”rusa”
 
 knabino tuj malantaŭ ili ĉesigis la turniĝadon kaj pied-frapadon kaj dormis, apogante sin al sia patrino. Rabeno Thallmann tie sur la podio ŝajnis esti tre malproksima kaj foriĝanta. La odoro de kariofila oleo kaj salamo-niako plenigis la aeron. La aero kvazaŭ strange tremetis kaj briletis. La blanka atlaso antaŭ la ”Kesto” radiis kaj moviĝetis.
 
-La longdaŭra servo preskaŭ finiĝis. Subite ˛oro kaj orgeno samtempe eksplodis en honoriga kanto. La malgranda doktoro Thallmann levis la manojn kaj la preĝ-
-
-antoj ekstaris, kvazaŭ superŝute amasiĝis ĉe liaj piedoj.
+La longdaŭra servo preskaŭ finiĝis. Subite ˛oro kaj orgeno samtempe eksplodis en honoriga kanto. La malgranda doktoro Thallmann levis la manojn kaj la preĝantoj ekstaris, kvazaŭ superŝute amasiĝis ĉe liaj piedoj.
 
 Fanny ankaŭ stariĝis, ŝia vizaĝo estis tre pala en sia bukla kadro, ŝiaj okuloj brilis. ŝi levis sian vizaĝon al la vortoj de la praa benpreĝo, kiuj eliĝis en siaj simpleco kaj grandiozeco de la lipoj de la rabeno: ”La beno de la Sinjoro venu super vin ĉiuj, la Sinjoro benu kaj gardu vin.
 
 Li briligu sian favoran helon sur vin kaj indulgu vin. Li favoru vin kaj donu al vi pacon.”
 
-La Granda Sabato estis finiĝinta. Estis tre trankvila idaro, kiu disiĝis subigita kaj laca, ĉiu al sia hejmo. Fanny eliris kaj apenaŭ pensis pri Bella. ŝi sentis neprecize, ke ŝi kaj ŝia amikineto estas formitaj el aliaj konsistigaĵoj. ŝi sciis, ke la inklino de unu al la alia estas nur tiu de ma-linda, fizika, knabineca amikeco kaj ke ili rekontiĝos neniam en spirita rilato, kvankam ŝi ne povis esprimi ĉi 47
-
-FANNY
+La Granda Sabato estis finiĝinta. Estis tre trankvila idaro, kiu disiĝis subigita kaj laca, ĉiu al sia hejmo. Fanny eliris kaj apenaŭ pensis pri Bella. ŝi sentis neprecize, ke ŝi kaj ŝia amikineto estas formitaj el aliaj konsistigaĵoj. ŝi sciis, ke la inklino de unu al la alia estas nur tiu de ma-linda, fizika, knabineca amikeco kaj ke ili rekontiĝos neniam en spirita rilato, kvankam ŝi ne povis esprimi ĉi
 
 
 tiun scion pervorte. Molly Brandeis metis manon sur la ŝultron de sia filineto.
@@ -570,25 +398,15 @@ tiun scion pervorte. Molly Brandeis metis manon sur la ŝultron de sia filineto.
 Mi ne scias kial, sed estas fakto. Mi esperas, mia etulino, injo mia, mi esperas . . .”
 
 
-FANNY
-
-
 Sed neniam Fanny sciis, ĉu ŝia patrino finis ĉi tiun frazon aŭ ne. ŝi memoris, ke ŝi atendas la finiĝon por scii, kion ŝia patrino esperas. Kaj ŝi sentis subite, ke varma guto falas sur sian manon, super kiu ŝia patrino klinis sin. Kaj nenion pli ŝi sciis, ol, ke refoje estas mateno kun bonfare varma sunbrilo.
 
 
-FANNY
+ĈAPITRO IV.
+
+Fanny Brandeis kutimis ĉiun sabatposttagmezon iri al la publika legosalono (kun saketo da tre gluecaj avelsukeraĵoj en sia poŝo, kia ĝuemulino!) kaj tie sin in-stalinte en seĝegon, ŝi revis, mordetis aŭtomate la frandaĵon, dum ŝia vizaĝo pli kaj pli ruĝiĝis pro la malfreŝa aero de la malbone aerumata salono kaj ŝi legis, legis kion ajn. Estis neniu, kiu cenzuris, kion ŝi legas, tial ŝi legis teruran miksaĵon, fuŝaĵon klasikan, historian kaj histerian kaj en ĉio ŝi trovis ion interesan. ŝi legis seri-romanon, en kiu frenezaj edziĝproponoj estis farataj en florodorplenaj varmejoj; ŝi legis Dickens kaj Thelma, malnovajn binditajn periodaĵojn, Zola kaj de Maupas-sant, ”Wide wide world”, ”Hans Brinker” aŭ la ”Arĝentaj glitkuriloj” kaj ”Jane Eyre”. Jen kelkaj ekzemploj, por montri ŝian veran ĝeneralan amon al literaturo. Kiam ŝi legis, ŝi tute ne atentis la afekte ridantajn geknabojn, kiuj trobrue eniris kaj faris ŝercaĵojn, tiel ke la acidhumora fraŭlino Perkins, la bibliotekistino, ekkoleris pro ili. ŝi legis, ĝis fine la krepusko komprenigis al ŝi, ke la mallonga vintra tago estas finiĝonta. Tiam ŝi venis eksteren, frosttremante pro la transiro el la trovarma atmosfero de la
 
 
-ĉAPITRO IV.
-
-Fanny Brandeis kutimis ĉiun sabatposttagmezon iri al la publika legosalono (kun saketo da tre gluecaj avelsukeraĵoj en sia poŝo, kia ĝuemulino!) kaj tie sin in-stalinte en seĝegon, ŝi revis, mordetis aŭtomate la frandaĵon, dum ŝia vizaĝo pli kaj pli ruĝiĝis pro la malfreŝa aero de la malbone aerumata salono kaj ŝi legis, legis kion ajn. Estis neniu, kiu cenzuris, kion ŝi legas, tial ŝi legis teruran miksaĵon, fuŝaĵon klasikan, historian kaj histerian kaj en ĉio ŝi trovis ion interesan. ŝi legis seri-romanon, en kiu frenezaj edziĝproponoj estis farataj en florodorplenaj varmejoj; ŝi legis Dickens kaj Thelma, malnovajn binditajn periodaĵojn, Zola kaj de Maupas-sant, ”Wide wide world”, ”Hans Brinker” aŭ la ”Arĝentaj glitkuriloj” kaj ”Jane Eyre”. Jen kelkaj ekzemploj, por montri ŝian veran ĝeneralan amon al literaturo. Kiam ŝi legis, ŝi tute ne atentis la afekte ridantajn geknabojn, kiuj trobrue eniris kaj faris ŝercaĵojn, tiel ke la acidhumora fraŭlino Perkins, la bibliotekistino, ekkoleris pro ili. ŝi legis, ĝis fine la krepusko komprenigis al ŝi, ke la mallonga vintra tago estas finiĝonta. Tiam ŝi venis eksteren, frosttremante pro la transiro el la trovarma atmosfero de la 50
-
-FANNY
-
-
-salono en la freŝan Wisconsinan aeron. Kelkfoje ŝi iris al la butiko de sia patrino, sed same ofte ŝi iris rekte hejmen sola. Kaj tiam ŝi iris, dum la neĝo krakis sub siaj plandoj, obsedita de tre neinfana sento de malsereneco kaj maltrankvileco, kiam ŝi vidis la vintrosunon mallevi-
-
-ĝanta en nuancomiksaĵo de subtilruĝo, oranĝkoloro, or-ruĝo kaj helflavo. Kelkfoje ŝia koro doloris pro la vido de tia bela, kolorabunda ĉielo; pli poste kelkfoje okazis, ke ŝi denove sentis tiun doloron, kiam ŝi rigardis la okulojn de kolportisto, kiu antaŭpenpuŝas ĉareton kaj ankaŭ okazis, ke ŝi sentis tiun doloron, kiam estis neniu kialo
+salono en la freŝan Wisconsinan aeron. Kelkfoje ŝi iris al la butiko de sia patrino, sed same ofte ŝi iris rekte hejmen sola. Kaj tiam ŝi iris, dum la neĝo krakis sub siaj plandoj, obsedita de tre neinfana sento de malsereneco kaj maltrankvileco, kiam ŝi vidis la vintrosunon malleviĝanta en nuancomiksaĵo de subtilruĝo, oranĝkoloro, or-ruĝo kaj helflavo. Kelkfoje ŝia koro doloris pro la vido de tia bela, kolorabunda ĉielo; pli poste kelkfoje okazis, ke ŝi denove sentis tiun doloron, kiam ŝi rigardis la okulojn de kolportisto, kiu antaŭpenpuŝas ĉareton kaj ankaŭ okazis, ke ŝi sentis tiun doloron, kiam estis neniu kialo
 
 — kiel iufoje povas okazi, se oni estas judineto kun
 
@@ -600,25 +418,16 @@ salono en la freŝan Wisconsinan aeron. Kelkfoje ŝi iris al la butiko de sia pa
 
 ”Ne estas libro por knabinetoj,” akratone diris fraŭli-no Perkins.
 
-”Jam mi legis ĝin duone,” diris Fanny afable kaj foriris kun la libro sub la brako. Estis libro de Zola ”En la paradizo de sinjorinoj” (Au bonheur des dames”). La historio de la butikistino kaj la frakaso de la detalkomer-cisto de la granda kaj monhava entrepreno interesegis kaj streĉis ŝian atenton. ŝiaj pensoj ankoraŭ plene oku-51
-
-FANNY
-
-
-pis sin pri tiu libro, kiam ŝi laŭiris la angulon de la Norris-strato kaj subite sin trovis en bando da bruantaj, pe-tolantaj kaj mokridantaj knaboj. Ili formis, interpuŝiĝ-
+”Jam mi legis ĝin duone,” diris Fanny afable kaj foriris kun la libro sub la brako. Estis libro de Zola ”En la paradizo de sinjorinoj” (Au bonheur des dames”). La historio de la butikistino kaj la frakaso de la detalkomer-cisto de la granda kaj monhava entrepreno interesegis kaj streĉis ŝian atenton. ŝiaj pensoj ankoraŭ plene okupis sin pri tiu libro, kiam ŝi laŭiris la angulon de la Norris-strato kaj subite sin trovis en bando da bruantaj, pe-tolantaj kaj mokridantaj knaboj. Ili formis, interpuŝiĝ-
 
 ante, cirklon ĉirkaŭ io, kion ili turmentis, pugnopuŝis, unuvorte traktis, kiel tiomaĝaj knaboj povas fari en sia neprudenteco.
 
 Fanny haltis kaj puŝis sin inter la knabojn. La objekto turmentata montriĝis esti malfortika bubeto kun kava brusto, kiu ne povis batali, ĉar li estis tro malkuraĝa kaj tre malforta; krome lia nomo (ho, kompatindulo!) estis Clarence, Clarence Heyl. Ja kion ajn bando da petolaj stratbuboj ne povas fari per nomo tia, kia Clarence! Ili hurlis ĝin, katblekis ĝin, ili imitis voki ĝin en falseto per kvazaŭ altakra virintono de lia patrino. Li estis palega, kompatveka knabeto kun granda buŝo, kies piptubaj kruroj ŝajnis ankoraŭ pli maldikaj kompare kun la longaj, mallarĝaj piedoj. Kio kompletigis lian kompatinde-con: li krom tio portis okulvitrojn, kiuj malatentigis pri la sola agrablaĵo, kiun li posedis, pri liaj grandaj, dolĉaj, revemaj okuloj. Li estis de tiu speco de knaboj, kiun la patrino dorlotas en premfermaj vestoj kaj galoŝoj por la lerneja vizito. Lia blua serĝa kostumo neniam brilis aŭ estis makulkovrita. Liaj ŝtrumpoj estis sendifektaj sur la genuparto. Li portis jam surtuton en mildaj aŭtuntagoj.
 
-Fanny ne ŝatis lin kaj samtempe bedaŭris lin. Ni ne faros tion, ĉar en tiu eta, timema, malbela dekkvinjara 52
-
-FANNY
+Fanny ne ŝatis lin kaj samtempe bedaŭris lin. Ni ne faros tion, ĉar en tiu eta, timema, malbela dekkvinjara
 
 
-knabeto vi retrovos la heroon de ĉi tiu rakonto. Li pene ekstaris, ĝuste kiam Fanny aperis. Lia lernilujo estis kot-
-
-ŝmirita. Liaj ŝtrumpoj estis ŝiritaj, lia ĉapo estis for kaj liaj haroj distaŭzitaj. Estis skrapvundo sur unu vango, el kiu fluetis sango.
+knabeto vi retrovos la heroon de ĉi tiu rakonto. Li pene ekstaris, ĝuste kiam Fanny aperis. Lia lernilujo estis kotŝmirita. Liaj ŝtrumpoj estis ŝiritaj, lia ĉapo estis for kaj liaj haroj distaŭzitaj. Estis skrapvundo sur unu vango, el kiu fluetis sango.
 
 ”Mi rakontos al mia patrino!” li ploris senpove kaj malrektiĝis pro mizero kaj angoro, ”kaj tiam vi spertos
 
@@ -632,9 +441,7 @@ Fanny sentis malagrablan ekpikon en sia stomako kaj en sia gorĝo.
 
 Kaj jen sovaĝa katino eksplodis inter ili. Ne avertan-te, kvazaŭ furio kun flamaj okuloj kaj flirtantaj haroj, kun blankaj dentoj en grumblo, ŝi atakis ilin perpugne.
 
-Se ŝi estus batalinta honeste aŭ se ŝi estus ne surprizinta ilin per la neatendita furiozo, ŝi certe estus senpova kontraŭ ili. Sed ŝi subite ekatakis, piedfrapis kaj pugnobatis disen, mordis, fingre gratis. ŝi ne sentis la bategojn, kiujn la knaboj rekompence disdonis kaj ŝiaj manoj fermiĝis kaj remalfermiĝis alterne por jen bati kaj jen grati. ”Iru hejmen!” ŝi kriis al Clarence, samtempe bata-lante. Kaj Clarence serĉis siajn librojn kaj prenis la piedojn en la manojn. Poste Fanny lerte saltis flanken por eviti la brunajn pugnojn de la knaboj. En tiu momento 53
-
-FANNY
+Se ŝi estus batalinta honeste aŭ se ŝi estus ne surprizinta ilin per la neatendita furiozo, ŝi certe estus senpova kontraŭ ili. Sed ŝi subite ekatakis, piedfrapis kaj pugnobatis disen, mordis, fingre gratis. ŝi ne sentis la bategojn, kiujn la knaboj rekompence disdonis kaj ŝiaj manoj fermiĝis kaj remalfermiĝis alterne por jen bati kaj jen grati. ”Iru hejmen!” ŝi kriis al Clarence, samtempe bata-lante. Kaj Clarence serĉis siajn librojn kaj prenis la piedojn en la manojn. Poste Fanny lerte saltis flanken por eviti la brunajn pugnojn de la knaboj. En tiu momento
 
 
 ŝi sanĝiĝis el furiozulino en angore tremetantan knabinon, kiu rigardas petege kaj timeme el kadro el nigraj bukloj. Sed la knaboj refoje estis atakontaj.
@@ -651,12 +458,7 @@ Subite ili ĝojkriis: ”Fanny amindumas Clarencon. Fanny amas Clarencon!”
 
 Fanny levis la iom ĉifitan ”Zola” de la loko, kien ĝi ĵetiĝis ĉe la unua atako. — ”Tio estas mensogo!” ŝi ve-kriis kaj pafis sin for, persekutata de la knaboj kaj ilia mokkanto. ŝi eniris tra la malantaŭa pordo kaj klopodis aspekti kiel kutime. Sed la akravida okulo de Mattie malkovris la postsignojn de la batalo, kvankam ŝi estis okupita de terpomsenŝeligo. ”Fanny Brandeis, rigardu vian mantelon, kaj kio okazis al viaj haroj?”
 
-Fanny rigardetis la disŝiritan mantelpoŝon, pendflir-tanta libere. ”Ho, tio, nu . . . ” ŝi diris malserioze, pre-54
-
-FANNY
-
-
-terpasante la tablon en la kuirejo, forprenis tranĉaĵon da malvarma bovidaĵo de la plado kaj supreniris al sia ĉambreto. Tia batalego estis malsatiga. Kiam sinjorino Brandeis venis hejmen je la sesa, ŝia filineto sidis kviete leganta. ĉe la tagmanĝo, sinjorino Brandeis riproĉe diris:
+Fanny rigardetis la disŝiritan mantelpoŝon, pendflir-tanta libere. ”Ho, tio, nu . . . ” ŝi diris malserioze, preterpasante la tablon en la kuirejo, forprenis tranĉaĵon da malvarma bovidaĵo de la plado kaj supreniris al sia ĉambreto. Tia batalego estis malsatiga. Kiam sinjorino Brandeis venis hejmen je la sesa, ŝia filineto sidis kviete leganta. ĉe la tagmanĝo, sinjorino Brandeis riproĉe diris:
 
 ”Fanny, injo, estas skrapo sur via vango de la tempio
 
@@ -688,20 +490,12 @@ Fanny pensis pri la ŝirita mantelo, la ĉifita ”Zola,” la survanga skrapo.
 
 Post la tagmanĝo ŝi denove enprofundiĝis en sia libro.
 
-Teodoro devis labori pri sia algebrotasko post la rearan-
-
-ĝo de la tablo, sed anstataŭ fari tion, li surmetis sian 55
-
-FANNY
+Teodoro devis labori pri sia algebrotasko post la rearanĝo de la tablo, sed anstataŭ fari tion, li surmetis sian
 
 
 ĉapon, ŝteliris for, por ludi ekstere sub la arklampo ĉe la stratangulo. Fanny preskaŭ neniam kunportis librojn el la lernejo kaj malgraŭ tio ŝi sufiĉe bone progresis, precipe en la fakoj, kiujn ŝi preferis. En la vintro post la morto de sia edzo sinjorino Brandeis alkutimiĝis post la tagmanĝo distri sin per solula kartludo. ŝi povis tiam pripensi la okazintaĵojn de la tago, siajn problemojn kaj samtempe ĝi efikis trankvilige. ŝi malsuprenklapis la tabulon de la skribtablo kaj sidigis sin sur la piantabu-reton. Multajn jarojn Fanny rememoris tiun vintron, la legadon, akompanatan de la susurado de la ŝovataj lud-kartoj; ĉiam, kiam ŝi legis libron de Dickens, ŝi pensis pri tiuj longaj kvietaj vesperoj. ŝi tiam prefere legis verkojn de Dickens. ŝi sentis specon de malestimo pri lia sentimento, liaj ”grandaj” sinjorinoj tedis ŝin. Sed ŝi ne sciis, ke tion kaŭzas la fakto, ke ili estas malbone desegnitaj.
 
-ŝi tamen ŝatis la humuron en liaj libroj kaj ŝi povis relegi la partojn pri Samuel Weller, Mr. Micawber, Sairy Gamp kaj Fanny Squeers. ŝi trovis, ke estas tento legi Dicken-saĵon antaŭ la vespermanĝo, precipe la historio de Pick-wick estis fatala. i pelis ŝin en ekstazo al la manĝaĵo-
-
-ŝranko por esplori, ĉu estas ankoraŭ io manĝebla, ĉu kuko aŭ pomo aŭ malvarma viando, io ajn. Tamen kion ajn ŝi trovis, tio ne estis komparebla kun la delikataĵoj, pri kiuj ŝi legis, kun la salivaperigaj viandpasteĉoj, la ŝafaĵo kaj la varmega grogo per ananasaĵo. Tiun vespe-56
-
-FANNY
+ŝi tamen ŝatis la humuron en liaj libroj kaj ŝi povis relegi la partojn pri Samuel Weller, Mr. Micawber, Sairy Gamp kaj Fanny Squeers. ŝi trovis, ke estas tento legi Dicken-saĵon antaŭ la vespermanĝo, precipe la historio de Pick-wick estis fatala. i pelis ŝin en ekstazo al la manĝaĵoŝranko por esplori, ĉu estas ankoraŭ io manĝebla, ĉu kuko aŭ pomo aŭ malvarma viando, io ajn. Tamen kion ajn ŝi trovis, tio ne estis komparebla kun la delikataĵoj, pri kiuj ŝi legis, kun la salivaperigaj viandpasteĉoj, la ŝafaĵo kaj la varmega grogo per ananasaĵo. Tiun vespe-56
 
 
 ron, post kiam sinjorino Brandeis estis momenton en la kuirejo por priparoli ion kun Mattie, ŝi revenis kaj vidis, ke ŝia filino kredeble estas babilinklina, kvankam ŝi tenis la libron antaŭ si.
@@ -718,9 +512,7 @@ Fanny klinapogis sin antaŭen, ŝajne komunikema. ”i pensigis min tiom pri vi 
 
 ”Jes tion mi ĉiam faras, kiam vi parolas kun vojaĝisto aŭ iu tia, tio vere interesas min.” Fanny reiris al sia libro.
 
-Sed Molly Brandeis sidis ankoraŭ medite, rigardante sian strangan idinon. Poste ŝi ĝemis kaj aranĝis la kar-tojn por ludo. Je la oka ŝi plej ofte estis tiel laca, ke ŝi 57
-
-FANNY
+Sed Molly Brandeis sidis ankoraŭ medite, rigardante sian strangan idinon. Poste ŝi ĝemis kaj aranĝis la kar-tojn por ludo. Je la oka ŝi plej ofte estis tiel laca, ke ŝi
 
 
 ekdormis sur la eluzita ledtegita kanapo en la familia ĉambro, tiam ŝi estis tute elĉerpita. La domo estis tre kvieta, se ne Mattie en la kuirejo aŭ en sia angula ĉambreto supre bruis. Kelkfoje la laciĝinta virino vekiĝis subite timigita kaj ekkriis singulte: ”Ne! Ne! Ne!” Unue la infanoj eksaltis terurigitaj, kiam ili aŭdis ŝin, sed ili alkutimiĝis al tio, nur rigardis por diri, kiam ŝi demandis, kio vekis sin: ”Vi havis la neneon!”
@@ -735,9 +527,7 @@ ekdormis sur la eluzita ledtegita kanapo en la familia ĉambro, tiam ŝi estis t
 
 ”Nur malmultaj, jen, nur tiom!”
 
-”Nu, bone, sed ne pli,” ĉar sinjorino Brandeis, kiel saĝa virino, sciis, kion signifas nefinlegita ĉapitro por legoamanto. Sed Fanny kaj Teodoro ne ĉiam estis ho-nestaj tiurilate, ili avide englutis la permesitan ĉapitron, ruĝvangaj pro eksciteco. Eble sinjorino Brandeis refoje 58
-
-FANNY
+”Nu, bone, sed ne pli,” ĉar sinjorino Brandeis, kiel saĝa virino, sciis, kion signifas nefinlegita ĉapitro por legoamanto. Sed Fanny kaj Teodoro ne ĉiam estis ho-nestaj tiurilate, ili avide englutis la permesitan ĉapitron, ruĝvangaj pro eksciteco. Eble sinjorino Brandeis refoje
 
 
 ekdormos! Kaj tiuokaze la du konspirantoj komencis la sekvantan ĉapitron mallaŭte kaj lerte turnante la foliojn, ili enŝtopis tiam sian menson, same kiel bubetoj troavide plenigas sian buŝon per kuko post la dorso de panjo. Sed estis, kvazaŭ ŝi vekiĝas pro streĉiĝo en la libro mem kaj tiam venis la timita rezulto, la fino. La patrino subite eksaltis konfuzite, ĉirkaŭen rigardis kaj ekvidis la du infanojn, ensorbiĝantajn en legado.
@@ -753,30 +543,15 @@ Fanny klopodis, arogante ignori tiun admonon.
 Molly Brandeis tiam inspektis, ĉu la pordo kaj fenestroj estas fermitaj, prizorgis la horloĝon kaj tuj kiam la infanoj estis atingintaj la supran portalon laŭ la ŝtuparo, ŝi estingis la lumon, mem supreniris, kun la harpingloj en unu mano, la korseto en la alia. Iom post la naŭa la tuta familio dormis, la infanoj kviete, sensonĝe, la laca virino maltrankvile kaj multmove, ĉar ŝia trostreĉita cerbo okupis sin per la tagaj problemoj. Ne estis familio ripozanta. Estis kvazaŭ spirita aĵo, posttremetanta momenton, malstreĉinte la nervojn kaj muskolojn.
 
 
-FANNY
+ĈAPITRO V.
 
+Nun ne plu estis ”praaĵoj” en la bazaro de Brandeis. La pakĉambro ĉiam estis sursemita de restaĵoj de pajlo kaj lignofibraĵo el la kestoj kaj kradoj. Aloisio nun estris super malgranda, ruĝhara satelito, kiu siavice malaperis en la kestojn, la kapon antaŭen, kaj kies tasko nun estis elsorĉi jen lampon, jen pupon aŭ kristalaĵon, kvazaŭ magiisto. Fanny ŝatis sidi sur renversita kesteto kaj rigardi, kiam li fervore klopodis kompletigi iun servicon aŭ vazaron. Ekzemple: la unua plonĝo aperigis la unuan pecon el seso da respondaj artikloj, zorge envolvitan en diafana papero. Unu manumo de Aloisio malkovris la elfositaĵon per forŝiro de la envolvilo kaj jen elrigardis rubenkolora pokalo. Sekvis dua plonĝo, tria kaj tiel plu, ĝis fine ses brilantaj glasoj viciĝis, kvazaŭ ses kokidoj sen kokinpatrino. Okazis lasta plonĝo kun multaj serĉado kaj palpado, kio disflugigis amason da pajlo kaj pakmaterialo kaj tiam elmergiĝis el la paperfluo ruĝkapa, spiranta kaj blovanta la bubo, triumfe tenante en la mano la karafon, kiu kompletigis la feliĉan kokfamilion. Intertempe Aloisio babilis senĉese, amuzis sin per unu el tiuj rakontoj, kiujn li ĉiam havis en provizo, sekure konservita en ujo, kiel juvelo, nur montrita siatempe al ŝatanto. Sinjorino Brandeis malaprobis tiajn butikbabilaĵojn kaj ĉiam koleretis. Sadie kaj Pearl, retene ridante, la kapojn preskaŭ tuŝaj, aŭskultis liajn ŝercojn. Sed kelkfoje okazis, ke Molly Brandeis mem ne povis ne atente aŭskulti lin. Neniu komprenis, de kie Aloisio prenis siajn novaĵojn. Li rakontis ĉion, kion la du ĵurnaloj de Winnebago neniam povis kapti kaj ne ku-raĝus presigi, eĉ se ili povus kapti ĝin.
 
-ĉAPITRO V.
-
-Nun ne plu estis ”praaĵoj” en la bazaro de Brandeis. La pakĉambro ĉiam estis sursemita de restaĵoj de pajlo kaj lignofibraĵo el la kestoj kaj kradoj. Aloisio nun estris super malgranda, ruĝhara satelito, kiu siavice malaperis en la kestojn, la kapon antaŭen, kaj kies tasko nun estis elsorĉi jen lampon, jen pupon aŭ kristalaĵon, kvazaŭ magiisto. Fanny ŝatis sidi sur renversita kesteto kaj rigardi, kiam li fervore klopodis kompletigi iun servicon aŭ vazaron. Ekzemple: la unua plonĝo aperigis la unuan pecon el seso da respondaj artikloj, zorge envolvitan en diafana papero. Unu manumo de Aloisio malkovris la elfositaĵon per forŝiro de la envolvilo kaj jen elrigardis rubenkolora pokalo. Sekvis dua plonĝo, tria kaj tiel plu, ĝis fine ses brilantaj glasoj viciĝis, kvazaŭ ses kokidoj sen kokinpatrino. Okazis lasta plonĝo kun multaj serĉado kaj palpado, kio disflugigis amason da pajlo kaj pakmaterialo kaj tiam elmergiĝis el la paperfluo ruĝkapa, spiranta kaj blovanta la bubo, triumfe tenante en la mano la karafon, kiu kompletigis la feliĉan kokfamilion. Intertempe Aloisio babilis senĉese, amuzis sin per unu el tiuj rakontoj, kiujn li ĉiam havis en pro-60
-
-FANNY
-
-
-vizo, sekure konservita en ujo, kiel juvelo, nur montrita siatempe al ŝatanto. Sinjorino Brandeis malaprobis tiajn butikbabilaĵojn kaj ĉiam koleretis. Sadie kaj Pearl, retene ridante, la kapojn preskaŭ tuŝaj, aŭskultis liajn ŝercojn. Sed kelkfoje okazis, ke Molly Brandeis mem ne povis ne atente aŭskulti lin. Neniu komprenis, de kie Aloisio prenis siajn novaĵojn. Li rakontis ĉion, kion la du ĵurnaloj de Winnebago neniam povis kapti kaj ne ku-raĝus presigi, eĉ se ili povus kapti ĝin.
-
-Kiam Fanny Brandeis estis dekkvarjara kaj Teodoro preskaŭ havis dekses, okazis menciindaĵo en Winnebago. Schabelitz, la fama violonisto, venis al Winnebago por doni koncerton sub la aŭspicio de la Junula Dimanĉ-
-
-vespera Klubo. ĉi tiu Junula Klubo fieris, kaj ne malpra-ve, pri sia, laŭ la gazetoj almenaŭ, aŭspicio. i rifuzis regali Winnebagon per ordinaraj kluballogaĵoj, kiaj: svi-saj sonorilistoj, negrorkestroj kaj dubfamaj artisttrupoj.
+Kiam Fanny Brandeis estis dekkvarjara kaj Teodoro preskaŭ havis dekses, okazis menciindaĵo en Winnebago. Schabelitz, la fama violonisto, venis al Winnebago por doni koncerton sub la aŭspicio de la Junula Dimanĉvespera Klubo. ĉi tiu Junula Klubo fieris, kaj ne malpra-ve, pri sia, laŭ la gazetoj almenaŭ, aŭspicio. i rifuzis regali Winnebagon per ordinaraj kluballogaĵoj, kiaj: svi-saj sonorilistoj, negrorkestroj kaj dubfamaj artisttrupoj.
 
 Anstataŭ tio sinjorino Schumann-Heink aŭdigis siajn kantojn aŭ McCuteheon prelegis, dum li ilustris per propra desegnado aŭ sinjorino Blomfield-Zeisler ludis for-tepianon. Winnebago estis unu el tiuj mezokcidentaj urbetoj, kies loĝantaro ŝatas la plej bonan kaj estas preta pagi por tio. Kaj tiel la veno de Schabelitz estis grava okazaĵo, sed tamen ne senegala, escepte por Teodoro.
 
-Teodoro havis enirbileton por la koncerto (lia patrino zorgis pri tio) kaj li babilis nur pri tio. Li iros kun sia mu-61
-
-FANNY
-
-
-zikinstruisto, Emil Bauer. Strangaj rakontoj cirkulis pri la kialo, kial Emil Bauer, kiu ja estis talenta artisto, decidis sin enterigi en ĉi tiu malgrava Wisconsina urbeto.
+Teodoro havis enirbileton por la koncerto (lia patrino zorgis pri tio) kaj li babilis nur pri tio. Li iros kun sia muzikinstruisto, Emil Bauer. Strangaj rakontoj cirkulis pri la kialo, kial Emil Bauer, kiu ja estis talenta artisto, decidis sin enterigi en ĉi tiu malgrava Wisconsina urbeto.
 
 Estis konate, ke li havas bonajn rilatojn kun grandaj famaj personoj el la muzikmondo. La ”East End” gloris lin troige kaj liaj studejaj vespermanĝoj estis priparolindaj festenoj por la Winnebaga elito.
 
@@ -789,16 +564,11 @@ Molly Brandeis estis ĝuste vendanta lavkaldronon al brugesta mastrumistino, kiu
 Jam de longe estis enkapigite al la infanoj de sinjorino Brandeis, ke ilia patrino ne povas esti ĝenata dum servado de kliento. Ili ofte enkuris brue la butikon, eks-plodonte pro siaj novaĵo aŭ planoj, sed ili lernis reteni sian deziron rakonti. Tamen nun ne estis ordinara no-vaĵo, kiu kaŭzis tian palecon de la vizaĝo de Teodoro.
 
 
-FANNY
-
-
 Vidinte eniri la trion, sinjorino Brandeis transdonis kviete la klientinon al Pearl kaj iris renkonte al ili.
 
 ”Ho, panjo!” vokis Teodoro histeritone, ”ho, panjo!”
 
-En la sama momento Molly Brandeis komprenis. Emil Bauer prezentis reciproke per flataj vortoj. Molly etendis la manon kaj ŝiaj akraj, brunaj okuloj rigardis rekte en tiujn helbluajn de la talentplena ruso. Konforme al ĉiuj reguloj li tiam estu alparolinta ŝin per drameca vo-
-
-ĉo, la manon sur la koro. Sed la granda Schabelitz devenis de farmista bubo Schabelitz kaj tra tiu tuta procedo li videble konservis sukcese sian simplecon, kiu estis lia ĉarmo. Tamen estis io stranga kaj fremda en la maniero, en kiu li sin klinis super la mano de sinjorino Brandeis. Oni ne riverencis tiel en Winnebago.
+En la sama momento Molly Brandeis komprenis. Emil Bauer prezentis reciproke per flataj vortoj. Molly etendis la manon kaj ŝiaj akraj, brunaj okuloj rigardis rekte en tiujn helbluajn de la talentplena ruso. Konforme al ĉiuj reguloj li tiam estu alparolinta ŝin per drameca voĉo, la manon sur la koro. Sed la granda Schabelitz devenis de farmista bubo Schabelitz kaj tra tiu tuta procedo li videble konservis sukcese sian simplecon, kiu estis lia ĉarmo. Tamen estis io stranga kaj fremda en la maniero, en kiu li sin klinis super la mano de sinjorino Brandeis. Oni ne riverencis tiel en Winnebago.
 
 ”Sinjorino Brandeis, estas por mi granda honoro renkonti vin.”
 
@@ -812,12 +582,7 @@ En la sama momento Molly Brandeis komprenis. Emil Bauer prezentis reciproke per 
 
 Teodoro retenis sin.
 
-”Li estas nur knabo,” daŭrigis Schabelitz, metante manon sur la ŝultron de Teodoro, ”sed li estas naturdo-63
-
-FANNY
-
-
-tita knabo. Ho, mi aŭskultis centojn da tiaj, estis ofte suferado por mi aŭskulti ilian diablan skrapadon. Kaj jen mia amiko Bauer ree venis al mi kun la konata laŭdo: ’Vi nepre aŭskultu tiun mian lernanton. Li estas geniulo!’
+”Li estas nur knabo,” daŭrigis Schabelitz, metante manon sur la ŝultron de Teodoro, ”sed li estas naturdotita knabo. Ho, mi aŭskultis centojn da tiaj, estis ofte suferado por mi aŭskulti ilian diablan skrapadon. Kaj jen mia amiko Bauer ree venis al mi kun la konata laŭdo: ’Vi nepre aŭskultu tiun mian lernanton. Li estas geniulo!’
 
 Ha! Geniulo! — mi diris — kaj mi vere sakris al li, ĉar Bauer estas mia amiko, sed mi iris kun li al lia studejo
 
@@ -831,9 +596,7 @@ Ha! Geniulo! — mi diris — kaj mi vere sakris al li, ĉar Bauer estas mia ami
 
 ”Eble unue unu jaron al Wolfsohn en Novjorko.”
 
-”Wolfsohn! Novjorko! Dresdeno!” estis tro multe por la ĉiam ekvilibra cerbo de Molly Brandeis. ŝi sentis dum momento kapturniĝon. Sed en la sama momento Pearl heziteme alproksimiĝis, kaj diris: 64
-
-FANNY
+”Wolfsohn! Novjorko! Dresdeno!” estis tro multe por la ĉiam ekvilibra cerbo de Molly Brandeis. ŝi sentis dum momento kapturniĝon. Sed en la sama momento Pearl heziteme alproksimiĝis, kaj diris:
 
 
 ”Pardonu, sinjorino Brandeis, sed sinjorino Trost scios volonte, ĉu ŝi ankoraŭ hodiaŭ ricevos la kaldronon hejme. ŝi bezonas ĝin por la morgaŭa lavado frumatene.”
@@ -849,9 +612,6 @@ Tiam ŝi rigardis al Teodoro, kun ruĝiĝantaj vangoj, poste ŝi turnis sin al S
 ”Kiel ajn,” sinjorino Brandeis senvide rigardis kaj estis kvazaŭ oni aŭdus penadi sian nebrideblan volon, kiu forĵetas ĉiujn ĝenaĵojn kaj subfosas ĉiujn malfacilaĵojn.
 
 Teodoro rigardis ŝin, retenante la spiron, kvazaŭ li atendas, ke ŝi prenos en la sama momento decidon. La okuloj de lia patrino renkontis liajn kaj ĉirkaŭ sia moviĝema buŝo aperis rideto.
-
-
-FANNY
 
 
 ”Vi rigardas min, knabo mia, kvazaŭ vi atendas, ke perloj eliĝu el mia buŝo. Sed ĉu vi ankaŭ ne opinias, ke, ĉar vi iros al la koncerto hodiaŭ vespere, estos bona ideo, ke vi dediĉu horeton al via studado. Vi ja povas esti muzika miraklo, sed geometrio estas geometrio.”
@@ -879,9 +639,6 @@ Kiam Teodoro estis foririnta, montriĝis, ke estas ankoraŭ malmulte por priparo
 ”ni povas rigardi kiel investon. Tio estas reklamo. Aŭdinte lin ludi kaj eksciinte, kion Schabelitz diris pri li, Wolfsohn certe nenion postulos pro la instruo aŭ preskaŭ nenion. Vi ja scias, ke ankaŭ mi proponis al li instruon senpage, sed vi mem ne ŝatis tion.”
 
 
-FANNY
-
-
 Schabelitz frapis sian amikon forte sur la ŝultro.
 
 ”Vi, vera muzikisto! Ho, Bauer, Bauer, ke vi enterigas vin en ĉi tiu urbaĉ . . .”
@@ -893,9 +650,6 @@ Bauer interrompis lin per gesto: ”Sinjorino Brandeis estas tre okupita virino 
 ”Ne estas juste,” konfesis Schabelitz, ”ne estas juste, sed tio ja estas unufoje la rajto de genio. Neniam estas juste. Tio postuletas, postulas, prenadas. Mi scias ĉion pri tio. Mia patrino povus rakonti pri tio, se ŝi ankoraŭ vivus. ŝi vendis sian farmbienon kaj miaj fratinoj oferis sian doton kaj per tio ili cedis la esperon pri bona edziniĝo, ili vivis per pano kaj brasiko. Tio ne servis por pagi miajn lecionojn, tio eĉ nepre ne sufiĉis. Tio nur povis kovri la vojaĝkostojn al Moskvo. Ni estis malriĉegaj, kaj mi timas, ke ili pereis pro malsatado. Tio vere ne valoris la penon, nun mi scias. Nenio valoras tian oferadon.”
 
 
-FANNY
-
-
 ”Tio certe valoras tian oferon. Via patrino senhezite farus ĝin duafoje, por tio ni, patrinoj, ja ekzistas!”
 
 Bauer rigardis sian poŝhorloĝon.
@@ -904,9 +658,7 @@ Bauer rigardis sian poŝhorloĝon.
 
 Tiam turnante sin rapide al sinjorino Brandeis:
 
-”Mi donos hodiaŭ hejme malgrandan vesperman-
-
-ĝon . . .”
+”Mi donos hodiaŭ hejme malgrandan vespermanĝon . . .”
 
 ”Dio, mia!” ĝemegis Schabelitz.
 
@@ -923,12 +675,7 @@ Molly Brandeis rigardis malsupren al sia antaŭtuko kaj glatigis ĝin per la fin
 Sinjorino G. Manville Smith en vespervesto, kies dekoltaĵo estis priparolita de la tuta urbo, de la ”Haley House” ĝis la granda ĉiovendejo de Gerretson, estis regula vizitantino de la vesperfestenoj ĉe Bauer hejme.
 
 
-FANNY
-
-
-”Ne, mi dankas, sed estas neeble. Kaj Teodoro nur estas knabo, lernejbubo. uste en sia aĝo li bezonas pli ol kiam ajn naŭhoran dormon. Pli poste li certe havos tempon por hejmaj festenoj. Kiam la voĉo de knabo ŝan-
-
-ĝiĝas kaj li ne scias, kiel li devas teni siajn brakojn kaj krurojn, tiam li prefere troviĝu hejme ĉe panjo.”
+”Ne, mi dankas, sed estas neeble. Kaj Teodoro nur estas knabo, lernejbubo. uste en sia aĝo li bezonas pli ol kiam ajn naŭhoran dormon. Pli poste li certe havos tempon por hejmaj festenoj. Kiam la voĉo de knabo ŝanĝiĝas kaj li ne scias, kiel li devas teni siajn brakojn kaj krurojn, tiam li prefere troviĝu hejme ĉe panjo.”
 
 ”Bona Dio, jen patrino!” kriis Schabelitz, ”kion ili ne scias. Mi trovas, ke vi estas prava.”
 
@@ -936,11 +683,7 @@ Bauer jen bedaŭris ĝin, jen ĝojis pri ĝi. Estus belete, se li povus paradi p
 
 ”Nu, ni iru. Ni ankoraŭfoje priparolos tion ĉi, sinjorino Brandeis. Post du semajnoj Schabelitz revizitos Winnebagon, en la revojaĝo al ĉikago. Intertempe li skribos al Wolfsohn. Ankaŭ mi. Interkonsentite! Kuniru Schabelitz!”
 
-Kiam li turnis sin por rigardi sian amikon, li ekvidis, ke ĉi tiu iras al unu el la stabloj, malantaŭ kiu li malkovris per spertulokuloj fraŭlinon Sadie en sia blanka bluzo kaj premfermita antaŭtuko. Sadie sciis ĉiam precize, kion oni portas en la State-strato en ĉikago, duonhoron post kiam sinjorino Brandeis estis reveninta de sia afera vojaĝo. ĉemizbluzoj ĝuste estis laŭmodaj kun al-
-
-ĝustiĝantaj leda rimeno kaj buko, ĉirkaŭ la kolparto flir-69
-
-FANNY
+Kiam li turnis sin por rigardi sian amikon, li ekvidis, ke ĉi tiu iras al unu el la stabloj, malantaŭ kiu li malkovris per spertulokuloj fraŭlinon Sadie en sia blanka bluzo kaj premfermita antaŭtuko. Sadie sciis ĉiam precize, kion oni portas en la State-strato en ĉikago, duonhoron post kiam sinjorino Brandeis estis reveninta de sia afera vojaĝo. ĉemizbluzoj ĝuste estis laŭmodaj kun alĝustiĝantaj leda rimeno kaj buko, ĉirkaŭ la kolparto flir-69
 
 
 tis du faldaĵoj el blanka krispiĝanta atlaso, kuntenataj sur la dorso.
@@ -957,15 +700,10 @@ La sola virino, kiu estas interesa — kaj li riverencis al sinjorino Brandeis �
 
 Kaj li restis. Sadie poste rakontis pri tio al Pearl kaj Aloisio proksimume jene:
 
-”Oni diras, ke li estas la plej bona violonisto de la mondo. Nu, tio malmulte interesas min, ĉar mi ne ŝatas 70
-
-FANNY
+”Oni diras, ke li estas la plej bona violonisto de la mondo. Nu, tio malmulte interesas min, ĉar mi ne ŝatas
 
 
 violonon. Tro multe da knarado, laŭ mi. Mi nur volas montri, ke ili ja ĉiuj estas samaj. ĉu ne vere? Mi mistifikis lin same, kiel unu horon antaŭe mi faris je Sam Bloom de la firmo Ganz & Pick, novnovaĵoj. Li ĝuste ridis pri tio, pri kio Sam ridis, kaj ambaŭ parolis sensencaĵon pri miaj haroj kaj okuloj, nur kun tiu ĉi diferenco: Sam diris, ke mi estas pupo, dum tiu Schabelitz aŭ kio ajn estas lia nomo, diris, ke mi estas same forloga kiel Lorelej. Li certe supozis, ke li superruzis min per tio, sed mi ne senefike legis pri kio ajn instrua kaj interesa. — ’Se vi pensas, ke vi flatas min per tio, vi tute eraras,’ mi diris. ’Vi ja scias, tiu Lorelej estis tiu maljuna sorĉistino, kiu sidis sur roko, kombante siajn harojn, freneze kantante por logi la preterveturantajn ŝipistojn. Nu, se mi devus streĉi min tiom, por ke oni atentu min, mi jam de longe estus rezigninta pri tio kaj mi serĉus konsolon ĉe kato kaj tepoto.’ Pro tio Schabelitz eksplodis en rido kaj kiam sinjorino Brandeis proksimiĝis, li diris ion pri la sprite-co de amerikaj virinoj. Sinjorino Brandeis nur respondis pri tio: ’Estas nenio, kio pli akcelas la evoluon de spirito kaj sprito ol laboro,’ kaj seninterrompe ŝi daŭrigis al Pearl: ’ĉu Aloisio sendis Eddy’n speciale kun tiu kaldrono?’ kaj pli da atento ŝi ne donis al li, ol ŝi estus doninta al vojaĝisto, kiu prezentas al ŝi kolekton da specimenoj, pri kiu ŝi neniel interesiĝas. Mi supozas, ke li ĝuste tial sentis sin hejme ĉi tie.”
-
-
-FANNY
 
 
 Sadie estis prava, tio absolute estis la kialo. Kiam Fanny duonhoron poste eniris la butikon, ŝi vidis la viron, kiu milojn da homoj entuziasmigis per sia muziko, ram-panta surgenue en la ludilsekcio. Kun Sadie kaj Aloisio li estis funkciiganta ĉiajn moveblajn ludilojn, ekz.: ur-sojn, klaŭnon, lokomotivojn, veturiletojn, kiuj ĉiuj ruliĝis frenezige sur la planko. Kelkfoje minacis okazi kolizio kontraŭ amaso da balailetoj aŭ turo el zinkaj kuvetoj, sed tiam Schabelitz malhelpis ĝin per ĝustatempa salt-ego kaj sukcesis turni la veturilojn en alia direkto.
@@ -982,16 +720,9 @@ Sadie estis prava, tio absolute estis la kialo. Kiam Fanny duonhoron poste eniri
 
 ”Kaj . . . li ludas sur la planko, kiel knabeto. Kiel li povas ridi! Vere, panjo, li estas tia, kia . . . kiu ajn, sed nur pli afabla.”
 
-Fanny rigardis al li medite. ŝi aŭdis multon pri li. La babilado de Teodoro abundis pri lia nomo. Fanny sciis, ke ĉi tiu homo scipovas ion pli bone ol iu ajn en la mon-72
+Fanny rigardis al li medite. ŝi aŭdis multon pri li. La babilado de Teodoro abundis pri lia nomo. Fanny sciis, ke ĉi tiu homo scipovas ion pli bone ol iu ajn en la mondo. ŝi konfuziĝis pro tiu penso. ŝi admiris ĉiun, kiu posedis kvalitojn, igantajn lin supera. Schabelitz prenis miraklan skatoleton kaj ĉiufoje, kiam la aĉa kapeto kun sia rikana arlekena mieno elsaltis de sub la kovrilo, li ridegis kiel knabo. Fanny staris malantaŭ la pakumstab-lo, apogante sin sur la kubutoj, por pli bone rigardi lin kaj pretervole ŝi ridis kun li ĉiufoje. ŝi ne sciis, ke ŝi kun-ridas. Estis reflekso de lia senzorga gajeco sur ŝia spirito. Kaj same ŝi ne sciis, kial ŝi koncentrigas sian menson tiel, ke ŝi sulkigas la frunton, kial ŝi prenas krajonon el la pupitro kaj klinas sin super la folio de la flava envol-va papero, kiu kuŝis antaŭ ŝi. ŝia langopinto videbliĝis en la buŝangulo inter la lipoj. ŝia kapo kliniĝis flanken.
 
-FANNY
-
-
-do. ŝi konfuziĝis pro tiu penso. ŝi admiris ĉiun, kiu posedis kvalitojn, igantajn lin supera. Schabelitz prenis miraklan skatoleton kaj ĉiufoje, kiam la aĉa kapeto kun sia rikana arlekena mieno elsaltis de sub la kovrilo, li ridegis kiel knabo. Fanny staris malantaŭ la pakumstab-lo, apogante sin sur la kubutoj, por pli bone rigardi lin kaj pretervole ŝi ridis kun li ĉiufoje. ŝi ne sciis, ke ŝi kun-ridas. Estis reflekso de lia senzorga gajeco sur ŝia spirito. Kaj same ŝi ne sciis, kial ŝi koncentrigas sian menson tiel, ke ŝi sulkigas la frunton, kial ŝi prenas krajonon el la pupitro kaj klinas sin super la folio de la flava envol-va papero, kiu kuŝis antaŭ ŝi. ŝia langopinto videbliĝis en la buŝangulo inter la lipoj. ŝia kapo kliniĝis flanken.
-
-Rapide ŝi skizis krudan, sed frape similan desegnaĵon de Levine Schabelitz, tia, kia li staris tie kun la ridinda ludilo en la mano. Estis amuzaĵo, pri kiu ŝi okupis sin ofte en la lernejo. Unu fojon ŝi tiel desegnis la instruistinon, kiu staris ĉe la vizito de la inspektoro, kvankam li estis edzo, en adoro antaŭ li. Kaj naive kaj nekonscie ŝi trafis precize la adoran rigardon en la okuloj de fraŭlino Cook, tiel ke tiu fraŭlino, kiam ŝi hazarde kaptis la skizon, traktis Fanjon en maniero tute ne deca laŭ la reguloj. Kaj ankaŭ nun ne estis la nura ekstera simileco, kiun ŝi ĝuste trafis; la hirtaj haroj kvazaŭ broso, la kvadrataj, flavaj, kampulaj dentoj, la fortikaj mano kaj manartiko, la diketa figuro, la elstaraj vangostoj, la strangaj ŝuoj kun 73
-
-FANNY
+Rapide ŝi skizis krudan, sed frape similan desegnaĵon de Levine Schabelitz, tia, kia li staris tie kun la ridinda ludilo en la mano. Estis amuzaĵo, pri kiu ŝi okupis sin ofte en la lernejo. Unu fojon ŝi tiel desegnis la instruistinon, kiu staris ĉe la vizito de la inspektoro, kvankam li estis edzo, en adoro antaŭ li. Kaj naive kaj nekonscie ŝi trafis precize la adoran rigardon en la okuloj de fraŭlino Cook, tiel ke tiu fraŭlino, kiam ŝi hazarde kaptis la skizon, traktis Fanjon en maniero tute ne deca laŭ la reguloj. Kaj ankaŭ nun ne estis la nura ekstera simileco, kiun ŝi ĝuste trafis; la hirtaj haroj kvazaŭ broso, la kvadrataj, flavaj, kampulaj dentoj, la fortikaj mano kaj manartiko, la diketa figuro, la elstaraj vangostoj, la strangaj ŝuoj kun
 
 
 larĝaj pintoj kaj la pantalono, kiu malsupre estis tiel larĝa, ke neniu usona tajloro iam ajn faris tian, similegis.
@@ -1014,9 +745,7 @@ Sinjorino Brandeis sanĝis sian monon kaj prenis la sekvantan folion da papero p
 
 Schabelitz ekrigardis kaj iris al ŝi, kun la skatolo en la mano:
 
-”Sinjorino, mi esperas, ke mi ne disaranĝis vian tutan butikon. Mi ĝojegis vere pro tio. ĉu vi volus kredi, ke ĉi tiu arlekeneto estas plena portreto de mia impresario, 74
-
-FANNY
+”Sinjorino, mi esperas, ke mi ne disaranĝis vian tutan butikon. Mi ĝojegis vere pro tio. ĉu vi volus kredi, ke ĉi tiu arlekeneto estas plena portreto de mia impresario,
 
 
 Weber, kiam la koncerto altiras multe da publiko kaj li multe enspezas. Li tiam same rikanas tiel . . .”
@@ -1039,9 +768,7 @@ Denove li rigardis la desegnaĵon kaj li levis delikate la kapon de Fanny per si
 
 ”Nu, jen Fanny. Jes, nun mi vere ne scias, ĉu estas juste. Efektive, mi scias certe, ke ne estas juste! Ne!”
 
-Fanny atendis ĉi tiun vesperon sian patrinon kaj ili iris kune hejmen. Ili nun havis preskaŭ la saman paŝon, ĉar la kruroj de Fanny estis plilongiĝintaj. ŝi nun atingis la 75
-
-FANNY
+Fanny atendis ĉi tiun vesperon sian patrinon kaj ili iris kune hejmen. Ili nun havis preskaŭ la saman paŝon, ĉar la kruroj de Fanny estis plilongiĝintaj. ŝi nun atingis la
 
 
 adoleskantinan aĝon. ”Panjo, kion li do celis, dirante, ke Teodoro fariĝos violonisto kaj ke ne estas juste? Kio ne estas justa? Kiel li fakte eniĝis en la butikon? Li aĉetis amason da ludiloj, ĉu ne? Li certe estas riĉega!”
@@ -1064,9 +791,7 @@ Fanny malfermis buŝon kaj okulojn mallarĝe pro ektimo.
 
 ”Tion mi ja sciis,” diris Molly Brandeis, kiam ili laŭiris la angulon de Noris-strato kaj ŝi rakontis koncize, kion Schabelitz diris pri Teodoro.
 
-Dum la tagmanĝo Teodoro manĝis kiel ĉiam. Kaj Fanny, kiu estis tiel ekscitita, kiel ŝi atendis, ke ŝia frato estus, rigardis lin tute konfuzite. ŝi preskaŭ ne povis manĝi kaj babilis. Kiam Teodoro ekkonsumis sian duan 76
-
-FANNY
+Dum la tagmanĝo Teodoro manĝis kiel ĉiam. Kaj Fanny, kiu estis tiel ekscitita, kiel ŝi atendis, ke ŝia frato estus, rigardis lin tute konfuzite. ŝi preskaŭ ne povis manĝi kaj babilis. Kiam Teodoro ekkonsumis sian duan
 
 
 porcion da frititaj terpomoj kun saŭco, ŝi ne plu povis reteni sin.
@@ -1083,23 +808,14 @@ porcion da frititaj terpomoj kun saŭco, ŝi ne plu povis reteni sin.
 
 Tio residigis Fanjon kaj ŝntentigis. ŝia patrino almenaŭ akordiĝis kun ŝi. Je duono post la sepa Teodoro, zorge brosita kaj glathara, iris por renkonti Emilon Bauer. Sinjorino Brandeis estis ekzameninta lin kaj dir-inte: ”Viaj ungoj!” ŝi resendis lin al la banĉambro. ŝi apenaŭ povis rezigni doni kison al li, sed li tute ne ŝatis tian ”afektecon”.
 
-”Mi malŝategas esti karesata,” li diris ĉiam. Kiam li estis foririnta, sinjorino Brandeis iris al Fanny en la man-
-
-ĝoĉambro. Mattie rearanĝis la tablon kaj Fanny klinis sin super libro. Estis aritmetiklibro. ŝi ne estis supera en tiu fako kaj estis unu el la maloftaj okazoj, ke ŝi kunportis libron el la lernejo hejmen. La problemvicoj estis teruraĵo por ŝi: en unu A. fosas puton, profundan 20 fu-77
-
-FANNY
+”Mi malŝategas esti karesata,” li diris ĉiam. Kiam li estis foririnta, sinjorino Brandeis iris al Fanny en la manĝoĉambro. Mattie rearanĝis la tablon kaj Fanny klinis sin super libro. Estis aritmetiklibro. ŝi ne estis supera en tiu fako kaj estis unu el la maloftaj okazoj, ke ŝi kunportis libron el la lernejo hejmen. La problemvicoj estis teruraĵo por ŝi: en unu A. fosas puton, profundan 20 fu-77
 
 
 tojn kaj larĝan 9 futojn ktp aŭ A. kaj B. preparas du ĉambrojn, tegas ilin per tapeto. A. bezonas 91/2 tagojn, la ĉambro estas longa tiom da futoj, larĝa, alta tiom kaj tiom. Kiom da tempo bezonas B, se li laboras ktp. Fanny malamegis tiujn nevenkeblajn A kaj B kaj ankoraŭ pli sinjoron C, kiu plikomplikigis la aferon. Kelkfoje sinjorino Brandeis savis sian filinon el laąoso de tapetmik-saĵo aŭ el la profundo de la puto, kiam evidentiĝis, ke ŝi restos tie eterne, se ke ŝi ne estos liberigita. Kutime ŝi insistis, ke Fanny kraku siajn proprajn matematikajn nuksojn. Tio estis bona mensa ekzercado, kaj certe ne malpli morale eduka. Sed ĉi tiun vesperon ŝi baldaŭ helpis sian filinon per sia klara komprenpovo solvi la problemojn, kiuj konsternis ŝin kaj klarigis ilin en malmulta tempo. Kaj post kiam ŝi estis faldinta la solvojn en la libron kaj apogis sin malantaŭen kun ĝemo pro liberiĝo, Molly Brandeis klinis sin al Fanny en la lamplumo kaj komencis tre severe paroli. Fanny, ruĝvanga kaj grandokula pro la ĵusaj streĉado kaj mensa batalo, aŭskultis interesite, poste scivole kaj fine absorbiĝinte. Kelkfoje ŝi interrompis senintence per: ”Sed, panjo, kiel . . .”
 
 sed tiam sinjorino Brandeis skuis la kapon kaj daŭrigis.
 
-ŝi rakontis al Fanny iom pri sia vivo post la edziniĝo, kio kaŭzis, ke Fanny rigardis ŝin per novaj okuloj. ŝi ĉiam pensis pri sia patrino, kiel dekkvarjarulino kutime pensas. ŝi neniam pensis, ke ĉi tiu panjo, kiu estas tiel kle-78
-
-FANNY
-
-
-ra, tiel fidinda, tiel mondkona, foje estis tre juna fianĉi-no kun la tuta vivo antaŭ si en rava espero kaj kun amo, kiu estis samgrada al tiu espero. Fanny sidis mutkonfu-zita, aŭdinte la historion de tiu knabino, kiu edziniĝis malgraŭ la malkonsilo de la familio kaj de ŝiaj amikoj.
+ŝi rakontis al Fanny iom pri sia vivo post la edziniĝo, kio kaŭzis, ke Fanny rigardis ŝin per novaj okuloj. ŝi ĉiam pensis pri sia patrino, kiel dekkvarjarulino kutime pensas. ŝi neniam pensis, ke ĉi tiu panjo, kiu estas tiel klera, tiel fidinda, tiel mondkona, foje estis tre juna fianĉi-no kun la tuta vivo antaŭ si en rava espero kaj kun amo, kiu estis samgrada al tiu espero. Fanny sidis mutkonfu-zita, aŭdinte la historion de tiu knabino, kiu edziniĝis malgraŭ la malkonsilo de la familio kaj de ŝiaj amikoj.
 
 Molly Brandeis rakontis ĉion koncize, senorname, sed
 
@@ -1109,9 +825,7 @@ Molly Brandeis rakontis ĉion koncize, senorname, sed
 
 ”Ho, panjo, ĉesu do tiel paroli, malami vin?”
 
-”Jes, pro tio, kion mi estos forpreninta de vi por doni al li, Fanny. Vi nun ne komprenas tion. Ni devos facili-gi la vojon por Teodoro. Tio signifas, ke vi kaj mi devos ŝparadi kaj vivi malpli oportune. Ne nun kaj iom pli poste, ne, ĉiam! Ni ne plu povos viziti teatron, koncerton 79
-
-FANNY
+”Jes, pro tio, kion mi estos forpreninta de vi por doni al li, Fanny. Vi nun ne komprenas tion. Ni devos facili-gi la vojon por Teodoro. Tio signifas, ke vi kaj mi devos ŝparadi kaj vivi malpli oportune. Ne nun kaj iom pli poste, ne, ĉiam! Ni ne plu povos viziti teatron, koncerton
 
 
 eĉ ne escepte. Tio signifas, ke viaj vestoj ne aspektos tiel belaj kiel tiuj de la aliaj knabinoj. Vi sidos antaŭ la pordo vespere kaj vidos viajn samaĝulinojn preterpasi en nova vesto, dum vi devos resti . . .”
@@ -1121,26 +835,16 @@ eĉ ne escepte. Tio signifas, ke viaj vestoj ne aspektos tiel belaj kiel tiuj de
 ”Certe, tio afliktos vin, mi scias, mi vere scias. Estas tre facile paroli pri oferado pro bonfara impulso, sed oferadi ĉiutage, kiam tio forkonsumas kaj eluzas vin, estas terure. Vi volos posedi vestojn, librojn, ornamaĵojn, vi rajtas havi bonan edukon kaj ĉion ĉi. Vi efektive rajtas kaj tio estas postulinda!” Subite la brakoj de Molly Brandeis kunfaldiĝis sur la tablo, ŝia kapo falis sur tiujn brakojn kaj ŝi ploregis, mallaŭte, sed skue, kiel viro ploras. Fanny rigardis al ŝi, kvazaŭ ne kredante, kion ŝi vidis. Post la morto de Ferdinando Brandeis ŝi ne plu vidis sian patrinon plori. ŝi saltis el la seĝo kaj metis sian kapon apud tiun de sia panjo, tiel ke ŝia varmega, velura vango tuŝis la malvarman, malsekan patrinan. ”Ho, panjo, ne ploru! Do ĉesu, Molly, kara. Mi ne povos elteni tion ĉi, mi mem ankaŭ ploros. ĉu vi pensas, ke mi ĉagreniĝos pro malbelaj vestaĉoj. Tute ne. Estos ĝuste tre agrable, ne ĉiam porti, kion la aliaj portas. Estos kvazaŭ mi havus sekreton aŭ ion similan. Nu, ĉesu fine, ni ne plu parolu pri tio.”
 
 
-FANNY
-
-
 Molly sekviŝis la okulojn, residiĝis kaj ekridetis. Estis nebula, eĉ nebulega rideto, sed ĝi pruvis, ke ŝi denove regas sin.
 
 ”Ne,” ŝi diris, ”ni ne plu parolu pri tio. Mi estas laca, tio estas la kaŭzo, kaj mi, sufiĉe stulte, ne pensis pri tio.
 
-Mi havas proponon. Mi iros serĉi mian kimonon kaj vi preparu ĉokoladaĵon por ni. ĉu vi volas? Ni festenos duope kaj se Mattie morgaŭ koleros pro la lakto, kiu mankas, nu, vi diru, ke mi permesis fari tion ĉi. Kaj mi kredas, ke estas en la tria skatolo sur la breto en la manĝo-
-
-ĉambro kelkaj pecoj da nugato, ni formanĝos ĉiom.”
+Mi havas proponon. Mi iros serĉi mian kimonon kaj vi preparu ĉokoladaĵon por ni. ĉu vi volas? Ni festenos duope kaj se Mattie morgaŭ koleros pro la lakto, kiu mankas, nu, vi diru, ke mi permesis fari tion ĉi. Kaj mi kredas, ke estas en la tria skatolo sur la breto en la manĝoĉambro kelkaj pecoj da nugato, ni formanĝos ĉiom.”
 
 
-FANNY
+ĈAPITRO VI.
 
-
-ĉAPITRO VI.
-
-Teodoro venis hejmen ĉi tiun vesperon je noktomezo. Li malgraŭ la malpermeso estis irinta al la studeja festeno ĉe Bauer. Estis la unua fojo, ke li sinliberige malobeis sian patrinon rilate al grava afero. Sinjorino Brandeis kaj Fanny trinkis la tutan vesperon ĉokoladon kaj la interrilatado fariĝis ĉiam pli milda kaj dolĉa; ili kuŝiĝis je la kutima tempo. Je duono post la deka sinjorino Brandeis vekiĝis pro la konscio, ke Teodoro ne estas hejme. ŝi kuŝis, fikse rigardante en la mallumo ĝis la dekunua. Tiam ŝi ellitiĝis kaj iris al lia ĉambro, kvankam ŝi sciis, ke li ne estas tie. ŝi tute ne maltrankviligis sin pri lia foresto, ĉar ŝi povis diveni, kie li estas. Sed ŝi koleris, konfuziĝis pro tio, ke li kuraĝis fari tion. ŝi reenlitiĝis kaj sentis pulsi la sangon en sia kapo. Molly Brandeis havis temperamenton kaj ĝi nun minacis eksplodi. i bategis sur la bariloj de ŝia memfido. ŝi asertis al si, ke ŝi trankvile kaj malafable traktos lin, sed ŝi sentis grandan inklinon regali lin per bataro. ŝi aŭdis iun veni tre rapid-paŝe sur la strato. ŝi eksidis en la lito por pli bone aŭskulti. La paŝoj preteriris la domon. Duonhoro pasis. Iu laŭiris la stratangulon, fajfante gaje. Ne, tio ne povas esti 82
-
-FANNY
+Teodoro venis hejmen ĉi tiun vesperon je noktomezo. Li malgraŭ la malpermeso estis irinta al la studeja festeno ĉe Bauer. Estis la unua fojo, ke li sinliberige malobeis sian patrinon rilate al grava afero. Sinjorino Brandeis kaj Fanny trinkis la tutan vesperon ĉokoladon kaj la interrilatado fariĝis ĉiam pli milda kaj dolĉa; ili kuŝiĝis je la kutima tempo. Je duono post la deka sinjorino Brandeis vekiĝis pro la konscio, ke Teodoro ne estas hejme. ŝi kuŝis, fikse rigardante en la mallumo ĝis la dekunua. Tiam ŝi ellitiĝis kaj iris al lia ĉambro, kvankam ŝi sciis, ke li ne estas tie. ŝi tute ne maltrankviligis sin pri lia foresto, ĉar ŝi povis diveni, kie li estas. Sed ŝi koleris, konfuziĝis pro tio, ke li kuraĝis fari tion. ŝi reenlitiĝis kaj sentis pulsi la sangon en sia kapo. Molly Brandeis havis temperamenton kaj ĝi nun minacis eksplodi. i bategis sur la bariloj de ŝia memfido. ŝi asertis al si, ke ŝi trankvile kaj malafable traktos lin, sed ŝi sentis grandan inklinon regali lin per bataro. ŝi aŭdis iun veni tre rapid-paŝe sur la strato. ŝi eksidis en la lito por pli bone aŭskulti. La paŝoj preteriris la domon. Duonhoro pasis. Iu laŭiris la stratangulon, fajfante gaje. Ne, tio ne povas esti
 
 
 li. Li ne fajfus. Estis iom post la dekdua, kiam ŝi aŭdis malfermi la ĉefpordon. (En Winnebago oni malofte ŝlo-sas la pordojn). Je sia miro ŝi aŭdis rapide bati sian koron. Li klopodis esti kvieta kaj pro tio li senintence bruis.
@@ -1168,16 +872,11 @@ Momenton li silentis. Tiam: ”Jes.”
 ”Jes, mi ne havis mian propran violonon.”
 
 
-FANNY
-
-
 ”Dimanĉon vi ne piedpilkludos kaj ne havos poŝmonon ĉi tiun semajnon. Al la lito!”
 
 Peze spirante, kun retenata grumblo li foriris. ĉe la matenmanĝo Fanny atakis lin per demandoj kaj ekkoleris, ĉar li mallonge respondis kaj estis malkomunikema.
 
-”ĉu estis mirakle, Teodoro? ĉu li ludis, nu, kiel an-
-
-ĝelo?”
+”ĉu estis mirakle, Teodoro? ĉu li ludis, nu, kiel anĝelo?”
 
 ”Li ludis tre bele, escepte tiun ’Cignaĵon’. Eble li trovis ĝin tro facila aŭ kia ajn, sed mi trovis, ke li fuŝas ĝin.
 
@@ -1185,9 +884,7 @@ Transdonu al mi panon, antaŭ ol vi ĉion formanĝos.”
 
 La postan aŭtunon Teodoro iris al Novjorko. Kio unue ŝajnis neebla, tamen okazis. Li loĝos ĉe ”pra”-parenco de Ferdinando Brandeis en Brooklyn kaj vizitos Novjorkon trifoje ĉiusemajne por instruo. Sinjorino Brandeis akompanis lin ĝis ĉikago, kie ŝi regalis lin per ekstravaganca manĝo, post tio ŝi reinstalis lin en la vagonaro kaj ŝi apenaŭ povis reteni la deziron, rekomendi lin al la bonvola atento de ĉiuj kunvojaĝantoj. Li ŝajnis nekredeble plenkreska en siaj nova kostumo kaj ĉapelo, kiun lastan ŝi saĝe aĉetis en ĉikago. ŝi tute ne ploris (en la vagonaro) kaj kisis lin nur dufoje kaj neniu viro en la mondo povus pli postuli de patrino.
 
-Molly Brandeis reiris al Winnebago kaj sia butiko, la ŝultrojn ankoraŭ iom pli malantaŭen tenante kaj la buŝon pli firme fermante. Estis io timiga en ŝia koncentriĝemo. De tiu tago ili komune komencis ŝparadi kiel 84
-
-FANNY
+Molly Brandeis reiris al Winnebago kaj sia butiko, la ŝultrojn ankoraŭ iom pli malantaŭen tenante kaj la buŝon pli firme fermante. Estis io timiga en ŝia koncentriĝemo. De tiu tago ili komune komencis ŝparadi kiel
 
 
 ajn, ili vivis en sinoferemo kiel nur virino kapablas. Ili ŝparis pri bagateloj, inkluzive de glaciaĵo, kremo, frandaĵoj eĉ pri vestoj. Unue tio estis amuza. Kiam ne plu estis amuze, fariĝis kutimo. Rilate al Fanny pri du punktoj ŝi decidis: unue, ke ŝi almenaŭ akiros diplomon pri mezgrada lernejo, kaj due, ke ŝi kiel eble plej malmulte povos helpi en la butiko.
@@ -1200,13 +897,9 @@ La unuan decidon Fanny volonte plenumis, pri la dua ŝi ne konsentis.
 
 Pro tiu diro Fanny ekgrimacis. Neniu povus ŝati pli la humoron de sia patrino, ol ŝi.
 
-”Sed mi vere jam scias tion ĉi. Antaŭ nelonge mi aŭ-
+”Sed mi vere jam scias tion ĉi. Antaŭ nelonge mi aŭdis tiun dikan viron, kiu al vi vendis la promenveturilojn, diri, ke la prezo estas ’f.o.b.’ ĝis Buffalo. Mi petis klari-gon al Aloisio kaj li instruis min pri tio.”
 
-dis tiun dikan viron, kiu al vi vendis la promenveturilojn, diri, ke la prezo estas ’f.o.b.’ ĝis Buffalo. Mi petis klari-gon al Aloisio kaj li instruis min pri tio.”
-
-Ne estis eviteble, ke Fanny Brandeis sciiĝas pri ĉiuj tiuj aferoj, ĉar la tuta familio envolviĝis en la Butiko en 85
-
-FANNY
+Ne estis eviteble, ke Fanny Brandeis sciiĝas pri ĉiuj tiuj aferoj, ĉar la tuta familio envolviĝis en la Butiko en
 
 
 Elmstrato. Kiam ŝi forlasis la liceon en sia dekoka jaro, ŝi konis tiom da aferoj, kiujn aliaj samaĝulinoj ne konas kaj same tiom da aferoj ŝi ne konis, kiujn aliaj dekok-jarulinoj tre bone konas, tiel ke oni en Winnebago eble prave trovis ŝin, nu, iom stranga. Tio ne signifas, ke Fanny travivis sian lernejan epokon sen adorantoj, kontraŭe; ĉiam estis iu, kiu portis ŝiajn librojn aŭ kiu estis ŝia kavaliro en baloj kaj dum la hejmeniro el la debatasociaj kunvenoj ĉiuvendrede.
@@ -1215,14 +908,10 @@ Clarence Heyl — kies ekziston vi apenaŭ plu memoras — necerte vagis ĉirka�
 
 Kiam ŝi estis deksesjara, ŝi sentis kun siaj vigleco kaj elokventeco inklinon al iu germana silentema knabo.
 
-Lian stultecon ŝi rigardis sagaceco kaj daŭris sufiĉe longe, antaŭ ol ŝi eltrovis, ke lia silentado ne estas sekvo de 86
-
-FANNY
+Lian stultecon ŝi rigardis sagaceco kaj daŭris sufiĉe longe, antaŭ ol ŝi eltrovis, ke lia silentado ne estas sekvo de
 
 
-profunda meditado, sed de la fakto. ke li havas nenion por diri. En la lasta lerneja jaro ŝi estis la favoratino de Herman Kent, la dando de la liceo. Liaj vestoj estis faritaj de Schwartze, la tajloro, dum ĉiuj aliaj junuloj portis kostumojn, aĉetitajn okaze de aŭtuna aŭ printempa restvendadoj en la magazeno ”Ora Aglo.” Li ĉiam devis ege cerbumadi pro la duonjaraj ekzamenoj, ĉar oni malpermesis al nefervoraj lernantoj partopreni en atletikaj konkursoj. Li estis unu el tiuj knaboj, kiu en aĝo de dek sep jaroj posedas ĉarmon kaj pozon, dum ili bezonas uzi savantajn slipojn en la manikfaldoj en la ekzameno. Li ĉiam troviĝis ĉe la kapo en aranĝado de festenoj kaj so-cietoj; dum la liceaj baloj li kutime portis rubandon en la butontruo, kiu markis kontrolkomitatestron. ĉiuj in-struistoj sciis, ke li estas blufanto, sed per siaj afablaj, imponaj manieroj, li trapasis la malfacilaĵojn. Kiam li foriris al la universitato li igis Fanjon solene promesi, ke ŝi skribos kaj iros al Madison por la piedpilkaj konkursoj. Li unufoje skribis leteraĉon plenan de eraroj, kaj ŝi respondis. Sed li estis unu el tiuj, kiujn oni ĉiutage ren-kontu por ne forgesi ilin. Li nenion povis postlasi pri sia personeco. Kiam li revenis en la kristnaska ferio, Fanny helpe servis en iu butiko. Li eniris neatendite iun posttagmezon, kiam ŝi vendis viskiglasojn al Mike Hearn de la ”Farmista Hotelo.” La sekvajn monatojn li tute ne ko-respondis kaj en la somera ferio ili okaze renkontis unu 87
-
-FANNY
+profunda meditado, sed de la fakto. ke li havas nenion por diri. En la lasta lerneja jaro ŝi estis la favoratino de Herman Kent, la dando de la liceo. Liaj vestoj estis faritaj de Schwartze, la tajloro, dum ĉiuj aliaj junuloj portis kostumojn, aĉetitajn okaze de aŭtuna aŭ printempa restvendadoj en la magazeno ”Ora Aglo.” Li ĉiam devis ege cerbumadi pro la duonjaraj ekzamenoj, ĉar oni malpermesis al nefervoraj lernantoj partopreni en atletikaj konkursoj. Li estis unu el tiuj knaboj, kiu en aĝo de dek sep jaroj posedas ĉarmon kaj pozon, dum ili bezonas uzi savantajn slipojn en la manikfaldoj en la ekzameno. Li ĉiam troviĝis ĉe la kapo en aranĝado de festenoj kaj so-cietoj; dum la liceaj baloj li kutime portis rubandon en la butontruo, kiu markis kontrolkomitatestron. ĉiuj in-struistoj sciis, ke li estas blufanto, sed per siaj afablaj, imponaj manieroj, li trapasis la malfacilaĵojn. Kiam li foriris al la universitato li igis Fanjon solene promesi, ke ŝi skribos kaj iros al Madison por la piedpilkaj konkursoj. Li unufoje skribis leteraĉon plenan de eraroj, kaj ŝi respondis. Sed li estis unu el tiuj, kiujn oni ĉiutage ren-kontu por ne forgesi ilin. Li nenion povis postlasi pri sia personeco. Kiam li revenis en la kristnaska ferio, Fanny helpe servis en iu butiko. Li eniris neatendite iun posttagmezon, kiam ŝi vendis viskiglasojn al Mike Hearn de la ”Farmista Hotelo.” La sekvajn monatojn li tute ne ko-respondis kaj en la somera ferio ili okaze renkontis unu
 
 
 la alian surstrate kaj interŝanĝis nur kelkajn ĝentilajn salutojn kaj vortojn. Subite klariĝis al Fanny, ke li sin tenas kiel ido de patricia familio, kiu renkontas la sufiĉe ĉarman servistinon sur la ŝtuparo. ŝi palpludis per imaga antaŭtuka pinto, riverencetis mallerte kaj malceremonie turnis sin, postlasante lin mutmirigita ĝuste an-taŭ la gazetejo de la ”Kuriero.”
@@ -1231,9 +920,7 @@ En la arbiturienta ekzameno ŝi faris ion, kio pravigis la Winnebaganojn nomi ŝ
 
 Kiam la vento blovis en unu direkto, oni eĉ perceptis la penetran haladzon tra la tuta urbo. Fremduloj suprentiris la nazon pro ĝi acidmiene, sed la urbanoj vere ŝatis ĝin.
 
-La fabrikoj estis grandaj, malbelaj konstruaĵoj, kies fenestroj estis blenditaj per kurtenoj da polvo. Iuj el tiuj fabrikoj, altkonstruitaj kvazaŭ turoj, staris iom fore kaj posedis malmultajn fenestrojn; tie oni procedis per se-kretaj acidoj. Antaŭe multaj laboristoj trovis laboron en la fabrikoj, sed la noveltrovitaj maŝinoj sinsekve forpelis la manlaborantojn. Nur en la ĉifonelsarkejoj laboris 88
-
-FANNY
+La fabrikoj estis grandaj, malbelaj konstruaĵoj, kies fenestroj estis blenditaj per kurtenoj da polvo. Iuj el tiuj fabrikoj, altkonstruitaj kvazaŭ turoj, staris iom fore kaj posedis malmultajn fenestrojn; tie oni procedis per se-kretaj acidoj. Antaŭe multaj laboristoj trovis laboron en la fabrikoj, sed la noveltrovitaj maŝinoj sinsekve forpelis la manlaborantojn. Nur en la ĉifonelsarkejoj laboris
 
 
 ankoraŭ centoj da knabinoj, kiuj elsarkis, elektis, kolektis sur grandaj transportaj rimenoj, kiuj amasojn da vest-rubaĵo preterglitigis antaŭ ili. La haloj, en kiuj ili laboris, estis grizaj pro polvo. Ili portis tukojn ĉirkaŭ la haroj por ŝirmi ilin de la polvaĉo, kiu plenigis la aeron, tiel ke oni povis vidi ĝin brilanta en la akveca sunlumstrio, kiu okaze, malofte, trovis trapenetrejon en la polvotegitaj vitroj.
@@ -1243,9 +930,6 @@ Neniam tamen ili komprenis, ke ĉi tiuj tukoj, kiujn ili tiras tiel zorge trans 
 Fine ili estis platigataj inter la roloj de lamenilo, kio eligis la likvaĵon kaj aperigis la amason en la bezonata di-keco, ĝis finfine oni liveris ĝin kiel foliojn da susuranta, blanka papero. Tio ĉi ŝajnis esti miraklo.
 
 La unuan tagon de la paska ferio Fanny Brandeis iris al la kontoro de la Winnebaga Paperkompanio kaj aspiris pri posteno. ŝi ricevis ĝin. enerale estis manko da laborfortoj en la ĉifonelsarkejo. Kiam sinjorino Brandeis eksciis pri tio, sekvis unu al la maloftaj tumultaj scenoj inter patrino kaj filino. ”Kial vi faris tion?” demandis sinjorino Brandeis.
-
-
-FANNY
 
 
 ”Tio estis necesa por ekscii precize la detalojn.”
@@ -1267,9 +951,6 @@ Kiel ili poste eniĝas en la malpuraĵujojn kaj fine en la pa-perfabrikon. Kiel 
 ”ĉu vi komprenas, kion mi celas, panjo, ĉu vi komprenas, kion mi volas diri?”
 
 
-FANNY
-
-
 Molly Brandeis timigite rigardis sian filinon, kiel iu mirrigardas, kiu laŭirante konatan vojon, subite sin trovas antaŭ tute nova spektaklo, ĝis nun ne konjektita aŭ antaŭe ne trafinta lin, kiu eble estas naskata el hazarda lumnuanco, nubkolektiĝo aŭ arbofoliaro aŭ pro kun-efiko de ĉiuj tri.
 
 ”Mi bone komprenas, kion vi celas,” ŝi diris, ”sed mi prefere vidus, ke vi ne faru tion. Mi volus, ke vi ne sentu, ke tio estas necesa por vi.”
@@ -1281,9 +962,6 @@ Molly Brandeis timigite rigardis sian filinon, kiel iu mirrigardas, kiu laŭiran
 En la paska ferio Fanny ĉiun matenon ellitiĝis je la sesa kaj iris al la fabriko kun buterpanujo en la mano.
 
 Vespere ŝi revenis mortlaca. ŝi ne prenis la tramon, por iri al kaj de la fabriko, ĉar, ŝi diris, tiel multaj knabinoj de la elsarkejo ĉiam venis perpiede, eĉ el la plej malproksimaj lokoj de la urbo. Sinjorino Brandeis diris, ke ŝi pri tio ege troigas, sed Fanny eltenis ĝin du semajnojn, post kio ŝi uzis tutan dimanĉon por ĝissubhaŭte purigi sin per harlavado, vaporbanoj, manikuro ktp. ŝi pretigis sian verkaĵon laŭ notoj en la fabriko kaj prezentis ĝin al la liceestro, estante ne tute kontenta pri la rezulto. Semajnon poste profesoro Henning venigis sin en sian ĉambron. ŝia verkaĵo kuŝis sur lia pupitro.
-
-
-FANNY
 
 
 ”Mi Iegis vian tezon,” li komencis kaj ĉesis, skraptu-sante. Li ne estis tre elokventa homo.
@@ -1304,9 +982,7 @@ Li mem portis ĝin al la redaktejo de la gazeto kaj interkonsentis, ke li reveno
 
 ”ĉu mi legis?” li e˛is post la demando de sinjoro Henning. ”ĉu mi legis? Jes, mi faris kaj vi povas kredi al mi,
 
-ĝi prezentas la plej timindan socialismon. Anar˛ismo tio estas. Kia knabino tio estas? La filino de sinjorino Brandeis! El la bazaro? Nu, mi ŝatus iri al ŝi, por laŭdi ŝian bonan metodon de edukado — se ŝi ne reklamus en nia gazeto . . . ’Peco da papero’. Tondre!” kaj por montri sian malestimon li prenis amason da kurznotaĵoj, kiuj kuŝis dise sur lia skribtablo, ĉifis ilin kaj faris el ili bulon, 92
-
-FANNY
+ĝi prezentas la plej timindan socialismon. Anar˛ismo tio estas. Kia knabino tio estas? La filino de sinjorino Brandeis! El la bazaro? Nu, mi ŝatus iri al ŝi, por laŭdi ŝian bonan metodon de edukado — se ŝi ne reklamus en nia gazeto . . . ’Peco da papero’. Tondre!” kaj por montri sian malestimon li prenis amason da kurznotaĵoj, kiuj kuŝis dise sur lia skribtablo, ĉifis ilin kaj faris el ili bulon,
 
 
 kiun li kolere ĵetegis sur la plankon kaj sekvigis ĝin per plenbuŝo da tabakkraĉaĵo.
@@ -1325,12 +1001,7 @@ Profesoro Henning glitigis embarasite la fingrojn tra la haroj, pentoplena, kiel
 
 Sekvis mallonga silento inter ili, tiam li diris: ”Eble mi bedaŭros iun tagon, ke ĉi tiu filino de Brandeis estas instruita de mi.”
 
-Fanny nun multe ĉeestis en la butiko. Post kiam ŝi finis la studadon, ili maldungis Mattie’n kaj Fanny transprenis la mastrumajn devojn, sed tion ŝi ne ŝatis, kvankam ŝi certe faris sian eblon. ŝi tutkore dediĉis sin al prepa-93
-
-FANNY
-
-
-rado de manĝaĵoj kaj kiam ŝi faris kukon kun glaciaĵo, ŝi plej ofte ornamis ĝin per arabeskoj el gelato. La domo brilis ankoraŭ pli ol dum la reĝimo de Mattie. Sed estis, kvazaŭ buterigilo estas movita de la multĉevalforta maŝino. Estis periodoj de freneziga senripoza aktiveco.
+Fanny nun multe ĉeestis en la butiko. Post kiam ŝi finis la studadon, ili maldungis Mattie’n kaj Fanny transprenis la mastrumajn devojn, sed tion ŝi ne ŝatis, kvankam ŝi certe faris sian eblon. ŝi tutkore dediĉis sin al preparado de manĝaĵoj kaj kiam ŝi faris kukon kun glaciaĵo, ŝi plej ofte ornamis ĝin per arabeskoj el gelato. La domo brilis ankoraŭ pli ol dum la reĝimo de Mattie. Sed estis, kvazaŭ buterigilo estas movita de la multĉevalforta maŝino. Estis periodoj de freneziga senripoza aktiveco.
 
 Ekzemple ŝi subite komencis purigi la kelon, ĝi estis kelo trisekcia, kun ŝtona planko, kun tiu karakteriza kelha-ladzo pro ŝimo, karbo, terpomoj, cepoj, putranta ligno kaj konservaĵoj.
 
@@ -1338,44 +1009,28 @@ Aliaj knabinoj samaĝaj escepte purigus la tirkestojn de sia skribtablo aŭ legu
 
 Fanny kontraŭe provizis sin per balailo kaj broso, viŝis kaj lavis, sapumis la bretojn, purigis la vitrojn de la konservaĵpotoj kaj fariĝis mem polvokovrita, ruĝa kaj nigra.
 
-Tiu kelo estis bela sekuriga klapo, nur estis bedaŭrinde, ke la domo ne posedis subtegmentejon. Venis la longaj, senenergiigaj, someraj posttagmezoj, kiam nur legado povis doni distron, kiam oni povis revi, rigardi la homojn, kiuj hejmeniras por tagmanĝi. Mi supozas, ke tio estas la kaŭzo, ke tiel multaj grandaj, gravaj personoj, devenas de malgravaj urboj kaj vilaĝoj. Ili havis en sia juneco tempon por revi. Ili ne bezonas kuri post tramo, viziti posttagmezajn prezentaĵojn, tie ne estas homplenaj stratoj, nenio tie estas pri tiu multmova, senvalora kaj tamen energipostula agado de la grandurbanoj. Ekzistas sufiĉe da okazoj por ekhavi impresojn en aĝo, 94
-
-FANNY
+Tiu kelo estis bela sekuriga klapo, nur estis bedaŭrinde, ke la domo ne posedis subtegmentejon. Venis la longaj, senenergiigaj, someraj posttagmezoj, kiam nur legado povis doni distron, kiam oni povis revi, rigardi la homojn, kiuj hejmeniras por tagmanĝi. Mi supozas, ke tio estas la kaŭzo, ke tiel multaj grandaj, gravaj personoj, devenas de malgravaj urboj kaj vilaĝoj. Ili havis en sia juneco tempon por revi. Ili ne bezonas kuri post tramo, viziti posttagmezajn prezentaĵojn, tie ne estas homplenaj stratoj, nenio tie estas pri tiu multmova, senvalora kaj tamen energipostula agado de la grandurbanoj. Ekzistas sufiĉe da okazoj por ekhavi impresojn en aĝo,
 
 
 ĝuste tiel taŭga tiucele; estas longaj vesperoj por legado kaj longaj tagoj por vagi tra kampoj kaj arbaroj. Pretig-inte la tablon, la panon, pudingon kaj flanon, kiam la terpomoj estis kuirataj, Fanny sidiĝis sur la benkon an-taŭ la domo kaj atendis, ĝis fine la konata figuro de ŝia patrino aperos ĉe la angulo de Norris-strato.
 
 ŝi tiam sidis, portante la blu-kaj-blankan antaŭtukon,
 
-— kiu, elegante kuntirita ĉe la koksoj, ĉarmigis ŝin aten-tige — kaj rigardis la preterpasantojn. ŝi vidis Hen Cody kun lia knaranta ĉaro, la knabojn de la liceo, kiuj ŝvitan-taj kaj lacaj en sportkostumo de la sportkampo kuris al la lernejo, por duŝi sin, sinjorinon Mosher, kiu preskaŭ trotkure alvenis pro la tro longa vistludado, la malgrandan Ernie Trost, kiu portis korbeton, kovritan per buŝ-
+— kiu, elegante kuntirita ĉe la koksoj, ĉarmigis ŝin aten-tige — kaj rigardis la preterpasantojn. ŝi vidis Hen Cody kun lia knaranta ĉaro, la knabojn de la liceo, kiuj ŝvitan-taj kaj lacaj en sportkostumo de la sportkampo kuris al la lernejo, por duŝi sin, sinjorinon Mosher, kiu preskaŭ trotkure alvenis pro la tro longa vistludado, la malgrandan Ernie Trost, kiu portis korbeton, kovritan per buŝtuko kaj kiu atendis la regionan tramon de 6.15, por transdoni sian korbeton kun manĝaĵoj al sia patro, kiam ĉi tiu preterveturis. Venis Rudie Maas, la buĉistservisto kun malseka peco da viando en la mano, kiu ĉiam mar-
 
-tuko kaj kiu atendis la regionan tramon de 6.15, por transdoni sian korbeton kun manĝaĵoj al sia patro, kiam ĉi tiu preterveturis. Venis Rudie Maas, la buĉistservisto kun malseka peco da viando en la mano, kiu ĉiam mar-
-
-ŝis zigzage kun mieno, supoziganta provokon. Fanny verŝajne neniam konsciis, kiom ŝi lernas kaj asimilas, kiam ŝi sidis apud la pordo kaj vidis hejmeniri la man-
-
-ĝontajn Winnebaganojn. ĉirkaŭ Kristnasko ŝi helpis servi en la butiko, posttagmeze kaj vespere. Iun fojon, ĝuste antaŭ Kristnasko, sinjorino Brandeis devis resti hejme dum tri semajnoj pro gripo kaj oni bezonis helpon por la mastrumado. Kiam sinjorino Brandeis revenis, Sadie 95
-
-FANNY
+ŝis zigzage kun mieno, supoziganta provokon. Fanny verŝajne neniam konsciis, kiom ŝi lernas kaj asimilas, kiam ŝi sidis apud la pordo kaj vidis hejmeniri la manĝontajn Winnebaganojn. ĉirkaŭ Kristnasko ŝi helpis servi en la butiko, posttagmeze kaj vespere. Iun fojon, ĝuste antaŭ Kristnasko, sinjorino Brandeis devis resti hejme dum tri semajnoj pro gripo kaj oni bezonis helpon por la mastrumado. Kiam sinjorino Brandeis revenis, Sadie
 
 
 forlasis la butikon, por edziniĝi al . . . ne al unu el la vojaĝistaj viktimoj, sed al brava tapetisto, kies perspektivoj antaŭe ŝajnis senesperaj. De tiam Fanny anstataŭis ŝin daŭre. ŝi montriĝis esti tre lerta kaj taŭga pri vendado. Tio tamen, konsiderante la kvalitojn de ŝia instruistino, ne estis miriga. ŝi lernis, kiel povas lerni nur iu, kiu ĉiutage kontaktas kun la publiko. Fakte estis pli ol kontakto, estis kvazaŭ intimeco inter kliento kaj vendisto. ŝi lernis juĝi la homojn, ĉar ŝi nepre devis fari tion. Alie ja negocisto ne povos diveni la guston, la temperamenton kaj precipe la monujenhavon de kliento. Kaj ili venis kaj iris tagon post tago: vojaĝistoj, lernantoj, mastrumisti-noj, farmistoj, pensionestrinoj, junaj geedzoj, kiuj instalis novan hejmon, kaj komercistoj. ŝi lernis, ke la fabriklaboristinoj aĉetas la multekostajn murbildojn — tiujn manpentritajn kun ruĝaj rozoj kaj verdaj folioj — kiuj kostas du kaj duonan dolarojn, dum la estraranoj de la golfklubo elektas por premio aŭ donaco la simplajn blankajn kun la dubblua desegnaĵo, kiuj kostas nur tridek naŭ cendojn. Iun fojon, kiam ŝi elspezis multe da tempo kaj pacienco dum la vendo de preskaŭ senvalora murornamaĵo al unu el la altrangulaj Winnebaganinoj, ŝi ne plu povis sin reteni kaj tuj post la foriro de la
 
-”grava” kliento, ŝi ribele grumblis: ”ĉu vi vidis tion? Unu horon mi penis, mi montris ĉion, de Limoges-vazo ĝis Sevres-tasoj kaj subtasoj kaj ĉio, kion ĉi tiu sorĉistino 96
-
-FANNY
+”grava” kliento, ŝi ribele grumblis: ”ĉu vi vidis tion? Unu horon mi penis, mi montris ĉion, de Limoges-vazo ĝis Sevres-tasoj kaj subtasoj kaj ĉio, kion ĉi tiu sorĉistino
 
 
-aĉetis, estas tiu bombonujaĉo kun la cejanoj.” Sinjorino Brandeis parolis el la profundo de sia saĝeco: ”Mi dum la tuta horo sekvis vian agadon kaj mi preskaŭ marŝis sur pingloj, tiom mi deziris helpi vin, transprenante la tedulinon. Mi tamen rezignis, ĉar estas bona instruo por vi; mi bone sciis, ke tiu McNultyino elspezas neniam pli ol kvarondolaron. Ne gravas, kiom vi vendis, sed estas afero de sperto, oni ekkonu la homojn. Se vi estos tiom progresinta, ke vi scias, al kiu vi montru la multkostajn manpentritaĵojn kaj al kiu vi senhezite prezentu la aĉa-
+aĉetis, estas tiu bombonujaĉo kun la cejanoj.” Sinjorino Brandeis parolis el la profundo de sia saĝeco: ”Mi dum la tuta horo sekvis vian agadon kaj mi preskaŭ marŝis sur pingloj, tiom mi deziris helpi vin, transprenante la tedulinon. Mi tamen rezignis, ĉar estas bona instruo por vi; mi bone sciis, ke tiu McNultyino elspezas neniam pli ol kvarondolaron. Ne gravas, kiom vi vendis, sed estas afero de sperto, oni ekkonu la homojn. Se vi estos tiom progresinta, ke vi scias, al kiu vi montru la multkostajn manpentritaĵojn kaj al kiu vi senhezite prezentu la aĉaĵojn — laŭ via propra dirmaniero — nur tiam vi ĝisfun-de konos la homan naturon. Sed ne atendu tion ĉi en via aĝo!”
 
-ĵojn — laŭ via propra dirmaniero — nur tiam vi ĝisfun-de konos la homan naturon. Sed ne atendu tion ĉi en via aĝo!”
+Molly Brandeis ankoraŭ ne malkutimiĝis babili kun klientoj aŭ aŭskulti iliajn rakontojn, se la okazo nur iomete permesis. Kelkaj eĉ senkiale eniris la butikon, instalis smforte en seĝon apud la ardanta fajrujo kaj ekbabilis. Estis nekredeble, kiom da sekretoj tie estis konfidataj pri aferoj, amo kaj malfavoro, pri esperoj, sopiroj, ĉagreno kaj feliĉo. Fanny ĉiam denove miris pri la rezignacia sindonemo de la farmistinoj, inter kiuj sinjorino Brandeis certigis sin pri granda aro da lojalaj disĉiploj. Estis ankoraŭ antaŭ la tempo, kiam ĉiu farmdomo vantis pri aŭtomobilo, telefono aŭ fonografo.
 
-Molly Brandeis ankoraŭ ne malkutimiĝis babili kun klientoj aŭ aŭskulti iliajn rakontojn, se la okazo nur iomete permesis. Kelkaj eĉ senkiale eniris la butikon, instalis smforte en seĝon apud la ardanta fajrujo kaj ekbabilis. Estis nekredeble, kiom da sekretoj tie estis konfidataj pri aferoj, amo kaj malfavoro, pri esperoj, sopiroj, ĉagreno kaj feliĉo. Fanny ĉiam denove miris pri la rezignacia sindonemo de la farmistinoj, inter kiuj sinjorino Brandeis certigis sin pri granda aro da lojalaj dis-
-
-ĉiploj. Estis ankoraŭ antaŭ la tempo, kiam ĉiu farmdomo vantis pri aŭtomobilo, telefono aŭ fonografo.
-
-Fanny ofte estis konsternata, kiam tiuj virinoj diris sian aĝon. Dudek kvin, dudek ok, tridek, sed maljunaj 97
-
-FANNY
+Fanny ofte estis konsternata, kiam tiuj virinoj diris sian aĝon. Dudek kvin, dudek ok, tridek, sed maljunaj
 
 
 kaj velkintaj pro peza trolaboro, naskado de idoj, malbona kaj malsaniga nutrado. Nesciantaj virinoj, perdin-taj en soleca monotoneco de sia ekzistado ĉiun vivdezi-ron, kion montris iliaj senbrilaj, senardaj okuloj. Kiam ili ridis, oni vidis du vicojn da bluetaĉaj, falsaj dentoj, kiuj strange kontrastis kun iliaj elturmentitaj, ŝrumpintaj, eluzitaj vizaĝoj. Sinjorino Brandeis volonte ĝentile demandis ilin pri ĉio.
@@ -1393,9 +1048,6 @@ Kredeble sinjorino Brandeis ŝuldis ilian lojalecon al sia simpatia malkaŝemo. 
 Kiam Minnie Mahler el Centerville edziniĝis, ŝi sukcesis aĉetigi de la parencoj la plej konvenajn donacojn por la mastruma instalado.
 
 
-FANNY
-
-
 ”Mi intencas aĉeti bufedan vazaron,” la onklino de Minnie konfesis al ŝi, ”sed . . . ”
 
 ”ĉu estas por Minnie Mahler el Centerville?”
@@ -1408,13 +1060,9 @@ FANNY
 
 Kaj la onklino finis per aĉeto de la proponita objekto.
 
-La butiko nun donis profiton. Ne multe, sed sufiĉe. La pli granda parto iris al Teodoro en Dresden. Li progresis, sed ne tiel fenomene kiel Bauer kaj Schabelitz antaŭ-
+La butiko nun donis profiton. Ne multe, sed sufiĉe. La pli granda parto iris al Teodoro en Dresden. Li progresis, sed ne tiel fenomene kiel Bauer kaj Schabelitz antaŭdiris. Nu, tiaj aferoj postulas tempon. Fanny kelkfoje havis la impreson, ke ŝia patrino bezonas malpezigi sian koron per propono al ŝi. Fine ŝi efektive faris tion: ”Fanny, iru al la desegna kurso,” (malgranda societo kun sen-pretendaj artproduktoj). Fanny klopodis labori dum kelkaj monatoj, sed ŝi ne povis alkutimiĝi, ŝi ne ŝatis ĉiam fari pentraĵojn, prezentantaj jen fruktojn, florojn en vazo kun libro, jen bukedon el granda makulo da blankaj aŭ ruĝaj floroj. Fine tiuj senvivaĵoj naŭzis sin. Krom tio, la butiko postulis ŝian helpon.
 
-diris. Nu, tiaj aferoj postulas tempon. Fanny kelkfoje havis la impreson, ke ŝia patrino bezonas malpezigi sian koron per propono al ŝi. Fine ŝi efektive faris tion: ”Fanny, iru al la desegna kurso,” (malgranda societo kun sen-pretendaj artproduktoj). Fanny klopodis labori dum kelkaj monatoj, sed ŝi ne povis alkutimiĝi, ŝi ne ŝatis ĉiam fari pentraĵojn, prezentantaj jen fruktojn, florojn en vazo kun libro, jen bukedon el granda makulo da blankaj aŭ ruĝaj floroj. Fine tiuj senvivaĵoj naŭzis sin. Krom tio, la butiko postulis ŝian helpon.
-
-Ofte venis virino al Winnebago, kiun Fanny entuzias-me admiris. ŝi estis vojaĝistino, sukcesa, magnete rigardanta kaj tre vigla. ŝi nomigis sinjorino Emma McChesney kaj inter ŝi kaj sinjorino Brandeis ekzistis varma 99
-
-FANNY
+Ofte venis virino al Winnebago, kiun Fanny entuzias-me admiris. ŝi estis vojaĝistino, sukcesa, magnete rigardanta kaj tre vigla. ŝi nomigis sinjorino Emma McChesney kaj inter ŝi kaj sinjorino Brandeis ekzistis varma
 
 
 amikeco. ŝi kutimis tagmanĝi ĉe sinjorino Brandeis kaj Fanny, kiuj faris sian eblon por dorloti ŝin per ĉiaj plej simplaj pladoj, kiujn ŝi neniam kuraĝus mendi dum sia senfina migrado de hotelo en hotelon.
@@ -1426,12 +1074,7 @@ amikeco. ŝi kutimis tagmanĝi ĉe sinjorino Brandeis kaj Fanny, kiuj faris sian
 ”Molly Brandeis, ĉu tio signifas, ke vi ne kuraĝas diri, kion vi preparis? Ho, se estus hejmbakita fragtorto, tio estus troigaĵo.” Kompreneble ŝi divenis ĝuste. Fanny Brandeis imagis, ke ŝi vestos sin same kiel sinjorino McChesney, kiam ŝi mem estos sukcesa vojaĝistino kaj perlaboros porviran salajron. Sinjorino McChesney ĉiam estis vestita en bluserĝaj kostumoj kaj tiu serĝo neniam estis glacea sur la dorso. ŝiaj kolumeto, ĵaboto, kravato aŭ iu ajn blanka vestornamaĵo, kiujn ŝi portis, estis ĉiam plej freŝaj kaj neĝblankaj. La ĉapeloj, kiujn ŝi portis, estis ĉiam malgrandaj kaj nepre plenumis la postulon pri fasono. Kutime ŝi aranĝis tiel, ke ŝi povis pasigi tutan dimanĉon en Winnebago kaj la tri humuramaj, viglaj kaj bravaj virinoj, fariĝintaj saĝaj kaj toleremaj pro multe da kontakto kun homaj estaĵoj, komune ĝuis plej agrablan tagon.
 
 
-FANNY
-
-
-”Molly,” sinjorino McChesney okaze diris, kiam ili sidis komforte en la familia ĉambro, ”vi per viaj ruzo, sagaco, sperto kaj saĝo, vi povus aparteni al tiuj vojaĝ-
-
-istinoj, kiuj ĉiujare enspezas kvin- aŭ eĉ dekmil dolarojn.
+”Molly,” sinjorino McChesney okaze diris, kiam ili sidis komforte en la familia ĉambro, ”vi per viaj ruzo, sagaco, sperto kaj saĝo, vi povus aparteni al tiuj vojaĝistinoj, kiuj ĉiujare enspezas kvin- aŭ eĉ dekmil dolarojn.
 
 Vi scias, kiel trakti la homojn kaj kiel plej oportune vendi. Vi konas la prezojn, mi ne konsilos al vi, migri kiel mi, tion mi eĉ devos malkonsili al mia malamiko, sekve nenial al amikino. Sed vi povus fari ion pli bonan, gajni pli da sukceso, pli profiti. Vi konas ja ĉiujn pograndistojn kaj pomalgrandistojn. Kial vi ne klopodas trovi postenon de sekcia ĉefo. ĉu mi povos serĉesplori por vi tiurilate?”
 
@@ -1444,9 +1087,6 @@ Sinjorino McChesney ŝtelrigardis al Fanny.
 ”Kio koncernas Fanjon, mi supozas, ke ŝi povos fariĝi tre sukcesplena komercistino, se ŝi volos.”
 
 Fanny retenis la spiron kaj ŝia mieno brilis pro ekĝojo, kiel ĉiam, kiam ŝi ege interesiĝis.
-
-
-FANNY
 
 
 ”ĉu vi scias, kiel mi agus, se mi estus via patrino? Mi farus grandan eksalton, kaj riskus la transsalton de la Rubikono. Kion ŝi povos fari en ĉi tiu urbaĉ . . . pardonu . . . nenion, ĉu ne? Dum sia tuta vivo ŝi preterlasis bonŝancon kaj kion tio portis al ŝi?”
@@ -1465,12 +1105,7 @@ Emma McChesney absorbiĝis momenton en pensado kaj poste demandis: ”Kion vi, d
 
 ”Kion vi celas per tio, mia knabino, tio sonas iom amare.”
 
-”Mi pensis pri tio, kion Chesterfield diras en unu el siaj leteroj al sia filo: ’Serĉu ĉiam la societon de tiuj, kiuj superas vin’. Sed li certe neniam loĝis en Winnebago. Mi estas virino, kiu laboras kaj estas judino, mi posedas nek nomon nek pozicion. Mi estas fortune maldotita provin-102
-
-FANNY
-
-
-canino, kiu povus deziris al si iun konstelacion de la ĉie-lo, kiel brustpinglon tiel same, kiel ŝi dezirus havi ĉi tie amikinojn, kiujn ŝi efektive bezonas.”
+”Mi pensis pri tio, kion Chesterfield diras en unu el siaj leteroj al sia filo: ’Serĉu ĉiam la societon de tiuj, kiuj superas vin’. Sed li certe neniam loĝis en Winnebago. Mi estas virino, kiu laboras kaj estas judino, mi posedas nek nomon nek pozicion. Mi estas fortune maldotita provincanino, kiu povus deziris al si iun konstelacion de la ĉie-lo, kiel brustpinglon tiel same, kiel ŝi dezirus havi ĉi tie amikinojn, kiujn ŝi efektive bezonas.”
 
 De Molly Brandeis al Emma McChesney transflugis multsignifa rigardo, kiu enhavis:
 
@@ -1490,29 +1125,18 @@ Emma McChesney ridis kaj Molly ankaŭ. Fanny kun-ridis, kvankam ŝi mem ektimis 
 
 ”ĉu, Ruton?”
 
-”El la biblio. ĉu vi ne memoras, hm, kiu ajn estu la nomo de ŝia edzo, kiam ĉi tiu mortis, ĉu ŝi reiris al la 103
-
-FANNY
+”El la biblio. ĉu vi ne memoras, hm, kiu ajn estu la nomo de ŝia edzo, kiam ĉi tiu mortis, ĉu ŝi reiris al la
 
 
-urbo, kie ŝi antaŭe loĝis? Ne, ŝi ne faris tion. ŝi sciis ja ĉion pri tiu urbo. Kaj ŝi diris al sia bopatrino Naomi: tien, kien vi iros, mi akompanos vin. Kaj kiam ili alvenis en Betleęmon, Rut atente rigardis, prudente, kiam ŝi ekvidis Boazon, la nobelon de la urbo. ŝi komencis post-kolekti spikojn sur liaj kampoj, prenis mienon, tiel an-
-
-ĝelan, kvazaŭ ŝi estus kerubino, nenion scianta, sed intertempe ŝi ŝtele observis Boazon. Kiam Boaz kontrolis la laboron, li preteriris ankaŭ ŝin, vidis ŝin kaj demandis:
+urbo, kie ŝi antaŭe loĝis? Ne, ŝi ne faris tion. ŝi sciis ja ĉion pri tiu urbo. Kaj ŝi diris al sia bopatrino Naomi: tien, kien vi iros, mi akompanos vin. Kaj kiam ili alvenis en Betleęmon, Rut atente rigardis, prudente, kiam ŝi ekvidis Boazon, la nobelon de la urbo. ŝi komencis post-kolekti spikojn sur liaj kampoj, prenis mienon, tiel anĝelan, kvazaŭ ŝi estus kerubino, nenion scianta, sed intertempe ŝi ŝtele observis Boazon. Kiam Boaz kontrolis la laboron, li preteriris ankaŭ ŝin, vidis ŝin kaj demandis:
 
 ’Kiu estas tiu fraŭlino, ŝi estas amindulino!’ ”
 
 ”Fanny Brandeis, hontu!”
 
-”Sed panjo, tiel ja estas priskribite en la biblio, laŭvorte! ’Kies estas ĉi tiu junulino?’ Li sciiĝis, ke estas Rut, la ploranta vidvino kaj de tiu tempo la knabinoj de Betle-
+”Sed panjo, tiel ja estas priskribite en la biblio, laŭvorte! ’Kies estas ĉi tiu junulino?’ Li sciiĝis, ke estas Rut, la ploranta vidvino kaj de tiu tempo la knabinoj de Betleęmo plu ne interesis lin, estis, kvazaŭ ili plu ne ekzistas. Li edziĝis al Rut, kiu fariĝis ’sinjorina moŝto’. Nu, se oni aranĝas la aferojn nur prudente jen la sekreto de sukceso!”
 
-ęmo plu ne interesis lin, estis, kvazaŭ ili plu ne ekzistas. Li edziĝis al Rut, kiu fariĝis ’sinjorina moŝto’. Nu, se oni aranĝas la aferojn nur prudente jen la sekreto de sukceso!”
-
-”Vi videble legis multe, Fanny,” diris Emma McChesney. ŝi ridetis, sed ŝiaj okuloj aspektis seriozaj, ”aŭskultu do bone, injo. La unuan fojon, kiam refoje iu vojaĝ-
-
-isto, kiu ajn, en bruna kostumo kaj kun ruĝa kravato, invitas vin al festeno ĉe Haley, eĉ kiam estas por unu el tiuj modestaj urbfamaj dimanĉaj festenoj, vi akceptu.”
-
-
-FANNY
+”Vi videble legis multe, Fanny,” diris Emma McChesney. ŝi ridetis, sed ŝiaj okuloj aspektis seriozaj, ”aŭskultu do bone, injo. La unuan fojon, kiam refoje iu vojaĝisto, kiu ajn, en bruna kostumo kaj kun ruĝa kravato, invitas vin al festeno ĉe Haley, eĉ kiam estas por unu el tiuj modestaj urbfamaj dimanĉaj festenoj, vi akceptu.”
 
 
 ”ĉu ankaŭ mi akceptu, kiam li portas perlan kravat-pinglon kaj framasonan insignon, diamantan ringon kaj brunan surtuton?”
@@ -1520,10 +1144,7 @@ FANNY
 ”Eĉ tiam, se li montros al vi la leterojn de sia fianĉino en Neniejo,” diris sinjorino McChesney solene, ”provizore vi vidis tro multe pri Fanny Brandeis mem.”
 
 
-FANNY
-
-
-ĉAPITRO VII.
+ĈAPITRO VII.
 
 Teodoro foriris jam antaŭ ses jaroj. Liaj leteroj, ĉiuj tro koncizaj, estis gravaj okazaĵoj en la vivo de am-baŭ virinoj. Ili legis, relegis ilin. Fanny nekonscie plibe-ligis ilin per fantazioj, aldonitaj detaloj.
 
@@ -1531,12 +1152,7 @@ Teodoro foriris jam antaŭ ses jaroj. Liaj leteroj, ĉiuj tro koncizaj, estis gr
 
 ”Imagu al vi! Dresdeno, Munkeno, Lejpcigo, Vieno, Berlino! Kaj el liaj leteroj oni konkludus, ke li neniam forlasis Winnebagon. Mi kredas, ke li vere vidas nenion de tiuj urboj, de la homoj, konstraŭĵoj, placoj. Alia urbo por li estas nenio ol alia podio, alia aŭskultantaro, alia fortepiano, ĉio kune nur alia fono por lia violono. Li povus tramigri la tutan mondon kaj tio eĉ ne tuŝus lin iel. Li nur sidus kun spiritaj manoj, unu plektita en alia.”
 
-Teodoro nun ludis en koncertoj kun iom da sukceso, sed la profito ankoraŭ ne estis granda. Li ankoraŭ ne estis konata. Tio postulos tempon. Li bezonis fariĝi fama en Eŭropo antaŭ ol li povis prezenti sin en Usono. Nuntempe Greinerit estis la favorato. Tiu ricevis plenplenajn salonojn. Li sendis sian portreton, kiun ili unue mirigi-106
-
-FANNY
-
-
-te, poste ridante rigardis. Li aspektis tiel terure germana, tiel tute alia.
+Teodoro nun ludis en koncertoj kun iom da sukceso, sed la profito ankoraŭ ne estis granda. Li ankoraŭ ne estis konata. Tio postulos tempon. Li bezonis fariĝi fama en Eŭropo antaŭ ol li povis prezenti sin en Usono. Nuntempe Greinerit estis la favorato. Tiu ricevis plenplenajn salonojn. Li sendis sian portreton, kiun ili unue mirigite, poste ridante rigardis. Li aspektis tiel terure germana, tiel tute alia.
 
 ”Tion kaŭzas la maniero, en kiu liaj haroj estas tonditaj, mi opinias,” diris Fanny. ”Tiel hirte! Kaj rigardu liajn vestojn! Kia kravato! Kia pantalono! Kiel abomena kolumo! Lia tuta aspekto estas vere germana! Mi supozas, ke estas la efiko de ĉiuj tiuj eksteraj sengravaĵoj!”
 
@@ -1545,9 +1161,6 @@ Unu monaton post la fotografaĵo alvenis letero, en kiu li sciigis, ke li edziĝ
 ŝia nomo estis Olga Stumpf. (En sia abomeno pri tio, io certigis ŝin, ke Olga posedas dikajn, ruĝajn manojn, ja kun tia nomo!) ŝi estis orfino, ŝi kantis en unu el la vienaj koncertkafejoj, sed ŝi estis tute alia ol iu ajn knabino. Li estis tiel feliĉa. Li malŝategis peti, sed li ŝatus ricevi telegrafe cent dolarojn aŭ iom pli, se eble. Tio helpos tiom starigi la hejmon. ĉi kune ŝia portreto. Jen ŝia portreto. Unu el tielnomitaj vivamaj tipoj el la malaltranga viena medio kun afektita rideto, zorge frizitaj haroj, alte tenataj mamoj, premtalia, kun ringoj en la oreloj, kolĉenoj, braceletoj. Estis, kvazaŭ oni flaras la penetran par-fumon, kiun ŝi uzadas. ŝi estis pli aĝa ol Teodoro aŭ eble nur ŝajnis tia pro la orelringoj. Ili sendis la cent dolarojn.
 
 Post la unua seniluziiga ŝokiĝo Molly Brandeis eltrovis ĉiajn ekskuzojn por li. ”Li ja estis tie terure sola, Fanny.
-
-
-FANNY
 
 
 Nun li trovos trankvilon kaj efektive progresos. Li nun studos pli multe.”
@@ -1560,22 +1173,12 @@ Sed ŝi tamen faris. Kaj Molly Brandeis, la virino kun la forta, rekta staturo, 
 
 Fanny nun plej ofte faris la aĉetojn. ŝi aĉetis rapide kaj samtempe prudente, same kiel ŝia patrino. Eĉ ŝi iris al Haley-House, se necese, kaj pluraj Winnebaganoj restis starantaj antaŭ la hotelo, kiam ili, preterpasante, vidis ŝian sveltan rektan figureton, kiam ŝi pasis laŭlonge de la plenaj tabloj kun porcelanaĵoj, glasaroj aŭ kristnaskartikloj aŭ kio ajn, kion la speciala komercisto ofertis tie.
 
-Ili ofte inklinis suspekte suprentiri la brovojn, sed kiel ajn, oni ne povus serĉi firilaton inter tiu parade vestita vojaĝisto, kiu fanfarone tenis cigaron en la buŝo kaj not-108
-
-FANNY
-
-
-libron en la mano kaj la naiva knabino, kiun li sekvis tra la specimensalono. En la daŭro de la tempo ŝi enkondukis kelkajn novaĵojn en la aferon kaj forigis la malmodernaĵojn. La elstaraj elmontrejoj pli kaj pli malpligrandiĝis kaj fine tute malaperis. Fanny prizorgis mem la fe-nestran elmontrejon kaj ofte vespere revenis, por aranĝi kun Aloisio la novan. Ili pendigis pecon da muslino malantaŭ la vitro por ne esti ĝenataj de scivolaj preterpasantoj kaj instalis la montraĵaron en maniero, ke ĝi inde anstataŭis la antaŭajn eksterdomajn ekspozejojn.
+Ili ofte inklinis suspekte suprentiri la brovojn, sed kiel ajn, oni ne povus serĉi firilaton inter tiu parade vestita vojaĝisto, kiu fanfarone tenis cigaron en la buŝo kaj notlibron en la mano kaj la naiva knabino, kiun li sekvis tra la specimensalono. En la daŭro de la tempo ŝi enkondukis kelkajn novaĵojn en la aferon kaj forigis la malmodernaĵojn. La elstaraj elmontrejoj pli kaj pli malpligrandiĝis kaj fine tute malaperis. Fanny prizorgis mem la fe-nestran elmontrejon kaj ofte vespere revenis, por aranĝi kun Aloisio la novan. Ili pendigis pecon da muslino malantaŭ la vitro por ne esti ĝenataj de scivolaj preterpasantoj kaj instalis la montraĵaron en maniero, ke ĝi inde anstataŭis la antaŭajn eksterdomajn ekspozejojn.
 
 La kristnaska periodo, kiu sekvis la edziĝon de Teodoro, estis la plej sukcesa en la historio de la Brandeisa Bazaro. Pro ĝi Fanny sentis poste malamon al la feria periodo ĉirkaŭ Kristnasko. ŝi poste ĉiam klopodis elturni sin el la butiko en tiu multmova, penpostula tempo. La du virinoj laboris tiom, kiom kvar viroj. Ili havis grandan provizon. Sinjorino Brandeis estis ĉie samtempe. ŝi eks-pluatis la fortojn de siaj helpistinoj ekstreme, sed tiel, ke ili ne konsciis tion. Tio estas karakteriza en ĉiu naturdotita gvidanto. ŝi mem neniam ripozis kaj la helpantinoj imitis ŝin sen instigo. ŝi neniam plendis pro laciĝo, neniam perdis sian bonan humoron. ŝi ĉiam dediĉis multe da pacienco al la klientoj, eĉ al krudmanaj farmistoj, kiuj trifoje turnas moneron antaŭ ol ili elspezas ĝin, ĉar ili ja tordakiris ĝin el la tero. En la superŝuta multokupiĝo ŝi konservis sian bonkoran afablecon al la klientoj.
 
 
-FANNY
-
-
-Unu farmistino venis por aĉeti pupkapon kaj vane ser-
-
-ĉis en la kolekto, antaŭ ol ŝi fine trovis ion plaĉan. Kiam ŝi estis enpakonta la kapon, la farmistino rakontis, ke ĝi estas por la eta Minjo. La sekvontan jaron ŝi donacos korpon sub la kapo. Molly Brandeis kompatis la etulinon, kiu devus dediĉi sian ”patrinamon” al nura pupkapo. ŝi rigardis al la stranga kapo, prezentis al ŝi, kiel ĝi eliĝos malreale de sub la kusenoj sur la kanapo en la pompa ĉambro kaj kiel Minjo eniros por ĝoji pri ĝia blonda vaksa beleco.
+Unu farmistino venis por aĉeti pupkapon kaj vane serĉis en la kolekto, antaŭ ol ŝi fine trovis ion plaĉan. Kiam ŝi estis enpakonta la kapon, la farmistino rakontis, ke ĝi estas por la eta Minjo. La sekvontan jaron ŝi donacos korpon sub la kapo. Molly Brandeis kompatis la etulinon, kiu devus dediĉi sian ”patrinamon” al nura pupkapo. ŝi rigardis al la stranga kapo, prezentis al ŝi, kiel ĝi eliĝos malreale de sub la kusenoj sur la kanapo en la pompa ĉambro kaj kiel Minjo eniros por ĝoji pri ĝia blonda vaksa beleco.
 
 ”Jen, kunportu!” ŝi diris, ”kaj surgluu la kapon, tiam Minjo almenaŭ posedos ion permane tenindan,” kaj ŝi enpakis kun la kapo rozkoloran pupkorpeton pienigitan per segaĵo.
 
@@ -1584,12 +1187,7 @@ Estis neĝoriĉa, pitoreska kaj malvarmega Kristnasko, blovis la forta, seka, pe
 En la butiko frostis ĉe la pordo kaj estis sufokvarme apud la forno, sed ĉiufoje, kiam la pordo malfermiĝis, malvarmega fluo eniĝis. Pro la multego da klientoj estis preskaŭ neeble movi sin sen faligi iun frakaseblan objekton. Sed la altaj turoj el fajencaĵoj kaj pladoj iom post iom forfandiĝis, same kiel la pupoprovizo. Sinjorino Brandeis mem importis fajencon kaj pupojn kaj neniu magazeno en Winnebago, eĉ ne la ĉiovendejo de Gerretson povis fieri pri tia kolekto. La du virinoj apenaŭ prenis tempon por manĝi en la tagoj de la feria klientfluo.
 
 
-FANNY
-
-
-Ofte Annie, la anstataŭantino de Mattie alportis ilian tagmanĝon en la butikon, varmegan, kaj rapide ili englutis ĝin en la mallarĝa koridoro, kie staris glitveturiloj, pupveturiloj kaj ladskatoloj. Nokte (ĉar la butiko restis malfermita ĝis la deka aŭ dekunua dum la kristnaska ferio) ili stumblis hejmen tra la neĝo, tiel lacegaj, ke ili apenaŭ perceptis la frostegon. La glacia vento tranĉis la vizaĝojn kaj dolorigis la tempiojn, la neĝo krakis sub la piedoj. Malferminte la antaŭpordon, preskaŭ falŝanceli-
-
-ĝante ili eniris; la domo ŝajnis tiel kvieta kaj paca post la ąosa kurado en la butiko.
+Ofte Annie, la anstataŭantino de Mattie alportis ilian tagmanĝon en la butikon, varmegan, kaj rapide ili englutis ĝin en la mallarĝa koridoro, kie staris glitveturiloj, pupveturiloj kaj ladskatoloj. Nokte (ĉar la butiko restis malfermita ĝis la deka aŭ dekunua dum la kristnaska ferio) ili stumblis hejmen tra la neĝo, tiel lacegaj, ke ili apenaŭ perceptis la frostegon. La glacia vento tranĉis la vizaĝojn kaj dolorigis la tempiojn, la neĝo krakis sub la piedoj. Malferminte la antaŭpordon, preskaŭ falŝanceliĝante ili eniris; la domo ŝajnis tiel kvieta kaj paca post la ąosa kurado en la butiko.
 
 ”ĉu vi ŝatas sandviĉon, panjo, kun glaso da biero?”
 
@@ -1601,9 +1199,7 @@ Fanny komencis malŝati la ĉiamajn demandojn, kiujn ĉiu kliento denove faris: 
 
 Ili ŝparis ĉi tiun jaron malgrandan fortunon. La vesperon antaŭ Kristnasktago ili ridis unu al la alia, kiel du kamaradoj, kiuj batalis kune, oferis sian sangon kaj venkis.
 
-Kiam ili stumblis hejmen, estis ĉirkaŭ noktomezo. Ili renkontis ankoraŭ kelkajn homojn, kiuj malfrue aĉetis donacojn kaj nun troŝarĝitaj kaj abunde provizitaj kuris preter ilin, kun pakoj, el kiuj sin montris tra la bruna 111
-
-FANNY
+Kiam ili stumblis hejmen, estis ĉirkaŭ noktomezo. Ili renkontis ankoraŭ kelkajn homojn, kiuj malfrue aĉetis donacojn kaj nun troŝarĝitaj kaj abunde provizitaj kuris preter ilin, kun pakoj, el kiuj sin montris tra la bruna
 
 
 papero strangaj teniloj, rikanantaj kapoj, kun grandaj faskoj da ilekso. Ili mem malmulte parolis, ili ne kapablis pro ellaciĝego. Enirinte la pordon Fanny, kiu serĉis la ŝlosiltruon de la interpordo, falpuŝiĝis kontraŭ granda ligna kesto, kiun tien metis evidente iu pakliveristo aŭ ekspresdisportisto. Estis tre peza kesto.
@@ -1623,14 +1219,9 @@ Sinjorino Brandeis estis formetinta la supervestojn kaj staris apud la forno, fr
 ”Ho, panjo!” ekploris Fanny kaj impulse ĉirkaŭbrakis ŝin, ”karulino! Kiel vi trovis tempon en tiu freneziga tro-okupiteco, por pensi pri mi! Kiel?”
 
 
-FANNY
-
-
 ŝiaj brakoj metiĝis ĉirkaŭ la ŝultroj, ardanta vango premiĝis kontraŭ la malvarma, pala patrina. Ili kune ploretis pro emocio, laceco, kormalpeziĝo kaj ĝojo, kiel virinoj kelkfoje kutimas fari. Fanny sukcesis la postan matenon teni sian patrinon en la lito, kvankam sinjorino Brandeis nevolonte faris tion. Post la trostreĉado de la festotagoj ŝin ĉiam kaptis akra malvarmumo, kvazaŭ protesto de la korpo, kiu du, tri semajnojn tro multe laboris kaj estis nesufiĉe nutrata. Kiam ŝi estis malsana, ŝi estis teda kaj sanĝiĝema kiel viro, turnis sin en la lito kaj ĉiufoje intencis eliri, petis jen varmigan akvujon, jen malvarmajn kompresojn, jen alkoholmasaĝon. ŝi cerbumis pri la butiko kaj imagis, ke la afero absolute haltas pro ŝia foresto.
 
-Fanny mem ellitiĝis frue. ŝia juna, tute sana korpo bezonis nur ununoktan dormon por neniigi la streĉadon de unu monato. ŝi elpensis veran Kristnaskan festenon por forviŝi la memoron de la rapidigaj, senapetitaj, for-glutigaj manĝoj dum la labortroaj tagoj. Estis meleagraĵo, kaj Fanny admonis Annie’n ne tuŝi ĝin. ŝi mem volis prepari la ŝtopotaĵon kaj rosti ĝin. La tutan matenon ŝi pasigis en la kuirejo, escepte la tempon, kiun ŝi bezonis por mallaŭte, sur la piedfingroj, ŝtelviziti la dormoĉambron de sia patrino. Je la dekunua ŝi trovis ŝin jam el la lito kaj neniu admono sukcesis decidigi ŝin refoje eniri ĝin. ŝi estis leginta la gazetojn kaj diris, ke ŝi 113
-
-FANNY
+Fanny mem ellitiĝis frue. ŝia juna, tute sana korpo bezonis nur ununoktan dormon por neniigi la streĉadon de unu monato. ŝi elpensis veran Kristnaskan festenon por forviŝi la memoron de la rapidigaj, senapetitaj, for-glutigaj manĝoj dum la labortroaj tagoj. Estis meleagraĵo, kaj Fanny admonis Annie’n ne tuŝi ĝin. ŝi mem volis prepari la ŝtopotaĵon kaj rosti ĝin. La tutan matenon ŝi pasigis en la kuirejo, escepte la tempon, kiun ŝi bezonis por mallaŭte, sur la piedfingroj, ŝtelviziti la dormoĉambron de sia patrino. Je la dekunua ŝi trovis ŝin jam el la lito kaj neniu admono sukcesis decidigi ŝin refoje eniri ĝin. ŝi estis leginta la gazetojn kaj diris, ke ŝi
 
 
 sufiĉe ripozis. La meleagraĵo estis surtabligita, orbruna kun kraketantaj krustoj.
@@ -1646,9 +1237,6 @@ Sinjorino Brandeis ŝajnigis uzi siajn forkon kaj tranĉilon, sed ŝi fine rezig
 Post la tagmanĝo estis varme kaj intimece en la ĉambro. Ekstere estis malvarmege, sed sunbrile. Dika neĝotavolo kovris la teron, sed sur la trotuaroj plej ofte ĝi estis forigata de kolenvolvitaj filoj kaj patroj. ĉe Brandeis mankis viro kaj Fanny mem estis tro okupita por fari la laboron, vere porviran. Tial la neĝo ankoraŭ kuŝis antaŭ ilia domo, almenaŭ kiom la preterpasintaj piedoj ne pla-tigis ĝin.
 
 
-FANNY
-
-
 ”Mi senneĝigos la trotuaron,” diris Fanny subite. ”ĉir-kaŭe, ĝis la lignujo. Kie estas miaj malnovaj pugnogan-toj? Annie, kie estas la ŝovelilo? Kial mi ne faru tion?”
 
 ŝi ŝovelis, skrapis kaj puŝis, ĉiufoje ŝi klinis sian korpon ritme, forŝovelis amason da neĝo per siaj fortaj, junaj brakoj, ĝin ĵetis flanken, rekomencis, ĝuis pro la peza laboro. Kiam okaze preteriris najbaro ŝi munsalutis gaje kaj respondis lian ŝercon. ”Feliĉan Kristnaskon!” ŝi vokis, kaj kiam la alia unue deziris, ”Mi dankas, same al vi.”
@@ -1658,9 +1246,6 @@ Je la dua Bella Weinberg telefonis al ŝi kaj diris, ke ili en malgranda grupo i
 Nu, rapide!” Sekve Fanny surmetis aliajn vestojn kaj kun la glitkuriloj en la mano ŝi eliris. Jam vesperiĝis, kiam ŝi revenis hejmen, gajokula, tute plena de ardo, brilo kaj freŝeco. ŝia sango pulsis forte tra la vejnoj. ŝiaj lipoj estis iomete malfermitaj. La penado de la pasintaj tri semajnoj estis forgesita pro ĉi tiu ununura rava posttagmezo.
 
 Estis mallume en la domo, kiam ŝi revenis. Estis tre kviete, premkviete kaj malhele post la gajeco kaj ĝojo de la posttagmezo.
-
-
-FANNY
 
 
 ”Panjo, ĉu vi ankoraŭ dormas?”
@@ -1681,16 +1266,9 @@ Hodiaŭ vespere mi prenos iom da ĝi post la manĝo, post tio piedbanon kaj tuj 
 
 Tiun vesperon ŝi manĝis ankoraŭ malpli ol je tagmezo. ŝi apenaŭ eltrinkis la teon, kiun Fanny insistis prepari por ŝi, ŝi ŝanceliĝis, kiam ŝi sidis, apenaŭ povis teni la okulojn malfermitaj, kvazaŭ ŝiaj palpebroj estus tro pezaj. Je la sepa ŝi jam kuŝiĝis, tuj ekdormis malfacile spirante.
 
-ĉirkaŭ la dekunua Fanny vekiĝis tuj ektimante, ŝi sidi-
+ĉirkaŭ la dekunua Fanny vekiĝis tuj ektimante, ŝi sidiĝis en la lito kaj aŭskultis. ŝi aŭdis iun paroli per alta, stranga voĉo, kiu similis tiun de ŝia patrino, sed tamen
 
-ĝis en la lito kaj aŭskultis. ŝi aŭdis iun paroli per alta, stranga voĉo, kiu similis tiun de ŝia patrino, sed tamen
-
-ĝi estis malsama. ŝi rapidis, frosttremante al la ĉambro de sia patrino kaj faris lumon. Sinjorino Brandeis kuŝis surdorse, ŝiaj okuloj estis preskaŭ tute fermitaj, nur mal-116
-
-FANNY
-
-
-larĝa fendeto videbligis strion da okulblankaĵo inter la palpebroj. ŝia kapo skuiĝis sur la kuseno. ŝi parolis, kelkfoje kompreneble, sed plej ofte murmure.
+ĝi estis malsama. ŝi rapidis, frosttremante al la ĉambro de sia patrino kaj faris lumon. Sinjorino Brandeis kuŝis surdorse, ŝiaj okuloj estis preskaŭ tute fermitaj, nur mallarĝa fendeto videbligis strion da okulblankaĵo inter la palpebroj. ŝia kapo skuiĝis sur la kuseno. ŝi parolis, kelkfoje kompreneble, sed plej ofte murmure.
 
 ”Granddekduon da tasoj kaj subtasoj . . . kaj kiel vi opinias pri tio, kiel dua premio . . . en la kelo . . . Aloisio . . . vagonaro . . . mi faros mian eblon por hejmpor-tigi ilin ankoraŭ hodiaŭ . . .”
 
@@ -1711,9 +1289,6 @@ Daŭris longe antaŭ ol ŝi atingis lin. ŝi penis regi sian voĉon kaj kredis, 
 Doktoro Hertz venis. Li faris la kutimajn demandojn, frapis, aŭskultis, nombris kaj fine ekstaris.
 
 
-FANNY
-
-
 ”Freŝa aero!” li diris ”malvarma aero! Malfermu ĉiujn fenestrojn.”
 
 Ili improvizis saloneton per ŝirmilo kaj littukoj por ŝir-mi la liton de trablovo. Fanny obeis silente, kiel soldato.
@@ -1730,9 +1305,7 @@ Fanny ĉirkaŭprenis la malsupran litornamaĵon.
 
 ”Jes.”
 
-Fanny estis momenton mirigita, kiam montriĝis, ke la flegistino jam alvenis. La mateno venis. En la kuirejo Annie eklaboris malpli brue ol kutime. La hieraŭo ŝajnis tre malproksima. Fariĝis posttagmezo, krepuskiĝis kaj doktoro Hertz restis multajn horojn, foriris, revenis kaj kuniris kun li alia kuracisto, doktoro Thorn. Sinjorino Brandeis nun ne plu parolis, sed nur anhelis. Tiu malfacila anhelado plenigis la ĉambron, ĝi plenigis la tutan 118
-
-FANNY
+Fanny estis momenton mirigita, kiam montriĝis, ke la flegistino jam alvenis. La mateno venis. En la kuirejo Annie eklaboris malpli brue ol kutime. La hieraŭo ŝajnis tre malproksima. Fariĝis posttagmezo, krepuskiĝis kaj doktoro Hertz restis multajn horojn, foriris, revenis kaj kuniris kun li alia kuracisto, doktoro Thorn. Sinjorino Brandeis nun ne plu parolis, sed nur anhelis. Tiu malfacila anhelado plenigis la ĉambron, ĝi plenigis la tutan
 
 
 ĉambron. Fanny prenis la manon de sia patrino en sian, tiun manon kun la laborkaliĝa manplato kaj la stumpiĝaj ungoj. Estis malvarmege en la ĉambro.
@@ -1754,9 +1327,6 @@ Doktoro Hertz pintigis la lipojn. La flegistino iris al ŝi kaj metis manon sian
 ”Infano mia, mi timas, ke jes!”
 
 
-FANNY
-
-
 El ŝia gorĝo eliĝis plorĝemo, alta, akra unue, poste malfortiĝanta al tremego, kiu ŝajnis neniiĝi en ŝia koro.
 
 Post tio ree estis kviete en la ĉambro, nur la anhelado, tamen pliraŭkiĝanta, estis aŭdebla. Fanny fiksrigardis la virinon en la lito, la longforman, delikatan kapon kun la nigraj haroj, kiuj nun distaŭzitaj kuŝis sur la kuseno, la longan, rektan, inteligentan nazon, la mildan buŝon. ŝi sentis, ke estiĝas en ŝi furioza, blinda kontraŭstaro. Kion prezentis al ŝi la vivo? Kion, fakte nenion. ŝi grincigis la dentojn. ŝi spiregis tra la nazotruoj, kvazaŭ ŝi ĵus kuregis. Subite ŝi ekpreĝis, ne ceremonie kun Ci kaj Cia kiel en la preĝejo, ne elegante, ne elokvente, per bele formitaj frazoj, sed minace, raŭke, kiel senesperiĝanto, preskaŭ provoke preĝas.
@@ -1772,10 +1342,7 @@ Rigardu ŝin, rigardu al ŝi!”
 ŝia voĉo rompiĝis en singulton. La flegistino turnis sin abrupte kaj senkompate kaj kondukis ŝin el la ĉambro.
 
 
-FANNY
-
-
-ĉAPITRO VIII.
+ĈAPITRO VIII.
 
 Vi povas malsupreniri. ĉiuj ĉeestas, mi kredas. Doktoro Thallmann estas komenconta.”
 
@@ -1785,24 +1352,16 @@ Fanny enprofundiĝis en seĝegon en sia dormĉambro, ekrigardis la indiferente a
 
 ”Mi vere forgesis, vere mi ne atentis ĝin!”
 
-La densa krepo falis ĉirkaŭ siajn ŝultrojn kaj kaŝis in-dulge la ŝvelintan, senkoloran vizaĝon. ŝi malsupreniris la ŝtuparon. Obtuza bruado de sonoj, nekomprenebla, sed tamen iom emocia, kiel simpatiatesto, fluis al ŝi, kiam ŝi preteriris la plenan familian ĉambron al la antaŭĉambro, kie rabeno Thallmann atendis kun libro en la mano apud tio, kio staris tie, kovrita de floroj. Fanny eksidis. ŝi havis senton, kvazaŭ ĉio ĉirkaŭ ŝi ne estus realaĵo. Doktoro Thallmann skraptusis kaj malfermis sian libron. Estis tute malgrave, kiel rabeno Thallmann redaktis sian funebran predikon, ĝi neniel difinis la 121
-
-FANNY
+La densa krepo falis ĉirkaŭ siajn ŝultrojn kaj kaŝis in-dulge la ŝvelintan, senkoloran vizaĝon. ŝi malsupreniris la ŝtuparon. Obtuza bruado de sonoj, nekomprenebla, sed tamen iom emocia, kiel simpatiatesto, fluis al ŝi, kiam ŝi preteriris la plenan familian ĉambron al la antaŭĉambro, kie rabeno Thallmann atendis kun libro en la mano apud tio, kio staris tie, kovrita de floroj. Fanny eksidis. ŝi havis senton, kvazaŭ ĉio ĉirkaŭ ŝi ne estus realaĵo. Doktoro Thallmann skraptusis kaj malfermis sian libron. Estis tute malgrave, kiel rabeno Thallmann redaktis sian funebran predikon, ĝi neniel difinis la
 
 
 rangon de Molly Brandeis en la kongregacio, nur la kon-sistigantoj de la societo, kiuj aŭskultis, kion la rabeno diras, indikis sian lokon en la urbo. ĉiu havis sian opinion pri Molly Brandeis, kiun lasta panegiro certe ne povus ŝanĝi iel ajn. Pastro Feitzpatrick estis tie; lia bela, granda figuro kun la blankaj ambaŭvangaj, flirtantaj haroj donis al li en ĉi tiu medio pli ol iam la sintenon de gvidanto. Li apartenis al tiuj, kiuj sidis en la tielnomita,
 
 — laŭ lia diro — konfesejo de sinjorino Brandeis, tie apud la forno en la butiko.
 
-Ili ambaŭ parolis ofte pri ĉielaj kaj surteraj aferoj. Lia instruita kaj ekzercinta spirito ne estis egalvalora konku-ranto por ŝia, sed ili ambaŭ posedis humuran, same kiel dramecan inklinon kaj iun tagon ili kune malkovris, sufi-
+Ili ambaŭ parolis ofte pri ĉielaj kaj surteraj aferoj. Lia instruita kaj ekzercinta spirito ne estis egalvalora konku-ranto por ŝia, sed ili ambaŭ posedis humuran, same kiel dramecan inklinon kaj iun tagon ili kune malkovris, sufiĉe strange, ke ili kultas la saman Dion. ĉiu el tiuj aferoj aparte jam sufiĉas por naski amikecon. Krom tio, Molly Brandeis scipovis rakonti en neimitebla maniero irlandan fabelon. ĉu vi jam aŭskultis pastron Fitzpatrick, kiam li rakontis tiun de Ikey kaj la nikelmonero? Nu, tio estus plezuro por vi. Ne, efektive, tiu katolika pastro, kiu ŝajnis streĉe aŭskulti, nur malmulton lernis per tio, kion rabeno Thallmann diris.
 
-ĉe strange, ke ili kultas la saman Dion. ĉiu el tiuj aferoj aparte jam sufiĉas por naski amikecon. Krom tio, Molly Brandeis scipovis rakonti en neimitebla maniero irlandan fabelon. ĉu vi jam aŭskultis pastron Fitzpatrick, kiam li rakontis tiun de Ikey kaj la nikelmonero? Nu, tio estus plezuro por vi. Ne, efektive, tiu katolika pastro, kiu ŝajnis streĉe aŭskulti, nur malmulton lernis per tio, kion rabeno Thallmann diris.
-
-Hermano Walthers, la bankisto de la ”Unua Nacia Winnebaga,” kies vizitoj multfoje timigis Molly’n Brandeis, ĉeestis. Augustus G. Gerretson kun tri el siaj sekci-
-
-ĉefoj estis tie. Tuj malantaŭ li sidis Emil Bauer. En an-122
-
-FANNY
+Hermano Walthers, la bankisto de la ”Unua Nacia Winnebaga,” kies vizitoj multfoje timigis Molly’n Brandeis, ĉeestis. Augustus G. Gerretson kun tri el siaj sekciĉefoj estis tie. Tuj malantaŭ li sidis Emil Bauer. En an-122
 
 
 gulo sidis Sadie, la koketulino, nun tre modesta, kio rilatas ŝiajn vestojn; ŝi tute ne samprogresis kun la modo, escepte konceme la suĉinfanajn. Hen Cody, kiu ofte prizorgis transporton por sinjorino Brandeis, sidis, mallerte nekutimiĝinta al nigraj vestoj, flanke de la urbestro A. J.
@@ -1813,9 +1372,7 @@ Nur Molly Brandeis estus povinta identigi ilin al vi. Sinjorino Brosch, la buter
 
 Nur duone Fanny komprenis, ke ĉiuj ĉi homoj ĉeestas.
 
-Mi eĉ supozas, ke ŝi sentis malmildan ĝuon pro tio, ke 123
-
-FANNY
+Mi eĉ supozas, ke ŝi sentis malmildan ĝuon pro tio, ke
 
 
 ili estas ĉi tie. ŝia ĉagreno ne estis tiu de fortuloj, kiuj suferegas sekokule, senlarme, kaj pri kiuj oni ofte legas. ŝi ploris dumtage kaj dumnokte, senespere, nekonsoleble, dum ŝi dolorigis sin mem per pentigaj demandoj. Kial ŝi ne insistis, ke la kuracisto venu, kiam ŝia patrino ne volis manĝi dum Kristnasko? Blinda kaj egoista ŝi estis. ŝia vizaĝo estis ŝvele misformita kaj ŝi notis, ke ŝi portas vualon. La Winnebaganoj estis indignitaj, rimarkinte, ke ŝi ne estas nigre vestita.
@@ -1829,9 +1386,6 @@ Meze en la prediko estis akra singulto, plorado kaj poste ĝemado. Estis Aloisio
 La funebra soleno finiĝis kaj oni eliris en respektple-na grupo el la domo al la juda tombejo. Tie kuŝis ankoraŭ virga la Kristnaska neĝo, escepte sur tiu loko, kie la tombfosisto kaj liaj servistoj faris sian laboron.
 
 
-FANNY
-
-
 Poste oni reiris trotpaŝe tra la frosta krepusko de la vintroposttagmezo. La radoj de la veturiloj knaris sur la malmola, seka neĝo.
 
 Fanny Brandeis pensis en si (ŝia kapo verŝajne turniĝis pro malsato kaj afliktiĝo): ”Nun mi scios, ĉu estas vere aŭ ne, kiam mi revenos hejmen. Se ŝi estas tie, ŝi certe diros: ’Nu, Fanjo, ĉu malsata? Ho, jen la manetoj de mia injo estas tute malvarmaj! Venu ĉi tien al la forno, por varmigi ilin.’ — Ho, Dio, ke ŝi estu tie! Igu ŝin esti tie!”
@@ -1840,12 +1394,7 @@ Sed ŝi ne estis hejme. La domo estis rearanĝita de fremdaj, indiferentaj manoj
 
 ĝin reen al la muro, kie ĝi kutime staris. ŝi aranĝis ta-piŝeton, translokis la paperkorbon de la skribtablo sur lokon tuj malantaŭ la familia tablo, kie ĝi ĉiam staris por kaŝi eluzitan ”makulon” de la tapiŝo. Fanny iris al la supra taĝo — preteriris ”la ĉambron”, kiu nun refoje estis la intimeca, malmoderna dormoĉambro anstataŭ salono, plena de angoriga mistero, — ŝi lavis sian vizaĝon, ordigis la harojn, malsupreniris, manĝis kaj trinkis varmajn aĵojn, kiuj estis bongustaj kaj revivigaj. La domo estis plena de afablaj homoj.
 
-Fanny rimarkis, ke ŝi alkroĉiĝas al ĉi tiuj sanaspektaj, ŝajnkaraj virinoj, kiujn ŝi antaŭe apenaŭ konis. Ili estis tie kaj iliaj edzoj ankaŭ, bonkore mallertaj viroj, kiuj fra-125
-
-FANNY
-
-
-petis ŝin sur la ŝultroj, kiuj parolis pri Molly Brandeis kun tiu sincera admiro, kiun viroj kutimas doni nur al viroj. Ade eniris homoj, kiuj portis ion sub buŝtuko en korbeto aŭ sur plado. Estas ja belege, tiu malgrandurba simpatio, kiu konas la valoron de korpa plifortigo en tempoj de mensa mizero.
+Fanny rimarkis, ke ŝi alkroĉiĝas al ĉi tiuj sanaspektaj, ŝajnkaraj virinoj, kiujn ŝi antaŭe apenaŭ konis. Ili estis tie kaj iliaj edzoj ankaŭ, bonkore mallertaj viroj, kiuj frapetis ŝin sur la ŝultroj, kiuj parolis pri Molly Brandeis kun tiu sincera admiro, kiun viroj kutimas doni nur al viroj. Ade eniris homoj, kiuj portis ion sub buŝtuko en korbeto aŭ sur plado. Estas ja belege, tiu malgrandurba simpatio, kiu konas la valoron de korpa plifortigo en tempoj de mensa mizero.
 
 Du tagojn post la enterigo Fanny Brandeis iris al la butiko, proksimume same kiel sia patrino faris post la morto de sia edzo. ŝi rigardis ĉirkaŭen, laŭ la plenaj bretaroj, tabloj, ŝrankoj, sed per novaj okuloj, taksantaj okuloj. La kristnaska sezono estis pasinta. Januaro estis la tempo por inventaro kaj kompletigo de la provizo. En la dua semajno de januaro sinjorino Brandeis ĉiam iris al ĉikago por la printempaj aĉetoj. Sed subite ekestis en Fanny Brandeis ideo, tiel konsterna, ke ŝi apenaŭ kuraĝis spiri. ŝia cerbo funkciis mirakle rapide kaj klare post la ĉagrena ventego, kiu skuis ŝin dum la ĵus pasinta semajno.
 
@@ -1856,9 +1405,6 @@ Du tagojn post la enterigo Fanny Brandeis iris al la butiko, proksimume same kie
 ”Mi ankoraŭ ne scias,” responde al la unua kaj: ”Kial li revenu, li ja havas sian laboron,” responde al la dua.
 
 ”Sed li povus vin helpi.”
-
-
-FANNY
 
 
 ”Mi ne bezonos helpon,” diris Fanny, kaj ŝi ridetis per rideto, kiu estis pli amara ol milda, kia neniu rideto rajtas esti, por ne fariĝi grimaco.
@@ -1874,14 +1420,9 @@ Fanny Brandeis en januaro ne iris al ĉikago. ŝi inventaris zorge kaj akurate l
 ”Vi pripensu, kion via patrino estus farinta en tiaj cirkonstancoj kaj tion ankaŭ vi faru.”
 
 
-FANNY
-
-
 ”Ne, mi ne volos fari tion, almenaŭ se mi ne konkludos, ke tio estas plej bone farebla. Mi superas sentimen-talecon kaj neprofitamon. Kion ili portis al ŝi? Nenion.”
 
-Sinsekve la semajnoj pasis, Fanny laboregis en la butiko, malmulte aĉetis. Februaro venis, printempo sekvis kaj tiam la monatlongaj pripensoj komencis porti fruktojn. ŝi faris la gravan decidon. ŝi mem metos sin sur elstaran lokon. ĉiujn talentojn, kiujn ŝi posedas, ĉiun grenon da scio, ŝi servigos por atingi la celon: ŝi volas fari sin supera. Tio estis monduma, memprofitiga decido, naskita el amara ĉagreniĝo, ambicio kaj sentimento. ŝi decidis, ke neniu malhelpaĵo venkos sin. Rason, religion, ekzercadon, personajn inklinojn, ĉiujn ŝi flanken-puŝos, se ili baros al ŝi la vojon tien. ŝi foriros el Winnebago. Se ŝi restus tie, ŝi neniam fariĝus pli ol estrino de plej floranta provincurba entrepreno. ŝi ne volis esti grava persono, sed neniu! ŝi forigis la malgrandan knabinon, kiu fastis la tutan Grandan Sabaton; ŝi neniigis la pli maturan knabinon, kiu verkis ion pri la paperfabri-ka ĉifonelsarkejo; ŝi nuligis la junan virinon, kiu penis en la Elmstrata vendejo. Anstataŭ tio ŝi gisis firmdecidan, se necese malmildan virinon kun akra rigardo, kies religio estos: sukcesi, kaj kies sukceso signifos: konvena loko en la vivo. ŝia kapo ne taŭgis por matematikaĵoj, sed el la konsternaąoso de matematikaj kaj geometriaj problemoj, ŝi memoris klare unu neŝanceligeblan veron: 128
-
-FANNY
+Sinsekve la semajnoj pasis, Fanny laboregis en la butiko, malmulte aĉetis. Februaro venis, printempo sekvis kaj tiam la monatlongaj pripensoj komencis porti fruktojn. ŝi faris la gravan decidon. ŝi mem metos sin sur elstaran lokon. ĉiujn talentojn, kiujn ŝi posedas, ĉiun grenon da scio, ŝi servigos por atingi la celon: ŝi volas fari sin supera. Tio estis monduma, memprofitiga decido, naskita el amara ĉagreniĝo, ambicio kaj sentimento. ŝi decidis, ke neniu malhelpaĵo venkos sin. Rason, religion, ekzercadon, personajn inklinojn, ĉiujn ŝi flanken-puŝos, se ili baros al ŝi la vojon tien. ŝi foriros el Winnebago. Se ŝi restus tie, ŝi neniam fariĝus pli ol estrino de plej floranta provincurba entrepreno. ŝi ne volis esti grava persono, sed neniu! ŝi forigis la malgrandan knabinon, kiu fastis la tutan Grandan Sabaton; ŝi neniigis la pli maturan knabinon, kiu verkis ion pri la paperfabri-ka ĉifonelsarkejo; ŝi nuligis la junan virinon, kiu penis en la Elmstrata vendejo. Anstataŭ tio ŝi gisis firmdecidan, se necese malmildan virinon kun akra rigardo, kies religio estos: sukcesi, kaj kies sukceso signifos: konvena loko en la vivo. ŝia kapo ne taŭgis por matematikaĵoj, sed el la konsternaąoso de matematikaj kaj geometriaj problemoj, ŝi memoris klare unu neŝanceligeblan veron:
 
 
 ke la rekta linio estas la plej mallonga vojo inter du punktoj.
@@ -1896,16 +1437,10 @@ Gerretson nun imponis per tutvitra fasado de sia vendeja komplekso kaj li ricevi
 
 En marto ŝi vendis Brandeis-Bazaron kun ĉio enha-vanta, provizo, klientindeco kaj instalaĵoj al vojaĝisto, kiu sufiĉe migris siaopinie, kaj kiu ŝatis vivi de nun pli kviete. Ankaŭ ŝi vendis la meblaron de la hejmo, ĉiujn tiujn intimajn pecojn el ligno kaj ŝtofo, kiuj fariĝis partoj de ŝia vivo. ŝi kreskis, verdire kun ili. ŝi konis la historion de ĉiu peco, de ĉiu enpremaĵo, ĉiu skrapo kaj eluzita loko. ŝia patrino reviviĝis en ĉiu tia loko. La malnova kanapo estis forportita sur farmista ĉareto. Fanny foriris, kiam oni trenis ĝin malsupren kaj lokis sur la veturilo.
 
-Estis kvazaŭ ripetiĝa funebra ceremonio. ŝi furiozis pro si, kiu ploregis denove, ŝi promesis sin puni pro tio. En sia dormĉambro ŝi malfennis la malsupran tirkeston de sia skribtabla ŝranko. Malantaŭe en angulo, sub amaseto 129
-
-FANNY
+Estis kvazaŭ ripetiĝa funebra ceremonio. ŝi furiozis pro si, kiu ploregis denove, ŝi promesis sin puni pro tio. En sia dormĉambro ŝi malfennis la malsupran tirkeston de sia skribtabla ŝranko. Malantaŭe en angulo, sub amaseto
 
 
-da tolaĵo, kuŝis rigide kunfaldita ligpakaĵo de vesto. Fanny aperigis ĝin kaj tenis ĝin momenton antaŭ si, en la mano. ŝi disfaldis ĝin. Estis paliĝinta blua-blanka mast-rumistina antaŭtuko, tia, kian antaŭmetas virinoj, kiam ili intencas okupi sin pri gravmastrumada specialaĵo: rostado, konservotaĵoj, sezona dompurigo, k. s. i fermi-
-
-ĝis per bendoj trnas la ŝultroj, kuntenataj malantaŭe, kaj kovris la tutan korpon. i alikoloriĝis kelkloke pro brunaj, ruĝbrunaj makuloj, postlasitaj de fruktsuko. Molly Brandeis portis ĝin dum konfitado de fruktoj. Fanny trovis ĝin en la kuirejo, ie sur hoko, post tiu semajno en decembro. Vidinte ĝin, ĉiuj ŝiaj forto kaj sinrego forfluis, ŝi premis la malrigidan, mutan kaj tamen al ŝi parolan-tan tukon sur sia brusto kaj ploregis kaj singultis tiel so-vaĝe kaj senlime, ke ŝi absolute elekvilibrigis sin. Nenio, kio rilatas al la morto de ŝia patrino, povus veki tiel do-lorigajn memorojn, kiel ĉi tiu mastrumintima tolaĵo. ŝi ree image vidis la kuirejon, plenan de vaporo, bongus-te odorantan pro la kuirataj fruktoj aŭ je la tenta, apetitiga spichava vinagro. Sur la forno staris la konserv-kaldrono kaj la konfitaĵujoj kun kaŭĉukbendaj fermiloj en la bolanta akvo. Apud ĝi staris la granitemajla kase-rolo kun la ŝmace boletanta fruktaĵo. Molly Brandeis en sia blua-blanka antaŭtuko staris kliniĝante super la kuirforno kaj kirlis ritme, konstante, kun la soleno de pastrino. ŝia vizaĝo estis varmega kaj malseka de vaporo 130
-
-FANNY
+da tolaĵo, kuŝis rigide kunfaldita ligpakaĵo de vesto. Fanny aperigis ĝin kaj tenis ĝin momenton antaŭ si, en la mano. ŝi disfaldis ĝin. Estis paliĝinta blua-blanka mast-rumistina antaŭtuko, tia, kian antaŭmetas virinoj, kiam ili intencas okupi sin pri gravmastrumada specialaĵo: rostado, konservotaĵoj, sezona dompurigo, k. s. i fermiĝis per bendoj trnas la ŝultroj, kuntenataj malantaŭe, kaj kovris la tutan korpon. i alikoloriĝis kelkloke pro brunaj, ruĝbrunaj makuloj, postlasitaj de fruktsuko. Molly Brandeis portis ĝin dum konfitado de fruktoj. Fanny trovis ĝin en la kuirejo, ie sur hoko, post tiu semajno en decembro. Vidinte ĝin, ĉiuj ŝiaj forto kaj sinrego forfluis, ŝi premis la malrigidan, mutan kaj tamen al ŝi parolan-tan tukon sur sia brusto kaj ploregis kaj singultis tiel so-vaĝe kaj senlime, ke ŝi absolute elekvilibrigis sin. Nenio, kio rilatas al la morto de ŝia patrino, povus veki tiel do-lorigajn memorojn, kiel ĉi tiu mastrumintima tolaĵo. ŝi ree image vidis la kuirejon, plenan de vaporo, bongus-te odorantan pro la kuirataj fruktoj aŭ je la tenta, apetitiga spichava vinagro. Sur la forno staris la konserv-kaldrono kaj la konfitaĵujoj kun kaŭĉukbendaj fermiloj en la bolanta akvo. Apud ĝi staris la granitemajla kase-rolo kun la ŝmace boletanta fruktaĵo. Molly Brandeis en sia blua-blanka antaŭtuko staris kliniĝante super la kuirforno kaj kirlis ritme, konstante, kun la soleno de pastrino. ŝia vizaĝo estis varmega kaj malseka de vaporo
 
 
 kaj aspektis laca, ĉar ofte ŝi revenis jam laca de la butiko por stari ĝis la deka super la kaldrono. Sed kiel fiera ŝi estis, kiam la orflavaj aŭ rubenruĝaj glasaj potoj, vicigitaj brilis al ŝi, dum ili malvarmiĝis sur la kuireja tablo!
@@ -1918,9 +1453,7 @@ kaj aspektis laca, ĉar ofte ŝi revenis jam laca de la butiko por stari ĝis la
 
 Sed sinjorino Brandeis ja estis fama per siaj konfitaĵoj, kion pastro Fitzpatrick, Aloisio kaj rabeno Thallmann kaj kiom ajn da aliaj povus atesti. Post la aktiveco kaj streĉo de la tago en la butiko, estis io kvietiga en tiu mastruma, hejma okupaĵo, ĝi donis iom da paco al Molly Brandeis.
 
-Fanny iris al la teretaĝo kun la antaŭtuko en la manoj, malfermis la pordon, kiu kondukis al la kelo, laŭiris la ŝtuparon kaj iris al la forno de la centra hejtado. La fajro brilis ruĝa kaj violkolora kaj blankaj flametoj dancis super la ardaĵo. Fanny rigardis tion, kvazaŭ ravite. ŝiaj dentoj premiĝis unuj sur la aliaj, ŝiaj okuloj brilis kaj subite ŝi ĵetis la premvolvitan pakaĵon en la mezon de la fajro. ŝi fermis la okulojn. La fajro momenton ŝajnis 131
-
-FANNY
+Fanny iris al la teretaĝo kun la antaŭtuko en la manoj, malfermis la pordon, kiu kondukis al la kelo, laŭiris la ŝtuparon kaj iris al la forno de la centra hejtado. La fajro brilis ruĝa kaj violkolora kaj blankaj flametoj dancis super la ardaĵo. Fanny rigardis tion, kvazaŭ ravite. ŝiaj dentoj premiĝis unuj sur la aliaj, ŝiaj okuloj brilis kaj subite ŝi ĵetis la premvolvitan pakaĵon en la mezon de la fajro. ŝi fermis la okulojn. La fajro momenton ŝajnis
 
 
 malfortiĝi, sed tuj ĝi kaptis sian nutraĵon. La pakaĵo tordiĝis, serpentumis, ŝrumpis, kuŝis kiel nigre cindriĝinta amaseto, disiĝis, foriĝis fine tute. La fajro estis refoje ruĝa en la mezo, escepte de nigreta punkto en la koro de la ardo. Fanny tremetis. ŝi fermis la fornpordon kaj reiris supren.
@@ -1931,9 +1464,7 @@ malfortiĝi, sed tuj ĝi kaptis sian nutraĵon. La pakaĵo tordiĝis, serpentumi
 
 Fanny kiel eble plej baldaŭ ŝpinis la fadenojn, rekte aŭ nerekte kondukontajn al la celo dezirata. ŝi ricevis du proponojn de butikoj el Milwaŭkeo. ŝi tute ne intencis akcepti ilin, eĉ ne konsideris. Ankaŭ ĉiovendejo dua-ranga en ĉikago (je la malfavora flanko de State-strato) ne povis plaĉi al ŝi. ŝi konis sian valoron kaj ŝi povis permesi al si atendadon. Estis sufiĉe da mono por vivi komforte kaj por atendi, ĝis fine la bona ŝanco sin prezentos.
 
-ŝi povis sinsekve nomi ĉiujn siajn kvalitojn: ĉarma interrilatado kun klientoj, tio, kio nomiĝas magneteco, komprenpovo, imago, pelanta forto, sano, juneco kaj kio plej multe valoras: tio, kio nek estas aĉetebla per mono, nek per edukado: sperto. Sperto, tiu nepagebla armilo, kiu nur naskiĝas el daŭra interrilatado kun homoj kaj kiu 132
-
-FANNY
+ŝi povis sinsekve nomi ĉiujn siajn kvalitojn: ĉarma interrilatado kun klientoj, tio, kio nomiĝas magneteco, komprenpovo, imago, pelanta forto, sano, juneco kaj kio plej multe valoras: tio, kio nek estas aĉetebla per mono, nek per edukado: sperto. Sperto, tiu nepagebla armilo, kiu nur naskiĝas el daŭra interrilatado kun homoj kaj kiu
 
 
 akriĝas nur pro ada interfrotiĝo kun la krudaj elstaraĵoj de ĉi tiu mondo.
@@ -1957,9 +1488,6 @@ Li etendis la manon. ”Mi ĝojis vere, renkonti vin,” li levis denove la kofr
 ”Vi intencas iri al la urbego, mi supozas. Nu, vi estas brava knabino kaj vi estas la filino de via patrino. Certe vi sukcesos, mi opinias. En kiu entrepreno vi laboros?”
 
 
-FANNY
-
-
 ”Tion mi ne scias. Mi atendas bonan ŝancon. Plej grave estus, ke la komenco estu bona, vi scias, tiam laboro duona. . . . Krom tio, mi ne bezonas rapidi.”
 
 Li remetis siajn kofrojn kaj liaj okuloj ekbrilis. Per sia larĝa dekstra montrofingro li akcente gestis.
@@ -1978,9 +1506,7 @@ Sed mi havas ion, kio mankas al ili sendube. Mi neniam aŭdis pri afera psikolog
 
 ”Sed kiel mi ekscias, kio estas la ĝusta afero?”
 
-”Per akravido, tiel penetra, ke vi povos rigardi dek jarojn antaŭen. Se la afero post dek jaroj ŝajnas al vi konvena, pli ol en la tuj proksimaj jaroj, jen estas la ĝusta afero. Tio estas, laŭ onidiro, imago aŭ fantazio. Mi neniam posedis ĝin kaj tial ankoraŭ ĉiam perlaboras mian 134
-
-FANNY
+”Per akravido, tiel penetra, ke vi povos rigardi dek jarojn antaŭen. Se la afero post dek jaroj ŝajnas al vi konvena, pli ol en la tuj proksimaj jaroj, jen estas la ĝusta afero. Tio estas, laŭ onidiro, imago aŭ fantazio. Mi neniam posedis ĝin kaj tial ankoraŭ ĉiam perlaboras mian
 
 
 panon per migrado. Se mi rigardas vin, nu, mi dirus, ke vi havas tro da imago. Eble mi eraras, sed neniam mi vidis virinon kun tia buŝo, tiel taŭgan por komerco, escepte de via patrino. Tamen viaj okuloj estas malsa-maj. He, pri kio mi parolis?”
@@ -1991,9 +1517,7 @@ panon per migrado. Se mi rigardas vin, nu, mi dirus, ke vi havas tro da imago. E
 
 Tio estis la komenco. De tiam la afero evoluis kun ia neevitebleco. uste estis la vasteco de la entrepreno, kiu altiris, logis Fanjon. Jen estis organizo, kies brakoj kvazaŭ ĉirkaŭprenis la tutan mondon. Haynes-Cooper estis la giganto de la poŝtmendaj entreprenoj kaj oni diris, ke li formanĝas ĉiun tagon unu provincan negociston ĉe la matenmanĝo.
 
-”En ĉiu farmista kuirejo oni trovas katalogon de Haynes-Cooper,” diris Molly Brandeis ĉiam, ”la biblio kuŝas 135
-
-FANNY
+”En ĉiu farmista kuirejo oni trovas katalogon de Haynes-Cooper,” diris Molly Brandeis ĉiam, ”la biblio kuŝas
 
 
 en la pompa ĉambro, sed la H-C libron ili havas sub la mano en la familia ĉambro.”
@@ -2004,16 +1528,9 @@ Fanny trovis tion iom komika, jen ŝi estis ligonta sin al tiu firmo. Ripetfoje 
 
 enerale ŝiaj asertoj neniel efikis je la farmistoj, ili venis al la urbo, enkestigis la pene skribitan leteron kun la mendo, prizorgis la sarĝon da pomoj, fromaĝo aŭ legomoj kaj poste gajanime reen veturis en siaj malplenaj ĉaroj, kiuj brupuŝigis kaj radknaris sur la malnova krispiga vojo. Frajto, rompigrisko, ĉiuj aliaj riskoj, soli-dareco al la loĝantoj de la regiono, neniuj argumentoj ne tuŝis ilin.
 
-En majo, post multaj intertraktoj, korespondado kaj du interparoladoj, venis definitiva propono de la Haynes-Cooper kompanio. Estis malpli ol la butikoj en State-strato proponis al ŝi kaj Fanny estis iom seniluziigita pro ĉi. Haynes-Cooper, kiel kutimas fari potencaj entreprenoj, postulis multon kaj oferis malmulton. Sed Fan-136
+En majo, post multaj intertraktoj, korespondado kaj du interparoladoj, venis definitiva propono de la Haynes-Cooper kompanio. Estis malpli ol la butikoj en State-strato proponis al ŝi kaj Fanny estis iom seniluziigita pro ĉi. Haynes-Cooper, kiel kutimas fari potencaj entreprenoj, postulis multon kaj oferis malmulton. Sed Fanny memoris la dekjaran antaŭvidon de la maljuna, ru-tina vojaĝisto.
 
-FANNY
-
-
-ny memoris la dekjaran antaŭvidon de la maljuna, ru-tina vojaĝisto.
-
-ŝi akceptis la proponon; ŝi preskaŭ tuj devis foriri al ĉikago por ekdeĵori la unuan de junio. Eble estas men-ciinde citi la du paroladojn, kiujn ŝi havis antaŭ sia ek-vojaĝo. Unu okazis kun pastro Fitzpatrick de la Sankta Ignacio-preĝejo, la dua kun rabeno Thallman de la Emanuel-kongregacio. Impulso portis ŝin al pastro Fitzpatrick. Tio okazis unu semajnon antaŭ ŝia foriro. ŝi estis laca. Multon ŝi faris, laboris, subskribis paperojn, najlis kestojn, pakis kofrojn. Kiam tio staris al ŝi ĝis super en la gorĝo, ŝi surmetis la ĉapelon por promeni en la maja vespero por komforte fini la multmovan tagon. ŝi iris okcidenten tra la intimaspektaj stratetoj de la urbeto, ĝis fine ŝi staris sur la ponto super la valeto, kie ŝi ludis kiel infano, la valeto, kiun ŝia infana fantazio plenigis per ruĝhaŭtuloj, pastroj, pioniroj kaj kavaliroj. ŝi apogis sin sur la fera balustrado kaj rigardis malsupren. Kie iam kreskis herbo kaj arbustoj, sovaĝaj floroj, nun kuŝis ha-ladzaj amasoj da malpuraĵoj, cindro, rompitaj boteloj, skatoloj. La disvastigaj, forglutaj konvulsioj de Winnebago komenciĝis. Fanny turnis sin pro naŭzo. ŝi suriris la ponton al la katolika preĝejo. Flanke de la preĝejo staris la pastrejo, kie pastro Fitzpatrick loĝis. La domo ĉiam aspektis, kvazaŭ ĝi estus skrape purigita per akrapinta brikpeco. iaj fenestroj estis riproĉo kaj provoko al ĉiuj 137
-
-FANNY
+ŝi akceptis la proponon; ŝi preskaŭ tuj devis foriri al ĉikago por ekdeĵori la unuan de junio. Eble estas men-ciinde citi la du paroladojn, kiujn ŝi havis antaŭ sia ek-vojaĝo. Unu okazis kun pastro Fitzpatrick de la Sankta Ignacio-preĝejo, la dua kun rabeno Thallman de la Emanuel-kongregacio. Impulso portis ŝin al pastro Fitzpatrick. Tio okazis unu semajnon antaŭ ŝia foriro. ŝi estis laca. Multon ŝi faris, laboris, subskribis paperojn, najlis kestojn, pakis kofrojn. Kiam tio staris al ŝi ĝis super en la gorĝo, ŝi surmetis la ĉapelon por promeni en la maja vespero por komforte fini la multmovan tagon. ŝi iris okcidenten tra la intimaspektaj stratetoj de la urbeto, ĝis fine ŝi staris sur la ponto super la valeto, kie ŝi ludis kiel infano, la valeto, kiun ŝia infana fantazio plenigis per ruĝhaŭtuloj, pastroj, pioniroj kaj kavaliroj. ŝi apogis sin sur la fera balustrado kaj rigardis malsupren. Kie iam kreskis herbo kaj arbustoj, sovaĝaj floroj, nun kuŝis ha-ladzaj amasoj da malpuraĵoj, cindro, rompitaj boteloj, skatoloj. La disvastigaj, forglutaj konvulsioj de Winnebago komenciĝis. Fanny turnis sin pro naŭzo. ŝi suriris la ponton al la katolika preĝejo. Flanke de la preĝejo staris la pastrejo, kie pastro Fitzpatrick loĝis. La domo ĉiam aspektis, kvazaŭ ĝi estus skrape purigita per akrapinta brikpeco. iaj fenestroj estis riproĉo kaj provoko al ĉiuj
 
 
 dommastrinoj de Winnebago. Fanny sentis emon paroli pri tiu valeto, ŝia koro abundis pri tio. La laborsalono de pastro Fitzpatrick ĝuste donis rigardon sur ĝin. Krom tio, ŝi volis adiaŭi de li, antaŭ ol ŝi foriris. ŝi vidis antaŭ si lian belan vizaĝon kun la sulketiĝa haŭto kaj la gajbri-laj okuloj, ŝi vidis lin tia, kia ŝi tiel ofte vidis lin eniri la butikon de sia patrino por babili kun ŝi.
@@ -2025,9 +1542,6 @@ dommastrinoj de Winnebago. Fanny sentis emon paroli pri tiu valeto, ŝia koro ab
 ”La reverinda pastro estas okupita,” kaj jam la pordo estis ekfermata.
 
 ”Kiu estas tie?” vokis endoma voĉo, ”kiun vi forordonas tie, Casey?”
-
-
-FANNY
 
 
 ”Virino, ŝi ne estas paroąnino,” la pordo nun estis preskaŭ fermita.
@@ -2043,9 +1557,6 @@ Li premis ambaŭ manojn de Fanny en unu sia kaj li kondukis ŝin tra la koridoro
 Fanny, kiu ja ne estis malgranda, devis tamen rigardi supren al lia vizaĝo.
 
 ”Mi sentis tiel fortan inklinon iom paroli kun vi pri ĉi tiu ravineto malsupre, sed fakte mi venis por adiaŭi.”
-
-
-FANNY
 
 
 ”Sidiĝu, knabino, eksidu!”
@@ -2073,9 +1584,6 @@ Pastro Fitzpatrick tamburetis per la fingroj sur la brako de la seĝo kaj rigard
 ”Ho, sensencaĵo, tio estis! Estis nur distraĵo mia.”
 
 
-FANNY
-
-
 ”Jes, kio por vi estos distraĵo, ankaŭ povos esti distraĵo por aliaj homoj. Ja ne estas tiel multe da bona distro en la mondo. Via patrino estis brava virino, Fanny. La plej brava virino, kiun mi iam renkontis.”
 
 ”Eĉ se mi volus daŭrigi en tiu direkto, ne estus perspektivoj en ĝi. Kiel ĝi servus al mi? Kiu iam aŭdis paroli pri virina karakturisto. Kaj mi ne volus esti ilustristino, desegnistino de tiuj rozkoloraj bildoj por ĵurnaloj. Mi volas perlabori monon, multe da mono. Nu, kaj sekve
@@ -2093,18 +1601,13 @@ Fanny ridetis, dum ŝi restis rigardanta la valeton.
 Fanny abrupte turnis sin. ”Tion mi intencis diri, kiam vi parolas pri polvo kaj cindro. ĉu tio ne estas skandalo! Krimo! Kial neniu finas ĉi tion? Kial vi ne finas tion?”
 
 
-FANNY
-
-
 ŝi montris la valeton, kiu sanĝiĝis en malpuraĵejon.
 
 ŝiaj okuloj brilis, ŝia vizaĝo tremetis. Pastro Fitzpatrick iris al ŝi apud la fenestro kun ĉagrena mieno.
 
 ”Tio estas . . .”
 
-Li subite ĉesis paroli kaj rigardis ŝian ekscititan viza-
-
-ĝon. Li tusis.
+Li subite ĉesis paroli kaj rigardis ŝian ekscititan vizaĝon. Li tusis.
 
 ”Estas tute natura irado, evoluo,” li diris kviete. ”Winnebago plivastiĝas. Precipe tie okcidenten, kie la nova fabrikejo estas konstruata kaj la tramvojo estas plilongi-gata. Oni bezonas la teron por konstrui. Tio estas komerco. Tio estas mono.”
 
@@ -2116,15 +1619,11 @@ Estas historiaj lokoj, romantikaj ejoj kaj ili estas belegaj!”
 
 ”Kompreneble! ĉu vi ne samopinias? ĉu vi ne povos ĉesigi tion . . . per petskribo aŭ . . .”
 
-”Certe mi ankaŭ trovas tion netolerebla. Sed mi estas nur maljuna, teda, sentimentala pastro, kiu tute ne taŭ-
-
-gas por komerco. Sed vi, vi estas komercistino, tute alia.”
+”Certe mi ankaŭ trovas tion netolerebla. Sed mi estas nur maljuna, teda, sentimentala pastro, kiu tute ne taŭgas por komerco. Sed vi, vi estas komercistino, tute alia.”
 
 ”ĉu mi, vi mokas pri mi!”
 
-”Aŭskultu atente, infano mia. La mondo konsistas el du aferoj: ravinoj kaj la aĵoj por plenigi ilin. Kaj la plenigistoj ĉiam agadas, alportas, ĵetegas kaj detruas, kiam neniu atentas ilin. Vi ja elektis vian vivovojon, vi ja 142
-
-FANNY
+”Aŭskultu atente, infano mia. La mondo konsistas el du aferoj: ravinoj kaj la aĵoj por plenigi ilin. Kaj la plenigistoj ĉiam agadas, alportas, ĵetegas kaj detruas, kiam neniu atentas ilin. Vi ja elektis vian vivovojon, vi ja
 
 
 apartenas al tiuj plenigistoj. ĉu vi nun rajtas kriegi pro tiu profanado de ĉi tiu valo?”
@@ -2133,9 +1632,7 @@ apartenas al tiuj plenigistoj. ĉu vi nun rajtas kriegi pro tiu profanado de ĉi
 
 ”Injo, ĉe Haynes-Cooper vi vidos plenigi tiom da ravinoj, ke vi baldaŭ plu ne preferos ion alian.”
 
-Fanny turnis sin pasie: ”Mi ne estos tia. Kaj se mi agos tiel, nu, eble estos plej bone. Verŝajne estas tro da ravinoj surtere. Kion mi alie devos fari? Resti ĉi tie kaj for-
-
-ŝrumpi kiel ĉiama fraŭlino, same kiel Irma Klein ekzemple, kiu jam ĝojas, kiam ŝi povas akompani geedzojn al kunvenoj de iu bonfara institucio aŭ al la kartludoves-peroj en dimanĉo! ĉu mi edziniĝu kun vojaĝisto, kia Lee Kohn de la ”Ora Aglo?” Mi estas tute sama, kiel kiu ajn virino kun saĝo, kiu deziras ion de la vivo pro ambicio.”
+Fanny turnis sin pasie: ”Mi ne estos tia. Kaj se mi agos tiel, nu, eble estos plej bone. Verŝajne estas tro da ravinoj surtere. Kion mi alie devos fari? Resti ĉi tie kaj forŝrumpi kiel ĉiama fraŭlino, same kiel Irma Klein ekzemple, kiu jam ĝojas, kiam ŝi povas akompani geedzojn al kunvenoj de iu bonfara institucio aŭ al la kartludoves-peroj en dimanĉo! ĉu mi edziniĝu kun vojaĝisto, kia Lee Kohn de la ”Ora Aglo?” Mi estas tute sama, kiel kiu ajn virino kun saĝo, kiu deziras ion de la vivo pro ambicio.”
 
 ”Ne, vi estas malsama! Kaj mi rakontos al vi kial. Vi estas judino.”
 
@@ -2145,12 +1642,7 @@ Fanny turnis sin pasie: ”Mi ne estos tia. Kaj se mi agos tiel, nu, eble estos 
 
 ”La etnologoj pruvis, ke efektive juda raso ne ekzistas.”
 
-”Tio estas ebla. Nomu ĝin kiel ajn. Popolo, kiu estis persekutata kaj pelata dum miloj da jaroj de urbo al urbo, kiun oni amasigis en mallumaj kaj malpuraj stra-143
-
-FANNY
-
-
-tetoj . . . nu el tio ĝi nepre konservos stampon, kiu diferencigas ĝin. Tiu stampo ofte ne estas videbla ekstere, sed interne ĝi ekzistas. Fanny, oni ja diras, ke neniu artisto fariĝos geniulo antaŭ ol li estas suferinta. Kaj vi, judoj, suferis multajn jarcentojn kaj tial vi ĉiuj estas arti-stoj, kiuj komprenas intuicie la dramon, ĉar vi travivis dramon, kiuj estas emocie hipersentemaj kaj fanfarone-maj, sed samtempe fidelaj, amplenaj kaj noblanimaj.
+”Tio estas ebla. Nomu ĝin kiel ajn. Popolo, kiu estis persekutata kaj pelata dum miloj da jaroj de urbo al urbo, kiun oni amasigis en mallumaj kaj malpuraj stratetoj . . . nu el tio ĝi nepre konservos stampon, kiu diferencigas ĝin. Tiu stampo ofte ne estas videbla ekstere, sed interne ĝi ekzistas. Fanny, oni ja diras, ke neniu artisto fariĝos geniulo antaŭ ol li estas suferinta. Kaj vi, judoj, suferis multajn jarcentojn kaj tial vi ĉiuj estas arti-stoj, kiuj komprenas intuicie la dramon, ĉar vi travivis dramon, kiuj estas emocie hipersentemaj kaj fanfarone-maj, sed samtempe fidelaj, amplenaj kaj noblanimaj.
 
 Eble la etnologoj pravas, dirante ke ne ekzistas juda raso. Sed, diru, kio do estas, kio instruis vin karikature desegni min tiel, kiel en tiu mateno en la diservo. Vi metis en tiun karikaturon, kion mi vane provis kaŝi dum dudek jaroj, ĝis fine mi kredigis ĉiun, inkluzive min mem, ke tio ne ekzistas. Mia preĝejo ĉiam estas homplena, sed neniu antaŭ vi rimarkis tion. Mi certigas al vi, Fanny, kion mi ĉiam diris: ”La irlandanoj estus la plej granda popolo, se la judoj ne ekzistus.”
 
@@ -2160,12 +1652,7 @@ Ili ridis kune pro tiu certigo kaj la streĉo estis for.
 
 ”Mi esperas, ke vi tion plu ne diros post unu jaro, kara mia.”
 
-Tiel ili adiaŭis. Li mem kondukis ŝin al la pordo kaj longe postrigardis ŝian figureton trans la ravinponto kaj trovis, ke ŝi multe similas sian patrinon, kiam ŝi marŝas kun la larĝtenataj ŝultroj, levita mentono kaj nebalanci-144
-
-FANNY
-
-
-ĝantaj koksoj. Li restis ankoraŭ iom rigardanta la sunsubiron kaj reeniris la domon. En la vestiblo li renkontis la acidhumoran Casey.
+Tiel ili adiaŭis. Li mem kondukis ŝin al la pordo kaj longe postrigardis ŝian figureton trans la ravinponto kaj trovis, ke ŝi multe similas sian patrinon, kiam ŝi marŝas kun la larĝtenataj ŝultroj, levita mentono kaj nebalanciĝantaj koksoj. Li restis ankoraŭ iom rigardanta la sunsubiron kaj reeniris la domon. En la vestiblo li renkontis la acidhumoran Casey.
 
 ”ĉu mi nun maŝinskribu vian predikon, se ĝi estas preta?”
 
@@ -2180,9 +1667,6 @@ Rabeno Thallmann estis en sia studejo. Fanny kuretis supren.
 ”Kiu estas tie, Emilo? Ho, tiu Mina, lundon la semajno finiĝos kaj mi formaldungos ŝin.”
 
 1 ”Ne, sinjoro rabeno estas ankoraŭ ĉi tie.”
-
-
-FANNY
 
 
 ”Ne estas Mina, sinjorino Thallmann, estas Fanny Brandeis.”
@@ -2205,14 +1689,9 @@ La malgranla rabeno skuis malĝoje la kapon kaj gestis ĉagrene per la mano. Sed
 
 ”Eniru!” diris rabeno Thallmann.
 
-Fanny iris en la ĉambron, kie kuŝis la malsanulino kun sia palflava vizaĝo; ĝi estis antikva dormoĉambro kun nukslignaj mebloj kaj ruĝpluŝa kamentapiŝo. Sinjorino Thallmann etendis la manon. Fanny premis ĝin kaj sidi-
-
-ĝis sur la litflanko. ŝi karesis la sekan, senvivecan manon kaj premis ĝin en sia forta. Sinjorino Thallmann levis la kapon de la kuseno.
+Fanny iris en la ĉambron, kie kuŝis la malsanulino kun sia palflava vizaĝo; ĝi estis antikva dormoĉambro kun nukslignaj mebloj kaj ruĝpluŝa kamentapiŝo. Sinjorino Thallmann etendis la manon. Fanny premis ĝin kaj sidiĝis sur la litflanko. ŝi karesis la sekan, senvivecan manon kaj premis ĝin en sia forta. Sinjorino Thallmann levis la kapon de la kuseno.
 
 ”ĉu ŝi portis blankan antaŭtukon?”
-
-
-FANNY
 
 
 ”ĉu blanka antaŭtuko?”
@@ -2240,9 +1719,6 @@ La malsanaj okuloj rigardis la freŝan junan vizaĝon.
 2 ”kaj tre brava virino”
 
 
-FANNY
-
-
 forigi ĉiun emocion for de si kaj premis sian ardantan vangon sur la velkintan de la malsanulino kaj jen la maljuna mano karesis. Fanny restis tiel kuŝanta, silenta. Post tio ŝi ekstaris, aranĝis sian ĉapelon kaj ridetis.
 
 ”Auf Wiedersehen!1”, ŝi diris en sia plej bona germana lingvo, ”und gute gesserung2”.
@@ -2266,9 +1742,6 @@ La distanco al la sinagogo ne estis tiel granda, nur
 2 ”baldaŭan resaniĝon.”
 
 
-FANNY
-
-
 anoj. Iam la tago venos en kiu ili diros: ’For, tiu maljunulo!’ Anstataŭos min iu junulo kun nazumo anstataŭ okulvitroj. La rakontado pri profetoj tedas ilin. La bibliaj tekstoj estas tro malmodernaj. Vi opinias, ke mi ne vidas mokridi ilin. Ili grimacas, tiuj gejunuloj. Ke mi ne aŭdas la flustradon en la ˛oro, kaj la bruan malaprobon, kiam mi ekstaras post la dua kanto. ĉu li komencos predikon?
 
 Kompreneble li estas predikonta. Nu, mia anstataŭon-to donos al ili, kion ili deziras. Priseksajn predikojn. Politikajn prelegojn. uste, prelegojn, tion ili deziras.”
@@ -2286,18 +1759,11 @@ Unuope, duope, la homoj eniris por la vendredvespe-ra diservo, tiuj kvietaj, bon
 ” ’Kara maljunulo’, ’Priseksaj predikoj’, ’Jen la vico de la gejunuloj’, kiel prava li estas. Nu, mi ne diru, ke mi estas tro malfrua, tiokoncerne.”
 
 
-FANNY
-
-
-La ˛oro ĝuste ekkantis la unuan himnon, kiam malantaŭe en la navo alvenis fremdulo. Tio kaŭzis iom da sensacio en la piularo, fremduloj estis maloftaj. Li estis malhelaspekta kaj svelta, svelta kiel ŝtaldrato. Malcerte, hezitete li trairis la navon. Iu vojaĝisto, hazarde eniĝ-
-
-anta, kiel kelkfoje plu okazis, por diri: ”kadiŝ” por patro aŭ patrino. Tiam ŝia penso ŝanĝiĝis. ŝiaj rapidaj okuloj konstatis ion strangan, ŝi atentis lian iradon, kiu estis elasta. Nur iu, kiu ne alkutimiĝis al la glata pavimo, povis marŝi tiel. Indianoj laŭdire posedas tian facilan, mus-kolecan pason. Li mallerte sidigis sin sur malplena loko, en la flankmezo de la preĝejo. Fanny trovis lin troige malbela, eĉ por viro. Subite li ekrigardis, kapsalutis kaj ridetis al Lee Kohn, kiu sidis ĉe la kontraŭa flanko. Liaj dentoj estis tre blankaj kaj lia rideto estis milda. La penso de Fanny denove ŝanĝiĝis. Poste konsiderite, li ja ne estis tiel malbela. Nur malsama al la viroj tieaj. Kaj tiam
+La ˛oro ĝuste ekkantis la unuan himnon, kiam malantaŭe en la navo alvenis fremdulo. Tio kaŭzis iom da sensacio en la piularo, fremduloj estis maloftaj. Li estis malhelaspekta kaj svelta, svelta kiel ŝtaldrato. Malcerte, hezitete li trairis la navon. Iu vojaĝisto, hazarde eniĝanta, kiel kelkfoje plu okazis, por diri: ”kadiŝ” por patro aŭ patrino. Tiam ŝia penso ŝanĝiĝis. ŝiaj rapidaj okuloj konstatis ion strangan, ŝi atentis lian iradon, kiu estis elasta. Nur iu, kiu ne alkutimiĝis al la glata pavimo, povis marŝi tiel. Indianoj laŭdire posedas tian facilan, mus-kolecan pason. Li mallerte sidigis sin sur malplena loko, en la flankmezo de la preĝejo. Fanny trovis lin troige malbela, eĉ por viro. Subite li ekrigardis, kapsalutis kaj ridetis al Lee Kohn, kiu sidis ĉe la kontraŭa flanko. Liaj dentoj estis tre blankaj kaj lia rideto estis milda. La penso de Fanny denove ŝanĝiĝis. Poste konsiderite, li ja ne estis tiel malbela. Nur malsama al la viroj tieaj. Kaj tiam
 
 . . . he, kompreneble, li estis Clarence Heyl. La malgranda Heyl revenis el la okcidento. Li estis Clarence Heyl, la malkuraĝulo. ŝiaj pensoj reiris al la tiama strat-batalo. ŝi ridetis. En tiu momento Clarence Heyl, kiu movis sin maldece sur sia seĝo, kvazaŭ li serĉus iun, turnis sin kaj respondis ŝian rideton, al neniu direktitan, per unu sia ĝojradia plenrido, klarvideble destinita al ŝi.
 
-Li preskaŭ eksaltis de sia seĝo, subite memoris kaj residiĝis, sed klare montrante, ke li ne intencas longe resti 150
-
-FANNY
+Li preskaŭ eksaltis de sia seĝo, subite memoris kaj residiĝis, sed klare montrante, ke li ne intencas longe resti
 
 
 tie. Antaŭ multaj jaroj li foriris el Winnebago. Kiam lia patrino estis mortinta, oni vane klopodis atingi lin kaj daŭris multajn semajnojn antaŭ ol oni sukcesis pri tio.
@@ -2306,9 +1772,7 @@ Li troviĝis en la montaro en ekspedicio, plurajn centojn da mejloj malproksime 
 
 speciale malfacile surireblaj montoj ŝajnis logi lin — kaj oni multe pritraktis tion en la gazeto. Tio, nu, estis stranga okupo de timemulo. Aperis ankaŭ libro pri
 
-”Rockies,” certe pri la Rokmontaro. ŝi ne legis ĝin. ŝi ne ŝatis naturpriskribajn librojn, same kiel la plimulto de tiuj, kiuj amas la naturon. ŝi opiniis, ke, kiam ŝi vidas florantan aceron en oktobro, sufiĉas, ke ŝi eksciis, ke tiu arbo estas acero. Precipe, kiam ŝi povas varmigi sian animon per ĝia ardo. Tamen . . . ja . . . ankaŭ en la ”ĉikaga Heroldo” oni foje menciis ion pri eminenta juna naturesploristo Clarence Heyl. Li estis akompanonta ekspedicion de Roosevelt, sed kontuzita maleolo aŭ io alia malhelpis tion. Fanny ree ridetis en si. Lia patrino, kiu estis responda pri liaj belaj vestoj, trobrilaj ŝuoj kaj an-kaŭ pri lia senkuraĝeco, ĉiam revis, ke ŝia filo fariĝu rabeno. De tiu revo la pensoj de Fanny refoje vagis al la maljuna predikisto en la katedro. ŝi preskaŭ nenion aŭdis pri la servo. ŝi rigardis la rabenon, de li al la aŭskultantaro, kiu, videble tedate, sidis tie neatenta. ”Jen la 151
-
-FANNY
+”Rockies,” certe pri la Rokmontaro. ŝi ne legis ĝin. ŝi ne ŝatis naturpriskribajn librojn, same kiel la plimulto de tiuj, kiuj amas la naturon. ŝi opiniis, ke, kiam ŝi vidas florantan aceron en oktobro, sufiĉas, ke ŝi eksciis, ke tiu arbo estas acero. Precipe, kiam ŝi povas varmigi sian animon per ĝia ardo. Tamen . . . ja . . . ankaŭ en la ”ĉikaga Heroldo” oni foje menciis ion pri eminenta juna naturesploristo Clarence Heyl. Li estis akompanonta ekspedicion de Roosevelt, sed kontuzita maleolo aŭ io alia malhelpis tion. Fanny ree ridetis en si. Lia patrino, kiu estis responda pri liaj belaj vestoj, trobrilaj ŝuoj kaj an-kaŭ pri lia senkuraĝeco, ĉiam revis, ke ŝia filo fariĝu rabeno. De tiu revo la pensoj de Fanny refoje vagis al la maljuna predikisto en la katedro. ŝi preskaŭ nenion aŭdis pri la servo. ŝi rigardis la rabenon, de li al la aŭskultantaro, kiu, videble tedate, sidis tie neatenta. ”Jen la
 
 
 vivo, jen kiel ĝi traktas onin. Oni estis elpremata kaj el-pelata, maljuniĝinte, oni estas sensuka ŝelo, forigindaĵo.
@@ -2319,12 +1783,7 @@ Tio ne estis nepre religiaj pensoj. ŝia sidloko estis kvieta kaj malproksima, t
 
 La voĉo de la rabeno sonis kiel voĉo de homo, griziĝinta en la katedro, povas soni. Fanny reekpensis pri la mult-klienta, vigliga butiko en Elmstrato kaj jen ŝiaj pensoj transsaltis al la entrepreno de Haynes-Cooper, al sia estonta batalo. ĉirkaŭ ŝiaj lipoj ekestis amara trajto, strange efikanta sur tiel juna vizaĝo. La diservo daŭris.
 
-La orgenpreludo komenciĝis, ĝi estis preparo al la pro-funebra preĝo. Rabeno Thallmann komencis la ”kadiŝ-
-
-on”. Fanny ekstaris, la preĝlibron en sia mano. Clarence Heyl same stariĝis, tro subite, kiel iu, kiu ne plu kutimas al la servo, sed li staris kun neklinita kapo, interesite, rigardante respektplene la rabenon. Ili ambaŭ estis la nuraj, kiuj staris. La morto estis bonvola je la kongregacio Emanuel ĉi tiun jaron. La preĝo finiĝis. Fanny forviŝis la larmojn, kun ioma postkolero. ŝi residiĝis kaj ŝutiĝis super ŝin iu sento de finiĝo. Io, kvazaŭ fino de unua volumo de librego, konsistanta el tri partoj. ŝi diris al si: ”Winnebago kaj mia ĉi tiea vivo finiĝis. Rimarkinde estas, ke mi tiel certe sentas tion ĉi. ŝajnas esti unu el tiuj koncertoj de Teodoro. Jen la dua parto, sed tiu estos pli vigla: ’Fortissimo Presto!’ ”
-
-
-FANNY
+La orgenpreludo komenciĝis, ĝi estis preparo al la pro-funebra preĝo. Rabeno Thallmann komencis la ”kadiŝon”. Fanny ekstaris, la preĝlibron en sia mano. Clarence Heyl same stariĝis, tro subite, kiel iu, kiu ne plu kutimas al la servo, sed li staris kun neklinita kapo, interesite, rigardante respektplene la rabenon. Ili ambaŭ estis la nuraj, kiuj staris. La morto estis bonvola je la kongregacio Emanuel ĉi tiun jaron. La preĝo finiĝis. Fanny forviŝis la larmojn, kun ioma postkolero. ŝi residiĝis kaj ŝutiĝis super ŝin iu sento de finiĝo. Io, kvazaŭ fino de unua volumo de librego, konsistanta el tri partoj. ŝi diris al si: ”Winnebago kaj mia ĉi tiea vivo finiĝis. Rimarkinde estas, ke mi tiel certe sentas tion ĉi. ŝajnas esti unu el tiuj koncertoj de Teodoro. Jen la dua parto, sed tiu estos pli vigla: ’Fortissimo Presto!’ ”
 
 
 Rabeno Thallmann levis la manojn por doni la benon.
@@ -2342,19 +1801,13 @@ forŝvebi la rektan, belan staturon de la ŝtuparo kaj malaperi malantaŭ la ang
 Fanny foriris el Winnebago la sekvan matenon je la oka.
 
 
-FANNY
-
-
-ĉAPITRO IX.
+ĈAPITRO IX.
 
 Sinjoro Fenger povas akcepti vin nun.”
 
 Daŭris longe antaŭ ol sinjoro Fenger, la ĝenerala funkciestro tiucele povis liberigi sin. Kaj la atentado estis nova sperto por Fanny. is nun ŝi posedis la privilegion atendigi iun alian. Sed la atendadon en la antaŭkontoro de Michael Fenger ŝi tute ne trovis malagrabla. ĉar sidante tie, ŝi povis havigi al si ĝustan impreson pri la nevidebla viro, kies voĉon ŝi aŭdis, kiam li parolis antaŭ la mikrofono en sia privata kontoro. Estis karakterize por Michael Fenger, ke lia personeco tiel forte regis lian ĉir-kaŭaĵon, ke oni jam sentis la tuŝon de ĝi, antaŭ ol oni kontaktiĝis kun li mem.
 
 Fanny sciis pri li longan tempon antaŭ ol ŝi iris al Haynes-Cooper. Li estis la ardilo de la inkandeska lampo. Tra la giganta konstruaĵo (ŝi jam renkontis sekci-estrojn, aĉetistojn, varestrojn) oni aŭdis lian nomon kaj sentis la stampon de lia spirito. ”Pri tio vi parolu kun sinjoro Fenger,” aŭ celante novan transportilon okaze ŝi aŭdis, ”tio ĵus instaligis, estas ideo de sinjoro Fenger. La efiko de nia ekspedado duobliĝis per ĝi. Antaŭe ni uzis korbojn, levatajn per ŝnuro.”
-
-
-FANNY
 
 
 Efiko, efiko, efikego. Tio estis la ĉefa devizo de sinjoro Fenger ĉe la entrepreno Haynes-Cooper, longan tempon antaŭ ol ĉi tiu vorto trovigis en nia vortaro. Michael Fenger mem estis sistemo. Li kapablis fari eląoso da mendoj, el sovaĝejo de nesubskribitaj kontraktoj kaj el bando da nekompetentaj laboristoj, glatfunkciantan kaj efikan unuon. Disvolvado de implikaĵoj estis lia amata ĉevalo. Regulo kaj ordo estis liaj idoloj. Lia batalkrio estis: ”Rezultoj!”
@@ -2366,9 +1819,6 @@ La forta, malalta voĉo, potence parolis antaŭ la telefono en la apuda ĉambro.
 estas eltrovitaj por tiaj personoj. Zumvokilo sonis kaj tuj funkciigis la bubon, eksaltigis la avidmienan stenogra-1 Societo anonima (akcia kompanio).
 
 
-FANNY
-
-
 fon al la pordo, la notlibron enmane, preta. Je la sekretariino ĝi efikis tiel, ke ŝi proksimiĝis al Fanny.
 
 ”Temperamento, ”Fanny pensis, ”aŭ hipernervaj kaj troekscititaj. Ili estas marionetoj, saltantaj laŭ la ŝnur-movoj.”
@@ -2377,9 +1827,7 @@ En la sama momento la maldika sekretariino komunikis, ke sinjoro Fenger volas ak
 
 Fanny donis sian. Ili renkontiĝis senvorte, nur manpre-me, kiel viroj kutimas saluti sin reciproke. Same kiel li klasifikis ŝin, siavice Fanny kun sia lerta spirito okupiĝis diserigi, analizi, engrupigi lin. Ili komune posedis iun forton, puŝantan, pelantan forton.
 
-Laŭ lia invito Fanny sidigis sntraŭ li sur seĝo. Li residiĝis en sian komfortan kontorseĝon kaj krucigis la krurojn. Li estis alta homo kun fortikaj, kvadrataj ŝultroj, longforma kapo kaj neregula, pinta nazo; li posedis la tipon de la angloj, kiuj intencas aŭ imagas iri Kanadon, 156
-
-FANNY
+Laŭ lia invito Fanny sidigis sntraŭ li sur seĝo. Li residiĝis en sian komfortan kontorseĝon kaj krucigis la krurojn. Li estis alta homo kun fortikaj, kvadrataj ŝultroj, longforma kapo kaj neregula, pinta nazo; li posedis la tipon de la angloj, kiuj intencas aŭ imagas iri Kanadon,
 
 
 Usonon aŭ Aŭstralion. Li portis okulvitrojn, ne tiajn kun ceratinaj teniloj, sed kun oraj orelpartoj. Per tio lia vizaĝo, kiu alie estus tro kruda aŭ fortika. ricevis normale homan esprimon. Li povis esti proksimume kvar-dekkvinjara. Li unua parolis:
@@ -2398,18 +1846,13 @@ Li klinis sin antaŭen kaj nun krucigis la brakojn sur la skribtablo.
 
 ”Jes, dufoje. Unuafoje kun ordinara turista societo, duafoje kun speciala gvidanto.”
 
-”Bone. Vi ekzamenu la aferon kiel uble plej ofte. Vi ne restu nur en via propra sekcio. Tio faras vin mallarĝ-
-
-spirita.” Li ĉesis paroli momenton. ”Eble vi opinias, ke estas hazardo, blinda hazardo, ke vi sukcesis enoficiĝi ĉe Haynes-Cooper, . . . nur pro viaj klopodado kaj bonŝan-co, ke vi akiris la bebovestan sekciestrinan postenon.”
+”Bone. Vi ekzamenu la aferon kiel uble plej ofte. Vi ne restu nur en via propra sekcio. Tio faras vin mallarĝspirita.” Li ĉesis paroli momenton. ”Eble vi opinias, ke estas hazardo, blinda hazardo, ke vi sukcesis enoficiĝi ĉe Haynes-Cooper, . . . nur pro viaj klopodado kaj bonŝan-co, ke vi akiris la bebovestan sekciestrinan postenon.”
 
 ”Jes.”
 
 ”Vi eraras tiurilate. Mi zorge elektis vin kaj mi kredas, ke mi ne eraris. Mi supozas, ke vi nenion scias pri aĉetado kaj vendado de bebovestoj, ĉu?”
 
 ”Jes, malpli ol pri kiu ajn artiklo.”
-
-
-FANNY
 
 
 ”Jes, mi do pravas, sed tio ne gravas. Mi scias, kion mi nepre sciu pri vi, tio estas, mi scias, kie vi ricevis vian kapabligon. Vi estas juna, ambicia, sperta, fantaziplena.
@@ -2419,9 +1862,6 @@ Per tio vi povos ĉion atingi. Tio nur dependas de la akra komprenpovo pri certa
 Mi decidis, ke tiu sekcio bezonas virinon, estrinon tian, kia vi. Estas regulo, ke mi ne prenas virinon, kiam mi povas havigi viron. Nur estas unu virino en ĉi tiu entrepreno, kiu havas vere gravan pozicion rilate la nego-cajn aferojn. Tio estas Ella Monahan, la ĉefino de la sekcio gantoj; ŝi estas genia. ŝi estas virino, kiu estas mez-grava koncerne ĉiujn aliajn kvalitojn, sed pri gantoj kaj materialo porganta, ŝi estas nesuperebla. Prefere mi havus viron en la gantsekcio, sed okaze mi ne konas viran gantgeniulon. Kia vi trovas tiun ĉi akvaforton?”
 
 Fanny klopodis, — tamen sukcesplene — kaŝi sian surpriziĝon, turnante sin por rigardi la bildon, kiun li montris. ŝi ekstaris kaj marŝis certpaŝe al ĝi, ĝojante pro tio, ke ŝia vesto malantaŭe bone aspektigas ŝin.
-
-
-FANNY
 
 
 ”i ne tre plaĉas al mi. Mi trovas ĝin malpli bona ol io alia ĉi tie.” La muro abunde surhavis akvafortojn. ”Kompreneble vi komprenas, ke mi ne estas kompetenta prijuĝantino, sed laŭ mi ĝi estas tro bela por esti bona. Tro multaj linioj, estas kiel verkisto, kiu fuŝas sian verkaĵan efikon pro uzo de tro da vortoj.”
@@ -2451,9 +1891,6 @@ Lia rigardo fiksiĝis sur ŝian figuron.
 ”Mi malĉarmas!” diris Fanny malafable kiel bubino.
 
 
-FANNY
-
-
 ”Tio estas problemo, pri kiu ni ne diskutu, infano mia, beleco ja estas io subjektiva.”
 
 ”Mi ne komprenas, kial ĝi diferencigas.”
@@ -2469,9 +1906,6 @@ Jen, estis konata tereno por Fanny.
 ”Bonege!” Michael Fenger ekstaris, ”mi ne plenŝtopos vin per instrukcioj kaj konsiloj. Plej bone estas, ke vi agu laŭplaĉe kaj laŭimpulse, puŝiĝos via kapo kelkfoje. Nu
 
 . . . per tio vi lernas, kie estas la malaltaj traboj, kie vi klinu vin. He, fraŭlino Brandeis, memoru, ke ni ŝatas ideojn, elpensaĵojn, ni akceptas ilin tiel same de la lift-bubo, kiel de la prezidanto.”
-
-
-FANNY
 
 
 Lia tono estis afabla, sed ne kuraĝiga. Fanny ankaŭ stariĝis, preta por foriri, sed ŝi turnis sin kaj malkaŝe rigardis lin.
@@ -2493,9 +1927,6 @@ Li ne elparolis la vorton konsidere, sed decidtone. Li premis zumobutonon, la bu
 Du tagojn poste sur ĉiuj etaĝoj la knaboj kaj knabinoj surmetis malpezajn radŝuojn. Ili unue faris cirkon per ili.
 
 
-FANNY
-
-
 Ili komence rompis objektojn, kiam ili tro rapide volis laŭiri angulon, oni tro multe amuzis sin per la flugantaj helpistoj. Sed tio daŭris nur unu semajnon. En du semajnoj la radŝuoj estis kvazaŭ partoj de ilia korpo; ĝuste dirite: laborŝpariloj. La raporto, prezentita antaŭ Fenger, estis jena: ”Tempo kaj energio ŝparitaj, kvindek kvin procentojn; provizo-servistaro malpligrandigita je triono.”
 
 Estis pentrinda vidaĵo, la radŝuveturanta bubaro, la konsterna simpleco de la elpenso impresis la tutan ofi-cistaron. i incitis la humorsenton de ĉiuj el tiu dekmilo da geservistoj.
@@ -2505,19 +1936,11 @@ En la unua semajno post sia enoficiĝo ĉe Haynes-Cooper Fanny Brandeis fariĝis
 Antaŭ dek kvin jaroj estis fondita firmo, kiu ekokupis sin pri varekspeda disvendo, kaj ĝi tuj prosperis. i estis vasta konstruaĵo, planita por eventuala disvastigeb-lo. Certe ĝi estis sufiĉe granda por permesi al la ”filo”
 
 
-FANNY
-
-
 kreski en suĉinfanaj vestoj ĝis la dudekkvina aĝo. En dek jaroj tamen la vestoj krevis jam, en dekdu jaroj la vestoj estis tro malvastaj, la filo superkreskis la supozon. Novaj ruĝbrikaj domoj estis alkonstruataj, ade sekvis novaj.
 
-Sur unu estis metitaj kvin etaĝoj, sur alia ses, dekkvinetaĝulo finis la vicon provizore. La firmo ekkutimis kalkuli per dekmilionoj. La akcioj estis orgalonitaj. ĉiu feli-
-
-ĉulo, kiu tiam aĉetis sian akcion, trohezite je bagatelo super alparo kaj imagis akiri — nur en fantazio — mak-simume kvar aŭ kvin procentojn da rento, vidis duobliĝi siajn milojn, triobliĝi, kvarobliĝi eĉ, fine obliĝi al neimagebla limito. Aŭskultu la gvidiston (kiu perlaboras mem dek kvin dolarojn ĉiusemajne) kiu kondukas arojn da gapantaj vizitantoj tra la giganta entreprenejo. Aŭskultu, kiel li ĵonglas per ciferoj, kiel grandiozaj ili ruliĝas de lia lango. Kiel flue li spezas la milionojn de Nathan Haynes. ”Jen, gesinjoroj, nia poŝtsekcio. ĉiutage ni ricevas ĉi tie dumil ĝis dumil kvin cent funtojn da korespondaĵoj, inter kiuj pli ol centmil leteroj. Certe, sinjorino, en unu tago. Proksimume la duono de ĉi tiuj leteroj estas mendoj. La lastan jaron nia banksekcio pagis cent tridek milionojn da dolaroj. Cent tridek milionojn.” Li tiam haltas en sia malbonfasona kostumo kaj kun sia dolaraŭreolo, kaj frotas la ostmontrajn manojn. ”Kompatu min!”
+Sur unu estis metitaj kvin etaĝoj, sur alia ses, dekkvinetaĝulo finis la vicon provizore. La firmo ekkutimis kalkuli per dekmilionoj. La akcioj estis orgalonitaj. ĉiu feliĉulo, kiu tiam aĉetis sian akcion, trohezite je bagatelo super alparo kaj imagis akiri — nur en fantazio — mak-simume kvar aŭ kvin procentojn da rento, vidis duobliĝi siajn milojn, triobliĝi, kvarobliĝi eĉ, fine obliĝi al neimagebla limito. Aŭskultu la gvidiston (kiu perlaboras mem dek kvin dolarojn ĉiusemajne) kiu kondukas arojn da gapantaj vizitantoj tra la giganta entreprenejo. Aŭskultu, kiel li ĵonglas per ciferoj, kiel grandiozaj ili ruliĝas de lia lango. Kiel flue li spezas la milionojn de Nathan Haynes. ”Jen, gesinjoroj, nia poŝtsekcio. ĉiutage ni ricevas ĉi tie dumil ĝis dumil kvin cent funtojn da korespondaĵoj, inter kiuj pli ol centmil leteroj. Certe, sinjorino, en unu tago. Proksimume la duono de ĉi tiuj leteroj estas mendoj. La lastan jaron nia banksekcio pagis cent tridek milionojn da dolaroj. Cent tridek milionojn.” Li tiam haltas en sia malbonfasona kostumo kaj kun sia dolaraŭreolo, kaj frotas la ostmontrajn manojn. ”Kompatu min!”
 
 diras turistino el Idaho laŭtete — laŭtege, nu kia elkrio fakte proporcie alĝustiĝas al tiom da milionoj.
-
-
-FANNY
 
 
 Fanny Brandeis, kremfreŝa el Winnebago adaptiĝis bone al la kompleksamplekso ĉe Haynes-Cooper, kiel ero de desegnaĵo en perfekte projektita blua paŭsaĵo. ŝajnis, ke ŝi estas elpensita kaj konstruita por ĝuste eningiĝi sur la loko, kie oni ekplantis ŝin. La kialo de tiu alĝustiĝo nur estis Winnebago, Wisconsin, ĉar Haynes-Cooper kreskis kaj prosperis per tiaj urbetoj kun ĝiaj ĉirkaŭantaj farmdomoj kaj vilaĝoj. Tio estis do la medio, kiun Fanny Brandeis elektis. Kaj supraĵe konsiderite, ŝia elekto estis
@@ -2528,14 +1951,10 @@ Fanny alvenis en dimanĉo al ĉikago. ŝi iris tuj al la Mendota hotelo en Michi
 
 Lundon sekvintan ŝi prezentis sin ĉe Haynes-Cooper.
 
-Tiun tagon kaj mardon ŝi pasigis, rigardante la grandan 164
-
-FANNY
+Tiun tagon kaj mardon ŝi pasigis, rigardante la grandan
 
 
-ĉiovendejon. Estis lacige, ekscitege. Merkrede ŝi estis petata al interparolo kun sinjoro Fenger. ĵaŭde ŝi sidis an-taŭ sia kontortablo je duona post la oka. Slosson, la aĉet-
-
-ĉefo de la sekcio, venis je le naŭa. Fanny ekstaris por saluti lin. ŝi iom kompatis Slossonon. Image ŝi sciis lin jam kondamnito.
+ĉiovendejon. Estis lacige, ekscitege. Merkrede ŝi estis petata al interparolo kun sinjoro Fenger. ĵaŭde ŝi sidis an-taŭ sia kontortablo je duona post la oka. Slosson, la aĉetĉefo de la sekcio, venis je le naŭa. Fanny ekstaris por saluti lin. ŝi iom kompatis Slossonon. Image ŝi sciis lin jam kondamnito.
 
 ”He, He!” Li estis homo, kiu uzadas admirveojn. ”Vi estas tre frua, fraŭlino . . . eh . . .”
 
@@ -2562,9 +1981,6 @@ En tiu tempo virino estas plej neprezentebla. Se ŝi povos akiri ĝin, ŝi almen
 ”Ne.”
 
 
-FANNY
-
-
 ”Nu, ĝuste, mi estas edzo kun tri idoj, tri filinoj.”
 
 Li frotis nerve la manon sur la kapo kaj fingre kombis la harojn.
@@ -2586,20 +2002,13 @@ Du jarojn poste la smirgpapera letermalfermilo estis instalita, tio estis mirakl
 Manipulata de Izzy, la eksperto, ĝi kapablis malfermi per sia malglata lango sescent kvindek kovertojn ĉiuminu-te.
 
 
-FANNY
-
-
 Dekkvin minutojn post la alveno de la mendoj ili estis plenumataj kaj malpleniĝis bretoj, bretaroj, ŝrankoj kaj kestoj. De unu flanko al la alia flugis la servistoj, amasoj da varoj estis transportataj en la glitkorboj al la granda spirala glitejo, kondukanta al la ekspedejo; de tie ili transiĝis per la poŝto en vagonaron aŭ sipon, jen multkolora ĉapelo por kampara belulino en Nebrasko, jen tombŝtono por la mortinta edzino de farmisto; jen helruĝa farbita plugilo, kafo, teo, konfitaĵoj, ĉio destinita por Alasko, jen puntoj, muslino, tolaĵoj, tukoj, ĉio por dotvestaro de edziniĝontino en Georgia.
 
-Dum la unua monatduo Fanny tute ne metis sin sur la antaŭaĵon. ŝi kvazaŭ nur malfermis la porojn de sia spirito por absorbi ĉiun detalon de sia sekcio. ŝi diris malmulton kaj sekvis la instrukciojn de Slosson, ne pro-ponante sanĝojn en la jama situacio. La angora antaŭ-
-
-sento de Slosson foriĝis jam kaj lia sinteno ree estis protekta kaj mastreta. Fanny fariĝis por li ero de la tiea ru-tino. Fenger tute ne venigis ŝin al si.
+Dum la unua monatduo Fanny tute ne metis sin sur la antaŭaĵon. ŝi kvazaŭ nur malfermis la porojn de sia spirito por absorbi ĉiun detalon de sia sekcio. ŝi diris malmulton kaj sekvis la instrukciojn de Slosson, ne pro-ponante sanĝojn en la jama situacio. La angora antaŭsento de Slosson foriĝis jam kaj lia sinteno ree estis protekta kaj mastreta. Fanny fariĝis por li ero de la tiea ru-tino. Fenger tute ne venigis ŝin al si.
 
 En junio kaj julio estis neelteneble varmege. Sed Fanny estis en sia elemento, ŝi similis floron, kiu dismontras la petalojn pro la varmego, dum ĉiuj aliaj blovis kaj brus-pire ĝemis. La printempa katalogo estis preparota en oktobro, ses monatojn antaŭ sia apero.
 
-En la unua semajno de aŭgusto Fanny petis interpa-rolon kun Fenger. Slosson estis same petata tien. Je la 167
-
-FANNY
+En la unua semajno de aŭgusto Fanny petis interpa-rolon kun Fenger. Slosson estis same petata tien. Je la
 
 
 deka ŝi eniris la privatan kontoron de Fenger. Li telefonis, temis pri festmanĝo en ”Union League Club.” Lia voĉo estis afektita, lia tono melodia kaj li parolis korekte, senerare la anglan lingvon. Tamen Fanny, rigardante la akvafortojn, turninte la dorson al li, nevole ridetis. La voĉo, tono kaj akcento, ĉio sonis nevera. ĉio estis tro eleganta, sed bona imitaĵo de la realaĵo. Fanny Brandeis konis tiun ludon, ŝi mem ja ludis saman rolon. Fenger pendigis la telefonon.
@@ -2618,12 +2027,7 @@ Fenger penetre ŝin rigardis: ”Sufiĉe certa pri vi mem, ĉu ne?”
 
 Sed Fenger skuis la kapon.
 
-”Slosson mem estas kulpa, li mem nun englutu sian medikamenton. Tio estas komerco, fraŭlino Brandeis. Vi bone sciu, kion tio volas diri. Se vi nun ne estus prezen-168
-
-FANNY
-
-
-tanta novan elpensaĵon, nu, Slosson povus ridi, priridi vin; ĉu li ne farus tion?”
+”Slosson mem estas kulpa, li mem nun englutu sian medikamenton. Tio estas komerco, fraŭlino Brandeis. Vi bone sciu, kion tio volas diri. Se vi nun ne estus prezentanta novan elpensaĵon, nu, Slosson povus ridi, priridi vin; ĉu li ne farus tion?”
 
 Slosson eniris en tiu momento kaj li anticipe divenigis sian kontraŭstaremon. Tion montris la maniero, en kiu li tenis la bruston kaj en kiu li sidiĝis. Li tamburis perfingre sur la genuoj. Li ŝajnis esti kolera patro, saĝe punonta obstinan infanon.
 
@@ -2633,12 +2037,7 @@ Fenger rigardis sian poŝhorlogon.
 
 Fanny Brandeis profunde spiris.
 
-”La manko en la bebovesta sekcio estas tio, ke ĝi tute ne komprenas la virinojn. ĉiujare naskiĝas miliono da suĉinfanoj. Nefiksebla nombro de tiuj etuloj estas ’eks-pedfirmaj’ beboj. Tio signifas: idoj de laciĝintaj mal-delikatmanaj enmigrintaj virinoj, virinoj el fabrikoj, laborejoj, el izolitaj vilaĝoj, estas tiuj, kiuj bezonas niajn varojn. Tio, kion mi scias pri tiaj virinoj estas jena: ĉu ili deziris ekhavi la infanon aŭ ne, se iam ĝi venos aŭ venis, ili preferos malsati kaj troŝpari pri ĉiaj aferoj, sin vesti per ĉifonoj, eĉ almozpeti aŭ ŝteli, por doni al la novna-skito vestetojn, belajn vestetojn kun bantoj kaj puntoj, belajn, blankajn vestetojn. Mi ne scias, kial tio estas vera, sed estas fakto. Tiujn virinojn ni ne atingas. Niaj artikloj ne estas allogaj. Ili estas pakataj kaj forsendataj ne-alloge. La sola, kion nia sekcio bezonas, estas iom da psi-169
-
-FANNY
-
-
-kologio . . . Iom da punto, kiu ne aspektas skulptita per hakilo. Tio, kion ni bezonas por tiuj virinoj, estas ĉarmetaj, elegantaj aĵetoj. Ili deziras havi belajn vestojn por siaj beboj, same kiel la patrinoj, kiuj manĝas per arĝentaj kuleroj. Ni liveru al ili arĝentkulerajn modojn je stanku-leraj prezoj.”
+”La manko en la bebovesta sekcio estas tio, ke ĝi tute ne komprenas la virinojn. ĉiujare naskiĝas miliono da suĉinfanoj. Nefiksebla nombro de tiuj etuloj estas ’eks-pedfirmaj’ beboj. Tio signifas: idoj de laciĝintaj mal-delikatmanaj enmigrintaj virinoj, virinoj el fabrikoj, laborejoj, el izolitaj vilaĝoj, estas tiuj, kiuj bezonas niajn varojn. Tio, kion mi scias pri tiaj virinoj estas jena: ĉu ili deziris ekhavi la infanon aŭ ne, se iam ĝi venos aŭ venis, ili preferos malsati kaj troŝpari pri ĉiaj aferoj, sin vesti per ĉifonoj, eĉ almozpeti aŭ ŝteli, por doni al la novna-skito vestetojn, belajn vestetojn kun bantoj kaj puntoj, belajn, blankajn vestetojn. Mi ne scias, kial tio estas vera, sed estas fakto. Tiujn virinojn ni ne atingas. Niaj artikloj ne estas allogaj. Ili estas pakataj kaj forsendataj ne-alloge. La sola, kion nia sekcio bezonas, estas iom da psikologio . . . Iom da punto, kiu ne aspektas skulptita per hakilo. Tio, kion ni bezonas por tiuj virinoj, estas ĉarmetaj, elegantaj aĵetoj. Ili deziras havi belajn vestojn por siaj beboj, same kiel la patrinoj, kiuj manĝas per arĝentaj kuleroj. Ni liveru al ili arĝentkulerajn modojn je stanku-leraj prezoj.”
 
 ”Tio estas neebla,” diris Slosson.
 
@@ -2650,12 +2049,7 @@ kologio . . . Iom da punto, kiu ne aspektas skulptita per hakilo. Tio, kion ni b
 
 Tio tamen estis instigilo por Fanny. ŝi klinis sin antaŭen en sia seĝo kaj rekte parolis al la granda viro, kiu rigardis kaj atente sekvis sin.
 
-”Mi insistas, ke ni povos imiti la multekostajn modojn per malkaraj materialoj. ĉar plej ofte ne la materialo pli-karigas la objektojn, sed la modelo, la fasono, la ĉarmi-gilo. Ni povos havigi tion. is nun ni ofertis artiklojn, kiuj estis tiel allogaj, kvazaŭ ili estas fabrikitaj en mal-liberejaj laborejoj. Nun ni priparolu la aspekton de nia nova katalogo. i fariĝu okulfrapa. Ni ne ofertu en ĝi apartajn objektojn, ne unuope, sed per kompletaj garni-170
-
-FANNY
-
-
-turoj, kompletaj vindujoj kun akcesoraĵoj. Ni pretigu skatolojn, pretajn por tuja ekspedo, je prezoj inter dudek kvin dolaroj kaj tri dolaroj naŭdek naŭ.”
+”Mi insistas, ke ni povos imiti la multekostajn modojn per malkaraj materialoj. ĉar plej ofte ne la materialo pli-karigas la objektojn, sed la modelo, la fasono, la ĉarmi-gilo. Ni povos havigi tion. is nun ni ofertis artiklojn, kiuj estis tiel allogaj, kvazaŭ ili estas fabrikitaj en mal-liberejaj laborejoj. Nun ni priparolu la aspekton de nia nova katalogo. i fariĝu okulfrapa. Ni ne ofertu en ĝi apartajn objektojn, ne unuope, sed per kompletaj garnituroj, kompletaj vindujoj kun akcesoraĵoj. Ni pretigu skatolojn, pretajn por tuja ekspedo, je prezoj inter dudek kvin dolaroj kaj tri dolaroj naŭdek naŭ.”
 
 ”Absolute neeble!” kriis Slosson, ”tri naŭdek naŭ!
 
@@ -2671,12 +2065,7 @@ en skatolojn diverskolorajn, tiujn de pli ol kvin dolaroj en rozkoloraj aŭ helb
 
 ”Nu, daŭrigu, fraŭlino Brandeis,” kuraĝigis Fenger kviete.
 
-”Nu,” ŝi ridetante rigardis al Slosson, ”ni starigu sekcion ’konsiloj kaj gvidiloj por patrinoj’. Ni helpu virinon, kiu deziras scii ion. Ni trovu iun, al kiu ili povos skribi, iu, kiun ili imagas bonpatrinaspekta, grizhara. Ni ja rice-171
-
-FANNY
-
-
-vas centojn da demandoj, ĉu ili mendu flanelajn aŭ duoble trikitajn umbilikbandaĝojn kaj simile. Kaj kiu respondos ilin? Deksesjara knabino en la korespondejo, kiu mem ne povas distingi umbilikbandaĝon de ŝtrumpeto, kaj ni donu al ŝi intimĉiutagan nomon: Emily Brand, ekzemple. Estu facile memorebla nomo. Tiel longe, ke ni ne havas tian knabinon, mi mem respondos.
+”Nu,” ŝi ridetante rigardis al Slosson, ”ni starigu sekcion ’konsiloj kaj gvidiloj por patrinoj’. Ni helpu virinon, kiu deziras scii ion. Ni trovu iun, al kiu ili povos skribi, iu, kiun ili imagas bonpatrinaspekta, grizhara. Ni ja ricevas centojn da demandoj, ĉu ili mendu flanelajn aŭ duoble trikitajn umbilikbandaĝojn kaj simile. Kaj kiu respondos ilin? Deksesjara knabino en la korespondejo, kiu mem ne povas distingi umbilikbandaĝon de ŝtrumpeto, kaj ni donu al ŝi intimĉiutagan nomon: Emily Brand, ekzemple. Estu facile memorebla nomo. Tiel longe, ke ni ne havas tian knabinon, mi mem respondos.
 
 Tiuj demandoj estas por mi same gravaj kiel por tiuj virinoj. Nun pri la akuŝaj akcesoraĵoj, ilaroj. Tiujn ni ofertu en tri specoj, ĉiuj tri praktikaj, simplaj, kompletaj. Nia drogsekcio vendas ĉiujn tiujn artiklojn aparte, sed ni pretigu . . .”
 
@@ -2691,9 +2080,6 @@ Post interparolado de dek minutoj, Slosson foriris.
 Fenger diris nenion al li, sed klare komprenigis al li, ke li foriĝu. Fanny restis. Jen la irado de la aferoj ĉe Haynes-Cooper. Ne tempofuŝo. Ne prokrasto.
 
 ”ĉu vi deziras, ke mi ĉiujn detalojn ankoraŭfoje priparolu, mi nur povis doni skizon, vi ja ne permesis al mi multe da tempo.”
-
-
-FANNY
 
 
 Fenger, refoje sidiĝinte antaŭ sia tablo, ne respondis, eĉ ne rigardis ŝin. La vizaĝo de Fanny subite ruĝetiĝis pro ekkolero.
@@ -2720,12 +2106,7 @@ La rideto de Fenger fortiriĝis.
 
 ”Dankon,” sektone.
 
-”Ne iru ankoraŭ, mi ne estas fripono. Vere. Tio volas diri, ne intence fiaganta homo, sed kiam mi vidas ion belan, ion allogan, ion ravan, ion tian, kiaj ĉi tiuj akva-173
-
-FANNY
-
-
-fortoj ekzemple, mi ne facile povas ne intrigi. Mi deziras ĝin posedi, kiel ajn, ĝin pristudi, rigardi.”
+”Ne iru ankoraŭ, mi ne estas fripono. Vere. Tio volas diri, ne intence fiaganta homo, sed kiam mi vidas ion belan, ion allogan, ion ravan, ion tian, kiaj ĉi tiuj akvafortoj ekzemple, mi ne facile povas ne intrigi. Mi deziras ĝin posedi, kiel ajn, ĝin pristudi, rigardi.”
 
 Fanny ne respondis, sed ŝi pensis: ”Tio estas danĝera, lerta homo, tro lerta por vi. Vi ja konas lin tiel malmulte.”
 
@@ -2745,9 +2126,7 @@ Samtempe ŝi elsavis sin preter la maldikan sekretari-inon, la avidmienan stenog
 
 Ella Monahan aperigis sian kapon de malantaŭ la pordo. La gantsekcio estis en la sama etaĝo. La du virinoj vidis unu la alian nur malofte, escepte ĉe la lunĉo.
 
-”Mi ne renkontis vin dumlunĉe,” diris Ella. ŝi estis virino kun ruĝetaj vangoj kaj brilaj okuloj, havis kvardek unu-du jarojn, tro frue griziĝis kaj restis okulfrape juna 174
-
-FANNY
+”Mi ne renkontis vin dumlunĉe,” diris Ella. ŝi estis virino kun ruĝetaj vangoj kaj brilaj okuloj, havis kvardek unu-du jarojn, tro frue griziĝis kaj restis okulfrape juna
 
 
 en sia agmaniero, tia, kiaj virinoj ofte estas, kiam ili an-taŭ sia tempo griziĝas.
@@ -2761,27 +2140,18 @@ Fanny rapidmove ekstaris: ”Mi ĝuste estas ironta.”
 Fanny restis staranta, momenton postrigardante sin, kvazaŭ volante revoki ŝin. Sed subite siaj pensoj ŝajnis sanĝiĝi, ĉar ŝi diris laŭte: ”Ho, frenezaĵo!” ŝi iris lunĉi kaj mendis vinbertorton kaj ĝuegis ĝin.
 
 
-FANNY
+ĈAPITRO X.
 
+Siatempe venis la invito de sinjorino Fenger por la teo. Maldika, kverelpreta voĉo per telefono preparis pri tio, kion Fanny vidos per la maldika, malbonhumora sinjorino Fenger mem. ŝi estis pala virino, kiu ĉiam plendis, precipe pri malbone funkcianta korvalvo. ŝi konfidencie komunikis al Fanny, ke tiu korvalvo endanĝerigas ŝian vivon ĉe ĉiu fortostreĉo. Krom tio ŝi tre facile povis malvarmumi pro ĝi. ŝi ĉiam portis ŝalon sur la ŝultroj, kiu konstante malleviĝis kaj same konstante estis levata de Michael Fenger. La vidaĵo de tiu viro, korpa kaj mensa giganto, kiu ade ĝentile kaj pacience relevis la ŝalon, kaŭzis en Fanny senton de kompato kaj Fenger sciis tion.
 
-ĉAPITRO X.
-
-Siatempe venis la invito de sinjorino Fenger por la teo. Maldika, kverelpreta voĉo per telefono preparis pri tio, kion Fanny vidos per la maldika, malbonhumora sinjorino Fenger mem. ŝi estis pala virino, kiu ĉiam plendis, precipe pri malbone funkcianta korvalvo. ŝi konfidencie komunikis al Fanny, ke tiu korvalvo endan-
-
-ĝerigas ŝian vivon ĉe ĉiu fortostreĉo. Krom tio ŝi tre facile povis malvarmumi pro ĝi. ŝi ĉiam portis ŝalon sur la ŝultroj, kiu konstante malleviĝis kaj same konstante estis levata de Michael Fenger. La vidaĵo de tiu viro, korpa kaj mensa giganto, kiu ade ĝentile kaj pacience relevis la ŝalon, kaŭzis en Fanny senton de kompato kaj Fenger sciis tion.
-
-Fenger loĝis en unu el la domegoj apud la lago, en domo tiel pompa, kiel oni nur trovas en ĉikago. i donis vidon rekte sur la lagon, posedis ĉambrojn trovastajn kun sennombraj fenestroj, tutvitran verandon kun gajaj kurtenoj kaj kanaj mebloj, nekredeblan nombron da banĉambroj. Krom la familio Feniger loĝis tie junaj geedzoj, kiuj interesiĝis nur pri lupagoj, tapetoj kaj kurtenoj kaj pri tio, ĉu la Firenza stilo estas preferinda al la 176
-
-FANNY
+Fenger loĝis en unu el la domegoj apud la lago, en domo tiel pompa, kiel oni nur trovas en ĉikago. i donis vidon rekte sur la lagon, posedis ĉambrojn trovastajn kun sennombraj fenestroj, tutvitran verandon kun gajaj kurtenoj kaj kanaj mebloj, nekredeblan nombron da banĉambroj. Krom la familio Feniger loĝis tie junaj geedzoj, kiuj interesiĝis nur pri lupagoj, tapetoj kaj kurtenoj kaj pri tio, ĉu la Firenza stilo estas preferinda al la
 
 
 ”Jakoba” por manĝoĉambraj meblaroj. Ankaŭ ŝi estis prezentita al iom malzorge vestita, sed ĉarma sinjoro tridekdu- aŭ -trijara kun okulvitroj, kiu estis meąnika inĝeniero. Fanny ne atentis sufiĉe lian nomon, sed poste ŝi eksciis ĝin. En si ŝi nomis lin pro oportuneco ”Rimarkindaj Faktoj” kaj tio restis tia ĝis nun. Lia konversacio regule komencigis per: ”Hodiaŭ ja okazis io tiel rimarkinda en la fabriko . . .” La resto similis rakonton, kiun oni ĉiutage trovas kiel piednoto sur kalendarfolio.
 
 ĉe la teo oni paradis per abundo da arĝento kaj punto, sed Fanny opiniis, ke la birdaĵo estas nur mezbone preparita, mankis en ĝi papriko kaj ”karaktero.” Sinjorino Penger daŭre interparolis aparte en incita maniero kun unu el la du elegante vestitaj servistinoj. Post la teo Michael Fenger montris al Fanny siajn bildojn, ne fanfarone, sed kiel iu, kiu ŝatas ilin kaj tial malkovras siajn trezorojn antaŭ bona amiko. Li ankaŭ kondukis ŝin al sia biblioteko, kiu aspektis kiel tiu de legamanto. Ili estis tute absorbitaj en librodiskuto kiam ”Rimarkindaj Faktoj” eniris kun acida mieno kaj trudante ilian konversacion per sia konduto de iu, kiu ne legas kaj ne hontas pri tio.
 
-”Vere, sinjoro Fenger, mi mortige enuas,” li komencis plendi, ”tiuj ambaŭ virinoj prenis mezurilon el la kudri-larujo de via edzino kaj kaŭras super tapiŝeto mezurante 177
-
-FANNY
+”Vere, sinjoro Fenger, mi mortige enuas,” li komencis plendi, ”tiuj ambaŭ virinoj prenis mezurilon el la kudri-larujo de via edzino kaj kaŭras super tapiŝeto mezurante
 
 
 ĝin; temas pri via tapiŝo kaj nia aŭ pri simila afero kaj jen vi forkondukis fraŭlinon Brandeis en la bibliotekon.”
@@ -2809,9 +2179,6 @@ elpoŝigis bedaŭre sian manon.
 Estis io petega en lia voĉo, io amuze knabeca.
 
 
-FANNY
-
-
 ”Ne, tion mi ne farus. Pro mi vi povus fumi turkan pipon kaj eĉ vi povus ĉirkaŭvolvi ĝin per paŭsaĵpapero, se al vi plaĉus.”
 
 ”Jes, mi scias tion kaj rekompence pro tio mi veturi-gos vin hejmen.”
@@ -2820,9 +2187,7 @@ Efektive tiel okazis en lia rapida malgranda dusidlo-ka veturilo. Antaŭ la pord
 
 ”Mi volonte renkontos vin ankoraŭfoje, fraŭlino Brandeis, se estos eble . . .”
 
-”Mi estas tro okupita,” ŝi diris kaj pripensis, ke li ver-
-
-ŝajne scias nenion pri ŝi. ”Mi laboras ĉe Haynes-Cooper, kiel subĉefo de la bebovesta sekcio.”
+”Mi estas tro okupita,” ŝi diris kaj pripensis, ke li verŝajne scias nenion pri ŝi. ”Mi laboras ĉe Haynes-Cooper, kiel subĉefo de la bebovesta sekcio.”
 
 ”Jes, mi scias tion. Mi supozas, ke virino kiel vi ne multe interesigas pri ulo kia mi, sed mi pensis, ke eble vi ja . . .”
 
@@ -2835,18 +2200,13 @@ Efektive tiel okazis en lia rapida malgranda dusidlo-ka veturilo. Antaŭ la pord
 Tio estis la honesta, sincera Fanny, parolanta kiel en Winnebago, Winconsin. Sed, veninte en sian ĉambron, Fanny ŝanĝiĝis en iun alian, la ambicia, kalkulanta Fanny reaperis kaj diris: ”Nu, kial mi faru tion, kial mi diris tion, mi vere ne ŝatas revidi tiun junulon.”
 
 
-FANNY
-
-
 Tio, kio mankis al Fanny, estis nutraĵo por la kreanta fajro, kiu brulis en ŝi. Tiu nutraĵo ne konsistu el objektoj, varoj, sed el homoj. Tamen ŝia laboro ĉe Haynes-Cooper nur havigis al ŝi senanimajn artiklojn. La tri monatoj de ŝia loĝado en ĉikago estis plenaj de okazintaĵoj.
 
 Haynes-Cooper postulis ĉiun uncon de ŝia energio, ĉiun granon de ŝiaj menso kaj eltrovemo. Kompense ŝi ricevis salajron. Kian salajron, ne tro grandan! Tio estis afero por pli posta konsidero.
 
 Malfeliĉe, Fanny Brandeis bezonis iom pli ol salajron, ŝi bezonegis homojn, ŝi sopiris al interrilatado kun homoj. ŝi deziris persone vidi tiujn milojn da homoj, por kiuj ŝi laboris, tiujn virinojn, infanojn kaj virojn ŝi volis koni, renkonti. Estis same kiel ŝatanto de dramo, sopiras vidi la favoratan aktorinon, anstataŭ admiri ŝin en malbone konstruita filmo.
 
-Tiel fariĝis, ke Fanny iris vagi tra la urbo. Estas kelkaj personoj, kiuj havas preferon por urboj, eĉ pli ol tion, eĉ talenton, por senti la ritmon, la pulson de la urbego, por aŭskulti ĝin, same kiel aliaj personoj estas sentemaj pri muziko aŭ posedas hiperinklinon al iu koloro. Tio estas kunnaskita, nelernebla. Fanny posedis specialan inklinon al sonoj kaj nuancoj de urboj. Nu, ĉikago estis giganta, multlingva orkestro, konsistigita de ludantoj kun plej strangaj vestoj, kiuj ludis sur ĉiuj imageblaj instru-mentoj, sen orkestrestro, terure malharmonie, tamen 180
-
-FANNY
+Tiel fariĝis, ke Fanny iris vagi tra la urbo. Estas kelkaj personoj, kiuj havas preferon por urboj, eĉ pli ol tion, eĉ talenton, por senti la ritmon, la pulson de la urbego, por aŭskulti ĝin, same kiel aliaj personoj estas sentemaj pri muziko aŭ posedas hiperinklinon al iu koloro. Tio estas kunnaskita, nelernebla. Fanny posedis specialan inklinon al sonoj kaj nuancoj de urboj. Nu, ĉikago estis giganta, multlingva orkestro, konsistigita de ludantoj kun plej strangaj vestoj, kiuj ludis sur ĉiuj imageblaj instru-mentoj, sen orkestrestro, terure malharmonie, tamen
 
 
 kelkfoje eksonis melodio, dolĉa aŭ doloriga, aŭdebla super la bruego kaj la multsonado. Promeno laŭlonge de da State-strato (la malĝusta flanko) aŭ Michigan Avenuo je la kvina aŭ tra unu el la fremdulkvartaloj aŭ laŭlonge de la lago en krepusko, efikis sur Fannyn kiel forta vino.
@@ -2859,9 +2219,7 @@ Estis, kvazaŭ tiuj vizaĝoj gestas al ŝi, vokas ŝin. ŝi skizis ilin, dirante
 
 ŝi vagis tra la geto kaj desegnis tiujn paciencajn, ju-dajn vizaĝojn, ofte abomenindajn, kelkfoje forpuŝajn, sed vivoplenajn. ŝi promenis tra South Clark-strato, hele lumigata per arklampoj kaj rigardis al la brilaj varoj aŭ ŝi rigardis al butiko, en kiu magiisto kun blanka ĉapo kaj vere fripona mieno, prezentis super bakforno imitatajn artifikaĵojn per patkuka turnilo.
 
-”Kokidaĵa tagmanĝo. Sudspeca kun vafloj kaj vera fig-siropo, 35 cendojn” estis la mensoga surskribo de reklamilo. Preter tiuj fenestroj promenis la Clarke-strataj virinoj kun maldolĉaj okuloj, kun altaj kalkanumoj kaj 181
-
-FANNY
+”Kokidaĵa tagmanĝo. Sudspeca kun vafloj kaj vera fig-siropo, 35 cendojn” estis la mensoga surskribo de reklamilo. Preter tiuj fenestroj promenis la Clarke-strataj virinoj kun maldolĉaj okuloj, kun altaj kalkanumoj kaj
 
 
 plumhavaj ĉapeloj; ĉe la stratanguloj mallabore penda-pogis sin la viroj kun ”blurazitaj” vangoj, rombostriaj kostumoj, malpuraj, helbrunaj ŝuoj kaj diamantaj pingloj sur la kravatoj.
@@ -2873,9 +2231,6 @@ Napolo estas mielĉelaro da mallarĝaj, kotaj stratetoj, kovritaj per forĵetaĵ
 Sed kie oni trovas duan Cottage Grove Avenuon (Ho, dolĉa nomo, misnomo!). i estas malbelega strateto kaj haladzaĉa! ĉaroj sur malaltaj radoj, budoj por manĝaĵoj, kinoteatretoj, brutintaj sonoriloj, prostituistinoj, viroj, kiuj steliras kun kruĉo en la mano kun altbutonumita palto por kaŝi la nudan korpon, sur kiu mankas subto-laĵo.
 
 
-FANNY
-
-
 Michigan Avenuo ravis ŝin plej multe. Tie ŝi povis vidi disvolviĝi straton antaŭ siaj okuloj. Kiu trairis ĝin, ekhavis imagon, ke li ĉeestas naskiĝon. Estas unu el la malmultaj mondfamaj strategoj. Novjorko posedas du tiajn, Parizo centojn, Londono neniun, Vieno unu. Kio koncernas Berlinon, ”Unter den Linden” estis la strato, kiun la usonanoj kaj la germanaj provincanoj kun siaj dikaj edzinoj frekventis antaŭ la milito. Sed tiu Michigan Avenuo, ne fnstruita kiel ĉikago mem, ĉiutage kreskanta, ankoraŭ estas serĉanta karakterizan formon kaj fortikan belecon.
 
 Estas kompreneble, ke la tempopasigo por aĉetistinoj kaj ĉefoj en liberaj sabatposttagmezoj aŭ dimanĉoj prefere ne estu vagado tra la stratetoj kaj strataĉoj de urbo.
@@ -2885,29 +2240,18 @@ Fanny ja ne povis ne scii, ke tio estas la spirito de Molly Brandeis en ŝi, tiu
 La nova katalogo estis presata, aperonta. Fanny laboregis por ĝi, malhelpata de Slosson. Fakte Fenger lasis ŝin libere aĝi. Rezultoj montriĝos post sufiĉe longa tempo. La kristnaska periodo ne estos kunkonsiderata, ĉar tiu ĉiam estis nenormale multmova tempo. Ne antaŭ ol la kvieta sezono venos, pruviĝos la efiko de la aranĝo.
 
 
-FANNY
-
-
 Slosson estis amaso da senkuraĝiĝo. Li ne plu mastris, sed sin tenis kompatanta, kaj tio timiĝis Fanjon. ŝi deziris, ke li iom furiozu. Sed, ricevinte la presprovojn de la katalogo, kiom rilatis ŝian sekcion, ŝi ree estis trankvila. Vere, ĝi aspektis alloga. La nova bebolibro tre bone aspektis kun kolorhava kovrilo, kiu parolos kaj efikos al ĉiu, kiu iam estis bebo aŭ vidis tian etulon.
 
 En septembro alvenis letero de Teodoro. Letero de Teodoro ĉiam enhavis la samon. Fanny hezitis malfermi la koverton, ŝi ĉiam hezitis antaŭ ol disŝiri koverton de letero, veninta de Teodoro. Dum ŝi hezitis, la malnova batalo refoje ekestis en ŝi.
 
-”Mi nenion ŝuldas al li,” parolis ŝia ena voĉo. ”Dio scias, ke tio estas vera. Dum mia tuta vivo mi faris nenion ol doni, doni, donadi por Teodoro! Li estas viro, mi virino. Li laboru per siaj manoj, kiel mi faras. Li ricevis sian parton kaj sendube pli ol sian parton.” Tamen ŝi sendis unu milon da dolaroj el la ses, kiujn ŝi heredis. ŝi ne bezonis fari tion, tamen ŝi faris, kvankam ŝi kontraŭ-
-
-staris sin mem. Nun, kiam ŝi tenis la leteron en la mano kaj rigardis senvide al la bavara poŝtmarko, ŝi diris al si:
+”Mi nenion ŝuldas al li,” parolis ŝia ena voĉo. ”Dio scias, ke tio estas vera. Dum mia tuta vivo mi faris nenion ol doni, doni, donadi por Teodoro! Li estas viro, mi virino. Li laboru per siaj manoj, kiel mi faras. Li ricevis sian parton kaj sendube pli ol sian parton.” Tamen ŝi sendis unu milon da dolaroj el la ses, kiujn ŝi heredis. ŝi ne bezonis fari tion, tamen ŝi faris, kvankam ŝi kontraŭstaris sin mem. Nun, kiam ŝi tenis la leteron en la mano kaj rigardis senvide al la bavara poŝtmarko, ŝi diris al si:
 
 ”Li bezonas iom. . . . da mono. Se mi sendos ĝin, mi ne povos aĉeti tiun novan robon aŭ tiun pelton. Mi nepre bezonas ilin, mi ne povas malhavi ilin.” ŝi disŝiris la koverton.
-
-
-FANNY
 
 
 ”Kara, bona Fanjo! Kiel vi vidas, estas Olga kaj mi ree en Munkeno. Mi supozas, ke ni restos la tutan vintron ĉi tie, kvankain Olga tion malŝatas. ŝi diris ke ne estas
 
 ”lustig1” ĉi tie. Vere ne estas Vieno kaj mi esperas, ke mi havos ŝancon akiri amerikajn lernantojn. En Munkeno svarmas usonaj familioj, kiuj restadas ĉi tie unu aŭ du jarojn. Mi povos, espereble, kolekti sufiĉe grandan kla-son, speciale per la rekomendo de Auer. Mi malŝategas tamen instrui, vi scias, bona Dio, kiom. Auer okupiĝas aranĝi por mi serion de kvindek koncertoj, kiuj ne povos ne sukcesi, almenaŭ se mia penado kontribuos al tio. La tutan someron mi laboris ĉiutage ses horojn. Vi komprenos, ke mi pli volonte estus irinta, almenaŭ parton de la somero, al Holzhausen am Ammersee, kiu estas malgranda vilaĝo, artista kunvenejo en montvalo, unu horon de ĉi tie, kun bela panoramo de la Bavaraj Alpoj. Ni povis ricevi la vilaon de Kurt Stein, preskaŭ senpage. Sed al Olga tio tute ne plaĉis, ŝi sentis sin malbona, kompat-indulino, tiel ke ni iris al Interlaken, terure. Kaj nun mi fine sciigas, kion mi fakte intencis komuniki al vi: al ni bebo estas naskiĝonta! Senutile estas diri, ke mi ne estas gaja, nek mi, nek Olga. Okazos en februaro proksimume. Olga estis mortmalsana, sed la kuracisto diris, ke la stato nun pliboniĝos. Temas nun pri kelkaj aferoj, kiujn mi ne povos havigi al ŝi. Mi jam rakontis al vi, ke mi 1 gajamuze.
-
-
-FANNY
 
 
 verkis koncerton, kelkfoje mi sentas, ke ĝi fariĝos sukceso, se mi nur havus la tempon kaj la trankvilon, tiel ne-cesajn por labori kviete. Vi tute ne scias, kion volas diri, ambicie labori pri tio kaj tiam esti malhelpata de . . .”
@@ -2926,18 +2270,13 @@ Fenger vidis la ĉifitan leteron en ŝia mano.
 
 ”ĉu la frato?”
 
-ŝi rakontis al li antaŭe jam pri Teodoro kaj li interesi-
-
-ĝis multe pri tio.
+ŝi rakontis al li antaŭe jam pri Teodoro kaj li interesiĝis multe pri tio.
 
 ”Jes.”
 
 ”Refoje, monon, ĉu ne?”
 
 ”Jes, sed . . .”
-
-
-FANNY
 
 
 ”ĉu vi scias, ke via salajro estas plialtigota, post Kristnasko?”
@@ -2964,18 +2303,14 @@ Fanny ruĝiĝis subite.
 
 ”Tion mi ne celis.”
 
-”Tion vi absolute celis! Jen mi havas la komparotajn listojn, kiujn vi sendis al mi. Se mi ne estus certa pri la fideleco kaj fidindeco de Slosson, mi povus kredi, ke li vendis nin al liveristoj kaj fabrikantoj. Ne estas mirige, 187
-
-FANNY
+”Tion vi absolute celis! Jen mi havas la komparotajn listojn, kiujn vi sendis al mi. Se mi ne estus certa pri la fideleco kaj fidindeco de Slosson, mi povus kredi, ke li vendis nin al liveristoj kaj fabrikantoj. Ne estas mirige,
 
 
 ke ĉi tiu sekcio neniel estis profitdona. Li pagis la plej altajn prezojn, prezegojn por fuŝaĵoj. Kio nun estas via nova plano?”
 
 Subite Fanny forgesis ĉion pri Teodoro, pri la nova vintrokostumo, pri la pelto kaj ŝi nur pensis pri sia nova plano, antaŭ nelonge estiĝanta. ŝi sidis antaŭ la skribtablo, ŝiaj fingroj ludis per slipo; faldante kaj malfaldan-te ĝin, ŝi parolis kun vigla, ĝojradia mieno.
 
-”Mia plano estas enoficigi por ĉiu sekcio viron, kies nura okupo estos elekti ĉe la fabrikantoj la artiklojn. Li zorgu, ke ni akiru la kremon de la lakto anstataŭ la sen-krema lakto. ĉe le nuna aranĝo la sekciestro samtempe aĉetas kaj elektas. Tio estas malbona, li ne povas fari du aferojn kaj akiri pri ambaŭ rezulton. Estas dezirinde, ke ni disponigu al la fabrikantoj tutan etaĝon, kie ili povos elmontre aranĝi siajn specimenojn kaj kie la elektisto povos fari sian taskon ses monatojn antaŭ la nova sezono. Kompreneble li ankaŭ iru al la printempaj foiroj, ne por aĉeti, sed por elekti. Li do fiksas nur la tipon, la kvaliton, la prezon eventuale, kaj post tio la aĉetisto senpere intertraktu kun la fabrikanto pri kvanto kaj livertempo k. s. Vi ja scias, ke tiu laboro jam estas sufiĉa tasko por okupi tutan personon. La aĉetisto ne bezonos ĉikani pri fasono, stilo kaj koloroj, tio estas antaŭe prizorgata. La aĉetisto sin ŝarĝas pri la respondeco. ĉu vi komprenas la 188
-
-FANNY
+”Mia plano estas enoficigi por ĉiu sekcio viron, kies nura okupo estos elekti ĉe la fabrikantoj la artiklojn. Li zorgu, ke ni akiru la kremon de la lakto anstataŭ la sen-krema lakto. ĉe le nuna aranĝo la sekciestro samtempe aĉetas kaj elektas. Tio estas malbona, li ne povas fari du aferojn kaj akiri pri ambaŭ rezulton. Estas dezirinde, ke ni disponigu al la fabrikantoj tutan etaĝon, kie ili povos elmontre aranĝi siajn specimenojn kaj kie la elektisto povos fari sian taskon ses monatojn antaŭ la nova sezono. Kompreneble li ankaŭ iru al la printempaj foiroj, ne por aĉeti, sed por elekti. Li do fiksas nur la tipon, la kvaliton, la prezon eventuale, kaj post tio la aĉetisto senpere intertraktu kun la fabrikanto pri kvanto kaj livertempo k. s. Vi ja scias, ke tiu laboro jam estas sufiĉa tasko por okupi tutan personon. La aĉetisto ne bezonos ĉikani pri fasono, stilo kaj koloroj, tio estas antaŭe prizorgata. La aĉetisto sin ŝarĝas pri la respondeco. ĉu vi komprenas la
 
 
 simplecon kaj la manieron, en kiu ĝi kvazaŭ ŝmiras la maŝinon?”
@@ -3005,9 +2340,6 @@ Fenger ekstaris.
 ”ĉu mi aspektas tiel malsana?” demandis Fanny, preskaŭ flate.
 
 
-FANNY
-
-
 ”Aspektas!”
 
 La voĉo de Fenger vibris.
@@ -3024,12 +2356,7 @@ Salajro de reĝo. Nepre estos abomena infero por tia ho-mo, esti tiel katenita, 
 
 ”Lia edzino estas duoninvalidino. Tamen mi ne kredas, ke ŝi estas tiel helpbezona, kiel ŝi ŝajnigas. ŝi kate-nas lin per tiu ŝalo, kiu daŭre mallevigas. Vi scias, li komencis kiel maŝinbubo en la lanfabriko de ŝia patro. Kaj ili konatiĝis, kiam li estis avancinta al la kontoro kaj de tiu tempo li progresis kiel lokomotivo.”
 
-Tiuj komunikoj klarigis multe al Fanny en tiu konversacio, cetere neinteresa. Kaj ŝi pensis pri tio, dirante al Fenger: ”Mi dankas pro la libertempa propono. Mi iros ien, ne scias kien. Mi kutimas sekvi lastminutan ek-190
-
-FANNY
-
-
-penson, mi ne preferas planon antaŭe, tio rezultas pli bone. Mi preparos min por la merkreda kunveno.”
+Tiuj komunikoj klarigis multe al Fanny en tiu konversacio, cetere neinteresa. Kaj ŝi pensis pri tio, dirante al Fenger: ”Mi dankas pro la libertempa propono. Mi iros ien, ne scias kien. Mi kutimas sekvi lastminutan ekpenson, mi ne preferas planon antaŭe, tio rezultas pli bone. Mi preparos min por la merkreda kunveno.”
 
 ŝia tono estis decida kaj adiaŭa. La ĉifita letero kuŝis sur la skribtablo. ŝi glatigis ĝin kaj la sulkoj de la papero transiĝis sur sian frunton. Fenger restis momenton staranta kaj rigardis ŝin. Tiam li turnis sin abrupte kaj forlasis la kontoron. Fanny ne atentis lin.
 
@@ -3044,9 +2371,6 @@ Tio okazis vendredon. Sabaton ŝia feria plano strange alprenis fiksan formon. �
 ”Mi volas paroli kun vi,” diris la voĉo decideme.
 
 Prezentiĝis antaŭ la okuloj de Fanny kruele klara bildo de la knabeto, kun la nazkatara vizaĝo, la knabeto kun la grandaj okulvitroj, la trobrilaj ŝuoj kaj la malfortaj pulmoj el ŝia knabina aĝo.
-
-
-FANNY
 
 
 ”Mi bedaŭras,” ŝi same decide respondis, ”sed mi timas, ke tio estos neebla, mi foriros frue kaj mi estas laca.”
@@ -3078,9 +2402,6 @@ Halo!”
 Fanny ĵetis la telefonon sur la kroĉilon kaj komencis labori, la lipoj kunpremitaj, kun du sulkegoj inter la okuloj. Duonhoron poste li estis ĉe ŝi. La bubo alportis lian nomkarton, kiel ŝi ordonis al li. Fanny tuj rimarkis, ke estas de malbonkvalita speco. ŝi montros al li, kio okazas al entrudantoj, kiuj ĝenas laborantajn virinojn en deĵoraj horoj.
 
 
-FANNY
-
-
 ”Enirigu lin post dudek minutoj,” ŝi diris malbonhu-more. ŝia pordisto (kaj sklavo) obeis ŝin ĉiam ekzakte kaj sindone. ŝi iomete esperis, ke li ne traktos lin tro malafable kaj turnis sin al sia laboro. Tridek naŭ sekundojn poste Clarence Heyl eniris.
 
 ”Bonan tagon, Fanjo!” kaj li kaptis ŝian delikatan manon tiel, ke ĝi dolortordiĝis.
@@ -3102,9 +2423,6 @@ Li faris paŝon malantaŭen kaj gracigeste disbutonumis sian surtuton.
 ”Kiel mi aspektas?” li demandis.
 
 ”Aspektas?” ripetis Fanny heziteme.
-
-
-FANNY
 
 
 ”Mi preparis min dum tiom da horoj por tio, multajn jarojn eĉ kaj nun mi supozas, ke mi . . . Nu, rigardu unue tiun kravaton.”
@@ -3136,9 +2454,6 @@ Li falsidiĝis sur la seĝon apud la skribtablo kaj prezentis bildon de senesper
 Li kovris sian vizaĝon permane.
 
 
-FANNY
-
-
 Fanny ankaŭ sidiĝis por tutkore priridi lin, ŝi ridis, ridis tiom, kiom ŝi ne ridis dum la tuta pasinta jaro.
 
 ”Vi estas freneza,” ŝi diris fine.
@@ -3163,14 +2478,10 @@ Heyl metis brakon sur la skribtablon, apogis sin sur ĝi, kun serioza, vere seri
 
 ”ĉu mi? Vi nun refoje komencas prezenti farson, ĉu ne?”
 
-”Malpli ol iam ajn en mia vivo! Aŭskultu, Fanjo. Tiu malkuraĝa, malsanema knabeto, pro kiu vi tamen en 195
-
-FANNY
+”Malpli ol iam ajn en mia vivo! Aŭskultu, Fanjo. Tiu malkuraĝa, malsanema knabeto, pro kiu vi tamen en
 
 
-Winnebago batalis, montris ĉiujn antaŭsignojn kreski al same timema nevidinda viro. Vi nur estas la kaŭzo, ke tio ne okazis. Ne, atendu momenton. Mi estis impresi-
-
-ĝema malsanuleto, mi kredas. Mi admiris kaj malamegis vin de tiu tago. Mi admiris vin, ĉar vi estis tiel vigla-
+Winnebago batalis, montris ĉiujn antaŭsignojn kreski al same timema nevidinda viro. Vi nur estas la kaŭzo, ke tio ne okazis. Ne, atendu momenton. Mi estis impresiĝema malsanuleto, mi kredas. Mi admiris kaj malamegis vin de tiu tago. Mi admiris vin, ĉar vi estis tiel vigla-
 
 ĉa, belanima, furiozanta, fajronsputa diablino, kiu tamen montris posedi ’animon’. Mi malamegis vin, ĉar
 
@@ -3184,18 +2495,14 @@ Poste ŝi komprenis, ke oni neniam provu diri al li mensogon. Nun ŝi klopodis k
 
 ”Nu, mi pensis: ’Jen estas Clarence Heyl, la timema ku-niklo’.”
 
-”Prave, kaj pro tio mi nun estas ĉi tie. Mi ja sciis, ke vi pensas tiel pri mi. Mi sciis tion la tutan tempon, kiam mi troviĝis en Kolorado, kie mi sanĝiĝis el malsanema bubeto kun malforta pulmo en fortikan viron. Tio instigis min al faroj, al riskaĵoj, pro kies memoro mi nun ankoraŭ sentas la angorŝviton eliĝi. Knabino, mi batalis kun leonoj, ursoj kaj lupoj nur pro vi, diablino kun la ruĝa ĉapo. Mi suriris negrimpeblajn montegojn. Mi suferis 196
-
-FANNY
+”Prave, kaj pro tio mi nun estas ĉi tie. Mi ja sciis, ke vi pensas tiel pri mi. Mi sciis tion la tutan tempon, kiam mi troviĝis en Kolorado, kie mi sanĝiĝis el malsanema bubeto kun malforta pulmo en fortikan viron. Tio instigis min al faroj, al riskaĵoj, pro kies memoro mi nun ankoraŭ sentas la angorŝviton eliĝi. Knabino, mi batalis kun leonoj, ursoj kaj lupoj nur pro vi, diablino kun la ruĝa ĉapo. Mi suriris negrimpeblajn montegojn. Mi suferis
 
 
 pro frostiĝintaj piedoj. Mi vagis tri plentagojn sur montopinto, mi ne povis trovi returnvojon kaj vivis per ros-inoj kaj lakta ĉokolado. Dio scias, kiel mi malŝatas ĉokoladon! Mi eskapis antaŭ lavangoj kaj dormis sur arbegoj.
 
 Mi suferegis de malsato, malvarmo kaj soifo — pro vi.
 
-Daŭris multajn jarojn antaŭ ol mi sukcesis preterpasi lupon, ne tremegante pro timo, sed mi lernis tion per pensado pri vi. Vi faris tion el mi. Oni sendis min al Kolorado kiel mizeran knabeton, kiu ne povis ne morti pro si mem. Mi vere estus mortinta tie, se min ne estus akompaninta la penso pri vi. Jen, kaj kion vi nun opinias pri ĉi tiu provo de spontanea parolado, via fraŭlina moŝ-
-
-to? Ho, atendu ankoraŭ iom, memoru ankaŭ, ke mia no-mo estas Clarence. Tio min nepre devigis persisti pri vivo.”
+Daŭris multajn jarojn antaŭ ol mi sukcesis preterpasi lupon, ne tremegante pro timo, sed mi lernis tion per pensado pri vi. Vi faris tion el mi. Oni sendis min al Kolorado kiel mizeran knabeton, kiu ne povis ne morti pro si mem. Mi vere estus mortinta tie, se min ne estus akompaninta la penso pri vi. Jen, kaj kion vi nun opinias pri ĉi tiu provo de spontanea parolado, via fraŭlina moŝto? Ho, atendu ankoraŭ iom, memoru ankaŭ, ke mia no-mo estas Clarence. Tio min nepre devigis persisti pri vivo.”
 
 Fanny rigardis al li mirokule kaj malfermbuŝe.
 
@@ -3205,12 +2512,7 @@ Heyl ridis per sia stranga, simpativeka rideto. ”Se vi devigas min diri ĝin, 
 
 Fanny sidis antaŭenklinita nun. ŝi estis preminta siajn manojn sur la apogiloj de la seĝo, ŝia vizaĝo jen esprimis
 
-ĝojon, jen kompaton, jen simpation. Subite tamen ĝi ŝanĝiĝis tute, ŝi malmildiĝis. ŝi rigardis siajn manojn kaj pugnigis ilin, tiam ŝi diris al li: ”En tiu kazo, vi povos for-197
-
-FANNY
-
-
-lasi tiun streĉan vivon kun trankvila konscienco. Vi ne plu bezonos grimpi sur montpintojn, nek batali kontraŭ hipopotamoj. La knabino kun la ruĝa ĉapo mortis.”
+ĝojon, jen kompaton, jen simpation. Subite tamen ĝi ŝanĝiĝis tute, ŝi malmildiĝis. ŝi rigardis siajn manojn kaj pugnigis ilin, tiam ŝi diris al li: ”En tiu kazo, vi povos forlasi tiun streĉan vivon kun trankvila konscienco. Vi ne plu bezonos grimpi sur montpintojn, nek batali kontraŭ hipopotamoj. La knabino kun la ruĝa ĉapo mortis.”
 
 ”ĉu ŝi mortis?”
 
@@ -3233,9 +2535,6 @@ Pretervole Fanny rigardis ĉirkaŭ sin en la ĉambro: paperoj, katalogoj, paperl
 ”Mi timas, ke mi plu ne scias ludi.”
 
 ”Mi instruos vin. Vi aspektas, kvazaŭ tio faros al vi multe da bono.”
-
-
-FANNY
 
 
 ”Mia aspekto ŝajne ne estas alloga. Vi estas la dua viro, kiu diras tion al mi!”
@@ -3267,9 +2566,6 @@ Li ekstaris.
 Surmetu almenaŭ ion, kio povos malpuriĝi. Vi certe posedas ankoraŭ ruĝan bireton, ĉu?”
 
 
-FANNY
-
-
 ”ĉielo, ne!”
 
 ”Estas nur por helpi min resti humila. ĉu vi komprenas?”
@@ -3285,10 +2581,7 @@ Fanny reiris al sia skribtablo kun la paperoj. La ĉambro al ŝi ŝajnis esti nu
 Fanny kolektis la paperojn, Ieterojn, listojn, ĵetis la amason en tirkeston, ŝlosis ĝin, ekstaris, repuŝis la seĝon kaj foriris.
 
 
-FANNY
-
-
-ĉAPITRO XI.
+ĈAPITRO XI.
 
 Antaŭ ol Fanny kuŝiĝis tiun vesperon, ŝi asertis al si, ke ŝi deziras morgaŭ pluvegon de la sepa ĝis tagmezo. Sed kiam Princess vekis ŝin je duono post la sepa, kiel ŝi ordonpetis per krajone skribita letereto sur la kuireja tablo, ŝi, turninte sin al la fenestro, ĝojegis, ke la suno brilegas. Princess, tiu nomo estis la sola reĝa en la virino, kiu havis biskvitkoloran vizaĝon kaj nigran, mal-gravan edzon, kies kutimoj devigis Princesson eniri la kvarĉambran loĝejon de Fanny je la sepa matene kaj ne forlasi ĝin antaŭ la oka vespere. ŝi havis nekredeble dolĉan kaj melodian voĉon kaj ŝi estis majstrino pri kuirarto. ŝi zorgis pri Fanny koncerne vestflikadon, kaj ĉiel; ŝi nur ne akordis kun Fanny pri la elekto de bluzoj (ŝi post Fanny fariĝis posedantino), ĉar ŝia gusto estis malsama, ŝi pli inklinis al la pli severfasona kaj eĉ tre deca modelo.
 
@@ -3299,9 +2592,6 @@ Antaŭ ol Fanny kuŝiĝis tiun vesperon, ŝi asertis al si, ke ŝi deziras morga
 ”Unu viro, sinjoro . . . diras, ke vi iros pikniki kun li.
 
 Li estas en la bela ĉambro, rigardas la desegnopaperojn.
-
-
-FANNY
 
 
 ĉu mi rostu kokidaĵon por vi, por kunporti, sandviĉoj ja ne sufiĉos, estas ne taŭgaj por dimanĉo, ĉu?”
@@ -3320,12 +2610,7 @@ Bonvolu diri al tiu sinjorino, ke estas mirakla ideo, mi celas, pri la kokidaĵo
 
 Rapidigata de intermitaj instigoj el la loĝoĉambro tra la fermita pordo, Fanny sin trovis baninta, vestita kaj preta por matenmanĝo je dek minutoj post la oka. Kiam ŝi malfermis la pordon de la ĉambro, Clarence staris en la mezo kun kelkaj skizoj en la mano, atendante ŝin.
 
-”Fraŭlino, mi vere miras, tio estas belega, senflate granda laboro, ĝi entuziasmigas. Jen tiu maljunulo kun sia barbo, vendanta fiŝon, aspektas kiel unu el la disĉiploj mem kaj jen ĉi tiu . . . tondre, kial vi agaĉas en poŝtek-202
-
-FANNY
-
-
-speda ĉiovendejo aŭ kio ajn ĝi estas, se vi povas desegni tiel. Nu, klarigu.”
+”Fraŭlino, mi vere miras, tio estas belega, senflate granda laboro, ĝi entuziasmigas. Jen tiu maljunulo kun sia barbo, vendanta fiŝon, aspektas kiel unu el la disĉiploj mem kaj jen ĉi tiu . . . tondre, kial vi agaĉas en poŝtekspeda ĉiovendejo aŭ kio ajn ĝi estas, se vi povas desegni tiel. Nu, klarigu.”
 
 ”Bonan matenon,” diris Fanny kviete, ”mi rakontos al vi nenion, antaŭ ol mi estos preta per mia matenmanĝo.
 
@@ -3344,29 +2629,19 @@ Clarence svingĵetis sian dorsosakon en la pakaĵreton, demetis sian ĉapon kaj 
 ”Vi estas . . . ĉu vi scias kiomjara vi nun estas? Dekkvarjara, apenaŭ dekkvinjara!” turmentetis Fanny.
 
 
-FANNY
-
-
 ”Mi scias, tio estas rava! ĉu ne ankaŭ vi dezirus esti tia? Forgesu, ke vi estas preskaŭ financa ministro aŭ kio ajn, forgesu, ke vi perlaboras ĉiumonate sesfoje tiom, kiom mi, distriĝu, ekstravagancu, elujiĝu. Ne montru tiun acidmienan maskon al mi, formetu ĝin fine. Vi ne forgesu, ke mi vidis kaj konis vin, kiam la falbaloj de viaj kruringoj estis videblaj sub via jupeto.”
 
 ”Clarence Heyl!”
 
 Sed li klinis sin antaŭen preter ŝin kaj atentigis pri io ekster la fenestro.
 
-”ĉu vi vidas tiun densfuman kurtenon? Tio estas Sud-
-
-ĉikago, la Hammond kaj Gary ŝtalfabrikoj. Atentu, tuj vi vidos la fumtubojn kontraŭ la ĉielo, ĉu vi iam vidis ilin de proksime, tiuj feraj instalaĵoj, trabaroj, tio similas gigantan punton, vi prezentu al vi la montojn el skorioj, la amasojn da karbo kaj la miraklajn cisternojn. Diable! Tio estas terura, sed belega vidaĵo, estas fabelo!”
+”ĉu vi vidas tiun densfuman kurtenon? Tio estas Sudĉikago, la Hammond kaj Gary ŝtalfabrikoj. Atentu, tuj vi vidos la fumtubojn kontraŭ la ĉielo, ĉu vi iam vidis ilin de proksime, tiuj feraj instalaĵoj, trabaroj, tio similas gigantan punton, vi prezentu al vi la montojn el skorioj, la amasojn da karbo kaj la miraklajn cisternojn. Diable! Tio estas terura, sed belega vidaĵo, estas fabelo!”
 
 ”Mi iris tien per tramo iun dimanĉon,” diris Fanny kviete.
 
 ”ĉu vere?” Li fiksrigardis ŝin.
 
-”Estis varmege! ĉiuj tie estis eksterdome. La virinoj marŝis kun ŝaloj, ili similis karnostumpojn, kiuj serĉas refreŝiĝon. La junulinoj iris en rozkoloraj, silkaj roboj kaj blankaj ŝuoj, la junuloj svarmis ĉe la stratanguloj kaj kriis post ili. ĉie sur la trotuaroj infanoj, beboj, kaj memoru la virojn, dimanĉorname vestitajn, per blankaj gla-204
-
-FANNY
-
-
-ditaj superĉemizoj, kun malmildaj vizaĝoj, elstaraj vangostoj, kun grandaj brunaj manoj kaj stumpiĝintaj ungoj, konservativuloj! Nu, je la kvina alvenis reveturantaj aŭ-
+”Estis varmege! ĉiuj tie estis eksterdome. La virinoj marŝis kun ŝaloj, ili similis karnostumpojn, kiuj serĉas refreŝiĝon. La junulinoj iris en rozkoloraj, silkaj roboj kaj blankaj ŝuoj, la junuloj svarmis ĉe la stratanguloj kaj kriis post ili. ĉie sur la trotuaroj infanoj, beboj, kaj memoru la virojn, dimanĉorname vestitajn, per blankaj gladitaj superĉemizoj, kun malmildaj vizaĝoj, elstaraj vangostoj, kun grandaj brunaj manoj kaj stumpiĝintaj ungoj, konservativuloj! Nu, je la kvina alvenis reveturantaj aŭ-
 
 tomobiloj de ekskursoj el la ĉirkaŭaĵo, al ĉikago. Tiam ankaŭ sonis la fajfilo kaj vi povus vidi la taglaboristan grupon eliri. Estis arego da viroj laŭlonge de la vojo, lacaj kun mallevataj ŝultroj, iliaj malplenaj lunĉujoj sving-pendis, ili estis malpuraj, odoraĉis je ŝvito. La aŭtomobiloj tamen estis plenaj de sovaĝaj floksoj, lekantetoj kaj fikario.”
 
@@ -3393,9 +2668,6 @@ Estis, kvazaŭ ŝi sentis puŝiĝon en sia menso.
 ”Mi aŭskultos,” ŝi interrompis, ”se vi parolos pri vi mem. Mi estas scivola pri tio, kion vi faras, kial vi iros al Novjorko. Kian aferon povos havi naturesploristo en Novjorko?”
 
 
-FANNY
-
-
 ”Mi tute ne intencas esplori la naturon en Novjorko.
 
 Tion vi facile povos konstati per mia sintenado. Sed oni ja ne povas vagi ĉiutage inter arbaroj kaj rokoj, en neĝo kaj sur montoj sen ekscii ion pri tiuj objektoj. Multaj semajnoj forpasis, dum kiuj mi nur vidis pinarbojn kaj strangformajn montopintojn. Tiel mi nepre alkutimiĝis lerni ion pri tio.”
@@ -3410,9 +2682,7 @@ Tion mi plej volonte faras.”
 
 ”La homa naturo. Mi iris al Kolorado kiel soleca knabeto kun difekta pulmo. La pulmo resaniĝis, sed pri tio alia, la solemo, nu, mi ne resaniĝis tute. Antaŭ du jaroj mi renkontis en la montaro Charles Lasker, la posedan-ton de la Novjorka gazeto ”Star.” Oni diras, ke ĝi estas la plej grava matengazeto en la lando. Lasker estas geniulo. Kaj li povas friti plej bone lardon, mi neniam gustumis pli bonan ol lian. Mi invitis lin al kvarsemajna rajdekskurso tra la montaro. Ni konatiĝis, eĉ intimiĝis.
 
-La fino estis, ke li proponis al mi oficon. Nu, vi sciu, ke 206
-
-FANNY
+La fino estis, ke li proponis al mi oficon. Nu, vi sciu, ke
 
 
 mi neniam vidis ˛oristinon aŭ la Woolworthkonstru-aĵon, nek kabaredon aŭ kuiritan omaron, nek la subte-ran fervojon. Sed mi interesiĝis kaj estis tre scivola pri tiuj ’novaĵoj’. Lasker diris, ke li opinias, ke tiu, kiu povas malkovri ion homan en roko, arbo kaj eĉ en urso, certe kapablos ŝajnigi ĉi tiujn novaĵojn homaj. Mi posedis, liaopinie, la freŝan vidpunkton. Multnombraj personoj cir-kulas en Novjorko kun ekrana vualo antaŭ la okuloj, sed multaj el tiuj iris al Novjorko el Winnebago kaj samspe-caj urbetoj, vi surpriziĝus, se vi nombrus kiom da ili ankoraŭ ĉiam legas la hejmurbajn gazetojn. Vere, iun tagon, kiam mi venis en la kontoron de Lee Kohl, kie estis gravaj personoj, ĉefoj kaj multaj homoj ekster la pordo, kiuj deziris paroli kun li, li sidis kun la piedoj sur sia skribtablo kaj legis la ”Gazeton” el Sheffield, Illinois.
@@ -3421,16 +2691,12 @@ Kaj nun Lasker kredas, ke mi povos prezenti al tiuj homoj bildon de Novjorko tia
 
 ”i estas tasko por homesploristo. Mi supozas, ke vi sukcesos.”
 
-Se vi konas la dunojn de Indiana, — kio tamen ne estas verŝajna —, vi scias, ke ili ne elvagoniĝis ĉe Miller kune kun la granda fluo da vizitantoj, sed ili plue veturis, ĝis 207
-
-FANNY
+Se vi konas la dunojn de Indiana, — kio tamen ne estas verŝajna —, vi scias, ke ili ne elvagoniĝis ĉe Miller kune kun la granda fluo da vizitantoj, sed ili plue veturis, ĝis
 
 
 ili estis liberigitaj de la dimanĉaj piknikantoj. Fine ili eliris el la vagonaro kaj vagis tra kampoj, laŭ vojoj, preter drinkejaĉoj, preter kelkaj grupiĝintaj domaĉoj, kiuj estis abomene flave farbitaj kaj pluen, pluen laŭ ŝajne senfina vojo. Ili transversis unue skorikampon, poste trava-dis polvon, transiris nerimarkindan monteton kaj atingis vastan ebenaĵon el flava sablo kaj fine . . . la lagon! Ni diris: la lagon! kun krisigno post la vorto, ĉar ĝi estas tute malsimila al la Michigan-lago, kiun la ĉikaganoj konas. ĉi tiu blua, vasta ravaĵo neniel rilatas al tiu griza, senviva, ŝlima akvujo, kiun la urbanoj nomas la lago.
 
-Enestis ĉiuj nuancoj de bluo imageblaj kaj ĉiu superŝve-banta nubo ŝanĝis ĝian koloron. Safiro estis, ne, kobal-to. Ne, tio estas tro malvarma. Mediteranea, turkisa, kun la sablo kiel ora kontrasto. Sablo, multajn mejlojn mal-proksimen, laŭlonge de la bordo sablo estis videbla kaj dunoj post la sablo. Nu, ĉiu skoto kaj ĉiu vortaro povos al vi certigi, ke la dunoj estas montetoj el malkompak-ta sablo. Sed ĉi tiuj dunoj estas formitaj laŭ amerika fasono, tre grandiozaj. Estas sablomontoj tiel malproksime, kiel povos vidi la okulo kaj sur tiuj montoj nekredeble grandaj pinarboj, kiuj sube alkroĉiĝas en la kvarcon per gigantaj radikfingroj. Malantaŭ tiuj dunoj etendiĝas preskaŭ nekredeble belaj arbaroj kun sovaĝaj floroj, plenaj de strangaj kreskaĵoj, nenie troveblaj krom tie, kun arbustoj, grimpplantoj kaj ade la penetra odoro de la 208
-
-FANNY
+Enestis ĉiuj nuancoj de bluo imageblaj kaj ĉiu superŝve-banta nubo ŝanĝis ĝian koloron. Safiro estis, ne, kobal-to. Ne, tio estas tro malvarma. Mediteranea, turkisa, kun la sablo kiel ora kontrasto. Sablo, multajn mejlojn mal-proksimen, laŭlonge de la bordo sablo estis videbla kaj dunoj post la sablo. Nu, ĉiu skoto kaj ĉiu vortaro povos al vi certigi, ke la dunoj estas montetoj el malkompak-ta sablo. Sed ĉi tiuj dunoj estas formitaj laŭ amerika fasono, tre grandiozaj. Estas sablomontoj tiel malproksime, kiel povos vidi la okulo kaj sur tiuj montoj nekredeble grandaj pinarboj, kiuj sube alkroĉiĝas en la kvarcon per gigantaj radikfingroj. Malantaŭ tiuj dunoj etendiĝas preskaŭ nekredeble belaj arbaroj kun sovaĝaj floroj, plenaj de strangaj kreskaĵoj, nenie troveblaj krom tie, kun arbustoj, grimpplantoj kaj ade la penetra odoro de la
 
 
 pinarboj. Unuiĝintaj kuŝas tie la blua lago, la oraj sablaj montoj kaj la verda arbaro. Fanny kaj Clarence staris sur la bordo, silentaj, du ridindaj figuretoj en ĉi tiu sovaĝa belaĵaro.
@@ -3439,13 +2705,9 @@ Tiam diris Fanny: ”Mi volus grimpi al la pinto de tia duno, al la plej alta ka
 
 Ili faris kune la taskon. Tio plijunigis Fanjon Brandeis proksimume dek, dek du jarojn, tiel ke ŝi ree fariĝis la knabino, kies koreto pli forte batis pro la rigardo al la palruĝo kaj oranĝkoloro de vintra sunmalleviĝo en Winconsin. ŝi tute ne plu pensis pri vindujoj, umbilikbandaĝoj kaj sendanĝeraj pingloj, ŝia spirito estis blanka papero rilate al ŝtrumpetoj, katalogoj, artiklo numero 29E, 8437, al ĉiam mallarĝfaŭkaj ekspedkorboj, kiuj postulas, postuladas pli kaj pli. ŝi forgesis pri Michael Fenger, Teodoro kaj la nova pelto.
 
-Ili stumble grimpis sur la dunojn, eniĝante en la sablon, unue ĝis la kalkanumoj, poste sekvis la ŝupintoj kaj fine la tutaj ŝuoj, ĝis la maleoloj, tiel ke ili devis ĉirkaŭ-
+Ili stumble grimpis sur la dunojn, eniĝante en la sablon, unue ĝis la kalkanumoj, poste sekvis la ŝupintoj kaj fine la tutaj ŝuoj, ĝis la maleoloj, tiel ke ili devis ĉirkaŭpremi la strangformajn radikungojn por antaŭgardi fal-
 
-premi la strangformajn radikungojn por antaŭgardi fal-
-
-ŝoviĝon. Unu paŝon antaŭen, du paŝojn malantaŭen, jen dungrimpado. Ili manĝis en olimpa libereco supre sur la dunpinto kaj Heyl prezentis ĉiujn nesupozatajn aĵojn el sia dorsosako, jen laktan ĉokoladon aŭ legaĵon, jen vin-bersukon aŭ cigaredojn. Ili manĝis kiel malsataj sovaĝaj bestoj, sed laŭ peto de Heyl ili konservis, savis kelkajn 209
-
-FANNY
+ŝoviĝon. Unu paŝon antaŭen, du paŝojn malantaŭen, jen dungrimpado. Ili manĝis en olimpa libereco supre sur la dunpinto kaj Heyl prezentis ĉiujn nesupozatajn aĵojn el sia dorsosako, jen laktan ĉokoladon aŭ legaĵon, jen vin-bersukon aŭ cigaredojn. Ili manĝis kiel malsataj sovaĝaj bestoj, sed laŭ peto de Heyl ili konservis, savis kelkajn
 
 
 sandviĉojn por la lasta parto de la tago. Li ekbruligis faj-reton per la paperoj kaj ostetoj, laŭ la malnova kutimo de la arbarvagistoj. Post tio ili sterniĝis en la posttagmeza suno sur la varma, pura sablo.
@@ -3475,9 +2737,6 @@ Ili staris supre sur la duno kaj Heyl rekuŝigis sin, rigardante la lagon kaj la
 Ili kuŝis tie, silentaj, la helruĝo fariĝis oranĝkolora, tio malheliĝis al malhelruĝo, rozkoloro, orbruno, fine grizo.
 
 
-FANNY
-
-
 La unua stelo komencis malforte brili kaj la obtuzaj lumoj de Gary en la nordo provokis ĝin. Fanny eksidis kun ĝemeto kaj tremetis.
 
 ”Kunligu la veston supre ĉirkaŭ la kolo,” diris Heyl,
@@ -3486,9 +2745,7 @@ La unua stelo komencis malforte brili kaj la obtuzaj lumoj de Gary en la nordo p
 
 Ili manĝis la restintajn bulkojn, kiuj iom malsekfuŝiĝis kaj fortrinkis la lastan parton de la vinbersuko.
 
-”Ni provos havigi al ni varman vespermanĝon en la urbo en iu el la restoracioj, kie oni ne malŝatas diman-
-
-ĉajn ekskursantojn. Antaŭen, Fanjo, laŭ la bordo, nor-den, rigardante la intertempe ekbrilontan nordlumon.”
+”Ni provos havigi al ni varman vespermanĝon en la urbo en iu el la restoracioj, kie oni ne malŝatas dimanĉajn ekskursantojn. Antaŭen, Fanjo, laŭ la bordo, nor-den, rigardante la intertempe ekbrilontan nordlumon.”
 
 ”Estis ravega tago,” murmuris Fanny.
 
@@ -3505,9 +2762,6 @@ Fanny fosis sian kalkanumon furioze en la sablon.
 Jes, tia mi sentis min ofte.”
 
 
-FANNY
-
-
 ”Kaj en iu tago, Fanjo, kiam tiu inklino fariĝos tro forta, kion vi faros? Nu, atente aŭskultu. Kaŝu tion ĉi en vian subkonscian menson, konservu ĝin, ĝis vi ĝin bezonos. Kiam tiu tago venos, vi prenu la vagonaron al Denver. El Denver veturu al Estes Park. Tio situas en la Rokmontaro, tio estas via celloko, ĉar tie ekestas kaj ekzistas reala horizonto. Kiam vi estos tie, vi petu la vojon al la kabano de Heyl. Vi estos transdonata de unu al la alia kaj fine atingos la celon. Eble mi estos tie, sed verŝajne, pli kredeble, ne. Tie vi trovos ŝlosilon pendanta sur ŝnu-ro en la leterkesto. Vi trovos en la forno lignon kaj faj-rilon por tuj povi prepari fajron. Vi trovos ankaŭ pin-fruktojn, tutsekajn, kiuj tuj ekflamas. Vi trovos tie miajn librojn sur la bretoj kontraŭ la muro. Kiam vi malŝlosos la cedrolignan keston, vi trovos en ĝi litbezonaĵojn kaj la lampoj estas plenigitaj. En la ŝranko vi trovos ladajn ujojn kun manĝaĵoj. Krom tio, vi trovos tie la montegojn, kiuj povos spirite purigi kaj sanigi vin. La pinarboj estas la naturaj kuraciloj, la antaŭgardaj brosoj kaj pri la ĉie-lo . . . Tio sonas kiel fervoja gvidlibro tekstas, sed tio estas vera. Mi scias.”
 
 Ili marŝis silentaj dum mallonga tempo.
@@ -3515,9 +2769,6 @@ Ili marŝis silentaj dum mallonga tempo.
 ”ĉu interkonsentite?”
 
 ”M-m,” respondis Fanny, neinteresiĝe, ne rigardante lin.
-
-
-FANNY
 
 
 La mieno de Heyl fariĝis severa.
@@ -3539,9 +2790,6 @@ Kion ŝi rakontis, tamen ne volante tion ĉi, tio estis preskaŭ konfeso. ŝi ra
 ”ĉu tiu Fenger enamiĝis al vi?” Heyl demandis akcente.
 
 
-FANNY
-
-
 ”Clancy, mi petas! Li estas edzo!”
 
 ”Ne estu ŝajnsincera, Fanjo. Ne parolu kiel naivulino.
@@ -3558,9 +2806,7 @@ Sed tiam ŝi ĉesis paroli subite kaj metis ambaŭ siajn manojn sur lian brakon,
 
 ”ĉu vi efektive kredas, ke ili estas bonaj?”
 
-”Mi certigas vin, ke ili absolute estas bonegaj. Ne estas gazeto en la lando, kiu ne ĝojus, se ĝi povus ricevi tiajn regule. Eĉ mi certigas, ke ne ekzistas tri homoj en la lando, kiuj povas fari tion. Ne estas afero, ĉu oni povas desegni aŭ ne, estas afero, ĉu oni povas rigardi la vivon en aparta lumo kaj briligi tiun lumon tiel, ke aliaj personoj ricevu la ardon. La skizoj, kiujn mi vidis hodiaŭ 214
-
-FANNY
+”Mi certigas vin, ke ili absolute estas bonegaj. Ne estas gazeto en la lando, kiu ne ĝojus, se ĝi povus ricevi tiajn regule. Eĉ mi certigas, ke ne ekzistas tri homoj en la lando, kiuj povas fari tion. Ne estas afero, ĉu oni povas desegni aŭ ne, estas afero, ĉu oni povas rigardi la vivon en aparta lumo kaj briligi tiun lumon tiel, ke aliaj personoj ricevu la ardon. La skizoj, kiujn mi vidis hodiaŭ
 
 
 matene, prezentas, sentigas la krudan, senmaskan vivon.
@@ -3582,9 +2828,6 @@ Tial vi turnas vin al ili, kiam la vendejaj aferoj staras al vi en la gorĝo, il
 ”Ho, mi facile povos deteni min de ili. Ili amuzas min, jen ĉio.”
 
 
-FANNY
-
-
 ”Vi neeble povos rezigni pri tio; ĝi sidas en via sango, tio estas la juda en vi.”
 
 ”La . . . bone, mi montros tion al vi. Mi dum unu tuta jaro ne desegnos. Mi pruvos al vi, ke la praava religio neniel influas miajn laboron aŭ distraĵojn.”
@@ -3596,9 +2839,6 @@ FANNY
 ”Nu, vi nepre legu lian libron, kiam vi povos liberigi vin de la altiremo de viaj ekspedaj katalogoj. Fishberg diras — mi dezirus laŭvorte povi laŭtlegi ĝin antaŭ vi —
 
 ke ne estas la fizika eksteraĵo, kiu karakterizas la judon, estas lia animo. La tipo ne estas antropologa aŭ fizika, ĝi estas socia, psika. Ne estas la koloro de la vizaĝo, nek la lipoj, la nazo aŭ la kapo, nur estas la animo, kiu montras lian fidon. Jarcentlonga ekzilo en getto, ostracismo, senĉesa suferado estigis psikan tipon. La stampitaĵo sur la animo tragutetis en la vejnojn, tiel magie trovis vojon al la eksteraĵo, al la vizaĝo.”
-
-
-FANNY
 
 
 ”Jes, sed mi prefere ne parolus pri animoj, vi malboni-gas la tutan belan tagon.”
@@ -3614,9 +2854,6 @@ Kune Fanny kaj Heyl rigardis ĝin, ĝis fine la lasta fasko forpaliĝis kaj tute
 Ili kuregis al la stacidomo, malgraŭ la sablo. Ilia kupeo estis plena de molkarnaj beboj, kiuj kuŝis dormantaj sur la brakoj de siaj patrino aŭ patro; multaj pankorboj disdonis naŭzetan odoron de bananoj; abundis sovaĝetaj infanoj, kiuj premtenis en la ŝvitmalsekaj manoj grandajn bukedojn da deŝiritaj floroj.
 
 
-FANNY
-
-
 La vagonaro veturigis ilin preter la ĉielenaltajn fumtubojn de Gary, tra suda ĉikago, la fuŝaĵejo de la metro-polo, preter Jackson Park, kiu disdonis refreŝigan spiron, kaj reen al la urba centro. Ili rigardis ĉion ĉi per miregaj okuloj de homoj, kiuj dum sennombraj horoj vidis nur sablon, aeron kaj akvon. Lundo, ŝajninta tiel malproksima, fariĝis morgaŭa aktualaĵo.
 
 Lacegaj, ili haltis antaŭ unu el tiuj allogaj, intimaspektaj manĝejoj, kiuj gajigas la malhelajn flankstratojn de ĉikago. Tie oni kutime konsumas kafon kaj panon kun varma viando. La finiĝo de la luksa tago prezentis al vi ilin ambaŭ en taksio, kiu veturigis ilin hejmen, kaj en kiu Fanny la tutan vojon oportune kuŝis, oscedante.
@@ -3625,29 +2862,16 @@ Lacegaj, ili haltis antaŭ unu el tiuj allogaj, intimaspektaj manĝejoj, kiuj ga
 
 Estas avantaĝo, ke vi iros al Novjorko. Sekvo tamen ne venos.”
 
-”Fraŭlina moŝto,” diris Heyl emfaze, ”sekvo absolute venos. La knabino kun la ruĝa bireto ne mortis, ŝi vivas, kaj dispiedfrapis kiel iam, ĉar ĉiu el tiuj ĉikagoskizoj supre en la paperujo estas piedfrapo. Vi diris, ke ŝi ne plu batalos por aliulo. Vi, stultulino. ŝi batalis por iu alia en ĉiu desegnaĵo, en tiu pri la knabino en la homamaso, en tiu de la maljunulo apud la fiŝbudo, en ĉiuj. Tiu ĉi knabino ne mortos . . . neniam mortos, ĉar ŝi havas spiri-218
-
-FANNY
+”Fraŭlina moŝto,” diris Heyl emfaze, ”sekvo absolute venos. La knabino kun la ruĝa bireto ne mortis, ŝi vivas, kaj dispiedfrapis kiel iam, ĉar ĉiu el tiuj ĉikagoskizoj supre en la paperujo estas piedfrapo. Vi diris, ke ŝi ne plu batalos por aliulo. Vi, stultulino. ŝi batalis por iu alia en ĉiu desegnaĵo, en tiu pri la knabino en la homamaso, en tiu de la maljunulo apud la fiŝbudo, en ĉiuj. Tiu ĉi knabino ne mortos . . . neniam mortos, ĉar ŝi havas spiriton. Sed la alia formortos, nur ŝi mem ne scias tion. Iun tagon tamen ŝi rimarkos, ke ŝi estas enterigata. Tiam mi ĉeestos por surŝoveli iom da tero.”
 
 
-ton. Sed la alia formortos, nur ŝi mem ne scias tion. Iun tagon tamen ŝi rimarkos, ke ŝi estas enterigata. Tiam mi ĉeestos por surŝoveli iom da tero.”
-
-
-FANNY
-
-
-ĉAPITRO XII.
+ĈAPITRO XII.
 
 De la unua de decembro la ekspedejo de la firmo Haynes-Cooper similis la Novjorkan borson, la tagon post paniko. La aloj estis montoj el papero, sur kiuj armeo da buboj batalis kiel neĝoforigistoj, kiuj vane kontraŭas neĝoventegon. La gvidisto ne plu parolis pri miloj, sed pri centmiloj da leteroj kaj li ŝmacis per siaj lipoj. Dekmiloj da homoj laboris ĝis malfruvespere, ili interrompis nur por rapida manĝo je la sesa kaj iris reen al la skribtablo, bretaro aŭ breto ĝis la naŭa, por ke Oklahoma kaj Minnesota ricevu siajn kristnaskkestojn
 
 ĝustatempe.
 
-Fanny Brandeis, laborante sub la verdŝirmila kontor-lampo, mire pripensis amare, ĉu Kristnasko iam signifos al ŝi ion alian ol laboregon, peliĝon kaj lacecon. ŝi rakontis al ŝi, ke ŝi ne volas pensi pri la pasinta Kristnasko, antaŭ unu jaro. Kiam ŝi ĉirkaŭrigardis sian ordigitan kontoreton, tra la vitroj al la sekciejo, kaj al la skribtablo, ĉio ŝajnis al ŝi tiel nereala. Ja estis neeble! Estis ja kvazaŭ antaŭ multaj jaroj, antaŭ homa tutvivo, kiam ŝi dekroĉiĝis de la troplena Winnebaga butiko, kie ŝi tra-220
-
-FANNY
-
-
-batis perkubute al si vojon kune kun tiu brava, forta virino.
+Fanny Brandeis, laborante sub la verdŝirmila kontor-lampo, mire pripensis amare, ĉu Kristnasko iam signifos al ŝi ion alian ol laboregon, peliĝon kaj lacecon. ŝi rakontis al ŝi, ke ŝi ne volas pensi pri la pasinta Kristnasko, antaŭ unu jaro. Kiam ŝi ĉirkaŭrigardis sian ordigitan kontoreton, tra la vitroj al la sekciejo, kaj al la skribtablo, ĉio ŝajnis al ŝi tiel nereala. Ja estis neeble! Estis ja kvazaŭ antaŭ multaj jaroj, antaŭ homa tutvivo, kiam ŝi dekroĉiĝis de la troplena Winnebaga butiko, kie ŝi trabatis perkubute al si vojon kune kun tiu brava, forta virino.
 
 La Bebolibro aperis de la presejo kaj ĝi estis bona. Eĉ Slosson grumblante konfesis tion. Fanny rigardis la libreton kun prava fiero, sed ŝi ne estis kontenta.
 
@@ -3667,9 +2891,7 @@ diris Ella Monahan, rigardante la streĉe ruĝan vizaĝon de Fanny.
 
 ”Jes, vi estas prava,” konfesis Ella kaj ridetis kruelete,
 
-”jes mi disponigis ĉi tie ĉion al ili, kion mi posedis, kaj 221
-
-FANNY
+”jes mi disponigis ĉi tie ĉion al ili, kion mi posedis, kaj
 
 
 krom tio kelkajn ecojn, pri kiuj mi mem antaŭe ne sciis, ke mi havas ilin. La vivo vere estas stranga ludo. Se mia maljuna patro ne estus posedinta tanejon en Racine kaj mi ne estus peninta tie la tutan tagon, tiel ke mi akiris la diferencigan scikonon por senti kaj flari la ledokvalitojn laŭ la feloj, mi neniam estus fariĝinta estrino de la gantsekcio de Haynes-Cooper kaj vi . . . ?”
@@ -3697,12 +2919,7 @@ La blankhara irlandano kaj la blankhara irlandanino premis la manon unu al la al
 ”Hm,” li murmuris, malkontente.
 
 
-FANNY
-
-
-”Kion signifas hm?” demandis Fanny. ”Ne sonas kura-
-
-ĝige, iel ajn.”
+”Kion signifas hm?” demandis Fanny. ”Ne sonas kuraĝige, iel ajn.”
 
 ”Hm, gantoj,” ripetis pastro Fitzpatrick, liberiginte Fanjon, ”certe vi jam vendis por valoro de milionoj da dolaroj en tiu tempo, kiam vi laboris ĉi tie.”
 
@@ -3721,12 +2938,7 @@ Galanta murmuro eliĝis el la kavalira irlandana buŝo.
 ”Mi dankas pro la komplimento, patro, kiun mi vidas en viaj okuloj. Kion mi volas diri estas jena: koncerne la sendependecon vi pravas. Tio valoras multon. Unue, sed post iom da tempo tio komencas superi vin. Ne demandu kiel. Tion mi ne scias. Sed mi esperas, ke vi ne opinias min fia, kiam mi malkaŝe diras al vi, ke mi povus amin-dumi ĉiun viron, kiu pendigus ĉirkaŭ mia kolo blankvul-pan pelton aŭ perlĉenon kaj kiu demandus min, ĉu mi suferas pro trablovo.”
 
 
-FANNY
-
-
-”Fia! Absolute ne, knabino mia, tio ja estas tute laŭ-
-
-natura kaj bona, escepte de tiuj perloj, eble.”
+”Fia! Absolute ne, knabino mia, tio ja estas tute laŭnatura kaj bona, escepte de tiuj perloj, eble.”
 
 ”Bone, mi rezignas pri tiuj,” ridis Ella kaj doninte la manon al li, ŝi foriris. Pastro Fitzpatrick rigardis post ŝi:
 
@@ -3739,21 +2951,13 @@ Li elpoŝigis sian horloĝon, estis dika, arĝenta. ”Nun estas duono post la d
 ”Neniam, mi povus neeble manĝi ĉi tie. Ne petu tion, ĉi tiu ejo timigas min. Mi supreniris per lifto kun amaseto da homoj kaj gvidisto, li ĵonglis per milionoj, kiel gazetbubo per unu cendo. Mi nur estas vilaĝa pastro, sed mi estas ankaŭ fiera. Mi iros al Blackstone. Mi preterpasis plurfoje, sed neniam mi eniris en tiun palacon kun ĝiaj ruĝsilkaj kurtenoj kaj fenestraj apartsidejoj. Ni servigos nin de velurpiedaj kelneroj, knabino, prenu vian ĉapelon!”
 
 
-FANNY
-
-
-Ili eniris la varmdisradian, luksan halon de la restoracio, malfacile spirante, kiel ĉiuj homoj, kiuj trorapide kuris kontraŭ la vento. La ĉefkelnero sendube rigardis pastron Fitzpatrick kardinalo, ĉar li instalis ilin ĉe apud-fenestra tablo, kiu donis liberan elrigardon sur la glacimalvarman straton, sur Grant Parkon, sur la neĝotavo-lon, kiu malkovris ĉion kaj sur la grizan lagon. La grandioza salono estis plena de koloroj, parfumo kaj obtuza voĉbruado. Fonto en la mezo ŝprucis gaje kaj sur la akvo naĝis lilifolioj kaj aliaj floroj kun delikataj, rozkoloraj, orbrunaj nuancoj kaj lavendo. ĉe la tablo sidis elegantaj, sveltaj fraŭlinoj kaj tre snsciaj studentoj, kiuj pasigis hejme la ferion, kaj artistokrataj akompanantinoj en peltoj kaj plumoj. La ruĝo sur la vangoj de Fanny fari-
-
-ĝis pli malhela. ŝi ŝategis lukson. ŝi ridetis kaj okulumis al la bona, maljuna pastro, kontraŭ ŝi.
+Ili eniris la varmdisradian, luksan halon de la restoracio, malfacile spirante, kiel ĉiuj homoj, kiuj trorapide kuris kontraŭ la vento. La ĉefkelnero sendube rigardis pastron Fitzpatrick kardinalo, ĉar li instalis ilin ĉe apud-fenestra tablo, kiu donis liberan elrigardon sur la glacimalvarman straton, sur Grant Parkon, sur la neĝotavo-lon, kiu malkovris ĉion kaj sur la grizan lagon. La grandioza salono estis plena de koloroj, parfumo kaj obtuza voĉbruado. Fonto en la mezo ŝprucis gaje kaj sur la akvo naĝis lilifolioj kaj aliaj floroj kun delikataj, rozkoloraj, orbrunaj nuancoj kaj lavendo. ĉe la tablo sidis elegantaj, sveltaj fraŭlinoj kaj tre snsciaj studentoj, kiuj pasigis hejme la ferion, kaj artistokrataj akompanantinoj en peltoj kaj plumoj. La ruĝo sur la vangoj de Fanny fariĝis pli malhela. ŝi ŝategis lukson. ŝi ridetis kaj okulumis al la bona, maljuna pastro, kontraŭ ŝi.
 
 ”Vi estas diboĉanto,” ŝi diris, ”sed estas ravege, ĉu ne?” kaj ŝi gustumis unuafoje plenkuleron de la bongu-stega supo.
 
 ”Estas agrable, por unu fojo ni bezonas esti ekstrava-gancaj de tempo al tempo.”
 
 Oportune sidante li ĉirkaŭrigardis la luksan solonon, kaj poste eksteren, al la ventpurigita strato. Li apogis sin profunde en sia seĝo kaj tamburetis mallaŭte per la fingroj sur la glatatlasa tablotuko.
-
-
-FANNY
 
 
 ”Unu fojon, diru Fanny, ne pripensinte, kion vi trovas plej interesa aĵo, vidata de ĉi tie? Vi kutimis elekti subite, neatendite, kion ajn, kion vi nomus la homa flanko de la vivo. Via patrino same posedis tiun kutimon.”
@@ -3769,16 +2973,10 @@ Denove reen vagis la rigardo internen al la bonodora salono kun floroj kaj muzik
 Pastro Fitzpatrick prenis ŝian manon trans la tablo kaj premis ĝrtuŝe forte.
 
 
-FANNY
-
-
 ”Fanjo, mia knabino, mi scias, kion mi deziris scii. ĉu Haynes-Cooper aŭ ne, ĉu milionoj aŭ ne, viaj ravinetoj ankoraŭ ne estas detruitaj per cindro kaj forĵetaĵoj, karulino, danku Dion!”
 
 
-FANNY
-
-
-ĉAPITRO XIII.
+ĈAPITRO XIII.
 
 En januaro Fanny malkovris Novjorkon. ŝi iris tien kiel elektistino de sia sekcio. Post la elektado, Slosson nur bezonos aĉeti. ŝi decidu pri kvalito, prezoj, ŝtofoj kaj ĉio koncerna. Ella Monahan akompanis ŝin, ĉar estis tempo por ŝia ĉiumonata vojaĝo.
 
@@ -3786,9 +2984,7 @@ Fanny enviis ŝin malkaŝe pro ŝia konateco ĉe la Novjorka pograndkomerca dist
 
 ”Ne,” respondis Fanny, ”mi dankas. Mi supozas, ke mi prefere ne faru tion. Vi havas vian propran laboron kaj krome, mi scias, kion mi bezonas kaj kie ĝi estas akirebla. Plej malfacile estos sukcesi cedigi tion al mi.”
 
-Ili ekloĝis en la sama hotelo kaj prenis komunikiĝantajn ĉambrojn. ĉiu el ili iris sian vojon, ili ne vidis unu la alian dum la tuta tago, sed vespere ili ĝuis la trankvi-ligan, agrablan ĉeeston unu de la alia, sidante komforte en kimonoj. Fanny elspezis multajn semajnojn por prepari sian atakplanon. ŝi intencis nur preni la mal-multkostajn specojn, kiuj tamen estis delikate finlabori-taj. ŝi pensis refoje pri la puntornamitaj vindestaĵoj, kiujn la farmistinaj aŭ la fabrikistinaj brakoj portis tiel 228
-
-FANNY
+Ili ekloĝis en la sama hotelo kaj prenis komunikiĝantajn ĉambrojn. ĉiu el ili iris sian vojon, ili ne vidis unu la alian dum la tuta tago, sed vespere ili ĝuis la trankvi-ligan, agrablan ĉeeston unu de la alia, sidante komforte en kimonoj. Fanny elspezis multajn semajnojn por prepari sian atakplanon. ŝi intencis nur preni la mal-multkostajn specojn, kiuj tamen estis delikate finlabori-taj. ŝi pensis refoje pri la puntornamitaj vindestaĵoj, kiujn la farmistinaj aŭ la fabrikistinaj brakoj portis tiel
 
 
 karesplene. Por tio ili ekstravagante volis elspezi monon, pro tio ili ne inklinis al ŝparemo; kiel lerta komercistino ŝi volis profiti per tiu malforteco ilia. Mendo de Haynes-Cooper neniam estas tia, ke pograndisto povas permesi al si rezigni pri ĝi. Fanny sciis tion kaj tiel intencis iri rekte al la firmo Horn kaj Udell. Nu, sciu, ke Horn kaj Udell estas la enkondukintoj de la trikitaj kalsonetoj, kiuj la knabinoj portas sub la roboj, anstataŭ la malkom-fortaj, antikvaj subjupoj, ke ili kiel unuaj ofertis tiujn gracifasonajn antaŭtukojn anstataŭ la saksimilaj porla-boristinaj, ke ili prezentis la oportunajn patentledajn rimenojn por beboj, pri kiuj niaj avinoj absolute estus le-vintaj la manojn en abomeno. Ili komprenigis al la homoj, ke kelkaj coloj da manbroditaĵo valoras pli ol tuta ulno da malkara punto. Kaj ne parolu pri modeloj, fasono aŭ ornamo — oni povis tuj ekkoni Horn kaj Udell-vestitan infanon en grupo el tridek belvestitaj.
@@ -3798,9 +2994,6 @@ Kiam Fanny eniris la kontoron, ŝi sentis sin same senhelpa, kiel antaŭ longe, 
 Kelkajn tagojn antaŭe ĉi tiu kunveno estis interkon-sentita. Fanny neniam konsciis pri la skuo, kiun ŝia juna, scivola vizaĝo kaŭzis al la maljuna sinjoro Udell. Li turnis sin for de la skribtablo, por saluti ŝin kaj lia ĝentila rideto transformiĝis en rikaneton pro surprizo:
 
 ”Sed vi ja ne venas por aĉeti, fraŭlino Brandeis?”
-
-
-FANNY
 
 
 ”Ne, por tio venos sinjoro Slosson.”
@@ -3825,12 +3018,7 @@ Neniu firmo, eĉ ne Horn kaj Udell povas intence for-rifuzi mendon de tiu sumo. 
 
 ”Nu, mi intertraktis kun aĉetistoj dum pli ol kvarona jarcento kaj mi vere kredas, ke vi sukcesos akiri tian debiton.”
 
-Tiam Fanny komencis paroli. Dek minutojn poste Udell interrompis ŝin por venigi la gvidanton de la fabri-230
-
-FANNY
-
-
-koj, Horn. Li venis kaj estis prezentita, rigardis dubple-ne. Fanny posedis statistikojn. Fanny havis argumentojn, ŝi estis firme decidinta.
+Tiam Fanny komencis paroli. Dek minutojn poste Udell interrompis ŝin por venigi la gvidanton de la fabrikoj, Horn. Li venis kaj estis prezentita, rigardis dubple-ne. Fanny posedis statistikojn. Fanny havis argumentojn, ŝi estis firme decidinta.
 
 ”Kaj kion ni bezonas,” ŝi daŭrigis kviettone, ”estas ŝikaj artikloj. Estas la nura eco, kiu mankas al niaj varoj.
 
@@ -3842,9 +3030,6 @@ Kaj Horn kaj Udell, kies sinteno unue estis tiu de plensaĝaj komercistoj antaŭ
 ”por esplori, ĉu ili plaĉos. La poste aperonta katalogo estu tute kompleta pri modeloj.”
 
 ”Tio ne estos al ni ebla koncerne la tempon,” ekkriis ambaŭ viroj en unu spiro.
-
-
-FANNY
 
 
 ”Vi aranĝu tion, kiel ajn, sed estas necese. ĉu vi ne povos vastigi la laborejojn, dungi pli da laboristoj, certe valoros la penon.”
@@ -3861,22 +3046,16 @@ La fabriko de Horn kaj Udell situis en parto de Novjorko, kie troviĝas multaj n
 
 Estis belega januara posttagmezo kun okcidenta vento. La homfluo preterondumis kaj Fanny batalis kontraŭ la tento mire postrigardi ĉiun trian aŭ kvinan preter-irantan sinjorinon. Ili ĉiuj estis tiel elegante varie vestitaj. Neniu signo de malzorgemo aŭ velkinteco, kiujn oni renkontas kelkfoje sur Michigan Avenuo. ĉiu virino ŝajnis esti ĵus pretliverita de masaĝistino kaj ĉambristino.
 
-La haroj estis tiel frizitaj, ke ili alĝustiĝis al la ĉapelo kaj la ĉapelo siavice plej ĉarme aspektigis la kapformojn, la 232
-
-FANNY
+La haroj estis tiel frizitaj, ke ili alĝustiĝis al la ĉapelo kaj la ĉapelo siavice plej ĉarme aspektigis la kapformojn, la
 
 
 kapo komplete harmoniis kun la pelto, kiu ĉirkaŭis la kolon. ĉiuj ili estis elegante ŝuvestitaj. Iliaj blankaj gantoj vere estis blankaj (rimarkinda fakto, kiu precipe trafu ĉikaganojn, kies gantoj ĉiam estas fulgpluve purigitaj).
 
 Ilia vizaĝkoloro konkuris kun tiu de rozpetaloj kaj nenies nazo estis ruĝa.
 
-”Dio scias, ke mi neniam pretendis esti belulino,” diris Fanny, ĉi tiun vesperon, en konversacio kun Ella Monahan, ”sed mi supozis, ke mi havas ankoraŭ bonan ŝancon. Tamen, kiam mi atingis la Kvardekduan straton, mi plu ne elspezis du cendojn por mia ŝanco ĉe kavernloĝ-
+”Dio scias, ke mi neniam pretendis esti belulino,” diris Fanny, ĉi tiun vesperon, en konversacio kun Ella Monahan, ”sed mi supozis, ke mi havas ankoraŭ bonan ŝancon. Tamen, kiam mi atingis la Kvardekduan straton, mi plu ne elspezis du cendojn por mia ŝanco ĉe kavernloĝanto sur necivilizita insulo.”
 
-anto sur necivilizita insulo.”
-
-ŝi decidis iri reen al sia hotelo, surmeti dikan surtuton kaj veturi sur unu el tiuj komfortegaj aŭtobusoj sur Kvina Avenuo. Tio ŝajnis al ŝi ideala maniero por rigardi tiun miraklan strategon. ŝi reatingis sian hotelon en dek minutoj. Ella ankoraŭ ne estis reen. Ili havis ĉambrojn en la deka etaĝo. Fanny kaptis sian surtuton, rigardis preterpasante sian bildon en la spegulo, ĝemis, skuis la kapon kaj kuris al la lifto por malsupreniĝi. ŝi transiris Kvinan Avenuon kaj suriris ĝin ĝis la Kvardekkvina strato. Tiam ŝi grimpis la spiralŝtuparon de Washington-placa aŭtobuso. La aero estis freŝa, klara, gajiga. Al ŝiaj ĉikagaj okuloj, ĉio, stratoj, domoj, eĉ la aero ŝajnis lav-purigitaj. Trafikpolicisto levis la manon. La aŭtobuso skuiĝis pluen. Nomoj, kiuj estis ĝis nun mitologiaj antaŭ 233
-
-FANNY
+ŝi decidis iri reen al sia hotelo, surmeti dikan surtuton kaj veturi sur unu el tiuj komfortegaj aŭtobusoj sur Kvina Avenuo. Tio ŝajnis al ŝi ideala maniero por rigardi tiun miraklan strategon. ŝi reatingis sian hotelon en dek minutoj. Ella ankoraŭ ne estis reen. Ili havis ĉambrojn en la deka etaĝo. Fanny kaptis sian surtuton, rigardis preterpasante sian bildon en la spegulo, ĝemis, skuis la kapon kaj kuris al la lifto por malsupreniĝi. ŝi transiris Kvinan Avenuon kaj suriris ĝin ĝis la Kvardekkvina strato. Tiam ŝi grimpis la spiralŝtuparon de Washington-placa aŭtobuso. La aero estis freŝa, klara, gajiga. Al ŝiaj ĉikagaj okuloj, ĉio, stratoj, domoj, eĉ la aero ŝajnis lav-purigitaj. Trafikpolicisto levis la manon. La aŭtobuso skuiĝis pluen. Nomoj, kiuj estis ĝis nun mitologiaj antaŭ
 
 
 ŝiaj okuloj, fariĝis realaĵo. Maillard, kaj tiu ruĝŝtona kas-telo estis Waldorf. Preskaŭ historia ĝi estis kaj tamen aspektis pli nova ol la fumaĵita Blackstone en ĉikago. Kaj tie rekte antaŭ ŝi ne povis ne esti la Flatiron-konstruaĵo.
@@ -3889,14 +3068,9 @@ Tre lerte por novulino, ŝi malsuprenstumblis la ŝtuparon kaj post tio transiri
 
 ”Estas fea lando!” trovis Fanny, kaj ŝi miris, ke urbo povas esti tiel bela. Apud ŝi subite eksonis voĉo: ”Ho, bona sinjorino, pro Dia indulgo!”
 
-Timigite ŝi turnis la kapon kaj apud ŝi ekstaris nera-zita bluokula giganto, kiu ĉifis sian ĉapon inter la blu-
-
-ŝvelintaj fingroj.
+Timigite ŝi turnis la kapon kaj apud ŝi ekstaris nera-zita bluokula giganto, kiu ĉifis sian ĉapon inter la bluŝvelintaj fingroj.
 
 ”Bona sinjorino, mi estas malvarma kaj malsata. Mi sidis ĉi tie multajn horojn.”
-
-
-FANNY
 
 
 Fanny premtenis iom angore sian mansaketon. ŝi rigardis la fortikan staturon.
@@ -3930,9 +3104,6 @@ Estis preskaŭ la sepa, kiam ŝi revenis en sian ĉambron.
 ĉambristino, vestita nigre kaj blanke, ĝuste venis el ŝia ĉambro kun plenbrako da tukoj. ŝia telefono tintsono-ris. Estis Ella.
 
 
-FANNY
-
-
 ”Knabino, kie vi troviĝis tiel longe, ĉielo! Mi estis tre maltrankvila pri vi. Mi kredis, ke vi estas erarvaginta.”
 
 ”Mi iom veturis per buso,” klarigis Fanny.
@@ -3945,9 +3116,7 @@ FANNY
 
 ”Volonte, mi bezonas vin por priparoli.”
 
-Momenton poste Ella eniris, refreŝigita kaj kun ruĝ-
-
-etaj vangoj post varma bano kaj dormeto, en puraj vestoj.
+Momenton poste Ella eniris, refreŝigita kaj kun ruĝetaj vangoj post varma bano kaj dormeto, en puraj vestoj.
 
 ”Kara knabino, vi aspektas laca. Ne, mi ne restas. Prenu aliajn vestojn kaj mi renkontos vin ĉe la tagmanĝo aŭ ĉu vi servigu vin ĉi tie?”
 
@@ -3955,12 +3124,7 @@ etaj vangoj post varma bano kaj dormeto, en puraj vestoj.
 
 ”Telefonu al mi, kiam vi estas preta, sed unue diru: kia vi trovas Novjorkon, ĉu ne estas mirakla urbo? Mi neniam forgesos la tagon, kiam mi unuafoje venis ĉi tien.
 
-Mi elspezis tutan vesperon por klopodi fari antaŭ la spegulo tiujn glubuklojn, kiujn la sinjorinoj tiam kutimis porti. Mi vidis ilin sur Kvina Avenuo kaj ŝajnis al mi, ke mi ne plu povos vivi sen ili. Mi ŝmiris per ruĵo kaj kontrastigis miajn brovojn. Mi ne scias, sed estas kvazaŭ freneziga imitmanio, kiu kaptas vin. Tuj kiam mi refoje si-236
-
-FANNY
-
-
-dis en la vagonaro al ĉikago, mi rearanĝis miajn harojn kaj lavis mian vizaĝon.”
+Mi elspezis tutan vesperon por klopodi fari antaŭ la spegulo tiujn glubuklojn, kiujn la sinjorinoj tiam kutimis porti. Mi vidis ilin sur Kvina Avenuo kaj ŝajnis al mi, ke mi ne plu povos vivi sen ili. Mi ŝmiris per ruĵo kaj kontrastigis miajn brovojn. Mi ne scias, sed estas kvazaŭ freneziga imitmanio, kiu kaptas vin. Tuj kiam mi refoje sidis en la vagonaro al ĉikago, mi rearanĝis miajn harojn kaj lavis mian vizaĝon.”
 
 ”Jes ion tian mi spertis ankaŭ,” ridis Fanny. ”Tute ne min tuŝis la bebovesta afero de Haynes-Cooper aŭ kio ajn. Mi nur volis esti bela, kiel ili ĉiuj.”
 
@@ -3977,9 +3141,6 @@ Fanny, irante al la banĉambro, subite haltis, kaj fiksrigardis Ellan.
 ”Unu kolumnon pri kio?”
 
 ”Pri ĉiuj diversaj aferoj, plej ofte pri Novjorko. En maniero, en kiu ni povus ŝati fari ĝin, se ni povus, en plej homa maniero. Legante ĝin oni imagas, ke oni ĵus ricevis leteron de la malproksima hejmurbo. Mi estas konvinkita, ke li vizitis kamparan lernejon, portis pugnogan-tojn, kiujn oni alkudris per rubando al la poŝkovriloj de lia surtuto.”
-
-
-FANNY
 
 
 ”Jes, estas ĝuste, jes. Estas iu el Winnebago, Wisconsin.”
@@ -4004,12 +3165,7 @@ Sed Fanny jam estis for.
 
 ”Vi, lerta diablino, kiu vi estas. Se vi daŭrigas tiel, mi ŝajnas esti novulino, kompare kun vi, vi estos la sinjorino kaj mi la servistino.”
 
-Fanny telefonis al Heyl nur la tagon, kiam ŝi estis forironta el Novjorko. ŝi mistifikis sin, dirante, ke ŝi tute ne telefonos al li. Li jam sendis siajn adreson kaj telefonnu-meron al ŝi, jam antaŭ multaj monatoj, post tiu dimanĉo en la dunoj. Ella Monahan estis jam foririnta antaŭ kvar tagoj post fino de sia tasko, dum Fanny ankoraŭ ne estis preta. En tiuj kvar tagoj Fanny travagis la urbon de Pel-238
-
-FANNY
-
-
-lisades al Pellstrato. Mi ne scias, kiel ŝi trovis sian vojon.
+Fanny telefonis al Heyl nur la tagon, kiam ŝi estis forironta el Novjorko. ŝi mistifikis sin, dirante, ke ŝi tute ne telefonos al li. Li jam sendis siajn adreson kaj telefonnu-meron al ŝi, jam antaŭ multaj monatoj, post tiu dimanĉo en la dunoj. Ella Monahan estis jam foririnta antaŭ kvar tagoj post fino de sia tasko, dum Fanny ankoraŭ ne estis preta. En tiuj kvar tagoj Fanny travagis la urbon de Pellisades al Pellstrato. Mi ne scias, kiel ŝi trovis sian vojon.
 
 Estis speco de instinkto, kiu ŝin gvidis. ŝajnis, ke ŝi trovas la pitoreskajn partojn laŭflare. ŝi neglektis sian laboron neniun momenton. Sed ŝi eltrovis, ke plej ofte estas neeble trafi la komercistojn en Novjorko antaŭ la deka aŭ dekunua. ŝi vekiĝis je la sepa laŭ sia malnova kutimo en Winnebago. Je duono post la naŭa ŝi staris en la bebovesta sekcio ĉe Best kaj esplore rigardis, dum la sen-suspekta vendistino montris al ŝi, kiel laŭ franca modelo, la rubandoj ĉi tiun jaron estas fiksitaj sub la kolfaldaĵo, anstataŭ laŝitaj tra ĝi.
 
@@ -4018,9 +3174,6 @@ Je duono post la deka ŝi diris al Sid Udell: ”Mi kredas, ke skribita kontrakt
 ŝi akiris ĝin kaj triumfe enpoŝigis ĝin. ŝi klopodis forlasi Novjorkon sen renkonti Clarencon Heyl, sed iu kvietiga, ena potenco devigis ŝin agi kontraŭ sia decido. Estis la pelo de la pli forta super la malforta inklino.
 
 Kiam Heyl aŭdis, rekonis ŝian voĉon en la telefono, li ne diris: ”Kiu estas tie?” Li diris nur: ”Kiun pretekston vi eltrovos por malhelpi tagmanĝon kun mi hodiaŭ posttagmeze?”
-
-
-FANNY
 
 
 Fanny lerte respondis tuj: ”Prenonte la dudekjarcen-tan rapidvagonaron al ĉikago.”
@@ -4042,9 +3195,6 @@ Sekvis refoje silentado, iom prema, peza. Tiam: ”Fanny, ĉu vi vere foriros ja
 ”Sed, atendu ankoraŭ iom, ĉu vi iris tien sola?”
 
 
-FANNY
-
-
 ”Jes, kaj krom tio jen plia novaĵo. Mi surprizkaptis Hornon kaj Udell, tio al vi diras nenion, sed tio signifas, ke en la proksima printempo mia sekcio estos ŝuldanto de sia duonpatrino, tio vere estas sukceso.”
 
 ”Jes, mi sciis, ke vi sukcesos, ĉio, kion vi ekentrepre-nos, sukcesos. Eĉ se vi fariĝus advokato, kuiristino, aktorino, hidraŭlika inĝeniero, ĉiam vi sukcesos, ĉar unuvorte ekzistas nenio, kion vi povos misfari. Tio ne estas eco via. Vi estas superlativa speco de homo. Sed tio ne estas kaŭzo por okupi oficon tian.”
@@ -4064,9 +3214,6 @@ FANNY
 Li estis tie antaŭ ŝi. Fanny, atente sekvante pakportis-ton, trovis lin tuj en la aro da subhorloĝaj atendantoj. Li portis novjorkajn vestojn, la ĝustan specon, Fanny opiniis. Iliaj manoj renkontiĝis.
 
 
-FANNY
-
-
 ”Kiel bonfarte vi aspektas,” diris Fanny ne pripensan-te.
 
 ”Jen la kaŭzo, miaj vestoj,” diris Heyl kaj komencis malrapide turni sin, etendante la brakojn, tenante la palpebrojn prude malsupren, en adorinda imitado de tiuj sinjorinoj, kies profesio estas elmontri la vestmodelojn surkorpe.
@@ -4079,9 +3226,7 @@ Fanny ridis aprobe kaj antaŭiris tra la pordego al la vagonaro. ŝi estis konsc
 
 ”Do, rakontu al mi, kiamaniere vi sukcesas konservi tiun freŝan vidpunkton pri la aferoj. ĉiu, kiu venas al Novjorko por priskribi ĝin, perdas sian proprecon. La urbego englutas lin. Sed vi restas rigardanta la aferojn kiel iu, kiu unuafoje vidas Novjorkon. Tio ankaŭ trafis min, mi memoras, en via gajiga letero.”
 
-”La ĉefaĵo estas, ke mi ĉi tie estos neniam hejme, mi sentas min ĉiam fremdulo en Novjorko. Mi neniam adaptiĝos al Broadway. Kvina Avenuo ĉiufoje embarasas min, same kiel Cooper Union kaj Bronx senĉese konsternos min. Eble venos iam la tempo, kiam mi trankvile 242
-
-FANNY
+”La ĉefaĵo estas, ke mi ĉi tie estos neniam hejme, mi sentas min ĉiam fremdulo en Novjorko. Mi neniam adaptiĝos al Broadway. Kvina Avenuo ĉiufoje embarasas min, same kiel Cooper Union kaj Bronx senĉese konsternos min. Eble venos iam la tempo, kiam mi trankvile
 
 
 povos profiti la metroon, sed nun ne parolu al mi pri tiu fervojo.”
@@ -4094,15 +3239,11 @@ Ho, tiuj homoj konsideras siajn sentojn, analizas ilin, inversas ilin, renversas
 
 ”Mi ne tuŝis krajonon depost tiu septembra tago, kiam vi asertis, ke mi ne povos ĉesi, almenaŭ escepte en la okazo, kiam mi faris kalkulon pri mendo.”
 
-”Nu, sekve vi image desegnis kaj se vi nenion surpaperigis, des pli bone. Vi konservas ĉion en ujo, prem-
-
-ŝraŭbas la kovrilon, tiel ke ĉiuj naturaj impulsoj tutdense aglomeriĝas, sed . . . Iun tagon jen . . . bum! terura eksplodo okazos. Vi ja ne povos eneŝafodigi tiujn impul-sojn, Fanjo. Tio estus amasmurdo, masakro je la sennombraj jarcentoj post vi.”
+”Nu, sekve vi image desegnis kaj se vi nenion surpaperigis, des pli bone. Vi konservas ĉion en ujo, premŝraŭbas la kovrilon, tiel ke ĉiuj naturaj impulsoj tutdense aglomeriĝas, sed . . . Iun tagon jen . . . bum! terura eksplodo okazos. Vi ja ne povos eneŝafodigi tiujn impul-sojn, Fanjo. Tio estus amasmurdo, masakro je la sennombraj jarcentoj post vi.”
 
 ”Aŭskultu foje bone,” komencis Fanny, kun voĉo ko-lerete obtuza, ”la pasintan fojon, mi jam diris al vi, ke mi ne toleros, ke vi traktu kaj riproĉu min kiel bubinon.
 
-Duafoje mi akcentas tion ĉi, mi ne ŝercas. Se vi havas ankoraŭ ion por diri, ne hezitu, la vagonaro foriros en 243
-
-FANNY
+Duafoje mi akcentas tion ĉi, mi ne ŝercas. Se vi havas ankoraŭ ion por diri, ne hezitu, la vagonaro foriros en
 
 
 du minutoj — ŝi rigardis sian brakhorlogon — dank’al Dio, ĉi tiu estas la lasta ŝanco, kiun vi havas.”
@@ -4113,9 +3254,7 @@ du minutoj — ŝi rigardis sian brakhorlogon — dank’al Dio, ĉi tiu estas l
 
 ”Tio do volas diri, ke vi estas nearmita. Sekve vi memoru la jenon plej bone, kiam vi refoje iros sola tra ĉikago: kiam vi pugnigas vian maneton, jen, tiel kaj flankenmetu la dikan fingron, celante bone lokon proksimume kvin centimetrojn ĉi tiuflanke de la mentono, vi etendu kaj retiru fulmrapide la pugnon, kiel piston de maŝino, tiam la ulo, kiu atakas vin, terenfalos senmove.
 
-Precize sur tiu loko estas nervo, kiu rekte iras al la cerbo. Tiu pugnopuŝo igas iun vidi stelojn, lumradiojn kaj feajn nuancojn. En amuzaj gazetoj oni ofte uzas tiun pu-
-
-ŝon surbilde.”
+Precize sur tiu loko estas nervo, kiu rekte iras al la cerbo. Tiu pugnopuŝo igas iun vidi stelojn, lumradiojn kaj feajn nuancojn. En amuzaj gazetoj oni ofte uzas tiun puŝon surbilde.”
 
 ”Vi absolute estas freneza,” diris Fanny, kvazaŭ ŝi ĵus konvinkigis pri jama suspekto. La vagonaro nerimarkeble moviĝis jam.
 
@@ -4125,12 +3264,7 @@ Heyl rapidege atingis la pordon, kie li sin turnis:
 
 ”Oni nomas tion ’supratako’!” li kriis, terurante la vojaĝantojn, kaj saltis de la vagonŝtupo.
 
-Fanny falsidiĝis sur la kusenojn, kvazaŭ laca. Tiam ŝi ekridis, estis rido miksita kun singulto, histeria. Li post-244
-
-FANNY
-
-
-lasis gazeton sur la sidloko kontraŭa. Estis ekzemplero de ”Star”. Fanny ĉifbuligis ĝin, obstina, infaneca, piedfrapis ĝin sub la benkon. ŝi demetis la ĉapelon, prizorgis siajn pakaĵojn kaj residiĝis kun fermitaj okuloj. Post kelkaj minutoj ŝi malfermis ilin, serĉkaptis sub la sidloko kaj aperigis, glatigis la ĉifitan gazeton, komencis legi tuj lian kolumnon. ŝi opiniis, ke ĝi nur malmulte pretendas, sed tamen ĝi abundis de komprenpovo, sagaco kaj kaprica humoro. Ne ridindige, sed ridetige, intermite ĉe ĉiu kvina linio, ĝi efikis. ŝi pripensis, ĉu tiuj solecaj, mal-sanulaj jaroj kun siaj multsemajna legado kaj grimpado en la Kolorada montaro, restigis lin strange juna aŭ male faris lin rimarkinde pli aĝa.
+Fanny falsidiĝis sur la kusenojn, kvazaŭ laca. Tiam ŝi ekridis, estis rido miksita kun singulto, histeria. Li postlasis gazeton sur la sidloko kontraŭa. Estis ekzemplero de ”Star”. Fanny ĉifbuligis ĝin, obstina, infaneca, piedfrapis ĝin sub la benkon. ŝi demetis la ĉapelon, prizorgis siajn pakaĵojn kaj residiĝis kun fermitaj okuloj. Post kelkaj minutoj ŝi malfermis ilin, serĉkaptis sub la sidloko kaj aperigis, glatigis la ĉifitan gazeton, komencis legi tuj lian kolumnon. ŝi opiniis, ke ĝi nur malmulte pretendas, sed tamen ĝi abundis de komprenpovo, sagaco kaj kaprica humoro. Ne ridindige, sed ridetige, intermite ĉe ĉiu kvina linio, ĝi efikis. ŝi pripensis, ĉu tiuj solecaj, mal-sanulaj jaroj kun siaj multsemajna legado kaj grimpado en la Kolorada montaro, restigis lin strange juna aŭ male faris lin rimarkinde pli aĝa.
 
 ŝi ĝojis, ke la vojaĝo de Novjorko al ĉikago daŭros multajn horojn. Tiuj horoj ebligis al ŝi spirite digesti oportune ĉion, kion ŝi travivis dum la pasinta tagdeko.
 
@@ -4138,12 +3272,7 @@ En sia sistema menso ŝi komencis aranĝi, ordigi la faktojn laŭ graveco. Unue 
 
 ŝi rezignis, prenis gazeton, poste decidis lunĉi.
 
-ŝia reveno en la kontoro post tiu ŝia unua vojaĝo ne estis epokfara. Oni ne atendu de firmo, kies personaro ampleksas milojn kaj kies profito sumiĝas je dekmilio-245
-
-FANNY
-
-
-noj, ke ĝi danke celebros la fenomenon, ke ĝis nun mal-prospera sekcio evidente montras novan ruĝan sangon.
+ŝia reveno en la kontoro post tiu ŝia unua vojaĝo ne estis epokfara. Oni ne atendu de firmo, kies personaro ampleksas milojn kaj kies profito sumiĝas je dekmilionoj, ke ĝi danke celebros la fenomenon, ke ĝis nun mal-prospera sekcio evidente montras novan ruĝan sangon.
 
 Ella Monahan diris: ”Oni opinios tion tre ordinara, escepte de Fenger, eble. Tia estas ilia agmaniero.”
 
@@ -4155,9 +3284,7 @@ Sufiĉe strange, Fenger diris malmulton. Li estis tre kolerema en tiuj tagoj kaj
 
 ”Vi aspektas, kvazaŭ vi estus reveninta de ekskursa vojaĝeto anstataŭ de fajroprova vojaĝego.”
 
-”Vi tute pravas; kial vi ne antaŭe informis min, ke ne-gocaj transakcioj nur konsistas el vico da sociaj ceremo-nioj. Mankis vere al mi sufiĉe da blankaj gantoj por dece savi min. Neniu volas priparoli komercon en sia kontoro. Mi eĉ ne komprenas, kial oni tie bezonas kontoron, krom por ricevi la korespondaĵojn. Oni elparolas la vorton: komerco kaj senhezite sekvas la vorto: lunĉo. Neniu 246
-
-FANNY
+”Vi tute pravas; kial vi ne antaŭe informis min, ke ne-gocaj transakcioj nur konsistas el vico da sociaj ceremo-nioj. Mankis vere al mi sufiĉe da blankaj gantoj por dece savi min. Neniu volas priparoli komercon en sia kontoro. Mi eĉ ne komprenas, kial oni tie bezonas kontoron, krom por ricevi la korespondaĵojn. Oni elparolas la vorton: komerco kaj senhezite sekvas la vorto: lunĉo. Neniu
 
 
 pograndisto povos kalkuli konvenan oferton, ne satmanĝinte moruaĵon. Min naŭzas vere la vidaĵo de restoracio.”
@@ -4187,9 +3314,6 @@ Fenger aranĝis la paperojn.
 ”Tio estas vere rimarkinda rekordo en ok monatoj, eĉ ĉe Haynes-Cooper, kie oni kutimas atingi rekordon. ĉu vi jam rondiris foje tra la tuta magazeno, post tiu unua fojo, kiam vi venis ĉi tien?”
 
 
-FANNY
-
-
 ”Tra la tuta . . . kompreneble ne, mi bezonus plentagon per tio.”
 
 ”Mi ŝatus, ke vi faru tion. Laŭ mi estas dezirinde, ke la sekciestroj almenaŭ dufoje ĉiujare traesploru la tutan magazenon. Vi vidos, ke la dekkvara etaĝo tute estas dis-ponebla por la elektistoj. ĉiu sekcio tie ankaŭ trovos sian elektejon, kie estas aranĝataj la specimenoj. Vi trovos tie ankaŭ vian elektejon.”
@@ -4206,9 +3330,7 @@ Tio, kion Clarence Heyl diris al ŝi, trafulmis ŝian kapon, ŝi mem ektimis, ci
 
 La sekvintan matenon ŝi elspezis per vagado tra la domego, kiel Fenger konsilis. ŝi haltis momenton, kvazaŭ ensorĉita kiel antaŭe, kaj restis rigardanta la spiralan glitejon, laŭ kiu ĉiutage la centoj, miloj da pakoj, sinsekve, interpuŝiĝe, pelglitis al . . . jes, al kio?
 
-”Kien?” ŝi demandis sin. Neprecize ŝi sciis, ke duon-voje ĉi tiuj pakoj estas kaptataj kaj direktataj al propra 248
-
-FANNY
+”Kien?” ŝi demandis sin. Neprecize ŝi sciis, ke duon-voje ĉi tiuj pakoj estas kaptataj kaj direktataj al propra
 
 
 kanalo, post kio ili estas kolektataj, pretigataj por ekspedo aŭ enŝipigo. ŝi turnis sin al magazenbubo.
@@ -4217,9 +3339,7 @@ kanalo, post kio ili estas kolektataj, pretigataj por ekspedo aŭ enŝipigo. ŝi
 
 ”Unu etaĝon pli sube,” respondis la knabo, ”sur la plataĵo.”
 
-Fanny malsupreniris laŭ la fera ŝtuparego, denove rigardante la glitejon. i finiĝis sur plataĵo, proksimume dek du futojn super la planko; ĝi similis iom la koman-dejon de ŝipo. Mallarĝa ŝtupareto, kiu tremetis pro regulaj puŝoj supre, kondukis tien. ŝi suriris ĝin kaj trovis sur la plataĵo knabinon. La knabino dum momento, se-kundero, atentis ŝin, ĉar ŝia laboro ne permesis pli. Fanny observis ŝin dum senspira momento kaj tuj komprenis la esprimon en la mieno de la ino. Tio estis petego por liberiĝo. ĉar tiu plataĵo, kiu puŝiĝis seninterrompe de la falado de pakoj, pakoj, pli da pakoj, estis la stomako de la Haynes-Cooper entrepreno. Sesdek procentojn el la kvardek kvin mil mendaĵoj preteriris la manojn de tiu ĉi knabino kaj ŝiaj helpantinoj. De la glitejo susuris la pakoj, ĉiuj markitaj per sekcistampo, ili estis haste kaptataj kaj ĵetataj en unu el la dekdu korboj, kiuj preterŝoviĝis aŭtomate. Misĵeto signifis prokraston, embarason en la ekspedejo. ĉio dependis de unu rigardo kaj brakmovo koincide. Tiuj rigardo kaj movo ne estis homaj, ili estis nur koncentrigita laborekonomio. Ili ŝajne laboris kun fervoro kaj streĉe, sed esence tio estis 249
-
-FANNY
+Fanny malsupreniris laŭ la fera ŝtuparego, denove rigardante la glitejon. i finiĝis sur plataĵo, proksimume dek du futojn super la planko; ĝi similis iom la koman-dejon de ŝipo. Mallarĝa ŝtupareto, kiu tremetis pro regulaj puŝoj supre, kondukis tien. ŝi suriris ĝin kaj trovis sur la plataĵo knabinon. La knabino dum momento, se-kundero, atentis ŝin, ĉar ŝia laboro ne permesis pli. Fanny observis ŝin dum senspira momento kaj tuj komprenis la esprimon en la mieno de la ino. Tio estis petego por liberiĝo. ĉar tiu plataĵo, kiu puŝiĝis seninterrompe de la falado de pakoj, pakoj, pli da pakoj, estis la stomako de la Haynes-Cooper entrepreno. Sesdek procentojn el la kvardek kvin mil mendaĵoj preteriris la manojn de tiu ĉi knabino kaj ŝiaj helpantinoj. De la glitejo susuris la pakoj, ĉiuj markitaj per sekcistampo, ili estis haste kaptataj kaj ĵetataj en unu el la dekdu korboj, kiuj preterŝoviĝis aŭtomate. Misĵeto signifis prokraston, embarason en la ekspedejo. ĉio dependis de unu rigardo kaj brakmovo koincide. Tiuj rigardo kaj movo ne estis homaj, ili estis nur koncentrigita laborekonomio. Ili ŝajne laboris kun fervoro kaj streĉe, sed esence tio estis
 
 
 la regula kaj simpla funkciado de fostenteriga maŝino.
@@ -4236,13 +3356,9 @@ Fanny klinis sin super la knabino — estis en tiu angulo bruegado — kaj faris
 
 ”Jen estas la fandejo por silko. Tio estas la sekigforno.
 
-Sur ĉi tiu subtila pesilo la specimenoj estas pesataj, kiuj envenis por esploro, por ekscii la procentojn de lano kaj kotono. Estonte estos neeble al fabrikantoj liveri fuŝ-
+Sur ĉi tiu subtila pesilo la specimenoj estas pesataj, kiuj envenis por esploro, por ekscii la procentojn de lano kaj kotono. Estonte estos neeble al fabrikantoj liveri fuŝaĵojn.”
 
-aĵojn.”
-
-”Mm,” diris Fanny ĝentile. ŝi malŝatis komplikitajn procedojn, kiuj rilatis al pesado, gramoj, acidoj ktp. ŝi vagis al la administra etaĝo kaj haltis antaŭ la pordo, kiu surhavis la nomon: ”Sinjorino Knowles.” Kiu dezirus 250
-
-FANNY
+”Mm,” diris Fanny ĝentile. ŝi malŝatis komplikitajn procedojn, kiuj rilatis al pesado, gramoj, acidoj ktp. ŝi vagis al la administra etaĝo kaj haltis antaŭ la pordo, kiu surhavis la nomon: ”Sinjorino Knowles.” Kiu dezirus
 
 
 scii, kiu sinjorino Knowles estas aŭ kia estas ŝia tasko ĉe Haynes-Cooper, neniel estus kontentigita. Sed en entrepreno, kie deĵoras dekmilo da personoj, el kiuj duono estas knabinoj, kies pli granda parto ree konsistas el ne-instruitaj, stultaj, sed tamen tre homaj estaĵoj, virino, kia sinjorino Knowles valoras dekoble sian salajron. Kiom da malagrablaĵoj ŝi malhelpas, kiom da konsolo ŝi povas disdoni. Sinjorino Knowles povus al vi rakonti trage-diajn historietojn, fiajn eĉ, sed ankaŭ komikajn. ŝi sciis, kiel trakti pri angoro, honto, obstina silentado, senespe-riga malriĉeco. Tamen ŝi ne estis patrina, grizhara sinjorino. Kontraŭe. ŝi estis ĉarma, embarase juna, eleganta virino, kies sola tuj frapa eco estis, ke ŝi estas neŝanceleble kvieta. ŝi lernis, ke, se oni kviete metas la manojn en la sinon kaj atendadas, ne demandante, ĉiuj homoj spontanee iros al vi por rakonti siajn malfacilaĵojn.
@@ -4251,9 +3367,7 @@ scii, kiu sinjorino Knowles estas aŭ kia estas ŝia tasko ĉe Haynes-Cooper, ne
 
 ”Ne malbone!” respondis Esther Knowles, ”kiam mi konsideras, ke estas mardo nun. Eniru! Kiel fartas la bebovesta miraklo! Mi lunĉis kun Ella Monahan, kaj ŝi informis min, ke via unua Novjorka ekskurso estas sukcesplena. Mi gratulas vin.”
 
-”Dankon, sed mi havas nur malmulte da tempo nun, mi ankoraŭ ne vidis mian skribtablon, mi estas vagisti-no hodiaŭ. Nur mi volas ekscii, ĉu vi povos diri al mi la 251
-
-FANNY
+”Dankon, sed mi havas nur malmulte da tempo nun, mi ankoraŭ ne vidis mian skribtablon, mi estas vagisti-no hodiaŭ. Nur mi volas ekscii, ĉu vi povos diri al mi la
 
 
 nomon de la knabino, kiu laboras ĉe la finparto de la spiralglitejo en la ekspedeja sekcio?”
@@ -4270,9 +3384,7 @@ jes, estas domaĝe — estas rimarkinde, ke vi demandas pri tiu ĉi knabino, ĉa
 
 ”ĉu malagrablalojn?”
 
-”ŝi scias, ke ŝi estas ĉarma, ke ŝi estas malsama kaj ŝi scias, ke ŝi havas seniluzigan taskon kaj . . . pro tio ŝia malkontenta mieno. Krom tio, ŝi perlaboras ĉi tie nur sep dolarojn ĉiusemajne, kiun sumon ŝi preskaŭ tute devas disdoni hejme. ŝia vivo staras ĝis ŝia gorĝo kaj eĉ dufoje ŝi forkuris de la hejmo. Mi ne riproĉas ŝin, sed ĉiufoje mi prizorgis, ke ŝi reiris hejmen. Sed verŝajne venos tria fojo kaj tiam . . . nu, ŝi ne estas malbona, ŝi estas ĉarma kaj deca, sed ŝi havas specialan, propran filozofion. ŝia teorio estas, ke ekzistas nur du specoj de 252
-
-FANNY
+”ŝi scias, ke ŝi estas ĉarma, ke ŝi estas malsama kaj ŝi scias, ke ŝi havas seniluzigan taskon kaj . . . pro tio ŝia malkontenta mieno. Krom tio, ŝi perlaboras ĉi tie nur sep dolarojn ĉiusemajne, kiun sumon ŝi preskaŭ tute devas disdoni hejme. ŝia vivo staras ĝis ŝia gorĝo kaj eĉ dufoje ŝi forkuris de la hejmo. Mi ne riproĉas ŝin, sed ĉiufoje mi prizorgis, ke ŝi reiris hejmen. Sed verŝajne venos tria fojo kaj tiam . . . nu, ŝi ne estas malbona, ŝi estas ĉarma kaj deca, sed ŝi havas specialan, propran filozofion. ŝia teorio estas, ke ekzistas nur du specoj de
 
 
 homoj surtere: tiuj, kiuj prenas, kaj tiuj, kiuj donas kaj ŝi nun donis sufiĉe siaopinie. Sarah ne diris ĝin precize tiel, sed vi nun komprenas, kion ŝi celas.”
@@ -4285,9 +3397,7 @@ La tutan tagon dum sia migrado tra la giganta vendejo, la vizaĝo de Sarah sekvi
 
 ŝi detaligis ankoraŭ kelkajn punktojn kaj ekpriparo-lis la sekvantan.
 
-”Se la Nordamerika kostum- kaj mantelkompanio povos liveri konfekciojn, kiuj aspektas aktuale konvenaj kaj ĉarmaj, kial ni estas devigataj proponi plej malele-gantajn modelojn en nia sekcio: virinvestoj. Mi scias bone, ke la plimulto de niaj klientinoj ne ŝatas porti sim-plan, allogan serĝan robon kun blanka kolkrispaĵo kaj ke 253
-
-FANNY
+”Se la Nordamerika kostum- kaj mantelkompanio povos liveri konfekciojn, kiuj aspektas aktuale konvenaj kaj ĉarmaj, kial ni estas devigataj proponi plej malele-gantajn modelojn en nia sekcio: virinvestoj. Mi scias bone, ke la plimulto de niaj klientinoj ne ŝatas porti sim-plan, allogan serĝan robon kun blanka kolkrispaĵo kaj ke
 
 
 ili preferas atlasajn kolfaldaĵojn ĉerizkolorajn sur prun-koloraj fulardoj, ni ne liveras ĉi tiujn pompaĵojn. Estas tamen multaj virinoj, kiuj loĝas sennombrajn mejlojn de Kvina Avenuo kaj malgraŭ tio precize scias, kion oni portas tie. Kiel ili ekscias, estas al mi enigmo, sed estas fakto, ke ili scias tion, ĉar ili bezonas ĝin. Kial ni ne povus atingi ĉi tiujn virinojn same kiel iliajn malpli postu-lemajn samseksulinojn. La Nordamerika Kompanio bone atingas ilin, mi eĉ kun plezuro portus robon el ilia provizo, sed mi ankoraŭ malpli preferus esti trovita morta en unu el niaj. Jen estas mia propono:
@@ -4299,29 +3409,19 @@ ili preferas atlasajn kolfaldaĵojn ĉerizkolorajn sur prun-koloraj fulardoj, ni
 La raporto atingis sinjoron Fenger. Li supraĵe atentis la unuan proponon, ĉar li sciis, ke la kartoteko estas tiel malkomplika kiel grandampleksa povas esti en sia speco. Le trian punkton pri la sep dolaroj li ignoris. La dua propono unue ridigis, poste interesis, fine konvinkis lin.
 
 
-FANNY
-
-
 En ses monatoj la nomo de Camille efektive aperis en la Haynes-Cooperkatalogo. Camille mem (kia pompe vestita virinaĉo), kies roboj estis portataj de reĝinoj, dancis-tinoj kaj maljunulinoj kun milionoj, kiu enkondukis la novajn modelojn, renovigis antikviĝintajn, kiu malkovris novajn nuancojn, vere konsentis desegni po ses modeloj en ĉiu sezono por la milionoj da virinoj, klientinoj de la poŝtmenda entrepreno Haynes-Cooper kontraŭ pago, kiu eĉ momenton konfuzite palpebrumigis sinjoron Fenger.
 
 
-FANNY
-
-
-ĉAPITRO XIV.
+ĈAPITRO XIV.
 
 Fanny Brandeis nun portis bluzojn en vera Clunymo-delo, ŝiaj ĉapeloj estis unuvorte ŝikaj, ĉarmigaj. ŝi transloĝiĝis de la suda parto al la norda flanko de ĉikago, kio estas ĉiam signo de prospero aŭ socia progreso.
 
-ŝia nova apartamento situis apud la lago, estis rave alta etaĝo, kaj proporcie multekosta. ŝi sentis sin terure soleca. ŝi perlaboris la salajron de viro kaj ankaŭ laboris kiel viro. ŝi nun laboris kiel Michael Fenger, senĉese, malmilda kaj nevenkebla, ĉion uzante kiel materialon, por atingi la celon, tamen neniel kompatante la materialon mem. Ili similis masoniston, kiu lokigas la brikon, ne reale vidante la brikon, nur rigardante ĝin ilo por pli-altigi muron. ŝi nun malofte promenvagis tra la urbo. ŝi rigardis la objektojn tie el alia vidpunkto ol antaŭe, efektive estis, kvazaŭ ŝia animo ŝrumpas proporcie al la pligrandiĝo de ŝia salajro. La strato malofte havigis plu al ŝi nutraĵon por ŝia mensa malsato. Renkontante virinon kun bebo en la parko, ŝia akravida okulo atentis tuj la vestojn de la infano, antaŭ ol ŝi rigardis la etulon mem, kelkokaze ŝi eĉ ne atentis la infanon mem. ”Rimarkindaj Faktoj,” la naiva ruĝvangulo, kiu veturigis ŝin hejmen 256
-
-FANNY
+ŝia nova apartamento situis apud la lago, estis rave alta etaĝo, kaj proporcie multekosta. ŝi sentis sin terure soleca. ŝi perlaboris la salajron de viro kaj ankaŭ laboris kiel viro. ŝi nun laboris kiel Michael Fenger, senĉese, malmilda kaj nevenkebla, ĉion uzante kiel materialon, por atingi la celon, tamen neniel kompatante la materialon mem. Ili similis masoniston, kiu lokigas la brikon, ne reale vidante la brikon, nur rigardante ĝin ilo por pli-altigi muron. ŝi nun malofte promenvagis tra la urbo. ŝi rigardis la objektojn tie el alia vidpunkto ol antaŭe, efektive estis, kvazaŭ ŝia animo ŝrumpas proporcie al la pligrandiĝo de ŝia salajro. La strato malofte havigis plu al ŝi nutraĵon por ŝia mensa malsato. Renkontante virinon kun bebo en la parko, ŝia akravida okulo atentis tuj la vestojn de la infano, antaŭ ol ŝi rigardis la etulon mem, kelkokaze ŝi eĉ ne atentis la infanon mem. ”Rimarkindaj Faktoj,” la naiva ruĝvangulo, kiu veturigis ŝin hejmen
 
 
 post la unua vizito ĉe Fenger, tuj post sia alveno ĉe Haynes-Cooper, montriĝis esti ŝia fidela sklavo kaj ŝi ne mis-uzis liajn dediĉon kaj sindonon. Verdire, ŝi apenaŭ rimarkis tion. La seksa elemento estis preskaŭ tute subpremata de la aktiva. La plimulto de la viroj trovis ŝian lakonan, nepre aferecan agmanieron iomete forpuŝa, kvankam ili ne rigardis ĝin malinteresa. Ili neniam enamiĝis al ŝi malgraŭ ŝia neneebla ĉarmo.
 
-”Rimarkindaj Faktoj” veturigis ŝin en sia koketa aŭto-mobileto, kaj iun vesperon li alproprigis al si por ĉiam lokon en ŝia memoro kiel la unua viro, kiu faris edziĝ-
-
-peton al ŝi. Li faris tion hezite, malfacile, preskaŭ kontraŭvole. Fanny estis sincere surprizita. ŝi ŝatis veturi kun li, ŝi ripozis tiel kaj ĝi trankviligis ŝin. Lin ravis ŝia ĉeesto, ŝiaj humoro, energio kaj elektra forto instigis lin.
+”Rimarkindaj Faktoj” veturigis ŝin en sia koketa aŭto-mobileto, kaj iun vesperon li alproprigis al si por ĉiam lokon en ŝia memoro kiel la unua viro, kiu faris edziĝpeton al ŝi. Li faris tion hezite, malfacile, preskaŭ kontraŭvole. Fanny estis sincere surprizita. ŝi ŝatis veturi kun li, ŝi ripozis tiel kaj ĝi trankviligis ŝin. Lin ravis ŝia ĉeesto, ŝiaj humoro, energio kaj elektra forto instigis lin.
 
 Estis momenta silentado post lia mallerta svatdeklaro.
 
@@ -4336,9 +3436,6 @@ Estis momenta silentado post lia mallerta svatdeklaro.
 ”ĉiela Dio! Sed vi ja iam intencas edziniĝi, Fanny?”
 
 
-FANNY
-
-
 ”Eble, sed ne kun iu, kiun mi nun konas. Se mi edziniĝos, mi nepre gajnu per tio. Tio ne bezonos esti necese materiala gajno, kvankam tio povos esti ankaŭ faktoro.”
 
 ”Rimarkindaj Faktoj” sidis, fikse rigardante antaŭ sin, premante siajn manojn pli firme ĉirkaŭ la direktilrado ol necese. Lia premo tiam malplifirmiĝis kaj li eĉ provis ekridi, tamen vane, post tio li diris ion tre saĝan (almenaŭ por li).
@@ -4351,19 +3448,9 @@ Li prenis ŝian maldekstran manon, kiu kuŝis en ŝia sino kaj levis ĝin al sia
 
 Dek ok monatojn post kiam Fanny venis al Haynes-Cooper, ŝia sekcio atingis debiton de unu miliono en unu jaro. Tiu ebleco ja estis ĉiam en la sekcio, sed ŝi efektivigis ĝin. ŝi laboris nun pli aŭ malpli senpere apud Fenger, observis ĉiujn sekciojn, kiuj koncernis virinves-tojn. Kiel elektistino ŝi nur okupis sin pri la bebovesta.
 
-Tamen neoficiale ŝi okupis la lokon de ĉefasististino de la ĝenerala direktoro. Ili laboris bone kune, ŝi kaj Fenger, ĉar iliaj pensoj ofte iris paralele, dum neniu parolata vorto estis necesa. Li trovis en Fanny stimulan, instigan koleginon. Tiel estis de la komenco. En la unuaj mona-258
+Tamen neoficiale ŝi okupis la lokon de ĉefasististino de la ĝenerala direktoro. Ili laboris bone kune, ŝi kaj Fenger, ĉar iliaj pensoj ofte iris paralele, dum neniu parolata vorto estis necesa. Li trovis en Fanny stimulan, instigan koleginon. Tiel estis de la komenco. En la unuaj monatoj, kiam ŝia rapida spirito petolis tien kaj reen, en for-gesitajn neglektitajn angulojn, kie ŝi ordigis kaj elsarkis la fuŝaĵojn kaj ĉifaĵojn de la negoca paperkorbo, ŝi ofte kontrastigis tiujn kun la hela lumo. Fenger tiam rigardis ŝin kun sento de amuziĝo kaj interna fiero, kiel oni rigardas lerneman infanon. Sed amuziĝo kaj fiero sanĝiĝis en profundan admiron de la klera homo rilate al samklera kolego. Jam longe antaŭ ol unu jaro estis pasinta, li sciis, ke ŝi estas virino, kian li reve posedigis al si, kian li neniam opiniis trovi. Li ofte trovis sin sidanta antaŭ sia skribtablo aŭ en sia librejo hejme, dum li fikse rigardis pli longe ol estis dece, kun libro aŭ paperoj forgesitaj en la mano. Image li trovis por ŝi adjektivojn, kiuj pruvis la paradokson en ŝi: mildanima, simpatia, varmkora, im-pulsa, riĉimaga — malvarma, nesubigebla, brila, aŭdaca, intuicia.
 
-FANNY
-
-
-toj, kiam ŝia rapida spirito petolis tien kaj reen, en for-gesitajn neglektitajn angulojn, kie ŝi ordigis kaj elsarkis la fuŝaĵojn kaj ĉifaĵojn de la negoca paperkorbo, ŝi ofte kontrastigis tiujn kun la hela lumo. Fenger tiam rigardis ŝin kun sento de amuziĝo kaj interna fiero, kiel oni rigardas lerneman infanon. Sed amuziĝo kaj fiero sanĝiĝis en profundan admiron de la klera homo rilate al samklera kolego. Jam longe antaŭ ol unu jaro estis pasinta, li sciis, ke ŝi estas virino, kian li reve posedigis al si, kian li neniam opiniis trovi. Li ofte trovis sin sidanta antaŭ sia skribtablo aŭ en sia librejo hejme, dum li fikse rigardis pli longe ol estis dece, kun libro aŭ paperoj forgesitaj en la mano. Image li trovis por ŝi adjektivojn, kiuj pruvis la paradokson en ŝi: mildanima, simpatia, varmkora, im-pulsa, riĉimaga — malvarma, nesubigebla, brila, aŭdaca, intuicia.
-
-Duonkolere li tiam ekstaris kaj devigis sin repensi pri la papero antaŭ si. Ne pensu, ke li delogiĝis al intermita amindumo ĉe la aferaj priparoladoj. Iliaj priparoladoj estis kvazaŭ inter du viroj. Eĉ ili diris unu al la alia plurfoje la veron. Fanny posedis la idekreemon, Fenger la potencon por apliki, plenumi ĝin. Kelkfoje ŝia fantazio flugis tro alten por lia praktika spirito. Tiuokaze li kutimis diri: ”Mi ne estas vendata laŭ tia specimeno,” kio volas diri en komerca slango: ”Vi ne sukcesis konvinki min.” ŝi tiam rekomencis argumenti, pli malrapide pre-259
-
-FANNY
-
-
-zentante siajn pruvaĵojn. enerale ŝiaj ideoj estis praktikaj kaj bazitaj sur homkono aŭ pli ĝuste sur homaj mankoj kaj malfortoj. Nur, se ŝi tuŝis lian amatan ”sistemon”, li spasme alkroĉis sin al ĝi.
+Duonkolere li tiam ekstaris kaj devigis sin repensi pri la papero antaŭ si. Ne pensu, ke li delogiĝis al intermita amindumo ĉe la aferaj priparoladoj. Iliaj priparoladoj estis kvazaŭ inter du viroj. Eĉ ili diris unu al la alia plurfoje la veron. Fanny posedis la idekreemon, Fenger la potencon por apliki, plenumi ĝin. Kelkfoje ŝia fantazio flugis tro alten por lia praktika spirito. Tiuokaze li kutimis diri: ”Mi ne estas vendata laŭ tia specimeno,” kio volas diri en komerca slango: ”Vi ne sukcesis konvinki min.” ŝi tiam rekomencis argumenti, pli malrapide prezentante siajn pruvaĵojn. enerale ŝiaj ideoj estis praktikaj kaj bazitaj sur homkono aŭ pli ĝuste sur homaj mankoj kaj malfortoj. Nur, se ŝi tuŝis lian amatan ”sistemon”, li spasme alkroĉis sin al ĝi.
 
 ”Ne tedu min per tiaj socialistaj temoj, mi petas,” li kutimis diri. ”ĉi tio ne estas filantropa institucio, ĝi estas la plej granda tia entrepreno en la mondo kaj ’sistemo’ estas ĝia spino, ĝia vertebraro. Mi laboris dek kvin jarojn por perfektigi tiun sistemon. Tio estas mia amata ĉevalo kaj sekve: for la manojn!”
 
@@ -4379,9 +3466,7 @@ Neniu en la entrepreno kuraĝus diri tion al li, krom Fanny. Superule li rigardi
 
 ”Kaj mi ĝojas, ke vi estas virino.”
 
-En majo Fanny faris unuafoje vojaĝon al Eŭropo por sia firmo. Estis subita plano. Tuj ŝiaj pensoj direktis sin al Teodoro kaj ŝi ektimante rimarkis, ke la penso pri revido de Teodoro kun lia infano malplaĉas al ŝi. La infano 260
-
-FANNY
+En majo Fanny faris unuafoje vojaĝon al Eŭropo por sia firmo. Estis subita plano. Tuj ŝiaj pensoj direktis sin al Teodoro kaj ŝi ektimante rimarkis, ke la penso pri revido de Teodoro kun lia infano malplaĉas al ŝi. La infano
 
 
 estis knabino, nun ŝi estis iom pli ol unujara. Fanny bezonos proksimume du semajnojn por sia laboro en Parizo kaj Berlino, sed ŝi telegrafis al Teodoro, ke ŝi venos du tagojn al Munkeno. ŝi malmulte ŝatis konatiĝi kun la virino, kiun Teodoro edzinigis. Tiu unua portreto, prezentanta ŝin kun frizitaj haroj, juvelkovrita kaj ŝminki-ta, ankoraŭ obsedis sin.
@@ -4391,9 +3476,6 @@ La tagon antaŭ sia foriro el Novjorko, ŝi ricevis leteron de Teodoro. Evidenti
 Kiam Fanny ekkonsciis, ke ŝi sekve ne renkontos lin, ŝi havis senton, strange miksitan de bedaŭro kaj liberiĝo.
 
 ĉiu ŝia familiamo (rasa trajto) nun koncentriĝis al la penso pri revido de la frato, la egoisma, naturdotita knabo, kiu entuziasmigis iam en la Winnebaga preĝejo la tutan komunumon per sia ludado. Tamen nun estis iu alia, iu, kiu koncertis en Rusujo, kiu loĝis en Munkeno, kiu estas edzo de ”fraŭlino” Olga kaj patro de ridinda germana bebo kun vere germanaj neprezentindaj vestetoj. Sendube ŝi havis braceleton ĉirkaŭ la mallongaj kar-nomolaj braketoj kaj kolĉenon ĉirkaŭ la koleto. Jen, kion oni povas atendi de infano de Olga, sed ne de la bebo de Teodoro! Krom tio, kiom koncernis lin iu bebo, li mem estis ja ankoraŭ bebo.
-
-
-FANNY
 
 
 Estis du tute malkongruaj personoj, kiuj adiaŭis sian Fanjon, kiam la vaporŝipo forveturis, nome Ella Monahan kaj Clarence Heyl. Ella estis en Novjorko por sia ĉiumonata vojaĝo. Heyl eniris en la hotelon, kiam Fanny finaranĝis sian vualon kaj poste ĉirkaŭrigardis sufiĉe ekscitite en la ĉambro. Jes, ŝi estis ekscitita, kontraŭ sia kutimo, kiam ŝi malsupreniris per la lifto. ŝi mistifikis sin mem, dirante, ke ne estas la konsterno de tiel grava vojaĝo, sed ke estas la sekvanta mejloŝtono sur ŝia vojo al sukceso.
@@ -4417,9 +3499,6 @@ Ili ne vidis unu la alian en ses monatoj.
 ”Certe vi povos, ne rigardu tion tiel grava. Estas io mizera en la negocantaj virinoj, ili mortigas la etiketon en popolo. Iun tagon mi spertos, ke unu el vi ekstaros, por cedi al mi sidlokon en la metroo.”
 
 
-FANNY
-
-
 ”Nu bone. Se vi volos ke mi akomodiĝu, mi faligos la tutan vojon, jen poŝtukon, jen ganton, jen floron, jen pelton. Tiam vi povos rondrampi sur la planko de la limuzino kaj senti vin kavalira.”
 
 Kiam li sidis apud ŝi, li esplore rigardis ŝin, preskaŭ
@@ -4436,17 +3515,13 @@ Kiam li sidis apud ŝi, li esplore rigardis ŝin, preskaŭ
 
 ”Kaj tio signifas?”
 
-”Ke vi aspektas kiel sekciestrino. Post du jaroj via viza-
-
-ĝo posedos malmolan trajton, kiu plu ne estas forviŝebla.”
+”Ke vi aspektas kiel sekciestrino. Post du jaroj via vizaĝo posedos malmolan trajton, kiu plu ne estas forviŝebla.”
 
 ”Mi estas efektive sekciĉefo.”
 
 ”Vi ne estas aĉetistino, vi estas kreantino. Mi tute ne malgravigas vian laboron. Via tasko estas mirakla . . .
 
-por Ella Monahan. Mi dezirus esti elokventa. Mi dezirus havi la rajton riproĉi vin. Mi volus, ke mi povu pruvi al vi, ke vi faras krimon, vi kun via talento, kun la heredaĵo kaj la rajto de via raso pekas per gajnado de milionoj por 263
-
-FANNY
+por Ella Monahan. Mi dezirus esti elokventa. Mi dezirus havi la rajton riproĉi vin. Mi volus, ke mi povu pruvi al vi, ke vi faras krimon, vi kun via talento, kun la heredaĵo kaj la rajto de via raso pekas per gajnado de milionoj por
 
 
 Haynes-Cooper. i estas samgrada misfaro, kiel se ekzemple Vesta Virgulino forlasus sian oferfajron por hejti bakfornon. Viaj okuloj estas brilaj, malmildaj anstataŭ toleraj pri homoj. Via buŝo perdas sian graciecon. Sur via tuta vizaĝo stampiĝas la signo, la karakterizilo de lerteco, sperto kaj sukceso.”
@@ -4467,9 +3542,7 @@ Li terure ektimis. Li mallerte karesis ŝian brakon. Kiel infano ŝi forpuŝis l
 
 ”Estas tial, ke vi havas troigitan ideon pri viaj propraj perceptoj. Estas tial, ke vi kreskis el tielnomita brava knabeto al brava viro kaj vi estas nun ankoraŭ same teda kiel tiam! Mi estas sufiĉe feliĉa, escepte kiam mi renkontas vin. Mi posedas ĉiujn aĵojn, al kiuj mi sopiregis tiom da jaroj. Mi estas feliĉa, feliĉega. Lasu min sola!”
 
-Ella Monahan prenis la metroon kaj jam atendis ilin en la granda budo, longe antaŭ ol ili skubalanciĝis sur la 264
-
-FANNY
+Ella Monahan prenis la metroon kaj jam atendis ilin en la granda budo, longe antaŭ ol ili skubalanciĝis sur la
 
 
 ŝtonaĉoj de Hoboken. Triope ili iris al la kajuto de Fanny. Ella estis mendinta ĉampanon, ses botelojn en bela korbeto.
@@ -4495,9 +3568,6 @@ Ili iris al la ferdeko. Ella, kiel multvojaĝinta virino, donis ĉiajn konsilojn
 ”Ne ridu,” diris Fanny akre, ”li parolas serioze.”
 
 
-FANNY
-
-
 Ella, sentante ion malagrablan, ion, kio ne koncernas ŝin, savis ilin el la embarasiĝo per nova fluo da vortoj.
 
 ”Vi estos tute mirigita, veninte en Parizon, kaj vi rimarkos, ke oni igas vin pagi lunĉon, aŭtomobilon k.t.p.
@@ -4513,9 +3583,6 @@ Tiam ili ekadiaŭis, Ella ĉirkaŭbrakis Fanjon tutkore. ŝi poste turnis sin, i
 ”Adiaŭ, Fanjo!” li nur diris. Li premegis ŝian manon kaj ree lasis ĝin, post tio li turnis sin. Komisibubo senspi-re rapidegis al Fanny kun telegramo en la mano.
 
 
-FANNY
-
-
 ”ĉu por mi?” ŝi ridetis kaj ŝire malfermis ĝin. ”i estas de Fenger. Multajn bondezirojn, kvazaŭ ĉiuj ĉi tiuj floroj ne sufiĉus,” diris Fanny.
 
 ”Mm,” diris Ella. ŝi kaj Heyl suriris la ligponton kaj poste atendis sur la kajo, iom necerte kaj malsaĝe rigardante, kiel ĉiam en tia okazo. Sekvis tumulto, absurde kriataj lastaj komisioj, sonis tintado de sonoriloj, oni freneze salutsvingis per poŝtukoj.
@@ -4523,14 +3590,9 @@ FANNY
 Fanny, starante apud la pavezo, trovis siajn du amikojn en la amaso tra antaŭokula nebulo. Ella salutsvingis. Heyl staris senmove rigardanta. La ŝipo svingis sin kaj forrampis de la kajo. La adiaŭoj plibruiĝis al hurla-do. Fanny sin apogis sur la pavezo kaj ankaŭ salutis. Singulto ekveis el ŝia gorĝo. Tiam ŝi trovis sin svinganta per la flavpapera telegramo. ŝi ĉifis ĝin kaj anstataŭe prenis sian poŝtukon. Heyl staris senmova, sengeste, kun la ĉapelo en la mano.
 
 
-FANNY
+ĈAPITRO XV.
 
-
-ĉAPITRO XV.
-
-La unuan semajnon de junio ŝi estis denove en Novjorko. Ella Monahan atendis ŝin sur la kajo, gaja, gratulabunda, radianta pro ĝojo. Fanny sentis sin feliĉe-ga, kiam ŝi malkovris profunde sub si tiun karan, ruĝiĝ-
-
-antan vizaĝon en la amaso. La monato, kiu pasis, post kiam ŝi vidis Ellan en tiu sama cirkonstanco, ŝajnis forg-liti en la neniecon. La doganfrmalaĵoj baldaŭ estis plenumataj. Ella rezervigis ĉambron por ŝi en sia hotelo.
+La unuan semajnon de junio ŝi estis denove en Novjorko. Ella Monahan atendis ŝin sur la kajo, gaja, gratulabunda, radianta pro ĝojo. Fanny sentis sin feliĉe-ga, kiam ŝi malkovris profunde sub si tiun karan, ruĝiĝantan vizaĝon en la amaso. La monato, kiu pasis, post kiam ŝi vidis Ellan en tiu sama cirkonstanco, ŝajnis forg-liti en la neniecon. La doganfrmalaĵoj baldaŭ estis plenumataj. Ella rezervigis ĉambron por ŝi en sia hotelo.
 
 Kiam ili kune veturis al la supra urbo, feliĉaj, Ella malŝlosis sian valizeton kaj metis areton da leteroj kaj telegramoj antaŭ Fannyn.
 
@@ -4544,16 +3606,12 @@ Sed Fanny rigardis al ŝi kun gajradia mieno.
 
 ”Jes.”
 
-ŝi ŝirmalfermis la leteron de Teodoro. Li venos al Novjorko en aŭgusto. La rusa rondiro estis brila sukceso. Nun oni aranĝis serion da koncertoj en Usono. Li 268
-
-FANNY
+ŝi ŝirmalfermis la leteron de Teodoro. Li venos al Novjorko en aŭgusto. La rusa rondiro estis brila sukceso. Nun oni aranĝis serion da koncertoj en Usono. Li
 
 
 ludos sian propran koncerton. En Rusujo, Munkeno kaj eĉ en Berlino tio estis neebla, ĉar la temo estis karakterize juda, same juda kiel Kol Nidrej kaj same melankolia.
 
-Tion oni ne ŝatis en Eŭropo. La antaŭjuĝo estis tie tro forta. Sed en Usono! Li estis pli feliĉa ol iam en multaj jaroj. Olga ne ŝatis akompani lin al Ameriko, sed ŝi ver-
-
-ŝajne ŝanĝos siajn intencojn. La etulino fartis bone kaj lernis paroli. Ili instruis ŝin, elparoli la vortojn ”onklino Fanjo.”
+Tion oni ne ŝatis en Eŭropo. La antaŭjuĝo estis tie tro forta. Sed en Usono! Li estis pli feliĉa ol iam en multaj jaroj. Olga ne ŝatis akompani lin al Ameriko, sed ŝi verŝajne ŝanĝos siajn intencojn. La etulino fartis bone kaj lernis paroli. Ili instruis ŝin, elparoli la vortojn ”onklino Fanjo.”
 
 ”Ho!” kriis Fanny kaj ŝiaj okuloj brilis. ŝi laŭtlegis partojn de la letero antaŭ Ella, kiu montriĝis la plej atenta aŭskultantino, kiun ŝi povus deziri. ŝi ekkriis pro gojo en la ĝustaj momentoj kaj ŝi estis same ravita kiel Fanny. Ili ambaŭ forgesis pri Fenger, sia ĉefo. Sed apenaŭ ili estis duonhoron en la hotelo kaj Ella ne finis siajn dankespri-mojn pro la valizeto, kiun Fanny donace kunportis por ŝi el Parizo, jam la telefono sonoris.
 
@@ -4568,9 +3626,6 @@ Mi informiĝos, momenton!”
 ”ĉu Ella?”
 
 ”Jes, ŝi ĝuste estas ĉi tie, atendu ĉe la aparato, ĉu?”
-
-
-FANNY
 
 
 ŝi turnis sin for de la telefono al Ella.
@@ -4593,12 +3648,7 @@ Ella okupis sin per elpakado de kofro kaj ŝi malbonigis al Fanny la ĝojon, dir
 
 ŝi sidis sur la planko apud la malfermita kofro kaj gestis per harbroso . . .” kiel aglo superas . . . ŝanceliran-tan anason. Ne, mi eraras, mi ne opinias, ke aglo el vidpunkto morala estas tiel supera. Nu, vi bone komprenas min. Heyl eĉ ne scias aŭ montras tion, kompreneble.
 
-Tute ne! Tamen li posedas ion spiritan, mi ne scias kion, sed li lernigas nin pensi, senti. Li malofte diras ion, sed kiam ni estas kune, jen la plej amuza, li igas min paro-270
-
-FANNY
-
-
-ladi. Mi malkovras, ke mi diras aferojn, pri kiuj mi neniam pensis, ke mi scias ilin. Li pensigas min pri aferoj, kiujn mi ne kuraĝus konsideri sola. Pri gravaj aferoj. Pri internaj aferoj.”
+Tute ne! Tamen li posedas ion spiritan, mi ne scias kion, sed li lernigas nin pensi, senti. Li malofte diras ion, sed kiam ni estas kune, jen la plej amuza, li igas min paroladi. Mi malkovras, ke mi diras aferojn, pri kiuj mi neniam pensis, ke mi scias ilin. Li pensigas min pri aferoj, kiujn mi ne kuraĝus konsideri sola. Pri gravaj aferoj. Pri internaj aferoj.”
 
 ŝi silentis dum momento, poste ŝi ekstaris, ĵetfermis la kofron kaj trenis ĝin al angulo de la ĉambro.
 
@@ -4619,9 +3669,6 @@ Fanny turnis sin rapide de la tualettablo, kie ŝi eltiris la pinglojn el sia ab
 ”Kion li diris pri mi, Ella, kion?”
 
 
-FANNY
-
-
 ”Plej ofte li insultas. Nun mi iros al mia ĉambro. Mi ne lunĉos ĉi tie, sed mi estos reen antaŭ la kvara por tiu refreŝiga ekskurseto, al kiu Fenger ne povis ne inviti min, ĉu vere? Se mi estus vi, mi kuŝiĝus mallongan tempon por alkutimigi miajn krurojn al surtera promenado anstataŭ la surferdeka.”
 
 Elirinte, ŝi ree metis la kapon tra la pordofendo:
@@ -4632,23 +3679,16 @@ Jes, nenio estas pli kvietiga ol oceanvojaĝo.”
 
 For ŝi estis. Fanny staris momenton senmove en la mezo de la ĉambro. ŝi ŝajnis esti tute vigla kaj gaja, tiel ke ĉiu, kiu vidus ŝin, supozus, ke ŝi estas ĉiam aktiva. ŝi iris al la fenestro kaj rigardis malsupren sur Novjorkon en junia tago. La somero ankoraŭ ne ŝanĝis la urbegon en fornegon el ŝtono kaj ŝtalo. De kie ŝi staris, ŝi povis vidi la verdaĵon de la parko kun arĝenta makulo en la mezo, tio estis la lago. ŝia spirito, kiu alie tiel regule funkciis, nun estis taŭzita de interpuŝiĝantaj pensoj, el kiuj neniu malvolviĝis. ŝi pensis pri Teodoro, sia frato, pri lia reveno. Lia progresado iris malrapide kaj malfacile. Eble estus estinta ŝia devo, ke ŝi helpu lin pli, ŝi ja ĉiam atendis, ĝis fine li petis helpon, kiun ŝi propra-iniciate povus esti doninta al li. ŝi forpuŝis ĉi tiun penson kaj spirite migris al . . . Fenger. Li diris: ”Damne!”
 
-kiam ŝi parolis pri Ella kaj lia voĉo estis . . . Denove ŝi 272
-
-FANNY
+kiam ŝi parolis pri Ella kaj lia voĉo estis . . . Denove ŝi
 
 
 forpelis tiun penson . . . Clarence Heyl . . . ”Li pensigis min pri aferoj, pri kiuj mi ne kuraĝus pensi sola, pri gravaj aferoj interne de mi.”
 
-Fanny turnis sin de la fenestro. ŝi konkludis, ke ŝi tamen estas laca, ke tio nepre estas vera, ĉar ŝi havas nun ĉion, kio povas fari sin feliĉa, Teodoro revenos, ŝia voja-
-
-ĝo al Eŭropo sukcesis. Ella kaj Fenger laŭdegis ŝin, hodiaŭ ŝi ankoraŭ veturos, trs teon kun ili kaj malgraŭ tio . . . ŝi sentis sin nekontenta kaj incitita. ŝi decidis iri malsupren por lunĉi kaj poste iom promeni, kvaronhoron, precize sufiĉe por eltrovi, ĉu Kvina Avenuo restis samaspekta. Estis duono post la unua, kiam ŝi atingis la
+Fanny turnis sin de la fenestro. ŝi konkludis, ke ŝi tamen estas laca, ke tio nepre estas vera, ĉar ŝi havas nun ĉion, kio povas fari sin feliĉa, Teodoro revenos, ŝia vojaĝo al Eŭropo sukcesis. Ella kaj Fenger laŭdegis ŝin, hodiaŭ ŝi ankoraŭ veturos, trs teon kun ili kaj malgraŭ tio . . . ŝi sentis sin nekontenta kaj incitita. ŝi decidis iri malsupren por lunĉi kaj poste iom promeni, kvaronhoron, precize sufiĉe por eltrovi, ĉu Kvina Avenuo restis samaspekta. Estis duono post la unua, kiam ŝi atingis la
 
 ĝenerale tiel regultrafikan avenuon. Nun tamen la tro-tuarojn kovris densa homamaso, kiu atendis. La rajdantaj policanoj brutrotigis la ĉevalojn por liberigi la mezan vojparton.
 
 Kio ajn estu, kio kunigis ĉi tie tiom da homoj, tio venos el la malsupra urbo kaj videble jam baldaŭ, ĉar ĉies rigardoj direktiĝis jam tien. Fanny, firme premita inter la homvicoj, starigis sin surpiedfingre, sed vane, ŝi nenion vidis. Tio memorigis ŝin pri la tago, en kiu venis cirko en Winnebagon, kiam ŝi estis ankoraŭ knabineto. Elm-strato ondumis pro urbanoj kaj farmistoj, ĉiuj rigardantaj al Cherry-strato. Malproksime aperis la muziko, kaj tiam sonis la krio: ”Jen ili venas!”
-
-
-FANNY
 
 
 Kaj ĝuste en tiu momento sonis same kiel tiam en Elm-strato de Winnebago: ”Jen ili venas!”
@@ -4667,9 +3707,7 @@ Fanny seniluziiĝis, sed nun estis al ŝi neeble eliĝi el la amaso. Iom post io
 
 ”Mi same,” diris Fanny.
 
-Kiam Fanny konatiĝis kun virino en densa homamaso, ŝi ĉiam inkliniĝis al babilado. Tion verŝajne ŝi heredis de sia patrino. La muziko proksimiĝis. Fanny rigardis sian poŝhorloĝon. Ankoraŭ ne la dua. Sekve ŝi restis 274
-
-FANNY
+Kiam Fanny konatiĝis kun virino en densa homamaso, ŝi ĉiam inkliniĝis al babilado. Tion verŝajne ŝi heredis de sia patrino. La muziko proksimiĝis. Fanny rigardis sian poŝhorloĝon. Ankoraŭ ne la dua. Sekve ŝi restis
 
 
 ankoraŭ iom, kvankam ŝia kapo estis ankoraŭ tro plena de impresoj el Eŭropo, tiel ke ĉi tiu spektaklo malmulte interesis sin, ŝi ne povis taksi ĝian valoron. Malgraŭ tio ŝi atendis.
@@ -4678,17 +3716,10 @@ La spektantvicoj puŝiĝis antaŭen, nun ne plu estis ”jen ili alvenas,” sed
 
 Trupo da rajdantaj policistoj sur fieraj ĉevaloj, la viroj mem fanfarone imponaj, antaŭe. Tuj tio faris, kiel ĉiam, impreson sur Fanny. Dua kolono da rajdistoj sekvis. Post tio la muzikistaro. Sekvis, tutblanke vestita, la rigardon fikse antaŭen, sur blanka ĉevalo, portante standardon, la juna vizaĝo malmildtrajta, la fama belulino kaj bata-lantino Mildred Innes. ŝi estis unu el tiuj famaj belulinoj, kiuj efektive estas belegaj. Malantaŭ ŝi aris virinoj, virinoj, torento da virinoj, centoj, miloj, estis serpentuman-ta vicaro el grupoj kun standardoj. Instruistinoj, advoka-tinoj, kuracistinoj, verkistinoj, studantinoj, virinoj tute blankvestitaj, junulinoj, knabinoj, grizharulinoj. Virino en invalidĉareto ridetis. Viro flanke de Fanny komencis ŝercmoki. Li estis junulo kun ruĝa, skvameca vizaĝo kaj dikaj lipoj. Li fumis cigaron kaj kriis per malalta, raŭka voĉo al la preterirantaj virinoj. ”Halo’, Sadie, halo’, knabino mia.” La virinoj pluenpaŝis kun seriozaj vizaĝoj kaj trankvilaj okuloj. La virinfluego ne ĉesis. Estis grupoj, kiuj speciale aranĝis sin, ili vestis sin per grekaj roboj.
 
-Fanny ne trovis ilin interesaj. Jen grupoj pli realistaj. Jen 275
-
-FANNY
+Fanny ne trovis ilin interesaj. Jen grupoj pli realistaj. Jen
 
 
-grupo tre stranga, mizeraspekta, tragedisimila. Sur la standardo Fanny legis: ”Konfekcikudristinoj, infanvesta sekcio.” ĉe la kapo marŝis knabino, kiu portis bastonon, kiu estis tro dika kaj peza. ŝi estis nur malgranda, malgranda eĉ kompare kun la aliaj, palaj, neplenkreskintaj, nesufiĉe nutritaj junulinoj. La tuko flirtis maloportune pro la vento. Kredeble ŝi estis rusa judino. ŝiaj ŝuoj estis neportinde difektitaj. La ŝupintoj krispruliĝis, la kalkanumoj estis stumpeluzitaj. ŝiaj vestoj estis speco de parodio pri kvazaŭ praa modo. Sed en ŝia mieno, kiel ŝi marŝis tie kun la flirtanta standardo, kuŝis rigardo tia, kian oni ofte vidas sur pentraĵoj de Jeanne d’Arc. Tiu esprimo sur ŝia vizaĝo estis historia tragedio. En ĝi kuŝis historio de popolo. En ĝi kuŝis la rakonto pri multjara subpremado en Rusujo. Oni povus vidi en ĝi la luktan-tajn grupojn da studantaj intelektuloj, kiuj en sekreta loko kunvenis por obtuze, sed fiere interparoli. Oni vidis en ĝi la nepriskribeblan mizeron de Siberujo. Oni vidis en ĝi la progromojn kaj masakrojn de Kievo kaj Kisinevo. Oni vidis mallumajn, mallarĝajn stratojn, zorge ŝlositajn fenestrojn kaj malantaŭ tiuj fenestroj la varman, flavan ardon de la sepbraka ”sabbos”-lumo. Super tio ŝvebis la aŭreolo de kuraĝo de raso, kiu sanktiĝis per la scio, ke ĝi ne povos formorti. ĉion ĉi oni povus vidi en tiu unu mizerplena vizaĝo sub la standardo, ĉion ĉi tion, heligitan per la brilo de espero, kiu pensigis pri la Kruec-276
-
-FANNY
-
-
-militantoj. ĉi tiu virinmovado, ĉi tiu agado de la batalan-tinoj por voĉdonrajto, estis por la spirito de ĉi tiu nesufiĉe nutrita, revema, sentema rusa kudristino, kiu pro tromulta legado estis hiperekscitita, la glora rimedo por atingi sopire deziratan celon. ŝi idealigis ĉi tiun mova-don per sia imago, eco de ŝia raso. ŝi imagis en ĝi la pro-mesojn, eble neniam realiĝontaj al ŝi. ŝi tiel daŭre marŝis kaj fiere portis sian flagon, mizera, sed samtempe gro-teska, grandioza figuro. ŝi estis pli ol figuro, ŝi estis sim-bolo.
+grupo tre stranga, mizeraspekta, tragedisimila. Sur la standardo Fanny legis: ”Konfekcikudristinoj, infanvesta sekcio.” ĉe la kapo marŝis knabino, kiu portis bastonon, kiu estis tro dika kaj peza. ŝi estis nur malgranda, malgranda eĉ kompare kun la aliaj, palaj, neplenkreskintaj, nesufiĉe nutritaj junulinoj. La tuko flirtis maloportune pro la vento. Kredeble ŝi estis rusa judino. ŝiaj ŝuoj estis neportinde difektitaj. La ŝupintoj krispruliĝis, la kalkanumoj estis stumpeluzitaj. ŝiaj vestoj estis speco de parodio pri kvazaŭ praa modo. Sed en ŝia mieno, kiel ŝi marŝis tie kun la flirtanta standardo, kuŝis rigardo tia, kian oni ofte vidas sur pentraĵoj de Jeanne d’Arc. Tiu esprimo sur ŝia vizaĝo estis historia tragedio. En ĝi kuŝis historio de popolo. En ĝi kuŝis la rakonto pri multjara subpremado en Rusujo. Oni povus vidi en ĝi la luktan-tajn grupojn da studantaj intelektuloj, kiuj en sekreta loko kunvenis por obtuze, sed fiere interparoli. Oni vidis en ĝi la nepriskribeblan mizeron de Siberujo. Oni vidis en ĝi la progromojn kaj masakrojn de Kievo kaj Kisinevo. Oni vidis mallumajn, mallarĝajn stratojn, zorge ŝlositajn fenestrojn kaj malantaŭ tiuj fenestroj la varman, flavan ardon de la sepbraka ”sabbos”-lumo. Super tio ŝvebis la aŭreolo de kuraĝo de raso, kiu sanktiĝis per la scio, ke ĝi ne povos formorti. ĉion ĉi oni povus vidi en tiu unu mizerplena vizaĝo sub la standardo, ĉion ĉi tion, heligitan per la brilo de espero, kiu pensigis pri la Kruecmilitantoj. ĉi tiu virinmovado, ĉi tiu agado de la batalan-tinoj por voĉdonrajto, estis por la spirito de ĉi tiu nesufiĉe nutrita, revema, sentema rusa kudristino, kiu pro tromulta legado estis hiperekscitita, la glora rimedo por atingi sopire deziratan celon. ŝi idealigis ĉi tiun mova-don per sia imago, eco de ŝia raso. ŝi imagis en ĝi la pro-mesojn, eble neniam realiĝontaj al ŝi. ŝi tiel daŭre marŝis kaj fiere portis sian flagon, mizera, sed samtempe gro-teska, grandioza figuro. ŝi estis pli ol figuro, ŝi estis sim-bolo.
 
 Fanny sekvis ŝin per la okuloj, ĝis fine ŝi ne plu povis vidi ŝin. ŝi viŝis per la mano sian vangon, kiu estis malseka. ŝi staris, kaj la procesio preterpasis, ŝajne senfina kaj ŝi vidis ĝin tra nebulo; muziko, standardoj, ree muziko kaj inter ili virinoj, virinoj, nur virinoj.
 
@@ -4696,12 +3727,7 @@ Fanny sekvis ŝin per la okuloj, ĝis fine ŝi ne plu povis vidi ŝin. ŝi viŝi
 
 ”Vi estas prava,” diris la virino; ”vi vere estas tre prava,” kaj ŝi ridis, ĉar ankaŭ ŝi ploris. Kaj subite ŝi faris ion surprizan. Perkubute ŝi traboris sin tra la amaso, preter la ruĝvizaĝan viron kun la cigaro kaj ŝi antaŭenkuris, engrupigis sin kaj kunmarŝis en la vicoj, la bruston an-taŭen, la kapon altlevata.
 
-Fanny rigardis sian brakhorloĝon. Estis kvarono post la kvara. ŝia emociiĝo eliĝis per retenata singulto, ŝi ko-277
-
-FANNY
-
-
-mencis liberigi sin el la amaso, estis luktado, pro kiu ŝi ricevis plurajn skrapojn kaj ŝirojn. Senspira, varmega kaj sen poŝtuko ŝi atingis senhoman flankstraton, tiel ke ŝi povis eniri post kelkaj minutoj sian hotelon. En la vestiblo atendis Ella kaj Fenger, Ella enuante, Fenger kolera.
+Fanny rigardis sian brakhorloĝon. Estis kvarono post la kvara. ŝia emociiĝo eliĝis per retenata singulto, ŝi komencis liberigi sin el la amaso, estis luktado, pro kiu ŝi ricevis plurajn skrapojn kaj ŝirojn. Senspira, varmega kaj sen poŝtuko ŝi atingis senhoman flankstraton, tiel ke ŝi povis eniri post kelkaj minutoj sian hotelon. En la vestiblo atendis Ella kaj Fenger, Ella enuante, Fenger kolera.
 
 ”Kie vi restas, en nomo de la ĉielo?” komencis Ella.
 
@@ -4726,9 +3752,6 @@ Ella interrompis ĉi tiun penson.
 ”Mi bedaŭras, vere. Ni iru, mi estas preta.”
 
 
-FANNY
-
-
 ”Vi eraras, viaj haroj aspektas kiel broso, kaj viaj okuloj nu . . .”
 
 Fenger metis la manon sur ŝian brakon kaj diris: ”Iru momenton al via ĉambro . . . Iom da pudro, ne rapidu, mia intenco estas fari plezuran veturadon.”
@@ -4739,9 +3762,7 @@ Kiam ŝi revenis en alia bluzo, kun aliaj gantoj, neniu postsigno estis videbla 
 
 Estis neeble suriri Kvinan Avenuon. Ili laŭiris Madison Avenuon al la parko. La Plaza estis movplena de lacaj partoprenintinoj al la procesio, kiu ankoraŭ daŭre marŝis sur Kvina Avenuo. Fenger tute ne atentis tion. Li tuj komencis paroli pri la Eŭropa vojaĝo. Fanny rakontis al li ĉiujn detalojn. ŝi ripetis, kion ŝiaj leteroj kaj telegramoj jam sciigis. Fenger estis pli ekscitita ol Fanny iam vidis lin. Li mikse demandis, kritikis, laŭdis ŝin kaj faris konkludon el ĉiu parto de la konversacio. enerale li ne interesiĝis pri la labormetodo, sed pri la rezulto.
 
-Fanny kontraŭe, unufoje plenuminte sian taskon, malmulte interesiĝis pri la atingita. La milionoj, amasigitaj ĉe Haynes-Cooper ne tuŝis ŝin, nur la maniero, en kiu ili 279
-
-FANNY
+Fanny kontraŭe, unufoje plenuminte sian taskon, malmulte interesiĝis pri la atingita. La milionoj, amasigitaj ĉe Haynes-Cooper ne tuŝis ŝin, nur la maniero, en kiu ili
 
 
 estis kolektataj. Ella aŭskultis kun la konscio de iu, kiu admiras la superan laboron de kolegino.
@@ -4762,14 +3783,10 @@ La vizaĝo de Fanny pli sereniĝis ol ĝi estis dum la tuta veturado. Ili iris e
 
 ”Mi jam ekhavis la impreson, ke ĝi estas senkreskaĵa,
 
-ĝi similas maldikan maljunulinon, ĝi neniel similas nian 280
-
-FANNY
+ĝi similas maldikan maljunulinon, ĝi neniel similas nian
 
 
-boskohavan abundbelan florpienan parkon, niajn rozo-
-
-ĝardenojn. Sed kiel ajn, ĝia sobreco impresas min, ekzemple tiu herbeja makulo, en la malfrua posttagmezo kun sia nebulo, la malhelrozkolora aero kaj tiu lumrek-lamo, tiuj elektraj literoj pri ’Ies pneumatikoj’ aŭ kies ajn, kiuj intermite brilegas.”
+boskohavan abundbelan florpienan parkon, niajn rozoĝardenojn. Sed kiel ajn, ĝia sobreco impresas min, ekzemple tiu herbeja makulo, en la malfrua posttagmezo kun sia nebulo, la malhelrozkolora aero kaj tiu lumrek-lamo, tiuj elektraj literoj pri ’Ies pneumatikoj’ aŭ kies ajn, kiuj intermite brilegas.”
 
 ”Vi estas stranga knabino!” Fenger interrompis ŝin, ”vi estas tute senesprima, kvazaŭ indiano, kiam ni parolas pri milionoj kaj fariĝas subite lirika, parolante pri verm-rodita parto de parko kun subiranta suno kaj elektra reklamilo. Ho, eble tio faras vin tia, kia vi estas.”
 
@@ -4783,12 +3800,7 @@ Fenger estis homo, al kiu la kelneroj ĉiam disponigas tableton, kies loko havig
 
 Dum la tuta tempo, kiun ni pasigis veturante kaj trinkante.”
 
-Efektive la procesio ankoraŭ ne finiĝis. Miloj da virinoj preterfluis kiel senfina rivero. Ili ĉiam estis marŝan-281
-
-FANNY
-
-
-taj. Kion oni ne povis atingi per plumo kaj vortoj, per alvokoj pro justeco kaj samrajteco, oni klopodis akiri per la bruta forto de la multnombro. Ses horojn jam la strato blankiĝis de la homa ondo en blankaj vestoj. La ruĝ-
+Efektive la procesio ankoraŭ ne finiĝis. Miloj da virinoj preterfluis kiel senfina rivero. Ili ĉiam estis marŝantaj. Kion oni ne povis atingi per plumo kaj vortoj, per alvokoj pro justeco kaj samrajteco, oni klopodis akiri per la bruta forto de la multnombro. Ses horojn jam la strato blankiĝis de la homa ondo en blankaj vestoj. La ruĝ-
 
 vizaĝa gapisto, kiu antaŭ kelkaj horoj staris apud Fanny, jam delonge ĉesigis sian insultadon kaj li foriris, li enue-gis. Insultado al dek, kvindek aŭ cent, eĉ al kvincent virinoj estis eltenebla, sed al kvardek mil, tio montriĝis neebla.
 
@@ -4797,9 +3809,6 @@ La aŭtomobilo ĉirkaŭsvingiĝis laŭ la angulo de Madison Avenuo kaj Fenger tu
 ”ĉu tio ne estas iom troigita?” li diris. ”Aliflanke, kion ili ja celas? Kompreneble mi ne agados kontraŭ ili. Tiuj miloj da virinoj fine nur efikos per la granda nombro. Se ekzistus iu, kiu povus kunmeti en unu objekton, same forte imponantan, kiel ĉi tiu granda nombro, ĉifron, por montri al la lando, . . . kiu povus impresi sammanie-re . . .”
 
 Fanny subite eksaltante petis: ”Haltigu la aŭtomobilon, mi devos eliri momenton.”
-
-
-FANNY
 
 
 Fenger kaj Ella mire rigardis.
@@ -4833,9 +3842,6 @@ Ella rigardis al Fanny, sed Fanny skuis la kapon.
 ”ĉar mi kredas, ke mi estas iom laca kaj mi havos ion alian por fari.”
 
 
-FANNY
-
-
 Fenger penetre rigardis sin, sed ŝi ne atentis tion. Ella ne estis korpremita. Fanny etendis la manon.
 
 ”ĉu vi morgaŭ reiros?” demandis Fenger. ”Mi restos
@@ -4850,20 +3856,14 @@ La pordo de la lifto fermiĝis kaj Fenger kun sia kolera mieno ne plu estis vide
 
 ”Ho, kiel ekscitema kaj facile ofendebla estas ĉi tiu viro!” diris Ella. ”Mi vere ĝojas, ke vi malakceptis, mi estas mortlaca. Mi nur deziras kimonon por la resto de la vespero.”
 
-Fanny ŝajnis apenaŭ aŭskulti ŝin. Post kapsaluto al Ella ŝi eniris sian ĉambron. Kaj tie ŝi ne plu estis malrapida. Mantelon kaj ĉapelon ŝi ĵetis sur la liton. ŝi ŝaltis ĉiujn lumojn, trenportis sian valizon sur la tablon, ŝovis la tablon kontraŭ la muron, renversis la valizon, tiel ke la plej glata flanko turniĝis supren kaj aranĝis sur tiu improvizita tabulo folion da papero. ŝi sovis sian seĝon tute apude kaj serĉis en sia pako la ĵus aĉetitajn krajoningojn. ŝiaj okuloj sin direktis al la blanka papero. La tablo posedis subbreton, kio malhcipis al Fanny krucigi la krurojn kaj tio ĝenis sin. Tiam ŝi pretigis siajn krajoningojn, sidis en nekonscia protesto, frotante la ti-biojn kontraŭ la breto. ŝi ekstaris, trairis la ĉambron, 284
-
-FANNY
+Fanny ŝajnis apenaŭ aŭskulti ŝin. Post kapsaluto al Ella ŝi eniris sian ĉambron. Kaj tie ŝi ne plu estis malrapida. Mantelon kaj ĉapelon ŝi ĵetis sur la liton. ŝi ŝaltis ĉiujn lumojn, trenportis sian valizon sur la tablon, ŝovis la tablon kontraŭ la muron, renversis la valizon, tiel ke la plej glata flanko turniĝis supren kaj aranĝis sur tiu improvizita tabulo folion da papero. ŝi sovis sian seĝon tute apude kaj serĉis en sia pako la ĵus aĉetitajn krajoningojn. ŝiaj okuloj sin direktis al la blanka papero. La tablo posedis subbreton, kio malhcipis al Fanny krucigi la krurojn kaj tio ĝenis sin. Tiam ŝi pretigis siajn krajoningojn, sidis en nekonscia protesto, frotante la ti-biojn kontraŭ la breto. ŝi ekstaris, trairis la ĉambron,
 
 
 staris maldecide momenton, levis fadenon de la planko kaj residiĝis. ŝi prenis sian krajonon, rulis ĝin inter la fingroj, tiam subite ĉirkaŭpremis la krurojn de sia seĝo per la piedopintoj, komencis desegni, unue hezite, ne certe, nerve, sed iom post iom pli firme kaj decideme.
 
-Kiu tiam starus malantaŭ ŝi, povus vidi, ke ŝia krajono sorĉas sur la blanka papero maldikan, mizeran figureton kun fiere levita, ravita vizaĝo sub ĉapelaĉo. La jupo flirtis pro la vento, kiu skuis ankaŭ la bastonon de la standardo, kiun ŝi tiel karese penportis. La homamaso ambaŭ-
+Kiu tiam starus malantaŭ ŝi, povus vidi, ke ŝia krajono sorĉas sur la blanka papero maldikan, mizeran figureton kun fiere levita, ravita vizaĝo sub ĉapelaĉo. La jupo flirtis pro la vento, kiu skuis ankaŭ la bastonon de la standardo, kiun ŝi tiel karese penportis. La homamaso ambaŭflanke de la strato nur malklare estis videbla, same kiel la aliaj knabinoj, kiuj estis gvidataj de la ĉefulino. Nur ĉi tiu ĉeffiguro akre, forte konturelstaris super la grupo. La artista kaj komerca animoj de Fanny komune prizorgis la detalojn, neniun ŝi forgesis. La malĝusta piedo en la malĝusta ŝuspeco, la absurda ĉapelo, la eluzita jupo, ĉio abomeninda, ĉiu ero estis tiel forte prezentita, por ke la rava gloro de la mieno plej emfaze kontrastu. La vizaĝo de Fanny Brandeis pro samaj raviteco kaj gloro pliheli-
 
-flanke de la strato nur malklare estis videbla, same kiel la aliaj knabinoj, kiuj estis gvidataj de la ĉefulino. Nur ĉi tiu ĉeffiguro akre, forte konturelstaris super la grupo. La artista kaj komerca animoj de Fanny komune prizorgis la detalojn, neniun ŝi forgesis. La malĝusta piedo en la malĝusta ŝuspeco, la absurda ĉapelo, la eluzita jupo, ĉio abomeninda, ĉiu ero estis tiel forte prezentita, por ke la rava gloro de la mieno plej emfaze kontrastu. La vizaĝo de Fanny Brandeis pro samaj raviteco kaj gloro pliheli-
-
-ĝis, proporcie je la finiĝo de la bildo. ŝi rapide laboris, fine ŝi formetis la krajonon, klinis sin antaŭen, rigardante kritike la skizon tra la okulharoj. ŝi estis kontenta. ŝiaj haroj distaŭziĝis, ŝiaj vangoj estis ruĝaj pro ekscito. Poste ŝi komencis prilabori la desegnaĵon per per firmaj, fortaj linioj. Dumlabore de tempo al tempo eliĝis el ŝia brusto mallaŭte plorĝemeto pro kontentiĝo. Tiel ŝi 285
-
-FANNY
+ĝis, proporcie je la finiĝo de la bildo. ŝi rapide laboris, fine ŝi formetis la krajonon, klinis sin antaŭen, rigardante kritike la skizon tra la okulharoj. ŝi estis kontenta. ŝiaj haroj distaŭziĝis, ŝiaj vangoj estis ruĝaj pro ekscito. Poste ŝi komencis prilabori la desegnaĵon per per firmaj, fortaj linioj. Dumlabore de tempo al tempo eliĝis el ŝia brusto mallaŭte plorĝemeto pro kontentiĝo. Tiel ŝi
 
 
 ĝemetis antaŭ multaj jaroj en Winnebago, kiam ŝi figuris la farmiston Schabelitz en la fama violonisto — kiam ŝi ankoraŭ portis tiun ruĝan bireton.
@@ -4883,9 +3883,6 @@ Silento sekvis, poste: ”Mi ne sciis, ke vi povas tiel bone desegni.”
 Fanny formetis la plumon: ”Kiel bone?”
 
 
-FANNY
-
-
 ŝi forordigis la harojn kaj ekstaris. La skizo, ankoraŭ malseka, kuŝis sur la kofreto. Fanny iris tien kaj reen en la ĉambro. Ella sidigis sin sur ŝian seĝon, tiel ke Fanny, reveninte al la tablo, siavice rigardis trans la ŝultro de Ella. La impreso sur Ella montriĝis per la vortoj: ”Kiaj malfavoratinoj, ili estas, ili ja malhavas tiom.”
 
 Ambaŭ virinoj rigardis silentaj la bildon de la knabino. Tiam Fanny iris al la lito, prenis ĉapelon kaj mantelon. ŝi ordigis la harojn, pudris sian vizaĝon, aranĝis la ĉapelon en maniero, kiu estis laŭmoda ĉe Galeries La Fayette en Parizo. ŝi iris al la tablo, prenis sian plumon kaj per grandaj presliteroj ŝi skribis sub la desegnaĵo:
@@ -4896,9 +3893,7 @@ Kun la seka desegnaĵo en la mano ŝi eliris la ĉambron, ridetante al la surpri
 
 Estis jam post la oka, kiam ŝi atingis la kontoron de la
 
-”Star”-gazeto. ŝi petis pri Lasker mem kaj transdonis sian nomkarteton. Heyl rakontis al ŝi, ke Lasker plej ofte vespere je la oka estas en sia kontoro. Fanny Brandeis bone sciis, ke mezkvalita junulino, atendanta ekster la kontoro de viro, kia Lasker, dependas de la komplezo de kontorbubo kaj sekretario kaj ĝenerale atendadas ĝis fine ŝi senesperiĝe rezignas pri interparolado. Sed Fanny ankaŭ sciis, ke ŝi ne estas mezkvalita juna virino. ŝi, eĉ supraĵe rigardate, tuj jam havigis aŭtoritatan kaj distingiĝan impreson. ŝi posedis la kvietan certecon, kiu 287
-
-FANNY
+”Star”-gazeto. ŝi petis pri Lasker mem kaj transdonis sian nomkarteton. Heyl rakontis al ŝi, ke Lasker plej ofte vespere je la oka estas en sia kontoro. Fanny Brandeis bone sciis, ke mezkvalita junulino, atendanta ekster la kontoro de viro, kia Lasker, dependas de la komplezo de kontorbubo kaj sekretario kaj ĝenerale atendadas ĝis fine ŝi senesperiĝe rezignas pri interparolado. Sed Fanny ankaŭ sciis, ke ŝi ne estas mezkvalita juna virino. ŝi, eĉ supraĵe rigardate, tuj jam havigis aŭtoritatan kaj distingiĝan impreson. ŝi posedis la kvietan certecon, kiu
 
 
 kutimas esti traktata distinginde. ŝi estis juna, bela, ĉar-ma. ŝi portis ĉapelon kaj mantelon el Parizo kaj sekretario ja nur estas homo.
@@ -4909,9 +3904,7 @@ Fanny eniris. Lasker formetis ŝian karteton.
 
 ”Brandeis . . . nu bona nomo.”
 
-Li etendis la manon. Li estis vestita per smokingo, portis blankan floron en la butontruo. Videble li ĵus revenis de festena manĝo aŭ li estis ĉeestonta oficialan kunvenon. Fanny momenton rigardis mirigite pro tio kaj Lasker kaptis tiun rigardon. Lia rapida menso tuj komprenis. Li proponis seĝon al ŝi kaj ridante diris: 288
-
-FANNY
+Li etendis la manon. Li estis vestita per smokingo, portis blankan floron en la butontruo. Videble li ĵus revenis de festena manĝo aŭ li estis ĉeestonta oficialan kunvenon. Fanny momenton rigardis mirigite pro tio kaj Lasker kaptis tiun rigardon. Lia rapida menso tuj komprenis. Li proponis seĝon al ŝi kaj ridante diris:
 
 
 ”Sidiĝu, fraŭlino Brandeis. Vi eble opinias, ke mi aspektas kiel gazetestro en iu novelo, ĉu ne? Per kio mi povos servi vin?”
@@ -4933,9 +3926,6 @@ Li subite laŭte kriis: ”Knabo,” kaj donis al li poste kelkajn komisiojn. Tu
 Li penetre rigardis ŝin, esplore: ”ĉu vi ĉiam rigardis la aferojn de tiu flanko?”
 
 ”Jes.”
-
-
-FANNY
 
 
 ”Estas neniu desegnistino en Novjorko, kiu liveras tiel purhoman materialon, ĉu vi scias tion?”
@@ -4960,9 +3950,7 @@ Lia sperta okulo malkovris ĉiun detalon de ŝiaj vestoj, ĉapelo, ŝuoj, gantoj
 
 ”Dankon,” diris Fanny kviete kaj ŝi adiaŭis. ŝi iris reen per la metroo. Estis vagonaro, veninta de la Bronx-kvartalo, plena de lacaj vizaĝoj, senbrilaj okuloj, polvokovritaj barboj, malgraciaj knabinoj kun kavaj okuloj kaj malpurigitaj blankaj ŝuoj, viroj kun mallevigantaj ŝultroj, legantoj de gazetoj kun hebreaj literoj, vagonaro kun strangaj odoroj kaj sonoj.
 
-Kompreneble morgaŭ venos la reakcio. La racio, saĝo, refoje kaptos ŝin en sia malvarma logiko, sed ĉi tiun vesperon ŝi sentis sin radianta pro la eksciteco, ekestanta 290
-
-FANNY
+Kompreneble morgaŭ venos la reakcio. La racio, saĝo, refoje kaptos ŝin en sia malvarma logiko, sed ĉi tiun vesperon ŝi sentis sin radianta pro la eksciteco, ekestanta
 
 
 pro kreokapablo. En tiu stato ŝi troviĝis kaj ripetis al si interna voĉo:
@@ -4970,10 +3958,7 @@ pro kreokapablo. En tiu stato ŝi troviĝis kaj ripetis al si interna voĉo:
 ”Tio estas miaspecaj homoj. Ili ĉiuj estas miaj homoj!”
 
 
-FANNY
-
-
-ĉAPITRO XVI.
+ĈAPITRO XVI.
 
 La ŝipo, kiu portis Teodoron al Ameriko, estis la lasta de tiu speco, kiu forlasis la germanan havenon.
 
@@ -4981,14 +3966,10 @@ Dum multaj jaroj poste eliris nur militŝipoj, ĉar unu tagon post la forveturo 
 
 Fanny estis unu el tiuj milionoj da usonanoj, kiuj rifuzis akcepti la ideon pri milito. ŝi rigardis ĝin persona ofendo. Tio estis neciviliza, antikva kaj malkonvena. Precipe malkonvena. ŝi ĵus estis reveninta de Eŭropo, kie ŝi intertraktis pri milionkvantaj mendoj. Milito povus signifi, ke ŝi ne ricevos la menditajn varojn. Sekve por ŝi milito ne estis dezirinda.
 
-Teodoro alvenis en la unua semajno de aŭgusto. Fanny liberigis sin du tagojn el la vendejaąoso por akcepti lin en Novjorko. Sed nun ŝiaj okuloj, ŝiaj pensoj, longe subpremitaj sopiroj, emocio, ĉio koncentriĝis al la vasta, minace proksimiĝanta ŝipkorpo. La homamaso, kiu atendis la vaporŝipon estis nenormale granda. La emocio sur la kajo de Hoboken ĉife estis ankoraŭ pli frapa ol iam ajn, la amaso troviĝis en streĉa atendo, kiu inklinis al angoro, histerio. La matengazetoj ricevis sendratan 292
-
-FANNY
+Teodoro alvenis en la unua semajno de aŭgusto. Fanny liberigis sin du tagojn el la vendejaąoso por akcepti lin en Novjorko. Sed nun ŝiaj okuloj, ŝiaj pensoj, longe subpremitaj sopiroj, emocio, ĉio koncentriĝis al la vasta, minace proksimiĝanta ŝipkorpo. La homamaso, kiu atendis la vaporŝipon estis nenormale granda. La emocio sur la kajo de Hoboken ĉife estis ankoraŭ pli frapa ol iam ajn, la amaso troviĝis en streĉa atendo, kiu inklinis al angoro, histerio. La matengazetoj ricevis sendratan
 
 
-sciigon, ke la vaporŝipo estis persekutata de franca ra-pidvaporŝipo kaj nur la interveno de la germana krozo-
-
-ŝipo ”Dresden” ebligis al ĝi eskapi. Tio kompletigis la streĉiĝon. La plimulto de la atendantoj staris kun larm-plenaj okuloj, rigardante al la homplenaj ferdekoj. La sa-lutvokoj estis pli kortuyaj ol kutime.
+sciigon, ke la vaporŝipo estis persekutata de franca ra-pidvaporŝipo kaj nur la interveno de la germana krozoŝipo ”Dresden” ebligis al ĝi eskapi. Tio kompletigis la streĉiĝon. La plimulto de la atendantoj staris kun larm-plenaj okuloj, rigardante al la homplenaj ferdekoj. La sa-lutvokoj estis pli kortuyaj ol kutime.
 
 ”ĉu vi vidas ŝin?”
 
@@ -5000,16 +3981,11 @@ La okuloj de Fanny serĉis laŭlonge de la homdensaj pavezoj — ”Ted!” ŝi 
 
 ŝi ankoraŭ ne vidis lin. ŝi serĉis grandan, blondan junulon, kun revaj okuloj kaj ridanta buŝo kun buklo, kiu intencas sin liberigi de la hararo, netrakteble pendanta sur lia frunto. Eble ŝi serĉis la knabon kun la mallonga pantalono kaj la malnova konata violunujo sub la brako.
 
-Subite ŝi vidis lin en neimagebla maskovesto. ŝi vidis lin, rekonis lin, malgraŭ la fakto, ke la afabla junulo ŝan-
-
-ĝiĝis en viron. Liaj haroj estis laŭ germana kutimo bros-forme tonditaj. Lia vizaĝo aspektis zorgovelkinta, pli majuna ol ŝi povis imagi al si. Liaj tuta eksteraĵo, personeco, vestoj, sinteno kaj ĉio alia nerefuteble distingiĝis.
+Subite ŝi vidis lin en neimagebla maskovesto. ŝi vidis lin, rekonis lin, malgraŭ la fakto, ke la afabla junulo ŝanĝiĝis en viron. Liaj haroj estis laŭ germana kutimo bros-forme tonditaj. Lia vizaĝo aspektis zorgovelkinta, pli majuna ol ŝi povis imagi al si. Liaj tuta eksteraĵo, personeco, vestoj, sinteno kaj ĉio alia nerefuteble distingiĝis.
 
 ĉio estis karakterize germana. ŝi vidis lin kaj li estis ŝia frato kaj ŝi estis lia fratino kaj ŝi etendis la manojn al li.
 
 ”Teddy!”
-
-
-FANNY
 
 
 ŝi ĉirkaŭbrakis lin preme kaj kaŝis sian kapon kontraŭ lia ŝultro.
@@ -5035,9 +4011,6 @@ Sonis tragedio en lia voĉo, ne estis profane! Li prenis ŝiajn manojn kaj nur t
 1 Fripono.
 
 
-FANNY
-
-
 ”ŝi ne kuniris.”
 
 ”Ne kuniris?”
@@ -5055,9 +4028,6 @@ Fanny ridis kaj prenis lian manon, premis ĝin sur la brusto kaj karesis ĝin.
 ”Kaj vi aspektas kiel ilustraĵo de ”Fliegende Blätter.”
 
 Tion ne nur la vestoj kaŭzas, ankaŭ via vizaĝo estas germana. Kio koncernas la malgrandan Mizzi,” . . . ŝi prenis la bebon ree sur la brakojn . . . ”vi ankoraŭ ne klarigis tiun nomon Mizzi, kial ĝuste Mizzi, ja estas tiom da nomoj en la mondo, kial Mizzi?”
-
-
-FANNY
 
 
 Teodoro ridis pli grimace ol gaje.
@@ -5085,9 +4055,6 @@ La dika virino sur la kontraŭa sidloko, kiu daŭre skuis sian kapon, nun minaci
 1 ”Kio estas via nomo?”
 
 
-FANNY
-
-
 ŝi turnis sin al Teodoro.
 
 ”Nun trankviliĝu fine, sidu kviete kaj se vi absolute volas firme preni tiun violonujon, nu, faru tion iom pli elegante. Nun ni ankoraŭ ne povas paroli, babili. Novjorko estas terura en aŭgusto. Morgaŭ matene ni prenos vagonaron al ĉikago. Kie mi loĝas, estas rave malvarma, alta kaj kvieta loko kaj la lago verdire kuŝas antaŭ la pordo. Hodiaŭ vespere ni verŝajne povos priparoli ion kaj
@@ -5099,9 +4066,6 @@ Tiam la viro refoje fariĝis knabo. La vizaĝo kuntiriĝis iom dolore, lia kapo 
 Fanny zorgis pri la hotelĉambroj, pri beboflegado, pri la fervojbiletoj, pri la mendoj, la manĝoj. Teodoro estis kvazaŭ fremdulo en fremda lando. Krom tio li tute ne ŝajnis povonta superi tion.
 
 ”Mi certe paroligos lin, hodiaŭ vespere,” Fanny diris al si mem, ”neniam ĉi tiu ĉargreniĝa esprimo foriĝos el lia mieno, se li ne rakontos ĉion al mi. Mi ja sciis, ke ŝi estas besto!”
-
-
-FANNY
 
 
 ŝi devigis lin ripozi iom, dum ŝi prizorgis la pakaĵojn kaj la biletojn. ŝi forrestis du horojn. Kiam ŝi revenis, li sidis ridanta, terurita kaj senhelpa samtempe, antaŭ tri ĵurnalistoj kaj gazeta verkistino, kiuj bombardis lin per demandoj. La virinon akompanis desegnisto, kiu okupis sin pri skizo de Teodoro kun ties kompatonveka vizaĝo.
@@ -5121,18 +4085,13 @@ Unu el ili klarigis:
 ”Ni havas kompreneble liston de la pasaĝeroj de la ŝipo kaj ni sciis, ke sinjoro Brandeis estas germana violonisto. Krom tio estis la rakonto pri la franca militŝipo, kiu persekutis . . . Sur la kajo ni ne sukcesis renkonti lin.”
 
 
-FANNY
-
-
 ”Sed li ne estas germana violonisto!” interrompis Fanny, ”Nepre atentigu pri tio. Li estas usonano, li estas nia usona violonisto — aŭ fariĝos tio, tuj kiam lia koncertvi-co komenciĝos. Estis Schabelitz mem, kiu eltrovis mian fraton kaj aŭguris al li brilan karieron. Atendu momenton!” — ŝi rigardis foje la laboron de la desegnisto, —
 
 ”ĉu vi permesas al mi fari skizon de li, nur proamuze. Mi sufiĉe laŭdinde scipovas desegni portretojn. ĉu vi vidis mian skizon en la gazeto ”Star,” la ”Procesianino,” okaze de la demonstracio de la virinoj pro la balotrajto en majo? Jes, tiu estis mia! ĉar li nun portas brose tonditajn harojn kiel buĉisto, li ja ne estas germano, ne supozu tion. Vi ja ne volos aserti, ke Winnebago, Wisconsin situas en Germanujo?”
 
 ŝi skizis rapide, bone kaj majstre. ŝi subtile distingi-gis ĉion en lia mieno: ŝi figuris la sufertrajton, la knabecan; la eksterlandan, kiun ŝi ne tute povis ignori, ŝi pre-tertuŝe reliefigis. ŝi intence faris tion, ĉar ŝi sciis, kiom valoras stranga, eksterlanda aspekto, el reklamvidpuk-to. Desegnante ŝi babilis kaj ŝi implikis nerimarkeble Teodoron en la konversacion, ĝuste kiam tio estis necesa.
 
-ŝi rakontis al ili kredindan fabelon pri tio, pro kio li venis el Eŭropo. ŝi tuŝis eĉ la malgrandan Mizzi kaj la dikan Otti por ornami la fabelon, ŝi eĉ atentigis pri la bona ortografio de tiuj nomoj. Pri Olga ŝi parolis supraĵe. ŝi estis malsana, ne povis kuniri lastmomente, ŝi ne volis 299
-
-FANNY
+ŝi rakontis al ili kredindan fabelon pri tio, pro kio li venis el Eŭropo. ŝi tuŝis eĉ la malgrandan Mizzi kaj la dikan Otti por ornami la fabelon, ŝi eĉ atentigis pri la bona ortografio de tiuj nomoj. Pri Olga ŝi parolis supraĵe. ŝi estis malsana, ne povis kuniri lastmomente, ŝi ne volis
 
 
 malhelpi la rondvojaĝon de sia edzo. ŝi finis la skizon kaj donis ĝin al la raportistino. Estis belega pruvo de ŝia talento. Eble ĝi ne estus tiel belega, se oni konsiderus tion, kion ŝi efektive ŝajnigis per ĝi. Post tio ŝi adiaŭis ilin en takta maniero. Forirante, ili sciis ĉion, kion Fanny opiniis necesa kaj scienda kaj ŝi divenigis ilin pri tio, kio nepre estis divenenda.
@@ -5154,9 +4113,6 @@ Li prenis ŝian manon kaj malespere tenis ĝin.
 Fanny diris nenion. ŝi trankvile atendis, kuraĝige in-teresate. ŝi lernis, en kiuj momentoj oni ne parolu. Jen 1 ”Dio en la ĉielo!”
 
 
-FANNY
-
-
 li komencis rakonti, tuj malkaŝe konfesante ĉion, kvazaŭ li sentis, ke ŝi jam divenis tro multe.
 
 ”ŝi edziniĝis al mi pro porvivaĵo. Vi trovos tion ŝerco, kiam vi scios, kiom mi tiam en Vieno perlaboris kaj . . .
@@ -5164,9 +4120,6 @@ li komencis rakonti, tuj malkaŝe konfesante ĉion, kvazaŭ li sentis, ke ŝi ja
 vi kaj panjo ja oferis ĉion por subteni min. Sed en urbo, kie oni cirkuligas moneron, kiu valoras dudekonon de unu cendo, unu dolaro prezentas fortunon. Krom tio, du el ŝiaj amikinoj ankaŭ edziniĝis . . . al du nenionfaran-taj oficiroj, sentaŭguloj. ŝi estis ĵaluza, mi supozas. Pri tio mi tamen ne pensis. Min flatis la penso, ke ŝi atente-gas min. ŝi estis eksterordinare populara, laŭdire tre sprita. La aliaj knabinoj estis malbonmanieraj, krudaj eĉ, nu jes . . . bestoj. Vi neniel povos imagi kiel putras la vivo en Vieno. Olga povis tutan vesperon ridigi la tutan societon. Mi nun bone komprenas, ke tio ne estas merito, se mi pripensas, kiaj personoj konsistigas tiun societon: drinkejaj kantistinoj kaj stultaj, dikkapaj oficiroj, kun iliaj damnaj kolumoj, oraĵkovritaj, kun iliaj ridindaj glavoj kaj korsetoj, brilantaj ŝuoj kaj sub tio la plej terura mizero. Mi opiniis, ke mi havas bonŝancon. Mi estus be-daŭrinta ĉiun en Winnebago, se mi estus pensinta pri Winnebago. Mi neniam faris tion, escepte tiujn malof-tajn fojojn, pri vi kaj panjo, kiam mi bezonis monon.
 
 Feliĉe mi posedis tiom da saĝo, ke mi ne ĉesis labori, mi restis muzikanta. Tio estis tiam unu el miaj kutimoj: labori. Nu, mi edziĝis.”
-
-
-FANNY
 
 
 Li ridis, amare ridis, estis abrupta rido, kiu sanĝiĝis en
@@ -5189,9 +4142,7 @@ Li ĝemetis, kvazaŭ peza ŝarĝo forruliĝis de lia koro kaj li daŭrigis:
 
 Tio trapikis al Fanny la koron kaj ŝi fermis por momento siajn okulojn.
 
-”Sed mi ne povis, mi diris, ke ŝi paciencu. Vi ne scias, kiel oni vivas tie. Veran hejmon oni ne konas. Oni vivas en trinkejoj. Oni vizitas kafejon vintre por serĉi varmon 302
-
-FANNY
+”Sed mi ne povis, mi diris, ke ŝi paciencu. Vi ne scias, kiel oni vivas tie. Veran hejmon oni ne konas. Oni vivas en trinkejoj. Oni vizitas kafejon vintre por serĉi varmon
 
 
 kaj por klaci, por trinki ĉiam kafon, kafon. ĉiu kafejo —
@@ -5206,9 +4157,7 @@ Mia eraro estas, ke mi ne faris tion. Vere estus rekomendinde mortigi iun tian. 
 
 Dum momento li meditis pri tiu diraĵo, poste li daŭrigis obstine per la sama mallaŭta voĉo:
 
-”Vi ne povos imagi al vi, kiel granda estas la netolere-mo reciproka kaj la antisemitismo en Prusujo, en tuta Germanujo, precipe en Bavarujo. Tio estis unu kialo pri 303
-
-FANNY
+”Vi ne povos imagi al vi, kiel granda estas la netolere-mo reciproka kaj la antisemitismo en Prusujo, en tuta Germanujo, precipe en Bavarujo. Tio estis unu kialo pri
 
 
 la malŝatego de Olga pri Munkeno. Plej rimarkinde estas, ke ĉiu kontraŭstaro instigis en mi ion, kio longan tempon subbrulis interne.”
@@ -5224,9 +4173,6 @@ Lia voĉo, kiu sonis ĝis tiam obtuza, plifortiĝis, plivigliĝis. Parolante tie
 2 Mondsufero, popoldoloro!
 
 3 ĉeffadeno.
-
-
-FANNY
 
 
 Li ekstaris. Liaj okuloj brilis. Li komencis transversi la luksan ĉambron. Iliaj rigardoj renkontiĝis. ŝi rigardis lin, ravita, kortuŝita. ŝi malsekigis siajn lipojn per la lango:
@@ -5257,9 +4203,7 @@ Li bruspiris inter la dentoj. Lia vizaĝo prenis refoje tiun hipo˛ondrian, sene
 
 ”Kun alia . . . ?”
 
-”Jes, tio daŭris jam longan tempon. Mi estis la lasta, kiu aŭdis pri tio. Tio okazas ja ĉiam tiel, ĉu ne? Li estas 305
-
-FANNY
+”Jes, tio daŭris jam longan tempon. Mi estis la lasta, kiu aŭdis pri tio. Tio okazas ja ĉiam tiel, ĉu ne? Li estas
 
 
 oficiro, frenezulo. Nun li povos demeti siajn veluran ko-lumon kaj korseton, siajn brilajn ŝuojn, li devos militiri.
@@ -5274,9 +4218,7 @@ Li tremetis pro memoro pri la honto.
 
 Sed la vizaĝo de Teodoro tordiĝis pro doloro. Li levis la manon.
 
-”Jen la malfacilaĵo. uste tio dolorigas min. Vi ne scias, kio estas amo. Vi ne konas malamon! Vi ne scias, kiom mi malamas, kondamnas min mem. ŝi estas nur 306
-
-FANNY
+”Jen la malfacilaĵo. uste tio dolorigas min. Vi ne scias, kio estas amo. Vi ne konas malamon! Vi ne scias, kiom mi malamas, kondamnas min mem. ŝi estas nur
 
 
 mizera, tute malnobla, triviala, sed se ŝi vokus min en ĉi tiu momento, mi irus reen al ŝi. Jen, kio estas!”
@@ -5286,10 +4228,7 @@ Li kovris sian vizaĝon per ambaŭ manoj, tiel ke liaj vortoj atingis ŝin malkl
 ”Mi malamas ŝin, malamegas ŝin. Mi bezonas ŝin, ne povas malhavi ŝin!”
 
 
-FANNY
-
-
-ĉAPITRO XVII.
+ĈAPITRO XVII.
 
 Estis neeble loĝigi ĉiujn tri kun ŝi en la malgranda etaĝo. ŝi trovis por ili meblitajn ĉambrojn en la pro-ksimeco, kie ŝi instalis ilin kun mastrumistino. ŝi estis tre lerta pri aranĝado de ĉiuj tiuj aferoj por agrabligi al la loĝantoj la restadon. Sunbrila ĉambro por Mizzi. Ankaŭ gaja ĉambro por Teodoro, por studi, kie estu antaŭ ĉio kviete. La bruego de ĉikago ĝenis lin. Otti konsterniĝis pro ĉiu novaĵo, kiun ŝi vidis, ŝi ne sufiĉe povis miri pri la liftoj, senpolvigiloj, pelvoj kun fluanta varma akvo, radi-atoroj.
 
@@ -5297,12 +4236,7 @@ Estis neeble loĝigi ĉiujn tri kun ŝi en la malgranda etaĝo. ŝi trovis por i
 
 ”Atentu foje,” diris Fenger, ”se mi povos helpi vin . . .
 
-kial vi ne loĝigu ilin en mia vilao ekster la urbo? Ni mem preskaŭ la duonan jaron ne estas tie. Estas tro malvarme por mia edzino en septembro. Estus taŭge por la infano kaj via frato povus kviete studadi, ludi, kiom pla-
-
-ĉas al li.”
-
-
-FANNY
+kial vi ne loĝigu ilin en mia vilao ekster la urbo? Ni mem preskaŭ la duonan jaron ne estas tie. Estas tro malvarme por mia edzino en septembro. Estus taŭge por la infano kaj via frato povus kviete studadi, ludi, kiom plaĉas al li.”
 
 
 Fenger posedis domon, vastan vilaon kun verandoj apud Lake Forest, unu el tiuj luksaj loĝejoj, kiuj kuŝas sur la norda bordo de la lago. La gazonoj malkrute malsupreniris al la akvo. Estis gaja domo kun strihavaj markezoj, ruĝaj geranioj kaj toltegitaj ĝardenseĝoj. Tiu luksa vilaego ŝajnis same kontentigi la pribelecan inklinon de Fenger kiel la akvafortoj en la kontoro. Fanny pasigis tie jam sabaton kaj dimanĉon kun kelkaj aliaj gastoj, inter kiuj troviĝis ”Rimarkindaj Faktoj.” ŝi skuis la kapon post la propono de Fenger.
@@ -5318,9 +4252,6 @@ Fenger rigardis al ŝi kaj diris: ”Vi prefere antaŭ mi ne ŝajnigu vin naiva,
 La impresario de Teodoro, Kurt Stein, estus alveninta dek tagojn post li, sed la milito malhelpis tion, same kiel la milito malebligis tiom da aferoj. Fanny antaŭsentis, ke Ameriko estos superŝutata de muzikistoj dum la semajnoj tuj post la katastrofo kaj ŝi elpensis rimedojn por superruzi ilin. Reklamo! Jen, kion Teodoro bezonis.
 
 
-FANNY
-
-
 ŝi sufiĉe fidis lian talenton. Sed ŝia komerca inklino instruis ŝin, ke tiu talento estu propagandata. La impresario ne ĉeestis, sekve ŝi prizorgu la propagandon, ŝi ne preterlasis okazon atentigi pri la persono de Teodoro antaŭ la okuloj de la usona publiko kun ĝia kalejdoskopa spirito. ŝi konigis lian nomon, kiom ŝi povis atingi tiun publikon. La viro, kiu devus prizorgi la publikigon estis germana amerikano, kies reklammaniero estis sufiĉe digna, sed pro tio tro malforta, senefika.
 
 Kio koncernas la manieron de Fanny, jen tipa ekzemplo de sia iom kruda, tamen bonefika metodo. Otti kunportis nacian kampulan kostumon el Aŭstrujo. i estis kostumo, kian oni povas admiri ĉiutage en Vieno sur la
@@ -5329,9 +4260,7 @@ Kio koncernas la manieron de Fanny, jen tipa ekzemplo de sia iom kruda, tamen bo
 
 i similas lampŝirmilon, plej ofte estas helruĝa kaj borderita de nigra veluro. Sub tiu jupo estas tiom da subjupoj, ke la operetaspekto estas kompleta. La korsaĵa velura vesto preskaŭ ĉiuloke vidigas la blankan bluzĉemi-zon.
 
-La kapkovrilo konsistas el fasko da rigide gladitaj blankaĵoj, kiu similas ion inter bretona farĝista kufo kaj 310
-
-FANNY
+La kapkovrilo konsistas el fasko da rigide gladitaj blankaĵoj, kiu similas ion inter bretona farĝista kufo kaj
 
 
 aeroplano. Nigraj ŝtrumpoj kaj pantofloj kompletigas la kostumon.
@@ -5361,9 +4290,6 @@ Otti komprenis la signifon de la ekkrio, tamen ne la vortojn.
 3 Akcento pri certeco (nepre).
 
 
-FANNY
-
-
 Otti volonte uzis intermikse ĉiun anglan vorton, kiun ŝi scikonis pri la fremda lingvo.
 
 Fanny rigardis ŝin atente kaj ŝiaj okuloj fermiĝis pro meditado.
@@ -5373,9 +4299,7 @@ Fanny rigardis ŝin atente kaj ŝiaj okuloj fermiĝis pro meditado.
 tion li certe ne komprenos en ĉikago — estos verŝajne iu, kiu povos traduki por vi.”
 
 
-La unua apero de Teodoro en la muzikmondon estos kiel solisto en la ĉikaga simfoniorkestro ĉe la malfermo de la sezono en oktobro. ĉiu en ĉikago, kiu konas mu-zikon, povus al vi rakonti, ke la simfoniorkestro ne nur 312
-
-FANNY
+La unua apero de Teodoro en la muzikmondon estos kiel solisto en la ĉikaga simfoniorkestro ĉe la malfermo de la sezono en oktobro. ĉiu en ĉikago, kiu konas mu-zikon, povus al vi rakonti, ke la simfoniorkestro ne nur
 
 
 estas organizo, kiu funkcias mirinde — kiam ĝi ludas Beethovenaĵon — sed ke ĝi estas modela institucio. ŝiaj protektantoj bone rekonas la ekzistadon de similaj orga-nizoj en Boston, Philadelphia kaj Novjorko, sed ne ilian superecon.
@@ -5386,12 +4310,7 @@ Teodoro ŝajnis tute germaniĝinta. Li alprenis stran-gajn fremdajn manierojn, h
 
 Li lasis kreski siajn harojn kaj Fanny malpacience atendis la aperon de maltraktebla buklo, kiu en lia knabaĝo pendflirtis sur lia frunto. La efiko de la bonfasonaj novaj amerikaj vestoj estis ĉagrena. Fanny ekzamenante lin, skuis kompate la kapon.
 
-”Kiam vi elsipiĝis en Novjorko, vi aspektis kiel germano en germanaj vestoj. Nun vi estas germano en uso-313
-
-FANNY
-
-
-naj vestoj. Mi ne scias certe, sed . . . mi kredas ke via vizaĝo estas kulpa pri tio, Teddy. Mi neniam povis imagi, ke dekjara restado en fremda lando povos tiel influi la formon de ies nazo, buŝo kaj vangostoj. ĉu supozeble estus kulpa la ’Umlaut1’?”
+”Kiam vi elsipiĝis en Novjorko, vi aspektis kiel germano en germanaj vestoj. Nun vi estas germano en usonaj vestoj. Mi ne scias certe, sed . . . mi kredas ke via vizaĝo estas kulpa pri tio, Teddy. Mi neniam povis imagi, ke dekjara restado en fremda lando povos tiel influi la formon de ies nazo, buŝo kaj vangostoj. ĉu supozeble estus kulpa la ’Umlaut1’?”
 
 ”Eltranĉu ĝin!” li diris en la plej bona slango. Li ŝatis tiujn kutimfrazojn, modajn vortojn, sed en dek jaroj la manioj pri novaj vortoj kaj frazoj multe ŝanĝiĝis. Kelkfoje li eĉ konfuziĝis pro la uzado de malnova slango, kiu preskaŭ refoje estis uzata kiel nova. Lia konversacia lingvo estis tiel korekta, kiel tiu de naskitaj germanoj, tro korekta eĉ. Cetere estis tre klare, ke li estas afliktita, sed klopodas ŝajnigi sin feliĉa. Li studis ĉiutage kvar horojn.
 
@@ -5402,9 +4321,6 @@ Ofte li iris kun Mizzi al la parko kaj reveninte li grumblis pro la malpuraĵoj,
 1 germana supersigno.
 
 2 stultaĵo.
-
-
-FANNY
 
 
 Fanny invitis lin al Haynes-Cooper iun tagon kaj ŝi montris al li ĉion. Li trovis tiun vendejon konsterna kaj enigma, nekredebla. ŝi manovris per milionoj kaj li neniel komprenis la valoron. Tio malmulte interesis lin. Li rigardis al la oficistoj, al la ekspedistinoj kaj skuis la kapon, iom stulte. La radŝuojn, kiuj veturis tro malrapide, anstataŭis malgrandaj, malfortaj bicikloj, kun portilo super la antaŭrado. La biciklistoj pafis sin tra la koridoroj, la vastaj provizejoj, veturante ili kaptis la pakojn kaj transdonis ilin tiel lerte kaj rapide, ke ili ĉiuj ŝajnis ĵon-glistoj.
@@ -5421,12 +4337,7 @@ Fanny rigardis lnfuzite.
 
 ”Certe mi kompatas vin, absolute kompatas, sed mi kompensos al vi, kompensos al vi ĉion.”
 
-Estis unuafoje en ŝia sukcesa kariero, ke Fanny spertis kompaton pro la kariero mem. ŝi sentis tion bone, sed kiu estis, kiu kompatis ŝin, Teodoro . . . la palpe ser-315
-
-FANNY
-
-
-ĉanta . . . ? Kiel ajn, io en ŝi diris: ”Li ĉiam estis sincera kaj vera.”
+Estis unuafoje en ŝia sukcesa kariero, ke Fanny spertis kompaton pro la kariero mem. ŝi sentis tion bone, sed kiu estis, kiu kompatis ŝin, Teodoro . . . la palpe serĉanta . . . ? Kiel ajn, io en ŝi diris: ”Li ĉiam estis sincera kaj vera.”
 
 La impresario de Teodoro alvenis en septembro per holanda ŝipo, sur kiu li kunloĝis en unu kajuto kun tri aliaj. Kurt Stein estis naskita germano, sed li estis edukita en Usono, li posedis la amerikan inklinon al lukso kaj oportuna vojaĝado. Li estis ankoraŭ malbonhumora, kiam li alvenis al ĉikago.
 
@@ -5441,9 +4352,6 @@ Antaŭ ol li foriris, li apartigis sin kun Fanny. Lia mieno fariĝis serioza. Ev
 ”Ne!” kriis Fanny, ”ne, li ne aŭdu tion. Li ne povas scii tion. Li . . .”
 
 ”Jes, mi scias, ŝi estas stranga, paradoksa virino, mi certigas al vi, ke ŝi preskaŭ decidigis min pri tio, ŝi posedas ion tian, kio samtempe forpuŝas kaj logas.”
-
-
-FANNY
 
 
 Videble li trovis tion ĉi bela diraĵo, ĉar li ripetis ĝntentigite.
@@ -5464,12 +4372,7 @@ Lia mono, grandparte estas investita en hoteloj en Rusujo kaj Polujo, kaj tiuj h
 
 ĝis mi aŭdis lin ludi okaze de la antaŭa koncertvojaĝo en Ameriko. Mi tiam deziris paroli kun li, sed mi ne kuraĝis, mia vizaĝo estis nemontreble ruĝa pro la plorado.”
 
-”Li memoras vin ankoraŭ. Li intencas viziti vin kaj Teodoron. Li povos multon fari favore al Teodoro, kaj li faros tion certe. Li ŝarĝis min per jena komisio: — Diru al ŝi, ke mi ankoraŭ posedas la skizon, kiun ŝi faris de mi kun la mirakla skatoleto en la mano kaj tiu aparta espri-317
-
-FANNY
-
-
-mo sur la vizaĝo. Diru al ŝi, ke mi ofte pensas pri tio, kio fariĝis al la nigra bukla knabino kun la ruĝa bireto. Mi estas scivola, ĉu ŝi daŭrigis kapti la apartajn mienojn de la homoj. Se ŝi faris tion, ŝi fariĝos pli fama ol ŝia frato!”
+”Li memoras vin ankoraŭ. Li intencas viziti vin kaj Teodoron. Li povos multon fari favore al Teodoro, kaj li faros tion certe. Li ŝarĝis min per jena komisio: — Diru al ŝi, ke mi ankoraŭ posedas la skizon, kiun ŝi faris de mi kun la mirakla skatoleto en la mano kaj tiu aparta esprimo sur la vizaĝo. Diru al ŝi, ke mi ofte pensas pri tio, kio fariĝis al la nigra bukla knabino kun la ruĝa bireto. Mi estas scivola, ĉu ŝi daŭrigis kapti la apartajn mienojn de la homoj. Se ŝi faris tion, ŝi fariĝos pli fama ol ŝia frato!”
 
 ”ĉu li diris tion pri mi?”
 
@@ -5481,9 +4384,7 @@ Teodoro estis kolera, kiam ŝi revenis post la foriro de Stein.
 
 ”Pri nenio, Teddy, vere pri negravaĵoj.”
 
-Li momenton sidis enpensiĝa. Tiam subite malstre-
-
-ĉiĝis liaj trajtoj kaj lia vizaĝo heliĝis. Intuicie li akuze levis la montrofingron antaŭ Fanny kaj li diris:
+Li momenton sidis enpensiĝa. Tiam subite malstreĉiĝis liaj trajtoj kaj lia vizaĝo heliĝis. Intuicie li akuze levis la montrofingron antaŭ Fanny kaj li diris:
 
 ”Li parolis kun ŝi!”
 
@@ -5499,12 +4400,7 @@ Li momenton sidis enpensiĝa. Tiam subite malstre-
 
 Tio trankviligis lin.
 
-Fanny havis komplikitan vivon dum tiuj tagoj. Reveninte ĉi tiun vesperon, ŝi trovis inter la leteroj unu ko-318
-
-FANNY
-
-
-verton por Teodoro, kies poŝtstampo indikis ”Vieno”. i estis cenzurita. Teodoro promesis al Fanny, ke li ne ko-respondos kun Olga, nek sciigos al ŝi sian adreson. Olga riskis skribi al la adreso de Fanny. Fanny nedecideme rigardis la leteron. Teodoro venos por tagmanĝo, kiel li faris kvinfoje en ĉiu semajno. Starante en la vestiblo, ŝi aŭdis Teodoron meti la ŝlosilon en la serurtruon. ŝi eskapis al sia dormoĉambro, kun la leteroj en la mano. ŝi malfermis tirkeston de la tualeta tablo kaj ĵetis la leterojn en ĝin. ŝaltinte la lumon, ŝi turnis sin al Teodoro, kiu staris en la pordo.
+Fanny havis komplikitan vivon dum tiuj tagoj. Reveninte ĉi tiun vesperon, ŝi trovis inter la leteroj unu koverton por Teodoro, kies poŝtstampo indikis ”Vieno”. i estis cenzurita. Teodoro promesis al Fanny, ke li ne ko-respondos kun Olga, nek sciigos al ŝi sian adreson. Olga riskis skribi al la adreso de Fanny. Fanny nedecideme rigardis la leteron. Teodoro venos por tagmanĝo, kiel li faris kvinfoje en ĉiu semajno. Starante en la vestiblo, ŝi aŭdis Teodoron meti la ŝlosilon en la serurtruon. ŝi eskapis al sia dormoĉambro, kun la leteroj en la mano. ŝi malfermis tirkeston de la tualeta tablo kaj ĵetis la leterojn en ĝin. ŝaltinte la lumon, ŝi turnis sin al Teodoro, kiu staris en la pordo.
 
 ”Tagon, Fanjo!”
 
@@ -5518,27 +4414,18 @@ Kiel statas la laboro?”
 
 Tiun vesperon, kiam li estis foririnta, ŝi prenis la leteron el la tirkesto, turnis ĝin; ŝi eĉ ne pripensis legi ĝin, ŝi konsideris ĝian neniigon. Fine ŝi kaŝis ĝin en sia gantujo. ”Eble post la dekkvina de oktobro. De tio dependos ja ĉio,” ŝi pensis.
 
-La dekkvina de oktobro venis. La tempo unue ŝajnis rampi, sed fine ĝi galopis tro rapide. Fanny jam alkutimiĝis vidi la portreton de Teodoro sur la reklamtabuloj ekster la Orkestra Halo kaj en la muzikkolonoj de la gazetoj: Brandeis, Teodoro Brandeis, la violonisto. La 319
-
-FANNY
+La dekkvina de oktobro venis. La tempo unue ŝajnis rampi, sed fine ĝi galopis tro rapide. Fanny jam alkutimiĝis vidi la portreton de Teodoro sur la reklamtabuloj ekster la Orkestra Halo kaj en la muzikkolonoj de la gazetoj: Brandeis, Teodoro Brandeis, la violonisto. La
 
 
 nomo sonis en ŝiaj oreloj kiel kanto. Kiam ŝi preterpasis en tiu semajno la koncertejon, ŝi devigis sin ne marŝi ŝtelrigardante al la anoncaj tabuloj. Ofte ŝi pensis tiam pri la virino kun la maleleganta griza jupo kaj la nigratlasa antaŭtuko, kiu tiom penis en sia butiko por iam briligi la nomon de Teodoro super la programo per dikpre-saj literoj:
 
 Solisto: SINJORO TEODORO BRANDEIS, Violono.
 
-Estonte Teodoro gajnu la favoron de la usona publiko kun ĝia malvarma temperamento, sed kiu scias laŭ-
-
-di sian favoraton, kiam la glacio de rezervo estas degel-inta. Li rigardos malsupren al la bruanta, entuziasma amaso, kiu kolektiĝis antaŭ la podio en Carnegie Hall, postulante pli, ankoraŭ pli, post sukcesa koncerto. Sed nun li ĉiurilate estis ekscitita, nerve kaj spirite. Lia ludado montris tion.
+Estonte Teodoro gajnu la favoron de la usona publiko kun ĝia malvarma temperamento, sed kiu scias laŭdi sian favoraton, kiam la glacio de rezervo estas degel-inta. Li rigardos malsupren al la bruanta, entuziasma amaso, kiu kolektiĝis antaŭ la podio en Carnegie Hall, postulante pli, ankoraŭ pli, post sukcesa koncerto. Sed nun li ĉiurilate estis ekscitita, nerve kaj spirite. Lia ludado montris tion.
 
 Fanny venis malfrue, kun Teodoro. ŝi sentis, ke ŝi ne povos sidi kviete dum la unua parto de la programo. Ili atendis kune en la solista ĉambro. Teodoro, tre svelta kaj knabece aspektanta en sia smokingo, daŭre rondiris en la ĉambro. Fanny havis inklinon pli bone aranĝi lian kravaton, forigi imagan fadenon de lia kostumo, pli bone meti la blankan floron en lia butontruo (li ĝuste forĵetis tiun blankan floron, ĉar ĝi ĉifiĝos pro lia violono, li diris).
 
-ŝi inklinis fari iujn el tiuj bagateloj, kiuj povos malstreĉi ŝiajn tro incititajn sentojn. Sed ŝi ja lernis sin regi, ŝi re-320
-
-FANNY
-
-
-zignis pri ĉio tia. Cetere ĉio, kion ŝi diris, estis sufiĉe malgrava kaj sensignifa.
+ŝi inklinis fari iujn el tiuj bagateloj, kiuj povos malstreĉi ŝiajn tro incititajn sentojn. Sed ŝi ja lernis sin regi, ŝi rezignis pri ĉio tia. Cetere ĉio, kion ŝi diris, estis sufiĉe malgrava kaj sensignifa.
 
 ”Kiel mi aspektas?” demandis Teodoro, starigante sin antaŭ sin.
 
@@ -5561,32 +4448,20 @@ La sonorilo sonis en la paŭzejo. La publiko reiris al la salonego, multe tro ma
 ŝi estis dirinta, ke ŝi preferas esti sola. Ili rigardis unu la alian, ne kapsalutinte kaj ne ridetante. La publiko sidigis sin kun la kutima brumovado.
 
 
-FANNY
-
-
 Iu malantaŭ Fanny diris: ”Kiu estas tiu Brandeis?”
 
 ”Mi ne scias. Novulo. Germano, mi kredas. Oni diras, ke li estas bona violonisto. Mi mem tamen ĉiam preferos aŭdi Kreisleron.”
 
-La muzikistoj sidiĝis. Stock, la orkestrestro, venis el flankpordo, sekvata de Teodoro. Aŭdiĝis malgranda aplaŭdo. Stock suriris la estran podieton kaj patre rigardis al Teodoro, kiu maldekstre de li staris kun violono kaj arĉo en la mano, riverencante. Lia knabeca aspekto ŝajnis plaĉi al la aŭskultantaro. Denove eksplodis aplaŭ-
+La muzikistoj sidiĝis. Stock, la orkestrestro, venis el flankpordo, sekvata de Teodoro. Aŭdiĝis malgranda aplaŭdo. Stock suriris la estran podieton kaj patre rigardis al Teodoro, kiu maldekstre de li staris kun violono kaj arĉo en la mano, riverencante. Lia knabeca aspekto ŝajnis plaĉi al la aŭskultantaro. Denove eksplodis aplaŭdo kaj li riverencis, abrupte, tiel ke liaj vestpintoj malantaŭe leviĝis salte. Li tenis la kalkanumojn kaj genuojn unuj kontraŭ la aliaj, laŭ germana maniero. Post tio li riverencis rigide antaŭ Stock kaj la orkestranoj. La longaj mallarĝaj manoj de Stock leviĝis. Estis, kvazaŭ li perfingre desegnas en la aero antaŭ la homoj la unuajn no-tojn de la koncerto de Teodoro. Teodoro staris atendante, silenta, rekte. La vizaĝo de Fanny, fikse turnita al li, estis kvazaŭ preĝo. Subite Teodoro tire rektigis la refaldaĵon de sia frako, (estis movo, kiun Fanny memoris el lia knabaĝo), li metis la violonon dolĉe kontraŭ la mentonon kaj ekludis.
 
-do kaj li riverencis, abrupte, tiel ke liaj vestpintoj malantaŭe leviĝis salte. Li tenis la kalkanumojn kaj genuojn unuj kontraŭ la aliaj, laŭ germana maniero. Post tio li riverencis rigide antaŭ Stock kaj la orkestranoj. La longaj mallarĝaj manoj de Stock leviĝis. Estis, kvazaŭ li perfingre desegnas en la aero antaŭ la homoj la unuajn no-tojn de la koncerto de Teodoro. Teodoro staris atendante, silenta, rekte. La vizaĝo de Fanny, fikse turnita al li, estis kvazaŭ preĝo. Subite Teodoro tire rektigis la refaldaĵon de sia frako, (estis movo, kiun Fanny memoris el lia knabaĝo), li metis la violonon dolĉe kontraŭ la mentonon kaj ekludis.
-
-Fanny preskaŭ nenion aŭdis. ŝiaj manoj estis glaci-malvarmaj, ŝiaj vangoj ardis. La viro, kiu staris tie, ne estis Teodoro Brandeis, la violonisto, sed Teddy, la knabo kun blondaj haroj kaj mallonga pantalono, kiu ludis 322
-
-FANNY
+Fanny preskaŭ nenion aŭdis. ŝiaj manoj estis glaci-malvarmaj, ŝiaj vangoj ardis. La viro, kiu staris tie, ne estis Teodoro Brandeis, la violonisto, sed Teddy, la knabo kun blondaj haroj kaj mallonga pantalono, kiu ludis
 
 
 antaŭ la homoj en la flavaj benkoj en la Winnebaga sinagogo. La jaroj ŝajnis forfandiĝi. Li klinis sin super la violono por aŭdigi la malaltajn tonojn, per kiuj li estis famiĝonta, glorota kaj nun li alprenis preskaŭ la saman malelegantan teniĝon, kiun li jam kutimis montri kiel knabo. Fanny atentis liajn piedojn, kiam li ŝunĝis la star-manieron. Li estis nerva. Li ne plene povis regi sin. ŝi vidis tion per la muskolkuntiriĝo sur liaj vangostoj. Sekve li ne ludis tiel bone, kiel li povis. ŝi ne povis aŭdi tion.
 
 ŝia aŭdsento estis perturbita. ŝi perceptis ĝin laŭ la eksteraj signoj. Sinjorino apud ŝi plej atente legis la pro-gramon kaj regule kaj zorgbrue turnis la foliojn. Fanny povus mortigi ŝin permane. ŝi klopodis aŭskulti pli atente. La muziko estis konata al ŝi. Teodoro ripetfoje estis ludinta ĝin antaŭ ŝi. Precipe la lasta parto estis profunde kortuŝinta ŝin. i estis la venkokrio de elprovita kaj kuraĝa popolo. ŝi aŭskultis ĝin nun, eĉ ne emociate. Teodoro refoje riverencis rigide kaj malelegante kaj li premis la manojn de Stock kaj de la unua violonisto. Tiam li foriris. Fanny sidis, la manojn en la sino. La aplaŭda-do plifortiĝis. Teodoro revenis kaj nun riverencis profunde, la brakojn rekte pendantaj. Tio estis tre gracia kaj eleganta sintenado, laŭ Fanny. Tamen fremda, li nepre konservu ĝin, ŝi opiniis, ĝi plaĉos al la aŭskultantaro.
 
-Refoje Teodoro foriris. Refoje tondris aplaŭdado. Ripe-323
-
-FANNY
-
-
-toj estis kontraŭregulaj en la koncertejo, sekve la publiko aplaŭdis pro vera ŝatado.
+Refoje Teodoro foriris. Refoje tondris aplaŭdado. Ripetoj estis kontraŭregulaj en la koncertejo, sekve la publiko aplaŭdis pro vera ŝatado.
 
 La dua programero konsistis el serio da hungaraj dancoj. Sovaĝaj, pasiaj ciganaĵoj, kelkfoje aliformiĝantaj en frenezigaĵojn. Li ludis kun spirito kaj poete. Aŭskultan-te ilin, oni sentis pli forte, kante pulsantan la sangon en la vejnoj. Fanny vere ekscitiĝis kaj pensis ree pli klare.
 
@@ -5602,9 +4477,7 @@ Teodoro denove riverencis. Fanny eĉ ne rimarkis, ke li finis. La koncerto estis
 
 Fanny aŭdis diri la viron malantaŭ ŝi, kiam li helpis la knabinon surmeti la mantelon, ”tamen tiu unua parto ne plaĉis al mi, preĝeja muziko, ne taŭga por koncertejo.”
 
-Fanny serĉis sian vojon al la solista salono. Teodoro parolis kun la orkestrestro kaj du, tri aliaj. Li aspektis laca, estis kvazaŭ liberiĝo, kiam li ekvidis Fanjon. ŝi iris 324
-
-FANNY
+Fanny serĉis sian vojon al la solista salono. Teodoro parolis kun la orkestrestro kaj du, tri aliaj. Li aspektis laca, estis kvazaŭ liberiĝo, kiam li ekvidis Fanjon. ŝi iris
 
 
 al li. Li prezentis ŝin, sekvis gratuloj. Liberiginte sian manon, ŝi premegis tiun de Teodoro.
@@ -5637,9 +4510,7 @@ Fenger, preskaŭ modeste, rapide sin retiris. Li tamen sukcesis haste flustri al
 
 Morgaŭ vi ne bezonos labori.”
 
-Fanny balancis la kapon kaj foriris kun Teodoro. Teodoro komforte sidkuŝigis sin en la veturilo, sed ne estis 325
-
-FANNY
+Fanny balancis la kapon kaj foriris kun Teodoro. Teodoro komforte sidkuŝigis sin en la veturilo, sed ne estis
 
 
 signo de malstreĉiĝo en lia mieno. Liaj nervoj restis same streĉitaj kiel kordoj de violono.
@@ -5648,9 +4519,7 @@ signo de malstreĉiĝo en lia mieno. Liaj nervoj restis same streĉitaj kiel kor
 
 Fanny estis memorigonta lin pri lia propra diraĵo, ke la publiko tute estas indiferenta al li, sed ŝi retenis sin.
 
-”Ho, mi malsategas! Kion celas tiu Fenger, li ĉirkaŭ-
-
-ŝvebas vin tede! Mi diros al li, ke li prefere forrestu. La maniero, en kiu li rigardis al vi, neniel plaĉas al mi. Mi proponas, ke ni iru ien ajn amuzi nin hodiaŭ, Fanjo, aŭ invitu kelkajn amikojn. Mi ne povas kviete sidi hejme, post ludado. Olga ĉiam aranĝis vespermanĝon aŭ ion tian.”
+”Ho, mi malsategas! Kion celas tiu Fenger, li ĉirkaŭŝvebas vin tede! Mi diros al li, ke li prefere forrestu. La maniero, en kiu li rigardis al vi, neniel plaĉas al mi. Mi proponas, ke ni iru ien ajn amuzi nin hodiaŭ, Fanjo, aŭ invitu kelkajn amikojn. Mi ne povas kviete sidi hejme, post ludado. Olga ĉiam aranĝis vespermanĝon aŭ ion tian.”
 
 ”Bone. Teddy, ĉu ni iru al teatro?”
 
@@ -5658,26 +4527,16 @@ Unuafoje en sia vivo Fanny sentis iomete da simpatio por la malamata Olga. Eble,
 
 Teodoro devis foriri dimanĉmatene al Cleveland, kie li ludos lundon. Li insistis kunporti la etan Mizzi, kvankam Fanny kontraŭstaris forte. Teodoro tamen insistis kaj venkis.
 
-”ŝi jam alkutimiĝis, ŝi ŝatas vojaĝadi, ĉu ne, Mizzi? Se vi povus esti rigardanta ŝin en Rusujo, tra la tuta Germanujo kaj en Svedujo. ŝi vere pli bone povas elteni voja-
-
-ĝadon ol ŝia paĉjo.”
-
-
-FANNY
+”ŝi jam alkutimiĝis, ŝi ŝatas vojaĝadi, ĉu ne, Mizzi? Se vi povus esti rigardanta ŝin en Rusujo, tra la tuta Germanujo kaj en Svedujo. ŝi vere pli bone povas elteni vojaĝadon ol ŝia paĉjo.”
 
 
 La matengazetoj estis afablaj sed ne entuziasmaj. Ili uzis vortojn jenajn: multpromesa, malekvilibra, troam-bicia, naturdotita. Teodoro ĉifis la gazeton, ĵetis ĝin sur la plankon, forte sakrante. Poste li reglatigis kaj formetis ĝin por zorge konservi ĝin. Tiun vesperon li ludis pli aŭdace, la sabatvespera aŭskultantaro estis entuziasma.
 
 Lia ludo estis plena de ardo, kiu mankis la antaŭan vesperon. Teodoro estis surprizita kaj kolera, ke la kritiki-stoj ne pli akcentas la judan karakteron de lia koncerto, ili preskaŭ nenion diris pri ĝia signifo. Ili akceptis ĝin kiel muzikaĵon kun juda temo. i povus esti titolata same malgrave per: ”Printempo”.
 
-”Ni ne estas en Francujo aŭ Rusujo,” diris Fanny. ”Oni ne konas ĉi tie religian antagonismon. Se ekzistas iu antagonismo, ĝi estas persona. Vi ja ne scias tion ĉi, ĉar vi forestis tiel longe de ĉi tiu lando. Ili ne malŝatas nin, pro raso aŭ sekto, sed pro la tipo. Tio estas la malfacilaĵo, diras Clarence Heyl. Ni povas konstrui tiom da si-nagogoj, kiom plaĉas al ni kaj preĝi plentagon tie, laŭ-
-
-dezire. Sed tion ni ne deziras. La batalo ne plu estas ra-sobatalo, sed individua batalo. Unu brugaja, multmova hebreo en restoracio povos kaŭzi pli da naŭzo ol dekmi-loj da judoj, kiuj kunvenis por religia servo en Union Parko.”
+”Ni ne estas en Francujo aŭ Rusujo,” diris Fanny. ”Oni ne konas ĉi tie religian antagonismon. Se ekzistas iu antagonismo, ĝi estas persona. Vi ja ne scias tion ĉi, ĉar vi forestis tiel longe de ĉi tiu lando. Ili ne malŝatas nin, pro raso aŭ sekto, sed pro la tipo. Tio estas la malfacilaĵo, diras Clarence Heyl. Ni povas konstrui tiom da si-nagogoj, kiom plaĉas al ni kaj preĝi plentagon tie, laŭdezire. Sed tion ni ne deziras. La batalo ne plu estas ra-sobatalo, sed individua batalo. Unu brugaja, multmova hebreo en restoracio povos kaŭzi pli da naŭzo ol dekmi-loj da judoj, kiuj kunvenis por religia servo en Union Parko.”
 
 Teodoro meditis momenton. ”Sekve ni estas ĉiuj persone respondaj, ĉi tie?”
-
-
-FANNY
 
 
 ”Jes, mi supozas tion.”
@@ -5709,9 +4568,6 @@ Fenger telefonis sabaton. Li kaj lia edzino troviĝis en sia vilao apud la lago.
 ”Mi ne povas malhavi ŝin,” diris Teodoro.
 
 
-FANNY
-
-
 La voĉo de Fenger sonis en la telefono retene ekscitita, same kiel lia voĉo malmilde aŭdiĝis kelkfoje en krizaj momentoj.
 
 ”Fanny, finiĝis, ĉio estas finita! Hodiaŭ mi havis konferencon. Tiu ĉi monato estas mia lasta ĉe Haynes.”
@@ -5733,9 +4589,6 @@ Li veturis ŝin en malgranda senkovrila veturilo.
 ”ĉu la frato jam foriris? Bona Dio, jen iu, kiu scipovas ludi kaj tion vi ebligis al li, vi estas mirakla knabino.”
 
 
-FANNY
-
-
 ”Tia, kia vi nun estas, vi povos rigardi kiun ajn mirakla,” ridis Fanny. ”Vi ja estas kontenta pri vi mem kaj pri ĉiu.”
 
 Fenger ridis siavice kaj veturigis la veturilon pli rapide.
@@ -5754,9 +4607,7 @@ La japano pretigis la tablon sur la verando, sed de la lago ekblovis trofreŝa a
 
 La viro skuis la kapon: ”Nossa.”
 
-La konversacio dum la lunĉo temis pri Teodoro kaj lia estonteco. Fenger diris, ke Teodoro bezonos fortan gvidan manon, specon de kombinaĵo de impresario kaj sklavpelisto. Eble inteligenta, ambicia virino povus 330
-
-FANNY
+La konversacio dum la lunĉo temis pri Teodoro kaj lia estonteco. Fenger diris, ke Teodoro bezonos fortan gvidan manon, specon de kombinaĵo de impresario kaj sklavpelisto. Eble inteligenta, ambicia virino povus
 
 
 atingi la saman rezulton. Tion ni ĉiuj bezonas. Virinon, por kiu ni laboru kaj kiu laborigas nin.”
@@ -5784,9 +4635,6 @@ Fanny momenton batalis kun la intenco rigardi tiel kolere, kia ŝi efektive esti
 ”Kioma horo estas? Kial vi ne vekis min?”
 
 
-FANNY
-
-
 Estis tutkviete en la domo. Zorge ŝi glatige ordigis la harojn kaj aranĝis siajn vestojn.
 
 ”Kie estas ĉiuj? ĉu sinjorino Fenger ankoraŭ ne estas malsupre?”
@@ -5812,9 +4660,6 @@ Li restis staranta antaŭ Fanny.
 Fanny bezonis kelkan tempon por spirite digesti tion.
 
 
-FANNY
-
-
 ”Mi supozis, ke mi jam alkutimiĝis kalkuli per milionoj. Sed tio . . . tian ĉekon mi vere dezirus teni en la mano, nur tuŝi momenton.”
 
 ”Tion vi tuŝos.”
@@ -5829,12 +4674,7 @@ Mi konas la faktojn, la praktikon. Mi posedas du kaj duonan milionojn por komenc
 
 Vi scias kiel laboras mia menso, kiel ŝtalmalmola ĉizilo.
 
-Mi vidas la tutan landon, eĉ inkluzive Eŭropon, post la milito, kuŝantajn antaŭ ni. Dio, kial ne! Kvazaŭ operaci-333
-
-FANNY
-
-
-oto antaŭ la ˛irurgoj. Vi atentu la koron, mi observos la muskolojn kaj ligamenton. Mi kondukos vin al loko, kiun antaŭe neniu virino okupis. Mi havas centojn da novaj planoj, pretaj, tuj. Kaj vi same. Estas nur afero pri konstruaĵoj. Pri brikoj, traboj, maŝinoj kaj homoj por funkciigi tiujn maŝinojn. Tuj kiam ni posedos ilin — tio ja nur daŭros kelkajn monatojn — ni povos ekentrepreni kaj plenumi aferojn, ĝisnunajn imagaĵojn, nerealigeblajn halucinojn!”
+Mi vidas la tutan landon, eĉ inkluzive Eŭropon, post la milito, kuŝantajn antaŭ ni. Dio, kial ne! Kvazaŭ operacioto antaŭ la ˛irurgoj. Vi atentu la koron, mi observos la muskolojn kaj ligamenton. Mi kondukos vin al loko, kiun antaŭe neniu virino okupis. Mi havas centojn da novaj planoj, pretaj, tuj. Kaj vi same. Estas nur afero pri konstruaĵoj. Pri brikoj, traboj, maŝinoj kaj homoj por funkciigi tiujn maŝinojn. Tuj kiam ni posedos ilin — tio ja nur daŭros kelkajn monatojn — ni povos ekentrepreni kaj plenumi aferojn, ĝisnunajn imagaĵojn, nerealigeblajn halucinojn!”
 
 Fanny sidis kviete en sia seĝo, la okulojn fikse turni-taj al la vizaĝo de la viro, kiu estis tiel nevenkeble decidema, tiel nedevigeble forta. Kiam li finis paroli kaj ekstaris, ankaŭ ŝi eksaltis, daŭre rigardante lin. ŝi preme interplektis la fingrojn, konvulsie.
 
@@ -5843,9 +4683,6 @@ Fanny sidis kviete en sia seĝo, la okulojn fikse turni-taj al la vizaĝo de la 
 ne, atendu momenton . . . mi nur havas la lertecon senti, kion aliaj homoj pensas, deziras, sopiras. Sed tio ja ne estas negoco.”
 
 ”He, ĉu tio ne estas komerco? Tio estas la esenco de komerco. Estas tio, kion la eminentuloj nomas komerca psikologio kaj tio estas nepre necesa, hodiaŭ, nuntempe, kiel kapitalo hieraŭ. Sen kapitalo oni tamen povas agadi, oni ne nepre bezonas ĝin, oni povas ĝin havigi al ŝi, sed tiu alia estas nur kunnaskita.”
-
-
-FANNY
 
 
 ”Jes, sed . . . en la lasta tempo, nur logis min la homa flanko. Mi ne scias la kialon. Evidente la interesiĝo pri la meąnika flanko foriĝis.”
@@ -5866,9 +4703,7 @@ Fenger mire rigardis ŝin.
 
 ”Fanny, ne priridu min.”
 
-”Kial ne ridi? Mi ja devas ridi, mi amuziĝas. Mi vere amuzas min. Nu, sinjorino Fenger, estu serioza. Ni reiru 335
-
-FANNY
+”Kial ne ridi? Mi ja devas ridi, mi amuziĝas. Mi vere amuzas min. Nu, sinjorino Fenger, estu serioza. Ni reiru
 
 
 al la bilionoj. Mi nepre kaptu la vagonaron je kvarono post la kvina!”
@@ -5891,12 +4726,7 @@ Tiam Fanny sentis reaperi siajn sinregadon kaj memfidon kaj ŝi pensis pri sia p
 
 ”Lasu min, lasu min, vi dolorigas min, lasu . . . do!”
 
-Kaj subite tio, kion ŝi konservis en angulo de sia cerbo, ĝis ŝi bezonis ĝin, kion Clarence Heyl diris al ŝi, kla-336
-
-FANNY
-
-
-riĝis al ŝi. ŝia memoro priskribis ĝmplete: ”Kiam vi pugnigas vian maneton, jen tiel kaj flankenmetu la dikan fingron, rigardante bone lokon proksimume kvin centimetrojn ĉitiuflanke de la mentono, vi etendu kaj retiru fulmrapide la pugnon, kiel piston de maŝino, la ulo, kiu atakas vin, terenfalos senmove. Precize sur tiu loko estas nervo, kiu rekte iras al la cerbo, kaj vi vidigas al li stelojn, lumradiojn kaj . . .”
+Kaj subite tio, kion ŝi konservis en angulo de sia cerbo, ĝis ŝi bezonis ĝin, kion Clarence Heyl diris al ŝi, klariĝis al ŝi. ŝia memoro priskribis ĝmplete: ”Kiam vi pugnigas vian maneton, jen tiel kaj flankenmetu la dikan fingron, rigardante bone lokon proksimume kvin centimetrojn ĉitiuflanke de la mentono, vi etendu kaj retiru fulmrapide la pugnon, kiel piston de maŝino, la ulo, kiu atakas vin, terenfalos senmove. Precize sur tiu loko estas nervo, kiu rekte iras al la cerbo, kaj vi vidigas al li stelojn, lumradiojn kaj . . .”
 
 ŝi lasis sin gliti malrigide inter liaj brakoj, ŝi fermis la okulojn. Li lasis ŝin, premis malpli firme, mirigita, gaja.
 
@@ -5904,9 +4734,7 @@ Kun la okuloj sur tiu loko apud la mentono ŝi levis la brakon, malrapide pugnig
 
 Liaj dentoj kunklakis obtuzsone . . . Lia vizaĝo mallonge estis komika masko, surprizita, konsternita, preskaŭ idiota. Tiam li terenfalis, precize kiel Heyl antaŭdiris, sveninta. Ne subite, sed konvulsie firmtenante sin, tiel ke ŝi preskaŭ estis kuntrenata.
 
-Fanny por momento rigardis al li. Poste ŝi viŝis la buŝon per la dorso de la mano. ŝi eliris la ĉambron kaj trairis la vestiblon. ŝi vidis la japanon subite aperi el pordo kaj ŝi piedbatis sur la planko, diris: ks! — ks! kvazaŭ por forpeli raton. ŝi prenis siajn ĉapelon kaj mantelon de la tablo, forlasis kure la domon kaj suriris la vojon al la stacio. ŝi kuris, kuregis. Estis sufiĉe granda distanco al la ampelopskovrita stacidometo, sed ŝi ne konsciis pri la 337
-
-FANNY
+Fanny por momento rigardis al li. Poste ŝi viŝis la buŝon per la dorso de la mano. ŝi eliris la ĉambron kaj trairis la vestiblon. ŝi vidis la japanon subite aperi el pordo kaj ŝi piedbatis sur la planko, diris: ks! — ks! kvazaŭ por forpeli raton. ŝi prenis siajn ĉapelon kaj mantelon de la tablo, forlasis kure la domon kaj suriris la vojon al la stacio. ŝi kuris, kuregis. Estis sufiĉe granda distanco al la ampelopskovrita stacidometo, sed ŝi ne konsciis pri la
 
 
 distanco kaj pri laciĝo. Certe duonhoron ŝi senĉese kuris. Kiam ŝi atingis la fervojon, la kontrolisto sciigis al ŝi, ke la venonta vagonaro foriros ne antaŭ la sesa. ŝi atendis trankvile. ŝi surmetis la ĉapelon, kiun ŝi dumvoje tenis en la mano kaj ordigis siajn harojn. Enirinte la vago-non, ŝi trovis malplenan kupeon, ŝi sidiĝis kaj apogis la kapon per la manoj. Nur tiam ŝi sentis dolori sian manon. ŝi rigardis kaj vidis, ke la artikoj de la fingroj estas kontuzitaj kaj ke sango elfluetis.
@@ -5916,14 +4744,9 @@ distanco kaj pri laciĝo. Certe duonhoron ŝi senĉese kuris. Kiam ŝi atingis l
 ŝi esplore rigardis la fingrojn. ŝi ridetis kaj ridetante ŝi sentis dikaĵon ekesti en sia gorgo, antaŭ ŝiaj okuloj venis nebulo, ŝi ekploris sovaĝe, kaŝite en sia angulo.
 
 
-FANNY
+ĈAPITRO XVIII.
 
-
-ĉAPITRO XVIII.
-
-Estis la oka, kiam ŝi venis hejmen. ŝi estis forpermes-inta la servistinon la tutan tagon. ŝaltinte la lumon en la haleto, ŝi restis staranta kontraŭ la pordo, kun la brako etendita sur la kadro. Estis, kvazaŭ ŝi karese palpas la pordon. Poste ŝi iris al la loĝoĉambro kaj restis rigardanta la rozkoloran lamplumon. ŝi iris al la dormo-
-
-ĉambro kaj ĉirkaŭrigardis, kvazaŭ ŝi vidis ĉion unuafoje: la kremkolora lakita ligno, la ripozseĝo kun la ruĝaj kusenoj, kiuj tiel bone kontrastis kun ŝiaj nigraj haroj.
+Estis la oka, kiam ŝi venis hejmen. ŝi estis forpermes-inta la servistinon la tutan tagon. ŝaltinte la lumon en la haleto, ŝi restis staranta kontraŭ la pordo, kun la brako etendita sur la kadro. Estis, kvazaŭ ŝi karese palpas la pordon. Poste ŝi iris al la loĝoĉambro kaj restis rigardanta la rozkoloran lamplumon. ŝi iris al la dormoĉambro kaj ĉirkaŭrigardis, kvazaŭ ŝi vidis ĉion unuafoje: la kremkolora lakita ligno, la ripozseĝo kun la ruĝaj kusenoj, kiuj tiel bone kontrastis kun ŝiaj nigraj haroj.
 
 Sur ŝia tualettablo staris, provoke kontraŭ brosoj kaj boteletoj, longforma flava papero, telegramo. Kompreneble de Teodoro. ŝi ŝirmalfermis ĝin kun sento de ĝojo.
 
@@ -5942,18 +4765,13 @@ Ne pli ol kvardek vortoj! Lia germana maniero.
 ”Ne!” kriis Fanny laŭte. ”Ne! ne!”
 
 
-FANNY
-
-
 Tiu krio forvibris kaj nova eksonis, kiu siavice foriĝis, refoje sonis unu kaj refoje, refoje . . . fariĝis plorveado, la telegramo tremetis en ŝiaj manoj. ŝi relegis ĝin, akompanante la vortojn per lipmovado, kiel maljunuloj ofte legas. Post tio ŝi komencis ploregi, kun la pugnoj antaŭ la vizaĝo, la tuta korpo skuiĝis. ŝia tuta kuraĝo foriĝis, la sinregado malaperis, ŝia forta volo rompiĝis.
 
 ŝi tamen ne estis virino, kiu ofte ploris. Krome ŝi jam multe ploris en la vagonaro. Tial la veado sonis des pli terure, ĉar ŝi ploris senlarme. ŝi komencis marŝi en la ĉambro, ĉiufoje forigante la flirtantajn harojn for de la frunto malantaŭen. Kelkfoje ŝi refaldis la flavan ĉifitan telegramon kaj relegis ĝin. ŝia spirito ŝajnis estiąosa miksaĵo de pensoj kaj intencoj. Proksimume jene: ”Sed liaj koncertoj? — Tiel ankaŭ Bauer fuŝis sian karieron —
 
 Kian stultan mienon li prenis, kiam ŝia pugno trafis lian makzelon — Malvarme, kial ne funkcias la hejtado? Me-ze de oktobro — Teddy, kiel vi povis fari tion? — ĉu li ankoraŭ kuŝas senpova sur la planko? Kompreneble la humila japano trovis lin — Se nur estus iu, kun kiu ŝi povus paroli . . . jes, ŝi bezonas iun, kun kiu ŝi povas paroli . . .”
 
-Iun por interparoli. ŝi staris meze en la ĉambro, la manoj parte etenditaj. Image ŝi laŭiris la vicon da personoj, kun kiuj ŝi en tiuj pasintaj jaroj sinsekve konatiĝis: Fenger, ”Rimarkindaj Faktoj,” Ella Monahan, Nathan 340
-
-FANNY
+Iun por interparoli. ŝi staris meze en la ĉambro, la manoj parte etenditaj. Image ŝi laŭiris la vicon da personoj, kun kiuj ŝi en tiuj pasintaj jaroj sinsekve konatiĝis: Fenger, ”Rimarkindaj Faktoj,” Ella Monahan, Nathan
 
 
 Heynes, ĉiuj gajaj, indiferentaj homoj, al neniu el ili, kiu pli aŭ malpli rilatis kun Fenger, ŝi povus turni sin. Clarence Heyl. ŝi spiris pli libere. Clarence Heyl. Unufoje li ja helpis ŝin en tiu ĉi tago kaj duafoje penetris ĝis sia konscio io, kion li diris antaŭ longa tempo kaj kio kuŝis en kaŝejo de ŝia subkonscio.
@@ -5964,9 +4782,7 @@ Heyl ja respondis al tio en sia kvieta, certa maniero:
 
 ”Iun tagon tiu inklino fariĝos tro forta. Se tiu tago venos, vi prenu la vagonaron al Denver. El Denver vi vojaĝu al Estes Park. Tie vi estos en la Rokmontaro kaj tie la horizonto estas reala. Vi petu tie la vojon al la kabano de Heyl. Oni transdonos vin de unu al la alia. Eble mi estos tie, sed verŝajne ne. La ŝlosilo pendas sur ŝnuro en la leterkesto. Vi trovos en la forno lignon kaj fajrilojn: pin-konusojn. Vi trovos miajn librojn. La lito estas la cedroligna kesto. La montegoj ree faros homon el vi, la pinarboj . . .”
 
-Fanny iris al la telefono kaj informiĝis pri forveturo de vagonaroj al Denver. En tiaj aferoj ŝi estis sperta, ŝi ĉiam devis serĉi sian propran vojon, serĉi sian fervojon, prizorgi sian kofron, plani sian ekskurson. ŝi kelkfoje 341
-
-FANNY
+Fanny iris al la telefono kaj informiĝis pri forveturo de vagonaroj al Denver. En tiaj aferoj ŝi estis sperta, ŝi ĉiam devis serĉi sian propran vojon, serĉi sian fervojon, prizorgi sian kofron, plani sian ekskurson. ŝi kelkfoje
 
 
 enviis tiujn virinojn, por kiuj tiuj aferoj estas ĉiam pri-zorgataj.
@@ -5979,14 +4795,9 @@ Kiam la servistino venis hejmen, Fanny estis plene okupita pri pakado de valizoj
 
 Lunde posttagmeze Fenger telefonis. ŝi ne respondis al li. Li sendis leteron, poste telegramon. ŝi ne legis ilin.
 
-Marde ŝi sidis en la vagonaro al Kolorado. ŝi memoris nur malmulton pri la unua parto de sia vojaĝo. ŝi kunportis librojn kaj gazetojn. ŝi efektive legis ilin, sed evidente ŝia menso ne povis reteni tion, kion ŝi legis. ŝi ver-
-
-ŝajne pasigis multajn horojn rigardante tra la fenestroj al la senfinaj monotonaj Kansasaj stepoj. Tiu panoramo vere trankviligis ŝin. ŝi ĝojis, ke la monotoneco ne estas interrompata de pecoj da aŭtuna arbaro, tentaj panora-moj; nenio rompis, trudis la senfinan neniaĵon. Tia ŝi trovis ĝin: io grandioza, supera, reala. Ho, bona, bela Kansasa panoramo. Mejlojn, multaj mejloj ĝi etendis sin.
+Marde ŝi sidis en la vagonaro al Kolorado. ŝi memoris nur malmulton pri la unua parto de sia vojaĝo. ŝi kunportis librojn kaj gazetojn. ŝi efektive legis ilin, sed evidente ŝia menso ne povis reteni tion, kion ŝi legis. ŝi verŝajne pasigis multajn horojn rigardante tra la fenestroj al la senfinaj monotonaj Kansasaj stepoj. Tiu panoramo vere trankviligis ŝin. ŝi ĝojis, ke la monotoneco ne estas interrompata de pecoj da aŭtuna arbaro, tentaj panora-moj; nenio rompis, trudis la senfinan neniaĵon. Tia ŝi trovis ĝin: io grandioza, supera, reala. Ho, bona, bela Kansasa panoramo. Mejlojn, multaj mejloj ĝi etendis sin.
 
 ŝi ekhavis senton, kvazaŭ ŝi volas elvagoniĝi por vagi tra la stepoj en tiu senfinaĵo.
-
-
-FANNY
 
 
 ”Sufiĉe malvarme tie, supre en Estes Park,” diris la konduktoro. ”Neĝis en la montaro.”
@@ -5999,12 +4810,7 @@ Tuj kiam la unuaj montoj videbliĝis, la fiksrigardado de Fanny sanĝiĝis en in
 
 ĝi strange serpentumas. La montoj aperas krudkrutaj ĉitiuflanke de la vagono kaj tuj poste malaperas, por montri sin aliflanke. Fanny vere ridis pro tio, laŭte.
 
-La montaraŭtomobilo haltis en Loveland. Estis nur malmultaj vojaĝantoj en tiu tempo de la jaro. La ŝoforo estis brunvizaĝa giganto, brungrizvestita de la kapo ĝis la krurŝirmiloj. Tiuj ŝoforoj estis famaj pro sia kvieta ma-jesteco kaj la ”kahki”-vestoj, pro la facilega lerteco, per kiu ili veturigis la pezajn veturilojn sur la danĝeraj montoj, kvazaŭ Olimpaj dioj, kiuj veturigis siajn triumf-
-
-ĉarojn.
-
-
-FANNY
+La montaraŭtomobilo haltis en Loveland. Estis nur malmultaj vojaĝantoj en tiu tempo de la jaro. La ŝoforo estis brunvizaĝa giganto, brungrizvestita de la kapo ĝis la krurŝirmiloj. Tiuj ŝoforoj estis famaj pro sia kvieta ma-jesteco kaj la ”kahki”-vestoj, pro la facilega lerteco, per kiu ili veturigis la pezajn veturilojn sur la danĝeraj montoj, kvazaŭ Olimpaj dioj, kiuj veturigis siajn triumfĉarojn.
 
 
 Fanny ricevis sidlokon flanke de tiu fama persono. La aŭtomobilo estis grandega veturilo, paradanta per kvin benkovicoj kaj tre simila al turistaŭtomobiloj, kiujn la fremduloj uzas por admiri la vidindaĵojn de la grandaj urboj.
@@ -6025,12 +4831,7 @@ Poste li klinis sin antaŭen kaj kaptserĉis lerte inter la aro da teniloj, pren
 
 La montaro ne estas priskribebla. Vortoj diras nenion.
 
-Certe ne pri la Rokmontaro en Kolorado en oktobro, kiam la poploj velkas, nu, ili velkas, oriĝantaj. Tiuj, kiuj vidis velkantajn poplojn, kredas en feojn, al fabeloj. Nu, tiuj homoj ja ne bezonos sekajn priskribaĵojn, por sub-344
-
-FANNY
-
-
-teni sian fantazion. Kio koncernas la efikon de la montaro sur Fanny, unualoke ĝi malsatigis ŝin. Tion kaŭzis la akrodora, kapturniga aero. La montarvojo estas por tiu, kiu neniam laŭiris ĝin, fonto de plezura timtremego kaj agrabla kvazaŭteruro. i estas mallarĝa vojrubando, el-hakita en la rokmuro, vojeto, kiu ondumas kaj serpentumas, laŭ vico da ĉevalferaj kaj harpinglaj kurbiĝoj.
+Certe ne pri la Rokmontaro en Kolorado en oktobro, kiam la poploj velkas, nu, ili velkas, oriĝantaj. Tiuj, kiuj vidis velkantajn poplojn, kredas en feojn, al fabeloj. Nu, tiuj homoj ja ne bezonos sekajn priskribaĵojn, por subteni sian fantazion. Kio koncernas la efikon de la montaro sur Fanny, unualoke ĝi malsatigis ŝin. Tion kaŭzis la akrodora, kapturniga aero. La montarvojo estas por tiu, kiu neniam laŭiris ĝin, fonto de plezura timtremego kaj agrabla kvazaŭteruro. i estas mallarĝa vojrubando, el-hakita en la rokmuro, vojeto, kiu ondumas kaj serpentumas, laŭ vico da ĉevalferaj kaj harpinglaj kurbiĝoj.
 
 Fanny efektive tremegis kaj premalkroĉis sin de tempo al tempo al la benko. Tamen tio pasis. Big Thompson Canyon ne permesis tempon por teruro.
 
@@ -6048,9 +4849,7 @@ Fanny riskis demandon:
 
 Fanny ne sciis precize, ĉu la skuo, kiun ŝi sentis, estis pro ĝojo aŭ konsterniĝo.
 
-En Estes la blonda dio transdonis ŝin al ŝoforo de veturilo, kiu kondukos ŝin al la gastejo en la supra montaro, en valo je la alto de naŭmil futoj. Estis vojaĝo, kiun Fanny neniam forgesos. Fenger, Teddy, Haynes-Cooper, 345
-
-FANNY
+En Estes la blonda dio transdonis ŝin al ŝoforo de veturilo, kiu kondukos ŝin al la gastejo en la supra montaro, en valo je la alto de naŭmil futoj. Estis vojaĝo, kiun Fanny neniam forgesos. Fenger, Teddy, Haynes-Cooper,
 
 
 ŝiaj laboro kaj planoj, ĉio similis bagatelon kompare kun la grandiozeco de la panoramo, kiun ĉiu vojkurbiĝo disvolvis antaŭ ŝiaj okuloj. Alten, ĉiam pli alten ŝi iris, la aero fariĝis maldensa, malvarma, sed agrabla.
@@ -6061,20 +4860,12 @@ La manĝoĉambro estis okupita de dekduo da lacaj, sanaj homoj, en bombazinaj ve
 
 Oni surtabligis tiun vesperon frititan kokidaĵon. Fanny supozis, ke ŝi estas tro laca por manĝi, ĝis ŝi ekmanĝis kaj evidentiĝis, ke ŝi estas tro malsata por baldaŭ ĉesi.
 
-Post la manĝo ŝi sidis momenton antaŭ la fajrejo en la malalta salono kun la lignaj supraĵtraboj, la senornamaj benkoj kaj la verdaj kaj brunaj kusenoj. ŝi forgesis sian ĉagrenon. ŝi forgesis pri ĉio, krom pri tio, ke ŝi estas agrable lacega. ŝi suriris la primitivan spiralŝtuparon, kies apogilo konsistis el brulmarkita, strangkurba arbtrunko, al la dormoĉambreto, lumigata per lampeto, tre malgranda, tre kvieta, tre pura. ŝi malfermis la fenestron kaj rigardis sur la ŝtonmason de Long’s Peak, al la steloj kaj ŝi aŭdis la murmuradon de la rivereto, kiu serĉis sian vojon malsupren tra la korto de la gastejo. ŝi rapide mal-346
-
-FANNY
-
-
-vestis sin, enlitiĝis. plene konvinkita, ke ŝi estas tre malfeliĉa.
+Post la manĝo ŝi sidis momenton antaŭ la fajrejo en la malalta salono kun la lignaj supraĵtraboj, la senornamaj benkoj kaj la verdaj kaj brunaj kusenoj. ŝi forgesis sian ĉagrenon. ŝi forgesis pri ĉio, krom pri tio, ke ŝi estas agrable lacega. ŝi suriris la primitivan spiralŝtuparon, kies apogilo konsistis el brulmarkita, strangkurba arbtrunko, al la dormoĉambreto, lumigata per lampeto, tre malgranda, tre kvieta, tre pura. ŝi malfermis la fenestron kaj rigardis sur la ŝtonmason de Long’s Peak, al la steloj kaj ŝi aŭdis la murmuradon de la rivereto, kiu serĉis sian vojon malsupren tra la korto de la gastejo. ŝi rapide malvestis sin, enlitiĝis. plene konvinkita, ke ŝi estas tre malfeliĉa.
 
 La sekvanta, kion ŝi konsciis, estis la mateno, oktobra mateno en bluo kaj oro! La montoj! Nu, ja ne ekzistas vortoj por figuri la montaron. Fanny rigardis ilin, intermite dum la sinvestado. Denove ŝi konvinkiĝis pri siaj malfeliĉo, mizero. Tamen la sola , pri kio ŝi povis pensi, plene atenti, estis kafo, ŝ, ovoj kaj pano kun konfitaĵo.
 
 
-FANNY
-
-
-ĉAPITRO XIX.
+ĈAPITRO XIX.
 
 La kabano de Heyl. Fanny staris antaŭ ĝi, kun la ŝlosilo en la mano, (ŝi trovis ĝin al snuro en la leterkesto), ŝi ekhavis strange trankvilan senton, kvazaŭ ŝi hej-menvenis post longa migrado.
 
@@ -6088,12 +4879,7 @@ Tiam ŝi fermis la okulojn momenton nur . . . ”eble ne estus vero.”
 
 Sed la ligno kuŝis preta, la pnusoj same. ŝi rekte iris tien, prenis alumeton kaj ekbruligis ĝin, tenis ĝin sub la ligno. ĉio brulis kiel torĉo.
 
-Libroj. ĉie laŭlonge de la muroj. Dikaj, afablaj libroj, kiuj aspektis multlegitaj. Centoj da libroj. Lampo sur la tablo, pipo, nigrefumaĵita apude. Fanny prenis ĝin, ride-348
-
-FANNY
-
-
-tante, tenis ĝin en la mano, kvazaŭ ekzamenante, ĉu ĝi ankoraŭ estas varma.
+Libroj. ĉie laŭlonge de la muroj. Dikaj, afablaj libroj, kiuj aspektis multlegitaj. Centoj da libroj. Lampo sur la tablo, pipo, nigrefumaĵita apude. Fanny prenis ĝin, ridetante, tenis ĝin en la mano, kvazaŭ ekzamenante, ĉu ĝi ankoraŭ estas varma.
 
 ”Estas kiel en fabelo,” ŝi pensis, ”en kiu oni rakonta-das: ŝi eniris la sekvantan ĉambron, kaj tie ĉio estis tia, kiel la feino antaŭdiris.”
 
@@ -6105,44 +4891,27 @@ Flanke de la dormoĉambreto estis komike malgranda banejo kun zinka kuvo kaj apa
 
 Fanny retiris la kapon kaj ridis tiom, kiom ŝi ne estis ri-dinta dum multaj monatoj.
 
-”La sovaĝlibera vivo en la Rokmontaro,” ŝi diris laŭ-
+”La sovaĝlibera vivo en la Rokmontaro,” ŝi diris laŭte. ŝi reiris al la loĝoĉambro kun la librovandoj. Estis ĉambrego kun multaj fenestroj kaj ĉiu fenestro estis kadro de pitoreska pentraĵo de la montoj, malsupre sur-kreskitaj de poploj, supre kovritaj de neĝo.
 
-te. ŝi reiris al la loĝoĉambro kun la librovandoj. Estis ĉambrego kun multaj fenestroj kaj ĉiu fenestro estis kadro de pitoreska pentraĵo de la montoj, malsupre sur-kreskitaj de poploj, supre kovritaj de neĝo.
-
-Fanny decidis atendi, ĝis fine la flamanta fajro fariĝos karbardaĵo. Tiam ŝi kovris ĝin zorge por konservi ĝin, surmetis dikan mantelon kaj kufon kaj eliris. ŝi marŝis gaje kaj vigle, kio kaŭzis al ŝi en kvin minutoj jam sen-spirecon. ŝia koro batis sufoke, ŝiaj pulmoj doloris. Subite ŝi komprenis, ke la altego estas la kaŭzo. ŝi haltis tre-349
-
-FANNY
-
-
-metante. Heyl ja fanfaronis, ke lia kabano staras pli ol naŭmil futojn alte. ŝi komprenis, ke ŝi alkutimiĝu al tio.
+Fanny decidis atendi, ĝis fine la flamanta fajro fariĝos karbardaĵo. Tiam ŝi kovris ĝin zorge por konservi ĝin, surmetis dikan mantelon kaj kufon kaj eliris. ŝi marŝis gaje kaj vigle, kio kaŭzis al ŝi en kvin minutoj jam sen-spirecon. ŝia koro batis sufoke, ŝiaj pulmoj doloris. Subite ŝi komprenis, ke la altego estas la kaŭzo. ŝi haltis tremetante. Heyl ja fanfaronis, ke lia kabano staras pli ol naŭmil futojn alte. ŝi komprenis, ke ŝi alkutimiĝu al tio.
 
 Ne daŭris longe kaj refoje ŝi antaŭeniris same vigle kaj aŭdace kaj jen la ĝeno estis pli malgranda. La akra, maldensa aero pulsigis la sangon pli rapide, akcelis la spira-don. Oni avertis ŝin en la gastejo, ke ŝi estu singarda en la unuaj tagoj kaj kviete agadu, ne estu tro scivola, tro rapidema. Oni ne faris demandojn. Fanny baldaŭ komprenis la valoron de ilia konsilo, same kiel ŝi komprenis multajn aliajn aferojn en la proksimaj tagoj. ŝi lernis rekoni, distingi la bestojn, kiuj krucigis ŝian vojon, fulmrapide kvazaŭ ombroj. ŝi lernis rosti lardon super fajro per rostpikilo.
 
-ŝi lernis serĉi la ĝustan sunplenan elventan ripozejon sur plenventa deklivo por tie dorloti sin, ŝi lernis fiksi laŭ la suno la ĝustan horon, ŝi lernis danki pro la beleco de la mondo ĉirkaŭ ŝi, lasi kreskantaj la sovaĝajn florojn, ŝi lernis estingi zorge la kampadfajron kaj forbruligi la for-
-
-ĵetaĵojn post la restado, ĉar vera arbarvagisto kaj mont-grimpisto estas same purema kiel franca mastrino. La tutan tagon ŝi estis ekstere. Vespere ŝi legis apud la fajro, sed je la naŭa ŝiaj palpebroj peziĝis. Kelkfoje ŝi iris al la gastejo, sed ne ofte.
+ŝi lernis serĉi la ĝustan sunplenan elventan ripozejon sur plenventa deklivo por tie dorloti sin, ŝi lernis fiksi laŭ la suno la ĝustan horon, ŝi lernis danki pro la beleco de la mondo ĉirkaŭ ŝi, lasi kreskantaj la sovaĝajn florojn, ŝi lernis estingi zorge la kampadfajron kaj forbruligi la forĵetaĵojn post la restado, ĉar vera arbarvagisto kaj mont-grimpisto estas same purema kiel franca mastrino. La tutan tagon ŝi estis ekstere. Vespere ŝi legis apud la fajro, sed je la naŭa ŝiaj palpebroj peziĝis. Kelkfoje ŝi iris al la gastejo, sed ne ofte.
 
 Jen tio estis la sfero en kiu Fanny vivis, retrovis sin.
 
-ĉiurilate ŝi restis malproksime de Haynes-Cooper, kiom ajn. Post unu semajno ŝi povis kviete pripensi Teodoron 350
-
-FANNY
+ĉiurilate ŝi restis malproksime de Haynes-Cooper, kiom ajn. Post unu semajno ŝi povis kviete pripensi Teodoron
 
 
 kaj la okazaĵon kun Fenger. ŝi eĉ konstruis krudan filozofion sur la ruboj de la domoj, ruiniĝintaj ĉirkaŭ ŝi. ĉi tiu filozofio estis ankoraŭ tiel kruda, neellaborita, sen-forma, elementara, ke ŝi ne sukcesis esprimi ĝin per vortoj. i proksimume enhavis la jenon: la pravigo de ies ekzistado, la celo kaj la signifo de la vivo mem. Cetere kia estis la vivo en rilato kun tiu de aliaj personoj, kun kiuj ŝi kuniĝis. i neniel rilatis al aŭ kun sukceso. ŝi tion nun komprenis. La vivo estis nur servado, efektive. i estis tia, kian Molly Brandeis vivis, por aliaj homoj, help-inklina, malambicia. Fanny rezignis pri siaj klopodoj doni formon al tio, kio kreskis en ŝia menso. Eble estis nur deziro baldaŭ kompreni, kiuj sanĝiĝoj okazis en ŝi post tiu posttagmezo ĉe Fenger.
 
-Post kelkaj tagoj la grimpado estis al ŝi pli facila. ŝiaj koro kaj pulmoj ne tiel intense kontraŭstaris la neor-dinaran laboron. Iun tagon ŝi grimpis laŭ la vojeto al Long’s Peak ĝis la arbozono kaj trinkis teon ĉe Albert Edward Cobbins en la arbozona kabano. Albert Edward Cobbins, anglo, eksmaristo, aventuristo kaj ĝentilhomo, loĝanto de tiu kabano, estis la plej ermita homo de la Rokmontaro. Nokte li gastigis la turistojn, kiuj intencis grimpi sur la pinton de Long’s Peak, por admiri sunlevi-
-
-ĝon aŭ malleviĝon. Sed tiuj turistoj en la nuna sezono estis vere maloftaj. Kiam Fanny atingis lin, ŝi estis la 351
-
-FANNY
+Post kelkaj tagoj la grimpado estis al ŝi pli facila. ŝiaj koro kaj pulmoj ne tiel intense kontraŭstaris la neor-dinaran laboron. Iun tagon ŝi grimpis laŭ la vojeto al Long’s Peak ĝis la arbozono kaj trinkis teon ĉe Albert Edward Cobbins en la arbozona kabano. Albert Edward Cobbins, anglo, eksmaristo, aventuristo kaj ĝentilhomo, loĝanto de tiu kabano, estis la plej ermita homo de la Rokmontaro. Nokte li gastigis la turistojn, kiuj intencis grimpi sur la pinton de Long’s Peak, por admiri sunleviĝon aŭ malleviĝon. Sed tiuj turistoj en la nuna sezono estis vere maloftaj. Kiam Fanny atingis lin, ŝi estis la
 
 
 unua vizitantino en tri tagoj. Li estis kortuŝe ĝoja pro ŝia veno.
 
-”Mi faros teon por vi,” li diris ekscitite, ”kvazaŭ antaŭ-
-
-sento diris al mi, ke iu venos viziti min, ĉar jen antaŭ dek minutoj mi finis friti patkukojn, francajn krespojn.”
+”Mi faros teon por vi,” li diris ekscitite, ”kvazaŭ antaŭsento diris al mi, ke iu venos viziti min, ĉar jen antaŭ dek minutoj mi finis friti patkukojn, francajn krespojn.”
 
 Li estis belega virtipo, ses futojn alta, svelta, larĝŝultra kun bele formita kapo kaj inteligenta vizaĝo. Estis preskaŭ entuziasmige vidi lin okupita antaŭ sia malgranda bakforno.
 
@@ -6154,12 +4923,7 @@ Li estis belega virtipo, ses futojn alta, svelta, larĝŝultra kun bele formita 
 
 ”Libroj estas kelkfoje veraj, fraŭlino, sed mi mem ne estas montarvagisto. Por diri la veron, mi eĉ ne konas la vojon en distanco de kvindek futoj de la kabano. Oni ekzilis min ĉi tien, ĉar mi ŝatas la solecon kaj, cetere, mi povas bone kuiri, mi estis marista kuiristo antaŭ kaj dum multaj jaroj. Fakte mi do estas maristo. Mi do ne konsi-las al vi riski tion, fraŭlino, ĉu ankoraŭ tason da teo?”
 
-Sed Long’s Peak, la reĝo de la montaro, tro forte ravis, sorĉis ŝin de la unua momento. ŝi ja sciis, ke estos ne-352
-
-FANNY
-
-
-eble atingi la supron, sed ŝi absolute volis, deziris vidi la ŝtonmason de loko en la mezo de la montarspino. uste la malfacilaĵoj de la ekskurso pli multe estis logaĵoj.
+Sed Long’s Peak, la reĝo de la montaro, tro forte ravis, sorĉis ŝin de la unua momento. ŝi ja sciis, ke estos neeble atingi la supron, sed ŝi absolute volis, deziris vidi la ŝtonmason de loko en la mezo de la montarspino. uste la malfacilaĵoj de la ekskurso pli multe estis logaĵoj.
 
 Je tagmezo de la sekvinta tago, ŝi forlasis la kabanon de Albert Edward (li staris antaŭ la pordo, postrigardante ŝin, ĝis fine ŝi malaperis post la montmuro) kaj eksur-iris la vojeton al la ŝtonegkampo, la roksovaĝejo. Baldaŭ ŝi lasis post si la terure ventegdifektitajn arbojn. Kompare kun la rokoj, kiujn ŝi nun vidis, tiuj sub la kabano kaj la Twin Sisters1 estis nur montetoj.
 
@@ -6168,23 +4932,16 @@ Je tagmezo de la sekvinta tago, ŝi forlasis la kabanon de Albert Edward (li sta
 Je la unua ŝi atingis la ŝtonegkampon. La rokoj estis kovritaj de tavolo da glacio. Iom super la ’ŝlosiltruo’, la malgranda pordo en la rokmuro, la blua ĉielo subite ŝanĝiĝis en neĝanoncajn grizajn nubojn. ŝi sciis, ke ŝi ne estas sufiĉe sperta por trairi sendanĝere la ŝtonsovaĝejon, sed ŝi tamen volis provi. ŝi saltis de unu ŝtono sur la alian, proksimume duonhoron, tiam ŝi decidis reiri. Fari tiun decidon, rapidigis ŝin la tumulto, kaŭzita de tondroba-to, kiu subite eksplodis kaj e˛iĝis per la rokmuroj. ŝi rigardis ĉirkaŭ sin. ĉie montopintoj, purpuraj, nigraj, flavaj amasoj, fantaziaj pro giganteco. Kavernoj, kolonoj, 1 ĝemelfratinoj.
 
 
-FANNY
-
-
 piramidoj kaj minaretoj. ĉio tuj apud ŝi, tiel malmild-aspekta. Tiel fantome soleca, minaca. Subite ŝin kaptis la montarteruro, malsano okazanta al personoj, kiuj ne kutimas restadi en la montaro, kiun kaŭzas la senfineco kaj la kvieteco, la senbruo de la montoj. La granda ama-saro timigis ŝin. Angoro kaptis ŝin. Estis kolose, frakase, konsterne . . .
 
 ŝi komencis kuregi. Tio estas grava eraro sur montara vojeto, ĉar oni ja tre facile perdas la vojon. Post kvin minutoj ŝi jam erarvagis. ŝi restis staranta, sin riproĉan-te, rigardis ĉirkaŭ sin. Malproksime ŝi povis vidi la post-signon de siaj piedoj sur la forlasita vojo, ŝi almenaŭ imagis, supozis, ke ŝi vidas ĝin. ŝi iris tien kaj vidis, ke ĝi tute ne estas postsigno. ŝi sciis, ke ŝi estas nur proksimume unu horon for de la kabano de Albert Edward kun liaj teo kaj biskvitoj. Kial ŝi timu, ja estas absurde. Sed tamen ŝi estis timanta, terurita. La giganta rokamaso ŝajnis skuiĝi pro senbrua ridado. ŝi refoje ekkuregis. ŝi estis tre malvarma, akra vento ekblovis. ŝi restis marŝanta, obstina kaj penis kun sindeviga kvieteco konvinki sin, ke ne estas kialo timi.
 
-Tiam venis la neĝo, ne iom post iom, sed subite densa vualo kovris ĉion, same kiel okazas ofte en la montaro. Subite la angoro foriĝis, ŝi sentis sin forta kaj vigla, la sango tiklis en ŝiaj fingropintoj. La psikologio de angoro estas stranga aĵo. Fanny troviĝis en la dua stadio. ŝi 354
-
-FANNY
+Tiam venis la neĝo, ne iom post iom, sed subite densa vualo kovris ĉion, same kiel okazas ofte en la montaro. Subite la angoro foriĝis, ŝi sentis sin forta kaj vigla, la sango tiklis en ŝiaj fingropintoj. La psikologio de angoro estas stranga aĵo. Fanny troviĝis en la dua stadio. ŝi
 
 
 sentis apenaŭ sian korpon, ŝi forgesis siajn dolorajn piedojn. ŝi tute ne plu konsciis pri la malvarmo. ŝi trot-marŝis nun, facile kaj la tero ŝajnis instigi ŝin. ŝi jam rezignis pri serĉado de la perdita vojo, ŝi mistifikis sin, ke ŝi, pluen marŝante, iam fine atingos la valon, se ne, ke ŝi rondiros laŭ cirklo kaj estos englutita de unu el tiuj insi-daj fendegoj.
 
-ŝi haltis momenton kaj klopodis rigardi tra la neĝ-
-
-kurteno, sed ŝi nenion vidis. ŝi ree komencis galopi, duonridante. Subite ŝia piedo puŝiĝis kontraŭ io, prem-fiksiĝis kiel ajn kaj ŝi stumblis, falis sur lignan tabulon, kiu elstaris el la tero. Dum momento ŝi restis senkonscia.
+ŝi haltis momenton kaj klopodis rigardi tra la neĝkurteno, sed ŝi nenion vidis. ŝi ree komencis galopi, duonridante. Subite ŝia piedo puŝiĝis kontraŭ io, prem-fiksiĝis kiel ajn kaj ŝi stumblis, falis sur lignan tabulon, kiu elstaris el la tero. Dum momento ŝi restis senkonscia.
 
 Tiam ŝi eksidis kaj rigardis la lignan objekton. Verŝajne arbotrunko. Tiuokaze ŝi ja estus proksime de la arbzo-no. ŝi klinis sin antaŭen por pli bone rigardi. Estis kruda ligna tabulo. Pli proksimen. Vortoj troviĝis sur ĝi. ŝi kuŝigis sin plate por deĉifri la vortojn, pene.
 
@@ -6194,16 +4951,12 @@ Fanny aŭdis pri la historio de Sarah Cannon, ŝi estis homevitema virino, kiu s
 
 ŝia gvidisto forlasis ŝin por serĉi helpon, kiam li revenis post kelkaj horoj, ŝi estis mortinta.
 
-Fanny haltis, ŝi sentis novan energion, sovaĝan forton, ŝi sentis sin strange malpeza kaj klarpensa. ŝi rekuris, 355
-
-FANNY
+Fanny haltis, ŝi sentis novan energion, sovaĝan forton, ŝi sentis sin strange malpeza kaj klarpensa. ŝi rekuris,
 
 
 haltis, refoje kuris. ŝi kuris tien kaj reen, ne sciante kien.
 
-La neĝo falis pli dense. ŝi supozis, ke ŝi jam kuris dum multaj horoj, sed la minutoj fariĝis horoj. ŝi falis, ekstaris, falis post dek paŝoj denove kaj restis kuŝanta kun fermitaj okuloj. ŝiaj genuoj ne posedis plu forton fleksiĝ-
-
-i, porti ŝin.
+La neĝo falis pli dense. ŝi supozis, ke ŝi jam kuris dum multaj horoj, sed la minutoj fariĝis horoj. ŝi falis, ekstaris, falis post dek paŝoj denove kaj restis kuŝanta kun fermitaj okuloj. ŝiaj genuoj ne posedis plu forton fleksiĝi, porti ŝin.
 
 ”Nur ripozi momenton,” ŝi trompis sin, ”tuj mi daŭrigos. Tuj, nur iom ripozi.”
 
@@ -6226,9 +4979,6 @@ Fanny ekploris. ŝi tute ne pensis pri la miraklo de lia subita ĉeesto. Ja, ŝi
 ”Mi stumblis, falis pro tiu terura objekto . . . estas tomboŝtono aŭ io simila . . . mi dolorigis mian kruron, mi ne scias . . .”
 
 ŝi apogis sin sur li, senpova.
-
-
-FANNY
 
 
 ”Aŭskultu momenton,” diris Heyl, ”mi iros al la kabano por serĉi helpon kaj vi dume atendos ĉi tie.”
@@ -6255,16 +5005,12 @@ FANNY
 
 ŝi posedis ankoraŭ sufiĉe da spirito por diri: ”Fiulo!”
 
-Tiam li levis ŝin kaj portis ŝin malsupren. Li ne portis ŝin sur la brakoj, kiel oni kutimas fari en filmoj kaj romanoj. Tiel li certe ne eltenus tion cent futojn de tie. Li portis ŝin sur la ŝultro, kiel sakon da faruno, tenante unu manon kaj unu kruron. ĉiu skolto scipovas tiun lertaĵon 357
-
-FANNY
+Tiam li levis ŝin kaj portis ŝin malsupren. Li ne portis ŝin sur la brakoj, kiel oni kutimas fari en filmoj kaj romanoj. Tiel li certe ne eltenus tion cent futojn de tie. Li portis ŝin sur la ŝultro, kiel sakon da faruno, tenante unu manon kaj unu kruron. ĉiu skolto scipovas tiun lertaĵon
 
 
 kaj scias, kiel oportune oni portas homon tiamaniere, tio nur estas malmulte romantika. Tiel ili alvenis al la arbozona kabano. Albert Edward staris ĉe la pordo. Heyl metis ŝin singarde sur la benkon, kiu staris apud la tablo.
 
-Sur la tablo staris baldaŭ du tasoj kun varmega, vapori-
-
-ĝanta teo. La lipoj de Fanny estis krevintaj. ŝia nazo estis senhaŭtigita kelkloke, ŝiaj haroj estis taŭzitaj, ŝiaj okuloj estis ruĝrandaj. ŝi trinkis la teon per avidaj glu-toj. Poste ŝi iris al la dormoĉambreto kaj rampe grimpis en unu el la litŝrankoj kaj ekdormis.
+Sur la tablo staris baldaŭ du tasoj kun varmega, vaporiĝanta teo. La lipoj de Fanny estis krevintaj. ŝia nazo estis senhaŭtigita kelkloke, ŝiaj haroj estis taŭzitaj, ŝiaj okuloj estis ruĝrandaj. ŝi trinkis la teon per avidaj glu-toj. Poste ŝi iris al la dormoĉambreto kaj rampe grimpis en unu el la litŝrankoj kaj ekdormis.
 
 Kiam ŝi vekiĝis, ŝi eksaltis timeme, puŝiĝis per la kapo kontraŭ unu el la tabuloj de la supra dormejo kaj vokis:
 
@@ -6280,9 +5026,7 @@ Kiam ŝi vekiĝis, ŝi eksaltis timeme, puŝiĝis per la kapo kontraŭ unu el la
 
 ŝi ellitigis sin, iom rigide, lavis sian veterdifektitan vizaĝon kaj aperigis pudrujon (tion oni ja kunportas en batalo kontraŭ danĝero kaj morto) kaj pudris sian senhaŭtan nazon. ŝi ordigis la harojn, siajn densajn abun-dajn harojn, kiuj brilis en la lumo da le lampo, glatigis sian bluzon kaj rigardis bedaŭre siajn difektitajn ŝuojn.
 
-ŝi purigis la ŝuojn kiel eble plej bone per tolĉifono kaj 358
-
-FANNY
+ŝi purigis la ŝuojn kiel eble plej bone per tolĉifono kaj
 
 
 rigardis sin atente en la ŝanceliĝanta speguleto, poste eniris la ĉambron. La du viroj estis kviete parolantaj.
@@ -6307,12 +5051,7 @@ Li ridetis.
 
 Subite ŝiaj manoj leviĝis, por kaŝi la larmojn, sed vane.
 
-ŝi kuŝigis la brakojn sur la tabloplaton kaj faligis la ka-359
-
-FANNY
-
-
-pon sur ilin, tiel ke la manĝilaro tinte interpuŝiĝis. Poste ĉio estis kvieta.
+ŝi kuŝigis la brakojn sur la tabloplaton kaj faligis la kapon sur ilin, tiel ke la manĝilaro tinte interpuŝiĝis. Poste ĉio estis kvieta.
 
 Clarence Heyl rigardis senhelpe, kiel povas rigardi viro, kiu unuafoje en sia vivo devos konsoli larmantan virinon. Sed lia instinkto helpis lin. Per du paŝoj li estis apud ŝi, li metis la manojn sur siajn ŝultrojn kaj levis singarde la klinitan kapon de la malvarma, malmola tabloplato kaj ripozigis ĝin sur la varma, tabakodora molaĵo de sia jako. Tie ĝi restis kuŝanta komforte.
 
@@ -6326,9 +5065,7 @@ Fanny fermis la okulojn.
 
 ŝi klopodis malfermi aŭdace la okulojn, sed vane.
 
-Tiam li reklinis sin kaj kisis Fanjon, kiel virino deziras, ke viro, kiun ŝi amas, kisu ŝin iam. La kiso dolorigis ŝiajn lipojn, ŝiajn dentojn, ŝian kolon, ŝi senspiriĝis, preskaŭ svenis. Kiam ŝi malfermis la okulojn (ĉar ino tiuokaze fermas ilin) li kisis ŝin refoje, ĉi tiun fojon tre karese, tre singarde. ŝi respondis per kiso kaj estas rimarkinde, ke 360
-
-FANNY
+Tiam li reklinis sin kaj kisis Fanjon, kiel virino deziras, ke viro, kiun ŝi amas, kisu ŝin iam. La kiso dolorigis ŝiajn lipojn, ŝiajn dentojn, ŝian kolon, ŝi senspiriĝis, preskaŭ svenis. Kiam ŝi malfermis la okulojn (ĉar ino tiuokaze fermas ilin) li kisis ŝin refoje, ĉi tiun fojon tre karese, tre singarde. ŝi respondis per kiso kaj estas rimarkinde, ke
 
 
 ĉi tiu kiso ankoraŭ longe restis en ŝia memoro, kiam jam ĉiuj aliaj estis forgesitaj.
@@ -6345,12 +5082,7 @@ Kaj ŝi siavice kredis lin sendube, ĉar ŝi premis lian vangon sur sian, ĝeman
 
 ”Eble al mi okazos,” respondis Fanny, ”kiam ni estas ĉi tie, ke mi memoras, kiel aspektas Kvina Avenuo en belega tago ĉirkaŭ la kvina. Tre verŝajne mi forsavos min al Novjorko.”
 
-Tiam komenciĝis tiel malsaĝa interparolado, kian nur geamantoj povas kompreni, kies amo malrapide kaj cer-361
-
-FANNY
-
-
-te kreskis. Proksimume jene: ”Kiam vi unuafoje eksciis, ke vi amas min?”
+Tiam komenciĝis tiel malsaĝa interparolado, kian nur geamantoj povas kompreni, kies amo malrapide kaj certe kreskis. Proksimume jene: ”Kiam vi unuafoje eksciis, ke vi amas min?”
 
 ”Memoru tiun tagon en la dunoj, ĉu vi ne diris tion, kaj vi celis tamen tion ĉi, ion alian.”
 
@@ -6375,9 +5107,6 @@ Fanny frotis la nazon per la fingro (lia) kaj diris:
 Li atake respondis: ”Mi devas konfesi, ke mi estas homo, kiu ĵetas malsekajn lavtukojn en la lavujon.”
 
 
-FANNY
-
-
 Momenton Fanny estis tre serioza, kiam ŝi demandis:
 
 ”ĉu vi supozas, ke Lasker emos dungi min?”
@@ -6393,9 +5122,6 @@ Momenton Fanny estis tre serioza, kiam ŝi demandis:
 ”Ne, kontraŭe, vi ĝuste nun trovos ĝin por ne plu perdi ĝin. Antaŭ du jaroj estis neniu karikaturisto, kiu povis egali vin, nek viro, nek virino. Post du jaroj vi estos tiel progresinta, ke mi . . . nur estos . . . nu . . . la edzo de la fama Fanny Brandeis, jen ĉio.”
 
 Tiam ili ambaŭ eksplodis en rido, tiel ke Albert Edward Cobbins vekiĝis, kaj rigardis, kvazau li tute ne estus dorminta. Li ne sukcesis kaj pro tio li stultmiene, dormoprete ridis al ili.
-
-
-FANNY
 
 
 www.omnibus.se/

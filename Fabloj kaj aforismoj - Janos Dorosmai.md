@@ -7,8 +7,6 @@ kaj
 aforismoj
 
 
-### 1
-
 FABLOJ KAJ AFORISMOJ
 
 
@@ -27,13 +25,7 @@ FABLOJ KAJ AFORISMOJ
 *http://www.omnibus.se/* ****
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 FABLOJ
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La maljuna Honesto kaj liaj filoj Oni forprenis de la maljuna kaj pia Honesto eĉ lian ununura restintan bovinon. ĉi lastan mem la Leĝo.
@@ -49,9 +41,6 @@ Kaj la fratoj prenis la manon unu de la alia, kaj ekvojis. Ili foriris, por trov
 —Kaj mi servos nur estron, — diris la pli juna frato, la Juro, kiu estos tiel forta, kiel neniu krom li. La cetero min ne zorgigas! Eĉ, mi forlasos lin en la momento, kiam mi trovos iun pli fortan!
 
 ĉe la vojkruciĝo ili brakumis unu la alian, disiĝis kaj poste neniam plu ili renkontiĝis.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Ili dungiĝis por ĝismorte.
@@ -74,9 +63,7 @@ Scienculoj de Similando havis kunsidon. Tagordis mon-dotuŝa problemo: la origin
 
 La kunsidon atendis kun granda interesiĝo ne nur la sciencularo, sed eĉ la laika mondo, kaj tial ĝi estis eks-terordinare vizitata.
 
-Pri la tikla temo referis Simĉjo, la juna membro de la Simia Scienca Akademio, kaj kiu tiel longe eksplikadis, 5
-
-FABLOJ KAJ AFORISMOJ
+Pri la tikla temo referis Simĉjo, la juna membro de la Simia Scienca Akademio, kaj kiu tiel longe eksplikadis,
 
 
 klarigadis, referencante jen siajn proprajn reserĉojn en malnovaj gufejoj, jen pezajn traktatojn de la lastaj jardekoj, ke fine abrupte li elbuŝigis la aserton, ke sume-resume la simioj originas … de la homo.
@@ -89,14 +76,9 @@ Sed rekonsciiĝinte el sia momenta ŝtoniĝo, ili des pli sakris, protestis, kri
 
 —Ni protestas! Li mensogas! Ni ne originas de la mizera homo. Vi eble jes (ja eĉ vidiĝas), sed ni ne! Li ofendis la tutan simian genton. For kun li! …
 
-Sume-resume la kunsido dividiĝis en partiojn, repli-kojn sekvis rebatoj, kaj komence nur gorĝoj, poste an-kaŭ pugnoj, fine eĉ bastonoj eklaboris. Kaj lia dokta mo-
-
-ŝto Simĉjo kaj liaj kunscienculoj agis prudente, kiam unu post alia ili malaperadis, simile al guto en maro, el laąosa voĉokirlo, ĉar kio tie sekvis, eĉ duone ne nome-blis ŝerco!
+Sume-resume la kunsido dividiĝis en partiojn, repli-kojn sekvis rebatoj, kaj komence nur gorĝoj, poste an-kaŭ pugnoj, fine eĉ bastonoj eklaboris. Kaj lia dokta moŝto Simĉjo kaj liaj kunscienculoj agis prudente, kiam unu post alia ili malaperadis, simile al guto en maro, el laąosa voĉokirlo, ĉar kio tie sekvis, eĉ duone ne nome-blis ŝerco!
 
 Je la arbaroskua bruo de la terura kaj furioza brukon-fuzo alariĝis kompreneble ankaŭ la aliaj loĝantoj de la arbaro, kaj mirante pri la edifaj scenoj, ili balancis la kapon.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Kiel do, ili sakras, kverelas, draŝas kaj mordas unu la alian, kaj aŭdacas aserti, ke ili devenas — ne de la homo!
@@ -114,9 +96,6 @@ Ankaŭ la Strigo estis origine taga birdo, sed iam iu ka-lumniis lin asertante, 
 Tiom, ke li trudiĝis nokte perlabori sian nutraĵon, kaj nun efektive kapti musojn.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Strigo montriĝis tiutempe birdo kun mirinda pacienco, sed foje li tamen eksplodis, kaj rebatis tiel al siaj persekutantoj:
 
 —Jes ja, … jes ja … la Strigo, kiu kaptas musojn, estas rabobesto sangosoifa kaj murdema, lin juste persekutas eĉ la mizera Pasero. Sed pri tiuj, kiuj forrabas kapreolojn kaj ŝafidojn, silentas la kronikoj, kaj eĉ hareto ne difektiĝas al ili.
@@ -130,9 +109,6 @@ En iu el siaj maloftaj minutoj tiaj la Azeno cerbumis jene:
 —Dio mia! Kiel altan ŝtupon mi atingis! Mi nur almenaŭ scius, ĉu mi estas tiel saĝa kaj inteligenta, aŭ ĉi tiuj estas tiel terure malsaĝaj?!
 
 Diskuto inter la Alaŭdo kaj la Strigo La Strigo aŭdis la kantadon de la Alaŭdo, kaj ĉar li ne tro kontentis pri ĝi, li parolis mistakse pri ĝi.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Tio venis en la orelon de la Alaŭdo, kaj li, en sia subita kolero, eksplodis:
@@ -158,9 +134,6 @@ La Aglo trafis en ŝafejon, kaj pro siaj grandaj flugiloj neniel li povis malimp
 —Nu jes, mia filo, — ekparolis nun ankaŭ la mallibe-riĝinta Reĝo. — Flugi eblas ja nur tie, kie oni povas libere malfermi la flugilojn, kaj pri tio ankaŭ la Agloj ne estas esceptoj. Inter la malvastaj bariloj mezuritaj ne por ili estas des pli senpovaj, ju pli grandegaj estas iliaj flugiloj!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La sekreto
 
 —Mi observadas, — diris la Muŝo al la Araneo el prudente sufiĉa distanco, — ke vi nur trikas vian reton en la angulo, kaj apenaŭ vi apudsidas tempeton, vi jam havas kaptaĵon. Kaj kelkaj viktimoj troviĝas eĉ por la plej mizeraj tagoj … Diru, kiel tio estas! Kion vi faras, ke ili vin tiel vizitadas? ĉu vi invitas, ravas ilin?
@@ -171,12 +144,7 @@ La saĝa Bubalo
 
 Sur la somerfinajn stoplejojn, senigitajn je la grenokru-coj, oni elpelis ĉiujn paŝtobrutojn el la farmoj. En tiaj kazoj kunariĝas bovoj de eĉ kvin-ses farmoj: blankaj, ruĝaj kaj krome bubaloj. Sed ankaŭ junbovoj!
 
-—Ni bovoj estas sufiĉe multaj, — konstatis la Maljuna Grandkorna antaŭ la proksime remaĉantoj, kiam li ĉir-kaŭportis sian mezurantan rigardon tra la arego, kiu po-10
-
-FABLOJ KAJ AFORISMOJ
-
-
-vus egali eĉ nacian asembleon. — Kiu kredus, ke ekzistas tiom da Bovoj?!
+—Ni bovoj estas sufiĉe multaj, — konstatis la Maljuna Grandkorna antaŭ la proksime remaĉantoj, kiam li ĉir-kaŭportis sian mezurantan rigardon tra la arego, kiu povus egali eĉ nacian asembleon. — Kiu kredus, ke ekzistas tiom da Bovoj?!
 
 Kaj oni miris eĉ pli, kiam grandega bovo vidis pli grandan, ol si …
 
@@ -201,9 +169,6 @@ Iu junbubalo ankaŭ demandis la Maljunan Bubalon ĉi-koncerne:
 La naiva Junbubalo primiris la saĝon de la Skribo, kaj daŭrigis jene:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Tamen ja ne veras, ĉu, ke kia estas la junbubalo, tia bovo li devas fariĝi kun la tempo; do ni, nigraj junbubaloj same povas fariĝi tiel belegaj, grandaj blankaj bovoj, ĉu?
 
 —Ne, kara filo, — respondis la Maljuna Bubalo iom maleme pro tia ofendo de sia nobla raso, — ĉar se tia estas la ordo de la mondo, ke el blanka junbubalo fariĝu blanka, el ruĝa ruĝa bovo, tiam konvenas ankaŭ, ke el nigra junbubalo fariĝu nur kaj sole nigra bovo! ĉu vi komprenas min, kara filo?
@@ -218,12 +183,7 @@ Dum la longa aŭtuno de seka jaro la kompatindaj ŝafoj trafis en teruran mizero
 
 Informiĝis pri tio ankaŭ la nobla reĝo de la bestoj, la Leono.
 
-”Nu, li pensis, ili havu ajnan malfeliĉon, iel mi elhel-12
-
-FABLOJ KAJ AFORISMOJ
-
-
-pos ilin; ankoraŭ neniam okazis, ke oni iel aŭ tiel ne elturniĝu!” Li mesaĝis al ili, ke ili alsendu siajn gvidantojn por konsiliĝo, tie ili povos pritrakti siajn malfeliĉojn.
+”Nu, li pensis, ili havu ajnan malfeliĉon, iel mi elhelpos ilin; ankoraŭ neniam okazis, ke oni iel aŭ tiel ne elturniĝu!” Li mesaĝis al ili, ke ili alsendu siajn gvidantojn por konsiliĝo, tie ili povos pritrakti siajn malfeliĉojn.
 
 Kaj li atendis.
 
@@ -245,9 +205,7 @@ Kaj ili respondis:
 
 —Iru hejmen kaj anoncu: mi mesaĝas al la ŝafoj: ili ne plendu, nek lamentu, eĉ ne malkontentu, sed silentu kaj
 
-ĝoju, ke ili entute vivas. Popolo, kiu por la aranĝo de sia 13
-
-FABLOJ KAJ AFORISMOJ
+ĝoju, ke ili entute vivas. Popolo, kiu por la aranĝo de sia
 
 
 sorto elektas, eĉ en mizera tempo, azenojn, meritas morti pro malsato.
@@ -265,9 +223,6 @@ La saĝeco de Azenoj
 En ia limdisputo estiĝis proceso inter la najbaraj ŝafoj kaj Kaproj. Por ties definitiva aranĝo la ŝafoj delegis sian Azenon, kaj la Kaproj sian Bokon.
 
 —Nu, — ekridetis en si la Boko informiĝinte, ke li havos farendon en iel grava afero nur kun Azeno, — ĉi tiun ni iel supersaĝos.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Sed apenaŭ ili alpaŝis la aferon, lia opinio ŝanĝiĝis:
@@ -291,9 +246,6 @@ Kiel okazis, kiel ne, iu eĉ aŭdacis aserti, ke la Homo ellernis ĉi tiun malbe
 Tio ĉagrenis la noblan reĝon de la bestoj. Tial li venigis al si la Urson ad audiendum verbum (por aŭdigi sian opinion), kaj diris al li:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Ej! Ej! maljuna grumblulo, estante nobla besto ĉu vi ne hontas … ĉu ne sufiĉas, ke la Abeloj senĉese plendas pro via lekema naturo, nun mi devas aŭdi ankaŭ, ke la fian kutimon de manlekado same vi disvastigis inter la Homoj?!
 
 Je ĉi tiuj vortoj la vizaĝon de la surprizita Urso inun-dis sango, apenaŭ li retrovis la vortojn. Nur post longe li rekonsciiĝis, kaj tiam jene li parolis:
@@ -304,9 +256,7 @@ Je ĉi tiuj vortoj la vizaĝon de la surprizita Urso inun-dis sango, apenaŭ li 
 
 Verkistoj pretaj
 
-Falis la Muŝo en n de l’ Gufo, Serĉe elvojon el kapto de l’kuvo, Li rampis sur paperon tie kuŝan, 16
-
-FABLOJ KAJ AFORISMOJ
+Falis la Muŝo en n de l’ Gufo, Serĉe elvojon el kapto de l’kuvo, Li rampis sur paperon tie kuŝan,
 
 
 Kaj lasis poste sian spuron muŝan.
@@ -335,9 +285,7 @@ Foje li turnis sin al sia juna najbaro:
 
 —Diru al mi, filo mia, en kio kaŝigas la mirinda sekreto de via belstatura grandeco?
 
-Kiel povas esti, ke malgraŭ mia centjara ekzistado mi kreskis el la sama grundo nur tiom, kaj kune kun mia ampleksiĝo pliiĝas de jaro al jaro nur mia ombro kaj ties malhelo, dum vi kun via svelta trunko pasas inter steloj; 17
-
-FABLOJ KAJ AFORISMOJ
+Kiel povas esti, ke malgraŭ mia centjara ekzistado mi kreskis el la sama grundo nur tiom, kaj kune kun mia ampleksiĝo pliiĝas de jaro al jaro nur mia ombro kaj ties malhelo, dum vi kun via svelta trunko pasas inter steloj;
 
 
 kaj dum per siaj vizitoj min indigas maksimume kelkaj klaĉemaj paseroj, sur via supro taglonge meditadas la Aglo, reĝo de la birdoj? …
@@ -363,9 +311,6 @@ Kiel vi ne unuiĝas en asocio, baptano? — demandis la Gvidŝafo la hundon Kris
 —Ni konsciiĝis, ke mordi nin ankaŭ sen asocia bazo ni povas, kaj eĉ membrokotizon oni ne bezonas pagi por tio.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Cikonio kaj la Alaŭdo
 
 —Kiel vi povas flugi tiel sagorekte en la ĉielon, Alaŭdo, dum mi, kvankam mi havas pli grandajn kaj fortajn flugilojn, povas leviĝi tien nur malrapide kaj post longa girado? — demandis la Cikonio la Alaŭdon.
@@ -384,12 +329,7 @@ Finfine iun fojon ili hazarde renkontiĝis.
 
 La maljuna Gufo levadis la ŝultrojn.
 
-—Estus ankoraŭ pardoneble, — daŭrigis la Azeno la lecionon, — se vi dirus nin diktatoroj, orgoljuloj, egoi-19
-
-FABLOJ KAJ AFORISMOJ
-
-
-stoj aŭ potencmaniuloj.. sed idiotoj? Tio estas ja tro, ĉu vi ne pensas, maljunulo?
+—Estus ankoraŭ pardoneble, — daŭrigis la Azeno la lecionon, — se vi dirus nin diktatoroj, orgoljuloj, egoistoj aŭ potencmaniuloj.. sed idiotoj? Tio estas ja tro, ĉu vi ne pensas, maljunulo?
 
 —Vidu, — ekparolis nun la maljuna Gufo, — la afero statas tiel, ke vort’ al tiu ne krudas, kiun ĝi ne aludas. Kaj
 
@@ -418,9 +358,6 @@ sed nura-vera Homo …
 —Li ja havas gambojn, — asertas alia.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Ankaŭ ĉapelon li portas, — konfirmas la tria.
 
 —Ne sufiĉas! — intermetas iu Maljuna Birdo. — Rigardu, ĉu li havas kapon! ĉar nur tiu estas homo, kiu havas ne nur brakojn, gambojn kaj — ĉapelon, sed an-kaŭ kapon!
@@ -438,9 +375,6 @@ La konversacio ŝajne finiĝis kun favora rezulto, ĉar ferminte ĝin la ĉevalo
 —Kamarado, vi estas certe tiel saĝa, kia vin diras niaj kunbestoj, kaj ne malsaĝa, kia vin la homoj asertas!
 
 —Vere kaj prave, — respondis al tio modeste la Azeno, — ke la bestoj opinias min saĝa kaj la homoj malsaĝa. Sed kion fari? ”Similis simili gaudet” (Similulo ĝojas pri similulo), kaj tiu, kiu hodiaŭ volas vivi, devas ja esti jen saĝa, jen malsaĝa depende de tio, kun kiu li havas aferon!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La kolhararo
@@ -462,16 +396,11 @@ Saĝaj
 —Nu, ĝuste tio! — respondis la Maljuna Virŝafo. —
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Tiu ja, kiu povis silenti en la societo de tiom da malsaĝaj ŝafoj dum tiel multaj jaroj: devas esti saĝa!
 
 La saĝa kverko
 
-—Kial vi ŝanceliĝas, Reĝa Kverko en la vento samkiel ajnaj arboj ordinaraj, ja ankaŭ la proverbo deklaras, ke kverko ne nur pro venteto ne ekŝanceliĝas, sed eĉ tempeston li kontraŭstaras? — demandas la Nubo preterpasanta super la arbaro la potencan Kverkon balanci-
-
-ĝantan tien-reen en la vento.
+—Kial vi ŝanceliĝas, Reĝa Kverko en la vento samkiel ajnaj arboj ordinaraj, ja ankaŭ la proverbo deklaras, ke kverko ne nur pro venteto ne ekŝanceliĝas, sed eĉ tempeston li kontraŭstaras? — demandas la Nubo preterpasanta super la arbaro la potencan Kverkon balanciĝantan tien-reen en la vento.
 
 —Tial, amiko, — respondas la Kverko, — ĉar se mi ne fleksiĝus, eble mi devus rompiĝi. Kaj saĝa arbo, eĉ se kverko, prefere fleksiĝas kaj cedas, ĝis eblas, ol rompiĝas ĉe la talio!
 
@@ -483,9 +412,7 @@ De tempo al tempo suprenflugas tien ankaŭ la Pasero, kio estas ne tro malfacila
 
 Iun fojon ili renkontiĝas.
 
-—Kamarado, ĉar mi vidas, ke ankaŭ vi ĉi tie kutimas 23
-
-FABLOJ KAJ AFORISMOJ
+—Kamarado, ĉar mi vidas, ke ankaŭ vi ĉi tie kutimas
 
 
 ripozi postlabore, kaj de ĉi tie vi plezuriĝas je la beleco de nia regiono, simile al mi, kaj ankaŭ vi havas du flugilojn, simile al mi, do ankaŭ vi estas birdo; kaj ĉar do inter ni estas tiom da similecoj, eĉ egalecoj, mi opinias: ni estu amikoj … — diris la impertinente babilema Pasero al la Aglo.
@@ -503,9 +430,6 @@ Riproĉis la Pasero la Alaŭdon, ke tiu tuttage nur flugadas, kantadas, kaj ne k
 —Rigardu la mian, — li diras, — kiel mola, kiel varma, kiel arteca ĝi estas.
 
 —Kiom ĝi valoras? — demandas la Alaŭdo. — En tiu mola, varma, arteca nesto vi elovigas nur paserojn, kaj al mi ankaŭ en ĉi tiu mizeras elkoviĝas ĉiam alaŭdoj!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kukurboj
@@ -528,9 +452,7 @@ La Koltordulo
 
 —Kion celas, kamarado, — demandas la Kukolo la Kol-tordulon, ke vi senĉese tordas la kolon tien-reen … vi ja pli multe retro- ol antaŭrigardas?
 
-—Nu jes! — respondas la Koltordulo, — ĉu nuntempe oni devas timi, ke iu malamiko venas al ni vid-alvide? Kion do mi serĉu antaŭe? Sed ĉu ne konsilindas 25
-
-FABLOJ KAJ AFORISMOJ
+—Nu jes! — respondas la Koltordulo, — ĉu nuntempe oni devas timi, ke iu malamiko venas al ni vid-alvide? Kion do mi serĉu antaŭe? Sed ĉu ne konsilindas
 
 
 zorge okulsekvi la de ĉiuj flankoj flate alpuŝiĝantajn
@@ -539,9 +461,7 @@ zorge okulsekvi la de ĉiuj flankoj flate alpuŝiĝantajn
 
 La Pasero
 
-La Pasero, persekutata kaj jam kaptota de la Falko, rifu-
-
-ĝis subite inter la dornajn branĉetojn de la proksima nesto de la Aglo, kaj ĉar tiutage li jam ne kuraĝis eliri, tie li ankaŭ tranoktis.
+La Pasero, persekutata kaj jam kaptota de la Falko, rifuĝis subite inter la dornajn branĉetojn de la proksima nesto de la Aglo, kaj ĉar tiutage li jam ne kuraĝis eliri, tie li ankaŭ tranoktis.
 
 Kaj ĉar dum li zorge rigardis al si la ĉirkaŭaĵon, kaj ĝi ekplaĉis al li, turnis sin kun peto al la Aglo:
 
@@ -555,9 +475,7 @@ La Aglo, havanta ĝuste alian farendon, kapjesis; kaj la Pasero sekvatage ekloĝ
 
 Sed post nelonge tie loĝis jam la baptano, bofrato, eĉ la kuzo de la Pasero kune kun la respektivaj avoj kaj havoj, kaj la Aglo tre multe miris, kiam la Pasero denove turnis sin al li dirante:
 
-—Via Reĝa Moŝto, la afero jam statas tiel, ke estus 26
-
-FABLOJ KAJ AFORISMOJ
+—Via Reĝa Moŝto, la afero jam statas tiel, ke estus
 
 
 bone, se iu el ni forloĝiĝus, pro ke mi ne plu havas lokon sufiĉan por mia granda familio. ĉu vi ne povus serĉi al vi alian lokon en la arbaro?
@@ -583,9 +501,6 @@ Aŭdinte pri la malsukceso de sia filo la Maljuna Falko observis, kiam tiu ĵeta
 —Nu jes, nu jes. Tiaj estas vi, junuloj! — ekparolis la Maljunulo en duone komprenema, duone riproĉa tono.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 — ĉion vi volas, kaj ĉion samtempe, tuj. Kvankam la sekreto de la sukceso de la vivo estas ĝuste tio, ke oni volu samtempe ĉiam nur unu aferon. Sed tiun kun ĉiuj siaj fortoj!
 
 Antaŭbalotaj ventoj
@@ -602,9 +517,7 @@ La Prezidanto
 
 Hejmenirante el la ĝenerala kunveno de la Grego, kie resumante la jarajn atingojn la Maljuna Virŝafo ĝisĉie-le laŭdis la Azenon kiel asocian prezidanton, kaj atribuis la atingitajn rezultojn inter laŭtaj aproboj kaj aplaŭdoj sole al ties elstaraj saĝo kaj antaŭvidemo, la Juna Virŝafo parolis tiel al la Maljuna:
 
-—Kara onklo, se jam unu prezidanto kapablas tiom 28
-
-FABLOJ KAJ AFORISMOJ
+—Kara onklo, se jam unu prezidanto kapablas tiom
 
 
 utili al la asocio, mi ne komprenas, kial ni ne elektas tuj plurajn?
@@ -622,9 +535,6 @@ La Fringo observanta super ili trovis tion stranga, tial la sekvan fojon li alpa
 —Vidu, filo, — respondas la Lupo, — tio estas ĉe ni praa nacia kutimo. Ni ankaŭ devas konservi ĝin. De kio oni povus scii, en kiu kio kaŝiĝas? Eble iu el ili finfine tamen faros ion saĝan, kaj tiam kiel multe ni ĝojos, ke ni
 
 — trafis! … Kaj krome ni povas ŝuldi dankon ankaŭ al tiu, kiu nenion faris, ja kiu scias, de kiom da malsaĝaĵoj li savis sian nacion per tio, ke li faris nenion?!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Leonoj
@@ -647,9 +557,7 @@ La Aglo aŭdis pri la famo de la Saĝa Sturno.
 
 Kaj kvankam li egale kredis kaj ne kredis la onidirojn pri li, tamen li jam volis lin aŭdi kaj vidi.
 
-La saĝeco de la Sturno konsistis propradire nur el tio, 30
-
-FABLOJ KAJ AFORISMOJ
+La saĝeco de la Sturno konsistis propradire nur el tio,
 
 
 ke vivante inter siaj birdokunuloj li observis ties propraĵojn kaj kutimojn.
@@ -675,9 +583,6 @@ Sed la Sturno estis saĝa, kaj limigis sian prezentadon nur al la malgrandaj Kam
 — vi estas vere amuza junulo, kaj scias tre multe …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kaj la Saĝa Sturno, direktanta sian rigardon kun faj-na ironio tra la vico de la videble malpeziĝinta Kortega Birdaro, dece riverencis, kaj komentis nur:
 
 —Kaj kiom pli, se mia lango estus malligita! …
@@ -697,9 +602,6 @@ Lupohundo
 Tiel plendis al sia amiko sinjoro, kiu havis grandegan, dresitan lupohundon.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Sed ĉu vi ne ligis kaj kelkfoje ankaŭ batis vian hundon? — demandis la bona amiko.
 
 —Nu jes, mi batis kaj ankaŭ ligis ĝin, alie kiel mi povus ĝin dresi?
@@ -714,12 +616,7 @@ La Blankaj Lipharoj
 
 La Saĝa Erinaco
 
-Komence, kiam la bestoj elektis por si porĉiamajn armilojn, kaj kelkaj prenis akrajn dentegojn, aliaj potencajn muskolojn kaj pluraj longajn, fortikajn gambojn por for-33
-
-FABLOJ KAJ AFORISMOJ
-
-
-kuro ktp, alparolis la Nigre-griza Lupo la malgrandan Erinacon kolektantan etajn pinglojn:
+Komence, kiam la bestoj elektis por si porĉiamajn armilojn, kaj kelkaj prenis akrajn dentegojn, aliaj potencajn muskolojn kaj pluraj longajn, fortikajn gambojn por forkuro ktp, alparolis la Nigre-griza Lupo la malgrandan Erinacon kolektantan etajn pinglojn:
 
 —Vi estas tiel malgranda, kaj vi tamen prenas ne akrajn dentojn, fortikajn ungojn aŭ venenajn pikilojn, sed nur ĉi tiujn mizerajn pinglojn? Kiun vi povus ĉaskapti per ili?
 
@@ -727,9 +624,7 @@ kuro ktp, alparolis la Nigre-griza Lupo la malgrandan Erinacon kolektantan etajn
 
 La heĝo
 
-—Kial vi ĉirkaŭbaras vin tiom per ĉi tiu densa, dornople-na heĝo? — demandas la ĵus alvenintaj birdoj la printempan Arbaron. — ĉu eble kontraŭ ni? Ni ja ne dama-
-
-ĝas vin, eĉ se ni loĝas ĉi tie. Kaj cetere ni povas ankaŭ traflugi ĝin.
+—Kial vi ĉirkaŭbaras vin tiom per ĉi tiu densa, dornople-na heĝo? — demandas la ĵus alvenintaj birdoj la printempan Arbaron. — ĉu eble kontraŭ ni? Ni ja ne damaĝas vin, eĉ se ni loĝas ĉi tie. Kaj cetere ni povas ankaŭ traflugi ĝin.
 
 —Neniel kontraŭ vi, karaj amikoj, ne ja; sed ĉiuj ja havas apud amikoj ankaŭ malamikojn, — respondas la Arbaro.
 
@@ -738,9 +633,6 @@ La heĝo
 —Nek pro ili.
 
 —Do kontraŭ kiuj?
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Nu, se mi ĉiamaniere devos diri: kontraŭ la Homo!
@@ -770,9 +662,6 @@ Iu tamen ne povis reteni sin demandi ĉe taŭga okazo:
 sed tiam la veturilo necese iros malantaŭen …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La ”helpo”
 
 La Maljuna Kampogardisto — por iom kompensi sian ĉiam pli malkreskantan viglecon — aplikis Birdotimigilon sur la kampo pli malproksima de sia kabano.
@@ -792,9 +681,6 @@ La enviantoj de la Koko
 —Li tute ne vekas la Sunon, sed nur akompane kokerikas — gakas sub arbo ĉe sunsubiro la Orgolja Viranse-ro, por kiu estas makulo en la okulo, ke la gravan, samkiel honoran taskon de la sunvekado oni konfidis ne al li, sed al la koko.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Sur la kokostango li sidiĝas same nur, por ekvidi de tie pli frue ol ni la leviĝantan Sunon, kaj por povi ĝustatempe kokeriki, — ĉeblekis la Viranaso.
 
 —La Koko jam sidis sur la supro de la morusujo, sed ankoraŭ ne dormis, tiel li povis bone aŭdi ĉiujn vortojn, al kiuj li jene reagis:
@@ -805,18 +691,11 @@ La Limbarilo
 
 La grandega grego, kun kiu paŝtiĝis hazarde ankaŭ la bela rajdĉevalo de la mastro, venis al la Barilo, trans kiu estis ne nur pli abunda herbejo, sed ankaŭ bonakva puto.
 
-Post kiam sub la Barilo senpene trapasis la tuta grego, kaj la obstaklon transsaltis ankaŭ la ĉevalo, kaj klin-inte sian belan blankharan kapon eĉ la maljuna ĉefpaŝ-
-
-tisto trapasis, kaj la junpaŝtistoj same transsaltis ĝin unu post alia, jene parolis al la Barilo la Azeno sole malhel-pita en sia plupaso:
+Post kiam sub la Barilo senpene trapasis la tuta grego, kaj la obstaklon transsaltis ankaŭ la ĉevalo, kaj klin-inte sian belan blankharan kapon eĉ la maljuna ĉefpaŝtisto trapasis, kaj la junpaŝtistoj same transsaltis ĝin unu post alia, jene parolis al la Barilo la Azeno sole malhel-pita en sia plupaso:
 
 —Mi vidas, ke vi ne mezuras per egala mezurilo.
 
-—Ne mia mezurilo ŝanĝiĝas, filo, sed vi ne estas sam-37
-
-FABLOJ KAJ AFORISMOJ
-
-
-formaj, — klarigas la Barilo. — Vi ja vidas, estas malgranduloj, kiujn nia limigo ankoraŭ ne koncernas; troviĝas, kiujn la Kreo benis per tiela grando, ke ni pro tio ne rajtas ilin limigi. Kaj la ceteraj atingas la celon aŭ humile, kapokline, aŭ klopodante kun nelacigebla diligento kaj insisto ili pli-malpli frue trapasas ĉiujn obstaklojn.
+—Ne mia mezurilo ŝanĝiĝas, filo, sed vi ne estas samformaj, — klarigas la Barilo. — Vi ja vidas, estas malgranduloj, kiujn nia limigo ankoraŭ ne koncernas; troviĝas, kiujn la Kreo benis per tiela grando, ke ni pro tio ne rajtas ilin limigi. Kaj la ceteraj atingas la celon aŭ humile, kapokline, aŭ klopodante kun nelacigebla diligento kaj insisto ili pli-malpli frue trapasas ĉiujn obstaklojn.
 
 —Tiel do, — diris rezigneme la maldiligenta Longore-lulo, — mi vidas, ke la Barilo staras sole nur por mi: la Azeno.
 
@@ -826,9 +705,7 @@ La lambastono
 
 —ĉu vi ne amas viajn idojn, baptano, ke en la nomo de Dio vi lasas ilin al ilia propra sorto? Eĉ mizeran basto-neton vi ne donas apud ilin, por ke dum tempesto ili alkroĉiĝu, aŭ lacaj pro la monotona starado ili de fojo al fojo apogu sin sur ĝi! ĉu vi ne vidas — se ne alie, per mia ekzemplo — kiel ni, bonaj gepatroj devas trakti niajn gefilojn? — Tiel riproĉis iu maljuna Vito la maljunan Robinion starantan sur la rando de vitejo. — ĉu vi ne vidas, kiom ili bezonas, kiom ili pretendas ĉi tiun hel-peton?
 
-—Jes ja. Mi vidas, ke ili ĝin pretendas; kaj ankaŭ mi amas miajn gefilojn, — milde respondis post tempeto la 38
-
-FABLOJ KAJ AFORISMOJ
+—Jes ja. Mi vidas, ke ili ĝin pretendas; kaj ankaŭ mi amas miajn gefilojn, — milde respondis post tempeto la
 
 
 maljuna Robinio. — Tamen ne dolĉe-dorlote, sed —
@@ -837,17 +714,13 @@ saĝe. Kaj tion, ke mi ne donu apogfoston por ili, mi ellernis ĝuste el via ekz
 
 La kanto
 
-—Kia afero estas, Alaŭdo, — atakas la kanteman Alaŭ-
-
-don liaj samspecanoj: la Perdriko, la Koturno kaj la Fazano, — ke kvankam vi naskiĝis inter ni, ĉi tie inter niaj terbuloj, kaj ĉi tie vi vivas kun ni, kiam vi ekhavas emon kanti, vi forflugas el inter ni, supren en la alton, kvazaŭ vi ne estus el inter ni?
+—Kia afero estas, Alaŭdo, — atakas la kanteman Alaŭdon liaj samspecanoj: la Perdriko, la Koturno kaj la Fazano, — ke kvankam vi naskiĝis inter ni, ĉi tie inter niaj terbuloj, kaj ĉi tie vi vivas kun ni, kiam vi ekhavas emon kanti, vi forflugas el inter ni, supren en la alton, kvazaŭ vi ne estus el inter ni?
 
 —Ne koleru min pro tio, samsanganoj, ne la fiero levas min el inter vi en la alton; mi ja ĝis nun ĉiam returniĝis al vi, sed la kanto bezonas flugon, disiĝon de la tero, puran aeron, altecon, klaran vidon, liberecon, kaj kiel la animo povus trovi ilin sur la kampo inter terbuloj?!
 
 La Kokono
 
-—Kiu vnas, — riproĉas la Araneo la Kokonon pro ties modesteco, — kaj kiom vi valoras kun via fadeno, 39
-
-FABLOJ KAJ AFORISMOJ
+—Kiu vnas, — riproĉas la Araneo la Kokonon pro ties modesteco, — kaj kiom vi valoras kun via fadeno,
 
 
 kiun vi nur ĉirkaŭ vin solan ŝpinas, kvazaŭ por pli bone forfermi vin de la mondo? Rigardu, kiel brilas mia reto sternita al la Suno, ĝi laŭvorte ebriigas la preterflugan-tojn; amase ili falas en ĝin. Kaj min ĉiuj konas, eĉ oni min timas …
@@ -862,9 +735,7 @@ Tamen la Alaŭdo ne lasis sin fortimigi.
 
 —Vi ne pravas! — li rebatis. — La ĉielregno apartenas ne al la agloj, sed al la birdoj, al ni ĉiuj: do ankaŭ al mi.
 
-Kaj demandiĝas ne, kiu kie naskiĝis, ĉu en rokokastelo 40
-
-FABLOJ KAJ AFORISMOJ
+Kaj demandiĝas ne, kiu kie naskiĝis, ĉu en rokokastelo
 
 
 aŭ sur nura tero, sed: kiun kien kapablas levi la propraj flugiloj.
@@ -877,16 +748,11 @@ Infano, ŝatanta kolekti malplenajn konkojn helikajn, trafis dum serĉado sendom
 
 La penigan surprovadon observis la Pasero de sur la supro de arbo, kaj kvankam nenion li diris, li pensis en si:
 
-”Nu, klopodo vana, filo mia! ŝajne vi ankoraŭ ne scias, ke kiun Dio unufoje kreis Limako Sendoma, sur ties dorson oni vane metas eĉ tri domojn, el li neniam fari-
-
-ĝos Domhava Limako!”
+”Nu, klopodo vana, filo mia! ŝajne vi ankoraŭ ne scias, ke kiun Dio unufoje kreis Limako Sendoma, sur ties dorson oni vane metas eĉ tri domojn, el li neniam fariĝos Domhava Limako!”
 
 ĉevalo kaj ĉevalido
 
 —Bona ĉevalo fariĝos el mi, ĉu, — henis fiere la kreskanta ĉevalido, rapide trakurinte vastan rondon ĉirkaŭ sia patrino.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Certe ja, bona vi estos, filo mia, ĉar viaj tendenoj estas fortikaj kaj fleksemaj. Sed ne pensu, ke ankaŭ apud la timono tiel facile kaj tiom laŭplaĉe vi povos kuri; kaj precipe, ke vi havos ankaŭ emon henadi.
@@ -910,9 +776,6 @@ Unu fojon post alia denuncadis la Gufo la Turfalkon ĉe la Aglo.
 —Eĉ ĉe vesperiĝo li daŭre muskaptas, — li plendis, —
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 kvankam post sunsubiro tio estas ekskluzive Gufa privilegio.
 
 Sed ne malfruis kun similaj plendoj ankaŭ la Turfalko asertante, ke la Gufo post sunleviĝo, matene plue muskaptas, kvankam tio estas jam ekskluzive privilegio Turfalka.
@@ -927,12 +790,7 @@ La demando de la Kokido
 
 demandis la Kokido sian patrinon.
 
-—Tial filo, — respondis la Kovulino, — ĉar tiuj plendas. kaj al plendo konvenas hontemo, kaj ĉi tiu fanfaro-43
-
-FABLOJ KAJ AFORISMOJ
-
-
-nas, kaj fanfaronado nevolonte montras sin sen ioma senhonteco …
+—Tial filo, — respondis la Kovulino, — ĉar tiuj plendas. kaj al plendo konvenas hontemo, kaj ĉi tiu fanfaronas, kaj fanfaronado nevolonte montras sin sen ioma senhonteco …
 
 La klasikulo Kukolo
 
@@ -952,9 +810,7 @@ Hundo, Kato
 
 La Bojulo kaptis leporon. Hejmenportinte sian pezan ŝarĝon, li abunde festenis.
 
-Aliras la Kato lekante la buŝrandon kaj diras: 44
-
-FABLOJ KAJ AFORISMOJ
+Aliras la Kato lekante la buŝrandon kaj diras:
 
 
 —Aŭdu, baptano, vi havas grandan leporon! Vi povus doni al mi peceton. El ĝia femuro ĝi eltranĉiĝus!
@@ -979,9 +835,7 @@ La Homo kaj la Serpento
 
 Iun kruele malvarman tagon frumajan trafis la Homo rigidiĝintan Serpenton. Preskaŭ li surtretis lin.
 
-—Mi petegas vin, — suplikis la Serpento, — alprenu kaj travarmigu min, malfeliĉan senpovan, aŭ metu min 45
-
-FABLOJ KAJ AFORISMOJ
+—Mi petegas vin, — suplikis la Serpento, — alprenu kaj travarmigu min, malfeliĉan senpovan, aŭ metu min
 
 
 almenaŭ de sur la ombra vojo sur la sunan fosaĵrandon, por ke mi reviviĝu, kaj plej baldaŭ rerapidu al la miaj, ili ja certe senespere min serĉas.
@@ -1000,9 +854,7 @@ La terurita Homo ekkriis:
 
 —Ha, fia mensogulo, vi tamen estas serpento. Kaj tia estas la danko por mia bonfaro?
 
-—Ke mi estas serpento, ja veras, — konfesas nun la 46
-
-FABLOJ KAJ AFORISMOJ
+—Ke mi estas serpento, ja veras, — konfesas nun la
 
 
 reptilio, — sed vi ne rajtas plendi pri mia danko, ĝi ja estis ĝuste tia, kia via ”bonfaro”!
@@ -1025,9 +877,7 @@ Post kiam li faris ĉiujn provojn por rifuĝi, sed tute vane, senespere kaj ĉef
 
 Dume li rimarkas, ke sur la dorso de la Araneo estas kruco, sekve tiel li daŭrigas:
 
-—Mi vidas, vi estas kristano, vi ja aperte portas la 47
-
-FABLOJ KAJ AFORISMOJ
+—Mi vidas, vi estas kristano, vi ja aperte portas la
 
 
 sanktan signon de la Savinto de la tero. Estante mem insekto, kiel vi povas esti tiel kruela kun via insektofra-to?
@@ -1045,9 +895,6 @@ La malgranda kokido, kiun antaŭ nelonge elkovis la patrino sur la draŝejo, rig
 La Pavo fiere defiladis en la parko, kaj memfide diset-endadis sian imponan plumvoston en la radioj de la brilanta suno.
 
 —Belega! Pompa! Rava! … — entuziasmis kun admiro la malgranda Kokido, kaj suprenrigardis al li kiel al sanktulo. — Kiel nobla, sublima animo povas loĝi en tiel eleganta, belega persono! — ravite li diradis.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Maljuna Kovulino unue silente aŭskultis ĉi tiun ek-zaltiĝon, sed poste ŝi rimarkis:
@@ -1071,9 +918,6 @@ La dudeka jarcento
 oni ne povas trakuri unusolan straton, sen ke oni ne ŝutus de ie polvon en la okulojn. ĉu tio estas la dudeka jarcento?!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Ho ne, sinjoro, tute ne! — respondas ˛ore la Fenestroj. — Sed tio, ke ekzistas kelkaj, kiuj levas pulvonuba-ron, pro kiu la tuta urbo tage-nokte sufokiĝadas, kaj kiam iu iom da ĝi reŝutas al ili, plej brue protestas ĝuste ili, jen tio estas la dudeka jarcento!
 
 La Porkaro
@@ -1083,9 +927,6 @@ La Porkaro
 —Vi pravas, — respondas la gvidanto de la Maljun-porkoj de sur la tribuno, — sed pripensu ankaŭ, ke la ŝafojn, se ili nur volas ion, oni ne bezonas arigi per hor-noblekoj, nek kunteni per vipoj, kiel la porkojn, ĉar ili en ĉiuj aferoj staras kiel unu apud sia gvidanto, eĉ se tiu estas hazarde Azeno!
 
 ĉar: alia afero estas la Grego, kaj alia la Porkaro!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Kometo
@@ -1109,9 +950,6 @@ Tial foje la Vulpo diris al li kun milda riproĉo:
 —Kiel vi ne elmetas, onklo, viajn multajn valorajn or-denojn, por ke ĉiuj vidu vian eminentecon, elstarecon tuj, kiam oni vin ekvidas. La Erinaco havas unusolan distingon pro sia heroa batalo kun la Hundo, kaj li ĉiam ĝin portas.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Tial, filo, — respondis la Elefanto, — ĉar ĝustas ne nur la diro ”kio estas permesata al Jovo, ne estas permesata al bovo”, sed kelkfoje ankaŭ: ”kio estas permesata al bovo, ne estas permesata al Jovo”!
 
 Raŭpo kaj Papilio
@@ -1122,23 +960,16 @@ Raŭpo kaj Papilio
 
 —Hja, amiko, — alparolas nun ankaŭ la maljuna arbo,
 
-— kiu raŭpaĝe senindulge demaĉas ĉiujn foliojn, bur-
-
-ĝonojn de sur arbo, kiel tiu volas ankaŭ florojn papili-aĝe?
+— kiu raŭpaĝe senindulge demaĉas ĉiujn foliojn, burĝonojn de sur arbo, kiel tiu volas ankaŭ florojn papili-aĝe?
 
 ”Gvidantoj”
 
 En la Azeno, kiu cetere ekde eko marŝadis meze de la ŝafaro, kaj validis propre nur por pli granda ŝafo, ekestis la ambicio fariĝi gvidanto.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Fine-resume, — li diris, — mi estas la plej granda kaj maljuna en la ŝafaro, decas, ke la gvidanto estu same mi.
 
-Kaj la alian matenon, pendiginte la tintilon de la gvid-
-
-ŝafo sur sian kolon, stariĝis tuj fronte al la ŝafaro, kaj sonorigante, — kiel li vidis de la gvida virŝafo, — ekmar-
+Kaj la alian matenon, pendiginte la tintilon de la gvidŝafo sur sian kolon, stariĝis tuj fronte al la ŝafaro, kaj sonorigante, — kiel li vidis de la gvida virŝafo, — ekmar-
 
 ŝis antaŭ la grego. Kompreneble direkte al la Karduejo.
 
@@ -1152,9 +983,7 @@ La neatendita saĝeco de la Azeno surprizis la ŝafojn, kaj honte ruĝiĝinte il
 
 Sed la gvidŝafo ekparolis, kaj diris jenon:
 
-—Nu, fakte-vere, kara samgregano, ni vidas, ke vi an-taŭiras; ankaŭ la tintilon ni aŭdas, kaj ni same konfesas, ke la sankta devo, ordonita vere de Dio, de ĉiuj honestaj popoloj estas sekvi sian gvidanton. Sed ni ne forgesu: por esti gvidantoj ne sufiĉas nur antaŭstariĝi kaj pendigi tintilon sur la kolon, por poste tuj sekvi niajn plej proprajn egoistajn interesojn, sed ĝuste male: ni devas servi 53
-
-FABLOJ KAJ AFORISMOJ
+—Nu, fakte-vere, kara samgregano, ni vidas, ke vi an-taŭiras; ankaŭ la tintilon ni aŭdas, kaj ni same konfesas, ke la sankta devo, ordonita vere de Dio, de ĉiuj honestaj popoloj estas sekvi sian gvidanton. Sed ni ne forgesu: por esti gvidantoj ne sufiĉas nur antaŭstariĝi kaj pendigi tintilon sur la kolon, por poste tuj sekvi niajn plej proprajn egoistajn interesojn, sed ĝuste male: ni devas servi
 
 
 la interesojn de la gvidataj popoloj, ofte eĉ kontraŭ niaj propraj interesoj de gvidantoj!
@@ -1176,9 +1005,6 @@ kun kiu li neniel progresis. Al ĉi tiu li povis fluti kion ajn, tiu ne postblov
 Tamen unu afero certas, tiu birdo, kiu volas fariĝi turdo, eĉ junaĝe ne povas havi voĉon kukolan!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Eĉ al reĝoj ne facile!
 
 —Bone estas al vi, Reĝa Moŝto, — diras la Herboj, Arboj, Floroj al la brilanta Suno. — Viaj estas la lando, potenco kaj gloro; de vi dependas la sortoj de ni ĉiuj, al vi obeas ĉiuj.
@@ -1190,9 +1016,6 @@ Tintiluloj
 —Kio finfine veras pri tio, patrino, ke la Azeno estas la gvidanto de la ŝafaro? — demandas la ĉevalido sian patrinon, kiam la grego en sia kutima polvonubo preterpasis la starantan veturilon. — Sendube ja, la Azeno aspektas la plej granda en la societo, sed mi vidas ankaŭ, ke la tintilo pendas sur la kolo de la gvida virŝafo, kaj ĉi tiu antaŭiras, kaj ne la Azeno.
 
 —Lernu, filo, — respondas la patrino, — ke la vera gvidanto nek okulfrape antaŭiras, nek pendigas tintilon sur la kolon; tio estas propra nur al tiuj, kiuj ŝatus esti gvidantoj, aŭ almenaŭ ŝajni gvidantoj …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Hakiloj
@@ -1213,9 +1036,7 @@ Mimetismo
 
 La Grilo sunumanta sin antaŭ sia domo ekvidas la Akri-don vorantan proksime sur herbo,kaj alparolas lin:
 
-—Kia afero estas, baptano, ke pro la verda ĉirkaŭaĵo, en kiu vi vivas, vi portas same verdan mantelon? Kie do 56
-
-FABLOJ KAJ AFORISMOJ
+—Kia afero estas, baptano, ke pro la verda ĉirkaŭaĵo, en kiu vi vivas, vi portas same verdan mantelon? Kie do
 
 
 restas la karaktero, individueco, fiereco? Por fari ion tian Grilo neniam maldigniĝus, ja tutcerte ne!
@@ -1231,9 +1052,6 @@ Palacoj
 Kiam estis enmetitaj ankaŭ liaj okuloj — la fenestroj —
 
 la Nova Palaco mire rigardis ĉirkaŭ si, rimarkante, ke ĉe la fundamento nuras rubamasoj kaj fosaĵoj. Eĉ la kapon li balancis prie. — Ej, ej! …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Ekvidas tion la najbara Maljuna Palaco, kaj transvokas al li:
@@ -1254,9 +1072,7 @@ Iufoje la ĉirkaŭstarantaj domoj komencis taksadi, kiom altas la Granda Turo, k
 
 transvokas tiam iu alia potenca Turo el la vico de la kontraŭsituanta domaro al la Granda Turo. — ĉu vi aŭdas?
 
-—Ne gravas, — ekparolas nun la Granda Turo mem, 58
-
-FABLOJ KAJ AFORISMOJ
+—Ne gravas, — ekparolas nun la Granda Turo mem,
 
 
 — oni ne malpliiĝas, se la samtempuloj ne scias, kiom oni altas.
@@ -1272,9 +1088,6 @@ Sed se vi plenkreskos, kaj fariĝos konsiderinda personeco en la kamparo, vi cer
 —Kiamaniere? — demandas scivole la Juna Poplo.
 
 —Tiel, — ili respondas denove, — ke estos iu, kiu kontentiĝos per tio, ke lia kanto de tempo al tempo supren-sonu al vi; tiu estos la Najtingalo; kaj estos iu, kiu tuj metos ankaŭ neston, post kiam unufoje vi toleris, ke li flugu sur vian branĉon; tiu estos la Pasero!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Formiko en la turo
@@ -1302,9 +1115,6 @@ Sed respondon ankaŭ ĉi-foje li ne ricevis.
 Sed e˛o ankaŭ ĉi-foje ne venis.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Oni ne miru, — li tiam diras, turnante sin al la Montego, sed tiel, ke ĉiuj lin aŭdu, — oni ne miru, ke la mondo senĉese malboniĝas, ruiniĝas, se eĉ ni, Montoj, ne solidaras, kiuj ja devus servi kiel ekzemploj por la pli malgrandaj!
 
 La Kolombo kaj la Kajto
@@ -1328,9 +1138,6 @@ Sed en ĉi tiu momento lia ŝnuro ŝiriĝis, kaj li balanciĝe defalis en la pro
 Samkiel kelkaj faritaj granduloj!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Konkurado
 
 —Alokulu min, kian vicon mi falĉas! — turnis sin fiere la brila Falĉilo al sia malgranda parenco, la Tranĉilo.
@@ -1348,9 +1155,6 @@ La nova tirĉevalo
 Tamen la nutraĵo estis hieraŭ glumaĵo, kaj ankaŭ hodiaŭ la sama.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Nu jes, ĉe tirĉevaloj tio kutimas, kamarado. ĉi tie ŝanĝiĝas nur la instigo, la furaĝo neniam!
 
 Tagoj, Nuboj
@@ -1361,9 +1165,7 @@ Tagoj, Nuboj
 
 La vera poeto
 
-—Sinjoro prezidanto, — diras la ĉefsekretario Turdo al la Najtingalo, — ĉu vi ne pensus, ke ni devus iamaniere kunskribi la liston de la poetoj kaj verkistoj? La Pasero 63
-
-FABLOJ KAJ AFORISMOJ
+—Sinjoro prezidanto, — diras la ĉefsekretario Turdo al la Najtingalo, — ĉu vi ne pensus, ke ni devus iamaniere kunskribi la liston de la poetoj kaj verkistoj? La Pasero
 
 
 kaj la Pigo, vi mem aŭdis, senĉese kverelas, kiu el ambaŭ estas vera poeto.
@@ -1385,9 +1187,6 @@ Kaj la Kverko respondis dignoplene:
 Sed vian grandecon oni mezuras ne tiel, kiel vi pensas, filo mia. Kiu volas esti granda, tiu devas grandi de la piedoj ĝis la verto, kaj ne sufiĉas nur alte teni la kapon!…
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Propekaj kaproj
 
 —Io tia povas okazi nur al ni, senŝirmaj malfeliĉuloj, —
@@ -1403,9 +1202,6 @@ Destino de Granduloj
 —Rigardu, kiom da birdoj svarmas tie malsupre, sur la ebenaĵo! — ĝojkrias la Aglido en la nestoniĉo de la roko-muro, ekvidinte aregon de paseroj kolektiĝintaj sur la stoplejo. — Se mi lernos flugi, ankaŭ mi povos flugi al ili, ĉu ne? … Kiel bele ili serpentumas, tiriĝas! …
 
 —Ne, filo, vi neniam alflugos! Ni, agloj ne estas paseroj! Tion neniam vi devas forgesi. La Aglo estas la reĝo de la birdoj, kaj la reĝoj havas la destinon, esti ĉiam solaj. uste tio estas, kion la frugilegoj kaj paseroj ne kapablus, kaj kio faras la Aglon reĝo!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kapoj
@@ -1426,9 +1222,7 @@ Kiam la kortega sekretario malfermis al ili la pordon, iliaj buŝoj falis aperta
 
 En la ĉambrego estis ankoraŭ nur atendantoj, inter aliaj la Pavo.
 
-Kiam la Paseroj ekvidis la fieran, brilpluman Pavon ĵus proksimiĝantan al ili, ĉiuj riverencis ĝistere, kaj apenaŭ 66
-
-FABLOJ KAJ AFORISMOJ
+Kiam la Paseroj ekvidis la fieran, brilpluman Pavon ĵus proksimiĝantan al ili, ĉiuj riverencis ĝistere, kaj apenaŭ
 
 
 atendis, ke, — kiel hejme ili aŭdis, — li distingu almenaŭ unu el ili per alparolo.
@@ -1449,9 +1243,7 @@ La sekreto de la regado
 
 Oficestro fariĝis la Azeno. Kaj kiel tia, li promociis ĉiam nur la Simion, neniam la Vulpon.
 
-—Sed lin kial ne? — demandis liaj filoj. Ja ĉiujn ideojn, 67
-
-FABLOJ KAJ AFORISMOJ
+—Sed lin kial ne? — demandis liaj filoj. Ja ĉiujn ideojn,
 
 
 kiujn vi realigas, kaj al kiuj vi povas danki vian popularecon, vi ricevis de li, ni scias, ni vidas tion.
@@ -1463,9 +1255,6 @@ Atendo de la diplomo
 —Ho, se nur ni jam povus fariĝi Bovoj, por ke ĉi tiuj stultaj ligoŝnuroj depreniĝu de niaj piedoj! — suspiris la piedŝnuritaj Junbovoj sur la stoplejo, dum ili vidis preterpasi bovotiratan veturilon. — Dio mia, kia feliĉo estos marŝi iam libere, sen piedŝnuroj!
 
 —Ho, kompatindaj infanoj, suspiris nun unu el la Bovoj. Se vi scius, ke dum la Vivo deprenas la junaĝan piedŝnuron per unu mano, per la alia li samtempe pendigas jugon sur nian kolon!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Sunfloro kaj la Prunelujo
@@ -1489,9 +1278,6 @@ Menso kaj potenco
 —Diru via moŝto, — alparolas la Bovon oficantan ĝuste kiel ministro la ordinara civitano Muso, — kiel povas esti, ke kvankam oniscie ”kie menso, tie ekscelenco”, tamen vi regas super ni, malgrandaj, sed evidente pli saĝaj, ol vi?!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Hja, filo, — respondas la korpulenta Bovo je la plej granda miro de la malgranda Muso, — menso kaj ekscelenco povas troviĝi ĉe malgrandulo, sed la potenco konvenas ja nur al grandulo kaj — fortulo!
 
 Idealistoj
@@ -1511,9 +1297,6 @@ stoj starantaj al li survoje, sed li deviĝis perdi tempon ankaŭ por serpentuma
 La malgrandaj Fiŝoj, kiuj sentis malvarmon en la akvo subombre malvarmiĝinta, eksplodis riproĉe kontraŭ la senkoraj ĉebordaj Arboj:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Sendankaj! Ne sufiĉas, ke vi baras la Riveron naskitan por libereco, sur kies sino vi vivas kaj plenkreskas, sed eĉ ĵetas ombron sur lian brilan surfacon? Hontu! Mi ne mirus, se vi estus Homoj!
 
 Zizeloj
@@ -1528,12 +1311,7 @@ Arboj
 
 —Patrino! Al mi ŝajnas, kvazaŭ la arboj ĉe la rivereto estus pli altaj, ol tiuj starantaj montoflanke, — diras la Juna Paruo fluganta de arbo sur arbon.
 
-—Prave, filo, la arboj kreskantaj riveretborde, en la profundo estas ĝenerale pli altaj, ol tiuj starantaj mon-71
-
-FABLOJ KAJ AFORISMOJ
-
-
-toflanke; estas tiel, kaj ankaŭ devas esti tiel. Tiu, kiu naskiĝas pli sube, devas kreski pli alta, ol liaj pli supre naskitaj kamaradoj, se li volas ricevi sunlumon, kaj stari almenaŭ kun la kapo tie, kie ili!
+—Prave, filo, la arboj kreskantaj riveretborde, en la profundo estas ĝenerale pli altaj, ol tiuj starantaj montoflanke; estas tiel, kaj ankaŭ devas esti tiel. Tiu, kiu naskiĝas pli sube, devas kreski pli alta, ol liaj pli supre naskitaj kamaradoj, se li volas ricevi sunlumon, kaj stari almenaŭ kun la kapo tie, kie ili!
 
 Montoj
 
@@ -1547,12 +1325,7 @@ Fine naskiĝis la unua tempesto, kaj ankaŭ li povis ĵeti ondojn, eĉ montoalta
 
 La Lintelo kaj la Sojlo
 
-—Rigardu, kiel majesta kaj eleganta mi estas; antaŭ mi eĉ la reĝo kapklinas, kaj vin eĉ bovopelisto povas laŭ-
-
-plaĉe treti. Ni interŝanĝu, — diris kun persvadema dolĉo la Lintelo.
-
-
-FABLOJ KAJ AFORISMOJ
+—Rigardu, kiel majesta kaj eleganta mi estas; antaŭ mi eĉ la reĝo kapklinas, kaj vin eĉ bovopelisto povas laŭplaĉe treti. Ni interŝanĝu, — diris kun persvadema dolĉo la Lintelo.
 
 
 —Ne mi! — rebatis la Sojlo.
@@ -1567,19 +1340,12 @@ Siatempe, kiam la gregoj serĉis gvidanton, kandidatigis sin ankaŭ la ĉevalo k
 
 Sed ĉe la ekzameno ili falis!
 
-ĉar dum ili ambaŭ cerbumis pri komand- kaj ordon-vortoj, per kiuj ili estros, komandos, kaj regos la gregojn tien kaj ĉi tien, la Azeno, kiu sciis, ke pli valoras unusola ekzempliga paŝo: ago, ol abundo da vortoj kaj paro-loj, simple nur stariĝis antaŭ la gregon, kaj elektinte direkton ekvojis. Kaj la ŝafoj ne nur tiam, sed ankaŭ post tio senvorte, obeeme sekvas lin … ĉar vivkapablajn popolojn oni devas ne estri, komandi kaj regi, sed stari-
-
-ĝinte fronte de ili simple gvidi!
-
-
-FABLOJ KAJ AFORISMOJ
+ĉar dum ili ambaŭ cerbumis pri komand- kaj ordon-vortoj, per kiuj ili estros, komandos, kaj regos la gregojn tien kaj ĉi tien, la Azeno, kiu sciis, ke pli valoras unusola ekzempliga paŝo: ago, ol abundo da vortoj kaj paro-loj, simple nur stariĝis antaŭ la gregon, kaj elektinte direkton ekvojis. Kaj la ŝafoj ne nur tiam, sed ankaŭ post tio senvorte, obeeme sekvas lin … ĉar vivkapablajn popolojn oni devas ne estri, komandi kaj regi, sed stariĝinte fronte de ili simple gvidi!
 
 
 Okuloj de epokoj
 
-—ŝanĝiĝas la tempoj! — suprenvokas la eta Kabano kaŭ-
-
-ranta ĉe la montopiedo al la Palaco leviĝanta sur la supro de la kastelmonto.
+—ŝanĝiĝas la tempoj! — suprenvokas la eta Kabano kaŭranta ĉe la montopiedo al la Palaco leviĝanta sur la supro de la kastelmonto.
 
 —En kio, maljunulo? — demandas la Palaco. Mi ja staras ĉi-loke ekde jarmilo, samkiel vi tie. Kie do la ŝanĝiĝo?
 
@@ -1598,9 +1364,6 @@ Pro tio la envia Bunta, kiu havis nur malmultan lakton, subesprimis jene sian ma
 La nova leono
 
 Iun belan printempan tagon oni senplie tondis ŝpicon, la ĉambrohundon ”leono”.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kiam tiel senigita de la plimulto de sia hararo li rigardis en la ĝisteran spegulon de la dormoĉambro de sia mastro, lia infanaĝa bildolibro venis al li en la menson, kaj fiere li ekkriis:
@@ -1629,12 +1392,7 @@ El kio poste eksplodis fajra interbatiĝo-intermordiĝo. La polvo amase ŝprucis
 
 Kiam ŝpico, la ”Nova Leono”, — li mem ne scias, kiel,
 
-— hejmenvenis el la batalo, kaj denove povis rigardi en la dormoĉambran spegulon, li ne rekonis sin. Eĉ dufo-75
-
-FABLOJ KAJ AFORISMOJ
-
-
-je li devis rigardi, ĝis unufoje li kredis, ke tio tamen estas li.
+— hejmenvenis el la batalo, kaj denove povis rigardi en la dormoĉambran spegulon, li ne rekonis sin. Eĉ dufoje li devis rigardi, ĝis unufoje li kredis, ke tio tamen estas li.
 
 Kio okazis kun la leoneco, oni ne scias. Sed neniu plu vidis ŝpicon vagadi!
 
@@ -1648,15 +1406,11 @@ Kiam Veluro la unuan fojon ekvidis la preterbruantan Vagonaron, li ne nur aŭdac
 
 —Nu, ĉi tiu neniam plu revenos, mi garantias, — li diris memfide. Eĉ la fumo de la Vaporulo ne plu vidiĝis.
 
-Sed diabloj dancu sur lia dorso, apenaŭ Veluro sterni-
-
-ĝus por ripozi, tiu malbenito jam denove revenas. Kaj ree kaj denove … Tiel la peloj-persekutoj havis nek limon, nek finon …
+Sed diabloj dancu sur lia dorso, apenaŭ Veluro sterniĝus por ripozi, tiu malbenito jam denove revenas. Kaj ree kaj denove … Tiel la peloj-persekutoj havis nek limon, nek finon …
 
 La lango de Veluro elpendis, liaj pulmoj spiregis.
 
-Kaj la maljuna hundo de la gesinjoroj trakinspektoroj, Krispo nur dormis taglonge, eĉ ne alrigardetis. Nek la kapon li levetis. Maksimume li malfermis jen unu, jen la 76
-
-FABLOJ KAJ AFORISMOJ
+Kaj la maljuna hundo de la gesinjoroj trakinspektoroj, Krispo nur dormis taglonge, eĉ ne alrigardetis. Nek la kapon li levetis. Maksimume li malfermis jen unu, jen la
 
 
 alian okulon pro la tondra bruo, sed nur duone, duone kaj enue!
@@ -1675,9 +1429,7 @@ Tamen ne tiel okazis! La fulmelana junulo revenis ja ĉiufoje kun malplenaj mano
 
 Aŭdinte pri la malsukceso de sia filo la Maljuna Falko observis, kiam tiu ĉasĵetas sin ĝuste sur grupon de kolomboj, de kie li nature ankaŭ ĉi-foje revenis kun malplenaj manoj.
 
-—Kiun vi volis propre preni el la grupo? — demandis tiam la patro. — ĉar komence mi vidis tiel, ke vi — tre 77
-
-FABLOJ KAJ AFORISMOJ
+—Kiun vi volis propre preni el la grupo? — demandis tiam la patro. — ĉar komence mi vidis tiel, ke vi — tre
 
 
 ĝuste — celis la dekstran grizan, kaj poste ŝajnis, kvazaŭ vi direktiĝus al la meza blanka.
@@ -1694,26 +1446,20 @@ Renkontiĝis la Sendoma Limako kun la Domhava.
 
 —Bonvenon, kara parenco, — li salutis, kiel decas al parenco.
 
-Sed li ne povis daŭrigi, ĉar tiu — dum lia rigardo fari-
-
-ĝis ĉiam pli malestima — interrompis lin:
+Sed li ne povis daŭrigi, ĉar tiu — dum lia rigardo fariĝis ĉiam pli malestima — interrompis lin:
 
 —Serĉu vian parencon inter la Sendomaj Limakoj, baptano! Mi ne havas tiel malriĉajn parencojn, — li diris, kaj mistakse rerigardis la ”sintrudulon”, kaj daŭrigis sian vojon.
 
 La kompatindan Sendoman Limakon konsternis por momento la neatendita malafableco de la Domhava, sed regajninte baldaŭ sian trankvilon li ekparolis:
 
-—ĉu eble pro via domo vi tiel fieraĉas, baptano? Fieru 78
-
-FABLOJ KAJ AFORISMOJ
+—ĉu eble pro via domo vi tiel fieraĉas, baptano? Fieru
 
 
 per tio, kion vi mem akiris, ne per tio, per kio la Di-Sinjoro vin benis!
 
 Hiloj
 
-La Birdoj, spertinte, ke post la kanto de la Hilo baldaŭ ekpluvas, sed ne malofte eksplodas terura tempesto taŭ-
-
-zanta la tutan arbaron, komencis babilflustri, ke la tempeston kaŭzas la Hilo.
+La Birdoj, spertinte, ke post la kanto de la Hilo baldaŭ ekpluvas, sed ne malofte eksplodas terura tempesto taŭzanta la tutan arbaron, komencis babilflustri, ke la tempeston kaŭzas la Hilo.
 
 La kaŝbabiloj — kiel ĉiam — iompostiome ŝveliĝis aperta akuzo, kaj la Birdoj baldaŭ kunvokis kunvenon kontraŭ la Hilo.
 
@@ -1725,9 +1471,7 @@ La kaŝbabiloj — kiel ĉiam — iompostiome ŝveliĝis aperta akuzo, kaj la Bi
 
 —Haltu! — stridis nun al ili la maljuna reĝo de la Birdoj, la Aglo.
 
-—Ni ne lasu nin kaptiĝi de senpripensaj agoj, la ma-lamo ne estas bona konsilanto, precipe, se ĝian fajron incitas stulteco. Mi bone konas la Hilon, li kaŭzas al ni, birdoj nenian danĝeron, la tempesto ja alvenas ne sekve de lia voko, kontraŭe: li nur signalas, ke ĝi proksimiĝas; atentigas, ke ĝi ne trovu nin nepretaj! Kaj se iu danĝero kaŭzas damaĝojn, pro ĝi respondecas ne tiu, 79
-
-FABLOJ KAJ AFORISMOJ
+—Ni ne lasu nin kaptiĝi de senpripensaj agoj, la ma-lamo ne estas bona konsilanto, precipe, se ĝian fajron incitas stulteco. Mi bone konas la Hilon, li kaŭzas al ni, birdoj nenian danĝeron, la tempesto ja alvenas ne sekve de lia voko, kontraŭe: li nur signalas, ke ĝi proksimiĝas; atentigas, ke ĝi ne trovu nin nepretaj! Kaj se iu danĝero kaŭzas damaĝojn, pro ĝi respondecas ne tiu,
 
 
 kiu ĝustatempe atentigas pri ties proksimiĝo, sed tiu, kiu ignoras ĉi tiun averton.
@@ -1753,9 +1497,6 @@ La Koko ankaŭ pri tio profunde enpensiĝis, kaj ĉar li rekonis, ke ĉi tio sam
 Ankaŭ ĉi tio daŭris dum certa tempo.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Sed nekontentaj, la Tagaj Birdoj kunvokis kunvenon, kaj sendis delegacion al la Koko.
 
 —Tamen ne konvenas, — deklaris per malmolaj vortoj la oratoro, — ke estante taga birdo vi tenas vin kun la strigoj kaj vespertoj, kaj nin vi rigardas aero …
@@ -1772,9 +1513,7 @@ Subite fariĝis senmova silento.
 
 Sur elstaranta, seka branĉo de grandega kverko aperis la Cerambiko, kaj komencis prediki. Fininte tiel li resumis:
 
-—Do ni amu unu la alian! … Ni ĉiuj estas gefratoj, ĉar 81
-
-FABLOJ KAJ AFORISMOJ
+—Do ni amu unu la alian! … Ni ĉiuj estas gefratoj, ĉar
 
 
 nin ĉiujn kreis Dio! Ankaŭ la mondon kreis Li, kaj por ni ĉiuj Li kreis ĝin …
@@ -1800,9 +1539,6 @@ malfruis, kaj tiel la ĉevaloj havis tempon por iom da babilo.
 ”buŝplenon”? ĉu valoris tiel devokonscie, spiroperde kuri?
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Kiu do propre kuris? ĉu ili aŭ ni? — ekparolas alia post pli longa silento.
 
 —Ili ja nur sidis sur niaj dorsoj! — diras fine amare iu tria.
@@ -1825,9 +1561,7 @@ Jes ja, eĉ inter siaj fratoj, la herboj li ne havis trankvilon, ili maldeziris 
 
 Kaj kiam li ekloĝis tie, li ankaŭ spertis tion.
 
-La potenca Kverko klinis sin tende super li, kaj ŝirmis 83
-
-FABLOJ KAJ AFORISMOJ
+La potenca Kverko klinis sin tende super li, kaj ŝirmis
 
 
 lin de la turmenta ardo de la atakanta Suno avida, malkiel liaj fratoj antaŭe.
@@ -1844,13 +1578,7 @@ La kritiko
 
 En la spegulon de ĉi tiu lageto ofte engapas Johano, la revema vicpaŝtisto de la tie tintadanta grego; kelkfoje li tiom forreviĝas, kvazaŭ li elrigardus tra ia fenestro en la transmondon.
 
-Sur la kampo kovas alaŭdo, kaj sur la flugiloj de laŭ-
-
-
-FABLOJ KAJ AFORISMOJ
-
-
-ta kantado, kun feliĉa muzikado li leviĝas en la senfinon de la ĉielbluo; en la lago ranoj enhejmas, kaj envie vidas la sonantan alaŭdon flugi sunproksimen.
+Sur la kampo kovas alaŭdo, kaj sur la flugiloj de laŭta kantado, kun feliĉa muzikado li leviĝas en la senfinon de la ĉielbluo; en la lago ranoj enhejmas, kaj envie vidas la sonantan alaŭdon flugi sunproksimen.
 
 Iun tagon ili alparolas la alaŭdon silente insektuman-tan sur la bordo.
 
@@ -1870,16 +1598,9 @@ diras la enviaj ranoj, kiuj ekkonjektis, ke la Alaŭdo ne volas enmiksiĝi en ak
 
 Ili interkonsentis pri Johano kiel juĝisto.
 
-La postan tagon, kiam sekvante sian tintadantan ŝafaron kaj kompreneble nenion sciante pri sia ofico Johano alvenas al la bordo de la lageto, li ekvidas, ke la Alaŭ-
+La postan tagon, kiam sekvante sian tintadantan ŝafaron kaj kompreneble nenion sciante pri sia ofico Johano alvenas al la bordo de la lageto, li ekvidas, ke la Alaŭdo kiel sago flugas al la ĉielo kaj belege trilas.
 
-do kiel sago flugas al la ĉielo kaj belege trilas.
-
-Johano rigardas lin. La rava kanto penetras ĝis lia kor-85
-
-FABLOJ KAJ AFORISMOJ
-
-
-fundo. Li sternas sin sur sia kloŝpelto, kaj eĉ la ĉapelon li demetas, kvazaŭ en preĝejo li aŭskultas.
+Johano rigardas lin. La rava kanto penetras ĝis lia korfundo. Li sternas sin sur sia kloŝpelto, kaj eĉ la ĉapelon li demetas, kvazaŭ en preĝejo li aŭskultas.
 
 Kaj nun, kvazaŭ laŭ eksigno ankaŭ la Ranoj subite komencas la sian. Ne aŭdeblas pro ili la kantado de la Alaŭdo.
 
@@ -1898,9 +1619,6 @@ Du enpotaj Palmoj interparolas iun matenon.
 —Ne forgesu, ke ĉi tie oni konsideras nin fremduloj.
 
 Vi ankaŭ ne povas deziri, ke en Robinarbio Palmoj flo-ru. Kiu scias ĉi tie, kiom vi kapablus frukti, se oni lasus vin vivi, kreski kaj evolui! …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Ranoj
@@ -1929,9 +1647,7 @@ Pro la bruo ili ĉiuj plonĝis en la akvon. Tie ili ĝisatendis: kien la akvo fl
 
 —Ne ja, vi ne estas birdoj, miaj brekekeksaj amikoj, —
 
-ekparolas perdinte sian paciencon Gufo silentanta ĝis tiam en sia kavo, — eĉ se vi ĉiuj centfoje grimpas sur arbon, kaj faras tielan bruon kun viaj stultaj kvak-kva-kadoj; ja birdoj estas birdoj ne tial, ke ili vivas sur arbo, 87
-
-FABLOJ KAJ AFORISMOJ
+ekparolas perdinte sian paciencon Gufo silentanta ĝis tiam en sia kavo, — eĉ se vi ĉiuj centfoje grimpas sur arbon, kaj faras tielan bruon kun viaj stultaj kvak-kva-kadoj; ja birdoj estas birdoj ne tial, ke ili vivas sur arbo,
 
 
 sed tial, ke per flugiloj ili venis tien, kaj flugante ili povas libere plupasi de tie!
@@ -1940,17 +1656,13 @@ sed tial, ke per flugiloj ili venis tien, kaj flugante ili povas libere plupasi 
 
 La Frugilegoj
 
-La Frugilegoj, kiam en la terure severa vintro vane ser-
-
-ĉvagadis en la neĝkovrita kamparo, sen trovi eĉ unu ŝveliĝantan nigran terbulon, ne parolante pri ajna nutraĵo, mortlacaj fine ĉiuj kolektiĝis en la arbaro.
+La Frugilegoj, kiam en la terure severa vintro vane serĉvagadis en la neĝkovrita kamparo, sen trovi eĉ unu ŝveliĝantan nigran terbulon, ne parolante pri ajna nutraĵo, mortlacaj fine ĉiuj kolektiĝis en la arbaro.
 
 Sekvis denovaj konsiliĝo, esperado, denova atenda-do…
 
 Fininte siajn ĉiutagajn giradojn ekvidas la Aglo el inter la nuboj la grandan tumultiĝon de la Frugilegoj sur la tero.
 
-—Pri kio ili povas tiomope konsiliĝi samtempe? — li pensis en si, kaj ĉar li scivolis, kaj cetere havis nenion 88
-
-FABLOJ KAJ AFORISMOJ
+—Pri kio ili povas tiomope konsiliĝi samtempe? — li pensis en si, kaj ĉar li scivolis, kaj cetere havis nenion
 
 
 alian por fari, tuj malsuprenflugis inter ilin, por demandi.
@@ -1969,9 +1681,7 @@ Kaj tiu respondis:
 
 La Muso Diplomato
 
-Regis bona vetero. La Kampaj Musoj tromultiĝis. Sed ankaŭ ĉirkaŭ Petro-Paŭlo estis seke, la homoj rapide rikoltis, kaj tiel la malfeliĉaj Kampaj Musoj povis kolekti 89
-
-FABLOJ KAJ AFORISMOJ
+Regis bona vetero. La Kampaj Musoj tromultiĝis. Sed ankaŭ ĉirkaŭ Petro-Paŭlo estis seke, la homoj rapide rikoltis, kaj tiel la malfeliĉaj Kampaj Musoj povis kolekti
 
 
 malmulte. Pliigis la malfeliĉon, ke la septembro, male, fariĝis tre pluveca, sekve la tiutempe maturiĝantaj her-bograjnoj ne nur elspikiĝis, sed en la pluvo baldaŭ an-kaŭ putriĝis.
@@ -1995,9 +1705,6 @@ Ili sendis deputitojn al la Grenejaj Musoj, kiel parencoj, por ke ili sendu iom 
 … Bis dat, qui cito dat (Dufoje donas, kiu tuj donas.) Je tio interkonsiliĝis la Grenejaj Musoj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ĉu pri tio, kiom ili donu? Aŭ kiel ili povus sendi plej rapide helpon? Male! Kiel oni povus rifuzi al ili!
 
 —Ni mesaĝu, ke ni mem ne havas, — diris juna kon-siliano.
@@ -2015,9 +1722,6 @@ anoncis unusone la revenintaj spionoj. — Oni devas agi, sed tuj.
 —Ve al ni, — stridis la virinoj kaj infanoj, — kio estos kun ni?
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —ĉu mi ne diris, ke ni devas trakti ilin delikate? —
 
 ekparolis nun la aĝega diplomato restinta sola sobra. —
@@ -2032,9 +1736,7 @@ Kaj la Grenejaj Musoj postrigardis lin ĵetataj inter duboj kaj esperoj.
 
 —Kion do vi diris al ili, ke ili silentiĝis?
 
-—Mi diris al ili, ke ĉar ni, Grenejaj Musoj ne povas helpi ilin per nia malmulta provizo, ni proponas al ili interŝanĝon el pura fratamo. Ni jam satiĝis de la abundo, ni volas pentofari. Ni estas dekmil, ili sendu ĉi tien dekmil el si, kiujn ili volas meti en nian lokon, kaj ni ello-
-
-ĝiĝos en ties kavernojn, kaj transdonos niajn riĉajn grenejojn.
+—Mi diris al ili, ke ĉar ni, Grenejaj Musoj ne povas helpi ilin per nia malmulta provizo, ni proponas al ili interŝanĝon el pura fratamo. Ni jam satiĝis de la abundo, ni volas pentofari. Ni estas dekmil, ili sendu ĉi tien dekmil el si, kiujn ili volas meti en nian lokon, kaj ni elloĝiĝos en ties kavernojn, kaj transdonos niajn riĉajn grenejojn.
 
 —Kaj nun kiel vi imagas, ke ili lasos nin en paco?
 
@@ -2043,16 +1745,11 @@ Kaj la Grenejaj Musoj postrigardis lin ĵetataj inter duboj kaj esperoj.
 Kaj okazis tiel!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La hirundo kun rompitaj flugiloj Antaŭ formigro, dum ludema petolado la Naiva Hirun-deto flugis iel kontraŭ telegrafan draton, kaj rompis la flugilojn. Kaj kiam per siaj rompitaj flugiloj li ree kapablis almenaŭ lamflugi, liaj kamaradoj jam estis delonge for.
 
 Kun dolorantaj flugiloj, laca li alvenis al la maro.
 
-—Dio mia, — li suspiris kun tremanta koro, — ĉi tie mi ja devas perdiĝi, en ĉi tiu florperdinta regiono! Kaj stre-
-
-ĉinte ĉiujn siajn fortojn li ekvojis super la maro. Kun rompitaj flugiloj, malsana, sola …
+—Dio mia, — li suspiris kun tremanta koro, — ĉi tie mi ja devas perdiĝi, en ĉi tiu florperdinta regiono! Kaj streĉinte ĉiujn siajn fortojn li ekvojis super la maro. Kun rompitaj flugiloj, malsana, sola …
 
 Jam estis ĉirkaŭ vespero, kaj li tre-tre laciĝis, kiam li atingis ŝipon. Tiam li ekparolis:
 
@@ -2062,12 +1759,7 @@ La ŝipo akceptis la malsanan birdeton, kaj nun jam kune ili pluvojaĝis. Tra ta
 
 Foje — iun vesperon — estiĝis timinda tempesto. Kiel malpezan folieton balancis la maro la ŝtalkoloson sur siaj ondoj, fine ĵetis ĝin sur rifon, kie ĝi ricevis likon, kaj ankaŭ surgrundiĝis.
 
-Kiam poste la terura tempesto mildiĝis, kaj en la lumo de la ekbrulinta Suno videbliĝis la alia bordo el la malfermiĝanta nebulo, la Hirundo eksvingis siajn malfor-93
-
-FABLOJ KAJ AFORISMOJ
-
-
-tajn, tamen jam ripozintajn flugilojn, kaj daŭrigis sian vojon.
+Kiam poste la terura tempesto mildiĝis, kaj en la lumo de la ekbrulinta Suno videbliĝis la alia bordo el la malfermiĝanta nebulo, la Hirundo eksvingis siajn malfortajn, tamen jam ripozintajn flugilojn, kaj daŭrigis sian vojon.
 
 Sur la bordo staris aro da atendantoj por la ŝipo.
 
@@ -2089,9 +1781,7 @@ La saĝa Heliko
 
 — ni diru — prudentan singardemon, eventuale oportu-necon ĝis via malrapideco, la proverbeca helikemo, mia simpla menso neniel povas kapti! — diris moke la Zizelo ofte petolanta kun la Heliko.
 
-—Kvankam la afero estas tre simpla, baptano. Ni nur 94
-
-FABLOJ KAJ AFORISMOJ
+—Kvankam la afero estas tre simpla, baptano. Ni nur
 
 
 devas klare vidi, — eksplikis la Heliko pli oportuneme ol kutime. — Ke vi, ceteraj estas viglaj, ĉiam rapidantaj, estas kompreneble. Se vi volas ja vivteni vin, ĉiutage vi devas forrapidi elhejme; ankaŭ kun viaj ĉasaĵoj vi devas tuj-tuj hejmenkuri aŭ fuĝi. Sed mi neniam devas foriri elhejme, nek hejmenrapidi, nek fuĝi de miaj malamikoj, ĉar kie ajn mi troviĝas, ĉie mi estas ankaŭ hejme; diru do: kien mi devus rapidi?! …
@@ -2111,9 +1801,6 @@ Sed kiam la maltrankvila Pasero ĉiam pli flankensal-tadis direkte al la bongust
 —Mi scias, kamarado, — respondas trankvile la Pasero, — sed oni ne devas atenti la homojn; ili konsideras ankaŭ la Muŝon impertinenta, eĉ aroganta!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Leporoj
 
 En la junkeja kaŝejo de seka kanaro interparolas la maljuna Leporo kun siaj filoj.
@@ -2125,9 +1812,6 @@ Nun aŭdiĝas unue kelkaj tintilbatoj, poste baldaŭ puŝbruoj de paŝado en la 
 —Ve, ni kuru, kien ni povas! — ekkrias terurite la Le-poridoj. — Venas malamiko …
 
 —Haltu! — vokas la maljuna Leporo post la eksalton-toj. — Nu, ja facilus esti leporo, se ni devus zorgi nur pro knalantaj, krakantaj atakantoj! uste male, filoj. Ni devas ektimi malplej la puŝbrue-tintilante proksimiĝantojn. Multe pli danĝeraj estas la kaŝpafantoj, kiuj staros tie kaj ĉi tie kiel mutaj ŝtonblokoj, kaj inside mortpafos la sensuspekte preterkrozantan, malfeliĉan Leporon!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Leciono de la Horloĝo
@@ -2152,9 +1836,7 @@ Nun ankaŭ la mastro suprenrigardis al la Horloĝo, sed ne povis tuj orientiĝi 
 
 La ĝeneralan miron interrompis la Horloĝo, dirante:
 
-—Nenia miraklo okazis ĉi tie, sinjoro Mastro, kaj an-kaŭ difektita mi ne estas, dank’ al Dio. Mi nur scivolis, 97
-
-FABLOJ KAJ AFORISMOJ
+—Nenia miraklo okazis ĉi tie, sinjoro Mastro, kaj an-kaŭ difektita mi ne estas, dank’ al Dio. Mi nur scivolis,
 
 
 kion pensus ĉi tiuj bravaj laboristoj viaj pri tio, se iu ple-numus sian devon al ili samtiel, kiel ili al vi — laborante nur, kiam ili estas sub la rigardo de la mastro.
@@ -2173,12 +1855,7 @@ Interparolo de Motoroj
 
 diras fine la kvara.
 
-El la kanto, plendo de sin libere esprimanta maŝino estas facile konkludi, kiam ĝi randas eksplodon, endan-
-
-ĝerigante ankaŭ sian medion! Kiel antaŭvidos tion la nekontentigebla Homo ĉe maŝino, trudita al ĝenerala muteco kaj subpremanta en si ĉiujn siajn dolorojn kaj amarecon?
-
-
-FABLOJ KAJ AFORISMOJ
+El la kanto, plendo de sin libere esprimanta maŝino estas facile konkludi, kiam ĝi randas eksplodon, endanĝerigante ankaŭ sian medion! Kiel antaŭvidos tion la nekontentigebla Homo ĉe maŝino, trudita al ĝenerala muteco kaj subpremanta en si ĉiujn siajn dolorojn kaj amarecon?
 
 
 Rimedoj
@@ -2202,14 +1879,9 @@ Postlasis ĝin herede. Estas gloro surhavi ĝin. Kaj kiel bo-ne ĝi sidas sur ĉ
 —Vi estas belaj kaj fieraj. Kiom pli vi estus tiaj, se vi montrus ankaŭ viajn forton kaj lerton … Kaj ĉiuj vidus tion … Kaj tiel plu, onklo Stefano. Kaj preze de la vipoj oni aĉetas avenon por ili. Jen estas ĉio!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Suno kaj la Luno
 
-Marŝante sur la sama firmamento la Suno foje renkonti-
-
-ĝis kun la Luno. Sed ili preteriris unu la alian sen saluti.
+Marŝante sur la sama firmamento la Suno foje renkontiĝis kun la Luno. Sed ili preteriris unu la alian sen saluti.
 
 —Kial devus saluti mi? — demandis la Luno. — Kvankam pli malgranda, tamen mi brilas nokte, kiam estas mallume, kaj li nur dumtage, kiam ankaŭ sen tio estas hele.
 
@@ -2228,9 +1900,6 @@ La Gazeton de la Birdoj transprenis la dokta Sturno, parolanta plurajn lingvojn,
 —Nu, mi ne dividas tute ĉi tiun opinion, baptano, —
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 respondis la Najtingalo, — ĉar kun saĝeco oni povas iel redakti gazeton, sed kun vero neniel … Tamen ni povas fari provon, se vi volas. uste en la hodiaŭa numero li anoncis konkurson pri odo: ni provu!
 
 —Bone, — diris aprobe la Alaŭdo. — Ni elektos niajn plej belajn kantojn: tiujn, kiujn ni disaŭdigas ĉe la alveno de Printempo por la gloro de Dio, kaj ni sendos ilin sub niaj nomoj al la saĝa kaj verama redaktoro; sed samtempe ni sendos al li ankaŭ ian improvizaĵon nome de la Garolo kaj la Papago. ĉu vi komprenas? Kaj se li juĝas indaj je atento niajn meritplenajn verkojn, tiam pravas vi, kaj la saĝa redaktoro estas ankaŭ verama, sekve la Saĝeco kaj Vero estas sangofratoj; kaj se ne, tiam pravos mi, kaj tiukaze eĉ se fratoj, maksimume nur duonfratoj ili estas …
@@ -2240,9 +1909,6 @@ Kaj farite, kiel dirite.
 Ili sendis kelkajn el siaj plej belaj verkoj sub la propraj nomoj, sed ankaŭ el siaj fuŝaĵoj sub elegantaj pseŭdoni-moj.
 
 En la plej proksima festa numero aperis la premiitaj verkoj en ornamaj kadroj sur la frontopaĝo de la Gazeto de la Birdoj, kaj sub ili legeblis kiel aŭtoroj la Najtingalo kaj Alaŭdo — pseŭdonime …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Landkunveno
@@ -2265,9 +1931,7 @@ Alifoje, observante denove la Azenon, la Leono refoje vidas, ke tiu silentas, e�
 
 La Leono ekmiris.
 
-—Cetere, — daŭrigis la Azeno pliardiĝinte, — mi jam 102
-
-FABLOJ KAJ AFORISMOJ
+—Cetere, — daŭrigis la Azeno pliardiĝinte, — mi jam
 
 
 profunde pripensis kaj ankaŭ decidis, kion mi diru …
@@ -2286,9 +1950,7 @@ Kaj la samon vidis la Leono ankaŭ iun trian fojon. Nun la temo estis sufiĉe se
 
 La duloĝejaj ranoj
 
-ĉu estis mondpereo aŭ diluvo, jam neniu memoris, sed estas fakto, ke en la tuta mondo regis malsato, kian neniu ankoraŭ spertis. Por la ĉiutaga panporcio oni devis 103
-
-FABLOJ KAJ AFORISMOJ
+ĉu estis mondpereo aŭ diluvo, jam neniu memoris, sed estas fakto, ke en la tuta mondo regis malsato, kian neniu ankoraŭ spertis. Por la ĉiutaga panporcio oni devis
 
 
 taglonge vicostari, sed sian imposton ĉiu pagis mem al sia ekzekuciisto, al neniu alia en la mondo.
@@ -2309,12 +1971,7 @@ Kaj tiel same: kiam la ekzekuciisto de la birdoj anoncis sin, li tuj plonĝis en
 
 La ursogeneracio
 
-—Diru al mi, Via Reĝa Moŝto, ĉu ĉi tiuj ursoj viaj estas fakte tiel nemalhaveblaj, ĉu vere tiom neanstataŭigeblaj, ke vi jam eĉ jardekon pluservigas ilin post la regula de-
-
-ĵortempo? — diras la Juna Tigro al la Leono. — La laŭ-
-
-
-FABLOJ KAJ AFORISMOJ
+—Diru al mi, Via Reĝa Moŝto, ĉu ĉi tiuj ursoj viaj estas fakte tiel nemalhaveblaj, ĉu vere tiom neanstataŭigeblaj, ke vi jam eĉ jardekon pluservigas ilin post la regula deĵortempo? — diras la Juna Tigro al la Leono. — La laŭ-
 
 
 vica generacio ja jam malkontentas kaj stamfas pro sen-pacienco … Vi vidos, iam io eksplodos …
@@ -2337,12 +1994,7 @@ Unue li provis ĉe la Vento.
 
 forviŝi, distreti en polvon tiel potencan, vivofortan altar-baron! Mi malligas viajn ĉenojn, Vento, forbalau la arbaron! …
 
-—Li starigis potencajn gardistojn, — provis rifuzi la Vento, — kiuj unuparte pretas spiti eĉ tempeston, ali-parte per siaj alarmsignaloj transdonataj de folio al fo-105
-
-FABLOJ KAJ AFORISMOJ
-
-
-lio ili ĝustatempe informas la endormiĝintan Arbaron pri la proksimiĝanta danĝero … Mi ne tro esperas pri la sukceso …
+—Li starigis potencajn gardistojn, — provis rifuzi la Vento, — kiuj unuparte pretas spiti eĉ tempeston, ali-parte per siaj alarmsignaloj transdonataj de folio al folio ili ĝustatempe informas la endormiĝintan Arbaron pri la proksimiĝanta danĝero … Mi ne tro esperas pri la sukceso …
 
 Tiam li turnis sin al la Fajrero.
 
@@ -2371,9 +2023,6 @@ Ili interkonsentis.
 La Fajrero iris al la arbo, la Envio kuris por la Vento.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kaj post kelkaj minutoj, simile al rajdtaĉmentoj galo-pantaj tra pacaj, florantaj kampoj, la Vento ĵetis sin kun terura impeto kontraŭ la nenion suspektantan Junan Arbaron.
 
 Siaflanke la Fajrero metis fajron ĉe la putrinta arbo, kiu jam kaptis flamon.
@@ -2384,12 +2033,7 @@ Sed la liberigitaj kaj nebrideblaj, furiozaj Ventoj ankaŭ revene impetis, kaj l
 
 Unuece
 
-—Pardonu al ni, Reĝa Moŝto, — diras la Pantero al la Leono, kiam tiu, promenante en la societo de la Tigro kaj Leopardo, renkontiĝas kun la reĝo, — sed ni devas demandi vin pri la kaŭzo de tio, ke nuntempe vi kon-107
-
-FABLOJ KAJ AFORISMOJ
-
-
-sistigas vian kortegon el nuraj simioj, pli frue tio ja neniam estis tiel! …
+—Pardonu al ni, Reĝa Moŝto, — diras la Pantero al la Leono, kiam tiu, promenante en la societo de la Tigro kaj Leopardo, renkontiĝas kun la reĝo, — sed ni devas demandi vin pri la kaŭzo de tio, ke nuntempe vi konsistigas vian kortegon el nuraj simioj, pli frue tio ja neniam estis tiel! …
 
 —Vi pravas, — respondis la Leono, — pli frue vere ne la simioj, sed vi estis miaj korteganoj. Sed veras ankaŭ —
 
@@ -2401,9 +2045,7 @@ Porkoj en aŭdienco
 
 Kaj la Leono respondis:
 
-—Vi pravas, samlandanoj; sed vi rimarkas nur, ke la ŝafoj havas normalan paŝtejon kaj agrable varman stalon? … Kaj ne tion, ke ili pace kunestas ĉe la manĝujo kaj ne puŝmordas unu la alian; ke ili havas tintilon, kies sonon ili postsekvas tra obstakloj kaj baroj; ke ĉiujare ili prenas kompletan banon ĉe la bestnaĝejo, kaj al ili povas esti ajne varme, neniam ili porke enruliĝas en ĉiun 108
-
-FABLOJ KAJ AFORISMOJ
+—Vi pravas, samlandanoj; sed vi rimarkas nur, ke la ŝafoj havas normalan paŝtejon kaj agrable varman stalon? … Kaj ne tion, ke ili pace kunestas ĉe la manĝujo kaj ne puŝmordas unu la alian; ke ili havas tintilon, kies sonon ili postsekvas tra obstakloj kaj baroj; ke ĉiujare ili prenas kompletan banon ĉe la bestnaĝejo, kaj al ili povas esti ajne varme, neniam ili porke enruliĝas en ĉiun
 
 
 apudvojan flakaĉon?! Tiel do, miaj samlandanoj, vi nur remarŝu hejmen en paco, kaj se vi ĉion ĉi rimarkos, tiam venu al mi, kaj ne pli frue!
@@ -2425,9 +2067,6 @@ Sed apenaŭ li faras kelkajn paŝojn, la ulo, kiu antaŭ nelonge ankoraŭ iris a
 —Oho, amiko! Tiam io misas ĉi tie. ĉar kion ni permesas al ni, tion laŭjuste ni ne rajtas malpermesi al aliaj. Eĉ, ni mem povas malplej malobei nian malpermeson, ĉar nur tiam ĝi havos veran forton!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La titolo
 
 Kiam siatempe la mondtempestoj disŝutis la azenarojn, kaj la azenoj venis unuope fronten de ŝafaroj, ili kaŭzis al ĉi tiuj grandajn zorgojn.
@@ -2446,9 +2085,7 @@ Mondkonferenco sur la arbarrando Devizo: Orgojlulo, pri kio vi fieraĉas?
 
 Dimanĉe posttagmeze la Sovaĝaj Bestoj babilis ĉe pip-fumado. La temo direktiĝis al la Homo, kun kiu ili staras en batalo por vivo aŭ morto.
 
-—Ankaŭ la Homoj estas bestoj! Kaj sole per siaj parolo kaj vesto ili iom diferencas de ni; kvankam samtiom 110
-
-FABLOJ KAJ AFORISMOJ
+—Ankaŭ la Homoj estas bestoj! Kaj sole per siaj parolo kaj vesto ili iom diferencas de ni; kvankam samtiom
 
 
 tigroj, vulpoj, lupoj kaj hienoj ili estas, kiel ni, — deklaris dum la babilado la Vulpo, kiu bone konis la homojn.
@@ -2462,9 +2099,6 @@ Je tio la bestoj konsterniĝis. Kaj nur post longe ekparolis la Hieno dirante:
 —Oho, — ekfrapis tiam la Leono neatendite la tablon,
 
 — mi mem diras nur, estas pli honeste kaj bele, ke se naskitaj vulpo, tigro, leono kaj hieno, ni estas kaj restas tio antaŭ la tuta mondo. Kaj la fiaĵon, ke niaj en vestoj kaŝitaj, degenerintaj rasfratoj, la Homoj kiel civilizitaj kulturestaĵoj deklaras kaj kredas sin stari super ni, ni nur translasu al ili. Tiel, fojfoje kaptante iujn el ili ni almenaŭ povas venĝi nin pro iliaj insidaj fiagoj, faritaj en ĉi tiu mondo. ĉar alie ni devus kuiri kun ili la saman kaĉon, eĉ — nur diri jam terure — eble ankaŭ sidiĝi al la sama tablo!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La azenigita Azeno
@@ -2488,9 +2122,6 @@ Nu, ja troviĝas io por plezuriĝi, — sed ties finon li prefere nur pensis, �
 —Ni alvenis la celon! — palpebrumis ĝojante en si la Vulpo, kaj diris laŭte:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Kial ne … Tiom ni ja ŝuldas unu al la alia, ni malnovaj, bonaj kamaradoj … Diru nur kuraĝe. Kion mi kapablos, ĉiam volonte mi faros …
 
 —Sciu do, kamarado, — komencas konfideme, preskaŭ flustre la Azeno, post kiam li singarde ĉirkaŭrigar-degis, por ke neniu alia aŭdu liajn vortojn, — al mi tre, tre multe plaĉas la ĉevaloj, kaj por diri sincere, ankaŭ mi mem volus fariĝi ĉevalo. Finfine pro tio, ke miaj prauloj prenis krucon sur sian ŝultron kaj grandajn ventumi-lojn sur la kapon, mi kaj ĉiuj miaj idoj ne devus resti azenoj ĝis mondfiniĝo?
@@ -2501,14 +2132,9 @@ FABLOJ KAJ AFORISMOJ
 
 —Kion, kiel? La krucon vi farbos griza, el la oreloj iom vi detondos, kaj pretas la ponio! — elbuŝigis facile la delonge pretan konsilon la Vulpo kun triumfo.
 
-En la unua momento la Azeno videble frapiĝis pro miro, poste frapinte al si la frunton li diris kun superŝ-
-
-velanta ĝojo:
+En la unua momento la Azeno videble frapiĝis pro miro, poste frapinte al si la frunton li diris kun superŝvelanta ĝojo:
 
 —ĉu tiel? Kaj mi mem ne eltrovis tion! Vidiĝas, ke mi ankoraŭ estas azeno! — kaj apenaŭ li atendis la vesperon, por povi hejmeniri kun la ŝafaro.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kaj hejme tuj li transfarbis sin.
@@ -2533,12 +2159,7 @@ Sed tiu senutila stalknabo denove vortpinĉis lin.
 
 —Nu vidu ĉi tiun azenon idiotan, ĉu ne ĉiupreze li puŝas sin al la aveno?! — li alkriis lin, kaj dum li pelis lin sialoken, donis tiel grandan baton sur lin per la proksime staranta ŝovelilo, ke ĝi knalegis …
 
-Je tio eĉ la azenigita ”ĉevalo” mishumoriĝis. Kompre-114
-
-FABLOJ KAJ AFORISMOJ
-
-
-neble, li ja pensis pri ĉio en la mondo, nur pri tio vere neniam, ke krom azeno li povus esti ankaŭ idioto.
+Je tio eĉ la azenigita ”ĉevalo” mishumoriĝis. Kompreneble, li ja pensis pri ĉio en la mondo, nur pri tio vere neniam, ke krom azeno li povus esti ankaŭ idioto.
 
 Por kelkaj tagoj li eĉ malsaniĝis pro tio, kaj ne elvenis el la stalo. Tiel do la scivolema Vulpo povis demandi lin nur post pluraj tagoj en sia kutima ironia maniero:
 
@@ -2559,9 +2180,6 @@ Du Pajlostakoj staras unu apud la alia sur draŝejo. Sed por nenio en la mondo i
 ĉi tie vi vivas unu apud la alia, neniu cetera estas kun vi; krome ĉi tiu tera vivo estas tiel mallonga, domaĝe estas malŝpari eĉ unu minuton ĝian, — diras al ili ambaŭ kun bonvolemo kaj konvinkiĝo la Fojnostako.
 
 —ĉu devus komenci mi? — susuris la Tritika Pajlostako, — kiu, eĉ se mi fariĝos substernaĵo, iam mi kreskigis tritikon?!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Nu ne, ĉu eble komencu mi, — remuĝis la Hordea Stako, — kiu — kvankam mi produktis nur hordeon —
@@ -2593,9 +2211,6 @@ Poste ambaŭ, kiel kutime en tiaj kazoj, iniciatis proceson unu kontraŭ la alia
 —Nu bone. Kaj nun ni vidu, ĉu ĉiu diris veron? (Li observas la orelojn de la Azeno. — Fakte, sufiĉe grandaj!) La ĉevalo asertis veron. (Kaj nun li taksas la kapmezu-ron de la ĉevalo. — Sufiĉe granda ankaŭ ĉi tiu!) La Azeno same diris veron.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Poste turninte sin al la aŭdantaro kun rigida, serioza mieno li eldiris la juĝon:
 
 —ĉar vi ambaŭ pravis, kaj por la verdiro hodiaŭ jam ŝuldiĝas premio, ne puno, per la jena deklaro mi absol-vas vin ambaŭ. Vi povas foriri!
@@ -2621,9 +2236,6 @@ Iu diras:
 —Ne enviu la malfeliĉan Cirison, — alparolis iu Dua Papaveto la Unuan, — ja kiel ajn la kampaj floroj venas sur kulturitan teron, ili estas tie plejparte nur trudherboj. Kaj mi estu prefere floro sur magra fosaĵrando, ol trudherbo sur grasa tritika kampo.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Grandeco
 
 Vidante, kiel multe la homoj vizitas, serĉas, admiras la iom pli grandajn montojn, la Juna Monto elpensis ion grandan kaj kuraĝan, kaj de vespero al mateno li leviĝis en kapturnan altecon; multe pli super siajn apudajn kunulojn. — Ke la homoj havu ion por admiri, algapi! — li pensis.
@@ -2635,9 +2247,6 @@ Per malgajaj okuloj la Juna Monto rigardis nun ĉirkaŭ si! Tra la nana mondo, k
 Tiam li eksuspiris, kaj diris al siaj malnovaj, karaj kunuloj sterniĝantaj skabele ĉe liaj piedoj:
 
 —Fratoj, restu unu apud la alia en ĝojo kaj ploro, kaj kontentiĝu per la grandeco, kiun Dio donis al vi, ĝojante pri sunbrilo, floroj, arboj, birdoj. Peza, malfacila sorto estas la grandeco: senkunuleco, severeco kaj soleco apudas ĝin!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Reĝinoj
@@ -2652,9 +2261,7 @@ Avensaketo
 
 —Estas ja vero, ke de tempo al tempo oni plenigas ĝin, sed poste, kiam ĝi malpleniĝis, oni lasas ankaŭ plue sur nia kolo ĉi tiun damnitan avensaketon! — murmuris en si Iu Fiakroĉevalo en la stalfako. — Kvazaŭ por tiu mizera aveno malmulta, porciumita la homo vendus ankaŭ la liberecon de la parolo …
 
-—Tamen estas ja tiel, vi povas iel ajn murmuri, kamarado, — diras Iu Alia tra la saketo. — La fiakroĉevaloj 119
-
-FABLOJ KAJ AFORISMOJ
+—Tamen estas ja tiel, vi povas iel ajn murmuri, kamarado, — diras Iu Alia tra la saketo. — La fiakroĉevaloj
 
 
 havas nur tie kaj tiam vorton, kie kaj kiam iliaj mastroj malpendigas la saketon de ili; aliloke kaj alitempe al ili sortas teni la langon! Sed estas ja tiel en ordo. ĉar kiu akceptas la avensaketon tiam, kiam ĝi estas plena, tiu ja silentu, kaj surhavu ĝin ankaŭ, kiam ĝi malpleniĝis!
@@ -2672,9 +2279,6 @@ Tiam rektigante sin fierkreve ili ekparolis:
 —Kreeno de Kreenvilaĵo el Et- kaj Egĝardena Nazo-torda Langotiklujo, — respondis la alia.
 
 Kaj poste ambaŭ ĵetis profunde malestiman rigardon unu al la alia, respektive ili alte preterrigardis unu super la alia.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Disfalantaj rokoj
@@ -2695,9 +2299,7 @@ In magnis et voluisse …
 
 — Kiom ajn vi ja klopodis, viaj verkoj fariĝis nur talpej-oj.
 
-—Estas pura vero, — respondas modeste, sed samtempe decideme la Talpo, — ke miaj verkoj fariĝis nur 121
-
-FABLOJ KAJ AFORISMOJ
+—Estas pura vero, — respondas modeste, sed samtempe decideme la Talpo, — ke miaj verkoj fariĝis nur
 
 
 talpmontetoj, sed konsolas min, ke mi intencis fari ilin montoj, kaj celis ĉiam kaj ĉiam monton!
@@ -2721,12 +2323,7 @@ Nu, mi ja diris, paciencon! …
 Laŭte ekbatis la koro de Petro, kaj pro la feliĉo eĉ liaj larmoj ekfluis. Subite li ne vidis klare, kiam li alrigardis.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
-Kaj nur poste li eksciis, ke kvankam ili fakte interkro-
-
-ĉiĝis, sed nek brakumis, nek kisis unu la alian, ĝuste male: ili palpserĉis la renojn de la alia, kaj tiris la harojn de la alia, pro ke la vento transblovis flokon de la draŝejo de unu al tiu de la alia, kaj sian juston — kiel decas —
+Kaj nur poste li eksciis, ke kvankam ili fakte interkroĉiĝis, sed nek brakumis, nek kisis unu la alian, ĝuste male: ili palpserĉis la renojn de la alia, kaj tiris la harojn de la alia, pro ke la vento transblovis flokon de la draŝejo de unu al tiu de la alia, kaj sian juston — kiel decas —
 
 neniu cedis!
 
@@ -2735,9 +2332,6 @@ Por Bovo nur amatoro
 —Fratoj, — diras la Juna Trifoliujo al siaj kamaradoj sur la kampo, — ĉu vi ne rimarkis, ke la homoj nuntempe ĉiam serĉas nur la kvarfoliajn trifoliojn, kaj la trifoliaj jam neniun interesas? ĉu vi ne pensus, ke pro tio ni devus transiri al la kultivado de nur kvarfoliaj?
 
 —Neniel! — malmilde interrompas la demandon la Maljuna Trifoliujo. — ĉar kiel mi konas la homojn, se ni produktos al ili kvarfoliajn, ili tuj serĉos trifoliajn; ilin interesas ja ne la trifolioj, sed nur la malofteco. En la temo trifolioj kompetentas cetere nur la Bovo sperta pri la scienco de la nacia ekonomio, kaj ne la Homo, kiu por homo povas esti eĉ scienculo, sed por bovo maksimume nur amatoro!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Mirknabo
@@ -2756,9 +2350,7 @@ La mastro rapidis montri siajn trezorojn al siaj gastoj, kiuj longe kaj dece ple
 
 Dum hejmeniro tiel parolis la Strigino al sia edzo:
 
-—Aŭdu, al mi ŝajnas, kvazaŭ tiuj diamantoj estus nur 124
-
-FABLOJ KAJ AFORISMOJ
+—Aŭdu, al mi ŝajnas, kvazaŭ tiuj diamantoj estus nur
 
 
 koloraj vitroj, kaj la oraĵoj nur iaj-tiaj kupraĵoj verdri-gaj…
@@ -2777,12 +2369,7 @@ plendas la forĵetita Plumo. — ĉu valoris skribi al ĉi tiu sendanka epoko e�
 
 —ĉe la skribado gravas ne la literoj, filo, sed la papero; do ne miru, ke oni forĵetis vin … Rigardu la malno-vajn Skribaĵojn. Kiun oni skribis sur paperaĉo, ĝi estu io ajn, senspure ĝi malaperis, neniu aprezas ĝin, sed tiuj sur pli bonaj paperoj konserviĝis, kaj kio ajn estas skribita sur ĉi tiuj, ili multe valoras ankaŭ nun, — diris iu samloke paliĝanta, aĉa Ministropapero. — Sed vi tute pravas pri tio, ke por ĉi tiu epoko, kiu min, Ministropa-peron tiel mistraktas, ne valoras labori!
 
-Kaj kun brustoj ŝvelantaj de memgraveco, kun ofen-125
-
-FABLOJ KAJ AFORISMOJ
-
-
-dita fiereco ili ambaŭ atendis esti deklaritaj martiroj de la scienco …
+Kaj kun brustoj ŝvelantaj de memgraveco, kun ofendita fiereco ili ambaŭ atendis esti deklaritaj martiroj de la scienco …
 
 —Se plendas eĉ vi, kiuj finfine estis nur miaj nuraj iloj, kaj eĉ hodiaŭ vi iel-tiel ŝvebas sur la surfaco, kion diru mi, la ”senmorta”? — muĝis el sub la miltavola polvo-rubo kaj balaaĵo de la forgeso, ie de tre profunde, — la Ideo!
 
@@ -2801,9 +2388,6 @@ Kaj la vitoj nur kreskis kaj kreskis, pri la Fazeoleto neniu zorgis.
 Sed foje, — neniu scias, kiel, — la orfa Fazeoleto eks-tamfis, levis sian ĝis nun pendantan kapon, kaj kantis sonorvoĉe:
 
 Kvankam mi naskiĝis nur Fazeolo, Kaj vi estas Vitoj origine
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Mi ne restos sen frukto kaj grapolo, Mi sukiĝos vine ja finfine.
@@ -2832,14 +2416,10 @@ De ĉirkaŭ la vilaĝrandaj domoj alĉirpiĝas la gajeco de la feliĉa Pasero; d
 
 Fine ekparolas la Frugilego:
 
-—Reĝa Mosto, mi envias nur la Paseron! Kiel bonegan 127
-
-FABLOJ KAJ AFORISMOJ
+—Reĝa Mosto, mi envias nur la Paseron! Kiel bonegan
 
 
-vivon li havas tie sub la tegmentorando! Lia nesto estas en plena sekureco, manĝeroj daŭre alŝutiĝas al li … Kion ceteran oni bezonas? Male la malfeliĉa alaŭdo! Lia lo-
-
-ĝejo troviĝas inter tiom da malamikoj sur la nuda tero, ankaŭ de tie transloĝigadas ĝin jen la plugilo, jen la falĉi-lo, fojfoje la temperaturo. Sian neriĉan nutron li akiras per multa peno. Kiel mizera vivo! Kaj kiel multe li devas eĉ por ĝi dankadi!
+vivon li havas tie sub la tegmentorando! Lia nesto estas en plena sekureco, manĝeroj daŭre alŝutiĝas al li … Kion ceteran oni bezonas? Male la malfeliĉa alaŭdo! Lia loĝejo troviĝas inter tiom da malamikoj sur la nuda tero, ankaŭ de tie transloĝigadas ĝin jen la plugilo, jen la falĉi-lo, fojfoje la temperaturo. Sian neriĉan nutron li akiras per multa peno. Kiel mizera vivo! Kaj kiel multe li devas eĉ por ĝi dankadi!
 
 —Nu, amiko mia, — ekparolis la Aglo, — mi havas tute alian opinion! ĉar se mi ne estus Aglo, mi volus esti Alaŭdo, kaj se por mia ĉiutaga vivo mi devus sange ŝvi-ti, kaj eĉ se mi devus vivi kaj morti sur la nuda tero inter senĉesaj danĝeroj, — nur kanti, ho nur kanti mi povus tiel, kiel li!
 
@@ -2847,12 +2427,7 @@ Segpolvaj animoj
 
 —Nu, kamarado, ĉu ankaŭ vi ĉi tie finis, kiel mi? Malgraŭ ke vi pensadis tiel alte pri senmorteco, kaj tiel multe vi disanoncis ĝin, — diras la Ludurso veninta sur rubamason al la samloken trafinta Gramofono.
 
-—Estas ja vere, — respondas ĉi tiu, — ke korpe ankaŭ mi venis en unu vicon kun vi, sed mia animo pluvivas en miaj ĝismorte disaŭdigataj kantoj ĝis la tago de la lasta juĝo, kiam ni resurektos! Jes ja, ĉar ekzistas senmorteco, ankaŭ en polvoj kaj cindroj mi disanoncas tion. Kom-128
-
-FABLOJ KAJ AFORISMOJ
-
-
-preneble nur por tiuj, en kiuj loĝas animo. Tiuj, kiuj dum sia tuta vivo estis des pli grandaj, ju pli da segopolvo ili havis en si, kaj kies animo estis ĉi tiu segaĵo mem, kiel en via kazo, tiuj pli-malpli frue kompreneble venos kun korpo kaj animo sur rubamason — kaj laŭmerite!
+—Estas ja vere, — respondas ĉi tiu, — ke korpe ankaŭ mi venis en unu vicon kun vi, sed mia animo pluvivas en miaj ĝismorte disaŭdigataj kantoj ĝis la tago de la lasta juĝo, kiam ni resurektos! Jes ja, ĉar ekzistas senmorteco, ankaŭ en polvoj kaj cindroj mi disanoncas tion. Kompreneble nur por tiuj, en kiuj loĝas animo. Tiuj, kiuj dum sia tuta vivo estis des pli grandaj, ju pli da segopolvo ili havis en si, kaj kies animo estis ĉi tiu segaĵo mem, kiel en via kazo, tiuj pli-malpli frue kompreneble venos kun korpo kaj animo sur rubamason — kaj laŭmerite!
 
 La kaĝo
 
@@ -2870,9 +2445,7 @@ Rigardu, la Suno brilas tra la fenestro al ni, kaj ankaŭ la folioj de la ĝarde
 
 —Vidu, — fine ekparolis tirvoĉe la Najtingalo, — kiu naskiĝas en kaĝo, kaj tie vivas dum sia tuta vivo, tiu —
 
-mi ne neas — eble povas ankaŭ tie kanti; sed kies lulilo balanciĝis en la sino de la senfina densejo de la liberaj 129
-
-FABLOJ KAJ AFORISMOJ
+mi ne neas — eble povas ankaŭ tie kanti; sed kies lulilo balanciĝis en la sino de la senfina densejo de la liberaj
 
 
 arbaroj, kaj al kiu la Suno de Dio tie briladis, tiu en la kaĝo povas nur morti, sed kanti … kanti neniam!
@@ -2891,9 +2464,7 @@ Kaj la nesto de la kantisto de Dio estas en sekureco sur la aperta kampo, eĉ su
 
 La Unua Hirundo
 
-Tempis ĉirkaŭ la fino de aŭgusto, la hirundoj jam komencis ariĝi sur la telegrafaj dratoj kaj babilis: 130
-
-FABLOJ KAJ AFORISMOJ
+Tempis ĉirkaŭ la fino de aŭgusto, la hirundoj jam komencis ariĝi sur la telegrafaj dratoj kaj babilis:
 
 
 —Neniam mi forgesos tiun printempon, — rakontas entuziasme iu Maljuna Hirundo, — kiam mi estis la Unua Hirundo.
@@ -2906,9 +2477,7 @@ Bonorde mi alvenis. Mi estis la Unua Hirundo!
 
 Estis belega printempo!
 
-La Suno ŝutis ambaŭmane sian lumon sur la pejza-
-
-ĝon, sur la turkaskoj de la preĝejoj defore brilis al mi la oraj krucoj. Arbaroj kaj kamparoj vestis sin flororname por mia honoro, la vintrumantaj birdoj, baniĝante en la lumo de la Suno, feliĉe atendis kaj salutis min.
+La Suno ŝutis ambaŭmane sian lumon sur la pejzaĝon, sur la turkaskoj de la preĝejoj defore brilis al mi la oraj krucoj. Arbaroj kaj kamparoj vestis sin flororname por mia honoro, la vintrumantaj birdoj, baniĝante en la lumo de la Suno, feliĉe atendis kaj salutis min.
 
 La infanoj aŭdigis kantojn pri mi, kaj pro la ĝojo ili rulis sin en la herbo. La homoj montradis min unu al la alia, kaj jubile ili kriadis: la Unua Hirundo, la Unua Hirundo!
 
@@ -2921,9 +2490,6 @@ Jes ja!
 unufoje ankaŭ mi estis Unua Hirundo!
 
 La Junaj Hirundoj tre ŝatis fabelojn, tial ili ĉesis revadi, kaj nun atentis al la nova rakontanto.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Sed mi tiel ekvojis, ke min neniu povu antaŭi! Mi bonorde alvenis. Ankoraŭ en februaro!
@@ -2945,9 +2511,6 @@ Dum siaj venkoj la taĉmento fine alvenis al granda rivero, kie ĝi povis refre�
 En la triumfebrio aranĝis ĉi tie la oficiraro grandan festenon. La ĉefkomandanto ne ŝparis laŭdi la kapitanon de la trumpetistaro, kial li tiel trafe funkciigis la trumpetojn. Eĉ oran distingon li donis al li.
 
 Nur ĝuste pri la trumpetistoj pensis neniu.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kaj post la ripozo ili denove ekvojis, kaj iris en novajn batalojn.
@@ -2974,9 +2537,7 @@ La Grilo kantadis mallaŭte en la herbo.
 
 Aŭdinte lian ĉirpadon el sub la arbedoj tiel alparolis lin la Najtingalo:
 
-—Ankaŭ vi ja estus kantisto, kiel mi vidas, kamarado, kial vi estas tiel tro modesta, ke vi vivas nur inter den-saj herboj, kaj krome vi iras perpiede? Venu supren al 133
-
-FABLOJ KAJ AFORISMOJ
+—Ankaŭ vi ja estus kantisto, kiel mi vidas, kamarado, kial vi estas tiel tro modesta, ke vi vivas nur inter den-saj herboj, kaj krome vi iras perpiede? Venu supren al
 
 
 mi, de ĉi tie ja via kanto sonas pli foren, kaj ankaŭ alimaniere … Gravas ankaŭ, de kie oni kantas!
@@ -2989,12 +2550,7 @@ La Perdriko kaj la Hirundo
 
 —Kiaspeca birdo vi estas, Perdriko, — ekparolis la Hirundo al la Perdriko, — ke kvankam vi havas fortajn flugilojn, vi nur iom supreĵetas vin, kaj preskaŭ tanĝante la teron vi pasas pafdistancon, kaj baldaŭ vi denove malsupreniĝas, por perpiede kuri sur la tero? … Vera birdo vivas sur flugiloj; birdon faras birdo lia flugado! Rigardu min: mi ŝvebas taglonge en la aero; jen supre, jen sube, sed ĉiam sur la flugiloj!
 
-—Vi pravas, frato, — respondas post longa, profunda suspiro la Perdriko. — Vera birdo vivas fakte sur siaj flugiloj, kaj samprave estas, ke la flugado faras birdon birdo. Sed kiam kaj kiel flugu en la alton birdo, ajne li kapablus kaj ajne li ankaŭ volus, kiu siajn ĉiutagajn man-
-
-ĝerojn malgrasajn, se li ne volas malsatmorti, devas pre-nadi de frua mateno giŝ malfrua vespero de sur la tero?!
-
-
-FABLOJ KAJ AFORISMOJ
+—Vi pravas, frato, — respondas post longa, profunda suspiro la Perdriko. — Vera birdo vivas fakte sur siaj flugiloj, kaj samprave estas, ke la flugado faras birdon birdo. Sed kiam kaj kiel flugu en la alton birdo, ajne li kapablus kaj ajne li ankaŭ volus, kiu siajn ĉiutagajn manĝerojn malgrasajn, se li ne volas malsatmorti, devas pre-nadi de frua mateno giŝ malfrua vespero de sur la tero?!
 
 
 La Nova Azeno
@@ -3020,9 +2576,6 @@ La Azeno akceptis sian novan kunulon kun desupre-ma fido, kaj certigante lin pri
 —Tamen vi ne timu min, vin mi ne mistraktos; eĉ, se vi bone kondutos, kun la tempo ankaŭ vi povos fariĝi, kio mi estas, ĉar sub mi vi ellernos tion!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Sed kiam li rimarkis, ke la Leono ignoras liajn fanfaronaĵojn, turniĝis kontraŭ li, kaj en sia senpova furiozo piedbatis la ankaŭ sen tio humiligitan Reĝon.
 
 En ĉi tiu momentos enpaŝis ilia mastro, por jungi ilin.
@@ -3039,12 +2592,7 @@ Azenoj! Atentu, neniam oni povas scii, ĉu ne troviĝas Leono inter vi! …
 
 Populareco
 
-—Kiel volas akiri al si popularecon ĉi tiu Alaŭdo, — diras la Kukolo al la Turdo, — kiam li kantas ĉiam nur super la samaj terbuloj kelkaj, de tie li sin neniam for-movas! Tiel ja restos lia voĉo vorto krianta en la dezer-136
-
-FABLOJ KAJ AFORISMOJ
-
-
-to. Kiu lin aŭskultu ĉi tie? Kiu kunportu lian famon?! Mi daŭre vagadas, sed min oni ankaŭ konas ĉie! Apenaŭ mi ekvoĉas, oni tuj recitas mian kanton!
+—Kiel volas akiri al si popularecon ĉi tiu Alaŭdo, — diras la Kukolo al la Turdo, — kiam li kantas ĉiam nur super la samaj terbuloj kelkaj, de tie li sin neniam for-movas! Tiel ja restos lia voĉo vorto krianta en la dezerto. Kiu lin aŭskultu ĉi tie? Kiu kunportu lian famon?! Mi daŭre vagadas, sed min oni ankaŭ konas ĉie! Apenaŭ mi ekvoĉas, oni tuj recitas mian kanton!
 
 —Tio povas esti vero, kamarado; sed vera artisto strebas ne al pita populareco, sed al kreo de artverko, kaj al
 
@@ -3056,11 +2604,7 @@ La Papilio kun foruzitaj flugiloj Iun malfruprintempan matenon flugsidiĝis la F
 
 — Al vi, papilioj vere ne konvenas la malgajo. Pri vi la mondo kredas, ke via vivo estas nuraj gajeco kaj folaj petoloj!
 
-—Kial mi ne malgajus, malĝojus, — respondis silente la Papilio. — Kiam printempe mi traŝvebis juna, en mia bela, bunta mantelo super la kamparo, ĉiu floro kap-signis, vokadis, etendis sian kalikon al mi; kaj se mi sidi-
-
-ĝis, li regalis min per mielo. Sed nun, ke mi foruziĝis, maljuniĝis, neniu atentas min; apenaŭ oni trovas mielon 137
-
-FABLOJ KAJ AFORISMOJ
+—Kial mi ne malgajus, malĝojus, — respondis silente la Papilio. — Kiam printempe mi traŝvebis juna, en mia bela, bunta mantelo super la kamparo, ĉiu floro kap-signis, vokadis, etendis sian kalikon al mi; kaj se mi sidiĝis, li regalis min per mielo. Sed nun, ke mi foruziĝis, maljuniĝis, neniu atentas min; apenaŭ oni trovas mielon
 
 
 por vegeti, eĉ, ne unu floro fermas sian kalikon antaŭ mi!
@@ -3077,9 +2621,7 @@ Se iu reganto povis gastigi lin, tiu estis feliĉa kune kun sia tuta popolo. Dem
 
 Unufoje oni aranĝis ĉasadon, alifoje militajn ludojn honore al li.
 
-Tamen nenio tre bona daŭras longe. Iufoje la popolo 138
-
-FABLOJ KAJ AFORISMOJ
+Tamen nenio tre bona daŭras longe. Iufoje la popolo
 
 
 forpelis Demetrion Ian, la imperiestron de imperiestroj, kaj li devis senhejme kaŝvagadi, fuĝi.
@@ -3095,9 +2637,6 @@ Sed tiu, vidante la forlasitecon, senarmecon kaj precipe la senpoviĝon de sia i
 —Mi konas lian moŝton Demetrio Ia, la imperiestron de imperiestroj, li ankaŭ estas mia bona amiko, sed vi ne estas tio! Kie estas viaj distingoj, la sceptro, kaj kie la krono? Forportu vin, mizera trompisto, ĉar mi igos vin kapti kaj tiel tradraŝi, ke vi eterne primemoros!
 
 Kaj li ne havis pli da fortuno ankaŭ sur la sojloj de siaj ceteraj kunimperiestroj. ĉiu pretendis vidi la sceptron kaj la kronon. Kaj eĉ unu ne troviĝis, kiu demandus en lia forlasiteco, senhelpeco pri lia sorto …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La ŝlosilo de la situacio
@@ -3121,9 +2660,6 @@ Kiam ili disiĝis, la premiato subite returnis sin, kaj postkriis la riproĉaton
 —Ha-lo! Mi nur volis ankoraŭ diri: apud la proponoj mi kunsendas ĉiam ankaŭ grasan anseron aŭ porkidon!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Musoj
 
 La Muso ekvidas Bovon paŝtiĝi sur la kampo.
@@ -3140,9 +2676,7 @@ Blindaj formikoj*
 
 Dum portado de kulgambo la Formiko puŝiĝas kontraŭ la Grilon dormetantan antaŭ sia domo.
 
-—ĉi vi blindas, — ekgrumblas ĉi tiu, — ke vi kontraŭ-
-
-venas min kun tiu granda ”ŝ”!?
+—ĉi vi blindas, — ekgrumblas ĉi tiu, — ke vi kontraŭvenas min kun tiu granda ”ŝ”!?
 
 —Pardonu min, mi ne volis; sed ni, formikoj estas vere blindaj, kaj fojfoje okazas kun ni, ke kontraŭvole …
 
@@ -3155,9 +2689,6 @@ Nu, se fakte tiel estas, mi kompatas vin. Sufiĉe ĉagrene estas, ke iu tiom lab
 Ankaŭ sen okuloj ni venas ĉien, kien ni volas. Cetere por
 
 * Almenaŭ la popolo kredas ilin blindaj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 tiuj, kies sorto estas la eterna servutado, plej bone estas, se ili samtempe estas ankaŭ blindaj: ili almenaŭ sopiras nenien; ne ekdeziras ion por ili neatingeblan, kaj tiel ili havas tempon sufiĉe labori por siaj ŝatataj mastroj.
@@ -3176,12 +2707,7 @@ En silenta horo de somera posttagmezo, kiam la doma-noj forestas, la Piedoj de l
 
 — sed kion fari kontraŭ ĝi?
 
-—Ne forgesu, — neatendite interrompas la konversacion la Tabloplato, — ke tiel hazarde, kiel vi fariĝis ta-blopiedoj, vi povus resti ankaŭ simpla brulligno, kaj tiam oni jam delonge bakus vualkukojn super viaj mal-142
-
-FABLOJ KAJ AFORISMOJ
-
-
-grasaj cindroj, sed povus esti ankaŭ, ke oni varmigus nur porkonutron per viaj mizeraj restaĵoj. Oni devas rigardi ne nur supren, sed ankaŭ suben!
+—Ne forgesu, — neatendite interrompas la konversacion la Tabloplato, — ke tiel hazarde, kiel vi fariĝis ta-blopiedoj, vi povus resti ankaŭ simpla brulligno, kaj tiam oni jam delonge bakus vualkukojn super viaj malgrasaj cindroj, sed povus esti ankaŭ, ke oni varmigus nur porkonutron per viaj mizeraj restaĵoj. Oni devas rigardi ne nur supren, sed ankaŭ suben!
 
 Plugiloj
 
@@ -3192,9 +2718,6 @@ Li ankaŭ faris tion. Sed malgraŭ ĉiuj klopodoj la Violo restis finrezulte ank
 Kiam ĝuste la kvinan fojon li pretigis sin, replugi la herbejon, por ke tiel estu, kiel li volas, ekparolis super li la Alaŭdo dirante:
 
 —Bela estas via intenco, bonema Plugilo, kaj vi ankaŭ pravas. Sed dum la Suno favoras al la Karduoj, vane vi plugas la teron eĉ centfoje. ĉi tie vi bezonas reglamenti la Sunon, se vi volas juston!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kuloj kaj Bovoj
@@ -3211,12 +2734,7 @@ Printempiĝis. La Paseroj jam tre volus konstrui neston, sed kie? Ili traserĉis
 
 —Ke ĝi estas ĝustaloke, ankaŭ preta kaj malplena, estas certe, — agnoskis ankaŭ Patrino Pasero, — tamen
 
-ĝi apartenas …al la Hirundo, — ŝi reĉirpis. — Kun kia rajto ni povus okupi tion, kion konstruis ili al si, por kio ŝvitis ili? Bonintenca birdo mem konstruas al si neston, kaj ni scias: tiu lito estas la plej mola, kiun ni mem pre-144
-
-FABLOJ KAJ AFORISMOJ
-
-
-paras por ni mem. Cetere, peke akirita ne estas profita.
+ĝi apartenas …al la Hirundo, — ŝi reĉirpis. — Kun kia rajto ni povus okupi tion, kion konstruis ili al si, por kio ŝvitis ili? Bonintenca birdo mem konstruas al si neston, kaj ni scias: tiu lito estas la plej mola, kiun ni mem preparas por ni mem. Cetere, peke akirita ne estas profita.
 
 Kaj kiel la homoj opinius pri tio …
 
@@ -3232,9 +2750,7 @@ La Paserido elkovita en la hirunda nesto aŭskultis longe, senvorte la instruojn
 
 —Diru, patrino, se kaj Krispo, kaj ŝpico estas hundoj, kial estas Krispo ĉenita apud la manĝujo al la porkejo, dum ŝpico rajtas libere kuradi, povas suprensalti ankaŭ en la sinon de sia mastro, eĉ li rajtas manĝi el ties telero. Krispo ja gardas la vivon kaj la havaĵon de sia mastro, kaj ŝpico nur lekadas liajn manojn …
 
-—Certe ja, estas tiel; sed por ke vi komprenu tion, oni 145
-
-FABLOJ KAJ AFORISMOJ
+—Certe ja, estas tiel; sed por ke vi komprenu tion, oni
 
 
 devus paroli ne pri la hundoj, sed pri la Homoj; kaj kiel mi diris, ne valoras fari tion.
@@ -3253,9 +2769,7 @@ Tiel parolis la por sia vivo luktanta, kompatinda Fu-raĝmaizo al la brustokreve
 
 —Kiel povus esti la mizera Furaĝmaizo ne frato, sed eĉ nur malproksima parenco de la nobla Maizo? Kia stulta ideo estas tio?!
 
-—Jes ja! — insistis la magra Furaĝmaizo. — Ni ambaŭ devenas el la sama gento, kaj vi estas pli granda, bela, elstara, ĉar vi staras sola, aparte, en pli granda spaco; vi havas pli grandan grundon, de kie vi povas abunde nutri 146
-
-FABLOJ KAJ AFORISMOJ
+—Jes ja! — insistis la magra Furaĝmaizo. — Ni ambaŭ devenas el la sama gento, kaj vi estas pli granda, bela, elstara, ĉar vi staras sola, aparte, en pli granda spaco; vi havas pli grandan grundon, de kie vi povas abunde nutri
 
 
 viajn radikojn; la suno, aero pli bone atingas vin; krome vi estas ankaŭ plurfoje prisarkata. Jes ja, ni do estas fratoj, kaj se oni certigus al mi viveblojn, per kiuj vi estas provizita; se al mi oni donus tiel grandan grundon, tiom da aero, tiom da suno, kaj se min oni flegus-sarkus tiel, kiel vin: eble mi kreskigus pli dikan spadikon, pli sveltan tigon, ol vi! Sed neniel mi forgesus la genton, el kiu mi elkreskis, kaj malfavore al kiu mi ĝuas pli bonan lokon, pli bonan traktadon!
@@ -3271,9 +2785,6 @@ La rimarko de la Ditisko
 —Kaj la Hundo estas ĝuste bastoninde mallaborema bestaĉo, — rekomencas post longa tempo ankaŭ Tria Dika Rano. — Kiel longege li skrapadas ĉe tiu unusola aĉa zizelejo. Mi jam fosus ĉe la kvara lialoke.
 
 —Vi nur silentu pri freŝeco kaj laboremo, nenifaruloj!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 — interrompis neatendite ilian babiladon la Ditisko. —
@@ -3299,14 +2810,9 @@ ke la homoj jam nenion tenas en siaj manĝkameroj.
 —Ej, sinjoroj, la problemo kuŝas ne tie! La problemo kuŝas tie, ke la homoj jam eĉ sangon ne havas, sed anstataŭe ŝima brasika suko fluas en iliaj vejnoj! — diras la Cimo …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Elefantoj de Eŭropo
 
-—Kien, frato? — alkrias maldika voĉeto la Elefanton ve-nintan por retrovi siajn samrasanojn migrintajn en Eŭ-
-
-ropon. — Kion vi serĉas ĉi tie, rande de l’ mondo?
+—Kien, frato? — alkrias maldika voĉeto la Elefanton ve-nintan por retrovi siajn samrasanojn migrintajn en Eŭropon. — Kion vi serĉas ĉi tie, rande de l’ mondo?
 
 Surprizite ĉirkaŭrigardis la Elefanto, sed neniun li vidis.
 
@@ -3325,9 +2831,6 @@ Poste li diris:
 —Fakto estas fakto, vi grizas, kiel mi grizas … ankaŭ viaj kapoj, oreloj iom similas, mi ne neas; sed faktas an-kaŭ, ke la Elefantoj, eĉ se ili devus eble iom komprimi sin,kutimas havi rostrojn, kiujn ĉe vi neniel mi vidas?!
 
 —Ho, — respondis tiuj nun jam ˛ore, — ni ja ne mal-havas niajn rostrojn, sed ĉar pro la malbonaj ekonomiaj cirkonstancoj ankaŭ rostroj ne necesas, se ni ja ricevas ion, ni ricevas tion por la svingado de niaj vostoj, ni pendigis ilin surdorsen.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Je tio la dokta Elefanto tre ekmiris, kaj li jam faris nur unu demandon:
@@ -3352,12 +2855,7 @@ Silento …
 
 Denova longa silento!
 
-—Meditu nur, via moŝto, mi ne ĝenos vin, — vortga-150
-
-FABLOJ KAJ AFORISMOJ
-
-
-lopas fine la Garolo, kaj haste pluflugas, por ke la Aglo hazarde ne restigu lin por ekloĝi. Apenaŭ li atendis elveni el la senfina ĉeno de rokoj, por laŭplaĉe satkrii.
+—Meditu nur, via moŝto, mi ne ĝenos vin, — vortgalopas fine la Garolo, kaj haste pluflugas, por ke la Aglo hazarde ne restigu lin por ekloĝi. Apenaŭ li atendis elveni el la senfina ĉeno de rokoj, por laŭplaĉe satkrii.
 
 La soleco konvenas ne al Garoloj, sed al Agloj!
 
@@ -3371,14 +2869,9 @@ Alie oni devus ja ĉesigi ĉiun agadon en la mondo. ĉar ĉiam troviĝos, kiuj s
 
 Sunfloroj
 
-Rosoplenan matenon de belega somero, kiam la bur-
-
-ĝonoj de la Junaj Sunfloroj ĝuste disfaltiĝis, instruas la Maljuna Sunfloro siajn filojn:
+Rosoplenan matenon de belega somero, kiam la burĝonoj de la Junaj Sunfloroj ĝuste disfaltiĝis, instruas la Maljuna Sunfloro siajn filojn:
 
 —Vi scias, ke ni sunfloroj, kiel ankaŭ nia nomo indikas, turnas nin ĉiam al la Suno. La sunfloroj estas tiu famekonata florgento, kiu sola kapablas eĉ taglonge kontraŭrigardi la Brilantan Sunon sen palpebrumeto.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Tio estas cetere ankaŭ nia familia tradicio. Mi esperas, vi volas esti indaj je viaj gloraj prauloj, kaj ankaŭ vi ku-raĝe alfrontos la Brilantan Sunon, kiam ĝi leviĝos.
@@ -3399,9 +2892,7 @@ La Juna Sunfloro flustris tion al siaj fratoj, je kio ili ĉiuj retrorigardis, k
 
 Koncerne tion la Junaj Sunfloroj faris demandon al la Maljuna Sunfloro, kiu tiel respondis al ili:
 
-—Nu jes. Pro la subita leviĝo de la Suno matene mi ne povis finparoli. ĉar kvankam estante Sunfloroj kaj laŭ niaj praaj tradicioj ni devas, respektive devus turni nin 152
-
-FABLOJ KAJ AFORISMOJ
+—Nu jes. Pro la subita leviĝo de la Suno matene mi ne povis finparoli. ĉar kvankam estante Sunfloroj kaj laŭ niaj praaj tradicioj ni devas, respektive devus turni nin
 
 
 al la ĉiama Suno, sed laŭ la sperto — kaj tion ankaŭ vi ne forgesu tradicii al viaj gefiloj — se iu jam transiris sian zeniton, estu tiu eĉ la Brilanta Suno mem, ligi nian sorton al tiu ne valoras, kaj plej laŭcele estas jam atenti, atendi, eĉ serĉi la Novan Sunon kaj turni la rigardon al li; kompreneble ankaŭ ĉi-foje nur ĝis lia zenito. Kaj tiel plu, kaj tiel plu!
@@ -3427,9 +2918,6 @@ diradis aliaj, — ke tiutempe, kiel ankaŭ la kanto scias,
 Kaj tiel nur malmultaj vivuis al ŝi, kaj apenaŭ iu klinis la kapon antaŭ ŝi.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Nun sekvis la Violo.
 
 Modeste ankaŭ ŝi laŭiris la vicon. Kun siaj grandaj okuloj bluaj ŝi milde ridetis al siaj kunfloroj, ŝia odoro ĉarmis ĉiujn.
@@ -3446,12 +2934,7 @@ Li estis je kapoj pli alta, ol ŝiaj kunulinoj, de la supro de ŝia grandega tru
 
 —Jes … jes, nedubeble, potenca estas ĉi tiu Sunfloro, ja certe. Sed al pli granda amplekso apartenas ankaŭ pli da ombro … kaj krome la granda staturo ne estas nepre la signo de grandeco; ni jam vidis nanajn animojn en grandaj korpoj, — alparolis pluraj. — Kaj kial turni kaj tordi la vorton, ni rimarkis, ke la Sunfloro ne unufoje ja transokulumadis super niaj kapoj al la najbara ĝardeno!
 
-Sed reĝino ja devas okupiĝi pri la propra, ne pri la naj-154
-
-FABLOJ KAJ AFORISMOJ
-
-
-bara lando! — diradis triaj, kaj multaj denove restis starantaj.
+Sed reĝino ja devas okupiĝi pri la propra, ne pri la najbara lando! — diradis triaj, kaj multaj denove restis starantaj.
 
 Kaj tiel okazis re kaj re kun ĉiuj floroj. ĉiun konis iu, pri ĉiu iu sciis ion el inter ili.
 
@@ -3468,16 +2951,11 @@ Junkokinoj, Kokinoj
 —Nu aŭdu, — ekparolas ofendite la Junkokino, — mi preparas min meti ovojn, kaj mi ne kluku? Kaj krome hoho, kaldrono ridas pri poto, kaj mem estas kota … vi ja mem klukas, eĉ ne malmulte! … Aŭ kio estas permesita al vi, al mi ne?
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Jes ja! — replikas la Maljuna Kokino, — kion mi rajtas, rajtas ankaŭ vi. Kaj same veras, ke nun ankaŭ mi klukas, sed mi jam estas metinta ovojn!
 
 Rekono, Morto
 
-Sur la polvoplena landvojo de la vivo, fore antaŭe mar-
-
-ŝas, marŝadas la Homo. Li ĉiam iras … iradas malgraŭ-
+Sur la polvoplena landvojo de la vivo, fore antaŭe marŝas, marŝadas la Homo. Li ĉiam iras … iradas malgraŭ-
 
 vole al sia tombo.
 
@@ -3494,9 +2972,6 @@ Entuziasmuloj
 —Ej, ej Krispo, vi nun jam eĉ ne bojas! Ankaŭ la ŝtelis-ton enrompantan vi maksimume nur mordas. Kiel multe vi bojis siatempe! Ni ĉiuj povis dormi trankvile, ankaŭ anstataŭ ni vi gardis la vilaĝon, — diras la najbara Ereto al Krispo.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Nu jes, amiko, — replikas Krispo, — tiam mi ankoraŭ estis entuziasmulo. Mi kredis, ke se mi jam estas hundo, kapabla boji kaj vidi ankaŭ en mallumo, mi devas gardi la tutan mondon. Sed nun, dank’ al Dio, mi estas trans tio. Vi instruis min, ke sufiĉas atenti la propran pordon, kaj ĉefe leki la manon de la mastro, kiam eblas, sed ĉiukaze ĉeesti la elĵetadon de ostoj, ĉar alie ankaŭ ilin la gvatemaj Najbaraj Hundoj akaparos, kaj al ni, Entuziasmuloj restos nur la vigla gardado de la valoroj de la vilaĝo — kaj de niaj propraj ostoj klakantaj! …
 
 Azenoj sur la ŝtupetaro
@@ -3508,18 +2983,13 @@ Azenoj sur la ŝtupetaro
 —Vi certe pravas, — reparolas la ĉevalido, — ĉar li estas potenca ekzemplero, kaj fakte li atingis tre supren.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Sed ĉu li ne estas eble nur somnambulo? ĉu mi ne pr-ikriu lin?
 
 —Eĉ unusolan vorton ne diru al li, kara filo, — konsilis tiam decide la ĉevalino, — ĉar iel ajn venas supren la azenoj, supre oni titolas ilin alimaniere, kaj eble vi ofen-dus lin! …
 
 Saĝa Maljuna Gruo
 
-Estis aŭtuno. La gruoj pasis alte, kaj marŝprete jam aran-
-
-ĝis sin V-forme, nur direkton ili ankoraŭ ne prenis …
+Estis aŭtuno. La gruoj pasis alte, kaj marŝprete jam aranĝis sin V-forme, nur direkton ili ankoraŭ ne prenis …
 
 La Junaj Gruoj, konante bone la malnovan fabelon pri la ”Juna Gruo”, eĉ hazarde ne venis al la pinto, kaj estis profunde konvinkitaj, ke ili kondutas tre laŭaĝe kaj dece.
 
@@ -3529,9 +2999,7 @@ Des pli ili miris, kiam la Maljuna Gruo de la formacio neatendite, kun sonora vo
 
 ĝisnunaj instruoj, praktiko kaj kutimoj vi sendas ĝuste la junulojn al la pinto? ĉu vi do forgesis la historion pri la Juna Gruo?!
 
-—Tio estis antaŭ longe! — replikis decideme, kun vasta flugilgesto la Maljuna Gruo. — ĉu ni ne malfruadis sufiĉe pro niaj malnoviĝintaj, malbonaj principoj? ĉu ni ne postrestis ankaŭ sen tio sufiĉe de la mondo? Kaj kiel 158
-
-FABLOJ KAJ AFORISMOJ
+—Tio estis antaŭ longe! — replikis decideme, kun vasta flugilgesto la Maljuna Gruo. — ĉu ni ne malfruadis sufiĉe pro niaj malnoviĝintaj, malbonaj principoj? ĉu ni ne postrestis ankaŭ sen tio sufiĉe de la mondo? Kaj kiel
 
 
 ajn estis ĝis nun, la nova epoko, en kiun ni enpaŝis, postulas novajn principojn kaj novajn gvidantojn. En angulon do kun la tromeritiĝintaj malnovaj ”fabeloj” kaj ankoraŭ pli malnovaj ”gruoj niaj”. ĉar cetere ni ne nur postrestos, sed ankaŭ perdiĝos!! — murmuris kun firma rigardo la saĝa Maljuna Gruo, kaj refoje, pli sonore li vokis:
@@ -3544,12 +3012,7 @@ Azeno kaj azeno
 
 —Tio estas ĉe ni, azenoj certe rasa karakterizo, — sonas la respondo. — Eble ni mem nenion faris por tio …
 
-Sed de tie originas certe, — li daŭrigas aludante al la ka-
-
-ŝata intenco de la juna kandidato, — ke la plimulto de la azenoj ankaŭ imagas sin naskita gvidanto, kaj estas malfeliĉa, se oni ne tuj deflankiĝas el lia vojo. Kvankam azeno kaj azeno: ne samas ja!! …
-
-
-FABLOJ KAJ AFORISMOJ
+Sed de tie originas certe, — li daŭrigas aludante al la kaŝata intenco de la juna kandidato, — ke la plimulto de la azenoj ankaŭ imagas sin naskita gvidanto, kaj estas malfeliĉa, se oni ne tuj deflankiĝas el lia vojo. Kvankam azeno kaj azeno: ne samas ja!! …
 
 
 Nova senco de la fabloj
@@ -3569,9 +3032,6 @@ Post iom da tempo li turnis sin al iu mastro laŭŝajne plej inteligenta mastrum
 … por tiel diri … ĉu Vento, ĉu Suno, nuntempe jam ĉiu tiraĉas la mantelon de malriĉulo! …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kiu estas najtingalo kaj kiu pasero La Junan Poplon, konantan la birdojn nur el onidiroj, precipe du birdoj interesis, kiujn komparatajn unu kun la aliaj li ofte aŭdis menciadi.
 
 Li ankaŭ petis la proksime starantajn maljunajn arbojn, ke ĉe okazo ili montru al li, kiu estas la najtingalo kaj kiu la pasero.
@@ -3585,9 +3045,6 @@ Li ankaŭ petis la proksime starantajn maljunajn arbojn, ke ĉe okazo ili montru
 La vanta Gruo
 
 —Klak, klak! — kriadis la V-forme ariĝintaj Gruoj, kaj levinte sin en la alton, ili prenis direkton super la aŭtu-na pejzaĝo.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La zorgema Gvidanto gvatadis malantaŭen, kaj rimarkis, ke iu Juna Gruo tre postrestis.
@@ -3611,9 +3068,6 @@ Dum hejmeniro el popolkunveno sidiĝis la Kokino, la Anaso kaj la Ansero sub arb
 —Tamen mi opinias, ke la Alaŭdo pli elokventis, ol li.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La parolo de ĉi tiu estus kvazaŭ pli arda, pli flama! —
 
 diras la Anaso.
@@ -3632,9 +3086,7 @@ Kvazaŭ la malnova kolero ankoraŭ pluardus sub la cindroj de ilia reciproka dep
 
 Nun ili venas kun la sterkoplena ĉaro al kampovojo, kie la bienservisto haltigas ilin, kaj demetas la jugon de iliaj penŝaŭmaj koloj, sed li ŝnurligas iliajn piedojn, por povi starigi ilin sur stoplejon: ”liberan” paŝtejon.
 
-—Diru do, Fajro, — ekparolas tirvoĉe Ardo, — kiel liberaj virbovoj de libera grego ni ne povus pli frue paŝti 163
-
-FABLOJ KAJ AFORISMOJ
+—Diru do, Fajro, — ekparolas tirvoĉe Ardo, — kiel liberaj virbovoj de libera grego ni ne povus pli frue paŝti
 
 
 nin en tia paco unu apud la alia? ĉu por tiu ĉi paco ni devis fariĝi eksvirbovoj, porti pezan jugon, esti ligitaj per piedŝnuro? (Feliĉe, nia pokilograma dismezurado ankoraŭ al neniu enkapiĝis!)
@@ -3649,9 +3101,7 @@ Portulaketo
 
 Leciono de la Horloĝo
 
-La Horloĝo ĉe la ĝardena alo de la kastelo, al kiu la laboristoj orientis sin dum irado-venado, observis, ke la 164
-
-FABLOJ KAJ AFORISMOJ
+La Horloĝo ĉe la ĝardena alo de la kastelo, al kiu la laboristoj orientis sin dum irado-venado, observis, ke la
 
 
 tagdungitoj laboras nur, se la mastro superrigardas ilin, sed tuj, kiam li deturnas la okulojn, ili nur staradas, babilas kaj fumas siajn pipojn.
@@ -3677,9 +3127,6 @@ La ĝeneralan miron interrompis la Horloĝo, dirante:
 —Nenia miraklo okazis ĉi tie, sinjoro Mastro, kaj an-kaŭ difektita mi ne estas, dank’ al Dio. Mi nur scivolis, kion pensus ĉi tiuj bravaj laboristoj viaj pri tio, se iu ple-numus sian devon al ili samtiel, kiel ili al vi, — laborante nur, kiam ili estas sub la rigardo de la mastro.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Helikaj saĝuloj
 
 Iun belan majan matenon la Heliko la unuan fojon elmetas siajn butonhavajn kornetojn, sur kiuj li havas la okulojn, kaj mire-admire algapas la kreitan mondon.
@@ -3688,9 +3135,7 @@ Iun belan majan matenon la Heliko la unuan fojon elmetas siajn butonhavajn korne
 
 Sed pli malfrue li rimarkis, ke troviĝas ankaŭ bestoj, kiuj nur: ”hop-hop, mi iras, kie mi deziras”, facile flugadas en la frondaroj de la potencaj arboj. Kaj pro elreviĝo li erupciis:
 
-—Tamen nur mizera afero estas ĉi tiu konfuza mondo! Kaj iu ajn estis, kiu kreis ĝin, li devis esti granda fuŝ-
-
-ulo!
+—Tamen nur mizera afero estas ĉi tiu konfuza mondo! Kaj iu ajn estis, kiu kreis ĝin, li devis esti granda fuŝulo!
 
 Kun tio li malgaje plurampis.
 
@@ -3698,12 +3143,7 @@ La sekvan tagon la temperaturo sinkis, la Suno eĉ ne aperis, kaj unue vento, po
 
 La arbaro vekriis, la gigantaj arboj kliniĝadis, ĝemadis; ie, tie knare-krake ili frakasiĝis sub la teruraj batoj de la martelanta naturo. Kaj la malfeliĉaj birdetoj senespere fuĝadis tien-reen inter la arboj de la arbaro, sed nenie ili povis trovi rifuĝejon antaŭ la ŝtormo, tempesto, pluvo kaj hajlo. Iliaj nestetoj kuŝis deĵetitaj, disŝiritaj dise sur la tero.
 
-Sole la Heliko havis senŝtorman, senhajlan, pluvimu-166
-
-FABLOJ KAJ AFORISMOJ
-
-
-nan tegmenton super si en la tuta arbaro. Li nur haltis tie, kie la misvetero atingis lin, tiriĝis en sian dometon, kaj atendis en silenta trankvilo.
+Sole la Heliko havis senŝtorman, senhajlan, pluvimunan tegmenton super si en la tuta arbaro. Li nur haltis tie, kie la misvetero atingis lin, tiriĝis en sian dometon, kaj atendis en silenta trankvilo.
 
 Kiam la misvetero pasis, kaj povis denove disrigardi en la arbaro, kaj vidis, kio terura okazis, dum li trankvile dormetis en sia sekura dometo, li balancis la kapon kaj denove diris:
 
@@ -3714,9 +3154,6 @@ Telegrafaj Fostoj
 —Mi jam sidis sur tiel alta arbo, kiel vi estas, ankaŭ en la arbaro, — diras la Lanio al la Telegrafa Fosto; sed mi ne spertis, ke la Arboj tie interkroĉus sin, aŭ ke ili estus ligitaj per ia fadeno. Diru al mi, por kio servas, ke vi in-terligas vin per ĉi tiuj dratoj?
 
 —Nu ja, amiko, — respondis la Fosto, — estas facile al la Arbaro, liaj disbranĉiĝantaj arboj povas eĉ centmi-lope stari unu apud la alia sen ia ajn ligo; sed ni, kiuj tiel malmultope kaj tiel dise staras en la mondo, devas iel interkroĉi nin, se ni ne volas, ke tempestoj laŭkaprice mistraktu kaj terenĵetu nin!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Turhorloĝo
@@ -3735,12 +3172,7 @@ Griloj kaj formikoj
 
 Konekse kun la ĉionrenversaj ŝanĝoj de la mondmilito Formikio kaj Grilio iel aŭ tiel fariĝis denove najbaroj.
 
-La modernaj gvidantoj de la novaj samlimanoj ĉiupre-168
-
-FABLOJ KAJ AFORISMOJ
-
-
-ze volis starigi anstataŭ la malnova malamika stato, reganta inter la du mondhistorie signifaj popoloj ekde tiu certa, fabeleca, vintra prunto la benindan staton de la amikeco, tial ili interkonsentis, reciproke enhejmigi ĉe si la virtojn de la alia popolo.
+La modernaj gvidantoj de la novaj samlimanoj ĉiupreze volis starigi anstataŭ la malnova malamika stato, reganta inter la du mondhistorie signifaj popoloj ekde tiu certa, fabeleca, vintra prunto la benindan staton de la amikeco, tial ili interkonsentis, reciproke enhejmigi ĉe si la virtojn de la alia popolo.
 
 —Kiel bela estus, — diris la entuziasmaj planantoj, —
 
@@ -3756,21 +3188,13 @@ Kaj tiel okazis. Pli precize …
 
 Sed ni tenu ordon, ni iru laŭvice …
 
-I.
 
-En Formiklando komencis la Grilkomitato per la plej bonaj koncertfortoj. La alkomandita popolo aperis en ordo, finaŭskultis la klopodantajn sonigistojn, eĉ fojfoje aplaŭ-
-
-dis al ili. Sed kiam oni demandis, kiu anoncas sin, por ellerni ĉi tiun esencan faktoron de la kulturo, la muzikon, nek permone, nek admone oni povis kapti eĉ unu.
+En Formiklando komencis la Grilkomitato per la plej bonaj koncertfortoj. La alkomandita popolo aperis en ordo, finaŭskultis la klopodantajn sonigistojn, eĉ fojfoje aplaŭdis al ili. Sed kiam oni demandis, kiu anoncas sin, por ellerni ĉi tiun esencan faktoron de la kulturo, la muzikon, nek permone, nek admone oni povis kapti eĉ unu.
 
 ĉiuj diskuris, kiel kokidoj, kiam akcipitro flugĵetiĝas inter ilin.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
-Nur la ministro de Formikio sukcesis pene kapti fuĝ-
-
-antan maljunan, laman formikon, de kiu li povis demandi: kio estas la kaŭzo de tio, ke la formikoj tiel panikeme fuĝas de la cetere kun plezuro aŭskultita muziko, kiam temas pri ties eventuala ellerno.
+Nur la ministro de Formikio sukcesis pene kapti fuĝantan maljunan, laman formikon, de kiu li povis demandi: kio estas la kaŭzo de tio, ke la formikoj tiel panikeme fuĝas de la cetere kun plezuro aŭskultita muziko, kiam temas pri ties eventuala ellerno.
 
 La maljuna formiko traŝvitiĝis pro tia malfacila demando, sed fine li ekparolis:
 
@@ -3778,14 +3202,10 @@ La maljuna formiko traŝvitiĝis pro tia malfacila demando, sed fine li ekparoli
 
 Kaj li jam rapidis for.
 
-II.
 
 Ne pli sukcese agadis ankaŭ la Formikkomitato en Grilio! …
 
 Ja ne mirinde. Ni ja scias, ke la Grilo naskiĝas kune kun sia violono, ĝi kvazaŭ enkreskas en liajn manojn, do tial estas memkompreneble, ke la laboro ne tro akomo-diĝas en ilin …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Krome la ŝparemo neniam estis la korafero de kantoŝata, bohemia popolo!
@@ -3804,9 +3224,7 @@ La saĝa Talpo
 
 —Ereta amaseto estas ĉi tiu via verko, baptano, — diras moke la Monto al la ĉe siaj piedoj senlace fervoranta Talpo, — neniam fariĝos el ĝi vera monto …
 
-—Tio estas vera, — respondas post ioma pripenso la 171
-
-FABLOJ KAJ AFORISMOJ
+—Tio estas vera, — respondas post ioma pripenso la
 
 
 Talpo, — sed oni atendas montojn ne de Talpoj; mi mem pensas: sufiĉas, se la Talpoj faras honeste taŭgajn talpmontetojn, kaj fari montojn ili konfidas al tiu, kiu ankaŭ la aliajn montojn kreis!
@@ -3824,9 +3242,6 @@ Kaj ĉar lastatempe al ŝi ŝajnis sperti certan malesti-mon flanke de la aliaj 
 —Unue vi devas esti moda, — konsilis nun la Vulpo,
 
 — ĉar alie la sinjoroj nuntempaj maldeziras vin inter si.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Do iom da krispoj kaj laŭeble plej malmulta vestaĵo. Kio cetere tre praktika estas.
@@ -3851,12 +3266,7 @@ Fine apenaŭ restis plumetoj ie kaj tie sur ŝi.
 
 La Vulpo bone vidis, ke nun jam ĉio estas en ordo, li do aperis, kaj kun laŭta, bonvolema voĉo diris:
 
-—Vere, fratino Korvino, pli frue mi forgesis diri: ne tro senplumigu vin, ĉar estus sensencaĵo forĵeti pro la var-173
-
-FABLOJ KAJ AFORISMOJ
-
-
-mo kaj modo tiom da plumoj, ke poste vi ne povu flugi pro tio. Vi eble ne faris tiun malsaĝaĵon? Mi vidu, ekflu-gu!
+—Vere, fratino Korvino, pli frue mi forgesis diri: ne tro senplumigu vin, ĉar estus sensencaĵo forĵeti pro la varmo kaj modo tiom da plumoj, ke poste vi ne povu flugi pro tio. Vi eble ne faris tiun malsaĝaĵon? Mi vidu, ekflu-gu!
 
 Kaj kvankam la nun jam Moda Korvino levis sin sur la flugiloj, sed dum minuteto ŝi falis sur la teron, kie la Vulpo jam atendis kun etenditaj brakoj.
 
@@ -3872,9 +3282,7 @@ Sed nur somere, kiam la Grilo ankoraŭ havis emon kanti, kaj liaj rigidiĝintaj 
 
 —Enlistigu lin la Insektoj, li ja estas finefike insekto, eĉ se li kantas, li ja eĉ plumojn ne havas, — opiniis la Birdoj.
 
-—Enlistigu lin la Birdoj, ja estante insekto li ĉiam iras 174
-
-FABLOJ KAJ AFORISMOJ
+—Enlistigu lin la Birdoj, ja estante insekto li ĉiam iras
 
 
 kun ili kaj senĉese kantas, — pensis kaj diris siaparte ankaŭ la Insektoj …
@@ -3893,12 +3301,7 @@ Pli nova kazo de la Vulpo kaj la Korvo Dum skoltado la Vulpo malkovris kaptilon 
 
 —Nazotikla delikataĵo, tutcerte, — li diras lekante la buŝon. — Kaj ankaŭ certas, ke mi pli ol necese malsatas; tamen ne estas tiel facile superruzi la Maljunan Vulpon!
 
-Li komencis cerbumi, kiamaniere li povus akiri la pro-175
-
-FABLOJ KAJ AFORISMOJ
-
-
-ponitan delikaĵon sen la kunligita danĝero, aŭ, se necese, malgraŭ ĝi.
+Li komencis cerbumi, kiamaniere li povus akiri la proponitan delikaĵon sen la kunligita danĝero, aŭ, se necese, malgraŭ ĝi.
 
 En ĉi tiu minuto flugsidiĝis la Korvo sur proksiman arbon.
 
@@ -3917,12 +3320,7 @@ La Korvo aŭdis ĉion ĉi, sed eĉ por la mondo li ne ekparolus, kiam li ekvidis
 Kaj kiam la Vulpo malaperis, li subeniĝis, kaj zorge observinte la belan pecon da fromaĝo kun superabun-da ĝojo li diris:
 
 
-—Hej, amiko Vulpo, nun ĉi-fojon unusolan ne vi su-perruzos la Korvon, sed li vin. ĉar fariĝos aero via espe-176
-
-FABLOJ KAJ AFORISMOJ
-
-
-ro, vidi ĉi tiun delikate odorantan, belan pecon da fromaĝo ĉe vespermanĝo! Jam ankaŭ ni ekhavis sufiĉan menson, Amiketo! … Decas al ni ne ĉiam nur restaĵo, sed ankaŭ kromaĵo, mi volas diri fromaĝo! Jes ja, amiketo! …
+—Hej, amiko Vulpo, nun ĉi-fojon unusolan ne vi su-perruzos la Korvon, sed li vin. ĉar fariĝos aero via espero, vidi ĉi tiun delikate odorantan, belan pecon da fromaĝo ĉe vespermanĝo! Jam ankaŭ ni ekhavis sufiĉan menson, Amiketo! … Decas al ni ne ĉiam nur restaĵo, sed ankaŭ kromaĵo, mi volas diri fromaĝo! Jes ja, amiketo! …
 
 Kaj kun tio li jam ekbekis la fromaĝon moke surhok-an, je kio la kaptilo prenis lin.
 
@@ -3932,18 +3330,11 @@ La Nova Kruĉo
 
 La Nova Kruĉo aŭdis de la Malnova Kruĉo, ke ”longe ĉerpas la kruĉo, ĝis ĝi fine rompiĝas”.
 
-—Nu mi volus vidi tiun puton, por kiu mi nur simple rompiĝus! Mi kredas, la tuto estas stulta popolkredo, superstiĉo; dependas ja de kruĉo! — diras la Nova Kru-
+—Nu mi volus vidi tiun puton, por kiu mi nur simple rompiĝus! Mi kredas, la tuto estas stulta popolkredo, superstiĉo; dependas ja de kruĉo! — diras la Nova Kruĉo, kaj tute neglektante tiajn onidirojn ankaŭ li komencis — eĉ nur spite — ĉerpadi el la puto!
 
-ĉo, kaj tute neglektante tiajn onidirojn ankaŭ li komencis — eĉ nur spite — ĉerpadi el la puto!
-
-En la unuaj tempoj li kompreneble tre atentis. Sed poste li ĉiam pli aŭdace turnis, returnis sin, eĉ li jam kura-
-
-ĝis frapiĝeti al la feraj partoj de la sitelo kaj putrando.
+En la unuaj tempoj li kompreneble tre atentis. Sed poste li ĉiam pli aŭdace turnis, returnis sin, eĉ li jam kuraĝis frapiĝeti al la feraj partoj de la sitelo kaj putrando.
 
 En tiaj kazoj la pecoj de la Rompitaj Kruĉoj, jam longe kuŝantaj ĉirkaŭ la puto, kunsente ekatentis.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Foje, ĉu iel aŭ tiel, ankaŭ la Nova Kruĉo rompiĝis, kaj liajn pecojn oni ĵetis al tiuj de la Malnovaj Kruĉoj …
@@ -3958,17 +3349,13 @@ Prunelujo
 
 —Ja mi faras tion ne por mi, — respondas la Prunelo.
 
-Mi scias, ke neniu serĉas miajn modestajn fruktojn. Sed ni havas devojn ankaŭ kontraŭ niaj kunfratoj! Kiuj de-fendus ekzemple la bonodoran, sed malfortan kaj sen-
-
-ŝirman Violeton, se mi ne etendus super ŝin miajn dor-noplenajn brakojn?!
+Mi scias, ke neniu serĉas miajn modestajn fruktojn. Sed ni havas devojn ankaŭ kontraŭ niaj kunfratoj! Kiuj de-fendus ekzemple la bonodoran, sed malfortan kaj senŝirman Violeton, se mi ne etendus super ŝin miajn dor-noplenajn brakojn?!
 
 Necesas, ke iu ŝirmu ankaŭ la senŝirmajn!
 
 Surbordaj Arboj
 
-Alveninte al la ebeno, la Rivereto torentinta libere el inter la montoj ne nur pasis pli malrapide pro la Arbustoj starantaj al li survoje, sed li deviĝis perdi tempon 178
-
-FABLOJ KAJ AFORISMOJ
+Alveninte al la ebeno, la Rivereto torentinta libere el inter la montoj ne nur pasis pli malrapide pro la Arbustoj starantaj al li survoje, sed li deviĝis perdi tempon
 
 
 ankaŭ por serpentumado. Krome la baldaŭ arbiĝontaj Arbustoj ĵetis ombron sur lian brilan surfacon!
@@ -3986,25 +3373,17 @@ diradas inter si la ĝardenrandaj junaj Migdalarboj, kiuj observis, ke la ĝarde
 —Bone, bone, — prenas sur sin la aludon unu el la inteligentaj Maljunaj Robinarboj, — vi ja pravas, ke certaj arboj ne kredas blinde al ĉiuj vagantaj ventetoj flate-maj, al la ĉirpado de iuj malprudentaj, trofrue alflugin-taj hirundoj kaj al ĉiaj tiel nomataj printempaj sunradie-toj, sed rekompence iliaj floroj neniam frostiĝas!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Formikoj
 
 —Vi, Formikoj estas vere grandaj stultuloj, — diras la Sciuro al la Formikoj rekonstruantaj sian detruitan domon, — vian per plursemajna, pena laboro apenaŭ kon-struitan fortikaĵon iu ĵus dispiedumis, kaj vi jam denove ĝnstruas. Ja ĉiumomente povas veni iu en ĉi tiu kruela mondo, kaj redetrui vian domon.
 
-—Tio estas pura vero, — respondis la Formikoj. — Sed se oni detruus niajn konstruaĵojn milfoje, ankaŭ milunu-afoje ni rekomencus konstrui ilin! ĉar per nia senlaca fervoro ne nur nian senpretendan hejmeton ni iam fine rekonstruos, sed samtempe starigos monumenton al la pacienco kaj vivivolo, sindisciplinado kaj ankaŭ fido, kiuj moralaj faktoroj fariĝos des pli imponaj, ju pli ofte ni devos rekomenci rekonstrui nian senpretendan loĝ-
-
-ejeton!
+—Tio estas pura vero, — respondis la Formikoj. — Sed se oni detruus niajn konstruaĵojn milfoje, ankaŭ milunu-afoje ni rekomencus konstrui ilin! ĉar per nia senlaca fervoro ne nur nian senpretendan hejmeton ni iam fine rekonstruos, sed samtempe starigos monumenton al la pacienco kaj vivivolo, sindisciplinado kaj ankaŭ fido, kiuj moralaj faktoroj fariĝos des pli imponaj, ju pli ofte ni devos rekomenci rekonstrui nian senpretendan loĝejeton!
 
 Lumserĉantoj
 
 —Diru al mi, Papilioj, — demandas ironie la Vesperto la Noktajn Papiliojn, — kial vi, estante noktaj papilioj flugadas dum vesperoj senĉese ĉirkaŭ la lampo!
 
 —Tial, — respondas tiuj pikeme, — ĉar ni ŝatas la lumon, ne tiel, kiel vi, estimata sinjoro Vesperto, kiu laŭ nia scio naŭziĝas de ĝi …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Nu ne tute, estas certe, ke mi ne ŝatas la lumon, sed se mi tiom ŝatus ĝin, kiom vi, mi simple flugadus tage, kiam estas vere hele. Tio estas: mi turnus min al la Suno, la Lumo de la mondo, kaj ne kontentiĝus pri iaj mizere palpebrumantaj lampetoj, en kies malforteta helo povas rebrili, plaĉigi sin maksimume mia nura bagateleco! …
@@ -4024,9 +3403,6 @@ ekparolis fiere la Arta Violo balancigante sin memplaĉe.
 —Viveterna vi povas esti, sed ne Violo! ĉar la Violon oni povas malfacile imagi sen modesteco kaj bonodoro, samkiel sen orgojlo kaj fanfaronado, memlaŭdado kaj altrudiĝemo, — la Artan Violon!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kverkoj kaj Fragujoj
 
 —Mia staturo estas potenca, mia trunko fortika, mia foliaro ampleksa, kaj aldone al ĉio ĉi la Kreinto benis min ankaŭ per bela aĝo miljara. Laŭmerite mi povas esti fiera, mi kredas, — kantis sinplaĉeme la Kverko.
@@ -4037,9 +3413,7 @@ Potenco kaj saĝo
 
 —Reĝa Moŝto, — plendas ofendite la juna Nizo al sia reĝa onklo, la Aglo, — ĉi tiu via interna sekreta konsilisto, la Maljuna Strigo ĝenerale apenaŭ resalutas min, kaj hodiaŭ eĉ la orelojn li ne movis al mi; estas plej tempe senigi lin je via favoro. ĉar finfine kio estas ĉi tiu Strigo?
 
-—Ne prenu tion por ofendo, filo, — respondis milde la Maljuna Reganto. — Ankaŭ min li ne ĉiam rimarkas; 182
-
-FABLOJ KAJ AFORISMOJ
+—Ne prenu tion por ofendo, filo, — respondis milde la Maljuna Reganto. — Ankaŭ min li ne ĉiam rimarkas;
 
 
 atribuu tion al lia maljunaĝa miopeco. Kiun ni bezonas, estas plej prudente antaŭsaluti. Kaj se mi senigus lin je mia favoro, mi damaĝus nur nin mem; li ja restus ankaŭ sen mia favoro la Saĝa Strigo; sed kiel mi povus esti tiel potenca sen liaj saĝaj konsiloj?
@@ -4050,9 +3424,7 @@ La Ranoj iris plendi al la Reĝo de la Bestoj.
 
 —La Kreinto estas maljusta al ni, — ili diras. — ĉar ankaŭ la Hirundoj kaptas nur muŝojn, kulojn, kaj al ili Li donis ankaŭ flugilojn …
 
-—Vi ne pravas! La Kreinto tre saĝe aranĝis ĉion, nur ni estas malkapablaj kompreni tion. Al vi ja venas la mu-
-
-ŝoj kaj kuloj surloken, kaj tiuj devas mem iri por ili! …
+—Vi ne pravas! La Kreinto tre saĝe aranĝis ĉion, nur ni estas malkapablaj kompreni tion. Al vi ja venas la muŝoj kaj kuloj surloken, kaj tiuj devas mem iri por ili! …
 
 La heredaĵo
 
@@ -4062,12 +3434,7 @@ Siajn gepatrojn ambaŭ priploris, enterigis, funebris laŭ deco kaj ordo. Kaj nu
 
 —Vi havas mizere bagatelan heredaĵon, kamarado, —
 
-diras kun kruda sincereco la Juna Muŝo al la Juna Ara-183
-
-FABLOJ KAJ AFORISMOJ
-
-
-neo: anguleton kaj metion de retteksado. Jen ĉio. Rigardu, mia patro postlasis al mi flugilojn, dank’ al kiuj la tuta mondo estas la mia!
+diras kun kruda sincereco la Juna Muŝo al la Juna Araneo: anguleton kaj metion de retteksado. Jen ĉio. Rigardu, mia patro postlasis al mi flugilojn, dank’ al kiuj la tuta mondo estas la mia!
 
 —Mi tamen ĝojas ankaŭ pri tiu bagatelo, — respondis modeste la Juna Araneo. — Ankaŭ miaj antaŭuloj ne havis pli, tamen ĉiuj grasaj kaj maljunaj ellasis la lastan spiron. Malsatmorti Araneon ankoraŭ neniu vidis. Dum la Muŝoj, al kiuj herediĝas la ”tuta mondo”, ne malofte ja finas sian vivon en fremdaj interfenestroj, — malsataj kaj pro sia aŭdaco en la reto de Araneoj! …
 
@@ -4081,9 +3448,7 @@ Foje la Vulpo, enviante la reputacion de la Azeno, iris viziti lin, por ruze elp
 
 Kaj tiu respondis:
 
-—Ni ĝenerale alte taksas la saĝecon. Kaj ni imagas ĝin ia tekse-plekte komplika, malfacila afero. Kvankam ĝi estas la plej simpla kaj komuna afero en la mondo. i estas nenio alia, ol la kompleta ekkono de ni mem, kaj 184
-
-FABLOJ KAJ AFORISMOJ
+—Ni ĝenerale alte taksas la saĝecon. Kaj ni imagas ĝin ia tekse-plekte komplika, malfacila afero. Kvankam ĝi estas la plej simpla kaj komuna afero en la mondo. i estas nenio alia, ol la kompleta ekkono de ni mem, kaj
 
 
 la perfekta realigo de la konkludoj el ĉi tiu ekkono ĉe ni mem. ĉar jen vidu, kiel la Ansero marŝas, kiel li tenas la kolon, vidiĝas, li kredas sin cigno. La Meleagro pavo, la Pavo ia transmonda estaĵo … Kaj tiel plu, kaj tiel plu, senfine …
@@ -4107,9 +3472,6 @@ Li observas, ke ensidiĝas viglaj, aferemaj homoj, kaj pli fore ili denove elkal
 Tiam li ekpensas:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Mi tien-reen transportadas ĉi tiun senpovan, mem ne movkapablan teron, eble pro tio, ĉar mi estas azeno.
 
 Sed kiel opinii pri la stultaj tirbestoj de tiu kvarĉevala kaleŝo, kiuj transportadas, — eĉ kvarope, — tiajn, kiuj havas siajn bonajn proprajn piedojn, kaj tiel ankaŭ ili mem povas iri, kien ili volas!
@@ -4125,9 +3487,6 @@ Per sia senlaca diligento la malriĉa Formiko akiris ne-grandan kapitalon, sed a
 —La ĉifona! … — diradis liaj malnovaj kaj modestaj kunuloj, kiujn li volis propradire helpi …
 
 Jen, se ni estas malgrandaj, eĉ bonon ni ne povas fari laŭplaĉe, sed nur tiel, kiel la socia ordo permesas!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La proverbo
@@ -4153,9 +3512,6 @@ Kaj tie supre li nur giris, giradis, kaj kantis, kantadis.
 Sed tiel bele, ke kaj la Bovo, kaj la Azeno preskaŭ forgesis bleki, muĝi. Necesis, ke Krispo instigu ilin.
 
 Fine ankaŭ ili ekblekis laŭorde.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Ektremis la tuta kamparo, kiam la Azeno komencis: i-a, i-a, i-a …
@@ -4184,9 +3540,7 @@ konstatis:
 
 La katenoj de la vivo
 
-—Hej, se foje mi povus fine halti, ekloĝi por ĉiam en tia pitoreska, florplena, agrabla loko, — suspiris amare la 188
-
-FABLOJ KAJ AFORISMOJ
+—Hej, se foje mi povus fine halti, ekloĝi por ĉiam en tia pitoreska, florplena, agrabla loko, — suspiris amare la
 
 
 fajrerkrina, potenca Vagonaro pretergalopanta la malgrandan Relgardistan Domon.
@@ -4201,17 +3555,11 @@ Estante proksimume samaĝaj, ili havis ankaŭ samfor-tan vidkapablon, kaj tiel s
 
 Por favori al Johano, la okulvitristo tajlis eĉ la framojn perfekte samformaj. Kompreneble tiun de Johano nur el kupro.
 
-Iel-tiel kun la tempo ĉi tiuj okulvitroj foje interŝanĝ-
-
-iĝis dum iliaj turniĝoj, moviĝoj.
+Iel-tiel kun la tempo ĉi tiuj okulvitroj foje interŝanĝiĝis dum iliaj turniĝoj, moviĝoj.
 
 Kompreneble ankaŭ post tio ĉiuj opiniis, ankaŭ ili mem, oraj la okulvitrojn de la ĉefo, kaj kupraj tiujn de Johano.
 
-Nur la Okulvitroj konis la karan sekreton de la inter-
-
-ŝanĝo, kaj kiomfoje la sinjoroj, t.e. Johano kaj la ĉefo 189
-
-FABLOJ KAJ AFORISMOJ
+Nur la Okulvitroj konis la karan sekreton de la interŝanĝo, kaj kiomfoje la sinjoroj, t.e. Johano kaj la ĉefo
 
 
 rigardis unu la alian, ankaŭ la Okulvitroj interokulu-mis…
@@ -4233,9 +3581,6 @@ La Kverko enpensiĝis pri la peto, kaj post nelonge li diris:
 —Filoj miaj, mi kredas, ke estas malagrable, se certaj bastonoj nur tiel batadas al vi la kapon, sed se mi volas esti justa, mi devas diri, ke ties kaŭzo estas sole vi! ĉar la branĉo, kiu al vi nun bastone foje-foje batadas la kapon, povus servi kun la sama utilo ankaŭ kiel bona tenilo por sarkilo aŭ falĉilo. Sed kiam vi tajlas tenilojn por sarkiloj, falĉiloj, vi ĉiam elektas nur la molajn, sennodajn branĉojn, ĉar tiajn eble estas pli facile tranĉi, kaj la pli malmolajn, nodohavajn vi nur flankenŝovas kaj lasas al la propra sorto.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Ellernu do, ke tiaj flankenŝovitaj branĉoj lasitaj al la propra sorto pli-malpli frue fariĝas bastonoj, kaj certe ja albatadas, nome des pli krude kaj zorge, ju pli bonaj kaj daŭraj teniloj por sarkiloj kaj falĉiloj ili fariĝus!
 
 Fuŝisto
@@ -4255,9 +3600,6 @@ De tiam li vivas kaj kantas sur kampoj, plugteroj; dormas kaj nestas sur nuda te
 —Ili pravis. Kion serĉus ja inter ”registritaj” metiistoj mizera ”fuŝisto”?! …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La ombro
 
 La Formikoj tediĝis de sia malnova loĝloko, kaj iun belan tagon someran ekvojis por serĉi novan restadejon.
@@ -4274,12 +3616,7 @@ Dum ili marŝis, marŝadis, ili foje alvenis al potenca pirujo, kiu apenaŭ teni
 
 Kaj tiuj senvorte obeis, kaj post kelkaj minutoj ĉiuj folioj de la arbo kuŝis sube sur la tero.
 
-—Jen tiel! — laŭdis siajn servistojn la maljuna ekzeku-192
-
-FABLOJ KAJ AFORISMOJ
-
-
-tisto, nun ĝi almenaŭ ellernos, kion ĝi ne rajtas, kaj ke alifoje ĝi ne ĵetos ombron sur nin. Kio ankaŭ realiĝis.
+—Jen tiel! — laŭdis siajn servistojn la maljuna ekzekutisto, nun ĝi almenaŭ ellernos, kion ĝi ne rajtas, kaj ke alifoje ĝi ne ĵetos ombron sur nin. Kio ankaŭ realiĝis.
 
 Sed larĝe malfermis la okulojn la grandpotenca Gvidanto de la Formikoj, kiam la sekvan someron la vere sen folioj restinta arbo ankaŭ pirojn ne kreskigis!
 
@@ -4293,9 +3630,7 @@ La Cejano miris pri la vortoj de la Spiko. Kial ne! Li ja kredis, ke la semabund
 
 —Malfermu bone la okulojn, — daŭrigis la Spiko, —
 
-ĉu ĉi tiu kampo ne estas tia, kvazau kreita ne por virto, boneco, sed rekte por malnobleco kaj malboneco? ĉar cetere kiel povus okazi, ke ekzemple dum la belegaj fruktoj de la nobla Pomujo faladas senpove en la polvon, eĉ ne povas fali malproksimen de sia arbo, la Destino provizis la Karduojn per kroĉkapablo, dank’ al kiu ili povas dissendi siajn granjon en la mondon, kaj la grajnoj de la malnobla, nenivalora Cirsio kreskigas eĉ flugilojn, kiel la 193
-
-FABLOJ KAJ AFORISMOJ
+ĉu ĉi tiu kampo ne estas tia, kvazau kreita ne por virto, boneco, sed rekte por malnobleco kaj malboneco? ĉar cetere kiel povus okazi, ke ekzemple dum la belegaj fruktoj de la nobla Pomujo faladas senpove en la polvon, eĉ ne povas fali malproksimen de sia arbo, la Destino provizis la Karduojn per kroĉkapablo, dank’ al kiu ili povas dissendi siajn granjon en la mondon, kaj la grajnoj de la malnobla, nenivalora Cirsio kreskigas eĉ flugilojn, kiel la
 
 
 anĝeloj, per kiuj la ventoj portas ilin, kien tiuj deziras …
@@ -4314,9 +3649,7 @@ Tiel parolis la moviĝema Zizelo ofte petolanta kun la Heliko pro lia malrapidec
 
 —Kiom strange estas por vi, kamarado, — respondas tiu, — ke mi eĉ paŝon ne faras sen mia domo, samtiom strange estas por mi, ke vi male, aperas ĉie sen via domo.
 
-Kiu nun devas esti saĝa kaj kiu stulta, restas diskuto ĝis 194
-
-FABLOJ KAJ AFORISMOJ
+Kiu nun devas esti saĝa kaj kiu stulta, restas diskuto ĝis
 
 
 la fino de la mondo. ĉar kiel en ĉio, ankaŭ en ĉi tio ĉiu konsideras sin mem saĝa. Kvankam, se konsideri bone la aferojn de la mondo, ne estas versaĵne, ke estas tiom da saĝuloj kaj nur unusola stultulo!
@@ -4332,9 +3665,6 @@ Direktado de la gazetaro
 —Eĉ iomete ne prozorgu! Oni parolu pri ni ion ajn, nur ni havu utilon el tio, — respondis la Leono. — ĉar eksciu, ke ekde kiam mi ekcirkuligis tiun fabelon inter la Kokinoj, ne estas tago, en kiu dum mia promeno, je mia granda ĝojo, ne ekstarus antaŭ mi jen azeno, jen bovo blekante pli laŭte ol la Koko kokerikas; certe kun la profunda konv, ke mi forkuros. Kion ili ja povas atendi!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ĉiu per la propraj okuloj
 
 La Bradipo ekvidas la irafon kun ties terure longa kolo ronĝi foliojn de sur la arboj.
@@ -4348,9 +3678,6 @@ Kaj alifoje la irafo observas la Bradipon, kiam tiu, por ronĝi foliojn, malsupr
 Aŭdis ilin la Strigo. Li diris en si:
 
 —Kiaj azenoj estas ĉi tiuj saĝumantaj brutoj, kiam ĉiupreze ili serĉas sensencaĵon eĉ en tio, en kio kuŝas la senfina saĝo de la Kreinto. ĉar jen per kiel belaj variantoj Li povis beni la mondon eĉ en formo de tiel plumpaj bestoj, kiel ĉi tiuj!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Alumeto, la amatoro
@@ -4372,18 +3699,13 @@ oni esploru la originon, devenon kaj semojn de certuloj.
 Kaj kiu pruviĝas fremda, tiun oni ekstermu aŭ almenaŭ elloĝigu!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kaj la delegitoj de la partio portis ĉi tiujn postulojn al la veterano de Fruktolando, la Maljuna Juglandujo, kiu respondis al ili:
 
 —Vi estas malsaĝaj! Ne estas certe, ke se io konvenas al iu popolo, tio konvenas ankaŭ al alia. Kiom da popoloj, tiom da gustoj! Cetere mi konas tiajn teoriojn de la Homoj, renaskiĝantajn de epoko al epoko. Ne unu tian mi vidis dum mia longa vivo. Tamen se iu el ili estus tiel bona, kia ĝin deklaris kaj promesis ĝiaj proponantoj, ne necesus pli nova anstataŭ ili. Sed cetere la Arboj devus esti pli seriozaj, ol la Homoj. Ni rajtas perdi nian sobran menson pro nenies modaj konceptoj. Laŭ la sobra menso oni ja povas kaj devas taksi arbon ne laŭ ties origino, deveno aŭ eĉ semoj, sed sole-nure laŭ ties fruktoj. Se al mi kreskigas iu arbo buterpirojn, ĝiaj semoj povas esti por mi eĉ kratagaj. Mi jam vidis fremdsemajn, do gref-titajn arbojn, eĉ plurajn, kiuj kreskigis pli noblajn fruktojn, ol ajnaj kun samspecaj semoj. Kaj ekstermi oni devas, filoj miaj, nur arbojn, kiuj produktas aŭ nenion, aŭ tiajn stultaĵojn, kiel ĉi tiu via troigita kaj malsaneca rasismo!
 
 La procesio
 
-Inter la Lupo kaj la Vulpo iris ekde jardekoj kaŝa konku-rado. ĉiu el ili jam volus fariĝi registara ĉefkonsilisto, kaj 198
-
-FABLOJ KAJ AFORISMOJ
+Inter la Lupo kaj la Vulpo iris ekde jardekoj kaŝa konku-rado. ĉiu el ili jam volus fariĝi registara ĉefkonsilisto, kaj
 
 
 se eblas, ankaŭ superi sian rivalon en tio. Por tio ili ne malpretis uzi la plej ruzajn artifikojn unu kontraŭ la alia.
@@ -4400,9 +3722,7 @@ En la unua momento la sagaculo ankaŭ perpleksiĝis, sed ne pro tio estas ruza l
 
 —Nur atendu, ĉio havas sian tempon. ĉar ne ekzistas tiel granda ruzaĵo, kiu ne estus superebla, ĉefe se la Vulpo cerbumas pri tio!
 
-Kaj la tagon antaŭ la procesio ne nur la bestoj, sed mem la Lupo aŭdas mirkonsternita la Vulpon, kiel tiu disanoncas impete-trumpete al ĉiuj ĉe stratanguloj, ke por la 25-jara jubileo de la regado de la reĝo la Vulpo 199
-
-FABLOJ KAJ AFORISMOJ
+Kaj la tagon antaŭ la procesio ne nur la bestoj, sed mem la Lupo aŭdas mirkonsternita la Vulpon, kiel tiu disanoncas impete-trumpete al ĉiuj ĉe stratanguloj, ke por la 25-jara jubileo de la regado de la reĝo la Vulpo
 
 
 kondukos eksterordinaran procesiegon, en kiu li mem portos la flagon, kaj kiun ĉiuj partoprenos, kiu do estos tiel granda, kian neniu vidis, ekde kiam la mondo ekzistas.
@@ -4423,12 +3743,7 @@ Iun fojon li fieraĉis per sia ”scienco” antaŭ siaj nemal-multaj admirantoj
 
 Kiam la Strigo finaŭskultis la ”prelegon”, elstariĝinte en sia pordo li diris al la arbaraj birdoj:
 
-—Malsaĝaj vi estas, ke vi lasas vin raviĝi de tiaspeca papagoklereco. Ja ĝuste la kontraŭon de la klereco pru-200
-
-FABLOJ KAJ AFORISMOJ
-
-
-vas tio, eĉ inter homoj, se iu babilaĉas sen neceso kaj senco parkerigitajn vortojn. Kiel tio povus esti la montrilo de klereco ĉe ni, bestoj?
+—Malsaĝaj vi estas, ke vi lasas vin raviĝi de tiaspeca papagoklereco. Ja ĝuste la kontraŭon de la klereco pruvas tio, eĉ inter homoj, se iu babilaĉas sen neceso kaj senco parkerigitajn vortojn. Kiel tio povus esti la montrilo de klereco ĉe ni, bestoj?
 
 Per bovidaj kaj bovinaj okuloj Por vidi novnaskitan bovidon, kutime la tuta domanaro venas vizite, ofte eĉ la najbaroj.
 
@@ -4441,9 +3756,6 @@ Arbosupro, arbustosubo
 En la mezo plej interna de la grandega arbaro staris unu apud la alia ties plej granda arbo kaj plej malgranda arbusto.
 
 Sur la supro de la arbo konstruis la Aglo, kaj sub la arbusto la Troglodito sian neston.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La maljunuloj iris ĝuste por nutraĵo, kaj la birdidoj restis solaj kaj supre, kaj sube.
@@ -4468,9 +3780,7 @@ Kaj la Aglino replikis:
 
 —Unue ellernu, filo, ke por Aglo povas esti inda kon-kuranto nur Aglo; krome vi ekiris de la supro de granda arbo, kaj li el sub malgranda arbusto!
 
-—Sed patrino, — insistis la juna Aglo, — de sub la arbusto ĝis la arbosupro la distanco estas finfine nur 202
-
-FABLOJ KAJ AFORISMOJ
+—Sed patrino, — insistis la juna Aglo, — de sub la arbusto ĝis la arbosupro la distanco estas finfine nur
 
 
 kelkaj metroj; ĝin povus facile kompensi la Troglodito dum la longa vojo! …
@@ -4487,9 +3797,7 @@ Ankaŭ la Saliko floras
 
 —Vi ja havas ne nur foliaron, branĉaron, sed ankaŭ belajn florojn!
 
-—Estas vero, ke printempe mi havas ankaŭ florojn. ĉe la reviviĝo de la naturo ĉiuj herboj, arboj, floroj devas 203
-
-FABLOJ KAJ AFORISMOJ
+—Estas vero, ke printempe mi havas ankaŭ florojn. ĉe la reviviĝo de la naturo ĉiuj herboj, arboj, floroj devas
 
 
 plibeligi sin, sed kiom tio valoras? Ankaŭ la floroj de la Plorsaliko estas ja floroj plorsalikaj! …
@@ -4508,9 +3816,7 @@ La Grilo kaj liaj filoj
 
 La Maljunan Grilon, instruantan siajn filojn antaŭ ilia unua ekvojo, ke ili atentu, ĉar preskaŭ ĉiu estas malamiko de la malgranda verdira grilo, trafis la hazarda bonŝanco, ke la preterĉasanta Leono ekripozis ĝuste antaŭ lia sidejo.
 
-La Maljuna Grilo tuj sonigis kanton, kaj rampante 204
-
-FABLOJ KAJ AFORISMOJ
+La Maljuna Grilo tuj sonigis kanton, kaj rampante
 
 
 ĉiam pli supren sur alta herbotigo, aŭdacis veni preskaŭ
@@ -4532,9 +3838,6 @@ La plej forta, potenca inter ĉiuj bestoj!
 —ĉielo alta! ĉu la Reĝo de la Bestoj? Kaj vi tamen ne timis lin?
 
 —Ne! uste pro tio ne. ĉar eksciu, ke la Verajn Grandulojn karakterizas ĝuste, ke por kontraŭuloj ili elektas potenculojn konvenajn al si, por elstariĝi en la interba-taloj. Por decidi, kiu estas pli forta inter fortuloj, pli nobla inter nobluloj kaj kiu pli granda inter granduloj! Kaj por persekuti senkaŭze tiel nedamaĝajn malgrandulojn niaspecajn malaltiĝas nur la impertinentaj kokinoj, frugilegoj, paseroj, sinpufaj ranoj kaj la enviaj hundoj! …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Bova Cerbaĵo
@@ -4560,9 +3863,6 @@ El tuta Bovolando oni admire vizitadis lin.
 —Kiom valoras, — li rimarkigis, kiam liaj kunuloj ad-miradis lian grandecon, — se mi estas eĉ tiel granda, kiel bovo. Eĉ la plej eta elefanto estas pli granda, ol la plej granda Porko!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Regulo
 
 La ciganoj planis por la nokto ”viziton” al iu farmodomo, kaj pro tio iu maljunulo el ili faras inspekton ĉirkaŭ la domo; kaj kune ankaŭ lia filo.
@@ -4586,9 +3886,6 @@ La maljuna cigano prenas nun pli ĉifonan sakon, kaj ĵetas ion ankaŭ al ĉi ti
 —Al la Grandaj Hundoj ŝuldiĝas frandaĵo ankaŭ tiam, nome laŭ tio, kiel brilan ĉenon ili havas sur la kolo, se ili ne bojas. Eĉ ĝuste por tio, ke ili ne boju. Tiel postulas la praa Regulo!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Oleo
 
 —Ni originas el nuboj ŝvebantaj en sunbrilo, disĵetantaj fulmojn, nia vojo kondukas el la alto de majestaj montoj ĉi tien, kaj nia multnombro regas la tutan Teron, —
@@ -4605,16 +3902,9 @@ La Kruco
 
 Vermoj inter herboj avide okulsekvis pretergalopantan Vagonaron.
 
-—ĉi tiu granda parenco nia impetas, amiko, — ekpa-208
+—ĉi tiu granda parenco nia impetas, amiko, — ekparolis iu, — kvazaŭ li havus flugilojn, kvankam li estas tiel pezega. Kaj ni pene tiras nian apenaŭan korpeton!
 
-FABLOJ KAJ AFORISMOJ
-
-
-rolis iu, — kvazaŭ li havus flugilojn, kvankam li estas tiel pezega. Kaj ni pene tiras nian apenaŭan korpeton!
-
-—Tamen oni ne enviu lin, — respondas iu alia. Ankaŭ la grandeco havas sian krucon. Vidu, siajn enormajn forton kaj rapidecon li devas disponigi por servo al aliuloj, kaj povas direktiĝi nur tien, kien oni kondukas aŭ pelas lin … Dum nin ordonas neniu, ni iras tien, kien plej pla-
-
-ĉe, ni marŝas tiel, kiel plej bone kaj ni haltas tie, kie plej agrable!
+—Tamen oni ne enviu lin, — respondas iu alia. Ankaŭ la grandeco havas sian krucon. Vidu, siajn enormajn forton kaj rapidecon li devas disponigi por servo al aliuloj, kaj povas direktiĝi nur tien, kien oni kondukas aŭ pelas lin … Dum nin ordonas neniu, ni iras tien, kien plej plaĉe, ni marŝas tiel, kiel plej bone kaj ni haltas tie, kie plej agrable!
 
 Honorsaluto
 
@@ -4629,9 +3919,6 @@ Sed je tio streĉis sin ankaŭ la Jako.
 —Eble brava, sed ne prava! La rangon indikas la stelo, la honorsaluto ŝuldiĝas al ĉi tiu, kaj la stelon portas mi!
 
 Kaj same al si postulis la honorigojn pro sia sonora tintado la brilanta Glavo, kaj apelaciante al siaj klakantaj spronoj ankaŭ la brilpoluritaj Botoj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kaj kiam la mastro demetis ilin, tiuj plu disputis pri tio dum pluraj horoj.
@@ -4652,12 +3939,7 @@ Partioj, partiestroj
 
 La maljuna Lupo kun sia duonkreska filo kaŝobservis el la arbustoj de la monteto la gregojn, kie, de kiu postrestas ŝafoj …
 
-La gregoj kun siaj Azenoj tiriĝadis sur la altaĵetoj evi-210
-
-FABLOJ KAJ AFORISMOJ
-
-
-tante singarde unu la alian, jen tie, jen ĉi tie tintilante.
+La gregoj kun siaj Azenoj tiriĝadis sur la altaĵetoj evitante singarde unu la alian, jen tie, jen ĉi tie tintilante.
 
 De tempo al tempo ili vizitadis ankaŭ la unusolan puton de la ĉirkaŭaĵo, sed ĉiam alterne, evitante unu la alian.
 
@@ -4667,9 +3949,7 @@ Kaj ĉe krepusko ĉiu iris al sia ĉirkaubaraĵo. ĉiu al la propra, kompreneble
 
 —Jes ja! Fratoj ili estas ĉiuj, kaj mi ne kredas, ke ili kolerus unu la alian. Sed la fakto estas, ke ĉiu Azeno zorgas pro sia ŝafaro, kaj ili ne volas, ke ies ŝafo miksiĝu kun tiuj de la alia …
 
-—Sed se ili ĉiuj estas fratoj, kaj ankaŭ ne koleras unu la alian, — insistis la juna Lupo, — kial ili ne povus paŝ-
-
-tiĝi kaj vivi kune?
+—Sed se ili ĉiuj estas fratoj, kaj ankaŭ ne koleras unu la alian, — insistis la juna Lupo, — kial ili ne povus paŝtiĝi kaj vivi kune?
 
 —Kompreneble, ili povus paŝtiĝi kaj ankaŭ vivi kune,
 
@@ -4682,9 +3962,6 @@ Dum siaj monotonaj vagadoj la malgranda Rivereto trafis fine malgrandan Arbidon.
 —Nu, dank’ al Dio, finfine venis viva estaĵo en mian vojon en ĉi tiu vastega dezerto, — li diris kun laŭta ĝojo.
 
 Kaj li jam duone ĉirkaŭfluis la malgrandan Arbon.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La cetere malforta Arbido kompreneble tre bone sentis sin en la freŝa, akvolavita grundo, kiu ameme nutris liajn radikojn, kaj post baldaŭ li bele ekprosperis.
@@ -4703,9 +3980,7 @@ Kaj kvankam li povus riproĉi la pasintecon al la sendanka Arbo, li diris nenion
 
 Sed ankaŭ la tromemfida Arbo ne povis longe moŝtu-mi, ĉar atingis lin la nemezo de sendankuloj. Lia grundo ĉiam pli sekiĝis, liaj folioj baldaŭ komencis flaviĝi.
 
-Tiam ankaŭ li jam rekonsciiĝis, siajn falantajn foliojn ade li sendis post la forserpentuminta Rivereto. Ankaŭ sian ombron li nun jam volonte etendus al li, sed tiam 212
-
-FABLOJ KAJ AFORISMOJ
+Tiam ankaŭ li jam rekonsciiĝis, siajn falantajn foliojn ade li sendis post la forserpentuminta Rivereto. Ankaŭ sian ombron li nun jam volonte etendus al li, sed tiam
 
 
 la malgranda Rivereto jam estis trans montoj kaj valoj, kaj tute ne zorgis pri la senkora, vanta Arbo, kiu post nelonge ankaŭ elsekiĝis.
@@ -4725,9 +4000,6 @@ Rekonsciiĝinte la timkaŝiĝantaj Birdoj eksplodis en sonoran ridon …
 —Ni nur ridas pri tio, — respondas tiuj, ke kiu volas esti falko, tiu ellernu ne nur flugi laŭfalke, sed ankaŭ silenti! …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Speguloj
 
 —Kiel vi montras efektive, Novaj Speguloj, — demandas mire la Maljuna Spegulo en pli longa paŭzo de spegu-lekspozicio la plejparte konveksajn respektive konka-vajn Novajn Spegulojn, — en vi ja neniu rekonas sin, vi ja mensogas al ĉiuj! … Vi ja …
@@ -4737,9 +4009,6 @@ Speguloj
 La Maljuna Spegulo aŭskultis kapbalance la respondon.
 
 —Tamen kredu, — daŭrigis la Nova Spegulo, — fakte ankaŭ ni ne mensogas, kaj diferencas de vi maksimume pri tio, ke tiutempe vi fidele respegulis la korpan bildon de la homoj, kaj ni nun la animan.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Renkontiĝo de Granduloj
@@ -4765,9 +4034,6 @@ Kaj samtempe vekiĝis en li la potenca deziro fari ion grandan.
 —Tian ankaŭ mi povas fari, — li pensis. Kaj subteriĝis, komencis ŝoveli …ŝoveladi la teron.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kiam li laciĝis pro la ŝovelado, li revenis sur la surfacon kaj observis sian verkon. Li vidis, ke ĝi estas ankoraŭ tre diferenca de la monto. Li do denove ŝovis sin sub la teron, kaj komencis denove ŝoveli, kompreneble refoje kun la sama rezulto.
 
 Centfoje, eĉ milfoje li reprenis la laboron, sed liaj verkoj fariĝis kaj ankaŭ restis ĉiam nur talpmontetoj.
@@ -4784,13 +4050,9 @@ La Duvizaĝulo
 
 —Estas facile al vi, — ekparolis eta Fiŝido en iu golfo de la malgranda marĉa lago dum krozado al la Ranidetoj.
 
-Se venas ezoko por kapti vin aŭ fiŝaglo, vi estas ranoj; kaj se cikonio aŭ kolubro, tiam fiŝoj. Tiel do vi ĉiam savi-
+Se venas ezoko por kapti vin aŭ fiŝaglo, vi estas ranoj; kaj se cikonio aŭ kolubro, tiam fiŝoj. Tiel do vi ĉiam saviĝas.
 
-ĝas.
-
-—Tiel ja! — respondis la malgranda Ranido, — kiam 216
-
-FABLOJ KAJ AFORISMOJ
+—Tiel ja! — respondis la malgranda Ranido, — kiam
 
 
 ili estas sataj. Sed kiam ili malsatas, okazas ĝuste inverse. La malsataj ezoko kaj fiŝaglo maldensigas niajn vi-cojn estiel fiŝoj, kaj la malsataj cikonio kaj kolubro estiel rano!
@@ -4811,13 +4073,9 @@ La mesaĝo de la Rano
 
 —Al zorgantoj pro aeralarmoj —
 
-La Rano, veninta en la turon, li mem ne scias, kiel: de ŝtupo al ŝtupo, farinte foje pli grandan ol necese elanon elflugis tra la malfermita fenestro kaj falis. Nur post longa flugado li atingis la teron, kie li kompreneble displati-
+La Rano, veninta en la turon, li mem ne scias, kiel: de ŝtupo al ŝtupo, farinte foje pli grandan ol necese elanon elflugis tra la malfermita fenestro kaj falis. Nur post longa flugado li atingis la teron, kie li kompreneble displatiĝis kiel ovaĵo.
 
-ĝis kiel ovaĵo.
-
-Tiam li rekriis el la faŭko de la morto: 217
-
-FABLOJ KAJ AFORISMOJ
+Tiam li rekriis el la faŭko de la morto:
 
 
 —Eble estis azenaĵo, ke estante rano mi rampis en la turon, kaj tie plusaltante, kaj preninte pli grandan elanon, ol necese mi elsaltis en la nokton. Sed, mi kuraĝas aserti: estis saĝa afero, ke dum mia tuta falado mi eĉ ne pensis pri la morto, male, firme mi kredis, ke mi nur flugas … flugas, kaj mi estis feliĉa, ĝis atinginte la teron mi displatiĝis!
@@ -4833,9 +4091,6 @@ La Pelargonio
 Kaj nun neatendite okazis io mirinda.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Proksimiĝis la sinjorino de la domo, la mastrino de la floroj, kaj kvazaŭ ŝi ekaŭdus, ekkomprenus la amaran plendon de la Pelargonioj, ŝi elmetis ilin ĉiujn unu post alia en la ĝardenon, guŝte apud tiujn florojn, al kiuj ili tiel sopire malsuprenrigardadis el post la fumo-polvo-plenaj glasoj de la kruela Fenestro.
 
 La koro de la malfeliĉaj Pelargonioj bategis, ilia animo leviĝis.
@@ -4846,14 +4101,9 @@ Kaj tio ankaŭ okazis laŭvorte.
 
 Kaj tamen, la Pelargonioj baldaŭ fariĝis same malgajaj, same solecaj kaj same malfeliĉaj, kiel ili estis. Maksimume ili ne plu plendis.
 
-ĉar estas ja vero, ke por tio, ke floroj povu laŭ sia pla-
-
-ĉo kaj deziro prosperi, verdi, odori kaj esti feliĉaj ne sufi-
+ĉar estas ja vero, ke por tio, ke floroj povu laŭ sia plaĉo kaj deziro prosperi, verdi, odori kaj esti feliĉaj ne sufi-
 
 ĉas — tio nun evidentiĝis — malfermi la fenestron, elmeti ilin en la sunon, sed krome oni devas disbati ankaŭ ilian Poton katene sufokantan iliajn radikojn!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Saĝo kaj potenco
@@ -4875,18 +4125,13 @@ Iun fojon eksplodis eĉ disputo inter ili, dum kiu la Leono interalie diris:
 Eble oni eĉ ne bezonas diri, ke ĉi tiun konsiliĝon la bestoj finis per fritado, kaj sur siaj rostostangoj ili turna-dis azenviandon.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Resaniga fonto
 
 —Pro Dio, flankiru, lasu min pasi! Mi devas rapidi. Mi volas trinkigi la Vivon suferantan je soifo, mortontan sen tr.
 
 Tiel petegis la Fonto ŝprucanta el la profundo ĉiun dikan tavolon disampleksantan super lia kapo.
 
-—Vi strebas, — respondis tiuj, — por ke oni vin ser-
-
-ĉu, vizitu. Ke havu famon. Vanteco estas tuto. Ni ne lasos vin!
+—Vi strebas, — respondis tiuj, — por ke oni vin serĉu, vizitu. Ke havu famon. Vanteco estas tuto. Ni ne lasos vin!
 
 Kaj ili ne lasis lin.
 
@@ -4897,14 +4142,9 @@ Sed ne plu simpla, sed vere vizitata kuracfonto — sekve de la resanigaj fortoj
 Jen, li fariĝis pli granda kaj valora: senmorta ĝuste pere de tiuj, kiuj iam enviis lin kaj maldeziris al li eble eĉ la nuran vivon
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Forumo
 
-La aĝega ĉevalo, kiu jam preskaŭ dek jarojn transportadas apatie kun sia maljuna kunulo ĉiujn pakaĵojn, me-blojn de la cirko, ŝtele enrigardis iun vesperon tra la bre-
-
-ĉo de la tendotolo al la areno.
+La aĝega ĉevalo, kiu jam preskaŭ dek jarojn transportadas apatie kun sia maljuna kunulo ĉiujn pakaĵojn, me-blojn de la cirko, ŝtele enrigardis iun vesperon tra la breĉo de la tendotolo al la areno.
 
 —Pro kio oni tiom ĝojas, aplaŭdas kun tioma ĝojo?
 
@@ -4919,9 +4159,6 @@ La vera kaŭzo
 La Birdoj aranĝis flugkonkurson.
 
 in partoprenis ankaŭ la nevo de la Aglo, la Juna Buteo, kiu ne nur la plej bele, la plej majeste flugis, sed ankaŭ superece venkis.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Birdoj, anstataŭ agnoski tion kun ĝojo, faris acidan mienon pri la triumfa flugo …
@@ -4945,12 +4182,7 @@ Foje ŝteliradis leono ĉirkaŭ la grego, kio kutime ne finiĝis sen viktimoj.
 Al kio li jene respondis:
 
 
-FABLOJ KAJ AFORISMOJ
-
-
-—Por montri mian kuraĝon, mi pretas dueli kun ĉiu el vi. Sed kontraŭ la leono vane vi provas inciti min. Elvoki danĝeron kontraŭ ni mem ne plu estas kuraĝo, sed aŭ-
-
-daco. Unu estas virto, la alia stultaĵo!
+—Por montri mian kuraĝon, mi pretas dueli kun ĉiu el vi. Sed kontraŭ la leono vane vi provas inciti min. Elvoki danĝeron kontraŭ ni mem ne plu estas kuraĝo, sed aŭdaco. Unu estas virto, la alia stultaĵo!
 
 Kabano, kastelo
 
@@ -4970,12 +4202,7 @@ Foje ili venis al la kantegmenta dometo de alia malriĉulo.
 
 —Al mi jam tro sufiĉas brano kaj grio, mi deziras pli delikatajn pecojn, — diris laŭte la Juna. — Troviĝas an-kaŭ pli bona domo, ol ĉi tiu.
 
-La Juna Muso do plumigris, des pli, ĉar li ekvidis gran-224
-
-FABLOJ KAJ AFORISMOJ
-
-
-dan domon laŭ sia plaĉo en la proksimo. Li nur rekriis al sia forlasita maljuna kunulo:
+La Juna Muso do plumigris, des pli, ĉar li ekvidis grandan domon laŭ sia plaĉo en la proksimo. Li nur rekriis al sia forlasita maljuna kunulo:
 
 —Se vi tro malsatas, nur vizitu min, ne timu, haviĝos iom ankaŭ al vi. Ni estos bonaj najbaroj!
 
@@ -4993,9 +4220,7 @@ Kukolovoj
 
 Delonge tiklis la Aglon la scivolo pri tio, kial la Kukolino mem ne konstruas neston, kaj ĝenas aliajn birdojn per siaj ovoj.
 
-Foje, dum li sidis en ombro en la arda varmego sur 225
-
-FABLOJ KAJ AFORISMOJ
+Foje, dum li sidis en ombro en la arda varmego sur
 
 
 branĉo de maljuna kverko, la Kukolino flugstariĝas an-taŭ li.
@@ -5010,12 +4235,7 @@ En la tono sentiĝis afableco, same kiel riproĉo.
 
 —Kaj ĉu vi ne pensas pri tio, kio okazos poste al viaj gefiloj? Oni ja nomas la birdon, kiu naskiĝis en turda nesto, turdo kaj kiu en garola, garolo!
 
-—Bonvolu ne zorgi, via moŝto, — trankviligis decideme sian reĝan amikon la Kukolino, — el kukolovo fari-
-
-ĝos Kukolo, en ajna nesto li elkoviĝos, kaj iel ajn oni lin nomos!
-
-
-FABLOJ KAJ AFORISMOJ
+—Bonvolu ne zorgi, via moŝto, — trankviligis decideme sian reĝan amikon la Kukolino, — el kukolovo fariĝos Kukolo, en ajna nesto li elkoviĝos, kaj iel ajn oni lin nomos!
 
 
 La krono
@@ -5036,9 +4256,7 @@ De longa tempo aŭdas la Garolo nek la Turdon, nek la Sturnon, al kiuj, estante 
 
 —Kio okazis al ili, — li pensis en si, — nek unu, nek la alian mi aŭdas pepi sur la arbosuproj?
 
-La situacio estis nome tia, ke dum junaĝe kaj la Turdo, kaj la Sturno sidiĝis aŭdace sur arbopintoj por babili, ofte kun tia fervoro, ke la tuta arbaro e˛is de tio, la Falko 227
-
-FABLOJ KAJ AFORISMOJ
+La situacio estis nome tia, ke dum junaĝe kaj la Turdo, kaj la Sturno sidiĝis aŭdace sur arbopintoj por babili, ofte kun tia fervoro, ke la tuta arbaro e˛is de tio, la Falko
 
 
 ĉiufoje ĉasfalis al ili. Tiel, ke kelkfoje apenaŭ ili sukcesis iel elturniĝi …ensaltinte subite en la plej proksiman densan arbuston aŭ almenaŭ foliaron.
@@ -5059,9 +4277,7 @@ Li demandis iun pretere pasanton:
 
 ”Malsaĝa herbaĉo!”, — pensis la preterpasanto, —
 
-”ĉu vi do kredas, ke la homo povas kolekti kaj meti sur 228
-
-FABLOJ KAJ AFORISMOJ
+”ĉu vi do kredas, ke la homo povas kolekti kaj meti sur
 
 
 la tablon ĉiascpecajn herbaĉojn, plantaĉojn?!”, — Sed li nur diris:
@@ -5080,9 +4296,7 @@ La bestoj iris por plendo al la Elefanto, por ke li donu al ili konsilon kontra�
 
 Kiam li venis al ĉi tiu punkto, proksimiĝis Vulpo al la societo verŝajne sekve de la laŭta gakado, klukado. Por tuj pruvi sian instruon, la Elefanto paŝis antaŭ lin, kaj rigardis tre fikse en liajn okulojn. Kiam la Vulpo rimarkis, ke la Anseroj kaj Kokinoj ne estas solaj, eĉ ili estas la gastoj de la Elefanto, li senvorte, kun entirita vosto tiel forvaporiĝis, kvazaŭ neniam li estus tie.
 
-—Jen, vi vidis! — turnis sin denove la Elefanto al siaj 229
-
-FABLOJ KAJ AFORISMOJ
+—Jen, vi vidis! — turnis sin denove la Elefanto al siaj
 
 
 aŭskultantoj. Poste li daŭrigis. — Kaj se tio ne sufiĉus, kaj via malamiko ne retrocedus mem de via fiksa rigardo, sed ankaŭ plue proksimiĝus al vi, vi turnos vntraŭ lin, kaj kun voĉo ekskludanta ĉian kontraŭdiron vi alkri-os lin: flanken el mia vojo, mizerulo!
@@ -5107,9 +4321,7 @@ Kaj denove li daŭrigis:
 
 Apenaŭ li venis al ĉi tiu punkto, li vidas, ke la Urso proksimiĝas al la societo, fiksante sian rigardon al la tre-mante mekanta Kapro.
 
-La Elefanto unue pafis fajrerantajn rigardojn al li, kaj 230
-
-FABLOJ KAJ AFORISMOJ
+La Elefanto unue pafis fajrerantajn rigardojn al li, kaj
 
 
 kiam tiu eĉ ne rimarkis ilin, li turnis sntraŭ lin kaj alblekis. Sed tiu ŝajnis tre malsata, ĉar li ankaŭ tiam ne povis forpreni sian rigardon de la Kapro, je kio la Elefanto ne lasis sin plu peti, prenis bastonon, kaj tiom li tradraŝis la sentaŭgulon, ke tiu ruliĝadis pro la doloro.
@@ -5131,9 +4343,6 @@ La Elefanto enpensiĝis pri tio. Li ja plurfoje proprafare elprovis tiun regulon
 Kaj al la kunvenintaj plendantoj li diris:
 
 —Mi esploros la aferon, nun trankvile hejmeniru. Post kelkaj tagoj revenu. Tiam ni vidos.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Kaj ekde tiam li apenaŭ atendis renkontiĝi kun iuj el la akuzatoj.
@@ -5162,9 +4371,7 @@ Tiam io trafulmis la menson de la Elefanto. Nu jes …
 
 nu jes, kial li ne pensis ĝis nun pri tio?
 
-Kaj kiam la trian tagon la bestoj denove vizitis lin, por aŭskulti liajn konsilojn, honeste li diris al ili: 232
-
-FABLOJ KAJ AFORISMOJ
+Kaj kiam la trian tagon la bestoj denove vizitis lin, por aŭskulti liajn konsilojn, honeste li diris al ili:
 
 
 —Pardonu min, karaj amikoj, pro mia eraro pasintan fojon. La veran regulon mi mem ellernis nur poste. Nun mi jam povas nur ĝnsili al vi. Ankaŭ granduloj povas erari, kaj tiam kutime tre.
@@ -5187,12 +4394,7 @@ ni portu grajnojn, ni semu ilin surloke de la fagoj … poste ni povos krakumi d
 
 —Tiel ja …tiel ja … — aprobadis ˛ore ankaŭ la aliaj.
 
-Ekestis granda prozorgo en la Fagaro. — La maltran-233
-
-FABLOJ KAJ AFORISMOJ
-
-
-kvilo plutremis de folio al folio, kaj baldaŭ trakuris la arbaron:
+Ekestis granda prozorgo en la Fagaro. — La maltrankvilo plutremis de folio al folio, kaj baldaŭ trakuris la arbaron:
 
 —La porkoj elfosos muzele la tutan Fagaron, kaj portos migdalojn anstataŭ ĝi.
 
@@ -5209,9 +4411,6 @@ La Kukolo
 Iam, antaŭ longe la Kukolo estis la plej eminenta kantisto de kampoj-arbaroj en ununura persono! Kiel okazis, ke nun li eligas nur unu-du kukuojn?
 
 Tio havas sian historion!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Mi ne komprenas, — diras iun rosobrilan matenon sinjorino Turdo al sinjorino Kukolo, — ke ĉi tiuj bravaj viroj viaj ne kantas, sed nur kukuas … Se en la turdovi-roj ardus tioma fajro, flagrus tiom da flamoj, kiel en la kukoloj, ili ĉiuj fariĝus mondrenomaj kantistoj!
@@ -5233,9 +4432,6 @@ La Sinjoro mirfrapite trarigardis la senfinan amasegon de la bovoj.
 Dume li pensis pri tio, kion Li povus doni al ili, dece ornaman.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Enkapiĝis al li tenejo, kie estis staplitaj amado da kornoj, oni ankoraŭ ne sciis, por kiu celo; kaj Li komencis nombri la bovojn, ĉu la stoko sufiĉus por ili.
 
 Tra sep tagoj, sep noktoj Li nombradis ilin. Sed kiel evidentiĝis, eĉ la abunda entuto de la tenejo sufiĉis ĝuste nur por la kvarpiedaj.
@@ -5244,17 +4440,13 @@ La sendekore restintoj ankoraŭ pli ol iam lamentis.
 
 —Kio okazos al ni, kio okazos al ni?!
 
-—Nenio okazos al vi. Ne veploru! — interrompis abrupte ilian lamentadon la Sinjoro. Vi povos havi eĉ bon-
-
-ŝancon miksiĝi nerimarkate inter la homojn, kaj preze de ioma klopodo kaj nemulta favorado vi eble ĉiuj povos veni tie en gvidajn postenojn!
+—Nenio okazos al vi. Ne veploru! — interrompis abrupte ilian lamentadon la Sinjoro. Vi povos havi eĉ bonŝancon miksiĝi nerimarkate inter la homojn, kaj preze de ioma klopodo kaj nemulta favorado vi eble ĉiuj povos veni tie en gvidajn postenojn!
 
 La saĝa Pavo
 
 —Vi estas belega, Pavo, — alparolas la Pasero de sur la tegmentorando la Pavon suprenflugintan sur la balu-stradon de la galerio, dum ĉi tiu disetendas sian mirin-dan vostoplumaron. — Se vi havus ankaŭ belan voĉon, vi povus esti perfekta.
 
-—Mi estas bela kaj eleganta. Nenio mankas al mi. Mi estas kontenta pri mia sorto. Kaj estas ja justa kaj saĝa la Kreinto, kiam Li donas belan voĉon al tiuj, kiuj fojfoje havas kaŭzon por plendi. La celo de la tera vivo estas cetere la feliĉo; kaj ĉi tiu dependas ne de tio, kion ni ne 236
-
-FABLOJ KAJ AFORISMOJ
+—Mi estas bela kaj eleganta. Nenio mankas al mi. Mi estas kontenta pri mia sorto. Kaj estas ja justa kaj saĝa la Kreinto, kiam Li donas belan voĉon al tiuj, kiuj fojfoje havas kaŭzon por plendi. La celo de la tera vivo estas cetere la feliĉo; kaj ĉi tiu dependas ne de tio, kion ni ne
 
 
 havas, sed sole de tio, kiom ni kontentiĝas pri tio, kion ni havas, ĉu tio estas multa, ĉu malmulta!
@@ -5280,9 +4472,6 @@ La tromemfida boato tiam alparolis la nenion suspektantan Akvon:
 —Ekde morgaŭ vi iros tien, kien mi ordonos al vi!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Tamen tio jam trosufiĉis al la pacema, sed potenca Rivero, kaj tiel li replikis:
 
 —Nu, filo, ĉi tiu deziro via ne plenumiĝos! ĉar la Akvoj ja toleris ekde eko de la mondo, ke boatoj, eĉ pli mizeraj ol vi, — kuradu tien-reen, antaŭen-malantaŭen sur sia dorso, sed tion, kien ili iru, nur ili mem elektos ĝis la fino de la mondo, same kiel ĝis nun! …
@@ -5293,9 +4482,7 @@ Brikoj
 
 —Ankaŭ de la homoj oni povas aŭdi ĉiufoje la saman plendon; kaj kio al ili estas malbona, tio ankaŭ al ni ne povas esti bona, — konfirmas ankaŭ alia Juna Briko.
 
-—ŝajnas tiel, kvazaŭ vi pravus, filoj, — intervenis nun en la diskuton Maljuna Briko. Sed la ŝajno kelkfoje trompas. Kial oni bezonus propre brikojn sur ĉi tiu tero, se ilin oni povus meti nur unu apud la alian? Kaj kom-pari la Brikon kun la Homo same ne eblas, ĉar dum ĉe ni brikoj el la metado unu sur alian fariĝos la ekde 238
-
-FABLOJ KAJ AFORISMOJ
+—ŝajnas tiel, kvazaŭ vi pravus, filoj, — intervenis nun en la diskuton Maljuna Briko. Sed la ŝajno kelkfoje trompas. Kial oni bezonus propre brikojn sur ĉi tiu tero, se ilin oni povus meti nur unu apud la alian? Kaj kom-pari la Brikon kun la Homo same ne eblas, ĉar dum ĉe ni brikoj el la metado unu sur alian fariĝos la ekde
 
 
 infanaĝo sopirata kaj prirevata fieraĵo de ni ĉiuj, la Turo, el tiu de la homoj sklaveco!
@@ -5306,9 +4493,7 @@ La farunsakoj starantaj unu apud la alia en la kamero rimarkis, ke migranta muso
 
 —Kion ni faru? — ili demandis unu la alian.
 
-—Se ni malfermos nin, ni ne servos fidele nian mastron, kaj se ni fermos nin, ĉi tiu malsatega hordo truron-
-
-ĝos nin!
+—Se ni malfermos nin, ni ne servos fidele nian mastron, kaj se ni fermos nin, ĉi tiu malsatega hordo truronĝos nin!
 
 Restis nemulta tempo por konsiderado, ĉar la musoj jam alvenis. ĉiu faris, kion li volis, allasita al la propra menso.
 
@@ -5322,9 +4507,7 @@ Kvankam kelkaj musoj tuj ĵetis sin al la malfermita sako, sed ĉar ĉiuj volis 
 
 Kaj post la unua festeno neniu plu ĝenis la Saĝan Sakon, je estis sufiĉa nutraĵo ankaŭ pli proksime, ĉe la ronĝitaj truoj.
 
-—Nu, kiu pravis? — demandis nun la Saĝa Sako, kiam 239
-
-FABLOJ KAJ AFORISMOJ
+—Nu, kiu pravis? — demandis nun la Saĝa Sako, kiam
 
 
 por momento ili restis solaj. — La musoj traronĝis vin ĉiujn, kaj krome kiom da faruno perdiĝis tra la truoj. Kaj mi restis netuŝita, kaj ankaŭ da mia faruno apenaŭ iom konsumiĝis!
@@ -5336,9 +4519,6 @@ La Tintilo
 … krome la gvidanto devas porti ankaŭ la tintilon de la grego, eĉ, li devas ĝin sonigi!
 
 —Eble ŝajnas tiel, kvazaŭ estus egale, ĉar al vi, azeno estas eble egale, kie vi marŝas, tamen la afero ne tute, eĉ tute ne estas indiferenta, — respondas iom pikeme iu maljuna kandidato. — ĉar se mi estas la gvidanto, mi iras, kien mi volas, kaj post mia tintilo venas la ŝafaro, sed se mi povas nur postiri, mi devas iri tien, kien al aliulo, la gvidŝafo plaĉas. Ja ne estas pli ĝena afero en la mondo, ol vivi en grego, paŝi post la grego por tiu, kiu mem povus elekti direkton, mem povus voli, se eblus!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Botaŭro
@@ -5353,12 +4533,7 @@ Iun fojon, laciĝinte pro la serĉado, li kuŝiĝis por ripozi rande de la kanar
 
 La Botaŭro, kiu kompreneble nenion sciis pri la zorgoj kaŭzitaj al la Maljuna Virbovo, hazarde ĝuste pretere insektumis, kaj ĉar ankaŭ la blekemo ĝuste kaptis lin, li elbekigis kelkaj blekojn.
 
-—Nu vidu, — diras tiam al si la retrankviliĝinta Virbovo post longa, profunda spiro, — li havas tioman vo-
-
-ĉon, kiel du virbovoj, kaj fakte li estas nur mizera bir-daĉo!
-
-
-FABLOJ KAJ AFORISMOJ
+—Nu vidu, — diras tiam al si la retrankviliĝinta Virbovo post longa, profunda spiro, — li havas tioman voĉon, kiel du virbovoj, kaj fakte li estas nur mizera bir-daĉo!
 
 
 La fremda birdo
@@ -5377,9 +4552,7 @@ La Aglo faris tiel, kvazaŭ la respondo kontentigus lin; sed kiam lia ministro p
 
 La Aglo denove faris tiel, kvazaŭ la respondo kontentigus lin, tamen en konvena okazo li demandis laŭvorte la samon ankaŭ de sia ministro pri publika pureco, la Upupo, de tiu pri la publika ekonomio, la Pigo, de tiu pri la publika moralo, la Kukolo, kaj li ĉiufoje ricevis de ili laŭvorte kaj laŭlitere la saman respondon.
 
-Sed tioma interkomplicado de la sinjoroj ministroj plantis suspekton eĉ en la bonkredema maljuna Aglo, 242
-
-FABLOJ KAJ AFORISMOJ
+Sed tioma interkomplicado de la sinjoroj ministroj plantis suspekton eĉ en la bonkredema maljuna Aglo,
 
 
 kaj li nun decidis iamaniere rekte kontakti la popolon, kaj ekscii la veron de ĉi tiu.
@@ -5405,9 +4578,6 @@ Pro la nekutime granda birdo la Paseroj por momento ekmiris, sed baldaŭ rekonsc
 aŭdiĝis de ĉie kvazaŭ pafserio.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Maljuna Pasero jam estis ekironta, por ĉion ĉi demandi de la fremda birdo, sed tiu leviĝis tiumomente en la alton, kaj flugmalaperis el la vido inter la nuboj.
 
 Kaj la Paeroj nur miris, gapis post li.
@@ -5428,9 +4598,7 @@ Kaj la sensperta Juna Kolubro obeis al la Malgranda Rano, kaj lasis lin libera. 
 
 Jen, pravas la proverbo: Prefere tuj ovo, ol iam poste bovo!
 
-Tedita de sia soleca vivo, foje denove aperis en la 244
-
-FABLOJ KAJ AFORISMOJ
+Tedita de sia soleca vivo, foje denove aperis en la
 
 
 marĉo la Malgranda Rano eskapinta tiutempe tiel facile el la morto kaj fariĝinta intertempe grandega Bufo, kie plezuriĝante pri si en la spegulo de flakaĉo jene li fanfaronis:
@@ -5447,9 +4615,7 @@ Jen estas vero, kiu volas gajni batalon, tiu devas pensi samtempe per du kapoj. 
 
 La flugiloj
 
-—Kamarado, ĉu vi scias, — diras juna Rano, frapita de miro, al iu Maljunulo, — ke la Ditisko, kiu vivas ĉi tie en la marĉo inter ni, kaj kiun ni tiel malalte taksas, havas 245
-
-FABLOJ KAJ AFORISMOJ
+—Kamarado, ĉu vi scias, — diras juna Rano, frapita de miro, al iu Maljunulo, — ke la Ditisko, kiu vivas ĉi tie en la marĉo inter ni, kaj kiun ni tiel malalte taksas, havas
 
 
 ankaŭ flugilojn? Kaj ĉiunokte, kiam ni profunde dormas, li el- kaj forflugas: trairas la tutan mondon …
@@ -5465,9 +4631,6 @@ La malfeliĉa Sendoma Limako forte deziris havi domon pro sia nekutime granda fa
 Post la diligento de longaj jaroj finfine ĉio jam ku-nestus, necesis nur prunteto, se ĝi estus. Sed ĝi ne estis.
 
 Tiutempe okazis, ke laca, venante hejmen el la laboro la Sendoma Limako foje eniris en la unusolan drinke-jon de Limakvilaĝo. ĉe la ununura longa tablo sidis, en la societo de la Cikado, Grilo kaj aliaj senhavaj taglabori-stoj, ankaŭ la parenco fama pro esti grandmastro: la Domhava Limako.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Li sidiĝis inter ili, kaj mendis vinon kun duobla sodak-vo.
@@ -5494,12 +4657,7 @@ per ia laboro? Mi volonte elfosus al vi la necesan term-aterialon.
 
 —Mi entreprenas la ĉarpentajn laborojn, — proponis sin la Pego, la ĉarpenta majstro de la arbaro.
 
-Kaj iel aŭ tiel ĉiuj taglaboristaj fratoj de la Sendoma Limako alparolis pri la demando. ĉiuj havis ian helpe-man intencon. Nur iu unusola silentis en la tuta societo. La dekstra najbaro, kiu elpoŝe povus elpagi eĉ tri ti-247
-
-FABLOJ KAJ AFORISMOJ
-
-
-ajn domojn, pri kiuj la Sendoma Limako sonĝis; sed li silentis kiel tombo!
+Kaj iel aŭ tiel ĉiuj taglaboristaj fratoj de la Sendoma Limako alparolis pri la demando. ĉiuj havis ian helpe-man intencon. Nur iu unusola silentis en la tuta societo. La dekstra najbaro, kiu elpoŝe povus elpagi eĉ tri tiajn domojn, pri kiuj la Sendoma Limako sonĝis; sed li silentis kiel tombo!
 
 La Domhava Limako.
 
@@ -5512,9 +4670,6 @@ La ŝafoj tre ekkoleris sian maljunan azenon, kiam tiu anoncis, ke ekde nun li n
 —Krome ĉi tiu nia troaĝiĝinta azeno estas ne stulta, kiel vi pensas, sed ĝuste male. Por vi li estas eble ĝuste pro tio tiel nekutima. Kaj malsaĝaj estas vi mem, ĉar vi ne komprenas lin. Li nome sentas, ke li troaĝiĝis por servi inter ni, kaj scias la devizon de la tempoj: ”spacon al la junuloj!”, kaj li saĝe flankeniĝas. Malsame, ol kelkaj liaj samaĝuloj, kiuj ne nur sian ĝismortan vivon, sed eĉ sian tomban dormon intencas pasigi en siaj akiritaj teraj pozicioj, kio ajn estu al la posteuloj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Sed vane, ŝajnas realiĝi ankaŭ pri vi la ĝenerale konata fabelo pri la simplamensa popolo, ĉar jen, inter la maro da maljunaj azenoj finfine troviĝus unu saĝa, kaj ankaŭ tiun volas mortbadi lia propra malsaĝa popolo!
 
 ŝafokule
@@ -5525,29 +4680,20 @@ La montrofenestro apartenis al sukeraĵisto.
 
 —Nu, la homo ja estas avidaĉa besto! — li balancis la kapon pri tio, kion li tie vidis.
 
-—Li fortondas nian lanon, formelkas nian lakton, de-
-
-ŝiras nian haŭton, voras nian viandon, eĉ el niaj intestoj li faras ion: kordon por violono … sed ke li sinkas ĝis tia ago, mi neniam kredus!
+—Li fortondas nian lanon, formelkas nian lakton, deŝiras nian haŭton, voras nian viandon, eĉ el niaj intestoj li faras ion: kordon por violono … sed ke li sinkas ĝis tia ago, mi neniam kredus!
 
 En la montrofenestro estis pralino!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Danko
 
-I.
 
-—La homo estas dankema, — diras la Paseroj kolekti-
-
-ĝintaj sub la heĝo, vigle babilante en la aŭtuna sunbrilo. — Por niaj kantoj li povas doni nur manĝerojn, sed per ili li vere klopodas pordanki nian arton.
+—La homo estas dankema, — diras la Paseroj kolektiĝintaj sub la heĝo, vigle babilante en la aŭtuna sunbrilo. — Por niaj kantoj li povas doni nur manĝerojn, sed per ili li vere klopodas pordanki nian arton.
 
 —Dankema estas la Pasero, — diras ankaŭ la Avineto.
 
 Por la nenivaloraj manĝeroj elŝutitaj por li li pepas tra la tuta vintro ĉirkaŭ la domo de la homoj.
 
-II.
 
 —Huŝ, huŝ, hundnaskitaj Paseroj! — kriadis la mastro ĵetante terbulojn al la timiĝintaj Paseroj en la printempa mateno. — Tra la tuta vintro oni vivtenas ilin, kaj nun ili, nome de danko, elbekas miajn enbedigitajn semojn.
 
@@ -5556,9 +4702,6 @@ Nu vidu! Huŝ vi, huŝ!
 —Sendanka estas la Homo, — diras nun unusone an-kaŭ la Paseroj ariĝinte sur pli fora arbo. Dum la tuta vivo ni kantadas al li, eĉ vintre ni ne formigras kun la aliaj birdoj, nur por ne senigi lin je nia kutima arto, kaj nun, kiam la kamparo svarmas de ĉiaspecaj birdoj vagabon-daj, li volas ni forpeli!
 
 Senndanka estas la homo!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La Kanono
@@ -5573,16 +4716,12 @@ Dum la Fusiltrupoj antaŭenmarŝis preter la maljunaj Kanonoj senfare starantaj 
 
 Senvianda tago sur la kampoj
 
-I.
 
-—Hodiaŭ vi povas eliri, gefiloj, — diris la Maljuna Lo-kustopatrino al siaj gefiloj senpaciencaj jam de tagoj en sia nesto. — Hodiaŭ estas senvianda tago. La Alaŭdo, la 251
-
-FABLOJ KAJ AFORISMOJ
+—Hodiaŭ vi povas eliri, gefiloj, — diris la Maljuna Lo-kustopatrino al siaj gefiloj senpaciencaj jam de tagoj en sia nesto. — Hodiaŭ estas senvianda tago. La Alaŭdo, la
 
 
 Fringo kaj la Koturneto vin ne tuŝos. Tamen gardu vin de la Lanio, ĉar li jam kalkuliĝas al la sinjoroj … Kaj an-kaŭ de la Pasero, ĉar por tiu impertinentulo eĉ la leĝo ne estas sankta!
 
-II.
 
 La Falko flugĵetis sin sur la kolombojn sinforgese grajnu-mantajn sur la stoplejo, kaj kaptis idon el inter ili.
 
@@ -5595,9 +4734,6 @@ sed vi eble ne pensas, ke ankaŭ por la Falkoj? Kaj cetere mi konsumos vin nur m
 Sincera parolo
 
 Al la brilmantela kortegestro de la insektoreĝo, lia moŝto Orcetonio neniel eniris la kapon, ke dum li povas, kiam li povas, brili maksimume en la lumo de la Suno, la Lampireto havas propran lumon, per kiu ankaŭ nokte li povas orientiĝi.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —ĉu vi ne pensas, — diris ŝajnigante bonvolemon al li, — ke la ekbriligadon de via meĉeto la Granduloj in-terpretos sinmontro, demonstracio, kaj koleros pro tio.
@@ -5619,9 +4755,6 @@ Kaj la tielnomataj granduloj ne enviu la talenton de la
 —Vere, fileto, la bonaj venos en la ĉielon, kaj la malbonaj en la inferon.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Kaj kia estas la ĉielo kaj kia la infero.
 
 —Nu, fileto, la infero estas terura fajrego, kien venas ĉiuj malbonuloj. ĉi tie oni unue dispistas en eretojn per longtenilaj ferkejlegoj ĉiujn ostojn de la alvenintoj, poste popece oni ĵetas ilin en la fajron. ĉiu ereto devas vidi, kiel pereas ĝia kunulo, devas aŭkulti ties krepitadon, ve-kriadon, ĝis ankaŭ la lasta ereto neniiĝas en fumon kaj cindron … Tio estas la infero.
@@ -5639,12 +4772,7 @@ La maljuna vitristo ĵus finis la blovadon de granda botelo, kiam manpleno da re
 —Estu do! — decidis fine la bonkora maljunulo, kaj li jam blovis la malgrandan ambiciulon.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
-Kiam li pretiĝis kun ĉi tiu, kaj vidis, ke li videble mezuris sin tro malgranda rilate al la pli frua botelo, ripro-
-
-ĉis lin la majstro:
+Kiam li pretiĝis kun ĉi tiu, kaj vidis, ke li videble mezuris sin tro malgranda rilate al la pli frua botelo, riproĉis lin la majstro:
 
 —Filo mia, eĉ, se mi blovis vin pli granda, ol vi fakte estas, mi ne povas vin blovi pli granda. Certaj leĝoj an-kaŭ ĉi tie validas. La subŝtofo ne povas esti pli granda, ol la ŝtofo; el nura aero eĉ boteloj ne povas konsisti … —
 
@@ -5652,9 +4780,7 @@ li diris, kaj ĵetis la malgrandan nekontentulon kontraŭ la teron.
 
 Kiu estas pli forta?
 
-Dum sia landinspektado la gnite veturanta juna Re-
-
-ĝo puŝiĝas hazarde ĉe ia pordo kontraŭ la ĵus unuatagan Pedelon.
+Dum sia landinspektado la gnite veturanta juna Reĝo puŝiĝas hazarde ĉe ia pordo kontraŭ la ĵus unuatagan Pedelon.
 
 Inter la du fierpufaj homoj estiĝas disputo.
 
@@ -5667,9 +4793,6 @@ Inter la du fierpufaj homoj estiĝas disputo.
 Kaj fierpufe li plupaŝadas, kiel iu, sentanta sin resti supereca.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Somerumanta Strigo
 
 Somere la Strigo ne ŝatas restadi en sia kavo. Se li trovas densan frondon, li retiras sin tien. Sed ve al li, se iu pasero lin trovas, ĉar tiam post minutetoj tie ĉirpadas-blabla-bas ĉiuj paseroj de la ĉirkaŭaĵo. Surdiĝo tutcerta.
@@ -5678,9 +4801,7 @@ Somere la Strigo ne ŝatas restadi en sia kavo. Se li trovas densan frondon, li 
 
 Tiel plendas en iu okazo simila la Strigo al la Pigo plu-mumanta sin sur la supro de la najbara arbo.
 
-—Eĉ por minuto ne zorgu pro ĉi tiuj buŝherooj, — respondas la Pigo bone konanta la paserojn. — Ili konjektas, ke vi estas la plej proksima futuro: sinjoro de la nokto. Kaj la homon de la futuro la paseroj kutimas ĉie klaĉ-
-
-beki. Ne timu, tuj kiam vi surtroniĝos, ili forportos sin, ke eĉ memoriganto pri ili ne restos!
+—Eĉ por minuto ne zorgu pro ĉi tiuj buŝherooj, — respondas la Pigo bone konanta la paserojn. — Ili konjektas, ke vi estas la plej proksima futuro: sinjoro de la nokto. Kaj la homon de la futuro la paseroj kutimas ĉie klaĉbeki. Ne timu, tuj kiam vi surtroniĝos, ili forportos sin, ke eĉ memoriganto pri ili ne restos!
 
 La solvo
 
@@ -5688,9 +4809,7 @@ La Aĝega Vulpo vizitas sian malnovan amikon, la Maljunan Urson, kiu dum sia tut
 
 —Pri kio vi cerbumas tiel sinforgese, kamarado?
 
-—Kial mi ne cerbumus, kamarado, — respondis tiu, 256
-
-FABLOJ KAJ AFORISMOJ
+—Kial mi ne cerbumus, kamarado, — respondis tiu,
 
 
 kiam la sumoj ricevitaj por miaj verkoj, paroladoj faras laŭ miaj egzaktaj notoj entute dek milionojn, kaj kiel ajn mi kalkulas, mia havaĵo superas eĉ cent milionojn. Kvankam el iometo mi devis ankaŭ vivi!
@@ -5708,18 +4827,13 @@ Kolomboj en la turo
 —Ankaŭ tio estas vero, filo, mi mem ne unufoje vidis tion. Sed ankaŭ pri tio ni ne devas nepre skandaliĝi. La gloro kaj potenco apartenas ĉiam al tiuj, kiuj estas pli fortaj!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La Paraŝutisto
 
 —Estas facile al la Ciriso, — diradas la Sovaĝa Kolzo.
 
 Kiam liaj grajnoj maturiĝas, ili ricevas flokoflugilojn, venas vento, kaj jam portas ilin en ilian novan hejmon, kie ili povas progresi. Kaj pri iliaj filoj same zorgas la Naturo … Sed la grajnoj de la malfeliĉa Sovaĝa Kolzo faladas unu sur alian, kreskas unu sur alia, ilia tuta vivo estas konkura batalo por ilia nura ekzisto. La fratoj ne povas disvolviĝi unu pro alia!
 
-—Estas ja vero, ke la grajnojn de la Ciriso, se ili maturiĝis, disportas la vento de la gepatra domo, — respondas la Ciriso, — kaj ofte post kilometroj aŭ eĉ ekster la landlimoj demetas ilin, kiel paraŝuto sian pasa-
-
-ĝeron, sed la sorton, kiu lin atendas tie, li devas ankaŭ surpreni. Ne ekzistas elekto, ĉu la grundo estas grasa aŭ malmola, ĉu malmola, ĉu senfrukta mortoroko!
+—Estas ja vero, ke la grajnojn de la Ciriso, se ili maturiĝis, disportas la vento de la gepatra domo, — respondas la Ciriso, — kaj ofte post kilometroj aŭ eĉ ekster la landlimoj demetas ilin, kiel paraŝuto sian pasaĝeron, sed la sorton, kiu lin atendas tie, li devas ankaŭ surpreni. Ne ekzistas elekto, ĉu la grundo estas grasa aŭ malmola, ĉu malmola, ĉu senfrukta mortoroko!
 
 Lumpiroj
 
@@ -5727,14 +4841,10 @@ Dolĉecan zumadon ekatentas la Strigo en sia fortikaĵo.
 
 —Kiu tio povas esti, kaj de kio li havas tiel altan humoron en ĉi tiu terura mondo? — li pensas. — La loĝantoj de la arbaro ja ne kutimas kantante hejmenambli el la drinkejo en plenplena nokto …
 
-Li elrigardas. Nu, Dio Kreinto, la malgranda Lampiro 258
-
-FABLOJ KAJ AFORISMOJ
+Li elrigardas. Nu, Dio Kreinto, la malgranda Lampiro
 
 
-flugŝanceliĝas desegnante lumringojn per sia ereta me-
-
-ĉeto sur la velura tolo de la ĉielo.
+flugŝanceliĝas desegnante lumringojn per sia ereta meĉeto sur la velura tolo de la ĉielo.
 
 —Kion vi serĉas ĉi tie en la mezmezo de la nokto kun via kandeleto, kamarado? ĉu eble vi hieraŭ perdis ion gravan vian? Kaj antaŭ ĉio, de kio vi havas tiel bonegan humoron, ke vi eĉ kantas? — li demandas …
 
@@ -5751,9 +4861,6 @@ Gastigo
 Fruprintempe ekiris la malsata Abeleto turmentita de la vintro al la paŝtejo, por fari kolektojn. Sed li estis tiel malforta, ke dummvoje li falis.
 
 Duonsvene li venis ĝuste al la nestopordo de la Teraj Vespoj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Ej nu, — li pensas, — en tiel frua malvarmo eble mi eĉ frostos manke de moviĝo. Mi frapos ĉe la Vespoj por ioma varmiĝo, pli poste la Suno certe ekbrilos, kaj mi povos daŭrigi la vojon.
@@ -5776,9 +4883,7 @@ La Vespoj ankoraŭ ne kuraĝis eĉ elmeti la kapon pro la malvarmo.
 
 Kiel okazis, ne eblas scii, sed estas fakto, ke proksime al vespero ĵetis la superŝarĝitan Abeleton la laceco kaj la krepuska vento denove sur la teron, kaj ĉu hazarde, aŭ nur por la fabelo, denove ĝuste ĉe la pordo de la Vespoj…
 
-Nun la Vespoj rimarkis la Abeleton, kaj akceptis lin kun tia, tielega parenca amo, ke li preskaŭ eniris al ili. Li 260
-
-FABLOJ KAJ AFORISMOJ
+Nun la Vespoj rimarkis la Abeleton, kaj akceptis lin kun tia, tielega parenca amo, ke li preskaŭ eniris al ili. Li
 
 
 eble ankaŭ restus tie, se ne enkapiĝus al li liaj malsataj, malsanaj fratoj hejme kaj ankaŭ la matena aventuro …
@@ -5793,18 +4898,13 @@ Kaj li jam iris plu. Kaj la malsataj Vespoj nur rigardis post li!
 
 Ne necesas tranĉi araneaĵon per segilo Mildanima Pastro aŭdas dum iu lia vojo dimanĉon an-taŭtagmeze infanan veploradon, el kio li konstatas, ke iu senindulge batas knabeton.
 
-Li do eniras la domon, de kie la senesperaj voĉoj aŭ-
-
-diĝas, kaj alparolas la koleran Patron draŝantan eĉ tiam sian filon:
+Li do eniras la domon, de kie la senesperaj voĉoj aŭdiĝas, kaj alparolas la koleran Patron draŝantan eĉ tiam sian filon:
 
 —Kio vi estas por ĉi tiu knabo, homo, kaj kion pekis ĉi tiu infano, ke vi estas tiel rigora al li?
 
 Kaj tiu respondas:
 
 —Mi estas lia Patro, kaj mi punas lin, ĉar li ne plenumis iun ordonon mian.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 —Nu, kio povis esti tiu granda ordono, kiun donis lia Patro sub minaco de puno al tiel eta infano? — demandis denove la Pastro.
@@ -5828,9 +4928,6 @@ Kaj tiu respondas:
 —Mi ne kredus, ĉar Dio ne estas tiel kruela kaj maljusta, ke pro tiel bagatela neglekto frapu min per tioma puno.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —Nu vidu, — riproĉas nun milde la erarintan Patron la mildanima pastro, — kiel pensus tiu malforta knabo, ke vi estas lia Patro, kiam pro bagatela neglekto vi tiel kruele kaj senindulge punas lin; de kie li prenu ekzemplon por la plenumo de siaj devoj, se ne de vi? Kaj kio povas rajtigi vin, ke vi prijuĝu la plenumon de liaj devoj, se ne tio, ke vi ĉiam plej komplete faras la viajn?
 
 ŝtona Leono
@@ -5848,9 +4945,6 @@ Tre multa tempo pasis, ĝis li paciĝis kun sia sorto kaj ĉesis indignadi.
 Sed tiam li jene saĝumis:
 
 —Se mia sorto destinis min al ĉi tiu gardejo, tiam estas tute saĝa, eĉ feliĉa afero, esti el ŝtono. ĉi tiun rolon oni ja alimaniere ne povus elteni. Nur skulptita el ŝtono!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La ordema popolo
@@ -5876,9 +4970,6 @@ Poste ili atendis, atendadis. Sed vane! Ili jam kredis, ke la aŭdaca spiono per
 — ”Ordema popolo … ordema popolo …” — ripetadis la adresatoj … estas facile aserti tion, sed fakte kia estas ordema popolo? …
 
 Nu jen, kia devus esti ordema popolo, tio ankoraŭ neniam enkapiĝis al ili, popolgvidantoj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Fine ili reskribis al sia sendito, ke li pli klare kaj detale ripetu la raporton, precipe koncerne la demandon, kia estas ordema popolo, kaj kial la akvanoj estas orde-maj popoloj?!
@@ -5910,9 +5001,6 @@ Kiujn ne ŝatas li, estas herbaĉo Fojno vi laŭ kapricemo.
 Sed senutilas jam ĉia domaĝo,
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Ligas homon ja la skemo.
 
 Ho kiomope herbaĉ’ deklariĝas, Tio laŭ bova ekspertiz’ fariĝas.
@@ -5936,9 +5024,6 @@ Vi pravas, samterano. Por iuj la steloj de la firmamento, por aliaj la lumbrikoj
 ”Neeblaj aferoj! Reen!” Respondo al tio: ”Reen!”
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 La verbo
 
 *(Kiu ne sentas sin nazmuka, ne viŝu la nazon …*
@@ -5955,18 +5040,13 @@ Fojon de fojo ili aranĝis veran pilgrimadon al lia gro-to!
 
 ĉu doni al iu konsilon tajlitan al la individuo aŭ libron, prijuĝis Grumla Gregoro ĉiam laŭ la ekstera apero kaj socia pozicio de la pilgrimanto. Kaj ĉiam per tra-faj okuloj.
 
-Kvankam lia maljuna sekretario, la Aĝega Vulpo daŭ-
-
-re kaŝobservis, espereble iam li eraros …
+Kvankam lia maljuna sekretario, la Aĝega Vulpo daŭre kaŝobservis, espereble iam li eraros …
 
 La vesperon de iu tumulta tago, kiam ili restis solaj, ekparolis tiu kun ruza rideto:
 
 —Hodiaŭ ni tamen eraretis tie kaj ĉi tie, Majstro!
 
 —Ne ĝoju, ĉar vi eraras! Mi scias, kion vi subvolas diri.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Libron mi donis ankaŭ al kelkaj bovoj, kaj tiuj kiel pezan fatrason forĵetis ĝin ĉe la pordo … Mi trankviligas vin, tio okazis ne pro eraro, sed takto. Mi ne volis senmaskigi ilin antaŭ iliaj sinjorecaj kunbestoj, kun kiuj ili aperas en tute simila eksteraĵo.
@@ -5976,13 +5056,7 @@ Tamen la instruon ni tiru ankaŭ el tio. Saĝa homo turnas ĉion en sian utilon.
 ”Kaj al la bovo konvenas ne saĝeco kaj verbo, sed nur fojno, eĉ se liaj kornoj ne plu vidiĝas kaj li portas pan-talonon …”
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 AFORISMOJ
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 Saĝeco
@@ -6010,9 +5084,6 @@ kuniras modesto, ĝi iĝas altira, nobla simplo; se malsaĝo
 ne egalas akumuliĝon de scioj. Nek ekkonon de la mondo. Kiu sin mem ekkonis, kaj povis tiri el tio ĉiujn kon-sekvencojn: estas saĝa.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***La scienco de la vivo***
 
 Alie ni parolas ĉe malfermita fenestro, ol post fermitaj pordoj.
@@ -6038,9 +5109,6 @@ Ankaŭ nigra kokino aprezendas, se eventuale ĝi eligas blankan ovon.
 Kiu ne volas vidi la fulmojn, aŭdos la tondrojn. Kaj kiu ankaŭ ĉi tiujn neglektas, tiun plagos — la pluvo!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Antaŭvidemo***
 
 1 Kiu iam volas vidi la arbojn de sia ĝardeno en vico, plej bone li faras semante ties grajnojn en vico.
@@ -6064,9 +5132,6 @@ Vivosperto
 3 La fortuno faras la saĝan pli saĝa, kaj la malsaĝan pli malsaĝa.
 
 4 Estas malfacile ne esti tio, kio ni estas, sed ŝajni tio, kio ni volus esti!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Pafpulvoro***
@@ -6096,9 +5161,6 @@ estas tiu tabelo de logaritmoj, per kiu oni transkalkulas la homojn el tio, kion
 estas neniam sola. Eĉ ĉiam en tre elstara societo. ĉie en la akompano de liaj pensoj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***La malgranda aŭto***
 
 Tiu, kiu ne povas konduti, sen vidigi ĉiupaŝe sian rangon, similas al aŭteto, kies numerplato estas tiel granda, ke pene ĝi portas ĝin.
@@ -6120,9 +5182,6 @@ ekkverelus, estas certe, ke la Luno atakus kune kun la steloj. Sed certe estas a
 tranĉanta same nian kredon, kiel fantazion. Tiel fariĝas el ĉielaspiraj agloj terekurantaj strutoj, el senfinaj spacoj de la mondo baraĵoj, el multaj milionoj da variantoj de la vivo — ŝablonoj …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Al nia postmorta nomo***
 
 ni povas kolekti jarojn sole fare de niaj agoj. Eble tio estas la kaŭzo, ke tiom da homoj oni jam en ilia vivo forgesas …
@@ -6142,9 +5201,6 @@ Ankoraŭ ne estus malbone, ke el raŭpo dum mallonga tempo fariĝas papilio kaj 
 ***Plej granda honorigo***
 
 se ni al iu malkaŝas sincere nian animon. Sed tio povas okazi nur unufoje en la vivo. ĉar aŭ ne estas kion, aŭ ne estas, al kiu.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Individueco, karaktero***
@@ -6170,9 +5226,6 @@ Ajne ĝi ripetas.
 ***Tiu, por kiu lia videbla***
 
 oficeja aŭ socia rango validas kiel plej granda aŭ ununura valoro — ajne granda ĝi estu — estas kompatinde malriĉa homo!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Povas esti ŝajnaj***
@@ -6202,9 +5255,6 @@ Kiel grandaj ni estas, vidiĝas korpe: starante unu apud alia, kaj anime: lasite
 —Kiu estas la plej alta arbo?
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 —La rubaĵgarbo.
 
 —Kial?
@@ -6232,9 +5282,6 @@ Tio estas la diferenco inter sunoj kaj lampoj, agloj kaj papilioj.
 ke kelkfoje ”naskiĝas musoj”. Se la maliclangaj moke-muloj scius, ke kelkfoje estas pli malfacile enmondigi senmankan muson, ol duonperfektan monton!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***La bona tegolo tegmenta***
 
 Sufiĉe peza por kroĉiĝ’ surlata Kaj de l’ vento neniam ŝirlevata.
@@ -6256,9 +5303,6 @@ ni vidas iun, enestas ankaŭ la konstato de nia propra grandeco! Por la elefanto
 ***Instrumento, ilo***
 
 La potenco en forta mano estas taŭga instrumento, en malforta plumpa ilo.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Lumoj***
@@ -6284,9 +5328,6 @@ Ju pli malalte situas lintelo, despli ĝi igas klini nin.
 Ni fieraĉas pri niaj prauloj. ĉu ni povas havi ian meriton pri tio, ke ili estis elstaraj homoj? Aŭ ĉu ni kulpas pri tio, ke ne? Se ni jam volas esti fieraj, kial ni ne klopodas fieri prefere pri niaj posteuloj? En ties eminenteco ni ja pli povus havi parton!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Blindeco***
 
 Ni eĉ ne rimarkas, kiel sendiecaj homoj ni estas, dum ni volas esti nehomecaj dioj!
@@ -6297,9 +5338,7 @@ Arbo kun alta branĉaro radikas kutime profunde. Tio povas instigi malplenajn ka
 
 ***Intereso ĉie***
 
-Ne ekzistas — eĉ se fiera, alta — arbo, kies radikojn su-
-
-ĉantajn vivon ni ne trovus — en la tero.
+Ne ekzistas — eĉ se fiera, alta — arbo, kies radikojn suĉantajn vivon ni ne trovus — en la tero.
 
 ***Karaktero kaj adaptiĝo***
 
@@ -6312,9 +5351,6 @@ La objektoj estas ĉiam de proksime, la homoj plej ofte de malproksime pli grand
 ***Parolantaj ciferoj***
 
 Ies grandeco elkalkuleblas plie el la nombro de liaj malamikoj, ol amikoj. Kiuj ne havas malamikojn, tiuj devas esti aŭ terure potencaj aŭ mizere sensignifaj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Sinjoreco***
@@ -6333,18 +5369,13 @@ kaj varmigas.
 
 ***Paralelo***
 
-Kiel kreskas la arbo, tiel kreskas ĝia ombro. Kiel ni levi-
-
-ĝas, tiel obliĝas niaj enviantoj.
+Kiel kreskas la arbo, tiel kreskas ĝia ombro. Kiel ni leviĝas, tiel obliĝas niaj enviantoj.
 
 ***Nobleco***
 
 1 Kio nobla estas en la diamanto? Tio, ke per ĝi ni povas ĉion alian skrapi, sed la propran specon ĝi ne skrapas. Kaj kiam ĝi estus eĉ pli nobla? Se ĝi ne skra-pus ankaŭ la pli malfortajn ol si …
 
 2 La laboro nobligas. Jes ja! Kiel multaj jam fariĝis no-beloj preze de la elpresita ŝvito de aliuloj!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Rekono***
@@ -6362,9 +5393,6 @@ La potenchavan stultulon ni timas ne pro lia forto, sed pro lia ebriiĝunta stul
 ***Soleco***
 
 La soleca vojo estas tia, kia la soleca homo. Ambaŭ iras aparte de siaj kunuloj. ĉi tiu estas rekompencata de alaŭdoj, tiu de pensoj pro sia soleco.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Balancilo***
@@ -6390,9 +5418,6 @@ La premio por la bonaj agoj, por kiuj ni naskiĝis, estus la vivo. La puno por l
 Kiam sur la surfaco de la lago la ondoringoj atingas ĝis la bordo kun la sciigo pri la falo de la ŝtono en la lagon, la ŝtono jam delonge sinkis sur la fundon!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Sorto
 
 ***Sortoj***
@@ -6416,9 +5441,6 @@ ne nur por nia vivo, sed ankaŭ por nia sorto. Se ni ne preparis nin sufiĉe por
 La morto ne estas finstacio, nur komutilo, per kiu nia vojo direktiĝas al aliaj reloj, aliaj regionoj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Friponoj kaj geniuloj***
 
 leviĝas pli alten kun la tempo. La pli bonŝancajn atendas pli-malpli grandaj tronoj, la malbonŝancajn pli-malpli grandaj pendumiloj!
@@ -6435,18 +5457,13 @@ Per muĝado, tondrado povas vortumi siajn internajn sentojn nur maroj. Riveretoj
 
 ***Sorto***
 
-La ordinara arbusto estas tia, kiel la poeto. Kiam ĝi estas florplena, estas nature, ke el ĝiaj floroj ĉiu plukas laŭ-
-
-plaĉe. Kiam aŭtune ĝi restas nuda, estas nature, ke neniu okupiĝas pri ĝi.
+La ordinara arbusto estas tia, kiel la poeto. Kiam ĝi estas florplena, estas nature, ke el ĝiaj floroj ĉiu plukas laŭplaĉe. Kiam aŭtune ĝi restas nuda, estas nature, ke neniu okupiĝas pri ĝi.
 
 ***La tragedio de l’ homo***
 
 Kiam la dornoj de la rozo maturiĝas, falas ĝiaj floroj.
 
 Kiam ni povus defendi niajn sonĝojn: ili pereas!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Niaj tragedioj***
@@ -6469,12 +5486,7 @@ Nur la krajono skribas sen trempado, eĉ spite al sia morto — ĝis konsumiĝo.
 
 ***La flugiloj***
 
-La fazano — kvankam ĝi havas fortajn flugilojn — iras plej ofte perpiede. Kaj nur se oni tro premas ĝin, ĝi ma-287
-
-FABLOJ KAJ AFORISMOJ
-
-
-leme levas sin per la flugiloj. Ofte ankaŭ la homon tru-das lia sorto disvolvi siajn flugilojn.
+La fazano — kvankam ĝi havas fortajn flugilojn — iras plej ofte perpiede. Kaj nur se oni tro premas ĝin, ĝi maleme levas sin per la flugiloj. Ofte ankaŭ la homon tru-das lia sorto disvolvi siajn flugilojn.
 
 ***Kandeloj***
 
@@ -6495,9 +5507,6 @@ Se oni luktas unu kun la alia, neniam la forto, sed ĉiam la pacienco venkas. La
 ***Kunteno***
 
 La vento povas renversi arbon, sed ĝiajn foliojn ne povas forblovi.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***La pacienco***
@@ -6525,9 +5534,6 @@ Sen paliso la grimpofaboj povas fariĝi nur vojerarantoj.
 Tiel ili sin mem sufokadas per siaj kunkroĉiĝintaj grim-potigoj. Ankaŭ al homtigoj ne sortas alie sen ilia paliso: Dio!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Meditado***
 
 Niajn spertojn ni povas kolekti nur por la futuro. ĉar kune kun ilia kolekto nia vivo ankaŭ konsumiĝas, ne povas esti alimaniere: devas esti alia mondo en ia formo, en kiu ilia utilo povas montriĝi.
@@ -6543,9 +5549,6 @@ Kiel alte ni taksas juvelojn, noblajn metalojn, eĉ se pre-nitaj el rubaĵo; ni 
 ***Kun ĉiu sperto***
 
 ni fariĝas pli riĉaj, kun ĉiu sortobato pli bonaj. Ili estas la instrumentoj de Dio, per kiuj li skulptas sian bildon sur ni!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Mondokreo***
@@ -6568,9 +5571,7 @@ Religiemaj ni fariĝas tre ofte en nia maljunaĝo. Kaj la multaj spertoj kaj sci
 
 ***Sterko kaj animo***
 
-Ni ne konsideras konvene, tuŝi sterkon per nia fojno-forko, ĉar la pura forko malpuriĝas. Sed ke ni ne prenu 291
-
-FABLOJ KAJ AFORISMOJ
+Ni ne konsideras konvene, tuŝi sterkon per nia fojno-forko, ĉar la pura forko malpuriĝas. Sed ke ni ne prenu
 
 
 fivortojn sur nian langon pro simila kaŭzo, tio iel ne enkapiĝas al ni!
@@ -6592,9 +5593,6 @@ Nia vojo estas inversa. Nin Dio vokas, kaj tute certe, ke ni alvenos. Al Li, nur
 Serĉe de trezoroj li fine alvenas dezerton. Li jam vidas la trezoron … li tuj atigos ĝin. Li alvenas grandegan orblo-kon, sed nun li rimarkas, ke lia nutraĵo konsumiĝis.
 
 is la trezoro eltenis tiu mizera, pri kiu li neniam estis kontenta; pro kiu li senĉese kurstrebis al trezoro, kaj nun jen, la grandega trezoro eĉ por tio ne taŭgas, ke li povu treni sin reen al la forlasita mizero!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***La kruco***
@@ -6620,9 +5618,6 @@ Se la homaro elspezus tion, kion unu parto malŝparas, por fari sin tia, ke eĉ 
 Ne ekzistas alia komuneco, kapabliga tiom la partopre-nantojn en ĝi je tia kunteniĝo, ol la komuna peko. Ni nur observu la obstinajn neantojn.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kiel potenca, dia valoro devas esti la virto, ke eĉ ties nuran ŝajnon valoras ŝirmi tiel ĝisplejlaste!
 
 ***Lumo kaj ombro***
@@ -6645,9 +5640,7 @@ La ĉielo estas amanta patrino de la tero. Por ke ĉi tiu ne malvarmumu en sia v
 
 ***La flugiloj***
 
-Ni estas, kiel la akvo. Dum ni gluiĝas surtere, ni bildigas 294
-
-FABLOJ KAJ AFORISMOJ
+Ni estas, kiel la akvo. Dum ni gluiĝas surtere, ni bildigas
 
 
 flakon, maksimume servuteman riveron. Sed se ni ĵetas niajn okulojn al la ĉielo: ni leviĝas supren. Kiel ankaŭ la akvon flugigas, sublimante ĝin, la nobla ardo.
@@ -6669,9 +5662,6 @@ havas nur okazadojn. Tragedioj aŭ komedioj ili fariĝas nur tra ni. Nome plej o
 ***Alkutimiĝo***
 
 La knabino en la domo estas kiel ĉerizo sur arbo. Ni rimarkas ŝin, nur se ŝi jam ruĝiĝas …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Al juna geedza paro***
@@ -6696,9 +5686,7 @@ El la du grandaj aferoj nin interesantaj: la pasinteco kaj la futuro, nur iu tri
 
 ***La maniero***
 
-La ĝentila maniero estas la ŝlosilo, per kiu ni povas iompostiome malfermadi la pordojn de nia vivo, kaj la 296
-
-FABLOJ KAJ AFORISMOJ
+La ĝentila maniero estas la ŝlosilo, per kiu ni povas iompostiome malfermadi la pordojn de nia vivo, kaj la
 
 
 malĝentila estas tiu, pro kiu niaj pordoj de si mem fermiĝas.
@@ -6723,9 +5711,7 @@ dum ni laboras. Promeno, ripozo, resaniĝo, per kiuj ni volas plilongigi nian vi
 
 ***Anime ĉiu***
 
-estas tiel granda, kia li konstruis sin en la ŝtormoj de la 297
-
-FABLOJ KAJ AFORISMOJ
+estas tiel granda, kia li konstruis sin en la ŝtormoj de la
 
 
 tempoj el la brikoj de siaj spertoj kaj mortero de siaj larmoj. Kaj la daŭro de ĉi tiu konstruaĵo pli- aŭ malpliiĝas laŭ tio, kio pli efikis en ĝia formado: la sperto aŭ la su-fero.
@@ -6753,9 +5739,6 @@ estas la hazardo. Bedaŭrinde konfidi nin al ĝi ne eblas:
 estis iam vergo, sed ne ĉiu vergo fariĝos iam marŝalbastono!
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***ŝanĝiĝo de vortordo***
 
 Pli frue estis: vi vivas por ĝoji; nun: ĝoju, ke vi vivas.
@@ -6781,9 +5764,6 @@ Problemeto estas nur, ke al ĉi tiu simpleco kaj natu-reco oni povas veni sur tr
 ĉu tio estas kares- aŭ moknomo de ĝi?
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Potenco, feliĉo***
 
 Milfoje pli feliĉa estas tiu, kiu ne havas sinjoron, ol kiun ĉirkaŭas armeo da riverencantaj servistoj.
@@ -6805,9 +5785,6 @@ Kiam la rozo floras, ni vidas nur ĝiajn florojn, kaj kiam
 ***La bastono de la sorto, la sorto de la bastono***
 
 La vivo estas stafeto. ĉe la ŝanĝo la laciĝinta patro ankaŭ ĉi tie donas bastonon al la filo. Iuj ricevas marŝalbasto-non, aliaj tiun de migranto; sed multaj ricevas ja nur al-mozulan bastonon.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La mondo
@@ -6834,9 +5811,7 @@ La poeto en la homa socio estas, kio la alaŭdo en la bir-da. Kun pura animo li 
 
 ***La elano***
 
-La homaro kuras al la propra pereo per ĉi tiu granda 301
-
-FABLOJ KAJ AFORISMOJ
+La homaro kuras al la propra pereo per ĉi tiu granda
 
 
 evoluo. ĉar ju pli rapide ĝi atingas tien, kie ĝi ekscios, ke ĉion ĝi tamen ne povas ekscii, kaj des pli ĝi falos, ju pli pli alte ĝi tiam estos!
@@ -6864,9 +5839,6 @@ Ankaŭ la poeto estas reĝo. Sed por li ne lia reganteco, sed lia lando estas la
 Kiu volas vidi arbon, tiu iras en arbaron, kiu arbaron, tiu eliras el ĝi.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Objektiveco***
 
 1 Se iu foje povus tiel plenkreski, kaj atingi la intelektan gradon de la hodiaŭa homo, ke li povus eviti la for-mantajn efikojn de niaj cirkonstancoj kaj nia spirita orientiĝo, kaj povus rigardi la seriozajn okazadojn de la nuna vivo per tiel neinfektitaj, objektivaj okuloj, li aŭ ridegus ĝismorte, aŭ mortus pro senesperiĝo!
@@ -6890,9 +5862,6 @@ La morto estas nepre aranĝo de la kontoj. Kiu suferis, ricevas premion per ĝi,
 La najbaraj rozoj transrigardas ĉiam ridetante unu al la alia tra la barilo. Sed ĉe ĉiuj breĉoj de la barilo ili gard-ostaras kun siaj longaj dornolancoj — pretaj por ĉiuj eventualoj …
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Vespera interkonsento***
 
 Ni enlitiĝu; dum ni maldormas, ankaŭ la diablo ne dormas …
@@ -6913,9 +5882,7 @@ estas la krono de la kreado. Kompreneble tiam ankoraŭ ne estis oro …
 
 ***Vicordo***
 
-Dum ni ne tenas vicordon en la aferoj pri mono, neniam ni estos feliĉaj. Ni nome pli frue ellernas elspezi, ol 304
-
-FABLOJ KAJ AFORISMOJ
+Dum ni ne tenas vicordon en la aferoj pri mono, neniam ni estos feliĉaj. Ni nome pli frue ellernas elspezi, ol
 
 
 perlabori. ĉi lastan pluraj eĉ ne volas ellerni. Estas kompreneble. Kiu lernus abocon en studentaĝo?
@@ -6939,9 +5906,6 @@ Kaj servisto, kaj mastro malofte povas esti grasaj — per la sama nutro …
 ***Por, pro***
 
 La vivo estas eterna zorgo. Dum ne estas mono: por ĝi, kiam ĝi estas: pro ĝi.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Se vi pruntedonas***
@@ -6969,9 +5933,6 @@ ne frato aŭ parenco rapidas helpe al ni, sed amiko aŭ fremdulo. Ni ne ĉagreni
 Ekzistas homoj, kiuj sentas sian plenaĝecon nur inter neplenaĝaj. Tial ili klopodas trakti ĉiun kiel neplenaĝulon.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Homeco***
 
 La grandeco de homo mezureblas plej bone per la elte-nitaj plagoj. Se iu mortas pro iu plago, li estas malfeliĉa, se li eltenas ĝin: heroo. Oni ne devas timi plagojn. An-kaŭ ili estas bagatelaj aferoj homaj. Ili mildiĝas pli-malpli frue je utilaj spertoj perdintaj sian forton, kaj poste karaj rememoroj!
@@ -6989,9 +5950,6 @@ La flugadon ni ja lernas de la stulta birdo, la fidelecon de la odoraĉa hundo k
 ***Vundoj***
 
 La ricevitaj vundoj faras nin kelkfoje modestaj, la doni-taj ĉiam tromemfidaj.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***La stulteco, ***
@@ -7021,9 +5979,6 @@ La erarojn de aliuloj estas pli facile distrumpeti, ol toleri, eĉ pardoni. La e
 La Homo krias en la arbaron: ”Estas multaj kurbaj arboj!”
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kaj la Arbaro re: ”Estas malmultaj rektaj homoj!”
 
 ***Kiun ni amas, ***
@@ -7046,9 +6001,7 @@ Kiel tiel multaj ceteraj aferoj en la mondo, ankaŭ la homoj estas nur duspecaj.
 
 ***Inter ekstremoj***
 
-Ankaŭ la limakoj estas, kiel la homoj. Iuj vestas sin tiom, 309
-
-FABLOJ KAJ AFORISMOJ
+Ankaŭ la limakoj estas, kiel la homoj. Iuj vestas sin tiom,
 
 
 ke eĉ sian domon ili metas sur sin, kaj aliaj iras nure nudaj …
@@ -7059,9 +6012,7 @@ Ankaŭ la fungoj estas, kiel la homoj. Ili havas pli grandan ĉapelon, ol kapon!
 
 ***Rasbiologio***
 
-Se vi volas ekscii pri iu: ĉu li estas ŝafo aŭ porko, ne sufi-
-
-ĉas sidigi lin al via tablo. Vi devas viziti kun li ankaŭ flakaĉojn. Se li povas trankvile preteriri ilin, eble li estas ŝafo; sed se li enrulas sin: tute certe li estas porko.
+Se vi volas ekscii pri iu: ĉu li estas ŝafo aŭ porko, ne sufiĉas sidigi lin al via tablo. Vi devas viziti kun li ankaŭ flakaĉojn. Se li povas trankvile preteriri ilin, eble li estas ŝafo; sed se li enrulas sin: tute certe li estas porko.
 
 ***Inter si***
 
@@ -7074,9 +6025,6 @@ La marmoro ne fendiĝas, dum oni ĉizas en ĝian korpon la litervundojn; sed ank
 ***La flugiloj***
 
 Se ĝi kreskigas belajn, kolorriĉajn flugilojn, ni inklinas estimi eĉ la raŭpon papilio …
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Heredantoj***
@@ -7102,9 +6050,6 @@ Ne ĉiuj korvoj estas nigraj. Sed kadavron ankaŭ la blanka korvo surflugas.
 ***La silko***
 
 La homo kapablas flati, profunde kliniĝadi, eĉ mortigi, nur por povi pavumi en silko: la krizalido povus loĝi en silkokastelo, kaj tamen ĝi elvenas el ĝi!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***ŝajno kaj realo***
@@ -7133,12 +6078,7 @@ Ni rigardo fiksiĝas al iu ŝtupo, nur ĝis ni atingas ĝin per la piedo. Tiam �
 
 ***La danko***
 
-Ankaŭ la bovino estas por ni kara bovineto, dum ĝi do-312
-
-FABLOJ KAJ AFORISMOJ
-
-
-nas lakton. Sed tuj kiam ĝi ne plu donas lakton, ĝi nomiĝas plej ofje nur maljuna bovo.
+Ankaŭ la bovino estas por ni kara bovineto, dum ĝi donas lakton. Sed tuj kiam ĝi ne plu donas lakton, ĝi nomiĝas plej ofje nur maljuna bovo.
 
 ***La prunto***
 
@@ -7157,9 +6097,6 @@ Kiel multajn homojn, pri kiuj jam evidentiĝis ia friponaĵo, ne salutas tiu, pr
 1 La rozoj estas, kiel la homoj. Unue ili montras siajn florojn. Iliajn dornojn ni trovos nur poste. Sed eviti ilin ni povas malofte!
 
 2 La spaco montras ĉiujn homo. La demando estas, kiomope oni restos homo ankaŭ en la tempo?!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 La scio
@@ -7187,9 +6124,6 @@ La homoj estas, kiel la alumetoj: troviĝas inter ili, kiuj havas kapon.
 La bombastaĵoj estas la belaj resonoj de la malplena kapo de la verkisto.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Anima dezerto***
 
 La malplena verko estas Saharo. La ekmigrinto en ĝi vane marŝas, nenie li trovas ombrodonan arbon, kiel li povas halti por ripozi, nenie li trovas fonton, kie li povus mildigi sian turmentan soifon.
@@ -7213,9 +6147,6 @@ Unu provizas per benzino, la alia per bremso nian ŝipon.
 5 Ofte ni parolas nur por prisilenti ion bonan; ofte ni silentas nur por plej bone elparoli ion.
 
 6 La stultulo klarigas malfacile, kion li volas, sed des pli facile rakontas, kion li ne devus.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Vivlernejo***
@@ -7245,9 +6176,6 @@ Ni kredas, ke la poeto ambicias per la serĉo de populareco, ke multaj lin amu. 
 ĝin. Tial ĉiuj veraj poetoj estas reformistoj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***La verkisto***
 
 estas la vivanta konscienco de sia nacio. Ve al tiu popolo, kiu anstataŭ al sia konscienco obeas al kio ajn aŭ kiu ajn alia.
@@ -7266,9 +6194,7 @@ Kiuj estas malamikoj de la sklaveco, ĉar ili mem estas sklavoj, tiuj ankaŭ mer
 
 ***Titolo kaj karaktero***
 
-Al kaduka barilo, refarbita anstataŭ esti fortikigita per 317
-
-FABLOJ KAJ AFORISMOJ
+Al kaduka barilo, refarbita anstataŭ esti fortikigita per
 
 
 fostoj okazas la samo, kiel al oficisto, ricevanta belsonan titolon anstataŭ pli granda salajro. Kaj inverse.
@@ -7290,9 +6216,6 @@ Iun oni ekzekutas pro unusola opinio. Kaj la opinioj de la ceteraj?
 Laŭ galoplenaj homoj la tuta bestaro svarmas en ni en la subkonscio. Kaj nur laŭ tio, kiel la kulturo kapablas venki en ni la tigron, simion ktp — kiel la forto de la pre-silo la briketon — fariĝas ĉiu homo. Sen tio ni estas en la kaĝo de sociaj formoj kunigita, bredata aro de bestoj, el kiuj laŭ humoro erupcias jen tigro, jen hundo, jen simio.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Sur deklivo***
 
 Halti sur deklivo supren estas same malfacile, kiel malsupren. Kvazaŭ atingo de iu alto nur kreskigus nian deziron atingi la la sekvan.
@@ -7308,9 +6231,6 @@ La malgrandajn brilajn trumpetojn portas altkreskaj homoj, la grizan tamburegon 
 ***Infanĉambro***
 
 La malbona aŭ mankhava edukado tiel pikas en la okulojn en la konduto de preta homo, kiel barelodoro pikas la nazon pro la neĝusta traktado de la vino. Kaj la malbona medio tiel malbonigas ankaŭ la pli bonajn elemen-tojn, kiel la bonan vinon la malĝuste traktita barelo.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***La radiko***
@@ -7337,9 +6257,7 @@ Ankaŭ la karduo apelacias al siaj floroj, kiam ĝi volas disŝuti siajn grajnoj
 
 ***Spirito de la epoko***
 
-La dornon ni transpaŝas, ĝi ja povas piki nin, la arbon ni 320
-
-FABLOJ KAJ AFORISMOJ
+La dornon ni transpaŝas, ĝi ja povas piki nin, la arbon ni
 
 
 evitas, ĝi ja povas mortbati nin; sed la floron? Kiom povas malutili al ni floro? in ni trankvile surtretas!
@@ -7363,9 +6281,6 @@ La homoj estas, kiel la vagonoj. Ili havas propran pezon kaj kargopezon.
 ***Denaska privilegio***
 
 Facile estas esti alta al tiu arbo, kiu kreskis sur monto!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Memkonfeso***
@@ -7395,9 +6310,6 @@ La supraĵa klereco estas, kiel la latbarilo. Oni travidas
 ĝin.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Al miaj filoj
 
 Atentu viajn pensojn, ĉar ilin viaj agoj pli-malpli frue malkaŝos!
@@ -7416,24 +6328,18 @@ Tio, kio vi fakte estas, estu nur tie, kie certe vi scias, ke neniu vin vidas! A
 
 Tamen ne ĉagreniĝu! Ne unu homo venis jam tiel sur tronon, ke estante kamparano povis esti ankaŭ reĝo, kiam oni serĉis ĝuste reĝon!
 
-1 Diru la homojn ĝenerale duspecaj. (Kio vi konsideras ilin, estas nur via afero.) Tiujn, kiuj estas tiel stultaj, ke ili pro tio ekparolas, diru inteligentaj; tiujn, 323
-
-FABLOJ KAJ AFORISMOJ
+1 Diru la homojn ĝenerale duspecaj. (Kio vi konsideras ilin, estas nur via afero.) Tiujn, kiuj estas tiel stultaj, ke ili pro tio ekparolas, diru inteligentaj; tiujn,
 
 
 kiuj estas tiel grandaj azenoj, ke eĉ ekparoli ne kapablas, saĝaj. Tiam ĉiu vin amos.
 
-2 Gardu vin de flatantoj! Pensu ĉiam pri la porko, kies ventron karesasante oni rigardas, kien puŝi la tran-
-
-ĉilon ĉe la buĉo.
+2 Gardu vin de flatantoj! Pensu ĉiam pri la porko, kies ventron karesasante oni rigardas, kien puŝi la tranĉilon ĉe la buĉo.
 
 3 Viajn amikojn vi povas preni ankaŭ el inter malgranduloj. Sed viajn malamikojn elektu zorgeme nur el granduloj. ĉar ĉiu estas tiel granda, kiel lia malamiko.
 
 4 Evitu la koton. ĉar kiu ajn ŝprucos ĝin sur vin, vin oni diros malpuraj.
 
-5 Klopodu plenigi vian ĉemizon. Tiam ankaŭ via veŝ-
-
-to, eĉ mantelo pleniĝos.
+5 Klopodu plenigi vian ĉemizon. Tiam ankaŭ via veŝto, eĉ mantelo pleniĝos.
 
 
 Se vi kontentiĝas pri dometo, vi povas konstrui sur via propra scio; sed se vi deziras palacon, vi devos konstrui nepre sur la malsaĝeco de la homoj!
@@ -7446,9 +6352,7 @@ Se vi kontentiĝas pri dometo, vi povas konstrui sur via propra scio; sed se vi 
 
 Sufiĉu l’orpulvoro de l’ momento!
 
-Multaj ne ricevas, nur ŝtonerojn, 324
-
-FABLOJ KAJ AFORISMOJ
+Multaj ne ricevas, nur ŝtonerojn,
 
 
 Sed ilin en amaso kun frekvento.
@@ -7463,18 +6367,11 @@ Sed ilin en amaso kun frekvento.
 
 14 ĉe la akiro de novaj amikoj, konatoj ekmemoru, ke komence, en idaĝo ankaŭ la rano estas fiŝo.
 
-15 Se la talpo foje elvenus el sia miljara mallibereco sur la tersurfacon, kaj ankaŭ de ekstere ĝi rigardus siajn verkon, plue li vidus montojn; kaj ekde tiam aŭ an-kaŭ ĝi farus montojn, aŭ nenion. Vi same neniam kontentiĝu pri viaj primitivaj verketoj, sed studu sen-
-
-ĉese la verkojn de la pli grandaj, ĉar alie vi fariĝos talpoj, kaj viaj verkoj talpmontetoj.
+15 Se la talpo foje elvenus el sia miljara mallibereco sur la tersurfacon, kaj ankaŭ de ekstere ĝi rigardus siajn verkon, plue li vidus montojn; kaj ekde tiam aŭ an-kaŭ ĝi farus montojn, aŭ nenion. Vi same neniam kontentiĝu pri viaj primitivaj verketoj, sed studu senĉese la verkojn de la pli grandaj, ĉar alie vi fariĝos talpoj, kaj viaj verkoj talpmontetoj.
 
 16 Forĵetu neniam ion kaj iun! Sed se pro grava kaŭzo vi foje tamen forĵetus iun aŭ ion, por nenio en la mondo plu levu lin aŭ ĝin!
 
-17 Atentu la potencajn bagatelojn … ĉar kiel niaj ŝuoj foruziĝas ne pro grandaj terbuloj, sed pro la tute ne-325
-
-FABLOJ KAJ AFORISMOJ
-
-
-atentataj sableroj, samtiel distaŭzas niajn nervojn ne la grandaj aferoj kaj bataloj, sed la malgrandaj malagrablaĵetoj de nia vivo.
+17 Atentu la potencajn bagatelojn … ĉar kiel niaj ŝuoj foruziĝas ne pro grandaj terbuloj, sed pro la tute neatentataj sableroj, samtiel distaŭzas niajn nervojn ne la grandaj aferoj kaj bataloj, sed la malgrandaj malagrablaĵetoj de nia vivo.
 
 Vero
 
@@ -7484,16 +6381,11 @@ La granda bovo ricevas pli multe el la bonoj de la vivo, sed nur el ties fojno. 
 
 ***La ludo de la bestoj***
 
-estas nekonscia, sed senĉesa prepariĝo por ilia vivo. Kaj tiu de la homoj? Ofte nur la laŭeble plena perdigo, malŝ-
-
-paro de la karega tempo tiel necesa por la ellaborado de la feliĉa estonteco. Ke ĝi hazarde ne revekiĝu kaj postulu sian rajton je ni!
+estas nekonscia, sed senĉesa prepariĝo por ilia vivo. Kaj tiu de la homoj? Ofte nur la laŭeble plena perdigo, malŝparo de la karega tempo tiel necesa por la ellaborado de la feliĉa estonteco. Ke ĝi hazarde ne revekiĝu kaj postulu sian rajton je ni!
 
 ***La objektoj***
 
 fariĝas foriĝante de ni ĉiam pli malgrandaj, kaj proksimiĝante al ni ĉiam pli grandaj. Sur tio baziĝas la fakto, kial ni vidas trabo tiun ligneron en fremda okulo, kiu troviĝas propre ne en la fremda, sed en la propra okulo.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Vero***
@@ -7511,9 +6403,6 @@ Ne sufiĉas instrui la popolojn; apud la klerigado oni devas ĉesigi ankaŭ tiuj
 ***La peko de la mondo***
 
 Ne nur ĉiama, sed ankaŭ la plej granda peko de la mondo estas, ke ĝi postulas la plej multajn batalojn de tiu, al kiu ĝi donis la plej malmultajn armilojn; de tiu la plej multan scion, kiun ĝi plej malmulte instruis; de tiu la plej multan laboron, al kiu ĝi donis la plej malmultan forton.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Mezuro***
@@ -7539,9 +6428,6 @@ La edzino estas amara medikamento, la virino dolĉa veneno.
 Kaprica kiel maro kaj sunsubira ĉielo en sia koloriĝo, vanelo en sia flugo, virino en sia amo.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***Kufo***
 
 Ankaŭ al la rozoj oni kutime kovras la kapon, kiam ili velkas.
@@ -7560,18 +6446,13 @@ La knabino estas, kiel la vino. Se oni lasas ĝin acidiĝi, ĝi restos en depone
 
 ***Fideleco de virino***
 
-La virino estas, kiel pantofloj. Dum vi portas ilin antaŭ-
-
-en, ili persistas kun vi eĉ ĝis la fino de la mondo; eĉ fa-ligi vi ne povas ilin. Sed ne retropaŝu, ĉar tiam estos ve al vi! Ili tuj forlasos vin.
+La virino estas, kiel pantofloj. Dum vi portas ilin antaŭen, ili persistas kun vi eĉ ĝis la fino de la mondo; eĉ fa-ligi vi ne povas ilin. Sed ne retropaŝu, ĉar tiam estos ve al vi! Ili tuj forlasos vin.
 
 ***Geedzeco***
 
 1 La geedzeco estas barko, konstruita de la amo, flega-ta de la komprenemo kaj rudrata de la saĝo.
 
 2 La geedzeco estas violono, kies sonorigo en du frat-manoj estas sinforgesa, feliĉa ludo; en du fremdaj manoj pena laboro.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 3 La geedzeco estas bildo, pendigata ĉiam kun la pen-trita flanko al la publiko.
@@ -7605,9 +6486,6 @@ Dum hela tag’ ne floras planto fola, La saĝa buntas eĉ en nokto ombra.
 Kun inda in’ mi kune drivas.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 Kio kromas: or’ aŭ nura stras’, Eble bona, tamen nur fatras’!
 
 *** ”Kiel ĝi komenciĝis!?” ***
@@ -7625,9 +6503,6 @@ La saĝo havas du grandajn momentojn. La unua: ekkonscii, ke ne nur la tuta mond
 ***Harmonio***
 
 La silento estas la kuna muziko de la bruoj, muĝoj de la mondo. En ĝi la sonoj tute sorbas kaj kompensas unu la alian. La silento estas la simfonio de la mondo.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Specoj de ĉielarkoj***
@@ -7657,9 +6532,6 @@ Atentu, kiuj volas ĉiam pli mallongigi la glavon de popolo, ĉar el la tro mall
 Venton aŭ tempeston, forblovantan kune kun la nuboj ankaŭ la fulmojn, ni ankoraŭ povas esperi; sed tian, kiu ankaŭ niajn pedikojn forblovus — neniam. De tiuj ni mem devas liberigi nin, se ni volas esti puraj.
 
 
-FABLOJ KAJ AFORISMOJ
-
-
 ***La vojo de la kulturo***
 
 La varmo kaj la lumo estas fratoj. Ili migradas man-en-mane en la sulkoj de la mondo. Troviĝas domo, kien la lumo kondukas la varmon; kaj tia, kien la varmo la lumon!
@@ -7681,9 +6553,6 @@ Ni ne miru pri la misaĵoj de la revolucioj. Ankaŭ la rivero estas malklara, se
 ***En-el***
 
 Ne la florpoto gravas, en kiu, sed nur la grajno, el kiu io elkreskas.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***La feliĉo***
@@ -7711,9 +6580,6 @@ Dio kreis mondon el nenio. Kiom da aĵoj la homoj bezonas, por pene-ŝvite kunum
 ***Voli oni devas scii***
 
 eĉ tiam, kiam scii oni nenion plu volas.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Fido, suspekto***
@@ -7744,9 +6610,7 @@ Unue kreskigu radikojn, nur poste kronon. Kaj maksimume tiel grandan, kiel radik
 
 Kiu malobeas ian skribitan leĝon, tiun ni kondamnas.
 
-Kvankam kiu scias, kiam li rompis ĉi tiun skribitan 335
-
-FABLOJ KAJ AFORISMOJ
+Kvankam kiu scias, kiam li rompis ĉi tiun skribitan
 
 
 leĝon, ĉu la malfeliĉa eble ne obeis multe pli altan, sed ankoraŭ ne skribitan, eĉ ne malkovritan leĝon?!
@@ -7764,9 +6628,6 @@ Nur moneroj tintas senĉese; la grandaj monbiletoj maksimume nur susuras.
 ***Reflorado***
 
 Kiel ni scias, la betono konsideriĝas ĉe la dua uzo nur por morta materialo; la forton kaj esencon de la bindo tiam devas liveri jam nova materialo. Proksimume tian rolon havas en la amo aŭ geedzedo tiuj, kiuj foje jam misrolis en ĝi.
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 ***Eterna ordo***
@@ -7791,12 +6652,7 @@ Se estis sufiĉa publiko, ni skribas pri la grandeco de la spektejo; se estis ma
 
 ***Lamaj gamboj***
 
-Prefere la poeto lamu, ol lia verko. Se nome la poeto la-337
-
-FABLOJ KAJ AFORISMOJ
-
-
-mas, nur unusola homo, li mem suferas. Sed se lia verko lamas, suferas pro li lia tuta legantaro …
+Prefere la poeto lamu, ol lia verko. Se nome la poeto lamas, nur unusola homo, li mem suferas. Sed se lia verko lamas, suferas pro li lia tuta legantaro …
 
 ***Prezo kaj valoro***
 
@@ -7810,16 +6666,11 @@ En la unua ni pensu, en la dua ni agu. La rezulto estos kvaroble pli, ol se duob
 
 ***Revolucioj kaj doganistoj***
 
-La lakto estas, kiel la popolo. Ni povas deŝiri ĝian haŭ-
-
-ton, kiomfoje ni volas. Nur ni devas antaŭe ĝin sufiĉe boligi …
+La lakto estas, kiel la popolo. Ni povas deŝiri ĝian haŭton, kiomfoje ni volas. Nur ni devas antaŭe ĝin sufiĉe boligi …
 
 ***La stelo***
 
 Kiam oni kudras la unuan stelon sur nian kolumon, ni firme kredas: kun la tempo nian kolumon ornamos ĉiuj steloj de la ĉielo. Kaj vere: kiam nia kolumo pleniĝas de steloj, la steloj de nia ĉielo iom post iom konsumiĝas!
-
-
-FABLOJ KAJ AFORISMOJ
 
 
 www.omnibus.se/

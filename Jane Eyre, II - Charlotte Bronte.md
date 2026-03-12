@@ -14,9 +14,6 @@ H. J. Bulthuis
 Lingve reviziita en 2001
 
 
-@omnibus.se
-
-
 JANE EYRE
 
 
@@ -28,19 +25,13 @@ antaŭsignoj. Kune ili triope estas mistero, kies solvon la
 
 homoj ankoraŭ ne trovis. Dum mia tuta vivo mi neniam povis
 
-ridi pri antaŭsentoj; ĉar mi mem rimarkinde spertis ilin. Sim-
-
-patioj ekzistas same; tion mi certe kredas (ekzemple inter
+ridi pri antaŭsentoj; ĉar mi mem rimarkinde spertis ilin. Simpatioj ekzistas same; tion mi certe kredas (ekzemple inter
 
 longe forestantaj, malproksime loĝantaj parencoj, kiuj jam de
 
-longe fremdiĝis unu al la alia kaj malgraŭ tio havas simpati-
+longe fremdiĝis unu al la alia kaj malgraŭ tio havas simpation, kiuj precize montras la saman originon, kie ili naskiĝis)
 
-on, kiuj precize montras la saman originon, kie ili naskiĝis)
-
-simpatioj, kies efikoj etendiĝas malproksimen trans niaj kom-
-
-prensentoj. Kaj kiom ni scias, antaŭsignoj estas eble la sim-
+simpatioj, kies efikoj etendiĝas malproksimen trans niaj komprensentoj. Kaj kiom ni scias, antaŭsignoj estas eble la sim-
 
 patioj ekzistantaj inter la naturo kaj la homoj.
 
@@ -48,21 +39,15 @@ Kiam mi estis ankoraŭ apenaŭ sesjara knabino, mi aŭdis
 
 iun vesperon, ke Bessie Leaven diras al Martha Abbot, ke ŝi
 
-sonĝis pri infaneto, kaj ke tio estas certa antaŭsigno de mize-
+sonĝis pri infaneto, kaj ke tio estas certa antaŭsigno de mizero kaj malfeliĉo por ni mem aŭ por la parencoj. Tiu inter-
 
-ro kaj malfeliĉo por ni mem aŭ por la parencoj. Tiu inter-
-
-parolo verŝajne ne estus fiksinta sin tiel forte en mia memo-
-
-ro, se ne tuj poste okazus io, kio konservis ĝin tie por ĉiam.
+parolo verŝajne ne estus fiksinta sin tiel forte en mia memoro, se ne tuj poste okazus io, kio konservis ĝin tie por ĉiam.
 
 La sekvantan tagon Bessie estis vokita al la mortlito de sia plej
 
 juna fratino.
 
-En la lasta tempo tiu interparolo kaj ĝia sekvinta okazin-
-
-taĵo ofte vekiĝis en mia memoro. ĉar dum la lasta semajno
+En la lasta tempo tiu interparolo kaj ĝia sekvinta okazintaĵo ofte vekiĝis en mia memoro. ĉar dum la lasta semajno
 
 preskaŭ neniu nokto pasis, en kiu mi ne sonĝis pri infaneto.
 
@@ -71,36 +56,23 @@ Kelkfoje mi lulis ĝin sur miaj brakoj, aŭ mi balancis ĝin sur
 miaj genuoj, ofte mi vidis ĝin ludi per floroj eksterdome en
 
 
-JANE EYRE
-
-
 ĝardeno sur la herbejo, aŭ mi vidis ĝin serĉi multkolorajn
 
 ŝtonetojn kaj silikojn en bruetanta rivereto. Iun nokton ĝi
 
 estis ploranta infano, en alia ĝi ridis; jen ĝi flatpremiĝis al mi,
 
-jen ĝi kun ektimo forkuris de mi. Kian ajn humoron la ape-
+jen ĝi kun ektimo forkuris de mi. Kian ajn humoron la aperaĵo montris, kiajn ajn vizaĝtrajtojn ĝi havis — ĝi aperis al mi
 
-raĵo montris, kiajn ajn vizaĝtrajtojn ĝi havis — ĝi aperis al mi
+en sep sekvaj noktoj, tuj kiam mi fermis la okulojn por dormi.
 
-en sep sekvaj noktoj, tuj kiam mi fermis la okulojn por dor-
+Tiu ĉiama revenado de unu sola aperaĵo estis al mi tre malagrabla — tiu stranga revenado de la sama bildo malkvietigis
 
-mi.
-
-Tiu ĉiama revenado de unu sola aperaĵo estis al mi tre mal-
-
-agrabla — tiu stranga revenado de la sama bildo malkvietigis
-
-min, kaj igis min nervema, kiam proksimiĝis la tempo de en-
-
-litiĝo kaj kun ĝi la vizio. Estis la akompano de tiu infan-fanto-
+min, kaj igis min nervema, kiam proksimiĝis la tempo de enlitiĝo kaj kun ĝi la vizio. Estis la akompano de tiu infan-fanto-
 
 mo, kiu vekis min en tiu luna nokto, kiam mi aŭdis la krion.
 
-Kaj en la posttagmezo de la sekvanta tago venis al mi servis-
-
-tino kun komisio, ke en la ĉambro de Fairfax estas iu, kiu
+Kaj en la posttagmezo de la sekvanta tago venis al mi servistino kun komisio, ke en la ĉambro de Fairfax estas iu, kiu
 
 deziras paroli al mi.
 
@@ -116,27 +88,15 @@ krepe ĉirkaŭvolvita.
 
 kiam mi eniris, ”sed mia nomo estas Leaven; kiam antaŭ ok
 
-aŭ naŭ jaroj vi estis en Gateshead, mi estis veturigisto de sin-
+aŭ naŭ jaroj vi estis en Gateshead, mi estis veturigisto de sinjorino Reed; ankoraŭ nun mi estas en ŝia servo.”
 
-jorino Reed; ankoraŭ nun mi estas en ŝia servo.”
+”Ho, Robert, estas vi! Kiel vi fartas? Mi memoras vin ankoraŭ tre bone. Vi ja rajdigis min ofte sur la bruna ĉevaleto
 
-”Ho, Robert, estas vi! Kiel vi fartas? Mi memoras vin an-
-
-koraŭ tre bone. Vi ja rajdigis min ofte sur la bruna ĉevaleto
-
-de fraŭlino Georgiana. Kaj kiel fartas Bessie? Vi ja estas edzi-
-
-ĝinta kun Bessie?”
+de fraŭlino Georgiana. Kaj kiel fartas Bessie? Vi ja estas edziĝinta kun Bessie?”
 
 ”Jes, fraŭlino. Mia edzino estas tre sana. Mi dankas pro la
 
-interesiĝo; — antaŭ du monatoj ŝi donis al mi refoje infane-
-
-
-JANE EYRE
-
-
-ton — ni havas nun tri — kaj la patrino kaj la infanoj fartas
+interesiĝo; — antaŭ du monatoj ŝi donis al mi refoje infaneton — ni havas nun tri — kaj la patrino kaj la infanoj fartas
 
 bonege.”
 
@@ -166,15 +126,11 @@ loĝejo.”
 
 ”Nu, sciu fraŭlino Eyre, tio ne estas ordinara malfeliĉo; lia
 
-vivo estis tre sovaĝa. Dum la lastaj tri jaroj li faris vere stran-
-
-gaĵojn — kaj lia morto estis terura.”
+vivo estis tre sovaĝa. Dum la lastaj tri jaroj li faris vere strangaĵojn — kaj lia morto estis terura.”
 
 ”Mi jam aŭdis de Bessie, ke li malbone kondutis.”
 
-”Ke li malbone kondutis! Li ja ne povis pli malbone kon-
-
-duti! Li ruinigis sian sanon, kaj siajn posedaĵojn li fordiboĉis
+”Ke li malbone kondutis! Li ja ne povis pli malbone konduti! Li ruinigis sian sanon, kaj siajn posedaĵojn li fordiboĉis
 
 en societo de malvirtaj viroj kaj la plej malbonaj virinoj. Li
 
@@ -184,18 +140,11 @@ patrino eligis lin el ĝi, sed apenaŭ li estis libera, li tuj reiris al
 
 siaj kunuloj kaj malvirtaĵoj. Lia kapo neniam estis forta, tion
 
-vi scias, kaj la friponoj, inter kiuj li vivis, trompis lin kaj pri-
-
-ŝtelis en neaŭdita maniero. Antaŭ tri semajnoj li venis en Ga-
+vi scias, kaj la friponoj, inter kiuj li vivis, trompis lin kaj priŝtelis en neaŭdita maniero. Antaŭ tri semajnoj li venis en Ga-
 
 teshead kaj postulis, ke la sinjorino cedu al li la tutan bienon.
 
-ŝi rifuzis, ĉar pro lia diboĉado kaj ekstravagancoj ŝiaj pose-
-
-daĵoj jam de longe malpligrandiĝis. Li do reiris Londonon kaj
-
-
-JANE EYRE
+ŝi rifuzis, ĉar pro lia diboĉado kaj ekstravagancoj ŝiaj posedaĵoj jam de longe malpligrandiĝis. Li do reiris Londonon kaj
 
 
 la lasta, kion ni aŭdis pri li, estis lia mortsciigo. Dio scias, kiel
@@ -210,9 +159,7 @@ Robert Leaven parolis plie:
 
 sed ne estas sufiĉe forta; kaj la perdo de mono kaj la timo
 
-antaŭ la malriĉeco preskaŭ ruinigis ŝin. La mortsciigo pri sin-
-
-joro John kaj la kaŭzo de lia morto venis tro subite: ĝi kaŭzis
+antaŭ la malriĉeco preskaŭ ruinigis ŝin. La mortsciigo pri sinjoro John kaj la kaŭzo de lia morto venis tro subite: ĝi kaŭzis
 
 apopleksion. Dum tri tagoj ŝi povis eligi neniun vorton, sed
 
@@ -220,9 +167,7 @@ pasintan mardon ŝi ŝajnis iom resaniĝi; estis kvazaŭ ŝi volas
 
 ion diri, ĉar seninterrompe ŝi faris signojn al mia edzino kaj
 
-murmuris nekompreneblajn vortojn. Nur hieraŭ matene Bes-
-
-sie povis kompreni, ke ŝi elparolas vian nomon, kaj fine ŝi tre
+murmuris nekompreneblajn vortojn. Nur hieraŭ matene Bessie povis kompreni, ke ŝi elparolas vian nomon, kaj fine ŝi tre
 
 klare komprenis, ke ŝi diras: Voku ĉi tien Jane — — voku Jane
 
@@ -236,49 +181,32 @@ kaj konsilis al ili voki vin. Komence la junaj fraŭlinoj ne volis
 
 konsenti pri tio; sed ilia patrino iĝis tiel malkvieta kaj tiel ofte
 
-ŝi kriis: ”Jane! Jane! Jane!” ke fine ili konsentis. Hieraŭ mi for-
-
-iris de Gateshead; kaj volonte mi kunprenus vin kun mi, se vi
+ŝi kriis: ”Jane! Jane! Jane!” ke fine ili konsentis. Hieraŭ mi foriris de Gateshead; kaj volonte mi kunprenus vin kun mi, se vi
 
 povus esti preta morgaŭ.”
 
-”Jes, Robert, mi estos preta. ŝajnas al mi, ke estas dezirin-
-
-de, ke mi iru.”
+”Jes, Robert, mi estos preta. ŝajnas al mi, ke estas dezirinde, ke mi iru.”
 
 ”Tion mi ankaŭ opinias, fraŭlino; Bessie diris, ke vi tute ne
 
 rifuzos. Sed vi devos peti forpermeson antaŭ ol iri, ĉu ne?”
 
-”Certe, kaj mi petos ĝin tuj.” Mi kondukis lin en la ĉam-
+”Certe, kaj mi petos ĝin tuj.” Mi kondukis lin en la ĉambron de la servistaro, kaj rekomendinte lin al la zorgoj de la
 
-bron de la servistaro, kaj rekomendinte lin al la zorgoj de la
-
-edzino de John kaj al la afablaĵoj de John, mi iris serĉi sin-
-
-joron Rochester.
-
-
-JANE EYRE
+edzino de John kaj al la afablaĵoj de John, mi iris serĉi sinjoron Rochester.
 
 
 Li estis en neniu el la ĉambroj de la teretaĝo, li ne estis sur
 
-la korto, nek en la staloj, nek en la parko. Mi demandis al sin-
-
-jorino Fairfax, ĉu ŝi vidis lin; — jes, ŝi kredis, ke li estas en la
+la korto, nek en la staloj, nek en la parko. Mi demandis al sinjorino Fairfax, ĉu ŝi vidis lin; — jes, ŝi kredis, ke li estas en la
 
 bilardĉambro ludante kun fraŭlino Ingram. Mi tuj rapidis en
 
-la bilardejon. La interkunpuŝado de la bilardpilkoj kaj la mur-
-
-murado de voĉoj penetris renkonte al mi. Sinjoro Rochester,
+la bilardejon. La interkunpuŝado de la bilardpilkoj kaj la murmurado de voĉoj penetris renkonte al mi. Sinjoro Rochester,
 
 fraŭlino Ingram kaj la du fratinoj Eshton kaj ties admirantoj
 
-— ĉiuj vigle okupis sin pri la ludado. Kelkaj minutoj estis ne-
-
-cesaj por interrompi la ludadon de tia eminenta societo; miaj
+— ĉiuj vigle okupis sin pri la ludado. Kelkaj minutoj estis necesaj por interrompi la ludadon de tia eminenta societo; miaj
 
 aferoj estis tamen tiaj, ke ili ne suferis prokraston; mi tial
 
@@ -294,15 +222,11 @@ tiu ŝteliranta kreitaĵo?” Kaj kiam mi per mallaŭta voĉo diris:
 
 deziron ordoni al mi tuj malproksimiĝi. Ankoraŭ nun ŝia
 
-apero kvazaŭ staras antaŭ mi — ŝi estis tiel gracia kaj karak-
-
-teriza. ŝi portis matenkostumon el ĉielblua krepo, diafana
+apero kvazaŭ staras antaŭ mi — ŝi estis tiel gracia kaj karakteriza. ŝi portis matenkostumon el ĉielblua krepo, diafana
 
 lazurkolora rubando kvazaŭ serpentumis tra ŝiaj harbukloj.
 
-Kun viva intereso ŝi estis sekvinta la ludadon, kaj kolera fie-
-
-reco ne povis malbeligi la fierajn trajtojn de ŝia ĉarma vizaĝo.
+Kun viva intereso ŝi estis sekvinta la ludadon, kaj kolera fiereco ne povis malbeligi la fierajn trajtojn de ŝia ĉarma vizaĝo.
 
 ”ĉu tiu persono deziras ion de vi?” ŝi demandis turnante
 
@@ -321,9 +245,6 @@ instrueja pordo, kiun li ĵus fermis.
 ”Sinjoro, mi venis por peti al vi forpermeson dusemajnan.”
 
 ”Pro kio? Kien vi iros?”
-
-
-JANE EYRE
 
 
 ”Mi volas viziti malsanan sinjorinon, kiu vokigas min.”
@@ -346,9 +267,7 @@ estis magistrato.”
 
 ”Kaj kiujn interrilatojn vi havas kun ŝi? Kiel vi konas ŝin?”
 
-”Sinjoro Reed estis mia onklo, la frato de mia mortinta pa-
-
-trino.”
+”Sinjoro Reed estis mia onklo, la frato de mia mortinta patrino.”
 
 ”Pro la diablo! ĉu li estis? Kial vi jam longe ne diris tion al
 
@@ -387,12 +306,7 @@ ke ŝin atakis apopleksio.”
 ”Kaj kion vi povos fari por ŝi? Sensencaĵo, Jane! Neniam mi
 
 
-JANE EYRE
-
-
-pensus pri tio fari centmejlan vojaĝon por vidi maljunan sin-
-
-jorinon, kiu eble jam estos mortinta, kiam vi atingos ŝin.
+pensus pri tio fari centmejlan vojaĝon por vidi maljunan sinjorinon, kiu eble jam estos mortinta, kiam vi atingos ŝin.
 
 Krom tio vi ja ĵus rakontis, ke ŝi forpuŝis vin de si.”
 
@@ -434,9 +348,7 @@ Sinjoro Rochester pripensis.
 
 ”Morgaŭ, jam tre frue, sinjoro.”
 
-”Bone. Sed vi bezonos monon; vi ne povos vojaĝi sen mo-
-
-no kaj mi kredas, ke vi havas nur malmulte. Mi ne pagis al vi
+”Bone. Sed vi bezonos monon; vi ne povos vojaĝi sen mono kaj mi kredas, ke vi havas nur malmulte. Mi ne pagis al vi
 
 ankoraŭ vian salajron. Kiom vi posedas ankoraŭ, Jane?” li
 
@@ -449,9 +361,6 @@ Mi aperigis mian monujon; ĝi estis preskaŭ malplena.
 Li prenis la monujon, ŝutis ĝian tutan enhavon sur sian
 
 
-JANE EYRE
-
-
 manon kaj ridis, kvazaŭ tiu sumeto kaŭzis al li plezuron. Tuj
 
 poste li eltiris sian monujon:
@@ -462,19 +371,13 @@ li ŝuldis al mi nur dekkvin funtojn. Mi diris, ke mi ne povas
 
 ŝanĝi ĝin.
 
-”Vi ja ne bezonas ŝanĝi ĝin, tion vi scias. i estas via salaj-
+”Vi ja ne bezonas ŝanĝi ĝin, tion vi scias. i estas via salajro!”
 
-ro!”
-
-Mi rifuzis akcepti pli multe ol mi rajtis. Li sulkigis la frun-
-
-ton. Fine li diris kvazaŭ subite lin trafis penso:
+Mi rifuzis akcepti pli multe ol mi rajtis. Li sulkigis la frunton. Fine li diris kvazaŭ subite lin trafis penso:
 
 ”Jes, jes, vi tute pravas! Estas pli bone ne tuj doni al vi ĉion.
 
-Posedante kvindek funtojn, vi povus decidi forresti tri mona-
-
-tojn. Jen dek funtoj; ĉu tio sufiĉos?”
+Posedante kvindek funtojn, vi povus decidi forresti tri monatojn. Jen dek funtoj; ĉu tio sufiĉos?”
 
 ”Jes, sinjoro. Sed vi ŝuldos al mi ankoraŭ kvin.”
 
@@ -482,15 +385,11 @@ tojn. Jen dek funtoj; ĉu tio sufiĉos?”
 
 kvar dek funtoj.”
 
-”Sinjoro Rochester, volonte mi parolus kun vi pri alia afe-
-
-ro, se vi havos la tempon.”
+”Sinjoro Rochester, volonte mi parolus kun vi pri alia afero, se vi havos la tempon.”
 
 ”Alia afero? Mi estas scivola aŭdi ĝin.”
 
-”Vi kvazaŭ sciigis al mi, ke post mallonga tempo vi edzi-
-
-ĝos.”
+”Vi kvazaŭ sciigis al mi, ke post mallonga tempo vi edziĝos.”
 
 ”Jes, kio poste?”
 
@@ -510,25 +409,15 @@ devos iri — al la diablo?”
 
 funkcion.”
 
-”Tio ne urĝas!” li kriis akravoĉe dum distordiĝis liaj vizaĝ-
-
-
-JANE EYRE
-
-
-trajtoj, kiuj esprimis ion komikan kaj samtempe ion tragikan.
+”Tio ne urĝas!” li kriis akravoĉe dum distordiĝis liaj vizaĝtrajtoj, kiuj esprimis ion komikan kaj samtempe ion tragikan.
 
 Poste li rigardis min kelkajn minutojn.
 
-”Supozeble la maljuna sinjorino Reed kaj ŝiaj filinoj klopo-
-
-dos havigi al vi funkcion, ĉu ne?”
+”Supozeble la maljuna sinjorino Reed kaj ŝiaj filinoj klopodos havigi al vi funkcion, ĉu ne?”
 
 ”Ne sinjoro. Miaj interrilatoj kun miaj parencoj ne estas
 
-tiaj, ke mi havos la rajton ricevi de ili favorojn. Sed mi anon-
-
-cos en la ĵurnaloj.”
+tiaj, ke mi havos la rajton ricevi de ili favorojn. Sed mi anoncos en la ĵurnaloj.”
 
 ”Vi supreniros la piramidojn de Egiptujo!” li grumblis.
 
@@ -540,9 +429,7 @@ funtojn, Jane; mi bezonas ilin.”
 
 ”Bezonu ilin, sinjoro,” mi respondis dum mi metis la
 
-manojn kun la monujo malantaŭ min. ”Sub neniu cirkon-
-
-stanco mi povos forvojaĝi sen tiu mono.”
+manojn kun la monujo malantaŭ min. ”Sub neniu cirkonstanco mi povos forvojaĝi sen tiu mono.”
 
 ”Malgranda avarulino!” li diris, ”vi vere rifuzas al mi tiun
 
@@ -566,18 +453,13 @@ monpeton! Donu al mi kvin funtojn, Jane.”
 
 vi. Mi sufiĉe frue trovos ĝin.”
 
-”Tion mi volonte promesos, sinjoro, kondiĉe ke vi viaflan-
-
-ke promesos al mi zorgi pri tio, ke mi kaj Adèle estos feliĉe
+”Tion mi volonte promesos, sinjoro, kondiĉe ke vi viaflanke promesos al mi zorgi pri tio, ke mi kaj Adèle estos feliĉe
 
 eksterdome, antaŭ ol via juna edzino ĝin eniros.”
 
 ”Tre bone, tre bone! Interkonsentite! Vi do forvojaĝos
 
 morgaŭ?”
-
-
-JANE EYRE
 
 
 ”Jes, sinjoro, jam tre frue.”
@@ -622,9 +504,7 @@ ne, — ankaŭ tio ne kontentigus min. Vi do volas nenion alian
 
 krom diri al mi adiaŭ, Jane?”
 
-”Tio sufiĉas, sinjoro; unu sola vorto enhavas ofte pli mul-
-
-tan korecon ol multaj aliaj!”
+”Tio sufiĉas, sinjoro; unu sola vorto enhavas ofte pli multan korecon ol multaj aliaj!”
 
 ”Eble! Sed ĝi tamen sonos sensignife kaj malvarme, tiu —
 
@@ -632,16 +512,11 @@ adiaŭ!”
 
 ”Kiom longe li restos ankoraŭ tie staranta kun la dorso
 
-apogita al la pordo?” mi demandis min, ”mi volonte komen-
-
-cus la pakadon.”
+apogita al la pordo?” mi demandis min, ”mi volonte komencus la pakadon.”
 
 La maten-sonorilo eksonoris kaj subite, dirante plu nenion
 
 li forpafiĝis tra la pordo. Tiun tagon mi lin ne revidis kaj la
-
-
-JANE EYRE
 
 
 sekvantan matenon mi jam longe estis survoje, antaŭ ol iu en
@@ -656,15 +531,11 @@ domon, mi eniris la dometon de Leaven apud la parko. i
 
 estis eksterordinare pura kaj beleta. Antaŭ la arkitekturaj
 
-belaj fenestroj pendis malgrandaj blankaj kurtenoj; la plan-
-
-ko estis senmakula; la fajrujo kaj la fajroprenilo estis brile
+belaj fenestroj pendis malgrandaj blankaj kurtenoj; la planko estis senmakula; la fajrujo kaj la fajroprenilo estis brile
 
 poluritaj kaj gaje la fajro flamis. Bessie sidis apud la fajrujo kaj
 
-suĉigis sian nove naskiton kaj Robert ludis kviete kun sia fra-
-
-tineto en angulo de la ĉarma ĉambro.
+suĉigis sian nove naskiton kaj Robert ludis kviete kun sia fratineto en angulo de la ĉarma ĉambro.
 
 ”Dio vin benu! — mi ja sciis, ke vi venos!” kriis sinjorino
 
@@ -688,9 +559,7 @@ semajnojn; sed resaniĝon ni ne povas atendi.”
 
 nun ŝi dormas. Almenaŭ ŝi dormis, kiam mi antaŭ dek
 
-minutoj estis en ŝia domo. En la lastaj tagoj ŝi preskaŭ senin-
-
-terrompe la tutan posttagmezon kuŝas en speco de letargio
+minutoj estis en ŝia domo. En la lastaj tagoj ŝi preskaŭ seninterrompe la tutan posttagmezon kuŝas en speco de letargio
 
 kaj nur rekonekscias je la sesa aŭ sepa horo. ĉu vi volas ripozi
 
@@ -700,17 +569,10 @@ Robert eniris, kaj Bessie kuŝigis la dormantan infanon en
 
 la lulilon por salute renkonti lin.
 
-Poste ŝi insistis pri tio, ke mi demetu mian ĉapelon kaj trin-
-
-ku tason da teo; ĉar mi aspektas tiel laca kaj pala, ŝi diris. Mi
+Poste ŝi insistis pri tio, ke mi demetu mian ĉapelon kaj trinku tason da teo; ĉar mi aspektas tiel laca kaj pala, ŝi diris. Mi
 
 
-JANE EYRE
-
-
-estis ĝoja kaj danke akceptis ŝian inviton. Same nekontraŭsta-
-
-reble kiel mi lasis min senvestigi de ŝi, kiam mi estis ankoraŭ
+estis ĝoja kaj danke akceptis ŝian inviton. Same nekontraŭstareble kiel mi lasis min senvestigi de ŝi, kiam mi estis ankoraŭ
 
 infano, mi ankaŭ nun konsentis, ke ŝi forprenu de mi miajn
 
@@ -720,9 +582,7 @@ Kiel denove vidiĝis la iama tempo en mia rememoro, kiam
 
 mi rigardis ŝiajn agemajn multmovecojn! ŝi metis la plej
 
-bonan porcelanan teservicon sur la tablon, tranĉis la buter-
-
-panojn, rostis kuketon kaj donis jen al la malgranda Robert
+bonan porcelanan teservicon sur la tablon, tranĉis la buterpanojn, rostis kuketon kaj donis jen al la malgranda Robert
 
 jen al la malgranda Jane frapeton aŭ puŝegon — ĝuste kiel ŝi
 
@@ -740,9 +600,7 @@ sidanta. ŝi daŭrigis: ”Mi volas servi al vi dum vi sidas apud la
 
 fajrujo”; poste ŝi metis antaŭ min etan, rondan tablon kun
 
-taso kaj telero plena de rostitaj buterpanoj; same kiel ŝi pri-
-
-zorgis min en pasintaj jaroj, per iel sekrete akirita frandaĵo,
+taso kaj telero plena de rostitaj buterpanoj; same kiel ŝi prizorgis min en pasintaj jaroj, per iel sekrete akirita frandaĵo,
 
 kiam mi sidis en mia infanseĝo. Ridetante mi obeis, kiel en
 
@@ -769,40 +627,27 @@ interesis ŝin.
 Dum tiuj interparoloj unu horo rapidege pasis. Bessie
 
 
-JANE EYRE
-
-
 reportis al mi miajn ĉapelon kaj ŝalojn kaj kondukate de ŝi, mi
 
 eliris la dometon por direkti min al la sinjora loĝejo. Ankaŭ
 
-akompanate de ŝi mi antaŭ ĉirkaŭ naŭ jaroj laŭiris la pied-
-
-vojon, kiun mi nun laŭiris. En malluma, nebula, sovaĝa ma-
+akompanate de ŝi mi antaŭ ĉirkaŭ naŭ jaroj laŭiris la piedvojon, kiun mi nun laŭiris. En malluma, nebula, sovaĝa ma-
 
 teno de januaro mi estis forlasinta la malamikan loĝejon kaj
 
-tion mi faris kun senespero kaj ĉagrenplena koro — kun sen-
+tion mi faris kun senespero kaj ĉagrenplena koro — kun sentoj de ekzilito kaj malbenito — por serĉi malvarman havenon
 
-toj de ekzilito kaj malbenito — por serĉi malvarman havenon
-
-en Lowood: en tiu malproksima kaj por mi nekonata restad-
-
-ejo. La sama malamika domo jen denove leviĝis antaŭ mi.
+en Lowood: en tiu malproksima kaj por mi nekonata restadejo. La sama malamika domo jen denove leviĝis antaŭ mi.
 
 Ankoraŭ ĉiam miaj perspektivoj estis dubaj, ankoraŭ ĉiam
 
-mia koro doloris al mi kaj ankoraŭ mi estis la soleca vagan-
-
-tino sur ĉi tiu tero; sed mi fidis min mem kaj mian propran
+mia koro doloris al mi kaj ankoraŭ mi estis la soleca vagantino sur ĉi tiu tero; sed mi fidis min mem kaj mian propran
 
 forton; la timon antaŭ la subpremado mi ne sentis plu. La
 
 profundaj vundoj, kiujn en la tagoj de mia infaneco oni estis
 
-kaŭzinta al mi, estis nun resaniĝintaj; la flamo de mia venĝo-
-
-sentoj estingiĝis.
+kaŭzinta al mi, estis nun resaniĝintaj; la flamo de mia venĝosentoj estingiĝis.
 
 ”Unue vi devos iri en la matenmanĝejon; la junaj fraŭlinoj
 
@@ -810,30 +655,19 @@ eble estos tie.”
 
 Post momento ni estis en tiu ĉambro.
 
-ĉiuj mebloj staris ankoraŭ sur la sama loko, kiel tiun ma-
-
-tenon, kiam la unuan fojon mi tie estis prezentita al sinjoro
+ĉiuj mebloj staris ankoraŭ sur la sama loko, kiel tiun matenon, kiam la unuan fojon mi tie estis prezentita al sinjoro
 
 Brocklehurst; la tapiŝo, sur kiu mi tiam staris, kuŝis ankoraŭ
 
-antaŭ la fajrejo. Kiam miaj rigardoj ŝvebis laŭlonge de la lib-
+antaŭ la fajrejo. Kiam miaj rigardoj ŝvebis laŭlonge de la libroŝranko kun ĝia enhavo, estis al mi, kvazaŭ tiuj du verkoj de
 
-roŝranko kun ĝia enhavo, estis al mi, kvazaŭ tiuj du verkoj de
+Bewick: ”La birdoj de Anglujo”, staras ankoraŭ sur sia malnova loko sur la tria breto, kaj ”La vojaĝoj de Guliver” kaj ”Mil
 
-Bewick: ”La birdoj de Anglujo”, staras ankoraŭ sur sia malno-
-
-va loko sur la tria breto, kaj ”La vojaĝoj de Guliver” kaj ”Mil
-
-kaj unu noktoj” staris super ili kiel antaŭe. La senvivaj objek-
-
-toj restis tute sen ŝanĝo, sed la homoj estis ĝis nerekoneblo
+kaj unu noktoj” staris super ili kiel antaŭe. La senvivaj objektoj restis tute sen ŝanĝo, sed la homoj estis ĝis nerekoneblo
 
 aliiĝintaj.
 
 Mi vidis antaŭ mi du junajn personojn; unu estis tre alta,
-
-
-JANE EYRE
 
 
 eble tiel alta kiel fraŭlino Ingram, tre maldika kun pala vizaĝo
@@ -844,13 +678,9 @@ montris ankoraŭ pli multe la eksterordinare simpla nigra lana
 
 vesto kun glata robo, blanka tola kolumo, rekte el la frunto
 
-kombitaj haroj kaj mona˛ina ornamaĵo, konsistanta el ebo-
+kombitaj haroj kaj mona˛ina ornamaĵo, konsistanta el ebona perlaro kun pendanta granda krucifikso. Sen iu dubo, ŝi
 
-na perlaro kun pendanta granda krucifikso. Sen iu dubo, ŝi
-
-nepre estis Eliza, kvankam la longforma, pala vizaĝo malmul-
-
-te similis tiun de la iama Eliza.
+nepre estis Eliza, kvankam la longforma, pala vizaĝo malmulte similis tiun de la iama Eliza.
 
 Kaj same sen dubo tiu alia nepre estis Georgiana, sed ne
 
@@ -858,15 +688,11 @@ tiu, kiun mi povis memori, tiu gracilonga, blonda dekunujara
 
 knabino.
 
-ĉi tiu estis plenkreska fraŭlino en sia plena florado, blan-
-
-ka kaj delikata kiel vakso, kun regulaj vizaĝtrajtoj, bluaj oku-
+ĉi tiu estis plenkreska fraŭlino en sia plena florado, blanka kaj delikata kiel vakso, kun regulaj vizaĝtrajtoj, bluaj oku-
 
 loj kaj buklaj flavaj haroj. Ankaŭ ŝi portis nigran veston; la
 
-formo de tiu vesto tamen estis tiel diversa de tiu de ŝia frati-
-
-no — tiel pli laŭmoda kaj gracia — ke ĝi aspektis same moder-
+formo de tiu vesto tamen estis tiel diversa de tiu de ŝia fratino — tiel pli laŭmoda kaj gracia — ke ĝi aspektis same moder-
 
 na kiel la alia aspektis puritana.
 
@@ -882,31 +708,20 @@ iom pli molaj, tamen ili akrigis la alie tiel petorŝercan, ĉarman
 
 vizaĝon.
 
-Kiam mi iris al la du fratinoj, ili leviĝis por diri al mi bon-
-
-venon, kaj ambaŭ alparolis min kiel fraŭlinon Eyre. La salu-
+Kiam mi iris al la du fratinoj, ili leviĝis por diri al mi bonvenon, kaj ambaŭ alparolis min kiel fraŭlinon Eyre. La salu-
 
 to de Eliza estis elparolata en mallonga, abrupta maniero, kaj
 
-dume ŝia vizaĝo eĉ ne montris rideton. Post la reciproka salu-
-
-to ŝi residiĝis, direktis siajn rigardojn sur la fajrejon kaj ŝajnis
+dume ŝia vizaĝo eĉ ne montris rideton. Post la reciproka saluto ŝi residiĝis, direktis siajn rigardojn sur la fajrejon kaj ŝajnis
 
 ne plu rimarki mian ĉeeston. Georgiana kontraŭe aldonis al
 
 sia: ”Kiel vi fartas?” kelkajn pluajn ĉiutagajn rimarkojn pri
 
 
-JANE EYRE
+mia vojaĝo, pri la vetero kaj tiel plu. ŝi parolis kun malrapida, tirtona kartava voĉo kaj dume per siaj rigardoj oblikve
 
-
-mia vojaĝo, pri la vetero kaj tiel plu. ŝi parolis kun malrapi-
-
-da, tirtona kartava voĉo kaj dume per siaj rigardoj oblikve
-
-observis min de la kapo ĝis la piedoj; jen ŝi kvazaŭ ekzame-
-
-nis la faldojn de mia bruna merinosa peltmantelo, jen ŝiaj
+observis min de la kapo ĝis la piedoj; jen ŝi kvazaŭ ekzamenis la faldojn de mia bruna merinosa peltmantelo, jen ŝiaj
 
 okuloj ripozis sur mia tre simpla vojaĝĉapelo. Junaj fraŭlinoj
 
@@ -926,17 +741,11 @@ Mokrideto, ĉu kaŝita ĉu malkaŝita ne plu faris sur min la
 
 impreson, kiun alie ĝi kutimis fari. Tiel sidante tie inter miaj
 
-kuzinoj, mi estis mirigita pri la indiferenteco, kiun al mi kaŭ-
+kuzinoj, mi estis mirigita pri la indiferenteco, kiun al mi kaŭzis la kompleta malatento de unu kaj la duone sarkasma ĝen-
 
-zis la kompleta malatento de unu kaj la duone sarkasma ĝen-
+tileco de la alia. Eliza ne estis kapabla humiligi min, Georgiana ne povis ĝeni mian trankvilecon.
 
-tileco de la alia. Eliza ne estis kapabla humiligi min, Geor-
-
-giana ne povis ĝeni mian trankvilecon.
-
-Mi vere havis aliajn aferojn por pripensi. Dum la lastaj mo-
-
-natoj min regis sentoj, kiuj estis tiom pli potencaj ol kiuj ajn
+Mi vere havis aliajn aferojn por pripensi. Dum la lastaj monatoj min regis sentoj, kiuj estis tiom pli potencaj ol kiuj ajn
 
 kapablaj veki ilin —, tial la mienoj de ĉi tiuj du fraŭlinoj ne
 
@@ -959,9 +768,6 @@ malbone. Mi kredas, ke vi ne povos vidi ŝin hodiaŭ vespere.”
 sciigi, ke mi alvenis.”
 
 
-JANE EYRE
-
-
 Georgiana videble ektimis kaj larĝe, sovaĝe malfermis siajn
 
 bluajn okulojn.
@@ -972,35 +778,25 @@ bluajn okulojn.
 
 ol estas absolute necese.”
 
-”Patrino ne volas esti ĝenata vespere,” rimarkis Eliza. Bal-
-
-daŭ poste mi leviĝis, kviete neinvitite demetis mian ĉapelon
+”Patrino ne volas esti ĝenata vespere,” rimarkis Eliza. Baldaŭ poste mi leviĝis, kviete neinvitite demetis mian ĉapelon
 
 kaj miajn gantojn kaj diris, ke mi volas iri al Bessie — kiu
 
-supozeble estas en la kuirejo — por peti ŝin informiĝi, ĉu sin-
-
-jorino Reed dezirus vidi min ankoraŭ tiun vesperon. Mi iris,
+supozeble estas en la kuirejo — por peti ŝin informiĝi, ĉu sinjorino Reed dezirus vidi min ankoraŭ tiun vesperon. Mi iris,
 
 kaj trovinte Bessie kaj sendinte ŝin kun mia komisio, mi
 
 daŭrigis miajn aranĝojn.
 
-is tiu tempo mi ĉiam kutimis retiri min post ĉiu arogan-
-
-taĵo; se antaŭ unu jaro oni estus ricevinta min kiel hodiaŭ en
+is tiu tempo mi ĉiam kutimis retiri min post ĉiu arogantaĵo; se antaŭ unu jaro oni estus ricevinta min kiel hodiaŭ en
 
 Gateshead, mi jam estus elirinta el domo; sed nun mi subite
 
-vidis, ke tio estus tre malsaĝa ago. Mi estis farinta pli ol cent-
-
-mejlan vojaĝon por vidi mian onklinon kaj devis resti ĝis ŝi
+vidis, ke tio estus tre malsaĝa ago. Mi estis farinta pli ol centmejlan vojaĝon por vidi mian onklinon kaj devis resti ĝis ŝi
 
 resaniĝis aŭ — estis mortinta. Mi ne atentis la fierecon kaj la
 
-malsaĝecon de ŝiaj filinoj — kaj sentis min antaŭ ili tute sen-
-
-dependa.
+malsaĝecon de ŝiaj filinoj — kaj sentis min antaŭ ili tute sendependa.
 
 Mi tial direktis min al la mastrumistino, postulis de ŝi, ke
 
@@ -1020,13 +816,7 @@ Mi ne bezonis kondukiston al la bone konata ĉambro. Kiel
 
 ofte en pasintaj tagoj mi estis tien vokita por ricevi riproĉon
 
-aŭ punon. Mi antaŭiris Bessie kaj singarde kaj senbrue mal-
-
-
-JANE EYRE
-
-
-fermis la pordon. La lampon sur la tablo kovris ŝirmilo. La
+aŭ punon. Mi antaŭiris Bessie kaj singarde kaj senbrue malfermis la pordon. La lampon sur la tablo kovris ŝirmilo. La
 
 vasta lito kun la sukcenkoloraj kurtenoj staris tie kiel en
 
@@ -1052,15 +842,11 @@ Tre bone mi memoris la vizaĝon de sinjorino Reed kaj
 
 diligente serĉis la konatajn trajtojn. Estas vere feliĉe, ke la
 
-ĉion-kvietiganta tempo ankaŭ sufokas la venĝdeziron kaj pli-
-
-mildigas la inspirojn de kolero kaj abomeno: de ĉi tiu virino
+ĉion-kvietiganta tempo ankaŭ sufokas la venĝdeziron kaj plimildigas la inspirojn de kolero kaj abomeno: de ĉi tiu virino
 
 mi estis foririnta kun amara koro kaj malamo, nun mi reiris
 
-al ŝi kun neniu alia sento ol speco de kompato pro ŝiaj gran-
-
-daj suferoj, kaj interna deziro pardoni ĉiun malbonon kaj por
+al ŝi kun neniu alia sento ol speco de kompato pro ŝiaj grandaj suferoj, kaj interna deziro pardoni ĉiun malbonon kaj por
 
 forgesi — por reamikiĝi kaj premi ŝian manon kiel amikino.
 
@@ -1070,9 +856,7 @@ La konata vizaĝo estis tie: malhela, severa, senkompata kiel
 
 kapablis moligi — tiuj okuloj, kiuj antaŭe fulme sendis al mi
 
-nur malamon kaj koleron kaj minacojn! Kiel vekiĝis la memo-
-
-ro al la angoro kaj al la mizero de mia juneco, kiam mi revi-
+nur malamon kaj koleron kaj minacojn! Kiel vekiĝis la memoro al la angoro kaj al la mizero de mia juneco, kiam mi revi-
 
 dis tiujn akrajn vizaĝtrajtojn! Tamen mi kliniĝis super ŝi kaj
 
@@ -1087,12 +871,7 @@ kisis ŝin.
 Iam mi ĵuris, ke neniam plu mi nomos ŝin onklino. Sed
 
 
-JANE EYRE
-
-
-rompon de tiu ĵuro mi ne rigardis kiel pekon en tiu momen-
-
-to. Miaj fingroj ĉirkaŭprenis la manon, kiu kuŝis sur la lito-
+rompon de tiu ĵuro mi ne rigardis kiel pekon en tiu momento. Miaj fingroj ĉirkaŭprenis la manon, kiu kuŝis sur la lito-
 
 kovrilo: se ŝi estus preminta mian, mi sentus varman kaj
 
@@ -1110,13 +889,9 @@ opinioj rilate al mi ne ŝanĝiĝis kaj restos neŝanĝeblaj. ŝiaj
 
 ŝtoniĝintaj okuloj, kiuj neniam malsekiĝis de larmoj kaj
 
-neniam ardis pro koreco, klare montris al mi, ke ŝi firme deci-
+neniam ardis pro koreco, klare montris al mi, ke ŝi firme decidis rigardi min ĝis sia lasta elspiro kiel malbonan estaĵon; ĉar
 
-dis rigardi min ĝis sia lasta elspiro kiel malbonan estaĵon; ĉar
-
-kredi min bona ne kaŭzus al ŝi plezuron — tio kontraŭe kaŭ-
-
-zus al ŝi humiligon.
+kredi min bona ne kaŭzus al ŝi plezuron — tio kontraŭe kaŭzus al ŝi humiligon.
 
 Mi sentis doloron, poste min ekregis kolereto kaj fine mi
 
@@ -1151,9 +926,6 @@ deziras tuj diri — kio do ĝi estas? — —”
 ŝia vaganta rigardo kaj la aliiĝinta voĉo klare montris al mi,
 
 
-JANE EYRE
-
-
 kiel multe la neniigo de ĉi tiu, antaŭe tiel fortika korpo, jam
 
 progresis. Malkviete ŝi moviĝis tien kaj reen dum ŝiaj fingroj
@@ -1172,13 +944,9 @@ tenante la litkovrilon! ĉu vere vi estas Jane Eyre?”
 
 ĉagrenon ol povus kredi kiu ajn. Estis terure ŝovi sur min tian
 
-ŝarĝon! Kaj kiom da ĉagreno ŝi kaŭzis al mi ĉiutage kaj ĉiu-
+ŝarĝon! Kaj kiom da ĉagreno ŝi kaŭzis al mi ĉiutage kaj ĉiuhore pro sia nekomprenebla karaktero, pro siaj ekboloj de
 
-hore pro sia nekomprenebla karaktero, pro siaj ekboloj de
-
-kolero kaj siaj nenaturaj, seninterrompaj spionadoj kaj sub-
-
-aŭskultoj rilate al ĉio, kion ni faris! Mi povas certigi, ke iun
+kolero kaj siaj nenaturaj, seninterrompaj spionadoj kaj subaŭskultoj rilate al ĉio, kion ni faris! Mi povas certigi, ke iun
 
 tagon ŝi parolis al mi kiel frenezulino — kiel vera diablo —
 
@@ -1192,43 +960,26 @@ mortis. Sed ŝi — ŝi ne mortis. Malgraŭ tio mi diris, ke ŝi estas
 
 mortinta! Ho kiel arde mi nun deziras, ke vere ŝi mortus!”
 
-”Stranga deziro, sinjorino Reed! Kial do vi tiel ŝin mala-
+”Stranga deziro, sinjorino Reed! Kial do vi tiel ŝin malamas?”
 
-mas?”
+”ĉiam mi malamis ŝian patrinon, ĉar ŝi estis la sola fratino de mia edzo kaj li amis ŝin kun grandega amo. Li kon-
 
-”ĉiam mi malamis ŝian patrinon, ĉar ŝi estis la sola frati-
+traŭstaris, ke la familio forrifuzu ŝin, kiam ŝi faris tian abomenan mezaliancon. Kaj kiam venis la sciigo pri ŝia morto, li
 
-no de mia edzo kaj li amis ŝin kun grandega amo. Li kon-
+ploris kiel malsaĝulo. Li nepre volis, ke la infano estu transportata al li, kvankam mi petegis lin, ke li enpensionigu ĝin
 
-traŭstaris, ke la familio forrifuzu ŝin, kiam ŝi faris tian abome-
-
-nan mezaliancon. Kaj kiam venis la sciigo pri ŝia morto, li
-
-ploris kiel malsaĝulo. Li nepre volis, ke la infano estu trans-
-
-portata al li, kvankam mi petegis lin, ke li enpensionigu ĝin
-
-kaj pagu por la edukado. Mi jam ŝin malamis, kiam miaj oku-
-
-loj ŝin vidis por la unua fojo — ŝi estis malsaneta, plorema,
+kaj pagu por la edukado. Mi jam ŝin malamis, kiam miaj okuloj ŝin vidis por la unua fojo — ŝi estis malsaneta, plorema,
 
 mizera infano! Tutajn noktojn ŝi kutimis kuŝi en sia lulilo
 
 
-JANE EYRE
-
-
 daŭre plorante — ŝi ne ploris kore kaj forte kiel aliaj infanoj
 
-— ne, ŝi ĝemadis kaj bleketis. Reed ŝmpatis. Li ofte kare-
-
-sis kaj kvietigis ŝin, kvazaŭ propran infanon, li eĉ sin okupis
+— ne, ŝi ĝemadis kaj bleketis. Reed ŝmpatis. Li ofte karesis kaj kvietigis ŝin, kvazaŭ propran infanon, li eĉ sin okupis
 
 pri ŝi pli multe ol pri siaj propraj, kiam tiuj estis samaĝaj.
 
-Ankaŭ li klopodis, ke miaj infanoj kondutu amike al la mal-
-
-granda almozulino; sed ili ne povis ami ŝin kaj li koleretiĝis,
+Ankaŭ li klopodis, ke miaj infanoj kondutu amike al la malgranda almozulino; sed ili ne povis ami ŝin kaj li koleretiĝis,
 
 kiam ili montris siajn malestimon kaj malŝaton. En sia lasta
 
@@ -1238,9 +989,7 @@ morto li igis min ĵuri sanktan ĵuron, ke mi ĉiam vartos kaj
 
 restigos ĉe mi la kreitaĵon. Prefere mi estus preninta sur min
 
-la vartadon de infano el la malriĉulejo: sed Reed estis tiel mal-
-
-forta laŭ karaktero. John tute ne estas simila al sia patro — kaj
+la vartadon de infano el la malriĉulejo: sed Reed estis tiel malforta laŭ karaktero. John tute ne estas simila al sia patro — kaj
 
 pro tio mi ĝojas: John estas simila al mi kaj al miaj fratoj — li
 
@@ -1254,13 +1003,9 @@ fermi parton de la domo aŭ tute ludoni ĝin. Sed mi ne povas
 
 decidi fari tion — kaj tamen, kiel do ni vivos plu? Du trionoj
 
-de miaj enspezoj estas bezonataj por pagi la procenteg-ŝul-
+de miaj enspezoj estas bezonataj por pagi la procenteg-ŝuldojn. John terure hazardludas kaj konstante malgajnas, la
 
-dojn. John terure hazardludas kaj konstante malgajnas, la
-
-kompatindulo! Li estas ĉirkaŭata de nuraj sentaŭguloj kaj ŝte-
-
-listoj. John tute ruiniĝas — li aspektas terurige — mi hontas,
+kompatindulo! Li estas ĉirkaŭata de nuraj sentaŭguloj kaj ŝtelistoj. John tute ruiniĝas — li aspektas terurige — mi hontas,
 
 vidante lin.”
 
@@ -1279,30 +1024,21 @@ Mi leviĝis.
 ”Restu! ” kriis sinjorino Reed. ”Mi havas ankoraŭ ion alian
 
 
-JANE EYRE
-
-
 por diri. Li minacas min — senĉese minacas, ke li mortigos
 
-sin. Kaj kelkfoje mi sonĝas. ke mi vidas lin kun granda vun-
-
-do en la kolo aŭ kun sangmakulita, terurita, malpura vizaĝo.
+sin. Kaj kelkfoje mi sonĝas. ke mi vidas lin kun granda vundo en la kolo aŭ kun sangmakulita, terurita, malpura vizaĝo.
 
 Strangaj aferoj al mi okazas kaj mi estas en granda mizero.
 
 Sed kio estas farota? Kie mi prenos la monon?”
 
-Bessie klopodis decidigi ŝin, ke ŝi prenu retrankviligan me-
-
-dikamenton; kaj post multaj klopodoj ŝi sukcesis. Tuj poste
+Bessie klopodis decidigi ŝin, ke ŝi prenu retrankviligan medikamenton; kaj post multaj klopodoj ŝi sukcesis. Tuj poste
 
 sinjorino fariĝis pli kvieta kaj dronis en duondormo. Mi lasis
 
 ŝin sola.
 
-Pasis pli ol dek tagoj antaŭ ol ŝi donis al mi denove la oka-
-
-zon paroli kun ŝi. Daŭre ŝin atakis deliro aŭ la etargio kaj la
+Pasis pli ol dek tagoj antaŭ ol ŝi donis al mi denove la okazon paroli kun ŝi. Daŭre ŝin atakis deliro aŭ la etargio kaj la
 
 doktoro malpermesis ĉion, kio povus dolori ŝin. Intertempe
 
@@ -1314,9 +1050,7 @@ sidis kaj kudris, skribis aŭ legis, tute ne parolante al mi nek
 
 al sia fratino. Georgiana dum horoj parolis sensencaĵon al sia
 
-kanarieto, tute ne atentante min. Sed mi estis decidinta zor-
-
-gi pri distriĝo kaj amuzaĵoj, tial mi estis kunportinta mian
+kanarieto, tute ne atentante min. Sed mi estis decidinta zorgi pri distriĝo kaj amuzaĵoj, tial mi estis kunportinta mian
 
 pentraĵ-ilaron kaj ne enuis.
 
@@ -1324,9 +1058,7 @@ Kun multaj penikoj kaj kelkaj folioj da papero mi sidiĝis
 
 apud fenestro kaj pentris fantazi-vinjetojn, kiuj prezentis
 
-ĉiajn scenojn: mi pentris vidaĵon de la maro inter du ŝtone-
-
-goj; leviĝantan lunon kaj ŝipon pasantan la ruĝ-helan diskon;
+ĉiajn scenojn: mi pentris vidaĵon de la maro inter du ŝtonegoj; leviĝantan lunon kaj ŝipon pasantan la ruĝ-helan diskon;
 
 grupon da kanoj kaj akvoliliojn, super kiuj sin levis la kapo de
 
@@ -1336,21 +1068,14 @@ sovaĝaj rozoj elrigardas el nesto de akcentoro.
 
 Iun matenon mi komencis skizi vizaĝon, sed ne sciis kian.
 
-Mi prenis molan, nigran penikon, igis ĝin pinta kaj komen-
-
-cis diligente labori. Baldaŭ sur la papero staris larĝa, elstaran-
+Mi prenis molan, nigran penikon, igis ĝin pinta kaj komencis diligente labori. Baldaŭ sur la papero staris larĝa, elstaran-
 
 ta frunto, la linioj de la vizaĝo estis akraj kaj angulformaj. La
 
 
-JANE EYRE
-
-
 konturoj faris al mi plezuron kaj miaj fingroj vigle moviĝis
 
-por aldoni la ceterajn trajtojn. Akre konturiĝantaj, horizon-
-
-talaj brovoj devis esti metataj sub tiu frunto; poste sekvis bel-
+por aldoni la ceterajn trajtojn. Akre konturiĝantaj, horizontalaj brovoj devis esti metataj sub tiu frunto; poste sekvis bel-
 
 forma nazo kun rekta dorso kaj larĝaj nazaloj, kaj granda sed
 
@@ -1358,13 +1083,9 @@ moviĝebla buŝo; dika mentono kun sulko en la mezo; poste
 
 mi desegnis nigrajn vangharojn kaj nigrajn kapharojn. Kaj
 
-fine la okulojn. is nun mi ne estis desegninta ilin, ĉar ili be-
+fine la okulojn. is nun mi ne estis desegninta ilin, ĉar ili bezonis la plej grandan atenton. Mi desegnis ilin grandaj kaj
 
-zonis la plej grandan atenton. Mi desegnis ilin grandaj kaj
-
-donis al ili belan formon; la okulharoj fariĝis longaj kaj mal-
-
-helaj, la irisoj brilaj kaj grandaj. ”i estas bona, sed tute ne
+donis al ili belan formon; la okulharoj fariĝis longaj kaj malhelaj, la irisoj brilaj kaj grandaj. ”i estas bona, sed tute ne
 
 simila,” mi pensis, atente rigardante la portreton; ”mankas al
 
@@ -1378,9 +1099,7 @@ de amiko. Kaj estis al mi tute indiferente, ke la du fraŭlinoj
 
 turnis al mi la dorson. Mi rigardis la desegnaĵon kaj senvole
 
-ridetis pro la simileco. Mi kvazaŭ dronis en ĝi kaj estis kon-
-
-tenta.
+ridetis pro la simileco. Mi kvazaŭ dronis en ĝi kaj estis kontenta.
 
 ”ĉu tio estas la portreto de iu, kiun vi konas?” demandis
 
@@ -1398,16 +1117,11 @@ Georgiana venis por rigardi la portreton. La aliaj desegnaĵoj
 
 multe plaĉis al ŝi, sed la portreton ŝi nomis ”malbelega viro”.
 
-Ambaŭ ŝajnis miri pro mia lerteco. Mi proponis ankaŭ deseg-
-
-ni ilian portreton kaj ĉiu pozis tiucele. Poste Georgiana alpor-
+Ambaŭ ŝajnis miri pro mia lerteco. Mi proponis ankaŭ desegni ilian portreton kaj ĉiu pozis tiucele. Poste Georgiana alpor-
 
 tis al mi sian albumon. Mi promesis al ŝi akvarelon kaj per tio
 
 ŝi fariĝis bonhumora. ŝi proponis al mi promenadon en la
-
-
-JANE EYRE
 
 
 parko. Apenaŭ ni estis du horojn eksterdome, ni jam tre
@@ -1416,9 +1130,7 @@ intime interparolis. ŝi rakontis al mi pri brila vintro, kiun ŝi
 
 pasigis en Londono antaŭ du jaroj, ŝi rakontis pri la admiro,
 
-kiun ŝi ĝuis, kaj eĉ aludis grandan faritan venkon. En la post-
-
-tagmezo kaj en la vespero ŝi denove parolis pri tio kaj eĉ pli
+kiun ŝi ĝuis, kaj eĉ aludis grandan faritan venkon. En la posttagmezo kaj en la vespero ŝi denove parolis pri tio kaj eĉ pli
 
 klare; ŝi ripetis kelkajn korajn interparolojn, priskribis al mi
 
@@ -1428,9 +1140,7 @@ en tiu tago aron da noveloj de la fantazia vivo por amuzi min
 
 … ĉiutage ŝi rakontis al mi ion novan, tamen ĉiam pri tiu
 
-sama temo, koncerne sin mem, ĉiam rilate al ŝiaj amo kaj kor-
-
-doloro. Strange estis, ke neniam ŝi parolis per unu vorto pri
+sama temo, koncerne sin mem, ĉiam rilate al ŝiaj amo kaj kordoloro. Strange estis, ke neniam ŝi parolis per unu vorto pri
 
 la malsano de sia patrino, pri la terura morto de sia frato kaj
 
@@ -1444,23 +1154,15 @@ kvin minutojn en la ĉambro de sia malsana patrino, krom tio
 
 ŝi ne atentis ŝin.
 
-Eliza parolis malmulte; ŝajne ŝi ne havis la tempon inter-
-
-paroli kun mi. Neniam mi vidis pli laboreman personon. Mal-
+Eliza parolis malmulte; ŝajne ŝi ne havis la tempon interparoli kun mi. Neniam mi vidis pli laboreman personon. Mal-
 
 graŭ tio estus malfacile diri, kion fakte ŝi faris, aŭ pli bone
 
-dirite, kio estis la rezulto de ŝia laboremo. ŝi havis vekhorlo-
+dirite, kio estis la rezulto de ŝia laboremo. ŝi havis vekhorloĝon, kiu ĉiumatene vekis ŝin tre frue. Mi ne scias pri kio ŝi
 
-ĝon, kiu ĉiumatene vekis ŝin tre frue. Mi ne scias pri kio ŝi
+okupis sin antaŭ la matenmanĝo; post ĝi ŝi dividis sian tempon tre regule kaj ĉiu horo estis destinita al difinita tasko.
 
-okupis sin antaŭ la matenmanĝo; post ĝi ŝi dividis sian tem-
-
-pon tre regule kaj ĉiu horo estis destinita al difinita tasko.
-
-Trifoje ĉiutage ŝi studis en malgranda libro, pli atente rigar-
-
-dinte ĝin mi rimarkis, ke ĝi estas ”ĝenerala preĝaro”. Foje mi
+Trifoje ĉiutage ŝi studis en malgranda libro, pli atente rigardinte ĝin mi rimarkis, ke ĝi estas ”ĝenerala preĝaro”. Foje mi
 
 demandis al ŝi en kio sin kaŝas la forta allogado de tiu libro
 
@@ -1468,21 +1170,13 @@ kaj ŝi respondis: En la liturgio. Tri horojn ŝi pasigis stebante
 
 la borderon de kvarangula tuko, sufiĉe granda por utili kiel
 
-tapiŝo. Kiam mi demandis pri la celo de tiu objekto, ŝi respon-
-
-
-JANE EYRE
-
-
-dis, ke ĝi fariĝos altartuko por la preĝejo, konstruita antaŭ
+tapiŝo. Kiam mi demandis pri la celo de tiu objekto, ŝi respondis, ke ĝi fariĝos altartuko por la preĝejo, konstruita antaŭ
 
 nelonge en la proksimeco de Gateshead. Du horojn ŝi dediĉis
 
 al sia taglibro; du pluajn ŝi sola laboris en la kuireja ĝardeno;
 
-unu horon ŝi uzis por reguligi siajn kontojn kaj librojn. ŝaj-
-
-ne ŝi tute ne bezonis akompananton, nek konversacion. Mi
+unu horon ŝi uzis por reguligi siajn kontojn kaj librojn. ŝajne ŝi tute ne bezonis akompananton, nek konversacion. Mi
 
 kredas, ke ŝi en sia vivomaniero sentis sin tre feliĉa kaj tiu
 
@@ -1504,15 +1198,11 @@ havaĵo estu asekurita, kaj post la morto de sia patrino — ĉar
 
 estis tute neverŝajne, ke iam ĉi tiu resaniĝu, aŭ ke la nuna
 
-stato povu longe daŭri, ŝi tre kviete rimarkis — ŝi volus efek-
-
-tivigi jam antaŭ longe formitan intencon: nome serĉi rifu-
+stato povu longe daŭri, ŝi tre kviete rimarkis — ŝi volus efektivigi jam antaŭ longe formitan intencon: nome serĉi rifu-
 
 ĝejon tie, kie akurataj kutimoj malebligos ĉiamajn ĝenadojn,
 
-kaj starigos potencan intermuron inter ŝi kaj la malpia mon-
-
-do.
+kaj starigos potencan intermuron inter ŝi kaj la malpia mondo.
 
 Mi demandis: ĉu Georgiana akompanos vin?
 
@@ -1528,14 +1218,9 @@ sekvos sian.
 
 Kiam Georgiana ne senŝarĝigis al mi sian koron, ŝi pasigis
 
-sian tutan tempon sur la kanapo, plendante pri la mallume-
-
-co de la domo kaj senhalte ripetis la deziron, ke ŝia onklino
+sian tutan tempon sur la kanapo, plendante pri la mallumeco de la domo kaj senhalte ripetis la deziron, ke ŝia onklino
 
 invitu ŝin iri kun si en Londonon.
-
-
-JANE EYRE
 
 
 ”Estus pli bone,” ŝi diris, ”se mi povus foriri kaj forresti unu
@@ -1544,9 +1229,7 @@ aŭ du monatojn, ĝis ĉio estos pasinta.”
 
 Mi ne demandis, kion ŝi celas per ”ĝis ĉio estos pasinta”,
 
-sed mi konjektis, ke ŝi celis la proksiman morton de sia pa-
-
-trino kaj la sekvontan malĝojigan enterigon. Eliza ne pli aten-
+sed mi konjektis, ke ŝi celis la proksiman morton de sia patrino kaj la sekvontan malĝojigan enterigon. Eliza ne pli aten-
 
 tis la malfervoron kaj la plendojn de sia fratino, ol kvazaŭ tiu
 
@@ -1570,45 +1253,28 @@ via malforteco al la forteco de aliuloj. Kaj trovante neniun, kiu
 
 bonvolas zorgi pri tia dika, senutila, malforta estaĵo, tiam vi
 
-plendas, ke vi estas malzorgata kaj malbone traktata! Vi pos-
-
-tulas, ke la vivo donu al vi ĉiaman ŝanĝon kaj ĉiaman eksci-
+plendas, ke vi estas malzorgata kaj malbone traktata! Vi postulas, ke la vivo donu al vi ĉiaman ŝanĝon kaj ĉiaman eksci-
 
 tadon, alie vi nomas la mondon malliberejo. Vi volas esti
 
-admirata kaj flatata, vi volas, ke oni amindumu vin — vi po-
+admirata kaj flatata, vi volas, ke oni amindumu vin — vi postulas muzikon, dancadon kaj societon — alie vi konsumiĝas
 
-stulas muzikon, dancadon kaj societon — alie vi konsumiĝas
+kaj mortas. ĉu vi ne posedas do tiom da prudento por eltrovi sistemon, kiu igos vin sendependa de ĉiuj aliaj ekscitoj, kaj
 
-kaj mortas. ĉu vi ne posedas do tiom da prudento por eltro-
-
-vi sistemon, kiu igos vin sendependa de ĉiuj aliaj ekscitoj, kaj
-
-de ĉiuj aliaj voloj, krom viaj? Dispartigu do la tagojn; disparti-
-
-gu ilin je sekcioj; ĉiu sekcio montru sian taskon; ne pasigu eĉ
+de ĉiuj aliaj voloj, krom viaj? Dispartigu do la tagojn; dispartigu ilin je sekcioj; ĉiu sekcio montru sian taskon; ne pasigu eĉ
 
 unu kvaronhoron farante nenion; uzu ĉiujn. Plenumu ĉiun
 
-parton de via laboro en la difinita tempo, sed laŭ speciala me-
-
-todo kaj severe regule. Se vi tiel agus, la tago pasos antaŭ ol
+parton de via laboro en la difinita tempo, sed laŭ speciala metodo kaj severe regule. Se vi tiel agus, la tago pasos antaŭ ol
 
 vi rimarkus ĝian komenciĝon. Tiam vi bezonus danki neniun,
 
 ĉar li helpis al vi utile pasigi senokupitan momenton. Tiam vi
 
 
-JANE EYRE
+ne estus devigata serĉi ies akompanon, nek deziri lian konversacion, lian simpation aŭ indulgon; — mallonge dirite,
 
-
-ne estus devigata serĉi ies akompanon, nek deziri lian kon-
-
-versacion, lian simpation aŭ indulgon; — mallonge dirite,
-
-tiam vi povus diri: mi vivas kiel sendependulo devas vivi. Sek-
-
-vu mian konsilon — ĝi estas la unua kaj samtempe la lasta,
+tiam vi povus diri: mi vivas kiel sendependulo devas vivi. Sekvu mian konsilon — ĝi estas la unua kaj samtempe la lasta,
 
 kiun mi donas al vi; tiam vi sub nenia cirkonstanco bezonos
 
@@ -1620,33 +1286,23 @@ daŭrigos farante nenion, grumblante, ĝemante, dezirante kiel
 
 ajn teruraj ili estos. — Malkaŝe mi tial diras al vi jene kaj bone
 
-aŭskultu, ĉar neniam mi ripetos tion kaj severe agos tiurila-
-
-te. Post la morto de mia patrino mi ne plu volas min okupi pri
+aŭskultu, ĉar neniam mi ripetos tion kaj severe agos tiurilate. Post la morto de mia patrino mi ne plu volas min okupi pri
 
 vi; de post la tago, kiam oni portis ŝian ĉerkon en la ĉerkujon
 
-de Gateshead-preĝejo, ni ambaŭ, vi kaj mi, estos tiel malprok-
+de Gateshead-preĝejo, ni ambaŭ, vi kaj mi, estos tiel malproksime disigitaj unu de alia, kvazaŭ ni neniam konus unu alian.
 
-sime disigitaj unu de alia, kvazaŭ ni neniam konus unu alian.
-
-Ne imagu, ke iam mi lasos ligi min al vi eĉ de la plej malfor-
-
-ta pretendo nur tial, ĉar ni naskiĝis de la samaj gepatroj. Tion
+Ne imagu, ke iam mi lasos ligi min al vi eĉ de la plej malforta pretendo nur tial, ĉar ni naskiĝis de la samaj gepatroj. Tion
 
 mi diras al vi: se la tuta homaro — escepte de ni ambaŭ —
 
-subite estus eksterminata de sur la tero kaj nur ni ambaŭ sta-
-
-rus sur ĝi, tiam mi lasus vin sola sur la malnova tero kaj tran-
+subite estus eksterminata de sur la tero kaj nur ni ambaŭ starus sur ĝi, tiam mi lasus vin sola sur la malnova tero kaj tran-
 
 sirus tute sola sur la novan.”
 
 ŝi eksilentis.
 
-”Vi povus ŝpari al vi la penon ellasi sur min tiun riproĉflu-
-
-on,” respondis Georgiana. ”ĉiu homo scias, ke vi estas la plej
+”Vi povus ŝpari al vi la penon ellasi sur min tiun riproĉfluon,” respondis Georgiana. ”ĉiu homo scias, ke vi estas la plej
 
 egoista, la plej senkora kreitaĵo, kiu iam ekzistis, kaj mi konas
 
@@ -1654,23 +1310,16 @@ vian obstinan malamon kontraŭ mi. Mi tion ja spertis, kiam
 
 vi ŝpinis al mi tiun malicaĵon pri lordo Edwin Vere; vi ne
 
-povis toleri, ke mi staru pli alte ol vi, ke mi ricevu altan tito-
-
-lon kaj venu en societon, en kiu vi eĉ ne kuraĝas montri vian
+povis toleri, ke mi staru pli alte ol vi, ke mi ricevu altan titolon kaj venu en societon, en kiu vi eĉ ne kuraĝas montri vian
 
 malican vizaĝon. Kaj pro tio vi ludis la rolon de spionino kaj
-
-
-JANE EYRE
 
 
 klaĉistino kaj por ĉiam ekstermis ĉiujn miajn esperojn pri mia
 
 vivofeliĉo.”
 
-Georgiana elpoŝigis sian nazotukon kaj dum tuta horo pu-
-
-rigis al si la nazon. Eliza sidis senmove kaj diligente laboris
+Georgiana elpoŝigis sian nazotukon kaj dum tuta horo purigis al si la nazon. Eliza sidis senmove kaj diligente laboris
 
 super sia altartuko.
 
@@ -1704,33 +1353,22 @@ trifoje en preĝejon kaj unu fojon en ĉiu alia tago, dediĉita al
 
 iu sanktulo.
 
-Min trafis la penso iri supren por vidi, kiel fartas la mor-
+Min trafis la penso iri supren por vidi, kiel fartas la mortanta virino, pri kiu preskaŭ neniu atentis. ŝiaj servistinoj
 
-tanta virino, pri kiu preskaŭ neniu atentis. ŝiaj servistinoj
-
-montris al ŝi nur malmultan atenton; kaj la dungita flegisti-
-
-no, kiu neniel estis kontrolata, ŝteliris el la ĉambro kiel eble
+montris al ŝi nur malmultan atenton; kaj la dungita flegistino, kiu neniel estis kontrolata, ŝteliris el la ĉambro kiel eble
 
 plej ofte. Bessie tamen estis fidela; sed ŝi devis prizorgi sian
 
 propran familion kaj povis nur malofte eniri la sinjoran
 
-domon. Mi trovis la ĉambron de la malsanulino sen flegisti-
-
-no, kiel mi ankaŭ atendis; neniu estis tie; la pacientino kuŝis
+domon. Mi trovis la ĉambron de la malsanulino sen flegistino, kiel mi ankaŭ atendis; neniu estis tie; la pacientino kuŝis
 
 senmove kaj ŝajne en letargio; ŝia pala vizaĝo dronis en la
 
 kuseno; en la fajrujo la fajro estis estingiĝonta.
 
 
-JANE EYRE
-
-
-Mi enmetis novajn karbojn, ordigis la liton kaj mia rigar-
-
-do dum momento fiksiĝis sur la kuŝantino, kiu ne povis rigar-
+Mi enmetis novajn karbojn, ordigis la liton kaj mia rigardo dum momento fiksiĝis sur la kuŝantino, kiu ne povis rigar-
 
 di min, kaj poste iris al la fenestro.
 
@@ -1738,9 +1376,7 @@ La pluvo bruege vipis la vitrojn; la vento fajfegis ĉirkaŭ la
 
 domo. Mi pensis: tie kuŝas iu, kiu baldaŭ estos liberigita de
 
-ĉiuj bataloj de la surteraj elementoj. Kaj kien flugos tiu ani-
-
-mo, kiu nun sin liberigas de sia korpa kovraĵo, kiam fine ĝi
+ĉiuj bataloj de la surteraj elementoj. Kaj kien flugos tiu animo, kiu nun sin liberigas de sia korpa kovraĵo, kiam fine ĝi
 
 liberigis sin?
 
@@ -1756,9 +1392,7 @@ Denove mi aŭskultis la sonon de ŝia neforgesebla dolĉa voĉo
 
 kiam ŝi tiel senmove kuŝis sur sia mortlito; ankoraŭ mi aŭdis
 
-ŝian sopirantan flustritan deziron, ke ŝi povu returni al la ĉio-
-
-potenca Patro — kiam subite malforta voĉo el la lito aŭdiĝis:
+ŝian sopirantan flustritan deziron, ke ŝi povu returni al la ĉiopotenca Patro — kiam subite malforta voĉo el la lito aŭdiĝis:
 
 ”Kiu estas tie?”
 
@@ -1789,9 +1423,6 @@ Mi silentis ĉar mi timis kaŭzi katastrofon, klarigante al ŝi
 mian memon.
 
 
-JANE EYRE
-
-
 ”Kaj tamen,” ŝi diris, ”mi timas, ke mi eraras. Miaj pensoj
 
 erarigas min. Mi deziris vidi Jane Eyre, kaj nun mi imagas vidi
@@ -1800,9 +1431,7 @@ similaĵon, kiu tamen ekzistas. Krom tio ŝi ja nepre ŝanĝiĝis
 
 dum tiuj ok jaroj!”
 
-Singarde mi klarigis, ke mi estas la persono, kiun ŝi supo-
-
-zis kaj kiun ŝi deziras vidi, kaj vidante, ke ŝi komprenas min
+Singarde mi klarigis, ke mi estas la persono, kiun ŝi supozis kaj kiun ŝi deziras vidi, kaj vidante, ke ŝi komprenas min
 
 kaj ke ŝi plene rekonsciiĝis, mi diris al ŝi, ke Bessie sendis sian
 
@@ -1814,9 +1443,7 @@ edzon al Thornfield por veturigi min al Gateshead.
 
 sentis, ke mi ne povas plu movi eĉ unu membron. Estus bone,
 
-se mi povus malŝarĝigi mian animon antaŭ ol morti. Kio kaŭ-
-
-zas al ni malmultan pripensadon, kiam ni estas sanaj, tio peze
+se mi povus malŝarĝigi mian animon antaŭ ol morti. Kio kaŭzas al ni malmultan pripensadon, kiam ni estas sanaj, tio peze
 
 ŝarĝas nin en horo, kiel la nuna estas al mi. Flegistino, ĉu vi
 
@@ -1840,20 +1467,13 @@ malhumiliĝis antaŭ vi.”
 
 ŝi faris sian eblon kuŝiĝi alie, sed tio ne sukcesis al ŝi; ŝia
 
-vizaĝo aliiĝis; ŝi ŝajnis senti internan movon — eble la antaŭ-
-
-signojn de la lasta lukto.
+vizaĝo aliiĝis; ŝi ŝajnis senti internan movon — eble la antaŭsignojn de la lasta lukto.
 
 ”Nu, mi devas tion transiĝi. — La eterneco kuŝas antaŭ mi.
 
-Estas tial pli bone diri tion al ŝi. — Donu al mi mian tualeto-
-
-kesteton, malfermu ĝin kaj elprenu la leteron, kiun vi tie tro-
+Estas tial pli bone diri tion al ŝi. — Donu al mi mian tualetokesteton, malfermu ĝin kaj elprenu la leteron, kiun vi tie tro-
 
 vos.”
-
-
-JANE EYRE
 
 
 Mi faris, kion ŝi ordonis al mi.
@@ -1888,9 +1508,7 @@ i estis datumita tri jarojn pli frue.
 
 malrapide.
 
-”ĉar mi tro multe kaj tro profunde malamis vin por kun-
-
-helpi en via financa prospero. Mi ne povis forgesi vian kon-
+”ĉar mi tro multe kaj tro profunde malamis vin por kunhelpi en via financa prospero. Mi ne povis forgesi vian kon-
 
 duton al mi, Jane; mi ne povis forgesi la koleron, kun kiu vi
 
@@ -1902,19 +1520,11 @@ voĉon, kaj la nenaturan rigardon, per kiuj vi diris, ke la nura
 
 penso al mi malsanigas vin, per kio vi certigis, ke mi pritraktis
 
-vin per la plej mizera krueleco. Mi ne povis forgesi miajn sen-
-
-tojn, kiuj regis min, kiam vi tiam salte leviĝis kaj superŝutis
+vin per la plej mizera krueleco. Mi ne povis forgesi miajn sentojn, kiuj regis min, kiam vi tiam salte leviĝis kaj superŝutis
 
 min per la veneno de via animo: min kaptis teruro, kvazaŭ
 
-min subite per homaj okuloj rigardis besto, kiun mi estis pik-
-
-
-JANE EYRE
-
-
-inta aŭ batinta, kaj kvazaŭ ĝi malbenis min per homa voĉo.
+min subite per homaj okuloj rigardis besto, kiun mi estis pikinta aŭ batinta, kaj kvazaŭ ĝi malbenis min per homa voĉo.
 
 — Donu al mi iom da akvo! Rapidu! Ho! Rapidu do!”
 
@@ -1926,35 +1536,25 @@ via memoro: tiam mi estis ja nur infano; post tiu tempo pasis
 
 ok, preskaŭ naŭ jaroj.”
 
-ŝi ne atentis miajn parolojn; sed trinkinte la akvon kaj pro-
+ŝi ne atentis miajn parolojn; sed trinkinte la akvon kaj profunde spirinte, ŝi parolis plue:
 
-funde spirinte, ŝi parolis plue:
-
-”Mi diras al vi; mi ne povis forgesi tion, kaj mi volis ven-
-
-ĝon. Mi ne povis toleri la penson, ke via onklo adoptos vin kaj
+”Mi diras al vi; mi ne povis forgesi tion, kaj mi volis venĝon. Mi ne povis toleri la penson, ke via onklo adoptos vin kaj
 
 samtempe levos vin al feliĉo kaj prospero. Mi skribis al li. Mi
 
 skribis, ke mi bedaŭras kaŭzi al li ĉagrenon, sed ke Jane Eyre
 
-mortis pro tifo en Lowood. Vi nun agu, kiel al vi plaĉas; skri-
-
-bu al li kaj kontraŭdiru mian sciigon — malkovru mian men-
+mortis pro tifo en Lowood. Vi nun agu, kiel al vi plaĉas; skribu al li kaj kontraŭdiru mian sciigon — malkovru mian men-
 
 sogon tiel baldaŭ kiel vi volos. Mi pensas, ke vi naskiĝis por
 
 esti mia turmento; mia lasta horo estas turmentata de la
 
-rememoro al ago, kiun neniam mi kapablus fari al iu alia per-
-
-sono.”
+rememoro al ago, kiun neniam mi kapablus fari al iu alia persono.”
 
 ”Se mi povus nur decidigi vin, onklino Reed, ne plu pensi
 
-al ĉi tiu afero kaj rigardi min kun boneco, indulgo kaj pardo-
-
-no —”
+al ĉi tiu afero kaj rigardi min kun boneco, indulgo kaj pardono —”
 
 ”Vi havas tre malican karakteron,” ŝi diris, ”kaj krom tio
 
@@ -1962,27 +1562,16 @@ tian, kian mi ĝis hodiaŭ ne kapablis kompreni. Neniam mi
 
 povis kompreni, kiel vi povis kviete kaj pacience toleri dum
 
-naŭ jaroj tiun malbonan traktadon kaj subite eksplodi en faj-
+naŭ jaroj tiun malbonan traktadon kaj subite eksplodi en fajra kolero.”
 
-ra kolero.”
+”Mia karaktero ne estas tiel malbona kiel vi pensas, onklino Reed, mi estas pasia sed ne malica. Kiam mi estis infano,
 
-”Mia karaktero ne estas tiel malbona kiel vi pensas, onk-
-
-lino Reed, mi estas pasia sed ne malica. Kiam mi estis infano,
-
-mi estus ĝoja kaj feliĉa, se vi nur volus min ami, kaj mi tut-
-
-kore aspiras reamikiĝon. Kisu min, onklino.”
-
-
-JANE EYRE
+mi estus ĝoja kaj feliĉa, se vi nur volus min ami, kaj mi tutkore aspiras reamikiĝon. Kisu min, onklino.”
 
 
 Mi proksimigis mian vangon al ŝiaj lipoj; ŝi ne tuŝis ĝin. ŝi
 
-diris, ke mia kliniĝo super la lito timigas ŝin, kaj ree ŝi dezi-
-
-ris trinki. Kiam mi kuŝigis ŝin, ĉar dum la trinkado mi estis
+diris, ke mia kliniĝo super la lito timigas ŝin, kaj ree ŝi deziris trinki. Kiam mi kuŝigis ŝin, ĉar dum la trinkado mi estis
 
 sidiginta ŝin, apogante ŝin per mia brako — mi kovris ŝian
 
@@ -1998,25 +1587,17 @@ mian rigardon.
 
 por ke ankaŭ Li pardonu vin — kaj estu paca.”
 
-Kompatinda, turmentita virino! Nun estis por ŝi tro mal-
+Kompatinda, turmentita virino! Nun estis por ŝi tro malfrue. Nun ŝi ne povis plu streĉi sian volon por aliigi sian ani-
 
-frue. Nun ŝi ne povis plu streĉi sian volon por aliigi sian ani-
-
-mon. Dum sia vivo ŝi estis nur malaminta min — ankaŭ mor-
-
-tante ŝi devis malami min ankoraŭ.
+mon. Dum sia vivo ŝi estis nur malaminta min — ankaŭ mortante ŝi devis malami min ankoraŭ.
 
 La flegistino eniris kaj ŝin sekvis Bessie.
 
-Mi restis ankoraŭ duonan horon, esperante signon de ami-
-
-keco kaj pardono; sed estis vane, ŝi ne vidis min plu. ŝi pli kaj
+Mi restis ankoraŭ duonan horon, esperante signon de amikeco kaj pardono; sed estis vane, ŝi ne vidis min plu. ŝi pli kaj
 
 pli fordronis en senkonscio kaj ne plu rekonsciiĝis. Je la dek
 
-unua horo en tiu nokto ŝi mortis. Mi ne estis tie por povi fer-
-
-mi ŝiajn okulojn; ankaŭ ŝiaj filinoj ne restis apud ŝi. La sek-
+unua horo en tiu nokto ŝi mortis. Mi ne estis tie por povi fermi ŝiajn okulojn; ankaŭ ŝiaj filinoj ne restis apud ŝi. La sek-
 
 vantan matenon venis la flegistino kajBessie por sciigi al ni,
 
@@ -2030,23 +1611,13 @@ laŭta spasma plorado dirante, ke ŝi ne havas la kuraĝon iri al
 
 nun rigida, malvarma kaj senmova. La malvarmaj palpebroj
 
-kovris la akrajn, senkompatajn okulojn; la frunto kaj la rigi-
-
-daj trajtoj montris ankoraŭ la markon de ŝia nefleksebla, sen-
+kovris la akrajn, senkompatajn okulojn; la frunto kaj la rigidaj trajtoj montris ankoraŭ la markon de ŝia nefleksebla, sen-
 
 kompata animo. Tiu kadavro havis ion strangan, ion solenan
 
-por mi. Tremetante kaj malĝojante mi rigardis ĝin: ĝi inspi-
+por mi. Tremetante kaj malĝojante mi rigardis ĝin: ĝi inspiris al mi nenion kompatan, nenion esper-naskantan aŭ ion,
 
-
-JANE EYRE
-
-
-ris al mi nenion kompatan, nenion esper-naskantan aŭ ion,
-
-kio povus agordi ripozon; sed nur korŝirantan, timigan ĉagre-
-
-non pro ŝia mizero — ne pro io, kion mi perdis — kaj mallu-
+kio povus agordi ripozon; sed nur korŝirantan, timigan ĉagrenon pro ŝia mizero — ne pro io, kion mi perdis — kaj mallu-
 
 ma, senlarma teruro pro la morto en tia formo.
 
@@ -2054,18 +1625,11 @@ Eliza kviete rigardis malsupren al sia patrino. Post kelkaj
 
 minutoj de silentado ŝi rimarkis:
 
-”Kun sia sano ŝi povus atingi altan aĝon. Sed ĉagreno mal-
+”Kun sia sano ŝi povus atingi altan aĝon. Sed ĉagreno mallongigis ŝian vivon.”
 
-longigis ŝian vivon.”
-
-Tiam ŝia buŝo konvulsie kuntiriĝis, sed nur mallongan mo-
-
-menton. Tuj poste ŝi eliris la ĉambron. Mi ankaŭ faris tion.
+Tiam ŝia buŝo konvulsie kuntiriĝis, sed nur mallongan momenton. Tuj poste ŝi eliris la ĉambron. Mi ankaŭ faris tion.
 
 Neniu el ni verŝis unu larmon.
-
-
-JANE EYRE
 
 
 ĉapitro XXII.
@@ -2076,9 +1640,7 @@ semajnon, sed malgraŭ tio pasis tuta monato antaŭ ol mi
 
 forlasis Gateshead. Mi volis forvojaĝi tuj post la enterigo, sed
 
-Georgiana petis min resti ĝis estos al ŝi eble vojaĝi en Londo-
-
-non, kien fine ŝia onklo, sinjoro Gibson estis invitinta ŝin. Li
+Georgiana petis min resti ĝis estos al ŝi eble vojaĝi en Londonon, kien fine ŝia onklo, sinjoro Gibson estis invitinta ŝin. Li
 
 estis veninta por ordigi ĉiujn preparojn de la enterigo de sia
 
@@ -2090,9 +1652,7 @@ simpation pri sia malĝojo, nek helpon pri siaj premego kaj
 
 subteno en siaj vojaĝpreparoj. Tial mi suferis kiel eble plej
 
-multe ŝiajn malgrandanimajn ĝemadojn kaj egoistajn plenda-
-
-dojn, dum mi kudris kaj laboris por ŝi kaj enpakis ŝiajn to-
+multe ŝiajn malgrandanimajn ĝemadojn kaj egoistajn plendadojn, dum mi kudris kaj laboris por ŝi kaj enpakis ŝiajn to-
 
 laĵojn kaj vestojn. Vere estas, ke ŝi iris tien kaj reen farante
 
@@ -2108,9 +1668,7 @@ laboro kaj devigus vin fari ĝin. Ankaŭ mi postulus, ke vi kaŝu
 
 en via brusto kelkajn el tiuj nur duone sincerajn plendojn kaj
 
-ĝemojn. Nur tial ke nia kunesto estas okaza kaj baldaŭ fini-
-
-ĝonta, kaj koincidas kun tre malĝoja tempo, mi submetas min
+ĝemojn. Nur tial ke nia kunesto estas okaza kaj baldaŭ finiĝonta, kaj koincidas kun tre malĝoja tempo, mi submetas min
 
 esti tiel pacienca kaj bonvola al vi.”
 
@@ -2119,28 +1677,17 @@ Fine venis la momento de la forvojaĝo de Georgiana, sed
 tiam Eliza petis min resti ankoraŭ unu semajnon. Kiel mi
 
 
-JANE EYRE
+diris: ŝiaj planoj okupis ĉiujn ŝiajn tempon kaj atenton. ŝi intencis vojaĝi al iu nekonata lando kaj la tutan tagon ŝi pasi-
 
-
-diris: ŝiaj planoj okupis ĉiujn ŝiajn tempon kaj atenton. ŝi in-
-
-tencis vojaĝi al iu nekonata lando kaj la tutan tagon ŝi pasi-
-
-gis en sia ĉambro. La pordo estis ŝlosita interne, kaj ŝi oku-
-
-piĝis enpakante kofrojn, malplenigante tirkestojn, kaj en tiu
+gis en sia ĉambro. La pordo estis ŝlosita interne, kaj ŝi okupiĝis enpakante kofrojn, malplenigante tirkestojn, kaj en tiu
 
 laboro neniu ĝenu ŝin. De mi ŝi deziris, ke mi prizorgu la
 
-mastrumadon, ricevu vizitantojn kaj respondu la kondolenc-
-
-leterojn.
+mastrumadon, ricevu vizitantojn kaj respondu la kondolencleterojn.
 
 Iun matenon ŝi diris al mi, ke ŝi nun ne bezonas min plu.
 
-”Kaj,” daŭrigis ŝi, ”mi estas al vi tre danka pro viaj eksteror-
-
-dinaraj servoj kaj pro via diskreta konduto. La diferenco vere
+”Kaj,” daŭrigis ŝi, ”mi estas al vi tre danka pro viaj eksterordinaraj servoj kaj pro via diskreta konduto. La diferenco vere
 
 estas grandega vivi kun vi aŭ kun Georgiana. Vi portas vian
 
@@ -2152,15 +1699,11 @@ pia domo — en mona˛inejo, kiel oni kutime ĝin nomas. Tie
 
 mi vivos kviete kaj neĝenate. Dum kelka tempo mi dediĉos
 
-min al la provo de la romkatolikaj dogmoj kaj zorge ekzame-
-
-nos la verkojn pri la sistemo de tiu religio. Trovinte — kiel mi
+min al la provo de la romkatolikaj dogmoj kaj zorge ekzamenos la verkojn pri la sistemo de tiu religio. Trovinte — kiel mi
 
 atendas — ke ĝi plene kapabligas al ni plenumi ĉiujn aferojn
 
-de la vivo en bona ordo kaj kviete, mi konvertiĝos al tiu reli-
-
-gio de Romo kaj verŝajne estiĝos mona˛ino.”
+de la vivo en bona ordo kaj kviete, mi konvertiĝos al tiu religio de Romo kaj verŝajne estiĝos mona˛ino.”
 
 Mi tute ne esprimis mian miregon pro tiu decido kaj tial ne
 
@@ -2172,18 +1715,13 @@ Kiam ni disiris, ŝi diris: ”Fartu bone, kuzino Jane Eyre; mi
 
 deziras al vi ĉion bonan, vi havas prudenton.”
 
-Mi respondis: ”Ankaŭ vi ne estas senprudenta, kuzino Eli-
-
-za; sed la prudento, kiun vi posedas, eble estos intermurigi-
+Mi respondis: ”Ankaŭ vi ne estas senprudenta, kuzino Eliza; sed la prudento, kiun vi posedas, eble estos intermurigi-
 
 ta en franca mona˛inejo antaŭ ol pasos unu jaro. Sed tio ja
 
 tute ne interesas min, kaj estos al mi indiferenta, se nur tio
 
 povos fari vin feliĉa.”
-
-
-JANE EYRE
 
 
 ”Vi pravas” ŝi diris. Post tiuj vortoj ni disiris kaj ĉiu iris sian
@@ -2204,19 +1742,13 @@ Kiel homoj sentas, kiam ili revenas hejmen post mallonga
 
 aŭ longa tempo de foresto, tion mi ne sciis. Mi ja neniam
 
-spertis tian senton. Sed bone mi sciis, kion mi kiel infano sen-
+spertis tian senton. Sed bone mi sciis, kion mi kiel infano sentis, kiam mi revenis en Gateshead post longa promenado —:
 
-tis, kiam mi revenis en Gateshead post longa promenado —:
-
-tiam mi estis insultriproĉata, ĉar mi aspektis malĝoja kaj pre-
-
-skaŭ frostiĝinta, kaj poste mi spertis, kion signifas en Lo-
+tiam mi estis insultriproĉata, ĉar mi aspektis malĝoja kaj preskaŭ frostiĝinta, kaj poste mi spertis, kion signifas en Lo-
 
 wood, kiam mi revenis hejmen post longa irado el la preĝejo
 
-—: tiam mi aspiris bonan riĉan manĝaĵon kaj varman kame-
-
-nofajron, sed ricevis neniun el ambaŭ. Neniu el tiuj rehej-
+—: tiam mi aspiris bonan riĉan manĝaĵon kaj varman kamenofajron, sed ricevis neniun el ambaŭ. Neniu el tiuj rehej-
 
 miĝoj estis tre agrabla aŭ dezirinda; neniu magneto altiris
 
@@ -2240,14 +1772,9 @@ horoj; mi vidis ŝian flavpalan, distordiĝintan vizaĝon kaj
 
 aŭdis la strange ŝanĝigintan voĉon. Mi pensis pri la tago de
 
-enterigo, pri la ĉerko, la funebra veturilo, la longa, nigra pro-
-
-cesio de lufarmistoj kaj servistoj — ĉeestis nur malmultaj
+enterigo, pri la ĉerko, la funebra veturilo, la longa, nigra procesio de lufarmistoj kaj servistoj — ĉeestis nur malmultaj
 
 familianoj — la oscedanta tombovolbo, la silenta preĝejo, la
-
-
-JANE EYRE
 
 
 solena diservo. Poste mi pensis pri Eliza kaj Georgiana. La
@@ -2262,9 +1789,7 @@ persono.
 
 La malfrua enveno en la urbeto … forpelis tiun pensadon;
 
-la nokto kondukis ĝin en alian vojon. Kiam mi estis enliti-
-
-ĝinta, la memorado min forlasis kaj mi pensis nur pri la
+la nokto kondukis ĝin en alian vojon. Kiam mi estis enlitiĝinta, la memorado min forlasis kaj mi pensis nur pri la
 
 estonteco.
 
@@ -2274,9 +1799,7 @@ restado? Ne longa, pri tio mi estis certa. Dum la tempo de mia
 
 foresto mi aŭdis pere de sinjorino Fairfax, ke la ĝoja eminenta
 
-societo, kiu estis kune je mia forvojaĝo, disiris ĉiuloken. Sin-
-
-joro Rochester pasigis tri semajnojn en Londono, sed reen
+societo, kiu estis kune je mia forvojaĝo, disiris ĉiuloken. Sinjoro Rochester pasigis tri semajnojn en Londono, sed reen
 
 venis de tie antaŭ dekkvar tagoj. Sinjorino Fairfax konjektis,
 
@@ -2288,37 +1811,24 @@ plue, ke la penso, ke li edziĝos kun fraŭlino Ingram, ŝajnas al
 
 ŝi tre stranga; sed laŭ la diroj de ĉiuj homoj, kaj laŭ tio, kion
 
-ŝi propraokule vidis, ne estas plu dube, ke la afero estas bal-
-
-daŭ okazonta.
+ŝi propraokule vidis, ne estas plu dube, ke la afero estas baldaŭ okazonta.
 
 ”Vi estus tamen neordinare nekredema, se vi dubus pri
 
-tio,” mi diris al mi, ”mi mem ne dubas pri tio unu momen-
+tio,” mi diris al mi, ”mi mem ne dubas pri tio unu momenton.”
 
-ton.”
-
-Nun sekvis la demando: ”Kien mi tiam iru?” La tutan nok-
-
-ton mi sonĝis pri fraŭlino Ingram; klara dummaten-sonĝo
+Nun sekvis la demando: ”Kien mi tiam iru?” La tutan nokton mi sonĝis pri fraŭlino Ingram; klara dummaten-sonĝo
 
 vidigis al mi, kiel ŝi fermis al mi ĉiujn pordojn de Thornfield
 
-kaj fingre montris al mi alian vojon; sinjoro Rochester kvie-
-
-te ĉeestis kun krucitaj brakoj kaj lasis ŝin agi; ŝajnis, ke li sar-
+kaj fingre montris al mi alian vojon; sinjoro Rochester kviete ĉeestis kun krucitaj brakoj kaj lasis ŝin agi; ŝajnis, ke li sar-
 
 kasme ridas pri ŝi kaj pri mi.
 
 
-JANE EYRE
-
-
 Mi ne antaŭsciigis al sinjorino Fairfax pri la tago de mia
 
-alveno, ĉar mi ne deziris, ke oni sendu renkonte al mi vetu-
-
-rilon al Millcote. Mi decidis kviete piediri sola tiun parton de
+alveno, ĉar mi ne deziris, ke oni sendu renkonte al mi veturilon al Millcote. Mi decidis kviete piediri sola tiun parton de
 
 la vojaĝo; kaj konfidinte mian kofron al la stalservisto, mi
 
@@ -2334,9 +1844,7 @@ La vespero estis varma, milda sed ne brile varmega; la
 
 kampolaboristoj laboris laŭlonge de la tuta vojo; la ĉielo,
 
-kvankam ne sennuba, promesis bonan veteron por la venon-
-
-ta tago; ĝia bluo — kie ni povis vidi ĝin, — estis milda, kaj la
+kvankam ne sennuba, promesis bonan veteron por la venonta tago; ĝia bluo — kie ni povis vidi ĝin, — estis milda, kaj la
 
 nuboj ŝvebis alte kaj travideblaj pluen. Ankaŭ la okcidento
 
@@ -2344,9 +1852,7 @@ estis varma; neniuj akvohavaj radioj ĝenis la bildon, estis,
 
 kvazaŭ fajro estis bruligita, kvazaŭ altaro brulis malantaŭ tiu
 
-nebula kurteno, kaj kie ĝi tie kaj alie estis ŝirita, tralumis or-
-
-kolora neĝo.
+nebula kurteno, kaj kie ĝi tie kaj alie estis ŝirita, tralumis orkolora neĝo.
 
 ojo ekregis min, kiam mi vidis la antaŭ mi kuŝantan
 
@@ -2356,9 +1862,7 @@ por mirigite demandi, kion do signifas tiu sento de feliĉo, kaj
 
 por memorigi al mia prudento, ke mi ne returnen iras al mia
 
-propra hejmo aŭ al daŭra ripozejo, aŭ al loko, kie min aten-
-
-das kaj sopiras fidelaj, karaj amikoj.
+propra hejmo aŭ al daŭra ripozejo, aŭ al loko, kie min atendas kaj sopiras fidelaj, karaj amikoj.
 
 Sed mi diris al mi: ”Sinjorino Fairfax bone akceptos vin
 
@@ -2375,26 +1879,19 @@ kiel la nesperteco? Ili certigas, ke estas jam sufiĉe feliĉe nur
 rigardi sinjoron Rochester, indiferente ĉu li rigardas min aŭ
 
 
-JANE EYRE
-
-
 ne, kaj ili daŭrigis — ”Rapidu, rapidu! Restu ĉe li tiel longe,
 
 kiel estos al vi permesate; ankoraŭ malmultaj tagoj pasos,
 
 eble malmultaj semajnoj, kaj por ĉiam vi estos disigita de li!”
 
-Kaj poste min sufokis alia animdoloro — io terura, terure-
-
-ga, kion mi ne kuraĝis konfesi, kies potenco ne devus regi
+Kaj poste min sufokis alia animdoloro — io terura, terurega, kion mi ne kuraĝis konfesi, kies potenco ne devus regi
 
 min — kaj mi iris pluen.
 
 Ankaŭ sur la herbejoj de Thornfield la laboristoj vigle
 
-kolektis fojnon, aŭ reale la falĉistoj ĵus finis sian tagan labo-
-
-ron kaj iris hejmen kun falĉiloj, rastiloj kaj fojnoforkegoj pen-
+kolektis fojnon, aŭ reale la falĉistoj ĵus finis sian tagan laboron kaj iris hejmen kun falĉiloj, rastiloj kaj fojnoforkegoj pen-
 
 dantaj sur la ŝultroj; tia estis la horo de mia reveno. Nur unu
 
@@ -2410,15 +1907,11 @@ kiu etendiĝas ĝis la vojo; mi vidas la mallarĝan vojeton kun
 
 la ŝtonaj ŝtupoj; kaj — mi ekvidas sinjoron Rochester, kiu tie
 
-sidas, li havas libron kaj krajonon en la mano kaj estas skri-
-
-banta.
+sidas, li havas libron kaj krajonon en la mano kaj estas skribanta.
 
 Nu, li ja ne estas spirito; tamen miaj nervoj ektremas; dum
 
-mallonga momento mi ne povas regi min. Kion do tio signi-
-
-fas? Mi ne estis pensinta, ke mi tiel tremos je lia rigardo — kaj
+mallonga momento mi ne povas regi min. Kion do tio signifas? Mi ne estis pensinta, ke mi tiel tremos je lia rigardo — kaj
 
 ke mi perdos ĉiun povon de mia voĉo, aŭ de mia movo en lia
 
@@ -2434,12 +1927,7 @@ al la domo. Sed estas indiferente koni eĉ dudek aliajn vojojn;
 
 revenas! Alproksimiĝu, mi petas!”
 
-Mi volas alproksimiĝi, sed mi ne scias kiel; ĉar mi ne kon-
-
-scias, kion mi faras aŭ sentas nek kiel mi penos esti kvieta, kaj
-
-
-JANE EYRE
+Mi volas alproksimiĝi, sed mi ne scias kiel; ĉar mi ne konscias, kion mi faras aŭ sentas nek kiel mi penos esti kvieta, kaj
 
 
 precipe kiel regi la ekscititajn muskolojn de mia vizaĝo, kiuj
@@ -2476,9 +1964,7 @@ krepusko! Se mi kuraĝus, mi vokus al ŝi por vidi, ĉu ŝi estas
 
 ombro aŭ io vere ekzistanta — ho elfo! sed same bone mi
 
-povus klopodi kapti bluan ignis fatuus sur la marĉo. Ho for-
-
-kurintino! forkurintino!” li parolis plue, silentinte kelkan tem-
+povus klopodi kapti bluan ignis fatuus sur la marĉo. Ho forkurintino! forkurintino!” li parolis plue, silentinte kelkan tem-
 
 pon. ”Tiel forresti de mi tutan monaton, kaj mi povas ĵuri pri
 
@@ -2490,18 +1976,13 @@ la timo malĝojigis min, ke li baldaŭ ĉesos esti mia mastro, kaj
 
 la konscio, ke mi estas al li tute indiferenta. Sed sinjoro
 
-Rochester tiom posedas la povon feliĉigi aliajn — tion alme-
-
-naŭ mi kredis — ke eĉ paneroj, kiujn li ĵetis al kompatinda,
+Rochester tiom posedas la povon feliĉigi aliajn — tion almenaŭ mi kredis — ke eĉ paneroj, kiujn li ĵetis al kompatinda,
 
 fremda, erarvaganta birdo, kiel mi, estis kvazaŭ bongusta
 
 nutraĵo. Liaj lastaj vortoj estis al mi balsamo: ili ŝajnis pruvi,
 
 ke ne estas al li indiferente, ke mi lin ne forgesis. Kaj li estis
-
-
-JANE EYRE
 
 
 parolinta pri Thornfield kvazaŭ ĝi estus mia hejmo ho ve! ke
@@ -2530,9 +2011,7 @@ ne aspektos kiel reĝino, dronante en la malhele-ruĝa kuseno.
 
 Mi nur dezirus Jane, ke mia eksteraĵo iom pli ŝin indus. Diru
 
-do al mi, ĉar vi estas ja feino, ĉu vi ne povas doni al mi sor-
-
-ĉilon aŭ sorĉtrinkaĵon, kiu faros el mi belan viron?”
+do al mi, ĉar vi estas ja feino, ĉu vi ne povas doni al mi sorĉilon aŭ sorĉtrinkaĵon, kiu faros el mi belan viron?”
 
 ”Neniu sorĉpovo kapablas tion, sinjoro;” kaj fundkore mi
 
@@ -2542,17 +2021,13 @@ bezonata; io tia ja plene sufiĉas, via serioza rigardo estas pli
 
 potenca, ĝi estas pli efika ol ĉiu sorĉo de la beleco.”
 
-Sinjoro Rochester jam ofte legis miajn ne-elparolitajn pen-
-
-sojn per akra vido, kiu estis al mi nekomprenebla; en ĉi tiu
+Sinjoro Rochester jam ofte legis miajn ne-elparolitajn pensojn per akra vido, kiu estis al mi nekomprenebla; en ĉi tiu
 
 okazo li ne atentis mian tiel rapide elparolitan respondon; sed
 
 li ridetis al mi per sia stranga rideto, kiu apartenis nur al li kaj
 
-kiun li uzis en la tre maloftaj okazoj. En ordinaraj cirkonstan-
-
-coj li rigardis ĝin kiel tro bonan; ĝi estis ceremonia sunbrilo
+kiun li uzis en la tre maloftaj okazoj. En ordinaraj cirkonstancoj li rigardis ĝin kiel tro bonan; ĝi estis ceremonia sunbrilo
 
 de la sento — nun li briligis ĝin sur min.
 
@@ -2563,9 +2038,6 @@ povu transiri la ŝtupon de la ŝtona vojeto, ”iru nun hejmen
 kaj donu iom da ripozo al viaj malgrandaj migre laciĝintaj
 
 piedoj.”
-
-
-JANE EYRE
 
 
 Mi povis nur silente obei lin; aliaj kaŭzoj por daŭrigi la
@@ -2590,13 +2062,9 @@ min, eĉ se li tion volus. La eta Adèle estis duone freneza pro
 
 ĝojo, kiam ŝi ekvidis min. Sinjorino Fairfax ricevis min kun sia
 
-ordinara simpla koreco. Leah ridetis, kaj eĉ Sophie diris ami-
+ordinara simpla koreco. Leah ridetis, kaj eĉ Sophie diris amike ”bonsoir”. ĉio tio estis tre agrabla. Ne estas pli granda feliĉo
 
-ke ”bonsoir”. ĉio tio estis tre agrabla. Ne estas pli granda feliĉo
-
-ol esti amata de siaj proksimuloj kaj senti, ke nia proksime-
-
-co pligrandigas iliajn ĝojon kaj bonplaĉon.
+ol esti amata de siaj proksimuloj kaj senti, ke nia proksimeco pligrandigas iliajn ĝojon kaj bonplaĉon.
 
 En tiu vespero mi decidis fermi miajn okulojn antaŭ la
 
@@ -2604,9 +2072,7 @@ estonteco. Mi ne volis aŭskulti la admonantajn voĉojn, kiuj
 
 avertis mntraŭ la preskaŭ tuja disiĝo kaj estonta ĉagreno.
 
-Kiam la tetrinkado estis pasinta, sinjorino Fairfax estis pre-
-
-ninta sian trikilaron, mi estis sidiĝinta ĉe ŝia flanko kaj Adè-
+Kiam la tetrinkado estis pasinta, sinjorino Fairfax estis preninta sian trikilaron, mi estis sidiĝinta ĉe ŝia flanko kaj Adè-
 
 le, genuante sur la tapiŝo, flate sin premis al mi, tiam ŝajnis
 
@@ -2629,24 +2095,15 @@ prete a croquer sa petite maman anglaise1 . — Kaj tiam min
 1 estas manĝonta sian etan anglan patrinon
 
 
-JANE EYRE
-
-
-kaptis la deziro, ke ankaŭ post sia edziĝo li lasu nin kviete ku-
-
-nigitaj kaj sub sia protektado kaj ke li ne tute ekzilu nin eks-
+kaptis la deziro, ke ankaŭ post sia edziĝo li lasu nin kviete kunigitaj kaj sub sia protektado kaj ke li ne tute ekzilu nin eks-
 
 ter la sunbrilo de sia apudesto.
 
 Dek du tagoj de duba kvieteco pasis post mia reveno de
 
-Gateshead. Pri la edziĝo de nia mastro neniu parolis kaj an-
+Gateshead. Pri la edziĝo de nia mastro neniu parolis kaj ankaŭ mi ne rimarkis preparojn, kiuj povus celi la efektivigon de
 
-kaŭ mi ne rimarkis preparojn, kiuj povus celi la efektivigon de
-
-tia proksima okazontaĵo. Preskaŭ ĉiutage mi demandis al sin-
-
-joripo Fairfax, ĉu ŝi aŭdis ion definitivan pri tio, kaj ĉiam la
+tia proksima okazontaĵo. Preskaŭ ĉiutage mi demandis al sinjoripo Fairfax, ĉu ŝi aŭdis ion definitivan pri tio, kaj ĉiam la
 
 respondo estis nea. Unu fojon ŝi diris, ke ŝi demandis sinjoron
 
@@ -2656,15 +2113,11 @@ tamen estis respondinta nur per evitanta vorto kaj per unu el
 
 siaj strangaj rigardoj, kaj ŝi sciis nenion pli ol antaŭe.
 
-Tre mirigis min tamen, ke okazis neniu vojaĝo tien kaj re-
-
-en, nek vizitoj al Ingramparko. Estis vere, tiu bieno kuŝis du-
+Tre mirigis min tamen, ke okazis neniu vojaĝo tien kaj reen, nek vizitoj al Ingramparko. Estis vere, tiu bieno kuŝis du-
 
 dek mejlojn malproksime, sur la limo de alia graflando, sed
 
-kio estas tiu distanco por fajra amanto? Por tia lerta kaj sen-
-
-laca rajdanto, kia estis sinjoro Rochester, tia vojo estis ja nur
+kio estas tiu distanco por fajra amanto? Por tia lerta kaj senlaca rajdanto, kia estis sinjoro Rochester, tia vojo estis ja nur
 
 dummaten-rajdado. Mi ekflatis la esperon, kiun mi ne rajtis
 
@@ -2672,13 +2125,9 @@ esperi, nome, ke la gefianĉiĝo rompiĝis, ke la famo pri estonta
 
 geedziĝo estis falsa, ke unu el la geedziĝontoj ŝanĝis opinion.
 
-Konstante mi ekzamenis la vizaĝon de mia mastro, ĉu ĝi es-
+Konstante mi ekzamenis la vizaĝon de mia mastro, ĉu ĝi estas malĝoja aŭ malbonhumora; sed mi ne povis memorigi al
 
-tas malĝoja aŭ malbonhumora; sed mi ne povis memorigi al
-
-mi la tempon, en kiu ĉio estis tiel sennuba kaj sen malkvie-
-
-tigaj sentoj kiel nun. Li estiĝis eĉ gaja kaj parolema, kiam mi
+mi la tempon, en kiu ĉio estis tiel sennuba kaj sen malkvietigaj sentoj kiel nun. Li estiĝis eĉ gaja kaj parolema, kiam mi
 
 kaj mia lernantino en lia ĉeesto parolis nenion aŭ dronis en
 
@@ -2687,9 +2136,6 @@ ne kontraŭstarebla malĝojo. Neniam antaŭe li tiel ofte kaj
 longe deziris mian societon; neniam li estis pli bonkora, pli
 
 plenama — kaj ho ve! neniam mi lin amis pli kore!
-
-
-JANE EYRE
 
 
 ĉapitro XXIII.
@@ -2704,9 +2150,7 @@ somermezo. Estis, kvazaŭ aro da italaj tagoj, kiel armeo da
 
 belegaj migraj birdoj venis el la sudo por malsupreniĝi sur la
 
-ŝtonegojn de Albiono por ripozi tie. ĉiu fojno estis jam rikol-
-
-tita. La kampoj ĉirkaŭ Thornfield estis verdaj kaj kvazaŭ ĵus
+ŝtonegojn de Albiono por ripozi tie. ĉiu fojno estis jam rikoltita. La kampoj ĉirkaŭ Thornfield estis verdaj kaj kvazaŭ ĵus
 
 razitaj, la landvojoj estis varmegaj kaj plenaj de polvo, la arboj
 
@@ -2716,15 +2160,11 @@ plena malluma foliornamaĵo kontrastis la helajn herbejojn,
 
 sur kiuj ili staris.
 
-En la somermeza tagfino Adèle, kiu la tutan tagon jam ser-
-
-ĉis sovaĝajn fragojn en Haylane kaj tial estis laca, enlitiĝis je
+En la somermeza tagfino Adèle, kiu la tutan tagon jam serĉis sovaĝajn fragojn en Haylane kaj tial estis laca, enlitiĝis je
 
 la malleviĝo de la suno.
 
-Mi sidiĝis apud ŝi ĝis ŝi dormis kaj poste foriris de la kna-
-
-bino kaj eniris la ĝardenon.
+Mi sidiĝis apud ŝi ĝis ŝi dormis kaj poste foriris de la knabino kaj eniris la ĝardenon.
 
 Estis la plej ĉarma el ĉiuj dudek kvar horoj de la tago. La
 
@@ -2732,18 +2172,13 @@ plej granda varmego pasis kaj sur la akvosopirantan teron kaj
 
 la brule varmegan monteton falis la bonfaranta roso. Kie la
 
-suno antaŭe malsupreniris en sia simpla belegeco, ne amasi-
-
-gante ĉirkaŭ si la pompon de la nuboj, tie sin etendis solena,
+suno antaŭe malsupreniris en sia simpla belegeco, ne amasigante ĉirkaŭ si la pompon de la nuboj, tie sin etendis solena,
 
 ruĝa striego, en kiu tie kaj alie ardis kiel la fajro de brila gemo
 
 aŭ la moviĝanta flamo de altforno. Alte kaj malproksime,
 
 ĉiam pli malforta ĝi movis sin trans la horizonton. Sola stelo
-
-
-JANE EYRE
 
 
 supreniris en la mallume blua oriento, baldaŭ ĝin sekvis la
@@ -2760,23 +2195,17 @@ la fenestra pordo de la biblioteka ĉambro estas malfermita
 
 proksimume je manlarĝo, kaj mi sciis, ke de tie oni povas
 
-bone observi min. Tial mi malsupreniris en la fruktarbo-ĝar-
-
-denon. En la tuta parko ne estis loketo, kiu povis esti kompa-
+bone observi min. Tial mi malsupreniris en la fruktarbo-ĝardenon. En la tuta parko ne estis loketo, kiu povis esti kompa-
 
 rata kun ĝi pri kvieteco kaj paradiza belegeco; ĉi tie kreskis la
 
-ombroriĉaj arboj, la odorantaj floroj; tre alta muro ĝin apar-
-
-tigis de la mastrumada korto je unu flanko, je la alia flanko
+ombroriĉaj arboj, la odorantaj floroj; tre alta muro ĝin apartigis de la mastrumada korto je unu flanko, je la alia flanko
 
 fagaleo ventoŝirmis la vastan herbejon kuŝantan post ĝi. Je la
 
 fino estis ruiniĝanta plektobarilo, la sola dispartigilo inter la
 
-solecaj grenkampoj; al tiu plektobarilo kondukis kurba pied-
-
-vojeto, laŭ kies bordoj kreskis laŭroarboj etendiĝantaj ĝis gi-
+solecaj grenkampoj; al tiu plektobarilo kondukis kurba piedvojeto, laŭ kies bordoj kreskis laŭroarboj etendiĝantaj ĝis gi-
 
 ganta kaŝtanujo, ĉirkaŭ kies trunko estis metita oportuna
 
@@ -2786,15 +2215,11 @@ pli kaj pli mallume, kviete, kaj estis al mi, kvazaŭ mi ĉiam
 
 povus resti en ĉi tiu ŝirmata loko. Sed kiam mi transrigardis
 
-la florbedojn kaj arbogrupojn ĉe la fino de ĉi tiu izolita angu-
-
-lo, subite miaj paŝoj estis retenataj — ne de objekto, nek de
+la florbedojn kaj arbogrupojn ĉe la fino de ĉi tiu izolita angulo, subite miaj paŝoj estis retenataj — ne de objekto, nek de
 
 brueto, sed refoje de avertanta odoro.
 
-Jasmenoj kaj diantoj kaj rozoj jam longe cedis sian ĉiuves-
-
-peran odoron; ĉi tiu nova odoro devenas nek de ia floro nek
+Jasmenoj kaj diantoj kaj rozoj jam longe cedis sian ĉiuvesperan odoron; ĉi tiu nova odoro devenas nek de ia floro nek
 
 de arbeto — ĝi devenas, tion mi scias tre bone, de la cigaro de
 
@@ -2807,14 +2232,9 @@ aŭdas en ĉarma arbetaĵo la kanton de najtingalo. Neniu
 moviĝanta homa figuro estas videbla, neniu proksimiĝanta
 
 
-JANE EYRE
-
-
 paŝo estas aŭdebla, sed tiu odoro plifortiĝas: mi devas forkuri.
 
-Mi iras al la kradpordo, tra kiu oni povas eniri la arbokultu-
-
-rejon — kaj rimarkas sinjoron Rochester enirintan. Mi paŝas
+Mi iras al la kradpordo, tra kiu oni povas eniri la arbokulturejon — kaj rimarkas sinjoron Rochester enirintan. Mi paŝas
 
 flanken al la hedero. Kovrita niĉo; li ja ne restos longe; li ja
 
@@ -2824,9 +2244,7 @@ mi restos staranta senmove.
 
 Sed ne — la vespera kvieteco estas same bonfaranta al li
 
-kiel al mi, kaj ĉi tiu antikva ĝardeno efikas al li la saman gra-
-
-vitadon; kaj li paŝetas pli malproksimen. Jen li levas la bran-
+kiel al mi, kaj ĉi tiu antikva ĝardeno efikas al li la saman gravitadon; kaj li paŝetas pli malproksimen. Jen li levas la bran-
 
 ĉon de grosarbetaĵo por gustumi la ĉarman frukton; ili estas
 
@@ -2834,27 +2252,19 @@ grandaj kiel prunoj kaj peze pendas teren. Li deŝiras maturan
 
 ĉerizon de la spaliro; ree li sin klinas super grupo da floroj, ĉu
 
-por enspiri ĝian odoron, ĉu por admiri la roserojn sur la ka-
-
-likoj. — Granda tineo murmurante preterflugas min; ĝi sidi-
+por enspiri ĝian odoron, ĉu por admiri la roserojn sur la kalikoj. — Granda tineo murmurante preterflugas min; ĝi sidi-
 
 ĝas sur planton je la piedoj de sinjoro Rochester; li vidas ĝin
 
 kaj kliniĝas pli profunden por atente observi ĝin.
 
-”Nun li turnas al mi la dorson,” mi pensis, ”kaj estas oku-
-
-pita pro tiu observado; eble mi povos forŝteliĝi ne vidite, se
+”Nun li turnas al mi la dorson,” mi pensis, ”kaj estas okupita pro tiu observado; eble mi povos forŝteliĝi ne vidite, se
 
 mi senbrue foriras.”
 
-Mi ŝteliris laŭ la rando de la florbedo, por ke min ne per-
+Mi ŝteliris laŭ la rando de la florbedo, por ke min ne perfidu la knaretado de la ŝtonetoj kuŝantaj sur la vojo, kelkajn
 
-fidu la knaretado de la ŝtonetoj kuŝantaj sur la vojo, kelkajn
-
-paŝojn de la loko, kiun mi estas paŝonta, li staris inter la flor-
-
-grupetoj; evidente la tineo altiris lian atenton. ”Sendube mi
+paŝojn de la loko, kiun mi estas paŝonta, li staris inter la florgrupetoj; evidente la tineo altiris lian atenton. ”Sendube mi
 
 pasos lin nerimarkite,” mi pensis. Kiam mi pasis trans lian
 
@@ -2871,22 +2281,15 @@ Mi ne estis farinta bruon: li ne havis okulojn en la dorso —
 sentis skueton, tiam mi proksimiĝis al li.
 
 
-JANE EYRE
-
-
 ”Rigardu tiujn flugilojn,” li diris, ”ili rememorigas min pri
 
 okcidenta insekto; en Anglujo oni malofte vidas tian grandan
 
 kaj gajan noktovaganton: ho, jen ĝi flugas for!”
 
-Kaj la tineo forflugis. Ankaŭ mi volis foriri; sed sinjoro Ro-
+Kaj la tineo forflugis. Ankaŭ mi volis foriri; sed sinjoro Rochester sekvis min kaj kiam ni atingis la pordon, li diris:
 
-chester sekvis min kaj kiam ni atingis la pordon, li diris:
-
-”Reiru kun mi; la vespero estas tro bela por pasigi ĝin in-
-
-terne; kaj neniu povas deziri jam enlitiĝi, kiam la subiro de la
+”Reiru kun mi; la vespero estas tro bela por pasigi ĝin interne; kaj neniu povas deziri jam enlitiĝi, kiam la subiro de la
 
 suno kaj la suriro de la luno tiel mirinde bele koincidas.”
 
@@ -2904,9 +2307,7 @@ fruktoĝardeno je ĉi tiu horo, sed pretekston mi ne trovis por
 
 povi foriri de li.
 
-Per hezitantaj paŝoj mi sekvis lin, mi cerbumis pri la rime-
-
-do tiri min el la afero, sed li mem estis tiel kvieta kaj gravmie-
+Per hezitantaj paŝoj mi sekvis lin, mi cerbumis pri la rimedo tiri min el la afero, sed li mem estis tiel kvieta kaj gravmie-
 
 na, ke mi hontis pro mia konfuziĝo. La malpraveco — se mi
 
@@ -2916,9 +2317,7 @@ povus paroli pri nuna aŭ estonta malpraveco — ŝajnis esti nur
 
 ”Jane,” li ree parolis, kiam ni suriris la laŭbo-plantitan
 
-vojon kaj malrapide nin direktis al la ruiniĝanta plektobari-
-
-lo kaj al la kaŝtanarbo, ”Jane, Thornfield estas belega resta-
+vojon kaj malrapide nin direktis al la ruiniĝanta plektobarilo kaj al la kaŝtanarbo, ”Jane, Thornfield estas belega resta-
 
 dejo en la somero, ĉu ne?
 
@@ -2931,9 +2330,6 @@ naturbelecon kaj krom tio amas hejmecon.”
 ”Tre certe, mi tre amas kaj ŝatas Thornfield.”
 
 ”Kaj kvankam mi ne komprenas la kialon, mi tamen vidas,
-
-
-JANE EYRE
 
 
 ke vi sentas ion simpatian rilate al tiu malsaĝa eta Adèle kaj
@@ -2982,13 +2378,9 @@ saĝeco vi denove trafis la kapon de la najlo.”
 
 ”ĉu baldaŭ, sinjoro?”
 
-”Tre baldaŭ, mia —, tre baldaŭ fraŭlino Eyre; kaj vi memo-
+”Tre baldaŭ, mia —, tre baldaŭ fraŭlino Eyre; kaj vi memoras ankoraŭ, kiam la famo aŭ mi mem sciigis al vi la unuan
 
-ras ankoraŭ, kiam la famo aŭ mi mem sciigis al vi la unuan
-
-fojon, ke estas mia intenco, kurbigi mian maljunan fraŭlonu-
-
-kon sub la sankta jugo — ke mi intencas submeti min al la
+fojon, ke estas mia intenco, kurbigi mian maljunan fraŭlonukon sub la sankta jugo — ke mi intencas submeti min al la
 
 sankta edziĝostato kaj premi al mia brusto, mallonge dirite (ŝi
 
@@ -2997,14 +2389,9 @@ estas plenbrakaĵo: sed tio estas indiferenta — oni ne povas
 havi tro multon de tia bonegaĵo, kia estas mia belega Blanche)
 
 
-JANE EYRE
-
-
 nu do, kiel mi diris — aŭskultu min, Jane! Ne plu turnu la
 
-kapon por rigardi post alia tineo, ĝi estas nur kokcinelo flu-
-
-ganta hejmen. Mi nur volis memorigi al vi, ke estis vi, kiu
+kapon por rigardi post alia tineo, ĝi estas nur kokcinelo fluganta hejmen. Mi nur volis memorigi al vi, ke estis vi, kiu
 
 unua diris al mi kun tiu via diskreteco, kiun mi tiel ŝatas —
 
@@ -3020,9 +2407,7 @@ kaŝas en via deziro; vere, Jane, mi penos forgesi tiun ofendon,
 
 kiam vi estos malproksime de ĉi tie; mi penos forgesi pri ĝi kaj
 
-pensas nur al la antaŭzorgo, kiu kuŝas en ĝi; ĝi estis tiel gran-
-
-da, ke mi eĉ volas fari ĝin la gvidilo de miaj agoj. Adèle devas
+pensas nur al la antaŭzorgo, kiu kuŝas en ĝi; ĝi estis tiel granda, ke mi eĉ volas fari ĝin la gvidilo de miaj agoj. Adèle devas
 
 esti sendata al instituto kaj vi, fraŭlino Eyre, devos havi novan
 
@@ -3032,15 +2417,11 @@ funkcion.”
 
 supozas —” mi volis diri, ”mi supozas, ke mi povos resti ĉi tie,
 
-ĝis mi trovis alian hejmon,” sed mi eksilentis sentante, ke es-
-
-tus al mi neeble diri tiun longan frazon, ĉar en tiu momento
+ĝis mi trovis alian hejmon,” sed mi eksilentis sentante, ke estus al mi neeble diri tiun longan frazon, ĉar en tiu momento
 
 mi ne povis regi mian voĉon.
 
-Sinjoro Rochester parolis plue, ”Mia edziĝo okazos prok-
-
-simume antaŭ la paso de monato, kaj en tiu intertempo mi
+Sinjoro Rochester parolis plue, ”Mia edziĝo okazos proksimume antaŭ la paso de monato, kaj en tiu intertempo mi
 
 ĉirkaŭrigardos por trovi por vi funkcion kaj novan hejmon.”
 
@@ -3048,31 +2429,19 @@ simume antaŭ la paso de monato, kaj en tiu intertempo mi
 
 ”Ho! ne senkulpigu vin! Mi opinias, ke subulo, kiu tiel bone
 
-plenumis sian devon, kiel vi, havas la rajton postuli malgran-
+plenumis sian devon, kiel vi, havas la rajton postuli malgrandan subtenon kaj helpon de sia mastro, precipe kiam li sen
 
-dan subtenon kaj helpon de sia mastro, precipe kiam li sen
-
-multa peno povos oferi ilin; mi eĉ aŭdis, ke mia estonta bo-
-
-patrino scias pri funkcio, kiu eble taŭgos por vi; ŝi parolis pri
+multa peno povos oferi ilin; mi eĉ aŭdis, ke mia estonta bopatrino scias pri funkcio, kiu eble taŭgos por vi; ŝi parolis pri
 
 la edukado de la kvin filinoj de certa sinjorino Dionisius
 
-O’Gall en Bitternutlodge, en la graflando Connaught en Irlan-
-
-
-JANE EYRE
-
-
-do. Irlando plaĉos al vi, mi kredas; oni diris al mi, ke la tieaj
+O’Gall en Bitternutlodge, en la graflando Connaught en Irlando. Irlando plaĉos al vi, mi kredas; oni diris al mi, ke la tieaj
 
 homoj estas varmkoraj kaj bonaj.”
 
 ”Sed tio estas tiel malproksime de ĉi tie, sinjoro.”
 
-”Ne gravas — saĝulinon kiel vi ja ne timigos la longa voja-
-
-ĝo aŭ la malproksimeco — ĉu ne?”
+”Ne gravas — saĝulinon kiel vi ja ne timigos la longa vojaĝo aŭ la malproksimeco — ĉu ne?”
 
 ”La vojaĝo estas al mi indiferenta — sed la malproksimo,
 
@@ -3122,31 +2491,19 @@ mi ne simpatias kun tiu lando. Sed, ĉu ne vere, Jane, ni estis
 
 ”Kaj kiam bonaj amikoj estas kune en la antaŭvespero de
 
-disiĝo, tiam ili sentas sin feliĉaj, se ili povos pasigi la pasigo-
-
-
-JANE EYRE
-
-
-tan tempon unu flanke de la alia. Venu — ni kviete parolu
+disiĝo, tiam ili sentas sin feliĉaj, se ili povos pasigi la pasigotan tempon unu flanke de la alia. Venu — ni kviete parolu
 
 ankoraŭ horon aŭ pli longe pri la disiĝo kaj la vojaĝo kaj
 
-dume ni rigardu la stelojn, kiel ili kviete unu post la alia sup-
-
-reniras sur la ĉielo. Ni sidiĝu ĉi tie sur tiu benko sub la alta
+dume ni rigardu la stelojn, kiel ili kviete unu post la alia supreniras sur la ĉielo. Ni sidiĝu ĉi tie sur tiu benko sub la alta
 
 honorinda kaŝtanujo. Ni sidiĝu tie hodiaŭ vespere en paco;
 
-eble la sorto decidis, ke neniam poste ni sidos tie.” — Li pre-
-
-mis min sur la benkon, kaj sidiĝis ĉe mia flanko.
+eble la sorto decidis, ke neniam poste ni sidos tie.” — Li premis min sur la benkon, kaj sidiĝis ĉe mia flanko.
 
 ”La vojo al Irlando estas tre longa, Jane, ke fariĝas al mi
 
-malfacile sendi mian etan amikinon al tia longa, laciga voja-
-
-ĝo; sed kion fari, se mi ne havas la povon fari ion pli bonan?
+malfacile sendi mian etan amikinon al tia longa, laciga vojaĝo; sed kion fari, se mi ne havas la povon fari ion pli bonan?
 
 ĉu vi kredas, ke niaj karakteroj estas iel parencaj, Jane?
 
@@ -3154,15 +2511,11 @@ En tiu momento ne estis al mi eble doni iun ajn respondon;
 
 la emocio, kiun sentis mia koro, estis tro granda.
 
-”ĉar,” li parolis plue, ”ofte min atakas strangaj sentoj rila-
-
-te al vi, precipe kiam vi estas tiel proksima al mi, kiel nun;
+”ĉar,” li parolis plue, ”ofte min atakas strangaj sentoj rilate al vi, precipe kiam vi estas tiel proksima al mi, kiel nun;
 
 tiam estas al mi, kvazaŭ mi portas en mia brusto iun fadenon,
 
-kiu firme kaj nerompeble estas ligita al sama loko en via mal-
-
-granda, delikata korpeto. Kaj mi timas, ke por ĉiam rompiĝos
+kiu firme kaj nerompeble estas ligita al sama loko en via malgranda, delikata korpeto. Kaj mi timas, ke por ĉiam rompiĝos
 
 tiu kunigita fadeno, kiam tiu ventega kanalego kaj pli ol
 
@@ -3176,29 +2529,19 @@ Rilate al vi — vi — baldaŭ forgesos min.”
 
 estis kapabla paroli plue.
 
-”Jane, ĉu vi aŭdas kiel la najtingalo kantas tie en la arba-
-
-ro? Aŭskultu do.”
+”Jane, ĉu vi aŭdas kiel la najtingalo kantas tie en la arbaro? Aŭskultu do.”
 
 Dum mi aŭskultis, mi komencis konvulsie singulti; ĉar mi
 
 ne povis plu regi miajn sentojn; mi devis cedi kaj mia longe
 
-retenita doloro tremigis mian tutan korpon. Kiam mi reko-
-
-
-JANE EYRE
-
-
-mencis paroli, mi faris tion nur por elparoli la pasian deziron,
+retenita doloro tremigis mian tutan korpon. Kiam mi rekomencis paroli, mi faris tion nur por elparoli la pasian deziron,
 
 ke neniam mi naskiĝus aŭ venus al Thornfield.
 
 ”ĉu estos al vi malfacile foriri de ĉi tie, Jane?”
 
-La potenco de tiu sento, kiu naskis en mi amon kaj ĉagre-
-
-non, luktis por estiĝi la plej forta kaj volis eksplodi — ĝi volis
+La potenco de tiu sento, kiu naskis en mi amon kaj ĉagrenon, luktis por estiĝi la plej forta kaj volis eksplodi — ĝi volis
 
 perforte venki, ĝi volis sin montri, ĝi volis vivi, leviĝi, regi; jes
 
@@ -3208,9 +2551,7 @@ perforte venki, ĝi volis sin montri, ĝi volis vivi, leviĝi, regi; jes
 
 Thornfield — mi ĝin amas, ĉar mi vivis ĉi tie plenan, feliĉegan
 
-vivon almenaŭ dum mallonga tempo. ĉi tie oni ne piedpre-
-
-mis min. ĉi tie mi ne ŝtoniĝis, oni ne enŝlosis min kun stul-
+vivon almenaŭ dum mallonga tempo. ĉi tie oni ne piedpremis min. ĉi tie mi ne ŝtoniĝis, oni ne enŝlosis min kun stul-
 
 taj animoj, oni ne metis min ekster ĉion, kio estas brila, alta
 
@@ -3220,9 +2561,7 @@ kion mi honoras; kun fortega, grandanima, malproksimen
 
 rigardanta karaktero. Mi konatiĝis kun vi, sinjoro Rochester,
 
-kaj teruro kaj angoro min kaptas, ĉar por ĉiam mi estos forti-
-
-rata de vi. Mi vidas la necesecon de mia forvojaĝo kaj ĝi fan-
+kaj teruro kaj angoro min kaptas, ĉar por ĉiam mi estos fortirata de vi. Mi vidas la necesecon de mia forvojaĝo kaj ĝi fan-
 
 tome min rigardas kiel la neceseco de la morto.”
 
@@ -3251,14 +2590,9 @@ fianĉino.”
 vi kredas, ke mi povos resti, kaj esti nenio al vi? ĉu vi kredas,
 
 
-JANE EYRE
-
-
 ke mi estas aŭtomato? — maŝino sen sento? Ke mi povas
 
-toleri, ke oni forbatu de mia buŝo la panpecon, ke oni forti-
-
-ru de mia mano la kalikon kun la klara akvo? ĉu vi kredas, ke
+toleri, ke oni forbatu de mia buŝo la panpecon, ke oni fortiru de mia mano la kalikon kun la klara akvo? ĉu vi kredas, ke
 
 mi estas senanima, senkora, ĉar mi estas malriĉa, malgranda?
 
@@ -3294,9 +2628,7 @@ kiu staras tre malsuper vi — kun iu, kiun vi ne simpatias —
 
 kiun neeble vi povas kore ami; ĉar mi vidis kaj aŭdis, kiel vi
 
-mokis ŝin. Mi malestimus tian geedziĝon, tial mi estas pli bo-
-
-na ol vi — lasu min iri!”
+mokis ŝin. Mi malestimus tian geedziĝon, tial mi estas pli bona ol vi — lasu min iri!”
 
 ”Kien, Jane? Al Irlando?”
 
@@ -3304,27 +2636,18 @@ na ol vi — lasu min iri!”
 
 povas iri, kien mi volos.”
 
-”Jane, silentu; ne tiel luktu kiel sovaĝa birdo, kiu pro senes-
-
-pero disŝiras siajn proprajn plumojn.”
+”Jane, silentu; ne tiel luktu kiel sovaĝa birdo, kiu pro senespero disŝiras siajn proprajn plumojn.”
 
 ”Mi ne estas birdo, kaj neniu reto, neniu birdkaptisto
 
-kapablas kapti min. Mi estas libera homa estaĵo kun sende-
-
-penda volo, kaj nun mi uzas tiun volon, dum mi foriras de vi.”
-
-
-JANE EYRE
+kapablas kapti min. Mi estas libera homa estaĵo kun sendependa volo, kaj nun mi uzas tiun volon, dum mi foriras de vi.”
 
 
 Dua, forta klopodo liberigis min kaj mi staris rekte antaŭ
 
 li.
 
-”Kaj via volo ankaŭ decidu pri via sorto,” li diris. ”Mi ofe-
-
-ras al vi mian manon, mian koron kaj parton de ĉio, kion mi
+”Kaj via volo ankaŭ decidu pri via sorto,” li diris. ”Mi oferas al vi mian manon, mian koron kaj parton de ĉio, kion mi
 
 posedas.”
 
@@ -3336,19 +2659,13 @@ duono kaj plej bona akompanantino.”
 
 ”Rilate al tio vi jam longe faris vian elekton, tenu ĝin.”
 
-”Jane, silentu kelkajn momentojn; vi estas tro ekscitita. An-
+”Jane, silentu kelkajn momentojn; vi estas tro ekscitita. Ankaŭ mi klopodos kvietiĝi.”
 
-kaŭ mi klopodos kvietiĝi.”
-
-Ventopuŝo trairis la laŭro-aleon kaj murmuris tra la bran-
-
-ĉojn de la kaŝtanujo. i iris pluen — pli kaj pli pluen ĝis ĝi for-
+Ventopuŝo trairis la laŭro-aleon kaj murmuris tra la branĉojn de la kaŝtanujo. i iris pluen — pli kaj pli pluen ĝis ĝi for-
 
 mortis en la malproksimo. La kantado de la najtingalo estis
 
-nun la sola sono aŭdata, kaj dum mi aŭskultis ĝin, miaj lar-
-
-moj ekfluis. Sinjoro Rochester sidis senmove kaj amike kaj
+nun la sola sono aŭdata, kaj dum mi aŭskultis ĝin, miaj larmoj ekfluis. Sinjoro Rochester sidis senmove kaj amike kaj
 
 grave rigardis min. Mallonga momento pasis antaŭ ol li ree
 
@@ -3377,9 +2694,6 @@ Li salte leviĝis kaj per unu paŝo estis apud mi.
 ”Mia fianĉino estas ĉi tie,” li diris, ree tirante min al si, ”ĉar
 
 
-JANE EYRE
-
-
 vi estas mia egalulino kaj ĉar vi similas min, Jane, ĉu vi volas
 
 estiĝi mia edzino?”
@@ -3396,17 +2710,13 @@ de liaj brakoj, ĉar mi ankoraŭ ne kredis al li.
 
 ”Neniel.”
 
-”ĉu mi estas mensogulo en viaj okuloj?” li kolerete deman-
-
-dis. ”Eta dubulino, mi konvs vin. Kio estas al mi fraŭlino
+”ĉu mi estas mensogulo en viaj okuloj?” li kolerete demandis. ”Eta dubulino, mi konvs vin. Kio estas al mi fraŭlino
 
 Ingram? Tute nenio. Kaj tion vi tre bone scias. Kion ŝi sentas
 
 por mi? Nenion, kaj mi faris mian eblon por ricevi la pruvon
 
-pri tio. Mi zorgis por tio, ke ŝin atingis la famo, ke mia pose-
-
-daĵo ne estas la triono de tio, kion oni supozis, kaj poste mi
+pri tio. Mi zorgis por tio, ke ŝin atingis la famo, ke mia posedaĵo ne estas la triono de tio, kion oni supozis, kaj poste mi
 
 vizitis ŝin por vidi la efikon; kaj de ŝi kaj de ŝia patrino mi estis
 
@@ -3428,9 +2738,7 @@ havas neniun amikon, krom vi — almenaŭ se vi estas tia. Kiu
 
 posedas nenion krom tio, kion vi al mi donis?”
 
-”Jes, vin. Jane. Vi devas estiĝi mia — tute mia. ĉu vi kon-
-
-sentas? Diru jes kaj tuj.”
+”Jes, vin. Jane. Vi devas estiĝi mia — tute mia. ĉu vi konsentas? Diru jes kaj tuj.”
 
 ”Sinjoro Rochester, montru al mi vian vizaĝon; turnu ĝin
 
@@ -3441,12 +2749,7 @@ al la lunlumo.”
 ”ĉar mi volas legi vian vizaĝon — turnu ĝin al la lunlumo!”
 
 
-JANE EYRE
-
-
-”Jen! Vi trovos nur malmulton legeblan krom ĉifita, plen-
-
-skribita paĝo. Sed provu legi — tamen rapidu, ĉar mi suferas.”
+”Jen! Vi trovos nur malmulton legeblan krom ĉifita, plenskribita paĝo. Sed provu legi — tamen rapidu, ĉar mi suferas.”
 
 Lia vizaĝo estis tre ekscitita kaj ruĝa; spasmaj linioj kuris
 
@@ -3462,9 +2765,7 @@ sincera, miaj solaj sentoj al vi devas esti dankemo kaj dediĉo
 
 — ili ne povas turmenti.”
 
-”Dankemo!” li kriis; kaj sovaĝe li diris plue — ”Jane, akcep-
-
-tu min rapide. Diru Edward — nomu min per mia nomo —
+”Dankemo!” li kriis; kaj sovaĝe li diris plue — ”Jane, akceptu min rapide. Diru Edward — nomu min per mia nomo —
 
 Edward — mi volas edziĝi kun vi.
 
@@ -3482,9 +2783,7 @@ deziras, min kiel vian edzinon?”
 
 ”Kara Edward!”
 
-”Venu al mi — kiel eble plej proksime,” — li diris; kaj pre-
-
-mante sian vangon al mia, li flustris: ”faru min feliĉa kaj mi
+”Venu al mi — kiel eble plej proksime,” — li diris; kaj premante sian vangon al mia, li flustris: ”faru min feliĉa kaj mi
 
 feliĉigos vin.”
 
@@ -3496,16 +2795,11 @@ sin ne loku inter nin. ŝi estas mia, ŝi restos mia.”
 
 ”Ne, — kaj tio estas tre feliĉa,” li diris. Kaj se mi amus lin
 
-malpli multe, mi trovus en tiu momento liajn ravitan rigar-
-
-don kaj voĉtonon sovaĝaj; sed sidante tiel ĉe lia flanko, vekita
+malpli multe, mi trovus en tiu momento liajn ravitan rigardon kaj voĉtonon sovaĝaj; sed sidante tiel ĉe lia flanko, vekita
 
 de la premsonĝo de disiĝo — kaj vokita al la paradizo de la
 
 rekuniĝo mi pensis nur pri la feliĉo, kiu abunde estis al mi
-
-
-JANE EYRE
 
 
 oferata. Kaj ĉiam denove li demandis: ”ĉu vi estas feliĉa,
@@ -3534,9 +2828,7 @@ vidi la vizaĝon de mia mastro, kvankam mi sidis tuj apud li.
 
 Kaj kio okazis al la kaŝtanujo? i ĝemis kaj kurbigis siajn
 
-branĉojn dum subite la vento fajfegis trans nin tra la laŭro-
-
-aleo.
+branĉojn dum subite la vento fajfegis trans nin tra la laŭroaleo.
 
 ”Ni devos iri internen,” diris sinjoro Rochester, ”la vetero
 
@@ -3544,9 +2836,7 @@ aleo.
 
 ”Kaj mi kun vi,” mi pensis. Kaj eble mi estus dirinta tion,
 
-sed blindiganta fulmo pafiĝis el nubo, al kiu okaze mi supren-
-
-rigardis; sekvis bruego, kraketado kaj tondrobato tiel terura,
+sed blindiganta fulmo pafiĝis el nubo, al kiu okaze mi suprenrigardis; sekvis bruego, kraketado kaj tondrobato tiel terura,
 
 ke mi kaŝis miajn blindigitajn okulojn sur la ŝultro de sinjoro
 
@@ -3569,9 +2859,6 @@ Komence mi ne rimarkis ŝin, nek sinjoro Rochester. La
 lampo brulis. Estis preskaŭ noktomezo.
 
 
-JANE EYRE
-
-
 ”Iru tuj demeti viajn malsekajn vestojn,” li diris, ”kaj:
 
 bonan nokton — dormu bone, mia karulino!”
@@ -3588,13 +2875,9 @@ okazintaĵon ĝenege terura, ke ŝi klarigus al si malbone, kion
 
 ŝi ĵus vidis. Tiu timo baldaŭ foriĝis, ĉar mia ĝojego forpelis
 
-ĉiun alian senton; kaj kvankam la vento fajfegis kaj la fulmo-
+ĉiun alian senton; kaj kvankam la vento fajfegis kaj la fulmotondro bruegis, kaj la fulmoj ĉiam denove heligis mian ĉam-
 
-tondro bruegis, kaj la fulmoj ĉiam denove heligis mian ĉam-
-
-bron, kaj la pluvego kiel akvofalo falis el la ĉielo, mi ne sen-
-
-tis plu timon kaj eĉ malmultan respektimponon. Sinjoro Ro-
+bron, kaj la pluvego kiel akvofalo falis el la ĉielo, mi ne sentis plu timon kaj eĉ malmultan respektimponon. Sinjoro Ro-
 
 chester venis tri fojojn al mia ĉambro dum la ventego por
 
@@ -3606,12 +2889,7 @@ Antaŭ ol mi ellitiĝis en la sekvanta mateno, eta Adèle
 
 enkuris mian dormejon por rakonti al mi, ke la alta sovaĝa
 
-kaŝtanarbo en la nokto estis trafita de la fulmo kaj ke ĝi duo-
-
-ne estas frakasita.
-
-
-JANE EYRE
+kaŝtanarbo en la nokto estis trafita de la fulmo kaj ke ĝi duone estas frakasita.
 
 
 ĉapitro XXIV.
@@ -3630,25 +2908,17 @@ Suprenligante miajn harplektaĵojn, mi konsideris mian
 
 vizaĝon en la spegulo kaj vidis, ke ĝi ne estas plu malbela; ĝi
 
-esprimis esperon kaj viva ruĝo kovris la vangojn. Miaj oku-
+esprimis esperon kaj viva ruĝo kovris la vangojn. Miaj okuloj rigardis kvazaŭ ili estus vidintaj la fonton de la vivo kaj
 
-loj rigardis kvazaŭ ili estus vidintaj la fonton de la vivo kaj
-
-pruntintaj sian brilon de la ludantaj ondoj. Ofte mi estis rigar-
-
-dinta mian mastron, dum mi timis, ke mia rigardo povus esti
+pruntintaj sian brilon de la ludantaj ondoj. Ofte mi estis rigardinta mian mastron, dum mi timis, ke mia rigardo povus esti
 
 al li malagrabla. Nun mi tamen sciis, ke mi povos levi mian
 
 vizaĝon al lia kaj ke ĝi ne malvarmigos lian amon. Mi prenis
 
-simplan sed puran, helan somerveston el mia ŝranko kaj ves-
+simplan sed puran, helan somerveston el mia ŝranko kaj vestis min per ĝi; estis al mi, kvazaŭ neniu vestaĵo tiel bone vestis
 
-tis min per ĝi; estis al mi, kvazaŭ neniu vestaĵo tiel bone vestis
-
-min — mi ja ankaŭ neniam portis ĝin en tiu feliĉega animsta-
-
-to.
+min — mi ja ankaŭ neniam portis ĝin en tiu feliĉega animstato.
 
 Malsuprenirante al la halo, mi tute ne estis mirigita pro tio,
 
@@ -3665,14 +2935,9 @@ Almozulino kun sia knabeto — ambaŭ palaj, mizeraj kaj
 ĉifone vestitaj — supreniris la larĝan ĝardenvojon; mi iris al
 
 
-JANE EYRE
-
-
 ili renkonte kaj donis al ili la monon, kiun mi havis en mia
 
-monujo; pli ol kvar ŝilingojn; ĉiuj homoj ĉu bonaj ĉu malbo-
-
-naj, devis partopreni mian feliĉegon. La korvo gratadis, la bir-
+monujo; pli ol kvar ŝilingojn; ĉiuj homoj ĉu bonaj ĉu malbonaj, devis partopreni mian feliĉegon. La korvo gratadis, la bir-
 
 detoj kantis, sed nenio estis tiel ĝoja kaj belsona kiel la
 
@@ -3706,9 +2971,7 @@ Mi eniris. Jen li staris.
 
 ”Eniru kaj diru al mi, ’bonan matenon’,” li diris. Gaje mi iris
 
-al li. Ne malvarman, bonmanieran salutvorton aŭ indiferen-
-
-tan manpremon li donis al mi, sed koran ĉirkaŭbrakon kaj
+al li. Ne malvarman, bonmanieran salutvorton aŭ indiferentan manpremon li donis al mi, sed koran ĉirkaŭbrakon kaj
 
 koran kison. Tio ŝajnis al mi tre natura; estis sankta konscio
 
@@ -3729,16 +2992,11 @@ Kara leganto, mi havis verdajn okulojn, sed pardonu al li
 la eraron; supozeble ili ŝajnis al li freŝe koloritaj.
 
 
-JANE EYRE
-
-
 ”Tio estas Jane Eyre, sinjoro.”
 
 ”Kaj estos baldaŭ Jane Rochester,” li parolis plue, ”en kvar
 
-semajnoj, Jane; ne unu tagon pli longe. ĉu vi aŭdas kaj kom-
-
-prenas min?”
+semajnoj, Jane; ne unu tagon pli longe. ĉu vi aŭdas kaj komprenas min?”
 
 Mi aŭdis lin, sed ne povis kompreni tion. i kaŭzis al mi
 
@@ -3754,9 +3012,7 @@ Kial do?”
 
 sonis tiel strange.”
 
-”Jes, sinjorino Rochester,” li diris, ”la juna sinjorino Ro-
-
-chester, la knabino-fianĉino de Fairfax Rochester.”
+”Jes, sinjorino Rochester,” li diris, ”la juna sinjorino Rochester, la knabino-fianĉino de Fairfax Rochester.”
 
 ”ŝajnas al mi, kvazaŭ tio estas neebla, sinjoro! ĉio tio estas
 
@@ -3766,13 +3022,9 @@ Mi ja ne naskiĝis por pli bona sorto ol miaj proksimuloj. Estus
 
 fea rakonto nura sonĝo, se tia sorto okazus al mi.”
 
-”Sed mi realigos tiun sonĝon. Ankoraŭ hodiaŭ mi komen-
+”Sed mi realigos tiun sonĝon. Ankoraŭ hodiaŭ mi komencos la efektivigon. Hodiaŭ matene mi skribis al mia bankie-
 
-cos la efektivigon. Hodiaŭ matene mi skribis al mia bankie-
-
-ro en Londono, ke li sendu al mi certajn juvelojn, kiujn li kon-
-
-servas por mi — heredaĵojn de la sinjorinoj de Thornfield. Mi
+ro en Londono, ke li sendu al mi certajn juvelojn, kiujn li konservas por mi — heredaĵojn de la sinjorinoj de Thornfield. Mi
 
 esperas, ke post du aŭ tri tagoj mi povu ŝuti ilin sur viajn
 
@@ -3793,14 +3045,9 @@ kroni vian frunton per la diademo! Kiel rave ili vestos vin!
 ĉar, Jane, la naturo stampis sur via frunto la markon de
 
 
-JANE EYRE
-
-
 nobeleco! Kaj mi volas ornami ĉi tiujn delikatajn brakojn per
 
-braceletoj, kaj plenŝarĝi ĉi tiujn etajn feo-fingrojn per multe-
-
-kostaj ringoj.”
+braceletoj, kaj plenŝarĝi ĉi tiujn etajn feo-fingrojn per multekostaj ringoj.”
 
 ”Ne, ne, sinjoro! Pensu pri aliaj aferoj, parolu pri io alia kaj
 
@@ -3812,9 +3059,7 @@ krom via simpla, kvakersimila guvernistino.”
 
 delikata kaj elfsimila.”
 
-”Malgranda kaj sensignita, vi volas diri. Ho, sinjoro, vi son-
-
-ĝas, aŭ vi volas moki min. Pro la boneco de Dio, ne estu iro-
+”Malgranda kaj sensignita, vi volas diri. Ho, sinjoro, vi sonĝas, aŭ vi volas moki min. Pro la boneco de Dio, ne estu iro-
 
 nia!”
 
@@ -3838,26 +3083,19 @@ plu via iama Jane Eyre, sed simio en arlekena vestaĵo — pigo
 
 en pruntitaj plumoj. Vere, sinjoro Rochester, pli mi amus vidi
 
-vin en teatra kostumo, ol min mem en la robo de kortegani-
-
-no. Kaj mi ne diras, ke vi estas bela, sinjoro, kvankam mi sen-
+vin en teatra kostumo, ol min mem en la robo de korteganino. Kaj mi ne diras, ke vi estas bela, sinjoro, kvankam mi sen-
 
 lime vin amas: multe tro kore kaj vere por flati vin. Tial ankaŭ
 
 vi ne flatu min.”
 
-Tamen li daŭrigis pri sia temo, ne rimarkante miajn mal-
-
-konsentajn malaprobojn.
+Tamen li daŭrigis pri sia temo, ne rimarkante miajn malkonsentajn malaprobojn.
 
 ”Ankoraŭ hodiaŭ mi veturos kun vi al Millcote, por ke vi
 
 elektu kelkajn vestaĵojn por vi. Mi ja diris, ke ni en kvar
 
 semajnoj estos geedziĝintaj. La edziĝo okazos tute senbrue en
-
-
-JANE EYRE
 
 
 tiu preĝejo kaj tuj poste mi kondukos vin al la ĉefurbo. Post
@@ -3880,13 +3118,9 @@ komparante vin kun aliuloj.”
 
 Florenco, Venecio kaj Vieno; viaj piedoj tuŝos la lokojn, kie
 
-iam mi promenis; ili ŝvebos trans la ombrojn, kiujn mi trans-
+iam mi promenis; ili ŝvebos trans la ombrojn, kiujn mi transiris. Antaŭ dek jaroj mi senripoze vagadis kiel frenezulo tra la
 
-iris. Antaŭ dek jaroj mi senripoze vagadis kiel frenezulo tra la
-
-tuta Eŭropo; naŭzo, malamo kaj kolero estis miaj akompa-
-
-nantoj; nun mi resaniĝinte laŭiros la saman vojon, sed ĉaste
+tuta Eŭropo; naŭzo, malamo kaj kolero estis miaj akompanantoj; nun mi resaniĝinte laŭiros la saman vojon, sed ĉaste
 
 kaj ĉe la flanko de anĝelo, kiu konsolos min.”
 
@@ -3921,18 +3155,11 @@ monatoj aŭ pli mallonge. En libroj, verkitaj de viroj mi vidis,
 ke tiu periodo estas la plej longa, ĝis kiu povas atingi la amo
 
 
-JANE EYRE
-
-
 de viro. Malgraŭ tio mi esperas, ke nenian mi, kiel amikino
 
-kaj akompanantino, estos tute indiferenta al mia kara sinj-
+kaj akompanantino, estos tute indiferenta al mia kara sinjoro.”
 
-oro.”
-
-”Ne estos tute indiferenta! Kaj denove ameti vin! Mi kre-
-
-das, ke ĉiam denove mi ametos vin, kaj unu tagon vi konfesos
+”Ne estos tute indiferenta! Kaj denove ameti vin! Mi kredas, ke ĉiam denove mi ametos vin, kaj unu tagon vi konfesos
 
 al mi, ke mi ne nur ametas, sed vere kaj daŭre amas vin.”
 
@@ -3942,15 +3169,11 @@ al mi, ke mi ne nur ametas, sed vere kaj daŭre amas vin.”
 
 estas vera diablo, kiam mi ekscias, ke ili havas nek koron nek
 
-animon, se ili montras al mi nur perspektivon de sensignife-
-
-co, malsaĝeco, krudeco kaj maliceco; — sed al klara okulo kaj
+animon, se ili montras al mi nur perspektivon de sensignifeco, malsaĝeco, krudeco kaj maliceco; — sed al klara okulo kaj
 
 elokventa lango, al arda animo kaj karaktero, kiu sin kurbas
 
-sed ne rompiĝas kiu samtempe estas fleksebla kaj forta, kon-
-
-stanta kaj tamen facile traktebla — al tiuj mi ĉiam estas fidela
+sed ne rompiĝas kiu samtempe estas fleksebla kaj forta, konstanta kaj tamen facile traktebla — al tiuj mi ĉiam estas fidela
 
 kaj vera.”
 
@@ -3966,41 +3189,25 @@ malfacilajn ecojn?”
 
 ”Neniam mi trovis vian egalulinon. Jane, vi plaĉas al mi kaj
 
-vi regas min — ŝajne vi submetiĝas, kaj mi admiras la flekse-
+vi regas min — ŝajne vi submetiĝas, kaj mi admiras la flekseblecon, kiun vi montras; kaj dum mi volvas la malmolan
 
-blecon, kiun vi montras; kaj dum mi volvas la malmolan
-
-silkon ĉirkaŭ mia fingro, ĝi tremetigas mian koron. Vi influ-
-
-is je mi, venkis min, kaj tiu influo estas pli dolĉa, ol mi povas
+silkon ĉirkaŭ mia fingro, ĝi tremetigas mian koron. Vi influis je mi, venkis min, kaj tiu influo estas pli dolĉa, ol mi povas
 
 diri; kaj la venko, al kiu mi devas submetiĝi, estas pli ĉarma
 
 ol iu ajn triumfo, kiun mi povus venki. Kial vi ridetas, Jane?
 
-Kion do signifas tiu neklarigebla, nebela ŝangiĝo de via vizaĝ-
+Kion do signifas tiu neklarigebla, nebela ŝangiĝo de via vizaĝesprimo?”
 
-esprimo?”
-
-”Mi pensis, sinjoro (pardonu al mi tiun ideon, kiu estis sen-
-
-
-JANE EYRE
-
-
-vola) mi pensis pri Herkuleso kaj Samson kaj al iliaj ĉarmu-
+”Mi pensis, sinjoro (pardonu al mi tiun ideon, kiu estis senvola) mi pensis pri Herkuleso kaj Samson kaj al iliaj ĉarmu-
 
 linoj —”
 
 ”Vere, mia eta elfo —”
 
-”Eksilentu, sinjoro! Vi ne parolas tre saĝe en ĉi tiu momen-
+”Eksilentu, sinjoro! Vi ne parolas tre saĝe en ĉi tiu momento; ne multe pli saĝe ol agis tiuj du viroj. Sed, se ili estus edzi-
 
-to; ne multe pli saĝe ol agis tiuj du viroj. Sed, se ili estus edzi-
-
-ĝintaj, ili sendube per sia severeco kiel edzoj, estus kompen-
-
-sintaj sian malsaĝecon kiel svatiĝantoj, — kaj mi timas, ke vi
+ĝintaj, ili sendube per sia severeco kiel edzoj, estus kompensintaj sian malsaĝecon kiel svatiĝantoj, — kaj mi timas, ke vi
 
 agus tutsame. Mi dezirus jam nun scii, kion vi respondos al
 
@@ -4014,15 +3221,11 @@ vi petus ion al mi —”
 
 ”Certe, sinjoro, mi petos ion, mi havas peton farotan.”
 
-”Parolu! Sed se vi rigardos supren kaj ridas al mi per tia es-
-
-primo, tiam mi ĵuras plenumi vian peton antaŭ ol mi ĝ-
+”Parolu! Sed se vi rigardos supren kaj ridas al mi per tia esprimo, tiam mi ĵuras plenumi vian peton antaŭ ol mi ĝ-
 
 nos, kaj tio faros el mi malsaĝulon.”
 
-”Tute ne, sinjoro. Mi petas nur la jenon: ne venigu la juve-
-
-lojn, kaj ne kronu min per rozoj; vi ja povus same bone bor-
+”Tute ne, sinjoro. Mi petas nur la jenon: ne venigu la juvelojn, kaj ne kronu min per rozoj; vi ja povus same bone bor-
 
 deri per veraj oraj strioj tiun simplan poŝtukon, kiun vi tenas
 
@@ -4034,9 +3237,7 @@ peto tamen estas konsentita — almenaŭ por ĉi tiu momento.
 
 Mi nuligos la ordonon faritan al mia bankiero. Sed vi petis
 
-ankoraŭ nenion, vi nur petis, ke mi retenu donacon: petu de-
-
-nove.”
+ankoraŭ nenion, vi nur petis, ke mi retenu donacon: petu denove.”
 
 ”Nu, sinjoro, bonvolu do kontentigi mian scivolemon, kiu
 
@@ -4049,14 +3250,9 @@ li demandis rapide. ”La scivolemo estas danĝera petantino.
 Estas feliĉe, ke mi ne ĵuris plenumi ĉiun peton —”
 
 
-JANE EYRE
-
-
 ”Tamen ne povas esti danĝere plenumi la celitan, sinjoro.”
 
-”Eldiru ĝin, Jane. Sed mi pli amus, se vi petus al mi la duo-
-
-non de mia posedaĵo, ol ke vi povus eldemandi misteron.”
+”Eldiru ĝin, Jane. Sed mi pli amus, se vi petus al mi la duonon de mia posedaĵo, ol ke vi povus eldemandi misteron.”
 
 ”Sed, ho reĝo Ahaŝveros! Al kio povus utili al mi la duono
 
@@ -4074,9 +3270,7 @@ pro la amo de Dio, ne metu sur vin neporteblan ŝarĝon! Ne
 
 aspiru venenon — ne fariĝu vera Evo en miaj manoj!”
 
-”Kial ne, sinjoro? Vi ja ĵus diris al mi, ke vi amas esti ven-
-
-kata kaj kiel volonte vi lasas vnvinki. ĉu vi ankaŭ ne opi-
+”Kial ne, sinjoro? Vi ja ĵus diris al mi, ke vi amas esti venkata kaj kiel volonte vi lasas vnvinki. ĉu vi ankaŭ ne opi-
 
 nias, ke mi devas uzi tiun konfeson kaj ke mi devas komenci
 
@@ -4092,9 +3286,7 @@ tro multe aŭ se vi estiĝos tro postulema, la ludo finiĝis.”
 
 aspektas! Viaj brovoj fariĝis tiel dikaj, kiel miaj fingroj kaj via
 
-frunto estas simila al tio, kion mi iam aŭdis nomi ’tondro-
-
-nubo’ en stranga poemo. Supozeble, sinjoro, vi konstante
+frunto estas simila al tio, kion mi iam aŭdis nomi ’tondronubo’ en stranga poemo. Supozeble, sinjoro, vi konstante
 
 montros tiun vizaĝon post kiam vi estos edziĝinta?”
 
@@ -4106,12 +3298,7 @@ de mi la penson kuniĝi kun koboldeto aŭ salamandro, Sed,
 
 kara etulino, kion do vi volus peti? — Rapide diru!”
 
-”Jen, nun vi estas vere malpli ol ĝentila. Sed tiu malĝen-
-
-tileco estas al mi pli agrabla ol flataĵo. Pli volonte mi estas etu-
-
-
-JANE EYRE
+”Jen, nun vi estas vere malpli ol ĝentila. Sed tiu malĝentileco estas al mi pli agrabla ol flataĵo. Pli volonte mi estas etu-
 
 
 lino ol anĝelo. Jen kion mi volus demandi: Kial do vi tiel penis
@@ -4128,9 +3315,7 @@ estis fordeturnita.
 
 ”Mi kredas, ke mi povas konfesi tion al vi,” li parolis plue,
 
-”eĉ kaŭzante per tio vian kolereton. Jane, mi ja vidis kia faj-
-
-ra spirito vi povas esti, kiam vi estas ekscitita. Eĉ hieraŭ en la
+”eĉ kaŭzante per tio vian kolereton. Jane, mi ja vidis kia fajra spirito vi povas esti, kiam vi estas ekscitita. Eĉ hieraŭ en la
 
 malvarma lunlumo mi vidis vin ardi, kiam vi ribelis kontraŭ
 
@@ -4144,21 +3329,13 @@ agis.”
 
 petas, sinjoro — — fraŭlino Ingram?”
 
-”Nu, do; aŭskultu; laŭŝajne mi amindumis fraŭlinon Ing-
+”Nu, do; aŭskultu; laŭŝajne mi amindumis fraŭlinon Ingram, dezirante, ke vi enamiĝu same freneze je mi, kiel mi en-
 
-ram, dezirante, ke vi enamiĝu same freneze je mi, kiel mi en-
+amiĝis je vi; kaj mi sciis, ke ĵaluzo estos mia plej forta samligano, kiun mi povus alvoki por helpi min!”
 
-amiĝis je vi; kaj mi sciis, ke ĵaluzo estos mia plej forta samli-
+”Bonege! — Nun vi estas malgranda — ne multe pli granda ol la supro de mia malgranda fingro. Estas hontinda mal-
 
-gano, kiun mi povus alvoki por helpi min!”
-
-”Bonege! — Nun vi estas malgranda — ne multe pli gran-
-
-da ol la supro de mia malgranda fingro. Estas hontinda mal-
-
-justaĵo tiel agi. ĉu vi tiam tute ne pensis pri la sentoj de fraŭ-
-
-lino Ingram, sinjoro?”
+justaĵo tiel agi. ĉu vi tiam tute ne pensis pri la sentoj de fraŭlino Ingram, sinjoro?”
 
 ”ŝiaj sentoj koncentriĝas nur en unu punkto, nome en ŝia
 
@@ -4175,38 +3352,27 @@ vi ne kredas, ke fraŭlino Ingram suferos pro via malhonesta
 koketaĵo? ĉu ŝi ne konsideros sin forlasitino.
 
 
-JANE EYRE
-
-
 ”Neeble! — Mi ja rakontis al vi, kiel kontraŭe ŝi forlasis
 
 min. La flamo de ŝia amo en unu momento malpligrandiĝis,
 
-aŭ pli bone dirite, estingiĝis pro la famo de mia nesolvente-
-
-co.”
+aŭ pli bone dirite, estingiĝis pro la famo de mia nesolventeco.”
 
 ”Vi havas strangan, intrigan karakteron, sinjoro Rochester.
 
-Mi timas, ke rilate al multaj aferoj vi havas ekscentrajn prin-
-
-cipojn.”
+Mi timas, ke rilate al multaj aferoj vi havas ekscentrajn principojn.”
 
 ”Miaj principoj neniam estis trejnataj; eble ili malrektiĝis
 
 pro manko de disciplino?”
 
-”Ankoraŭ unu fojon plensincere: ĉu mi povos ĝui la gran-
-
-dan akiritan feliĉon sen timo, ke neniu alia sentos la amaran
+”Ankoraŭ unu fojon plensincere: ĉu mi povos ĝui la grandan akiritan feliĉon sen timo, ke neniu alia sentos la amaran
 
 doloron, kiun mi mem sentis antaŭ nelonge?”
 
 ”Tion vi povos, mia malgranda knabineto. Sur la tuta tero
 
-troviĝas neniu alia, krom vi, kiu sentas por mi la saman pur-
-
-an amon, ĉar la kredo al via amo, Jane, estas la saniga, bon-
+troviĝas neniu alia, krom vi, kiu sentas por mi la saman puran amon, ĉar la kredo al via amo, Jane, estas la saniga, bon-
 
 faranta balzamo, kiun mi bezonas por mia animo.”
 
@@ -4216,9 +3382,7 @@ Mi premis miajn lipojn sur lian manon, kiu ripozis sur mia
 
 pli ol povis esprimi vortoj.
 
-”Petu ankoraŭ ion alian de mi,” li diris post kelkaj sekun-
-
-doj, ”mia plej granda ĝojo estas, ke vi faras al mi peton kaj ke
+”Petu ankoraŭ ion alian de mi,” li diris post kelkaj sekundoj, ”mia plej granda ĝojo estas, ke vi faras al mi peton kaj ke
 
 mi povas cedi.”
 
@@ -4237,9 +3401,6 @@ juĝon pri mi.”
 ”Iru al via ĉambro kaj surmetu vian ĉapelon,” li respondis.
 
 ”Mi deziras, ke vi akompanu min hodiaŭ matene al Millcote,
-
-
-JANE EYRE
 
 
 kaj dum vi aranĝas la preparojn por la vojaĝo, mi volas lumigi
@@ -4264,19 +3425,13 @@ aĝa sinjorino ĵus legis ĉapitron el sia biblio — la epistolon por
 
 la tago. La biblio kuŝis malfermita antaŭ ŝi kaj la okulvitroj
 
-kuŝis sur ĝi. ŝi ŝajnis ne pensi pri sia legado, kiun estis inter-
+kuŝis sur ĝi. ŝi ŝajnis ne pensi pri sia legado, kiun estis interrompinta sinjoro Rochester.
 
-rompinta sinjoro Rochester.
-
-ŝiaj okuloj, fiksitaj sur la kontraŭa vando, esprimis la mi-
-
-regon de kvieta karaktero, kiu estis ekscitita pro neordinara
+ŝiaj okuloj, fiksitaj sur la kontraŭa vando, esprimis la miregon de kvieta karaktero, kiu estis ekscitita pro neordinara
 
 novaĵo. Vidante min, ŝi regis sin; ŝi klopodis rideti kaj diris
 
-kelkajn gratulvortojn. Sed la rideto foriĝis kaj ne finiĝis la gra-
-
-tuloj. ŝi denove surmetis la okulvitrojn, fermis la biblion kaj
+kelkajn gratulvortojn. Sed la rideto foriĝis kaj ne finiĝis la gratuloj. ŝi denove surmetis la okulvitrojn, fermis la biblion kaj
 
 ŝovis malantaŭen sian seĝon.
 
@@ -4301,30 +3456,21 @@ estis nomata. ĉu vi nun povas diri al mi, ĉu estas vere kaj
 certe, ke li petis vin edziĝi kun li? Ne ridu je mi! Sed estas al
 
 
-JANE EYRE
-
-
 mi kvazaŭ li estis ĉi tie en la ĉambro, dirante, ke vi estiĝos lia
 
 edzino en unu monato.”
 
 ”Tion saman li diris al mi,” mi respondis.
 
-”ĉu vere li diris tion? ĉu vi kredas al li? ĉu vere vi akcep-
-
-tis lin?”
+”ĉu vere li diris tion? ĉu vi kredas al li? ĉu vere vi akceptis lin?”
 
 ”Jes.
 
 ŝi rigardis mnsternite.
 
-”Tion mi neniam povus pensi. Li estas fiera viro. ĉiuj Ro-
+”Tion mi neniam povus pensi. Li estas fiera viro. ĉiuj Rochesteroj estis fieraj. Kaj krome lia patro tre amis la monon.
 
-chesteroj estis fieraj. Kaj krome lia patro tre amis la monon.
-
-Ankaŭ pri li oni ĉiam diras, ke li estas tre singarda kaj ŝpare-
-
-ma. ĉu vere li intencas edziĝi kun vi?”
+Ankaŭ pri li oni ĉiam diras, ke li estas tre singarda kaj ŝparema. ĉu vere li intencas edziĝi kun vi?”
 
 ”Almenaŭ tion li diris al mi.”
 
@@ -4338,9 +3484,7 @@ forta por solvi la enigmon.
 
 nepre ĝi estas vera, ĉar vi mem tion diras. Kiel tio finiĝos —
 
-Dio scias: mi vere ne scias tion. En tiuj okazoj egaleco pri ran-
-
-go kaj posedaĵo estas tre konsilinda, kaj la diferenco je aĝo
+Dio scias: mi vere ne scias tion. En tiuj okazoj egaleco pri rango kaj posedaĵo estas tre konsilinda, kaj la diferenco je aĝo
 
 inter vi estas pli ol dudek jaroj. Li povus esti via patro.”
 
@@ -4365,9 +3509,6 @@ maljuna vidvino, ”sed vi estas tiel juna, vi konas tiel malmulte
 la homojn, mi volonte farus vin iom singarda. La malnova
 
 
-JANE EYRE
-
-
 proverbo diras: ’Ne ĉio brilanta estas diamanto’, kaj mi timas,
 
 ke ni trovos en ĉi tiu afero multon, kio estas tre diversa de tio,
@@ -4376,13 +3517,9 @@ kion vi kaj mi atendas.”
 
 ”Kial? — ĉu do mi estas monstro?” mi demandis. ”ĉu estus
 
-neeble, ke sinjoro Rochester sentus por mi sinceran inkli-
+neeble, ke sinjoro Rochester sentus por mi sinceran inklinon?”
 
-non?”
-
-”Ne, vi estas ja sufiĉe beleta kaj en la lasta tempo vi eĉ mul-
-
-te plibeliĝis. Estas do eble, ke sinjoro Rochester tre vin amas.
+”Ne, vi estas ja sufiĉe beleta kaj en la lasta tempo vi eĉ multe plibeliĝis. Estas do eble, ke sinjoro Rochester tre vin amas.
 
 Mi ĉiam rimarkis, ke li por vi sentas certan preferon. Estis
 
@@ -4392,9 +3529,7 @@ montriĝanta prefero kaj ofte mi deziris fari vin iom singarda.
 
 Sed ŝokis min tuŝi nur la eblecon de maljustaĵo. Mi sciis, ke
 
-tia ideo ofendus, eble kolerigus vin, kaj vi mem estis tiel dis-
-
-kreta, kaj tiel saĝa kaj modesta, ke mi esperis, ke oni povus
+tia ideo ofendus, eble kolerigus vin, kaj vi mem estis tiel diskreta, kaj tiel saĝa kaj modesta, ke mi esperis, ke oni povus
 
 lasi, ke vi mem protektu vin. Mi ne povas priskribi al vi, kion
 
@@ -4420,27 +3555,18 @@ tamen tiom malmulte, kiom vin mem. Sinjoroj de lia rango
 
 ordinare ne edziĝas kun siaj guvernistinoj.”
 
-Mi vere sentis min ofendita; feliĉe Adèle enkuris en la ĉam-
-
-bron.
+Mi vere sentis min ofendita; feliĉe Adèle enkuris en la ĉambron.
 
 ”Kunveturigu min, — kunprenu min ankaŭ al Millcote!”
 
 kriis ŝi. ”Sinjoro Rochester ne volas kunpreni min, kvankam
 
 
-JANE EYRE
-
-
-tiom da loko estas en la nova veturilo. Ho, mademoiselle, pe-
-
-tu lin por mi, ke li min kunprenu.”
+tiom da loko estas en la nova veturilo. Ho, mademoiselle, petu lin por mi, ke li min kunprenu.”
 
 ”Tion mi petos, Adèle,” kaj ĝoja, ĉar mi povis foriri de mia
 
-malgaja admonistino, mi kun la knabino foriris de ŝi. La vetu-
-
-rilo staris preta, la veturigisto ĵus haltis antaŭ la ĉefa porta-
+malgaja admonistino, mi kun la knabino foriris de ŝi. La veturilo staris preta, la veturigisto ĵus haltis antaŭ la ĉefa porta-
 
 lo; mia sinjoro kaj ordonanto iris tien kaj reen antaŭ la domo,
 
@@ -4458,23 +3584,17 @@ pli bone.”
 
 Li parolis en tre ordona tono; liaj rigardoj mirigis min. Mi
 
-estis ankoraŭ sub la malvarma influo de la avertoj de sinjo-
-
-rino Fairfax; pensante pri la dubo, kiun ŝi eldiris, min ree ata-
+estis ankoraŭ sub la malvarma influo de la avertoj de sinjorino Fairfax; pensante pri la dubo, kiun ŝi eldiris, min ree ata-
 
 kis kvazaŭ tremfrosto. Miaj esperoj estis premitaj pro sento
 
 de necerteco kaj senbazeco. La konscio de mia povo super li
 
-subite foriĝis. Mi estis obeanta lin sen plua kontraŭstaro. Hel-
-
-pante min eniri en la veturilon, li rigardis min en la vizaĝon.
+subite foriĝis. Mi estis obeanta lin sen plua kontraŭstaro. Helpante min eniri en la veturilon, li rigardis min en la vizaĝon.
 
 ”Kio estas?” li demandis. ”ĉiu sunbrilo malaperis —ĉu vi
 
-do vere deziras, ke la infano akompanu nin? ĉu vere vi ĉagre-
-
-nigis, ĉar la etulino restos hejme?”
+do vere deziras, ke la infano akompanu nin? ĉu vere vi ĉagrenigis, ĉar la etulino restos hejme?”
 
 ”Mi tre ŝatus, se ŝi kunirus, sinjoro.”
 
@@ -4491,9 +3611,6 @@ li diris, ”ĉar baldaŭ vi, viaj pensoj, paroloj kaj societo plene
 okupos min — por la tuta vivo.”
 
 Kiam Adèle estis metita en la veturilon, ŝi kisis min, por
-
-
-JANE EYRE
 
 
 montri al mi sian dankon pro mia perado. Tuj li ŝovis ŝin en
@@ -4514,21 +3631,15 @@ Li metis ŝin kiel hundeton al mia fianko. ”Mi tamen sendos
 
 ŝin al instituto,” li diris, sed nun li ridetis.
 
-Adèle aŭdis lian diraĵon kaj demandis, ĉu ŝi ”sans mademoi-
+Adèle aŭdis lian diraĵon kaj demandis, ĉu ŝi ”sans mademoiselle” estos sendata al instituto.
 
-selle” estos sendata al instituto.
-
-”Jes,” li diris, ”tre decidite, sans mademoiselle; ĉar mi voja-
-
-ĝos kun mademoiselle al la luno kaj tie mi serĉos kavernon en
+”Jes,” li diris, ”tre decidite, sans mademoiselle; ĉar mi vojaĝos kun mademoiselle al la luno kaj tie mi serĉos kavernon en
 
 unu el la blankaj valoj inter la fajrokraĉantaj montoj, kaj tie
 
 supre mademoiselle vivos kun mi, tute sola kun mi.”
 
-”Sed tie vi havos nenion por manĝi; tie vi mortos pro mal-
-
-sato,” rimarkis Adèle.
+”Sed tie vi havos nenion por manĝi; tie vi mortos pro malsato,” rimarkis Adèle.
 
 ”Tage kaj nokte mi kolektos por ŝi manaon: la ebenaĵoj kaj
 
@@ -4557,16 +3668,11 @@ tiu demando,” diris:
 1 Ho, kiel malbone ŝi estos tie — tute ne komforte!
 
 
-JANE EYRE
-
-
 ”Hm — — Kion vi farus, Adèle? Rompu al vi la kapon por
 
 trovi taŭgan rimedon.
 
-Kiel laŭ via opinio aspektus blanka aŭ roza nubo kiel ves-
-
-to? Kaj el ĉielarko oni eble povus fari belan skarpon.”
+Kiel laŭ via opinio aspektus blanka aŭ roza nubo kiel vesto? Kaj el ĉielarko oni eble povus fari belan skarpon.”
 
 Post kiam Adèle estis pripensinta nomenton, ŝi diris: ”Ne,
 
@@ -4580,15 +3686,11 @@ konsentus iri kun vi.”
 
 ”Sed vi ja tute ne povos konduki ŝin supren; ne estas vojo
 
-al la luno; ĉar estas nur aero; kaj vi ne povas flugi, nek made-
-
-moiselle.”
+al la luno; ĉar estas nur aero; kaj vi ne povas flugi, nek mademoiselle.”
 
 ”Adèle, rigardu tiun kamparon.”
 
-Ni estis nun ekster la pordego de Thornfield kaj la veturi-
-
-lo senskue laŭiris la ebenan landvojon al Millcote. Pro la ura-
+Ni estis nun ekster la pordego de Thornfield kaj la veturilo senskue laŭiris la ebenan landvojon al Millcote. Pro la ura-
 
 gano ne estis polvo sur la vojo; la malaltaj kreskaĵ-bariloj
 
@@ -4614,12 +3716,7 @@ je kelkaj paŝoj antaŭ mi. Mi rigardis ĝin. Tio estis eta, tre eta
 
 objekto, kiu portis vualon el araneaĵoj sur la kapo. Mi geste
 
-vokis ĝin al mi; baldaŭ ĝi sidis sur miaj genuoj. Mi ne paro-
-
-lis al ĝi — ĝi ne parolis al mi — per vortoj; sed mi legis en ĝiaj
-
-
-JANE EYRE
+vokis ĝin al mi; baldaŭ ĝi sidis sur miaj genuoj. Mi ne parolis al ĝi — ĝi ne parolis al mi — per vortoj; sed mi legis en ĝiaj
 
 
 okuloj kaj ĝi legis en miaj; nia senparola interparolado estis
@@ -4632,19 +3729,13 @@ min feliĉa, sed mi devus iri kun ĝi el la ordinara mondo al
 
 izolita loko — ekzemple al la luno — kaj ĝi fingre montris
 
-tien, kie la luno nun ruĝe brilas trans la altaĵo — kaj rakon-
+tien, kie la luno nun ruĝe brilas trans la altaĵo — kaj rakontis al mi pri la alabastraj kavernoj kaj arĝentaj valoj, kie ni
 
-tis al mi pri la alabastraj kavernoj kaj arĝentaj valoj, kie ni
-
-povus vivi. Mi diris, ke volonte mi irus kun ĝi, sed mi memo-
-
-rigis la etan estaĵon, kiel ĵus vi faris, ke mi ne posedas flugi-
+povus vivi. Mi diris, ke volonte mi irus kun ĝi, sed mi memorigis la etan estaĵon, kiel ĵus vi faris, ke mi ne posedas flugi-
 
 lojn por flugi.”
 
-’Ho,’ respondis la elfo, ’tio ne malhelpas! Jen vi havas talis-
-
-manon, kiu forigos ĉiujn barilojn,’ kaj ĝi levis antaŭ miaj oku-
+’Ho,’ respondis la elfo, ’tio ne malhelpas! Jen vi havas talismanon, kiu forigos ĉiujn barilojn,’ kaj ĝi levis antaŭ miaj oku-
 
 loj helan, oran ringon.
 
@@ -4658,9 +3749,7 @@ klinsalutis al la luno.
 
 ”La ringon, Adèle, mi portas en mia brustopoŝo, mi ŝanĝis
 
-ĝin en libron, sed baldaŭ mi ekzorcos ĝin kaj faros el ĝi rin-
-
-gon.”
+ĝin en libron, sed baldaŭ mi ekzorcos ĝin kaj faros el ĝi ringon.”
 
 ”Sed kion do ĉio tio tuŝas mademoiselle? La elfo estas al mi
 
@@ -4668,33 +3757,22 @@ tute indiferenta; vi ja diris, ke vi portos mademoiselle al la
 
 luno —?”
 
-”Mademoiselle estas ja elfo,” li diris misterplene flustran-
+”Mademoiselle estas ja elfo,” li diris misterplene flustrante. Tiam mi diris al ŝi, ke ĉio tio estas nur babilaĵo, kiun ŝi ne
 
-te. Tiam mi diris al ŝi, ke ĉio tio estas nur babilaĵo, kiun ŝi ne
-
-atentu; kaj ŝi siaflanke montris riĉan kvanton da veraj fran-
-
-caj skeptikaĵoj, dum ŝi nomis sinjoron Rochester vera men-
+atentu; kaj ŝi siaflanke montris riĉan kvanton da veraj francaj skeptikaĵoj, dum ŝi nomis sinjoron Rochester vera men-
 
 sogulo ”un vrai menteur” dirante al li, ke ŝi ne atentos liajn
 
 feorakontojn, kaj ke ”du reste il n’y avait pas de fees, et quand
 
 
-JANE EYRE
-
-
 meme il yen avait”1 ŝi estis konvinkita, ke neniu aperos antaŭ
 
 li, ke neniu oferos al li ringon aŭ vojaĝos kun li al la luno.”
 
-La horo, kiun ni pasigis en Millcote, estis al mi turmenti-
+La horo, kiun ni pasigis en Millcote, estis al mi turmentiga. Sinjoro Rochester devigis min iri al certa silkokomercejo,
 
-ga. Sinjoro Rochester devigis min iri al certa silkokomercejo,
-
-kaj tie li ordonis al mi elekti seson da silkaj vestoj. Mi mala-
-
-mis tion kaj petis, ke li prokrastu, sed vane — tiu afero devis
+kaj tie li ordonis al mi elekti seson da silkaj vestoj. Mi malamis tion kaj petis, ke li prokrastu, sed vane — tiu afero devis
 
 tuj esti aranĝita. Per miaj fortaj petegoj, kiujn mi time flustris
 
@@ -4708,9 +3786,7 @@ silkaĵo kaj belega roza atlaso. Ree mi flustris al li, ke li same
 
 bone povus aĉeti por mi oran veston kaj arĝentan ĉapelon,
 
-ĉar neniam mi havus la kuraĝon porti la vestojn, kiujn li elek-
-
-tis. Li estis obstina kiel ŝtono kaj post senfina peno mi sukce-
+ĉar neniam mi havus la kuraĝon porti la vestojn, kiujn li elektis. Li estis obstina kiel ŝtono kaj post senfina peno mi sukce-
 
 sis decidigi lin, ke li ŝanĝis ilntraŭ hele perlogriza robo
 
@@ -4745,9 +3821,6 @@ povus suferi esti kiel ornamita pupo de sinjoro Rochester, aŭ
 1 Krome feoj tute ne ekzistas kaj se ili ekzistus
 
 
-JANE EYRE
-
-
 sidi kiel dua Danae vidante malsuprenfali sur min la oran
 
 pluvon. Reveninte hejmen mi tuj skribos al Madejro por sciigi
@@ -4762,9 +3835,7 @@ riĉaĵon.”
 
 Post tiu penso, laŭ kiu mi agis ankoraŭ la saman tagon, mi
 
-denove ricevis kuraĝon rigardi mian ordonanton kaj aman-
-
-ton en la okulojn, kiuj daŭre serĉis miajn, kvankam mi fortur-
+denove ricevis kuraĝon rigardi mian ordonanton kaj amanton en la okulojn, kiuj daŭre serĉis miajn, kvankam mi fortur-
 
 nis miajn vizaĝon kaj okulojn. Li ridetis, kaj al mi lia rideto
 
@@ -4778,9 +3849,7 @@ mi; ĝi estis ankoraŭ ruĝa pro mia pasia premo.
 
 Mi diris: ”Vi ne bezonas tiom min rigardi; se vi ankoraŭ
 
-foje faras tion, mi ĝis la fino portos nenion krom miaj malno-
-
-vaj vestoj de Lowood. Mi edzinigos min en ĉi tiu siringkolo-
+foje faras tion, mi ĝis la fino portos nenion krom miaj malnovaj vestoj de Lowood. Mi edzinigos min en ĉi tiu siringkolo-
 
 ra vesteto el katuno kaj el la perlogrizaj silkaĵoj vi povos farigi
 
@@ -4792,9 +3861,7 @@ Li subridetis, frotis al si la manojn. ”Ho, estas granda ĝuo
 
 aŭdi kaj vidi ŝin tiel!” li kriis. ”ĉu ŝi ne estas originala? ĉu ŝi
 
-ne estas pikanta? Mi ne volus ŝanĝi ĉi tiun etan anglan kna-
-
-binon kontraŭ la tuta haremo de la grandturko, kun ĉiuj ĝiaj
+ne estas pikanta? Mi ne volus ŝanĝi ĉi tiun etan anglan knabinon kontraŭ la tuta haremo de la grandturko, kun ĉiuj ĝiaj
 
 huri-okuloj kaj gazelo-formoj!”
 
@@ -4807,9 +3874,6 @@ petas vin ne konsideru min tia. Se vi intencas ion tian, tiam
 senprokraste foriru al la bazaro de Stambulo, kaj uzu vian
 
 
-JANE EYRE
-
-
 restantan monon, kiun ŝajne vi ne povas elspezi laŭ via plaĉo,
 
 por starigi sklavo-komercadon.”
@@ -4818,17 +3882,11 @@ por starigi sklavo-komercadon.”
 
 bareloj da karno kaj provizo da nigraj okuloj?”
 
-”Mi pretigus min eliri kiel misiistino al ĉiuj landoj por pre-
+”Mi pretigus min eliri kiel misiistino al ĉiuj landoj por prediki liberecon al ĉiuj vivantaj en sklaveco — inter aliaj ankaŭ
 
-diki liberecon al ĉiuj vivantaj en sklaveco — inter aliaj ankaŭ
+al la loĝantinoj de haremoj. Oni akceptus min tie kaj mi instigus al ribelado. Kaj vi, trivosta paŝao, baldaŭ starus antaŭ
 
-al la loĝantinoj de haremoj. Oni akceptus min tie kaj mi in-
-
-stigus al ribelado. Kaj vi, trivosta paŝao, baldaŭ starus antaŭ
-
-ni kiel katenita malliberulo; kaj mi ne konsentus al senkate-
-
-nigo antaŭ ol vi estus subskribinta liberalan leĝon, kian des-
+ni kiel katenita malliberulo; kaj mi ne konsentus al senkatenigo antaŭ ol vi estus subskribinta liberalan leĝon, kian des-
 
 poto ankoraŭ neniam donis.”
 
@@ -4838,27 +3896,19 @@ poto ankoraŭ neniam donis.”
 
 per tiaj okuloj. Se vi tiel aspektus, mi estas certa, ke vi, ree
 
-liberiĝinte, tuj malobeus ĉiun leĝon, kiun vi sub devigo sub-
-
-skribis.”
+liberiĝinte, tuj malobeus ĉiun leĝon, kiun vi sub devigo subskribis.”
 
 ”Nu, Jane, kion do fakte vi volas de mi? Mi timas, ke vi
 
 devigos min okazigi ankoraŭ duan edziĝoceremonion, krom
 
-tiu antaŭ la altaro. Vi postulos ankoraŭ tute specialajn kon-
+tiu antaŭ la altaro. Vi postulos ankoraŭ tute specialajn kondiĉojn; tion mi jam vidas — kiuj ili estos?”
 
-diĉojn; tion mi jam vidas — kiuj ili estos?”
-
-”Mi dezirus nur malpezan animon, sinjoro, sur kiu ne pre-
-
-mas devoj. ĉu vi memoras ankoraŭ, kion iam vi diris pri Cé-
+”Mi dezirus nur malpezan animon, sinjoro, sur kiu ne premas devoj. ĉu vi memoras ankoraŭ, kion iam vi diris pri Cé-
 
 line Varens? pri la diamantoj kaj la kaŝmiraj ŝaloj, kiujn vi
 
-donacis al ŝi. Mi ne volas esti via angla Céline Varens. Mi daŭ-
-
-rigos esti la guvernistino de Adèle, per tio mi perlaboras enlo-
+donacis al ŝi. Mi ne volas esti via angla Céline Varens. Mi daŭrigos esti la guvernistino de Adèle, per tio mi perlaboras enlo-
 
 ĝadon kaj salajron, kaj krom tio ankoraŭ tridek sterlingajn
 
@@ -4867,9 +3917,6 @@ funtojn. Per tiu mono mi aĉetos miajn vestojn, kaj vi donos al
 mi nenion krom —”
 
 ”Nu, krom?”
-
-
-JANE EYRE
 
 
 ”Krom via estimo; kaj se mi interŝanĝe donos al vi mian,
@@ -4888,9 +3935,7 @@ kiam ni veturis tra la parkopordon.
 
 ”Ne, mi dankas vin, sinjoro.”
 
-”Kaj kial, ’ne, mi dankas vin, sinjoro’, se mi rajtas deman-
-
-di?”
+”Kaj kial, ’ne, mi dankas vin, sinjoro’, se mi rajtas demandi?”
 
 ”Mi neniam manĝis kun vi, sinjoro, kaj mi ne vidas, kial mi
 
@@ -4933,9 +3978,6 @@ kaptis vin por ĉiam, por teni kaj teni vin, tiam mi — figure
 dirite — surmetos al vi ĉi tiun katenon.” Dirante tion li tuŝis
 
 
-JANE EYRE
-
-
 sian horlogoĉenon. ”Jes, ho mia kara etulino, mi portos vin
 
 tuj apud mia koro, por ke mia juvelo ne perdiĝu.”
@@ -4948,15 +3990,11 @@ supren.
 
 En la vespero li kiel kutime vokis min. Mi estis elpensinta
 
-okupadon por li; ĉar mi certe decidis ne pasigi kun li la ves-
-
-peron tête-à-tete. Mi memorigis al mi lian belan voĉon; mi
+okupadon por li; ĉar mi certe decidis ne pasigi kun li la vesperon tête-à-tete. Mi memorigis al mi lian belan voĉon; mi
 
 sciis, ke li amis kanti; bonaj kantistoj ordinare amas tion. Mi
 
-mem ne povis kanti kaj laŭ lia severa opinio mi eĉ ne pose-
-
-dis muzikan talenton. Sed estis al mi ĝojego aŭdi bonan kan-
+mem ne povis kanti kaj laŭ lia severa opinio mi eĉ ne posedis muzikan talenton. Sed estis al mi ĝojego aŭdi bonan kan-
 
 tadon. Apenaŭ krepuskiĝis kaj venis la horo de la romantiko
 
@@ -4997,12 +4035,7 @@ sin mem, ĉar same bone li ludis kiel kantis. Mi kaŝis min sur
 la fenestrobenko kaj dum mi sidis tie rigardante eksteren al
 
 
-JANE EYRE
-
-
-la mallumiĝanta ĝardeno kaj la senmovaj arbogrupoj, mi aŭs-
-
-kultis la dolĉan kanton, kiu estis kantata de ĉarma voĉo.
+la mallumiĝanta ĝardeno kaj la senmovaj arbogrupoj, mi aŭskultis la dolĉan kanton, kiu estis kantata de ĉarma voĉo.
 
 La enhavo de la kanto temis pri turmentata koro, kiu fine
 
@@ -5046,27 +4079,18 @@ vi — atentu tion.”
 
 permesite vivi kune! La morto ja ne estas io por vi.”
 
-”Vere, vi pravas. Mi same bone kiel vi havas la rajton mor-
-
-ti, kiam venos mia tempo; sed mi volas atendi tiun tempon
+”Vere, vi pravas. Mi same bone kiel vi havas la rajton morti, kiam venos mia tempo; sed mi volas atendi tiun tempon
 
 kaj ne lasi forbruligi min kiel hinda vidvino.”
 
-”ĉu vi volas pardoni al mi tiun egoistan penson kaj mon-
-
-tri vian pardonon per kiso?”
+”ĉu vi volas pardoni al mi tiun egoistan penson kaj montri vian pardonon per kiso?”
 
 ”Ne, prefere ne, se estas eble.”
 
 
-JANE EYRE
-
-
 Mi aŭdis, ke li nomas min malmolnuka etulino, poste mi
 
-aŭdis, ke li grumblas: ”ĉiu alia virino estus tuŝita ĝis la mido-
-
-lo, aŭdinte tian kanton honore al sia laŭdo.”
+aŭdis, ke li grumblas: ”ĉiu alia virino estus tuŝita ĝis la midolo, aŭdinte tian kanton honore al sia laŭdo.”
 
 Mi certigis lin, ke laŭkaraktere mi estas malmolkora — kiel
 
@@ -5096,37 +4120,21 @@ amas vin pli ol paroloj povas diri, sed mi ne volas fordoni min
 
 al sentopatoso, kaj per mia akra respondmaniero mi volas
 
-ankaŭ vin reteni de tiu abismo, kaj eĉ plie, per tiu mia mord-
-
-anta helpilo mi konservos tiun distancon inter ni, kiu plej
+ankaŭ vin reteni de tiu abismo, kaj eĉ plie, per tiu mia mordanta helpilo mi konservos tiun distancon inter ni, kiu plej
 
 multe taŭgas por konduki nin al nia reciproka feliĉo.”
 
-Pli kaj pli mi ekscitis lin; post kiam fine grumblante li re-
+Pli kaj pli mi ekscitis lin; post kiam fine grumblante li retiris sin en la fundo de la ĉambro, mi leviĝis kaj diris en mia
 
-tiris sin en la fundo de la ĉambro, mi leviĝis kaj diris en mia
+kutima, respektplena maniero: ”Mi deziras al vi bonan nokton, sinjoro.” Tiam mi elŝteliĝis el la ĉambro.
 
-kutima, respektplena maniero: ”Mi deziras al vi bonan nok-
-
-ton, sinjoro.” Tiam mi elŝteliĝis el la ĉambro.
-
-Kun tiu tiel komencita sistemo mi daŭrigis la tutan provo-
-
-tempon kaj eĉ kun la plej bona sukceso.
+Kun tiu tiel komencita sistemo mi daŭrigis la tutan provotempon kaj eĉ kun la plej bona sukceso.
 
 ĉiuokaze en tiu maniero mi daŭre tenis lin en kolereta
 
-humoro; sed ĉion konsiderante, mi tamen rimarkis, ke li eks-
+humoro; sed ĉion konsiderante, mi tamen rimarkis, ke li eksterordinare bone sin amuzis, kaj ke ŝafa submetiĝo kaj turto-
 
-terordinare bone sin amuzis, kaj ke ŝafa submetiĝo kaj turto-
-
-simila sentimentaleco, kiuj nur pligrandigus lian despotis-
-
-
-JANE EYRE
-
-
-mon, estus malpli konvenintaj liajn prudenton, racion kaj
+simila sentimentaleco, kiuj nur pligrandigus lian despotismon, estus malpli konvenintaj liajn prudenton, racion kaj
 
 precipe lian tutan estetikan senton.
 
@@ -5138,15 +4146,11 @@ vesperaj interparoloj kaj tête-à-têtes, ke mi tiel turmentetis,
 
 incitetis lin kaj disput-batalis kontraŭ li. Tamen li daŭrigis
 
-ĉiufoje, precize je bato de la sepa horo, venigi min al si, kvan-
-
-kam li, kiam mi aperis antaŭ li, neniam plu uzis la mieldolĉajn
+ĉiufoje, precize je bato de la sepa horo, venigi min al si, kvankam li, kiam mi aperis antaŭ li, neniam plu uzis la mieldolĉajn
 
 vortojn kiel ”karulino” kaj ”anĝelo”; la plej bonaj, kiujn li nun
 
-elektis por mi, estis ”turmentanta pupo”, ”malica elfo”, ”ŝan-
-
-ĝemulino” kaj tiel plu. Anstataŭ karesoj, mi ricevis grimacojn;
+elektis por mi, estis ”turmentanta pupo”, ”malica elfo”, ”ŝanĝemulino” kaj tiel plu. Anstataŭ karesoj, mi ricevis grimacojn;
 
 anstataŭ premi mian manon, li pinĉis mian brakon; anstataŭ
 
@@ -5160,9 +4164,7 @@ konduton; ŝiaj timoj kaj zorgoj pro mi foriĝis; tial mi estis
 
 certa, ke mi juste agis.
 
-Intertempe sinjoro Rochester certigis, ke per mia pritrak-
-
-to mi ŝanĝas lin je skeleto, kaj li minacis min per sia venĝo,
+Intertempe sinjoro Rochester certigis, ke per mia pritrakto mi ŝanĝas lin je skeleto, kaj li minacis min per sia venĝo,
 
 kiun li eksplodigos sur min en ne tre malproksima tempo.
 
@@ -5176,16 +4178,11 @@ Kiam unu rimedo perdis siajn povon kaj efikon, mi rapide
 
 pripensu alian.”
 
-Kaj tamen mia tasko ne estis tre malpeza; ofte mi pli volon-
-
-te farus al li bonon aŭ gojigus lin, anstataŭ turmenteti lin. Mia
+Kaj tamen mia tasko ne estis tre malpeza; ofte mi pli volonte farus al li bonon aŭ gojigus lin, anstataŭ turmenteti lin. Mia
 
 estonta edzo jam estiĝis mia tuta mondo, pli ol la mondo; li
 
 estiĝis mia espero pri la ĉiama feliĉo. Li staris inter mi kaj ĉiuj
-
-
-JANE EYRE
 
 
 religiaj pensoj, kiel sunmallumiĝo venas inter la hela suno kaj
@@ -5193,9 +4190,6 @@ religiaj pensoj, kiel sunmallumiĝo venas inter la hela suno kaj
 la homoj. En tiuj tagoj mi ne povis diferencigi Dion de Lia
 
 kreitaĵo, kiun mi estis farinta mia idolo.
-
-
-JANE EYRE
 
 
 ĉapitro XXV.
@@ -5206,27 +4200,19 @@ horoj rapide pasis. La tago de la geedziĝo ne povis esti
 
 plu prokrastata kaj ĉiuj preparoj estis faritaj. Mi mem havis
 
-nenion plu por plenumi, antaŭ la vando de mia ĉambreto sta-
-
-ris miaj kofroj, enpakitaj, ŝlositaj, ĉirkaŭitaj de ŝnuroj, unu
+nenion plu por plenumi, antaŭ la vando de mia ĉambreto staris miaj kofroj, enpakitaj, ŝlositaj, ĉirkaŭitaj de ŝnuroj, unu
 
 flanke de alia; morgaŭ je ĉi tiu horo ili jam estos survoje al
 
 Londono, kaj same mi mem, aŭ pli bone dirite, certa Jane
 
-Rochester, persono, kiun mi ĝis nun ankoraŭ ne konis. Res-
+Rochester, persono, kiun mi ĝis nun ankoraŭ ne konis. Restis nenio por fari krom najli sur la kofroj la kartojn kun la
 
-tis nenio por fari krom najli sur la kofroj la kartojn kun la
-
-adreso. Jen ili kuŝis, kvar etaj kvadrataĵoj, sur la komodo. Sinj-
-
-oro Rochester mem estis skribinta sur ili la nomon kun la
+adreso. Jen ili kuŝis, kvar etaj kvadrataĵoj, sur la komodo. Sinjoro Rochester mem estis skribinta sur ili la nomon kun la
 
 celloko: ”Sinjorino Rochester, Hotelo Western, Londono”, sed
 
-mi ne povis decidi surnajli aŭ surnajligi ilin. Sinjorino Roches-
-
-ter! ŝi ja ne ekzistis, ne antaŭ la morgaŭo ŝi vidos la lumon de
+mi ne povis decidi surnajli aŭ surnajligi ilin. Sinjorino Rochester! ŝi ja ne ekzistis, ne antaŭ la morgaŭo ŝi vidos la lumon de
 
 la mondo, mallonge post la oka matena horo, kaj mi volis
 
@@ -5238,9 +4224,7 @@ grave, ke en ŝranko kontraŭe de mia tualotatablo, la al ŝi
 
 destinitaj vestoj estis anstataŭintaj mian nigran lanan veston
 
-el Lowood kaj la pajlan ĉapelon. ĉar tiuj edziĝvestoj, tiu per-
-
-lokolora vesto, tiu vualo delikata kiel araneaĵo, kiuj pendis sur
+el Lowood kaj la pajlan ĉapelon. ĉar tiuj edziĝvestoj, tiu perlokolora vesto, tiu vualo delikata kiel araneaĵo, kiuj pendis sur
 
 la plenŝarĝita vestokroĉilo, ne apartenis al mi. Mi fermis la
 
@@ -5249,32 +4233,21 @@ la plenŝarĝita vestokroĉilo, ne apartenis al mi. Mi fermis la
 ĉi tiu vesperhoro — estis la naŭa — ĵetis fantoman brilon
 
 
-JANE EYRE
-
-
-trans la ombron de la ĉambro. ”Mi lasos vin sola, blanka son-
-
-ĝo,” mi diris. ”Mi havas febron. Mi aŭdas la venton muĝadi.
+trans la ombron de la ĉambro. ”Mi lasos vin sola, blanka sonĝo,” mi diris. ”Mi havas febron. Mi aŭdas la venton muĝadi.
 
 Mi iros eksteren por rigardi kia estas la vetero.” Ne sole la
 
 trorapidaj preparoj nervigis min, sed ankaŭ la atendo de
 
-grandaj ŝanĝoj — la nova vivo, kiu morgaŭ komenciĝos. Sen-
+grandaj ŝanĝoj — la nova vivo, kiu morgaŭ komenciĝos. Sendube tiuj du cirkonstancoj kunlaboris por fari min senripo-
 
-dube tiuj du cirkonstancoj kunlaboris por fari min senripo-
-
-ze ekscitita kaj sendube ĉio kune pelis min en la mallumi-
-
-ĝantan parkon je ĉi tiu malfrua horo; sed tria kaŭzo pli influis
+ze ekscitita kaj sendube ĉio kune pelis min en la mallumiĝantan parkon je ĉi tiu malfrua horo; sed tria kaŭzo pli influis
 
 mian animon ol la du aliaj.
 
 En mia koro mi sentis strangan malkvietecon. Io okazis,
 
-kion mi ne povis kompreni; nur mi sola sciis pri tiu okazin-
-
-taĵo, nur mi ĝin vidis. Tio okazis en la antaŭa nokto. Sinjoro
+kion mi ne povis kompreni; nur mi sola sciis pri tiu okazintaĵo, nur mi ĝin vidis. Tio okazis en la antaŭa nokto. Sinjoro
 
 Rochester tiun nokton ne estis hejme, kaj ankaŭ nun li ne
 
@@ -5296,9 +4269,7 @@ la sekreto, kiu ĝin premas, tiam vi partoprenos en tio.
 
 Mi eniris la fruktogardenon por serĉi tie rifuĝejon kontraŭ
 
-la vento, kiu la tutan tagon forte blovis el la sudo, ne kunport-
-
-ante unu solan pluveron. Anstataŭ kvietiĝi, kiam krepuskis,
+la vento, kiu la tutan tagon forte blovis el la sudo, ne kunportante unu solan pluveron. Anstataŭ kvietiĝi, kiam krepuskis,
 
 ĝi ŝajnis fariĝi ankoraŭ pli forta. La arboj sin klinis ĉiuflanken,
 
@@ -5306,14 +4277,9 @@ dum la paso de unu horo ili apenaŭ povis leviĝi: tiel furiozis
 
 la vento, kiu konstante kurbigis iliajn pezajn suprojn norden
 
-kaj pelis amasegojn da nuboj de polo al polo. En ĉi tiu julio-
-
-tago ne unu sunradio falis sur nian teron, niaj okuloj ne vidis
+kaj pelis amasegojn da nuboj de polo al polo. En ĉi tiu juliotago ne unu sunradio falis sur nian teron, niaj okuloj ne vidis
 
 unu bluan lokon sur la ĉielo.
-
-
-JANE EYRE
 
 
 Ne sen plaĉo mi igis min peli de la vento kaj transdonis
@@ -5338,25 +4304,19 @@ vintroj nepre ĵetos la unuan duonon teren; kvankam oni
 
 povis ankoraŭ diri, ke ili formas arbon — ili estis nur ruino.
 
-”Vi agis bone, ke vi tenis vin kune,” mi diris; kvazaŭ la gi-
-
-gantaj splitoj estus vivantaj estaĵoj, kaj povus aŭdi min. ”Kiel
+”Vi agis bone, ke vi tenis vin kune,” mi diris; kvazaŭ la gigantaj splitoj estus vivantaj estaĵoj, kaj povus aŭdi min. ”Kiel
 
 ajn rompite, bruligite kaj mizere vi aspektas, estas tamen al
 
 mi, kvazaŭ sin kaŝas ankoraŭ en vi iom da vivo, kiu devenas
 
-de la sindoneco de la honestaj, fidelaj radikoj. Neniam vi por-
-
-tos plu la verdan folioornamaĵon — neniam vi vidos plu la
+de la sindoneco de la honestaj, fidelaj radikoj. Neniam vi portos plu la verdan folioornamaĵon — neniam vi vidos plu la
 
 birdojn konstrui siajn nestojn sur viaj branĉoj, kaj neniam vi
 
 aŭdos plu iliajn laŭdkantojn en via supro; via tempo de amo
 
-kaj feliĉo estas for, sed soleca vi ne estas, vi havas samsortu-
-
-lon, kiu priploras kun vi la dekadencon!”
+kaj feliĉo estas for, sed soleca vi ne estas, vi havas samsortulon, kiu priploras kun vi la dekadencon!”
 
 Kiam mi rigardis supren al ĝi, la luno aperis momenteton
 
@@ -5377,32 +4337,21 @@ la vento sovaĝe kaj ĝemante daŭrigis sian vojon; estis malĝoje
 aŭdi ĝin kaj denove mi iris pluen.
 
 
-JANE EYRE
-
-
 Mi trairis la fruktoĝardenon kaj kolektis la pomojn, per
 
 kiuj estis kovrita la herbo sub la arboj; poste mi dispartigis la
 
 maturajn de la nematuraj. Mi portis ilin hejmen kaj metis ilin
 
-en la provizo- ĉambron. Post tio mi direktis min al la biblio-
-
-teka ĉambro por certigi min, ĉu la fajro jam estas bruligita;
+en la provizo- ĉambron. Post tio mi direktis min al la biblioteka ĉambro por certigi min, ĉu la fajro jam estas bruligita;
 
 ĉar kvankam estis somero, mi sciis, ke sinjoro Rochester ĝojos
 
-vidi belan hejmecan kamenofajron post sia rehejmiĝo. La faj-
+vidi belan hejmecan kamenofajron post sia rehejmiĝo. La fajro jam longe estis bruligita kaj gaje brulis. Mi ŝovis brakseĝon
 
-ro jam longe estis bruligita kaj gaje brulis. Mi ŝovis brakseĝon
+apud la kamenon, kaj rulis tablon antaŭ ĝin; la fenestrokurtenojn mi tiris malsupren kaj ordonis, ke oni enportu la bru-
 
-apud la kamenon, kaj rulis tablon antaŭ ĝin; la fenestrokur-
-
-tenojn mi tiris malsupren kaj ordonis, ke oni enportu la bru-
-
-ligotajn kandelojn. Farinte tiujn aranĝojn, mi ne povis kvie-
-
-te sidiĝi, eĉ mi ne povis resti hejme. Jen la malgranda franca
+ligotajn kandelojn. Farinte tiujn aranĝojn, mi ne povis kviete sidiĝi, eĉ mi ne povis resti hejme. Jen la malgranda franca
 
 kamenhorloĝo de la ĉambro kaj la malnova horloĝo en la
 
@@ -5412,13 +4361,9 @@ halo batis samtempe la dekan horon.
 
 parkpordo; tiam kaj tiam la luno lumas; mi povas transvidi
 
-longan parton de la landvojo. Eble li baldaŭ venos, kaj iran-
+longan parton de la landvojo. Eble li baldaŭ venos, kaj irante renkonte al li, mi forpelos dum kelkaj minutoj la timon.”
 
-te renkonte al li, mi forpelos dum kelkaj minutoj la timon.”
-
-La vento bruegis tra la altaj arboj, kiuj ĉirkaŭis la parkpor-
-
-don; sed la tuta landvojo; kiun mi povis transrigardi, estis
+La vento bruegis tra la altaj arboj, kiuj ĉirkaŭis la parkpordon; sed la tuta landvojo; kiun mi povis transrigardi, estis
 
 kvieta kaj soleca. Nur la ombroj de la nuboj kelkfoje glitis
 
@@ -5434,25 +4379,15 @@ kaj rapide forviŝis ĝin. Tamen mi restis tie staranta; la luno
 
 nun retiris sin en sian nuboĉambron kaj malsuprenigis siajn
 
-nubkurtenojn; la nokto iĝis pli kaj pli malhela; nun la vent-
+nubkurtenojn; la nokto iĝis pli kaj pli malhela; nun la ventego alportis pluvegon.
 
-ego alportis pluvegon.
-
-”Ho, ke li nur venus! Ke li nur estus ĉi tie!” mi kriis, kapti-
-
-
-JANE EYRE
-
-
-ta de malĝoja antaŭsento. La horo de tetrinkado jam atendis
+”Ho, ke li nur venus! Ke li nur estus ĉi tie!” mi kriis, kaptita de malĝoja antaŭsento. La horo de tetrinkado jam atendis
 
 lian revenon, nun estis jam tute mallume. Kio do retenis lin?
 
 ĉu okazis katastrofo? Ree mi pensis al la okazintaĵo de la
 
-antaŭa vespero. Mi nun klarigis ĝin kiel anoncanton de gran-
-
-da malfeliĉo. Mi timis, ke miaj esperoj estas tro brilaj por esti
+antaŭa vespero. Mi nun klarigis ĝin kiel anoncanton de granda malfeliĉo. Mi timis, ke miaj esperoj estas tro brilaj por esti
 
 efiktivigataj. Mi spertis tiom da feliĉego en la lastaj tagoj kaj
 
@@ -5464,9 +4399,7 @@ malleviĝonta.
 
 povas kviete sidi apud la kameno, dum li estas ekstere en la
 
-malbela sovaĝa vetero. Pli volonte mi volas lacigi miajn pie-
-
-dojn ol eksciti mian koron ĝis la plej alta grado. Mi volas iri
+malbela sovaĝa vetero. Pli volonte mi volas lacigi miajn piedojn ol eksciti mian koron ĝis la plej alta grado. Mi volas iri
 
 pluen renkonte al li.”
 
@@ -5474,13 +4407,9 @@ Mi do ekiris, rapide sed ne malproksimen. Antaŭ ol mi
 
 estis irinta kvaronan mejlon, mi aŭdis hufofrapadon, rajdanto
 
-plengalope proksimiĝis, hundo kuris je lia flanko. For la mal-
+plengalope proksimiĝis, hundo kuris je lia flanko. For la malbonajn antaŭsentojn! Estis li! Jen li alte sidis sur la ĉevalo, sur
 
-bonajn antaŭsentojn! Estis li! Jen li alte sidis sur la ĉevalo, sur
-
-Messour, kaj Piloto sekvis lin. Li vidis min, ĉar ĵus la luno ape-
-
-ris sur vasta blua loko en la ĉielo kaj nun ŝvebis antaŭen sur
+Messour, kaj Piloto sekvis lin. Li vidis min, ĉar ĵus la luno aperis sur vasta blua loko en la ĉielo kaj nun ŝvebis antaŭen sur
 
 la klara ebenaĵo. Sinjoro Rochester deprenis sian ĉapelon kaj
 
@@ -5488,9 +4417,7 @@ svingis ĝin alte super la kapo. Mi kuris renkonte al li.
 
 ”Jen rigardu!” li kriis, klinante sin malsupren kaj etendante
 
-al mi la manon,” vi ne povas vivi sen mi, tio ja estas tre kla-
-
-ra. Metu la piedon sur la pinton de mia boto, donu al mi am-
+al mi la manon,” vi ne povas vivi sen mi, tio ja estas tre klara. Metu la piedon sur la pinton de mia boto, donu al mi am-
 
 baŭ manojn kaj saltu sur la ĉevalon.”
 
@@ -5501,9 +4428,6 @@ donis al mi koran salutkison kaj triumfis iomete, ĉar mi ne
 kontraŭstaris lin. Li interrompis siajn ĝojmontrojn kaj
 
 demandis:
-
-
-JANE EYRE
 
 
 ”ĉu io malbona okazis, Jane, ĉar vi venas renkonte al mi en
@@ -5518,9 +4442,7 @@ vento!”
 
 ”Vere —pluvo kaj vento! Jes, vi estas malseka kiel virineto
 
-de maro; volvu vin en mia mantelo; sed vi tremetas, mi kre-
-
-das; viaj vangoj kaj manoj estas brule varmaj. Ree mi deman-
+de maro; volvu vin en mia mantelo; sed vi tremetas, mi kredas; viaj vangoj kaj manoj estas brule varmaj. Ree mi deman-
 
 das: ĉu io okazis?”
 
@@ -5540,9 +4462,7 @@ havos la kuraĝon fari tion; ankoraŭ ne estas certa mia venko.
 
 angilo kaj dorna kiel eglanterio? Nenie mi povis meti mian
 
-manon, kaj ne esti pikata, kaj nun estas al mi, kvazaŭ mi te-
-
-nas erarvagintan ŝafidon en la brakoj. Vi foriris de via ŝafa-
+manon, kaj ne esti pikata, kaj nun estas al mi, kvazaŭ mi tenas erarvagintan ŝafidon en la brakoj. Vi foriris de via ŝafa-
 
 ro por serĉi vian paŝtiston, ĉu ne, Jane?”
 
@@ -5550,9 +4470,7 @@ ro por serĉi vian paŝtiston, ĉu ne, Jane?”
 
 estas en Thornfield. Metu min teren.”
 
-Li igis min malsupreniri sur la terason. Kiam John trans-
-
-prenis de li la ĉevalon, li sekvis min en la halon dirante, ke mi
+Li igis min malsupreniri sur la terason. Kiam John transprenis de li la ĉevalon, li sekvis min en la halon dirante, ke mi
 
 rapide ŝanĝu la vestojn kaj poste venu al li en la bibliotekan
 
@@ -5560,14 +4478,9 @@ rapide ŝanĝu la vestojn kaj poste venu al li en la bibliotekan
 
 min kaj promesigis min reveni baldaŭ. Mi tial rapidis kaj post
 
-ne pli ol kvin minutoj mi ree estis apud li. Li estis vesperman-
-
-ĝanta.
+ne pli ol kvin minutoj mi ree estis apud li. Li estis vespermanĝanta.
 
 ”Sidiĝu, Jane, kaj restu momenton; se plaĉos al Dio, ĉi tio
-
-
-JANE EYRE
 
 
 estas la antaŭlasta manĝo, kiun vi prenos en Thornfield en
@@ -5578,9 +4491,7 @@ Mi sidiĝis je lia flanko, sed diris, ke mi ne povas manĝi.
 
 ”ĉu tio estas pro la longa farota vojaĝo, Jane? ĉu tio estas
 
-pro la penso, ke vi vidos Londonon, ĉu tio forigas vian ape-
-
-titon?”
+pro la penso, ke vi vidos Londonon, ĉu tio forigas vian apetiton?”
 
 ”Hodiaŭ vespere miaj perspektivoj ne kuŝas klare antaŭ
 
@@ -5600,9 +4511,7 @@ Li etendis al mi la manon kaj ridante demandis: ”ĉu tio
 
 estas sonĝo?” Tiam li metis ĝin antaŭ miajn okulojn. Li havis
 
-belrondforman muskolfortan manon kaj longan, fortan bra-
-
-kon.
+belrondforman muskolfortan manon kaj longan, fortan brakon.
 
 ”Jes, kvankam mi tuŝas ĝin — ĉio estas sonĝo,” mi diris,
 
@@ -5626,12 +4535,7 @@ veka kun mi en la nokto antaŭ nia geedziĝo?”
 
 ”Tion mi bone memoras kaj mi tenos mian promeson;
 
-almenaŭ unu aŭ du horojn. Mi ne sentas la deziron jam dor-
-
-mi.”
-
-
-JANE EYRE
+almenaŭ unu aŭ du horojn. Mi ne sentas la deziron jam dormi.”
 
 
 ”ĉu vi aranĝis jam ĉiujn preparojn?
@@ -5644,9 +4548,7 @@ post nia reveno el la preĝejo ni foriros de Thornfield.”
 
 ”Tre bone, sinjoro.”
 
-”Kun kia eksterordinare stranga rideto vi diris tiujn vor-
-
-tojn: ’tre bone, sinjoro’. Kia ardanta ruĝo kovras viajn van-
+”Kun kia eksterordinare stranga rideto vi diris tiujn vortojn: ’tre bone, sinjoro’. Kia ardanta ruĝo kovras viajn van-
 
 gojn! Kaj kiel brilegas viaj okuloj! Vi do sentas vin bone?”
 
@@ -5660,13 +4562,9 @@ koro.”
 
 kion mia koro sentas. Mi dezirus, ke la nuna horo neniam
 
-finiĝu! Kiu scias, kian teruran sorton alportos la plej proksi-
+finiĝu! Kiu scias, kian teruran sorton alportos la plej proksima.”
 
-ma.”
-
-”Tio estas la plej granda hipokondrio, Jane. Vi estas eksci-
-
-tita aŭ trolaciĝinta.”
+”Tio estas la plej granda hipokondrio, Jane. Vi estas ekscitita aŭ trolaciĝinta.”
 
 ”Vi do estas kvieta kaj feliĉa, sinjoro?”
 
@@ -5678,31 +4576,22 @@ Mi supren rigardis al li, por legi la signojn de lia feliĉo en
 
 liaj trajtoj; ili estis ekscititaj, lia vizaĝo estis ruĝa.
 
-”Donu al mi vian fidon, Jane,” li diris, ”senŝarĝigu vian ani-
-
-mon; forigu ĉiun ŝarĝon, kiu ĝin premas, sciigante al mi ĉion.
+”Donu al mi vian fidon, Jane,” li diris, ”senŝarĝigu vian animon; forigu ĉiun ŝarĝon, kiu ĝin premas, sciigante al mi ĉion.
 
 Kion vi timas? — Ke mi ne estos bona edzo por vi?”
 
 ”Tiu penso estas al mi pli malproksima ol ĉiu alia.”
 
-”ĉu iom timigas vin la nova sfero, en kiun vi estas eniron-
-
-ta? la nova vivo, kuŝanta antaŭ vi?”
+”ĉu iom timigas vin la nova sfero, en kiun vi estas enironta? la nova vivo, kuŝanta antaŭ vi?”
 
 ”Ne.”
-
-
-JANE EYRE
 
 
 ”Vi malkvietigas min, Jane. Tiuj rigardo kaj malĝoja tono
 
 turmentas kaj koleretigas min. Mi volas klarigon.”
 
-”Aŭskultu do, sinjoro. — Hieraŭ vespere vi estis eksterdo-
-
-me.”
+”Aŭskultu do, sinjoro. — Hieraŭ vespere vi estis eksterdome.”
 
 ”Mi estis, tion mi scias; kaj antaŭ momento vi aludis pri tio,
 
@@ -5730,21 +4619,15 @@ kredis, ĉar mi pensas, ke ĝi estos io senfine feliĉa, vivi kun vi,
 
 ĉar mi sentime vin amas. Ne, sinjoro, ne karesu min nun —
 
-lasu min senĝene paroli plue. Hieraŭ mi fidis je la providen-
-
-co kaj kredis, ke ĉio kunlaboras en nia reciproka feliĉo. Kiel
+lasu min senĝene paroli plue. Hieraŭ mi fidis je la providenco kaj kredis, ke ĉio kunlaboras en nia reciproka feliĉo. Kiel
 
 vi povas rememori, la tago estis bela, la kvieto en la aero kaj
 
 sur la ĉielo malpermesis ĉiun timon rilate al viaj komforto kaj
 
-sendanĝereco dum la vojaĝo. Trinkinte teon, mi iris momen-
+sendanĝereco dum la vojaĝo. Trinkinte teon, mi iris momenton tien kaj reen sur la teraso pensante al vi. Image mi vidis
 
-ton tien kaj reen sur la teraso pensante al vi. Image mi vidis
-
-vin tiel proksime al mi, ke mi ne sentis vian foreston. Mi pen-
-
-sis pri la antaŭ mi kuŝanta vivo — pri via vivo, sinjoro — pli
+vin tiel proksime al mi, ke mi ne sentis vian foreston. Mi pensis pri la antaŭ mi kuŝanta vivo — pri via vivo, sinjoro — pli
 
 vasta, pli movoplena ol mia; pli movoplena ol la profundoj de
 
@@ -5757,24 +4640,15 @@ por mi ĝi estis floranta kaj radianta kiel rozo. Je sunleviĝo la
 aero fariĝis malvarma kaj la ĉielo plena de nuboj. Mi eniris la
 
 
-JANE EYRE
-
-
-domon. Sophie vokis min supren por ke mi rigardu la ĵus por-
-
-titan edziĝo-veston. Kaj en la kesto mi trovis ankaŭ vian
+domon. Sophie vokis min supren por ke mi rigardu la ĵus portitan edziĝo-veston. Kaj en la kesto mi trovis ankaŭ vian
 
 donacon — la vualon, kiun vi venigis el Londono kaj kiu, kiel
 
 ŝajnis al mi, decidigus min porti ion same multekostan, kiel
 
-la juveloj de mi rifuzitaj. Mi ridetis, kiam mi malfaldis la pin-
+la juveloj de mi rifuzitaj. Mi ridetis, kiam mi malfaldis la pintaĵon kaj jam projektis planon inciti vian aristokratan guston
 
-taĵon kaj jam projektis planon inciti vian aristokratan guston
-
-pro viaj klopodoj kaj kiel vi volis maski vian plej belan fianĉi-
-
-non per la atributoj de nobela filino. Mi pensis pri tio, ke mi
+pro viaj klopodoj kaj kiel vi volis maski vian plej belan fianĉinon per la atributoj de nobela filino. Mi pensis pri tio, ke mi
 
 aperigu la kvadratan nebroderitan vualon, faritan de mi mem
 
@@ -5784,21 +4658,15 @@ vi, ĉu ĝi ne estas sufiĉe bela por virino, kiu povas doni kiel
 
 doton nek belecon, nek posedaĵojn nek altrangecon. Klare mi
 
-vidis, kiel vi aspektus; kaj mi aŭdis viajn sovaĝajn, respubli-
-
-kajn respondojn kaj vian fieran certigon, ke vi ne bezonas
+vidis, kiel vi aspektus; kaj mi aŭdis viajn sovaĝajn, respublikajn respondojn kaj vian fieran certigon, ke vi ne bezonas
 
 kunligi vian riĉecon per edziĝo de monujo aŭ vian rangon per
 
 kunligo de nobela krono.”
 
-”Kiel bone vi kapablas diveni miajn pensojn, ho, eta sorĉis-
+”Kiel bone vi kapablas diveni miajn pensojn, ho, eta sorĉistino!” interrompis min sinjoro Rochester. ”Kion vi trovis en
 
-tino!” interrompis min sinjoro Rochester. ”Kion vi trovis en
-
-la vualo krom la brodaĵo? ĉu vi trovis en ĝi venenon aŭ po-
-
-nardon, ĉar vi nun aspektas tiel malĝoja?”
+la vualo krom la brodaĵo? ĉu vi trovis en ĝi venenon aŭ ponardon, ĉar vi nun aspektas tiel malĝoja?”
 
 ”Ne, ne, sinjoro, krom la delikateco kaj la riĉeco de la
 
@@ -5806,9 +4674,7 @@ laboro, mi trovis nur la fierecon de Fairfax Rochester; kaj tiu
 
 ne timigis min, ĉar mi jam kutimiĝis pri la rigardo de tiu
 
-demono. Sed, kiam mallumiĝis, la vento levigis; hieraŭ vespe-
-
-re ĝi blovis — ne kiel nun, sovaĝe kaj laŭte — sed per ĝemanta
+demono. Sed, kiam mallumiĝis, la vento levigis; hieraŭ vespere ĝi blovis — ne kiel nun, sovaĝe kaj laŭte — sed per ĝemanta
 
 tono, kio estis pli fantomsimila.
 
@@ -5818,19 +4684,11 @@ kaj la vido de la malvarma, nigra kameno, de via neokupita
 
 brakseĝo tremigis min. Enlitiĝinte, mi longe ne povis dormi
 
-— sento de angora eksciteco turmentis min. La ankoraŭ daŭ-
-
-
-JANE EYRE
-
-
-re ĝemanta vento ŝajnis supertoni alian tonon; mi komence
+— sento de angora eksciteco turmentis min. La ankoraŭ daŭre ĝemanta vento ŝajnis supertoni alian tonon; mi komence
 
 ne povis aŭdi ĉu ĝi venas el la domo aŭ de ekstere, sed tuj
 
-kiam la vento momenton kvietiĝis, mi aŭdis tiun tonon deno-
-
-ve, malrapide, melankolie, tirtone. Fine mi kredis, ke ĝi estas
+kiam la vento momenton kvietiĝis, mi aŭdis tiun tonon denove, malrapide, melankolie, tirtone. Fine mi kredis, ke ĝi estas
 
 hundo, blekeganta en la proksimo. Mi ĝojis, kiam fine ĝi
 
@@ -5842,9 +4700,7 @@ kunportis la ardan deziron esti apud vi kaj la konscion pri
 
 malhelpaĵo, kiu leviĝante, sin lokis inter ni. Dum la unua horo
 
-de mia dormo mi sekvis nekonatan vojon; plena mallumo ĉir-
-
-kaŭis min, la pluvo malsekigis min; mi portis pezan ŝarĝon,
+de mia dormo mi sekvis nekonatan vojon; plena mallumo ĉirkaŭis min, la pluvo malsekigis min; mi portis pezan ŝarĝon,
 
 etan infanon, delikatan estaĵeton, kiu estis tro juna kaj tro
 
@@ -5858,13 +4714,9 @@ kuratingi vin; mi seninterrompe klopodis voki vian nomon
 
 kaj peti vin halti — sed miaj movoj estis paralizitaj kaj mia
 
-voĉo ne estis aŭdita, dum vi — tion mi sentis pli kaj pli mal-
+voĉo ne estis aŭdita, dum vi — tion mi sentis pli kaj pli malproksimiĝis.”
 
-proksimiĝis.”
-
-”Kaj tiuj sonĝoj premas ankoraŭ vian animon, Jane, kvan-
-
-kam mi estas apud vi? Ho malgranda, nervema etulino! For-
+”Kaj tiuj sonĝoj premas ankoraŭ vian animon, Jane, kvankam mi estas apud vi? Ho malgranda, nervema etulino! For-
 
 gesu vian imagan malĝojon, kaj pensu nur al via vera feliĉo!
 
@@ -5872,9 +4724,7 @@ Vi diras, ke vi amas min, Jane, jes — tion mi neniam forgesos;
 
 kaj tion vi ankoraŭ ne povas nei. Tiuj vortoj ne formortis sur
 
-viaj lipoj. Mi aŭdis ilin, klare, dolĉe; eble vi diris ilin tro sol-
-
-ene, sed tamen ili sonis en miaj oreloj kiel muziko. — ’Estas
+viaj lipoj. Mi aŭdis ilin, klare, dolĉe; eble vi diris ilin tro solene, sed tamen ili sonis en miaj oreloj kiel muziko. — ’Estas
 
 io rava, ho Edward, povi esperi ĉiam esti apud vi, ĉar mi vin
 
@@ -5885,9 +4735,6 @@ amas.’ — ĉu vi amas min, Jane? Rediru tion.
 ”Nu,” li diris post mallonga silentado, ”estas strange, sed
 
 
-JANE EYRE
-
-
 tiuj vortoj dolorige traboris mian bruston. Kial? Mi ne scias
 
 tion. Eble ĉar vi diris tiujn vortojn tiel solene kaj kun tiom da
@@ -5896,9 +4743,7 @@ pia emfazo; kaj ĉar via rigardo al mi esprimis tiom da fido kaj
 
 dediĉo. Estas kvazaŭ iel fantomo ŝvebas ĉirkaŭ mi. Aspektu
 
-kolere, Jane, tion vi tiel bone kapablas; ridu al mi per tiu sova-
-
-ĝa, timema, instiganta rideto; diru al mi, ke vi malamas min
+kolere, Jane, tion vi tiel bone kapablas; ridu al mi per tiu sovaĝa, timema, instiganta rideto; diru al mi, ke vi malamas min
 
 — incitetu min, kolerigu min, faru ĉion, kion vi volas, sed ne
 
@@ -5906,9 +4751,7 @@ moligu min; pli volonte mi dezirus, ke vi igu mlera ol
 
 mola.”
 
-”is la fino rakontinte, mi volas kiel eble plej multe kole-
-
-rigi kaj inciti, sinjoro. Sed nun vi devos ankoraŭ aŭskulti
+”is la fino rakontinte, mi volas kiel eble plej multe kolerigi kaj inciti, sinjoro. Sed nun vi devos ankoraŭ aŭskulti
 
 min?”
 
@@ -5920,9 +4763,7 @@ Mi kapneis.
 
 ”Kion? ĉu estas ankoraŭ io alia? Sed mi ne volas esperi, ke
 
-estu io grava. Mi tamen jam antaŭe diras al vi, ke mi ne kre-
-
-dos al vi. Nun parolu plue, mia eta karulino!”
+estu io grava. Mi tamen jam antaŭe diras al vi, ke mi ne kredos al vi. Nun parolu plue, mia eta karulino!”
 
 La malkvieto de lia rigardo, la terura malpacienco, kiun li
 
@@ -5930,13 +4771,9 @@ montris, mirigis min, tamen mi rakontis plue:
 
 ”Mi sonĝis ankoraŭ alian sonĝon, sinjoro. Thornfield Hall
 
-ŝajnis al mi esti malĝoja ruino, rifuĝejo de strigoj kaj vesper-
+ŝajnis al mi esti malĝoja ruino, rifuĝejo de strigoj kaj vespertoj. Estis al mi, kvazaŭ de la majesta fronto restis nur peco de
 
-toj. Estis al mi, kvazaŭ de la majesta fronto restis nur peco de
-
-tre alta kaj tre rompebla muro. En lunbrila vespero mi pro-
-
-menis sur la herbejkovrita interspaco interne de la muroj. Tie
+tre alta kaj tre rompebla muro. En lunbrila vespero mi promenis sur la herbejkovrita interspaco interne de la muroj. Tie
 
 mi faletis trans marmoran kamenon kaj trans falintan pecon
 
@@ -5947,9 +4784,6 @@ en ŝalo, mi ne kuraĝis meti ĝin teren, kvankam miaj brakoj
 laciĝis — kiel ajn la pezo de la ploretanta estaĵo min ĝenis —
 
 mi devis ankoraŭ ĉiam porti ĝin. En la malproksimo mi aŭdis
-
-
-JANE EYRE
 
 
 hufofrapadon de ĉevalo sur la landvojo; mi estis certa, ke vi
@@ -5968,17 +4802,13 @@ sin premis al mia kolo, kaj preskaŭ premsufokis min. Fine mi
 
 atingis la mursupron. Mi vidis vin en la malproksimo kiel
 
-punkteton sur la vojo, kiu fariĝis ĉiam pli malgranda. La ven-
-
-to tiel forte blovis, ke mi ne povis stari. Mi sidiĝis sur la mal-
+punkteton sur la vojo, kiu fariĝis ĉiam pli malgranda. La vento tiel forte blovis, ke mi ne povis stari. Mi sidiĝis sur la mal-
 
 larĝa rando; mi klopodis kvietigi la plorantan infanon en miaj
 
 brakoj. Jen vi laŭiris la angulon de la landvojo; mi klinis min
 
-antaŭen por lastfoje vidi vin; la muro enfalis; mi perdis la ek-
-
-vilibron, la infano elglitis el miaj brakoj, mi salte sekvis ĝin,
+antaŭen por lastfoje vidi vin; la muro enfalis; mi perdis la ekvilibron, la infano elglitis el miaj brakoj, mi salte sekvis ĝin,
 
 falis kaj vekiĝis.”
 
@@ -5996,13 +4826,9 @@ staris lumo, kaj la pordo de la malgranda kabineto, en kiu mi
 
 estis pendiginta mian edziĝoveston kaj mian vualon antaŭ ol
 
-mi enlitiĝis, kaj kiun tiam mi estis ferminta, estis nun malfer-
+mi enlitiĝis, kaj kiun tiam mi estis ferminta, estis nun malfermita. Bruo venis de tie. Mi demandis: Sophie , kion vi faras
 
-mita. Bruo venis de tie. Mi demandis: Sophie , kion vi faras
-
-tie? Neniu respondis, sed figuro eliris el la kabineto; ĝi kap-
-
-tis la lumon, levis ĝin kaj atente rigardis la vestojn pendan-
+tie? Neniu respondis, sed figuro eliris el la kabineto; ĝi kaptis la lumon, levis ĝin kaj atente rigardis la vestojn pendan-
 
 taj sur la vesto-kroĉiloj.
 
@@ -6010,27 +4836,17 @@ taj sur la vesto-kroĉiloj.
 
 eligis sonon. Mi estis leviĝinta en la lito kaj kliniĝis antaŭen;
 
-unue min regis miro, poste konstemo — kaj fine la sango gla-
-
-
-JANE EYRE
-
-
-ciiĝis en miaj vejnoj. Ne estis Sophie, nek Leah, nek sinjori-
+unue min regis miro, poste konstemo — kaj fine la sango glaciiĝis en miaj vejnoj. Ne estis Sophie, nek Leah, nek sinjori-
 
 no Fairfax — ne, ĝi ne estis — ne, pri tio mi estus certa kaj
 
 tamen, ĝi eĉ ne estis tiu stranga persono, Grace Poole.”
 
-”Unu el ili ĝi tamen nepre estis,” min interrompis mia or-
-
-donanto.
+”Unu el ili ĝi tamen nepre estis,” min interrompis mia ordonanto.
 
 ”Ne, sinjoro, mi povas certigi al vi la malon. Tiel longe, kiel
 
-mi estis en Thornfield Hall, miaj okuloj neniam vidis la figu-
-
-ron, kiu staris antaŭ mi. La vizaĝo, la membroformoj estis al
+mi estis en Thornfield Hall, miaj okuloj neniam vidis la figuron, kiu staris antaŭ mi. La vizaĝo, la membroformoj estis al
 
 mi tute nekonataj.
 
@@ -6040,9 +4856,7 @@ mi tute nekonataj.
 
 dense disfalis trans la dorson. Mi ne scias, kiaj estis la vestoj,
 
-kiujn ŝi portis; ili estis blankaj kaj malvastaj, sed mi ne kapa-
-
-blas diri ĉu estis vesto, litotuko aŭ vesto de mortinto, en kiu
+kiujn ŝi portis; ili estis blankaj kaj malvastaj, sed mi ne kapablas diri ĉu estis vesto, litotuko aŭ vesto de mortinto, en kiu
 
 ŝi estis volvita.”
 
@@ -6072,13 +4886,7 @@ kaj la terurajn, ŝvelintajn vizaĝtrajtojn!”
 
 ”ĉi tiu fantomo tamen estis blue ruĝa, sinjoro; la lipoj estis
 
-ŝvelintaj kaj malhelaj, la frunto plena de sulkoj; la nigraj bro-
-
-
-JANE EYRE
-
-
-voj formis altan arkon super la okuloj subpleniĝintaj per
+ŝvelintaj kaj malhelaj, la frunto plena de sulkoj; la nigraj brovoj formis altan arkon super la okuloj subpleniĝintaj per
 
 sango. ĉu mi diru, pri kio ili memorigis min?”
 
@@ -6098,9 +4906,7 @@ pecojn, ĵetis ĝin teren kaj piedpremis ĝin.”
 
 eksteren. Eble ĝi vidis, ke tagiĝas, ĉar ĝi prenis la kandelon kaj
 
-iris al la pordo. Tuj apud mia lito la figuro haltis dum la san-
-
-gecaj okuloj rigardis min — ĝi levis ĝis mia vizaĝo la lumon
+iris al la pordo. Tuj apud mia lito la figuro haltis dum la sangecaj okuloj rigardis min — ĝi levis ĝis mia vizaĝo la lumon
 
 kaj blovestingis ĝin. Mi sentis, ke ŝia malluma vizaĝo pli kaj
 
@@ -6110,9 +4916,7 @@ fojon en mia vivo la teruro senkonsciigis min.”
 
 ”Kiu estis apud vi, kiam vi rekonsciiĝis?”
 
-”Neniu, sinjoro, krom la hela taglumo. Mi leviĝis, malvar-
-
-migis mian vizaĝon per akvo kaj trinkis; kvankam mi estis
+”Neniu, sinjoro, krom la hela taglumo. Mi leviĝis, malvarmigis mian vizaĝon per akvo kaj trinkis; kvankam mi estis
 
 laca, mi tamen ne sentis min malsana, kaj tial mi decidis al
 
@@ -6139,14 +4943,9 @@ netransirebla barilo? ĉu mi iras de vi sen unu larmo? — sen
 kiso? — aŭ sen vorto?”
 
 
-JANE EYRE
-
-
 ”Ankoraŭ ne.”
 
-”ĉu mi estas faronta tion? — La tago, kiu por ĉiam kunli-
-
-gos nin, jam venis; kaj kiam ni estos kunligitaj, tiuj animaj
+”ĉu mi estas faronta tion? — La tago, kiu por ĉiam kunligos nin, jam venis; kaj kiam ni estos kunligitaj, tiuj animaj
 
 turmentoj kaj teruroj ne revenos; pri tio mi garantias vin.”
 
@@ -6164,9 +4963,7 @@ Jane.”
 
 ”Sed sinjoro, kiam ellitiĝante en ĉi tiu mateno, mi diris tion
 
-saman al mi kaj ĉirkaŭrigardis en la ĉambro, por reakiri kura-
-
-ĝon kaj konsolon per la hela taglumo kaj per la rigardo de ĉiu
+saman al mi kaj ĉirkaŭrigardis en la ĉambro, por reakiri kuraĝon kaj konsolon per la hela taglumo kaj per la rigardo de ĉiu
 
 konata kaj amata objekto — tiam mi vidis — antaŭ mi sur la
 
@@ -6174,23 +4971,15 @@ tapiŝo — tion, kio klare refutis mian hipotezon — la vualon,
 
 kies pecoj kuŝis sur la planko!”
 
-Mi sentis, kiel sinjoro Rochester timiĝas kaj tremas; am-
+Mi sentis, kiel sinjoro Rochester timiĝas kaj tremas; ambaŭmane li ĉirkaŭprenis min kriante: ”Dank’al la ĉiopotenca
 
-baŭmane li ĉirkaŭprenis min kriante: ”Dank’al la ĉiopotenca
+Dio, ke nur la vualon trafis malfeliĉo, se malica monstro troviĝis en via apudeco. — Ho! kio povus okazi!”
 
-Dio, ke nur la vualon trafis malfeliĉo, se malica monstro tro-
-
-viĝis en via apudeco. — Ho! kio povus okazi!”
-
-Li rapide spiris kaj tiel forte premis min al si, ke mi kom-
-
-encis tusi.
+Li rapide spiris kaj tiel forte premis min al si, ke mi komencis tusi.
 
 Post silento de kelkaj minutoj li subite parolis plue:
 
-”Nun mi klarigos ĉion al vi, Jane. Estis duone sonĝo, duo-
-
-ne vero; mi ne dubas plu pri tio, ke virino estis en via sank-
+”Nun mi klarigos ĉion al vi, Jane. Estis duone sonĝo, duone vero; mi ne dubas plu pri tio, ke virino estis en via sank-
 
 tejo: kaj tiu virino estis — Grace Poole. Vi nomas ŝin stranga
 
@@ -6200,13 +4989,7 @@ persono; post ĉio, kion vi scias, vi estas prava, ke vi tiel nomas
 
 — En stato inter maldormo kaj dormo vi rimarkis ŝian eniron
 
-kaj ŝiajn gestojn; sed febre ekscitite, preskaŭ delirante, vi ri-
-
-
-JANE EYRE
-
-
-gardis ŝin kiel fantomon, tute diversa de ŝia vera eksteraĵo; la
+kaj ŝiajn gestojn; sed febre ekscitite, preskaŭ delirante, vi rigardis ŝin kiel fantomon, tute diversa de ŝia vera eksteraĵo; la
 
 longaj senordiĝintaj haroj, la ŝvelinta vizaĝo. Ia nenatura
 
@@ -6216,9 +4999,7 @@ premsonĝo. La kolera disŝirado de via vualo estis realeco —
 
 kaj ion tian ni povas atendi de ŝi. Mi vidas en viaj okuloj, ke
 
-vi dezirus demandi, kial mi konservas en mia domo tian esta-
-
-ĵon. Kiam ni estos geedziĝintaj unu jaron kaj unu tagon, mi
+vi dezirus demandi, kial mi konservas en mia domo tian estaĵon. Kiam ni estos geedziĝintaj unu jaron kaj unu tagon, mi
 
 ĉion klarigos al vi. Ne ankoraŭ nun. ĉu vi estas kontenta,
 
@@ -6230,13 +5011,9 @@ la sola ebla. Tamen tute kontenta mi ne estis, sed pro amo al
 
 li, mi ŝajnigis min kvazaŭ mi estas tia — kaj vere mi ankaŭ
 
-estis kvietigita. Mi certigis tion al li kun rideto. Kaj ĉar la nok-
+estis kvietigita. Mi certigis tion al li kun rideto. Kaj ĉar la noktomeza horo jam longe pasis, mi preparis min por forlasi lin.
 
-tomeza horo jam longe pasis, mi preparis min por forlasi lin.
-
-”ĉu Sophie kaj Adèle dormas en la infanĉambro?” li de-
-
-mandis ekbruligante mian kandelon.
+”ĉu Sophie kaj Adèle dormas en la infanĉambro?” li demandis ekbruligante mian kandelon.
 
 ”Jes, sinjoro.”
 
@@ -6244,9 +5021,7 @@ mandis ekbruligante mian kandelon.
 
 nokton vi devos dividi ĝin kun ŝi, Jane. Ne estas mirige, ke
 
-okazintaĵo, kiun vi rakontis al mi, igis vin nerva kaj mi dezi-
-
-rus, ke vi ne dormu sola. Promesu al mi, ke vi iros al la infan-
+okazintaĵo, kiun vi rakontis al mi, igis vin nerva kaj mi dezirus, ke vi ne dormu sola. Promesu al mi, ke vi iros al la infan-
 
 ĉambro.”
 
@@ -6263,9 +5038,6 @@ oka. Kaj nun forpelu la malgajajn pensojn, Jane! ĉu vi ne
 aŭdas, ke la ventego kvietiĝis kaj ke la vento flustras nur dolĉe
 
 kaj mallaŭte? La pluvego ne vipas plu la fenestrojn: rigardu
-
-
-JANE EYRE
 
 
 eksteren,” — li ŝovis flanken la kurtenojn — ”la nokto estiĝis
@@ -6288,9 +5060,7 @@ miajn okulojn, ”kiel nun sin sentas mia Jane?”
 
 tute sama.”
 
-”Kaj vi ne plu sonĝos pri disiĝo kaj malfeliĉaĵoj kaj mal-
-
-ĝojoj, sed nur pri feliĉaj geedziĝo kaj unuiĝo!”
+”Kaj vi ne plu sonĝos pri disiĝo kaj malfeliĉaĵoj kaj malĝojoj, sed nur pri feliĉaj geedziĝo kaj unuiĝo!”
 
 Tiu antaŭdiro veriĝis nur duone. Mi ne sonĝis pri disiĝo kaj
 
@@ -6298,9 +5068,7 @@ malĝojoj, sed ankaŭ ne pri ĝojo kaj feliĉa amo; ĉar mi dormis
 
 eĉ ne unu momenton. Mi tenis la malgrandan Adèle en la
 
-brakoj kaj gardis la feliĉan dormon de la infaneco — tiel kvie-
-
-tan, tiel senpasian, tiel senkulpan — kaj tiel mi atendis la pro-
+brakoj kaj gardis la feliĉan dormon de la infaneco — tiel kvietan, tiel senpasian, tiel senkulpan — kaj tiel mi atendis la pro-
 
 ksimiĝantan tagon. La vivo pulsis forte en miaj vejnoj, kaj
 
@@ -6308,9 +5076,7 @@ kiam leviĝis la suno, ankaŭ mi mem leviĝis. Mi memoras, kiel
 
 forte Adèle sin kroĉis al mi, kiam mi ellitiĝis. Mi memoras
 
-ankoraŭ, kiel kore mi ŝin kisis, kiam mi malligis ŝiajn mal-
-
-grandajn manojn, kiuj tenis miajn; stranga emocio ekregis
+ankoraŭ, kiel kore mi ŝin kisis, kiam mi malligis ŝiajn malgrandajn manojn, kiuj tenis miajn; stranga emocio ekregis
 
 min, mi eksplodis en larmoj kaj devis ŝteliri de la lito, timante,
 
@@ -6323,14 +5089,9 @@ vestonta min por poste renkonti lin, estis al mi la timata, sed
 adorata personigo de mia estonteco.
 
 
-JANE EYRE
-
-
 ĉapitro XXVI.
 
-Je la sepa horo Sophie venis por vesti min; daŭris longe an-
-
-taŭ ol ŝi plenumis tiun taskon; tiel longe, ke sinjoro Ro-
+Je la sepa horo Sophie venis por vesti min; daŭris longe antaŭ ol ŝi plenumis tiun taskon; tiel longe, ke sinjoro Ro-
 
 chester, kiu, kiel mi supozis, senpacienciĝis pro tiu longdaŭra
 
@@ -6338,9 +5099,7 @@ laboro, sendis iun supren por demandi, kial mi ankoraŭ ne
 
 venis. ŝi ĵus kunligis mian vualon (fine mi estis devigata preni
 
-mian simplan tulan) per multekosta pinglo. Kiel eble plej bal-
-
-daŭ mi tuj poste liberigis min el ŝiaj manoj kaj rapidis mal-
+mian simplan tulan) per multekosta pinglo. Kiel eble plej baldaŭ mi tuj poste liberigis min el ŝiaj manoj kaj rapidis mal-
 
 supren.
 
@@ -6354,9 +5113,7 @@ vidis fremdulinon; ĉar tiu blanke vestita, vualita figuro neeble
 
 estis mi mem.
 
-”Jane!” sonis voĉo kaj mi kuris malsupren. Apud la malsu-
-
-pro de la ŝtuparo sinjoro Rochester atendis min.
+”Jane!” sonis voĉo kaj mi kuris malsupren. Apud la malsupro de la ŝtuparo sinjoro Rochester atendis min.
 
 ”Malfruantino,” li diris, ”mia kapo ardas pro malpacienco
 
@@ -6377,9 +5134,6 @@ Unu de li antaŭ nelonge dungita servisto eniris.
 ”ĉu John pretigas la veturilon?”
 
 
-JANE EYRE
-
-
 ”Jes, sinjoro.”
 
 ”ĉu ĉiu pakaĵo estas portita malsupren?”
@@ -6392,23 +5146,17 @@ Wood, kaj la pedelo estas jam tie. Poste rapidu reen por sciigi
 
 al mi tion.”
 
-Kiel jam scias mia leganto, la preĝejo staris tuj apud la par-
-
-ka pordego. La servisto tial revenis post malmultaj momen-
+Kiel jam scias mia leganto, la preĝejo staris tuj apud la parka pordego. La servisto tial revenis post malmultaj momen-
 
 toj.
 
-”Sinjoro Wood estas jam en la sakristio kaj almetas la sur-
-
-plison.”
+”Sinjoro Wood estas jam en la sakristio kaj almetas la surplison.”
 
 ”Kaj la veturilo …?
 
 ”La ĉevaloj estas aljungataj.” …
 
-Ni ne bezonas la veturilon por iri preĝejon, sed la veturi-
-
-lo devas atendi nian revenon; ĉiu pakaĵo devas esti surŝarĝita
+Ni ne bezonas la veturilon por iri preĝejon, sed la veturilo devas atendi nian revenon; ĉiu pakaĵo devas esti surŝarĝita
 
 kaj ligita, la veturigisto devos sidi sur sia sidejo.”
 
@@ -6416,9 +5164,7 @@ kaj ligita, la veturigisto devos sidi sur sia sidejo.”
 
 ”Jane, ĉu vi estas preta?”
 
-Mi ekstaris. Mi ne havis fianĉin-kondukanton, nek fianĉin-
-
-fraŭlinojn, neniu parenco kondukis aŭ atendis min. La tuta
+Mi ekstaris. Mi ne havis fianĉin-kondukanton, nek fianĉinfraŭlinojn, neniu parenco kondukis aŭ atendis min. La tuta
 
 procesio konsistis nur el sinjoro Rochester kaj mi. Sinjorino
 
@@ -6439,20 +5185,13 @@ ek de la komenco de la mondo, tiel aspektis, kiel li — tiel
 furioze decidite, tiel energie decidite por agi. Mi dezirus scii,
 
 
-JANE EYRE
-
-
-ĉu iam la okuloj de viro, iranta la vojon al geedziĝo, tiel bri-
-
-legis sub obstine kuntiritaj brovoj.
+ĉu iam la okuloj de viro, iranta la vojon al geedziĝo, tiel brilegis sub obstine kuntiritaj brovoj.
 
 Mi ne scias, ĉu la tago estis bela, klara aŭ ventege pluva;
 
 irante laŭlonge de la larĝa vojo, mi rigardis nek ĉielon nek
 
-teron; miaj okuloj sekvis mian koron, kaj ambaŭ estis ĉe sin-
-
-joro Rochester. Mi volis vidi ion nevideblan, al kio li ŝajne fik-
+teron; miaj okuloj sekvis mian koron, kaj ambaŭ estis ĉe sinjoro Rochester. Mi volis vidi ion nevideblan, al kio li ŝajne fik-
 
 sis siajn sovaĝajn rigardojn. Mi volis koni ĉiujn liajn pensojn,
 
@@ -6462,48 +5201,29 @@ Apud la pordo de la preĝeja korto li haltis, li rimarkis, ke
 
 mi preskaŭ perdas la spiron.
 
-”ĉu mi estas kruela en mia amo?” li demandis. ”Ni aten-
+”ĉu mi estas kruela en mia amo?” li demandis. ”Ni atendu momenton. Apogu vin al mi, Jane.”
 
-du momenton. Apogu vin al mi, Jane.”
+Nun mi ree vidas antaŭ mi la bildon de tiu griza, malnova preĝejo, kiel ĝi leviĝis kviete kaj potence en la rozkolora
 
-Nun mi ree vidas antaŭ mi la bildon de tiu griza, malno-
+matena ĉielo. Rabobirdo flugis ĉirkaŭ la preĝeja turo. Mi memoras pri la verda tomboaltaĵo, ankaŭ mi ne forgesis tiujn du
 
-va preĝejo, kiel ĝi leviĝis kviete kaj potence en la rozkolora
-
-matena ĉielo. Rabobirdo flugis ĉirkaŭ la preĝeja turo. Mi me-
-
-moras pri la verda tomboaltaĵo, ankaŭ mi ne forgesis tiujn du
-
-fremdajn figurojn, kiuj iris tien kaj reen inter la malaltaj tom-
-
-boj kaj legis la surskribojn, kiuj staris sur la malmultaj per
+fremdajn figurojn, kiuj iris tien kaj reen inter la malaltaj tomboj kaj legis la surskribojn, kiuj staris sur la malmultaj per
 
 musko kovritaj tombŝtonoj. Mi rimarkis ilin, kiam ili je nia
 
-proksimiĝado ĉirkaŭiris la preĝejon, kaj mi ne dubis unu mo-
+proksimiĝado ĉirkaŭiris la preĝejon, kaj mi ne dubis unu momenton pri tio, ke ili iros tra la flankoalo en la preĝejon por
 
-menton pri tio, ke ili iros tra la flankoalo en la preĝejon por
-
-ĉeesti la geedziĝan ceremonion. Sinjoro Rochester ne rimar-
-
-kis ilin, grave li rigardis mian vizaĝon, el kiu en tiu momen-
+ĉeesti la geedziĝan ceremonion. Sinjoro Rochester ne rimarkis ilin, grave li rigardis mian vizaĝon, el kiu en tiu momen-
 
 to forfluis la sango; ĉar mi sentis, ke malvarma angora ŝvito
 
-kovris miajn frunton kaj vangojn kaj ke miaj lipoj estas gla-
+kovris miajn frunton kaj vangojn kaj ke miaj lipoj estas glaci-malvarmaj. Kiam mi ree min regis, kio baldaŭ okazis, li iris
 
-ci-malvarmaj. Kiam mi ree min regis, kio baldaŭ okazis, li iris
-
-malrapide kaj antaŭzorge kun mi laŭ la vojo al la preĝeja por-
-
-talo.
+malrapide kaj antaŭzorge kun mi laŭ la vojo al la preĝeja portalo.
 
 Ni eniris la kvietan, modestan preĝejon. La pastro staris en
 
 sia blanka surpliso apud la malalta altaro kaj atendis. ĉe lia
-
-
-JANE EYRE
 
 
 fianko staris la pedelo. ĉie regis profunda, sankta silento. En
@@ -6512,9 +5232,7 @@ la malproksima angulo moviĝis du ombroj. Miaj supozoj estis
 
 veraj: la fremduloj estis antaŭ ni enirintaj la preĝejon kaj nun
 
-ili staris apud la tomboarkaĵo de la Rochesteroj. Ili estis tur-
-
-nintaj al ni la dorson kaj rigardis tra la kradaĵo al la malno-
+ili staris apud la tomboarkaĵo de la Rochesteroj. Ili estis turnintaj al ni la dorson kaj rigardis tra la kradaĵo al la malno-
 
 va marmorŝtono, de la tempo nigre kolorigita, kie genuanta
 
@@ -6524,13 +5242,9 @@ batalmortigita en la internamilito sur Marston Moor. Flanke
 
 de li ripozis Elizabeth, lia edzino.
 
-Ni staris apud la sankta vespermanĝa tablo. Aŭdante mal-
+Ni staris apud la sankta vespermanĝa tablo. Aŭdante mallaŭtan paŝon post mi, mi rigardis trans mian ŝultron: unu el
 
-laŭtan paŝon post mi, mi rigardis trans mian ŝultron: unu el
-
-la du fremduloj — ŝajne ĝentlemano — proksimiĝis al la al-
-
-tarejo. La diservo komenciĝis. La deklaro de la fincelo de la
+la du fremduloj — ŝajne ĝentlemano — proksimiĝis al la altarejo. La diservo komenciĝis. La deklaro de la fincelo de la
 
 geedziĝo estis legata. Poste la pastro faris unu paŝon antaŭen
 
@@ -6565,16 +5279,9 @@ demandi: ”ĉu vi volas akcepti ĉi tiun knabinon kiel vian
 edzinon” — kiam klara voĉo diris:
 
 
-JANE EYRE
+”La geedziĝo ne povas plenumiĝi. Mi deklaras, ke malhelpaĵo ekzistas.”
 
-
-”La geedziĝo ne povas plenumiĝi. Mi deklaras, ke malhel-
-
-paĵo ekzistas.”
-
-La pastro rigardis supren kaj rigardis la parolinton. — Sen-
-
-parole li staris tie, same kiel la pedelo. Sinjoro Rochester faris
+La pastro rigardis supren kaj rigardis la parolinton. — Senparole li staris tie, same kiel la pedelo. Sinjoro Rochester faris
 
 geston, kvazaŭ tertremo eksplodis sub liaj piedoj. Tuj poste
 
@@ -6588,15 +5295,11 @@ mallaŭte sed firme. Sed sinjoro Wood respondis.
 
 ”Mi ne povas daŭrigi, antaŭ ol mi esplors tiun aserton,
 
-kiun ĵus iu diris. Mi devas ekzameni, ĉu tiu aserto estas men-
-
-soga aŭ vera.”
+kiun ĵus iu diris. Mi devas ekzameni, ĉu tiu aserto estas mensoga aŭ vera.”
 
 ”La geedziĝa ceremonio ĉi tie finiĝas,” respondis la voĉo
 
-post ni. ”Mi povas pruvi, ke mia aserto estas vera. Netransi-
-
-rebla malhelpaĵo por ĉi tiu geedziĝo ekzistas.”
+post ni. ”Mi povas pruvi, ke mia aserto estas vera. Netransirebla malhelpaĵo por ĉi tiu geedziĝo ekzistas.”
 
 Sinjoro Rochester bone aŭdis tion, sed li nenion atentis;
 
@@ -6627,9 +5330,6 @@ de la altarejo. Klare, kviete, ne interrompante sin, li daŭrigis,
 sed ne laŭte.
 
 
-JANE EYRE
-
-
 ”Ekzistas jam frue plenumita geedziĝo. Sinjoro Rochester
 
 havas edzinon, kiu vivas ankoraŭ.”
@@ -6654,9 +5354,7 @@ nenion. Li nur aspektis kvazaŭ li estus preta kontraŭstari
 
 ĉiujn terajn kaj ĉielajn potencojn. Li ne parolis; li ne ridetis,
 
-ŝajne li ne rekonis plu en mi vivantan estaĵon. Li per sia for-
-
-ta brako ĉirkaŭprenis mian talion kaj tiel li tenis min ĉe sia
+ŝajne li ne rekonis plu en mi vivantan estaĵon. Li per sia forta brako ĉirkaŭprenis mian talion kaj tiel li tenis min ĉe sia
 
 flanko.
 
@@ -6676,9 +5374,7 @@ mem ne intencas tion fari.”
 
 ”Faru al mi la komplezon priskribi tiun sinjorinon — nomu
 
-ŝian nomon — ŝian devenon, ŝiajn parencojn — ŝian loĝlo-
-
-kon.”
+ŝian nomon — ŝian devenon, ŝiajn parencojn — ŝian loĝlokon.”
 
 ”Certe, sinjoro, mi estas tute preta servi vin tiurilate.”
 
@@ -6687,24 +5383,15 @@ Sinjoro Briggs kviete tiris paperon el sia poŝo kaj legis iom
 oficiale kaj nazosone:
 
 
-JANE EYRE
-
-
 ”Mi atestas kaj povas pruvi, ke la dudekan de oktobro anno
 
 domini (sekvis jaro, kiu datumis ĉirkaŭ dekkvin jaroj pli frue)
 
-Edward Fairfax Rochester de Thornfield Hall, en la graflan-
+Edward Fairfax Rochester de Thornfield Hall, en la graflando —, kaj de Ferndean-Manor en — shire, Anglujo edziĝis
 
-do —, kaj de Ferndean-Manor en — shire, Anglujo edziĝis
+kun mia fratino Bertha Antoinette Mason, filino de Jonas Mason, negocisto, kaj lia edzino Antoinette, kreolino, en la pre-
 
-kun mia fratino Bertha Antoinette Mason, filino de Jonas Ma-
-
-son, negocisto, kaj lia edzino Antoinette, kreolino, en la pre-
-
-ĝejo de ĉiuj Sanktuloj en Spanish Town, Jamajko. La proto-
-
-kolo pri tiu geedziĝo estas notita en la libroj de la nomita pre-
+ĝejo de ĉiuj Sanktuloj en Spanish Town, Jamajko. La protokolo pri tiu geedziĝo estas notita en la libroj de la nomita pre-
 
 ĝejo — kopio troviĝas nuntempe en miaj manoj.
 
@@ -6714,9 +5401,7 @@ Richard Mason.”
 
 ”Tio povus pruvi — se la dokumento estas vera, ke iam mi
 
-estis edziĝinta, sed tio ne pruvas, ke la virino, kiu en la doku-
-
-mento estas nomata kiel mia edzino, vivas ankoraŭ.”
+estis edziĝinta, sed tio ne pruvas, ke la virino, kiu en la dokumento estas nomata kiel mia edzino, vivas ankoraŭ.”
 
 ”ĉiuokaze ŝi vivis ankoraŭ antaŭ tri monatoj,” respondis la
 
@@ -6726,15 +5411,11 @@ advokato, ”tio estas pruvebla.”
 
 ”Pri tiu fakto mi havas atestanton, sinjoro; eĉ atestanton,
 
-kies certigon eĉ vi mem ne povus kontraŭbatali nek senfor-
-
-tigi.”
+kies certigon eĉ vi mem ne povus kontraŭbatali nek senfortigi.”
 
 ”Prezentu lin tuj — se ne, iru al la diablo!”
 
-”Mi prezentos lin al vi — li estas tre proksime. Sinjoro Ma-
-
-son, bonvolu paŝi antaŭen.”
+”Mi prezentos lin al vi — li estas tre proksime. Sinjoro Mason, bonvolu paŝi antaŭen.”
 
 Kiam sinjoro Rochester aŭdis tiun nomon, li grincigis la
 
@@ -6749,32 +5430,21 @@ figuron.
 La dua fremdulo, kiu ĝis nun tenis sin je kelka distanco,
 
 
-JANE EYRE
-
-
 ankaŭ paŝis antaŭen. Pala vizaĝo rigardis trans la ŝultron de
 
-la leĝa scienculo — jes — tie estis sinjoro Mason propraper-
-
-sone. Sinjoro Rochester sin turnis kaj rigardis lin. Mi jam ofte
+la leĝa scienculo — jes — tie estis sinjoro Mason proprapersone. Sinjoro Rochester sin turnis kaj rigardis lin. Mi jam ofte
 
 rakontis, ke liaj okuloj estis nigraj — nun tamen ilia koloro
 
-estis ruĝebruna, ne, ili montris sangecan brilon en sia malhe-
-
-leco; — lia vizaĝo ŝanĝiĝis laŭ koloro — la olivkoloraj vangoj,
+estis ruĝebruna, ne, ili montris sangecan brilon en sia malheleco; — lia vizaĝo ŝanĝiĝis laŭ koloro — la olivkoloraj vangoj,
 
 la pala frunto estis kovritaj de koloro, kiu ŝajnis supreniri el
 
 martirita koro. Subite li faris geston, levis la fortan brakon —
 
-li estis teren fraponta Mason, li estis sternonta lin sur la plan-
+li estis teren fraponta Mason, li estis sternonta lin sur la plankon de la preĝejo, li estis senindulge mortigonta lin — sed
 
-kon de la preĝejo, li estis senindulge mortigonta lin — sed
-
-Mason terurite paŝis malantaŭen kaj senhelpe kriis: ”ĉiopo-
-
-tenca Dio!”
+Mason terurite paŝis malantaŭen kaj senhelpe kriis: ”ĉiopotenca Dio!”
 
 Tiam subite senlima malestimo ekregis sinjoron Rochester
 
@@ -6784,19 +5454,13 @@ bato neniigis ĝin kaj li demandis nur: ”Kion vi havas ankoraŭ
 
 por diri?”
 
-Neaŭdebla respondo liberiĝis el inter la palaj lipoj de sin-
+Neaŭdebla respondo liberiĝis el inter la palaj lipoj de sinjoro Mason.
 
-joro Mason.
-
-”La diablo prenu vin, se vi ne povos klare respondi. Anko-
-
-raŭ unu fojon mi demandas al vi, kion vi havas por diri,” kriis
+”La diablo prenu vin, se vi ne povos klare respondi. Ankoraŭ unu fojon mi demandas al vi, kion vi havas por diri,” kriis
 
 al li sinjoro Rochester.
 
-”Sinjoro — sinjoro,” interrompis nun la pastro, ”ne forge-
-
-su, ke vi troviĝas en sanktigita ejo.”
+”Sinjoro — sinjoro,” interrompis nun la pastro, ”ne forgesu, ke vi troviĝas en sanktigita ejo.”
 
 Poste li sin turnis al sinjoro Mason kaj milde demandis:
 
@@ -6811,24 +5475,17 @@ malkaŝe.”
 ”ŝi vivas ankoraŭ — kaj eĉ en — Thornfield Hall,” klarvoĉe
 
 
-JANE EYRE
-
-
 diris Mason. ”Lastfoje mi ŝin vidis tie en aprilo. Mi estas ŝia
 
 frato.”
 
 ”En Thornfield Hall!” konsternite kriis la pastro. ”Neeble!
 
-Mi estas maljuna loĝanto de ĉi tiu regiono, sinjoro, kaj anko-
-
-raŭ neniam mi aŭdis pri sinjorino Rochester en Thornfield
+Mi estas maljuna loĝanto de ĉi tiu regiono, sinjoro, kaj ankoraŭ neniam mi aŭdis pri sinjorino Rochester en Thornfield
 
 Hall.”
 
-Mi vidis, ke terura rideto distordis la lipojn de sinjoro Ro-
-
-chester.
+Mi vidis, ke terura rideto distordis la lipojn de sinjoro Rochester.
 
 Li grumblis:
 
@@ -6842,9 +5499,7 @@ li decidis kaj parolis:
 
 ”Sufiĉe — sufiĉe! Nun ĉio per unu fojo eliĝu, kiel la kuglo
 
-el la kanono. — Wood, fermu vian libron kaj demetu vian sur-
-
-plison; John Green (tion li diris al la pedelo) eliru el la preĝejo.
+el la kanono. — Wood, fermu vian libron kaj demetu vian surplison; John Green (tion li diris al la pedelo) eliru el la preĝejo.
 
 Hodiaŭ geedziĝo ne okazos plu.”
 
@@ -6852,9 +5507,7 @@ La viro faris, kion oni ordonis al li.
 
 Sinjoro Rochester parolis plue kuraĝe kaj decide:
 
-”Bigamio estas terura vorto! Kaj tamen mi havis la inten-
-
-con estiĝi bigamiisto! — Sed la sorto superruzis min — aŭ la
+”Bigamio estas terura vorto! Kaj tamen mi havis la intencon estiĝi bigamiisto! — Sed la sorto superruzis min — aŭ la
 
 providenco retenis min, — eble la lasta okazis. En ĉi tiu
 
@@ -6872,13 +5525,7 @@ edzino, kun kiu mi edziĝis, vivas! Vi diras, Wood, ke neniam
 
 vi aŭdis paroli pri iu sinjorino Rochester tie en la biena domo,
 
-sed mi konjektas, ke ofte vi klinis vian orelon antaŭ la babi-
-
-
-JANE EYRE
-
-
-ladoj pri tiu misterplena frenezulino, kiu estas enŝlosita tie
+sed mi konjektas, ke ofte vi klinis vian orelon antaŭ la babiladoj pri tiu misterplena frenezulino, kiu estas enŝlosita tie
 
 sub severa gardado. Kelkaj homoj flustris al vi, ke ŝi estas mia
 
@@ -6890,15 +5537,11 @@ diras al vi, ke ŝi estas mia edzino, kun kiu mi edziĝis antaŭ
 
 dekkvin jaroj, —kies nomo estas Bertha Mason, kaj kiu estas
 
-la fratino de decidita, sentima viro, kiu nun per siaj tremetan-
-
-taj membroj kaj mortpala vizaĝo pruvas, kian kuraĝan koron
+la fratino de decidita, sentima viro, kiu nun per siaj tremetantaj membroj kaj mortpala vizaĝo pruvas, kian kuraĝan koron
 
 kelkaj homoj portas en la korpo! — Kuraĝon, Dick! — ne timu
 
-antaŭ mi, mi pli volonte batus sendefendan virinon ol kom-
-
-patindulon, kia vi estas! — Bertha Mason estas freneza; kaj ŝi
+antaŭ mi, mi pli volonte batus sendefendan virinon ol kompatindulon, kia vi estas! — Bertha Mason estas freneza; kaj ŝi
 
 devenas de freneza familio — idiotoj kaj frenezuloj dum tri
 
@@ -6910,13 +5553,9 @@ filino, ĉar antaŭ mia edziĝo oni silentis pri familiaj sekretoj.
 
 Bertha, kiel devofidela filino imitis sian patrinon en ambaŭ
 
-rilatoj. Mi havis ĉarman kunulinon — puran, senkulpan, sa-
+rilatoj. Mi havis ĉarman kunulinon — puran, senkulpan, saĝan, modestan — Kredu al mi, ke mi estis feliĉa edzo! — Mi
 
-ĝan, modestan — Kredu al mi, ke mi estis feliĉa edzo! — Mi
-
-travivis la plej belajn scenojn! Ho! miaj spertoj estis ĉiuspe-
-
-caj! Se vi nur scius ĉion tion! Sed mi ne ŝuldas al vi plurajn
+travivis la plej belajn scenojn! Ho! miaj spertoj estis ĉiuspecaj! Se vi nur scius ĉion tion! Sed mi ne ŝuldas al vi plurajn
 
 klarigojn. Briggs, Wood, Mason, — mi invitas vin ĉiujn eniri
 
@@ -6937,9 +5576,6 @@ konjektis tute nenion pri tiu naŭza sekreto. ŝi kredis, ke ĉio
 okazis laŭleĝe kaj en bona ordo; neniam ŝi sonĝis pri tio, ke
 
 ŝi estas fikcie edziniĝonta kun trompema, mizera krimulo, kiu
-
-
-JANE EYRE
 
 
 estas jam ligita al malbona, freneza kaj bestiĝinta virino!
@@ -6986,9 +5622,7 @@ kiu staris granda lito kaj malnovmoda bela ŝranko.
 
 ”Vi konas tiun ĉi ĉambron, Mason,” diris nia kondukanto,
 
-”estis ja ĉi tie, kie ŝi mordis vin kaj penis trapiki vin per po-
-
-nardo.”
+”estis ja ĉi tie, kie ŝi mordis vin kaj penis trapiki vin per ponardo.”
 
 Li levis la kurtenon de la vando kaj aperigis al niaj okuloj
 
@@ -7000,13 +5634,7 @@ alta fortika kamenŝirmilo. Lampo pendis je ĉeno ligita al la
 
 plafono. Grace Poole staris kliniĝinta super la fajro kaj ŝajne
 
-sin okupis kuirante ion en kaserolo. En la fundo de la ĉam-
-
-
-JANE EYRE
-
-
-bro sen halto iris tien kaj reen iu stranga figuro en profunda
+sin okupis kuirante ion en kaserolo. En la fundo de la ĉambro sen halto iris tien kaj reen iu stranga figuro en profunda
 
 ombro. Je la unua rigardo oni ne povis distingi, ĉu tiu figuro
 
@@ -7014,25 +5642,19 @@ estas besto aŭ homa estaĵo. Estis kvazaŭ ĝi iris kvarpiede. i
 
 eligis krietojn kiel sovaĝa besto. Sed ĝi estis kovrita per vestoj
 
-kaj griziĝantaj sovaĝecaj kolharoj kovris la kapon kaj la viza-
-
-ĝon.
+kaj griziĝantaj sovaĝecaj kolharoj kovris la kapon kaj la vizaĝon.
 
 ”Bonan matenon, sinjorino Poole!” diris sinjoro Rochester.
 
 ”Kiel vi fartas? Kaj kiel fartas hodiaŭ via ŝarĝo?”
 
-”Mi vin dankas, sinjoro,” respondis Grace, ”Ni ambaŭ far-
-
-tas sufiĉe bone.” ŝi metis la kuirantan manĝaĵon singarde sur
+”Mi vin dankas, sinjoro,” respondis Grace, ”Ni ambaŭ fartas sufiĉe bone.” ŝi metis la kuirantan manĝaĵon singarde sur
 
 la kamenkornicon. ”Sufiĉe malafabla ŝi estas, sed ne furioza.”
 
 Sovaĝa krio ŝajne volis malpravigi tiun favoran raporton.
 
-La vestita hieno leviĝis kaj staris rekte sur la malantaŭaj pie-
-
-doj.
+La vestita hieno leviĝis kaj staris rekte sur la malantaŭaj piedoj.
 
 ”Ho, sinjoro. ŝi vidis vin!” kriis Grace; ”estus pli bone, se vi
 
@@ -7042,17 +5664,13 @@ forirus!”
 
 permesi al mi.”
 
-”Sed estu singarda, sinjoro! pro la volo de Dio estu singar-
-
-da!,.
+”Sed estu singarda, sinjoro! pro la volo de Dio estu singarda!,.
 
 La frenezulino eligis blekegadon. ŝi forigis la sovaĝajn
 
 harojn de la vizaĝo kaj bestmaniere rigardis siajn vizitantojn.
 
-Mi tuj rekonis tiun bluruĝan vizaĝon, — tiujn ŝvelintajn traj-
-
-tojn. Sinjorino Poole proksimiĝis.
+Mi tuj rekonis tiun bluruĝan vizaĝon, — tiujn ŝvelintajn trajtojn. Sinjorino Poole proksimiĝis.
 
 ”Iru flanken,” diris sinjoro Rochester dum li forpuŝis ŝin de
 
@@ -7067,14 +5685,9 @@ ruza, estas neeble kompreni ŝian ruzecon.”
 ”Estus plej bone se ni forirus,” flustris Mason.
 
 
-JANE EYRE
-
-
 ”Iru al la diablo!” rekomendis al li lia bofrato.
 
-”Atentu!” kriis Grace. Samtempe la tri sinjoroj iris al la fun-
-
-do.
+”Atentu!” kriis Grace. Samtempe la tri sinjoroj iris al la fundo.
 
 Sinjoro Rochester puŝis min malantaŭ sin: la frenezulino
 
@@ -7098,19 +5711,13 @@ oni al li donis, li ligis la frenezulinon sur seĝo. ĉio tio okazis
 
 dum blekanta kriado, kaj la ligitino konvulsie penis liberigi
 
-sin. Nun sinjoro Rochester sin turnis al la ĉeestantoj. Li rigar-
-
-dis ilin kun ridetado, kiu estis amara kaj senkonsola.
+sin. Nun sinjoro Rochester sin turnis al la ĉeestantoj. Li rigardis ilin kun ridetado, kiu estis amara kaj senkonsola.
 
 ”Jen mia edzino!” li diris. ”Jen la sola ĉirkaŭbrako, kiun mi
 
-povas atendi de mia edzino — jen la karesoj, kiuj devus kon-
+povas atendi de mia edzino — jen la karesoj, kiuj devus konsoli min! — Kaj estas ĉi tiu, kiun mi sopiris posedi, (li metis
 
-soli min! — Kaj estas ĉi tiu, kiun mi sopiris posedi, (li metis
-
-sian manon sur mian ŝultron) ĉi tiu juna knabino, kiu tiel se-
-
-rioze kaj kviete staras apud la faŭko de la infero kaj kiu tran-
+sian manon sur mian ŝultron) ĉi tiu juna knabino, kiu tiel serioze kaj kviete staras apud la faŭko de la infero kaj kiu tran-
 
 kvile rigardas kun mi la saltetojn de demono. Mi sopiras ŝin
 
@@ -7122,21 +5729,14 @@ okulojn kun tiuj ruĝaj kugloj — komparu ĉi tiun vizaĝon kun
 
 tiu masko — ĉi tiun formon kun tiu dika fiamaso — kaj poste
 
-kondamnu min, ho pastro de la evangelio kaj viro de la tribu-
-
-nalo. Sed memoru, ke vi estos juĝataj pro la sama juĝo, laŭ
+kondamnu min, ho pastro de la evangelio kaj viro de la tribunalo. Sed memoru, ke vi estos juĝataj pro la sama juĝo, laŭ
 
 kiu vi juĝos! Nun foriru de ĉi tiu loko, mi devas ŝloskaŝi mian
 
 trezoron.”
 
 
-JANE EYRE
-
-
-Ni ĉiuj eliris el la ĉambro. Sinjoro Rochester restis tie anko-
-
-raŭ momenton por doni siajn ordonojn al Grace Poole.
+Ni ĉiuj eliris el la ĉambro. Sinjoro Rochester restis tie ankoraŭ momenton por doni siajn ordonojn al Grace Poole.
 
 Kiam ni malsupreniris la ŝtuparon, la advokato sin turnis
 
@@ -7144,9 +5744,7 @@ al mi.
 
 ”Vi, fraŭlino,” li diris, ”estas senigita de ĉiu mallaŭdo: via
 
-onklo ĝojos, aŭdante tion, se li vivas ankoraŭ — kaj kiam sin-
-
-joro Mason estos reirinta al Madejro.”
+onklo ĝojos, aŭdante tion, se li vivas ankoraŭ — kaj kiam sinjoro Mason estos reirinta al Madejro.”
 
 ”Mia onklo! Kion vi scias pri li? ĉu vi konas lin?”
 
@@ -7164,9 +5762,7 @@ semajnojn ĉe via onklo, antaŭ ol revojaĝi al Jamajko. Dum
 
 interparolo sinjoro Eyre okaze sciigis al li pri via letero, ĉar li
 
-bone sciis, ke mia kliento konis iun sinjoron nomitan Roches-
-
-ter. Sinjoro Mason, kiu kiel vi povas imagi, estis mirigita kaj
+bone sciis, ke mia kliento konis iun sinjoron nomitan Rochester. Sinjoro Mason, kiu kiel vi povas imagi, estis mirigita kaj
 
 konsternita, tiam malkovris la tutan situacion de la aferoj. Mi
 
@@ -7178,9 +5774,7 @@ malsano, la ftizo, kaj pri la stadio, kiun ĝi jam atingis. Li mem
 
 tial ne povis rapidi Anglujon, por liberigi vin el la kaptilo, en
 
-kiun vi trafis; sed li petegis sinjoron Mason ne perdi unu mo-
-
-menton kaj senprokraste kapti la rimedojn por malhelpi ĉi
+kiun vi trafis; sed li petegis sinjoron Mason ne perdi unu momenton kaj senprokraste kapti la rimedojn por malhelpi ĉi
 
 tiun kontraŭleĝan geedziĝon. Li turnigis lin al mi kaj petis
 
@@ -7195,9 +5789,6 @@ mortis antaŭ ol vi atingos Madejron, mi konsilus al vi vojaĝi
 tien kune kun sinjoro Mason; sed en la nunaj cirkonstancoj
 
 
-JANE EYRE
-
-
 mi opinias, ke estas pli bone por vi resti en Anglujo, ĝis vi
 
 ricevis sciigon de aŭ pri sinjoro Eyre.”
@@ -7208,9 +5799,7 @@ sinjoro Mason.
 
 ”Ne, ne — ni tuj foriru,” kun timo respondis la alia, kaj ne
 
-adiaŭinte sinjoron Rochester, li rapide foriris tra la halpor-
-
-dego. La pastro restis por diri al sia fiera paroąno kelkajn
+adiaŭinte sinjoron Rochester, li rapide foriris tra la halpordego. La pastro restis por diri al sia fiera paroąno kelkajn
 
 vortojn de konsolo aŭ de mallaŭdo. Farinte sian devon ankaŭ
 
@@ -7226,9 +5815,7 @@ estas for, mi enŝlosis min, riglis la pordon, por ke neniu ĝenu
 
 min kaj komencis — ho ne, mi ne komencis vekrii kaj laŭte
 
-malĝoji; mi estis ankoraŭ tro kvieta por fari tion — sed sen-
-
-konscie demetis mian edziĝvestaĵojn anstataŭante ilin per la
+malĝoji; mi estis ankoraŭ tro kvieta por fari tion — sed senkonscie demetis mian edziĝvestaĵojn anstataŭante ilin per la
 
 lanaj, kiujn mi portis ankoraŭ en la pasinta tago kaj, kiel mi
 
@@ -7238,9 +5825,7 @@ lacega. Mi metis la brakojn sur la tablon kaj sur ilin mian
 
 kapon. Nun mi komencis pripensi. is tiu momento mi estis
 
-nur aŭdinta, rigardinta kaj movinta min — mi estis irinta sup-
-
-ren kaj malsupren kien oni kondukis kaj puŝis min — mi estis
+nur aŭdinta, rigardinta kaj movinta min — mi estis irinta supren kaj malsupren kien oni kondukis kaj puŝis min — mi estis
 
 vidinta, kiel unu terura okazintaĵo sekvis alian, — nur nun mi
 
@@ -7259,12 +5844,7 @@ malmultaj vortoj, nome kviete dirita protesto kontraŭ la
 edzigo, nur kelkaj rigoraj demandoj de la flanko de sinjoro
 
 
-JANE EYRE
-
-
-Rochester; respondoj kaj klarigoj estis donitaj kaj pruvoj live-
-
-ritaj; mia sinjoro kaj ordonanto publike estis konfesinta la
+Rochester; respondoj kaj klarigoj estis donitaj kaj pruvoj liveritaj; mia sinjoro kaj ordonanto publike estis konfesinta la
 
 veron, — kaj poste ni vidis la vivantan pruvon! Nun ĉiuj tiuj
 
@@ -7272,17 +5852,13 @@ entruduloj jam foriris. — ĉio finiĝis!
 
 Kiel kutime, mi estis en mia ĉambro — kaj mi estis mi
 
-mem, sen la plej malgranda videbla ŝanĝiĝo. Mi ne estis vun-
-
-dita — neniu estis batinta, neniu estis ofendinta min! — Sed
+mem, sen la plej malgranda videbla ŝanĝiĝo. Mi ne estis vundita — neniu estis batinta, neniu estis ofendinta min! — Sed
 
 malgraŭ tio! ĉu mi estis la hieraŭa Jane Eyre? — Kie estis ŝia
 
 vivo? — Kie estis ŝia espero por la vivo?
 
-Jane Eyre, kiu preskaŭ estis amata edzino plena de espe-
-
-ro — estis ree malvarma, rigida, soleca knabino. ŝia vivo estis
+Jane Eyre, kiu preskaŭ estis amata edzino plena de espero — estis ree malvarma, rigida, soleca knabino. ŝia vivo estis
 
 senkolora, ŝiaj atendoj senkonsolaj. En la somermeza tempo
 
@@ -7308,22 +5884,15 @@ antaŭe mortis en unu sola nokto ĉiuj unuenaskitoj egiptaj. Mi
 
 rigardis miajn plej karajn dezirojn — hieraŭ ili estis ankoraŭ
 
-tiel brilaj kaj ridantaj — ili nun kuŝis tie kiel malvarmaj, rigi-
-
-daj, palaj mortintoj, kiujn nenio povis plu revoki al la vivo.
+tiel brilaj kaj ridantaj — ili nun kuŝis tie kiel malvarmaj, rigidaj, palaj mortintoj, kiujn nenio povis plu revoki al la vivo.
 
 Tiam mi rigardis mian amon: tiun senton, kiu apartenis al
 
 mia sinjoro —, kiun li estis vekinta; ĝi vivis en mia koro kiel
 
-malsana infano en malvarma, malmola lulilo; angoro kaj mal-
-
-sano kaptis ĝin; ĝi ne povis plu serĉi la brakon de sinjoro Ro-
+malsana infano en malvarma, malmola lulilo; angoro kaj malsano kaptis ĝin; ĝi ne povis plu serĉi la brakon de sinjoro Ro-
 
 chester — sur liabrusto ĝi ne povis plu trovi vivovarmon. Ho,
-
-
-JANE EYRE
 
 
 neniam plu ĝi povos peti lian protekton, ĉar la fido forflugis
@@ -7334,9 +5903,7 @@ mi, kiu li antaŭe estis, ĉar li ne estis tia, kia mi pensis lin. Mi
 
 tamen ne volis atribui al li malvirtecon. Mi ne volis diri, ke li
 
-trompis min, sed pensante pri li, mi ne plu pensis pri senma-
-
-kula viro. Kaj nun mi devos foriri de lia ĉeesto — tion mi klare
+trompis min, sed pensante pri li, mi ne plu pensis pri senmakula viro. Kaj nun mi devos foriri de lia ĉeesto — tion mi klare
 
 komprenis kaj sentis. Sed mi ankoraŭ ne sciis kiam — kiel —
 
@@ -7344,13 +5911,9 @@ kien. — Tamen mi estis certa pri tio, ke li kiel eble plej rapide
 
 foririgas min el Thornfield. ŝajnis, al mi, ke li neniam sentis
 
-por mi veran amon. ĉio estis nur nekonstanta pasio, kies kon-
+por mi veran amon. ĉio estis nur nekonstanta pasio, kies kontentigo estis malsukcesigita; li ne bezonos min plu! Mi eĉ ti-
 
-tentigo estis malsukcesigita; li ne bezonos min plu! Mi eĉ ti-
-
-mis renkonti lin: li ja malamos mian alrigardon. Ho! kiel blin-
-
-daj do antaŭe estis miaj okuloj! Kiel kompatinde malforta mia
+mis renkonti lin: li ja malamos mian alrigardon. Ho! kiel blindaj do antaŭe estis miaj okuloj! Kiel kompatinde malforta mia
 
 sinteno!
 
@@ -7364,17 +5927,13 @@ kvazaŭ mi kuŝas en la sekiĝinta kuŝujo de granda rivero: mi
 
 aŭdis kvazaŭ bruantan torentegon, kiu malsupren rapidis de
 
-malproksimaj glacimontoj, mi sentis, ke la torento estas pro-
-
-ksimiĝonta — sed mi ne havis la kuraĝon leviĝi, nek por for-
+malproksimaj glacimontoj, mi sentis, ke la torento estas proksimiĝonta — sed mi ne havis la kuraĝon leviĝi, nek por for-
 
 kuri. Senforta mi kuŝis tie; mi aspiris nur la morton! Nur unu
 
 sola penso sin trudis al mi: la penso al Dio. Kaj ĝi vekis en mi
 
-nediritan preĝon; la vortoj moviĝis tien kaj reen en mia mal-
-
-luma animo kiel io, kio devas esti flustrata: sed mi ne havis la
+nediritan preĝon; la vortoj moviĝis tien kaj reen en mia malluma animo kiel io, kio devas esti flustrata: sed mi ne havis la
 
 energion elflustri ilin:
 
@@ -7384,13 +5943,7 @@ helpanto ĉeestas!”
 
 i estis tiel proksima, kaj ĉar mi ne sendis la preĝon al la
 
-ĉielo por eviti ĝin — ĉar mi ne plektis la manojn, nek genu-
-
-
-JANE EYRE
-
-
-is, nek movis la lipojn — ĝi venis per grandaj pezaj ondoj, la
+ĉielo por eviti ĝin — ĉar mi ne plektis la manojn, nek genuis, nek movis la lipojn — ĝi venis per grandaj pezaj ondoj, la
 
 torento sin ĵetis sur min. En formo de griza teruriga maso, la
 
@@ -7407,14 +5960,9 @@ marĉo, apogo mankis al mi, mi trafis en la fundon, — la ondoj
 plue bruis trans min.
 
 
-JANE EYRE
-
-
 ĉapitro XXVII
 
-La posttagmezo venis kaj mi levis la kapon, rigardante ĉir-
-
-kaŭe mi vidis, ke la lastaj radioj de la subiranta suno falis
+La posttagmezo venis kaj mi levis la kapon, rigardante ĉirkaŭe mi vidis, ke la lastaj radioj de la subiranta suno falis
 
 sur la vandon de mia ĉambro kaj mi demandis: ”Kion mi nun
 
@@ -7422,9 +5970,7 @@ faros?”
 
 Sed la respondo, kiun donis mia animo al mi: ”Tuj forlasu
 
-Thornfield” — sekvis tiel rapide, tiel terure rapide, ke mi ŝto-
-
-pis miajn orelojn. Mi diris, ke mi ne povas nun aŭdi tiajn vor-
+Thornfield” — sekvis tiel rapide, tiel terure rapide, ke mi ŝtopis miajn orelojn. Mi diris, ke mi ne povas nun aŭdi tiajn vor-
 
 tojn. ”La plej malgranda parto de miaj suferoj estas, ke mi ne
 
@@ -7444,15 +5990,11 @@ kaj ĝi antaŭdiris al mi, ke mi faros tion. Mi luktis kontraŭ mia
 
 propra decido; mi volis esti malforta, por eviti la vojon de
 
-estontaj suferoj, kiun mi tiel klare vidis antaŭ mi; kaj mia kon-
-
-scienco, fariĝinte tirano, kaptis la pasion je la kolo kaj moke
+estontaj suferoj, kiun mi tiel klare vidis antaŭ mi; kaj mia konscienco, fariĝinte tirano, kaptis la pasion je la kolo kaj moke
 
 diris al ĝi, ke ĝi ĝis nun tuŝis nur per unu piedo la ŝlimon kaj
 
-ĵuris, ke ĝi per fera brako ĵetos ĝin en la ne sondeblan profun-
-
-don de la agonio.
+ĵuris, ke ĝi per fera brako ĵetos ĝin en la ne sondeblan profundon de la agonio.
 
 ”Fortiru min do!” mi kriis. ”Iu alia devas helpi min!”
 
@@ -7461,16 +6003,11 @@ don de la agonio.
 mem elŝiros al vi la dekstran okulon, vi mem devos dehaki al
 
 
-JANE EYRE
-
-
 vi la dekstran manon. Via koro estu la ofero kaj vi mem la
 
 pastrino, kiu oferos ĝin.”
 
-Subite mi salte leviĝis, terurita pro la soleco, en kiu paro-
-
-lis tiu senkompata juĝisto — pro la senbruo, tra kiu sonis nur
+Subite mi salte leviĝis, terurita pro la soleco, en kiu parolis tiu senkompata juĝisto — pro la senbruo, tra kiu sonis nur
 
 tia terura voĉo. Mi sentis kapturniĝon tiel starante tie. Mi
 
@@ -7488,27 +6025,19 @@ le ankoraŭ ne estis frapinta la pordon kaj ankaŭ sinjorino
 
 Fairfax ne vizitis min.
 
-”Amiko ĉiam forlasas tiujn, kiujn forlasis la feliĉo,” mi mur-
-
-muris, kiam mi fortiris la riglilon kaj eliris. Mi faletis pro mal-
+”Amiko ĉiam forlasas tiujn, kiujn forlasis la feliĉo,” mi murmuris, kiam mi fortiris la riglilon kaj eliris. Mi faletis pro mal-
 
 helpaĵo, mia kapo sentis ankoraŭ la turniĝadon, mia rigardo
 
-estis malklara kaj miaj korpo-membroj malfortaj. Nur mal-
+estis malklara kaj miaj korpo-membroj malfortaj. Nur malrapide mi povis rekonsciiĝi. Tiam mi falis, sed ne teren, eten-
 
-rapide mi povis rekonsciiĝi. Tiam mi falis, sed ne teren, eten-
-
-dita brako kaptis min; mi rigardis supren — sinjoro Roches-
-
-ter apogis min! En brakseĝo li estis gardinta antaŭ la sojlo de
+dita brako kaptis min; mi rigardis supren — sinjoro Rochester apogis min! En brakseĝo li estis gardinta antaŭ la sojlo de
 
 mia ĉambro.
 
 ”Fine vi do eliras,” li diris. ”Jam tiel longe mi atendis vin kaj
 
-aŭskultis, sed mi ne aŭdis la plej mallaŭtan brueton, nek mo-
-
-von nek plorĝemadon. Post kvin pluaj minutoj da tia morta
+aŭskultis, sed mi ne aŭdis la plej mallaŭtan brueton, nek movon nek plorĝemadon. Post kvin pluaj minutoj da tia morta
 
 silento mi estus perforte rompinta tiun pordon, kiel rabisto.
 
@@ -7520,27 +6049,18 @@ akrajn riproĉojn. Vi estas pasia: mi atendis ian scenon. Mi
 
 estis preparita al varmega plorfluado: sed mi nur volis, ke vi
 
-verŝus ĝin sur mian bruston. Nun kompata tapiŝo aŭ via mal-
-
-seka poŝtuko ensorbis ĝin. Sed ne; mi eraras! Vi tute ne plo-
-
-
-JANE EYRE
+verŝus ĝin sur mian bruston. Nun kompata tapiŝo aŭ via malseka poŝtuko ensorbis ĝin. Sed ne; mi eraras! Vi tute ne plo-
 
 
 ris! Mi vidas palajn vangojn kaj lacajn okulojn — sed neniun
 
-postsignon de larmoj. Tial mi supozas, ke via koro ploris san-
-
-gon?”
+postsignon de larmoj. Tial mi supozas, ke via koro ploris sangon?”
 
 ”Nu, Jane? Neniu vorto de riproĉo? Neniu amaraĵo? —
 
 neniu akra ekbolo de pasio? neniu ofendo? Kviete vi tie sidas,
 
-kie mi sidigis vin kaj rigardas min per lacaj, suferantaj oku-
-
-loj?”
+kie mi sidigis vin kaj rigardas min per lacaj, suferantaj okuloj?”
 
 ”Ho Jane, mi ne volis tiel profunde vundi vin. Kiam viro,
 
@@ -7556,19 +6076,13 @@ nun pripentas mian. ĉu iam vi povus pardoni min?”
 
 Leganto! mi jam pardonis al li en tiu sama momento. En
 
-liaj okuloj mi vidis tian profundan penton, tian veran kom-
+liaj okuloj mi vidis tian profundan penton, tian veran kompaton mi aŭdis en lia voĉo, tiom da vira energio mi vidis en
 
-paton mi aŭdis en lia voĉo, tiom da vira energio mi vidis en
-
-ĉio, kion li nun diris kaj faris! Krom tio liaj rigardoj kaj aspek-
-
-to montris tiom da neŝanĝita amo — mi pardonis al li ĉion!
+ĉio, kion li nun diris kaj faris! Krom tio liaj rigardoj kaj aspekto montris tiom da neŝanĝita amo — mi pardonis al li ĉion!
 
 Sed ne per vortoj, — nur en la plej profunda loko de mia koro.
 
-”Vi scias Jane, ke mi ne estas mizerulo kaj fripono?” li de-
-
-mandis malĝoje post kelkaj momentoj. Li miris pro mia sen-
+”Vi scias Jane, ke mi ne estas mizerulo kaj fripono?” li demandis malĝoje post kelkaj momentoj. Li miris pro mia sen-
 
 interrompa silentado, pro mia okulŝajna kvieto. Ili pli multe
 
@@ -7584,12 +6098,7 @@ indulgu min, ho ne indulgu min!”
 
 akvo!”
 
-Li eligis tremantan ĝemon; tiam li prenis min sur la bra-
-
-kojn kaj portis min malsupren. Komence mi ne sciis, en kiun
-
-
-JANE EYRE
+Li eligis tremantan ĝemon; tiam li prenis min sur la brakojn kaj portis min malsupren. Komence mi ne sciis, en kiun
 
 
 ĉambron li portis min; ĉio estis nebula antaŭ miaj vitrecaj
@@ -7608,9 +6117,7 @@ reveni miajn fortojn; poste mi manĝis iom, kion li portis al mi
 
 Mi pensis: ”Se mi povus nun eliri el ĉi tiu vivo ne suferante
 
-tro grandan doloron, tiam mi estus feliĉa, tiam mi ne bezo-
-
-nus tiel peni disŝiri mian koron, forkurante de sinjoro Ro-
+tro grandan doloron, tiam mi estus feliĉa, tiam mi ne bezonus tiel peni disŝiri mian koron, forkurante de sinjoro Ro-
 
 chester. Sed mi devas forkuri de li. Ho jes, mi devas. Sed mi
 
@@ -7626,9 +6133,7 @@ bone.”
 
 Mi trinkis. Li metis la glason sur la tablon, ekstaris antaŭ
 
-mi kaj atente min rigardis. Subite li deturnis sin de mi, sub-
-
-premante ekkrion, per kiu li volis eligi sian tutan emocion.
+mi kaj atente min rigardis. Subite li deturnis sin de mi, subpremante ekkrion, per kiu li volis eligi sian tutan emocion.
 
 Poste li iris tien kaj reen en la ĉambro kaj revenis al mi; li sin
 
@@ -7651,9 +6156,6 @@ ne rajtas je ĝi.”
 ”Kial Jane? Mi volus ŝparigi al vi la penon multon diri. Mi
 
 
-JANE EYRE
-
-
 volas respondi por vi. ĉu ne vere, vi volis respondi al mi, ke
 
 mi havas edzinon — ĉu mi ĝuste divenis?”
@@ -7664,9 +6166,7 @@ mi havas edzinon — ĉu mi ĝuste divenis?”
 
 rigardi min kiel malbonan senvirtan friponon, kiu hipokritis
 
-al vi dediĉantan amon por logi vin en bone pripensitan kap-
-
-tilon kaj rabi viajn honoron kaj memestimon. Kion vi nun
+al vi dediĉantan amon por logi vin en bone pripensitan kaptilon kaj rabi viajn honoron kaj memestimon. Kion vi nun
 
 respondos al tio? Mi vidas, ke vi ne kapablas ion diri. Unue
 
@@ -7674,9 +6174,7 @@ vi estas ankoraŭ laca kaj nur kun peno povas spiri, due vi ne
 
 povas kutimiĝi al tio, kio okazis, por kulpigi kaj insultriproĉi
 
-min. Krome viaj larmo-kluzoj estas malfermitaj kaj ili trans-
-
-fluus, se vi parolus tro multe. Ankaŭ vi ne deziras fari al mi
+min. Krome viaj larmo-kluzoj estas malfermitaj kaj ili transfluus, se vi parolus tro multe. Ankaŭ vi ne deziras fari al mi
 
 riproĉojn, nek postuli klarigon aŭ fari scenon. Vi pensas pri
 
@@ -7690,9 +6188,7 @@ malfirma voĉo admonis min interrompi la frazon.
 
 ”Ne laŭ la senco de viaj vortoj, sed en miaj vi intencas
 
-neniigi min. Vi ja diris, ke mi estas edziĝinta viro — la edzi-
-
-ĝintan viron vi volas eviti, vi volas iri el lia vojo — vi ĵus rifu-
+neniigi min. Vi ja diris, ke mi estas edziĝinta viro — la edziĝintan viron vi volas eviti, vi volas iri el lia vojo — vi ĵus rifu-
 
 zis kisi min. Vi intencas fremdiĝi antaŭ mi; vivi en ĉi tiu domo
 
@@ -7715,9 +6211,6 @@ Mi penis firmigi mian voĉon por respondi:
 ankaŭ mi fariĝu alia persono — pri tio ne ekzistas dubo, kaj
 
 
-JANE EYRE
-
-
 por eviti ŝanceliĝadon de sentoj, por eviti daŭran bataladon
 
 de la rememoro de mia amo, troviĝas nur unu elirejo: —
@@ -7726,69 +6219,43 @@ Adèle devos havi alian guvernistinon.”
 
 ”Ho! Adèle iros al edukejo; tion mi jam decidis; ankaŭ mi
 
-ne intencas turmenti vin per la teruraj rememoroj al Thorn-
-
-field Hall — al tiu malbenita loko — al tiu tendo de Aąn —
+ne intencas turmenti vin per la teruraj rememoroj al Thornfield Hall — al tiu malbenita loko — al tiu tendo de Aąn —
 
 al tiu senhonta konstruaĵo, kiu montras al la ĉiela taglumo la
 
-abomenaĵon de vivanta mortinto — al tiu malvasta ŝtona in-
-
-fero kun sia vera diablo — kiu estas pli malbona ol legio da
+abomenaĵon de vivanta mortinto — al tiu malvasta ŝtona infero kun sia vera diablo — kiu estas pli malbona ol legio da
 
 tiaj, naskitaj de nia fantazio. — Jane, vi ne restos ĉi tie, nek mi.
 
 Malprave mi agis, venigi vin al Thornfield Hall, ĉar mi sciis,
 
-ke ĝi estas fantomvizitata. Longe antaŭ ol mi vidis vin, mi or-
+ke ĝi estas fantomvizitata. Longe antaŭ ol mi vidis vin, mi ordonis al ĉiu en la domo, zorge kaŝi antaŭ vi ĝian malbenon,
 
-donis al ĉiu en la domo, zorge kaŝi antaŭ vi ĝian malbenon,
-
-ĉar mi timis, ke neniam guvernistino volus resti ĉe Adèle sci-
-
-ante, kun kiu ŝi loĝos sub la sama tegmento. Kaj neniam mi
+ĉar mi timis, ke neniam guvernistino volus resti ĉe Adèle sciante, kun kiu ŝi loĝos sub la sama tegmento. Kaj neniam mi
 
 intencis konduki tiun frenezulinon al alia loko, kvankam mi
 
-posedas malnovan domon (Ferndean Manor), kiu estas anko-
+posedas malnovan domon (Ferndean Manor), kiu estas ankoraŭ pli kaŝita kaj pli izolita ol ĉi tiu, kaj kie mi povus kaŝi ŝin
 
-raŭ pli kaŝita kaj pli izolita ol ĉi tiu, kaj kie mi povus kaŝi ŝin
+ankoraŭ pli bone. Sed skrupuloj pro la malsaniga loko, kuŝanta en la mezo de densa arbaro, timigis mian konsciencon
 
-ankoraŭ pli bone. Sed skrupuloj pro la malsaniga loko, kuŝan-
+preni tiajn aranĝojn. Verŝajne la mucidaj muroj baldaŭ senigus min de la terura ŝarĝo; sed ĉiu krimulo havas sian specia-
 
-ta en la mezo de densa arbaro, timigis mian konsciencon
-
-preni tiajn aranĝojn. Verŝajne la mucidaj muroj baldaŭ seni-
-
-gus min de la terura ŝarĝo; sed ĉiu krimulo havas sian specia-
-
-lan krimon! Mia krimo ne emas peran mortigon, eĉ ne kon-
-
-traŭ tiu estaĵo, kiun mi tiel senlime malamas.”
+lan krimon! Mia krimo ne emas peran mortigon, eĉ ne kontraŭ tiu estaĵo, kiun mi tiel senlime malamas.”
 
 ”Kaŝi por vi la proksimecon de tiu frenezulino tamen estis
 
 tiel saĝe, kiel se oni kaŝus infanon per mantelo kaj metus ĝin
 
-apud upason; la proksimeco de ĉi tiu demono estas veneni-
-
-ta kaj ĉiam ĝi estis tia. Sed mi foriros el Thornfield Hall kaj
+apud upason; la proksimeco de ĉi tiu demono estas venenita kaj ĉiam ĝi estis tia. Sed mi foriros el Thornfield Hall kaj
 
 ŝlosos ĝin, mi najlfermos la grandan enirejon kaj la subajn
 
-fenestrojn mi plenigos per brikoj; al sinjorino Poole mi ĉiu-
-
-
-JANE EYRE
-
-
-jare donos ducent sterlingajn funtojn por vivi ĉi tie kun mia
+fenestrojn mi plenigos per brikoj; al sinjorino Poole mi ĉiujare donos ducent sterlingajn funtojn por vivi ĉi tie kun mia
 
 edzino, kiel vi nomas tiun abomenan virinaĉon. Por mono
 
-Grace faras multon, kaj havos ĉe si sian filon, la kampgar-
-
-diston de Grimsby-hejmo, por ke li loĝu kun ŝi kaj estu apu-
+Grace faras multon, kaj havos ĉe si sian filon, la kampgardiston de Grimsby-hejmo, por ke li loĝu kun ŝi kaj estu apu-
 
 de por protekti ŝin, kiam mian edzinon kaptos ŝiaj paroksismoj
 
@@ -7808,9 +6275,7 @@ terura — ĉu ŝi estas kulpa, ĉar ŝi estas freneza?”
 
 restos al mi) vi ne scias, kion vi diras; denove vi malbone
 
-juĝas min. Mi ne malamas ŝin, ĉar ŝi estas freneza. ĉu vi kre-
-
-das, ke mi malamus vin, se vi estus freneza?”
+juĝas min. Mi ne malamas ŝin, ĉar ŝi estas freneza. ĉu vi kredas, ke mi malamus vin, se vi estus freneza?”
 
 ”Tion vere mi kredas, sinjoro.”
 
@@ -7824,17 +6289,11 @@ en mizero, doloro kaj malsano. Via spirito estas mia trezoro
 
 — kaj se ĝi rompiĝus, ĝi malgraŭ tio restos mia trezoro; se vi
 
-delirus, miaj brakoj ĉirkaŭprenus vin, sed ne kiel frenezul-
+delirus, miaj brakoj ĉirkaŭprenus vin, sed ne kiel frenezuljako, kaj via tuŝo eĉ en frenezo estus al mi ĝuego. Se vi sovaĝe
 
-jako, kaj via tuŝo eĉ en frenezo estus al mi ĝuego. Se vi sovaĝe
+atakus min, kiel tion faris tiu virino hodiaŭ matene, mi ĉirkaŭbrakus vin kaj klopodus kvietigi vin per karesoj. Mi ne
 
-atakus min, kiel tion faris tiu virino hodiaŭ matene, mi ĉir-
-
-kaŭbrakus vin kaj klopodus kvietigi vin per karesoj. Mi ne
-
-forturnus min de vi kun naŭzo kiel de tiu virino; en viaj kvie-
-
-taj momentoj vi havus min kiel flegiston; mi prizorgus vin
+forturnus min de vi kun naŭzo kiel de tiu virino; en viaj kvietaj momentoj vi havus min kiel flegiston; mi prizorgus vin
 
 kun nelacigebla dediĉo, eĉ se vi ne dankus min per nur unu
 
@@ -7843,22 +6302,13 @@ rideto; neniam mi laciĝus, rigardi en viajn okulojn eĉ se neniu
 radio de rekono brilus al mi renkonte. — Sed kial paroli plue
 
 
-JANE EYRE
+pri tio? Mi ja diris, ke mi intencas forkonduki vin de Thornfield. Vi scias, ke ĉiuj preparoj de baldaŭa forvojaĝo jam estas
 
-
-pri tio? Mi ja diris, ke mi intencas forkonduki vin de Thorn-
-
-field. Vi scias, ke ĉiuj preparoj de baldaŭa forvojaĝo jam estas
-
-faritaj. Jam morgaŭ vi foriros. Mi petas vin, Jane, eltenu anko-
-
-raŭ unu nokton sub ĉi tiu tegmento; kaj poste finiĝu por ĉiam
+faritaj. Jam morgaŭ vi foriros. Mi petas vin, Jane, eltenu ankoraŭ unu nokton sub ĉi tiu tegmento; kaj poste finiĝu por ĉiam
 
 ĉiuj ĉi tiuj mizeroj kaj teruraĵoj! Mi konas lokon, kien ni povos
 
-iri, ĝi estas certa sanktejo kaj fortika rifuĝejo kontraŭ mal-
-
-amataj rememoraĵoj, ĝi protektos nntraŭ nebonvenaj
+iri, ĝi estas certa sanktejo kaj fortika rifuĝejo kontraŭ malamataj rememoraĵoj, ĝi protektos nntraŭ nebonvenaj
 
 vizitantoj — eĉ kontraŭ falsaĵo kaj kalumniado.”
 
@@ -7866,17 +6316,13 @@ vizitantoj — eĉ kontraŭ falsaĵo kaj kalumniado.”
 
 ”ŝi estos al vi bona akompanino.”
 
-”Kion per tio vi intencas diri, Jane? Mi ja diris, ke mi sen-
-
-dos Adèle al edukejo; pro kio mi bezonus infanon kiel akom-
+”Kion per tio vi intencas diri, Jane? Mi ja diris, ke mi sendos Adèle al edukejo; pro kio mi bezonus infanon kiel akom-
 
 paninon? Kaj eĉ ne mia propra infano ŝi estas, sed infano de
 
 franca dancistino. Kial do vi ŝarĝus min per ŝi? Ankoraŭ unu
 
-fojon mi demandas, kial vi donas al mi Adèle kiel akompani-
-
-non?”
+fojon mi demandas, kial vi donas al mi Adèle kiel akompaninon?”
 
 ”Vi parolis pri soleco, sinjoro, kaj soleco estas malĝoja —
 
@@ -7898,23 +6344,14 @@ iris tien kaj reen en la ĉambro, subite li restis staranta kvazaŭ
 
 najlita sur la loko. Li longe kaj fikse rigardis min. Mi deturnis
 
-de li miajn okulojn kaj direktis ilin al la fajro, klopodante kon-
+de li miajn okulojn kaj direktis ilin al la fajro, klopodante konservi kvietan sintenadon.
 
-servi kvietan sintenadon.
-
-”Jen la hoko en la karaktero de Jane,” li fine diris; li paro-
-
-lis pli kviete ol mi povus atendi laŭ liaj rigardoj. ”La silko-
-
-
-JANE EYRE
+”Jen la hoko en la karaktero de Jane,” li fine diris; li parolis pli kviete ol mi povus atendi laŭ liaj rigardoj. ”La silko-
 
 
 bobeno ĝis ĉi tie turniĝis senbrue kaj sen malhelpo; sed mi
 
-jam sciis, ke venos la nodo. Jen ĝi estas. Kaj nun venos ĉagre-
-
-no, senespero kaj senfina mizero! Je Dio! Mi sentas la deziron
+jam sciis, ke venos la nodo. Jen ĝi estas. Kaj nun venos ĉagreno, senespero kaj senfina mizero! Je Dio! Mi sentas la deziron
 
 uzi atomon de la fortoj de ŝimŝon por disŝiri la implikaĵon
 
@@ -7930,13 +6367,9 @@ kaj liaj lipoj tuŝis mian orelon. ”ĉar se vi ne estos tia, mi uzos
 
 perforton.”
 
-Lia voĉo estis raŭka. Lia esprimo estis de viro, kiu tuj dis-
+Lia voĉo estis raŭka. Lia esprimo estis de viro, kiu tuj disrompos nesufereblan katenon kaj kiu estis ĵetonta sin en
 
-rompos nesufereblan katenon kaj kiu estis ĵetonta sin en
-
-sovaĝan senbridecon. Mi komprenis tion tuj, kaj se lia kole-
-
-ro pligrandiĝus ankoraŭ je unu atomo, mi ne estas plu kapa-
+sovaĝan senbridecon. Mi komprenis tion tuj, kaj se lia kolero pligrandiĝus ankoraŭ je unu atomo, mi ne estas plu kapa-
 
 bla reteni lin. Tiu tuja momento — ĝi estis nur unu sekundo
 
@@ -7962,23 +6395,16 @@ volas ĉion aŭskulti, kion vi havos por diri, indiferente, ĉu ĝi
 
 estos saĝa aŭ malsaĝa.”
 
-Li sidiĝis, sed ne tuj ekparolis. Jam longe mi perforte rete-
-
-nis miajn larmojn sciante, ke li ne devos vidi min plori. Sed
+Li sidiĝis, sed ne tuj ekparolis. Jam longe mi perforte retenis miajn larmojn sciante, ke li ne devos vidi min plori. Sed
 
 nun mi opiniis, ke estas pli bone libere lasi ilin flui tiel longe,
-
-
-JANE EYRE
 
 
 kiel ili volus. Estus des pli bone, se ili ĉagrenus lin. Mi ne plu
 
 retenis ilin kaj laŭkordezire ploris.
 
-Baldaŭ mi aŭdis, ke li serioze petis min kvietiĝi. Mi respon-
-
-dis, ke mi ne povas, kiam li estas en tia kolero.
+Baldaŭ mi aŭdis, ke li serioze petis min kvietiĝi. Mi respondis, ke mi ne povas, kiam li estas en tia kolero.
 
 ”Sed mi ne estas en kolero, Jane. Mi nur tro multe vin amas
 
@@ -8008,9 +6434,7 @@ Tiuj paroloj tratranĉis mian koron. Sed kion mi povus?
 
 Eble mi devus diri aŭ fari tute nenion, sed mia konscienco
 
-riproĉis min, ke mi vundis lian senton, kaj mi ne povis kon-
-
-traŭstari la deziron eligi la sanigan balzamon sur lian vundi-
+riproĉis min, ke mi vundis lian senton, kaj mi ne povis kontraŭstari la deziron eligi la sanigan balzamon sur lian vundi-
 
 tan koron.
 
@@ -8020,9 +6444,7 @@ montri tiun senton, kaj por la lasta fojo mi konfesas tion al
 
 vi.”
 
-”Por la lasta fojo, Jane! Kion! ĉu vi kredas, ke vi povos ĉiu-
-
-tage vidi min kaj vivi ĉe mi kaj tamen povos resti malvarma
+”Por la lasta fojo, Jane! Kion! ĉu vi kredas, ke vi povos ĉiutage vidi min kaj vivi ĉe mi kaj tamen povos resti malvarma
 
 kaj kvazaŭ indiferenta?”
 
@@ -8033,9 +6455,6 @@ konas nur unu solan vojon. Sed vi ree koleriĝos, kiam mi
 nomos ĝin.”
 
 
-JANE EYRE
-
-
 ”Ho, nomu ĝin! Kiam mi bruas kaj koleras, tiam vi posedas
 
 la arton plori.”
@@ -8044,9 +6463,7 @@ la arton plori.”
 
 ”Kiom da tempo, Jane? Malmultajn minutojn por ordigi
 
-viajn harojn, kiuj malordiĝis aŭ por malvarmigi al vi la viza-
-
-ĝon, kiu febre ardas?”
+viajn harojn, kiuj malordiĝis aŭ por malvarmigi al vi la vizaĝon, kiu febre ardas?”
 
 ”Mi devas foriri de Adèle kaj de Thornfield. Mi devas por
 
@@ -8068,36 +6485,25 @@ tenos min je vi tiel longe kiel vi kaj mi vivos. Vi iros al bieno,
 
 kiun mi posedas en Sud-Francujo, ĝi estas amika, blanka
 
-kampodomo apud la bordo de la Meza Maro. Tie vi ĝuos feli-
-
-ĉan, protektitan kaj senkulpan vivon. Ne timu, ke mi povus
+kampodomo apud la bordo de la Meza Maro. Tie vi ĝuos feliĉan, protektitan kaj senkulpan vivon. Ne timu, ke mi povus
 
 delogi vin al peko — ke mi volus fari vin mia amatino! Kial vi
 
-kapneas? Jane, estu saĝa, alie la kolero vere min denove re-
-
-gos.”
+kapneas? Jane, estu saĝa, alie la kolero vere min denove regos.”
 
 Lia voĉo kaj lia mano tremis; liaj okuloj brilis; malgraŭ tio
 
 mi kuraĝis paroli.
 
-”Sinjoro, via edzino vivas; tio estas fakto, kiun en ĉi tiu ma-
-
-teno vi mem konfesis. Mi estus nur via amatino, se mi vivus
+”Sinjoro, via edzino vivas; tio estas fakto, kiun en ĉi tiu mateno vi mem konfesis. Mi estus nur via amatino, se mi vivus
 
 ĉe vi kiel vi deziras, — estas sofismo diri ion alian.
 
 ”Jane, mi ne estas dolĉanima viro — pri tio vi ne pensas.
 
-Mia pacienco ne estas granda. Mi ne havas malvarman, sen-
-
-pasian karakteron. Pro kompato al mi kaj al vi, metu vian
+Mia pacienco ne estas granda. Mi ne havas malvarman, senpasian karakteron. Pro kompato al mi kaj al vi, metu vian
 
 manon sur mian pulson, sentu kiel ĝi batas kaj — gardu vin!”
-
-
-JANE EYRE
 
 
 Li nudigis la manartikon kaj etendis ĝin al mi, la sango
@@ -8112,9 +6518,7 @@ Tamen cedi al li estis io neebla. Mi faris, kion ĉiu homo
 
 instinkte faras, kiam li estas pelita ĝis ekstremo — petante
 
-helpon mi suprenrigardis al tiu, kiu helpas, kiam homa hel-
-
-po estas vana: la paroloj ”Dio helpu al mi!” eliris senkonscie
+helpon mi suprenrigardis al tiu, kiu helpas, kiam homa helpo estas vana: la paroloj ”Dio helpu al mi!” eliris senkonscie
 
 el inter miaj lipoj.
 
@@ -8122,9 +6526,7 @@ el inter miaj lipoj.
 
 ripete certigas al ŝi, ke mi ne estas edziĝinta, sed ne klarigas
 
-la tialon. Mi ne pensis pri tio, ke ŝi scias nenion pri la karak-
-
-tero de tiu virino, nek pri la cirkonstancoj, kiuj akompanis
+la tialon. Mi ne pensis pri tio, ke ŝi scias nenion pri la karaktero de tiu virino, nek pri la cirkonstancoj, kiuj akompanis
 
 nian unuiĝon. Ho, mi estas certa, ke Jane samopinios kun mi,
 
@@ -8152,23 +6554,13 @@ viro?”
 
 ”Mi aŭdis ion pri tio.”
 
-”Kaj, Jane, ĉar tio estis vera, li decidis teni kunigitaj pose-
-
-daĵon kaj financojn; li ne povis elteni la penson dispartigi
+”Kaj, Jane, ĉar tio estis vera, li decidis teni kunigitaj posedaĵon kaj financojn; li ne povis elteni la penson dispartigi
 
 siajn havaĵojn kaj doni al mi belan parton. Li decidis, ke mia
 
-frato Roland ricevu ĉion. Sed ankaŭ li ne povis elteni la pen-
+frato Roland ricevu ĉion. Sed ankaŭ li ne povis elteni la penson, ke unu el liaj filoj estos malriĉulo. Por mi li zorgos pere
 
-
-JANE EYRE
-
-
-son, ke unu el liaj filoj estos malriĉulo. Por mi li zorgos pere
-
-de riĉa edzino. Sinjoro Mason, riĉa komercisto kaj posedan-
-
-to de plantejo en Okcidenta Hindio estis lia delonga amiko.
+de riĉa edzino. Sinjoro Mason, riĉa komercisto kaj posedanto de plantejo en Okcidenta Hindio estis lia delonga amiko.
 
 Li estis certa pri tio, ke liaj posedaĵoj estas grandaj kaj realaj.
 
@@ -8182,13 +6574,9 @@ sufiĉis. Kiam mi forlasis la universitaton, mi estis sendita al
 
 Jamajko por edzinigi la jam por mi elektitan fianĉinon. Mia
 
-patro diris nenion pri ŝia posedaĵo, sed li diris al mi, ke fraŭ-
+patro diris nenion pri ŝia posedaĵo, sed li diris al mi, ke fraŭlino Mason pro siaj beleco kaj fiereco estas la fanfarono de
 
-lino Mason pro siaj beleco kaj fiereco estas la fanfarono de
-
-tuta Spanish Town. Tio ne estis mensogo. Mi trovis ŝin bel-
-
-ulino — laŭ la stilo de Blanche Ingram: svelta, malhela, maje-
+tuta Spanish Town. Tio ne estis mensogo. Mi trovis ŝin belulino — laŭ la stilo de Blanche Ingram: svelta, malhela, maje-
 
 sta. ŝiaj parencoj deziris nian geedziĝon, ĉar mi estis de bona
 
@@ -8200,13 +6588,9 @@ preskaŭ neniam mi interparolis kun ŝi private. ŝi flatis min
 
 kaj montris al mi ĉiujn siajn belecon, konon kaj talentojn. ĉiuj
 
-viroj en ŝia rondo ŝajnis admiri ŝin kaj envii min. Mi estis kva-
+viroj en ŝia rondo ŝajnis admiri ŝin kaj envii min. Mi estis kvazaŭ blindigita, plena de kuraĝo; miaj sentoj estis ekscititaj kaj
 
-zaŭ blindigita, plena de kuraĝo; miaj sentoj estis ekscititaj kaj
-
-estante juna, nesperta, mi kredis ami ŝin. Ne ekzistas mal-
-
-saĝeco, kiel ajn granda, al kiu juna viro en siaj trorapideco kaj
+estante juna, nesperta, mi kredis ami ŝin. Ne ekzistas malsaĝeco, kiel ajn granda, al kiu juna viro en siaj trorapideco kaj
 
 tro granda fervoro ne povas esti instigata pro la konkurado
 
@@ -8225,14 +6609,9 @@ neniam mi konis ŝin. Mi ne estis certa pri la ekzisto de nur
 unu virto en ŝia karaktero; mi rimarkis nek modestecon, nek
 
 
-JANE EYRE
-
-
 bonkorecon, nek malkaŝemon, nek purecon de animo aŭ de
 
-konduto — malgraŭ ĉio tio mi: blinda, kruda, mallerta stul-
-
-tulo edziĝis kun ŝi! Kun pli malgranda peko mi povus — sed
+konduto — malgraŭ ĉio tio mi: blinda, kruda, mallerta stultulo edziĝis kun ŝi! Kun pli malgranda peko mi povus — sed
 
 mi rememoru, al kiu mi parolas.
 
@@ -8262,13 +6641,9 @@ Tiuj malkovroj estis teruraj, sed nur al mia edzino mi faris
 
 riproĉojn pri tiuj perfidaj kaŝoj, al neniu alia, eĉ ne tiam, kiam
 
-mi eksciis, ke ŝia karaktero estas tute kontraŭa al mia, ŝia ani-
+mi eksciis, ke ŝia karaktero estas tute kontraŭa al mia, ŝia animo estas malnobla, malvasta, kaj tute malkapabla okupiĝi pri
 
-mo estas malnobla, malvasta, kaj tute malkapabla okupiĝi pri
-
-pli altaj aferoj, — mi eĉ ne faris al ŝi riproĉojn kiam mi sper-
-
-tis, ke mi ne povas agrable kaj kviete pasigi kun ŝi unu solan
+pli altaj aferoj, — mi eĉ ne faris al ŝi riproĉojn kiam mi spertis, ke mi ne povas agrable kaj kviete pasigi kun ŝi unu solan
 
 vesperon, eĉ ne unu solan horon, ke amika interparolo kun
 
@@ -8287,16 +6662,11 @@ mi regis mntraŭ ŝi! Mi evitis ĉiujn riproĉojn, mi faris nur
 malfortajn kontraŭ-proponojn; mi klopodis sekrete venki
 
 
-JANE EYRE
-
-
 mian ĉagrenon kaj subpremis la profundan antipation, kiun
 
 mi sentis.
 
-Jane, mi ne volas turmenti vin per abomenaj detaloj. Kel-
-
-kaj fortaj vortoj esprimos, kion mi havas por diri. Kun tiu vi-
+Jane, mi ne volas turmenti vin per abomenaj detaloj. Kelkaj fortaj vortoj esprimos, kion mi havas por diri. Kun tiu vi-
 
 rino mi vivis kvar jarojn, kaj antaŭ la paso de tiu tempo ŝi
 
@@ -8306,17 +6676,11 @@ kun teruriga rapideco; ŝiaj malvirtoj tiel plimultiĝis, ke nur
 
 krueleco povus rompi ilin, sed kruelecon mi ne volis uzi. Kiel
 
-malgranda estis ŝia prudento, kaj kiel gigantaj estis ŝiaj ma-
+malgranda estis ŝia prudento, kaj kiel gigantaj estis ŝiaj malicaj inklinoj. Kiel terura estis la malbeno, kiun tiuj inklinoj
 
-licaj inklinoj. Kiel terura estis la malbeno, kiun tiuj inklinoj
+kaŭzis al mi! Bertha Mason — la vera, inda filino de abomena patrino — trenis min tra ĉiuj senhonorigantaj kaj teruraj
 
-kaŭzis al mi! Bertha Mason — la vera, inda filino de abome-
-
-na patrino — trenis min tra ĉiuj senhonorigantaj kaj teruraj
-
-bataloj, kiujn viro devas travivi, alligita al virino, kiu samtem-
-
-pe estis malĉasta kaj — sin donis al drinkado.
+bataloj, kiujn viro devas travivi, alligita al virino, kiu samtempe estis malĉasta kaj — sin donis al drinkado.
 
 Intertempe mia frato estis mortinta; kaj post paso de kvar
 
@@ -8330,9 +6694,7 @@ kaj ne nur la societo, sed ankaŭ la leĝo nomis ŝin parto de mi
 
 mem. Kaj neniu leĝo povis senigi min de ŝi, ĉar la kuracistoj
 
-malkovris, ke mia edzino estas freneza. ŝiaj ekscesoj maturi-
-
-gis antaŭtempe la ĝermojn de ŝia frenezeco. Jane, mi vidas, ke
+malkovris, ke mia edzino estas freneza. ŝiaj ekscesoj maturigis antaŭtempe la ĝermojn de ŝia frenezeco. Jane, mi vidas, ke
 
 mia rakonto ne plaĉas al vi; vi aspektas malsana — ĉu mi
 
@@ -8351,9 +6713,6 @@ estas egoista doloro, sentata dum oni aŭskultas la dolorojn de
 aliuloj, ĝi estas doloro je kiu oni sentas malsaĝan malestimon
 
 
-JANE EYRE
-
-
 por tiuj, kiuj suferis ilin. Sed tia ne estas via kompato, Jane. i
 
 ne estas la sento, kiu en ĉi tiu momento tiel klare respeguliĝas
@@ -8364,9 +6723,7 @@ rapide vian koron, kaj kiu tremigas vian manon en mia. Via
 
 kompato, mia karulino, estas la suferanta patrino de la amo.
 
-ia doloro eĉ estas la naskdoloro de la dia pasio. Mi akcep-
-
-tas ĝin, Jane; tiu idino, la amo, venu — miaj brakoj estas eten-
+ia doloro eĉ estas la naskdoloro de la dia pasio. Mi akceptas ĝin, Jane; tiu idino, la amo, venu — miaj brakoj estas eten-
 
 ditaj por ricevi ŝin.”
 
@@ -8376,13 +6733,9 @@ estas freneza?”
 
 ”Jane, mi estis freneziĝonta. Inter tiu stato kaj mi estis nur
 
-peceto da memestimo. Laŭ la opinio de la homoj mi estis ver-
+peceto da memestimo. Laŭ la opinio de la homoj mi estis verŝajne senhonorigita; sed mi decidis resti ĉasta laŭ mia propra
 
-ŝajne senhonorigita; sed mi decidis resti ĉasta laŭ mia propra
-
-opinio — kaj ĝis la ekstremo mi luktis kontraŭ la morala mal-
-
-purigo kaj ĝiaj krimoj. Malgraŭ tio la societo kunligis ŝian
+opinio — kaj ĝis la ekstremo mi luktis kontraŭ la morala malpurigo kaj ĝiaj krimoj. Malgraŭ tio la societo kunligis ŝian
 
 nomon al mia, mian personon al ŝia. Mi vidis kaj aŭdis ŝin
 
@@ -8390,13 +6743,9 @@ nomon al mia, mian personon al ŝia. Mi vidis kaj aŭdis ŝin
 
 krom tio mi rememorigis al mi konstante, ke iam mi estis ŝia
 
-edzo — tiu rememoro estis tiam kaj estas ankoraŭ nun nedi-
+edzo — tiu rememoro estis tiam kaj estas ankoraŭ nun nedireble abomena al mi. Plue — mi sciis, ke dum ŝia vivo, mi
 
-reble abomena al mi. Plue — mi sciis, ke dum ŝia vivo, mi
-
-neniam povos estiĝi edzo de alia kaj pli bona virino; kaj kvan-
-
-kam ŝi estis kvin jarojn pli aĝa ol mi (ŝia familio kaj mia patro
+neniam povos estiĝi edzo de alia kaj pli bona virino; kaj kvankam ŝi estis kvin jarojn pli aĝa ol mi (ŝia familio kaj mia patro
 
 rilate al tio estis trompinta min) estis tamen verŝajne, ke ŝi
 
@@ -8412,13 +6761,7 @@ estis enŝlosita — tio okazis en varmega nokto en Okcidenta
 
 Hindio; unu el tiuj noktoj, kiuj ofte antaŭiras la ventegojn en
 
-tiu regiono. ĉar estis al mi neeble resti enlite, mi estis levi-
-
-
-JANE EYRE
-
-
-ĝinta kaj malferminta la fenestron. La aero ŝajnis esti sulfur-
+tiu regiono. ĉar estis al mi neeble resti enlite, mi estis leviĝinta kaj malferminta la fenestron. La aero ŝajnis esti sulfur-
 
 vaporoj — nenie estis troveblaj refreŝigo aŭ malvarmigo.
 
@@ -8434,31 +6777,21 @@ kanonkuglo — ĝi ĵetis sian lastan sangruĝan rigardon sur la
 
 teron, kiu tremis sub la bruado de la ventego. Tiu bildo kaj la
 
-atmosfero influis min fizike, kaj en miaj oreloj sonis la furi-
-
-ozaj kriadoj, kiujn seninterrompe eligis la frenezulino. ŝi ble-
+atmosfero influis min fizike, kaj en miaj oreloj sonis la furiozaj kriadoj, kiujn seninterrompe eligis la frenezulino. ŝi ble-
 
 kekkriis mian nomon en demona malamo, aldonante terurajn
 
 insultojn! La degenerinta virino eligis vortojn pli malpurajn
 
-ol profesia malĉastulino iam uzis. Kvankam du ĉambroj apar-
-
-tigis ŝin de mi, la maldikaj muroj de la domo ne povis sufiĉe
+ol profesia malĉastulino iam uzis. Kvankam du ĉambroj apartigis ŝin de mi, la maldikaj muroj de la domo ne povis sufiĉe
 
 obtuzigi la sovaĝajn kriojn, kiuj penetris al mi.
 
-Fine mi diris: — ĉi tiu vivo estas infero! ĉi tie min turmen-
+Fine mi diris: — ĉi tiu vivo estas infero! ĉi tie min turmentas ĝia aero, tie fartas la bruado de senfunda profundo! Mi
 
-tas ĝia aero, tie fartas la bruado de senfunda profundo! Mi
+havas la rajton liberigi min de ĝi, kiam mi povos. La turmentoj de ĉi tiu vivo malproksimiĝos de mi kun la tera karno, kiu
 
-havas la rajton liberigi min de ĝi, kiam mi povos. La turmen-
-
-toj de ĉi tiu vivo malproksimiĝos de mi kun la tera karno, kiu
-
-nun premas mian animon. Mi ne sentas timon antaŭ la pur-
-
-gatorio de la fanatikulo; — neniu estonta stato povas esti pli
+nun premas mian animon. Mi ne sentas timon antaŭ la purgatorio de la fanatikulo; — neniu estonta stato povas esti pli
 
 terura ol la nuna — mi volas for de ĉi tie — mi volas rehejmiĝi
 
@@ -8466,31 +6799,20 @@ al Dio!”
 
 Dirante tion mi genuiĝis kaj malfermis kofron, en kiu kuŝis
 
-du sargitaj pistoloj. Mi intencis pafmortigi min. Nur unu mo-
-
-menton mi havis tiun intencon; ĉar pro tio, ke mi ne estis fre-
+du sargitaj pistoloj. Mi intencis pafmortigi min. Nur unu momenton mi havis tiun intencon; ĉar pro tio, ke mi ne estis fre-
 
 neza, tiu krizo de la ekstrema, vera senespero, kiu naskis la
 
-deziron kaj la intencon pri memmortigo, pasis en unu sekun-
-
-do.
+deziron kaj la intencon pri memmortigo, pasis en unu sekundo.
 
 Freŝa vento de Eŭropo venis trans la oceanon kaj penetris
 
 
-JANE EYRE
-
-
 en mian ĉambron. La uragano eksplodis, la pluvego rivere
 
-malsupren falis; tondris, fulmis — kaj la aero fariĝis pura. Su-
+malsupren falis; tondris, fulmis — kaj la aero fariĝis pura. Subite min ekregis firma decido. Irante tien kaj reen sub la
 
-bite min ekregis firma decido. Irante tien kaj reen sub la
-
-gutegantaj oranĝarboj en mia malseka ĝardeno, inter la gra-
-
-natoj kaj ananasoj, dum la brilanta tago de la tropiklando
+gutegantaj oranĝarboj en mia malseka ĝardeno, inter la granatoj kaj ananasoj, dum la brilanta tago de la tropiklando
 
 komenciĝis — mi pensis jene, Jane — kaj nun aŭskultu min,
 
@@ -8498,9 +6820,7 @@ komenciĝis — mi pensis jene, Jane — kaj nun aŭskultu min,
 
 montris al mi la rektan irotan vojon.
 
-La dolĉa vento de Eŭropo flustre blovis ankoraŭ en la freŝi-
-
-gita foliaro; mia koro, kiu estis velkinta longan tempon, ŝve-
+La dolĉa vento de Eŭropo flustre blovis ankoraŭ en la freŝigita foliaro; mia koro, kiu estis velkinta longan tempon, ŝve-
 
 lis pro tiuj tonoj, freŝa, viva sango denove batigis ĝin — mia
 
@@ -8534,31 +6854,18 @@ longe malbone uzis vian paciencon — malpurigis vian nomon
 
 virino ne estas via edzino; vi ne estas ŝia edzo. Faru vian
 
-eblon, ke ŝi estu flegata kaj gardata kiel tion postulas ŝia cir-
+eblon, ke ŝi estu flegata kaj gardata kiel tion postulas ŝia cirkonstanco, — kaj vi faris ĉion, kion Dio kaj homa devo postu-
 
-konstanco, — kaj vi faris ĉion, kion Dio kaj homa devo postu-
-
-las de vi. Enterigu ŝian identecon, vian geedziĝon en la for-
-
-gesemon. Nenio devigas vnfidi al kiu ajn tiun lastan.
+las de vi. Enterigu ŝian identecon, vian geedziĝon en la forgesemon. Nenio devigas vnfidi al kiu ajn tiun lastan.
 
 
-JANE EYRE
-
-
-Donu al ŝi komforton kaj sendanĝerecon; ĉirkaŭu ŝian dege-
-
-neradon per vualo de mistero — kaj forlasu ŝin.’
+Donu al ŝi komforton kaj sendanĝerecon; ĉirkaŭu ŝian degeneradon per vualo de mistero — kaj forlasu ŝin.’
 
 Laŭ tiu inspiro mi akurate agis. Mia patro kaj mia frato ne
 
-sciigis al siaj konatoj pri mia edziĝo; ĉar jam en mia unua lete-
+sciigis al siaj konatoj pri mia edziĝo; ĉar jam en mia unua letero mi skribis al ili pri mia edziĝo, ĉar jam tiam mi komencis
 
-ro mi skribis al ili pri mia edziĝo, ĉar jam tiam mi komencis
-
-senti la teruran antipation kontraŭ iliaj konsekvencoj; kaj vid-
-
-ante antaŭ mi abomenan estontecon pro la karaktero kaj la
+senti la teruran antipation kontraŭ iliaj konsekvencoj; kaj vidante antaŭ mi abomenan estontecon pro la karaktero kaj la
 
 sanstato de la familio, mi aldonis la plej severan ordonon, ke
 
@@ -8584,9 +6891,7 @@ besto — la ĉelo de demono. Multan penon mi havis trovi por
 
 ŝi flegistinon, ĉar estis necese elekti tian, je kies fideleco mi
 
-povus kalkuli; ĉar en siaj frenezatakoj ŝi perfidus mian sekre-
-
-ton; krome ŝi kelkfoje dum multaj tagoj havas klarajn mo-
+povus kalkuli; ĉar en siaj frenezatakoj ŝi perfidus mian sekreton; krome ŝi kelkfoje dum multaj tagoj havas klarajn mo-
 
 mentojn, kiujn ŝi pasigas eligante pri mi la plej grandajn
 
@@ -8596,31 +6901,20 @@ de Grimsby. ŝi kaj la kirurgo Carter, kiu tiun vesperon, kiam
 
 Mason estis vundita, bandaĝis lian brakon, estas la solaj du
 
-homoj, al kiuj mi iam konfidis mian sekreton. Sinjorino Fair-
+homoj, al kiuj mi iam konfidis mian sekreton. Sinjorino Fairfax eble konjektis ion, sed precizan konon pri la faktoj ŝi ne
 
-fax eble konjektis ion, sed precizan konon pri la faktoj ŝi ne
-
-povas havi. Grace entute montriĝis esti lerta gardistino, kvan-
-
-kam ŝia gardemo pro manko, kiun mi ne povas plibonigi kaj
+povas havi. Grace entute montriĝis esti lerta gardistino, kvankam ŝia gardemo pro manko, kiun mi ne povas plibonigi kaj
 
 kiu devenas de ŝia laciga ofico, pli ol unu fojon ekdormis. La
-
-
-JANE EYRE
 
 
 frenezulino estas ruza kaj malica; neniam ŝi preterlasis uzi la
 
 maloftajn senzorgecojn de sia gardistino kaj laŭ sia maniero
 
-utiligi ilin al si. Unu fojon ŝi kapfis tranĉilon per kiu ŝi vun-
+utiligi ilin al si. Unu fojon ŝi kapfis tranĉilon per kiu ŝi vundis sian fraton, kaj du fojojn ŝi prenis la ŝlosilon de sia ĉelo
 
-dis sian fraton, kaj du fojojn ŝi prenis la ŝlosilon de sia ĉelo
-
-por forkuri en la nokto. En la unua okazo ŝi klopodis forbru-
-
-ligi min en mia lito, en la dua ŝi tiel fantome vizitis vin. Al la
+por forkuri en la nokto. En la unua okazo ŝi klopodis forbruligi min en mia lito, en la dua ŝi tiel fantome vizitis vin. Al la
 
 providenco, kiu gardis vin, mi dankas, ke ŝi en sia furiozeco
 
@@ -8628,9 +6922,7 @@ kontentigis sian koleron disŝiri nur viajn edziĝvestojn; eble ili
 
 memorigis ŝin pri ŝia propra edziniĝa tago. Sed mi ne kuraĝas
 
-pensi, kio eble povus okazi. Mia sango ekbolas, kiam mi pen-
-
-sas, kiel tiu vampiro hodiaŭ matene sin ĵetis al mi por sufoki
+pensi, kio eble povus okazi. Mia sango ekbolas, kiam mi pensas, kiel tiu vampiro hodiaŭ matene sin ĵetis al mi por sufoki
 
 min, mi tremas, kiam mi imagas, ke ŝia nigreblua, skarlata
 
@@ -8671,14 +6963,9 @@ malgraŭ la malbeno, kiu ŝarĝkuŝis sur mi.”
 ”ĉiam mi devas ridi, Jane, kiam vi estiĝas scivola. Vi tiam
 
 
-JANE EYRE
-
-
 levas la okulojn kiel timigita birdo kaj de tempo al tempo
 
-faras senripozan movon. Estas kvazaŭ la respondoj kaj klari-
-
-goj ne venas sufiĉe rapide kaj kvazaŭ vi volas rigardi en la plej
+faras senripozan movon. Estas kvazaŭ la respondoj kaj klarigoj ne venas sufiĉe rapide kaj kvazaŭ vi volas rigardi en la plej
 
 profundan lokon de mia koro. Sed antaŭ ol mi parolos plie,
 
@@ -8694,29 +6981,21 @@ Kiujn sekvojn havis tiu faro?”
 
 ”uste! Kaj kion vi nun dezirus scii.”
 
-”ĉu vi iun trovis, kiun vi amis? ĉu vi deziris ŝin kiel edzi-
-
-non, kaj kion ŝi diris.”
+”ĉu vi iun trovis, kiun vi amis? ĉu vi deziris ŝin kiel edzinon, kaj kion ŝi diris.”
 
 ”Mi povas diri, ĉu mi trovis iun, kiun mi amis kaj ĉu mi
 
 petis, ŝin, edziniĝi kun mi — sed kion ŝi respondis — tion
 
-instruos la estonteco! Dek jarojn mi ĉien vagadis, jen mi vi-
+instruos la estonteco! Dek jarojn mi ĉien vagadis, jen mi vivis en ĉefurbo, jen en alia; kelkfoje ankaŭ en Sankta Peters-
 
-vis en ĉefurbo, jen en alia; kelkfoje ankaŭ en Sankta Peters-
-
-burgo, sed pli ofte en Parizo; okaze en Romo, Napolo kaj Flo-
-
-renco. Posedante abundon da mono kaj krom tio malnovan
+burgo, sed pli ofte en Parizo; okaze en Romo, Napolo kaj Florenco. Posedante abundon da mono kaj krom tio malnovan
 
 nomon, kiu efikis kiel ”Sezamo malfermiĝu!” mi povis elekti
 
 mian societon, kaj neniu estis por mi fermita. Mi serĉis mian
 
-idealon de edzino inter anglaj nobelinoj, francaj grafinoj, ita-
-
-laj kaj germanaj baroninoj, sed mi ne trovis mian idealon.
+idealon de edzino inter anglaj nobelinoj, francaj grafinoj, italaj kaj germanaj baroninoj, sed mi ne trovis mian idealon.
 
 Kelkfoje, dum rapida momento mi kredis vidi rigardon, aŭdi
 
@@ -8735,12 +7014,7 @@ nur la malon de la kreolino. Kaj inter ili ĉiuj mi trovis ne unu
 ĉar mi antaŭe spertis la danĝeron, la teruron, la malbenon de
 
 
-JANE EYRE
-
-
-malbona geedziĝo. La seniluziigoj igis min sovaĝa kaj senri-
-
-poza. Mi klopodis per distradoj — sed neniam per diboĉadoj
+malbona geedziĝo. La seniluziigoj igis min sovaĝa kaj senripoza. Mi klopodis per distradoj — sed neniam per diboĉadoj
 
 — ĉar tion mi ĉiam malamis kaj ankoraŭ nun malamas. Nur
 
@@ -8752,25 +7026,19 @@ sentis antaŭ tio kaj antaŭ ŝi, retenis min de multaj amuzaĵoj.
 
 kvazaŭ ĝi malaltigas min al ŝiaj vicoj kaj tial mi evitis ĝin.
 
-Sed sola mi ne povis vivi; tial mi serĉis la societon de ama-
-
-tinoj. La unuan, kiun mi elektis, estis Céline Varens — tio estis
+Sed sola mi ne povis vivi; tial mi serĉis la societon de amatinoj. La unuan, kiun mi elektis, estis Céline Varens — tio estis
 
 faro, kiu plenigas min kun memmalestimo, kiam mi repensas
 
 pri ĝi. Vi ja scias, kio ŝi estis kaj kiel finiĝis nia kunvivado. ŝi
 
-havis du posteulinojn, nome italinon, Giacinta kaj germani-
-
-non, Klara; ambaŭ estis eksterordinare belaj. Sed kio estis al
+havis du posteulinojn, nome italinon, Giacinta kaj germaninon, Klara; ambaŭ estis eksterordinare belaj. Sed kio estis al
 
 mi tiu beleco post paso de malmultaj semajnoj? Giacinta estis
 
 senpripensa, facilanima — post tri monatoj ŝi tedis min. Klara
 
-estis honesta kaj kvieta; sed mallerta, senanima kaj mal-
-
-varmkora. ŝi tute ne estis laŭ mia plaĉo. Mi tre ĝojis, ke mi
+estis honesta kaj kvieta; sed mallerta, senanima kaj malvarmkora. ŝi tute ne estis laŭ mia plaĉo. Mi tre ĝojis, ke mi
 
 povis doni al ŝi sufiĉe grandan monsumon, per kiu ŝi fondis
 
@@ -8780,9 +7048,7 @@ deca maniero.
 
 Sed Jane, mi vidas sur via vizaĝo, ke vi en la lasta momento
 
-ne havas tre favoran opinion pri mi. Vi rigardas min kiel sen-
-
-sentan, facilaniman friponon — ĉu ne vere?”
+ne havas tre favoran opinion pri mi. Vi rigardas min kiel sensentan, facilaniman friponon — ĉu ne vere?”
 
 ”Vi estas prava, sinjoro, mia opinio pri vi ne estas plu tiel
 
@@ -8790,21 +7056,14 @@ bona, kiel ĝi iam estis. ĉu vi mem ne devas mallaŭdi, ke vi
 
 vivis en tia maniero unue kun amatino kaj poste kun alia? Vi
 
-parolas pri tio, kvazaŭ tio estus la plej natura afero en la mon-
-
-do.”
+parolas pri tio, kvazaŭ tio estus la plej natura afero en la mondo.”
 
 ”Por mi ĝi estis ankaŭ tia. Sed mi abomenas tian vivon. Tiu
 
 vivmaniero estis malnobla kaj estus al mi neeble rekomenci
 
 
-JANE EYRE
-
-
-ĝin. Elekti amatinon estas proksimume same kiel aĉeti skla-
-
-von; pri karaktero ambaŭ estas malsupera al viro kaj vivi kun
+ĝin. Elekti amatinon estas proksimume same kiel aĉeti sklavon; pri karaktero ambaŭ estas malsupera al viro kaj vivi kun
 
 malsuperulo en familiara maniero estas humilige. Mi nun eĉ
 
@@ -8826,23 +7085,17 @@ kun la samaj sentoj, kiuj nun la rememoron al ili profanis en
 
 lia spirito. Sed tiun konvn mi ne eldiris. Sufiĉis senti ĝin.
 
-Mi gravuris ĝin en mian koron, por ke ĝi restu tie ĝis la tem-
-
-po, kiam ĝi en la horo de la delogo povu protekti min.
+Mi gravuris ĝin en mian koron, por ke ĝi restu tie ĝis la tempo, kiam ĝi en la horo de la delogo povu protekti min.
 
 ”Nu Jane, kial do vi ne rediras ’Kaj nun sinjoro?’ ĉar mi
 
 ankoraŭ ne finis. Vi aspektas tiel gravmiena. Mi vidis, ke vi
 
-ankoraŭ ĉiam malaprobas mian agmanieron. Sed mi rakon-
-
-tu la ĉefan parton. Pasintan januaron gravaj aferoj revokis
+ankoraŭ ĉiam malaprobas mian agmanieron. Sed mi rakontu la ĉefan parton. Pasintan januaron gravaj aferoj revokis
 
 min al Anglujo, mi estis senigita de ĉiuj amatinoj kaj sentis la
 
-plej amaran agordon en mia koro, tio estis la rezulto de sen-
-
-utila, vagada, soleca vivo. Mi estis seniluziiĝinta kaj sentis
+plej amaran agordon en mia koro, tio estis la rezulto de senutila, vagada, soleca vivo. Mi estis seniluziiĝinta kaj sentis
 
 antipation kontraŭ ĉiuj homoj precipe kontraŭ la virina
 
@@ -8850,9 +7103,7 @@ sekso, ĉar mi komencis kredi, ke la bildo de prudenta, fidela,
 
 amanta virino estas nur bildo de sonĝo.
 
-En frosta vintra posttagmezo Thornfield Hall denove ape-
-
-ris antaŭ miaj rigardoj. Malamata loko! Mi tie ne atendis
+En frosta vintra posttagmezo Thornfield Hall denove aperis antaŭ miaj rigardoj. Malamata loko! Mi tie ne atendis
 
 pacon — nek ĝojon. Sur plektobarilo en Hay Lane mi vidis
 
@@ -8861,9 +7112,6 @@ malgrandan solecan figuron, kiu estis tie tute sola sidanta. Mi
 preterrajdis ŝin — tiel neatente, kiel la sensupraĵigitan salikon
 
 ĉe la alia vojflanko. Neniun antaŭsenton mi havis pri tio, kio
-
-
-JANE EYRE
 
 
 ŝi iam estos al mi; nenio diris al mi, ke la arbitracia juĝistino
@@ -8886,31 +7134,21 @@ persisteco kaj en parolo kaj rigardo sin kaŝis pripenso! Mi
 
 devis akcepti helpon de ĝia mano. Kaj ĝi helpis al mi!
 
-Kiam mi estis apoginta min al la malforta ŝultro, min ek-
-
-regis io nova — nekonata sento atakis min — alia sango flu-
+Kiam mi estis apoginta min al la malforta ŝultro, min ekregis io nova — nekonata sento atakis min — alia sango flu-
 
 is tra miaj vejnoj. Estis bone, ke mi eksciis, ke tiu elfo reiros
 
-al mi — ke ĝi apartenas al mia hejmo — alie mi ne estus to-
-
-lerinta, ke ĝi foriru de mi, ke ĝi kviete kaj rapide malaperu
+al mi — ke ĝi apartenas al mia hejmo — alie mi ne estus tolerinta, ke ĝi foriru de mi, ke ĝi kviete kaj rapide malaperu
 
 post tiu dika plektobarilo.
 
 Tiun vesperon mi aŭdis vin enveni en mian domon, Jane;
 
-kvankam vi verŝajne ne sciis, ke mi pensis al vi kaj vin aten-
+kvankam vi verŝajne ne sciis, ke mi pensis al vi kaj vin atendis. En la sekvinta tago mi ekzamene rigardis vin — eĉ ne-
 
-dis. En la sekvinta tago mi ekzamene rigardis vin — eĉ ne-
+vidate — kiam vi dum duona horo ludis kun Adèle en la galerio. Mi memoras tion ankoraŭ, la tago estis neĝa, kaj vi ne
 
-vidate — kiam vi dum duona horo ludis kun Adèle en la gale-
-
-rio. Mi memoras tion ankoraŭ, la tago estis neĝa, kaj vi ne
-
-povis iri eksteren. Mi estis en mia ĉambro, la pordo estis duo-
-
-ne malfermita, mi povis aŭdi kaj vidi vin. Adèle okupis vian
+povis iri eksteren. Mi estis en mia ĉambro, la pordo estis duone malfermita, mi povis aŭdi kaj vidi vin. Adèle okupis vian
 
 tutan atenton, sed malgraŭ tio mi imagis, ke viaj pensoj estas
 
@@ -8920,87 +7158,55 @@ amuzis ŝin kaj interparolis kun ŝi. Kiam fine ŝi foriris, vi tuj
 
 dronis en pensoj, en profundaj meditadoj; malrapide vi iris
 
-tien kaj reen en la galerio. Tie kaj aliloke vi elrigardis ekste-
-
-ren tra fenestro al la seninterrompe falanta neĝo; vi aŭskul-
+tien kaj reen en la galerio. Tie kaj aliloke vi elrigardis eksteren tra fenestro al la seninterrompe falanta neĝo; vi aŭskul-
 
 
-JANE EYRE
-
-
-tis la muĝantan venton kaj denove vi iris tien kaj reen en pro-
-
-funda meditado.
+tis la muĝantan venton kaj denove vi iris tien kaj reen en profunda meditado.
 
 Mi kredas, ke tiuj viglaj meditadoj ne estis malĝojaj, tiam
 
 kaj tiam viaj okuloj brilis amike, dolĉa eksciteco regis viajn
 
-trajtojn — tio ne estis amara, galeca, hipokondria zorgmedi-
+trajtojn — tio ne estis amara, galeca, hipokondria zorgmeditado, viaj rigardoj pli montris la dolĉan cerbumadon de la
 
-tado, viaj rigardoj pli montris la dolĉan cerbumadon de la
-
-juneco, kiam la animo per malpezaj flugiloj sekvas la fluga-
-
-don de la espero kaj sin direktas al ideala ĉielo. La voĉo de
+juneco, kiam la animo per malpezaj flugiloj sekvas la flugadon de la espero kaj sin direktas al ideala ĉielo. La voĉo de
 
 sinjorino Fairfax, parolanta en la halo, vekis vin el la revado,
 
 kaj kiel strange vi tiam ridis pri vi mem, Jane! Multa senco
 
-estis en via rideto; ĝi estis tre delikata kaj ŝajnis moki vian spi-
-
-ritforeston. i ŝajnis diri: ’miaj belegaj vizioj estas tre mirin-
+estis en via rideto; ĝi estis tre delikata kaj ŝajnis moki vian spiritforeston. i ŝajnis diri: ’miaj belegaj vizioj estas tre mirin-
 
 daj, sed mi ne forgesu, ke ili estas tute malrealaj, sed mi tre
 
 bone scias, ke tie ekstere kuŝas antaŭ miaj piedoj kruta vojo,
 
-kiun mi devas trairi, kaj ke ĉirkaŭ mi kunbuliĝas nigraj fulmo-
-
-tondraj nuboj, kiujn mi devas kontraŭstari. Tiam vi iris mal-
+kiun mi devas trairi, kaj ke ĉirkaŭ mi kunbuliĝas nigraj fulmotondraj nuboj, kiujn mi devas kontraŭstari. Tiam vi iris mal-
 
 supren kaj petis al sinjorino Fairfax, ke ŝi donu al vi okupon,
 
-nome por reguligi la kontojn pri la mastrumado aŭ ion simi-
-
-lan. ĉu mi ne pravas? Tiam mi koleris vin, ĉar vi evitis miajn
+nome por reguligi la kontojn pri la mastrumado aŭ ion similan. ĉu mi ne pravas? Tiam mi koleris vin, ĉar vi evitis miajn
 
 rigardojn.
 
 Malpacience mi atendis la vesperon, por ke mi povu voki
 
-vin al mi. Mi supozis en vi novan — por mi novan — nekuti-
+vin al mi. Mi supozis en vi novan — por mi novan — nekutiman karakteron. Mi sentis la deziron studesplori ĝin. Vi eniris
 
-man karakteron. Mi sentis la deziron studesplori ĝin. Vi eniris
+en la ĝardenon kun rigardo, kiu montris modestecon kaj samtempe sendependecon. Vi estis simple vestita — proksimume
 
-en la ĝardenon kun rigardo, kiu montris modestecon kaj sam-
-
-tempe sendependecon. Vi estis simple vestita — proksimume
-
-kiel nun. Mi paroligis vin — kaj ne daŭris longe, kiam mi tro-
-
-vis, ke en vi estas la plej strangaj kontrastoj. Viaj vestoj kaj
+kiel nun. Mi paroligis vin — kaj ne daŭris longe, kiam mi trovis, ke en vi estas la plej strangaj kontrastoj. Viaj vestoj kaj
 
 manieroj estis pro la normo limigitaj kaj ĝenitaj; viaj mienoj
 
-kaj agmaniero estis ofte plenaj de malkonfido, sed nepre deli-
-
-katigitaj el naturo, kvankam absolute nekutimiĝintaj al socie-
-
-
-JANE EYRE
+kaj agmaniero estis ofte plenaj de malkonfido, sed nepre delikatigitaj el naturo, kvankam absolute nekutimiĝintaj al socie-
 
 
 to. Mi sentis, kiel vi timis igi vin malfavore okulfrapanta; sed
 
-kiam oni alparolis vin, tiam vi levis klaran, kuraĝeman oku-
+kiam oni alparolis vin, tiam vi levis klaran, kuraĝeman okulon al la vizaĝo de via kunparolanto, en ĉiu el viaj rigardoj
 
-lon al la vizaĝo de via kunparolanto, en ĉiu el viaj rigardoj
-
-estis forto kai penetremo; kiam oni faris al vi malfacilajn de-
-
-mandojn, vi trovis ĉiam klarajn, trafajn respondojn. Tre bal-
+estis forto kai penetremo; kiam oni faris al vi malfacilajn demandojn, vi trovis ĉiam klarajn, trafajn respondojn. Tre bal-
 
 daŭ vi ŝajnis kutimiĝi al mi — Jane mi kredas, ke vi sentis, ke
 
@@ -9022,19 +7228,13 @@ kaj nur malofte serĉis vian ĉeeston. Mi estis saĝa epikurano
 
 kaj deziris plilongigi la kontentecon, kiun havigis al mi ĉi tiu
 
-nova konatiĝo. Krome min turmentis longe la timo, ke la ĉar-
-
-mo falos de la floro, ke perdiĝos ĝia freŝeco, se tro ofte mi
+nova konatiĝo. Krome min turmentis longe la timo, ke la ĉarmo falos de la floro, ke perdiĝos ĝia freŝeco, se tro ofte mi
 
 tuŝus ĝin. Mi tiam ne sciis, ke ĝi ne estas velkebla floro, sed
 
-pli multe radianta simileco de floro, ĉizita en ĉiam ekzistan-
+pli multe radianta simileco de floro, ĉizita en ĉiam ekzistanta gemo. Krome mi volis sperti, ĉu vi venos viziti min, se mi
 
-ta gemo. Krome mi volis sperti, ĉu vi venos viziti min, se mi
-
-evitus vin — sed tion vi ne faris. Vi restadis en la instrua ĉam-
-
-bro, same silente kiel viaj pupitro kaj pentrista stablo. Kiam
+evitus vin — sed tion vi ne faris. Vi restadis en la instrua ĉambro, same silente kiel viaj pupitro kaj pentrista stablo. Kiam
 
 okaze mi renkontis vin, vi tiel rapide kaj strange pasis min,
 
@@ -9053,9 +7253,6 @@ esplori tion, mi denove komencis okupi min pri vi. En via
 rigardo estis io amika; io simpatia estis en la maniero je kiu
 
 
-JANE EYRE
-
-
 vi parolis kun mi; mi vidis, ke vi havas komunikeman koron
 
 — sekve nur la senbrua instru-ĉambro, la monotoneco de via
@@ -9066,15 +7263,11 @@ esti ĝentila al vi, kaj tiu ĝentileco vekis vian kunsenton. La
 
 esprimo de via vizaĝo mildiĝis, via voĉo moliĝis; tio plenigis
 
-min de feliĉo kaj ĝojo, kiam vi elparolis mian nomon en dan-
-
-ka feliĉa tono. Tiam ĝojigis min, Jane, kiam mi kvazaŭ okaze
+min de feliĉo kaj ĝojo, kiam vi elparolis mian nomon en danka feliĉa tono. Tiam ĝojigis min, Jane, kiam mi kvazaŭ okaze
 
 renkontis vin; vi rigardis min iom malkviete — iom dube, ĉar
 
-vi ne sciis, kiu kaprico regas min — ĉu ree mi agos kiel sin-
-
-joro, ĉu mi estos severa aŭ montros amikecon aŭ bonvolecon.
+vi ne sciis, kiu kaprico regas min — ĉu ree mi agos kiel sinjoro, ĉu mi estos severa aŭ montros amikecon aŭ bonvolecon.
 
 En tiu tempo mi jam amis vin tro multe por ludi la unuan
 
@@ -9104,9 +7297,7 @@ klara.”
 
 Mi sentis tremeton, kiam mi aŭdis tiun malsaĝan klarigon.
 
-”Vi vidas, kiel nun staras la afero,” li parolis plue. ”Pasigin-
-
-te mian junecon kaj miajn jarojn de vireco en nedirebla mi-
+”Vi vidas, kiel nun staras la afero,” li parolis plue. ”Pasiginte mian junecon kaj miajn jarojn de vireco en nedirebla mi-
 
 zero kaj duone en malĝoja soleco, mi por la unua fojo trovis,
 
@@ -9115,9 +7306,6 @@ kion mi vere povas ami — nome vin. Vi estas mia simpatio,
 mia anĝelo, vin mi amas per forta amo. Mi kredas vin bona,
 
 talenthava, saĝa, aminda, en mia koro estas ardanta, sankta
-
-
-JANE EYRE
 
 
 pasio; ĝi sentas inklinon al vi, ĝi gvidas mian tutan internan
@@ -9130,13 +7318,9 @@ Sentante tion, mi decidis edziĝi kun vi. Estas sensenca
 
 moko, respondi al mi, ke mi havas jam edzinon. Vi scias nun,
 
-ke mi havas nur abomenan demonon. Estis terura maljuste-
+ke mi havas nur abomenan demonon. Estis terura maljusteco, ke mi klopodis trompi vin, sed mi timis la obstinecon
 
-co, ke mi klopodis trompi vin, sed mi timis la obstinecon
-
-kuŝanta en via karaktero. Mi timis frue enradikiĝintajn antaŭ-
-
-juĝojn; mi volis konduki vin en sendanĝeran lokon, antaŭ ol
+kuŝanta en via karaktero. Mi timis frue enradikiĝintajn antaŭjuĝojn; mi volis konduki vin en sendanĝeran lokon, antaŭ ol
 
 konfidi al vi tiujn intimajn sciigojn. Tio estis malkuraĝa. Unue
 
@@ -9152,9 +7336,7 @@ malforta vorto) sed mian neeldireblan deziron ami fidele kaj
 
 kore, kie mi trovos fidelan kaj koran reciprokan amon. Nur
 
-poste mi devus peti vin akcepti mian promeson pri la fidele-
-
-co, kaj repeti vian, Jane — donu ĝin nun al mi.”
+poste mi devus peti vin akcepti mian promeson pri la fideleco, kaj repeti vian, Jane — donu ĝin nun al mi.”
 
 Sekvis paŭzo.
 
@@ -9172,16 +7354,11 @@ Malgraŭ tio mi devis malakcepti mian idolon kaj lian amon!
 
 Mia terura devo enhavis nur la ordonon: ”Forvojaĝu!”
 
-”Jane, vi ja komprenas, kion mi petas de vi? Nur la prome-
-
-son — mi volas esti via, sinjoro Rochester.”
+”Jane, vi ja komprenas, kion mi petas de vi? Nur la promeson — mi volas esti via, sinjoro Rochester.”
 
 ”Sinjoro Rochester, mi ne volas esti via.”
 
 Ree sekvis longa paŭzo.
-
-
-JANE EYRE
 
 
 ”Jane!” li denove ekparolis kun dolĉanimeco, kiu tremigis
@@ -9230,29 +7407,18 @@ ligi min al kadavro en la tombejo. Kion mi faros, Jane? Kie mi
 
 trovos kunulinon? Kie esperon?”
 
-”Faru, kion mi faras. Fidu al Dio kaj al vi mem. ĉu vi kre-
-
-das je la ĉielo kaj je unuiĝo tie?”
+”Faru, kion mi faras. Fidu al Dio kaj al vi mem. ĉu vi kredas je la ĉielo kaj je unuiĝo tie?”
 
 ”Vi do ne volas cedi?”
 
 ”Ne.”
 
-”Vi do kondamnas min vivi malfeliĉe kaj morti kun malbe-
-
-no?” Lia voĉo iĝis pli kaj pli laŭta.
+”Vi do kondamnas min vivi malfeliĉe kaj morti kun malbeno?” Lia voĉo iĝis pli kaj pli laŭta.
 
 
-JANE EYRE
+”Mi nur konsilas al vi senpeke vivi, kaj mi deziras al vi kviete morti.”
 
-
-”Mi nur konsilas al vi senpeke vivi, kaj mi deziras al vi kvie-
-
-te morti.”
-
-”ĉu vi do volas rabi de mi ĉiun amon? — ĉu mi devas reko-
-
-menci mian antaŭan pekan vivmanieron?”
+”ĉu vi do volas rabi de mi ĉiun amon? — ĉu mi devas rekomenci mian antaŭan pekan vivmanieron?”
 
 ”Sinjoro Rochester, mi tute ne deziras, ke vi reiru al via
 
@@ -9260,9 +7426,7 @@ antaŭa vivmaniero, mi mem ja ne vivis tiel. Ni naskiĝis por
 
 celi la bonon kaj por suferi — tio rilatas ne nur vin, sed ankaŭ
 
-min. Do, agu tiel. Vi estos forgesinta pri mi antaŭ ol mi for-
-
-gesis pri vi.”
+min. Do, agu tiel. Vi estos forgesinta pri mi antaŭ ol mi forgesis pri vi.”
 
 ”Dirante ion tian vi nomas min mensogulo. Vi malpurigas
 
@@ -9272,17 +7436,11 @@ diris al mi rekte en la vizaĝo, ke mi aliiĝos tre baldaŭ. Kian
 
 malĝustan ideon vi havas pri mi, kaj kiel ŝanĝiĝis subite via
 
-konduto! ĉu estas pli bone malesperigi homon ol peki kon-
+konduto! ĉu estas pli bone malesperigi homon ol peki kontraŭ homa leĝo — dum neniu havas malprofiton pro tiu
 
-traŭ homa leĝo — dum neniu havas malprofiton pro tiu
+peko? ĉar vi havas nek parencojn nek konatojn, vi ne bezonos timi ofendi ilin per nia kunvivado.”
 
-peko? ĉar vi havas nek parencojn nek konatojn, vi ne bezo-
-
-nos timi ofendi ilin per nia kunvivado.”
-
-Tio estis vera. Kaj dum li parolis, miaj konscienco kaj pru-
-
-dento perfidis min kaj kulpigis min pro krimo, ĉar — mi kon-
+Tio estis vera. Kaj dum li parolis, miaj konscienco kaj prudento perfidis min kaj kulpigis min pro krimo, ĉar — mi kon-
 
 traŭstaris lin. Ili parolis preskaŭ tiel laŭte, kiel la sento, kaj ĉi
 
@@ -9296,18 +7454,13 @@ facilriskeco, kiu sekvas post malespero. — Klopodu kvietigi
 
 lin. Savu lin; amu lin; diru al li, ke vi amas lin kaj ke vi volas
 
-estiĝi lia. Kiu en la mondo interesiĝas pri vi? Kiu estos doma-
-
-ĝigita per tio, kion vi faros?”
+estiĝi lia. Kiu en la mondo interesiĝas pri vi? Kiu estos domaĝigita per tio, kion vi faros?”
 
 Malgraŭ ĉio tio, mia respondo estis firma, neŝanĝebla: —
 
 ”Mi sentas tro multan estimon por mi mem. Ju pli soleca mi
 
 estas, ju malpli multajn amikojn mi havas, kaj ju malpli da
-
-
-JANE EYRE
 
 
 helpo mi povas atendi, des pli multe mi estimos min mem. Mi
@@ -9338,9 +7491,7 @@ ricevitaj opinioj, decidoj, kiuj estas klaraj, estas nun la solaj
 
 rimedoj por helpi min en mia mizero, sur ili mi apogas min.”
 
-Kaj tion mi faris. Sinjoro Rochester, rigardante mian viza-
-
-ĝon, rimarkis mian decidon. Lia pasio atingis sian plej altan
+Kaj tion mi faris. Sinjoro Rochester, rigardante mian vizaĝon, rimarkis mian decidon. Lia pasio atingis sian plej altan
 
 gradon. Unu momenton li devis sin doni al ĝi — kiu ajn estu
 
@@ -9348,47 +7499,30 @@ la sekvo. Li alpaŝis al mi, kaptis mian brakon kaj ĉirkaŭis mian
 
 talion. Per flamantaj rigardoj li ŝajnis engluti min! Fizike mi
 
-sentis min en tiu momento tiel malforta, kiel pajlero elmeti-
-
-ta al la ardo de altforno. Fizike mi havis nur mian animon kaj
+sentis min en tiu momento tiel malforta, kiel pajlero elmetita al la ardo de altforno. Fizike mi havis nur mian animon kaj
 
 per ĝi la senton de la fina sendanĝereco. La animo feliĉe
 
 havas tradukiston — ofte senkonscian, tamen ĉiam fidelan
 
-tradukiston — la okulon! Miaj okuloj leviĝis al liaj, kaj rigar-
+tradukiston — la okulon! Miaj okuloj leviĝis al liaj, kaj rigardante lian sovaĝe ekscititan vizaĝon, mi senkonscie eligis pro-
 
-dante lian sovaĝe ekscititan vizaĝon, mi senkonscie eligis pro-
+fundan ĝemon. Lia ĉirkaŭpreno doloris min kaj miaj troŝarĝitaj fortoj estis eluzitaj.
 
-fundan ĝemon. Lia ĉirkaŭpreno doloris min kaj miaj troŝar-
-
-ĝitaj fortoj estis eluzitaj.
-
-”Neniam,” li diris, grincigante la dentojn, ”neniam ekzis-
-
-tis estaĵo, kiu samtempe estis tiel delikata kaj tiel malflekse-
+”Neniam,” li diris, grincigante la dentojn, ”neniam ekzistis estaĵo, kiu samtempe estis tiel delikata kaj tiel malflekse-
 
 bla, tiel malvenkebla. En miaj manoj ŝi estas nur malforta
 
 
-JANE EYRE
-
-
 kano!” Li skuis min per ĉiuj siaj fortoj. ”Mi povus rompi ŝin
 
-per la dik- kaj montrofingroj. Sed al kio tio utilus, se mi rom-
+per la dik- kaj montrofingroj. Sed al kio tio utilus, se mi rompus ŝin, disŝirus aŭ pulvorigus. Rigardu nur ŝiajn okulojn!
 
-pus ŝin, disŝirus aŭ pulvorigus. Rigardu nur ŝiajn okulojn!
-
-Rigardu tiun decideman, sovaĝan, liberan estaĵon, kiu kon-
-
-traŭas min per pli ol kuraĝo — per sovaĝa triumfo. Kion ajn
+Rigardu tiun decideman, sovaĝan, liberan estaĵon, kiu kontraŭas min per pli ol kuraĝo — per sovaĝa triumfo. Kion ajn
 
 mi faris kun la ĉirkaŭvolvaĵo, mi ne povus penetri la internon.
 
-Ho, sovaĝa, bela kreitaĵo! Se mi perforte rompus ĉi tiun deli-
-
-katan malliberejon, nur la malliberigito estus libera. La
+Ho, sovaĝa, bela kreitaĵo! Se mi perforte rompus ĉi tiun delikatan malliberejon, nur la malliberigito estus libera. La
 
 domon mi povus malkonstrui, sed la loĝantino liberiĝus
 
@@ -9428,14 +7562,9 @@ pordo.
 
 ”Jes.”
 
-”ĉu vi ne volas veni al mi? — Vi ne volas esti mia konso-
-
-lantino, mia liberigantino? — ĉu miaj profunda amo, sovaĝa
+”ĉu vi ne volas veni al mi? — Vi ne volas esti mia konsolantino, mia liberigantino? — ĉu miaj profunda amo, sovaĝa
 
 ĉagreno, ardaj petegoj estas nenio al vi?”
-
-
-JANE EYRE
 
 
 Kia nepriskribebla patoso estis en liaj tonoj! Kvankam estis
@@ -9482,53 +7611,34 @@ Li rekompensu vin pro via senlima bono al mi!”
 
 sian amon! ŝi estos nobla kaj grandanima!” La sango eniris en
 
-lian kapon. Liaj okuloj ardis kiel flamoj; li salte leviĝis kaj rek-
-
-te stariĝis antaŭ mi. Li etendis la brakojn. Sed mi evitis lian
+lian kapon. Liaj okuloj ardis kiel flamoj; li salte leviĝis kaj rekte stariĝis antaŭ mi. Li etendis la brakojn. Sed mi evitis lian
 
 ĉirkaŭprenon kaj — eliris el la ĉambro.
 
-”Adiaŭ!” kriis mia koro dum mi forlasis lin. Kaj la malespe-
-
-ro aldonis: ”Adiaŭ por ĉiam!”
+”Adiaŭ!” kriis mia koro dum mi forlasis lin. Kaj la malespero aldonis: ”Adiaŭ por ĉiam!”
 
 
-JANE EYRE
-
-
-Mi antaŭe ne kredis, ke tiun nokton mi dormos; sed kompa-
-
-tema dormo kaptis miajn membrojn, tuj post kiam mi kuŝiĝis.
+Mi antaŭe ne kredis, ke tiun nokton mi dormos; sed kompatema dormo kaptis miajn membrojn, tuj post kiam mi kuŝiĝis.
 
 La dormo portis min reen al mia infaneco. Mi sonĝis, ke mi
 
-kuŝas en la ruĝa ĉambro en Gateshead; la nokto estis mallu-
-
-ma kaj stranga timo premis mian animon. La luno, senfortig-
+kuŝas en la ruĝa ĉambro en Gateshead; la nokto estis malluma kaj stranga timo premis mian animon. La luno, senfortig-
 
 inte min, ludis rolon en mia sonĝo kaj ŝajnis supren rampi sur
 
-la muro kaj fine restis staranta en la mezo de la malluma pla-
+la muro kaj fine restis staranta en la mezo de la malluma plafono daŭre tremetante. Mi levis la kapon por rigardi ĝin; la
 
-fono daŭre tremetante. Mi levis la kapon por rigardi ĝin; la
-
-plafono ŝanĝiĝis al nuboj altaj kaj malhelaj. La krepusko simi-
-
-lis tian, kian la luno ĵetas sur la nebulojn, kiujn ĝi estas disŝi-
+plafono ŝanĝiĝis al nuboj altaj kaj malhelaj. La krepusko similis tian, kian la luno ĵetas sur la nebulojn, kiujn ĝi estas disŝi-
 
 ronta. Mi vidis kiel ĝi leviĝas — mi rigardis ĝin kun stranga
 
-atendo, kvazaŭ la juĝo elparolonta mian sorton estus skribi-
-
-ta sur ĝia disko. Poste ĝi, disrompante la nubojn, aperis kiel
+atendo, kvazaŭ la juĝo elparolonta mian sorton estus skribita sur ĝia disko. Poste ĝi, disrompante la nubojn, aperis kiel
 
 neniam antaŭe: unue mano ŝoviĝis tra la mallumaĵo kaj puŝis
 
 ĝin flanken. Poste aperis sur la lazuro — ne la luno — sed
 
-blanka homa figuro, kiu klinis malsupren sian radiantan frun-
-
-ton. Fikse ĝi rigardis min. i parolis al mia animo, el neme-
+blanka homa figuro, kiu klinis malsupren sian radiantan frunton. Fikse ĝi rigardis min. i parolis al mia animo, el neme-
 
 zurebla malproksimo venis la sonoj, sed tamen ili estis tiel
 
@@ -9544,20 +7654,13 @@ ankoraŭ nokto. Sed juliaj noktoj estas mallongaj; baldaŭ post
 
 noktomezo krepuskiĝas.
 
-Mi pensis: ”Ne povas esti tro frue por komenci mian tas-
-
-kon plenumotan.” Mi ellitiĝis; mi estis ankoraŭ vestita, ĉar
+Mi pensis: ”Ne povas esti tro frue por komenci mian taskon plenumotan.” Mi ellitiĝis; mi estis ankoraŭ vestita, ĉar
 
 nur la ŝuojn mi estis demetinta. Mi sciis, kie en mia tirkesto
 
 mi povos trovi iom da tolaĵo, ringon kaj medalon. Dum mi
 
-serĉis tiujn objektojn, miaj fingroj tuŝis la perlojn de ĉirkaŭ-
-
-kolo, kiun antaŭ kelkaj tagoj sinjoro Rochester devigis min
-
-
-JANE EYRE
+serĉis tiujn objektojn, miaj fingroj tuŝis la perlojn de ĉirkaŭkolo, kiun antaŭ kelkaj tagoj sinjoro Rochester devigis min
 
 
 akcepti. Mi lasis ĝin kuŝanta; ĝi apartenis ja al la fianĉino, al
@@ -9588,13 +7691,9 @@ eniri kaj ĉirkaŭbraki ŝin. Mi devis erarigi akran orelon! Eble
 
 Mi jam pasis la ĉambron de sinjoro Rochester, sed ĉar mia
 
-koro en tiu momento ĉesis bati, mi estis devigata halti minu-
+koro en tiu momento ĉesis bati, mi estis devigata halti minuton. Sed dormo ne regis tie. Li senripoze trairis la ĉambron de
 
-ton. Sed dormo ne regis tie. Li senripoze trairis la ĉambron de
-
-unu flanko al alia. Ripete li eligis ĝemegojn dum mi, aŭskul-
-
-tante, staris tie. Se mi volus, en tiu ĉambro estus mia ĉielo,
+unu flanko al alia. Ripete li eligis ĝemegojn dum mi, aŭskultante, staris tie. Se mi volus, en tiu ĉambro estus mia ĉielo,
 
 mia, surtera ĉielo. Mi bezonus nur eniri kaj diri:
 
@@ -9616,21 +7715,14 @@ li vane serĉigos min! Li sentos sin forlasita, li kredos sian
 
 amon malestimita. Li suferos, eble lin regos la senespero.
 
-Ankaŭ al tio mi pensis. Mia mano moviĝis al la pordofermi-
-
-lo. Sed mi retiris ĝin kaj ŝteliris plue.
-
-
-JANE EYRE
+Ankaŭ al tio mi pensis. Mia mano moviĝis al la pordofermilo. Sed mi retiris ĝin kaj ŝteliris plue.
 
 
 Malĝoje mi iris malsupren. Mi sciis, kion mi devos fari kaj
 
 tion mi faris mekanike. En la kuirejo mi serĉis la ŝlosilon de
 
-la flankpordo; krome mi prenis boteleton kun oleo kaj plu-
-
-mon por oleoŝmiri la seruron. Mi trinkis iom da akvo kaj pre-
+la flankpordo; krome mi prenis boteleton kun oleo kaj plumon por oleoŝmiri la seruron. Mi trinkis iom da akvo kaj pre-
 
 nis panpecon; eble mia vojo estos longa kaj miaj fortoj, de
 
@@ -9646,13 +7738,9 @@ unu el ili estis nur riglile fermita. Tra ĝi mi iris eksteren kaj
 
 fermis ĝin post mi. Nun Thornfield kuŝis malantaŭ mi.
 
-Unu mejlon de tie, transe de la kamparo, kuŝis vojo, kon-
+Unu mejlon de tie, transe de la kamparo, kuŝis vojo, kondukanta en la kontraŭa direkto al Millcote. i estis vojo, laŭ
 
-dukanta en la kontraŭa direkto al Millcote. i estis vojo, laŭ
-
-kiu mi ankoraŭ neniam veturis, kiun mi tamen estis rimar-
-
-kinta, dum mirigite mi demandis al mi, kien ĝi kondukas. Al
+kiu mi ankoraŭ neniam veturis, kiun mi tamen estis rimarkinta, dum mirigite mi demandis al mi, kien ĝi kondukas. Al
 
 tiu vojo mi direktis min. Nun mi ne povis doni min al miaj
 
@@ -9672,9 +7760,7 @@ Mi laŭiris la kampojn, plektobarilojn kaj vojetojn ĝis la
 
 suno leviĝis. Mi kredas, ke estis ĉarmega somermateno. Mi
 
-memoras ankoraŭ, ke miaj ŝuoj, kiujn mi estis almetintaj, for-
-
-lasante la domon, baldaŭ estis malsekaj de la roso. Sed mi ne
+memoras ankoraŭ, ke miaj ŝuoj, kiujn mi estis almetintaj, forlasante la domon, baldaŭ estis malsekaj de la roso. Sed mi ne
 
 rigardis la sunon, nek la ridetantan ĉielon, nek la vekiĝantan
 
@@ -9682,21 +7768,13 @@ naturon. Viro, kiu laŭiras belan vojon al eŝafodo, ne pensas
 
 al la floroj, kreskantaj sur la deklivoj de la longfosaĵoj, sed al
 
-la bloko kaj hakilo; al la disigo de korpo kaj animo, al la osce-
-
-
-JANE EYRE
-
-
-danta tombo, lin atendanta — kaj mi pensis al la malĝoja for-
+la bloko kaj hakilo; al la disigo de korpo kaj animo, al la oscedanta tombo, lin atendanta — kaj mi pensis al la malĝoja for-
 
 kuro kaj al la senhejma migrado, kaj kun disŝirita koro mi
 
 pensis al tio, kion mi lasis post mi! Mi ne povis agi alie. Nun
 
-mi pensis al li, kiel li senripoze iris tien kaj reen en sia ĉam-
-
-bro atendante la tagiĝon; kiel li esperis, ke baldaŭ mi venos
+mi pensis al li, kiel li senripoze iris tien kaj reen en sia ĉambro atendante la tagiĝon; kiel li esperis, ke baldaŭ mi venos
 
 kun peto resti ĉe li kaj estiĝi lia. Mi aspiris aparteni al li; mi
 
@@ -9718,13 +7796,9 @@ mian karnon, kiam mi klopodis eltiri ĝin; ĝi estis mortigonta
 
 min, kiam la rememoro puŝis ĝin ankoraŭ pli profunden en
 
-mian koron! Sur la kamparo kaj en la arbetaĵoj la birdoj ek-
+mian koron! Sur la kamparo kaj en la arbetaĵoj la birdoj ekkantis. La birdoj estis fidelaj unu al alia, ili estas la simbolo de
 
-kantis. La birdoj estis fidelaj unu al alia, ili estas la simbolo de
-
-la vivo! Sed kio mi estis? En la mezo de miaj ĉagrenoj, senes-
-
-peraj ekscitiĝoj resti fidela al miaj principoj, mi abomenis min
+la vivo! Sed kio mi estis? En la mezo de miaj ĉagrenoj, senesperaj ekscitiĝoj resti fidela al miaj principoj, mi abomenis min
 
 mem. Mi estis ofendinta, vundinta, forlasinta mian sinjoron!
 
@@ -9740,25 +7814,18 @@ larmojn, kiam mi tiel daŭrigis mian solecan vojon. Mi iris
 
 rapide, rapide kiel febromalsanulo. Malforteco, venanta de
 
-interne kaj tute reganta min, ĵetis min teren. Kelkajn minu-
-
-tojn mi kuŝis tie premante mian vizaĝon en la malsekan her-
+interne kaj tute reganta min, ĵetis min teren. Kelkajn minutojn mi kuŝis tie premante mian vizaĝon en la malsekan her-
 
 bon. Mi timis — pli multe mi deziris, resti tie kuŝanta por
 
 morti. Sed baldaŭ mi releviĝis kaj rampis pluen sur manoj kaj
 
 
-JANE EYRE
-
-
 genuoj. Fine mi staris ree sur la piedoj — firme decidante kaj
 
 dezirante atingi la landvojon.
 
-Atinginte ĝin mi estis devigata sidigi min por ripozi kon-
-
-traŭ plektobarilo. Sidante tie, mi ekaŭdis la bruon de radoj kaj
+Atinginte ĝin mi estis devigata sidigi min por ripozi kontraŭ plektobarilo. Sidante tie, mi ekaŭdis la bruon de radoj kaj
 
 vidis alveturantan veturilon. Mi stariĝis kaj signodonis per la
 
@@ -9772,9 +7839,7 @@ por kiu monsumo li volus kunpreni min; li respondis: por
 
 tridek ŝilingoj; post kio mi diris, ke mi posedas nur dudek. Li
 
-pripensis, ĉu li povus kunpreni min por tiu sumo, fine li kon-
-
-sentis al mi sidiĝi en la veturilon, ĉar ĝi estas malplena. Mi
+pripensis, ĉu li povus kunpreni min por tiu sumo, fine li konsentis al mi sidiĝi en la veturilon, ĉar ĝi estas malplena. Mi
 
 eniris ĝin. La pordeto ĵetfermiĝis — la veturilo veturis pluen.
 
@@ -9791,22 +7856,15 @@ mi, vi timos estiĝi la ilo de malbono de tio, kion vi fundkore
 amas. —
 
 
-JANE EYRE
-
-
 ĉapitro XXVIII.
 
 Pasis du tagoj. Estas somera vespero. La veturigisto eliri
 
 gis min el sia veturilo en loko nomata Whitcross. Por la
 
-monsumo, kiun mi pagis al li, li ne povis veturigi min pli mal-
+monsumo, kiun mi pagis al li, li ne povis veturigi min pli malproksimen kaj mi ne posedis plu unu ŝilingon. La veturilo
 
-proksimen kaj mi ne posedis plu unu ŝilingon. La veturilo
-
-estas jam unu mejlon de ĉi tie. Mi estas sola. Kaj nun mi sub-
-
-ite rimarkas, ke mi forgesis preni mian pakaĵon el la veturila
+estas jam unu mejlon de ĉi tie. Mi estas sola. Kaj nun mi subite rimarkas, ke mi forgesis preni mian pakaĵon el la veturila
 
 kaŝejo, kien mi metis ĝin pro sekureco. Tie ĝi restos — kaj por
 
@@ -9818,9 +7876,7 @@ kolono, metita sur loko, kie kvar vojoj kruciĝas; tre alta, por
 
 ke ĝi estu videbla en la malproksimo kaj en la mallumo — kiel
 
-mi supozis. El ĝia supro disetendiĝas kvar brakoj; laŭ la sur-
-
-skribo, la plej proksima urbo, al kiu unu el tiuj brakoj eten-
+mi supozis. El ĝia supro disetendiĝas kvar brakoj; laŭ la surskribo, la plej proksima urbo, al kiu unu el tiuj brakoj eten-
 
 diĝas, situas je dekmejla distanco; la aliaj je ankoraŭ pli ol
 
@@ -9832,33 +7888,19 @@ mezland-graflandon kun malhelaj marĉejoj, ĉirkaŭitaj de
 
 montoj. Malantaŭ kaj antaŭ mi kuŝas vastaj torfmarĉejoj;
 
-malantaŭ tiu profunda valo ĉe miaj piedoj leviĝas altaj mon-
+malantaŭ tiu profunda valo ĉe miaj piedoj leviĝas altaj montaroj. La loĝantaro sendube estas malgranda ĉi tie kaj mi
 
-taroj. La loĝantaro sendube estas malgranda ĉi tie kaj mi
-
-vidas nek piedirantojn nek rajdantojn sur ĉi tiuj vojoj, ili eten-
-
-diĝas norden, orienten, suden kaj okcidenten — helaj, larĝaj,
+vidas nek piedirantojn nek rajdantojn sur ĉi tiuj vojoj, ili etendiĝas norden, orienten, suden kaj okcidenten — helaj, larĝaj,
 
 solecaj; ĉiuj estas metitaj trans la marĉon kaj la eriko sovaĝe
 
-kaj abunde kreskas ĝis iliaj bordoj. Kaj tamen eble piediran-
+kaj abunde kreskas ĝis iliaj bordoj. Kaj tamen eble piediranto okaze preteriros; sed mi ne deziras renkonti fremdajn oku-
 
-
-JANE EYRE
-
-
-to okaze preteriros; sed mi ne deziras renkonti fremdajn oku-
-
-lojn; oni kun miro demandus, kion mi devas fari ĉi tie, apo-
-
-ganta mntraŭ la vojmontrilo, videble sen celo — perdi-
+lojn; oni kun miro demandus, kion mi devas fari ĉi tie, apoganta mntraŭ la vojmontrilo, videble sen celo — perdi-
 
 ta! Eble oni demandus al mi, kaj mi kapablus respondi nur
 
-ion nekredindan — kaj mi kaŭzus suspekton. Ne unu inter-
-
-ligo kunigas min plu al la homoj en ĉi tiu momento — neniu
+ion nekredindan — kaj mi kaŭzus suspekton. Ne unu interligo kunigas min plu al la homoj en ĉi tiu momento — neniu
 
 ĉarmo, neniu espero vokis min tien, kie estis miaj kunhomoj
 
@@ -9870,15 +7912,11 @@ patrinon, la naturon! Mi volas ĵeti min sur ĝian bruston kaj
 
 petegi ripozon!
 
-Tuj mi direktis min al la erikejo; mi laŭiris malgrandan pro-
-
-fundan vojeton, kiu tratranĉis la brunan marĉon. Mi ĝis la
+Tuj mi direktis min al la erikejo; mi laŭiris malgrandan profundan vojeton, kiu tratranĉis la brunan marĉon. Mi ĝis la
 
 genuoj vadis tra la malhelajn kreskaĵojn, mi sekvis ĉiujn ĝiajn
 
-kurbiĝojn kaj trovante muskokovritan granitŝtonon en kaŝi-
-
-ta angulo, mi sidiĝis sur ĝin. Altaj marĉaltaĵoj ĉirkaŭis min; la
+kurbiĝojn kaj trovante muskokovritan granitŝtonon en kaŝita angulo, mi sidiĝis sur ĝin. Altaj marĉaltaĵoj ĉirkaŭis min; la
 
 rifo protektis mian kapon. Kaj supre de ĉio tio sin etendis la
 
@@ -9886,9 +7924,7 @@ rifo protektis mian kapon. Kaj supre de ĉio tio sin etendis la
 
 Pasis kelka tempo antaŭ ol mi trovis min sendanĝera ĉi tie.
 
-Mi sentis neklaran timon, ke sovaĝaj brutaroj estas en la pro-
-
-ksimo, aŭ ke ĉasisto aŭ ŝtelĉasisto malkovros min. Kiam vent-
+Mi sentis neklaran timon, ke sovaĝaj brutaroj estas en la proksimo, aŭ ke ĉasisto aŭ ŝtelĉasisto malkovros min. Kiam vent-
 
 puŝego sin movis trans la ebenaĵon, mi kun teruro rigardis
 
@@ -9896,9 +7932,7 @@ supren kredante, ke ĝi estas la sovaĝa kuro de virbovo; kiam
 
 vanelo fajfis, mi kredis aŭdi homajn voĉojn. Sed vidinte, ke
 
-miaj timoj estas senmotivaj, kaj sentante, ke la profunda si-
-
-lento reganta ĉe noktiĝo, kvietigis min — tiam min regis kon-
+miaj timoj estas senmotivaj, kaj sentante, ke la profunda silento reganta ĉe noktiĝo, kvietigis min — tiam min regis kon-
 
 fido.
 
@@ -9907,9 +7941,6 @@ Ankoraŭ mi ne estis pripensinta. Mi nur estis aŭskultinta,
 timinta. Nun la kapablo de la meditado revenis al mi.
 
 Kion mi komencos fari? Kien mi iros? Ho, tiuj demandoj
-
-
-JANE EYRE
 
 
 estis nesufereblaj, ĉar mi povis nenion komenci kaj nenien iri!
@@ -9934,21 +7965,15 @@ Ekrosiĝis sed feliĉe nur malmulte kaj eĉ ne venteto blovis. La
 
 naturo ŝajnis esti al mi bonvola kaj amika. Mi sentis, ke ĝi
 
-amas min, ĉar mi estis forpelitino; kaj mi kun infana molkore-
-
-co alkroĉis min al ĝi, ĉar mi povis atendi de la homoj nur mal-
+amas min, ĉar mi estis forpelitino; kaj mi kun infana molkoreco alkroĉis min al ĝi, ĉar mi povis atendi de la homoj nur mal-
 
 konfidon, malakcepton kaj ofendojn. ĉi tiun nokton mi volis
 
 esti ĝia gastino — mi ja estis ĝia infano. La patrino naturo ja
 
-konsentus al mi senpagan rifuĝejon. Mi havis ankoraŭ pece-
+konsentus al mi senpagan rifuĝejon. Mi havis ankoraŭ peceton da pano; ĝi estis la restaĵo de bulko, aĉetita de mi en urbo,
 
-ton da pano; ĝi estis la restaĵo de bulko, aĉetita de mi en urbo,
-
-kiun ni pasis je tagmezo kaj pagita per pfenigo, mia lasta mo-
-
-nero. Tie kaj alie mi vidis maturajn mirtelojn, kiuj brilis kiel
+kiun ni pasis je tagmezo kaj pagita per pfenigo, mia lasta monero. Tie kaj alie mi vidis maturajn mirtelojn, kiuj brilis kiel
 
 perloj inter la erikoj; mi kolektis da ili plenmanon kaj manĝis
 
@@ -9964,25 +7989,16 @@ en ĝi, miaj piedoj malaperis sub la kreskaĵo; ambaŭflanke ĝi
 
 tiel alte leviĝis, ke ĝi preskaŭ kuniĝis super mi tiel, ke la nokta
 
-aero tute ne ĝenis min. Mi sternis la ŝalon sur min kiel kov-
-
-rilon; malalta muska altaĵeto estis mia kapkuseno. Tiel pro-
+aero tute ne ĝenis min. Mi sternis la ŝalon sur min kiel kovrilon; malalta muska altaĵeto estis mia kapkuseno. Tiel pro-
 
 tektite, mi ne sentis malvarmon en la komenco de la nokto.
 
 Mia nokta ripozo eble estus kvieta, se mia turmentita koro
 
 
-JANE EYRE
+ne estus interrompinta ĝin. i plendis pro siaj sangantaj vundoj, pro sia interna doloro, pro siaj disŝiritaj flankoj. i tremis
 
-
-ne estus interrompinta ĝin. i plendis pro siaj sangantaj vun-
-
-doj, pro sia interna doloro, pro siaj disŝiritaj flankoj. i tremis
-
-pro sinjoro Rochester kaj lia sorto; ĝi priplendis lin kun pro-
-
-funda kompato; ĝi sopiris al li kun senfina dezirego, kaj, sen-
+pro sinjoro Rochester kaj lia sorto; ĝi priplendis lin kun profunda kompato; ĝi sopiris al li kun senfina dezirego, kaj, sen-
 
 helpe kiel birdo, kies flugiloj estas rompitaj, ĝi batis per siaj
 
@@ -9996,21 +8012,15 @@ brile sur la ĉielo. i estis tiel bela, kvieta, tiel pura kaj hela, ke
 
 neeble oni povus sin doni al timo. Ni scias, ke Dio estas ĉie;
 
-sed tre certe ni plej klare sentas Lian ĉeeston, kiam Liaj gran-
+sed tre certe ni plej klare sentas Lian ĉeeston, kiam Liaj grandaj kaj belegaj laboroj tiel brile sin etendas antaŭ ni. Kaj la
 
-daj kaj belegaj laboroj tiel brile sin etendas antaŭ ni. Kaj la
-
-sennuba noktoĉielo, sur kiu Liaj mondoj plenumas siajn kvie-
-
-tajn rondiradojn, plej multe sentigas al ni Lian senfinecon,
+sennuba noktoĉielo, sur kiu Liaj mondoj plenumas siajn kvietajn rondiradojn, plej multe sentigas al ni Lian senfinecon,
 
 Lian ĉiopotencon kaj Lian ĉie ĉeestadon! Mi kuŝis surgenue
 
 por preĝi por sinjoro Rochester. Rigardante supren per miaj
 
-larmoplenaj okuloj, mi vidis la imponan laktan vojon. Memo-
-
-rigante al mi, kiu reale mi estas — kiuj sennombraj sistemoj
+larmoplenaj okuloj, mi vidis la imponan laktan vojon. Memorigante al mi, kiu reale mi estas — kiuj sennombraj sistemoj
 
 rondiras tie supre nur kiel ununura lumbrilo — tiam subite
 
@@ -10020,9 +8030,7 @@ potenco, mi estis certa pri tio, ke la tero ne povas perei, nek
 
 iu ajn kreitaĵo vivanta sur ĝi, kaj mi ŝanĝis mian preĝon en
 
-dankon: la fonto de vivo estis ankaŭ la liberiganto de la ani-
-
-moj. Sinjoro Rochester estis ekster danĝero; li estis de Dio, kaj
+dankon: la fonto de vivo estis ankaŭ la liberiganto de la animoj. Sinjoro Rochester estis ekster danĝero; li estis de Dio, kaj
 
 Dio protektus lin!
 
@@ -10035,12 +8043,7 @@ Sed la sekvintan matenon ĝi ree prezentis sin al mi. Mi
 leviĝis longe post kiam la birdetoj eliris el siaj nestoj kaj la
 
 
-JANE EYRE
-
-
-abeloj komencis suĉi la mielon el la erikoj, kaj la roso dis-
-
-vaporiĝis.
+abeloj komencis suĉi la mielon el la erikoj, kaj la roso disvaporiĝis.
 
 Kia kvieta, varma, delikata tago! Kia ora dezerto estis tiu
 
@@ -10048,9 +8051,7 @@ Kia kvieta, varma, delikata tago! Kia ora dezerto estis tiu
 
 deziris, ke mi povus vivi en ĝi kaj per ĝi! Mi vidis lacerton
 
-ŝoviĝanta trans la rokon; mi vidis abelon flugetanta diligen-
-
-te inter la dolĉaj mirteloj. Kiel volonte en tiu momento mi
+ŝoviĝanta trans la rokon; mi vidis abelon flugetanta diligente inter la dolĉaj mirteloj. Kiel volonte en tiu momento mi
 
 estus abelo aŭ lacerto; tiam mi trovus abundan nutraĵon kaj
 
@@ -10058,9 +8059,7 @@ rifuĝejon. Sed mi estis homa estaĵo kaj havis la bezonojn de
 
 homa estaĵo. Mi ne povis resti tie, kie mi trovis nenion por
 
-kontentigi min. Mi ekstaris kaj rigardis malsupren al la kuŝe-
-
-jo, kie mi pasigis la nokton. Ne sentante esperon je la eston-
+kontentigi min. Mi ekstaris kaj rigardis malsupren al la kuŝejo, kie mi pasigis la nokton. Ne sentante esperon je la eston-
 
 teco, mi havis nur unu deziron: ke mia Kreinto trovu bone
 
@@ -10068,9 +8067,7 @@ repostuli mian animon dum mia dormo en la pasinta nokto;
 
 kaj ke mia laca korpo, liberigita de ĉiu plua batalado kontraŭ
 
-la sorto, nun kviete povu miksi sian polvon kun ĉi tiu dezer-
-
-to. Sed la vivo ankoraŭ ĉiam apartenis al mi! La vivo kun siaj
+la sorto, nun kviete povu miksi sian polvon kun ĉi tiu dezerto. Sed la vivo ankoraŭ ĉiam apartenis al mi! La vivo kun siaj
 
 necesaĵoj, respondeco kaj mizeroj. La ŝarĝo devis esti portata,
 
@@ -10082,9 +8079,7 @@ Mi ekvojiris.
 
 Ree atinginte Whitcross, mi sekvis vojon kondukantan for
 
-de la suno, kiu nun staris alte kaj arde lumis malsupren. Ali-
-
-an vojon mi ne povis elekti. Longe mi iris antaŭen, kaj fine
+de la suno, kiu nun staris alte kaj arde lumis malsupren. Alian vojon mi ne povis elekti. Longe mi iris antaŭen, kaj fine
 
 pensante, ke mi plenumis sufiĉe kaj kun bona konscienco
 
@@ -10092,39 +8087,24 @@ povas cedi al la laceco, kiu preskaŭ superregis min — mi
 
 aŭdis sonojn de tursonorilo.
 
-Mi iris en la direkton de la sonoj, kaj tie, inter la romanti-
-
-kaj montetoj, kies alternon kaj belecon mi ne plu admiris, mi
+Mi iris en la direkton de la sonoj, kaj tie, inter la romantikaj montetoj, kies alternon kaj belecon mi ne plu admiris, mi
 
 ekvidis vilaĝeton kaj preĝejturon. La tuta valo je mia dekstra
 
 
-JANE EYRE
+flanko estis plena de paŝtejoj, grenkampoj kaj arbaroj, brilanta rivero fluis zigzage tra la diversaj nuancoj de la herbejoj, la
 
-
-flanko estis plena de paŝtejoj, grenkampoj kaj arbaroj, brilan-
-
-ta rivero fluis zigzage tra la diversaj nuancoj de la herbejoj, la
-
-maturiĝanta greno, la odorantaj arbaroj kaj la helaj sunple-
-
-naj kampoj. La laŭta rulbruo de radoj direktis miajn pensojn
+maturiĝanta greno, la odorantaj arbaroj kaj la helaj sunplenaj kampoj. La laŭta rulbruo de radoj direktis miajn pensojn
 
 ree al la antaŭ mi kuŝanta vojo. Mi vidis altŝarĝitan veturilon
 
 rampi kontraŭ monteto kaj, malproksime post ĝi du bovinojn
 
-kun pelanto. Sekve homoj kaj homa laboro estas en la prok-
+kun pelanto. Sekve homoj kaj homa laboro estas en la proksimo. Mi nun devis treniĝi plu kaj klopodi vivi kaj labori kiel
 
-simo. Mi nun devis treniĝi plu kaj klopodi vivi kaj labori kiel
+la aliaj. Je la kvara horo en la posttagmezo mi venis en la vilaĝon. ĉe la fino de ĝia sola strato estis malgranda butiko kun
 
-la aliaj. Je la kvara horo en la posttagmezo mi venis en la vila-
-
-ĝon. ĉe la fino de ĝia sola strato estis malgranda butiko kun
-
-kelkaj bulkoj kaj panoj malantaŭ la fenestro. Mi sopiris pan-
-
-bulkon. Per tia refreŝigo mi eble sukcesus reakiri ian gradon
+kelkaj bulkoj kaj panoj malantaŭ la fenestro. Mi sopiris panbulkon. Per tia refreŝigo mi eble sukcesus reakiri ian gradon
 
 de energio; sen ĝi estus al mi neeble iri pluen. La deziro al
 
@@ -10146,9 +8126,7 @@ akceptos unu el tiuj objektoj; verŝajne ili malakceptos — sed
 
 mi devis klopodi.
 
-Mi eniris la butikon. En ĝi estis virino. Vidante bone vest-
-
-itan personon, kiu aspektis kiel sinjorino, ŝi kondutis tre ĝen-
+Mi eniris la butikon. En ĝi estis virino. Vidante bone vestitan personon, kiu aspektis kiel sinjorino, ŝi kondutis tre ĝen-
 
 tile. ŝi demandis per kio ŝi povos servi al mi. Min ekregis
 
@@ -10156,14 +8134,9 @@ granda honto. Mia lango ne povis balbuti la preparitan peton.
 
 Mi ne kuraĝis oferi la preskaŭ eluzitajn tukon kaj gantojn.
 
-Krome mi komprenis, ke estas malsaĝe. Mi petis nur la per-
-
-meson sidiĝi momenton, ĉar mi estis tre laca. Trompita en
+Krome mi komprenis, ke estas malsaĝe. Mi petis nur la permeson sidiĝi momenton, ĉar mi estis tre laca. Trompita en
 
 siaj atendoj ŝi konsentis mian peton tre malvarme. ŝi fingre
-
-
-JANE EYRE
 
 
 montris seĝon, mi falsidiĝis sur ĝin. Mi estis eksplodonta je
@@ -10178,9 +8151,7 @@ aŭ tiuspeca metiistino.
 
 Jes, du aŭ tri. uste tiom, kiuj povis trovi tie laboron.
 
-Mi pripensis. Mi atingis la ekstremon. Mi nun staris viza-
-
-ĝon kontraŭ vizaĝo antaŭ la mizero. Mi ne havis plu helpri-
+Mi pripensis. Mi atingis la ekstremon. Mi nun staris vizaĝon kontraŭ vizaĝo antaŭ la mizero. Mi ne havis plu helpri-
 
 medojn! neniun amikon! neniun monon! Io tamen devos esti
 
@@ -10196,9 +8167,7 @@ servistinon.
 
 multaj homoj gajnas sian vivopanon?”
 
-”Kelkaj estas kamparanoj; multaj laboras en la kudril-fabri-
-
-ko de sinjoro Oliver kaj en la fandejo.”
+”Kelkaj estas kamparanoj; multaj laboras en la kudril-fabriko de sinjoro Oliver kaj en la fandejo.”
 
 ”ĉu sinjoro Oliver akceptas ankaŭ virinojn por labori?”
 
@@ -10216,18 +8185,13 @@ havis ĝeni ŝin per ili? Du najbarinoj eniris. Okulŝajne oni
 
 bezonis mian seĝon kaj mi foriris. Mi supreniris la straton kaj
 
-rigardis ĉiun domon dekstre kaj maldekstre. Sed mi povis tro-
-
-vi neniun pretekston por eniri en iun el ili. Mi vagis kelkan
+rigardis ĉiun domon dekstre kaj maldekstre. Sed mi povis trovi neniun pretekston por eniri en iun el ili. Mi vagis kelkan
 
 tempon en la vilaĝo; poste mi denove eliris ĝin, sed horon pli
 
 malfrue mi revenis en ĝin. Tute laciĝinte kaj suferante pro
 
 malsato, mi sekvis vojon kun kreskaĵbariloj kaj eksidis ĉe la
-
-
-JANE EYRE
 
 
 vojflanko. Sed nur malmultaj minutoj pasis, kiam ree mi
@@ -10238,9 +8202,7 @@ dometo kun ĝardeno antaŭ si staris je la fino de la vojo; la
 
 ĝardeno estis eksterordinare lerte aranĝita kaj estis plena de
 
-la plej belaj floroj. Mi haltis antaŭ ĝi. Kiel mi kuraĝus prok-
-
-simiĝi al la blanka pordo aŭ tuŝi la brilantan frapilon? Kiel la
+la plej belaj floroj. Mi haltis antaŭ ĝi. Kiel mi kuraĝus proksimiĝi al la blanka pordo aŭ tuŝi la brilantan frapilon? Kiel la
 
 loĝanto iel povus senti intereson, esti servema al mi? Malgraŭ
 
@@ -10248,9 +8210,7 @@ tio mi proksimiĝis kaj frapis. Pure vestita, juna virino kun
 
 mildaj vizaĝtrajtoj malfermis al mi la pordon. Per voĉo, kiu
 
-konjektigis senesperan koron kaj malsanan korpon — mal-
-
-laŭta, balbutanta voĉo — mi demandis, ĉu oni bezonas ser-
+konjektigis senesperan koron kaj malsanan korpon — mallaŭta, balbutanta voĉo — mi demandis, ĉu oni bezonas ser-
 
 vistinon.
 
@@ -10268,17 +8228,13 @@ Krom tio, kiel dubaj nepre ŝajnos al ŝi mia karaktero, mia
 
 situacio, mia rakonto. ŝi kapneis dirante, ke ŝi tre bedaŭras ne
 
-povi doni al mi informojn, kaj la blanka pordo fermiĝis sen-
-
-brue kaj ĝentile, sed mi staris ekstere! Se ŝi ne tiel baldaŭ
+povi doni al mi informojn, kaj la blanka pordo fermiĝis senbrue kaj ĝentile, sed mi staris ekstere! Se ŝi ne tiel baldaŭ
 
 estus ferminta la pordon, mi kredas, ke mi estis petinta pecon
 
 da pano, ĉar mi atingis la ekstremon.
 
-Mi ne povis elteni la penson, ke mi devos reiri en la mal-
-
-puran vilaĝon, kie krome por mi ne estos trovebla ia helpo.
+Mi ne povis elteni la penson, ke mi devos reiri en la malpuran vilaĝon, kie krome por mi ne estos trovebla ia helpo.
 
 Pli volonte mi forkurus en la arbaron, kiun mi vidis ne tro
 
@@ -10287,9 +8243,6 @@ malproksime kaj kiu ŝajnis promesi al mi protekton en sia
 malluma ombro, sed mi estis tiel malsana, tiel malforta, tiel
 
 martirigita de la natura aspiro al nutraĵo, ke daŭre mi restis
-
-
-JANE EYRE
 
 
 en la proksimeco de domoj, kie eble mi povus akiri peceton
@@ -10304,15 +8257,11 @@ forpelita de la konscio, ke mi ne rajtas almozpeti — nek por
 
 atendi, ke iu sentas intereson pri mia senesperiga situacio.
 
-Intertempe la posttagmezo iris al sia fino dum mi kiel erar-
-
-vagadanta, perdita kaj senmastra hundo iris de loko al loko.
+Intertempe la posttagmezo iris al sia fino dum mi kiel erarvagadanta, perdita kaj senmastra hundo iris de loko al loko.
 
 Irante trans kampon, mi vidis antaŭ mi preĝejoturon: mi
 
-rapidis tien. Apud tombejo, meze de ĝardeno staris malgran-
-
-da sed bele konstruita domo, kiun mi tuj rigardis kiel la pas-
+rapidis tien. Apud tombejo, meze de ĝardeno staris malgranda sed bele konstruita domo, kiun mi tuj rigardis kiel la pas-
 
 tran loĝejon. Min trafis la penso, ke fremduloj, venantaj en
 
@@ -10322,9 +8271,7 @@ konas, kelkfoje sin turnas al la pastro por peti helpon. Estas
 
 ja la devo de pastro helpi al tiuj — almenaŭ per sia konsilo —
 
-kiuj volas helpi sin mem. ŝajnis al mi, kvazaŭ mi havas la raj-
-
-ton, serĉi tie konsilon. Mia kuraĝo per tio denove reviviĝis kaj
+kiuj volas helpi sin mem. ŝajnis al mi, kvazaŭ mi havas la rajton, serĉi tie konsilon. Mia kuraĝo per tio denove reviviĝis kaj
 
 kolektinte miajn lastajn fortojn, mi iris pluen. Mi atingis la
 
@@ -10346,14 +8293,9 @@ Mi demandis, ĉu ĉi tio estas la pastra domo.
 
 ”Tre malproksime?”
 
-”Ne tre malproksime — eble tri mejlojn. Pro la subita mor-
-
-to de sia patro li estis vokita tien; nuntempe li estas en Marsh
+”Ne tre malproksime — eble tri mejlojn. Pro la subita morto de sia patro li estis vokita tien; nuntempe li estas en Marsh
 
 End kaj restos tie eble ankoraŭ dekkvar tagojn.
-
-
-JANE EYRE
 
 
 ”ĉu la mastrino ne estas hejme?”
@@ -10366,17 +8308,13 @@ preskaŭ ĵetis min teren. Ankoraŭ mi ne kapablis almozpeti.
 
 Mi faletis pluen.
 
-Refoje mi demetis de mi la malgrandan koltukon — refo-
-
-je mi pensis pri la panetoj malantaŭ la butikfenestro en la
+Refoje mi demetis de mi la malgrandan koltukon — refoje mi pensis pri la panetoj malantaŭ la butikfenestro en la
 
 vilaĝo. Ho, se mi havu nur pecon da pano! Nur peceton por
 
 esti savata de la terura malsatmorto! Instinkte mi ree turnis
 
-la vizaĝon al la vilaĝo; mi trovis la butikon kaj eniris, kaj kvan-
-
-kam krom la bakistino ankoraŭ aliaj homoj estis tie, mi tamen
+la vizaĝon al la vilaĝo; mi trovis la butikon kaj eniris, kaj kvankam krom la bakistino ankoraŭ aliaj homoj estis tie, mi tamen
 
 kuraĝis peti, ĉu ŝi ne volas doni al mi paneton interŝanĝe de
 
@@ -10396,9 +8334,7 @@ diris.
 
 ”Ne! kion ŝi do farus kun ili?”
 
-Mia leganto, ne estas agrable rakonti kaj aŭskulti tiujn de-
-
-talojn. Estas homoj, kiuj certigas, ke kaŭzas ĝojon rerigardi al
+Mia leganto, ne estas agrable rakonti kaj aŭskulti tiujn detalojn. Estas homoj, kiuj certigas, ke kaŭzas ĝojon rerigardi al
 
 turmentplenaj spertoj de la estinteco; sed ĝis la hodiaŭa tago
 
@@ -10406,18 +8342,11 @@ estas al mi dolorige rerigardi al la tempo, pri kiu mi parolas.
 
 La moralaj degradigo kune kun la fizika sufero formas tro
 
-malĝojigan rememoron por volonte paroli pri ili. Mi mallaŭ-
+malĝojigan rememoron por volonte paroli pri ili. Mi mallaŭdis neniun el tiuj, kiuj rifuzis al mi. Mi sentis, ke mi povas nur
 
-dis neniun el tiuj, kiuj rifuzis al mi. Mi sentis, ke mi povas nur
-
-atendi rifuzon kaj ke tio ne estis aliigebla. Ordinara ĉifonves-
-
-tita almozulo estas ofte objekto de malfido; bonevestita almo-
+atendi rifuzon kaj ke tio ne estis aliigebla. Ordinara ĉifonvestita almozulo estas ofte objekto de malfido; bonevestita almo-
 
 zulo estas ĉiam kaj sub ĉiuj cirkonstancoj io malfidinda.
-
-
-JANE EYRE
 
 
 ĉiuokaze mi petis nur laboron; sed kies afero tio estis, doni
@@ -10436,17 +8365,13 @@ daŭrigi. La temo naŭzas min.
 
 Mallonge antaŭ ol mallumiĝis mi pasis bieneton, apud kies
 
-malfermita pordo sidis farmisto, kiu manĝis sian vesperman-
-
-ĝon konsistanta el pano kaj fromaĝo. Mi haltis kaj diris:
+malfermita pordo sidis farmisto, kiu manĝis sian vespermanĝon konsistanta el pano kaj fromaĝo. Mi haltis kaj diris:
 
 ”ĉu vi volas doni al mi panpecon? Mi estas tre malsata.”
 
 Mirigite li rigardis min; sed ne respondante, li tranĉis de sia
 
-pano pecegon kaj donis ĝin al mi. Mi supozis, ke li ne rigar-
-
-das min kiel almozulinon, sed nur kiel strangulinon, kiun
+pano pecegon kaj donis ĝin al mi. Mi supozis, ke li ne rigardas min kiel almozulinon, sed nur kiel strangulinon, kiun
 
 subite atakis la deziro manĝi pecon da nigra pano. Tuj kiam
 
@@ -10464,9 +8389,7 @@ la aero malvarma; krom tio entruduloj ofte pasis min kaj ĉiam
 
 denove mi devis serĉi alian kuŝejon. Neniu sento de ripozo aŭ
 
-sendanĝereco regis min. En la mateno pluvis. La tutan sek-
-
-vintan tagon la vetero estis malseke malvarma. Ne petu al mi,
+sendanĝereco regis min. En la mateno pluvis. La tutan sekvintan tagon la vetero estis malseke malvarma. Ne petu al mi,
 
 kara leganto, ke mi akurate sciigu pri tiu tago; kiel antaŭe mi
 
@@ -10474,14 +8397,9 @@ serĉis laboron; kiel antaŭe oni malakceptis min; kiel antaŭe
 
 mi malsatis; nur unu fojon manĝaĵo tuŝis miajn lipojn. Apud
 
-pordo de kabano mi vidis knabineton, kiu estis verŝonta tele-
-
-ron da malvarma kaĉo en trogon de porkejo.
+pordo de kabano mi vidis knabineton, kiu estis verŝonta teleron da malvarma kaĉo en trogon de porkejo.
 
 ”ĉu vi volas doni tion al mi?” mi petis.
-
-
-JANE EYRE
 
 
 ŝi mirigite rigardis min, poste ŝi kriis:
@@ -10502,50 +8420,31 @@ soleca rajdvojo, kiun mi sekvis jam pli longe ol unu horon.
 
 ”Miaj fortoj min nun tute forlasas,” mi diris monologe. ”Mi
 
-sentas, ke mi ne povos iri pluen. ĉu mi estos ree senhejmu-
+sentas, ke mi ne povos iri pluen. ĉu mi estos ree senhejmulino ĉi tiun nokton? ĉu mi devos meti mian kapon sur la mal-
 
-lino ĉi tiun nokton? ĉu mi devos meti mian kapon sur la mal-
-
-varman, malsekan teron dum la pluvo rivere fluas malsup-
-
-ren? Mi timis, ke tio estos neevitebla, ĉar kiu akceptos min en
+varman, malsekan teron dum la pluvo rivere fluas malsupren? Mi timis, ke tio estos neevitebla, ĉar kiu akceptos min en
 
 sian hejmon? Sed estus terure, kun ĉi tiu sento de malsato, de
 
-senforteco, de malvarmo, de senkonsoleco — de ĉi tiu kom-
+senforteco, de malvarmo, de senkonsoleco — de ĉi tiu kompleta neniigo de ĉiu espero. Laŭŝajne mi mortos ankoraŭ
 
-pleta neniigo de ĉiu espero. Laŭŝajne mi mortos ankoraŭ
-
-antaŭ tagiĝo. Kaj kiel do mi ne povas repaciĝi kun la perspek-
-
-tivo je la morto? Kial mi luktis por daŭrigi tian senvaloran
+antaŭ tagiĝo. Kaj kiel do mi ne povas repaciĝi kun la perspektivo je la morto? Kial mi luktis por daŭrigi tian senvaloran
 
 vivon? ĉar mi scias aŭ kredas, ke sinjoro Rochester vivas
 
-ankoraŭ! Kaj tiam morti pro malsato kaj malvarmo estas sor-
+ankoraŭ! Kaj tiam morti pro malsato kaj malvarmo estas sorto, al kiu la homa karaktero ne submetiĝas kviete.
 
-to, al kiu la homa karaktero ne submetiĝas kviete.
+Ho providenco! subtenu min ankoraŭ kelkan tempon! Helpu al mi! Konduku min!
 
-Ho providenco! subtenu min ankoraŭ kelkan tempon! Hel-
-
-pu al mi! Konduku min!
-
-Miaj malĝojaj okuloj vagis trans la nebulan, malsekan pej-
-
-zaĝon. Mi vidis, ke mi vagis malproksimen de la vilaĝo; ĝi tute
+Miaj malĝojaj okuloj vagis trans la nebulan, malsekan pejzaĝon. Mi vidis, ke mi vagis malproksimen de la vilaĝo; ĝi tute
 
 malaperis antaŭ miaj rigardoj. Sur vojkruciĝoj kaj flankvojoj
 
 mi alproksimiĝis ree al la marĉejo; nun kuŝis inter mi kaj la
 
-nebulkovritaj montoj malmultaj kampoj, preskaŭ same sova-
-
-ĝaj kaj senfruktkaj kiel la erikejo, al kiu ili antaŭ nelonge estis
+nebulkovritaj montoj malmultaj kampoj, preskaŭ same sovaĝaj kaj senfruktkaj kiel la erikejo, al kiu ili antaŭ nelonge estis
 
 forrabitaj.
-
-
-JANE EYRE
 
 
 ”Pli volonte mi volos morti tie supre, ol apud la landvojo
@@ -10554,9 +8453,7 @@ aŭ apud movoplena vojo,” mi pensis. ”Kaj pli bone, multe pli
 
 bone estas, ke kornikoj kaj korvoj — se korvoj vivas en ĉi tiuj
 
-regionoj —ŝiras la karnon de miaj ostoj, ol ke ili estos meta-
-
-taj en ĉerkon de malriĉulejo kaj forputros en malriĉuleja tom-
+regionoj —ŝiras la karnon de miaj ostoj, ol ke ili estos metataj en ĉerkon de malriĉulejo kaj forputros en malriĉuleja tom-
 
 bo.
 
@@ -10566,9 +8463,7 @@ mi la tasko trovi kavernon por kaŝi min en ĝi, kvankam ankaŭ
 
 tie mi ne estus sendanĝera. Sed la tuta supraĵo de la sovaĝejo
 
-aspektis ebena. i montris nur unu alternon, la verdan kolo-
-
-ron, kie junkoj kaj musko kovris la marĉejon kaj la nigran, kie
+aspektis ebena. i montris nur unu alternon, la verdan koloron, kie junkoj kaj musko kovris la marĉejon kaj la nigran, kie
 
 la tero produktis nur erikojn.
 
@@ -10592,15 +8487,11 @@ baldaŭ ree malaperos. i hele brulis, sed restis sur la sama
 
 loko. ”ĉu tio estas ĵus ekbruligita ĝojofajro?” mi demandis. Mi
 
-fikse rigardis ĝin por vidi, ĉu ĝi estingiĝos; sed ne, ĝi nek pli-
-
-grandiĝis nek plimalgrandiĝis.
+fikse rigardis ĝin por vidi, ĉu ĝi estingiĝos; sed ne, ĝi nek pligrandiĝis nek plimalgrandiĝis.
 
 ”i estas kandelolumo el iu domo,” mi poste supozis, ”sed
 
-kio ajn ĝi estu, mi ne povus tamen atingi ĝin, ĝi estas tro mal-
-
-proksima. Kaj eĉ se ĝi estus je jarda distanco, al kio tio utilis?
+kio ajn ĝi estu, mi ne povus tamen atingi ĝin, ĝi estas tro malproksima. Kaj eĉ se ĝi estus je jarda distanco, al kio tio utilis?
 
 Mi ja frapus nur al pordo por sperti, ke ĝi estos ree ŝlosita al
 
@@ -10609,18 +8500,11 @@ mi.”
 Mi falis sur la lokon, kie mi staris kaj premis la vizaĝon al
 
 
-JANE EYRE
-
-
 la tero. Momenton mi kuŝis senmove. La nokta vento blovis
 
-sur min kaj la monteton kaj formortis ĝemante en la perspek-
+sur min kaj la monteton kaj formortis ĝemante en la perspektivon. Senhalte la pluvo falis kaj malsekigis min ĝis mia kor-
 
-tivon. Senhalte la pluvo falis kaj malsekigis min ĝis mia kor-
-
-po. Se mi nur povus rigidiĝi en la amika, kompatema malvar-
-
-mo de la morto — tiam ĝi estus bonvena al mi kaj mi ne sen-
+po. Se mi nur povus rigidiĝi en la amika, kompatema malvarmo de la morto — tiam ĝi estus bonvena al mi kaj mi ne sen-
 
 tus ĝin; sed mia vivo-varma korpo frostotreme kuntiriĝis sub
 
@@ -10636,9 +8520,7 @@ korpomembrojn malrapide renkonte al ĝi. i kondukis min
 
 oblikve trans la monteton tra vasta marĉo, kiu en la vintro
 
-estas netransirebla kaj eĉ nun en la malfrua somero estis mal-
-
-seka kaj nevidebla. Mi falis du fojojn. Sed ankaŭ du fojojn mi
+estas netransirebla kaj eĉ nun en la malfrua somero estis malseka kaj nevidebla. Mi falis du fojojn. Sed ankaŭ du fojojn mi
 
 leviĝis kaj denove kolektis la reston de miaj fortoj. Tiu lumo
 
@@ -10654,17 +8536,13 @@ kondukanta rekte al la lumo, kiu nun de sur iu pinto aŭ supro
 
 lumis renkonte al mi inter grupo da arboj. La arboj, kiom mi
 
-povis distingi ilin en la mallumo, estis abioj. Kiam mi alprok-
-
-simiĝis, malaperis mia stelo; iel malhelpo stariĝis inter ni. Mi
+povis distingi ilin en la mallumo, estis abioj. Kiam mi alproksimiĝis, malaperis mia stelo; iel malhelpo stariĝis inter ni. Mi
 
 etendis la manojn, por senti antaŭ mi la malhelan mason; mi
 
 tuŝis la malglatajn ŝtonojn de malalta muro — super ĝi estis
 
-io, simila al palisaro kaj plue mi sentis altan dornan plekto-
-
-barilon. Mi palpis pli malproksimen. Denove lumis antaŭ mi
+io, simila al palisaro kaj plue mi sentis altan dornan plektobarilon. Mi palpis pli malproksimen. Denove lumis antaŭ mi
 
 blanka objekto; ĝi estis pordo — pordego; ĝi moviĝis sur siaj
 
@@ -10673,20 +8551,13 @@ hokoj, kiam mi tuŝis ĝin. ĉe ĉiu flanko staris nigra arbetaĵo —
 ilekso aŭ taksuso.
 
 
-JANE EYRE
-
-
-Kiam mi trairis la pordegon kaj preteriris la arbetaĵon, levi-
-
-ĝis antaŭ miaj rigardoj la silueto de domo. i estis nigra, mal-
+Kiam mi trairis la pordegon kaj preteriris la arbetaĵon, leviĝis antaŭ miaj rigardoj la silueto de domo. i estis nigra, mal-
 
 alta kaj sufiĉe longa; sed la savanta lumo lumis plu nenie. ĉio
 
 dronis en mallumo. ĉu la loĝantoj jam enlitiĝis? Mi timis, ke
 
-estas tiel. Serĉante la pordon, mi turnis angulon; jen la ami-
-
-ka lumstrio denove aperis lumante renkonte al mi el la longaj
+estas tiel. Serĉante la pordon, mi turnis angulon; jen la amika lumstrio denove aperis lumante renkonte al mi el la longaj
 
 vitroj de malgranda kradhava fenestro, nur unu futon super
 
@@ -10694,21 +8565,15 @@ la tero; ĝi ŝajnis ankoraŭ pli malgranda pro la branĉoj de
 
 hedero aŭ ia alia grimpa kreskaĵo, kies folioj kovris preskaŭ
 
-la tutan parton de la domo, en kiu troviĝis ĉi tiu fenestro-
-
-kavaĵo. La malfermaĵo estis tiel kovrita de verdaĵo kaj tiel mal-
+la tutan parton de la domo, en kiu troviĝis ĉi tiu fenestrokavaĵo. La malfermaĵo estis tiel kovrita de verdaĵo kaj tiel mal-
 
 larĝa, ke fenestrokurtenoj aŭ kovriloj estus tute superfluaj; kaj
 
 min klinante kaj ŝovinte flanken la verdaĵon, ni povis ĉion
 
-vidi, kio okazis interne. Klare mi vidis ĉambron kun frotpuri-
+vidi, kio okazis interne. Klare mi vidis ĉambron kun frotpurigita kaj sable ŝutita planko; telerbretaron el juglando, sur kiu
 
-gita kaj sable ŝutita planko; telerbretaron el juglando, sur kiu
-
-staris en longa vico stanaj teleroj tiel blankaj, ke la ruĝa rebri-
-
-lo de torfofajro spegulis sin en ili. Mi povis vidi horloĝon,
+staris en longa vico stanaj teleroj tiel blankaj, ke la ruĝa rebrilo de torfofajro spegulis sin en ili. Mi povis vidi horloĝon,
 
 blankan tablon el abia ligno kaj kelkajn seĝojn. La lumo, kies
 
@@ -10726,27 +8591,15 @@ multe vekis mian atenton, ĉar ĝi montris sin al miaj okuloj en
 
 rozkolora paco kaj agrabla varmo. Du junaj, ĉarmaj virinaj
 
-estaĵoj — ĉiuokaze sinjorinoj aŭ fraŭlinoj — sidis, unu en lul-
+estaĵoj — ĉiuokaze sinjorinoj aŭ fraŭlinoj — sidis, unu en lulseĝo, alia sur malalta benketo; ambaŭ estis funebre vestitaj
 
-seĝo, alia sur malalta benketo; ambaŭ estis funebre vestitaj
+per krepo kaj bombazino; tiuj malhelaj vestaĵoj des pli multe montris iliajn delikatajn nukojn kaj belajn vizaĝojn; gran-
 
-per krepo kaj bombazino; tiuj malhelaj vestaĵoj des pli mul-
-
-te montris iliajn delikatajn nukojn kaj belajn vizaĝojn; gran-
-
-da, maljuna perdrikhundo estis metinta sian kapon sur la ge-
-
-
-JANE EYRE
-
-
-nuojn de unu el la knabinoj; sur la genuoj de la alia kuŝis
+da, maljuna perdrikhundo estis metinta sian kapon sur la genuojn de unu el la knabinoj; sur la genuoj de la alia kuŝis
 
 nigra katino.
 
-ĉi tiu humila kuirejo estis stranga restadejo por tiaj loĝan-
-
-toj! Kiuj ili estis? Neeble ili estis la filinoj de tiu iom maljuna
+ĉi tiu humila kuirejo estis stranga restadejo por tiaj loĝantoj! Kiuj ili estis? Neeble ili estis la filinoj de tiu iom maljuna
 
 virino sidanta ĉetable; ĉar ŝi aspektis kiel kamparanino, kaj
 
@@ -10756,9 +8609,7 @@ antaŭe vidis vizaĝojn similaj al iliaj; tamen kiam mi rigardis
 
 ilin, mi konis ĉiujn vizaĝtrajtojn. Mi ne povas nomi ilin belaj,
 
-ili estis tro palaj kaj seriozaspektaj. Sidante tie, ĉiu klinita su-
-
-per libro, ili aspektis enpensaj kaj preskaŭ severaj.
+ili estis tro palaj kaj seriozaspektaj. Sidante tie, ĉiu klinita super libro, ili aspektis enpensaj kaj preskaŭ severaj.
 
 Kandelingotablo inter ili portis duan kandelon kaj du
 
@@ -10766,15 +8617,11 @@ dikajn librojn, kiujn ili ofte konsiliĝis; okulŝajne ili komparis
 
 tiujn libregojn kun la pli malgrandaj, kiujn ili havis en siaj
 
-manoj, kiel personoj uzantaj vortaron, kiu utilas en traduka-
-
-do. ĉi tiu bildo estis tiel kvieta kvazaŭ ĉiuj figuroj estis nur
+manoj, kiel personoj uzantaj vortaron, kiu utilas en tradukado. ĉi tiu bildo estis tiel kvieta kvazaŭ ĉiuj figuroj estis nur
 
 ombroj kaj la hele prilumita ĉambrobildo; ĉio estis tiel silenta,
 
-ke mi povis aŭdi la cindrojn fali tra la fajrokrado kaj la hor-
-
-loĝon tik-taki en la malluma angulo; mi eĉ imagis povi aŭdi
+ke mi povis aŭdi la cindrojn fali tra la fajrokrado kaj la horloĝon tik-taki en la malluma angulo; mi eĉ imagis povi aŭdi
 
 la klaketadon de la trikiloj de la maljuna virino. Kiam poste
 
@@ -10790,9 +8637,7 @@ rakontas sonĝon el kiu li kun teruro vekiĝas, jam aŭdu”. Kaj
 
 mallaŭtvoĉe ŝi legis ion, pri kio mi komprenis eĉ ne unu solan
 
-vorton; ĉar ŝi legis en al mi fremda lingvo — nek en la fran-
-
-ca nek en la latina. Mi ne povis diri, ĉu ŝi legis greke aŭ ger-
+vorton; ĉar ŝi legis en al mi fremda lingvo — nek en la franca nek en la latina. Mi ne povis diri, ĉu ŝi legis greke aŭ ger-
 
 mane.
 
@@ -10801,12 +8646,7 @@ mane.
 mi.”
 
 
-JANE EYRE
-
-
-La alia knabino, kiu estis levinta la kapon por aŭskulti la le-
-
-gadon, ripetis dum ŝi incitis la fajron, unu el la frazoj ĵus le-
+La alia knabino, kiu estis levinta la kapon por aŭskulti la legadon, ripetis dum ŝi incitis la fajron, unu el la frazoj ĵus le-
 
 gintaj. En postaj tagoj mi konatiĝis kun la lingvo kaj la libro;
 
@@ -10816,17 +8656,13 @@ aŭdis por la unua fojo, estis al mi nur kiel frapado sur tintanta
 
 metalo, kiu havis por mi neniun sencon:
 
-”Da trat hervor Einer, anzusehen wie die Sternennacht.” 1 Bo-
-
-ne! Bone! ekkriis ŝi, dum ŝiaj profundaj malhelaj okuloj ardis.
+”Da trat hervor Einer, anzusehen wie die Sternennacht.” 1 Bone! Bone! ekkriis ŝi, dum ŝiaj profundaj malhelaj okuloj ardis.
 
 ”Jen vi vidas staranta antaŭ vi potencan ĉefanĝelon en deca
 
 sinteno! ĉi tiu sola frazo valoras pli multon ol cent paĝoj da
 
-senenhavaj paroloj. ”Ich wäge die Gedanken in der Schale mei-
-
-nes Zorns und die Werke mit dem Gewichte meines Grimms!”2
+senenhavaj paroloj. ”Ich wäge die Gedanken in der Schale meines Zorns und die Werke mit dem Gewichte meines Grimms!”2
 
 Tio plaĉas al mi.
 
@@ -10846,9 +8682,7 @@ povas paroli unu kun alia; se unu el vi tien vojaĝus — ĉu vi
 
 kredas, ke vi povus kompreni ilin?”
 
-”Eble ni komprenus iomete de tio, kion la tieaj homoj pa-
-
-rolas, sed ne ĉion — ĉar ni ne estas tiel instruitaj kiel vi kre-
+”Eble ni komprenus iomete de tio, kion la tieaj homoj parolas, sed ne ĉion — ĉar ni ne estas tiel instruitaj kiel vi kre-
 
 das, Hanna. Ni ne parolas germane, kaj ni ne scias legi ĝin sen
 
@@ -10865,9 +8699,6 @@ helpo de vortaro.”
 pezo de mia furiozo!”
 
 
-JANE EYRE
-
-
 mentojn, kiel oni nomas tion; tiam ni perlaboros pli da mono
 
 ol ni povas nun.”
@@ -10876,9 +8707,7 @@ ol ni povas nun.”
 
 laboris sufiĉe.”
 
-”Tion mi kredas ankaŭ, ĉar mi estas laca. ĉu vi same, Ma-
-
-ria?”
+”Tion mi kredas ankaŭ, ĉar mi estas laca. ĉu vi same, Maria?”
 
 ”ismorte laca. Reale estas malfacila kaj enuiga laboro,
 
@@ -10890,9 +8719,7 @@ germana. Mi dezirus scii, kiam St. John venos hejmen.”
 
 ”Tre certe li ne forestos plu longe; estas preskaŭ la deka
 
-horo.” Dirante tion ŝi rigardis belan poŝhorloĝon, kiun ŝi elti-
-
-ris el la zono. ”Pluvas terure, Hanna, ĉu vi bonvolos iri por
+horo.” Dirante tion ŝi rigardis belan poŝhorloĝon, kiun ŝi eltiris el la zono. ”Pluvas terure, Hanna, ĉu vi bonvolos iri por
 
 ekzameni la fajron en la familia ĉambro?”
 
@@ -10908,9 +8735,7 @@ nun tiun ĉambron; ĝi aspektas tiel solece kaj forlasite pro la
 
 malplena seĝo, kiu staras nun en angulo!”
 
-ŝi sekigis per la antaŭtuko siajn okulojn. La du junaj kna-
-
-binoj, kiuj ĝis nun aspektis gravmiene, subite malĝojis.
+ŝi sekigis per la antaŭtuko siajn okulojn. La du junaj knabinoj, kiuj ĝis nun aspektis gravmiene, subite malĝojis.
 
 ”Sed li estas en pli bona loko,” parolis plue Hanna; ”mi ne
 
@@ -10918,18 +8743,13 @@ povus deziri lin returne. Krom tio, neniu mortis pli kviete ol
 
 li.”
 
-”Vi diras, ke li ne parolis pri ni?” diris unu el la junaj fraŭ-
-
-linoj.
+”Vi diras, ke li ne parolis pri ni?” diris unu el la junaj fraŭlinoj.
 
 ”Li ne havis la tempon, miaj infanoj, li ne havis la tempon
 
 fari tion; okazis en nur unu minuto, jes nur en unu minuto.
 
 Li ne sentis sin tiel sana, kiel la antaŭan tagon, sed li diris, ke
-
-
-JANE EYRE
 
 
 tio ne gravas; kaj kiam sinjoro St. John demandis al li, ĉu ni
@@ -10946,21 +8766,15 @@ kiam via frato eniris en lian ĉambron kaj trovis lin en tiu
 
 stato. Ve, miaj infanoj, li estis la lasta de la maljuna gento —
 
-ĉar vi kaj sinjoro St. John estas alispecaj ol tiuj, kiuj jam mor-
-
-tis. Via patrino ankaŭ estis tre simila al vi kaj estis preskaŭ
+ĉar vi kaj sinjoro St. John estas alispecaj ol tiuj, kiuj jam mortis. Via patrino ankaŭ estis tre simila al vi kaj estis preskaŭ
 
 same instruita. Vi estas ŝia portreto, Maria; Diana pli similas
 
 sian patron.
 
-Mi trovis ilin tiel similaj unu al alia, ke mi ne povis kom-
+Mi trovis ilin tiel similaj unu al alia, ke mi ne povis kompreni kiel la maljuna servistino (ĉar nun mi rigardis ŝin tia)
 
-preni kiel la maljuna servistino (ĉar nun mi rigardis ŝin tia)
-
-povas trovi diferencon inter ili. Ambaŭ havis delikatan vizaĝ-
-
-koloron kaj estis gracilongaj. Iliaj vizaĝoj montris inteligen-
+povas trovi diferencon inter ili. Ambaŭ havis delikatan vizaĝkoloron kaj estis gracilongaj. Iliaj vizaĝoj montris inteligen-
 
 ton kaj distingiĝon. La haroj de unu el ambaŭ estis iom pli
 
@@ -10976,27 +8790,17 @@ La deka horo sonis.
 
 ”Vi eble deziras vian vespermanĝon, ĉu ne?” demandis
 
-Hanna, ”kaj sinjoro St. John ankaŭ deziros sian, kiam li rehej-
-
-miĝos.”
+Hanna, ”kaj sinjoro St. John ankaŭ deziros sian, kiam li rehejmiĝos.”
 
 Kaj ŝi komencis pretigi la manĝotablon. is tiu momento
 
 mi tiel okupis min rigardante la virinojn — ilia interparolo tiel
 
-vekis mian intereson, ke mi preskaŭ forgesis pri mia senespe-
-
-ra stato. Subite mi denove pensis al ĝi. Pro la kontrasto ĝi
+vekis mian intereson, ke mi preskaŭ forgesis pri mia senespera stato. Subite mi denove pensis al ĝi. Pro la kontrasto ĝi
 
 ŝajnis al mi pli senkonsola, pli terura ol antaŭe. Kaj kiel neeble
 
-ŝajnis al mi inspiri al la loĝantoj de ĉi tiu domo iun kompa-
-
-
-JANE EYRE
-
-
-ton rilate al mi, kredigi al ili la veron pri miaj mizero kaj sufe-
+ŝajnis al mi inspiri al la loĝantoj de ĉi tiu domo iun kompaton rilate al mi, kredigi al ili la veron pri miaj mizero kaj sufe-
 
 roj por permesi al mi mallongan ripozon en sia hejmo!
 
@@ -11045,20 +8849,13 @@ Kion mi faru?”
 
 ”Ho! mi estas certa, ke vi bone scias, kien vi iru kaj kion vi
 
-faru. Atentu nur, ke vi ne plenumos ion kontraŭleĝan! Kro-
-
-me, tio ja ne tuŝas min. Jen, akceptu moneron kaj iru for —
+faru. Atentu nur, ke vi ne plenumos ion kontraŭleĝan! Krome, tio ja ne tuŝas min. Jen, akceptu moneron kaj iru for —
 
 —”
 
-”Moneron mi ne povas manĝi kaj mi ne havas plu la for-
-
-ton iri pluen. Ho! ne fermu al mi la pordon — ne faru tion!
+”Moneron mi ne povas manĝi kaj mi ne havas plu la forton iri pluen. Ho! ne fermu al mi la pordon — ne faru tion!
 
 Pro la volo de Dio, ne faru tion!
-
-
-JANE EYRE
 
 
 ”Mi devas; la pluvo falegas internen.”
@@ -11073,15 +8870,11 @@ vi ne farus tian bruon. Iru for!
 
 ”Sensencaĵo! Tiaj vaguloj ne mortas. Mi timas nur, ke vi
 
-havas malbonajn intencojn. Kial do vi ĉirkaŭvagas tiel mal-
-
-frue antaŭ la domoj de aliaj homoj? Se eble vi havas kunhel-
+havas malbonajn intencojn. Kial do vi ĉirkaŭvagas tiel malfrue antaŭ la domoj de aliaj homoj? Se eble vi havas kunhel-
 
 panton — rompŝteliston aŭ iun tian, tiam diru al li, ke ni ne
 
-estas solaj hejme; ni havas ĉi tie viron kaj hundon kaj pafi-
-
-lon.”
+estas solaj hejme; ni havas ĉi tie viron kaj hundon kaj pafilon.”
 
 Dirinte tion, la honesta sed nefleksebla servistino fermis
 
@@ -11089,21 +8882,13 @@ antaŭ mia nazo la pordon kaj riglis ĝin interne.
 
 Mia mizero atingis sian supron! La plej terura sufero —
 
-sento de vera malespero disŝiris mian koron. Miaj fortoj es-
+sento de vera malespero disŝiris mian koron. Miaj fortoj estis elĉerpitaj; mi ne povis fari plu unu paŝon. Mi falis sur la
 
-tis elĉerpitaj; mi ne povis fari plu unu paŝon. Mi falis sur la
+ŝtonan ŝtuparon; mi ĝemis, mi tordis miajn manojn — mi ploris en mia morta angoro. Ho! tiu fantomo de la morto! Ho, tiu
 
-ŝtonan ŝtuparon; mi ĝemis, mi tordis miajn manojn — mi plo-
+lasta horo, kiu proksimiĝis kun siaj teruroj! Ho, tiu forlasiteco — tiu forpelado de miaj kunhomoj! Ne nur la firman
 
-ris en mia morta angoro. Ho! tiu fantomo de la morto! Ho, tiu
-
-lasta horo, kiu proksimiĝis kun siaj teruroj! Ho, tiu forlasite-
-
-co — tiu forpelado de miaj kunhomoj! Ne nur la firman
-
-ankron de hejmo, sed ankaŭ tutan mian animforton mi per-
-
-dis, sed nur por unu momento. Sed mi penis reakiri tiun las-
+ankron de hejmo, sed ankaŭ tutan mian animforton mi perdis, sed nur por unu momento. Sed mi penis reakiri tiun las-
 
 tan.
 
@@ -11113,23 +8898,16 @@ Dio. Mi penu sindone atendi Lian volon.”
 
 Tiujn parolojn mi ne nur pensis, sed mi diris ilin; kaj
 
-repuŝante mian tutan mizeron en mian koron, mi penis rete-
-
-ni ĝin tie kaj resti senparola kaj silenta.
+repuŝante mian tutan mizeron en mian koron, mi penis reteni ĝin tie kaj resti senparola kaj silenta.
 
 ”ĉiu homo devas morti,” diris voĉo apud mi; ”sed ne ĉiuj
-
-
-JANE EYRE
 
 
 estas kondamnitaj trovi malrapidan aŭ antaŭtempan morton,
 
 kiel estus via, se vi pereus ĉi tie pro manko.”
 
-”Kio aŭ kiu parolas?” mi demandis kun teruro, aŭdante ti-
-
-ujn neatenditajn vortojn; ĉar mi ne estis plu kapabla ĉerpi es-
+”Kio aŭ kiu parolas?” mi demandis kun teruro, aŭdante tiujn neatenditajn vortojn; ĉar mi ne estis plu kapabla ĉerpi es-
 
 peron je helpo el iu ajn cirkonstanco. Figuro estis proksima
 
@@ -11143,13 +8921,9 @@ noveveninto sin anoncis ĉe la pordo.
 
 ”Jes, malfermu rapide.”
 
-”Ho, kara ĉielo, kiel malvarme estas al vi kaj kiel vi mal-
+”Ho, kara ĉielo, kiel malvarme estas al vi kaj kiel vi malsekiĝis pro tia nokto! Tuj eniru! Viaj fratinoj sentas grandan
 
-sekiĝis pro tia nokto! Tuj eniru! Viaj fratinoj sentas grandan
-
-timon pro vi. Kaj mi vere kredas, ke ĉirkaŭvagas tie malbon-
-
-faristoj. Almozulino estis ĉi tie — sed en vero, ŝi ankoraŭ ne
+timon pro vi. Kaj mi vere kredas, ke ĉirkaŭvagas tie malbonfaristoj. Almozulino estis ĉi tie — sed en vero, ŝi ankoraŭ ne
 
 foriris! — eĉ kuŝiĝis ĉi tie! Leviĝu do! Estas honto. Iru for! mi
 
@@ -11184,9 +8958,6 @@ mirigite rigardis min.
 ”Mi ne scias. Mi trovis ŝin antaŭ la pordo,” li respondis.
 
 
-JANE EYRE
-
-
 ”ŝi aspektas tre pala,” diris Hanna.
 
 ”Pala kiel la morto,” respondis alia, ”ŝi falos, sidigu ŝin.”
@@ -11197,9 +8968,7 @@ ankoraŭ ne svenis, kvankam mi ne kapablis paroli.
 
 ”Eble iom da freŝa akvo revivigos ŝin. Hanna, alportu iom.
 
-Sed ŝi tute malfortiĝis. Kiel maldika ŝi estas! Eĉ ne unu sango-
-
-guto estas plu en ŝiaj vangoj!”
+Sed ŝi tute malfortiĝis. Kiel maldika ŝi estas! Eĉ ne unu sangoguto estas plu en ŝiaj vangoj!”
 
 ”Vera fantomo!”
 
@@ -11219,9 +8988,7 @@ antaŭ miaj lipoj. ŝia vizaĝo estis tute proksime al mia. Mi
 
 vidis sur ĝi ŝian kompaton kaj pro ŝiaj rapidaj spiroj mi sentis
 
-simpation. El ŝiaj simplaj paroloj montriĝis same la balzam-
-
-simila emocio, kiam ŝi diris: ”Provu manĝi.” ”Jes, provu,”
+simpation. El ŝiaj simplaj paroloj montriĝis same la balzamsimila emocio, kiam ŝi diris: ”Provu manĝi.” ”Jes, provu,”
 
 ripetis Maria, kaj la mano de Maria forigis mian malsekegan
 
@@ -11229,24 +8996,17 @@ ripetis Maria, kaj la mano de Maria forigis mian malsekegan
 
 poste avide, kion ili al mi oferis.
 
-”Ne tiom per unu fojo — retenu ŝin,” diris la frato, ”ŝi man-
-
-ĝis sufiĉe.” Kaj li forprenis la tason kun la lakto kaj la teleron
+”Ne tiom per unu fojo — retenu ŝin,” diris la frato, ”ŝi manĝis sufiĉe.” Kaj li forprenis la tason kun la lakto kaj la teleron
 
 kun pano.
 
-”Ankoraŭ iomete, St. John — rigardu do la timeman avide-
-
-con en ŝiaj okuloj.”
+”Ankoraŭ iomete, St. John — rigardu do la timeman avidecon en ŝiaj okuloj.”
 
 ”Atendu momenton, fratino. Ni klopodos ŝin paroligi —
 
 demandu pri ŝia nomo.”
 
 Mi sentis, ke mi kapablas paroli kaj mi respondis:
-
-
-JANE EYRE
 
 
 ”Mia nomo estas Jane Elliot.” Mi decidis ne diri mian
@@ -11275,9 +9035,7 @@ ekzilita de la tuta mondo. Mi havis la kuraĝon formeti de mi
 
 la rolon de almozulino, kaj repreni miajn naturajn manierojn
 
-kaj karakteron. Mi komencis rekoni min mem. Kaj kiam sin-
-
-joro St. John deziris de mi sciigojn — kiujn mi pro malforte-
+kaj karakteron. Mi komencis rekoni min mem. Kaj kiam sinjoro St. John deziris de mi sciigojn — kiujn mi pro malforte-
 
 co ankoraŭ ne povis doni — mi diris post mallonga paŭzo:
 
@@ -11297,20 +9055,13 @@ doni mallongajn respondojn. Diana ekparolis:
 
 helpon, kiun vi bezonas?” ŝi demandis, ”kaj ke ni povos nun
 
-lasi foriri vin eksteren en pluvon kaj sur la malsekan mar-
-
-ĉon?”
+lasi foriri vin eksteren en pluvon kaj sur la malsekan marĉon?”
 
 Mi rigardis ŝin. Mi trovis, ke ŝi havas rimarkindan vizaĝon
 
-sur kiu unuiĝis saĝeco, forteco kaj bonkoreco. Subite mi kura-
-
-ĝiĝis. Respondante ŝian kompateman rigardon per rideto, mi
+sur kiu unuiĝis saĝeco, forteco kaj bonkoreco. Subite mi kuraĝiĝis. Respondante ŝian kompateman rigardon per rideto, mi
 
 diris:
-
-
-JANE EYRE
 
 
 ”Mi volas fidi vin. Se mi estus senhejma kaj senmastra
@@ -11325,9 +9076,7 @@ mi sentas ian spasmon, kiam mi parolas.”
 
 ĉiuj tri rigardis min kaj ĉiuj tri silentis.
 
-”Hanna,” diris fine sinjoro St. John, ”lasu ŝin sidi tie mo-
-
-menton kaj ne faru al ŝi demandojn. Donu al ŝi post deko da
+”Hanna,” diris fine sinjoro St. John, ”lasu ŝin sidi tie momenton kaj ne faru al ŝi demandojn. Donu al ŝi post deko da
 
 minutoj la reston de la lakto kaj pano. Maria kaj Diana, ni iru
 
@@ -11337,20 +9086,13 @@ Ili retiriĝis. Tre baldaŭ poste unu el la fraŭlinoj revenis —
 
 mi ne povis distingi, kiu. Agrabla senkonscio ekregis min,
 
-kiam mi estis sidanta apud la vigla fajro. Mallaŭtvoĉe ŝi ordo-
-
-nis ion al Maria. Baldaŭ mi povis kun helpo de la servistino
+kiam mi estis sidanta apud la vigla fajro. Mallaŭtvoĉe ŝi ordonis ion al Maria. Baldaŭ mi povis kun helpo de la servistino
 
 supreniri ŝtuparon; ŝi demetis de mi la malsekajn vestojn kaj
 
 tuj poste mi kuŝis en agrabla kaj varma lito. Mi dankis Dion
 
-— mi sentis malgraŭ mia terura laceco, la plej koran danke-
-
-mon — kaj ekdormis.
-
-
-JANE EYRE
+— mi sentis malgraŭ mia terura laceco, la plej koran dankemon — kaj ekdormis.
 
 
 ĉapitro XXIX.
@@ -11375,13 +9117,9 @@ pri la ŝanĝiĝo de mateno al tagmezo, de tagmezo al vespero.
 
 Mi rimarkis, ke iu eniris aŭ eliris la ĉambreton; mi eĉ povus
 
-diri, kiu eniris aŭ eliris; mi povis kompreni, kio estis parola-
+diri, kiu eniris aŭ eliris; mi povis kompreni, kio estis parolata kiam parolanto staris proksime de mi, sed mi ne kapablis
 
-ta kiam parolanto staris proksime de mi, sed mi ne kapablis
-
-respondi; same neeble estis al mi movi miajn korpomem-
-
-brojn, nek la lipojn. Hanna, la servistino plej ofte vizitis min.
+respondi; same neeble estis al mi movi miajn korpomembrojn, nek la lipojn. Hanna, la servistino plej ofte vizitis min.
 
 ŝia alveno tamen ĝenis min. Mi sentis, kvazaŭ mi dezirus
 
@@ -11395,14 +9133,9 @@ ili flustris apud mia lito jene:
 
 ”Mi ĝojas, ke ni akceptis vin.”
 
-”Jes. Alie ni estus trovintaj vin jam mortinta antaŭ la por-
-
-do la sekvintan matenon, se ni lasus vin tiel ekstere la tutan
+”Jes. Alie ni estus trovintaj vin jam mortinta antaŭ la pordo la sekvintan matenon, se ni lasus vin tiel ekstere la tutan
 
 nokton. Mi volis nur scii, kion vi trasuferis.”
-
-
-JANE EYRE
 
 
 ”Strangajn mizeron kaj malhavojn vi sendube spertis, mi
@@ -11415,9 +9148,7 @@ kredas — kompatinda, pala suferantino!”
 
 ŝi, ne estis foruzitaj kvankam malsekaj kaj malpuraj.”
 
-”ŝi havas karakterizan vizaĝon; kvankam ĝi estas tre mal-
-
-dika, ĝi plaĉas al mi; kaj mi povas bone imagi al mi, ke ŝia
+”ŝi havas karakterizan vizaĝon; kvankam ĝi estas tre maldika, ĝi plaĉas al mi; kaj mi povas bone imagi al mi, ke ŝia
 
 fizionomio estas agrabla, kiam ŝi estos sana, gaja kaj feliĉa.”
 
@@ -11433,9 +9164,7 @@ diris, ke ĉi tiu stato de letargio estas la rezulto de la rezulto
 
 post supermezura kaj tro longa laciĝo. Li opiniis, ke ne estas
 
-necese venigi kuraciston, kaj ke estos plej bone lasi al la natu-
-
-ro kuraci min. Li diris, ke ĉiu el miaj nervoj estas streĉita en
+necese venigi kuraciston, kaj ke estos plej bone lasi al la naturo kuraci min. Li diris, ke ĉiu el miaj nervoj estas streĉita en
 
 plej alta grado, kaj ke la tuta nerva sistemo restos longan
 
@@ -11445,9 +9174,7 @@ Li kredis, ke mia resaniĝo subite kaj tre rapide montriĝos.
 
 ĉion tion li diris per malmultaj vortoj, per nelaŭta, kvieta
 
-voĉo. Post mallonga paŭzo li diris plue en maniero, kiu mon-
-
-tris, ke li ne toleras klarigajn rimarkojn: ”ŝi havas neordinaran
+voĉo. Post mallonga paŭzo li diris plue en maniero, kiu montris, ke li ne toleras klarigajn rimarkojn: ”ŝi havas neordinaran
 
 fizionomion, kiu certe ne portas la stampon de malboneco aŭ
 
@@ -11459,14 +9186,9 @@ dirite, St. John — mia koro sentas inklinon al la kompatinda,
 
 eta suferantino. Mi dezirus, ke ni daŭre povus esti al ŝi utilaj.”
 
-”Tio estas apenaŭ supozebla,” estis la respondo. ”Montri-
-
-ĝos, ke ŝi estas juna knabino, kiu havis disputon kun siaj ge-
+”Tio estas apenaŭ supozebla,” estis la respondo. ”Montriĝos, ke ŝi estas juna knabino, kiu havis disputon kun siaj ge-
 
 mastroj kaj kiujn poste ŝi senpripense forlasis. Eble sukcesos
-
-
-JANE EYRE
 
 
 al ni, rekonduki ŝin al ili, se ŝi ne estas tro obstina; sed sur ŝia
@@ -11475,9 +9197,7 @@ vizaĝo mi vidas trajtojn, kiuj perfidas rezistemon kaj kiuj igas
 
 min skeptika rilate al ŝia cedemo.”
 
-Li restis momenton staranta kaj rigardis min, poste li daŭ-
-
-rigis: ”ŝi aspektas saĝa, sed ŝi tute ne estas bela.”
+Li restis momenton staranta kaj rigardis min, poste li daŭrigis: ”ŝi aspektas saĝa, sed ŝi tute ne estas bela.”
 
 ”ŝi ja estas tiel malsana, St. John.”
 
@@ -11489,9 +9209,7 @@ La trian tagon mi sentis min pli bona; la kvaran mi povis
 
 paroli, moviĝi, sidi sur la lito kaj turni min. Estis, mi kredas,
 
-je tagmezo, kiam Hanna portis al mi kelkajn rostitajn pan-
-
-tranĉaĵojn kaj iom da grio. Mi manĝis kun apetito — por la
+je tagmezo, kiam Hanna portis al mi kelkajn rostitajn pantranĉaĵojn kaj iom da grio. Mi manĝis kun apetito — por la
 
 unua fojo mi ne sentis plu la febran postguston, kiu ĝis tiu
 
@@ -11503,9 +9221,7 @@ la cirkonstancoj sufiĉe forta; la kuŝado sur la lito tedis min,
 
 kaj min ekregis la deziro al movo kaj laborado. Mi volis
 
-ellitiĝi; sed kiujn vestojn mi surmetos? Nur la malsekajn, mal-
-
-purajn, en kiuj mi dormis sur la erikejo kaj sur la marĉejo? Mi
+ellitiĝi; sed kiujn vestojn mi surmetos? Nur la malsekajn, malpurajn, en kiuj mi dormis sur la erikejo kaj sur la marĉejo? Mi
 
 hontis aperi en tiaj vestoj antaŭ miaj bonfarantoj. Sed feliĉe
 
@@ -11515,22 +9231,15 @@ Sur seĝo flanke de mia lito kuŝis ĉiuj miaj vestaĵoj, sed
 
 purigitaj kaj sekaj. Mia nigra silka robo pendis sur la muro. La
 
-kotmakuloj estis forigitaj, la faldoj, kiujn ĝi ricevis pro la plu-
-
-vo, estis gladitaj: ĝi aspektis dece. Eĉ miaj ŝuoj kaj ŝtrumpoj
+kotmakuloj estis forigitaj, la faldoj, kiujn ĝi ricevis pro la pluvo, estis gladitaj: ĝi aspektis dece. Eĉ miaj ŝuoj kaj ŝtrumpoj
 
 estis puraj kaj igitaj uzeblaj. ĉiuj objektoj por purigi min kaj
 
-kombilo kun broso estis en la ĉambreto. Post tre longa tem-
-
-po, dum kiu mi devis ripozi ĉiujn kvin minutojn, mi fine suk-
+kombilo kun broso estis en la ĉambreto. Post tre longa tempo, dum kiu mi devis ripozi ĉiujn kvin minutojn, mi fine suk-
 
 cesis vesti min. Miaj vestoj pendis larĝe ĉirkaŭ mi, ĉar mi estis
 
 tre maldikiĝinta; sed tiun mankon mi kovris per mia ŝalo, kaj
-
-
-JANE EYRE
 
 
 fine denove mi aspektis pura kaj deca — neniu makuleto,
@@ -11541,21 +9250,15 @@ humiligus min laŭ mia opinio, estis plu videblaj sur mi. Daŭre
 
 tenante la balustradon, mi malsupreniris la ŝtuparon. Mi
 
-venis en mallarĝan koridoron kaj tuj trovis la vojon al la kui-
-
-rejo.
+venis en mallarĝan koridoron kaj tuj trovis la vojon al la kuirejo.
 
 i estis plena de la odoro de nove bakita pano kaj granda
 
 hela fajro varmigis ĝin. Hanna estis bakanta. Multaj scias, ke
 
-estas plej malfacile elradiki antipation el tiuj koroj, kies grun-
+estas plej malfacile elradiki antipation el tiuj koroj, kies grundo neniam fariĝis fruktodona per edukado; tie kreskas la anti-
 
-do neniam fariĝis fruktodona per edukado; tie kreskas la anti-
-
-patio kaj enradikiĝas kiel la herbaĉo inter la ŝtonoj. Komen-
-
-ce Hanna estis al mi malvarma kaj rigida; post nelonge ŝi
+patio kaj enradikiĝas kiel la herbaĉo inter la ŝtonoj. Komence Hanna estis al mi malvarma kaj rigida; post nelonge ŝi
 
 iomete varmiĝis kaj malrigidiĝis, kaj vidante min eniri pura
 
@@ -11579,9 +9282,7 @@ Mallongan tempon mi sentis ofendon, sed feliĉe min trafis
 
 la penso, ke mi ne sentu ofedon, kaj ke mi laŭ ŝiaj supozoj
 
-vere estas nur almozulino; tial mi kviete, sed iom akre res-
-
-pondis:
+vere estas nur almozulino; tial mi kviete, sed iom akre respondis:
 
 ”Vi trompiĝas, kredante, ke mi estas almozulino. Same kiel
 
@@ -11594,12 +9295,7 @@ ja ne havas hejmon nek kupreron?
 ”Pro tio ke mi ne havas hejmon kaj kupraĵon (mi supozis
 
 
-JANE EYRE
-
-
-ke ŝi celis per tio monon), mi tamen ne estas ankoraŭ almo-
-
-zulino, ĉu ne?”
+ke ŝi celis per tio monon), mi tamen ne estas ankoraŭ almozulino, ĉu ne?”
 
 ”Vi do estas instruitulino?” ŝi demandis tuj poste.
 
@@ -11631,9 +9327,7 @@ ilin al mi!”
 
 Fine ŝi konsentis kaj eĉ ŝi donis al mi puran mantukon por
 
-sterni ĝin sur mia vesto, ”por ke mi ne malpurigu ĝin,” ŝi di-
-
-ris plue.
+sterni ĝin sur mia vesto, ”por ke mi ne malpurigu ĝin,” ŝi diris plue.
 
 ”Vi do ne kutimiĝis al mastrumada laboro; tion mi vidas je
 
@@ -11654,9 +9348,6 @@ Moor House1.”
 ne?”
 
 1 Marĉ-domo
-
-
-JANE EYRE
 
 
 ”Li ne loĝas ĉi tie; li nur okaze estas ĉi tie kelkajn tagojn. Li
@@ -11705,9 +9396,7 @@ John Rivers, ĉu ne?”
 
 ”Tio pruvas, ke vi estas fidinda servistino. Tiun justecon mi
 
-tamen volas montri al vi, kvankam vi ĵus nomis min almozu-
-
-lino.”
+tamen volas montri al vi, kvankam vi ĵus nomis min almozulino.”
 
 Mirigite ŝi denove rigardis min.
 
@@ -11718,18 +9407,11 @@ diris tiam; ”sed pardonu tion al mi, ĉar ĉirkaŭvagas tiom da
 trompistinoj, ke oni ne povas esti tro singarda.”
 
 
-JANE EYRE
-
-
-”Kaj,” parolis mi sufiĉe severtone, ”vi volis forpeli min ek-
-
-steren en tia nokto, en kia vi eĉ ne forpelus hundon.”
+”Kaj,” parolis mi sufiĉe severtone, ”vi volis forpeli min eksteren en tia nokto, en kia vi eĉ ne forpelus hundon.”
 
 ”Jes, mi konfesas: tio estis senkompata, — sed kion ni faru?
 
-Mi pli multe pensis pri la knabinoj ol pri mi mem. La kom-
-
-patindulinoj! Pri ili zorgas neniu krom mi. Mi do devas esti
+Mi pli multe pensis pri la knabinoj ol pri mi mem. La kompatindulinoj! Pri ili zorgas neniu krom mi. Mi do devas esti
 
 singarda!”
 
@@ -11739,17 +9421,13 @@ Kelkajn minutojn mi silentis grave.
 
 paŭzeto.
 
-”Mi malgraŭ tio pensas malbone pri vi,” mi diris, ”kaj mal-
-
-kaŝe mi volas diri tion. Ne nur, ĉar vi rifuzis enlasi min, aŭ ĉar
+”Mi malgraŭ tio pensas malbone pri vi,” mi diris, ”kaj malkaŝe mi volas diri tion. Ne nur, ĉar vi rifuzis enlasi min, aŭ ĉar
 
 vi rigardis min kiel almozulinon, sed precipe ĉar vi riproĉis
 
 min pro tio, ke mi ne havas hejmon, nek kupreron. Multaj el
 
-la plej bonaj homoj, kiuj iam vivis surtere, estis same malri-
-
-ĉaj kiel mi estas nun; kaj se vi estus bona kristanino, vi ne
+la plej bonaj homoj, kiuj iam vivis surtere, estis same malriĉaj kiel mi estas nun; kaj se vi estus bona kristanino, vi ne
 
 rigardus la malriĉecon kiel krimon.”
 
@@ -11757,9 +9435,7 @@ rigardus la malriĉecon kiel krimon.”
 
 diras tion al mi, kaj mi vidas, ke mi malpravas — sed nun mi
 
-ja pensas pri vi tute alie. Vi ja vere aspektas kiel deca mal-
-
-granda persono.”
+ja pensas pri vi tute alie. Vi ja vere aspektas kiel deca malgranda persono.”
 
 ”Tio sufiĉas — nun mi pardonas vin. Donu al mi vian
 
@@ -11767,9 +9443,7 @@ manon.”
 
 ŝi metis la kalan, farunkovritan manon en mian; denove
 
-rideto, sed tre kora kaj amika rideto kuris sur ŝia kruda viza-
-
-ĝo, kaj de post tiu momento ni estis amikinoj.
+rideto, sed tre kora kaj amika rideto kuris sur ŝia kruda vizaĝo, kaj de post tiu momento ni estis amikinoj.
 
 Evidente Hanna amis babili. Dum mi diselektis la grosojn
 
@@ -11782,14 +9456,9 @@ kaj ŝi pretigis la paston por la tortoj, ŝi daŭrigis rakonti al mi
 ŝi diris, ke la mortinta sinjoro Rivers estis simpla viro, sed
 
 
-JANE EYRE
-
-
 ĉiurilate ĝentlemano, kaj devenanta de unu el la plej antikvaj
 
-epokoj. De post la fondo de Marsh End, ĝi apartenis al la Ri-
-
-vers-familio, kaj laŭ ŝia certigo ĝi estis pli ol ducentjara; kvan-
+epokoj. De post la fondo de Marsh End, ĝi apartenis al la Rivers-familio, kaj laŭ ŝia certigo ĝi estis pli ol ducentjara; kvan-
 
 kam ĝi aspektas malgranda kaj modesta, ĝi neniel povus esti
 
@@ -11807,17 +9476,13 @@ penus foliumi la preĝejo-librojn de la preĝejoj en Morton. —
 
 Tamen ŝi devis konfesi ”ke la maljuna sinjoro estis kiel aliaj
 
-homoj — nenio eksterordinara, sed ke li freneze amis la ĉasa-
-
-don, la agrikulturadon kaj tiaspecajn aferojn.” La mastrino
+homoj — nenio eksterordinara, sed ke li freneze amis la ĉasadon, la agrikulturadon kaj tiaspecajn aferojn.” La mastrino
 
 estis tute alia. ŝi sin okupis per legado kaj multe studis, kaj la
 
 ”infanoj” estas similaj al ŝi. Ili ne havas siajn egalulojn en la
 
-ĉirkaŭaĵo; de post la tago, kiam ili povis paroli, ili jam kom-
-
-encis studi kaj ĉiam ili sin okupis pri io speciala. — Kiam sin-
+ĉirkaŭaĵo; de post la tago, kiam ili povis paroli, ili jam komencis studi kaj ĉiam ili sin okupis pri io speciala. — Kiam sin-
 
 joro St. John fariĝis junulo, li vizitis la universitaton por estiĝi
 
@@ -11833,20 +9498,11 @@ postlasi al ili sufiĉan monon, ili volis zorgi pri si mem. De post
 
 longa tempo ili estis nun en la malnova hejmo, kaj nun la
 
-morto de ilia patro estis revokinta ilin tien por kelkaj semaj-
+morto de ilia patro estis revokinta ilin tien por kelkaj semajnoj, sed ili amis Marsh End kaj Morton kaj ĉiujn ĉi tiujn mon-
 
-noj, sed ili amis Marsh End kaj Morton kaj ĉiujn ĉi tiujn mon-
+tetojn kaj valojn, marĉejon kaj erikejojn tre kore. Ili jam pasigis kelkan tempon en Londono kaj en aliaj grandaj urboj, sed
 
-tetojn kaj valojn, marĉejon kaj erikejojn tre kore. Ili jam pasi-
-
-gis kelkan tempon en Londono kaj en aliaj grandaj urboj, sed
-
-ĉiam ili diris, ke nenio estas pli preferinda ol la gepatra hej-
-
-mo, krom tio ili tiel amis unu la alian, neniam interdisputis
-
-
-JANE EYRE
+ĉiam ili diris, ke nenio estas pli preferinda ol la gepatra hejmo, krom tio ili tiel amis unu la alian, neniam interdisputis
 
 
 kaj ĉiam estis kvietaj. ŝi opiniis, ke tia familio preskaŭ nenie
@@ -11863,19 +9519,13 @@ trinki teon.”
 
 Jam antaŭ la paso de duonhoro ili reeniris la kuirejon.
 
-Kiam sinjoro St. John min vidis, li riverencis al mi kaj iris plu-
+Kiam sinjoro St. John min vidis, li riverencis al mi kaj iris pluen; la du fraŭlinoj restis. Maria per malmultaj vortoj kaj ami-
 
-en; la du fraŭlinoj restis. Maria per malmultaj vortoj kaj ami-
-
-ke esprimis sian ĝojon, ke mi sufiĉe resaniĝis por veni mal-
-
-supren. Diana skuis la kapon. dum ŝi kaptis mian manon.
+ke esprimis sian ĝojon, ke mi sufiĉe resaniĝis por veni malsupren. Diana skuis la kapon. dum ŝi kaptis mian manon.
 
 ”Vi devus atendi mian permeson por leviĝi,” ŝi diris. ”Vi
 
-aspektas ankoraŭ terure pala — kaj tiel trolaciĝinta! Komp-
-
-atindulino!”:
+aspektas ankoraŭ terure pala — kaj tiel trolaciĝinta! Kompatindulino!”:
 
 Diana havis voĉon, kiu al mi sonis kiel la kverado de
 
@@ -11885,9 +9535,7 @@ nur kun ravo. ŝia tuta vizaĝo estis plena de ĉarmo. La
 
 vizaĝtrajtoj de Maria estis same inteligentaj, — same belaj;
 
-sed la esprimo estis pli retenema, kaj ŝiaj agmanieroj, kvan-
-
-kam kvietaj, tamen multe pli silentemaj. Diana agis kaj paro-
+sed la esprimo estis pli retenema, kaj ŝiaj agmanieroj, kvankam kvietaj, tamen multe pli silentemaj. Diana agis kaj paro-
 
 lis kun certa aŭtoritat-konscio; videble ŝi estis persistema.
 
@@ -11895,9 +9543,7 @@ Mia karaktero estis tia, ke volonte mi cedis al volo kiel la ŝia,
 
 se miaj konscienco kaj memrespekto tion permesis al mi.
 
-”Kaj kion vi havas por fari ĉi tie?” parolis ŝi plue. ”La kui-
-
-rejo ne estas loko por vi. Maria kaj mi kelkfoje sidas tie, ĉar
+”Kaj kion vi havas por fari ĉi tie?” parolis ŝi plue. ”La kuirejo ne estas loko por vi. Maria kaj mi kelkfoje sidas tie, ĉar
 
 ni ŝatas fari tion, kio plaĉas al ni — sed vi estas gastino kaj
 
@@ -11910,30 +9556,19 @@ devas veni en la familian ĉambron.”
 vin.”
 
 
-JANE EYRE
-
-
 ”Krome la fajro de la kameno tro varmigos vin,” certigis
 
 Maria.
 
-”Tre certe,” parolis plue ŝia fratino. ”Jam venu kaj estu obe-
-
-ema.” Kaj dum ŝi tenis ankoraŭ mian manon, mi lasis min
+”Tre certe,” parolis plue ŝia fratino. ”Jam venu kaj estu obeema.” Kaj dum ŝi tenis ankoraŭ mian manon, mi lasis min
 
 forkonduki en la familian ĉambron.
 
-”Sidiĝu tie,” ŝi diris, puŝante min sur la sofon, ”dum ni de-
+”Sidiĝu tie,” ŝi diris, puŝante min sur la sofon, ”dum ni demetas niajn mantelojn kaj pretigas la teon; tio estas ankoraŭ
 
-metas niajn mantelojn kaj pretigas la teon; tio estas ankoraŭ
+unu el tiuj privilegioj, kiujn ni ĝuas en niaj malgrandaj steporegionoj: ni pretigas niajn proprajn manĝojn, se tio plaĉas al
 
-unu el tiuj privilegioj, kiujn ni ĝuas en niaj malgrandaj stepo-
-
-regionoj: ni pretigas niajn proprajn manĝojn, se tio plaĉas al
-
-ni, aŭ kiam Hanna bakas panon, faras bieron, lavas aŭ gla-
-
-das.”
+ni, aŭ kiam Hanna bakas panon, faras bieron, lavas aŭ gladas.”
 
 ŝi fermis la pordon kaj lasis min duope kun sinjoro St.
 
@@ -11951,13 +9586,9 @@ simple aranĝita; sed ĝi estis komforta kaj agrabla, ĉar ĉie en
 
 poluritaj kaj la tablo el juglando brilis kiel spegulo. Kelkaj
 
-strangaj malnovaj portretoj de viroj kaj virinoj el longe pas-
+strangaj malnovaj portretoj de viroj kaj virinoj el longe pasinta tempo ornamis la vandojn.
 
-inta tempo ornamis la vandojn.
-
-ŝranko kun pordoj el vitro entenis kelkajn librojn kaj mal-
-
-novmodan, valoran manĝilaron el porcelano. En la ĉambro
+ŝranko kun pordoj el vitro entenis kelkajn librojn kaj malnovmodan, valoran manĝilaron el porcelano. En la ĉambro
 
 ne estis superfluaj luksaĵoj — ne unu novmoda meblo, krom
 
@@ -11971,21 +9602,13 @@ Ne estis malfacile ekzameni la eksteraĵon de sinjoro St.
 
 John; li sidis kviete kaj senmove same kiel unu el la portretoj
 
-sur la vando. Liaj okuloj estis fiksitaj sur la linioj, kiujn li le-
-
-
-JANE EYRE
-
-
-gis kaj liaj lipoj estis kvazaŭ sigelitaj. Oni ne povus ekzamen-
+sur la vando. Liaj okuloj estis fiksitaj sur la linioj, kiujn li legis kaj liaj lipoj estis kvazaŭ sigelitaj. Oni ne povus ekzamen-
 
 rigardi pli oportune, se li estus statuo anstataŭ viro. Li estis
 
 juna, inter la dudekoka kaj la trideka jaro kaj svelta; lia vizaĝo
 
-nepre plaĉis al ĉiu; ĝi estis greka kun gravaj trajtoj, havis kla-
-
-sikan nazon, Atenajn buŝon kaj mentonon. Estas nur malofte,
+nepre plaĉis al ĉiu; ĝi estis greka kun gravaj trajtoj, havis klasikan nazon, Atenajn buŝon kaj mentonon. Estas nur malofte,
 
 ke angla vizaĝo tiel similas al antikva. Ne estis mirige, ke li
 
@@ -12023,13 +9646,9 @@ Mi volonte akceptis ĝin, ĉar mia apetito tute revenis al mi.
 
 Sinjoro Rivers fermis sian libron, alproksimiĝis al la tablo kaj
 
-fiksis siajn bluajn, bildosimilajn okulojn sur min dum li sidi-
+fiksis siajn bluajn, bildosimilajn okulojn sur min dum li sidiĝis. En liaj rigardoj nun kuŝis senceremonia decidemo, ekza-
 
-ĝis. En liaj rigardoj nun kuŝis senceremonia decidemo, ekza-
-
-menanta firmeco, kiuj pruvis al mi, ke intenco kaj ne indife-
-
-rento ĝis nun tenis lin malproksime de la fremdulino.
+menanta firmeco, kiuj pruvis al mi, ke intenco kaj ne indiferento ĝis nun tenis lin malproksime de la fremdulino.
 
 ”Vi estas tre malsata,” li diris.
 
@@ -12038,22 +9657,15 @@ rento ĝis nun tenis lin malproksime de la fremdulino.
 respondis mallonge kaj decide, se oni tiel alparolis min.
 
 
-JANE EYRE
-
-
 ”Estis feliĉe por vi, ke malforta febro devigis vin fasti dum
 
 tri tagoj; estus tre danĝere, se vi tuj kontentigus la deziron de
 
 via apetito. Nun vi povas manĝi, sed nur sobre.”
 
-”Mi esperas, ke mi ne longe manĝos je viaj kostoj,” mi res-
+”Mi esperas, ke mi ne longe manĝos je viaj kostoj,” mi respondis malĝentile kaj tre maldece.
 
-pondis malĝentile kaj tre maldece.
-
-”Ne,” li diris malvarme, ”kiam vi estos sciiginta al ni la loĝ-
-
-lokon de viaj gemastroj, ni povos skribi al ili, por ke vi povu
+”Ne,” li diris malvarme, ”kiam vi estos sciiginta al ni la loĝlokon de viaj gemastroj, ni povos skribi al ili, por ke vi povu
 
 reiri tien.”
 
@@ -12067,13 +9679,9 @@ rigardoj ne montriĝas manko de fido, sed nur scivolemo. Mi
 
 celas nur la fraŭlinojn, ĉar la okuloj de St. John, kvankam
 
-ekstreme helaj en vorta signifo, estis en figura senco malfa-
+ekstreme helaj en vorta signifo, estis en figura senco malfacile esploreblaj. Pli multe li ŝajnis uzi ilin kiel ilojn por dive-
 
-cile esploreblaj. Pli multe li ŝajnis uzi ilin kiel ilojn por dive-
-
-ni la pensojn de aliuloj, ol kiel rimedon por perfidi siajn pro-
-
-prajn. Kaj ĉi tiu kombinado de reteno kaj akravido pli multe
+ni la pensojn de aliuloj, ol kiel rimedon por perfidi siajn proprajn. Kaj ĉi tiu kombinado de reteno kaj akravido pli multe
 
 estis kapabla konfuzi ol vigligi.
 
@@ -12089,9 +9697,7 @@ tuta Anglujo.”
 
 ”Stranga situacio en via aĝo!”
 
-Mi vidis, ke li ĵetas rigardon al miaj manoj, kiujn mi faldi-
-
-taj estis metinta antaŭ mi sur la tablon. Tiu ekzamenanta
+Mi vidis, ke li ĵetas rigardon al miaj manoj, kiujn mi falditaj estis metinta antaŭ mi sur la tablon. Tiu ekzamenanta
 
 rigardo mirigis min. Sed liaj vortoj baldaŭ klarigis, kion li
 
@@ -12100,24 +9706,15 @@ serĉis.
 ”ĉu neniam vi edziniĝis? Vi estas fraŭlino?”
 
 
-JANE EYRE
-
-
-Diana ridetis. ”Sed ŝi ja ne estas pli aĝa ol deksep- aŭ de-
-
-kokjara, St. John,” ŝi diris.
+Diana ridetis. ”Sed ŝi ja ne estas pli aĝa ol deksep- aŭ dekokjara, St. John,” ŝi diris.
 
 ”Mi estas preskaŭ deknaŭjara, sed mi neniam edziniĝis.”
 
-Mi sentis, ke malhela ardo kovris mian vizaĝon; ĉar la alu-
-
-do al edziniĝo vekis ĉe mi amarajn incitantajn rememorojn.
+Mi sentis, ke malhela ardo kovris mian vizaĝon; ĉar la aludo al edziniĝo vekis ĉe mi amarajn incitantajn rememorojn.
 
 ĉiuj rimarkis miajn embarason kaj movojn. Maria kaj Diana
 
-venis renkonte al mi kun helpo, dum ili deturnis siajn rigar-
-
-dojn de mia ruĝiĝinta vizaĝo; sed la malvarma, senkompata
+venis renkonte al mi kun helpo, dum ili deturnis siajn rigardojn de mia ruĝiĝinta vizaĝo; sed la malvarma, senkompata
 
 frato daŭre rigardis min, ĝis la ĉagreno, kiun li per tio al mi
 
@@ -12125,9 +9722,7 @@ kaŭzis, faligis el miaj okuloj amarajn larmojn.
 
 ”Kie vi vivis en la lasta tempo?” li poste demandis.
 
-”Vi estas tro scivola kaj demandas tro multe, St. John,” flu-
-
-stris Maria; sed li sin klinis trans la tablon kaj per dua pene-
+”Vi estas tro scivola kaj demandas tro multe, St. John,” flustris Maria; sed li sin klinis trans la tablon kaj per dua pene-
 
 tranta rigardo postulis respondon.
 
@@ -12137,9 +9732,7 @@ sekreto,” mi respondis firme.
 
 ”Kiun vi laŭ mia opinio rajtas konservi, ne nur kontraŭ St.
 
-John, sed ankaŭ antaŭ ĉiu alia persono,” rimarkis kviete Di-
-
-ana.
+John, sed ankaŭ antaŭ ĉiu alia persono,” rimarkis kviete Diana.
 
 ”Tamen mi ne povas helpi al vi, se mi scias nenion pri vi aŭ
 
@@ -12153,9 +9746,7 @@ plenumi, kaj kies salajro donos al mi la rimedojn plej necesajn
 
 por vivi.”
 
-”Mi ne scias, ĉu mi estas vera filantropo; sed mi estas ink-
-
-lina helpi al vi realigi viajn honestajn intencojn per ĉiuj for-
+”Mi ne scias, ĉu mi estas vera filantropo; sed mi estas inklina helpi al vi realigi viajn honestajn intencojn per ĉiuj for-
 
 toj, kiujn mi havas. Diru do al mi, kian laboron vi kutimis fari
 
@@ -12164,18 +9755,11 @@ kaj kion vi kapablas plenumi.”
 Mi nun estis trinkinta mian teon. i tre multe refreŝigis
 
 
-JANE EYRE
-
-
-min, eĉ tiel kvazaŭ giganto estus trinkinta vinon. i pliforti-
-
-gis miajn ekscititajn nervojn kaj ebligis al mi, forte kaj ener-
+min, eĉ tiel kvazaŭ giganto estus trinkinta vinon. i plifortigis miajn ekscititajn nervojn kaj ebligis al mi, forte kaj ener-
 
 gie respondi ĉi tiun penetrantan junan juĝiston.
 
-”Sinjoro Rivers,” mi diris, turnante min al li kaj rigardan-
-
-te lin malkaŝe kaj sentime, kiel li faris tion rilate al mi,” vi kaj
+”Sinjoro Rivers,” mi diris, turnante min al li kaj rigardante lin malkaŝe kaj sentime, kiel li faris tion rilate al mi,” vi kaj
 
 viaj fratinoj montris al mi grandan servon — la plej grandan,
 
@@ -12195,9 +9779,7 @@ antaŭ ol mi povis koni ilin. Mi estas edukita en dependeco kaj
 
 en filantropia edukejo. Mi eĉ volas nomi la instituton en kiu
 
-mi ses jarojn estis lernantino kaj poste du jarojn kiel instru-
-
-istino — nome la orfineja edukejo en Lowood en —distrikto.
+mi ses jarojn estis lernantino kaj poste du jarojn kiel instruistino — nome la orfineja edukejo en Lowood en —distrikto.
 
 Sendube vi aŭdis pri ĝi, sinjoro Rivers. La reverinda sinjoro
 
@@ -12207,9 +9789,7 @@ Brocklehurst estis ĝia direktoro-kasisto.”
 
 konas.”
 
-”Antaŭ unu jaro mi forlasis Lowood, por estiĝi guvernisti-
-
-no ĉe familio. Mi havis bonan oficon kaj estis feliĉa. Kvar
+”Antaŭ unu jaro mi forlasis Lowood, por estiĝi guvernistino ĉe familio. Mi havis bonan oficon kaj estis feliĉa. Kvar
 
 tagojn antaŭ mia alveno ĉi tien mi estis devigata eksiĝi.
 
@@ -12221,17 +9801,9 @@ Mia vivo estas senmakula. Neniu mallaŭdo trafas min, mia
 
 ĝisnuna konduto estas senkulpa same kiel tiu de unu el vi tri.
 
-Malfeliĉa mi estas kaj restos ankoraŭ longe, ĉar la katastro-
+Malfeliĉa mi estas kaj restos ankoraŭ longe, ĉar la katastrofo, kiu forpelis min el la domo, kie mi trovis paradizon, estas
 
-fo, kiu forpelis min el la domo, kie mi trovis paradizon, estas
-
-stranga kaj terura. Mi intencis nur du aferojn, kiam mi forku-
-
-
-JANE EYRE
-
-
-ris: rapidecon kaj silenton; por certigi ilin al mi, mi devis post-
+stranga kaj terura. Mi intencis nur du aferojn, kiam mi forkuris: rapidecon kaj silenton; por certigi ilin al mi, mi devis post-
 
 lasi ĉion, kion mi posedis escepte de pakaĵeto, kiun mi pro
 
@@ -12239,9 +9811,7 @@ mia trorapideco kaj anima angoro forgesis preni kun mi el la
 
 veturilo, per kiu mi vojaĝis al Whitcross. Tiel kaj senigita de
 
-ĉiuj rimedoj mi venis en ĉi tiun regionon. Du noktojn mi dor-
-
-mis eksterdome sub la ĉielo de Dio kaj du tagojn mi ĉirkaŭva-
+ĉiuj rimedoj mi venis en ĉi tiun regionon. Du noktojn mi dormis eksterdome sub la ĉielo de Dio kaj du tagojn mi ĉirkaŭva-
 
 gis, ne transirante la sojlon de homa loĝejo. Nur du fojojn
 
@@ -12249,25 +9819,17 @@ dum tiu tempo iom da nutraĵo venis trans miajn lipojn; kaj
 
 kiam vi kaj sinjoro Rivers malhelpis, ke mi mortu pro malsato
 
-kaj mizero antaŭ via domo, jam malsato kaj senespero pres-
+kaj mizero antaŭ via domo, jam malsato kaj senespero preskaŭ pereigis min. Mi scias, kion viaj fratinoj post tiu tempo
 
-kaŭ pereigis min. Mi scias, kion viaj fratinoj post tiu tempo
-
-faris por mi, ĉar dum mia ŝajna sveno, mi ne estis daŭre sen-
-
-konscia, kaj al ilia vera, libervola kompato, mi dankas same
+faris por mi, ĉar dum mia ŝajna sveno, mi ne estis daŭre senkonscia, kaj al ilia vera, libervola kompato, mi dankas same
 
 multe kiel al via kristana favorkoreco.”
 
-”Ne paroligu ŝin plue, St. John,” diris Diana, kiam mi ek-
-
-silentis; ”kiel vi vidas, ŝi ankoraŭ ne povas regi siajn ekscitojn.
+”Ne paroligu ŝin plue, St. John,” diris Diana, kiam mi eksilentis; ”kiel vi vidas, ŝi ankoraŭ ne povas regi siajn ekscitojn.
 
 Nun sidiĝu ĉi tie sur la sofon, fraŭlino Elliott.”
 
-Aŭdante tiun pseŭdonimon, mi senvole ektimis; mi pres-
-
-kaŭ forgesis mian novan nomon. Sinjoro Rivers, al kiu nenio
+Aŭdante tiun pseŭdonimon, mi senvole ektimis; mi preskaŭ forgesis mian novan nomon. Sinjoro Rivers, al kiu nenio
 
 restis kaŝita, tuj tion vidis.
 
@@ -12275,9 +9837,7 @@ restis kaŝita, tuj tion vidis.
 
 ”Tion mi diris; mi opinias, ke estas plej bone, nomi min
 
-tiel, sed en vero mi havas alian nomon, kaj tial ĝi sonas stran-
-
-ge en miaj oreloj.”
+tiel, sed en vero mi havas alian nomon, kaj tial ĝi sonas strange en miaj oreloj.”
 
 ”Vi sekve ne volas diri vian veran nomon?”
 
@@ -12290,22 +9850,15 @@ sciigon kondukantan al malkovro.”
 nun, kara frato, lasu ŝin kvieta.”
 
 
-JANE EYRE
-
-
 Kiam St. John tamen estis pripensinta kelkajn minutojn, li
 
 rekomencis same akrasente kaj stoike.
 
 ”Vi ne longe restu dependa de nia gastamo — mi vidas, ke
 
-vi kiel eble plej rapide faru finon al la kompato de miaj fra-
+vi kiel eble plej rapide faru finon al la kompato de miaj fratinoj kaj precipe al mia favorkoreco; (mi tre bone rimarkis la
 
-tinoj kaj precipe al mia favorkoreco; (mi tre bone rimarkis la
-
-diferencon, kiun vi faras ĉi tie, kaj pro tio mi tute ne kolere-
-
-tas vin — ĝi estas pravigita). Vi volonte estus sendependa de
+diferencon, kiun vi faras ĉi tie, kaj pro tio mi tute ne koleretas vin — ĝi estas pravigita). Vi volonte estus sendependa de
 
 ni?”
 
@@ -12313,13 +9866,9 @@ ni?”
 
 mi povus labori ĉi tie, kaj kiel mi povus trovi laboron, jen ĉio,
 
-kion mi nun petas, poste lasu min foriri — eĉ al la plej mal-
+kion mi nun petas, poste lasu min foriri — eĉ al la plej maleminenta kabano — permesu al mi resti ĉi tie ĝis tiam. Mi ne
 
-eminenta kabano — permesu al mi resti ĉi tie ĝis tiam. Mi ne
-
-povas por la dua fojo entrepreni la batalon kontraŭ la teru-
-
-ro de senhejma malriĉeco.”
+povas por la dua fojo entrepreni la batalon kontraŭ la teruro de senhejma malriĉeco.”
 
 ”Vere, vi restos ĉi tie,” diris Diana, metante sian blankan
 
@@ -12351,19 +9900,11 @@ oferi al vi.”
 
 ”ŝi tamen jam diris, ke ŝi volas fari ĉian honestan laboron,
 
-al kiu ŝi estos kapabla,” respondis Diana por mi; ”kaj vi sci-
-
-
-JANE EYRE
-
-
-as, St. John, ke ŝi ne povas elekti; ŝi estos devigata akcepti la
+al kiu ŝi estos kapabla,” respondis Diana por mi; ”kaj vi scias, St. John, ke ŝi ne povas elekti; ŝi estos devigata akcepti la
 
 helpon de krudulo, kia vi estas.”
 
-”Mi volas estiĝi kudristino, mi volas estiĝi simpla laboris-
-
-tino, eĉ infanvartistino, se nenio alia estos trovebla,” mi re-
+”Mi volas estiĝi kudristino, mi volas estiĝi simpla laboristino, eĉ infanvartistino, se nenio alia estos trovebla,” mi re-
 
 spondis.
 
@@ -12380,9 +9921,6 @@ retiriĝis, ĉar jam tiel longe mi estis el la lito kaj tiom multe mi
 estis parolinta, kiom estis eble al miaj stato kaj fortoj.
 
 
-JANE EYRE
-
-
 ĉapitro XXX.
 
 Ju pli mi konatiĝis kun la loĝantoj de Moor House, des pli
@@ -12391,9 +9929,7 @@ ili plaĉis al mi. Post malmultaj tagoj mi tiel resaniĝis, ke la
 
 tutan tagon mi povis pasigi ekster la lito kaj mi eĉ kapablis
 
-fari mallongan promenon. Mi povis partopreni en ĉiuj labo-
-
-roj de Diana kaj Maria, mi povis interparoli kun ili tiom, kiom
+fari mallongan promenon. Mi povis partopreni en ĉiuj laboroj de Diana kaj Maria, mi povis interparoli kun ili tiom, kiom
 
 plaĉis al ili, kaj helpi al ili ĉiam, kiam ili konsentis tion al mi.
 
@@ -12405,36 +9941,23 @@ kaj principoj.
 
 Mi amis la literaturon, kiun ili ŝatis kaj kiu ĝojigis ilin kaj
 
-kio ravis min; mi honoris, kion ili aprobis. Ili amis sian mal-
+kio ravis min; mi honoris, kion ili aprobis. Ili amis sian malproksime de la mondo kuŝantan hejmon. Ankaŭ mi trovis
 
-proksime de la mondo kuŝantan hejmon. Ankaŭ mi trovis
-
-ĉarma la etan, malnovan, malaltan tegmenton, ĝiajn kradha-
-
-vajn fenestrojn, ĝiajn dispecetigitajn murojn, la aleon kun
+ĉarma la etan, malnovan, malaltan tegmenton, ĝiajn kradhavajn fenestrojn, ĝiajn dispecetigitajn murojn, la aleon kun
 
 malnovegaj abioj, kiuj ĉiuj staris oblikve pro la premado de
 
-la ventegoj venantaj de la montaro — mi trovis ĉarma la ĝar-
-
-denon plena de ileksoj kaj taksusoj, kies plej fortaj floroj nur
+la ventegoj venantaj de la montaro — mi trovis ĉarma la ĝardenon plena de ileksoj kaj taksusoj, kies plej fortaj floroj nur
 
 povis flori. Plename ili estis sindonaj al la ruĝa floranta eriko,
 
-en kies mezo kuŝis la loĝejo — al la profunda valo tra kiu kon-
-
-dukis la ŝtonhava vojo, preter ilian pordon, kaj kiu unue ser-
+en kies mezo kuŝis la loĝejo — al la profunda valo tra kiu kondukis la ŝtonhava vojo, preter ilian pordon, kaj kiu unue ser-
 
 pentiris inter montetoj kovritaj de filiko kaj poste inter la plej
 
-sovaĝaj paŝtejoj, kiuj limigas vastan erikejon aŭ grizan mar-
-
-ĉejon kun ĝiaj ŝafoj kaj malgrandaj ŝafidoj. Ili sin donis kun
+sovaĝaj paŝtejoj, kiuj limigas vastan erikejon aŭ grizan marĉejon kun ĝiaj ŝafoj kaj malgrandaj ŝafidoj. Ili sin donis kun
 
 entuziasma amo al tiu de mi priskribita pejzaĝo. Kaj mi povis
-
-
-JANE EYRE
 
 
 kompreni la senton kaj ĝiajn veron kaj povon mi kapablis
@@ -12443,9 +9966,7 @@ partopreni. Mi spertis la katenantan ĉarmon de la regiono. Mi
 
 plene sentis la sanktecon de ĝia soleco; miaj okuloj sin amuzis
 
-pro la konturoj de la montoj kaj valoj — pro la sovaĝaj kolo-
-
-roj per kiuj la musko kaj la erikej-rozoj kaj la flororiĉaj paŝ-
+pro la konturoj de la montoj kaj valoj — pro la sovaĝaj koloroj per kiuj la musko kaj la erikej-rozoj kaj la flororiĉaj paŝ-
 
 tejoj kaj belegaj feliko-herbejo kaj granitaj rokrifoj plibeligis
 
@@ -12453,9 +9974,7 @@ la montetojn kaj la ebenaĵojn. ĉiuj tiuj detaloj estis al mi, kio
 
 ili estas al miaj samhejmanoj — same multaj puraj kaj dolĉaj
 
-fontoj de ĝojo. La akra vento kaj la malakra venteto; la kru-
-
-daj kaj la alcionaj tagoj, la horoj de sunleviĝo kaj sunsubiro;
+fontoj de ĝojo. La akra vento kaj la malakra venteto; la krudaj kaj la alcionaj tagoj, la horoj de sunleviĝo kaj sunsubiro;
 
 la lunlumo kaj la nuboplenaj noktoj — ĉio tio influis je mi la
 
@@ -12481,31 +10000,20 @@ harmoniis plene en ĉio.
 
 Sed en nia trio estis unu kiu ĉefis. Nome Diana. Fizike ŝi
 
-treege superis min, ŝi estis bela, ŝi krome estis forta. ŝia vive-
+treege superis min, ŝi estis bela, ŝi krome estis forta. ŝia vivemo posedis abundon da energio kaj tian kapablon pri persis-
 
-mo posedis abundon da energio kaj tian kapablon pri persis-
-
-temo, ke mi miregis pri ili, krom tio ŝi superis mian kompren-
-
-povon. Kiam komenciĝis la vespero, mi kapablis paroli kelkan
+temo, ke mi miregis pri ili, krom tio ŝi superis mian komprenpovon. Kiam komenciĝis la vespero, mi kapablis paroli kelkan
 
 tempon, sed kiam pasis la unua fluo de mia parolo kaj mia
 
 vigleco, mi amis sidiĝi sur benketo ĉe la piedoj de Diana, meti
 
-mian kapon sur ŝiajn genuojn por alterne aŭskulti ŝin kaj Ma-
-
-rian, dum ŝi funde klarigis la temon, kiun mi nur supraĵe estis
-
-
-JANE EYRE
+mian kapon sur ŝiajn genuojn por alterne aŭskulti ŝin kaj Marian, dum ŝi funde klarigis la temon, kiun mi nur supraĵe estis
 
 
 priparolinta. Diana proponis instrui la germanan lingvon al
 
-mi. Estis al mi ĝuo lerni de ŝi, mi vidis, ke ŝi estas bona instru-
-
-istino kaj ke ŝi ŝatas la instruadon; ne pli malmulte mi ŝatis
+mi. Estis al mi ĝuo lerni de ŝi, mi vidis, ke ŝi estas bona instruistino kaj ke ŝi ŝatas la instruadon; ne pli malmulte mi ŝatis
 
 esti ŝia lernantino. Niaj karakteroj kvazaŭ unuiĝis kaj el tio
 
@@ -12517,15 +10025,11 @@ tiu arto, kiu estis pli granda ol ŝia, surprizis kaj ravis ŝin.
 
 Maria povis multajn horojn sidi por rigardi kiam mi estis
 
-pentranta; poste mi devas instrui sin kaj ŝi estis obea, inteli-
-
-genta, diligenta lernantino. La tagoj pasis kiel horoj, kaj la
+pentranta; poste mi devas instrui sin kaj ŝi estis obea, inteligenta, diligenta lernantino. La tagoj pasis kiel horoj, kaj la
 
 semajnoj kiel tagoj.
 
-La intimeco, kiu tiel rapide kaj nature estiĝis inter liaj fra-
-
-tinoj kaj mi, ne sin etendis al sinjoro St. John. La kaŭzo de la
+La intimeco, kiu tiel rapide kaj nature estiĝis inter liaj fratinoj kaj mi, ne sin etendis al sinjoro St. John. La kaŭzo de la
 
 malvarmo reganta inter li kaj mi venis de tio, ke nur malofte
 
@@ -12535,9 +10039,7 @@ okupita de vizitoj ĉe malsanuloj kaj malriĉuloj de lia dise
 
 kuŝanta komunumo.
 
-Nek ventego nek malbona vetero ŝajnis ĝeni lin en tiuj pas-
-
-traj ekskursoj. Tuj kiam estis pasintaj la horoj de liaj ĉiuma-
+Nek ventego nek malbona vetero ŝajnis ĝeni lin en tiuj pastraj ekskursoj. Tuj kiam estis pasintaj la horoj de liaj ĉiuma-
 
 tenaj studadoj, li kutimis — malgraŭ ĉia vetero — preni sian
 
@@ -12547,9 +10049,7 @@ prefekto, lia patro, li ekiris sur sia vojo al sia misio de devo aŭ
 
 alio. Mi ne scias el kiu vidpunkto li rigardis ĝin. Kelkfoje, kiam
 
-la vetero estis tre malbela, liaj fratinoj faris al li kontraŭ-pro-
-
-ponojn. Tiam li diris kun rideto, kiu estis pli multe solena ol
+la vetero estis tre malbela, liaj fratinoj faris al li kontraŭ-proponojn. Tiam li diris kun rideto, kiu estis pli multe solena ol
 
 gaja:
 
@@ -12560,18 +10060,11 @@ facile plenumebla devo, kiaj tiam estus la preparoj antaŭ la
 estonto, kiu atendas min?”
 
 
-JANE EYRE
-
-
-La kutima respondo de la fratinoj al tiu demando estis ĝe-
-
-mo kaj kelkaj minutoj da malgajaj pripensadoj.
+La kutima respondo de la fratinoj al tiu demando estis ĝemo kaj kelkaj minutoj da malgajaj pripensadoj.
 
 Sed krom lia ofta foresto troviĝis ankoraŭ alia malhelpo
 
-kontraŭ nia reciproka amikeco: li havis rezervitan, abstrak-
-
-tan, eĉ zorgomeditantan karakteron. Malgraŭ siaj pastraj
+kontraŭ nia reciproka amikeco: li havis rezervitan, abstraktan, eĉ zorgomeditantan karakteron. Malgraŭ siaj pastraj
 
 devoj kaj malgraŭ siaj senriproĉa vivmaniero kaj kutimoj, li
 
@@ -12581,9 +10074,7 @@ nepre estas la rekompenco de ĉiuj veraj kristanoj kaj energia
 
 homoĝojo. Ofte en vesperaj horoj sidante ĉe la fenestro kun
 
-pupitro kaj siaj paperaĵoj antaŭ si, li subite interrompis lega-
-
-don aŭ skribadon, donante sin al Dio scias kiaj pripensoj,
+pupitro kaj siaj paperaĵoj antaŭ si, li subite interrompis legadon aŭ skribadon, donante sin al Dio scias kiaj pripensoj,
 
 dum li sidis kun la mentono sur la manplato. Ofte oni povis
 
@@ -12591,9 +10082,7 @@ legi en liaj kelkfoje ardantaj okuloj, ke tiuj pripensoj estas
 
 ekscitaj kaj malkvietaj.
 
-Krome mi pensas, ke la naturo ne oferis al li tiom da fon-
-
-toj de plezuro kaj ravo kiel al liaj fratinoj. Nur unu fojon li
+Krome mi pensas, ke la naturo ne oferis al li tiom da fontoj de plezuro kaj ravo kiel al liaj fratinoj. Nur unu fojon li
 
 parolis en mia ĉeesto pri la mirinda ĉarmo, kiun tiuj sovaĝaj
 
@@ -12605,9 +10094,7 @@ sian hejmon. Sed la parolo per kiu li esprimis tian senton
 
 sonis pli multe kiel akra funebro ol decis al la enhavo de lia
 
-esprimo. Ankaŭ ĉiam ŝajnis al mi, kvazaŭ li vagas tra la eri-
-
-kejo kaj la marĉejo, ne pro iliaj kvietigantaj, konsolantaj silen-
+esprimo. Ankaŭ ĉiam ŝajnis al mi, kvazaŭ li vagas tra la erikejo kaj la marĉejo, ne pro iliaj kvietigantaj, konsolantaj silen-
 
 to kaj soleco tie sperteblaj.
 
@@ -12619,13 +10106,7 @@ mi aŭdis lin prediki en sia propra preĝejo en Morton, mi
 
 komprenis ion pri ĝia profundeco. Mi dezirus, ke mi povus
 
-priskribi ĉiujn tiujn predikojn, sed tio estas super mia poten-
-
-
-JANE EYRE
-
-
-co. Mi eĉ ne kapablas fidele rerakonti la impreson, kiun ili
+priskribi ĉiujn tiujn predikojn, sed tio estas super mia potenco. Mi eĉ ne kapablas fidele rerakonti la impreson, kiun ili
 
 efikis je mi.
 
@@ -12633,37 +10114,25 @@ efikis je mi.
 
 pri parolado, tono kaj voĉo — sed profunde sentata tamen
 
-severe limigita fervoro baldaŭ montriĝis el ĉiuj liaj klare pa-
-
-rolataj vortoj kaj influis lian nerveman paroladon. Tiel ĝi fari-
+severe limigita fervoro baldaŭ montriĝis el ĉiuj liaj klare parolataj vortoj kaj influis lian nerveman paroladon. Tiel ĝi fari-
 
 ĝis potenca! La koro estis movata, la animo estis uzurpata de
 
-la forteco de la pastro — sed la aŭskultantoj ne estis kvietiga-
+la forteco de la pastro — sed la aŭskultantoj ne estis kvietigataj. La tuton trairis stranga amareco, manko de konsolanta
 
-taj. La tuton trairis stranga amareco, manko de konsolanta
+dolĉanimeco: rigidaj admonoj de kalvinaj doktrinoj — elektado, antaŭdestino, kondamno — ofte alternadis, kaj ĉiu rilato
 
-dolĉanimeco: rigidaj admonoj de kalvinaj doktrinoj — elek-
-
-tado, antaŭdestino, kondamno — ofte alternadis, kaj ĉiu rilato
-
-al ili sonis kiel verdikto. Kiam li finis, min ekregis nepriskri-
-
-bebla malĝojo, anstataŭ senti min pli bona, pli kvieta kaj
+al ili sonis kiel verdikto. Kiam li finis, min ekregis nepriskribebla malĝojo, anstataŭ senti min pli bona, pli kvieta kaj
 
 refreŝiĝinta pro lia prediko; ĉar ŝajnis al mi — mi ne scias, ĉu
 
-aliaj aŭskultantoj spertis tion saman, — kvazaŭ la elokvente-
-
-co, kiun mi aŭskultis, devenas de profundo, kie regas la mal-
+aliaj aŭskultantoj spertis tion saman, — kvazaŭ la elokventeco, kiun mi aŭskultis, devenas de profundo, kie regas la mal-
 
 ĝoja surfundaĵo de la seniluziiĝo, kie furiozas turmentplenaj
 
 impulsoj de malkvietigitaj aspiroj kaj senfinaj penadoj. Mi
 
-estis certa, ke St. John, malgraŭ ĉasteco, fervoro kaj konsci-
-
-enceco, ankoraŭ ne trovis tiun dian pacon, kiu superas ĉiun
+estis certa, ke St. John, malgraŭ ĉasteco, fervoro kaj konscienceco, ankoraŭ ne trovis tiun dian pacon, kiu superas ĉiun
 
 prudenton; mi pensis, ke li ankaŭ ne trovis ĝin; mi kun mia
 
@@ -12673,18 +10142,11 @@ sekreta, turmentanta ĉagreno pro mia ruinigita idealo —
 
 tamen tute katenis min kaj kiu plene min regis.
 
-Intertempe pasis monato. Diana kaj Maria baldaŭ ree for-
+Intertempe pasis monato. Diana kaj Maria baldaŭ ree forlasos Moor House por reiri al tute alia vivo, kiu atendis ilin
 
-lasos Moor House por reiri al tute alia vivo, kiu atendis ilin
-
-kiel guvernistinoj en granda urbo sude de Anglujo; kie ili ser-
-
-vis fierajn, riĉajn familiojn, kiuj rigardis la guvernistinojn kiel
+kiel guvernistinoj en granda urbo sude de Anglujo; kie ili servis fierajn, riĉajn familiojn, kiuj rigardis la guvernistinojn kiel
 
 ordinarajn servistinojn, tute ne konante aŭ serĉante iliajn
-
-
-JANE EYRE
 
 
 kapablojn kaj ŝatante ilin kiel la lertecon de sia kuiristino kaj
@@ -12695,17 +10157,11 @@ Sinjoro St. John ankoraŭ ne parolis kun mi eĉ unu vorton
 
 pri la ofico, kiun li promesis havigi al mi; kaj tamen urĝis, ke
 
-mi elektu ion ajn. Iun matenon estante duopa kun li, mi kura-
+mi elektu ion ajn. Iun matenon estante duopa kun li, mi kuraĝis proksimiĝi al la fenestro de la familioĉambro, apud kiu
 
-ĝis proksimiĝi al la fenestro de la familioĉambro, apud kiu
+staris liaj tablo, pupitro kaj seĝo kaj mi estis parolonta, kvankam mi ne sciis ankoraŭ kiel formuli mian demandon — ĉar
 
-staris liaj tablo, pupitro kaj seĝo kaj mi estis parolonta, kvan-
-
-kam mi ne sciis ankoraŭ kiel formuli mian demandon — ĉar
-
-estas ĉiam malfacile rompi la sinretenemon de tiaj karakte-
-
-roj — kiam li liberigis min de tiu ŝarĝo, komencante mem la
+estas ĉiam malfacile rompi la sinretenemon de tiaj karakteroj — kiam li liberigis min de tiu ŝarĝo, komencante mem la
 
 interparoladon.
 
@@ -12719,23 +10175,17 @@ demandis:
 
 povus oferi al mi.”
 
-”Jam antaŭ tri semajnoj mi trovis ion por vi; sed ĉar vi ŝaj-
-
-nis esti ĉi tie feliĉa kaj ĉar vi faris vin utila pro via ĉeestado,
+”Jam antaŭ tri semajnoj mi trovis ion por vi; sed ĉar vi ŝajnis esti ĉi tie feliĉa kaj ĉar vi faris vin utila pro via ĉeestado,
 
 kiu plaĉis al ili, kaj ĉar ili tre ŝatas vin, mi opiniis pli bone ne
 
-ĝeni viajn reciprokajn komfortojn pli frue ol la baldaŭa for-
-
-vojaĝo de miaj fratinoj necesigos tion.”
+ĝeni viajn reciprokajn komfortojn pli frue ol la baldaŭa forvojaĝo de miaj fratinoj necesigos tion.”
 
 ”Ili tamen forvojaĝos jam en tri tagoj,” mi respondis.
 
 ”Jes, kaj kiam ili forvojaĝos, mi reiros al la pastra domo en
 
-Morton. Hanna akompanos min kaj ĉi tiu logejo estos forla-
-
-sita kaj ŝlosita.
+Morton. Hanna akompanos min kaj ĉi tiu logejo estos forlasita kaj ŝlosita.
 
 Mi atendis kelkajn momentojn esperante, ke li daŭrigos la
 
@@ -12746,18 +10196,11 @@ en subitan silentadon. Lia rigardo diris al mi, ke lia animo
 vagadis en malproksimaj regionoj for de mia afero. Mi do
 
 
-JANE EYRE
-
-
-estis devigita rekonduki ĝin al temo, kiu por mi estis pli inte-
-
-resa kaj grava.
+estis devigita rekonduki ĝin al temo, kiu por mi estis pli interesa kaj grava.
 
 ”Kaj kiu estis la ofico, kiun vi destinis al mi, sinjoro Rivers?
 
-Mi esperas, ke ĉi tiu prokrasto ne pligrandigis la penon cer-
-
-tigi ĝin por mi?”
+Mi esperas, ke ĉi tiu prokrasto ne pligrandigis la penon certigi ĝin por mi?”
 
 ”Ho ne, ĉar ĝi estas ofico pri kiu nur mi povas disponi, kaj
 
@@ -12767,31 +10210,21 @@ Ree li eksilentis. Nur kontraŭvole li ŝajnis paroli plue. Mi
 
 estiĝis malpacienca. Kelkaj malkvietaj gestoj, tima, demanda
 
-rigardo, kiun mi direktis al li, klarigis al li pli klare miajn pen-
-
-sojn ol vortoj povus fari tion.
+rigardo, kiun mi direktis al li, klarigis al li pli klare miajn pensojn ol vortoj povus fari tion.
 
 ”Vi ne bezonas rapidi aŭdi tion,” li diris. ”Sincere mi diru
 
-al vi, ke mia propono tute ne estas io dezirinda aŭ profitodo-
+al vi, ke mia propono tute ne estas io dezirinda aŭ profitodona. Antaŭ ol mi klarigos tion plue, memoru, mi petas, mian
 
-na. Antaŭ ol mi klarigos tion plue, memoru, mi petas, mian
-
-diron, ke mia helpo estas kvazaŭ helpo de blindulo al lamu-
-
-lo. Mi estas malriĉa, ĉar mi estas certiĝinta, ke mia tuta hava-
+diron, ke mia helpo estas kvazaŭ helpo de blindulo al lamulo. Mi estas malriĉa, ĉar mi estas certiĝinta, ke mia tuta hava-
 
 ĵo, post kiam mi pagis la ŝuldojn de mia patro, konsistos nur
 
 en ĉi tiu domaĉo, en la vico de tiuj senvaloraj abioj post ĝi kaj
 
-en malgranda marĉejo kun la taksusoj kaj ileksoj sur ĝi sta-
+en malgranda marĉejo kun la taksusoj kaj ileksoj sur ĝi starantaj. Mi estas rekonata viro. Rivers estas malnova nomo;
 
-rantaj. Mi estas rekonata viro. Rivers estas malnova nomo;
-
-sed el la tri solaj posteuloj de tiu familio du gajnas sian mal-
-
-molan vivopanon de dependeco inter fremduloj kaj la tria
+sed el la tri solaj posteuloj de tiu familio du gajnas sian malmolan vivopanon de dependeco inter fremduloj kaj la tria
 
 rigardas sin fremdulo en sia patrujo — ne nur dum ĉi tiu vivo,
 
@@ -12810,22 +10243,15 @@ sekvu min!’”
 St. John diris ĉi tiujn parolojn en la sama tono, en kiu li
 
 
-JANE EYRE
-
-
 diris siajn predikojn; per kvieta, peza voĉo; kun vizaĝo, sur
 
 kiu aperis neniu koloro kaj kun ardanta rigardo. Li daŭrigis:
 
 ”Kaj estante nur malriĉa kaj nekonata, mi povas oferi al vi
 
-nur nebrilan kaj malbone pagotan oficon. Vi povas eĉ rigar-
+nur nebrilan kaj malbone pagotan oficon. Vi povas eĉ rigardi ĝin kiel ion malestimatan. ĉar mi vidas nun, ke viaj manie-
 
-di ĝin kiel ion malestimatan. ĉar mi vidas nun, ke viaj manie-
-
-roj estas civilizitaj, kiel la mondo nomas tion. Via gusto kli-
-
-niĝas al la idealo kaj via societo konsistis el bone edukitaj
+roj estas civilizitaj, kiel la mondo nomas tion. Via gusto kliniĝas al la idealo kaj via societo konsistis el bone edukitaj
 
 homoj — sed laŭ mia opinio senhonorigas neniu servo, kiu
 
@@ -12843,9 +10269,7 @@ tiu de pioniro: kaj la unuaj pioniroj de la evangelio estis la
 
 apostoloj — ilia gvidanto estis Jesuo Kristo, la Savinto mem.”
 
-”Nu,” mi demandis, kiam ree li eksilentis, ”kial vi ne daŭri-
-
-gas?”
+”Nu,” mi demandis, kiam ree li eksilentis, ”kial vi ne daŭrigas?”
 
 Li rigardis min antaŭ ol paroli plue; vere, li facile povis legi
 
@@ -12861,9 +10285,7 @@ almenaŭ kelkan tempon; tamen ne por ĉiam, same kiel mi ne
 
 povus plenumi por ĉiam la kvietan kaj tro limigitan oficon de
 
-angla vilaĝa pastro; ĉar en via karaktero estas io, kio kontraŭ-
-
-batalas la trankvilon same kiel en mia, kvankam ĝi estas ali-
+angla vilaĝa pastro; ĉar en via karaktero estas io, kio kontraŭbatalas la trankvilon same kiel en mia, kvankam ĝi estas ali-
 
 speca.”
 
@@ -12874,14 +10296,9 @@ speca.”
 kiel malgranda. ĉar mia patro ne vivas plu, mi nun estas mia
 
 
-JANE EYRE
-
-
 propra mastro, tial mi ne restos plu longe en Morton. Eble mi
 
-forlasos la vilaĝon post paso de unu jaro; sed dum mia resta-
-
-do tie, mi streĉos miajn fortojn por favori kaj plibonigi ĝin.
+forlasos la vilaĝon post paso de unu jaro; sed dum mia restado tie, mi streĉos miajn fortojn por favori kaj plibonigi ĝin.
 
 Kiam antaŭ du jaroj mi venis en Morton, ĝi ne havis lernejon;
 
@@ -12889,25 +10306,19 @@ la infanoj de la malriĉuloj estis tute senigitaj de ĉiu espero
 
 leviĝi sociale kaj mense. Mi fondis lernejon por knaboj; nun
 
-mi intencas fondi duan por knabinoj. Tiucele mi luis konstru-
-
-aĵon al kiu apartenas dometo kun du ĉambroj, utilantaj kiel
+mi intencas fondi duan por knabinoj. Tiucele mi luis konstruaĵon al kiu apartenas dometo kun du ĉambroj, utilantaj kiel
 
 loĝejo por la instruistino. La jara salajro estas tridek sterlingaj
 
 funtoj. La domo estas jam aranĝita tre simple, sed sufiĉe bone
 
-dank’al la boneco de fraŭlino Oliver, la sola filino de la unu-
-
-nura riĉa viro en mia komunumo. Tiu sinjoro Oliver estas la
+dank’al la boneco de fraŭlino Oliver, la sola filino de la ununura riĉa viro en mia komunumo. Tiu sinjoro Oliver estas la
 
 posedanto de kudril-fabrikejo, de altforno kaj de ferfandejo
 
 en la valo. La fraŭlino prizorgas la edukadon kaj la vestojn de
 
-orfinoj el la malriĉula laborejo, kondiĉe ke ŝi helpu la instru-
-
-istinon en la mastrumada laboro kaj en la purigado de la ler-
+orfinoj el la malriĉula laborejo, kondiĉe ke ŝi helpu la instruistinon en la mastrumada laboro kaj en la purigado de la ler-
 
 nejo kaj ĉambroj. ĉu vi volas esti tiu instruistino?”
 
@@ -12923,9 +10334,7 @@ En vero, ĝi estis modesta — sed ĝi estis certa kaj precipe mi
 
 bezonis loĝejon; la ofico estis malfacila kaj streĉiga — sed
 
-kompare kun la sorto de guvernistino ĉe riĉuloj, ĝi estis sen-
-
-dependa. Kaj la timo antaŭ dependeco de fremduloj turmen-
+kompare kun la sorto de guvernistino ĉe riĉuloj, ĝi estis sendependa. Kaj la timo antaŭ dependeco de fremduloj turmen-
 
 tegis mian animon kiel ardanta feraĵo. i ne estis malnobla —
 
@@ -12936,9 +10345,6 @@ ne malinda — ne spirite humiliganta — mi do tuj decidis.
 akceptas ĝin.”
 
 ”Sed vi bone komprenis min, ĉu ne?” li demandis. ”i estas
-
-
-JANE EYRE
 
 
 vilaĝa lernejo; viaj lernantinoj estos nur malriĉaj knabinoj —
@@ -12965,9 +10371,7 @@ kontente.
 
 ”Jam morgaŭ mi iros al la indikita loĝejo kaj en la komenco
 
-de la sekvanta semajno mi malfermos la lernejon, se tio pla-
-
-ĉas al vi.”
+de la sekvanta semajno mi malfermos la lernejon, se tio plaĉas al vi.”
 
 ”Bone, tiel estu.”
 
@@ -12995,29 +10399,18 @@ scias, ke mi estas tia. Sed kiel vi malkovris tion?”
 
 ”Mi parolis nur pri mi mem.”
 
-”Nu, se vi ne estas ambicia, tiam vi estas — —,” li eksilen-
-
-tis.
+”Nu, se vi ne estas ambicia, tiam vi estas — —,” li eksilentis.
 
 ”Kio do?”
 
 
-JANE EYRE
-
-
 ”Mi estis dironta ’pasia’ sed eble vi komprenus malĝuste
 
-tiun vorton kaj ofendiĝus. Mi nur celis diri, ke homa simpa-
+tiun vorton kaj ofendiĝus. Mi nur celis diri, ke homa simpatio kaj la amo de koro al koro, havas grandan potencon je vi.
 
-tio kaj la amo de koro al koro, havas grandan potencon je vi.
+Mi estas certa, ke ne longe kontentigos vin pasigi vian liberan tempon en soleco kaj dediĉi viajn laborhorojn al mono-
 
-Mi estas certa, ke ne longe kontentigos vin pasigi vian libe-
-
-ran tempon en soleco kaj dediĉi viajn laborhorojn al mono-
-
-tona laboro, al kiu mankas ĉiu ĉarmo — same kiel mi ne po-
-
-vus esti kontenta,” li aldonis emfaze,” vivi ĉi tie meze de mar-
+tona laboro, al kiu mankas ĉiu ĉarmo — same kiel mi ne povus esti kontenta,” li aldonis emfaze,” vivi ĉi tie meze de mar-
 
 ĉejo, ĉirkaŭita de montoj; mia karaktero, kiun Dio donis al mi,
 
@@ -13041,13 +10434,9 @@ konis lin ol en la tuta pasinta monato, kaj malgraŭ tio mi
 
 rompis al mi la kapon pri li.
 
-Ju pli proksimiĝis la tago en kiu Diana kaj Maria devos for-
+Ju pli proksimiĝis la tago en kiu Diana kaj Maria devos forlasi siajn fraton kaj hejmon, des pli silentaj kaj senparolaj ili
 
-lasi siajn fraton kaj hejmon, des pli silentaj kaj senparolaj ili
-
-estiĝis. Ambaŭ klopodis esti kiel kutime. Sed la ĉagreno, kon-
-
-traŭ kiu ili devis batali estis tia, ke ĝi ne estis facile venkebla
+estiĝis. Ambaŭ klopodis esti kiel kutime. Sed la ĉagreno, kontraŭ kiu ili devis batali estis tia, ke ĝi ne estis facile venkebla
 
 nek kaŝebla. Diana certigis, ke ĉi tiu disiĝo estos tre alia ol la
 
@@ -13066,9 +10455,6 @@ furiozas brulanta, konsumanta febro. Vi rigardas lin kiel iun,
 kiu estas malsevera kaj milda — kaj tamen en multaj aferoj li
 
 
-JANE EYRE
-
-
 estas senkompata kiel la morto. Kaj kio estas la plej grava: mia
 
 konscienco apenaŭ konsentas al mi deteni lin de liaj severaj
@@ -13083,9 +10469,7 @@ Kaj varmegaj larmoj kovris ŝiajn belajn okulojn.
 
 Maria klinis la kapon super sia laboro.
 
-”Ni ne havas plu nian patron; baldaŭ ni ne havos plu fra-
-
-ton kaj hejmon,” ŝi diris mallaŭte.
+”Ni ne havas plu nian patron; baldaŭ ni ne havos plu fraton kaj hejmon,” ŝi diris mallaŭte.
 
 En tiu momento io okazis, kio kvazaŭ pruvis, ke neniu
 
@@ -13097,9 +10481,7 @@ envenis. ”Nia onklo John mortis,” li diris.
 
 La du fratinoj ŝajnis esti konsternitaj, sed ili ne estis
 
-timiĝintaj nek teruritaj. La sciigo ŝajnis esti pli subita ol mal-
-
-ĝojiga.
+timiĝintaj nek teruritaj. La sciigo ŝajnis esti pli subita ol malĝojiga.
 
 ”Mortis?” ripetis Diana.
 
@@ -13115,9 +10497,7 @@ kvieton je la vizaĝo.
 
 ”Kio poste? Nu, — nenio! Legu!”
 
-Li ĵetis al ŝi la leteron. ŝi rapide legis ĝin kaj poste transdo-
-
-nis al Maria. Maria senparole tralegis ĝin kaj poste redonis al
+Li ĵetis al ŝi la leteron. ŝi rapide legis ĝin kaj poste transdonis al Maria. Maria senparole tralegis ĝin kaj poste redonis al
 
 sia frato. ĉiuj rigardis unu alian kaj ĉiuj tri ridetis — tio estis
 
@@ -13130,26 +10510,17 @@ malĝoja, meditoplena rideto.
 antaŭe,” rimarkis Maria.
 
 
-JANE EYRE
-
-
 ”i nur forte prezentas al nia animo la situacion, kia ĝi
 
-povus esti,” diris sinjoro Rivers, ”kaj montras vivan kontras-
+povus esti,” diris sinjoro Rivers, ”kaj montras vivan kontraston de tio, kio ĝi vere estas.”
 
-ton de tio, kio ĝi vere estas.”
-
-Li faldis la leteron, metis ĝin en sian pupitron kaj ree eli-
-
-ris, la domon.
+Li faldis la leteron, metis ĝin en sian pupitron kaj ree eliris, la domon.
 
 Kelkajn minutojn neniu parolis. Poste Diana sin turnis al
 
 mi.
 
-”Jane, vi miros pro ni kaj niaj sekretoj,” ŝi diris, ”kaj rigar-
-
-dos, nin kiel malmolkorajn estaĵojn, ĉar ni montris ne pli
+”Jane, vi miros pro ni kaj niaj sekretoj,” ŝi diris, ”kaj rigardos, nin kiel malmolkorajn estaĵojn, ĉar ni montris ne pli
 
 grandan malĝojon pro la morto de tia proksima parenco, kia
 
@@ -13159,13 +10530,9 @@ nia patrino. Antaŭ multaj jaroj li kaj nia patro malpaciĝis kaj
 
 disiĝis. Laŭ lia konsilo nia patro riskis la plej grandan parton
 
-de sia havaĵo en spekulado, kiu ruinigis lin. Reciprokaj ripro-
+de sia havaĵo en spekulado, kiu ruinigis lin. Reciprokaj riproĉoj inter ili estis la rezulto; ili kolere disiĝis kaj neniam
 
-ĉoj inter ili estis la rezulto; ili kolere disiĝis kaj neniam
-
-repaciĝis. Mia onklo poste spekuladis en pli feliĉaj entrepre-
-
-noj; ŝajnas, ke li gajnis posedaĵon da dudek mil sterlingaj fun-
+repaciĝis. Mia onklo poste spekuladis en pli feliĉaj entreprenoj; ŝajnas, ke li gajnis posedaĵon da dudek mil sterlingaj fun-
 
 toj. Li neniam edziĝis kaj ne havis parencojn krom ni kaj unu
 
@@ -13192,23 +10559,13 @@ tia sumo estus grandvalora pro la bonfaroj, kiujn li povus fari
 per ĝi.”
 
 
-JANE EYRE
+Post tiu klarigo ni silentis pri tiu temo kaj neniu, nek sinjoro Rivers nek liaj fratinoj parolis plu pri ĝi.
 
-
-Post tiu klarigo ni silentis pri tiu temo kaj neniu, nek sin-
-
-joro Rivers nek liaj fratinoj parolis plu pri ĝi.
-
-La morgaŭan tagon mi transloĝiĝis de Marsh End al Mor-
-
-ton. Unu tagon poste Diana kaj Maria vojaĝis al la malprok-
+La morgaŭan tagon mi transloĝiĝis de Marsh End al Morton. Unu tagon poste Diana kaj Maria vojaĝis al la malprok-
 
 sima B—. Unu semajnon poste sinjoro Rivers kaj Hannah iris
 
 al la pastrejo — — kaj la malnova domo kuŝis forlasita.
-
-
-JANE EYRE
 
 
 ĉapitro XXXI.
@@ -13225,13 +10582,9 @@ apartenaĵo el Delfta fajenco. Super la teretaĝo estas ĉambro
 
 egale vasta kun litostablo el abia ligno kaj komodo sufiĉe
 
-granda por enmeti miajn mizerajn vestaĵojn, kiujn iom kom-
+granda por enmeti miajn mizerajn vestaĵojn, kiujn iom kompletigis miaj noblanimaj amikoj.
 
-pletigis miaj noblanimaj amikoj.
-
-Estas vespero. Kun oranĝo kiel rekompenco, mi ĵus foriri-
-
-gis la malgrandan orfinon, kiu servas al mi kiel servistino. Mi
+Estas vespero. Kun oranĝo kiel rekompenco, mi ĵus foririgis la malgrandan orfinon, kiu servas al mi kiel servistino. Mi
 
 sidas sola apud la kameno. Hodiaŭ matene la vilaĝa lernejo
 
@@ -13239,9 +10592,7 @@ estis malfermita. Mi havas dudek lernantinojn. Nur tri el ili
 
 scias legi; ne unu scias skribi aŭ kalkuli. Iuj scias triki, sed tre
 
-malmultaj kapablas iom kudri. Ili ĉiuj parolas la krudan dia-
-
-lekton de la regiono kaj en la unuaj tagoj ni nur malbone
+malmultaj kapablas iom kudri. Ili ĉiuj parolas la krudan dialekton de la regiono kaj en la unuaj tagoj ni nur malbone
 
 komprenos nin reciproke. Kelkaj el ili estas same senedukaj,
 
@@ -13249,9 +10600,7 @@ krudaj, malobeemaj kiel nesciaj; kontraŭe aliaj estas cedemaj,
 
 obeemaj kaj montras grandan lernemon kaj havas talenton,
 
-kio faras al mi plezuron. Mi ne forgesu, ke ĉi tiuj mizere ves-
-
-titaj vilaĝ-knabinoj estas el karno kaj sango, kiel la markotoj
+kio faras al mi plezuron. Mi ne forgesu, ke ĉi tiuj mizere vestitaj vilaĝ-knabinoj estas el karno kaj sango, kiel la markotoj
 
 de la plej noblaj familioj, kaj ke la ĝermoj de la naturdotitaj
 
@@ -13259,13 +10608,7 @@ supereco, kleriĝo, inteligenteco, animbono eble same bone
 
 kaŝiĝas en iliaj koroj kiel en tiuj de la plej alte-naskiĝintoj.
 
-Estos mia devo disvolvi tiujn ĝermojn; sendube ĉi tiu kon-
-
-
-JANE EYRE
-
-
-science elektita ofico donos al mi kontentigon kaj ĝuon. Mul-
+Estos mia devo disvolvi tiujn ĝermojn; sendube ĉi tiu konscience elektita ofico donos al mi kontentigon kaj ĝuon. Mul-
 
 tan ĝojon mi ne atendas de la vivo, kuŝanta antaŭ mi; sed mi
 
@@ -13277,17 +10620,11 @@ multe.
 
 ĉu mi estis tre ĝoja, kontenta en la horoj, kiujn mi pasigis
 
-hodiaŭ matene kaj hodiaŭ posttagmeze en la nuda, modes-
+hodiaŭ matene kaj hodiaŭ posttagmeze en la nuda, modesta lerneja ĉambro? Se mi ne volas trompi min mem, tiam mi
 
-ta lerneja ĉambro? Se mi ne volas trompi min mem, tiam mi
+devas repondi: Ne, ĉar iagrade mi estis senkonsola. Mi sentis min — ho idiotino — humiligita. Mi demandis al mi, ĉu mi
 
-devas repondi: Ne, ĉar iagrade mi estis senkonsola. Mi sen-
-
-tis min — ho idiotino — humiligita. Mi demandis al mi, ĉu mi
-
-ne faris paŝon, kiu malaltigas min en la homa societo, ansta-
-
-taŭ altigas. Mi estis tiel malforta, ke mi esti skandalita pro la
+ne faris paŝon, kiu malaltigas min en la homa societo, anstataŭ altigas. Mi estis tiel malforta, ke mi esti skandalita pro la
 
 mizera kaj kruda de ĉio, kion mi vidis kaj aŭdis ĉirkaŭ mi. Sed
 
@@ -13297,9 +10634,7 @@ ke tio estis granda maljustaĵo — kaj tio estas jam longa paŝo
 
 al pliboniĝo; mi batalos por venki ĝin. Mi esperas, ke morgaŭ
 
-mi plene regu ĝin; kaj en malmultaj semajnoj tiaj sentoj mal-
-
-aperos el mia koro. Eble post malmultaj monatoj kontento
+mi plene regu ĝin; kaj en malmultaj semajnoj tiaj sentoj malaperos el mia koro. Eble post malmultaj monatoj kontento
 
 jam prenos la lokon de la naŭzo, kiam mi vidos progresojn ĉe
 
@@ -13309,9 +10644,7 @@ Intertempe mi volas adresi al mi demandon: Kio estas pli
 
 bona? — esti cedinta al la tento, esti aŭskultinta al la pasio; ne
 
-esti peninta, ne esti kontraŭbatalinta, sed trafi en silkan kap-
-
-tilon, inter la floroj, kiuj kovras ĝin kaj esti endormiĝinta tie;
+esti peninta, ne esti kontraŭbatalinta, sed trafi en silkan kaptilon, inter la floroj, kiuj kovras ĝin kaj esti endormiĝinta tie;
 
 vekiĝi en suda klimato meze de luksa belega vilao; vivi en
 
@@ -13323,13 +10656,7 @@ estus aminta min, ho, tre certe, li estus adorinta min! Li estis
 
 aminta min — neniu homo iam amos min kiel li min amis.
 
-Neniam plu mi spertos la dolĉan honoradon, montritan ordi-
-
-
-JANE EYRE
-
-
-nare al beleco, juneco — ĉar antaŭ nenies okuloj mi ree ape-
+Neniam plu mi spertos la dolĉan honoradon, montritan ordinare al beleco, juneco — ĉar antaŭ nenies okuloj mi ree ape-
 
 ros naturdotita de tiuj ĉarmoj. Li amis min — li estis flera pro
 
@@ -13337,17 +10664,13 @@ mi — tion faros plu neniu viro!
 
 Sed kien vagas miaj pensoj kaj kion mi diras? Antaŭ ĉio —
 
-kion mi sentas? ĉu estas pli bone, demandas mi, esti la skla-
-
-vino en la paradizo de malsaĝulo en ia suda lando — esti kap-
+kion mi sentas? ĉu estas pli bone, demandas mi, esti la sklavino en la paradizo de malsaĝulo en ia suda lando — esti kap-
 
 tita de la febro de la feliĉego — kaj tuj poste droni en la plej
 
 amaraj larmoj, kiujn verŝigos honto kaj konsciencriproĉoj —
 
-aŭ esti libera kaj honesta en freŝa monthava regiono plenum-
-
-ante la oficon de lerneja instruistino en saniga loko de Anglu-
+aŭ esti libera kaj honesta en freŝa monthava regiono plenumante la oficon de lerneja instruistino en saniga loko de Anglu-
 
 jo?
 
@@ -13379,25 +10702,18 @@ sorto, kiu disigis min de mia sinjoro kaj mastro, kiun mi
 
 neniam revidos plu; — pro la ĉagreno de la senespero kaj la
 
-fatala kolero — la sekvoj de mia forkuro, — kiuj eble kondu-
-
-kos lin for de la vojo de la justo, tro malproksimen por povi
+fatala kolero — la sekvoj de mia forkuro, — kiuj eble kondukos lin for de la vojo de la justo, tro malproksimen por povi
 
 esperi finan reiron. Pensante pri tio, mi forturnis mian
 
 vizaĝon de la ĉarma vespera ĉielo kaj de la soleca valo de
 
 
-JANE EYRE
-
-
 Morton; mi diras: soleca, ĉar sur tiu parto de la valo staris eĉ
 
 ne unu konstruaĵo, krom la preĝejo kaj la pastrejo kaj ankaŭ
 
-tiuj estis tute kovritaj sub la ombroriĉaj arboj. En la malprok-
-
-simo tre fore oni vidis la tegmenton de Vale Hall, kie loĝas la
+tiuj estis tute kovritaj sub la ombroriĉaj arboj. En la malproksimo tre fore oni vidis la tegmenton de Vale Hall, kie loĝas la
 
 riĉa sinjoro Oliver kun sia filino. Mi metis la manon super la
 
@@ -13409,9 +10725,7 @@ povis iri el mia malgranda ĝardeno en la antaŭ ĝi kuŝantan
 
 paŝtejon, igis min ree supren rigardi. Hundo — la aĝa Karlo,
 
-la ĉashundo de sinjoro Rivers, mi rekonis ĝin ĉe la unua rigar-
-
-do — puŝis per la nazo la pordegon, kaj sinjoro St. John apo-
+la ĉashundo de sinjoro Rivers, mi rekonis ĝin ĉe la unua rigardo — puŝis per la nazo la pordegon, kaj sinjoro St. John apo-
 
 gis sin al ĝi per la falditaj brakoj. Li sulkigis la frunton kaj
 
@@ -13419,17 +10733,13 @@ grave, malbonhumore li rigardis min.
 
 Mi invitis lin eniri.
 
-”Ne, mi ne povas; mi portas al vi paketon, kiun miaj frati-
-
-noj postlasis por vi. Mi kredas, ke ĝi enhavas pentraĵ-keston,
+”Ne, mi ne povas; mi portas al vi paketon, kiun miaj fratinoj postlasis por vi. Mi kredas, ke ĝi enhavas pentraĵ-keston,
 
 penikojn kaj paperon.”
 
 Mi iris al li por ricevi ilin; ĝi estis al mi bonvena donaco.
 
-Irante al li, li ekzamenis mian vizaĝon, ŝajne li faris tion seve-
-
-re kaj malmilde; sendube ĝi monfris ankoraŭ tre klarajn pos-
+Irante al li, li ekzamenis mian vizaĝon, ŝajne li faris tion severe kaj malmilde; sendube ĝi monfris ankoraŭ tre klarajn pos-
 
 tesignojn de ĵus verŝitaj larmoj.
 
@@ -13452,9 +10762,6 @@ Mi interrompis lin.
 veteron; miaj mebloj estas komfortaj kaj sufiĉe bonaj. ĉio,
 
 
-JANE EYRE
-
-
 kion mi vidas, faris min danka, ne malĝoja. Mi ne estas tia
 
 malsaĝulino, ke mi povus malĝoji pro manko de tapiŝo, sofo,
@@ -13475,9 +10782,7 @@ priploras nenion.”
 
 domo tie malantaŭ vi estas ja malluma kaj malplena.”
 
-”Apenaŭ mi havis la tempon ĝoji pro la sento de trankvi-
-
-lo, kiel do mi estus malpacienca pro la premado de la soleco.”
+”Apenaŭ mi havis la tempon ĝoji pro la sento de trankvilo, kiel do mi estus malpacienca pro la premado de la soleco.”
 
 ”Nu, bone. Mi esperas, ke vi ankaŭ sentos la kontenton,
 
@@ -13497,9 +10802,7 @@ de via nuna ofico, almenaŭ dum kelkaj monatoj.”
 
 St. John parolis plue:
 
-”Estas malfacila tasko regi niajn inklinojn kaj kontraŭlabo-
-
-ri niajn denaskitajn pasiojn. Sed la sperto instruis al mi, ke ni
+”Estas malfacila tasko regi niajn inklinojn kaj kontraŭlabori niajn denaskitajn pasiojn. Sed la sperto instruis al mi, ke ni
 
 kapablas tion. Dio donis al ni ian povon krei nian propran
 
@@ -13507,16 +10810,11 @@ sorton; kaj se niaj fortoj deziras la plifortiĝon, kiun ili ne
 
 povas akiri — se nia volo sin direktas al vojo, kiun ni ne laŭiru
 
-— tiam ni ne bezonos morti pro malsato, nek halti en senes-
-
-pero: tiam ni devas elekti alian nutraĵon por nia animo, same
+— tiam ni ne bezonos morti pro malsato, nek halti en senespero: tiam ni devas elekti alian nutraĵon por nia animo, same
 
 nutra kiel tiu, kiun ni deziris ĝui — kaj eble pli puran kaj pli
 
 sanigan; kaj por niaj aventuraj piedoj ni trabatu al ni vojon,
-
-
-JANE EYRE
 
 
 same rektan kaj same larĝan kiel tiu, kiun la sorto baris al ni
@@ -13529,9 +10827,7 @@ mizera, kredante, ke mi faris eraron, dedicinte min al eklezia
 
 profesio; ĝiaj unuformaj devoj tedis min ĝismorte. Mi pasie
 
-aspiris la laborplenan vivon de la mondo — mi aspiris la eks-
-
-citajn penadojn de literatura kariero — la profesion de arti-
+aspiris la laborplenan vivon de la mondo — mi aspiris la ekscitajn penadojn de literatura kariero — la profesion de arti-
 
 sto, de aŭtoro, de oratoro; ĉion alian, sed ne tiun de pastro;
 
@@ -13541,23 +10837,15 @@ soldato; mi aspiris famon; mi amis la famon, eĉ deziregis
 
 povon. Mi pripensis. Mia vivo estis tiel mizera, ke nepre
 
-ŝanĝiĝo devis akazi, alie mi mortus. Post longa tempo de mal-
+ŝanĝiĝo devis akazi, alie mi mortus. Post longa tempo de mallumo kaj batalo la helpo kaj la liberiĝo venis. Mia tro limigi-
 
-lumo kaj batalo la helpo kaj la liberiĝo venis. Mia tro limigi-
+ta ekzistado subite plivastiĝis je ebeno sen limoj — miaj kapabloj ekaŭdis vokon de la ĉielo, ke mi streĉu ĉiujn miajn
 
-ta ekzistado subite plivastiĝis je ebeno sen limoj — miaj ka-
-
-pabloj ekaŭdis vokon de la ĉielo, ke mi streĉu ĉiujn miajn
-
-fortojn, la flugiloj de miaj kapabloj sin etendu, por ke mi levi-
-
-ĝu super la vidvasto. Dio estis elektinta por mi mision, kies
+fortojn, la flugiloj de miaj kapabloj sin etendu, por ke mi leviĝu super la vidvasto. Dio estis elektinta por mi mision, kies
 
 plenumado bezonis la taŭgecon kaj la forton, la elokventecon
 
-kaj la kuraĝon, la plej bonajn proprecojn de soldato, diploma-
-
-to kaj oratoro: ĉar ĉiuj ĉi tiuj ecoj koncentriĝas en bona misi-
+kaj la kuraĝon, la plej bonajn proprecojn de soldato, diplomato kaj oratoro: ĉar ĉiuj ĉi tiuj ecoj koncentriĝas en bona misi-
 
 isto.
 
@@ -13567,9 +10855,7 @@ isto.
 
 nenion krom la dolorplenan ofend-sentemon, kiun nur la
 
-tempo kapablas kuraci. Mia patro kontraŭstaris mian deci-
-
-don; sed post lia morto restas al mi plu neniu malhelpo por
+tempo kapablas kuraci. Mia patro kontraŭstaris mian decidon; sed post lia morto restas al mi plu neniu malhelpo por
 
 kontraŭbatali. Kiam miaj aferoj estos aranĝitaj, kiam posteulo
 
@@ -13580,34 +10866,23 @@ aferoj tuŝantaj mian koron, estos neniigita — lasta batalo
 kontraŭ homa malforteco, en kiu mi certe venkos, ĉar mi
 
 
-JANE EYRE
-
-
 ĵuris, ke mi venkos — tiam mi por ĉiam forlasos Eŭropon kaj
 
 iros al la oriento.”
 
-ĉion ĉi li diris per sia karakteriza, obtuza kaj tamen pato-
-
-sa voĉo. Kiam li eksilentis, li ne rigardis min, sed la kuŝiĝintan
+ĉion ĉi li diris per sia karakteriza, obtuza kaj tamen patosa voĉo. Kiam li eksilentis, li ne rigardis min, sed la kuŝiĝintan
 
 sunon, kiu ankaŭ atentigis min. Ni ambaŭ estis turnintaj la
 
-dorson al la piedvojo, kondukanta de la kamparo al mia ĝar-
-
-deneto. Ni ne estis aŭdintaj paŝojn sur la herbokovrita vojo;
+dorson al la piedvojo, kondukanta de la kamparo al mia ĝardeneto. Ni ne estis aŭdintaj paŝojn sur la herbokovrita vojo;
 
 la rivereto, murmurante, serpentumante tra la valo, estis la
 
-sola brueto en la regiono en ĉi tiu horo. Sekve ne estis miri-
-
-ge, ke ni timiĝis, kiam pura gaja voĉo, klara kiel arĝenta
+sola brueto en la regiono en ĉi tiu horo. Sekve ne estis mirige, ke ni timiĝis, kiam pura gaja voĉo, klara kiel arĝenta
 
 sonorilo, kriis:
 
-”Bonan vesperon, sinjoro Rivers. Kaj bonan vesperon, Kar-
-
-lo. Via hundo pli rapide rekonas siajn amikojn ol vi, sinjoro;
+”Bonan vesperon, sinjoro Rivers. Kaj bonan vesperon, Karlo. Via hundo pli rapide rekonas siajn amikojn ol vi, sinjoro;
 
 ĝi jam levis la orelojn kaj movetis la voston, kiam mi estis ĉe
 
@@ -13619,13 +10894,9 @@ Estis vere. Kvankam sinjoro Rivers timiĝis ĉe la unuaj el
 
 tiuj belsonaj vortoj, kvazaŭ fulmotondro subite disŝiris la
 
-nubojn super lia kapo, li staris ankoraŭ tie, kiam la tuta fra-
+nubojn super lia kapo, li staris ankoraŭ tie, kiam la tuta frazo estis parolita, en la sama teniĝo, en kiu la parolantino estis
 
-zo estis parolita, en la sama teniĝo, en kiu la parolantino estis
-
-surprizinta lin — dum li apogis sin per la brako al la porde-
-
-go kaj lia vizaĝo estis turnita okcidenten. Fine li sin turnis,
+surprizinta lin — dum li apogis sin per la brako al la pordego kaj lia vizaĝo estis turnita okcidenten. Fine li sin turnis,
 
 kvazaŭ kun mezurita malrapideco. Estis al mi, kvazaŭ ĉarma
 
@@ -13635,19 +10906,11 @@ staris blank-vestita figuro — juna, belega knabino kun graciaj
 
 rondaj konturoj; kaj kiam ŝi, kliniĝinte al Karlo por karesi ĝin,
 
-ree leviĝis kaj flankenŝovis longan vualon, ŝi montris floran-
-
-tan vizaĝon perfekte belan. La esprimo ”perfekte belan” estas
+ree leviĝis kaj flankenŝovis longan vualon, ŝi montris florantan vizaĝon perfekte belan. La esprimo ”perfekte belan” estas
 
 forta esprimo, sed mi ne reprenos ĝin, ankaŭ mi ne pravigos
 
-ĝin. La vizaĝtrajtoj estis tiel dolĉaj kaj mildaj, kiel la moderi-
-
-
-JANE EYRE
-
-
-gita klimato iam skulptis ilin. La koloroj tiel rozoruĝaj kaj li-
+ĝin. La vizaĝtrajtoj estis tiel dolĉaj kaj mildaj, kiel la moderigita klimato iam skulptis ilin. La koloroj tiel rozoruĝaj kaj li-
 
 lioblankaj, kiel iam ili brilis sub ĉi tiu nuboplena ĉielo, en ĉi
 
@@ -13655,27 +10918,19 @@ tiuj malseketaj ventoj, en ĉi tiu okazo pravigas la signifon:
 
 ”perfekte belan”. Neniu ĉarmo mankis, neniu manko estis
 
-videbla; la juna knabino havis molajn kaj regulajn vizaĝtraj-
-
-tojn; la okuloj estis plenaj de tiaj formo kaj koloro, kiajn oni
+videbla; la juna knabino havis molajn kaj regulajn vizaĝtrajtojn; la okuloj estis plenaj de tiaj formo kaj koloro, kiajn oni
 
 vidis nur sur pentraĵoj belegaj, ili estis grandaj kaj malhelaj
 
 kaj la rigardo estis malkaŝa; la longaj, dikaj okulharoj, kiuj
 
-aldonis al la belaj okuloj tian mildan ĉarmon, la kvazaŭ pen-
-
-tritaj brovoj, kiuj igis la okulojn tiel klaraj kaj brilaj, la blan-
+aldonis al la belaj okuloj tian mildan ĉarmon, la kvazaŭ pentritaj brovoj, kiuj igis la okulojn tiel klaraj kaj brilaj, la blan-
 
 ka pura frunto, kiu plibeligis la esprimon de la vizaĝo kaj kiu
 
-tiel pligrandigis ĝian kvieton, la vangoj, ovalaj, freŝaj kaj mo-
+tiel pligrandigis ĝian kvieton, la vangoj, ovalaj, freŝaj kaj molaj, la lipoj same freŝaj, ruĝaj, sanaspektaj kaj milde formitaj,
 
-laj, la lipoj same freŝaj, ruĝaj, sanaspektaj kaj milde formitaj,
-
-la brilantaj kvazaŭ perlodentoj sen ia makuleto, la eta men-
-
-tono kun la ŝercema kavaĵo, la ornamaj dikaj harplektaĵoj —
+la brilantaj kvazaŭ perlodentoj sen ia makuleto, la eta mentono kun la ŝercema kavaĵo, la ornamaj dikaj harplektaĵoj —
 
 per unu vorto ĉio, kio povas formi perfektan belegecon,
 
@@ -13685,9 +10940,7 @@ tiu belega figuro; mi tutkore admiris sin. Okulŝajne la naturo
 
 kreis ŝin en sia plej brila kaprico; kaj forgesinte donaci al ŝi
 
-sian kutiman duonpatrinan parton, ŝi ornamis sian favorati-
-
-non per la malavareco de avino.
+sian kutiman duonpatrinan parton, ŝi ornamis sian favoratinon per la malavareco de avino.
 
 Kaj kion St. John Rivers opiniis pri ĉi tiu anĝelo en homa
 
@@ -13706,9 +10959,6 @@ modestan tufon da amarantoj, florantan apud la pordego.
 sola ekstere,” li diris, piedpremante la neĝe blankajn kapetojn
 
 de la dormantaj floroj.
-
-
-JANE EYRE
 
 
 ”Ho, mi revenis nur hodiaŭ posttagmeze de S—,” (ŝi nomis
@@ -13735,9 +10985,7 @@ kvankam iom infana.
 
 esperi tion.”
 
-”ĉu vi trovis viajn lernantinojn tiel atentemaj, kiel vi aten-
-
-dis?”
+”ĉu vi trovis viajn lernantinojn tiel atentemaj, kiel vi atendis?”
 
 ”Absolute.”
 
@@ -13772,9 +11020,6 @@ mi estis dum mia restado en S— tiel ĝoja kaj petola. Hieraŭ
 vespere aŭ pli bone dirite la pasintan nokton mi dancis ĝis la
 
 
-JANE EYRE
-
-
 dua horo. Dum la tumultetoj la regimento de — estas lokita
 
 tie; kaj la oficiroj estas la plej amindaj homoj en la mondo; ili
@@ -13791,21 +11036,15 @@ lia buŝo aspektis tre kunpremita, kaj la malsupra parto de lia
 
 vizaĝo estis tre gravmiena, kiam la ridanta knabino sciigis al
 
-li tion. Poste li levis la okulojn kaj fikse rigardis ŝin. Tiu rigar-
-
-do estis penetranta, neamika kaj tre signifodona. ŝi respon-
+li tion. Poste li levis la okulojn kaj fikse rigardis ŝin. Tiu rigardo estis penetranta, neamika kaj tre signifodona. ŝi respon-
 
 dis per dua ridado, kaj la ridado bonege harmoniis kun ŝiaj
 
 juneco, rozoj, kavetaĵo kaj ardantaj okuloj.
 
-Kiam li staris tie tiel senparola kaj grava, ŝi denove kom-
+Kiam li staris tie tiel senparola kaj grava, ŝi denove komencis karesi Karlon. ”La kompatinda Karlo amas min,” ŝi di-
 
-encis karesi Karlon. ”La kompatinda Karlo amas min,” ŝi di-
-
-ris. ”i ne estas severa kaj fremda al siaj amikoj, kaj se ĝi po-
-
-vus paroli, ĝi ne silentadus.”
+ris. ”i ne estas severa kaj fremda al siaj amikoj, kaj se ĝi povus paroli, ĝi ne silentadus.”
 
 Kiam ŝi karesis la kapon de la hundo, kaj sin klinis kun
 
@@ -13813,9 +11052,7 @@ denaskita ĉarmo antaŭ ĝia juna, severa mastro, mi vidis, ke
 
 purpura koloro kovris la vizaĝon de tiu mastro. Mi vidis, ke
 
-subita fajro fandis la malmolecon de liaj okuloj kaj ke tie eklu-
-
-mis neregebla emocio. Tiel ruĝiĝinta kaj emociita, li kiel viro
+subita fajro fandis la malmolecon de liaj okuloj kaj ke tie eklumis neregebla emocio. Tiel ruĝiĝinta kaj emociita, li kiel viro
 
 aspektis same bele kiel ŝi kiel virino. Lia brusto leviĝis, sed
 
@@ -13833,13 +11070,7 @@ vorto li respondis ŝian delikatan cedemon.
 
 parolis plue fraŭlino Oliver, rigardante supren. ”Vi estiĝis
 
-fremdulo en Vale Hall. Hodiaŭ vespere li estas tute sola hej-
-
-
-JANE EYRE
-
-
-me kaj li ne sentas sin bone. ĉu vi volas iri kun mi por viziti
+fremdulo en Vale Hall. Hodiaŭ vespere li estas tute sola hejme kaj li ne sentas sin bone. ĉu vi volas iri kun mi por viziti
 
 lin?”
 
@@ -13851,9 +11082,7 @@ nun,” respondis St. John.
 
 malfrue. uste en ĉi tiu horo li plej multe bezonas vizitanton.
 
-La ferfabrikejoj estas nun fermitaj kaj li ripozas post siaj afe-
-
-roj. Tial, sinjoro Rivers, mi petas vin, iru kun mi! Kial do vi
+La ferfabrikejoj estas nun fermitaj kaj li ripozas post siaj aferoj. Tial, sinjoro Rivers, mi petas vin, iru kun mi! Kial do vi
 
 estas tiel retenema, tiel terure grava?”
 
@@ -13867,23 +11096,17 @@ estus terurita pro si mem. ”Mi tute ne pensis pri tio, ke vi
 
 havas sufiĉajn motivojn por ne meti atenton al mia stulta
 
-babilado. Diana kaj Maria forlasis vin; Moor House estas ŝlo-
-
-sita, kaj vi estas tute sola. Mi kore kompatas vin. Venu kun mi
+babilado. Diana kaj Maria forlasis vin; Moor House estas ŝlosita, kaj vi estas tute sola. Mi kore kompatas vin. Venu kun mi
 
 por viziti mian patron.”
 
-”Ne hodiaŭ vespere, fraŭlino Rosamond, ne hodiaŭ vespe-
-
-re.” Sinjoro St. John parolis preskaŭ kiel aŭtomato. Nur li
+”Ne hodiaŭ vespere, fraŭlino Rosamond, ne hodiaŭ vespere.” Sinjoro St. John parolis preskaŭ kiel aŭtomato. Nur li
 
 mem sciis, kiel malfacile estis al li malakcepti la peton.
 
 ”Nu, ĉar vi estas tiel nekurbiĝema, mi forlasos vin, ĉar mi
 
-ne kuraĝos forresti pli longe. La roso komencas jam fali. Bo-
-
-nan nokton!”
+ne kuraĝos forresti pli longe. La roso komencas jam fali. Bonan nokton!”
 
 ŝi etendis al li la manon. Li tuŝetis ĝin. ”Bonan nokton!”
 
@@ -13895,21 +11118,12 @@ posterevenis.
 
 tiun demandon, ĉar lia vizaĝo estis pala kiel ŝia vestaĵo.
 
-”Tute bone,” certigis li kaj kun mansaluto li malproksimi-
-
-ĝis de la pordego. ŝi iris en la direkto al unu flanko, li al la alia.
+”Tute bone,” certigis li kaj kun mansaluto li malproksimiĝis de la pordego. ŝi iris en la direkto al unu flanko, li al la alia.
 
 
-JANE EYRE
+ŝi turnis sin dufoje por postrigardi lin, kiam ŝi kiel feino malsupreniris la kamparon al la valo; li eĉ ne unu fojon rerigar-
 
-
-ŝi turnis sin dufoje por postrigardi lin, kiam ŝi kiel feino mal-
-
-supreniris la kamparon al la valo; li eĉ ne unu fojon rerigar-
-
-dis, kiam li per longaj, firmaj paŝoj sin direktis al la pastrohej-
-
-mo.
+dis, kiam li per longaj, firmaj paŝoj sin direktis al la pastrohejmo.
 
 ĉi tiu vidaĵo de sufero kaj ofero de aliulo deturnis miajn
 
@@ -13918,9 +11132,6 @@ pensojn for de la pripensoj pri mi mem. Diana Rivers estis
 nominta sian fraton ”senkompata kiel la morto”. ŝi ne estis
 
 troiginta.
-
-
-JANE EYRE
 
 
 ĉapitro XXXII.
@@ -13933,23 +11144,17 @@ estis malfacila. Malgraŭ ĉiuj miaj penoj pasis longa tempo
 
 antaŭ ol mi povis kompreni la dialekton de miaj lernantinoj.
 
-Ili estis tute malkleraj, ĉiuj iliaj kapabloj ŝajnis dormi neveki-
-
-taj kaj ĉe la unua rigardo ĉiuj estis same stultaj. Sed baldaŭ mi
+Ili estis tute malkleraj, ĉiuj iliaj kapabloj ŝajnis dormi nevekitaj kaj ĉe la unua rigardo ĉiuj estis same stultaj. Sed baldaŭ mi
 
 rimarkis mian eraron. Same kiel inter la civilizitoj, ankaŭ inter
 
-miaj lernantinoj estis diferenco; kaj kiam mi pli bone kona-
-
-tiĝis kun ili kaj ili kun mi, tiu diferenco montriĝis pli kaj pli
+miaj lernantinoj estis diferenco; kaj kiam mi pli bone konatiĝis kun ili kaj ili kun mi, tiu diferenco montriĝis pli kaj pli
 
 rapide. Post kiam malaperis ilia miro pri mi, pri mia lingvo,
 
 pri miaj ordonoj kaj agmanieroj, mi vidis je mia plej granda
 
-miro, kiel kelkaj el ĉi tiuj mallertaj kun malfermita buŝo rigar-
-
-dantaj kamparidinoj disvolviĝis je lertaj, saĝaj knabinoj. Iuj el
+miro, kiel kelkaj el ĉi tiuj mallertaj kun malfermita buŝo rigardantaj kamparidinoj disvolviĝis je lertaj, saĝaj knabinoj. Iuj el
 
 ili eĉ fariĝis komplezemaj kaj amindaj; kaj mi rimarkis inter
 
@@ -13957,24 +11162,15 @@ ili pli ol unu ekzemplon de natura, denaska ĝentilo kaj eĉ de
 
 memestimo. Tiuj bonegaj kapabloj naskis miajn miron kaj
 
-koran simpation. Kaj tiuj knabinoj baldaŭ laboris kun plezu-
+koran simpation. Kaj tiuj knabinoj baldaŭ laboris kun plezuro, ili ne malpuriĝis kaj regule studis siajn taskojn; ili adapti-
 
-ro, ili ne malpuriĝis kaj regule studis siajn taskojn; ili adapti-
+ĝis al kvietaj kaj ordaj manieroj. En kelkaj okazoj la rapideco de iliaj progresoj estis eĉ miriga kaj pri tio mi sentis hone-
 
-ĝis al kvietaj kaj ordaj manieroj. En kelkaj okazoj la rapide-
-
-co de iliaj progresoj estis eĉ miriga kaj pri tio mi sentis hone-
-
-stan, feliĉan fieron; krome mi baldaŭ spertis personan bon-
-
-volon al kelkaj el la plej bonaj knabinoj, kaj reciproke ili amis
+stan, feliĉan fieron; krome mi baldaŭ spertis personan bonvolon al kelkaj el la plej bonaj knabinoj, kaj reciproke ili amis
 
 min. Inter miaj lernantinoj estis filinoj de farmistoj, preskaŭ
 
 plenkreskulinoj. ĉi tiuj jam sciis legi, skribi kaj kudri, kaj al ili
-
-
-JANE EYRE
 
 
 mi instruis la unuajn elementojn de la gramatiko, geografio,
@@ -13985,9 +11181,7 @@ la knabinoj kelkajn kun estimindaj karakteroj — karakteroj,
 
 kiuj sopiris je scienco kaj kiuj kapablis kompreni ĝin. Kun ili
 
-mi pasigis multajn agrablajn vesperojn en iliaj propraj hej-
-
-moj. ĉe tiuj okazoj la gepatroj — la gefarmistoj — superŝarĝis
+mi pasigis multajn agrablajn vesperojn en iliaj propraj hejmoj. ĉe tiuj okazoj la gepatroj — la gefarmistoj — superŝarĝis
 
 min per siaj atentoj. Kun ĝojo mi akceptis tiun simplan koran
 
@@ -14009,21 +11203,15 @@ ridetante diris bonvenon al mi. Vivi meze de ĝenerala estimo,
 
 eĉ se tiu estimo venas nur de simplaj laboristoj, similas la
 
-senton ”sidi en sunbrilo, kvieta, dolĉa sunbrilo”; puraj, kvie-
-
-tigantaj sentoj ĝermas kaj floras sub la vivigantaj radioj. En
+senton ”sidi en sunbrilo, kvieta, dolĉa sunbrilo”; puraj, kvietigantaj sentoj ĝermas kaj floras sub la vivigantaj radioj. En
 
 tiu periodo de mia vivo mia koro ŝvelis multe pli ofte pro
 
-dankemo, ol ĝi estus malĝojinta; kaj tamen, mia kara legan-
-
-to, se mi devas diri ĉion al vi, meze de tiu kvieta, utila ekzis-
+dankemo, ol ĝi estus malĝojinta; kaj tamen, mia kara leganto, se mi devas diri ĉion al vi, meze de tiu kvieta, utila ekzis-
 
 to — post kiam mi senbrue kaj kontente estis pasiginta la
 
-tagon en honesta klopodo inter miaj lernantinoj, kaj la ves-
-
-peron per desegnado kaj legado — mi nokte ofte havis
+tagon en honesta klopodo inter miaj lernantinoj, kaj la vesperon per desegnado kaj legado — mi nokte ofte havis
 
 strangajn sonĝojn: multkolorajn, ekscitajn malkvietigantajn
 
@@ -14038,9 +11226,6 @@ komenciĝis ia decidanta krizo; kaj tiam ripetiĝis kun sia tuta
 unua forto, kun sia tuta unua fajro la sento, kvazaŭ mi kuŝus
 
 
-JANE EYRE
-
-
 en liaj brakoj, aŭdante lian voĉon kaj vidante lian rigardon,
 
 tuŝante liajn manon kaj vangon, amante lin kaj esti de li
@@ -14051,9 +11236,7 @@ vivon ĉe lia flanko. Kaj poste mi vekiĝis. Tiam mi memoris,
 
 kie mi estas kaj kia estas mia situacio. Mi leviĝis tremante. Kaj
 
-la kvieta, malluma nokto vidis la tremadojn de mia senespe-
-
-ro, aŭdis la plendojn de la pasio. La sekvintan matenon pre-
+la kvieta, malluma nokto vidis la tremadojn de mia senespero, aŭdis la plendojn de la pasio. La sekvintan matenon pre-
 
 cize je la naŭa horo mi ree estis en mia lernejo por instrui kaj
 
@@ -14061,17 +11244,13 @@ tiam mi estis kvieta, preparita por la gravaj devoj de la tago.
 
 Rosamond plenumis sian promeson viziti min. ŝia vizito
 
-en la lernejo ordinare okazis en la tempo de ŝia matenrajda-
-
-do. ŝi kutimis rajdi ĝis la pordo de la lernejo kaj post ŝi sek-
+en la lernejo ordinare okazis en la tempo de ŝia matenrajdado. ŝi kutimis rajdi ĝis la pordo de la lernejo kaj post ŝi sek-
 
 vis livree vestita servisto ankaŭ surĉevale. Apenaŭ oni povas
 
 imagi pli amindan estaĵon ol ŝia aperaĵo en tiu malhele ruĝa
 
-rajdvesto, kun la amazono-ĉapeleto el nigra veluro, kiu gra-
-
-cie estis lokita sur ŝiaj longaj harbukloj pendantaj laŭlonge de
+rajdvesto, kun la amazono-ĉapeleto el nigra veluro, kiu gracie estis lokita sur ŝiaj longaj harbukloj pendantaj laŭlonge de
 
 ŝiaj vangoj kaj ŝultroj. Tiel ŝi eniris la simplan lernejon kaj
 
@@ -14087,9 +11266,7 @@ instinkto sciigis al li ŝian eniron, eĉ kiam li ne vidis ŝin per la
 
 okuloj. Kiam li rigardis en la kontraŭa direkto de la pordo, tra
 
-kiu ŝi eniris, liajn vangojn kovris hela ruĝo, kaj liaj trajtoj san-
-
-ĝiĝis nepriskribeble, kvankam li faris sian eblon por kontraŭ-
+kiu ŝi eniris, liajn vangojn kovris hela ruĝo, kaj liaj trajtoj sanĝiĝis nepriskribeble, kvankam li faris sian eblon por kontraŭ-
 
 batali tiun ŝanĝon.
 
@@ -14102,16 +11279,11 @@ manoj tremis, liaj okuloj flamis, kiam ŝi iris al li kaj parolis
 kun li, dum ŝi gaje kaj eĉ karese ridetis al li. Li ŝajnis diri per
 
 
-JANE EYRE
-
-
 sia malgaja, decidita rigardo, kvankam li ne elparolis tion:
 
 ”Mi amas vin kaj mi scias, ke vi min amas. Miaj lipoj restas
 
-mutaj, ne ĉar mi dubas pri la sekvo. Mi kredas, ke vi akcep-
-
-tus mian koron. Sed ĉi tiu koro kuŝas jam sur sankta altaro,
+mutaj, ne ĉar mi dubas pri la sekvo. Mi kredas, ke vi akceptus mian koron. Sed ĉi tiu koro kuŝas jam sur sankta altaro,
 
 la oferflamo jam brulas. Baldaŭ ĝi estos plu nenio krom la
 
@@ -14121,9 +11293,7 @@ Tiam ŝi koleretis kiel koleranta infano; melankolieta nubo
 
 tiam malheligis ŝian radiantan viglon. Rapide ŝi retiris sian
 
-manon el lia kaj kolere sin deturnis de li, dum li restis staran-
-
-ta kiel heroo kaj martiro samtempe. Sen dubo li volus doni
+manon el lia kaj kolere sin deturnis de li, dum li restis staranta kiel heroo kaj martiro samtempe. Sen dubo li volus doni
 
 ĉion, se li povus sekvi aŭ reen voki ŝin, kiam ŝi forturnis sin
 
@@ -14137,41 +11307,24 @@ povis ĉeni en la malvastaj limoj de unu pasio ĉion, kion li
 
 havis en sia karaktero; tio estis neebla al la revanto, la poeto,
 
-la pastro. Li ne povis — li ne volis — cedi sian sovaĝan misio-
+la pastro. Li ne povis — li ne volis — cedi sian sovaĝan misioterenon al la belegaj salonoj kaj la paco de Vale Hall. ĉion ĉi
 
-terenon al la belegaj salonoj kaj la paco de Vale Hall. ĉion ĉi
+mi eksciis de li mem per enrompo, kiun mi, malgraŭ lia sinretenemo, havis la kuraĝon fari en sian konfidon.
 
-mi eksciis de li mem per enrompo, kiun mi, malgraŭ lia sin-
+Fraŭlino Oliver jam ofte faris al mi la honoron per siaj vizitoj en mia loĝejo. Mi konatiĝis kun ŝia tuta karaktero, kiu ne
 
-retenemo, havis la kuraĝon fari en sian konfidon.
+havis sekretojn nek ŝajnigojn. ŝi estis koketa sed ne sensenta, ordonema sed ne malnoble egoista. De ŝia naskiĝo oni
 
-Fraŭlino Oliver jam ofte faris al mi la honoron per siaj vizi-
-
-toj en mia loĝejo. Mi konatiĝis kun ŝia tuta karaktero, kiu ne
-
-havis sekretojn nek ŝajnigojn. ŝi estis koketa sed ne sensen-
-
-ta, ordonema sed ne malnoble egoista. De ŝia naskiĝo oni
-
-estis dorlotinta sed ne tute malboniginta ŝin. ŝi estis trorapi-
-
-dema sed bonhumora; vantema (sed ŝi ne estis kulpa en tio,
+estis dorlotinta sed ne tute malboniginta ŝin. ŝi estis trorapidema sed bonhumora; vantema (sed ŝi ne estis kulpa en tio,
 
 ĉar ĉiu rigardo en la spegulo montris al ŝi tian superfluon da
 
-ĉarmo) sed ne afektema; ŝi estis malavara, tute sen tia petol-
-
-kuraĝo, kiun ordinare granda riĉeco akompanas; originala;
+ĉarmo) sed ne afektema; ŝi estis malavara, tute sen tia petolkuraĝo, kiun ordinare granda riĉeco akompanas; originala;
 
 sufiĉe inteligenta; gaja, vivoplena kaj senpensema; koncize
 
 
-JANE EYRE
-
-
-dirite, ŝi estis ĉarma eĉ en la okuloj de indiferenta observan-
-
-tino, kia mi estis; sed ŝi ne estis tre interesa aŭ speciale impo-
+dirite, ŝi estis ĉarma eĉ en la okuloj de indiferenta observantino, kia mi estis; sed ŝi ne estis tre interesa aŭ speciale impo-
 
 na. ŝia karaktero tro diferencis de tiuj de la du fratinoj de St.
 
@@ -14185,21 +11338,15 @@ posedanta la samajn kvalitojn. Subita kaprico ŝati min estis
 
 reginta ŝin. ŝi diris, ke mi similas al sinjoro Rivers (sed, tiel ŝi
 
-parolis plue, tute ne tiel bela, kvankam mi estas ankaŭ mal-
-
-granda beleta persono; sed li estas anĝelo). Tamen laŭ ŝia opi-
+parolis plue, tute ne tiel bela, kvankam mi estas ankaŭ malgranda beleta persono; sed li estas anĝelo). Tamen laŭ ŝia opi-
 
 nio mi estis bona, saĝa, decidema kaj karakterenergia kiel li.
 
-Laŭ ŝia opinio mi estis lusus naturae, fenomena vilaĝinstru-
-
-istino; ŝi estis certa pri tio, ke mia vivohistorio, se oni konus
+Laŭ ŝia opinio mi estis lusus naturae, fenomena vilaĝinstruistino; ŝi estis certa pri tio, ke mia vivohistorio, se oni konus
 
 ĝin, taŭgus kiel modelo por la plej bela romano.
 
-En unu vespero, en sia kutima, senpripensa kaj infana sci-
-
-volemo, traserĉante la ŝrankon kaj la tirkeston de la tablo en
+En unu vespero, en sia kutima, senpripensa kaj infana scivolemo, traserĉante la ŝrankon kaj la tirkeston de la tablo en
 
 mia kuirejo, ŝi por la unua fojo vidis du francajn librojn, unu
 
@@ -14207,15 +11354,11 @@ volumon de la verkoj de Schiller, germanajn gramatikon kaj
 
 vortaron, poste mian desegnan ilaron kaj kelkajn skizojn, unu
 
-krajone desegnitan kapon de malgranda anĝelsimila knabi-
-
-no, kaj diversajn desegnaĵojn laŭ la naturo, kiujn mi antaŭe
+krajone desegnitan kapon de malgranda anĝelsimila knabino, kaj diversajn desegnaĵojn laŭ la naturo, kiujn mi antaŭe
 
 faris en la valo de Morton kaj sur la ĉirkaŭkuŝantaj marĉejoj.
 
-Unue ŝi estis muta pro mirego, poste kvazaŭ elektrita de ra-
-
-vego. ŝi demandis: ĉu mi faris tiujn desegnaĵojn; ĉu mi konas
+Unue ŝi estis muta pro mirego, poste kvazaŭ elektrita de ravego. ŝi demandis: ĉu mi faris tiujn desegnaĵojn; ĉu mi konas
 
 la francan kaj la germanan lingvojn? Kaj ŝi diris plue: ”Kia
 
@@ -14230,18 +11373,11 @@ por ke mi montru ĝin al mia patro?”
 ravo, povante desegni tian perfektan kaj brilan modelon. ŝi
 
 
-JANE EYRE
-
-
 estis vestita per malhele bruna robo el silko; ŝiaj brakoj kaj
 
-nuko estis nudaj; ŝia sola ornamaĵo estis la kaŝtan-brunaj har-
+nuko estis nudaj; ŝia sola ornamaĵo estis la kaŝtan-brunaj harplektaĵoj, kiuj pendis libere kaj nature gracie trans ŝiaj ŝultroj.
 
-plektaĵoj, kiuj pendis libere kaj nature gracie trans ŝiaj ŝultroj.
-
-Mi prenis folion de bela kartono kaj zorge desegnis la kon-
-
-turojn. Mi ĝojis desegni ŝin per koloroj, kaj ĉar jam krepus-
+Mi prenis folion de bela kartono kaj zorge desegnis la konturojn. Mi ĝojis desegni ŝin per koloroj, kaj ĉar jam krepus-
 
 kiĝis, mi petis ŝin reveni ankoraŭ fojon por pozi antaŭ mi.
 
@@ -14251,21 +11387,15 @@ Oliver akompanis ŝin en la sekvinta vespero. Li estis alta,
 
 grizhara viro kun masivaj vizaĝesprimoj kaj jam mezaĝa. ĉe
 
-lia flanko la aminda filino aspektis kiel belega floro apud pru-
+lia flanko la aminda filino aspektis kiel belega floro apud prujne griza turo. Li ŝajnis silentema, eble ankaŭ fiera viro; sed
 
-jne griza turo. Li ŝajnis silentema, eble ankaŭ fiera viro; sed
-
-al mi li estis bona kaj amika. La skizo de la portreto de Ro-
-
-samond tre plaĉis al li; li diris, ke mi faru el ĝi pretan portre-
+al mi li estis bona kaj amika. La skizo de la portreto de Rosamond tre plaĉis al li; li diris, ke mi faru el ĝi pretan portre-
 
 ton. Ankaŭ li deziris, ke la sekvontan tagon mi venu en Vale
 
 Hall por pasigi tie la vesperon.
 
-Mi iris tien. i estis vasta, bela konstruaĵo, kiu plene mont-
-
-ris la riĉecon de la posedanto. Dum la tuta tempo de mia vizi-
+Mi iris tien. i estis vasta, bela konstruaĵo, kiu plene montris la riĉecon de la posedanto. Dum la tuta tempo de mia vizi-
 
 to Rosamond estis plena de ĝojo kaj amindeco. ŝia patro estis
 
@@ -14289,27 +11419,16 @@ iri al eminenta familio ie en la lando. Sinjoro Oliver parolis pri
 
 sinjoro Rivers kaj pri ties tuta familio kun la plej granda
 
-estimo. Li diris, ke ĝi estas la plej malnova en la tuta ĉir-
-
-kaŭaĵo, ke la praavoj de la familio estis tre riĉaj, ke tuta Mor-
+estimo. Li diris, ke ĝi estas la plej malnova en la tuta ĉirkaŭaĵo, ke la praavoj de la familio estis tre riĉaj, ke tuta Mor-
 
 
-JANE EYRE
-
-
-ton antaŭe apartenis al ĝi kaj ke li opinias, ke la sola restin-
-
-to de tiu familio nur povis kaj decis aspiri la manon de filino
+ton antaŭe apartenis al ĝi kaj ke li opinias, ke la sola restinto de tiu familio nur povis kaj decis aspiri la manon de filino
 
 de la plej eminenta familio. Estas bedaŭrinde, li diris plue, ke
 
-tiel bela kaj talenthava juna viro havas la intencon fariĝi misi-
+tiel bela kaj talenthava juna viro havas la intencon fariĝi misiisto; ĉar tio estas forfuŝi riĉan, valorplenan vivon. ŝajnis do,
 
-isto; ĉar tio estas forfuŝi riĉan, valorplenan vivon. ŝajnis do,
-
-ke la patro ne kontraŭstarus la edziĝon de St. John kun Rosa-
-
-mond. Sinjoro Oliver do rigardis la bonan devenon, la mal-
+ke la patro ne kontraŭstarus la edziĝon de St. John kun Rosamond. Sinjoro Oliver do rigardis la bonan devenon, la mal-
 
 novan nomon kaj la pian oficon de la juna pastro kiel sufiĉan
 
@@ -14335,9 +11454,7 @@ krajonojn kaj komencis fini la miniaturbildon de Rosamond
 
 Oliver. La kapo estis jam finita; nur la fundo kaj la ombrumo
 
-de drapiraĵo mankis; iom da karmino devis ankoraŭ esti meti-
-
-ta sur la belformajn lipojn tie kaj alie, la haroj ne sufiĉe ondis
+de drapiraĵo mankis; iom da karmino devis ankoraŭ esti metita sur la belformajn lipojn tie kaj alie, la haroj ne sufiĉe ondis
 
 — pli malhela nuanco devis ankoraŭ reliefigi la okulharojn
 
@@ -14351,39 +11468,28 @@ pordo malfermiĝis kaj St. John Rivers eniris.
 
 ”Vi ne profundiĝis en pensoj, mi esperas? Nu, tio estas bona.
 
-Vi ne sentos vin soleca, kiam vi pentras. Vi vidas, ke mi mal-
-
-fidas vin ankoraŭ, kvankam ĝis nun vi kondutis mirinde
+Vi ne sentos vin soleca, kiam vi pentras. Vi vidas, ke mi malfidas vin ankoraŭ, kvankam ĝis nun vi kondutis mirinde
 
 kuraĝe. Kaj mi kunportis por vi ĉi tiun libron por la vesperaj
-
-
-JANE EYRE
 
 
 horoj.” Dirinte tion, li metis sur la tablon ĵus aperintan libron
 
 — poemon de tiaj geniaj produktoj, kiaj al la publiko tiel ofte
 
-estis oferataj en tiuj tagoj de la ora epoko pri moderna lite-
-
-raturo. Sed kuraĝon! Mi ne volas malĝoji aŭ plendi. Mi scias,
+estis oferataj en tiuj tagoj de la ora epoko pri moderna literaturo. Sed kuraĝon! Mi ne volas malĝoji aŭ plendi. Mi scias,
 
 ke la poezio ankoraŭ ne mortis, ke la genio ankoraŭ ne estas
 
 perdita, kaj la mamono ankoraŭ ne regas ĝin; ĝi ne povas
 
-kateni nek mortigi la poezion — iun tagon ree ĝia ĉeesto cer-
-
-tigos ĝian liberecon kaj ĝian povon. Potenca anĝelo, kiu tie
+kateni nek mortigi la poezion — iun tagon ree ĝia ĉeesto certigos ĝian liberecon kaj ĝian povon. Potenca anĝelo, kiu tie
 
 supre en la ĉielo trovis vian certecon! Vi ridetas kiam malicaj
 
 animoj triumfas, kaj malfortaj ploras pro via neniigo. ĉu la
 
-poezio estas neniigita? ĉu la genio estas ekzilita? Ho ne! mez-
-
-kvalito, la envio ne flustru al vi tiajn pensojn! Ne! ili ne nur
+poezio estas neniigita? ĉu la genio estas ekzilita? Ho ne! mezkvalito, la envio ne flustru al vi tiajn pensojn! Ne! ili ne nur
 
 vivas, sed ili regas! ili liberigas! Kaj sen ilia dia enfluo, kiu ĉien
 
@@ -14411,25 +11517,16 @@ tial superis lin, kaj subite kaptis min la deziro montri al li ion
 
 pezan ŝarĝon,” mi pensis, ”li subpremas ĉiun senton, ĉiun
 
-doloron — li esprimas, konfesas, sciigas nenion. Mi estas cer-
+doloron — li esprimas, konfesas, sciigas nenion. Mi estas certa pri tio, ke kelka parolado pri tiu ĉarma Rosamond, kiun,
 
-ta pri tio, ke kelka parolado pri tiu ĉarma Rosamond, kiun,
-
-laŭ sia kredo, li ne povas edziĝi, faros al li bonon. Mi volas de-
-
-vigi lin paroli.”
+laŭ sia kredo, li ne povas edziĝi, faros al li bonon. Mi volas devigi lin paroli.”
 
 Unue mi diris: ”Sidiĝu, sinjoro Rivers.”
 
 
-JANE EYRE
-
-
 Sed kiel ĉiam li respondis, ke li ne povos resti.
 
-”Bone,” mi diris enpense al mi, ”restu staranta se tio pla-
-
-ĉas al vi, sed mi decidis, ke vi ne foriru tiel rapide, ĉar la
+”Bone,” mi diris enpense al mi, ”restu staranta se tio plaĉas al vi, sed mi decidis, ke vi ne foriru tiel rapide, ĉar la
 
 soleco estas al vi same malbona, kiel al mi. Mi tamen volas
 
@@ -14439,9 +11536,7 @@ konfido kaj la malfermaĵon de ĉi tiu marmora brusto, tra kiu
 
 mi povus engutigi guton de simpatia balzamo.”
 
-”ĉu la portreto estas simila?” mi demandis kvazaŭ sen-
-
-intence.
+”ĉu la portreto estas simila?” mi demandis kvazaŭ senintence.
 
 ”ĉu simila … al kiu? Mi ne rigardis ĝin tre atente.”
 
@@ -14449,23 +11544,15 @@ intence.
 
 Li ektimis pro mia subita kaj eksterordinara abrupteco kaj
 
-mirigite rigardis min dum mi pensis: Ho, tiu malvarmo via-
-
-flanke tute ne timigos min; mi decidis iri pluen ankoraŭ; kaj
+mirigite rigardis min dum mi pensis: Ho, tiu malvarmo viaflanke tute ne timigos min; mi decidis iri pluen ankoraŭ; kaj
 
 mi daŭrigis: ”Vi atente rigardis tiun bildon, sed volonte mi
 
-konsentas, ke vi ree ĝin rigardu,” kaj mi ekstaris, prezentan-
+konsentas, ke vi ree ĝin rigardu,” kaj mi ekstaris, prezentante ĝin al li.
 
-te ĝin al li.
+”i estas desegnita bildo,” li diris, ”la koloro estas tre klara kaj korekte farita.”
 
-”i estas desegnita bildo,” li diris, ”la koloro estas tre kla-
-
-ra kaj korekte farita.”
-
-”Jes, jes. ĉion tion mi scias. Sed kion vi opinias pri la simi-
-
-leco? Al kiu ĝi estas simila?”
+”Jes, jes. ĉion tion mi scias. Sed kion vi opinias pri la simileco? Al kiu ĝi estas simila?”
 
 Post mallonga hezito li respondis: ”Al fraŭlino Oliver, mi
 
@@ -14473,9 +11560,7 @@ supozas?”
 
 ”Kompreneble. Kaj tial, sinjoro, por rekompenci vin, ĉar vi
 
-tiel bone divenis, mi volas desegni por vi trafe similan kopi-
-
-aĵon, kondiĉe, ke tia donaco estu al vi agrabla. Mi tamen ne
+tiel bone divenis, mi volas desegni por vi trafe similan kopiaĵon, kondiĉe, ke tia donaco estu al vi agrabla. Mi tamen ne
 
 volas forfuŝi miajn tempon kaj penon por laboro, kiu havas
 
@@ -14486,24 +11571,15 @@ longe li ĝin rigardis, despli firme li ĝin tenis en la mano kaj
 des pli li ŝajnis aspiri ĝin.
 
 
-JANE EYRE
-
-
 ”i estas simila,” murmuris li, ”ĝi estas tre simila al ŝi! La
 
-okuloj mirinde similas; la koloro, la nuancoj kaj la vizaĝespri-
+okuloj mirinde similas; la koloro, la nuancoj kaj la vizaĝesprimo estas belegaj, tute perfektaj! La tuto kvazaŭ ridetas!”
 
-mo estas belegaj, tute perfektaj! La tuto kvazaŭ ridetas!”
-
-”ĉu vi sentos konsolon aŭ ofendon posedi similan portre-
-
-ton? Diru tion al mi. Kiam vi estos en Madagaskaro aŭ en
+”ĉu vi sentos konsolon aŭ ofendon posedi similan portreton? Diru tion al mi. Kiam vi estos en Madagaskaro aŭ en
 
 Hindujo, ĉu tiam ĝia posedo konsolos vin; aŭ ĉu ĝi inspiros
 
-al vi memorojn, kiuj povus nur kaŭzi al vi ĉagrenon kaj sen-
-
-kuraĝon?”
+al vi memorojn, kiuj povus nur kaŭzi al vi ĉagrenon kaj senkuraĝon?”
 
 Li rigardis supren. Li rigardis min, nedecidite, ekscitite;
 
@@ -14541,19 +11617,11 @@ ambaŭ manoj li rigardis ĝin per amplenaj okuloj. Mi subite
 
 rimarkis, ke mia kuraĝa teniĝo ne ofendis nek kolerigis lin. Mi
 
-eĉ rimarkis, ke li sentis kvazaŭ ĝojon, kvazaŭ neesperitan sen-
-
-ŝarĝigon, ke oni senkaŝe parolis al li pri io, kion li ĝis nun
+eĉ rimarkis, ke li sentis kvazaŭ ĝojon, kvazaŭ neesperitan senŝarĝigon, ke oni senkaŝe parolis al li pri io, kion li ĝis nun
 
 rigardis kiel netuŝebla. Retenemaj homoj ofte pli bezonas
 
-malkaŝajn priparolojn pri siaj ĉagrenoj kaj sentoj, ol la kom-
-
-
-JANE EYRE
-
-
-unikemaj. Reale la plej severa stoikulo estas ja nur homo; kaj
+malkaŝajn priparolojn pri siaj ĉagrenoj kaj sentoj, ol la komunikemaj. Reale la plej severa stoikulo estas ja nur homo; kaj
 
 ofte estas plej granda bonfaro, kiun oni povas montri al li,
 
@@ -14577,9 +11645,7 @@ pri vi; ne estas temo, kiu estas tiel kara al ŝi, aŭ kiun ŝi tuŝas
 
 tiel ofte.”
 
-”Estas tre bonfare aŭdi tion,” li diris, ”tre bonfare. Mi pe-
-
-tas parolu plue en tiu maniero ankoraŭ kvaronhoron.” Kaj
+”Estas tre bonfare aŭdi tion,” li diris, ”tre bonfare. Mi petas parolu plue en tiu maniero ankoraŭ kvaronhoron.” Kaj
 
 vere li tiris la horloĝon el sia poŝo kaj metis ĝin sur la tablon
 
@@ -14601,9 +11667,7 @@ murmurado superakvas la tutan terenon, kiun mi preparis
 
 tiel zorgoplene kaj tiel diligente kulturis per la semo de bonaj
 
-intencoj kaj memforgesado. Kaj nun kvazaŭ fluo de ĉiela nek-
-
-taro superakvas ĉion tion — la junaj ĝermoj estas dronigataj,
+intencoj kaj memforgesado. Kaj nun kvazaŭ fluo de ĉiela nektaro superakvas ĉion tion — la junaj ĝermoj estas dronigataj,
 
 dolĉa veneno putrigas ilin. Nun mi vidas min sur divano en
 
@@ -14612,9 +11676,6 @@ Vale Hall; antaŭ la piedoj de mia fianĉino Rosamond Oliver,
 ŝi parolas al mi per sia melodia voĉo — rigardas malsupren al
 
 mi per tiuj okuloj, kiujn vi tiel simile pentris — ridetas al mi
-
-
-JANE EYRE
 
 
 per tiuj koral-similaj lipoj. ŝi apartenas al mi — mi apartenas
@@ -14629,9 +11690,7 @@ en paco.”
 
 Mi obeis lin. La horloĝo tik-takis plue. Li spiris rapide kaj
 
-mallaŭte. Senparole mi staris ĉe lia flanko. En tiu senparole-
-
-co la kvaronhoro pasis. Poste li ŝovis la horloĝon en la poŝon,
+mallaŭte. Senparole mi staris ĉe lia flanko. En tiu senparoleco la kvaronhoro pasis. Poste li ŝovis la horloĝon en la poŝon,
 
 metis la portreton sur la tablon, sin levis kaj staris antaŭ la
 
@@ -14675,13 +11734,7 @@ avantaĝoj,” li diris plue, ”io alia en mi estas ofendata pro ŝiaj
 
 mankoj. Tiuj lastaj estas tiaj, ke ŝi ne povus simpatii kun mi
 
-en ĉio, kion mi aspiras — ke ŝi eĉ en unu afero de mi entre-
-
-
-JANE EYRE
-
-
-prenota ne povus helpi min. ĉu ŝi povus esti suferantino,
+en ĉio, kion mi aspiras — ke ŝi eĉ en unu afero de mi entreprenota ne povus helpi min. ĉu ŝi povus esti suferantino,
 
 laborantino kaj virina apostolo — ĉu si povus esti la edzino de
 
@@ -14715,34 +11768,25 @@ Post longa silentado mi diris: ”Kaj fraŭlino Oliver? ĉu ŝia
 
 ĉagreno kaj ŝia seniluziiĝo estas al vi nenio?”
 
-”Fraŭlino Oliver estas ĉiam ĉirkaŭata de amantoj kaj fla-
-
-tantoj. En malpli ol unu monato mia bildo estos forviŝita el
+”Fraŭlino Oliver estas ĉiam ĉirkaŭata de amantoj kaj flatantoj. En malpli ol unu monato mia bildo estos forviŝita el
 
 ŝia koro, ŝi forgesos pri mi kaj sendube edziniĝos kun viro,
 
 kiu kapablos fari ŝin pli feliĉa ol mi iam povus.”
 
-”Vi parolas tre saĝe kaj kviete; sed vi suferas en ĉi tiu bata-
-
-lado. Vi forvelkas.”
+”Vi parolas tre saĝe kaj kviete; sed vi suferas en ĉi tiu batalado. Vi forvelkas.”
 
 ”Ne, se eble mi ŝajne iom forvelkas, tion kaŭzas la timo
 
 antaŭ mia estonto, kiu estas tiel malcerta — tion kaŭzas la
 
-malkvieto, pro la ĉiam daŭranta prokrastado de mia forvoja-
-
-ĝo. Nur hodiaŭ matene mi ricevis la sciigon, ke la posteulo,
+malkvieto, pro la ĉiam daŭranta prokrastado de mia forvojaĝo. Nur hodiaŭ matene mi ricevis la sciigon, ke la posteulo,
 
 kies alvenon mi jam longe atendis, povos anstataŭi min nur
 
 post tri monatoj. Post tiuj tri monatoj sekvos eble ankoraŭ tri
 
 aliaj.”
-
-
-JANE EYRE
 
 
 ”Vi tremas kaj ruĝiĝas tuj kiam fraŭlino Oliver eniras la
@@ -14759,17 +11803,13 @@ kontentigi min kun la interrilato de fortaj, diskretaj, sentemaj
 
 karakteroj ne nur de viroj, sed ankaŭ de virinoj, antaŭ ol mi
 
-transiris la eksteraĵojn de la konvencia sinretenemo kaj la soj-
-
-lon de la fido, kaj antaŭ ol mi konkeris lokon en la pli profun-
+transiris la eksteraĵojn de la konvencia sinretenemo kaj la sojlon de la fido, kaj antaŭ ol mi konkeris lokon en la pli profun-
 
 da kerno de ilia koro.
 
 ”Vi estas originala,” li diris, ”kaj tute ne timema. Io kuraga
 
-kaŝiĝas en via spirito kaj io penetranta en viaj okuloj. Sed per-
-
-mesu, ke mi certigu al vi, ke vi parte juĝas malbone pri miaj
+kaŝiĝas en via spirito kaj io penetranta en viaj okuloj. Sed permesu, ke mi certigu al vi, ke vi parte juĝas malbone pri miaj
 
 sentoj. Vi opinias ilin pli profundaj kaj pli potencaj ol ili vere
 
@@ -14777,15 +11817,11 @@ estas. Vi atribuas al mi pli grandan parton da simpatio ol
 
 reale mi povas pretendi. Kiam mi ruĝiĝas aŭ tremetas antaŭ
 
-fraŭlino Oliver, tiam mi ne kompatas min mem. Mi malesti-
-
-mas tian malfortecon. Mi scias, ke ŝi estas malnobla; rilate al
+fraŭlino Oliver, tiam mi ne kompatas min mem. Mi malestimas tian malfortecon. Mi scias, ke ŝi estas malnobla; rilate al
 
 mi ĉio estas nur febro de la karno kaj vere ne tremeto de la
 
-animo, tion mi certigas al vi. Mia animo estas fortika kiel ŝto-
-
-nego, kiu havas sian fundamenton en la plej profundo de
+animo, tion mi certigas al vi. Mia animo estas fortika kiel ŝtonego, kiu havas sian fundamenton en la plej profundo de
 
 furiozanta maro. Rigardu en mi tiun, kiu vere mi estas —
 
@@ -14797,16 +11833,11 @@ Mi ridetis nekredeme.
 
 mi estas tute je via dispono. Senigite de la sangmakulita vesto,
 
-per kiu la kristaneco kovras la homajn malfortecojn kaj man-
-
-kojn, mi estas nur rigida, malvarma, ambicia viro. El ĉiuj sen-
+per kiu la kristaneco kovras la homajn malfortecojn kaj mankojn, mi estas nur rigida, malvarma, ambicia viro. El ĉiuj sen-
 
 toj, nur la Amo, kiun la naturo metis en nian koron, daŭre
 
 regas min. Ne la sento, sed la prudento estas mia gvidanto.
-
-
-JANE EYRE
 
 
 Mia ambicio estas senlima; mia sopiro, supreniri pli alte, fari
@@ -14819,9 +11850,7 @@ estas la rimedoj, per kiuj la homoj atingas altajn celojn kaj
 
 supreniras al kapturnigantaj altecoj. Mi rigardis vian karieron
 
-kun intereso, ĉar mi opinias, ke vi estas ekzemplo de diligen-
-
-ta, ordema, energia virino: ne ĉar mi profunde kompatas je
+kun intereso, ĉar mi opinias, ke vi estas ekzemplo de diligenta, ordema, energia virino: ne ĉar mi profunde kompatas je
 
 tio, kion vi spertis aŭ kion vi suferas ankoraŭ riun.”
 
@@ -14837,40 +11866,25 @@ Jesuo. Kiel lia lernanto, mi akceptis lian puran, favorkoran,
 
 mildan doktrinon. Mi batalas por ĝi. Mi ĵuris disvastigi ĝin.
 
-Jam en mia juneco mi dediĉis min al la religio kaj ĝi pli-
-
-nobligis miajn denaskajn kvalitojn: el la malgranda ĝermo de
+Jam en mia juneco mi dediĉis min al la religio kaj ĝi plinobligis miajn denaskajn kvalitojn: el la malgranda ĝermo de
 
 la natura amo ĝi faris la grandan ombroriĉan arbon de amo
 
-al la homoj. El la sovaĝa, eltenpova radiko de homa honeste-
+al la homoj. El la sovaĝa, eltenpova radiko de homa honesteco ĝi maturigis la veran senton de la dia justeco. El la ambi-
 
-co ĝi maturigis la veran senton de la dia justeco. El la ambi-
-
-cio, akirigi al mi povon kaj famon, ĝi formis la ambicion dis-
-
-vastigi la regnon de mia Sinjoro kaj konkeri venkon por la
+cio, akirigi al mi povon kaj famon, ĝi formis la ambicion disvastigi la regnon de mia Sinjoro kaj konkeri venkon por la
 
 standardo de la kruco. Tiom multe la religio faris por mi. La
 
-originalajn talentojn ĝi plej bone uzis; ĝi ĉirkaŭtranĉis kaj pli-
+originalajn talentojn ĝi plej bone uzis; ĝi ĉirkaŭtranĉis kaj plinobligis la naturon. Sed ĝi ne povis ekstermi la naturon; kaj
 
-nobligis la naturon. Sed ĝi ne povis ekstermi la naturon; kaj
+ĝi ne povas esti ekstermata, ĝis ĉi tiu morteblulo estos metinta sur sin la veston de senmorteco.”
 
-ĝi ne povas esti ekstermata, ĝis ĉi tiu morteblulo estos metin-
-
-ta sur sin la veston de senmorteco.”
-
-Dirinte tion, li prenis sian ĉapelon, kiu kuŝis sur tablo flan-
-
-ke de mia paletro. Ankoraŭ unu fojon li rigardis la portreton.
+Dirinte tion, li prenis sian ĉapelon, kiu kuŝis sur tablo flanke de mia paletro. Ankoraŭ unu fojon li rigardis la portreton.
 
 ”Vere ŝi estas aminda,” murmuris li: ”ŝi rajte portas la
 
 nomon rozo de la mondo!”
-
-
-JANE EYRE
 
 
 ”Kaj ĉu mi pentru duan por vi?”
@@ -14887,9 +11901,7 @@ vidis sur tiu folio da papero.
 
 Sed lia rigardo vidis ion. Li tiris ĝin al si; li atente rigardis
 
-la randon kaj direktis al mi siajn okulojn kun esprimo stran-
-
-ga, nedireble stranga kaj al mi tute nekomprenebla. Liaj oku-
+la randon kaj direktis al mi siajn okulojn kun esprimo stranga, nedireble stranga kaj al mi tute nekomprenebla. Liaj oku-
 
 loj ŝajnis trabori mian korpon, mian vizaĝon, miajn vestojn;
 
@@ -14903,30 +11915,21 @@ por paroli; sed li subpremis la dirotan frazon, kiu ajn ĝi estos.
 
 la folion sur la portreton, mi vidis, ke li kaŝe deŝiris peceton
 
-de la rando. i malaperis en lian ganton; kaj kun rapida kap-
-
-saluto sekvata de ”bonan vesperon” li iris for.
+de la rando. i malaperis en lian ganton; kaj kun rapida kapsaluto sekvata de ”bonan vesperon” li iris for.
 
 ”Nu,” mi kriis, ”tio superas ĉion, kion mi ĝis nun spertis pri
 
 li.”
 
-Mi ekzamenis la folion, sed povis rimarki nenion eksteror-
+Mi ekzamenis la folion, sed povis rimarki nenion eksterordinaran krom kelkaj malhelaj farbomakuletoj sur loko, kie mi
 
-dinaran krom kelkaj malhelaj farbomakuletoj sur loko, kie mi
-
-provis la koloron de miaj penikoj. Mi cerbumis kelkajn minu-
-
-tojn pro la sekreto; sed trovante ĝin neklarigebla kaj estante
+provis la koloron de miaj penikoj. Mi cerbumis kelkajn minutojn pro la sekreto; sed trovante ĝin neklarigebla kaj estante
 
 certa, ke ĝi neeble estas io grava, mi rezignis kaj baldaŭ ne
 
 pensis plu pri ĝi.
 
 1 cui bono? = pro kio? kiacele?
-
-
-JANE EYRE
 
 
 ĉapitro XXXIII.
@@ -14939,13 +11942,9 @@ freŝan, blindigan neĝfaladon; je krepuska tempo la valo estis
 
 plena de neĝo kaj preskaŭ netrairebla. Mi estis ferminta la
 
-fenestrokovrilojn, metinta maton antaŭ la pordon por mal-
+fenestrokovrilojn, metinta maton antaŭ la pordon por malhelpi la neĝon penetri en la ĉambron, ordiginta la fajron kaj
 
-helpi la neĝon penetri en la ĉambron, ordiginta la fajron kaj
-
-sidinte preskaŭ tutan horon antaŭ la kameno kaj aŭskultin-
-
-te dume la muĝadon de la ventego, mi bruligis kandelon, pre-
+sidinte preskaŭ tutan horon antaŭ la kameno kaj aŭskultinte dume la muĝadon de la ventego, mi bruligis kandelon, pre-
 
 nis ”Marmion” el la librobreto kaj komencis legi.
 
@@ -14965,20 +11964,13 @@ glacikovrita kiel glaciejo. Mi estis konsternita; mi ja tute ne
 
 atendis vizitanton el la neĝkovrita vilaĝo.
 
-”ĉu malbonaj sciigoj?” mi demandis. ”ĉu okazis akciden-
-
-to?”
+”ĉu malbonaj sciigoj?” mi demandis. ”ĉu okazis akcidento?”
 
 ”Ne. Kiel facile vi do teruriĝas!” li respondis, demetante
 
 sian mantelon kaj pendigante ĝin sur la pordon, al kiu li tute
 
-kviete relokis la protektantan maton, kiu ĉe lia eniro estis for-
-
-ŝovita de sia loko. Poste li piedobatis la neĝon de la botoj.
-
-
-JANE EYRE
+kviete relokis la protektantan maton, kiu ĉe lia eniro estis forŝovita de sia loko. Poste li piedobatis la neĝon de la botoj.
 
 
 ”Mi neĝmalpurigas vian plankon,” li diris, ”sed ĉi tiun
@@ -14999,9 +11991,7 @@ tiun demandon.
 
 ”Ne estas gastame demandi ion tian al vizitanto; sed ĉar vi
 
-demandas, mi respondos: mi revenis nur por iom interbabi-
-
-li kun vi. Fine miaj mutaj libroj kaj malplena ĉambro tedas
+demandas, mi respondos: mi revenis nur por iom interbabili kun vi. Fine miaj mutaj libroj kaj malplena ĉambro tedas
 
 min. Krome de post hieraŭ min regas la scivolo de homo, al
 
@@ -15009,9 +11999,7 @@ kiu oni rakontis la duonon de historio kaj malpacience mi
 
 atendas nun la finon.”
 
-Li sidiĝis. Mi memoris lian strangan konduton de la pasin-
-
-ta tago kaj vere timis, ke lia prudento estis tuŝita de malsane-
+Li sidiĝis. Mi memoris lian strangan konduton de la pasinta tago kaj vere timis, ke lia prudento estis tuŝita de malsane-
 
 to. Tamen se li estus iom freneziĝinta, lia frenezo estis tre
 
@@ -15040,22 +12028,15 @@ min diri:
 ”Mi dezirus, ke Diana kaj Maria venus por loĝi kune kun
 
 
-JANE EYRE
-
-
 vi; estas tiel malgaje, ke vi loĝas tiel solece, kaj vi ja tute ne
 
 atentas pri via sano.”
 
 ”Tute ne. Se estas necese, mi mem estas tre singarda, sed
 
-nun mi sentas min tre bone. ĉu vi vidas je mi ion, kio mon-
+nun mi sentas min tre bone. ĉu vi vidas je mi ion, kio montras malsanemon?”
 
-tras malsanemon?”
-
-Li diris tion kun senzorga, abstrakta indiferenteco, kio pru-
-
-vis, ke mia zorgemo, laŭ lia opinio, estas superflua. Mi tial
+Li diris tion kun senzorga, abstrakta indiferenteco, kio pruvis, ke mia zorgemo, laŭ lia opinio, estas superflua. Mi tial
 
 silentis. Malrapide li movis la fingron trans la supran lipon
 
@@ -15063,9 +12044,7 @@ kaj ankoraŭ lia rigardo estis reve fiksita sur la ardantaj karboj
 
 en la fajrujo. Pensante, ke estas nepre necese ion diri, mi fine
 
-al li demandis, ĉu la aertrablovo el sur la pordo post lia dor-
-
-so, ĝenas lin.
+al li demandis, ĉu la aertrablovo el sur la pordo post lia dorso, ĝenas lin.
 
 ”Ne, ne,” li abrupte respondis kaj kun kolereto en sia voĉo.
 
@@ -15077,9 +12056,7 @@ Mi do ordigis la vakslumon per la tondilo kaj legis ree en
 
 Marmion. Baldaŭ poste li sin movis; nevole tio altiris al si
 
-mian atenton; li eltiris el la poŝo ledan notlibreton kaj elpre-
-
-nis el ĝi leteron, kiun li senparole tralegis, klinfaldis kaj ree
+mian atenton; li eltiris el la poŝo ledan notlibreton kaj elprenis el ĝi leteron, kiun li senparole tralegis, klinfaldis kaj ree
 
 metis en la libreton. Poste li denove dronis en pensojn. Estis
 
@@ -15091,9 +12068,7 @@ eble li ne respondos, sed ĉiuokaze mi volis paroli.
 
 ”ĉu antaŭ nelonge vi aŭdis pri Diana kaj Maria?”
 
-”Nenion mi aŭdis post la ricevo de la letero, kiun mi mon-
-
-tris al vi antaŭ semajno.”
+”Nenion mi aŭdis post la ricevo de la letero, kiun mi montris al vi antaŭ semajno.”
 
 ”ĉu ankaŭ nenio aliiĝis rilate al vi? ĉu vi forlasos Anglujon
 
@@ -15104,12 +12079,7 @@ ankoraŭ pli frue ol vi atendis?”
 granda por okazi al mi.”
 
 
-JANE EYRE
-
-
-Jen denove li abrupte eksilentis. Mi ŝanĝis la temon kaj ko-
-
-mencis paroli pri la lernejo kaj la lernantinoj.
+Jen denove li abrupte eksilentis. Mi ŝanĝis la temon kaj komencis paroli pri la lernejo kaj la lernantinoj.
 
 ”La patrino de Maria Garretts resaniĝis, kaj Maria revenis
 
@@ -15145,15 +12115,11 @@ Denove fariĝis paŭzo. La horloĝo batis la naŭan horon. Tio
 
 vekis lin; li sidiĝis rekte kaj sin turnis al mi.
 
-”Formetu por momento vian libron kaj sidiĝu antaŭ la faj-
-
-ro,” li diris.
+”Formetu por momento vian libron kaj sidiĝu antaŭ la fajro,” li diris.
 
 Kun senfina mirego mi faris, kion li petis.
 
-”Antaŭ duona horo,” li diris plue ”mi parolis pri mia mal-
-
-pacienco aŭdi la daŭrigon de ia historio. Bone pripensinte la
+”Antaŭ duona horo,” li diris plue ”mi parolis pri mia malpacienco aŭdi la daŭrigon de ia historio. Bone pripensinte la
 
 aferon mi vidas, ke estos pli bone, ke mi prenu la rolon de
 
@@ -15161,14 +12127,9 @@ rakontanto kaj vi tiun de aŭskultantino. Antaŭ ol komenci
 
 estas pli bone jam anticipe diri al vi, ke la historio sonos en
 
-viaj oreloj iom ĝistede uzita; sed ĉiuj historioj ricevas ian gra-
-
-don de freŝeco, se aliaj lipoj rakontas ilin. Krom tio — kiel ajn
+viaj oreloj iom ĝistede uzita; sed ĉiuj historioj ricevas ian gradon de freŝeco, se aliaj lipoj rakontas ilin. Krom tio — kiel ajn
 
 nova aŭ malnova, ĝi estas mallonga.”
-
-
-JANE EYRE
 
 
 ”Antaŭ ĉirkaŭ dudek jaroj juna malriĉa helppastro — lian
@@ -15183,9 +12144,7 @@ post la geedziĝo. Antaŭ ol pasis du jaroj, la senpripensema
 
 paro estis mortinta kaj kviete kuŝis unu flanke de alia sub
 
-tomboŝtono. Mi vidis ilian tombon; ĝi estas parto de la pavi-
-
-mo de vasta tombejo, kiu ĉirkaŭas la malhelan, fume nigran,
+tomboŝtono. Mi vidis ilian tombon; ĝi estas parto de la pavimo de vasta tombejo, kiu ĉirkaŭas la malhelan, fume nigran,
 
 malnovan katedralon de jam longe troloĝita fabrikurbo en —
 
@@ -15193,47 +12152,31 @@ graflando. Ili postlasis unu filinon, kiu jam ĉe sia naskiĝo estis
 
 akceptita en la sinon de la filantropio, kiu tamen estis tiel
 
-malvarma, kiel la neĝamaso, en kiun mi trafis hodiaŭ vespe-
-
-re. La filantropio portis la kompatindan, forlasitan kreitaĵon
+malvarma, kiel la neĝamaso, en kiun mi trafis hodiaŭ vespere. La filantropio portis la kompatindan, forlasitan kreitaĵon
 
 en domon de riĉaj parencoj patrinflankaj. ŝi estis edukata en
 
-la domo de boonklino, nomita — sinjorino Reed de Gates-
-
-head (Mi nun rememoras la nomon). Vi ektimis, ĉu vi aŭdis
+la domo de boonklino, nomita — sinjorino Reed de Gateshead (Mi nun rememoras la nomon). Vi ektimis, ĉu vi aŭdis
 
 ian bruon? Mi supozas, ke tio estas rato, kiu iras laŭlonge de
 
-la tegmentotrabetoj en la apuda lernejoĉambro; ĝi estis gar-
-
-bejo, antaŭ ol mi igis ĝin rekonstrui, kaj ratoj ĉiam vizitas gar-
+la tegmentotrabetoj en la apuda lernejoĉambro; ĝi estis garbejo, antaŭ ol mi igis ĝin rekonstrui, kaj ratoj ĉiam vizitas gar-
 
 bejojn.
 
 Sed mi rakontu plue. Tiu sinjorino tenis ĉe si dum dek jaroj
 
-la orfinon. Mi ne povas diri, ĉu ŝi sentis sin feliĉa tie aŭ mal-
-
-feliĉa, ĉar pri tio mi neniam eksciis ion; sed post tiuj dek jaroj
+la orfinon. Mi ne povas diri, ĉu ŝi sentis sin feliĉa tie aŭ malfeliĉa, ĉar pri tio mi neniam eksciis ion; sed post tiuj dek jaroj
 
 la onklino sendis ŝin al loko, kiun vi bone konas — nome al
 
 la lernejo de Lowood, ke vi mem estis tiel longe. ŝajnas, ke ŝia
 
-kariero tie estis tre honorinda; el lernantino ŝi estiĝis instru-
-
-istino, kiel vi mem, — vere, estas, mirinde, kiel via historio
+kariero tie estis tre honorinda; el lernantino ŝi estiĝis instruistino, kiel vi mem, — vere, estas, mirinde, kiel via historio
 
 similas al tiu de la orfino — poste ŝi forlasis la instituton por
 
-fariĝi guvernistino, ankaŭ tiurilate viaj historioj estas analo-
-
-
-JANE EYRE
-
-
-giaj. ŝi prenis sur sin la edukadon de zorgatino de certa sin-
+fariĝi guvernistino, ankaŭ tiurilate viaj historioj estas analogiaj. ŝi prenis sur sin la edukadon de zorgatino de certa sin-
 
 joro Rochester.”
 
@@ -15241,9 +12184,7 @@ joro Rochester.”
 
 ”Mi divenas viajn sentojn,” li diris, ”sed mi petas, regu vin
 
-ankoraŭ momenteton. Mi preskaŭ alvenis al la fino, aŭskul-
-
-tu min trankvile. Mi scias nenion pri la karaktero de sinjoro
+ankoraŭ momenteton. Mi preskaŭ alvenis al la fino, aŭskultu min trankvile. Mi scias nenion pri la karaktero de sinjoro
 
 Rochester, sed nur la solan fakton, ke li intencis honorinde
 
@@ -15257,17 +12198,13 @@ kiam okazis io, kio necesigis informiĝon pri la guvernistino,
 
 oni malkovris, ke ŝi malaperis — neniu povis diri kiel, kiam
 
-kaj kien. ŝi estis forlasinta Thornfield en la nokto; ĉiuj esplo-
-
-roj kompreneble estis vanaj. ĉie en la ĉirkaŭaĵo oni sercis ŝin,
+kaj kien. ŝi estis forlasinta Thornfield en la nokto; ĉiuj esploroj kompreneble estis vanaj. ĉie en la ĉirkaŭaĵo oni sercis ŝin,
 
 sed oni trovis neniun postsignon. Malgraŭ tio fariĝis necesege
 
 trovi ŝin. Oni metis anoncojn en ĉiuj gazetoj; mi mem ricevis
 
-leteron de certa sinjoro Briggs, advokato, ĝi enhavis la speci-
-
-alaĵojn, pri kiuj mi ĵus parolis. ĉu tio ne estas stranga histo-
+leteron de certa sinjoro Briggs, advokato, ĝi enhavis la specialaĵojn, pri kiuj mi ĵus parolis. ĉu tio ne estas stranga histo-
 
 rio?”
 
@@ -15277,24 +12214,15 @@ multe, vi sendube povas ankaŭ diri — kio estiĝis el sinjoro
 
 Rochester? Kiel li fartas kaj kie li estas? ĉu li bone fartas?”
 
-”Pri sinjoro Rochester mem mi scias nenion. La letero ra-
-
-kontas pri li nenion, krom la trompa kaj kontraŭleĝa klopo-
+”Pri sinjoro Rochester mem mi scias nenion. La letero rakontas pri li nenion, krom la trompa kaj kontraŭleĝa klopo-
 
 do, kiun mi jam menciis. Estus pli bone demandi al mi la
 
-nomon de la guvernistino, ĉar la nunaj cirkonstancoj postu-
+nomon de la guvernistino, ĉar la nunaj cirkonstancoj postulas ŝian ĉeeston.
 
-las ŝian ĉeeston.
-
-”ĉu neniu do iris al Thornfield Hall? ĉu neniu iris al sin-
-
-joro Rochester por viziti lin?”
+”ĉu neniu do iris al Thornfield Hall? ĉu neniu iris al sinjoro Rochester por viziti lin?”
 
 ”Mi opinias, ke ne.”
-
-
-JANE EYRE
 
 
 ”Sed, ĉu oni skribis al li?”
@@ -15313,9 +12241,7 @@ Mi sentis min malvarma kaj malagrable impresita. Mia plej
 
 granda timo do verŝajne realiĝis. Sendube li estis forlasinta
 
-Anglujon, kaj lia senespero pelis lin al restadejo sur la konti-
-
-nento. Kiujn resanigantajn rimedojn por sia sufero kaj por
+Anglujon, kaj lia senespero pelis lin al restadejo sur la kontinento. Kiujn resanigantajn rimedojn por sia sufero kaj por
 
 siaj pasioj li estis elektinta tie? Mi ne kuraĝis respondi tiun
 
@@ -15325,25 +12251,19 @@ edzo kaj kiun mi estis nominta mia kara Edward!”
 
 ”Sendube li estis malbona homo,” rimarkis sinjoro Rivers.
 
-”Vi ne konas lin — vi ne diru vian opinion pri li,” mi res-
-
-pondis kun varmo.
+”Vi ne konas lin — vi ne diru vian opinion pri li,” mi respondis kun varmo.
 
 ”Bone,” li diris kviete, ”mi ja havas tute aliajn aferojn por
 
 pripensi ol lin. Mi devas fini mian historion. ĉar vi ne volas
 
-peti de mi la nomon de la guvernistino, mi devas diri ĝin pro-
-
-pravole. Atendu — jen ĝi estas — estas ĉiam plej bone, ke
+peti de mi la nomon de la guvernistino, mi devas diri ĝin propravole. Atendu — jen ĝi estas — estas ĉiam plej bone, ke
 
 gravaj aferoj estu klare skribitaj sur papero.”
 
 Ree kaj malrapide li aperigis la notlibreton, malfermis ĝin
 
-kaj serĉis ion en ĝi; li elprenis peceton da papero ŝajne rapi-
-
-de deŝirita de folio; je la koloro kaj makuletoj ultramaraj kaj
+kaj serĉis ion en ĝi; li elprenis peceton da papero ŝajne rapide deŝirita de folio; je la koloro kaj makuletoj ultramaraj kaj
 
 bluaj kaj malhele ruĝaj mi rekonis la deŝiritan randon de la
 
@@ -15351,17 +12271,9 @@ portreta koverto. Li leviĝis, metis ĝin sub miajn okulojn kaj
 
 legis per ˛ina kaj de mi mem skribitan nomon: ”Jane
 
-Eyre” — verŝajne mi estis skribinta ĝin en momento de spi-
+Eyre” — verŝajne mi estis skribinta ĝin en momento de spiritforesto.
 
-ritforesto.
-
-”Briggs skribis al mi pri certa Jane Eyre,” li diris, ”la gaze-
-
-
-JANE EYRE
-
-
-toj ankaŭ nomis certan Jane Eyre — mi konis certan Jane El-
+”Briggs skribis al mi pri certa Jane Eyre,” li diris, ”la gazetoj ankaŭ nomis certan Jane Eyre — mi konis certan Jane El-
 
 liot. — Mi devas konfesi, ke mi suspektis ion, sed nur hieraŭ
 
@@ -15369,17 +12281,13 @@ en la posttagmezo tiu suspekto fariĝis pruvo. ĉu vi konfesas,
 
 ke vi portas tiun nomon, neante la alian?”
 
-”Jes, jes — sed kie estas sinjoro Briggs? Eble li scias pli mul-
-
-ton pri sinjoro Rochester ol vi?”
+”Jes, jes — sed kie estas sinjoro Briggs? Eble li scias pli multon pri sinjoro Rochester ol vi?”
 
 ”Briggs estas en Londono; mi dubas pri tio, ĉu li scias ion
 
 pri sinjoro Rochester; ne pri sinjoro Rochester li sin interesas.
 
-Sed vi forgesas pri la ĉefa afero, dum vi okupas vin kun baga-
-
-teloj. Vi ne demandas, kial sinjoro Briggs vin serĉas — kion li
+Sed vi forgesas pri la ĉefa afero, dum vi okupas vin kun bagateloj. Vi ne demandas, kial sinjoro Briggs vin serĉas — kion li
 
 deziras de vi.”
 
@@ -15397,23 +12305,17 @@ riĉa nur tion — nenion plu.”
 
 Sekvas paŭzo.
 
-”Nature vi devos pruvi vian identecon,” parolis plue sin-
-
-joro St. John post longa silentado, ”sed tio estos al vi sufiĉe
+”Nature vi devos pruvi vian identecon,” parolis plue sinjoro St. John post longa silentado, ”sed tio estos al vi sufiĉe
 
 facila; poste vi povos tuj postuli la ricevon de via posedaĵo.
 
-Via posedo troviĝas en angla banko; Briggs havas la testa-
-
-menton kaj la necesajn dokumentojn.”
+Via posedo troviĝas en angla banko; Briggs havas la testamenton kaj la necesajn dokumentojn.”
 
 Tiel subite ĉio per unu fojo aliiĝis! Estas bela afero, kara
 
 leganto, esti levata de malriĉeco al riĉeco en unu momento —
 
-tre bela afero, sed ĉiuokaze ne afero, kiun oni povas tuj kom-
-
-preni kaj ĝui. Krom tio estas en la vivo okazoj, kiuj estas mul-
+tre bela afero, sed ĉiuokaze ne afero, kiun oni povas tuj kompreni kaj ĝui. Krom tio estas en la vivo okazoj, kiuj estas mul-
 
 te pli skuantaj aŭ ravaj: nome io firma, io vera sen io ideala;
 
@@ -15422,16 +12324,9 @@ te pli skuantaj aŭ ravaj: nome io firma, io vera sen io ideala;
 ankaŭ tia. Oni ne kriegas kaj saltadas! oni ne krias brave!
 
 
-JANE EYRE
+kiam oni subite ekscias, ke oni ricevis havaĵon. Oni komencas pripensi la respondecon kaj la manieron, en kiu plej bone
 
-
-kiam oni subite ekscias, ke oni ricevis havaĵon. Oni komen-
-
-cas pripensi la respondecon kaj la manieron, en kiu plej bone
-
-oni prizorgos sian havaĵon, sur la bazo de la kontentiĝo sin le-
-
-vas gravaj zorgoj, — kaj ni alcentrigas la pensojn kaj cerbu-
+oni prizorgos sian havaĵon, sur la bazo de la kontentiĝo sin levas gravaj zorgoj, — kaj ni alcentrigas la pensojn kaj cerbu-
 
 mas kun solena graveco pri la ricevita beno.
 
@@ -15486,9 +12381,6 @@ konsternita.”
 eraris?”
 
 
-JANE EYRE
-
-
 ”Oni tute ne eraris.”
 
 ”Eble vi malbone legis la nombron — sendube ĝi estas nur
@@ -15507,9 +12399,7 @@ Nun sinjoro Rivers leviĝis kaj surmetis sian mantelon.
 
 ”Se la vespero ne estus tiel ventega,” li diris, ”mi sendus al
 
-vi Hannah por esti kun vi. Vi aspektas tiel senespere malfeli-
-
-ĉa; oni tial ne restigu vin sola ĉi tie. Sed la kompatindulino ne
+vi Hannah por esti kun vi. Vi aspektas tiel senespere malfeliĉa; oni tial ne restigu vin sola ĉi tie. Sed la kompatindulino ne
 
 povas tiel bone iri tra tia neĝblovado kiel mi; ŝiaj kruroj ne
 
@@ -15539,18 +12429,13 @@ Ree la riglilo tintis.
 
 ”Ne, tiu respondo ne kontentigas min!” mi kriis. Kaj vere
 
-io trorapida, io malklara sin kaŝis en la respondo kaj tio insti-
-
-gis ankoraŭ pli multe mian scivolon anstataŭ kontentigi ĝin.
+io trorapida, io malklara sin kaŝis en la respondo kaj tio instigis ankoraŭ pli multe mian scivolon anstataŭ kontentigi ĝin.
 
 ”Tio estas stranga historio,” mi diris plue, ”kaj mi devas
 
 aŭdi pli multe pri ĝi.”
 
 ”Alian fojon.”
-
-
-JANE EYRE
 
 
 ”Ne, hodiaŭ vespere! — hodiaŭ vespere!” kaj kiam li estis
@@ -15585,9 +12470,7 @@ viro,” li diris, ”kaj malfacile cedebla.”
 
 pasio tiras min kun si.”
 
-”Kontraŭe mi estas varmegsanga, kaj fajro degeligas gla-
-
-cion. La lignofajro degeligis ĉiun neĝon sur via mantelo; nun
+”Kontraŭe mi estas varmegsanga, kaj fajro degeligas glacion. La lignofajro degeligis ĉiun neĝon sur via mantelo; nun
 
 ĝi kuŝas sur la planko, kiu aspektas kiel malpura vojo. Se vi
 
@@ -15601,9 +12484,7 @@ kion mi deziras ekscii.
 
 ol al via seriozeco; same kiel ŝtono estas kavigata de daŭre
 
-falantaj akveroj. Krome, vi ja iun tagon devos scii tion — sek-
-
-ve pli bone nun ol poste. Via nomo do estas Jane Eyre?”
+falantaj akveroj. Krome, vi ja iun tagon devos scii tion — sekve pli bone nun ol poste. Via nomo do estas Jane Eyre?”
 
 ”Kompreneble. Pri tio ni ja ne plu bezonas diskuti.”
 
@@ -15614,12 +12495,7 @@ mia baptonomo estas St. John Eyre Rivers?”
 ”Ne, vere; sed mi rememoras bone, ke mi vidis en la libroj,
 
 
-JANE EYRE
-
-
-kiujn vi pruntedonis al mi, ankaŭ la literon E. ; sed mi ne de-
-
-mandis, en kies loko tiu nomo staras. Sen dubo —”
+kiujn vi pruntedonis al mi, ankaŭ la literon E. ; sed mi ne demandis, en kies loko tiu nomo staras. Sen dubo —”
 
 Mi eksilentis. Mi eĉ ne havis la kuraĝon nutri, pli malmulte
 
@@ -15631,13 +12507,9 @@ ligis unuj al aliaj, adaptiĝis iuj al aliaj, ordiĝis laŭ vico kaj eroj;
 
 la ĉeno, kiu ĝis nun kuŝis antaŭ mi kiel senforma amaso, estis
 
-tute distirata — ĉiu ero estis kompleta, la kunigo estis disrom-
+tute distirata — ĉiu ero estis kompleta, la kunigo estis disrompita. Instinkte mi sciis, kiel statis la afero, antaŭ ol estis paro-
 
-pita. Instinkte mi sciis, kiel statis la afero, antaŭ ol estis paro-
-
-lita ankoraŭ unu vorto; sed mi ne povas postuli, ke mia legan-
-
-to posedu la saman instinktan antaŭsentkpablon, tial mi
+lita ankoraŭ unu vorto; sed mi ne povas postuli, ke mia leganto posedu la saman instinktan antaŭsentkpablon, tial mi
 
 devas ripeti lian deklaron.
 
@@ -15678,9 +12550,6 @@ Mi eksilentis — li staris antaŭ mi kun la ĉapelo en la mano
 kaj aspektis kvieta kaj trankvila.
 
 
-JANE EYRE
-
-
 Mi parolis plue:
 
 ”Via patrino estis la fratino de mia patro.”
@@ -15717,9 +12586,7 @@ amon kaj admiron. Tiuj du knabinoj, kiujn en tiu vespero,
 
 kiam mi genuis sur la malseka tero kaj vidis tra la malalta
 
-krad-fenestro de la kuirejo de Moor House, mi estis rigardin-
-
-ta kun intereso kaj malespero, — ili estis miaj plej proksimaj
+krad-fenestro de la kuirejo de Moor House, mi estis rigardinta kun intereso kaj malespero, — ili estis miaj plej proksimaj
 
 parencoj! Kaj la juna, eleganta viro, kiu estis trovinta min
 
@@ -15729,27 +12596,18 @@ la sango. Kia malkovro por malfeliĉa forlasitino! Tio en vero
 
 estis riĉaĵo! — Riĉaĵo por mia koro! — tuta trezorejo de pura
 
-kaj natura amo! Tio estis bonfaro ĉiela, pura, klara, revivi-
+kaj natura amo! Tio estis bonfaro ĉiela, pura, klara, reviviganta. Ne kiel peza donaco el oro, kiu siaspece tamen estas
 
-ganta. Ne kiel peza donaco el oro, kiu siaspece tamen estas
-
-sufiĉe bonvena pro sia pezo, tamen ĉiam premas teren. Eks-
-
-citita de subita ĝojo, mi kunfrapis la manojn — miaj pulsoj,
+sufiĉe bonvena pro sia pezo, tamen ĉiam premas teren. Ekscitita de subita ĝojo, mi kunfrapis la manojn — miaj pulsoj,
 
 miaj tempioj bategis.
 
 ”Ho, mi estas tiel gaja! — mi estas tiel ĝoja!” mi kriis.
 
 
-JANE EYRE
-
-
 St. John ridetis kaj diris:
 
-”ĉu mi ne diris, ke vi malzorgas la ĉefaferojn kaj vin oku-
-
-pas kun bagateloj? Vi fariĝis serioza, kiam mi diris al vi, ke vi
+”ĉu mi ne diris, ke vi malzorgas la ĉefaferojn kaj vin okupas kun bagateloj? Vi fariĝis serioza, kiam mi diris al vi, ke vi
 
 akiris grandan posedaĵon, kaj nun vi estis ĝoja kaj ekscitita
 
@@ -15759,9 +12617,7 @@ pro afero, kiu estas sensignifa.”
 
 havas fratinojn kaj malmulte atentas havi kuzinon; sed mi
 
-havis neniun, kaj nun subite tri parencoj — aŭ nur du, se es-
-
-tas al vi indiferente esti alkalkulata — plenkreske aperas an-
+havis neniun, kaj nun subite tri parencoj — aŭ nur du, se estas al vi indiferente esti alkalkulata — plenkreske aperas an-
 
 taŭ mi. Ho, mi ankoraŭ fojon diras, ke mi estas tiel feliĉa!”
 
@@ -15769,13 +12625,9 @@ Rapide mi trairis la ĉambron, sed haltis. La pensoj, kiuj
 
 venis al mi pli rapide ol mi povis kompreni ilin kaj ordigi,
 
-preskaŭ sufokis min, — ili estis la pensoj pri tio, kio eble bal-
+preskaŭ sufokis min, — ili estis la pensoj pri tio, kio eble baldaŭ estiĝos. Mi rigardis la blankan muron; ĝi ŝajnis al mi kiel
 
-daŭ estiĝos. Mi rigardis la blankan muron; ĝi ŝajnis al mi kiel
-
-ĉielo, plene kovrita de hele lumantaj steloj — kaj ĉiu el ili sig-
-
-nifis al mi ian feliĉon. Nun mi povus montri bonfaron al tiuj,
+ĉielo, plene kovrita de hele lumantaj steloj — kaj ĉiu el ili signifis al mi ian feliĉon. Nun mi povus montri bonfaron al tiuj,
 
 kiuj estis savintaj mian vivon kaj kiujn mi ĝis nun kapablis
 
@@ -15787,13 +12639,9 @@ ili povus ankaŭ ĝui kaj partopreni miajn sendependecon kaj
 
 superfluon. Ni estis ja parencoj. Dudek mil funtoj, dividitaj en
 
-egalajn partojn, estus por ĉiu kvinmil — pli ol sufiĉe; la jus-
+egalajn partojn, estus por ĉiu kvinmil — pli ol sufiĉe; la justeco devus plenumiĝi, — nia feliĉo estu certigata. Nun la riĉe-
 
-teco devus plenumiĝi, — nia feliĉo estu certigata. Nun la riĉe-
-
-co ne plu premis min teren, nun ĝi ne estis plu mona here-
-
-daĵo — sed heredaĵo de vivo, espero kaj ĝuo!
+co ne plu premis min teren, nun ĝi ne estis plu mona heredaĵo — sed heredaĵo de vivo, espero kaj ĝuo!
 
 Mi ne povas diri, kiel mi aspektis, dum tiuj pensoj ekregis
 
@@ -15801,17 +12649,10 @@ min perforte; sed baldaŭ mi rimarkis, ke sinjoro Rivers metis
 
 post mi seĝon kaj kviete penis sidigi min sur ĝin. Li konsilis
 
-al mi rekonsciiĝi; sed min ekscitis tiu aludo pri miaj senhel-
-
-peco kaj eksciteco; mi forpuŝis lian manon de mia ŝultro kaj
+al mi rekonsciiĝi; sed min ekscitis tiu aludo pri miaj senhelpeco kaj eksciteco; mi forpuŝis lian manon de mia ŝultro kaj
 
 
-JANE EYRE
-
-
-ree ekiris tien kaj reen, dirante: ”Skribu jam morgaŭ al Dia-
-
-na kaj Maria kaj diru al ili, ke ili tuj revenu hejmen. Diana ofte
+ree ekiris tien kaj reen, dirante: ”Skribu jam morgaŭ al Diana kaj Maria kaj diru al ili, ke ili tuj revenu hejmen. Diana ofte
 
 diris al mi, ke ŝi opinius sin riĉa, se ŝi posedus mil funtojn,
 
@@ -15827,23 +12668,17 @@ John. ”Vi vere devas trankviliĝi kaj iom regi viajn sentojn.”
 
 Oliver? ĉu vi trankvile loĝos ĉi tie, kiel ordinara mortulo?”
 
-”Vi deliras. Viaj pensoj konfuzas vin; mi tro rapide komu-
-
-nikis al vi tiun novaĵon; tio estis tro por viaj fortoj.”
+”Vi deliras. Viaj pensoj konfuzas vin; mi tro rapide komunikis al vi tiun novaĵon; tio estis tro por viaj fortoj.”
 
 ”Sinjoro Rivers! Vi vere senpaciencigas min; mi parolas tre
 
-saĝe. Sed vi miskomprenas min, aŭ prefere, volas miskompre-
-
-ni min.”
+saĝe. Sed vi miskomprenas min, aŭ prefere, volas miskompreni min.”
 
 ”Eble mi pli bone komprenus vin, se vi nur esprimus pli
 
 klare viajn pensojn.”
 
-”Pli klare! Kion do mi devas pli klare esprimi? Vi kompre-
-
-nos, ke dudek mil funtoj, dividitaj en egalajn partojn inter
+”Pli klare! Kion do mi devas pli klare esprimi? Vi komprenos, ke dudek mil funtoj, dividitaj en egalajn partojn inter
 
 mia kuzo kaj la tri kuzinoj estos por ĉiu kvin mil funtoj? Kion
 
@@ -15859,23 +12694,14 @@ brute egoista, nek blinde maljusta, nek diable sendanka.
 
 Krom tio; mi decidis ekloĝi ĉi tie kaj eĉ kun parencoj. Mi amas
 
-Moor House, kaj en ĝi mi volas loĝi. Mi amas Dianan kaj Ma-
+Moor House, kaj en ĝi mi volas loĝi. Mi amas Dianan kaj Marian kaj ĉe ili mi volas resti mian tutan vivon. Estos al mi beno
 
-rian kaj ĉe ili mi volas resti mian tutan vivon. Estos al mi beno
-
-kaj ĝojo posedi kvin mil funtojn; sed turmentus min kaj pre-
-
-mus teren havi dudek mil; kaj krome ili neeble kaj laŭleĝe
+kaj ĝojo posedi kvin mil funtojn; sed turmentus min kaj premus teren havi dudek mil; kaj krome ili neeble kaj laŭleĝe
 
 estas mia sola posedaĵo, kvankam la leĝo aljuĝas ilin al mi. Mi
 
 
-JANE EYRE
-
-
-tial cedas al vi tion, kio al mi estas absolute superflua. Kon-
-
-traŭstaro kaj diskutado en ĉi tiu afero estas senutilaj. Ni tial
+tial cedas al vi tion, kio al mi estas absolute superflua. Kontraŭstaro kaj diskutado en ĉi tiu afero estas senutilaj. Ni tial
 
 tuj interkonsentiĝu kaj decidu.”
 
@@ -15895,9 +12721,7 @@ tiu afero?”
 
 al la kutimo. Krome vi rajte povas akcepti la tutan havaĵon;
 
-mia onklo akiris ĝin per siaj propraj penadoj; li rajtis postla-
-
-si ĝin laŭ sia bontrovo: li postlasis ĝin al vi. Kaj fine la leĝo
+mia onklo akiris ĝin per siaj propraj penadoj; li rajtis postlasi ĝin laŭ sia bontrovo: li postlasis ĝin al vi. Kaj fine la leĝo
 
 konsentas al vi akcepti ĝin. Kun pura konscienco vi povas
 
@@ -15905,9 +12729,7 @@ rigardi ĝin kiel vian.”
 
 ”Ankaŭ ĉe mi tio estas afero de konscienco kaj sento,” mi
 
-diris. ”Mi devas agi laŭ mia sento. is nun mi preskaŭ neni-
-
-am havis la okazon fari tion. Se vi tutan jaron kontraŭagus kaj
+diris. ”Mi devas agi laŭ mia sento. is nun mi preskaŭ neniam havis la okazon fari tion. Se vi tutan jaron kontraŭagus kaj
 
 ĉagrenus min, mi ne rifuzus al mi la feliĉegan ĝojon, kiu en
 
@@ -15927,12 +12749,7 @@ donos al vi en la societo; nek la antaŭvidon, kiun vi per ĝi
 
 povos malfermi por vi; vi ne povas —
 
-”Kaj vi,” mi interrompis lin, ”ne povas imagi al vi la sopi-
-
-ron, kiun mi sentas al gefrata amo. Neniam mi havis hejmon,
-
-
-JANE EYRE
+”Kaj vi,” mi interrompis lin, ”ne povas imagi al vi la sopiron, kiun mi sentas al gefrata amo. Neniam mi havis hejmon,
 
 
 neniam fraton aŭ fratinojn. Mi volas havi ilin kaj mi havos
@@ -15943,15 +12760,11 @@ ilin. ĉu vi sentas malinklinon akcepti min?”
 
 fratinoj — eĉ sen kondiĉoj pri la oferoj viaflanke.”
 
-”ĉu frato? Jes, je distanco de kelkaj miloj da mejloj: ĉu fra-
-
-tinoj? Jes: kiuj estas kvazaŭ sklavinoj inter fremduloj: Kaj mi
+”ĉu frato? Jes, je distanco de kelkaj miloj da mejloj: ĉu fratinoj? Jes: kiuj estas kvazaŭ sklavinoj inter fremduloj: Kaj mi
 
 estus riĉa! Superŝutita per oro, kiun mi ne perlaboris kaj kiun
 
-mi ne meritas: Kaj vi estus malriĉaj: malriĉaj! Jen belega ega-
-
-leco kaj frateco! Jen vera unuiĝo, kora amo kaj sendepende-
+mi ne meritas: Kaj vi estus malriĉaj: malriĉaj! Jen belega egaleco kaj frateco! Jen vera unuiĝo, kora amo kaj sendepende-
 
 co!”
 
@@ -15975,9 +12788,7 @@ miaj pensoj kontraŭbatalos la nuran penson pri edziniĝo.
 
 Neniam mi edziniĝos el amo kaj mi ne dezirus elmeti min al
 
-monspekulado. Krom tio, mi ne volus fremdan, al mi malsim-
-
-patian homon, kiu tute diferencas de mi. Mi volas havi miajn
+monspekulado. Krom tio, mi ne volus fremdan, al mi malsimpatian homon, kiu tute diferencas de mi. Mi volas havi miajn
 
 parencojn, kun kiuj mi povas simpatii. Diru ankoraŭ unu
 
@@ -15991,37 +12802,22 @@ sincere!”
 
 miajn proprajn fratinojn; kaj mi scias sur kio mia amo al ili
 
-estas fondita — sur la estimo de iliaj promesoj, sur la admi-
-
-ro de iliaj ecoj kaj talentoj. Ankaŭ vi posedas principojn kaj
-
-
-JANE EYRE
+estas fondita — sur la estimo de iliaj promesoj, sur la admiro de iliaj ecoj kaj talentoj. Ankaŭ vi posedas principojn kaj
 
 
 karakteron; viaj gustoj kaj kutimoj similas tiujn de Maria kaj
 
-Diana; ilia societo ĉiam estas al mi agrabla; en la interparo-
+Diana; ilia societo ĉiam estas al mi agrabla; en la interparolado kun vi mi jam longe trovis bonfarantan konsolon. Mi
 
-lado kun vi mi jam longe trovis bonfarantan konsolon. Mi
-
-sentas, ke facile mi povas doni al vi lokon en mia koro; vi es-
-
-tas mia tria kaj plej juna fratino.”
+sentas, ke facile mi povas doni al vi lokon en mia koro; vi estas mia tria kaj plej juna fratino.”
 
 ”Mi dankas vin! Hodiaŭ vespere tio mntentigas. Nun
 
-iru for; ĉar se vi restos ĉi tie ankoraŭ pli longe, vi eble eksci-
+iru for; ĉar se vi restos ĉi tie ankoraŭ pli longe, vi eble ekscitus min denove per viaj malfidaj konscienc-riproĉoj.”
 
-tus min denove per viaj malfidaj konscienc-riproĉoj.”
+”Kaj la lernejo, fraŭlino Eyre? i supozeble nun estos fermita?”
 
-”Kaj la lernejo, fraŭlino Eyre? i supozeble nun estos fer-
-
-mita?”
-
-”Ne; mi plenumos mian oficon kiel instruistino ĝis mi tro-
-
-vis anstataŭantinon.”
+”Ne; mi plenumos mian oficon kiel instruistino ĝis mi trovis anstataŭantinon.”
 
 Li ridetis konsentante. Poste ni premis al ni reciproke la
 
@@ -16029,13 +12825,9 @@ manojn kaj li foriris.
 
 Mi ne bezonas rakonti en ĉiuj detaloj la plurajn batalojn
 
-kontraŭ multaj argumentoj, antaŭ ol mi fine tiel estis aran-
+kontraŭ multaj argumentoj, antaŭ ol mi fine tiel estis aranĝinta la heredaĵ-aferon, kiel mi deziris. Mia tasko estis tre
 
-ĝinta la heredaĵ-aferon, kiel mi deziris. Mia tasko estis tre
-
-malfacila; sed ĉar mi estis firme decidinta kaj ĉar miaj paren-
-
-coj fine komprenis, ke mi vere intencis efektivigi egalan divi-
+malfacila; sed ĉar mi estis firme decidinta kaj ĉar miaj parencoj fine komprenis, ke mi vere intencis efektivigi egalan divi-
 
 don de la heredaĵo — kaj ĉar fine en siaj koroj ili rekonis la
 
@@ -16047,21 +12839,14 @@ afero estos submetata al arbitracia tribunalo. La elektitaj
 
 juĝistoj estis sinjoro Oliver kaj eminenta advokato; ambaŭ
 
-voĉdonis laŭ mia ideo. Mi venkis. La dokumentoj de la divi-
-
-do estis redaktitaj, St. John, Diana, Maria kaj mi ĉiuj akiris
+voĉdonis laŭ mia ideo. Mi venkis. La dokumentoj de la divido estis redaktitaj, St. John, Diana, Maria kaj mi ĉiuj akiris
 
 sufiĉegan posedaĵon.
 
 
-JANE EYRE
-
-
 ĉapitro XXXIV.
 
-La kristnaskofesto jam proksimiĝis, kiam ĉio estis ordi-
-
-gita.
+La kristnaskofesto jam proksimiĝis, kiam ĉio estis ordigita.
 
 Mi fermis la lernejon de Morton kaj zorgis pri tio, ke mia
 
@@ -16075,25 +12860,17 @@ mi kun ĝojo rimarkis, ke multaj el miaj lernantinoj ŝatas min
 
 kaj tio plene kaj forte montriĝis, kiam ni disiĝis. Kiel granda
 
-estis mia danko vidante, ke vere mi akiris lokon en iliaj ne-
-
-malboniĝintaj koroj; mi tial promesis al ili, ke neniam pasos
+estis mia danko vidante, ke vere mi akiris lokon en iliaj nemalboniĝintaj koroj; mi tial promesis al ili, ke neniam pasos
 
 semajno en kiu mi ne vizitos ilin por instrui ilin almenaŭ unu
 
 horon en la lernejo.
 
-Sinjoro Rivers venis por fermi la pordon, post kiam la ses-
+Sinjoro Rivers venis por fermi la pordon, post kiam la sesdek knabinoj linie preterpasis min. Mi staris kun la ŝlosilo en
 
-dek knabinoj linie preterpasis min. Mi staris kun la ŝlosilo en
+la mano kaj rediris ankoraŭ kelkajn specialajn adiaŭajn vortojn al seso el miaj plej bonaj lernantinoj; ĉi tiuj estis tiaj dec-
 
-la mano kaj rediris ankoraŭ kelkajn specialajn adiaŭajn vor-
-
-tojn al seso el miaj plej bonaj lernantinoj; ĉi tiuj estis tiaj dec-
-
-kondutaj, estimindaj, modestaj kaj bone instruitaj junaj esta-
-
-ĵoj, kiajn eble nenie oni povus trovi en britaj farmovilaĝoj. Kaj
+kondutaj, estimindaj, modestaj kaj bone instruitaj junaj estaĵoj, kiajn eble nenie oni povus trovi en britaj farmovilaĝoj. Kaj
 
 tio estas serioza certigo; ĉar vidinte multajn ”paysannes”1 kaj
 
@@ -16108,12 +12885,7 @@ honorinda en tuta Eŭropo.
 2 germanaj vilaĝaninoj.
 
 
-JANE EYRE
-
-
-”ĉu vi rigardas vmpensita por multaj monatoj da pe-
-
-no kaj streĉado?” demandis sinjoro Rivers, kiam ili estis
+”ĉu vi rigardas vmpensita por multaj monatoj da peno kaj streĉado?” demandis sinjoro Rivers, kiam ili estis
 
 foririntaj. ”ĉu la konscio, ke vi bone uzis vian tempon kaj vi
 
@@ -16129,9 +12901,7 @@ ne estus bone uzita vivo?”
 
 ”Jes,” mi diris. ”Sed mi ne povus ĉiam vivi en tiu maniero.
 
-Same volonte mi volas ĝoji pro miaj propraj talentoj kaj ka-
-
-pabloj, kiel por disvastigi tiujn de miaj proksimuloj. Kaj eĉ
+Same volonte mi volas ĝoji pro miaj propraj talentoj kaj kapabloj, kiel por disvastigi tiujn de miaj proksimuloj. Kaj eĉ
 
 nun mi devas ĝoji pro miaj; ne ree konduku miajn animon kaj
 
@@ -16151,9 +12921,7 @@ devas peti vin serĉi anstataŭantinon por Hannah.”
 
 ”ĉu vi bezonos ŝin?
 
-”Jes, ŝi devas iri kun mi al Moor House. Post semajno Dia-
-
-na kaj Maria estos hejme, kaj ĉe sia alveno ili trovos ĉion en
+”Jes, ŝi devas iri kun mi al Moor House. Post semajno Diana kaj Maria estos hejme, kaj ĉe sia alveno ili trovos ĉion en
 
 plej bela ordo.”
 
@@ -16161,59 +12929,37 @@ plej bela ordo.”
 
 Bone, Hannah akompanos vin.”
 
-”Tial diru al ŝi, ke ŝi morgaŭ estu preta. Jen akceptu la ŝlo-
-
-silon de la lerneja ĉambro. Morgaŭ frue mi donos al vi la ŝlo-
+”Tial diru al ŝi, ke ŝi morgaŭ estu preta. Jen akceptu la ŝlosilon de la lerneja ĉambro. Morgaŭ frue mi donos al vi la ŝlo-
 
 silon de mia dometo.”
 
 Li akceptis ĝin.
 
-”Vi tre ĝoje transdonas ĝin,” li diris. ”Via facilanimeco ŝaj-
+”Vi tre ĝoje transdonas ĝin,” li diris. ”Via facilanimeco ŝajnas al mi iom nekomprenebla, ĉar mi ne scias, kiujn okupojn
 
-
-JANE EYRE
-
-
-nas al mi iom nekomprenebla, ĉar mi ne scias, kiujn okupojn
-
-vi elektis anstataŭ tiuj, kiujn vi forlasas, kaj kiujn celon, inten-
-
-con kaj ambicion vi havas.”
+vi elektis anstataŭ tiuj, kiujn vi forlasas, kaj kiujn celon, intencon kaj ambicion vi havas.”
 
 ”Mia unua intenco estas purigi Moor House de la kelo ĝis
 
 la tegmento; ĉu vi komprenas la grandan signifon de tiu
 
-esprimo? Poste ni devos froti ĝin per vakso kaj oleo, per ned-
+esprimo? Poste ni devos froti ĝin per vakso kaj oleo, per nedifinita aro da tukoj ĝis ĉio brilegas; trie aranĝi ĉiun tablon,
 
-ifinita aro da tukoj ĝis ĉio brilegas; trie aranĝi ĉiun tablon,
+ĉiun seĝon, ĉiun liton, ĉiun tapiŝon kun matematika precizeco; kvare mi preskaŭ ruinigos vin per nekalkuleblaj amasoj da
 
-ĉiun seĝon, ĉiun liton, ĉiun tapiŝon kun matematika precize-
+torfoj kaj bruloligno, por ke mi povu nutri en ĉiu ĉambro ardantan fajron; kaj fine la lastaj du tagoj antaŭ la alveno de viaj
 
-co; kvare mi preskaŭ ruinigos vin per nekalkuleblaj amasoj da
-
-torfoj kaj bruloligno, por ke mi povu nutri en ĉiu ĉambro ar-
-
-dantan fajron; kaj fine la lastaj du tagoj antaŭ la alveno de viaj
-
-fratinoj estos dediĉataj de mi kaj Hannah al pretigado de bat-
-
-miksitaj ovoj, elektado de sekvinberoj, rostado de spicaĵoj,
+fratinoj estos dediĉataj de mi kaj Hannah al pretigado de batmiksitaj ovoj, elektado de sekvinberoj, rostado de spicaĵoj,
 
 bakado de kristnaskfestaj kukoj, tranĉado de viando kaj alia
 
 kulinara laboro, pri kiu neensekretigitoj kiel vi komprenas
 
-nenion. Malmultvorte, mia intenco estas antaŭ la proksimi-
-
-ĝanta ĵaŭdo pretigi ĉion por la ricevo de Diana kaj Maria; mia
+nenion. Malmultvorte, mia intenco estas antaŭ la proksimiĝanta ĵaŭdo pretigi ĉion por la ricevo de Diana kaj Maria; mia
 
 ambicio konsistas en tio, ke mi oferu al ili idealan bonvenon.”
 
-St. John ridetis preskaŭ nerimarkeble. Sed li ne estis anko-
-
-raŭ tute kontenta.
+St. John ridetis preskaŭ nerimarkeble. Sed li ne estis ankoraŭ tute kontenta.
 
 Tio por la momento estas tre bela,” li diris, ”sed rilate al la
 
@@ -16223,35 +12969,24 @@ rigardon ol sur domaj ĝojoj kaj plibeligoj, kiam la unuaj ĝojo
 
 kaj ekscito estos pasintaj.”
 
-”Ho, ili estas la plej bonaj aferoj, kiujn la vivo al ni prezen-
-
-tas!” mi lin interrompis.
+”Ho, ili estas la plej bonaj aferoj, kiujn la vivo al ni prezentas!” mi lin interrompis.
 
 ”Ne Jane, ne! ĉi tiu mondo ne estas loko de ĝuoj; ne penu
 
-fari tion el ĝi; nek fari el ĝi lokon de ripozo: ne fariĝu malla-
-
-borema.
+fari tion el ĝi; nek fari el ĝi lokon de ripozo: ne fariĝu mallaborema.
 
 ”Kontraŭe! Mi intencas esti tre laborema!”
-
-
-JANE EYRE
 
 
 ”Jane, por ĉi tiu momento mi pardonas vin ankoraŭ; mi
 
 donas al vi du monatojn por ĝui vian novan vivostaton; du
 
-monatojn vi povos plene ĝui la ĉarmon de ĉi tiu nove malkov-
-
-rita parenceco; sed poste mi esperas, ke vi levu vian rigardon
+monatojn vi povos plene ĝui la ĉarmon de ĉi tiu nove malkovrita parenceco; sed poste mi esperas, ke vi levu vian rigardon
 
 super Moor House kaj Morton; vi celu kaj aspiru pli ol la
 
-societon de la fratinoj, pli ol la egoistan ripozon kaj volup-
-
-teman plaĉon de la civilizita superfiuo. Mi esperas, ke la forto
+societon de la fratinoj, pli ol la egoistan ripozon kaj volupteman plaĉon de la civilizita superfiuo. Mi esperas, ke la forto
 
 de via energio tiam ne lasos vin kvieta.”
 
@@ -16259,9 +12994,7 @@ Mirigite mi rigardis lin.
 
 ”St. John,” mi diris fine, ”estas preskaŭ malpie tiel paroli!
 
-Mi intencis esti feliĉa kaj kontenta kiel reĝino, kaj jen vi klo-
-
-podas veki en mi denove la senripozecon de antaŭe! Kiace-
+Mi intencis esti feliĉa kaj kontenta kiel reĝino, kaj jen vi klopodas veki en mi denove la senripozecon de antaŭe! Kiace-
 
 le?”
 
@@ -16269,17 +13002,13 @@ le?”
 
 al vi kaj pri kio iam vi devos doni respondecon. Jane, mi daŭre
 
-atentos vin, tion mi jam antaŭe diras al vi. Klopodu subpre-
-
-mi la fortegan ardon, kun kiu vi ĵetas vin sur ĉiajn bagatelojn.
+atentos vin, tion mi jam antaŭe diras al vi. Klopodu subpremi la fortegan ardon, kun kiu vi ĵetas vin sur ĉiajn bagatelojn.
 
 Ne tiom kroĉiĝu al la aferoj de la karno. ĉu vi komprenas
 
 min, Jane?”
 
-”Jes, same bone kiel mi komprenus vin se vi parolus gre-
-
-ke. Mi sentas, ke mi havas multajn tialojn por esti feliĉa, kaj
+”Jes, same bone kiel mi komprenus vin se vi parolus greke. Mi sentas, ke mi havas multajn tialojn por esti feliĉa, kaj
 
 feliĉa mi volas esti. Adiaŭ!”
 
@@ -16287,37 +13016,24 @@ Mi estis tre feliĉa en Moor House, kaj mi multege laboris,
 
 same kiel Hannah. ŝi estis ravita vidante, kiel afabla mi povas
 
-esti, eĉ meze de la malordo en purigata domo. Kiam ĉio es-
+esti, eĉ meze de la malordo en purigata domo. Kiam ĉio estis preta, mi trovis Moor House tre hejmeca.
 
-tis preta, mi trovis Moor House tre hejmeca.
-
-La grava ĵaŭdo fine proksimiĝis. Ni atendis Marian kaj Dia-
-
-nan je krepuskiĝo kaj jam antaŭ tiu tempo ni bruligis la faj-
+La grava ĵaŭdo fine proksimiĝis. Ni atendis Marian kaj Dianan je krepuskiĝo kaj jam antaŭ tiu tempo ni bruligis la faj-
 
 ron supre kaj malsupre en la domo. La kuirejo aspektis tre
 
 ordigita. Hannah kaj mi estis jam vestitaj kaj ĉio preta.
 
 
-JANE EYRE
-
-
-Kiel unua venis St. John. Mi estis petinta lin ne alveni an-
-
-taŭ ol ĉio estos preta. Li trovis min en la kuirejo, dum mi
+Kiel unua venis St. John. Mi estis petinta lin ne alveni antaŭ ol ĉio estos preta. Li trovis min en la kuirejo, dum mi
 
 bakis kuketojn por la teo.
 
-Alproksimiĝante al la forno li demandis, ĉu mi bone suk-
-
-cesis pri la servistina laboro. Mi respondis al li invitante lin
+Alproksimiĝante al la forno li demandis, ĉu mi bone sukcesis pri la servistina laboro. Mi respondis al li invitante lin
 
 trairi kun mi la domon por vidi la rezulton de mia laboro.
 
-Kun peno mi decidigis lin fari tion. Li ĵetis nur rapidan rigar-
-
-don en la ĉambrojn, kiujn mi malfermis al li kaj irinte de sup-
+Kun peno mi decidigis lin fari tion. Li ĵetis nur rapidan rigardon en la ĉambrojn, kiujn mi malfermis al li kaj irinte de sup-
 
 ren malsupren, li diris, ke sendube mi havis multan penon
 
@@ -16327,15 +13043,11 @@ sciigis, ke la plibonigo plaĉas al li.
 
 Tiu silentado iom malpliigis mian ĝojon, tion mi devas
 
-konfesi … Mi pensis, ke la ŝango en la domo vekus ĉe li mal-
-
-novajn rememorojn, kaj tion mi demandis iom senkuraĝi-
+konfesi … Mi pensis, ke la ŝango en la domo vekus ĉe li malnovajn rememorojn, kaj tion mi demandis iom senkuraĝi-
 
 ĝinte.
 
-”Ho ne, tute ne;” li kontraŭe estis rimarkinta, ke mi res-
-
-pektis ĉiun rememoron. Li eĉ timis, ke mi dediĉis al tio pli
+”Ho ne, tute ne;” li kontraŭe estis rimarkinta, ke mi respektis ĉiun rememoron. Li eĉ timis, ke mi dediĉis al tio pli
 
 multe da tempo ol penvaloras. Ekzemple, kiom da tempo mi
 
@@ -16349,9 +13061,7 @@ retirinte sin al sia kutima loko ĉe la fenestro, li eklegis.
 
 Nu, mia kara leganta, tio ne plaĉis al mi. St. John estis bona
 
-viro; sed nun mi spertis, ke li diris la veron pri si mem, diran-
-
-te, ke li estas maldolĉa kaj malvarma. La humaneco kaj la ĉar-
+viro; sed nun mi spertis, ke li diris la veron pri si mem, dirante, ke li estas maldolĉa kaj malvarma. La humaneco kaj la ĉar-
 
 mo de la vivo ne tuŝis lin, ne altiris lin. Vere, li vivis nur por
 
@@ -16361,13 +13071,7 @@ ne volis ĝin; ankaŭ li ne aprobis ĝin al tiuj, kiuj ĉirkaŭis lin.
 
 Rigardante malsupren al lia alta frunto, kiu estis senmova kaj
 
-pala kiel tombŝtono — al liaj belaj trajtoj, kiuj per longa stu-
-
-
-JANE EYRE
-
-
-dado fariĝis rigidaj kaj severaj, mi subite komprenis, ke li
+pala kiel tombŝtono — al liaj belaj trajtoj, kiuj per longa studado fariĝis rigidaj kaj severaj, mi subite komprenis, ke li
 
 neniam povus esti bona edzo, ke estus malfacila tasko esti lia
 
@@ -16387,17 +13091,13 @@ kreas siajn heroojn — kristanajn same kiel idolanajn — siajn
 
 leĝdonantojn, politikistojn, konkerantojn; firman fortikaĵon,
 
-sur kiu oni en grandaj epokoj povus fidi pro grandaj intere-
-
-soj! Sed kiu apud la hejma kameno estas nur tro ofte peza,
+sur kiu oni en grandaj epokoj povus fidi pro grandaj interesoj! Sed kiu apud la hejma kameno estas nur tro ofte peza,
 
 malvarma kolono, malĝojiga kaj mislokita!
 
 ”ĉi tiu familia ĉambro ne estas lia amata sfero,” mi pensis,
 
-”la himalaja montaro, la arbaretoj de la kafroj, eĉ la pestvizi-
-
-tata, malbeninda marbordo de Gvineo estus pli taŭga por li.
+”la himalaja montaro, la arbaretoj de la kafroj, eĉ la pestvizitata, malbeninda marbordo de Gvineo estus pli taŭga por li.
 
 Li abomenas ripozon en la familia rondo, ĉar ĝi ne estas lia
 
@@ -16407,9 +13107,7 @@ povas bone elmontriĝi. En bataladoj kaj danĝero, kie kuraĝo
 
 estas bezonata kaj energio estas ekzercata kaj kie la forto
 
-povas esti hardita — tie li parolos kaj agos kiel ĉefo, kiel kon-
-
-dukisto! Apud ĉi tiu kameno tamen ĝojema infano venkoba-
+povas esti hardita — tie li parolos kaj agos kiel ĉefo, kiel kondukisto! Apud ĉi tiu kameno tamen ĝojema infano venkoba-
 
 tus lin. Li prave elektis la oficon de misiisto — nun mi tion
 
@@ -16423,12 +13121,7 @@ Karlo ĝoje ekbojis. Mi kuris eksteren. Estis jam mallume, sed
 
 klare mi aŭdis la rulbruon de la radoj. Hannah rapide bruligis
 
-lanternon. La veturilo haltis antaŭ la kradpordego. La vetu-
-
-rigisto malfermis la veturilpordeton; unua eliris bone kona-
-
-
-JANE EYRE
+lanternon. La veturilo haltis antaŭ la kradpordego. La veturigisto malfermis la veturilpordeton; unua eliris bone kona-
 
 
 ta figuro, poste la dua. Sammomente mia vizaĝo estis sub iliaj
@@ -16445,35 +13138,23 @@ kaj rapidis en la domon, kiam mi prijesis iliajn demandojn.
 
 Ili preskaŭ malsaniĝis pro la longa vojaĝo en la veturilo kaj
 
-pro la malbona vojo de Whitcross; iliaj membroj preskaŭ rigi-
+pro la malbona vojo de Whitcross; iliaj membroj preskaŭ rigidiĝis pro la malvarmega nokta aero; sed iom post iom iliaj
 
-diĝis pro la malvarmega nokta aero; sed iom post iom iliaj
+vizaĝoj malrigidiĝis antaŭ la ĝoje flagranta fajro de la kameno. Dum la veturigisto kaj Hannah enportis la kofrojn, la fra-
 
-vizaĝoj malrigidiĝis antaŭ la ĝoje flagranta fajro de la kame-
-
-no. Dum la veturigisto kaj Hannah enportis la kofrojn, la fra-
-
-tinoj informiĝis pri St. John. Sammomente li eliris la famili-
-
-an ĉambron. Ambaŭ fratinoj ĉirkaŭbrakis lin. Al ĉiu li donis
+tinoj informiĝis pri St. John. Sammomente li eliris la familian ĉambron. Ambaŭ fratinoj ĉirkaŭbrakis lin. Al ĉiu li donis
 
 kvietan kison, diris kelkajn vortojn de bonveno, lasis paroli al
 
-si mallongan tempon kaj retiriĝis denove en la familian ĉam-
-
-bron kiel en sian rifugejon, post kiam li diris al la fratinoj, ke
+si mallongan tempon kaj retiriĝis denove en la familian ĉambron kiel en sian rifugejon, post kiam li diris al la fratinoj, ke
 
 ili ja baldaŭ ankaŭ iros tien.
 
-Mi estis bruliginta la kandelojn por konduki ambaŭ sup-
-
-ren, sed antaŭe Diana intencis direkti gastamajn ordonojn al
+Mi estis bruliginta la kandelojn por konduki ambaŭ supren, sed antaŭe Diana intencis direkti gastamajn ordonojn al
 
 la veturigisto; post kiam ili estis plenumitaj, ambaŭ sekvis
 
-min. Ili estis ravitaj pro la novaĵoj kaj ornamaĵoj de siaj ĉam-
-
-broj. ojege ili parolis pri la novaj fenestro-kurtenoj, pri la
+min. Ili estis ravitaj pro la novaĵoj kaj ornamaĵoj de siaj ĉambroj. ojege ili parolis pri la novaj fenestro-kurtenoj, pri la
 
 freŝaj tapiŝoj kaj la riĉe pentritaj porcelanaj vazoj. Mi sentis
 
@@ -16483,16 +13164,11 @@ kaj ke ĉio, kion mi estis farinta kontribuis al la granda ĉarmo
 
 de ilia ĝoja rehejmiĝo.
 
-La vespero estis belega. Miaj kuzinoj en sia ĝoja kaj eksci-
-
-tita agordo estis tiel elokventaj pri siaj sciigoj kaj informiĝoj,
+La vespero estis belega. Miaj kuzinoj en sia ĝoja kaj ekscitita agordo estis tiel elokventaj pri siaj sciigoj kaj informiĝoj,
 
 ke la silentemo de St. John per ili estis tute kovrita; li estis
 
 sincere ĝoja revidi siajn fratinojn, sed li ne povis simpatii kun
-
-
-JANE EYRE
 
 
 iliaj brua ĝojo kaj parolemo. La okazantaĵo de la tago — nome
@@ -16507,9 +13183,7 @@ grado de feliĉego estis atingita, ĉirkaŭ unu horon post la
 
 tetrinkado, ni subite aŭdis, ke iu frapas al la pordo. Hannah
 
-eniris kun la sciigo, ke malriĉa knabo venis en ĉi tiu nekuti-
-
-ma horo por peti sinjoron Rivers tuj iri al lia malsana patri-
+eniris kun la sciigo, ke malriĉa knabo venis en ĉi tiu nekutima horo por peti sinjoron Rivers tuj iri al lia malsana patri-
 
 no, kiu estis mortonta.
 
@@ -16531,19 +13205,13 @@ Sed li estis jam en la koridoro kaj surmetis la mantelon, li
 
 iris sen grumbloj, sen kontraŭstaro. Estis nun la naŭa horo,
 
-li sekve ne revenos antaŭ noktomezo. Revenante li estis mal-
+li sekve ne revenos antaŭ noktomezo. Revenante li estis malsata kaj ĝismorte laca; sed li aspektis pli feliĉa kaj pli kontenta
 
-sata kaj ĝismorte laca; sed li aspektis pli feliĉa kaj pli kontenta
-
-ol antaŭe. Li estis plenuminta devon, li estis kontraŭbatalin-
-
-ta grandan penon kaj elprovinta siajn energion kaj abnega-
+ol antaŭe. Li estis plenuminta devon, li estis kontraŭbatalinta grandan penon kaj elprovinta siajn energion kaj abnega-
 
 cion — sufiĉe, li estis pli kontenta pri si mem.
 
-Mi timis, ke la tuta sekvonta semajno provos lian pacien-
-
-con. Estis la semajno de kristnasko; neniu el ni komencis spe-
+Mi timis, ke la tuta sekvonta semajno provos lian paciencon. Estis la semajno de kristnasko; neniu el ni komencis spe-
 
 cialan laboron, sed ni pasigis la tempon en ĝojo kaj hejma
 
@@ -16551,12 +13219,7 @@ senzorgeco. La aero de la marĉo, la libereco de propra hejmo,
 
 la matenruĝo de feliĉo de la sendependeco: ĉio tio efikis je
 
-Diana kaj Maria kiel viviganta eliksiro; ili estis gajaj de mate-
-
-no ĝis tagmezo, de tagmezo ĝis vespero. Ili senhalte povis
-
-
-JANE EYRE
+Diana kaj Maria kiel viviganta eliksiro; ili estis gajaj de mateno ĝis tagmezo, de tagmezo ĝis vespero. Ili senhalte povis
 
 
 babiladi; kaj ilia sprita, proprece kerna konversacio havis por
@@ -16565,9 +13228,7 @@ mi tiel grandan ĉarmon, ke mi pli volonte partoprenis en ĝi
 
 aŭ aŭskultis ĝin, ol ĉiun alian amuzaĵon.
 
-St. John ne malaprobis nian viglecon, sed evitis ĝin per for-
-
-iro; nur malofte li estis hejme; lia preĝeja komunumo estis
+St. John ne malaprobis nian viglecon, sed evitis ĝin per foriro; nur malofte li estis hejme; lia preĝeja komunumo estis
 
 
 vasta, la komunumanoj loĝis dise, kaj lia taga tasko devigis lin
@@ -16588,9 +13249,7 @@ tion senvole; ĉar apenaŭ ŝi estis eliginta la demandon, ŝi faris
 
 movon kvazaŭ ŝi dezirus repreni ĝin.
 
-St. John havis libron en la mano, — li havis la malhejme-
-
-can kutimon legi dum la manĝoj — li fermis ĝin kaj rigardis
+St. John havis libron en la mano, — li havis la malhejmecan kutimon legi dum la manĝoj — li fermis ĝin kaj rigardis
 
 antaŭ si, respondante:
 
@@ -16602,9 +13261,7 @@ kaj heredonto de sinjoro Frederic Granby. Hieraŭ ŝia patro
 
 sciigis tion al mi.”
 
-Liaj fratinoj rigardis sin reciproke, poste min; ni ĉiuj rigar-
-
-dis lin. Li estis kvieta kiel marmoro.
+Liaj fratinoj rigardis sin reciproke, poste min; ni ĉiuj rigardis lin. Li estis kvieta kiel marmoro.
 
 ”Tiu geedziĝo okazos neatendite kaj rapide,” diris Diana,
 
@@ -16612,23 +13269,16 @@ dis lin. Li estis kvieta kiel marmoro.
 
 ”Nur du monatojn. En oktobro ili konatiĝis unu kun la alia
 
-dum balo en S… ĉiu prokrasto estas nenecesa, ĉar neniu mal-
-
-helpo sin prezentas, kaj la geedziĝo ŝajnas esti dezirinda ĉiu-
+dum balo en S… ĉiu prokrasto estas nenecesa, ĉar neniu malhelpo sin prezentas, kaj la geedziĝo ŝajnas esti dezirinda ĉiu-
 
 rilate. Ili geedziĝos tuj kiam la kastelo R, kiun sinjoro Frederic
 
 cedos al ili, estos preta por ilia akcepto.”
 
 
-JANE EYRE
-
-
 Kiam post tiu sciigo, mi por la unua fojo revidis St. John,
 
-mi tre deziris demandi lin, ĉu tiu okazontaĵo faris lin malfeli-
-
-ĉa. Sed li ŝajnis tiel malmulte bezoni tiun simpatipruvon, ke
+mi tre deziris demandi lin, ĉu tiu okazontaĵo faris lin malfeliĉa. Sed li ŝajnis tiel malmulte bezoni tiun simpatipruvon, ke
 
 mi ne diris mian demandon, sed kontraŭe mi sentis honton
 
@@ -16648,9 +13298,7 @@ post kiam li rekonis min kiel sian parencinon kaj loĝis kun mi
 
 en la sama domo, mi sentis, ke la distanco inter ni fariĝis pli
 
-granda, ol kiam li konis min kiel la instruistinon de la vilaĝ-
-
-lernejo. Memorante lian antaŭan intimecon, mi ne povis
+granda, ol kiam li konis min kiel la instruistinon de la vilaĝlernejo. Memorante lian antaŭan intimecon, mi ne povis
 
 kompreni lian retenemon.
 
@@ -16662,9 +13310,7 @@ diris:
 
 ”Vi vidas, Jane, ke la batalo estas finita kaj venkita.”
 
-Mirigite, ke li tiel subite alparolis min, mi ne povis tuj res-
-
-pondi.
+Mirigite, ke li tiel subite alparolis min, mi ne povis tuj respondi.
 
 Post mallonga hezito, mi respondis:
 
@@ -16681,9 +13327,6 @@ signifus? Neniam mi trafos en la okazon batali tiel la duan
 fojon. ĉi tiu konflikto decidis. Nun mia vojo kuŝas klara antaŭ
 
 mi. Mi dankas Dion pro tio!”
-
-
-JANE EYRE
 
 
 Dirinte tion, li ree dronis en sia silentado kaj sin okupis
@@ -16708,9 +13351,7 @@ super ia mistika scienco; mi kredas, ke ĝi estis orienta lingvo,
 
 kies studo ŝajnis al li necesa por la plenumo de liaj planoj.
 
-Kiam li, tiel droninta en siaj studoj, sidis ĉe la kutima fene-
-
-stro, li ŝajnis esti tre kvieta; sed liaj bluaj okuloj havis propre-
+Kiam li, tiel droninta en siaj studoj, sidis ĉe la kutima fenestro, li ŝajnis esti tre kvieta; sed liaj bluaj okuloj havis propre-
 
 can kutimon leviĝi de la fremda gramatiko; ili tiam ŝvebis
 
@@ -16718,9 +13359,7 @@ super ni, siaj samstudantinoj, kaj ofte restis super ni kelkan
 
 tempon kvazaŭ por fikse ekzameni nin; sed se ni renkontis
 
-lian rigardon, tiam same subite ĝi returnis sin al la gramati-
-
-ko; tamen ĉiam denove ili sin direktis al nia tablo. Mirigite mi
+lian rigardon, tiam same subite ĝi returnis sin al la gramatiko; tamen ĉiam denove ili sin direktis al nia tablo. Mirigite mi
 
 demandis al mi, kion tio signifas. Ankaŭ min mirigis la regula
 
@@ -16728,35 +13367,24 @@ kontenteco, kiun li ĉiam montris ĉe la sama okazo, nome ĉe
 
 mia ĉiusemajna vizito al la lernejo de Morton, kvankam ĝi
 
-ŝajnis al mi tre malgrava. Sed tiu regula kontenteco pligran-
-
-digis mian miron, kiam la vetero estis malbona, aŭ kiam
+ŝajnis al mi tre malgrava. Sed tiu regula kontenteco pligrandigis mian miron, kiam la vetero estis malbona, aŭ kiam
 
 neĝis, pluvis aŭ ventegis, kaj kiam liaj fratinoj petegis min
 
-resti hejme, ke li ĉiam kaj neŝanĝeble mokis ilian antaŭzor-
-
-gemon kaj instigis min sen indulgo kontraŭstari la elemen-
+resti hejme, ke li ĉiam kaj neŝanĝeble mokis ilian antaŭzorgemon kaj instigis min sen indulgo kontraŭstari la elemen-
 
 tojn.
 
 ”Jane ne estas la senenergiulino, kiun vi volas fari ŝin,” li
 
-tiam kutimis diri; ”ŝi povas elteni montaran venton kaj plu-
-
-vegon aŭ kelkajn neĝflokojn same bone kiel iu ajn el ni. ŝia
-
-
-JANE EYRE
+tiam kutimis diri; ”ŝi povas elteni montaran venton kaj pluvegon aŭ kelkajn neĝflokojn same bone kiel iu ajn el ni. ŝia
 
 
 korpostato estas ne nur sana, sed ankaŭ elasta kaj eltenas la
 
 ŝanĝojn de klimato pli bone ol multaj fortikuloj.”
 
-Kaj kiam mi poste revenis hejmen, ofte tre laca kaj turmen-
-
-tita de la vento aŭ malbona vetero, tiam mi ne kuraĝis plen-
+Kaj kiam mi poste revenis hejmen, ofte tre laca kaj turmentita de la vento aŭ malbona vetero, tiam mi ne kuraĝis plen-
 
 di, vidante, ke li ekkolerus pro mia plendado. Fortikeco ĉiam
 
@@ -16772,15 +13400,11 @@ sia orienta gramatiko, kies hieroglifojn li penis deĉifri. Kiam
 
 mi metis flanken mian tradukon kaj komencis skribekzercon,
 
-mi okaze rigardis lin kaj rimarkis, ke la gardemaj bluaj oku-
-
-loj ree estas direktataj sur min. Mi ne povas diri, kiel longe ili
+mi okaze rigardis lin kaj rimarkis, ke la gardemaj bluaj okuloj ree estas direktataj sur min. Mi ne povas diri, kiel longe ili
 
 jam traboris min kaj ekzamenis min de la kapo al la piedoj;
 
-ili estis tiel akraj kaj tamen tiel malvarmaj, ke sento de super-
-
-stiĉo min ekregis — estis al mi kvazaŭ mi estas en ĉambro de
+ili estis tiel akraj kaj tamen tiel malvarmaj, ke sento de superstiĉo min ekregis — estis al mi kvazaŭ mi estas en ĉambro de
 
 monstro.
 
@@ -16788,17 +13412,13 @@ monstro.
 
 ”Mi studas la germanan.”
 
-”Mi dezirus, ke vi anstataŭ la germanan studus la hindo-
-
-stanan.”
+”Mi dezirus, ke vi anstataŭ la germanan studus la hindostanan.”
 
 ”Jen vi ja ne estas serioza.”
 
 ”Tiel serioza, ke tio okazu; kaj mi diros al vi kial.”
 
-Tiam li klarigis al mi, ke ĝi estas la lingvo, kiun li estas stu-
-
-danta; ke li tamen jam forgesis pri la komencaj elementoj
+Tiam li klarigis al mi, ke ĝi estas la lingvo, kiun li estas studanta; ke li tamen jam forgesis pri la komencaj elementoj
 
 post kiam li enpenetris pli funden en la lingvon; ke estus al li
 
@@ -16809,9 +13429,6 @@ povus ripeti la elementojn, por ke ili en tiu maniero pli bone
 restu en lia memoro; ke li jam kelkan tempon hezitis, kiun li
 
 elektos kiel sian lernantinon: min aŭ siajn fratinojn, ke li fine
-
-
-JANE EYRE
 
 
 elektis min, rimarkante, ke el la trio mi pli longe eltenus ian
@@ -16840,43 +13457,27 @@ Mi trovis en li tre paciencan, indulgan, tamen severan
 
 mastron, li atendis de mi grandan diligentecon; kaj kiam mi
 
-plenumis lian atendon, li en sia propreca maniero plene koni-
-
-gis al mi sian kontentecon. Iom post iom li akiris super mi ian
+plenumis lian atendon, li en sia propreca maniero plene konigis al mi sian kontentecon. Iom post iom li akiris super mi ian
 
 influon, kiu rabis al mi la liberecon pri miaj pensoj kaj volo.
 
-Liaj atentoj kaj laŭdoj pli multe efikis je mi ol lia indiferente-
-
-co. Mi ne povis plu senĝene ridi kaj paroli, kiam li ĉeestis, ĉar
+Liaj atentoj kaj laŭdoj pli multe efikis je mi ol lia indiferenteco. Mi ne povis plu senĝene ridi kaj paroli, kiam li ĉeestis, ĉar
 
 tede ĝenanta instinkto igis senti, ke ĉio vivoplena (almenaŭ
 
 ĉe mi) estas al li malagrabla. Mi sciis bone, ke li ŝatas nur
 
-seriozan animstaton kaj okupiĝon, ke estas al mi vane klopo-
-
-di ion kontraŭan en lia ĉeesto. Min regis kvazaŭ glacia sorĉo.
+seriozan animstaton kaj okupiĝon, ke estas al mi vane klopodi ion kontraŭan en lia ĉeesto. Min regis kvazaŭ glacia sorĉo.
 
 Kiam li diris: ”Iru”, tiam mi iris. Kiam li diris: ”Venu”, tiam mi
 
-venis. ”Faru tion”, tiam mi obeis. Sed mi ne amis tiun sklavec-
-
-on. Eĉ mi ofte dezirus tutkore, ke li estus daŭriginta tute min
+venis. ”Faru tion”, tiam mi obeis. Sed mi ne amis tiun sklavecon. Eĉ mi ofte dezirus tutkore, ke li estus daŭriginta tute min
 
 ne atenti.
 
-Iun vesperon, kiam liaj fratinoj kaj mi estis irontaj por dor-
+Iun vesperon, kiam liaj fratinoj kaj mi estis irontaj por dormi, li kisis ambaŭ laŭ sia kutimo; al mi ankaŭ laŭkutime li
 
-mi, li kisis ambaŭ laŭ sia kutimo; al mi ankaŭ laŭkutime li
-
-etendis la manon. Diana, okaze estante en la plej petola hum-
-
-
-JANE EYRE
-
-
-oro (ŝi tute ne submetis sin al lia volo kiel mi, ĉar ŝia volo en
+etendis la manon. Diana, okaze estante en la plej petola humoro (ŝi tute ne submetis sin al lia volo kiel mi, ĉar ŝia volo en
 
 kontraŭa direkto estis same forta kiel lia) ekkriis:
 
@@ -16888,19 +13489,13 @@ pritraktas ŝin kiel tian; vi ankaŭ ŝin kisu!”
 
 malagrable konfuzita. Kaj dum mi sentis tion, St. John klinis
 
-la kapon, lia greka vizaĝo estis tuŝonta mian, liaj okuloj ser-
+la kapon, lia greka vizaĝo estis tuŝonta mian, liaj okuloj serĉis miajn — li kisis min. Reale ne ekzistas marmoraj aŭ gla-
 
-ĉis miajn — li kisis min. Reale ne ekzistas marmoraj aŭ gla-
-
-ciaj kisoj, alie mi dirus, ke la kareso de mia spirita nevo apar-
-
-tenus al unu el tiuj specoj, sed eble ekzistas eksperimentkisoj
+ciaj kisoj, alie mi dirus, ke la kareso de mia spirita nevo apartenus al unu el tiuj specoj, sed eble ekzistas eksperimentkisoj
 
 — kaj lia estis eksperimentkiso. Doninte ĝin al mi li rigardis
 
-min por ekzameni la efikon; ĝi ne estis tre frapanta; tre cer-
-
-te mi ne ruĝiĝis; eble mi iom paliĝis, ĉar mi sentis tiun kison
+min por ekzameni la efikon; ĝi ne estis tre frapanta; tre certe mi ne ruĝiĝis; eble mi iom paliĝis, ĉar mi sentis tiun kison
 
 kiel sigelon sur miaj katenoj. Poste li neniam plu preterlasis
 
@@ -16924,18 +13519,11 @@ ia alto, ĝis kiu mi ne povis leviĝi; ĉiuhore mi ellaciĝis atingi
 
 nivelon, kiun li tiel neatingeble alte estis metinta. Kaj tio estis
 
-same neebla kiel klopodi ŝanĝi miajn malregulajn vizaĝtraj-
-
-tojn laŭ lia klasika specimeno, doni al miaj ŝanĝeble verdaj
+same neebla kiel klopodi ŝanĝi miajn malregulajn vizaĝtrajtojn laŭ lia klasika specimeno, doni al miaj ŝanĝeble verdaj
 
 okuloj la marbluan koloron kaj solenan pompon de liaj.
 
-Tamen ne nur lia supera influo min katenis por tiu mo-
-
-mento. Dum kelka tempo ne nur mi aspektis malgaje, sed eĉ
-
-
-JANE EYRE
+Tamen ne nur lia supera influo min katenis por tiu momento. Dum kelka tempo ne nur mi aspektis malgaje, sed eĉ
 
 
 konsumanta ĉagreno mordetis mian koron kaj sufokis mian
@@ -16946,19 +13534,13 @@ Eble, mia leganto, vi kredas, ke mi forgesis pri sinjoro
 
 Rochester, — post kiam ŝanĝiĝis mia sorto kaj aliiĝis mia
 
-ĉirkaŭaĵo. Eĉ ne unu momenton mi forgesis pri li. Mia memo-
-
-ro al li restis tia sama; ĉar ne estis nebulo, kiu povis forpeli
+ĉirkaŭaĵo. Eĉ ne unu momenton mi forgesis pri li. Mia memoro al li restis tia sama; ĉar ne estis nebulo, kiu povis forpeli
 
 helan sunbrilon, ĝi ne estis bildo desegnita en la sablo kaj kiu
 
-povis esti forblovata de ventego. i estis nomo, kiu per bron-
+povis esti forblovata de ventego. i estis nomo, kiu per bronza grifelo estis skribita sur tablo, kiu daŭros same longe kiel
 
-za grifelo estis skribita sur tablo, kiu daŭros same longe kiel
-
-la marmoro, kaj kiu portis liajn trajtojn. ĉie min sekvis la so-
-
-piro ekscii, kio el li estis fariĝinta. Kiam mi estis ankoraŭ en
+la marmoro, kaj kiu portis liajn trajtojn. ĉie min sekvis la sopiro ekscii, kio el li estis fariĝinta. Kiam mi estis ankoraŭ en
 
 Morton, mi ĉiuvespere eniris mian loĝejon por pensi pri tio,
 
@@ -16972,17 +13554,13 @@ testamento, mi estis demandinta, ĉu eble li scias ion pri la
 
 sanstato kaj la restadejo de sinjoro Rochester; sed kiel St.
 
-John jam konjektis, Briggs sciis nenion pri ĉio, rilatanta sin-
-
-joron Rochester. Poste mi skribis al sinjorino Fairfax petegan-
+John jam konjektis, Briggs sciis nenion pri ĉio, rilatanta sinjoron Rochester. Poste mi skribis al sinjorino Fairfax petegan-
 
 te ŝin informi min pri tio. Kun certeco mi atendis atingi per
 
 tio mian celon; mi estis konvinkita ricevi tujan respondon. Mi
 
-tial estis mirigita, kiam en la daŭro de du semajnoj neniu sci-
-
-igo venis, sed post paso de du monatoj, en kiuj la poŝtisto ĉiu-
+tial estis mirigita, kiam en la daŭro de du semajnoj neniu sciigo venis, sed post paso de du monatoj, en kiuj la poŝtisto ĉiu-
 
 tage venis, ne portante al mi eĉ unu leteron, min ekregis
 
@@ -16999,16 +13577,11 @@ kelkajn fojojn kaj fine tute estingiĝis. Eĉ ne unu linion mi
 ricevis, eĉ ne unu vorton! Kiam pasis duona jaro en vana
 
 
-JANE EYRE
-
-
 atendado, formortis en mi ĉiu espero, kaj ĉirkaŭ mi estiĝis
 
 mallumo.
 
-ĉirkaŭe floris ĉarma printempo; min ĝi ne ĝojigis. La so-
-
-mero alproksimiĝis. Diana faris sian eblon por ĝojigi min; ŝi
+ĉirkaŭe floris ĉarma printempo; min ĝi ne ĝojigis. La somero alproksimiĝis. Diana faris sian eblon por ĝojigi min; ŝi
 
 diris, ke mi aspektas malsana kaj proponis, ke ŝi akompanu
 
@@ -17034,9 +13607,7 @@ mateno, ke venis por mi letero kaj kiam mi malsupreniris por
 
 akcepti ĝin, preskaŭ certa, ke fine la tiel longe aspiritaj sciigoj
 
-atingis min, mi trovis nur tre malgravan aferleteron de sin-
-
-joro Briggs. La forta bato elpremis larmojn el miaj okuloj kaj
+atingis min, mi trovis nur tre malgravan aferleteron de sinjoro Briggs. La forta bato elpremis larmojn el miaj okuloj kaj
 
 dum mi sidis kurbiĝinta super la nekompreneblaj literoj kaj
 
@@ -17060,13 +13631,7 @@ montris miregon pro mia animstato kaj eĉ ne informiĝis pri
 
 ”Jane, ni atendos kelkajn minutojn ĝis vi regis vin.”
 
-Dum mi kiel eble plej rapide klopodis subpremi mian emo-
-
-
-JANE EYRE
-
-
-cion, li kviete kaj pacience restis sidanta, klinita super sia
+Dum mi kiel eble plej rapide klopodis subpremi mian emocion, li kviete kaj pacience restis sidanta, klinita super sia
 
 pupitro kiel kuracisto, kiu per la okulo de la scienco atendis
 
@@ -17074,9 +13639,7 @@ la jam longe atenditan, plene klarigitan krizon en la malsano
 
 de paciento. Kiam mi ĉesis singulti kaj sekigis miajn okulojn
 
-kaj iom murmuris, ke tiun matenon mi sentis min malsane-
-
-ta, mi denove komencis mian laboron kaj klopodis fini ĝin.
+kaj iom murmuris, ke tiun matenon mi sentis min malsaneta, mi denove komencis mian laboron kaj klopodis fini ĝin.
 
 Poste St. John metis flanken miajn librojn, fermis sian
 
@@ -17086,25 +13649,17 @@ pupitron kaj diris:
 
 ”Mi vokos Dianan kaj Marian.”
 
-”Ne. ĉi tiun matenon mi bezonas nur unu akompananti-
+”Ne. ĉi tiun matenon mi bezonas nur unu akompanantinon, kaj tio estu vi. Vestu vin, eliru tra la kuireja pordo, eni-
 
-non, kaj tio estu vi. Vestu vin, eliru tra la kuireja pordo, eni-
-
-ru la vojon al Marsh Glen*, post malmultaj momentoj mi es-
-
-tos apud vi.”
+ru la vojon al Marsh Glen*, post malmultaj momentoj mi estos apud vi.”
 
 Kompromison mi ne konis. Neniam en mia vivo, kiam mi
 
 devis agi kontraŭ firmaj karakteroj, kiuj staris malflekseblaj
 
-antaŭ mi, mi konis mezvojon inter plena submeto kaj obsti-
+antaŭ mi, mi konis mezvojon inter plena submeto kaj obstina kontraŭstaro. Mi ĉiam rimarkis kiel la unua, kelkfoje kun
 
-na kontraŭstaro. Mi ĉiam rimarkis kiel la unua, kelkfoje kun
-
-vulkana fortegeco transiris en la duan; kaj ĉar en tiu momen-
-
-to neniu el la cirkonstancoj, kaj ankaŭ ne mia animstato estis
+vulkana fortegeco transiris en la duan; kaj ĉar en tiu momento neniu el la cirkonstancoj, kaj ankaŭ ne mia animstato estis
 
 klinita al kontraŭstaro, mi sekvis obee la ordonojn de St. John
 
@@ -17114,9 +13669,7 @@ vojon al la ravino ĉe lia flanko.
 
 La vento venis el la okcidento kaj trans la montetojn, ĝi
 
-estis plena de odoro de erikejo kaj kanoj; la ĉielo estis senma-
-
-kule blua kaj la rivereto, rapidanta tra la ravino kaj alta pro
+estis plena de odoro de erikejo kaj kanoj; la ĉielo estis senmakule blua kaj la rivereto, rapidanta tra la ravino kaj alta pro
 
 la multaj pluvadoj de la pasinta printempo, klare fluis preter
 
@@ -17127,22 +13680,15 @@ nian vojon kaj forlasinte la vojeton, ni venis sur delikatan,
 * Glen = krutvalo aŭ ravino
 
 
-JANE EYRE
-
-
 muskan, smeralde verdan grundon, sur kiu floris tie kaj alie
 
-blankaj kaj stelformaj flavaj floroj. Ni estis nun tute ĉirkaŭi-
-
-taj de montetoj, ĉar ĝis iliaj suproj la ravino sin etendis.
+blankaj kaj stelformaj flavaj floroj. Ni estis nun tute ĉirkaŭitaj de montetoj, ĉar ĝis iliaj suproj la ravino sin etendis.
 
 ”ĉi tie ni volas ripozi,” diris St. John, kiam ni atingis la
 
 unuajn postrestintojn de tuta aro da ŝtonegoj, kiuj protektis
 
-iaspecan vojeton, al kies alia ekstremo la rivereto formis pro-
-
-fundan akvofalon kaj kie kelkajn metrojn pli for la monto
+iaspecan vojeton, al kies alia ekstremo la rivereto formis profundan akvofalon kaj kie kelkajn metrojn pli for la monto
 
 estis senigita de monto-musko kaj floroj kaj kie floris nur
 
@@ -17154,9 +13700,7 @@ Mi sidiĝis; St. John staris ĉe mia flanko. Li rigardis supren
 
 al la intermonto kaj malsupren en la ravinon; liaj rigardoj
 
-ŝvebis for kun la rivereto kaj returniĝis por vagi trans la sen-
-
-nuban ĉielon, kiu donis al la akvo ĝian koloron. Poste li
+ŝvebis for kun la rivereto kaj returniĝis por vagi trans la sennuban ĉielon, kiu donis al la akvo ĝian koloron. Poste li
 
 demetis sian ĉapelon por ke la vento ludu per liaj haroj kaj
 
@@ -17191,24 +13735,13 @@ al orienta Hindujo.”
 servisto de ne erarema Sinjoro. Mi ne eniras la vivon sub
 
 
-JANE EYRE
+homa gvidado, ne sub gvidado, kiu estas submetita al erarplenaj leĝoj kaj al erarema perforto de miaj malfortaj kunhomoj,
 
+— mia Reĝo, mia Leĝdonanto, mia Gvidanto estas la ĉiupotenca, la Perfekta! Al mi ŝajnas tiel strange, ke ne ĉiuj, kiuj ĉir-
 
-homa gvidado, ne sub gvidado, kiu estas submetita al erarple-
+kaŭas min, mortas pro la dezirego ariĝi sub la sama standardo — por plenumi la saman laboron.”
 
-naj leĝoj kaj al erarema perforto de miaj malfortaj kunhomoj,
-
-— mia Reĝo, mia Leĝdonanto, mia Gvidanto estas la ĉiupo-
-
-tenca, la Perfekta! Al mi ŝajnas tiel strange, ke ne ĉiuj, kiuj ĉir-
-
-kaŭas min, mortas pro la dezirego ariĝi sub la sama standar-
-
-do — por plenumi la saman laboron.”
-
-”Ne ĉiuj havas vian forton, kaj estus malsaĝe, se la mal-
-
-fortuloj volus iri kun la fortuloj.”
+”Ne ĉiuj havas vian forton, kaj estus malsaĝe, se la malfortuloj volus iri kun la fortuloj.”
 
 ”Pri la malfortuloj mi ne parolas kaj al ili mi ne pensas; mi
 
@@ -17216,9 +13749,7 @@ turnas min nur al tiuj, kiuj estas indaj kaj kapablaj plenumi
 
 tiun laboron.”
 
-”Ilia nombro estas nur malgranda, kaj estas malfacile tro-
-
-vi ilin.”
+”Ilia nombro estas nur malgranda, kaj estas malfacile trovi ilin.”
 
 ”Vi prave parolas; sed se oni ne trovis ilin, tiam ĝi estas nia
 
@@ -17242,25 +13773,16 @@ klarigus kaj rompus la sorĉon.
 
 ”Kaj kion via koro al vi diras?” demandis St. John.
 
-”Mia koro estas muta — mia koro estas muta,” mi respon-
+”Mia koro estas muta — mia koro estas muta,” mi respondis tremante.
 
-dis tremante.
-
-”Tiam mi devas paroli anstataŭ ĝi,” daŭrigis li per sia pro-
-
-funda senkompata voĉo. ”Jane, iru kun mi al Hindujo! Iru kun
+”Tiam mi devas paroli anstataŭ ĝi,” daŭrigis li per sia profunda senkompata voĉo. ”Jane, iru kun mi al Hindujo! Iru kun
 
 mi kiel mia helpantino, mia kunlaborantino.”
 
 La ravino kaj la ĉielo ŝanceliĝis; la monteto sin levis kaj sin
 
 
-JANE EYRE
-
-
-mallevis! Estis al mi, kvazaŭ mi aŭdis voĉon de la ĉielo — kva-
-
-zaŭ estus aperinta antaŭ mi sendito kiel tiu de Macedonujo,
+mallevis! Estis al mi, kvazaŭ mi aŭdis voĉon de la ĉielo — kvazaŭ estus aperinta antaŭ mi sendito kiel tiu de Macedonujo,
 
 kiu kriis: ”Venu kaj helpu al ni!” Sed mi ne estis apostolo —
 
@@ -17268,9 +13790,7 @@ mi ne povis vidi la heroldon — mi ne povis aŭdi lian vokadon.
 
 ”Ho, St. John!” mi kriis. ”Kompatu min!”
 
-Sed mi petis al viro, kiu ne konis kompaton nek konscienc-
-
-riproĉon, kiam li kredis plenumi sian devon.
+Sed mi petis al viro, kiu ne konis kompaton nek konsciencriproĉon, kiam li kredis plenumi sian devon.
 
 Li parolis plue:
 
@@ -17294,32 +13814,21 @@ Li estis preparinta sin al tiuj protestoj; ili ne emociis lin.
 
 Vere, kiam li dorsapogis sin al ŝtonego kaj krucis la brakojn
 
-sur la brusto kaj rigardis min, tiam mi vidis je liaj vizaĝespri-
-
-moj, ke li estas preparita al longa kaj forta kontraŭstaro, kaj
+sur la brusto kaj rigardis min, tiam mi vidis je liaj vizaĝesprimoj, ke li estas preparita al longa kaj forta kontraŭstaro, kaj
 
 ke li provizis sin per multa pacienco, kiu sufiĉos ĝis la fino —
 
 tamen ke li decidis, ke tiu fino estos lia venko.
 
-”Humileco, Jane, estas la fundamento de ĉiuj kristanaj vir-
+”Humileco, Jane, estas la fundamento de ĉiuj kristanaj virtoj,” li diris, ”vi pravas dirante, ke vi ne taŭgas por tiu labo-
 
-toj,” li diris, ”vi pravas dirante, ke vi ne taŭgas por tiu labo-
-
-ro. Kiu en vero taŭgas por ĝi? Aŭ kiu, estante vere vokita, kre-
-
-dis sin inda je tio? Ekzemple, mi mem estas nur polvo kaj cin-
+ro. Kiu en vero taŭgas por ĝi? Aŭ kiu, estante vere vokita, kredis sin inda je tio? Ekzemple, mi mem estas nur polvo kaj cin-
 
 dro. Kun la apostolo Paŭlo mi nomas min la plej granda el
 
-ĉiuj pekuloj. Sed mi ne permesas al tiu konscio pri mia pro-
-
-pra humileco, ke ĝi submetu aŭ timigu min. Mi konas mian
+ĉiuj pekuloj. Sed mi ne permesas al tiu konscio pri mia propra humileco, ke ĝi submetu aŭ timigu min. Mi konas mian
 
 kondukanton: mi scias, ke li estas same justa kiel ĉiopotenca;
-
-
-JANE EYRE
 
 
 kaj elektante malfortulon por plenumi grandan taskon, li fine
@@ -17332,9 +13841,7 @@ rokon de la jarmiloj; ne dubu, sed estu certa, ke ĝi kapablos
 
 porti la ŝarĝon de viaj homaj malfortecoj.”
 
-”Mi komprenas nenion de la vivo de misiisto; mi ne pri-
-
-pensis la laboron de iu tia.”
+”Mi komprenas nenion de la vivo de misiisto; mi ne pripensis la laboron de iu tia.”
 
 ”En tio, mi povus instrui vin malgraŭ mia humileco; de
 
@@ -17352,27 +13859,19 @@ plu bezonas mian helpon.”
 
 scias nenion. Dum vi tiel parolas al mi, nenio en mi ekscitiĝas,
 
-tute nenio. Mi sentas nenion — miaj pulsoj ne batas pli rap-
+tute nenio. Mi sentas nenion — miaj pulsoj ne batas pli rapide, neniu interna voĉo konsilas aŭ kuraĝigas min. Ho, mi
 
-ide, neniu interna voĉo konsilas aŭ kuraĝigas min. Ho, mi
-
-dezirus, ke mi povus montri al vi, kiel mia animo en ĉi tiu mo-
-
-mento estas simila al malluma malliberejo, sur kies terura
+dezirus, ke mi povus montri al vi, kiel mia animo en ĉi tiu momento estas simila al malluma malliberejo, sur kies terura
 
 planko enradikiĝas nur unu turmentiga frukto — la frukto
 
-esti konvinkita de vi pri klopodo, kiun mi neniam povus ple-
-
-numi!”
+esti konvinkita de vi pri klopodo, kiun mi neniam povus plenumi!”
 
 ”Mi havas respondon por vi — aŭskultu. De post nia unua
 
 renkonto mi severe ekzamenis vin. Dek monatojn mi faris vin
 
-mia studobjekto. Per malgrandaj diversaj elprovoj mi ekza-
-
-menis vin — kaj kion mi spertis kaj vidis? Mi trovis, ke vi en
+mia studobjekto. Per malgrandaj diversaj elprovoj mi ekzamenis vin — kaj kion mi spertis kaj vidis? Mi trovis, ke vi en
 
 la vilaĝa lernejo akurate kaj honeste povis plenumi laboron,
 
@@ -17383,34 +13882,21 @@ vi plenumis ĝin taŭge kaj lerte; dum vi regis, vi povis ankoraŭ
 konkeri al vi korojn. Per la kvieteco, kun kiu vi eksciis, ke
 
 
-JANE EYRE
-
-
 subite vi fariĝis riĉa, mi ekkonis vian karakteron, kiu estas
 
 senigita de la malvirto de Demas, — riĉeco ne regis vin. En la
 
-decida servemo, per kiu vi dividis vian riĉecon en kvar par-
-
-tojn, tenante por vi mem nur unu parton kaj lasante la aliajn
+decida servemo, per kiu vi dividis vian riĉecon en kvar partojn, tenante por vi mem nur unu parton kaj lasante la aliajn
 
 al la postulo de tute abstrakta juĝdecido, mi ekkonis animon,
 
-en kiu ardis la fajro de dankemo kaj de oferemo. En la cede-
+en kiu ardis la fajro de dankemo kaj de oferemo. En la cedemo, laŭ kiu vi forlasis studadon, kiu interesis vin, kaj komen-
 
-mo, laŭ kiu vi forlasis studadon, kiu interesis vin, kaj komen-
+cis alian, nur ĉar ĝi interesis min; en la nelacigebla diligenteco, per kiu vi ĝis nun persistas en tio — en la firma, neŝance-
 
-cis alian, nur ĉar ĝi interesis min; en la nelacigebla diligente-
+lebla energio kaj egala humoro, per kiu vi venkis la malfacilaĵojn de tiu studado — en ĉio tio mi ekkonis la perfektecon
 
-co, per kiu vi ĝis nun persistas en tio — en la firma, neŝance-
-
-lebla energio kaj egala humoro, per kiu vi venkis la malfaci-
-
-laĵojn de tiu studado — en ĉio tio mi ekkonis la perfektecon
-
-de la ecoj, kiujn mi serĉas. Jane, vi estas dolĉanima, diligen-
-
-ta, altruisma, fidela, konstanta kaj kuraĝa; tre amriĉa kaj tre
+de la ecoj, kiujn mi serĉas. Jane, vi estas dolĉanima, diligenta, altruisma, fidela, konstanta kaj kuraĝa; tre amriĉa kaj tre
 
 heroa; ĉesu malfidi vin mem — mi fidas vin senkondiĉe. Kiel
 
@@ -17424,9 +13910,7 @@ pli ĉirkaŭ mi; la konv venis per malrapidaj, certaj paŝoj.
 
 Eĉ se mi malfermus miajn okulojn — ĉi tiuj delikataj lastaj
 
-vortoj sufiĉis por liberigi al mi la vojon. Mia tasko, kiu kom-
-
-ence ŝajnis al mi tiel nedifinita, tiel senespere implektita, estis
+vortoj sufiĉis por liberigi al mi la vojon. Mia tasko, kiu komence ŝajnis al mi tiel nedifinita, tiel senespere implektita, estis
 
 preninta difinitan formon sub lia mano, dum li parolis. Li
 
@@ -17434,20 +13918,13 @@ atendis respondon. Mi petis kvaronhoron por pripensi, antaŭ
 
 ol li denove parolos.
 
-”Volonte,” li respondis, kaj forlasante la rokon, li iris kel-
-
-kajn paŝojn supren en la direkto al la ravino, sin ĵetis tie sur
+”Volonte,” li respondis, kaj forlasante la rokon, li iris kelkajn paŝojn supren en la direkto al la ravino, sin ĵetis tie sur
 
 la erikojn kaj restis kuŝanta senmove.
 
 ”Mi estas devigata konfesi, ke mi povus fari kaj plenumi,
 
-kion li deziras de mi,” mi diris al mi — ”nome se mi ne mor-
-
-tos. Sed mi sentas, ke mi ne longe vivos sub la hinda suno. —
-
-
-JANE EYRE
+kion li deziras de mi,” mi diris al mi — ”nome se mi ne mortos. Sed mi sentas, ke mi ne longe vivos sub la hinda suno. —
 
 
 Kio poste? Tio preskaŭ ne tuŝas lin! Kiam la tempo de mia
@@ -17468,9 +13945,7 @@ sen li. Nenio estas pli malsaĝa, nenio estas pli malforta, pli
 
 senutila, ol mizere tiel vivi de unu tago en alian; estus al mi
 
-kvazaŭ ie mi atendus ankoraŭ neeblan ŝanĝon de la cirkon-
-
-stancoj, kiu povus denove unuigi min kun li. Kompreneble mi
+kvazaŭ ie mi atendus ankoraŭ neeblan ŝanĝon de la cirkonstancoj, kiu povus denove unuigi min kun li. Kompreneble mi
 
 devis serĉi alian intereson en la vivo anstataŭ tio, kion mi
 
@@ -17478,9 +13953,7 @@ estis perdinta, kiel iam diris St. John, kaj ĉu la tasko, kiun li
 
 nun metos sur min, vere ne estas la plej glororiĉa, kiun Dio
 
-povas surmeti kaj homo povas plenumi? ĉu ĝi kun siaj nob-
-
-laj zorgoj kaj altaj sekvoj, ne plej bone taŭgas por plenigi la
+povas surmeti kaj homo povas plenumi? ĉu ĝi kun siaj noblaj zorgoj kaj altaj sekvoj, ne plej bone taŭgas por plenigi la
 
 malplenan lokon, kiun ruinigita espero kaj mortinta amo
 
@@ -17492,26 +13965,17 @@ mi fordonos pli ol la duonon de mia propra memo; irante al
 
 Hindujo mi iros renkonte al frutempa morto. Kaj kiel pasos
 
-la tempo inter mia adiaŭo al Anglujo kaj mia tombo en Hin-
-
-dujo? Ho! tion mi scias tre bone! Ankaŭ tio kuŝas klare antaŭ
+la tempo inter mia adiaŭo al Anglujo kaj mia tombo en Hindujo? Ho! tion mi scias tre bone! Ankaŭ tio kuŝas klare antaŭ
 
 miaj okuloj! Streĉante ĉiujn miajn fortojn ĝis doloros miaj
 
-membroj kaj ŝiriĝos miaj nervoj, tiam mi plenumos la dezi-
-
-rojn de St. John ĝis iliaj malgrandaj detaloj. Irante kun li —
+membroj kaj ŝiriĝos miaj nervoj, tiam mi plenumos la dezirojn de St. John ĝis iliaj malgrandaj detaloj. Irante kun li —
 
 oferi min tiel, kiel li deziras, mi metos ĉion sur la altaron —
 
 koron, vivoforton, tiam la ofero estos kompleta. Neniam li
 
-amus min; sed li estos kontenta je mi. Mi montrus al li forte-
-
-con kaj energion, helpfontojn, kies ekzistadon li neniam
-
-
-JANE EYRE
+amus min; sed li estos kontenta je mi. Mi montrus al li fortecon kaj energion, helpfontojn, kies ekzistadon li neniam
 
 
 supozis. Jes! mi povas same streĉite labori kiel li, kaj kun la
@@ -17524,9 +13988,7 @@ fakto — terura fakto. Kaj ĝuste tion li postulas, mi devos esti
 
 lia edzino; kaj por mi li ne havas pli multan inklinon de edzo
 
-ol tiuj malmolaj ŝtonegoj, trans kiujn la rivero sin ĵetas mal-
-
-supren en la abismon.
+ol tiuj malmolaj ŝtonegoj, trans kiujn la rivero sin ĵetas malsupren en la abismon.
 
 Li ŝatas min kiel soldato ŝatas bonan armilon — kaj tio
 
@@ -17558,31 +14020,20 @@ vizaĝo estis turnita al mi. Akre kaj atente liaj rigardoj estis
 
 fiksitaj sur mi. Li salte leviĝis kaj alproksimiĝis al mi.
 
-”Mi estas preta iri al Hindujo — se mi povos iri tien libe-
-
-re.”
+”Mi estas preta iri al Hindujo — se mi povos iri tien libere.”
 
 ”Tiu respondo bezonas komentarion; ĝi ne estas klara.”
 
-”is nun vi estis mia adoptita frato — mi via adoptita fra-
+”is nun vi estis mia adoptita frato — mi via adoptita fratino. Ni daŭrigu esti tiaj. Estas pli bone, se ni ne geedziĝos.”
 
-tino. Ni daŭrigu esti tiaj. Estas pli bone, se ni ne geedziĝos.”
-
-Li kapneis. ”En tiu okazo la adoptita gefrateco ne respon-
-
-dus sian celon. La afera estus alia, se vi estus mia vera frati-
+Li kapneis. ”En tiu okazo la adoptita gefrateco ne respondus sian celon. La afera estus alia, se vi estus mia vera frati-
 
 no: tiam mi irus kun vi kaj ne serĉus edzinon. En la nunaj
 
 
-JANE EYRE
-
-
 cirkonstancoj nia unuiĝo devas esti sanktigita kaj sigelita de
 
-la edziĝo, alie ĝi tute ne ekzistus. Praktikaj malhelpaĵoj kon-
-
-traŭas ĉiun alian planon. ĉu vi ne komprenas tion, Jane? Pri-
+la edziĝo, alie ĝi tute ne ekzistus. Praktikaj malhelpaĵoj kontraŭas ĉiun alian planon. ĉu vi ne komprenas tion, Jane? Pri-
 
 pensu nur momenton — via prudento kondukos vin.”
 
@@ -17606,19 +14057,13 @@ al Hindujo, ne forgesu tion — vi diris tion.”
 
 ”Kondiĉe.”
 
-”Bone — bone. Kontraŭ la ĉefafero — la forvojaĝo el An-
-
-glujo kun mi, la kunlaborado kun mi en mia estonta laboro
+”Bone — bone. Kontraŭ la ĉefafero — la forvojaĝo el Anglujo kun mi, la kunlaborado kun mi en mia estonta laboro
 
 — vi havas neniun malhelpon. Vi kvazaŭ jam metis la manon
 
-sur la plugilon; vi estas tro konstanta kaj persistema por re-
+sur la plugilon; vi estas tro konstanta kaj persistema por repreni vian konsenton. Vi bezonas nur fiksi la okulojn sur la
 
-preni vian konsenton. Vi bezonas nur fiksi la okulojn sur la
-
-celo, tio estas plenumi ĝis la fino la laboron de vi entrepreno-
-
-tan. Plisimpligu viajn tro komplikitajn interesojn: senton,
+celo, tio estas plenumi ĝis la fino la laboron de vi entreprenotan. Plisimpligu viajn tro komplikitajn interesojn: senton,
 
 pensojn, dezirojn, celon; kunfandu ilin en la solan intencon
 
@@ -17639,12 +14084,7 @@ Frostotremo regis min, dum li parolis; ĝis mia midolo mi
 sentis la influon — mi konsciis la povon, kiun li posedis super
 
 
-JANE EYRE
-
-
-mi. ”Ne serĉu en mi tian helpantinon, St. John! Serĉu edzi-
-
-non, kiu estas al vi pli inda ol mi.”
+mi. ”Ne serĉu en mi tian helpantinon, St. John! Serĉu edzinon, kiu estas al vi pli inda ol mi.”
 
 ”Pli inda je mia celo, vi volas diri — pli inda je mia ofico. Mi
 
@@ -17656,9 +14096,7 @@ edzinon por la misiisto.”
 
 ”Kaj mi estas inklina, doni al la misiisto miajn fortojn — ĉar
 
-jen ĉio, kion li deziras — sed ne min mem; tio ja signifus aldo-
-
-ni al la kerno la ŝelon kaj la ilekson. Li ne bezonas ilin — kaj
+jen ĉio, kion li deziras — sed ne min mem; tio ja signifus aldoni al la kerno la ŝelon kaj la ilekson. Li ne bezonas ilin — kaj
 
 tial mi volas konservi ilin.”
 
@@ -17676,9 +14114,7 @@ bezonas ĝin!”
 
 Mi ne povas ĵuri tion, mia kara leganto, ke en la tono en
 
-kiu mi diris la lastajn vortojn, kaj en la sento ĝin akompanan-
-
-ta, ne kuŝis iom da subpremita sarkasmo. is tiu tempo mi
+kiu mi diris la lastajn vortojn, kaj en la sento ĝin akompananta, ne kuŝis iom da subpremita sarkasmo. is tiu tempo mi
 
 timis St. John silente, ĉar mi ankoraŭ ne komprenis lin. Li
 
@@ -17686,9 +14122,7 @@ tenis min en stato de angoro, ĉar mi dubis pri li. is nun mi
 
 ne estis kapabla diri, kiom en li estis sankta kaj homa; sed ĉi
 
-tiu konferenco kondukis al malkaŝigo; la analizo de lia esta-
-
-ĵo plenumiĝis antaŭ miaj okuloj. Mi vidis liajn malfortecojn,
+tiu konferenco kondukis al malkaŝigo; la analizo de lia estaĵo plenumiĝis antaŭ miaj okuloj. Mi vidis liajn malfortecojn,
 
 mi komprenis ilin. Mi komprenis, ke ĉi tie sur la erikobedo,
 
@@ -17699,9 +14133,6 @@ viro, kiu eraris, kiel mi eraris. La vualo defalis de lia rigoreco
 kaj de lia despotismo. Kaj malkovrinte tiujn liajn ecojn, mi
 
 vidis lian malperfektecon kaj mi kuraĝiĝis. Mi staris antaŭ
-
-
-JANE EYRE
 
 
 egalulo — antaŭ homo, kun kiu mi povis disputi— kiun mi
@@ -17736,9 +14167,7 @@ tiu via Kreinto estos via plej alta feliĉego, via sola aspiro, kaj
 
 vidus, kian potencan forton ricevus niaj kunigitaj klopodoj
 
-per nia korpa kaj spirita geedziĝo — per tiu unuiĝo, kiu do-
-
-nas daŭran interkonsenton al destinoj kaj celoj de homaj
+per nia korpa kaj spirita geedziĝo — per tiu unuiĝo, kiu donas daŭran interkonsenton al destinoj kaj celoj de homaj
 
 kreitaĵoj —; kaj, dum mi transiras ĉiujn aliajn kapricojn, ĉiujn
 
@@ -17750,9 +14179,7 @@ rapidos por tuj efektivigi tiun unuiĝon!”
 
 ”ĉu vere?” mi demandis kaj rigardis liajn trajtojn, kiuj estis
 
-tiel belaj en sia harmonio, sed malofte timigaj pro sia severe-
-
-co; mi rigardis lian frunton, kiu estis tirana kaj potenca, sed
+tiel belaj en sia harmonio, sed malofte timigaj pro sia severeco; mi rigardis lian frunton, kiu estis tirana kaj potenca, sed
 
 ne sincera; liajn okulojn, kiuj estis lume brilaj kaj profundaj
 
@@ -17765,12 +14192,7 @@ neebla! Kiel lia helpantino, kamaradino, al tio mi konsentus!
 En tiuj lastaj ecoj mi irus kun li trans marojn, mi laborus kun
 
 
-JANE EYRE
-
-
-li en la aziaj dezertoj sub tropika suno, mi admirus lian for-
-
-ton, lian dediĉon, sindonon; mi eĉ instigus lin; mi vidus
+li en la aziaj dezertoj sub tropika suno, mi admirus lian forton, lian dediĉon, sindonon; mi eĉ instigus lin; mi vidus
 
 trankvile kaj senemocie lian neekstermeblan ambicion; mi
 
@@ -17778,9 +14200,7 @@ povus disigi la kristanon de la homo, mi povus altgrade estimi
 
 la unuan, kaj pardoni tutkore la alian. Sendube mi ofte kaj
 
-multe suferus, sed miaj koro kaj animo, mi mem estus libe-
-
-ra! Tiam mi ĉiam povus reiri al mia neĝenita memo, mi havus
+multe suferus, sed miaj koro kaj animo, mi mem estus libera! Tiam mi ĉiam povus reiri al mia neĝenita memo, mi havus
 
 ankoraŭ miajn nekatenitajn sentojn por la momentoj de
 
@@ -17796,15 +14216,11 @@ kiel lia edzino, ĉiam ĉe lia flanko, ĉiam subpremita — devigita
 
 ĉiam konservi la fajron de mia karaktero, devigi ĝin, ke ĝi
 
-konsumiĝu en mi mem; neniam povi eligi krion, kiam la kaŝi-
-
-ta flamo konsumus unu organon post la alia ho ne! tio estus
+konsumiĝu en mi mem; neniam povi eligi krion, kiam la kaŝita flamo konsumus unu organon post la alia ho ne! tio estus
 
 neelportebla!
 
-”St. John!” mi ekkriis, kiam en mia imago mi ĉion tion pri-
-
-pensis.
+”St. John!” mi ekkriis, kiam en mia imago mi ĉion tion pripensis.
 
 ”Nu?” li diris glacimalvarme.
 
@@ -17812,9 +14228,7 @@ pensis.
 
 via kunulino, kiel via helpanta misiistino — sed ne kiel via
 
-edzino. Mi ne povas edziniĝi kun vi — mi ne povas fariĝi par-
-
-to de vi.”
+edzino. Mi ne povas edziniĝi kun vi — mi ne povas fariĝi parto de vi.”
 
 ”Vi devas fariĝi parto de mi,” li decide rediris, ”alie la tuto
 
@@ -17824,23 +14238,14 @@ mi en Hindujon knabinon deknaŭjaran, se ŝi ne estus mia
 
 edzino? Kiel ni ĉiam povus esti kune — kelkfoje en izolitaj
 
-sovaĝejoj, kelkfoje inter sovaĝaj gentoj — kaj ne esti geedzi-
-
-ĝintaj?”
+sovaĝejoj, kelkfoje inter sovaĝaj gentoj — kaj ne esti geedziĝintaj?”
 
 
-JANE EYRE
-
-
-”Tre bone vi povus,” mi respondis. ”Tre bone sub tiaj cir-
-
-konstancoj; same bone kiel se mi estus via vera fratino aŭ viro
+”Tre bone vi povus,” mi respondis. ”Tre bone sub tiaj cirkonstancoj; same bone kiel se mi estus via vera fratino aŭ viro
 
 kaj ekleziulo kiel vi mem.”
 
-”Oni scias, ke vi ne estas mia fratino; nenien mi povas kon-
-
-duki vin kiel fratinon; estus ligi insultan malfidon al niaj kal-
+”Oni scias, ke vi ne estas mia fratino; nenien mi povas konduki vin kiel fratinon; estus ligi insultan malfidon al niaj kal-
 
 kanoj, se mi klopodus tion. Kaj cetere — se vi havas la fortan
 
@@ -17860,9 +14265,7 @@ la submetiĝon de novekonvertita por ĉefpastro. Nenion pli!
 
 Do, timu nenion!”
 
-”uste tion mi bezonas,” li diris parolante al si mem, ”ĝu-
-
-ste tion mi bezonas! Sed malhelpaĵoj estas sur la vojo! — ili
+”uste tion mi bezonas,” li diris parolante al si mem, ”ĝuste tion mi bezonas! Sed malhelpaĵoj estas sur la vojo! — ili
 
 devas esti batitaj teren. Jane, vi ne pripentos, edziniĝinte kun
 
@@ -17888,21 +14291,14 @@ plene regis siajn vizaĝtrajtojn.
 
 ”Mi apenaŭ atendis aŭdi tiun esprimon el via buŝo,” li
 
-diris. ”Mi kredas, ke mi faris aŭ diris nenion, kio estas mal-
-
-estiminda.”
-
-
-JANE EYRE
+diris. ”Mi kredas, ke mi faris aŭ diris nenion, kio estas malestiminda.”
 
 
 Lia dolĉa voĉo trafis min; lia kvieta, majesta vizaĝo subigis
 
 min.
 
-”Pardonu al mi la esprimon, St. John; sed vi mem estas kul-
-
-pa, ke mi ne plu regis min, kaj parolis nepripensinte. Vi tuŝis
+”Pardonu al mi la esprimon, St. John; sed vi mem estas kulpa, ke mi ne plu regis min, kaj parolis nepripensinte. Vi tuŝis
 
 temon pri kiu ni, laŭ niaj karakteroj, opinias tute malsame, —
 
@@ -17924,9 +14320,7 @@ havas multajn amikojn, kiujn mi volas adiaŭi. ĉirkaŭ dek kvar
 
 tagojn mi estos for de ĉi tie; dum tiu tempo pripensu mian
 
-proponon; kaj ne forgesu: se vi malakceptos, tiam vi malkon-
-
-fesas ne min, sed Dion. Mi estas nur la ilo, per kiu li prezen-
+proponon; kaj ne forgesu: se vi malakceptos, tiam vi malkonfesas ne min, sed Dion. Mi estas nur la ilo, per kiu li prezen-
 
 tas al vi noblan karieron, sed nur kiel mia edzino vi povos
 
@@ -17942,9 +14336,7 @@ nekredemuloj.”
 
 Nun li estis finparolinta.
 
-Forturnante sin de mi, li ankoraŭ unu fojon rigardis sup-
-
-ren al la montoj, poste malsupren al la rivero. Sed ĉiujn
+Forturnante sin de mi, li ankoraŭ unu fojon rigardis supren al la montoj, poste malsupren al la rivero. Sed ĉiujn
 
 impresojn li fikse konservis en sia koro: mi ne estis plu inda
 
@@ -17952,37 +14344,24 @@ aŭdi ilin elparolitaj. Reirante hejmen ĉe lia flanko, mi legis en
 
 lia ŝtona kvieteco, en lia glacia silentado ĉion, kion li sentis
 
-kontraŭ mi: la seniluziigon de malvarma, nefleksebla pru-
-
-dento, kiu estis malkovrinta sentojn kaj opiniojn en alia pru-
-
-
-JANE EYRE
+kontraŭ mi: la seniluziigon de malvarma, nefleksebla prudento, kiu estis malkovrinta sentojn kaj opiniojn en alia pru-
 
 
 dento, kun kiuj li ne kapablis simpatii. Resume, kiel viro li
 
-estis dezirinta devigi min al obeemo; kaj nur kiel fervora kri-
-
-stano li suferis mian obstinecon tiel pacience kaj donis al mi
+estis dezirinta devigi min al obeemo; kaj nur kiel fervora kristano li suferis mian obstinecon tiel pacience kaj donis al mi
 
 tiom da tempo por pripensi kaj por penti.
 
-Kiam li en tiu vespero antaŭ ol iri al sia dormejo estis kisin-
-
-ta siajn fratinojn, li opiniis, ke li agas dece eĉ ne premante
+Kiam li en tiu vespero antaŭ ol iri al sia dormejo estis kisinta siajn fratinojn, li opiniis, ke li agas dece eĉ ne premante
 
 mian manon kaj silentante forlasante la ĉambron. Kvankam
 
-ne sentante amon al li, sed tamen koran amikecon, mi sen-
-
-tis min tiel ofendita pro tiu preterlaso, ke larmoj venis al mi
+ne sentante amon al li, sed tamen koran amikecon, mi sentis min tiel ofendita pro tiu preterlaso, ke larmoj venis al mi
 
 en la okulojn.
 
-”Jane, mi vidas, ke vi disputis kun St. John dum via pro-
-
-menado sur la marĉejo,” diris Diana, ”Iru post li, li estas
+”Jane, mi vidas, ke vi disputis kun St. John dum via promenado sur la marĉejo,” diris Diana, ”Iru post li, li estas
 
 ankoraŭ en la koridoro kaj atendas vin — li volas reamikiĝi.”
 
@@ -18010,24 +14389,16 @@ povis atendi feliĉan reamikiĝon — nek kuraĝigan rideton, nek
 
 grandaniman vorton, sed la kristano estis ankoraŭ ĉiam
 
-trankvila kaj pacienca; kaj kiam mi demandis al li, ĉu li par-
-
-donis min, li diris, ke ne estas lia kutimo konservi la memo-
+trankvila kaj pacienca; kaj kiam mi demandis al li, ĉu li pardonis min, li diris, ke ne estas lia kutimo konservi la memo-
 
 ron al ofendo, ke li havas nenion por pardoni, ĉar li ne estas
 
 ofendita.
 
 
-JANE EYRE
-
-
 Dirinte tion, li foriris de mi. Estus al mi pli agrable, se li per
 
 pugnoj estus batinta min teren.
-
-
-JANE EYRE
 
 
 ĉapitro XXXV.
@@ -18036,9 +14407,7 @@ La sekvintan tagon li tamen ne forvojaĝis al Cambridge,
 
 kvankam li antaŭe diris tion. Li prokrastis la vojaĝon
 
-tutan semajnon kaj dum tiu tempo li sentigis al mi, kian gran-
-
-dan punon bona tamen severa, konsciencema sed nekurbe-
+tutan semajnon kaj dum tiu tempo li sentigis al mi, kian grandan punon bona tamen severa, konsciencema sed nekurbe-
 
 bla viro povas meti sur estaĵon, kiu ofendis lin. Sen ago de
 
@@ -18046,19 +14415,13 @@ malamikeco, sen vorto de riproĉo al li sukcesis daŭre sentigi
 
 al mi la konvn, ke mi tute perdis lian favoron.
 
-Malgraŭ ĉio tio St. John ne sentis malkristanan venĝde-
-
-ziron — li ne insultis unu solan hareton de mia kapo, li ne
+Malgraŭ ĉio tio St. John ne sentis malkristanan venĝdeziron — li ne insultis unu solan hareton de mia kapo, li ne
 
 farus tion eĉ se li havus la povon! Pro la principoj kaj pro sia
 
-karaktero li staris super tiu malnobla kontentiĝo de ĉiu venĝ-
+karaktero li staris super tiu malnobla kontentiĝo de ĉiu venĝdeziro; li estis pardoninta mian diraĵon, ke mi malestimas lin
 
-deziro; li estis pardoninta mian diraĵon, ke mi malestimas lin
-
-kaj lian amon, sed la vortojn li ne estis forgesinta; kaj neni-
-
-am li forgesos ilin, tiel longe kiel li kaj mi vivos. Kiam li sin
+kaj lian amon, sed la vortojn li ne estis forgesinta; kaj neniam li forgesos ilin, tiel longe kiel li kaj mi vivos. Kiam li sin
 
 turnis al mi, mi en lia rigardo vidis, ke tiuj vortoj konstante
 
@@ -18074,14 +14437,9 @@ vokis min ĉiumatene al sia pupitro, por ke mi laboru kun li,
 
 sed mi timis, ke la malica homo en li amuziĝis montri, kun
 
-kiu lerteco li sukcesis — kvankam li okulŝajne agis kaj paro-
-
-lis kiel kutime — forigi el ĉiu vorto kaj el ĉiu ago la spiriton
+kiu lerteco li sukcesis — kvankam li okulŝajne agis kaj parolis kiel kutime — forigi el ĉiu vorto kaj el ĉiu ago la spiriton
 
 de la intereso, kiu antaŭe donis certan akran ĉarmon al liaj
-
-
-JANE EYRE
 
 
 paroloj kaj al tuta lia personeco — ĝi estis amuziĝo en kiu ne
@@ -18108,9 +14466,7 @@ eltirante unu solan sangoguton el miaj vejnoj, sur sia propra
 
 kristale pura konscienco, ne sentante la plej malgrandan
 
-makuleton de krimo. Precipe mi sentis tion, kiam mi klopo-
-
-dis plimildigi lin. Mia kompato ne renkontis kompaton. Al li
+makuleton de krimo. Precipe mi sentis tion, kiam mi klopodis plimildigi lin. Mia kompato ne renkontis kompaton. Al li
 
 nia malproksimiĝo ne kaŭzis ĉagrenon; li ne sentis la deziron
 
@@ -18126,9 +14482,7 @@ Al siaj fratinoj tamen li estis pli kora ol kutime; kvazaŭ li
 
 timis, ke nura malvarmo ankoraŭ ne povis konvinki min, kiel
 
-plene mi estis ekzilita, li volis al tio aldoni la povon de la kon-
-
-trasto. Kaj tion li faris ne el malico, pri tio mi estis konvinki-
+plene mi estis ekzilita, li volis al tio aldoni la povon de la kontrasto. Kaj tion li faris ne el malico, pri tio mi estis konvinki-
 
 ta, sed el principo.
 
@@ -18143,12 +14497,7 @@ iam savis mian vivon kaj ke ni estas proksimaj parencoj. Tio
 instigis min lastfoje klopodi reakiri lian amikecon.
 
 
-JANE EYRE
-
-
-Mi eliris kaj proksimiĝis al li, kiam li staris apud la mal-
-
-granda pordego. Tuj mi parolis pri tio, kio kuŝis sur mia koro.
+Mi eliris kaj proksimiĝis al li, kiam li staris apud la malgranda pordego. Tuj mi parolis pri tio, kio kuŝis sur mia koro.
 
 ”St. John, mi estas malfeliĉa, ĉar vi ankoraŭ ĉiam koleras
 
@@ -18170,9 +14519,7 @@ al vi nenion malbonan, sed nur ĉion bonan.”
 
 ”Mi kredas vin, St. John, ĉar mi estas firme konvinkita, ke
 
-vi ne estus kapabla deziri malbonon al iu ajn. Tamen, estan-
-
-te via parencino, mi dezirus iom pli da amo ol tiu ĝenerala
+vi ne estus kapabla deziri malbonon al iu ajn. Tamen, estante via parencino, mi dezirus iom pli da amo ol tiu ĝenerala
 
 filantropio, kiun vi montras ankaŭ al fremduloj.”
 
@@ -18205,9 +14552,6 @@ Li nun sin deturnis tute de la luno kaj rigardis min en la
 vizaĝon.
 
 
-JANE EYRE
-
-
 ”Jane, ĉu mi forlasos vin do, kiam mi iros al Hindujo? Kion!
 
 ĉu vi do ne kuniros al Hindujo?”
@@ -18216,13 +14560,9 @@ JANE EYRE
 
 antaŭe.”
 
-”Vi do ne volas edziniĝi kun mi? Vi tenas vin al tiu deci-
+”Vi do ne volas edziniĝi kun mi? Vi tenas vin al tiu decido?”
 
-do?”
-
-Kara leganto, ĉu vi iam spertis, kian teruron tiaj malvarm-
-
-koraj homoj povas kaŭzi per la glacio de siaj demandoj? Kiom
+Kara leganto, ĉu vi iam spertis, kian teruron tiaj malvarmkoraj homoj povas kaŭzi per la glacio de siaj demandoj? Kiom
 
 de la falo de lavango estas en ilia kolero? Kiel ilia malplezuro
 
@@ -18238,21 +14578,15 @@ La lavango ekmoviĝis, sed ĝi ankoraŭ ne falegis en la valon.
 
 ”Antaŭe, ĉar vi min ne amis,” mi respondis, ”nun, ĉar vi
 
-preskaŭ malamas min. Se mi edziniĝus kun vi, tiam vi morti-
-
-gus min. Vi jam nun estas faronta tion.”
+preskaŭ malamas min. Se mi edziniĝus kun vi, tiam vi mortigus min. Vi jam nun estas faronta tion.”
 
 Liaj vangoj kaj lipoj paliĝis — morte paliĝis.
 
-”ĉu mi mortigus vin? — mi jam nun mortigas vin? Viaj espri-
-
-moj estas tiaj, kiaj ili neniam devus esti dirataj: akraj, malvar-
+”ĉu mi mortigus vin? — mi jam nun mortigas vin? Viaj esprimoj estas tiaj, kiaj ili neniam devus esti dirataj: akraj, malvar-
 
 maj, malveraj. Vi pruvas, ke vi estas en malfeliĉa spirita kaj
 
-anima stato; vi meritas severan riproĉon, vi estus nepardone-
-
-bla, se la devo de la homo ne ordonus pardoni sian fraton, eĉ
+anima stato; vi meritas severan riproĉon, vi estus nepardonebla, se la devo de la homo ne ordonus pardoni sian fraton, eĉ
 
 sepfoje sepdekfoje.”
 
@@ -18267,12 +14601,7 @@ mi por ĉiam estis engravurinta ĝin tie, kaj mi diris:
 ”Nun vi vere malamos min. Estas tute vane fari la penon
 
 
-JANE EYRE
-
-
-repacigi vin; mi vidas, ke mi faris vin por ĉiam mia malami-
-
-ko.”
+repacigi vin; mi vidas, ke mi faris vin por ĉiam mia malamiko.”
 
 Tiuj vortoj estis por li kiel nova maljustaĵo, kaj ankoraŭ pli
 
@@ -18290,9 +14619,7 @@ vere, tion mi ne intencis.”
 
 Li amare ridetis — kun granda decidemo li retiris sian
 
-manon el mia. ”Kaj nun vi reprenas vian promeson, mi kon-
-
-jektas, kaj tute ne iros al Hindujo?” li diris post longa silen-
+manon el mia. ”Kaj nun vi reprenas vian promeson, mi konjektas, kaj tute ne iros al Hindujo?” li diris post longa silen-
 
 tado.
 
@@ -18300,15 +14627,11 @@ tado.
 
 Nun sekvis longa paŭzo. Mi ne povas diri kiel malfacila
 
-dume estis la batalo, kiu furiozis en li. Sed en liaj okuloj bri-
-
-lis strangaj radioj kaj strangaj ombroj flugis trans lian viza-
+dume estis la batalo, kiu furiozis en li. Sed en liaj okuloj brilis strangaj radioj kaj strangaj ombroj flugis trans lian viza-
 
 ĝon. Fine li ree parolis.
 
-”Mi jam unu fojon pruvis al vi la absurdecon de la propo-
-
-no, ke knabino de via aĝo povus akompani needziĝintan vi-
+”Mi jam unu fojon pruvis al vi la absurdecon de la propono, ke knabino de via aĝo povus akompani needziĝintan vi-
 
 ron de mia aĝo. Mi pruvis ĝin en tiaj esprimoj, pri kiuj mi
 
@@ -18324,31 +14647,22 @@ redonis al mi kuraĝon.
 
 diras sensencaĵon. Vi certigas, ke vi estas konsternita pri tio,
 
-kion mi diris. ĉu vi vere ne ekscitiĝis pri tio, ĉar kun via eks-
-
-terordinara prudento vi neeble estas tiel absurda nek tro
+kion mi diris. ĉu vi vere ne ekscitiĝis pri tio, ĉar kun via eksterordinara prudento vi neeble estas tiel absurda nek tro
 
 memfida por miskompreni mian opinion. Ankoraŭ unu fojon
-
-
-JANE EYRE
 
 
 mi ripetas al vi, mi volas esti via kunlaborantino, sed neniam
 
 via edzino.”
 
-Ree li morte paliĝis. Sed kiel antaŭe li regis sian pasion per-
-
-fekte. Li respondis medite sed trankvile:
+Ree li morte paliĝis. Sed kiel antaŭe li regis sian pasion perfekte. Li respondis medite sed trankvile:
 
 ”Virina kunlaborantino, kiu ne estas mia edzino, neniam
 
 sufiĉus al mi. ŝajnas tial, ke vi ne povos iri kun mi; tamen se
 
-vi estas honeste sincera pri via propono, mi parolos kun misi-
-
-isto dum mia restado en la urbo, kies edzino bezonas kunla-
+vi estas honeste sincera pri via propono, mi parolos kun misiisto dum mia restado en la urbo, kies edzino bezonas kunla-
 
 borantinon. Via propra monposedaĵo faros vin sendependa
 
@@ -18358,17 +14672,13 @@ de la malhonoro rompi vian promeson, kaj malfideliĝi al la
 
 ligo, kies membrino vi promesis fariĝi.”
 
-Kiel mia leganto scias, neniam mi formale donis mian pro-
-
-meson aŭ akceptis ian devon; kaj liaj paroloj estis tro severaj
+Kiel mia leganto scias, neniam mi formale donis mian promeson aŭ akceptis ian devon; kaj liaj paroloj estis tro severaj
 
 kaj tro despotaj por ĉi tiu okazo.
 
 Tial mi respondis:
 
-”En ĉi tiu okazo ne troviĝas malhonoro, nek rompita pro-
-
-meso, nek malfideleco. Mi ne havas la plej malgrandan devon
+”En ĉi tiu okazo ne troviĝas malhonoro, nek rompita promeso, nek malfideleco. Mi ne havas la plej malgrandan devon
 
 iri al Hindujo, precipe ne kun fremduloj. Kune kun vi mi
 
@@ -18393,9 +14703,6 @@ antaŭe volus certe scii, ĉu mi ne povus esti de pli granda utilo,
 amante mian patrujon, anstataŭ forlasi ĝin.”
 
 ”Kiel vi povus klarigi tion?”
-
-
-JANE EYRE
 
 
 ”Estus senutile provi klarigi tion; sed troviĝas unu punkto,
@@ -18428,15 +14735,11 @@ ne vidas, kiel la homoj vidas: Lia volo estu!”
 
 Li malfermis la pordeton de la latbarilo, eliris la ĝardenon
 
-kaj sin direktis tra la paŝtejo al la ravino, kaj baldaŭ malape-
-
-ris.
+kaj sin direktis tra la paŝtejo al la ravino, kaj baldaŭ malaperis.
 
 Revenante en la familian ĉambron, mi vidis Dianan, kiu
 
-staris apud la fenestro; ŝi ŝajnis droni en malgajaj pensoj. Dia-
-
-na estis multe pli alta ol mi, ŝi metis sian manon sur mian
+staris apud la fenestro; ŝi ŝajnis droni en malgajaj pensoj. Diana estis multe pli alta ol mi, ŝi metis sian manon sur mian
 
 ŝultron kaj kliniĝante super mi, ŝi ekzamene rigardis min en
 
@@ -18446,23 +14749,13 @@ la vizaĝon, dirante:
 
 estas konvinkita, ke io al vi okazis. Diru al mi, kio okazas inter
 
-vi kaj St. John. Duonan horon mi vidis vin kune tra la fenes-
+vi kaj St. John. Duonan horon mi vidis vin kune tra la fenestro. Pardonu min, ke mi estas tia spionino, sed jam longe mi
 
-tro. Pardonu min, ke mi estas tia spionino, sed jam longe mi
-
-imagis ĉiajn aferojn. John estas tiel stranga kaj tute propre-
-
-ca homo.”
+imagis ĉiajn aferojn. John estas tiel stranga kaj tute propreca homo.”
 
 ŝi eksilentis — mi ne parolis; baldaŭ poste ŝi diris:
 
-”Mi estas konvinkita, ke mia stranga frato havas tre speci-
-
-
-JANE EYRE
-
-
-alajn intencojn rilate al vi; jam longan tempon li montris pri
+”Mi estas konvinkita, ke mia stranga frato havas tre specialajn intencojn rilate al vi; jam longan tempon li montris pri
 
 vi tiajn interesojn, kiajn li ankoraŭ neniam montris al iu — kaj
 
@@ -18478,9 +14771,7 @@ frunton:
 
 ”Kial do li tiel sekvas vin per la okuloj — kaj kial li daŭre
 
-serĉas vian ĉeeston kaj kial li daŭre estas ĉe via flanko? Ma-
-
-ria kaj mi jam konjektis, ke li deziras edziĝi kun vi.”
+serĉas vian ĉeeston kaj kial li daŭre estas ĉe via flanko? Maria kaj mi jam konjektis, ke li deziras edziĝi kun vi.”
 
 ”Tion li deziras — li postulis de mi, ke mi iĝu lia edzino.”
 
@@ -18523,12 +14814,7 @@ landoj eĉ la plej fortajn. Sed vi estas delikata kaj malforta. Vi
 konas St. John kaj scias, ke li instigos vin al maleblaĵoj; en lia
 
 
-JANE EYRE
-
-
-proksimeco vi ne ricevus la konsenton ripozi dum la varme-
-
-gaj horoj, kaj malfeliĉe vi devigas vin, kiel mi rimarkis, ĉion
+proksimeco vi ne ricevus la konsenton ripozi dum la varmegaj horoj, kaj malfeliĉe vi devigas vin, kiel mi rimarkis, ĉion
 
 plenumi, kion li de vi postulas. Mi estas mirigita, ke vi havis
 
@@ -18540,9 +14826,7 @@ Jane?”
 
 ”Malgraŭ tio, ke li estas tiel bela viro.”
 
-”Kaj mi estas tiel malbela, ĉu ne, Diana? Ni ja tute ne taŭ-
-
-gas kiel feliĉa paro —”
+”Kaj mi estas tiel malbela, ĉu ne, Diana? Ni ja tute ne taŭgas kiel feliĉa paro —”
 
 ”Malbela? Vi? Tute ne! Vi estas multe tro beleta kaj multe
 
@@ -18552,13 +14836,9 @@ Kaj denove ŝi priĵuris min, ke mi forĵetu de mi ĉiun penson
 
 iri kun ŝia frato al Hindujo.
 
-”Vi pravas,” mi diris, ”ĉar kiam mi ripetis al li mian kon-
+”Vi pravas,” mi diris, ”ĉar kiam mi ripetis al li mian konsenton sekvi lin kiel lia kunhelpantino, tiam li ekscitiĝis pro
 
-senton sekvi lin kiel lia kunhelpantino, tiam li ekscitiĝis pro
-
-mia manko de konvensento. Li ŝajnis opinii, ke mi faris nede-
-
-caĵon, proponante al li akompani lin needziniĝinta. Tamen mi
+mia manko de konvensento. Li ŝajnis opinii, ke mi faris nedecaĵon, proponante al li akompani lin needziniĝinta. Tamen mi
 
 de la komenco esperis trovi en li fraton, kaj rigardis lin ĉiam
 
@@ -18570,9 +14850,7 @@ kiel tian!”
 
 denove certigis min, ke li ne por si mem, sed por sia ofico
 
-deziras kunulinon. Li diris al mi, ke mi naskiĝis por la labo-
-
-ro — ne por la amo! Kaj sendube tio estas vera. Sed, miaopi-
+deziras kunulinon. Li diris al mi, ke mi naskiĝis por la laboro — ne por la amo! Kaj sendube tio estas vera. Sed, miaopi-
 
 nie mi ankaŭ ne naskiĝis por edziĝo, se mi ne estas naskita
 
@@ -18587,16 +14865,9 @@ katenita al viro, kiu en mi vidas nur utilan laborilon?”
 nur fratinan inklinon, mi tamen tre bone povas imagi al mi
 
 
-JANE EYRE
+la eblecon, ke estante devigita estiĝi lia edzino, mi post kelka tempo sentus por li neeviteblan strangan, dolorplenan
 
-
-la eblecon, ke estante devigita estiĝi lia edzino, mi post kel-
-
-ka tempo sentus por li neeviteblan strangan, dolorplenan
-
-specon de amo. ĉar li havas altajn talentojn kaj en liaj rigar-
-
-do; karaktero, interparolado estas ofte trajto de heroa gran-
+specon de amo. ĉar li havas altajn talentojn kaj en liaj rigardo; karaktero, interparolado estas ofte trajto de heroa gran-
 
 deco. En tiu okazo mia sorto fariĝus neeldireble terura. Li ne
 
@@ -18634,9 +14905,7 @@ estonteco instruos al mi, ke mi eraris pri ambaŭ punktoj. Li
 
 parolis al mi en la kutima maniero; sed nur tiel, kiel li faris en
 
-la lasta tempo: li estis ĝene ĝentila. Sendube li estis petegin-
-
-ta la helpon de la sankta spirito por kontraŭbatali la kolere-
+la lasta tempo: li estis ĝene ĝentila. Sendube li estis peteginta la helpon de la sankta spirito por kontraŭbatali la kolere-
 
 ton, kiun mi vekis en li kaj nun mi kredis, ke li pardonis al mi
 
@@ -18648,21 +14917,11 @@ dudekunuan ĉapitron de la Apokalipso. ĉiam estis bonfare
 
 aŭskulti lin, kiam la paroloj de la biblio venis de liaj lipoj,
 
-neniam lia voĉo sonis tiel dolĉe kaj klare — neniam liaj agma-
+neniam lia voĉo sonis tiel dolĉe kaj klare — neniam liaj agmanieroj en sia simpleco tiel profunde impresis, ol kiam li anon-
 
+cis la antaŭdirojn de Dio; kaj hodiaŭ vespere lia voĉo akceptis ankoraŭ pli solenan tonon — liaj movoj kaj gestoj akcep-
 
-JANE EYRE
-
-
-nieroj en sia simpleco tiel profunde impresis, ol kiam li anon-
-
-cis la antaŭdirojn de Dio; kaj hodiaŭ vespere lia voĉo akcep-
-
-tis ankoraŭ pli solenan tonon — liaj movoj kaj gestoj akcep-
-
-tis pli profundan signifon, kiam li tiel sidis meze de siaj sam-
-
-hejmanoj, dum la maja luno lumis tra la flanken ŝovitaj fene-
+tis pli profundan signifon, kiam li tiel sidis meze de siaj samhejmanoj, dum la maja luno lumis tra la flanken ŝovitaj fene-
 
 straj kurtenoj kaj igis la kandelan lumon preskaŭ superflua;
 
@@ -18674,9 +14933,7 @@ li diris, kiel Dio venos por loĝi inter la homoj, kiel Li forviŝos
 
 la larmojn el iliaj okuloj kaj promesis, ke morto ne plu estos,
 
-nek suferoj, nek ploroj, nek doloroj, ĉar la unuaj aferoj for-
-
-pasis.
+nek suferoj, nek ploroj, nek doloroj, ĉar la unuaj aferoj forpasis.
 
 La sekvintaj vortoj strange tremigis min, kiam li diris ilin,
 
@@ -18688,9 +14945,7 @@ la tono, ke li sin turnis al mi, kiam li eldiris ilin:
 
 filo. Sed, ”tie li tre malrapide kaj klare legis, ”por la timemaj
 
-kaj nekredemaj kaj abomenindaj kaj mortigistoj kaj malĉastu-
-
-loj kaj sorĉistoj kaj idolanoj kaj ĉiuj mensoguloj, ilia lotaĵo
+kaj nekredemaj kaj abomenindaj kaj mortigistoj kaj malĉastuloj kaj sorĉistoj kaj idolanoj kaj ĉiuj mensoguloj, ilia lotaĵo
 
 estos en la lago, brulanta per fajro kaj sulfuro; tio estas la dua
 
@@ -18700,45 +14955,29 @@ De tiu tempo mi sciis, kian loton St. John timis por mi.
 
 Trankvila, subpremita triumfo, miksita kun sopira sincereco
 
-certigis liajn klarigojn de la lasta glororiĉa verso de tiu ĉapi-
-
-tro. La leganto estis konvinkita, ke lia nomo estas jam skribita
+certigis liajn klarigojn de la lasta glororiĉa verso de tiu ĉapitro. La leganto estis konvinkita, ke lia nomo estas jam skribita
 
 en la vivolibro de la ŝafido, kaj li sopiris al la horo, kiam li
 
-eniros urbon, en kiun la teraj reĝoj portas siajn gloron kaj ho-
-
-noron; kiu ne bezonas sunon nek lunon por lumi en ĝin, ĉar
+eniros urbon, en kiun la teraj reĝoj portas siajn gloron kaj honoron; kiu ne bezonas sunon nek lunon por lumi en ĝin, ĉar
 
 la gloro de Dio prilumas ĝin kaj ĝia lumo estas la ŝafido.
 
-Dum la preĝo, kiu sekvis la ĉapitron de la biblio, li kolek-
-
-
-JANE EYRE
-
-
-tis sian tutan energion — sian tutan akran, rigidan fervoron;
+Dum la preĝo, kiu sekvis la ĉapitron de la biblio, li kolektis sian tutan energion — sian tutan akran, rigidan fervoron;
 
 li estis en sankta sincereco, li batalis kaj luktis kontraŭ Dio kaj
 
 estis decidinta venki. Li petegis pri forto por la malfortuloj,
 
-pri konduko por la ŝafidoj, kiuj devagis de la brutaro, pri re-
-
-iro, eĉ en la dek-unua horo, por tiuj, kiuj estis delogitaj de la
+pri konduko por la ŝafidoj, kiuj devagis de la brutaro, pri reiro, eĉ en la dek-unua horo, por tiuj, kiuj estis delogitaj de la
 
 mallarĝa sed rekta vojo per la tentoj de la mondo kaj de la
 
 karno. Li petis, li petegis, li postulis la donacon de brulego, de
 
-fulmo, por ĵetegi ilin en la korojn de la aŭskultantoj. La sin-
+fulmo, por ĵetegi ilin en la korojn de la aŭskultantoj. La sincereco estas ĉiam profunde solena: kiam komence mi aŭskul-
 
-cereco estas ĉiam profunde solena: kiam komence mi aŭskul-
-
-tis la preĝon, mi miris pri lia sincereco; poste, kiam li daŭri-
-
-gis, li ekscitis min, kaj fine li plenigis min per teruro. Li sen-
+tis la preĝon, mi miris pri lia sincereco; poste, kiam li daŭrigis, li ekscitis min, kaj fine li plenigis min per teruro. Li sen-
 
 tis la grandecon kaj la valoron de sia intenco tiel sincere; ĉiu,
 
@@ -18772,12 +15011,7 @@ malbeno. Pentu — decidu, kiam estas ankoraŭ ne tro mafrue.
 
 Ne forgesu — ni laboru tiel longe kiel daŭros la tago — ni
 
-scias, ke la nokto venos, en kiu neniu homo devas labori. Pen-
-
-su pri la sorto de la riĉa viro en la evangelio, kiu posedis la
-
-
-JANE EYRE
+scias, ke la nokto venos, en kiu neniu homo devas labori. Pensu pri la sorto de la riĉa viro en la evangelio, kiu posedis la
 
 
 riĉaĵojn de ĉi tiu vivo. Dio donu al vi la forton elekti tiun pli
@@ -18796,9 +15030,7 @@ aŭ pli multe tiu de gardanĝelo, kiu gardas la animon, por kiu
 
 li estas respondeca. ĉiuj viroj kun talentoj, indiferente ĉu ili
 
-estas sentemaj aŭ ne, ĉu ili estas zelotoj, ambiciuloj aŭ des-
-
-potoj — kondiĉe ke ili estu honestaj — havas siajn majestajn
+estas sentemaj aŭ ne, ĉu ili estas zelotoj, ambiciuloj aŭ despotoj — kondiĉe ke ili estu honestaj — havas siajn majestajn
 
 momentojn: nome kiam ili venkas aŭ potencas.
 
@@ -18820,17 +15052,13 @@ antaŭe mi estus cedinta, ĝi estus eraro kontraŭ la moralo; se
 
 mi nun cedus, tiam estus eraro kontraŭ la sana prudento. Tiel
 
-mi pensas ankoraŭ nun, rerigardante al tiu krizo per la medi-
-
-umo de la tempo. Sed tiutempe mi ne konsciis mian malsaĝ-
+mi pensas ankoraŭ nun, rerigardante al tiu krizo per la mediumo de la tempo. Sed tiutempe mi ne konsciis mian malsaĝ-
 
 emon.
 
 Senmove mi staris tie sub la tuŝo de mia hierofanto1. Mi
 
-forgesis pri ĉiuj rifuzoj — mia timo estis venkita — mia luk-
-
-tado paralizita. La neeblo — mia unuiĝo kun St. John — rapi-
+forgesis pri ĉiuj rifuzoj — mia timo estis venkita — mia luktado paralizita. La neeblo — mia unuiĝo kun St. John — rapi-
 
 de iĝis eblo. Per unu bato ĉio ŝanĝiĝis. La religio vokis —
 
@@ -18841,20 +15069,13 @@ limako — la pordoj de la morto malfermiĝis kaj montris al mi
 1 pastro greka, kiu instruas la misterojn kaj devojn de sia religio.
 
 
-JANE EYRE
-
-
 la eternecon, kiu kuŝis transe; estis al mi kvazaŭ mi povus
 
 oferi ĉion surteran por la certeco kaj feliĉego transaj en unu
 
-sekundo. La malluma ĉambro estis plena de vizioj kaj la misi-
+sekundo. La malluma ĉambro estis plena de vizioj kaj la misiisto demandis:
 
-isto demandis:
-
-”ĉu vi povus nun decidi?” Li faris tion dolĉvoĉe kaj malfor-
-
-te li tiris min al si. Ho, tiu mildeco! Kiel pli potenca ĝi estas
+”ĉu vi povus nun decidi?” Li faris tion dolĉvoĉe kaj malforte li tiris min al si. Ho, tiu mildeco! Kiel pli potenca ĝi estas
 
 ol la perforto! Mi kapablis kontraŭstari la koleron de St. John;
 
@@ -18878,9 +15099,7 @@ rezultus!”
 
 sian manon sur mia kapo, kvazaŭ li posedus min. Li metis la
 
-brakon ĉirkaŭ mi, preskaŭ kvazaŭ li min amus (mi diras pres-
-
-kaŭ, mi ja konis la diferencon — ĉar mi estis spertinta ĝin, kio
+brakon ĉirkaŭ mi, preskaŭ kvazaŭ li min amus (mi diras preskaŭ, mi ja konis la diferencon — ĉar mi estis spertinta ĝin, kio
 
 estas vera amo; sed kiel li, mi nun metis flanken la amon nur
 
@@ -18890,22 +15109,13 @@ interna vizio, malheligita de nebuloj. Varmege kaj kore mi
 
 aspiris fari tion, kio estas justa — kaj nur tion.
 
-”Montru al mi, ho, montru al mi la rektan vojon!” mi pete-
+”Montru al mi, ho, montru al mi la rektan vojon!” mi petegis al la ĉielo. Mi estis ekscitita kiel ankoraŭ neniam antaŭe.
 
-gis al la ĉielo. Mi estis ekscitita kiel ankoraŭ neniam antaŭe.
-
-Kaj la ĉielo juĝu ĉu tio, kio sekvis, estis la efiko de mia eksci-
-
-teco.
+Kaj la ĉielo juĝu ĉu tio, kio sekvis, estis la efiko de mia eksciteco.
 
 La tuta domo dronis en profunda silento; ĉar mi kredas, ke
 
-esceptinte St. John kaj min, ĉiuj jam enlitiĝis. La sola kande-
-
-lo estis estingiĝonta. La lunlumo hele penetris en la ĉambron.
-
-
-JANE EYRE
+esceptinte St. John kaj min, ĉiuj jam enlitiĝis. La sola kandelo estis estingiĝonta. La lunlumo hele penetris en la ĉambron.
 
 
 Mia koro laŭte kaj rapide batis, kaj mi aŭdis ĉiun pulsobaton.
@@ -18916,9 +15126,7 @@ kiu paralizis miajn kapon kaj piedojn. La sento ne estis kiel
 
 elektra frapo, sed same forta kaj stranga kaj timiga, ĝi efikis
 
-sur miajn sentojn kvazaŭ ties eksteraj kapabloj kaj senripo-
-
-zeco ĝis nun estis nur kiel ia glaciiĝo, el kiu ili nun estis veka-
+sur miajn sentojn kvazaŭ ties eksteraj kapabloj kaj senripozeco ĝis nun estis nur kiel ia glaciiĝo, el kiu ili nun estis veka-
 
 taj. Mi aŭskultis plena de atendo, la okuloj kaj oreloj estis
 
@@ -18956,20 +15164,13 @@ mallume. Mi iris en la ĝardenon; ĝi estis senhoma.
 
 ”Kie vi estas?” mi vokis.
 
-La monteto malantaŭ la ravino obtuze resendis la respon-
-
-don: ”Kie vi estas?” Mi aŭskultis. La vento aŭdiĝis mallaŭte en
+La monteto malantaŭ la ravino obtuze resendis la respondon: ”Kie vi estas?” Mi aŭskultis. La vento aŭdiĝis mallaŭte en
 
 la pinoj. Nenio krom soleca, dezerta marĉejo kaj noktomeza
 
 silento.
 
-”For la superstiĉon!” mi ordonis, kiam tiu malluma fanto-
-
-mo leviĝis apud la nigra taksusarbo. ”ĉi tio ne estas via trom-
-
-
-JANE EYRE
+”For la superstiĉon!” mi ordonis, kiam tiu malluma fantomo leviĝis apud la nigra taksusarbo. ”ĉi tio ne estas via trom-
 
 
 po, nek via sorĉarto — ĉi tio estas la laboro de la naturo. i
@@ -18988,9 +15189,7 @@ Mi diris al li, ke li demandu nenion nek faru rimarkojn; mi
 
 petis lin forlasi min; mi nepre volis esti sola. Li tuj obeis. Kie
 
-troviĝas sufiĉe da energio por ordoni, tie obeemo ĉiam sek-
-
-vas. Mi eniris mian ĉambron, ŝlosis la pordon, falis surgenue
+troviĝas sufiĉe da energio por ordoni, tie obeemo ĉiam sekvas. Mi eniris mian ĉambron, ŝlosis la pordon, falis surgenue
 
 kaj preĝis en mia maniero — alie ol en tiu de St. John. Estis
 
@@ -18998,12 +15197,7 @@ al mi kvazaŭ mi leviĝis ĝis potenca spirito, kaj mia animo
 
 senŝarĝigis dankeme antaŭ liaj piedoj. Post la preĝo mi leviĝis
 
-— decidis — kaj kuŝiĝis, sen timo, plena de espero — sopiran-
-
-te la tagiĝon.
-
-
-JANE EYRE
+— decidis — kaj kuŝiĝis, sen timo, plena de espero — sopirante la tagiĝon.
 
 
 ĉapitro XXXVI.
@@ -19020,13 +15214,9 @@ aŭdis, ke St. John eliras sian ĉambron. ĉe mia pordo li haltis;
 
 mi timis, ke li frapos — sed ne; folieto de papero estis ŝovita
 
-tra la mallarĝa fendo sub la pordo. Mi prenis ĝin. i surha-
+tra la mallarĝa fendo sub la pordo. Mi prenis ĝin. i surhavis la jenajn vortojn:
 
-vis la jenajn vortojn:
-
-”Hieraŭ vespere vi tro rapide foriris de mi. Se vi estus res-
-
-tinta ankoraŭ mallongan tempon, tiam vi fine estus metinta
+”Hieraŭ vespere vi tro rapide foriris de mi. Se vi estus restinta ankoraŭ mallongan tempon, tiam vi fine estus metinta
 
 vian manon sur la krucon de Kristo, sur la kronon de la
 
@@ -19040,9 +15230,7 @@ la karno, mi vidas, estas malforta. ĉiuhore mi preĝos por vi!
 
 Via, St. John.”
 
-Mia animo respondis: ”Mia spirito volas fari, kio estas jus-
-
-ta, kaj mia karno, mi esperas, estas sufiĉe forta por plenumi
+Mia animo respondis: ”Mia spirito volas fari, kio estas justa, kaj mia karno, mi esperas, estas sufiĉe forta por plenumi
 
 la volon de la ĉielo, se nur unue mi klare scios ĝian volon.
 
@@ -19052,25 +15240,16 @@ nubo de dubo kaj trovi la taglumon de la konscienco.”
 
 Estis la unua de junio; sed la mateno estis malvarma kaj
 
-nuba, la pluvo forte batis sur mian fenestron. Mi aŭdis la por-
-
-don malfermiĝi kaj St. John eliris. Rigardante tra la fenestro,
+nuba, la pluvo forte batis sur mian fenestron. Mi aŭdis la pordon malfermiĝi kaj St. John eliris. Rigardante tra la fenestro,
 
 
-JANE EYRE
-
-
-mi vidis, kiel li iris tra la pluvo. Li iris la vojon trans la nebu-
-
-lan marĉejon en la direkto al Whitcross — tie li trafos la poŝt-
+mi vidis, kiel li iris tra la pluvo. Li iris la vojon trans la nebulan marĉejon en la direkto al Whitcross — tie li trafos la poŝt-
 
 veturilon.
 
 Mi pensis: ”Post malmultaj horoj mi iros la saman vojon
 
-kaj ankaŭ atendos poŝtveturilon en Whitcross. Mi ankaŭ de-
-
-vas iri al personoj en Anglujo kaj paroli al ili, antaŭ ol mi por
+kaj ankaŭ atendos poŝtveturilon en Whitcross. Mi ankaŭ devas iri al personoj en Anglujo kaj paroli al ili, antaŭ ol mi por
 
 ĉiam forlasos ĝin.”
 
@@ -19088,19 +15267,13 @@ la voĉon, kiun mi estis aŭdinta; ree mi demandis, de kie ĝi
 
 venis, sed vane kiel antaŭe. ŝajne ĝi estis en mi — ne en la
 
-ekstera mondo. Mi demandis, ĉu ĝi estas nura nerva impre-
+ekstera mondo. Mi demandis, ĉu ĝi estas nura nerva impreso — aŭ trompo? Mi povis nek kompreni nek kredi, ĝi estis pli
 
-so — aŭ trompo? Mi povis nek kompreni nek kredi, ĝi estis pli
-
-ol inspiraĵo. La mirakla skuo de mia animo venis kiel tertre-
-
-mo, kiu estis skuinta la fundamentojn de la malliberejo de
+ol inspiraĵo. La mirakla skuo de mia animo venis kiel tertremo, kiu estis skuinta la fundamentojn de la malliberejo de
 
 Paŭlo; ĝi malfermis la pordon de la ĉelo de mia animo kaj
 
-rompis la katenojn —:. ĝi vekis ĝin el la dormo, el kiu ĝi aŭs-
-
-kultante kun teruro kaj tremado estis eliĝinta; poste trifoje
+rompis la katenojn —:. ĝi vekis ĝin el la dormo, el kiu ĝi aŭskultante kun teruro kaj tremado estis eliĝinta; poste trifoje
 
 vibranta krio penetris en mian timigitan orelon; mi aŭdis ĝin
 
@@ -19112,16 +15285,11 @@ sekvo de ununura penado, kiu povis liberigi ilin de la ŝarĝo
 
 de la karno.
 
-”Antaŭ ol multaj tagoj estos pasintaj,” mi diris, pripensin-
-
-te ĉion tion, ”mi scios ion pri tiu, kies voĉo hieraŭ vespere
+”Antaŭ ol multaj tagoj estos pasintaj,” mi diris, pripensinte ĉion tion, ”mi scios ion pri tiu, kies voĉo hieraŭ vespere
 
 ŝajnis voki al mi. La leteroj ne estis efikaj — nun persona
 
 ekzameno anstataŭos ilin.”
-
-
-JANE EYRE
 
 
 Dum la matenmanĝo mi sciigis al Diana kaj Maria, ke mi
@@ -19138,17 +15306,13 @@ Ili povus respondi, kion sendube ili ankaŭ pensis, nome, ke
 
 ili kredis, ke mi, krom ili, ne havas amikojn; ĉar tion mi
 
-antaŭe ja ankaŭ certigis al ili; sed pro ilia justa, natura diskre-
-
-temo, ili sin detenis de ĉiu rimarko; nur Diana demandis, ĉu
+antaŭe ja ankaŭ certigis al ili; sed pro ilia justa, natura diskretemo, ili sin detenis de ĉiu rimarko; nur Diana demandis, ĉu
 
 mi sentas min tute bona por povi vojaĝi, ĉar jam kelkajn
 
 tagojn mi aspektas tiel suferanta kaj pala. Mi respondis, ke mi
 
-ne estas malsana; ke nur certa angoro min regis, kiun mi bal-
-
-daŭ esperis fortimigi.
+ne estas malsana; ke nur certa angoro min regis, kiun mi baldaŭ esperis fortimigi.
 
 Sen kontraŭstaro mi povis fini pluajn preparojn, ĉar neniu
 
@@ -19162,67 +15326,42 @@ la privilegion pri decido, kiun ankaŭ mi estus permesinta al
 
 ili sub samaj cirkonstancoj.
 
-Estis la tria horo posttagmeze, kiam mi forlasis Moor Hou-
+Estis la tria horo posttagmeze, kiam mi forlasis Moor House kaj baldaŭ post la kvara mi staris ĉe la vojmontrilo de
 
-se kaj baldaŭ post la kvara mi staris ĉe la vojmontrilo de
+Whitcross, atendante la alvenon de la poŝtveturilo, kiu kondukos min al la malproksima Thornfield. Pro la silento sur la
 
-Whitcross, atendante la alvenon de la poŝtveturilo, kiu kon-
+solecaj vojoj kaj dezertaj montetoj mi aŭdis jam en la malproksimo la rulbruon de ĝiaj radoj. i estis tiu sama veturi-
 
-dukos min al la malproksima Thornfield. Pro la silento sur la
+lo, el kiu mi malsupreniris sur la sama loko en somervespero — senespera, soleca, vivolaca! i haltis, kiam mi manges-
 
-solecaj vojoj kaj dezertaj montetoj mi aŭdis jam en la mal-
-
-proksimo la rulbruon de ĝiaj radoj. i estis tiu sama veturi-
-
-lo, el kiu mi malsupreniris sur la sama loko en somervespe-
-
-ro — senespera, soleca, vivolaca! i haltis, kiam mi manges-
-
-tis. Mi eniris ĝin — ne estante devigata pagi mian tutan pose-
-
-daĵon, kiel la antaŭan fojon. Trovante min denove sur la vojo
+tis. Mi eniris ĝin — ne estante devigata pagi mian tutan posedaĵon, kiel la antaŭan fojon. Trovante min denove sur la vojo
 
 al Thornfield, mi sentis min kiel rehejmiĝanta leterkolombo.
 
 
-JANE EYRE
-
-
 Estis tridekseshora vojaĝo. Iun mardon en la posttagmezo
 
-mi estis foririnta de Whitcross, kaj estis frumatene en la sek-
-
-vinta ĵaŭdo, kiam la poŝtveturilo haltis por trinkigi la ĉevalojn
+mi estis foririnta de Whitcross, kaj estis frumatene en la sekvinta ĵaŭdo, kiam la poŝtveturilo haltis por trinkigi la ĉevalojn
 
 antaŭ gastejo apud la landvojo. Tiu gastejo kuŝis meze de
 
-pejzaĝo, kies verdaj plektobariloj kaj vastaj kamparoj kaj mal-
+pejzaĝo, kies verdaj plektobariloj kaj vastaj kamparoj kaj malaltaj montetoj plenaj de arbaroj renkontis miajn okulojn. Kiel
 
-altaj montetoj plenaj de arbaroj renkontis miajn okulojn. Kiel
-
-mildaj estis tiuj ĉirkaŭaĵoj, kiel mildaj estis tiuj koloroj kom-
-
-pare kun la akraj, dezertaj nordaj marĉejoj de Morton! — Jes,
+mildaj estis tiuj ĉirkaŭaĵoj, kiel mildaj estis tiuj koloroj kompare kun la akraj, dezertaj nordaj marĉejoj de Morton! — Jes,
 
 ĉi tiun pejzaĝon mi konis; mi estis proksima al la celo de mia
 
 vojaĝo!
 
-”Kiel malproksime estas Thornfield de ĉi tie?” mi deman-
-
-dis la gastejserviston.
+”Kiel malproksime estas Thornfield de ĉi tie?” mi demandis la gastejserviston.
 
 ”uste ankoraŭ du mejlojn, sinjorino, se vi iros la vojon
 
 trans la kamparon.”
 
-”Mia vojaĝo nun finiĝis,” mi pensis. Mi eliris el la poŝtve-
+”Mia vojaĝo nun finiĝis,” mi pensis. Mi eliris el la poŝtveturilo, transdonis mian pakaĵon al la servisto, por ke li ĝin pri-
 
-turilo, transdonis mian pakaĵon al la servisto, por ke li ĝin pri-
-
-zorgu ĝis mia reveno; mi pagis la veturigiston, donis trinkmo-
-
-non al li kaj ekiris. La unuaj radioj de la leviĝanta suno falis
+zorgu ĝis mia reveno; mi pagis la veturigiston, donis trinkmonon al li kaj ekiris. La unuaj radioj de la leviĝanta suno falis
 
 sur la elpendaĵon de la gastejo, kaj mi legis la oritajn literojn
 
@@ -19242,19 +15381,12 @@ vi ne povas havi rilatojn kun li; vi ne povas paroli kun li, ne
 
 veni en lian proksimecon. ĉiuj viaj penoj kaj streĉadoj estis
 
-vanaj — estus pli bone, tuj reiri,” tiel parolis avertanta, admo-
-
-nanta voĉo. ”Petu la loĝantojn de la gastejo pri informoj; ili
+vanaj — estus pli bone, tuj reiri,” tiel parolis avertanta, admonanta voĉo. ”Petu la loĝantojn de la gastejo pri informoj; ili
 
 povas ĉion diri, kion vi bezonas scii, ili per unu vorto povas
 
 
-JANE EYRE
-
-
-forigi ĉiun dubon. Iru al la gastejestro kaj demandu ĉu sinj-
-
-oro Rochester estas hejme.”
+forigi ĉiun dubon. Iru al la gastejestro kaj demandu ĉu sinjoro Rochester estas hejme.”
 
 La konsilo estis saĝa, malgraŭ tio mi ne povis decidi agi laŭ
 
@@ -19266,17 +15398,13 @@ halon sub la radioj de ĝia stelo. Tie antaŭ mi kuŝis la piedvojo.
 
 Tie kuŝis tiuj samaj kamparoj, tra kiujn mi iris dum mia
 
-forkuro de Thornfield, tiam mi estis kvazaŭ blinda, surda, fre-
-
-neza, atakita de venĝema kolero, kiu skurĝis kaj persekutis
+forkuro de Thornfield, tiam mi estis kvazaŭ blinda, surda, freneza, atakita de venĝema kolero, kiu skurĝis kaj persekutis
 
 min en la koro. Antaŭ ol mi ankoraŭ sciis, en kiun direkton
 
 mi iros, mi estis jam inter la kampoj. Kiel rapide mi iris! Kiel
 
-mi rigardis antaŭen por vidi la unuan supron de la bone ko-
-
-nata parko! Kun kiaj sentoj mi bonvenigis kelkajn arbojn,
+mi rigardis antaŭen por vidi la unuan supron de la bone konata parko! Kun kiaj sentoj mi bonvenigis kelkajn arbojn,
 
 kiujn mi konis! Kaj vidaĵojn sur paŝtejoj kaj montetoj, kiuj jam
 
@@ -19288,21 +15416,15 @@ tie la kornika nestaro: laŭta gratado interrompis la silenton de
 
 la mateno. Stranga ravsento ekregis min: mi rapidis pluen.
 
-Ankoraŭ unu kampo estis trairota — poste malzorgita voje-
+Ankoraŭ unu kampo estis trairota — poste malzorgita vojeto kun plektobariloj — kaj tie staris la muroj de la korto kaj
 
-to kun plektobariloj — kaj tie staris la muroj de la korto kaj
-
-la konstruaĵoj de la mastrumado. La domo mem kuŝis nevi-
-
-data post la kornikejo.
+la konstruaĵoj de la mastrumado. La domo mem kuŝis nevidata post la kornikejo.
 
 ”Unue mi volas revidi la antaŭan flankon,” mi decidis, ”kie
 
 la majestaj kreneloj tuj faras grandan impreson al la okuloj,
 
-kaj kie mi povos vidi la fenestron de mia sinjoro. Eble li sta-
-
-ras apud ĝi — li kutimas frue leviĝi. Eble li estas en la frukto-
+kaj kie mi povos vidi la fenestron de mia sinjoro. Eble li staras apud ĝi — li kutimas frue leviĝi. Eble li estas en la frukto-
 
 ĝardeno, aŭ sur la teraso de la domo. Se mi nur povus vidi lin!
 
@@ -19313,12 +15435,7 @@ freneza postkuri lin? Tion mi ne povas diri — mi ne estas plu
 mastro de mi mem. Kaj se mi tion farus — kio poste? Dio lin
 
 
-JANE EYRE
-
-
-benu! — Kio poste? Al kiu mi maljuste agus, se mi ĝuus an-
-
-koraŭ unu fojon la feliĉegon, kiun lia rigardo fluigos en mi-
+benu! — Kio poste? Al kiu mi maljuste agus, se mi ĝuus ankoraŭ unu fojon la feliĉegon, kiun lia rigardo fluigos en mi-
 
 ajn vejnojn? — Mi estas freneza! Mi deliras! Eble en ĉi tiu
 
@@ -19326,13 +15443,9 @@ momento li vidas la leviĝon de la sunon super la Pireneoj, aŭ
 
 super la suda maro.”
 
-Mi estis irinta laŭlonge de la malalta muro de la frukto-
+Mi estis irinta laŭlonge de la malalta muro de la fruktoĝardeno, — nun mi turnis min ĉirkaŭ la angulo; tie estis la
 
-ĝardeno, — nun mi turnis min ĉirkaŭ la angulo; tie estis la
-
-pordego, tra kiu oni inter du ŝtonaj kolonoj kun grandaj ŝto-
-
-naj bulegoj iris sur la paŝtejon. Post unu el la kolonoj mi pov-
+pordego, tra kiu oni inter du ŝtonaj kolonoj kun grandaj ŝtonaj bulegoj iris sur la paŝtejon. Post unu el la kolonoj mi pov-
 
 us senĝene rigardi la tutan antaŭaĵon de la sinjora domo. Tre
 
@@ -19340,9 +15453,7 @@ singarde mi etendis la kapon por certigi al mi, ĉu la kurtenoj
 
 de la dormeja fenestro estas jam ŝovitaj flanken. De ĉi tiu loko
 
-mi povis vidi la longan antaŭaĵon, la fenestrojn kaj la krene-
-
-lojn.
+mi povis vidi la longan antaŭaĵon, la fenestrojn kaj la krenelojn.
 
 Eble la korvoj, ŝvebantaj tra la blua aero, rigardis min. Mi
 
@@ -19356,41 +15467,28 @@ iris de malantaŭ la kolono, rapidis trans la herbejon. Subite
 
 mi ree haltis tuj antaŭ la antaŭa flanko de la domo kaj kuraĝe,
 
-longe mi rigardis en tiu direkto. ”Kian ŝajnan timon en la ko-
-
-menco!” eble diris la alte ŝvebantaj korvoj kaj ”kian senti-
+longe mi rigardis en tiu direkto. ”Kian ŝajnan timon en la komenco!” eble diris la alte ŝvebantaj korvoj kaj ”kian senti-
 
 memon ŝi subite montras!”
 
 ”Aŭskultu la klarigon, mia leganto!”
 
-Amanto trovas sian amatinon, kiu endormiĝis sur musko-
-
-kovrita benko; li deziras ĵeti unu solan rigardon sur ŝian viza-
+Amanto trovas sian amatinon, kiu endormiĝis sur muskokovrita benko; li deziras ĵeti unu solan rigardon sur ŝian viza-
 
 ĝon sen veki ŝin. Senbrue li ŝteliras trans la herbon kaj timas
 
 fari bruon; li haltas — kredante, ke ŝi sin movas. Li ne volas
 
-esti vidata de ŝi: li retiras sin. ĉio estas silenta; li ree prok-
-
-simiĝas al ŝi, li sin klinas super ŝi; delikata vualo kuŝas sur ŝia
-
-
-JANE EYRE
+esti vidata de ŝi: li retiras sin. ĉio estas silenta; li ree proksimiĝas al ŝi, li sin klinas super ŝi; delikata vualo kuŝas sur ŝia
 
 
 kapo; li levas ĝin, sin klinas pli profunden; nun liaj okuloj jam
 
 antaŭe ĝuas la vizion de la belaĵo — la varman, florantan,
 
-amindan, ripozantan belaĵon. Kiel rapida estis lia unua rigar-
+amindan, ripozantan belaĵon. Kiel rapida estis lia unua rigardo! Sed kiel streĉita ĝi estas nun! Kiel li timas! Kiel li nun subi-
 
-do! Sed kiel streĉita ĝi estas nun! Kiel li timas! Kiel li nun subi-
-
-te kaj pasie ĉirkaŭbrakas la tutan figuron, kiun antaŭ mal-
-
-longa momento li ne kuraĝis tuŝi per unu fingro! Kiel laŭte li
+te kaj pasie ĉirkaŭbrakas la tutan figuron, kiun antaŭ mallonga momento li ne kuraĝis tuŝi per unu fingro! Kiel laŭte li
 
 krias nomon, kiel li ellasis la figuron kaj ĝin fikse kaj sovaĝe
 
@@ -19402,33 +15500,23 @@ rigardas. Li kredis ŝin kviete, pace dormanta — sed ŝi estas
 
 malvarma kaj mortinta!
 
-Kun tremanta ĝojo mi estis fiksinta mian rigardon sur ma-
-
-jestan domon: subite mi vidis nur fume makulitan ruinon.
+Kun tremanta ĝojo mi estis fiksinta mian rigardon sur majestan domon: subite mi vidis nur fume makulitan ruinon.
 
 Mi ne bezonis plu kaŝi min post pordega kolono! Mi ne
 
-bezonis plu homevite suprenrigardi al la fenestroj de la dor-
-
-mejo, timante ke mi vidos post ili movojn! Mi ne bezonis plu
+bezonis plu homevite suprenrigardi al la fenestroj de la dormejo, timante ke mi vidos post ili movojn! Mi ne bezonis plu
 
 aŭskulti ĉu fermiĝas aŭ malfermiĝas pordoj — kaj imagi, ke
 
-mi aŭdas homajn paŝojn sur la teraso aŭ sur la vojoj. La ĝar-
-
-deno kaj la parko estis piedpremitaj kaj ruinigitaj; la portalo
+mi aŭdas homajn paŝojn sur la teraso aŭ sur la vojoj. La ĝardeno kaj la parko estis piedpremitaj kaj ruinigitaj; la portalo
 
 gapis al mi kun teruriga malpleno. La antaŭo de la domo estis
 
-kiel mi iam vidis ĝin en sonĝo, nur alta muro plena de kre-
-
-vaĵoj kaj kun senfenestraj truegoj.
+kiel mi iam vidis ĝin en sonĝo, nur alta muro plena de krevaĵoj kaj kun senfenestraj truegoj.
 
 La tegmento, kreneloj kaj kamentuboj estis for — ĉio kuŝis
 
-ruinigita sur la tero. ĉie regis la trankvilo de morto, la sen-
-
-bruo de dezerta sovaĝejo!
+ruinigita sur la tero. ĉie regis la trankvilo de morto, la senbruo de dezerta sovaĝejo!
 
 Ne estis mirige, ke la leteroj, adresitaj al personoj loĝantaj
 
@@ -19441,12 +15529,7 @@ katastrofo trafis la domon — ĝi estis neniigita de brulo. Sed
 kiel tio estiĝis? Kiaj okazintaĵoj sin ligis al tiu katastrofo? Kiu
 
 
-JANE EYRE
-
-
-perdo estis priplendinda krom pri mortero, marmoro kaj lig-
-
-naĵo? ĉu ankaŭ homoj pereis? Kaj kiuj? Tio estis terura
+perdo estis priplendinda krom pri mortero, marmoro kaj lignaĵo? ĉu ankaŭ homoj pereis? Kaj kiuj? Tio estis terura
 
 demando! ĉi tie estis neniu por respondi min. Mi aŭdis eĉ ne
 
@@ -19496,14 +15579,9 @@ por teruriga historio. La gastejestro estis ĝentile aspektanta
 
 viro de meza aĝo.
 
-”Kompreneble vi konas Thornfield Hall,” mi kun peno di-
-
-ris.
+”Kompreneble vi konas Thornfield Hall,” mi kun peno diris.
 
 ”Jes, sinjorino, mi estis tie unu fojon.”
-
-
-JANE EYRE
 
 
 ”ĉu vere?” Tamen, ne kiam mi loĝis en ĝi, mi pensis, ĉar vi
@@ -19516,21 +15594,15 @@ De la mortinta …! Plenpeze min trafis la bato, kiun mi tiel
 
 longe estis evitinta.
 
-”De la mortinta …!” mi pene diris. ”ĉu li do estas mortin-
+”De la mortinta …!” mi pene diris. ”ĉu li do estas mortinta?”
 
-ta?”
-
-”Mi parolas pri la patro de la nuna sinjoro Edward,” kla-
-
-rigis li.
+”Mi parolas pri la patro de la nuna sinjoro Edward,” klarigis li.
 
 Mi reekspiris. Mia sango ree komencis flui. Tiuj vortoj ja
 
 certigis al mi, ke sinjoro Edward — mia sinjoro Rochester
 
-(Dio lin benu kie ajn li estas) vivas ankoraŭ. Revivigantaj vor-
-
-toj! Estis al mi, kvazaŭ mi povus aŭdi ĉion, kio estis sekvon-
+(Dio lin benu kie ajn li estas) vivas ankoraŭ. Revivigantaj vortoj! Estis al mi, kvazaŭ mi povus aŭdi ĉion, kio estis sekvon-
 
 ta — kiel ajn terura tio estus. Mi rekvietiĝis, li ne kuŝis en la
 
@@ -19550,13 +15622,9 @@ ke vi ne konas ĉi tiun regionon, alie vi scius, kio okazis la
 
 pasintan aŭtunon; — Thornfield Hall estas nun nur ruino,
 
-ĝuste en la rikoltotempo ĝi tute forbrulis. Estis terura kata-
+ĝuste en la rikoltotempo ĝi tute forbrulis. Estis terura katastrofo! ĉio forbrulis kaj eĉ la mebloj ne povis esti savitaj. La
 
-strofo! ĉio forbrulis kaj eĉ la mebloj ne povis esti savitaj. La
-
-brulo eksplodis en la mezo de la nokto, kaj antaŭ ol la ŝpru-
-
-cigiloj venis el Millcote, la tuta konstruaĵo estis maro da
+brulo eksplodis en la mezo de la nokto, kaj antaŭ ol la ŝprucigiloj venis el Millcote, la tuta konstruaĵo estis maro da
 
 flamoj. Estis terura aspekto. Mi mem ĉeestis.”
 
@@ -19565,9 +15633,6 @@ flamoj. Estis terura aspekto. Mi mem ĉeestis.”
 Thornfield!
 
 ”ĉu oni scias, kiel tio okazis?” mi demandis.
-
-
-JANE EYRE
 
 
 ”Mi supozas tion, sinjorino, oni supozas tion, sed vere mi
@@ -19584,29 +15649,19 @@ iu sinjorino — freneza sinjorino estis kaŝita en la domo?”
 
 homoj eĉ ne sciis ion definitivan pri ŝia ekzisto. Neniu vidis
 
-ŝin; nur la famo rondiris, ke ie en la sinjora domo iu estas ka-
+ŝin; nur la famo rondiris, ke ie en la sinjora domo iu estas kaŝita, sed malfacile estis supozi, kiu kaj kiel. Oni diris, ke sinj-
 
-ŝita, sed malfacile estis supozi, kiu kaj kiel. Oni diris, ke sinj-
-
-oro Edward kunkondukis ŝin el fremda lando, kaj multaj kre-
-
-dis, ke ŝi antaŭe estis lia amatino. Sed antaŭ unu jaro okazis
+oro Edward kunkondukis ŝin el fremda lando, kaj multaj kredis, ke ŝi antaŭe estis lia amatino. Sed antaŭ unu jaro okazis
 
 io stranga — tre stranga.”
 
-Mi timis nun aŭdi mian propran historion, tial mi klopo-
-
-dis reen konduki lin al la ĉefa afero.
+Mi timis nun aŭdi mian propran historion, tial mi klopodis reen konduki lin al la ĉefa afero.
 
 ”Kaj tiu sinjorino?”
 
-”Tiu sinjorino estis, kiel poste montriĝis, la edzino de sin-
+”Tiu sinjorino estis, kiel poste montriĝis, la edzino de sinjoro Rochester! Tiu malkovro okazis en la plej stranga manie-
 
-joro Rochester! Tiu malkovro okazis en la plej stranga manie-
-
-ro. En la sinjora domo estis fraŭlino, la guvernistino, kaj sin-
-
-joro Rochester …”
+ro. En la sinjora domo estis fraŭlino, la guvernistino, kaj sinjoro Rochester …”
 
 ”Sed rilate al la brulo!” mi interrompis lin.
 
@@ -19616,9 +15671,7 @@ enamiĝis al ŝi. La servistoj diris, ke ili en sia tuta vivo neniam
 
 vidis tiel enamiĝintan homon, kiel li estis. Konstante li estis
 
-apud ŝi. Ili kvazaŭ spionis lin — vi ja scias, sinjorino, ke ser-
-
-vistoj amas fari tion — kaj li amis ŝin pli ol iun ajn en la mon-
+apud ŝi. Ili kvazaŭ spionis lin — vi ja scias, sinjorino, ke servistoj amas fari tion — kaj li amis ŝin pli ol iun ajn en la mon-
 
 do. Krom li, neniu trovis ŝin bela. ŝi estis eta sensignifa estaĵo,
 
@@ -19626,12 +15679,7 @@ ili diris, kaj preskaŭ infano. Mi mem neniam vidis ŝin, sed
 
 Leah, la ĉambristino, rakontis al mi pri ŝi. Leah tre amis ŝin.
 
-Sinjoro Rochester estis ĉirkaŭ kvardek jara kaj tiu guvernis-
-
-tino ne estis ankoraŭ dudek. Kaj vi bone scias, ke, se viroj de
-
-
-JANE EYRE
+Sinjoro Rochester estis ĉirkaŭ kvardek jara kaj tiu guvernistino ne estis ankoraŭ dudek. Kaj vi bone scias, ke, se viroj de
 
 
 lia aĝo enamiĝas je juna knabino, kia ŝi estis, tiam ili ofte estas
@@ -19642,15 +15690,11 @@ kvazaŭ sorĉitaj. Li do volis edziĝi kun ŝi.”
 
 fojon,” mi diris, ”sed mi havas tute specialan motivon aŭdi la
 
-historion pri la brulado. ĉu oni supozas do, ke tiu frenezuli-
-
-no — sinjorino — sinjorino Rochester havas aferon kun ĝi?”
+historion pri la brulado. ĉu oni supozas do, ke tiu frenezulino — sinjorino — sinjorino Rochester havas aferon kun ĝi?”
 
 ”Vi ĝuste trafis, sinjorino; estas tre certe, ke ŝi kaj neniu alia
 
-bruligis la domon. ŝi havis kun si gardistinon, nome sinjori-
-
-non Poole, laŭ sia speco tre taŭga, lerta virino kaj tute fidin-
+bruligis la domon. ŝi havis kun si gardistinon, nome sinjorinon Poole, laŭ sia speco tre taŭga, lerta virino kaj tute fidin-
 
 da; sed ŝi havis mankon — mankon, kiun havas preskaŭ ĉiuj
 
@@ -19662,9 +15706,7 @@ el sia botelo por trankviligi la soifon. Tio estas pardonebla, ĉar
 
 tiu kutimo estis danĝera; ĉar kiam sinjorino Poole, trinkinte
 
-tro multe, endormiĝis, la frenezulino, kiu estis ruza kaj ma-
-
-lica kiel sorĉistino, prenis la ŝlosilon el ŝia poŝo, ŝteliĝis tra la
+tro multe, endormiĝis, la frenezulino, kiu estis ruza kaj malica kiel sorĉistino, prenis la ŝlosilon el ŝia poŝo, ŝteliĝis tra la
 
 pordo kaj ĉie vagis tra la domo kaj plenumis ĉian malbonon,
 
@@ -19674,19 +15716,13 @@ forbruligis sian edzon en lia lito; sed mi ne scias, ĉu tio vere
 
 okazis. Sed en tiu vespero ŝi unue bruligis la kurtenojn de la
 
-ĉambro, kuŝanta plej proksime de ŝia; poste ŝi ŝteliris malsup-
-
-ren al la dua etaĝo, eniris en la ĉambron, kiu antaŭe aparte-
+ĉambro, kuŝanta plej proksime de ŝia; poste ŝi ŝteliris malsupren al la dua etaĝo, eniris en la ĉambron, kiu antaŭe aparte-
 
 nis al la guvernistino — (estis kvazaŭ ŝi suspektis la rilaton
 
-inter ŝia edzo kaj la knabino, kaj tial malamis ŝin) — kaj bru-
+inter ŝia edzo kaj la knabino, kaj tial malamis ŝin) — kaj bruligis tie la liton. Feliĉe neniu dormis tie. La guvernistino estis
 
-ligis tie la liton. Feliĉe neniu dormis tie. La guvernistino estis
-
-forkurinta du monatoj pli frue; kaj kvankam sinjoro Roches-
-
-ter serĉis ŝin, kvazaŭ ŝi estus la plej multekosta juvelo sur la
+forkurinta du monatoj pli frue; kaj kvankam sinjoro Rochester serĉis ŝin, kvazaŭ ŝi estus la plej multekosta juvelo sur la
 
 tero, li tamen povis ekscii nenion pri ŝi. Tiam li fariĝis kiel
 
@@ -19695,22 +15731,13 @@ sovaĝulo — tute kiel sovaĝulo en sia ĉagreno. Neniam antaŭe
 li estis milda homo, sed post kiam li perdis ŝin, li fariĝis eĉ
 
 
-JANE EYRE
-
-
 danĝera. Li volis esti tute sola. La mastrumistinon, sinjorinon
 
-Fairfax li foririgis malproksimen al ŝiaj parencoj; sed li kon-
+Fairfax li foririgis malproksimen al ŝiaj parencoj; sed li kondutis al ŝi tre dece, ĉar ŝi ricevis asekurpension por sia tuta
 
-dutis al ŝi tre dece, ĉar ŝi ricevis asekurpension por sia tuta
+vivo. Sed tion ŝi indis, ĉar ŝi estis tre bonkora virino. Fraŭlino Adèle, kiu kiel lia zorgatino, ankaŭ estis en la domo, estis
 
-vivo. Sed tion ŝi indis, ĉar ŝi estis tre bonkora virino. Fraŭli-
-
-no Adèle, kiu kiel lia zorgatino, ankaŭ estis en la domo, estis
-
-sendita al instituto. Li rompis ĉiun interrilaton kun la najba-
-
-raj nobeloj kaj vivis en sia domo kiel ermito.”
+sendita al instituto. Li rompis ĉiun interrilaton kun la najbaraj nobeloj kaj vivis en sia domo kiel ermito.”
 
 ”Kion! ĉu li ne eliris el Anglujo?”
 
@@ -19732,15 +15759,11 @@ kiel multaj aliaj sinjoroj. Li ankaŭ ne estis bela; sed li havis
 
 kuraĝon kaj fortan volon kiel iam ajn alia viro. Mi bone konis
 
-lin de lia knabeco, kaj rilate al mi, ofte mi deziris, ke fraŭli-
-
-no Eyre estus droninta en la profunda maro antaŭ ol iri al
+lin de lia knabeco, kaj rilate al mi, ofte mi deziris, ke fraŭlino Eyre estus droninta en la profunda maro antaŭ ol iri al
 
 Thornfield Hall.”
 
-”Sinjoro Rochester do estis hejme, kiam la brulo eksplo-
-
-dis?”
+”Sinjoro Rochester do estis hejme, kiam la brulo eksplodis?”
 
 ”Jes, li estis; kaj li suprenkuris al la tegmentejaj ĉambroj,
 
@@ -19748,9 +15771,7 @@ kiam sub li ĉio jam brulis kaj savis la servistaron, kiu kuŝis en
 
 la litoj, li helpis ilin malsupren kaj poste li reiris ankoraŭ unu
 
-fojon por savi sian frenezan edzinon. Oni kriis al li, ke ŝi sta-
-
-ras sur la tegmento; kaj vere tie ŝi staris kaj disbatis la brakojn
+fojon por savi sian frenezan edzinon. Oni kriis al li, ke ŝi staras sur la tegmento; kaj vere tie ŝi staris kaj disbatis la brakojn
 
 tiel laŭte kriante, ke oni povis aŭdi ŝin je mejla distanco. Per
 
@@ -19759,14 +15780,9 @@ miaj propraj okuloj kaj oreloj mi vidis kaj aŭdis ŝin. ŝi estis
 alta, forta virino kun longaj nigraj haroj, ni vidis ilin flirti en
 
 
-JANE EYRE
-
-
 la vento, dum la flamoj jam ĉirkaŭis ŝin. Mi vidis, kaj multaj
 
-aliaj vidis, ke sinjoro Rochester rampis tra la tegmenta fenes-
-
-tro kriante: Berta! Berta! Ni vidis, kiel li proksimiĝis al ŝi; kaj
+aliaj vidis, ke sinjoro Rochester rampis tra la tegmenta fenestro kriante: Berta! Berta! Ni vidis, kiel li proksimiĝis al ŝi; kaj
 
 subite ŝi eligis teruran krion, saltis — kaj tuj poste ŝi kuŝis
 
@@ -19796,9 +15812,7 @@ nur ruino.”
 
 ”Kion vi volas diri per tio?”
 
-”Kompatinda sinjoro Edward!” li kriis, ”ke mi devis ĝisvi-
-
-vi tion, tion mi neniam pensis. Kelkaj diras, ke li estas juste
+”Kompatinda sinjoro Edward!” li kriis, ”ke mi devis ĝisvivi tion, tion mi neniam pensis. Kelkaj diras, ke li estas juste
 
 punita, ĉar li tenis en sekreto sian unuan edziĝon kaj volis
 
@@ -19821,16 +15835,11 @@ li estus mortinta.”
 li ja estas kvazaŭ katenita!”
 
 
-JANE EYRE
-
-
 Kia angoro min kaptis! Kaj ĉi tiu viro ŝajnis esti decidinta
 
 daŭrigi tiun angoron kiel eble plej longe.
 
-”Li estas tute blinda,” li diris fine. ”Jes, jes, li estas tute blin-
-
-da, la kompatinda sinjoro Edward.”
+”Li estas tute blinda,” li diris fine. ”Jes, jes, li estas tute blinda, la kompatinda sinjoro Edward.”
 
 Mi atendis ion pli teruran. Mi timis, ke li fariĝis freneza. Mi
 
@@ -19856,9 +15865,7 @@ elbatita al li kaj unu mano tiel frakasita, ke sinjoro Carter, la
 
 kirurgo tuj devis amputi ĝin. La alia okulo estis inflamita kaj
 
-poste perdis ankaŭ la vidkapablon. Nun li estas tute help-
-
-bezona, — tute helpbezona, vere, blinda kaj kripligita.”
+poste perdis ankaŭ la vidkapablon. Nun li estas tute helpbezona, — tute helpbezona, vere, blinda kaj kripligita.”
 
 ”Kie li estas? Kie li loĝas nun?”
 
@@ -19883,14 +15890,9 @@ Ferndean antaŭ ol mallumiĝis, tiam mi donos al vi kaj al li
 duoblan pagon.”
 
 
-JANE EYRE
-
-
 ĉapitro XXXVII.
 
-La sinjora domo en Ferndean estis jam malnova konstru-
-
-aĵo de meza grandeco kaj tute ne arkitektura belaĵo. i
+La sinjora domo en Ferndean estis jam malnova konstruaĵo de meza grandeco kaj tute ne arkitektura belaĵo. i
 
 kuŝis meze de la arbaro. Pli frue mi ofte aŭdis paroli pri ĝi.
 
@@ -19900,9 +15902,7 @@ multfoje iris tien. Lia patro antaŭe aĉetis la bienon pro ĝiaj
 
 vastaj ĉasejoj. Volonte li poste ludonus la domon, sed pro la
 
-maloportuna situo ne povis trovi luanton. Tial ĝi restis neme-
-
-blita kaj neloĝata, escepte de tri ĉambroj, kiuj estis pretaj por
+maloportuna situo ne povis trovi luanton. Tial ĝi restis nemeblita kaj neloĝata, escepte de tri ĉambroj, kiuj estis pretaj por
 
 la posedanto, kiam li pasigis tie la ĉasan sezonon.
 
@@ -19916,28 +15916,17 @@ promesitan sumon kaj reirigis lin per sia veturileto.
 
 Eĉ starante tre proksime de la domo, oni ne povis vidi ĝin,
 
-tiel dense ĝi estis ĉirkaŭita de la malhelaj arboj. Fera porde-
-
-go inter du kolonoj el granito montris al mi, kie mi devas en-
+tiel dense ĝi estis ĉirkaŭita de la malhelaj arboj. Fera pordego inter du kolonoj el granito montris al mi, kie mi devas en-
 
 iri, kaj trairinte la pordegon mi ree trovis min sub la densaj
 
 suproj de longa vico de arboj. Inter la altaj musko-kovritaj
 
-arbotrunkoj kaj arbetaĵo sin etendis la de herbo plenkreski-
+arbotrunkoj kaj arbetaĵo sin etendis la de herbo plenkreskita vojo. Mi laŭiris ĝin atendante baldaŭ atingi loĝejojn; sed ĝi
 
-ta vojo. Mi laŭiris ĝin atendante baldaŭ atingi loĝejojn; sed ĝi
+etendiĝis pli kaj pli antaŭen kaj nenie mi vidis domon aŭ parkon.
 
-etendiĝis pli kaj pli antaŭen kaj nenie mi vidis domon aŭ par-
-
-kon.
-
-Mi kredis, ke mi iris en malĝustan direkton. La mallume-
-
-co de la vespero kaj de la arbaro fariĝis pli kaj pli malpene-
-
-
-JANE EYRE
+Mi kredis, ke mi iris en malĝustan direkton. La mallumeco de la vespero kaj de la arbaro fariĝis pli kaj pli malpene-
 
 
 trebla. Mi rigardis ĉirkaŭe por serĉi alian vojon, sed nenie ĝi
@@ -19948,9 +15937,7 @@ densa somerfoliaro.
 
 Mi iris pluen. Fine la vojeto plilarĝiĝis, la arboj staris malpli
 
-dense; nun mi vidis latbarilon, poste domon preskaŭ ne dis-
-
-tingeblan de la arboj pro la pligrandiĝanta mallumo, tiel mal-
+dense; nun mi vidis latbarilon, poste domon preskaŭ ne distingeblan de la arboj pro la pligrandiĝanta mallumo, tiel mal-
 
 sekaj kaj muskokovritaj estis ĝiaj muroj.
 
@@ -19972,19 +15959,13 @@ jam diris, tre malĝojiga loko. ĉio estis silenta, kiel en preĝejo
 
 meze de la semajno; la pluvo, kiu senhalte falis sur la foliaron,
 
-faris la solan brueton, kiu frapis mian orelon, kaj mi deman-
-
-dis min:
+faris la solan brueton, kiu frapis mian orelon, kaj mi demandis min:
 
 ”ĉu ĉi tie povas loĝi vivaj estaĵoj?”
 
-Jes, ĉi tie loĝis iu, ĉar mi aŭdis ion. La mallarĝa pordo mal-
+Jes, ĉi tie loĝis iu, ĉar mi aŭdis ion. La mallarĝa pordo malfermiĝis kaj figuro estis elironta la konstruaĵon.
 
-fermiĝis kaj figuro estis elironta la konstruaĵon.
-
-La pordo malrapide malfermiĝis, figuro eliris en la mal-
-
-lumon, viro sen ĉapelo, li etendis la manon kvazaŭ por sen-
+La pordo malrapide malfermiĝis, figuro eliris en la mallumon, viro sen ĉapelo, li etendis la manon kvazaŭ por sen-
 
 ti, ĉu pluvas. Malgraŭ la mallumo mi rekonis lin — li estis mia
 
@@ -20001,16 +15982,9 @@ mi, estis tuj bridata de la teruro, kiun ĝi inspiris. Ne estis al
 mi malfacile reteni krion, mi ne estis tentata rapidi al li. Lia
 
 
-JANE EYRE
+figuro havis la saman fortan eksteraĵon kiel antaŭe; lia sintenado estis rekta, liaj haroj korve nigraj, liaj trajtoj ne estis
 
-
-figuro havis la saman fortan eksteraĵon kiel antaŭe; lia sinte-
-
-nado estis rekta, liaj haroj korve nigraj, liaj trajtoj ne estis
-
-ŝanĝiĝintaj; unu jaro de ĉagreno kaj sufero ne kapablis kur-
-
-bigi lin, rompi lian noblan viran fortecon. Sed mi rimarkis
+ŝanĝiĝintaj; unu jaro de ĉagreno kaj sufero ne kapablis kurbigi lin, rompi lian noblan viran fortecon. Sed mi rimarkis
 
 ŝanĝon en lia vizaĝesprimo; ĝi estis malluma kaj senespera —
 
@@ -20028,9 +16002,7 @@ blinda sovaĝeco? Se tiel estas, vi konas min nur malbone. En
 
 mia ĉagreno sin miksis la dolĉa espero, ke mi baldaŭ sukcesos
 
-premi kison sur tiun marmoran frunton, kaj sur tiujn prem-
-
-fermitajn lipojn — sed — sed ankoraŭ ne nun. Mi ankoraŭ ne
+premi kison sur tiun marmoran frunton, kaj sur tiujn premfermitajn lipojn — sed — sed ankoraŭ ne nun. Mi ankoraŭ ne
 
 volis paroli al li.
 
@@ -20040,9 +16012,7 @@ direktis al la herbejo. Kie estis liaj firmaj paŝoj? Li haltis subite
 
 kvazaŭ nesciante en kiun direkton iri. Li levis la manon kaj
 
-malfermis la palpebrojn, levis ilin, ŝajne kun streĉita peno ĉie-
-
-len kaj poste al la amfiteatro de la arbaro — sed por li ĉio estis
+malfermis la palpebrojn, levis ilin, ŝajne kun streĉita peno ĉielen kaj poste al la amfiteatro de la arbaro — sed por li ĉio estis
 
 malplena kaj nur mallumo. Li etendis la manon (la senmanan
 
@@ -20054,9 +16024,7 @@ sed ankaŭ tie li trovis nur malplenan spacon, ĉar la arbovicoj
 
 staris kelkajn metrojn pli malproksime. Li tial forlasis sian
 
-klopodon, krucis la brakojn kaj staris senmove kaj senparo-
-
-le en la pluvo, kiu nun seninterrompe falis sur lian nekovritan
+klopodon, krucis la brakojn kaj staris senmove kaj senparole en la pluvo, kiu nun seninterrompe falis sur lian nekovritan
 
 kapon.
 
@@ -20065,12 +16033,7 @@ En tiu momento John, kiun mi ĝis nun ne rimarkis, iris al
 li.
 
 
-JANE EYRE
-
-
-”Sinjoro, ĉu vi volas preni mian brakon?” li diris, ”ĉar plu-
-
-vas torente. Estus pli bone, se vi irus en la domon.”
+”Sinjoro, ĉu vi volas preni mian brakon?” li diris, ”ĉar pluvas torente. Estus pli bone, se vi irus en la domon.”
 
 ”Lasu min!” li respondis. John sin retiris, ne vidante min.
 
@@ -20080,9 +16043,7 @@ tro malcerta. Palpserĉante li reiris al la domo kaj eniris ĝin,
 
 fermante post si la pordon.
 
-Nun mi alproksimiĝis kaj frapis. La edzino de John malfer-
-
-mis al mi la pordon.
+Nun mi alproksimiĝis kaj frapis. La edzino de John malfermis al mi la pordon.
 
 ”Maria,” mi diris ”kiel vi fartas?”
 
@@ -20092,9 +16053,7 @@ laŭta krio: ”ĉu vere vi estas tie, fraŭlino, tiel mafrue venanta
 
 al ĉi tiu soleca loko?” Mi respondis nur kaptante ŝian manon.
 
-Poste mi sekvis ŝin en la kuirejon, kie John estis sidanta an-
-
-taŭ hele brulanta fajro.
+Poste mi sekvis ŝin en la kuirejon, kie John estis sidanta antaŭ hele brulanta fajro.
 
 Per malmultaj vortoj mi klarigis al ili, ke mi scias jam ĉion,
 
@@ -20104,9 +16063,7 @@ vidi sinjoron Rochester. Mi petis John iri al la vojbarila domo,
 
 al kiu mi estis konfidinta mian kofron, post kiam mi resendis
 
-la veturileton, kaj por alporti ĝin al Ferndean. Tiam mi forme-
-
-tis de mi la ĉapelon kaj la ŝalon kaj petis Marian, ĉu ŝi por tiu
+la veturileton, kaj por alporti ĝin al Ferndean. Tiam mi formetis de mi la ĉapelon kaj la ŝalon kaj petis Marian, ĉu ŝi por tiu
 
 nokto povus konsenti al mi tranokti en la domo kaj vidante,
 
@@ -20129,9 +16086,6 @@ Kiam ŝi revenis, mi demandis, kion li diris.
 ”Li informiĝas pri via nomo kaj pri la celo de via vizito,” ŝi
 
 
-JANE EYRE
-
-
 respondis, kaj plenigis glason per akvo metante ĝin kun du
 
 kandeloj sur pleton.
@@ -20146,9 +16100,7 @@ malgraŭ sia blindeco.”
 
 Mi prenis ĝin el ŝia mano kaj ŝi montris al mi la pordon de
 
-la familia ĉambro. La pleto tremis en mia mano kaj mi dis-
-
-verŝis la akvon; mia koro aŭdeble batis en mia brusto. Maria
+la familia ĉambro. La pleto tremis en mia mano kaj mi disverŝis la akvon; mia koro aŭdeble batis en mia brusto. Maria
 
 malfermis por mi la pordon kaj fermis ĝin ree post mi.
 
@@ -20156,21 +16108,15 @@ La ĉambro aspektis mallume; malbone prizorgita fajro
 
 fumaĵis en la kameno, kaj klinita super ĝi kun la kapo apogita
 
-sur la alta kamen-kornico, staris la blinda loĝanto de la ĉam-
-
-bro. La aĝa hundo Piloto kuŝis ĉe lia flanko; ŝajnis ke ĝi sin-
+sur la alta kamen-kornico, staris la blinda loĝanto de la ĉambro. La aĝa hundo Piloto kuŝis ĉe lia flanko; ŝajnis ke ĝi sin-
 
 garde eliris el lia vojo timante esti puŝata per la piedoj. Kiam
 
-mi eniris, Piloto starigis la orelojn; tiam ĝi krietante salte levi-
-
-ĝis kaj rapidis al mi, preskaŭ puŝante la pleton el mia mano.
+mi eniris, Piloto starigis la orelojn; tiam ĝi krietante salte leviĝis kaj rapidis al mi, preskaŭ puŝante la pleton el mia mano.
 
 Mi metis ĝin sur la tablon, karesis la hundon flustrante:
 
-”kuŝiĝu Piloto!” Mehanike sinjoro Rochester sin turnis, kva-
-
-zaŭ por vidi, de kie venas la movo. Sed povante vidi nenion,
+”kuŝiĝu Piloto!” Mehanike sinjoro Rochester sin turnis, kvazaŭ por vidi, de kie venas la movo. Sed povante vidi nenion,
 
 li ree turnis la kapon kaj eligis laŭtan ĝemon.
 
@@ -20193,9 +16139,6 @@ tablon.
 ”Maria estas en la kuirejo,” mi respondis.
 
 
-JANE EYRE
-
-
 Kun subita gesto li etendis la manon, sed ne vidante, kie mi
 
 staras, li ne tuŝis min.
@@ -20204,9 +16147,7 @@ staras, li ne tuŝis min.
 
 klopodis vidi per la kompatindaj okuloj. Sed la klopodo estis
 
-vana! ”Respondu min, parolu ankoraŭfoje!” li laŭte kaj ordo-
-
-ne diris.
+vana! ”Respondu min, parolu ankoraŭfoje!” li laŭte kaj ordone diris.
 
 ”ĉu vi volas ankoraŭ iom da akvo, sinjoro? Mi disĵetis la
 
@@ -20218,9 +16159,7 @@ duonon de tio, kio estis en la glaso,” mi diris.
 
 tie. Mi venis nur hodiaŭ vespere,” mi respondis.
 
-”ĉiopotenca Dio! Kia trompo min kaptis? Kia dolĉa frene-
-
-zo ekregas min?”
+”ĉiopotenca Dio! Kia trompo min kaptis? Kia dolĉa frenezo ekregas min?”
 
 ”Neniu trompo — neniu frenezo, sinjoro! Via spirito estas
 
@@ -20236,17 +16175,13 @@ kaj mia kapo rompiĝos. Kiu ajn vi estas —tuŝu min, alie mi ne
 
 povas vivi!”
 
-Li palpis ĉirkaŭe. Mi kaptis lian serĉantan manon kaj pre-
-
-mis ĝin en la miajn.
+Li palpis ĉirkaŭe. Mi kaptis lian serĉantan manon kaj premis ĝin en la miajn.
 
 ”ŝiaj fingroj!” li kriis, ”ŝiaj malgrandaj, delikataj fingroj! Kaj
 
 se ŝiaj fingroj estas ĉi tie, ankaŭ pli multe da ŝi estas ĉi tie.”
 
-La muskola mano sin detiris de la miaj, li kaptis mian bra-
-
-kon mian ŝultron — mian kolon — mian talion — li tiris min
+La muskola mano sin detiris de la miaj, li kaptis mian brakon mian ŝultron — mian kolon — mian talion — li tiris min
 
 al si kaj ĉirkaŭbrakis min.
 
@@ -20255,9 +16190,6 @@ al si kaj ĉirkaŭbrakis min.
 tuta persono —”
 
 ”Kaj tio estas ŝia voĉo,” mi aldonis. ”ŝi estas ĉi tie, kun sia
-
-
-JANE EYRE
 
 
 tuta persono, kaj ankaŭ sia koro. Dio vin benu, sinjoro! Mi
@@ -20276,9 +16208,7 @@ estas mia vivanta Jane?”
 
 ”Vi ja tenas min, sinjoro — vi ja tenas min, kaj eĉ firme
 
-tenas min. Mi ne estas malvarma, kiel mortinto, ne travide-
-
-bla kiel la aero, ĉu ne?
+tenas min. Mi ne estas malvarma, kiel mortinto, ne travidebla kiel la aero, ĉu ne?
 
 ”Mia karulino vivas! ĉi tio estas ŝiaj membroj! ĉi tio estas
 
@@ -20294,35 +16224,23 @@ mi esperis, ke ŝi ne plu forlasos min. ”.
 
 ”Kaj de nun mi tion ne plu faros, sinjoro.”
 
-”Ne plu faros tion, ĉu la vizio diras tion? Sed ĉiam mi veki-
-
-ĝis kaj spertis, ke ĉio estis nur amara trompo; kaj denove mi
+”Ne plu faros tion, ĉu la vizio diras tion? Sed ĉiam mi vekiĝis kaj spertis, ke ĉio estis nur amara trompo; kaj denove mi
 
 estis soleca kaj forlasita — mia vivo estis malluma, mizera,
 
-senespera — mia animo soifis, kaj neniu donis al mi refreŝi-
-
-gan trinkaĵon — mia koro malsatis, kaj la nutraĵo estis al ĝi
+senespera — mia animo soifis, kaj neniu donis al mi refreŝigan trinkaĵon — mia koro malsatis, kaj la nutraĵo estis al ĝi
 
 rifuzita. Ho, dolĉa sonĝo, ĉar nun vi estas inter miaj brakoj,
 
 ĉu ankaŭ vi forkuros de mi kiel ĉiuj viaj fratoj forkuris antaŭe.
 
-Sed kisu min antaŭ ol forkuri! Kisu min, mia Jane, mia ama-
-
-tino!”
+Sed kisu min antaŭ ol forkuri! Kisu min, mia Jane, mia amatino!”
 
 ”Jes sinjoro, unu fojon — kaj ankoraŭ unu fojon!”
 
 Mi premis miajn lipojn sur liajn, antaŭe tiel brilantajn sed
 
-nun tute senbrilajn okulojn — mi ŝovis la harojn de lia frun-
-
-
-JANE EYRE
-
-
-to kaj ankaŭ kisis tiun. Subite li ŝajnis tute vekiĝi; li konsciis
+nun tute senbrilajn okulojn — mi ŝovis la harojn de lia frunto kaj ankaŭ kisis tiun. Subite li ŝajnis tute vekiĝi; li konsciis
 
 pri tio, kio okazis!
 
@@ -20344,9 +16262,7 @@ funtojn.”
 
 ”Ho! tio estas praktika! Nun ni revenis al la realo!” li kriis,
 
-”ion tian mi neniam kuraĝis imagi! Mi aŭdas refoje ŝian pro-
-
-pran voĉon, tiel vivigan, tiel ĉarman, tiel pikantan kaj tamen
+”ion tian mi neniam kuraĝis imagi! Mi aŭdas refoje ŝian propran voĉon, tiel vivigan, tiel ĉarman, tiel pikantan kaj tamen
 
 tiel dolĉan. Mia malsana koro refreŝiĝas, ĉar mi aŭdas vin
 
@@ -20383,9 +16299,6 @@ malĝoja: mi estos via fraŭlino de akompano. Mi laŭtlegos al
 vi, mi promenos kun vi, ĉiam estos ĉe vi, respondos viajn
 
 
-JANE EYRE
-
-
 demandojn, servos al vi, mi estos viaj okuloj kaj manoj. Mia
 
 kara sinjoro, nun ne aspektu plu tiel malĝoja; tiel longe, kiel
@@ -20394,9 +16307,7 @@ mi vivos, vi ne estos plu soleca.”
 
 Li respondis nenion; li ŝajnis esti serioza — droninta en
 
-pensoj. Li dispartigis la lipojn kvazaŭ por paroli, sed ree fer-
-
-mis la buŝon. Mi estis iom embarasita. Eble mi transiris la
+pensoj. Li dispartigis la lipojn kvazaŭ por paroli, sed ree fermis la buŝon. Mi estis iom embarasita. Eble mi transiris la
 
 limojn de bonmaniero tro rapide, kaj same kiel St. John li
 
@@ -20414,9 +16325,7 @@ malĝoja, min subite ekregis la penso, ke mi trompis min kaj
 
 ke mi agis kiel malsaĝulino. Tial mi iom post iom liberigis min
 
-el liaj brakoj — sed li premis min ankoraŭ pli forte al sia bru-
-
-sto.
+el liaj brakoj — sed li premis min ankoraŭ pli forte al sia brusto.
 
 ”Ne — ne — Jane; ne foriru de mi. Ne, mi sentis vin, mi
 
@@ -20438,25 +16347,15 @@ esti plenumata, alie ĝi plenumos teruran venĝon kontraŭ sia
 
 ”Jes, sed per tio vi celas ion, kion mi tute ne celas. Eble vi
 
-intencas per tio konstante esti apud mi por flegi min kiel bon-
-
-kora eta flegistino (ĉar vi havas sindonan koron kaj noblani-
+intencas per tio konstante esti apud mi por flegi min kiel bonkora eta flegistino (ĉar vi havas sindonan koron kaj noblani-
 
 man spiriton, kiuj instigas vin montri sinoferojn al tiuj, kiujn
 
-vi kompatas), kaj sendube tio devas sufiĉi por mi. Mi supo-
-
-
-JANE EYRE
-
-
-zas, ke mi devas havi por vi nur patrajn sentojn, ĉu ne? Nun
+vi kompatas), kaj sendube tio devas sufiĉi por mi. Mi supozas, ke mi devas havi por vi nur patrajn sentojn, ĉu ne? Nun
 
 respondu al mi.”
 
-”Mi volas pensi, kion vi deziras, sinjoro, mi estos konten-
-
-ta, se mi povus esti via flegistino, se vi tion deziras.”
+”Mi volas pensi, kion vi deziras, sinjoro, mi estos kontenta, se mi povus esti via flegistino, se vi tion deziras.”
 
 ”Sed vi ne povas ĉiam esti mia flegistino, Jane: vi estas juna
 
@@ -20472,9 +16371,7 @@ senokulaĉo!”
 
 Ree li ekdronis en malgajaj pensoj, sed mi fariĝis pli ĝoja
 
-kaj denove kuraĝiĝis. Liaj lastaj vortoj malfermis al mi la oku-
-
-lojn antaŭ la malfacilaĵoj. Por mi tamen, tiu malfacilaĵo ne
+kaj denove kuraĝiĝis. Liaj lastaj vortoj malfermis al mi la okulojn antaŭ la malfacilaĵoj. Por mi tamen, tiu malfacilaĵo ne
 
 ekzistis; miaj antaŭaj malcerteco kaj timo tute malaperis kaj
 
@@ -20486,9 +16383,7 @@ dum mi per la mano glatigis liajn malordiĝintajn harojn, ”ĉar
 
 mi vidas, ke iom post iom vi ŝanĝiĝas je leono aŭ io simila.
 
-Tute certe vi portas en vi ion pri la ”faux air” de Nebukadne-
-
-zar; viaj haroj memorigas min pri la plumoj de aglo; mi anko-
+Tute certe vi portas en vi ion pri la ”faux air” de Nebukadnezar; viaj haroj memorigas min pri la plumoj de aglo; mi anko-
 
 raŭ ne rimarkis, ĉu viaj ungoj sanĝiĝis en birdo-ungegojn.”
 
@@ -20500,21 +16395,14 @@ tirante la kripligitan brakon el la brustopoŝo kaj montrante
 
 mia eta Jane?,
 
-”Malĝoja vidaĵo! Kaj estas ankaŭ malĝoje rigardi viajn oku-
-
-lojn kaj la bruldifekton sur via frunto; kaj kio estas plej mal-
+”Malĝoja vidaĵo! Kaj estas ankaŭ malĝoje rigardi viajn okulojn kaj la bruldifekton sur via frunto; kaj kio estas plej mal-
 
 bona, oni estus inklina tro multe vin ami pro ĉiu tiu mizero
 
 kaj trodorloti vin.”
 
 
-JANE EYRE
-
-
-”Mi kredas, Jane ke vin kaptos teruro, se vi vidus mian bra-
-
-kon kaj mian difektitan vizaĝon.”
+”Mi kredas, Jane ke vin kaptos teruro, se vi vidus mian brakon kaj mian difektitan vizaĝon.”
 
 ”ĉu vere vi kredas tion? Sed ne diru tion al mi — pro timo,
 
@@ -20542,9 +16430,7 @@ aŭdi aŭ senti vin.”
 
 ”Neniam mi kutimas vespermanĝi.”
 
-”Hodiaŭ vespere vi tamen vespermanĝu. Mi estas malsa-
-
-ta, kaj mi estas certa, ke ankaŭ vi estas malsata, sed vi nur ne
+”Hodiaŭ vespere vi tamen vespermanĝu. Mi estas malsata, kaj mi estas certa, ke ankaŭ vi estas malsata, sed vi nur ne
 
 atentas pri tio.”
 
@@ -20558,37 +16444,24 @@ mi parolis kun li gaje kaj facile. Eĉ mi sukcesis mallongigi lian
 
 tempon per mia babilado. ĉi tie forestis ĉiu retenemo, ĉiu
 
-premita viveco kaj gajeco; ĉar antaŭ li mi sentis min tre sen-
+premita viveco kaj gajeco; ĉar antaŭ li mi sentis min tre senĝena, sciante ke mi estis al li agrabla. ĉio, kion mi diris aŭ
 
-ĝena, sciante ke mi estis al li agrabla. ĉio, kion mi diris aŭ
+faris, ŝajnis konsoli aŭ revivigi lin. Tio estas agrablega konscio! Tio vivigis kaj aperigis mian tutan proprecon. En lia
 
-faris, ŝajnis konsoli aŭ revivigi lin. Tio estas agrablega kon-
-
-scio! Tio vivigis kaj aperigis mian tutan proprecon. En lia
-
-apudeco mi vivis duoble, kaj li vivis en mia. Malgraŭ lia blin-
-
-deco ofte rideto kuris sur lia vizaĝo kaj ĝojo montriĝis sur lia
+apudeco mi vivis duoble, kaj li vivis en mia. Malgraŭ lia blindeco ofte rideto kuris sur lia vizaĝo kaj ĝojo montriĝis sur lia
 
 frunto. Liaj trajtoj estiĝis pli mildaj, pli molaj, pli feliĉkonsciaj.
 
 
-JANE EYRE
-
-
 Post la vespermanĝo li faris al mi multajn demandojn: kie
 
-mi antaŭe estis kaj faris kaj kiel mi sukcesis trovi lin. Mi res-
-
-pondis tamen nur parte, ĉar estis jam tro malfrue por pripa-
+mi antaŭe estis kaj faris kaj kiel mi sukcesis trovi lin. Mi respondis tamen nur parte, ĉar estis jam tro malfrue por pripa-
 
 roli specialajn detalojn. Krome mi ne deziris tuŝi delikatajn,
 
 vibrantajn kordojn, nek malfermi novan fonton de ekscito en
 
-lia koro; mia sola celo nun estis distri lin kaj tion mi jam fa-
-
-ris, sed nur iom post iom. Post paŭzo en nia interparolado, li
+lia koro; mia sola celo nun estis distri lin kaj tion mi jam faris, sed nur iom post iom. Post paŭzo en nia interparolado, li
 
 denove fariĝis senripoza, li tuŝis min kaj diris: ”Jane.”
 
@@ -20596,9 +16469,7 @@ denove fariĝis senripoza, li tuŝis min kaj diris: ”Jane.”
 
 tia?”
 
-”Pro honoro kaj konscienco, mi kredas ke jes, sinjoro Ro-
-
-chester.”
+”Pro honoro kaj konscienco, mi kredas ke jes, sinjoro Rochester.”
 
 ”Kiel do estis eble, ke tiel subite vi aperis sur mia soleca
 
@@ -20606,9 +16477,7 @@ kameno en ĉi tiu senkonsola vespero? Mi etendis la manon
 
 por preni glason da akvo de servistino — kaj vi donis ĝin al
 
-mi. Mi faris demandon kaj atendis, ke la edzino de John res-
-
-pondu min — kaj via voĉo sonis en miaj oreloj.”
+mi. Mi faris demandon kaj atendis, ke la edzino de John respondu min — kaj via voĉo sonis en miaj oreloj.”
 
 ”ĉar anstataŭ Maria mi estis enirinta en la ĉambron kun la
 
@@ -20616,15 +16485,11 @@ pleto.”
 
 ”Kaj vera sorĉo kuŝas en la horo, kiun mi nun pasigas kun
 
-vi. Neniu scias, kiel senkonsolan, malluman, malplenan, sen-
-
-esperan vivon mi trabatalis dum kelkaj monatoj! Mi havis plu
+vi. Neniu scias, kiel senkonsolan, malluman, malplenan, senesperan vivon mi trabatalis dum kelkaj monatoj! Mi havis plu
 
 nenion kaj atendis plu nenion; la tago ŝanĝiĝis en nokton, kaj
 
-mi ne rimarkis tion; mi sentis malvarmon, kiam mi lasis estin-
-
-giĝi la fajron; kaj malsaton, kiam mi estis forgesinta manĝi;
+mi ne rimarkis tion; mi sentis malvarmon, kiam mi lasis estingiĝi la fajron; kaj malsaton, kiam mi estis forgesinta manĝi;
 
 poste neniam finiĝantan doloron, kaj ofte preskaŭ frenezan
 
@@ -20633,9 +16498,6 @@ deziron ankoraŭ unu fojon revidi mian Jane. Jes, pli multe mi
 aspiris, ke vi estu redonata al mi ol reakiri la perditan lumon
 
 de miaj okuloj. Kiel estas eble, ke Jane estas ĉe mi kaj diras,
-
-
-JANE EYRE
 
 
 ke ŝi min amas? ĉu ŝi denove ne malaperos kiel ŝi revenis?
@@ -20648,15 +16510,11 @@ doni al li tre trivialan praktikan respondon, kiu havas nenion
 
 por fari kun lia nuna ekscitita pensirado. Tial mi glitigis la
 
-fingron trans liajn brovojn kaj rimarkis, ke ili estas bruldifek-
-
-titaj, sed mi konis rimedon, refoje fari ilin tiel larĝaj kaj nigraj,
+fingron trans liajn brovojn kaj rimarkis, ke ili estas bruldifektitaj, sed mi konis rimedon, refoje fari ilin tiel larĝaj kaj nigraj,
 
 kiel ili estis antaŭe.
 
-”Kian utilon tio havos, fari al mi ian bonon, ho bonfaran-
-
-ta feino, se en fatala momento vi tamen forlasos min? Se vi
+”Kian utilon tio havos, fari al mi ian bonon, ho bonfaranta feino, se en fatala momento vi tamen forlasos min? Se vi
 
 forŝteliĝos de mi kiel ombro kaj mi ne scias kial kaj kien, kaj
 
@@ -20686,9 +16544,7 @@ ne forlasis vin.”
 
 centfoje pli bonaj; kiuj havas ideojn kaj opiniojn, kiujn vi dum
 
-via tuta vivo neniam konis; kiuj estas pli delikataj kaj pli ci-
-
-vilizitaj ol vi!”
+via tuta vivo neniam konis; kiuj estas pli delikataj kaj pli civilizitaj ol vi!”
 
 ”Pro la diablo, ĉe kiuj vi do estis?”
 
@@ -20699,14 +16555,9 @@ vi la harojn; kaj tiaokaze vi espereble perdos ĉiun dubon pri
 mia apudesto.”
 
 
-JANE EYRE
-
-
 ”ĉe kiuj vi do estis, Jane?”
 
-”Hodiaŭ vespere vi ne sukcesos rakontigi tion al vi, sinjo-
-
-ro; vi devas atendi ĝis morgaŭ; vi scias, ke estos speco de cer-
+”Hodiaŭ vespere vi ne sukcesos rakontigi tion al vi, sinjoro; vi devas atendi ĝis morgaŭ; vi scias, ke estos speco de cer-
 
 teco por vi, ke mi ree aperos morgaŭ matene je matenmanĝo,
 
@@ -20720,9 +16571,7 @@ parolante pri fritita ŝ.”
 
 ”Ho mokema sorĉistino! — naskita de feino kaj edukita de
 
-homoj! Dum dek du monatoj mi ne spertis, kion mi nun sper-
-
-tas pere de vi. Se Saul estus veniginta vin al Davido, tiam la
+homoj! Dum dek du monatoj mi ne spertis, kion mi nun spertas pere de vi. Se Saul estus veniginta vin al Davido, tiam la
 
 malbonaj spiritoj estus ankaŭ ekzorcitaj sen la harpo.”
 
@@ -20742,28 +16591,19 @@ la ŝtuparon, mi ridis ankoraŭ.
 
 ”Jen bonega ideo!” mi pensis, plena de ĝojo. ”Mi vidas, ke
 
-mi posedas la rimedon, tiom turmenteti lin, ke lia melanko-
-
-lio almenaŭ dum mallonga tempo ne plu regos lin.”
+mi posedas la rimedon, tiom turmenteti lin, ke lia melankolio almenaŭ dum mallonga tempo ne plu regos lin.”
 
 Jam tre frue la sekvintan matenon mi aŭdis lin senripoze
 
-promeni tien kaj reen de unu ĉambro en alian. Tuj kiam Ma-
-
-ria venis malsupren, mi aŭdis lin demandi: ”ĉu fraŭlino Eyre
+promeni tien kaj reen de unu ĉambro en alian. Tuj kiam Maria venis malsupren, mi aŭdis lin demandi: ”ĉu fraŭlino Eyre
 
 estas ĉi tie?” kaj poste: ”Kiun ĉambron vi pretigis por ŝi? ĉu
 
-ĝi estis seka? ĉu ŝi jam leviĝis? Iru kaj demandu, ĉu ŝi bezo-
-
-nas ion kaj kiam ŝi venos malsupren.”
+ĝi estis seka? ĉu ŝi jam leviĝis? Iru kaj demandu, ĉu ŝi bezonas ion kaj kiam ŝi venos malsupren.”
 
 Mi venis malsupren, tuj kiam mi pensis, ke la matenmanĝo
 
 estas preta. Tre mallaŭte mi eniris en la ĉambron kaj vidis lin
-
-
-JANE EYRE
 
 
 antaŭ ol li rimarkis mian apudeston. Estis vere malĝoje vidi,
@@ -20788,15 +16628,11 @@ mian animon! Tamen mi alparolis lin per la tuta gajeco, kiun
 
 mi en tiu momento povis montri:
 
-”La mateno estas hela kaj suna, sinjoro,” mi diris. ”Ne plu-
-
-vas plu kaj la suno lumas tiel milde; ni povus fari promenon
+”La mateno estas hela kaj suna, sinjoro,” mi diris. ”Ne pluvas plu kaj la suno lumas tiel milde; ni povus fari promenon
 
 duope.”
 
-Mi estis viviginta ĉiun brilon, pri kiu mi ĵus parolis; lia viza-
-
-ĝo heliĝis.
+Mi estis viviginta ĉiun brilon, pri kiu mi ĵus parolis; lia vizaĝo heliĝis.
 
 ”Ho, ĉu vere estas tie mia kara alaŭdo! Venu al mi. ĉu vi
 
@@ -20814,9 +16650,7 @@ mi estas, ke ŝi ne estas silentema!) kaj sunbrilon mi sentas nur
 
 en ŝia apudeco.”
 
-La larmoj eniris en miajn okulojn, kiam mi aŭdis la konfe-
-
-son de lia dependeco. Estis ĝuste kvazaŭ reĝa aglo, katenita
+La larmoj eniris en miajn okulojn, kiam mi aŭdis la konfeson de lia dependeco. Estis ĝuste kvazaŭ reĝa aglo, katenita
 
 al sia stango, petegus paseron, ke ĝi estu ĝia provizisto. Sed
 
@@ -20824,21 +16658,11 @@ mi ne volis plori, mi forviŝis la larmojn kaj pretigis por li la
 
 matenmanĝon.
 
-La plej grandan parton de la mateno ni pasigis eksterdo-
+La plej grandan parton de la mateno ni pasigis eksterdome. Mi kondukis lin tra la sovaĝa arbaro sur la sunplenan
 
+kamparon; mi rakontis al li, kiel freŝe verdaj ili estas; kiel refreŝiĝinte aspektas la floroj kaj plekto-bariloj post la pluvo,
 
-JANE EYRE
-
-
-me. Mi kondukis lin tra la sovaĝa arbaro sur la sunplenan
-
-kamparon; mi rakontis al li, kiel freŝe verdaj ili estas; kiel re-
-
-freŝiĝinte aspektas la floroj kaj plekto-bariloj post la pluvo,
-
-kiel brile blua estas la ĉielo. Sur soleca, agrabla loko mi ser-
-
-ĉis por li sidejon: sekan arbostumpon. Kiam li estis sidanta,
+kiel brile blua estas la ĉielo. Sur soleca, agrabla loko mi serĉis por li sidejon: sekan arbostumpon. Kiam li estis sidanta,
 
 mi ne kontraŭstaris, kiam li tiris min sur sian genuon. Kaj kial
 
@@ -20850,9 +16674,7 @@ paco!
 
 Subite li ĉirkaŭbrakis min kriante:
 
-”Kruela, kruela forkurintino! Ho Jane, kion mi sentis, mal-
-
-kovrante, ke vi forkuris de Thornfield, kaj ke nenie mi povas
+”Kruela, kruela forkurintino! Ho Jane, kion mi sentis, malkovrante, ke vi forkuris de Thornfield, kaj ke nenie mi povas
 
 retrovi vin; kiam mi traserĉis vian ĉambron kaj vidis, ke vi
 
@@ -20888,17 +16710,9 @@ Li diris, ke mi ne devus lin forlasi tiel tute sen mono, por
 
 serĉi mian vojon; mi devus sciigi al li mian intencon. Mi
 
-devus fidi lin, ĉar neniam li estus deviginta min estiĝi lia ama-
+devus fidi lin, ĉar neniam li estus deviginta min estiĝi lia amatino. Kiel ajn kolera li estis en sia senespero, li vere min amis
 
-
-JANE EYRE
-
-
-tino. Kiel ajn kolera li estis en sia senespero, li vere min amis
-
-tro multe kaj tro kore por iam fariĝi mia tirano. Li estus dona-
-
-cinta al mi sian duonan havaĵon ne postulante eĉ unu kison
+tro multe kaj tro kore por iam fariĝi mia tirano. Li estus donacinta al mi sian duonan havaĵon ne postulante eĉ unu kison
 
 kiel rekompencon; sed mi ne forkuru senmona, senhelpa,
 
@@ -20906,19 +16720,13 @@ senamika por vagi en la mondo. Li diris, ke li estas certa pri
 
 tio, ke mi suferis multe pli multe ol mi nun al li konfesis.
 
-”Nu, kiaj ajn estu miaj sufero kaj manko, ili tamen ne daŭ-
+”Nu, kiaj ajn estu miaj sufero kaj manko, ili tamen ne daŭris longe,” mi respondis kaj daŭrigis rakonti, kiel oni akcep-
 
-ris longe,” mi respondis kaj daŭrigis rakonti, kiel oni akcep-
-
-tis min en Moor House, kiel mi ricevis la oficon de instruis-
-
-tino en vilaĝa lernejo kaj tiel plu. Rakontante sinsekve plue mi
+tis min en Moor House, kiel mi ricevis la oficon de instruistino en vilaĝa lernejo kaj tiel plu. Rakontante sinsekve plue mi
 
 poste klarigis kiel mi akiris mian havaĵon kaj kiel mi eksciis,
 
-ke mi estas ĉe parencoj. Kompreneble dum la rakonto mi ve-
-
-nis al la nomo de St. John Rivers kaj ofte mi ripetis tiun
+ke mi estas ĉe parencoj. Kompreneble dum la rakonto mi venis al la nomo de St. John Rivers kaj ofte mi ripetis tiun
 
 nomon. Kiam mi finis, li tuj menciis ĝin, demandante:
 
@@ -20955,14 +16763,9 @@ havas la plej bonajn intencojn, ĉu ne? kaj oni skuas la ŝultrojn
 aŭdante lin paroli, ne vere?”
 
 
-JANE EYRE
-
-
 ”Li parolas malmulte; sed tio, kion li diras, ĉiam trafas la
 
-celon. Li estas tre prudenta — laŭ mia opinio — ne tre impre-
-
-sema, sed potenca.”
+celon. Li estas tre prudenta — laŭ mia opinio — ne tre impresema, sed potenca.”
 
 ”Sekve, li estas kapabla viro, ĉu ne?
 
@@ -20978,9 +16781,7 @@ laŭ via gusto? — afektitaj kaj pastraj?”
 
 ”Mi tute ne parolis pri liaj manieroj; sed mia gusto estus tre
 
-malbona, se ili ne plaĉus al mi. Li estas ĝentila, kvieta kaj kon-
-
-stante sin regas.”
+malbona, se ili ne plaĉus al mi. Li estas ĝentila, kvieta kaj konstante sin regas.”
 
 ”Kiel li aspektas, — mi tute forgesis pri tio, kion vi diris pri
 
@@ -21012,27 +16813,18 @@ premis lin teren. Tial mi ne tuj volis forpeli la ĵaluzon.
 
 ”Eble estos al vi maloportune, fraŭlino Eyre, sidi ankoraŭ
 
-pli longe sur mia genuo, ĉu ne?” li fine kaj neatendite rimar-
-
-kis.
+pli longe sur mia genuo, ĉu ne?” li fine kaj neatendite rimarkis.
 
 ”Kial do, sinjoro Rochester?”
 
 
-JANE EYRE
-
-
 ”La bildo, kiun vi ĵus priskribis al mi, sendube pligrandigos
 
-la grandegan kontraston. Viaj paroloj pentris ĉarman Apolo-
-
-non; vi tre klare prezentas lin al la okuloj — svelta, pala, bluaj
+la grandegan kontraston. Viaj paroloj pentris ĉarman Apolonon; vi tre klare prezentas lin al la okuloj — svelta, pala, bluaj
 
 okuloj, greka profilo! Kaj nun viaj okuloj renkontas Vulkanon
 
-— veran forĝiston, brunan, larĝŝultran kaj krom tio kripligi-
-
-tan kaj blindan.”
+— veran forĝiston, brunan, larĝŝultran kaj krom tio kripligitan kaj blindan.”
 
 ”Pri tio mi ĝis nun ankoraŭ ne pensis; sed vi multe similas
 
@@ -21040,9 +16832,7 @@ Vulkanon, sinjoro.”
 
 ”Bone, bela fraŭlino. Nun forlasu min; sed antaŭ ol vi faras
 
-tion,” (kaj li tenis min pli firme ol antaŭe) ”vi havu la komple-
-
-zon respondi al mi ankoraŭ unu aŭ du demandojn.”
+tion,” (kaj li tenis min pli firme ol antaŭe) ”vi havu la komplezon respondi al mi ankoraŭ unu aŭ du demandojn.”
 
 Li eksilentis.
 
@@ -21068,9 +16858,7 @@ ke ĝi estis bona, ĉar vi estas talentplena kreitaĵo.”
 
 ”Li malkovris en vi multajn bonajn flankojn, kiujn li antaŭe
 
-ne atendis, ĉu ne? kelkaj el viaj talentoj estas ja eksterordina-
-
-raj.”
+ne atendis, ĉu ne? kelkaj el viaj talentoj estas ja eksterordinaraj.”
 
 ”Tion mi vere ne scias.”
 
@@ -21081,9 +16869,6 @@ ofte venis en ĝin por viziti vin?”
 ”Tiam kaj tiam.”
 
 ”Vespere?”
-
-
-JANE EYRE
 
 
 ”Unu — aŭ du fojojn.”
@@ -21147,9 +16932,6 @@ sed ankaŭ nia. Li kutime sidis apud la fenestro kaj ni ĉetable.”
 Sekvis dua paŭzo.
 
 
-JANE EYRE
-
-
 ”Kial li deziris tion? Kiun utilon alportus al vi tiu lingvo?”
 
 ”Li volis, ke mi iru kun li al Hindujo.”
@@ -21160,15 +16942,11 @@ lia edzino!”
 
 ”Li petis min, ke mi edziniĝu kun li.”
 
-”Tio estas mensogo — impertinenta mensogo por koleri-
-
-gi min!”
+”Tio estas mensogo — impertinenta mensogo por kolerigi min!”
 
 ”Mi petas pardonon, tio estas vera; li petis tion pli ol unu
 
-fojon kaj obstine sin tenis al sia volo, same kiel vi estus far-
-
-inta tion.”
+fojon kaj obstine sin tenis al sia volo, same kiel vi estus farinta tion.”
 
 ”Fraŭlino Eyre, mi ripetas ankoraŭfoje, vi forlasu min.
 
@@ -21188,33 +16966,21 @@ momento mi kredis, ke mia eta Jane apartenas nur al mi! Eĉ
 
 post kiam ŝi forkuris de mi, mi kredis ankoraŭ, ke ŝi min
 
-amas, — tio estis la sola atomo de dolĉeco en mia amara vivo-
+amas, — tio estis la sola atomo de dolĉeco en mia amara vivokaliko. Kiel longe ajn ni estis disigitaj — kiom ajn da varme-
 
-kaliko. Kiel longe ajn ni estis disigitaj — kiom ajn da varme-
-
-gaj larmoj mi verŝis pro nia disiĝo — mi tamen neniam kre-
-
-dis, ke ŝi amus iun alian, dum mi tiel kore malĝojis pro ŝi! Sed
+gaj larmoj mi verŝis pro nia disiĝo — mi tamen neniam kredis, ke ŝi amus iun alian, dum mi tiel kore malĝojis pro ŝi! Sed
 
 kio utilas al mi mia malĝojo! Jane, forlasu min! Iru for kaj
 
 edziniĝu kun Rivers.”
 
-”Vi do forpuŝas min de vi, sinjoro — forpuŝas min! Propra-
-
-vole mi ne forlasos vin.”
+”Vi do forpuŝas min de vi, sinjoro — forpuŝas min! Propravole mi ne forlasos vin.”
 
 ”Ho, Jane, kiel mi amas ankoraŭ la sonon de via voĉo! i
 
 vekas ĉe mi denove la esperon, ĝi sonas tiel honeste kaj fidele.
 
-Kiam mi ĝin aŭdas, ĝi rekondukas min tutan jaron en la estin-
-
-
-JANE EYRE
-
-
-tecon. Mi forgesas, ke vi kunigis novajn ligilojn! — Sed mi ne
+Kiam mi ĝin aŭdas, ĝi rekondukas min tutan jaron en la estintecon. Mi forgesas, ke vi kunigis novajn ligilojn! — Sed mi ne
 
 estas malsaĝulo — iru for —”
 
@@ -21234,9 +17000,7 @@ vi povas ami) belan, junan knabinon, Rosamond. Min li volis
 
 nur edziĝi ĉar li kredas, ke mi taŭgas kiel edzino de misiisto
 
-— kaj tion li ne atendis de Rosamond. Li estas bona kaj gran-
-
-da, sed severa, kaj antaŭ mi li estas malvarma kiel glacimonto.
+— kaj tion li ne atendis de Rosamond. Li estas bona kaj granda, sed severa, kaj antaŭ mi li estas malvarma kiel glacimonto.
 
 Li ne estas kiel vi, sinjoro; mi ne estas feliĉa ĉe lia flanko, nek
 
@@ -21258,9 +17022,7 @@ inter vi kaj St. John Rivers?”
 
 ”uste tiel, sinjoro. Ho, vi ne havas kaŭzon esti ĵaluza! Mi
 
-volis nur iom inciteti vin por tiri vin el via malĝojo. Mi kre-
-
-das, ke kolereto por vi estas pli bona ol ĉagreno. Se vi tamen
+volis nur iom inciteti vin por tiri vin el via malĝojo. Mi kredas, ke kolereto por vi estas pli bona ol ĉagreno. Se vi tamen
 
 dezirus, ke mi vin amu, se vi povus nur vidi, kiom mi vin
 
@@ -21273,12 +17035,7 @@ sorto estos tiel kruela, ke ĝi por ĉiam ekzilos mian ceteran
 ”min” el via apudeco!”
 
 
-JANE EYRE
-
-
-Li kisis min. Sed refoje malhelaj nuboj glitis trans lian frun-
-
-ton.
+Li kisis min. Sed refoje malhelaj nuboj glitis trans lian frunton.
 
 ”Mia perdita okulolumo! Mia paralizita forteco!” li malĝoje
 
@@ -21286,15 +17043,11 @@ murmuris.
 
 Mi karesis lin por kvietigi lin. Mi sciis, al kio li pensis;
 
-volonte mi volus paroli por li, sed mi ne kuraĝis. Kiam li tur-
-
-nis la kapon iom flanken, mi vidis flui larmon el sub liaj fer-
+volonte mi volus paroli por li, sed mi ne kuraĝis. Kiam li turnis la kapon iom flanken, mi vidis flui larmon el sub liaj fer-
 
 mitaj palpebroj kaj ruliĝi trans liajn bruniĝintajn vangojn.
 
-Mia koro laŭte kaj forte batis. Post longa silentado li rimar-
-
-kis: ”Nun mi ne estas io pli ol la maljuna nuksarbo trafita de
+Mia koro laŭte kaj forte batis. Post longa silentado li rimarkis: ”Nun mi ne estas io pli ol la maljuna nuksarbo trafita de
 
 la fulmo en la okcidenta parko de Thornfield Hall. Kaj kiun
 
@@ -21310,9 +17063,7 @@ El viaj radikoj elkreskos plantoj, indiferente ĉu vi petas tion
 
 al ili aŭ ne, ĉar ili amas vian bonfarantan ombron. Kaj kiel ili
 
-kreskas, ili apogos sin je vi kaj volviĝos ĉirkaŭ vi, ĉar via for-
-
-to transdonas al la malfortaj markotoj tian certan subtenon.”
+kreskas, ili apogos sin je vi kaj volviĝos ĉirkaŭ vi, ĉar via forto transdonas al la malfortaj markotoj tian certan subtenon.”
 
 Refoje li ridetis kaj mi konsolis lin.
 
@@ -21320,9 +17071,7 @@ Refoje li ridetis kaj mi konsolis lin.
 
 ”Jes, pri amikoj,” mi respondis iom hezitante, ĉar mi bone
 
-konsciis, ke mi celis pli multe ol amikojn. Sed mi ne tiel rapi-
-
-de trovis la ĝustan vorton. Tamen li helpis al mi.
+konsciis, ke mi celis pli multe ol amikojn. Sed mi ne tiel rapide trovis la ĝustan vorton. Tamen li helpis al mi.
 
 ”Ho, Jane! mi aspiras je edzino.”
 
@@ -21333,9 +17082,6 @@ de trovis la ĝustan vorton. Tamen li helpis al mi.
 ”Kompreneble! is nun vi tute ne aludis ion tian.”
 
 ”ĉu la sciigo estas al vi malbonvena?”
-
-
-JANE EYRE
 
 
 ”Tio dependas de cirkonstancoj, sinjoro — aŭ reale de via
@@ -21374,9 +17120,7 @@ rekompencu vin!”
 
 ”Sinjoro Rochester, se iam en mia vivo mi plenumis bonan
 
-aferon — se iam mi havis noblan penson — se mi sendis sup-
-
-ren sinceran preĝon — se mi havis justan deziron — tiam mi
+aferon — se iam mi havis noblan penson — se mi sendis supren sinceran preĝon — se mi havis justan deziron — tiam mi
 
 estas nun rekompencita. Fariĝi via edzino signifas por mi esti
 
@@ -21384,9 +17128,7 @@ tiel feliĉa, kiel iam mi povus esti en ĉi tiu mondo.”
 
 ”ĉar vi estas feliĉa, kiam vi faras oferon.”
 
-”Oferon! Kian oferon mi do faras? Malsategon por man-
-
-ĝaĵo! atendon por kontenteco. Ke estas al mi permesate ĉir-
+”Oferon! Kian oferon mi do faras? Malsategon por manĝaĵo! atendon por kontenteco. Ke estas al mi permesate ĉir-
 
 kaŭbraki, kion mi ŝatas — premi miajn lipojn sur tion, kion
 
@@ -21399,14 +17141,9 @@ Kaj se vere estas tiel, tiam mi estas feliĉa povi fari oferon.”
 mankojn?”
 
 
-JANE EYRE
-
-
 ”Por mi tio ne estas kripleco, nek mankoj, povi esti utila al
 
-vi; mi amas vin pli kore ol en la tempo de via fiera sendepen-
-
-deco, kiam vi malŝatis ĉiun rolon esceptinte tiun de donacan-
+vi; mi amas vin pli kore ol en la tempo de via fiera sendependeco, kiam vi malŝatis ĉiun rolon esceptinte tiun de donacan-
 
 to kaj protektanto.”
 
@@ -21418,9 +17155,7 @@ plu malamos tion. Estis al mi terure meti mian manon en tiun
 
 de dungito, sed estas bonfaro kiam la delikataj fingroj de Jane
 
-ĉirkaŭas ilin. Mi preferis absolutan solecon pli ol ĉiaman apu-
-
-decon de servistoj; sed la pacienca kondukado de Jane estos
+ĉirkaŭas ilin. Mi preferis absolutan solecon pli ol ĉiaman apudecon de servistoj; sed la pacienca kondukado de Jane estos
 
 por mi ĉiama ĝojo. Jane estas agrabla al mi. ĉu mi ankaŭ al
 
@@ -21463,14 +17198,9 @@ belaj vestoj kaj juveloj kaj tiaj aferoj: ĉio tio valoras nenion.”
 — fariĝis varmega vetero.”
 
 
-JANE EYRE
-
-
 ”ĉu vi scias, Jane, ke mi en ĉi tiu momento portas sur mia
 
-bronzkolora nuko sub mia kravato vian malgrandan perlo-
-
-ĉirkaŭkolon? Mi portas ĝin de la tago kiel memoraĵon je mia
+bronzkolora nuko sub mia kravato vian malgrandan perloĉirkaŭkolon? Mi portas ĝin de la tago kiel memoraĵon je mia
 
 perdita trezoro.”
 
@@ -21480,9 +17210,7 @@ Ne atentante miajn parolojn, li daŭrigis sian pensiradon.
 
 ”Jane, mi estas certa, ke vi rigardos min kiel idolanon, sed
 
-en ĉi tiu momento mia koro ŝvelas pro dankemo al la kom-
-
-patema Dio de ĉi tiu tero. Li ne vidas kiel la homo,j. Li vidas
+en ĉi tiu momento mia koro ŝvelas pro dankemo al la kompatema Dio de ĉi tiu tero. Li ne vidas kiel la homo,j. Li vidas
 
 pli klare. Li ne juĝos kiel homoj juĝas, sed pli saĝe. Mi agis
 
@@ -21498,9 +17226,7 @@ justeco iris sian vojon; la malfeliĉo preskaŭ premis min teren;
 
 mi estis devigata trairi tra la valon de la morto. Liaj punoj
 
-estas potencaj, kaj unu el ili min trafis, kiu por ĉiam humili-
-
-gis min. Vi scias, ke mi estis fiera pro mia forto. Kaj kio ĝi
+estas potencaj, kaj unu el ili min trafis, kiu por ĉiam humiligis min. Vi scias, ke mi estis fiera pro mia forto. Kaj kio ĝi
 
 estas nun? Mi devas transdoni min al la kondukado de aliuloj,
 
@@ -21522,33 +17248,22 @@ regis tre stranga animstato; anstataŭ koleron kaj frenezon mi
 
 sentis ĉagrenon, en loko de fiero mi sentis doloron. Jam longe
 
-estis vekiĝinta en mi la konv, ke sen dubo vi estas mor-
-
-tinta, ĉar nenie vi estis trovebla. Mafrue tiun vesperon — estis
-
-
-JANE EYRE
+estis vekiĝinta en mi la konv, ke sen dubo vi estas mortinta, ĉar nenie vi estis trovebla. Mafrue tiun vesperon — estis
 
 
 eble inter la dek-unua kaj la dek-dua — antaŭ ol mi kuŝigis
 
 sur mian senkonsolan liton, mi preĝis al Dio, ke Li baldaŭ, se
 
-plaĉus al Li, forprenu min de ĉi tiu vivo, en kiu mi estis per-
+plaĉus al Li, forprenu min de ĉi tiu vivo, en kiu mi estis perdinta la esperon revidi mian Jane.
 
-dinta la esperon revidi mian Jane.
-
-”Mi estis en mia ĉambro kaj sidis apud la malfermita fene-
-
-stro; la balzama nokta aero efikis sur min kvietigante. Mi ne
+”Mi estis en mia ĉambro kaj sidis apud la malfermita fenestro; la balzama nokta aero efikis sur min kvietigante. Mi ne
 
 povis vidi la stelojn, kaj nur unu pala hela nebulo montris al
 
 mi, ke la luno jam leviĝis. Ho, Jane, kaj mi sopiris al vi. Mi
 
-sopiris vrpe kaj anime. Mi demandis Dion — en ango-
-
-ro kaj humileco, ĉu mi ankoraŭ ne sufiĉe longe estis soleca,
+sopiris vrpe kaj anime. Mi demandis Dion — en angoro kaj humileco, ĉu mi ankoraŭ ne sufiĉe longe estis soleca,
 
 punita kaj turmentita; ĉu neniam plu mi trovos feliĉon kaj
 
@@ -21556,9 +17271,7 @@ pacon. Mi konfesis al Li, ke mi meritas ĉion, kion mi devas
 
 suferi — sed ke mi preskaŭ ne povos elporti pli multon. Kaj
 
-tiam la alfo kaj la omego de tuta mia kordeziro senvole eks-
-
-plodis de miaj lipoj per la vortoj:
+tiam la alfo kaj la omego de tuta mia kordeziro senvole eksplodis de miaj lipoj per la vortoj:
 
 ”Jane! Jane! Jane!”
 
@@ -21568,9 +17281,7 @@ plodis de miaj lipoj per la vortoj:
 
 kredinta min freneza, ĉar mi eldiris ilin kun freneza energio.”
 
-”Kaj tio okazis la lastan lundon vespere? ĉirkaŭ noktome-
-
-zo?”
+”Kaj tio okazis la lastan lundon vespere? ĉirkaŭ noktomezo?”
 
 ”Jes; sed la tempo estas sen signifo; kio tamen sekvis, tio
 
@@ -21591,9 +17302,6 @@ povas diri, de kie ĝi venis, sed mi scias, kies voĉo ĝi estis —
 la flustre parolitaj vortoj: ”Kie vi estas?”
 
 
-JANE EYRE
-
-
 ”Se mi povus, mi priskribus al vi la penson, la bildon, kiun
 
 tiuj vortoj disvolvis antaŭ mia animo; sed estas malfacile
@@ -21606,15 +17314,11 @@ e˛o. ŝajne ”Kie vi estas?” estis parolata inter montoj, ĉar mi
 
 aŭdis, ke monta e˛o ripetis la vortojn. ŝajnis, ke la vento en
 
-tiu momento karesis mian frunton pli malvarmete kaj pli fre-
-
-ŝe, preskaŭ mi povus imagi, ke Jane kaj mi denove staras sur
+tiu momento karesis mian frunton pli malvarmete kaj pli freŝe, preskaŭ mi povus imagi, ke Jane kaj mi denove staras sur
 
 sovaĝa soleca loko. Mi kredas, ke niaj animoj retrovis unu la
 
-alian. Sendube vi en tiu horo dronis en profunda kaj senkons-
-
-cia dormo, eble via animo liberiĝis de sia ĉirkaŭkovraĵo kaj
+alian. Sendube vi en tiu horo dronis en profunda kaj senkonscia dormo, eble via animo liberiĝis de sia ĉirkaŭkovraĵo kaj
 
 rapidis al mia por konsoli ĝin; ĉar estis via voĉo tiel vere kiel
 
@@ -21624,9 +17328,7 @@ Leganto! estis en lundovespero — je noktomezo — kiam
 
 ankaŭ mi aŭdis la misterplenan voĉon; estis tiuj vortoj, per
 
-kiuj mi estis respondinta ĝin. Mi aŭskultis la rakonton de sin-
-
-joro Rochester, sed miaflanke mi ne donis klarigon. La koin-
+kiuj mi estis respondinta ĝin. Mi aŭskultis la rakonton de sinjoro Rochester, sed miaflanke mi ne donis klarigon. La koin-
 
 cido ŝajnis al mi tro neklarigebla kaj tro terurplena por paroli
 
@@ -21638,9 +17340,7 @@ kaj tiu animo, kiu pro sia malĝoja cerbumado estis jam tro
 
 multe premita, ne bezonis la profundan ombron, kiun la
 
-supernatureco ĉiam ĵetas ĉirkaŭ si. Tial mi silentis pri tiuj afe-
-
-roj kaj sola cerbumis pri ili.
+supernatureco ĉiam ĵetas ĉirkaŭ si. Tial mi silentis pri tiuj aferoj kaj sola cerbumis pri ili.
 
 ”Vi sendube nun ne plu miros,” parolis plue mia sinjoro,
 
@@ -21653,68 +17353,46 @@ kredis, ke refoje vi malaperos en silenton kaj en la nenion,
 kiel tiu noktomeza flustrado kaj montoe˛o antaŭe formortis.
 
 
-JANE EYRE
-
-
 Nun mi dankas Dion! nun mi ne dubas plu! Jes, fundkore mi
 
 dankas Dion!”
 
 Li starigis min de sia genuo, leviĝis, respekte prenis la
 
-ĉapelon de sia kapo, kaj teren mallevante siajn blindajn oku-
-
-lojn, li longe restis staranta en senparola meditado. Nur la
+ĉapelon de sia kapo, kaj teren mallevante siajn blindajn okulojn, li longe restis staranta en senparola meditado. Nur la
 
 lastaj vortoj de lia preĝo estis aŭdeblaj:
 
-”Mi dankas mian Kreinton, ke meze de la puno Li pardo-
-
-nis al mi. Humile mi petegas mian Liberiginton, ke Li donu al
+”Mi dankas mian Kreinton, ke meze de la puno Li pardonis al mi. Humile mi petegas mian Liberiginton, ke Li donu al
 
 mi la forton rekomenci de nun pli bonan, pli puran vivon ol
 
 mi faris antaŭe!”
 
-Poste li etendis la manon, por ke mi konduku lin. Mi pre-
+Poste li etendis la manon, por ke mi konduku lin. Mi prenis la karegan manon, premis ĝin momenton sur miaj lipoj
 
-nis la karegan manon, premis ĝin momenton sur miaj lipoj
-
-kaj tiam lasis ĝin meti sur mian ŝultron. Estante tiom pli mal-
-
-granda ol li, mi servis lin ne nur kiel apogilo, sed ankaŭ kiel
+kaj tiam lasis ĝin meti sur mian ŝultron. Estante tiom pli malgranda ol li, mi servis lin ne nur kiel apogilo, sed ankaŭ kiel
 
 kondukantino. Ni en iris la arbaron kaj direktis nin hejmen.
-
-
-JANE EYRE
 
 
 ĉapitro XXXVIII.
 
 — La fino —
 
-Leganto, mi edziniĝis kun li kaj nia geedziĝo okazis tran-
-
-kvile. ĉeestis nur li, mi, la pastro kaj la pedelo. Kiam mi
+Leganto, mi edziniĝis kun li kaj nia geedziĝo okazis trankvile. ĉeestis nur li, mi, la pastro kaj la pedelo. Kiam mi
 
 revenis de la preĝejo, mi malsupreniris al la kuirejo de la
 
-domo, kie Maria pretigis la matenmanĝon kaj John brilpuri-
+domo, kie Maria pretigis la matenmanĝon kaj John brilpurigis la tranĉilojn, kaj mi diris:
 
-gis la tranĉilojn, kaj mi diris:
-
-”Maria, hodiaŭ matene mi edziniĝis kun sinjoro Roches-
-
-ter.”
+”Maria, hodiaŭ matene mi edziniĝis kun sinjoro Rochester.”
 
 La mastrumistino kaj ŝia edzo apartenis al tiaj decaj kaj
 
 flegmaj homoj, al kiuj oni ĉiumomente kun certeco povas
 
-sciigi rimarkindan, eksterordinaran okazintaĵon, ne bezonan-
-
-te timi, ke unue akra krio rompos al vi la timpanan membra-
+sciigi rimarkindan, eksterordinaran okazintaĵon, ne bezonante timi, ke unue akra krio rompos al vi la timpanan membra-
 
 non, kaj ke poste oni dronos en rivero da vortoriĉaj miregoj.
 
@@ -21743,18 +17421,11 @@ Kiam mi iris al John, li amike grimacridetis al mi, dirante:
 ”Mi jam diris al Maria, kio okazos; mi sciis, ke sinjoro
 
 
-JANE EYRE
-
-
-Edward” (John estis malnova servisto, kaj jam konis sian sin-
-
-joron, kiam ĉi tiu estis ankoraŭ la pli juna filo de la domo, tial
+Edward” (John estis malnova servisto, kaj jam konis sian sinjoron, kiam ĉi tiu estis ankoraŭ la pli juna filo de la domo, tial
 
 li ofte nomis lin je lia baptonomo, kaj tio estis pardonata al
 
-li) — ”mi sciis, kion faros sinjoro Edward kaj estis konvinki-
-
-ta, ke li ne longe atendos. Nu, kiom mi povas juĝi, li agis pra-
+li) — ”mi sciis, kion faros sinjoro Edward kaj estis konvinkita, ke li ne longe atendos. Nu, kiom mi povas juĝi, li agis pra-
 
 ve. Mi deziras al vi multan ĝojon, fraŭlino!”
 
@@ -21762,9 +17433,7 @@ Tion dirante, li respekte tuŝis siajn fruntharojn.
 
 ”Mi vin dankas, John. Sinjoro Rochester donacis al mi ĉi
 
-tion por vi kaj por via edzino,” kaj mi enmanigis al li bank-
-
-bileton kvinfuntan. Ne atendante pluajn ruĝiĝojn kaj danke-
+tion por vi kaj por via edzino,” kaj mi enmanigis al li bankbileton kvinfuntan. Ne atendante pluajn ruĝiĝojn kaj danke-
 
 sprimojn, mi eliris el la kuirejo. Mallongan tempon poste
 
@@ -21786,17 +17455,13 @@ Mi skribis tuj al Cambridge kaj al Moor House, por sciigi
 
 al miaj geparencoj, kion mi faris. Mi ankaŭ klare deklaris, kial
 
-mi agis tiel. Diana kaj Maria senrezerve aprobis mian kondu-
-
-ton kaj Diana skribis al ni, ke ŝi konsentos al ni nur la tem-
+mi agis tiel. Diana kaj Maria senrezerve aprobis mian konduton kaj Diana skribis al ni, ke ŝi konsentos al ni nur la tem-
 
 pon, feliĉe pasigi la postedziĝan monaton kaj ke poste ŝi
 
 intencis nin viziti.
 
-”Estus pli bone, se ŝi ne atendus tiel longe, Jane,” diris sin-
-
-joro Rochester, kiam mi laŭtlegis al li la leteron, ”farante tion
+”Estus pli bone, se ŝi ne atendus tiel longe, Jane,” diris sinjoro Rochester, kiam mi laŭtlegis al li la leteron, ”farante tion
 
 ŝi venos tro malfrue, ĉar nia postedziĝa monato daŭros nian
 
@@ -21807,16 +17472,11 @@ Mi ne scias, kion St. John pensis, ricevante la leteron en kiu
 mi komunikis al li mian edziniĝon, li neniam respondis. Sed
 
 
-JANE EYRE
-
-
 ses monatojn poste li tamen skribis al mi tute ne tuŝante la
 
 nomon de sinjoro Rochester, nek mian edziniĝon. Lia letero
 
-estis tre kvietstila, serioza sed amika. Post tiu tempo li kores-
-
-pondis kun mi regule, sed ne ofte. Li esperas, ke mi estu feli-
+estis tre kvietstila, serioza sed amika. Post tiu tempo li korespondis kun mi regule, sed ne ofte. Li esperas, ke mi estu feli-
 
 ĉa, ke mi ne estu unu el tiuj, kiuj forgesas pri sia Dio en la
 
@@ -21848,9 +17508,7 @@ kaj trovis por ŝi lernejon, kiu estis regata de pli facila sistemo
 
 kaj krome estis sufiĉe proksime al nia domo por povi viziti ŝin
 
-pli ofte kaj kio ebligis al mi kunkonduki ŝin pli ofte. Mi zor-
-
-gis pri tio, ke al ŝi mankis nenio, kio estis bezonata por ŝia
+pli ofte kaj kio ebligis al mi kunkonduki ŝin pli ofte. Mi zorgis pri tio, ke al ŝi mankis nenio, kio estis bezonata por ŝia
 
 sano; tial ŝi baldaŭ sentis sin hejme en la nova edukejo, iĝis
 
@@ -21864,41 +17522,28 @@ lernejon, mi ĉiam trovis en ŝi amindan, ofereman amikinon;
 
 ŝi estis bonkora kaj havis severajn principojn. Per la danka
 
-atento, kiun ŝi montris al mi kaj al la miaj, ŝi jam longe repa-
-
-gis la bonon, kiun mi antaŭe povis montri al ŝi.
+atento, kiun ŝi montris al mi kaj al la miaj, ŝi jam longe repagis la bonon, kiun mi antaŭe povis montri al ŝi.
 
 Mia rakonto estas finiĝonta. Mi devas ankoraŭ rakonti pri
-
-
-JANE EYRE
 
 
 la spertoj, kiujn mi travivis en mia edzineco kaj pri la aliaj
 
 personoj troviĝantaj en la libro, tiam mi estos ĉe la fino.
 
-Mi estas edziniĝinta nun jam dek jarojn. Mi scias, kion sig-
-
-nifas tute vivi por tio kaj por tiuj, kiujn oni amas plej multe
+Mi estas edziniĝinta nun jam dek jarojn. Mi scias, kion signifas tute vivi por tio kaj por tiuj, kiujn oni amas plej multe
 
 sur ĉi tiu mondo. Mi sentas min eksterordinare feliĉa — pli
 
 feliĉa ol vortoj povus priskribi, ĉar mi estas tiel kara al mia
 
-edzo, kiel li estas kara al mi. Neniu edzino iam staris pli prok-
-
-sime al sia edzo ol mi: mi estas kvazaŭ la sango de lia sango,
+edzo, kiel li estas kara al mi. Neniu edzino iam staris pli proksime al sia edzo ol mi: mi estas kvazaŭ la sango de lia sango,
 
 la karno de lia karno. La ĉeestado de Edward neniam lacigas
 
-min; neniam li estas unu horon sen mi; la pulsobato, la koro-
+min; neniam li estas unu horon sen mi; la pulsobato, la korobato de mia edzo estis ankaŭ mia — kaj mia korobato estas
 
-bato de mia edzo estis ankaŭ mia — kaj mia korobato estas
-
-lia. Esti kune signifas por mi esti tiel ĝoja kiel en granda so-
-
-cieto. Mi kredas, ke ni interparolas la tutan tagon; interparolo
+lia. Esti kune signifas por mi esti tiel ĝoja kiel en granda societo. Mi kredas, ke ni interparolas la tutan tagon; interparolo
 
 estas nur aŭdebla kaj viva pensmaniero. Li havas mian tutan
 
@@ -21906,13 +17551,9 @@ fidon; li donacis al mi sian; niaj karakteroj adaptiĝas unu al
 
 la alia — sekve la plena interkonsento estas ĝia rezulto.
 
-La unuajn du jarojn de nia geedzeco sinjoro Rochester res-
+La unuajn du jarojn de nia geedzeco sinjoro Rochester restis ankoraŭ blinda; eble tiu stato tiel firme ligis nin kune, ĉar
 
-tis ankoraŭ blinda; eble tiu stato tiel firme ligis nin kune, ĉar
-
-mi estis en tiu tempo lia okulolumo, kiel nun mi estas anko-
-
-raŭ lia dekstra mano. Laŭlitere mi estis, kaj tia li nomas min
+mi estis en tiu tempo lia okulolumo, kiel nun mi estas ankoraŭ lia dekstra mano. Laŭlitere mi estis, kaj tia li nomas min
 
 ofte, lia pupilo. Li vidis la naturon — li vidis ĉiujn librojn per
 
@@ -21935,20 +17576,13 @@ mi faru.
 Kaj tiuj servoj kaŭzis al mi ĝojon eksterordinaran kvankam
 
 
-JANE EYRE
-
-
 melankolian — ĉar li deziris ilin de mi sen turmenta honto,
 
 sen premanta humiliĝo. Li tiom kaj tiel vere min amis, ke
 
-neniam li hezitis akcepti miajn helpojn; li sentis, ke mi fund-
+neniam li hezitis akcepti miajn helpojn; li sentis, ke mi fundkore lin amas kaj min dediĉas al li, ke mi ĝojas povi helpi lin.
 
-kore lin amas kaj min dediĉas al li, ke mi ĝojas povi helpi lin.
-
-Je la fino de tiuj du jaroj, kiam unu matenon mi skribis le-
-
-teron, kiun li diktis al mi, li alproksimiĝis al mi kaj sin klinis
+Je la fino de tiuj du jaroj, kiam unu matenon mi skribis leteron, kiun li diktis al mi, li alproksimiĝis al mi kaj sin klinis
 
 super mi. Post kelka pripensado li diris:
 
@@ -21966,9 +17600,7 @@ al li ŝajnis, ke la mallumo, kiu kovris la unuan okulon, estas
 
 malpli densa kaj malpli netravidebla ol antaŭe. Sed nun li
 
-estis certa pri tio. Ni vojaĝis kune al Londono. Li petis la kon-
-
-silon de fama okulisto, kaj vere li reakiris la vidkapablon de
+estis certa pri tio. Ni vojaĝis kune al Londono. Li petis la konsilon de fama okulisto, kaj vere li reakiris la vidkapablon de
 
 unu el siaj okuloj. Tamen tre klare li ne kapablas legi; ankaŭ
 
@@ -21976,9 +17608,7 @@ li ne povas multe skribi aŭ legi; sed li trovas sian vojon tute
 
 sen helpo kaj neniu bezonas plu konduki lin ĉe la mano; la
 
-ĉielo ne estas plu senkolora ebenaĵo por li, nek la tero mal-
-
-plena spaco.
+ĉielo ne estas plu senkolora ebenaĵo por li, nek la tero malplena spaco.
 
 Kiam oni metis al li sur la brakon lian unue naskiton, tiam
 
@@ -21990,31 +17620,18 @@ foje konfesis, ke la ĉiopotenca Dio montris sian gracon meze
 
 de la puno.
 
-Edward Rochester kaj mi estas do feliĉaj, kaj des pli mul-
+Edward Rochester kaj mi estas do feliĉaj, kaj des pli multe, ĉar ĉiuj, kiujn ni amas, ankaŭ estas feliĉaj. Diana kaj Ma-
 
-te, ĉar ĉiuj, kiujn ni amas, ankaŭ estas feliĉaj. Diana kaj Ma-
-
-ria Rivers estas ambaŭ edziniĝintaj; alterne unu el ambaŭ ĉiu-
-
-jare venas viziti nin, kaj ankaŭ ni vizitas ilin. La edzo de Diana
-
-
-JANE EYRE
+ria Rivers estas ambaŭ edziniĝintaj; alterne unu el ambaŭ ĉiujare venas viziti nin, kaj ankaŭ ni vizitas ilin. La edzo de Diana
 
 
 estas kapitano de militŝipo, kuraĝa oficiro kaj bona viro. La
 
-edzo de Maria estas ekleziulo, universitata amiko de ŝia fra-
+edzo de Maria estas ekleziulo, universitata amiko de ŝia frato; liaj principoj kaj bonaj kvalitoj igis lin tute inda je sia
 
-to; liaj principoj kaj bonaj kvalitoj igis lin tute inda je sia
+aminda edzino. Ne nur la kapitano Fitzjames sed ankaŭ sinjoro Wharton amas siajn edzinojn kaj estas amataj de ili.
 
-aminda edzino. Ne nur la kapitano Fitzjames sed ankaŭ sinj-
-
-oro Wharton amas siajn edzinojn kaj estas amataj de ili.
-
-Rilate al St. John Rivers, li forlasis Anglujon kaj iris al Hin-
-
-dujo. Li suriris la vojon, kiun li estis elektinta por si kaj an-
+Rilate al St. John Rivers, li forlasis Anglujon kaj iris al Hindujo. Li suriris la vojon, kiun li estis elektinta por si kaj an-
 
 koraŭ nun li laŭiras ĝin. Pli senlaca, pli decidita pioniro
 
@@ -22032,19 +17649,13 @@ severa, eble akra kaj ambicia — sed liaj rigideco kaj severeco
 
 estas tiuj de milita kondukisto, kiu defendas sian pilgrimadon
 
-kontraŭ la atako de sovaĝaj bandoj. Kiam li postulas, li postu-
+kontraŭ la atako de sovaĝaj bandoj. Kiam li postulas, li postulas kiel la apostolo, kiu parolas nur por Kristo, kiam li diras:
 
-las kiel la apostolo, kiu parolas nur por Kristo, kiam li diras:
-
-”Kiu venos post mi, tiu malkonfesu sin mem kaj prenu la kru-
-
-con por sekvi min.” Lia ambicio estas tiu de granda spirito,
+”Kiu venos post mi, tiu malkonfesu sin mem kaj prenu la krucon por sekvi min.” Lia ambicio estas tiu de granda spirito,
 
 kiu volas okupi la plej unuan lokon en la vicoj de tiuj, kiuj
 
-estas liberigitaj de la peko de ĉi tiu mondo — kiuj sen man-
-
-ko mortas por la trono de Dio, kiuj partoprenos en la lasta
+estas liberigitaj de la peko de ĉi tiu mondo — kiuj sen manko mortas por la trono de Dio, kiuj partoprenos en la lasta
 
 granda venko de la ŝafido, kiuj estas vokitaj kaj elektitaj kaj
 
@@ -22052,18 +17663,13 @@ fidelaj!
 
 St. John estas needziĝinta; li neniam edziĝos. Lia propra
 
-forteco ĝis nun sufiĉis por la laboro, kaj tiu laboro proksimi-
-
-ĝas al sia fino. Lia glora suno estas subironta. La lasta letero,
+forteco ĝis nun sufiĉis por la laboro, kaj tiu laboro proksimiĝas al sia fino. Lia glora suno estas subironta. La lasta letero,
 
 kiun mi ricevis de li, fluigis miajn larmojn kaj malgraŭ tio ĝi
 
 plenigis mian koron per interna ĝojo; li atendis sian certan
 
 rekompencon, sian kronon, kiun neniu povas forrabi de li.
-
-
-JANE EYRE
 
 
 Mi scias ke fremda mano skribos al mi la plej proksiman
@@ -22074,9 +17680,7 @@ vokita de sia sinjoro al la ĉielaj ĝojoj. Kaj kial do mi plorus?
 
 Neniu timo antaŭ la morto turmentos St. John en lia lasta
 
-horo; lia spirito estas libera, lia koro sentima, lia espero cer-
-
-ta, lia kredo neŝancelebla. Liaj propraj vortoj pruvas tion al
+horo; lia spirito estas libera, lia koro sentima, lia espero certa, lia kredo neŝancelebla. Liaj propraj vortoj pruvas tion al
 
 mi:
 
@@ -22087,9 +17691,6 @@ mi:
 kaj tiuhore mi respondas al li pli aspire: — ’Tial venu, Jesuo
 
 Kristo! en eterno. Amen.’ ”
-
-
-JANE EYRE
 
 
 www.omnibus.se/

@@ -187,7 +187,6 @@ gi ne ricevas respondon, la hundido plu parolas: — Mi parolas, ˆcar mi estas 
 
 — Ne.
 
-— ˆ
 
 Cu vi ne estas feo?
 
@@ -327,7 +326,6 @@ Si estas la ino de miaj revoj” pensis Alano. “Malvero, a˘
 
 u pli bone, mispenso.
 
-ˆ
 
 Si estas de tia beleco, kia estas la ino de miaj revoj, ˆcu ˆsi estas la ino de miaj revoj mi scios post koni ˆsin”.
 
@@ -335,7 +333,6 @@ Alano iris al la knabino. Li staris anta˘
 
 u ˆsi kaj ridetis al ˆsi, tiam ˆsi lin demandis:
 
-— ˆ
 
 Cu vi venas ˆciam ˆci tien a˘
 
@@ -343,7 +340,6 @@ u ˆcu vi venis hodia˘
 
 u nur ˆcar oni diris al vi, ke mi estus ˆci tie?
 
-ˆ
 
 Si ne demandis por ridigi lin, sed li ridis. ˆ
 
@@ -390,7 +386,6 @@ udigis por ˆciuj.
 
 Alano tuje ekrekonis la muzikaˆon, kiun la alta viro elektis — Mi ˆsatas tiun muzikaˆon — diris Alano, dum li rigardis al la maˆsino.
 
-— ˆ
 
 Cu muzikon? Mi ˆsatas muzikon, kaj pli kaj pli da muziko.
 
@@ -422,7 +417,6 @@ gin?
 
 — Ne.
 
-— ˆ
 
 Cu vi ˆsatas legi? Kion vi legas?
 
@@ -486,8 +480,6 @@ sub akvo, frumateno malvarma kaj Alano, post suferado, sukcesis aˆceti kondomoj
 
 — Kie estas la kondomo?
 
-
-— ˆ
 
 Ci tie, ene de mia monujo.
 
@@ -842,7 +834,6 @@ Kiam li vidis la ulon, kiun li mortigis, li rekonis lin. Temis pri frato de Joha
 
 Lia familio estas familio de mortigistoj. “Mi elektis malbone” pensis Levi.
 
-ˆ
 
 Ci tiun fojon la policanoj, male al aliaj, devis aresti lin, Levi. La popolo interese rigardis ˆcion kaj poste la festo da˘
 
@@ -919,7 +910,6 @@ Malfruas klarigis, ke ˆ
 
 gi ne kredas je destino. Atendas demandis al Malfruas pri kio povus okazi al
 
-ˆ
 
 gi pro tiu miso. Malfruas diris, ke certe oni neˆc2 scios pri tio. “Kunportu alian anstata˘
 
@@ -1164,7 +1154,6 @@ frazo “Jam de longa tempo mi ne trinkas mamutan sangon!”, kiel lasta frazo.
 
 Apud la mondkonata urbo de Brazilo, Rio, estas Niterói. Mi elektis tiun urbon por Felix pro Bento Carneiro (Chico An´ısio). Fakte ne pro Bento, sed lia helpanto.
 
-ˆ
 
 Jeto de restaˆo de manˆ
 
@@ -1182,7 +1171,6 @@ ga familio de Brazilo.
 
 6. Infaneta ploro
 
-— ˆ
 
 Cu vi vidas tiun infaneton, kiu ploras?
 
@@ -1291,9 +1279,6 @@ gis nun mi scias,
 kien mi iros.
 
 
-ˆ
-
-
 Si naskis sian unuan infaneton kaj ne scias plu kion fari. ˆ
 
 Si ne scias, ke temas pri neniu malsano,
@@ -1301,9 +1286,6 @@ Si ne scias, ke temas pri neniu malsano,
 ke ne temas pri manko de lakto a˘
 
 u akvo. La infaneto ploradas kaj ˆsi ne scias kial.
-
-
-— ˆ
 
 
 Cu vi vidas pli bone nun?
@@ -1488,7 +1470,6 @@ gado haltis kaj la preˆ
 
 gisto iris tien.
 
-ˆ
 
 Ciuj atendis agon de la preˆ
 
@@ -1697,9 +1678,7 @@ Facila oni ne uzas la participojn (krom la substantiva finaˆo -anto, necesa 
 
 Nomoj: Vi rajtas libere uzi nomojn de landoj, lingvoj, popoloj kaj urboj. Ne Esperantigu propran nomon, sed uzu Esperantan nomon nur se ˆ
 
-gi jam ekzistas! Prefere uzu nacilingvan (lati-
-
-nalfabetan) formon, kaj aldonu inter krampoj la prononcon.
+gi jam ekzistas! Prefere uzu nacilingvan (latinalfabetan) formon, kaj aldonu inter krampoj la prononcon.
 
 Aldone uzeblas ˆciuj oficialaj afiksoj, gramatikaj finaˆoj, korelativoj, pronomoj, tag- kaj monat-nomoj, numeraloj, kunmetitaj vortoj formitaj el la listigitaj elementoj kaj la plej konataj mal-longigoj.
 

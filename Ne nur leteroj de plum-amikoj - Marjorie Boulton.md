@@ -12,19 +12,8 @@ NE NUR LETEROJ DE PLUM-AMIKOJ
 
 Marjorie Boulton
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 Esperanta literaturo — fenomeno unika
-
-
-X
-
-@tyreso.nu
-
-·
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Enkonduko
@@ -38,9 +27,6 @@ Tial mi celis libreton tre impresionisman, eĉ iomete anek-dotan, personan, kapr
 Mi volas dediĉi tiun ĉi libreton al meritplena esperantisto, kiu jam dum pli longa tempo, ol mi mem vivadis, fidele ser-vadis al esperanto, valore kontribuis al ĝia literaturo kaj dum multaj jaroj kuraĝigadis min per pli da elpensitaj amikaĵoj, ol mi povus kalkuli — sinjoro Tiberio Morariu … danke.
 
 Marjorie Boulton
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Temposkemo sciencfikcia
@@ -57,20 +43,13 @@ La evoluado de esperanto estis kelkrilate mala al tiu de naciaj lingvoj. Unu hom
 
 Rakonto pri homunkuloj, pri Frankenstejno, pri robotoj, esprimas verajn psikologiajn reagojn kaj verŝajne ankaŭ veran probablecon pri artefaritaj kvazaŭhomoj. Ni atendus, ke ia homumaĵo, kreita en laboratorio, estos ne tute homa, emocie malvarma aŭ eĉ tordita, sen vera homa personeco komplika kaj unika, sen mistera heredaĵo tiel riĉa de genetiko, historio, kulturo: io strange nekompleta, aŭ kompatinda, aŭ timinda.
 
-Ni supozu, ke kontraŭ ĉiuj ŝajnaj probablecoj, sciencisto kreus en laboratorio ne kvazaŭhoman feton, sed belan kna-4
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-bon jam kapablan fari ĉiujn ordinarajn taskojn de knabo kaj multajn de plenkreskulo; ke oni poste edukus tiun knabon inter aliaj knaboj, vaste kaj varie; ke tiu knabo iĝus matura viro bela, forta, sana, emocie varma kaj sentoriĉa, tre inteligenta, elokventa, logikema, kun multaj artaj talentoj kaj sciencaj scioj, kun agrabla voĉo kaj eĉ ĉarma humuro: do ne kvazaŭhomo interesa nur kiel eksperimentaĵo, sed vere interesa kaj valora simpatia individuo. Kontraŭe al ĉiu tradicio kaj atendado — ĝuste tiel okazis pri esperanto, kontraŭe al ĉiu alia projektita internacia helplingvo. Estas malfacile, eĉ por esperantistoj mem, plene koncepti kiel eksterordinara estas la nuna fenomeno de vigle vivanta esperanta kulturo. Min ĝi pensigas pri la fama paradokso de la frua kristana teologo Tertuliano: ”Estas certe, ĉar estas tute neeble.”
+Ni supozu, ke kontraŭ ĉiuj ŝajnaj probablecoj, sciencisto kreus en laboratorio ne kvazaŭhoman feton, sed belan knabon jam kapablan fari ĉiujn ordinarajn taskojn de knabo kaj multajn de plenkreskulo; ke oni poste edukus tiun knabon inter aliaj knaboj, vaste kaj varie; ke tiu knabo iĝus matura viro bela, forta, sana, emocie varma kaj sentoriĉa, tre inteligenta, elokventa, logikema, kun multaj artaj talentoj kaj sciencaj scioj, kun agrabla voĉo kaj eĉ ĉarma humuro: do ne kvazaŭhomo interesa nur kiel eksperimentaĵo, sed vere interesa kaj valora simpatia individuo. Kontraŭe al ĉiu tradicio kaj atendado — ĝuste tiel okazis pri esperanto, kontraŭe al ĉiu alia projektita internacia helplingvo. Estas malfacile, eĉ por esperantistoj mem, plene koncepti kiel eksterordinara estas la nuna fenomeno de vigle vivanta esperanta kulturo. Min ĝi pensigas pri la fama paradokso de la frua kristana teologo Tertuliano: ”Estas certe, ĉar estas tute neeble.”
 
 Eble la miraklo de esperanto estas miraklo de fido. Alivor-te: eble temas pri ia psikodinamiko de fortaj sopiroj al paco, mondfratareco, interkomprenado, de malegoismaj sindediĉoj kaj artismaj entuziasmoj. Aliajn klarigojn proponos diversaj fakuloj kaj ideologianoj. Sed, kial ajn kreskis la semo tiel ne-atendinde, iu ajn nun rajtas gustumi la abundajn fruktojn.
 
 Lingvoj kutime evoluadas dum jarcentoj ĝis iu esploras ilin science. Pralingvoj draste ŝanĝiĝas. Skribado venas longe post parolado. Tre malfrue aperas gramatiko intence organizita kaj gramatikaj kaj leksikologiaj preskriboj.
 
-Esperanto naskiĝis en la unua libreto de Zamenhof (1887) kiel minimuma gramatika regularo, malgranda vortaro kaj kelkaj specimenoj de aplikado. Poste ĝi evoluadis riĉe kaj varie, sed jam kun preskribitaj limoj, kiuj malebligis, ekzemple, esceptojn kaj anomaliojn. La Fundamento de Esperanto (1905), akceptita de la jam internacia kaj aktiva esperantistaro, por 5
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Esperanto naskiĝis en la unua libreto de Zamenhof (1887) kiel minimuma gramatika regularo, malgranda vortaro kaj kelkaj specimenoj de aplikado. Poste ĝi evoluadis riĉe kaj varie, sed jam kun preskribitaj limoj, kiuj malebligis, ekzemple, esceptojn kaj anomaliojn. La Fundamento de Esperanto (1905), akceptita de la jam internacia kaj aktiva esperantistaro, por
 
 
 ĉiam fiksis preskribitan bazon por la lingvo, lasante maksi-muman liberon por la detaloj de aplikado.
@@ -87,12 +66,7 @@ Kvankam tiuj lirikoj gravas ĉefe historie, kaj oni ne povus aserti, ke ili esta
 
 Ili montras korektan, eĉ melodian metrikon, formalajn rimos-kemojn, klaran kaj naturan esprimadon de emocioj, ordan kaj ekvilibran internan strukturon sintaksan, emocian kaj logikan, kontentigan memsufiĉan kompletecon.
 
-Stranga estis la genio kaj eble pli stranga la fido de tiu judo, neforta, neriĉa, ne lingvisto, laŭ temperamento humila kaj retiriĝema, kiu kapablis verki literature akcepteblajn lirikojn en lingvo, kiun nur li en la tuta mondo tiutempe konis (Kla-6
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-ra, kiel fianĉino kaj poste edzino de Zamenhof, ja frue lernis la novan lingvon, do ni ne scias precize kiajn siajn fruajn verketojn Zamenhof verkis tute sen leganto. Sed certe li ekpro-vis la lingvon literature, kiam li ankoraŭ ne povis havi eĉ unu leganton.)
+Stranga estis la genio kaj eble pli stranga la fido de tiu judo, neforta, neriĉa, ne lingvisto, laŭ temperamento humila kaj retiriĝema, kiu kapablis verki literature akcepteblajn lirikojn en lingvo, kiun nur li en la tuta mondo tiutempe konis (Klara, kiel fianĉino kaj poste edzino de Zamenhof, ja frue lernis la novan lingvon, do ni ne scias precize kiajn siajn fruajn verketojn Zamenhof verkis tute sen leganto. Sed certe li ekpro-vis la lingvon literature, kiam li ankoraŭ ne povis havi eĉ unu leganton.)
 
 Dumvive li daŭrigis siajn provajn laborojn per tradukoj el majstroverkoj de diversaj lingvoj. Jam en 1894 aperis lia Hamleto, kiu plejparte donas tolereblajn ekvivalentojn por la ŝekspira teksto, en la sama versformo kaj en stilo sursceneje parolebla.
 
@@ -101,9 +75,6 @@ Lingvo, kiu nur ebligus plumamikajn rilatojn tra la tuta mondo kaj faciligus tur
 Jam dum la unua jardudeko aperis esperanta literaturo,
 
 traduka kaj originala, certe sufiĉa por pruvi la plenan vivan-tecon kaj literaturan taŭgecon de esperanto. Sed tiu unua rojo de la monto kreskis tra la pli facilaj valoj en riveregon potencan. Nun ekzistas esperanta literaturo surprize vasta.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 La amplekso
@@ -118,25 +89,14 @@ registritajn erojn, el kiuj 11000 estas nedubeble libroj. La Bulgara Nacia Bibli
 
 Kvankam multaj el tiuj libroj estas relative senvaloraj aŭ efemeraj, kaj artverkoj nepre meritantaj senmortecon ne abundas, tamen la supraj ciferoj evidentigas, ke esperanto jam posedas literaturon eksterordinare ampleksan post malpli ol jarcento.
 
-En la katalogo de la libroservo de Universala Esperanto-Asocio 1980/1982, tio estas katalogo nur de aktualaj libroj an-8
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-koraŭ aĉeteblaj, mi kalkulis 1616 diversajn librojn. Eĉ se oni subtrahas ĉiujn lernolibrojn, terminarojn, pedagogiajn lemo-librojn kaj porinfanajn librojn, bibliografiojn kaj primovadajn verkojn, ankoraŭ restas 1 102 libroj: romanoj, noveloj, rakontoj, teatraĵoj, filmoscenarioj, poezio, biografio, filozofio, historio, religio, politiko, scienco, tekniko, geografio, himnaroj kaj kantaroj kaj miksitaj volumoj.
+En la katalogo de la libroservo de Universala Esperanto-Asocio 1980/1982, tio estas katalogo nur de aktualaj libroj ankoraŭ aĉeteblaj, mi kalkulis 1616 diversajn librojn. Eĉ se oni subtrahas ĉiujn lernolibrojn, terminarojn, pedagogiajn lemo-librojn kaj porinfanajn librojn, bibliografiojn kaj primovadajn verkojn, ankoraŭ restas 1 102 libroj: romanoj, noveloj, rakontoj, teatraĵoj, filmoscenarioj, poezio, biografio, filozofio, historio, religio, politiko, scienco, tekniko, geografio, himnaroj kaj kantaroj kaj miksitaj volumoj.
 
 En la sama katalogo troviĝas listo de cent tridek esperan-toeldonejoj. Inter tiuj eldonejoj troviĝas kelkaj ne ĉefe esperantaj, sed eldonantaj esperantajn librojn inter aliaj; kelkaj, kiuj okupas sin nur pri politikaj aŭ religiaj propagandaĵoj kaj pluraj, kies eldonado estas tre malgrandskala. Sed ekzistas minimume dek ses sendependaj eldonejoj, kiuj regule aperi-gas librojn sufiĉe gravajn kaj kulture valorajn, bone prezen-titajn kaj nur esperantajn.
 
 Jam aperis en esperanto verkoj tradukitaj el literaturoj de kvardek landoj kaj pli ol kvardek lingvoj. Oni vidas bone, per la jam menciita librolisto de UEA, kiom da literaturaj ĝenroj reprezentiĝas en esperanto per verkoj tradukitaj kaj originalaj. Oni jam trovas en esperanto stilojn, kiuj varias ek de la plej simplaj anekdotoj taŭgaj por komencantoj ĝis kompleksaj grandskalaj eksperimentaj verkoj.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Sed restas rimarkinda kvanto da verkoj, kiuj atingas artan nivelon tian, ke oni povus serioze diskuti pri ili same kiel pri konataj artverkoj en nacia lingvo. Tio ĉi signifas, ke jam ekzistas esperantaj verkistoj, kiuj verkas same serioze, profesie-ce, dediĉite, kiel nacilingvaj seriozaj verkistoj. La fakto estas des pli rimarkinda, se oni konsideras la nenormalan situacion de serioza esperantista verkisto, kiu deziras verki artisme kaj do kies sinteno estas kvazaŭ profesia.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 La esperanta verkisto:
@@ -150,14 +110,9 @@ La fruaj verkistaj laboroj en esperanto sugestas ian purecon de motivoj, kiu ŝa
 Kiel ofte en la vivo prudentaj homoj eraris kaj tiuj kaj multaj aliaj donki˛otoj pravis. La lingvo daŭre vivis kaj la literaturo kreskadis.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Tamen ankoraŭ en 1924 Kålmån Kalocsay, kiu iĝis unu el
 
-la plej grandaj esperantaj verkistoj, veis pri la sorto de ”poeto sen popolo”. (En Amara horo, Streĉita kordo, p. 34.) Nuntempe esperanta verkisto certas almenaŭ, ke ekzistas publiko. Se unu eldonejo ne akceptas lian verkon, eble ĝi pla-
-
-ĉos al alia. Ekzistas gazetoj, en kiuj aperas seriozaj recenzoj kaj eĉ jam ekzistas en pluraj landoj, kaj internacie sub la aŭ-
+la plej grandaj esperantaj verkistoj, veis pri la sorto de ”poeto sen popolo”. (En Amara horo, Streĉita kordo, p. 34.) Nuntempe esperanta verkisto certas almenaŭ, ke ekzistas publiko. Se unu eldonejo ne akceptas lian verkon, eble ĝi plaĉos al alia. Ekzistas gazetoj, en kiuj aperas seriozaj recenzoj kaj eĉ jam ekzistas en pluraj landoj, kaj internacie sub la aŭ-
 
 spicioj de UEA ekzamenoj, kiuj postulas fakan studadon de esperantaj verkoj. Sed la situacio de esperanta verkisto restas aparta kaj malavantaĝa.
 
@@ -169,9 +124,7 @@ Esperanta eldonado ankaŭ ne povas celi bonan profiton,
 
 nur daŭran sinsubtenadon.
 
-Estas neprobable, ke iu atingos veran literature valoran alt-nivelon en esperanto, kiu ne kapablus verki ĝis simila nivelo 12
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Estas neprobable, ke iu atingos veran literature valoran alt-nivelon en esperanto, kiu ne kapablus verki ĝis simila nivelo
 
 
 en nacia lingvo. Kutime tia laboro estus, kvankam ofte malmulte, pagita.
@@ -184,9 +137,7 @@ Li nepre havis la kapablon verki streĉajn nacilingvajn romanojn, kiuj eble tute
 
 Mi mem ne oferadis heroe. Dum nur du jaroj de mia vivo
 
-mi vivadis mizere laŭ okcidenteŭropaj kriterioj, kaj tiam mi ankoraŭ ne estis esperantisto. Sed mi estas profesia, kvankam ne eminenta, verkistino en la angla kaj mi iam kalkulis, ke ĉiu el miaj relative grandskalaj esperantaj verkoj malprofitigis al mi ĉirkaŭ 1000 pundojn, kiam mi konsideras, kian anglan verkon mi povus dum la sama tempo kaj per simila penado 13
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+mi vivadis mizere laŭ okcidenteŭropaj kriterioj, kaj tiam mi ankoraŭ ne estis esperantisto. Sed mi estas profesia, kvankam ne eminenta, verkistino en la angla kaj mi iam kalkulis, ke ĉiu el miaj relative grandskalaj esperantaj verkoj malprofitigis al mi ĉirkaŭ 1000 pundojn, kiam mi konsideras, kian anglan verkon mi povus dum la sama tempo kaj per simila penado
 
 
 verki, kaj kiom da aŭtoraj tantiemoj mi povus ricevi (dum kelkaj jaroj, ne tuj) per tia verko.
@@ -197,12 +148,7 @@ Tial ankoraŭ ne povas ekzisti profesia verkisto en esperanto, kvankam dum la la
 
 Tiu ĉi aparta kaj ofte kruela ekonomia situacio estas grava faktoro en la iom strangaj proporcioj de la panoramo de la esperanta literaturo. Preskaŭ tute mankas verkoj nur pro-fitcelaj: streĉaj, sed literature senvaloraj romanoj, skandala ĵurnalismo kaj similaj efemeraĵoj, kafotablaj bildlibroj, stere-otipaj farsoj. Ne ekzistas en Esperantujo verkistaj klikoj kaj kulisaj intrigoj. Recenzoj persone venĝaj maloftegas. Kie ne estas profito, almenaŭ la homoj ne prostituas siajn talentojn profitcele.
 
-Maloftas dramoj pli ol unuaktaj: dramaturgo scias, ke es-14
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-tas tre neprobable, ke longa dramo prezentiĝos ie. Ekzistas teatraj trupoj esperantistaj, eĉ tre bonaj, sed ne estas ia teatro, kiu regule kaj profite prezentas esperantajn dramojn al granda publiko.
+Maloftas dramoj pli ol unuaktaj: dramaturgo scias, ke estas tre neprobable, ke longa dramo prezentiĝos ie. Ekzistas teatraj trupoj esperantistaj, eĉ tre bonaj, sed ne estas ia teatro, kiu regule kaj profite prezentas esperantajn dramojn al granda publiko.
 
 Maloftas biografioj kaj similaj studaĵoj, kiuj postulas seriozan fakan esploradon. Tiaj verkoj postulas eĉ pli da tempo kaj elspezado ol verkoj, kiujn oni povas skribi en la hejmo.
 
@@ -214,15 +160,10 @@ enerale ankoraŭ restas por esperantaj verkistoj tia ekonomia situacio, ke estas
 
 Ekzistas tamen respektindaj specimenoj de ĉiuj eblaj literaturaj ĝenroj, el kiuj multaj menciiĝos poste. Ekzistas ankaŭ eksterordinare riĉa stoko de mallongaj poemoj artisme maturaj, kune kun modere riĉa stoko de noveloj tre diversspecaj kaj aliaj bonaj mallongaj verkoj.
 
-La amplekso de la esperanta literaturo invitas grandan esti-mon por la kelkcentoj, kiuj verkis esperante, kaj la kelkdekoj, kiuj eldonadis esperante, kaj ties motivoj ne povis esti mate-rialistaj. i invitas ankaŭ iom da estimo por la kulturavida esperantistaro, ĉar la esperantistoj aĉetas multajn librojn. Mi 15
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+La amplekso de la esperanta literaturo invitas grandan esti-mon por la kelkcentoj, kiuj verkis esperante, kaj la kelkdekoj, kiuj eldonadis esperante, kaj ties motivoj ne povis esti mate-rialistaj. i invitas ankaŭ iom da estimo por la kulturavida esperantistaro, ĉar la esperantistoj aĉetas multajn librojn. Mi
 
 
 sufiĉe ofte renkontis esperantistojn, kiuj pro manko de kle-rigado legas malmulte en la nacia lingvo, sed kiuj legas multe, kaj ofte verkojn surprize altnivelajn kaj malfacilajn, en esperanto. Kiel ofte insistis Julio Baghy, esperanto ne estas nur lingvo: ĝi estas kulturo.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Kelkaj indikoj
@@ -237,22 +178,16 @@ La esperantistaro dum multaj jaroj subtenis literaturajn ga-zetojn, inter kiuj e
 
 Universala Esperanto-Asocio jam dum jardekoj aranĝadis
 
-en la kadro de ĉiu jara Universala Kongreso, bone reklamitajn Belartajn Konkursojn. lo tia komenciĝis jam en 1909, sub la nomo de Floraj ludoj, en la kvina Universala Kongreso en Bar-celono. Multaj konataj esperantaj verkistoj debutis antaŭ la 17
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+en la kadro de ĉiu jara Universala Kongreso, bone reklamitajn Belartajn Konkursojn. lo tia komenciĝis jam en 1909, sub la nomo de Floraj ludoj, en la kvina Universala Kongreso en Bar-celono. Multaj konataj esperantaj verkistoj debutis antaŭ la
 
 
-esperantistaro per verkoj premiitaj en tiaj konkursoj. La bran-
-
-ĉoj iom varias de jaro al jaro, sed kutime ili inkluzivas almenaŭ originalan poezion, originalan teatraĵon, originalan prozon. Dum multaj jaroj tradukitaj verkoj estis gravaj, sed nuntempe la tradukarto malpligraviĝas, parte pro la malfacilaj problemoj pri juĝado, kiam povus temi pri iu ajn lingvo en la mondo. Povas esti konkursoj ankaŭ pri aliaj branĉoj de literaturo aŭ por neliteraturaj artoj, ekzemple fotografio. Apartan premion oni aljuĝas ĉiujare por ”nova talento”. Sufiĉaj novaj talentoj daŭre aperadas. La konkursaĵoj devas esti verkoj ankoraŭ nepresitaj. La juĝantaro konsistas el mondkonataj esperantistoj kun speciala kompetenteco pri beletristiko.
+esperantistaro per verkoj premiitaj en tiaj konkursoj. La branĉoj iom varias de jaro al jaro, sed kutime ili inkluzivas almenaŭ originalan poezion, originalan teatraĵon, originalan prozon. Dum multaj jaroj tradukitaj verkoj estis gravaj, sed nuntempe la tradukarto malpligraviĝas, parte pro la malfacilaj problemoj pri juĝado, kiam povus temi pri iu ajn lingvo en la mondo. Povas esti konkursoj ankaŭ pri aliaj branĉoj de literaturo aŭ por neliteraturaj artoj, ekzemple fotografio. Apartan premion oni aljuĝas ĉiujare por ”nova talento”. Sufiĉaj novaj talentoj daŭre aperadas. La konkursaĵoj devas esti verkoj ankoraŭ nepresitaj. La juĝantaro konsistas el mondkonataj esperantistoj kun speciala kompetenteco pri beletristiko.
 
 La kriterioj estas severaj. Oni preferas ne aljuĝi la unuan aŭ eĉ la duan premion ol permesi malaltigon de la nivelo. Kutime konkursas ĉiujare inter kvardek kaj kvindek verkistoj.
 
 Alia komitato ĉiujare elektas esperantan ”aŭtoron de la ja-ro”. Tiu persono estas tiu, kies kontribuaĵo al la esperanta literaturo dum la jaro estas juĝita la plej valora. Kutime tia kontribuaĵo devas esti ne nur altkvalita, sed iom grandkvanta.
 
-Ekzistas kelkaj aliaj literaturaj konkursoj por esperantaj verkistoj. Naciaj kaj internaciaj kongresoj, eĉ lokaj kunvenoj, plej ofte enhavas ian literaturan parton. ia skalo varias de plena, luksa prezentado de traduko el mondliteratura verko, ekzemple ŝekspiro, Sartre, Goldoni, Ibsen sur la scenejo de urba teatro kaj per profesia trupo, ĝis skeĉo iom improvizita kaj kelkaj deklamitaj poemoj. Multiĝas aranĝoj por esperantistoj — someraj kursoj, semajnfinaj renkontiĝoj, vesperaj kursoj kaj tiel plu, en kiuj studado de esperantaj literaturaj verkoj estas parto de la pedagogia programo. Mi mem memoras, ekzemple, seminariojn en kiuj miaj kursanoj detale 18
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Ekzistas kelkaj aliaj literaturaj konkursoj por esperantaj verkistoj. Naciaj kaj internaciaj kongresoj, eĉ lokaj kunvenoj, plej ofte enhavas ian literaturan parton. ia skalo varias de plena, luksa prezentado de traduko el mondliteratura verko, ekzemple ŝekspiro, Sartre, Goldoni, Ibsen sur la scenejo de urba teatro kaj per profesia trupo, ĝis skeĉo iom improvizita kaj kelkaj deklamitaj poemoj. Multiĝas aranĝoj por esperantistoj — someraj kursoj, semajnfinaj renkontiĝoj, vesperaj kursoj kaj tiel plu, en kiuj studado de esperantaj literaturaj verkoj estas parto de la pedagogia programo. Mi mem memoras, ekzemple, seminariojn en kiuj miaj kursanoj detale
 
 
 komparis specimenojn de la du esperantaj tradukoj de Hamleto (Zamenhof, Newell) kaj de Sonĝo de someromeza nokto (Briggs, Kalocsay).
@@ -263,23 +198,13 @@ Jam en 1933 aperis unua Enciklopedio de Esperanto; ne ia
 
 ĝenerala enciklopedio en esperanto, sed enciklopedio pri esperanto, esperantistoj kaj esperantaj aferoj: duvoluma, 600-paĝa, kun 300 aldonaj bildpaĝoj. Tie troviĝas artikoloj pri Antologioj, pri kvin apartaj gravaj esperantaj Bibliotekoj, pri la esperanta Gazetaro (33 kolumnoj detaloplenaj); Humoro, Kri-tiko en Esperanto, Libroj, Literaturo, Neologismoj, Rimo, Ritmo, Stilo, Teatro, Sonfilmoj. Mi faris ian krudan kalkuleton pri ki-om da verkistoj kaj apartaj verkoj tiutempe ricevis artikole-tojn. Homoj povus, kompreneble, havi diversajn opiniojn pri kriterioj; sed se mi ellasas lernolibrojn, vortarojn, librojn nur pri esperanto aŭ esperantologio, terminarojn, esperantajn propagandaĵojn kaj simile, enlasante nur verkistojn kaj verkojn literaturajn almenaŭ laŭsence, mi kalkulas 291 verkistojn kaj 396 diversspecajn verkojn. Ne tre alta estas la pro-cento de verkistoj kaj verkoj artisme daŭre gravaj. Same kiel ĉe naciaj literaturoj oni devas havi grandan arbaron por ke kelkaj orpomaj arboj kresku.
 
-Tiu Enciklopedio de 1933, siatempe tre erudicia kaj tre konscienca laboraĵo, estas nun mankoplena pro nura malnove-19
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-co; kaj novgeneracia esperantisto erudicia, Reinhard Haupen-thal, nun redaktas duan pli grandan Enciklopedion de Esperanto, al kiu multaj kolegoj jam kontribuas.
+Tiu Enciklopedio de 1933, siatempe tre erudicia kaj tre konscienca laboraĵo, estas nun mankoplena pro nura malnoveco; kaj novgeneracia esperantisto erudicia, Reinhard Haupen-thal, nun redaktas duan pli grandan Enciklopedion de Esperanto, al kiu multaj kolegoj jam kontribuas.
 
 Iom indikas maturecon de pluraj esperantaj literaturajoj la fakto, ke oni tradukis ilin en naciajn lingvojn. Populara klarigo pri radio, de Eugéne Aisberg, tradukiĝis poste en dudek unu lingvojn, inter ili la ĉinan; juvela verko pri La vivo de la plantoj, de Paul Neergaard, aperis en ok lingvoj; oni tradukis en diversajn eŭropajn kaj ekstereŭropajn lingvojn kvar romanojn kaj plurajn novelojn de Julio Baghy; du de Jean Forge; unu de Miyamoto, ekzemple. is 1974 aperis 133 verkoj tradukitaj el esperanto. Oni ankaŭ uzis esperanton kiel pont-lingvon por tradukoj. is 1969 aperis pli ol cent verkoj, kiujn oni tradukis en unu lingvon pere de esperanta traduko el la originala lingvo. Pluraj el tiuj verkoj estas efemeraj politikaj propagandaĵoj, sed multaj estas vere valoraj artverkoj.
 
 Inter ili, nur ekzemple, troviĝas Eŭgeno Onegin de Puŝkin, el la rusa en la ĉinan; Marta de E. Orzaszkowa, el la pola en la japanan (ankaŭ filmigita!) kaj la ĉinan, pere de la majstra traduko de Zamenhof mem; Sinjoro Tadeo, jam menciita, el la pola en la vjetnaman; Johano la Brava de Petöfi en la ĉinan, pere de fama traduko de Kalocsay; poemoj de Marie Under el la estona en la japanan…
 
-Kvankam tiaj kulturaj atingoj estas imponaj, eble du el la plej interesaj kaj decidaj pruvoj pri la vera postpubereco de la esperanta literaturo estas du verkoj poramuzaj. Aperis en 1970 ampleksa antologio de plejparte malĉastaj anekdotoj, Kruko kaj Baniko el Bervalo, de Louis Beaucaire. La anekdotoj mem estas pli bonstilaj ol bonmoraj, sed por nia nuna temo la signifoplena detalo estas, ke por titoli multajn el siaj anek-20
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-dotoj la aŭtoro prunteprenas titolojn de konataj esperantaj artverkoj originalaj kaj tradukaj, kaj kelkajn citaĵojn el tre konataj esperantaj poemoj. La plimulto el aliaj titoloj estas konataj esperantaj proverboj. La apliko de librotitoloj al temoj, por kiuj la estimataj verkistoj nepre ne destinis ilin, ofte efikas tre sprite kaj donas al malnovaj ŝercoj unikan spicon.
+Kvankam tiaj kulturaj atingoj estas imponaj, eble du el la plej interesaj kaj decidaj pruvoj pri la vera postpubereco de la esperanta literaturo estas du verkoj poramuzaj. Aperis en 1970 ampleksa antologio de plejparte malĉastaj anekdotoj, Kruko kaj Baniko el Bervalo, de Louis Beaucaire. La anekdotoj mem estas pli bonstilaj ol bonmoraj, sed por nia nuna temo la signifoplena detalo estas, ke por titoli multajn el siaj anekdotoj la aŭtoro prunteprenas titolojn de konataj esperantaj artverkoj originalaj kaj tradukaj, kaj kelkajn citaĵojn el tre konataj esperantaj poemoj. La plimulto el aliaj titoloj estas konataj esperantaj proverboj. La apliko de librotitoloj al temoj, por kiuj la estimataj verkistoj nepre ne destinis ilin, ofte efikas tre sprite kaj donas al malnovaj ŝercoj unikan spicon.
 
 Tiaj profanaĵoj ne povus okazi sen literatura kulturo konata inter multaj legantoj.
 
@@ -288,25 +213,19 @@ Eĉ pli signifa estas brila libreto siaspeca, kiu aperis en 1962: Specimene, de 
 ĝeneralaj kriterioj pri stilo, sed analizeblaj individuaj artismaj stiloj.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Esperanta poezio:
 
 mirakla rikolto
 
 Tria signifoplena indiko pri la amplekso kaj arta nivelo de la esperanta literaturo estas Esperanta Antologio — Poemoj 1887–1957, redaktita de William Auld, aperinta en 1958.
 
-i konsistas el 539 paĝoj de poeziaj tekstoj, plus enkonduko, glosoj, notoj kaj biografiaj notoj. i prezentas zorge elektitajn specimenojn el la verkoj de naŭdek poetoj el Aŭstrio, Belgio, Brazilo, Britio, Bulgario, ĉe˛oslovakio, ĉinio, Danlan-do, Estonio, Francio, Germanio, Hispanio (inkl. Katalunio), Hungario, Islando, Italio, Japanio, Jugoslavio, Latvio, Meksikio, Nederlando, Novzelando, Panamo, Pollando, Rumanio, Ruslando, Sarlando, Sudafriko, Svedio, Svisio kaj Usono. Eĉ kiam ni deprenas du aŭtornomojn, kiuj estas kaŝnomoj por aliaj poetoj en specialaj aspektoj de siaj personecoj, kaj la lan-don Panamon, kiu eble rilatas pli al la signifo de la greka su-fikso ol al geografia situo, restas multaj poetoj el multaj landoj. Post multa elektado Auld reduktis sian Antologion al 349
+i konsistas el 539 paĝoj de poeziaj tekstoj, plus enkonduko, glosoj, notoj kaj biografiaj notoj. i prezentas zorge elektitajn specimenojn el la verkoj de naŭdek poetoj el Aŭstrio, Belgio, Brazilo, Britio, Bulgario, ĉe˛oslovakio, ĉinio, Danlan-do, Estonio, Francio, Germanio, Hispanio (inkl. Katalunio), Hungario, Islando, Italio, Japanio, Jugoslavio, Latvio, Meksikio, Nederlando, Novzelando, Panamo, Pollando, Rumanio, Ruslando, Sarlando, Sudafriko, Svedio, Svisio kaj Usono. Eĉ kiam ni deprenas du aŭtornomojn, kiuj estas kaŝnomoj por aliaj poetoj en specialaj aspektoj de siaj personecoj, kaj la lan-don Panamon, kiu eble rilatas pli al la signifo de la greka su-fikso ol al geografia situo, restas multaj poetoj el multaj landoj. Post multa elektado Auld reduktis sian Antologion al
 
 poemoj.
 
-Auld celis artan antologion de la plej bonaj esperantaj poemoj. Konsultolibro devas mencii eĉ la ne sufiĉe lertajn ar-tistojn. Esperanto en Perspektivo, 1974, menciis 185 poetojn esperantajn, kaj al la supra listo de landoj ni devas aldoni Argentinon kaj Israelon. La sama verko mencias almenaŭ 136
+Auld celis artan antologion de la plej bonaj esperantaj poemoj. Konsultolibro devas mencii eĉ la ne sufiĉe lertajn ar-tistojn. Esperanto en Perspektivo, 1974, menciis 185 poetojn esperantajn, kaj al la supra listo de landoj ni devas aldoni Argentinon kaj Israelon. La sama verko mencias almenaŭ
 
 apartajn volumojn de originalaj poemoj, sed kompreneble multaj poemoj aperis nur en gazetoj .
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Ni memoru denove, ke esperanto enmondiĝis nur en 1887.
@@ -323,11 +242,7 @@ Tamen, kiam pianoludado malplaĉas al la orelo, ne ĉiam
 
 estas, ĉar la fortepiano bezonas agordadon. Foje estas la pi-anludanto, kiu bezonas agordadon kaj majstro povas per la sama instrumento krei ravan muzikon.
 
-uste kiam mi estis preta iĝi nura, kvankam danka, inter-
-
-ŝanĝanto de bildkartoj kaj probable eterna komencanto, saĝa instruisto en daŭriga koresponda kurso pruntis al mi Streĉi-ta kordo de Kalocsay. Tiutempe mi ne perfekte komprenis la libron. La vortprovizo estis por mi iom tro granda, multajn 23
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+uste kiam mi estis preta iĝi nura, kvankam danka, interŝanĝanto de bildkartoj kaj probable eterna komencanto, saĝa instruisto en daŭriga koresponda kurso pruntis al mi Streĉi-ta kordo de Kalocsay. Tiutempe mi ne perfekte komprenis la libron. La vortprovizo estis por mi iom tro granda, multajn
 
 
 subtilaĵojn mi kredeble ne perceptis. Sed mi tuj vidis, ke ĉi tie mi havas poemojn, kiujn oni povus tute sen absurdeco kompari kun konataj bonaj poemoj en mia nacia lingvo: kiuj havas enhavojn signifoplenajn, elpensitajn kaj pensigajn; diversajn formojn perfekte regitajn; verajn vortmuzikojn diversspecajn; riĉajn tropojn, emociajn nuancojn kaj kolorojn, strukturojn logikajn kaj emociajn; poemojn, kiuj sendube rajtas esti partoj de la mondliteraturo. Estis esence pro tiuj poemoj de Kalocsay, ke mi restis esperantisto kaj faris kelkajn seriozajn laborojn por esperanto.
@@ -338,14 +253,10 @@ Pli ol dudek jarojn pli poste mi vidis, kiel io tre simila okazis ĉe amikino mi
 
 Al angla klerulo traduko de angla poemo ofte estas tute kon-vinka atestaĵo pri la literatura valoro de esperanto. Se Kalocsay estus la sola esperanta poeto, ne povus post li resti ia ajn racia dubo, ĉu la lingvo taŭgas plene por ĉiuj poeziaj taskoj: epopeo, satiro, liriko, didaktika versa eseo, epigramo, medi-taĵo, elegio, poezia dramo, psikologia monologo, kabareda kanzono ktp.
 
-Sed la sola li ja ne estas. Mi jam menciis, ke oni registris 185 poetojn. Nu, kompreneble multaj el ili havis pli da bona intenco ol da talento. Multaj verkis verŝajne por propagandaj aŭ pedagogiaj celoj. Eĉ Julio Baghy, vere granda esperanta 24
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Sed la sola li ja ne estas. Mi jam menciis, ke oni registris 185 poetojn. Nu, kompreneble multaj el ili havis pli da bona intenco ol da talento. Multaj verkis verŝajne por propagandaj aŭ pedagogiaj celoj. Eĉ Julio Baghy, vere granda esperanta
 
 
-verkisto, iam rapidege verkis sian etan poemaron La vagabondo kantas, kiu, kvankam ĝi enhavas plurajn perlojn kaj la humuran poemon eble plej deklamitan en esperantaj rondoj, enhavas ankaŭ versajn ŝercetojn, komplimentojn kaj aliajn bagatelojn, kies celo estas pedagogia: prezenti simplajn versaĵojn por komencantoj. Baghy, homo rimarkinde malego-
-
-isma, ofte priparolis sian opinion, eĉ principon, ke verkistoj esperantistaj devas foje verki, sinofere, ion pli simplan ol ili deziras kiel artistoj verki, por provizi al komencantoj legmaterialon simplan, sed tamen lingve senriproĉan.
+verkisto, iam rapidege verkis sian etan poemaron La vagabondo kantas, kiu, kvankam ĝi enhavas plurajn perlojn kaj la humuran poemon eble plej deklamitan en esperantaj rondoj, enhavas ankaŭ versajn ŝercetojn, komplimentojn kaj aliajn bagatelojn, kies celo estas pedagogia: prezenti simplajn versaĵojn por komencantoj. Baghy, homo rimarkinde malegoisma, ofte priparolis sian opinion, eĉ principon, ke verkistoj esperantistaj devas foje verki, sinofere, ion pli simplan ol ili deziras kiel artistoj verki, por provizi al komencantoj legmaterialon simplan, sed tamen lingve senriproĉan.
 
 Eĉ kiam ni deprenas fuŝaĵojn, malfortajn versaĵojn, eĉ verkojn laŭdindajn kiel legmaterialon, sed sensignifajn kiel artverkojn, restas vera esperanta rikolto poezia kiu en la historia, sociologia kaj ekonomia situacio ŝajnas mirakla.
 
@@ -353,21 +264,14 @@ La leganto ne profitos multe per sufoka, anakonde longa nomaro aŭ titolaro nur.
 
 i komenciĝas kune kun la lingvo mem, per la poemoj de
 
-Zamenhof en la Unua libro; Zamenhof poste verkis sep aliajn poemojn. Du estas malgravaj porokazaj versoj, el kiuj unu, Al la fratoj, estas rimarkinde malpli lerta ol la aliaj. Nuntempe la poeziaj metodoj de Zamenhof ŝajnas primitivaj kaj naivaj: li foje rimas nur per gramatikaj finaĵoj, liaj metaforoj estas iom banalaj. Tamen jam li pruvis, ke oni povas verki en esperanto ne nur versajn organizitajn strofojn, sed poemojn almenaŭ dignajn kaj memorindajn; eĉ ke oni povas foje envortigi aŭ-
-
-tentikan lirikismon. Li verkis kelkajn poemojn ankaŭ en la jida. (Pri la jidaj poemoj de Zamenhof esploris A. Holzhaus.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Zamenhof en la Unua libro; Zamenhof poste verkis sep aliajn poemojn. Du estas malgravaj porokazaj versoj, el kiuj unu, Al la fratoj, estas rimarkinde malpli lerta ol la aliaj. Nuntempe la poeziaj metodoj de Zamenhof ŝajnas primitivaj kaj naivaj: li foje rimas nur per gramatikaj finaĵoj, liaj metaforoj estas iom banalaj. Tamen jam li pruvis, ke oni povas verki en esperanto ne nur versajn organizitajn strofojn, sed poemojn almenaŭ dignajn kaj memorindajn; eĉ ke oni povas foje envortigi aŭtentikan lirikismon. Li verkis kelkajn poemojn ankaŭ en la jida. (Pri la jidaj poemoj de Zamenhof esploris A. Holzhaus.
 
 
 Kelkaj informoj aperis en la kvina kajero de la ”iam komple-tigota plena verkaro ” de Zamenhof, Hebreo en la geto, Kioto 1976). Li certe havis ian poezian talenton, kvankam vivo de turmenta trookupiteco, kaj korpo ofte malsana, malhelpis la evoluadon de du talento. La du lirikoj de la Unua libro restas kortuŝaj. La espero restas oficiala himno por esperantaj kongresoj kaj similaj kunvenoj; alia edifa poemo, La vojo, restas kara kaj konata; Preĝo sub la verda standardo esprimas, simple kaj sincere, kaj vere kun ia efika simpla klimaksemo kaj emo-ciiga ripetado, idealon de religia toleremo kaj interfratiĝo de la tuta homaro. Lasta poemo de Zamenhof, Pluvo, estas historie kaj psikologie interesa, sed ankaŭ poezie iom signifa: liriko pri freŝiĝo de spirito dum pluva tago, eble kun nuanco de pensiga ambigueco aŭ simbolismo; poemo de Zamenhof
 
 mem, sen edifa aŭ pormovada celo, artverketo sendependa kaj — siamaniere kaj simple — sukcesa.
 
-Unua florado de esperanta poezio komenciĝis preskaŭ tuj post la enmondiĝo de la lingvo, tiel ke jam en 1893 Antoni Grabowski povis redakti etan antologion de poemoj en esperanto, La liro de la esperantistoj. Unu el liaj propraj poemoj, La tagiĝo, edifa metafora kuraĝigo por la esperantistoj, restas ŝatata kiel kanto. Du el la fratoj de L. L. Zamenhof, Felikso kaj Leono, iom verkis poemojn. Inter fruaj poetoj, kiuj montris ian teknikan kompetentecon, kaj kiuj havis percepteble dife-rencigeblajn poeziajn personecojn, oni povas mencii, laŭ elekto neeviteble iom arbitra: Vasilij N. Devjatnin, kiu verkis proze kaj poezie, originale kaj traduke; Stanislav Schulhof, konata ĉefe kiel originala poeto, kvankam li ankaŭ tradukis el la ĉeą; Stanislaw Karolczyk, en kies unu originala poemaro oni trovas kelkajn poemojn, en kiuj li firme regas malfacilajn 26
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Unua florado de esperanta poezio komenciĝis preskaŭ tuj post la enmondiĝo de la lingvo, tiel ke jam en 1893 Antoni Grabowski povis redakti etan antologion de poemoj en esperanto, La liro de la esperantistoj. Unu el liaj propraj poemoj, La tagiĝo, edifa metafora kuraĝigo por la esperantistoj, restas ŝatata kiel kanto. Du el la fratoj de L. L. Zamenhof, Felikso kaj Leono, iom verkis poemojn. Inter fruaj poetoj, kiuj montris ian teknikan kompetentecon, kaj kiuj havis percepteble dife-rencigeblajn poeziajn personecojn, oni povas mencii, laŭ elekto neeviteble iom arbitra: Vasilij N. Devjatnin, kiu verkis proze kaj poezie, originale kaj traduke; Stanislav Schulhof, konata ĉefe kiel originala poeto, kvankam li ankaŭ tradukis el la ĉeą; Stanislaw Karolczyk, en kies unu originala poemaro oni trovas kelkajn poemojn, en kiuj li firme regas malfacilajn
 
 
 strofoformojn; Boris Mirski, milda satiristo. Tre rilata al nia nuna temo estas ankoraŭ amuza fabelo de Mirski pri kokino, kiu kredas, ke inkubatoro ne povas kovi ovojn kaj produkti sanajn kokidojn … same kiel multaj homoj kredas, ke lingvo kreita kiel estis kreita esperanto, ne povas naski artverkojn.
@@ -378,9 +282,7 @@ universitato de enevo, li verkis gravajn franclingvajn librojn pri historiaj kaj
 
 La plej bonaj poemoj de tiu frua periodo klare pruvis, ke en esperanto oni povas verki versojn korektajn, koncizajn, laŭ la longaj tradicioj de eŭroplingvaj lirikoj. La fruaj paĝoj de la Esperanta antologio ofte pensigas min pri la multaj kantaroj kaj lirikaroj, bonaj sed ne elstaraj, kiuj aperis en Anglujo dum la deksesa jarcento.
 
-Okazis revolucio en la originala esperanta poezio, kiam debutis la tielnomita Budapeŝta Skolo, kies naskiĝon ni povas dati per la apero en 1921 de Mondo kaj koro, unua originala poemaro de Kálmán Kalocsay. Rapide sekvis Preter la vivo de 27
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Okazis revolucio en la originala esperanta poezio, kiam debutis la tielnomita Budapeŝta Skolo, kies naskiĝon ni povas dati per la apero en 1921 de Mondo kaj koro, unua originala poemaro de Kálmán Kalocsay. Rapide sekvis Preter la vivo de
 
 
 Gyula Baghy en 1922. (Tiel iliaj nomoj hungare, sed ili kutime uzis la esperantajn formojn Kolomano kaj Julio.) Estis la fino de primitivismo kaj diletantismo.
@@ -391,25 +293,16 @@ Kalocsay kaj Baghy iasence komplementis unu la alian. Kalocsay estis tre klera, 
 
 Kalocsay, sentante la bezonon de pli riĉa vortaro por altnivela poezio, kaj dezirante eviti en poezio kelkajn longajn kunmetaĵojn, enkondukis en esperanton manplenon da novaj vortoj, kiel laŭ la Fundamento mem li rajtis fari. Multaj liaj neologismoj prosperis, kelkaj estis mortnaskitaj. Dum la fruaj jaroj de la budapeŝta skolo senproporciaj protestoj kontraŭ tiuj neologismoj ŝajnigis ilin pli gravaj ol la ege signifa fakto, ke jen aperis esperanta poeto tute malnaiva kaj matura, kies poemojn oni povus kompari kun tiuj de iu similtema respek-tata poeto nacilingva.
 
-Eĉ la foje monstra maldankemo kaj blindecoj de grupoj da esperantistoj, kaj dolora izolsento, ne detruis la sindediĉon de Kalocsay. Meze de granda profesia okupiteco li montris kre-an energion gigantan. Liajn tradukajn verkojn ni konsideros aliloke. Liaj originalaj poemoj estis ĉefe tiuj en Mondo kaj ko-ro, Streĉita kordo kaj Izolo, kiu lasta volumo, plejparte pereis 28
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Eĉ la foje monstra maldankemo kaj blindecoj de grupoj da esperantistoj, kaj dolora izolsento, ne detruis la sindediĉon de Kalocsay. Meze de granda profesia okupiteco li montris kre-an energion gigantan. Liajn tradukajn verkojn ni konsideros aliloke. Liaj originalaj poemoj estis ĉefe tiuj en Mondo kaj ko-ro, Streĉita kordo kaj Izolo, kiu lasta volumo, plejparte pereis
 
 
 dum la dua mondmilito. (Finfine oni represis ĝin en 1977.) Volumeto, Rimportretoj, priskribas, ofte sprite, kvindek sep konatajn esperantistojn per formo ege strikta kaj facile mo-notonika de la rondelo. Kalocsay tiel brile uzis la formon, ke ĉe li ĝi ne iĝis monotona.
 
 uste priskribi la atingojn de Kalocsay postulus tutan libron. Inter liaj atingoj menciindaj tie ĉi estas, nur ekzemple: primovadaj, edifaj poemoj, kiuj vere estas artverkoj, kiam, ekzemple, por kongreso en Helsinki Kalocsay verkis salutan poemon laŭ la aliteracia formo de Kalevala; multajn tenerajn ampoemojn, inter ili la longa Maja idilio, kiu majstre utiligas variajn strofoformojn por kapti lirikismon, pasion, urĝon, lu-demon, misteron de juna amo; en Patrineco, belega portreto, senteme tenera kaj komprenema pri vivospertoj laŭ virina vidpunkto, pri la misteroj de frua amo kaj unua gravediĝo; brila poemserio, sub la titolo Ahasvero de amo, kiu per priskriboj kaj dramaj monologoj montras, kiel edzo ankoraŭ amanta tamen malfidelas, poste pentas; kelkaj bonegaj poemoj en liberaj versoj, kiuj ne estas distranĉitaj prozaĵoj, sed poezio disciplinita, ŝparema, majeste vortmuzika; en Kompato, potenca poemo pri religio kaj politiko, kies pensevoluado kaj kom-plekseco forte kontrastas kun la banala sloganado de multaj poemoj pri tiaj temoj.
 
-Kalocsay havis tiun memsufiĉon, kiun kredeble oni pre-
+Kalocsay havis tiun memsufiĉon, kiun kredeble oni preskaŭ ĉiam trovas ĉe vere grandaj artistoj: li perfektigis en izolo la artverkon, sendepende, memkritike; kaj li atendas, ke la leganto streĉu sin kaj saltu, se necese.
 
-skaŭ ĉiam trovas ĉe vere grandaj artistoj: li perfektigis en izolo la artverkon, sendepende, memkritike; kaj li atendas, ke la leganto streĉu sin kaj saltu, se necese.
-
-Baghy, pli pedagogia, malpli parnaseca, pli indulgas la nespertan poezileganton per poemoj iom pli simplajn, per refre-noj kaj ripetadoj, per enhavo iasence malpli pure literature-29
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-ca. Liaj verkoj tre taŭgas por iu, kiu deziras komenci studadon de la esperanta poezio. Sed ni ne subtaksu lian genion.
+Baghy, pli pedagogia, malpli parnaseca, pli indulgas la nespertan poezileganton per poemoj iom pli simplajn, per refre-noj kaj ripetadoj, per enhavo iasence malpli pure literatureca. Liaj verkoj tre taŭgas por iu, kiu deziras komenci studadon de la esperanta poezio. Sed ni ne subtaksu lian genion.
 
 Li regis multajn strofoformojn; liaj plej bonaj poemoj estas rektaj, ŝparemaj, drastaj; vivoplenaj estas liaj bildoj; li ofte tre bone sugestas, ne nur malpezajn emociojn — ĉar li estas ĉar-ma poeto de flirtado kaj de ŝercado — sed tragikajn, intensajn emociojn. Ni legu, ekzemple, lian dramecan monologon An-taŭ la tribunalo, en kiu junulino, hontoplena, rakontas kiel dommastro delogis ŝin kaj ŝi mortigis sian novnaskitan infa-non, sed poste protestas kontraŭ nejusta, senkompata socia ordo, kiu severe punas la malpli kulpajn homojn; aŭ Sangaj larmoj, en kiu la videblaj suferoj de ekspluatata anamo (t.e.
 
@@ -420,9 +313,6 @@ Baghy speciale regis versajn dialogojn kaj originalajn epo-sojn. Multaj el liaj 
 Liaj poemkolektoj estas Preter la vivo, Pilgrimo, La vagabondo kantas; ĉielarko, polurita kolekto de dek du fabeloj el dek du landoj, reverkitaj en diversaj strofoformoj; Aŭtuna foliaro, lasta kolekto, en kiu troviĝas kelkaj interesaj eksperimentoj, ekzemple internaj e˛oj, kiujn Baghy nomas ”ĉenrimoj”.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Estiĝis tuta budapeŝta skolo, kies influo etendiĝis larĝe.
 
 Kune kun la granda esperantologo kaj leksikologo Gaston Waringhien Kalocsay preparis libron, Parnasa gvidlibro, kiu donas ”ĉion, krom genio” por fariĝi poeto: informojn pri ritmoj, strofoformoj, rimoskemoj; rimvortaron ktp, kaj brilan Horaciecan versan eseon de Kalocsay Pri arto poetika. Tiu ĉi libro kredeble multe influadis inteligentajn esperantajn poetojn. Inter la budapeŝtanoj mem troviĝis almenaŭ unu alia vere granda poeto, Lajos Tárkony (pli frue Totsche), kies sola sed granda kolekto, Soifo, aperis nur en 1964. Tárkony regis la soneton petrarkan kaj la iom epigraman mallongan poemon, sed unika en esperanto estas lia longa poemo, en multaj diversaj strofoformoj, Okcidento, en kiu li ame, klere, kun multaj vivaj bildoj, lertaj kontrastoj, subitaj surprizoj kaj epi-grame trafaj resumoj skizas la kulturan historion de okcidenta Eŭropo. Bonaj estas ankaŭ kelkaj poemoj de Ferenc Szilá-
@@ -431,11 +321,7 @@ gyi (kiu pasigis grandan parton de sia vivo en Svedio) kaj Imre Baranyai (”Emb
 
 Inter alilandaj poetoj, kiuj verkis pli-malpli sub la influo de la budapeŝta skolo, kelkaj el la plej menciindaj estas G.E.
 
-Maura, kiu en 1979 finfine demetis sian maskon de pana-
-
-mano kaj aperis kiel la alifake eminentega esperantisto Gaston Waringhien; N. Kurzens, poeto malmulte verkinta, sed forte, pri malgajaj sentoj; la unua meritplena poetino, Hilda Dresen; grava kaj ege individueca poeto E. Miąlski, tre konscia pri la dialektiko de kontraŭoj, inter tiuj de viro kaj virino; kaj la franco Raymond Schwartz, humura kaj satira poeto kun versoj kaloĉaje poluritaj: poeto de vortludoj, fiŝercoj, komentoj pri homaj absurdaĵoj. Liaj kolektoj, Verdkata testamen-31
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Maura, kiu en 1979 finfine demetis sian maskon de panamano kaj aperis kiel la alifake eminentega esperantisto Gaston Waringhien; N. Kurzens, poeto malmulte verkinta, sed forte, pri malgajaj sentoj; la unua meritplena poetino, Hilda Dresen; grava kaj ege individueca poeto E. Miąlski, tre konscia pri la dialektiko de kontraŭoj, inter tiuj de viro kaj virino; kaj la franco Raymond Schwartz, humura kaj satira poeto kun versoj kaloĉaje poluritaj: poeto de vortludoj, fiŝercoj, komentoj pri homaj absurdaĵoj. Liaj kolektoj, Verdkata testamen-31
 
 
 to, La stranga butiko, La ĝoja podio kaj Kun siaspeca spico! donis multan plezuron al legantoj, inkluzive multajn, kiuj ne kapablus ĝui pli seriozajn verkojn; kaj liaj plej bonaj verkoj estas vere piroteknikaj virtuozaĵoj.
@@ -444,11 +330,7 @@ Longe daŭris la budapeŝta skolo kaj ĝia influo restas granda. Sed en 1952 ape
 
 William Auld estas ĝis nun kredeble la sola poeto, kiu povus rivali kun Kalocsay por la titolo de la plej granda esperanta poeto. Lia parto en Kvaropo jam montris grandan diverse-con de temoj kaj rimedoj: de amuza, virtuoza onomatopea mimiko de ebrio, ĝis fortaj bildoj pri seksaj turmentoj kaj mondakuza realisma portreto pri la mizera, nehomiga vivo de laboristedzino en aĉa kvartalo. Sekvis lia ĉefverko La infana raso; kaj poemaroj Unufingraj melodioj kaj Humuroj. Auld ĉiam havas ion por diri kaj ĉiam aplikas severe elpensitajn rimedojn.
 
-John Dinwoodie estas kredeble ĝis nun la plej bona religia poeto en esperanto, kun kristala klareco kaj granda sincereco artlerte esprimitaj. Liaj karitato kaj kompato, ankaŭ la te-nereco de liaj ampoemoj, pensigas ofte pri Baghy. John Francis prezentis sin en Kvaropo per longa poemo pri la evoluo kaj malapero de la kosmo, kun bildoj sciencfikciecaj bele aran-
-
-ĝitaj en fluaj kvarversoj. Liaj mallongaj poemoj restas neko-lektitaj. Reto Rossetti miksas frivolajn aŭ satiretajn poemojn kun elverŝoj de fortaj emocioj: li povas vortludi same pirotek-nike kiel Schwartz, sed ankaŭ verki tenere pri amo aŭ ama-32
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+John Dinwoodie estas kredeble ĝis nun la plej bona religia poeto en esperanto, kun kristala klareco kaj granda sincereco artlerte esprimitaj. Liaj karitato kaj kompato, ankaŭ la te-nereco de liaj ampoemoj, pensigas ofte pri Baghy. John Francis prezentis sin en Kvaropo per longa poemo pri la evoluo kaj malapero de la kosmo, kun bildoj sciencfikciecaj bele aranĝitaj en fluaj kvarversoj. Liaj mallongaj poemoj restas neko-lektitaj. Reto Rossetti miksas frivolajn aŭ satiretajn poemojn kun elverŝoj de fortaj emocioj: li povas vortludi same pirotek-nike kiel Schwartz, sed ankaŭ verki tenere pri amo aŭ ama-32
 
 
 re pri sufero. Rossetti ĝenerale brile kaj elegante trafas ĝuste tion, kion li kredeble celas. Liaj celoj estas kutime relative malgrandskalaj, sed en la dua kolekto, Pinta krajono, aperis La jubilea eposo, versa skizo pri la historio de la esperanto-movado, kiu, eĉ sen muziko kaj scenoj de la prezentado en 1955
@@ -463,30 +345,21 @@ La akceptita termino ”la skota skolo” estas iom misinfor-ma: Rossetti estas 
 
 Oni rajtas ami aŭ malami la oblikvajn, formesplorajn, el-vokivajn metodojn de kelkaj nuntempaj poeziaj specoj; sed se nuntempa lingvo ne povas adaptiĝi al tiaj metodoj, ĝi ne estas plene adekvata por nuntempaj seriozaj poetoj. Oni ja ne povas nur senĉese imiti eĉ la plej belajn modelojn. Sed jam ekzistas esperanta poezio, kiun oni povus nomi modernisma.
 
-Jam en 1914 N. Borisov tradukis kelkajn tiamajn rusajn futu-ristajn poemojn. Sed en 1956 aperis vere tre grava verko de Auld, La infana raso, grandskala filozofieca poemo, influita per la metodoj de T.S. Eliot kaj Ezra Pound: ekzemple bildoj vivaj, sed kies kunligitecon oni devas mem esplori; eksperimentaj uzoj de vortoj, ekzemple signifoplenaj vortludoj kaj tipografiaj neordinaraĵoj; kompleksaj aludoj. Aliaj poetoj, kiuj uzas draste modernajn rimedojn, estas Baldur Ragnarsson, 33
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Jam en 1914 N. Borisov tradukis kelkajn tiamajn rusajn futu-ristajn poemojn. Sed en 1956 aperis vere tre grava verko de Auld, La infana raso, grandskala filozofieca poemo, influita per la metodoj de T.S. Eliot kaj Ezra Pound: ekzemple bildoj vivaj, sed kies kunligitecon oni devas mem esplori; eksperimentaj uzoj de vortoj, ekzemple signifoplenaj vortludoj kaj tipografiaj neordinaraĵoj; kompleksaj aludoj. Aliaj poetoj, kiuj uzas draste modernajn rimedojn, estas Baldur Ragnarsson,
 
 
-kiu uzas multajn simbolojn, metaforojn, imagojn strange in-terrilatajn; Sylla Chavez, kun iom hipnotaj liberaj versoj; kaj, debutinte nur en 1972 per volumo Vojo kaj vorto, Roberto Passos Nogueira, kiu verkas originalajn poemojn laŭ tre eksperimentaj metodoj — ekzemple vortludoj, bizaraj kunme-
-
-taĵoj de ideoj, rompitaj frazoj ktp. — kaj kunlabore kun Socor-ro Sampaio tradukis el multaj konataj poetoj, ekzemple Brecht, Dylan Thomas, T.S. Eliot, Pound, Neruda. Edwin de Kock ne estas tiel tuj-videble kaj draste eksperimenta, sed liaj poemoj estas riĉe pensigaj enhave kaj teknike.
+kiu uzas multajn simbolojn, metaforojn, imagojn strange in-terrilatajn; Sylla Chavez, kun iom hipnotaj liberaj versoj; kaj, debutinte nur en 1972 per volumo Vojo kaj vorto, Roberto Passos Nogueira, kiu verkas originalajn poemojn laŭ tre eksperimentaj metodoj — ekzemple vortludoj, bizaraj kunmetaĵoj de ideoj, rompitaj frazoj ktp. — kaj kunlabore kun Socor-ro Sampaio tradukis el multaj konataj poetoj, ekzemple Brecht, Dylan Thomas, T.S. Eliot, Pound, Neruda. Edwin de Kock ne estas tiel tuj-videble kaj draste eksperimenta, sed liaj poemoj estas riĉe pensigaj enhave kaj teknike.
 
 Alian aspekton de la uzado de lingvo ĉe la malfacilaj limo-zonoj de lingvaj ebloj donas rimarkinda volumo, La libro de amo, konsistanta el la Sekretaj sonetoj de Peter Peneter, kiu pritraktas normalan, sanan kaj feliĉan amrilaton inter du ge-junuloj, ĝis la unua ido estas preskaŭ preta naskiĝi; kaj kolekto de tradukoj, parodioj kaj originalaĵoj de Georgo Peterido Peneter, kiuj ĉefe pritraktas multajn tre diversajn kaj foje per-versajn aspektojn de la seksa vivo. Peter estis probable Kalocsay, kvankam li neniam plene konfesis tion, kaj Peterido estas Waringhien. En iu ajn lingvo La libro de amo estus raraĵo.
 
 i trovas rimedojn por priskribi fiziologiajn intimaĵojn de la seksa vivo kun tenero, foje humuro, kaj varieco; certe estetike tre sukcese, kvankam tia libro ne estas por ĉies gusto.
 
-La nuna ĉapitro celas pritrakti nur kelkajn plej signifajn verkojn kaj verkistojn; sed oni devas klare kompreni, ke ili ekzistas en kadro de multaj pli vastaj perspektivoj: ekzistas multaj bonaj minoraj poetoj esperantaj, kaj estas ofte malfacile difini minorecon. Nur kelkaj inter multaj menciindaj estas: Eli Urbanová, kiu aparte mastras sapfajn strofojn; Nikolaj Hohlov, grava lirikisto; L.N. Newell; A.D. Foote, kies fakte tre 34
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+La nuna ĉapitro celas pritrakti nur kelkajn plej signifajn verkojn kaj verkistojn; sed oni devas klare kompreni, ke ili ekzistas en kadro de multaj pli vastaj perspektivoj: ekzistas multaj bonaj minoraj poetoj esperantaj, kaj estas ofte malfacile difini minorecon. Nur kelkaj inter multaj menciindaj estas: Eli Urbanová, kiu aparte mastras sapfajn strofojn; Nikolaj Hohlov, grava lirikisto; L.N. Newell; A.D. Foote, kies fakte tre
 
 
 originalan kaj potencan talenton tragika malsano malhelpis plene evoluiĝi; Poul Thorsen, eble ĉefe pensiga humuristo, sed ankaŭ kun lirika talento; Aldo di Giorgi, talento eble ankoraŭ evoluonta el interesaj komencoj; Miyamoto Masao. Mi mem eble morgau farus iom alian liston, kaj alia verkisto certe farus.
 
 Plurajn esperantajn poemojn oni jam riĉigis per muziknotoj. Esperanta antologio estas certe ĝis nun la plej bona antologio de esperantaj originalaj poemoj; sed multaj aliaj malgrandaj antologioj ekzistas. Recitadoj de poemoj estas ne malofte partoj de kulturaj esperantaj eventoj; kaj la Magne-tofona servo de UEA vendas multajn sonbendojn de poetoj, kiuj laŭtlegas la proprajn poemojn. La originala poezio en esperanto estas jam matura literatura fako. De longe ne plu temas pri nura provado de lingvo per diversaj formoj, sed poezio tute sendependa, aŭtonomia, kiu proponas ion legin-dan por ĉiuj poeziamantoj, ekde tiuj, kiuj deziras melodiajn, simplajn korelverŝojn aŭ pikantajn epigramajn komentojn pri la vivo, ĝis tiuj, kies defieme aktivaj pensoj preferas lukti kun la plej kriptaj simboloj kaj elipsoj de la avangardo.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Prozo fikcia
@@ -498,13 +371,7 @@ la antologio 33 rakontoj (1964), redaktita de Reto Rossetti kaj Ferenc Szilágyi
 Ekzistas jam lingva ilaro por altnivelaj maturaj romanoj; sed ne estas eble aserti, ke fikcia prozo en esperanto atingis jam nivelon similan al tiu de la originala poezio. Jam abundas interesegaj, foje artisme bonaj, rakontoj; ĉu ekzistas ro-manaj majstroverkoj, estas dubinde; kaj certe esperanto ankoraŭ ne havas siajn Tolstoj, Dostojevski, Dickens, Balzac, Zola, George Eliot, Henry James.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Mi jam aludis la ekonomian flankon de la malhelpoj. Pri grandskala esperanta romano ekzistas alia malhelpo: vere granda romano, laŭ modernaj konceptoj de tiu arta ĝenro, devas kredeble enhavi ian profundan psikologian esploradon de pluraj individuoj, kaj samtempe iom larĝan penetradon de iu socia medio. Devas esti eksterordinare malfacile verki gravan romanon vere taŭgan por internacia legantaro; adekva-te rilatigi sufiĉe universalan mondrigardon, pli grandan ol lokaj dogmoj, al tiu amaso de lokaj, tempaj kaj precipe personaj detaletoj, kies malfortaj fadenoj teksiĝas kompleksege en la vivtapeton. Ni pensu, kiel ofte tre laŭdata romano tradukita ŝajnas tiel fremda, ke ni legas, spertante ĝin pli kiel ekzotikan kuriozaĵon ol kiel eminentan fikcion. Por verki plene memstaran kaj vere universalan esperantan romanon oni kredeble bezonus ne nur geniulon kiel Balzac aŭ Henry James, sed unu el tiuj supergeniuloj kiel ŝekspiro, kiuj tre malofte trakometas la ĉielon de iu ajn lando. Tamen ekzistas respektinda esperanta fikciaro. La esperanta romano debutis en 1907 per la sensacia, felietoneca romano de Henri Vallenne, Kastelo de Prelongo, kiun sekvis en 1908 lia ĉu li? Sed, same kiel pri la poezio, la budapeŝta skolo multon kontribuis al arta maturiĝo de la esperanta romano. Julio Baghy restas ĝis nun unu el la plej bonaj esperantaj romanistoj: Viktimoj kaj Sur sanga tero, tragikaj, emociplenaj romanoj bazitaj sur liaj propraj travivaĵoj kiel militkaptito en Siberio, estas almenaŭ pli ol fikcioj nur distraj. Inter aliaj meritoj, Baghy brile evoluigis esperantajn konversaciajn stilojn, eĉ diverslandajn ”akcen-tojn”; kaj kapablis vere krei karakterojn kaj emociojn. Iom malpli forta romano, iom sentimentala, Printempo en aŭtuno, tamen ne estas sen psikologiaj meritoj kaj realismaj detaloj.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Sed eble la plej interesa fikcio de Baghy estas surprize la avangarda romano Hura!, kiu miksas (foje kun neatendita iaspeca realismo, ĉar la vivo mem miksas la ĝenrojn ofte tre mal-bonguste!) elementojn de filozofieca satiro, gajege ekstrava-ganca farsa satiro, sciencfikcio kaj fantazio, komiko pli realisma, seriozaj emocioj de simpatiaj homoj serioze pritraktitaj, romantika politika intrigo. i enhavas multajn vere potencajn paĝojn, tre riĉan inventaĵaron kaj, kvankam la siberiaj romanoj estas pli kortuŝaj kaj intensaj, Hura! estas eble ĝis nun la plej solide intelekte originala kaj interesa esperanta romano.
@@ -513,23 +380,11 @@ Baranyai verkis romaneton, Marta kaj la grupo, en kiu la medio de esperanta grup
 
 Raymond Schwartz debutis kiel romanisto per mallonga,
 
-sed bone verkita romano Anni kaj Montmartre en 1930, sed nur en 1962 aperis lia plej ambicia kaj serioza verko, relative grandskala romano, Kiel akvo de l’rivero, unu el la plej gravaj romanoj ĝis nun en esperanto. i pritraktas, ĝenerale realisme, travivaĵojn de familio, kies individuajn vivojn diversma-niere frapis la du mondmilitoj. Ne mankas la konata ŝvarca humuro, gajaj bildoj pri festoj kaj drinkado kaj simile, sed sube fluas malpli trilanta rivero, la voĉo de malpli ridema, eĉ iom sombra Schwartz, kiu vere komprenas la tragikon de ho-38
+sed bone verkita romano Anni kaj Montmartre en 1930, sed nur en 1962 aperis lia plej ambicia kaj serioza verko, relative grandskala romano, Kiel akvo de l’rivero, unu el la plej gravaj romanoj ĝis nun en esperanto. i pritraktas, ĝenerale realisme, travivaĵojn de familio, kies individuajn vivojn diversma-niere frapis la du mondmilitoj. Ne mankas la konata ŝvarca humuro, gajaj bildoj pri festoj kaj drinkado kaj simile, sed sube fluas malpli trilanta rivero, la voĉo de malpli ridema, eĉ iom sombra Schwartz, kiu vere komprenas la tragikon de homaj vivoj, kaj kiel la potencavido de kelkaj povas disbati la vivojn de multaj, kiuj avidas nur iom da senkulpa persona feliĉo. Tre alispecan miksaĵon de personaj koncernoj kun politikaj motivoj oni trovas en la soveta romano de Vladimir Varankin, Metropoliteno (1933). Kelkaj ŝatataj romanistoj malpli altgradaj, sed kies verkoj estas legindaj, inkluzivas Jan Fethke (”Jean Forge”), Stellan Engholm, H.J. Bulthuis, Heinrich Luyken. Eble aparte interesa estas tre originala verketo de Jean Ribillard, kiu uzas la sufiĉe oftan metodon satiri la homan vivon tra la buŝo de besto en Vivo kaj opinioj de majstro M’Saud — simpatia kaj elokventa azeno.
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Pro la preskaŭ plena manko de komercaj motivoj ĉe esperanta verkado kaj eldonado ne ekzistas en esperanto la granda literaturo nur distra kaj sensacia, kiun oni trovas en multaj nacilingvaj literaturoj. Kaj ankoraŭ ne ekzistas, ekzemple, detektivromanoj aŭ streĉromanoj je arta nivelo kaj malnaivo-nivelo de la plej bonaj specimenoj de tiu minora arto en, ekzemple, la angla aŭ la franca. Esperantistoj tamen komencas konscii, ke oni vere bezonas ian tian relative frivo-lan literaturon. Multaj homoj, kiuj ne legas altnivelajn artverkojn malfacilajn, volonte legas ion pli eskapisman, kaj por esperantistoj foje pedagogiaj aŭ propagandaj motivoj ansta-taŭas la komercajn motivojn de aliaj. Eble la detektivromano en esperanto komencas iom evolui. La tri detektivromanoj de Johån Valano, ĉu vi kuiras ĉine?, ĉu li bremsis sufiĉe? kaj ĉu li venis trakosme? estas bonstilaj kaj sianivele iom realismaj, kreas medion (eĉ kun propra dialekto, kiu havas specialan funkcion en la intrigo) kaj havas iom da psikologio.
 
-
-maj vivoj, kaj kiel la potencavido de kelkaj povas disbati la vivojn de multaj, kiuj avidas nur iom da senkulpa persona feliĉo. Tre alispecan miksaĵon de personaj koncernoj kun politikaj motivoj oni trovas en la soveta romano de Vladimir Varankin, Metropoliteno (1933). Kelkaj ŝatataj romanistoj malpli altgradaj, sed kies verkoj estas legindaj, inkluzivas Jan Fethke (”Jean Forge”), Stellan Engholm, H.J. Bulthuis, Heinrich Luyken. Eble aparte interesa estas tre originala verketo de Jean Ribillard, kiu uzas la sufiĉe oftan metodon satiri la homan vivon tra la buŝo de besto en Vivo kaj opinioj de majstro M’Saud — simpatia kaj elokventa azeno.
-
-Pro la preskaŭ plena manko de komercaj motivoj ĉe es-
-
-peranta verkado kaj eldonado ne ekzistas en esperanto la granda literaturo nur distra kaj sensacia, kiun oni trovas en multaj nacilingvaj literaturoj. Kaj ankoraŭ ne ekzistas, ekzemple, detektivromanoj aŭ streĉromanoj je arta nivelo kaj malnaivo-nivelo de la plej bonaj specimenoj de tiu minora arto en, ekzemple, la angla aŭ la franca. Esperantistoj tamen komencas konscii, ke oni vere bezonas ian tian relative frivo-lan literaturon. Multaj homoj, kiuj ne legas altnivelajn artverkojn malfacilajn, volonte legas ion pli eskapisman, kaj por esperantistoj foje pedagogiaj aŭ propagandaj motivoj ansta-taŭas la komercajn motivojn de aliaj. Eble la detektivromano en esperanto komencas iom evolui. La tri detektivromanoj de Johån Valano, ĉu vi kuiras ĉine?, ĉu li bremsis sufiĉe? kaj ĉu li venis trakosme? estas bonstilaj kaj sianivele iom realismaj, kreas medion (eĉ kun propra dialekto, kiu havas specialan funkcion en la intrigo) kaj havas iom da psikologio.
-
-La esperanta novelo estas iom pli larĝe kaj bone evoluin-ta ol la ĝisnuna romano, verŝajne grandparte pro la mencii-39
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-taj ekonomiaj motivoj. Estas eble signife, ke Plena llustrita Vortaro (1970) jam difinas ”novelo” (”mallonga literatura verko, skizanta per karakterizaj trajtoj fakton de la vivo, econ de karaktero ks” kun aludo al kondensado kaj al majstroj aliling-vaj de la novelo, tiel ke klare temas pri eble altnivela artverko; sed ke la difino de ”romano” ankoraŭ iom emfazas la pli eskapisman kaj sensacian aspekton de tiu artformo, kaj ne mencias la plej altajn kriteriojn de la arta romano grava.
+La esperanta novelo estas iom pli larĝe kaj bone evoluin-ta ol la ĝisnuna romano, verŝajne grandparte pro la menciitaj ekonomiaj motivoj. Estas eble signife, ke Plena llustrita Vortaro (1970) jam difinas ”novelo” (”mallonga literatura verko, skizanta per karakterizaj trajtoj fakton de la vivo, econ de karaktero ks” kun aludo al kondensado kaj al majstroj aliling-vaj de la novelo, tiel ke klare temas pri eble altnivela artverko; sed ke la difino de ”romano” ankoraŭ iom emfazas la pli eskapisman kaj sensacian aspekton de tiu artformo, kaj ne mencias la plej altajn kriteriojn de la arta romano grava.
 
 Inter fruaj esperantaj novelverkistoj ne malestimindaj troviĝas Jeanne Flourens (”Roksano”) kaj, pli bona, Ivan ŝirjaev.
 
@@ -537,25 +392,14 @@ Denove elstaris la budapeŝta skolo: Julio Baghy restas unu el niaj plej eminent
 
 M. Newell en Bakŝiŝ kaj la satiraj noveletoj de Forge en La verda raketo. En la novelaro Se grenereto… K.R.C. Sturmer (”Kenelm Robinson”) realisme kaj kortuŝe portretas, inter aliaj temoj, la internan vivon de lernejknabo.
 
-Ankaŭ la skota skolo valore kontribuis al la esperanta no-velarto. Elstara novelisto estas John Francis, kies kolekto Vit-ralo enhavas, inter aliaj bonaj noveloj, kelkajn brilajn satirajn novelojn pri fantazia regno de Juglando, kun seka ironia hu-40
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-muro, bele trafaj rapidaj frapoj kaj multa inventemo; kaj eble unu el la plej vere potencaj noveloj ĝis nun verkitaj en esperanto, la neforgesebla ermoj en rikolto, kiu montras, tra la etaj kruelaĵoj kaj amuzoj de kelkaj knaboj, la neraciecon, ka-pricemon kaj sencelan kruelecon de ni homoj. Reto Rosset-ti, en El la maniko, verkas kortuŝe, skizante realisme pecetojn el la vivo aŭ ellaborigante komplikan historion malpezan aŭ tragikan, sed ĉiam per stilo virtuoze elpensita kaj tre persona. Ankaŭ Marjorie Boulton verkis novelojn, kolektitajn en Okuloj.
+Ankaŭ la skota skolo valore kontribuis al la esperanta no-velarto. Elstara novelisto estas John Francis, kies kolekto Vit-ralo enhavas, inter aliaj bonaj noveloj, kelkajn brilajn satirajn novelojn pri fantazia regno de Juglando, kun seka ironia humuro, bele trafaj rapidaj frapoj kaj multa inventemo; kaj eble unu el la plej vere potencaj noveloj ĝis nun verkitaj en esperanto, la neforgesebla ermoj en rikolto, kiu montras, tra la etaj kruelaĵoj kaj amuzoj de kelkaj knaboj, la neraciecon, ka-pricemon kaj sencelan kruelecon de ni homoj. Reto Rosset-ti, en El la maniko, verkas kortuŝe, skizante realisme pecetojn el la vivo aŭ ellaborigante komplikan historion malpezan aŭ tragikan, sed ĉiam per stilo virtuoze elpensita kaj tre persona. Ankaŭ Marjorie Boulton verkis novelojn, kolektitajn en Okuloj.
 
 La satiraj noveloj de Szathmári, kolektitaj en Maŝinmondo, ne atingis la famon de lia romano, sed meritas atenteman legadon. John Hammond Rosbach estas ĉefe novelisto kaj liaj kolektoj Bagatelaro, Homoj kaj riveroj, La mirinda eliksiro kaj Disko, kvankam ne tiel frape elstaraj, kiel tiuj de, ekzemple, Francis aŭ Baghy, estas legindaj kaj bonstilaj. Inter aliaj novelistoj menciindaj estas: Mason Stuttard, R.J. French, Julia Pióro, ŝtefo Urban, Andreo Szabó, Bertram Potts, Ueyama Masao, Konisi Gaku. Aperis tra la esperanta gazetaro sufiĉe multaj unuopaj noveloj ne malbonaj.
 
 Kaj la simpatia fiverkisto Louis Beaucaire daŭrigis sian pro-fanadan laboron per novelaro El la vivo de bervala sentaŭgulo, gaje cinikaj kaj sprite senpietataj rakontoj pri seksaj aventuroj en esperantista medio. Kvankam liaj ekzemploj por la vivkon-duto estas de tre duba valoro, lia uzado de esperanto estas brila, kun multaj lertaj aludoj kaj, inter aliaj priesperantaj ŝercoj, ĉarmaj citaĵoj el la Fundamento de esperanto, rilate al kuntekstoj, al kiuj Zamenhof nepre ne destinis ilin. Lingvo devas enhavi tre viglan vivon, por ke oni tiel ĝoje kaj ĝojige misuzu ĝin.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Morale pli malbonaj, laŭ mia morala sento, estas tiuj multaj verkoj en esperanto, kiuj estas mallarĝmensaj kaj unuflan-kaj, dogmigaj kaj malamoplenaj, propagandaĵoj de totalismaj registaroj. Mi sentis fortan tenton klasifiki ilin sub nia nuna titolo de prozo fikcia; sed, kvankam ja ne temas pri prozo mal-fikcia, mankas ĉe ili la interesigaj artoj kaj la sentemaj percep-toj, kiujn oni atendas ĉe arta fikcio. Do ni lasu ilin en propra Limbo de tiuj verkoj, kiuj estas nek artaj nek sciencaj.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Dramoj en esperanto
@@ -566,12 +410,7 @@ Esperanton oni sukcese uzis en pluraj filmoj; ne nur en kelkaj filmoj tute esper
 
 Kutime en Universalaj Kongresoj kaj aliaj grandskalaj esperantaj eventoj oni prezentas dramojn. Mi mem vidis multajn bonegajn kaj plensukcesajn dramajn prezentadojn en esperanto. Sed preskaŭ ĉiam temis pri tradukoj: kutime tradukoj de famaj literaturaj verkoj, ekzemple de Shakespeare, Sartre, Cocteau, Ibsen, Machiavelli kaj aliaj. Ne temas pri originalaj esperantaj dramoj .
 
-Originalajn unuaktaĵojn aŭ skeĉojn oni sufiĉe ofte prezen-43
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-tas en Universalaj Kongresoj, en kongresoj aŭ konferencoj naciaj aŭ regionaj. Radiostacioj, ekzemple Romo aŭ Varsovio, foje elsendas originalajn unuaktaĵojn en esperanto. Tamen la dramaturgio esperanta ja ne ankoraŭ donis rikoltojn kompareblajn kun la nacilingvaj dramaroj aŭ kun la variaj kaj maturaj poemaro aŭ novelaro esperanta.
+Originalajn unuaktaĵojn aŭ skeĉojn oni sufiĉe ofte prezentas en Universalaj Kongresoj, en kongresoj aŭ konferencoj naciaj aŭ regionaj. Radiostacioj, ekzemple Romo aŭ Varsovio, foje elsendas originalajn unuaktaĵojn en esperanto. Tamen la dramaturgio esperanta ja ne ankoraŭ donis rikoltojn kompareblajn kun la nacilingvaj dramaroj aŭ kun la variaj kaj maturaj poemaro aŭ novelaro esperanta.
 
 Ekzistas multaj komedietoj kaj skeĉoj, kies celo ne estas artliteratura. Simplaj paroleblaj skeĉoj, sen artaj pretendoj kaj lingve iom elementaj, estas tre utilaj por instruistoj kaj kursg-vidantoj. Ili helpas timhezitemajn lernantojn almenaŭ malfer-mi la buŝojn kaj ion diri; instruas utilajn frazojn kaj normojn de konversacia lingvaĵo; varias lecionajn rutinojn kaj do donas stimulon, plezuron, amuzon, helpojn al memoro. Prezenti skeĉon ĉe loka aŭ grupa kunveno estas tauga celeto por kursanaro. Estas laŭdinde verki skeĉojn pedagogie utilajn, konsiderante bezonojn de komencantoj; des pli laŭdinde se la skeĉoj vere amuzas aŭdantaron (en kiu ofte troviĝas aliaj komencantoj). Tamen ne tiel oni kreas gravajn literaturaĵojn.
 
@@ -579,9 +418,7 @@ Kelkaj verkistoj serioze provis krei arte signifajn dramojn en esperanto. La unu
 
 Paolet kaj Frederic Pujaŭ-la-Vallès. Iliajn verkojn oni nuntempe povas legi nur en grandaj esperantaj bibliotekoj.
 
-La sola frua esperanta originala dramo, kiun oni ankoraŭ legas, kaj kiu estas siaspeca artverko polurita kaj ekvilibra, 44
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+La sola frua esperanta originala dramo, kiun oni ankoraŭ legas, kaj kiu estas siaspeca artverko polurita kaj ekvilibra,
 
 
 estas Ginevra de Edmond Privat. Tiun triaktan versan dramon oni dufoje prezentis ĉe Universalaj Kongresoj (1913 kaj 1925; en 1925 Julio Baghy reĝisoris la prezentadon) kaj ĝi represiĝis en Junaĝa verkaro de Privat en 1960.
@@ -594,35 +431,22 @@ Julio Baghy. La plej ambicia dramo en esperanto, almenaŭ kiu estas ankaŭ vere 
 
 i estis nova dokumento en la historio de sinoferoj kaj de esperadoj en senesperigaj cirkonstancoj, kiuj grandparte kon-sistigas la historion de esperanto ekde la unuaj verkoj de Zamenhof. Baghy longe antaŭpripensis sian draman ĉefverkon.
 
-Li verkis ĝin dum la nigraj tagoj de la tragika hungara konflik-45
+Li verkis ĝin dum la nigraj tagoj de la tragika hungara konflikto de 1956, kiam li en Varsovio sidadis treme apud radiapa-rato, spirite krucumita kiel hungaro kaj kiel humana homo, vundita per ĉiu malrespekto kontraŭ la vivo kaj kontraŭ la vero. La verko tamen ne respegulas la preskaŭ frenezigan psi-kan torturon de tiuj semajnoj. i estas ekvilibra, foje eĉ humura, artisme tre polurita, teknike varia kaj brila, kaj ĉe la fino serena.
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-to de 1956, kiam li en Varsovio sidadis treme apud radiapa-rato, spirite krucumita kiel hungaro kaj kiel humana homo, vundita per ĉiu malrespekto kontraŭ la vivo kaj kontraŭ la vero. La verko tamen ne respegulas la preskaŭ frenezigan psi-kan torturon de tiuj semajnoj. i estas ekvilibra, foje eĉ humura, artisme tre polurita, teknike varia kaj brila, kaj ĉe la fino serena.
-
-Sonĝe sub pomarbo estas verko ege individua, tute unika. i similas al la romano Hura! per la miksado de ĝenroj kaj ŝan-
-
-ĝiĝoj de tonoj, kiuj povas ŝajni malharmonio kaj malbongu-sto, sed kiuj povas ankaŭ strange sugesti la malkongruaĵojn kaj konstante ŝanĝiĝantajn temojn de la vivo mem.
+Sonĝe sub pomarbo estas verko ege individua, tute unika. i similas al la romano Hura! per la miksado de ĝenroj kaj ŝanĝiĝoj de tonoj, kiuj povas ŝajni malharmonio kaj malbongu-sto, sed kiuj povas ankaŭ strange sugesti la malkongruaĵojn kaj konstante ŝanĝiĝantajn temojn de la vivo mem.
 
 Sonĝe sub pomarbo, epizodo de juna amo, idilia, iom miks-anta la ĉarmon de pastoralo kun psikologio, kiu, se ĝi ne estas plene realisma, percepteme kaj perceptige simbolas multajn realaĵojn, enkadrigas sonĝon, kiu havas la logikan nelo-gikecon kaj vivkomprenigan memkompreneblecon, kiujn ofte havas niaj pli interesaj sonĝoj. Baghy certe pensis pli poezie kaj eĉ sceneje ol psikoanalize, sed liaj fantazioj ĉiam enhavas ian intelekte akcepteblan signifon. Li iom preparas la spek-tanton por la diversaj tonoj kaj simboloj de la sonĝo, kiam li montras kiel la junulino (Eva) estas simpla junulino, nepino de arbaristo, naiva kaj revema, sed inteligenta kaj amema, dum la junulo (Adamo) estas studento, kies kapo estas plena ne nur de amo, sed de helenismaj kaj aliaj kulturaj tradicioj.
 
 La sonĝo mem enhavas: nimfon kaj faŭnon el la helena
 
-kulturo, kaj gnomojn, elfojn kaj parolantajn bestojn de nord-eŭropaj kamparaj tradicioj; originalan miton, kiu ŝuldas ion al la geneza mito pri la edena pomo, sed fandiĝas kun filozofia pli moderna simbolismo pri tempo, vivo, vivociklo kaj 46
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+kulturo, kaj gnomojn, elfojn kaj parolantajn bestojn de nord-eŭropaj kamparaj tradicioj; originalan miton, kiu ŝuldas ion al la geneza mito pri la edena pomo, sed fandiĝas kun filozofia pli moderna simbolismo pri tempo, vivo, vivociklo kaj
 
 
-morto; la deziro, kiun ĉiuj el ni kredeble iam sentis, ke la tempo haltu por ni nun en feliĉa situacio, pelas la geamantojn al sorĉo, kiu iasence ekstertempigas kaj senmortigas ilin ĝis ili mem decidas malsorĉi sin mortige; bildon el la mondo sciencfikcia, pri teknokratoj, kiuj havas grandajn sciencajn ka-pablojn, sed nek varmajn homajn emociojn nek respondeco-senton pri la mondo; kaj bildon kvazaŭ el mezepoka ligno-gravuraĵo pri mortofiguro, kiu dancante proklamas sian universalan potencon. Meze troviĝas pli homeordinara komika sceno, kies funkcio en la mito estas montri, kiel la ekstertem-pigitaj geamantoj ne plu povas kontribui al la normala vivo, sed kiu ankaŭ amuze bildigas, kiel junaj geamantoj povas finfine iĝi tedaj, malbonhumoraj maljunaj geedzoj, kaj kiel kru-de materialisma sinjoro povas tre alte taksi sin kiel eblan fian-
-
-ĉon nur pro stokoplena butiko.
+morto; la deziro, kiun ĉiuj el ni kredeble iam sentis, ke la tempo haltu por ni nun en feliĉa situacio, pelas la geamantojn al sorĉo, kiu iasence ekstertempigas kaj senmortigas ilin ĝis ili mem decidas malsorĉi sin mortige; bildon el la mondo sciencfikcia, pri teknokratoj, kiuj havas grandajn sciencajn ka-pablojn, sed nek varmajn homajn emociojn nek respondeco-senton pri la mondo; kaj bildon kvazaŭ el mezepoka ligno-gravuraĵo pri mortofiguro, kiu dancante proklamas sian universalan potencon. Meze troviĝas pli homeordinara komika sceno, kies funkcio en la mito estas montri, kiel la ekstertem-pigitaj geamantoj ne plu povas kontribui al la normala vivo, sed kiu ankaŭ amuze bildigas, kiel junaj geamantoj povas finfine iĝi tedaj, malbonhumoraj maljunaj geedzoj, kaj kiel kru-de materialisma sinjoro povas tre alte taksi sin kiel eblan fianĉon nur pro stokoplena butiko.
 
 La dramo havas filozofion, fantazion, komikon, psikologi-on, kortuŝon, ioman streĉitecon. La versoj ĉiam fluas glate, tre varie, ofte kun virtuozaj fluecoj kaj fajra vervo; diversaj ritmoj kaj stiloj taŭgas por la etosoj de diversaj scenoj. Baghy, sperta pri la viva teatro, pensis ankaŭ pri efiko sursceneja de siaj epizodoj. La versoj estas tre deklameblaj, ankaŭ deklamindaj.
 
-Sonĝe sub pomarbo vere estas eksperimento grandskala de granda artisto. Bone prezentita ĝi povus ankaŭ esti brila spek-taklo. i atingis la ĝisnunan limon de la esperanta drama poezio. i pensigas pri Goethe, Maeterlinck, Mádach. Tamen, eĉ dum oni rekonas, ke tiu ĉefverko de Baghy multrilate havas nivelon de mondkulture valora dramo, oni povas dubi, ĉu ĝi perfekte sukcesas. Partoj estas eble eĉ iom tro longaj kaj mal-rapidaj; eble la rimoj mem, kiujn Baghy tiel virtuoze kaj varie manipulas, iom kontribuas al tiu foje iom trena irado; eble 47
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Sonĝe sub pomarbo vere estas eksperimento grandskala de granda artisto. Bone prezentita ĝi povus ankaŭ esti brila spek-taklo. i atingis la ĝisnunan limon de la esperanta drama poezio. i pensigas pri Goethe, Maeterlinck, Mádach. Tamen, eĉ dum oni rekonas, ke tiu ĉefverko de Baghy multrilate havas nivelon de mondkulture valora dramo, oni povas dubi, ĉu ĝi perfekte sukcesas. Partoj estas eble eĉ iom tro longaj kaj mal-rapidaj; eble la rimoj mem, kiujn Baghy tiel virtuoze kaj varie manipulas, iom kontribuas al tiu foje iom trena irado; eble
 
 
 por la tempodaŭro de la dramo la intrigo estas iom tro simpla; eble la profundaĵoj kaj amaraj sugestoj ĝenus aŭ tedus la naivajn spektantojn, dum la naivaj pastoralaj dialogoj ŝajnus al konscie malnaivaj teatrovizitantoj iom tro rozfreŝaj por esti interesaj. Eble la verko taŭgas pli por legado ol por la scenejo. Mi ne scias pri iu plena prezentado de ĝi. (Mi kredas, ke
@@ -631,20 +455,14 @@ por la tempodaŭro de la dramo la intrigo estas iom tro simpla; eble la profunda
 
 Sonĝe sub pomarbo certe estas vojkoloneto en la historio de la esperanta dramarto. Neniam antaŭe aperis io, kio kunigis tian skalon kaj tian plene ellaboritan teknikon. Eĉ se oni povus dubi pri perfekta sukceso, ĝi restas eksterordinara speci-menaro pri stiloj, dialogaj metodoj, ĝenraj teknikoj, lingvaj rimedoj detalaj. La historio de naciaj literaturoj foje sugestas ian leĝon: ke, kiam lingvo kaj literaturo atingis tian stadion de matureco, ke povas aperi ambicia verko, kiu preskaŭ plensukcesas, baldaŭ aperos la majstroverko, pri kies sukceso neniu povas heziti: la rimedoj kaj la kriterioj estas pretaj.
 
-Dume, Sonĝe sub pomarbo, grava verko de artisto sentori-
+Dume, Sonĝe sub pomarbo, grava verko de artisto sentoriĉa, pensoriĉa, fantazioriĉa kaj super ĉio artisme konscienca, meritas minimume, ke ĉiu serioza studanto pri la literaturo de esperanto legu ĝin atente kaj mem juĝu pri ĝi.
 
-ĉa, pensoriĉa, fantazioriĉa kaj super ĉio artisme konscienca, meritas minimume, ke ĉiu serioza studanto pri la literaturo de esperanto legu ĝin atente kaj mem juĝu pri ĝi.
-
-Eĉ sen tiu grandskala verko Baghy restus ĝis nun la plej profesieca kaj grava dramaturgo en esperanto. Liaj poemoj inkluzivas plurajn deklamindajn dialogojn, kiuj estas esence drametoj pri la homa spirito. Liaj multaj unuaktaj dramoj kaj vodeviloj restis longe dise en diversaj gazetoj. Oni represis kvin en En maskobalo (Budapeŝto 1977). Kredeble lia plej konata vodevilo estas La holanda pupo, plurfoje prezentita. Bona 48
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Eĉ sen tiu grandskala verko Baghy restus ĝis nun la plej profesieca kaj grava dramaturgo en esperanto. Liaj poemoj inkluzivas plurajn deklamindajn dialogojn, kiuj estas esence drametoj pri la homa spirito. Liaj multaj unuaktaj dramoj kaj vodeviloj restis longe dise en diversaj gazetoj. Oni represis kvin en En maskobalo (Budapeŝto 1977). Kredeble lia plej konata vodevilo estas La holanda pupo, plurfoje prezentita. Bona
 
 
 specimeno de unuakta dramo estas 1:11 trovebla en Ora du-opo, 1966.
 
-Kelkaj drametoj iom meritaj de aliaj verkistoj ankaŭ ka-
-
-ŝiĝas ĝis nun en gazetoj. Esperanto kredeble jam liveris sufi-
+Kelkaj drametoj iom meritaj de aliaj verkistoj ankaŭ kaŝiĝas ĝis nun en gazetoj. Esperanto kredeble jam liveris sufi-
 
 ĉajn bonajn specimenojn por antologio de drametoj, simil-skala al 33 rakontoj; kaj mi suspektas, ke tia antologio, same lerte redaktita, konatigus plurajn valorajn, preskaŭ forgesitajn verkojn.
 
@@ -656,17 +474,9 @@ La intrigo estas minimuma sed sufiĉa kaj donas ian streĉitecon kaj peripetian 
 
 ĝuste kaj digne ofendiĝas kaj la edzo devas trovi taktajn rimedojn por havigi al si ŝian pardonon. Estas nur tri rolantoj: edzo, edzino kaj servistino. La komedio estas perfekta siaspece, brile ŝparema, samtempe tre riĉa stile, sprite kaj psikologie. Sed ĝi estas perlo nur malgranda.
 
-Du longaj dramoj ne sen meritoj, kvankam ne sur la nivelo de Baghy aŭ Auld, estas Ivan VI de Geraldo Mattos kaj Joze-fo de J.D. Applebaum. Inter drametoj estas menciindaj: kel-49
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-kaj skeĉoj de Raymond Schwartz; la serioza drameto La reto de Bukar, kaj la plej bonaj drametoj de Emilija Lapenna kaj Marjorie Boulton. Pligrandiĝas, kaj kvalite pliboniĝas, la stoko de skeĉoj kaj dramoj, kies celoj estas ĉefe pedagogiaj, ekzemple de Boulton, de Zora Heide, Bertram Potts, R. Mack-ay. Sed pedagogia celo preskaŭ neeviteble malebligas altan artan nivelon.
+Du longaj dramoj ne sen meritoj, kvankam ne sur la nivelo de Baghy aŭ Auld, estas Ivan VI de Geraldo Mattos kaj Joze-fo de J.D. Applebaum. Inter drametoj estas menciindaj: kelkaj skeĉoj de Raymond Schwartz; la serioza drameto La reto de Bukar, kaj la plej bonaj drametoj de Emilija Lapenna kaj Marjorie Boulton. Pligrandiĝas, kaj kvalite pliboniĝas, la stoko de skeĉoj kaj dramoj, kies celoj estas ĉefe pedagogiaj, ekzemple de Boulton, de Zora Heide, Bertram Potts, R. Mack-ay. Sed pedagogia celo preskaŭ neeviteble malebligas altan artan nivelon.
 
 Do, kvankam la studanto trovos kelkajn esperantajn originalajn dramojn legindajn, inter ili kredeble unu vere imponan longan dramon kaj unu brile poluritan drameton, li ne trovos multon. La esperantistoj ĉiam deziris bonajn dramojn. Jam en 1903 Zamehof mem en letero esprimis deziron, ke estiĝu esperantista teatra grupo. La lingva materialo jam estis preta por majstroverko, sed la majstro ankoraŭ ne montris sin.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 Prozo nefikcia
@@ -675,12 +485,7 @@ Kompreneble ekzistas granda nefikcia libraro esperanta, kies valoro povas esti g
 
 Kiel ĉe la naciaj lingvoj, homoj legos inter prozaĵoj nefikciaj kutime nur tiujn librojn, kies fakaj temoj ial interesas ilin.
 
-Oni apenaŭ legos Atakoj kontraŭ ĝardenplantoj — libron modelan de sia speco, lingve, klarige kaj science — de Paul Neergaard, se oni tute ne havas intereson pri ĝardenplantoj.; la simile modelan Vivo de Gandhi de Edmond Privat, se oni sentas nenian intereson pri la problemoj de politiko aŭ la misteroj de la homa animo. Eĉ la leterojn de Zamenhof mem, kortuŝaj dokumentoj pri nobla homo kaj interesaj laŭ stila kaj laŭ historia vidpunkto, oni apenaŭ legos, se oni uzas esperanton nur pro tujaj praktikaj celoj kaj ne sentas ian intereson pri esperantologio kaj la historio de la movado. Kaj eĉ la homo plej larĝkultura kaj legema ne povas legi ĉion. Mi do volas emfazi, ke jam ekzistas originala faka literaturo en esperanto tre diversa, kun multaj libroj vere fake utilaj. Sed mi aldo-51
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-nas kelkajn rekomendojn pri nefikciaj prozaĵoj, kiuj ŝajnas al mi aparte meritaj kaj interesaj al preskaŭ ĉiuj legantoj.
+Oni apenaŭ legos Atakoj kontraŭ ĝardenplantoj — libron modelan de sia speco, lingve, klarige kaj science — de Paul Neergaard, se oni tute ne havas intereson pri ĝardenplantoj.; la simile modelan Vivo de Gandhi de Edmond Privat, se oni sentas nenian intereson pri la problemoj de politiko aŭ la misteroj de la homa animo. Eĉ la leterojn de Zamenhof mem, kortuŝaj dokumentoj pri nobla homo kaj interesaj laŭ stila kaj laŭ historia vidpunkto, oni apenaŭ legos, se oni uzas esperanton nur pro tujaj praktikaj celoj kaj ne sentas ian intereson pri esperantologio kaj la historio de la movado. Kaj eĉ la homo plej larĝkultura kaj legema ne povas legi ĉion. Mi do volas emfazi, ke jam ekzistas originala faka literaturo en esperanto tre diversa, kun multaj libroj vere fake utilaj. Sed mi aldonas kelkajn rekomendojn pri nefikciaj prozaĵoj, kiuj ŝajnas al mi aparte meritaj kaj interesaj al preskaŭ ĉiuj legantoj.
 
 Ekzistas en esperanto almenaŭ unu elstara verko verŝajne aŭtobiografia, kvankam ĉu temas parte pri fikcio, mi ne scias: Kredu min, sinjorino! de Cezaro Rossetti, frato de la poeto kaj novelisto esperanta Reto Rossetti. i estas kredeble unu el la plej amuzaj libroj en esperanto, kun stilo malpeza, ofte kun brilaj reprezentadoj de normalaj homaj konversacioj, sed lingve modela. i brile kaptas la kirliĝadon de la ĉiutaga vivo kaj ĝi spegulas vervan, humuran personecon. Temas pri la simpatia friponeta vivo de profesia vendisto ĉe foiroj, ktp.
 
@@ -692,20 +497,9 @@ Li verkas precipe pri literaturo, arto, lingvistiko kaj religio (laŭ vidpunkto 
 
 Elstare belstila, kaj por ĉiuj legebla, popularscienca verko estas Vivo de la plantoj de Paul Neergaard, jam tradukita en plurajn lingvojn. En ĝi klarega kaj detala scienca informado atingas preskaŭ nivelon de proza poemo.
 
-Profesia esploristo kun estiminda verkista talento kaj vivoplena personeco, Tibor Sekelj, verkis amuze, pensige kaj in-52
+Profesia esploristo kun estiminda verkista talento kaj vivoplena personeco, Tibor Sekelj, verkis amuze, pensige kaj informe pri siaj tre variaj travivaĵoj. Sed li estas poligloto kaj la sola grava esperanta libro lia, kiun li mem originale verkis esperante estas Nepalo malfermas la pordon. Pli unueca kaj kortuŝa estas lia Tempesto super Akonkagvo, sed H. E. Garot-te tradukis tiun libron el hispana originalo, kaj E. Sonnenfeld lian Tra lando de indianoj ankaŭ el la hispana. Sed ĉar Sekelj mem reviziis la tradukojn, ili havas iajn ecojn ne nur de lia personeco, sed de lia stilo. Mi jam menciis mian opinion, ke esperanta verkisto, kiu vere atingis altan artan nivelon, estas verŝajne talentulo, kiu kapablus atingi similan nivelon en nacia lingvo. Sekelj estas unu el tiuj esperantaj aŭtoroj, kiu plene pruvis sian kapablon sukcesi kiel profesia verkisto en eĉ kelkaj naciaj lingvoj.
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-forme pri siaj tre variaj travivaĵoj. Sed li estas poligloto kaj la sola grava esperanta libro lia, kiun li mem originale verkis esperante estas Nepalo malfermas la pordon. Pli unueca kaj kortuŝa estas lia Tempesto super Akonkagvo, sed H. E. Garot-te tradukis tiun libron el hispana originalo, kaj E. Sonnenfeld lian Tra lando de indianoj ankaŭ el la hispana. Sed ĉar Sekelj mem reviziis la tradukojn, ili havas iajn ecojn ne nur de lia personeco, sed de lia stilo. Mi jam menciis mian opinion, ke esperanta verkisto, kiu vere atingis altan artan nivelon, estas verŝajne talentulo, kiu kapablus atingi similan nivelon en nacia lingvo. Sekelj estas unu el tiuj esperantaj aŭtoroj, kiu plene pruvis sian kapablon sukcesi kiel profesia verkisto en eĉ kelkaj naciaj lingvoj.
-
-Ankaŭ Ivo Lapenna, kredeble la plej granda oratoro es-
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-ranto. i enhavas kelkajn informojn pri lingvistikaj teorioj, kiuj sendube eksdatiĝos post novåj esploroj, kiel eksdatiĝas ĉiaj tiaj fakaj teorioj; sed la libro konsistiĝas plejparte el bonega gvidlibro pri ĉiuj aspektoj de publika parolado, kaj tiuj konsiloj neniam eksdatiĝos. Stile la libro estas tiel instrue klara, ke la klareco mem ofte havas estetikan ĉarmon. i estas forte rekomendinda, al iu ajn, kiu kapablas legi esperanton kaj deziras instrui, prelegi aŭ iamaniere paroli por publiko.
+Ankaŭ Ivo Lapenna, kredeble la plej granda oratoro esranto. i enhavas kelkajn informojn pri lingvistikaj teorioj, kiuj sendube eksdatiĝos post novåj esploroj, kiel eksdatiĝas ĉiaj tiaj fakaj teorioj; sed la libro konsistiĝas plejparte el bonega gvidlibro pri ĉiuj aspektoj de publika parolado, kaj tiuj konsiloj neniam eksdatiĝos. Stile la libro estas tiel instrue klara, ke la klareco mem ofte havas estetikan ĉarmon. i estas forte rekomendinda, al iu ajn, kiu kapablas legi esperanton kaj deziras instrui, prelegi aŭ iamaniere paroli por publiko.
 
 Tre valoraj, ekzemple, estas la konsiloj de Lapenna pri la psikologio de la oratoro, ekzemple pri la natura kaj signifoplena ”timotremo”.
 
@@ -715,9 +509,7 @@ multe legataj kiel modeloj de esperanta stilo. Foje lia stilo nuntempe ŝajnas i
 
 esti. Tiuj, kiuj ne sentas intereson pri la historio de esperanto, ne multe deziros legi la verkojn de Zamenhof. Ne ĉiu, esperantisto sentas la specialan pietaton, kiun multaj seriozaj esperantistoj ankoraŭ sentas pri Zamenhof; kaj pietaton oni povas nur senti, ne instrui. La legemulo tamen ne tro rapide decidu, ĉar Zamenhof verkis, originale, precipe pri esperanto mem kaj la frua esperantomovado, ke liaj verkoj estas mal-aktualaj. Pensigaj por ĉiuj restas, ekzemple, liaj verkoj (plej facile haveblaj en Originala verkaro) Esenco kaj estonteco de la ideo de lingvo internacia; la siatempe tre kuraĝa, nuntempe tragike ironia, Post la granda milito; aŭ la dokumentoj pri hi-lelismo aŭ homaranismo. La leganto, kiu komencas sian studadon per tiaj verkoj, eble poste volos pli esplori la verkaron de homo elstare nobla kaj altruista, sed ankaŭ sendepende inteligenta kaj kun logika, disciplinita menso. Mi ofte ricevas
 
-ĝeneralan impreson pri similaĵoj inter la stilo de Zamenhof 54
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+ĝeneralan impreson pri similaĵoj inter la stilo de Zamenhof
 
 
 kaj la stilo de Lapenna; tion mi neniam detale analizis, sed mi kredas, ke temas grandparte pri la kristala klareco, la neku-tima elektado de du lingva rimedo, kiu por esprimi la ideon estos la plej rekta kaj simpla, do la plej facila por la leganto.
@@ -731,44 +523,27 @@ Kredeble ĉiu modere klera esperantisto prezentus propran liston de rekomendaĵo
 Sed legemuloj konsultu ankaŭ librolistojn, ĉar neniu interesiĝas pri ĉio; sed esperanto jam proponas ion, se ne pri ĉio, certe pri multaj el la kulturaj, sciencaj, spiritaj kaj korpaj interesoj de la homaro.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Tradukoj
 
 Estas facile kredi kaj iasence estas eĉ vere, ke traduko estas verko iom duagrada. Certe ne povus ekzisti traduko, kiu pri ĉiu detalo perfekte redonus la intencon de la originala aŭtoro, kiu ĉiurilate samefikus kiel la originalo. Eĉ ĉe la plej brile trafa traduko la neevitebla granda malsameco de la sonoj jam kaŭzas grandajn diferencojn. Sed traduko estas verko duagrada nur kompare kun tiu sama verko en la origina-la lingvo. Bona traduko el Dante estas ja pli valora ol tute originala verko de iu senkriteria amatoreca versfaranto. Tradukado estas grava kultura arto. Iu ajn, eĉ poligloto, kiu deziras iom larĝe rigardi la panoramon de la mondliteraturo, devos multe fidi al tradukoj. Parenteze: mi renkontis anglojn, kiuj konfesis al mi, ke ili komprenas pli bone la bonajn esperantajn tradukojn el ŝekspiro ol la anglajn originalojn, ĉar la nun tre arkaika angla lingvo de la deksesa jarcento, kompreneble tradukiĝis en esperanton de la dudeka!
 
-Ek de Zamenhof mem en la unua libro esperantistoj mul-
-
-te tradukadis, pro kelkaj gravaj motivoj.
+Ek de Zamenhof mem en la unua libro esperantistoj multe tradukadis, pro kelkaj gravaj motivoj.
 
 Ili deziris pruvi, ke la lingvo estas adekvata por seriozaj literaturaj verkoj. Zamenhof tradukis romaneton de Dickens (bedaŭrinde unu el liaj plej nesignifaj, La batalo de la vivo),
 
-ĝuste ĉar iu asertis, ke estus neeble traduki tian verkon en esperanton. La respondo de Zamenhof estis la sola plene re-futa respondo. Gravaj estas tiaj defioj kaj reagoj, ĉar se ling-56
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-vo ne sufiĉas por traduki maturajn altnivelajn nacilingvajn literaturaĵojn, ĝi ja ne sufiĉas por esti plene funkcianta literatura lingvo. Kredeble la ĉefa esceptaĵo estas, ke plej ofte oni ne povas perfekte traduki vortludojn de unu lingvo al alia.
+ĝuste ĉar iu asertis, ke estus neeble traduki tian verkon en esperanton. La respondo de Zamenhof estis la sola plene re-futa respondo. Gravaj estas tiaj defioj kaj reagoj, ĉar se lingvo ne sufiĉas por traduki maturajn altnivelajn nacilingvajn literaturaĵojn, ĝi ja ne sufiĉas por esti plene funkcianta literatura lingvo. Kredeble la ĉefa esceptaĵo estas, ke plej ofte oni ne povas perfekte traduki vortludojn de unu lingvo al alia.
 
 Sed tiuokaze bona tradukisto penos trovi ian pli-malpli ekvi-valentan vortludon. Kaj se lingvo ne permesas vortludojn, ĝi do denove kredeble ne estas lingvo ĉiurilate adekvata por homaj bezonoj.
 
 Esperantistoj ankaŭ komprenis, ke per tradukado ili pli esploros kaj grandigos la esprimrimedojn de sia lingvo. Tiu, kiu verkas originale, rajtas decidi, ke jen estas io, kion li ne diros, ĉar li ne disponas lingvajn rimedojn por ĝin diri. Neniu scios, ke li jam deziris diri ion alian. Sed tradukisto ne rajtas tiel forkuri de la problemo; li devas alfronti ĝin kaj trovi la esprimrimedojn. La tuta strukturo de esperanto donas al ĝi ko-losajn esprimrimedojn latentajn; restas ankaŭ la rajto propo-ni novajn radikojn en kazo de vera bezono. Grandaj artistoj, kiel ekzemple Kalocsay, Auld kaj Waringhien, do pene kaj konscience elforĝis, tradukante, lingvon pli esprimoriĉan, fortan, koncizan, elegantan. Kaj lingvo plievoluinta estas poste la jama posedaĵo de ĉiuj verkistoj.
 
-Preskaŭ ĉiuj esperantistoj estas pli-malpli internaciistoj kaj deziras plibonigi interkomprenon kaj toleremon inter la na-cioj. Ankaŭ tio povas esti forta motivo ideologia por tradukado. Kun tiu internaciismo ofte miksiĝas la plej nobla speco de naciismo: la deziro montri al alinacianoj, kiel belaj estas la ĉefverkoj de nia landa kulturo. Traduki nacilingvan verkon, pri kiu oni fieras, estas samtempe pliigi la gloron de la propra nacio kaj fari belan donacon al alilandanoj. Traduki maj-57
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-stroverkon el la kulturo de alia lando, kiel faris ekzemple Kalocsay, estas ankaŭ nobla supernacieca altruismo.
+Preskaŭ ĉiuj esperantistoj estas pli-malpli internaciistoj kaj deziras plibonigi interkomprenon kaj toleremon inter la na-cioj. Ankaŭ tio povas esti forta motivo ideologia por tradukado. Kun tiu internaciismo ofte miksiĝas la plej nobla speco de naciismo: la deziro montri al alinacianoj, kiel belaj estas la ĉefverkoj de nia landa kulturo. Traduki nacilingvan verkon, pri kiu oni fieras, estas samtempe pliigi la gloron de la propra nacio kaj fari belan donacon al alilandanoj. Traduki majstroverkon el la kulturo de alia lando, kiel faris ekzemple Kalocsay, estas ankaŭ nobla supernacieca altruismo.
 
 Finfine, bonaj tradukoj havas ian specialan utilon: pedagogian valoron por lernado de lingvoj. Tiu, kiu ankoraŭ ne tre bone scipovas la lingvon, sed volas progresi, ofte povas multon lerni per studado de traduko el nacilingva verko, kiun li bone konas. Jam konante la enhavon, ne frontante plenan misteron, li povas vere rimarki diversajn esprimrimedojn kaj solvojn de problemoj, kaj tiel multe lernas pri la traduka lingvo.
 
 Multaj, kiuj kun plezuro legas propran literaturon, sed tre sentas, ke traduko estas iom duagrada, ne konscias, ĝis kio-ma grado multaj el la originalaj verkoj, kiujn ili amas, estas tradukoj. La Biblio, kiu en diversaj naciaj lingvoj tre kontribuis al la lingvaj kutimoj, estas same traduka en la sveda, la norvega, la franca, la angla, la rusa, la germana, kiel en esperanto. Surprize multaj poemoj de la renesanco, en diversaj lingvoj, estas plimalpli tradukoj el la latina aŭ la helena. Pluraj pioniraj anglaj sonetoj estas tradukoj el la itala. Faka esplorado pri nacia literaturo ofte malkovras uzadon de literaturaj fontoj, kiu almenaŭ proksimas al tradukado libera. Do, tradukado kaj adaptado ofte gravis en la maturiĝo de nacilingvaj literaturoj, kiel ili gravis en la maturiĝo de esperanto.
 
-Esperanto tamen povas havi aparte riĉan kaj rapide evolu-antan tradukan literaturon, ĉar ekzistas esperantistoj en ĉiuj civilizaj landoj. Oni do rajtas atendi, ke pli-malpli frue aperos iu esperantisto, kiu kapablas verki artajn tradukojn el sia nacia literaturo. Jam ekzistas en esperanto tradukoj el la je-naj lingvoj: albana, angla (inkluzive kelkajn usonajn kaj angla-sudafrikajn verkojn), araba, armena, bengala, bulgara, ĉeą 58
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Esperanto tamen povas havi aparte riĉan kaj rapide evolu-antan tradukan literaturon, ĉar ekzistas esperantistoj en ĉiuj civilizaj landoj. Oni do rajtas atendi, ke pli-malpli frue aperos iu esperantisto, kiu kapablas verki artajn tradukojn el sia nacia literaturo. Jam ekzistas en esperanto tradukoj el la je-naj lingvoj: albana, angla (inkluzive kelkajn usonajn kaj angla-sudafrikajn verkojn), araba, armena, bengala, bulgara, ĉeą
 
 
 Por traduki artverkon adekvate oni devas mem esti artisto, ne facile kontentiĝi, kaj esti vere sentema pri literaturaj kvalitoj.
@@ -777,9 +552,7 @@ Ekzistas plorindaj fuŝaĵoj, sed ankaŭ ekzistas multaj esperantaj tradukoj rim
 
 Aperis en esperanto multaj malgrandaj, pluraj vere grandaj, antologioj el naciaj literaturoj, aŭ foje el diversaj naciaj literaturoj en unu volumo. La unua el proksimume dudek
 
-antologioj el ununaciaj literaturoj estis la ankoraŭ leginda Pola antologio de 1906. Du gravaj pioniraj antologioj ĉerpantaj el multaj literaturoj estis redaktitaj de la nelacigebla Grabowski: La liro de la esperantistoj (1893) kaj El parnaso de popoloj (1913); la dua havis tradukojn el tridek lingvoj. Pluraj el la fruaj poemtradukoj, ankoraŭ plejparte legindaj, estas nun plej facile troveblaj en la Fundamenta krestomatio. Rimarkindaj 59
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+antologioj el ununaciaj literaturoj estis la ankoraŭ leginda Pola antologio de 1906. Du gravaj pioniraj antologioj ĉerpantaj el multaj literaturoj estis redaktitaj de la nelacigebla Grabowski: La liro de la esperantistoj (1893) kaj El parnaso de popoloj (1913); la dua havis tradukojn el tridek lingvoj. Pluraj el la fruaj poemtradukoj, ankoraŭ plejparte legindaj, estas nun plej facile troveblaj en la Fundamenta krestomatio. Rimarkindaj
 
 
 estas tie, inter aliaj, pluraj tradukoj de Zamenhof mem kaj la unua kanto de la Iliado en traduko de A. Kofman.
@@ -793,18 +566,13 @@ Kalocsay mortis postlasante grandan parton de sia kolosa projekto, Tutmonda sono
 Tutmonda sonoro aperis fine de 1981 en Budapeŝto.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 Universala Kongreso. La prezentado sukcesis, sed la traduko ne presiĝis. Inter tiaj valoraj sed ne sufiĉe konataj tradukoj troviĝas — nur ekzemple — Friponaĵoj de Skapeno (Moliére); Pigmaliono (G. B. Shaw); La homa voĉo (Cocteau); La leciono (Ionesco); La morto de lia ekscelenco (Matkoviĉ); Homo kun la floro enbuŝe (Pirandello); Komedio de eraroj (Shakespeare); Kataki (S. Wincelberg). Ke diversaj verkistoj volonte tradukis tiajn dramojn, nur por kelkaj prezentadoj kaj sen promeso pri eldonado, vere atestas tre noblan sindediĉon. Tamen multaj el tiuj prezentadoj estis neforgeseble imponaj, tiel ke oni tute forgesis, ke temas pri traduko.
 
 Estas neeble prepari tute kontentigan liston de rekomen-dindaj tradukitaj verkoj, ĉar kriterioj ofte kontraŭas unu la alian: unu leganto deziras havi la plej brilajn tradukojn, alia la plej gravajn verkojn; unu deziras esplori la taŭgecon de esperanto per detala komparado de traduko kun amata, bone konata verko en lia nacia lingvo; alia deziras ĉefe legi ion tra-dukitan, kion li tute ne kapablas legi en la originala lingvo; unu deziras legi nur altkulturajn majstroverkojn; alia deziras nur malpezajn aŭ almenaŭ simplajn verketojn, kiuj distros lin post laciga labortago. Preskaŭ ĉiu facile trovos ion Iaŭ sia gusto inter la librolistoj de esperantaj librovendejoj.
 
 Mi tamen opinias, ke estas bone listigi tie ĉi nur kelkajn elektitajn tradukitajn verkojn, kiuj estas samtempe tradukoj kompetentaj aŭ pli ol nur kompetentaj, kaj el verkoj, kiuj laŭ sufiĉe ĝenerala interkonsento estas mem kulture altvaloraj.
 
-Mi volas emfazi, ke tiu ĉi listo estas afero de persona, eble 61
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Mi volas emfazi, ke tiu ĉi listo estas afero de persona, eble
 
 
 iasence kaprica, elektado kaj alia literaturamanto eble prepa-rus tre malsimilan liston simile atentindan.
@@ -814,22 +582,16 @@ Alia grava traduko de Dante estas Infero de Kalocsay, kiu majstre uzas tercinojn
 
 Ekzistas tradukoj de ŝekspiraj dramoj malbonaj, mezbonaj kaj brile ravaj. En la lastan kategorion mi senhezite metos: Otelo en la traduko de Reto Rossetti; Reĝo Lear, Somermeznok-ta sonĝo kaj La tempesto en la tradukoj de Kalocsay. Tie oni trovos ekvivalentojn ofte de du specoj, ĉe kiu ege penoplena kaj memkritikema elpensado finfine liveras ion, kio estas tiel absolute trafa, ke ĝi aspektas facila — al la leganto. Kalocsay kaj Rossetti apartenas al tiu malgranda aro da tradukistoj, kiuj, kiam ili trovas frazon tute ne tradukeblan, traserĉas sian tutan lingvan ilaron ĝis ili trovas la ĝustan neeblan tradukon; kaj ili samtempe montras, kion kapablas esperanto, se oni eluzas ĝiajn eblojn.
 
-Aperis en 1977 tre bona traduko de Epifanio (angle Twelfth night, komedio, kies abundaj vortludoj prezentas apartan 62
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Aperis en 1977 tre bona traduko de Epifanio (angle Twelfth night, komedio, kies abundaj vortludoj prezentas apartan
 
 
 problemon por tradukisto) de William Auld, kaj en 1980 simila eminenta traduko de Rikardo Tria de John Francis.
 
-Hamleto estas havebla en du tradukoj. La traduko de Za-
-
-menhof aperis jam en 1894. i estas tre inteligenta, la versoj fluas, ĝi bone kaptas la sencon kaj multajn stilaĵojn. Zamenhof tamen ne adekvate por tia tasko konis la anglan kaj helpis sin per ia ne tro fidinda traduko aŭ eble tradukoj, do lia traduko estas multloke kritikinda. Sed, kiel taksis ĝin Waringhien, ”i estas belstila kaj ĝi estas scenotaŭga”. ĉiuokaze, traduki malfacilan, enigmoplenan, filozofiecan draman majstroverkon en lingvon nur sepjaraĝan, tiel ke la traduko finfine estas ne nur belstila kaj scenotaŭga, sed tute rekonebla kiel esence Hamleto, eĉ se kelkaj mistraduketoj makulas ĝin, estis atingo, kredeble nur ĉar ĝi okazis. La dua tradukisto, L. M.
+Hamleto estas havebla en du tradukoj. La traduko de Zamenhof aperis jam en 1894. i estas tre inteligenta, la versoj fluas, ĝi bone kaptas la sencon kaj multajn stilaĵojn. Zamenhof tamen ne adekvate por tia tasko konis la anglan kaj helpis sin per ia ne tro fidinda traduko aŭ eble tradukoj, do lia traduko estas multloke kritikinda. Sed, kiel taksis ĝin Waringhien, ”i estas belstila kaj ĝi estas scenotaŭga”. ĉiuokaze, traduki malfacilan, enigmoplenan, filozofiecan draman majstroverkon en lingvon nur sepjaraĝan, tiel ke la traduko finfine estas ne nur belstila kaj scenotaŭga, sed tute rekonebla kiel esence Hamleto, eĉ se kelkaj mistraduketoj makulas ĝin, estis atingo, kredeble nur ĉar ĝi okazis. La dua tradukisto, L. M.
 
 Newell, havis du grandajn avantaĝojn: li estis anglo, kaj klera anglo, kiu fake studadis la anglan literaturon. Li tradukis inter 1959 kaj 1962, kiam esperanto estis multe pli matura kiel literatura lingvo, kaj li havis antaŭ si la kriteriojn, kiujn starigis jam gravaj tradukoj de ne nur Zamehof, sed Kalocsay, Grabowski kaj aliaj. Ne estas mirinde, ke la traduko de Newell estas pli lingve verva, pli fidela al la angla teksto, ofte pli poezia. Atentema studado de la du tradukoj paralele mirigus iun ajn inteligentan leganton kredeble pri tri neklarigeblaj fenomenoj: la genio de ŝekspiro mem; la genio kaj kuraĝo kaj artisma konscienco de Zamenhof; kaj la altnivelo de la nova atingo de Newell. Tiu sama leganto, post tia studado, multe pli bone scipovus esperanton kaj komprenus ĝiajn esprimrimedojn. Mi mem tamen ne metus la tradukon de Newell sur la saman nivelon kiel tiujn de Kalocsay kaj Rossetti.
 
-Rossetti ankaŭ montris sian elstaran traduktalenton ne nur 63
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Rossetti ankaŭ montris sian elstaran traduktalenton ne nur
 
 
 en partoj de Angla antologio I, sed en Robert Burns: Poemoj, kantoj kaj satiroj, kie li kaj William Auld redonas perfekte la malfacilegajn strofoformojn de la skota poeto, multajn brilajn ekvivalentojn, kaj la saman vivoplenan paroleblecon, kiu tiel nin ravas ĉe la originalaj poemoj; kaj en traduko de la farsa operoteksto de W. S. Gilbert, La piratoj de Penzanco.
@@ -841,12 +603,7 @@ Mi devus simile verdikti pri komika majstroverketo La bap-to de caro Vladimiro d
 
 Devis esti terure malfacile traduki ion tian. Kelkaj legantoj eble ŝokiĝus pro ne tro respektoplenaj aludoj al religiaj aferoj, sed la poemo estas ne atako kontraŭ sincera religia fido, sed kontraŭ despotismo, obskurantismo kaj ekleziaj dubin-daĵoj.
 
-Kalocsay kaj Waringhien kunlaboradis pri du elstaraj ver-64
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-koj, grandskalaj, ege legindaj, siaspece eble perfektaj: La floroj de l’malbono de Charles Baudelaire kaj Kantoj kaj romancoj de Heinrich Heine. Waringhien faris sola aliajn tre bonajn tradukojn el la franca; kaj Roger Bernard faris elstarajn tradukojn de Sartre (La naŭzo, La respektinda p., Sen eliro) kaj de Pagnol (Topaze).
+Kalocsay kaj Waringhien kunlaboradis pri du elstaraj verkoj, grandskalaj, ege legindaj, siaspece eble perfektaj: La floroj de l’malbono de Charles Baudelaire kaj Kantoj kaj romancoj de Heinrich Heine. Waringhien faris sola aliajn tre bonajn tradukojn el la franca; kaj Roger Bernard faris elstarajn tradukojn de Sartre (La naŭzo, La respektinda p., Sen eliro) kaj de Pagnol (Topaze).
 
 Restas legindaj la ĉefaj tradukoj de Zamehof: Georgo Dan-din (Moliére) el la franca, La revizoro (Gogol) el la rusa, Ifige-nio en Taŭrido (Goethe) kaj La rabistoj (Schiller) el la germana; la nobla pionira romano pri virinaj rajtoj, Marta (Eliza Orzeszkowa) el la pola; kaj la Fabeloj de H.C. Andersen. La esperanta Biblio estas kompreneble grava verko kaj la Malnova testamento estas tradukita de Zamenhof mem. Zamenhof verŝajne mortigis sin grandparte per kvazaŭ superhoma tro-laborado, sed malmultaj homoj postlasas tiom da valoraj la-borfruktoj.
 
@@ -856,12 +613,7 @@ is nun ekzistas multe pli da tradukoj el eŭropaj ol el aliaj lingvoj, sed nunte
 
 Bona specimeno estas Kvin virinoj de amoro de Ihara Saikaku, kiun tradukis unu el la plej aktivaj japanaj verkistoj esperantaj, Miyamoto Masao.
 
-La gravegaj kulturoj helena kaj latina restas nesufiĉe repre-zentitaj en esperanto; sed valoraj estas Antigona kaj Reĝo Edi-po de Sofoklo en la tradukoj de D. B. Gregor, kaj Bakąntinoj de Eŭripido en la traduko de Albert Goodheir. Multaj tradu-65
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-koj de Kalocsay restas nepresitaj aŭ presitaj nur en gazetoj, sed kelkaj belegaj tradukoj el ambaŭ lingvoj troviĝas en Eterna bukedo. La plej grandskala ĝisnuna traduko el la latina estas la Eneido de Virgilio, en traduko de Valienne. i aperis en 1906 kaj restas leginda kaj multrilate estiminda, kvankam laŭ la pli rigoraj kriterioj de la nuntempo ĝi estas ankaŭ multrilate kritikinda.
+La gravegaj kulturoj helena kaj latina restas nesufiĉe repre-zentitaj en esperanto; sed valoraj estas Antigona kaj Reĝo Edi-po de Sofoklo en la tradukoj de D. B. Gregor, kaj Bakąntinoj de Eŭripido en la traduko de Albert Goodheir. Multaj tradukoj de Kalocsay restas nepresitaj aŭ presitaj nur en gazetoj, sed kelkaj belegaj tradukoj el ambaŭ lingvoj troviĝas en Eterna bukedo. La plej grandskala ĝisnuna traduko el la latina estas la Eneido de Virgilio, en traduko de Valienne. i aperis en 1906 kaj restas leginda kaj multrilate estiminda, kvankam laŭ la pli rigoraj kriterioj de la nuntempo ĝi estas ankaŭ multrilate kritikinda.
 
 Svedoj eble deziros komenci sian studadon pri tradukitaj verkoj en esperanto per kelkaj tradukoj bonaj el gravaj sve-daj verkoj . Stellan Engholm tradukis tri verkojn de Selma Lagerlöf: La mono de sinjoro Arne, Gösta Berling kaj La ringo de la generalo; ankaŭ aliaj verkoj ŝiaj aperis en esperanto. Engholm tradukis ankaŭ Pasko de Strindberg, de kiu aperis jam ankaŭ Fraŭlino Julie, Pario, Insulo de la feliĉuloj kaj La konscienco riproĉas. La tri verkoj Sveda antologio, Sveda novelaro kaj Sveda poemaro kovras grandan kaj varian terenon.
 
@@ -869,17 +621,10 @@ Svedoj eble deziros komenci sian studadon pri tradukitaj verkoj en esperanto per
 
 Kaj esperanto estas la sola lingvo, kiu donas al ĉiuj naciaj (kaj minoritataj) lingvoj iasence egalajn rajtojn por tradukado.
 
-Kredeble estas ne nur koincido, ke tiel multaj verkoj jam aperis, tradukitaj el kelkaj lingvoj, kies anoj spertis lingvan impe-riismon: la hungara, kataluna, la jugoslaviaj lingvoj, la pola, 66
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Kredeble estas ne nur koincido, ke tiel multaj verkoj jam aperis, tradukitaj el kelkaj lingvoj, kies anoj spertis lingvan impe-riismon: la hungara, kataluna, la jugoslaviaj lingvoj, la pola,
 
 
-la estona. La tradukisto bezonas nur sian propran lingvon kaj esperanton — kvankam ambaŭ tiujn li konu tre bone. Paralele, esperanto demokratiigas la kulturon sen forlaso de kriterioj: homoj, kiuj neniam havos tempon aŭ okazon por lerni plurajn grandajn kulturlingvojn, povas per esperanto jam konatiĝi kun vastaj perspektivoj de la monda kulturo. Mi ankoraŭ kun kortuŝo memoras pri amiko mia, portugala ŝarĝ-
-
-aŭto-kondukisto, kiu mortis longe antaŭ la falo de la portugala dekstra diktaturo. Li vizitadis la lernejon nur ĝis la dek-tria jaro, li estis mizere malriĉa kaj iam suspektemaj policanoj konfiskis ĉiujn malmultajn librojn, kiujn li ame kaj ofere aku-mulis en sia aĉa eta loĝejo. Li ofte malsatis. Frostoj vintraj turmentis lin per tusado kaj pernioj. Kiel tia homo povus esperi, ke io nutros lian intelekton, varmigos lian spiriton? Sed esperanton li lernis, kvankam li devis lerni kaŝe; kaj mi memoras, kiel avide li ricevis, kiel entuziasme li pridiskutis lete-re, senditajn esperantajn tradukojn el ŝekspiro, Baudelaire, Sofoklo kaj aliaj. Por tiaj homoj esperanto ne estas unu el la fenestroj al la mondo; ĝi povas esti la sola fenestro. Des pli grava estas la laboro de la tradukisto, kaj des pli dankinda.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+la estona. La tradukisto bezonas nur sian propran lingvon kaj esperanton — kvankam ambaŭ tiujn li konu tre bone. Paralele, esperanto demokratiigas la kulturon sen forlaso de kriterioj: homoj, kiuj neniam havos tempon aŭ okazon por lerni plurajn grandajn kulturlingvojn, povas per esperanto jam konatiĝi kun vastaj perspektivoj de la monda kulturo. Mi ankoraŭ kun kortuŝo memoras pri amiko mia, portugala ŝarĝaŭto-kondukisto, kiu mortis longe antaŭ la falo de la portugala dekstra diktaturo. Li vizitadis la lernejon nur ĝis la dek-tria jaro, li estis mizere malriĉa kaj iam suspektemaj policanoj konfiskis ĉiujn malmultajn librojn, kiujn li ame kaj ofere aku-mulis en sia aĉa eta loĝejo. Li ofte malsatis. Frostoj vintraj turmentis lin per tusado kaj pernioj. Kiel tia homo povus esperi, ke io nutros lian intelekton, varmigos lian spiriton? Sed esperanton li lernis, kvankam li devis lerni kaŝe; kaj mi memoras, kiel avide li ricevis, kiel entuziasme li pridiskutis lete-re, senditajn esperantajn tradukojn el ŝekspiro, Baudelaire, Sofoklo kaj aliaj. Por tiaj homoj esperanto ne estas unu el la fenestroj al la mondo; ĝi povas esti la sola fenestro. Des pli grava estas la laboro de la tradukisto, kaj des pli dankinda.
 
 
 Kelkaj specialaj verkoj
@@ -894,12 +639,7 @@ Kompreneble ne ĉiuj povus aprobi ĉiun vorton en librego 844-paĝa kaj dense pr
 
 Kompreneble ĝi estas fonto de informoj ne nur pri literaturo, sed ankaŭ pri multaj aliaj temoj pri esperanto, ekzemple teo-riaj demandoj, instruado, kulturaj interŝanĝoj kaj uzo de esperanto por praktikaj celoj, kaj la historio de la esperantomovado. Sed la informoj pri literaturo estas la plej detalaj ĝis nun haveblaj en unu libro.
 
-Alia valora konsultlibro estas la duvoluma Enciklopedio de Esperanto de 1933, kiu enhavas pli longajn artikolojn pri di-68
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-versaj libroj, aŭtoroj kaj aliaj interesaj temoj. En 1980 ĝi estis represita senŝanĝe kaj estas denove havebla; sed ĝi kompreneble estas tre eksdata. Espereble ne pasos tro multaj jaroj antaŭ la apero de la nun verkata nova Encikopedio.
+Alia valora konsultlibro estas la duvoluma Enciklopedio de Esperanto de 1933, kiu enhavas pli longajn artikolojn pri diversaj libroj, aŭtoroj kaj aliaj interesaj temoj. En 1980 ĝi estis represita senŝanĝe kaj estas denove havebla; sed ĝi kompreneble estas tre eksdata. Espereble ne pasos tro multaj jaroj antaŭ la apero de la nun verkata nova Encikopedio.
 
 Tiu, kiu nun apenaŭ komencis sian seriozan studadon pri esperanto, verŝajne uzis ĉefe ian vortaron nacilingvan-esperantan. Tian vortaron ĉiu bezonas. Mi esperantistiĝis en 1949
 
@@ -911,20 +651,12 @@ Tiu, kiu volas profundiĝi en lingvon kaj plene kompreni
 
 Nacilingvaj-esperantaj vortaroj estas de tre diversaj nive-loj de fidindeco. Foje ili iom erarigas pri nuancoj aŭ pri la vera internaciismo de ia uzado. Ekzistas feliĉe du tre bonaj vortaroj esperantaj-esperantaj. La malgranda Plena vortaro de esperanto, kune kun sia Suplemento (kiu unue eldoniĝis aparte; sed la nuna poŝformata Plena vortaro inkluzivas la Suplemen-ton kiel aldonon) estas tre valora normiga vortaro por ĉiuj, kaj aparte valora, ĉar ĝi enhavas multajn ekzemplojn de akcepteblaj vortuzadoj el la verkoj de Zamenhof kaj kelkaj aliaj
 
-ĝenerale estimataj fruaj esperantaj verkistoj. iaj difinoj ofte tre helpas ne nur komprenon de unuopaj vortoj, sed komprenon de esprimrimedoj kaj internaciaj normoj de komprena-69
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-do. Tiu, kiu volas vere studi la esperantan literaturon, nepre havigu al si la Plenan vortaron, se eble.
+ĝenerale estimataj fruaj esperantaj verkistoj. iaj difinoj ofte tre helpas ne nur komprenon de unuopaj vortoj, sed komprenon de esprimrimedoj kaj internaciaj normoj de komprenado. Tiu, kiu volas vere studi la esperantan literaturon, nepre havigu al si la Plenan vortaron, se eble.
 
 
 Vortaroj tre gravas por la evoluado de literaturo kaj eĉ de homa pensado, ĉar la eroj de eĉ la plej profunda artverko kaj de ĉiuj niaj pensoj estas, finfine, niaj unuopaj vortoj. Oni ne tro longe studu kun nesufiĉe altgrada vortaro.
 
 Fine mi mencios tri librojn, kiujn mi povus alie ellasi, sed kiuj ŝajnas al mi aparte menciindaj.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
 
 
 arkaismoj aŭ dubaj punktoj. La libro restas tamen valora kolekto kaj aparte interesa por tiu, kiu deziras studi la literaturon laŭ historia metodo, ĉar ĝi enhavas multajn alie nun ne haveblajn tradukojn de Zamenhof, multajn specimenojn de la verkaroj de pioniraj verkistoj, alie ne facile troveblaj, kaj eĉ multajn verketojn, ankoraŭ legindajn por si mem.
@@ -934,15 +666,7 @@ Oni nepre iam rigardu verketon ĉarman de Zamenhof, la
 
 Tute alispeca verko, kiun oni almenaŭ rigardu, estas Sciencaj studoj, redaktita de Paul Neergaard. Leganto, kiu interesiĝas pri la scienca kaj teknika temo, iam trovos en la librolisto librojn pri sia faka intereso, sed SciencaJ studoj estas kolekto de artikoloj pri multaj diversaj sciencaj temoj — originalaj esploroj je iom alta nivelo — kaj interese montras, kiel por tre diversaj sciencaj laboroj fakuloj povas uzi esperanton.
 
-Inter la eseoj troviĝas dek kvin humanismaj temoj: lingvistiko, literaturo, interlingvistiko, bibliografio, psikologio, arke-71
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-ologio, juro, muziko ktp; kaj dudek unu pri matematikaj kaj natursciencaj temoj: matematiko, astronomio, geologio, ko-lorsistemoj, ęmio, botaniko, biologio ktp. Kredeble, neniu leganto povus vere kompreni ĉiujn el tiuj eseoj, sed la kolekto prezentas tre atestan kaj interesan bildon pri la lingvaj rimedoj, kiujn esperanto proponas por tiuj fakaj celoj.
-
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
+Inter la eseoj troviĝas dek kvin humanismaj temoj: lingvistiko, literaturo, interlingvistiko, bibliografio, psikologio, arkeologio, juro, muziko ktp; kaj dudek unu pri matematikaj kaj natursciencaj temoj: matematiko, astronomio, geologio, ko-lorsistemoj, ęmio, botaniko, biologio ktp. Kredeble, neniu leganto povus vere kompreni ĉiujn el tiuj eseoj, sed la kolekto prezentas tre atestan kaj interesan bildon pri la lingvaj rimedoj, kiujn esperanto proponas por tiuj fakaj celoj.
 
 
 Kie komencu komencanto?
@@ -957,29 +681,17 @@ Do: oni ĉiam devas komenci vojaĝon de la loko, kie oni
 
 estas, tio estas la granda malfacilaĵo de la vivo!
 
-Unue: la komencanto komencu per io, kio eble iom sani-
-
-ge streĉos, sed ne tute venkos, lian nunan lingvokapablon.
+Unue: la komencanto komencu per io, kio eble iom sanige streĉos, sed ne tute venkos, lian nunan lingvokapablon.
 
 Neniam forĵetu libron indigne, ĉar la stilo estas tro komplika, la vortaro tro granda, sed respekte flankenmetu ĝin. Tre eble ĝi estas verko valora, kiun vi ankoraŭ ne estas preta legi.
 
 Due: la komencanto komencu per io, kio interesas lin aŭ ŝin. Por mi la poezio estis unu el la plej gravaj aferoj, post la bazaj bezonoj, en la vivo, sed tio ne devigas, ke por ĉiuj aliaj
 
-ĝi estu tia. Se vi estas sciencema kaj neniam legas nacilingvajn poemojn, komencu per, ekzemple, La vivo de la plantoj. Sed se via pasio estas la sveda literaturo, turnu vin unue al Sveda antologio. Se vi dediĉas multajn liberajn horojn al muziko, esploru inter la multaj esperantaj kantaroj kaj provu esperan-73
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-ton por kantado; kaj tiel plu. Eble iam vi trovos, kiel jam trovis multaj homoj, ke, ĉar la lingvo estas relative facila, vi povas ŝati multajn kulturajn aferojn pere de esperanto, kiujn vi antaŭe iel ne apetitis. Sed unue sekvu la propran nazon al tiu kaserolo, kies odoro plej allogas vin.
+ĝi estu tia. Se vi estas sciencema kaj neniam legas nacilingvajn poemojn, komencu per, ekzemple, La vivo de la plantoj. Sed se via pasio estas la sveda literaturo, turnu vin unue al Sveda antologio. Se vi dediĉas multajn liberajn horojn al muziko, esploru inter la multaj esperantaj kantaroj kaj provu esperanton por kantado; kaj tiel plu. Eble iam vi trovos, kiel jam trovis multaj homoj, ke, ĉar la lingvo estas relative facila, vi povas ŝati multajn kulturajn aferojn pere de esperanto, kiujn vi antaŭe iel ne apetitis. Sed unue sekvu la propran nazon al tiu kaserolo, kies odoro plej allogas vin.
 
 Trie: ekzistas fuŝverkoj en esperanto, same kiel en aliaj lingvoj. De fuŝverko vi povus ricevi, kiel mi mem iam ricevis, tre negativan kaj maljuste negativan impreson pri esperanto kaj vi ankaŭ povus imite lerni erarojn, kiujn vi poste devos pene mallerni. Estas do konsilinde komenci per verkoj, kiuj estas lingve kaj stile tre bonaj. Se vi dubas, vi povas konsulti iun spertan esperantiston — tamen ne forgesante, ke pro-verbiĝis la biblia averto, ke se blindulo kondukas blindulon, ili ambaŭ falos! Ne ĉiu, kiu laŭte bruas pri esperanto, estas vera spertulo pri ĝi. Kiel ofte en la vivo ĝenerale, la grand-buŝulo povas esti la grandfuŝulo kaj manopleneto de senkul-turaj ekscentraj esperantistoj tielnomitaj ofte senkreditigis esperanton kaj malhelpadis la racian plimulton. Laŭ tiaj homoj nepre ne juĝu. Certe estos atingebla ia saĝa konsilonto.
 
-Jen du libroj tre bonaj por esplorema postkomencanto: El-lernu! de Ferenc Szilágyi kaj Paŝoj al plena posedo de William Auld. Tiuj ĉi libroj donas diversajn valorajn informojn pri gramatiko kaj aliaj aferoj, multajn bone elpensitajn ekzercojn, sed ankaŭ tre bone elektitajn specimenojn el la esperanta literaturo: specimenojn, kiuj ne estas stile tiel malfacilaj, ke ili konfuzus la nespertan leganton, sed kiuj ankaŭ ne estas stile aŭ enhave porinfanaj; ili estas veraj specimenoj de literaturo. Se serioza studanto estas ankoraŭ ĉe la stadio, kie li aŭ ŝi preferas teni la manon de gvidanto, Szilágyi aŭ Auld mon-74
-
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
-tros sin gvidanto helpema, inteligenta, ĉarma kaj neniam te-da.
+Jen du libroj tre bonaj por esplorema postkomencanto: El-lernu! de Ferenc Szilágyi kaj Paŝoj al plena posedo de William Auld. Tiuj ĉi libroj donas diversajn valorajn informojn pri gramatiko kaj aliaj aferoj, multajn bone elpensitajn ekzercojn, sed ankaŭ tre bone elektitajn specimenojn el la esperanta literaturo: specimenojn, kiuj ne estas stile tiel malfacilaj, ke ili konfuzus la nespertan leganton, sed kiuj ankaŭ ne estas stile aŭ enhave porinfanaj; ili estas veraj specimenoj de literaturo. Se serioza studanto estas ankoraŭ ĉe la stadio, kie li aŭ ŝi preferas teni la manon de gvidanto, Szilágyi aŭ Auld montros sin gvidanto helpema, inteligenta, ĉarma kaj neniam te-da.
 
 Multaj komencis plezuran studadon pri la esperanta literaturo per strange virtuoza libreto de Julio Baghy, La verda koro. Li verkis romaneton, simplan sed kortuŝan kaj interesan, pri militkaptitoj kaj aliaj en Siberio dum la unua mondmilito kaj pri esperanto en iliaj vivoj. Sed li komencis per minimuma vortaro kaj plej simplaj frazoj, kaj nur paŝo post paŝo progresigas la leganton al komprenado de pli komplikaj frazoj. Baghy verkis ĝin ĝuste por komencantoj. Estante ne nura pedagogo, sed vera verkisto, li samtempe kreis simplan artverkon aŭtentikan. Jen do bona deirpunkto.
 
@@ -992,12 +704,7 @@ eble iom pli malfrue Waringhien. Sed jen preskribo persona; la literaturo de esp
 mondo, ne nur por tiu, kiu povas vojaĝi, sed por tiu, kiu pro manko de mono, forto aŭ pasporto povas nur sidadi kaj silen-te legi. Eblas spiritaj aventuroj, eĉ dum oni estas sola sur la seĝo.
 
 
-NE NUR LETEROJ DE PLUM-AMIKOJ
-
-
 www.omnibus.se/
-
-X
 
 
 # Document Outline

@@ -10,7 +10,6 @@ LA FRATOJ LEONKORO
 
 Astrid Lindgren
 
-LA FRATOJ LEONKORO
 
 Origina titolo: Bröderna Lejonhjärta
 
@@ -21,9 +20,7 @@ Lingva kontrolo: Joachim Giessner
 Ilustraĵoj de Ilon Wikland
 
 
-de La fratoj Leon-
-
-koro estas havebla
+de La fratoj Leonkoro estas havebla
 
 pere de la Libroservo
 
@@ -31,19 +28,10 @@ de UEA aŭ vialanda
 
 libroservo.
 
-@omnibus.se
-
-·
-
-
-LA FRATOJ LEONKORO
-
 
 Antaŭparolo de Astrid Lindgren
 
-Mi tre bonvenigas, ke ”Bröderna Lejonhjärta” nun ape-
-
-ras en Esperanto!
+Mi tre bonvenigas, ke ”Bröderna Lejonhjärta” nun aperas en Esperanto!
 
 La fratoj Leonkoro — la du, kiuj venis al Nangijala, la lan-do longe malantaŭ la steloj — certe ne povis komprenigi sin per la lingvo de sia hejmlando — la sveda.
 
@@ -52,16 +40,11 @@ Mi opinias, ke ili bezonis alian, internacian lingvon, por povi paroli kun la ho
 Astrid Lindgren
 
 
-LA FRATOJ LEONKORO
-
-
 Antaŭparolo
 
 ĉiu svedo, sed ankaŭ multaj alilandanoj, konas la nomon
 
-de Astrid Lindgren. Dum preskaŭ 50 jaroj si okupas pin-
-
-tan lokon en la sveda literaturo. ŝia unua libro rakontas la aventurojn de naŭjara knabino, Pipi ŝtrumpolonga, kiu sola vivas en malnova domo kaj senbride faras ĉion, kion infanoj
+de Astrid Lindgren. Dum preskaŭ 50 jaroj si okupas pintan lokon en la sveda literaturo. ŝia unua libro rakontas la aventurojn de naŭjara knabino, Pipi ŝtrumpolonga, kiu sola vivas en malnova domo kaj senbride faras ĉion, kion infanoj
 
 ŝatas fari.
 
@@ -71,9 +54,7 @@ i kondukas al fikcia, transcenda — kaj tamen tre realeca
 
 mondo — mondo, kie senĉese batalas kuraĝaj homoj kontraŭ
 
-maljusteco. Sur preskaŭ ĉiu paĝo la atentema leganto mal-
-
-kovras paralelojn al la propra ĉiutago, al eventoj daŭre oka-zantaj sur nia Tero. Li retrovas sin mem, legante, kiel la Fratoj Leonkoro daŭre kaj daŭre luktas kontraŭ sia propra timo.
+maljusteco. Sur preskaŭ ĉiu paĝo la atentema leganto malkovras paralelojn al la propra ĉiutago, al eventoj daŭre oka-zantaj sur nia Tero. Li retrovas sin mem, legante, kiel la Fratoj Leonkoro daŭre kaj daŭre luktas kontraŭ sia propra timo.
 
 Sed la Fratoj ankaŭ montras vojon, kiel ĉiu homo kapablas
 
@@ -84,32 +65,20 @@ Tial tiu libro same gravas por plenkreskuloj kaj junuloj. Pro tio ĝi meritas ki
 Neniel eblus aperigi la libron sen la malavara permeso de
 
 
-LA FRATOJ LEONKORO
-
-
 Astrid Lindgren pri traduko de la teksto, kaj tiu de Ilon Wikland pri uzo de ŝiaj ilustraĵoj, kiuj tiel perfekte kongruas al la vortoj. Al ambaŭ mi donas miajn elkorajn dankojn.
 
 Mi ankaŭ sincere dankas al Joachim Giessner el Germanio,
 
-kiu ne nur sindoneme plenumis la taskon de lingva kontro-
+kiu ne nur sindoneme plenumis la taskon de lingva kontrolo, sed multloke sugestis pli trafan tradukon.
 
-lo, sed multloke sugestis pli trafan tradukon.
-
-Mi dankas ankaŭ al Gadory István el Hungario pro lia hel-
-
-po pri la traduko, kaj al Harold Brown el Anglio pro helpo pri traduko kaj pri preparo de la libro por presado.
+Mi dankas ankaŭ al Gadory István el Hungario pro lia helpo pri la traduko, kaj al Harold Brown el Anglio pro helpo pri traduko kaj pri preparo de la libro por presado.
 
 uste tia multflanka kunlaboro ilustras la unikajn eblecojn, kiujn donas la lingvo Esperanto por plifaciligi kaj pliriĉigi la internacian kulturan vivon. Mi sentas min privilegiita havi la ŝancon, aperigi Esperanto-tradukon de tiu ĉi verko deAstrid Lindgren ĝuste en la jaro 1987, la Jubilea Jaro de Esperanto.
 
 Kerstin Rohdin
 
 
-LA FRATOJ LEONKORO
-
-
-Nun mi rakontos pri mia frato. Mia frato Jonatano Leon-
-
-koro, pri li mi volas rakonti. La rakonto estas kvazaŭ fa-
+Nun mi rakontos pri mia frato. Mia frato Jonatano Leonkoro, pri li mi volas rakonti. La rakonto estas kvazaŭ fa-
 
 belo, mi opinias, kaj ankaŭ iomete kiel fantom-rakonto, kaj tamen ĝi estas vera. Sed plej verŝajne nur Jonatano kaj mi tion scias.
 
@@ -124,9 +93,6 @@ Jonatano sciis, ke mi baldaŭ mortos. Mi supozas, ke ĉiuj
 tion sciis krom mi. Eĉ en la lernejo ili sciis tion, ĉar dum la lasta duonjaro mi tute ne povis viziti la lernejon, mi kuŝis hejme, tusis kaj ĉiam estis malsana. ĉiuj virinoj, por kiuj patrino kudris robojn, ankaŭ komprenis tion. Kaj unu el ili parolis kun patrino pri tio, kion mi hazarde aŭdis, kvankam oni ne intencis, ke mi aŭdu. Ili supozis, ke mi dormas. Sed mi nur kuŝis kun fermitaj okuloj. Kaj tion mi daŭre faris, ĉar mi ne volis montri, ke mi aŭdis tiun teruran novaĵon, ke mi baldaŭ mortos.
 
 
-LA FRATOJ LEONKORO
-
-
 Kompreneble mi fariĝis malgaja kaj terure ektimis, kaj tion mi ne volis montri al patrino. Sed mi parolis kun Jonatano pri tio, kiam li venis hejmen. ”ĉu vi scias, ke mi mortos?” mi demandis kaj ploris.
 
 Jonatano iom cerbumis. Li eble ne tre volonte volis respon-di, sed fine li diris: ”Jes, mi scias.”
@@ -139,9 +105,7 @@ Tiam mi eĉ pli forte ploris.
 
 ”Mirinda,” mi diris. ”ĉu estas mirinde, kuŝi en la tero kaj esti mortinta?”
 
-”Ho,” diris Jonatano, ”vidu, estas nur la ŝelo de vi, kiu ku-
-
-ŝos tie. Vi mem forflugos tute aliloken.”
+”Ho,” diris Jonatano, ”vidu, estas nur la ŝelo de vi, kiu kuŝos tie. Vi mem forflugos tute aliloken.”
 
 ”Kien?” mi demandis, ĉar mi apenaŭ povis kredi lin.
 
@@ -157,12 +121,7 @@ Tiam Jonatano diris, ke li ne ekzakte tion scias, sed ĝi situas ie malantaŭ la
 
 ”Tie ankoraŭ estas la tempo de la subĉielaj fajroj kaj de la fabeloj,” li diris, ”kaj tio plaĉos al vi.”
 
-”El Nangijala venis ĉiuj fabeloj,” li diris, ”ĉar ĝuste tie okazis tiaspecaj mirakloj. Kaj se oni venus tien, oni travivus aven-7
-
-LA FRATOJ LEONKORO
-
-
-turojn de mateno ĝis vespero, kaj ankaŭ dum la noktoj,” diris Jonatano.
+”El Nangijala venis ĉiuj fabeloj,” li diris, ”ĉar ĝuste tie okazis tiaspecaj mirakloj. Kaj se oni venus tien, oni travivus aventurojn de mateno ĝis vespero, kaj ankaŭ dum la noktoj,” diris Jonatano.
 
 ”Vidu, Biskoto,” li diris. ”Tio estos pli bona ol kuŝi tie ĉi kaj tusi kaj esti malsana kaj neniam kapabli ludi.”
 
@@ -192,9 +151,7 @@ hararo brilis kiel oro, kaj li havis malhelbluajn, belajn okulojn, kiuj lume bri
 
 Kaj ne nur tio. Li ankaŭ estis bona kaj forta kaj ĉion scipovis kaj ĉion komprenis kaj estis la plej lerta en sia klaso.
 
-ĉiuj infanoj malsupre en la korto alkroĉiĝis al li kiel lapoj kien 8
-
-LA FRATOJ LEONKORO
+ĉiuj infanoj malsupre en la korto alkroĉiĝis al li kiel lapoj kien
 
 
 ajn li iris kaj volis esti kun li, kaj li eltrovis por ili amuzaĵojn kaj iris kun ili al aventuroj. Mi neniam povis partopreni, ĉar mi ja nur kuŝis sur mia malnova kuireja sofo tagon post tago.
@@ -205,13 +162,9 @@ Kaj post enlitiĝo li daŭrigis rakonti fabelojn kaj historiojn al mi, ĝis kiam
 
 ”Ne, nun silentu! Karlo devas dormi.”
 
-Sed estas malfacile dormi, kiam oni daŭre nur tusas. Kelk-
+Sed estas malfacile dormi, kiam oni daŭre nur tusas. Kelkfoje Jonatano ellitiĝis meze en la nokto kaj kuiris mieloakvon, por mildigi mian tusadon, jes li estis bona, Jonatano!
 
-foje Jonatano ellitiĝis meze en la nokto kaj kuiris mieloakvon, por mildigi mian tusadon, jes li estis bona, Jonatano!
-
-Tiun vesperon, kiam mi tiel timis la morton, li sidis ĉe mi plurajn horojn, kaj ni parolis pri Nangijala, sed sufiĉe mallaŭ-
-
-te, por ke patrino ne aŭdu nin. Kiel kutime ŝi sidis kudrante, ŝi havis la kudromaŝinon en la ĉambro, en tiu ĉambro, kie ŝi dormis — ni ja havis nur unu ĉambron kaj kuirejon. La pordo tien estis malfermita, kaj ni povis aŭdi ŝin kanti, tiun kuti-man kanton pri maristo longe for sur la maro, eble pri patro ŝi pensis. Mi ne plu ekzakte memoras ĝin, mi nur memoras
+Tiun vesperon, kiam mi tiel timis la morton, li sidis ĉe mi plurajn horojn, kaj ni parolis pri Nangijala, sed sufiĉe mallaŭte, por ke patrino ne aŭdu nin. Kiel kutime ŝi sidis kudrante, ŝi havis la kudromaŝinon en la ĉambro, en tiu ĉambro, kie ŝi dormis — ni ja havis nur unu ĉambron kaj kuirejon. La pordo tien estis malfermita, kaj ni povis aŭdi ŝin kanti, tiun kuti-man kanton pri maristo longe for sur la maro, eble pri patro ŝi pensis. Mi ne plu ekzakte memoras ĝin, mi nur memoras
 
 kelkajn liniojn, kiuj sonis jene:
 
@@ -225,13 +178,7 @@ Volos ripozi horon en kara sin’.
 
 Bela, malgaja kanto mi opinias, sed Jonatano ekridis, kiam li aŭdis ĝin kaj diris:
 
-”Jen, Biskoto, eble ankaŭ vi flugante venos al mi iun ves-
-
-
-LA FRATOJ LEONKORO
-
-
-peron. El Nangijala. Kaj sidos tie kiel neĝoblanka kolombo sur la fenestrobreto. Faru tion, mi petas! ”
+”Jen, Biskoto, eble ankaŭ vi flugante venos al mi iun vesperon. El Nangijala. Kaj sidos tie kiel neĝoblanka kolombo sur la fenestrobreto. Faru tion, mi petas! ”
 
 uste tiam mi ektusis, kaj li levis min kaj ĉirkaŭtenis min kiel kutime, kiam la tuso estis plej forta, kaj li kantis:
 
@@ -247,26 +194,17 @@ Nur tiam mi ekpensis, kiel estus, veni al Nangijala sen Jonatano. Kiel soleca mi
 
 ”Mi ne volas tien,” mi diris plorante. ”Mi volas esti, kie vi estas, Jonatano!”
 
-”Jes, sed mi ja ankaŭ venos al Nangijala. ĉu vi ne kompre-
+”Jes, sed mi ja ankaŭ venos al Nangijala. ĉu vi ne komprenas tion? Finfine.”
 
-nas tion? Finfine.”
+”Finfine, jes,” mi diris. ”Sed vi eble vivos ĝis vi estos naŭdekjara, kaj dumtempe mi devos esti tie sola.”
 
-”Finfine, jes,” mi diris. ”Sed vi eble vivos ĝis vi estos naŭ-
-
-dekjara, kaj dumtempe mi devos esti tie sola.”
-
-Tiam Jonatano diris, ke en Nangijala ne ekzistas sama tem-
-
-po kiel ni havas sur la tero. Eĉ se li vivus ĝis li estus naŭdekjara, mi imagus, ke daŭros ne pli longe ol ĉirkaŭ du tagoj ĝis li venos. ĉar tiel estas, kiam ne ekzistas la kutima tempo.
+Tiam Jonatano diris, ke en Nangijala ne ekzistas sama tempo kiel ni havas sur la tero. Eĉ se li vivus ĝis li estus naŭdekjara, mi imagus, ke daŭros ne pli longe ol ĉirkaŭ du tagoj ĝis li venos. ĉar tiel estas, kiam ne ekzistas la kutima tempo.
 
 ”Du tagojn vi certe povos elteni sola,” li diris. ”Vi povos grimpi sur arbojn kaj fari subĉielan fajron en la arbaro kaj sidi apud iu rivereto kaj fiŝkapti, ĉion, al kio vi tiel multe sopiris.
 
 Kaj ĝuste kiam vi sidos tie kaj kaptos perkon, mi alflugos kaj tiam vi diros: ”Kio estas, Jonatano? ĉu vi jam estas tie ĉi?”’
 
 Mi provis ĉesi plori, ĉar mi pensis, ke du tagojn mi certe eltenos.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Sed pensu, kiel bone estus, se vi venus unue,” mi diris,
@@ -282,9 +220,6 @@ Eble naŭdek iarojn!”
 Jes, tiel ni pensis.
 
 
-LA FRATOJ LEONKORO
-
-
 Nun mi venos al tiu teruraĵo. Tio, pri kio mi ne havas la
 
 fortojn pensi. Kaj pri kio mi tamen ne povas ne pensi.
@@ -297,9 +232,7 @@ Estas malfacile, mi ne povas, ne, mi ne povas tion rakonti.
 
 Sed en la gazeto poste estis skribite jene:
 
-”Hieraŭ vespere, tie ĉi en la urbo en la kvartalo Fakelro-
-
-sen furiozis terura incendio, kiu ĝiscindre forbruligis unu el la malnovaj lignaj domoj tieaj, kaj unu homa vivo perdiĝis. Kiam la fajro ekflamiĝis, dekjara knabo, Karlo Leo-
+”Hieraŭ vespere, tie ĉi en la urbo en la kvartalo Fakelrosen furiozis terura incendio, kiu ĝiscindre forbruligis unu el la malnovaj lignaj domoj tieaj, kaj unu homa vivo perdiĝis. Kiam la fajro ekflamiĝis, dekjara knabo, Karlo Leo-
 
 no, troviĝis sola kaj kuŝante malsana en la lito en loĝejo en la dua etaĝo. Tuj poste venis hejmen lia frato, dek-tri-jara Jonatano Leono, kaj antaŭ ol iu povis lin malhelpi,
 
@@ -310,9 +243,6 @@ savi sian fraton. Sammomente la tuta ŝtuparejo fariĝis
 fajromaro kaj por tiuj du knaboj, kiuj estis ĉirkaŭitaj de la flamoj, restis kiel sola ebleco sin savi, salto el de fenestro. Hororigita homamaso, kiu kolektiĝis ekster la domo,
 
 estis devigata senpove rigardi, kiel la dek-trijarulo prenis sian fraton surdorse kaj, kun la fajro flamanta malantaŭ
-
-
-LA FRATOJ LEONKORO
 
 
 si, senpripense ĵetis sin el de fenestro. Pro la falo sur la teron la knabo tiel forte vundiĝis, ke li preskaŭ tuj mortis. Sed la pli juna frato, kiun li dum la falo protektis per sia korpo, restis sen vundo. La patrino de la du fratoj
@@ -329,9 +259,7 @@ Sur alia paĝo de la gazeto estis skribite pIi pri Jonatano. Tio estis skribita 
 
 ĉu vere via nomo ne devus esti Jonatano Leonkoro? ĉu
 
-vi memoras, kiam ni en la historio-libro legis pri iu kura-
-
-ĝa angla reĝo kun la nomo Rikardo Leonkoro? ĉu vi me-
+vi memoras, kiam ni en la historio-libro legis pri iu kuraĝa angla reĝo kun la nomo Rikardo Leonkoro? ĉu vi me-
 
 moras, kiel vi tiam diris: ”Nu, tiel kuraĝa, ke oni estos
 
@@ -353,29 +281,20 @@ Greta Anderson”
 
 ŝi estis iom stulte naiva, la instruistino de Jonatano, sed ŝi ĉiam ŝatis Jonatanon; ĉiuj ŝatis Jonatanon. Kaj estis bone, ke ŝi elpensis tion pri Leonkoro, jes vere estis bone!
 
-Certe ne estis iu homo en la tuta urbo, kiu ne funebris pri 13
-
-LA FRATOJ LEONKORO
+Certe ne estis iu homo en la tuta urbo, kiu ne funebris pri
 
 
 Jonatano, kaj kiu ne pensis, ke estus pli bone, se mi estus mortinta anstataŭe. Almenaŭ tion mi kaptis el la babiladoj de ĉiuj virinoj, kiuj kuradis tien ĉi kun siaj ŝtofoj, muslinoj kaj vantaĵoj. Ili ĝemis kaj rigardis min, kiam ili trairis la kuirejon kaj diris al patrino:
 
 ”Kompatinda sinjorino Leono! uste Jonatano, li, kiu estis tiel elstara!”
 
-Ni nun loĝis en la domo najbara, en tute samaspekta lo-
-
-ĝejo, sed tiu ĉi situis en la teretaĝo. Ni ricevis kelkajn uzitajn meblojn de la sociala servo por malriĉuloj, kaj ankaŭ la virinoj ion donis al ni. Mi kuŝis sur preskaŭ samaspekta kuireja sofo kiel estis mia antaŭa. ĉio estis preskaŭ kiel antaŭe. Kaj tamen ĉio, absolute ĉio estis alia ol antaŭe! ĉar ne plu ekzistis Jonatano. Neniu sidis apud mi kaj rakontis vespere; mi estis sola, tiel ke doloris la brusto, kaj mi nur povis kuŝi kaj flustri por mi mem la vortojn, kiujn Jonatano diris tuj antaŭ ol li mortis. Tiam, kiam ni kuŝis sur la tero post la salto. Li unue kuŝis kun la vizaĝo al la tero, sed poste iu turnis lin, kaj mi vidis lian vizaĝon. Fluis iom da sango el unu de la buŝanguloj, kaj li preskaŭ ne povis paroli. Sed li tamen provis rideti, kaj li elbuŝigis kelkajn vortojn: ”Ne ploru Biskoto, ni revidos nin en Nangijala!” Nur tion li diris kaj nenion plu.
+Ni nun loĝis en la domo najbara, en tute samaspekta loĝejo, sed tiu ĉi situis en la teretaĝo. Ni ricevis kelkajn uzitajn meblojn de la sociala servo por malriĉuloj, kaj ankaŭ la virinoj ion donis al ni. Mi kuŝis sur preskaŭ samaspekta kuireja sofo kiel estis mia antaŭa. ĉio estis preskaŭ kiel antaŭe. Kaj tamen ĉio, absolute ĉio estis alia ol antaŭe! ĉar ne plu ekzistis Jonatano. Neniu sidis apud mi kaj rakontis vespere; mi estis sola, tiel ke doloris la brusto, kaj mi nur povis kuŝi kaj flustri por mi mem la vortojn, kiujn Jonatano diris tuj antaŭ ol li mortis. Tiam, kiam ni kuŝis sur la tero post la salto. Li unue kuŝis kun la vizaĝo al la tero, sed poste iu turnis lin, kaj mi vidis lian vizaĝon. Fluis iom da sango el unu de la buŝanguloj, kaj li preskaŭ ne povis paroli. Sed li tamen provis rideti, kaj li elbuŝigis kelkajn vortojn: ”Ne ploru Biskoto, ni revidos nin en Nangijala!” Nur tion li diris kaj nenion plu.
 
 Poste li fermis la okulojn, kaj homoj venis kaj forportis lin, kaj mi neniam plu vidis lin.
 
 La tempon poste mi ne volas rememori. Sed oni ne povas
 
-forgesi ion tiel teruran kaj dolorigan. Mi kuŝis ĉi tie sur la sofo kaj pensis pri Jonatano, ĝis kiam mi sentis, ke la kapo preskaŭ krevas. Kaj pli forte ol mi sopiris al li, neniu povas sopiri. Mi ankaŭ timis, ĉar venis al mi la penso: ĉu la ideo pri Nangija-14
-
-LA FRATOJ LEONKORO
-
-
-la estas vera? Eble ĝi estis nur unu el tiaj amuzaj rakontoj, kiajn Jonatano tiel ofte elpensis! Mi multe ploris — jes vere.
+forgesi ion tiel teruran kaj dolorigan. Mi kuŝis ĉi tie sur la sofo kaj pensis pri Jonatano, ĝis kiam mi sentis, ke la kapo preskaŭ krevas. Kaj pli forte ol mi sopiris al li, neniu povas sopiri. Mi ankaŭ timis, ĉar venis al mi la penso: ĉu la ideo pri Nangijala estas vera? Eble ĝi estis nur unu el tiaj amuzaj rakontoj, kiajn Jonatano tiel ofte elpensis! Mi multe ploris — jes vere.
 
 Sed poste Jonatano venis kaj konsolis min. Jes li venis, ho, kiel bonfartiga estis tio! Estis kvazaŭ ĉio reboniĝis. Li certe komprenis eĉ tie en Nangijala, kiel estis por mi sen li, kaj li certe pensis, ke li devis mnsoli. Pro tio li venis al mi, kaj nun mi ne plu estis tiel malgaja, nun mi simple atendis.
 
@@ -385,19 +304,11 @@ kaj mi kuŝis kaj plorsopiris al li kaj timis kaj estis malfeliĉa kaj malsana k
 
 Tiam okazis.
 
-Kuŝante tie kaj plorante, kun la vizaĝo kaŝita en la kuseno, mi aŭdis kveradon tute proksime, kaj kiam mi levis la kapon, kolombo sidis sur la fenestrobreto kaj rigardis min per amikaj okuloj. Neĝoblanka kolombo — bone notu — ne tia gri-
-
-za, kiaj estas la kolomboj en la korto! Neĝoblanka kolombo, neniu povus kompreni mian senton, kiam mi ekvidis ĝin. ĉar estis precize kiel en la kanto — ”blanka kolomb’, ho kara, ser-
+Kuŝante tie kaj plorante, kun la vizaĝo kaŝita en la kuseno, mi aŭdis kveradon tute proksime, kaj kiam mi levis la kapon, kolombo sidis sur la fenestrobreto kaj rigardis min per amikaj okuloj. Neĝoblanka kolombo — bone notu — ne tia griza, kiaj estas la kolomboj en la korto! Neĝoblanka kolombo, neniu povus kompreni mian senton, kiam mi ekvidis ĝin. ĉar estis precize kiel en la kanto — ”blanka kolomb’, ho kara, ser-
 
 ĉos ja vin”. Kaj estis kvazaŭ mi denove aŭdis Jonatanon kan-ti: ”Eta Biskot’ alflugos je nokta hor’.” Sed nun estis li, kiu venis al mi anstataŭe.
 
-Mi volis ion diri, sed mi ne kapablis. Mi nur kuŝis tie kaj aŭdis kiel la kolombo kveradis, kaj malantaŭ la kverado aŭ meze en la kverado aŭ kiel tion diri, mi aŭdis la voĉon de Jonatano. Sed ĝi ne sonis kiel kutime. Estis nur kiel stranga flustrado en la tuta kuirejo. i ŝonis preskaŭ kiel fantomrakonto, 15
-
-
-LA FRATOJ LEONKORO
-
-
-LA FRATOJ LEONKORO
+Mi volis ion diri, sed mi ne kapablis. Mi nur kuŝis tie kaj aŭdis kiel la kolombo kveradis, kaj malantaŭ la kverado aŭ meze en la kverado aŭ kiel tion diri, mi aŭdis la voĉon de Jonatano. Sed ĝi ne sonis kiel kutime. Estis nur kiel stranga flustrado en la tuta kuirejo. i ŝonis preskaŭ kiel fantomrakonto,
 
 
 kaj oni eble povis ektimi, sed mi ne timis. Mi nur ĝojegis. Jes, mi ŝatus salti al la plafono. ĉar ĉio, kion mi aŭdis, estis tiel mirinde alloga.
@@ -408,15 +319,11 @@ Kaj imagu, la unua, kion li vidis, kiam li venis al la Rajdisto-bieno, estis eta
 
 ”Tio signifas, ke ni ambaŭ loĝos tie,” diris Jonatano.
 
-Do, ankaŭ mi rajtos havi la nomon Leonkoro, kiam mi ve-
-
-nos al Nangijala. Pri tio mi ĝojas, ĉar plej volonte mi volas havi la saman nomon kiel Jonatano, eĉ se mi ne estas kuraĝa kiel li.
+Do, ankaŭ mi rajtos havi la nomon Leonkoro, kiam mi venos al Nangijala. Pri tio mi ĝojas, ĉar plej volonte mi volas havi la saman nomon kiel Jonatano, eĉ se mi ne estas kuraĝa kiel li.
 
 ”Venu kiel eble plej baldaŭ,” li diris. ”Se vi ne trovos min hejme ĉe la Rajdisto-bieno, mi sidos apud la rivero por kapti fiŝojn.”
 
-Tiam la kolombo silentis kaj forflugis rekte trans la teg-
-
-mentojn de la domoj. Reen al Nangijala. Kaj mi kuŝis tie ĉi sur mia sofo kaj nur atendis, ke mi sekvu. Mi esperas, ke ne estos tro malfacile trovi la vojon tien. Sed Jonatano diris, ke tute ne estas malfacile. Por esti certa, mi notis la adreson:
+Tiam la kolombo silentis kaj forflugis rekte trans la tegmentojn de la domoj. Reen al Nangijala. Kaj mi kuŝis tie ĉi sur mia sofo kaj nur atendis, ke mi sekvu. Mi esperas, ke ne estos tro malfacile trovi la vojon tien. Sed Jonatano diris, ke tute ne estas malfacile. Por esti certa, mi notis la adreson:
 
 La Fratoj Leonkoro
 
@@ -426,18 +333,10 @@ Rajdisto- bieno
 
 Nangijala
 
-Dum du monatoj Jonatano sola loĝis tie. Du longajn terurajn 17
+Dum du monatoj Jonatano sola loĝis tie. Du longajn terurajn
 
 
-LA FRATOJ LEONKORO
-
-
-monatojn mi devis esti sen li. Sed nun ankaŭ mi baldaŭ ve-
-
-nos al Nangijala. Baldaŭ, tre baldaŭ mi flugos tien. Eble tiun ĉi nokton. Mi havas subsenton, ke tio povus okazi tiun ĉi nokton. Mi skribos slipon kaj metos ĝin sur la kuirejan tablon, tiel ke patrino trovos ĝin, kiam ŝi vekiĝos morgaŭ matene. Estu skribite sur la slipo:
-
-
-LA FRATOJ LEONKORO
+monatojn mi devis esti sen li. Sed nun ankaŭ mi baldaŭ venos al Nangijala. Baldaŭ, tre baldaŭ mi flugos tien. Eble tiun ĉi nokton. Mi havas subsenton, ke tio povus okazi tiun ĉi nokton. Mi skribos slipon kaj metos ĝin sur la kuirejan tablon, tiel ke patrino trovos ĝin, kiam ŝi vekiĝos morgaŭ matene. Estu skribite sur la slipo:
 
 
 Poste io okazis. Kaj ion pli strangan mi neniam travivis.
@@ -462,9 +361,7 @@ Unue li ne rekonis min. Sed poste li ekkriis kaj flankenĵetis la fiŝkaptilon k
 
 Kial mi daŭre ploru? Sed mi ja tiom multe sopiris lin.
 
-Male Jonatano, li ridis, kaj ni staris tie sur la deklivo ĉe la 19
-
-LA FRATOJ LEONKORO
+Male Jonatano, li ridis, kaj ni staris tie sur la deklivo ĉe la
 
 
 rivereto kaj ĉirkaŭbrakis unu la alian kaj estis pIi gajaj ol oni povis esprimi, ĉar ni denove estis kune.
@@ -496,16 +393,11 @@ ponton, kaj tie mi staris tute malseka. La akvo fluis el la vestoj. La pantalono
 Venis ideo en mian kapon. ĉu mi fariĝis ankaŭ same bela?
 
 
-LA FRATOJ LEONKORO
-
-
 Mi demandis Jonatanon pri tio. Demandis lin, ĉu mi fariĝis pli belaspekta.
 
 ”Rigardu en la spegulon,” li diris, montrante al la rivero. La akvo estis brila kaj senmova, tiel ke oni povis speguliĝi en ĝi.
 
-Mi kuŝigis min surbruste sur la ponton kaj rigardis mal-
-
-supren de la rando kaj vidis min en la akvo, sed mi vere ne povis rimarki iun ajn belecon ĉe mi. Jonatano venis kaj kuŝigis sin apud min, kaj ni longe kuŝis rigardante la Fratojn Leonkoro malsupre en la akvo. Jonatano tiel bela kun sia ora hararo kaj siaj okuloj kaj sia bela vizaĝo, kaj jen ĉeflanke mi kun mia osteca nazego kaj mia hirta hararo kaj ĉio.
+Mi kuŝigis min surbruste sur la ponton kaj rigardis malsupren de la rando kaj vidis min en la akvo, sed mi vere ne povis rimarki iun ajn belecon ĉe mi. Jonatano venis kaj kuŝigis sin apud min, kaj ni longe kuŝis rigardante la Fratojn Leonkoro malsupre en la akvo. Jonatano tiel bela kun sia ora hararo kaj siaj okuloj kaj sia bela vizaĝo, kaj jen ĉeflanke mi kun mia osteca nazego kaj mia hirta hararo kaj ĉio.
 
 ”Ne, mi ne povas rimarki, ke mi fariĝis pli bela,” mi diris.
 
@@ -521,11 +413,7 @@ tie sur la ponto, ke mi estas sana kaj gaja en ĉiu parto de mi, do kial mi bezo
 
 Ni kuŝis tie dum iom da tempo, kaj la sunbrilo varmigis
 
-nin, kaj ni rigardis la fiŝojn, kiuj ĉirkaŭnaĝis sub la ponto. Sed poste Jonatano volis, ke ni iru hejmen, kaj tion mi ankaŭ deziris, ĉar mi scivolis pri tiu Rajdisto-bieno, kie mi loĝos. Jonatano iris antaŭ mi sur la vojeto supren al la bieno, kaj per miaj belaj rektaj gamboj mi marŝis malantaŭ li. Mi iris kaj daŭre fiksrigardis al miaj gamboj kaj sentis, kiel bone mi mar-
-
-ŝis per ili. Kiam ni estis duone sur la deklivo, mi subite turnis la kapon. Kaj tiam — tiam mi finfine vere vidis la ĉerizo-valon. Ho, kia valo plenplena de blankaj ĉerizofloroj! Blanka kaj verda ĝi estis pro ĉerizaj floroj kaj verda, verda herbo. Kaj tra 21
-
-LA FRATOJ LEONKORO
+nin, kaj ni rigardis la fiŝojn, kiuj ĉirkaŭnaĝis sub la ponto. Sed poste Jonatano volis, ke ni iru hejmen, kaj tion mi ankaŭ deziris, ĉar mi scivolis pri tiu Rajdisto-bieno, kie mi loĝos. Jonatano iris antaŭ mi sur la vojeto supren al la bieno, kaj per miaj belaj rektaj gamboj mi marŝis malantaŭ li. Mi iris kaj daŭre fiksrigardis al miaj gamboj kaj sentis, kiel bone mi marŝis per ili. Kiam ni estis duone sur la deklivo, mi subite turnis la kapon. Kaj tiam — tiam mi finfine vere vidis la ĉerizo-valon. Ho, kia valo plenplena de blankaj ĉerizofloroj! Blanka kaj verda ĝi estis pro ĉerizaj floroj kaj verda, verda herbo. Kaj tra
 
 
 tiu tuta verdo kaj blanko fluis la rivereto kiel arĝenta ruban-do. Mi tute ne rimarkis tion antaŭe. Kial? ĉu mi vidis nur Jonatanon? Sed nun mi staris sur la vojeto kaj rimarkis, kiel bele estis, kaj mi diris al Jonatano:
@@ -546,14 +434,9 @@ Sed ĉi tie estis pura aero, kaj mi enspiris tiom multe, kiom mi kapablis. ŝajn
 
 ”Iom vi tamen devas lasi por mi.”
 
-La vojeto, laŭ kiu ni iris, estis blanka pro malsupren-ne-
-
-ĝantaj ĉerizfloroj, kaj ankaŭ super ni flirte faletis belaj, blankaj petaloj, tiel ke ili restis pendantaj en la haroj kaj ĉie sur la korpoj. Mi ŝatas etajn, verdajn vojetojn kun petaloj de ĉerizfloroj, jes, tion mi vere ŝatas.
+La vojeto, laŭ kiu ni iris, estis blanka pro malsupren-neĝantaj ĉerizfloroj, kaj ankaŭ super ni flirte faletis belaj, blankaj petaloj, tiel ke ili restis pendantaj en la haroj kaj ĉie sur la korpoj. Mi ŝatas etajn, verdajn vojetojn kun petaloj de ĉerizfloroj, jes, tion mi vere ŝatas.
 
 Kaj ĉe la fino de la vojeto situis la Rajdisto-bieno kun la verda tabuleto sur la barilpordo.
-
-
-LA FRATOJ LEONKORO
 
 
 ”La Fratoj Leonkoro,” mi laŭte legis por Jonatano. ”Imagu, ke tie ĉi ni loĝu!”
@@ -577,9 +460,6 @@ Fakte estis du domoj, ne nur unu, sed la alia pli similis al stalo aŭ io tia. I
 Li jam staris ĉe la pordo kaj volis eniri, sed en la sama momento aŭdiĝis heno, jes vere estis ĉevalo, kiu henis, kaj Jonatano diris: ”Mi pensas, ke ni unue iru al la stalo.”
 
 
-LA FRATOJ LEONKORO
-
-
 Li eniris tiun alian domon, kaj mi postkuris. Ho, kiel mi
 
 kuris!
@@ -601,9 +481,6 @@ Ion pIi bonan mi tute ne povis imagi ol ke oni devas havi
 ĉevalon en Nangijala. Jes, ĉar mi tiel ŝatas ĉevalojn. Kaj kiel molaj estas iliaj nazoj, mi ne komprenas, ke povas ekzisti io tiel mola!
 
 
-LA FRATOJ LEONKORO
-
-
 Paro da neordinare belaj ĉevaloj estis tiuj du en la stalo.
 
 Fjalaro havis blankan fruntstrion, alie ili tute similis unu al la alia.
@@ -616,9 +493,7 @@ Mi permesis al Fjalaro ĉirkaŭflari min, kaj mi karesis lin kaj tute ne timis, 
 
 Mi ŝatis lin dekomence, kaj certe li ŝatis min. Almenaŭ tion mi opiniis.
 
-”Ni ankaŭ havas kuniklojn,” diris Jonatano. ”En kaĝo ma-
-
-lantaŭ la stalo. Sed tiujn vi povos rigardi poste.”
+”Ni ankaŭ havas kuniklojn,” diris Jonatano. ”En kaĝo malantaŭ la stalo. Sed tiujn vi povos rigardi poste.”
 
 Ke li povis pensi tion!
 
@@ -628,15 +503,11 @@ Ke li povis pensi tion!
 
 ”Jes, sed tion mi ja promesis,” respondis Jonatano. Kaj fak-te estis ekzakte tio, kion li promesis, kiam li sidis ĉe mi hejme en la kuirejo. Sed nun mi vidis, ke li vere pravis, kaj pri tio mi ĝojis.
 
-Ekzistas multe da aferoj, kiujn oni neniam forgesas. Neni-
-
-am, neniam ajn mi forgesos tiun unuan vesperon en la kui-
+Ekzistas multe da aferoj, kiujn oni neniam forgesas. Neniam, neniam ajn mi forgesos tiun unuan vesperon en la kui-
 
 rejo en la Rajdisto-bieno; kiel mirige estis, kaj kiel bone mi fartis, kiam mi povis kuŝi kaj paroli kun Jonatano kiel antaŭe.
 
-Nun ni denove loĝis en kuirejo, kiel ni ĉiam faris. Sed ĝi ne similis al nia kuirejo hejme en la urbo. La kuirejo en la Rajdisto-bieno certe estis pratempa, mi pensas, kun siaj krudaj 25
-
-LA FRATOJ LEONKORO
+Nun ni denove loĝis en kuirejo, kiel ni ĉiam faris. Sed ĝi ne similis al nia kuirejo hejme en la urbo. La kuirejo en la Rajdisto-bieno certe estis pratempa, mi pensas, kun siaj krudaj
 
 
 traboj en la plafono kaj sia granda masonita forno. Kia forno!
@@ -659,18 +530,10 @@ metis por patrino sur la kuirejan tablon.
 
 se ŝi deziros.”
 
-Divenu kion mi ŝatas! Mi ŝatas kuŝi sur praa kuireja benk-
-
-lito en tiu ĉi eksmoda, malnova kuirejo kaj paroli kun Jonatano, dum la brilo de la fajro flirtas sur la muroj; kaj dum mi rigardas tra la fenestro, mi vidas branĉon de la ĉerizarbo, kiu estas blovata de la vespera vento. Kaj la fajro de la forno pIi kaj pli malkreskas, ĝis nur la arda ligno restas, kaj komenciĝas malheliĝi en la anguloj, kaj mi pIi kaj pIi dormemas, kaj mi kuŝas tie kaj ne tusas, kaj Jonatano rakontas por mi. Rakontas kaj rakontas, kaj fine mi aŭdas lian voĉon nur same, kiel iam mi aŭdis lian flustradon, kaj tiel mi endormiĝas. ĉio, kion 26
-
-
-LA FRATOJ LEONKORO
+Divenu kion mi ŝatas! Mi ŝatas kuŝi sur praa kuireja benklito en tiu ĉi eksmoda, malnova kuirejo kaj paroli kun Jonatano, dum la brilo de la fajro flirtas sur la muroj; kaj dum mi rigardas tra la fenestro, mi vidas branĉon de la ĉerizarbo, kiu estas blovata de la vespera vento. Kaj la fajro de la forno pIi kaj pli malkreskas, ĝis nur la arda ligno restas, kaj komenciĝas malheliĝi en la anguloj, kaj mi pIi kaj pIi dormemas, kaj mi kuŝas tie kaj ne tusas, kaj Jonatano rakontas por mi. Rakontas kaj rakontas, kaj fine mi aŭdas lian voĉon nur same, kiel iam mi aŭdis lian flustradon, kaj tiel mi endormiĝas. ĉio, kion
 
 
 mi plej ŝatas, plenumiĝis la unuan vesperon en la Rajdisto-bieno. Tial mi neniam forgesos ĝin.
-
-
-LA FRATOJ LEONKORO
 
 
 Kaj poste, la venontan matenon, tiam ni rajdis. Jes vere, mi kapablis rajdi, kvankam la unuan fojon mi sidis sur ĉevalo — mi ne komprenas, kial en Nangijala oni kapablas fari simple ĉion. Mi galopis kvazaŭ mi ĉiam faris tion.
@@ -684,12 +547,7 @@ forjetis, kaj mi neniam plu volis ilin revidi, ĉar Jonatano diris, ke ni devas 
 ”Verŝajne estas tre antikva tempo, en kiu ni vivas ĉi tie en Nangijala?”
 
 
-LA FRATOJ LEONKORO
-
-
-”Certagrade jes,” diris Jonatano. ”Kompreneble estas anti-
-
-kva tempo por ni. Sed oni ankaŭ povus diri, ke estas juna
+”Certagrade jes,” diris Jonatano. ”Kompreneble estas antikva tempo por ni. Sed oni ankaŭ povus diri, ke estas juna
 
 tempo.”
 
@@ -699,20 +557,13 @@ Li iom pripensis.
 
 Sed poste liaj okuloj malheliĝis. ”Almenaŭ tie ĉi en la ĉerizo-valo,” li diris.
 
-”ĉu estas malsame en aliaj lokoj?” mi demandis. Kaj Jona-
+”ĉu estas malsame en aliaj lokoj?” mi demandis. Kaj Jonatana respondis, ke vere ne ĉie estas same.
 
-tana respondis, ke vere ne ĉie estas same.
-
-Kia bonŝanco, ke ni alvenis precize ĉi tien — ĝuste tien ĉi en la ĉerizo-valon, kie la vivo estas tiel facila kaj simpla, kiel diris Jonatano. Ne povas esti pIi facila kaj simpla kaj amuza vivo ol dum tia mateno. Unue oni vekiĝas en sia kuirejo pro la suno, kiu brilas tra la fenestroj, kaj pro la birdoj, kiuj trilas kaj ĝojas en la arboj ekstere. Kaj oni vidas Jonatanon, kiu trankvile metas panon kaj lakton sur la tablon, kaj post man-
-
-ĝado oni iras por manĝigi siajn kuniklojn kaj strigli sian ĉevalon. Kaj poste oni ekrajdas, jes, oni ekrajdas, kaj pendas roseroj en la herbo, kiuj ĉie trembrilas kaj lumas. Burdoj kaj abeloj zumas en la ĉerizfloroj, kaj la ĉevalo galopegas, kaj oni ne timas. Imagu, oni eĉ ne timas, ke subite ĉio finiĝos, kiel kutime okazas pri bonaj aferoj. Ne en Nangijala! Almenaŭ ne tie ĉi en la ĉerizo-valo!
+Kia bonŝanco, ke ni alvenis precize ĉi tien — ĝuste tien ĉi en la ĉerizo-valon, kie la vivo estas tiel facila kaj simpla, kiel diris Jonatano. Ne povas esti pIi facila kaj simpla kaj amuza vivo ol dum tia mateno. Unue oni vekiĝas en sia kuirejo pro la suno, kiu brilas tra la fenestroj, kaj pro la birdoj, kiuj trilas kaj ĝojas en la arboj ekstere. Kaj oni vidas Jonatanon, kiu trankvile metas panon kaj lakton sur la tablon, kaj post manĝado oni iras por manĝigi siajn kuniklojn kaj strigli sian ĉevalon. Kaj poste oni ekrajdas, jes, oni ekrajdas, kaj pendas roseroj en la herbo, kiuj ĉie trembrilas kaj lumas. Burdoj kaj abeloj zumas en la ĉerizfloroj, kaj la ĉevalo galopegas, kaj oni ne timas. Imagu, oni eĉ ne timas, ke subite ĉio finiĝos, kiel kutime okazas pri bonaj aferoj. Ne en Nangijala! Almenaŭ ne tie ĉi en la ĉerizo-valo!
 
 Ni longtempe rajdis tien kaj tien sur la herbejoj laŭ nia
 
 emo. Poste ni sekvis la padon laŭlonge de la rivereto laŭ ĉiuj sinuoj kaj kurbiĝoj, kaj subite ni ekvidis la matenan fumon de la vilaĝo en la valo. Unue nur la fumstriojn, sed poste la tutan vilaĝon kun ĝiaj malnovaj domoj kaj bienoj. Ni aŭdis
-
-
-LA FRATOJ LEONKORO
 
 
 kokojn krii kaj hundojn boji kaj ŝafojn kaj kaprinojn bleki, ĉio sonis matene freŝe. ŝajnis, ke la vilaĝo ĵus vekiĝis.
@@ -735,17 +586,13 @@ Kaj Jonatano prenis la korbon, kvazaŭ li kutimis fari tion kaj ne bezonis deman
 
 Jonatano respondis, ke tion li faros, kaj poste ni adiaŭis ŝin kaj hejmen rajdis. Mi demandis Jonatanon, kio estas la Ora Koko.
 
-”La gastejo,” diris Jonatano. ”i nomiĝas Ora Koko kaj si-
-
-tuas en la vilaĝo. Tie ni renkontiĝas kaj parolas pri kio necesas paroli.”
+”La gastejo,” diris Jonatano. ”i nomiĝas Ora Koko kaj situas en la vilaĝo. Tie ni renkontiĝas kaj parolas pri kio necesas paroli.”
 
 Mi antaŭĝojis kuniri al la Ora Koko vespere, por vidi la
 
 homojn, kiuj loĝas en la ĉerizo-valo. ĉion pri la ĉerizo-valo kaj Nangijala mi volis scii. Mi volis vidi, ĉu ĉio ekzakte kon-gruis kun tio, kion diris Jonatano. Hazarde mi pensis pri io, pri kio mi nun memorigis lin, dum ni rajdis.
 
-”Jonatano, vi diris, ke en Nangijala oni travivas aventurojn 30
-
-LA FRATOJ LEONKORO
+”Jonatano, vi diris, ke en Nangijala oni travivas aventurojn
 
 
 de mateno ĝis vespero kaj eĉ dum la noktoj, ĉu vi memoras
@@ -756,9 +603,7 @@ Tiam Jonatano ridis.
 
 ”Ne forgesu, ke vi venis nur hieraŭ. Stultulo, vi apenaŭ metis la nazon tien ĉi! Por travivi aventurojn vi certe havos okazon.”
 
-Kaj mi diris, kiam mi bone pripensis la aferon, ke jam es-
-
-tis sufiĉe aventure kaj mirige, kion ni travivis en la Rajdisto-bieno kun niaj ĉevaloj kaj kunikloj kaj ĉio. Pliajn aventurojn mi ne bezonos.
+Kaj mi diris, kiam mi bone pripensis la aferon, ke jam estis sufiĉe aventure kaj mirige, kion ni travivis en la Rajdisto-bieno kun niaj ĉevaloj kaj kunikloj kaj ĉio. Pliajn aventurojn mi ne bezonos.
 
 Tiam Jonatano strange rigardis min, kvazaŭ li kompatis
 
@@ -766,13 +611,9 @@ min kaj diris:
 
 ”Jes, vidu Biskoto, mi dezirus, ke estus por vi ĝuste tiel. ĉar sciu, okazas aventuroj, kiuj devus ne okazi.”
 
-Kiam ni alvenis hejmen, Jonatano elpakis la korbon de So-
+Kiam ni alvenis hejmen, Jonatano elpakis la korbon de Sofia sur la kuireja tablo. Estis pano en ĝi kaj botelo da lakto kaj eta poto kun mielo kaj kelkaj krespoj.
 
-fia sur la kuireja tablo. Estis pano en ĝi kaj botelo da lakto kaj eta poto kun mielo kaj kelkaj krespoj.
-
-”ĉu Sofia provizas nin per manĝaĵo?” mi demandis supri-
-
-zite. is nun mi ne tre multe pripensis, kiel ni ricevu ion por manĝi.
+”ĉu Sofia provizas nin per manĝaĵo?” mi demandis suprizite. is nun mi ne tre multe pripensis, kiel ni ricevu ion por manĝi.
 
 ”Kelkfoje ŝi tion faras,” diris Jonatano.
 
@@ -791,43 +632,29 @@ Tiam li denove ridis.
 Kaj poste li diris mallaŭte, tiel ke mi apenaŭ aŭdis lin:
 
 
-LA FRATOJ LEONKORO
-
-
 ”Krom tio mi faras por ŝi ankaŭ kelkajn aliajn servojn.”
 
 uste tiam mi vidis, ke li elprenis ion alian el la korbo. Estis kunvolvita papereto, nur tio. Li disvolvis ĝin kaj legis, kio estis skribita sur ĝi, kaj tiam li kuntiris la brovojn, kvazaŭ li malŝatis la legitajn vortojn. Sed li diris nenion al mi, kaj mi ne volis demandi. Mi opiniis, ke certe li rakontos, kio estas skribita sur liaj slipoj, kiam li volas ke mi sciu.
 
 Ni havis malnovan ŝrankon en unu angulo de la kuirejo.
 
-Tuj la unuan vesperon en la Rajdisto-bieno Jonatano rakon-
-
-tis al mi pri ĝi. Troviĝas sekreta tirkesto en ĝi, li diris, kesto, kiun oni nek povos trovi nek malfermi, se oni ne konas la
+Tuj la unuan vesperon en la Rajdisto-bieno Jonatano rakontis al mi pri ĝi. Troviĝas sekreta tirkesto en ĝi, li diris, kesto, kiun oni nek povos trovi nek malfermi, se oni ne konas la
 
 mekanismon. Kompreneble mi volis ĝin tuj vidi, sed tiam Jonatano diris:
 
 ”Alian fojon. Nun ni dormu.”
 
-Poste mi endormiĝis kaj forgesis pri ĝi, sed nun mi deno-
-
-ve rememoris, kiam Jonatano iris al la ŝranko, kaj mi aŭdis kelkajn strangajn kraketojn. Ne estis malfacile imagi, kion li faras. Li kaŝis la slipon en la sekretan keston. Kaj poste li ŝlosis la ŝrankon kaj metis la ŝlosilon en malnovan pistujon, kiu staris alte sur breto en la kuirejo.
+Poste mi endormiĝis kaj forgesis pri ĝi, sed nun mi denove rememoris, kiam Jonatano iris al la ŝranko, kaj mi aŭdis kelkajn strangajn kraketojn. Ne estis malfacile imagi, kion li faras. Li kaŝis la slipon en la sekretan keston. Kaj poste li ŝlosis la ŝrankon kaj metis la ŝlosilon en malnovan pistujon, kiu staris alte sur breto en la kuirejo.
 
 Poste ni iris iom naĝi, kaj mi plonĝis de la ponto en la akvon, imagu, ke mi kuraĝis tion! Kaj poste Jonatano faris por mi fiŝkaptilon similan al tiu, kiun li mem havis, kaj ni iom fiŝkaptis. Nur tiom multe, ke sufiĉis al ni por tagmanĝo. Mi kaptis unu grandan perkon kaj Jonatano du. Ni kuiris la fiŝojn hejme en poto, kiu pendis per fera ĉeno super la fajro en nia granda kameno. Kaj post la manĝado Jonatano diris:
 
 ”Nun, Biskoto, ni vidu, ĉu vi kapablas celpafi. Tio necesas kelkfoje.”
 
-Li gvidis min al la stalo, kaj en la jungilejo pendis du pafar-32
-
-LA FRATOJ LEONKORO
-
-
-koj. Mi komprenis, ke Jonatano ilin faris, ĉar ĉiam li faris paf-arkojn por la infanoj sur la korto hejme en la urbo. Sed tiuj ĉi estis pIi grandaj kaj pIi belaj, fakte ili estis jam veraj armiloj.
+Li gvidis min al la stalo, kaj en la jungilejo pendis du pafarkoj. Mi komprenis, ke Jonatano ilin faris, ĉar ĉiam li faris paf-arkojn por la infanoj sur la korto hejme en la urbo. Sed tiuj ĉi estis pIi grandaj kaj pIi belaj, fakte ili estis jam veraj armiloj.
 
 Ni pendigis celtabulon sur la stalpordon, kaj tie ni celpafis la tutan posttagmezon. Jonatano montris al mi kiel pafi. Kaj mi pafis kontentige bone, sed kompreneble ne tiel bone kiel Jonatano, ĉar li trafis la celon preskaŭ ĉiufoje.
 
-Estis strange pri Jonatano, kvankam li ĉion scipovis mul-
-
-te pIi perfekte ol mi, li mem ne opiniis, ke tio estas mirakla.
+Estis strange pri Jonatano, kvankam li ĉion scipovis multe pIi perfekte ol mi, li mem ne opiniis, ke tio estas mirakla.
 
 Li neniam fanfaronis, sed faris ĉion preskaŭ sen cerbumi pri
 
@@ -849,9 +676,7 @@ Mi mem opiniis, ke sonis stulte diri tion, ĉar kial ili ridu pri mi? Sed ĉiam 
 
 ”Aŭskultu. Mi pensas, ke ekde nun ni nomu vin Karlo, ĉar
 
-vi nomiĝas Leonkoro,” diris Jonatano. ”Biskoto Leonkoro, tio 33
-
-LA FRATOJ LEONKORO
+vi nomiĝas Leonkoro,” diris Jonatano. ”Biskoto Leonkoro, tio
 
 
 eble ridigus ilin. Vi mem preskaŭ mortridis pro tio, kaj ankaŭ mi.”
@@ -874,21 +699,14 @@ Kia bruo ekestis, kiam ni alvenis!
 
 ”Jonatano,” ili kriis, ”jen Jonatano!”
 
-La gastejestro mem — grandstatura, rozvanga kaj tre bon-
-
-aspekta viro — kriis tiel laŭte, ke aŭdeblis tra la bruo:
-
-
-LA FRATOJ LEONKORO
+La gastejestro mem — grandstatura, rozvanga kaj tre bonaspekta viro — kriis tiel laŭte, ke aŭdeblis tra la bruo:
 
 
 ”Jen venas Jonatano, ne, jen vere venas la fratoj Leonkoro!
 
 Ambaŭ!”
 
-Li venis al mi kaj tuj starigis min sur tablon, por ke ĉiuj vidu min, kaj mi staris tie kaj sentis, ke mia vizaĝo tute ruĝi-
-
-ĝis.
+Li venis al mi kaj tuj starigis min sur tablon, por ke ĉiuj vidu min, kaj mi staris tie kaj sentis, ke mia vizaĝo tute ruĝiĝis.
 
 Sed Jonatano diris:
 
@@ -910,12 +728,7 @@ Mi amuziĝis tie en la gastejo. Ni kantis multajn kantojn,
 
 kelkajn, kiujn mi jam konis, kelkajn, kiujn mi neniam aŭdis.
 
-Kaj ĉiuj homoj estis gajaj. Tamen, ĉu vere ili estis gajaj? Kelk-35
-
-LA FRATOJ LEONKORO
-
-
-foje ŝajnis al mi, ke ili havas sekretajn ĉagrenojn, same kiel Sofia. Estis kvazaŭ ili de tempo al tempo pensis pri io. Pri io, kion ili timis. Sed Jonatano ja diris, ke la vivo en la ĉerizo-valo estas facila kaj simpla. Do, kion ili timu? Nu, plej ofte ili estis gajaj, kantis kaj ridis, kaj ĉiuj estis bonaj geamikoj kaj sendube ŝatis unuj la aliajn. Sed mi havis la impreson, ke la plej amata estas Jonatano. Estis same kiel hejme en la urbo, ĉiuj ŝatis lin. Kaj ankaŭ Sofia — mi supozis — estas tre ŝatata.
+Kaj ĉiuj homoj estis gajaj. Tamen, ĉu vere ili estis gajaj? Kelkfoje ŝajnis al mi, ke ili havas sekretajn ĉagrenojn, same kiel Sofia. Estis kvazaŭ ili de tempo al tempo pensis pri io. Pri io, kion ili timis. Sed Jonatano ja diris, ke la vivo en la ĉerizo-valo estas facila kaj simpla. Do, kion ili timu? Nu, plej ofte ili estis gajaj, kantis kaj ridis, kaj ĉiuj estis bonaj geamikoj kaj sendube ŝatis unuj la aliajn. Sed mi havis la impreson, ke la plej amata estas Jonatano. Estis same kiel hejme en la urbo, ĉiuj ŝatis lin. Kaj ankaŭ Sofia — mi supozis — estas tre ŝatata.
 
 Sed poste, kiam Jonatano kaj mi intencis iri hejmen kaj venis en la korton por malligi niajn ĉevalojn, tiam mi demandis:
 
@@ -931,23 +744,16 @@ Estis malhele en la korto, tiel ke ni ne povis vidi la personon, kiu parolis. Se
 
 tra la pordego. ”Lia nomo estas Huberto,” li respondis. ”Kaj li tute bone scias, kio rimarkinda estas pri Sofia.”
 
-Poste ni rajdis hejmen. Estis malvarma, steloluma vespe-
-
-ro. Neniam mi vidis tiom da steloj tiel brilaj. Mi provis dive-ni, kie troviĝas la stelo Tero.
+Poste ni rajdis hejmen. Estis malvarma, steloluma vespero. Neniam mi vidis tiom da steloj tiel brilaj. Mi provis dive-ni, kie troviĝas la stelo Tero.
 
 Sed Jonatano diris: ”La stelo Tero, nu, tiu migras ie en nei-magebla distanco fore en la spacoj, ĝin vi ne povas vidi de ĉi tie.”
 
 Estas iom malgajiga tio, mi opiniis.
 
 
-LA FRATOJ LEONKORO
-
-
 Sed tiam venis la tago, kiam ankaŭ mi eksciis, kio estas rimarkinda pri Sofia. Iun matenon Jonatano diris:
 
-”Hodiaŭ ni iros por iom babili kun ’la reĝino de la kolom-
-
-boj’.”
+”Hodiaŭ ni iros por iom babili kun ’la reĝino de la kolomboj’.”
 
 ”Bona ideo,” mi diris. ”Kiu do estas tiu reĝino?”
 
@@ -968,23 +774,15 @@ Ni rajdis tien kaj alvenis frumatene. Sofia ĵus manĝigis siajn kolombojn. ĉiu
 La kolomboj estis kiel blanka nubo ĉirkaŭ Sofia, kaj ŝi staris tute trankvile meze en la flirtado de iliaj flugiloj. uste tiel aspektas ’reĝino de la kolomboj’, mi opiniis.
 
 
-LA FRATOJ LEONKORO
-
-
 Nur tiam ŝi ekvidis nin. Kiel kutime ŝi afable salutis, sed ŝi ne estis gaja. Tute trista ŝi estis, kaj tuj diris per mallaŭta voĉo al Jonatano:
 
 ”Hieraŭ vespere mi trovis Violantan; ŝi estis mortpafita per sago en la brusto. Supre en la Lupo-ravino. Kaj la mesaĝo estis for.”
 
-La okuloj de Jonatano mallumiĝis. Neniam ĝis nun mi vi-
-
-dis lin tia, neniam tiel ĉagrenita. Mi ne rekonis lin kaj ankaŭ ne lian voĉon.
+La okuloj de Jonatano mallumiĝis. Neniam ĝis nun mi vidis lin tia, neniam tiel ĉagrenita. Mi ne rekonis lin kaj ankaŭ ne lian voĉon.
 
 ”uste kiel mi opiniis,” li diris. ”Ni havas perfidulon en la ĉerizo-valo.”
 
 ”Jes, certe ni havas,” diris Sofia. ”Mi ne volis tion kredi. Sed nun mi komprenas, ke devas esti tiel.”
-
-
-LA FRATOJ LEONKORO
 
 
 Oni bone rimarkis, kiel malgaja ŝi estas, sed malgraŭ sia
@@ -1022,9 +820,6 @@ Estis unu el ŝiaj kolomboj, kiu estis fluganta al ni. Komence ŝi estis videbla
 ”Nun li certe devos ekscii ĉion, ĉu ne?”
 
 
-LA FRATOJ LEONKORO
-
-
 ”Kompreneble,” diris Sofia. ”Rapidu kaj venu ambaŭ!”
 
 Kun la kolombo sur la ŝultro Sofia kuris antaŭ ni en la
@@ -1049,9 +844,7 @@ Sofia legis kaj ekkriis.
 
 ”Perfidulo en la ĉerizo-valo,” li diris, ”ĉu vi povas imagi, kiu povas esti tiel fia?”
 
-”Tion mi ne scias,” diris Sofia. ”Ankoraŭ ne! Sed Dio hel-
-
-pu lin, kiu ajn li estu, kiam mi ekscios.”
+”Tion mi ne scias,” diris Sofia. ”Ankoraŭ ne! Sed Dio helpu lin, kiu ajn li estu, kiam mi ekscios.”
 
 Mi sidis tie kaj aŭskultis, sed nenion komprenis.
 
@@ -1061,18 +854,11 @@ Kaj ŝi malaperis en la kuirejon. Jonatano sidiĝis sur la planko kun la dorso k
 
 ”Do aŭskultu. Nun, ĉar Sofia permesis, mi rakontu.”
 
-Multon li jam rakontis pri Nangijala, jam antaŭ ol mi alve-40
-
-LA FRATOJ LEONKORO
-
-
-nis tien ĉi kaj poste, sed nenio estis komparebla kun tio, kion li diris al mi tie en la ĉambreto de Sofia.
+Multon li jam rakontis pri Nangijala, jam antaŭ ol mi alvenis tien ĉi kaj poste, sed nenio estis komparebla kun tio, kion li diris al mi tie en la ĉambreto de Sofia.
 
 ”Vi memoras, ke mi diris,” li komencis, ”ke la vivo tie ĉi en la ĉerizo-valo estas facila kaj simpla. Tiel fakte estis, kaj tiel povus esti, sed nun jam ne plu. ĉar kiam la vivo fariĝos peza kaj turmenta en la alia valo, vi certe komprenas, ke la vivo fariĝos malfacila ankaŭ en la ĉerizo-valo.”
 
-”ĉu ekzistas pIi ol unu valo?” mi demandis. Kaj tiam Jo-
-
-natano rakontis al mi pri la du verdaj valoj de Nangijala, tiel belaj, kiuj situas inter la montoj de Nangijala, la ĉerizo-valo kaj la Dornrozo-valo — profundaj valoj ĉirkaŭataj de montoj, altaj, sovaĝaj montoj, kiujn malfacile oni povas transiri, se oni ne konas la mallarĝajn serpentumajn danĝerajn vojetojn. Sed la homoj en la valoj konas tiujn vojetojn kaj povas libere migri unuj al la aliaj.
+”ĉu ekzistas pIi ol unu valo?” mi demandis. Kaj tiam Jonatano rakontis al mi pri la du verdaj valoj de Nangijala, tiel belaj, kiuj situas inter la montoj de Nangijala, la ĉerizo-valo kaj la Dornrozo-valo — profundaj valoj ĉirkaŭataj de montoj, altaj, sovaĝaj montoj, kiujn malfacile oni povas transiri, se oni ne konas la mallarĝajn serpentumajn danĝerajn vojetojn. Sed la homoj en la valoj konas tiujn vojetojn kaj povas libere migri unuj al la aliaj.
 
 ”Aŭ pIi klare dirite, ili povis,” diris Jonatano. ”Nun neniu povas eliri el la Dornrozo-valo, kaj neniu povas eniri. Neniu alia ol Ia kolomboj de Sofia.”
 
@@ -1084,16 +870,11 @@ Li rigardis min per tristaj okuloj, ĉar li estis devigita mal-gajigi min.
 
 ”Kaj neniu scias, kio okazos en la ĉerizo-valo,” li aldonis.
 
-Nun mi ektimis. Tie ĉi mi ĉirkaŭvagadis ĝis nun tute sen-
-
-zorge, kaj nenio maltrankviligis min en Nangijala, sed nun mi vere timis.
+Nun mi ektimis. Tie ĉi mi ĉirkaŭvagadis ĝis nun tute senzorge, kaj nenio maltrankviligis min en Nangijala, sed nun mi vere timis.
 
 ”Kia malamiko?” mi demandis.
 
 ”Tengo li nomiĝas,” diris Jonatano, kaj li prononcis la nomon tiel, ke sonis por mi terure kaj danĝere.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Kie estas Tengo?” mi demandis. Tiam Jonatano rakontis
@@ -1124,18 +905,13 @@ Anstataŭe li rakontis, kio estis tiel rimarkinda pri Sofia.
 
 Jonatano.
 
-”Ni batalas kontraŭ li, vi komprenu, por helpi al la Dorn-
-
-rozo-valo. Sed ni devas tion fari sekrete.”
+”Ni batalas kontraŭ li, vi komprenu, por helpi al la Dornrozo-valo. Sed ni devas tion fari sekrete.”
 
 ”Sed Sofia,” mi demandis, ”kial ĝuste ŝi?”
 
 ”ĉar ŝi estas forta kaj kapablas tion fari,” Jonatano respondis. ”Kaj ĉar ŝi tute ne timas.”
 
 ”Timema ankaŭ vi ne estas, Jonatano,” mi diris.
-
-
-LA FRATOJ LEONKORO
 
 
 Post ioma pensado li diris:
@@ -1169,18 +945,13 @@ Mi demandis al Jonatano, kial ni havu sekretajn mesaĝojn en nia kuireja ŝranko
 ”Sofia mem tion decidis,” li diris. ”ŝi ne volas, ke iu ajn tie ĉi en la ĉerizovalo sciu tion, kaj tial ankaŭ vi ĵuru, ke vi silentos pri tio ĝis la tago, kiam Sofia mem rakontos.”
 
 
-LA FRATOJ LEONKORO
-
-
 Kaj mi ĵuris, ke mi pIi volonte mortus ol malkovrus ion de tio, kion mi aŭdis.
 
 Ni matenmanĝis ĉe Sofia, kaj poste ni rajdis hejmen.
 
 Ankaŭ iu alia estis survoje tiun ĉi matenon. Iu, kiun ni tuj renkontis sur la vojeto, kiam ni forlasis la Tulipo-bienon. Estis li kun la ruĝa barbo, kiel do li nomiĝis — Huberto?
 
-”ĉu vi estis ĉe Sofia?” demandis Huberto. ”Kion vi tie fa-
-
-ris?”
+”ĉu vi estis ĉe Sofia?” demandis Huberto. ”Kion vi tie faris?”
 
 ”Sarkis ŝian ĝardenon,” diris Jonatano kaj montris siajn
 
@@ -1204,15 +975,11 @@ La mesaĝon de Paloma Jonatano kunportis en fela saketo
 
 sub la ĉemizo, kaj kiam ni hejmenvenis, li metis la paperon en la sekretan tirkeston de la ŝranko. Sed unue mi rajtis legi, kio estis skribita kaj tekstis jene:
 
-”Hieraŭ oni kaptis Orvaron, kaj nun li estas en mallibere-
-
-jo en la Katla-kaverno. Certe iu el la ĉerizo-valo rivelis lian kaŝlokon. Vi havas perfidulon tie, serĉu lin!”
+”Hieraŭ oni kaptis Orvaron, kaj nun li estas en malliberejo en la Katla-kaverno. Certe iu el la ĉerizo-valo rivelis lian kaŝlokon. Vi havas perfidulon tie, serĉu lin!”
 
 ”Serĉu, sed kiun?” diris Jonatano, ”se mi nur povus!”
 
-Ankoraŭ pIi estis skribita en la mesaĝo, sed en iu sekreta 44
-
-LA FRATOJ LEONKORO
+Ankoraŭ pIi estis skribita en la mesaĝo, sed en iu sekreta
 
 
 lingvo, kiun mi ne komprenis, kaj Jonatano diris, ke mi ne, nur Sofia, bezonas tion kompreni.
@@ -1228,9 +995,6 @@ Kaj tiam- kredu tion aŭ ne — tiam mi vidis iun staranta en la malhela angulo 
 Sed tion Jonatano ne kredis, kiam mi vekis lin kaj ĉion rakontis.
 
 ”Ne, Biskoto, tio ne estis sonĝo,” li diris. ”Vi ne sonĝis. Tiu estis la perfidulo! ”
-
-
-LA FRATOJ LEONKORO
 
 
 Ankaŭ la horo de Tengo certe iam venos,” diris Jonatano.
@@ -1262,9 +1026,6 @@ Sed poste Jonatano diris ion, kio estis eĉ pIi terura ol ĉio alia.
 tempo, ĉar mi devos iri al la Dornrozo-valo.”
 
 
-LA FRATOJ LEONKORO
-
-
 Kiel li kapablis diri ion tiel teruran? Kiel li povis kredi, ke mi restus en la Rajdisto-bieno eĉ unu minuton sen li? Eĉ se li pensus ĵeti sin rekte en la faŭkon de Tengo, mi restos kun li.
 
 Tion mi diris al li.
@@ -1277,34 +1038,24 @@ Tio, kion li diris ne silentigis min. Mi estis malgaja kaj kolera, la furiozo e�
 
 ”Kaj vi, kiel vi povas postuli, ke mi restu sola en la Rajdisto-bieno kaj atendu vin, kaj eble vi neniam revenos?”
 
-Subite mi memoris kiel estis dum tiu tempo, kiam Jona-
-
-tano estis mortinta kaj for de mi, kaj kiam mi kuŝis sur la kuireja sofo kaj ne certe sciis, ĉu mi revidos lin. Pensi pri tio estis kvazaŭ rigardi malsupren en nigran truon.
+Subite mi memoris kiel estis dum tiu tempo, kiam Jonatano estis mortinta kaj for de mi, kaj kiam mi kuŝis sur la kuireja sofo kaj ne certe sciis, ĉu mi revidos lin. Pensi pri tio estis kvazaŭ rigardi malsupren en nigran truon.
 
 Kaj nun li denove volis forlasi min, simple malaperi inter danĝeroj, pri kiuj mi nenion sciis. Kaj se li ne revenus, ne estus savo tiun ĉi fojon. Tiam mi restus sola por ĉiam.
 
-Mi sentis kiel mi pIi kaj pIi koleris, kaj mi kriis eĉ pIi laŭ-
-
-te kaj ĵetis al li tiom da malicaĵoj, kiom mi kapablis elpensi.
+Mi sentis kiel mi pIi kaj pIi koleris, kaj mi kriis eĉ pIi laŭte kaj ĵetis al li tiom da malicaĵoj, kiom mi kapablis elpensi.
 
 Estis malfacile por li trankviligi min, almenaŭ iom trankviligi, sed kompreneble ĉio estis laŭ lia volo finfine. Mi ja sciis, ke li ĉion komprenas pli bone ol mi.
 
 ”Mia kara stultulo, tutcerte mi revenos,” li diris. Tio okazis vespere, kiam ni sidis ĉe la fajro en nia kuirejo kaj varmigis nin. Tiun vesperon antaŭ ol li foriris.
 
-Mi jam ne plu koleris, nur malĝojis, kaj tion Jonatano ri-
-
-markis. Li estis al mi tre amoplena. Li donis al mi novbakitan 47
-
-LA FRATOJ LEONKORO
+Mi jam ne plu koleris, nur malĝojis, kaj tion Jonatano rimarkis. Li estis al mi tre amoplena. Li donis al mi novbakitan
 
 
 panon kun butero kaj mielo kaj rakontis fabelojn kaj anekdo-tojn, sed mi ne havis forton aŭskulti. Mi meditis pri la rakonto pri Tengo. Mi kredis, ke ĝi eble estas la plej kruela el ĉiuj fabeloj. Mi demandis Jonatanon, kial li devas entrepreni ion, kio estas tiel danĝera. Li same bone povus sidi hejme ĉe la fajro en la Rajdisto-bieno kaj ĝui la trankvilon. Sed tiam Jonatano diris, ke ekzistas taskoj plenumendaj, eĉ kiam ili estas danĝeraj.
 
 ”Kial,” mi scivolis.
 
-”Alie oni ne meritus la nomon homo, oni estus nur mize-
-
-ra fiulo,” diris Jonatano.
+”Alie oni ne meritus la nomon homo, oni estus nur mizera fiulo,” diris Jonatano.
 
 Li rakontis al mi, kion li planis. Li intencis provi savi Orvaron el la Katla-kaverno. Orvaro estas eĉ pli grava ol Sofia, diris Jonatano, ĉar sen Orvaro certe la verdaj valoj de Nangijala ne plu ekzistos.
 
@@ -1313,9 +1064,6 @@ Estis nun malfrue. La fajro estingiĝis sur la fajrejo, noktiĝis.
 Tagiĝis. Mi staris ĉe la barilo kaj rigardis, kiel Jonatano forrajdas kaj malaperas en la nebulo. Jes, estis nebule en la tuta ĉerizo-valo tiun ĉi matenon. Kaj kredu min, estis kvazaŭ la koro krevis, dum mi staris tie kaj rigardis, kiel la nebulo lin prenis, kiel li malklariĝis kaj malaperis. Kaj mi staris sola. Tio estis neeltenebla. Mi preskaŭ freneziĝis pro malgajo, kaj mi kuris al la stalo, ellasis Fjalaron kaj ĵetis min sur la selon kaj postrajdis Jonatanon. Mi devis lin vidi ankoraŭfoje, antaŭ ol mi perdos lin, eble por ĉiam.
 
 Unue li rajdos al Tulipo-bieno por ricevi ordonojn de Sofia, tion mi sciis, kaj tien mi rajdis. Kiel frenezulo mi rajdis, kaj mi atingis lin ekzakte antaŭ la bieno. Nun mi preskaŭ hontis kaj volis min kaŝi, sed li jam vidis kaj aŭdis min.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Kion vi volas?” li demandis.
@@ -1340,9 +1088,7 @@ mi estis sola en la Rajdisto-bieno, kaj kiel mi sukcesis pasigi la tagojn. Kompr
 
 ”Sofia en la ĉerizo-valo kaj Orvaro en la Dornrozo-valo ja estas liaj plej fortaj malamikoj, kaj vi povas esti certa, ke li bone konscias tion ,” estis dirinta Jonatano, kiam li klarigis al mi la aferon.
 
-”Orvaron li jam enkarcerigis en la Katla-kavernon, kaj plej 49
-
-LA FRATOJ LEONKORO
+”Orvaron li jam enkarcerigis en la Katla-kavernon, kaj plej
 
 
 volonte li enĵetus ankaŭ Sofian por malsat-mortigi ŝin. Li, la fiulo, promesis dek-kvin blankajn ĉevalojn kiel rekompenson al tiu, kiu liveros Sofian vivantan aŭ mortintan al li.”
@@ -1353,9 +1099,7 @@ estas nur ĝardenservisto. Tiu, kiu estis ĉe ni dum la nokto.
 
 Tiu, kiun mi vidis apud la ŝranko. Kontraŭ li Sofia ne povis esti sufiĉe singarda.
 
-”Tiu viro scias tro multe,” ŝi diris. Kaj ŝi deziris, ke mi tuj sendu al ŝi mesaĝon, se iu ankoraŭfoje venus kaj spionus ĉir-kaŭ la Rajdisto-bieno. Mi atentigis, ke tute ne utilis traserĉi la ŝrankon, ĉar ni translokigis la sekretajn paperojn al nova ka-
-
-ŝejo. Nun ili estas en avenujo en la selejo. Ni metis ilin en grandan flartabakujon, kiu estas kaŝita sub la aveno.
+”Tiu viro scias tro multe,” ŝi diris. Kaj ŝi deziris, ke mi tuj sendu al ŝi mesaĝon, se iu ankoraŭfoje venus kaj spionus ĉir-kaŭ la Rajdisto-bieno. Mi atentigis, ke tute ne utilis traserĉi la ŝrankon, ĉar ni translokigis la sekretajn paperojn al nova kaŝejo. Nun ili estas en avenujo en la selejo. Ni metis ilin en grandan flartabakujon, kiu estas kaŝita sub la aveno.
 
 Sofia iris kun mi en la selejon kaj elfosis la ujon kaj enmetis novan mesaĝon.
 
@@ -1363,18 +1107,13 @@ i estas bona kaŝejo, ŝi opiniis, kaj tion ankaŭ mi pensis.
 
 ”Eltenu, se vi kapablas,” diris Sofia, kiam ŝi foriris. ”Mi scias, ke estas malfacile, sed vi devas elteni! ”
 
-Kaj vere estis malfacile, precipe dum la vesperoj kaj nok-
-
-toj. Mi sonĝis terurigajn sonĝojn pri Jonatano, kaj timis pri li ĉiumomente, eĉ kiam mi ne dormis.
+Kaj vere estis malfacile, precipe dum la vesperoj kaj noktoj. Mi sonĝis terurigajn sonĝojn pri Jonatano, kaj timis pri li ĉiumomente, eĉ kiam mi ne dormis.
 
 Iun vesperon mi rajdis al la Oro Koko. Mi ne eltenis sidi
 
 hejme en la Rajdisto-bieno. Estis tiel silente tie, ke miaj pensoj kvazaŭ aŭdeblis. Kaj ne estis gajaj pensoj.
 
 Vi povas esti certa, ke ĉiuj fikse rigardis min, kiam mi en-paŝis la gastejon sen Jonatano.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Kio okazis?” demandis Joso. ”Nur la duonon de la Fratoj
@@ -1385,9 +1124,7 @@ Nun mi troviĝis en tikla situacio. Mi memoris, pri kio Sofia kaj Jonatano atent
 
 ”Jes, kie estas Jonatano?” li demandis. ”ĉu eble Sofia mal-dungis sian ĝardenserviston?”
 
-”Jonatano ĉasas,” mi diris. ”Li estas en la montaro ĉasan-
-
-te lupojn”.
+”Jonatano ĉasas,” mi diris. ”Li estas en la montaro ĉasante lupojn”.
 
 Ion mi ja devis diri, kaj mi mem opiniis, ke mi trovis bonan respondon, ĉar Jonatano iam rakontis, ke lupoj abundas kel-kloke inter la montoj.
 
@@ -1403,18 +1140,14 @@ Ho, kiel mi ŝatis lin pro tiuj vortoj. Poste li frapetis mian vangon kaj donis 
 
 Jonatanon,” li diris. Li estis bonkora, la Ora Koko. Pro tio mi sentis min iom malpli soleca.
 
-Mi rajdis hejmen kun miaj keksoj kaj sidis antaŭ la fajro kaj 51
-
-LA FRATOJ LEONKORO
+Mi rajdis hejmen kun miaj keksoj kaj sidis antaŭ la fajro kaj
 
 
 manĝis ilin. Nun la tagoj estis varmaj, preskaŭ someraj. Tamen mi devis hejti nian grandan kamenon, ĉar la varmo de
 
 la suno ankoraŭ ne trapenetris la dikajn murojn de nia domo.
 
-Estis al mi malvarme, kiam mi enlitiĝis sur mian dormo-
-
-benkon, sed mi baldaŭ endormiĝis. Kaj mi sonĝis pri Jona-
+Estis al mi malvarme, kiam mi enlitiĝis sur mian dormobenkon, sed mi baldaŭ endormiĝis. Kaj mi sonĝis pri Jona-
 
 tano. La sonĝo estis tiel teruriga, ke ĝi vekis min.
 
@@ -1428,12 +1161,7 @@ Dum horoj mi sidis ĉe miaj kunikloj kaj cerbumadis kion
 
 mi faru. Mi povis paroli kun neniu, de neniu mi povis peti konsilon. Mi mem devis decidi. Al Sofia mi ne povis iri, ŝi malhelpus min. Tutcerte ŝi ne konsentus, ke mi iru. Tiel malsaĝa ŝi ne estis. ĉar ĉu ne estis frenezaĵo tio, kion mi volis fari? Kaj ankaŭ danĝera? La plej danĝera el ĉio, kion oni povus fari. Kaj mi tute ne estis sufiĉe kuraĝa.
 
-Mi ne scias, kiom longe mi sidis kliniĝante kontraŭ la staI-muro. Mi elŝiris ĉiujn herbo-tigojn ĉirkaŭ mi, sed tion mi rimarkis nur poste, ne dum mi sidadis suferante. La horoj pa-52
-
-LA FRATOJ LEONKORO
-
-
-sis, eble mi ankoraŭ estus sidanta tie, se mi ne estus memor-inta la vortojn de Jonatano — kelkfoje oni devas fari tion, kio estas danĝera, alie oni ne estas homo, sed nur mizera fiulo.
+Mi ne scias, kiom longe mi sidis kliniĝante kontraŭ la staI-muro. Mi elŝiris ĉiujn herbo-tigojn ĉirkaŭ mi, sed tion mi rimarkis nur poste, ne dum mi sidadis suferante. La horoj pasis, eble mi ankoraŭ estus sidanta tie, se mi ne estus memor-inta la vortojn de Jonatano — kelkfoje oni devas fari tion, kio estas danĝera, alie oni ne estas homo, sed nur mizera fiulo.
 
 Tiam mi decidis. Mi frapegis per la pugno kontraŭ la kaĝo
 
@@ -1451,15 +1179,11 @@ La kunikloj — nu — ili devos esti sovaĝaj ekde nun. Mi prenis ilin el la ka
 
 Ili ĉiuj tri ŝajnis iomete surprizitaj kaj iom ĉirkaŭsaltadis, kvazaŭ ili volis demandi, ĉu tio estas vera? Sed poste ili ekku-regis kaj subite malaperis fulmrapide inter la verdaj montetoj.
 
-Kaj mi urĝe preparis min. Mi kunmetis ĉion, kion mi inten-
-
-cis kunporti. Lanokovrilon por min ĉirkaŭvolvi, kiam mi dormos. Silik-ŝtonon por fari fajron. Sakon da aveno por Fjala-ro. Kaj provizon de manĝaĵo por mi mem. Mi havis nenion
+Kaj mi urĝe preparis min. Mi kunmetis ĉion, kion mi intencis kunporti. Lanokovrilon por min ĉirkaŭvolvi, kiam mi dormos. Silik-ŝtonon por fari fajron. Sakon da aveno por Fjala-ro. Kaj provizon de manĝaĵo por mi mem. Mi havis nenion
 
 por manĝi krom pano, sed estis la plej bongusta pano — la
 
-rondformaj panoj de Sofia. Je sia vizito ŝi donis al mi amason da ili, kaj mi plenigis mian dorsosakon. Tio sufiĉos longe, mi 53
-
-LA FRATOJ LEONKORO
+rondformaj panoj de Sofia. Je sia vizito ŝi donis al mi amason da ili, kaj mi plenigis mian dorsosakon. Tio sufiĉos longe, mi
 
 
 pensis, kaj kiam tio finiĝos, mi certe devos manĝi herbon, same kiel la kunikloj.
@@ -1472,9 +1196,7 @@ sian supon! Sed almenaŭ mi volis informi ŝin, kien mi iris.
 
 Tion ŝi devos scii, sed nur tiam, kiam estos tro malfrue — tro malfrue por malhelpi min.
 
-Mi prenis pecon da karbo el la forno kaj skribis per gran-
-
-daj nigraj literoj sur la kuirejan muron:
+Mi prenis pecon da karbo el la forno kaj skribis per grandaj nigraj literoj sur la kuirejan muron:
 
 ”Iu vokis min en mia sonĝo, kaj mi serĉos lin fore en la
 
@@ -1482,9 +1204,7 @@ malproksimo malantaŭ la montoj.”
 
 Laŭ tia stranga maniero mi skribis, ĉar mi pensis, se iu alia ol Sofia venos al la Rajdisto-bieno, iu, kiu venos por spioni, tiu ne komprenos la signifon de la skribaĵo. Li eble pensos, ke mi provis verki poemon aŭ ion similan. Sed Sofia tuj kaptos la signifon: ”Mi forestas kaj serĉas Jonatanon!”
 
-Mi ĝojis kaj sentis min nekutime kuraĝa kaj forta. Mi kan-
-
-tis al mi mem:
+Mi ĝojis kaj sentis min nekutime kuraĝa kaj forta. Mi kantis al mi mem:
 
 ”Iu vokis min en mia sonĝo, kaj mi serĉas lin fore en la
 
@@ -1494,14 +1214,9 @@ sonis! ĉion ĉi mi ja rakontos al Jonatano, kiam mi renkontos lin. Tiel mi pens
 
 Se mi renkontos lin, mi poste pensis. Sed se ne …
 
-Abrupte mi perdis mian kuraĝon. Mi fariĝis eta mizera fi-
+Abrupte mi perdis mian kuraĝon. Mi fariĝis eta mizera fiulo denove. Timema mizerulo tia, kia mi ĉiam estis. Kaj laŭ-
 
-ulo denove. Timema mizerulo tia, kia mi ĉiam estis. Kaj laŭ-
-
-kutime mi tiam sopiris al Fjalaro. Tuj mi devis iri al li. Li estis la sola, kiu iom helpis min, kiam mi estis malgaja kaj timema. Kiel ofte mi staris apud li en la stalfako, kiam mi ne plu havis la forton resti sola! Kiel ofte jam estis konsolo, rigardi en liajn saĝajn okulojn kaj senti lian varmecon kaj la molecon 54
-
-
-LA FRATOJ LEONKORO
+kutime mi tiam sopiris al Fjalaro. Tuj mi devis iri al li. Li estis la sola, kiu iom helpis min, kiam mi estis malgaja kaj timema. Kiel ofte mi staris apud li en la stalfako, kiam mi ne plu havis la forton resti sola! Kiel ofte jam estis konsolo, rigardi en liajn saĝajn okulojn kaj senti lian varmecon kaj la molecon
 
 
 de lia nazo. Sen Fjalaro mi ne povus travivi la foreston de Jonatano.
@@ -1520,12 +1235,7 @@ Sed kion li vere sciis? ĉu li ĉion sciis? ĉu li ankaŭ sciis, kion ni kaŝis 
 
 ”Kion vi faras ĉe Fjalaro?”
 
-”Nenion,” diris Huberto. ”Mi estis survoje al vi, sed mi aŭ-
-
-dis vian ĉevalon heni, kaj mi ŝatas ĉevalojn. Li estas bela, via Fjalaro!”
-
-
-LA FRATOJ LEONKORO
+”Nenion,” diris Huberto. ”Mi estis survoje al vi, sed mi aŭdis vian ĉevalon heni, kaj mi ŝatas ĉevalojn. Li estas bela, via Fjalaro!”
 
 
 Min vi ne povas trompi, mi pensis, kaj mi demandis:
@@ -1562,13 +1272,7 @@ bongustan.”
 
 Mi ne povis malhelpi lin. Li eniris la selejon, kaj mi postkuris. Mi volis krii: ”ĉesu!” sed mi ne kapablis eligi eĉ unu vorton.
 
-Huberto levis la kovrilon de la avenujo kaj prenis la ĉerpi-56
-
-
-LA FRATOJ LEONKORO
-
-
-lon, kiu kuŝis plej supre. Mi fermis la okulojn. ĉar mi ne volis vidi lin trovi la flartabakujon. Sed subite mi aŭdis, ke li ekblasfemis, kaj tiam mi malfermis la okulojn kaj vidis rateton salti de la rando de la kesto. Huberto provis piedbati ĝin, sed ĝi forkuris sur la stalplanko kaj malaperis en sekretan truon.
+Huberto levis la kovrilon de la avenujo kaj prenis la ĉerpilon, kiu kuŝis plej supre. Mi fermis la okulojn. ĉar mi ne volis vidi lin trovi la flartabakujon. Sed subite mi aŭdis, ke li ekblasfemis, kaj tiam mi malfermis la okulojn kaj vidis rateton salti de la rando de la kesto. Huberto provis piedbati ĝin, sed ĝi forkuris sur la stalplanko kaj malaperis en sekretan truon.
 
 ”i mordis mian dikfingron, la bestaĉo,” diris Huberto. Li staris kaj rigardis sian dikfingron. Kaj mi kaptis la okazon.
 
@@ -1576,18 +1280,11 @@ Rapidege mi plenigis la ĉerpilon per aveno kaj poste mi bat-fermis la kesto-kov
 
 ”Nun certe Fjalaro ĝojos,” mi diris. ”Kutime li ne ricevas avenon je tiu ĉi horo.”
 
-Sed vi certe ne ĝojas, mi pensis, dum Huberto rapide adi-
-
-aŭis kaj pezpiede eliris tra la stalpordo.
+Sed vi certe ne ĝojas, mi pensis, dum Huberto rapide adiaŭis kaj pezpiede eliris tra la stalpordo.
 
 ĉi-foje li ne metis la manojn sur la sekretajn mesaĝojn. Sed necesis trovi novan kaŝejon. Mi longe cerbumis, kaj fine mi enfosis la skatoleton en la terpomo-kelon ĉe la pordo maldekstre.
 
-Kaj poste mi skribis novan enigmon al Sofia sur la kuire-
-
-jan muron:
-
-
-LA FRATOJ LEONKORO
+Kaj poste mi skribis novan enigmon al Sofia sur la kuirejan muron:
 
 
 ”Ruĝa barbo ŝatas havi blankajn ĉevalojn kaj scias tro mul-te. Atentu!”
@@ -1597,16 +1294,11 @@ PIi multe mi ne povis fari por Sofia.
 Je la sunleviĝo venontmatene, antaŭ ol iu en la ĉerizo-valo vekiĝis, mi forlasis la Rajdisto-bienon kaj rajdis supren al la montoj.
 
 
-LA FRATOJ LEONKORO
-
-
 Mi rakontis al Fjalaro, kiel mi sentis min dum mia longa
 
 rajdado inter la montoj.
 
-”ĉu vi povas kompreni, kia aventuro tio estas por mi? Kon-
-
-sideru, ke hejme mi preskaŭ ĉiam nur kuŝis sur kuireja sofo!
+”ĉu vi povas kompreni, kia aventuro tio estas por mi? Konsideru, ke hejme mi preskaŭ ĉiam nur kuŝis sur kuireja sofo!
 
 Kaj tute ne kredu, ke mi forgesas Jonatanon eĉ unu minuton.
 
@@ -1618,11 +1310,7 @@ Kiaj montoj! Nekredeble, ke ekzistas tiel altaj montoj kaj ke ekzistas tiom mult
 
 Kaj ĉio tio kaŭzis al mi kapturniĝon.
 
-Sed iom post iom ĉio ŝanĝiĝis. Mi trovis rajdvojeton. Cer-
-
-te estis ĝi, pri kiu Jonatano parolis. Per turniĝoj kaj kurbiĝoj tra la montoj oni atingos per ĝi la Dornrozo-valon, li diris. Kaj sufiĉe da sinuoj kaj kurbiĝoj estis, tutcerte. Baldaŭ mi turnis min for de la florherbejoj, la montoj fariĝis pIi sovaĝaj kaj minacaj kaj la vojeto pli danĝera. Kelkfoje ĝi abrupte supren-grimpis, kelkfoje ĝi krute malsuprenfalis, kelkfoje ĝi serpentumis sur mallarĝaj rokaj elstaraĵoj apud gigantaj abismoj, tiel ke mi pensis, ke tio neniam bone finiĝos! Sed Fjalaro evidente 59
-
-LA FRATOJ LEONKORO
+Sed iom post iom ĉio ŝanĝiĝis. Mi trovis rajdvojeton. Certe estis ĝi, pri kiu Jonatano parolis. Per turniĝoj kaj kurbiĝoj tra la montoj oni atingos per ĝi la Dornrozo-valon, li diris. Kaj sufiĉe da sinuoj kaj kurbiĝoj estis, tutcerte. Baldaŭ mi turnis min for de la florherbejoj, la montoj fariĝis pIi sovaĝaj kaj minacaj kaj la vojeto pli danĝera. Kelkfoje ĝi abrupte supren-grimpis, kelkfoje ĝi krute malsuprenfalis, kelkfoje ĝi serpentumis sur mallarĝaj rokaj elstaraĵoj apud gigantaj abismoj, tiel ke mi pensis, ke tio neniam bone finiĝos! Sed Fjalaro evidente
 
 
 konis tiajn danĝerajn montajn vojetojn, jes li estis admirinda, mia Fjalaro!
@@ -1637,23 +1325,17 @@ sopiris sidi apud subĉiela fajro, ĉar Jonatano rakontis, kia belega travivaĵo
 
 Kaj mi kolektis sekajn branĉetojn amase kaj ekflamigis fajron, kiu brulis kaj ĉien disĵetis la fajrerojn, kaj mi sidis apud mia fajro kaj sentis, ke estas precize tiel belege, kiel diris Jonatano. uste tiel estis, kiam mi sidis kaj rigardis en la fajron kaj manĝis mian panon kaj mordetis en mian fumaĵitan ŝafviandon. i estis tre bongusta, kaj mi bedaŭris nur, ke mi ricevis ĝin de Huberto.
 
-Mi estis gaja, kaj mi iom kantis por mi mem en mia sole-
-
-co.
+Mi estis gaja, kaj mi iom kantis por mi mem en mia soleco.
 
 ”Mia pano kaj mia fajro kaj mia ĉevalo! Mia pano kaj mia
 
 fajro kaj mia ĉevalo!” Ion alian mi ne povis elpensi.
 
-Longe mi sidis tiamaniere, kaj mi meditis pri ĉiuj subĉie-
-
-laj fajroj, kiuj brulis en ĉiuj sovaĝejoj de la mondo ekde la pratempo kaj kiel ili estingiĝis antaŭ longe. Sed la mia brulis tie ĉi kaj nun!
+Longe mi sidis tiamaniere, kaj mi meditis pri ĉiuj subĉielaj fajroj, kiuj brulis en ĉiuj sovaĝejoj de la mondo ekde la pratempo kaj kiel ili estingiĝis antaŭ longe. Sed la mia brulis tie ĉi kaj nun!
 
 Malheliĝis ĉirkaŭ mi. La montoj forte nigriĝis, ho, kiel rapide malheliĝis! Mi ne ŝatis havi la dorson kontraŭ tiu malhelo. Mi havis la senton, ke iu povis ataki min de malantaŭe.
 
-Cetere estis tempo por dormi, do mi ĵetis multe da branĉetoj sur la fajron kaj diris bonan nokton al Fjalaro kaj envolvis min 60
-
-LA FRATOJ LEONKORO
+Cetere estis tempo por dormi, do mi ĵetis multe da branĉetoj sur la fajron kaj diris bonan nokton al Fjalaro kaj envolvis min
 
 
 en la kovrilon kiel eble plej proksime al la fajro. Kaj poste mi nur deziris, ke mi rapide endormiĝu kaj ne havu tempon ti-miĝi.
@@ -1666,22 +1348,15 @@ Subite la luno leviĝis malantaŭ montopinto. Mi supozas,
 
 ke ne estis la kutima luno, sed ĝi aspektis simile kaj ekbrilis tiel, kiel mi neniam travivis antaŭe. Sed mi ja neniam vidis lunbrilon super altaj montoj.
 
-ĉio fariĝis ensorĉita. Oni sentis sin en nereala mondo kon-sistanta el arĝento kaj nigraj ombroj. Estis bele, sed samtempe melankolie en stranga maniero. Kaj ankaŭ timige. Kom-
+ĉio fariĝis ensorĉita. Oni sentis sin en nereala mondo kon-sistanta el arĝento kaj nigraj ombroj. Estis bele, sed samtempe melankolie en stranga maniero. Kaj ankaŭ timige. Kompreneble estis hele, kie la luno brilis, sed inter la ombroj multaj danĝeroj povis sin kaŝi.
 
-preneble estis hele, kie la luno brilis, sed inter la ombroj multaj danĝeroj povis sin kaŝi.
-
-Mi kovris la okulojn per la kovrilo, ĉar nun mi ne plu vo-
-
-lis vidi. Sed tiam mi anstataŭe aŭdis, jes, mi aŭdis ion! Mal-proksimajn hurladojn inter la montoj. Kaj poste plurajn hurladojn pIi proksime. Fjalaro henis, li timis. Kaj tiam mi komprenis, pri kio temis. Estis hurloj de lupoj.
+Mi kovris la okulojn per la kovrilo, ĉar nun mi ne plu volis vidi. Sed tiam mi anstataŭe aŭdis, jes, mi aŭdis ion! Mal-proksimajn hurladojn inter la montoj. Kaj poste plurajn hurladojn pIi proksime. Fjalaro henis, li timis. Kaj tiam mi komprenis, pri kio temis. Estis hurloj de lupoj.
 
 Iu, kiu estis tiel timema kiel mi, preskaŭ povis morti pro timo en tiu momento, sed kiam mi rimarkis, ke Fjalaro timas, mi provis kuraĝigi min kaj diris: ”Fjalaro, lupoj timas fajron, ĉu vi ne scias tion?”
 
 Sed eĉ mi mem tute ne fidis al miaj vortoj kaj ŝajnis, ke
 
-ankaŭ la lupoj neniam aŭdis pri tio. Nun mi ilin vidis, nun ili 61
-
-
-LA FRATOJ LEONKORO
+ankaŭ la lupoj neniam aŭdis pri tio. Nun mi ilin vidis, nun ili
 
 
 alproksimiĝis, teruraj, grizaj estaĵoj alkurantaj en la lunbrilo, hurlantaj pro malsato.
@@ -1694,13 +1369,9 @@ Sed ne tro longe. Baldaŭ ili reaperis. Eĉ pIi proksimen. Ilia hurlado tute fre
 
 Tio ja fakte ne estis io nova por mi, ĉar mi mortis jam unu fojon. Sed tiam mi volis, tiam mi sopiris morti, kaj nun mi ne volis. Nun mi volis vivi kaj esti kun Jonatano. Ho, Jonatano, se vi nur povus helpi min!
 
-La lupoj nun estis tre proksimaj. Unu el ili estis pIi granda ol la aliaj kaj pIi malrespekta. Certe li estis la ĉeflupo. Estos li, kiu prenos min, tion mi sciis. Li ĉirkaŭiris min kaj hurlis, hurlegis tiel, ke la sango glaciiĝis en mi. Mi ĵetis brulantan bran-
+La lupoj nun estis tre proksimaj. Unu el ili estis pIi granda ol la aliaj kaj pIi malrespekta. Certe li estis la ĉeflupo. Estos li, kiu prenos min, tion mi sciis. Li ĉirkaŭiris min kaj hurlis, hurlegis tiel, ke la sango glaciiĝis en mi. Mi ĵetis brulantan branĉon kontraŭ li kaj laŭte kriis, sed tio nur pli forte kolerigis lin.
 
-ĉon kontraŭ li kaj laŭte kriis, sed tio nur pli forte kolerigis lin.
-
-Mi vidis lian faŭkon kaj liajn terurigajn dentojn, kiuj volis 62
-
-LA FRATOJ LEONKORO
+Mi vidis lian faŭkon kaj liajn terurigajn dentojn, kiuj volis
 
 
 kapti mian gorĝon. Nun, Jonatano, helpu! Nun li eksaltis al mi!
@@ -1723,16 +1394,11 @@ demandis.
 
 ”Pafas lupojn, ĉu vi ne tion vidas,” diris Huberto. ”Efekti-ve mi vidis vin tiam, kiam vi forrajdis matene, kaj mi pensis, ke mi gardos vin, por ke nenio danĝera okazu al vi. Tial mi sekvis vin.”
 
-Jes, vi bone kapablas mensogi, mi pensis. Iam vi devos re-
-
-sponsi al Sofia, kaj tiam vi pentos.
+Jes, vi bone kapablas mensogi, mi pensis. Iam vi devos responsi al Sofia, kaj tiam vi pentos.
 
 ”Kie estas Jonatano?” diris Huberto. ”Li, kiu eliris por ĉasi lupojn, devus esti tie ĉi por pafi kelkajn, ĉu ne?”
 
 Mi ĉirkaŭrigardis. ĉiuj lupoj malaperis. Certe ili timiĝis, kiam la ĉeflupo falis kaj mortis. Kaj eble ili ankaŭ funebris, ĉar mi aŭdis plendajn hurlojn fore, inter la montoj.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Nu, kie estas Jonatano?” obstine demandis Huberto, kaj
@@ -1745,9 +1411,7 @@ tie,” mi diris kaj montris al la montaro.
 
 Hubert ridaĉis. Mi bone rimarkis, ke li ne kredas min.
 
-”ĉu vi tamen ne akompanos min hejmen al la ĉerizo-va-
-
-lo?” li demandis.
+”ĉu vi tamen ne akompanos min hejmen al la ĉerizo-valo?” li demandis.
 
 ”Ne, mi devas atendi Jonatanon,” mi respondis. ”Li certe
 
@@ -1774,9 +1438,6 @@ Li kaptis mian hararon kaj forte skuis min.
 ”Stultulo,” li diris. ”Se mi volus vidi vin mortinta, mi povus lasi la lupon prizorgi tion.”
 
 Li tenis la tranĉilon sub mian nazon, estis akra tranĉilo, tion mi ja rimarkis.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Tion mi uzas, kiam mi senpeltigas lupojn,” li diris. ”Ne
@@ -1811,12 +1472,7 @@ kapablis sidi sur la selo. Ie mi devis ripozi dum la nokto.
 
 ”Prefere tie, kie ne ekzistas lupoj ,” mi diris al Fjalaro, kaj mi pensas, ke li samopiniis.
 
-Kiu iam estis la unua, kiu trovis kaj iris tiujn montarajn padojn inter la valoj de Nangijala? Kiu ekpensis la direkton de tiu pado kondukanta al la Dornrozo-valo? ĉu vere nece-65
-
-LA FRATOJ LEONKORO
-
-
-sis, ke ĝi serpentumu laŭlonge de tiaj mallarĝaj rokaj elstaraĵoj kaj teruraj abismoj? Mi sciis, ke, se Fjalaro fuŝtretus etan paŝon, ni ambaŭ falus en la profundon, kaj poste por eterne neniu scius, kio okazis al Karlo Leonkoro kaj lia ĉevalo.
+Kiu iam estis la unua, kiu trovis kaj iris tiujn montarajn padojn inter la valoj de Nangijala? Kiu ekpensis la direkton de tiu pado kondukanta al la Dornrozo-valo? ĉu vere necesis, ke ĝi serpentumu laŭlonge de tiaj mallarĝaj rokaj elstaraĵoj kaj teruraj abismoj? Mi sciis, ke, se Fjalaro fuŝtretus etan paŝon, ni ambaŭ falus en la profundon, kaj poste por eterne neniu scius, kio okazis al Karlo Leonkoro kaj lia ĉevalo.
 
 Iĝis pIi kaj pIi terura. Fine mi ne plu kuraĝis teni la okulojn malfermitaj. Se ni falus en abismon, mi almenaŭ ne volus tion vidi.
 
@@ -1824,25 +1480,17 @@ Sed Fjalaro ne erare paŝis. Kiam mi finfine kuraĝis malfer-mi la okulojn, ni a
 
 ”Jen la loko, Fjalaro,” mi diris. ”Tie ĉi ni estas ŝirmataj kontraŭ lupoj.”
 
-Estis vere. Neniu lupo povis malsupren grimpi de la mon-
+Estis vere. Neniu lupo povis malsupren grimpi de la montoj. Ili estis tro altaj.
 
-toj. Ili estis tro altaj.
+Kaj neniu lupo povis supren grimpi el la profundo. La klifoj estis tro krutaj. Se lupo venus, ĝi devus iri kiel ni laŭlonge de la abismoj sur tiu aĉa padeto. Sed tiaj ruzaj lupoj ne ekzistas, tion mi decidis kredi.
 
-Kaj neniu lupo povis supren grimpi el la profundo. La kli-
-
-foj estis tro krutaj. Se lupo venus, ĝi devus iri kiel ni laŭlonge de la abismoj sur tiu aĉa padeto. Sed tiaj ruzaj lupoj ne ekzistas, tion mi decidis kredi.
-
-Kaj poste mi ekvidis ion ege bonan. Troviĝis profunda fen-
-
-dego en la monto. Kaverno oni povus diri, ĉar grandaj rokoj kovris ĝin kiel tegmento. En tiu kaverno ni sekure povis dormi eĉ kun tegmento super la kapoj.
+Kaj poste mi ekvidis ion ege bonan. Troviĝis profunda fendego en la monto. Kaverno oni povus diri, ĉar grandaj rokoj kovris ĝin kiel tegmento. En tiu kaverno ni sekure povis dormi eĉ kun tegmento super la kapoj.
 
 Iu jam bivakis sur tiu ĉi herbejo antaŭ mi. Restis cindro de bivakfajro. Volonte mi ŝatis fari fajron por ni. Sed mi ne trovis forton. Nun mi deziris nur dormi. Mi prenis Fjalaron ĉe la brido kaj kondukis lin en la kavernon. Estis profunda kaverno. Mi diris al Fjalaro:
 
 ”Jen estus loko por dek-kvin ĉevaloj similaj al vi.”
 
-Li henis. Eble li sopiris al sia stalo. Mi pardonpetis lin, ke 66
-
-LA FRATOJ LEONKORO
+Li henis. Eble li sopiris al sia stalo. Mi pardonpetis lin, ke
 
 
 pro mi li devis elteni tiajn streĉojn, kaj mi donis al li avenon, karesis lin kaj denove deziris al li ’bonan nokton’. Kaj poste mi envolvis min en mian lankovrilon en la plej malhela angulo de la kaverno kaj endormiĝis profunde, antaŭ ol miaj
@@ -1868,9 +1516,6 @@ Mi deziregis esti mil mejlojn for. Sed nun mi estis ĉi tie, kaj tute proksimaj 
 Ili sidis ekstere en la lunbrilo kaj preparis bivakfajron, du personoj kun krudaj vizaĝoj kaj nigraj kaskoj sur la kapoj.
 
 Neniam antaŭe mi vidis iujn spionojn aŭ soldatojn de Tengo.
-
-
-LA FRATOJ LEONKORO
 
 
 Sed tuj mi estis certa pri ili. Mi sciis,
@@ -1905,19 +1550,9 @@ Tiam mi komprenis, pri kiu ili parolis kaj kiun ili atendis —
 
 estis Huberto.
 
-Iom trankviliĝu, mi pensis, atendu! Li venos, post senpel-
+Iom trankviliĝu, mi pensis, atendu! Li venos, post senpeltigo de sia lupo, kredu min! Li aperos tie sur la vojeto, li, de kiu vi atendas, ke li kaptu Sofian por vi.
 
-tigo de sia lupo, kredu min! Li aperos tie sur la vojeto, li, de kiu vi atendas, ke li kaptu Sofian por vi.
-
-Honto brulis en mi. Mi hontis, ĉar estis perfi-
-
-dulo inter ni en la ĉerizo-valo.
-
-
-LA FRATOJ LEONKORO
-
-
-LA FRATOJ LEONKORO
+Honto brulis en mi. Mi hontis, ĉar estis perfidulo inter ni en la ĉerizo-valo.
 
 
 Sed tamen mi volis vidi lin veni, ĉar tiam mi finfine havus pruvon. is nun mi suspektis, sed baldaŭ mi estos certa kaj povos diri al Sofia: ”Tiu Huberto, forigu lin! Alie baldaŭ venos fino por vi kaj por ni ĉiuj en la ĉerizo-valo!
@@ -1930,20 +1565,12 @@ La du viroj apud la bivakfajro rigardis samdirekten. Ankaŭ ili sciis, ke li ven
 
 Estis kvazaŭ ĉio atendis, la luno kaj la ĉirkaŭaj montoj, kaj la tuta terura lunbrila nokto retenis la spiron kaj atendis la perfidulon.
 
-Kaj fine li venis. Malproksime sur la pado, meze en la kla-ra lunbrilo, rajdanto alproksimiĝis sur sia ĉevalo, jes nun li estis precize tie, kie mi sciis, ke li aperos. Kaj mi timtremis, kiam mi vidis lin — Huberto, ĉu eblas, ke vi faros tion, mi pensis. Miaj okuloj doloris tiel, ke mi devis fermi ilin. Aŭ mi fermis la okulojn, por ke mi ne vidu. Tiom longe mi atendis tiun fiulon, kaj kiam li nun finfine venis, mi preskaŭ ne havis forton rigardi lian vizaĝon. Tial mi fermis la okulojn, kaj nur per la klakoj de la ĉevalhufoj mi komprenis, ke li alproksimi-
-
-ĝis.
-
-
-LA FRATOJ LEONKORO
+Kaj fine li venis. Malproksime sur la pado, meze en la kla-ra lunbrilo, rajdanto alproksimiĝis sur sia ĉevalo, jes nun li estis precize tie, kie mi sciis, ke li aperos. Kaj mi timtremis, kiam mi vidis lin — Huberto, ĉu eblas, ke vi faros tion, mi pensis. Miaj okuloj doloris tiel, ke mi devis fermi ilin. Aŭ mi fermis la okulojn, por ke mi ne vidu. Tiom longe mi atendis tiun fiulon, kaj kiam li nun finfine venis, mi preskaŭ ne havis forton rigardi lian vizaĝon. Tial mi fermis la okulojn, kaj nur per la klakoj de la ĉevalhufoj mi komprenis, ke li alproksimiĝis.
 
 
 Finfine li atingis la maldensejon kaj bridis la ĉevalon. Kaj tiam mi malfermis la okulojn. ĉar mi devis vidi kiel aspektas perfidulo, kiam li perfidas siajn kamaradojn. Jes, mi volis vidi Huberton, kiam li venis por perfidi la ĉerizovalon kaj ĉiujn, kiuj vivas tie.
 
 Sed ne estis Huberto. Estis Joso! La Ora Koko.
-
-
-LA FRATOJ LEONKORO
 
 
 Joso! Neniu alia!
@@ -1956,9 +1583,7 @@ Kaj nun li sidis tie, ĉe la fajro ne malproksime de mi kune kun tiuj viroj de T
 
 kaj devis klarigi, kial li ne venis pIi frue.
 
-”Huberto ĉasas lupojn en la montaro ĉi-nokte, kaj mi de-
-
-vis kaŝi min, tion vi certe komprenas?”
+”Huberto ĉasas lupojn en la montaro ĉi-nokte, kaj mi devis kaŝi min, tion vi certe komprenas?”
 
 Vedero kaj Kadero tamen malkontentis, kaj Joso daŭrigis
 
@@ -1966,18 +1591,13 @@ la rakonton.
 
 ”Huberto, vi ne forgesis lin, ĉu? Lin vi devus enŝlosi en la Katla-kavernon same kiel Sofian, ĉar ankaŭ li malamas Tengon.”
 
-”Do mi opinias, ke vi entreprenu ion en tiu afero,” Vede-
-
-ro diris.
+”Do mi opinias, ke vi entreprenu ion en tiu afero,” Vedero diris.
 
 ”ĉar vi ja estas nia kunlaboranto en la ĉerizo-valo, aŭ eble ne?” demandis Kadero.
 
 ”Jes, sendube, sendube,” certigis Joso.
 
 Li serveme humiliĝis kaj kaĵolis ilin, sed Vedero kaj Kade-ro ne ŝatis lin, tio estis evidenta. Supozeble neniuj ŝatas perfidulon, eĉ se oni bezonas lin.
-
-
-LA FRATOJ LEONKORO
 
 
 La orelojn li rajtis reteni, tiujn ili ne fortranĉis de li. Sed ili faris ion alian. Ili bruligis la Katla-signon sur lin.
@@ -2013,12 +1633,7 @@ libere vagas en la Dornrozo-valo? ”
 Vedero kaj Kadero ne ŝatis tiun demandon, tion mi vidis.
 
 
-LA FRATOJ LEONKORO
-
-
-”Ni sekvas liajn spurojn,” diris Vedero. ”Cent tenganoj ser-
-
-ĉas lin tage kaj nokte.”
+”Ni sekvas liajn spurojn,” diris Vedero. ”Cent tenganoj serĉas lin tage kaj nokte.”
 
 ”Kaj ni trovos lin, eĉ se ni devus traserĉi ĉiujn domojn en la Dornrozo-valo,” diris Kadero. ”Tengo atendas lin.”
 
@@ -2030,19 +1645,13 @@ Mi fieris, dum mi kuŝis tie, ke Jonatano estas tia leono. Kaj kia konsolo scii,
 
 Sed tamen li vivas, imagu, ke li vivas! Kaj li estas libera. Kial li krie petis helpon en la sonĝo? Dum mi kuŝis tie, mi demandis min, ĉu mi iam ekscios pri tio.
 
-Sed ankaŭ multon alian mi eksciis kuŝante kaj aŭskultan-
-
-te Joson.
+Sed ankaŭ multon alian mi eksciis kuŝante kaj aŭskultante Joson.
 
 ”Tiu Huberto envias Sofian, ĉar ni elektis ŝin gvidantino en la ĉerizo-valo,” diris Joso. ”Jes, ĉar Huberto opinias, ke li estas la plej lerta pri ĉio en la mondo”.
 
-ĉu tio estis la kialo? Mi memoras, kiel koler-humora Hu-
+ĉu tio estis la kialo? Mi memoras, kiel koler-humora Huberto estis, kiam li demandis: ”Kio rimarkinda estas pri Sofia?” Tio okazis, ĉar li estis ĵaluza, ne pro io alia. Oni povas envii, kaj tamen resti bona homo. Sed dekomence mi imagis
 
-berto estis, kiam li demandis: ”Kio rimarkinda estas pri Sofia?” Tio okazis, ĉar li estis ĵaluza, ne pro io alia. Oni povas envii, kaj tamen resti bona homo. Sed dekomence mi imagis
-
-al mi, ke Huberto estas la perfidulo de la ĉerizo-valo kaj ĉio, kion li poste diris kaj faris, mi trovis suspektinda. Jen pruvo, kiel facile estas erari pri homoj! Bedaŭrinda Huberto, li gardis min kaj savis mian vivon kaj donis al mi ŝafviandon kaj 74
-
-LA FRATOJ LEONKORO
+al mi, ke Huberto estas la perfidulo de la ĉerizo-valo kaj ĉio, kion li poste diris kaj faris, mi trovis suspektinda. Jen pruvo, kiel facile estas erari pri homoj! Bedaŭrinda Huberto, li gardis min kaj savis mian vivon kaj donis al mi ŝafviandon kaj
 
 
 por danki lin, mi nur kriis al li: ”Ne mortigu min!” Ne mirige, ke li koleris! Pardonu al mi, Huberto, mi pensis, pardonu al mi, tion mi vere diros al li, se mi revidos lin iam.
@@ -2078,9 +1687,6 @@ estos malfacila, mi bezonos nur kelkajn keksojn. Kaj poste oni per trompo petos 
 ”ĉu vere vi pensas, ke vi povos trompi ŝin?”
 
 
-LA FRATOJ LEONKORO
-
-
 ”Ho jes, certe,” diris Joso. Kaj ŝi eĉ ne scios, kiu faris tion.
 
 ĉar ŝi fidas min.” Nun li estis tiel kontenta, ke li klukis pro plezuro.
@@ -2091,9 +1697,7 @@ blankaj ĉevaloj Tengo donos al mi por ili, kiam li enmarŝos en la ĉerizo-valo
 
 Tion ni vidos! ĉu vere Joso, vi iros hejmen por trompi etan Karlon Leonkoron! Sed se li ne plu estos en la ĉerizo-valo, kion vi faros?
 
-Meze en mia mizero unu penso ĝojigis min: Kiel Joso el-
-
-reviĝos, kiam li ekscios, ke mi malaperis!
+Meze en mia mizero unu penso ĝojigis min: Kiel Joso elreviĝos, kiam li ekscios, ke mi malaperis!
 
 Sed poste Joso diris: ”Eta Karlo Leonkoro, li estas bona
 
@@ -2115,14 +1719,9 @@ diris Vedero. ”Fidu min,” diris Joso. ”Sed ne faru ion malbo-nan al tiu kn
 
 Dankon, mi rimarkis tion, mi pensis.
 
-”Kaj ne forgesu la pasvorton, kiam Vi iros al la Dornrozo-
-
-valo kun informoj,” diris Kadero. ”Se vi ŝatos eniri vivanta!”
+”Kaj ne forgesu la pasvorton, kiam Vi iros al la Dornrozovalo kun informoj,” diris Kadero. ”Se vi ŝatos eniri vivanta!”
 
 ”ĉiu potenco al Tengo, nia liberiganto,” diris Joso. ”Ne,
-
-
-LA FRATOJ LEONKORO
 
 
 tion mi memoros nokte kaj tage. Kaj Tengo, li ne forgesos
@@ -2151,18 +1750,13 @@ Jen la fino, mi pensis. Sed egale, ili venu kaj kaptu min, ĉar mi ne plu havas 
 
 Sed Vedero diris:
 
-”Kial ni dormu? Baldaŭ estos mateno. Kaj por mi jam sufi-
-
-ĉas tiuj ĉi montoj. Mi emas reiri al la Dornrozo-valo.”
+”Kial ni dormu? Baldaŭ estos mateno. Kaj por mi jam sufiĉas tiuj ĉi montoj. Mi emas reiri al la Dornrozo-valo.”
 
 Kaj Kadero cedis.
 
 ”Kiel plaĉas al vi,” li diris. ”Elkonduku la ĉevalojn!”
 
 Kelkfoje, kiam danĝero forte minacas, oni savas sin kvazaŭ senpense. Mi ĵetis min malantaŭen kaj rampis en la plej malhelan angulon de la kaverno, same kiel besteto estus farinta.
-
-
-LA FRATOJ LEONKORO
 
 
 Mi vidis Vederon veni tra la enirejo, sed li tuj malaperis en la nigrecon de la kaverno, kaj mi ne plu vidis lin, nur aŭdis lin kaj tio sufiĉis. Li ankaŭ ne povis vidi min, sed mi miris, ke li ne aŭdis la batadon de mia koro. Kiel tio batis, dum mi kuŝis tie kaj atendis, kio okazos, kiam Vedero trovos tri ĉevalojn anstataŭ du.
@@ -2190,16 +1784,11 @@ Tiamaniere la ratkaptilo denove krakege fermiĝis ĉirkaŭ
 mi. ĉar nun ili kaptis min. Vedero eniris la kavernon por serĉi tiun diablan ŝtonon, kaj li tuj trovis Fjalaron.
 
 
-LA FRATOJ LEONKORO
-
-
 Mi scias, ke oni ne mensogu, sed kiam temas pri vivo aŭ
 
 morto, oni devas tion fari.
 
-Li havis malmolajn manojn, tiu Vedero, neniu antaŭe kap-
-
-tis min tiel forte. Tio dolorigis min, kaj mi ekkoleris; strange eĉ pli koleris ol timis. Eble pro tio mi mensogis tiel bone.
+Li havis malmolajn manojn, tiu Vedero, neniu antaŭe kaptis min tiel forte. Tio dolorigis min, kaj mi ekkoleris; strange eĉ pli koleris ol timis. Eble pro tio mi mensogis tiel bone.
 
 ”Kiom longe vi kuŝis tie kaj spionis,” kriegis Vedero, kiam li trenis min el la kaverno.
 
@@ -2209,9 +1798,7 @@ tis min tiel forte. Tio dolorigis min, kaj mi ekkoleris; strange eĉ pli koleris
 
 Certe li pensis, ke li estis ruza, ĉar ili ne kantis eĉ unu tonon. Sed mi estis pli ruza.
 
-”Jes, eble mi iom aŭdis de via kantado,” mi balbutis, kva-
-
-zaŭ mi mensogis nur por kontentigi lin. Tiam Vedero kaj Kadero rigardis unu la alian, nun ili estis certaj, ke mi dormis kaj tute nenion aŭdis.
+”Jes, eble mi iom aŭdis de via kantado,” mi balbutis, kvazaŭ mi mensogis nur por kontentigi lin. Tiam Vedero kaj Kadero rigardis unu la alian, nun ili estis certaj, ke mi dormis kaj tute nenion aŭdis.
 
 Sed tio ne tre multe helpis min.
 
@@ -2228,9 +1815,6 @@ Mi provis aspekti, kvazaŭ mi nenion sciis pri io ajn, nek pri mortpuno, nek pri
 ”En la Dornrozo-valo,” mi diris. ĉar Karlo Leonkoro loĝis
 
 
-LA FRATOJ LEONKORO
-
-
 en la ĉerizo-valo, kaj mi pli volonte volis morti, ol sciigi ilin kiu mi estas.
 
 ”Kiuj estas viaj gepatroj?” demandis Vedero.
@@ -2241,9 +1825,7 @@ en la ĉerizo-valo, kaj mi pli volonte volis morti, ol sciigi ilin kiu mi estas.
 
 ”Mi nur nomas lin avo,” mi respondis kaj ŝajnigis esti eĉ pli stulta.
 
-”Kie en la Dornrozo-valo via avo loĝas?” demandis Vede-
-
-ro.
+”Kie en la Dornrozo-valo via avo loĝas?” demandis Vedero.
 
 ”En … eta blanka domo,” mi balbutis. ĉar mi pensis, ke la
 
@@ -2264,9 +1846,6 @@ tion kredi, kiam mi subite vidis ĝin tuj sub mi. Ho, ĝi estis same bela kiel l
 verdaj ondoj. Jes, Dornrozo-valo estis la ĝusta nomo por tia valo.
 
 
-LA FRATOJ LEONKORO
-
-
 Sed en tiun valon mi neniam estus enveninta sen Vedero
 
 kaj Kadero. ĉar muro ĉirkaŭis la tutan Dornrozo-valon, alta muro, kiun la homoj devis konstrui laŭ ordono de Tengo, ĉar li volis havi ilin kiel sklavojn en eterna sklaveco. Tion Jonatano rakontis al mi. Tial mi tion sciis.
@@ -2281,9 +1860,7 @@ Tie ĉi la homoj dum jarcentoj libere vojaĝis inter la valoj.
 
 Nun nur ekzistas fermita pordo, kaj nur tenganoj rajtas trapasi.
 
-Vedero frapegis per sia glavo kontraŭ la pordon. Tiam lu-
-
-keto malfermiĝis, kaj giganta viro montris sian kapon.
+Vedero frapegis per sia glavo kontraŭ la pordon. Tiam luketo malfermiĝis, kaj giganta viro montris sian kapon.
 
 ”Pasvorton ,” li kriis.
 
@@ -2294,9 +1871,6 @@ Li ĉe la luko rigardis minkaj diris:
 ”Tiu ulo? Kiu estas li?”
 
 ”Estas eta stultulo, kiun ni trovis inter la montoj,” diris Kadero. ”Sed tiel terure stulta li tamen ne estas, ĉar li sukcesis kaŝe trapasi vian pordegon hieraŭ vespere. Kion vi diras pri tio, ĉefgardisto? Mi proponas, ke vi pridemandu viajn soldatojn, kiamaniere ili prizorgas la gardadon dum la vesperoj.”
-
-
-LA FRATOJ LEONKORO
 
 
 Tiu ĉe la luko koleriĝis. Li malfermis la pordegon. Sed li riproĉis kaj blasfemis kaj ne volis lasi min eniri, nur Vederon kaj Kaderon.
@@ -2334,9 +1908,6 @@ Mi vidis homojn, kiuj laboris ekster la domoj, sed nenie
 iun, kiu similis al avo, kaj mi sentis min pli kaj pli malfeliĉa.
 
 
-LA FRATOJ LEONKORO
-
-
 Ankaŭ terure estis vidi, kiel fartas la homoj en la Dornrozo-valo, kiel pale kaj malsatege kaj malfeliĉe ĉiuj aspektas, almenaŭ tiuj, kiujn mi vidis dum mi rajdis. Ili estis tute malsimi-laj al la homoj en la ĉerizo-valo. Sed ni ja ne havis iun Tengon en nia valo, kiu sklavigis nin kaj forprenis de ni ĉiujn niajn vivrimedojn.
 
 Mi rajdis kaj rajdis. Vedero kaj Kadero jam senpacienciĝis, sed mi simple rajdis, kvazaŭ mi estus survoje al la fino de la mondo.
@@ -2345,9 +1916,7 @@ Mi rajdis kaj rajdis. Vedero kaj Kadero jam senpacienciĝis, sed mi simple rajdi
 
 ”Ne tre,” mi diris, sed mi nek sciis, kion mi diris nek kion mi faris. Mi estis tute ekster mi pro timo kaj nur atendis, ke ili ĵetos min en la Katla-kavernon.
 
-Tiam okazis miraklo. Kredu tion aŭ ne! Antaŭ blanka do-
-
-meto, tuj apud la muro, sidis maljunulo sur benko kaj nutris siajn kolombojn. Eble mi ne estus kuraĝinta fari tion, kion mi faris, se inter ĉiuj grizaj kolomboj ne estus estinta unu, kiu estis neĝoblanka. Nur unu!
+Tiam okazis miraklo. Kredu tion aŭ ne! Antaŭ blanka dometo, tuj apud la muro, sidis maljunulo sur benko kaj nutris siajn kolombojn. Eble mi ne estus kuraĝinta fari tion, kion mi faris, se inter ĉiuj grizaj kolomboj ne estus estinta unu, kiu estis neĝoblanka. Nur unu!
 
 Larmoj venis en miajn okulojn. Tiajn kolombojn mi vidis
 
@@ -2360,9 +1929,6 @@ kaj per kelkaj paŝoj mi atingis la maljunulon. Mi ĵetis min inter liajn brakoj
 ”Helpu al mi! Savu min! Diru, ke vi estas mia avo!”
 
 Mi timis kaj estis certa, ke li forpuŝos min, kiam li vidos Vederon kaj Kaderon en siaj nigraj kaskoj malantaŭ mi. Kial li mensogu pro mi kaj eble estus ĵetita en la Katla-kavernon pro tio?
-
-
-LA FRATOJ LEONKORO
 
 
 Sed li ne forpuŝis min. Li tenis min firme inter siaj brakoj, kaj mi sentis liajn varmajn bonajn brakojn ĉirkaŭ mi kiel pro-tekton kontraŭ ĉiu malbono.
@@ -2395,10 +1961,7 @@ min Biskoto!”
 
 ”ĉu vere, Biskoto,” diris Matiaso kaj iom ridetis. ”Eniru en la kuirejon, Biskoto, kaj atendu min tie,” li poste diris. ”Mi kondukos vian ĉevalon en la stalon.”
 
-Kaj mi eniris. Malkomforta kuirejeto kun nur unu tablo kaj 84
-
-
-LA FRATOJ LEONKORO
+Kaj mi eniris. Malkomforta kuirejeto kun nur unu tablo kaj
 
 
 ligna sofo kaj kelkaj seĝoj kaj fajrejo. Kaj granda ŝranko ĉe unu muro.
@@ -2411,9 +1974,7 @@ en la ĉeriz … ”
 
 Mi silentis.
 
-”Hejme en la ĉerizo-valo,” kompletigis Matiaso, kaj mi ti-
-
-meme rigardis lin ankoraŭfoje mi diris ion, kion mi ne rajtis diri.
+”Hejme en la ĉerizo-valo,” kompletigis Matiaso, kaj mi timeme rigardis lin ankoraŭfoje mi diris ion, kion mi ne rajtis diri.
 
 Matiaso nenion plu diris. Li proksimiĝis al la fenestro kaj rigardis eksteren. Longe li staris tie kaj ĉirkaŭrigardis, kvazaŭ li volis esti certa, ke neniu estis en la proksimeco. Poste li turnis sin al mi kaj diris per mallaŭta voĉo:
 
@@ -2424,12 +1985,7 @@ Li puŝis per la ŝultro la ŝrankon kaj flankenmovis ĝin. Malantaŭ ĝi trovi�
 Estis Jonatano.
 
 
-LA FRATOJ LEONKORO
-
-
-Mi memoras kelkajn eventojn en mia vivo, kiam mi es-
-
-tis tiel gaja, ke mi preskaŭ ne sciis kion fari. Unu fojon okazis, kiam mi estis tre juna kaj ricevis sledon kiel kristna-sko-donacon de Jonatano. Li longatempe ŝparis sian monon
+Mi memoras kelkajn eventojn en mia vivo, kiam mi estis tiel gaja, ke mi preskaŭ ne sciis kion fari. Unu fojon okazis, kiam mi estis tre juna kaj ricevis sledon kiel kristna-sko-donacon de Jonatano. Li longatempe ŝparis sian monon
 
 por tiu sledo. Kaj tiun fojon, kiam mi venis al Nangijala kaj trovis Jonatanon ĉe la rivero. Kaj tiun unuan mirige belan vesperon en la Rajdisto-bieno, kiam mi estis tiel freneze gaja. Sed nenio, nenio superis la senton, kiam mi trovis Jonatanon sur la planko ĉe Matiaso. Imagu, ke oni povas fariĝi tiel gaja! Estis kvazaŭ mia animo mem laŭte ridegis en mi pro ĝojo.
 
@@ -2444,18 +2000,13 @@ opinias. Sed kiam mi vekiĝis! Jes, kiam mi vekiĝis, tiam Jonatano sidis sur la
 Jonatano ĉesis rideti.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Kial vi kriis?” mi demandis.
 
 Tio ŝajne estis io, pri kio li ne povis pensi sen doloro. Apenaŭ li volis respondi al mi, tiel mallaŭte li parolis.
 
 ”Mi vidis Katlan. Mi vidis tion, kion faras Katla.”
 
-Mi ne volis turmenti lin per demandoj pri Katla, kaj cete-
-
-re mi ja havis tiel multe por rakonti al li, plej unue pri Joso.
+Mi ne volis turmenti lin per demandoj pri Katla, kaj cetere mi ja havis tiel multe por rakonti al li, plej unue pri Joso.
 
 Jonatano ne volis tion kredi. Lia vizaĝo paliĝis, li preskaŭ ploris.
 
@@ -2469,9 +2020,7 @@ Sed poste li ekstaris.
 
 ”Unu el ŝiaj kolomboj estas tie ĉi,” li diris. ”Bianka, ŝi flugos reen ĉi vespere.”
 
-La kolombo de Sofia! Jes, tion mi povus imagi! Mi rakon-
-
-tis al Jonatano, ke dank’ al tiu kolombo mi estas nun ĉe li kaj ne en la Katla-kaverno.
+La kolombo de Sofia! Jes, tion mi povus imagi! Mi rakontis al Jonatano, ke dank’ al tiu kolombo mi estas nun ĉe li kaj ne en la Katla-kaverno.
 
 ”Certe estas miraklo,” mi diris, ”ke mi inter ĉiuj domoj en la Dornrozo-valo atingis ĝuste tiun, en kiu vi estas. Sed se mi ne estus vidinta Biankan ekster ĝi, … mi nun ne estus tie ĉi.”
 
@@ -2484,12 +2033,7 @@ komencis, sed Jonatano ne permesis lin daŭrigi.
 ”Alportu Biankan, mi petas,” li diris. ”ŝi ekflugu tuj kiam krepuskos.”
 
 
-LA FRATOJ LEONKORO
-
-
-Li klarigis kial. Li rakontis al Matiaso pri Joso. Kaj Matiaso skuis la kapon tiel, kiel maljunaj homoj faras, kiam ili mal-
-
-ĝojas.
+Li klarigis kial. Li rakontis al Matiaso pri Joso. Kaj Matiaso skuis la kapon tiel, kiel maljunaj homoj faras, kiam ili malĝojas.
 
 ”Joso! Jes, mi sciis, ke devas esti iu el la ĉerizo-valo,” li diris. ”Kaj pro tio nun Orvaro estas en la Katla-kaverno. Mia Dio, kiaj estas la homoj!”
 
@@ -2497,9 +2041,7 @@ Poste li malaperis por alporti Biankan, kaj li fermis la lukon.
 
 Estis bona kaŝejo, kiun Jonatano ricevis tie ĉe Matiaso. Eta sekreta ĉambro sen fenestro kaj pordo. La sola enirvojo estis tra la luko malantaŭ la ŝranko. Neniu meblo troviĝis tie, nur matraco, sur kiu oni povis dormi. Kaj malnova stalo-lanterno, kiu iom heligis la malhelon.
 
-En la lumo de la lanterno Jonatano skribis mesaĝon al So-
-
-fia:
+En la lumo de la lanterno Jonatano skribis mesaĝon al Sofia:
 
 ”La eterne malbenita nomo de la perfidulo estas Joso, la
 
@@ -2511,17 +2053,13 @@ Ora Koko. Kaptu lin tuj. Mia frato nun estas ĉi tie.”
 
 ”Kiun enigmon?” demandis Jonatano.
 
-”Mi serĉos lin fore en la malproksimo malantaŭ la mon-
-
-toj.”
+”Mi serĉos lin fore en la malproksimo malantaŭ la montoj.”
 
 Mi rakontis al li tion, kion mi skribis. ”Estis por ke Sofia ne fariĝu maltrankvila,” mi diris.
 
 Jonatano ridis.
 
-”Ne esti maltrankvila, ĉu vere vi tion opinias? Kaj mi? Kiel 88
-
-LA FRATOJ LEONKORO
+”Ne esti maltrankvila, ĉu vere vi tion opinias? Kaj mi? Kiel
 
 
 trankvila estis mi, kiam mi eksciis, ke vi vagas ie inter la montoj de Nangijala.”
@@ -2546,19 +2084,11 @@ Kaj mi petis Jonatanon al doni linion al la mesaĝo.
 
 Mi ankaŭ rakontis al li, kiel Huberto savis min de la lupoj, kaj Jonatano diris, ke dum sia tuta vivo li estos danka al li pro tio.
 
-Krepuskis super la Dornrozo-valo, kiam ni iris por forsendi Biankan, kaj lumoj aperis en ĉiuj domoj kaj bienoj sur la deklivo malsupre de ni. Aspektis tiel kviete kaj pace, ke oni povis pensi, ke homoj sidas tie kaj manĝas sian bongustan vespermanĝon aŭ eble nur interparolas kaj ludas kun siaj infanoj aŭ kantas lulkantetojn al ili kaj ĝuas la vivon. Sed ni sciis, ke ne estas tiel. Ni sciis, ke ili havas preskaŭ nenion por man-
-
-ĝi, kaj ke ili tute ne estas trankvilaj kaj gajaj, sed malfeliĉaj. La tenganoj starantaj sur la muro kun siaj glavoj kaj lancoj memorigis pri tiu fakto, se oni hazarde forgesis.
+Krepuskis super la Dornrozo-valo, kiam ni iris por forsendi Biankan, kaj lumoj aperis en ĉiuj domoj kaj bienoj sur la deklivo malsupre de ni. Aspektis tiel kviete kaj pace, ke oni povis pensi, ke homoj sidas tie kaj manĝas sian bongustan vespermanĝon aŭ eble nur interparolas kaj ludas kun siaj infanoj aŭ kantas lulkantetojn al ili kaj ĝuas la vivon. Sed ni sciis, ke ne estas tiel. Ni sciis, ke ili havas preskaŭ nenion por manĝi, kaj ke ili tute ne estas trankvilaj kaj gajaj, sed malfeliĉaj. La tenganoj starantaj sur la muro kun siaj glavoj kaj lancoj memorigis pri tiu fakto, se oni hazarde forgesis.
 
 En la fenestroj de Matiaso ne lumis kandeloj. Lia domo
 
-estis malluma, kaj ĉio silentis, kvazaŭ ne estus vivanta homo tie. Sed ni estis tie, ne en la domo, sed ekstere. Matiaso gva-89
-
-
-LA FRATOJ LEONKORO
-
-
-tis ĉe la angulo de la domo, kaj Jonatano kaj mi kaŝe iris portante Biankan inter la dornroz-densaĵo.
+estis malluma, kaj ĉio silentis, kvazaŭ ne estus vivanta homo tie. Sed ni estis tie, ne en la domo, sed ekstere. Matiaso gvatis ĉe la angulo de la domo, kaj Jonatano kaj mi kaŝe iris portante Biankan inter la dornroz-densaĵo.
 
 Tiaj roz-densaĵoj troviĝis ĉirkaŭ la tuta Matias-bieno.
 
@@ -2575,9 +2105,6 @@ La murgardistoj evidente havis ĉiu sian propran parton de
 la muro por gardi. Sur la muro tuj malantaŭ la Matiaso-bie-no iu dikulo patrolis tien kaj reen la tutan tempon, kaj ni devis nin gardi kontraŭ li.
 
 
-LA FRATOJ LEONKORO
-
-
 Matiaso staris ĉe la domangulo, tenante la stalo-lanternon, kaj ni interkonsentis pri jena signalo:
 
 ”Se mi tenos la lanternon malalte,” li diris, ”vi eĉ ne spiru, ĉar tiam Dika Dodiko estos tute proksima. Sed se mi tenos la lanternon alte, tiam li estos tie, kie la muro forkurbiĝas, kaj tie li kutimas paroli kun alia tengano. Tiam vi kaptu la okazon por forsendi Biankan.”
@@ -2586,19 +2113,13 @@ Kaj tion ni faris.
 
 ”Flugu, flugu,” flustris Jonatano, ”flugu mia Bianka, trans la montojn de Nangijala al la ĉerizo-valo. Kaj gardu vntraŭ la sagoj de Joso!”
 
-Mi ne scias, ĉu la kolomboj de Sofia vere komprenas ho-
-
-man lingvon, sed mi deziras kredi, ke Bianka kapablis, ĉar ŝi metis la bekon ĉe la vango de Jonatano, kvazaŭ ŝi volis trankviligi lin, kaj poste ŝi ekflugis. ŝi montriĝis kiel blanka lumeto en la krepusko, tiel danĝere blanka. Kiel facile tiu Dodiko povis ŝin vidi, dum ŝi flugis super la muro!
+Mi ne scias, ĉu la kolomboj de Sofia vere komprenas homan lingvon, sed mi deziras kredi, ke Bianka kapablis, ĉar ŝi metis la bekon ĉe la vango de Jonatano, kvazaŭ ŝi volis trankviligi lin, kaj poste ŝi ekflugis. ŝi montriĝis kiel blanka lumeto en la krepusko, tiel danĝere blanka. Kiel facile tiu Dodiko povis ŝin vidi, dum ŝi flugis super la muro!
 
 Sed li ne vidis ŝin. Li verŝajne staris parolante, tiel ke li nenion aŭdis, nenion vidis. Matiaso gvatis, kaj li ne malaltigis la lanternon.
 
-Ni vidis Biankan malaperi, kaj mi tiris la brakon de Jona-
+Ni vidis Biankan malaperi, kaj mi tiris la brakon de Jonatano kaj petis lin, ke li rapide reiru en la kaŝejon. Sed Jonatano ne volis. Ankoraŭ ne. Estis tiel mirinda vespero, la aero estis freŝa kaj agrabla por spiri. Li tute ne emis enrampi en la sufokan ĉambreton. Neniu tion komprenis pli bone ol mi, kiu tiom longe kuŝis enfermite sur mia kuireja sofo hejme en la urbo.
 
-tano kaj petis lin, ke li rapide reiru en la kaŝejon. Sed Jonatano ne volis. Ankoraŭ ne. Estis tiel mirinda vespero, la aero estis freŝa kaj agrabla por spiri. Li tute ne emis enrampi en la sufokan ĉambreton. Neniu tion komprenis pli bone ol mi, kiu tiom longe kuŝis enfermite sur mia kuireja sofo hejme en la urbo.
-
-Jonatano sidis sur la herbo kun la brakoj ĉirkaŭ la genuoj kaj rigardis malsupren al la valo. Tute trankvila li estis. Oni 91
-
-LA FRATOJ LEONKORO
+Jonatano sidis sur la herbo kun la brakoj ĉirkaŭ la genuoj kaj rigardis malsupren al la valo. Tute trankvila li estis. Oni
 
 
 povis supozi, ke li intencas resti tie la tutan vesperon senkon-sidere, kiom da tenganoj marŝis sur la muro malantaŭ li.
@@ -2634,9 +2155,6 @@ Sed ĝuste kiam ni komencis kuri, la lumo de la lanterno
 fulmorapide malaltiĝis, kaj ni abrupte haltis. Ni aŭdis ĉevalojn galope alproksimiĝi, kaj poste ili malrapidis, kaj iu parolis kun Matiaso.
 
 
-LA FRATOJ LEONKORO
-
-
 Jonatano kubutpuŝis min dorse.
 
 ”Iru tien ,” li flustris, ”iru al Matiaso! ”
@@ -2647,37 +2165,27 @@ Li ĵetis sin en la dornroz-densaĵon, kaj mi timeme kaj tremante iris al la lan
 
 ”Estas ja tiel bela vetero hodiaŭ vespere.”
 
-”Bela vetero,” respondis raŭka voĉo. ”Atendas la mortpu-
+”Bela vetero,” respondis raŭka voĉo. ”Atendas la mortpuno ĉiun, kiu restas ekstere post la sunsubiro, ĉu vi tion ne scias?”
 
-no ĉiun, kiu restas ekstere post la sunsubiro, ĉu vi tion ne scias?”
-
-”Malobeema maljuna avo estas vi,” alia voĉo diris. ”Cete-
-
-re, kie estas la bubaĉo?”
+”Malobeema maljuna avo estas vi,” alia voĉo diris. ”Cetere, kie estas la bubaĉo?”
 
 ”Jen li estas venanta,” diris Matiaso, ĉar nun mi atingis lin.
 
 Tiujn du sur la ĉevaloj mi tuj ekkonis. Estis Vedero kaj Kadero.
 
-”ĉu vi ankoraŭfoje emos iri al la montoj por rigardi la lumon de la luno hodiaŭ vespere?” demandis Vedero. ”Kio ce-
-
-tere estas via nomo, knabaĉo, mi tute ne aŭdis ĝin.”
+”ĉu vi ankoraŭfoje emos iri al la montoj por rigardi la lumon de la luno hodiaŭ vespere?” demandis Vedero. ”Kio cetere estas via nomo, knabaĉo, mi tute ne aŭdis ĝin.”
 
 ”Oni nomas min Biskoto,” mi diris. Tion mi kuraĝis diri,
 
 ĉar tiun nomon neniu konis, nek Joso, nek iu alia, nur Jonatano kaj mi kaj Matiaso.
 
-”Kurioza nomo, Biskoto,” diris Kadero. ”Aŭskultu, Bisko-
-
-to, kial ni venis tien ĉi, vi pensas?”
+”Kurioza nomo, Biskoto,” diris Kadero. ”Aŭskultu, Biskoto, kial ni venis tien ĉi, vi pensas?”
 
 Mi sentis, ke la kruroj ne plu apogis min. Por ĵeti min en la Katla-kavernon, mi pensis. Kompreneble ili bedaŭris, ke ili lasis min libera, kaj nun ili venis por preni min. Kion alian mi kredu?
 
 ”Nu, aŭskultu,” diris Kadero, ”ni ĉirkaŭrajdas en la valo
 
-vespere por kontroli, ĉu la homoj obeas al tio, kion ordonis Tengo. Sed via avo evidente ne intencas kompreni tion, eble 93
-
-LA FRATOJ LEONKORO
+vespere por kontroli, ĉu la homoj obeas al tio, kion ordonis Tengo. Sed via avo evidente ne intencas kompreni tion, eble
 
 
 vi povas klarigi al li, kiel danĝere estos kaj por li kaj por vi, se vi ne restos en la domo post la sunsubiro.”
@@ -2692,9 +2200,7 @@ Granda Kajo, kaj vi vidos Tengon, ’la Liberiganton de la Dornrozo-valo’. Mor
 
 Ili pretigis sin por foriri. Sed Kadero bridis sian ĉevalon lastmomente. ”Aŭskultu, maljunulo,” li kriis al Matiaso, kiu jam estis survoje en la domon.
 
-”ĉu vi hazarde vidis belan, blondharan junulon kun la no-
-
-mo Leonkoro?”
+”ĉu vi hazarde vidis belan, blondharan junulon kun la nomo Leonkoro?”
 
 Mi tenis la manon de Matiaso, kaj mi sentis, kiel li ektremis, sed li kviete respondis: ”Mi konas neniun Leonkoron.”
 
@@ -2702,24 +2208,18 @@ Mi tenis la manon de Matiaso, kaj mi sentis, kiel li ektremis, sed li kviete res
 
 Tiam Matiaso fermis la pordon malantaŭ ni.
 
-”Mortpuno, ĉiam mortpuno,” li diris. ”Nur pri tio tiaj ho-
-
-moj pensas.”
+”Mortpuno, ĉiam mortpuno,” li diris. ”Nur pri tio tiaj homoj pensas.”
 
 La sono de la ĉevalhufoj apenaŭ perdiĝis, kiam Matiaso
 
-denove iris eksteren kun la lantero. Baldaŭ envenis Jonatano vundita per dornoj sur manoj kaj vizaĝo, sed ĝoja, ke nenio 94
-
-LA FRATOJ LEONKORO
+denove iris eksteren kun la lantero. Baldaŭ envenis Jonatano vundita per dornoj sur manoj kaj vizaĝo, sed ĝoja, ke nenio
 
 
 pli danĝera okazis, kaj ke Bianka nun estis fluganta trans la montojn.
 
 Poste ni vespermanĝis en la kuirejo ĉe Matiaso. Kun la luko malfermita, tiel ke Jonatano rapide povus malaperi en sian kaŝejon, se iu venus.
 
-Sed unue ni iris en la stalon, Jonatano kaj mi, kaj mi man-
-
-ĝigis niajn ĉevalojn. Estis ĝojige denove vidi ilin kune. Ili staris kun la kapoj proksime unu al la alia. Mi supozis, ke ili rakontis unu al la alia ĉion, kion ili travivis. Mi donis avenon al am-baŭ. Unue Jonatano volis haltigi min, sed poste li diris:
+Sed unue ni iris en la stalon, Jonatano kaj mi, kaj mi manĝigis niajn ĉevalojn. Estis ĝojige denove vidi ilin kune. Ili staris kun la kapoj proksime unu al la alia. Mi supozis, ke ili rakontis unu al la alia ĉion, kion ili travivis. Mi donis avenon al am-baŭ. Unue Jonatano volis haltigi min, sed poste li diris:
 
 ”Jes, donu tion al ili ĉi-foje! Sed avenon oni ne plu donas al la ĉevaloj tie ĉi en la Dornrozo-valo.”
 
@@ -2731,19 +2231,11 @@ Kiam ni eniris la kuirejon, Matiaso metis sur la tablon ujon da supo.
 
 Mi ĉirkaŭrigardis por trovi mian dorsosakon, mi memoris,
 
-kion mi havis en ĝi. Kaj kiam mi elprenis ĉiujn miajn panojn kaj mian fumaĵitan ŝafviandon, tiam ili momenton ĉesis spiri, kaj iliaj okuloj ekbrilis. Estis agrabla sento aranĝi por ili preskaŭ feston. Mi tranĉis du grandajn tranĉaĵojn de la fu-maĵita ŝafviando, kaj ni manĝis supon kaj panon kaj ŝafviandon. Ni manĝis kaj manĝis. Dum longa tempo neniu ion di-
-
-ris. Sed fine diris Jonatano:
+kion mi havis en ĝi. Kaj kiam mi elprenis ĉiujn miajn panojn kaj mian fumaĵitan ŝafviandon, tiam ili momenton ĉesis spiri, kaj iliaj okuloj ekbrilis. Estis agrabla sento aranĝi por ili preskaŭ feston. Mi tranĉis du grandajn tranĉaĵojn de la fu-maĵita ŝafviando, kaj ni manĝis supon kaj panon kaj ŝafviandon. Ni manĝis kaj manĝis. Dum longa tempo neniu ion diris. Sed fine diris Jonatano:
 
 ”Bone, ni havas sufiĉe por manĝi! Mi preskaŭ forgesis la
 
-senton de sateco.” Mi vere kontentis, ke mi venis al la Dornrozo-valo, tiu sento estis por mi pIi kaj pli agrabla. Kaj nun mi povis rakonti ĉion, kio okazis al mi, de kiam mi rajdis for de la hejmo, ĝis Vedero kaj Kadero helpis al mi eniri en la Dornrozo-valon. La plej multon mi jam rakontis, sed Jonatano vo-95
-
-
-LA FRATOJ LEONKORO
-
-
-lis tion aŭdi plurfoje. ĉefe pri Vedero kaj Kadero. Pri tio li ridis, ĝuste kiel mi atendis. Kaj ankaŭ Matiaso.
+senton de sateco.” Mi vere kontentis, ke mi venis al la Dornrozo-valo, tiu sento estis por mi pIi kaj pli agrabla. Kaj nun mi povis rakonti ĉion, kio okazis al mi, de kiam mi rajdis for de la hejmo, ĝis Vedero kaj Kadero helpis al mi eniri en la Dornrozo-valon. La plej multon mi jam rakontis, sed Jonatano volis tion aŭdi plurfoje. ĉefe pri Vedero kaj Kadero. Pri tio li ridis, ĝuste kiel mi atendis. Kaj ankaŭ Matiaso.
 
 ”Tre inteligentaj ili ne estas, la tenganoj,” diris Matiaso.
 
@@ -2755,9 +2247,7 @@ lis tion aŭdi plurfoje. ĉefe pri Vedero kaj Kadero. Pri tio li ridis, ĝuste k
 
 Kiam mi tion diris, mi ekcerbumis. Mi ne antaŭe pensis pri tio, sed nun mi demandis:
 
-”Kiamaniere vi sukcesis eniri la Dornrozo-valon, Jonata-
-
-no?”
+”Kiamaniere vi sukcesis eniri la Dornrozo-valon, Jonatano?”
 
 Jonatano ekridis.
 
@@ -2766,9 +2256,6 @@ Jonatano ekridis.
 ”Kiel ensaltis … ne sur Grimo, ĉu?” mi demandis.
 
 ”Jes,” diris Jonatano. ”Mi ne posedas alian ĉevalon.”
-
-
-LA FRATOJ LEONKORO
 
 
 Mi jam vidis kaj sciis, kiajn saltojn Jonatano kapablis fari per Grimo. Sed supersalti la muron ĉirkaŭ la Dornrozo-valo, tio estis pli ol oni povas imagi.
@@ -2789,16 +2276,11 @@ Jonatano mordis en sian panon, poste li ridis denove.
 
 ”Vi ankoraŭ ne ĉion scias,” diris Jonatano. ”Vi ne scias, ke Matiaso estas tiu, kiu gvidas la sekretan batalon en la Dornrozo-valo, nun, kiam Orvaro estas enkarcerigita en la Katla-kaverno. Matiason ili nomu ”Savanto’ kaj ne min!”
 
-”Ne, mi estas tro maljuna,” opiniis Matiaso. ”Li tute pra-
-
-vis, tiu Vedero. ĉu mi vivas aŭ mortas estas egale.”
+”Ne, mi estas tro maljuna,” opiniis Matiaso. ”Li tute pravis, tiu Vedero. ĉu mi vivas aŭ mortas estas egale.”
 
 ”Tiel vi ne rajtas paroli,” mi diris. ”ĉar nun vi estas mia avo.”
 
 ”Nu, eble pro tio mi devas resti en la vivo. Sed por gvidi batalon mi ne plu taŭgas. Por tio oni devas esti juna.”
-
-
-LA FRATOJ LEONKORO
 
 
 Li ekĝemis.
@@ -2812,17 +2294,13 @@ Mi vidis, ke la vizaĝo de Jonatano paliĝis.
 
 Poste li diris:
 
-”Nun ni devas labori. Ankaŭ tion vi ankoraŭ ne scias, Bi-
-
-skoto, ke en tiu ĉi dometo ni dormas dum la tagoj kaj laboras dum la noktoj. Venu kaj vidu!”
+”Nun ni devas labori. Ankaŭ tion vi ankoraŭ ne scias, Biskoto, ke en tiu ĉi dometo ni dormas dum la tagoj kaj laboras dum la noktoj. Venu kaj vidu!”
 
 Li rampis antaŭ mi tra la luko en la kaŝejon, kaj tie li montris ion al mi. Li flankenŝovis la matracon, sur kiu ni dormis kaj forprenis kelkajn el la larĝaj bretoj sub ĝi, kiuj kuŝis nefik-sitaj. Tiam mi vidis nigran truon, kiu iris rekte malsupren en la teron.
 
 ”Tie ĉi komenciĝas mia subtera tunelo,” diris Jonatano.
 
-”Kaj kie ĝi finiĝas?” mi demandis, kvankam mi preskaŭ de-
-
-venis la respondon. ”En la sovaĝejo ĉe la alia flanko de la mu-ro,” li diris. ”Tie ĝi finiĝos, kiam ĝi estos preta. Post ankoraŭ kelkaj noktoj, mi pensas, ĝi estos sufiĉe longa.”
+”Kaj kie ĝi finiĝas?” mi demandis, kvankam mi preskaŭ devenis la respondon. ”En la sovaĝejo ĉe la alia flanko de la mu-ro,” li diris. ”Tie ĝi finiĝos, kiam ĝi estos preta. Post ankoraŭ kelkaj noktoj, mi pensas, ĝi estos sufiĉe longa.”
 
 Li enrampis la truon.
 
@@ -2830,23 +2308,14 @@ Li enrampis la truon.
 
 Poste li malaperis, kaj mi longe sidis tie atendante. Kiam li finfine revenis, li puŝis antaŭ si trogon plenan de tero. Li su-prenlevis ĝin al mi kaj mi trenis ĝin tra la luko al Matiaso.
 
-”Pli da tero por mia kampo,” diris Matiaso. ”Se mi nur ha-
-
-vus iom da pizoj kaj fazeoloj por semi kaj planti, la malsatego baldaŭ finiĝus.”
+”Pli da tero por mia kampo,” diris Matiaso. ”Se mi nur havus iom da pizoj kaj fazeoloj por semi kaj planti, la malsatego baldaŭ finiĝus.”
 
 
-LA FRATOJ LEONKORO
-
-
-”Ho, ĉu vi kredas?” diris Jonatano. ”El ĉiu deko da fazeo-
-
-loj en via kampo Tengo prenos naŭ. ĉu vi forgesis tion?”
+”Ho, ĉu vi kredas?” diris Jonatano. ”El ĉiu deko da fazeoloj en via kampo Tengo prenos naŭ. ĉu vi forgesis tion?”
 
 ”Vi pravas,” respondis Matiaso. ”Tiom longe kiel ekzistos
 
-Tengo, ankaŭ ekzistos mizero kaj malsato en la Dornrozo-
-
-valo.”
+Tengo, ankaŭ ekzistos mizero kaj malsato en la Dornrozovalo.”
 
 Nun Matiaso kaŝe eliris por malplenigi la trogon sur sian
 
@@ -2854,13 +2323,9 @@ kampon, kaj mi devis stari ĉe la pordo por gvati. Fajfu, diris Jonatano, se vi 
 
 antaŭ longe, kiam ni vivis sur la tero. Ni kutimis kune fajfi dum tiu tempo. Vespere kiam ni enlitiĝis. Certe mi kapablis bone fajfi.
 
-Jonatano enrampis denove en sian truon por daŭrigi la fo-
+Jonatano enrampis denove en sian truon por daŭrigi la fosadon, kaj Matiaso fermis la lukon kaj kaŝis ĝin per la ŝranko.
 
-sadon, kaj Matiaso fermis la lukon kaj kaŝis ĝin per la ŝranko.
-
-”Bone enkapigu, Biskoto,” li diris, ”ke vi neniam lasu Jo-
-
-natanon esti en la kaŝejo, se la luko ne estas fermita kaj la ŝranko ne staras surloke por kovri ĝin. Bone enkapigu, ke vi estas en lando, kie Tengo vivas kaj regas.”
+”Bone enkapigu, Biskoto,” li diris, ”ke vi neniam lasu Jonatanon esti en la kaŝejo, se la luko ne estas fermita kaj la ŝranko ne staras surloke por kovri ĝin. Bone enkapigu, ke vi estas en lando, kie Tengo vivas kaj regas.”
 
 ”Tion mi ne forgesos,” mi diris.
 
@@ -2870,9 +2335,7 @@ sur la tablo, sed Matiaso estingis ĝin.
 
 ”Malhela estu la nokto en la Dornrozo-valo,” li diris. ”ĉar tie atendas tiom da okuloj por vidi tion, kion ili ne devus vidi.”
 
-Poste li prenis la trogon kaj malaperis, kaj mi staris ĉe la malfermita pordo por gvati. Kaj vere estis malhele, ĝuste kiel deziris Matiaso. Malhele estis en la domoj kaj malhela estis la ĉielo super la Dornrozo-valo. Neniu stelo brilis kaj neniu luno, ĉio estis nigra, kaj mi povis tute nenion vidi. Sed ĉiuj 99
-
-LA FRATOJ LEONKORO
+Poste li prenis la trogon kaj malaperis, kaj mi staris ĉe la malfermita pordo por gvati. Kaj vere estis malhele, ĝuste kiel deziris Matiaso. Malhele estis en la domoj kaj malhela estis la ĉielo super la Dornrozo-valo. Neniu stelo brilis kaj neniu luno, ĉio estis nigra, kaj mi povis tute nenion vidi. Sed ĉiuj
 
 
 okuloj de la nokto, pri kiuj Matiaso parolis, ili certe ankaŭ vidis nenion, mi pensis, kaj tio konsolis min.
@@ -2903,16 +2366,9 @@ Tiam jam Dodiko atakis min.
 
 Mi denove fajfis, sed Dodiko malpermesis al mi daŭrigi.
 
-”Nu, silentu,” li ordonis. ”Mi ne scias, ĉu estas malperme-site fajfi, sed mi supozas, ke oni ne rajtas. Mi opinias, ke Ten-100
+”Nu, silentu,” li ordonis. ”Mi ne scias, ĉu estas malperme-site fajfi, sed mi supozas, ke oni ne rajtas. Mi opinias, ke Tengo ne ŝatas tion. Kaj cetere via pordo devas esti fermita, ĉu vi ne komprenas tion?”
 
-LA FRATOJ LEONKORO
-
-
-go ne ŝatas tion. Kaj cetere via pordo devas esti fermita, ĉu vi ne komprenas tion?”
-
-”ĉu Tengo ne ŝatas, ke pordoj estas malfermitaj?” mi de-
-
-mandis.
+”ĉu Tengo ne ŝatas, ke pordoj estas malfermitaj?” mi demandis.
 
 ”Ne enmiksu vin en tiajn aferojn,” diris Dodiko. ”Obeu al
 
@@ -2939,9 +2395,6 @@ Dodiko prenis la ĉerpilon kaj trinkis. Li trinkis kaj trinkis, kvazaŭ ne ekzis
 Mi ne respondis. Mi ne sciis, kion respondi.
 
 
-LA FRATOJ LEONKORO
-
-
 ”ĉu vi ne aŭdas, ke mi demandas al vi?” diris Dodiko. ”Kie estas Matiaso?”
 
 ”Li dormas ,” mi diris. Ion mi devis elpensi.
@@ -2956,9 +2409,7 @@ Mi pepis tion tiel, ke ĝi apenaŭ estis aŭdebla. Sonis mize-re, kaj Dodiko mok
 
 ”Vi ne tre bone mensogas,” li diris. ”Atendu, mi esploros!”
 
-Li tute kontentis, li sciis, ke mi mensogas, kaj li tre volonte intencis okazigi mortpunon al Matiaso, por eble ricevi laŭ-
-
-don de Tengo; mi ne scias.
+Li tute kontentis, li sciis, ke mi mensogas, kaj li tre volonte intencis okazigi mortpunon al Matiaso, por eble ricevi laŭdon de Tengo; mi ne scias.
 
 ”Donu al mi la kandelon,” li diris, kaj mi donis ĝin al li. Mi volis forkuregi de tie, nur ĵeti min tra la pordo por trovi Matiason kaj instigi lin fuĝi, antaŭ ol estos tro malfrue. Sed mi absolute ne povis moviĝi. Mi staris tie senmove pro timo, ĝis mi preskaŭ vomis.
 
@@ -2972,10 +2423,7 @@ Per la piedo li malfermbatis la pordon al la ĉambreto kaj
 
 antaŭen puŝis min, tiel ke mi falis super la alta sojlo. Poste li suprentiris min denove kaj staris antaŭ mi kun la kandelo en la mano.
 
-”Vi mensogulo, nun montru lin al mi,” li diris, kaj levis la 102
-
-
-LA FRATOJ LEONKORO
+”Vi mensogulo, nun montru lin al mi,” li diris, kaj levis la
 
 
 kandelon, por pli bone heligi la mallumon en la ĉambreto. Mi ne kuraĝis moviĝi aŭ levi la rigardon, kaj mi preferis ne plu ekzisti, ho, kiel mi malesperis!
@@ -3000,13 +2448,9 @@ grumbleme diris.
 
 Matiaso. ”ĉu vi ne scias, ke Tengo
 
-strikte malpermesis al vi akcepti ak-
+strikte malpermesis al vi akcepti akvon de ni? Li kredas, ke ni venenigos
 
-von de ni? Li kredas, ke ni venenigos
-
-vin. Se vi ankoraŭfoje venos kaj ve-
-
-kos min, tiam mi vere faros tion.”
+vin. Se vi ankoraŭfoje venos kaj vekos min, tiam mi vere faros tion.”
 
 Mi ne komprenas, kiel li kuraĝis
 
@@ -3021,12 +2465,7 @@ kaj malaperis por regrimpi al sia
 muro.
 
 
-LA FRATOJ LEONKORO
-
-
-Neniam mi sciis, kiel aspektas absolute kruela homo, an-
-
-taŭ ol mi vidis Tengon de Karmanjaka.
+Neniam mi sciis, kiel aspektas absolute kruela homo, antaŭ ol mi vidis Tengon de Karmanjaka.
 
 Li transiris la Riveron de la Praaj Riveroj per sia ora barko.
 
@@ -3051,16 +2490,11 @@ Se mi kuŝigos min surventre malantaŭ tiu kun la plej etenditaj gamboj, mi povo
 Sed mi ne sukcesis persvadi Matiason tion fari.
 
 
-LA FRATOJ LEONKORO
-
-
 ”ĉefe, ke vi vidas,” li diris, ”kaj ke vi neniam forgesos, kion vi hodiaŭ vidos.”
 
 Kaj mi vidis. Bela, granda, ora boato, kiu alproksimiĝis al ni sur la rivero kun nigre vestitaj viroj ĉe la remiloj. Multaj remiloj, pli ol mi kapablis nombri, kaj la remiloj brilis en la sunlumo ĉiufoje, kiam oni levis ilin el al akvo. La remistoj devis forte labori. Estis multaj kirlakvoj, kiuj fortiris la boaton. Eble estis la suĉoforto de akvofalo pli malsupre en la rivero, ĉar mi aŭdis bruon kiel de grandaj torentoj malproksimaj.
 
-”Vi aŭdas la Karma-falon,” diris Matiaso, kiam mi deman-
-
-dis lin. ”La kanto pri la Karma-falo estas nia lulkanto tie ĉi en la Dornrozo-valo, kiun la infanetoj aŭskultas, kiam ili endormiĝas.”
+”Vi aŭdas la Karma-falon,” diris Matiaso, kiam mi demandis lin. ”La kanto pri la Karma-falo estas nia lulkanto tie ĉi en la Dornrozo-valo, kiun la infanetoj aŭskultas, kiam ili endormiĝas.”
 
 Mi pensis pri la infanoj en la Dornrozo-valo. Tie ĉi ĉe la bordo de la rivero ili en pli frua tempo ĉirkaŭkuris ludante, kaj ili plaŭdis en la akvo kaj ĝojis. Nun ili ne plu povis tion fari. Pro la muro, la malesperiga muro, kiu enfermis ĉion. En tiu longa muro troviĝis nur du pordegoj; tiu, tra kiu mi venis
 
@@ -3068,9 +2502,7 @@ Mi pensis pri la infanoj en la Dornrozo-valo. Tie ĉi ĉe la bordo de la rivero 
 
 Kruela kiel serpento, Jonatano diris, kaj tiel li aspektis, absolute kruela kaj sangosoifa. La vestaĵo, kiun li portis, estis ruĝa kiel sango, ankaŭ lia kaskotufo estis ruĝa, kvazaŭ li trempis
 
-ĝin en sangon. Liaj okuloj fikse antaŭen rigardis, li ne vidis la 105
-
-LA FRATOJ LEONKORO
+ĝin en sangon. Liaj okuloj fikse antaŭen rigardis, li ne vidis la
 
 
 homojn, kvazaŭ neniu alia ekzistis en la mondo — neniu alia ol Tengo de Karmanjaka. Jes, li estis timiga!
@@ -3093,24 +2525,15 @@ Longtempe ili tiel sidis. ĉirkaŭ ili soldatoj gardestaris; tenganoj kun nigraj
 
 diras ion alian.”
 
-Efektive li mem ne parolis, Tengo. Por li ne konvenis paroli al sklavoj. Li parolis nur al Pjuko, kaj Pjuko devis informi nin, kiel malkontenta esas Tengo pri la homoj en la Dornrozo-106
+Efektive li mem ne parolis, Tengo. Por li ne konvenis paroli al sklavoj. Li parolis nur al Pjuko, kaj Pjuko devis informi nin, kiel malkontenta esas Tengo pri la homoj en la Dornrozovalo. Ili tro maldiligente laboras, kaj ili protektas la malami-kojn de Tengo.
 
-LA FRATOJ LEONKORO
-
-
-valo. Ili tro maldiligente laboras, kaj ili protektas la malami-kojn de Tengo.
-
-”Leonkoron oni ankoraŭ ne trovis,” diris Pjuko. ”Nia favo-
-
-ra moŝto malkontentegas pri tio.”
+”Leonkoron oni ankoraŭ ne trovis,” diris Pjuko. ”Nia favora moŝto malkontentegas pri tio.”
 
 ”Jes, tion mi komprenas, tion mi komprenas,” mi aŭdis iun
 
 murmuri tuj apud mi. Tie staris malriĉulo ĉifone vestita. Maljunulo kun tufaj haroj kaj griza tufa barbo.
 
-”La pacienco de nia favora moŝto baldaŭ elĉerpiĝos,” vo-
-
-kis Pjuko, ”kaj li forte kaj senindulge punos la Dornrozo-valon.”
+”La pacienco de nia favora moŝto baldaŭ elĉerpiĝos,” vokis Pjuko, ”kaj li forte kaj senindulge punos la Dornrozo-valon.”
 
 ”Jes, li pravas, jes, li pravas ,” plendepepis la maljunulo apud mi, kaj mi komprenis, ke li devas esti idioto, iu, kiu ne estis tute mense sana.
 
@@ -3118,9 +2541,7 @@ kis Pjuko, ”kaj li forte kaj senindulge punos la Dornrozo-valon.”
 
 moŝto ankoraŭ iom atendos, antaŭ ol li efektivigos la punon, kaj li eĉ ofertos premion. Dudek blankajn ĉevalojn tiu ricevos, kiu kaptos Leonkoron por li.”
 
-”Tiam mi kaptos tiun vulpon,” diris la maljunulo kaj ku-
-
-butpuŝis min. ”Dudek blankajn ĉevalojn mi tiam ricevos de
+”Tiam mi kaptos tiun vulpon,” diris la maljunulo kaj kubutpuŝis min. ”Dudek blankajn ĉevalojn mi tiam ricevos de
 
 nia favora moŝto, ho, estas bona pago por tia vulpeto.”
 
@@ -3133,9 +2554,6 @@ Li ridis.
 ”Ne, ne tre multe,” li reflustris. Nun li rigardis min rekte en la vizaĝon, kaj mi rekonis liajn okulojn. Tiel belajn, brilantajn okulojn nur Jonatano havis.
 
 Vere li tute ne estis prudenta. Kiel li havis kuraĝon, veni tien ĉi ĝuste antaŭ la nazon de Tengo? Sed kompreneble neniu kapablis rekoni lin. Eĉ ne Matiaso.
-
-
-LA FRATOJ LEONKORO
 
 
 Nur kiam Jonatano frapis lian dorson kaj diris:
@@ -3164,12 +2582,7 @@ Regis mortsilento sur la placo, kiam Tengo fingromontris.
 
 Nur birdeto sidis plej alte en la arbo super li kaj kantis kaj trilis plenvoĉe, sen scii pri tio, kion Tengo estis faranta sub la tilio.
 
-Sed ankaŭ aŭdiĝis la plorado. Estis mizere aŭdi, kiel ili plo-108
-
-LA FRATOJ LEONKORO
-
-
-ris, ĉiuj virinoj, kiuj perdos siajn edzojn kaj ĉiuj infanoj, kiuj neniam plu vidos siajn patrojn. Verdire ĉiuj ploris. Ankaŭ mi.
+Sed ankaŭ aŭdiĝis la plorado. Estis mizere aŭdi, kiel ili ploris, ĉiuj virinoj, kiuj perdos siajn edzojn kaj ĉiuj infanoj, kiuj neniam plu vidos siajn patrojn. Verdire ĉiuj ploris. Ankaŭ mi.
 
 Tengo, li ne aŭdis la ploradon. Li sidis sur sia ĉevalo kaj montris kaj montris, kaj la diamanto sur lia montro-fingro ekfulmis ĉiufoje, kiam li kondamnis iun al morto. Estis terure, li mortigis homojn nur per sia montro-fingro!
 
@@ -3185,13 +2598,9 @@ kaj la soldato, kiu staris plej proksime, levis sian glavon. Mi vidis, kiel ĝi 
 
 ĉiuj funebris en la Dornrozo-valo tiun tagon. ĉiuj malĝojis.
 
-ĉiuj krom la soldatoj de Tengo. Male ili ĝojis ĉiun fojon, kiam Tengo venis al la Dornrozo-valo, ĉar tiam li aranĝis orgiojn por siaj tenganoj. Apenaŭ sekiĝis la sango de tiu kompatin-dulo, kiu estis mortigita sur la placo, kiam oni starigis tie grandajn ujojn da biero kaj rostis porkojn sur stangoj, tiel ke la odoro dense kovris la Dornrozo-valon. ĉiuj tenganoj man-
+ĉiuj krom la soldatoj de Tengo. Male ili ĝojis ĉiun fojon, kiam Tengo venis al la Dornrozo-valo, ĉar tiam li aranĝis orgiojn por siaj tenganoj. Apenaŭ sekiĝis la sango de tiu kompatin-dulo, kiu estis mortigita sur la placo, kiam oni starigis tie grandajn ujojn da biero kaj rostis porkojn sur stangoj, tiel ke la odoro dense kovris la Dornrozo-valon. ĉiuj tenganoj manĝis kaj trinkis kaj fanfaronis pri Tengo, kiu donis al ili tiom da bonaĵoj.
 
-ĝis kaj trinkis kaj fanfaronis pri Tengo, kiu donis al ili tiom da bonaĵoj.
-
-”Sed estas la porkoj de la Dornrozo-valo, kiujn ili voras, la 109
-
-LA FRATOJ LEONKORO
+”Sed estas la porkoj de la Dornrozo-valo, kiujn ili voras, la
 
 
 banditoj,” diris Matiaso, ”kaj la biero de la Dornrozo-valo, kiun ili trinkaĉas.”
@@ -3202,9 +2611,7 @@ la viktimoj, li reveturis trans la riveron.
 
 ”Kaj nun li certe sidas kontenta en sia fortikaĵo kaj opini-as, ke li per teroro paralizas la Dornrozo-valon,” diris Jonatano, kiam ni hejmeniris. ”Li certe pensas, ke nun ekzistas tie ĉi nur timigitaj servutuloj.”
 
-”Sed li eraras,” diris Matiaso. ”Tio, kion Tengo ne kom-
-
-prenas, estas, ke li neniam povos subigi homojn, kiuj batalas por sia libereco, kaj kiuj komune agas tiel kiel ni.”
+”Sed li eraras,” diris Matiaso. ”Tio, kion Tengo ne komprenas, estas, ke li neniam povos subigi homojn, kiuj batalas por sia libereco, kaj kiuj komune agas tiel kiel ni.”
 
 Ni pasis dometon ĉirkaŭitan de pomarboj, kaj Matiaso
 
@@ -3225,18 +2632,13 @@ Pro multaj agoj minacis mortpuno en la Dornrozo-valo.
 Sed la plej grava krimo estis posedi armilojn. Tio estis pli mal-permesita ol io alia. La soldatoj de Tengo kontrolante ĉirkaŭiris en domoj kaj bienoj kaj serĉis kaŝitajn arkojn kaj kaŝitajn glavojn kaj lancojn. Sed neniam ili trovis ion. Tamen ne ekzistas eĉ unu domo aŭ unu bieno, kie oni ne kaŝas armilojn por tiu batalo, kiu fine devos okazi, diris Jonatano.
 
 
-LA FRATOJ LEONKORO
-
-
 Tengo promesis blankajn ĉevalojn kiel premion al tiuj, kiuj malkovris armilajn kaŝejojn.
 
 ”Kiel stulte,” diris Matiaso. ”ĉu vere li opinias, ke eĉ unu perfidulo troviĝas en la Dornrozo-valo!”
 
 ”Ne, estas perfidulo nur en la ĉerizo-valo,” diris Jonatano malgaje. Jes, mi ja sciis, ke estas Jonatano, kiu iris apud mi, sed estis malfacile tion kredi, ĉar li aspektis tute fremde kun longa barbo kaj ĉifonitaj vestoj.
 
-”Joso ne vidis tion, kion ni vidis de krueleco kaj subpre-
-
-mo,” diris Matiaso.
+”Joso ne vidis tion, kion ni vidis de krueleco kaj subpremo,” diris Matiaso.
 
 ”Alie li ne kapablus agi tiel.”
 
@@ -3244,16 +2646,11 @@ mo,” diris Matiaso.
 
 ”Ni devas esperi ke jes,” diris Matiaso. ”Kaj ke Sofia jam haltigis tiun Joson.”
 
-Kiam ni hejmenvenis al Matias-bieno, ni vidis Dikan Do-
-
-dikon, kiu kuŝis sur la herbejo kaj ludis per ĵetkuboj kun tri aliaj tenganoj. Ili havis liberan tagon, mi imagis, ĉar ili kuŝis tie inter la dornroz-arbustoj dum la tuta posttagmezo. Ni povis ilin vidi tra la kuireja fenestro. Ili ludis ĵetkubojn kaj manĝis lardon kaj trinkis bieron, kiun ili portis de la placo —
+Kiam ni hejmenvenis al Matias-bieno, ni vidis Dikan Dodikon, kiu kuŝis sur la herbejo kaj ludis per ĵetkuboj kun tri aliaj tenganoj. Ili havis liberan tagon, mi imagis, ĉar ili kuŝis tie inter la dornroz-arbustoj dum la tuta posttagmezo. Ni povis ilin vidi tra la kuireja fenestro. Ili ludis ĵetkubojn kaj manĝis lardon kaj trinkis bieron, kiun ili portis de la placo —
 
 tutajn sitelojn plenajn. Iom post iom ili ne plu kapablis ludi per ĵetkuboj. Tiam ili manĝis lardon kaj trinkis bieron. Poste ili nur drinkis, kaj fine ili faris nenion plu, nur rampis unu ĉirkaŭ la alia kiel skaraboj inter la arbustoj, ĝis ili ĉiuj kvar endormiĝis. Iliaj forĵetitaj kaskoj kaj manteloj kuŝis sur la herbo. Neniu kapablas trinki bieron vestita per dika lana mantelo dum varma tago.
 
 ”Sed se Tengo tion scius, ili estus vipataj,” diris Jonatano.
-
-
-LA FRATOJ LEONKORO
 
 
 Poste li malaperis tra la pordo, kaj antaŭ ol mi povis ekti-mi, li jam revenis kun mantelo kaj kasko.
@@ -3268,9 +2665,7 @@ esti, ke venos momento, kiam mi bezonos ilin.”
 
 grumblis Matiaso.
 
-Sed Jonatano rapide demetis siajn ĉifonaĵojn kaj sian bar-
-
-bon kaj surmetis kaskon kaj mantelon, kaj tie li staris aspekt-ante ĝuste kiel tengano. Estis terure! Matiaso tremis kaj petegis lin, kaŝi la diablaĵojn en la kaŝejon.
+Sed Jonatano rapide demetis siajn ĉifonaĵojn kaj sian barbon kaj surmetis kaskon kaj mantelon, kaj tie li staris aspekt-ante ĝuste kiel tengano. Estis terure! Matiaso tremis kaj petegis lin, kaŝi la diablaĵojn en la kaŝejon.
 
 Kaj tion Jonatano faris.
 
@@ -3301,9 +2696,6 @@ Li longe rigardis min, kaj poste li ridetis.
 ”Jes, se vi vere deziras tion, ankaŭ mi tion deziras ,” li diris.
 
 
-LA FRATOJ LEONKORO
-
-
 La soldatoj de Tengo forte vigliĝis post tiom da lardo kaj biero. ĉiu el ili deziris tiujn dudek blankajn ĉevalojn, kaj ili komencis freneze serĉi Jonatanon. Ili serĉegis lin de mateno ĝis nokto, traserĉis ĉiun domon en la valo. ĉiu anguleto estis traserĉita. Jonatano devis resti en la kaŝejo, ĝis kiam li preskaŭ sufokiĝis.
 
 Vedero kaj Kadero ĉirkaŭrajdis kaj laŭtlegis proklamon pri mia frato. Mi kaptis la okazon aŭskulti pri ”la malamiko de Tengo, Jonatano Leonkoro, kiu sen permeso transpasis la muron kaj kies restadloko en la Dornrozo-valo ankoraŭ estas
@@ -3325,24 +2717,17 @@ danki lin pro ĉio, kion li faris por ili, kio verŝajne estis multe pli ol mi s
 ”Tion vi bezonos, ĉar estas malfacila kaj danĝera vojaĝo,
 
 
-LA FRATOJ LEONKORO
-
-
 kiun vi entreprenos,” ili diris, kaj poste ili rapidis for por aŭskulti Vederon kaj Kaderon ankoraŭfoje. Nur por amuzo!
 
 Soldatoj venis ankaŭ al Matias-bieno. Mi sidis timplene sur seĝo en la kuirejo, kiam ili enpasis, kaj mi ne kuraĝis movi min. Sed Matiaso estis aŭdaca.
 
-”Kion vi serĉas?” li demandis. ”ĉu ankoraŭ tiun Leonko-
-
-ron? Mi ne kredas, ke li ekzistas. Estas iu, kiun vi inventis por doni pretekston ĉirkaŭiri kaj malordigi niajn hejmojn.”
+”Kion vi serĉas?” li demandis. ”ĉu ankoraŭ tiun Leonkoron? Mi ne kredas, ke li ekzistas. Estas iu, kiun vi inventis por doni pretekston ĉirkaŭiri kaj malordigi niajn hejmojn.”
 
 Kaj ekzakte tion ili faris. Ili komencis en la dormoĉambro.
 
 Tie ili ĵetis ĉiujn litkovrilojn sur la plankon. Poste ili traserĉis la ŝrankon, kiu staris tie. ĉion, kio troviĝis en ĝi, ili elĵetis. Tio estis tute stulta ago. ĉu vere ili pensis, ke Jonatano kaŝis sin en ŝranko?”
 
-”ĉu vi ne ankaŭ volas rigardi en la ŝranketon de la nokto-
-
-vazo?” demandis
+”ĉu vi ne ankaŭ volas rigardi en la ŝranketon de la noktovazo?” demandis
 
 Matiaso. Sed tiam ili koleriĝis.
 
@@ -3350,9 +2735,7 @@ Kaj poste ili envenis en la kuirejon kaj atakis la ŝrankon, kaj mi sidis sur mi
 
 La ŝranko estis plenigita per malnovaj vestoj kaj ŝaflano kaj similaj aĵoj por obtuzigi la sonojn de la kaŝejo, kaj ĉiujn aĵojn ili elĵetis sur la plankon de la kuirejo.
 
-Kaj poste! Poste mi volis krii, tiel ke la domo disfalus, jes, ĉar unu el ili metis la ŝultron kontraŭ la ŝranko por flankenŝo-vi ĝin. Sed neniu krio elvenis el mi. Mi sidis kvazaŭ ŝtonigita sur mia seĝo kaj fortege malamis lin; ĉion de li, liajn fortikajn manojn kaj dikan nukon kaj tiun verukon, kiun li havis sur la 114
-
-LA FRATOJ LEONKORO
+Kaj poste! Poste mi volis krii, tiel ke la domo disfalus, jes, ĉar unu el ili metis la ŝultron kontraŭ la ŝranko por flankenŝo-vi ĝin. Sed neniu krio elvenis el mi. Mi sidis kvazaŭ ŝtonigita sur mia seĝo kaj fortege malamis lin; ĉion de li, liajn fortikajn manojn kaj dikan nukon kaj tiun verukon, kiun li havis sur la
 
 
 frunto! Mi malamis lin, ĉar mi sciis, ke nun li trovos la por-deton de la kaŝejo, kaj tio signifos finon de Jonatano.
@@ -3371,9 +2754,7 @@ Li kun la veruko koleregis.
 
 Sed Matiaso ne estis timigita.
 
-”ĉu almenaŭ vi ne reordigos la domon?” li vokis. ”Rigar-
-
-du, ĝi aspektas kiel porkejo!”
+”ĉu almenaŭ vi ne reordigos la domon?” li vokis. ”Rigardu, ĝi aspektas kiel porkejo!”
 
 Tiu postulo rapide forigis ilin.
 
@@ -3392,16 +2773,11 @@ Matiaso blovis sur siajn fingropintojn.
 ”Sed oni bruligas la fingrojn, kiam oni elprenas ardantan
 
 
-LA FRATOJ LEONKORO
-
-
 karbon el la forno per la nudaj fingroj. Sed tio ne estis la fino de niaj zorgoj.”
 
 Ili serĉis Jonatanon ankaŭ en la stalo, kaj poste li kun la veruko venis al Matiaso kaj diris:
 
-”Vi havas du ĉevalojn, maljunulaĉo! Neniu en la Dornro-
-
-zo-valo rajtas havi pli ol unu, tion vi scias! Ni sendos viron de la alia flanko vespere. Li prenos tiun kun la blanka marko.
+”Vi havas du ĉevalojn, maljunulaĉo! Neniu en la Dornrozo-valo rajtas havi pli ol unu, tion vi scias! Ni sendos viron de la alia flanko vespere. Li prenos tiun kun la blanka marko.
 
 Tiun vi donu al Tengo.”
 
@@ -3425,9 +2801,7 @@ Li kun la veruko aperigis etan lignopecon el la poŝo kaj tenis ĝin sub la nazo
 
 Sed tiam la soldato minacis lin per nuda glavo.
 
-”Tion vi tutcerte sentas,” li diris. ”Vi sentas grandan ĝojon, kaj jen la loko por via marko. Kaj vi donos la lignopecon al tiu, kiu alvenos de Karmanjaka por preni la ĉevalon, ĉar Tengo volas havi pruvon, ke vi libervole donis, ĉu vi komprenas, 116
-
-LA FRATOJ LEONKORO
+”Tion vi tutcerte sentas,” li diris. ”Vi sentas grandan ĝojon, kaj jen la loko por via marko. Kaj vi donos la lignopecon al tiu, kiu alvenos de Karmanjaka por preni la ĉevalon, ĉar Tengo volas havi pruvon, ke vi libervole donis, ĉu vi komprenas,
 
 
 maljunulo?” li diris kaj puŝis Matiason tiel, ke li preskaŭ falis.
@@ -3456,25 +2830,18 @@ Mi ne komprenis, kial li tiel ĝojis pro la pasvortoj, ĉar li tamen ne trairos 
 
 meze en mia malfeliĉo, ĉar mi kapablis gajigi lin per tia eta informo.
 
-Matiaso eniris la dormoĉambron por ordigi ĝin, kaj Jona-
-
-tano postkuris lin. Ili mallaŭte interparolis. Mi ne multon aŭ-
+Matiaso eniris la dormoĉambron por ordigi ĝin, kaj Jonatano postkuris lin. Ili mallaŭte interparolis. Mi ne multon aŭ-
 
 dis, nur ke Jonatano diris:
 
 ”Se mi malsukcesos, vi prizorgu mian fraton, ĉu ne?”
 
 
-LA FRATOJ LEONKORO
-
-
 Poste li revenis al mi.
 
 ”Aŭskultu, Biskoto,” li diris. ”Mi prenos mian pakaĵon kaj iros. Kaj vi atendos tie ĉi ĉe Matiaso, ĝis vi aŭdos de mi. Tio eble daŭros longe, ĉar mi devos aranĝi kelkajn aferojn.”
 
-Ho, kiel mi malŝatis tion! Neniam mi eltenis atendadi Jo-
-
-natanon. Precipe kiam mi devas timi dumtempe. Kaj nun mi
+Ho, kiel mi malŝatis tion! Neniam mi eltenis atendadi Jonatanon. Precipe kiam mi devas timi dumtempe. Kaj nun mi
 
 timis, ĉar kiu scias, kio eble okazos al Jonatano ĉe la alia flanko de la muro? Kion li intencis fari? Kio eble malsukcesos?
 
@@ -3502,10 +2869,7 @@ Estis malhele en la stalo. La fenestro estis eta kaj ne enla-sis tre multe da lu
 
 ”Tamen eble estas mia kulpo,” mi diris kaj ploris. ”Se mi
 
-estus restinta en la ĉerizo-valo, tiam Tengo neniam kaptus 118
-
-
-LA FRATOJ LEONKORO
+estus restinta en la ĉerizo-valo, tiam Tengo neniam kaptus
 
 
 vin. Pardonu al mi Fjalaro, pardonu! Sed ne restis io alia por fari.”
@@ -3516,15 +2880,11 @@ molan nazon kontraŭ mia orelo. Estis kvazaŭ li volis, ke mi ne ploru.
 
 Sed mi ploris. Mi staris tie apud li kaj ploris kaj ploris, ĝis kiam ne plu restis larmoj en mi. Poste mi striglis lin, kaj poste li ricevis la restaĵon de la aveno, jes, li devis kompreneble dividi kun Grimo.
 
-Teruraj pensoj trafulmis mian kapon, kiam mi striglis Fja-
-
-laron. Mortu tiu viro, kiu prenos mian ĉevalon, mi pensis.
+Teruraj pensoj trafulmis mian kapon, kiam mi striglis Fjalaron. Mortu tiu viro, kiu prenos mian ĉevalon, mi pensis.
 
 Mortu li, antaŭ ol li transiros la riveron! Estis terure deziri tion. Vere estis! Kaj certe ne helpis.
 
-Tute ne, li certe jam estas sur la pramo, mi pensis, tiu pramo, per kiu ili fortransportas ĉiujn siajn ŝtelaĵojn. Eble li jam albordiĝis. Eble li ĝuste nun trapasas tiun grandan pordegon, 119
-
-LA FRATOJ LEONKORO
+Tute ne, li certe jam estas sur la pramo, mi pensis, tiu pramo, per kiu ili fortransportas ĉiujn siajn ŝtelaĵojn. Eble li jam albordiĝis. Eble li ĝuste nun trapasas tiun grandan pordegon,
 
 
 kaj alvenos tien ĉi en la sekvanta momento. Ho, Fjalaro, se ni povus fuĝi ien, vi kaj mi!
@@ -3533,9 +2893,7 @@ Dum mi tiel meditis, iu malfermis la stalpordon, kaj mi
 
 ekkriis, ĉar mi ege ektimis. Sed estis Matiaso. Li sin demandis, pri kio mi okupis min tiom longe. Mi estis kontenta, ke estis mallume en la stalo. Mi ne volis, ke li vidu, ke mi denove ploris. Tamen li tion komprenis, ĉar li diris:
 
-”Knabeto, se mi nur povus ion fari! Sed nun neniu avo po-
-
-vas helpi. Ploru nur!”
+”Knabeto, se mi nur povus ion fari! Sed nun neniu avo povas helpi. Ploru nur!”
 
 En tiu momento mi vidis tra la fenestro malantaŭ li, ke iu lproksimiĝas al la Matias-bieno. Tengano! Li, kiu prenos Fjalaron!
 
@@ -3552,9 +2910,6 @@ Sed tuj li estis apud mi kaj ĉirkaŭbrakis min. Tion Jonatano faris! ĉar estis
 kontraŭstaris. Li tiris min al la fenestro, por ke mi bone vidu lin. Tamen mi apenaŭ kredis, ke estas Jonatano. Oni tute ne kapablis rekoni lin. ĉar li estis tiel malbela. Eĉ pIi malbela ol mi kaj tute ne iu ”mirinde belaspekta junulo”. La haroj pendis en malsekaj fasketoj ĉirkaŭ li kaj ne brilis kiel oro, kaj li havis pecon da maĉtabako sub la supra lipo. Mi ne sciis, ke homo povas tiel malbeliĝi per tiel malmulte da rimedoj. Li aspektis vere stulte. Mi estus ridinta, se estus estinta tempo por tio. Sed evidente Jonatano eĉ ne sekundon volis perdi.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Rapide, rapide,” li diris, ”mi devas tuj foriri. Tiu ulo el Karmanjaka povos alveni ĉiumomente.”
 
 Li etendis la manon al Matiaso.
@@ -3565,9 +2920,7 @@ Li etendis la manon al Matiaso.
 
 ”Tion mi montros ĉe la pordego,” li diris. ”Tiel la ĉefgardisto scios, ke mi ne mensogas.”
 
-Rapidege ĉio okazis. Ni urĝege selis la ĉevalojn, dum Jo-
-
-natano rakontis, kiel li pasis la Grandan Pordegon. ĉar Matiaso volis tion aŭdi.
+Rapidege ĉio okazis. Ni urĝege selis la ĉevalojn, dum Jonatano rakontis, kiel li pasis la Grandan Pordegon. ĉar Matiaso volis tion aŭdi.
 
 ”Estis tute simple,” diris Jonatano. ”Mi donis la pasvortojn, kiujn Biskoto instruis al mi- ”ĉiu potenco al Tengo, nia Liberiganto’ — kaj poste demandis la ĉefgardisto: ”De kie vi venas, kien vi iros, kaj kio estas via tasko?’ ”De Karmanjaka al la Matias-bieno por preni du ĉevalojn al Tengo’, mi respondis. ”Pasu!’ li diris. ”Dankon’, mi diris. Kaj jen mi! Sed mi devos eliri tra la pordego, antaŭ ol tiu anoncita tengano venos kaj volos eniri, ĉar alie fariĝos danĝere.”
 
@@ -3584,14 +2937,9 @@ Jonatano svingis la manon al mi.
 ”Tion Matiaso rakontos al vi,” li revokis.
 
 
-LA FRATOJ LEONKORO
-
-
 Kaj tie mi staris kaj rigardis post li kaj estis malgaja. Sed Matiaso klarigis al mi.
 
-”ĉu vi ne komprenas, ke ili neniam lasos vin tra la Gran-
-
-da Pordego?” li demandis. ”Vi devos rampi tra la tunelo tuj kiam malheliĝos. Tiam Jonatano estos tie ĉe la alia flanko kaj atendos vin.”
+”ĉu vi ne komprenas, ke ili neniam lasos vin tra la Granda Pordego?” li demandis. ”Vi devos rampi tra la tunelo tuj kiam malheliĝos. Tiam Jonatano estos tie ĉe la alia flanko kaj atendos vin.”
 
 ”ĉu vere tio estas certa?” mi demandis.
 
@@ -3619,23 +2967,16 @@ Unue li kriis kaj riproĉis kaj koleris same kiel ĉiuj aliaj tenganoj, ĉar est
 
 ”Ne provu trompi min!” diris Matiaso. ”Unu ĉevalon ni
 
-rajtas havi, tion vi bone scias. La alian iu jam forprenis kaj pro 122
+rajtas havi, tion vi bone scias. La alian iu jam forprenis kaj pro
 
 
-LA FRATOJ LEONKORO
-
-
-tio ricevis mian posedmarkon. ĉu estas mia kulpo, ke oni fu-
-
-ŝis la aferon, tiel ke unu stultulo ne scias, kion faras la alia?”
+tio ricevis mian posedmarkon. ĉu estas mia kulpo, ke oni fuŝis la aferon, tiel ke unu stultulo ne scias, kion faras la alia?”
 
 Kelkaj tenganoj koleriĝis, kiam Matiaso tiel arogante traktis ilin, sed kelkaj iĝis humilaj kaj obeemaj. Li, kiu venis por preni Fjalaron, tuj cedis.
 
 ”Evidente okazis iu eraro,” li diris kaj foriris laŭ la pado kiel hundo kun la vosto inter la gamboj.
 
-”Matiaso, ĉu neniam vi timas?” mi demandis, kiam la ten-
-
-gano ne plu videblis.
+”Matiaso, ĉu neniam vi timas?” mi demandis, kiam la tengano ne plu videblis.
 
 ”Jes, certe mi timas,” respondis Matiaso. ”Sentu, kiel mia koro batas,” li diris, kaj li prenis mian manon kaj metis ĝntraŭ sia brusto. ”Ni ĉiuj timas,” li diris. ”Sed kutime oni ne montru tion.”
 
@@ -3650,17 +2991,11 @@ Kaj mi estis sola en la subtera trairejo. Mi rampis tra la longa, malhela tunelo
 tempon por resti trankvila kaj ne tro timi.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Ne, ne gravas, ke estas tiel nigre kiel karbo, ne, vi tutcerte ne sufokiĝos, jes, iom da tero falas en vian nukon, sed tio ne signifas, ke la tuta tunelo falas sur vin, vi stultulo. Ne, ne, Dodiko ne povos vidi vin, kiam vi aperos; li ne estas kato, kiu kapablas vidi en la malhelo. Jes, certe Jonatano estos tie kaj atendos vin, aŭskultu, li estos tie, vi ja aŭdas kion mi diras. Li estos. Li estos.”
 
 Kaj li estis. Li sidis tie sur ŝtono en la malhelo, kaj iom fore staris Grimo kaj Fjalaro sub arbo.
 
 ”Nu, Karlo Leonkoro,” li diris, ”nun vi finfine venas!”
-
-
-LA FRATOJ LEONKORO
 
 
 Ni dormis sub piceo tiun nokton, kaj ni vekiĝis frue en la matena krepusko.
@@ -3679,13 +3014,9 @@ Jonatano rigardis min kaj iom ridetis.
 
 Jes, kia konsolo estis tio! Sed subite la suno ekbrilis, kaj la nebulo malaperis.
 
-La birdoj ekkantis en la arbaro, ĉio malĝojiga kaj malkura-
+La birdoj ekkantis en la arbaro, ĉio malĝojiga kaj malkuraĝiga forflugis samtempe, kaj la danĝero ne plu ŝajnis tiel minaca. Krome mi sentis min pli varma. La sunbrilo baldaŭ varmigis ĉion. Mi sentis, ke ĉio iĝas pli bona, preskaŭ tute bona.
 
-ĝiga forflugis samtempe, kaj la danĝero ne plu ŝajnis tiel minaca. Krome mi sentis min pli varma. La sunbrilo baldaŭ varmigis ĉion. Mi sentis, ke ĉio iĝas pli bona, preskaŭ tute bona.
-
-Certe ankaŭ Grimo kaj Fjalaro bonsentis. Ili estis liberigitaj el 125
-
-LA FRATOJ LEONKORO
+Certe ankaŭ Grimo kaj Fjalaro bonsentis. Ili estis liberigitaj el
 
 
 sia malhela stalo kaj denove povis sin paŝti per freŝa, verda herbo. Tion ili ŝatas, mI pensis.
@@ -3704,22 +3035,15 @@ apude. Sed la elirejo ne plu videblis. Jonatano kovris ĝin per branĉetoj. Li i
 
 Poste li silentis. Kaj ni surseliĝis kaj silente rajdis for.
 
-Tuj poste kolombo venis fluganta super la pintoj de la ar-
+Tuj poste kolombo venis fluganta super la pintoj de la arboj. Unu el la blankaj kolomboj de Sofia.
 
-boj. Unu el la blankaj kolomboj de Sofia.
-
-”Jen Paloma,” diris Jonatano, sed mi ne komprenas, kiama-
-
-niere li povis rekoni ŝin de tia distanco.
+”Jen Paloma,” diris Jonatano, sed mi ne komprenas, kiamaniere li povis rekoni ŝin de tia distanco.
 
 Ni longe estis atendintaj aŭdi ion de Sofia. Nun finfine venis ŝia kolombo, nun, kiam ni jam estis ekster la muro. ŝi flugis rekte al la Matias-bieno. Baldaŭ ŝi sidiĝos ĉe la kolombe-jo ekster la stalo, sed tiam nur Matiaso estos tie por legi ŝian mesaĝon.
 
 Tio ĉagrenis Jonatanon.
 
 ”Se nur tiu kolombo estus veninta hieraŭ,” li diris. ”Tiam mi scius nun, kion mi devas scii.”
-
-
-LA FRATOJ LEONKORO
 
 
 Sed nun ni devis rajdi for de la Dornrozo-valo kaj de la
@@ -3730,9 +3054,7 @@ muro kaj for de la tenganoj, kiuj ĉasis Jonatanon.
 
 ”Kaj tie, Karlo, tie vi vidos akvofalon, tian, kian vi eĉ en sonĝo neniam povus imagi.”
 
-”Ne povus imagi eĉ en sonĝo!” mi diris. ”Mi ja entute ne-
-
-niam vidis altajn akvofalojn.”
+”Ne povus imagi eĉ en sonĝo!” mi diris. ”Mi ja entute neniam vidis altajn akvofalojn.”
 
 Mi vere ne multon vidis, antaŭ ol mi venis al Nangijala.
 
@@ -3750,9 +3072,7 @@ Venis fumo el la kamentubo kaj ekstere paŝtis sin kelkaj kaprinoj.
 
 ”ĉi tie Elfrida loĝas,” diris Jonatano. ”ŝi certe donos al ni iom da kaprina lakto, kiam ni petos ŝin.”
 
-Kaj ni ricevis lakton, tiom multe, kiom ni volis havi. Estis bone, ĉar ni jam longe rajdis kaj ankoraŭ nenion manĝis. Sur 127
-
-LA FRATOJ LEONKORO
+Kaj ni ricevis lakton, tiom multe, kiom ni volis havi. Estis bone, ĉar ni jam longe rajdis kaj ankoraŭ nenion manĝis. Sur
 
 
 la ŝtuparo antaŭ la pordo de Elfrida ni sidis kaj trinkis ŝian kaprinan lakton kaj manĝis de tiu pano, kiun ni havis en niaj dorsosakoj kaj kaprinan fromaĝon, kiun Elfrida donis al ni kaj manplenon da sovaĝaj fragoj, kiujn mi kolektis en la arbaro.
@@ -3767,9 +3087,7 @@ Elfrida, ŝi estis eta, dika, bonkora maljunulino, kiu loĝis tie sola kun la ka
 
 scii, ĉu ili ankoraŭ vivas. Jonatano devis rakonti. Li estis malgaja, kiam li tion faris. ĉar plejparte la novaĵoj estis tiaj, ke ili dolorigis la bonkoran maljunulinon.
 
-”Kial la homoj tiel devas suferi en mizero en la Dornrozo-
-
-valo,” diris Elfrida. ”Malbenita Tengo! Kaj Katla! ĉio estus eltenebla, se nur li ne havus Katlan.”
+”Kial la homoj tiel devas suferi en mizero en la Dornrozovalo,” diris Elfrida. ”Malbenita Tengo! Kaj Katla! ĉio estus eltenebla, se nur li ne havus Katlan.”
 
 ŝi tenis sian antaŭtukon antaŭ la okuloj kaj ploris. Mi ne eltenis tion vidi. Mi iris por trovi pli da fragoj. Sed Jonatano restis kaj longe parolis kun Elfrida.
 
@@ -3783,9 +3101,7 @@ Ni fine atingis la riveron en la forta meztaga varmego. La suno pendis kiel fajr
 
 La Rivero de la Praaj Riveroj torentis al la Karma-falo, tiel ke la ŝaŭmo kirliĝis kaj disŝprucis. ia potenca akvo impetis tien, kaj ni aŭdis la foran tondradon de la akvofalo.
 
-Ni volis iri malsupren al la akvo kaj freŝigi nin. Grimo kaj 128
-
-LA FRATOJ LEONKORO
+Ni volis iri malsupren al la akvo kaj freŝigi nin. Grimo kaj
 
 
 Fjalaro povis libere vagi en la arbaro por trovi rivereton, el kiu ili povis trinki. Sed ni volis nin bani en la rivero. Do, ni kuregis malsupren laŭ la kruta deklivo kaj jam komencis depreni la vestojn, dum ni kuris.
@@ -3803,9 +3119,6 @@ Dum mi sidis tie, mi hazarde rigardis supren al la deklivo, kaj mi ektimis. Veni
 Ankaŭ Jonatano vidis ilin, sed mi ne povis rimarki, ke li
 
 timis. Ni silente sidis tie kaj atendis, ke ili preterpasu. Sed tion ili ne faris. Ili haltis, deseliĝis, kvazaŭ ili intencas ripozi. Mi demandis Jonatanon:
-
-
-LA FRATOJ LEONKORO
 
 
 ”ĉu vi pensas, ke ili serĉas vin?”
@@ -3838,9 +3151,7 @@ Roko elstaris el la akvo iom distance de la bordo. La toren-to kirliĝis ĉirka�
 
 Perko jam demetis kaskon kaj mantelon kaj botojn, kaj li
 
-sidis sur la dorso de la ĉevalo, vestita nur per ĉemizo kaj pantalono kaj provis devigi la ĉevalon iri en la riveron. Eta, bela, nigra ĉevalino estis ĝi. Perko kriis kaj blasfemis kaj instigis, sed la ĉevalino ne volis. ŝi timis. Tiam li batis ŝin. Li ne havis 130
-
-LA FRATOJ LEONKORO
+sidis sur la dorso de la ĉevalo, vestita nur per ĉemizo kaj pantalono kaj provis devigi la ĉevalon iri en la riveron. Eta, bela, nigra ĉevalino estis ĝi. Perko kriis kaj blasfemis kaj instigis, sed la ĉevalino ne volis. ŝi timis. Tiam li batis ŝin. Li ne havis
 
 
 rajdbastonon. Li batis ŝin sur la kapon per la pugnoj kaj mi aŭdis, ke Jonatano plorsingultis same kiel tiam sur la placo.
@@ -3863,9 +3174,7 @@ Kaj poste Jonatano alvokis la ĉevalinon: ”Venu ĉevalineto, venu ĉi tien!”
 
 ŝi jam preterdrivis, sed ŝi faris furiozan provon atingi lin.
 
-Nun ŝi ne portis la pezulon Perko surdorse, tamen ŝi preskaŭ sinkis, sed iel Jonatano kaptis ŝian bridon kaj komencis tiri kaj 131
-
-LA FRATOJ LEONKORO
+Nun ŝi ne portis la pezulon Perko surdorse, tamen ŝi preskaŭ sinkis, sed iel Jonatano kaptis ŝian bridon kaj komencis tiri kaj
 
 
 haŭli. Estis lukto inter morto kaj vivo, ĉar la rivero ne volis perdi sian viktimon. i volis preni kaj la ĉevalinon kaj Jonatanon. Mi furioziĝis kaj kriis al Perko:
@@ -3892,11 +3201,7 @@ Tio estis terura loko, timiga kaj bela kiel neniu alia loko en ĉielo aŭ sur te
 
 ”Oni ne povas kredi, ke ĉio ĉi estas reala. Estas kiel io el pratempa sonĝo, ĉu ne?”
 
-Ni staris sur la ponto, tiu pendponto, kiun Tengo konstru-
-
-igis super la abismo, kiu dividis la landojn Karmanjaka kaj 132
-
-LA FRATOJ LEONKORO
+Ni staris sur la ponto, tiu pendponto, kiun Tengo konstruigis super la abismo, kiu dividis la landojn Karmanjaka kaj
 
 
 Nangijala, kiuj frontis unu la alian de la du flankoj de la Rivero de la Praaj Riveroj.
@@ -3905,9 +3210,7 @@ La rivero torentis profunde en la abismo sub la ponto, kaj poste ĝi sin ĵetis 
 
 Mi demandis Jonatanon:
 
-”Kiamaniere oni kapablas konstrui ponton super tiaj teru-
-
-raj abismoj?”
+”Kiamaniere oni kapablas konstrui ponton super tiaj teruraj abismoj?”
 
 ”Jes, tion ankaŭ mi dezirus scii,” li diris. ”Kaj kiom da ho-maj vivoj perdiĝis dum ĝia konstruo? Kiom da homoj falis
 
@@ -3921,31 +3224,22 @@ resoni inter la krutaj flankoj de la abismo.
 
 Ni nun estis tute proksimaj al la lando de Tengo. ĉe la alia flanko de la ponto mi vidis padon, kiu serpentumis supren
 
-inter la montoj. La Montoj de la Praaj Montoj en Karmanja-
-
-ka.
+inter la montoj. La Montoj de la Praaj Montoj en Karmanjaka.
 
 ”Se vi sekvos tiun padon, vi venos al la fortikaĵo de Tengo,”
 
 diris Jonatano.
 
-Mi eĉ pli timtremis. Sed mi pensis, ke okazu kio ajn mor-
-
-gaŭ — tiun ĉi vesperon mi tamen sidos ĉe subĉiela fajro kune kun Jonatano la unuan fojon en mia vivo.
+Mi eĉ pli timtremis. Sed mi pensis, ke okazu kio ajn morgaŭ — tiun ĉi vesperon mi tamen sidos ĉe subĉiela fajro kune kun Jonatano la unuan fojon en mia vivo.
 
 Ni faris la fajron sur roko alte super la falo. Proksime al la ponto. Sed mi sidis tiel, ke mi turnis la dorson kontraŭ ĉio. Mi volis vidi nek la ponton al la lando de Tengo nek ion alian. Mi nur vidis la lumon de la fajro, kiu flagris inter la rokoj. Estis bele kaj ankaŭ iom strange timige.
 
 Kaj mi vidis la belan, karan vizaĝon de Jonatano en la lumo de la fajro, kaj la ĉevalojn, kiuj staris ripozante iom pli fore.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Tio ĉi estas multe pli bela ol mia antaŭa subĉiela fajro,” mi diris. ”ĉar nun mi sidas tie ĉi kun vi, Jonatano!”
 
-Kie ajn mi estis, mi sentis min sekura, se nur Jonatano estis kun mi. Mi sentis min feliĉa, ke mi finfine povis ĝui sub-
-
-ĉielan fajron kune kun li, ĉar tiel ofte ni parolis pri tio, kiam ni vivis sur la tero.
+Kie ajn mi estis, mi sentis min sekura, se nur Jonatano estis kun mi. Mi sentis min feliĉa, ke mi finfine povis ĝui subĉielan fajron kune kun li, ĉar tiel ofte ni parolis pri tio, kiam ni vivis sur la tero.
 
 ”La tempo de la subĉielaj fajroj kaj de la fabeloj, ĉu vi memoras, ke vi tion diris?” mi demandis Jonatanon.
 
@@ -3978,14 +3272,9 @@ Jes tion mi scias, mi pensis. Kaj poste mi demandis lin:
 ”Jes, tiam ili estus kaptintaj Leonkoron kaj ne mizeran fiulon,” diris Jonatano.
 
 
-LA FRATOJ LEONKORO
-
-
 Nia fajro finbrulis kaj ekmalheliĝis super la montoj. Unue venis krepusko, kiu ĉion mildigis kaj afabligis kaj moligis. Sed poste nigra, muĝanta malhelo ĉirkaŭis nin, en kiu oni aŭdis nur la Karma-falon kaj ne vidis la plej etan lumeton ie ajn.
 
-Mi rampis kiel eble plej proksimen apud Jonatano. Ni si-
-
-dis tie apogante nntraŭ la monto kaj en la malhelo interparolis. Mi ne timis, sed kaptis min stranga maltrankvilo.
+Mi rampis kiel eble plej proksimen apud Jonatano. Ni sidis tie apogante nntraŭ la monto kaj en la malhelo interparolis. Mi ne timis, sed kaptis min stranga maltrankvilo.
 
 Jonatano diris, ke ni devus dormi. Sed mi sciis, ke mi ne povos dormi. Mi apenaŭ povis paroli pro tiu maltrankvilo. Ne pro la malhelo, sed pro io alia, kion mi ne komprenis, kvankam mi havis Jonatanon apud mi.
 
@@ -3998,15 +3287,6 @@ Tiam venis fulmego, pli terura ol ĉiuj aliaj, kiu momente
 ekflagris kaj ĵetis sian blindigan lumon super ĉion.
 
 Kaj en tiu lumego videblis Katla. JEN STARIS KATLA!
-
-
-LA FRATOJ LEONKORO
-
-
-LA FRATOJ LEONKORO
-
-
-LA FRATOJ LEONKORO
 
 
 Jes, mi vidis Katlan, sed mi ne scias, kio okazis poste. Mi nur dronis kiel en nigran profundon kaj vekiĝis nur, kiam la
@@ -4031,9 +3311,7 @@ Sed mi ploris kaj demandis lin:
 
 ”Kial ŝi ne mortigis Tengon?” mi demandis.
 
-”ĉar Tengo fuĝis por savi sian vivon tra la salonegoj de la 138
-
-LA FRATOJ LEONKORO
+”ĉar Tengo fuĝis por savi sian vivon tra la salonegoj de la
 
 
 fortikaĵo. Kiam ŝi alproksimiĝis, li prenis sian batalkornon por alvoki la soldatojn helpi, kaj kiam li blovis en la kornon … ”
@@ -4077,9 +3355,6 @@ Tie ŝi preskaŭ ĉiam staras kaj fiksrigardas malsupren en la Karma-falon.”
 ”Mi ne scias,” diris Jonatano. ”Eble ŝi serĉas Karmon.”
 
 
-LA FRATOJ LEONKORO
-
-
 ”Kiu estas Karmo?” mi demandis.
 
 ”A˛, nur estas babilado de Elfrida,” diris Jonatano. ”Neniu iam vidis Karmon. Li ne ekzistas. Sed Elfrida asertas, ke li loĝis en la Karma-falo iam en la praaj tempoj, kaj ke Katla malamis lin tiam, kaj ke ŝi neniam povas forgesi tion. Pro tio ŝi staras tie kaj minace rigardaĉas malsupren.”
@@ -4098,29 +3373,20 @@ Al tio li ne respondis, sed li diris:
 
 ”uste tion ankaŭ Elfrida opiniis,” diris Jonatano.
 
-Mi timtremis kaj havis la senton, ke Karmanjaka estas lan-
-
-do plena de monstroj, kaj mi ne volis iri tien. Sed nun mi devis.
+Mi timtremis kaj havis la senton, ke Karmanjaka estas lando plena de monstroj, kaj mi ne volis iri tien. Sed nun mi devis.
 
 Unue ni tamen fortigis nin el la manĝosako, sed ni ŝparis
 
 iom por Orvaro.
 
 
-LA FRATOJ LEONKORO
-
-
-ĉar en la Katla-kaverno nur regas malsatego, diris Jona-
-
-tano.
+ĉar en la Katla-kaverno nur regas malsatego, diris Jonatano.
 
 Grimo kaj Fjalaro trinkis pluvakvon, kiu kolektiĝis en la
 
 rokfendoj. Estis malmulte da paŝtaĵo por ili tie ĉi inter la montoj. Sed apud la ponto kreskis iom da herbo, tiel ke mi esperis, ke ili estos sufiĉe sataj, kiam ni ekiros.
 
-Ni rajdis trans la ponton. Al Karmanjaka, la lando de Ten-
-
-go kaj de la monstroj. Mi tiel timis, ke mi tremis. Tiu drakserpento, mi tute ne kredis, ke li ekzistas; sed imagu, se li tamen sin ĵetos el la profundo kaj fortiros nin de la ponto, por ke ni pereu en la Karma-falo. Kaj poste Katla, mi timis ŝin pli ol mi timis ion alian. Eble ŝi atendis nin nun sur la bordo de Tengo kun siaj kruelaj ŝirdentoj kaj sia mortiga fajro. Ho, kiel mi timis!
+Ni rajdis trans la ponton. Al Karmanjaka, la lando de Tengo kaj de la monstroj. Mi tiel timis, ke mi tremis. Tiu drakserpento, mi tute ne kredis, ke li ekzistas; sed imagu, se li tamen sin ĵetos el la profundo kaj fortiros nin de la ponto, por ke ni pereu en la Karma-falo. Kaj poste Katla, mi timis ŝin pli ol mi timis ion alian. Eble ŝi atendis nin nun sur la bordo de Tengo kun siaj kruelaj ŝirdentoj kaj sia mortiga fajro. Ho, kiel mi timis!
 
 Sed ni iris trans la ponton kaj Katla ne estis videbla. ŝi ne staris sur sia roko, kaj mi diris al Jonatano:
 
@@ -4138,18 +3404,11 @@ Mi petegis Jonatanon, ke ni reiru al Nangijala. Sed li diris:
 
 atingi nin, kiom ajn ŝi tiras sian katenon.”
 
-”Tamen ni devas rapidi,” li diris, ”ĉar la krioj de Katla estas signalo, kiu estas aŭdebla ĝis la fortikaĵo de Tengo, kaj bal-141
-
-LA FRATOJ LEONKORO
-
-
-daŭ ni havos svarmon da Tengosoldatoj ĉirkaŭ ni, se ni ne
+”Tamen ni devas rapidi,” li diris, ”ĉar la krioj de Katla estas signalo, kiu estas aŭdebla ĝis la fortikaĵo de Tengo, kaj baldaŭ ni havos svarmon da Tengosoldatoj ĉirkaŭ ni, se ni ne
 
 fuĝos kaj kaŝos nin en la montaro.
 
-Ni rajdis. Sur aĉaj mallarĝaj, krutaj montpadoj ni rajdis tiel, ke la hufo-feroj disĵetis fajrerojn. Zigzage inter la rokoj ni rajdis por misgvidi ĉiujn persekutantojn. ĉiun momenton mi atendis aŭdi galopantajn ĉevalojn malantaŭ ni kaj kriojn de Tengo-soldatoj, kiuj volos atingi nin per lancoj kaj sagoj kaj glavoj. Sed neniu venis. Kompreneble estis malfacile postkuri iun inter la multaj rokoj kaj montoj de Karmanjaka, kie fu-
-
-ĝanto facile povis eviti siajn persekutantojn.
+Ni rajdis. Sur aĉaj mallarĝaj, krutaj montpadoj ni rajdis tiel, ke la hufo-feroj disĵetis fajrerojn. Zigzage inter la rokoj ni rajdis por misgvidi ĉiujn persekutantojn. ĉiun momenton mi atendis aŭdi galopantajn ĉevalojn malantaŭ ni kaj kriojn de Tengo-soldatoj, kiuj volos atingi nin per lancoj kaj sagoj kaj glavoj. Sed neniu venis. Kompreneble estis malfacile postkuri iun inter la multaj rokoj kaj montoj de Karmanjaka, kie fuĝanto facile povis eviti siajn persekutantojn.
 
 Post longa rajdado mi demandis Jonatanon:
 
@@ -4171,13 +3430,7 @@ baras la enirejon al la kaverno, kaj pri la tenganoj, kiuj gardas ekstere nokte 
 
 Li ne respondis. Li simple diris, ke ni nun kaŝu la ĉevalojn, ĉar ili ne povas grimpi montojn.
 
-Ni kondukis ilin en ŝirmitan rokfendon tuj sub la Katla-
-
-
-LA FRATOJ LEONKORO
-
-
-monto kaj lasis ilin tie, ĉevalojn kaj pakaĵon kaj ĉion. Jonatano karesis Grimon kaj diris:
+Ni kondukis ilin en ŝirmitan rokfendon tuj sub la Katlamonto kaj lasis ilin tie, ĉevalojn kaj pakaĵon kaj ĉion. Jonatano karesis Grimon kaj diris:
 
 ”Atendu tie ĉi, ni nur iros por esplor-rigardi.”
 
@@ -4187,9 +3440,7 @@ Jonatano diris, ke ni povas iom ripozi, kaj mi tuj ĵetis min sur la teron. Tion
 
 Se tiom da homoj jam mortis en la Katla-kaverno, mi timis, ke eble Orvaro ankaŭ mortis, kaj mi demandis Jonatanon, ĉu tion li opinias. Sed li ne respondis. Li simple kuŝis kaj rigardis en la ĉielon pensante pri io, mi rimarkis. Fine li diris:
 
-”Se estas vere, ke Katla dormis sian pradormon en la Kat-
-
-la-kaverno, kiamaniere ŝi eliris, kiam ŝi vekiĝis? La kupra pordego jam troviĝis tie. ĉiam Tengo uzis la Katla-kavernon kiel malliberejon.”
+”Se estas vere, ke Katla dormis sian pradormon en la Katla-kaverno, kiamaniere ŝi eliris, kiam ŝi vekiĝis? La kupra pordego jam troviĝis tie. ĉiam Tengo uzis la Katla-kavernon kiel malliberejon.”
 
 ”Dum Katla kuŝis en ĝi kaj dormis?” mi demandis.
 
@@ -4197,21 +3448,14 @@ la-kaverno, kiamaniere ŝi eliris, kiam ŝi vekiĝis? La kupra pordego jam trovi
 
 ”Sen ke iu sciis tion.”
 
-Mi timtremis denove. Ion pli teruran mi ne kapablis ima-
-
-gi al mi ol sidi malliberigita en la Katla-kaverno kaj subite vidi alrampantan drakon.
-
-
-LA FRATOJ LEONKORO
+Mi timtremis denove. Ion pli teruran mi ne kapablis imagi al mi ol sidi malliberigita en la Katla-kaverno kaj subite vidi alrampantan drakon.
 
 
 Sed Jonatano havis aliajn pensojn en la kapo.
 
 ”ŝi devas esti elirinta alian vojon,” li diris. ”Kaj tiun vojon mi devos trovi, eĉ se mi serĉos tutan jaron.”
 
-Tre longe ni ne povis ripozi, ĉar Jonatano estis maltran-
-
-kvila. Restis nur mallonga distanco trans la monton ĝis la Katla-kaverno. Ni jam vidis la riveron profunde malsupre kaj
+Tre longe ni ne povis ripozi, ĉar Jonatano estis maltrankvila. Restis nur mallonga distanco trans la monton ĝis la Katla-kaverno. Ni jam vidis la riveron profunde malsupre kaj
 
 Nangijalan ĉe la alia flanko. Ho, kiel mi sopiris esti tie!
 
@@ -4227,18 +3471,13 @@ Nun ni estis tute proksimaj. Tie ĉi la Katla-monto vertikale krutfalis, kaj en 
 
 Sed la gardistojn ni povis vidi. Tri tenganojn! Tuj kiam mi vidis iliajn nigrajn kaskojn, la koro komencis bategi.
 
-Ni rampis surventre ĝis la roko-eĝo por kaŝrigardi malsup-
-
-ren al ili. Ili nur bezonis levi la okulojn, por nepre vidi nin. Sed malpli kapablaj gardistoj ne povis ekzisti. Ili kontrolis nek tien nek tien ĉi. Ili nur sidis ludante per ĵetkuboj kaj ne ĝenis sin pri io alia, ĉar neniu malamiko kapablis penetri la kupropor-degon, do kial ili klopodu gardi?
+Ni rampis surventre ĝis la roko-eĝo por kaŝrigardi malsupren al ili. Ili nur bezonis levi la okulojn, por nepre vidi nin. Sed malpli kapablaj gardistoj ne povis ekzisti. Ili kontrolis nek tien nek tien ĉi. Ili nur sidis ludante per ĵetkuboj kaj ne ĝenis sin pri io alia, ĉar neniu malamiko kapablis penetri la kupropor-degon, do kial ili klopodu gardi?
 
 Subite ni vidis la pordegon malfermiĝi tie malsupre, kaj iu eliris el la kaverno — ankoraŭ unu tengano! Li portis malple-nan manĝo-pelvon, kiun li ĵetis sur la teron. La pordego fermiĝis malantaŭ li, kaj ni aŭdis, ke li ŝlosis ĝin,
 
 ”Jen la lastan fojon mi nutris tiun porkon,” li diris.
 
 La aliaj ridis pri tio, kaj unu el ili diris:
-
-
-LA FRATOJ LEONKORO
 
 
 ”ĉu vi informis lin, kia rimarkinda tago estas hodiaŭ — la lasta tago en lia vivo? ĉu vi rakontis, ke Katla atendos lin vespere, kiam la malhelo falos?”
@@ -4261,17 +3500,11 @@ Ni sidiĝis en la rokfendo apud la ĉevaloj, ĉar nun ni ne sciis kion fari. Jon
 
 ”ĉi vespere vi mortos, kaj kio okazos poste en la verdaj valoj de Nangijala?”
 
-Ni manĝis iom da pano, kiun ni dividis kun Grimo kaj Fja-
+Ni manĝis iom da pano, kiun ni dividis kun Grimo kaj Fjalaro. Mi ankaŭ deziris trinki kelkajn glutojn da kaprina lakto, kiun ni rezervis.
 
-laro. Mi ankaŭ deziris trinki kelkajn glutojn da kaprina lakto, kiun ni rezervis.
+”Ankoraŭ ne, Biskoto,” diris Jonatano. ”Vespere, kiam malheliĝos, tiam mi donos al vi ĉiun guton. Sed ne pli frue.”
 
-”Ankoraŭ ne, Biskoto,” diris Jonatano. ”Vespere, kiam mal-
-
-heliĝos, tiam mi donos al vi ĉiun guton. Sed ne pli frue.”
-
-Dum longa tempo li sidis tie tute silente kaj senespere, sed 145
-
-LA FRATOJ LEONKORO
+Dum longa tempo li sidis tie tute silente kaj senespere, sed
 
 
 finfine li diris: ”Estos same kiel serĉi najlon en pajlo-stako.
@@ -4302,9 +3535,7 @@ Kaj tiam mi ja ricevis respondon. Lia voĉo sonis ekscitita.
 
 Eble ĉio estis jam decidita en la pratempo de la fabeloj.
 
-Eble jam tiam Jonatano estis elektita kiel la savanto de Orvaro, por la Dornrozo-valo. Kaj eble ekzistis sekretaj fabelaj estaĵoj, kiuj gvidis niajn paŝojn, sen ke ni sciis pri tio. Alie kiel Jonatano povis trovi vojon en la Katla-kavernon ĝuste tie, kie ni hazarde lasis niajn ĉevalojn? Same enigme kiel mi inter ĉiuj domoj en la Dornrozo-valo trovis la Matias-bienon kaj nenion alian. Tutcerte ni trovis la elirejon el la Katla-kaverno, kiun uzis Katla. Ne povis esti alie. Tio estis truo, kiu kondukis rekte 146
-
-LA FRATOJ LEONKORO
+Eble jam tiam Jonatano estis elektita kiel la savanto de Orvaro, por la Dornrozo-valo. Kaj eble ekzistis sekretaj fabelaj estaĵoj, kiuj gvidis niajn paŝojn, sen ke ni sciis pri tio. Alie kiel Jonatano povis trovi vojon en la Katla-kavernon ĝuste tie, kie ni hazarde lasis niajn ĉevalojn? Same enigme kiel mi inter ĉiuj domoj en la Dornrozo-valo trovis la Matias-bienon kaj nenion alian. Tutcerte ni trovis la elirejon el la Katla-kaverno, kiun uzis Katla. Ne povis esti alie. Tio estis truo, kiu kondukis rekte
 
 
 en la montoflankon. Ne tre granda. Sed sufiĉe granda, ke ĝismorte malsata, malgrasa drakino povis sin treni tra ĝi, diris Jonatano, kiam ŝi vekiĝis post miloj da jaroj kaj konstatis, ke ŝia kutima vojo estis blokita per la kupra pordego.
@@ -4333,16 +3564,10 @@ Tia diablejo estis la Katla-kaverno. Enrampi tiun nigran
 
 truon estis kiel enrampi nigran sonĝon, el kiu oni ne plu povos vekiĝi, estis kiel iri el la sunlumo en eternan nokton.
 
-La tuta Katla-kaverno estas nenio alia ol malnova, mortinta draknesto, mi pensis, tratrempita pro malico jam ekde la pratempo. Tiam sendube elkoviĝis miloj da drak-ovoj, kaj kru-
-
-elaj drakidoj elrampis amase de tie, kaj mortigis ĉion, kion ili renkontis. uste tian malnovan drakneston Tengo decidis uzi kiel malliberejon. Mi timtremis, kiam mi pensis pri ĉio, kion li faris kontraŭ homoj tie ĉi. Mi sentis la aeron kvazaŭ densiĝi 147
-
-LA FRATOJ LEONKORO
+La tuta Katla-kaverno estas nenio alia ol malnova, mortinta draknesto, mi pensis, tratrempita pro malico jam ekde la pratempo. Tiam sendube elkoviĝis miloj da drak-ovoj, kaj kruelaj drakidoj elrampis amase de tie, kaj mortigis ĉion, kion ili renkontis. uste tian malnovan drakneston Tengo decidis uzi kiel malliberejon. Mi timtremis, kiam mi pensis pri ĉio, kion li faris kontraŭ homoj tie ĉi. Mi sentis la aeron kvazaŭ densiĝi
 
 
-pro sekigitaj, praaj malicaĵoj, kaj mi aŭdis strangajn flustrojn en la terura silento ĉirkaŭ ni. Oni aŭdis flustrojn el la profundo de la kaverno, kaj ŝajnis al mi, ke ili rakontis pri ĉiuj suferoj kaj ĉiuj larmoj kaj ĉiu mortoturmento, kiuj okazis en la Katla-kaverno dum la regno de Tengo. Mi volis demandi Jonata-
-
-non, ĉu ankaŭ li aŭdis la flustrojn, sed mi rezignis. ĉar verŝaj-ne mi nur imagis tion.
+pro sekigitaj, praaj malicaĵoj, kaj mi aŭdis strangajn flustrojn en la terura silento ĉirkaŭ ni. Oni aŭdis flustrojn el la profundo de la kaverno, kaj ŝajnis al mi, ke ili rakontis pri ĉiuj suferoj kaj ĉiuj larmoj kaj ĉiu mortoturmento, kiuj okazis en la Katla-kaverno dum la regno de Tengo. Mi volis demandi Jonatanon, ĉu ankaŭ li aŭdis la flustrojn, sed mi rezignis. ĉar verŝaj-ne mi nur imagis tion.
 
 ”Nun, Biskoto, ni ekiros. Estos migrado, kiun vi verŝajne
 
@@ -4352,20 +3577,12 @@ Kaj li pravis. Necesis, ke ni trairu la tutan monton por atingi la malliberejan 
 
 Sed ke la vojo estos longa, tion ni sciis, ĉar antaŭe ni iris tiun distancon ekstere sur la monto. Estos sepoble pli terure palpserĉi sian vojon tra malhelaj irejoj sen alia lumo ol tiu de la torĉoj, kiujn ni kuportis.
 
-Timige estis vidi, kiel la torĉlumo flagretis sur la muroj de la kaverno. i kapablis lumigi nur etan parton de la nigra malheleco ĉirkaŭ ni, kaj pro tio ĉio ekster la lumo ŝajnis ankoraŭ pli danĝera. Kiu scias, mi pensis, ĉu eble kuŝas amaso da drakoj kaj serpentoj kaj monstroj atendante nin en siaj malhelaj kavoj. Krome mi timis, ke ni perdos la vojon en la labirinto, sed Jonatano faris nigrajn karbomarkojn per la tor-
+Timige estis vidi, kiel la torĉlumo flagretis sur la muroj de la kaverno. i kapablis lumigi nur etan parton de la nigra malheleco ĉirkaŭ ni, kaj pro tio ĉio ekster la lumo ŝajnis ankoraŭ pli danĝera. Kiu scias, mi pensis, ĉu eble kuŝas amaso da drakoj kaj serpentoj kaj monstroj atendante nin en siaj malhelaj kavoj. Krome mi timis, ke ni perdos la vojon en la labirinto, sed Jonatano faris nigrajn karbomarkojn per la torĉo sur la kavern-murojn, dum ni antaŭen iris, por ke ni trovu la vojon reen.
 
-ĉo sur la kavern-murojn, dum ni antaŭen iris, por ke ni trovu la vojon reen.
-
-”Migrado,” diris Jonatano, sed ni ne multe migris. Ni ram-
-
-pis kaj ŝovis nin surventre antaŭen kaj grimpis kaj naĝis kaj saltis kaj kroĉiĝis al rokoj kaj luktis kaj laboris kaj suferis, tion 148
-
-LA FRATOJ LEONKORO
+”Migrado,” diris Jonatano, sed ni ne multe migris. Ni rampis kaj ŝovis nin surventre antaŭen kaj grimpis kaj naĝis kaj saltis kaj kroĉiĝis al rokoj kaj luktis kaj laboris kaj suferis, tion
 
 
-ni faris. Kia migrado! Kaj kiaj kavernoj! Kelkfoje ni venis al kaverno-salonegoj tiel vastaj, ke ni ne vidis la finon de ili, nur la e˛o sciigis nin, kiaj vastaj ĉambregoj ili estis. Kelkfoje ni devis trapasi lokojn, kie oni eĉ ne povis stari, sed devis rampi surventre kiel drako. Kelkfoje la vojo estis barita per sub-teraj riveroj, trans kiujn ni devis naĝi. Kaj pli terure — kelkfoje malfermiĝis ĉe niaj piedoj faŭkoj de abismoj. En unu mi preskaŭ enfalis. Mi portis la torĉon, kaj mi stumblis. Jonatano kaptis min ĵus antaŭ ol mi estus falinta en la profundon, sed mi perdis la torĉon. Ni vidis ĝin fali, kiel strion de fajro pli kaj pli profunden, ĝis ĝi finfine malaperis. Kaj tiam ni restis en la mallumo. La plej densa kaj plej terura el ĉiuj mallumoj de la mondo. Mi ne kuraĝis moviĝi aŭ paroli aŭ eĉ pensi, mi provis forgesi, ke mi ekzistas, kaj ke mi staras tie en la nigra malhelo ĉe la rando de abismo. Sed mi aŭdis la voĉon de Jona-
-
-tano apud mi. Li sukcesis fine lumigi la alian torĉon, kiun ni kunportis. Kaj dumtempe li parolis kun mi, parolis kaj parolis tute trankvile, por ke mi ne freneziĝu pro timo, mi supozas.
+ni faris. Kia migrado! Kaj kiaj kavernoj! Kelkfoje ni venis al kaverno-salonegoj tiel vastaj, ke ni ne vidis la finon de ili, nur la e˛o sciigis nin, kiaj vastaj ĉambregoj ili estis. Kelkfoje ni devis trapasi lokojn, kie oni eĉ ne povis stari, sed devis rampi surventre kiel drako. Kelkfoje la vojo estis barita per sub-teraj riveroj, trans kiujn ni devis naĝi. Kaj pli terure — kelkfoje malfermiĝis ĉe niaj piedoj faŭkoj de abismoj. En unu mi preskaŭ enfalis. Mi portis la torĉon, kaj mi stumblis. Jonatano kaptis min ĵus antaŭ ol mi estus falinta en la profundon, sed mi perdis la torĉon. Ni vidis ĝin fali, kiel strion de fajro pli kaj pli profunden, ĝis ĝi finfine malaperis. Kaj tiam ni restis en la mallumo. La plej densa kaj plej terura el ĉiuj mallumoj de la mondo. Mi ne kuraĝis moviĝi aŭ paroli aŭ eĉ pensi, mi provis forgesi, ke mi ekzistas, kaj ke mi staras tie en la nigra malhelo ĉe la rando de abismo. Sed mi aŭdis la voĉon de Jonatano apud mi. Li sukcesis fine lumigi la alian torĉon, kiun ni kunportis. Kaj dumtempe li parolis kun mi, parolis kaj parolis tute trankvile, por ke mi ne freneziĝu pro timo, mi supozas.
 
 Kaj tiel ni pene antaŭen iris, kiom longe mi ne scias, ĉar en la profundo de la Katla-kaverno ne ekzistis tempo. Ni havis la senton, kvazaŭ ni ĉirkaŭvagadis en la labirinto por eterne, kaj mi ektimis, ke ni ne atingos la celon antaŭ ol estos tro malfrue. Eble jam estis vespero, eble ekstere jam estis nokto.
 
@@ -4377,20 +3594,13 @@ Mi demandis Jonatanon, ĉu li kredas tion.
 
 Poste ni eniris mallarĝan serpentuman pasejon, kiu ŝajne
 
-neniam volis finiĝi: sed iĝis nur pli kaj pli mallarĝa. i mal-149
-
-LA FRATOJ LEONKORO
-
-
-larĝiĝis kaj malaltiĝis, ĝis oni apenaŭ plu povis sin antaŭenŝo-vi, kaj fine ĝi estis nur truo, tra kiu oni devis rampi.
+neniam volis finiĝi: sed iĝis nur pli kaj pli mallarĝa. i mallarĝiĝis kaj malaltiĝis, ĝis oni apenaŭ plu povis sin antaŭenŝo-vi, kaj fine ĝi estis nur truo, tra kiu oni devis rampi.
 
 Sed tuj post la truo ni subite troviĝis en granda kaverno.
 
 Kiom granda ni ne povis koncepti, ĉar la lumo de la torĉo ne penetris tra longa distanco. Sed Jonatano kontrolis la e˛on.
 
-”Hohohoho,” li vokis, kaj ni aŭdis la e˛on respondi ”hoho-
-
-hoho’ plurfoje kaj el pluraj direktoj.
+”Hohohoho,” li vokis, kaj ni aŭdis la e˛on respondi ”hohohoho’ plurfoje kaj el pluraj direktoj.
 
 Sed poste ni aŭdis ion alian. Alian voĉon, malproksime en
 
@@ -4420,14 +3630,9 @@ Tra la pordo venis tengano kun lanterno en la mano. Tiam
 
 mi silente ekploris. Ne, ĉar mi timis, sed pro Orvaro. Kial ĉio estu tiel kruela, ke oni venis por preni lin ĝuste en tiu ĉi momento?
 
-”Orvaro de la Dornrozo-valo, pretigu vin,” diris la tenga-
-
-no. ”Post kelkaj minutoj vi estos kondukata al Katla. La nigraj eskortantoj jam estas survoje.”
+”Orvaro de la Dornrozo-valo, pretigu vin,” diris la tengano. ”Post kelkaj minutoj vi estos kondukata al Katla. La nigraj eskortantoj jam estas survoje.”
 
 En la lumo de lia lanterno ni vidis grandan lignan kaĝon
-
-
-LA FRATOJ LEONKORO
 
 
 konstruitan el krudaj latoj, en kiu Orvaro estis malliberigita kiel besto.
@@ -4457,9 +3662,6 @@ Kaj tion ni faris, tiel ke la sango fluis. Ni sovaĝe tranĉis, kaj ĉiun moment
 nigraj eskortantoj eniros, kaj tio estus la fino por Orvaro kaj por ni kaj por la tuta Dornrozo-valo.
 
 
-LA FRATOJ LEONKORO
-
-
 Ili venos por forkonduki ne nur unu personon, mi pensis.
 
 Katla havos tri ĉi vespere!
@@ -4474,18 +3676,12 @@ Same kiel mi sentis min. Nun estis mia vico trarampi la tru-on. Sed antaŭ ol mi
 
 ”Rapide, rapide, la lanternon,” flustris Jonatano, kaj mi donis ĝin al li, kvankam miaj manoj tremegis. La lanterno devis esti kovrita, plej malgranda lumstrio sufiĉis por malkaŝi nin.
 
-La nigraj eskortantoj — nun ili jam estis en la kaverno, kaj ankaŭ tenganoj kun lanternoj en la manoj. La kaverno fariĝis terure bela. Sed en nia angulo estis malhele. Jonatano klinis sin al mi, ekprenis miajn brakojn kaj trenis min tra la truo en 152
-
-
-LA FRATOJ LEONKORO
+La nigraj eskortantoj — nun ili jam estis en la kaverno, kaj ankaŭ tenganoj kun lanternoj en la manoj. La kaverno fariĝis terure bela. Sed en nia angulo estis malhele. Jonatano klinis sin al mi, ekprenis miajn brakojn kaj trenis min tra la truo en
 
 
 la malluman pasejon, kiu kondukis eksteren. Tie ni kuŝis spi-regante kaj aŭdis la kriojn:
 
 ”Li fuĝis! Li fuĝis!”
-
-
-LA FRATOJ LEONKORO
 
 
 Tiun nokton ni kondukis Orvaron tra la subtero. Jonatano
@@ -4495,9 +3691,6 @@ tion faris. Li trenis Orvaron tra la infero. Oni ne povas
 nomi ĝin per aliaj vortoj. Mi havis fortojn nur por treni min mem, kaj apenaŭ tion.
 
 ”Li fuĝis! Li fuĝis!” ili kriis, kaj kiam fariĝis silento, ni atendis la persekutantojn. Sed neniu venis. Tamen eĉ tengano kapablus elpensi, ke ekzistas elirejo el la Katla-kaverno, per kiu ni eskapis. Kaj trovi tiun elirejon ne povus esti malfacile. Sed ili certe estis malkuraĝaj, la tenganoj; ili ja kuraĝis grupe lukti kontraŭ malamikoj, sed neniu el ili riskis esti la unua, kiu rampas en mallarĝan pasejon, kie nekonata malamiko atendas. Ne, tutsimple ili estis tro malkuraĝaj, kial alie ili lasis nin eskapi tiel facile? Neniu iam antaŭe eskapis el la Katla-kaverno, kaj kiamaniere ili klarigu al Tengo la fuĝon de Orvaro?
-
-
-LA FRATOJ LEONKORO
 
 
 Tion mi scivolis. Sed tio devas esti ilia problemo, diris Jonatano. Niaj propraj problemoj pli ol sufiĉis por ni.
@@ -4518,14 +3711,10 @@ Jam oni rimarkis, kiu li estas. neniu subigita malliberulo, sed ribelanto kaj ba
 
 Longa kiel la eterno ĝi estis, kaj plena de teruraĵoj. Sed kiam oni komplete elĉerpiĝas, tiam oni ne havas fortojn okupiĝi pri io ajn. Eĉ ne kiam sangohundoj venas. Jes, certe mi aŭdis la hundojn veni, hurlante kaj bojante, sed mi ne havis fortojn ektimi. Cetere ili baldaŭ silentis. Eĉ sangohundoj ne aŭdacis penetri tiel profunde en la abismojn, kie ni rampis.
 
-Longe, longe ni tiel rampis, kaj kiam ni finfine eliris al la 155
-
-LA FRATOJ LEONKORO
+Longe, longe ni tiel rampis, kaj kiam ni finfine eliris al la
 
 
-taglumo apud Grimo kaj Fjalaro, ĝisvunde skrapitaj, sango-
-
-ŝmiritaj kaj trempitaj de malsekeco, preskaŭ mortintaj pro el-
+taglumo apud Grimo kaj Fjalaro, ĝisvunde skrapitaj, sangoŝmiritaj kaj trempitaj de malsekeco, preskaŭ mortintaj pro el-
 
 ĉerpiĝo, tiam la nokto jam finiĝis kaj estis mateno. Orvaro etendis siajn brakojn, kvazaŭ li volus ĉirkaŭbraki la teron kaj la ĉielon kaj ĉion, kion li vidas, sed la brakoj falis malsupren.
 
@@ -4554,18 +3743,13 @@ Ni sidis tie en la fendo kaj manĝis la reston de nia pano. De tempo al tempo Or
 ”Imagu tion, ke mi vivas. Mi estas libera kaj mi vivas!”
 
 
-LA FRATOJ LEONKORO
-
-
 ĉar sole li restis vivanta el ĉiuj kaptitoj de la Katla-kaverno. ĉiuj la aliaj unu post la alia estis oferitaj al Katla.
 
 ”Sed oni povas fidi je Tengo,” diris Orvaro. ”Kredu min, li aranĝos, ke la Katla-kaverno ne restos malplena tre longe.”
 
 Denove liaj okuloj pleniĝis per larmoj.
 
-”Ho, vi mia Dornrozo-valo,” li diris, ”kiom longe vi anko-
-
-raŭ ĝemos sub Tengo?”
+”Ho, vi mia Dornrozo-valo,” li diris, ”kiom longe vi ankoraŭ ĝemos sub Tengo?”
 
 Li volis aŭdi pri ĉio, kio okazis en la valoj de Nangijala dum lia mallibereco. Pri Sofia kaj pri Matiaso kaj pri ĉio, kion faris Jonatano, kaj Jonatano ĉion rakontis. Ankaŭ pri Joso. Mi preskaŭ kredis, ke Orvaro mortos antaŭ niaj okuloj, kiam li eksciis, ke estis pro Joso, ke li tiom longe suferis en la Katla-kaverno. Li paŭzis longe, antaŭ ol li ordigis siajn pensojn kaj denove kapablis paroli, kaj tiam li diris:
 
@@ -4577,9 +3761,7 @@ Sed Orvaro ekfuriozis. Li volis for, estis, kvazaŭ li volis komenci la batalon 
 
 ”Orvaro,” diris Jonatano, ”de longa distanco oni povas vidi, ke vi estas malliberulo el la Katla-kaverno.”
 
-Kaj tio estis vera. Sangumitaj kaj malpuraj ni ĉiuj tri estis, precipe Orvaro. Liaj vestoj estis ĉifonitaj, kaj lian vizaĝon oni 157
-
-LA FRATOJ LEONKORO
+Kaj tio estis vera. Sangumitaj kaj malpuraj ni ĉiuj tri estis, precipe Orvaro. Liaj vestoj estis ĉifonitaj, kaj lian vizaĝon oni
 
 
 apenaŭ vidis pro la barbo kaj la hararo. Oni vidis nur liajn okulojn. Liajn strangajn, ardajn okulojn!
@@ -4588,9 +3770,7 @@ Fluis rivereto tra nia fendo, kaj en ĝi ni forlavis nian mal-purecon kaj ĉiun 
 
 Poste Orvaro prunteprenis mian tranĉilon kaj fortranĉis
 
-amason de barbo kaj haroj, tiel ke li iom malpli similis al fu-
-
-ĝanta malliberulo. Kaj Jonatano elprenis el sia dorsosako tiujn tengo-kaskon kaj -mantelon, kiuj helpis lin eskapi el la Dornrozo-valo.
+amason de barbo kaj haroj, tiel ke li iom malpli similis al fuĝanta malliberulo. Kaj Jonatano elprenis el sia dorsosako tiujn tengo-kaskon kaj -mantelon, kiuj helpis lin eskapi el la Dornrozo-valo.
 
 ”Jen, Orvaro, vestu vin per tiuj,” li diris. ”Tiam ili eble pensas, ke vi estas tengano kun du kaptitoj survoje ien kun ili.”
 
@@ -4604,15 +3784,11 @@ Urĝis, ke ni ekiru. Post du horoj la suno subiros, kaj kiam malheliĝos inter l
 
 Jonatano aspektis tre serioza. Li sciis kio atendas nin, kaj mi aŭdis lin diri al Orvaro:
 
-”La du sekvontaj horoj decidos pri la sorto de la Dornro-
-
-zo-valo, mi pensas. ”ĉu vi havas fortojn sidi sur la ĉevalo tiom longe?”
+”La du sekvontaj horoj decidos pri la sorto de la Dornrozo-valo, mi pensas. ”ĉu vi havas fortojn sidi sur la ĉevalo tiom longe?”
 
 ”Jes, jes, jes” diris Orvaro, ”dum dek horoj, se necesos.”
 
-Jonatano donis al li Fjalaron por rajdi kaj helpis lin surseliĝi. Kaj tuj li fariĝis alia Orvaro. Li kvazaŭ kreskis en la selo 158
-
-LA FRATOJ LEONKORO
+Jonatano donis al li Fjalaron por rajdi kaj helpis lin surseliĝi. Kaj tuj li fariĝis alia Orvaro. Li kvazaŭ kreskis en la selo
 
 
 kaj fortiĝis, jes Orvaro estis unu el tiuj kuraĝaj kaj fortaj homoj same kiel Jonatano. Estis nur mi, kiu tute ne estis kuraĝa.
@@ -4636,16 +3812,9 @@ gvatema.
 ”Post malpli ol duona horo, se ĉio bone iros ”, diris Jonatano.
 
 
-LA FRATOJ LEONKORO
+Sed ĝuste en tiu momento ni ekvidis ilin; trupon da tenganoj, ses virojn kun lancoj, sur nigraj ĉevaloj. Ili aperis tie, kie la pado kurbiĝas ĉirkaŭ la montoflanko kaj trotis rekte al ni.
 
-
-Sed ĝuste en tiu momento ni ekvidis ilin; trupon da tenga-
-
-noj, ses virojn kun lancoj, sur nigraj ĉevaloj. Ili aperis tie, kie la pado kurbiĝas ĉirkaŭ la montoflanko kaj trotis rekte al ni.
-
-”Nun temas pri vivo aŭ morto,” diris Jonatano. ”Venu Or-
-
-varo!”
+”Nun temas pri vivo aŭ morto,” diris Jonatano. ”Venu Orvaro!”
 
 Orvaro rapide antaŭenrajdis por flanki nin, kaj Jonatano
 
@@ -4676,9 +3845,6 @@ ne ricevis pli da informo.
 Kaj ni daŭrigis la rajdadon tiel rapide kiel ni kuraĝis.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Singarde turnu vin, Biskoto, kaj raportu, kion ili faras,”
 
 diris Jonatano. Mi faris tion, kion li diris.
@@ -4705,9 +3871,7 @@ Tiam Perko kaj la tuta trupo turnis sin. Jes ili turnis sin kaj sekvis nin tiel 
 
 ”Nun, Grimo, montru kion vi kapablas,” vokis Jonatano.
 
-Kaj ankaŭ vi, mia Fjalaro, mi pensis, kaj ĝuste en tiu mo-
-
-mento mi forte deziris, ke estu mi, kiu rajdas lin.
+Kaj ankaŭ vi, mia Fjalaro, mi pensis, kaj ĝuste en tiu momento mi forte deziris, ke estu mi, kiu rajdas lin.
 
 Pli rapidajn ĉevalojn ol Grimo kaj Fjalaro neniu posedis,
 
@@ -4718,9 +3882,6 @@ Ili preskaŭ atingis nin, kiam ni galopis trans la ponton, kaj kelkaj lancoj sib
 Nun ni estis ĉe la Nangijala-flanko, kaj laŭ Jonatano la plej granda danĝero devus esti malantaŭ ni. Sed tion mi ne povis konstati. Male! Ili daŭrigis la pelĉason laŭlonge de la rivero.
 
 
-LA FRATOJ LEONKORO
-
-
 Alte sur la riverbordo serpentumis la pado, kiu kondukas al la Dornrozo-valo, kaj sur tiu ni furioze galopis. Tien ni estis survoje alian someran vesperon, ŝajne antaŭ miloj da jaroj.
 
 Tiam ni venis rajdante en la krepusko, Jonatano kaj mi, malrapide rajdante survoje al nia unua subĉiela fajro. Tiel oni devus vojaĝi laŭ riveroj, ne kiel nun, tiel ke la ĉevaloj preskaŭ mortfalas.
@@ -4729,13 +3890,7 @@ Plej furioze rajdis Orvaro. ĉar nun li rajdis hejmen — al la Dornrozo-valo. J
 
 Tiu ĉi rajdado decidos pri la sorto de la Dornrozo-valo,
 
-Jonatano estis dirinta. Kaj nun dependis de mi, kiamaniere ĝi finiĝos. Kia terura penso! Kaj gi finiĝos malbone, pri tio mi pli kaj pli konvinkiĝis. ĉiun fojon, kiam mi turnis min kaj rigar-162
-
-
-LA FRATOJ LEONKORO
-
-
-dis malantaŭen, tiuj nigraj kaskoj estis iom pli proksimaj. Foje ili estis kaŝitaj malantaŭ monteto aŭ kelkaj arboj, sed poste ili senkompate denove aperis pli kaj pli proksime.
+Jonatano estis dirinta. Kaj nun dependis de mi, kiamaniere ĝi finiĝos. Kia terura penso! Kaj gi finiĝos malbone, pri tio mi pli kaj pli konvinkiĝis. ĉiun fojon, kiam mi turnis min kaj rigardis malantaŭen, tiuj nigraj kaskoj estis iom pli proksimaj. Foje ili estis kaŝitaj malantaŭ monteto aŭ kelkaj arboj, sed poste ili senkompate denove aperis pli kaj pli proksime.
 
 Jonatano nun sciis, same bone kiel mi, ke ni ne kapablos
 
@@ -4763,12 +3918,7 @@ Ni nun atingis la salikon, kie ni banis nin, kaj mi diris:
 
 ”Mi kaŝos min en nian arbon. Trovu min tie! ”
 
-Ne estis tempo por diri pli, ĉar nun ni estis kaŝitaj malan-163
-
-LA FRATOJ LEONKORO
-
-
-taŭ deklivo, kaj Jonatano bridis la ĉevalon, tiel ke mi povu ŝovi min malsupren. Poste li denove ekrapidis. Kaj mi tuj flan-kenruliĝis en kaveton. Tie mi kuŝis kaj spektis la preterton-drantajn persekutantojn. Mi ekvidis la stultan vizaĝon de Perko. Li minace grimacis, kvazaŭ li estus sovaĝa besto — kaj lian vivon Jonatano savis! Sed nun Jonatano jam atingis Orvaron, kaj mi vidis ilin kune malaperi, kaj mi ĝojis. Rajdu vi, Perko, mi pensis, se vi opinias, ke tio helpas! Orvaron kaj Jonatanon vi ne pluvidos.
+Ne estis tempo por diri pli, ĉar nun ni estis kaŝitaj malantaŭ deklivo, kaj Jonatano bridis la ĉevalon, tiel ke mi povu ŝovi min malsupren. Poste li denove ekrapidis. Kaj mi tuj flan-kenruliĝis en kaveton. Tie mi kuŝis kaj spektis la preterton-drantajn persekutantojn. Mi ekvidis la stultan vizaĝon de Perko. Li minace grimacis, kvazaŭ li estus sovaĝa besto — kaj lian vivon Jonatano savis! Sed nun Jonatano jam atingis Orvaron, kaj mi vidis ilin kune malaperi, kaj mi ĝojis. Rajdu vi, Perko, mi pensis, se vi opinias, ke tio helpas! Orvaron kaj Jonatanon vi ne pluvidos.
 
 Mi restis kuŝanta en la kaveto ĝis Perko kaj liaj soldatoj ankaŭ malaperis. Tiam mi kuris al la rivero kaj al mia arbo.
 
@@ -4782,12 +3932,7 @@ arbo. i verŝajne malligiĝis de ie pli supre laŭ la rivero. ĉar ĝi ne estis 
 
 Sed ekkrepuskiĝis, kaj nur nun mi komprenis, ke eble mi
 
-devos resti tie ĉi la tutan nokton. Certe Jonatano ne povos reveni antaŭ ol malheliĝos. Estis timige malagrable, la time-164
-
-LA FRATOJ LEONKORO
-
-
-go rampis super min kune kun la krepusko, kaj mi sentis min soleca.
+devos resti tie ĉi la tutan nokton. Certe Jonatano ne povos reveni antaŭ ol malheliĝos. Estis timige malagrable, la timego rampis super min kune kun la krepusko, kaj mi sentis min soleca.
 
 Tiam mi subite vidis virinon sur ĉevalo alte sur la riverbordo. Estis neniu alia ol Sofia. Verdire estis Sofia, neniam mi pli
 
@@ -4824,12 +3969,7 @@ Sed mi staris tie silente kaj nur fiksrigardis.
 ”Kien vi estas survoje?” mi finfine sukcesis diri.
 
 
-LA FRATOJ LEONKORO
-
-
-”Joso montros al ni, kie ni plej bone povos trapasi la mu-
-
-ron,” diris Sofia.
+”Joso montros al ni, kie ni plej bone povos trapasi la muron,” diris Sofia.
 
 ”Kiam la tago de la batalo venos, ni devos tion scii.”
 
@@ -4858,9 +3998,6 @@ Sed Sofia kaj Huberto ĝojkriis, ho, kiel ili ĝojkriis! Sofia denove ĉirkaŭbr
 ”Estas la plej bona novaĵo, kiun vi povis diri.”
 
 Ili volis scii, kiel ĉio tio okazis. Sed Joso ne volis scii tion. Li subite volis hasti. ”Poste ni aŭdos pri tio,” li diris. ”Ni devos atingi nian celon antaŭ ol malheliĝos.”
-
-
-LA FRATOJ LEONKORO
 
 
 Jes, ĉar la soldatoj de Tengo certe jam embuskas nin, mi
@@ -4899,18 +4036,14 @@ perfidulo,” mi diris. Sed ili simple ne volis kredi min. Estis terure, kiam mi
 
 Ili iris al sia propra pereo, kion ajn mi provis fari por haltigi ilin.
 
-”Li gvidas vin en kaptilon,” mi kriis. ”Mi tion scias! Mi tion scias! Demandu lin pri Vedero kaj Kadero, kiujn li kutimas 167
-
-LA FRATOJ LEONKORO
+”Li gvidas vin en kaptilon,” mi kriis. ”Mi tion scias! Mi tion scias! Demandu lin pri Vedero kaj Kadero, kiujn li kutimas
 
 
 renkonti en la montaro! Kaj demandu lin, kiamaniere li perfidis Orvaron!”
 
 Joso denove volis ataki min, sed li regis sin.
 
-”ĉu ni fine povos ekiri?” li demandis, ”aŭ ĉu ni endanĝe-
-
-rigu ĉion nur pro la mensogoj de tiu knabo?”
+”ĉu ni fine povos ekiri?” li demandis, ”aŭ ĉu ni endanĝerigu ĉion nur pro la mensogoj de tiu knabo?”
 
 Li ĵetis al mi rigardon plenan de malamo.
 
@@ -4936,15 +4069,11 @@ Sed ĝuste tiam mi rememoris ion.
 
 La vizaĝo de Joso mortpaliĝis, tiel ke eĉ Sofia kaj Huberto devis rimarki tion, kaj li metis la manon sur la bruston, kvazaŭ li volis protekti ion.
 
-Silentiĝis momente. Sed poste Huberto diris per raŭka vo-
-
-ĉo:
+Silentiĝis momente. Sed poste Huberto diris per raŭka voĉo:
 
 ”Joso, faru kiel la knabo diras!”
 
-Sofia staris silente kaj longe rigardis Joson. Sed li ne kuraĝis 168
-
-LA FRATOJ LEONKORO
+Sofia staris silente kaj longe rigardis Joson. Sed li ne kuraĝis
 
 
 rigardi ŝin. ”Urĝas,” li diris kaj iris al sia ĉevalo. La rigardo de Sofia severiĝis.
@@ -4965,21 +4094,14 @@ Tiam li ridis, kaj terura rido estis tio.
 
 ”Mi punos vin, Sofia,” li kriis. ”Kiam mi venos kiel regan-to super la ĉerizo-valo, tiam mi forte punos vin.”
 
-Vi kompatinda frenezulo, vi neniam revenos al la ĉerizo-
+Vi kompatinda frenezulo, vi neniam revenos al la ĉerizovalo, mi pensis. Al la Karma-falo vi venos, ĝis tie kaj ne plu.
 
-valo, mi pensis. Al la Karma-falo vi venos, ĝis tie kaj ne plu.
-
-Li provis remi, sed furiozaj ondoj kaj kirl-akvoj kaptis la boaton kaj ĵetis ĝin inter si por frakasi ĝin. La ondoj fortiris de li la remilojn. Kaj muĝanta ondo kaptis lin kaj ĵetis lin en la akvon. Tiam mi ploris kaj volis savi lin, kvankam li estis perfidulo. Sed por Joso ne plu estis savo, tion mi sciis. Estis tiel terure kaj tiel malĝojige, stari tie en la krepusko kaj vidi kaj scii, ke Joso estas tute sola kaj senhelpa tie inter la sovaĝaj 169
-
-LA FRATOJ LEONKORO
+Li provis remi, sed furiozaj ondoj kaj kirl-akvoj kaptis la boaton kaj ĵetis ĝin inter si por frakasi ĝin. La ondoj fortiris de li la remilojn. Kaj muĝanta ondo kaptis lin kaj ĵetis lin en la akvon. Tiam mi ploris kaj volis savi lin, kvankam li estis perfidulo. Sed por Joso ne plu estis savo, tion mi sciis. Estis tiel terure kaj tiel malĝojige, stari tie en la krepusko kaj vidi kaj scii, ke Joso estas tute sola kaj senhelpa tie inter la sovaĝaj
 
 
 akvo-kirlaĵoj. Ni vidis lin ankoraŭ unu fojon aperi sur ondo-kresto. Poste li malaperis. Kaj ni ne plu vidis lin.
 
 Malheliĝis, kiam la Rivero de la Praaj Riveroj kaptis Joson kaj forportis lin al la Karma-falo.
-
-
-LA FRATOJ LEONKORO
 
 
 La tago de la batalo fine venis, la tago, kiun ĉiuj atendis.
@@ -4988,9 +4110,7 @@ Stormis super la Dornrozo-valo tiun tagon, tiel forte, ke
 
 arboj kliniĝis kaj rompiĝis. Sed certe ne estis tia ŝtormo, pri kiu Orvaro parolis, kiam li diris:
 
-”La ŝtormo de la libereco venos, kaj ĝi rompos la preman-
-
-tojn same kiel arboj rompiĝas kaj falas. i tondrados antaŭen kaj forpelos nian sklavecon kaj fine liberigos nin! ”
+”La ŝtormo de la libereco venos, kaj ĝi rompos la premantojn same kiel arboj rompiĝas kaj falas. i tondrados antaŭen kaj forpelos nian sklavecon kaj fine liberigos nin! ”
 
 Tiel li parolis en la kuirejo de Matiaso. Tien homoj sekre-te venis por aŭskulti kaj vidi lin, jes lin kaj Jonatanon ili volis vidi.
 
@@ -5003,9 +4123,6 @@ La tago de la batalo estis la sola afero, pri kio ili pensis kaj al kio ili sopi
 Kaj de la ĉerizo-valo venis por helpi pli kaj pli da batalantoj por libereco. Sofia kaj Huberto starigis milito-tendaron en la plej profundaj kaŝejoj de la arbaro tie, kie loĝis Elfrida.
 
 
-LA FRATOJ LEONKORO
-
-
 Kelkfoje dum la noktoj Sofia rampis tra la subtera irejo, kaj en la kuirejo de Matiaso ili elpensis siajn planojn por la batalo, ŝi kaj Orvaro kaj Jonatano.
 
 Mi kuŝis tie kaj aŭskultis ilin. Mi havis mian dormlokon sur la kuireja sofo nun, ĉar devis esti loko por Orvaro en la kaŝe-jo, kaj ĉiun fojon, kiam Sofia venis, ŝi diris:
@@ -5016,25 +4133,19 @@ Kaj tiam Orvaro ĉiufoje diris, ke mi estas la heroo de la
 
 Dornrozo-valo, sed mi pensis pri Joso en la malhela akvo kaj nur sentis min malgaja.
 
-Sofia ankaŭ aranĝis, ke ni havu panon en la Dornrozo-va-
-
-lo. Oni transportis ĝin trans la montaron per ŝarĝtransportiloj de la ĉerizo-valo kaj ŝovis ĝntrabande tra la subtera irejo. Matiaso ĉirkaŭiris kun dorsosako kaj kaŝe disdonis ĝin.
+Sofia ankaŭ aranĝis, ke ni havu panon en la Dornrozo-valo. Oni transportis ĝin trans la montaron per ŝarĝtransportiloj de la ĉerizo-valo kaj ŝovis ĝntrabande tra la subtera irejo. Matiaso ĉirkaŭiris kun dorsosako kaj kaŝe disdonis ĝin.
 
 Antaŭe mi ne sciis, ke homoj povas fariĝi tiel feliĉaj pro nur iom da pano. Nun mi tion vidis, ĉar mi iris kun Matiaso dum liaj vagadoj por disdoni la panon. Kaj mi vidis, kiel la homoj en la valo suferas kaj aŭdis ilin paroli pri la tago de la batalo, kiun ili tiel multe sopiras.
 
 Mi mem timis tiun tagon, sed finfine ankaŭ mi preskaŭ
 
-sopiris ĝin. ĉar estis neelteneble daŭre atendi. Kaj ankaŭ dan-
-
-ĝere, diris Jonatano.
+sopiris ĝin. ĉar estis neelteneble daŭre atendi. Kaj ankaŭ danĝere, diris Jonatano.
 
 ”Oni ne povas teni sekrete tiel multon tiom longe,” li diris al Orvaro. ”Nia revo de libereco povus facile frakasiĝi.”
 
 Li certe pravis. Nur necesis, ke iu tengano trovu la subteran irejon aŭ ke okazu novaj domesploradoj, tiel ke Jonatano kaj Orvaro estus trovitaj en la kaŝejo. Mi timtremis eĉ je la penso pri tio.
 
-Sed la tenganoj evidente estis kaj blindaj kaj surdaj, alie ili 172
-
-LA FRATOJ LEONKORO
+Sed la tenganoj evidente estis kaj blindaj kaj surdaj, alie ili
 
 
 certe rimarkus ion. Se ili aŭskultus nur iomete, ili certe povus aŭdi, kiel tiu ŝtormo de libereco ekmuĝis — tiu ŝtormo, kiu baldaŭ skuos la tutan Dornrozo-valon. Sed ili nenion rimarkis.
@@ -5062,9 +4173,6 @@ liberigi la Dornrozo-valon?” mi demandis. ”Kun ŝi li ja denove povos subigi
 ”Li donis al ni muron por protekti nin, ne forgesu tion,”
 
 diris Orvaro. ”Kaj pordegojn, kiujn oni povos fermi kontraŭ monstroj! Tiel bonkora li estas!”
-
-
-LA FRATOJ LEONKORO
 
 
 ”Kaj cetere, mi ne plu bezonas timi Tengon,” diris Orvaro.
@@ -5102,12 +4210,7 @@ Kaj Matiaso karesis min kaj diris:
 Jonatano tamen devis promesi al Orvaro, ke li ĉirkaŭrajdos en la bataltumulto sur sia ĉevalo, por doni al aliaj homoj ku-raĝon fari tion, kion li mem ne povis aŭ ne volis fari.
 
 
-LA FRATOJ LEONKORO
-
-
-”La homoj en la Dornrozo-valo devos vidi vin,” diris Orva-
-
-ro. ”Ili devos vid nin ambaŭ.”
+”La homoj en la Dornrozo-valo devos vidi vin,” diris Orvaro. ”Ili devos vid nin ambaŭ.”
 
 Tiam Jonatano diris:
 
@@ -5121,9 +4224,7 @@ Tio, kion mi faros, ankaŭ estis decidita. Mi faros nenion, nur atendos, ĝis ĉ
 
 Neniu multe dormis tiun nokton. Kaj venis la mateno.
 
-Jes, venis la mateno kaj la tago de la batalo, ho, kiel doloris mia koro tiun tagon! Mi vidis pIi ol sufiĉe da sango kaj aŭdis la kriojn, ĉar oni batalis sur la deklivo malsupre de la 175
-
-LA FRATOJ LEONKORO
+Jes, venis la mateno kaj la tago de la batalo, ho, kiel doloris mia koro tiun tagon! Mi vidis pIi ol sufiĉe da sango kaj aŭdis la kriojn, ĉar oni batalis sur la deklivo malsupre de la
 
 
 Matias-bieno. Tie mi vidis Jonatanon ĉirkaŭrajdi, la ŝtormo forte flirtigis liajn harojn, kaj ĉirkaŭ li estis nur bataltumulto kaj hakantaj glavoj kaj siblantaj lancoj kaj flugantaj sagoj kaj krioj kaj krioj. Kaj mi diris al Fjalaro, se Jonatano mortus, tiam ankaŭ mi volos morti.
@@ -5148,12 +4249,7 @@ aŭdiĝis la krio: ”Katla venas!”
 
 Kaj poste venis la krio. La malsatkrio de Katla, kiun ĉiuj tiel bone konis. Glavoj kaj lancoj kaj sagoj teren falis. La batalantoj ne plu kapablis batali, ĉar ili sciis, ke ne plu estos savo.
 
-Nur la muĝo de la ŝtormo kaj la batalkorno de Tengo kaj la krioj de Katla nun aŭdiĝis en la valo, kaj la fajro de Katla el-
-
-ŝprucis kaj mortigis ĉiujn, al kiuj Tengo fingromontris. Li montris kaj montris, kaj lia kruela vizaĝo estis malhela pro diableco, kaj nun venis la fino por la Dornrozo-valo. Tion mi sciis!
-
-
-LA FRATOJ LEONKORO
+Nur la muĝo de la ŝtormo kaj la batalkorno de Tengo kaj la krioj de Katla nun aŭdiĝis en la valo, kaj la fajro de Katla elŝprucis kaj mortigis ĉiujn, al kiuj Tengo fingromontris. Li montris kaj montris, kaj lia kruela vizaĝo estis malhela pro diableco, kaj nun venis la fino por la Dornrozo-valo. Tion mi sciis!
 
 
 Mi ne volis vidi tion, mi ne volis vidi … ne vidi ion ajn. Nur Jonatanon! Mi devis scii, kie li estas. Kaj mi vidis lin tuj ekster la Matias-bieno. Tie li sidis sur Grimo, li estis pala kaj tute senmova, kaj la ŝtormo kirlis en liaj haroj.
@@ -5183,28 +4279,19 @@ Matiaso mortis, mi ne plu havis avon. Huberto mortis, li
 estis la unua, kiu mortfalis. Li eĉ ne trapasis la Riveran Pordegon, ĉar tie li renkontis Tengon kaj liajn soldatojn. Sed an-taŭ ĉio li renkontis Katlan. uste tiun tagon Tengo venis kun Katla, por puni la Dornrozo-valon pro la fuĝo de Orvaro.
 
 
-LA FRATOJ LEONKORO
-
-
 Tengo ne sciis, ke estas la tago de la batalo. Sed kiam li konstatis tion, li certe ĝojis, ke Katla estas kun li.
 
 Sed li estis mortigita nun, Tengo, same mortigita kiel la aliaj.
 
-”Nia turmentanto ne plu ekzistas” diris Orvaro. ”Niaj in-
+”Nia turmentanto ne plu ekzistas” diris Orvaro. ”Niaj infanoj vivos en libereco kaj estos feliĉaj. Baldaŭ la Dornrozo-valo estos sama kiel ĝi estis antaŭe.”
 
-fanoj vivos en libereco kaj estos feliĉaj. Baldaŭ la Dornrozo-valo estos sama kiel ĝi estis antaŭe.”
-
-Sed mi pensis, ke kiel antaŭe, neniam estos la Dornrozo-
-
-valo. Ne por mi. Ne sen Matiaso.
+Sed mi pensis, ke kiel antaŭe, neniam estos la Dornrozovalo. Ne por mi. Ne sen Matiaso.
 
 Orvaro ricevis vundon per glavo en la dorso, sed estis kva-zaŭ li ne sentis ĝin aŭ ne atentis pri ĝi. Liaj okuloj ankoraŭ ardis, kiam li parolis al la homoj en la valo.
 
 ”Ni denove estos feliĉaj,” li diris fojon post fojo.
 
-Multaj ploris en la Dornrozo-valo tiun tagon. Sed ne Or-
-
-varo.
+Multaj ploris en la Dornrozo-valo tiun tagon. Sed ne Orvaro.
 
 Sofia vivis, ŝi eĉ ne estis vundita. Kaj nun ŝi reiros hejmen al la ĉerizo-valo, ŝi kaj ŝiaj batalantoj, tiuj kiuj ankoraŭ vivis.
 
@@ -5222,9 +4309,7 @@ Mi tre timis, ke Jonatano forsendos min kun Sofia, sed tion li ne faris.
 
 ”Mi deziras, ke Karlo restu kun mi,” li diris.
 
-Sur la deklivo malsupre de la Matias-bieno kuŝis Katla, kiel granda, terura bulego, silenta kaj sata de sango. De tempo al tempo ŝi rigardis Jonatanon, kiel hundo rigardas por ekscii 178
-
-LA FRATOJ LEONKORO
+Sur la deklivo malsupre de la Matias-bieno kuŝis Katla, kiel granda, terura bulego, silenta kaj sata de sango. De tempo al tempo ŝi rigardis Jonatanon, kiel hundo rigardas por ekscii
 
 
 kion volas ĝia mastro. ŝi nun ne tuŝis iun, sed tiom longe kiel ŝi kuŝis tie, la timego daŭre kovris la valon. Neniu kuraĝis esti gaja. La Dornrozo-valo nek povas ĝojkrii pro sia libereco nek funebri siajn mortintojn, dum Katla troviĝas tie ĉi, diris Orvaro. Kaj unu sola persono ekzistis, kiu povis rekonduki ŝin al ŝia kavo. Estis Jonatano.
@@ -5237,16 +4322,11 @@ Orvaro. ”Se vi kondukos ŝin tien kaj katenos ŝin, mi faros la ceteron, kiam 
 
 Kiamaniere oni devus rajdi laŭlonge de rivero, tion mi bone scias. Oni rajdas malrapide kaj rigardas la riveron flui malsupre kaj la akvon ŝanĝbrili kaj la branĉojn de la salikoj danci en la vento. Sed oni ne rajdu kun drako tuj malantaŭ si.
 
-Sed tion ni faris. Kaj ni aŭdis la pezajn paŝojn de ŝiaj pie-degoj malantaŭ ni. Bump, bump, bump, bump sonis tiel timi-
-
-ge dum ŝi iris, ke Grimo kaj Fjalaro preskaŭ freneziĝis. Ni apenaŭ povis ilin bridi. De tempo al tempo Jonatano blovis en la kornon. Ankaŭ tio estis terura sono, kaj Katla certe ne ŝatis tion. Sed ŝi devis obei, kiam ŝi aŭdis gin. Tio estis la sola, kio konsolis min dum nia rajdado.
+Sed tion ni faris. Kaj ni aŭdis la pezajn paŝojn de ŝiaj pie-degoj malantaŭ ni. Bump, bump, bump, bump sonis tiel timige dum ŝi iris, ke Grimo kaj Fjalaro preskaŭ freneziĝis. Ni apenaŭ povis ilin bridi. De tempo al tempo Jonatano blovis en la kornon. Ankaŭ tio estis terura sono, kaj Katla certe ne ŝatis tion. Sed ŝi devis obei, kiam ŝi aŭdis gin. Tio estis la sola, kio konsolis min dum nia rajdado.
 
 Ni diris eĉ ne unu vorton unu al la alia, Jonatano kaj mi, ni nur rajdis tiel rapide kiel ni kapablis. Antaŭ ol venis la nokto kaj la malhelo, Jonatano devis kateni Katlan en ŝian kavon, kie ŝi mortos. Poste ni neniam plu vidos ŝin, kaj ni forgesos, ke ekzistas lando kiel Karmanjaka. La Montoj de la Praaj
 
 Montoj povos stari tie eterne, sed ni neniam plu rajdos tiun vojon, tion Jonatano promesis al mi.
-
-
-LA FRATOJ LEONKORO
 
 
 Kvietiĝis dum la vespero, neniu ŝtormo, sed kvieta, varma
@@ -5257,9 +4337,7 @@ Sed mi ne montris tion al Jonatano, ke mi timas.
 
 Fine ni estis ĉe la Karma-falo.
 
-”Karmanjaka, vi vidas nin nun la lastan fojon,” diris Jo-
-
-natano, kiam ni rajdis trans la ponton. Kaj poste li blovis en la kornon.
+”Karmanjaka, vi vidas nin nun la lastan fojon,” diris Jonatano, kiam ni rajdis trans la ponton. Kaj poste li blovis en la kornon.
 
 Katla vidis sian rokon sur la alia flanko de la rivero. ŝajnis, ke ŝi volas iri tien, ĉar aŭdiĝis fervora siblo el ŝi. Rekte ĉe la tarsoj de Grimo ŝi siblis. Pli bone, se ŝi ne estus farinta tion.
 
@@ -5276,9 +4354,6 @@ Kaj eĉ ne en sonĝo io povis esti tiel terura, kiel fuĝi tie de roko al roko k
 estis bruligita, sed li kriis:
 
 
-LA FRATOJ LEONKORO
-
-
 ”Ne haltu! Rajdu! Rajdu!”
 
 Kompatindaj Grimo kaj Fjalaro, Katla ekscitis ilin tiel, ke ili preskaŭ kreviĝis por eskapi de ŝi. Supren laŭ la pado tra ĉiuj kurbiĝoj ili kuregis tiel, ke la ŝaŭmo ŝprucis ĉirkaŭ ili, pli kaj pli rapide, ĝis iliaj fortoj komencis elĉerpiĝi. Sed tiam Katla iom postrestis kaj ŝi kriis furioze pro tio. ŝi estis sur sia propra tereno nun, kaj tie neniu eskapu. Sia bump, bump, bump aŭdiĝis pli kaj pli rapide, kaj mi sciis, ke ŝi fine venkos. Pro sia obstina krueleco.
@@ -5287,9 +4362,7 @@ Longe, longe ni tiel rajdis, kaj ni ne plu esperis je iu savo.
 
 Ni venis supren en la montaron nun. Ankoraŭ ni estis iom
 
-antaŭ Katla, kaj ni vidis ŝin rekte sub ni sur la mallarĝa roko-breto super la Karma-falo. Kaj tie ŝi momente restis. ĉar tio estis ŝia roko. Estis tie, kie ŝi kutime staris kaj fiksrigardis en la profundecon. Kaj tion ŝi faris ankaŭ nun. Kvazaŭ kontraŭ-
-
-vole ŝi haltis kaj rigardadis malsupren en la falon. Fajro kaj fumo elĵetiĝis el ŝiaj naztruoj, kaj ŝi malpacience stamfis tien kaj reen. Sed subite ŝi memoris nin, kaj rigardaĉis supren al ni per ardantaj okuloj.
+antaŭ Katla, kaj ni vidis ŝin rekte sub ni sur la mallarĝa roko-breto super la Karma-falo. Kaj tie ŝi momente restis. ĉar tio estis ŝia roko. Estis tie, kie ŝi kutime staris kaj fiksrigardis en la profundecon. Kaj tion ŝi faris ankaŭ nun. Kvazaŭ kontraŭvole ŝi haltis kaj rigardadis malsupren en la falon. Fajro kaj fumo elĵetiĝis el ŝiaj naztruoj, kaj ŝi malpacience stamfis tien kaj reen. Sed subite ŝi memoris nin, kaj rigardaĉis supren al ni per ardantaj okuloj.
 
 Vi kruela bestaĉo, mi pensis, vi kruela, kruela, kial vi ne restas sur via roko?
 
@@ -5301,9 +4374,7 @@ Ni atingis la grandan rokon, kie ni vidis ŝian teruran kapon la unuan fojon, ki
 
 Ni estis perditaj, tion mi sciis. Kaj ankaŭ Katla sciis tion.
 
-Diabla triumfo montriĝis en ŝiaj okuloj! ŝi staris senmove 181
-
-LA FRATOJ LEONKORO
+Diabla triumfo montriĝis en ŝiaj okuloj! ŝi staris senmove
 
 
 sur sia roko kaj rigardaĉis supren al ni. ŝajnis al mi, ke ŝi mokridis. ŝi ne plu rapidis. Estis kvazaŭ ŝi pensis: Mi venos, kiam mi venos. Sed vi povos kalkuli je mi!
@@ -5318,9 +4389,7 @@ Mi volis diri al Jonatano, ke mi neniam, neniam, neniam
 
 havis ion ajn por pardoni al li, sed mi estis muta pro timo.
 
-Katla ankoraŭ restis staranta malsupre. Fajro kaj fumo ve-
-
-nis en blovetoj el ŝiaj naztruoj kaj ŝiaj piedoj denove ekstam-fis. Ni staris protektitaj malantaŭ la granda roko, por ke ŝiaj fajroĵetoj ne atingu nin. Mi alkroĉigis min al Jonatano, ho, kiel forte mi alkroĉigis min, kaj li rigardis min kun larmoj en la okuloj.
+Katla ankoraŭ restis staranta malsupre. Fajro kaj fumo venis en blovetoj el ŝiaj naztruoj kaj ŝiaj piedoj denove ekstam-fis. Ni staris protektitaj malantaŭ la granda roko, por ke ŝiaj fajroĵetoj ne atingu nin. Mi alkroĉigis min al Jonatano, ho, kiel forte mi alkroĉigis min, kaj li rigardis min kun larmoj en la okuloj.
 
 Sed subite li furiozis. Li klinis sin antaŭen kaj kriis al Katla tie malsupre:
 
@@ -5333,18 +4402,13 @@ diris. Li ankaŭ estus povinta diri, ke eĉ roko ne tion faras, kiel ajn granda 
 Katla ne estis mortigita per la roko, kiun Jonatano rulis sur ŝin. Sed ĝi rekte trafis ŝin. Kaj kun krio, kiu povus faligi montojn, ŝi falis malantaŭen en la Karma-falon.
 
 
-LA FRATOJ LEONKORO
-
-
 Ne, Jonatano ne mortigis Katlan. Karmo faris tion. Kaj
 
 Katla mortigis Karmon. Antaŭ niaj okuloj. Ni vidis tion.
 
 Neniu alia ol Jonatano kaj mi vidis du monstrojn el al pratempo periigi unu la alian. Ni vidis ilin lukti unu kontraŭ la alia en la Karma-falo ĝismorte.
 
-Kiam Katla ekkriis kaj malaperis, ni unue ne povis tion kre-di. Ne estis kredeble, ke ŝi vere malaperis. Tie, kie ŝi subakvi-
-
-ĝis, ni vidis nur kirliĝantan ŝaŭmon. Nenion pli. Neniun Katlan.
+Kiam Katla ekkriis kaj malaperis, ni unue ne povis tion kre-di. Ne estis kredeble, ke ŝi vere malaperis. Tie, kie ŝi subakviĝis, ni vidis nur kirliĝantan ŝaŭmon. Nenion pli. Neniun Katlan.
 
 Sed poste ni vidis la serpentan drakon. Li levis sian verdan kapon el la ŝaŭmo, kaj lia vosto kirlis la akvon, ho, li estis terura, giganta serpento, same longa kiel la rivero estis larĝa,
 
@@ -5352,12 +4416,7 @@ Sed poste ni vidis la serpentan drakon. Li levis sian verdan kapon el la ŝaŭmo
 
 Drakserpento en la Karma-falo, pri kiu ŝi aŭdis fabelojn,
 
-kiam ŝi estis knabineto, li ne estis pli fabela ol Katla. Li ekzistis kaj estis monstro same terura kiel Katla. Lia kapo balanciĝis ĉiudirekten, li serĉis … kaj tiam li vidis Katlan. ŝi leviĝis el la profundo kaj subite estis meze en la akvokirlaĵoj, kaj siblan-te la serpento ĵetis sin super ŝin kaj volvis sin ĉirkaŭ ŝin. ŝi ŝprucis sian mortofajron kontraŭ li, sed li ĉirkaŭpremis ŝin tiel forte, ke la fajro estingiĝis en ŝia brusto. Tiel ili mortvun-dis unu la alian denove kaj denove. Ili ambaŭ batis kaj mordis kaj volis mortigi. Mi supozis, ke ili sopiris tion ek de la pratempo, jes, ili batis kaj mordis furiozege, ĵetis siajn teru-183
-
-LA FRATOJ LEONKORO
-
-
-rajn korpojn unu kontraŭ la alia en la kirliĝanta akvo. Katla kriegis inter la mordoj, sed Karmo atakis tute silente, kaj nigra draksango kaj verda serpentosango elfluis en la blankan ŝaŭmon kaj farbis ĝin malhele kaj venene.
+kiam ŝi estis knabineto, li ne estis pli fabela ol Katla. Li ekzistis kaj estis monstro same terura kiel Katla. Lia kapo balanciĝis ĉiudirekten, li serĉis … kaj tiam li vidis Katlan. ŝi leviĝis el la profundo kaj subite estis meze en la akvokirlaĵoj, kaj siblan-te la serpento ĵetis sin super ŝin kaj volvis sin ĉirkaŭ ŝin. ŝi ŝprucis sian mortofajron kontraŭ li, sed li ĉirkaŭpremis ŝin tiel forte, ke la fajro estingiĝis en ŝia brusto. Tiel ili mortvun-dis unu la alian denove kaj denove. Ili ambaŭ batis kaj mordis kaj volis mortigi. Mi supozis, ke ili sopiris tion ek de la pratempo, jes, ili batis kaj mordis furiozege, ĵetis siajn terurajn korpojn unu kontraŭ la alia en la kirliĝanta akvo. Katla kriegis inter la mordoj, sed Karmo atakis tute silente, kaj nigra draksango kaj verda serpentosango elfluis en la blankan ŝaŭmon kaj farbis ĝin malhele kaj venene.
 
 Kiom longe ili batalis? Mi ne scias. ŝajnis al mi, ke mi staris tie sur la pado dum miloj da jaroj kaj vidis nenion alian ol la du furiozajn monstrojn en ilia lasta batalo.
 
@@ -5373,9 +4432,7 @@ Sed ni forlasis Karmanjakan kaj lastan fojon rajdis trans la ponton. Poste la ĉ
 
 Tuj kiam ni atingis la alian finon de la ponto ili falis kaj restis kuŝantaj. Estis kvazaŭ ili pensis, ni helpis vin atingi Nangijalan, kaj tio devas sufiĉi!
 
-”Ni faros nian subĉielan fajron ĉe nia antaŭa loko,” diris Jonatano. Li aludis pri la klifo, kie ni estis dum la nokto de la 184
-
-LA FRATOJ LEONKORO
+”Ni faros nian subĉielan fajron ĉe nia antaŭa loko,” diris Jonatano. Li aludis pri la klifo, kie ni estis dum la nokto de la
 
 
 fulmotondro, kiam mi vidis Katlan la unuan fojon. Mi timtremis ankoraŭ, kiam mi pensis pri tio, kaj mi prefere tranoktus aliloke. Sed ni ne kapablis pluiri momente.
@@ -5398,9 +4455,7 @@ Ni sidis ĉe nia fajro kaj vidis la krepuskon fali sur la Montojn de la Praaj Mo
 
 Mi estis laca, kaj mi opiniis, ke mi neniam travivis pli longan kaj pli malfacilan tagon. De la sunleviĝo ĝis la sunsubiro ne ekzistis io alia ol sango, timo kaj morto. Aventuroj okazas, kiuj devus ne okazi, iam diris Jonatano, kaj dum tiu ĉi tago jam okazis pli ol sufiĉe da ili. La tago de la batalo — ĝi vere estis longa kaj malfacila, sed nun ĝi finiĝis.
 
-Tamen la malĝojo ne finiĝis. Mi pensis pri Matiaso. Fortege 185
-
-LA FRATOJ LEONKORO
+Tamen la malĝojo ne finiĝis. Mi pensis pri Matiaso. Fortege
 
 
 mi funebris pri li, kaj dum ni sidis ĉe la fajro, mi demandis Jonatanon:
@@ -5413,26 +4468,17 @@ mi funebris pri li, kaj dum ni sidis ĉe la fajro, mi demandis Jonatanon:
 
 ”Jes, vi aŭdis pri ĝi,” diris Jonatano. ”ĉu vi ne memoras tiun matenon, kiam mi forlasis la ĉerizo-valon kaj vi tiel timis? ĉu vi ne memoras, kion mi tiam diris: ’Se mi ne revenos, ni vidos unu la alian en Nangilima.’ Kaj tie estas Matiaso nun.”
 
-Poste li rakontis pri Nangilima. Jam de longe li ne rakon-
+Poste li rakontis pri Nangilima. Jam de longe li ne rakontis ion al mi, ni ne havis tempon. Sed nun, kiam li sidis ĉe la fajro kaj parolis pri Nangilima, estis kvazaŭ li sidis sur la rando de la sofo hejme en la urbo.
 
-tis ion al mi, ni ne havis tempon. Sed nun, kiam li sidis ĉe la fajro kaj parolis pri Nangilima, estis kvazaŭ li sidis sur la rando de la sofo hejme en la urbo.
-
-”En Nangilima … en Nangilima” diris Jonatano per tiu vo-
-
-ĉo, kiun li ĉiam uzis dum li rakontis. ”En Nangilima ankoraŭ estas la tempo de la subĉielaj fajroj kaj de la fabeloj.”
+”En Nangilima … en Nangilima” diris Jonatano per tiu voĉo, kiun li ĉiam uzis dum li rakontis. ”En Nangilima ankoraŭ estas la tempo de la subĉielaj fajroj kaj de la fabeloj.”
 
 ”Kompatinda Matiaso, do estas aventuroj tie, kiuj devus ne okazi,” mi diris. Sed Jonatano klarigis, ke en Nangilima ne estas la tempo de kruelaj fabeloj, sed gaja tempo plena de ludoj. La homoj ludas tie, jes ili ankaŭ laboras kompreneble kaj helpas unuj al la aliaj pri ĉio, sed ili multe ludas kaj kantas kaj dancas kaj rakontas fabelojn, li diris, kelkfoje ili timigas la infanojn per kruelaj kaj terurigaj fabeloj pri monstroj kiel Karmo kaj Katla kaj pri kruelaj viroj kiel Tengo. Sed poste ili ridas pri tio.
 
 ”ĉu vi timas?” ili demandas la infanojn. Estas ja nur fabeloj. Tiaj aferoj neniam ekzistis. Almenaŭ ne en niaj valoj.
 
-Matiaso tre bonfartas en Nangilima, diris Jonatano. Li po-
-
-sedas malnovan bienon en la Pomo-valo. Estas la plej bela
+Matiaso tre bonfartas en Nangilima, diris Jonatano. Li posedas malnovan bienon en la Pomo-valo. Estas la plej bela
 
 bieno en la plej bela kaj plej verda el ĉiuj valoj de Nangilima.
-
-
-LA FRATOJ LEONKORO
 
 
 ”Baldaŭ estos la tempo pluki la pomojn en lia ĝardeno,”
@@ -5461,11 +4507,7 @@ La krepusko pli kaj pli densiĝis, kaj la montoj pli kaj pli nigriĝis. randaj n
 
 ĝin. Tio memorigis min pri tio, kion mi volis forgesi. Trista, trista ĉio estis, kaj neniam mi denove estos gaja, mi imagis.
 
-Mi pli proksimiĝis al Jonatano. Li sidis senmova, apogan-
-
-ta sntraŭ la montoflanko, kaj lia vizaĝo estis pala. Li as-187
-
-LA FRATOJ LEONKORO
+Mi pli proksimiĝis al Jonatano. Li sidis senmova, apoganta sntraŭ la montoflanko, kaj lia vizaĝo estis pala. Li as-187
 
 
 pektis kiel fabela princo, sed pala kaj elĉerpita princo li estis.
@@ -5511,9 +4553,6 @@ Li klarigis al mi, kiel kruela estas la fajro de Katla. Se ĝi ne mortigas, ĝi 
 ”Sed ĉu vi ne pensas, ke tio forpasos,” mi diris plorante.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Ne, Biskoto, tio neniam forpasos,” diris Jonatano. ”Nur se mi povus iri al Nangilima!”
 
 Se nur li povus iri al Nangilima, ho, nun mi komprenis! Li intencis lasi min denove, tion mi komprenis. Jam unu fojon li malaperis al Nangijala sen mi …
@@ -5543,22 +4582,15 @@ Tiam mi venis al Nangijala, ĉu vi memoras?”
 ”Kial vi demandas? ĉu vi ne scias, ke mi rememoras pri tio ĉiun momenton?”
 
 
-LA FRATOJ LEONKORO
-
-
 ”Jes, tion mi scias,” respondis Jonatano kaj denove karesis mian vangon. Kaj poste li diris:
 
 ”Mi pensas, ke eble ni povus salti denove. De la klifo. Tien malsupren sur la herbejon.”
 
-”Tiam ni mortos,” mi diris. ”Sed ĉu ni tiam venos al Nan-
-
-gilima?”
+”Tiam ni mortos,” mi diris. ”Sed ĉu ni tiam venos al Nangilima?”
 
 ”Jes, estu tutcerta pri tio,” diris Jonatano.
 
-”Tuj kiam ni tuŝos la teron, ni vidos la lumon de Nangili-
-
-ma. Ni vidos la matenan lumon super la valoj de Nangilima, jes, ĉar tie estas nun mateno.”
+”Tuj kiam ni tuŝos la teron, ni vidos la lumon de Nangilima. Ni vidos la matenan lumon super la valoj de Nangilima, jes, ĉar tie estas nun mateno.”
 
 ”Ha, ha, do ni povos salti rekte al Nangilima,” mi ĝojis kaj ridis la unuan fojon de post longa tempo.
 
@@ -5577,9 +4609,6 @@ de ĝojo! Kaj ankaŭ vi, Biskoto, ankaŭ vi estos gaja. La pado al la Pomo-valo 
 ”Kiel li ĝojos, kiam ni venos,” mi diris. Sed poste estis kvazaŭ mi ricevis baton de klabo. Grimo kaj Fjalaro, kiamanie-re ni kondukos ilin al Nangilima?
 
 ”Kiel vi povas diri, ke ili jam atendas nin tie? Ili kuŝas apud ni dormante.”
-
-
-LA FRATOJ LEONKORO
 
 
 ”Ili ne dormas, Biskoto! Ili jam mortis. Pro la fajro de Katla. Vi vidas nur iliajn ŝelojn tie. Kredu min, Grimo kaj Fjalaro jam staras ĉe la pado al Nangilima kaj atendas nin.”
@@ -5623,9 +4652,6 @@ Mi reiris al Jonatano.
 ”Ne tro longe,” diris Jonatano.
 
 
-LA FRATOJ LEONKORO
-
-
 ”Ne, nur ĝis estos tute malhele,” mi diris. ”Tiel ke mi nenion vidos.”
 
 Kaj mi sidis apud li kaj tenis lian manon kaj sentis, ke li estas forta kaj profunde bonkora kaj ke nenio estas vere minaca, se li estas kun mi.
@@ -5636,18 +4662,13 @@ Mi ne vidis la abismon antaŭ mi, sed mi sciis, ke ĝi estas tie. Kaj necesis nu
 
 ”Biskoto Leonkoro,” diris Jonatano, ”ĉu vi timas?”
 
-”Ne … jes, mi timas! Sed tamen mi faros, Jonatano, mi fa-
-
-ras nun … nun … kaj poste mi neniam plu timos. Neniam plu
+”Ne … jes, mi timas! Sed tamen mi faros, Jonatano, mi faras nun … nun … kaj poste mi neniam plu timos. Neniam plu
 
 ti … ”
 
 ”Ho, Nangilima! Jes, Jonatano, jes, mi vidas la lumon! Mi
 
 vidas la lumon!”
-
-
-LA FRATOJ LEONKORO
 
 
 www.omnibus.se/
@@ -5657,19 +4678,19 @@ www.omnibus.se/
 + Enhavo
 + Antau’parolo de Astrid Lindgren
 + Antau’parolo
-+ 1
-+ 2
-+ 3
-+ 4
-+ 5
-+ 6
-+ 7
-+ 8
-+ 9
-+ 10
-+ 11
-+ 12
-+ 13
-+ 14
-+ 15
-+ 16
++
++
++
++
++
++
++
++
++
++
++
++
++
++
++
++

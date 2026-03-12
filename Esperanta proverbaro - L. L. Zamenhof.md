@@ -5,20 +5,10 @@ Esperanta
 proverbaro
 
 
-### 1
-
 ESPERANTA PROVERBARO
 
 
 L. L. Zamenhof
-
-ESPERANTA PROVERBARO
-
-
-@omnibus.se
-
-
-ESPERANTA PROVERBARO
 
 
 a
@@ -60,9 +50,6 @@ Al ĉiu frato lian parton.
 Al ĉiu konvenas, kio al li apartenas.
 
 Al ĉiu sanktulo apartan kandelon.
-
-
-ESPERANTA PROVERBARO
 
 
 Al ĉiu sia propra estas ĉarma kaj kara.
@@ -108,9 +95,6 @@ Al la papero ne mankas tolero.
 Al li ne mankas defendo kontraŭ ofendo.
 
 Al loko dolora ni manon etendas — al loko ĉarma okulojn ni sendas.
-
-
-ESPERANTA PROVERBARO
 
 
 Al malriĉulo infanoj ne mankas.
@@ -160,9 +144,6 @@ Almozpetanto sinĝena restas kun sako malplena.
 Alpremi iun al la muro.
 
 
-ESPERANTA PROVERBARO
-
-
 Altan arbon batas la fulmo.
 
 Amaso da fianĉoj, sed la ĝusta ne venas.
@@ -208,9 +189,6 @@ Amo pli kora, disiĝo pli dolora.
 Amo supermezura ne estas plezura.
 
 Amu Antonon, sed gardu vian monon.
-
-
-ESPERANTA PROVERBARO
 
 
 Amu domon novan kaj amikon malnovan.
@@ -260,9 +238,6 @@ Antaŭ tima okulo potenciĝas eĉ kulo.
 Antaŭ vespero ne estu fiera.
 
 
-ESPERANTA PROVERBARO
-
-
 Aperas prudento, kiam pasis la momento.
 
 Aprila vetero — trompa aero.
@@ -310,9 +285,6 @@ Aŭ plej riĉa stato, aŭ plena malsato.
 Aŭskultas prudente, kiu aŭskultas atente.
 
 
-ESPERANTA PROVERBARO
-
-
 Aŭskulti kiel ĉinan predikon.
 
 Avarulo avaras, heredantoj malŝparas.
@@ -322,9 +294,6 @@ Avarulo pagas duoble.
 Azen’ al azeno riproĉas malsaĝon.
 
 Azenon komunan oni batas plej multe.
-
-
-ESPERANTA PROVERBARO
 
 
 b
@@ -366,9 +335,6 @@ Bela birdo!
 Bela celo por fabelo.
 
 Bela paro por altaro.
-
-
-ESPERANTA PROVERBARO
 
 
 Bela per vizaĝo, sed ne bela per saĝo.
@@ -418,9 +384,6 @@ Bona puno por malbona peno.
 Bona stato saĝigas, malbona malsaĝigas.
 
 
-ESPERANTA PROVERBARO
-
-
 Bona vino al la fino.
 
 Bonaj infanoj gepatrojn feliĉigas, malbonaj ilin entombigas.
@@ -462,9 +425,6 @@ Buĉas la lupo, oni ankaŭ ĝin buĉos.
 Butonumi iun malvaste.
 
 
-ESPERANTA PROVERBARO
-
-
 c
 
 Celi anseron, trafi aeron.
@@ -476,9 +436,6 @@ Cent jarojn silentis kaj subite sin prezentis.
 Certaĵo kaj leĝo, kiel amen en preĝo.
 
 Certe, kiel duoble du kvar.
-
-
-ESPERANTA PROVERBARO
 
 
 ĉ
@@ -520,9 +477,6 @@ ESPERANTA PROVERBARO
 ĉio havas finon.
 
 ĉio havas sian ”sed” kaj ”se.”
-
-
-ESPERANTA PROVERBARO
 
 
 ĉio sia estas plej ĉarma.
@@ -568,9 +522,6 @@ ESPERANTA PROVERBARO
 ĉiu iras, kiel saĝ’ al li diras.
 
 ĉiu klopodu nur en sia metio, tiam al la urbo mankos nenio.
-
-
-ESPERANTA PROVERBARO
 
 
 ĉiu komenco estas malfacila.
@@ -620,9 +571,6 @@ ESPERANTA PROVERBARO
 ĉiun demandu, sed mem al vi komandu.
 
 
-ESPERANTA PROVERBARO
-
-
 Danĝera estas bovo antaŭe, ĉevalo malantaŭe, kaj malsaĝulo de ĉiuj flankoj.
 
 d
@@ -658,9 +606,6 @@ De kantado senpaga doloras la gorĝo.
 De kiu la kulpo, por tiu la puno.
 
 De l’koro spegulo estas la okulo.
-
-
-ESPERANTA PROVERBARO
 
 
 De la buŝo ĝis la manoj estas granda interspaco.
@@ -710,9 +655,6 @@ De tro multa scio krevas la kranio.
 De unu bovo oni du felojn ne deŝiras.
 
 
-ESPERANTA PROVERBARO
-
-
 De vorto ĝentila ne doloras la lango.
 
 De zorgoj, ne de jaroj, blankiĝas la haroj.
@@ -758,9 +700,6 @@ Dio donis buŝon, Dio donos manĝon.
 Dio donis, Dio prenis.
 
 Dio donis infanon, Dio donos por ĝi panon.
-
-
-ESPERANTA PROVERBARO
 
 
 Dio donis kaj benis, sed diablo forprenis.
@@ -810,9 +749,6 @@ Diron oni neas, skribo ne pereas.
 Disputo kredigas, sed ne certigas.
 
 
-ESPERANTA PROVERBARO
-
-
 Disputoj kondukas al malpaco.
 
 Disputu komence — vi ne malpacos en fino.
@@ -860,9 +796,6 @@ Dronanto eĉ herbeton kaptas avide.
 Droni en detaloj.
 
 
-ESPERANTA PROVERBARO
-
-
 Du botoj faras paron.
 
 Du kontraŭ unu prezentas armeon.
@@ -880,9 +813,6 @@ neniam vivas sen reciproka malbeno.
 Dubo gardas kontraŭ risko.
 
 Dum la manĝado venas apetito.
-
-
-ESPERANTA PROVERBARO
 
 
 e
@@ -922,9 +852,6 @@ Eĉ monstron admiras, kiu ame deliras.
 Eĉ muŝo sentas, kiam vi ĝin turmentas.
 
 Eĉ najtingalo ne estas sen galo.
-
-
-ESPERANTA PROVERBARO
 
 
 Eĉ najtingalo ne estas sen galo.
@@ -970,9 +897,6 @@ Edzin’ admirata — edzo malsata.
 Edzino pli elverŝas per funelo, ol edzo enverŝas per sitelo.
 
 Edzo edzinon laŭdas, edzino edzon aplaŭdas.
-
-
-ESPERANTA PROVERBARO
 
 
 Edzo kaj edzino — ĉiela difino.
@@ -1022,9 +946,6 @@ El la poŝo al la buŝo.
 El la sama buŝo li blovas varmon kaj malvarmon.
 
 
-ESPERANTA PROVERBARO
-
-
 El lia mano ĉiu monero elglitas.
 
 El malgrandaj akveroj fariĝas grandaj riveroj.
@@ -1072,9 +993,6 @@ En bona ordo tra la pordo!
 En buŝo Biblio, en koro malpio.
 
 
-ESPERANTA PROVERBARO
-
-
 En ĉeesto amata, en forest’ insultata.
 
 En ĉiu aĝo devas kreski la saĝo.
@@ -1116,9 +1034,6 @@ En la bona malnova tempo.
 En la propra sia domo ĉiu estas granda homo.
 
 En la tago de la sankta Neniamo.
-
-
-ESPERANTA PROVERBARO
 
 
 En la triĵaŭda semajno.
@@ -1168,9 +1083,6 @@ Enpremi iun en funelon.
 Enskribu en vian memoron.
 
 
-ESPERANTA PROVERBARO
-
-
 Enspezo postulas elspezon.
 
 Envia moko sukceson ne detruas.
@@ -1216,15 +1128,9 @@ Estro ne malsatas.
 Estu ĉapo laŭ la kapo.
 
 
-ESPERANTA PROVERBARO
-
-
 Estu saĝa homo en via propra domo.
 
 Estu sinjoro de via vorto.
-
-
-ESPERANTA PROVERBARO
 
 
 f
@@ -1266,9 +1172,6 @@ Fari el muŝo elefanton.
 Farita — elstrekita.
 
 Farita ne refariĝos.
-
-
-ESPERANTA PROVERBARO
 
 
 Farita via faro, nun adiaŭ, mia kara!
@@ -1314,9 +1217,6 @@ Fidanta al vorto atendas ĝis morto.
 Fiera mieno — kapo malplena.
 
 Fiereco venas antaŭ la falo.
-
-
-ESPERANTA PROVERBARO
 
 
 Filo konfesis, patro forgesis.
@@ -1366,9 +1266,6 @@ Fordoni anseron, por ricevi paseron.
 Fordormi la okazon.
 
 
-ESPERANTA PROVERBARO
-
-
 Foresto de ofendo estas plej bona defendo.
 
 Forfluu infano kune kun la bano.
@@ -1416,9 +1313,6 @@ Fremda mizero — ridinda afero.
 Fremda spesmilo estas sen utilo.
 
 
-ESPERANTA PROVERBARO
-
-
 Fremdan dorson bastoni — ankaŭ sian doni.
 
 Fremdan vundon kaŝas vesto.
@@ -1432,9 +1326,6 @@ Frue leviĝu kaj frue edziĝu.
 Frukto malpermesita estas plej bongusta.
 
 Fungon englutis!
-
-
-ESPERANTA PROVERBARO
 
 
 Gardatan ŝafon eĉ lupo timas.
@@ -1476,9 +1367,6 @@ Granda nubo, malgranda pluvo.
 Granda ofico, grandaj zorgoj.
 
 
-ESPERANTA PROVERBARO
-
-
 Granda parolisto estas duba faristo.
 
 Granda parolo, sed malgranda volo.
@@ -1496,9 +1384,6 @@ Groŝo ŝparita neniam perdiĝas.
 Groŝon ŝtelis — ho, ŝtelisto! Milojn ŝtelis — financisto.
 
 Guto malgranda, sed ŝtonon ĝi boras.
-
-
-ESPERANTA PROVERBARO
 
 
 ĝ
@@ -1542,9 +1427,6 @@ i fariĝis por mi osto en la gorĝo.
 i glitas de li kiel pizo de muro.
 
 
-ESPERANTA PROVERBARO
-
-
 i havas ankoraŭ signon de demando.
 
 i helpos kiel hirud’ al mortinto.
@@ -1570,9 +1452,6 @@ is la edziĝo venos resaniĝo.
 oju kaj festenu, sed malriĉulojn subtenu.
 
 ustatempa vorto estas granda forto.
-
-
-ESPERANTA PROVERBARO
 
 
 h
@@ -1616,9 +1495,6 @@ Hodiaŭ festene, morgaŭ malplene.
 Hodiaŭ festene, morgaŭ malplene.
 
 
-ESPERANTA PROVERBARO
-
-
 Hodiaŭ forto, morgaŭ morto.
 
 Hodiaŭ pagi vi devas, morgaŭ kredite ricevos.
@@ -1660,9 +1536,6 @@ Hundo bonrasa estas bona por ĉaso.
 Hundo povas boji eĉ kontraŭ la reĝo.
 
 
-ESPERANTA PROVERBARO
-
-
 i
 
 Iafoje oni devas okulon fermeti.
@@ -1702,9 +1575,6 @@ Inter kornikoj ne konvenas predikoj.
 Inter la blinduloj reĝas la strabuloj.
 
 
-ESPERANTA PROVERBARO
-
-
 Inter la mano ĝis la buŝo ofte disverŝiĝas la supo.
 
 Inter lupoj kriu lupe.
@@ -1720,9 +1590,6 @@ Iom da malvero ne estas danĝero.
 Iras ĉiu kruro laŭ sia plezuro.
 
 Iri for en bona hor’.
-
-
-ESPERANTA PROVERBARO
 
 
 j
@@ -1766,9 +1633,6 @@ Ju pli malproksimen la vojo, des pli da larmoj.
 Ju pli oni babilas, des pli oni al si malutilas.
 
 
-ESPERANTA PROVERBARO
-
-
 Ju pli oni posedas, des pli oni avidas.
 
 Ju pli precizaj la kalkuloj, des pli fortika la amikeco.
@@ -1788,9 +1652,6 @@ Juneco ne scias, maljuneco ne povas.
 Juneco petolis, maljuneco malsatos.
 
 
-ESPERANTA PROVERBARO
-
-
 ĵ
 
 ĵeti bastonon en la radon.
@@ -1802,9 +1663,6 @@ ESPERANTA PROVERBARO
 ĵuri kaj reĵuri.
 
 ĵuri per la barbo de l’profeto.
-
-
-ESPERANTA PROVERBARO
 
 
 k
@@ -1846,9 +1704,6 @@ Karakteron al kanto donas la tono.
 Karesi al iu la barbon.
 
 Karesi kontraŭ la haroj.
-
-
-ESPERANTA PROVERBARO
 
 
 Kastel’ en aero — malsato sur tero.
@@ -1898,9 +1753,6 @@ Kia pago, tia ago.
 Kia paroęstro, tia paro˛o.
 
 
-ESPERANTA PROVERBARO
-
-
 Kia patrino, tia filino.
 
 Kia regalato, tia regalado.
@@ -1946,9 +1798,6 @@ Kie dento doloras, tien iras la lango.
 Kie diablo ne povas, tien virinon li ŝovas.
 
 Kie estas harmonio, estas beno de Dio.
-
-
-ESPERANTA PROVERBARO
 
 
 Kie estas mielo, tie muŝoj ne mankas.
@@ -1998,9 +1847,6 @@ Kiel oni vin taksas, tiel oni vin regalas.
 Kiel oni vin vidas, tiel oni vin taksas.
 
 
-ESPERANTA PROVERBARO
-
-
 Kien ajn mi pafas, ĉio maltrafas.
 
 Kien kudrilo iras, tien fadenon ĝi tiras.
@@ -2046,9 +1892,6 @@ Kio konvenas al sciuro, ne konvenas al vulturo.
 Kio kostas malmulte, kostas plej kare.
 
 Kio mem ne venas, li per la dentoj ĝin prenas.
-
-
-ESPERANTA PROVERBARO
 
 
 Kio mia, tio bona.
@@ -2098,9 +1941,6 @@ Kion koro sentas, lango prezentas.
 Kion leĝo malpermesas, tio plaĉi ne ĉesas.
 
 
-ESPERANTA PROVERBARO
-
-
 Kion mem mi faras, tion ĉie mi flaras.
 
 Kion mi ne scias, tion mi ne envias.
@@ -2144,9 +1984,6 @@ Kiu agas afable, vivas agrable.
 Kiu akceptas donacon, perdas la pacon.
 
 Kiu akvon evitas, droni ne timas.
-
-
-ESPERANTA PROVERBARO
 
 
 Kiu amas honoron, amu laboron.
@@ -2196,9 +2033,6 @@ Kiu donacon prenas, tiu sin katenas.
 Kiu donas rapide, donas duoble.
 
 
-ESPERANTA PROVERBARO
-
-
 Kiu donis garantion, tiu pagu la ŝuldon.
 
 Kiu dormas longe, vivas mallonge.
@@ -2246,9 +2080,6 @@ Kiu havas nenion, estas nenio.
 Kiu havas nenion, estas neniu.
 
 
-ESPERANTA PROVERBARO
-
-
 Kiu havas oron, havas honoron.
 
 Kiu hontas nenion, ne timas Dion.
@@ -2292,9 +2123,6 @@ Kiu kutimis ĉion juĝi, nenie povas rifuĝi.
 Kiu laboras kaj deziras, tiu akiras — kiu mem ne penas, nenio al li venas.
 
 Kiu laboron evitas, bonon ne vidas.
-
-
-ESPERANTA PROVERBARO
 
 
 Kiu langon ne tenas, mem sin malbenas.
@@ -2344,9 +2172,6 @@ Kiu multe minacas, ne estas danĝera.
 Kiu multe parolas, malamikon konsolas.
 
 
-ESPERANTA PROVERBARO
-
-
 Kiu multe parolas, ne multe faras.
 
 Kiu multe profitas, ankaŭ perdon ne evitas.
@@ -2390,9 +2215,6 @@ Kiu perdis la kapon, ne bezonas jam ĉapon.
 Kiu pli frue venas, pli bonan lokon prenas.
 
 Kiu pli frue venas, pli frue muelas.
-
-
-ESPERANTA PROVERBARO
 
 
 Kiu por ĉiuj laboras, por si mem ne memoras.
@@ -2442,9 +2264,6 @@ Kiu speson ne tenas, tiu al spesmilo ne venas.
 Kiu ŝteliston regalas, mem ŝteliston egalas.
 
 
-ESPERANTA PROVERBARO
-
-
 Kiu ŝuldojn estingas, riĉecon atingas.
 
 Kiu supren kraĉon ĵetas, sian barbon al ĝi submetas.
@@ -2488,9 +2307,6 @@ Kiu vivos, tiu vidos.
 Kiu volas komerci, tiu saĝon bezonas.
 
 Kiu volas mensogi, devas bone memori.
-
-
-ESPERANTA PROVERBARO
 
 
 Kiu volas panon, ne dorlotu la manon.
@@ -2540,9 +2356,6 @@ Komenci per Dio kaj fini per diablo.
 Komenci per flato kaj fini per bato.
 
 
-ESPERANTA PROVERBARO
-
-
 Komenco aprila — trompo facila.
 
 Komenco bona — laboro duona.
@@ -2586,9 +2399,6 @@ Konstrui kastelojn en aero.
 Konstrui kastelon sur glacio.
 
 Konsumi sian antaŭan grason.
-
-
-ESPERANTA PROVERBARO
 
 
 Konsumi sian grenon antaŭ ĝia maturiĝo.
@@ -2638,9 +2448,6 @@ Kontraŭ peko batalu, sed pekanton ne tuŝu.
 Kontraŭ peko prediku, sed pekinton pardonu.
 
 
-ESPERANTA PROVERBARO
-
-
 Kontraŭstari per ĉiuj fortoj.
 
 Kontraŭ tuta kohorto eĉ Herkulo estas malforta.
@@ -2688,9 +2495,6 @@ Kun kiu vi festas, tia vi estas.
 Kun kiu vi kuniĝas, tia vi fariĝas.
 
 
-ESPERANTA PROVERBARO
-
-
 Kun konfido neniam rapidu.
 
 Kun la peko en mano.
@@ -2732,9 +2536,6 @@ Kvina rado ĉe veturado.
 Kvitiĝas servo per reservo.
 
 
-ESPERANTA PROVERBARO
-
-
 l
 
 La afero estas plenumita.
@@ -2774,9 +2575,6 @@ La konscienco lin ne turmentas.
 La lango de virino estas ĝia glavo.
 
 La lastan el amaso atakas la hundo.
-
-
-ESPERANTA PROVERBARO
 
 
 La lipoj ne montru, kion manĝis la buŝo.
@@ -2826,9 +2624,6 @@ Laboro donas bonstaton, mallaboro malsaton.
 Laboro finita — ripozo merita.
 
 
-ESPERANTA PROVERBARO
-
-
 Laboro fortigas, ripozo putrigas.
 
 Laboro homon nutras, sen laboro li putras.
@@ -2874,9 +2669,6 @@ Lavu tutan jaron, negro ne blankiĝos.
 Leĝe kaj rajte.
 
 Leĝo estas bona, se advokato ĝin helpas.
-
-
-ESPERANTA PROVERBARO
 
 
 Leĝo estas cedema: kien vi deziras, ĝi iras.
@@ -2926,9 +2718,6 @@ Li esploris iom la fundon de la glaso.
 Li estas bravulo en sia angulo.
 
 
-ESPERANTA PROVERBARO
-
-
 Li estas en acida humoro.
 
 Li estas en klopodoj de l’kapo ĝis piedoj.
@@ -2974,9 +2763,6 @@ Li havas la kapon fortike sur la kolo.
 Li havas la kapon sur la ĝusta loko.
 
 
-ESPERANTA PROVERBARO
-
-
 Li havas la kapon sur ĝusta loko.
 
 Li havas muŝon en la kapo.
@@ -3020,9 +2806,6 @@ Li ne elpensis la filozofian ŝtonon.
 Li ne elrampis ankoraŭ el la vindoj.
 
 Li ne enlasas puŝon en sian buŝon.
-
-
-ESPERANTA PROVERBARO
 
 
 Li ne estas el la grandaj saĝuloj.
@@ -3072,9 +2855,6 @@ Li trafis el sub pluvo en riveron.
 Li tremas kiel aŭtuna folio.
 
 
-ESPERANTA PROVERBARO
-
-
 Li vidas nur ĝis la pinto de sia nazo.
 
 Li vivas en ĝuo kaj bruo.
@@ -3122,9 +2902,6 @@ Ludi ventobatadon.
 Ludo aparte, kaj afero aparte.
 
 
-ESPERANTA PROVERBARO
-
-
 Luksa la vesto, sed malplena la poŝo.
 
 Lumo fariĝos, kulpulo troviĝos.
@@ -3138,9 +2915,6 @@ Lupo lupon ne manĝas.
 Lupo ŝanĝas la harojn, sed ne la farojn.
 
 Lupo sopiras, al arbaro sin tiras.
-
-
-ESPERANTA PROVERBARO
 
 
 m
@@ -3180,9 +2954,6 @@ Malfeliĉo komuna estas malpli premanta.
 Malfeliĉo malofte venas sole.
 
 Malfeliĉo sin ne ĝenas, faru geston — ĝi tuj venas.
-
-
-ESPERANTA PROVERBARO
 
 
 Malfeliĉo venas, malfeliĉon kuntrenas.
@@ -3230,9 +3001,6 @@ Malpli da havo, malpli da zorgoj.
 Malpli da posedo, malpli da tedo.
 
 
-ESPERANTA PROVERBARO
-
-
 Malpli esperu, pli konsideru.
 
 Malproksime vidas, antaŭ la nazo ne vidas.
@@ -3276,9 +3044,6 @@ Malsaĝulo ŝtonon ĵetis, dek saĝuloj ĝin ne atingos.
 Malsaĝulo venas, komercisto festenas.
 
 Malsaĝuloj kreskas mem, sen plugo kaj sem’.
-
-
-ESPERANTA PROVERBARO
 
 
 Malsaĝulon favoras feliĉo.
@@ -3328,9 +3093,6 @@ Marĉandado aĉeti ne devigas.
 Marĉando aĉeti ne devigas.
 
 
-ESPERANTA PROVERBARO
-
-
 Maro ĉiujn riverojn ricevas kaj tamen ne krevas.
 
 Maro da mizeroj.
@@ -3376,9 +3138,6 @@ Mi blinde pafos, eble trafos.
 Mi flanke sidis, mi ne aŭdis nek vidis.
 
 Mi havas pri tio nek scion nek supozon.
-
-
-ESPERANTA PROVERBARO
 
 
 Mi hejme sidis, nenion vidis.
@@ -3428,9 +3187,6 @@ Mizero havas talentan kapon.
 Mizero instruas.
 
 
-ESPERANTA PROVERBARO
-
-
 Mizero piedojn sanigas, kolon elastigas.
 
 Mizero plej ekstreme, Dio plej proksime.
@@ -3478,9 +3234,6 @@ Morgaŭ estas la amata tago de mallaboruloj.
 Morgaŭ frue venos plue.
 
 
-ESPERANTA PROVERBARO
-
-
 Mortinta serĉu ĉielon, vivanta iun celon.
 
 Muele sencele.
@@ -3512,9 +3265,6 @@ Murmuri tra la dentoj.
 Muso la katon ĉiam ofendis.
 
 Muso satiĝis, faruno malboniĝis.
-
-
-ESPERANTA PROVERBARO
 
 
 n
@@ -3552,9 +3302,6 @@ Ne beligas loko homon, sed homo la lokon.
 Ne bezonas la kapo konsilon de kruroj.
 
 Ne ĉiam daŭras malbona vetero, ne ĉiam daŭras homa sufero.
-
-
-ESPERANTA PROVERBARO
 
 
 Ne ĉiam estas festo, venos ankaŭ fasto.
@@ -3604,9 +3351,6 @@ Ne donu kaj ne boju.
 Ne ekzistas en la komerco amikeco nek ŝerco.
 
 
-ESPERANTA PROVERBARO
-
-
 Ne ekzistas forto kontraŭ la morto.
 
 Ne ekzistas fumo sen brulo.
@@ -3650,9 +3394,6 @@ Ne esperite, ne sonĝite.
 Ne estas piediranto kolego al rajdanto.
 
 Ne estingu la fajron, kiu vin ne bruligas.
-
-
-ESPERANTA PROVERBARO
 
 
 Ne falas frukto malproksime de l’arbo.
@@ -3702,9 +3443,6 @@ Ne juĝu pri afero laŭ ĝia ekstero.
 Ne kaptita — ne punita.
 
 
-ESPERANTA PROVERBARO
-
-
 Ne karesu per mano, sed karesu per pano.
 
 Ne kaŝiĝas lia lango malantaŭ la vango.
@@ -3752,9 +3490,6 @@ Ne pekas drinkulo, pekas ebriulo.
 Ne pelu tiun, kiu mem forkuras.
 
 
-ESPERANTA PROVERBARO
-
-
 Ne pentru diablon sur la muro.
 
 Ne por lupo estas supo.
@@ -3798,9 +3533,6 @@ Ne spiciĝas manĝo de mastrina beleco.
 Ne ŝtelus ŝtelistoj, se ne ekzistus kaŝistoj.
 
 Ne sufiĉas ploro al kreditoro.
-
-
-ESPERANTA PROVERBARO
 
 
 Ne taŭgas du ursoj por unu nesto.
@@ -3850,9 +3582,6 @@ Nebuligi al iu la okulojn.
 Neceseco kontraŭvola estas leĝo malmola.
 
 
-ESPERANTA PROVERBARO
-
-
 Neceso ne estas kareso.
 
 Neevitebla malbono.
@@ -3896,9 +3625,6 @@ Neniam atendita ofte venas subite.
 Nenie semata, ĉie trovata.
 
 Nenio pli grandan mizeron prezentas, ol se sano mankas kaj ŝuldoj turmentas.
-
-
-ESPERANTA PROVERBARO
 
 
 Neniom da oro, sed bona gloro.
@@ -3946,9 +3672,6 @@ Notu en la kamentubo.
 Nova balailo bone balaas.
 
 
-ESPERANTA PROVERBARO
-
-
 Nova stato — nova vivo.
 
 Novaj sinjoroj — novaj moroj.
@@ -3968,9 +3691,6 @@ Nur tiu ne eraras, kiu neniam ion faras.
 Nutri per promesoj.Promesi orajn montojn.
 
 Nutru lupon plej sate, li ĉiam serĉas arbaron.
-
-
-ESPERANTA PROVERBARO
 
 
 o
@@ -4012,9 +3732,6 @@ Okupi sen celo lokon sub ĉielo.
 Oni akceptas laŭ vizaĝo, oni forlasas laŭ saĝo.
 
 Oni batas la oron, por provi ĝian valoron.
-
-
-ESPERANTA PROVERBARO
 
 
 Oni batas, malkaresas, kaj eĉ plori ne permesas.
@@ -4062,9 +3779,6 @@ Oni prenas per manoj, redonas per piedoj.
 Oni priŝtelas ne riĉulon, sed sengardulon.
 
 
-ESPERANTA PROVERBARO
-
-
 Oni tondas ŝafinojn, tremas la ŝafoj.
 
 Oni vivas ne kun mono, sed kun persono.
@@ -4086,9 +3800,6 @@ Oro estas pli peza ol fero, pli malpeza ol aero.
 Oro nur fingron eksvingas kaj ĉion atingas.
 
 Ovo kokinon ne instruas.
-
-
-ESPERANTA PROVERBARO
 
 
 p
@@ -4130,9 +3841,6 @@ Paroli dolĉe en la orelon.
 Paroli per vortoj kovritaj.
 
 Paroli sensencaĵon.
-
-
-ESPERANTA PROVERBARO
 
 
 Parolo anĝela, sed penso pri ŝtelo.
@@ -4182,9 +3890,6 @@ Pensoj iras trans limo sen pago kaj timo.
 Per bezono venas mono.
 
 
-ESPERANTA PROVERBARO
-
-
 Per eraro ne praviĝas la faro.
 
 Per insulto kaj kolero ne klariĝas afero.
@@ -4230,9 +3935,6 @@ Perdi la saĝon.
 Perdinta la kapon pri haroj ne ploras.
 
 Pereis ŝafino, pereu ankaŭ la ŝafido.
-
-
-ESPERANTA PROVERBARO
 
 
 Perforta amo estas plej forta malamo.
@@ -4282,9 +3984,6 @@ Plej kuirita kampulo ĉiam restos krudulo.
 Plej saĝa maljunulo ne estas tro saĝa.
 
 
-ESPERANTA PROVERBARO
-
-
 Plena estas la infero de promesitaj aferoj.
 
 Plena glaso da vino, sed kun guto da veneno.
@@ -4328,9 +4027,6 @@ Pli bona estas saĝa malamiko, ol malsaĝa amiko.
 Pli bona estas virto sen oro, ol oro sen honoro.
 
 Pli bona estas vorto afabla, ol kuko agrabla.
-
-
-ESPERANTA PROVERBARO
 
 
 Pli bona homo sen mono, ol mono sen homo.
@@ -4380,9 +4076,6 @@ Pli da okuloj, pli da certeco.
 Pli efike ol bato pelas malsato.
 
 
-ESPERANTA PROVERBARO
-
-
 Pli facile estas eviti ol spiti.
 
 Pli facile estas malbonon eviti, ol korekti.
@@ -4430,9 +4123,6 @@ Pli valoras propra ĉemizo ol fremda plena valizo.
 Pli valoras senlaboreco, ol sensenca laboremeco.
 
 
-ESPERANTA PROVERBARO
-
-
 Pli valoras tuj ovo, ol poste bovo.
 
 Pli valoras vinagro donacita, ol vino aĉetita.
@@ -4476,9 +4166,6 @@ Por hundon dronigi, oni nomas ĝin rabia.
 Por kapti ezokon, bongustigu la hokon.
 
 Por la mono pastra preĝo, por la mono romp’ de leĝo.
-
-
-ESPERANTA PROVERBARO
 
 
 Por li eĉ la muĝo ne estas sen felo.
@@ -4528,9 +4215,6 @@ Por sperto kaj lerno ne sufiĉas eterno.
 Por unu — festeno, por alia — ĉagreno.
 
 
-ESPERANTA PROVERBARO
-
-
 Por vendisto mensogo estas necesa apogo.
 
 Por via bono vin regalas bastono.
@@ -4576,9 +4260,6 @@ Poton taksu laŭ sono, sinjoron laŭ tono.
 Prave li ricevas.
 
 Prave punite laŭmerite.
-
-
-ESPERANTA PROVERBARO
 
 
 Preĝejo proksima, sed Dio malproksima.
@@ -4628,9 +4309,6 @@ Pro amo al la kandelo kato lekas la kandelingon.
 Pro eraro ne praviĝas la faro.
 
 
-ESPERANTA PROVERBARO
-
-
 Pro homo fiera ĝojas infero.
 
 Pro kapo malsaĝa suferas la kruroj.
@@ -4678,9 +4356,6 @@ Propran ĝibon neniu vidas.
 Propran vangon neniu batas.
 
 
-ESPERANTA PROVERBARO
-
-
 Proverbo estas sperto, proverbo estas averto.
 
 Prunto amikon forpelas.
@@ -4692,9 +4367,6 @@ Pura ĉielo fulmon ne timas.
 Pura konscienco estas plej granda potenco.
 
 Putrado de fiŝo komenciĝas de l’kapo.
-
-
-ESPERANTA PROVERBARO
 
 
 r
@@ -4736,9 +4408,6 @@ Resti maljuna knabino.
 Restis nenio absolute, nek por mordi, nek por gluti.
 
 Restu tajloro ĉe via laboro.
-
-
-ESPERANTA PROVERBARO
 
 
 Rezonado kaj filozofado panon ne donas.
@@ -4786,9 +4455,6 @@ Rigardi per ambaŭ okuloj.
 Ripetado estas plej bona lernado.
 
 
-ESPERANTA PROVERBARO
-
-
 Ripetata parolo pri la sama titolo.
 
 Riveretoj fluas al riveroj.
@@ -4802,9 +4468,6 @@ Rostita kolombeto ne flugas al buŝeto.
 Rusto manĝas feron, ĉagreno la koron.
 
 Rusto manĝas la feron, kaj zorgo la homon.
-
-
-ESPERANTA PROVERBARO
 
 
 s
@@ -4846,9 +4509,6 @@ Samaj kondiĉoj, samaj superstiĉoj.
 Sango bolas, juneco petolas.
 
 Sango komuna reciproke sin altiras.
-
-
-ESPERANTA PROVERBARO
 
 
 Sango ne silentas, sian sangon ĝi sentas.
@@ -4894,9 +4554,6 @@ Se ĉiu speson donos, malriĉulo malsaton ne konos.
 Se decidos la sorto, helpos nenia forto.
 
 Se devigas neceso, faru kun kareso.
-
-
-ESPERANTA PROVERBARO
 
 
 Se Dio ne aranĝos, lupo vin ne manĝos.
@@ -4946,9 +4603,6 @@ Se la kaliko tro pleniĝas, la vino elverŝiĝas.
 Se la sorto vin batas, mokantoj ne mankas.
 
 
-ESPERANTA PROVERBARO
-
-
 Se la tempo forblovis, ni jam helpi ne povas; kio post ni aperos, ni de ĝi ne suferos.
 
 Se lipo dikiĝas, ventro maldikiĝas.
@@ -4990,9 +4644,6 @@ Se oni amas la gaston, oni zorgas la paston.
 Se Peĉjo ne semos, Petro ne rikoltos.
 
 Se peko trafas, eĉ bastono ekpafas.
-
-
-ESPERANTA PROVERBARO
 
 
 Se sako tro pleniĝas, ĝi baldaŭ disŝiriĝas.
@@ -5042,9 +4693,6 @@ Sen fajro ne brulas eĉ pajlo.
 Sen gutoj malgrandaj maro ne ekzistus.
 
 
-ESPERANTA PROVERBARO
-
-
 Sen laboro ne venas oro.
 
 Sen mensoga rekomendo ne iros la vendo.
@@ -5088,9 +4736,6 @@ Senlanigu, sed ne senfeligu.
 Senlanigu, sed ne senhaŭtigu.
 
 Senpaga estas nur la morto, sed ĝi kostas la vivon.
-
-
-ESPERANTA PROVERBARO
 
 
 Senplumigi kokinon, ne vekante mastrinon.
@@ -5140,9 +4785,6 @@ Sinjoro karesas, sed baldaŭ ĉesas.
 Sinjoro petas, kvazaŭ dekretas.
 
 
-ESPERANTA PROVERBARO
-
-
 Sinjoroj sin batas, servantoj vundojn ricevas.
 
 Situacio sen eliro.
@@ -5190,9 +4832,6 @@ Stomako malsata nur pri pano meditas.
 Stomako ne estas spegulo: kion ĝi manĝis, ne vidas okulo.
 
 
-ESPERANTA PROVERBARO
-
-
 Streĉiĝi el la haŭto.
 
 Streĉi la orelojn.
@@ -5228,9 +4867,6 @@ Sur lia nuko sidas pli ol peruko.
 Surmeto rompas, komparo trompas.
 
 Suspekto pruvon ne egalas.
-
-
-ESPERANTA PROVERBARO
 
 
 ŝ
@@ -5274,9 +4910,6 @@ ESPERANTA PROVERBARO
 ŝtelisto ŝteliston evitas, ĉar li tie ne profitas.
 
 
-ESPERANTA PROVERBARO
-
-
 ŝtelisto ŝteliston ne perfidas.
 
 ŝtelu malproksime, edziĝu proksime.
@@ -5300,9 +4933,6 @@ ESPERANTA PROVERBARO
 ŝuldon tempo ne kuracas.
 
 ŝuti polvon en la okulojn.
-
-
-ESPERANTA PROVERBARO
 
 
 t
@@ -5344,9 +4974,6 @@ Tempo toleras, sed vero aperas.
 Tempo venos, zorgon prenos.
 
 Teni iun per fera mano.
-
-
-ESPERANTA PROVERBARO
 
 
 Teni la okulojn en streĉo.
@@ -5396,9 +5023,6 @@ Trafi per la parolo rekte en la vizaĝon.
 Trafi per la vizaĝo en koton.
 
 
-ESPERANTA PROVERBARO
-
-
 Trafis falĉilo sur ŝtonon.
 
 Trafis hakilo al ligno malmola.
@@ -5446,9 +5070,6 @@ Tro forta ĵuro — la afero ne pura.
 Tro grandaj kalkuloj kondukas al nuloj.
 
 
-ESPERANTA PROVERBARO
-
-
 Tro kara aranĝo por malkara tagmanĝo.
 
 Tro longa atendo ĝis la fino de l’vendo.
@@ -5494,9 +5115,6 @@ Tute libera, kiel birdo aera.
 Tute ĝuste laŭ lia gusto.
 
 
-ESPERANTA PROVERBARO
-
-
 u
 
 Unu amiko malnova pli valoras ol du novaj.
@@ -5536,9 +5154,6 @@ Unu similas nulon, ne prezentas kalkulon.
 Unu sola guto la glason plenigas.
 
 
-ESPERANTA PROVERBARO
-
-
 Unu soldato militon ne faras.
 
 Unu vido taŭgas pli ol dek aŭdoj.
@@ -5564,9 +5179,6 @@ Urtikon frosto ne difektas.
 Uzi monon kaj admonon kaj flaton kaj baton.
 
 Uzu tempon estantan, antaŭvidu estontan, memoru estintan.
-
-
-ESPERANTA PROVERBARO
 
 
 v
@@ -5606,9 +5218,6 @@ Venos knabeto ankaŭ kun peto.
 Venos ŝtelisto al la juĝisto.
 
 Venos tempo, venos konsilo.
-
-
-ESPERANTA PROVERBARO
 
 
 Vento al li ekflugis sub la haŭto.
@@ -5654,9 +5263,6 @@ Vi varmigos serpenton, ĝi al vi enpikos la denton.
 Via dekstra mano ne sciu, kion faras la maldekstra.
 
 Vian vivon ĝuu, sed fremdan ne detruu.
-
-
-ESPERANTA PROVERBARO
 
 
 Vidas okulo, sed mano ne trafas.
@@ -5706,9 +5312,6 @@ Vivi inter forno hejtita kaj tablo kovrita.
 Vivi kiel ĉe la brusto de Dio.
 
 
-ESPERANTA PROVERBARO
-
-
 Vivi kiel kuko en butero.
 
 Vivi kun iu en fido kaj konfido.
@@ -5756,9 +5359,6 @@ Vojon batitan herbo ne kovras.
 Volanta kruro ne laciĝas de kuro.
 
 
-ESPERANTA PROVERBARO
-
-
 Vole-nevole.
 
 Voli aŭ ne voli neniu malpermesas.
@@ -5794,9 +5394,6 @@ Vundo pasas, vorto restas.
 Vundo sekreta doloras plej multe.
 
 
-ESPERANTA PROVERBARO
-
-
 Zorgu pri vi, kaj nenion pli.
 
 Zorgu vian metion kaj ne miksu vin en alian.
@@ -5804,9 +5401,6 @@ Zorgu vian metion kaj ne miksu vin en alian.
 z
 
 Zorgu vian vivon kaj lasu vivi alian.
-
-
-ESPERANTA PROVERBARO
 
 
 www.omnibus.se/

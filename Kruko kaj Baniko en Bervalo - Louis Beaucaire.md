@@ -7,22 +7,12 @@ kaj Baniko
 en Bervalo
 
 
-### 1
-
 K R U KO K A J B A N I KO
 
 
 Louis Beaucaire
 
 KRUKO KAJ BANIKO EN BERVALO
-
-
-@omnibs.se
-
-·
-
-
-K R U KO K A J B A N I KO
 
 
 Averto
@@ -38,14 +28,9 @@ mian amikon Kruko.
 ĉu mi rajtas prezenti lin al vi? Gaja ulo, kiu plenbruste ĝuas la vivon, al kiu okazas multaj amuzaj aventuroj, kiu multe ŝatas sian amikon Baniko kaj precipe ties leĝeran edzinon, kiu… sed kial mi babilu plu pri Kruko, pri Baniko, pri la ceteraj bervalanoj? jen ili mem:
 
 
-K R U KO K A J B A N I KO
-
-
 Pli ol fantazio
 
-ĉe strata angulo voluptovendistino promesas al Kruko ek-
-
-sterordinarajn ĝuojn. Kruko asertas:
+ĉe strata angulo voluptovendistino promesas al Kruko eksterordinarajn ĝuojn. Kruko asertas:
 
 —Mi scias, ke vi ne povas fari ”ĝin” al mi tiel, kiel mi volas.
 
@@ -55,9 +40,7 @@ sterordinarajn ĝuojn. Kruko asertas:
 
 Ofendite la putino kondukas Krukon en hotelan ĉambron
 
-kaj tie paradas per ĉiaj geiĝaj metodoj: pariza kareso, ava dro-
-
-ŝko, rusa serpento, aranea krablo, kalsona tango, alplafona kandelo, araba kafmuelilo, belga sonorilo, flugila kuniklo, bu-lonja kongreso, amerika baskulo, ataita tiktako, japana loko-motivo, kata tiklo, krura ventumilo, roterdama ueado, satana rajdo, interna ideo, midzuminado, vane, vane, vane… ĉiufoje Kruko skuas la kapon:
+kaj tie paradas per ĉiaj geiĝaj metodoj: pariza kareso, ava droŝko, rusa serpento, aranea krablo, kalsona tango, alplafona kandelo, araba kafmuelilo, belga sonorilo, flugila kuniklo, bu-lonja kongreso, amerika baskulo, ataita tiktako, japana loko-motivo, kata tiklo, krura ventumilo, roterdama ueado, satana rajdo, interna ideo, midzuminado, vane, vane, vane… ĉiufoje Kruko skuas la kapon:
 
 —Tio estis ja agrabla, sed vi ne faras ”ĝin” laŭ mia ŝatata maniero.
 
@@ -81,24 +64,15 @@ Kruko tuj prenas plumon, paperon kaj skribas:
 —Responde al via cirkulero de la 3a de aprilo, k.t.p.
 
 
-K R U KO K A J B A N I KO
-
-
 Plena gramatiko (ĉap. k35: La aspektoj de la verbo)
 
-Dum kongreso filino de fama akademiano babilas kun ami-
+Dum kongreso filino de fama akademiano babilas kun amikino:
 
-kino:
-
-—ĉu vi vidas tiun ĉarman delegiton? Hieraŭ vespere li in-
-
-vitis min en sian ĉambron, por diskuti pri la ata-ita problemo, kaj poste mi estis amorita de li.
+—ĉu vi vidas tiun ĉarman delegiton? Hieraŭ vespere li invitis min en sian ĉambron, por diskuti pri la ata-ita problemo, kaj poste mi estis amorita de li.
 
 —Vi devus diri ”amorata”, por montri la agrablan daŭron de la ago.
 
-—Ha! — vespiras la akademianidino, mi esperas, ke ”amo-
-
-ri” apartenas al la verbo-kategorio ”daŭro sen rezulto”.
+—Ha! — vespiras la akademianidino, mi esperas, ke ”amori” apartenas al la verbo-kategorio ”daŭro sen rezulto”.
 
 
 Bonaj kalkuloj, bonaj amikoj
@@ -107,9 +81,7 @@ Kruko: — ĉu vi scias, kiom da kokritoj estas en Bervalo, ne enkalkulante vin?
 
 Baniko: — Kion vi aludas per ”ne enkalkulante vin”?
 
-Kruko: — Pardonu. Se vi preferas, diru al mi, kiom da ko-
-
-kritoj estas en nia urbo, enkalkulante vin.
+Kruko: — Pardonu. Se vi preferas, diru al mi, kiom da kokritoj estas en nia urbo, enkalkulante vin.
 
 
 Sinjorino Baniko maldungas junan servistinon pro ŝia imper-tinenteco. La servistino kolere krias al ŝi:
@@ -124,9 +96,6 @@ Sinjorino Baniko maldungas junan servistinon pro ŝia imper-tinenteco. La servis
 En Bervala urinejo iu demandas sian najbaron:
 
 —ĉu vi estas judo?
-
-
-K R U KO K A J B A N I KO
 
 
 —Jes, respondas la alia, mirante.
@@ -166,9 +135,6 @@ la tablon kaj ekkrias kolere:
 —Ha! ne pro amo, sed nur pro frandemo tion faris al mi la fiulino!
 
 
-K R U KO K A J B A N I KO
-
-
 Pli bone malfrue, ol neniam
 
 Senspiriĝinte, maljuna sinjoro raportas al policano:
@@ -203,10 +169,7 @@ planon ĉe la
 giĉeto.*
 
 
-K R U KO K A J B A N I KO
-
-
-* KIO ESTAS BERVALAĵO
+* KIO ESTAS BERVALAĴO
 
 Se deklamisto, anstataŭ ”Ho mia kor’ ”, diras ”Ho, kia mor’ ”, li ridigas la publikon, farinte bervalaĵon. Verdire tio ne estas ĝuste bervalaĵo, ĉar la interŝanĝo de literoj aŭ de silaboj en frazo devus kaŝi maldecan signifon. ”Trenu pramon” anstataŭ ”prenu tra-mon” estas nur seninteresa langostumblo. Male, se anstataŭ: ”ŝi ĉiam puŝas siajn kunludantojn ĉe la teniso” vi diras ”ŝi ĉiam tuŝas siajn kunludantojn ĉe la p……”, vi faras bervalaĵon.
 
@@ -234,9 +197,6 @@ Infano de zorgo
 —Ne.
 
 —ĉiujare?
-
-
-K R U KO K A J B A N I KO
 
 
 —Jes, proksimume.
@@ -269,12 +229,7 @@ Respondo: Por kontroli la verecon de la deklaro.
 
 Plej granda potenco kuŝas en la komenco
 
-Du amikinoj parolas pri la mirinda eco de la ostroj, kiu laŭ-
-
-dire pliigas la viran sekskapablon. Unu dubas:
-
-
-K R U KO K A J B A N I KO
+Du amikinoj parolas pri la mirinda eco de la ostroj, kiu laŭdire pliigas la viran sekskapablon. Unu dubas:
 
 
 —Mi ne kredas, ke tio estas ĝusta. Hieraŭ vespere mia edzo manĝis dekduon da ostroj, sed efikis nur sep.
@@ -290,18 +245,14 @@ sinjoroj. Eble ili akceptos vin.
 
 Efektive la du junaj viroj, iom timemaj, bonvolas dividi la liton kun la belulino, kaj invitas ŝin dormi meze de la lito.
 
-La sekvan matenon ambaŭ junuloj aspektas elĉerpitaj, la-
-
-cepelitaj, forkonsumitaj. Male la knabino streĉiĝas kaj gaje rakontas:
+La sekvan matenon ambaŭ junuloj aspektas elĉerpitaj, lacepelitaj, forkonsumitaj. Male la knabino streĉiĝas kaj gaje rakontas:
 
 —La tutan nokton mi sonĝis, ke mi skias, kaj mi tiel vigle puŝadis miajn skibastonojn, ke mi gajnis ĉiujn kurkonkursojn.
 
 
 Pro unu bovino
 
-Kruko kaj Baniko pasigas du semajnojn en la kamparo. Multo estas nova por ambaŭ urbanoj. Iam la farmisto, ĉe kiu ili lo-
-
-ĝas, petas ilnduki bovinon al la virbovo.
+Kruko kaj Baniko pasigas du semajnojn en la kamparo. Multo estas nova por ambaŭ urbanoj. Iam la farmisto, ĉe kiu ili loĝas, petas ilnduki bovinon al la virbovo.
 
 —Volonte, — respondas Kruko.
 
@@ -310,9 +261,6 @@ Kaj la amikoj foriras kun la bovino. Post kvin horoj ili revenas kun lacegajn mi
 —Kio do okazis?
 
 —Malgraŭ niaj klopodoj tiu bovinaĉo tiel baraktis, ke ni ne sukcesis surdorsigi ŝin antaŭ la taŭro.
-
-
-K R U KO K A J B A N I KO
 
 
 Mirinda donaco ĉiela
@@ -358,9 +306,6 @@ Emiro kunigas siajn okdek konkubinojn kaj deklaras:
 —Kial?
 
 
-K R U KO K A J B A N I KO
-
-
 Kun malaplomba mieno la emiro murmuras:
 
 —Mi enamiĝis al alia haremo.
@@ -393,9 +338,6 @@ Knabo enkuras bervalan policejon.
 —Tuj venu. Antaŭ la pordo fiulo draŝas al mia patro la kapon.
 
 
-K R U KO K A J B A N I KO
-
-
 Policano eliras kaj efektive vidas du virojn, kiuj diligente pugnadas sur la trotuaro.
 
 —Atendu, etulo, mi tuj disigos ilin. Kiu estas via patro?
@@ -414,9 +356,7 @@ Nokte sinjorino Kruko vekas la edzon:
 
 Li redormiĝas.
 
-La sekvan vesperon, kiam Kruko revenas hejmen, lia edzi-
-
-no malmilde sciigas lin:
+La sekvan vesperon, kiam Kruko revenas hejmen, lia edzino malmilde sciigas lin:
 
 —Hodiaŭ trifoje telefonis via ĉevalino!
 
@@ -438,14 +378,9 @@ Mirante, la amiko ekkrias:
 —Se mi estus sciinta, ke ĝi tiom bongustas, mi ne estus pis-inta en ĝin.
 
 
-K R U KO K A J B A N I KO
-
-
 La respektema p…
 
-Trapasante malbonfaman kvartalon de Bervalo, Kruko ren-
-
-kontas elegantan virinon, kiu invitas lin en sian loĝejon. ĉar ŝia tarifo ne estas troa, Kruko akceptas la inviton kaj akom-panas ŝin.
+Trapasante malbonfaman kvartalon de Bervalo, Kruko renkontas elegantan virinon, kiu invitas lin en sian loĝejon. ĉar ŝia tarifo ne estas troa, Kruko akceptas la inviton kaj akom-panas ŝin.
 
 Li multe miras, vidante ŝian bibliotekon kun miloj da verkoj de Shakespeare, Julio Baghy, Goethe, Lapenna, Molière, Raymond Schwartz, k.t.p. La belulino klarigas, ke ŝi estas doktoro pri filozofio kaj eĉ sukcesis ĉe supera atesto pri lernado. Kiam ŝi sidiĝas antaŭ sia harpo kaj ekludas melodiojn de Frédéric Chopin kaj Félicien Menu de Ménil, Kruko ne
 
@@ -478,9 +413,6 @@ En la kazino de Bervalo Kruko renkontas amikon, kies belan edzinon li jam delong
 almenaŭ unu stelon je poento, por pliinteresigi la ludon.
 
 
-K R U KO K A J B A N I KO
-
-
 Rakontoj pri feinoj
 
 Maljunulino renkontas feinon, kiu promesas plenumi tri dezirojn.
@@ -493,9 +425,7 @@ Tuj la ĉambro estas plena de monbiletoj.
 
 Tuj estas farite. Kaj la nova junulino fine petas, ke ŝia amata kato fariĝu bela viro. Ankaŭ tiu deziro plenumiĝas, kaj la feino malaperas.
 
-Tiam la bela viro alparolas sian iaman mastrinon per ripro-
-
-ĉa voĉo:
+Tiam la bela viro alparolas sian iaman mastrinon per riproĉa voĉo:
 
 —Kaj nun? Kial vi kastrigis min antaŭ du semajnoj?
 
@@ -507,9 +437,7 @@ Jam de kelka tempo Baniko estas senlabora. Iuvespere li revenas hejmen kaj ĝoje
 
 Sinjorino Baniko rikanas:
 
-—Kompatinda, kiel vi povos vivi per unu pundo pomona-
-
-te?
+—Kompatinda, kiel vi povos vivi per unu pundo pomonate?
 
 Amikon karesu, sed kalkuli ne forgesu
 
@@ -517,11 +445,7 @@ Juna amiko petas konsilon de Kruko:
 
 —Mi estas embarasita. Mi konas du virinojn, kiuj volas edziniĝi al mi. Unu estas juna, tre bela, sed ŝi ne posedas eĉ tri stelojn. La alia estas riĉega 50-jara vidvino. Mi ne scias, kion fari.
 
-—Ne hezitu eĉ sekundon,— diras Kruko.— En via aĝo gra-
-
-vas nur la juneco, la belo, la amo. Tuj forpuŝu la vidvinon kaj 15
-
-K R U KO K A J B A N I KO
+—Ne hezitu eĉ sekundon,— diras Kruko.— En via aĝo gravas nur la juneco, la belo, la amo. Tuj forpuŝu la vidvinon kaj
 
 
 prenu la junulinon, eĉ se ŝi ne havas monon. Nur tiel vi estos feliĉa.
@@ -560,9 +484,6 @@ Naivulo edziĝas al belega, arda junulino. Nun li kuŝas apud ŝi en la geedza l
 La tiklado daŭras jam duonhoron.
 
 
-K R U KO K A J B A N I KO
-
-
 —Gili, gili, gili…
 
 La novedzino malpacienciĝas kaj fine diras al li, invite svin-getante la ventron:
@@ -590,20 +511,13 @@ En apoteko vespere sonoras telefono:
 
 La apotekisto ekkoleras, sed ne povas respondi, ĉar la nekonato jam malŝaltis.
 
-En la sekva vespero la telefono denove sonoras en la apo-
-
-teko:
+En la sekva vespero la telefono denove sonoras en la apoteko:
 
 —Sinjoro apotekisto, ĉu iu telefonis ankaŭ al vi hieraŭ, por demandi pri rozkolora cicumo?
 
 —Jes.
 
-—Ne atentu lin. Li estas fia trompisto. Vi jam povas el-
-
-postaĵigi la cicumon.
-
-
-K R U KO K A J B A N I KO
+—Ne atentu lin. Li estas fia trompisto. Vi jam povas elpostaĵigi la cicumon.
 
 
 Amkonkurantoj
@@ -631,9 +545,7 @@ Dekduo da mortintaj virinoj atendas antaŭ la pordo de la paradizo. Sankta Petro
 
 Krom unu, ĉiuj levas la manon. Sankta Petro ordonas al la konfesintinoj:
 
-—Iru en la purgatorion, kunprenante vian surdan kunuli-
-
-non.
+—Iru en la purgatorion, kunprenante vian surdan kunulinon.
 
 
 La nevenkebla ĝeno
@@ -641,9 +553,6 @@ La nevenkebla ĝeno
 Kruko, invitite de amiko, devas kuŝi sur kanapo en la salono.
 
 Nokte subita lakso ne lasas al li tempon por serĉi la necesejon. Li uzas anstataŭe ĉinan vazon, kiun li poste kaŝas malantaŭ la piano. Matene li devas frue forlasi siajn amikojn kaj tute forgesas la tutan aferon.
-
-
-K R U KO K A J B A N I KO
 
 
 Post du semajnoj Kruko ricevas telegramon: ”Ni pardonas
@@ -685,9 +594,6 @@ demandi:
 Tiam Kruko rondirigas la manon. ĉiufoje iu sufloras:
 
 
-K R U KO K A J B A N I KO
-
-
 —ŝtuparo spirala.
 
 —Jes,— ĝoje ekkrias Kruko.— Mi ja vidas, ke vi jam estis en tiu bordelo.
@@ -726,12 +632,7 @@ Lernanto: — Monotoneco.
 
 Dissaltos la obstinaj baroj
 
-Kamparano venigis novan kuraciston, por akuŝigi sian edzi-20
-
-K R U KO K A J B A N I KO
-
-
-non. Nun li atendas en la kuirejo, dum la kuracisto estas en la dormoĉambro apud la naskantino. Subite malfermiĝas la
+Kamparano venigis novan kuraciston, por akuŝigi sian edzinon. Nun li atendas en la kuirejo, dum la kuracisto estas en la dormoĉambro apud la naskantino. Subite malfermiĝas la
 
 pordo, kaj la kuracisto petas:
 
@@ -743,17 +644,13 @@ La estonta patro donas tenajlon kaj fariĝas vere maltrankvila, kiam la kapo de 
 
 Per tremantaj manoj la kamparano donas la ŝraŭbilon, kaj
 
-la kuracisto refermas la pordon. ŝvitante, la kamparano aŭ-
-
-das la ĝemadon de sia edzino en la dormoĉambro. La akuŝi-
+la kuracisto refermas la pordon. ŝvitante, la kamparano aŭdas la ĝemadon de sia edzino en la dormoĉambro. La akuŝi-
 
 gisto subite eniras la kuirejon kaj diras:
 
 —Nur per ĉizilo kaj martelo mi sukcesos…
 
-La kompatinda kamparano svenas, kaj la kuracisto murmu-
-
-ras:
+La kompatinda kamparano svenas, kaj la kuracisto murmuras:
 
 —Kiel do mi nun malfermu mian kojnumiĝintan ilujon?
 
@@ -764,9 +661,7 @@ En apoteko restas nur nigraj kaj verdkvadratitaj kondomoj.
 
 Post mallonga hezito Baniko aĉetas nigrajn, kaj vespere lia edzino aprobas lian elekton.
 
-Tamen, post kelkaj monatoj, sinjorino Baniko naskas kna-
-
-beton. Detalo: la infano estas bele nigra. Al sia suspektema edzo ŝi ekkrias ĝoje:
+Tamen, post kelkaj monatoj, sinjorino Baniko naskas knabeton. Detalo: la infano estas bele nigra. Al sia suspektema edzo ŝi ekkrias ĝoje:
 
 —Kiom bonŝancaj ni estas, karulo! Imagu nur, ke mi estus
 
@@ -775,12 +670,7 @@ povinta naski infanon kun verdaj kvadratoj!
 
 Esperanto servu …acon
 
-Venante al interkona vespero de la junulara kongreso en Bervalo, Kruko kaj Baniko pasas hotelan koridoron. El post por-21
-
-K R U KO K A J B A N I KO
-
-
-do de unu el la ĉambroj ili aŭdas litoknaradon kaj amorĝemojn. Kruko suspiras:
+Venante al interkona vespero de la junulara kongreso en Bervalo, Kruko kaj Baniko pasas hotelan koridoron. El post pordo de unu el la ĉambroj ili aŭdas litoknaradon kaj amorĝemojn. Kruko suspiras:
 
 —Rapida ulo. Mi envias.
 
@@ -815,9 +705,6 @@ Baniko surprizas Krukon kuŝanta nuda sur sinjorino Baniko.
 Li terure ekkoleras kaj piedbatas Krukon sur la postaĵon. Kruko riproĉas:
 
 
-K R U KO K A J B A N I KO
-
-
 —Vi mem kulpas, se vi puŝas min enen.
 
 
@@ -834,13 +721,9 @@ Por peko senkonscia puno nenia
 
 kuŝas sur la brusto de eleganta virino?
 
-Li episkopo milde respondas, rigardante ŝiajn velkajn lo-
+Li episkopo milde respondas, rigardante ŝiajn velkajn logaĵojn:
 
-gaĵojn:
-
-—Ne, certe ne, sinjorino. Jam dum sia agonio Jesuo pardo-
-
-nis ambaŭ kompatindulojn, kiuj pendis dekstre kaj maldekstre de li.
+—Ne, certe ne, sinjorino. Jam dum sia agonio Jesuo pardonis ambaŭ kompatindulojn, kiuj pendis dekstre kaj maldekstre de li.
 
 
 Al pec’ pecon algluas
@@ -861,14 +744,9 @@ frandema rigardo:
 En totalisma reĝimo oni pesas la linrikolton. Katastrofo!
 
 
-K R U KO K A J B A N I KO
-
-
 Mankas 200 gramoj da lino. La vilaĝestro scias, ke oni pafmortigos lin, se li ne trovos ie la 200 gramojn. Li subite memoras pri la bela blanka barbo de la maljuna Trebinto.
 
-—Kamarado Trebinto, vi devas oferi vian barbon por la ko-
-
-munumo.
+—Kamarado Trebinto, vi devas oferi vian barbon por la komunumo.
 
 Vole nevole Trebinto lasas fortondi sian belan barbon, kaj la linrikolto estas savita.
 
@@ -876,9 +754,7 @@ Post du monatoj la vilaĝanaro kolektas kolombajn ovojn
 
 por la registaro. Katastrofo! Mankas du ovoj.
 
-Aŭdinte tion la maljuna Trebinto decidas forkuri el la vila-
-
-ĝo.
+Aŭdinte tion la maljuna Trebinto decidas forkuri el la vilaĝo.
 
 
 Specimene
@@ -906,9 +782,7 @@ La granda filo de Kruko devas lerni en alia universitata urbo.
 
 La patro konsilas al li.
 
-—Kiam vi bezonos monon por viaj eksterstudaj plezuroj, ne 24
-
-K R U KO K A J B A N I KO
+—Kiam vi bezonos monon por viaj eksterstudaj plezuroj, ne
 
 
 ŝoku vian patrinon en viaj leteroj. Petu simple monon por viaj
@@ -948,9 +822,6 @@ Mi iras dormi tute laca
 venonta mardo. Bedaŭrinde li devas forvojaĝi kaj petas vin veni hodiaŭ posttagmeze.
 
 
-K R U KO K A J B A N I KO
-
-
 —Ne, mi jam renkontis impresarion hodiaŭ matene; poste
 
 mi vizitos mian domposedanton, por ke li malaltigu la luprezon de mia loĝejo. Mi ne povas senvestiĝi la tutan tagon.
@@ -966,9 +837,7 @@ La kuracisto ne estas kontenta, ke oni vekis lin tiom malfrue. Tamen li vestas s
 
 Tiam resonoras la telefono. Estas denove sinjorino Baniko:
 
-—Sinjoro doktoro, vi ne bezonas veni. Mia edzo ĵus retro-
-
-vis unu kondomon en tirkesto.
+—Sinjoro doktoro, vi ne bezonas veni. Mia edzo ĵus retrovis unu kondomon en tirkesto.
 
 
 La forto de l’vero
@@ -997,14 +866,9 @@ Post kvin minutoj sinjorino Baniko kliniĝas al la najbaro kaj flustras kun invi
 —Nu, sinjoro, ne paŭtu do dum la tuta filmo.
 
 
-K R U KO K A J B A N I KO
-
-
 Eĉ inter piuloj ne mankas pekuloj
 
-Juna orfino estas edukata de sia onklo, paroęstro de mal-
-
-granda montara vilaĝo. Malgraŭ la pia medio, en kiu ŝi vivas, ŝin altiras amo al pluraj junuloj el la ĉirkaŭo, kaj post kelkaj kaŝaj renkontiĝoj ŝi gravediĝas. Neniu volas esti la patro.
+Juna orfino estas edukata de sia onklo, paroęstro de malgranda montara vilaĝo. Malgraŭ la pia medio, en kiu ŝi vivas, ŝin altiras amo al pluraj junuloj el la ĉirkaŭo, kaj post kelkaj kaŝaj renkontiĝoj ŝi gravediĝas. Neniu volas esti la patro.
 
 ŝi konfidas sian zorgon al la vilaĝa kuracisto. Tiu spertople-na, bonkora homo kompatas ŝin kaj promesas, ke li ĉiel helpos.
 
@@ -1020,9 +884,7 @@ Li kuracisto diligente esploras la virtan korpon de la verto
 
 ĝis la piedfingroj. ĉe la diketa ventro lia frunto sulkiĝas super la stetoskopo.
 
-—Sinjoro paroęstro, apenaŭ tio estas kredebla, sed vi es-
-
-tas graveda.
+—Sinjoro paroęstro, apenaŭ tio estas kredebla, sed vi estas graveda.
 
 —Kion vi fantazias, sinjoro doktoro?
 
@@ -1031,9 +893,6 @@ tas graveda.
 La sensperta paroęstro lasas snvinki. Tri tagojn poste la nevino naskas belan knabon en la domo de la kuracisto, kiu tuj rapidas al la paroęstro. La gravedan pastron li klorofor-mas, kaj poste venigas la novenaskiton.
 
 Kiam la paroęstro rekonsciiĝas kaj vidas la infanon, li ekkrias:
-
-
-K R U KO K A J B A N I KO
 
 
 —Tio estas frukto de mia peko. Sed mi ne pekis sola. La
@@ -1081,9 +940,6 @@ Instruistino: — Kiel reproduktas sin erinacoj?
 Lernanto : — Tre, tre singardeme.
 
 
-K R U KO K A J B A N I KO
-
-
 La movado
 
 Baniko suspektas, ke lia edzino trompas lin, dum li laboras en sia oficejo. Kruko donas al li konsilon:
@@ -1123,9 +979,6 @@ Profesoro pri natursciencoj ekzamenas studentojn. El kesto li prenas pajloŝtopi
 —Ne, ĝi estas pigo.
 
 
-K R U KO K A J B A N I KO
-
-
 La profesoro montras la voston de alia birdo al la ekzamenato:
 
 —Kaj kio estas tio?
@@ -1145,9 +998,7 @@ En sonĝo
 
 Baniko konfidencas sian maltrankvilon al Kruko:
 
-—De kelka tempo mia edzino laŭte krias ĉiunokte en son-
-
-ĝoj: ”Ne, Henriko, ne!”
+—De kelka tempo mia edzino laŭte krias ĉiunokte en sonĝoj: ”Ne, Henriko, ne!”
 
 —Tio ne estas grava.
 
@@ -1169,9 +1020,6 @@ Bela kamparanino konsultas unuafoje kuraciston. ĉar ŝi havas febron, li donas 
 —Do vi povas meti ĝin sub vian akselon.
 
 —Sinjoro doktoro, mi estas tro tikliĝema.
-
-
-K R U KO K A J B A N I KO
 
 
 —Restas do nur la rektuma vojo. Turnu vin, suprenlevu la
@@ -1204,19 +1052,12 @@ Abismoj
 
 Plonĝante en naĝejon, junulino perdas sian naĝkalsoneton. ŝi estas embarasita pro abundaj ĉeestantoj. ŝi diskrete eliĝas el akvo, kaptas avertilon starantan en angulo kaj foriras, tenante la tabulon antaŭ la subventro.
 
-Eksonas ĝenerala ridego. La junulino rimarkas la surskri-
-
-bon sur la tabulo: ”Rezervita por sinjoroj”. ŝi turnas la avertilon, sed ĉiuj ridas eĉ pli laŭte, legante: ”Profundo: 1 m 80”.
-
-
-K R U KO K A J B A N I KO
+Eksonas ĝenerala ridego. La junulino rimarkas la surskribon sur la tabulo: ”Rezervita por sinjoroj”. ŝi turnas la avertilon, sed ĉiuj ridas eĉ pli laŭte, legante: ”Profundo: 1 m 80”.
 
 
 La gaja migranto
 
-De la loĝejo sur la tria etaĝo sinjorino Baniko devas suben-porti rubujon en la korton. Baniko, kiu razas sin en la ban-
-
-ĉambro, subite aŭdas krion kaj bruon en la korto. Li forlasas la banĉambron, descendas laŭ la ŝtuparo kaj vidas strangan spektaklon: sinjorino Baniko tiel maloportune stumblis, ke falis antaŭen, kaj ŝia kapo trafis en la rubujon. ŝi forte baraktas. Preterpasanta vagabondo tuj kaptis la okazon kaj aktive okupiĝas inter ŝiaj tiom loge nudigitaj femuroj.
+De la loĝejo sur la tria etaĝo sinjorino Baniko devas suben-porti rubujon en la korton. Baniko, kiu razas sin en la banĉambro, subite aŭdas krion kaj bruon en la korto. Li forlasas la banĉambron, descendas laŭ la ŝtuparo kaj vidas strangan spektaklon: sinjorino Baniko tiel maloportune stumblis, ke falis antaŭen, kaj ŝia kapo trafis en la rubujon. ŝi forte baraktas. Preterpasanta vagabondo tuj kaptis la okazon kaj aktive okupiĝas inter ŝiaj tiom loge nudigitaj femuroj.
 
 —Fia porko!— ekkrias Baniko, — kion vi faras?
 
@@ -1226,26 +1067,17 @@ La trampo trankvile respondas, sen lasi sian ludon:
 
 La sama afero, sed kun la kapo al tero
 
-Dorisa estas frivola bervalanino. ŝi profitas junularan E-kongreson en Bervalo, por intime konatiĝi kun viroj el multaj landoj. Por la viroj estas nun modo porti sur la brusto, ĉe kol-
+Dorisa estas frivola bervalanino. ŝi profitas junularan E-kongreson en Bervalo, por intime konatiĝi kun viroj el multaj landoj. Por la viroj estas nun modo porti sur la brusto, ĉe kolĉeno, metalan komencliteron de la antaŭnomo.
 
-ĉeno, metalan komencliteron de la antaŭnomo.
-
-Amikino trafas Dorisan kuŝanta sola inter rokoj, iom mal-
-
-proksime de la bervala plaĝo. Sur la nuda brusto de Dorisa ŝi vidas ruĝan W-forman spuron.
+Amikino trafas Dorisan kuŝanta sola inter rokoj, iom malproksime de la bervala plaĝo. Sur la nuda brusto de Dorisa ŝi vidas ruĝan W-forman spuron.
 
 —Kio estas tio?
 
-—Ha, mi ĵus pasigis agrablan horon kun juna impetega uso-
-
-nano, William.
+—Ha, mi ĵus pasigis agrablan horon kun juna impetega usonano, William.
 
 Sekvatage la amikino retrovas Dorisan en la sama soleca
 
 loko. Denove estas videbla W-forma postsigno sur ties ventra haŭto.
-
-
-K R U KO K A J B A N I KO
 
 
 —Nu, mi vidas, ke William ĵus revizitis vin.
@@ -1285,9 +1117,6 @@ akademiano trovas lin tenanta sian sekretariinon sur la genuoj. ŝi ekkrias:
 —Ne,— rebatas la puristo.— Diru pli ĝuste: ”Mi miras”, ĉar surprizita estas mi.
 
 
-K R U KO K A J B A N I KO
-
-
 Abunde kaj redunde
 
 Viro renkontas iaman instruiston.
@@ -1307,9 +1136,7 @@ Ne ekzistas terno sen nazo
 
 Baniko vespere revenas hejmen kaj diras al sia edzino:
 
-—Mi estas maltrankvila. Jam de du semajnoj, kiam mi eli-
-
-ras el mia oficejo, iu nekonato preterpasas kaj rikanas: ”Kokrito, fia kokrito”.
+—Mi estas maltrankvila. Jam de du semajnoj, kiam mi eliras el mia oficejo, iu nekonato preterpasas kaj rikanas: ”Kokrito, fia kokrito”.
 
 —Karulo,— respondas sinjorino Baniko,— vi scias, ke mi
 
@@ -1332,17 +1159,12 @@ Riĉulo, revenante de vojaĝo, vidas en la salono sian serviston trinkanta konja
 —Mian konjakon, miajn cigarojn! Kial ne mian edzinon?
 
 
-K R U KO K A J B A N I KO
-
-
 —Sinjoro, bedaŭrinde ne mi, sed la ŝoforo gajnis ŝin ĉe po-kerludo.
 
 
 En la radio okazas la konata ludo je duobligo aŭ ĉionperdo.
 
-La demandato gajnas por ĉiu bona respondo certan monsu-
-
-mon. Post ĉiu demando li rajtas retiriĝi de la ludo. Se li ludas plu, li aŭ gajnas la duoblon respondante ĝuste, aŭ perdas ĉion respondante malĝuste.
+La demandato gajnas por ĉiu bona respondo certan monsumon. Post ĉiu demando li rajtas retiriĝi de la ludo. Se li ludas plu, li aŭ gajnas la duoblon respondante ĝuste, aŭ perdas ĉion respondante malĝuste.
 
 Pastro, kiu volis gajni monon, por ripari sian preĝejon,
 
@@ -1372,9 +1194,6 @@ La 60-jarulo diras al la junulo per riproĉa voĉo:
 —Mi ne komprenas, ke tion faris vi, kiu ne estas devigita.
 
 
-K R U KO K A J B A N I KO
-
-
 Unu vidvino
 
 Juna vidvino ne plu povas elteni sian truditan ĉastecon. is nun ŝi rezistis al la invitoj de sia najbaro, kiu bonvolus ŝnsoli. Sed hodiaŭ vespere ŝi sentas sin tiel sola, tiel malforta, kaj plie baldaŭ fulmotondros…
@@ -1401,9 +1220,6 @@ Du kanonikoj babilas:
 —Se ne ni mem, do almenaŭ niaj infanoj.
 
 
-K R U KO K A J B A N I KO
-
-
 Por ĉiu faro estas horo
 
 Sur placo de Bervalo savarmeanoj provas konverti gapulojn.
@@ -1425,26 +1241,19 @@ Okazas en Bervalo Esperanta junulara kongreso.
 
 Fraŭlino Kruko revenis je la dua matene de la interkona
 
-vespero. Dum la matenmanĝo ŝia patro demandas, ĉu la kun-
-
-veno estis interesa.
+vespero. Dum la matenmanĝo ŝia patro demandas, ĉu la kunveno estis interesa.
 
 —Ne, paĉjo, ĝi estis enuiga.
 
 —Kial do vi revenis tiel malfrue?
 
-—Tial ke mi dum longa tempo ne sukcesis retrovi mian kal-
-
-soneton.
+—Tial ke mi dum longa tempo ne sukcesis retrovi mian kalsoneton.
 
 Remaĉi — jen plej simple kaj facile
 
 Du amikinoj deziras gajni monon per siaj logaĵoj. Ili turnas sin al luksa bordelo kaj petas la estrinon dungi ilin por kelkaj horoj ĉiun posttagmezon. La parigistino rimarkigas:
 
 —Fraŭlinoj, tio ne estas tiel facila, kiel vi pensas. Mi direktas modelan firmaon, kaj li klientoj plendus, se mi proponus al ili senspertajn amatorinojn. ĉiuj deĵorantinoj en tiu domo devis komence fari tre severan ekzamenon. Ili nun konas per-fekte la teorion kaj la praktikon de ĉiaj voluptoj.
-
-
-K R U KO K A J B A N I KO
 
 
 —Ankaŭ ni estas pretaj prepari tiun ekzamenon.
@@ -1457,9 +1266,7 @@ faras praktikajn ekzercojn. Iam kandidatino, ne vidante sian kunulinon, maltrank
 
 —ĉu vi scias, kie estas mia amikino?
 
-—Ha! la kompatindulino hieraŭ sufokiĝis ĉe la buŝa ekza-
-
-meno.
+—Ha! la kompatindulino hieraŭ sufokiĝis ĉe la buŝa ekzameno.
 
 
 Baniko fanfaronas:
@@ -1486,9 +1293,6 @@ Post du tagoj la pedelo ĝoje diras al la paroęstro:
 —Do, ĉu vi vidas, kiel efikas la legado de la Biblio?
 
 —Jes, kiam mi venis al la sepa ordono: ”Ne adultu”, mi subite rememoris, ke mi forgesis mian horloĝon sur la noktotablo de la sakristianino.
-
-
-K R U KO K A J B A N I KO
 
 
 Sen …aco ne futuro
@@ -1525,13 +1329,9 @@ opereton en alia urbo. Post la unua vesperprezento ĉarma
 
 junulo frapas la pordon de la aktorino, kiu ludas la rolon de la markizino.
 
-—Fraŭlino, mi estas la saksofonisto de la orkestro, kiu havis la honoron akompani vian belegan voĉon hodiaŭ vespe-
+—Fraŭlino, mi estas la saksofonisto de la orkestro, kiu havis la honoron akompani vian belegan voĉon hodiaŭ vespere. Mi alportis al vi pralinojn. ĉu mi rajtas inviti vin al manĝo?
 
-re. Mi alportis al vi pralinojn. ĉu mi rajtas inviti vin al manĝo?
-
-Ili pasigas agrablan vesperon, babilas, drinkas, kaj, ĉar la 39
-
-K R U KO K A J B A N I KO
+Ili pasigas agrablan vesperon, babilas, drinkas, kaj, ĉar la
 
 
 aktorino estas cedema, ambaŭ baldaŭ ĝuas en hotelĉambro
@@ -1574,9 +1374,7 @@ orkestro.
 
 La interrompita kanto
 
-Nigre vestita viro eniras bordelon. Li diras al la estrino: 40
-
-K R U KO K A J B A N I KO
+Nigre vestita viro eniras bordelon. Li diras al la estrino:
 
 
 —Hieraŭ kliento, kiu intencis viziti vian institucion, subite mortis sur la sojlo.
@@ -1609,9 +1407,6 @@ La naiva junulino ruĝiĝas, mallevas la okulojn kaj respondas:
 Sinjorino Kruko estas tre ĵaluza. ĉiun vesperon ŝi kontrolas la jakon de la edzo. ĉe la kolumo ŝi ĉiufoje malkovras fremdajn harojn, kaj ŝi priblekas la malfidelulon.
 
 Por kvietigi ŝin, Kruko aĉetas broson, kaj fiere revenas hejmen kun virga jako. Lia edzino longe esploras la kolumon, la ŝultrojn, la dorson, kaj fine ekploras:
-
-
-K R U KO K A J B A N I KO
 
 
 —Via fieco atingis sian kulminon. is nun vi trompadis min kun blondaj, brunaj kaj ruĝaj virinaĉoj. Hodiaŭ vi trompis min kun kalvulino!
@@ -1651,9 +1446,6 @@ Kruko: — Ne.
 Baniko: — ŝi estas fama poetino. ĉu vi eble jam aŭdis pri generalo Sébert?
 
 
-K R U KO K A J B A N I KO
-
-
 Kruko: — Ne.
 
 Baniko: — Li estas mecenato de la internacia lingvo. ĉu vi konas Lanti?
@@ -1682,9 +1474,7 @@ La dua, 81-jara, bedaŭras, ke liaj kruroj jam ne estas tiom elastaj, kiom anta�
 
 La tombofosisto de Bervalo ne perlaboras multe da mono.
 
-Por vesti sin kaj sian familion, li prenas la malnovajn ruban-dojn, kiuj iam ornamis funebrajn bukedojn kaj kronojn. Lia edzino kunkudras ilin kun ĉifonoj. Kaj ĉiudimanĉe la loĝantaro de Bervalo povas legi sur la brusto de la patrino: ”Al miaj karaj malaperintoj”, sur la pantalonfendo de la patro: ”Ripozu en paco”, sur la postaĵo de la juna filo: ”Tiom malgranda kaj 43
-
-K R U KO K A J B A N I KO
+Por vesti sin kaj sian familion, li prenas la malnovajn ruban-dojn, kiuj iam ornamis funebrajn bukedojn kaj kronojn. Lia edzino kunkudras ilin kun ĉifonoj. Kaj ĉiudimanĉe la loĝantaro de Bervalo povas legi sur la brusto de la patrino: ”Al miaj karaj malaperintoj”, sur la pantalonfendo de la patro: ”Ripozu en paco”, sur la postaĵo de la juna filo: ”Tiom malgranda kaj
 
 
 jam forrabita” kaj sur la ventro de la filino: ”Kun profunda danko de la bervala fajrosoldataro”.
@@ -1707,9 +1497,7 @@ povus trovi gravedan virinon?
 
 Marĉandado aĉeti ne devigas
 
-Kruko atendas sian edzinon antaŭ magazeno, en kiu ŝi aĉe-
-
-tas diversajn aĵojn. Sur la trotuaro proksimiĝas prostituitino, kiu proponas al li horon da plezuro. ŝerce Kruko marĉandas:
+Kruko atendas sian edzinon antaŭ magazeno, en kiu ŝi aĉetas diversajn aĵojn. Sur la trotuaro proksimiĝas prostituitino, kiu proponas al li horon da plezuro. ŝerce Kruko marĉandas:
 
 —Kiom tio kostas?
 
@@ -1722,18 +1510,13 @@ La ĉiesulino sakras pri lia avareco kaj foriras. Post kvin minutoj ĉe la brako
 —Nu, ĉu vi vidas, kion vi trovis por tricent steloj?
 
 
-K R U KO K A J B A N I KO
-
-
 Verdaj Donki˛otoj
 
 De drogisto juna sinjorino petas klorofilan sapon. La vendisto bedaŭras:
 
 —Nun ni ne havas klorofilan sapon, sinjorino.
 
-—Tio ege ĝenas min, ĉar mi nepre bezonas ĝin por mia in-
-
-tima higieno.
+—Tio ege ĝenas min, ĉar mi nepre bezonas ĝin por mia intima higieno.
 
 —Morgaŭ ni ricevos denove tiun specon.
 
@@ -1755,12 +1538,7 @@ De du monatoj vivas sur insuleto ŝiprompiĝuloj, ses virinoj kaj unu viro. Ili 
 
 Iam la ŝiprompiĝuloj ekvidas junan viron, proksimiĝantan
 
-al la insulo en boateto. La konsolanto de la virinoj jam ĝojas, ke alia viro dividos kun li la amortaskon, sed li baldaŭ rimar-45
-
-K R U KO K A J B A N I KO
-
-
-kas, ke la novveninto havas akutan voĉon kaj virineskajn ma-nierojn. Pederasto!
+al la insulo en boateto. La konsolanto de la virinoj jam ĝojas, ke alia viro dividos kun li la amortaskon, sed li baldaŭ rimarkas, ke la novveninto havas akutan voĉon kaj virineskajn ma-nierojn. Pederasto!
 
 —Fek! — protestas la kompatindulo. — Ankaŭ miaj dimanĉoj estas fuŝotaj!
 
@@ -1794,9 +1572,6 @@ Kosmonaŭto rakontas, kion li vidis sur malproksima, ĝis nun ne esplorita plane
 —Eble, sed tre oportunas por danci.
 
 
-K R U KO K A J B A N I KO
-
-
 Vi kien flugas, papilio?
 
 La granda filo de Kruko estos baldaŭ 18-jara. Sinjorino Kruko demandas sian edzon:
@@ -1817,9 +1592,7 @@ Parizo.
 
 —Jes, paĉjo.
 
-—Ni estis kune en Montmartro, en noktoklubo kun sen-
-
-vestiĝaj dancoj.
+—Ni estis kune en Montmartro, en noktoklubo kun senvestiĝaj dancoj.
 
 —Jes, paĉjo.
 
@@ -1838,13 +1611,7 @@ Kruko eligas malpezigan elspiron:
 
 Tra densa mallumo
 
-Baniko: — Hieraŭ vespere okazis al mi malagrablaĵo. Reve-
-
-
-K R U KO K A J B A N I KO
-
-
-nante hejmen, en la mallumo mi kredis, ke la servistino malfermis al mi la pordon, do mi kisis kaj fingrumis ŝin. Sed ĝi estis mia edzino.
+Baniko: — Hieraŭ vespere okazis al mi malagrablaĵo. Revenante hejmen, en la mallumo mi kredis, ke la servistino malfermis al mi la pordon, do mi kisis kaj fingrumis ŝin. Sed ĝi estis mia edzino.
 
 Kruko: — Nu, la afero ne estas grava.
 
@@ -1855,15 +1622,11 @@ La vidvineto
 
 Kruko ĉeestis la enterigon de juna konato. Poste li troviĝas sola kun la vidvino.
 
-—Ha, sinjorino, la momento eble ne taŭgas por tiaj dekla-
-
-roj, sed mi konfesu, ke mi ege amas vin.
+—Ha, sinjorino, la momento eble ne taŭgas por tiaj deklaroj, sed mi konfesu, ke mi ege amas vin.
 
 Surprizite, la bela vidvino balbutas:
 
-—Vi almenaŭ povus atendi, ĝis mi ne plu surhavos tiun fu-
-
-nebran robon.
+—Vi almenaŭ povus atendi, ĝis mi ne plu surhavos tiun funebran robon.
 
 —Kompreneble, karulino. Mi povas atendi kvin minutojn.
 
@@ -1878,9 +1641,6 @@ Kruko: — ĉu vi kredas, ke se li estus servistino, mi ne rimar-kus tion?
 
 
 Juna naivulino devas unuafoje plenskribi hotelslipon. ĉe la rubriko ”sekso” ŝi skribas: blonda, kaj ĉe la rubriko ”edzeca stato” ŝi deklaras: du fojojn semajne.
-
-
-K R U KO K A J B A N I KO
 
 
 Memorlibro
@@ -1917,9 +1677,7 @@ La apotekisto, konfuzite, tiras la eksidiston en angulon, vendas al li drastan p
 
 En la sekva merkredo la apoteko denove estas plenplena.
 
-Kiam la apotekisto vidas la fremdulon eniri, li timas, ke tiu 49
-
-K R U KO K A J B A N I KO
+Kiam la apotekisto vidas la fremdulon eniri, li timas, ke tiu
 
 
 forgesis liajn konsilojn, kaj li tuj laŭte demandas super la ka-poj de la klientinoj:
@@ -1955,11 +1713,7 @@ malgaja. Amiko demandas lin:
 
 —Kio okazis al vi?
 
-—Ha! al mi okazis malagrablaĵo. Hieraŭ mia bela sekreta-
-
-riino, kiun mi jam de longe amindumas sensukcese, diris al mi: ”Hodiaŭ estas via naskiĝotago, sinjoro direktoro. ĉu vi ne akceptus veni en mian loĝejon? Mi intencas fari al vi surpri-50
-
-K R U KO K A J B A N I KO
+—Ha! al mi okazis malagrablaĵo. Hieraŭ mia bela sekretariino, kiun mi jam de longe amindumas sensukcese, diris al mi: ”Hodiaŭ estas via naskiĝotago, sinjoro direktoro. ĉu vi ne akceptus veni en mian loĝejon? Mi intencas fari al vi surpri-50
 
 
 zon”. Kompreneble mi jesis kaj venis vespere al la rendevuo.
@@ -1975,30 +1729,23 @@ nun iras en mian ĉambron, kaj nur kiam mi vokos vin, vi raj-tos eniri”. Mi at
 
 Bone tiu sidas, al kiu la sorto ridas
 
-Usonano, ruso kaj franco komparas sian respektivan riske-
-
-mon. La usonano rakontas:
+Usonano, ruso kaj franco komparas sian respektivan riskemon. La usonano rakontas:
 
 —ĉe ni, kiam grupo da amikoj kunvenas, oni ludas jene:
 
-unu, lotuminte, devas elekti unu el dek aŭtoj kaj veturi 120
+unu, lotuminte, devas elekti unu el dek aŭtoj kaj veturi
 
 mejlojn pohore. De unu el la aŭtoj oni antaŭe malŝraŭbis la radojn.
 
 —ĉe ni,— diras la ruso. — tiu, kiun falis la loto, devas elekti unu el dek revolveroj, meti ĝin al la tempio kaj premi la ĉanon. Kompreneble unu revolvero estas ŝarĝita.
 
-—ĉe ni,— diras la franco. — kiam amikoj kunvenas, ili aran-
-
-ĝas bankedon, dum kiu ili sidas tute nudaj. Por deserto oni enirigas virinojn, kiuj enŝoviĝas sub la tablon kaj ekokupas sian buŝon pri agrabla frandado.
+—ĉe ni,— diras la franco. — kiam amikoj kunvenas, ili aranĝas bankedon, dum kiu ili sidas tute nudaj. Por deserto oni enirigas virinojn, kiuj enŝoviĝas sub la tablon kaj ekokupas sian buŝon pri agrabla frandado.
 
 La usonano kaj ruso primokas la francon, dirante, ke en tiu ago estas neniom da risko.
 
 —Estas terura risko,— respondas la franco.— Unu el la
 
 frandemulinoj estas kanibalino.
-
-
-K R U KO K A J B A N I KO
 
 
 (por rapidema modisto)
@@ -2032,12 +1779,7 @@ Episkopo vizitas simplan vilaĝan paroęstron. Vesperas. Plu-vegas. Estas neeble
 
 senluksa. Mi posedas nur unu liton.
 
-—Ankaŭ Jesuo ne havis, kie kuŝigi sian kapon. Ni do divi-
-
-du la liton.
-
-
-K R U KO K A J B A N I KO
+—Ankaŭ Jesuo ne havis, kie kuŝigi sian kapon. Ni do dividu la liton.
 
 
 En la sekva mateno ambaŭ ekleziuloj laŭte ronkas, kiam oni sonorigas ĉe la pordo. La paroęstro, pensante, ke apud li kuŝas lia servistino, forte frapas la postaĵon de la episkopo:
@@ -2087,9 +1829,6 @@ Li eniras la konfesejon.
 —Ne.
 
 
-K R U KO K A J B A N I KO
-
-
 —ĉu kun la juna vidvino Selanto?
 
 —Ne.
@@ -2125,9 +1864,6 @@ Kruko vespere revenas hejmen. Lia edzino plendas:
 —Maĉjo diris al mi, ke oni instruas ilin en la lernejo pri seksaj aferoj. ĉu vi ne opinias, ke li estas ankoraŭ tro juna por tiu inicado?
 
 
-K R U KO K A J B A N I KO
-
-
 Kruko ne respondas kaj iras al la ĉambro de Maĉjo. Maĉjo
 
 ne aŭdis sian patron eniri. Lia maldekstra mano aktive oku-piĝas sub la skribotablo, dum liaj okuloj diligente studas la detalojn de logaj virinaj korpoj en magazino rezervita al plen-kreskuloj. Kruko mallaŭte eliras kaj refermas la pordon.
@@ -2153,9 +1889,7 @@ Rapide kreskas la afero
 
 Snobino eniras en ledejon.
 
-—Mi deziras mansaketon. Sed mi bezonas ion raran, orig-
-
-inalan, kio enviigus miajn amikinojn.
+—Mi deziras mansaketon. Sed mi bezonas ion raran, originalan, kio enviigus miajn amikinojn.
 
 La vendisto diras:
 
@@ -2166,9 +1900,6 @@ La vendisto diras:
 —Jen unikaĵo: mansaketo el kaca haŭto.
 
 —Bedaŭrinde, ĝi estas multe tro malgranda.
-
-
-K R U KO K A J B A N I KO
 
 
 —Sinjorino, se vi konvene karesos ĝin, ĝi rapide fariĝos
@@ -2202,9 +1933,6 @@ Al ĉiu konvenas, kio al li apartenas
 La hotelo estas plenplena, kaj oni proponas al juna gasto lokon en la lito de la maljuna pordisto. Matene li subite vekiĝas pro la krioj de la maljunulo:
 
 —Virinon! Oni tuj havigu al mi virinon!
-
-
-K R U KO K A J B A N I KO
 
 
 —Ne bleku tiel, avĉjo, — diras la junulo.— Tio, kion vi tenas en la mano, estas mia.
@@ -2250,9 +1978,6 @@ La vojo returne
 Kruko revenas hejmen tute ebria. Surstrate li aŭdas, ke iu krias post li:
 
 
-K R U KO K A J B A N I KO
-
-
 —Kokrito!
 
 Kruko turnas sin kaj vidas krokodilon, kiu, sekvante lin, senĉese blekas:
@@ -2290,23 +2015,16 @@ Baniko invitas Krukon:
 
 —Eble dimanĉe?
 
-—Mi ne povos. Dimanĉe Farigo ludos pianon en la konser-
-
-vatorio.
+—Mi ne povos. Dimanĉe Farigo ludos pianon en la konservatorio.
 
 —Sed, Kruko, mi ne sciis, ke vi estas tia muzikŝatanto. ĉu vi ĉeestas ĉiujn recitalojn de Farigo?
 
 —Ne, sed tiutempe mi povas trankvile viziti sinjorinon Farigo.
 
 
-K R U KO K A J B A N I KO
-
-
 Eĉ bagatelo povas servi al celo
 
-Mona˛ino alpaŝas putinon deĵorantan sur trotuaro de mal-
-
-bonfama kvartalo kaj timeme demandas ŝin, kiom ŝi enspe-
+Mona˛ino alpaŝas putinon deĵorantan sur trotuaro de malbonfama kvartalo kaj timeme demandas ŝin, kiom ŝi enspe-
 
 zas pokliente. Aŭdinte mirigan sumon, ŝi rekuras al sia mo-nakejo, kie atendas la abatino.
 
@@ -2339,9 +2057,7 @@ La kuracisto aŭskultumas Krukon, esploras ĉiujn liajn orga-nojn kaj poste dema
 
 —Jes, aŭ, pli ĝuste diri, ne… De kelkaj monatoj nia najbarino tiel okulumis min, ke… vi komprenas, ĉu ne? sinjoro
 
-doktoro. Kaj, ĉar mi estas honesta, mi ne volas forlasi mian 59
-
-K R U KO K A J B A N I KO
+doktoro. Kaj, ĉar mi estas honesta, mi ne volas forlasi mian
 
 
 malnovan amikinon; mi omaĝas ŝin posttagmeze. Kaj iafoje
@@ -2359,9 +2075,7 @@ Nova, juna servistino ĵus trovis en la lito de gesinjoroj Kruko etan, ŝrumpint
 
 —Nu, Berta, ĉu vi neniam vidis tion? Kiel oni amoras en via vilaĝo?
 
-—Sinjorino, mi jam ofte amoris, sed mi neniam senhaŭti-
-
-gis iun.
+—Sinjorino, mi jam ofte amoris, sed mi neniam senhaŭtigis iun.
 
 
 Miru, pensu, ridu
@@ -2373,9 +2087,7 @@ Miru, pensu, ridu
 
 La ĉielan feliĉon suĉados
 
-Knabeto, rigardante tre serurtruo de la gepatra dormoĉam-
-
-bro, murmuras:
+Knabeto, rigardante tre serurtruo de la gepatra dormoĉambro, murmuras:
 
 —Mi ŝatus scii, kial panjo punas min, kiam mi suĉas nur
 
@@ -2385,12 +2097,7 @@ mian dikfingron.
 Viro plendas al kuracisto, ke lia edzino ne havas infanojn.
 
 
-K R U KO K A J B A N I KO
-
-
-—La plej bona rimedo estas restado en la banurbo Fonto-
-
-reĝa.
+—La plej bona rimedo estas restado en la banurbo Fontoreĝa.
 
 —Sinjoro doktoro, ni estis tie ses semajnojn, sed tio ne efikis.
 
@@ -2433,9 +2140,6 @@ Konfeso:
 —Ne.
 
 
-K R U KO K A J B A N I KO
-
-
 —ĉu li kuŝigis vin sur sian liton?
 
 —Ne.
@@ -2473,12 +2177,7 @@ Bedaŭrinde la baronino, kiu ĝuste tiam eniris la ĉambron, ne kredis je ferako
 
 La dormanto vekiĝas
 
-Baniko veturas kun sia edzino al internacia E-kongreso en Polivaso, ĉefurbo de Borlando. Ili malfrue aliĝis, kaj ĉiuj ho-62
-
-K R U KO K A J B A N I KO
-
-
-telaj ĉambroj estas jam okupitaj. Delegito fine trovas por ili loĝeblecon ĉe komplezema polivasano. Kiam ili venas al la indikita adreso, ilia gastiganto salutas ilin en borlanda lingvo kaj per gestoj komprenigas, ke li havas nur unu larĝan liton, en kiu tri personoj povas komforte dormi.
+Baniko veturas kun sia edzino al internacia E-kongreso en Polivaso, ĉefurbo de Borlando. Ili malfrue aliĝis, kaj ĉiuj hotelaj ĉambroj estas jam okupitaj. Delegito fine trovas por ili loĝeblecon ĉe komplezema polivasano. Kiam ili venas al la indikita adreso, ilia gastiganto salutas ilin en borlanda lingvo kaj per gestoj komprenigas, ke li havas nur unu larĝan liton, en kiu tri personoj povas komforte dormi.
 
 Noktomeze Baniko vekiĝas pro ritmaj skuoj de la lito. En la mallumo li tuj konjektas, kio okazas ĉe lia flanko. Li diras al sia edzino:
 
@@ -2499,9 +2198,7 @@ Vidvino plenskribas formularon en la urbodomo de Bervalo.
 
 Oficisto rimarkigas:
 
-—Sinjorino, vi mencias trijaran knabon kaj unujaran fili-
-
-non, kvankam via edzo mortis jam antaŭ kvin jaroj.
+—Sinjorino, vi mencias trijaran knabon kaj unujaran filinon, kvankam via edzo mortis jam antaŭ kvin jaroj.
 
 —Estas li, kiu mortis, sed ne mi!
 
@@ -2513,9 +2210,6 @@ Subite sur la teraso aperas la direktoro de la hotelo.
 —Sinjorino, tuj malaperu! Ha! kia skandalo! Patrinoj jam
 
 alarmis la policon. Vi kuŝas ĝuste sur la vitra plafono de la manĝoĉambro.
-
-
-K R U KO K A J B A N I KO
 
 
 Sen eliro
@@ -2559,9 +2253,6 @@ Kruko konatiĝis sur la plaĝo de Bervalo kun arda, sed jam ne tre juna virino. 
 —Jes, karulo! Ho, jes, karulo!
 
 
-K R U KO K A J B A N I KO
-
-
 —Fek! Estis pli agrable en la sablo.
 
 
@@ -2600,9 +2291,7 @@ Ho, kiom estis mi kisata…
 
 En julio okazas en Bervalo unu el la plej gravaj junularaj Esp-kongresoj (853 partoprenantoj).
 
-Sur la plaĝo promenas tri junaj bervalaninoj. En soleca loko 65
-
-K R U KO K A J B A N I KO
+Sur la plaĝo promenas tri junaj bervalaninoj. En soleca loko
 
 
 ili subite haltas antaŭ viro, kiu dormas tute nuda kun gazeto malfermita sur la vizaĝo.
@@ -2649,14 +2338,9 @@ Ili ĵus finis la studadon, kaj la mona˛ino-direktorino demandas ilin, kion ĉi
 —Kion vi diris?
 
 
-K R U KO K A J B A N I KO
-
-
 —Jes, patrina moŝto, mi intencas fariĝi prostituitino.
 
-—Ha! Dio estu dankata! Unue mi komprenis ”protestanti-
-
-no”.
+—Ha! Dio estu dankata! Unue mi komprenis ”protestantino”.
 
 Ni dankas la venton
 
@@ -2677,9 +2361,7 @@ Sinjoro doktoro, unu mia mamo estas pli longa ol la alia.
 
 —Tio estas kurioza. Bonvolu demeti la mamzonon.
 
-Efektive, dum la dekstra mamo estas bele ronda, la mal-
-
-dekstra disfaldiĝas, malvolviĝas kaj falas teren. La kuracisto estas perpleksita.
+Efektive, dum la dekstra mamo estas bele ronda, la maldekstra disfaldiĝas, malvolviĝas kaj falas teren. La kuracisto estas perpleksita.
 
 —Sinjorino, eble vi havas specialajn seksajn kutimojn?
 
@@ -2694,9 +2376,6 @@ nokte karesi la bruston de mia edzino, kaj ŝi tamen ne havas pro tio mamon deko
 —Sed eble vi kaj via edzino ne dormas kiel ni en apartaj
 
 ĉambroj.
-
-
-K R U KO K A J B A N I KO
 
 
 Truon de honoro flikos neniu tajloro
@@ -2723,9 +2402,7 @@ Du bovinoj interŝanĝas rememorojn pri siaj lastaj ferioj. La unua sopirĝemas:
 
 La dua rikanas:
 
-—En Normandujo mi konatiĝis kun enuiga bovo, kiu ĉiu-
-
-tage parolis nur pri sia operacio.
+—En Normandujo mi konatiĝis kun enuiga bovo, kiu ĉiutage parolis nur pri sia operacio.
 
 
 Kiu demandas, tiu ne eraras
@@ -2739,9 +2416,6 @@ edziĝo. ĉu vi?
 —Mi ne scias, Baniko. Memorigu min do pri ŝia fraŭlina
 
 nomo.
-
-
-K R U KO K A J B A N I KO
 
 
 Ha, kredeble rememoro el la kara infaneco?
@@ -2761,9 +2435,7 @@ havas antaŭ la okuloj la dimanĉon, kiam mi iris promeni en paĉjo kaj vespere 
 
 Antaŭen, sen halto kaj timo
 
-Apud nudistejo staras granda avertilo: ”Atentu la pedera-
-
-stojn”.
+Apud nudistejo staras granda avertilo: ”Atentu la pederastojn”.
 
 Kuraĝulo tamen iras plu.
 
@@ -2776,17 +2448,12 @@ Jam farite!
 
 Maŝinmondo
 
-En teksindustria fabriko pendas avertiloj: ”Laboristinoj kun malstriktaj jupoj atentu la maŝinojn”. ŝercemulo krajone ŝan-
-
-ĝis la surskribon: ”Laboristinoj kun striktaj jupoj atentu la maŝinistojn”.
+En teksindustria fabriko pendas avertiloj: ”Laboristinoj kun malstriktaj jupoj atentu la maŝinojn”. ŝercemulo krajone ŝanĝis la surskribon: ”Laboristinoj kun striktaj jupoj atentu la maŝinistojn”.
 
 
 Horo matena estas horo bena
 
 Kruko venas malfrue en la oficejon. Lia estro riproĉas:
-
-
-K R U KO K A J B A N I KO
 
 
 —Kial vi venas je la dekunua anstataŭ je la naŭa?
@@ -2825,12 +2492,7 @@ tempo.
 
 —ĉu io okazis dum mia foresto?
 
-—Venis nur unu kliento, kiu petis kuracilon kontraŭ tusa-
-
-do, kaj mi vendis al li botelon da tiu medikamento.
-
-
-K R U KO K A J B A N I KO
+—Venis nur unu kliento, kiu petis kuracilon kontraŭ tusado, kaj mi vendis al li botelon da tiu medikamento.
 
 
 —Nekapablulo, tio ja estas drasta laksigilo!
@@ -2852,9 +2514,7 @@ Baniko devas surmeti la sorĉajn ŝtrumpetojn, kaj li tuj sentas egan pasion, ki
 
 —Resurmetu do tiujn ŝtrumpetojn.
 
-Li obeas. En tiu momento juna servisto alportas la maten-
-
-manĝon en la ĉambron. Baniko kaptas lin, tiras en angulon, senpantaloniĝas kaj ekatencas.
+Li obeas. En tiu momento juna servisto alportas la matenmanĝon en la ĉambron. Baniko kaptas lin, tiras en angulon, senpantaloniĝas kaj ekatencas.
 
 —Haltu, haltu! — krias sinjorino Baniko.— Vi surmetis la
 
@@ -2870,9 +2530,6 @@ La 6-jara Puĉjo rakontas al sia samaĝa kamarado Roĉjo:
 Kiam mi eniris en la salonon, mia granda frato luktis sur sofo kontraŭ la servistino. Ili estis tute nudaj.
 
 —Kaj kiu venkis?
-
-
-K R U KO K A J B A N I KO
 
 
 —Mi ne scias. Mia ĉeesto ĝenis ilin.
@@ -2901,18 +2558,13 @@ Lingvo kaj vivo
 
 Junaj geedzoj konsultas kuraciston. Li diagnozas malfortecon kaŭzitan de troa seksumado.
 
-—Mi komprenas vian impeton, sed vi devus bridi viajn de-
-
-zirojn. Mi konsilas al vi geiĝi nur dum R-tagoj (mardo, merkredo, vendredo), kaj dum la ceteraj tagoj kuŝi en apartaj litoj.
+—Mi komprenas vian impeton, sed vi devus bridi viajn dezirojn. Mi konsilas al vi geiĝi nur dum R-tagoj (mardo, merkredo, vendredo), kaj dum la ceteraj tagoj kuŝi en apartaj litoj.
 
 La junaj geedzoj penas sekvi la rekomendon, sed tio estas malfacila. Post la vendreda karna festo, la edzo detenas sin sabate, detenas sin dimanĉe, kaj poste li ne plu povas. Lia ardo puŝas lin al la lito de la edzino. ŝi miras:
 
 —Kiu tago estas hodiaŭ?
 
 —Lundro!
-
-
-K R U KO K A J B A N I KO
 
 
 Sur kampara vojo Krukon trafas paneo. Preterveturas ĉarma aŭtistino. ŝi haltas kaj demandas:
@@ -2938,14 +2590,9 @@ Al la lito edzina kun teruro
 
 Revenante post longa vojaĝo Baniko trovas sian amikon Kru-ko en sia dormoĉambro. Tute nuda Kruko risortas kun sinjorino Baniko sur la geedza lito, kaj ili per siaj ĝemoj, krioj kaj blekoj pruvas, ke la dudorsula ludo ne malplaĉas al ili.
 
-Baniko metas sian valizon surplanken kaj admonas la adul-
-
-tantojn:
+Baniko metas sian valizon surplanken kaj admonas la adultantojn:
 
 —Vi, mia edzino, ĉu vi ne memoras, kiom da jaroj ni vivis kune en plena feliĉo? Antaŭ dek jaroj vi ĵuris al mi, ke vi eterne restos fidela. Kaj vi, Kruko, mi ĉiam konsideris vin mia plej fidinda amiko. Mi ofte helpis vin, kiam vi bezonis min. ĉu vi ankoraŭ scias, ke … sed, mil diabloj! almenaŭ haltu, dum mi parolas al vi!
-
-
-K R U KO K A J B A N I KO
 
 
 La perfekta edzino
@@ -2987,12 +2634,7 @@ Kuracisto: — Mi havas por vi malĝojigan sciigon, fraŭlino.
 
 La alaska stafeto
 
-Kruko vizitas bervalanojn, kiuj instalis meteorologian staci-74
-
-K R U KO K A J B A N I KO
-
-
-on ĉe la norda poluso. Dum vespera festo ili klarigas al li, ke ĉiu vizitanto devas unue eltrinki per unu gluto botelon da viskio, due amori eskiminon kaj trie mortigi blankan urson.
+Kruko vizitas bervalanojn, kiuj instalis meteorologian stacion ĉe la norda poluso. Dum vespera festo ili klarigas al li, ke ĉiu vizitanto devas unue eltrinki per unu gluto botelon da viskio, due amori eskiminon kaj trie mortigi blankan urson.
 
 Kruko eltrinkas la botelon da viskio kaj per ŝancela paŝo eliras en la malvarmegan nokton. Post horo li revenas kun malklara rigardo kaj triumfa mieno:
 
@@ -3031,9 +2673,6 @@ Viro konfesas al psikiatro:
 —Sinjoro doktoro, mi enamiĝis al ĉevalo.
 
 
-K R U KO K A J B A N I KO
-
-
 —ĉu virĉevalo, aŭ ĉevalino?
 
 —Kompreneble, al ĉevalino, sinjoro doktoro. Mi ja ne estas nenormala.
@@ -3054,9 +2693,7 @@ La sama psikiatro ekzamenas pacienton. Li montras al tiu desegnaĵojn.
 
 —Jam ili faras al si reciproke…
 
-—Bone, bone, sufiĉas. Mi diagnozas akutan seksan perver-
-
-son.
+—Bone, bone, sufiĉas. Mi diagnozas akutan seksan perverson.
 
 La paciento protestas kolere:
 
@@ -3072,9 +2709,6 @@ Juna servistino admiras novan, multekostan vizonpeltan mantelon de sia mastrino,
 Post jaro la servistino venas kun same bela peltaĵo. Al la miranta mastrino ŝi klarigas:
 
 —Estas facile: mi renkontis cent sinjorojn, kaj ĉiu donacis al mi 150 stelojn.
-
-
-K R U KO K A J B A N I KO
 
 
 ”Pru! halt’!” — ”Kio estas?” — ”Risorto rompiĝis”
@@ -3096,26 +2730,17 @@ La vojo
 
 —Al Bervalo.
 
-—Mi intencas libertempi en Bervalo. ĉu mi rajtas kunvetu-
-
-ri?
+—Mi intencas libertempi en Bervalo. ĉu mi rajtas kunveturi?
 
 —Volonte.
 
-Nun la junulino sidas apud la ŝoforo. Post momento li di-
-
-ras al ŝi:
+Nun la junulino sidas apud la ŝoforo. Post momento li diras al ŝi:
 
 —Strange estas, ke mi hodiaŭ veturigas jam la trian gravedan virinon.
 
 —Mi ja ne estas graveda, ekkrias la vojaĝantino.
 
-—Eble, — respondas la kamionisto.— sed ni ankoraŭ ne ve-
-
-nis al Bervalo.
-
-
-K R U KO K A J B A N I KO
+—Eble, — respondas la kamionisto.— sed ni ankoraŭ ne venis al Bervalo.
 
 
 Ripetado estas plej bona lernado
@@ -3126,9 +2751,7 @@ Vakeroj provas dresi sovaĝajn taŭrojn. Laŭvice ili lude rajdas la ribelemajn 
 
 —Ne iru. Mi ne volas, ke vi rajdu tiun monstron. Vi estas freneza. Restu ĉi tie!
 
-La edzo aspektas kiel malfortika nano apud la dikmuskolu-
-
-lino, sed li forkuras en la arenon kaj saltas sur la taŭron. La sovaĝa bovo stampfas, prancas, baŭmas, provas ĉiel skufali-gi la vireton, sed vane. Tiu sukcesas resti almenaŭ kvaronhoron sur la dorso de la besto.
+La edzo aspektas kiel malfortika nano apud la dikmuskolulino, sed li forkuras en la arenon kaj saltas sur la taŭron. La sovaĝa bovo stampfas, prancas, baŭmas, provas ĉiel skufali-gi la vireton, sed vane. Tiu sukcesas resti almenaŭ kvaronhoron sur la dorso de la besto.
 
 Aklamita de ĉiuj ĉeestantoj, li revenas al sia edzinego kaj diras fiere:
 
@@ -3141,9 +2764,7 @@ Aklamita de ĉiuj ĉeestantoj, li revenas al sia edzinego kaj diras fiere:
 
 i havas ankoraŭ signon de demando
 
-Baniko forte dubas pri la fideleco de sia edzino. ĉar li devas forvojaĝi, li komisias al detektivo kontroladon de sinjorino Baniko. Post sia reveno li legas la raporton de la detektivo: ”Je la sesa vespere sinjorino Baniko eliris el la domo. ŝin atendis juna viro en aŭto. Ili veturis al tesalono. Je la oka ili manĝis kune en luksa restoracio. Poste ili veturis al proksima hotelo kaj luis ĉambron. De apuda ĉambro mi povis plu observi ilin 78
-
-K R U KO K A J B A N I KO
+Baniko forte dubas pri la fideleco de sia edzino. ĉar li devas forvojaĝi, li komisias al detektivo kontroladon de sinjorino Baniko. Post sia reveno li legas la raporton de la detektivo: ”Je la sesa vespere sinjorino Baniko eliris el la domo. ŝin atendis juna viro en aŭto. Ili veturis al tesalono. Je la oka ili manĝis kune en luksa restoracio. Poste ili veturis al proksima hotelo kaj luis ĉambron. De apuda ĉambro mi povis plu observi ilin
 
 
 tra serurtruo. Sinjorino Baniko malvestis sin. Bedaŭrinde la lumo poste estingiĝis, kaj mi ne povis vidi, kion ili faras.”
@@ -3176,9 +2797,6 @@ Dum vojaĝo Kruko devas noktumi ĉe amikoj. ĉar ties loĝejo estas malgranda, l
 bebo. Vespere li multe trinkis, kaj nokte li vekiĝas kun urĝega bezono urini. Li vane serĉas la necesejon, li ne volas veki siajn gastigantojn, li ne trovas noktovazon en la ĉambro. Tiam li havas savan ideon: li prenas la bebon el la lulilo, kuŝigas lin sur sian liton kaj malplenigas sian vezikon en la lulinon. Morgaŭ neniu rimarkos, ĉu la infanlito estas iom pli malseka ol kutime.
 
 
-K R U KO K A J B A N I KO
-
-
 Per malpeza paŝo Kruko revenas al sia kuŝejo kaj terure ek-sakras, kiam vidas, ke la bebo intertempe kakis en lian liton.
 
 
@@ -3198,9 +2816,7 @@ En tribunalo staras bela prostituitino akuzita pri ŝtelado al siaj klientoj. ŝ
 
 Patro nia
 
-Nova paroęstro venas unuafoje en Bervalon. Apud la staci-
-
-domo lin salutas knabo:
+Nova paroęstro venas unuafoje en Bervalon. Apud la stacidomo lin salutas knabo:
 
 —Bonan tagon, sinjoro.
 
@@ -3214,14 +2830,9 @@ Al kavo senfunda ŝtopado ne helpas
 Lita dialogo:
 
 
-K R U KO K A J B A N I KO
-
-
 —Karulo, via fingroringo dolorigas min.
 
-—Sed, karulino, mi ne havas ringon. ĉu eble mia brakhor-
-
-loĝo?
+—Sed, karulino, mi ne havas ringon. ĉu eble mia brakhorloĝo?
 
 
 (por la grafino Mambolino)
@@ -3255,9 +2866,6 @@ La demandado daŭras ĝis la profesoro diras:
 —Kiu seksumas nur unufoje dum jaro anoncu vin.
 
 
-K R U KO K A J B A N I KO
-
-
 Maljuna viro stariĝas kun tiel ĝoja mieno, ke la seksologo miras:
 
 —Kial tio ridigas vin?
@@ -3273,9 +2881,7 @@ La okjara filino de Kruko vespere petas sian patrinon:
 
 —Vi estas jam sufiĉe granda kaj povas senvestiĝi sola.
 
-—La servistino estas pli granda ol mi, sed tamen hieraŭ pa-
-
-ĉjo ŝin senvestigis.
+—La servistino estas pli granda ol mi, sed tamen hieraŭ paĉjo ŝin senvestigis.
 
 
 Juĝisto: — Kial vi volas eksedziniĝi?
@@ -3294,9 +2900,6 @@ Sinjorino Baniko rimarkas sur la vizaĝo kaj ankaŭ aliloke aknojn, kiuj igas ŝ
 —Kion do vi faras, sinjoro doktoro?
 
 —Mi trankviligas vin, sinjorino. Mi nur trankviligas vin.
-
-
-K R U KO K A J B A N I KO
 
 
 La arto fariĝi centjara
@@ -3343,12 +2946,7 @@ laboron?
 —Jes.
 
 
-K R U KO K A J B A N I KO
-
-
-La laboristino ekridas, suprenfaldas sian puloveron, mal-
-
-kroĉas siajn kaŭĉukajn mamojn kaj ĵetas ilin en la paperkorbon.
+La laboristino ekridas, suprenfaldas sian puloveron, malkroĉas siajn kaŭĉukajn mamojn kaj ĵetas ilin en la paperkorbon.
 
 —ĉu nun mi rajtas labori plu, sinjoro direktoro?
 
@@ -3392,9 +2990,6 @@ Iu malaplombe rimarkigas:
 —ĉu oni fikas virojn?
 
 
-K R U KO K A J B A N I KO
-
-
 ĉiuj viroj demetas la pantalonojn kaj turnas la postaĵojn al la piratoj:
 
 —Fikas! certe oni fikas!
@@ -3402,9 +2997,7 @@ K R U KO K A J B A N I KO
 
 Sep fratoj
 
-Junulino venas al la paradizo. ĉar por virgulinoj estas rezervita aparta angulo, ŝi devas submeti sian himenon al la ekzameno de anĝelo-kontrolisto. Post momento la anĝelo, emba-
-
-rasite, venas al sankta Petro:
+Junulino venas al la paradizo. ĉar por virgulinoj estas rezervita aparta angulo, ŝi devas submeti sian himenon al la ekzameno de anĝelo-kontrolisto. Post momento la anĝelo, embarasite, venas al sankta Petro:
 
 —Tion mi neniam vidis antaŭe. ŝi havas sep etajn truojn.
 
@@ -3426,9 +3019,7 @@ Juna leporino forlasis la gepatran domon, por promeni. ŝi tial vagis, ke vesper
 
 —Tio estas la kondiĉo.
 
-ŝi vane ploras, li faras al ŝi paf paf, kaj poste li indikas al ŝi la vojon. Sed li erarigas ŝin, kaj ŝi denove kuras, kuras, ne 85
-
-K R U KO K A J B A N I KO
+ŝi vane ploras, li faras al ŝi paf paf, kaj poste li indikas al ŝi la vojon. Sed li erarigas ŝin, kaj ŝi denove kuras, kuras, ne
 
 
 retrovante la ĝustan direkton. Feliĉe ŝi renkontas alian maljunan leporon.
@@ -3468,18 +3059,13 @@ perturbo de la
 klubo.
 
 
-K R U KO K A J B A N I KO
-
-
 Kun la peko en mano
 
 Aŭtomobilisto veturas kun nova amikino tra kamparo. Dum
 
 lia maldekstra mano tenas la direktilon, la dekstra okupiĝas pri aŭdacaj malkovroj sub la jupo de la kunulino. ŝi ne kontraŭas. Male ŝi aktive partoprenas la karesadon.
 
-Tiu malbona konduto kondukas al miskondukado de la ra-
-
-pida aŭto, kaj post kelkaj zigzagoj la veturilo malmilde volviĝas ĉirkaŭ vojrandan arbon. Pro la kolizio la junulino estas elĵetita je kvindek metroj.
+Tiu malbona konduto kondukas al miskondukado de la rapida aŭto, kaj post kelkaj zigzagoj la veturilo malmilde volviĝas ĉirkaŭ vojrandan arbon. Pro la kolizio la junulino estas elĵetita je kvindek metroj.
 
 Alkuras vilaĝanoj, kiuj laboris en la kamparo. Ili provas konsoli la aŭtomobiliston, kiu laŭte ploras en la tute detrui-ta veturilo:
 
@@ -3505,22 +3091,15 @@ Je la kvina posttagmeze la bervala tramo estas plenplena.
 Kruko, okupante oportunan sidlokon, ŝajnigas, ke li estas tute absorbita en legado de gazeto.
 
 
-K R U KO K A J B A N I KO
-
-
 Juna virino staras antaŭ li. Post momento ŝi atentigas lin, ke ŝi deziras sidi. ŝi murmuras:
 
 —Sinjoro, mi estas graveda.
 
 Kruko tuj lasas sian lokon al la bela sinjorino. Li tamen miras, ke la patriniĝonta virino estas tiom svelta, kaj li demandas:
 
-—Sinjorino, ĉu vi pardonos mian maldiskreton? Mi nur sci-
+—Sinjorino, ĉu vi pardonos mian maldiskreton? Mi nur scivolas, de kiam vi estas graveda?
 
-volas, de kiam vi estas graveda?
-
-La belulino respondas kun okuloj fermitaj pro volupta re-
-
-memoro:
+La belulino respondas kun okuloj fermitaj pro volupta rememoro:
 
 —De duonhoro.
 
@@ -3545,12 +3124,7 @@ La muro havas orelojn
 
 Sinjorino Baniko devis veturi al banloko, por fari termofon-tan kuracadon. Baniko promesas viziti ŝin post du semajnoj.
 
-La revido estas kortuŝa. Baniko malpacience atendas la nok-88
-
-K R U KO K A J B A N I KO
-
-
-ton, ĉar la trudita dekkvartaga ĉasteco tre pezas por li. Post la vespermanĝo ili iras en ŝian hotelĉambron. Baniko senvestiĝas en tri sekundoj, sovaĝe ĵetas la edzinon sur la liton kaj sin — sur la edzinon. La lito knaras, Baniko gruntas, lia Banikino eligas laŭtajn ĝuĝemojn. Subite aŭdiĝas frapoj sur la muron, kaj iu kolere krias el la apuda ĉambro:
+La revido estas kortuŝa. Baniko malpacience atendas la nokton, ĉar la trudita dekkvartaga ĉasteco tre pezas por li. Post la vespermanĝo ili iras en ŝian hotelĉambron. Baniko senvestiĝas en tri sekundoj, sovaĝe ĵetas la edzinon sur la liton kaj sin — sur la edzinon. La lito knaras, Baniko gruntas, lia Banikino eligas laŭtajn ĝuĝemojn. Subite aŭdiĝas frapoj sur la muron, kaj iu kolere krias el la apuda ĉambro:
 
 —ĉu do okazos ĉiuvespere la sama bordela bruego?
 
@@ -3566,9 +3140,7 @@ Kruko partoprenas festenon ĉe avara malbelulino. En la sekva tago Baniko demand
 
 Eĉ ŝtipo estos bela, se vi ĝin ornamos
 
-Baldaŭ okazos kostumbalo. Fortika bervalano venas al bro-
-
-kantisto.
+Baldaŭ okazos kostumbalo. Fortika bervalano venas al brokantisto.
 
 —Mi estos Adamo, kaj mi bezonas nur figarban folion.
 
@@ -3583,9 +3155,6 @@ La vendisto alportas la folion, sed la estonta Adamo protestas:
 —Atendu, restas al mi giganta figarba folio, iam uzata por granda statuo.
 
 —Ankaŭ ĝi ne konvenas.
-
-
-K R U KO K A J B A N I KO
 
 
 —Do mi vidas la solan eblon, sinjoro. Vi metu vian ”ilon”
@@ -3617,12 +3186,7 @@ maldungas vin.
 
 La malfortikiĝinto balbutas:
 
-—Mi ne komprenas, kiel tio okazis, sinjoro direktoro. Ho-
-
-diaŭ posttagmeze ĉio ja iris glate dum la provludo.
-
-
-K R U KO K A J B A N I KO
+—Mi ne komprenas, kiel tio okazis, sinjoro direktoro. Hodiaŭ posttagmeze ĉio ja iris glate dum la provludo.
 
 
 (por malĉasta soldato)
@@ -3658,21 +3222,14 @@ Edziĝo kontraŭvola
 En atendejo de akuŝejo du viroj sidas kun ĉagrena mieno.
 
 
-K R U KO K A J B A N I KO
-
-
-—Mi estas malbonŝanca,— diras li unua.— Mia edzino pa-
-
-triniĝas ĝuste dum nia ferio.
+—Mi estas malbonŝanca,— diras li unua.— Mia edzino patriniĝas ĝuste dum nia ferio.
 
 —Ha!— plendas la dua. — Kion mi diru pri mia edzino, kiu
 
 akuŝas dum la mielmonato?
 
 
-Cirko restis du semajnojn en Bervalo, kaj nano estas akuzita pri seksatenco al juna surdmutulino. ŝi komprenigis per gestoj, ke por tio li uzis sitelon. Lia advokato alportigas sitelon, petas la nanon grimpi sur ĝin kaj povas facile konvinki la juĝ-
-
-antaron, ke eĉ tiel la akuzito ne povas atingi sufiĉan altecon, por perforti la virinon. Malgraŭ la gestado de la surdmutulino, la juĝisto do absolvas lin.
+Cirko restis du semajnojn en Bervalo, kaj nano estas akuzita pri seksatenco al juna surdmutulino. ŝi komprenigis per gestoj, ke por tio li uzis sitelon. Lia advokato alportigas sitelon, petas la nanon grimpi sur ĝin kaj povas facile konvinki la juĝantaron, ke eĉ tiel la akuzito ne povas atingi sufiĉan altecon, por perforti la virinon. Malgraŭ la gestado de la surdmutulino, la juĝisto do absolvas lin.
 
 Antaŭ la pordo de la tribunalo la nano dankas sian advokaton:
 
@@ -3696,12 +3253,7 @@ Li eniras kaj informiĝas.
 —Bone, eniru tiun ĉi ĉambron, senvestiĝu kaj atendu.
 
 
-K R U KO K A J B A N I KO
-
-
-Kruko obeas, kaj baldaŭ aperas belega blondulino tute nu-
-
-da, kiu diras al li:
+Kruko obeas, kaj baldaŭ aperas belega blondulino tute nuda, kiu diras al li:
 
 —Se vi kaptos min, vi posedos min.
 
@@ -3718,9 +3270,7 @@ nigraj haroj, kun nekredeble bela brusto, kun …, kaj ŝi diras:
 
 Denove Kruko kuras, galopas, saltas, sed vane, vane. Li sukcesas nun perdi kvar funtojn.
 
-En la tria tago entuziasmita Kruko decidas, ke nepre kap-
-
-tos la 50-dolaran belulinon. Li senvestiĝas en la ĉambro kaj atendas kun batanta koro. La pordo malfermiĝas kaj eniras granda atleta negro, kiu diras al li:
+En la tria tago entuziasmita Kruko decidas, ke nepre kaptos la 50-dolaran belulinon. Li senvestiĝas en la ĉambro kaj atendas kun batanta koro. La pordo malfermiĝas kaj eniras granda atleta negro, kiu diras al li:
 
 —Se mi kaptos vin, mi posedos vin.
 
@@ -3736,16 +3286,11 @@ La knabeto turnas sin al sia fratino:
 —ĉu ni diru al ŝi la veron, aŭ ni lasu ŝin morti stulta?
 
 
-K R U KO K A J B A N I KO
-
-
 Jen kiaj ni estas!
 
 Mona˛ino petveturas. ŝi nun sidas de duonhoro en kamiono, kiam la ŝoforo proponas:
 
-—Ni haltu, fratina moŝto. Venis tempo por manĝeto kaj ri-
-
-pozeto.
+—Ni haltu, fratina moŝto. Venis tempo por manĝeto kaj ripozeto.
 
 Ili eliras el la aŭto, kaj la mona˛ino akceptas panon, kolba-son kaj ruĝan vinon de la kamionisto. Poste la viro sterniĝas en ombro, sur freŝa musko.
 
@@ -3759,13 +3304,9 @@ Kiam la ŝoforo vekiĝas, li ekvidas la surojn de la religiulino kaj reflekse ek
 
 —Mi kutime amoras post la siesto.
 
-—Sed, kompatindulo, ĉu vi forgesis mian voton pri ĉaste-
+—Sed, kompatindulo, ĉu vi forgesis mian voton pri ĉasteco?
 
-co?
-
-Ili diskutas pri votoj, pri ĉasteco, abatinoj, volupto, pento-
-
-ĉemizoj kaj fine venas al jezuita kompromiso:
+Ili diskutas pri votoj, pri ĉasteco, abatinoj, volupto, pentoĉemizoj kaj fine venas al jezuita kompromiso:
 
 —Sinjoro, se vi nepre volas preni min, nur malantaŭe.
 
@@ -3786,9 +3327,6 @@ Tiam ridklukas la mona˛ino:
 stacibufedo.
 
 
-K R U KO K A J B A N I KO
-
-
 Unufingraj melodioj
 
 Juna japano revenis el Bervalo, kie li restis du monatojn, por lerni la lingvon. Lia patro ekzamenas lin pri liaj konoj:
@@ -3799,9 +3337,7 @@ Juna japano revenis el Bervalo, kie li restis du monatojn, por lerni la lingvon.
 
 —ĉu la ŝerco? Vi eraras.
 
-—Ne, paĉjo. Mi bone memoras, ke iam en kinejo mia naj-
-
-barino diris al mi: ”Ne pelu la ŝercon tro malproksimen!”
+—Ne, paĉjo. Mi bone memoras, ke iam en kinejo mia najbarino diris al mi: ”Ne pelu la ŝercon tro malproksimen!”
 
 
 Li atendas, ke la okazo venu al lia nazo
@@ -3825,12 +3361,7 @@ En ĉikago Baniko vidas ĉe stratangulo aŭtomaton, sur kiu li deĉifras: ”Mi 
 
 Pasanto haltas, proksimigas sian pantalonfendon al la apa-rato kaj foriras post du minutoj kun kontenta mieno.
 
-Baniko, ekscitite, metas unu dolaron en la aŭtomaton, mal-95
-
-K R U KO K A J B A N I KO
-
-
-fermas sian pantalonfendon kaj konfidas sian viraĵon al la mirinda maŝino. Tuj li eligas laŭtan dolorkrion. La aŭtomato kudris al la pinto de lia generilo pantalonbutonon.
+Baniko, ekscitite, metas unu dolaron en la aŭtomaton, malfermas sian pantalonfendon kaj konfidas sian viraĵon al la mirinda maŝino. Tuj li eligas laŭtan dolorkrion. La aŭtomato kudris al la pinto de lia generilo pantalonbutonon.
 
 
 L’avarulo
@@ -3868,9 +3399,6 @@ Post horkvarono la junulo demandas:
 —ĉu vi volas trinki viskion?
 
 
-K R U KO K A J B A N I KO
-
-
 —Ne, dankon. Mi trinkis brandon nur unufoje en mia vivo,
 
 kaj ĝi gustis aĉe.
@@ -3902,20 +3430,13 @@ Al sia kolera mastro ŝi klarigas:
 
 Londonanidoj
 
-Okaze de vojaĝo en Anglujo Kruko konatiĝis kun du distin-
+Okaze de vojaĝo en Anglujo Kruko konatiĝis kun du distingitaj sinjoroj en londona drinkejo.
 
-gitaj sinjoroj en londona drinkejo.
-
-—Mi konas Londonon. Jam dum la milito mi restis du ja-
-
-rojn en via ĉefurbo.
+—Mi konas Londonon. Jam dum la milito mi restis du jarojn en via ĉefurbo.
 
 —Ha! — diras la pli juna interparolanto.— En kiu kvartalo?
 
 —Mi loĝis en Carnaby-strato.
-
-
-K R U KO K A J B A N I KO
 
 
 La dua anglo, preskaŭ surda pro la grandaĝeco, demandas:
@@ -3965,14 +3486,9 @@ Du frenezuloj forkuris el azilo. Unu retrovas sian kunulon kuŝanta apud rando d
 —Tio ne okazos.
 
 
-K R U KO K A J B A N I KO
-
-
 —Kial?
 
-—Vi estas tute freneza. ĉu vi ne rimarkis, ke li havas pneŭ-
-
-matikon?*
+—Vi estas tute freneza. ĉu vi ne rimarkis, ke li havas pneŭmatikon?*
 
 * Tiu frenezulo, iama rektoro de la bervala universitato (la mondfama ”Kon-domo”), lernis parkere la Plenan Vortaron
 
@@ -3996,12 +3512,7 @@ Cent semoj perdiĝas, mil semoj perdiĝas
 
 Malgraŭ diligentaj klopodoj kun sia edzino, viro ne sukcesas havi idojn. Li iras al faka kuracisto, kiu decidas analizi lian spermon. Por tia ekzameno oni bezonas freŝan semon. Flegistino donas al la viro teleron kaj enirigas lin en ĉambreton ornamitan per sugestaj ../Bildoj de nudulinoj.
 
-—Bonvolu poste sonorigi al mi, por ke mi tuj prenu la te-
-
-leron. Post kvardek kvin minutoj la flegistino malpacience frapas la pordon de la ĉambreto:
-
-
-K R U KO K A J B A N I KO
+—Bonvolu poste sonorigi al mi, por ke mi tuj prenu la teleron. Post kvardek kvin minutoj la flegistino malpacience frapas la pordon de la ĉambreto:
 
 
 —Nu, ĉu vi ankoraŭ ne finis?
@@ -4034,9 +3545,7 @@ Baniko havas bluaĵon sub okulo.
 
 —ĉu butona afero?
 
-—Jes, hieraŭ mi rimarkis, ke butono mankas al mia panta-
-
-lonfendo. ĉar mia edzino forvojaĝis, mi iris al nia pordistino.
+—Jes, hieraŭ mi rimarkis, ke butono mankas al mia pantalonfendo. ĉar mia edzino forvojaĝis, mi iris al nia pordistino.
 
 ŝi klarigis, ke tio estas facila afero, ke mi eĉ ne bezonos demeti la pantalonon. ŝi prenis kudrilon, fadenon, kaj post du minutoj la butono estis alkudrita. ŝi faris nodon kaj estis ĝuste detranĉanta la finon de la fadeno per la dentoj, kiam ŝia edzo revenis hejmen.
 
@@ -4048,12 +3557,7 @@ Krukon mirigas la brila aspekto de Baniko.
 —ĉu vi gajnis en la bervala loterio?
 
 
-K R U KO K A J B A N I KO
-
-
-—Ne, mi inventis pomadon, kiu enspezigis al mi kvar mi-
-
-lionojn da steloj.
+—Ne, mi inventis pomadon, kiu enspezigis al mi kvar milionojn da steloj.
 
 —Kian pomadon?
 
@@ -4096,20 +3600,17 @@ ne povas tiel longe malhavi virinon. Mi sentas, ke mi iom post iom freneziĝas.
 —Estas malfacile, ĉar almenaŭ sep personoj konos la sekreton.
 
 
-K R U KO K A J B A N I KO
-
-
 —Sep?
 
 —Jes: vi, mi, la ĉina kuiristo, kaj la kvar ŝipanoj, kiuj devos teni lin.
 
 En kupeo pluraj personoj, kiuj aĉetis la lastan numeron de Heroldo de Bervalo, okaze okupiĝas pri la sama krucvortenig-mo. Iu sinjoro demandas sian edzinon:
 
-—Kiu kvarlitera vorto finiĝanta per IĉO signifas: ”Kavaĵe-to kelkfoje apartenanta al Virgulino”?
+—Kiu kvarlitera vorto finiĝanta per IĈO signifas: ”Kavaĵe-to kelkfoje apartenanta al Virgulino”?
 
 Post pripenso ŝi respondas:
 
-—Estas certe NIĉO.
+—Estas certe NIĈO.
 
 Tiam en angulo de la kupeo, maljuna pastro abrupte petas:
 
@@ -4134,9 +3635,6 @@ Gontrano, nobela junulo, falsete sciigas al la grafino:
 —Patrino, mi amas.
 
 —Ha! espereble iun el la mondumo.
-
-
-K R U KO K A J B A N I KO
 
 
 —Ne, patrino.
@@ -4166,18 +3664,14 @@ sterniĝas sur mia teraso. Posttagmeze mi denove naĝas en la maro, antaŭ ol gr
 
 Vespere li rakontas al sia edzino:
 
-—Hodiaŭ mi renkontis Antonon. ĉu vi memoras pri Anto-
-
-no? Li estas nun tiel riĉa, ke li kaj lia edzino Tereza ŝanĝis la nomojn. Laŭdire oni agas tiel en la mondumo. Nun li nomi-
+—Hodiaŭ mi renkontis Antonon. ĉu vi memoras pri Antono? Li estas nun tiel riĉa, ke li kaj lia edzino Tereza ŝanĝis la nomojn. Laŭdire oni agas tiel en la mondumo. Nun li nomi-
 
 ĝas Toni kaj ŝi — Teraso.
 
 
 La filo de Kruko soldatiĝis. Lia patrino skribas al li, ke ŝi deziras ricevi foton de li. Kaj ŝi aldiras: ”Sendu do foton ankaŭ al via avino”.
 
-La juna Kruko estas embarasita, ĉar li posedas nur unu foton faritan dum la rekrutekzameno. Sur ĝi oni vidas lin tute nuda. Li havas tamen ideon: li detranĉas la kapan parton kaj sendas ĝin al sia patrino. ĉar li scias, ke lia avino havas tre 103
-
-K R U KO K A J B A N I KO
+La juna Kruko estas embarasita, ĉar li posedas nur unu foton faritan dum la rekrutekzameno. Sur ĝi oni vidas lin tute nuda. Li havas tamen ideon: li detranĉas la kapan parton kaj sendas ĝin al sia patrino. ĉar li scias, ke lia avino havas tre
 
 
 malbonajn okulojn kaj vidas preskaŭ nenion, li sendas la ce-teron al la maljunulino, kiu ekblekas, skuante la kapon:
@@ -4208,9 +3702,7 @@ Oni demandas centjarulon:
 
 —ĉu vi amis virinojn?
 
-—Jes, ĉiel. Ilin mi kisis, ilin mi karesis, ilin mi… Ha! bedaŭ-
-
-rinde mi tute forgesis la trian manieron.
+—Jes, ĉiel. Ilin mi kisis, ilin mi karesis, ilin mi… Ha! bedaŭrinde mi tute forgesis la trian manieron.
 
 
 Triumfo de medicino
@@ -4220,9 +3712,6 @@ Kruko havis gravan akcidenton. Post plurmonata restado en malsanulejo li revenas
 —ĉu estas vere, ke oni devis kastri vin?
 
 —Jes, sed la kirurgo faris mirindaĵon. Li greftis al mi koko-kolon.
-
-
-K R U KO K A J B A N I KO
 
 
 La amikoj miras:
@@ -4250,9 +3739,6 @@ Matene Kruko leviĝas, iras al la ŝranko kaj malkovras kun teruro, ke li uzis e
 Nova Ezopo
 
 Juna zebrino ĵus forkuris el menaĝerio. ŝi rifuĝas hazarde en stalon, kaj virĉevalo rigardas ŝin per mirigitaj okuloj.
-
-
-K R U KO K A J B A N I KO
 
 
 —Kion vi faras en la vivo? — ŝi demandas sinĝene.
@@ -4297,14 +3783,9 @@ La kelneroj kaj gastoj rigardas la sinjoron kun malaproba mieno. Li estas tre ko
 Konfuzegita, li reiras al sia loko, dum la ĉeestantoj murmuras minacojn.
 
 
-K R U KO K A J B A N I KO
-
-
 Post momento la sinjorino proksimiĝas al li kaj diras:
 
-—Bonvolu senkulpigi min. Mi estas profesorino pri psiko-
-
-logio, kaj mi nur studas la reagojn de la publiko.
+—Bonvolu senkulpigi min. Mi estas profesorino pri psikologio, kaj mi nur studas la reagojn de la publiko.
 
 Tiam li blekas:
 
@@ -4313,9 +3794,7 @@ Tiam li blekas:
 
 Magia rondo
 
-Kun revolvero enmane bandito perforte eniras dormoĉam-
-
-bron de Baniko. La geedzoj ĵus prepariĝis al enlitiĝo. Per kreto la bandito desegnas cirklon sur la planko kaj minace ordonas al Baniko:
+Kun revolvero enmane bandito perforte eniras dormoĉambron de Baniko. La geedzoj ĵus prepariĝis al enlitiĝo. Per kreto la bandito desegnas cirklon sur la planko kaj minace ordonas al Baniko:
 
 —Vi staru en la cirklo. Se vi eliros el ĝi, mi pafmortigos vin.
 
@@ -4337,9 +3816,6 @@ Li ĵus konatiĝis kun ŝi sur strato. Nun ili estas en hotela ĉambro. Kiam ŝi
 —Rapide revestu vin kaj foriru.
 
 —Kial? ĉu ankaŭ vi estas superstiĉa?
-
-
-K R U KO K A J B A N I KO
 
 
 —Sinjoro Régulo Pérez eble forestas dum la somero. Tiam
@@ -4375,12 +3851,7 @@ Juna naivulino ĵus pasigis ĉe onklo Kruko la unuan edziĝo-nokton. Matene info
 
 —Nu, ĉu mi povas esperi baldaŭ esti praonklo?
 
-—Jes, respondas ls simplanimulino, mi havos kvin ĝeme-
-
-lojn.
-
-
-K R U KO K A J B A N I KO
+—Jes, respondas ls simplanimulino, mi havos kvin ĝemelojn.
 
 
 ĉu li?
@@ -4413,9 +3884,6 @@ Du malsanoj
 La paroęstro de Bervalo devas vojaĝi al episkopa urbo. Vespere, promenante en mallarĝaj stratoj malantaŭ la katedralo, li estas tentata de publikulino. Lia karno iĝas malforta, kaj li pekas.
 
 
-K R U KO K A J B A N I KO
-
-
 Post dek tagoj li rimarkas, ke tiu kulpo ne restis sen sekvo.
 
 Li decidas konsulti maljunan, kompreneman kuraciston.
@@ -4428,9 +3896,7 @@ preskribos al vi efikan kuracilon.
 
 —Nur diru al li, ke vi suferas karbunklon.
 
-La apotekisto tuj komprenas, pri kio temas. Kun ruza mie-
-
-no li demandas:
+La apotekisto tuj komprenas, pri kio temas. Kun ruza mieno li demandas:
 
 —Nu, sinjoro paroęstro, kiel do vin atakis tiu karbunklo?
 
@@ -4438,9 +3904,7 @@ no li demandas:
 
 La apotekisto donas la preskribitan kuracilon kaj aldonas skatoleton da kondomoj, dirante:
 
-—Sinjoro paroęstro, se okaze vi denove renkontos ami-
-
-kon, kiu okaze invitos vin al manĝo, dum kiu estos okaze sur-tabligita kuniklaĵo, kiu povus okaze havi karbunklon, surmetu do antaŭe tion sur la pinton de via … forko.
+—Sinjoro paroęstro, se okaze vi denove renkontos amikon, kiu okaze invitos vin al manĝo, dum kiu estos okaze sur-tabligita kuniklaĵo, kiu povus okaze havi karbunklon, surmetu do antaŭe tion sur la pinton de via … forko.
 
 
 Por la bervala hospitalo estas serĉataj novaj flegistinoj. Profesoro pridemandas kandidatinojn:
@@ -4452,16 +3916,11 @@ Por la bervala hospitalo estas serĉataj novaj flegistinoj. Profesoro pridemanda
 —Fraŭlino, unue temas pri la pupilo, due ni ne bezonas vin, kiel flegistinon, kaj trie mi povas antaŭdiri al vi grandajn dis-reviĝojn en la vivo.
 
 
-K R U KO K A J B A N I KO
-
-
 Lasu nin venki la baron
 
 Bervalanino iras al kuracisto.
 
-—Sinjoro doktoro, mi ŝatus havi infanon, kaj mi ne sukce-
-
-sas.
+—Sinjoro doktoro, mi ŝatus havi infanon, kaj mi ne sukcesas.
 
 —Sinjorino, bonvolu senvestiĝi kaj kuŝiĝi ĉi tie.
 
@@ -4489,9 +3948,7 @@ al objekto jam suĉita de multaj fremduloj.
 
 Parolado kun fraŭlino ripozanta
 
-Kruko sukcesis delogi sian sekretariinon. Nun, anhelante pro 111
-
-K R U KO K A J B A N I KO
+Kruko sukcesis delogi sian sekretariinon. Nun, anhelante pro
 
 
 la ĵusa barakto, ili kuŝas sur ŝia lito kaj ripozas momenton.
@@ -4504,9 +3961,7 @@ miaj amikoj, post kiam mi pekis du fojojn?
 
 —ĉu du fojojn?
 
-—Jes, kompreneble — ĉu vi ne deziras, ke ni tuj rekomen-
-
-cu?
+—Jes, kompreneble — ĉu vi ne deziras, ke ni tuj rekomencu?
 
 Excelsior!
 
@@ -4531,12 +3986,7 @@ Li tute forgesas malŝalti la mikrofonon kaj diras plu al la dua piloto:
 
 varman virinon.
 
-Timante, ke la konversacio fariĝos ankoraŭ pli ŝoka, la ste-112
-
-K R U KO K A J B A N I KO
-
-
-vardino impetas al la pilotejo, sed maljuna pasaĝerino halti-gas ŝin kaj diras kun maliceta mieno:
+Timante, ke la konversacio fariĝos ankoraŭ pli ŝoka, la stevardino impetas al la pilotejo, sed maljuna pasaĝerino halti-gas ŝin kaj diras kun maliceta mieno:
 
 —Fraŭlino, vi forgesis la viskion.
 
@@ -4576,9 +4026,6 @@ devoj, ŝi balbutas per svena voĉo:
 —Ni nomu lin Deziderato.
 
 
-K R U KO K A J B A N I KO
-
-
 —Jes.
 
 uste en la momento, kiam ili atingas la kulminon de la
@@ -4596,9 +4043,7 @@ Vespere sensperta junulino promenas tra la kamparo kun sia fianĉo. Li kisas kaj
 
 Plorante, ŝi konfesas al la fianĉo:
 
-—Bonvolu min senkulpigi, sed mi ĵus nevole vidis la am-
-
-plekson de via viraĵo. Ni ne povas geedziĝi, ĉar tia monstraĵo neniam adaptiĝos al mia delikata juvelo.
+—Bonvolu min senkulpigi, sed mi ĵus nevole vidis la amplekson de via viraĵo. Ni ne povas geedziĝi, ĉar tia monstraĵo neniam adaptiĝos al mia delikata juvelo.
 
 La junulo provas konsoli la naivulinon:
 
@@ -4622,9 +4067,6 @@ patrino.
 —Nu, bone, sinjorino. Montru al mi vian langon.
 
 
-K R U KO K A J B A N I KO
-
-
 —Mi scivolas, ĉu ili nun interpaciĝis, ĉar li svingas la blankan flagon.
 
 
@@ -4645,19 +4087,12 @@ La vagulo tuj ekstaras, kuras en la kuirejon kaj manĝas la tutan fromaĝon.
 
 Kontakto
 
-Kruko proksimiĝas al heĝo por kontentigi la naturan bezo-
-
-non. Dum li malbutonas sian pantalonfendon, li vidas la junan Dorisa, kiu jam ofte komplezis al multaj viroj de Bervalo.
+Kruko proksimiĝas al heĝo por kontentigi la naturan bezonon. Dum li malbutonas sian pantalonfendon, li vidas la junan Dorisa, kiu jam ofte komplezis al multaj viroj de Bervalo.
 
 Kaŭrante sur la alia flanko de la heĝo, ankaŭ ŝi aŭdigas
 
 
-K R U KO K A J B A N I KO
-
-
-murmuron de la ĉarma kaskadeto. La ĉeesto de Kruko neni-
-
-om ĝenas ŝin, kaj ŝi diras al li afable:
+murmuron de la ĉarma kaskadeto. La ĉeesto de Kruko neniom ĝenas ŝin, kaj ŝi diras al li afable:
 
 —Je via sano, sinjoro Kruko.
 
@@ -4670,9 +4105,7 @@ Virino ĉe landlimo
 
 En trajno vigle interparolas du belaj fraŭlinoj. Ili aĉetis multajn nilonajn ŝtrumpojn, kiuj estas pli malmultekostaj ekster-lande. Sed baldaŭ la trajno venos al la landlimo, kaj la junulinoj timas la doganon. En la sama kupeo sidas gajmiena, dika pastro, kiu trankvile legas sian brevieron.
 
-—Bonvolu pardoni nin, pastra moŝto. ĉu vi ne povus hel-
-
-pi nin?
+—Bonvolu pardoni nin, pastra moŝto. ĉu vi ne povus helpi nin?
 
 —Kiel do?
 
@@ -4695,9 +4128,6 @@ La pastro respondas trankvile:
 La doganisto ekridas, frapas la ŝultron de la pastro kaj eliras el la kupeo, dirante:
 
 —Vi almenaŭ estas ŝercema friponeto.
-
-
-K R U KO K A J B A N I KO
 
 
 La grafino Mambolino organizas kunvenon, al kiu ŝi invitis la tutan mondumanaron de Bervalo. ĉar la dekoracio estas por ŝi grava afero, ŝi nepre bezonas ruĝan papagon, kies koloro harmoniu kun la salonaj tapetoj kaj ŝia nova robo. La grafino venigas lakeon:
@@ -4735,9 +4165,7 @@ Jes… Jes… Kompreneble ”aktiva membro”.
 
 ĉia dono estas bono
 
-Soldatoj skribas al fama dikmama stelulino, por peti de ŝi memoraĵon. ŝi sendas unu el siaj mamzonoj. Post kelkaj tagoj ŝi 117
-
-K R U KO K A J B A N I KO
+Soldatoj skribas al fama dikmama stelulino, por peti de ŝi memoraĵon. ŝi sendas unu el siaj mamzonoj. Post kelkaj tagoj ŝi
 
 
 ricevas leteron de la soldatoj: ”Dankon pro via donaco. Ni ege
@@ -4781,9 +4209,6 @@ Li puŝas la virinon al muro kaj longe priserĉas ŝin. ĉie li serĉas tre mald
 —Ho, daŭrigu. Mi subskribos al vi ĉekon.
 
 
-K R U KO K A J B A N I KO
-
-
 (por sportisto)
 
 
@@ -4815,9 +4240,6 @@ La kelnero havas ĉirkaŭ la kolo alian ŝnureton, kies ekstremaĵo estas kaŝit
 —Sed kiel vi remetas ĝin en la pantalonon, ne tuŝante ĝin?
 
 —Sinjoro, por tio mi uzas mian kulereton.
-
-
-K R U KO K A J B A N I KO
 
 
 Kruko manĝas en luksa restoracio kun belega blondulino ĵus trafita sur la strato. ĉe apuda tablo sidas eleganta virino, kiu ridetas al li. Post duonhoro ŝi donas al kelnero papereton por Kruko. Sur ĝi ŝi notis: ”La junulino, kun kiu vi manĝas, estas nur mia ĉambristino. Krome ŝi surhavas robon de mi”.
@@ -4855,18 +4277,13 @@ En la sekva tago la knabeto subite deklaras:
 —Fraŭlino, mi vidas viajn nigrajn ĵartelojn.
 
 
-K R U KO K A J B A N I KO
-
-
 —Vi estas senhonta infano. Tuj foriru kaj restu unu tagon hejme.
 
 Post kelkaj tagoj la juna lernanto sidiĝas, sed baldaŭ ekstaras kaj eliras el la klaso. La instruistino vokas lin:
 
 —Kien vi iras, Beĉjo?
 
-—Pro ĉio, kion mi ĵus vidis, mi prenas dusemajnan liber-
-
-tempon.
+—Pro ĉio, kion mi ĵus vidis, mi prenas dusemajnan libertempon.
 
 
 Veku, ho veku, veku konstante
@@ -4900,9 +4317,6 @@ En drinkejo apud la bervala haveno sidas malgaja junulino.
 Proksimiĝas maristo:
 
 
-K R U KO K A J B A N I KO
-
-
 —Kio estas al vi, fraŭlino?
 
 —Ve, mi venis de malproksime por migri al Aŭstralio, sed
@@ -4932,9 +4346,7 @@ Facila vento
 
 Fraŭlino konsultas maljunan kuraciston:
 
-—Sinjoro doktoro, jam de tri monatoj mi estas maltrankvi-
-
-la. Mi timas, ke mi estas graveda.
+—Sinjoro doktoro, jam de tri monatoj mi estas maltrankvila. Mi timas, ke mi estas graveda.
 
 Li esploras ŝin.
 
@@ -4947,12 +4359,7 @@ Post tri pluaj monatoj la ventro de la fraŭlino konsiderin-de rondiĝas. ŝi re
 Post tri monatoj la fraŭlino naskas belegan bebon.
 
 
-K R U KO K A J B A N I KO
-
-
-Iam ŝi promenas, puŝante sian infanĉareton sur la trotua-
-
-ro. Preterpasas la maljuna kuracisto, kiu intertempe tute forgesis ŝin. Li rigardas en la ĉareton.
+Iam ŝi promenas, puŝante sian infanĉareton sur la trotuaro. Preterpasas la maljuna kuracisto, kiu intertempe tute forgesis ŝin. Li rigardas en la ĉareton.
 
 —Ho! kiel ĉarma estas tiu infano! Kiel do nomiĝas tiu bela knabeto?
 
@@ -4992,9 +4399,6 @@ Milionulo ŝimalok enmigris en Bervalon. Iam li aperas en
 unuaranga kliniko kaj klarigas al la ĉefkuracisto:
 
 
-K R U KO K A J B A N I KO
-
-
 —Doktoro, mi deziras vi kastri mi.
 
 —Sinjoro, tio estas grava afero, kaj mi ne scias, ĉu…
@@ -5012,9 +4416,7 @@ Kie maldike, tie rompiĝas
 
 Alia riĉa homo venas en la saman klinikon:
 
-—Sinjoro doktoro, mi deziras, ke vi detranĉu unu centime-
-
-tron de mia vira organo.
+—Sinjoro doktoro, mi deziras, ke vi detranĉu unu centimetron de mia vira organo.
 
 La kuracisto jam aŭdis tiom da strangaj deziroj, ke li akceptas. Du tagojn post la operacio la paciento petas:
 
@@ -5042,9 +4444,6 @@ Tri amikoj komparas la logaĵojn de siaj respektivaj edzinoj.
 —Ha! mi estas pli enviinda ol vi ambaŭ. La mamoj de mia
 
 
-K R U KO K A J B A N I KO
-
-
 edzino estas tiel molaj, ke mi povas doni al ili ajnajn frukto-formojn.
 
 
@@ -5066,15 +4465,11 @@ Dubo gardas kontraŭ risko
 
 Kruko donas konsilojn al sia granda filo:
 
-—Se vi iam iros al publikulino, atentu la venereajn mal-
-
-sanojn. Kunportu citronon kaj per ĝi surŝprucu ŝian… vi ja komprenas min. Tio mortigas ĉiajn mikrobojn, bacilojn, bak-teriojn kaj virusojn.
+—Se vi iam iros al publikulino, atentu la venereajn malsanojn. Kunportu citronon kaj per ĝi surŝprucu ŝian… vi ja komprenas min. Tio mortigas ĉiajn mikrobojn, bacilojn, bak-teriojn kaj virusojn.
 
 La juna Krukido profitas la patran instruon kaj, pleniginte siajn poŝojn per citronoj vagas tra malbonfama kvartalo de Bervalo. Post momento li estas en ĉambro de deĵoranta stratulino. ŝi atendas sur lito, ke li bonvolu uzi ŝian gastamon.
 
-Tiam li tranĉas citronon kaj elpremas ĝin super la danĝera 125
-
-K R U KO K A J B A N I KO
+Tiam li tranĉas citronon kaj elpremas ĝin super la danĝera
 
 
 parto. ŝi jam vidis tiom da stranguloj en sia kariero, ke apenaŭ miras. Por esti sekura, li tranĉas duan citronon. ŝpruc! ankoraŭ kelkajn gutojn. ĉe la tria citrono la horizontalulino ribelas:
@@ -5092,9 +4487,7 @@ dekstran okulon.
 
 —Neeble,— diras Baniko.
 
-Li vetas. La nekonato demetas sian vitran okulon kaj mor-
-
-das ĝin.
+Li vetas. La nekonato demetas sian vitran okulon kaj mordas ĝin.
 
 —Nun mi vetas ducent stelojn, ke mi povas mordi la alian
 
@@ -5127,12 +4520,7 @@ Kruko riproĉas la nekonaton:
 —Kial vi faris tion?
 
 
-K R U KO K A J B A N I KO
-
-
-La nekonato kviete respondas, rebutonante sian pantalo-
-
-non:
+La nekonato kviete respondas, rebutonante sian pantalonon:
 
 —Mi kompatis. Mi ne volis, ke vi perdu ĉiujn vetojn.
 
@@ -5160,11 +4548,7 @@ surstrate.
 
 —Nu, sinjorino, ĉu la medikamento helpis?
 
-—Ha! sinjoro doktoro, ĉar mia edzo havas malbonan kuti-
-
-mon legi gazeton ĉetable, mi metis al li, nerimarkite, kvar tablojdojn en la supon. Poste li formetis la gazeton kaj rigardis min per frandemaj okuloj. Poste li diris al mi: ”Ne restu do kontraŭ mi. Venu sidiĝi apud mi”. Kaj poste, ha! sinjoro dok-127
-
-K R U KO K A J B A N I KO
+—Ha! sinjoro doktoro, ĉar mia edzo havas malbonan kutimon legi gazeton ĉetable, mi metis al li, nerimarkite, kvar tablojdojn en la supon. Poste li formetis la gazeton kaj rigardis min per frandemaj okuloj. Poste li diris al mi: ”Ne restu do kontraŭ mi. Venu sidiĝi apud mi”. Kaj poste, ha! sinjoro dok-127
 
 
 toro, li renversis min sur la tablon kaj li min… Ho! sinjoro doktoro, mi ruĝiĝas rememorante pri tio.
@@ -5198,9 +4582,7 @@ Elingita glavo
 
 Knabo rigardas aŭtomobiliston, kiu ŝvitante ŝanĝas radon de sia veturilo. Li tedas lin per siaj stultaj rimarkoj:
 
-—Mia paĉjo havas du aŭtojn, kaj ĉe ĉiu li havas du vicra-
-
-dojn. Ha! inteligenta estas mia paĉjo. Por esti sekura, mia pa-
+—Mia paĉjo havas du aŭtojn, kaj ĉe ĉiu li havas du vicradojn. Ha! inteligenta estas mia paĉjo. Por esti sekura, mia pa-
 
 ĉjo havas ankaŭ du krikojn. Kaj mia paĉjo havas du…
 
@@ -5209,9 +4591,6 @@ La tedata aŭtomobilisto, kiu ĵus finis sian riparon kaj urinas en angulo, turn
 —ĉu ankaŭ da tio via paĉjo havas du?
 
 —Jes,— aplombe respondas la knabo.— Unu malgrandan,
-
-
-K R U KO K A J B A N I KO
 
 
 kiel la via, por pisi, kaj unu grandegan, kiam li postkuras la servistinon.
@@ -5248,9 +4627,7 @@ En kolegio instruisto okaze aŭdas lernanton konfidi al kamarado:
 
 La instruisto parolas pri tio kun kolego. Tiu konfesas, ke li mem plurfoje surprizis lernantojn, kiam ili fanfaronis, ke ili kuŝis kun Didi.
 
-La kolegiestro, informite, decidas agi kontraŭ la fiulino, kiu 129
-
-K R U KO K A J B A N I KO
+La kolegiestro, informite, decidas agi kontraŭ la fiulino, kiu
 
 
 delogas la kompatindajn lernantojn. Sed unue li volas koni la amplekson de la malmoralaĵo. Li kunvenigas ĉiujn klasojn kaj malkaŝe petas:
@@ -5281,12 +4658,7 @@ Mi super vi, la kapo ĉe l’ingven’…”
 
 Tiel li vekas ŝian scivolon, ŝian deziron, ŝian voluptemon, kaj post momento ili ekĝuas sur fremda lito la numeron dolĉan.
 
-Subite la Babakotomagelanino abrupte saltas, aŭdante Kru-
-
-kon murmuri:
-
-
-K R U KO K A J B A N I KO
+Subite la Babakotomagelanino abrupte saltas, aŭdante Krukon murmuri:
 
 
 —En tiu loko jam kunvenis miloj da samideanoj.
@@ -5299,9 +4671,7 @@ Kruko ridetas, klarigante al sia ekzotika amikino:
 
 via karna valo.*
 
-* Unua rimarko: Temas pri la inaŭgura parolado de la Kon-
-
-stanta Kongresa Sekretario, kiu esprimis la deziron, ke liaj gravaj vortoj flugu de loko al loko.
+* Unua rimarko: Temas pri la inaŭgura parolado de la Konstanta Kongresa Sekretario, kiu esprimis la deziron, ke liaj gravaj vortoj flugu de loko al loko.
 
 Dua rimarko: Kruko certe legis la verkojn de Raymond
 
@@ -5329,16 +4699,11 @@ Vort’ en ĝusta momento faras pli ol arĝento
 En la urbodomo juna oficisto ekvidas koleginon apogita sur la breton de fenestro. Rigardante eksteren, ŝi prezentas al li belegan enjupitaĵon. Li mallaŭte proksimiĝas kaj ŝerce klakas per mano sur ŝian rondan postaĵon.
 
 
-K R U KO K A J B A N I KO
-
-
 ŝi abrupte turnas sin al li. Katastrofo! Fatala eraro! ŝi estas la edzino de la urbestro.
 
 La oficisto scias, ke li estas tuj eksigota kaj eble kondamno-ta. Li balbutas:
 
-—Sinjorino, se via koro estas same malmola, kiel via po-
-
-staĵo, mi estas perdita.
+—Sinjorino, se via koro estas same malmola, kiel via postaĵo, mi estas perdita.
 
 Flatite, ŝi ridetas kaj pardonas.
 
@@ -5373,12 +4738,7 @@ kontraŭkoncipajn pilolojn.
 
 —Mi tute ne komprenas vin.
 
-—Sinjoro doktoro, de kelkaj semajnoj mi ne plu povas dor-
-
-mi, ĉar mia filino ĉiuvespere eliras el la hejmo.
-
-
-K R U KO K A J B A N I KO
+—Sinjoro doktoro, de kelkaj semajnoj mi ne plu povas dormi, ĉar mia filino ĉiuvespere eliras el la hejmo.
 
 
 La mistero de l’ sango
@@ -5404,9 +4764,7 @@ KURO?
 
 —Por kiu do vi aĉetas ilin?
 
-—Por mi. Mi preparas sportan ekzamenon, kaj mi legis re-
-
-klamon en Heroldo de Bervalo: ”Dank’ al la menstruaj tukoj SEKURO vi povas facile naĝi, rajdi kaj bicikli”.
+—Por mi. Mi preparas sportan ekzamenon, kaj mi legis reklamon en Heroldo de Bervalo: ”Dank’ al la menstruaj tukoj SEKURO vi povas facile naĝi, rajdi kaj bicikli”.
 
 
 Dancu marionetoj
@@ -5422,9 +4780,7 @@ ties ĉambro ĉe radio-muziko, min surprizis ŝia patro.
 —La patro de mia amikino ne sciis, ke ni dancas. Li estas tute surda.
 
 
-Sinjorino Baniko devas ĉeesti festenon. ĉar ŝi terure malvar-mumis, ŝi kunprenas du naztukojn, unu en la mansaketo kaj unu en la korsaĵo. Vespere la unua naztuko estas neuzebla 133
-
-K R U KO K A J B A N I KO
+Sinjorino Baniko devas ĉeesti festenon. ĉar ŝi terure malvar-mumis, ŝi kunprenas du naztukojn, unu en la mansaketo kaj unu en la korsaĵo. Vespere la unua naztuko estas neuzebla
 
 
 pro malsekeco. Sinjorino Baniko ŝovas manon en la korsaĵon, sed ŝi ne trovas la duan naztukon. ŝi sondas dekstre kaj maldekstre. ŝi metas ambaŭ manojn en la dekoltaĵon. ŝi febre palpas sian bruston.
@@ -5448,9 +4804,7 @@ La pentristo kolektas ĉiujn siajn ŝparaĵojn, sed dum la dua pozado li tiom ar
 
 —Volonte, tio kostos kvar mil stelojn.
 
-La pentristo prunteprenas monon de ĉiuj konatoj kaj ami-
-
-koj. Kaj li konfesas al ŝi:
+La pentristo prunteprenas monon de ĉiuj konatoj kaj amikoj. Kaj li konfesas al ŝi:
 
 —is nun mi ne kuraĝis diri al vi, ke mi dezirus pentri vin tute nuda.
 
@@ -5459,9 +4813,6 @@ koj. Kaj li konfesas al ŝi:
 —Ha, karulino, vi vere frenezigis min. Mi deziras vin, mi avidas vian karnon, mi nepre devas vin amori. Diru, kiom mi pagu por ĝui vian korpon.
 
 —Kiel ĉiuj ceteraj — mil stelojn. Tio estas mia tarifo.
-
-
-K R U KO K A J B A N I KO
 
 
 (por kamparanino)
@@ -5482,9 +4833,7 @@ La misvojo
 
 En malliberejo kondamnito devas ŝanĝi la ĉelon. Liaj kunuloj avertas lin:
 
-—Atentu. En via nova ĉelo vi trovos nur danĝerajn pede-
-
-rastojn. Ili verŝajne perfortos vin.
+—Atentu. En via nova ĉelo vi trovos nur danĝerajn pederastojn. Ili verŝajne perfortos vin.
 
 —Ne timu, kamaradoj. Nur rigardu tion.
 
@@ -5498,9 +4847,6 @@ Amu edzinon plej kore, sed tenu ŝin bonmore
 Baniko: — Mia edzino estas aĉa skoldemulino. La kunvivado kun ŝi estas infera. Mi ŝatus scii, kial via edzino estas tiel bo-na, tiel afabla, tiel komplezema.
 
 Kruko: — Facile. Mi regule batas ŝin unu fojon ĉiusemajne.
-
-
-K R U KO K A J B A N I KO
 
 
 Baniko: — Kial?
@@ -5531,16 +4877,11 @@ Sinjorino Baniko: — Kaj kiel okazas koncerne la geedzan
 
 devon?
 
-Sinjorino Kruko: — Kiam mia edzo deziras min, li mallaŭ-
-
-te fajfas. Kaj mi tuj iras en lian liton.
+Sinjorino Kruko: — Kiam mia edzo deziras min, li mallaŭte fajfas. Kaj mi tuj iras en lian liton.
 
 Sinjorino Baniko: — Sed kiel vi povas konigi vian edzon pri via propra amoremo?
 
 Sinjorino Kruko: — Estas facile. Mi tiam demandas lin: ”Karulo, ĉu vi ne ĵus fajfis?”
-
-
-K R U KO K A J B A N I KO
 
 
 Nuksoj venis, kiam dentoj elfalis
@@ -5579,9 +4920,6 @@ Revenante vespere de vojaĝo, Baniko vidas fremdajn virajn vestaĵojn en sia dor
 —Pasintmonate en la ŝranko.
 
 
-K R U KO K A J B A N I KO
-
-
 Kruko proponas maldecajn agojn al junulino. ŝi rifuzas:
 
 —Neniam antaŭ la edziniĝo.
@@ -5609,9 +4947,7 @@ La dekjara Joĉjo kompateme ridetas pri tia nescio kaj moke respondas:
 
 —Jen en rozoj, jen en brasikoj.
 
-Post unu horo oni aŭdas el la apuda dormoĉambro de la ge-
-
-patroj ritman litoknaradon.
+Post unu horo oni aŭdas el la apuda dormoĉambro de la gepatroj ritman litoknaradon.
 
 —Kion do ili faras?— demandas la plej juna.
 
@@ -5627,9 +4963,6 @@ Modelan farmobienon vizitas ges-oj Kruko. En angulo de sta-lo atendas fortika vi
 —Tie estas la geiĝejo.
 
 Sinjorino Kruko montras egan intereson.
-
-
-K R U KO K A J B A N I KO
 
 
 —Kiom da sekskuniĝoj plenumas tiu bovo?
@@ -5661,9 +4994,7 @@ Sinjorino Baniko malvestas sin kaj iras en la banĉambron.
 
 —Karulo, kial vi verŝis tiel malmulte da akvo en la banku-von?
 
-—Karulino, mi ne volas, ke vi difektu vian tombolan bile-
-
-ton, malsekigante ĝin.
+—Karulino, mi ne volas, ke vi difektu vian tombolan bileton, malsekigante ĝin.
 
 
 Universala skribo
@@ -5673,9 +5004,6 @@ En arkeologia instituto profesoro diktas malnovegiptan tek-ston. La studentoj, k
 Kiam la profesoro diktas ”La reĝino donis al la faraono
 
 grandan plezuron”, studento klinas sin al najbaro kaj demandas:
-
-
-K R U KO K A J B A N I KO
 
 
 —Kiel vi skribis ”grandan plezuron”?
@@ -5721,9 +5049,6 @@ Du amikinoj babilas:
 —Tute simple. Mi ne baraktis.
 
 
-K R U KO K A J B A N I KO
-
-
 Montru moneron, ĉio fariĝos
 
 Diboĉema maljunulo sidas apud infanludejo kaj rigardas per lascivaj okuloj ŝnursaltantajn knabinojn. Al tiu, kiu saltas plej alten, li donas plurfoje bombonojn. Tiam proksimiĝas knabino, kiu senhonte deklaras:
@@ -5737,9 +5062,7 @@ Salivumante pro voluptemo, la maljunulo tuj donas al ŝi la 20 stelojn. ŝi tira
 
 Estro ne malsatas
 
-Riĉulo invitis junan laboristinon de sia fabriko al vesperman-
-
-ĝo en luksa restoracio. Jam de longe li amindumas la belulinon, kaj li esperas, ke nun venis la ŝanco konkeri ŝin.
+Riĉulo invitis junan laboristinon de sia fabriko al vespermanĝo en luksa restoracio. Jam de longe li amindumas la belulinon, kaj li esperas, ke nun venis la ŝanco konkeri ŝin.
 
 ĉetable la malriĉa laboristino mendas ĉiujn plej multekostajn manĝaĵojn: kaviaron, palinuron, alaŭdan hepataĵon, ĉampanon…
 
@@ -5750,16 +5073,11 @@ Kun iom malmodesta tono la riĉulo diras al ŝi:
 —Jes, sed en mia familio neniu volas kuŝi kun mi.
 
 
-En Heroldo de Bervalo aperis anonceto: ”Luebla al fraŭlo luksa apartamento kun marmora banĉambro, televidilo, telefo-
-
-no, k.t.p.”
+En Heroldo de Bervalo aperis anonceto: ”Luebla al fraŭlo luksa apartamento kun marmora banĉambro, televidilo, telefono, k.t.p.”
 
 Malgraŭ la tre alta prezo iu sinjoro sonorigas ĉe la indikita adreso. La pordon malfermas bela virino tute nuda. La
 
 fraŭlo, mirante, demandas:
-
-
-K R U KO K A J B A N I KO
 
 
 —Kiu vi estas?
@@ -5781,9 +5099,7 @@ Funebra parolado
 
 Vidvo ploregas dum enterigo de sia edzino. La larmoj fluas neelĉerpeble. Liajn amikojn emociegas tia ĉagreno. Ili provas konsoli lin:
 
-—Tio estas terura, kompreneble. Sed estu kuraĝa. Pripen-
-
-su, ke post jaro aŭ du vi eble renkontos alian virinon.
+—Tio estas terura, kompreneble. Sed estu kuraĝa. Pripensu, ke post jaro aŭ du vi eble renkontos alian virinon.
 
 —Jes, post jaro aŭ du! Sed kion mi faru hodiaŭ vespere?
 
@@ -5791,9 +5107,6 @@ su, ke post jaro aŭ du vi eble renkontos alian virinon.
 Virino konatiĝis kun eta ĉino. Li invitas ŝin en sian loĝejon, promesante eksterordinarajn ĝuojn. La ĝuema virino vespere vizitas la etan ĉinon, kaj efektive li montras sin en la lito vera eksperto. Post iom da tempo li diras: ”Atendu momenton” kaj malaperas sur la liton. Kiam li revenas, li denove superŝutas ŝin per nekredeblaj amorfantazioj. Poste li diras:
 
 ”Atendu momenton” kaj malaperas sub la liton. Kiam li revenas, la virino miras, ke li estas kapabla doni al ŝi ankoraŭ tiom da karnaj plezuroj. ŝi deziras scii, kiun rimedon li uzas, kaj, kiam li diras: ”Atendu momenton”, ŝi rigardas sub la liton kaj malkovras tie … sep etajn ĉinojn.
-
-
-K R U KO K A J B A N I KO
 
 
 Kvarpieda kamarado
@@ -5836,9 +5149,6 @@ La tempo ĉiam malkaŝas la veron
 —Pardonu, amiko. Mi ne pensis, ke tio havos sekvojn.
 
 
-K R U KO K A J B A N I KO
-
-
 —Mi pardonas tiom pli, ke la vidvino mortis kaj postlasis al mi sian tutan heredaĵon.
 
 
@@ -5853,9 +5163,7 @@ Sinjorino Kruko rimarkas, ke la servistino metas ĉiutage mamzonon en la lesivot
 
 Vivu longe kaj en sano ĉiu akademiano
 
-Maljuna akademiano profitas internacian kongreson por vi-
-
-ziti junan kongresaninon en ties hotelĉambro. Bedaŭrinde lia aĝo malhelpas lin atingi la necesan potencon, por kontentigi ŝin.
+Maljuna akademiano profitas internacian kongreson por viziti junan kongresaninon en ties hotelĉambro. Bedaŭrinde lia aĝo malhelpas lin atingi la necesan potencon, por kontentigi ŝin.
 
 Malpacience ŝi murmuras:
 
@@ -5870,12 +5178,7 @@ Per ĉagrena voĉo la akademiano demandas:
 
 ŝlosilo uzata ruston ne konas
 
-En la jaro 1292 okazis la naŭa kruca militiro. Antaŭ ol forla-144
-
-K R U KO K A J B A N I KO
-
-
-si sian bervalan kastelon, la grafo Baniko la IIIa venigis sian vasalon Kruko kaj diris al li:
+En la jaro 1292 okazis la naŭa kruca militiro. Antaŭ ol forlasi sian bervalan kastelon, la grafo Baniko la IIIa venigis sian vasalon Kruko kaj diris al li:
 
 —Kara barono Kruko, mi fidas al vi. Jen la ŝlosilo de la ĉas-tozono, kiu devigos mian edzinon resti fidela ĝis mia reveno.
 
@@ -5893,9 +5196,7 @@ Virbovo, trovinte ganton sur herbejo, galante demandas belan bovinon:
 —Fraŭlino, ĉu vi perdis vian mamzonon?
 
 
-Maljuna fraŭlino adoptis miksrasan hundon nomitan Vilpu-
-
-gulo. ĉar ŝi estas tre pia, ŝi kutimiĝis konduki la hundon ĉiudimanĉe en la preĝejon. Tio kompreneble ne plaĉas al la
+Maljuna fraŭlino adoptis miksrasan hundon nomitan Vilpugulo. ĉar ŝi estas tre pia, ŝi kutimiĝis konduki la hundon ĉiudimanĉe en la preĝejon. Tio kompreneble ne plaĉas al la
 
 aliaj paroąnoj, kaj delegacio da bigotinoj intervenas ĉe la pastro.
 
@@ -5909,9 +5210,7 @@ la hundon hejme. La maljuna fraŭlino malvolonte akceptas.
 
 Sekvadimanĉe ĉio estas en ordo, kaj neniu hundo ĝenas la
 
-Diservon. La piularo aŭskultas kortuŝan predikon. Ve! Vilpugulo sukcesis forkuri el la domo, kaj meze de la prediko ĝi 145
-
-K R U KO K A J B A N I KO
+Diservon. La piularo aŭskultas kortuŝan predikon. Ve! Vilpugulo sukcesis forkuri el la domo, kaj meze de la prediko ĝi
 
 
 puŝas la pordon de la preĝejo. Per emocia voĉo la pastro ĝuste prilaboras la animojn de sia zorgataro:
@@ -5946,9 +5245,6 @@ Antaŭ la rekrutekzameno soldatiĝontoj staras nudaj. Subite militista kuracisto
 unue elirigi la junan blondan leŭtenanton.
 
 
-K R U KO K A J B A N I KO
-
-
 Li estas tiel dika, ke li ne povas trairi
 
 tra nia mallarĝa pordo
@@ -5969,17 +5265,13 @@ Kruko ricevas de Baniko komercleteron, en kiu li trovas tridek sep tajperarojn. 
 
 Esprimo de sentoj
 
-Kruko estas invitita al vespermanĝo ĉe la grafino Mamboli-no. ĉeestas ankaŭ dekduo da gemondumanoj. Dum oni sur-
-
-tabligas la deserton, la grafino turnas sin al Kruko, petante:
+Kruko estas invitita al vespermanĝo ĉe la grafino Mamboli-no. ĉeestas ankaŭ dekduo da gemondumanoj. Dum oni surtabligas la deserton, la grafino turnas sin al Kruko, petante:
 
 —Sinjoro Kruko, rakontu do al ni iun el viaj aventuroj, kiam vi vojaĝis en Hindujo.
 
 Tusetante, por klarigi la voĉon, Kruko komencas:
 
-—Iam mi paŝis laŭ mallarĝa vojeto en ĝangalo, kiam mi su-
-
-bite renkontis grandan tigron. Senhezite mi alŝultrigis mian karabenon, sed bedaŭrinde ĝi malfunkciis.
+—Iam mi paŝis laŭ mallarĝa vojeto en ĝangalo, kiam mi subite renkontis grandan tigron. Senhezite mi alŝultrigis mian karabenon, sed bedaŭrinde ĝi malfunkciis.
 
 —Ho, kaj poste?
 
@@ -5991,12 +5283,7 @@ tute proksime, mi eligis teruran krion: ˘˛˛ąaa!
 
 —Ve, mi fekaĉis en mian pantalonon.
 
-La ĉeestantaron konsternas tia triviala esprimmaniero, ne-147
-
-K R U KO K A J B A N I KO
-
-
-kutima en la mondumo. La sinjorinoj krietas: ŝoke! La sinjoroj maĉas siajn lipharojn. La grafino provas ripari la bedaŭ-
+La ĉeestantaron konsternas tia triviala esprimmaniero, nekutima en la mondumo. La sinjorinoj krietas: ŝoke! La sinjoroj maĉas siajn lipharojn. La grafino provas ripari la bedaŭ-
 
 rindan incidenton:
 
@@ -6030,9 +5317,6 @@ Li informiĝas, kaj la pedelo diras al li:
 dum vi parolas, ofte eliras muso, kaj kaprioletas antaŭ viaj piedoj.
 
 La sekvantan dimanĉon dum la prediko maljuna, surda
-
-
-K R U KO K A J B A N I KO
 
 
 fraŭlino eligas furzon, kiu ridigas ŝiajn najbarojn. La pastro, miskomprenante tiun gajon, interrompas sian paroladon:
@@ -6073,9 +5357,6 @@ La leterportisto kliniĝas al la pordofendo, enrigardas kaj flustras:
 —Mi ne sciis, ke paĉjo amoras cikoniojn.
 
 
-K R U KO K A J B A N I KO
-
-
 Saĝo abunda, sed ne profunda
 
 En la bervala zoologia ĝardeno aro da maljunaj fraŭlinoj pro-teste klukas kontraŭ la sinteno de simio, al kiu ili ĵus donacis saketon da prunoj. La besto malfermas ĉiun prunon, eltiras la kerneton, ŝovas ĝin en sian postaĵon, poste remetas la kerneton en la frukton kaj fine manĝas la tuton.
@@ -6103,9 +5384,7 @@ Sinjorino Baniko rakontas al sinjorino Kruko:
 
 —Imagu, kion mi spertis hieraŭ posttagmeze. ĉe nia pordo
 
-sonorigis nekonato. Post kiam mi enlasis lin en la loĝejon, li 150
-
-K R U KO K A J B A N I KO
+sonorigis nekonato. Post kiam mi enlasis lin en la loĝejon, li
 
 
 puŝis min en la dormoĉambron, kaj, ne respondante al miaj demandoj, li malvestis sin, kaj sen unu vorto li perfortis min sur la lito. Poste li malaperis. Plu senvorte.
@@ -6115,9 +5394,7 @@ puŝis min en la dormoĉambron, kaj, ne respondante al miaj demandoj, li malvest
 
 Per voĉo plena
 
-En apudaj ĉeloj de necesejo Kruko kaj Baniko, iom ebriaj, provas liberigi sin de obstina konstipeco. Ili reciproke kura-
-
-ĝigas unu alian per ĝemoj kaj gruntoj:
+En apudaj ĉeloj de necesejo Kruko kaj Baniko, iom ebriaj, provas liberigi sin de obstina konstipeco. Ili reciproke kuraĝigas unu alian per ĝemoj kaj gruntoj:
 
 —˘˛ą!
 
@@ -6151,14 +5428,9 @@ estos amorpreta.
 —Karulino, nun mi venas!
 
 
-K R U KO K A J B A N I KO
-
-
 Ve! Kvankam li plej rapide galopas, li ne sukcesas eniri la dormoĉambron kun sia tuta potenco.
 
-Kun kunpremitaj dentoj Baniko reatendas la miraklon an-
-
-taŭ la kameno. Samtempe li ŝovas fajrostangon en la flamon.
+Kun kunpremitaj dentoj Baniko reatendas la miraklon antaŭ la kameno. Samtempe li ŝovas fajrostangon en la flamon.
 
 Kiam li estas denove preta, li malrapide supreniras la ŝtuparon, kaj, tenante la fajroruĝan metalan stangon sub la kaprica karna stango, li minace murmuras:
 
@@ -6190,9 +5462,7 @@ instruista moŝto viajn globojn.
 
 Dio scias bone pri niaj bezonoj
 
-En usona hotelo vojaĝanto trovas sur la noktotablo de sia ĉambro biblion. Super la lito pendas granda surskribo: ”Se vi 152
-
-K R U KO K A J B A N I KO
+En usona hotelo vojaĝanto trovas sur la noktotablo de sia ĉambro biblion. Super la lito pendas granda surskribo: ”Se vi
 
 
 estas deprimita, legu la psalmon 86: Klinu, ho Eternulo, Vian orelon”. La vojaĝanto legas la psalmon ĝis la lasta verso: ”ĉar vi, ho Eternulo, min helpos kaj konsolos”.
@@ -6227,9 +5497,6 @@ Enketisto demandas sinjorinon:
 —Kiom da infanoj vi havas?
 
 —Ses.
-
-
-K R U KO K A J B A N I KO
 
 
 —Kiom ili aĝas?
@@ -6273,25 +5540,18 @@ En kupeon eniras viro kun ok infanetoj. Iu rimarkigas:
 —Vi havas grandan familion.
 
 
-K R U KO K A J B A N I KO
-
-
 —Ili ne estas miaj idoj.
 
 —Vi verŝajne estas edukisto.
 
-—Ne, mi vendas kondomojn pogrande, kaj nun mi repor-
-
-tas plendojn de kelkaj klientoj al mia fabriko.
+—Ne, mi vendas kondomojn pogrande, kaj nun mi reportas plendojn de kelkaj klientoj al mia fabriko.
 
 
 La filino de policano rakontas al sia patro:
 
 —Hieraŭ vespere mi flirtis kun junulo, kiu poste ne volis diri al mi sian nomon. Feliĉe mi notis liajn fingrospurojn.
 
-—Mi ne komprenas. De kelka tempo tute ne vendiĝas la ver-
-
-koj de Zamenhof.
+—Mi ne komprenas. De kelka tempo tute ne vendiĝas la verkoj de Zamenhof.
 
 
 Kiu volas mensogi, devas bone memori
@@ -6322,9 +5582,7 @@ En sia korto ĉiu kok’ estas forta
 
 Kamparano aĉetis novan kokon, por anstataŭi la maljunan
 
-birdokortestron. La maljuna koko petas sian junan kolegon: 155
-
-K R U KO K A J B A N I KO
+birdokortestron. La maljuna koko petas sian junan kolegon:
 
 
 —Amiko, lasu al mi almenaŭ unu aŭ du kokinojn.
@@ -6337,9 +5595,7 @@ estro de ĉiuj kokinoj. Vi povas malaperi en la kuirpoton.
 
 pomujon ĉe la fino de herbejo? Tiu, kiu atingos ĝin unua, estos la reĝo de la birdokorto. Sed pro mia granda aĝo bonvolu lasi min starti tri sekundojn antaŭ vi.
 
-Kun malhumila rikano la juna koko akceptas, kaj ili ekku-
-
-ras unu post la alia. Subite pafo trafas la junan kokon, kiu falas senviva.
+Kun malhumila rikano la juna koko akceptas, kaj ili ekkuras unu post la alia. Subite pafo trafas la junan kokon, kiu falas senviva.
 
 Kun fumanta fusilo enmane, la kamparano murmuras:
 
@@ -6363,9 +5619,6 @@ kun ploro.
 Fermante siajn pantalonfendojn, du junaj paŝtistoj rigardas per revaj okuloj du beletajn kaprinojn, kiuj revenas al la grego. Unu murmuras al sia kunulo:
 
 
-K R U KO K A J B A N I KO
-
-
 —ĉu vi jam aŭdis, ke iuj naŭzaj urbanoj faras ĝin kun virinoj?
 
 
@@ -6377,9 +5630,7 @@ Kruko estas ebria. Dum li revenas hejmen, putino provas delogi lin:
 
 —Ne, tio estas tro multekosta.
 
-Iom pli malproksime negrino proponas siajn malkarajn ser-
-
-vojn:
+Iom pli malproksime negrino proponas siajn malkarajn servojn:
 
 —Venu en mian ĉambron. Tio kostos al vi 500 stelojn.
 
@@ -6398,27 +5649,18 @@ Dum operacio la grafino Mambolino, narkotite, plurfoje murmuras: ”Emilo, Emilo
 
 En la sekva tago la kirurgo vizitas la operaciitan nobelinon en ŝia klinika ĉambro.
 
-—Nun, sinjorino grafino, dank’ al mia arto vi havas deno-
-
-ve knabinajn mamojn. Postmorgaŭ vi povos reveni hejmen.
+—Nun, sinjorino grafino, dank’ al mia arto vi havas denove knabinajn mamojn. Postmorgaŭ vi povos reveni hejmen.
 
 Salutu sinjoron Emilo de mi.
 
-—Ho! sinjoro doktoro, de kiam vi konas mian novan ŝofo-
-
-ron?
-
-
-K R U KO K A J B A N I KO
+—Ho! sinjoro doktoro, de kiam vi konas mian novan ŝoforon?
 
 
 Kiam mi ien veturas, mi neniam prenas
 
 kun mi multon da pakaĵo
 
-Baniko profitis restadon en Parizo por aĉeti modan kostu-
-
-mon. Revenante al Bervalo, li decidas ŝanĝi la veston en la vagonaro, por fari surprizon al sia edzino. Li iras al la necesejo, malvestas sin, post mallonga hezito ĵetas la malnovan kostumon tra la fenestro kaj malfermas la kartonan ujon de la pariza konfekciejo.
+Baniko profitis restadon en Parizo por aĉeti modan kostumon. Revenante al Bervalo, li decidas ŝanĝi la veston en la vagonaro, por fari surprizon al sia edzino. Li iras al la necesejo, malvestas sin, post mallonga hezito ĵetas la malnovan kostumon tra la fenestro kaj malfermas la kartonan ujon de la pariza konfekciejo.
 
 Ve! erare la vendisto enpakis bebovestaron.
 
@@ -6448,9 +5690,6 @@ Bela juna virino vizitas Banikon.
 —Sinjoro, vi ne konas min, sed mi scias, ke via edzino estas la amatino de mia edzo. Mi decidis, ke ni ambaŭ venĝu nin.
 
 Tiel estas farite.
-
-
-K R U KO K A J B A N I KO
 
 
 —Ni ankoraŭ foje venĝu nin.
@@ -6491,9 +5730,6 @@ Por unu — festeno, por alia — ĉagreno
 Kruko erare elektis la telefonnumeron de la paroęstro. Pensante, ke li telefonas al malĉastejo, li demandas:
 
 
-K R U KO K A J B A N I KO
-
-
 —Tie ĉi parolas Kruko. ĉu Marina estas nun libera?
 
 Li ege miras, kiam aŭdas jenan respondon:
@@ -6502,9 +5738,7 @@ Li ege miras, kiam aŭdas jenan respondon:
 
 —Ho, sinjoro paroęstro, kion do vi faras en bordelo?
 
-Maljuna avarulino renkontas kuraciston en monduma kun-
-
-veno. Por ŝpari la prezon de konsulto, ŝi tedas lin en la plenplena salono per detala priskribo de siaj doloroj.
+Maljuna avarulino renkontas kuraciston en monduma kunveno. Por ŝpari la prezon de konsulto, ŝi tedas lin en la plenplena salono per detala priskribo de siaj doloroj.
 
 —Kion vi povus preskribi al mi, sinjoro doktoro?
 
@@ -6536,9 +5770,6 @@ Sed la naturo, kiel kutime, aranĝas la aferon, kaj al la ĵus malvirgigita knab
 Ne tiel, sed tiel ĉi!
 
 Sinjorino Kruko riproĉas sinjorinon Baniko:
-
-
-K R U KO K A J B A N I KO
 
 
 —Vi havas ĉarman edzon. Kial vi trompas lin tiel?
@@ -6573,14 +5804,9 @@ Post la edziĝonokto juna viro alportas kafon al sia novedzino en la liton. ŝi 
 
 Al flirtema diskovendisto la edzino riproĉas, ke laŭdire li denove delogis junulinon. Li provas senkulpigi sin:
 
-—Vi ja scias, karulino, ke oni devas de tempo al tempo ŝan-
-
-ĝi la diskon.
+—Vi ja scias, karulino, ke oni devas de tempo al tempo ŝanĝi la diskon.
 
 —Bone, ekde morgaŭ mi ŝanĝos la nadlon.
-
-
-K R U KO K A J B A N I KO
 
 
 Mono odoron ne havas, sian devenon ne diras
@@ -6623,12 +5849,7 @@ Nur pano kun fromaĝo, sed agrabla vizaĝo
 
 Restoraciestro ordonas al la kelnerinoj:
 
-—Fraŭlinoj, precipe hodiaŭ zorgu vian ŝmn, vian de-
-
-koltaĵon, vian afablecon ĝenerale.
-
-
-K R U KO K A J B A N I KO
+—Fraŭlinoj, precipe hodiaŭ zorgu vian ŝmn, vian dekoltaĵon, vian afablecon ĝenerale.
 
 
 —ĉu ni ricevos famajn gastojn?
@@ -6667,9 +5888,6 @@ mastojn al la
 ĉefurbo.
 
 
-K R U KO K A J B A N I KO
-
-
 Farita via faro, nun adiaŭ, mia kara!
 
 Junulo proponas al nova amikino:
@@ -6693,9 +5911,7 @@ Junaj kaj maljunaj kuniklinoj estas pretaj helpi la lernanton.
 
 Ili vicigas sin, kaj baldaŭ oni aŭdas:
 
-—Bonan tagon, sinjorino — Dankon, sinjorino — Bonan ta-
-
-gon, sinjorino — Dankon, sinjorino — Bonan tagon, sinjori-no — Dankon, sinjorino — Bonan tagon, sinjorino… Ho! par-
+—Bonan tagon, sinjorino — Dankon, sinjorino — Bonan tagon, sinjorino — Dankon, sinjorino — Bonan tagon, sinjori-no — Dankon, sinjorino — Bonan tagon, sinjorino… Ho! par-
 
 donu, paĉjo!
 
@@ -6707,9 +5923,6 @@ Ne sciante, kiel klarigi tiun akiraĵon al sia edzo, ŝi portas ĝin al lombardi
 —Karulo, mi trovis sur trotuaro lombardan bileton. ĉu vi ne povus morgaŭ iri al la lombardisto, por ricevi la mantelon menciitan sur la bileto?
 
 La sekvan tagon ŝi ege miras, kiam Baniko alportas al ŝi
-
-
-K R U KO K A J B A N I KO
 
 
 malnovan kuniklopeltaĵon. Sed kion ŝi diru? ŝi ne povas perfi-di sian artifikon.
@@ -6730,9 +5943,7 @@ Sendanĝereco de Francujo
 
 Pariza junulino konatiĝas kun junulo. ŝi invitas lin:
 
-—Vizitu min hodiaŭ vespere. Kiel ĉiun sabaton miaj gepa-
-
-troj iros en kinejon, kaj dume ni estos trankvilaj.
+—Vizitu min hodiaŭ vespere. Kiel ĉiun sabaton miaj gepatroj iros en kinejon, kaj dume ni estos trankvilaj.
 
 Li junulo iras en apotekon, kie li aĉetas kondomojn, kaj vespere li sonorigas ĉe la pordo de sia nova amikino. ŝia patro bonvenigas lin kaj diras:
 
@@ -6748,9 +5959,6 @@ Kial?*
 Juĝisto: — Vi asertas, ke vi estis perfortita de tiu ulo. Kiam?
 
 Atestantino: — Pasintsomere en julio, aŭgusto kaj tri fojojn en septembro.
-
-
-K R U KO K A J B A N I KO
 
 
 Bezono estas plej forta ordono
@@ -6793,9 +6001,6 @@ Vespere policano revenas hejmen pli frue ol kutime. Lia edzino krias el la geedz
 —Karulo, ne ŝaltu la lumon: mi havas kapdolorojn.
 
 
-K R U KO K A J B A N I KO
-
-
 La policano senvestiĝas, dum ŝi cerbumas, kiel eskapigi la amoranton kaŝitan en la lito. Kiam la edzo proksimiĝas, ŝi
 
 ĝemas:
@@ -6822,17 +6027,12 @@ La oficistarestro de aŭta fabriko devas dungi novan sekretariinon. Iam prezenti
 
 La belulino respondas per frandema buŝo:
 
-—Tute ne, bela knabego. Tamen dungu min. Tion vi ne be-
-
-daŭros. Tuj post kiam mi estos la edzino de la direktoro, mi zorgos pri la pliigo de via salajro.
+—Tute ne, bela knabego. Tamen dungu min. Tion vi ne bedaŭros. Tuj post kiam mi estos la edzino de la direktoro, mi zorgos pri la pliigo de via salajro.
 
 
 Mistero de doloro
 
 Juna fianĉo iras al kuracisto, ĉar de pluraj tagoj li sentas ma-lagrablan jukon ĉe sia vira organo. La kuracisto trankviligas lin:
-
-
-K R U KO K A J B A N I KO
 
 
 —Tio ne estas grava. Vi nur banu ĉiutage la doloran parton en varmeta lakto.
@@ -6865,9 +6065,6 @@ En duona dormo Kruko grumblas:
 —Estas stulte tial veki min. Jam de du semajnoj mi ĉesigis ĉiujn amrilatojn kun Aloda.
 
 
-K R U KO K A J B A N I KO
-
-
 Mi en li
 
 En pederastia rondo (aŭ medio, se vi preferas) iu deklaras:
@@ -6885,9 +6082,7 @@ Sinjorino Baniko estas en speciale voluptema periodo. Senĉe-se ŝi kokete logas
 
 Sed li ne sentas sin kapabla kontentigi ŝin. ŝi protestas. Li koleras. Ekestas disputo. Li krias:
 
-—Post via morto mi skribigos sur via tombo: ”Finfine mal-
-
-varma!”
+—Post via morto mi skribigos sur via tombo: ”Finfine malvarma!”
 
 —Kaj post la via mi gravurigos: ”Fine rigida!”
 
@@ -6896,9 +6091,7 @@ varma!”
 
 Mezuri laŭ sia metro
 
-Kruko kaj Baniko promenas en la kamparo. Sur izola herbe-
-
-jo ili vidas sidantan knabinon, kiu trikas, paŝtante virbovon.
+Kruko kaj Baniko promenas en la kamparo. Sur izola herbejo ili vidas sidantan knabinon, kiu trikas, paŝtante virbovon.
 
 Baniko demandas ŝin:
 
@@ -6911,9 +6104,6 @@ La paŝtistino, kiu sidas apud la bovo, kaptas ties dikajn testikojn, levas ilin
 Kruko kaj Baniko interŝanĝas mirajn rigardojn kaj paŝas
 
 plu. ĉar ili ĝis nun neniam aŭdis pri tia horloĝa scienco, ili revenas post kvaronhoro al la knabino. ĉu vi povus nun diri al ni, kioma horo estas?
-
-
-K R U KO K A J B A N I KO
 
 
 La paŝtistino flankenmetas la trikaĵon, kaptas la testikojn de la bovo kaj, mane pesante ilin, deklaras:
@@ -6952,16 +6142,11 @@ MEMSERVO
 100 stelojn
 
 
-K R U KO K A J B A N I KO
-
-
 Aglutina karaktero
 
 Tre moderna paro interŝanĝas impresojn post freneza nokto pasigita en senbridaj ludoj kun diboĉaj amikoj.
 
-—Karulino, ĉu vin mi amoris sur la sofo en la malluma sa-
-
-lono?
+—Karulino, ĉu vin mi amoris sur la sofo en la malluma salono?
 
 —Je kioma horo, karulo?
 
@@ -6988,14 +6173,9 @@ Baniko revenas hejmen pli frue ol kutime. Lia fileto krias al li:
 
 —Paĉjo, paĉjo, ogro ĵus kaŝis sin en la vestoŝranko.
 
-Efektive Baniko malkovras en la ŝranko sian amikon Kru-
-
-ko vestita per nura litotuko. Li riproĉas lin:
+Efektive Baniko malkovras en la ŝranko sian amikon Kruko vestita per nura litotuko. Li riproĉas lin:
 
 —Kruko, ĉu vi ne hontas? Kial vi tiom timigis la knabeton?
-
-
-K R U KO K A J B A N I KO
 
 
 Somere du amikinoj babilas sur la plaĝo de Bervalo. Unu
@@ -7009,13 +6189,9 @@ asertas:
 
 Amikeco trans litoj
 
-—Kial mi aĉetu aŭton? Mi havas tiom da amikoj, kiuj pose-
+—Kial mi aĉetu aŭton? Mi havas tiom da amikoj, kiuj posedas aŭton. Tiel mi povas veturi senkoste.
 
-das aŭton. Tiel mi povas veturi senkoste.
-
-—Vi pravas. Same mi restas fraŭlo. Mi havas tiom da ami-
-
-koj, kiuj havas edzinon.
+—Vi pravas. Same mi restas fraŭlo. Mi havas tiom da amikoj, kiuj havas edzinon.
 
 
 Ne zorgu pri tio, kio estas ekster via scio
@@ -7043,9 +6219,6 @@ Trio plaĉas al Dio
 El du malbonoj pli malgrandan elektu
 
 Preĝo de pia viro:
-
-
-K R U KO K A J B A N I KO
 
 
 —Sankta Josefo, faru, ke mi neniam edziĝu. Se mi edziĝos, ke mi ne estu kokrita. Se mi estos kokrita, ke mi ne sciu pri tio. Se mi ekscios pri tio, ke tio estu al mi tutegala.
@@ -7086,9 +6259,6 @@ Malafrodizio
 Angla edzo: — ĉu mi dolorigis vin?
 
 
-K R U KO K A J B A N I KO
-
-
 Lia edzino: — Tute ne. Kial vi demandas?
 
 La edzo: — Tial ke vi iom moviĝetis.
@@ -7125,9 +6295,6 @@ La kolonelo mallevas sian pantalonon, montras sian glatan postaĵon kaj ricevas 
 Amikino rakontis al kuracistedzino, ke ŝi vidis ŝian edzon kun prostituitino. Demandita, la doktoro respondas:
 
 
-K R U KO K A J B A N I KO
-
-
 —Temis pri profesiaj rilatoj.
 
 —ĉu la rilatoj koncernis vian aŭ ŝian profesion?
@@ -7162,9 +6329,6 @@ Misiisto venis unuafoje al izola vilaĝo, en kiu li volas konigi la veran Dion k
 konvertotoj, kiuj kunvenis sur la placo de la vilaĝo. Post ĉiu frazo la indiĝenoj krias laŭte: vukra! vukra!
 
 La misiisto estas tre kontenta, opiniante, ke la aŭskultantaro forte aprobas liajn parolojn, ĝis la interpretisto invitas lin post la prediko viziti la nekredeble malpuran vilaĝon, en kiu libere vagas nigraj porkoj. Tiam, en aparte kota angulo, la interpretisto avertas:
-
-
-K R U KO K A J B A N I KO
 
 
 —Atentu vi ne paŝi en vukra!
@@ -7207,9 +6371,6 @@ Pasante antaŭ la giĉeto de la pordistino, ŝi diras:
 Kruko murmuras kompateme:
 
 
-K R U KO K A J B A N I KO
-
-
 —Ne mirinde, se doloras vin la piĉo, fraŭlino. En tia metio…
 
 Sed tio almenaŭ pruvas, ke la aferoj iras bone.
@@ -7223,9 +6384,7 @@ Viro seksardas. Lia amikino klarigas, ke ŝiaj monataĵoj ne ebligas al ŝi kvie
 
 Tiam li blekas:
 
-—Se vi diros al mi, ke vi ankaŭ havas dentodoloron, mi dra-
-
-ŝos al vi la dorson!
+—Se vi diros al mi, ke vi ankaŭ havas dentodoloron, mi draŝos al vi la dorson!
 
 
 Peko malnova perdas pekecon
@@ -7250,9 +6409,6 @@ Baniko, kiu ŝatas naĝi nuda, trovis por tiu plezuro tute sen-homan parton de l
 —ĉu vi scias, sinjorino, ke vi sidas ĝuste apud miaj vestaĵoj?
 
 
-K R U KO K A J B A N I KO
-
-
 —ĉu vi scias, sinjoro, ke en via kaserolo ne estas fundo?
 
 
@@ -7269,9 +6425,7 @@ Atesto de matureco
 
 Knabineto eniras en sukeraĵejon.
 
-—Mi deziras ĉokoladan bebon, kiun vi havas en via mont-
-
-rofenestro.
+—Mi deziras ĉokoladan bebon, kiun vi havas en via montrofenestro.
 
 —Bone, etulino. Jen ĉokolada bebo.
 
@@ -7302,12 +6456,7 @@ Fremdulo diras al Kruko:
 —Jes, certe. Kiel vi rimarkis tion?
 
 
-K R U KO K A J B A N I KO
-
-
-—Hieraŭ vespere mi renkontis belan junulinon. Bedaŭrin-
-
-de ŝi ne parolis Esperanton. Mi desegnis glason sur peco da papero, kaj ŝi tuj komprenis, ke mi invitas ŝin al drinkejo.
+—Hieraŭ vespere mi renkontis belan junulinon. Bedaŭrinde ŝi ne parolis Esperanton. Mi desegnis glason sur peco da papero, kaj ŝi tuj komprenis, ke mi invitas ŝin al drinkejo.
 
 —Tio estas ja signo de ega inteligenteco.
 
@@ -7326,9 +6475,7 @@ Al paciento, trafita de akuta venerea malsano, kuracisto klarigas:
 
 —Bedaŭrinde mi devas fortranĉi vian viran organon.
 
-—Neeble, sinjoro doktoro. Mi estas ankoraŭ juna, mi bezo-
-
-nas ĝin.
+—Neeble, sinjoro doktoro. Mi estas ankoraŭ juna, mi bezonas ĝin.
 
 Li vizitas duan kuraciston, kiu diagnozas la samon:
 
@@ -7350,9 +6497,6 @@ Sinjorino Kruko estas grave malsana. ŝi petas sian edzon:
 —Karulo, se mi mortos kaj se vi reedziĝos, ĵuru al mi, ke mia posteulino ne surmetos miajn robojn.
 
 
-K R U KO K A J B A N I KO
-
-
 —Estu trankvila, trezoro. ŝi havas pli larĝan postaĵon ol vi.
 
 
@@ -7364,9 +6508,7 @@ Kruko ĵus aŭdis de sia edzino, ke ilian filinon Reda gravedi-gis jam edziĝint
 
 Tiu propono perpleksas Krukon. Li estas preskaŭ preta peti pardonon pro sia antaŭa kolero. Sed subite venas al li dubo pri neantaŭvidita eblo:
 
-—Promesu al mi, ke, en okazo de misnasko, vi donos al Re-
-
-da duan ŝancon.
+—Promesu al mi, ke, en okazo de misnasko, vi donos al Reda duan ŝancon.
 
 
 (por sentema vojaĝantino)
@@ -7377,9 +6519,6 @@ La blindulino ne
 toleras pufon de
 
 ĉaro en sia vagono.
-
-
-K R U KO K A J B A N I KO
 
 
 Gaja lernolibro
@@ -7403,18 +6542,15 @@ Li neniam venkis la alfabeton
 
 Kruko luis belan dometon en la ĉirkaŭaĵo de Bervalo. En ĝin li povas trankvile inviti siajn amikinojn. La lasta vizitantino venis jam tri fojojn. Kruko tiel dediĉis sin al amorado, ke iom malzorgis la kuirarton. ĉiufoje ŝi devis manĝi nur kaĉon.
 
-Kruko denove skribas al ŝi invitleteron, en kiu li laŭdas la belon de la domo kaj de la pejzaĝo. La nova amikino estas preta reiri al la rendevuejo, sed havante lastamomentan mal-helpon, ŝi komisias al la poŝto telegrafadon de jena teksto: VI LOAS BELE — SED PRO MALOPORTUNA ŝANO MI
+Kruko denove skribas al ŝi invitleteron, en kiu li laŭdas la belon de la domo kaj de la pejzaĝo. La nova amikino estas preta reiri al la rendevuejo, sed havante lastamomentan mal-helpon, ŝi komisias al la poŝto telegrafadon de jena teksto: VI LOAS BELE — SED PRO MALOPORTUNA ŜANO MI
 
-VENOS PLI POSTE — KVANKAM MI MALŝATAS VIAN
+VENOS PLI POSTE — KVANKAM MI MALŜATAS VIAN
 
-KAĉON.
+KAĈON.
 
 Malgraŭ la bedaŭrinda prokrasto Kruko estas ravita de tiu brula amkonfeso. Li ja tute forgesis, ke telegramo ne havas supersignojn…
 
 FINO*
-
-
-K R U KO K A J B A N I KO
 
 
 * LASTA (de mia sekretariino)
@@ -7423,9 +6559,6 @@ K R U KO K A J B A N I KO
 ĉe vi la fino estas
 
 ĉiam senkaŭza!
-
-
-K R U KO K A J B A N I KO
 
 
 www.omnibus.se/

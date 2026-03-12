@@ -13,19 +13,12 @@ LA MONO DE SINJORO ARNE
 Stellan Engholm
 
 
-@omnibus.se
-
-·
-
-
 L A M O N O D E S I N J O RO A R N E
 
 
 En la pastrodomo de Solberga
 
-En la tempo, kiam la reĝo Fredriko la dua de Danlando regis la provincon Bohuslän, tiam loĝis en Marstrand mal-riĉa fiŝvendisto, kiu nomiĝis Torarin. Li estis malforta kaj se-naplomba homo. Unu el liaj brakoj estis paralizita, kaj li taŭ-
-
-gis nek por fiŝado nek por remado. Li ne povis gajni sian vivtenon sur la maro kiel ĉiuj aliaj marbordanoj, sed li ĉirkaŭ-
+En la tempo, kiam la reĝo Fredriko la dua de Danlando regis la provincon Bohuslän, tiam loĝis en Marstrand mal-riĉa fiŝvendisto, kiu nomiĝis Torarin. Li estis malforta kaj se-naplomba homo. Unu el liaj brakoj estis paralizita, kaj li taŭgis nek por fiŝado nek por remado. Li ne povis gajni sian vivtenon sur la maro kiel ĉiuj aliaj marbordanoj, sed li ĉirkaŭ-
 
 veturis kaj vendis salitan aŭ sekigitan fiŝon al homoj sur la firma tero. Li ne estis hejme multajn tagojn en la jaro, li ĉiam veturis de vilaĝo al vilaĝo kun sia fiŝoŝarĝo.
 
@@ -33,12 +26,7 @@ En la krepuskiĝo iun februaran tagon Torarin veturis sur la vojo, kiu de Kungsh
 
 ”Nun mi rakontos al vi, Grin, mia hundo” diris Torarin,
 
-”ke mi hodiaŭ aŭdis grandajn novaĵojn. Kaj en Kungshäll kaj en Kareby oni diris al mi, ke la maro kovriĝis per glacio. Estis bona kaj kvieta vetero dum kelka tempo, tion plej bone scias vi, kiu veturis ĉiujn tagojn, kaj laŭdire la maro estas gla-3
-
-L A M O N O D E S I N J O RO A R N E
-
-
-cikovrita ne nur en golfoj kaj markoloj sed eĉ malproksime sur Kattegatt. Nun ekzistas neniu vojo inter la insuletoj por boatoj kaj ŝipoj, estas nur forta, firma glacio ĉie, tiel ke oni povas veturi per ĉevalo kaj sledo ĝis Marstrand kaj la Pater-nosterŝeroj.”
+”ke mi hodiaŭ aŭdis grandajn novaĵojn. Kaj en Kungshäll kaj en Kareby oni diris al mi, ke la maro kovriĝis per glacio. Estis bona kaj kvieta vetero dum kelka tempo, tion plej bone scias vi, kiu veturis ĉiujn tagojn, kaj laŭdire la maro estas glacikovrita ne nur en golfoj kaj markoloj sed eĉ malproksime sur Kattegatt. Nun ekzistas neniu vojo inter la insuletoj por boatoj kaj ŝipoj, estas nur forta, firma glacio ĉie, tiel ke oni povas veturi per ĉevalo kaj sledo ĝis Marstrand kaj la Pater-nosterŝeroj.”
 
 ĉion tion aŭdis la hundo, kaj ŝajne ĝi ne malplaĉis al ĝi. i kuŝis senmova kaj nur palpebrumis al Torarin.
 
@@ -51,9 +39,6 @@ Ili veturis trans la longan erikejon de Kareby, kaj kvankam estis kvieta vetero 
 ĉar la hundo ankoraŭ kuŝis trankvile, Torarin ŝajnis fir-miĝi en sia opinio, kaj daŭrigis en pli gaja tono:
 
 ”Jen patrino sidis sola en la domo dum multaj tagoj. Certe ŝi sopiras renkonti nin. Kaj en Marstrand estas grandioza vivo nun en la vintro. Stratoj kaj stratetoj, Grim, estas plenaj de fremdaj fiŝistoj kaj komercistoj. En la fiŝistaj bordaj magazenoj estas dancado ĉiuvespere. Kaj kiom da biero fluas en la trinkejo! Tion vi neniel povas kompreni!”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Dirante tion Torarin klinis sin al la hundo por rigardi, ĉu
@@ -72,12 +57,7 @@ Sed kiam li trovis, ke estas Grim, kiu hurlas, li provis trankviligi ĝin.
 
 Sed liaj vortoj ne povis trankviligi la hundon. i streĉis sian buŝon supren kaj hurlis pli kaj pli terure
 
-Tiam Torarin preskaŭ ektimis. Estis nun preskaŭ malhele, sed Torarin tamen povis vidi la preĝejon de Solberga kaj la vastan ebenon ĉirkaŭ ĝi, kiu estis ŝirmata de larĝaj arbaraj al-taĵoj sur la interna flanko kaj marflanke de rondaj, senarbaj rokmontetoj. Kiam li antaŭenveturis tute sola sur la vasta, blanka ebeno, ŝajnis al li, ke li estas sensignifa kaj malgran-5
-
-L A M O N O D E S I N J O RO A R N E
-
-
-da rampuleto, kaj el la malhelaj arbaroj kaj la solecaj montetoj proksimiĝas grandaj monstroj kaj sorĉestaĵoj ĉiuspecaj, kiuj kuraĝas iri sur senarbaran terenon, post kiam malheliĝis.
+Tiam Torarin preskaŭ ektimis. Estis nun preskaŭ malhele, sed Torarin tamen povis vidi la preĝejon de Solberga kaj la vastan ebenon ĉirkaŭ ĝi, kiu estis ŝirmata de larĝaj arbaraj al-taĵoj sur la interna flanko kaj marflanke de rondaj, senarbaj rokmontetoj. Kiam li antaŭenveturis tute sola sur la vasta, blanka ebeno, ŝajnis al li, ke li estas sensignifa kaj malgranda rampuleto, kaj el la malhelaj arbaroj kaj la solecaj montetoj proksimiĝas grandaj monstroj kaj sorĉestaĵoj ĉiuspecaj, kiuj kuraĝas iri sur senarbaran terenon, post kiam malheliĝis.
 
 Kaj sur la tuta ebeno la malriĉa Torarin estis la sola, kiun ili povis ataki.
 
@@ -92,24 +72,17 @@ II.
 En la pastrodomo de Solberga sidis la pastro, sinjoro Arne, kaj vespermanĝis en la rondo de siaj domanoj. ĉeestis neniu fremdulo krom Torarin. La pastro estis maljuna, grizhara ho-mo, sed tamen li estis ankoraŭ forta kaj altstatura. Lia edzino sidis apud li. ŝin la jaroj malbone traktis. ŝiaj kapo kaj manoj tremis, kaj ŝi estis preskaŭ surda. Sur la alia flanko de sinjoro Arne sidis la helppastro. Li estis juna kaj pala kaj aspektis ĉagrenita, kvazaŭ li ne povus porti ĉiun saĝon, kiun li kolektis dum la studjaro en Wittenberg.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 Tiuj tri sidis ĉe la alinterna ekstremo de la tablo, kvazaŭ iel apartigite. ĉe la longflankoj sidis Torarin kaj poste la servistoj. Ili ankaŭ estis maljunaj homoj. Estis tri servistoj, ili havis kalvajn kapojn, la dorsoj estis kurbaj, kaj la okuloj palpebrumis kaj larmetis. La servistinoj estis nur du. Ili estis iom pli junaj kaj viglaj ol la servistoj, sed tamen ili ŝajnis kadukaj kaj plenaj de malsanetoj de maljuneco.
 
 ĉe la alia ekstremo de la tablo sidis du infanoj. Unu estis nepino de sinjoro Arne, ŝi estis nur dekkvarjara. ŝi estis hel-hara kaj havis delikatan korpon, la vizaĝo ne estis preta ankoraŭ, sed ŝajnis, ke ŝi povos fariĝi bela. Alia malgranda knabino sidis apud ŝi. ŝi estis malriĉa orfino, kiu ĉiam vivis en la pastra domo. Tiuj du sidis proksime unu al la alia kaj ŝajne granda amikeco kunligis ilin.
 
-ĉiuj manĝis dum profunda silento. Torarin rigardis de unu al alia, sed neniu havis emon paroli dum la manĝo. ĉiuj maljunaj pensis: ”Estas granda beno ricevi manĝaĵon kaj ne suferi aŭ malsati, kiel ni multfoje faris en nia vivo. Dum ni man-
-
-ĝas ni devas pensi nur pri la boneco de Dio kaj danki lin pro
+ĉiuj manĝis dum profunda silento. Torarin rigardis de unu al alia, sed neniu havis emon paroli dum la manĝo. ĉiuj maljunaj pensis: ”Estas granda beno ricevi manĝaĵon kaj ne suferi aŭ malsati, kiel ni multfoje faris en nia vivo. Dum ni manĝas ni devas pensi nur pri la boneco de Dio kaj danki lin pro
 
 ĝi.”
 
 ĉar Torarin ne povis paroli kun iu, liaj rigardoj migris tien kaj reen en la ĉambro. Ili flugis de la granda forno, kiu estis masonita en multaj ŝtupoj ĉe la enirejo, al la alta baldaken-lito en la plej malproksima angulo de la ĉambro. La rigardoj iris de la murfiksaj benkoj, kiuj sekvis la murojn ĉirkaŭ la ĉambro, supren al la truo en la tegmento, tra kiu la fumo eliris kaj la vintra malvarmo enfluis.
 
-Kiam la fiŝvendisto Torarin, kiu loĝis en la plej malgranda kaj malriĉa dometo en la insularo, rigardis ĉion tion li pensis: ”Se mi estus potenculo kiel sinjoro Arne, mi ne estus 7
-
-L A M O N O D E S I N J O RO A R N E
+Kiam la fiŝvendisto Torarin, kiu loĝis en la plej malgranda kaj malriĉa dometo en la insularo, rigardis ĉion tion li pensis: ”Se mi estus potenculo kiel sinjoro Arne, mi ne estus
 
 
 kontenta loĝi en malnovega domo kun nur unu ĉambro. Mi konstruus al mi domon kun altaj frontonoj kaj multaj ĉambroj, kiel faras urbestroj kaj la anoj de la urba konsilantaro en Marstrand.”
@@ -128,9 +101,7 @@ Dum momento estis tute mortsilente en la ĉambro, sed
 
 dume la maljunulino pli kaj pli maltrankviliĝis. ŝi metis la manon sur la brakon de sinjoro Arne kaj demandis lin: ”Mi ne scias, kial ili en tiu ĉi vespero akrigas tiel longajn tranĉilojn en Branehög?”
 
-Torarin vidis, ke sinjoro Arne karesas ŝian manon por 8
-
-L A M O N O D E S I N J O RO A R N E
+Torarin vidis, ke sinjoro Arne karesas ŝian manon por
 
 
 trankviligi ŝin. Sed li ne respondis al ŝi, sed manĝis trankvile kiel antaŭe.
@@ -151,9 +122,7 @@ La maljuna virino pli kaj pli timis. ŝi kunfaldis siajn manojn kaj komencis sen
 
 Sinjoro Arne nun klinis sin al ŝi kaj diris: ”Mi ne scias, kio timigas vin.”
 
-”Mi timas la longajn tranĉilojn, kiujn ili akrigas en Branehög.” ŝi diris. ”Kiel vi povas aŭdi, ke ili akrigas tranĉilojn en Branehög?” diris sinjoro Arne kaj ridetis. ”Tiu bieno kuŝas ja 9
-
-L A M O N O D E S I N J O RO A R N E
+”Mi timas la longajn tranĉilojn, kiujn ili akrigas en Branehög.” ŝi diris. ”Kiel vi povas aŭdi, ke ili akrigas tranĉilojn en Branehög?” diris sinjoro Arne kaj ridetis. ”Tiu bieno kuŝas ja
 
 
 kvaronmejlon de tie ĉi. Prenu ree vian kuleron, kaj ni finu nian vespermanĝon!”
@@ -169,9 +138,6 @@ Li komencis paroli kun ili pri la tempo, kiam li ĵus venis al Bohuslän por pre
 Kiam sinjoro Arne parolis, li aspektis kiel batalulo, kaj la aliaj ekhavis novan kuraĝon aŭdante lin.
 
 ”Estas ja vere,” ili pensis. ”Dio ŝirmis sinjoron Arne en la plej grandaj danĝeroj. Li tenas sian manon super li. Li ne permesas, ke lia servisto pereos.”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 III.
@@ -192,9 +158,7 @@ Torarin tuj vidis, ke neniu tie ĉi intencas ordigi siajn armilojn por sangaj fa
 
 Sufiĉe longe Torarin sidis tie kun agrablaj sentoj, parolante kun la kamparanoj. Ili estis tre gajaj, kaj Torarin tre ĝojis, ke li povis forpeli ĉiujn malhelajn pensojn.
 
-Sed Torarin ne estis la sola, kiu venis malfrue al la festo en 11
-
-L A M O N O D E S I N J O RO A R N E
+Sed Torarin ne estis la sola, kiu venis malfrue al la festo en
 
 
 tiu vespero. Multe pli poste viro kaj virino trapaŝis la pordon.
@@ -207,12 +171,7 @@ Li prenis ilin, unu per ĉiu mano, kaj kondukis ilin al la interno de la ĉambro
 
 La viro eksidis apud Torarin, kaj ili komencis interparoli.
 
-La veninto rakontis al Torarin, kial li venis tiel malfrue al la festeno. Estis pro tio, ke al ilia kabano venis gastoj, kiujn ili ne kuraĝis forlasi. Estis tri tanistaj submajstroj, kiuj estis ĉe ili la tutan tagon. Kiam ili alvenis matene, ili estis elĉerpitaj kaj malsanaj. Ili diris, ke ili erariris en la arbaro dum tuta semajno. Sed manĝinte kaj dorminte ili baldaŭ reakiris forton, kaj vespere ili demandis, kiu domo estas la plej granda kaj riĉa en tiu ĉi regiono. Tien ili volis iri por serĉi laboron. La edzino respondis al ili, ke la pastra domo, kie loĝas sinjoro Arne, estas la plej eminenta domo. Tiam ili tuj eltiris longajn tranĉilojn el siaj dorsosakoj kaj komencis akrigi ilin. Ili oku-pis sin pri tio sufiĉe longe, kaj dume ili aspektis tiel sovaĝaj, ke la karbigisto kaj lia edzino ne kuraĝis iri de la hejmo. ”Mi ankoraŭ vidas ilin antaŭ mi, kiel ili sidas kaj grincas per siaj tranĉiloj,” diris la viro. ”Ili aspektis teruraj, ili havis grandajn barbojn, kiujn ili ne tondis aŭ ordigis dum multaj tagoj, kaj ili estis vestitaj per vilaj feljakoj, kiuj estis disŝiritaj kaj kot-12
-
-L A M O N O D E S I N J O RO A R N E
-
-
-plenaj. Mi kredis, ke estas tri monstroj, kiuj venis en nian ĉambron. Mi ekĝojis, kiam ili fine foriris.”
+La veninto rakontis al Torarin, kial li venis tiel malfrue al la festeno. Estis pro tio, ke al ilia kabano venis gastoj, kiujn ili ne kuraĝis forlasi. Estis tri tanistaj submajstroj, kiuj estis ĉe ili la tutan tagon. Kiam ili alvenis matene, ili estis elĉerpitaj kaj malsanaj. Ili diris, ke ili erariris en la arbaro dum tuta semajno. Sed manĝinte kaj dorminte ili baldaŭ reakiris forton, kaj vespere ili demandis, kiu domo estas la plej granda kaj riĉa en tiu ĉi regiono. Tien ili volis iri por serĉi laboron. La edzino respondis al ili, ke la pastra domo, kie loĝas sinjoro Arne, estas la plej eminenta domo. Tiam ili tuj eltiris longajn tranĉilojn el siaj dorsosakoj kaj komencis akrigi ilin. Ili oku-pis sin pri tio sufiĉe longe, kaj dume ili aspektis tiel sovaĝaj, ke la karbigisto kaj lia edzino ne kuraĝis iri de la hejmo. ”Mi ankoraŭ vidas ilin antaŭ mi, kiel ili sidas kaj grincas per siaj tranĉiloj,” diris la viro. ”Ili aspektis teruraj, ili havis grandajn barbojn, kiujn ili ne tondis aŭ ordigis dum multaj tagoj, kaj ili estis vestitaj per vilaj feljakoj, kiuj estis disŝiritaj kaj kotplenaj. Mi kredis, ke estas tri monstroj, kiuj venis en nian ĉambron. Mi ekĝojis, kiam ili fine foriris.”
 
 Kiam Torarin aŭdis tion, li rakontis al la karbigisto pri tio, kion li travivis en la pastrodomo.
 
@@ -231,9 +190,6 @@ Estis multe da homoj ĉe la festeno, kaj tiu, kiu havis ĉevalon, saltis sur ĝi
 Kiam la homoj venis al la pastrodomo, ili vidis neniun homon, sed ĉiuj ŝajnis dormi, kvankam la fajrego flagris alten al la ĉielo. Tamen neniu el la domoj brulis, sed granda amaso da branĉetoj kaj pajlo kaj ligno, kiu estis kunĵetita apud la muro de la malnova pastrodomo. i ne estis brulinta longe.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 La flamoj ankoraŭ nur nigrigis la bonajn trunkojn de la muro kaj degeligis la neĝon sur la tegmento. Nun ili tamen ekmor-dis la pajlon de la tegmento.
 
 ĉiuj tuj komprenis, ke estas brulkrimo. Ili komencis demandi sin, ĉu sinjoro Arne kaj liaj domanoj vere dormas, aŭ ĉu malfeliĉo okazis al ili. Sed antaŭ ol la savantoj eniris la brulantan domon, ili per longaj stangoj forŝovis de la muro la brulantan ŝtiparon kaj grimpis sur la tegmenton kaj forŝiris la pajlon, kiu jam komencis fumi kaj preskaŭ ekbrulis.
@@ -248,9 +204,7 @@ Tiam la pordo malfermiĝis antaŭ ili, kaj la helppastro de sinjoro Arne elvenis
 
 Nun homoj iris en la domon kaj trovis ĉion tiel, kiel diris la helppastro.
 
-La granda kverka kesto, en kiu sinjoro Arne konservis sian 14
-
-L A M O N O D E S I N J O RO A R N E
+La granda kverka kesto, en kiu sinjoro Arne konservis sian
 
 
 monon, estis for, kaj la ĉevalo de sinjoro Arne estis prenita el la stalo kaj lia sledo el la veturilejo.
@@ -260,9 +214,6 @@ Sledspuroj kondukis de la domo trans la herbejojn de la bieno kaj ĝis la maro, 
 Tiam ne estis tie ĉiuj el la domanoj de sinjoro Arne, unu mankis. Estis la malriĉa knabino, kiun sinjoro Arne prenis en sian domon. Estiĝis granda miro, ĉu ŝi eble sukcesis forkuri, aŭ ĉu la rabistoj kunprenis ŝin.
 
 Sed kiam ili zorge traserĉis la tutan ĉambron, ili trovis ŝin tie, kie ŝi kaŝis sin inter la granda forno kaj la muro. ŝi kaŝis sin tie dum la batalo kaj estis tute nedifektita, sed ŝi estis tiel premita de timo, ke ŝi povis nek rakonti nek respondi.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Sur la varfoj
@@ -281,9 +232,7 @@ Veninte en la urbon la knabino la unuajn tagojn sidis plorante de mateno ĝis ve
 
 La patrino de Turarin diris nenion pri tio tiel longe, ke la filo restis hejme. Sed kiam li ree foriris sur siajn veturojn, ŝi iun matenon diris al la knabino:
 
-”Mi ne estas tiel riĉa, Elseto, ke mi povas doni al vi nu-traĵon kaj vestojn, por ke vi povu sidi kun la manoj sur la sino 16
-
-L A M O N O D E S I N J O RO A R N E
+”Mi ne estas tiel riĉa, Elseto, ke mi povas doni al vi nu-traĵon kaj vestojn, por ke vi povu sidi kun la manoj sur la sino
 
 
 kaj gardi vian doloron. Venu kun mi al la varfoj kaj lernu pre-pari fiŝojn.”
@@ -302,9 +251,7 @@ La malriĉa Elseto! Dum sia tuta vivo ŝi ne vidis tian viron.
 
 ŝajnis al ŝi, ke ŝi ne povas paroli antaŭ li. ŝi nur silentis kaj rigardis malsupren sur sian laboron.
 
-Tiam la fremdulo ankoraŭfoje komencis: ”Ne lasu timigi vin, fraŭlino! Ni estas skotoj, kiuj servis sub la reĝo Johano 17
-
-L A M O N O D E S I N J O RO A R N E
+Tiam la fremdulo ankoraŭfoje komencis: ”Ne lasu timigi vin, fraŭlino! Ni estas skotoj, kiuj servis sub la reĝo Johano
 
 
 de Svedlando dum plenaj dek jaroj, sed nun ni elserviĝis kaj intencas veturi hejmen. Ni venis al Marstrand por serĉi ŝipon al Skotlando, sed kiam ni alvenis, ĉiuj markoloj kaj fjordoj estis kovritaj per glacio, kaj jen ni devas resti ĉi tie kaj atendi. Ni havas neniun okupon, kaj tial ni iras sencele sur la varfoj por renkonti homojn. Ni tre ĝojus, fraŭlino, se vi permesus al ni aŭskulti vian rakonton.” Elseto komprenis, ke li parolas tiel longe, por ke ŝi povu regajni sian trankvilon. Fine ŝi pensis: ”Vi tamen montru, ke vi ne estas tro simpla por paroli kun alta sinjoro, Elseto. Vi estas fraŭlino de bona deveno kaj ne fiŝista knabino.”
@@ -315,12 +262,7 @@ de Svedlando dum plenaj dek jaroj, sed nun ni elserviĝis kaj intencas veturi he
 
 Tiam Elseto ankoraŭfoje rakontis pri la sovaĝa traktado de la rabistoj. ŝi rakontis, kiel la maljunaj servistoj kolektis sin ĉirkaŭ sinjoro Arne por defendi lin, kaj kiel sinjoro Arne mem ekkaptis sian glavon de sur la muro kaj paŝis al la rabistoj, sed tiuj venkis ilin ĉiujn. Kaj la maljuna edzino de la pastro levis la glavon de sia edzo de la planko kaj iris kontraŭ la rabistojn, sed ŝin ili nur priridis kaj faligis per lignoŝtipo.
 
-Kaj ĉiuj aliaj virinoj rampe kaŝis sin sur la forno, sed kiam la viroj estis mortintaj, la murdantoj venis kaj eltiris kaj mortigis ilin. ”La lasta, kiun ili mortigis,” diris Elseto, ”estis mia kara nutrofratino. ŝi tiel humile petis por sia vivo, kaj du el ili volis lasi ŝin vivi, sed la tria diris, ke ĉiuj devas morti, kaj li puŝis sian tranĉilon en ŝian koron.” Tiel longe, ke Elseto parolis pri murdo kaj sango, la tri viroj staris senmovaj an-18
-
-L A M O N O D E S I N J O RO A R N E
-
-
-taŭ ŝi. Ili ne interŝanĝis eĉ unu rigardon, sed iliaj oreloj stre-
+Kaj ĉiuj aliaj virinoj rampe kaŝis sin sur la forno, sed kiam la viroj estis mortintaj, la murdantoj venis kaj eltiris kaj mortigis ilin. ”La lasta, kiun ili mortigis,” diris Elseto, ”estis mia kara nutrofratino. ŝi tiel humile petis por sia vivo, kaj du el ili volis lasi ŝin vivi, sed la tria diris, ke ĉiuj devas morti, kaj li puŝis sian tranĉilon en ŝian koron.” Tiel longe, ke Elseto parolis pri murdo kaj sango, la tri viroj staris senmovaj antaŭ ŝi. Ili ne interŝanĝis eĉ unu rigardon, sed iliaj oreloj stre-
 
 ĉiĝis pro la aŭskulto, kaj iliaj okuloj fajreris, kaj kelkfoje iliaj lipoj disiĝis tiel, ke la dentaroj ekbrilis.
 
@@ -340,9 +282,7 @@ Kaj mi preĝas al Dio ĉiutage, ke mi renkontu ilin.”
 
 ”ĉu vi ne kredas, Elseto, ke ili mortis?” la fremdulo demandis.
 
-”Jes, mi ja kredas, ke ili dronis,” Elseto diris, ”kaj tamen mi preĝas ĉiutage al Dio, ke ili estu sin savintaj. Mi diras al Dio 19
-
-L A M O N O D E S I N J O RO A R N E
+”Jes, mi ja kredas, ke ili dronis,” Elseto diris, ”kaj tamen mi preĝas ĉiutage al Dio, ke ili estu sin savintaj. Mi diras al Dio
 
 
 tiel: ”Estu tiel, ke ili veturigis nur la ĉevalon kaj la sledon en la truon, sed ke ili savis sin mem.”
@@ -364,27 +304,17 @@ Sed kiam la malgranda kaj malforta fraŭlino montris tian koleron, la tri skotaj
 *) Malnovtempa ekzekuto; oni dishakis la korpon en kvar partojn kaj metis tiujn sur kvar kuŝantajn radojn.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 La elsenditino
 
 Ok tagojn post sia morto sinjoro Arne estis enterigata en la preĝejo de Solberga, kaj la saman tagon estis juĝa esploro pri la murdo ĉe la juĝa renkontejo sur Branehög.
 
-Sed sinjoro Arne estis bone konata homo en Bohuslän, kaj en lia enteriga tago tiom da homoj kunvenis kaj el la interna lando kaj el la insularo, ke estis, kvazaŭ kiam soldataro kolektas sin ĉirkaŭ sia estro. Kaj sur la kampoj inter la pre-
-
-ĝejo de Solberga kaj Branehög paŝis tiom da homoj, ke en la vesperiĝo ne restis eĉ cololarĝa strio da neĝo, kiu ne estis surpaŝita de homoj. Sed malfrue en la vespero, kiam ĉiuj tiuj jam foriris, Torarin fiŝvendisto venis veturante sur la vojo de Branehög supren al Solberga.
+Sed sinjoro Arne estis bone konata homo en Bohuslän, kaj en lia enteriga tago tiom da homoj kunvenis kaj el la interna lando kaj el la insularo, ke estis, kvazaŭ kiam soldataro kolektas sin ĉirkaŭ sia estro. Kaj sur la kampoj inter la preĝejo de Solberga kaj Branehög paŝis tiom da homoj, ke en la vesperiĝo ne restis eĉ cololarĝa strio da neĝo, kiu ne estis surpaŝita de homoj. Sed malfrue en la vespero, kiam ĉiuj tiuj jam foriris, Torarin fiŝvendisto venis veturante sur la vojo de Branehög supren al Solberga.
 
 Torarin parolis kun multaj homoj en la daŭro de la tago.
 
 Ree kaj ree li estis rakontinta pri la morto de sinjoro Arne. Li ankaŭ estis bone regalita ĉe la juĝa kunvenejo kaj devis kune kun fremdlokaj vojaĝantoj malplenigi multajn bierkruĉojn.
 
-Torarin sentis sin malvigla kaj peza. Li estis ekkuŝinta sur la ŝarĝo. Li estis ĉagrenita pro tio, ke sinjoro Arne estis for, kaj kiam li venis proksime al la pastrodomo, eĉ pli pezaj pensoj komencis turmenti lin. ”Grim, mia hundo,” li diris, ”se mi estus kredinta la antaŭsignon pri la tranĉiloj, mi estus povinta deturni la tutan malfeliĉon. Mi ofte pensas pri tio, Grim, mia hundo. Mi sentas angoron, kvazaŭ mi mem kunhelpis forigi sinjoron Arne el la mondo. Memoru, kion mi nun di-21
-
-L A M O N O D E S I N J O RO A R N E
-
-
-ras, ke la proksiman fojon, kiam mi aŭdos ion tian, mi kredos kaj agos laŭ tio!”
+Torarin sentis sin malvigla kaj peza. Li estis ekkuŝinta sur la ŝarĝo. Li estis ĉagrenita pro tio, ke sinjoro Arne estis for, kaj kiam li venis proksime al la pastrodomo, eĉ pli pezaj pensoj komencis turmenti lin. ”Grim, mia hundo,” li diris, ”se mi estus kredinta la antaŭsignon pri la tranĉiloj, mi estus povinta deturni la tutan malfeliĉon. Mi ofte pensas pri tio, Grim, mia hundo. Mi sentas angoron, kvazaŭ mi mem kunhelpis forigi sinjoron Arne el la mondo. Memoru, kion mi nun diras, ke la proksiman fojon, kiam mi aŭdos ion tian, mi kredos kaj agos laŭ tio!”
 
 Dum Torarin kun duonfermitaj okuloj kvazaŭ dormis sur la ŝarĝo, lia ĉevalo iris laŭ propra plaĉo, kaj kiam ĝi venis al la pastrodomo de Solberga, ĝi laŭ malnova kutimo eniris sur la korton kaj al la stalpordo. Torarin tute ne sciis pri tio. Nur kiam la ĉevalo haltis, li ekstaris kaj ĉirkaŭrigardis. Teruro trakuris lin, kiam li rimarkis, ke li troviĝas sur la korto antaŭ domo, kie tiom da homoj estis murditaj antaŭ nur unu semajno.
 
@@ -395,9 +325,6 @@ Li tuj volis preni la kondukrimenojn. Li volis turni la ĉevalon kaj ree elvetur
 Torarin pli firme prenis la kondukrimenon. ŝajnis al li, ke estus plej bone foriri kiel eble plej rapide. Sed la mano de Olof ĉevalisto ankoraŭ kuŝis sur lia ŝultro, kaj la maljunulo daŭrigis trudi lin.
 
 Torarin cerbumis tien kaj reen por trovi pretekston. ”Ne estis mia intenco veni kaj ĝeni sinjoron Arne tiel malfrue en la vespero,” li diris. ”La ĉevalo flankeniris tien ĉi sen mia scio.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Mi nun pluveturos por havigi al mi tranoktejon. Se sinjoro Arne volas renkonti min, mi ja povos reveni morgaŭ.”
@@ -418,9 +345,7 @@ Li vipis la ĉevalon, ke ĝi levis sin kaj stampfis. Sed ĝi ne sukcesis iri eĉ
 
 ”Vi kuniru internen, Torarin,” diris la ĉevalisto. ”Mi kredas, ke vi ne havos ion por pripenti en tiu ĉi afero.”
 
-Nun Torarin ekmemoris, kion li survoje promesis al si mem. Li, kiu ĵus staris sur la ŝarĝo kaj fervorege svingis la 23
-
-L A M O N O D E S I N J O RO A R N E
+Nun Torarin ekmemoris, kion li survoje promesis al si mem. Li, kiu ĵus staris sur la ŝarĝo kaj fervorege svingis la
 
 
 kondukrimenon, tuj fariĝis malobstina kiel ŝafido. ”Jen, Olof ĉevalisto, jen mi nun estas,” li diris kaj saltis de la ŝarĝo. ”Estas vere, ke mi ne volas havi ion por pripenti en tiu ĉi afero.
@@ -439,12 +364,7 @@ Tiam li vidis la grandan ĉambron tute tia, kian li antaŭe vidis ĝin. Li rekon
 
 Fine li rigardis ankaŭ tien, kaj tiam li vidis sinjoron Arne mem sidi plenviva meze antaŭ la tablo kun la edzino kaj la helppastro ĉe la flankoj, kiel li vidis lin antaŭ ok tagoj. ŝajne li ĵus finis sian manĝon, li estis forŝovinta la pelveton, kaj la kulero kuŝis antaŭ li sur la tablo. ĉiuj maljunaj servistoj kaj servistinoj sidis ĉe la tablo, sed nur unu el la junaj knabinoj.
 
-Longe Torarin staris senmova ĉe la pordo kaj rigardis tiujn, kiuj sidis ĉe la tablo. Ili ĉiuj aspektis korpremitaj kaj ĉagre-24
-
-L A M O N O D E S I N J O RO A R N E
-
-
-nitaj, kaj ankaŭ sinjoro Arne sidis kun pezaj pensoj kiel la aliaj kaj apogis la kapon sur la mano.
+Longe Torarin staris senmova ĉe la pordo kaj rigardis tiujn, kiuj sidis ĉe la tablo. Ili ĉiuj aspektis korpremitaj kaj ĉagrenitaj, kaj ankaŭ sinjoro Arne sidis kun pezaj pensoj kiel la aliaj kaj apogis la kapon sur la mano.
 
 Fine Torarin vidis, ke sinjoro Arne levas la kapon.
 
@@ -452,9 +372,7 @@ Fine Torarin vidis, ke sinjoro Arne levas la kapon.
 
 ”Jes,” la servisto respondis, ”estas Torarin fiŝvendisto, kiu hodiaŭ ĉeestis la juĝan kunvenon sur Branehög.”
 
-ŝajnis, ke sinjoro Arne ekaspektis pli gaja, kaj Torarin aŭ-
-
-dis lin diri: ”Do venu antaŭen, Torarin, kaj donu al ni no-vaĵojn de la juĝokunveno! Jen mi sidis kaj atendis vin la du-onan nokton.”
+ŝajnis, ke sinjoro Arne ekaspektis pli gaja, kaj Torarin aŭdis lin diri: ”Do venu antaŭen, Torarin, kaj donu al ni no-vaĵojn de la juĝokunveno! Jen mi sidis kaj atendis vin la du-onan nokton.”
 
 ĉio tio sonis tiel reale kaj nature, ke Torarin sentis sin pli kaj pli sentima. Li tute kuraĝe iris trans la plankon al sinjoro Arne. Li demandis sin, ĉu ne estis malbona sonĝo, ke sinjoro Arne estis murdita, kaj ĉu la vero ne estas, ke li vivas.
 
@@ -467,9 +385,6 @@ Sinjoro Arne ankaŭ tuj interrompis lin: ”Diru al mi nur la plej gravan, Torar
 ”Ne, sinjoro Arne,” Torarin tiam respondis kun kolektita kuraĝo. ”Viaj murdintoj kuŝas sur la fundo de Hakefjordo.
 
 Kiamaniere iu povos venĝi al ili?”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Kiam Torarin donis tiun respondon, sinjoro Arne ekflamis de sia malnova humoro, kaj li forte frapis la tablon per la mano. ”Kion vi diras, Torarin? ĉu la provincestro en Bohus ne estis tie ĉi kun leĝistoj kaj skribistoj kaj faris juĝokunve-non, kaj ĉu neniu povis diri al li, kie li povos trovi miajn murdintojn?”
@@ -490,14 +405,9 @@ Estis longa silento. Post iom da tempo Torarin kuraĝis vor-tigi deziron.
 
 ”Vi ne foriru, Torarin,” diris sinjoro Arne, ”antaŭ ol vi ankoraŭfoje diros al mi, ĉu ne iu el la vivantoj povas venĝi nin.”
 
-”Se ĉiuj viroj en Bohuslän kaj Norvegio kunvenus por ven-
-
-ĝi al viaj murdintoj, ili ne estus kapablaj trovi ilin,” Torarin diris.
+”Se ĉiuj viroj en Bohuslän kaj Norvegio kunvenus por venĝi al viaj murdintoj, ili ne estus kapablaj trovi ilin,” Torarin diris.
 
 Tiam sinjoro Arne diris:
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 ”ĉar la vivantoj ne povas helpi nin, ni devas helpi nin mem.”
@@ -521,15 +431,9 @@ Sed kiam Torarin aŭdis sinjoron Arne diri tion, li kredis kompreni, ke sinjoro 
 En la sama momento ŝajnis ai Torarin, ke kaj sinjoro Arne kaj la pastrodomo malaperis en nebulon kaj li mem malsu-preniĝis profunden, kvazaŭ ii estus falinta de sveniga alto, kaj je tio li perdis la konscion.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 Kiam li ree vekiĝis, la matenhelo jam montris sin. Li tiam vidis, ke li kuŝas sur la tero apud la pastrodomo de Solberga. La ĉevalo staris apud li kun la ŝarĝo, kaj Grim bojis kaj hurlis super li.
 
 ”ĉio estis nur sonĝo,” Torarin diris, ”nun mi komprenas tion. La domo estas senhoma kaj detruita. Mi vidis nek sinjoron Arne nek iun alian. Sed la sonĝo tiel timigis min, ke mi falis de la ŝarĝo.”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 En la lunlumo
@@ -544,12 +448,7 @@ Torarin trovis grandan plezuron en tiuj pensoj, kaj ankaŭ al Grim ili plaĉis. 
 
 Sed ĝuste kiam Torarin finis sian parolon, li preterveturis altan stangon, sur kiu branĉofasko estis fiksita.
 
-”Se ni estus fremdaj tie ĉi, Grim, mia hundo,” Torarin di-29
-
-L A M O N O D E S I N J O RO A R N E
-
-
-ris, ”tiam ni certe demandus nin, kia erikejo estas tio ĉi, kie oni starigas la samajn signojn, kiujn ni uzas sur la maro. ’ĉu tio vere povas esti la maro?’ ni fine dirus. Sed tio certe ŝajnus al ni tute neebla. Tio ĉi, kio kuŝas tiel firme kaj trankvile, ĉu
+”Se ni estus fremdaj tie ĉi, Grim, mia hundo,” Torarin diris, ”tiam ni certe demandus nin, kia erikejo estas tio ĉi, kie oni starigas la samajn signojn, kiujn ni uzas sur la maro. ’ĉu tio vere povas esti la maro?’ ni fine dirus. Sed tio certe ŝajnus al ni tute neebla. Tio ĉi, kio kuŝas tiel firme kaj trankvile, ĉu
 
 ĝi povus esti nur akvo? Kaj ĉiuj tiuj rokmontetoj, kiuj nun kuŝas tiel forte kunligitaj, ĉu ili estus nur insuletoj kaj ŝeroj apartigitaj de ŝaŭmantaj ondoj? Ne, certe ni ne povus kredi, ke io tia estus ebla, Grim, mia hundo.”
 
@@ -566,9 +465,6 @@ Torarin haltis ankoraŭ dum momento kaj rigardis grandan ŝipon, kiu kuŝis fros
 Sed kiam Torarin vidis, ke fumeto eliras el la ŝipanara kajuto, li alveturis kaj vokis la ŝipestron por ekscii, ĉu li deziras aĉeti de lia fiŝo. Nur kelkaj moruoj restis sur la fundo de la veturilo, ĉar en la daŭro de la tago li ĉirkaŭveturis al ĉiuj ŝipoj, kiuj estis frostfiksitaj en la insularo, kaj disvendis sian provizon.
 
 Surŝipe sidis la ŝipestro kun siaj viroj kaj ĝismorte enuis.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Ili aĉetis fiŝon de la vendisto, ne pro bezono sed ĉar ili deziris paroli kun iu.
@@ -589,9 +485,7 @@ La ŝipestro staris malhela kaj malgaja; li ne respondis ion al la babilo de Tor
 
 ”Malofte mi vidis iun kun la okuloj tion sopirmalsanaj,” pensis Torarin.
 
-Sed la ŝipestro, kiu tagon post tago estis enfermita inter la 31
-
-L A M O N O D E S I N J O RO A R N E
+Sed la ŝipestro, kiu tagon post tago estis enfermita inter la
 
 
 insuletoj kaj ne povis hisi la velojn kaj veturi maren, dum la tempo havis multajn pensojn, kaj li diris al Torarin:
@@ -600,9 +494,7 @@ insuletoj kaj ne povis hisi la velojn kaj veturi maren, dum la tempo havis multa
 
 Kiam li diris tion, Torarin ĉesis rideti, sed li ŝajnigis ne-komprenon kaj diris: ”Nun mi ne komprenas, kion vi volas diri.”
 
-”Nu,” diris la ŝipestro, ”mi iam kuŝis en la haveno de Ber-gen dum tuta monato, kaj ĉiujn tagojn blovis kontraŭvento, tiel ke neniu ŝipo povis eliri. Sed sur unu el la ŝipoj, kiuj kuŝis enfermitaj en la haveno, estis viro, kiu estis ŝtelinta en pre-
-
-ĝejoj, kaj li estus savinta sin, se la ŝtormo ne estus blovinta.
+”Nu,” diris la ŝipestro, ”mi iam kuŝis en la haveno de Ber-gen dum tuta monato, kaj ĉiujn tagojn blovis kontraŭvento, tiel ke neniu ŝipo povis eliri. Sed sur unu el la ŝipoj, kiuj kuŝis enfermitaj en la haveno, estis viro, kiu estis ŝtelinta en preĝejoj, kaj li estus savinta sin, se la ŝtormo ne estus blovinta.
 
 Nun oni havis tempon eltrovi, kie li estas, kaj kiam li estis surbordigita, tiam tuj fariĝis bela vetero kaj bona vento. ĉu vi nun komprenas, kion mi volas diri, kiam mi demandas, ĉu vi scias, kial Dio tenas la pordojn al la maro fermitaj?”
 
@@ -614,9 +506,7 @@ Dum iom da tempo Torarin staris silenta. ŝajnis, ke li ŝatas respondi per seri
 
 ”Ho,” Torarin diris, ”tie estas maristoj, kies ŝipoj estas frostfiksitaj same kiel la via. Tie estas multe da fiŝistoj, kiuj
 
-ĝuste finis sian haringokaptadon, kiam la glacio malhelpis ilin iri hejmen. Kaj estas cento da skotaj dungosoldatoj, kiuj elserviĝis kaj nun kuŝas tie ĉi kaj atendas okazon por veturi 32
-
-L A M O N O D E S I N J O RO A R N E
+ĝuste finis sian haringokaptadon, kiam la glacio malhelpis ilin iri hejmen. Kaj estas cento da skotaj dungosoldatoj, kiuj elserviĝis kaj nun kuŝas tie ĉi kaj atendas okazon por veturi
 
 
 hejmen al Skotlando. ĉu vi kredas, ke tiuj iras kun klinitaj kapoj kaj forgesas fari al si gajajn tagojn?”
@@ -643,12 +533,7 @@ Torarin tuj interrompis sian laŭdon al la skotoj.
 
 Li pretigis sin por pluveturo. ”Nu, fartu do bone tie ĉi ĉe-mare!” li diris.
 
-Torarin veturis al Marstrand tra la mallarĝa akvokolo inter Trifoli-insulo kaj Bovin-insulo. Kiam li estis tiom proksi-33
-
-L A M O N O D E S I N J O RO A R N E
-
-
-me, ke li povis vidi Marstrand, li rimarkis, ke li ne estas sola sur la glacio.
+Torarin veturis al Marstrand tra la mallarĝa akvokolo inter Trifoli-insulo kaj Bovin-insulo. Kiam li estis tiom proksime, ke li povis vidi Marstrand, li rimarkis, ke li ne estas sola sur la glacio.
 
 En la klara lunlumo li vidis altan viron kun fiera teniĝo iri trans la neĝon. Li vidis, ke li portas plumornamitan ĉapelon kaj riĉe broditan veston kun larĝaj pufoj.
 
@@ -668,9 +553,7 @@ Sed en la sama momento Torarin post la skota sinjoro rimarkis ion, kio similis a
 
 La skoto iris antaŭen per longaj paŝoj. Li rigardis nek dekstren nek maldekstren. Sed la griza ombro glitis antaŭen tiel proksime post li, ke ŝajnis, ke ĝi volas flustri ion en lian orelon.
 
-Torarin malrapide veturis antaŭen, ĝis li estis sampaŝe kun ili. Li tiam vidis la vizaĝon de la skoto en la klara lunlumo. Li 34
-
-L A M O N O D E S I N J O RO A R N E
+Torarin malrapide veturis antaŭen, ĝis li estis sampaŝe kun ili. Li tiam vidis la vizaĝon de la skoto en la klara lunlumo. Li
 
 
 iris kun kuntiritaj brovoj kaj aspektis incitita, kvazaŭ absor-bita de penso, kiu malplaĉas al li.
@@ -684,9 +567,6 @@ Sir Archie tuj returnis sin kaj daŭrigis sian iron, kaj ree la knabino rapidis 
 Sed kiam Torarin vidis tion, kaptis lin timo pli granda ol li povis elteni. Li laŭte ekkriis, kaj vipis sian ĉevalon tiel, ke ĝi ŝvitegante kaj en plena galopo venis al la pordo de lia kabano.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 Persekuto
 
 Sur la interna, alinsulara flanko de la Marstrandinsulo, kiu estas ŝirmita de girlando da insuloj kaj insuletoj, estis la urbo kun ĉiuj siaj domoj kaj konstruaĵoj. Tie movis sin homoj sur stratoj kaj stratetoj, tie estis la haveno, plena de boatoj kaj ŝipoj, tie oni peklis haringon kaj senintestigis fiŝon, tie kuŝis preĝejo kaj tombejo, tie kuŝis konsilantara domo kaj vendoplaco, kaj tie estis multaj altaj arboj, kiuj somere balanciĝis kun verda foliaro.
@@ -698,9 +578,6 @@ La kabano de Torarin kuŝis alte sur la dorso de la insulo, tiel ke la urbo esti
 Kaj kiam Elseto malfermis sian pordon, kuŝis antaŭ ŝi larĝaj, nudaj rokplataĵoj, de kiuj ŝi povis rigardi malproksimen okcidenten ĝis la malhela rando, kie la maro estis senglacia.
 
 ĉiuj maristoj kaj fiŝistoj, kiuj estis frostfiksitaj en Marstrand kutimis preteriri la kabanon de Torarin por supreniri la rokojn kaj rigardi, ĉu la golfoj kaj akvokoloj ankoraŭ ne komencis deĵeti sian glacian kovraĵon.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Elseto multfoje staris en la pordo, kaj postrigardis tiujn, kiuj iris supren. ŝia koro suferis post la granda doloro, kiu trafis ŝin, kaj ŝi pensis: ”ŝajnas al mi, ke ĉiuj estas feliĉaj, kiuj havas ion, kion ili sopiras. Sed mi posedas nenion en la tuta mondo, kion mi povas sopiri.”
@@ -722,9 +599,6 @@ Poste sir Archie iris en la ĉambron al Elseto, kaj li komencis paroli kun ŝi p
 Sed kiam venis la tempo, kiam sir Archie volis foriri, tiam li petis Elseton pri permeso kisi ŝin.
 
 Tiam Elseto diris ne kaj forrapidis al la pordo, sed sir Archie baris ŝian vojon kaj devigis ŝin.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Sed en la sama momento la pordo malfermiĝis, kaj la mastrino tre rapide envenis.
@@ -749,9 +623,7 @@ Alian fojon sir Archie sidis en la dometo de Torarin kaj parolis kun Elseto.
 
 Ili estis solaj. Ili parolis bonhumore unu kun la alia kaj estis tre gajaj.
 
-Sir Archie parolis kun Elseto pri tio, ke ŝi akompanu lin al 38
-
-L A M O N O D E S I N J O RO A R N E
+Sir Archie parolis kun Elseto pri tio, ke ŝi akompanu lin al
 
 
 Skotlando. Tie li konstruos kastelon al ŝi kaj faros ŝin altranga kastelsinjorino. Li diris al ŝi, ke ŝi havos cent paĝiinojn sub si, kaj ke ŝi dancos ĉe la kortego de la reĝo.
@@ -779,9 +651,6 @@ La knabino fikse rigardis la manon per okuloj, kiuj ŝajne preskaŭ povus fali e
 ”Tiamaniere la haroj de mia nutrofratino estis vinditaj ĉir-kaŭ la mano de tiu, kiu mortigis ŝin,” ŝi diris.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 Sed nun sir Archie komencis ridi. Li rapide retiris sian manon.
 
 ”Jen,” li diris, ”vi kaj mi, Elseto, timigas nin kiel infanetoj.
@@ -803,9 +672,6 @@ Dum Elseto diris tion, sir Archie staris kun tiritaj brovoj kaj rigardis flanken
 Kaj sir Archie ne povis konsoli ŝin, sed lin forpelis larmoj kaj ĝemoj, kaj li iris al siaj trinkfratoj.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 III.
 
 Sir Archie ne povis kompreni, kial lia kapo ĉiam estas tiel plena de pezaj pensoj. Li ne forgesis ilin, kiam li parolis kun Elseto, kaj ankaŭ ne, kiam li sidis kaj trinkis kun siaj kamaradoj. Se li dancis en la bordmagazenoj ĝis la fino de la nokto, li ne povis forigi ilin, kaj li ne povis forkuri de ili, se li iris multmejle eksteren sur la glacikovrita maro.
@@ -814,9 +680,7 @@ Sir Archie ne povis kompreni, kial lia kapo ĉiam estas tiel plena de pezaj pens
 
 ”Estas al mi, kvazaŭ iu farus reton ĉirkaŭ mi,” diris sir Archie, ”por kapti ĉiujn miajn pensojn kaj lasi nur tiun solan.
 
-Mi ne povas vidi la ĉasiston, kiu metas la reton, sed mi aŭ-
-
-das liajn paŝojn, kiam li ŝteliras post mi.”
+Mi ne povas vidi la ĉasiston, kiu metas la reton, sed mi aŭdas liajn paŝojn, kiam li ŝteliras post mi.”
 
 ”Estas al mi, kvazaŭ pentristo irus antaŭ mi kaj pentrus ĉion, kion mi rigardas, sed ĉiam la saman bildon,” diris sir Archie. ”Se mi turnas la rigardojn al la ĉielo aŭ al la tero, mi tamen vidas nur unu aferon.”
 
@@ -824,9 +688,7 @@ das liajn paŝojn, kiam li ŝteliras post mi.”
 
 Sir Archie havis du amikojn, sir Filip kaj sir Regibald, kiuj ĉiam akompanis lin. Ili malĝojis pro tio, ke li ĉiam estas malgaja kaj ke nenio donas al li feliĉon.
 
-”Kio mankas al vi?” ili diris. ”Kial viaj okuloj tiel brulas, kaj kial viaj vangoj estas tiel palaj?” Sir Archie ne volis diri al ili, kio turmentas lin. Li pensis: ”Kion miaj kamaradoj dirus pri 41
-
-L A M O N O D E S I N J O RO A R N E
+”Kio mankas al vi?” ili diris. ”Kial viaj okuloj tiel brulas, kaj kial viaj vangoj estas tiel palaj?” Sir Archie ne volis diri al ili, kio turmentas lin. Li pensis: ”Kion miaj kamaradoj dirus pri
 
 
 mi, se ili trovus, ke min regas nevirecaj sentoj? Ili ne obeus min plu, se ili ekscius, ke min turmentas pento pro faro, kiu estis necesa.”
@@ -851,12 +713,7 @@ Kiam Elseto iris sur la plej malluma parto de la strateto, sir Reginald kaj sir 
 
 Elseto komencis timi, ke sir Archie povas esti tre malsana, kaj ŝi tuj returnis sin kaj sekvis la du skotajn sinjorojn, kiuj volis konduki ŝin al li.
 
-Sir Filip kaj sir Reginald iris unu ĉe ĉiu flanko de ŝi. Ili ri-42
-
-L A M O N O D E S I N J O RO A R N E
-
-
-detis unu al la alia kaj pensis, ke nenio povus esti pli facila ol ensorĉi Elseton.
+Sir Filip kaj sir Reginald iris unu ĉe ĉiu flanko de ŝi. Ili ridetis unu al la alia kaj pensis, ke nenio povus esti pli facila ol ensorĉi Elseton.
 
 Elseto tre rapidis. ŝi preskaŭ kuris malsupren sur la strateto. Sir Filip kaj sir Reginald devis fari longajn paŝojn por povi sekvi ŝin.
 
@@ -878,9 +735,7 @@ Sed ree ĝi ruliĝis antaŭ ŝiaj piedoj, kaj ŝi pensis: ”Vi venos pli rapide
 
 ”i brilas tiel blanke en la lunlumo.”
 
-Ili ĝuste tiam preteriris unu el la grandaj bordmagazenojn, kie fremdaj fiŝistoj loĝis, kiam ili restis en Marstrand por sia 43
-
-L A M O N O D E S I N J O RO A R N E
+Ili ĝuste tiam preteriris unu el la grandaj bordmagazenojn, kie fremdaj fiŝistoj loĝis, kiam ili restis en Marstrand por sia
 
 
 laboro. Antaŭ la enirejo pendis korna lanterno, kiu ĵetis malfortan lumon sur la straton.
@@ -907,12 +762,7 @@ Elseto enkuris al ili. La moneron ŝi tenis alte levita.
 
 ”Certe mi povas diferencigi tiun ĉi moneron de ĉiuj aliaj,”
 
-Elseto diris. ”i estas malnova kaj granda, kaj ĝi havas eltran-44
-
-L A M O N O D E S I N J O RO A R N E
-
-
-ĉaĵon ĉe la rando. Sinjoro Arne diris, ke ĝi estas el la tempo de la malnovaj norvegaj reĝoj, kaj neniam li fordonis ĝin por pagi iun aĉeton.”
+Elseto diris. ”i estas malnova kaj granda, kaj ĝi havas eltranĉaĵon ĉe la rando. Sinjoro Arne diris, ke ĝi estas el la tempo de la malnovaj norvegaj reĝoj, kaj neniam li fordonis ĝin por pagi iun aĉeton.”
 
 ”Nun vi rakontu, kie vi trovis ĝin,” diris iu alia el la fiŝistoj.
 
@@ -929,9 +779,6 @@ La fiŝistoj trovis, ke Torarin parolis saĝe. Ili ree eksidis ĉir-kaŭ la fajr
 Kiam Torarin diris tion, Elseto rigardis post sin al siaj akompanantoj. Sed sir Reginald kaj sur Filip jam ŝtele foriris, sen ke ŝi rimarkis tion.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 En la gastejo de la urbodomo
 
 La mastrino en la gastejo de la urbodomo iun matenon
@@ -946,12 +793,7 @@ Kiam ŝi venis al la mastrino, ŝi demandis, ĉu ekzistas ia ofico, kiun ŝi pov
 
 Tiam la mastrino pensis pri ĉiuj sovaĝoj viroj, kiuj en la vesperoj kutime sidis en la trinkejo trinkante bieron kaj vinon, kaj ŝi ne povis reteni rideton. ”Ne, tie ĉi ne estas ofico por tiel malforta fraŭlino kiel vi,” ŝi diris.
 
-La fraŭlino nek levis la okulojn nek faris la plej etan mo-von, sed ree ŝi petis pri dungiĝo. ŝi postulis nek manĝaĵon nek salajron, nur volis havi okupon por prizorgi. ”Ne,” la ma-46
-
-L A M O N O D E S I N J O RO A R N E
-
-
-strino diris, ”se mia propra filino estus kiel vi, mi malperme-sus tion al ŝi. Mi deziras al vi pli bonan sorton ol oficon ĉe mi.”
+La fraŭlino nek levis la okulojn nek faris la plej etan mo-von, sed ree ŝi petis pri dungiĝo. ŝi postulis nek manĝaĵon nek salajron, nur volis havi okupon por prizorgi. ”Ne,” la mastrino diris, ”se mia propra filino estus kiel vi, mi malperme-sus tion al ŝi. Mi deziras al vi pli bonan sorton ol oficon ĉe mi.”
 
 La juna fraŭlino malrapide supreniris la ŝtuparon, kaj la mastrino postrigardis ŝin. Tiam ŝi aspektis tiel malgranda kaj senhelpa, ke la mastrino ekkompatis ŝin.
 
@@ -965,17 +807,11 @@ La mastrino kondukis ŝin al malgranda ĉambro, kiun ŝi farigis malantaŭ la ga
 
 La juna knabino iris en la ĉambreton, kaj ŝi movis sin tiel silente, ke la mastrino pensis, ke estas kvazaŭ mortinto engli-tus en sian tombon.
 
-ŝi staris tie la tutan tagon, kaj ŝi nek parolis al iu nek klinis la kapon tra la giĉeto por rigardi la homojn, kiuj iris tien kaj reen en la gasteja salono. Kaj ŝi ankaŭ ne tuŝis la man-
+ŝi staris tie la tutan tagon, kaj ŝi nek parolis al iu nek klinis la kapon tra la giĉeto por rigardi la homojn, kiuj iris tien kaj reen en la gasteja salono. Kaj ŝi ankaŭ ne tuŝis la manĝaĵon, kiun oni metis al ŝi.
 
-ĝaĵon, kiun oni metis al ŝi.
+Neniu aŭdis ŝin fari bruon dum la lavado, sed kiam ajn la mastrino etendis la manon al la giĉeto, ŝi transdonis al ŝi freŝlavitajn pladojn kaj tasojn, sur kiuj ne estis eĉ la plej eta ma-kulo.
 
-Neniu aŭdis ŝin fari bruon dum la lavado, sed kiam ajn la mastrino etendis la manon al la giĉeto, ŝi transdonis al ŝi freŝ-
-
-lavitajn pladojn kaj tasojn, sur kiuj ne estis eĉ la plej eta ma-kulo.
-
-Sed kiam la mastrino prenis ilin por meti ilin sur la tablojn, ili estis tiel malvarmaj, ke ŝajnis al ŝi, ke ili povas forbruli la 47
-
-L A M O N O D E S I N J O RO A R N E
+Sed kiam la mastrino prenis ilin por meti ilin sur la tablojn, ili estis tiel malvarmaj, ke ŝajnis al ŝi, ke ili povas forbruli la
 
 
 haŭton de la fingroj. Kaj ŝi frostotremis kaj diris: ”Estas, kvazaŭ mi prenus ilin el la manoj de la malvarma morto.”
@@ -996,9 +832,7 @@ La alia tiam diris al ŝi per voĉo, kiu estis kaj senforta kaj sentona: ”Mia 
 
 Kiam Elseto aŭdis tion, ŝajnis al ŝi, ke vualo sternas sin sur ŝia komprenpovo. ŝi ne povis plu pensi aŭ miri aŭ senti timon. ŝi povis nur senti ĝojon pro tio, ke ŝi revidas sian nutrofratinon, kaj ŝi respondis: ”Jes, kara, mi volas tuj veni kaj helpi vin.”
 
-Tiam la mortinto iris al la pordo kaj Elseto sekvis ŝin. Sed kiam ili staris sur la sojlo, la nutrofratino de Elseto haltis kaj 48
-
-L A M O N O D E S I N J O RO A R N E
+Tiam la mortinto iris al la pordo kaj Elseto sekvis ŝin. Sed kiam ili staris sur la sojlo, la nutrofratino de Elseto haltis kaj
 
 
 diris al ŝi: ”Vi surmetu vian mantelon. Ekstere blovas forta ŝtormo.” Kaj kiam ŝi diris tion, ŝia voĉo sonis iom pli klara ol antaŭe kaj malpli sentona.
@@ -1011,12 +845,7 @@ La mortintino la tutan tempon iris du paŝojn antaŭ Elseto. Estis forta ŝtormo
 
 Kiam ili fine venis al la urbodomo, la mortintino malsup-reniris la gastejŝtuparon kaj mansignis al Elseto, ke ŝi sekvu.
 
-Sed kiam ili iris sur la ŝtuparo, la vento estingis la kandelon en la lanterno, kiu pendis en la vestiblo, kaj ili staris en mallumo. Tiam Elseto ne sciis, kien ŝi direktu siajn paŝojn, sed la mortintino devis meti sian manon sur la ŝian por konduki ŝin. Sed la mano de la mortintino estis tiel malvarma, ke Elseto ekskuiĝis kaj komencis tremegi pro teruro. Tiam la mortintino forprenis sian manon kaj ĉirkaŭvindis ĝin per la rando de la mantelo de Elseto, antaŭ ol ŝi ree provis konduki ŝin. Sed Elseto sentis la glacian malvarmon tra subŝtofo kaj peltaĵo. Jen la mortintino kondukis Elseton tra longa pasejo kaj poste malfermis pordon por ŝi. Ili venis en malgrandan, malluman ĉambreton, en kiun falis malforta lumo tra giĉe-49
-
-L A M O N O D E S I N J O RO A R N E
-
-
-to en la muro. Elseto vidis, ke ili troviĝas en ĉambro, kie ordinare staras la helpknabino de la mastrino por lavi pladojn kaj tasojn, kiujn ŝi bezonas por meti sur la tablojn al la gastoj.
+Sed kiam ili iris sur la ŝtuparo, la vento estingis la kandelon en la lanterno, kiu pendis en la vestiblo, kaj ili staris en mallumo. Tiam Elseto ne sciis, kien ŝi direktu siajn paŝojn, sed la mortintino devis meti sian manon sur la ŝian por konduki ŝin. Sed la mano de la mortintino estis tiel malvarma, ke Elseto ekskuiĝis kaj komencis tremegi pro teruro. Tiam la mortintino forprenis sian manon kaj ĉirkaŭvindis ĝin per la rando de la mantelo de Elseto, antaŭ ol ŝi ree provis konduki ŝin. Sed Elseto sentis la glacian malvarmon tra subŝtofo kaj peltaĵo. Jen la mortintino kondukis Elseton tra longa pasejo kaj poste malfermis pordon por ŝi. Ili venis en malgrandan, malluman ĉambreton, en kiun falis malforta lumo tra giĉeto en la muro. Elseto vidis, ke ili troviĝas en ĉambro, kie ordinare staras la helpknabino de la mastrino por lavi pladojn kaj tasojn, kiujn ŝi bezonas por meti sur la tablojn al la gastoj.
 
 Elseto povis videti, ke sur benketo staras akvokuvo, kaj en la giĉeto staris multaj pokaloj kaj vazoj, kiuj bezonis lavon.
 
@@ -1038,12 +867,7 @@ Dum ili tiel parolis, Elseto jam klinis sin super la laboron.
 
 Dum momento ĉio estis silenta, sed poste ŝi sentis malfortan bloveton sur la frunto, same kiel kiam la mortintino venis al ŝi en la kabano de Torarin. ŝi tiam levis la okulojn kaj rimarkis, ke ŝi estas sola. ŝi komprenis, kio sentiĝis kiel malforta vento sur ŝia frunto, kaj ŝi diris al si mem: ”Mia mortinta nutrofratino kisis mian frunton, antaŭ ol ŝi foriris.”
 
-Elseto nun unue pretigis sian laboron. ŝi lavis ĉiujn pelve-50
-
-L A M O N O D E S I N J O RO A R N E
-
-
-tojn kaj kruĉojn kaj viŝis ilin. Poste ŝi iris al la giĉeto por rigardi, ĉu oni metis novajn tien. ŝi ne trovis iujn, kaj ŝi tiam restis ĉe la giĉeto kaj rigardis en la gastejan salonon.
+Elseto nun unue pretigis sian laboron. ŝi lavis ĉiujn pelvetojn kaj kruĉojn kaj viŝis ilin. Poste ŝi iris al la giĉeto por rigardi, ĉu oni metis novajn tien. ŝi ne trovis iujn, kaj ŝi tiam restis ĉe la giĉeto kaj rigardis en la gastejan salonon.
 
 Estis tia momento en la tago, kiam gastoj ordinare ne venis al la gastejo. La mastrino ne sidis ĉe sia servotablo, kaj neniu el ŝiaj servistoj estis en la ĉambro. La solaj, kiuj troviĝis tie, estis tri viroj sidantaj ĉe la ekstremo de granda tablo. Ili estis gastoj, tamen ŝajnis tre hejmecaj tie, ĉar unu el ili, el-trinkinte sian pokalon, iris al la servotablo, plenigis ĝin el unu el la grandaj bareloj kun biero kaj vino, kiuj kuŝis tie, kaj ree eksidis por trinki.
 
@@ -1057,9 +881,7 @@ Dum la lastaj tagoj sir Archie ne venis al Elseto, kaj nun ŝi ekĝojis vidante 
 
 Elseto aŭdis, ke la aliaj provas gajigi lin. Ili demandis, kial li ne trinkas. Ili eĉ konsilis al li iri por interparoli kun Elseto por ree gajiĝi.
 
-”Ne pensu pri mi,” sir Archie diris. ”Estas iu alia pri kiu mi 51
-
-L A M O N O D E S I N J O RO A R N E
+”Ne pensu pri mi,” sir Archie diris. ”Estas iu alia pri kiu mi
 
 
 ĉiam pensas. ĉiam mi vidas ŝin antaŭ mi, kaj ĉiam ŝia voĉo sonas en miaj oreloj.”
@@ -1078,9 +900,7 @@ Subite ŝi rimarkis, ke la mortintino eksidis sur la benko apud sir Archie kaj f
 
 Sed sir Archie ankoraŭ ne sciis, ke ŝi estas tiel proksime, kaj ke ŝi sidas kaj flustras en lian orelon. Li rimarkis ŝian ĉeeston nur pro la terura angoro, kiu ekpremis lin.
 
-Elseto vidis, ke sir Archie metis sian kapon en la manojn kaj ploris, kiam la mortintino estis flustrinta al li dum kelkaj momentoj. ”Ho, ke mi neniam estu trovinta la fraŭlinon!” li 52
-
-L A M O N O D E S I N J O RO A R N E
+Elseto vidis, ke sir Archie metis sian kapon en la manojn kaj ploris, kiam la mortintino estis flustrinta al li dum kelkaj momentoj. ”Ho, ke mi neniam estu trovinta la fraŭlinon!” li
 
 
 diris. ”Mi pentas nur tion, ke mi ne lasis la fraŭlinon vivi, kiam ŝi petis min.”
@@ -1089,9 +909,7 @@ La du aliaj skotoj ĉesis trinki kaj ekrigardis timigite al sir Archie, kiu tiam
 
 Sed en la sama momento, kiam jenaj vortoj estis diritaj:
 
-”Trinku, mia frato! La mono de sinjoro Arne ankoraŭ daŭ-
-
-ras,” Elseto vidis, ke la mortintino levas sin de la benko kaj malaperas.
+”Trinku, mia frato! La mono de sinjoro Arne ankoraŭ daŭras,” Elseto vidis, ke la mortintino levas sin de la benko kaj malaperas.
 
 Kaj sammomente Elseto vidis antaŭ si tri virojn, kiuj havis grandajn barbojn kaj vilajn vestojn kaj kiuj batalis kontraŭ la domanoj de sinjoro Arne. Kaj nun ŝi ekkonis, ke ili estis la tri viroj, kiuj sidis en la gastejo: sir Archie, sir Filip kaj sir Reginald.
 
@@ -1099,9 +917,7 @@ III.
 
 Elseto iris el la ĉambro, kie ŝi staris kaj lavis la pokalojn de la mastrino, kaj silente fermis la pordon post si. En la mallarĝa pasejo ekster ĝi ŝi haltis. ŝi apogis sntraŭ la muron kaj tie staris senmova preskaŭ unu horon.
 
-Dum ŝi staris tie, ŝi pensis: ”Mi ne povas perfidi lin. Li estu farinta kion ajn malbonan, sed mia koro estas plena de amo 53
-
-L A M O N O D E S I N J O RO A R N E
+Dum ŝi staris tie, ŝi pensis: ”Mi ne povas perfidi lin. Li estu farinta kion ajn malbonan, sed mia koro estas plena de amo
 
 
 al li. Mi ne povas sendigi lin al la radoj. Mi ne povas vidi, ke oni forbrulos de li manon kaj piedon.”
@@ -1124,12 +940,7 @@ pensis. ”Neniu ĝojo kaj neniu feliĉo povas flori por mi post la malvarmo de 
 
 ”Estis antaŭ nur unu jaro,” ŝi pensis. ”Tiam mi estis tiel feliĉa, kiam la vintro finiĝis kaj la printempo venis. Mi memoras unu vesperon, ĝi estis tiel bela, ke mi ne povis resti hejme ĉe la domo. Tiam mi prenis la manon de mia nutrofratino, kaj ni iris en la terenon por preni verdajn foliojn por ornami la fornon.”
 
-ŝi memorigis al si, kiel ŝi kaj ŝia nutrofratino iris laŭ ver-54
-
-L A M O N O D E S I N J O RO A R N E
-
-
-da vojeto. Kaj tie apud la vojeto ili vidis malgrandan junbe-tulon, kiu estis dehakita. Vidante la lignon oni povis konklu-di, ke ĝi estas hakita antaŭ pluraj tagoj. Sed nun ili vidis, ke la kompatinda dehakita arbo komencis verdiĝi, kaj ke ĝiaj folioj trabreĉis la burĝonojn.
+ŝi memorigis al si, kiel ŝi kaj ŝia nutrofratino iris laŭ verda vojeto. Kaj tie apud la vojeto ili vidis malgrandan junbe-tulon, kiu estis dehakita. Vidante la lignon oni povis konklu-di, ke ĝi estas hakita antaŭ pluraj tagoj. Sed nun ili vidis, ke la kompatinda dehakita arbo komencis verdiĝi, kaj ke ĝiaj folioj trabreĉis la burĝonojn.
 
 Tiam ŝia nutrofratino haltis kaj klinis sin super la arbon.
 
@@ -1139,15 +950,11 @@ Tiam Elseto ridis al ŝi kaj respondis: ”Certe ĝi tiel dolĉe verdas por ke t
 
 Sed ŝia nutrofratino ne ridis. Al ŝi venis larmoj en la okulojn.
 
-”Estas granda peko faligi arbon dum la foliiĝo, kiam ĝi estas tiel plena de forto, ke ĝi ne povas morti. Estas terure por mortinto, kiam li ne povas ripozi en sia tombejo. Tiuj, kiuj mortis, ne povas atendi multan bonon, nek amo nek feli-
-
-ĉo povas atingi ilin. La sola bono, kiun ili ankoraŭ deziras, estas dormi en silenta trankvilo. ĉu mi ne ploru, kiam vi diras, ke la betulo ne povas morti pro tio, ke ĝi pensas pri siaj mortigintoj? Tamen estas la plej kruda sorto por iu, de kiu oni prenis la vivon, ke li ne povas dormi trankvile, ĉar li devas persekuti siajn murdintojn. La mortintoj ne povas cela-di al io alia ol dormado en trankvilo.
+”Estas granda peko faligi arbon dum la foliiĝo, kiam ĝi estas tiel plena de forto, ke ĝi ne povas morti. Estas terure por mortinto, kiam li ne povas ripozi en sia tombejo. Tiuj, kiuj mortis, ne povas atendi multan bonon, nek amo nek feliĉo povas atingi ilin. La sola bono, kiun ili ankoraŭ deziras, estas dormi en silenta trankvilo. ĉu mi ne ploru, kiam vi diras, ke la betulo ne povas morti pro tio, ke ĝi pensas pri siaj mortigintoj? Tamen estas la plej kruda sorto por iu, de kiu oni prenis la vivon, ke li ne povas dormi trankvile, ĉar li devas persekuti siajn murdintojn. La mortintoj ne povas cela-di al io alia ol dormado en trankvilo.
 
 Kiam Elseto memorigis al si tion, ŝi komencis plori kaj tordis siajn manojn.
 
-”Mia nutrofratino ne trovas trankvilon en sia tombo,” ŝi diris, ”se mi ne malkaŝos mian amaton. Se mi ne helpos ŝin pri tio, ŝi devas vagi sur la tero sen ripozo kaj trankvilo. Mia 55
-
-L A M O N O D E S I N J O RO A R N E
+”Mia nutrofratino ne trovas trankvilon en sia tombo,” ŝi diris, ”se mi ne malkaŝos mian amaton. Se mi ne helpos ŝin pri tio, ŝi devas vagi sur la tero sen ripozo kaj trankvilo. Mia
 
 
 kompatinda nutrofratino, ŝi povas deziri al si nur trankvilon en la tombo, kaj tion mi ne povas doni al ŝi sen sendi mian amaton al la radoj.”
@@ -1168,9 +975,7 @@ Li prenis la manojn de Elseto inter la siajn kaj metis ilin al siaj lipoj. ”Di
 
 Sed la koro de Elseto estis plena de doloro. Pro larmoj ŝi ne povis paroli eĉ tiom, kiom ŝi bezonis por diri al sir Archie, ke ŝi ne venis por renkonti lin.
 
-Sir Archie longe silentis, sed la tutan tempon li tenis la 56
-
-L A M O N O D E S I N J O RO A R N E
+Sir Archie longe silentis, sed la tutan tempon li tenis la
 
 
 manojn de Elseto inter la siaj. Kaj ju pli longe li staris tiel, des pli serena kaj bela fariĝis lia vizaĝo.
@@ -1181,18 +986,13 @@ Ili neniam lasis min trankvila, kaj mi kredis, ke mi komencas perdi mian mensosa
 
 Li klinis sin por ke li povu rigardi en la okulojn de Elseto, sed ĉar ŝi staris kun mallevitaj palpebroj, li daŭrigis: ”Vi estas kolera al mi, Elseto, pro tio ke mi ne venis al vi dum pluraj tagoj. Sed mi ne povis veni al vi, ĉar kiam mi vidis vin, mi ankoraŭ pli estis memorigata pri tio, kio turmentas min.
 
-Kiam mi vidis vin, mi devis ankoraŭ pli multe pensi pri fraŭ-
-
-lino, kontraŭ kiu mi malbone agis. Cetere, Elseto, mi malbone agis kontraŭ multaj homoj, sed mia konscienco persekutas min nur pro tio, kion mi faris kontraŭ la juna fraŭlino.”
+Kiam mi vidis vin, mi devis ankoraŭ pli multe pensi pri fraŭlino, kontraŭ kiu mi malbone agis. Cetere, Elseto, mi malbone agis kontraŭ multaj homoj, sed mia konscienco persekutas min nur pro tio, kion mi faris kontraŭ la juna fraŭlino.”
 
 Kiam Elseto ankoraŭ silentis, li ree prenis ŝiajn manojn, metis ilin al siaj lipoj kaj kisis ilin.
 
 ”Aŭskultu jen, Elseto, kion mia koro diris al mi, kiam mi ekvidis, ke vi staras tie ĉi kaj atendas min! ’Vi malbone agis kontraŭ fraŭlino’ ĝi diris al mi, ’tial vi al alia rebonigu la su-ferojn, kiujn vi kaŭzis al ŝi. Vi prenu ŝin kiel edzinon, kaj vi estu tiel bona al ŝi, ke ŝi neniam sentos malĝojon. Vi havu al ŝi tian fidelon, ke vi amos ŝin pli en via lasta vivotago ol en via edziĝotago’.”
 
 Elseto staris same kiel antaŭe kun mallevitaj okuloj. Tiam sir Archie metis sian manon sur ŝian kapon kaj levis ĝin. ”Mi devas scii, Elseto, ĉu vi aŭdas kion mi diras,” li diris.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Tiam li vidis, ke Elseto ploras tiel forte, ke grandaj larmoj falas sur la vangojn.
@@ -1211,9 +1011,7 @@ Sir Archie venis pli kaj pli proksime al ŝi, kaj kiam ŝi levis siajn rigardojn
 
 Li komencis flustri pli kaj pli amajn vortojn al la knabino, kaj ŝi ree pensis: ”ĉu ne estus pli plaĉe al Dio kaj homoj, se li povus rebonigi sian malbonan vivon kaj fariĝi justema ho-mo? Al kiu utilos, se oni punos kaj mortigos lin?”
 
-Kiam Elseto komencis pensi tiel, venis du viroj, kiuj inten-cis eniri en la kelon. Kiam sir Archie rimarkis, ke ili ĵetas sci-volajn rigardojn al li kaj la knabino, li diris al ŝi: 58
-
-L A M O N O D E S I N J O RO A R N E
+Kiam Elseto komencis pensi tiel, venis du viroj, kiuj inten-cis eniri en la kelon. Kiam sir Archie rimarkis, ke ili ĵetas sci-volajn rigardojn al li kaj la knabino, li diris al ŝi:
 
 
 ”Venu, Elseto, kaj mi akompanos vin hejmen! Mi ne volas, ke iu vidu, ke vi venis al mi en la kelo.”
@@ -1227,9 +1025,6 @@ Kiam ili iris, Elseto pensis dum la tuta tempo: ”Mia mortinta nutrofratino ne 
 Sir Archie ankoraŭ flustris la plej dolĉajn vortojn en la orelon de Elseto. Kaj ju pli longe Elseto aŭskultis al li, des pli certa fariĝis ŝia konv.
 
 ”Certe mia nutrofratino vokis min, por ke mi aŭskultu al sir Archie, kiam li flustras tiajn vortojn en mian orelon,” ŝi pensis. ”Tiom ŝi amas min. ŝi ne deziras al mi malfeliĉon sed feliĉon.” Kaj kiam ili haltis antaŭ la kabano, sir Archie ankoraŭ unu fojon demandis Elseton, ĉu ŝi volas akompani lin trans la maron. Kaj Elseto respondis, ke se Dio helpos, ŝi akompanos lin.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 La senpaculino
@@ -1250,9 +1045,7 @@ Nun mi tamen vidas, ke ne estas eble al mi akompani sir Archie kaj vivi la vivon
 
 Proksime al la vespero sir Archie venis al ŝi. Li estis tute
 
-ĝoja, malbonaj pensoj ne estis turmentintaj lin, kaj li kredis, 60
-
-L A M O N O D E S I N J O RO A R N E
+ĝoja, malbonaj pensoj ne estis turmentintaj lin, kaj li kredis,
 
 
 ke tion kaŭzis tio, ke li promesis fari bonon al fraŭlino pro la malbonfaro al alia.
@@ -1261,9 +1054,7 @@ Kiam Elseto vidis lin kaj aŭdis lin paroli, ŝi ne povis diri al li, ke ŝi est
 
 ĉiujn dolorojn, kiuj turmentis ŝin, ŝi forgesis, kiam ŝi aŭskultis al sir Archie.
 
-La posta tago estis dimanĉo, kaj tiam Elseto iris en la pre-
-
-ĝejon. ŝi iris tien kaj al la tagmeza diservo kaj al la vespera.
+La posta tago estis dimanĉo, kaj tiam Elseto iris en la preĝejon. ŝi iris tien kaj al la tagmeza diservo kaj al la vespera.
 
 Kiam ŝi dum la diservo sidis kaj aŭskultis al la pastro, ŝi aŭdis iun ĝemeti kaj plori tuj apud si.
 
@@ -1282,9 +1073,6 @@ Tiam Elseto pensis, ke ŝi tamen ne bezonas miri kaj demandi al si. ŝi tamen de
 ”Kara,” ŝi flustris, ”kial vi ne montras vin al mi, kiel vi faris antaŭhieraŭ? Vi ja tamen scias, ke mi volonte faros ĉion, kion mi povos, por forviŝi viajn larmojn.”
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 ŝi aŭskultis por respondo, sed respondo ne venis. ŝi nur aŭdis, kiel la mortintino plorĝemetas apud ŝi.
 
 Elseto provis aŭskulti al tio, kion la pastro diris sur sia ka-tedro, sed ŝi malmulte povis sekvi tion, kion li diris. Kaj ŝi fariĝis malpacienca kaj flustris: ”Mi konas iun, kiu havas pli gravajn motivojn ol iu alia por plori, kaj tio estas mi mem. Se mia nutrofratino ne estus sciiginta al mi, kiuj estas ŝiaj murdintoj, tiam mi povus sidi tie ĉi kun la koro plena de ĝojo.”
@@ -1295,17 +1083,13 @@ Dum ŝi aŭskultis al la plorado, ŝi incitiĝis pli kaj pli, kaj ŝi pensis: �
 
 Sed ĉiam pli profundaj kaj pezaj fariĝis la plorĝemetoj, kiujn ŝi aŭdis apud si, kaj fine ŝia koro tamen estis tuŝata, tiel ke ŝi mem komencis plori.
 
-”Tiu, kiu tiel ploras, certe devas havi terure pezan mal-
-
-ĝojon,” ŝi pensis. ”Tiu certe portas suferon pli pezan ol iu vivanto povas kompreni.”
+”Tiu, kiu tiel ploras, certe devas havi terure pezan malĝojon,” ŝi pensis. ”Tiu certe portas suferon pli pezan ol iu vivanto povas kompreni.”
 
 Kiam la diservo estis finita kaj Elseto venis el la preĝejo, ŝi ne aŭdis plu tiun plorĝemadon. Sed dum la tuta vojo hejmen ŝi mem iris plorante pro tio, ke ŝia nutrofratino ne povas trovi ripozon en sia tombo.
 
 Kiam ree estis diservo en la vespero, Elseto denove iris al la preĝejo, ĉar ŝi volis scii, ĉu ŝia nutrofratino ankoraŭ sidas tie plorante.
 
-Kaj tuj kiam Elseto eniris la preĝejon, ŝi aŭdis ŝin, kaj ŝia 62
-
-L A M O N O D E S I N J O RO A R N E
+Kaj tuj kiam Elseto eniris la preĝejon, ŝi aŭdis ŝin, kaj ŝia
 
 
 animo tremis en ŝi, kiam sonis la plorĝemetoj. ŝi sentis, ke ŝia forto malaperas, kaj ŝi havis volon nur por helpi la mortintinon, kiu senpace iras inter la homoj.
@@ -1331,9 +1115,6 @@ Sed subite ŝi rimarkis, ke ĉiuj preĝejvizitintoj flankeniris al alia direkto,
 Larmoj ekvenis en ŝiajn okulojn, kaj suspire ŝi diris: ”Ke ŝi tamen ne povas trovi ripozon en sia tombo! Ve al mi, ĉar ŝi devis vagi tie ĉi tiel longe, ke sango fluas el ŝiaj piedoj!”
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 ”Haltu, mia kara nutrofratino!” ŝi vokis. ”Haltu, por ke mi povu paroli kun vi!”
 
 Sed kiam ŝi kriis tion, ŝi vidis, ke la piedspuroj ankoraŭ pli rapide metas sin sur la neĝon, kvazaŭ la mortintino plirapi-digus siajn paŝojn.
@@ -1348,9 +1129,7 @@ La sangaj piedspuroj tute malekvilibrigis ŝin, kaj ŝi elvokis:
 
 Baldaŭ post kiam Elseto diris tiujn vortojn, venis al ŝi alt-kreska virino, kiu estis postirinta ŝin, kaj metis sian manon sur ŝian brakon.
 
-”Kiu estas vi, kiu iras tie ĉi sur la strato kaj ploras kaj tor-das la manojn?” la virino diris. ”Vi similas al malgranda fraŭ-
-
-lino, kiu venis al mi lastvendrede kaj petis pri ofico kaj poste ne revenis al mi. Aŭ ĉu vi estas ŝi?”
+”Kiu estas vi, kiu iras tie ĉi sur la strato kaj ploras kaj tor-das la manojn?” la virino diris. ”Vi similas al malgranda fraŭlino, kiu venis al mi lastvendrede kaj petis pri ofico kaj poste ne revenis al mi. Aŭ ĉu vi estas ŝi?”
 
 ”Ne, mi ne estas tiu,” Elseto diris, ”sed se estas tiel, kiel mi kredas, ke vi estas la mastrino en la gastejo de la urbodomo, tiam mi scias, pri kiu fraŭlino vi parolas.”
 
@@ -1362,19 +1141,11 @@ lino, kiu venis al mi lastvendrede kaj petis pri ofico kaj poste ne revenis al m
 
 ”Tamen la fraŭlino aŭdis, kiam tri viroj sidis tie kaj parolis unu kun la alia,” Elseto diris, ”kaj unu el ili diris: ’Trinku, mia frato! Ankoraŭ daŭras la mono de sinjoro Arne!’ ”
 
-Dirinte tion Elseto pensis: ”Nun mi helpis mian nutrofra-64
-
-L A M O N O D E S I N J O RO A R N E
-
-
-tinon kaj diris, kion mi aŭdis. Nun Dio helpu min, tiel ke la mastrino ne kredu miajn vortojn, kaj mi ne havos kulpon.”
+Dirinte tion Elseto pensis: ”Nun mi helpis mian nutrofratinon kaj diris, kion mi aŭdis. Nun Dio helpu min, tiel ke la mastrino ne kredu miajn vortojn, kaj mi ne havos kulpon.”
 
 Sed kiam ŝi el la mieno de la mastrino komprenis, ke tiu kredas ŝin, ŝi ektimis kaj volis forkuri. Sed antaŭ ol ŝi trovis tempon por fari eĉ unu paŝon, la peza mano de la mastrino firme ekprenis ŝin, tiel ke ŝi ne povis forkuri.
 
 ”Se vi aŭdis, ke tiaj vortoj estis dirataj en mia trinkejo, fraŭlino,” la mastrino diris, ”tiam vi ne povas forkuri. Sed vi devas akompani min al tiuj, kiuj havas potencon kaj volon por kapti la murdintojn kaj havigi al ili ilian punon.”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 La forkuro de sir Archie
@@ -1398,9 +1169,6 @@ Elseto sidis pala kiel mortinto. ŝiaj pensoj estis tiel konfu-zitaj, ke ŝi ape
 ”Neniu scias, ĉu tia homo restos fidela al sia promeso.”
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 Antaŭ ol sir Archie trovis tempon por respondi, maristo venis en la gastejon.
 
 Li iris al sir Archie kaj diris al li, ke li estas sendita de la estro sur la granda galeaso, kiu kuŝas frostfiksita malantaŭ Trifoliinsulo. Nun la ŝipestro petis, ke sir Archie kaj ĉiuj liaj viroj tiun ĉi vesperon pretigu sian pakaĵon kaj venu sur la ŝipon. La ŝtormo ree komenciĝis, kaj la maro komencis liberiĝi de glacio malproksime en la okcidento. Povus esti, ke oni antaŭ la tagiĝo havus liberan vojon al Skotlando.
@@ -1422,9 +1190,6 @@ Kiam Elseto vidis, ke sir Archie revenas al ŝi, ŝi forige man-gestis, kvazaŭ 
 ”Vi ja tamen scias, sir Archie, ke mi ne povas akompani vin,” Elseto diris.
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 ”Kial vi ne povas?” sir Archie diris. ”Vi estas tiel sola kaj malriĉa knabino kaj neniu priatentas, kio okazos al vi. Sed se vi venos kun mi, mi faros vin potenca sinjorino. Mi estas altranga viro en mia propra lando. Vi iros vestita per silko kaj oro, kaj vi dancos ĉe la kortego de la reĝo.”
 
 Elseto timtremis pro tio, ke li restas ĉe ŝi, kiam ankoraŭ estas eble al li forkuri. Apenaŭ ŝi trovis trankvilon respondi lin: ”Vi nun foriru, sir Archie! Vi ne restu pli longe por peti min.”
@@ -1440,9 +1205,6 @@ En la sama momento Elseto aŭdis, ke armitaj homoj paŝas sur la placo antaŭ la
 ”Jes, mi aŭdas,” sir Archie diris, ”verŝajne estis batalo en iu trinkejo. Vi ne estu maltrankvila, Elseto! Estas nur iuj fiŝistoj, kiuj komencis disputi pri vetero kaj vento.”
 
 ”Sir Archie,” Elseto diris, ”ĉu vi ne aŭdas, ke ili haltas an-taŭ la urbodomo?”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Elseto tremis en la tuta korpo, sed sir Archie ne rimarkis tion, sed estis tute trankvila.
@@ -1468,9 +1230,6 @@ Mi diras al mi, ke se mia patro nun volus edzigi min al la plej nobla fraŭlino 
 Pli kaj pli da soldatoj kolektiĝis ĉe la pordo, kaj Elseto ne povis plu elteni pro timpremo. ”Mi ne povas elteni tion, ke ili venos kaj kaptos lin,” ŝi pensis. ŝi klinis sin al sir Archie kaj flustris al li:
 
 
-L A M O N O D E S I N J O RO A R N E
-
-
 ”ĉu vi ne aŭdas, sir Archie, ke la soldatoj demandas la mastrinon, ĉu la murdintoj de sinjoro Arne estas tie ĉi en la salono?”
 
 Tiam sir Archie ĵetis rigardon internen en la ĉambron kaj rigardis la soldatojn, kiuj parolis kun la mastrino. Sed li ne ekstaris por forkuri, kiel atendis Elseto, sed li klinis sin profunde kaj rigardis en la okulojn de Elseto. ”ĉu estas vi, Elseto, kiu rekonis kaj perfidis min?” li demandis.
@@ -1485,14 +1244,9 @@ Sed Elseto metis sian manon sur lian brakon.
 
 Sed sir Archie estis tre kolera, kaj li parolis moke al Elseto.
 
-”Nun, fraŭlino, vi neniam iros en orbroditaj ŝuoj tra grandaj kastelaj salonoj. Nun vi dum via tuta vivo restos tie ĉi en Marstrand kaj senintestigos fiŝojn. Neniam vi ricevos edzon, kiu havas kastelon kaj feŭdon, Elseto. Via edzo estos malri-
-
-ĉa fiŝisto, kaj via domo estos kabano sur nuda insuleto.”
+”Nun, fraŭlino, vi neniam iros en orbroditaj ŝuoj tra grandaj kastelaj salonoj. Nun vi dum via tuta vivo restos tie ĉi en Marstrand kaj senintestigos fiŝojn. Neniam vi ricevos edzon, kiu havas kastelon kaj feŭdon, Elseto. Via edzo estos malriĉa fiŝisto, kaj via domo estos kabano sur nuda insuleto.”
 
 ”ĉu vi ne aŭdas, ke ili postenigas gardistojn ĉe ĉiuj pordoj kaj mallevas lancojn antaŭ la enirejoj?” Elseto demandis.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 ”Kial vi ne rapidas de tie ĉi? Kial vi ne forkuras sur la glacion, kaj kaŝas vin sur iu ŝipo?”
@@ -1507,9 +1261,7 @@ L A M O N O D E S I N J O RO A R N E
 
 Tie ili intencas trapiki min per siaj longaj lancoj. Estas ja tio, kion vi ĉiam deziris al mi, Elseto.”
 
-Sed ju pli timigita montris sin Elseto, des pli trankvila fari-
-
-ĝis sir Archie. ŝi ankoraŭ petis, ke li forkuru, sed li ridis al ŝi.
+Sed ju pli timigita montris sin Elseto, des pli trankvila fariĝis sir Archie. ŝi ankoraŭ petis, ke li forkuru, sed li ridis al ŝi.
 
 ”Vi ne estu certa pri tio, fraŭlino, ke la soldatoj povos kapti min. Mi estis en pli grandaj danĝeroj ol tiu ĉi, kaj savis min.
 
@@ -1517,9 +1269,7 @@ Estis pli malbone por mi antaŭ kelkaj monatoj en Svedlando. Estis kelkaj kalumn
 
 ”Forkuru, sir Archie, forkuru!” Elseto petis.
 
-”Vi ne estu maltrankvila pro mi, Elseto,” sir Archie diris kaj ridis krude. ”Hodiaŭ vespere mi ree similas al mi mem, nun mi ree havas mian malnovan humoron. Nun mi ne vidas plu la junan fraŭlinon antaŭ miaj okuloj. Do mi certe 71
-
-L A M O N O D E S I N J O RO A R N E
+”Vi ne estu maltrankvila pro mi, Elseto,” sir Archie diris kaj ridis krude. ”Hodiaŭ vespere mi ree similas al mi mem, nun mi ree havas mian malnovan humoron. Nun mi ne vidas plu la junan fraŭlinon antaŭ miaj okuloj. Do mi certe
 
 
 trapasos la malfacilaĵojn. Mi rakontos al vi pri la tri viroj, kiuj sidis en la malliberejo de reĝo Johano. Iun nokton, kiam la gardistoj estis ebriaj, ili ŝteliris el la turo kaj forkuris. Poste ili kuris al la limo. Sed tiel longe, ke ili iris en la lando de la sveda reĝo, ili ne kuraĝis malkaŝi, kiuj ili estas. Kiam ili ne povis trovi alian eliron, Elseto, ili havigis al si vestojn el vila felo kaj diris, ke ili estas tanistaj submajstroj, kiuj iras tra la lando por serĉi laboron.”
@@ -1532,9 +1282,7 @@ Nun Elseto komencis rimarki, kiel sir Archie ŝanĝiĝis rilate al ŝi. Kaj ŝi 
 
 ”Ne plu parolu pri tio!” Elseto diris.
 
-”Tamen jes, nun vi aŭdos ĉion.” sir Archie diris. ”Estas afero, kiun vi ne konas, nome ke unue, kiam ni venis en la pastrodomon, ni iris al sinjoro Arne, vekis lin kaj diris al li, ke li donu al ni monon. Se li farus tion, ni farus neniun malbonon al li. Sed sinjoro Arne ekbatalis kontraŭ ni, kaj tiam ni devis mortigi lin. Kaj mortiginte lin ni devis mortigi ĉiujn liajn do-manojn.” Elseto ne interrompis lin plu, sed fariĝis senenha-ve kaj malvarme en ŝia koro. ŝi frostotremis, kiam ŝi vidis kaj 72
-
-L A M O N O D E S I N J O RO A R N E
+”Tamen jes, nun vi aŭdos ĉion.” sir Archie diris. ”Estas afero, kiun vi ne konas, nome ke unue, kiam ni venis en la pastrodomon, ni iris al sinjoro Arne, vekis lin kaj diris al li, ke li donu al ni monon. Se li farus tion, ni farus neniun malbonon al li. Sed sinjoro Arne ekbatalis kontraŭ ni, kaj tiam ni devis mortigi lin. Kaj mortiginte lin ni devis mortigi ĉiujn liajn do-manojn.” Elseto ne interrompis lin plu, sed fariĝis senenha-ve kaj malvarme en ŝia koro. ŝi frostotremis, kiam ŝi vidis kaj
 
 
 aŭdis lin, ĉar kiam li parolis, li ekhavis kruelan kaj sangosoi-fan aspekton. ”Kion mi volis fari?” ŝi pensis. ”ĉu mi estis freneza amante tiun, kiu murdis ĉiujn miajn? Dio pardonu al mi mian pekon!”
@@ -1553,14 +1301,10 @@ Nun Elseto sidis trankvila. ŝi sentis brulvundan doloron en sia koro. Sed sir A
 
 Sir Archie haltis por ĵeti mokan rigardon al Elseto.
 
-”Kvankam ĉio tio bone sukcesis al ni, ni tamen estis en 73
-
-L A M O N O D E S I N J O RO A R N E
+”Kvankam ĉio tio bone sukcesis al ni, ni tamen estis en
 
 
-malbona situacio. Kien ajn ni venus en niaj sangomakulitaj vestoj, oni rekonus kaj kaptus nin. Sed jen aŭskultu, Elseto, por ke vi povu diri tion al ĉiuj, kiuj volas klopodi persekuti nin, por ke ili komprenu, ke ni ne estas facile kapteblaj. Aŭ-
-
-du, kiam ni venis irante sur la glacio al Marstrand, ni renkontis niajn samlandanojn kaj kamaradojn, kiujn la reĝo Johano sendis el sia lando. Ili ne estis povintaj forlasi Marstrand pro la glacio, kaj ili helpis nin en nia mizero, donante vestojn al ni. De tiam ni sendanĝere ĉirkaŭiris tie ĉi en Marstrand. Kaj neniu danĝero nun minacus nin, se vi ne estus malfidele per-fidinta min.”
+malbona situacio. Kien ajn ni venus en niaj sangomakulitaj vestoj, oni rekonus kaj kaptus nin. Sed jen aŭskultu, Elseto, por ke vi povu diri tion al ĉiuj, kiuj volas klopodi persekuti nin, por ke ili komprenu, ke ni ne estas facile kapteblaj. Aŭdu, kiam ni venis irante sur la glacio al Marstrand, ni renkontis niajn samlandanojn kaj kamaradojn, kiujn la reĝo Johano sendis el sia lando. Ili ne estis povintaj forlasi Marstrand pro la glacio, kaj ili helpis nin en nia mizero, donante vestojn al ni. De tiam ni sendanĝere ĉirkaŭiris tie ĉi en Marstrand. Kaj neniu danĝero nun minacus nin, se vi ne estus malfidele per-fidinta min.”
 
 Elseto sidis senmova. Estis tro granda malĝojo por ŝi. ŝi apenaŭ povis senti sian koron bati.
 
@@ -1574,9 +1318,7 @@ En la sama momento li ekprenis Elseton per ambaŭ siaj manoj kaj levis ŝin. Kaj
 
 Kiam sir Archie venis sur la mallarĝan ŝtuparon kaj en la vestiblon, li etendis antaŭ si Elseton en la sama maniero. Kaj ŝi pli bone ŝirmis lin ol la plej bona kiraso, ĉar la soldatoj, kiuj staris tie, ne povis uzi siajn armilojn. Tiamaniere li kuris grandan parton de la ŝtuparo, kaj Elseto sentis la liberajn ventojn de la ĉielo blovi kontraŭ ilin.
 
-Sed Elseto ne plu sentis amon al sir Archie, sed ĝismortan malamon, kaj ŝi pensis nur pri tio, ke li estas malbona murdinto. Kaj kiam ŝi nun vidis, ke ŝi ŝirmas lin per sia korpo, tiel 74
-
-L A M O N O D E S I N J O RO A R N E
+Sed Elseto ne plu sentis amon al sir Archie, sed ĝismortan malamon, kaj ŝi pensis nur pri tio, ke li estas malbona murdinto. Kaj kiam ŝi nun vidis, ke ŝi ŝirmas lin per sia korpo, tiel
 
 
 ke li preskaŭ povas savi sin, ŝi etendis sian manon kaj tiris al si unu el la lancoj tenataj de la soldatoj kaj direktis ĝntraŭ sian koron. ”Nun mi volas tiel servi al mia nutrofratino, ke tiu komisio baldaŭ estos plenumita,” Elseto pensis. Kaj je la posta paŝo, kiun sir Archie faris supren sur la ŝtuparo, la lanco penetris en la koron de Elseto.
@@ -1588,9 +1330,6 @@ Kiam sir Archie venis sur la placon, li aŭdis soldataran krion el iu strateto k
 Estis sir Filip kaj sir Reginald, kiuj estis kolektintaj la skotojn kaj nun venis por helpi lin. Kaj sir Archie kuris kontraŭ ilin kaj kriis per laŭta voĉo: ”Tien ĉi! Tien ĉi! Por Skotlando!
 
 Por Skotlando!”
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Trans la glacion
@@ -1615,9 +1354,7 @@ Sed mi pretigos al ŝi kuŝejon el la plej molaj kusenoj, kaj ŝian ripozejon mi
 
 ”ĉar kiu tiam donus al si tempon memori pri tia malriĉa kompatindulino? Post nur kelkaj monatoj ĉiuj forgesus ŝin.
 
-Neniu venus al ŝia loĝejo, neniu vizitus ŝin en ŝia soleco. Sed kiam mi iam atingos mian hejmon, mi tie konstruigos belan 76
-
-L A M O N O D E S I N J O RO A R N E
+Neniu venus al ŝia loĝejo, neniu vizitus ŝin en ŝia soleco. Sed kiam mi iam atingos mian hejmon, mi tie konstruigos belan
 
 
 loĝejon. Tie ŝia nomo staros enĉizita en malmola ŝtono, por ke neniu forgesu ĝin. Tie mi mem iros al ŝi ĉiun tagon, kaj tie ĉio estos tiel bele aranĝita, ke homoj venos vojaĝante de malproksime por viziti ŝin. Tie kandeloj kaj lampoj brulos tage kaj nokte, kaj tie sonos kantado kaj muziko, kvazaŭ tie estus senfina festeno.”
@@ -1627,9 +1364,6 @@ La ŝtormo fortege venis kontraŭ ilin, dum ili iris sur la glacio. i ŝire malf
 ”ĉu vi volas helpi min porti Elseton dum momento,” sir Archie diris, ”dum mi volvas ŝian mantelon ĉirkaŭ ŝin?”
 
 Sir Reginald prenis Elseton sur siajn brakojn, sed en la sama momento tia teruro kaptis lin, ke li lasis ŝin gliti el siaj manoj sur la glacion. ”Mi ne sciis, ke Elseto mortis!” li diris.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 La muĝo de la ondoj
@@ -1644,13 +1378,7 @@ Kiam la ŝtormo preterflugis la frostfiksitan galeason, ĝi kvazaŭ laŭ malnova
 
 Ne estis silenta nokto. Oni aŭdis kvazaŭ malfortan grincadon en la aero, kiam la neĝo siblante alblovis. Kraketado kaj plaŭdado aŭdiĝis, kiam la pluvo estis vipata malsupren.
 
-Sed en la glacio estiĝis unu fendo post la alia, kaj tiam aŭ-
-
-
-L A M O N O D E S I N J O RO A R N E
-
-
-diĝis tondro, kvazaŭ militŝipoj kuŝus sur la maro kaj deŝar-gus fortajn pafojn unu kontraŭ la alian.
+Sed en la glacio estiĝis unu fendo post la alia, kaj tiam aŭdiĝis tondro, kvazaŭ militŝipoj kuŝus sur la maro kaj deŝar-gus fortajn pafojn unu kontraŭ la alian.
 
 Sed la ŝipestro ne aŭskultis por aŭdi ion el tio. Li iris sur la ferdeko la tutan nokton, ĝis griza taglumo disvastiĝis sur la ĉielo, sed li tamen ne aŭdis tion, kion li volis aŭdi.
 
@@ -1662,9 +1390,7 @@ Kiam fine tiom heliĝis, ke ili povis vidi tion, kio okazis dum la nokto, ili tr
 
 Kaj en la akvokolo, kiu kondukis el la golfo turigis sin alta muro de glacio. La ondoj, kiuj libere ludis ekster ĝi, suprenĵetis tien unu glacitavolaĵon post la alia.
 
-Veloj svarmis ekstere en la akvokoloj. Estis ĉiuj fiŝistoj, kiuj estis frostfiksitaj en Marstrand kaj nun forrapidis de tie. La ondoj ĵetis sin alten, kaj glacipecoj ankoraŭ dancis sur la ondoj, sed kredeble ŝajnis al la fiŝistoj, ke ili ne havas tempon atendi trankvilan kaj sendanĝeran maron, sed ili jam komencis sian veturon. Ili staris en la pruo de siaj ŝipetoj kaj akre observis. La malgrandajn glacipecojn ili forigis per remilo, 79
-
-L A M O N O D E S I N J O RO A R N E
+Veloj svarmis ekstere en la akvokoloj. Estis ĉiuj fiŝistoj, kiuj estis frostfiksitaj en Marstrand kaj nun forrapidis de tie. La ondoj ĵetis sin alten, kaj glacipecoj ankoraŭ dancis sur la ondoj, sed kredeble ŝajnis al la fiŝistoj, ke ili ne havas tempon atendi trankvilan kaj sendanĝeran maron, sed ili jam komencis sian veturon. Ili staris en la pruo de siaj ŝipetoj kaj akre observis. La malgrandajn glacipecojn ili forigis per remilo,
 
 
 sed kiam la grandaj venis, ili turnis la direktilojn kaj iris flanken. Sur la galeaso la ŝipestro staris sur la altkonstruita ŝipanara kajuto kaj postrigardis ilin. Li komprenis, ke ili havas malfacilan vojaĝon, sed li ankaŭ vidis, ke unu post la alia iel trapasas kaj atingas la maron.
@@ -1682,9 +1408,6 @@ Sed kiam la ŝipestro vidis la glacimontojn naĝi suden kaj la cignojn flugi nor
 ”Kiam la glacio rompiĝos en tiu ĉi golfo? Tie ĉi mi devas kuŝi ankoraŭ multajn tagojn kaj atendi.”
 
 Sed kiam li pensis tion, li ekvidis veturantan homon alveni sur la glacio. Li venis el mallarĝa akvokolo en la direkto al Marstrand, kaj li tute sentime veturis sur la glacio, kvazaŭ li ne scius, ke la ondoj ree komencis porti ŝipojn kaj ŝipetojn.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 Kiam li alveturis apud la galeason, li vokis supren al la ŝipestro:
@@ -1707,12 +1430,7 @@ Kiam li staris antaŭ la ŝipestro, li diris al li kun granda se-riozo:
 
 la ŝipestro diris terurite.
 
-”Vi vidas, ke mi estas malforta kaj senpova homo,” Torarin diris. ”Unu el miaj brakoj estas paralizita, kaj tial mi timas ĵeti min en iun danĝeran entreprenon. Mi dum kelkaj semaj-81
-
-L A M O N O D E S I N J O RO A R N E
-
-
-noj sciis, kiuj estas la murdintoj de sinjoro Arne, sed mi ne kuraĝis provi venĝi al ili. Sed ĉar mi silentis, ili nun povis forkuri kaj havis okazon kunpreni la fraŭlinon. Kaj nun mi diris, ke mi volas havi nenion pli por penti en tiu ĉi afero. Mi almenaŭ volas provi savi la junan fraŭlinon.”
+”Vi vidas, ke mi estas malforta kaj senpova homo,” Torarin diris. ”Unu el miaj brakoj estas paralizita, kaj tial mi timas ĵeti min en iun danĝeran entreprenon. Mi dum kelkaj semajnoj sciis, kiuj estas la murdintoj de sinjoro Arne, sed mi ne kuraĝis provi venĝi al ili. Sed ĉar mi silentis, ili nun povis forkuri kaj havis okazon kunpreni la fraŭlinon. Kaj nun mi diris, ke mi volas havi nenion pli por penti en tiu ĉi afero. Mi almenaŭ volas provi savi la junan fraŭlinon.”
 
 ”Se la murdintoj de sinjoro Arne estas tie ĉi sur la ŝipo, kial la urba gardistaro do ne venas tien ĉi kaj kaptas ilin?”
 
@@ -1730,9 +1448,7 @@ Dum momento la ŝipestro staris silenta kaj ĉirkaurigardis al ĉiuj flankoj.
 
 ”Kiam vi opinias, ke la glacio foriros tie ĉi en la golfo?” li diris al Torarin.
 
-”Estas strange tie ĉi en tiu ĉi jaro,” Torarin diris. ”En tiu ĉi 82
-
-L A M O N O D E S I N J O RO A R N E
+”Estas strange tie ĉi en tiu ĉi jaro,” Torarin diris. ”En tiu ĉi
 
 
 golfo la glacio ordinare frue foriras, ĉar estas forta fluo. Sed kiel nun estas, vi devas gardi vin, ke la glacio ne ŝovu vin sur la bordon, kiam ĝi ekmoviĝos.”
@@ -1749,9 +1465,7 @@ Kaj la ŝipestro foriris kaj diris al siaj homoj:
 
 ”Karaj,” li diris al ili, ”estu trankvilaj ankoraŭ dum iom da tempo, kiujn ajn kriojn kaj bruon vi aŭdos surŝipe! Ni devas obei la ordonojn de Dio, kaj ne toleri malbonfarantojn inter ni. Se vi obeos min, mi promesas, ke mi enmetos al vi tiun keston, kie estas la mono de sinjoro Arne, kaj vi povos dividi ĝin inter vi.”
 
-Sed al Torarin la ŝipestro diris: ”Iru al la sledo kaj ĵetu vian 83
-
-L A M O N O D E S I N J O RO A R N E
+Sed al Torarin la ŝipestro diris: ”Iru al la sledo kaj ĵetu vian
 
 
 fiŝon sur la glacion! Vi nun ricevos alian ŝarĝon por veturigi.” Poste la ŝipestro kaj liaj homoj eniris en la kajuton, kie dormis sir Archie kaj liaj amikoj. Kaj kiam ili ankoraŭ kuŝis en dormo, ili ĵetis sin sur ilin por ligi ilin.
@@ -1768,9 +1482,7 @@ Sed antaŭ ol Torarin trovis tempon ĵeti la fiŝon el la sledo, la ŝipestro ka
 
 Ili kuŝigis la kaptitojn sur la sledon de Torarin, kaj tra mallarĝaj golfoj kaj akvokoloj, kie la glacio ankoraŭ kuŝis firme, Torarin veturigis ilin al Marstrand. Sed dum la posttagmezo la ŝipestro staris sur la alta ŝipanara kajuto de sia ŝipo kaj rigardis al la maro. ĉio ankoraŭ estis tute sama ĉirkaŭ la ŝipo, kaj la glacimuro antaŭ ĝi daŭre turigis sin pli kaj pli alten.
 
-Tiam la ŝipestro vidis, ke longa vico da homoj venas al lia ŝipo. Estis ĉiuj virinoj en Marstrand, junaj kaj maljunaj. Ili 84
-
-L A M O N O D E S I N J O RO A R N E
+Tiam la ŝipestro vidis, ke longa vico da homoj venas al lia ŝipo. Estis ĉiuj virinoj en Marstrand, junaj kaj maljunaj. Ili
 
 
 ĉiuj portis funebrajn vestojn, kaj ili kondukis kun si junajn knabojn, kiuj portis portliton.
@@ -1779,14 +1491,9 @@ Kiam ili venis al la galeaso, ili diris al la ŝipestro.
 
 ”Ni venis tien ĉi por reporti junan fraŭlinon, kiu estas mortinta. Tiuj murdintoj konfesis, ke ŝi donis sian vivon, por ke ili ne povu savi sin, kaj nun ni, ĉiuj virinoj en Marstrand, venis por reporti ŝin al nia urbo kun ĉiu honoro, kiun ŝi meritas.”
 
-Tiam oni trovis Elseton kaj portis ŝin sur la glacion kaj al Marstrand, kaj ĉiuj virinoj en la urbo ploris pro la juna fraŭ-
-
-lino, kiu amis malbonfarulon kaj donis sian vivon por pereigi tiun, kiun ŝi amis.
+Tiam oni trovis Elseton kaj portis ŝin sur la glacion kaj al Marstrand, kaj ĉiuj virinoj en la urbo ploris pro la juna fraŭlino, kiu amis malbonfarulon kaj donis sian vivon por pereigi tiun, kiun ŝi amis.
 
 Sed laŭ la antaŭeniro de la virinoj ŝtormo kaj ondoj venis post ili kaj rompis la glacion, kie ili ĵus iris, tiel ke ĉiuj pordoj al la maro estis malfermitaj, kiam ili venis al Marstrand kun Elseto.
-
-
-L A M O N O D E S I N J O RO A R N E
 
 
 www.omnibus.se/

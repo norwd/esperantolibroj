@@ -11,35 +11,21 @@ LA DU SALIKOJ DE NAGYENYED
 
 Mór Jókai
 
-LA DU SALIKOJ DE NAGYENYED
 
 Jozefo Horvath
 
 
-@omnibus.se
-
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-La vojon inter Felvinc kaj Nagyenyed dividas demon-ta rivereto, traarkita per daŭra ŝtonponteto. Ambaŭ-
-
-borde de la rivereto leviĝas du potencaj salikoj; al ili li-giĝas historio rememorinda. Sep generacioj vidis ilin kreski; de idoj al idoj herediĝis la historio pri ili. Eĉ nun
+La vojon inter Felvinc kaj Nagyenyed dividas demon-ta rivereto, traarkita per daŭra ŝtonponteto. Ambaŭborde de la rivereto leviĝas du potencaj salikoj; al ili li-giĝas historio rememorinda. Sep generacioj vidis ilin kreski; de idoj al idoj herediĝis la historio pri ili. Eĉ nun
 
 ĝi revokiĝas vive en la memoron, kvazaŭ okazinta dum nia vivo...
 
-...Precize cent kaj kvindek jaroj forpasis, de kiam la kuruca-labanca1 vivo pleje modis. ĉi-tage kurucoj, morgaŭ jam labancoj donis leĝojn en Enyed. Kiam ĉi tiuj malaperis el-tra la urborando, envenis tiuj el la kontraŭ-
-
-direkto. La bonaj Enyed’anoj ĉiam preferintus, ke ĉi bra-vuloj — anstataŭ ilin vizitadi — renkontu sin mem reciproke; sed ĉi tiuj estis saĝaj sinjoroj, aŭdintaj ion kaj tion pri strategiaj artifikoj, per kiuj malamiko povas esti ven-kita, se oni ekstermas ĉiun provianton el ties ĉirkaŭaĵo.
+...Precize cent kaj kvindek jaroj forpasis, de kiam la kuruca-labanca1 vivo pleje modis. ĉi-tage kurucoj, morgaŭ jam labancoj donis leĝojn en Enyed. Kiam ĉi tiuj malaperis el-tra la urborando, envenis tiuj el la kontraŭdirekto. La bonaj Enyed’anoj ĉiam preferintus, ke ĉi bra-vuloj — anstataŭ ilin vizitadi — renkontu sin mem reciproke; sed ĉi tiuj estis saĝaj sinjoroj, aŭdintaj ion kaj tion pri strategiaj artifikoj, per kiuj malamiko povas esti ven-kita, se oni ekstermas ĉiun provianton el ties ĉirkaŭaĵo.
 
 Kaj tion ili ankaŭ transplantis en la praktikon.
 
 ĉar dum la ordinaraj militfortoj de la landestro2: la 1 kurucoj: hungaraj sendependistoj kontraŭ la aŭstro-imperia Habsburg-dinastio fine de la 17a kaj komence de la 18a jc.; labancoj: Habsburg-partianoj kontraŭ kurucoj — samempoke.
 
 2 Duko Ferenc Rákóczi, gvidanto de la sendependista movado kaj bataloj.
-
-
-LA DU SALIKOJ DE NAGYENYED
 
 
 brilaj nobelaj rajdtaĉmentoj, belaj, svelte kreskintaj hu-saroj kun lupfelaj pendmanteloj, elektitaj hajdukoj, ruĝe-blue uniformitaj infanterianoj penadis ĉe la land-limoj en ordinaraj bataloj kun la ĉeffortoj de la imperio: la brilaj kirasitaj, krestokaskaj rajdistoj, dragonoj portantaj broditajn bubalfelojn kaj celsekuraj muskedistoj, la landinternon travagadis longe-larĝe aventurema popolo vagabunda, veste-geste tiel simila unu al alia, ke eĉ la propra patrino ne scipovis diferencigi: kiu apartenas al kurucoj, kiu al labancoj.
@@ -51,9 +37,6 @@ Kaj ĉi speco horde iris de urbo al urbo ĉantaĝante kaj rekvirante — kie ili
 Tiel do ne kun troa pasio ili konfrontis batalojn: venki-to ordinare transpartianiĝis al venkinto; kaj laŭ aserto de Mikelo Cserei3 troviĝis homo, kiu kvar-kvinfoje estis kuruco kaj almenaŭ samfoje labanco.
 
 ĉi nemalofta sanĝiĝemo de la aferoj levis baron al la gloravido, ĉar se iu elbatalis al si vastan famon kaj re-nomon, povis senĉese timi, ke eble morgaŭ lia tuta armeo transmarŝos al lia kontraŭulo, kiu siaparte, kom-3 Historiografo el Transsilvanio (nun en Rumanio) (1667-1756).
-
-
-LA DU SALIKOJ DE NAGYENYED
 
 
 preneble, ĉiujn indulgos, nur lin solan pendigos, kontraŭ kiu li ja pleje nutradis sian venĝemon.
@@ -71,34 +54,19 @@ Ho tiuj studantoj, studantoj de Nagyenyed estis uni-kaj junuloj!
 4 Regiono en Transilvanio (nun en Rumanio).
 
 
-LA DU SALIKOJ DE NAGYENYED
-
-
 Kiam kalvinana knabo akiris la povon tranĉi plumin-gon el ansera plumo, lia patrino plenigis pansakon per rondaj salpastetoj, la patro aĉetis al li paron da botoj, kaj kun tia provizo lin veturigis al Enyed, demetis en la korto de la kolegio, vangofrapinte benis lin, kaj lasis sur tiu sama loko, cedante al li la elekton fariĝi pastro, profesoro, reĝa juĝisto, ĉefkapitano aŭ magistrata sinjoro. Plue la patro ne havis zorgon pri li. La knabo plenkreskis, barboziĝis; oni lin plenŝtopis, grasigis per mangaĵo kaj sciencoj, ferminte lin hermetike for de ĉiuj mondaj logoj, zorgis pri liaj korpo kaj animo, edukis lin en kredo kaj sano, faris el li pastron, profesoron, reĝan juĝiston, ĉef-kapitanon aŭ magistratan sinjoron, do por kio li havis cerbon kaj bonŝancon, sen ke la gepatroj cerbumis pri tio. La kolegio estis por li Patrino.
 
 Kvin-sescent adoptitojn havis la respektinda matrono kaj plurcentmil forintojn da enspezo por edukado de tiom da belaj knaboj; plue plej erudiciajn profesorojn, kulturitajn en eksterlandaj akademioj; mondfaman bib-liotekon kaj ĉiaspecajn premiojn, instigantajn la junu-laron unuparte al diligento, aliparte ĝustatempe kutimi-gantajn ilin al la bonefika konscio, ke kvankam neabun-de, tamen propramerite ili jam kapablas vivi.
 
-En tiuj tempoj profesoro rektoro de la kolegio de Nagyenyed estis la respektinda, dokta sinjoro Gerzson Tor-6
+En tiuj tempoj profesoro rektoro de la kolegio de Nagyenyed estis la respektinda, dokta sinjoro Gerzson Tordai Szabó, fervora kulturanto de sciencoj, eksterordinare pacama viro kaj senlaca protektanto de bonaj moroj.
 
-LA DU SALIKOJ DE NAGYENYED
-
-
-dai Szabó, fervora kulturanto de sciencoj, eksterordinare pacama viro kaj senlaca protektanto de bonaj moroj.
-
-ĉar se li remparis sin per siaj timige grandaj foliantoj, li povis tiel perfekte perdiĝi por ĉi tiu mondo, ke ofte okazis: li devis demandi la edzinon, ĉu li estas jam man-
-
-ĝinta aŭ ne. Antaŭ siaj disĉiploj li parolis kun valido de orakolo. Li ŝatis nur mildajn, pacajn sciencojn, ekzemple la astronomion kaj mekanikon, sed ne la historion, kiu
+ĉar se li remparis sin per siaj timige grandaj foliantoj, li povis tiel perfekte perdiĝi por ĉi tiu mondo, ke ofte okazis: li devis demandi la edzinon, ĉu li estas jam manĝinta aŭ ne. Antaŭ siaj disĉiploj li parolis kun valido de orakolo. Li ŝatis nur mildajn, pacajn sciencojn, ekzemple la astronomion kaj mekanikon, sed ne la historion, kiu
 
 — laŭ liaj vortoj — instruas nenion alian, ol ties nomojn, kiuj distingiĝis en mortbatado de homoj, kaj kiu prikan-tas heroaĵojn de sangoverŝaj, kruelaj kulpuloj kaj men-sogas en senfina sinsekvo, anstataŭ plibonigi la post-mondon per ekzemplo de piuloj, bonefikaj kaj saĝaj cer-boj.
 
 La brava sinjoro validigis sian antipation kontraŭ his-toriaj figuroj, ne plaĉantaj al li ĝis tia grado, ke por la anima savo de siaj disĉiploj li pretis eĉ falsigi okazintaĵojn, ordonante al la profesoro de historio karakterizi al la disĉiploj Kleopatran kaj Semiramisan kaj aliajn sen-hontajn virinajn personojn kiel aĉajn, abomenindajn monstrojn, pri kiuj eĉ pensi jamas terure.
 
-Kaj ne estis permesite direkti la okulojn al virina figuro; dancado, violona muziko estis por ĉiam ekzilitaj el ĉi rondo; en la preĝejo — por ke la pli aĝaj studantoj ne povu okulumi al knabinoj — estis loko barita aparte por ili malantaŭ la benkoj; tie ili devis sidi sur kvadrate tran-7
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-ĉitaj pinotraboj, por ne povi levi la kapon pli alten ol la dorsapogilo de la antaŭa benko. ĉar por la respektinda sinjoro estis principo, bazita kvazaŭ sur roko, ke juna homo ne bezonas koni junulinojn antaŭ ol edziĝi, do ĝis li finas la studojn kaj ĝis ne havas propran panon sub la tranĉilo; kaj ĉio, kio okazus antaŭ tiam, estus nur van-temo kaj vojo al malbono.
+Kaj ne estis permesite direkti la okulojn al virina figuro; dancado, violona muziko estis por ĉiam ekzilitaj el ĉi rondo; en la preĝejo — por ke la pli aĝaj studantoj ne povu okulumi al knabinoj — estis loko barita aparte por ili malantaŭ la benkoj; tie ili devis sidi sur kvadrate tranĉitaj pinotraboj, por ne povi levi la kapon pli alten ol la dorsapogilo de la antaŭa benko. ĉar por la respektinda sinjoro estis principo, bazita kvazaŭ sur roko, ke juna homo ne bezonas koni junulinojn antaŭ ol edziĝi, do ĝis li finas la studojn kaj ĝis ne havas propran panon sub la tranĉilo; kaj ĉio, kio okazus antaŭ tiam, estus nur van-temo kaj vojo al malbono.
 
 Estas memkompreneble, ke ĉi tiu estas la malplej po-pulara mondkoncepto, kiu povas esti esprimata por la publika bono, kaj ke plej malmultaj adeptoj de tiaj kon-ceptoj troviĝis ĝuste inter la interesatoj, la studantaro de Enyed. ĉu ne estas absurde, ke eĉ foje-fojete oni ne vidu virinajn figurojn, ja oni trovas ĉiujn virinojn de la dek-kvara ĝis la dudeka vivojaroj belaj.
 
@@ -108,12 +76,7 @@ Kiom da studantoj nur ekvidis la knabinon, ĉiuj en-amiĝis al ŝi. Sed vane, ĉ
 
 — ĉar tiel oni nomis la knabinon — ĝis dudek-paŝa dis-tanco.
 
-Sinjoro Gerzson havis unuetaĝan domon en tuja proksimo de la kolegio. La ŝtuparo estis barita per kra-dopordo, do ne povis okazi, ke vizitonte la sinjoron pro-8
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-fesoron, juna homo erarvenis al Klarinjo; kiun cetere li vane renkontus, ĉar la brava knabino edukiĝis laŭ tiaj Dio- kaj studanto-timaj principoj, ke certe ŝi forkurus.
+Sinjoro Gerzson havis unuetaĝan domon en tuja proksimo de la kolegio. La ŝtuparo estis barita per kra-dopordo, do ne povis okazi, ke vizitonte la sinjoron profesoron, juna homo erarvenis al Klarinjo; kiun cetere li vane renkontus, ĉar la brava knabino edukiĝis laŭ tiaj Dio- kaj studanto-timaj principoj, ke certe ŝi forkurus.
 
 Ja ne havis ĉiu ventkapulo aliron al la dokta sinjoro profesoro; lia dompordo malfermiĝis nur al probitaj individuoj. Tiaj probitaj individuoj estis humanissime5
 
@@ -126,14 +89,9 @@ Memkompreneble inter la versaĵoj ne troviĝis pri-amaj, nur pri vintro, printem
 La alia: humanissime Karassiay estis mense nerapide-5 Alparolo latina al superaklasanoj de kolegioj.
 
 
-LA DU SALIKOJ DE NAGYENYED
-
-
 ma, sesajara togulo, tre vortŝpara, kvietsanga junulo, favorata de sinjoro Gerzson pro la fakto, ke koncerne neniun diboĉon, interbatiĝon lia nomo menciiĝis, kio se okazus, estus sekviginta grandan malfeliĉon, ĉar la Na-turo dotis lin per tiaj brakoj kaj ŝultroj, ke foje levitaj por ies perdigo, ili certe havigus tempon por longedaŭraj babiloj. Sed li lacigis sian teruran forton nur en pacaj metioj najlante-fajlante diversajn porfizikajn ilojn por la sinjoro profesoro kaj la ceterajn movojn de siaj brakoj li ekzemplis nur en okazoj, kiam dum grandaj vakacioj la junularo aranĝis prezentadon de mitologiaj dramoj en la aŭlo; kompreneble kun vira aktoraro, antaŭ vira publi-ko, en kiuj Karassiay rolis kiel Heraklo kaj Zetelaky kiel Dejanira; ĉi lasta tiel perfekte, ke neniu estus dubinta pri li, ke li ne estas vera junulino. Estis nura plezuro spekti ankaŭ Aaronon, batalantan kun kentaŭroj, kiam li sola terenbatis tridek paganajn diojn.
 
-Okazis, ke nelonge antaŭ la grandaj ekzamenadoj, sinjoro Gerzson Tordai Szabó faris vastajn preparojn al siaj natursciencaj demonstracioj, celantaj prezenti, kiel akvo transiĝas en aeron, kiel kungluiĝas du hemisferoj sekve de atmosfera premo post elpumpo de la aero, kiel oni povas bruligi aeron kaj dancigi paperhometojn sub elektra aparato, do aferojn konsideratajn tiutempe mirakloj. Por ĉi celo li transdonis al siaj elektitoj la ŝlosilojn de la fizika muzeo, por ke ili tie fervoradu. Kaj li 10
-
-LA DU SALIKOJ DE NAGYENYED
+Okazis, ke nelonge antaŭ la grandaj ekzamenadoj, sinjoro Gerzson Tordai Szabó faris vastajn preparojn al siaj natursciencaj demonstracioj, celantaj prezenti, kiel akvo transiĝas en aeron, kiel kungluiĝas du hemisferoj sekve de atmosfera premo post elpumpo de la aero, kiel oni povas bruligi aeron kaj dancigi paperhometojn sub elektra aparato, do aferojn konsideratajn tiutempe mirakloj. Por ĉi celo li transdonis al siaj elektitoj la ŝlosilojn de la fizika muzeo, por ke ili tie fervoradu. Kaj li
 
 
 ankaŭ spertis, ke ambaŭ eminentuloj aktivas jam de frua mateno en la muzeo kaj nur malfrua vespero ilin elve-nigis de tie. Laŭdindaj, diligentaj junuloj, kutimis diri sinjoro Gerzson, prenu ekzemplon pri ili, sendiaj, van-temaj, diboĉaj sentaŭguloj, similigu vin al ili!
@@ -146,9 +104,7 @@ Nun Jozefo enrigardas kun pia entuziasmo... ”Ho, Dio mia, kiel belega”, li s
 
 Sub la preteksto observi stelojn, la bravaj junuloj tag-longe okupiĝas nur per observado de la bela Klarinjo tra la lensotubo; dum sinjoro Gerzson kredas, ke ili lacigas la okulojn per mirakloj de la firmamento, ili amuzas sin sekvante teleskope la ĉarman knabinon kun plejpleja plezuro tra ĝardeno, ĉambro kaj kuirejo.
 
-Koncerne Aaronon, ĉi amuzo estis nur ŝerco, sed Jozefo tute kaptiĝis: ne povis deŝiri sin de la teleskopo; kaj 11
-
-LA DU SALIKOJ DE NAGYENYED
+Koncerne Aaronon, ĉi amuzo estis nur ŝerco, sed Jozefo tute kaptiĝis: ne povis deŝiri sin de la teleskopo; kaj
 
 
 se longe li ne povis enlensigi la knabinon, li ne manĝis, ne dormis, nek havis humoron por io ajn, nur ĝemadis-suspiradis, forgesis, kion li legis kaj mirigis sinjoron Gerzson ne atentante liajn prelegojn, ĉar anime li iradis en tiu rozlaŭba ĝardeno post la bela knabino, kolektanta disflorantajn rozpetalojn en la tukon per siaj blankaj manetoj.
@@ -159,12 +115,7 @@ Sinjoro Gerzson ne povis klarigi al si, kio la knabon trafis. Li serĉadis, espl
 
 Kaj Jozefo sentis ĉiam pli kreski la dolorojn de sia koro: la trompema lenso kelkfoje tiel proksimigis al li la adoratan personon, ke mirigite li etendis al ŝi la manojn kaj rekonsciiĝis nur, kiam la fenestro refrapis liajn fin-grojn, kio donis al Aaron duoblan kaŭzon por rideks-plodo.
 
-Meze de tiaj doloroj la malica tentanto portis la pian junulon ĝis tia ekstremo, ke iun posttagmezon li al-12
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-tabliĝis kun la firma intenco — eĉ diri terure — poemi pri amo.
+Meze de tiaj doloroj la malica tentanto portis la pian junulon ĝis tia ekstremo, ke iun posttagmezon li altabliĝis kun la firma intenco — eĉ diri terure — poemi pri amo.
 
 La versaĵo konsistis el safikoj, estis provizita per ĉio bela, kio nur troviĝas sub la suno kaj luno. Kiam li legis
 
@@ -192,9 +143,7 @@ Nun venis la vico de Aaron diri ”hm”.
 
 — diris Jozefo suspirante, — por ke kiam ŝi venos fru-matene kolekti rozpetalojn, ŝi trovu ĝin kaj legu sola.
 
-—Nu, tio facile fareblas, — respondis Aaron. — De ĉi tie, el la fenestro oni povas subeniĝi per dika ŝnuro ĝis la ĝardena muro, de ĝi facile salteblas sur la fositan 13
-
-LA DU SALIKOJ DE NAGYENYED
+—Nu, tio facile fareblas, — respondis Aaron. — De ĉi tie, el la fenestro oni povas subeniĝi per dika ŝnuro ĝis la ĝardena muro, de ĝi facile salteblas sur la fositan
 
 
 grundon. Reire oni povas suprengrimpi sur la sambuku-jo kaj ĝisveni per la ŝnuro.
@@ -215,9 +164,7 @@ Jozefo eksilentis por kelka tempo. Poste li diris:
 
 Aaron iris por la ŝnuro, el nodbastono li fabrikis sidi-lon ĉe la ŝnurfinoj, sidigis Jozefon sur ĝin, kaj volvinte la ŝnuron ĉirkaŭ la fenestrokruco kaj kroĉante ĝin ĉirkaŭ siaj muskolozaj polmoj, li lasis ĝis la ŝtona barilo subeniĝi Jozefon, kiu eĉ momenteton ne ŝajnis zorgi pro tio, ke se la ŝnuro elglítus el la manoj de lia kamarado, tuj rompiĝus al li la nuko; se troviĝis kialo zorgi, estis nur la timo, ke iu malkaŝos ilin. Neniu lin malkaŝis. Li povis transpasi sur la muro, kaŝi la leteron inter la rozoj kaj helpe de la polmoj de Aaron facile leviĝi ĝis la muzea fenestro. Nur tiam la du junuloj ekmikris reciproke, kiel evidentan malsaĝaĵon ili faris.
 
-La alian tagon eĉ rigardi ili ne kuraĝis unu al la alia, 14
-
-LA DU SALIKOJ DE NAGYENYED
+La alian tagon eĉ rigardi ili ne kuraĝis unu al la alia,
 
 
 des malpli tra la teleskopo. Kiel fifarintoj de kolosa krim-afero ili time evitis la kulpejon kaj matene kun baraktan-taj koroj ili subaŭskultis la klakadon de la botoj de la respektinda sinjoro laŭlonge de la koridoro.
@@ -234,9 +181,7 @@ Kaj ĉe tio li ŝovis al li la pritraktitan versaĵon en la manon.
 
 Jozefo ne oponus eĉ, se en tiu momento la tuta kolegio kune kun li sinkus sub la teron.
 
-Kvankam la versaĵon trovis Klarinjo en la menciita loko, ŝi kiel bone edukita knabino konsideris sia devo unua fari denuncon pri ĝi al la patro, plendante sam-tempe ankaŭ pro la distretitaj tulipbedoj. La maljuna sinjoro tuj rekonis la skribmanieron kaj la artifiko de Jozefo senmaskiĝis antaŭ li. De tiam li ne konfidis al li 15
-
-LA DU SALIKOJ DE NAGYENYED
+Kvankam la versaĵon trovis Klarinjo en la menciita loko, ŝi kiel bone edukita knabino konsideris sia devo unua fari denuncon pri ĝi al la patro, plendante sam-tempe ankaŭ pro la distretitaj tulipbedoj. La maljuna sinjoro tuj rekonis la skribmanieron kaj la artifiko de Jozefo senmaskiĝis antaŭ li. De tiam li ne konfidis al li
 
 
 eksperimentojn, nek sendis lin labori en la fizikan mu-zeon.
@@ -247,9 +192,7 @@ Post nelonge dezirinda okazo prezentiĝis por tio. Iun tagon iliaj moŝtoj sinjo
 
 ĝin en la ravinon Torda.
 
-Nun kion faru la bonaj Enyed’anoj? Ili povis plendi ripete al Trajcigfricig, ke Balika kunportis, kio manĝebla 16
-
-LA DU SALIKOJ DE NAGYENYED
+Nun kion faru la bonaj Enyed’anoj? Ili povis plendi ripete al Trajcigfricig, ke Balika kunportis, kio manĝebla
 
 
 kaj trinkebla troviĝis en la urbo kaj konsili, ke li postiru lin kaj reprenu ĉion. Trakurita de kolero, Trajcigfricig surplandigis siajn taĉmentojn kaj ĵuris forbruligi Enyed
@@ -260,9 +203,7 @@ Kaj la ularo de Traicigfricig jam proksimiĝis al Marosújvár kaj laŭ tio, kie
 
 Tiaj mizeroj estis jam kutima stato en Enyed. Ricevin-te famon pri proksimiĝo de labancoj, la loĝantoj rapide forlasadis siajn domojn, kion gardindan ili havis, ili fosis en keloj, sub garbejo en teron, la virinojn, knabojn, maljunulojn irigis en montojn, arbarojn. La junulinojn oni kolektis en la kalvinana preĝejo kaj armeblaj viroj kuniĝis samloke, en la korto, kiu — ankaŭ nun videblas
 
-— estis ĉirkaŭigita per fortika, alta ŝtonmuro, provizita per pluraj bastionaj turoj, konstruigitaj de la lokaj gildoj: unu apartenis al la honorinda botfara, alia al la honorinda teksista gildoj, aparte levigis por si unu la draptajla, komune alian la tanista kaj ŝufara gildoj, la kvinan pre-tigis la butonistoj kun la oraĵistoj kaj la sesan la forĝistoj kun la ŝlosistoj. ĉi tie estis gardataj la gildokestoj kaj dum grava danĝero ĉi tie kolektiĝis la majstroj kun siaj 17
-
-LA DU SALIKOJ DE NAGYENYED
+— estis ĉirkaŭigita per fortika, alta ŝtonmuro, provizita per pluraj bastionaj turoj, konstruigitaj de la lokaj gildoj: unu apartenis al la honorinda botfara, alia al la honorinda teksista gildoj, aparte levigis por si unu la draptajla, komune alian la tanista kaj ŝufara gildoj, la kvinan pre-tigis la butonistoj kun la oraĵistoj kaj la sesan la forĝistoj kun la ŝlosistoj. ĉi tie estis gardataj la gildokestoj kaj dum grava danĝero ĉi tie kolektiĝis la majstroj kun siaj
 
 
 helpistoj formante tiamaniere la gardistaron de la fortikaĵo de Dio.
@@ -277,9 +218,7 @@ Nu, tio estis bela peto al la respektinda sinjoro Gerzson Szabó, ke li konduku 
 
 6 miaj karaj (latine)
 
-7 sobriga trinkaĵo (latine, citaĵo el Ovido) 18
-
-LA DU SALIKOJ DE NAGYENYED
+7 sobriga trinkaĵo (latine, citaĵo el Ovido)
 
 
 Tiel parolante sinjoro Gerzson rimarkis, ke eĉ Zetelaky kaŝegas ian glavon sub la togo. Potence li altondris lin:
@@ -296,9 +235,7 @@ Sinjoro Gerzson rekaptis la kapon, ĉar li estis trafita mezmeze per la riposto.
 
 —Kaj se mi ne permesos al vi preni armilojn en la manojn, dum la nobla urbo penadas per pacaj marĉandoj forigi la danĝeron de super si?! Kaj al via moŝto, humanissime Zetelaky, mi diras nur, ke vi ne bezonas prires-pondi ĉiun demandon. Kaj nun mi ordonas al vi formeti en ĉi momento ĉiujn armilojn el viaj manoj, kaj se iu alie agos, estos malpermesite al tiu trapasi refoje la sojlon de ĉi tiu kolegio kaj neniam permesiĝos esti denove mem-bro ĝia! Clarissimi domine8, juratoj, sonigu la fenditan sonorilon!
 
-8 Estimataj sinjoroj! (latine) 19
-
-LA DU SALIKOJ DE NAGYENYED
+8 Estimataj sinjoroj! (latine)
 
 
 ĉi tiu fendita sonorilo estis sonigata, kiam iu feste ek-sigatis el la kolegio.
@@ -311,9 +248,7 @@ Nokte, rekonsciiĝinte de la timiĝo, kaŭzita de la vortoj de la rektoro, ili r
 
 Ili pensis, ke ankaŭ bastono estas konvena armilo, se konvenulo tenas ĝian finon.
 
-Jam la saman tagmezon aperis Trajcigfricig sub la urbo kun sia trimilopa labancaro. La ”nobla urbo” elektis 20
-
-LA DU SALIKOJ DE NAGYENYED
+Jam la saman tagmezon aperis Trajcigfricig sub la urbo kun sia trimilopa labancaro. La ”nobla urbo” elektis
 
 
 la urbestron, la kolegia konsilio destinis la respektindan sinjoron rektoron iri al li delegacie.
@@ -322,16 +257,12 @@ Trajcigfricig akceptis la delegitaron surĉevale: la cetera armeo marŝadis surp
 
 La armeo mem estis belega popolo: koncerne ĝin bone trafis la epiteto ”elektita”, ĉar ĝi estis kompilita el ĉiuspecaj gentoj, troviĝantaj en la lando: kungregiĝis en
 
-ĝi hungaroj kun rumanoj, valonoj, marodistoj, serboj kaj ciganoj: unu nudpieda kun kasko surkape, alia kun glavo ŝnurita ĉirkaŭ peltmantelo, ĉi tiu peniranta sub paf-tubego perdinta radojn kaj streĉilon, tiu kun alispeca kaj eklektika provizo, sed ĉiuj unuanime kaj unuforme kun tonditaj lipharoj kiel konigilo por la kazo, se ili batal-miksiĝis kun kurucoj kunmetitaj el similaj elementoj, sed portantaj longajn harojn kaj ĝisorele ŝmirglatigitajn lipharojn. La pliparto piedis en ŝnurŝuoj, nur al oficiroj estis donita deca piedvesto kun alnajlitaj spronoj, kiuj 21
-
-LA DU SALIKOJ DE NAGYENYED
+ĝi hungaroj kun rumanoj, valonoj, marodistoj, serboj kaj ciganoj: unu nudpieda kun kasko surkape, alia kun glavo ŝnurita ĉirkaŭ peltmantelo, ĉi tiu peniranta sub paf-tubego perdinta radojn kaj streĉilon, tiu kun alispeca kaj eklektika provizo, sed ĉiuj unuanime kaj unuforme kun tonditaj lipharoj kiel konigilo por la kazo, se ili batal-miksiĝis kun kurucoj kunmetitaj el similaj elementoj, sed portantaj longajn harojn kaj ĝisorele ŝmirglatigitajn lipharojn. La pliparto piedis en ŝnurŝuoj, nur al oficiroj estis donita deca piedvesto kun alnajlitaj spronoj, kiuj
 
 
 pro nehavo de ĉevaloj servis por nenio krom falĉi la krurojn al siaj posedantoj en kazo de forkuro.
 
-Tian armeon komandis Traicigfricig; sed devus trom-piĝi, kiu kredas, ke li similis al sia ĉifona subularo. La ĉevalo sub li estis plej bela angla rajdbesto; li portis maŝ-
-
-kirason, teksitan el arĝentstelaj ĉenoj sur orfadene ŝnu-rumita, griotkolora silka jaketo, sur lia frunto tronis kre-stohava kupra helmo; unu manon kaŝitan en stalskvama ganto li ripozigis sur la tenilo de larĝa, rekta glavo.
+Tian armeon komandis Traicigfricig; sed devus trom-piĝi, kiu kredas, ke li similis al sia ĉifona subularo. La ĉevalo sub li estis plej bela angla rajdbesto; li portis maŝkirason, teksitan el arĝentstelaj ĉenoj sur orfadene ŝnu-rumita, griotkolora silka jaketo, sur lia frunto tronis kre-stohava kupra helmo; unu manon kaŝitan en stalskvama ganto li ripozigis sur la tenilo de larĝa, rekta glavo.
 
 Kvankam el lia larĝa, inerta vizaĝo kaj malnoblaj traj-toj legiĝis, ke al ĉi pompo lndukis nek la nasko, nek meritoj; ja kiom da fibuloj, vestopecoj sur li pompis, tiom da diversaj monogramoj vidiĝis sur ili; tamen sidante surĉevale li kontribuis al si sufiĉan dignon, por de-supre paroli al tiuj, kiuj marŝis piede.
 
@@ -340,9 +271,6 @@ Lia subulo en la estrado Borembukk estis granda, tra-be gracia buĉisto kun senh
 Lia tuta arsenalo konsistis el unusola buĉhakilego, per kiu li scipovis unusvinge mortbati bovon.
 
 Antaŭ tiel meritplenaj viroj aperis la dumembra delegacio kun profunda riverenco kaj demetitaj ĉapeloj.
-
-
-LA DU SALIKOJ DE NAGYENYED
 
 
 Por plia honorigo sinjoro Gerzson prononcis tre belan diskurson en la latina antaŭ la du militestroj.
@@ -363,9 +291,7 @@ Pli aŭdacan ĵurpromeson, mi kredas, ĝis nun neniu faris.
 
 Sinjoro Gerzson klinis la kapon, kaj nun la urbestro ekparolis hungare:
 
-—Ni sciigos la honestan gildestron pri via volo, digna moŝto, kaj li entreprenos ĉion eblan. Kaj ni petas vin en 23
-
-LA DU SALIKOJ DE NAGYENYED
+—Ni sciigos la honestan gildestron pri via volo, digna moŝto, kaj li entreprenos ĉion eblan. Kaj ni petas vin en
 
 
 la nomo de la tuta urbo, dignu resti eksterurbe kun viaj taĉmentoj, ĉar — kvankam ni tenas vin en nia plej bona opinio — la malsaĝa plebo tiel timas armularon, ke preninte la famon pri ties proksimiĝo, ĉiuj diskuris en arbarojn, parte fermis sin en la preĝejo: do se vi envenus, vi trovus nenion krom malplenaj domoj, kaj al ni vi mal-ebligus konformiĝi al viaj deziroj sekve de tio, ke neniu restus, ĉe kiuj ilin ekzekvi.
@@ -374,12 +300,7 @@ Traicigfricig flustris ion en la orelon de Borembukk, kaj mallerte kaŝante sian
 
 —Honestaj servistoj! Sekve ke timante kaj pro tio, ke estante malsaĝaj ankaŭ ni ne dezirindus, ke viajn domojn lasante ne plenaj, en ili neniun trovinte, do irinte diru vi al la popolo, ke ne forportu nin, sed ili hejmen-venu kaj poste precipe kvankam, ni tendojn starigu, por ke ni vidu ke laŭ tio ĉiu hejme estas, estu bruligataj kan-deloj ĉe ĉiu domo kaj cetere se io aŭ tio iel aŭ aliel okazus, tiam vi ekvidos ion kaj tion nu do.
 
-Sciiginte la delegacion per tiel ornamriĉa parolado pri sia ultimato, lia komandanta moŝto lasis la delegacion reiri en la urbon. Li kaj la taĉmentoj demetis sin sur la kampo proksimume mil paŝojn de la muroj, farante ĉiu al si tendon el tritikaj garboj. Kaj reveninte la delegacio diskonigis al la loĝantaro, ke ĉiu rehejmiĝu en sian domon, kaj por la nokto metu kandelon en siajn fene-24
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-strojn, kaj kio eltrudeblas el la propra mizero, nepre kunportu, por kontentigi la labancajn sinjorojn.
+Sciiginte la delegacion per tiel ornamriĉa parolado pri sia ultimato, lia komandanta moŝto lasis la delegacion reiri en la urbon. Li kaj la taĉmentoj demetis sin sur la kampo proksimume mil paŝojn de la muroj, farante ĉiu al si tendon el tritikaj garboj. Kaj reveninte la delegacio diskonigis al la loĝantaro, ke ĉiu rehejmiĝu en sian domon, kaj por la nokto metu kandelon en siajn fenestrojn, kaj kio eltrudeblas el la propra mizero, nepre kunportu, por kontentigi la labancajn sinjorojn.
 
 Okazis kiel decidite: la gildanoj unu post alia iris hejmen, la virinoj kaj maljunuloj, fuĝintaj en arbarojn, estis revokitaj kaj ĝis malfrua nokto la tuta urbo ne ĉesis ba-kadi kaj fritadi por la meritplenaj sinjoroj. Nur Klarinjo petegis en la nomo de la puceloj, ŝlositaj en la preĝejo por la graco, resti por tiu nokto sub la ŝirmo de la domo de l’ Sinjoro. Kaj la peto, subtenata ankaŭ de la ceteraj virgulinoj, estis fine aŭskultita ankaŭ de la nobla magi-strato kaj profesoraro.
 
@@ -387,9 +308,7 @@ Sekvis bela, lunluma nokto, la pejzaĝo ĉirkaŭe silen-ta; la magistratanoj tra
 
 En tia duonsonĝo ŝi ascendis sur la ŝtupoj ĝis la loko, kie pendis la kvindekdu-kvintala sonorilego de la sankta eklezio; kaj kiam ŝi elrigardis tra la alta turaperturo, ŝajnis al ŝi vidi malhelan makulegon malrapide rampantan al la urbo. Post nelonge distingiĝis granda homgrupo, el kies maso reflekte elbriladis fero de falĉiloj kaj pikstan-goj en la lunlumo.
 
-Eklumis en ŝi la kompreno: la labancoj atendis nur, ke 25
-
-LA DU SALIKOJ DE NAGYENYED
+Eklumis en ŝi la kompreno: la labancoj atendis nur, ke
 
 
 disiĝinte la burĝoj kuŝiĝu por nokta ripozo en siaj domoj, por ke ili povu ĉi tiujn embuske surprizi... Klarinjo ne volis perdi eĉ momenteton: ŝi ne malsupreniris en la preĝejon por veki la kamaradinojn, sed trafulmita de sava ideo, ŝi kroĉiĝis sur la ŝnurego de la kvindekdu-kvintala sonorilego, por ke ektirite ĝi alarmu la tutan urbon.
@@ -400,9 +319,7 @@ Kolerego atakis Trajcigfricig pro la superruzo. Li ordonis bruligi senmalfrue la
 
 Sed apenaŭ liaj subuloj levis la manojn por ĉi damnin-da ago, tia pluvego ektorentis, ke ĝi estingis ĉie la bru-lon: la labancestro supermezure blasfemis egale Dion kaj diablon pro ĉi misfortuno.
 
-ĉe la matena krepuskiĝo la respektinda rektoro kaj la magistratestro denove eliris antaŭ lin. La militestro eĉ ekvorti ne cedis ilin. Li altondris ilin kun la riproĉo, ke 26
-
-LA DU SALIKOJ DE NAGYENYED
+ĉe la matena krepuskiĝo la respektinda rektoro kaj la magistratestro denove eliris antaŭ lin. La militestro eĉ ekvorti ne cedis ilin. Li altondris ilin kun la riproĉo, ke
 
 
 ili estas ruzaj, mensogemaj hundoj, kiuj trompas hones-tajn virojn kaj forte ĵuris, ke li dispafigos en rubon la tutan urbon, preĝejon kaj kolegion, buĉos glave la loĝ-
@@ -416,12 +333,7 @@ respondis deprimite sinjoro Gerzson, — sed se koste de ŝia vivo mi povos ela�
 
 La studantoj povis ĉion ĉi observi el la kolegio, ĉar la procesio haltis ĝuste antaŭe; sed la pordegoj estis ŝlositaj, la ŝlosilojn sinjoro Gerzson mem enpoŝigis.
 
-Poste ili devis vidi ankaŭ, kiel oni eldonas la duonsve-nan virgulinon, filinon de la rektoro, Klarinjon tra la pre-
-
-ĝeja pordego kaj kiel Trajcigfricig levas ŝin al si sur la selon.
-
-
-LA DU SALIKOJ DE NAGYENYED
+Poste ili devis vidi ankaŭ, kiel oni eldonas la duonsve-nan virgulinon, filinon de la rektoro, Klarinjon tra la preĝeja pordego kaj kiel Trajcigfricig levas ŝin al si sur la selon.
 
 
 Sed tio jam vere supermezuris ĉion, kion kun koro de studanto oni povas elteni.
@@ -434,9 +346,7 @@ Ili havis ne pli ol salikbastonojn en la manoj, sed dum la densa pluvego malutil
 
 La du armeestroj, premitaj al muro, ne prenis la afe-ron por ŝerco: vidante, ke iliaj homoj pli ol necese ŝan-celiĝas sub la batoj de la studantoj, turnis dorson al la batalejo kaj ekklopodis for ekster la urbon. Trajcigfricig ĉirkaŭbrakis la kaptitan knabinon, okule preskaŭ devo-rante ŝiajn predigitajn ĉarmojn. Kaj Borembukk siaflan-ke ekkaptis sinjoron Gerzson ĉe la kolumo kaj tiel liver-ante lin kun si cedis siajn enormajn krurojn al kurego.
 
-Pli mallonge ol vorto elparoliĝas, estis disbatita la labancaro al la kvar ĉieldirektoj; kun apenaŭ tridek homoj kuris la du kapitanoj direkte al Felvinc, iliajn spurojn 28
-
-LA DU SALIKOJ DE NAGYENYED
+Pli mallonge ol vorto elparoliĝas, estis disbatita la labancaro al la kvar ĉieldirektoj; kun apenaŭ tridek homoj kuris la du kapitanoj direkte al Felvinc, iliajn spurojn
 
 
 strikte sekvis grupoj de studantoj, kun manikoj refaldi-taj, krudaj salikstangoj enpugne, en longaj, nigraj togoj, pendigitaj ĉezone; per siaj bastonegoj ili saltadis, kiel anglaj rajdĉevaloj.
@@ -447,12 +357,7 @@ strikte sekvis grupoj de studantoj, kun manikoj refaldi-taj, krudaj salikstangoj
 
 Borembukk, vidante, ke ĉi tie oni fakte devas halti, ellasis la kolumon de sinjoro Gerzson kaj kaptinte per ambaŭ manoj la buĉhakilegon tiel forte li batis al Aaron, ke se li ne forsaltas, li estus dishakita ĉe la talio; sed la studanto replikis per bastonego kaj tiel bonŝancis bati sur la ungojn de la labanco, ke tiu tuj lasis fali la buĉilegon el la manoj. Responde la labanco kun besta rabio kaj kun nuraj manoj alsaltis la junulon, kaj kvankam ĉi tiu celtrafis ankaŭ ĉi-foje lian verton per la fusto tiel, ke
 
-ĝi kurbiĝis proe kaj la labanca kapo ŝveliĝis kiel pufpa-29
-
-LA DU SALIKOJ DE NAGYENYED
-
-
-neto; tamen kvazaŭ la afero ne koncernus lin, li kaptis la stangon de Aaron, volante ĝin eltordi; sed siaparte Aaron bone enfiksis ĝin per ambaŭ manoj. Tiel ili puŝ-
+ĝi kurbiĝis proe kaj la labanca kapo ŝveliĝis kiel pufpaneto; tamen kvazaŭ la afero ne koncernus lin, li kaptis la stangon de Aaron, volante ĝin eltordi; sed siaparte Aaron bone enfiksis ĝin per ambaŭ manoj. Tiel ili puŝ-
 
 tiradis sin reciproke tien-reen kelkan tempon, ĝis ambaŭ laciĝis. Tiam ili komencis pafi fulmojn el la okuloj unu kontraŭ la alia.
 
@@ -473,9 +378,6 @@ Vidante, ke ne plu eblas fuĝo, la rajdanto descendis de la ĉevalo, eltiris la 
 Zetelaky ne respondis, nur salivumis al si la manpla-tojn kaj preninte la bastonon ĉe la mezo, kuraĝe paŝis antaŭ la fervestitan estron kun timiga vizaĝo.
 
 
-LA DU SALIKOJ DE NAGYENYED
-
-
 —Ej nu! ĉu vi vin ne portos for? — ekhurlis ĉi tiu ekster si kaj per la glavo terure albatis lin. Sed en la manoj de Jozefo la batilo ekturniĝis kaj per unu ekstremo ĝia li defrapis la glavon tiel, ke ĝi sonore ektintis kaj per la alia li surbatis la kaskon tiel, ke ĝi tondre ekgongis!
 
 Stuporiĝis la cerbo de Trajcigfricig pro ĉi tiu bato, li nur gapis dise kvazaŭ serĉante, de kie oni lin batis.
@@ -487,15 +389,9 @@ Nur tiam li rigardis serĉante siajn kompanojn. Ili post-lasiĝis dise, nur ia t
 Tiam kun la helpo de sinjoro Gerzson kaj ŝutante ak-von sur ŝin, ili revokis Klarinjon el la sveno kaj falinte sur genuojn, ĉiuj kvar dankis la Sinjoron por sia liberiĝo.
 
 
-LA DU SALIKOJ DE NAGYENYED
-
-
 Kaj la du salikbastonojn, per kiuj la malamikoj estis batitaj, ili plantis ĉe la rivereta fluejo por memorigi pri la okazintaĵoj; kaj sinjoro Gerzson donis sian benon al ili kaj ankaŭ al la amo de Jozefo, kiu siaparte ne plu bezo-nis observi Klarinjon tralense, kiam li deziris ŝin vidi.
 
 Tio ĉi okazis antaŭ jam cent kaj kvindek jaroj, kaj am-baŭ salikoj plue verdas sur la bordoj de la akvo. Iam la kolegio konstruigis apud ili komfortan amuzdomon, kien la studantoj eliradas en belaj somertagoj, rakontan-te unu al alia la historion pri la du salikoj kaj kantante la psalmon ”Forta burgo estas nia Dio!”
-
-
-LA DU SALIKOJ DE NAGYENYED
 
 
 www.omnibus.se/

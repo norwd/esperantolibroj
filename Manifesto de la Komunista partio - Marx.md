@@ -14,7 +14,6 @@ MANIFESTO DE LA KOMUNISTA PARTIO
 
 Karl Marx kaj Friedrich Engels
 
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 Esperanta traduko kaj postparolo
 
@@ -41,28 +40,17 @@ UEA.
 
 ()
 
-@omnibus.se
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
 
 La Ligo de Komunistoj, internacia asocio de laboristoj, kiu sub la tiamaj kondiĉoj kompreneble povis esti nur sekreta, komisiis dum la kongreso, okazigita en en Londono, la subskribintojn verki detalan teorian kaj praktikan parti-programon destinitan por la publiko. Tiel ekestis la sekva ”Manifesto”, kies manuskripto migris kelkajn semajnojn antaŭ la Februara Revolucio1 por preso al Londono.
 
 
 Kiom ajn ŝanĝiĝis la cirkonstancoj dum la lastaj dudek kvin jaroj, la ĝeneralaj principoj, evoluigitaj en ĉi tiu ”Manifesto”
 
-entute restas plene validaj ankaŭ hodiaŭ. Jen kaj jen oni 1
+entute restas plene validaj ankaŭ hodiaŭ. Jen kaj jen oni
 
-La franca revolucio dum . (Trad.) 2
+La franca revolucio dum . (Trad.)
 
-Ribelo de la pariza proletaro de la 23-a gis la 26-a de , kiu markis la kulminon de la revolucio 1848 – 1849 en Eŭropo. (Trad.) 3
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Ribelo de la pariza proletaro de la 23-a gis la 26-a de , kiu markis la kulminon de la revolucio 1848 – 1849 en Eŭropo. (Trad.)
 
 
 devus plibonigi detalojn. Kiel la ”Manifesto” mem klarigas, la praktika apliko de tiuj principoj ĉie kaj ĉiam dependos de la ekzistantaj historiaj kondiĉoj. Pro tio ankaŭ ne estas metita aparta akcento sur la revoluciajn intervenojn, proponitajn fine de la ĉapitro II. Tiu parto hodiaŭ aspektus multrilate alia.
@@ -70,12 +58,9 @@ devus plibonigi detalojn. Kiel la ”Manifesto” mem klarigas, la praktika apli
 Rigarde al la grandega evoluo de la grandindustrio dum la lastaj dudek kvin jaroj kaj la progresinta partia organiziĝo de la laborista klaso, ligita al ĝi, rigarde al la praktikaj spertoj kolektitaj unue dum la Februara Revolucio kaj eĉ multe pli dum la Pariza Komunumo3, kie unuan fojon la proletaro dum du monatoj havis la politikan potencon, rigarde al tio ĉi tiu programo hodiaŭ kelkaloke estas malnoviĝinta. La Komunumo aparte pruvis, ke ”la laborista klaso ne simple povas preni en posedon la pretan ŝtatmekanismon kaj ekfunkciigi ĝin por siaj propraj celoj”. (Vidu ”Der Bürgerkrieg in Frankreich.
 
 
-Revolucia registaro de la laboristaro, kreita per proleta revolucio la 18-an de en Parizo. La Pariza Komunumo estis la unua provo fari proletan revolucion kaj starigi la diktaturon de la proletaro. i ekzistis ĝis la 28-a de . (Trad.) 4
+Revolucia registaro de la laboristaro, kreita per proleta revolucio la 18-an de en Parizo. La Pariza Komunumo estis la unua provo fari proletan revolucion kaj starigi la diktaturon de la proletaro. i ekzistis ĝis la 28-a de . (Trad.)
 
 ”La civitana milito en Francio. Mesaĝo al la enerala Konsilantaro de la Internacia Laborista Asocio”. (Trad.}
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 Londono, la 24-a de
@@ -83,20 +68,14 @@ Londono, la 24-a de
 Karl Marx, Friedrich Engels
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Kian limigitan kampon la proleta movado ankoraŭ havis tiam (), plej klare montras la fina ĉapitro de la
 
 ”Manifesto”: ”La rilato de la komunistoj al la diversaj opoziciaj partioj” en la diversaj landoj. Tie mankas ĝuste Ruslando kaj la Unuiĝintaj ŝtatoj. Estis la tempo, kiam Ruslando estis la lasta granda rezervujo de la tuta eŭropa reakcio; kiam la Unuiĝintaj ŝtatoj absorbis la superfluan proletaran forton de Eŭropo per enmigrado. Ambaŭ landoj provizis Eŭropon per krudmaterialoj kaj samtempe estis merkatoj por la vendo de ĝiaj industriaj varoj. Do tiam ambaŭ landoj tiel aŭ aliel estis kolonoj de la ekzistanta eŭropa ordo.
 
-Kiom malsame estas hodiaŭ! uste la eleŭropa enmigrado 5
+Kiom malsame estas hodiaŭ! uste la eleŭropa enmigrado
 
 
-La unua rusa traduko de la ”Manifesto” aperis en 1869 en enevo, en la eldonejo ”Volnaja russkaja tipografija”. (Trad.) 7
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La unua rusa traduko de la ”Manifesto” aperis en 1869 en enevo, en la eldonejo ”Volnaja russkaja tipografija”. (Trad.)
 
 
 ebligas al Norda Ameriko gigantan agrokulturan produktadon, kies konkurenco ekskuas la fundamentojn de la eŭropa terproprieto, ĉu granda, ĉu malgranda. Krome, tio permesas al la Unuiĝintaj ŝtatoj ekspluati siajn grandegajn industriajn fontojn per tiom da energio kaj en tia skalo, ke post malmulta tempo ili devas rompi la ĝisnunan industrimonopolon de okcidenta Eŭropo, aparte tiun de Anglio. Ambaŭ cirkonstancoj reefikas revoluciige al Ameriko mem. La malgranda kaj meza terproprietaĵoj de la farmantoj, la bazo de la tuta politika konstitucio, iom post iom estas venkitaj de la konkurenco de la grandaj farmbienoj. En la industriaj distriktoj samtempe unuan fojon disvolviĝadas amasa proletaro kaj okazas neimagebla koncentriĝo de kapitaloj.
@@ -110,9 +89,6 @@ La ”Komunista Manifesto” havis la taskon proklami la neeviteble antaŭstaran
 Post la mortigo de la caro Aleksandro la Dua fare de membroj de la sekreta organizaĵo ”Narodniki” (popolamikoj) dum , la posteulo Aleksandro la Tria kaŝiĝis en la Kastelo Gatĉina proksime de Sankt-Peterburgo. (Trad.)
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 sita, povos senpere transiri al la pli alta formo de komunisma komuna proprieto? Aŭ, ĉu inverse, ĝi devas antaŭe trairi la saman procezon de dissolviĝo, kiu karakterizas la historian evoluon de la Okcidento?
 
 La hodiaŭ sole ebla respondo pri tio estas: Se la rusa revolucio fariĝos la signalo de proleta revolucio en la Okcidento, tiel, ke unu kompletigas la alian, tiam la nuna rusa komuna proprieto je tero povas servi kiel elirpunkto de komunisma evoluo.
@@ -122,18 +98,12 @@ Londono, la 21-a de
 Karl Marx, Friedrich Engels
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 ”Manifesto”. Des pli necesas laŭ mi esprimi ĉi tie ankoraŭfoje jenon.
 
 La baza penso trairanta la tutan ”Manifeston”: ke la ekonomia produktado kaj la socia strukturiĝo de ĉiu historia epoko, necese sekvanta el tiu produktado, formas la fundamenton por la politika kaj intelekta historio de tiu epoko; ke sekve (ekde la dissolviĝo de la praa komuna terproprieto) la tuta historio estis historio de klasbataloj, bataloj inter ekspluatataj kaj ekspluatantaj, regataj kaj regantaj klasoj sur diversaj ŝtupoj de la historia evoluo; sed ke tiu batalo nun atingis ŝtupon, kie la ekspluatata kaj subpremata klaso (la proletaro) ne plu povas liberigi sin de la klaso (burĝaro) ekspluatanta kaj subpremanta ĝin, sen samtempe liberigi la tutan socion por ĉiam de ekspluatado, subpremado kaj klasbataloj — tiu fundamenta penso sole kaj ekskluzive apartenas al Marx10.
 
 
 Karl Marx mortis la 14-an de kaj estis entombigita en la tombejo Highgate (Hajgit) en Londono. (Trad.) 10 ”Al tiu penso”, — mi diras en la antaŭparolo al la angla traduko, —
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 Mi tion jam ofte esprimis; sed ĝuste nun necesas, ke tio ankaŭ estu legebla antaŭ la ”Manifesto” mem.
@@ -145,15 +115,7 @@ F. Engels
 ”kiu laŭ mia opinio kapablas doni al la historiscienco la saman progreson kiel la teorio de Darwin al la naturscienco — al tiu penso ni ambaŭ estis malrapide alproksimiĝintaj jam kelkajn jarojn antaŭ 1845. Kiom memstare mi mem estis progresinta en tiu direkto, plej bone montras mia laboro ”Lage der arbeitenden Klasse in England”
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-La sufoko de la Pariza Junia Insurekcio de 1848 — tiu unua granda batalo inter proletaro kaj burĝaro — portempe premis en la fonon la socialajn kaj politikajn strebadojn de la laborista klaso de Eŭropo. Ekde tiam la potencbatalo okazis denove sole inter la diversaj grupoj de la posedanta klaso, kiel en la tempo antaŭ la Februara Revolucio. La laborista klaso estis limigita je batalo pri politika kubutlibereco kaj je la pozicio de ekstreme maldekstra alo de la radikala burĝaro. Kie memstaraj proletaj movadoj daŭrigis doni vivsignojn pri si, ili estis senkompate frakasitaj. La prusa polico ekzemple elspi-12
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-onis la centran administrejon de la Ligo de Komunistoj, kiu siatempe havis sian sidejon en Kolonjo. La membroj estis are-stitaj kaj dum kondukitaj antaŭ la tribunalon, post dekok-monata aresto. Tiu fama ”Kolonja komunista proceso” daŭris de la 4-a de oktobro ĝis 12-a de novembro; sep de la arestitoj estis kondamnitaj je mallibero en fortikaĵo por la daŭro de tri ĝis ses jaroj. Tuj post la juĝo la Ligo estis for-male malfondita flanke de la ankoraŭ restintaj membroj.
+La sufoko de la Pariza Junia Insurekcio de 1848 — tiu unua granda batalo inter proletaro kaj burĝaro — portempe premis en la fonon la socialajn kaj politikajn strebadojn de la laborista klaso de Eŭropo. Ekde tiam la potencbatalo okazis denove sole inter la diversaj grupoj de la posedanta klaso, kiel en la tempo antaŭ la Februara Revolucio. La laborista klaso estis limigita je batalo pri politika kubutlibereco kaj je la pozicio de ekstreme maldekstra alo de la radikala burĝaro. Kie memstaraj proletaj movadoj daŭrigis doni vivsignojn pri si, ili estis senkompate frakasitaj. La prusa polico ekzemple elspionis la centran administrejon de la Ligo de Komunistoj, kiu siatempe havis sian sidejon en Kolonjo. La membroj estis are-stitaj kaj dum kondukitaj antaŭ la tribunalon, post dekok-monata aresto. Tiu fama ”Kolonja komunista proceso” daŭris de la 4-a de oktobro ĝis 12-a de novembro; sep de la arestitoj estis kondamnitaj je mallibero en fortikaĵo por la daŭro de tri ĝis ses jaroj. Tuj post la juĝo la Ligo estis for-male malfondita flanke de la ankoraŭ restintaj membroj.
 
 Koncerne al la ”Manifesto” ŝajnis, ke ĝi ekde tiam estis kondamnita al forgeso.
 
@@ -161,9 +123,7 @@ Post kiam la eŭropa laborista klaso estis kolektinta denove sufiĉe da forto po
 
 en Germanio. Marx, kiu verkis tiun programon je la konten-to de ĉiuj partioj, plene fidis al la intelekta evoluo de la laborista klaso, evoluo, kiu necese devis rezulti el la unuigita agado kaj komuna diskutado. La eventoj kaj sortoŝanĝoj en la batalo kontraŭ la kapitalo, pli multe la malvenkoj ol la ven-11 Proudhon, Pierre-Joseph (1809-1865), franca ekonomikisto kaj sociologo, publicisto, ideologo de la etburĝaro, unu el la fondintoj de la anarkismo. (Trad.)
 
-12 Lassalle al mi persone ĉiam konfesis sin disĉiplo de Marx kaj kiel tiu staris sur la fundamento de la ”Manifesto”. Tamen, en sia publika agitado dum la jaroj 1862 – 1864 li nur restis ĉe la postuloj de produktadaj kooperativoj kun ŝtata kredito. (Noto de Engels) 13
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+12 Lassalle al mi persone ĉiam konfesis sin disĉiplo de Marx kaj kiel tiu staris sur la fundamento de la ”Manifesto”. Tamen, en sia publika agitado dum la jaroj 1862 – 1864 li nur restis ĉe la postuloj de produktadaj kooperativoj kun ŝtata kredito. (Noto de Engels)
 
 
 koj, ne povis ne helpi konsciigi la homojn pri la nesufiĉeco de iliaj diversaj favoritaj ĉarlatanaĵoj, ebenigante la vojon al kompleta kompreno pri la veraj antaŭkondiĉoj por la emancipiĝo de la laborista klaso. Kaj Marx pravis. Kiam disfalis en la jaro 1874 la Internacio, ĝi postlasis la laboristojn jam en tute alia stato ol ĝi trovis ilin ĉe sia fondo en la jaro 1864. La Proudhon-ismo en Francio, la Lassalle-ismo en Germanio estis mortontaj, kaj ankaŭ la konservativaj anglaj sindikatoj, kvankam en sia plimulto ili jam longe estis rompintaj la ligojn al la Internacio, alproksimiĝis malrapide al la punkto, kie ilia prezidanto lastjare en Swansea en ilia nomo povis deklari:
@@ -177,22 +137,15 @@ Tiamaniere la ”Manifesto” mem denove fariĝis pli aktuala.
 La germana teksto ekde 1850 estis kelkfoje represita en Svisio, Anglio kaj en Ameriko. En la jaro 1872 ĝi estis tradukita en la anglan, nome en Nov-Jorko, kie la traduko aperis en
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Kiam ni estis skribintaj ĝin, ni tamen ne estus povintaj ĝin titoli socialista manifesto. Sub socialistoj en 1847 oni komprenis unuflanke la adeptojn de diversaj utopiecaj sistemoj: la Owen-istoj15 en Anglio, la Fourier-istoj16 en Francio, am-baŭ jam ŝrumpiĝintaj al malrapide formortantaj sektoj; aliflanke la plej multespecajn ”socialajn” ĉarlatanojn, kiuj pro-mesis forigi la sociajn mankojn per ĉiuspeca flikado, sen ajna danĝero por kapitalo kaj profito — en ambaŭ kazoj temas pri Ruslando”, li mencias kiel verkinton de la citita traduko G. V.
 
 
-16 Adeptoj de Franĉois Marie Charles Fourier (Furje) (1772 – 1837) franca utopieca socialisto. (Trad.) 15
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+16 Adeptoj de Franĉois Marie Charles Fourier (Furje) (1772 – 1837) franca utopieca socialisto. (Trad.)
 
 
 homoj starintaj ekster la laborista movado kaj prefere serĉintaj subtenon ĉe la ”kleraj” klasoj. Tiu parto de la laborista klaso, kiu estis konvinkiĝinta pri la nesufiĉeco de nuraj politikaj reformoj kaj postulinta totalan rekonstruon de la socio, tiu parto siatempe sin nomis komunista. Temis ankoraŭ pri kruda, nerabotita, pure instinkta speco de komunismo; sed ĝi trafis la kardinalan punkton kaj estis sufiĉe potenca en la laborista movado, por krei la utopiecan komunismon, tiun de Cabet en Francio, tiun de Weitling en Germanio. Pro tio do en la jaro 1847 la socialismo estis movado de la meza klaso, la komunismo — movado de la laborista klaso. La socialismo estis ”salonakceptebla”, almenaŭ sur la kontinento; la komunismo estis la rekta kontraŭo. Kaj ĉar ekde la komenco ni opiniis, ke ”la emancipado de la laborista klaso devas esti la faro de la laborista klaso mem”, ne povis esti dubo pri tio, kiun el la du nomoj ni elektos. Eĉ pli, ekde tiam ni neniam pensis malkonfesi ĝin.
 
-Kvankam la ”Manifesto” estas nia komuna laboro, mi sentas min tamen devigita konstati, ke la fundamenta penso, kiu formas la kernon, apartenas al Marx. Tiu penso estas jena: ke en ĉiu historia epoko la reganta ekonomio kun sia maniero de produktado kaj interŝanĝado kaj la el tio neeviteble rezultanta socia strukturiĝo formas la fundamenton sur kiu konstruiĝas la politika kaj la intelekta historio de tiu epoko kaj kiu estas klarigebla nur surbaze de tiu fundamento; ke sekve la tuta historio de la homaro (ekde la malapero de la primitiva genta socio kun sia komuna terproprieto) estis historio de klasbatalo, de bataloj inter ekspluatantaj kaj ekspluatataj, regantaj kaj subpremataj klasoj; ke la historio de tiuj klasbataloj formas evoluovicon, en kiu oni nuntempe atingis ŝtupon, 16
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Kvankam la ”Manifesto” estas nia komuna laboro, mi sentas min tamen devigita konstati, ke la fundamenta penso, kiu formas la kernon, apartenas al Marx. Tiu penso estas jena: ke en ĉiu historia epoko la reganta ekonomio kun sia maniero de produktado kaj interŝanĝado kaj la el tio neeviteble rezultanta socia strukturiĝo formas la fundamenton sur kiu konstruiĝas la politika kaj la intelekta historio de tiu epoko kaj kiu estas klarigebla nur surbaze de tiu fundamento; ke sekve la tuta historio de la homaro (ekde la malapero de la primitiva genta socio kun sia komuna terproprieto) estis historio de klasbatalo, de bataloj inter ekspluatantaj kaj ekspluatataj, regantaj kaj subpremataj klasoj; ke la historio de tiuj klasbataloj formas evoluovicon, en kiu oni nuntempe atingis ŝtupon,
 
 
 kie la ekspluatata kaj subpremata klaso — la proletaro — ne povas atingi sian liberiĝon el sub la jugo de la ekspluatanta kaj reganta klaso — la burĝaro, — sen samtempe unu fojon por ĉiam liberigi la tutan socion de ĉiu ekspluatado kaj subpremado, de ĉiuj klasdiferencoj kaj klasbataloj.
@@ -202,9 +155,7 @@ Al tiu penso, kiu laŭ mia opinio kapablas doni al la historiscienco la saman pr
 
 mi citas jenon:
 
-”Kiom ajn ŝanĝiĝis la cirkonstancoj dum la lastaj dudek kvin jaroj, la ĝeneralaj principoj, evoluigitaj en ĉi tiu ”Manifesto”, entute restas plene validaj ankaŭ hodiaŭ. Jen kaj jen oni devus plibonigi detalojn. Kiel la ”Manifesto” mem klarigas, la praktika apliko de tiuj principoj ĉie kaj ĉiam dependas de la ekzistantaj historiaj kondiĉoj. Pro tio ankaŭ ne estas metita aparta akcento sur la revoluciajn intervenojn, proponitajn fine de la ĉapitro II. Tiu parto hodiaŭ aspektus multrilate alia. Rigarde al la grandega evoluo de la grandindustrio ekde 1848 kaj la plibonigita kaj progresinta partia organiziĝo de la laborista klaso, akompaninta ĝin, rigarde al la praktikaj 17 ”The Condition of the Working Class in England in 1844". By Frederick Engels. Translated by Florence K. Wisohnewetzky, New York. LovellLondon, W. Reeves, 1888. (Noto de Engels) 17
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+”Kiom ajn ŝanĝiĝis la cirkonstancoj dum la lastaj dudek kvin jaroj, la ĝeneralaj principoj, evoluigitaj en ĉi tiu ”Manifesto”, entute restas plene validaj ankaŭ hodiaŭ. Jen kaj jen oni devus plibonigi detalojn. Kiel la ”Manifesto” mem klarigas, la praktika apliko de tiuj principoj ĉie kaj ĉiam dependas de la ekzistantaj historiaj kondiĉoj. Pro tio ankaŭ ne estas metita aparta akcento sur la revoluciajn intervenojn, proponitajn fine de la ĉapitro II. Tiu parto hodiaŭ aspektus multrilate alia. Rigarde al la grandega evoluo de la grandindustrio ekde 1848 kaj la plibonigita kaj progresinta partia organiziĝo de la laborista klaso, akompaninta ĝin, rigarde al la praktikaj 17 ”The Condition of the Working Class in England in 1844". By Frederick Engels. Translated by Florence K. Wisohnewetzky, New York. LovellLondon, W. Reeves, 1888. (Noto de Engels)
 
 
 spertoj kolektitaj unue dum la Februara Revolucio kaj eĉ multe pli dum la Pariza Komunumo, kie unuan fojon la proletaro dum du monatoj havis la politikan potencon, rigarde al tio ĉi tiu programo hodiaŭ kelkaloke estas malnoviĝinta. La Komunumo aparte pruvis, ke ’la laborista klaso ne simple povas preni en posedon la pretan ŝtatmekanismon kaj ekfunkciigi ĝin por siaj propraj celoj’ (Vidu ’The Civil War in France. Address to the General Council of the International Working-Men’s Association’ London, Truelove, 1871, p. 15, kie la temo estas plutraktita). Plue kompreneblas, ke la kritiko pri la socialisma literaturo hodiaŭ estas mankhava, ĉar ĝi nur traktas ĝis 1847; la samo koncernas la rimarkojn pri la rilato de la komunistoj al la diversaj opoziciaj partioj (ĉapitro IV), kvankam ili nuntempe ankoraŭ estas ĝustaj en la bazaj trajtoj, tamen en sia prezento ili hodiaŭ estas malnoviĝintaj jam pro tio, ĉar la politika situacio totale transformiĝis kaj la historia evoluo elmondigis la plej multajn de la tie menciitaj partioj.
@@ -220,20 +171,12 @@ Londono, la 30-a de
 Friedrich Engels
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Dua rusa traduko — de Vera Zasuliĉ — aperis en 1882 en
 
-enevo. La antaŭparolon al tio verkis Marx kaj mi. Bedaŭrinde mi perdis la germanan originalan manuskripton, mi do devas retraduki el la rusa, per kio la laboraĵo tute ne pliboni-
-
-ĝas19. i tekstas:
+enevo. La antaŭparolon al tio verkis Marx kaj mi. Bedaŭrinde mi perdis la germanan originalan manuskripton, mi do devas retraduki el la rusa, per kio la laboraĵo tute ne pliboniĝas19. i tekstas:
 
 
 (Trad.)
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 kaj kiam la elmigrado al la Unuiĝintaj ŝtatoj absorbis la su-perfluajn fortojn de la eŭropa proletaro. Ambaŭ landoj provizis Eŭropon per krudmaterialoj kaj samtempe servis kiel merkatoj por la vendo de ĝiaj industriaj varoj. Do tiam am-baŭ landoj tiel aŭ aliel estis kolonoj de la eŭropa socia ordo.
@@ -242,9 +185,7 @@ Kiom ĉio ĉi hodiaŭ ŝanĝiĝis! uste la eleŭropa enmigrado ebligis la kolosa
 
 Kaj nun pri Ruslando! Dum la revolucio 1848/49 ne nur la eŭropaj monarkoj sed ankaŭ la eŭropaj burĝoj vidis en la rusa interveno la solan savon kontraŭ la proletaro, kiu ĵus konsciiĝadas pri siaj fortoj. Ili proklamis la caron ĉefo de la eŭro-pa reakcio. Hodiaŭ li sidas kiel militkaptito de la revolucio en Gatĉina, kaj Rusio formas la avangardon de la revolucia movado de Eŭropo.
 
-Estis la tasko de la ’Komunista Manifesto’ proklami la neeviteble antaŭstarantan pereon de la hodiaŭa burĝa proprieto. Sed en Ruslando ni trovas, krom la hastege evoluanta kapitalisma ordo kaj la nur ĵus evoluanta burĝa terproprieto, la 20
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Estis la tasko de la ’Komunista Manifesto’ proklami la neeviteble antaŭstarantan pereon de la hodiaŭa burĝa proprieto. Sed en Ruslando ni trovas, krom la hastege evoluanta kapitalisma ordo kaj la nur ĵus evoluanta burĝa terproprieto, la
 
 
 duonon de la tero kiel komunan proprieton de la kamparanoj.
@@ -263,19 +204,12 @@ Krome aperis nova dana traduko en ”Socialdemokratisk Bibliotek”, Kopenhago 1
 
 En la jaro 1886 aperis nova franca traduko en ”Le Socialiste”, Parizo; ĝi estas la ĝis nun plej bona, kiu aperis.
 
-Post ĝi samjare aperis hispana traduko, unue en la Madri-da ”El Socialista” kaj poste kiel broŝuro: ”Manifesto del Par-21
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-tido Comunista” por Carlos Marx y F. Engels, Madrid, Administración de ”El Socialista”, Hernán Cortes 8.
+Post ĝi samjare aperis hispana traduko, unue en la Madri-da ”El Socialista” kaj poste kiel broŝuro: ”Manifesto del Partido Comunista” por Carlos Marx y F. Engels, Madrid, Administración de ”El Socialista”, Hernán Cortes 8.
 
 Kiel kuriozaĵon mi ankoraŭ mencias, ke en 1887 oni ofer-tis al konstantinopola eldonisto la manuskripton de armena traduko. La bonulo tamen ne kuraĝis presi ion, sur kiu aperas la nomo Marx kaj opiniis, ke pli bone la tradukinto mem aperu kiel verkinto, kion tiu tamen rifuzis.
 
 
-La ”Manifesto” havis propran biografion. En la momento de la apero entuziasme bonvenigita de la tiam ankoraŭ malgranda avangardo de la scienca socialismo (kiel pruvas la tradukoj menciitaj en la unua antaŭparolo), ĝi baldaŭ estis premita de la reakcio en la malantaŭon post la malvenko de la parizaj laboristoj en kaj fine ”laŭleĝe” proskribita per la kondamno kontraŭ la kolonaj komunistoj, en 20. Kiam la laborista movado, kalkulita ekde la Febru-20 En la kolonja proceso kontraŭ komunistoj (4. 10. – 12. 12. 1852) oni akuzis 12 membrojn de la Ligo de Komunistoj (1847 – 1852) pro ŝtatperfido. La akuzo baziĝis sur ”protokollibro” pri la centra administrejo de la Ligo, fabrikaĵo de la prusa polico kaj sur aliaj falsaĵoj. En sia verko ”Malkaŝigoj pri la kolonja proceso kontraŭ komunistoj” Marx prezentis la verajn kaŭzojn de la proceso kaj senmaskigis la prusan policismon. (Trad.) 22
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La ”Manifesto” havis propran biografion. En la momento de la apero entuziasme bonvenigita de la tiam ankoraŭ malgranda avangardo de la scienca socialismo (kiel pruvas la tradukoj menciitaj en la unua antaŭparolo), ĝi baldaŭ estis premita de la reakcio en la malantaŭon post la malvenko de la parizaj laboristoj en kaj fine ”laŭleĝe” proskribita per la kondamno kontraŭ la kolonaj komunistoj, en 20. Kiam la laborista movado, kalkulita ekde la Febru-20 En la kolonja proceso kontraŭ komunistoj (4. 10. – 12. 12. 1852) oni akuzis 12 membrojn de la Ligo de Komunistoj (1847 – 1852) pro ŝtatperfido. La akuzo baziĝis sur ”protokollibro” pri la centra administrejo de la Ligo, fabrikaĵo de la prusa polico kaj sur aliaj falsaĵoj. En sia verko ”Malkaŝigoj pri la kolonja proceso kontraŭ komunistoj” Marx prezentis la verajn kaŭzojn de la proceso kaj senmaskigis la prusan policismon. (Trad.)
 
 
 ara Revolucio, malaperis de la publika scenejo, ankaŭ la ”Manifesto” malaperis en la fono.
@@ -285,14 +219,9 @@ Kiam la eŭropa laborista klaso denove estis sufiĉe refortiĝinta por nova atak
 venos sole el la intelekta evoluo de la laborista klaso, kiu necese rezultas el la unuigitaj agoj kaj diskutadoj. La eventoj kaj sortoŝanĝoj en la batalo kontraŭ la kapitalo, pli la malvenkoj ol la venkoj, ne povis malhelpi montri al la batalintoj la nesufiĉecon de iliaj ĝisnunaj ĉiopovaj rimedoj kaj malfermi iliajn kapojn por pli profunda kompreno de la veraj kondiĉoj por la laborista emancipado. Kaj Marx pravis. La laborista klaso de 1874, kiam la Internacio estis malfondita, estis tute alia ol tiu de 1864, kiam ĝi estis fondita. La Proudhon-ismo en la romanlingvaj landoj, la specifa Lassalle-ismo en Germanio estis mortantaj kaj eĉ la siatempe konservativegaj anglaj sin-21 Lassalle al mi persone ĉiam konfesis sin ”disĉiplo” de Marx kaj kiel tiu kompreneble staris sur la fundamento de la ”Manifesto”. Alia afero estis kun tiuj liaj adeptoj, kiuj restis ĉe la postuloj de produktadaj kooperativoj kun ŝtata kredito kaj kiuj disdividis la tutan laboristan klason en ŝtathelpantojn kaj memhelpantojn. (Noto de Engels)
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 dikatoj malrapide atingis la punkton, kiam en la jaro 1887 la prezidanto de ilia kongreso en Swansea povis deklari en ilia nomo: ”La kontinenta socialismo por ni perdis sian terurecon”. La kontinenta socialismo — sed tio jam en 1887 estis nur la teorio prezentita en la ”Manifesto”. Kaj tiel certagrade la historio de la ”Manifesto” spegulas la historion de la moderna laborista movado ekde 1848. Nuntempe ĝi sendube estas la plej disvastigita, la plej internacia produkto de la tuta socialisma literaturo, la komuna programo de multaj milionoj de laboristoj ĉiulandaj de Siberio ĝis Kalifornio.
 
-Kaj tamen, kiam ĝi aperis, ni ne estus rajtintaj nomi ĝin socialista manifesto. Sub socialistoj en 1847 oni komprenis du specojn da homoj. Unuflanke temis pri adeptoj de diversaj utopiecaj sistemoj, speciale la Owen-istoj en Anglio kaj la Fourier-istoj en Francio, ambaŭ jam tiam ŝrumpiĝintaj al nuraj malrapide formortantaj sektoj. Aliflanke la plej mult-specaj sociaj ĉarlatanoj, kiuj per siaj ĉiopovaj medicinaĵoj kaj per ĉiaspeca flikado volis helpi forigi la sociajn mankojn, sen ajna danĝero por la kapitalo kaj profito. En ambaŭ kazoj temas pri homoj starintaj ekster la laborista movado kaj prefere serĉintaj subtenon ĉe la ”kleraj” klasoj. Tamen tiu parto de la laboristaro, kiu estis konvinkita pri la nesufiĉeco de nuraj politikaj reformoj kaj postulis totalan rekonstruon de la socio, tiu parto siatempe sin nomis komunista. Estis nur malglate ellaborita, nur instinkta, foje iom kruda komunismo; sed ĝi estis sufiĉe potenca, por krei du sistemojn de la utopieca komunismo, en Francio la ”ikarian” de Cabet, en Germanio tion de Weitling. Socialismo en 1847 estas burĝa movado, komunismo estas laborista movado. La socialismo, almenaŭ sur la kontinento, estis salonakceptebla, la komunismo estis la rekta 24
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Kaj tamen, kiam ĝi aperis, ni ne estus rajtintaj nomi ĝin socialista manifesto. Sub socialistoj en 1847 oni komprenis du specojn da homoj. Unuflanke temis pri adeptoj de diversaj utopiecaj sistemoj, speciale la Owen-istoj en Anglio kaj la Fourier-istoj en Francio, ambaŭ jam tiam ŝrumpiĝintaj al nuraj malrapide formortantaj sektoj. Aliflanke la plej mult-specaj sociaj ĉarlatanoj, kiuj per siaj ĉiopovaj medicinaĵoj kaj per ĉiaspeca flikado volis helpi forigi la sociajn mankojn, sen ajna danĝero por la kapitalo kaj profito. En ambaŭ kazoj temas pri homoj starintaj ekster la laborista movado kaj prefere serĉintaj subtenon ĉe la ”kleraj” klasoj. Tamen tiu parto de la laboristaro, kiu estis konvinkita pri la nesufiĉeco de nuraj politikaj reformoj kaj postulis totalan rekonstruon de la socio, tiu parto siatempe sin nomis komunista. Estis nur malglate ellaborita, nur instinkta, foje iom kruda komunismo; sed ĝi estis sufiĉe potenca, por krei du sistemojn de la utopieca komunismo, en Francio la ”ikarian” de Cabet, en Germanio tion de Weitling. Socialismo en 1847 estas burĝa movado, komunismo estas laborista movado. La socialismo, almenaŭ sur la kontinento, estis salonakceptebla, la komunismo estis la rekta
 
 
 kontraŭo. Kaj ĉar ni jam tiam tre firme opiniis, ke ”la emancipado de la laborista klaso devas esti la faro de la laborista klaso mem”, dum neniu momento povis ekesti dubo, kiun el la du nomoj ni elektos. Ankaŭ poste neniam venis al ni la penso refuti ĝin.
@@ -303,9 +232,7 @@ Sed ke ankoraŭ vivas la de ĝi fondita eterna ligo de la proletoj el ĉiuj land
 
 eneva Kongreso de la Internacio en 1866 kaj denove de la Pariza Laborista Kongreso en 188922. Kaj la spektaklo de la hodiaŭa tago malfermos la okulojn al la kapitalistoj kaj ter-22 La unua kongreso de la Internacia Laborista Asocio okazis de la 3-a
 
-ĝis 8-a de en enevo. La plej gravaj decidoj de la kongreso baziĝas sur la de Marx ellaboritaj ”instrukcioj por la delegitoj de la Provizora Centra Konsilantaro pri la unuopaj demandoj”. La kongreso akceptis i. a. ses el la entute naŭ de Marx verkitaj punktoj, inter ili rezolucion pri limigo de la taga labortempo. La Internacia Socialista Kongreso en Parizo, kiu fariĝis la fondokongreso de la 2-a Internacio, okazis de la 14-a ĝis 20-a de . La kongreso ellaboris la bazon por internaciaj leĝoj por 25
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+ĝis 8-a de en enevo. La plej gravaj decidoj de la kongreso baziĝas sur la de Marx ellaboritaj ”instrukcioj por la delegitoj de la Provizora Centra Konsilantaro pri la unuopaj demandoj”. La kongreso akceptis i. a. ses el la entute naŭ de Marx verkitaj punktoj, inter ili rezolucion pri limigo de la taga labortempo. La Internacia Socialista Kongreso en Parizo, kiu fariĝis la fondokongreso de la 2-a Internacio, okazis de la 14-a ĝis 20-a de . La kongreso ellaboris la bazon por internaciaj leĝoj por
 
 
 posedantoj de ĉiuj landoj pri tio, ke vere hodiaŭ la proletoj el ĉiuj landoj unuiĝis.
@@ -316,17 +243,10 @@ Londono, la 1-a de
 
 F. Engels
 
-gardi la rajtojn de la laboristoj. La decido de la kongreso, je la 1-a de en ĉiuj landoj organizi manifestaciojn por la okhora labortago kaj internacia solidareco, fariĝis la naskiĝa horo de la bataltago de la laborista klaso. (Trad.) 26
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+gardi la rajtojn de la laboristoj. La decido de la kongreso, je la 1-a de en ĉiuj landoj organizi manifestaciojn por la okhora labortago kaj internacia solidareco, fariĝis la naskiĝa horo de la bataltago de la laborista klaso. (Trad.)
 
 
-Unue estas rimarkinde, ke lastatempe la ”Manifesto” fari-
-
-ĝis kriterio por la evoluo de la grandindustrio sur la eŭropa kontinento. Tiom, kiom en difinita lando la grandindustrio plivastiĝas, tiom ankaŭ kreskas inter la laboristoj de la sama lando la postulo je klarigoj pri ilia pozicio kiel laborista klaso rilate al la posedantaj klasoj, disvastiĝas inter ili la socialista movado kaj kreskas la akirbezono al la ”Manifesto”. Tiel ne nur la stato de la laborista movado sed ankaŭ la evoluosta-to de la grandindustrio en ĉiu lando povas esti sufiĉe precize mezurata per la nombro da ekzempleroj de la ”Manifesto”, disvastigita en la lingvo de la lando.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Unue estas rimarkinde, ke lastatempe la ”Manifesto” fariĝis kriterio por la evoluo de la grandindustrio sur la eŭropa kontinento. Tiom, kiom en difinita lando la grandindustrio plivastiĝas, tiom ankaŭ kreskas inter la laboristoj de la sama lando la postulo je klarigoj pri ilia pozicio kiel laborista klaso rilate al la posedantaj klasoj, disvastiĝas inter ili la socialista movado kaj kreskas la akirbezono al la ”Manifesto”. Tiel ne nur la stato de la laborista movado sed ankaŭ la evoluosta-to de la grandindustrio en ĉiu lando povas esti sufiĉe precize mezurata per la nombro da ekzempleroj de la ”Manifesto”, disvastigita en la lingvo de la lando.
 
 
 gra kaj Azova Maroj, ankoraŭ aliaj dissemitaj, — la pola industrio estas kunpremita sur relative eta teritorio kaj ĝuas la avantaĝojn kaj malavantaĝojn de tiu koncentriĝo. La avantaĝojn rekonis la konkurantaj rusaj fabrikantoj, kiam ili postulis protektajn importdoganojn kontraŭ Pollando, malgraŭ sia arda deziro transformi la polojn en rusojn. La malavantaĝoj — por la polaj fabrikantoj kaj por la rusa registaro —
@@ -340,17 +260,11 @@ Sed la rapida evoluo de la pola industrio, superinta la rusan, estas siavice nov
 25 Aludo al la nacia ribelo, kiu komenciĝis en sur pola tero (sed parto de la rusa imperio) kaj estis kruele sufokita per la caraj trupoj. (Trad.)
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 dependecon de Pollando la nobelaro nek povis konservi nek reakiri; al la burĝaro ĝi hodiaŭ almenaŭ estas indiferenta. Kaj tamen ĝi estas neceso por la harmonia kunagado de la eŭropaj nacioj. Nur la juna pola proletaro povas elbatali ĝin, kaj en ties manoj ĝi estas sekura. Nome, la laboristoj de la tuta cetera Eŭropo same bezonas la sendependecon de Pollando kiel la polaj laboristoj mem.
 
 Londono, la 10-a de
 
 F. Engels
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 Al la itala leganto
@@ -359,34 +273,21 @@ La publikigo de la ”Manifesto de la Komunista Partio”
 
 samtempis precize preskaŭ je la tago kun la 18-a de , kiam okazis la revolucioj de Milano kaj Berlin, kiam en la centro de la eŭropa kontinento unuflanke kaj de la Me-diteraneo aliflanke leviĝis du nacioj, kiuj ĝis tiam estis mal-fortigitaj pro teritoria dishakiteco kaj internaj kvereloj kaj pro tio subiĝintaj sub fremda regado. Dum Italio estis subigita al la imperiestro de Aŭstrio, Germanio devis porti, se ankaŭ ne tiel rekte, la ne malpli pezan jugon de la caro de ĉiuj rusoj. La efikoj de la 18-a de liberigis Italion kaj Germanion el tiu honto. Se ambaŭ grandaj nacioj estis restarigitaj kaj certagrade redonitaj al si mem en la tempo inter 1848 ĝis 1871, tiam, kiel diris Karl Marx, tio okazis pro tio, ĉar la samaj homoj, kiuj sufokis la revolucion de 1848, fariĝis kontraŭvole ties testamento-realigantoj.
 
-La revolucio estis tiam ĉie la faro de la laborista klaso. Estis la laborista klaso, kiu starigis la barikadojn pagante per sia vivo. Nur la laboristoj de Parizo, kiam ili faligis la registaron, havis la deklaritan celon, faligi la burĝan reĝimon. Sed kiom ajn ili konsciis la neeviteblan antagonismon, ekzistintan inter ilia propra klaso kaj la burĝaro, nek la ekonomia progreso de la lando nek la spirita evoluo de la francaj laboristaj amasoj estis atinginta tiun gradon, kiu estus ebliginta reorganizon de la socio. Pro tio fine la fruktojn de la revolucio en-30
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-poŝigis la kapitalista klaso. En la aliaj landoj, kiel Italio, Germanio, Aŭstrio, Hungario, la laboristoj ekde la komenco faris nenion alian ol helpi al la burĝaro akiri la potencon. Tamen en neniu lando estas ebla la regado de la burĝaro sen nacia sendependeco. Tial la revolucio de 1848 devis sekvigi la unuecon kaj sendependecon de la nacioj, kiuj ĝis tiam ne havis ilin: Italio, Germanio, Hungario, Pollando sekvos siatempe.
+La revolucio estis tiam ĉie la faro de la laborista klaso. Estis la laborista klaso, kiu starigis la barikadojn pagante per sia vivo. Nur la laboristoj de Parizo, kiam ili faligis la registaron, havis la deklaritan celon, faligi la burĝan reĝimon. Sed kiom ajn ili konsciis la neeviteblan antagonismon, ekzistintan inter ilia propra klaso kaj la burĝaro, nek la ekonomia progreso de la lando nek la spirita evoluo de la francaj laboristaj amasoj estis atinginta tiun gradon, kiu estus ebliginta reorganizon de la socio. Pro tio fine la fruktojn de la revolucio enpoŝigis la kapitalista klaso. En la aliaj landoj, kiel Italio, Germanio, Aŭstrio, Hungario, la laboristoj ekde la komenco faris nenion alian ol helpi al la burĝaro akiri la potencon. Tamen en neniu lando estas ebla la regado de la burĝaro sen nacia sendependeco. Tial la revolucio de 1848 devis sekvigi la unuecon kaj sendependecon de la nacioj, kiuj ĝis tiam ne havis ilin: Italio, Germanio, Hungario, Pollando sekvos siatempe.
 
 Kvankam la revolucio de 1848 ne estis socialista revolucio,
 
 ĝi tamen ebenigis la vojon al tia, pretigis al ĝi la terenon. Kun la evoluo de la grandindustrio en ĉiuj landoj la burĝa reĝimo dum la lastaj 45 jaroj estis kreinta multnombran, koncentri-tan kaj fortan proletaron, estis produktinta — por uzi esprimon el la ”Manifesto” — sian propran tombofosiston. Sen restarigo de la sendependeco kaj sen unueco de ĉiu eŭropa nacio estus realigita nek la internacia unuiĝo de la proletaro nek trankvila komprenema kunagado de tiuj nacioj por atingi komunajn celojn. Oni nur imagu komunan internacian aga-don de italaj, hungaraj, germanaj, polaj, rusaj laboristoj sub la politikaj cirkonstancoj antaŭ 1848!
 
-La batalegoj de 1848 do ne estis vanaj, ankaŭ ne vanaj la 45
+La batalegoj de 1848 do ne estis vanaj, ankaŭ ne vanaj la
 
 jaroj, kiuj disigas nin de tiu revolucia etapo. La fruktoj ek-maturiĝas, kaj mi nur deziras, ke la publikigo de ĉi tiu itala traduko de la ”Manifesto” estu bona antaŭsigno por la venko de la itala proletaro, tiel, kiel tio estis la publikigo de la originalo por la internacia revolucio.
 
-La ”Manifesto” juste akceptas la revolucian rolon, kiun ludis la kapitalismo dum la pasinteco. La unua kapitalisma nacio estis Italio. La fino de la feŭda mezepoko kaj la komenco de la moderna kapitalisma epoko estas markitaj per gran-31
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-da figuro — per la italo Dante, kiu samtempe estis la lasta poeto de la mezepoko kaj la unua poeto de la moderna tempo. Hodiaŭ, same kiel ĉirkaŭ la jaro 1300, komenciĝas nova historia epoko. ĉu Italio donacos la novan Dante, kiu proklamos la naskiĝhoron de la proleta epoko?
+La ”Manifesto” juste akceptas la revolucian rolon, kiun ludis la kapitalismo dum la pasinteco. La unua kapitalisma nacio estis Italio. La fino de la feŭda mezepoko kaj la komenco de la moderna kapitalisma epoko estas markitaj per granda figuro — per la italo Dante, kiu samtempe estis la lasta poeto de la mezepoko kaj la unua poeto de la moderna tempo. Hodiaŭ, same kiel ĉirkaŭ la jaro 1300, komenciĝas nova historia epoko. ĉu Italio donacos la novan Dante, kiu proklamos la naskiĝhoron de la proleta epoko?
 
 Londono, la 1-a de
 
 Friedrich Engels
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 MANIFESTO
@@ -413,15 +314,10 @@ Estas urĝa tempo, ke la komunistoj antaŭ la tuta mondo malkaŝe prezentu siajn
 
 1859), aŭstra politikisto, malamiko de ĉiuj liberalaj aŭ naciaj movadoj, kiu provis kunteni la habsburgan monarkion per absolutisma polica reĝimo. (Trad.)
 
-29 Franĉois Pierre Guillaume Guizot (Gizo) (1787 – 1874), franca liberala politikisto, faligita per la Februara Revolucio 1848. (Trad.) 33
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+29 Franĉois Pierre Guillaume Guizot (Gizo) (1787 – 1874), franca liberala politikisto, faligita per la Februara Revolucio 1848. (Trad.)
 
 
 Por tiu celo komunistoj de plej diversaj nacioj kunvenis en Londono kaj skizis la sekvan Manifeston, publikigotan en la lingvoj angla, franca, germana, itala, flandra kaj dana.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 I. Burĝoj kaj proletoj30
@@ -432,9 +328,7 @@ La historio de la tuta ĝisnuna socio31 estas la historio de klasbataloj.
 malkovris la komunan proprieton je tero en Rusio. Maurer** pruvis, ke ĝi estis la socia bazo, de kiu historie eliris ĉiuj germanaj triboj.
 
 
-August Haxthausen (1792 – 1866), prusa barono, kiu studis en 35
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+August Haxthausen (1792 – 1866), prusa barono, kiu studis en
 
 
 havis seninterrompan batalon, foje kaŝe — foje malkaŝe, batalon, kiu ĉiufoje finiĝis per revolucia transformo de la tuta socio aŭ per komuna pereo de la batalintaj klasoj.
@@ -454,9 +348,7 @@ Georg Ludwig Maurer (1790 – 1872), germana historiisto, kiu studis la mezepoko
 
 *** Lewis Henry Morgan (1818 – 1881), usona etnografo, arkeologo kaj historiisto. (Trad.)
 
-32 En la germana originalo ”Pfahlbürger” (palisburĝoj). Temas pri civitanoj de la feŭda Mezepoko, loĝintaj ekster la limpalisoj de urbo, kiuj ricevis burĝajn rajtojn, i. a. liberigo el la servuteco, pro ilia kunhelpo en la protekto de la urbo (kastelo, burgo). En figura senco: mallarĝhorizonta homo, filistro, ankaŭ etburĝo. La aŭtoroj de la Manifesto uzas ambaŭ signifojn. (Trad.) 36
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+32 En la germana originalo ”Pfahlbürger” (palisburĝoj). Temas pri civitanoj de la feŭda Mezepoko, loĝintaj ekster la limpalisoj de urbo, kiuj ricevis burĝajn rajtojn, i. a. liberigo el la servuteco, pro ilia kunhelpo en la protekto de la urbo (kastelo, burgo). En figura senco: mallarĝhorizonta homo, filistro, ankaŭ etburĝo. La aŭtoroj de la Manifesto uzas ambaŭ signifojn. (Trad.)
 
 
 la unuaj urboj; el ĉi tiu palisburĝaro evoluis la unuaj elementoj de la burĝaro.
@@ -469,16 +361,9 @@ Sed daŭre kreskis merkatoj, daŭre kreskis la bezono. An-kaŭ la manufakturo ne
 
 La grandindustrio estis establinta la mondan merkaton, kiun preparis la malkovro de Ameriko. La monda merkato donis nemezureblan evoluon al la komerco, al la navigado, al la landaj komunikligoj. Tiu evoluo siavice reefikis pliamplek-sige al la industrio, kaj same kiom etendiĝis industrio, komerco, navigado, fervojoj, same tiom la burĝaro disvolviĝis mul-tigante siajn kapitalojn, puŝante en la fonon ĉiujn klasojn hereditajn el la Mezepoko.
 
-Ni do vidas, kiel la moderna burĝaro mem estas produk-37
+Ni do vidas, kiel la moderna burĝaro mem estas produkto de longa evoluvojo, de vico da revolucioj en la sferoj de produktado kaj interŝanĝo.
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-to de longa evoluvojo, de vico da revolucioj en la sferoj de produktado kaj interŝanĝo.
-
-ĉiu paŝo de tiu evoluo de la burĝaro estis akompanata de konforma politika progreso. Subpremita klaso dum la feŭdsinjora regado, armita kaj sinmemadministrinta asocio en la mezepoka komunumo33, jen sendependa urba respubliko, jen tria impostodeva klaso de la monarkio, poste dum la tempo de la manufakturo kontraŭpezo al la nobelaro en la duonfeŭ-
-
-da aŭ en la absoluta monarkio, entute ĉefa bazo de la grandaj monarkioj, finfine ĝi batalakiris la ekskluzivan politikan potencon en moderna reprezenta ŝtato34 ekde la establo de la grandindustrio kaj de la monda merkato. La moderna ŝtat-povo nur estas komitato administranta la komunajn aferojn de la tuta burĝa klaso.
+ĉiu paŝo de tiu evoluo de la burĝaro estis akompanata de konforma politika progreso. Subpremita klaso dum la feŭdsinjora regado, armita kaj sinmemadministrinta asocio en la mezepoka komunumo33, jen sendependa urba respubliko, jen tria impostodeva klaso de la monarkio, poste dum la tempo de la manufakturo kontraŭpezo al la nobelaro en la duonfeŭda aŭ en la absoluta monarkio, entute ĉefa bazo de la grandaj monarkioj, finfine ĝi batalakiris la ekskluzivan politikan potencon en moderna reprezenta ŝtato34 ekde la establo de la grandindustrio kaj de la monda merkato. La moderna ŝtat-povo nur estas komitato administranta la komunajn aferojn de la tuta burĝa klaso.
 
 La burĝaro ludis en la historio altgrade revolucian rolon.
 
@@ -486,12 +371,7 @@ La burĝaro ludis en la historio altgrade revolucian rolon.
 34 Ekz. ŝtato kun parlamento aŭ alia formo, en kiu estas reprezentataj sociaj klasoj kaj tavoloj. (Trad.)
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-dronigis en la glacian akvon de la egoisma kalkulado la sank-tajn tremojn de pia ekstazo, de kavalira entuziasmo, de filistra sentimentaleco. i dissolvis la personan dignon en la inter-
-
-ŝanĝvaloron kaj metis sur la lokon de sennombraj leĝe garan-tiitaj kaj bone akiritaj liberecoj la unusolan senskrupulan agadliberecon. Unuvorte, sur la lokon de ekspluatado, vuali-tan per religiaj kaj politikaj iluzioj, ĝi metis la ekspluatadon malkaŝan, impertinentan, rektan, brutalan.
+dronigis en la glacian akvon de la egoisma kalkulado la sank-tajn tremojn de pia ekstazo, de kavalira entuziasmo, de filistra sentimentaleco. i dissolvis la personan dignon en la interŝanĝvaloron kaj metis sur la lokon de sennombraj leĝe garan-tiitaj kaj bone akiritaj liberecoj la unusolan senskrupulan agadliberecon. Unuvorte, sur la lokon de ekspluatado, vuali-tan per religiaj kaj politikaj iluzioj, ĝi metis la ekspluatadon malkaŝan, impertinentan, rektan, brutalan.
 
 La burĝaro senigis de ĝia aŭreolo ĉiujn agojn ĝis nun ho-norindajn kaj rigarditajn per pia timideco. i transformis la kuraciston, la juriston, la pastron, la poeton, la scienculon al siaj pagitaj dungaj laboristoj.
 
@@ -499,33 +379,22 @@ La burĝaro forŝiris de la familiaj rilatoj ties kortuŝe senti-mentalan vualon
 
 La burĝaro malkaŝis, kiel la brutala fortomontro de la reakcio tiom admirita ĉe la Mezepoko, trovis sian konvenan kompletigon en la plej inerta maldiligentado. i estis la unua, kiu pruvis, kiom kapablas fari la agado de la homo. i realigis mirindaĵojn, kiuj superas la egiptajn piramidojn, romiajn akvoduktojn kaj gotikajn katedralojn. i faris ekspediciojn multe pli grandajn ol la popolmigradoj kaj krucmilitoj35.
 
-La burĝaro ne povas ekzisti sen revoluciigi seninterrompe la produktado-instrumentojn, do sekve la produktado-rilatojn, do ĉiujn sociajn rilatojn. Sed, kontraŭe al tio, neŝanĝita konservado de la malnovaj produktado-manieroj estis la plej grava ekzistokondiĉo de ĉiuj antaŭaj industriaj klasoj. La kon-35 La krucmilitoj estis militaj kaj koloniigaj ekspedicioj dum la 11-a ĝis 13-a jarcentoj, entreprenitaj de kristanaj eŭropaj feŭdistoj kaj kavaliroj kontraŭ nekristanaj popoloj por pliampleksigi aŭ reakiri la potencon de la kristanaj feŭdistoj. (Trad.) 39
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La burĝaro ne povas ekzisti sen revoluciigi seninterrompe la produktado-instrumentojn, do sekve la produktado-rilatojn, do ĉiujn sociajn rilatojn. Sed, kontraŭe al tio, neŝanĝita konservado de la malnovaj produktado-manieroj estis la plej grava ekzistokondiĉo de ĉiuj antaŭaj industriaj klasoj. La kon-35 La krucmilitoj estis militaj kaj koloniigaj ekspedicioj dum la 11-a ĝis 13-a jarcentoj, entreprenitaj de kristanaj eŭropaj feŭdistoj kaj kavaliroj kontraŭ nekristanaj popoloj por pliampleksigi aŭ reakiri la potencon de la kristanaj feŭdistoj. (Trad.)
 
 
 stanta revoluciigo de la produktado, la seninterrompa skua-do de ĉiuj sociaj statoj, la eternaj necerteco kaj moviĝo distingas la epokon de la burĝaro disde ĉiuj aliaj antaŭaj. ĉiuj fikse enrustiĝintaj rilatoj kun sia postsekvo de malnove ho-norindaj imagoj kaj vidpunktoj estas dissolvataj, ĉiuj nove formiĝintaj malnoviĝas antaŭ ol ili povas rigidiĝi. ĉio solida kaj daŭra forvaporiĝas, ĉio sankta estas profanata, kaj la homoj finfine estas devigataj rigardi per sobraj okuloj sian viv-pozicion, siajn reciprokajn rilatojn.
 
 La bezono al daŭre pli etendita merkato por siaj varoj pelas la burĝaron ĉirkaŭ la tutan terglobon. ĉie ĝi devas ennest-iĝi, ĉie kultivadi, ĉie starigi interligojn.
 
-Per sia ekspluatado de la monda merkato la burĝaro donis al la produktado kaj konsumado en ĉiu lando kosmopolitan karakteron. Je la granda bedaŭro de la reakciuloj ĝi fortiris la nacian grundon el sub la piedoj de la industrio. La ege malnovaj naciaj industrioj estas detruitaj kaj ankoraŭ estas detru-ataj ĉiutage. Ili estas forpuŝataj per novaj industrioj, kies enkonduko fariĝas vivodecida por ĉiuj civilizitaj nacioj; per industrioj prilaborantaj ne plu enlandajn krudmaterialojn, sed krudmaterialojn, kiuj venas el plej foraj regionoj kaj kies produktoj ne nur estas konsumataj en la lando mem, sed samtempe en ĉiuj mondpartoj. Sur la lokon de la malnovaj bezonoj, kontentigitaj per la enlandaj produktoj, venas novaj, kiuj postulas por sia kontentigo produktojn de la plej foraj landoj kaj klimatoj. La malnovan lokan kaj nacian memsufiĉon kaj izolitecon anstataŭas ĉien-direkta komunikado, ĉiuflanka interdependeco de la nacioj. Kaj kiel en la materia tiel ankaŭ en la spirita produktado. La spiritaj produktoj de la unuopaj nacioj fariĝas komuna posedo. La nacia unuflankeco kaj limi-40
+Per sia ekspluatado de la monda merkato la burĝaro donis al la produktado kaj konsumado en ĉiu lando kosmopolitan karakteron. Je la granda bedaŭro de la reakciuloj ĝi fortiris la nacian grundon el sub la piedoj de la industrio. La ege malnovaj naciaj industrioj estas detruitaj kaj ankoraŭ estas detru-ataj ĉiutage. Ili estas forpuŝataj per novaj industrioj, kies enkonduko fariĝas vivodecida por ĉiuj civilizitaj nacioj; per industrioj prilaborantaj ne plu enlandajn krudmaterialojn, sed krudmaterialojn, kiuj venas el plej foraj regionoj kaj kies produktoj ne nur estas konsumataj en la lando mem, sed samtempe en ĉiuj mondpartoj. Sur la lokon de la malnovaj bezonoj, kontentigitaj per la enlandaj produktoj, venas novaj, kiuj postulas por sia kontentigo produktojn de la plej foraj landoj kaj klimatoj. La malnovan lokan kaj nacian memsufiĉon kaj izolitecon anstataŭas ĉien-direkta komunikado, ĉiuflanka interdependeco de la nacioj. Kaj kiel en la materia tiel ankaŭ en la spirita produktado. La spiritaj produktoj de la unuopaj nacioj fariĝas komuna posedo. La nacia unuflankeco kaj limigiteco pli kaj fariĝas neebla, kaj el la multaj naciaj kaj lokaj literaturoj elformiĝas monda literaturo.
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-giteco pli kaj fariĝas neebla, kaj el la multaj naciaj kaj lokaj literaturoj elformiĝas monda literaturo.
-
-La burĝaro tiras ĉiujn naciojn, ankaŭ la plej barbarajn, en la civilizacion per la rapida plibonigo de ĉiuj produktadoin-strumentoj, per la senfine plifaciligita komunikado. La malaltaj prezoj de ĝiaj varoj estas la peza artilerio, per kiu ĝi teren disbatas ĉiujn ĉinajn murojn, per kiu ĝi devigas al kapitula-co la plej obstinan kontraŭfremdulan malamon de la barba-roj. i devigas ĉiujn naciojn alproprigi al si la produktadoma-nieron de la burĝaro, se ili ne volas perei; ĝi devigas ilin, enkonduki ĉe si mem la tiel nomatan civilizacion, t. e. fariĝi bur-
-
-ĝo. Unuvorte, ĝi kreas al si mondon laŭ sia propra imago.
+La burĝaro tiras ĉiujn naciojn, ankaŭ la plej barbarajn, en la civilizacion per la rapida plibonigo de ĉiuj produktadoin-strumentoj, per la senfine plifaciligita komunikado. La malaltaj prezoj de ĝiaj varoj estas la peza artilerio, per kiu ĝi teren disbatas ĉiujn ĉinajn murojn, per kiu ĝi devigas al kapitula-co la plej obstinan kontraŭfremdulan malamon de la barba-roj. i devigas ĉiujn naciojn alproprigi al si la produktadoma-nieron de la burĝaro, se ili ne volas perei; ĝi devigas ilin, enkonduki ĉe si mem la tiel nomatan civilizacion, t. e. fariĝi burĝo. Unuvorte, ĝi kreas al si mondon laŭ sia propra imago.
 
 La burĝaro subigis la kamparon al la regado de la urbo. i kreis grandegajn urbojn, ĝi altgrade pligrandigis la nombron de la urba loĝantaro kompare al la kampara, tiel elŝirinte konsiderindan parton de la loĝantaro el la idioteco de la kampara vivo. Kiel ĝi faris dependa la kamparon de la urbo, tiel ĝi faris dependaj la barbarajn kaj duonbarbarajn landojn de la civilizitaj, la kamparanajn popolojn — de la burĝaj popoloj, la orienton de la okcidento.
 
 La burĝaro pli kaj pli nuligas la dissplitiĝon de la produktadorimedoj, de la posedaĵo kaj de la loĝantaro. i amase kunigis la loĝantaron, centralizis la produktadorimedojn kaj koncentris la proprieton en malmultajn manojn. La necesa sekvo de tio estis la politika centralizo. Sendependaj, aŭ nur malfirme ligitaj provincoj kun malsamaj interesoj, leĝoj, registaroj kaj dogansistemoj estis kunpremitaj en unu nacion, kun unu registaro, unu leĝaro, unu nacia klasintereso, unu doganlimo.
 
-Dum sia apenaŭ centjara klasa regado la burĝaro kreis pli 41
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Dum sia apenaŭ centjara klasa regado la burĝaro kreis pli
 
 
 da amasaj kaj pli da kolosaj produktado-fortoj ol ĉiuj antaŭaj generacioj kune. Subjugigo de naturfortoj al la homo, maŝinaro, aplikado de la kemio por industrio kaj agrokulturo, vaporŝipado, fervojoj, elektraj telegrafoj, kultivado de kompletaj mondpartoj, navigebligo de riveroj, tutaj loĝantaroj kvazaŭ elpremitaj el la tero — kiu antaŭa jarcento antaŭsentis, ke tiaj produktado-fortoj dormetis en la sino de la socia laboro?
@@ -534,14 +403,10 @@ Ni do vidis: La produktado-rimedoj kaj la rimedoj de interkomunikado surbaze de 
 
 Sur ilian lokon venis la libera konkurenco kun politika kaj socia konstitucioj adaptitaj al ĝi, kun la ekonomia kaj politika regadoj de la burĝa klaso.
 
-Antaŭ niaj okuloj okazas simila moviĝo. La moderna burĝa societo kun siaj rilatoj de produktado, interŝanĝado kaj proprieto, do socio, kiu elsorĉis tiajn gigantajn rimedojn de produktado kaj interŝanĝado, similas al la magiisto, kiu ne plu kapablas regi la inferajn potencojn, kiujn li elvokis. Ekde jar-dekoj la historio de la industrio kaj de la komerco estas nur la historio de ribelado de la modernaj produktivaj fortoj kontraŭ la modernaj produktado-rilatoj, kontraŭ la proprieto-rilatoj, kiuj estas la ekzistokondiĉoj de la burĝaro kaj de ĝia 42
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Antaŭ niaj okuloj okazas simila moviĝo. La moderna burĝa societo kun siaj rilatoj de produktado, interŝanĝado kaj proprieto, do socio, kiu elsorĉis tiajn gigantajn rimedojn de produktado kaj interŝanĝado, similas al la magiisto, kiu ne plu kapablas regi la inferajn potencojn, kiujn li elvokis. Ekde jar-dekoj la historio de la industrio kaj de la komerco estas nur la historio de ribelado de la modernaj produktivaj fortoj kontraŭ la modernaj produktado-rilatoj, kontraŭ la proprieto-rilatoj, kiuj estas la ekzistokondiĉoj de la burĝaro kaj de ĝia
 
 
-regado. Sufiĉas mencii la komerckrizojn, kiuj, periode reve-nantaj, ĉiam pli minace dubindigas la ekziston de la tuta bur-
-
-ĝa socio. Dum la komerckrizoj regule estas detruata ne nur granda parto de la produktitaj varoj, sed ankaŭ de la jam kreitaj produktivaj fortoj. Dum tiuj krizoj eksplodas socia epidemio, kiu al ĉiuj antaŭaj epokoj estus ŝajninta absurdaĵo — la epidemio de la troproduktado. Subite la socio sin trovas re-puŝita al stato de pormomenta barbareco; ŝajnas al ĝi, kvazaŭ malsatmizero, ĉion neniiga milito estas fortranĉinta de ĝi ĉiujn nutraĵojn; ŝajnas neniigitaj la industrio, la komerco. Kaj kial? ĉar ĝi posedas tro da civilizacio, tro da nutraĵoj, tro da industrio, tro da komerco. La al ĝi disponeblaj produktivaj fortoj ne plu servas al la disvolviĝo de la burĝaj proprieto-rilatoj; kontraŭe, ili fariĝis por tiuj rilatoj tro gigantaj kaj estas bremsataj per ili; kaj kiam tiuj produktivaj fortoj venkas ĉi tiun malhelpaĵon, ili malordigas la tutan burĝan socion, minacas la ekziston de la burĝa proprieto. La burĝaj rilatoj fariĝis tro malvastaj por enteni la de ĝi kreitan riĉaĵon. — Per kio la burĝaro venkas la krizojn? Unuflanke per la devigita detruo de amaso da produktivaj fortoj; aliflanke per la konkero de novaj merkatoj kaj la ĝisfunda ekspluatado de malnovaj merkatoj. Do per kio? Per tio, ke ĝi preparas pli kom-pleksajn kaj pli gigantajn krizojn reduktante la rimedojn por preventi la krizojn.
+regado. Sufiĉas mencii la komerckrizojn, kiuj, periode reve-nantaj, ĉiam pli minace dubindigas la ekziston de la tuta burĝa socio. Dum la komerckrizoj regule estas detruata ne nur granda parto de la produktitaj varoj, sed ankaŭ de la jam kreitaj produktivaj fortoj. Dum tiuj krizoj eksplodas socia epidemio, kiu al ĉiuj antaŭaj epokoj estus ŝajninta absurdaĵo — la epidemio de la troproduktado. Subite la socio sin trovas re-puŝita al stato de pormomenta barbareco; ŝajnas al ĝi, kvazaŭ malsatmizero, ĉion neniiga milito estas fortranĉinta de ĝi ĉiujn nutraĵojn; ŝajnas neniigitaj la industrio, la komerco. Kaj kial? ĉar ĝi posedas tro da civilizacio, tro da nutraĵoj, tro da industrio, tro da komerco. La al ĝi disponeblaj produktivaj fortoj ne plu servas al la disvolviĝo de la burĝaj proprieto-rilatoj; kontraŭe, ili fariĝis por tiuj rilatoj tro gigantaj kaj estas bremsataj per ili; kaj kiam tiuj produktivaj fortoj venkas ĉi tiun malhelpaĵon, ili malordigas la tutan burĝan socion, minacas la ekziston de la burĝa proprieto. La burĝaj rilatoj fariĝis tro malvastaj por enteni la de ĝi kreitan riĉaĵon. — Per kio la burĝaro venkas la krizojn? Unuflanke per la devigita detruo de amaso da produktivaj fortoj; aliflanke per la konkero de novaj merkatoj kaj la ĝisfunda ekspluatado de malnovaj merkatoj. Do per kio? Per tio, ke ĝi preparas pli kom-pleksajn kaj pli gigantajn krizojn reduktante la rimedojn por preventi la krizojn.
 
 La armiloj, per kiuj la burĝaro faligis la feŭdismon, nun direktiĝas kontraŭ la burĝaro mem.
 
@@ -549,20 +414,14 @@ Sed la burĝaro ne nur forĝis la armilojn, kiuj portos al ĝi la morton; ĝi an
 
 — la modernajn laboristojn, la proletojn.
 
-Same kiom disvolviĝas la burĝaro, t. e. la kapitalo, same 43
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Same kiom disvolviĝas la burĝaro, t. e. la kapitalo, same
 
 
 tiom disvolviĝas la proletaro, la klaso de la modernaj laboristoj, kiuj vivos nur tiom longe kiom ili trovos laboron, kaj kiuj trovos laboron nur tiom longe kiom ilia laboro kreskigas la kapitalon. Tiuj laboristoj, kiuj devas vendi sin popece, estas varoj kiel ĉiu alia komerca artiklo kaj tial regule elmetataj al ĉiuj ŝanĝiĝoj de la konkurenco, al ĉiuj ŝanceliĝadoj de la merkato.
 
 La laboro de la proletoj perdis ĉiun memstaran karakteron kaj per tio ĉiun allogon por la laboristoj pro la plivastiĝanta uzado de maŝinoj kaj la labordivido. Ili fariĝis nura aldonaĵo de la maŝino, de kiu estas postulata nur la plej simpla, plej monotona, plej facile lernebla manmovo. La kostoj, kiujn kaŭzas la laboristo, limiĝas pro tio preskaŭ nur al la nutraĵo, kiujn li bezonas por sia vivteno kaj por la generado de sia raso. La prezo de varo, sekve ankaŭ de la laboro, egalas al ties produkto-kostoj. Same kiom kreskadas la malagrableco de la laboro, same tiom malkreskas la salajro. Ankoraŭ pli, same kiom kreskadas la maŝinaro kaj labordivido, same tiom ankaŭ kreskadas la laborkvanto, ĉu pro plimultiĝo de laboro postulata dum fiksita tempo, ĉu pro plialtigita rapideco de maŝinoj ktp.
 
-La moderna industrio transformis la malgrandan metiejon de la patriarka majstro en la grandan fabrikon de industria kapitalisto. Laboristaj amasoj, kunpremitaj en la fabriko, estas organizitaj kiel soldatoj. Kiel simplaj industrisoldatoj ili estas metitaj sub la komandon de kompleta hierarkio de subofici-roj kaj oficiroj. Ili ne nur estas sklavoj de la burĝa klaso, en la burĝa ŝtato, ili estas ĉiutage kaj ĉiuhore sklavigataj de la ma-
-
-ŝino, de la kontrolisto kaj antaŭ ĉio de la unuopaj fabrikan-taj burĝoj mem. Ju pli malkaŝe ĝi proklamas la gajnon kiel 44
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La moderna industrio transformis la malgrandan metiejon de la patriarka majstro en la grandan fabrikon de industria kapitalisto. Laboristaj amasoj, kunpremitaj en la fabriko, estas organizitaj kiel soldatoj. Kiel simplaj industrisoldatoj ili estas metitaj sub la komandon de kompleta hierarkio de subofici-roj kaj oficiroj. Ili ne nur estas sklavoj de la burĝa klaso, en la burĝa ŝtato, ili estas ĉiutage kaj ĉiuhore sklavigataj de la maŝino, de la kontrolisto kaj antaŭ ĉio de la unuopaj fabrikan-taj burĝoj mem. Ju pli malkaŝe ĝi proklamas la gajnon kiel
 
 
 sian celon, des pli pedanta, malica, fanatika estas tiu despo-teco.
@@ -573,25 +432,18 @@ Ju malpli la manlaboro bezonas lertecon kaj forton, t. e. ju pli la moderna indu
 
 Apenaŭ la ekspluatado de la laboristo fare de la fabrik-posedanto atingis tiun punkton, ke li ricevas sian salajron en kontanta mono, tuj atakas lin la aliaj partoj de la burĝaro: la domposedanto, la vendejestro, la lombardisto ktp.
 
-La ĝisnunaj subaj tavoloj de la meza klaso, la etindustri-istoj, komercistoj kaj rentuloj, la metiistoj kaj kamparanoj, ĉiuj ĉi klasoj sinkas en la proletaron, parte pro tio, ĉar venkita en la konkurenco kun la pli grandaj kapitalistoj, ilia eta kapitalo ne sufiĉas por la funkciigado de granda industrio, parte pro tio, ĉar ilia lerteco fariĝas senvalora pro novaj produktado-manieroj. Tial la proletaro devenas el ĉiuj klasoj de la loĝ-
-
-antaro.
+La ĝisnunaj subaj tavoloj de la meza klaso, la etindustri-istoj, komercistoj kaj rentuloj, la metiistoj kaj kamparanoj, ĉiuj ĉi klasoj sinkas en la proletaron, parte pro tio, ĉar venkita en la konkurenco kun la pli grandaj kapitalistoj, ilia eta kapitalo ne sufiĉas por la funkciigado de granda industrio, parte pro tio, ĉar ilia lerteco fariĝas senvalora pro novaj produktado-manieroj. Tial la proletaro devenas el ĉiuj klasoj de la loĝantaro.
 
 La proletaro trairas diversajn evoluŝtupojn. ia batalo kontraŭ la burĝaro komenciĝas kun sia ekzisto.
 
 Komence batalis unuopaj laboristoj, poste la laboristoj de unu fabriko, poste la laboristoj de profesiobranĉo en unu loko kontraŭ tiu individua burĝo, kiu rekte ekspluatas ilin. Ili direktas siajn atakojn ne nur kontraŭ la burĝaj produktado-kondiĉoj, sed ankaŭ kontraŭ la produktado-instrumentoj mem; ili detruas la fremdajn konkurencajn varojn, ili disbatas la maŝinojn, bruligas la fabrikojn, ili provas reakiri la mal-aperintan pozicion de la mezepoka laborulo.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Sur tiu ŝtupo la laboristoj formas amason dissemitan tra la tuta lando kaj dissplitigitan per la konkurenco. Amasa solidareco de la laboristoj ankoraŭ ne estas sekvo de ilia propra unuiĝo, sed sekvo de unuiĝo de la burĝaro, kiu devas movi kaj provizore ankoraŭ povas movi la proletaron por atingi siajn proprajn politikajn celojn. Sur ĉi tiu ŝtupo la proletoj do ne batalas kontraŭ siaj malamikoj, sed kontraŭ la malamikoj de siaj malamikoj, kontraŭ la restaĵoj de la absoluta monarkio, la terposedantoj, la neindustriaj burĝoj, la etburĝoj. Tiel la tuta historia movado estas koncentrita en la manoj de la burĝaro; ĉiu tiel akirita venko estas venko de la burĝaro.
 
 Sed kun la disvolviĝo de la industrio ne nur plimultiĝas la proletaro; ĝi estas koncentrata en pli grandajn amasojn, kreskas ĝia forto, kiun ĝi pli sentas. Interne de la proletaro la interesoj, la vivsituacioj pli kaj pli interegaliĝas, ĉar la maŝinaro pli kaj pli forviŝas la diferencojn de la laboro preskaŭ ĉie suben premanta la salajron sur same malaltan nivelon. — La kreskanta konkurenco de la burĝaro inter si kaj la komerckrizoj rezultantaj el tio faras la salajron de la laboristoj ĉiam pli malstabila. La ĉiam pli rapide progresanta senĉesa pliboniĝo de la maŝinaro ĉiam pli malcertigas ilian tutan vivsituacion. La kolizioj inter la unuopa laboristo kaj la unuopa burĝo ĉiam pli ekhavas la karakteron de kolizio inter du klasoj. La laboristoj komencas fondi koaliciojn kontraŭ la burĝoj; ili kuniĝas por defendi sian salajron. Ili mem fondas konstan-tajn asociojn, por provianti sin por okazaj ribeloj. Kelkaloke la bataloj fariĝas ribeloj.
 
-De tempo al tempo la laboristoj venkas, sed nur provizore. La propra rezulto de iliaj bataloj ne estas la senpera suk-ceso, sed la daŭre etendiĝanta unuiĝo de la laboristoj. Tion 46
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+De tempo al tempo la laboristoj venkas, sed nur provizore. La propra rezulto de iliaj bataloj ne estas la senpera suk-ceso, sed la daŭre etendiĝanta unuiĝo de la laboristoj. Tion
 
 
 helpas la kreskantaj rimedoj de komunikado, produktataj de la grandindustrio kaj kunligantaj la diverslokajn laboristojn.
@@ -600,28 +452,18 @@ Nur necesas kunligo, por centralizi la multajn ĉie samkarak-terajn lokajn batal
 
 ĉi tiu organiziĝo de la proletaro al klaso, kaj per tio al politika partio, ĉiumomente estas denove rompata per la konkurenco inter la laboristoj mem. Sed ĉiam denove ĝi rekreiĝas, pli forte, pli firme, pli potence. i eldevigas la rekonon de iuj interesoj de la laboristoj en leĝa formo, eluzante la skis-mojn de la burĝaro inter si. Ekzemplo estas la leĝo pri dek-hora labortago en Anglio.
 
-Entute la kolizioj de la malnova socio multrilate akcelas la evoluon de la proletaro. La burĝaro troviĝas en konstanta batalo: Unue kontraŭ la aristokratio; poste kontraŭ tiuj partoj de la burĝaro mem, kies interesoj fariĝas kontraŭaj al la progreso de la industrio; daŭre kontraŭ la burĝaro de eksterlan-do. Dum ĉiuj ĉi bataloj ĝi sentas sin devigita apelacii al la proletaro, uzante ties helpon kaj tiel entirante ĝin en la politikan movadon. i mem do tiel disponigas al la proletaro siajn proprajn elementojn de politika kaj ĝenerala klereco, alivorte, ĝi donas al la proletaro la armilojn por batalo kontraŭ la bur-
-
-ĝaro.
+Entute la kolizioj de la malnova socio multrilate akcelas la evoluon de la proletaro. La burĝaro troviĝas en konstanta batalo: Unue kontraŭ la aristokratio; poste kontraŭ tiuj partoj de la burĝaro mem, kies interesoj fariĝas kontraŭaj al la progreso de la industrio; daŭre kontraŭ la burĝaro de eksterlan-do. Dum ĉiuj ĉi bataloj ĝi sentas sin devigita apelacii al la proletaro, uzante ties helpon kaj tiel entirante ĝin en la politikan movadon. i mem do tiel disponigas al la proletaro siajn proprajn elementojn de politika kaj ĝenerala klereco, alivorte, ĝi donas al la proletaro la armilojn por batalo kontraŭ la burĝaro.
 
 Plie, kiel ni vidis, per la progreso de la industrio tutaj partoj de la reganta klaso estas suben ĵetataj en la proletaron aŭ almenaŭ minacataj en siaj ekzistokondiĉoj. Ankaŭ ili provi-zas la proletaron per amaso da klerigaj elementoj.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-Dum la tempoj, fine, kiam la klasbatalo proksimiĝas al decido, la procezo de dissolviĝo interne de la reganta klaso, interne de la tuta malnova socio fariĝas tiel impeta, akra, ke eta parto de la reganta klaso forlasas sian klason kaj aliĝas al la revolucia klaso, al la klaso portanta en siaj manoj la estontecon. Same kiel antaŭe parto de la nobelaro transiris al la bur-
-
-ĝaro, tiel nun parto de la burĝaro transiras al la proletaro, kaj aparte parto de la burĝaj ideologoj, kiuj atingis per studado la teorian komprenon de la tuta historia movado.
+Dum la tempoj, fine, kiam la klasbatalo proksimiĝas al decido, la procezo de dissolviĝo interne de la reganta klaso, interne de la tuta malnova socio fariĝas tiel impeta, akra, ke eta parto de la reganta klaso forlasas sian klason kaj aliĝas al la revolucia klaso, al la klaso portanta en siaj manoj la estontecon. Same kiel antaŭe parto de la nobelaro transiris al la burĝaro, tiel nun parto de la burĝaro transiras al la proletaro, kaj aparte parto de la burĝaj ideologoj, kiuj atingis per studado la teorian komprenon de la tuta historia movado.
 
 De ĉiuj klasoj starantaj hodiaŭ vidalvide al la burĝaro, nur la proletaro estas vere revolucia klaso. La aliaj klasoj degene-ras kaj malaperas kun la grandindustrio, kies plej esenca produkto estas la proletaro.
 
 La mezaj klasoj, la etindustriisto, la etkomercisto, la metiisto, la kamparano — ili ĉiuj batalas kontraŭ la burĝaro, por savi sian ekziston kiel mezaj klasoj antaŭ la pereo. Sekve ili ne estas revoluciaj sed konservativaj. Eĉ pli, ili estas reakciaj, ili klopodas retroturni la radon de la historio. Se ili estas revoluciaj, tiam nur rilate la por ili antaŭstarantan transiron al la proletaro. Pro tio ili defendas ne siajn aktualajn sed siajn es-tontajn interesojn, tiel forlasante sian propran starpunkton por transiri al tiu de la proletaro.
 
 La ĉifonproletaro36, tiu pasiva putraĵo de la plej malaltaj tavoloj de la malnova socio, estas parte entirata en la mova-36 En la germana originalo ”Lumpenproletariat” ĉifonproletaro. Unu el la plej subaj sociaj tavoloj en kapitalismaj landoj (almozuloj, vagabondoj, krimuloj, prostituitinoj k. s.). Pro la konstanta senlaboreco kaj ruinigado de etburĝoj daŭre aperas tiu tavolo, el kiu la reakciularo facile prenas strikrompulojn, spionojn, provokistojn k. s. La ĉifonproletaro estas nekapabla organizi sin por politika batalo. (Trad.)
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 don per la proleta revolucio. Laŭ sia tuta vivsituacio ĝi inkli-nos esti subaĉetebla por reakciaj intrigoj.
@@ -635,9 +477,6 @@ En la vivkondiĉoj de la proletaro jam estas detruitaj la vivkondiĉoj de la mal
 Laŭ la formo, kvankam ne laŭ enhavo, la batalo de la proletaro kontraŭ la burĝaro estas komence nacia batalo. La proletaro de ĉiu lando kompreneble unue devas reguligi siajn aferojn kun la propra burĝaro.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Desegnante la plej ĝeneralajn evolufazojn de la proletaro, ni sekvis la pli aŭ malpli kaŝitan civitanan militon interne de ekzistanta socio ĝis tiu punkto, kie ĝi eksplodos kiel malkaŝa revolucio kaj la proletaro establas sian regadon per la perforta detronigo de la burĝaro.
 
 Kiel ni vidis, ĉiu ĝisnuna socio baziĝis je la antagonismo inter subpremintaj kaj subpremitaj klasoj. Sed por povi subpremi klason, ĝi devas havi tiajn sekurigitajn kondiĉojn, en kies kadro ĝi almenaŭ povas elteni sian sklavecan ekzistadon.
@@ -646,15 +485,7 @@ La servutulo perlaboris la statuson de membro de la servu-teca komunumo, same ki
 
 La socio ne plu povas vivi sub tia burĝaro, t.e. ĝia vivo ne plu estas akordigebla kun la socio.
 
-La esenca kondiĉo por la ekzistado kaj por la regado de la burĝa klaso estas la amasigo de riĉaĵoj en la manoj de pri-vatuloj, la kreado kaj kreskado de la kapitalo; la kondiĉo por la kapitalo estas la dunga laboro. La dunga laboro ekskluzive baziĝas je la konkurenco de la laboristoj inter si. La progreso de la industrio, kies senvola kaj senkontraŭstara por-50
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-tanto estas la burĝaro, metas sur la lokon de la izoliĝo de la laboristoj per la konkurenco sian revolucian unuiĝon per la asociiĝo. Do la evoluo de la grandindustrio eltiras sub la piedoj de la burĝaro la bazon mem, sur kiu ĝi produktas kaj alproprigas al si la produktojn. i produktas antaŭ ĉio sian propran tombofosiston. ia pereo kaj la venko de la proletaro estas same neeviteblaj.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La esenca kondiĉo por la ekzistado kaj por la regado de la burĝa klaso estas la amasigo de riĉaĵoj en la manoj de pri-vatuloj, la kreado kaj kreskado de la kapitalo; la kondiĉo por la kapitalo estas la dunga laboro. La dunga laboro ekskluzive baziĝas je la konkurenco de la laboristoj inter si. La progreso de la industrio, kies senvola kaj senkontraŭstara portanto estas la burĝaro, metas sur la lokon de la izoliĝo de la laboristoj per la konkurenco sian revolucian unuiĝon per la asociiĝo. Do la evoluo de la grandindustrio eltiras sub la piedoj de la burĝaro la bazon mem, sur kiu ĝi produktas kaj alproprigas al si la produktojn. i produktas antaŭ ĉio sian propran tombofosiston. ia pereo kaj la venko de la proletaro estas same neeviteblaj.
 
 
 II. Proletoj kaj komunistoj
@@ -677,18 +508,14 @@ Do, la komunistoj praktike estas la plej energia, ĉiam an-taŭenpuŝa parto de 
 
 La plej proksima celo de la komunistoj estas la sama kiel ĉe ĉiuj aliaj proletaj partioj: formado de la proletaro al klaso, faligo de la burĝara regado, konkero de la politika potenco flanke de la proletaro.
 
-La teoriaj konceptoj de la komunistoj tute ne baziĝas je 52
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La teoriaj konceptoj de la komunistoj tute ne baziĝas je
 
 
 ideoj aŭ principoj inventitaj aŭ malkovritaj de tiu aŭ alia mondreformanto.
 
 Ili nur estas ĝeneralaj esprimoj de realaj kondiĉoj de ekzistanta klasbatalo, de historia movado okazanta antaŭ niaj okuloj. La forigo de ĝisnunaj proprieto-rilatoj ne estas aparta trajto distinganta la komunismon.
 
-ĉiuj proprieto-rilatoj estis subjekto de daŭra historia ŝan-
-
-ĝo, de daŭra historia transformiĝo.
+ĉiuj proprieto-rilatoj estis subjekto de daŭra historia ŝanĝo, de daŭra historia transformiĝo.
 
 La Franca Revolucio ekzemple forigis la feŭdan proprieton favore al la burĝa.
 
@@ -704,9 +531,7 @@ Perlaborita, akirita, memgajnita proprietaĵo! ĉu vi parolas pri la etburĝa, e
 
 Aŭ ĉu vi parolas pri la moderna burĝa privata proprietaĵo?
 
-Sed ĉu la dunga laboro, la laboro de la proleto havigas al li proprietaĵon? Neniel. i kreas la kapitalon, t.e. tiun proprietaĵon, kiu ekspluatas la dungan laboron. Kaj tiu nur kreskas, 53
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Sed ĉu la dunga laboro, la laboro de la proleto havigas al li proprietaĵon? Neniel. i kreas la kapitalon, t.e. tiun proprietaĵon, kiu ekspluatas la dungan laboron. Kaj tiu nur kreskas,
 
 
 kondiĉe, ke ĝi produktas novan dungan laboron por povi denove ekspluati tiun dungan laboron. La proprietaĵo en sia nuntempa formo baziĝas sur la antagonismo inter kapitalo kaj dunga laboro. Ni rigardu ambaŭ flankojn de tiu antagonismo.
@@ -723,12 +548,7 @@ La meza prezo de la dunga laboro estas la minimumo de la salajro, t.e. la kvanto
 
 Ni tute ne volas forigi tiun personan alproprigon de la labor-produktoj por reproduktado de la nura vivo, alproprigo ne postlasanta iun surpluson, kiu povus doni regpovon pri fremda laboro. Ni volas nur nuligi la mizeran karakteron de tiu alproprigo, ĉe kiu la laboristo nur vivas por kreskigi la kapitalon, nur vivas tiom, kiom tion necesigas la intereso de la reganta klaso.
 
-En la burĝa socio la viva laboro nur estas rimedo, por mul-tigi la akumulitan laboron. En la komunisma socio la akumu-54
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-lita laboro nur estas rimedo por plivastigi la vivprocezon de la laboristoj, por riĉigi kaj akceli ĝin.
+En la burĝa socio la viva laboro nur estas rimedo, por mul-tigi la akumulitan laboron. En la komunisma socio la akumulita laboro nur estas rimedo por plivastigi la vivprocezon de la laboristoj, por riĉigi kaj akceli ĝin.
 
 En la burĝa socio la pasinteco do regas super la nuntempo; en la komunisma socio la nuntempo regas super la pasinteco. En la burĝa socio la kapitalo estas memstara kaj havas individuecon, dum la aganta persono estas dependa kaj ne havas individuecon.
 
@@ -742,12 +562,7 @@ Vi teruriĝas, ke ni volas forigi la privatan proprietaĵon. Sed en via ekzistan
 
 Unuvorte, vi riproĉas al ni, ke ni volas forigi vian proprietaĵon. uste tiel, tion ni volas.
 
-Ekde tiu momento, kiam laboro ne plu estas transforme-55
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-bla en kapitalon, monon, terrenton, tio signifas, ne plu estas transformebla en monopoligeblan socian potencon, do, ekde tiu momento, kiam la persona proprietaĵo ne plu povas transformiĝi en burĝan, ekde tiu momento vi deklaras, ke la individuo estas neniigita.
+Ekde tiu momento, kiam laboro ne plu estas transformebla en kapitalon, monon, terrenton, tio signifas, ne plu estas transformebla en monopoligeblan socian potencon, do, ekde tiu momento, kiam la persona proprietaĵo ne plu povas transformiĝi en burĝan, ekde tiu momento vi deklaras, ke la individuo estas neniigita.
 
 Vi do konfesas, ke sub individuo vi celas neniun alian personon ol la burĝon, la burĝan proprietulon. Kaj, vere, tiun personon ni ja volas neniigi.
 
@@ -761,9 +576,7 @@ Laŭ tio la burĝa socio jam longe devus esti pereinta pro inerteco, ĝuste tiuj
 
 La klereco, kies perdon li bedaŭras, por la granda majoritato estas la klerigo agi kiel maŝino.
 
-Sed ne disputu kun ni aplikante viajn burĝajn konceptojn pri libereco, klereco, rajtoj ktp al nia koncepto pri la forigo de 56
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Sed ne disputu kun ni aplikante viajn burĝajn konceptojn pri libereco, klereco, rajtoj ktp al nia koncepto pri la forigo de
 
 
 la burĝa proprietaĵo. Viaj ideoj mem estas kreaĵoj de la burĝaj kondiĉoj de produktado kaj proprieto, same kiel via juro nur estas la leĝigita volo de via klaso, volo, kies enhavo baziĝas sur la materialaj vivkondiĉoj de via klaso.
@@ -780,9 +593,7 @@ La familio de la burĝo kompreneble malaperos kun la malapero de tiu kompletigo,
 
 Sed, vi diros, ni detruas la plej intimajn rilatojn anstataŭan-te la hejman edukadon per la socia.
 
-Kaj, ĉu ne ankaŭ via edukado estas determinita per la socio? Per la sociaj rilatoj, sub kiuj vi edukadas, per la rekta aŭ nerekta enmiksiĝo de la socio, pere de lernejo ktp? La komunistoj ne inventis la efikon de la socio al la edukado; ili nur 57
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Kaj, ĉu ne ankaŭ via edukado estas determinita per la socio? Per la sociaj rilatoj, sub kiuj vi edukadas, per la rekta aŭ nerekta enmiksiĝo de la socio, pere de lernejo ktp? La komunistoj ne inventis la efikon de la socio al la edukado; ili nur
 
 
 ŝanĝas ties karakteron, ili tiras la edukadon el la influo de la reganta klaso.
@@ -799,18 +610,11 @@ Cetere, nenio estas pli ridinda ol la moralega ŝoko de niaj burĝoj pri la laŭ
 
 Niaj burĝoj, ne kontentaj ke al ilia dispono estas la virinoj kaj filinoj de iliaj proletoj — ne parolante pri la oficiala prostituado — trovas grandan plezuron en la reciproka deloga-do de siaj edzinoj.
 
-La burĝa geedzeco en vero estas komuna posedo pri edzinoj. Maksimume oni povus riproĉi al la komunistoj, ke ili volas enkonduki oficialan, malkaŝan komunan posedon pri virinoj anstataŭe al la hipokrite kaŝita. Cetere estas memkom-preneble, ke kun la forigo de la nunaj produktadorilatoj an-58
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-kaŭ malaperos la el tio deveninta komuna posedo pri virinoj, t.s. la oficiala kaj neoficiala prostituadoj.
+La burĝa geedzeco en vero estas komuna posedo pri edzinoj. Maksimume oni povus riproĉi al la komunistoj, ke ili volas enkonduki oficialan, malkaŝan komunan posedon pri virinoj anstataŭe al la hipokrite kaŝita. Cetere estas memkom-preneble, ke kun la forigo de la nunaj produktadorilatoj ankaŭ malaperos la el tio deveninta komuna posedo pri virinoj, t.s. la oficiala kaj neoficiala prostituadoj.
 
 Al la komunistoj oni krome riproĉis, ke ili volas forigi la patrujon, la naciecon.
 
-La laboristoj ne havas patrujon. Oni ne povas de ili preni, kion ili ne posedas. Devante unue konkeri la politikan potencon, evolui al nacia klaso, mem konstituiĝi al nacio, la proleto mem ankoraŭ estas nacia, eĉ se tute ne en la senco de la bur-
-
-ĝaro.
+La laboristoj ne havas patrujon. Oni ne povas de ili preni, kion ili ne posedas. Devante unue konkeri la politikan potencon, evolui al nacia klaso, mem konstituiĝi al nacio, la proleto mem ankoraŭ estas nacia, eĉ se tute ne en la senco de la burĝaro.
 
 La naciaj diferencoj kaj antagonismoj inter la popoloj malaperas pli kaj pli jam pro la evoluo de la burĝaro, la libereco de la komerco, la monda merkato, la monotoneco de la industria produktado kaj pro la vivkondiĉoj respondantaj al
 
@@ -826,22 +630,16 @@ Lige al la malapero de klasaj antagonismoj interne de la nacio malaperos la mala
 
 La akuzoj kontraŭ la komunismo, levitaj el religiaj, filozofiaj kaj ĝenerale ideologiaj vidpunktoj, ne meritas detalan pri-trakton.
 
-ĉu necesas profundaj ekkonoj por kompreni, ke la konceptoj, opinioj kaj nocioj de la homoj, unuvorte, ilia konscio, ŝan-
+ĉu necesas profundaj ekkonoj por kompreni, ke la konceptoj, opinioj kaj nocioj de la homoj, unuvorte, ilia konscio, ŝanĝiĝas kun iliaj sociaj rilatoj, ilia socia vivo?
 
-ĝiĝas kun iliaj sociaj rilatoj, ilia socia vivo?
-
-Kion alian pruvas la historio de ideoj ol tion, ke la intelekta 59
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Kion alian pruvas la historio de ideoj ol tion, ke la intelekta
 
 
 produktado transformiĝas kune kun la materia? La regantaj ideoj de epoko ĉiam estis nur la ideoj de la reganta klaso.
 
 Parolante pri ideoj, kiuj revoluciigas tutan socion, oni nur esprimas la fakton, ke interne de la malnova socio kreiĝis la elementoj de nova, ke al la disfalo de la malnovaj vivkondiĉoj paralelas sampaŝe la disfalo de la malnovaj ideoj.
 
-Kiam la antikva mondo estis pereanta, la antikvajn reli-giojn venkis la kristanismo. Kiam la kristanismaj ideoj dum la 18-a jarcento estis venkitaj de la ideoj de la racionalismo, la feŭda socio batalis agonie kontraŭ la siatempe revolucia bur-
-
-ĝaro. La ideoj pri libereco de pensado kaj religio nur esprimis la regadon de la libera konkurenco sur la kampo de scioj.
+Kiam la antikva mondo estis pereanta, la antikvajn reli-giojn venkis la kristanismo. Kiam la kristanismaj ideoj dum la 18-a jarcento estis venkitaj de la ideoj de la racionalismo, la feŭda socio batalis agonie kontraŭ la siatempe revolucia burĝaro. La ideoj pri libereco de pensado kaj religio nur esprimis la regadon de la libera konkurenco sur la kampo de scioj.
 
 ”Kompreneble”, oni diros, — ”religiaj, moralaj, filozofiaj, politikaj, prijuraj ideoj k.s. ja modifiĝis dum la paso de la historia evoluo. Sed religio, moralo, filozofio, politiko, juro daŭre postvivis tiun ŝanĝon.
 
@@ -850,9 +648,6 @@ Krom tio ekzistas eternaj veroj, kiel libereco, justeco ktp, kiuj komunas al ĉi
 Al kio redukteblas ĉi tiu akuzo? La historio de la tuta ĝisnuna socio moviĝas inter klasaj antagonismoj, dum la diversaj epokoj diverse formitaj.
 
 Kian ajn formon ili havis, la ekspluatado de unu parto de la socio fare de la alia estas komuna fakto al ĉiuj pasintaj jarcentoj. Pro tio estas neniu miraklo, ke la socia konscio de ĉiuj jarcentoj, spite al ĉiu multeco kaj diverseco, moviĝis en certaj komunaj formoj aŭ ĝeneralaj ideoj, kiuj plene dissolviĝos nur kun la kompleta malapero de la klasaj antagonismoj.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 La komunista revolucio estas la plej radikala rompo kun la tradiciaj proprieto-rilatoj, ne mirinde, ke ĝia evoluo inkludas plej radikalan rompon kun la tradiciaj ideoj.
@@ -878,9 +673,6 @@ Tiuj intervenoj nature estos malsamaj laŭ la diversaj landoj. Por la plej progr
 5. Centralizo de la kredito en la manojn de la ŝtato pere de nacia banko kun ŝtata kapitalo kaj ekskluziva monopolo.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 6. Centralizo de la transportaj aferoj en la manojn de la ŝtato.
 
 7. Plimultigo de ŝtatproprietaj fabrikoj, de produktadoin-strumentoj, kultivado kaj plibonigado de la terposedaĵoj laŭ komuna plano.
@@ -896,9 +688,6 @@ Se la klasaj diferencoj estos malaperintaj dum la paso de la evoluo, kaj se ĉiu
 Sur la loko de la malnova burĝa socio kun siaj klasoj kaj klasaj antagonismoj ni havos asocion, kie la libera evoluo de ĉiu estas la kondiĉo por la libera evoluo de ĉiuj.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 III. Socialisma kaj komunisma literaturoj 1. LA REAKCIA SOCIALISMO
 
 a) La feŭda socialismo
@@ -910,18 +699,11 @@ Restis nur la batalo per rimedoj de la literaturo. Sed ankaŭ sur la kampo de la
 Tiel formiĝis la feŭdisma socialismo, duone plendkanto, duone pamfleto, duone e˛o pri la pasinteco, duone minaco de la estonteco, foje vundinte la koron de la burĝaro per amara, sprite detrua juĝo, ĉiam impresante komika pro la kompleta nekapableco kompreni la iron de la moderna historio.
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-Por gajni por si la popolon, la aristokratio flirtigis kiel fla-gon la proletan almozulsakon. Sed kiom ajn la popolo sekvis la aristokration, ĝi ekvidis sur ties postaĵo la malnovajn feŭ-
-
-dajn blazonojn kaj diskuris ridaĉante laŭte kaj senrespekte.
+Por gajni por si la popolon, la aristokratio flirtigis kiel fla-gon la proletan almozulsakon. Sed kiom ajn la popolo sekvis la aristokration, ĝi ekvidis sur ties postaĵo la malnovajn feŭdajn blazonojn kaj diskuris ridaĉante laŭte kaj senrespekte.
 
 Parto de la francaj legitimistoj39 kaj la ”Juna Anglio”40 sur-scenigis tiun spektaklon.
 
-Pruvante, ke ilia ekspluatmaniero estas alia ol tiu de la bur-
-
-ĝoj, la feŭdistoj nur forgesas, ke ili ekspluatas sub tute aliaj kaj hodiaŭ antikviĝintaj cirkonstancoj kaj kondiĉoj. Montrante, ke dum ilia regado ne ekzistis la moderna proletaro, la feŭdistoj nur forgesas, ke ĝuste la moderna burĝaro estis neevitebla ido de ilia sociordo.
+Pruvante, ke ilia ekspluatmaniero estas alia ol tiu de la burĝoj, la feŭdistoj nur forgesas, ke ili ekspluatas sub tute aliaj kaj hodiaŭ antikviĝintaj cirkonstancoj kaj kondiĉoj. Montrante, ke dum ilia regado ne ekzistis la moderna proletaro, la feŭdistoj nur forgesas, ke ĝuste la moderna burĝaro estis neevitebla ido de ilia sociordo.
 
 Cetere, ili tiom malmulte kaŝas la reakcian karakteron de sia kritiko, ke ilia ĉefa akuzo kontraŭ la burĝaro estas, ke sub ties reĝimo evoluas klaso, krevigonta la tutan malnovan so-ciordon.
 
@@ -933,9 +715,7 @@ En la politika praktiko pro tio ili partoprenas ĉiujn per-fortojn kontraŭ la l
 
 1830. (Trad.)
 
-40 La grupo ”Juna Anglio” fondiĝis komence de la 40-aj jaroj de la 19-a jarcento. En ĝi membris anglaj politikistoj kaj literaturistoj, kiuj apartenis al la Tory-partio. (Trad.) 41 Tio ĉefe koncernas Germanion, kie la kampara nobelaro kaj la junkraro proprakoste mastrumigas pere de siaj administrantoj 64
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+40 La grupo ”Juna Anglio” fondiĝis komence de la 40-aj jaroj de la 19-a jarcento. En ĝi membris anglaj politikistoj kaj literaturistoj, kiuj apartenis al la Tory-partio. (Trad.) 41 Tio ĉefe koncernas Germanion, kie la kampara nobelaro kaj la junkraro proprakoste mastrumigas pere de siaj administrantoj
 
 
 Kiel iris la pastro ĉiam man-en-mane kun la feŭdistoj, tiel faras la pastra socialismo kun la feŭda.
@@ -946,24 +726,13 @@ b) Etburĝa socialismo
 
 La feŭda aristokratio ne estas la sola klaso, kiun detronigis la burĝaro, kies vivkondiĉoj degeneris kaj formortis en la moderna burĝa socio. La mezepoka palisburĝaro kaj la etkam-paranaro estis la antaŭuloj de la moderna burĝaro. En la in-dustrie kaj komerce malpli evoluintaj landoj tiu klaso ankoraŭ plu vegetadas apud la leviĝanta burĝaro.
 
-En la landoj, kie disvolviĝis moderna civilizacio, kreiĝis nova etburĝaro, ŝvebanta inter proletaro kaj burĝaro kaj daŭ-
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-nufakturoj kaj agrikulturo estos anstataŭigataj per laborkon-trolistoj kaj servistoj.
+En la landoj, kie disvolviĝis moderna civilizacio, kreiĝis nova etburĝaro, ŝvebanta inter proletaro kaj burĝaro kaj daŭnufakturoj kaj agrikulturo estos anstataŭigataj per laborkon-trolistoj kaj servistoj.
 
 En landoj kiel Francio, kie la kamparana klaso konstituas multe pli ol la duonon de la loĝantaro, estis nature, ke verki-stoj, kiuj pledis por la proletaro kaj kontraŭ la burĝaro, kritikis la burĝaran reĝimon laŭ etburĝaj kaj etkamparanaj kri-terioj, tiel subtenante la starpunkton de la laboristoj laŭ la starpunkto de la etburĝaro. Do tiel kreiĝis la etburĝa socialismo. La ĉefreprezentanto de ĉi tiu literaturo, ne nur por Francio sed ankaŭ en Anglio, estas Sismondi42.
 
-Tiu socialismo-skolo sekciis tre sagace la kontraŭdirojn en la modernaj produktado-kondiĉoj. i senmaskigis la hipokri-tajn apologiojn de la ekonomiistoj. i nekontesteble pruvis la detruajn efikojn de la maŝinaro kaj de la labordivido, la kon-centradon de la kapitaloj kaj de la terproprieto, de la troproduktado kaj krizoj, la neeviteblan pereon de la etburĝoj kaj etkamparanoj, la mizeron de la proletaro, la anarkion en la produktado, la kriajn misproporciojn en la disdivido de la riĉaĵoj, la industrian detrumiliton inter la nacioj, la dissolvi-
-
-ĝon de la malnovaj moroj, de la familiaj rilatoj, de la malnovaj naciecoj.
+Tiu socialismo-skolo sekciis tre sagace la kontraŭdirojn en la modernaj produktado-kondiĉoj. i senmaskigis la hipokri-tajn apologiojn de la ekonomiistoj. i nekontesteble pruvis la detruajn efikojn de la maŝinaro kaj de la labordivido, la kon-centradon de la kapitaloj kaj de la terproprieto, de la troproduktado kaj krizoj, la neeviteblan pereon de la etburĝoj kaj etkamparanoj, la mizeron de la proletaro, la anarkion en la produktado, la kriajn misproporciojn en la disdivido de la riĉaĵoj, la industrian detrumiliton inter la nacioj, la dissolviĝon de la malnovaj moroj, de la familiaj rilatoj, de la malnovaj naciecoj.
 
 Laŭ sia pozitiva celo, tamen, tiu socialismo aŭ volas restarigi la malnovajn rimedojn de produktado kaj interŝanĝo kaj per tio la malnovajn proprieto-rilatojn kaj la malnovan socion, aŭ ĝi volas perforte enŝlosi la modernajn rimedojn de produktado kaj interŝanĝo en la kadron de la malnovaj proprieto-rilatoj, kiuj estis krevigitaj per tiuj rimedoj, devis esti 42 Jean Charles Léonard Simonde de Sismondi (1773 – 1842), svisa historiisto, ekonomikisto. (Trad.)
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 krevigitaj. En ambaŭ kazoj ĝi estas samtempe reakcia kaj utopieca.
@@ -972,18 +741,13 @@ iaj lastaj vortoj estas: gildaro en la manufakturo kaj patriarkaj rilatoj sur la
 
 Finfine tiu formo de socialismo dum sia plua evoluo malaperis en mizera nenieco.
 
-c) La germana aŭ la ”vera” socialismo La socialisma kaj komunisma literaturoj de Francio, kiuj esti-
-
-ĝis sub la premo de reganta burĝaro, literatura esprimo de la batalo kontraŭ tiu regado, estis enkondukitaj en Germanion dum tempo, kiam la burĝaro ĵus komencis sian batalon kontraŭ la feŭda absolutismo.
+c) La germana aŭ la ”vera” socialismo La socialisma kaj komunisma literaturoj de Francio, kiuj estiĝis sub la premo de reganta burĝaro, literatura esprimo de la batalo kontraŭ tiu regado, estis enkondukitaj en Germanion dum tempo, kiam la burĝaro ĵus komencis sian batalon kontraŭ la feŭda absolutismo.
 
 Germanaj filozofoj, duonfilozofoj kaj belartemuloj avide ekkaptis tiun literaturon, nur forgesante, ke dum ĝia alveno el Francio ne venis samtempe al Germanio la francaj vivkondiĉoj. En la kontakto kun la germanaj cirkonstancoj la franca literaturo perdis ĉiun senpere praktikan signifon kaj alpre-nis pure literaturan aspekton. i devis aspekti kiel superflua spekulativo pri la realigo de la homa naturo. Tiel do por la germanaj filozofoj de la 18-a jarcento la postuloj de la unua franca revolucio nur estis postuloj de la ”praktika prudento”
 
 en ĝenerala senco, kaj la volesprimoj de la revolucia franca burĝaro en ilia kompreno estis la leĝoj de la pura volo, de la volo, kia ĝi devas esti, de la vere homa volo.
 
 La germanaj literaturistoj laboris sole por akordigi la novajn francajn ideojn kun sia malnova filozofia konscio aŭ, plue, alproprigi al si la francajn ideojn el sia propra filozofia vidpunkto.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 Tiu alproprigo okazis same kiel oni entute alproprigas al si fremdan lingvon, nome per tradukado.
@@ -996,12 +760,7 @@ Tiel oni komplete kastris la socialisman-komunisman francan literaturon. Kaj ĉa
 
 Tiu ĉi germana socialismo, kiu prenis tiel serioze kaj solene siajn mallertajn lernejknabajn ekzercojn, distrumpetante ilin tiel reklamece, perdis dume iom post iom sian pedantan na-ivecon.
 
-La batalo de la germana, aparte de la prusa burĝaro kon-68
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-traŭ la feŭdistoj kaj la absoluta reĝismo, unuvorte la liberala movado, pliserioziĝis.
+La batalo de la germana, aparte de la prusa burĝaro kontraŭ la feŭdistoj kaj la absoluta reĝismo, unuvorte la liberala movado, pliserioziĝis.
 
 Tiel doniĝis al la ”vera” socialismo la dezirita okazo, kontraŭmeti la socialistajn postulojn al la politika movado, ĵeti la tradiciajn anatemojn kontraŭ liberalismo, kontraŭ la reprezentantoj-ŝtatoj, kontraŭ burĝa konkurenco, burĝa gazetar-libereco, burĝa juro, burĝa libereco kaj egaleco, predikante al la popolamaso, ke nenion ĝi povus gajni ĉe ĉi tiu burĝa movado, sed kontraŭe, ĉion povos perdi. La germana socialismo
 
@@ -1013,12 +772,7 @@ i fariĝis la dolĉeta deserto por la amaraj vipadoj kaj kug-loj, per kiuj la sa
 
 Tiel fariĝinte armilo en la mano de la registaroj kontraŭ la germana burĝaro, la ”vera” socialismo ankaŭ senpere reprezentis reakcian intereson, la intereson de la germana etburĝa filistraro. En Germanio la etburĝaro, devenante el la 16-a jarcento kaj ekde tiu tempo diversforme daŭre reaperanta, formis la veran socian bazon por la ekzistantaj cirkonstancoj.
 
-Konservadi tiun klason signifas konservadi la ekzistantajn germanajn cirkonstancojn. De la industria kaj politika regadoj de la burĝaro la etburĝaro timas sian certan pereon, unuflanke pro la koncentrado de la kapitalo, aliflanke pro la ek-69
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-estiĝo de revolucia proletaro. Al ĝi ŝajnis, ke la ”vera” socialismo mortigos ambaŭ muŝojn per unu frapo. i disvastiĝis kiel epidemio.
+Konservadi tiun klason signifas konservadi la ekzistantajn germanajn cirkonstancojn. De la industria kaj politika regadoj de la burĝaro la etburĝaro timas sian certan pereon, unuflanke pro la koncentrado de la kapitalo, aliflanke pro la ekestiĝo de revolucia proletaro. Al ĝi ŝajnis, ke la ”vera” socialismo mortigos ambaŭ muŝojn per unu frapo. i disvastiĝis kiel epidemio.
 
 La robo, teksita el spekulativa aranea ŝpinaĵo, brodita per belanimaj parolfloroj, saturita per amsufoka roso de sentimentaleco, tiu ekzaltita robo, en kiun la germanaj socialistoj envolvis siajn kelkajn sekajn ”eternajn verojn”, nur kreskigis la vendon de sia varo ĉe tia publiko.
 
@@ -1029,9 +783,7 @@ i proklamis la germanan nacion modela nacio kaj la germanan filistron tipa homo.
 2. La konservativa aŭ burĝa socialismo Parto de la burĝaro deziras forigi la socialajn mankojn por sekurigi la ekziston de la burĝa socio.
 
 
-Karl Grün (1817 – 1887), etburĝa germana publicisto. (Trad.) 70
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Karl Grün (1817 – 1887), etburĝa germana publicisto. (Trad.)
 
 
 bonigantoj de la situacio de la laborantaj klasoj, organizan-toj de bonfarado, kontraŭuloj de bestoturmentado, fanatiku-loj por modereco, pseŭdoreformuloj de plej dubinda speco.
@@ -1040,17 +792,13 @@ Tiu burĝa socialismo ankaŭ estis disvolvita al kompletaj sistemoj.
 
 Kiel ekzemplon ni mencias ”Philosophie de la misère” de Proudhon.
 
-La socialistaj burĝoj deziras la vivkondiĉojn de la moderna socio, sed sen bataloj kaj danĝeroj neeviteble rezultantaj el tiuj kondiĉoj. Ili deziras la ekzistantan socian staton sen la elementoj revoluciantaj kaj dissolvantaj ilin mem. Ili deziras la burĝaron sen la proletaro. Kompreneble la burĝaro imagas tiun mondon, en kiu ĝi regas, la plej bona mondo. La burĝa socialismo ellaboras tiun konsolan imagon al duona aŭ kompleta sistemo. Alvokante la proletaron realigi tiajn sistemojn kaj rekte marŝi en la Novan Jerusalemon44, ĝi fakte nur postulas, ke la proletaro restu en la limoj de la nuna socio, sed for-
-
-ĵetu siajn malicajn imagojn pri la burĝaro.
+La socialistaj burĝoj deziras la vivkondiĉojn de la moderna socio, sed sen bataloj kaj danĝeroj neeviteble rezultantaj el tiuj kondiĉoj. Ili deziras la ekzistantan socian staton sen la elementoj revoluciantaj kaj dissolvantaj ilin mem. Ili deziras la burĝaron sen la proletaro. Kompreneble la burĝaro imagas tiun mondon, en kiu ĝi regas, la plej bona mondo. La burĝa socialismo ellaboras tiun konsolan imagon al duona aŭ kompleta sistemo. Alvokante la proletaron realigi tiajn sistemojn kaj rekte marŝi en la Novan Jerusalemon44, ĝi fakte nur postulas, ke la proletaro restu en la limoj de la nuna socio, sed forĵetu siajn malicajn imagojn pri la burĝaro.
 
 Dua, malpli sistema kaj nur pli praktika formo de tiu socialismo klopodis malŝatigi al la laborista klaso ĉiun revolucian movadon, montrante, ke al ĝi utilus ne tiu aŭ alia politika ŝanĝo de la materialaj vivkondiĉoj, de la ekonomiaj kondiĉoj.
 
 Sub ŝanĝo de materialaj vivkondiĉoj tiu socialismo tamen tute ne komprenas la forigon de la burĝaj produktado-rilatoj, kio eblus nur per revolucio, sed celas administrajn pliboni-gojn, okazantajn sur la bazo de ĉi tiuj produktado-rilatoj, do nenion ŝanĝas ĉe la rilato inter kapitalo kaj dunga laboro, sed plejbonokaze por la burĝaro reduktas la kostojn de ĝia regado kaj plisimpligas ĝian ŝtatan buĝeton.
 
-44 Metaforo por la ideala kristana socio de la estonto. (Trad.) 71
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+44 Metaforo por la ideala kristana socio de la estonto. (Trad.)
 
 
 Sian adekvatan esprimon la burĝa socialismo atingas nur tie, kie ĝi fariĝas nura oratoraĵo.
@@ -1065,14 +813,10 @@ La socialismo de la burĝaro ja ĝuste resumeblas en la aser-to: burĝoj estas b
 
 La unuaj provoj de la proletaro rekte akceptigi sian propran klasan intereson, dum tempo de ĝenerala ekscitiĝo, dum periodo de la renverso de la feŭda socio, neeviteble fiaskis pro la subevoluinta stato de la proletaro kaj pro la manko de materialaj kondiĉoj de ĝia liberigo, kiuj ja nur estos la produkto de la burĝa epoko. La revolucia literaturo, akompananta la unuajn movojn de la proletaro, laŭ enhavo estas neeviteble reakcia. i instruas ĝeneralan asketismon kaj krudan socian samniveligon.
 
-La propre tiel nomataj socialismaj kaj komunismaj sistemoj, la sistemoj de St. Simon, Fourier, Owen k. a., aperas dum 45 Franĉois Noel Babeuf, nomita Gracehus Babeuf (1760 – 1797), franca revolucia utopieca komunisto. Ekzekutita pro partopreno en ribelo por daŭrigi la francan revolucion. (Trad.) 72
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La propre tiel nomataj socialismaj kaj komunismaj sistemoj, la sistemoj de St. Simon, Fourier, Owen k. a., aperas dum 45 Franĉois Noel Babeuf, nomita Gracehus Babeuf (1760 – 1797), franca revolucia utopieca komunisto. Ekzekutita pro partopreno en ribelo por daŭrigi la francan revolucion. (Trad.)
 
 
-la unua neevoluinta fazo de la batalo inter proletaro kaj bur-
-
-ĝaro, kiun ni supre priskribis (Vidu ĉapitron I ”Burĝaro kaj proletaro”).
+la unua neevoluinta fazo de la batalo inter proletaro kaj burĝaro, kiun ni supre priskribis (Vidu ĉapitron I ”Burĝaro kaj proletaro”).
 
 Kvankam la fondintoj de tiuj sistemoj vidas la klasajn antagonismojn, same kiel ankaŭ la efikon de la malligaj elementoj en la reganta socio mem, ili tamen ne vidas ĉe la proletaro historian iniciaton kaj memstaran politikan movadon.
 
@@ -1084,9 +828,7 @@ Ili ja konscias pri la neceso zorgi en siaj planoj ĉefe pri la interesoj de la 
 
 La neevoluinta formo de la klasbatalo same kiel iliaj propraj vivkondiĉoj faras, ke tiaj socialistoj kredas sin sendependaj de tiu klasa antagonismo. Ili volas plibonigi la vivkondiĉojn de ĉiuj membroj de la socio, ankaŭ de la plej bonsta-taj. Pro tio ili daŭre apelacias al la tuta socio, sen iu distingo, ja prefere al la reganta klaso. Oni ja nur devus kompreni ilian sistemon, por rekoni ĝin kiel la plej bonan planon de la plej bona socio.
 
-Pro tio ili malakceptas ĉiujn politikajn, aparte ĉiujn revoluciajn agojn. Ili volas atingi sian celon per pacaj rimedoj, 73
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+Pro tio ili malakceptas ĉiujn politikajn, aparte ĉiujn revoluciajn agojn. Ili volas atingi sian celon per pacaj rimedoj,
 
 
 klopodante malfermi vojojn al la nova socia evangelio per la forto de la ekzemplo per etaj, kompreneble fiaskantaj ekspe-rimentoj.
@@ -1095,9 +837,7 @@ Dum tempo, kiam la proletaro estas ankoraŭ ege neevoluinta, do mem ankoraŭ fan
 
 Sed la socialismaj kaj komunismaj publikaĵoj ankaŭ enhavas kritikajn elementojn. Ili atakas ĉiujn principojn de la ekzistanta socio. Pro tio ili liveris plej valoran materialon por la klerigo de la laboristoj. Iliaj pozitivaj proponoj pri la estonta socio, ekz. pri la forigo de la kontraŭeco inter urbo kaj vilaĝo, de la familio, de la privata alproprigo, de la dunga laboro, la proklamo de la socia harmonio, la transformo de la ŝtato en nuran administracion de la produktado — ĉiuj ĉi proponoj nur esprimas la malaperon de la klasa antagonismo, kiu nur ĵus komencas evolui, kiu en tiuj publicaĵoj estas videbla nur en sia unua nedifinita formo. Pro tio tiuj proponoj ankoraŭ havas pure utopiecan karakteron.
 
-La signifo de la kritike-utopieca socialismo kaj komunismo troviĝas en inversa rilato al la historia evoluo. Same kiom evoluas kaj elformiĝas la klasbatalo, same tiom tiu fantazia leviĝo super ĝi, tiu fantazia batalo kontraŭ ĝi perdas ĉiun praktikan valoron, ĉiujn teoriajn pravigojn. Kvankam la fondintoj de tiuj sistemoj estis multrilate revoluciaj, iliaj disĉiploj tamen ĉiufoje fondis reakciajn sektojn. Ili konservas la malnovajn konceptojn de la majstroj, ignorante la historian evoluon de la proletaro. Pro tio ili konsekvence klopodas mal-akrigi la klasbatalon kaj kompromisi inter la antagonismoj. Ili 74
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La signifo de la kritike-utopieca socialismo kaj komunismo troviĝas en inversa rilato al la historia evoluo. Same kiom evoluas kaj elformiĝas la klasbatalo, same tiom tiu fantazia leviĝo super ĝi, tiu fantazia batalo kontraŭ ĝi perdas ĉiun praktikan valoron, ĉiujn teoriajn pravigojn. Kvankam la fondintoj de tiuj sistemoj estis multrilate revoluciaj, iliaj disĉiploj tamen ĉiufoje fondis reakciajn sektojn. Ili konservas la malnovajn konceptojn de la majstroj, ignorante la historian evoluon de la proletaro. Pro tio ili konsekvence klopodas mal-akrigi la klasbatalon kaj kompromisi inter la antagonismoj. Ili
 
 
 Iom post iom ili sinkas en la kategorion de la supre priskri-bitaj reakciaj aŭ konservativaj socialistoj kaj distingiĝas de tiuj nur per ankoraŭ pli da sistema pedanteco, per fanatika superstiĉa kredo al la miraklaj efikoj de sia socia scienco.
@@ -1108,9 +848,6 @@ La Owen-istoj en Anglio, la Fourier-istoj en Francio jen agas kontraŭ la ĉarti
 
 
 48 La reformistoj, adeptoj de la pariza gazeto ”La Reforme”, agitis por starigo de respubliko kaj la apliko de demokratiaj kaj socialaj reformoj. (Trad.)
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 IV. Rilato de la komunistoj
@@ -1128,27 +865,17 @@ Alexandre-Auguste Ledru-Rollin (Ledri-Rolen) (1807 – 1874), franca publicisto,
 Louis Blanc (Blan) (1811 –1882), franca historiisto kaj etburĝa socialisto. (Trad.)
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 zignante la rajton rilati kritike al sensencaj frazoj kaj iluzioj, devenantaj el la revolucia tradicio.
 
 En Svisio ili apogas la radikalulojn, ne forgesante, ke tiu partio konsistas el kontraŭdiraj elementoj, parte el demokrataj socialistoj laŭ la franca senco, parte el radikala burĝaro.
 
 En Pollando la komunistoj apogas la partion por kiu la ag-rara revolucio estas kondiĉo de la nacia liberigo. Temas pri tiu sama partio, kiu iniciatis la Insurekcion de Krakovo en 184650.
 
-En Germanio ĉiam kiam la burĝaro sekvas revolucian vojon, la Komunista Partio batalas komune kun ĝi kontraŭ la absoluta monarkio, kontraŭ la feŭda terproprieto kaj etbur-
-
-ĝaro.
+En Germanio ĉiam kiam la burĝaro sekvas revolucian vojon, la Komunista Partio batalas komune kun ĝi kontraŭ la absoluta monarkio, kontraŭ la feŭda terproprieto kaj etburĝaro.
 
 Sed eĉ por momento ĝi neniam ĉesas elformi ĉe la laboristoj kiom eble klaran konscion pri la malamika antagonismo inter burĝaro kaj proletaro, por ke la germanaj laboristoj tuj povu direkti kontraŭ la burĝaro kiel armilojn tiujn sociajn kaj politikajn kondiĉojn, kiujn neeviteble estigos la burĝaro per sia regado, por ke tuj povu komenciĝi la batalo kontraŭ la burĝaro mem post la faligo de la reakciaj klasoj en Germanio.
 
-La komunistoj turnas sian ĉefan atenton al Germanio, ĉar Germanio troviĝas ĉe la antaŭkomenco de burĝa revolucio kaj ĉar ĝi realigas tiun revolucion sub plej progresintaj kondi-
-
-ĉoj de la eŭropa civilizacio entute, kaj kun multe pli evoluinta proletaro ol en Anglio en la 17-a kaj en Francio en la 18-a 50 Dum la nacia liberiga batalo en Polando la ribeluloj sukcesis la 22-an de konstitui en Krakovo Nacian Asembleon. La ribelo en Krakovo estis komence de disbatita de aŭstraj, prusaj kaj rusaj trupoj. (Trad.)
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+La komunistoj turnas sian ĉefan atenton al Germanio, ĉar Germanio troviĝas ĉe la antaŭkomenco de burĝa revolucio kaj ĉar ĝi realigas tiun revolucion sub plej progresintaj kondiĉoj de la eŭropa civilizacio entute, kaj kun multe pli evoluinta proletaro ol en Anglio en la 17-a kaj en Francio en la 18-a 50 Dum la nacia liberiga batalo en Polando la ribeluloj sukcesis la 22-an de konstitui en Krakovo Nacian Asembleon. La ribelo en Krakovo estis komence de disbatita de aŭstraj, prusaj kaj rusaj trupoj. (Trad.)
 
 
 jarcentoj. Pro tio la germana burĝa revolucio nur povas esti la senpera preludo al proletara revolucio.
@@ -1162,9 +889,6 @@ Fine, la komunistoj laboras ĉie por la unuiĝo kaj interkom-preniĝo de la demo
 La komunistoj malŝatas kaŝi siajn konceptojn kaj intencojn. Ili malkaŝe deklaras, ke iliaj celoj povas esti atingitaj nur per perforta renverso de ĉiu ĝisnuna sociordo. Timtremu la regantaj klasoj pro komunista revolucio. La proletoj per ĝi povas perdi nenion, krom siaj ĉenoj. Ili povas gajni mondon.
 
 Proletoj el ĉiuj landoj, unuiĝu!
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 de la ”Komunista Manifesto”
@@ -1182,12 +906,7 @@ Verkinto de ”The American Esperanto Book”. Redaktoro de
 
 ”Amerika Esperantisto” ”. La 65-paĝa libreto ankaŭ entenis la anglan tradukon de Samuel Moore kun antaŭparolo kaj notoj de Friedrich Engels.
 
-En sia anglalingva antaŭparolo, karakterizante la tutmon-diĝon de la batalo inter la organizita laboristaro kaj la posedantoj de la produktadorimedoj, Baker skribis: ”En la dis-79
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-volviĝo de tiu mondvasta batalo la internacia lingvo Esperanto devas ludi gravan rolon. uste kiel la telegrafoj, la fervojoj kaj la vaporŝipoj ebligas al la modernaj nacioj rapide decidi pri la rezulto de la milito inter la Rusa Kapitalo kaj la Ja-pana Kapitalo, tiel Esperanto post multaj jaroj plirapidigos la rezulton de la lukto inter la Tuta Laboro kaj la Tuta Kapitalo”.
+En sia anglalingva antaŭparolo, karakterizante la tutmon-diĝon de la batalo inter la organizita laboristaro kaj la posedantoj de la produktadorimedoj, Baker skribis: ”En la disvolviĝo de tiu mondvasta batalo la internacia lingvo Esperanto devas ludi gravan rolon. uste kiel la telegrafoj, la fervojoj kaj la vaporŝipoj ebligas al la modernaj nacioj rapide decidi pri la rezulto de la milito inter la Rusa Kapitalo kaj la Ja-pana Kapitalo, tiel Esperanto post multaj jaroj plirapidigos la rezulton de la lukto inter la Tuta Laboro kaj la Tuta Kapitalo”.
 
 La Manifeston li nomis ”the fundamento of the great po-litical and economic struggle”(la fundamento de la granda politika kaj ekonomia batalo).
 
@@ -1198,12 +917,7 @@ kény/V. Bleier 1933, p. 37) Arthur Brooks Baker (Bejkr) estis usona prelegisto 
 
 2. La dua provo traduki la Manifeston estas de Emil Pfeffer. En la volumo ”Dokumentoj de Komunismo” (Leipzig: SAT 1923, 132 p.) aperis la 48-paĝa Manifesto. La aŭstro Pfeffer (naskita en 1891) publikigis beletrajn kaj sciencajn tradu-kojn, verkis lernilojn kaj redaktis kelkajn revuojn.
 
-En la organo de ”Arbeiter-Esperanto-Bund für. das deutsche Sprachgebiet” (Laborista Esperanto-Asocio por la germanlingvaj regionoj), ”Der Arbeiter-Esperantist” (”La La-80
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-borista Esperantisto” n-ro 11/12 1923, p. 58) ni trovas konci-zan informon pri la libro el la plumo de la redaktoro Adolf Sproeck, kiu kritikis la tradukon de Pfeffer skribante, ke ”la stilo… tro multe respegulas germanan stilon, kiu tute ne povas pretendi esti internacia”.
+En la organo de ”Arbeiter-Esperanto-Bund für. das deutsche Sprachgebiet” (Laborista Esperanto-Asocio por la germanlingvaj regionoj), ”Der Arbeiter-Esperantist” (”La Laborista Esperantisto” n-ro 11/12 1923, p. 58) ni trovas konci-zan informon pri la libro el la plumo de la redaktoro Adolf Sproeck, kiu kritikis la tradukon de Pfeffer skribante, ke ”la stilo… tro multe respegulas germanan stilon, kiu tute ne povas pretendi esti internacia”.
 
 Tiu kritiko estas rimarkinda, ĉar Pfeffer starigis al si altan celon. En lia antaŭparolo ni legas: ”Alpaŝante al la esperantigo de la Komunista Manifesto la Tradukanto estis gvidata de la intenco, doni al la Esperantistaro tradukon, kiu pli fidele respegulas la originalon ol la ĝis nun aperintaj tradukoj nacilingvaj. Kaj se malgraŭ la precizeco de la traduko la verko esperantigita surprizas per sia facila legebleco, tiu ĉi fakto estu konsiderata kiel plua pruvo de la mirinda taŭgeco de Esperanto por preciza redono de la scienca literaturo, kiel nova stimulo kaj firmigo por la Esperantistaj kamaradoj fer-vore daŭrigi sian gloran, nuntempe tiom urĝan laboron: enkonduki Esperanton en servon de l’tutmonda socialismo”. (p.
 
@@ -1211,9 +925,6 @@ Tiu kritiko estas rimarkinda, ĉar Pfeffer starigis al si altan celon. En lia an
 
 
 anstataŭon de ”kaj” per ”k”, kutima mallongigo en SAT-ron-doj, anstataŭon de la malnova ”proletario” per la pli moderna formo ”proleto”. Anstataŭ ”plejbejo” ni trovas ”plebano”
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 Revo). Ne estas klare, ĉu Pfeffer mem korektis la tekston aŭ ĉu tion faris Laurat.
@@ -1230,15 +941,10 @@ Kiam ni akceptis la taskon traduki la Manifeston, ni ne tute konsciis pri la mal
 Ni konfesas, ke ofte ni havis malfacilaĵojn tuj kompreni la esencon de Marx’aj frazoj. Kiel, do, ni procedis, klopodante liveri la trian tradukon de la Manifesto?
 
 
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
 Jen kelkaj ekzemploj:
 
 
-b) En la teksto (ĉapitro ”Burĝoj kaj proletoj”) mankas en la 83
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+b) En la teksto (ĉapitro ”Burĝoj kaj proletoj”) mankas en la
 
 
 germana originalo indiko de landoj, sed ni trovas ilin en la angla traduko. Do laŭ tio la Esperanta traduko devus teksti:
@@ -1252,17 +958,12 @@ you share with every ruling class that has preceded you” (”La egoisman misko
 
 ”La egoisma koncepto …tiun koncepton vi havas komuna kun ĉiuj aliaj malaperintaj regintaj klasoj”.
 
-e) Eĉ okazas foje, ke la angla traduko enhavas ideojn, kiuj 84
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+e) Eĉ okazas foje, ke la angla traduko enhavas ideojn, kiuj
 
 
 f) Sed ankaŭ okazas, ke en la angla traduko mankas frazo, kiu aperas en la germana originalo. En la subĉapitro ”La germana aŭ la ’vera’ socialismo” de la III-a ĉapitro, en la dua alineo pri la socialisma kaj komunisma francaj literaturoj, im-portitaj al Germanio, mankas jena frazo: ”i (la importita literaturo — D. B.) devis aspekti kiel superflua spekulativo pri la realiĝo de la homa naturo”.
 
 Jen nur kelkaj problemoj, kiuj devenas el la tre stimula komparo kun la angla traduko, komparo, kiu tre helpis trovi espereble akcepteblajn ekvivalentojn.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 III
@@ -1281,9 +982,6 @@ Do la du titoloj evidente estis paralele uzitaj. Fakte estas eĉ pli logike nomi
 Tiun modelon, malgraŭ ŝanceliĝoj, sekvis tamen la plej multaj tradukoj, krom la menciitaj, ekz. la franca ”Manifeste du Parti communiste”, la hispana ”Manifesto dei Partido Comunista”, la itala ”Il Manifesto dei Partito Comunista” kaj aliaj.
 
 Pro tio ni ankaŭ sekvis la germanan originalon.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 2. Al la plej konataj frazoj de la Manifesto sendube apartenas la unua:
@@ -1310,12 +1008,7 @@ socialistoj. Sed la alstrebataj sociordoj estas la komunisma aŭ la socialisma.
 
 4. En la germana ni havas la fremdvortojn ”Proletarier” kaj
 
-”Proletariat”. En Esperanto ”proleto/proletaro” (ankaŭ la pli malnovajn formojn ”proletario/proletariaro”). De ambaŭ substantivoj en Esperanto eblas senprobleme derivi la adjektivojn ”proleta/proletara” sed en la germana nur ekzistas ”proletarisch” (proleta). Ofte en la teksto aperas la kombinoj ”proletarische Revolution”. Se oni volas substreki la klasan enha-87
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-von, oni devus traduki ”proletara revolucio” ĉar temas pri revolucio ne nur farita kaj subtenita de proletoj, sed ankaŭ de burĝaj intelektuloj, kiel ekzemple de Marx kaj Engels. Se oni tamen volas akcenti la ĉefajn agantojn de la revolucio, oni tradukas per ”proleta revolucio”. Do, depende de la celita senco, ni uzis ambaŭ formojn.
+”Proletariat”. En Esperanto ”proleto/proletaro” (ankaŭ la pli malnovajn formojn ”proletario/proletariaro”). De ambaŭ substantivoj en Esperanto eblas senprobleme derivi la adjektivojn ”proleta/proletara” sed en la germana nur ekzistas ”proletarisch” (proleta). Ofte en la teksto aperas la kombinoj ”proletarische Revolution”. Se oni volas substreki la klasan enhavon, oni devus traduki ”proletara revolucio” ĉar temas pri revolucio ne nur farita kaj subtenita de proletoj, sed ankaŭ de burĝaj intelektuloj, kiel ekzemple de Marx kaj Engels. Se oni tamen volas akcenti la ĉefajn agantojn de la revolucio, oni tradukas per ”proleta revolucio”. Do, depende de la celita senco, ni uzis ambaŭ formojn.
 
 5. En la 3-a subĉapitro de la tria parto ni tradukis la titolon per ”La kritike-utopiecaj socialismo kaj komunismo”. Baker tradukis ”Kritika-Utopia Socialismo kaj Komunismo” kaj Pfeffer formulis ”La kritike-utopista socialismo kaj komunismo”. Unue ŝajnas al ni necese apliki la pluralon ĉe la adjektivo, ĉar ĝi koncernas du substantivojn. Sed pli gravas la demando, ĉu elekti ”utopia” ”utopiista” aŭ ”utopiisma” ”utopieca”? ĉar por Marx kaj Engels nek la socialismo nek la komunismo en si mem estis utopio, pro tio ni devas akcenti la uto-piecon de la traktitaj sistemoj de St-Simon, Fourier, Owen k.
 
@@ -1325,12 +1018,7 @@ s. Ankaŭ en la germana originalo ni ne trovas ”utopisch” (utopia) sed ja �
 
 Baker uzas ”posedeco” ”posedaĵo” ”propreco” ”proprecaj rilatoj” kaj ”propraĵo”. Por tiuj tradukoj ĉiam troviĝas nur la angla
 
-”property” aŭ ”property relations”. Ni distingis inter ”proprie-88
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-to”, ”proprieto-rilatoj” kaj ”proprietaĵo”. ĉar por la verkintoj de la Manifesto ”Eigentum” unuavice estis ekonomia kategorio, ni volis akcenti ĝuste tiun socian klasan rilaton, kiun spegulas la ”proprieto”. Laŭ PIV (p. 877) ”proprieto” estas ”rajto plene uzadi, disponi kaj eĉ detrui aĵon, en la limoj de la ekzistantaj leĝoj”. Al la radiko ”propriet’ ” rilatas la fundamen-te grava nocio ”senproprietigi”. Se temis pri certa konkretiĝo de la ”proprieto” ni uzis ”proprietaĵo”.
+”property” aŭ ”property relations”. Ni distingis inter ”proprieto”, ”proprieto-rilatoj” kaj ”proprietaĵo”. ĉar por la verkintoj de la Manifesto ”Eigentum” unuavice estis ekonomia kategorio, ni volis akcenti ĝuste tiun socian klasan rilaton, kiun spegulas la ”proprieto”. Laŭ PIV (p. 877) ”proprieto” estas ”rajto plene uzadi, disponi kaj eĉ detrui aĵon, en la limoj de la ekzistantaj leĝoj”. Al la radiko ”propriet’ ” rilatas la fundamen-te grava nocio ”senproprietigi”. Se temis pri certa konkretiĝo de la ”proprieto” ni uzis ”proprietaĵo”.
 
 7. Problemon ankaŭ prezentis la traduko de la germana
 
@@ -1339,20 +1027,13 @@ Tamen ni simple uzis la laŭvortan tradukon ”palisburĝaro”
 
 por unu signifo, kaj por la alia — ”germana etburĝa filistraro” kaj ”etburĝa filistraro”.
 
-8. Aŭ kiel traduki la germanan ”Lumpenproletariat” laŭ-
-
-vorte ”ĉifonproletaro”?
+8. Aŭ kiel traduki la germanan ”Lumpenproletariat” laŭvorte ”ĉifonproletaro”?
 
 Moore angligas tion per ”dangerous class” kaj L. Lafargue simple transprenas la germanan vorton en la francan: lum-penproletariat. En la hispana traduko ni trovas ”lumpenpro-letariado”.
 
 Kvankam ankaŭ en Esperantaj tekstoj jam aperis ”lumpen-proletoj” (vidu en ”Cent tridek tri tagoj. Historia skizo de la hungarlanda proletara revolucio”. Leipzig. EKRELO 1930, p.
 
-138), ni tamen trovas la tradukon ”ĉifonproletaro” sufiĉe el-89
-
-MANIFESTO DE LA KOMUNISTA PARTIO
-
-
-vokiva same kiel Pfeffer. Baker, laŭ la neklara angla esprimo, tradukis per ”danĝera klaso”.
+138), ni tamen trovas la tradukon ”ĉifonproletaro” sufiĉe elvokiva same kiel Pfeffer. Baker, laŭ la neklara angla esprimo, tradukis per ”danĝera klaso”.
 
 9. Kaj fine sufiĉe miskompreniga estas la originalteksta esprimo ”Weibergemeinschaft” angle ”community of women”
 
@@ -1388,9 +1069,6 @@ Proletoj k Komunistoj
 Blanke (Bl)
 
 Proletoj kaj Komunistoj.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 g
@@ -1441,11 +1119,9 @@ a
 
 opposed to other working-class parties.
 
-B
 
 opozicianta aliajn laborklasajn partiojn.
 
-P
 
 rilate al aliaj laboristaj partioj.
 
@@ -1477,20 +1153,15 @@ a
 
 from those of the proletariat as a whole.
 
-B
 
 el tiuj de la tuta proletariaro.
 
-P
 
 de l’tuta proletaro apartajn interesojn.
 
 Bl
 
 de la tuta proletaro.
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 g
@@ -1511,11 +1182,9 @@ a
 
 by which to sharp and mould the proletarian movement.
 
-B
 
 laŭ kiuj formi kaj modli la proletarian movadon.
 
-P
 
 laŭ kiuj ili la proletan movadon volas formi.
 
@@ -1531,7 +1200,6 @@ The Communists are distinguished from B
 
 La komunistoj estas distingataj el
 
-P
 
 La komunistoj diferencas
 
@@ -1569,9 +1237,7 @@ of the different countries, they point out B
 
 de diversaj landoj, ili elmontras kaj portas P
 
-naciaj bataloj de l’proletoj akcentas la komunajn, 92
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+naciaj bataloj de l’proletoj akcentas la komunajn,
 
 
 Bl
@@ -1596,11 +1262,9 @@ a
 
 of the entire proletariat, independently of an nationality.
 
-B
 
 de la tuta proletariaro, ne depende de ĉia nacieco.
 
-P
 
 de l’tuta proletaro k substrekas ilian signifon, Bl
 
@@ -1634,7 +1298,6 @@ durchläuft, stets das Interesse der Gesamtbewegung a
 
 bourgeoisie has to pass through, they always and everywhere
 
-B
 
 devegas pasi, ili ĉiam kaj ĉie reprezentas la interesojn P
 
@@ -1642,9 +1305,7 @@ trakuras, reprezentas ĉiam la intereson de la tuta Bl
 
 ili ĉiam reprezentas la interesojn de la g
 
-vertreten. Die Kommunisten sind also praktisch 93
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+vertreten. Die Kommunisten sind also praktisch
 
 
 a
@@ -1655,7 +1316,6 @@ The Communists, therefore, are on the B
 
 de la movado kiel unu tuto. La komunistoj tial estas, unuflanke,
 
-P
 
 movado. La komunistoj estas do praktike la Bl
 
@@ -1665,7 +1325,6 @@ der entschiedenste, immer weitertreibende Teil a
 
 one hand, practically, the most advanced and resolute section
 
-B
 
 praktike la plej antaŭa kaj decidema sekcio P
 
@@ -1677,7 +1336,6 @@ der Arbeiterparteien aller Länder; sie haben a
 
 of the working class parties of every country, that section
 
-B
 
 el la laborklasaj partioj en ĉiu lando, tiu sekcio P
 
@@ -1689,7 +1347,6 @@ theoretisch vor der übrigen Masse des Proletariats a
 
 which pushes forward an others; on the other hand, theoretically, they have
 
-B
 
 kiu puŝas antaŭen ĉiujn aliajn; aliflanke, teorie, pli ol la P
 
@@ -1701,15 +1358,11 @@ die Einsicht in die Bedingungen, den Gang und a
 
 over the great mass of the proletariat the avantage of clearly.
 
-B
 
 granda masego de la proletariaro ili posedas tiun ĉi hel-pilon —
 
-P
 
-pri la kondiĉoj, la iro k la ĝeneralaj rezultoj 94
-
-MANIFESTO DE LA KOMUNISTA PARTIO
+pri la kondiĉoj, la iro k la ĝeneralaj rezultoj
 
 
 Bl
@@ -1722,11 +1375,9 @@ a
 
 understanding the line of march, the conditions, and the ultimate general results of the proletarian move ment.
 
-B
 
 ili klare komprenas la vojon de la marŝo, la kondiĉojn, kaj la finajn ĝeneralajn rezultatojn de la proletaria movado.
 
-P
 
 de l’proleta movado.
 
@@ -1737,9 +1388,6 @@ la ĝeneralaj rezultoj de la proleta movado.
 Berlin (GDR),
 
 Detlev Blanke
-
-
-MANIFESTO DE LA KOMUNISTA PARTIO
 
 
 www.omnibus.se/

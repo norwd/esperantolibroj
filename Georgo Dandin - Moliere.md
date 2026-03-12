@@ -5,8 +5,6 @@ Georgo
 Dandmedio en tri aktoj
 
 
-### 1
-
 GEORGO DANDIN
 
 
@@ -15,12 +13,6 @@ Molière
 GEORGO DANDmedio en tri aktoj
 
 Tradkita el la franca de L. L. Zamenhof
-
-
-@omnibus.se
-
-
-GEORGO DANDIN
 
 
 PERSONOJ
@@ -36,9 +28,6 @@ s-ino de Sotenville
 Klitandro, amanto de Angeliko Klaŭdino, servantino de Angeliko Lubin (Lübèn), kampulo, servanto de Klitandro Colin (Kolèn), servisto de Georgo Dandin La loko de agado estas antaŭ la domo de Georgo Dandin en la kamparo.
 
 
-GEORGO DANDIN
-
-
 AKTO UNUA
 
 SCENO UNUA
@@ -51,9 +40,7 @@ Ha, nobela edzino estas malbona afero!
 
 kaj mia edziĝo estas instrua leciono por ĉiuj kampuloj, kiuj volas leviĝi super sian staton kaj edzoligiĝi kun domo de nobelo, kiel mi faris! La nobeleco per si mem estas bona; ĝi estas io valora, tute certe; sed
 
-ĝi estas ligita kun tiom da malbonaj cir-konstancoj, ke estas tre bone lasi ĝin flanke. Pri tio mi farigis saĝa per mia propra kostopago, kaj mi scias, kiel nin traktas la nobeloj, kiam ili nin nenobelojn akceptas en sian familion. La ligiĝo, kiun ili faras, estas tre malgranda rilate nian personon; sole kun nia havo ili edziĝas; kaj kiel ajn riĉa mi estas, mi farus pli bone, se mi edziĝus kun senartifika kaj bona kampuli-no, anstataŭ preni edzinon, kiu tenas sin pli alte ol mi, vidas ofendon por si en tio, ke ŝi portas mian nomon, kaj pensas, ke per mia tuta riĉeco mi ne sufiĉe pagis por la honoro esti ŝia edzo. Georgo Dandin, Georgo Dandin! vi faris malsaĝaĵon, la 4
-
-GEORGO DANDIN
+ĝi estas ligita kun tiom da malbonaj cir-konstancoj, ke estas tre bone lasi ĝin flanke. Pri tio mi farigis saĝa per mia propra kostopago, kaj mi scias, kiel nin traktas la nobeloj, kiam ili nin nenobelojn akceptas en sian familion. La ligiĝo, kiun ili faras, estas tre malgranda rilate nian personon; sole kun nia havo ili edziĝas; kaj kiel ajn riĉa mi estas, mi farus pli bone, se mi edziĝus kun senartifika kaj bona kampuli-no, anstataŭ preni edzinon, kiu tenas sin pli alte ol mi, vidas ofendon por si en tio, ke ŝi portas mian nomon, kaj pensas, ke per mia tuta riĉeco mi ne sufiĉe pagis por la honoro esti ŝia edzo. Georgo Dandin, Georgo Dandin! vi faris malsaĝaĵon, la
 
 
 plej grandan en la mondo. Mia domo estas nun por mi io terura, kaj ĉiufoje, kiam mi eniras en ĝin mi nepre trovas tie ian ĉagrenon.
@@ -109,9 +96,6 @@ Georgo Dandin
 Vi ne estas de ĉi tie, al mi ŝajnas?
 
 
-GEORGO DANDIN
-
-
 Lubin
 
 Ne, mi venis ĉi tien nur por vidi la morgaŭan feston.
@@ -162,9 +146,7 @@ Tute ne, tute ne!
 
 Lubin
 
-Mi jus parolis kun la mastrino de la loĝ-
-
-ejo, en komisio de unu sinjoro, kiu faras al ŝi amajn okuletojn; kaj estas necese, ke oni tion ne sciu. Vi komprenas?
+Mi jus parolis kun la mastrino de la loĝejo, en komisio de unu sinjoro, kiu faras al ŝi amajn okuletojn; kaj estas necese, ke oni tion ne sciu. Vi komprenas?
 
 Georgo Dandin
 
@@ -181,9 +163,6 @@ Mi min gardos.
 Lubin
 
 Mi tre volas fari la aferojn sekrete, kiel oni rekomendis al mi.
-
-
-GEORGO DANDIN
 
 
 Georgo Dandin
@@ -230,9 +209,7 @@ Pesto! mi neniam memoras, kiel al la diablo, oni elparolaĉas tiun nomon; sinjor
 
 Georgo Dandin
 
-ĉu ĝi estas tiu juna kortegano, kiu lo-
-
-ĝas …
+ĉu ĝi estas tiu juna kortegano, kiu loĝas …
 
 Lubin
 
@@ -242,9 +219,7 @@ Georgo Dandin
 
 al si mem
 
-Ha, tio estas la kaŭzo, ke antaŭ nelonge tiu sinjoreto prenis loĝejon kontraŭe de 7
-
-GEORGO DANDIN
+Ha, tio estas la kaŭzo, ke antaŭ nelonge tiu sinjoreto prenis loĝejon kontraŭe de
 
 
 mi! Videble mi havis bonan nazon, kaj lia najbareco tuj estis por mi suspekta.
@@ -279,9 +254,7 @@ Lubin
 
 ŝi ordonis, ke mi diru al li … Atendu, mi ne scias, ĉu mi bone memoras ĉion ĉi tion
 
-… ŝi diris, ke ŝi estas al li tre danka por la amo, kiun li havas por ŝi; sed pro ŝia edzo, kiu estas stranga homo, li sin gardu, ke oni tion ne rimarku; kaj ke oni devos 8
-
-GEORGO DANDIN
+… ŝi diris, ke ŝi estas al li tre danka por la amo, kiun li havas por ŝi; sed pro ŝia edzo, kiu estas stranga homo, li sin gardu, ke oni tion ne rimarku; kaj ke oni devos
 
 
 peni trovi ian rimedon, ke ili povu ambaŭ paroli inter si.
@@ -318,16 +291,9 @@ Georgo Dandin
 
 sola
 
-Nu, Georgo, Dandin, vi vidas, en kia maniero via edzino kun vi agas! Jen kio venas, se oni volis edziĝi kun fraŭlino! Oni ĉirkaŭbatas vin de ĉiuj flankoj, kaj vi eĉ ne povas venĝi, kaj la nobeleco ligas al vi la manojn. Egaleco de la statoj lasas almenaŭ al la honoro de edzo la liberecon montri siajn sentojn; kaj se ĝi estus kam-9
+Nu, Georgo, Dandin, vi vidas, en kia maniero via edzino kun vi agas! Jen kio venas, se oni volis edziĝi kun fraŭlino! Oni ĉirkaŭbatas vin de ĉiuj flankoj, kaj vi eĉ ne povas venĝi, kaj la nobeleco ligas al vi la manojn. Egaleco de la statoj lasas almenaŭ al la honoro de edzo la liberecon montri siajn sentojn; kaj se ĝi estus kampulino, vi estus nun tute libera fari al vi justecon per bona porcio da bastonbatoj.
 
-GEORGO DANDIN
-
-
-pulino, vi estus nun tute libera fari al vi justecon per bona porcio da bastonbatoj.
-
-Sed vi volis gustumi nobelecon, kaj tedis vin esti mastro en via domo. Ha, mi furiozas el mia tuta koro, kaj mi volonte donus al mi vangofrapojn. Kiel senhonte aŭskulti la amesprimon de sinjoreto kaj al tio promesi ankoraŭ interkomunikiĝon! La diablo ĝin prenu! Tiaspecan okazon mi ne volas preterlasi. Kiel mi nun staras, mi devas tuj iri plendi al la patro kaj al la patrino kaj fari ilin atestantoj de la ĉagrenoj kaj malhonoro, kiun ilia filino al mi kaŭ-
-
-zas. Sed, jen, ili ambaŭ venas, tre ĝusta-tempe.
+Sed vi volis gustumi nobelecon, kaj tedis vin esti mastro en via domo. Ha, mi furiozas el mia tuta koro, kaj mi volonte donus al mi vangofrapojn. Kiel senhonte aŭskulti la amesprimon de sinjoreto kaj al tio promesi ankoraŭ interkomunikiĝon! La diablo ĝin prenu! Tiaspecan okazon mi ne volas preterlasi. Kiel mi nun staras, mi devas tuj iri plendi al la patro kaj al la patrino kaj fari ilin atestantoj de la ĉagrenoj kaj malhonoro, kiun ilia filino al mi kaŭzas. Sed, jen, ili ambaŭ venas, tre ĝusta-tempe.
 
 SCENO KVARA
 
@@ -349,9 +315,7 @@ Kredu al mi, mia bopatrino, mi havas aliajn aferojn en la kapo; kaj …
 
 s-ino de Sotenville
 
-Denove! ĉu estas eble, nia bofilo, ke vi 10
-
-GEORGO DANDIN
+Denove! ĉu estas eble, nia bofilo, ke vi
 
 
 tiel malmulte konas la mondajn postu-lojn, kaj oni ne povas lernigi al vi la ma-nieron, en kiu oni devas vivi inter personoj de bona deveno?
@@ -382,18 +346,14 @@ Mia Dio! sinjoro de Sotenville, vi havas ian apartan malseverecon, kaj vi ne sci
 
 s-ro de Sotenville
 
-Al la diablo! Pardonu, pri tio oni ne povas fari al mi lecionojn, kaj en la daŭro de mia vivo, mi per dudek bravaj agoj montris, ke mi ne estas homo, kiu lasus defali 11
-
-GEORGO DANDIN
+Al la diablo! Pardonu, pri tio oni ne povas fari al mi lecionojn, kaj en la daŭro de mia vivo, mi per dudek bravaj agoj montris, ke mi ne estas homo, kiu lasus defali
 
 
 eĉ unu colon de miaj pretendoj; sed nun suffiĉas, ke ni donis al li negrandan aver-ton. Nun ni iom aŭdu, mia bofilo, kion vi havas en via kapo.
 
 Georgo Dandin
 
-ĉar mi devas paroli kategorie, mi diros al vi, sinjoro de Sotenville, ke mi havas kaŭ-
-
-zon …
+ĉar mi devas paroli kategorie, mi diros al vi, sinjoro de Sotenville, ke mi havas kaŭzon …
 
 s-ro de Sotenville
 
@@ -423,12 +383,7 @@ Ha, Georgo Dandin kien vi enŝoviĝis!
 
 laŭte
 
-He, mi vin petas, lasu por momento flan-12
-
-GEORGO DANDIN
-
-
-ke vian nobelecon kaj permesu, ke mi parolu al vi, kiel mi povas.
+He, mi vin petas, lasu por momento flanke vian nobelecon kaj permesu, ke mi parolu al vi, kiel mi povas.
 
 al si mem
 
@@ -458,9 +413,7 @@ s-ro de Sotenville
 
 s-ino de Sotenville
 
-Kaj kun la domo de la Prudoterie, el kiu mi havas la honoron deveni; domo, en kiu ankaŭ la virina linio nobeligas, kaj 13
-
-GEORGO DANDIN
+Kaj kun la domo de la Prudoterie, el kiu mi havas la honoron deveni; domo, en kiu ankaŭ la virina linio nobeligas, kaj
 
 
 kiu, dank’al la bela privilegio, faros viajn infanojn nobeloj?
@@ -493,9 +446,7 @@ Ni havis iun Jakelinon de la Prudoterie, kiu ne volis esti amdonantino de duko k
 
 s-ro de Sotenville
 
-Ekzistis iu Maturino de Sotenville, kiu rifuzis akcepti dudek mil talerojn de reĝa 14
-
-GEORGO DANDIN
+Ekzistis iu Maturino de Sotenville, kiu rifuzis akcepti dudek mil talerojn de reĝa
 
 
 favorato, kiu volis nur havi la privilegion libere paroli kun ŝi.
@@ -530,9 +481,7 @@ Mi rakontis al vi la fakton, por prezenti al vi miajn plendojn; kaj mi postulas 
 
 s-ro de Sotenville
 
-Estu tute trankvila, mi donos al vi kontentigon de la flanko de ili ambaŭ; al kiu 15
-
-GEORGO DANDIN
+Estu tute trankvila, mi donos al vi kontentigon de la flanko de ili ambaŭ; al kiu
 
 
 ajn oni devas meti la pugnon al la brusto, mi taŭgas por tio. Sed, ĉu vi estas tute certa pri tio, kion vi diras al mi?
@@ -584,9 +533,6 @@ Klitandro
 Mi tre ĝojas.
 
 
-GEORGO DANDIN
-
-
 s-ro de Sotenville
 
 Mia nomo estas konata de la kortego; kaj en mia juneco mi havis la honoron esti el la unuaj, kiuj distingiĝis ĉe la nobelara armiĝo en Nancy.
@@ -634,9 +580,6 @@ Iu, kiu pensas, ke li bone tion scias.
 Klitandro
 
 Tiu iu mensogis. Mi estas honesta homo.
-
-
-GEORGO DANDIN
 
 
 ĉu vi opinias min kapabla, sinjoro, por tia malnobla agado? Mi amindumus junan kaj belan personon, kiu havas la honoron esti la filino de sinjoro barono de Sotenville! Mi tro multe vin respektas kaj tro multe estas preta vin servi, por ke mi faru ion similan. Kiu ajn tion diris al vi, estas malsaĝulo.
@@ -690,9 +633,6 @@ Klitandro
 Certe, ĝi estas lia feliĉo, ke li havas la honoron aparteni al vi; alie mi bone instruus lin fari tiajn parolojn pri persono kiel mi.
 
 
-GEORGO DANDIN
-
-
 SCENO SESA
 
 s-ro de Sotenville, s-ino de Sotenville, Angeliko, Klitandro, Georgo Dandin, Klaŭdino
@@ -714,9 +654,6 @@ Mi? Kiel mi povus tion diri al li? ĉu ĝi estas vero? Mi volus efektive vidi, k
 Klitandro
 
 Nu, nu, sinjorino, kviete! Ne estas necese fari al mi tiom da lecionoj kaj tiom skan-daliĝi. Kiu diris al vi, ke mi havas la ideon vin ami?
-
-
-GEORGO DANDIN
 
 
 Angeliko
@@ -772,9 +709,6 @@ Klaŭdino
 Mian vorton de honoro, ĝi estas stranga malveraĵo!
 
 
-GEORGO DANDIN
-
-
 Georgo Dandin
 
 Silentu, vi malĉastulino. Mi bone vnas. i estas vi, kiu ĵus enkondukis la komisiulon.
@@ -818,9 +752,6 @@ Angeliko
 Mia tuta malfeliĉo estas tio, ke mi tro zorgas pri li; la ĉielo volu, ke mi estu kapabla toleri, kiel li diras, ies amindumaĵojn! mi ne estus tiam tiel plendinda.
 
 
-GEORGO DANDIN
-
-
 Adiaŭ, mi foriras; mi ne povas plu toleri, ke oni min tiamaniere ofendu.
 
 SCENO SEPA
@@ -852,9 +783,6 @@ Vi meritas, mia bofilo, ke oni diru al vi tiajn aferojn: via agado indignigas ĉ
 s-ino de Sotenville
 
 Iru, penu agi pli bone kun fraŭlino alfe-devena; kaj gardu vin de nun, ke vi plu ne faru tiajn eraregojn.
-
-
-GEORGO DANDIN
 
 
 Georgo Dandin
@@ -892,9 +820,6 @@ Sed tio ja estas la afero, ke mi tute ne konsentas, ke mi lin malprave akuzis; k
 s-ro de Sotenville
 
 Tio ne estas grava. Kia ajn penso povus resti ĉe vi, li neis, kaj tio devas sufiĉi; kaj oni ne havas rajton plendi pri iu, se li neas kulpecon.
-
-
-GEORGO DANDIN
 
 
 Georgo Dandin
@@ -956,9 +881,6 @@ Georgo Dandin
 Mi petas vian pardonon …
 
 
-GEORGO DANDIN
-
-
 s-ro de Sotenville
 
 Pri la malbonaj pensoj, kiujn mi havis rilate vin …
@@ -1018,9 +940,6 @@ al s-ro de Sotenville
 Al vi, sinjoro, mi diras adiaŭ, kaj mi be-daŭras la malgrandan ĉagrenon, kiun vi havis.
 
 
-GEORGO DANDIN
-
-
 s-ro de Sotenville
 
 Ni kisas al vi la manojn; kaj se ĝi plaĉos, al vi, mi liveros al vi la amuziĝon ĉasi kun mi leporon.
@@ -1035,16 +954,13 @@ s-ro de Sotenville
 
 Jen, mia bofilo, kiel oni devas konduki la aferojn! Adiaŭ. Sciu, ke vi eniris en familion, kiu donos al vi apogon kaj neniam to-leros, ke oni faru al vi ian honton.
 
-SCENO NAŭA
+SCENO NAŬA
 
 Georgo Dandin
 
 sola
 
 Ha, kiel mi … Vi ĝin volis, vi ĝin volis, Georgo Dandin vi ĝin volis! i konvenas al vi bone, kaj vi estas ĝuste aranĝita: vi havas juste tion, kion vi meritis. Nu, oni devas nur malfermi la okulojn al la patro kaj al la patrino; eble mi trovos ian rimedon, por tion atingi.
-
-
-GEORGO DANDIN
 
 
 AKTO DUA
@@ -1090,9 +1006,6 @@ Turnu iom vian vizaĝon al mi.
 Klaŭdino
 
 Nu, kion do vi volas?
-
-
-GEORGO DANDIN
 
 
 Lubin
@@ -1160,9 +1073,6 @@ Klaŭdino
 De mia fianko, mi malamas la suspekte-majn edzojn: kaj mi volas tian edzon, kiu ne timas ĉion, kiu estus tiom plena de konfido al mi kaj tiel certa pri mia ĉasteco, ke li sen maltrankvileco povus min vidi en la mezo de tridek viroj.
 
 
-GEORGO DANDIN
-
-
 Lubin
 
 Bone! mi estos tute tia.
@@ -1202,9 +1112,6 @@ Venu, mi diras al vi.
 Klaŭdino
 
 Ha, kviete! Mi ne amas la palpistojn.
-
-
-GEORGO DANDIN
 
 
 Lubin
@@ -1274,9 +1181,6 @@ Lubin
 Adiaŭ, sovaĝa belulino!
 
 
-GEORGO DANDIN
-
-
 Klaŭdino
 
 La vorto montras enamiĝon.
@@ -1309,9 +1213,7 @@ Georgo Dandin
 
 ne vidante Klitandron
 
-Trae de ĉiuj viaj grimacoj mi vidis la verecon de tio, kion oni diris al mi, kaj kiom 31
-
-GEORGO DANDIN
+Trae de ĉiuj viaj grimacoj mi vidis la verecon de tio, kion oni diris al mi, kaj kiom
 
 
 da respekto vi havas por la ligo, kiu nin unuigas.
@@ -1338,9 +1240,7 @@ Georgo Dandin
 
 Mia Dio! Mi vidas tre klare. Mi diras al vi ankoraŭ unu fojon, ke la edzeco estas ĉeno, al kiu oni devas rilati kun la plej granda respekto, kaj estas tre malbone, fari el ĝi tian uzon, kian vi faras.
 
-Angeliko faras al Klitandro signon per la kapo Jes, jes, tre malbone de via flanko; kaj vi 32
-
-GEORGO DANDIN
+Angeliko faras al Klitandro signon per la kapo Jes, jes, tre malbone de via flanko; kaj vi
 
 
 tute ne bezonas balanci la kapon kaj fari al mi grimacojn.
@@ -1386,9 +1286,6 @@ Georgo Dandin
 Mi volas, ke vi faru kontraŭ tio tion, kion faras virino, kiu volas plaĉi nur al sia edzo. Kion ajn oni dirus, la amistoj altru-das sin nur tiam, kiam oni tion akceptas.
 
 
-GEORGO DANDIN
-
-
 Ekestas certa dolĉa mieno, kiu ilin altiras, tiel same, kiel la mielo la muŝojn; sed la honestaj virinoj havas rimedojn, kiuj for-pelas ilin tuj en la komenco.
 
 Angeliko
@@ -1416,16 +1313,11 @@ Georgo Dandin
 Tiele do vi plenumas la ŝuldiĝon de la ĵuro, kiun vi faris al mi publike?
 
 
-GEORGO DANDIN
-
-
 Angeliko
 
 Mi? mi ne faris ĝin al vi propavole, vi ĝin elŝiris de mi. ĉu antaŭ la edziĝo vi demandis pri mia konsento kaj ĉu mi vin volas? Vi demandis pri tio nur mian patron kaj mian patrinon; en efektiveco ja nur ili edziĝis kun vi; tial estos bone, se vi ĉiam al ili plendos, se oni agas kun vi maljuste. Kio koncernas min, kiu ne petis vin, ke vi edziĝu kun mi, kaj kiun vi prenis, ne demandinte miajn sentojn, mi pretendas, ke mi ne havas la devon sklave submeti min al viaj deziroj; kaj mi volas
 
-ĝui, mia sinjoro, la kelkan nombron da belaj tagoj, kiun donas al mi mia juneco, preni al mi la dolĉan liberecon, kiun la aĝo al mi permesas, vidi iom la belan so-cieton, kaj gustumi la plezuron aŭdi dol-
-
-ĉajn vortojn, kiujn oni diras al mi. Prepa-riĝu at tio, ke ĝi estu via puno, kaj danku la ĉielon, ke mi ne estas kapabla por io pli malbona.
+ĝui, mia sinjoro, la kelkan nombron da belaj tagoj, kiun donas al mi mia juneco, preni al mi la dolĉan liberecon, kiun la aĝo al mi permesas, vidi iom la belan so-cieton, kaj gustumi la plezuron aŭdi dolĉajn vortojn, kiujn oni diras al mi. Prepa-riĝu at tio, ke ĝi estu via puno, kaj danku la ĉielon, ke mi ne estas kapabla por io pli malbona.
 
 Georgo Dandin
 
@@ -1439,12 +1331,7 @@ Georgo Dandin
 
 al si mem
 
-Mi havas grandan deziron fari kompoton el ŝia tuta vizaĝo kaj meti ŝin en tian sta-35
-
-GEORGO DANDIN
-
-
-ton, ke ŝi plu neniam en sia vivo plaĉu al la dirantoj de flataĵoj. Iru, Georgo, Dandin; mi ne povus min deteni, kaj estas pli bone forlasi la lokon.
+Mi havas grandan deziron fari kompoton el ŝia tuta vizaĝo kaj meti ŝin en tian staton, ke ŝi plu neniam en sia vivo plaĉu al la dirantoj de flataĵoj. Iru, Georgo, Dandin; mi ne povus min deteni, kaj estas pli bone forlasi la lokon.
 
 SCENO KVINA
 
@@ -1481,9 +1368,6 @@ Klaŭdino
 sola
 
 ŝajnas al mi, ke mi ne bezonas rekomendi al ŝi, ke ŝi faru la respondon agrabla. Sed jen …
-
-
-GEORGO DANDIN
 
 
 SCENO SESA
@@ -1537,9 +1421,6 @@ Klitandro
 Sed, Klaŭdino, ĉu ne estas eble, ke mi povu persone paroli kun ŝi?
 
 
-GEORGO DANDIN
-
-
 Klaŭdino
 
 Jes; venu kun mi, mi donos al vi la eblon paroli kun ŝi.
@@ -1581,9 +1462,6 @@ Ha, jen vi estas, sinjoro babilulo, al kiu mi tiel forte rekomendis nenion parol
 Georgo Dandin
 
 Mi?
-
-
-GEORGO DANDIN
 
 
 Lubin
@@ -1645,9 +1523,6 @@ Georgo Dandin
 Mi vin petas!
 
 
-GEORGO DANDIN
-
-
 Lubin
 
 Ne!
@@ -1666,17 +1541,12 @@ Georgo Dandin
 
 sola
 
-Kun ĉi tiu malsaĝulo mi ne povis plenumi la penson, kiun mi havis. Sed la nova sciigo, kiu elglitis el lia buŝo, povas fari al mi tian saman servon; kaj, se la amisto estas en mia domo, tio donos al mi la eblon montriĝi prava en la okuloj de la gepatroj kaj plene ilnvinki pri la senhonteco de ilia filino. La malbono en la afero estas nur tio, ke mi ne scias kiel min aranĝi, ke mi tiru profiton el tiu sciigo. Se mi eniros en mian domon, mi forkurigos la sentaŭ-
-
-gulon; kaj kion ajn malhonorigan por mi mi povus vidi per miaj propraj okuloj, oni tute ne kredos miajn vortojn, kaj oni diros al mi, ke mi fantazias. Aliflanke, se mi venigos la bogepatrojn, ne havante la cer-tecon, ke ni trovos en mia domo la amis-ton, estos tiel same, kaj mi refalos, en la malbonan staton de antaŭe. Eble mi povus senbrue esplori, ĉu li tie estas ankoraŭ?
-
-
-GEORGO DANDIN
+Kun ĉi tiu malsaĝulo mi ne povis plenumi la penson, kiun mi havis. Sed la nova sciigo, kiu elglitis el lia buŝo, povas fari al mi tian saman servon; kaj, se la amisto estas en mia domo, tio donos al mi la eblon montriĝi prava en la okuloj de la gepatroj kaj plene ilnvinki pri la senhonteco de ilia filino. La malbono en la afero estas nur tio, ke mi ne scias kiel min aranĝi, ke mi tiru profiton el tiu sciigo. Se mi eniros en mian domon, mi forkurigos la sentaŭgulon; kaj kion ajn malhonorigan por mi mi povus vidi per miaj propraj okuloj, oni tute ne kredos miajn vortojn, kaj oni diros al mi, ke mi fantazias. Aliflanke, se mi venigos la bogepatrojn, ne havante la cer-tecon, ke ni trovos en mia domo la amis-ton, estos tiel same, kaj mi refalos, en la malbonan staton de antaŭe. Eble mi povus senbrue esplori, ĉu li tie estas ankoraŭ?
 
 
 rigardinte tra la truo de la seruro Ha! ĉielo! Oni plu ne povas dubi, mi vidis lin tra la truo de la seruro. La sorto donas al mi la eblon konfuzi miajn homojn; kaj, por kroni la tutan aventuron, ĝi alvenigas en la ĝusta momento la juĝantojn, kiujn mi bezonis.
 
-SCENO NAŭA
+SCENO NAŬA
 
 s-ro de Sotenville, s-ino de Sotenville, Georgo Dandin Georgo Dandin
 
@@ -1707,9 +1577,6 @@ s-ro de Sotenville
 Georgo Dandin
 
 Ne, sed mi forte laciĝas esti moke trompata.
-
-
-GEORGO DANDIN
 
 
 s-ino de Sotenville
@@ -1767,9 +1634,6 @@ Georgo Dandin
 Jes, kun ŝi, kaj en mia domo.
 
 
-GEORGO DANDIN
-
-
 s-ro de Sotenville
 
 En via domo?
@@ -1825,9 +1689,6 @@ Angeliko
 Mi penos pri tio.
 
 
-GEORGO DANDIN
-
-
 Georgo Dandin
 
 al gesinjoroj de Sotenville
@@ -1848,12 +1709,7 @@ mallaŭte al Klitandro kaj Klaŭdino Tenu vin tute trankvile kaj lasu min agi.
 
 laŭte al Klitandro
 
-Kio! Vi kuraĝas ankoraŭ agi tiamaniere post la historio de antaŭe! kaj, tiamaniere vi kaŝas viajn sentojn! Oni diras al mi, ke vi enamiĝis en min, kaj ke vi havas la intencon admonakiri min; mi atestas al vi mian indignon, kaj mi klare esprimas al vi miajn pensojn en atesto de ĉiuj; vi laŭte neas la aferon kaj donas al mi la vorton, ke vi havas nenian penson ofendi min; kaj tamen en tiu sama tago vi havas la arogantecon veni al mi vizite, diri al mi, ke vi min amas, rakonti al mi centon da malsaĝaj historioj, por konvinki min respondi al viaj malkonvenaĵoj, kvazaŭ mi estus tia virino, kiu povas rompi la ĵuron de fideleco, kiun mi donis al edzo, kaj iam forkliniĝi de la virteco, kiun instruis al mi miaj gepatroj. Se mia patro tion scius, li bone instruus al vi provi tiajn entrepre-44
-
-GEORGO DANDIN
-
-
-nojn! Sed honesta virino ne amas skandalon, tial mi gardas min ion diri al li, (farinte signon al Klaŭdino, ke ŝi alportu bastonon) kaj mi montros al vi, ke kvankam mi estas virino, mi havas sufiĉe da kuraĝo, por venĝi min mem por la ofendoj, kiujn oni faras al mi. Tio, kion vi faris, ne estas ago de nobelo, kaj tial mi traktos vin ankaŭ ne kiel nobelon.
+Kio! Vi kuraĝas ankoraŭ agi tiamaniere post la historio de antaŭe! kaj, tiamaniere vi kaŝas viajn sentojn! Oni diras al mi, ke vi enamiĝis en min, kaj ke vi havas la intencon admonakiri min; mi atestas al vi mian indignon, kaj mi klare esprimas al vi miajn pensojn en atesto de ĉiuj; vi laŭte neas la aferon kaj donas al mi la vorton, ke vi havas nenian penson ofendi min; kaj tamen en tiu sama tago vi havas la arogantecon veni al mi vizite, diri al mi, ke vi min amas, rakonti al mi centon da malsaĝaj historioj, por konvinki min respondi al viaj malkonvenaĵoj, kvazaŭ mi estus tia virino, kiu povas rompi la ĵuron de fideleco, kiun mi donis al edzo, kaj iam forkliniĝi de la virteco, kiun instruis al mi miaj gepatroj. Se mia patro tion scius, li bone instruus al vi provi tiajn entreprenojn! Sed honesta virino ne amas skandalon, tial mi gardas min ion diri al li, (farinte signon al Klaŭdino, ke ŝi alportu bastonon) kaj mi montros al vi, ke kvankam mi estas virino, mi havas sufiĉe da kuraĝo, por venĝi min mem por la ofendoj, kiujn oni faras al mi. Tio, kion vi faris, ne estas ago de nobelo, kaj tial mi traktos vin ankaŭ ne kiel nobelon.
 
 Angeliko prenas la bastonon kaj levas ĝntraŭ Klitandron, kiu forkliniĝas tiamaniere, ke la batoj falas kur Georgon Dandin
 
@@ -1882,9 +1738,6 @@ Angeliko
 ŝajnigante sin mirigita
 
 Ha, mia patro, vi estas ĉi tie!
-
-
-GEORGO DANDIN
 
 
 s-ro de Sotenville
@@ -1926,9 +1779,6 @@ s-ro de Sotenville
 Kien vi iras, mia filino?
 
 
-GEORGO DANDIN
-
-
 Angeliko
 
 Mi foriras, mia patro, por ke mi ne estu devigata akcepti liajn komplimentojn.
@@ -1960,9 +1810,6 @@ Vi devas konsideri, ke ŝi estas junulino, edukita en virteco, kaj ŝi ne kutimi
 Adiaŭ. i faras al mi tre grandan ĝojon, ke mi nun vidas, ke viaj malkomprenoj estas finitaj, kaj ke ŝia konduto devas esti por vi tiel agrablega.
 
 
-GEORGO DANDIN
-
-
 SCENO DEKTRIA
 
 Georgo Dandin
@@ -1972,9 +1819,6 @@ sola
 Mi ne diras eĉ unu vorton, ĉar per parolado mi nenion gajnos. Neniam oni vidis tian malfeliĉan sorton, kiel mia. Jes, mi admiras mian malfeliĉon kaj la subtilan lertecon de mia kanajla edzino, kiu scias ĉiam montri sin prava kaj min malprava.
 
 ĉu estas eble, ke mi ĉiam estos venkita de ŝi kaj la ŝajno ĉiam estos kontraŭ mi kaj mi neniam sukcesos elmontri la kulpecon de mia senhontulino? Ho, ĉielo, helpu miajn intencojn kaj donu al mi la favoron, ke mi povu vidigi al la homoj, ke oni min senhonorigas!
-
-
-GEORGO DANDIN
 
 
 AKTO TRIA
@@ -2016,9 +1860,6 @@ Lubin
 Jes. Se mi estus lerninta, mi esplorus aferojn, kjujn oni neniam esploris.
 
 
-GEORGO DANDIN
-
-
 Klitandro
 
 Mi kredas. Vi havas la mienon de homo, kiu havas spiriton subtilan kaj pene-trantan.
@@ -2058,9 +1899,6 @@ Sinjoro, mi estas al vi …
 Klitandro
 
 Ts! mi aŭdas ian brueton.
-
-
-GEORGO DANDIN
 
 
 SCENO DUA
@@ -2122,9 +1960,6 @@ Klitandro
 al Klaŭdino, pensante, ke li parolas al Angeliko.
 
 Ha, sinjorino, kiom mi ĝojas!
-
-
-GEORGO DANDIN
 
 
 Lubin
@@ -2200,9 +2035,6 @@ serĉante Klaŭdinon
 Klaŭdino, kie vi estas?
 
 
-GEORGO DANDIN
-
-
 SCENO TRIA
 
 Angeliko, Klitandro, kaj Klaŭdino, sidante en la profundo de la scenejo; Georgo Dandin duone senvestigita, Lubin Georgo Dandin
@@ -2220,9 +2052,6 @@ serĉante Klaŭdinon
 Kie do vi estas, Klaudino?
 
 prenante Georgon Dandin por Klaŭdino Ha, jen vi estas! Vorton de honoro, via mastro estas bele aranĝita, kaj mi trovas tion tiel same gajiga, kiel la bastonbatoj de antaŭe, pri kiuj oni al mi rakontis. Via mastrino diras, ke li ronkas nun kiel mil diabloj; kaj li ne scias, ke sinjoro la vicgrafo kaj ŝi estas nun kune, dum li dormas. Mi volus scii, kion li nun sonĝas. i estas treege ridinda. Sed kial do venis al li en la kapon esti ĵaluza pri sia edzino kaj voli, ke ŝi apartenu sole nur al li? Li estas arogantulo, kaj sinjoro la vicgrafo faras al li tro da honoro. Vi nenion diras, Klaŭdi-no! Venu, ni ilin sekvu, kaj donu al mi vian maneteton, ke mi ĝin kisu. Ha, kiel dolĉa ĝi estas! ŝajnas al mi, kvazaŭ mi manĝas konfitaĵon.
-
-
-GEORGO DANDIN
 
 
 al Georgo Dandin kiun li ĉiam ankoraŭ prenas por Klaŭdino, kaj kiu lin krude repuŝas Al la diablo! kiel vi batas! i estas ja maneteto iom tre kruda!
@@ -2270,18 +2099,13 @@ Colin
 Jes, sinjoro.
 
 
-GEORGO DANDIN
-
-
 dum Georgo Dandin iras serĉi Colinon sur la flanko, kie li aŭdis lian voĉon, Colin transiras sur la duan flankon kaj tie endormiĝas
 
 Georgo Dandin
 
 turnante sin al la flanko, kie li supozas la ĉeestadon de Colin
 
-Mallaŭte, parolu mallaŭte. Aŭskultu. Iru al miaj gebopatroj kaj diru al ili, ke mi ilin petas tre insiste veni tuj ĉi tien. ĉu vi aŭ-
-
-das? He! Colin! Colin!
+Mallaŭte, parolu mallaŭte. Aŭskultu. Iru al miaj gebopatroj kaj diru al ili, ke mi ilin petas tre insiste veni tuj ĉi tien. ĉu vi aŭdas? He! Colin! Colin!
 
 Colin
 
@@ -2309,9 +2133,7 @@ Georgo Dandin
 
 Tiu ĉi pendindulo min frenezigos! Venu al mi.
 
-ili renkontiĝas kaj ambaŭ falas Ha, la kanajlo! Li min kripligis! Kie do vi 55
-
-GEORGO DANDIN
+ili renkontiĝas kaj ambaŭ falas Ha, la kanajlo! Li min kripligis! Kie do vi
 
 
 estas? Alproksimiĝu, ke mi donu al vi bonan porcion da batoj. ŝajnas al mi, ke li forkuras de mi.
@@ -2360,12 +2182,7 @@ Iru rapide kaj tuj revenu.
 
 pensante, ke li estas sola
 
-Kaj mi reeniros en mian domon kaj aten-dos, ĝis … Sed mi aŭdas iun. ĉu ĝi ne es-56
-
-GEORGO DANDIN
-
-
-tas mia edzino? Mi aŭskultu kaj mi pro-fitu de la mallumo.
+Kaj mi reeniros en mian domon kaj aten-dos, ĝis … Sed mi aŭdas iun. ĉu ĝi ne estas mia edzino? Mi aŭskultu kaj mi pro-fitu de la mallumo.
 
 Georgo Dandin stariĝas apud la pordo de sia domo SCENO KVINA
 
@@ -2401,9 +2218,7 @@ Ni trovos la eblon, por nin revidi.
 
 Klitandro
 
-Jes; sed mi pensas pri tio, ke forlasante min, vi iras al edzo. Tiu ĉi penso min mortigas; kaj la privilegioj, kiujn havas la 57
-
-GEORGO DANDIN
+Jes; sed mi pensas pri tio, ke forlasante min, vi iras al edzo. Tiu ĉi penso min mortigas; kaj la privilegioj, kiujn havas la
 
 
 edzoj, estas teruraj por amanto, kiu vere amas.
@@ -2436,9 +2251,7 @@ Georgo Dandin
 
 Se la ĉielo volus, ke ĝi estu via! vi baldaŭ parolus alie. Mi eniru; mi havas sufiĉe da tio.
 
-Georgo Dandin enirinte, fermas la pordon de interne 58
-
-GEORGO DANDIN
+Georgo Dandin enirinte, fermas la pordon de interne
 
 
 SCENO SESA
@@ -2494,9 +2307,6 @@ Klaŭdino
 Malfermu do mallaŭte.
 
 
-GEORGO DANDIN
-
-
 Angeliko
 
 Oni ŝlosis de interne; kaj mi ne scias, kion ni faros.
@@ -2526,9 +2336,6 @@ Georgo Dandin
 Jes, jes; bona horo, por preni freŝan aeron! ĝi estis pli ĝuste varmo, sinjorino friponino; kaj, ni scias la tutan intrigon de la rendevuo kaj de la sinjoreto. Ni aŭdis vian delikatan interparoladon kaj la belajn laŭdajn vortojn, kiujn vi diris pri mi unu al la alia. Sed mi konsoliĝas per tio, ke mi tuj estos venĝita, kaj ke viaj gepatroj konvinkiĝos nun pri la justeco de miaj plendoj kaj pri la malmoraleco de via konduto. Mi sendis peti ilin ĉi tien kaj baldaŭ ili estos ĉi tie.
 
 
-GEORGO DANDIN
-
-
 Angeliko
 
 al si mem
@@ -2550,9 +2357,6 @@ He, mi vin petas, lasu malfermi al mi la pordon.
 Georgo Dandin
 
 Ne, ne! Vi devas atendi la venon de tiuj, kiujn mi invitis, kaj mi volas, ke ili vin trovu ekstere en la nuna bela horo. Atendante ilian venon, penu, se vi volas, serĉi en via kapo ian novan artifikon, por eltiriĝi el ĉi tiu afero! penu elpensi ian rimedon, por prezenti en bela lumo, vian vagadon; trovi ian belan ruzaĵon, por elturniĝi kaj aperi senkulpa; ian verŝajnigan pretekston por via nokta migrado, ekzemple, ke vi iris helpi ian amikinon en akuŝo.
-
-
-GEORGO DANDIN
 
 
 Angeliko
@@ -2592,9 +2396,6 @@ Angeliko
 Mi petegas, lasu min paroli kun vi. Mi petas de vi unu minuton da aŭskultado.
 
 
-GEORGO DANDIN
-
-
 Georgo Dandin
 
 Nu, kio?
@@ -2610,9 +2411,6 @@ Jes, vi tion diras, kaj ĝi apartenas al tiuj aferoj, kiuj bezonas, ke oni ilin 
 Angeliko
 
 Mi tute ne volas diri per tio, ke mi estas senkulpa antaŭ vi, kaj mi vin nur petas, ke vi forgesu ofendon, pri kiu mi el mia tuta koro petas vian pardonon, kaj ke vi antaŭliberigu min de tiu renkontiĝo kaj de la ĉagreno, kiun povus kaŭzi al mi la malagrablaj riproĉoj de miaj gepatroj. Se vi grandanime donos al mi la favoron, pri kiu mi vin petas, tiam tiu ĉi ŝuldiga faro, tiu ĉi boneco, kiun vi montros al mi, aki-ros min por vi plene; ĝi tuŝos profunde mian koron kaj naskos tie por vi tion, kion la tuta potenco de miaj gepatroj kaj la ligiloj de la edzeco ne povis tie atingi.
-
-
-GEORGO DANDIN
 
 
 Per unu vorto, ĝi estos la kaŭzo, ke mi rifuzos ĉiun amindumadon, kaj mi havos sindonecon nur por vi. Jes, mi donas al vi mian vorton, ke vi havos en mi de nun la plej bonan edzinon en la mondo, kiu montros al vi tiom da amo, tiom da amo, ke vi estos tute kontenta.
@@ -2670,9 +2468,6 @@ Georgo Dandin
 Ha, ha! Perfekte!
 
 
-GEORGO DANDIN
-
-
 Angeliko
 
 Por vi ĝi ne estos tiel perfekta, kiel vi pensas. ĉiuj scias pri nia malpaco kaj la kon-stantajn ĉagrenojn, kiujn vi faras al mi.
@@ -2696,16 +2491,13 @@ Angeliko
 Nu, bone! ĉar ĝi estas necesa, jen kio kontentigos nin ambau kaj montros, ĉu mi ŝercas.
 
 
-GEORGO DANDIN
-
-
 farinte kvazaŭ ŝi sin mortigas Ha, ĝi fariĝis! La ĉielo donu, ke mia morto estu venĝita tiel, kiel mi deziras, kaj ke tiu, kiu estas la kaŭzo de tio, ricevu justan punon por lia krueleco kontraŭ mi!
 
 Georgo Dandin
 
 Oho! ĉu ŝi efektive estus tiel malbona kaj mortigus sin, por ke oni min pendigu? Ni prenu peceton da kandelo, por rigardi.
 
-SCENO NAŭA
+SCENO NAŬA
 
 Angeliko, Klaŭdino
 
@@ -2723,9 +2515,7 @@ Georgo Dandin
 
 ĉu la malboneco de virino efektive povas atingi tian gradon?
 
-sola, rigardinte ĉien ĉirkaŭe Neniu estas! Ha, mi tion suspektis; la pendindulino foriris vidante ke ŝi nenion atingos de mi, nek per petoj, nek per 66
-
-GEORGO DANDIN
+sola, rigardinte ĉien ĉirkaŭe Neniu estas! Ha, mi tion suspektis; la pendindulino foriris vidante ke ŝi nenion atingos de mi, nek per petoj, nek per
 
 
 minacoj. Des pli bone! tio faros ŝiajn aferojn ankoraŭ pli malbonaj; kaj la gepatroj, kiuj baldaŭ venos, vidos per tio ŝian krimon ankoraŭ pli bone.
@@ -2736,9 +2526,7 @@ SCENO DEKUNUA
 
 Angeliko kaj Klaŭdino ĉe la fenestro; Georgo Dandin Angeliko
 
-Kio! ĝi estas vi! De kie vi venas, sentaŭ-
-
-gulo? ĉu nun estas tempo, por reveni hej-men, kiam preskaŭ jam tagiĝas? Tia estas la konduto de honesta edzo?
+Kio! ĝi estas vi! De kie vi venas, sentaŭgulo? ĉu nun estas tempo, por reveni hej-men, kiam preskaŭ jam tagiĝas? Tia estas la konduto de honesta edzo?
 
 Klaŭdino
 
@@ -2757,9 +2545,6 @@ Georgo Dandin
 Kio! Vi ankoraŭ kuraĝas ….
 
 
-GEORGO DANDIN
-
-
 SCENO DEKDUA
 
 s-ro de Sotenville kaj s-ino de Sotenville en noktaj vestoj; Colin, portante lanternon; Angeliko kaj Klaŭdino ĉe la fenestro; Georgo Dandin
@@ -2768,9 +2553,7 @@ Angeliko
 
 al gesinjoroj de Sotenville
 
-Ho, venu, mi vin petegas, venu doni al mi venĝon por la plej granda aroganteco de la flanko de edzo, al kiu la vino kaj ĵaluzeco, en tia grado konfuzis la cerbon, ke li plu scias nek kion li diras, nek kion li faras, kaj kiu mem sendis inviti vin, ke vi estu atestantoj de la plej granda sensencaĵo, pri kiu oni iam aŭdis. Jen li revenas, kiel vi vidas, lasinte atendi sin la tutan nokton; kaj se vi volos lin aŭskulti, li diros al vi, ke li havas kontraŭ mi la plej grandajn plendojn; ke dum li dormis, mi for-
-
-ŝteligis de li, por iri vagi, kaj cent aliajn samspecajn historiojn, kiujn li sonĝis.
+Ho, venu, mi vin petegas, venu doni al mi venĝon por la plej granda aroganteco de la flanko de edzo, al kiu la vino kaj ĵaluzeco, en tia grado konfuzis la cerbon, ke li plu scias nek kion li diras, nek kion li faras, kaj kiu mem sendis inviti vin, ke vi estu atestantoj de la plej granda sensencaĵo, pri kiu oni iam aŭdis. Jen li revenas, kiel vi vidas, lasinte atendi sin la tutan nokton; kaj se vi volos lin aŭskulti, li diros al vi, ke li havas kontraŭ mi la plej grandajn plendojn; ke dum li dormis, mi forŝteligis de li, por iri vagi, kaj cent aliajn samspecajn historiojn, kiujn li sonĝis.
 
 Georgo Dandin
 
@@ -2791,9 +2574,6 @@ s-ino de Sotenville
 Kia furioza senhonteco, sendi voki nin!
 
 
-GEORGO DANDIN
-
-
 Georgo Dandin
 
 Neniam …
@@ -2810,9 +2590,7 @@ Al la diablo! vi estas malnobla homo!
 
 Klaŭdino
 
-Estas terure, kiam oni vidas, ke malfeli-
-
-ĉan junan virinon oni traktas en tia maniero, kaj tio krias pri venĝo al la ĉielo.
+Estas terure, kiam oni vidas, ke malfeliĉan junan virinon oni traktas en tia maniero, kaj tio krias pri venĝo al la ĉielo.
 
 Georgo Dandin
 
@@ -2855,9 +2633,6 @@ Sinjorino, mi vin petas …
 s-ino de Sotenville
 
 Fi, ne alproksimiĝu al mi, via spirado estas pesta.
-
-
-GEORGO DANDIN
 
 
 Georgo Dandin
@@ -2915,9 +2690,6 @@ Georgo Dandin
 La tondro min tuj mortigu, se …
 
 
-GEORGO DANDIN
-
-
 s-ro de Sotenville
 
 Ne turnu al ni plu la kapon, sed penu peti pardonon de via edzino.
@@ -2967,9 +2739,6 @@ Mia filino, tiaj disiĝoj ne povas esti farataj sen granda skandalo; kaj vi deva
 Angeliko
 
 Kiel! pacienci post tiaj indignindaĵoj! Ne, mia patro, tian aferon mi ne povas kon-senti.
-
-
-GEORGO DANDIN
 
 
 s-ro de Sotenville
@@ -3039,9 +2808,6 @@ s-ro de Sotenville
 La sensencaĵon, kiun mi faris …
 
 
-GEORGO DANDIN
-
-
 Georgo Dandin
 
 La sensencaĵon, kiun mi faris …
@@ -3081,9 +2847,6 @@ al s-ino de Sotenville
 Kaj ni, mia koro, ni iru enlitiĝi.
 
 
-GEORGO DANDIN
-
-
 SCENO DEK-KVINA
 
 Georgo Dandin
@@ -3091,9 +2854,6 @@ Georgo Dandin
 sola
 
 Ha, mi nun rezignacias, ĉar mi vidas plu nenian rimedon. Kiam oni, simile al mi, edziĝis kun malbona virino, tiam la plej bona, kion oni povas fari, estas iri ĵeti sin en la akvon, la kapon antaŭen.
-
-
-GEORGO DANDIN
 
 
 www.omnibus.se/

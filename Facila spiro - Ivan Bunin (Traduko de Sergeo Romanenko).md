@@ -10,9 +10,7 @@ En la tombejo, sur freŝa argil-amaseto, staras nova kverka kruco: firma, peza, 
 
 Aprilo. La tagoj estas grizaj. La monumentoj de la vasta distrikta tombejo ankoraŭ
 
-videblas de malproksime tra nudaj arboj, kaj la malvarma vento tintigas porcelanan flor-
-
-kronon malsupre de la kruco.
+videblas de malproksime tra nudaj arboj, kaj la malvarma vento tintigas porcelanan florkronon malsupre de la kruco.
 
 En la kruco estas fiksita sufiĉe granda porcelana medaliono, enhavanta fotoportreton
 
@@ -131,17 +129,13 @@ senti, ke mia vivo kvazaŭ neniam finiĝos, kaj mi estos pli feliĉa ol iu ajn e
 
 bedaŭris, ke li maltrafis Paĉjon, estis plena je vigleco, traktis min kavalire, multe ŝercis
 
-dirante, ke jam delonge li estas enamiĝinta al mi. Kiam ni promenis en la ĝardeno antaŭ la te-
-
-trinkado, la vetero estis denove ĉarma, la suno sendis siajn radiojn tra la malseka ĝardeno,
+dirante, ke jam delonge li estas enamiĝinta al mi. Kiam ni promenis en la ĝardeno antaŭ la tetrinkado, la vetero estis denove ĉarma, la suno sendis siajn radiojn tra la malseka ĝardeno,
 
 kvankam la aero jam tute malvarmiĝis. Promenante, li tenis min je la mano kaj ripetis, ke ni
 
 estas kiel Faŭst kaj Margarita. Li estas kvindekses-jara, tamen ankoraŭ tre bel-aspekta kaj
 
-ĉiam elegante vestita (ne plaĉis al mi nur tio, ke li venis en mantelo kun pelerino), La bon-
-
-odoro de kolonja akvo senteblas de li, la okuloj estas tute junaj, nigraj, tamen la barbo
+ĉiam elegante vestita (ne plaĉis al mi nur tio, ke li venis en mantelo kun pelerino), La bonodoro de kolonja akvo senteblas de li, la okuloj estas tute junaj, nigraj, tamen la barbo
 
 elegante disiĝas je du longaj partoj kaj estas tute arĝent-kolora. Dum la te-trinkado, kiam ni sidis en la vitra verando, mi subite sentis kvazaŭ ian malsanecon kaj duon-kuŝiĝis sur la sofo.
 
@@ -192,9 +186,7 @@ diketa, alt-statura Subotina:
 
 pri la beleco, kiun la virino devas havi. Nu, komprenu, estis skribite tiel multe, ke tiom ne
 
-memoreblas; nu, memkompreneble, ŝi nepre havu la okulojn nigrajn, kiel bolanta peĉo. - Jes-
-
-jes, ĝuste tiel estis skribite: "kiel bolanta peĉo"! - ankaŭ ŝi havu okul-harojn nigregajn kiel nokto, la vangojn delikat-ruĝajn, la figuron maldikan, la brakojn iomete pli longajn kiel
+memoreblas; nu, memkompreneble, ŝi nepre havu la okulojn nigrajn, kiel bolanta peĉo. - Jesjes, ĝuste tiel estis skribite: "kiel bolanta peĉo"! - ankaŭ ŝi havu okul-harojn nigregajn kiel nokto, la vangojn delikat-ruĝajn, la figuron maldikan, la brakojn iomete pli longajn kiel
 
 kutime, - ĉu vi kompenas: iomete pli longajn! - kaj etajn piedojn, proporcie grandan buston,
 

@@ -10,16 +10,6 @@ TRI BENGALAJ FABELOJ
 
 Lakshmiswar Sinha
 
-TRI BENGALAJ FABELOJ
-
-
-@omnibus.se
-
-·
-
-
-TRI BENGALAJ FABELOJ
-
 
 Antaŭparolo
 
@@ -32,9 +22,6 @@ Tamen laŭ la instigo de miaj amikoj nun mi elsendas kel-kajn rakontojn el mia p
 Stockholm, 10-aŭ de
 
 Lakshmiswar Sinha
-
-
-TRI BENGALAJ FABELOJ
 
 
 La dio, la malriĉulo
@@ -54,16 +41,11 @@ Gunadhar estis tre konsternita. Li ne sciis, kiamaniere li povu trankviligi sian
 Kelkaj tagoj pasis. Gunadhar cerbumis por trovi rimedon kontraŭ sia malriĉeco, sed ju pli li pensis, des pli lia koro fa-riĝis peza.
 
 
-TRI BENGALAJ FABELOJ
-
-
 Post longa pensado li trovis nur unu vojon por solvi la pro-blemon. De sia infaneco li aŭdis multon pri la potenca dio Bidhatapuruso, kiu povas plenumi ĉiujn dezirojn de la homoj.
 
 ”ĉu estas vero? Mi devas provi,” li murmuris por si mem. Kaj iun tagon li foriris por preĝi al la dio. Sed li ne diris eĉ unu vorton al sia edzino pri la afero.
 
-Li eniris tre profundan kaj malproksiman arbaron, kie tute ne ekzistis homoj, kaj tie li komencis preĝi al la dio. Ferminte siajn okulojn li alvokis lin kun sia tuta koro. ”Ho, ĉiopova, ĉu vi restos silenta antaŭ la alvoko de malriĉulo? ĉu vi ne aŭ-
-
-das mian peton?”
+Li eniris tre profundan kaj malproksiman arbaron, kie tute ne ekzistis homoj, kaj tie li komencis preĝi al la dio. Ferminte siajn okulojn li alvokis lin kun sia tuta koro. ”Ho, ĉiopova, ĉu vi restos silenta antaŭ la alvoko de malriĉulo? ĉu vi ne aŭdas mian peton?”
 
 Fine la dio ne povis ne cedi al la fervora preĝo. Li aperis antaŭ Gunadhar en homa formo kaj diris: ”Ho, Gunadhar, mi estas tre kontenta kun via preĝado. Do, kial vi vokis min? Kio estas via deziro?
 
@@ -73,9 +55,7 @@ Kiam Gunadhar aŭdis tiujn vortojn, li tuj malfermis siajn okulojn kaj vidante l
 
 Gunadhar prenis la poton kaj denove salutis la nevideblan dian potenculon. Sed la afero iom surprizis lin. Kial estas la poto senenhava? Tamen pro la dia ordono li ne turnis la poton. Tre kontenta li reiris hejmen. Nun li pensis pri sia edzino. Certe ŝi miros, kiam ŝi aŭdos pri la afero.
 
-Sed survoje li denove ekpensis pri la mistera ordono de la dio. Li ne povis rezisti al la tento. Subite li turnis la poton, kaj 5
-
-TRI BENGALAJ FABELOJ
+Sed survoje li denove ekpensis pri la mistera ordono de la dio. Li ne povis rezisti al la tento. Subite li turnis la poton, kaj
 
 
 — de la poto falis seninterrompe rizmanĝaĵoj. La tre bona odoro de la manĝaĵoj ĉirkaŭis la tutan lokon. ”Ho, estas mirinde!” Gunadhar diris al si mem, kaj poste li ree turnis la poton. La rizfalado finiĝis. Kial la dio ne permesis al li turni la poton?
@@ -94,9 +74,7 @@ Post bano Gunadhar revenis al la vendisto por rehavi sian poton. Sed kiam li pet
 
 ”Ho, vi estas trompisto! Foriru, foriru tuj! Alie mi vokos la policiston!” minacis la vendisto.
 
-Gunadhar sentis sin tute senhelpa kai povis fari nenion kontraŭ la vendisto. Kun granda malĝojo li reiris al la profunda arbaro. Kaj tie, ferminte siajn okulojn, li denove komencis 6
-
-TRI BENGALAJ FABELOJ
+Gunadhar sentis sin tute senhelpa kai povis fari nenion kontraŭ la vendisto. Kun granda malĝojo li reiris al la profunda arbaro. Kaj tie, ferminte siajn okulojn, li denove komencis
 
 
 preĝi al la potenca dio. La dio reaperis en homa formo antaŭ li kaj demandis: ”Ho, kial vi ree vokis min? Kio estas via deziro?”
@@ -116,9 +94,6 @@ Kiam li estis for, la vendisto tre scivoleme turnis la poton.
 Sed anstataŭ rizoj elfalis giganto post giganto el la poto, kaj la gigantoj komencis bati lin. Pro la seninterrompa batado de la gigantoj la vendisto tute forgesis returni la poton. De la turnita poto venis senĉese novaj gigantoj, kaj la tuta vendejo pleniĝis. ĉiuj gigantoj batadis kaj batadis la vendiston, kaj tiu ĉi kriegis pro doloro. Multaj homoj kolektiĝis antaŭ la vendejo, sed ekvidinte la gigantojn ili rapidege forkuris de tie. Estas ja mirindega afero!
 
 
-TRI BENGALAJ FABELOJ
-
-
 Dume Gunadhar revenis. Kaj kiam li vidis la aferon, li tuj returnis la poton, kaj la gigantoj momente eniĝis.
 
 Kun tre trankvila voĉo Gunadhar demandis: ”Nu, ĉu vi nun estas sufiĉe saĝa? Do, redonu ankaŭ la alian poton!” La vendisto petis pardonon kaj tuj redonis ĝin.
@@ -126,9 +101,6 @@ Kun tre trankvila voĉo Gunadhar demandis: ”Nu, ĉu vi nun estas sufiĉe saĝa
 Kun ambaŭ donacoj de la dio Gunadhar venis hejmen. La edzino miregis vidante la potojn kaj aŭdinte la tutan historion. De tiu tago ilia sorto tute ŝanĝiĝis.
 
 Nun Gunadhar estas la plej feliĉa homo en la mondo kaj tre konata en sia lando kiel riĉegulo.
-
-
-TRI BENGALAJ FABELOJ
 
 
 Fakiro kaj princo
@@ -150,9 +122,6 @@ Neniu alia aŭdis pri tiu afero. Nur Suorani estis pli gaja ol antaŭe pensante.
 * En Bengalujo unuspeca granda fiŝo nomiĝas ”ruhit”.
 
 
-TRI BENGALAJ FABELOJ
-
-
 Post unu jaro naskiĝis la filo de la reĝo. La reĝo nun estis senfine ĝoja. ĉar fine li estis patro! Ne nur tra la reĝa palaco, sed tra la tuta reĝlando kvazaŭ pasis vento de ĝojo.
 
 Post unu monato venis la nomtago de la reĝa filo. Estis granda festeno. Tiel granda festeno antaŭe neniam okazis en tiu reĝlando. La reĝo disdonigis oranĝojn al ĉiuj homoj en la reĝlando. Kaj de tiu tago oni nomis la filon Aĝitkumar.
@@ -164,9 +133,6 @@ Aĝitkumar, la malgranda ĉarma knabo, estas granda aman-to de kolomboj. Kaj li 
 Kaj vidante la birdojn en la mano de Duorani, li petas ilin de ŝi. Duorani ne volas tion kaj diras kun nekontenta voĉo:
 
 ”Viaj birdoj multe ĝenas min, Aĝit.”
-
-
-TRI BENGALAJ FABELOJ
 
 
 ”Ne, mamma*, ili ne venos al vi denove. Mi prizorgos la birdojn,” diris Aĝitkumar.
@@ -196,9 +162,6 @@ Tiam en fatala momento la patrino rakontas al la filo la sekreton de lia vivo: p
 * mamma, hinda intima vorto por panjo.
 
 
-TRI BENGALAJ FABELOJ
-
-
 Aĝit, laŭ promeso rerakontis al Duorani, kion li aŭdis de sia patrino. Nun Duorani pensadis ĉiumomente, kiamaniere ŝi povus utiligi tiun sekreton.
 
 Aĝitkumar estis la sola kaŭzo al ŝia malfavora sorto.
@@ -219,20 +182,14 @@ diris la reĝo.
 
 Nun la fiŝkaptistoj venis al la lago por kapti la ruhit-fiŝon.
 
-Samtempe Aĝit estis tre okupata per ludoj kun siaj kamara-doj en la alia flanko de la lago. Kiam la fiŝkaptistoj kaptis la rubit-fiŝon per reto, subite Aĝit falis sur la teron kaj fariĝis 12
-
-TRI BENGALAJ FABELOJ
+Samtempe Aĝit estis tre okupata per ludoj kun siaj kamara-doj en la alia flanko de la lago. Kiam la fiŝkaptistoj kaptis la rubit-fiŝon per reto, subite Aĝit falis sur la teron kaj fariĝis
 
 
 senkonscia. Kreiĝis granda sensacio. La novaĵo venis al la gepatroj. Oni portis Aĝiton en la palacon.
 
-Dume la kaptita fiŝo estis portita al la ĉambro de Duorani. Kaj tie la kuracisto mortigis la fiŝon. Kiam li tranĉis la fi-
+Dume la kaptita fiŝo estis portita al la ĉambro de Duorani. Kaj tie la kuracisto mortigis la fiŝon. Kiam li tranĉis la fiŝon, li trovis la oran girlandon. Li transdonis ĝin al Duorani kaj ŝi metis ĝin sur sian kolon kiel ornamaĵon.
 
-ŝon, li trovis la oran girlandon. Li transdonis ĝin al Duorani kaj ŝi metis ĝin sur sian kolon kiel ornamaĵon.
-
-En tiu momento Aĝit mortis. Estis granda malĝojo, ne nur por Suorani kaj por la reĝo, sed por la popolo de la tuta reĝ-
-
-lando. La reĝo havis apartan domegon en granda parko kaj en tiun domon oni metis la senvivan korpon de la kara reĝa filo Aĝitkumar. Poste multaj jaroj pasis.
+En tiu momento Aĝit mortis. Estis granda malĝojo, ne nur por Suorani kaj por la reĝo, sed por la popolo de la tuta reĝlando. La reĝo havis apartan domegon en granda parko kaj en tiun domon oni metis la senvivan korpon de la kara reĝa filo Aĝitkumar. Poste multaj jaroj pasis.
 
 
 En la ĉielo la fratino de Bidhatapuruso* havis belegan filinon, kaj la diino estis tre scivolema aŭdi de Bidhatapuruso pri la sorto de sia filino. Iun tagon ŝi venis al sia frato kaj demandis: ”Ho, mia frato, ho gvidanto de homa sorto, diru al mi —
@@ -246,9 +203,6 @@ kun kiu mia filino edziniĝos? Kio estas ŝia sorto?” Bidhatapuruso ne volis r
 Aŭdinte la sorton de sia filino, la diino preskaŭ fariĝis mal-
 
 * En malnova hinda popola mito ekzistas tiu koncepto. Bidhatapuruso signifas Dion kun boma formo, kiu loĝas en sia ĉiela domo.
-
-
-TRI BENGALAJ FABELOJ
 
 
 sana. ŝi decidis transloĝiĝi de la ĉielo al la tera mondo kune kun sia sola filino.
@@ -265,9 +219,7 @@ Nun la patrino foriris. La filino estis sola. La trankvila sen-homeco de la loko
 
 Dume la patrino revenis kun akvo al la parko, kie ŝi lasis sian filinon. Sed kie ŝi estas? La patrino serĉis kaj serĉis en la ĉirkaŭaĵo, sed ne trovis ŝin. Tiam la diino kredis, ke certe la filino foriris al iu najbara loko por havigi trinkaĵon. Samtempe venis la nokta mallumo. Por trovi sian filinon ŝi rapidis for de la parko.
 
-Sed en la nokto vekiĝis la viro dormanta en la palaca ĉambro. Li mem lumigis la ĉambron. is tiam la junulino eĉ ne 14
-
-TRI BENGALAJ FABELOJ
+Sed en la nokto vekiĝis la viro dormanta en la palaca ĉambro. Li mem lumigis la ĉambron. is tiam la junulino eĉ ne
 
 
 povis paroli. Nun ŝi de la flanko de la ĉambro vidis, ke tio estas treege bela junulo.
@@ -288,12 +240,7 @@ La tuta historio treege mirigis ŝin. Nun ŝi ankaŭ pensis pri la profetaĵo de
 
 Estas la certa signifo de la vortoj de Bidhatapuruso. ŝia mola koro pleniĝis de kompato. Samtempe ŝi fariĝis tre kolera al Dourani. ”Kiamaniere oni povas havigi tiun girlandon?” ŝi demandis.
 
-Por momento silento regis la ĉambron. Kiamaniere? Ili pensis kaj pensis pri la afero profunde kaj longe. En la fino de la nokto Aĝitkumar diris al la belulino: ”Baldaŭ mateno ve-15
-
-TRI BENGALAJ FABELOJ
-
-
-nos kaj mi por la tago estos senviva. En la mateno vi iru al mia kara amiko, la filo de ministro, la kamarado de mia infaneco.
+Por momento silento regis la ĉambron. Kiamaniere? Ili pensis kaj pensis pri la afero profunde kaj longe. En la fino de la nokto Aĝitkumar diris al la belulino: ”Baldaŭ mateno venos kaj mi por la tago estos senviva. En la mateno vi iru al mia kara amiko, la filo de ministro, la kamarado de mia infaneco.
 
 Nun mi skribos leteron pri la tuta afero, kaj vi portu ĝin al li.”
 
@@ -309,12 +256,7 @@ La tagoj pasis. Sed neniu alia konis pri tiu mirinda afero. Nur tiuj tri persono
 
 En unu nokto okazis la edziĝa festeno inter Aĝitkumar kaj la belulino. Tie la sola gasto estis la filo de la ministro. Li faris ĉion, kion li povis por beligi la festenon. La edziĝa ceremo-nio estis farita per simpla ŝanĝo de florgirlandoj.
 
-Poste kelkaj jaroj pasis. Aĝitkumar fariĝis patro de du be-legaj kaj ĉarmaj filoj. Nun la filo de la ministro diris: ”Iama-16
-
-TRI BENGALAJ FABELOJ
-
-
-niere ni devas havigi la girlandon.” Sed, kiamaniere? Ili ja pri-pensis multe, sed senrezulte.
+Poste kelkaj jaroj pasis. Aĝitkumar fariĝis patro de du be-legaj kaj ĉarmaj filoj. Nun la filo de la ministro diris: ”Iamaniere ni devas havigi la girlandon.” Sed, kiamaniere? Ili ja pri-pensis multe, sed senrezulte.
 
 Sed foje iun tagon, kiam Aĝitkumar estis senviva, lia edzino vestita kiel barbirino kaj kun barbiriloj foriris al la reĝa palaco. ŝi ankaŭ ne forgesis kunpreni siajn filojn. Unue ŝi venis al la ĉambro de Suorani kaj demandis, ĉu ŝia Moŝto volas havi helpon por barbiri siajn ungojn kaj hararon. Suorani respondis, ke ŝi ne havas emon por beligi sin. Sed kiam ŝi vidis la filojn de la barbirino, tuj en ŝia memoro aperis la figuro de ŝia morta filo Aĝitkumar, kaj kun ĝemo ŝi diris: ”Ho barbirino, tamen mi estos dankema, se vi vizitos min kelkfoje kune kun viaj infanoj.”
 
@@ -329,9 +271,6 @@ Duorani estis tre amata de la reĝo post la morto de Aĝitkumar. Kaj de tiu temp
 En la sekvanta mateno ŝi vestis sin same kiel en la antaŭa tago. Antaŭ la foriro ŝi instruis al sia unua filo, ke kiam ili estos ĉe Duorani, li kriante petu la girlandon de la reĝino.
 
 Precize je la ĝusta tempo ŝi venis al Duorani. Kaj post sa-luto ŝi komencis ordigi la longan hararon de Duorani. Subite la unua filo diris al sia patrino: ”Ho, mamma, mi volas havi la girlandon”.
-
-
-TRI BENGALAJ FABELOJ
 
 
 ”Kion vi volas havi?” demandis la barbirino kun riproĉa voĉo.
@@ -356,9 +295,7 @@ La barbirino kun multa danko salutis al Duorani kaj diris:
 
 Kiam ŝi venis hejmen, ŝi tuj metis la girlandon sur la kolon de sia dumtage senviva edzo. Aĝitkumar tuj vekiĝis. Ho, kia granda ĝojo estis!
 
-Dum la nokto venis la filo de la ministro kiel kutime. Nun 18
-
-TRI BENGALAJ FABELOJ
+Dum la nokto venis la filo de la ministro kiel kutime. Nun
 
 
 ĉiuj estas senfine ĝojaj. La filo de la ministro diris al siaj gea-mikoj, ke ili pretigu sin por viziti la reĝon.
@@ -378,19 +315,11 @@ La infano aŭskultas kun granda intereso la fabelon de sia avino.
 
 ”Kio okazis poste?” li demandas.
 
-”La reĝo estis tre maljuna kaj ne volis esti plu reĝo. Li si-19
-
-TRI BENGALAJ FABELOJ
-
-
-digis la filon, Aĝitkumar, sur la tronon por reĝi kaj mem foriris al arbaro por pasigi sia lastan tempon dum silenta med-itado,” diris la avino.
+”La reĝo estis tre maljuna kaj ne volis esti plu reĝo. Li sidigis la filon, Aĝitkumar, sur la tronon por reĝi kaj mem foriris al arbaro por pasigi sia lastan tempon dum silenta med-itado,” diris la avino.
 
 ”Estas fina de mia rakonto,
 
 Dormu bone, mia kara infano.”
-
-
-TRI BENGALAJ FABELOJ
 
 
 Kio estas saĝo?
@@ -410,9 +339,6 @@ Iun tagon li foriris per sia boato en la urbon por fari prelegon. Kiam li finis 
 ”Ne, sinjoro, sed mi scias, ke logiko estas nur por logiki-stoj.”
 
 ” Ah, do unu duono de via viva estas vana.”
-
-
-TRI BENGALAJ FABELOJ
 
 
 Nun li ree demandis al la boatisto:
@@ -446,9 +372,6 @@ Kiel mi povus savi vin de tiu tre danĝera torento?”
 Subite tre forta ondo surpasis la boaton kaj subprenis ĝin kun la profesoro en nekonatan lokon sub la granda ri vero. La boatisto saltis el la boato kaj sukcesis savi sin.
 
 Kiu scias? Kio estas saĝo?
-
-
-TRI BENGALAJ FABELOJ
 
 
 www.omnibus.se/

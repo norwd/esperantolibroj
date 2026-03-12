@@ -20,7 +20,7 @@ Li turnis sin for kaj obstine paŭtis.
 
 —Karulo, mi amas vin, vi scias tion. Sed ja estas tiel, ke ne eblas.
 
-—Ja estas tiel! Kial devas esti tiel? Kial ni ne rajtu ami unu la alian tute kaj plene? Kial nur ni ne? ĉiuj aliaj ja 3
+—Ja estas tiel! Kial devas esti tiel? Kial ni ne rajtu ami unu la alian tute kaj plene? Kial nur ni ne? ĉiuj aliaj ja
 
 DEK DU AMRAKONTOJ
 
@@ -59,9 +59,7 @@ Ili leviĝis. Li metis sian brakon ĉirkaŭ ŝia talio.
 
 —Mi vere ne scias, ĉu estas infanece ami …
 
-Li rigardis teren kaj diris mallaŭte: 4
-
-DEK DU AMRAKONTOJ
+Li rigardis teren kaj diris mallaŭte:
 
 
 —Ci, mi kredas fakte, ke la plej bela amo estas tiu, kiu ne povas plenumiĝi. Ni estas tamen tre feliĉaj.
@@ -74,16 +72,12 @@ Man-en-mane ili eliris el la parko kaj promenis al la maljunulejo.
 
 **Tage Danielsson**
 
-* Birger Viggen* 5
-
-DEK DU AMRAKONTOJ
+* Birger Viggen*
 
 
 La leciono de amo
 
-Jam komenciĝis la printempo: degelis la neĝo, nudiĝis la tero, ekĝermis la herboj. Tiam ankaŭ la aliaj paŝ-
-
-tistoj kondukis siajn brutarojn al herbejoj, sed antaŭ ĉiuj
+Jam komenciĝis la printempo: degelis la neĝo, nudiĝis la tero, ekĝermis la herboj. Tiam ankaŭ la aliaj paŝtistoj kondukis siajn brutarojn al herbejoj, sed antaŭ ĉiuj
 
 ˘loa kaj Dafniso, ĉar ili estis servantoj al pli granda dio**1**.
 
@@ -94,18 +88,11 @@ Tiuj milde muzikis en la boskoj, mallaŭte sonante sian plendan melodion, kvaza�
 Tie blekis ŝafoj, tie saltis ŝafidoj, kiuj kliniĝante sub sian patrinon suĉis la mamojn. La nenaskintajn virŝafoj persekutis, haltigis kaj fekundigis. Ankaŭ la kapraj maskloj aranĝis persekutojn de la kaprinoj kaj lascive saltis 1 Amoro.
 
 
-DEK DU AMRAKONTOJ
-
-
 sur ilin aŭ bataladis inter si pri ili. ĉiu havis siajn proprajn inojn kaj zorge gardis, ke neniu alia kaŝe tuŝu ilin.
 
 Tiaj vidaĵoj ekscitis eĉ maljunulojn al amagoj; kaj la junuloj avidaj, kiuj jam de longa tempo serĉis la amon, ardis pro tio, kion ili aŭdis kaj sopiregis pro tio, kion ili vidis; ne sufiĉis por ili kisoj kaj ĉirkaŭbrakoj. Precipe Dafniso, kies deziro kreskis dum la vintra sidado endo-me, estis ĉiurilate pli aŭdaca ol antaŭe. Li petis, ke ˘loa permesu al li ĉion, kion li sopiris, kuŝante nuda apud li dum pli longa tempo ol pasintjare — ĉar tiu ago estis, laŭ lia nesperta scio, la sola rimedo kontraŭ amaj dolo-roj. Kiam ŝi fine demandis, kion pli li volas fari al ŝi ol kisi kaj ĉirkaŭbraki, li respondis: ”Tion, kion la virŝafoj faras al la ŝafinoj kaj la virkaproj al la kaprinoj. Vi ja vidas, ke post tiu ago la unuaj ne persekutas kaj la duaj ne fuĝas, sed ili kviete paŝtas sin unu apud la alia, kvazaŭ ili estus traspertintaj komunan ĝuon. Tiu ago nepre estas dolĉa kaj venkas la pikan doloron de la amo.” — ”Sed ĉu vi do ne vidas rilate la bestojn, ke kaj la maskloj kaj la inoj staras rekte kiam tio okazas — la maskloj ja saltas sur la dorson de la inoj. Tamen vi volas, ke mi kuŝu apud vi — kaj eĉ nuda? Ili estas multe pli hirtaj ol mi!”
 
-— Dafniso lasis snvinki; li do kiel kutime ekkuŝis apud ŝi kaj longtempe restis senmova. Sciante fari nenion el tio, kion li sopiris, li fine starigis ŝin kaj ĉirkaŭ-
-
-prenis ŝin de malantaŭe, volante imiti la virkaprojn. Sed 7
-
-DEK DU AMRAKONTOJ
+— Dafniso lasis snvinki; li do kiel kutime ekkuŝis apud ŝi kaj longtempe restis senmova. Sciante fari nenion el tio, kion li sopiris, li fine starigis ŝin kaj ĉirkaŭprenis ŝin de malantaŭe, volante imiti la virkaprojn. Sed
 
 
 lia embaraso nur kreskis, kaj li senespere sidiĝis kaj ekploris, ĉar li estis rilate amon eĉ pli nescia ol kaproj.
@@ -114,9 +101,7 @@ Proksime al ili loĝis najbaro nome ˘romiso, kiu kul-turis propran bienon; li j
 
 pretekstante iri al najbarino akuŝanta — sekvis ilin kaj de embusko vidis ĉion, kion ili faris. Eĉ ne la larmoj de Dafniso restis nerimarkataj de ŝi. Kompato al la nesperta paro kaptis ŝin; ŝi elpensis oportunan metodon por helpi ilin kaj samtempe satigi sian propran deziron, uzante la jenan ruzon.
 
-La sekvan tagon ŝi denove ŝajnigis, ke ŝi vizitos la nas-kontinon, kaj montris sin tute malkaŝe apud la kverko, kie sidis Dafniso kaj ˘loa. Lerte imitante maltrankvilan virinon, ŝi kriis: ”Ho, savu min, Dafniso! Aglo forportis la plej belan el miaj dudek anseroj. Sed levinte tiel pezan 8
-
-DEK DU AMRAKONTOJ
+La sekvan tagon ŝi denove ŝajnigis, ke ŝi vizitos la nas-kontinon, kaj montris sin tute malkaŝe apud la kverko, kie sidis Dafniso kaj ˘loa. Lerte imitante maltrankvilan virinon, ŝi kriis: ”Ho, savu min, Dafniso! Aglo forportis la plej belan el miaj dudek anseroj. Sed levinte tiel pezan
 
 
 ŝarĝon, li ne havis forton por flugi al sia alta nestoroko
@@ -125,15 +110,11 @@ DEK DU AMRAKONTOJ
 
 Tial mi je la Nimfoj kaj je Pajno petas vin: iru kun mi en la arbaron — ĉar sola mi ne kuraĝas iri — kaj helpu al mi savi la anseron. Ne permesu, ke la nombro mal-pliiĝu! Eble vi povos mortigi la aglon mem, tiel ke ĝi ne plu forrabos de vi ŝafidojn kaj kapridojn. Certe ˘loa volas gardi dume la bestojn — la kaproj ja ĉiuj konas ŝin, ĉar ŝi ĉiam estas kun vi”.
 
-Dafniso nenion suspektis; li tuj leviĝis, prenis sian bastonon kaj sekvis Licenian. ŝi kondukis lin kiel eble plej malproksimen for de ˘loa. Alveninte al la plej densa parto de la arbaro, ŝi instigis lin sidiĝi apud fonto kaj diris: ”Dafniso, vi amas ˘loan — tion mi eksciis sonĝe per la nimfoj. En la hieraŭa nokto ili rakontis al mi pri viaj larmoj kaj admonis al mi savi vin, instruante al vi la agojn de amo. Tio ne estas kisoj, nek ĉirkaŭbrakoj, nek kion faras la virŝafoj kaj virkaproj, sed estas eĉ pli dol-
-
-ĉaj kaj agrablaj saltoj kaj kliniĝoj, ĉar ili daŭras pli longe.
+Dafniso nenion suspektis; li tuj leviĝis, prenis sian bastonon kaj sekvis Licenian. ŝi kondukis lin kiel eble plej malproksimen for de ˘loa. Alveninte al la plej densa parto de la arbaro, ŝi instigis lin sidiĝi apud fonto kaj diris: ”Dafniso, vi amas ˘loan — tion mi eksciis sonĝe per la nimfoj. En la hieraŭa nokto ili rakontis al mi pri viaj larmoj kaj admonis al mi savi vin, instruante al vi la agojn de amo. Tio ne estas kisoj, nek ĉirkaŭbrakoj, nek kion faras la virŝafoj kaj virkaproj, sed estas eĉ pli dolĉaj kaj agrablaj saltoj kaj kliniĝoj, ĉar ili daŭras pli longe.
 
 Do, se vi volas liberiĝi de via doloro kaj sperti la ĝojojn kiujn vi serĉas, fariĝu mia lernema disĉiplo! ĉar mi, obe-ante al la komando de la nimfoj, volas instrui tion al vi”.
 
-Je tiuj vortoj Dafniso pro nura ĝojo ne povis deteni sin. Estante kampara paŝtisto juna kaj ardanta, li ĵetis sin ĉe la piedoj de Licenia kaj petegis, ke ŝi kiel eble plej baldaŭ instruu al li la arton. Kaj ĉar li kredis lerni iun grandan kaj diinspiritan sekreton, li promesis donaci al ŝi 9
-
-DEK DU AMRAKONTOJ
+Je tiuj vortoj Dafniso pro nura ĝojo ne povis deteni sin. Estante kampara paŝtisto juna kaj ardanta, li ĵetis sin ĉe la piedoj de Licenia kaj petegis, ke ŝi kiel eble plej baldaŭ instruu al li la arton. Kaj ĉar li kredis lerni iun grandan kaj diinspiritan sekreton, li promesis donaci al ŝi
 
 
 kapridon kaj fromaĝojn de nova lakto, fine eĉ kaprinon.
@@ -150,9 +131,7 @@ Sed kiam ˘loa kun vi luktos tiun lukton, ŝi krios kaj ploros kaj kuŝos en mul
 
 ˘loa faris vin viro!”
 
-Konsilinte tion Licenia foriris al alia parto de la arbaro, daŭre ŝajnigante serĉadi la anseron. Dafniso pense konsideris tion, kion ŝi estis dirinta, kaj ne plu sentis la antaŭan fervoron. Li ne kuraĝis postuli pli de ˘loa ol 10
-
-DEK DU AMRAKONTOJ
+Konsilinte tion Licenia foriris al alia parto de la arbaro, daŭre ŝajnigante serĉadi la anseron. Dafniso pense konsideris tion, kion ŝi estis dirinta, kaj ne plu sentis la antaŭan fervoron. Li ne kuraĝis postuli pli de ˘loa ol
 
 
 kisojn kaj ĉirkaŭbrakojn, volante ke ŝi nek kriu kiel pro malamiko, nek ploru kiel suferanto, nek sangu kiel mor-tigito. ĉar liaj spertoj antaŭ nelonge**2** igis lin timi la sangon: sango ja devenas nur de vundo. Decidinte ĝui nur la kutimajn plezurojn kun ŝi, li eliris el la arbaro. Kiam li venis al la loko kie ŝi sidis plektante violkronon, li mensoge deklaris, ke li tiris la anseron el la ungoj de la aglo. Poste li ĉirkaŭbrakis kaj kisis ŝin, kiel li faris kun Licenia en ilia ĝuado. ĉar tiom estas sendanĝere. ˘loa fiksis la kronon sur lian kapon kaj kisis liajn harojn, kiujn ŝi trovis pli bonodoraj ol violoj. Fine ŝi tiris el sia sako pecon de fruktokuko kaj kelkajn panojn, kiujn ŝi donis al li por manĝi. Dum li manĝadis la panon, ŝi el lia buŝo forprenis pecetojn, bekumante kiel birdido.
@@ -164,9 +143,6 @@ kisojn kaj ĉirkaŭbrakojn, volante ke ŝi nek kriu kiel pro malamiko, nek ploru
 *Tradukis Ebbe Vilborg*
 
 2 Piratoj atakis la regionon kaj vundis lin.
-
-
-DEK DU AMRAKONTOJ
 
 
 Virino de la vojoj
@@ -182,14 +158,9 @@ Dro˛it troviĝas ne pli ol kvindek metrojn for de la ŝoseo, kiu kondukas suden
 Dro˛it staris neokupita dum longa tempo antaŭ ol Drummond luprenis ĝin; kaj nun, post lia foriro, ŝajnas, ke ĝi staros neokupita poreterne.
 
 
-DEK DU AMRAKONTOJ
-
-
 i estas sufiĉe senvalora posedaĵo: malnova ŝtonkon-struita dometo kun griza ardeza tegmento kaj duo de fenestretoj. Al ĝi apartenas proksimume unu akreo da grundo kaj du-tri kadukaj kromkonstruaĵoj, kaj jen ĉio.
 
-Drummond havis bovinon — kvankam Dio scias, kion li faris pri la lakto — kaj duon da porkoj, kaj tie ĉirkaŭ-
-
-vagis eble dekduo da velkvostaj kokinoj. Oni facile konstatis, ke tiu homo ne scias, kion li faras, kaj ke al tia vivo li ne estis kutimiĝinta. La kamionisto, kiu transportis liajn posedaĵojn de la stacidomo en S-ta Boswells ĉe lia alveno, diris, ke la homo havas bonkvalitajn posedaĵojn
+Drummond havis bovinon — kvankam Dio scias, kion li faris pri la lakto — kaj duon da porkoj, kaj tie ĉirkaŭvagis eble dekduo da velkvostaj kokinoj. Oni facile konstatis, ke tiu homo ne scias, kion li faras, kaj ke al tia vivo li ne estis kutimiĝinta. La kamionisto, kiu transportis liajn posedaĵojn de la stacidomo en S-ta Boswells ĉe lia alveno, diris, ke la homo havas bonkvalitajn posedaĵojn
 
 — eĉ ne malmultajn: libroŝrankojn, kaj belan kverklig-nan tablon, kaj taŭgajn seĝojn kaj liton; kaj pezajn ska-tolojn da libroj, kaj valizojn kun multaj fremdaj etikedoj.
 
@@ -204,21 +175,13 @@ altan, bravaspektan virinon, efektive, sed malmodestan sentaŭgulinon. Kaj ŝi l
 ŝi venis iun tagon en la vilaĝan butikon, aplomba kiel la vivo mem, por aĉeti kelkajn aferojn, kaj ŝi asertis, ke ŝi estas sinjorino Drummond, kaj ke ŝi loĝas ĉe Dro˛it.
 
 
-DEK DU AMRAKONTOJ
-
-
 Konsterna estis tiu impertinenteco, ĉar ŝi venis en tiun saman butikon, en la vespero de la ŝtormo; almozpetan-te; kaj poste, per la tripenco, kiun ŝi ricevis de Maljuna Bonŝanca Oliver, ŝi sidis en la apuda taverno Craw kun duonlitro da biero, ekde duono post la sepa ĝis la naŭa horo, je kiu horo Georgo forpelis ŝin. Pluvegis tiam, kaj blovis vento sufiĉe forta por renversi onin, sed kiun alternativon havis Georgo? — la naŭa horo estas la naŭa horo, kaj la leĝo estas la leĝo; kaj, finfine, oni facile konstatis, ke ŝi estas nur virino de la vojoj, speco de cigano, kiu kutimiĝis al la vetero kaj similaĵo. Tamen Georgo estas bonkora junulo, kaj li donis al ŝi buterpanon kun fromaĝo, kaj sespencon, kaj montris al ŝi la ĝustan vojon.
 
 Kaj jen ŝi estis, post kelkaj tagoj, loĝanta ĉe Dro˛it, kaj impertinente diranta, ke ŝi estas la edzino de tiu homo.
 
 Kompreneble, loĝante tie, ŝi ne povis fari alie, ĉar ĉiu bone scias, ke en la dometo troviĝas nur unu ĉambro, kiu estas kuirejo kaj litoĉambro kaj ĉio kune.
 
-Estis facile konstati, kio estis okazinta: ŝi forlasis la tavernon de Georgo Craw je la naŭa, kaj ekiris laŭ la edinburga ŝoseo. ŝi certe vidis la lumon de la dometo, kiam ŝi proksimiĝis al Dro˛it, kaj aliris por almozpeti, kaj la homo akceptis ŝin en la domon. Sendube la junulo estis sufiĉe soleca, kaj ŝin ĝojigis la ŝirmado — tia virino ne havus skrupulojn iri al fremdulo por ricevi liton en tia nokto. Sed Drummond estus devinta forsendi ŝin fru-14
-
-DEK DU AMRAKONTOJ
-
-
-matene, antaŭ ol oni ion rimarkus. Tio ne estus estinta tiel malbona; sed restadi tie, kaj veni inter decajn altmo-ralajn homojn kun tia galimatia preteksto, estis senhonte; kaj kulpis li same tiel, kiel ŝi.
+Estis facile konstati, kio estis okazinta: ŝi forlasis la tavernon de Georgo Craw je la naŭa, kaj ekiris laŭ la edinburga ŝoseo. ŝi certe vidis la lumon de la dometo, kiam ŝi proksimiĝis al Dro˛it, kaj aliris por almozpeti, kaj la homo akceptis ŝin en la domon. Sendube la junulo estis sufiĉe soleca, kaj ŝin ĝojigis la ŝirmado — tia virino ne havus skrupulojn iri al fremdulo por ricevi liton en tia nokto. Sed Drummond estus devinta forsendi ŝin frumatene, antaŭ ol oni ion rimarkus. Tio ne estus estinta tiel malbona; sed restadi tie, kaj veni inter decajn altmo-ralajn homojn kun tia galimatia preteksto, estis senhonte; kaj kulpis li same tiel, kiel ŝi.
 
 Kiel ili sin aranĝis en tiu unua nokto, aŭ kio precize okazis, neniu povis scii, kompreneble, sed ĉiu povis di-veni. Kaj vere, ŝi estis bravaspekta virino …
 
@@ -227,9 +190,6 @@ Sed jen la vero, kaj jen estas kiel ĝi efektiviĝis: Ekstere la ŝtormo blovadi
 La fera kaldrono, pendigita super la flamoj, komencis boli kaj kraĉi. Jim Drummond flankentiris ĝin kaj puŝis pli proksimen al la fajro la kuvegon plenan de akvo. De sub la lito li tiris longan stanan bankuvon.
 
 Bolvarman banon kun mustardo li nepre bezonis post sia pli frua malsekiĝo pro eliro por prizorgi la kokinojn kaj la du porkojn. La lakto ricevita de la bovino staris en blanka emajlita sitelo apud unu el la du fenestroj. Li intencis trinki litron da ĝi, varman, antaŭ la enlitiĝo, mik-sitan kun iom da viskio; la restaĵon ricevos morgaŭ la porkoj kiam Judi estos havinta sian porcion. Judi kuŝis sur la tapiŝo antaŭ la fajro.
-
-
-DEK DU AMRAKONTOJ
 
 
 ”Diabla nokto, Judi,” li diris, ”kaj Dio gardu ĉiujn kompatindulojn, kiuj troviĝas ekstere en ĝi.”
@@ -252,9 +212,7 @@ La viro ĉirkaŭrigardis kaj aŭskultis. ŝajnis al li, ke tra la bruo de la ŝt
 
 Voĉo ŝajnis respondi, sed pro la hundino kaj la bruo de pluvo kaj vento la viro povis malmulte aŭdi. Li turnis la ŝlosilegon en la seruro kaj tiris la riglilon. La vento puŝegis malfermita la pordon, kaj pluvo enbloviĝis.
 
-Sur la ŝojlo staris virino — virino tramalseka kaj de la vento batvenkita. ŝi levis la vizaĝon kaj palpebrumis pro 16
-
-DEK DU AMRAKONTOJ
+Sur la ŝojlo staris virino — virino tramalseka kaj de la vento batvenkita. ŝi levis la vizaĝon kaj palpebrumis pro
 
 
 la lumo, dum la akvo verŝiĝis malsupren de la rando de ŝia ĉapelo kaj ŝiaj nigraj haroj malseke ĉirkaublovis ŝiajn okulojn.
@@ -273,9 +231,7 @@ Drummond alportis glason duonplenan de viskio. Li plenigis ĝin per bolanta akvo
 
 ŝi glutetis iom de la viskio kun akvo kaj poste redonis al li la glason; sed li devigis ŝin repreni ĝin kaj trinki pli ol la duonon.
 
-Vaporo komencis leviĝi de la malsekaj vestaĵoj. La viro diris, ke ŝi demetu ilin. ŝi rifuzis; sed dum ili disputis, li povis konstati, ke ne la modesto malemigas ŝin, sed io alia. Finfine ŝi ekmoviĝis, kiam li diris al ŝi, ke ŝi ne povas sidi en malsekaj vestaĵoj la tutan nokton, aŭ se ŝi tion 17
-
-DEK DU AMRAKONTOJ
+Vaporo komencis leviĝi de la malsekaj vestaĵoj. La viro diris, ke ŝi demetu ilin. ŝi rifuzis; sed dum ili disputis, li povis konstati, ke ne la modesto malemigas ŝin, sed io alia. Finfine ŝi ekmoviĝis, kiam li diris al ŝi, ke ŝi ne povas sidi en malsekaj vestaĵoj la tutan nokton, aŭ se ŝi tion
 
 
 faros, li havos la zorgojn kaj elspezojn de ŝia entombigo.
@@ -296,12 +252,7 @@ Li donis al ŝi viŝtukon, kaj sekigis la supran duonon de la korpo. Poste ŝi s
 
 ”ĉu jes? ĉu mi devas?” ŝi demandis, kompatinde.
 
-Li komprenis ŝin. Li fingromontris al la ankoraŭ levi-
-
-ĝanta vaporo, kaj insistis:
-
-
-DEK DU AMRAKONTOJ
+Li komprenis ŝin. Li fingromontris al la ankoraŭ leviĝanta vaporo, kaj insistis:
 
 
 ”Kompreneble. Vi devas.”
@@ -314,17 +265,13 @@ La viro karesis ŝian ŝultron. Ne sciante, kion diri li metis la viŝtukon sur 
 
 Li denove altiris la bankuvon, kaj plenigis ĝin el la kaldrono kaj la kuvego; poste li malvarmetigis ĝin per malvarma akvo el sitelo. Li malplenigis mustardpakaĵon en la bankuvon, kaj kirlis la akvon per la mano.
 
-”Eniru,” li petegis, sed la virino daŭre ploris mallaŭ-
-
-te en siajn kurbitajn manojn.
+”Eniru,” li petegis, sed la virino daŭre ploris mallaŭte en siajn kurbitajn manojn.
 
 La viro rigardis ŝin, poste falis sur siajn genuojn. Li prenis la viŝtukon kaj frotsekigis ŝiajn femurojn. ŝi permesis tion, klinante sin malantaŭen, sed ankoraŭ kov-rante siajn okulojn.
 
 Milde li derulis kaj formetis ŝiajn ŝiritajn kaj kotma-kulitajn ŝtrumpojn. ŝiaj piedoj, kiuj iam estis belaj, estis kontuzitaj kaj gratvunditaj kaj ruĝaj. Fadeneto de sango fluis de longa grataĵo sur ŝia piedosupro.
 
-Li levis ŝiajn piedojn, alpuŝis la bankuvon, kaj metis ŝiajn piedojn en la akvon. Li lavis ŝiajn krurojn; kaj kiam tio estis farita, li stariĝis, kaj levis ŝin per unu movo de 19
-
-DEK DU AMRAKONTOJ
+Li levis ŝiajn piedojn, alpuŝis la bankuvon, kaj metis ŝiajn piedojn en la akvon. Li lavis ŝiajn krurojn; kaj kiam tio estis farita, li stariĝis, kaj levis ŝin per unu movo de
 
 
 sur la seĝo kaj mallevis ŝin kuntiriĝintan en la bankuvon.
@@ -335,14 +282,9 @@ Poste li diris, ke ŝi ekstaru kaj helpis ŝin leviĝi. ŝi staris en la bankuvo
 
 Li formetis la kusenon, kiun ŝia korpo estis makulin-ta kaj malsekiginta, metante alian sur ĝian lokon. Li devigis ŝin sidiĝi kun la piedoj ankoraŭ en la akvo; poste li levis unu post unu la piedojn kaj milde sekigis ilin, atentante pri la kontuzoj kaj vundetoj. Li stariĝis, kaj formetis la bankuvon.
 
-Pro ĉio ŝi dankis lin, sed li nur gruntis, kaj ŝi scivolis, ĉu li estas kolera. ŝi sentis sin kvazaŭ infaneto; kaj, kiel infano, duone timis, ĝis li revenis kaj, ridetante al ŝi, proponis sian piĵamon. ŝi rifuzis ĝin, dirante, ke ŝi jam kaŭ-
-
-zis sufiĉe da ĝenoj, kaj ke li mem bezonos ĝin. ŝi asertis, ke ŝi sentas sin mirinde varma, kaj, ĉar li jam vidis ŝin, ankoraŭ rigardas ŝin, eĉ banis kaj viŝis ŝin, ne multe gravas.
+Pro ĉio ŝi dankis lin, sed li nur gruntis, kaj ŝi scivolis, ĉu li estas kolera. ŝi sentis sin kvazaŭ infaneto; kaj, kiel infano, duone timis, ĝis li revenis kaj, ridetante al ŝi, proponis sian piĵamon. ŝi rifuzis ĝin, dirante, ke ŝi jam kaŭzis sufiĉe da ĝenoj, kaj ke li mem bezonos ĝin. ŝi asertis, ke ŝi sentas sin mirinde varma, kaj, ĉar li jam vidis ŝin, ankoraŭ rigardas ŝin, eĉ banis kaj viŝis ŝin, ne multe gravas.
 
 Li faligis apud ŝin la piĵamon sen plua diskuto, kaj for-moviĝis por pretigi la vespermanĝon. Li plenigis per lakto kuirpoteton. Kiam li revenis por meti ĝin sur la fajron, ŝi ankoraŭ estis nuda, kaj karesis la hundinon.
-
-
-DEK DU AMRAKONTOJ
 
 
 ”Kiel ŝi nomiĝas?” ŝi demandis.
@@ -372,9 +314,6 @@ Li alportis broson kaj kombilon, kaj donis al ŝi spegulon. ŝi danke ridetis.
 ie,” li diris, kaj ekserĉis en tirkesto.
 
 
-DEK DU AMRAKONTOJ
-
-
 Li alportis la pudron kaj ankaŭ pecon da vato, klari-gante, ke tio estas lia plejeblo tiurilate.
 
 ĉio ŝajnis al ŝi mirinda, kaj ŝi tion diris. ŝi suspiris, kaj li rigardis ŝin, sed diris nenion. ŝi scivolis, kiel tio finiĝos, kaj kio okazos matene.
@@ -401,9 +340,7 @@ Post kelkaj minutoj li kuŝiĝis apud la virino. Li lasis inter ili iom da spaco
 
 Ekstere la ŝtormo daŭre muĝis.
 
-Dumlonge ili kuŝis senmovaj. Poste ŝi ekmoviĝis kaj, senintence, ŝiaj piedoj ektuŝis liajn. Subite li sentis ŝian manon serĉanta lian. Li ekkaptis ĝin, kaj turnis sin al ŝi, 22
-
-DEK DU AMRAKONTOJ
+Dumlonge ili kuŝis senmovaj. Poste ŝi ekmoviĝis kaj, senintence, ŝiaj piedoj ektuŝis liajn. Subite li sentis ŝian manon serĉanta lian. Li ekkaptis ĝin, kaj turnis sin al ŝi,
 
 
 kaj rimarkis en ŝiaj okuloj glimbrilajn larmojn; kaj tute subite ŝi jetis sin al li, kaj ŝi plorsingultis kvazaŭ rompiĝus ŝia koro: kaj ankaŭ li preskaŭ eklarmis, kaj liaj brakoj ĉirkaŭvolvis ŝin — tenante ŝin, kvazaŭ li neniam ŝin maltenos.
@@ -421,9 +358,6 @@ Mia Maria, virino, edzino, pro kio vi forlasis min? Kaj kie vi estadis?”
 *Tradukis William Auld*
 
 
-DEK DU AMRAKONTOJ
-
-
 La mastrino
 
 Mi loĝis tiam, — diris Georges Kervelen, — en meblita luloĝejo en la strato de la Sanktaj Patroj.
@@ -439,9 +373,6 @@ Iuj najbaroj, de kiuj oni petis konsilon, indikis sam-regionaninon, s-inon Kerga
 S-ino Kergaran estis ĉirkaŭ kvardekjara. ŝi estis dika, tre dika, parolis per voĉo de instruktora kapitano kaj decidis pri ĉiuj demandoj per vorto neta kaj definitiva.
 
 
-DEK DU AMRAKONTOJ
-
-
 ŝia domo, tre mallarĝa, havanta nur unu aperturon al la strato ĉiuetaĝe, aspektis kiel ŝtuparo de fenestroj, aŭ kiel tranĉaĵo de domo sandviĉe inter du aliaj.
 
 La mastrino loĝis en la unua etaĝo kun sia servistino; oni kuiris kaj havis la manĝojn en la dua; kvar bretonaj pensionuloj loĝis en la tria kaj en la kvara. Mi havis la du ĉambrojn de la kvina.
@@ -452,9 +383,7 @@ Mi baldaŭ konatiĝis kun miaj kvar samregionanoj. Du el ili studis medicinon, k
 
 Koncerne min, mi tuj spertis dezirojn de sendepende-co, ĉar mi estas laŭnature ribelulo. Mi unue deklaris, ke mi volas hejmenveni je la horo elektita de mi, ĉar sinjorino Kergaran estis difininta la dekduan horon, kiel la lastan limon. Pro tiu pretendo ŝi fiksis al mi siajn klarajn okulojn dum kelkaj sekundoj kaj poste deklaris:
 
-”Tio ne estas ebla. Mi ne povas toleri, ke oni vekas 25
-
-DEK DU AMRAKONTOJ
+”Tio ne estas ebla. Mi ne povas toleri, ke oni vekas
 
 
 Anjon la tutan nokton. Vi havas nenion por fari ekstere post certa horo.”
@@ -471,18 +400,14 @@ Ni fariĝis geamikoj.
 
 Sed jen mi konatiĝis, sur trotuaro, kun knabino la-boranta en vendejo.
 
-Vi scias, kio estas tiuj ametoj de Parizo. Iam, irante al la lernejo, oni renkontas junan personon nudkapan, kiu promenas brakenbrake kun amikino, antaŭ ol reiri al la 26
-
-DEK DU AMRAKONTOJ
+Vi scias, kio estas tiuj ametoj de Parizo. Iam, irante al la lernejo, oni renkontas junan personon nudkapan, kiu promenas brakenbrake kun amikino, antaŭ ol reiri al la
 
 
 laboro. Oni interŝanĝas rigardojn, oni sentas en si tiun etan skuon, kiun donas la okulo de iuj virinoj. Tio estas unu el la ĉarmoj de la vivo, tiuj rapidaj simpatioj fizikaj, kiujn naskas renkontiĝo, tiu leĝera kaj delikata logo, kiun oni subite spertas ĉe la ektuŝo de homo naskiĝinta por plaĉi al vi kaj por esti amata de vi. ŝi estos amata multe aŭ malmulte, ne gravas. Estas en ŝia naturo respondi al la sekreta amdeziro de via naturo. Jam kiam vi unuafoje ekvidas tiun vizaĝon, tiun buŝon, tiujn harojn, tiun rideton, vi sentas iliajn ĉarmojn eniri en vin kun dolĉa kaj delica ĝojo, vi sentas specon de feliĉa bonsta-to penetri en vin, kaj la subitan naskiĝon de tenereco ankoraŭ konfuza, kiu pelas vin al tiu nekonata virino. Estas, kvazaŭ estus en ŝi alvoko, al kiu vi respondas, allogo, kiu stimulas vin; kvazaŭ oni jam delonge konus ŝin, kvazaŭ oni jam estus vidinta ŝin, kvazaŭ oni scius, kion ŝi pensas.
 
 La morgaŭan tagon je la sama horo, oni pasas tra la sama strato. Oni revidas ŝin. Kaj oni revenas la postan tagon, kaj ankoraŭ la postan tagon. Oni fine interparo-las. Kaj la ameto plu evoluas, regula kiel malsano.
 
-Do, post tri semajnoj, mi atingis kun Emma la peri-odon antaŭ la falo. La falo mem estus okazinta pli frue, se mi estus sciinta, en kiu loko provoki ĝin. Mia amikino vivis en familio kaj draste rifuzis trapasi la sojlon de meblita hotelo. Mi cerbumis por trovi rimedon, ruzaĵon, okazon. Finfine mi elektis senesperan solvon kaj decidis 27
-
-DEK DU AMRAKONTOJ
+Do, post tri semajnoj, mi atingis kun Emma la peri-odon antaŭ la falo. La falo mem estus okazinta pli frue, se mi estus sciinta, en kiu loko provoki ĝin. Mia amikino vivis en familio kaj draste rifuzis trapasi la sojlon de meblita hotelo. Mi cerbumis por trovi rimedon, ruzaĵon, okazon. Finfine mi elektis senesperan solvon kaj decidis
 
 
 suprenirigi ŝin al mia loĝejo, iun vesperon, ĉirkaŭ la dek-unua, je preteksto de taso da teo. S-ino Kergaran enlitiĝis ĉiutage je la deka. Mi povus do hejmeniri senbrue dank’al mia ĉefŝlosilo, vekante nenies atenton. Ni sam-maniere remalsuprenirus post unu aŭ du horoj.
@@ -501,9 +426,7 @@ Mi diris al Emma du aŭ trifoje: ”Atentu, ne faru bruon en la ŝtuparo!”
 
 ”Ne, sed mi ne volas veki mian najbaron, kiu estas grave malsana.”
 
-Jen la strato de la Sanktaj Patroj. Mi alproksimiĝas al mia loĝejo kun tiu antaŭtimo, kiun oni havas irante al dentisto. ĉiuj fenestroj estas mallumaj. Oni sendube 28
-
-DEK DU AMRAKONTOJ
+Jen la strato de la Sanktaj Patroj. Mi alproksimiĝas al mia loĝejo kun tiu antaŭtimo, kiun oni havas irante al dentisto. ĉiuj fenestroj estas mallumaj. Oni sendube
 
 
 dormas. Mi spiras. Mi malfermas la pordon kun singar-demo de ŝtelisto. Mi enirigas mian kunulinon, kaj poste mi refermas, kaj mi supreniras la ŝtuparon piedpinte evitante spiri kaj ekbruligante kandel-alumetojn, por ke la junulino ne faru iun mispaŝon.
@@ -519,9 +442,6 @@ Mi faris salton malproksimen de ŝi kaj mi staris, kon-sternite rigardanta al am
 La mastrino prononcis per aroganta tono, kiun mi ne konis de ŝi: ”Mi ne volas knabinojn en mia domo, sinjoro Kervelen.”
 
 
-DEK DU AMRAKONTOJ
-
-
 Mi balbutis: ”Sed, sinjorino Kergaran, la fraŭlino estas nur mia amikino. ŝi venis preni tason da teo.”
 
 La dika virino pluparolis: ”Oni ne surhavas nuran ĉemizon por preni tason da teo. Vi tuj foririgos tiun personon.”
@@ -532,9 +452,7 @@ Mi, certe, ne povis fari ion alian, kaj mi levis la robon falintan ronde, kvaza�
 
 Emma rapidigis nun siajn movojn, freneze kovris sin, nodis, alpinglis, laĉis, religis kun furiozo, turmentata per urĝa bezono forkuri; kaj eĉ ne butoninte siajn botetojn, ŝi kuris preter la mastrino kaj pelis sin en la ŝtuparon. Mi sekvis ŝin kun pantofloj, mem duone senvestiĝinta, kaj ripetis: ”Fraŭlino, aŭskultu, fraŭlino.”
 
-Mi ja konsciis, ke necesis diri ion al ŝi, sed mi nenion trovis. Mi reatingis ŝin precize ĉe la pordo de la strato, kaj mi volis preni ŝian brakon, sed ŝi fortege forpuŝis 30
-
-DEK DU AMRAKONTOJ
+Mi ja konsciis, ke necesis diri ion al ŝi, sed mi nenion trovis. Mi reatingis ŝin precize ĉe la pordo de la strato, kaj mi volis preni ŝian brakon, sed ŝi fortege forpuŝis
 
 
 min, balbutante per voĉo mallaŭta kaj nervoza: ”Lasu min … lasu min, ne tuŝu min.”
@@ -559,9 +477,7 @@ Mi scias …”
 
 ŝi parolis almenaŭ dum dudek minutoj, akumulante la kialojn sur la indignojn, superŝutante min sub la ho-norindeco de sia domo, pikvundante min per akraj riproĉoj.
 
-Mi (homo estas stranga animalo), anstataŭ aŭskulti 31
-
-DEK DU AMRAKONTOJ
+Mi (homo estas stranga animalo), anstataŭ aŭskulti
 
 
 ŝin, rigardis ŝin. Mi ne plu aŭdis eĉ unu vorton, vere neniun vorton. ŝi havis belegan bruston, tiu ino, firman, blankan kaj grasan, eble iom dikan, sed allogantan, ka-pablan kaŭzi tremojn en la dorso. Mi vere neniam estis suspektinta, ke estas tiaj aĵoj sub la lana robo de la mastrino. ŝi aspektis dek jarojn pli juna, en la negliĝo. Kaj jen mi sentis min tute strange, tute … Kiel mi povus diri?
@@ -580,26 +496,17 @@ Tiu ĉi ebriigis min, de malproksime, kurigis tremetojn sur mia haŭto.
 
 Mi balbutis: ”Nu …nu … sinjorino Kergaran … nu …”
 
-Kaj ĉar ŝi nun silentis por atendi mian respondon, mi ekkaptis ŝin en miaj du brakoj kaj mi komencis kisi ŝin, ja kisi ŝin, kiel malsatanto, kiel homo, kiu atendas tion delonge. ŝi baraktis, turnis la kapon, ne tro forte koleran-32
-
-DEK DU AMRAKONTOJ
-
-
-te, aŭtomate ripetante, laŭ sia kutimo: ”Ho! Kanajlo …
+Kaj ĉar ŝi nun silentis por atendi mian respondon, mi ekkaptis ŝin en miaj du brakoj kaj mi komencis kisi ŝin, ja kisi ŝin, kiel malsatanto, kiel homo, kiu atendas tion delonge. ŝi baraktis, turnis la kapon, ne tro forte kolerante, aŭtomate ripetante, laŭ sia kutimo: ”Ho! Kanajlo …
 
 kanajlo … ka …”
 
 ŝi ne povis fini la vorton, mi ekprenis ŝin per forto-streĉo kaj forportis ŝin, prematan kontraŭ mi. Oni ja estas fortika en iuj okazoj! Mi atingis la litrandon, kaj mi falis sur ĝin ne maltenante ŝin … Estis efektive tre plaĉe kaj tre varme en ŝia lito.
 
-Unu horon poste, ĉar la kandelo estingiĝis, la mastrino ellitiĝis por ekbruligi alian. Kaj dum ŝi revenis en-
-
-ŝoviĝi al mia flanko, enigante sub la littukojn sian rondan kaj fortan gambon, ŝi eldiris per voĉo karesa, kontenta, eble dankema: ”Ho! … kanajlo … kanajlo! …”
+Unu horon poste, ĉar la kandelo estingiĝis, la mastrino ellitiĝis por ekbruligi alian. Kaj dum ŝi revenis enŝoviĝi al mia flanko, enigante sub la littukojn sian rondan kaj fortan gambon, ŝi eldiris per voĉo karesa, kontenta, eble dankema: ”Ho! … kanajlo … kanajlo! …”
 
 **Guy de Maupassant**
 
-* Daniel Luez* 33
-
-DEK DU AMRAKONTOJ
+* Daniel Luez*
 
 
 Ebrivirgeco
@@ -609,9 +516,6 @@ Fraŭlino Emilio Krip, tridekkvinjara instruistino, glutis la lastajn gutojn el 
 En la speguleto fraŭlino Krip vidis musbrunan hararon, mildajn bluajn okulojn malantaŭ okulvitroj, paletan rondan vizaĝon. ŝi senbriligis sian simpatian mallongan nazon kaj larĝan frunton per pudro, uzis sian tre palan lipfarbon, tiris kombileton tra la musbrunan hararon...
 
 Fraŭlino Krip reiris al la kolegio, kie okazis somera kurso pri la franca lingvo kaj kulturo. Proksimume du-cent geinstruistoj el pluraj landoj troviĝis tie. La kultura kurso estis bonega; fraŭlino Krip jam poŝtkartis kelkajn amikinojn tre entuziasme. Veraj kleruloj, veraj spertuloj, vizitantaj prelegantoj, filmoj, teatraĵoj, ekzpo-zicio; kaj oni havis iom da libera tempo por butikumi, aŭ por manĝi en restoracioj de si mem elektitaj. Fraŭlino Krip elektis la plej malmultekostajn restoraciojn, por ke, je la fino de sia tre profesia ferio, ŝi povu aĉeti kelkajn kulturajn librojn, eble kelkajn diskojn, kiuj stimulos intereson ĉe ŝiaj klasaninoj.
-
-
-DEK DU AMRAKONTOJ
 
 
 Oni jam reamasiĝis en la halo. Fraŭlino Krip ĉirkaŭrigardis. Kiun ŝi serĉis, aŭ kion? ŝi mem ne sciis. ĉio estis ja en perfekta ordo: kompetentaj aranĝoj, altkulturaj prelegoj.
@@ -626,9 +530,7 @@ Helpema, entuziasmoplena junulo vigle tiris ŝnuron, kiu bruege fermis la fenest
 
 Neniu ajn povis vidi fraŭlinon Krip. ŝi sidis kviete en la mallumo; la mallumo plikvietigis ŝin, malstreĉis la vizaĝmuskolojn; ŝiaj moviĝemaj manoj kuŝis sur la sino.
 
-Madonino kun aŭreolo kaj kun grasa bebo aperis sur la ekrano. Vivimagoj sekvis unu la alian: vitoj, rozoj, altaj lilioj, palmarboj; salikoj; kasteloj, preĝejoj, elegante gir-landitaj krucoj, elegante vestitaj gesinjoroj, simietoj, 35
-
-DEK DU AMRAKONTOJ
+Madonino kun aŭreolo kaj kun grasa bebo aperis sur la ekrano. Vivimagoj sekvis unu la alian: vitoj, rozoj, altaj lilioj, palmarboj; salikoj; kasteloj, preĝejoj, elegante gir-landitaj krucoj, elegante vestitaj gesinjoroj, simietoj,
 
 
 katoj, longaj serpentoj, kiuj per fluantaj korpoj helpeme konstruis ĉefliterojn, anĝeloj kun libroj, harpoj, liutoj, glorkronoj.
@@ -645,12 +547,7 @@ Absurda penso invadis ŝian menson kaj tre hontigis ŝin: se, en tiu ĉi mallumo
 
 Je la fino de la prelego, fraŭlino Krip rapide purigis sian mallongan nazon kaj ĉirkaŭrigardis por certiĝi, ke neniu ajn rimarkis ŝian strangan konduton, ĉar la sub-konscia menso volis enketi, ĉu iu rimarkis ŝin. Dum la kvinminuta paŭzo ŝi sukcesis bone repudri la vangojn.
 
-Eta koncerto de franca muziko sekvis; kaj plurfoje fraŭlino Krip denove ĉirkaŭrigardis kun sia perdita mie-no. Kiam, post la koncerto, ĉiuj ekforiris por libera ves-36
-
-DEK DU AMRAKONTOJ
-
-
-pero, la entuziasma juna instruisto, la fuŝinto pri la fenestroj, turnis sin tro subite por alparoli kamaradon, kaj renversis seĝon.
+Eta koncerto de franca muziko sekvis; kaj plurfoje fraŭlino Krip denove ĉirkaŭrigardis kun sia perdita mie-no. Kiam, post la koncerto, ĉiuj ekforiris por libera vespero, la entuziasma juna instruisto, la fuŝinto pri la fenestroj, turnis sin tro subite por alparoli kamaradon, kaj renversis seĝon.
 
 Fraŭlino Krip pensis, konscie: ”Estus pli bone havi nur virinojn en tiuj ĉi kulturaj kursoj.”
 
@@ -664,16 +561,12 @@ Fraŭlino Emilio Krip estis kompetenta homo, tre disciplinita kaj diciplinema.
 
 ”Nu, do, sidiĝu!” ŝi diris severe al si mem. ”Kaj diru al mi; kio ĝenas vin!” ŝi sidiĝis sur alea benko, kaj konscie malstreĉiĝis.
 
-”Nu, Krip, idioto, kion vi havas? Estas bela tago. La kurso estas bonega; ĉio estas laŭ la prospekto; vi havas ĉion, kion vi deziras. ĉu ne?” Du novaj larmoj fluis sur ŝiaj vangoj; ŝi kolerete skuis la kapon kvazaŭ la larmoj estus vespoj. ”Vidu la sunbrilon! ĉu iu malafablis kontraŭ vi? ĉu vi ne havas sufiĉan monon por viaj raciaj be-zonoj?... ĉu eble tiu epizodo de la mallumigado agacis 37
-
-DEK DU AMRAKONTOJ
+”Nu, Krip, idioto, kion vi havas? Estas bela tago. La kurso estas bonega; ĉio estas laŭ la prospekto; vi havas ĉion, kion vi deziras. ĉu ne?” Du novaj larmoj fluis sur ŝiaj vangoj; ŝi kolerete skuis la kapon kvazaŭ la larmoj estus vespoj. ”Vidu la sunbrilon! ĉu iu malafablis kontraŭ vi? ĉu vi ne havas sufiĉan monon por viaj raciaj be-zonoj?... ĉu eble tiu epizodo de la mallumigado agacis
 
 
 vin?... Sed estu pli proporciema! Vi neniel respondecis pri la aranĝoj! Kuntiru vin, Krip; viaj nervoj estas en malbona ordo! Hodiaŭ vi aŭdis du bonegajn prelegojn, ĉeestis du bonegajn lecionojn, lernis novajn vortojn, vidis b-belegajn bildojn, aŭdis belan muzikon. ĉio laŭ la prospekto; do, kial vi plendas? Idiotino!”
 
-Kaj, eligante tiujn ĉi tre saĝajn, decajn vortojn, fraŭ-
-
-lino Krip komencis spasme plori.
+Kaj, eligante tiujn ĉi tre saĝajn, decajn vortojn, fraŭlino Krip komencis spasme plori.
 
 Tamen, ĉar ŝi estis tre disciplinita kaj disciplinema virino, ŝi rapide ekregis sin denove.
 
@@ -684,9 +577,6 @@ Ne. Mi rezervu ĝin, ĝis mi pli bezonos ĝin. Oni ne alku-timiĝu al ili.”
 Fraŭlino Krip, sentante duonkaŝitan inklinon gratuli sin mem pro sia realisma, konstruema sinteno, repudris la vizaĝon, formarŝis, kaj decideme elektis restoracion, kie sin anoncis altnivela turistmenuo kontraŭ 1200 frankoj. Terure kosta, ŝi pensis; sed oni devas scii kiel kaj fasti kaj festi. ŝi eksidis.
 
 Kiam la kelnerino alportis kaj malfermis duonbotelon da blanka vino, fraŭlino Krip kredis, ke estas ia eraro.
-
-
-DEK DU AMRAKONTOJ
 
 
 Rerigardante la menuon, ŝi konstatis, ke duonbotelo da vino estas inkluzivita.
@@ -704,16 +594,11 @@ Se mi estas tiel stulte malgaja, fraŭlino Krip pensis, eble unu glaso da vino, 
 Mi neniam promesis ion pri tio al Paĉjo. Nur pri viroj kaj lascivigaj parfumoj.
 
 
-DEK DU AMRAKONTOJ
-
-
 Iom heziteme, fraŭlino Krip elverŝis glaseton da blanka vino. ŝi timeme gustumis ĝin. Kiel ĝi gustas? Medika-mente... iomete kiel ipekakuano; sed ne; malpli amare, pli — pli parfume... (ŝi glutis denove)... iel frukte, iel vin-berece... kaj pli parfume post la malapero; strange, tre strange, ke io gustas pli bone, jam malaperinte. Nekutima varmeto dorlotis ŝian stomakon.
 
 La kelnerino alportis bonodoran kokidaĵon kun lego-moj. Fraŭlino Krip malplenigis sian glason, servis sin kaj manĝis kun bona apetito. Scienca scivolemo distris ŝin de la stranga larmemo. Jes; ŝi fartis pli bone; la nervokri-zeto ŝajne estis for.
 
-ŝi etendis la manon al la karafo, ĉar ŝi soifis; sed la mano kvazaŭ akcidente trafis la vinbotelon kaj, distri-
-
-ĝeme, ŝi elverŝis duan glasoplenon.
+ŝi etendis la manon al la karafo, ĉar ŝi soifis; sed la mano kvazaŭ akcidente trafis la vinbotelon kaj, distriĝeme, ŝi elverŝis duan glasoplenon.
 
 Konsciante pri sia eraro, ŝi ruĝiĝis.
 
@@ -721,9 +606,7 @@ Mi ne lasos la plenan glason sur la tablo, ŝi pensis; tio aspektus stulte, stra
 
 Post la dua glaso, la sinteno de fraŭlino Krip iom ŝanĝiĝis jam. ŝi defie ekrigardis la botelon.
 
-”Mi estas plenaĝa, plenrajta virino!” ŝi diris, aŭdeble sed ne laŭte. ”Kaj se mi volas trinki vinon, por kiu mi ja pagos, jes, per mia propra mono honeste gajnita, mi 40
-
-DEK DU AMRAKONTOJ
+”Mi estas plenaĝa, plenrajta virino!” ŝi diris, aŭdeble sed ne laŭte. ”Kaj se mi volas trinki vinon, por kiu mi ja pagos, jes, per mia propra mono honeste gajnita, mi
 
 
 rajtas trinki ĝin. Kaj mi rajtas konsumi kokritaĵon, kokidaĵon, jes. Mi ne estas nun en stabĉambro.”
@@ -747,9 +630,6 @@ Fraŭlino Krip sentis zumadon en la kapo kaj nekom-preneblan kaŭĉukecon ĉe la
 La agrable malvarmeta vespera aero vangofrapis ŝin senkompate. Surprizite, ŝi ŝanceliĝis.
 
 
-DEK DU AMRAKONTOJ
-
-
 ”Mi faros promenon!” ŝi diris.
 
 Post kelkaj paŝoj, ŝi diris: ”Ne! mi iros tuj al mia hotelo, kaj dormos!”
@@ -765,9 +645,6 @@ Kiam la meblaro iom malpli draste kirliĝis, fraŭlino Krip trovis la piĵamon k
 Eĉ fari ĉion malrapide ne sufiĉis. Samtempe teni la pantalonon en taŭga pozicio kaj enmeti la piedojn estis neeble. Sed absolute neeble, ŝi konkludis, post tria eksido sur la planko. ŝi lasis la pantalonon sur la planko kaj tiris sin sur la liton, kie ŝi sidadis kun pendantaj kruroj.
 
 
-DEK DU AMRAKONTOJ
-
-
 ”Emilio Krip,” ŝi diris severe,”vi nepre nestas bria.
 
 Ebria con brio. ĉu vi povus nun doni lecionon? Aŭ leci-onduonon aŭ leciontrionon? — Nu, mi provu. Ho, mia nuzo estas ja iom raĝa. Sed mi provu. ĉu mi kapablas oratori nun... oratori kiel orbuŝa orakaroto, ne, orakolo?”
@@ -778,9 +655,7 @@ Ebria con brio. ĉu vi povus nun doni lecionon? Aŭ leci-onduonon aŭ leciontrio
 
 Mia nomo estas virina nomo, Emilio, do, mi bezonas amon. ĉiu ino benzinas vinon; vidu, mi trinkis duonbotelon da blanka vino, kaj nun mi scias, ke mi rajtas fari ion ajn. Amo estas inter la elementaj homaj rajtoj; demandu al UNESKO. i devus esti en la ĉarto de la Unuiĝintaj Nacioj. Kiel oni unuiĝu sen amo? Al ĉiu bona damo, porcio da bona amo: jen mia nova proverbo. Kaj mia nomo estas Emilio, kaj rozo samvaloras kiel lilio; jen alia. Rozoj: jes, nun mia nozo estas kvazaŭ ruĝa rozo, ne, mia nazo estas kvazaŭ ruĝa raso.”
 
-Fraŭlino Krip gestis per larĝaj, malstreĉaj, memfidaj gestoj, dum ŝi oratoris. La ronda vizaĝo estis ruĝeta kaj 43
-
-DEK DU AMRAKONTOJ
+Fraŭlino Krip gestis per larĝaj, malstreĉaj, memfidaj gestoj, dum ŝi oratoris. La ronda vizaĝo estis ruĝeta kaj
 
 
 ŝi iom ŝvitis; la okuloj brilis malsekete. Nedifina bonfar-tosento travarmigis la senpantalonan torson.
@@ -791,12 +666,7 @@ DEK DU AMRAKONTOJ
 
 ”Hej...” ŝi diris pli heziteme, ”mi... estas... feliĉa. Nenio ajn tre gravas. Finfine, jen, mi estas mi kaj jen, mi havas kelkajn rajtojn. Kelkajn ele-elementajn homajn rajtojn; demandu al la Unuiĝ... iĝ... iĝ...”
 
-”Ej, mi dormemas. Eble mi devas enlitiĝi nun. Mi vo-44
-
-DEK DU AMRAKONTOJ
-
-
-las esti freŝa kaj vigla morgaŭ por mia kultura kurso.” ŝi ekridis mallaŭte, malforte kaj iom infanece.”Kaj eble aventuro trovos min, aŭ eble mi trovos aventuron. Sed nun mi enlitiĝu.”
+”Ej, mi dormemas. Eble mi devas enlitiĝi nun. Mi volas esti freŝa kaj vigla morgaŭ por mia kultura kurso.” ŝi ekridis mallaŭte, malforte kaj iom infanece.”Kaj eble aventuro trovos min, aŭ eble mi trovos aventuron. Sed nun mi enlitiĝu.”
 
 La lito, tamen, estis komplika problemo. Fraŭlino Krip neniam antaŭe konstatis kiom da lertaj movoj oni devas fari por normale meti sin en liton. Oni devas sin premi en mallarĝan aperturon, kiu, estante plata kaj mola, tute ne helpas. Kaj oni devas tre zorge atenti, por ke la kapo troviĝu sur la kapkuseno kaj la piedoj en la kovrilosakaĵo je la fino de la operacio, kaj ne inverse. Estus pli facile, mekanike, enrampi kun la kapo antaŭe; la kapo pli malmole avangardus; sed tia metodo eble kaŭzus sufokiĝon.
 
@@ -806,9 +676,7 @@ Fraŭlino Krip provis unufoje, sed iel maltrafis la aperturon kaj trovis sin kun
 
 ”Mi estas kvazaŭ kato, kiu faras sian liton laŭinstink-te, turnglatigante la longan herbon eĉ sur senherba ta-piŝo!” ŝi diris, jam iom malpli ebria, sed ankoraŭ rideme feliĉa.
 
-ŝi nun intence faris kelkajn turniĝojn, por ludi. La ri-dadanta virinkato ĉifis la litkovrilojn, lasante en ili la 45
-
-DEK DU AMRAKONTOJ
+ŝi nun intence faris kelkajn turniĝojn, por ludi. La ri-dadanta virinkato ĉifis la litkovrilojn, lasante en ili la
 
 
 spurojn de tiu turniĝado. Poste ŝia kapo iom subite trovis la kapkusenon, tiel molan, tiel agrable malvarman.
@@ -820,18 +688,11 @@ Noktmeze, brile blanka luno vidis, tra la fenestro de tiu eta hotela litĉambro,
 **Marjorie Boulton**
 
 
-DEK DU AMRAKONTOJ
-
-
 La veto
 
-Profesoro Òitnik kaj geometro Pirnat, ambaŭ Antonoj laŭnome, festis siajn nomotagojn. Pirnat estis jam unu jaron edziĝinta al malgranda, rondeta kaj tempera-menta virino, kiu kaŭzis al li en la societoj plurfoje diversajn malagrablaĵojn. Subite povis eniri ŝian kapon la ideo, ke la edzo rigardas nekonatulinon ĉe la tria tablo, aŭ ke videblas en lia okulo ”aĉa karna volupto”, kiam rapidas tra la ĉambro bela juna kelnerino, ”kampara fas-ko”. El tiuj rimarkoj elkreskis mallongaj kvereloj kaj al tiu disputado sekvis kaŝa, silenta kaj kondamninda virina ploro. Tia situacio estas ĉiam malagrabla. La edzino ploras, la edzo sidas apude, ruĝvizaĝa pro embaraso kaj kolero, la najbaroj sendas al li el ĉiuj flankoj akrajn ripro-
+Profesoro Òitnik kaj geometro Pirnat, ambaŭ Antonoj laŭnome, festis siajn nomotagojn. Pirnat estis jam unu jaron edziĝinta al malgranda, rondeta kaj tempera-menta virino, kiu kaŭzis al li en la societoj plurfoje diversajn malagrablaĵojn. Subite povis eniri ŝian kapon la ideo, ke la edzo rigardas nekonatulinon ĉe la tria tablo, aŭ ke videblas en lia okulo ”aĉa karna volupto”, kiam rapidas tra la ĉambro bela juna kelnerino, ”kampara fas-ko”. El tiuj rimarkoj elkreskis mallongaj kvereloj kaj al tiu disputado sekvis kaŝa, silenta kaj kondamninda virina ploro. Tia situacio estas ĉiam malagrabla. La edzino ploras, la edzo sidas apude, ruĝvizaĝa pro embaraso kaj kolero, la najbaroj sendas al li el ĉiuj flankoj akrajn riproĉojn, kial li turmentas la kompatindulinon, vi kruda kampara ŝtipo!
 
-ĉojn, kial li turmentas la kompatindulinon, vi kruda kampara ŝtipo!
-
-Ambaŭ — kaj Òitnik kaj Pirnat — naskiĝis la saman jaron, en 1882 post Kristo. La profesoro estis homo, kiu bezonas havi apud si iun, kiun li superas. Se li pikas lin, li neniam laciĝas je ĝentilaj reagoj en formo de senkulpa rido, se li cerbumas, li postĉasas spiron kaj vortojn kaj subtene kaj admire kapjesas, se li prilaboras trabon en la okulo de la amiko, li provas senlace trovi ankaŭ 47
-
-DEK DU AMRAKONTOJ
+Ambaŭ — kaj Òitnik kaj Pirnat — naskiĝis la saman jaron, en 1882 post Kristo. La profesoro estis homo, kiu bezonas havi apud si iun, kiun li superas. Se li pikas lin, li neniam laciĝas je ĝentilaj reagoj en formo de senkulpa rido, se li cerbumas, li postĉasas spiron kaj vortojn kaj subtene kaj admire kapjesas, se li prilaboras trabon en la okulo de la amiko, li provas senlace trovi ankaŭ
 
 
 splitaĵojn kaj rubojn. Inter la kunuloj li malbone sukcesis, sed li gajnis je tombolo, kiam li amikiĝis kun sinjoro geometro Pirnat.
@@ -856,9 +717,7 @@ La vangoj estas ruĝaj kaj rondaj, kiel se iu estus blovinta lin.
 
 Pirnat ruĝas kaj ridas volupte kaj abunde. Longe longe ondas el lia brusto mola ridetado, je kio lia voĉo jen le-vigas jen malleviĝas.
 
-Sed oni devas iri festi la nomotagon. Òitnik havas grandan kvarĉambran apartamenton kun malbona, malnova meblaro. Loĝas ĉe li la patrino kaj fratino. La patrino estas sepdekjara, la fratino kvindek. Ambaŭ 48
-
-DEK DU AMRAKONTOJ
+Sed oni devas iri festi la nomotagon. Òitnik havas grandan kvarĉambran apartamenton kun malbona, malnova meblaro. Loĝas ĉe li la patrino kaj fratino. La patrino estas sepdekjara, la fratino kvindek. Ambaŭ
 
 
 estas grizaj, larĝaj kaj obtuzaj. Vizitojn ili ne ŝatas, ĉar en la ĉambroj neniam ”estas tre bele”. Eroj de vestaĵoj kuŝas sur la litoj, sur la malnova sofo, sur la piano, aŭ pendas sur la apogiloj de la malkomfortaj kaj pezaj seĝoj. Kiam eniras la ĉambron Pirnat kaj lia edzino, la fratino de Pirnat saltas al la sofo, antaŭ kiu staras tablo, prenas aron da subvestaĵoj, portas ilin al apuda ĉambro kaj ĵetas ilin sur la liton.
@@ -881,9 +740,7 @@ La fratino metas la manĝon sur la tablon. La geometro diras ĝentile:
 
 ”Bonega, bonega,” kapbalancas Pirnat kaj tranĉas pli rapide, surforkigas kaj enbuŝigas.
 
-Ili priparolas kutimaĵojn. Dumtempe ankaŭ la fratino ekdormas ĉe la kameno. ŝi kaj la patrino sidas ĉiu je ĝiaj 49
-
-DEK DU AMRAKONTOJ
+Ili priparolas kutimaĵojn. Dumtempe ankaŭ la fratino ekdormas ĉe la kameno. ŝi kaj la patrino sidas ĉiu je ĝiaj
 
 
 flankoj, tenas la manojn krucumitaj kaj malrapide mallevas la kapojn. Kiam la patrino glitas jam tute antaŭen, la fratino subite rektiĝas kaj denove ekmallevas la kapon kaj glitas antaŭen. Kiam Pirnat eliras, Òitnik kliniĝas maldekstren al sinjorino Pirnat kaj rigardas ŝian kolon.
@@ -902,9 +759,7 @@ La vino estas bona kaj vigligas la societon. ĉiuj tri estas ruĝaj kaj iliaj ok
 
 Tio estas konata signo, ke ebrieco ekregis lin. Li trinkas pli rapide, mendas cigaron, ree kaj ree bruligas ĝin, prenas el la buŝo kaj provas kanti. ŝajnas al li ankaŭ, ke mankas al li ĉapelo. Li iras preni ĝin kaj surmetas oblik-ve sur la kapon. Kion ajn Òitnik diras, ĉu ion amuzan aŭ ne, saĝan aŭ stultan, al ĉio li jesas kaj ridas. Li prenas la okulvitrojn per ŝvitaj manoj kaj ne plu ŝajnas al li, ke li rigardas tra nebulo.
 
-Tiam okazas al Òitnik io neatendita. Zina sidas en la 50
-
-DEK DU AMRAKONTOJ
+Tiam okazas al Òitnik io neatendita. Zina sidas en la
 
 
 angulo apud la vando, Pirnat apud ŝi, sed Òitnik vidalvide al ŝi, tiel ke li turnas la dorson al la ĉambro. Ne plu estas trinkantoj en tiu ĉambro, el la antaŭĉambro aŭdeblas kartludado. Kelkfoje envenas kelnerino, maldika, aĝa, rigardas al la tablo kaj foriras.
@@ -917,16 +772,11 @@ Se Pirnat estus sobra, li certe rimarkus, ke io okazis. Anstataŭe li mordas la 
 
 Subite li akceptas la okazaĵon, per siaj piedoj premas ŝian kaj atentas, ke ĉio super la tablo aspektu kaj natura kaj senriproĉa.
 
-Ili pagas kaj foriras. Zina meze, Òitnik maldekstre kaj Pirnat dekstre. Ili tenas sin permane. Pirnat ŝanceliĝas, la manoj de Òitnik kaj Zina batalas en la poŝo de la mantelo de Òitnik, kvazaŭ temus pri vivo kaj morto. Montrofingro kroĉiĝas al montrofingro, dikfingro premas dik-fingron, la aliaj helpas kiel ili povas. Zina kelkfoje klini-
-
-ĝas antaŭen: tio estas signo de tiu batalo.
+Ili pagas kaj foriras. Zina meze, Òitnik maldekstre kaj Pirnat dekstre. Ili tenas sin permane. Pirnat ŝanceliĝas, la manoj de Òitnik kaj Zina batalas en la poŝo de la mantelo de Òitnik, kvazaŭ temus pri vivo kaj morto. Montrofingro kroĉiĝas al montrofingro, dikfingro premas dik-fingron, la aliaj helpas kiel ili povas. Zina kelkfoje kliniĝas antaŭen: tio estas signo de tiu batalo.
 
 Ekstere estas glacie, sur la tegmentoj kuŝas neĝo, malofte lumas lampoj kaj malmultas la homoj. Jen kaj jen alveturas koĉero kaj preteriras kun sia ĉevalo, lanterno kaj kaleŝo.
 
 Ili venas ĝis la loĝejo de Pirnat. Pirnat sidiĝas en mantelo sur la sojlon kaj tuj ekdormas. La edzino malŝlosas la pordon, piedpuŝas kaj vokas lin.
-
-
-DEK DU AMRAKONTOJ
 
 
 ”Leviĝu, vi estos tuj en la lito.”
@@ -949,9 +799,7 @@ La edzino ekkaŭras antaŭ li kaj komencas forpreni la ŝuojn. ŝi helpas lin fo
 
 ”Jee-ee —” ronkdiras la edzo kaj ekspiras profunde kaj malrapide. Kaj en la dormo tio ŝajnas al li: II
 
-Malantaŭ blanka kovrita tablo, kiu situas inter la pordo kaj vando, sidas iom kurbita kaj fortika vira nazo. Dekstre kaj maldekstre ĝi estas atakita de akno kaj tra la 52
-
-DEK DU AMRAKONTOJ
+Malantaŭ blanka kovrita tablo, kiu situas inter la pordo kaj vando, sidas iom kurbita kaj fortika vira nazo. Dekstre kaj maldekstre ĝi estas atakita de akno kaj tra la
 
 
 haŭtotruetoj penetris ŝvito kaj tute kovris ĝin. i brilas precipe de supre malsupren kaj sur la pinto reflektas la lampon, kiu lumas sur la tablo. Ora nazumo rajdas la fortikan kurbitan dorson kaj ĝi luliĝas hela kaj malpeza tien kaj reen. La nazo mem montras internan elanon kaj fieron. La nazotruoj senĉese moviĝas kaj larĝiĝas. Kelkfoje la tuto moviĝas, mallarĝiĝas kaj relarĝiĝas, kiel se ĝi volus entiri unuavice la mentoneton, kiu sidas vidalvide.
@@ -966,9 +814,7 @@ La nazo serĉas la manon de la mentoneto, kaj kiam li trovas ĝin, li portas ĝi
 
 ”kaj nur tion mi deziras, ke mi ne havu tro da kunulinoj en mia amo. ĉar, eĉ se mi havas edzon, mi povos fariĝi sufiĉe ĵaluza, kiam mi havigos amanton.”
 
-La nazo metas la dekstran manon sur la koron, levas 53
-
-DEK DU AMRAKONTOJ
+La nazo metas la dekstran manon sur la koron, levas
 
 
 alte en la aeron la maldekstran manon. Leviĝas, fleksas la dekstran genuon kaj ekkaŭras.
@@ -985,9 +831,7 @@ La mentoneto tuj preparas siajn lipojn por konvinkiĝi, ĉu la penso de la nazo 
 
 La nazo kliniĝas senprokraste kaj premiĝas al ĝi.
 
-La koro de Pirnat premiĝas ankoraŭ pli kaj pro tio li 54
-
-DEK DU AMRAKONTOJ
+La koro de Pirnat premiĝas ankoraŭ pli kaj pro tio li
 
 
 anhelas kaj raŭkas timige. En la oreloj bruas kiel voko de la lasta juĝo: ”Leviĝu, leviĝu, leviĝu!” Sed li ne povas, ĉar li kuŝas kvazaŭ ligita kaj ensorĉita.
@@ -1000,20 +844,13 @@ anhelas kaj raŭkas timige. En la oreloj bruas kiel voko de la lasta juĝo: ”L
 
 ”Mi kompatas lin,” diras la mentoneto. ”Vidu, nun mi rimarkas, ke mi vere amas lin.”
 
-”Se vi ekhavos amrilaton kun mi,” cerbumas la nazo kaj movas la nazumon, ”plurfoje aperos antaŭ vi similaj kaj eĉ pli malbonaj sentoj. Inter la ĝuoj de la vivo unu el la ĉefaj estas ŝanĝoj. Kiel ĉiele estas havi ion hejme, kaj alie denove ion alian. Kiam oni ĝojas hejme, oni pensas kontente kaj ĝue alien, kaj kiam oni ĝojas alie, oni pen-55
-
-DEK DU AMRAKONTOJ
-
-
-sas tutanime kaj korvarme al la hejmo. Tiel, vidu, oni estas ambaŭflanke milda kaj justa.”
+”Se vi ekhavos amrilaton kun mi,” cerbumas la nazo kaj movas la nazumon, ”plurfoje aperos antaŭ vi similaj kaj eĉ pli malbonaj sentoj. Inter la ĝuoj de la vivo unu el la ĉefaj estas ŝanĝoj. Kiel ĉiele estas havi ion hejme, kaj alie denove ion alian. Kiam oni ĝojas hejme, oni pensas kontente kaj ĝue alien, kaj kiam oni ĝojas alie, oni pensas tutanime kaj korvarme al la hejmo. Tiel, vidu, oni estas ambaŭflanke milda kaj justa.”
 
 Nun la nazo rimarkis, ke la momento estas oportuna.
 
 La mentoneto iom kliniĝis, la rideto en la kaveto ricevis duone ĝentilan duone doloran aspekton, ĉio indikis, ke malfermiĝis la varma virina koro, ke la vortoj atingis, kion ili celis. Ke la nazo tion rimarkis, estas klare. Kontente li faltis la haŭton je la pinto, vastigis la nazotruojn kaj ekbrilis en multe pli hejmeca graso ol li brilis ĝis nun.
 
-La nazumo ekmalrajdis; la risorto kunpremiĝis kaj falis silente sur la tapiŝon. La nazo eltiris la manojn, ĉirkaŭ-
-
-prenis la plenan zonon de la mentoneto, levis ŝin, je kio ankaŭ ŝi kunlaboris, kaj metis ŝin sur la genuojn.
+La nazumo ekmalrajdis; la risorto kunpremiĝis kaj falis silente sur la tapiŝon. La nazo eltiris la manojn, ĉirkaŭprenis la plenan zonon de la mentoneto, levis ŝin, je kio ankaŭ ŝi kunlaboris, kaj metis ŝin sur la genuojn.
 
 La koro de Pirnat volis eksplodi. Tiu anĝelo, pri kiu estas skribite, ke ĝi staras antaŭ la paradizo kaj per fajra glavo forpelas ĉiun teranon, kiu proksimiĝas, ŝajnis stari tute apud lia lito kaj terurige montris sian sangofaj-ran glavon.
 
@@ -1023,12 +860,7 @@ La koro de Pirnat volis eksplodi. Tiu anĝelo, pri kiu estas skribite, ke ĝi st
 
 ”Jen glavo,” diras la anĝelo fiere.
 
-”Svingu, svingu, svingu kiom vi povas!” Pirnat volas ekkrii, kaj la anĝelo, kiu estas spirito, komprenas ankaŭ vorton eldirita en la animo kaj nedirita per buŝo kaj lan-56
-
-DEK DU AMRAKONTOJ
-
-
-go. Tial ĝi komprenas la edzon-suferanton kaj respondas.
+”Svingu, svingu, svingu kiom vi povas!” Pirnat volas ekkrii, kaj la anĝelo, kiu estas spirito, komprenas ankaŭ vorton eldirita en la animo kaj nedirita per buŝo kaj lango. Tial ĝi komprenas la edzon-suferanton kaj respondas.
 
 ”Poetoj jam multfoje metis min en lokojn, kie mi baru la vojon al iliaj amatinoj. Sed, por esti sincera, mi en ĉi tiu okazo diru, ke mi ne havas rajton alie ol antaŭ la paradizo. Jen, prenu, mi pruntedonas al vi la glavon, ĉar mi vidas, ke okazas al vi ĉielenkria maljustaĵo.”
 
@@ -1048,11 +880,7 @@ La edzo kunpremis la palpebron, kiel se li terure suferus. Li diris:
 
 ”Kaj tiu aĉa gusto, kiun mi havas en la buŝo!”
 
-Dum iom da tempo li krampe kuntiriĝis, poste li levi-
-
-ĝis, forprenis la ĉemizon kaj ĵetis ĝin sur la liton. Kun nur kalsono sur si li tiris sin malrapide al la lavkuvo kaj 57
-
-DEK DU AMRAKONTOJ
+Dum iom da tempo li krampe kuntiriĝis, poste li leviĝis, forprenis la ĉemizon kaj ĵetis ĝin sur la liton. Kun nur kalsono sur si li tiris sin malrapide al la lavkuvo kaj
 
 
 fiksis ĉirkaŭ la zono viŝtukon. La haroj elstaris en ĉiujn direktojn, la okuloj sangkoloris, sed la vizaĝo estis pala kiel iom flaviĝinta graso. Li klinis sin super la kuvon, prenis la kruĉon, levis ĝin super la kapon kaj verŝis akvon sur la nukon. ĉar lia mano tremis, li vokis la edzinon.
@@ -1070,9 +898,6 @@ La tempiojn li mem malsekigis kaj ŝprucis antaŭ sin, tiel ke li malsekigis la 
 En al gastejo li mendis gulaŝon kaj bieron. Dum li malrapide ensorbis la duan kruĉon kaj rigardis samtempe la plafonon, ne atentante la gastojn, kiuj sidis kaj interparolis ĉe la aliaj tabloj, enŝteliĝis en lian kapon penso, subita kaj violenta penso. Li tenis la kruĉon sur la lipoj, la kapon klinita malantaŭen, sed li ne plu glutis. Io ekbrilis antaŭ liaj okuloj, kiel se iu estus batinta lin kaj
 
 * varnomoj
-
-
-DEK DU AMRAKONTOJ
 
 
 vidiĝus fajreroj. Li metis la kruĉon sur la tablon, kliniĝis al la rando, nekonscie eltenis la montrofingron, svingis
@@ -1106,16 +931,11 @@ Li surmetis la ĉapelon, kaj eliris malmole apogante sin al la bastono. Li rapid
 Sed sub la frunto kolektiĝis io plumba, strikte pripen-sita kaj konsilis:
 
 
-DEK DU AMRAKONTOJ
-
-
 ”Nur kviete, nur kviete! Malvarman sangon, tio vali-das!”
 
 Kaj el la koro bolis kaj ŝaŭmis io kvazaŭ brulanta lafo:
 
-”Mi detruos vin, sursaltos vin, paŝos sur via kapo, ka-
-
-ĉigos vin sub la kalkano kiel raton, senhonta aĉulo!”
+”Mi detruos vin, sursaltos vin, paŝos sur via kapo, kaĉigos vin sub la kalkano kiel raton, senhonta aĉulo!”
 
 Kaj denove aperis konsilo malantaŭ la frunto:
 
@@ -1138,9 +958,6 @@ Li ekstaris, sed en la rido rimarkeblis, ke li ne estas tute trankvila.
 ”ĉu pro tio,” diris Òitnik, ”ke vi pli facile konvinku min?”
 
 
-DEK DU AMRAKONTOJ
-
-
 Li estis pala, ne plu ridis kaj aspektis, ke li ne regos la situacion.
 
 ”Vi misuzis tion, kio estas por mi plej sankta en la mondo,” estis la unua frazo de la malagrabla interparolo.
@@ -1161,9 +978,7 @@ Li foriris sen saluto kaj, kiam li paŝis en la ŝtuparo suben, li murmuris al s
 
 ”Tio estas virina impertinenteco, jes, virina impertinenteco! Li dufoje kisis ŝin, kaj pri tio ŝi kulpas! ĉar neniam viro povas diri, ke li kisis virinon, se la virino ne emis esti kisata!”
 
-Kvankam la pensoj moviĝis en tute novan direkton, restis tute samaj la sovaĝaj kaj brulantaj sentatakoj, kiuj 61
-
-DEK DU AMRAKONTOJ
+Kvankam la pensoj moviĝis en tute novan direkton, restis tute samaj la sovaĝaj kaj brulantaj sentatakoj, kiuj
 
 
 kolektiĝis en la koro. Ili batadis en la kapo kaj lekis lian teruran vundon per fajra lango:
@@ -1197,9 +1012,6 @@ Zina alvenis — diketa, sana.
 ”ĉu vi kredas, ke mi estas surda, se mi staras?!”
 
 
-DEK DU AMRAKONTOJ
-
-
 ŝi iris al la fenestro, apogis sin al ĝi kaj rigardis al la ĉambro.
 
 Pirnat forprenis la mantelon, ĵetis ĝin sur la liton kaj post ĝi ankaŭ la ĉapelon kaj bastonon. Poste li metis ambaŭ manojn en la harojn kaj aranĝis ilin kvazaŭ kom-ponisto. Li rigardis la edzinon kaj diris:
@@ -1226,9 +1038,7 @@ La vortojn, kiujn li diris post tio, li eldiris kvazaŭ ĉiu silabo estus memsta
 
 ”Mia eksamiko, sinjoro profesoro Antono Òitnik asertis laŭvorte, ke li kisis vin dufoje!”
 
-La lasta silabo estis terura por la orelo. La ”E” estis 63
-
-DEK DU AMRAKONTOJ
+La lasta silabo estis terura por la orelo. La ”E” estis
 
 
 dika kaj malmola kiel branĉnodo. i flugis tra la ĉambro, kiel se oni estus ĵetinta malmolan ŝtipon.
@@ -1254,9 +1064,6 @@ Pirnat eliris el la ĉambro. Li iris en la koridoron, metis la manojn en la poŝ
 Pirnat ekridetas kaj murmuras:
 
 ”Ververe … amuze …”
-
-
-DEK DU AMRAKONTOJ
 
 
 Post la tagmanĝo li leviĝadis kaj residiĝadis sur la sofo. Rimarkeblis, ke li sentas sin malagrable. Li subite elfalis el la kutima ordo kaj estis pro tio nervema. Nun estos la unua kaj je tiu tempo li ĉiam estis kun Òitnik jam en la kafejo.
@@ -1286,9 +1093,6 @@ Zina lekis la gluon, metis la leteron sur la tablon kaj premis per pugno.
 Pirnat enpoŝigis, surmetis la mantelon kaj iris en kafejon.
 
 
-DEK DU AMRAKONTOJ
-
-
 IV
 
 Semajnon pli poste Òitnik renkontis Zinan surstrate. ŝi estis nigre vestita, agrable ruĝa pro la malvarmo, rondeta kaj vigla, tiel ke la vivo brilis de ŝi. En la defluejoj kuŝis neĝo, sed la trotuaroj estis sekaj kaj frostaj. Oni vidis, ke la homoj, kiuj iris sur la statoj, frostas. La viroj havis la kolumojn de la manteloj suprentiritaj, sed la virinoj brulis en la vizaĝoj, kvazaŭ ili hontus pro io.
@@ -1301,9 +1105,7 @@ Zina haltis, vigle saltetis de unu piedo al alia, turniĝis jen dekstren jen mal
 
 ”He, vi estas pigrulo, terura pigrulo! Eĉ vivi vi ne deziras.”
 
-”Tio ne estas vera! Mi ja ĉion fortrinkas kaj forman-
-
-ĝas. Mi ne estas same kuraĝa kiel vi. Lastfoje, ekzemple, tiu karto! Mi ŝvitis. La edzo portas ĝin kaj vi skribas en
+”Tio ne estas vera! Mi ja ĉion fortrinkas kaj formanĝas. Mi ne estas same kuraĝa kiel vi. Lastfoje, ekzemple, tiu karto! Mi ŝvitis. La edzo portas ĝin kaj vi skribas en
 
 ĝi, kiel vi trompis lin! Kie estas mia ĉapelo, haha?”
 
@@ -1314,9 +1116,6 @@ Zina haltis, vigle saltetis de unu piedo al alia, turniĝis jen dekstren jen mal
 ”Pirnat aĉetis ĝin! Mi kredas, ke ĝi plaĉos al vi. Venu preni ĝin, ĉu vi kredas, ke mi portados ĝin post vi?!”
 
 ”Ni iru iom!”
-
-
-DEK DU AMRAKONTOJ
 
 
 Ili iris dum iom da tempo silente antaŭen. Zina rigardis lin plurfoje de flanke. ŝi ridetis kaj ŝiaj okuloj brilis.
@@ -1355,9 +1154,7 @@ Zina prenis la rondaĵon, enpuŝis ĝin en la mufon kaj ekridis; sed en la rido 
 
 Li malrapide turniĝis, plueniris kaj daŭrigis pensi:
 
-* doni figon = figure: doni nenion, seniluziigi 67
-
-DEK DU AMRAKONTOJ
+* doni figon = figure: doni nenion, seniluziigi
 
 
 ”Vi ne havas tempon, kie vi trovus tempon ankaŭ por ŝi?! Matene viciĝas oficaj horoj, posttagmeze denove oficaj horoj. Post tagmanĝo vi bezonas la kafejon, post vespermanĝo la trinkejon; se ankoraŭ restas horo, vi bezonas ĝin por la parencoj! Kiom da vivo estas en tiu mondo! Kiel pigraj ni estas … kiel malmulte ni emas vivi!”
@@ -1366,9 +1163,7 @@ Li eniris tabakejon kaj plene dediĉis sin al elekto de la plej bona portorika c
 
 **Milan Pugelj**
 
-* Franko Luin* 68
-
-DEK DU AMRAKONTOJ
+* Franko Luin*
 
 
 La rakonto pri Gunnel
@@ -1385,18 +1180,14 @@ Interne de li elkriis Gunnel sian senesperan doloron pro la perdita reĝo de la 
 
 La nejuna sinjoro iĝis tute blanka en la vizaĝo. Li malfermis sian buŝon por diri ion — sed diris nenion.
 
-”—Sed kiu konas,” diris la junulo, ”la vojojn kaj voje-tojn de la homoj? Mi ja ne povas scii, kie iradis profesoro 69
-
-DEK DU AMRAKONTOJ
+”—Sed kiu konas,” diris la junulo, ”la vojojn kaj voje-tojn de la homoj? Mi ja ne povas scii, kie iradis profesoro
 
 
 de ŝtonoscienco dum sia vivo. Ni havas strangajn spe-cojn de ŝtono hejme, ĉe ni, en la montegaro.”
 
 Li turnis paron da fulme bluaj okuloj sur la alian, sed li ne trovis lian rigardon. Li vidis rigidiĝintan vizaĝon kun maltrankvile moviĝantaj palpebroj kaj manon de studĉambrulo, firme ĉirkaŭprenanta la ŝiporandon.
 
-La vaporŝipo veturis kontraŭflue en bela rivero inter altaj bordoj. Trunkoj por la segejoj preterglitis laŭ rotoj kaj duonrotoj. La ŝipestro sidis inter amikoj ĉe sia pun-
-
-ĉotablo, kaj la ekridoj ondis supren kaj malsupren.
+La vaporŝipo veturis kontraŭflue en bela rivero inter altaj bordoj. Trunkoj por la segejoj preterglitis laŭ rotoj kaj duonrotoj. La ŝipestro sidis inter amikoj ĉe sia punĉotablo, kaj la ekridoj ondis supren kaj malsupren.
 
 ”—Panjo, maljuna panjo! Jes, ŝi estas nun de longe mortinta. Iĝis tro penige por ŝi portadi tion … kaj fine ŝi falis senforta sub la ŝarĝo. Tio estis la sola doloro, kiun ŝi kaŭzis al mi — Gunnel Björklid — kaj estis kun ploran-taj larmoj … Mi ne komprenas, kio ligis ŝin al la vivo.
 
@@ -1411,23 +1202,15 @@ La bluaj okuloj sin ne deturnis. Nun ili vidis, kiel la alia kvazaŭ kuntiriĝas
 Poste la blua rigardo sin turnis al eleganta valizo kun bela nomo sur arĝenta plateto. Li enpense faris kap-movon.
 
 
-DEK DU AMRAKONTOJ
-
-
 ”—Jes, vi komprenas, malfeliĉaĵo okazis al ŝi iun someran tagon … kaj poste venis alia malfeliĉaĵo, infano —
 
-kaj la infano estis mi. Antaŭe ŝi vivis sur sia somera paŝ-
-
-tejo kiel hela kaj mirbela infano de la naturo kaj fanta-ziadis kaj kantadis sunbrilon de la mateno ĝis la vespero, tiel ke fulmis kaj brilis ĉirkaŭ ŝi … *Mi * venis tro malfrue por aŭdi ŝin kanti sunbrilon …”
+kaj la infano estis mi. Antaŭe ŝi vivis sur sia somera paŝtejo kiel hela kaj mirbela infano de la naturo kaj fanta-ziadis kaj kantadis sunbrilon de la mateno ĝis la vespero, tiel ke fulmis kaj brilis ĉirkaŭ ŝi … *Mi * venis tro malfrue por aŭdi ŝin kanti sunbrilon …”
 
 Li rigardis la alian kaj ree aŭdiĝis lia kvieta enpensa voĉo:
 
 ”—Kaj kiu tion kaŭzis, tiun mi malbenis tiel longtempe, kiel mi povis malbeni … Sed mi sidas tie ĉi rakon-tante al vi historion, kiu ne havas intereson por vi … kaj la vojaĝantoj preteriradas mirante, kial junulo el la montegaro kaj eleganta sinjoro el Stokholmo aŭ Upsalo havas tiom priparolotan … kaj la vilaĝoj sur la riverbordoj preterglitas verdaj en somermeza suno … kaj la vivo povas esti bela kelkfoje … sed neniel mi povas forgesi, ke mi havas kelke da malbenoj, ĉiutage dirotaj super nekonata viro … Sed estas ja malvarme al vi meze de la var-mega somera tago, mi vidas …!
 
 Jes, ploradon mi aŭdis super mia lulilo — kaj strangajn poeziojn. Amon mi ricevis pli ol ĉion alian. Vi ne povas imagi, kiel dolĉe ŝi povis kisi kaj flustri: ”Mia knabeto — mia knabeto!” Se vi ricevus kison de ŝi, vi neniam forgesus ĝin. Jes, Gunnel Björklid povis kisi … Dio scias, kiu instruis ŝin …”
-
-
-DEK DU AMRAKONTOJ
 
 
 La profesoro ĵetis rapidan rigardon sur la junulon kaj renkontis paron da senkompate ruzaj okuloj.
@@ -1439,9 +1222,6 @@ La viro sidis rigide kaj silente.
 ”—Al mi multe rakontis pri ŝi tiuj, kiuj ŝnis dum ŝia floranta juneco. ĉiuj strangaj homoj. Oni fantaziis multe en tiu izola valo inter la montegoj, kaj tie la homoj vivis du vivojn. Unu akompanis ilin dum la ĉiutaga laboro hejme apud la grizaj dometoj. La alia akompanis ilin en la arbaro, loĝis kun ili sur la somera paŝtejo, kunes-tis kun ili en la malgrandaj segejoj, mueliloj ĉe la riveroj, igis ilin per sorĉo perdi la vojon sur la marĉo, mistike kriis al ili de pinoj kaj abioj, de montoj kaj deklivoj. —
 
 Ho, se vi povus kompreni ĉion ĉi! Tiu alia vivo ne povis transiri Lappmyrhöjden sen la sento, ke io stranga okazos en kiu ajn momento, kaj neniam transpasis paŝtejon en la vesperiĝo ne aŭskultante, ĉu aŭdiĝas la hundoj de la koboldoj, kiuj bojas du bojojn samfoje — aŭ timtremi pro la sekretplenaj infanoj, kiuj ploras sub la planko de la paŝteja dometo. Tiaj misteraĵoj kelkfoje igis eĉ la plej memfidajn maljunulojn en la vilaĝoj kuregi tiel, ke la betulŝelaj ŝuoj frapis ilian longan, nekombitan nukhara-ron — laŭlonge de la vojeto — antaŭen sur la deklivo —
-
-
-DEK DU AMRAKONTOJ
 
 
 malsupren sur la vilaĝa vojo — hejmen al la dometo. —
@@ -1461,9 +1241,6 @@ Alia estis bluegriza. i estis rakonto en la nebulo de la lago dum aŭtuna mateno
 ŝi, Gunnel, kiu estis tiel dolĉanima, iutage ĉirkaŭprenis mian gorĝon per siaj fingretoj kaj ekpremis. Tiam ŝi ploris kaj kriis virnomon, kiun mi neniam antaŭe aŭdis.
 
 
-DEK DU AMRAKONTOJ
-
-
 Neniu havis tiun nomon en nia regiono. Mi kredas — ĉu vi ne kredas, same kiel mi, ke ĝi estis la nomo de iu, kiu foriris malproksimen de ŝi — kiun ŝi volis revoki …?”
 
 Li ridetis vidante, kiel la alia ektremas.
@@ -1475,9 +1252,6 @@ Li metis la manon sur la ŝultron de la profesoro kaj diris kviete:
 ”Kelkfoje mi sopiris paroli trankvilajn vortojn de trankvila viro kun la fremdulo, kiu igis ŝin plori dum tiuj jaroj. Mi dezirus lin vidi — la someran reĝon de Gunnel —
 
 mi, kiu estas ŝia fantazia princo. Ho Dio, kia viro li nepre estis tiun sunbrilan tagon, en kiu li konkeris Gunnel per la rajto de juneco kaj amo. Mi dezirus vidi lin tie ĉi antaŭ mi kaj paroli kun li, same kiel mi parolas kun vi, kviete kaj trankvile, kaj same kore kiel kviete malbeni lin. Li ne aŭdus la vortojn, ne sentus ian mankon de afableco, sed mi esperas, ke li pli malpli frue sentus la bonigan efikon de miaj petsopiroj.”
-
-
-DEK DU AMRAKONTOJ
 
 
 ”Ne — ne — tiel ne parolu!” diris la profesoro per dika voĉo.
@@ -1497,9 +1271,6 @@ Imagu: li sendis monon al ŝi … ĉu tio ne estas malnob-la? ĉu ne? Fi, la dia
 — oni devas pripensi tion ĉi. Estas pli ol mi povas kompreni, kio nun fariĝos kun mi.” Sed post tiu tempo ŝi ofte sidis kurba, kun la stria antaŭtuko ĵetita sur la kapo, provante nur ne pripensi tion — ne pripensi tion — ne pripensi tion …
 
 
-DEK DU AMRAKONTOJ
-
-
 La mizera terstrio ĉe la malhela fluanta akvo vidis en tiu aŭtuno senesperan virinon vagadi, rigardadi kaj aŭs-kultadi. Se la norda vento estis blovinta longtempe kaj malgrandaj blankaj nubetoj glitis linie de nordo suden, tio por ŝi estis la vojo de la migrantaj birdoj — kaj ŝi sendis sian saluton al la reĝo de la junia fabelo. La aŭtuno estis veninta por ŝi kaj neniam plu forlasis ŝin, eĉ ne, kiam ŝi naskis min post kelke da monatoj kun doloro pli anima ol korpa. Min tamen ĝojigas, ke mi estis ĝojigaĵo por ŝi — ho, mia bela patrino! Mi ĝojigis ŝin. ŝi tion diris al mi, antaŭ ol la okuloj rompiĝis en tiu kapo, kiu estis arĝente blanka, antaŭ ol ĝi atingis sian tridekkvinan jaron, la mortjaron …
 
 Kion vi opinias pri la rakonto, sinjoro?
@@ -1508,9 +1279,7 @@ Sed longe post la komenco de marto venis varmaj ventoj de la Golfa fluo. La arba
 
 kial — kuregis ŝi skie supren en la montegaron atendante ion tian? — Kion ŝi intencis viaopinie? ĉu ŝi intencis daŭrigi la vivon? … La neĝo algluiĝis al la piedoj, kaj estis malfrue, kiam ŝi atingis la dorson de la Tjala montego.
 
-Lupoj ŝin sekvis. Tie ŝi devis sidiĝi — kuŝiĝi — kaj tie mi naskiĝis … tio estas la historio de Gunnel … Tiun mon-tegon transiras homo eble unufoje ĉiun trian semajnon 76
-
-DEK DU AMRAKONTOJ
+Lupoj ŝin sekvis. Tie ŝi devis sidiĝi — kuŝiĝi — kaj tie mi naskiĝis … tio estas la historio de Gunnel … Tiun mon-tegon transiras homo eble unufoje ĉiun trian semajnon
 
 
 Se tio ne okazus tiun tagon — kio poste, sinjoro? Ankoraŭ hodiaŭ mi ne scias, ĉu la lapono, kiu venis, sekvis la postsignojn de la lupoj aŭ de la skioj, sed li venis ĝus-tatempe. Li helpis ŝin — banis min en la neĝo — prenis min en sian jaketon kaj skikuregis malsupren de la montego tra Granliden ĝis Maktoberg. ŝi postsekvis, silenta, senforta kaj senplora en la vesperiĝo, kelke da horoj poste.
@@ -1537,22 +1306,16 @@ La juna poeto, la bela filo de Gunnel, rigardis la elegantan viron apude.
 
 ŝi paŝtis mem sian brutaron en tiu somero, kiel vi scias.
 
-La paŝtejo estis malproksime de la vilaĝo. La okazaĵo multe dependis ankaŭ de ŝia soleco tie. Tiu paŝtejo ne 77
-
-DEK DU AMRAKONTOJ
+La paŝtejo estis malproksime de la vilaĝo. La okazaĵo multe dependis ankaŭ de ŝia soleco tie. Tiu paŝtejo ne
 
 
 estis bona por sola homo, ĉar tie — ridu, se vi emas —
 
-tie loĝis koboldoj kaj tie troviĝis nevidebla brutaro, kaj estis tie aliaj estaĵoj pli teruraj ol koboldoj, ĉar tiuj kaŭ-
-
-zas domaĝon al neniu, se ne pro bonintenco. Tie nevi-deblaj estaĵoj bruis en la kuirdomo dum la noktoj, kaj tie vidiĝis strangaĵoj ĉe la domanguloj kaj en la arbetaĵo, kiam ŝi je la sunsubiro iris nudpiede en la malalta, velure mola herbo de la paŝtejo — al la bolkaldrono kun la se-lakta fromaĝo kaj reen. Poezio kaj mistiko venis akom-pane de la bovinoj en la vespero, kiam la suno lumis ruĝa inter la krepuskaj abioj kaj la aero estis flava. La turdo kantadis kaj la strigoj kriis ’ho!’. Tio estis ŝia mondo. Iutage io okazis meze en la sunbrilo. Gunnel sidis dormante, kun la kapo sur sia brako. Subite ŝi vekiĝis, ĉar aro da koboldoj staris ĉirkaŭ ŝi postulante, ke ŝi edziniĝu. Juna viro apartenanta al la stranguloj de la arbaroj edziĝos je ŝi. Certe, ŝi estis ravita pro la aventuro. Oni ŝin vestis per edziniĝa vesto kun kobolda arĝento kaj strange modelita kobolda oro. Ringoj sur la manoj. Bukoj sur la brusto. ĉirkaŭ la talio volvanta serpento. Gunnel sidis kvazaŭ en sonĝo. Ornami ili povis laŭplaĉe. La brutara hundo bojegis pro timo. La suno brilis kaj lumis. La gruoj kriis super la lago, la arbaro bonodoris, la aero tremis. Estis gajbrilanta edziniĝa vetero. La neĝa supro de Jadmo brilis malproksime, blanka kiel printempa nubo
+tie loĝis koboldoj kaj tie troviĝis nevidebla brutaro, kaj estis tie aliaj estaĵoj pli teruraj ol koboldoj, ĉar tiuj kaŭzas domaĝon al neniu, se ne pro bonintenco. Tie nevi-deblaj estaĵoj bruis en la kuirdomo dum la noktoj, kaj tie vidiĝis strangaĵoj ĉe la domanguloj kaj en la arbetaĵo, kiam ŝi je la sunsubiro iris nudpiede en la malalta, velure mola herbo de la paŝtejo — al la bolkaldrono kun la se-lakta fromaĝo kaj reen. Poezio kaj mistiko venis akom-pane de la bovinoj en la vespero, kiam la suno lumis ruĝa inter la krepuskaj abioj kaj la aero estis flava. La turdo kantadis kaj la strigoj kriis ’ho!’. Tio estis ŝia mondo. Iutage io okazis meze en la sunbrilo. Gunnel sidis dormante, kun la kapo sur sia brako. Subite ŝi vekiĝis, ĉar aro da koboldoj staris ĉirkaŭ ŝi postulante, ke ŝi edziniĝu. Juna viro apartenanta al la stranguloj de la arbaroj edziĝos je ŝi. Certe, ŝi estis ravita pro la aventuro. Oni ŝin vestis per edziniĝa vesto kun kobolda arĝento kaj strange modelita kobolda oro. Ringoj sur la manoj. Bukoj sur la brusto. ĉirkaŭ la talio volvanta serpento. Gunnel sidis kvazaŭ en sonĝo. Ornami ili povis laŭplaĉe. La brutara hundo bojegis pro timo. La suno brilis kaj lumis. La gruoj kriis super la lago, la arbaro bonodoris, la aero tremis. Estis gajbrilanta edziniĝa vetero. La neĝa supro de Jadmo brilis malproksime, blanka kiel printempa nubo
 
 … kaj nun okazis … ke li venis … la fremdulo …”
 
-”Jes,” diris la profesoro malrapide kaj ne sentante, ke 78
-
-DEK DU AMRAKONTOJ
+”Jes,” diris la profesoro malrapide kaj ne sentante, ke
 
 
 li parolas. ”Jes, estis stranga vidaĵo, sed koboldojn aŭ ion tian mi ne vidis, kiam mi venis tra la paŝtejo al ŝia dometo, perdinte la vojon en la montegaro.”
@@ -1577,9 +1340,7 @@ Kaj tiamaniere okazis, ke ŝi …”
 
 La profesoro ekĝemetis. ”Tiuj tagoj forflugis por ĉiam
 
-— kaj ŝi neniam revenos. Mi vojaĝis tien ĉi norden por 79
-
-DEK DU AMRAKONTOJ
+— kaj ŝi neniam revenos. Mi vojaĝis tien ĉi norden por
 
 
 serĉi ŝin nun … kaj venas tro malfrue. Mi sekvos vin al viaj montegoj kaj izolaj vilaĝoj, kaj vi sekvu min reen. Vi estas ja mia filo kaj ŝia.”
@@ -1588,9 +1349,7 @@ serĉi ŝin nun … kaj venas tro malfrue. Mi sekvos vin al viaj montegoj kaj iz
 
 … ne — neniu povas forgesi, kion li aŭdas en tiaj momentoj. Mi konis la nomon de tiu, kiun mi malamis. Iru returne, ni disiĝu tie ĉi. Mi ne tial trabatalis mian vivon dum tiuj ĉi jaroj, por ke nun, kiam mi konas mian propran forton, mi iĝu la fileto de paĉjo. Mia vojo kondukas supren al la montegoj kaj al mia poezia verkado.
 
-Kion sentis Gunnel, senkviete erarante tie hejme, pri tio mi volas verki. Mi havas fabelojn en la sango … mi estas ja la filo de Gunnel. Bastardo oni nomas min — legitima infano, mi diras. Mi iras al la montegoj kaj al la okaza-
-
-ĵoj.”
+Kion sentis Gunnel, senkviete erarante tie hejme, pri tio mi volas verki. Mi havas fabelojn en la sango … mi estas ja la filo de Gunnel. Bastardo oni nomas min — legitima infano, mi diras. Mi iras al la montegoj kaj al la okazaĵoj.”
 
 Li metis sian betulŝelan tornistron sur la ŝultrojn kaj etendis sian manon al la maljunulo.
 
@@ -1601,25 +1360,18 @@ Mi estas kontenta, ke mi vidis vin, mi nun komprenas, ke Gunnel povis forgesi ĉ
 Kiam li tie iris supren sur la vojo, ekscitita kaj kun tre-mantaj lipoj, bela kaj forta, li estis kvazaŭ juna vikingo.
 
 
-DEK DU AMRAKONTOJ
-
-
 La maljunulo okule sekvis lin kun la rigardo de almo-zulo.
 
 **Pelle Molin**
 
-* Einar Knutsson* 81
-
-DEK DU AMRAKONTOJ
+* Einar Knutsson*
 
 
 La kiso
 
 Mi devis esti jam mortinta, tamen mi restis inter vi-vantoj. Nune tio ne estas novaĵo: praktiko ofte superas teorion. Sed krom ĉio ankoraŭ ekzistas tiuj aferoj, kiujn apartenigi al praktiko aŭ teorio estas tre malfacile. Ekzemple, kiel forte mi deziris vivi kaj ankaŭ kiel arde batis la koroj de tiuj homoj, kiuj zorgis pri mi. Kaj eble tio pleje antaŭdifinis mian vivon.
 
-Unu semajno foriĝis el mia vivo, kvazaŭ eltranĉita kaj bruligita peco de filmo. Jes, bruligita, ĉar tri kvaronoj de mia haŭto komence estis karbiĝintaj kaj poste vundkov-ritaj. Kiam mi unuafoje post la akcidento malfermis miajn okulojn, mi estis envolvita kvazaŭ kokono de silk-raŭpo. Tion mi ne vidis, sed mi sentis per mia brulanta korpo. Mia terura rigardo de la blanka plafono forram-pis flanken. Kvazaŭ tra rosplena fenestro mi ekvidis vizaĝon de flegistino. Tre klare mi distingis ŝian blankan kaptukon. La vizaĝo tuj alproksimiĝis, io estis al mi di-rata, sed nebulo de la turmento komencis densiĝi en miaj okuloj kaj baldaŭ ĉio malaperis. Poste, malferminte miajn okulojn, mi ĉiam rimarkis tage kaj nokte deĵoran-tan, zorgoplenan kaj bonan vizaĝon. Vere, ĝi ne estis 82
-
-DEK DU AMRAKONTOJ
+Unu semajno foriĝis el mia vivo, kvazaŭ eltranĉita kaj bruligita peco de filmo. Jes, bruligita, ĉar tri kvaronoj de mia haŭto komence estis karbiĝintaj kaj poste vundkov-ritaj. Kiam mi unuafoje post la akcidento malfermis miajn okulojn, mi estis envolvita kvazaŭ kokono de silk-raŭpo. Tion mi ne vidis, sed mi sentis per mia brulanta korpo. Mia terura rigardo de la blanka plafono forram-pis flanken. Kvazaŭ tra rosplena fenestro mi ekvidis vizaĝon de flegistino. Tre klare mi distingis ŝian blankan kaptukon. La vizaĝo tuj alproksimiĝis, io estis al mi di-rata, sed nebulo de la turmento komencis densiĝi en miaj okuloj kaj baldaŭ ĉio malaperis. Poste, malferminte miajn okulojn, mi ĉiam rimarkis tage kaj nokte deĵoran-tan, zorgoplenan kaj bonan vizaĝon. Vere, ĝi ne estis
 
 
 ĉiutage la sama. i ŝanĝiĝis, kune kun ĉiu ŝanĝo de la malsanulejaj laborantoj.
@@ -1636,12 +1388,7 @@ Min kaptis tiel peza apatio, kiu dum tagoj, kiam mia vivo ŝanceliĝis kvazaŭ s
 
 Unufoje, kiam apud mia lito deĵoris Danute, la flegistino kun lazuraj okuloj (ŝian nomon mi eksciis iom pli poste), mi, peze spirante en sufokiĝo, murmuretis al ŝi:
 
-—Vi diru sincere al mi, ĉu vi kredas, ke mi iam resa-83
-
-DEK DU AMRAKONTOJ
-
-
-niĝos? Diru, mi ne timas la veron. Mi mem ne plu deziras …
+—Vi diru sincere al mi, ĉu vi kredas, ke mi iam resaniĝos? Diru, mi ne timas la veron. Mi mem ne plu deziras …
 
 —Vi resaniĝos, — rapide ŝi interrompis min. — Vi estas tiel juna, forta. Vi resaniĝos, certe vi resaniĝos.
 
@@ -1666,9 +1413,6 @@ Kiam post momento mi denove ekrigardis, Danute ankoraŭ staris en la sama loko, 
 kolere mi diris al ŝi.
 
 
-DEK DU AMRAKONTOJ
-
-
 —Kial vi nerviĝas? Oni ne povas… — tutpove ŝi konsolis min. — ĉu vi ne deziras resaniĝi?
 
 —Mi ne deziras, — mi dolore murmuretis. — Por neniu mi estas bezonata. Neniu min ekamos …
@@ -1677,9 +1421,7 @@ DEK DU AMRAKONTOJ
 
 —Mi ne deziras, mi ne deziras, — mi kriis forte.
 
-Konsternita Danute saltis rekte al la pordo, sed ne malferminte ĝin, momente haltis, ekrigardis min kaj al-kuris al mia lito. Tenante min je ŝultroj, ŝi arde ion al mi parolis. Mi vidis, ke ŝia vizaĝo proksimiĝis, proksimiĝis kaj subite ŝi min kisis. ŝi kisis miajn de febro fendi-
-
-ĝintajn lipojn. Kiam ŝi rektiĝis, sur ŝia vango vidiĝis larmo. Danute tuj forviŝis ĝin per tuketo kaj, kvazaŭ petante pardonon, ekridetis al mi kaj eliris.
+Konsternita Danute saltis rekte al la pordo, sed ne malferminte ĝin, momente haltis, ekrigardis min kaj al-kuris al mia lito. Tenante min je ŝultroj, ŝi arde ion al mi parolis. Mi vidis, ke ŝia vizaĝo proksimiĝis, proksimiĝis kaj subite ŝi min kisis. ŝi kisis miajn de febro fendiĝintajn lipojn. Kiam ŝi rektiĝis, sur ŝia vango vidiĝis larmo. Danute tuj forviŝis ĝin per tuketo kaj, kvazaŭ petante pardonon, ekridetis al mi kaj eliris.
 
 Longe mi kuŝis tiel, forgesinte mian doloron kaj mian staton. Ankoraŭ per pensoj mi vidis ŝin, staranta apud mia lito. Senpacience kaj senĉese mi rigardis porden, atendante kiam Danute reaperos. Sed baldaŭ finiĝis la laboro de ŝia ŝanĝo kaj la ĉambron eniris alia flegistino.
 
@@ -1689,9 +1431,7 @@ Mi demandis ŝin, kiam Danute deĵoros denove.
 
 ŝiaj vortoj eksonis al mi tiel, kvazaŭ ŝi estus dirinta, ke ŝi deĵoros post unu jaro. Tiun nokton mi senĉese rigardis la horloĝon sur mia ŝranketo. La tempo fluis tre malrapide.
 
-Iom post iom mi komencis kompreni, ke mi volas vivi 85
-
-DEK DU AMRAKONTOJ
+Iom post iom mi komencis kompreni, ke mi volas vivi
 
 
 denove. Tiu deziro ekvibrigis miajn estingiĝantajn vivo-fortojn kaj min tute plenigis per forta obstino ne kapi-tulaci.
@@ -1708,9 +1448,7 @@ Baldaŭ eksonis ies paŝoj, laŭta parolado kaj juneca rido. Konsternitaj la bir
 
 ĝojon de la vivo. Tion plene komprenos nur tiu, kiu estas perdinta ĝin. Tiun ĉi trion sekvis alia, poste ankoraŭ alia. Ju pli tumulta estis la strato ekster mia fenestro, des pli multe min premis soleco kaj maltrankvileco. Iĝis pli peze spiri, kvazaŭ iu per malmola mano premis mian koron. Sed jen malfermiĝis la pordo kaj eniris Danute.
 
-ŝia unua rideto, kvazaŭ ekblovinta freŝvento, forpelis 86
-
-DEK DU AMRAKONTOJ
+ŝia unua rideto, kvazaŭ ekblovinta freŝvento, forpelis
 
 
 enuon el mia ĉambreto. Danute estis la radio de tiu vivo, kies paŝojn, ridon kaj bruon mi sentis tie ekster mia fenestro.
@@ -1721,12 +1459,7 @@ La feliĉa momento baldaŭ finiĝis. Danute, rigardinte manhorloĝon kaj petinte
 
 Post preskaŭ unu jaro mi eliris el la malsanulejo kaj forveturis hejmloken por unu monato da ripozo. Pro la malforteco de mia maldekstra kruro mi devis uzi lam-bastonon, sed baldaŭ ĝi estis nebezonata. Mi denove iĝis tute sana. Mi denove povis vivi gaje kaj manĝi la panon, kiun mi mem perlaboros.
 
-Ho, mia hejmloko! i ĉiam vivigas min, kiel la odoro de pinarbaro, kiel torenta akvo, kiel patrina amo. Neniam en ĝi mi sentas min solulo, neniam tedas al mi ĝia ĉiela firmamento. La verda dekliva herbejo, apudrivere-taj alnoj, trakampa vojeto kaj alta branĉriĉa abio, kres-87
-
-DEK DU AMRAKONTOJ
-
-
-kanta ĉe la vojo, tiuj estas tre bonaj amikoj el mia infanaĝo.
+Ho, mia hejmloko! i ĉiam vivigas min, kiel la odoro de pinarbaro, kiel torenta akvo, kiel patrina amo. Neniam en ĝi mi sentas min solulo, neniam tedas al mi ĝia ĉiela firmamento. La verda dekliva herbejo, apudrivere-taj alnoj, trakampa vojeto kaj alta branĉriĉa abio, kreskanta ĉe la vojo, tiuj estas tre bonaj amikoj el mia infanaĝo.
 
 Mi vizitis la plej bonajn kaj ŝatatajn lokojn de mia hejmvilaĝo, tamen ĉi tiun fojon ĉio aspektis al mi ne tiel proksima, kiel okazis dum la aliaj fojoj. La pensoj mik-siĝis kaj revenadis al la urbo, kie en la koridoroj de la plej granda malsanulejo ĉiam rapidis la juna flegistino kun lazuraj okuloj. ŝia rigardo min persekutis, kiel malproksima, sed afabla miraĝo. Jen, ŝajnas, ŝi trankvile en-paŝas mian ĉambreton, malfermas la fenestron kaj sen-parole ekstaras apud la forno. Mi estas forturninta min al la muro, tamen mi ne dormas.
 
@@ -1749,18 +1482,13 @@ Danute, legante ilin, ridegis ĝis larmoj. Evidente, mi komprenis, ke miaj bonaj
 —Tiu knabino ne ekzistas.
 
 
-DEK DU AMRAKONTOJ
-
-
 ŝi nenion respondis, nur longe rigardis tra la fenestro, poste prenis la vitran vazeton kun velkintaj floroj kaj eliris.
 
 Kun granda senpacienco mi ĝisatendis la finon de mia libertempo kaj per la posttagmeza aŭtobuso, kiu ĉiutage preterveturas mian hejmlokon, forveturis al la urbo.
 
 La sekvan tagon vespere mi jam rapidis al Danute. ŝi loĝis ĉe la stacia strato, en granda domo kun fumiĝintaj muroj, milittempe abunde trafitaj de kuglegaj splitoj.
 
-Suprenirante sur malnova ŝtuparo de unu ĝis la alia eta-
-
-ĝo, en la krepusko, tre malfacile mi trovis la dekduan loĝejon. Ekscitita kaj kun pensoj pri tio, ke baldaŭ mi ekvidos tiun knabinon, kiu eble funde ŝanĝos mian tutan vivon, mi premis la sonorilbutonon. Tuj aŭdiĝis pa-
+Suprenirante sur malnova ŝtuparo de unu ĝis la alia etaĝo, en la krepusko, tre malfacile mi trovis la dekduan loĝejon. Ekscitita kaj kun pensoj pri tio, ke baldaŭ mi ekvidos tiun knabinon, kiu eble funde ŝanĝos mian tutan vivon, mi premis la sonorilbutonon. Tuj aŭdiĝis pa-
 
 ŝoj kaj en la pordo aperis virino, vestita en nokta vestaĵo.
 
@@ -1772,9 +1500,7 @@ La virino sin turnis kaj, lasinte la pordon malfermita, foriris. Tio signifis, k
 
 —Ho! Vi! Bonvolu, bonvolu! — ŝi invitis min kaj de la koridoro malfermis larĝan knarantan pordon. Klara lu-mo elverŝiĝis el la ĉambro en la koridoron kaj flavigis
 
-ĝiajn plankon kaj murojn. Unu momenton mi observis Danute’n. ŝi estis vestita per iom tro longa blua robo kaj sen kaptuko. Malhele bruna kaj glate kombita hararo tuŝis ŝian kolumon. La trajtoj de ŝia vizaĝo nun estis pli 89
-
-DEK DU AMRAKONTOJ
+ĝiajn plankon kaj murojn. Unu momenton mi observis Danute’n. ŝi estis vestita per iom tro longa blua robo kaj sen kaptuko. Malhele bruna kaj glate kombita hararo tuŝis ŝian kolumon. La trajtoj de ŝia vizaĝo nun estis pli
 
 
 esprimplenaj, la okuloj iom pli severaj. ”ĉu ŝi estas la sama,” mi pensis. Danute aspektis al mi tute alia, sed tuj mi komprenis, ke tiun ŝian ŝanĝiĝon kaŭzas nur tio, ke ŝi estas alie vestita. Ankoraŭ rapidante al Danute, mi pensis, ke ŝia ĉambreto estos iel simila al la malsanuleja ĉambro, kie mi kuŝis. En ĝi ĉio aspektis blanke kaj tie iomete odoras kuraciloj. Kaj ŝi mem, ŝajnas, tuj ekde-mandos min pri mia sanstato kaj, eble, kontrolos mian pulson. Sed ĉio okazis tute alie. Inter du litoj, ornamitaj per diversaj brodaĵoj, staris malgranda rondtableto, kie kuŝis flikata ŝtrumpo. Danute ruĝiĝis, kaptis ĝin kaj kaŝis. La tutan tempon ŝi per mano ordigis siajn harojn kaj per iu nenatura gracio ĉirkaŭpaŝis min, petante min depreni la mantelon, sidiĝi.
@@ -1788,9 +1514,6 @@ esprimplenaj, la okuloj iom pli severaj. ”ĉu ŝi estas la sama,” mi pensis.
 — Jes. Estis tia tempo. Ni ne rememoru pri tio, estos pli bone.
 
 —Veron vi diras, — konsentis Danute. — Rakontu kiel vi pasigis vian tempon en la hejmloko. Vi ja tre ŝatas vian vilaĝon.”
-
-
-DEK DU AMRAKONTOJ
 
 
 —Mian hejmlokon, vere, mi tre ŝatas. Sed tiun ĉi fojon mi sopiris ankaŭ pri urbo. Eble tial, ke mi tre multe pensis pri vi, Danute.
@@ -1807,9 +1530,7 @@ Samtempe, frapinte la pordon, eniris malgranda, pint-nazeta amikino de Danute. K
 
 —Mi tre atendos!
 
-—is la revido! — mi adiaŭis, observante ŝin. Denove revenis al mi la penso, ke ĉi tie ne estas tiu lazurokula Danute. Mi ne povis kompreni, kio en ŝi ŝanĝiĝis. En la malsanulejo Danute estis tiel modesta kaj pro tio mi admiris ŝin. Eble mi mem ŝanĝiĝis. Povas esti, ke nun, kiam min ne turmentas malsanuleja soleco, mi ĉion imagas tute alie. Palpe mi trapaŝis la malluman koridoron kaj eliris straten. Iomete pluvis. De la stacia flanko la vento portis lokomotivan fumon kaj premis ĝin al la tero. Surstrate, portante kofrojn kaj pakaĵojn, rapidis homoj. De-zirante resti sola, mi trapaŝis placeton, plantita per junaj 91
-
-DEK DU AMRAKONTOJ
+—is la revido! — mi adiaŭis, observante ŝin. Denove revenis al mi la penso, ke ĉi tie ne estas tiu lazurokula Danute. Mi ne povis kompreni, kio en ŝi ŝanĝiĝis. En la malsanulejo Danute estis tiel modesta kaj pro tio mi admiris ŝin. Eble mi mem ŝanĝiĝis. Povas esti, ke nun, kiam min ne turmentas malsanuleja soleco, mi ĉion imagas tute alie. Palpe mi trapaŝis la malluman koridoron kaj eliris straten. Iomete pluvis. De la stacia flanko la vento portis lokomotivan fumon kaj premis ĝin al la tero. Surstrate, portante kofrojn kaj pakaĵojn, rapidis homoj. De-zirante resti sola, mi trapaŝis placeton, plantita per junaj
 
 
 tilioj. En la flaveta lanterna lumo radiis rosplena herbo, arbustoj kaj diverskoloraj floroj.
@@ -1825,9 +1546,6 @@ Danute estis vestita en hela florhava robo kaj griza ĵaketo. ”Kiel bone por �
 Foje ekblovinta freŝvento vivigis niajn vizaĝojn. ĉe la stacia strato, kontraŭ la hejmdomo de Danute, ĉe la grandegaj aceroj ni haltis.
 
 
-DEK DU AMRAKONTOJ
-
-
 —Diru, ĉu ni renkontiĝos ankoraŭ? — alpremiĝante kaj rigardante miajn okulojn, malgaje demandis Danute.
 
 —Kial ne? Nepre ni renkontiĝu.
@@ -1838,9 +1556,7 @@ Mi premis la manon de Danute kaj nenion dirante pri renkontiĝo, foriris. Mia bo
 
 **A. Pocius**
 
-* Antanas Bartninkas* 93
-
-DEK DU AMRAKONTOJ
+* Antanas Bartninkas*
 
 
 Berto
@@ -1849,9 +1565,7 @@ Tre rapide disvastiĝis la novaĵo ke Berto estis pendig-inta sin. La plej bone 
 
 ĉu tiom da jaroj jam pasis de tiam? Vidu, vidu, kiel rapide la tempo pasas …
 
-La virinoj, kiuj kolektiĝis ĉiun posttagmezon ĉe Olga, la maljuna Olga, kaj gustumis siajn kunportitajn bak-aĵojn trinkante tason aŭ du da kafo, opiniiis, ke ne estas ideo preĝi por la animo de la memmortiginto. Neniu preĝo en la mondo povos eltiri lin el la damno de eterna fajro, ili ĉiuj konsentis pri tio. Se entute oni preĝu, estu kun la deziro, ke li restu tie pli longe ol eterne. Me-lisa, kiu eĉ preĝis por la animo de sia kato, kiam ĝi estis surveturita dum unu el siaj amorekskursoj, opiniis, ke oni ne ĝenu la Sinjoron per plej eta preĝo. Se oni memo-rigas Lin pri Berto, eĉ povus okazi, ke Li, en sia senfina homamo, intervenos kaj preparos al li lokon en la Paradizo, kaj tiam Dio helpu nin! Neniu el ni ŝatus renkonti lin ankaŭ en la alia mondo, ĉu? Kaj Dio scias, kion tiu 94
-
-DEK DU AMRAKONTOJ
+La virinoj, kiuj kolektiĝis ĉiun posttagmezon ĉe Olga, la maljuna Olga, kaj gustumis siajn kunportitajn bak-aĵojn trinkante tason aŭ du da kafo, opiniiis, ke ne estas ideo preĝi por la animo de la memmortiginto. Neniu preĝo en la mondo povos eltiri lin el la damno de eterna fajro, ili ĉiuj konsentis pri tio. Se entute oni preĝu, estu kun la deziro, ke li restu tie pli longe ol eterne. Me-lisa, kiu eĉ preĝis por la animo de sia kato, kiam ĝi estis surveturita dum unu el siaj amorekskursoj, opiniis, ke oni ne ĝenu la Sinjoron per plej eta preĝo. Se oni memo-rigas Lin pri Berto, eĉ povus okazi, ke Li, en sia senfina homamo, intervenos kaj preparos al li lokon en la Paradizo, kaj tiam Dio helpu nin! Neniu el ni ŝatus renkonti lin ankaŭ en la alia mondo, ĉu? Kaj Dio scias, kion tiu
 
 
 Berto — eterne li estu damnita! — farus al la puraj kaj senkulpaj anĝelinoj? Ni ja ĉiuj scias, kion li faras al niaj junulinoj, por ne paroli pri ĉiuj edzinoj, ĉe kies fenestroj kaj pordoj oni vidis lin kaŝe eliri. Ho ve, ho ve! Vi scias ...
@@ -1864,9 +1578,7 @@ Sed unuopajn kazojn ili ne priparolis. Plej multaj preferis kaŝi la vundojn, ki
 
 Neniu demandis, kiam lia korpo estis trovita kaj de kiu. Ankaŭ ĝia sorto neniun interesis. ĉiuj supozis, ke tio estas afero de la polico kaj ke la entombigo okazos en nebenita tero; oni eĉ ne markos la lokon per kruco por malebligi, ke iu venu meti florojn sur ĝin aŭ venu priplo-ri la mortinton. Plej bone tiel, estis la ĝenerala opinio.
 
-Sed baldaŭ la intereso moviĝis en alian direkton. La 95
-
-DEK DU AMRAKONTOJ
+Sed baldaŭ la intereso moviĝis en alian direkton. La
 
 
 kokino de Selma, tiu kokino kun escepte grandaj ovoj, liveris ovon, en kiu estis alia, pli malgranda ovo, ankaŭ
@@ -1885,9 +1597,7 @@ Ne estas strange, ke mi neniam vidis Berton. Mi ja estis en la vilaĝo nur dum k
 
 ŝi kaj la edzo Popo ne havis proprajn infanojn; havi min ĉe si dum la somero donis al ili iom da gepatra plezuro.
 
-Onklo Popo, cetere, en la vero nomiĝis Petro Paŭlo, sed 96
-
-DEK DU AMRAKONTOJ
+Onklo Popo, cetere, en la vero nomiĝis Petro Paŭlo, sed
 
 
 ĉiuj nomis lin Popo laŭ la komencaj literoj de la nomo.
@@ -1900,9 +1610,7 @@ Jam la unuajn somerojn mi estis akceptita en la rondon de samaĝulaj knaboj, tie
 
 La rondo intertempe malgrandiĝis, iuj eklaboris alilo-ke, kelkaj ekstudis kaj pasigis la somerojn alie ol en la gepatra vilaĝo. Sed kvin aŭ ses el ni regule renkontiĝis en la vesperoj kaj priparolis ”aktualaĵojn”. Mi ne asertus, ke ni estis tre malsimilaj al la kafsesopo ĉe Olga, almenaŭ ne laŭ la temoj de niaj priparoloj. Berto estis, kun tute klara enviemo, ofte la ĉeftemo, sed ne mankis kom-entoj pri la rondaĵoj de unu aŭ alia junulino, speciale, kiam la rondaĵo estis la ventro, kiu pli kaj pli klare evi-dentigis, kio estis la tempopasigilo de la koncerna junulino. Kaj de Berto, kompreneble. Almenaŭ laŭ ĉies onidiroj.
 
-Onklino Dana ne same certis, ke Berto kulpas pri ĉiuj rondaj ventroj. Almenaŭ en kelkaj kazoj ŝi rimarkis, ke iuj pariĝis malantaŭ la dorsoj de la gepatroj, tute senkul-pe en la komenco, sed eble ne same senkulpa estis la daŭrigo. Kaj ĉar la gepatroj, kiel konate, ne ŝatas tiaspe-cajn surprizojn, ne ĉiam oportunis nomi la semanton. Je manko de nomo aŭtomate la nomo de Berto aktualiĝis 97
-
-DEK DU AMRAKONTOJ
+Onklino Dana ne same certis, ke Berto kulpas pri ĉiuj rondaj ventroj. Almenaŭ en kelkaj kazoj ŝi rimarkis, ke iuj pariĝis malantaŭ la dorsoj de la gepatroj, tute senkul-pe en la komenco, sed eble ne same senkulpa estis la daŭrigo. Kaj ĉar la gepatroj, kiel konate, ne ŝatas tiaspe-cajn surprizojn, ne ĉiam oportunis nomi la semanton. Je manko de nomo aŭtomate la nomo de Berto aktualiĝis
 
 
 kaj ne helpis, ke la junulino neis tion. Fakte, ju pli ener-gie ŝi neis, des pli forta estis la konv, ke Berto estas la kulpulo. Lin mem neniu demandis; li ja neniam estis hejme kaj, cetere, li certe ankaŭ mem neus.
@@ -1915,24 +1623,18 @@ Alion, ol renkonti tiujn samaĝulojn, manĝi kaj dormi, mi apenaŭ faris. Nu ja,
 
 Kaj tie mi sidis aŭ kuŝis, profundiĝante en la francan historion kaj en la vivon kaj amaferoj de la tiatempa no-belaro.
 
-Sed ankaŭ de tio oni tediĝas. Tiam mi vizitis onklon Popon en la koopera butiko kaj ŝajnigis helpi lin. Verdire mi pli ĝenis ol helpis, sed li ŝajnis aprezi miajn vizitojn, ĉar ne ĉiam estis klientoj en la butiko. Miaj vizitoj ja an-kaŭ donis al li eblecon foriri de la kasaparato kaj iom 98
-
-DEK DU AMRAKONTOJ
+Sed ankaŭ de tio oni tediĝas. Tiam mi vizitis onklon Popon en la koopera butiko kaj ŝajnigis helpi lin. Verdire mi pli ĝenis ol helpis, sed li ŝajnis aprezi miajn vizitojn, ĉar ne ĉiam estis klientoj en la butiko. Miaj vizitoj ja an-kaŭ donis al li eblecon foriri de la kasaparato kaj iom
 
 
 ordigi inter la bretoj kaj en la stokejo. Alian helpon li ne kutimis ricevi de mi.
 
 Pli helpema estis onklino Dana. Hejme ŝi prizorgis la kokinojn, la verdaĵĝardenon ĉe la domo kaj relative grandan kampon pli longe for. ŝia plej granda intereso estis tamen la floroj, al kiuj ŝi dediĉis almenaŭ du horojn da atento ĉiun tagon. Laŭlonge de unu el la dommuroj ŝi havis siajn rozojn, dekon da ili, ĉiu de malsama speco, tiel ke ĉiam dum la somero minimume unu el ili estis floranta. Sur la balkono, sub ĝi kaj en ĉiuj fenestroj estis potoj kun plej diversaj florspecoj kaj pri ĉiu el ili ŝi havis historieton.
 
-Mi diris, ke onklino Dana estis pli helpema. Unu- aŭ dufoje semajne ŝi kaj Popo listigis, kion oni devos alaĉeti por la butiko. La tagon poste ŝi prenis aŭtobuson al la centra koopera stokejo en la urbo kaj mendis laŭ la listo. Ne malofte ŝi aldone prenis varojn, kiujn ŝi hazarde trovis tie: glasojn kaj telerojn, manĝilaron, somerseĝojn, vintre neĝoŝovelilojn, varmajn vestaĵojn. ŝi ĉiam bone trafis kaj la varoj post nur kelkaj tagoj troviĝis en la vila-
-
-ĝaj domoj. Tiun saman laboron Popo povus esti aran-
+Mi diris, ke onklino Dana estis pli helpema. Unu- aŭ dufoje semajne ŝi kaj Popo listigis, kion oni devos alaĉeti por la butiko. La tagon poste ŝi prenis aŭtobuson al la centra koopera stokejo en la urbo kaj mendis laŭ la listo. Ne malofte ŝi aldone prenis varojn, kiujn ŝi hazarde trovis tie: glasojn kaj telerojn, manĝilaron, somerseĝojn, vintre neĝoŝovelilojn, varmajn vestaĵojn. ŝi ĉiam bone trafis kaj la varoj post nur kelkaj tagoj troviĝis en la vilaĝaj domoj. Tiun saman laboron Popo povus esti aran-
 
 ĝinta per simpla telefonmendo, sed en tiu kazo mankus en la butiko la kromaj kompletigoj, kiujn onklino Dana aranĝis; tial ŝi daŭrigis siajn ĉiusemajnajn vizitojn al la urbo.
 
-Ankaŭ mia helpo al ŝi estis pli teoria ol praktika. Mi ja helpetis pluki pizojn por la manĝoj, purigi laktukon aŭ 99
-
-DEK DU AMRAKONTOJ
+Ankaŭ mia helpo al ŝi estis pli teoria ol praktika. Mi ja helpetis pluki pizojn por la manĝoj, purigi laktukon aŭ
 
 
 senŝeligi terpomojn, akvumi la rozojn, se ŝi petis min, sed tio vere ne trolacigis min. Mi gardis min kuniri al la pli fora kampo, ĉar tie atendus min pli peza laboro kaj
@@ -1945,9 +1647,7 @@ La virinoj, kiuj vizitis ŝin, venis plej ofte unuope. Pluraj kaptis la okazon h
 
 Iliaj interparoloj tuŝis ĉiutagaĵojn, sed ja okazis, ke la nomo de Berto estis menciita. uste en unu el tiaj okazoj onklino Dana eldiris, ke li ne nepre kulpas pri ĉiuj rondaj ventroj en la vilaĝo.
 
-Paroli pri rondaj ventroj en ĝuste tiu okazo ne estis tre oportune. Onklino Dana diris tion al Vanja, tre ofta vizi-tantino kaj plej proksima najbarino. Estis ĝenerale konata ŝia ĉagreno, ke eĉ post dek jaroj da geedzeco ŝi ne 100
-
-DEK DU AMRAKONTOJ
+Paroli pri rondaj ventroj en ĝuste tiu okazo ne estis tre oportune. Onklino Dana diris tion al Vanja, tre ofta vizi-tantino kaj plej proksima najbarino. Estis ĝenerale konata ŝia ĉagreno, ke eĉ post dek jaroj da geedzeco ŝi ne
 
 
 sukcesis gravediĝi. Tio estis ankaŭ tre ofta litanio inter la du virinoj, ambaŭ seninfanaj, fakte tiel ofta, ke ĝi tedis min. Onklino Dana provis ĝenerale konsoli la pli junan virinon, ke ŝi ne perdu la esperon, sed rimarkeble sen propra konv.
@@ -1964,9 +1664,7 @@ La du virinoj silentiĝis kaj dum minuto gapis al mi.
 
 ”Ki-kion vi diris?” preskaŭ ŝokite demandis onklino Dana.
 
-”Mi pardonpetas … mi bedaŭras … mi ne volis … mi pensis … por pruvi, ke ŝi ne estas sterila … ne, mi ne 101
-
-DEK DU AMRAKONTOJ
+”Mi pardonpetas … mi bedaŭras … mi ne volis … mi pensis … por pruvi, ke ŝi ne estas sterila … ne, mi ne
 
 
 scias, kion mi diras … forgesu, ke mi ion diris …” mi rapide elĵetis kaj pli kaj pli konfuziĝis.
@@ -1982,9 +1680,6 @@ Ke onklo Popo estis sterila, estis por mi novaĵo. Mi certas, ke mia patrino, li
 Antaŭ ol Vanja foriris, onklino Dana ĉirkaŭprenis ŝin kaj longe flustris ion en la orelon. Mi supozas, ke estis trankviligaj vortoj, kion ŝi certe bezonis post mia senpri-pensa eldiro.
 
 
-DEK DU AMRAKONTOJ
-
-
 Onklino Dana neniam poste menciis tiun por mi emba-rasan situacion kaj mi estis danka al ŝi pro tio. Vanja daŭre venis por la antaŭtagmeza kafogluto — tio estis rutino inter ili — sed mi ne estis vokita subenveni dum la unuaj du tagoj post la vortakcidento. La trian tagon mi jam estis denove akceptita en ilian socion kaj evidente pardonita.
 
 La nomon Berto mi ne kuraĝis eĉ susuri al ili, sed en mia junulgrupo ni komencis miri, kial neniam iu menciis lian entombigon. ĉu vere ĉe neniu el tiu tuta aro da virinoj restis plej malgranda amosento al li? Pri iaspeca amo ja devis temi, ĉu ne? Io alia ne estus pensebla en nia aĝo.
@@ -1995,9 +1690,7 @@ La langojn subite aktivigis la malapero de Agda, Agda la juna, fratino de Viktor
 
 Viktor ne emis multon rakonti pri tio kaj ni sekve ankaŭ ne aŭdis, kion oni pri tio diras en la kafsesopo ĉe Agda.
 
-Temis tamen pri plenkreska junulino, plurajn jarojn pli aĝa ol la frato. Laŭ kelkaj onidiroj estis nenio mistika en 103
-
-DEK DU AMRAKONTOJ
+Temis tamen pri plenkreska junulino, plurajn jarojn pli aĝa ol la frato. Laŭ kelkaj onidiroj estis nenio mistika en
 
 
 ŝia malapero, ŝi tutsimple forvojaĝis por trovi laboron ie.
@@ -2021,9 +1714,6 @@ Tiam mi memoris, ke onklino Dana estis forvojaĝinta al la urbo por siaj rutinaj
 ”Ne, mi tute forgesis ĝin. Mi sincere bedaŭras, ke mi diris ion tiel stultan. Vere.” Mi estis sincera.
 
 ”Mi kredas vin.”
-
-
-DEK DU AMRAKONTOJ
 
 
 ŝi rigardis suben al siaj ŝuoj kaj mi sekvis ŝian rigardon. Estis somersandaloj kaj la piedoj en ili senŝtrumpaj.
@@ -2054,12 +1744,7 @@ mi diris.
 
 Pang! La frazo trafis min kvazaŭ pugno en la vizaĝon.
 
-Nu, mi neniam ricevis pugnon en la vizaĝon, sed tio sentiĝis kiel pugno sentiĝus, mi certas pri tio. La frazo mem: ”gravedigu min!”. Nenio pri romantiko, amo, so-105
-
-DEK DU AMRAKONTOJ
-
-
-piroj, deziroj … Vere, mi estis sub la influo de la romanoj de Dumas, sed ankaŭ sen ili mia reago estus simila: ŝo-kiĝo, kaj mi certas, ke tio estis videbla sur mia nepugnita vizaĝo. Mi estis senvorta kaj evidente gapis al ŝi.
+Nu, mi neniam ricevis pugnon en la vizaĝon, sed tio sentiĝis kiel pugno sentiĝus, mi certas pri tio. La frazo mem: ”gravedigu min!”. Nenio pri romantiko, amo, sopiroj, deziroj … Vere, mi estis sub la influo de la romanoj de Dumas, sed ankaŭ sen ili mia reago estus simila: ŝo-kiĝo, kaj mi certas, ke tio estis videbla sur mia nepugnita vizaĝo. Mi estis senvorta kaj evidente gapis al ŝi.
 
 ”Pardonu mian demandon. Mi forgesis, ke mi estas jam maljuna virino.”
 
@@ -2075,9 +1760,7 @@ Nun estis preskaŭ paniko en ŝia voĉo.
 
 ”Jes, jes, mi promesas, absolute promesas!” mi rapide diris por trankviligi ŝin. Mi volus aldoni ion ĝentilan, por ke ŝi vere kredu min, sed mi estis daŭre iom ŝokita por povi elpensi ion.
 
-ŝi ripetis plurajn fojojn sian peton pri mia silento kaj mi same ofte ripetis miajn certigojn. Kiam ŝi pretis foriri, 106
-
-DEK DU AMRAKONTOJ
+ŝi ripetis plurajn fojojn sian peton pri mia silento kaj mi same ofte ripetis miajn certigojn. Kiam ŝi pretis foriri,
 
 
 mi vidis, ke ŝi tremas. Subite mi pensis, ke tia ŝi ne for-iru, ke ŝi bezonas ion trankviligan. Mi ankaŭ memoris, kio estis la origina kaŭzo de mia subenveno.
@@ -2105,9 +1788,6 @@ Vi devus vidi ŝian ruĝiĝon! Mi kredis, ke tio estas afero de virgaj knabineto
 ”Kion vi celas?” ŝi sukcesis eldiri.
 
 
-DEK DU AMRAKONTOJ
-
-
 ”Pri via demando. Pri infano.”
 
 Mi ne povus uzi la vorton ”gravedigi”, ne post la bato, kiun mi sentis en mi, kiam ŝi diris ĝin.
@@ -2132,9 +1812,7 @@ Nu, kaj tiel, dank’al Berto, la nekonata Berto, okazis mia seksa debuto. Ne kr
 
 Vanja daŭre venis al onklino Dana por sia kafogluto.
 
-Ni interkonsentis per neniu signo montri, kio okazas 108
-
-DEK DU AMRAKONTOJ
+Ni interkonsentis per neniu signo montri, kio okazas
 
 
 inter ni. Se pro io, la onklino devus miri, kial Vanja ne plu plendas pri la edzo. La interparoloj temis pri tute sendanĝeraj temoj, pri la floroj de onklino Dana, pri aliaj homoj en la vilaĝo.
@@ -2163,9 +1841,7 @@ Vi demandos vin certe, kiel sentiĝis esti en tiu rolo.
 
 Kaj kien malaperis ĉiuj vortoj pri amo kaj romantiko?
 
-Ili ne malaperis. La komenco estis iom subita, proza, se vi volas, sed baldaŭ mi amis Vanjan preter ĉio. Estis malfacile kaŝi tion, kiam aliaj ĉeestis, sed kaj ŝi kaj mi bone aktoris. Sed dum ni estis solaj — kaj tio estis tre 109
-
-DEK DU AMRAKONTOJ
+Ili ne malaperis. La komenco estis iom subita, proza, se vi volas, sed baldaŭ mi amis Vanjan preter ĉio. Estis malfacile kaŝi tion, kiam aliaj ĉeestis, sed kaj ŝi kaj mi bone aktoris. Sed dum ni estis solaj — kaj tio estis tre
 
 
 ofte — ni ne avaris pri amaj vortoj kaj karesoj. Iun fojon mi demandis Vanjan: ”Kial mi?”, je kio ŝi respondis:
@@ -2182,14 +1858,9 @@ La ventro estas tiu parto, kiun mi plej ŝatis ĉe ŝi. Rondeta, agrable glata, 
 
 Tre ofte post nia gekuŝado mi metis mian kapon sur ŝian ventron. ĉiam iu eta sono estis aŭdebla el ĝi kaj mi fantaziis, ke tie parteto de mi kaj eta parto de ŝi trovas unu la alian kaj kuniĝas, simile kiel ŝi kaj mi nur antaŭ nelonge kuniĝis, kaj ke tio, kion mi aŭdas, estas ĝuste la sono de tiu kuniĝo.
 
-Ni neniam parolis pri ŝia edzo. Mi ja demandis min, ĉu ŝi gekuŝas ankaŭ kun li, sed mi ne volis scii. Mi preferis trompi min, ke ŝi tenas lin for de si, sed mi sciis, ke tio estis nur memtrompo. Mi ankaŭ konsciis, ke li estos laŭ-
-
-leĝe patro de tiu infano — se estos iu infano, ni ja ĝis nun ne sukcesis en tio — kaj ke mi devos forgesi ĉion pri
+Ni neniam parolis pri ŝia edzo. Mi ja demandis min, ĉu ŝi gekuŝas ankaŭ kun li, sed mi ne volis scii. Mi preferis trompi min, ke ŝi tenas lin for de si, sed mi sciis, ke tio estis nur memtrompo. Mi ankaŭ konsciis, ke li estos laŭleĝe patro de tiu infano — se estos iu infano, ni ja ĝis nun ne sukcesis en tio — kaj ke mi devos forgesi ĉion pri
 
 ĝi, mi ja promesis tion.
-
-
-DEK DU AMRAKONTOJ
 
 
 Tiel venis la fino de mia somera ferio. Mi prokrastis la hejmeniron ĝis la lasta ebla tago — neniam pli frue mi faris tion —, sed fine mi devis reiri al la urbo. is la lasta ebla momento Vanja kaj mi faris niajn klopodojn. Ni jam ne plu parolis pri iaj ĝemeloj, eĉ signo de plej malgranda rano estus bonvena.
@@ -2212,12 +1883,7 @@ Mi provis nei, sed ŝi silentigis min.
 
 Larmige, ĉu ne? Tiel sentiĝis kaj vi povas esti certa, ke mi kun tre granda bedaŭro reiris al la grandurbo.
 
-Malofte venas informoj de onklino Dana. Iel ŝi ne lernis uzi la telefonon, nur rektaj informoj kalkuliĝas. Okazas, kiam ŝi venas al la urbo por la rutinaj mendoj por la ko-111
-
-DEK DU AMRAKONTOJ
-
-
-opera butiko, ke ŝi preterpasas ĉe ni. ŝi ĉiam kunportas ion: freŝajn verdaĵojn, propran kokidon, skatolon da ovoj. Hieraŭ ŝi kunportis poton kun floroj. Estis balzamino, jam du decimetrojn alta, kaj ĝi estis por mi. Sendis ĝin Vanja kaj laŭ tio, kion onklino Dana diris, mi helpis semi balzaminojn kaj devas sekve ricevi unu el ili kiel dankon.
+Malofte venas informoj de onklino Dana. Iel ŝi ne lernis uzi la telefonon, nur rektaj informoj kalkuliĝas. Okazas, kiam ŝi venas al la urbo por la rutinaj mendoj por la koopera butiko, ke ŝi preterpasas ĉe ni. ŝi ĉiam kunportas ion: freŝajn verdaĵojn, propran kokidon, skatolon da ovoj. Hieraŭ ŝi kunportis poton kun floroj. Estis balzamino, jam du decimetrojn alta, kaj ĝi estis por mi. Sendis ĝin Vanja kaj laŭ tio, kion onklino Dana diris, mi helpis semi balzaminojn kaj devas sekve ricevi unu el ili kiel dankon.
 
 Mi komprenis, ke tio ne estis simpla donaco, ĉar mi neniam helpis al Vanja semi iujn florojn, sed iaspeca mesaĝo. Sur la florpoto estis gluita la saketo, en kiu venis la semoj, kaj la latina nomo de balzamino estis sub-strekita: *impatiens noli-tangere. *
 
@@ -2231,9 +1897,7 @@ Mi senpolvigis miajn konojn de la latina. Mi trovis kaj
 
 ”Agda kaj Berto,” ŝi fine diris.
 
-Je tio mia patrino kaj mi samtempe ekkriis: ”ĉu li ne mortis? ĉu ŝi ne estas tro maljuna?” kaj mi ne memoras, 112
-
-DEK DU AMRAKONTOJ
+Je tio mia patrino kaj mi samtempe ekkriis: ”ĉu li ne mortis? ĉu ŝi ne estas tro maljuna?” kaj mi ne memoras,
 
 
 kiu el ni diris kiun frazon. Tiam onklino Dana ekridis tiel, kiel mi neniam aŭdis ŝin pli frue. Kiam ŝi sukcesis trankviligi sin, ŝi klarigis, ke ne temis pri la maljuna Agda, sed pri la nepino, kaj ke Berto evidente ne mortis, se li intencis edziĝi.
@@ -2248,9 +1912,7 @@ Mi miris, kion diros la aliaj junulinoj, kiujn li laŭdire delogis, kiam li ne e
 
 ”Sed ĉu li ne mortigis sin mem?” mia patrino denove insistis.
 
-”Evidente ne, sed tio estis radikala solvo por malebligi, ke ĉies pekoj daŭre estu pendigitaj sur lin: ĉiuj sur-prizaj rondaj ventroj, ĉiuj ekstergedziĝaj ligoj. Eĉ pri la 113
-
-DEK DU AMRAKONTOJ
+”Evidente ne, sed tio estis radikala solvo por malebligi, ke ĉies pekoj daŭre estu pendigitaj sur lin: ĉiuj sur-prizaj rondaj ventroj, ĉiuj ekstergedziĝaj ligoj. Eĉ pri la
 
 
 benita stato de Vanja iu volis doni al Berto la honoron, malgraŭ tio, ke ĉiuj kredis lin jam en la alia mondo.”
@@ -2273,19 +1935,11 @@ Oni devis voki policon kaj dum semajno oni tenis lin en karcero. Sed tio ne grav
 
 *Impatiens. Noli tangere. * Mi fine komprenis la mesaĝon.
 
-Onklino Dana estis preta por foriri, sed mi devus an-kaŭ mem sendi mesaĝon. Kion diri, por ke nur Vanja komprenu? Io, kion la onklino pludiru pli-malpli laŭvor-114
-
-DEK DU AMRAKONTOJ
-
-
-te? Mi ne havis multajn minutojn je dispono. ĉio, kion mi elpensis estis:
+Onklino Dana estis preta por foriri, sed mi devus an-kaŭ mem sendi mesaĝon. Kion diri, por ke nur Vanja komprenu? Io, kion la onklino pludiru pli-malpli laŭvorte? Mi ne havis multajn minutojn je dispono. ĉio, kion mi elpensis estis:
 
 ”Diru miajn bondezirojn kaj gratulojn al Vanja. Kaj ne forgesu danki ŝin pro la sendita florpoto. Diru ankaŭ, ke mi pretos semi ankoraŭ foje, se ŝi bezonos mian helpon.”
 
 **Franko Luin**
-
-
-DEK DU AMRAKONTOJ
 
 
 Iun ĵaŭdon
@@ -2296,9 +1950,7 @@ La restoracio senhomiĝis iom post iom. Familie la servistino iris de tablo al t
 
 Maurice Laubier trinkis malrapide la sengustan kafon, kiu tamen odoris je cikorio kaj lavakvo. Li restis ĉe la tablo kun vaga impreso de malagrablo kaj soleco. Kial li sentis sin subite tiel perdita en Parizo? Li ja vivis tie de tri jaroj!
 
-Lia kamarado Pierre Marot donis al li amikan batpu-
-
-ŝon:
+Lia kamarado Pierre Marot donis al li amikan batpuŝon:
 
 —Nu, Laubier, ĉu vi estas sur la luno? Vi ŝajnas esti en alia mondo!
 
@@ -2308,9 +1960,7 @@ La juna viro ekskuiĝis.
 
 Marot levis malrapide la ŝultrojn:
 
-—Li pravas, via patro. Kiam oni havas la honoron po-sedi familion kaj ke ili demandas pri vi, oni devas tien iri 116
-
-DEK DU AMRAKONTOJ
+—Li pravas, via patro. Kiam oni havas la honoron po-sedi familion kaj ke ili demandas pri vi, oni devas tien iri
 
 
 … Mi ĵuras, ke mi ne lasus min peti, se mi havus tian okazon.
@@ -2333,12 +1983,7 @@ Oni ne plu pensas al ŝi.
 
 Sed Laubier jam grandpaŝe foriris. Verdire li forgesis, ke estas ĵaŭdo. Tiu letero de lia patro forgesigis al li la konon de la semajntago. Tamen la urbo ne plu ŝajnis alloga. Nu, ĉu li revenu al la malgranda fabriko, laboru kune kun la patro? Devas esti Marinette, kiu mankas al li. Tia terura impreso de infano perdita en granda urbo, kian li sentis de antaŭ kelkaj semajnoj … post kiam la knabino ne plu estas tie. Li vidis antaŭ si tiun malgrandan studentinon pri farmacio, kiu diris:
 
-—Maurice, ĉu mi povos eniri en vian fabrikon kaj dozi miksaĵojn, kiam mi finis miajn studojn? Mi estus tiel feli-
-
-ĉa, se mi tuj havus laboron.
-
-
-DEK DU AMRAKONTOJ
+—Maurice, ĉu mi povos eniri en vian fabrikon kaj dozi miksaĵojn, kiam mi finis miajn studojn? Mi estus tiel feliĉa, se mi tuj havus laboron.
 
 
 Li ankaŭ rememoris tiun vesperon, kiam ŝi eliris el la malfermita aŭtomobilo de ”sinjoro Cramail”, la filo de la granda ĉokoladfabrikestro.
@@ -2355,12 +2000,7 @@ Li aĉetis bukedon da simplaj floroj, tiaj kiaj kreskas en la ĝardeno de liaj g
 
 Li konis la vojon al la salono en la malsanulejo, kie kuŝis la knabino, kaj iris rekte tien pasante sur ŝtuparoj kaj tra koridoroj … Rideto ludis sur liaj lipoj, li metis sian bukedon sub la brakon, por ke li havu du manojn por preni tiujn de Marinette.
 
-En la salono la lito estis senenhava … Terura kaptur-118
-
-DEK DU AMRAKONTOJ
-
-
-no ekkaptis la junan viron; ŝajnis al li kvazaŭ lia cerbo estus subite pumpita, eltrinkita tra la nuko kiel de kokino, kiun mortkaptis forkego … li haltis ĉe la pordo, la kruroj estis molaj … Flegistino preterpasis … Li demandis:
+En la salono la lito estis senenhava … Terura kapturno ekkaptis la junan viron; ŝajnis al li kvazaŭ lia cerbo estus subite pumpita, eltrinkita tra la nuko kiel de kokino, kiun mortkaptis forkego … li haltis ĉe la pordo, la kruroj estis molaj … Flegistino preterpasis … Li demandis:
 
 —Fraŭlino … la lito dek du … ĉu ŝi resaniĝis?
 
@@ -2382,9 +2022,7 @@ Li rigardis stultege la belajn bluajn florojn, tiel delikate bluajn, kiujn li ha
 
 —ĉu vi ne venis por viziti la malgrandan studentinon, sinjoro? ĉar la vetero estas tiel bela, ni elkondukis multajn malsanulojn en la ĝardenon. Iru rigardi, ĉu la knabino, kiun vi serĉas, estas tie.
 
-Sendube estas maniero por forsendi la homojn, por ke ili ne ploru en la salonoj … Tamen la obstina espero ree 119
-
-DEK DU AMRAKONTOJ
+Sendube estas maniero por forsendi la homojn, por ke ili ne ploru en la salonoj … Tamen la obstina espero ree
 
 
 naskiĝis en la fundo de lia animo. Li malsupreniris. La
@@ -2403,9 +2041,7 @@ Paĉjo volus, ke mi revenu hejmen. ĉu vi volas iri tien kun mi? ĉar … mi …
 
 **F. de Baillehache**
 
-* Eva Julin* 120
-
-DEK DU AMRAKONTOJ
+* Eva Julin*
 
 
 Ses leteroj
@@ -2418,18 +2054,14 @@ Vi certe miras, ke mi skribas al vi. Certe, post la hieraŭa vespero vi meritas,
 
 viroj estas ja tiel vantaj — cetere mi ne povus ĉion tele-fone klarigi, kion mi ŝatas diri al vi. Fine mi forgesis ke vi tute ne havas telefonon. Do mi skribas. Por klarigi ĉion plej koncize, mi memorigos, kio okazis inter ni hieraŭ vespere.
 
-En la Esperanta klubo vi faris hieraŭ interesan paroladon pri la temo: ”ĉu ekzistas platona amo?” Mi sekvis la paroladon kun grandega atento, jes, mi devas konfesi, ke mi admiris la elokventecon kaj subtilecon, kun ia vi traktis tiel delikatan temon. Mi sentis, ke en vi kaŝiĝis ĝis nun idealisto, kiu hieraŭ montriĝis unuafoje kaj kaŭzis pli viglan batadon de mia koro. is nun mi estimis vin nur kiel idealan samideanon, kiu batalis por nia kara afero. Kaj hieraŭ mi konstatis, kia idealisto vi estas sur 121
-
-DEK DU AMRAKONTOJ
+En la Esperanta klubo vi faris hieraŭ interesan paroladon pri la temo: ”ĉu ekzistas platona amo?” Mi sekvis la paroladon kun grandega atento, jes, mi devas konfesi, ke mi admiris la elokventecon kaj subtilecon, kun ia vi traktis tiel delikatan temon. Mi sentis, ke en vi kaŝiĝis ĝis nun idealisto, kiu hieraŭ montriĝis unuafoje kaj kaŭzis pli viglan batadon de mia koro. is nun mi estimis vin nur kiel idealan samideanon, kiu batalis por nia kara afero. Kaj hieraŭ mi konstatis, kia idealisto vi estas sur
 
 
 la tereno de la amo. Sed ho vi, kian malĝojan sperton mi poste devis travivi!
 
 Post la kunveno, kiam vi akompanis min hejmen, mi havis la subitan deziron ankoraŭ babili kun vi pri tiu delikata temo, kaj ĉar vi ja estas samideano, mi simple invitis vin preni ankoraŭ tason da teo en mia loĝejo. Ni estis solaj. Mi opinias, ke tiu intima kunestado duope estas tre agrabla, kiam oni volas babili kun bona amiko, kian mi vidis en via persono ĝis hieraŭa tago. Mi verŝis teon en vian tason kaj vi ankaŭ ne rifuzis glaseton da Esperanto-likvoro, kiun mi hazarde aĉetis dum la lasta internacia kongreso. Mi alportis diversajn fotografaĵojn kaj leterojn de miaj multaj eksterlandaj amikoj, kun kiuj mi korespondas tre intime, kaj ni esploris la demandon, ĉu homo povas enamiĝi pere de Esperanta koresponda-do kaj ĉu tia enamiĝo estas pure platona, neseksa. Speciale interesis nin leteroj de junulo el Ameriko, kaj kiam vi komencis laŭtlegi liajn pasiajn amkonfesojn, vi subite ĉirkaŭprenis min kaj komencis min kisi... Vi kisis min kiel frenezulo … Kaj nur poste, kiam vi jam forlasis mian domon, mi konsciiĝis pri tio, ke mi forgesis vangfrapi vin pro tiel senhonta impertinenteco!
 
-Kaj tial mi skribas al vi. Jes, mi sendas al vi per tiu ĉi letero simbolan vangfrapon, vi hontu pro via hieraŭa konduto! Mi ne scias, kun kiaspecaj virinoj vi ĝis nun rilatis. ĉiuokaze koncerne mian personon vi tre eraras, sinjoro! Mi ne apartenas al tiuj virinoj, kiajn oni facile 122
-
-DEK DU AMRAKONTOJ
+Kaj tial mi skribas al vi. Jes, mi sendas al vi per tiu ĉi letero simbolan vangfrapon, vi hontu pro via hieraŭa konduto! Mi ne scias, kun kiaspecaj virinoj vi ĝis nun rilatis. ĉiuokaze koncerne mian personon vi tre eraras, sinjoro! Mi ne apartenas al tiuj virinoj, kiajn oni facile
 
 
 per kisoj kaj belaj paroloj povas akiri kaj sklavinigi por siaj voluptaj kapricoj … Mi ne estas malmoderna virino, kiel vi eble nun post mia letero vidos en mi. Mi ne estas kontraŭ tio, ke iu sinjoro enamiĝu al mi. Sed enamiĝo tute ne rajtigas kavaliron konduti tiel senhonte kaj ag-resive, kiel kondutis vi, sinjoro doktoro!
@@ -2448,9 +2080,7 @@ Kara sinjoro doktoro!
 
 Mi ne scias, ĉu vi ricevis mian leteron, kiun mi skribis al vi antaŭ unu semajno. ĉiuokaze mi skribas al vi ankoraŭfoje kaj sendas la leteron rekomendite, por esti certa, ke ĝi atingos vin.
 
-Estus tre malfacile por mi ĉion detale ripeti, kion mi 123
-
-DEK DU AMRAKONTOJ
+Estus tre malfacile por mi ĉion detale ripeti, kion mi
 
 
 skribis antaŭ semajno al vi. Mi volis klarigi al vi, ke vi iom eraris en mia persono dum tiu komuna vespero, kiun ni pasigis en mia loĝejo. Mi ne estas tia virino, kian oni povas senskrupule kisadi kaj trakti kiel ludilon, por kontentigi siajn pasiajn avidojn... Kaj mi volis diri al vi, ke vera samideano ne kondutas tiel, kiel vi kondutis en tiu vespero. Almenaŭ ni Esperantistoj estu inter ni kamaradoj, kiuj amas sin platone pro la nomo de bela ideo, kiu ĉiujn nin ligas!
@@ -2469,9 +2099,7 @@ Kara doktoro!
 
 Mi konstatas, ke estas tre simpatie de via flanko, ke vi
 
-ĝis nun ne respondis miajn leterojn. Via silento estas por mi klara pruvo, ke vi konscias pri via malkorekta ago kaj 124
-
-DEK DU AMRAKONTOJ
+ĝis nun ne respondis miajn leterojn. Via silento estas por mi klara pruvo, ke vi konscias pri via malkorekta ago kaj
 
 
 nun ne volas min denove ĝeni. Mi komprenas, ke via nobla animo simple hezitas aŭ ne povas ankoraŭ trovi la vojon al reciproka paciĝo. Mi volas certigi vin, kara doktoro, ke mi ne plu ĉagreniĝas! Mi serĉis vin lastfoje en la klubo por diri tion al vi, sed vi ne venis. ĉu vere mi estas la kaŭzo, ke vi ne vizitas plu la Esperantajn kunve-nojn? Mi treege tion bedaŭrus, kaj jam pro nia komuna verda afero mi pardonas al vi. Mi eĉ regajnis mian mal-novan konfidon al vi kaj estus preta denove inviti vin (mi ĵus ricevis novan provizon da Esperanto-likvoro).
@@ -2484,9 +2112,7 @@ Plej korajn salutojn de via atendanta *Mary*
 
 Kara sinjoro Johano!
 
-Kio verdire okazis? Kial vi ne estis hieraŭ en la dancejo? ĉu vi estas ofendita? Sed tio ja estus infanaĵo de via flanko! Ni ja estis ĉiam bonaj gekamaradoj, mi bone memoras la lastan Esperantobalon, dum kiu vi dancis kun mi preskaŭ ĉiun dancon... Kaj la malagrablan epizodon dum tiu nia komuna estado en mia loĝejo mi jam de 125
-
-DEK DU AMRAKONTOJ
+Kio verdire okazis? Kial vi ne estis hieraŭ en la dancejo? ĉu vi estas ofendita? Sed tio ja estus infanaĵo de via flanko! Ni ja estis ĉiam bonaj gekamaradoj, mi bone memoras la lastan Esperantobalon, dum kiu vi dancis kun mi preskaŭ ĉiun dancon... Kaj la malagrablan epizodon dum tiu nia komuna estado en mia loĝejo mi jam de
 
 
 longe forgesis. Vi same forgesu ĝin! Bedaurindulo mia, kiom vi devas suferi pro tia malsaĝa ago! Mi konfesas, ke la Esperanto-likvoro efektive estas iom forta kaj efikas speciale al la temperamento. Eble ankaŭ kulpis la tro pasiaj amkonfesoj de tiu amerika junulo, kiujn vi laŭtlegis al mi, eble ankaŭ miaj harbukloj tro tikle karesis viajn vangojn (mi memoras, ke ni komune legis la leteron proksimigante niajn kapojn tre intime), jes, ĉio senkul-pigas vin!
@@ -2501,9 +2127,7 @@ Via
 
 Kara Johano!
 
-Vi denove ne venis. Mi ne povas kompreni vian konduton. Pardonu, ke mi riproĉas al vi kaj kritikas vian ag-manieron. ĉu ne estas malĝentilaĵo ne respondi al miaj leteroj kaj ne veni je fiksitaj rendevuoj? Sed konante vin 126
-
-DEK DU AMRAKONTOJ
+Vi denove ne venis. Mi ne povas kompreni vian konduton. Pardonu, ke mi riproĉas al vi kaj kritikas vian ag-manieron. ĉu ne estas malĝentilaĵo ne respondi al miaj leteroj kaj ne veni je fiksitaj rendevuoj? Sed konante vin
 
 
 kiel ĝentilulon mi supozas, ke io okazis, kio kaŭzas vian silentadon.
@@ -2531,21 +2155,13 @@ Venu, kara mia! Mi atendas! Venu!
 *Mary*
 
 
-DEK DU AMRAKONTOJ
-
-
 ***Epilogo***
 
-”Karulo!” diris la bela eleganta Esperantistino Mary malfermante la pordon de sia loĝejo kaj preskaŭ sven-ante falis en la brakojn de la belkreska ridetanta doktoro Johano, kiu tenis en la mano grandegan bukedon da ru-
-
-ĝaj rozoj. Ili kisis sin longe kaj pasie. Poste, kiam la ruĝaj rozoj staris sur la tablo, kiam ili levis la glasetojn kun la Esperanto-likvoro, ŝi demandis: ”Joĉjo, diru, kial vi ne respondis al miaj leteroj?”
+”Karulo!” diris la bela eleganta Esperantistino Mary malfermante la pordon de sia loĝejo kaj preskaŭ sven-ante falis en la brakojn de la belkreska ridetanta doktoro Johano, kiu tenis en la mano grandegan bukedon da ruĝaj rozoj. Ili kisis sin longe kaj pasie. Poste, kiam la ruĝaj rozoj staris sur la tablo, kiam ili levis la glasetojn kun la Esperanto-likvoro, ŝi demandis: ”Joĉjo, diru, kial vi ne respondis al miaj leteroj?”
 
 ”Kara mia!” respondis la doktoro kaj ridetis fripone-te, ”ĉu mi nun troviĝus ĉi tie en via loĝejo kaj povus vin kisi kaj karesi senfine, se mi respondus al viaj leteroj?”
 
 **Jean Forge**
-
-
-DEK DU AMRAKONTOJ
 
 
 Duona paperfolio
@@ -2554,9 +2170,7 @@ La lasta meblotransporto jam iris: la luanto, juna viro kun funebra krepo sur la
 
 Li deprenis la folion; estis sunflava malnetpapero, kiu reflektas la lumon. Li metis ĝin sur la apogon de la sal-ona kahelforno kaj, klinita super ĝi, li legis ĝin. Unue estis notita ŝia nomo: Alice, la plej bela nomo, kiun li tiam konis, ĉar estis la nomo de lia fianĉino. Kaj la numero — 151.1. Aspektis kiel psalmonumero en la preĝejo.
 
-Sub tio: Banko. Estis lia laborejo, la sankta laboro, kiu donis la panon, hejmon kaj la edzinon; la bazon por la ekzisto. Sed ĝi estis forstrekita! ĉar la banko bankrotis, 129
-
-DEK DU AMRAKONTOJ
+Sub tio: Banko. Estis lia laborejo, la sankta laboro, kiu donis la panon, hejmon kaj la edzinon; la bazon por la ekzisto. Sed ĝi estis forstrekita! ĉar la banko bankrotis,
 
 
 sed li saviĝis al alia banko, sed post mallonga periodo kun multa malkvieto.
@@ -2571,16 +2185,11 @@ Biletejo de la operejo: 50.50. Ili estas novgeedzoj kaj iras al la operejo en la
 
 ĉi tie sekvas vira nomo, kiu estas forstrekita. Estis amiko, kiu atingis iom altan pozicion en la socio, sed ne povis elteni la feliĉon kaj falis, senhelpe, kaj devis veturi longen for. Tiel fragile estas!
 
-ĉi tie io nova aperis en la vivo de la geedzoj. Estas skribite, per virina mano kaj krajono: ”La virino”. Kiu virino? — Ja, ŝi kun la granda mantelo kaj ĝentila kompata vizaĝo, kiu venis tiel silente kaj neniam iris tra la salono, sed ĉiam uzis la koridoron por atingi la dormo-
-
-ĉambron.
+ĉi tie io nova aperis en la vivo de la geedzoj. Estas skribite, per virina mano kaj krajono: ”La virino”. Kiu virino? — Ja, ŝi kun la granda mantelo kaj ĝentila kompata vizaĝo, kiu venis tiel silente kaj neniam iris tra la salono, sed ĉiam uzis la koridoron por atingi la dormoĉambron.
 
 Sub ŝia nomo estas notita Doktoro L.
 
 Por la unua fojo aperas ĉi tie la nomo de parenco. Estas skribite ”Panjo”. Estas la bopatrino, kiu diskrete tenis sin flanke por ne ĝeni la novgeedzojn, sed estis nun vokata en momento de bezono kaj venas ĝoje, ĉar ŝi estas bezonata.
-
-
-DEK DU AMRAKONTOJ
 
 
 ĉi tie komenciĝas granda skribaĉado per blua kaj ruĝa krajonoj. Komisiejo: la virino foriris aŭ novan oni dun-gos. Apoteko. Hm! Malheliĝas! Laktocentralo. Tie oni mendas lakton, sentuberkulozan.
@@ -2602,9 +2211,6 @@ Li ne estis kurbita, kiam li eliris; li kontraŭe tenis sian kapon alta, kiel fe
 **August Strindberg**
 
 *Tradukis Franko Luin*
-
-
-DEK DU AMRAKONTOJ
 
 
 www.omnibus.se/

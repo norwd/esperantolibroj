@@ -26,11 +26,6 @@ LA MALBABELA JARO
 *http://www.omnibus.se/*
 
 
-### 2
-
-LA MALBABELA JARO
-
-
 Kelkaj rimarkoj de la aŭtoro
 
 ĉar la taglibra beletro ne jam estas firme ankrita en la tradicio kaj konscio de legantoj en nia spirita kaj por aliaj eble virtuala Esperantujo, ne povas damaĝi, se mi diras kelkajn vortojn enkonduke al mia dua taglibro, aperanta en Esperanto kiel mia paralela literatura lingvo.
@@ -39,16 +34,9 @@ Unuflanke la taglibro estas la plej ’natura’ formo de beletra esprimiĝo. i 
 
 ĝenro subtaksas. Aliflanke, ĝi havas avantaĝon kaj allogon de aŭtento, de spontaneo, se oni ĝin notas sincere kaj senspeku-lacie, nature.
 
-La risko, kiun eniras ĉiu aŭtoro, publikiganta siajn taglib-rajn notojn, troviĝas ne nur en malkovro de lia privata kaj foje eĉ intima eta mondo, sed precipe, ke literature ne tro spertaj aŭ eĉ iom naivaj legantoj (˛o, eĉ kelkaj recenzistoj!) tro fikse portretas en sia fantazio la imagon kaj karakteron de la aŭ-
+La risko, kiun eniras ĉiu aŭtoro, publikiganta siajn taglib-rajn notojn, troviĝas ne nur en malkovro de lia privata kaj foje eĉ intima eta mondo, sed precipe, ke literature ne tro spertaj aŭ eĉ iom naivaj legantoj (˛o, eĉ kelkaj recenzistoj!) tro fikse portretas en sia fantazio la imagon kaj karakteron de la aŭtoro laŭ tio, kion ili legis en lia taglibro. Por la aŭtoro multaj aferoj, kiujn li honeste notis, havis validon eble nur pormo-mente, probable la valido estis nur efemera, sed kelkiu bonkora naivulo simple identigas la legitan frazon kun la aŭtoro, senlige, kiom da tempo jam pasis inter la momento de notado kaj momento de legado. Tiel mi per unu okulo amuziĝis kaj
 
-toro laŭ tio, kion ili legis en lia taglibro. Por la aŭtoro multaj aferoj, kiujn li honeste notis, havis validon eble nur pormo-mente, probable la valido estis nur efemera, sed kelkiu bonkora naivulo simple identigas la legitan frazon kun la aŭtoro, senlige, kiom da tempo jam pasis inter la momento de notado kaj momento de legado. Tiel mi per unu okulo amuziĝis kaj
-
-per la alia preskaŭ triste ploris, kiam mi post la apero de mia unua taglibro *Jen la sablo el mia klepsidro*, ĉe iu recenzisto le-3
-
-LA MALBABELA JARO
-
-
-gis, ke mi estas bigoto. Li tion konkludis ne el komparo inter miaj vortoj kaj miaj agoj, ja li min ne konis kaj do tiun kom-paron ne povis tiri. Simple, ĉar mi menciis kelkloke nociojn el religia kampo, foje raportis pri mia religia praktiko ktp., la ĉarma fanatikulo de la ateisma religio tion jam komprenis kiel bigotado. Mi per tio ne volas diri aŭ eĉ pruvi, ke mi ne estas bigoto. Eble aŭ eĉ verŝajne mi tio estas. Nur: la simpatia simplulo de la alia riverflanko tion ne povas scii, ĉar li min ne konas — kaj eĉ se li tion scius kaj en sia prijuĝo pravus, tio ne estas temo de serioza recenzo. Oni ne recenzas aŭtorojn kaj ilian moralon, sed librojn kaj ilian kvaliton! Oni povas esti granda bigoto kaj ĉiuaspekta kanajlo kaj fabriki literaturajn perlojn. Inverse, oni povas esti perfekta karakterulo kaj tamen fabriki rubaĵon. Kiel jam trafe diris E. T. A. Hoffmann en sia brila romano *Mondperceptoj de la kato Muro*: ”Bonaj homoj —
+per la alia preskaŭ triste ploris, kiam mi post la apero de mia unua taglibro *Jen la sablo el mia klepsidro*, ĉe iu recenzisto legis, ke mi estas bigoto. Li tion konkludis ne el komparo inter miaj vortoj kaj miaj agoj, ja li min ne konis kaj do tiun kom-paron ne povis tiri. Simple, ĉar mi menciis kelkloke nociojn el religia kampo, foje raportis pri mia religia praktiko ktp., la ĉarma fanatikulo de la ateisma religio tion jam komprenis kiel bigotado. Mi per tio ne volas diri aŭ eĉ pruvi, ke mi ne estas bigoto. Eble aŭ eĉ verŝajne mi tio estas. Nur: la simpatia simplulo de la alia riverflanko tion ne povas scii, ĉar li min ne konas — kaj eĉ se li tion scius kaj en sia prijuĝo pravus, tio ne estas temo de serioza recenzo. Oni ne recenzas aŭtorojn kaj ilian moralon, sed librojn kaj ilian kvaliton! Oni povas esti granda bigoto kaj ĉiuaspekta kanajlo kaj fabriki literaturajn perlojn. Inverse, oni povas esti perfekta karakterulo kaj tamen fabriki rubaĵon. Kiel jam trafe diris E. T. A. Hoffmann en sia brila romano *Mondperceptoj de la kato Muro*: ”Bonaj homoj —
 
 aĉaj muzikistoj!”
 
@@ -56,22 +44,16 @@ Por iomete afable helpi al tiuj, kiuj ne jam bone lernis dis-tingi inter la aŭt
 
 Inter la ekesto de tiuj ĉi taglibraj notoj kaj ilia kompostado kaj redaktado pasis pli ol dek jaroj. Por kelkaj homoj tio ne signifas multe, sed por mi tio estas grandega diferenco, nature, mi en tiu ĉi tempo ne ŝanĝis mian bazan karakteron,
 
-pensmanieron, agmanieron, konduton ktp. Sed mi intertem-
-
-pe multon lernis kaj mi nun per aliaj okuloj rigardas la mondon kaj min mem, ol mi tion faris en la tempo, kiam tiu ĉi taglibra notaro estiĝis.
+pensmanieron, agmanieron, konduton ktp. Sed mi intertempe multon lernis kaj mi nun per aliaj okuloj rigardas la mondon kaj min mem, ol mi tion faris en la tempo, kiam tiu ĉi taglibra notaro estiĝis.
 
 Kvankam mi daŭre restas religia homo, mia religieco en la
 
-lastaj dek jaroj multe ŝanĝiĝis. Mi ne forlasis mian tradician katolikan eklezion kaj instruon, ĉar mi trovas, ke malgraŭ ĉiuj 4
-
-LA MALBABELA JARO
+lastaj dek jaroj multe ŝanĝiĝis. Mi ne forlasis mian tradician katolikan eklezion kaj instruon, ĉar mi trovas, ke malgraŭ ĉiuj
 
 
 malpuraĵoj sub tiu ĉi 2000-jara tegmento, starigita super la muroj, konstruitaj de niaj judaj fratoj mil jarojn pli frue, ĉi tie mi trovis plej multe da preteco helpi alian homon, akcepti lian malsamecon kaj rezigni pri taliona principo ’okulo kontraŭ okulo’. La eklezia komunumo, al kiu mi apartenas, ne
 
-diferenciĝas de la cetera mondo en kanajlaĵoj, foje eĉ ekstremaj banditaĵoj. Sed ĝi — laŭ miaj spertoj kaj informoj — dis-tingiĝas en pintoj de homa boneco, kian reprezentis ekzem-
-
-ple la pasintjare mortinta patrino Terezia el Kalikato. Tamen mi nuntempe perceptas religion multe pli loze kaj liberpen-se ol mi tion faris siatempe. Dogmoj kaj eklezia disciplino, speciale eĉ la eklezia juro (por mi en la senco de Kristo vere perversa fenomeno) ne interesas min multe. Mi estas kristano kaj katoliko, ĉar mi vivas en limigita mondo. Sed Dio estas nek kristano nek katoliko. Li ne demandas pri religia aparteno, li demandas pri aparteno de niaj koroj: ĉu ni solidariĝas kun la prirabita kaj batita vojaĝanto, marŝinta el Jerusalemo al Jeri˛o kaj procedas kiel Samariano (Lk 10, 25-38) aŭ ni solidariĝas kun la tiamaj — kaj nuntempaj — klerikuloj kaj po-polgvidantoj, kiuj ignoris la prirabitan kaj batitan homon kaj rigardis siajn gravajn negocojn. Mi ne scias, ĉu ĉiuj punktoj de la kristana kredo post nia morto montriĝos pravaj. Sed tio ne gravas. Dion ne interesas nia teologio, sed nia korinklino.
+diferenciĝas de la cetera mondo en kanajlaĵoj, foje eĉ ekstremaj banditaĵoj. Sed ĝi — laŭ miaj spertoj kaj informoj — dis-tingiĝas en pintoj de homa boneco, kian reprezentis ekzemple la pasintjare mortinta patrino Terezia el Kalikato. Tamen mi nuntempe perceptas religion multe pli loze kaj liberpen-se ol mi tion faris siatempe. Dogmoj kaj eklezia disciplino, speciale eĉ la eklezia juro (por mi en la senco de Kristo vere perversa fenomeno) ne interesas min multe. Mi estas kristano kaj katoliko, ĉar mi vivas en limigita mondo. Sed Dio estas nek kristano nek katoliko. Li ne demandas pri religia aparteno, li demandas pri aparteno de niaj koroj: ĉu ni solidariĝas kun la prirabita kaj batita vojaĝanto, marŝinta el Jerusalemo al Jeri˛o kaj procedas kiel Samariano (Lk 10, 25-38) aŭ ni solidariĝas kun la tiamaj — kaj nuntempaj — klerikuloj kaj po-polgvidantoj, kiuj ignoris la prirabitan kaj batitan homon kaj rigardis siajn gravajn negocojn. Mi ne scias, ĉu ĉiuj punktoj de la kristana kredo post nia morto montriĝos pravaj. Sed tio ne gravas. Dion ne interesas nia teologio, sed nia korinklino.
 
 La fascino de la kristana religio por mi estas ĝuste, ke oni la tutan kristanan kredon povas resumi per du frazetoj: unu
 
@@ -79,18 +61,14 @@ ordona kaj unu malpermesa. Jesuo ordonis ami sin mem kaj
 
 sian proksimulon — kaj proksimulo ne estas tiu, kiu proksimas al mi fizike, gente, kulture, lingve aŭ religie, sed ke li aŭ ŝi momente bezonas mian helpon kaj mi povas helpi — kaj
 
-Jesuo malpermesis juĝi kaj kondamni. Oni povas forgesi ĉiujn 5
-
-LA MALBABELA JARO
+Jesuo malpermesis juĝi kaj kondamni. Oni povas forgesi ĉiujn
 
 
 dogmojn kaj neglekti ĉiujn ritojn kaj eĉ abunde peki, sed se oni almenaŭ klopodas sekvi tiujn du normojn, oni tamen finis sian ’ekzamenon’ pozitive. Aliflanke oni povas esti granda fakulo en teologio, oni povas akribie sekvi ĉiujn ritajn, dis-ciplinajn kaj jurajn preskribojn, oni eĉ povas vivi laŭ moralaj postuloj kaj neniam peki, sed kun ŝtona koro en sia brusto oni la ’ekzamenon’ ne faras pozitive. Mia privata ’teologio’
 
 estas tre simpla: Se Dio ne estas malpli bona ol mi, mi ne havas kialon timi …
 
-Koncerne mian mondpercepton kaj filozofiajn starpunk-
-
-tojn mi ne ĉesis esti preferanto de libero. Tio signifas, ke mi daŭre kontraŭstaras ĉiujn totalismajn sistemojn kaj antropo-logiojn, kiel la faŝisma, naziisma kaj komunisma. La lastan mi sur propra haŭto spertis, tial mi por ĝin rifuzi eĉ ne bezonas havi bonajn filozofiajn argumentojn, mia sperto sufiĉas. Tamen mi nuntempe pli distinge ol antaŭ dek jaroj komparas
+Koncerne mian mondpercepton kaj filozofiajn starpunktojn mi ne ĉesis esti preferanto de libero. Tio signifas, ke mi daŭre kontraŭstaras ĉiujn totalismajn sistemojn kaj antropo-logiojn, kiel la faŝisma, naziisma kaj komunisma. La lastan mi sur propra haŭto spertis, tial mi por ĝin rifuzi eĉ ne bezonas havi bonajn filozofiajn argumentojn, mia sperto sufiĉas. Tamen mi nuntempe pli distinge ol antaŭ dek jaroj komparas
 
 tiujn ĉi diversajn sistemojn. Por mi ne estas egale, ĉu iu volis homojn savi kaj feliĉigi kaj por tio uzis malkonvenan rimedon kaj metodon de violento kaj maltoleremo, kiel faris komunismo — aŭ se iu jam dekomence volis homojn ekstermi
 
@@ -100,24 +78,16 @@ ol naziismo Hitlera, kiel oni povas legi en impresiga 830-paĝa libro de Stephan
 
 jam en la kapo, dum komunismo krimas poste, kiam la ideo
 
-el la kapo fluas en manojn, kiuj la ideon realigu. Komunismo estas sekularizita speco de kristana religio, kiu malpacience volis instali la Dian regnon (senklasan socion) per ĉiuj rimedoj, sen konsideri moralan skrupulon. Sed tion ili lernis ĝuste 6
-
-LA MALBABELA JARO
+el la kapo fluas en manojn, kiuj la ideon realigu. Komunismo estas sekularizita speco de kristana religio, kiu malpacience volis instali la Dian regnon (senklasan socion) per ĉiuj rimedoj, sen konsideri moralan skrupulon. Sed tion ili lernis ĝuste
 
 
-de ni kristanoj, kies religia sekto ili efektive estas: la celo kon-sekras la rimedojn! Tial mi nun klare malakceptas komunis-
-
-mon kiel sistemon kun certaj dogmoj, multe pli rigoraj ol tiuj de la eklezio, kaj speciale, kiel sistemon de certaj praktikoj kaj metodoj. Tamen mi al (ne tro multaj) sinceraj komunistoj
+de ni kristanoj, kies religia sekto ili efektive estas: la celo kon-sekras la rimedojn! Tial mi nun klare malakceptas komunismon kiel sistemon kun certaj dogmoj, multe pli rigoraj ol tiuj de la eklezio, kaj speciale, kiel sistemon de certaj praktikoj kaj metodoj. Tamen mi al (ne tro multaj) sinceraj komunistoj
 
 atribuas honestan intencon kaj rekonas, ke en iu senco ilia afero baldaŭ denove fariĝos aktuala. Mi vidas la perspektivon de la homaro en sintezo de kristana spirita direktiĝo kaj baza komunisma ideo. Finfine la samon en sia sociinstruo jam
 
-kelkfoje predikis ankaŭ la nuna papo Johano Paŭlo II-a. La ĉefa problemo kaj eraro de Marx estis, laŭ mia trovo, ke li kontraŭstaris ĝuste tion, kio estas la baza kondiĉo, ke socialismo kaj komunismo ne estu terora koncentrejo, sed huma-
+kelkfoje predikis ankaŭ la nuna papo Johano Paŭlo II-a. La ĉefa problemo kaj eraro de Marx estis, laŭ mia trovo, ke li kontraŭstaris ĝuste tion, kio estas la baza kondiĉo, ke socialismo kaj komunismo ne estu terora koncentrejo, sed humanisma ĝardeno, kiun ĉiu pura homa animo alsopiras. Komu-
 
-nisma ĝardeno, kiun ĉiu pura homa animo alsopiras. Komu-
-
-nismo sen religio, sen la spirita dimensio estas nepre teroro; kristanismo sen vivpraktika realiĝo en la senco de komunismo estas nepre nur aro da dogmoj kaj preskriboj. La homa-
-
-ro atendas aventuron de la granda sintezo. Mi pledas por ĝi, kredante, ke same la kapitalisma, kiel ankaŭ la bolŝevisma trajnoj veturas en la direkto de abismo. La diferenco estas nur, ke en la unua kaj dua klasoj de la kapitalismaj vagonoj oni povas komforte veturi kaj bone manĝi kaj trinki en la re-storacia vagono, dum en la bolŝevisma oni veturas en brut-
+nismo sen religio, sen la spirita dimensio estas nepre teroro; kristanismo sen vivpraktika realiĝo en la senco de komunismo estas nepre nur aro da dogmoj kaj preskriboj. La homaro atendas aventuron de la granda sintezo. Mi pledas por ĝi, kredante, ke same la kapitalisma, kiel ankaŭ la bolŝevisma trajnoj veturas en la direkto de abismo. La diferenco estas nur, ke en la unua kaj dua klasoj de la kapitalismaj vagonoj oni povas komforte veturi kaj bone manĝi kaj trinki en la re-storacia vagono, dum en la bolŝevisma oni veturas en brut-
 
 vagonoj kun minimuma kaj ekstreme malkomforta vivbazo.
 
@@ -127,22 +97,16 @@ Restas la tria temaro el mia taglibro: problemo de nacio,
 
 naciismo, traktado de minoritatoj kaj malgrandaj lingvoj, demando pri ŝtata sendependeco ksm.
 
-Mi nun kiel antaŭe opinias, ke ĉiu popolo sur sia teritorio havas rajton fondi propran ŝtaton. Nur, tion ĝi devas fari tiel, 7
-
-LA MALBABELA JARO
+Mi nun kiel antaŭe opinias, ke ĉiu popolo sur sia teritorio havas rajton fondi propran ŝtaton. Nur, tion ĝi devas fari tiel,
 
 
 ke neniu, kiu tie vivas, perdos de siaj rajtoj kaj valoroj. Mi kredas, ke la bazo por fondi ŝtaton estas la volo, vivi sub pli bona leĝo ol ĝi ĝis tiam ekzistis — kaj ne privilegii certan grupon de la loĝantaro, kiel religian, ideologian, etnan aŭ rasan.
 
 En tiu senco ĉiu nacia ŝtato, kiu sur sia konstitucia nivelo proklamas la ŝtaton afero de certa nacio, dum aliaj povas en bona okazo ricevi certajn rajtojn kaj protekton, por mi ne estas akceptebla. En tiu senco mi ne estas feliĉa, ke la nova slovena ŝtato, al kies estiĝo ankaŭ mi kontribuis mian mode-stan parton, ne sekvas tiun ĉi idealon, sed komprenas sin sa-me, kiel Francio, Britio, Italio ktp. kiel ŝtato de certa etno, slovena, dum por aliaj (Hungaroj, Italoj) estas rezervitaj apar-taj minoritataj rajtoj. Bone, mi devas agnoski, ke tiuj du etnaj grupoj ĝuas en Slovenio rajtojn, pri kiuj ekzemple Slovenoj en Italio povus nur sonĝi. Bedaŭrinde Slovenio ne jam kontentige solvis la problemon de Germanoj (ĉirkaŭ mil), de Romaoj kaj de Sudslavoj, kiuj venis en Slovenion, kiam ĝi estis parto de Jugoslavio. Mia prefero estas, ke ne la sloveneco kiel nun aŭ jugoslaveco kiel antaŭe aŭ aŭstreco kiel antaŭ la unua
 
-mondmilito, estu la centra karakterizilo de la ŝtato, sed ke tio estu la pli bona kaj pli konsekvence ekzekutita leĝo, egale valida por ĉiuj. Se mi do unuflanke rekonas la rajton de ĉiu popolo fondi propran ŝtaton, mi aliflanke deziras, ke tiu ŝtato ne estu religie, nacie aŭ lingve ekskluziva. En tiu senco mi sekvas la ideon de Zamenhof, kiu postulis egalecon por ĉiuj loĝantoj de certa ŝtato, senkonsidere ilian specifon. Kompreneble: se mi aŭskultas la prelegon de iu ĉeą samideano, en kiu li tuj post la sendependiĝo denuncis Slovenojn kiel fa-
+mondmilito, estu la centra karakterizilo de la ŝtato, sed ke tio estu la pli bona kaj pli konsekvence ekzekutita leĝo, egale valida por ĉiuj. Se mi do unuflanke rekonas la rajton de ĉiu popolo fondi propran ŝtaton, mi aliflanke deziras, ke tiu ŝtato ne estu religie, nacie aŭ lingve ekskluziva. En tiu senco mi sekvas la ideon de Zamenhof, kiu postulis egalecon por ĉiuj loĝantoj de certa ŝtato, senkonsidere ilian specifon. Kompreneble: se mi aŭskultas la prelegon de iu ĉeą samideano, en kiu li tuj post la sendependiĝo denuncis Slovenojn kiel faŝistojn kaj naciistojn, mi devas bedaŭri certan mankon de
 
-ŝistojn kaj naciistojn, mi devas bedaŭri certan mankon de
-
-inteligento kaj honesto. La sama sinjoro tamen ne estas preta 8
-
-LA MALBABELA JARO
+inteligento kaj honesto. La sama sinjoro tamen ne estas preta
 
 
 rezigni pri sia propra, ĉeą ŝtato kaj sin mem tial ne tenas naciisma faŝisto. Same mi devas ridi, kiam mi aŭdas ’kosmo-politajn’ konsilojn de kelkaj Francoj aŭ Britoj, kies registaroj francigis kaj angligis tutajn popolojn kaj eĉ en sonĝoj ne estus pretaj rezigni pri sia elstare nacia ŝtato, ke naciaj problemoj nuntempe efektive ne ekzistas plu kaj ke Slovenoj, Kroatoj, Albanoj, Estonoj, Ukrajnoj ktp. prefere rezignu pri la ideo, fondi propran ŝtaton.
@@ -153,18 +117,11 @@ oni respektu la rajtojn de unuopaj nacioj, etnaj kaj lingvaj grupoj, sed samtemp
 
 rajtojn, kiuj detruas la homecon ĝenerale. Mi aprobas la deziron de Kurdoj, fondi propran ŝtaton, sed mi ne aprobas uzi por tiu legitima celo teroron. En tiu senco mi ĝojas, ke Slovenoj dum sia tuta historio (krom kruelaĵoj, kiujn diktis kaj aranĝis komunismo) por siaj politikaj celoj ne uzis teroron.
 
-Nek kontraŭ aŭstro-hungara monarkio nek kontraŭ Reĝlan-
-
-do Jugoslavio nek kontraŭ komunisma Jugoslavio ili eksplo-
+Nek kontraŭ aŭstro-hungara monarkio nek kontraŭ Reĝlando Jugoslavio nek kontraŭ komunisma Jugoslavio ili eksplo-
 
 digis unu solan bombeton aŭ elpafis unu solan kuglon. Nur
 
-kiam la (formale) jugoslavia, efektive serba armeo post la pro-klamo de sendependiĝo, bazita sur demokratia plebiscito, ĉe kiu pli ol 90 % voĉdonis por memstareco, per tankoj kaj avi-adiloj atakis la tiaman respublikon Slovenion, la legala slovena teritoria milicaro defendis sian novan ŝtaton kaj post dek-taga milito venkis super invadinto. Ke eĉ la oficiroj de la jugoslavia armeo, kiuj tiam militis kontraŭ Slovenio, poste ri-9
-
-LA MALBABELA JARO
-
-
-cevis slovenan ŝtatanecon kaj enkasigas bonajn pensiojn, tio verŝajne mem ridindigas akuzojn pri ’faŝisma naciismo’ de
+kiam la (formale) jugoslavia, efektive serba armeo post la pro-klamo de sendependiĝo, bazita sur demokratia plebiscito, ĉe kiu pli ol 90 % voĉdonis por memstareco, per tankoj kaj avi-adiloj atakis la tiaman respublikon Slovenion, la legala slovena teritoria milicaro defendis sian novan ŝtaton kaj post dek-taga milito venkis super invadinto. Ke eĉ la oficiroj de la jugoslavia armeo, kiuj tiam militis kontraŭ Slovenio, poste ricevis slovenan ŝtatanecon kaj enkasigas bonajn pensiojn, tio verŝajne mem ridindigas akuzojn pri ’faŝisma naciismo’ de
 
 Slovenoj nur, ĉar ili ne plu volis vivi en la ŝtato, gvidita laŭ la stilo de Miloŝeviĝ.
 
@@ -179,9 +136,6 @@ Jes, kion signifas la titolo? La ’malbabela’ jaro estas jubileo de la lingvo
 ***Klaŭdiforumo, dumpaske 1998***
 
 
-LA MALBABELA JARO
-
-
 ***3-an de ***
 
 En Tinje mi partoprenis la tradician novjaran renkontiĝon de Slovenaj katolikaj intelektuloj. La ĉijara temo estis Primoò Trubar, kiu en la jaro 1551 publikigis la unuan presitan Slovenan libron. Kio estas Zamenhof por la tuta homaro, tio
@@ -194,40 +148,26 @@ montriĝis eminenta konanto de la Slovena reformacio en la
 
 16-a jarcento kaj ankaŭ de nia aktuala kulturo.
 
-Kun Marija mi iom antaŭ la fino de la aranĝo forveturis al Labako por viziti la grandan ekspozicion pri Jozefo Pleânik, granda ar˛itekto, postlasinta bone legeblajn spurojn en Vieno kaj Prago (aranĝo de Hradâani laŭ la invito de la ŝtatestro Masarik) kaj donis sian artan marksignon al Labako en la periodo inter ambaŭ mondmilitoj. Bedaŭrinde la komunista re-
-
-ĝimo post la milito detrue ŝanĝis la vizaĝon de Labako; la plej nobla verko de Pleânik, la cementeriaj konstruaĵoj Òale disfalas pro la neglekta sinteno de la urba administracio.
+Kun Marija mi iom antaŭ la fino de la aranĝo forveturis al Labako por viziti la grandan ekspozicion pri Jozefo Pleânik, granda ar˛itekto, postlasinta bone legeblajn spurojn en Vieno kaj Prago (aranĝo de Hradâani laŭ la invito de la ŝtatestro Masarik) kaj donis sian artan marksignon al Labako en la periodo inter ambaŭ mondmilitoj. Bedaŭrinde la komunista reĝimo post la milito detrue ŝanĝis la vizaĝon de Labako; la plej nobla verko de Pleânik, la cementeriaj konstruaĵoj Òale disfalas pro la neglekta sinteno de la urba administracio.
 
 Nature, ankaŭ tiu ĉi ekspozicio ne ekestis en Labako, sed
 
 en Parizo — kaj nur de tie ĝi povis veni al la naskiĝurbo de Pleânik.
 
 
-LA MALBABELA JARO
-
-
 En Slovenio oni multe diskutas pri la ”evento” okaze de la nuna kristnaska tempo. La ĉefepiskopo d-ro Ôuôtar rajtis la unuan fojon post la milito en du minutoj paroli tra la radiostacio de Labako al siaj kredantoj. Ankaŭ la ceteraj progra-meroj kaj gazetartikoloj iel ĉirkaŭe tuŝis la temon. Eĉ la prezidanto de la Socialista ligo, la iom propraspeca Jozefo Smole publike gratulis al ĉiuj, kiuj ”intime flegas la tradicion de la kristnaska festokutimo”.
 
-Kelkaj trovas en tio grandan esperon kaj stimulon. Mi be-
-
-daŭras, ke la eklezio tiel malkare disvendadas sian 40-jaran ekzilstaton en propra patrujo. La folklorigado de kristnasko ja estas en intereso de reĝimo; apude ĝi tiamaniere akiras en eksterlando la malmultekostan reputacion de ”demokratia”
+Kelkaj trovas en tio grandan esperon kaj stimulon. Mi bedaŭras, ke la eklezio tiel malkare disvendadas sian 40-jaran ekzilstaton en propra patrujo. La folklorigado de kristnasko ja estas en intereso de reĝimo; apude ĝi tiamaniere akiras en eksterlando la malmultekostan reputacion de ”demokratia”
 
 sinteno.
 
-Mi kiel kristano cetere ĝojas pri tiu duona paŝo de la re-
-
-ĝimo, sed tiu paŝo estas nur ilia kaj ne koncernas la eklezion kaj la kristanan popolon.
+Mi kiel kristano cetere ĝojas pri tiu duona paŝo de la reĝimo, sed tiu paŝo estas nur ilia kaj ne koncernas la eklezion kaj la kristanan popolon.
 
 ***4-an de ***
 
 Pro frosto la aŭto ne startis. Tiel mi restis hejme por iom ri-pozi. Dume mi legis la libron de la Angla fizikisto Paŭlo Davies kun la titolo: *La Dio kaj la moderna fiziko*. En ĝi li argumentas, ke la hodiaŭa stato de fizikaj esploroj pli proksimigas la homon al Dio ol la religioj mem.
 
-En la televida prezento pri la Aŭstra poeto Teodoro Kram-
-
-mer (1896-1953), kiu antaŭ la nazioj elmigris al Londono kaj multe suferis pro sia malriĉeco kaj posta traktado en la neŭ-
-
-
-LA MALBABELA JARO
+En la televida prezento pri la Aŭstra poeto Teodoro Krammer (1896-1953), kiu antaŭ la nazioj elmigris al Londono kaj multe suferis pro sia malriĉeco kaj posta traktado en la neŭ-
 
 
 rologia instituto per elektroŝokoj, mi speciale rimarkis la ver-sojn:
@@ -238,31 +178,21 @@ rologia instituto per elektroŝokoj, mi speciale rimarkis la ver-sojn:
 
 (La vero pura estas, / ke ĝuste min neniu mise traktis …)
 
-Mi sentas, ke tio validas ankaŭ por mi. Kvankam mia ĉiu-
-
-taga pano tamen estas kontentige surŝmirita kaj la apuda teo sufiĉe sukerigita, min doloras similaj aferoj kiel la kompatin-dan poeton Krammer. La diferenco estas nur, ke la mondo
+Mi sentas, ke tio validas ankaŭ por mi. Kvankam mia ĉiutaga pano tamen estas kontentige surŝmirita kaj la apuda teo sufiĉe sukerigita, min doloras similaj aferoj kiel la kompatin-dan poeton Krammer. La diferenco estas nur, ke la mondo
 
 tiam sciis, ke la hitlera reĝimo estas malamika fenomeno por la homaro, dum hodiaŭ tion oni ĝenerale ne scias koncerne
 
 komunismon.
 
-Ankaŭ al mi oni nenion faris, krom ke oni mian tutan vi-
+Ankaŭ al mi oni nenion faris, krom ke oni mian tutan vivon direktis en ekzilon, kie mi eĉ la statuson de ekzilinto ne povas ĝui, ja oni ne forpelis min police, sed nur malrekte helpe de rafinitaj metodoj de la sekretpolica agado kontraŭ ĉiuj liberpensaj homoj.
 
-von direktis en ekzilon, kie mi eĉ la statuson de ekzilinto ne povas ĝui, ja oni ne forpelis min police, sed nur malrekte helpe de rafinitaj metodoj de la sekretpolica agado kontraŭ ĉiuj liberpensaj homoj.
-
-Tamen, mi ne ĝemu; la vera aŭtoro de niaj vivnoveloj es-
-
-tas kaj restas la granda artisto, la fantaziplena verkisto, la Dio mem. Kaj ne decas al la romanfiguroj riproĉi al la verkisto …
+Tamen, mi ne ĝemu; la vera aŭtoro de niaj vivnoveloj estas kaj restas la granda artisto, la fantaziplena verkisto, la Dio mem. Kaj ne decas al la romanfiguroj riproĉi al la verkisto …
 
 ***5-an de ***
 
-Nur post unu duonmonato mi ricevis la leteron de mia ami-
+Nur post unu duonmonato mi ricevis la leteron de mia amiko Rebula el Triesto. La Itala poŝtfunkciado plej klare pruvas, kio estas perdita okaze de la disfalo de Aŭstra imperio …
 
-ko Rebula el Triesto. La Itala poŝtfunkciado plej klare pruvas, kio estas perdita okaze de la disfalo de Aŭstra imperio …
-
-Aloizo en sia letero analizas la 13-an numeron de Celovôki Zvon. Laŭvice, en siaj preskaŭ Grekaj, malfacile legeblaj literoj. Tia amanto de la antikva Greka lingvo li kiel gimnaziano 13
-
-LA MALBABELA JARO
+Aloizo en sia letero analizas la 13-an numeron de Celovôki Zvon. Laŭvice, en siaj preskaŭ Grekaj, malfacile legeblaj literoj. Tia amanto de la antikva Greka lingvo li kiel gimnaziano
 
 
 komencis traduki *Tiel parolis Zaratustro* de Nietzsche el la Germana al la malnovgreka … Humanisma sporto, okazinta dum la bataloj de la II-a mondmilito …
@@ -271,9 +201,7 @@ Li atentigas min pri la eraro en mia kontribuo pri la loko, kie Boetio estis ĝi
 
 Pri la novaj okazaĵoj en Sovetunio kaj ĉinio li restas malen-tuziasma kaj li ne vidas ian perspektivpromeson. Verŝajne li pravas. Komunismo probable ne povas esti forigita evolupro-ceze, sed nur laŭ la sama maniero, kiel ĝi aperis. Sed la diferenco estas, ke la forton por ”fari revolucion” kontraŭ tiuj profesiaj revolucioj havas nur Dio mem.
 
-En Francio la striko ĝeneraliĝas, kion instigas CGF, la komunisma sindikato. ĉu simila plano kiel antaŭtempe en Bri-
-
-tio?
+En Francio la striko ĝeneraliĝas, kion instigas CGF, la komunisma sindikato. ĉu simila plano kiel antaŭtempe en Britio?
 
 ***10-an de ***
 
@@ -287,14 +215,10 @@ estis pridemandita, ĉu mi parolas Itale. Un poco, un poco …
 
 mi respondis, ankoraŭ opiniante, ke lia demando ne malicas.
 
-Poste sekvis la demandoj, pri kiuj mi ne estis alkutimiĝinta eĉ 14
-
-LA MALBABELA JARO
+Poste sekvis la demandoj, pri kiuj mi ne estis alkutimiĝinta eĉ
 
 
-sur la limo al la komunisma Jugoslavio. Se mi ne havus aran-
-
-ĝitan horon ĉe la Triesta radiostacio, mi dankus al ilia afablo kaj revenus Aŭstrion. Do, mi devis engluti kaj per regita voĉo respondi, ke mi veturas al Triesto pro mia privata vizito. Fine ni povis daŭrigi la vojon kun iom maldolĉa humoro, ke eble iom da faŝisma sinteno postvivis le milite venkitan faŝismon de Mussolini.
+sur la limo al la komunisma Jugoslavio. Se mi ne havus aranĝitan horon ĉe la Triesta radiostacio, mi dankus al ilia afablo kaj revenus Aŭstrion. Do, mi devis engluti kaj per regita voĉo respondi, ke mi veturas al Triesto pro mia privata vizito. Fine ni povis daŭrigi la vojon kun iom maldolĉa humoro, ke eble iom da faŝisma sinteno postvivis le milite venkitan faŝismon de Mussolini.
 
 Je la 11-a horo ni jam troviĝis antaŭ la blokdomo de mia
 
@@ -302,9 +226,7 @@ amiko Aloizo. La veturo dume ŝanĝis sian vizaĝon, ni nur kun iom da peno povi
 
 iom glata tereno surpaŝi la sojlon.
 
-Aloizo ankoraŭ ne estis hejme post la operacio de la pro-
-
-stato; li ĝuste en tiu ĉi sabato unuafoje denove komencis instrui. Kvazaŭ li ne povus kredi, ke la antikva Greka kaj Latina lingvoj pluvivos en la lernejaj klasoj ankaŭ post lia emeritiĝo.
+Aloizo ankoraŭ ne estis hejme post la operacio de la prostato; li ĝuste en tiu ĉi sabato unuafoje denove komencis instrui. Kvazaŭ li ne povus kredi, ke la antikva Greka kaj Latina lingvoj pluvivos en la lernejaj klasoj ankaŭ post lia emeritiĝo.
 
 Sed io tamen estas vera: el la buŝoj de aliaj kolegoj ambaŭ historiaj lingvoj sonos ordinare, el ia pure profesia distanco, dum el lia buŝo ekparolas jen la aŭtenta malnova Greko, jen la aŭtenta Romiano.
 
@@ -316,12 +238,7 @@ kaj Helena poste restu tie ĝis la sekvonta tago.
 
 Dum tiu tempo jam venis Aloizo kun sia gaja gastema rido.
 
-Ni tuj eksidis en lia kabinedo por pridiskuti la kulturajn even-tojn de la lasta tempo kaj precipe tiujn, kiuj rilatas nian re-15
-
-LA MALBABELA JARO
-
-
-vuon Celovŝki Zvon. Lia edzino, sinjorino Zora, klopode por-tadis post li diversajn plektitaĵojn, por ke li ne malvarmumu.
+Ni tuj eksidis en lia kabinedo por pridiskuti la kulturajn even-tojn de la lasta tempo kaj precipe tiujn, kiuj rilatas nian revuon Celovŝki Zvon. Lia edzino, sinjorino Zora, klopode por-tadis post li diversajn plektitaĵojn, por ke li ne malvarmumu.
 
 ŝi ankaŭ postulis de li, ke li dum horo aŭ du ekkuŝu. ”Mi por-eterne kuŝos tie … ” li montris per sia fingro al la supozita ĉielo. Jes, mi tiumomente pripensis; oni per certa medicina disciplino povas forpuŝi la momenton de plena malfortiĝo kaj morto por kelka tempo. Sed kiom povas valori tiu pure kvan-teca gajno, se ĝi estas impostigita per la disciplino de ripoza-do kaj nenormala vivmaniero?
 
@@ -335,9 +252,6 @@ Post la komuna capuccino en societo kun la redaktorino ni
 suriris tramon, la faman Triestan deklivan tramon, kaj ni veturis ĝis la stacio Bane, kie jam atendis min la deĵore afabla sinjorino Anita.
 
 
-LA MALBABELA JARO
-
-
 Estis kelke da lingvoj, en kiuj okazis nia vespermanĝa sim-pozieto: en la slovena, Esperanta, itala, germana kaj franca.
 
 Estis pli da diversaj lingvoj ol da diversaj opinioj. La temo estis religia, nature. La ĉefaj elirpunktoj de niaj ĉefaj du pro-tagonistoj: Aloizo kun sia pozo de greka soldat-filozofo kaj la edzo de sinjorino Anita kun la trankvila pozo de budhana
@@ -346,20 +260,13 @@ adepto — estis la konv pri la konstanta moral-religia evoluo kaj plibonigeblo 
 
 ideo ĉe Aloizo.
 
-Eble Aloizo tro ofte mezuras la rezultojn de la homa evo-
-
-luo laŭ la postrestaĵoj kaj konsekvencoj sur tiu ĉi mondo. La sanktuloj leviĝas al Dio, la pekoj restas surtere. Eble sinjoro Altherr tro abstrakte fidas al ia ”se” kiel ĝenerala kondiĉo por ĉiaspeca konvertiĝo.
+Eble Aloizo tro ofte mezuras la rezultojn de la homa evoluo laŭ la postrestaĵoj kaj konsekvencoj sur tiu ĉi mondo. La sanktuloj leviĝas al Dio, la pekoj restas surtere. Eble sinjoro Altherr tro abstrakte fidas al ia ”se” kiel ĝenerala kondiĉo por ĉiaspeca konvertiĝo.
 
 ***11-an de ***
 
 Partopreno ĉe la slovena diservo en la preĝejo de Opâine. Ne malpli da homoj ol ĉe la pli frua Itala meso. Bela kantado, sed terure longa kaj komplikaĉa prediko. Estas certa malvirto de multaj sacerdotoj, volantaj en sia parolo esti pli ampleksaj kaj pli saĝaj ol la Dia vorto mem. Tio multe pli ĝenas ol se la infanoj laŭte krias kaj maldiscipline kondutas en la preĝejo.
 
-Pro la ventego, nomata burja, kiu furoris tra la stratoj, mi apenaŭ sukcesis veni hejmen al Aloizo. Dum la virinoj finpre-paris la tagmanĝon, ni eksidis en lia kabinedo kaj pridiskutis la restintajn demandojn koncerne nian revuon. Li faris intervjuon kun la prezidanto de Secretariatus pro non credentibus (La sekretario por la nekredantoj) kardinalo Poupard en Va-17
-
-LA MALBABELA JARO
-
-
-tikano. Aloizo starigis la demandojn en la Itala kaj la kardinalo respondis en la Franca. Inter alie Aloizo provoke demandis lin, ĉu havas sencon dialogi kun ”marksismo” en Orienta Eŭropo, kio antaŭ nelonge okazis en Budapeŝto, ja ili ne parolas el iu profunda propra konv, sed nur el sia cinika pozicio de regopovo. Kardinalo Poupard respondis, ke la senco de tiaj eventoj eble por la homoj en la Okcidento ne ekzistas — sed ili tre gravas por miloj da kristanoj en orienteŭropaj landoj, ja ili ankaŭ tiamaniere akiras multe da memfido kaj eĉ certa renomo interne de la propra socio.
+Pro la ventego, nomata burja, kiu furoris tra la stratoj, mi apenaŭ sukcesis veni hejmen al Aloizo. Dum la virinoj finpre-paris la tagmanĝon, ni eksidis en lia kabinedo kaj pridiskutis la restintajn demandojn koncerne nian revuon. Li faris intervjuon kun la prezidanto de Secretariatus pro non credentibus (La sekretario por la nekredantoj) kardinalo Poupard en Vatikano. Aloizo starigis la demandojn en la Itala kaj la kardinalo respondis en la Franca. Inter alie Aloizo provoke demandis lin, ĉu havas sencon dialogi kun ”marksismo” en Orienta Eŭropo, kio antaŭ nelonge okazis en Budapeŝto, ja ili ne parolas el iu profunda propra konv, sed nur el sia cinika pozicio de regopovo. Kardinalo Poupard respondis, ke la senco de tiaj eventoj eble por la homoj en la Okcidento ne ekzistas — sed ili tre gravas por miloj da kristanoj en orienteŭropaj landoj, ja ili ankaŭ tiamaniere akiras multe da memfido kaj eĉ certa renomo interne de la propra socio.
 
 La saman argumenton uzis Aloizo kontraŭ mia riproĉo al
 
@@ -371,9 +278,7 @@ Plenigita kokido kun la itala pastaĵo, du specoj de salato, bona hejma vino el 
 
 Mi iom timis, kiamaniere en tia ventego kun neĝado kaj
 
-glita strato ni povos forveturi. Fakte: kiam mi enkofrigis la skatolegon da oranĝoj, donacitaj de sinjorino Zora, mi ne povis enŝovi la ŝlosilon en la seruron de la aŭtopordo. ĉio estis 18
-
-LA MALBABELA JARO
+glita strato ni povos forveturi. Fakte: kiam mi enkofrigis la skatolegon da oranĝoj, donacitaj de sinjorino Zora, mi ne povis enŝovi la ŝlosilon en la seruron de la aŭtopordo. ĉio estis
 
 
 glacigita. Mi devis reiri por peti varmegan akvon. Mi verŝis la bolantan akvon en la termobotelon. Efektive mi tuj sukcesis puŝi mian ŝlosilon en la degeliĝintan trueton de la seruro. Sed ve, la pordo estis tiel alfrostita al la kadro, ke mi ne povis ĝin malfermi. Nur kun fortega tiro mi sukcesis — sed la kl preskaŭ restis en mia mano. Dume la ventego tiel forte furoris, ke mi kaj Helena apenaŭ povis stari apud la veturilo.
@@ -390,12 +295,7 @@ efektivigi la reformojn. Ni esperu, ke d-ro Portisch pravas …
 
 Aŭdas, ke iu komponisto en Usono — kie alie — komponis
 
-simfonion por tri polvosuĉiloj, por unu polurmaŝino por par-19
-
-LA MALBABELA JARO
-
-
-geto, por orgeno kaj orkestro. Anstataŭ dirigenta bastono
+simfonion por tri polvosuĉiloj, por unu polurmaŝino por pargeto, por orgeno kaj orkestro. Anstataŭ dirigenta bastono
 
 servos signalpistolo …
 
@@ -413,11 +313,7 @@ popolaj kantoj. Sekvis la parolo de iu vilaĝano, bone konan-ta ĉiujn tradicioj
 
 Post mi parolis d-ro Feinig, klarigante — ankaŭ en bela slovena dialekto de Roò la signifon de hejmaj kaj vilaĝaj nomoj en la ĉirkaŭo.
 
-Maldekstre de mi sidis la moderna Karintia poeto Gusta-
-
-vo Januô, kies poemoj aperis ankaŭ en la Germana lingvo, tra-dukitaj de Petro Handke; kontraŭ mi sidis la vilaĝestro Gres-sel kun sia edzino, kiu prezentis por mi interesan ekzemplon de karintia nacia sindromo. Kun ni li glate parolis en la slovena lingvo, en bela loka dialekto, laŭ kiu ĉiu supozus, ke 20
-
-LA MALBABELA JARO
+Maldekstre de mi sidis la moderna Karintia poeto Gustavo Januô, kies poemoj aperis ankaŭ en la Germana lingvo, tra-dukitaj de Petro Handke; kontraŭ mi sidis la vilaĝestro Gres-sel kun sia edzino, kiu prezentis por mi interesan ekzemplon de karintia nacia sindromo. Kun ni li glate parolis en la slovena lingvo, en bela loka dialekto, laŭ kiu ĉiu supozus, ke
 
 
 temas pri ano de la slovena popolgrupo. Tamen la impreso
@@ -433,9 +329,6 @@ Nia grupeto kuniĝis por la biblia kurso. La unuan referaĵon devis havi mi. La 
 Precipe du librojn mi utile uzis: la libron *Dio kaj la moderna* *fiziko* de la juna Brita atomfizikisto Davies. Li asertas, ke hodiaŭ ĝuste la plej pintaj fizikaj rekonoj pli proksimigas la homon al Dio ol la religioj mem. La dua li bro estis *La Biblio* *konfirmas la mondpercepton de la naturscienco* de la Nederlanda sciencisto Claeys.
 
 
-LA MALBABELA JARO
-
-
 Kiel nerespondeblan problemon mi difinis la demandon:
 
 —Kial Dio kreas — riskante tiel ankaŭ la falimenton — aŭ: kial io ekzistas kaj ne plene malekzistas, kiel formulis la problemon jam la greka filozofio.
@@ -449,26 +342,15 @@ Sur la nacieca problemaro okazus, ke malgrandaj nacioj dis-vastigus sian terenon
 Bonega la filmo Celéste pri la lastaj jaroj de la granda franca verkisto Marcel Proust. Bedaŭrinde mi ne notis la nomon de la reĝisoro; kion mi ne notas, tuj vaporiĝas en mia memora-parato.
 
 
-LA MALBABELA JARO
+Oni devas sin demandi, ĉu literaturo valoras tian kapricplenan kaj turmentoplenan vivon. La literaturo mem certe ne.
 
-
-Oni devas sin demandi, ĉu literaturo valoras tian kapric-
-
-plenan kaj turmentoplenan vivon. La literaturo mem certe ne.
-
-Sed en la literatura vivo sin banas koncernaj animoj kaj fari-
-
-ĝas tra la kapricaj turmentoj pli kaj pli rafinitaj.
+Sed en la literatura vivo sin banas koncernaj animoj kaj fariĝas tra la kapricaj turmentoj pli kaj pli rafinitaj.
 
 En la literatura aldono de la taggazeto *Delo* el Labako mi legis la kalumniaĵon de Francisko Bohanec pri la lasta libro de Aloizo, *Vrt bogov* (La ĝardeno de dioj), la taglibro pri liaj vo-jaĝoj en Usono kaj Kanado.
 
-Bohanec lasas sin mizere dungi ĉe la plej stalinismaj ron-
+Bohanec lasas sin mizere dungi ĉe la plej stalinismaj rondoj ene de la nuna reĝimo. Li prezentas Aloizon kiel instiga-don de la sangoverŝa kontraŭstalinisma ribelo de Slovenoj
 
-doj ene de la nuna reĝimo. Li prezentas Aloizon kiel instiga-don de la sangoverŝa kontraŭstalinisma ribelo de Slovenoj
-
-dum la dua mondmilito. Komike, ke la ekstremaj reprezen-
-
-tantoj de la kontraŭkomunismaj batalintoj same akuzas la
+dum la dua mondmilito. Komike, ke la ekstremaj reprezentantoj de la kontraŭkomunismaj batalintoj same akuzas la
 
 verkiston Rebula pri kooperado kun la komunista reĝimo en
 
@@ -478,16 +360,12 @@ Povas esti, ke tiaj malicaj birdoj antaŭdiras novan vintron en Slovenio, en kiu
 
 ***10-an de ***
 
-Oni raportas, ke jam ĉirkaŭ 140 disidentoj estis liberigitaj el sovetiaj koncentrejoj. La mondo volas vidi en tio signon de iu vera reformemo en la lando de ruĝaj caroj. Povas esti. Ankaŭ 23
-
-LA MALBABELA JARO
+Oni raportas, ke jam ĉirkaŭ 140 disidentoj estis liberigitaj el sovetiaj koncentrejoj. La mondo volas vidi en tio signon de iu vera reformemo en la lando de ruĝaj caroj. Povas esti. Ankaŭ
 
 
 la infero reformiĝas. Sed ĉi tie ne temas pri reformoj, sed pri nerekompencita maljusteco.
 
-En Naŝi razgledi mia konatino publikigis iaspecan tutti-
-
-frutti pri la tradukado kaj lingva fideleco. Laŭ bona intelektula tradicio ankaŭ ĉi tie ne devis manki primoka deklaro rilate Esperanton. ŝi komparis ĝin kun plenigita ĉasbesto. Mi ne reagos publike, mi skribos al ŝi privatan leteron.
+En Naŝi razgledi mia konatino publikigis iaspecan tuttifrutti pri la tradukado kaj lingva fideleco. Laŭ bona intelektula tradicio ankaŭ ĉi tie ne devis manki primoka deklaro rilate Esperanton. ŝi komparis ĝin kun plenigita ĉasbesto. Mi ne reagos publike, mi skribos al ŝi privatan leteron.
 
 Mia ĉefo en la ofico, la afergvidanto d-ro K tre zorgas pri tio, ĉu mi fakte kaj plene eluzas mian labortempon. Malvas-tanimeco, kian en Slovenio oni verŝajne nenie trovus. Liaj zorgoj — neniam rekte eldiritaj — estas nur ia subtila metodo de konstanta humiligo. Tamen en diaj planoj ankaŭ tio
 
@@ -499,18 +377,11 @@ kun la propono de nia eldonejo interŝanĝi libroeldonaĵojn.
 
 Tiel ni eble vendus kelkajn ekzemplerojn de *Medjugorje * en la orienteŭropa merkato.
 
-Posttagmeze mi devis transpreni en iu vilaĝo en Roò la an-
-
-tikvan bibliotekon, kiun heredis Mohorjeva de iu forpasinta paroęstro. Inter la libroj interesa slovena traduko de du gravaj tekstoj de Kant: *Pri la sento de majesto kaj beleco* kaj *Pri* *eterna paco*. Mi legis ilin antaŭ preskaŭ 20 jaroj. Nun mi povos tralegi tion denove.
+Posttagmeze mi devis transpreni en iu vilaĝo en Roò la antikvan bibliotekon, kiun heredis Mohorjeva de iu forpasinta paroęstro. Inter la libroj interesa slovena traduko de du gravaj tekstoj de Kant: *Pri la sento de majesto kaj beleco* kaj *Pri* *eterna paco*. Mi legis ilin antaŭ preskaŭ 20 jaroj. Nun mi povos tralegi tion denove.
 
 ***14-an de ***
 
-Mi uzis la hieraŭan tagon en la oficejo por finpretigi la proponon al Mohorjeva, ke ĝi fariĝu ankaŭ la Eldonejo de sankta Hermagoro, do efektive Esperanta eldonejo. Mi vidas la nu-24
-
-LA MALBABELA JARO
-
-
-ran ŝancon por la pluvivo de nia eldonejo en tio, ke ĝi ĉesu esti nur nacia entrepreno. Sed ankaŭ por la propra nacia celo
+Mi uzis la hieraŭan tagon en la oficejo por finpretigi la proponon al Mohorjeva, ke ĝi fariĝu ankaŭ la Eldonejo de sankta Hermagoro, do efektive Esperanta eldonejo. Mi vidas la nuran ŝancon por la pluvivo de nia eldonejo en tio, ke ĝi ĉesu esti nur nacia entrepreno. Sed ankaŭ por la propra nacia celo
 
 ĝi povos multe pli fari, se ĝi kuraĝos sin malfermi al la tuta mondo per Esperantaj eldonaĵoj. Tamen estas demando, ĉu
 
@@ -529,9 +400,6 @@ Vizito ĉe mia bopatro, ĵus reveninta el la malsanulejo, ope-raciita je prostat
 En sia junaĝo li multe legis librojn kaj eĉ montris certan intereson mem ion verki. Sed pro la malvasta humoro de sia edzino, mia bopatrino, li pli kaj pli rezignis pri ĉio spirita kaj atingis la punkton de plena enuo kaj vanteco.
 
 
-LA MALBABELA JARO
-
-
 ***15-an de ***
 
 Enkadre de la hodiaŭa meso mi legis la legaĵon pri tio, ke la Sankta Spirito peros al ni ne la saĝecon de tiu ĉi mondo, kiu forpasas, sed la ĉielan saĝecon, kiu montros al ni la trezoron, kiun Dio heredigis por la homoj, kiuj plenumas lian volon.
@@ -548,27 +416,18 @@ En la teksto Litovino petas ekzempleron de mia libro pri
 
 *Medjugorje * en Esperanto. Kompense ŝi anticipe sendas al mi tri specimenojn de bele aranĝita poezia libro: liriko de Edu-ardas Mieòelaitis kun la titolo *Homo*. Solidkartone bindita, en bonaspekta preso kaj ekipo, 6000 ekzempleroj. Kortuŝa tiu
 
-malproksima intereso pri la problemo de Maria, la Dipatri-
+malproksima intereso pri la problemo de Maria, la Dipatrino.
 
-no.
-
-Mi tuj sendis specimenon kun aparta poŝtkarto, ke ŝi bon-
-
-volu konfirmi la ricevon, cetere mi provus tra alia vojo.
+Mi tuj sendis specimenon kun aparta poŝtkarto, ke ŝi bonvolu konfirmi la ricevon, cetere mi provus tra alia vojo.
 
 Vespere denove riproĉoj de mia edzino, ke mi ’misgvidis’
 
 ŝin kaj la tutan familion al tiu ĉi loko, kie ŝi devas vivi en malriĉaj cirkonstancoj, sen konstanta laboro, dum tiom da virinoj ne scias kiel foruzi sian superfluan monon.
 
 
-LA MALBABELA JARO
-
-
 Avido estas komenco de ĉiu peko. Unue la diablo avidis
 
-homon en la Edeno sub Dia kontrolo. Poste la unua paro ko-
-
-mencis avidi Dion. Kaino avidis Habelon. Nun mia kompat-
+homon en la Edeno sub Dia kontrolo. Poste la unua paro komencis avidi Dion. Kaino avidis Habelon. Nun mia kompat-
 
 inda edzino stulte avidas la homojn, kies problemojn ŝi tute ne imagas. Dika monujo kaj bone ekipita loĝejo ne estas jam foresto de malfeliĉo. Kontraŭe!
 
@@ -578,16 +437,11 @@ Miĉjo sendis al mi la koncepton por Esperanto-propaganda
 
 vizitkarto kun 16 reguloj dorsflanke. Al li tre imponas la reguleco, tiel ke li eĉ strekis la liniojn kaj regulojn kvadrate enkadrigis. ĉu influo de lia astronomia profesio, kiu estimas regulecon?
 
-Posttagmeze anoncis sin Mariano Strojan, juna tradukis-
-
-to el Labako. Li ŝarĝigis sin per relative impona tasko: *La perdita paradizo* de la Brita klasikulo Milton. Duonon de tiu gran-dioza — 18-milversa verko li jam tradukis en la slovenan lingvon. Ni sidis en nia gastejo en Klaŭdiforumo Pri Joklnu kaj parolis pri la lastaj eventoj en Sovetunio. ”Kiel komentas la Labakanoj?” mi volis scii. ”Neniu kredas al Gorbaĉov,” simple, sed klare respondis mia gasto. Diferenco inter la homo en Slovenio, kiu spertis la revolucion — kaj tiu en okcidento, kiu ne travivis ĝin.
+Posttagmeze anoncis sin Mariano Strojan, juna tradukisto el Labako. Li ŝarĝigis sin per relative impona tasko: *La perdita paradizo* de la Brita klasikulo Milton. Duonon de tiu gran-dioza — 18-milversa verko li jam tradukis en la slovenan lingvon. Ni sidis en nia gastejo en Klaŭdiforumo Pri Joklnu kaj parolis pri la lastaj eventoj en Sovetunio. ”Kiel komentas la Labakanoj?” mi volis scii. ”Neniu kredas al Gorbaĉov,” simple, sed klare respondis mia gasto. Diferenco inter la homo en Slovenio, kiu spertis la revolucion — kaj tiu en okcidento, kiu ne travivis ĝin.
 
 Ni konstatis, ke la Sovetianoj ankoraŭ vidas la eksteran
 
 mondon kiel tataran danĝeron, kiun estas ende puŝi pli kaj pli foren. La historio ŝanĝas la maskojn, sed ne la vizaĝojn.
-
-
-LA MALBABELA JARO
 
 
 ***19-an de ***
@@ -612,37 +466,22 @@ Bone, mi tranoktos hodiaŭ ĉi tie kaj morgaŭ revenos hejmen
 
 — sed nia bonkora katolika profesoro tion ne faris.
 
-ĉar mi vidis, ke ne estas eblo eviti tiun strangan transporton de la profesoro, kiu sentas la kormolecon de la poezio de Gregorâiâ, sed praktikas la kordurecon rilate al la organizanto Johano Merkaâ, mi proponis al Johano, lin akompani, ke li ne 28
-
-LA MALBABELA JARO
+ĉar mi vidis, ke ne estas eblo eviti tiun strangan transporton de la profesoro, kiu sentas la kormolecon de la poezio de Gregorâiâ, sed praktikas la kordurecon rilate al la organizanto Johano Merkaâ, mi proponis al Johano, lin akompani, ke li ne
 
 
 troviĝu sola kaj senhelpa dum la vintra nokto sur la trans-monta vojo sur Karavankmontoj.
 
-Dum certa tempo niaj radoj bone kaptis la ŝosean supra-
+Dum certa tempo niaj radoj bone kaptis la ŝosean supraĵon. Poste ni devis munti la radĉenojn. Sed meze de iu kur-biĝa deklivo ankaŭ tio ne helpis plu. Meze de la strato jam oblikve staris du aŭtobusoj sen granda ŝanco veturi pluen.
 
-ĵon. Poste ni devis munti la radĉenojn. Sed meze de iu kur-biĝa deklivo ankaŭ tio ne helpis plu. Meze de la strato jam oblikve staris du aŭtobusoj sen granda ŝanco veturi pluen.
+Sed tie troviĝis ankaŭ grupo da gastlaboristoj el jugoslavia sudo, kiuj tuj venis nin helpi. Ankaŭ la profesoro kaj mi eliris; mi sidis sur la kovrilo antaŭe, por ke la radoj pli firme tuŝu la stratsurfacon, aliaj puŝis. La radoj komencis kunkapti. Mi diris al Johano, ke li senĝene veturu sola ĝis la doganejo supre, ni ja venos piede. Li fakte sukcesis. Tiuokaze min ekregis iom malica ideo, ke mi almenaŭ iomete punu la sinjoron profesoron por lia senkonsidera obstino. Mi komencis iri tiel rapide, kiel mia fizika stato permesis. Mi devis konstati, ke mia kuniranto ne estas sen certa fizika trejno. Li tenis la paŝon kun mi, nur lia spirado denuncis, ke li ne havis facilan ek-zercon.
 
-Sed tie troviĝis ankaŭ grupo da gastlaboristoj el jugoslavia sudo, kiuj tuj venis nin helpi. Ankaŭ la profesoro kaj mi eliris; mi sidis sur la kovrilo antaŭe, por ke la radoj pli firme tuŝu la stratsurfacon, aliaj puŝis. La radoj komencis kunkapti. Mi diris al Johano, ke li senĝene veturu sola ĝis la doganejo supre, ni ja venos piede. Li fakte sukcesis. Tiuokaze min ekregis iom malica ideo, ke mi almenaŭ iomete punu la sinjoron profesoron por lia senkonsidera obstino. Mi komencis iri tiel rapide, kiel mia fizika stato permesis. Mi devis konstati, ke mia kuniranto ne estas sen certa fizika trejno. Li tenis la pa-
+Fine mi denove troviĝis en la veturilo de Johano kaj descende, sur la Slovenia flanko, ni veturis multe pli facile. Ni komencis diskuti pri niaj kulturaj kutimaĵoj. ekzemple pri la ĉijara Preôeren-premio, kiun ricevis la verkisto Paŭlo Zidar, ankaŭ kunlaboranto de Mohorjeva kaj mia preskaŭ amika
 
-ŝon kun mi, nur lia spirado denuncis, ke li ne havis facilan ek-zercon.
-
-Fine mi denove troviĝis en la veturilo de Johano kaj de-
-
-scende, sur la Slovenia flanko, ni veturis multe pli facile. Ni komencis diskuti pri niaj kulturaj kutimaĵoj. ekzemple pri la ĉijara Preôeren-premio, kiun ricevis la verkisto Paŭlo Zidar, ankaŭ kunlaboranto de Mohorjeva kaj mia preskaŭ amika
-
-konatulo. Ni iom aĉe parolis pri lia ĉiama hipo˛ondrio kaj cetera stranginklino. La profesoro diris, ke Zidar estis lia lernanto en la gimnazio kaj ke li bone konas la profundan kaŭ-
-
-zon de lia konduto.
+konatulo. Ni iom aĉe parolis pri lia ĉiama hipo˛ondrio kaj cetera stranginklino. La profesoro diris, ke Zidar estis lia lernanto en la gimnazio kaj ke li bone konas la profundan kaŭzon de lia konduto.
 
 Dum la dua mondmilito — rakontis la profesoro — Zidar
 
-frekventis la duan aŭ la trian klason de elementa lernejo, en kiu samtempe troviĝis la posteno de la Germana sekreta ŝtat-29
-
-LA MALBABELA JARO
-
-
-polico (Gestapo). Foje la adeptoj de la partizanaj trupoj el la ĉirkaŭaj arbaroj donis al juna Zidar tornistron kun nekonata enhavo, ke li ĝin simple lasu en la lernejo. Li, nature, ne sciis, ke en la tornistro troviĝas tempobombo. Fakte ĝi eksplodis kaj krom kelkaj Germanaj policistoj mortigis ankaŭ 20
+frekventis la duan aŭ la trian klason de elementa lernejo, en kiu samtempe troviĝis la posteno de la Germana sekreta ŝtatpolico (Gestapo). Foje la adeptoj de la partizanaj trupoj el la ĉirkaŭaj arbaroj donis al juna Zidar tornistron kun nekonata enhavo, ke li ĝin simple lasu en la lernejo. Li, nature, ne sciis, ke en la tornistro troviĝas tempobombo. Fakte ĝi eksplodis kaj krom kelkaj Germanaj policistoj mortigis ankaŭ
 
 el liaj kunlernantoj. Tiamaniere la partizanoj ”liberigis” sian patrolandon.
 
@@ -654,9 +493,7 @@ filino Helena venis min voki. Nia amikino Maria sciigas, ke en la radia disaŭdi
 
 — estos parolate en kaj pri Esperanto.
 
-Mi tuj dankeme faris mian matenan tualeton kaj komen-
-
-cis serĉi la stacion. La politikaj raportoj jam komenciĝis.
+Mi tuj dankeme faris mian matenan tualeton kaj komencis serĉi la stacion. La politikaj raportoj jam komenciĝis.
 
 La parolisto efektive anoncis la temon — 100 jaroj de la
 
@@ -669,9 +506,6 @@ amiko Herbert. Sed la du lastaj asertoj kaj konkludoj estis intelekte katastrofa
 Jam en la sama tago mi skribis al la redakcio de ORF jenan leteron:
 
 
-LA MALBABELA JARO
-
-
 Al la redakcio de ORF —
 
 I-a programo, Vieno
@@ -680,9 +514,7 @@ La afero: Repliko al la radiodissendo pri Esperanto, 22-an de .
 
 Estimataj gesinjoroj en la redakcio!
 
-Laŭ bonŝanca hazardo mi aŭskultis vian frumatenan tagra-
-
-portan radiodissendon, en kiu unu temo estis ankaŭ la cen-
+Laŭ bonŝanca hazardo mi aŭskultis vian frumatenan tagraportan radiodissendon, en kiu unu temo estis ankaŭ la cen-
 
 tjariĝo de la Internacia lingvo Esperanto. Mi trovis la pritrak-ton vigla kaj alloga, ankaŭ sufiĉe objektiva. Ne ĝenis min la fakto, ke ne temis pri unuflanka propagando, sed efektiviĝis la demokratia principo de ”pro et contra”. Kion mi bedaŭras, estas la esenca malekvilibro de ambaŭ rigardpunktoj. Dum la pozitiva flanko estis sufiĉe kompetenta kaj informriĉa, la kontraŭstara estis tre eksmoda kaj fore de la faktoj kaj de la logiko.
 
@@ -692,17 +524,11 @@ esperantisto faras problemojn el tio, se la kontraŭuloj de Esperanto ne eldiris
 
 Eble tiel konkludus samideano, por kiu Esperanto estas
 
-nur ia pli nobla hobio, sed ne plu. Por mi tiu ĉi lingvo estas kompleta morala kaj filozofia sinteno. Bone filozofias nur tiu, kiu serĉas signifajn kaj argumentajn kontraŭantojn kaj senĉe-se lernas de ili. Ankaŭ Esperanto ĝis nun restus sur la nivelo de sia naskiĝo, se ne ekzistus konstante homoj, kiuj kontraŭ-
+nur ia pli nobla hobio, sed ne plu. Por mi tiu ĉi lingvo estas kompleta morala kaj filozofia sinteno. Bone filozofias nur tiu, kiu serĉas signifajn kaj argumentajn kontraŭantojn kaj senĉe-se lernas de ili. Ankaŭ Esperanto ĝis nun restus sur la nivelo de sia naskiĝo, se ne ekzistus konstante homoj, kiuj kontraŭargumentis ĝin.
 
-argumentis ĝin.
+uste la manko de sufiĉe povaj kaj logike konvinkaj kontestantoj multe kulpas, se nia lingvo ankoraŭ ne naskis sian
 
-uste la manko de sufiĉe povaj kaj logike konvinkaj kon-
-
-testantoj multe kulpas, se nia lingvo ankoraŭ ne naskis sian
-
-”ŝekspiron”. Tamen estu prikonsiderite: kiom oni ŝuldas al la 31
-
-LA MALBABELA JARO
+”ŝekspiron”. Tamen estu prikonsiderite: kiom oni ŝuldas al la
 
 
 skismo de ”Ido” por la leksika evoluo de Esperanto — kaj por la nekredebla 100-jara fidelo al la lingva fundamento an-kaŭ …
@@ -711,26 +537,17 @@ Du asertoj, la unua citita kaj la dua memforĝita, diskreditis la tutan flankon 
 
 La unua, ies citaĵo, diras, ke esperantistoj en neniu kazo havas sian Stratfordon, sian ŝekspiron — kaj tio devus signifi la decidan mankon de la lingvo, kompare kun la Angla aŭ iu alia domina lingvo. Sur la nivelo de formala logiko oni devas aldoni, ke ankaŭ Germanoj, Francoj, Italoj, Rusoj, Slovenoj ktp. ne havas la fenomenan urbon Stratford kaj poeton egala al Shakespeare. ĉiu nacia kulturo havas propran signifan fenomenon kaj grandulon de literatura arto. Ankaŭ esperantistoj havas kelkajn siajn grandulojn. Estas vere, ke neniu ĝis nun atingis la grandecon de Shakespeare — sed same vere
 
-estas, ke ekzistas centoj da lingvoj kaj kulturoj, kiuj ne disponas eĉ pri tiaj literaturaj kapacitoj, kiaj tamen troviĝas en Esperantujo. Laŭ la logiko de la malfeliĉa eldirinto ankaŭ la Angla lingvo mem ekzistas nur ek de la momento, kiam naski-
-
-ĝis la literaturo de Shakespeare …
+estas, ke ekzistas centoj da lingvoj kaj kulturoj, kiuj ne disponas eĉ pri tiaj literaturaj kapacitoj, kiaj tamen troviĝas en Esperantujo. Laŭ la logiko de la malfeliĉa eldirinto ankaŭ la Angla lingvo mem ekzistas nur ek de la momento, kiam naskiĝis la literaturo de Shakespeare …
 
 Sed la reala vivo estas tia, ke la hodiaŭa Angla generacio havas eble tiom komune kun ŝekspiro, kiom la modernaj
 
 Grekoj havas komune kun Platono kaj Ajs˛ilo. Escepte en
 
-ambaŭ kazoj de kelkaj plej kleraj personoj, kiuj speciale okupiĝas pri literaturo. Se vi ne kredas, bonvolu iri kun la tekstoj de ŝekspiro al iu ajn publika loko, kie kunvenas junaj Angloj kaj ekzamenu ilin per tiuj teatraĵoj enmane. Sed fiaskas tiusence ne nur la legantara parto, same fiaskas ankaŭ la kreada, verkista parto. Kiel ĉe esperantistoj, ankaŭ ĉe modernaj Anglaj verkistoj vi vane serĉos ion kompareblan kun ŝek-32
-
-LA MALBABELA JARO
-
-
-spiro. Se oni do vendadas la hodiaŭan Anglan lingvon kaj
+ambaŭ kazoj de kelkaj plej kleraj personoj, kiuj speciale okupiĝas pri literaturo. Se vi ne kredas, bonvolu iri kun la tekstoj de ŝekspiro al iu ajn publika loko, kie kunvenas junaj Angloj kaj ekzamenu ilin per tiuj teatraĵoj enmane. Sed fiaskas tiusence ne nur la legantara parto, same fiaskas ankaŭ la kreada, verkista parto. Kiel ĉe esperantistoj, ankaŭ ĉe modernaj Anglaj verkistoj vi vane serĉos ion kompareblan kun ŝekspiro. Se oni do vendadas la hodiaŭan Anglan lingvon kaj
 
 kulturon sub la protektonomo de la granda klasikulo, oni
 
-trompas la publikon. Tio estas laŭ mia scio sub puna mina-
-
-co ankaŭ en Aŭstrujo.
+trompas la publikon. Tio estas laŭ mia scio sub puna minaco ankaŭ en Aŭstrujo.
 
 Pri tiu ĉi punkto estu dirite ankaŭ, ke Esperanto tute ne
 
@@ -748,11 +565,7 @@ estas tiom da jaroj, kiam furoris sur la sama loko la Rusa lingvo. Mi sincere de
 
 Neniu homo dubas, ke la Angla lingvo nun estas la plej
 
-domina lingvo en la mondo. Sed domina ne egalas al inter-
-
-nacia. La domino supozas potencon kaj reputacion, la inter-nacieco supozas egalrajtecon kaj plenan justecon en la rilatoj inter popoloj. Eĉ se ĉiu homo en la mondo apud sia gepatra lingvo scius ankaŭ la Anglan, la monda lingva problemo ne estus kontentige solvita, ĉar unu granda parto de la mond-33
-
-LA MALBABELA JARO
+domina lingvo en la mondo. Sed domina ne egalas al internacia. La domino supozas potencon kaj reputacion, la inter-nacieco supozas egalrajtecon kaj plenan justecon en la rilatoj inter popoloj. Eĉ se ĉiu homo en la mondo apud sia gepatra lingvo scius ankaŭ la Anglan, la monda lingva problemo ne estus kontentige solvita, ĉar unu granda parto de la mond-33
 
 
 loĝantaro estus esence privilegiita kaj lingve supereca. La plej bona pruvo por tio troviĝas sur la teritorioj kun lingvaj minoritatoj kiel Karintujo, Burgenlando kaj eĉ Vieno mem. Ja prak-tike ĉiuj anoj de diversaj minoritatoj en Aŭstrujo perfekte scias ankaŭ la Germanan lingvon, kiu en Aŭstrujo ludas la
@@ -767,7 +580,7 @@ per iu alia domina lingvo, pri kiu ni hodiaŭ ne havas imagon.
 
 La antaŭmilita generacio priridus tiun, kiu volus ĝnvinki, ke la Franca iam estos forpuŝita profite al la Angla. Sed la domina nacia lingvo ĉiam restas nur domina kaj nacia. La
 
-fenomeno de la Zamenhofa iniciato ne estas unue en la 16
+fenomeno de la Zamenhofa iniciato ne estas unue en la
 
 reguloj kaj en la internacia vortaro, sed ĉefe en la kriterio de egalvaloro kaj justeco, el kiuj nur povas naskiĝi daŭra paco.
 
@@ -779,14 +592,9 @@ por Esperanto, sed trovi la kontestantojn, kiuj meritas intelektan dialogon. Via
 
 vastan alpaŝon.
 
-Se estas en via koncepto, vi povas tiun ĉi tekston aŭ sen-
-
-can parton de ĝi uzi en via dissendo — cetere ĝi estu afabla pruvo, ke viaj klopodoj ne disiĝas vane kaj vante en la etero.
+Se estas en via koncepto, vi povas tiun ĉi tekston aŭ sencan parton de ĝi uzi en via dissendo — cetere ĝi estu afabla pruvo, ke viaj klopodoj ne disiĝas vane kaj vante en la etero.
 
 Bonvolu ricevi miajn korajn salutojn!
-
-
-LA MALBABELA JARO
 
 
 ***24-an de ***
@@ -799,17 +607,11 @@ Mi verŝajne neniam scios, ĉu pravis Voltaire aŭ Hersch.
 
 Kun mia ĉefo mi veturis trans la limo al Meòiôka dolina en Slovenio por foti la okazaĵojn el la libro de la pastro Stückler, kiu baldaŭ aperos.
 
-Sur la jugoslavia doganejo oficis juna malĉarma doganis-
-
-tino, kiu turmentis la vojaĝantojn laŭvice. Ankaŭ ĉe ni ŝi ne konis kompaton. De inĝ-o Kattnig ŝi postulis ne nur, ke li montru la monujon, sed ankaŭ, ke li malplenigu ĉiujn siajn poŝojn. Humiliga procedo, kvazaŭ temus pri valora monva-luto kaj ne pri la ridinde malvaloraj dinaroj.
+Sur la jugoslavia doganejo oficis juna malĉarma doganistino, kiu turmentis la vojaĝantojn laŭvice. Ankaŭ ĉe ni ŝi ne konis kompaton. De inĝ-o Kattnig ŝi postulis ne nur, ke li montru la monujon, sed ankaŭ, ke li malplenigu ĉiujn siajn poŝojn. Humiliga procedo, kvazaŭ temus pri valora monva-luto kaj ne pri la ridinde malvaloraj dinaroj.
 
 ***3-an de ***
 
-Negoca veturo al Labako. Unue la eldonejo Mladinska knji-
-
-ga, kie mi kun la redaktoro Marko Urôiâ pritraktis la deta-35
-
-LA MALBABELA JARO
+Negoca veturo al Labako. Unue la eldonejo Mladinska knjiga, kie mi kun la redaktoro Marko Urôiâ pritraktis la deta-35
 
 
 Ni parolis, nature, ankaŭ pri du eksplodaj aferoj en la hodiaŭa momento de Slovenio: pri la apero de iaspeca Slovena nacia programo kaj postulo por la sendependo de Slovena
@@ -826,14 +628,9 @@ Ne mankis ankaŭ mia vizito ĉe Andreo kaj Antonio. An-
 Estis bona lia komputilo, sed eĉ pli bonaj estis liaj kuiritaj hejmecaj kolbasoj kun hejma ruĝa vino.
 
 
-LA MALBABELA JARO
-
-
 ***5-an de ***
 
-El Labako nova sensacio: la afiŝo estas duoble neorigina-
-
-la. Ankaŭ la germanaj nazioj ŝtelis. La originalo devenas el Sovetio el la tempo de la oktobra revolucio.
+El Labako nova sensacio: la afiŝo estas duoble neoriginala. Ankaŭ la germanaj nazioj ŝtelis. La originalo devenas el Sovetio el la tempo de la oktobra revolucio.
 
 Kiel simetrie kunligiĝas la girlando de totalismo: Moskvo
 
@@ -842,9 +639,7 @@ Kiel simetrie kunligiĝas la girlando de totalismo: Moskvo
 Hejme mi korektas la provkopiojn por la 14-a numero de
 
 
-Kiom da kondolencaj kartoj mi en la proksima tempo de-
-
-vos ankoraŭ sendi? Antaŭ kelkaj tagoj pendigis sin la filo de mia amiko V. Blaòiâ en Labako; tre talentita juna reĝisoro.
+Kiom da kondolencaj kartoj mi en la proksima tempo devos ankoraŭ sendi? Antaŭ kelkaj tagoj pendigis sin la filo de mia amiko V. Blaòiâ en Labako; tre talentita juna reĝisoro.
 
 Hieraŭ oni enterigis en Labako la edzinon de mia forpasinta amiko Edvardo Kocbek — Zdravka. ŝi ĉiam kun tia afablo
 
@@ -862,9 +657,7 @@ de la perpoŝta trijara verkista lernejo en Hamburgo ”IFS”. Mi ricevis la un
 
 Eble mi lasis min trompi, ja la prezo estas relative alta —
 
-entute 24.000 ŝilingoj. Sed mi ne havas alternativon, se mi 37
-
-LA MALBABELA JARO
+entute 24.000 ŝilingoj. Sed mi ne havas alternativon, se mi
 
 
 volas vere ekregi la germanan lingvon en suverena skriba formo.
@@ -881,13 +674,9 @@ Hodiaŭ posttagmeze mi komencis mian novan invadon al
 
 la ĉielo: laŭ la promesoj de Jesuo al s. M. Alcoque, ke tiuj, kiuj komuniiĝas je la unua vendredo sinsekve dum naŭ monatoj,
 
-ne mortos en lia malfavoro kaj sen la sakramentoj. Hodiaŭ mi en la preĝejo de kapucinoj fine de la Bahnhofstraße en Klaŭ-
+ne mortos en lia malfavoro kaj sen la sakramentoj. Hodiaŭ mi en la preĝejo de kapucinoj fine de la Bahnhofstraße en Klaŭdiforumo komuniiĝis la naŭan fojon en tiu sinsekvo.
 
-diforumo komuniiĝis la naŭan fojon en tiu sinsekvo.
-
-Mi iel sentas, ke venas paŝalpaŝe la tempo sence enkram-
-
-pigi la vivon. Mi ne timas la Dian juĝon kiel oni timas la poli-con aŭ ŝtatan juĝejon. Mi timas, ke oni apenaŭ ekkonos la
+Mi iel sentas, ke venas paŝalpaŝe la tempo sence enkrampigi la vivon. Mi ne timas la Dian juĝon kiel oni timas la poli-con aŭ ŝtatan juĝejon. Mi timas, ke oni apenaŭ ekkonos la
 
 eblecojn, kio estas vere plenumebla en la homa haŭto.
 
@@ -901,9 +690,6 @@ Bedaŭrinde ĉio akompanata de tiel sengusta kvazaŭpopola
 muzikgrupo, ke mi kolere foriris sen partopreni la komunan bufedon post la ceremonia parto.
 
 Eble ŝia plej impresiva poemo estas tiu pri la plendo de
-
-
-LA MALBABELA JARO
 
 
 maljuna servistino. Mi provas ĝin traduki en Esperanton,
@@ -940,12 +726,7 @@ Mi komencis legi la 57-an numeron de *Nova revija* el Labako, kiu levis tiom da 
 
 Jam en la unua artikolo de la slovena filozofo Tino Hribar (disĉiplo de Heidegger) mi devis kompati la staton de la nuna slovena intelektularo. Li skribas:
 
-”Se antaŭ jaroj disvastiĝis la timo, ke la teknologio en la transpaŝo de la naciaj limoj kaj lingvaj limoj elpuŝos kaj forigos ankaŭ la naciojn kaj iliajn idiomojn, nun pli kaj pli klare montriĝas, ke estas tute ebla ĝuste la kontraŭa evoluo. El la vidpunkto de teknologio, ekzemple de la komputora pro-cedado de naturaj lingvoj, estas ĉiuj lingvoj egalaj, do egalraj-taj; la lingvoj cetere diferencas laŭ la konstruo, sed la solvo de ilia komplikeco estas la teknika problemo, do teknike solve-39
-
-LA MALBABELA JARO
-
-
-bla. Sur la teknika nivelo la tiel nomataj ’mondlingvoj’ ne havas ian ajn privilegion antaŭ la lingvoj de la malgrandaj nacioj … ”
+”Se antaŭ jaroj disvastiĝis la timo, ke la teknologio en la transpaŝo de la naciaj limoj kaj lingvaj limoj elpuŝos kaj forigos ankaŭ la naciojn kaj iliajn idiomojn, nun pli kaj pli klare montriĝas, ke estas tute ebla ĝuste la kontraŭa evoluo. El la vidpunkto de teknologio, ekzemple de la komputora pro-cedado de naturaj lingvoj, estas ĉiuj lingvoj egalaj, do egalraj-taj; la lingvoj cetere diferencas laŭ la konstruo, sed la solvo de ilia komplikeco estas la teknika problemo, do teknike solvebla. Sur la teknika nivelo la tiel nomataj ’mondlingvoj’ ne havas ian ajn privilegion antaŭ la lingvoj de la malgrandaj nacioj … ”
 
 ” … Pro la novaĵoj, portataj de la postindustria teknologio, la ideo de Kant pri la homo kiel mondcivitano (Weltbürger) komencas realiĝi laŭ tute speciala maniero. Ne tra la kun-fandiĝo de lingvoj kaj pereo de nacioj, sed trans la diferencigo de la nacioj kaj posteniĝo de la koncernaj lingvoj, sed per la malfermado de la limoj, per la konstituado de la monda civitana socio kaj monda informa sistemo.”
 
@@ -955,18 +736,11 @@ komputora sistemo de tradukado por kvin lingvoj.
 
 Estas tipe, kiel facilkredemaj estas la kabinedaj filozofoj al la probablaj eblecoj de la tekniko. Marx kredis, ke la ”evoluo de la produktivaj povoj” ŝanĝos la sociajn sistemojn kaj forigos la ekspluatadon. Kaj T. Hribar nun, kiam li mem ridas pri Marx, faras la saman eraron.
 
-ĉiu dekjara knabo povus klarigi al li, ke ĝuste en la kom-
-
-putora tekniko kaŝiĝas la plej fatala superregado de la angla lingvo. Kvankam la strukturo de la angla mem ne estas ide-ala por la komputora tekniko, tamen ĝi tie regas pro la nura fakto, ke la komputoroj en la nuna formo naskiĝis en la angle parolanta mondparto.
+ĉiu dekjara knabo povus klarigi al li, ke ĝuste en la komputora tekniko kaŝiĝas la plej fatala superregado de la angla lingvo. Kvankam la strukturo de la angla mem ne estas ide-ala por la komputora tekniko, tamen ĝi tie regas pro la nura fakto, ke la komputoroj en la nuna formo naskiĝis en la angle parolanta mondparto.
 
 Sed la ĉefa riproĉo estas politika. La tuta artikolo de T. Hribar pledas por vera demokratio kaj suvereneco de Slovena
 
-popolo. Bone. Sed oni ne povas paroli pri vera demokratio kaj samtempe limigi la interhomajn kontaktojn al la maŝina tradukado, kiu estos tro multekosta — kaj finfine ĉiam tro primitiva. ĉu la malfeliĉa aŭtoro havas ideon pri tio, kion signi-40
-
-LA MALBABELA JARO
-
-
-fos: en kontakto kun alilingvano dependi de la kapricoj, kiajn enhavas la tradukmaniero de komputilo?
+popolo. Bone. Sed oni ne povas paroli pri vera demokratio kaj samtempe limigi la interhomajn kontaktojn al la maŝina tradukado, kiu estos tro multekosta — kaj finfine ĉiam tro primitiva. ĉu la malfeliĉa aŭtoro havas ideon pri tio, kion signifos: en kontakto kun alilingvano dependi de la kapricoj, kiajn enhavas la tradukmaniero de komputilo?
 
 ***13-an de ***
 
@@ -978,11 +752,7 @@ priparoliĝas la ”propono”, ke la sudaj respublikoj ”frate helpu” al la 
 
 La dua tiklaĵo estas la de nazia regno kopiita afiŝo por la ĉiujara junulara festo okaze de la naskiĝtago de la formortinta diktatoro Tito.
 
-Bedaŭrinde oni forgesas, ke preskaŭ la tuta politika siste-mo en Jugoslavio (kaj en la orienteŭropaj landoj eĉ pli) estas kopio, falsaĵo de la Hitlera regno. Nur kelkaj komunaj ecoj: malpermeso de opozicio, ŝajnaj balotoj kun kandidatoj el la nura permesita partio, nur ŝtata kaj partie kontrolata sindikato por laboristoj, agado kontraŭ la eklezio kaj derangigo de kredantoj, nuligo aŭ minimumigo de la gazetara libero, malpermeso de asociiĝado de homoj laŭ propraj interesoj, per-
-
-sekutado de intelektuloj kaj artistoj, speciale de verkistoj, indoktrinado de infanoj kaj eduka fremdigo de infanoj disde 41
-
-LA MALBABELA JARO
+Bedaŭrinde oni forgesas, ke preskaŭ la tuta politika siste-mo en Jugoslavio (kaj en la orienteŭropaj landoj eĉ pli) estas kopio, falsaĵo de la Hitlera regno. Nur kelkaj komunaj ecoj: malpermeso de opozicio, ŝajnaj balotoj kun kandidatoj el la nura permesita partio, nur ŝtata kaj partie kontrolata sindikato por laboristoj, agado kontraŭ la eklezio kaj derangigo de kredantoj, nuligo aŭ minimumigo de la gazetara libero, malpermeso de asociiĝado de homoj laŭ propraj interesoj, persekutado de intelektuloj kaj artistoj, speciale de verkistoj, indoktrinado de infanoj kaj eduka fremdigo de infanoj disde
 
 
 la gepatroj, koncentrejaj kampoj por politikaj kontraŭuloj ktp..
@@ -999,9 +769,7 @@ En la radia ĵurnalo mi aŭdis, ke la CK de KPSU deklaras
 
 plian proceson de malfermiĝo kaj demokratiĝo en la lando.
 
-Samtempe en Moskvo kunsidas la unuiĝo de sovetiaj ĵurna-
-
-listoj, al kiu oni instruas la novan, pli demokratian manieron de raportado kaj komentado. Estas siamaniere kompatinda
+Samtempe en Moskvo kunsidas la unuiĝo de sovetiaj ĵurnalistoj, al kiu oni instruas la novan, pli demokratian manieron de raportado kaj komentado. Estas siamaniere kompatinda
 
 afero, ke eĉ la demokration — kia ajn jam ĝi tie povas esti —
 
@@ -1010,26 +778,17 @@ oni devas altrudi diktatorece …
 La ministro por internaj aferoj en Aŭstrio Karlo Blecha hie-raŭ laŭ iu tro rapida maniero vizitis jugoslaviajn funkciulojn, kun kiuj li renkontiĝis en Labako. Laŭdire temis pri problemoj de sekureco. ĉu fakte temas pri intenco perforte fini la demokratiiĝon en Slovenio fare de la centra potenco en Belgrado — kaj pri tio oni volis informi la najbaran ŝtaton Aŭstrio?
 
 
-LA MALBABELA JARO
-
-
 ***19-an de ***
 
-Hodiaŭ en Labako la sepataga postmorta diservo por sinjo-
-
-rino Zdravka Kocbek, vidvino de la slovena verkisto Edvar-
+Hodiaŭ en Labako la sepataga postmorta diservo por sinjorino Zdravka Kocbek, vidvino de la slovena verkisto Edvar-
 
 do Kocbek; nia Solĵenicin kaj nia Böll. Ni estis bonaj amikoj; ŝi fidele gardis la memoron pri la forpasinta viktimo de la komunista reĝimo. ŝi kuiris la plej bongustan kafon en Labako kaj montris sian gasteman karakteron je ĉiu okazo.
 
-ĉar mi ne povis ĉeesti ŝian entombigon, mi decidis par-
-
-topreni la diservon je ŝia memoro kaj animbono. Sed pro la lasttempaj eventoj en Slovenio mi kun iom premita koro forlasis la aŭstran teritorion kaj transveturis la limon sur Kara-vankoj.
+ĉar mi ne povis ĉeesti ŝian entombigon, mi decidis partopreni la diservon je ŝia memoro kaj animbono. Sed pro la lasttempaj eventoj en Slovenio mi kun iom premita koro forlasis la aŭstran teritorion kaj transveturis la limon sur Kara-vankoj.
 
 En Labako mi unue vizitis la verkiston kaj tradukiston
 
-d-ron Capuder, kunredaktoron de nia revuo *CZ*. Li estas iom kaprica homo. Al *Nova revija*, kiu en sia 57-a numero vere levis la polvon de la slovena kaj tutjugoslavia politika tablo, lia sinteno estas apriore negativa kun la eldiro, ke temas nur pri la t.n. kortega opozicio, ne nur tolerata, sed kaŝe eĉ spro-nata fare de la reĝimo mem — kvankam poste tiu sama re-
-
-ĝimo pro la postuloj de Belgrado devas surscenigi la opereton de kondamno.
+d-ron Capuder, kunredaktoron de nia revuo *CZ*. Li estas iom kaprica homo. Al *Nova revija*, kiu en sia 57-a numero vere levis la polvon de la slovena kaj tutjugoslavia politika tablo, lia sinteno estas apriore negativa kun la eldiro, ke temas nur pri la t.n. kortega opozicio, ne nur tolerata, sed kaŝe eĉ spro-nata fare de la reĝimo mem — kvankam poste tiu sama reĝimo pro la postuloj de Belgrado devas surscenigi la opereton de kondamno.
 
 En la kerno tio parte veras, sed oni tamen devas agnoski,
 
@@ -1037,12 +796,7 @@ ke neniu alia sur tiu ekstera, registrebla tavolo, faris pli aŭ pli bone. En la
 
 En la dua punkto, kie ni tute disiras, li pledas — post tiom-tempa kaĝo de nacioj — por la pludaŭro de Jugoslavio. Lia
 
-slogano estas, ke eĉ la plej malbona Jugoslavio estas multe pli bona ekzistmaniero ol ia sendependa Slovenio. Liaj argumen-43
-
-LA MALBABELA JARO
-
-
-toj estas ”danĝero flanke de najbaraj ŝtatoj, kiel Italujo, Aŭstrujo kaj Hungarujo”. Mi kontraŭe opinias, ke ĝuste tiuj — por la Slovena nacio en si fakte iom malamikaj ŝtatoj — tamen
+slogano estas, ke eĉ la plej malbona Jugoslavio estas multe pli bona ekzistmaniero ol ia sendependa Slovenio. Liaj argumentoj estas ”danĝero flanke de najbaraj ŝtatoj, kiel Italujo, Aŭstrujo kaj Hungarujo”. Mi kontraŭe opinias, ke ĝuste tiuj — por la Slovena nacio en si fakte iom malamikaj ŝtatoj — tamen
 
 salutus la solidan kaj fidindan najbaron, kia estus la sendependa kaj demokratia ŝtato Slovenio. Jugoslavio, kia ĝi estas, estas ĉiama neeksplodita bombo, do alte riska faktoro en la eŭropa politika medio. Cetere: mia unua postulo ne estas di-sigi Jugoslavion, tion ĝi kaŭzas mem, sed efektivigi la fundamentan rajton de ĉiu nacio, do ankaŭ de la slovena, libere decidi pri sia politika kaj cetera vivmaniero. Kaj se la plimulto de Slovenoj en iu libera voĉdonado elektos Jugoslavion, mi certe bedaŭros, sed mi plene respektos la decidon de la popolo.
 
@@ -1050,38 +804,26 @@ Tamen, per unu litro da bona Stiria vino li iom kompensis
 
 sian sintenon kaj ni adiaŭis en bona humoro.
 
-Mia dua vizitcelo estis d-ro Buâar, kiu en la lastaj tagoj fari-
-
-ĝis la centra celtabulo de la reĝima kondamno. Li publikigis libron kun la titolo *La tempo kaj la vero*, en kiu li ĝisfunde detruis ĉiujn trompaĵojn kaj iluziaĵojn pri la t.n. ”memmastru-ma socialismo”, kiun projektis la fifama slovena stalinisto Edvardo Kardelj. La libro aperis nur en 1.000 ekzempleroj kaj estis en kelkaj tagoj disvendita, kvankam ĝin akompanis plena silento kaj ignoro fare de la amaskomunikiloj.
+Mia dua vizitcelo estis d-ro Buâar, kiu en la lastaj tagoj fariĝis la centra celtabulo de la reĝima kondamno. Li publikigis libron kun la titolo *La tempo kaj la vero*, en kiu li ĝisfunde detruis ĉiujn trompaĵojn kaj iluziaĵojn pri la t.n. ”memmastru-ma socialismo”, kiun projektis la fifama slovena stalinisto Edvardo Kardelj. La libro aperis nur en 1.000 ekzempleroj kaj estis en kelkaj tagoj disvendita, kvankam ĝin akompanis plena silento kaj ignoro fare de la amaskomunikiloj.
 
 En la 57-a numero de *Nova revija* li publikigis fakte la ĉefan artikolon, en kiu li pruvas, ke la tuta postmilita ekzisto de Jugoslavio baziĝas sur mallegitimeco. Lia postulo estas, ke la slovena popolo povu libere kiel ĉiu tribo en Afriko aŭ Ocea-nio elekti sian politikan formon kaj realigi sian sendependecon.
 
 Profesoro Buâar timas, ke en baldaŭa tempo povos okazi
 
 
-LA MALBABELA JARO
-
-
 esenca ŝanĝo en la direkto de politika frostiĝo kaj retroiro. La rezulto plej verŝajne estos, ke oni persekutos kaj arestos almenaŭ la ĉefajn kapojn de opozicio. Se li devos iun tagon fuĝi
 
 — kien? Li restos sen unu sola mondvalida monero kaj sen iu ajn povo por sia prizorgo. Mi proponis, ke oni serĉu eblecojn en Usono, ja li antaŭ jaroj estis tie kiel stipendiito de la Eisen-hower-fonduso. Li ankoraŭ bone regas la Anglan kaj li eble tamen trovus ian portempan postenon en iu Amerika universitato. Mi ankaŭ proponis, ke oni organizu la tradukon de lia libro en la anglan, kio pligrandigus lian reputacion kaj eblon travivi.
 
-Kun tiaj zorgoj devas batali akademiano, kiu momente es-
-
-tas la unua cerbo de la poliktiksistema filozofio en tuta Jugoslavio. Ne helpas al li, ke li dum la milito estis partizana komandanto, kiu eĉ kiel la unua transprenis de germana ofici-ro la povon en Klaŭdiforumo maje 1945 …
+Kun tiaj zorgoj devas batali akademiano, kiu momente estas la unua cerbo de la poliktiksistema filozofio en tuta Jugoslavio. Ne helpas al li, ke li dum la milito estis partizana komandanto, kiu eĉ kiel la unua transprenis de germana ofici-ro la povon en Klaŭdiforumo maje 1945 …
 
 Poste ni kune iris al la granda kulturaranĝa konstruaĵo
 
-Cankarjev dom, kie okazis politika diskuto pri la ŝanĝoj de konstitucio, organizita de la Verkista asocio de Slovenio. Se la de reĝimo proponitaj ŝanĝoj efektiviĝus, Slovenio perdus eĉ tiun eron de sia memstaro, kiun ĝi nun posedas. Precipe dan-
-
-ĝera estos la komisiigo de la sekreta polico al la tutjugoslavia nivelo. Laŭ la nova ordigo povos, ekzemple, la ŝtatakuzisto en Belgrado aresti iun intelektulon, kiu malagrablas al la reĝimo, ankaŭ en Labako. Tio estas la stato de la antaŭmilita reĝa diktaturo SHS (Reĝlando de Serboj, Kroatoj kaj Slovenoj).
+Cankarjev dom, kie okazis politika diskuto pri la ŝanĝoj de konstitucio, organizita de la Verkista asocio de Slovenio. Se la de reĝimo proponitaj ŝanĝoj efektiviĝus, Slovenio perdus eĉ tiun eron de sia memstaro, kiun ĝi nun posedas. Precipe danĝera estos la komisiigo de la sekreta polico al la tutjugoslavia nivelo. Laŭ la nova ordigo povos, ekzemple, la ŝtatakuzisto en Belgrado aresti iun intelektulon, kiu malagrablas al la reĝimo, ankaŭ en Labako. Tio estas la stato de la antaŭmilita reĝa diktaturo SHS (Reĝlando de Serboj, Kroatoj kaj Slovenoj).
 
 Mi bedaŭrinde ne povis resti pli ol unu horon — mi povis
 
 nur koridore babili kun kelkaj redaktoroj de *Nova revija*, kiuj tie kunvenis. ĉiuj timas ian stalinisman kaj serbcentrisman puĉon.
-
-
-LA MALBABELA JARO
 
 
 En la bela preĝejo de ursulinaj mona˛inoj mi eksidis en iu benko meze de la navo. Venis ambaŭ filoj de Zdravka kun siaj familioj. La liturgio estis bela, kvankam la pastro dum la prediko iom tro babilemis.
@@ -1090,20 +832,13 @@ Dum la komunio, kiam mi retroiris de la altaro, mi en la
 
 vico de atendantoj al la sankta pano de Kristo konsterniĝinte ekvidis mian fatalan amikinon Ronjon. Ni nur perokule dece ekridetis reciproke kaj preteriris nin.
 
-Post la diservo antaŭ la pordego jam atendis min d-ro Se-
-
-dej kun sia edzino — kaj Ronjo. Al ŝi mi parolis kaj kondutis en iel ironia tono por tiel protekti mian integron kontraŭ mia profunda platoneska rilato. Sed ŝi devis baldaŭ foriri pro le-cionoj de la franca, kiujn ŝi donas al iu privata lernanto. Tiel mi veturis post ŝia teatre malvarma manpremo al la hejmo de d-ro Sedej.
+Post la diservo antaŭ la pordego jam atendis min d-ro Sedej kun sia edzino — kaj Ronjo. Al ŝi mi parolis kaj kondutis en iel ironia tono por tiel protekti mian integron kontraŭ mia profunda platoneska rilato. Sed ŝi devis baldaŭ foriri pro le-cionoj de la franca, kiujn ŝi donas al iu privata lernanto. Tiel mi veturis post ŝia teatre malvarma manpremo al la hejmo de d-ro Sedej.
 
 ĉe d-ro Sedej ni restis kune ĉirkaŭ la feste manĝaĵŝarĝita tablo ĝis la 23-a horo, kiam mi fine decidis forveturi. Vidinte dum nia tuta tempo junan policanon promeni preter tiuj
 
-envicaj domoj, mi al mia koncerna demando ricevis la re-
-
-spondon, ke en la proksimo havas sian domon funkciulo de
+envicaj domoj, mi al mia koncerna demando ricevis la respondon, ke en la proksimo havas sian domon funkciulo de
 
 la slovena Kompartio Andreo Marinc. Same tiel estas deĵore gardataj miloj el la reganta nomenklaturo. ĉe tio mi menciis grandan Svedan ĉefministron Olof Palme, kiu preferis morton ol akcepti la privilegion de polica gardado kaj izolo de la propra popolo. Nur la maljustuloj havas motivon sin lasi gardi antaŭ la popolo.
-
-
-LA MALBABELA JARO
 
 
 ***20-an de ***
@@ -1114,60 +849,42 @@ Esperanto-grupo de la fervoja societo en iu karintia urbeto petis min por gvidi 
 
 Mia kontakta persono devus esti d-ro T., sub kies Germana
 
-ortografio kaŝiĝas slovena familia nomo. ĉar mi devis pri-
-
-trakti kelkajn detalojn, mi skribis al li afablan leteron, en kiu mi starigis nur unu kondiĉon, ĉe kiu mi ne faras kompromi-son: la surskriboj sur la afiŝoj por la kursvarbado estu dulingvaj, ĉar ni troviĝas en dulingva teritorio. Mi menciis ankaŭ la fakton, ke nun la germana lingvo estas preskaŭ same mina-cata kiel la slovena. Kompare al la ĉina, angla, hispana kaj rusa, ĉiuj ceteraj lingvoj iamaniere estas minoritataj — kiel Esperanto mem.
+ortografio kaŝiĝas slovena familia nomo. ĉar mi devis pritrakti kelkajn detalojn, mi skribis al li afablan leteron, en kiu mi starigis nur unu kondiĉon, ĉe kiu mi ne faras kompromi-son: la surskriboj sur la afiŝoj por la kursvarbado estu dulingvaj, ĉar ni troviĝas en dulingva teritorio. Mi menciis ankaŭ la fakton, ke nun la germana lingvo estas preskaŭ same mina-cata kiel la slovena. Kompare al la ĉina, angla, hispana kaj rusa, ĉiuj ceteraj lingvoj iamaniere estas minoritataj — kiel Esperanto mem.
 
 Hodiaŭ venis lia respondo. Unue surprizis min la fakto, ke li skribas germane kaj ne en Esperanto. Li refutas mian deziron pri dulingvaj surskriboj per du ”argumentoj”. La unua: la minoritata problemo ne ŝarĝu la aferon de Esperanto. La dua: por varbado oni uzu la lingvon, kiun ĉiuj komprenas, kvankam — jes, tiel! — kelkiuj enmigris al Karintio kun la itala, hungara aŭ slovena gepatraj lingvoj … Argumento, inda de
 
 la nazia tradicio en Karintio.
 
-Kvazaŭ Esperanto ne naskiĝus speciale en minoritata me-
-
-dio, kiu per si estas la plej bona motivo ellerni la komunan lingvon.
+Kvazaŭ Esperanto ne naskiĝus speciale en minoritata medio, kiu per si estas la plej bona motivo ellerni la komunan lingvon.
 
 La plej terura estas la ŝajnargumento, ke en Karintio nur
 
 kelkaj enmigrintoj parolas hejme la negermanajn lingvojn;
 
-kvazaŭ ne vivus ĉi tie dum pli ol 1200 jaroj la slovena popo-47
-
-LA MALBABELA JARO
-
-
-lo, kiu eĉ fondis ĉi tie la sendependan ŝtaton Karantanujon, surbaze de kiu elkreskis la hodiaŭa sendependa respubliko
+kvazaŭ ne vivus ĉi tie dum pli ol 1200 jaroj la slovena popolo, kiu eĉ fondis ĉi tie la sendependan ŝtaton Karantanujon, surbaze de kiu elkreskis la hodiaŭa sendependa respubliko
 
 Aŭstrio.
 
-Por ne forlasi la decan konduton mi prefereis tute ne re-
-
-spondi al d-ro T.
+Por ne forlasi la decan konduton mi prefereis tute ne respondi al d-ro T.
 
 ***22-an de ***
 
-En la stacidomo de Klaŭdiforumo okazas ekspozicio pri 150
+En la stacidomo de Klaŭdiforumo okazas ekspozicio pri
 
 jaroj de Aŭstraj fervojoj. Enkadre de la impona ekspozicio troviĝas ankaŭ angulo por la Esperanto-movado inter fervo-jistoj kaj pri Esperanto ĝenerale.
 
 Mi devas deĵori, ĉar Marteno vojaĝis al Maribor por viziti nian amikinon Zdenka, kuŝanta post sia karambolo en la hospitalo.
 
-Interese estas observi la konduton de la preterirantaj ho-
-
-moj. Plimultaj estas enkaĝigitaj de la nepovo spontane kaj glate komuniki. Ili ofte nur tre singarde preteriras la benkon kun la ekspoziciitaj revuoj kaj varbfolioj. El mil homoj eble nur dek interesiĝas kaj komencas demandi, pri kio temas.
+Interese estas observi la konduton de la preterirantaj homoj. Plimultaj estas enkaĝigitaj de la nepovo spontane kaj glate komuniki. Ili ofte nur tre singarde preteriras la benkon kun la ekspoziciitaj revuoj kaj varbfolioj. El mil homoj eble nur dek interesiĝas kaj komencas demandi, pri kio temas.
 
 Kion la homoj fakte timas, ke ili ne volas riski iomete da infana scivolo por trafoliumi revuojn? Povas esti, ke ili havas malbonajn spertojn kun la varbe proponitaj aferoj. Aŭ ili timas iun ajn alproksimiĝon al la afero nekonata. Aŭ ili en
 
 principo bone scias la ordonon de ilia konscio, se ĝi ricevus klaran informon: Ekagu kune! Tiun danĝeron, ke ilia konscio komencos persekuti ilin, se ili ne sekvos ĝin obee, la homoj volas eviti jam de komence. Kategoria imperativo de Kant’ …
 
 
-LA MALBABELA JARO
-
-
 Interese ankaŭ priaŭskulti, kion la homoj demandas, se ili jam investas tiun kuraĝon.
 
-Preskaŭ ĉiuj demandas en la senco de la kvanto: kiel dis-
-
-vastigita estas Esperanto, kiom da homoj ĝin parolas? Neniu interesiĝas, ĉu ĝi pli bone solvas la komunikan problemon; ĉu
+Preskaŭ ĉiuj demandas en la senco de la kvanto: kiel disvastigita estas Esperanto, kiom da homoj ĝin parolas? Neniu interesiĝas, ĉu ĝi pli bone solvas la komunikan problemon; ĉu
 
 ĝi signifas pli justan solvon? Kie restas la kvalite orientita spi-riteca homo?
 
@@ -1177,15 +894,9 @@ rockorkestro primitivajn ŝlagrojn eltrans de oceano. Ilia ĉefa kvalito estas l
 
 ***25-an de ***
 
-Antaŭ la vizito en la okcidenta Germanio la estro de la Jugoslavia registaro Mikuliĝ donis intervjuon por la revuo *Der* *Spiegel*, en kiu li perdis ĉiun senton pri dececo. Rilate la lar-
+Antaŭ la vizito en la okcidenta Germanio la estro de la Jugoslavia registaro Mikuliĝ donis intervjuon por la revuo *Der* *Spiegel*, en kiu li perdis ĉiun senton pri dececo. Rilate la larĝan ondon de laboristaj strikoj en Jugoslavio li emfazis, ke oni, laŭbezone, uzos ankaŭ la militistan povon.
 
-ĝan ondon de laboristaj strikoj en Jugoslavio li emfazis, ke oni, laŭbezone, uzos ankaŭ la militistan povon.
-
-Fakte la laboristaj maltrankvilaĵoj en lasta momento de-
-
-ŝarĝis la problemon ”Slovenio”. Se la centralisma registaro en 49
-
-LA MALBABELA JARO
+Fakte la laboristaj maltrankvilaĵoj en lasta momento deŝarĝis la problemon ”Slovenio”. Se la centralisma registaro en
 
 
 Belgrado povus per milita interveno glate ĉesigi la ”demokratian eksperimenton” en Slovenio, oni ne povas la samon fari kontraŭ la tuta laboristaro en la federacia ŝtato.
@@ -1194,24 +905,15 @@ Belgrado povus per milita interveno glate ĉesigi la ”demokratian eksperimento
 
 Eble estus bone traduki ĝin en Esperanton kaj en la slovenan lingvon. La ”plej belan amhistorion de la mondo”, kiel ĝin deklaris la franca poeto Louis Aragon: *amilja*. La aŭtoro estas la modesta Kirgiza agronomia inĝeniero ingis Ajtmatov.
 
-Temas pri la edzino amilja, en la jaro 1943 en iu kirgiza vila-
-
-ĝo, kies edzo servas militon en la kontraŭgermana fronto.
+Temas pri la edzino amilja, en la jaro 1943 en iu kirgiza vilaĝo, kies edzo servas militon en la kontraŭgermana fronto.
 
 Foje revenas de la fronto la soldato Danijar por reakiri sanon. Li helpas en la vilaĝa kol˛ozo prizorgi grejnaron por la bezonoj surfronte. Dume la forpuŝa konduto de amilja rilate al Danijar transformiĝas al forta ampasio. Fine la paro fuĝas el la vilaĝo, kiun firme regas la tradicio de islamo. La rakonton sprite rakontas la — ankoraŭ knabo — frato de la
 
 edzo de amilja.
 
-Verŝajne Aragon, kies fanatika adepteco al sovetiismo es-
+Verŝajne Aragon, kies fanatika adepteco al sovetiismo estas konata, en sia emfazo por ĉio, kio tie okazas, en sia prijuĝo troigis, sed la historio tamen estas literature matura kaj kortuŝega.
 
-tas konata, en sia emfazo por ĉio, kio tie okazas, en sia prijuĝo troigis, sed la historio tamen estas literature matura kaj kortuŝega.
-
-Al Mateo mi fine devis aĉeti la porkomencantan kompu-
-
-tilon Sinclair-Spectrum. Li ĝisŝparis la duonan sumon kaj mi promesis aldoni la reston. Mi cetere ne entuziasmas pri tiuj ludiloj, sed oni ne povas neglekti la solan perspektivon de la mondo, en kiu la nekono de komputilaj traktadoj validos kiel analfabetismo.
-
-
-LA MALBABELA JARO
+Al Mateo mi fine devis aĉeti la porkomencantan komputilon Sinclair-Spectrum. Li ĝisŝparis la duonan sumon kaj mi promesis aldoni la reston. Mi cetere ne entuziasmas pri tiuj ludiloj, sed oni ne povas neglekti la solan perspektivon de la mondo, en kiu la nekono de komputilaj traktadoj validos kiel analfabetismo.
 
 
 ***27-an de ***
@@ -1226,27 +928,18 @@ Antaŭ la prelego Johano min prezentis al li dirante, ke mi hejme flegas ian spe
 
 ***4-an de ***
 
-La repaciĝa diservo de la papo en Santiago de ĉilio trans-
+La repaciĝa diservo de la papo en Santiago de ĉilio transformiĝis parte al batalo inter la policistaro kaj militema junu-laro. Mi ne povas kredi, ke la homoj, kiuj eĉ dum diservo ne povas sin deteni de perforto kontraŭ la polico, vere serĉas demokration kaj ne nur eblecon de propra diktaturo. Pinoĉe-to certe estas diktatoro, sed nur amatoreca kompare kun tiuj, kiuj volas lin anstataŭigi. Dum la vizito de la papo li ekzemple promesis la eklaboron de opoziciaj partioj. Kiu komunisma
 
-formiĝis parte al batalo inter la policistaro kaj militema junu-laro. Mi ne povas kredi, ke la homoj, kiuj eĉ dum diservo ne povas sin deteni de perforto kontraŭ la polico, vere serĉas demokration kaj ne nur eblecon de propra diktaturo. Pinoĉe-to certe estas diktatoro, sed nur amatoreca kompare kun tiuj, kiuj volas lin anstataŭigi. Dum la vizito de la papo li ekzemple promesis la eklaboron de opoziciaj partioj. Kiu komunisma
-
-reĝimo promesas la samon? Ili diros, ke Pinoĉeto ne plenu-
-
-mos sian promeson — sekve ili prefere mem ion tian ne pro-
+reĝimo promesas la samon? Ili diros, ke Pinoĉeto ne plenumos sian promeson — sekve ili prefere mem ion tian ne pro-
 
 mesu …
-
-
-LA MALBABELA JARO
 
 
 Nur malmultaj hodiaŭaj libroj legiĝas streĉe kaj kun veka
 
 intereso. Sed la gramatika libro de Rikardo ŝulco: *Pledo por la* *unueca lingvo* povas esti ĝue legata kiel streĉa aventura romano. Li en multaj punktoj malfermas okulojn. Li pruvas, ke ni preskaŭ ĉiuj estas parte kaŝaj idistoj kaj ne ĉiusence veraj esperantistoj.
 
-Posttagmeze mi kompilis du tajpitajn paĝojn pri la vivo de la pentristo Jozefo Tisnikar por la katalogo, aperonta okaze de lia ekspozicio en Klaŭdiforumo. Post tio mi tradukis la en-kondukan tekston de Marjorie Boulton por la slovena eldo-
-
-no de ŝia prizamenhofa biografio. Bone, ke Britino diras al Slovenoj, ke la angla lingvo ne povas validi kiel aŭtente internacia.
+Posttagmeze mi kompilis du tajpitajn paĝojn pri la vivo de la pentristo Jozefo Tisnikar por la katalogo, aperonta okaze de lia ekspozicio en Klaŭdiforumo. Post tio mi tradukis la en-kondukan tekston de Marjorie Boulton por la slovena eldono de ŝia prizamenhofa biografio. Bone, ke Britino diras al Slovenoj, ke la angla lingvo ne povas validi kiel aŭtente internacia.
 
 ***5-an de ***
 
@@ -1262,9 +955,7 @@ La vespermanĝo estis pli larĝanima: ia italspeca farunaĵo
 
 kun muelitaj stekoj, verda salato, bona kamparana vino.
 
-Sed je unu temo ni tute ne trovis solvon: oni ne povas trovi 52
-
-LA MALBABELA JARO
+Sed je unu temo ni tute ne trovis solvon: oni ne povas trovi
 
 
 Slovenon, kiu pritraktus la najbarecon kun la Kroata popolo
@@ -1282,20 +973,14 @@ Sur la doganejo oni min demandis pri kunportataj varoj.
 
 Mi deklaris la kafon. Poste oni ordonis al mi malfermi la va-lizujon de mia veturilo.
 
-i estis senhava. Mi devis malfermi la motorkovrilon. Kla-
+i estis senhava. Mi devis malfermi la motorkovrilon. Klare, nenio. Poste oni min demandis pri la enhavo de mia ak-
 
-re, nenio. Poste oni min demandis pri la enhavo de mia ak-
-
-tujo. Mi simple disponigis ĝin al ili. La doganisto vokis la lim-transirejan policanon kaj donis al li mian senkulpan manskribon. Oni priserĉis ĝin dum kelka tempo en la oficejo, mi staris ekstere. Poste venis la policisto kaj demandis min, pri kio temas en tiu manskribo. Mi ne eltenis plu. ”Mi estus tre kontenta, se vi bonvolus ĝin reteni, la gazetaro sufiĉe volonte 53
-
-LA MALBABELA JARO
+tujo. Mi simple disponigis ĝin al ili. La doganisto vokis la lim-transirejan policanon kaj donis al li mian senkulpan manskribon. Oni priserĉis ĝin dum kelka tempo en la oficejo, mi staris ekstere. Poste venis la policisto kaj demandis min, pri kio temas en tiu manskribo. Mi ne eltenis plu. ”Mi estus tre kontenta, se vi bonvolus ĝin reteni, la gazetaro sufiĉe volonte
 
 
 raportos pri via malfermata limo,” mi diris kun certa kolero en mia voĉo. Tio ne plaĉis al li, kaj li tuj redonis al mi ĉion, svingante per sia mano, ke mi forveturu.
 
-La redaktoro de la eldonejo Obzorja en Maribor ĵus tele-
-
-fonis en germana lingvo al iu kolego en Germanio. Interesa, tiu redaktoro, profesoro Avsenak. Li okupiĝas pri kvalitaj vi-noj kaj verkis tre spritan libron je tiu ĉi temo. Li apartenas al la malnova skolo de jam preskaŭ malaperintaj kavaliroj. Anstataŭ kravaton li portas bantkravaton. Li ne povas discipline pritrakti iun temon laŭpunkte.
+La redaktoro de la eldonejo Obzorja en Maribor ĵus telefonis en germana lingvo al iu kolego en Germanio. Interesa, tiu redaktoro, profesoro Avsenak. Li okupiĝas pri kvalitaj vi-noj kaj verkis tre spritan libron je tiu ĉi temo. Li apartenas al la malnova skolo de jam preskaŭ malaperintaj kavaliroj. Anstataŭ kravaton li portas bantkravaton. Li ne povas discipline pritrakti iun temon laŭpunkte.
 
 Apenaŭ ni komencis diskuti pri la libro, eniris iu aĉa verkisto L.F., kiu neniam vidis unu solan partizanon, sed kuraĝis verki multajn librojn pri ili. Ni supraĵe konas unu la alian. Li tuj komencis fanfaroni, ke li estas invitata al la por komunistoj fama vilaĝo ĉebine, kie en la jaro 1937 okazis la fonda
 
@@ -1307,9 +992,7 @@ Ni iris al lia hejmo por tagmanĝi. La dommastrino aparte por mi preparis ian sp
 
 Posttagmeze mi transveturis la riveron Drava kaj en la
 
-kontraŭa parto de la urbo faris viziton ĉe Zdenka. ŝi antaŭ 54
-
-LA MALBABELA JARO
+kontraŭa parto de la urbo faris viziton ĉe Zdenka. ŝi antaŭ
 
 
 nelonge havis fortan karambolon, sed preskaŭ mirakle restis en kontentiga sanstato. Sed ŝi ŝuldas la monon por la aŭto kaj por la postrestita lado ŝi apenaŭ ion ricevos.
@@ -1318,9 +1001,7 @@ nelonge havis fortan karambolon, sed preskaŭ mirakle restis en kontentiga sanst
 
 Vespere dum la sankta ĵaŭdo, post la religia ceremonio, mi havis bonŝancon rigardi la usonan filmon La amo sen vortoj de la reĝisoro Joseph Sargent, el la jaro 1985. Simpla familia historio pri mutsurdaj gepatroj kaj ĉiuaspekte maturiĝinta filino Margaret, kiu funkcias kiel perilo inter la mutsurda mondo de la gepatroj kaj la cetera mondo. ŝi konstante tradukis el ilia gestolingvo kaj returnen.
 
-Tre kortuŝa estis la sceno, kiam la preĝejo, plena de mut-
-
-surduloj, per gestoj kunkantis la liturgian kantadon. La lingvo de mangestoj vivis en ili eĉ pli intense ol la sonlingvo vivas en
+Tre kortuŝa estis la sceno, kiam la preĝejo, plena de mutsurduloj, per gestoj kunkantis la liturgian kantadon. La lingvo de mangestoj vivis en ili eĉ pli intense ol la sonlingvo vivas en
 
 ’normalaj’ homoj. Kaj tiu lingvo estas plene arte konstruita —
 
@@ -1332,9 +1013,7 @@ Eĉ ni Esperantistoj ignoras, ke ĉiu kultura homo devus ler-ni ne du, sed tri l
 
 La paskoceremonio hejme, en mia infanaĝa vilaĝo Prevalje,
 
-estas io tute alia ol la religiaj ceremonioj en Klaŭdiforumo. Ne nur la amaso da kredantoj, kiuj iras en la impona procesio, 55
-
-LA MALBABELA JARO
+estas io tute alia ol la religiaj ceremonioj en Klaŭdiforumo. Ne nur la amaso da kredantoj, kiuj iras en la impona procesio,
 
 
 sed ankaŭ la kvalito de la eklezia koruso, en kiu kantas eĉ kantistino de la operejo en Maribor, sinjorino Halina el Pol-lando, kontribuas al la pli aŭtenta travivo de la sankta semajno en la eklezia jaro.
@@ -1343,15 +1022,11 @@ sed ankaŭ la kvalito de la eklezia koruso, en kiu kantas eĉ kantistino de la o
 
 En la oficejo aperis permeso, ke por la eldonejo povas esti aĉetata elektronika tajpmaŝino. Estas iom strange, ke oni devas tiel ĝoji pri banalaĵo, kiun povas hodiaŭ regali al si la ele-mentlernejanoj. Sed kvankam eldonado de libroj estas la celo de la tuta entrepreno, oni tamen pritraktas la eldonejon kiel nepran damaĝon. Sed sur tiu ĉi falsa principo baziĝas la tuta nuntempa monda sistemo.
 
-Posttagmeze venis armeo da redaktoroj el la eldonejo Mla-
-
-dinska knjiga el Labako. Ni iris unue al la restoracio Virunum por priparoli la negocaĵojn. Inter ili troviĝis ankaŭ mia traduko de la noveloj de Tagoro: *La malsata ŝtono*, kiun mi prizorgis duone el la angla kaj duone el la Esperanta fontoj. La libro aperos omaĝe al la centjariĝo de Esperanto.
+Posttagmeze venis armeo da redaktoroj el la eldonejo Mladinska knjiga el Labako. Ni iris unue al la restoracio Virunum por priparoli la negocaĵojn. Inter ili troviĝis ankaŭ mia traduko de la noveloj de Tagoro: *La malsata ŝtono*, kiun mi prizorgis duone el la angla kaj duone el la Esperanta fontoj. La libro aperos omaĝe al la centjariĝo de Esperanto.
 
 Post la ’serioza’ parto ni veturis unue al la seminaria gimnazio Pleôivec, kie nia pentristo Valentin Oman provizas la preĝejan presbiterion per freskoj laŭ lia speciala maniero kaj tekniko. Returne ni haltis ĉe la t.n. duka trono, sur kiu la iamaj Karintiaj dukoj disdonis feŭdojn kaj prijuĝis la konflik-tojn. En la unua tempo slovenlingve, poste pli kaj pli germanlingve. ĉirkaŭ la trono estas starigita alta fera barilo, sur la informa tabulo en kelkaj lingvoj — nur ne en la slovena —
 
-staras ĉio ebla, nur ne la fakto, ke sur tiu ĉi ŝtona trono sidis 56
-
-LA MALBABELA JARO
+staras ĉio ebla, nur ne la fakto, ke sur tiu ĉi ŝtona trono sidis
 
 
 dum jarcentoj la slovenaj dukoj, demokratie elektitaj de su-verenaj Slovenaj kamparanoj, nomitaj ’kosezi’. Bonŝance oni povas trompi, prisilenti kaj mensogi nur en tiu ĉi mondo.
@@ -1364,22 +1039,13 @@ Poste ni vizitis la katedralon Gospa sveta, kiun starigis en pli malgranda kaj v
 
 Nia lasta stacio estis la kastelo Krnski grad, de kiu postrestis nur la nomo kaj la apuda preĝejo en la karolinga stilo, konstruita en la 8-a jarcento el la ŝtonpecoj de Virunum. Tiel ĝi restis preskaŭ neŝanĝiĝinta ĝis nuntempe, dum la kastelo,
 
-konstruita tute el ligno, jam delonge disfalis. Ni iom emocie observis la lokon, el kiu regis niaj mezepokaj dukoj. Estas interese, ke tuj sub la preĝejo, kie staris la fama duka ŝtono, troviĝas subfositaj antikvaĵoj. Dum la Hitlera periodo oni laŭ-
+konstruita tute el ligno, jam delonge disfalis. Ni iom emocie observis la lokon, el kiu regis niaj mezepokaj dukoj. Estas interese, ke tuj sub la preĝejo, kie staris la fama duka ŝtono, troviĝas subfositaj antikvaĵoj. Dum la Hitlera periodo oni laŭdire elfosis, sed subite ili ĉesis kaj denove subfosis ĉion. Evidente estis trovitaj gravaj pruvoj, kiuj kontestatis la hitleris-man doktrinon.
 
-dire elfosis, sed subite ili ĉesis kaj denove subfosis ĉion. Evidente estis trovitaj gravaj pruvoj, kiuj kontestatis la hitleris-man doktrinon.
-
-Baldaŭ post la milito la arealon aĉetis la klaŭdiforuma His-57
-
-LA MALBABELA JARO
-
-
-torisocieto. En la statutoj de la societo estas ordigite, ke la arealoj ne estas vendeblaj. Tiamaniere la grandgermaniga
+Baldaŭ post la milito la arealon aĉetis la klaŭdiforuma Historisocieto. En la statutoj de la societo estas ordigite, ke la arealoj ne estas vendeblaj. Tiamaniere la grandgermaniga
 
 potenco plene kontrolas la terenon kaj por ĉiam malebligas, ke iu en Slovena aranĝo esploru la subfosaĵojn.
 
-Pripensinda esta la fakto, ke en la mezepoka tempo la pre-
-
-ĝejoj estis konstruitaj el ŝtono, sed la kasteloj el modesta kaj efemera ligno …
+Pripensinda esta la fakto, ke en la mezepoka tempo la preĝejoj estis konstruitaj el ŝtono, sed la kasteloj el modesta kaj efemera ligno …
 
 ***27-an de ***
 
@@ -1391,9 +1057,7 @@ komenco ŝajnas iom ekstremaj kaj ŝokaj. Sed tio nur signifas, ke ni tamen ĝis
 
 Jam la pura fakto, ke liaj libroj legiĝas kiel krimromanoj, pruvas, ke temas pri sperta verkisto, kiu regas sian metion.
 
-Regi sian metion — tio jam estas komenco de morala sinte-
-
-no …
+Regi sian metion — tio jam estas komenco de morala sinteno …
 
 ***28-an de ***
 
@@ -1404,9 +1068,6 @@ telefone invitis min al la studio, ke ni surbendigu programe-ron pri la centjari
 Tamen estas bone, ke tion faris la redaktoro laŭ propra iniciato.
 
 Hieraŭ mi ricevis el Brazilo la menditan libron de Wiliam
-
-
-LA MALBABELA JARO
 
 
 Auld: *La kulturo kaj Internacia Lingvo*. Tre bona libro, sed ĝenas lia ”far”.
@@ -1423,9 +1084,7 @@ Sed la afero estas tia, ke por esti aŭtenta reprezentanto de sia nacio kaj ŝta
 
 ***2-an de ***
 
-Kun tuta familio hejme en Prevalje. Dumtage vizitoj ĉe la parencoj de mia edzino kaj ĉe konatuloj, vespere legado de belega Hungara romano *La ora homo* de Mario Jokai. Dumnokte 59
-
-LA MALBABELA JARO
+Kun tuta familio hejme en Prevalje. Dumtage vizitoj ĉe la parencoj de mia edzino kaj ĉe konatuloj, vespere legado de belega Hungara romano *La ora homo* de Mario Jokai. Dumnokte
 
 
 tajpado sur mia malnova, preskaŭ antikva tajpmaŝino. Mi
@@ -1436,16 +1095,11 @@ tajpas la novelon de Rebula, *Je la horo de malplej longaj ombroj*, kiu priskrib
 
 Mia maljuna instruistino, kiun mi preskaŭ ĉiam vizitas por kvarono aŭ duono da horo, eltondis por mi la gazetraporton pri stranga okazintaĵo en Maribor. La antaŭmilitaj komunistoj aranĝis sian jubilean kunsidon. Iu lerneja klaso estis invitita prizorgi la porokazan kulturan programon. Ne estas je dispono multaj konvenaj tekstoj, ja bonaj literaturistoj ne emas prikanti komunistan diktaturon. Do ili prenis ion el *Servisto Bartolomeo kaj lia rajto* de Ivan Cankar (cetere tradukita en Esperanton de F. Modrijan), farante el tio recitadon. Oni devas ĉe tio rimarki, ke la komunistoj mem alproprigis por sia uzo tiun ĉi literaturan perlon, ĉiam formulante, ke temas pri la plej bela lirikigo de la Komunista manifesto de Marx kaj Engels …
 
-Sed ve: en tiu ĉi literatura peco tamen multfoje aperas la por komunistoj tabua vorto ”Dio” kaj eĉ iaspeca variaĵo de Patronia. Nun, meze de la recitado la prezidanto de la Mari-boraj komunistoj Rafael Razpet paŝis al la mikrofono kaj interrompis la programon per la vortoj: ”Mi ne trovas konve-
-
-najn vortojn por protesti kontraŭ tiu ĉi evidenta provoko!”
+Sed ve: en tiu ĉi literatura peco tamen multfoje aperas la por komunistoj tabua vorto ”Dio” kaj eĉ iaspeca variaĵo de Patronia. Nun, meze de la recitado la prezidanto de la Mari-boraj komunistoj Rafael Razpet paŝis al la mikrofono kaj interrompis la programon per la vortoj: ”Mi ne trovas konvenajn vortojn por protesti kontraŭ tiu ĉi evidenta provoko!”
 
 Oni sin povus regali per iomete da ironio. Eble la mencio
 
 de Dio ne estis la ĉefa motivo por tiu impertinenta konduto kontraŭ la junaj homoj kaj kontraŭ la literaturaj klasikuloj.
-
-
-LA MALBABELA JARO
 
 
 Povas esti, ke la komunista estro subkonscie sentis, ke nuntempe la afero situas inverse: ke la kristanoj kaj aliaj nepar-tianoj estas veraj servistoj, kiuj pli kaj pli postulas sian rajton; kaj ke la sinjoroj komunistoj estas la veraj novaj mastroj kaj ekspluatantoj … Kaj, ke la afero estu eĉ pli komika, la nomo de la fanatikulo estas ege kristaneca. Rafaelo estas nomo de unu el la ĉefaj anĝeloj — kaj ”razpet” signifas ”krucumita”.
@@ -1454,15 +1108,11 @@ Jen, Rafaelo de s. Kruco …
 
 La edzino en sia senmotiva kolero proklamis al mi, ke en
 
-la familio neniu min ŝatas, eĉ ne eta Peĉjo. Kvankam li daŭ-
-
-re vokas post mi: Oâi, oâi (paĉjo) …
+la familio neniu min ŝatas, eĉ ne eta Peĉjo. Kvankam li daŭre vokas post mi: Oâi, oâi (paĉjo) …
 
 Mi ne povas partopreni en tiu aŭkcio de sentimentoj kaj
 
-kvazaŭsentimentoj. Post unu aŭ du semajnoj ŝi verŝajne de-
-
-nove ĵuros, kiel ŝi min amas, sed foje suferas pro siaj malfortaj nervoj. Mi ne povas observi, kiaj estas miaj nervoj. Mi devas, simple, funkcii, ke la familio iel povu plu elteni.
+kvazaŭsentimentoj. Post unu aŭ du semajnoj ŝi verŝajne denove ĵuros, kiel ŝi min amas, sed foje suferas pro siaj malfortaj nervoj. Mi ne povas observi, kiaj estas miaj nervoj. Mi devas, simple, funkcii, ke la familio iel povu plu elteni.
 
 ***22-an de ***
 
@@ -1470,26 +1120,18 @@ Antaŭ ol la aŭstria kanceliero d-ro Vranitzky flugis al Usono, li promesis, ke
 
 Sed, starante antaŭ la mikrofonoj flanke de Schultz en-
 
-Vaŝingtono, li preferis demonstri sian scion de la Angla ol la suverenecon kaj egalrajtecon de Aŭstrio ankaŭ sur la lingva kampo. Se li jam ne volis paroli en sia gepatra lingvo aŭ en la ceteraj lingvoj, parolataj en Aŭstrio, kiel slovena, kroata, ĉeą 61
-
-LA MALBABELA JARO
+Vaŝingtono, li preferis demonstri sian scion de la Angla ol la suverenecon kaj egalrajtecon de Aŭstrio ankaŭ sur la lingva kampo. Se li jam ne volis paroli en sia gepatra lingvo aŭ en la ceteraj lingvoj, parolataj en Aŭstrio, kiel slovena, kroata, ĉeą
 
 
 aŭ hungara, li almenaŭ povus paroli france, por montri la
 
 neŭtralecon de la lando, de li reprezentata.
 
-Sed la sama homtipo, kiu ekstere genuas antaŭ la pli gran-
+Sed la sama homtipo, kiu ekstere genuas antaŭ la pli granda lingvo, hejme genuigas la uzantojn de la malpli forta lingvo …
 
-da lingvo, hejme genuigas la uzantojn de la malpli forta lingvo …
+El Labako venis Viki Blaòiâ kaj Milan Apih. Ili alportis kelkajn novaĵojn el la politika situacio en Slovenio. Ankaŭ post la plenumkunsido de Jugoslaviaj komunistoj restis ia ”status quo”. Verŝajne la reago de Okcidento al la minacoj de la ĉefministro Mikuliĝ ne favoras por puĉo de bolŝevismaj dogmatikuloj.
 
-El Labako venis Viki Blaòiâ kaj Milan Apih. Ili alportis kelkajn novaĵojn el la politika situacio en Slovenio. Ankaŭ post la plenumkunsido de Jugoslaviaj komunistoj restis ia ”status quo”. Verŝajne la reago de Okcidento al la minacoj de la ĉefministro Mikuliĝ ne favoras por puĉo de bolŝevismaj dogma-
-
-tikuloj.
-
-Ni priparolis ankaŭ la temon: ĉu jam venis la tempo fon-
-
-di en Slovenio almenaŭ subleĝajn politikajn partiojn. Mi diris, ke oni ĉiam postulu nur la ĝeneralan rajton de asociiĝo —
+Ni priparolis ankaŭ la temon: ĉu jam venis la tempo fondi en Slovenio almenaŭ subleĝajn politikajn partiojn. Mi diris, ke oni ĉiam postulu nur la ĝeneralan rajton de asociiĝo —
 
 la partioj estas en tio aŭtomate enkluditaj. Se oni tuj parolus pri la fondo de partioj aŭ se oni eĉ provus tion aranĝi, la po-tenculoj ricevus bonan pretekston por ĉesigi la proceson de laŭŝtupa liberaliĝo, kiu almenaŭ en Slovenio malgraŭ ĉio
 
@@ -1501,9 +1143,7 @@ eksterlando. Poste ni iris trinki kafon al la gastejo Pri Joklnu.
 
 Milan komencis paroli pri bezono de konspiro. Li proponis, ke ni eble elpensu kaŝnomojn, ke mi ricevadu poŝton al iu
 
-malpli suspekta nomo ktp. Mi diris, ke ĉio tio estas naivaĵoj por la moderna teknika stato en la sekreta ŝtata polico. Mi proponis, ke oni ĉion laboru, publikigu kaj parolu supozan-te, ke tio en la sama momento estas plene registrita en la polica aparato. Cetere: kion ni volas prikaŝi? ĉu nian strebadon por demokratio, por la civila socio? Ni povas ja tre simple 62
-
-LA MALBABELA JARO
+malpli suspekta nomo ktp. Mi diris, ke ĉio tio estas naivaĵoj por la moderna teknika stato en la sekreta ŝtata polico. Mi proponis, ke oni ĉion laboru, publikigu kaj parolu supozan-te, ke tio en la sama momento estas plene registrita en la polica aparato. Cetere: kion ni volas prikaŝi? ĉu nian strebadon por demokratio, por la civila socio? Ni povas ja tre simple
 
 
 malkomuti kaj malutiligi la tutan multekostegan kaj komplikan aparaton de la sekreta ŝtata polico, se ni simple malferme kaj publike diras la veron. Ne havi sekretojn — estas la plej bone gardata kaj plej efika sekreto.
@@ -1516,17 +1156,13 @@ En la semajna amasa gazeto *Die ganze Woche* (La tuta semajno) aperis ampleksa d
 
 La faktoj estas prezentitaj iel proksimume, stranga estas an-kaŭ la aserto, ke Esperanto ne sukcesis en sia antaŭa plano tial, ĉar Eŭropo ne estas plu centra regiono de la mondo —
 
-kaj kune kun tio falis ankaŭ Esperanto, kiu baziĝas sur la eŭ-
-
-ropaj lingvoj kaj kulturo.
+kaj kune kun tio falis ankaŭ Esperanto, kiu baziĝas sur la eŭropaj lingvoj kaj kulturo.
 
 Se tio estus vero, ankaŭ la Angla devus perdi sian rolon. La vera kaŭzo estas simple tio, ke la plej multaj homoj ankoraŭ ne akiris la senton de tuthomara aparteno. La majoritato de la homoj vivas ankoraŭ en stato de nure triba aparteno kaj konscio. Nur en la plej evoluitaj nacioj ekzistas ia ĝenerale akceptita nacia konscio kun kelkaj ĝermoj de internaciismo.
 
 Sed la tuthomaran koncepton evoluigis ĉe si nur la plej kleraj kaj malegoismaj unuopuloj, inter kiuj abundas ĝuste esperantistoj.
 
-Sed ĝenerale la artikolo estis relative afabla kaj favora al 63
-
-LA MALBABELA JARO
+Sed ĝenerale la artikolo estis relative afabla kaj favora al
 
 
 Esperanto. Eble la origino de kelkaj netrafaj asertoj troviĝas ĉe la peranto el niaj propraj vicoj, kiu ŝin provizis per faktoj kaj komentarioj.
@@ -1543,9 +1179,7 @@ Por la mondpolitika scenejo hieraŭ estis gaja tago. La amatora piloto Mathias R
 
 Ironia hazardo estas, ke en la sama tago la sovetiaj ĉelimaj militgardistoj festis sian festotagon — kaj en Pravda eĉ aperis artikolo, laŭ kiu nek unu metro da sovetia teritorio surtere kaj enaere povas eskapi la kontrolon …
 
-Sed en la sama tago per simila sporta aviadilo fuĝflugis la 64
-
-LA MALBABELA JARO
+Sed en la sama tago per simila sporta aviadilo fuĝflugis la
 
 
 konata kuba generalo Rafael Delpinio Dias, kiu famiĝis dum la t.n. invado de la Golfo de porkoj fare de Usono. Nun li kun tuta familio fuĝis al Florido kaj petis azilon.
@@ -1560,21 +1194,14 @@ romanon de F. Werfel *Der Abituriententag* (La jubilea tago de abiturientekzamen
 
 Interese, kiel saĝe kaj lerte Gorbaĉov eluzis la aventuron de la germana aviadisto Rust. Tuj li forigis la ĉefan homon de la armeo Sokolov kaj ankaŭ la komandanton de la aerfortoj. Sed tiu ĉi evento jam iel demonstras, ke ne temas plu pri la ler-teco de Gorbaĉov, sed ankaŭ pri la volo de Alta potenco, kiu probable intencas pri Rusio ion grandan, ion fundamentan.
 
-Povas esti, ke la senkulpa Rust en lasta momento savis la planojn de Gorbaĉov antaŭ la ortodokse leninismaj armeaj ĉe-
-
-foj …
-
-
-LA MALBABELA JARO
+Povas esti, ke la senkulpa Rust en lasta momento savis la planojn de Gorbaĉov antaŭ la ortodokse leninismaj armeaj ĉefoj …
 
 
 ***5-an de ***
 
 is la lasta tago mi kalkulis je la hodiaŭa unua vendredo en la monato, de kiuj mi volas naŭfoje honorigi la koron de Jesuo pere de komuniado. Estis promesite al Ch. Labouree, ke ĉiuj, kiuj plenumos tiun ĉi piadon, mortos kun la helpo de Kristo.
 
-Vere interese, kiaj obstakloj akumuliĝas kontraŭ la plenu-
-
-mo de tiuj naŭ sinsekvaj partoprenoj ĉe la komunio honore
+Vere interese, kiaj obstakloj akumuliĝas kontraŭ la plenumo de tiuj naŭ sinsekvaj partoprenoj ĉe la komunio honore
 
 al la Jesua koro. Mi simple dumtage forgesis, ke mi tuj post la ofica laboro je la 17-a horo devus iri al la preĝejo. Sed feliĉe mi poste tamen rememoris kaj komencis en la tuta urbo serĉi, kie okazas diservo post tiu tempo. Fine mi trovis la preĝejon, kie cetere la parola parto jam pasis, sed la ĉefa, eŭkaristia parto restis je mia dispono. Mi certe ne povis pekkonfesi, sed en tiu momento tio ne gravis. Tiel mi sukcesis jam la kvaran fojon sinsekve plenumi mian intencon.
 
@@ -1584,52 +1211,37 @@ Mia edzino kaj mi veturis al Kotlje por partopreni en restoracio, situanta apud 
 
 niaj iamaj kunlernantoj okaze de la 20-jariĝo ekde la abiturienta ekzameno. Mi estis la sola fraŭlo en la klaso; kun mia edzino mi ĉiam akre kverelis, eĉ por unu momento ne pri-pensinta la eblecon, ke ni iam havos ion komunan. Sed, ĉu ni nun malpli kverelas?
 
-Du mezaĝaj virinoj sidis ekstere apud la ĝardena tablo kaj nin ridete observis, kiam ni tuj volis eniri restoracion. Unu el ili estis jam plene grizhara. Ni ne povis supozi, ke temas pri 66
-
-LA MALBABELA JARO
+Du mezaĝaj virinoj sidis ekstere apud la ĝardena tablo kaj nin ridete observis, kiam ni tuj volis eniri restoracion. Unu el ili estis jam plene grizhara. Ni ne povis supozi, ke temas pri
 
 
 du samklasaninoj … Nur la aliaj fariĝis maljuna, se ili de longa tempa distanco ne estas vidataj; sed mem oni restas ĉiam same juna, same infana …
 
-Baldaŭ ni estis preskaŭ plennombraj. La gastoj, niaj pro-
-
-fesoroj, evidente malfruis. Mi eksidis apud delikate aspektan-ta virineto, kun kiu mi en la lerneja tempo tre amike rilatis, ĉar ŝi estis bona amikino de mia lernejtempa simpatio … Sed anstataŭ diri al mi kelkajn informojn pri sia dumtempa kaj hodiaŭa vivo, ŝi, false opiniinta, ke mi ege bezonas ian sub-gustan amuzon, komencis paroli al mi maldecajn kaj krudajn
+Baldaŭ ni estis preskaŭ plennombraj. La gastoj, niaj profesoroj, evidente malfruis. Mi eksidis apud delikate aspektan-ta virineto, kun kiu mi en la lerneja tempo tre amike rilatis, ĉar ŝi estis bona amikino de mia lernejtempa simpatio … Sed anstataŭ diri al mi kelkajn informojn pri sia dumtempa kaj hodiaŭa vivo, ŝi, false opiniinta, ke mi ege bezonas ian sub-gustan amuzon, komencis paroli al mi maldecajn kaj krudajn
 
 ”ŝercojn”, rilatantajn plejparte al la seksa instinkto. ŝiaj buĉis-taĉaj vortoj ne kongruis al la kadro de ŝia milda vizaĝo kaj belaj blondaj haroj, kvankam ne plu tiel belaj, kiel iam, est-inte longaj ĝis la zono …
 
 Alsidis ĉe mi unu post la alia la ceteraj ”knabinoj”, ili parolis pli saĝe kaj milde, kvankam sur iliaj vizaĝoj speguliĝis pli fortaj batoj de la vivo. Iu vivas en Germanio en Munkeno; alia gvidas propran modan butikon en Labako, la tria jam dufo-je ŝanĝis sian geedzecan partneron, la kvara ĝismorte karambolis kun piediranto surstrate … La karieroj de bono kaj de malbono; de sano kaj malsano; de la akuŝoj kaj abortoj.
 
-Post tio venis tri profesoroj. La unua, nuntempe jam dok-
-
-toro pri ekonomia statistiko, nur ĝenerale salutis kaj okupis la frontan lokon. Homo de sukceso, de memadmiro kaj certa cinikismo.
+Post tio venis tri profesoroj. La unua, nuntempe jam doktoro pri ekonomia statistiko, nur ĝenerale salutis kaj okupis la frontan lokon. Homo de sukceso, de memadmiro kaj certa cinikismo.
 
 Du aliaj, la tiama klasestro, kaj profesoro pri la Slovena lingvo, proponis la manon al ĉiu kaj okupis la flankajn lokojn proksime de mi. Kvankam ankaŭ al ili ne mankas ia grado de memadmiro, ili almenaŭ estis disponiĝemaj por la gelernan-taro.
 
 
-LA MALBABELA JARO
-
-
 Profesoro pri geografio kaj historio, nia klasestro, plendis pro la hodiaŭa generacio kaj ĝia malaktivemo. Li ne povas
 
-kompreni, ke la akumulatoroj de la oficiala ”dialektika mate-rialismo” baldaŭ malpleniĝos. La homaj generacioj jam sek-
-
-vas unu la alian de miliono da jaroj, do ili ne povas esence ŝanĝiĝi en 20 jaroj. Sed mi ne volis en tiu soleneta momento
+kompreni, ke la akumulatoroj de la oficiala ”dialektika mate-rialismo” baldaŭ malpleniĝos. La homaj generacioj jam sekvas unu la alian de miliono da jaroj, do ili ne povas esence ŝanĝiĝi en 20 jaroj. Sed mi ne volis en tiu soleneta momento
 
 ĝeni lian blindan kredon je leninisma paradigmo. Se la faktoj ne sukcesas persvadi lin, kion faru mi?
 
 La alia, profesoro pri la slovena lingvo, kiu multe asistis ĉe miaj unuaj literaturaj provoj, plendis pri la fakto, pri vere trista fakto, ke ”la aliaj pensas alimaniere ol mi, foje eĉ nur pro tio, ke tio estu alimaniere … ” Ankaŭ lian koncepton mi en tiu ĉi momento ne volis aflikti kaj mi simple kapjesis. Cetere mi intencis al li afable konsili, ke li komencu pensi laŭ la maniero de la aliaj, kaj la ĝena diferenco pereos, sed tio ne konvenis por tiu okazo — kaj ankaŭ ne helpus multe, sed nur plikom-pletigus la plendtrezoron de mia bona profesoro.
 
-Oni komencis surtabligi la vespermanĝon — kaj en la an-
-
-gulo oni komencis ludi duonsovaĝan muzikaĉon en la laŭt-
+Oni komencis surtabligi la vespermanĝon — kaj en la angulo oni komencis ludi duonsovaĝan muzikaĉon en la laŭt-
 
 grado, kiu jam endanĝerigis la oniajn aŭskultorganojn. Ni ne povis plu interparoli, eĉ en la najbara distanco la vortoj ne estis plu aŭdeblaj. Mi petis la kelneron, ke oni eble plimal-laŭtigu la bruegon, tamen tiu moderna diaĵo ne lasas sin alparoli, sed atakas pluen.
 
 Ne atendinte la finan kafon ni du adiaŭis. Ne havis multan sencon resti en tiu muzikaĉa turmentejo. Bonŝance ni disponis pri komprenebla motivo: ni devis prizorgi niajn kvar infanojn, el kiuj unu ne ankoraŭ du jarojn aĝa …
 
-is la revido post kvin jaroj, okaze de la 25-jariĝo. Eble 68
-
-LA MALBABELA JARO
+is la revido post kvin jaroj, okaze de la 25-jariĝo. Eble
 
 
 ankaŭ ĝis reaŭdo, se tiam hazarde almodiĝos pli afabla kaj delikata muziko en normala laŭtgrado …
@@ -1651,18 +1263,13 @@ Kortuŝaj ŝiaj klarigoj por la pasinto — kaj malespereble,
 konsiloj por la estonto — kiamaniere oni povis travivi la in-feron de la bolŝevika aŭ nazia koncentrejo. La ŝancojn havis homoj, kiuj sciis ĝoji, ridi, amuzi aliajn, helpi al aliaj, esti opti-mismaj. La homo, kiu eksidis malfeliĉa en la angulo, estis jam kondamnita por morti.
 
 
-LA MALBABELA JARO
-
-
 ***22-an de ***
 
 La slovena kultura societo en Klaŭdiforumo organizis la unu-an el antaŭviditaj programoj: la prezenton de la konataj literaturistoj aŭ aliaj interesaj eminentuloj.
 
 La hodiaŭa gasto estis profesoro Aloizo Rebula, gimnazia
 
-profesoro pri la klasikaj lingvoj kaj eminenta Slovena verkisto en Triesto. Ankaŭ tradukisto de la epistoloj de sankta Paŭ-
-
-lo kaj Apokalipso de sankta Johano en la Nova testamento kaj de Makabeaj libroj en la Malnova testamento.
+profesoro pri la klasikaj lingvoj kaj eminenta Slovena verkisto en Triesto. Ankaŭ tradukisto de la epistoloj de sankta Paŭlo kaj Apokalipso de sankta Johano en la Nova testamento kaj de Makabeaj libroj en la Malnova testamento.
 
 Mi preparis 34 demandojn, dividitaj en tri blokojn: 1. pri lia juneco kaj privata vivo, nacia aparteno kaj minoritata problemo en Julio-Veneta lando, speciale en Triesta regiono; 2.
 
@@ -1676,12 +1283,7 @@ starigis siajn demandojn.
 
 El ĉiuj respondoj sentiĝis la spirito de plena fidelo al propra etno kaj Eklezio kaj granda skeptiko rilate al propra kaj cetera verkado. La nocio ’literaturo’ aŭ ’verkisto’ impresigas lin je nula grado. El la nuntempa literaturo li estimas preskaŭ nur la Rusan, ĉar naskiĝinta el granda sufero de tieaj aŭtoroj.
 
-Aparte acida li estis kontraŭ kelkaj facilanimaj aŭtoroj kiel ekz. Alberto Moravia en Italujo kaj similaj, kiuj serĉas, laŭ li, en la literaturo ian malplenan kuriozaĵon, anstataŭ lasi ver-70
-
-LA MALBABELA JARO
-
-
-vi la vivon mem, kia ĝi estas, asertante, ke post la tempo de seksaj paroj, ”venis la epoko de la knabo” …
+Aparte acida li estis kontraŭ kelkaj facilanimaj aŭtoroj kiel ekz. Alberto Moravia en Italujo kaj similaj, kiuj serĉas, laŭ li, en la literaturo ian malplenan kuriozaĵon, anstataŭ lasi vervi la vivon mem, kia ĝi estas, asertante, ke post la tempo de seksaj paroj, ”venis la epoko de la knabo” …
 
 Post la bongusta bufedo ni tri, Aloizo, Marija kaj mi iris al la hejmo de Johano M. por tie fini ĉion per bona kafo, ĝenti-le proponita de Milica.
 
@@ -1705,18 +1307,14 @@ reformojn de Gorbaĉov ol ekzemple la aŭstra. Tiel Danilo
 
 Slivnik, koresponda ĵurnalisto el Moskvo, inter alie skribas:
 
-”Pro tio ne estas mire, se la tuta ĝis nun konata socialismo svarmas je plej strangaj kompromisoj kaj, ke ĉiuj ĝisnunaj 71
-
-LA MALBABELA JARO
+”Pro tio ne estas mire, se la tuta ĝis nun konata socialismo svarmas je plej strangaj kompromisoj kaj, ke ĉiuj ĝisnunaj
 
 
 reformprogramoj ĝisvivis la saman sorton. La afero estas jam esence ridinda, ja oni simple ne povas plukredi, kiom malmulte da fantazio troviĝas ĉe la reformistoj de la socialismo.
 
 Ili senĉese hezitas ĉe la elektoj, kiuj ne estas veraj elektoj; ili donas la memstarecon (al la direktoroj, firmaoj), kiu ne estas vera memstareco; ili pledas por kreemo kaj iniciatemo — kiu ne rajtas superigi la plafonon de la partia kaj ŝtata kreemo kaj iniciatemo; ili multe parolas pri la estonteco, kiu ne estas vera estonteco.”
 
-Mi jam dum tri tagoj tajpas la kompostaĵon por la broŝu-
-
-ro okaze de la Jubilea Esperanto-Konferenco en Graz. Hieraŭ mi donis intervjuon por la slovena magazino *Teleks*. Kio povus esti farita, se ekzistus dek kleraj esperantistoj, agantaj sisteme kaj inteligente?
+Mi jam dum tri tagoj tajpas la kompostaĵon por la broŝuro okaze de la Jubilea Esperanto-Konferenco en Graz. Hieraŭ mi donis intervjuon por la slovena magazino *Teleks*. Kio povus esti farita, se ekzistus dek kleraj esperantistoj, agantaj sisteme kaj inteligente?
 
 ***11-an de ***
 
@@ -1726,9 +1324,7 @@ La granda domo de la deputito kaj lia edzino — kuracisto
 
 — deekstere ne montriĝis kiel pruvo de delikata gusto. Pos-te tamen evidentis, ke la domon ne konstruis nur la sufiĉe bona gusto, sed ankaŭ certa ŝtatpensa prudento.
 
-Kvankam la deputito estis inter tiuj, kiuj antaŭ jaroj min akre kalumniis, kvazaŭ mi estus agento de la jugoslava sekreta polico (en psikologio konata fenomeno, ke al la efektiva viktimo oni emas prijuĝi ecojn kaj agojn de la persekutisto …), 72
-
-LA MALBABELA JARO
+Kvankam la deputito estis inter tiuj, kiuj antaŭ jaroj min akre kalumniis, kvazaŭ mi estus agento de la jugoslava sekreta polico (en psikologio konata fenomeno, ke al la efektiva viktimo oni emas prijuĝi ecojn kaj agojn de la persekutisto …),
 
 
 mi ne montris emocion, sed trankvile kaj kun afabla humoro starigis miajn demandojn, al kiuj li sufiĉe sprite respondis.
@@ -1743,9 +1339,7 @@ alian. Bonega modelo por federaciaj ŝtatoj …
 
 Kiam ni ĵus volis adiaŭi, eksonoris ĉe li telefono. Du liaj nepinoj ĝismorte karambolis sur iu proksima strato.
 
-La edzino de Smolle ĉesis ludi fortepianon. Ni simple el-
-
-diris nian kondolencon kaj sen granda adiaŭa ceremonio foriris.
+La edzino de Smolle ĉesis ludi fortepianon. Ni simple eldiris nian kondolencon kaj sen granda adiaŭa ceremonio foriris.
 
 Survoje en aŭto mi preĝis silente rozarion por la animoj de la akcidentintaj knabinoj.
 
@@ -1755,20 +1349,11 @@ Marija ŝoforis, mi paroladis pri diverso.
 
 En Graz ni lasis la aŭton subvoje al la Turo de Graz kaj
 
-supreniris por tagmanĝi en la restoracio. Mi manĝis plenigi-73
+supreniris por tagmanĝi en la restoracio. Mi manĝis plenigitan bovidan bruston kaj trinkis miksaĵon de cidro kaj mine-ralakvo.
 
-LA MALBABELA JARO
+Eminenta rigardo sururben kaj al ĉirkaŭaĵo. Super la renovigitaj ruĝaj tegmentoj de la malnova urbokerno kaj super la mildaj vinberejoj en la ĉirkaŭaj montetoj.
 
-
-tan bovidan bruston kaj trinkis miksaĵon de cidro kaj mine-ralakvo.
-
-Eminenta rigardo sururben kaj al ĉirkaŭaĵo. Super la reno-
-
-vigitaj ruĝaj tegmentoj de la malnova urbokerno kaj super la mildaj vinberejoj en la ĉirkaŭaj montetoj.
-
-Monumentoj, menciantaj Turkojn kaj Francojn el Napole-
-
-ona tempo. Memortabulo, mencianta la Malsupran Stirion
+Monumentoj, menciantaj Turkojn kaj Francojn el Napoleona tempo. Memortabulo, mencianta la Malsupran Stirion
 
 (nun provinco en Slovenio), el kiu estis forpelitaj germane parolantaj loĝantoj. La oficiala Slovenio skandaliĝas pri tiu ĉi tabulo, sed min ĝi ne ĝenas, ja ĝi raportas pri veraj fieventoj, por kiuj mi ne vidas senkulpigan motivon …
 
@@ -1785,33 +1370,21 @@ okazis sur kontentiga nivelo. Tamen renkontiĝo kun s-ino
 Emilia Lapenna, kiun aranĝis por mi afabla prof. Gruiĝ, sacerdoto kaj latinprofesoro el Djakovo (Kroatio) forgesigis neprofesian prizorgon.
 
 
-LA MALBABELA JARO
-
-
 ***19-an de ***
 
-La meso en Esperanto estas hodiaŭ la sola kompleta katoli-
-
-ka aranĝo, se la greka vorto katholikós ankoraŭ havas iom da sia origina senco. Ni fizike kaj simbole transpaŝis pli ol 60
+La meso en Esperanto estas hodiaŭ la sola kompleta katolika aranĝo, se la greka vorto katholikós ankoraŭ havas iom da sia origina senco. Ni fizike kaj simbole transpaŝis pli ol
 
 ŝtupojn en la ’Stiegenkirche’ — ŝtupara preĝejo. La hostio estis bakita el plenvalora faruno, do brunkolora. La prediko trafis nian temaron kaj la kvintesencon de la legaĵo: pri la semoj, kiuj perdiĝas kaj nur kelkaj el ili donas fruktojn.
 
-Kelkajn cent metrojn for de tiu preĝejo troviĝas jam de-
-
-longe ’Esperantoplatz’. La urbaj aŭtoritatoj igis ĝin bele renovigi por la hodiaŭa starigo de la monumento ’La Espero’ de la skulptisto Jesper Neergaard el Danujo. Ludis la polica or-
+Kelkajn cent metrojn for de tiu preĝejo troviĝas jam delonge ’Esperantoplatz’. La urbaj aŭtoritatoj igis ĝin bele renovigi por la hodiaŭa starigo de la monumento ’La Espero’ de la skulptisto Jesper Neergaard el Danujo. Ludis la polica or-
 
 ęstro de la urbo Graz: nian ’La Espero’ kaj la belan aŭstrian himnon de Mozart kun teksto de Pavla von Preradoviĉ.
 
-Post kiam d-ro Perko esprimis ĉiujn konvenajn dankeldi-
-
-rojn, ekoratoris d-ro Lapenna. Unu certa frazo impresigis min forte: ”ĉiuj parolas nur pri la paco, sed neniu preskaŭ pri la libero. Temas pri du homaj valoroj, kiuj kondiĉigas kaj subtenas sin reciproke. Ili neniel estas en kontraŭdiro. Sed, se mi iam devus elekti inter la paco sub maljusteco kaj tiranio — kaj libereco, eĉ se en cirkonstancoj de milita interbatalo, almenaŭ mi persone elektus liberecon kaj preferus vivi en milito, sed kiel libera homo!”
+Post kiam d-ro Perko esprimis ĉiujn konvenajn dankeldirojn, ekoratoris d-ro Lapenna. Unu certa frazo impresigis min forte: ”ĉiuj parolas nur pri la paco, sed neniu preskaŭ pri la libero. Temas pri du homaj valoroj, kiuj kondiĉigas kaj subtenas sin reciproke. Ili neniel estas en kontraŭdiro. Sed, se mi iam devus elekti inter la paco sub maljusteco kaj tiranio — kaj libereco, eĉ se en cirkonstancoj de milita interbatalo, almenaŭ mi persone elektus liberecon kaj preferus vivi en milito, sed kiel libera homo!”
 
 La Sankta Spirito mem povus inspiri al estiminda maljuna
 
 profesoro tiujn ĉi same saĝajn, kiel ankaŭ nepopularajn vortojn. Speciale konvene, ke li diris tiujn ĉi vortojn en la aŭstria medio, kie pli kaj pli aŭdiĝas la trompa pepado de prosove-tiaj ’kolomboj’, predikantaj la pacon je ajna prezo, plej ofte je kosto de bazaj homaj liberecoj kaj homa digno.
-
-
-LA MALBABELA JARO
 
 
 El la malnova historio estas konata la nocio ’Pax Romana’.
@@ -1835,9 +1408,7 @@ Tiom pli kontentiga la prezento de la ĉarma bonkora sor-
 
 Komence iom ĝenis ŝia voĉo, kiu en alta pozicio fariĝis kva-zaŭ histerieta. Sed la enhavo, la proverba brita sprito, kiu ĉe ŝi ne nur proverbis, baldaŭ forgesigis la ĝenajn trajtojn de ŝia voĉo kaj forta angla akcento. Povas esti, ke ŝia prezento pli poeziis, kvankam eldirita prozlingve, ol kelkaj eroj de la pri-traktita poezio mem …
 
-ŝi ne demonstris ian intelektulan strebon, kvankam elstara intelektulo ne nur en Esperantujo, sed en Britio mem. Unu el 76
-
-LA MALBABELA JARO
+ŝi ne demonstris ian intelektulan strebon, kvankam elstara intelektulo ne nur en Esperantujo, sed en Britio mem. Unu el
 
 
 la grandaj trajtoj de Esperanto estas, ke ĝi stimulas klarecon kaj noblan simplecon kontraŭ la egoisme intelektulaĉa her-metismo en la komunikado, kiun mi ĉiutage spertas en miaj
@@ -1848,15 +1419,11 @@ Post la prezento de ĉiuj tri akademioj, kiuj hodiaŭ traktas, ĉu ĉefe, ĉu sp
 
 Tamen al mi pli imponas la de li dramatigita fakto, ke la
 
-fake elstara revuo aperas nur en la eldonkvanto de 100 ek-
-
-zempleroj kaj havas nur 70 abonantojn en la tuta mondo —
+fake elstara revuo aperas nur en la eldonkvanto de 100 ekzempleroj kaj havas nur 70 abonantojn en la tuta mondo —
 
 ol se ĝi havus 70.000 da ili. La dua cifero atestus pri bonaj financaj rimedoj kaj bona famo ĉe la legantaro. Sed la unua fakto atestas pri la miraklaj fortoj en Esperantujo. ĉu ne estas impone: eldoni preskaŭ luksan revuon kun sia kompleta
 
-scienca aparato por nur 70 homoj, el kiuj la revuon abonis el sincera faka kaj kultura intereso eble la duono de tiu ĉi nombro — kaj la duan duonon konsistigas bonintencaj solidaru-
-
-loj? ĉu ne estas io home grandeca en tiu ĉi lukso, kian ne povus toleri iu ajn nacia lingvo en normalaj cirkonstancoj …
+scienca aparato por nur 70 homoj, el kiuj la revuon abonis el sincera faka kaj kultura intereso eble la duono de tiu ĉi nombro — kaj la duan duonon konsistigas bonintencaj solidaruloj? ĉu ne estas io home grandeca en tiu ĉi lukso, kian ne povus toleri iu ajn nacia lingvo en normalaj cirkonstancoj …
 
 ĉu ne evidentiĝas en tiu ĉi fenomeno la ekzisto de iu nuklea kultura energio, kiu povas ignori eĉ la nombron, kvanton,
 
@@ -1864,12 +1431,7 @@ amason?
 
 Mi foje devis prelegi al tre malmultnombra publiko. Al la
 
-organizantoj, kiuj bedaŭris tiun fakton kaj petis mian komprenon kaj pardonon, mi kutimis diri: ”Ne zorgu! La nombro de aŭskultantoj por la esenca celo de la prelego tute ne gra-77
-
-LA MALBABELA JARO
-
-
-vas. Dio parolis dum certa tempo — eble temis pri jarcentoj
+organizantoj, kiuj bedaŭris tiun fakton kaj petis mian komprenon kaj pardonon, mi kutimis diri: ”Ne zorgu! La nombro de aŭskultantoj por la esenca celo de la prelego tute ne gravas. Dio parolis dum certa tempo — eble temis pri jarcentoj
 
 — al unu sola homo, Adamo … ĉu mi estu pli malpacienca
 
@@ -1891,35 +1453,22 @@ ridis; ŝiaj ukrajnaj vokaloj memorigis min pri mia parenceco.
 
 En mi io diris flustre: —Jen via fratino, vi trovis ŝin. El la lando, kie antaŭ pli ol jarmilo vivis verŝajne la tuta praslava popolo …
 
-Sed mi tion ne kuraĝis al ŝi diri. Nur poste, kiam mi donacis al ŝi mian libron pri Medjugorje, mi enskribis la dediĉon: 78
-
-LA MALBABELA JARO
+Sed mi tion ne kuraĝis al ŝi diri. Nur poste, kiam mi donacis al ŝi mian libron pri Medjugorje, mi enskribis la dediĉon:
 
 
 ”Mi dankas Dion, ke li hieraŭ donis al mi fratinon el la lando, kie verŝajne iam vivis ankaŭ prauloj de mia popolo … ”
 
-Dum la ’filozofia’ kunveno sub la kolonoj de nova univer-
-
-sitata instituto mi iomete babilis pri la malriĉo de filozofia literaturo en Esperanto. Ni venis al konkludo, ke nepras eldoni mezampleksan filozofian leksikonon en la internacia lingvo. Prizorgos de Zilah.
+Dum la ’filozofia’ kunveno sub la kolonoj de nova universitata instituto mi iomete babilis pri la malriĉo de filozofia literaturo en Esperanto. Ni venis al konkludo, ke nepras eldoni mezampleksan filozofian leksikonon en la internacia lingvo. Prizorgos de Zilah.
 
 Fine mi ekmarŝis al iu iom pli distanca salonego por ĝui la kulturan programon. Programon donis la poetoj Baldur Ragnarsson el Islando kaj Marjorie Boulton el Britio — ĉio enkad-rigita per la kantado de la slovena okteto Suha el Karintio.
 
-La poeziaĵoj de M. Boulton cetere ne estis aparte profun-
-
-daj, sed tamen amuzaj kaj prezentitaj laŭ la ĉarma sorĉistina maniero de la poetino. Kontraŭe la nobla s-ro Ragnarsson
+La poeziaĵoj de M. Boulton cetere ne estis aparte profundaj, sed tamen amuzaj kaj prezentitaj laŭ la ĉarma sorĉistina maniero de la poetino. Kontraŭe la nobla s-ro Ragnarsson
 
 efikis kompare al sia brita kolegino iom tro solena. Tamen liaj poemoj eniris la korojn, parte ankaŭ pro la elstare klara kaj bela prononco fare de la aŭtoro.
 
-La okteto Suha denove surprizis per sia profesia nivelo. Mi sidis inter mia deĵusmomenta fratino Olga kaj deĵore malfeli-
+La okteto Suha denove surprizis per sia profesia nivelo. Mi sidis inter mia deĵusmomenta fratino Olga kaj deĵore malfeliĉa amikino Zdenka. En la lasta estas pli da entuziasmo, kiu povus foje fariĝi ankaŭ blinda. En Olga troviĝas certa sinrega rezervemo al ĉio, kia decas al anoj de grandaj nacioj …
 
-ĉa amikino Zdenka. En la lasta estas pli da entuziasmo, kiu povus foje fariĝi ankaŭ blinda. En Olga troviĝas certa sinrega rezervemo al ĉio, kia decas al anoj de grandaj nacioj …
-
-Post la aranĝo d-ro Lapenna kaj lia edzino en koridoro du-
-
-ete kantis dalmatian popolan kanton ”Ne estas masto … ” en Esperanto. Estas evidente, ke lia voĉo estas trejnata kaj edu-kata ankaŭ muzike.
-
-
-LA MALBABELA JARO
+Post la aranĝo d-ro Lapenna kaj lia edzino en koridoro duete kantis dalmatian popolan kanton ”Ne estas masto … ” en Esperanto. Estas evidente, ke lia voĉo estas trejnata kaj edu-kata ankaŭ muzike.
 
 
 ***21-an de ***
@@ -1928,9 +1477,7 @@ Hotelo Rosen tre proksime al la universitato havas avantaĝon de tre bonaj maten
 
 preterire frapis sur la pordo de Zdenka por ŝin veki. Min vekis radioricevilo. Surtabligis ĉarma fraŭlino, kiu nove kaj denove proponis bongustan kafon.
 
-Zdenka helpis al mi per ŝnuro ligi pakaĵon de miaj broŝu-
-
-roj. Mi kunportis 60 da ili — sed mi devos esti tre bonŝanca, se oni vendos 20.
+Zdenka helpis al mi per ŝnuro ligi pakaĵon de miaj broŝuroj. Mi kunportis 60 da ili — sed mi devos esti tre bonŝanca, se oni vendos 20.
 
 Kun plena ŝarĝo mi iris aŭskulti la lastajn prelegojn antaŭ la reiro al Karintio. Prelegis Ragnarsson pri poezio. Neergaard pri scienco, de Zilah pri filozofio kaj Mayer pri institucioj. Plej solida Ragnarsson, plej vigla kaj interesa de Zilah, plej tempe kaj teme disciplinita Mayer.
 
@@ -1943,24 +1490,17 @@ Verkisto Ferk, nun por kelkaj monatoj mia kolego en la eldonejo, raportis pri ne
 La filmo nur komenciĝis bone, poste bedaŭrinde fariĝis
 
 
-LA MALBABELA JARO
-
-
 tipe amerika psikanaliza kaj naiva prezento de esotera pro-greso de certa junulo en Armenio. Andrea dum la projekcio
 
 multe ŝercis pri la enhavo, ŝi nepre ne toleras ekspluatadon de mistikaj temoj, kion bedaŭrinde komencis fari en beletro jam Hesse.
 
-Ni adiaŭis kun duone ŝerca mankiso, dankesprimo por be-
-
-la vespero kun tiu interesa kaj iom soleca fraŭlino.
+Ni adiaŭis kun duone ŝerca mankiso, dankesprimo por bela vespero kun tiu interesa kaj iom soleca fraŭlino.
 
 ***24-an de ***
 
 Antaŭtagmeze mi veturis al Struga por vidi mian komputilon.
 
-La komuniko inter la komputilo kaj mia elektronika skrib-
-
-maŝino ankoraŭ ne funkciis perfekte. Mi tiucele ankaŭ aĉe-
+La komuniko inter la komputilo kaj mia elektronika skribmaŝino ankoraŭ ne funkciis perfekte. Mi tiucele ankaŭ aĉe-
 
 tis turklingvan tajpradon, ĉar ĝi enhavas la supersignon ’ ˘ ’; cetere ne memstaran, sed super la litero ’g’; se oni forfajlas la bazan literon, restas la bezonata supersigno por miaj espe-rantlingvaj tekstoj …
 
@@ -1971,15 +1511,10 @@ troviĝis en bona kaj gaja stato. La plej malgranda, Peĉjo, min plej favore sal
 Peĉjo tenis ŝian robon kaj iom mire rigardis, dum ni avide kisis nin reciproke.
 
 
-LA MALBABELA JARO
-
-
 ***26-an de ***
 
 
-La unuan fojon post la revolucio okazis amasa demonstracio de krimeaj Tataroj en Moskvo. Kiel Jugoslavio, ankaŭ Sovetunio plej malfacile faros sian ekzamenon pri la nacia deman-do. La kvazaŭmarksisma dogmo, ke la interetnaj antagonis-
-
-moj apartenas sole al la ’burĝa socio’ ne helpas multe.
+La unuan fojon post la revolucio okazis amasa demonstracio de krimeaj Tataroj en Moskvo. Kiel Jugoslavio, ankaŭ Sovetunio plej malfacile faros sian ekzamenon pri la nacia deman-do. La kvazaŭmarksisma dogmo, ke la interetnaj antagonismoj apartenas sole al la ’burĝa socio’ ne helpas multe.
 
 ***27-an de ***
 
@@ -1993,11 +1528,7 @@ virina voĉo. ”Sprechen Sie Esperanto?” (ĉu vi parolas Esperanton?) Mi mire
 
 ”Venu post la dua posttagmeze, mi troviĝas tuj trans la strato de vi … ” — opiniante mian oficejon ĉe Mohorjeva.
 
-Posttagmeze mi preparis bonan turkmaniere kuiritan ka-
-
-fon por la ĵurnalistino, sed mi vane atendis. Du horojn post tio mi nur komencis pensi, ke ”tuj trans la strato” por ŝi povus signifi ion alian ol por mi. Mi tuj vokis al la redaktejo de ŝia gazeto. jes: ŝi opiniis mian loĝejon, mi opiniis mian oficejon 82
-
-LA MALBABELA JARO
+Posttagmeze mi preparis bonan turkmaniere kuiritan kafon por la ĵurnalistino, sed mi vane atendis. Du horojn post tio mi nur komencis pensi, ke ”tuj trans la strato” por ŝi povus signifi ion alian ol por mi. Mi tuj vokis al la redaktejo de ŝia gazeto. jes: ŝi opiniis mian loĝejon, mi opiniis mian oficejon
 
 
 … ĉiuokaze bona elirpunkto por diskuto pri la fame klara
@@ -2025,9 +1556,6 @@ aĉetis la gazeton por vidi rezulton de la hieraŭa interparolo.
 Sur la honoraj dua kaj tria paĝoj etendiĝis la bele aranĝita artikolo pri Esperanto. Mia foto estis iom streĉa, eble ne estis bona solvo, teni la revuon Esperanto antaŭvizaĝe, kvazaŭ mi ĵus legus ĝin — kaj samtempe rigardi — laŭ la postulo de la fotisto — en fotilon.
 
 
-LA MALBABELA JARO
-
-
 La artikolo estis bona, escepte de unu linio, kie estis asertite, ke por la kono de Esperanto sufiĉas 500 vortoj …
 
 El radio informo, ke la eksterafera ministro de Izraelo se-krete en enevo kunsidis kun la jugoslavia ŝtatestro Lazar Mojsov. Eble esperiga informo. Tio povus signifi, ke Jugoslavio en la procezo de malfermiĝo almenaŭ ne povos multe
@@ -2042,21 +1570,13 @@ Lia samtempulo, sed ĉefa scienca kontraŭulo estis same
 
 aŭstra filozofo Carnap. Lia postulo estis la certeco kaj pruveb-lo de nia kogno, kio havas siajn ĉefajn radikojn ĉe Aristotelo kaj Kartezio.
 
-Kontraŭe Popper insistis pri la malcerteco, neplena pru-
-
-veblo kaj trompeblo de la homa kogno. La radikoj de tiu ĉi sinteno kreskas de Teogneso, Ksenofano, Sokrato kaj Kanto.
+Kontraŭe Popper insistis pri la malcerteco, neplena pruveblo kaj trompeblo de la homa kogno. La radikoj de tiu ĉi sinteno kreskas de Teogneso, Ksenofano, Sokrato kaj Kanto.
 
 Laŭ li niaj sciencoj progresas en senĉesa farado kaj korektado de eraroj. Homaj sentoj kaj saĝo cetere estis kreitaj por rekoni la veron; sed la vero senpere ne estas kaptebla; ebla estas nur pli malpli bona alproksimiĝo.
 
-Laŭ Popper oni ne akiras la scion ĉiam dekomence; la ĝer-
+Laŭ Popper oni ne akiras la scion ĉiam dekomence; la ĝermoj de la scio estas al ni jam ennaskiĝintaj.
 
-moj de la scio estas al ni jam ennaskiĝintaj.
-
-Oni ankaŭ ne ricevas informojn pasive, simple malferman-
-
-te siajn sensojn, sed pli laŭ la maniero de vespertoj, kiuj emi-84
-
-LA MALBABELA JARO
+Oni ankaŭ ne ricevas informojn pasive, simple malfermante siajn sensojn, sed pli laŭ la maniero de vespertoj, kiuj emi-84
 
 
 tas al la ĉirkaŭo ultrasonerojn; kaptante e˛on ili nur ”vidas”
@@ -2067,15 +1587,11 @@ Tio, nature, ne estas pure kapricaj filozofiaĵoj, sed decidaj elirpunktoj por l
 
 Ankoraŭ nun plej multe regas la socia tipo kun la kartezia paradigmo, ke oni devas kaj povas akiri certan scion kaj fine la veron mem. La eraro estas rigardata kiel krimo aŭ almenaŭ maldezirata fenomeno. Tio igas homojn blufi kvazaŭan kog-nadon de la vero kaj samtempe tio spronas persekutadon de
 
-tiuj, kiuj vidas la veron alimaniere aŭ eĉ impertinentas deklari, ke la vero por ili ne estas kognebla, sed nur alproksimi-
-
-ĝebla.
+tiuj, kiuj vidas la veron alimaniere aŭ eĉ impertinentas deklari, ke la vero por ili ne estas kognebla, sed nur alproksimiĝebla.
 
 La kartezia paradigmo subtenas totalisman sintenon, dum
 
-la iom pli modesta kaj dubema paradigmo de Popper subte-
-
-nas toleremon kaj modestecon rilate al la kogna povo de la homa kranio.
+la iom pli modesta kaj dubema paradigmo de Popper subtenas toleremon kaj modestecon rilate al la kogna povo de la homa kranio.
 
 Ne estas hazardo, ke ĝuste Sir Karl Popper verkis la libron, kiu plej funde pledas por demokratio kaj malfermeco en la
 
@@ -2085,9 +1601,7 @@ socio. Lia libro *Die offene Gesellschaft und ihre Feinde* (La aper-ta socio kaj
 
 Jam dum tri monatoj aŭ pli daŭras mia aĉetado de komputilo.
 
-ŝajnas, ke ĉe komercaj negocoj oni nepre ne konsideru etnan apartenon, sed nur solidan iron de la aferoj. Mi havas pli kaj pli la impreson, ke ĉe mia firmao temas pri teamo, kiu volas 85
-
-LA MALBABELA JARO
+ŝajnas, ke ĉe komercaj negocoj oni nepre ne konsideru etnan apartenon, sed nur solidan iron de la aferoj. Mi havas pli kaj pli la impreson, ke ĉe mia firmao temas pri teamo, kiu volas
 
 
 en mallonga tempo sen multa peno laŭeble multe gajni, eĉ
@@ -2098,22 +1612,14 @@ neglektante la bazan fakan scion kaj negocan moralon.
 
 En triopo ni malfrue vespere suriris la gastejon Schweizer-haus (= svisa domo, speciala tipo de gastejoj, starigitaj kutime sur la bonhorizontaj punktoj) sub la pinto de la monteto Kriòna gora super la urbo Klaŭdiforumo. La verkisto Ferk, la slovena pastro el Kotmara vas dekano Kassl kaj mi.
 
-Ni vespermanĝis, trinkis bonan ruĝan vinon kaj priparo-
-
-lis aktualaĵojn. La pastro interesiĝis pri nia opinio pri la aktuala problemaro de lerneja sistemo sur la dulingva teritorio en Karintio. Mi opiniis, ke estas malsaĝe postuli malpli ol Aŭ-
+Ni vespermanĝis, trinkis bonan ruĝan vinon kaj priparolis aktualaĵojn. La pastro interesiĝis pri nia opinio pri la aktuala problemaro de lerneja sistemo sur la dulingva teritorio en Karintio. Mi opiniis, ke estas malsaĝe postuli malpli ol Aŭ-
 
 strio mem proponis antaŭ la subskribo de la ŝtata kontrakto kun la aliancaj venkoŝtatoj post la dua mondmilito. Oni do insistu pri konsekvenca sistemo: por Slovenoj slovena lernejo kun la germana kiel la unua fremdlingvo; por Germanoj germana lernejo kun la slovena kiel la unua fremdlingvo. La sen-racia insisto ĉe la nuntempa kvazaŭdulingva lernejo nur provokas la Germanojn kaj aliflanke tro faciligas al la slovenaj gepatroj la decidon enskribi siajn infanojn en la ’dulingvan’ ler-nejon anstataŭ klare decidi, ĉu sendi al germana ĉu al slovena. La rezultoj estas dubindaj.
 
-Ankaŭ cetere, mi resumis, la slovenaj organizaĵoj tro pro-
-
-vas imiti la modon kaj taktikon de la ’granda’ politiko en Vieno. Tamen la kriterio ĉiam estu unue, kio estas ĝusta kaj prava — kaj nur enkadre de tio oni rajtas elekti taktike pli racian kaj konvenan vojon. La Slovenoj ne havas la potencon de 86
-
-LA MALBABELA JARO
+Ankaŭ cetere, mi resumis, la slovenaj organizaĵoj tro provas imiti la modon kaj taktikon de la ’granda’ politiko en Vieno. Tamen la kriterio ĉiam estu unue, kio estas ĝusta kaj prava — kaj nur enkadre de tio oni rajtas elekti taktike pli racian kaj konvenan vojon. La Slovenoj ne havas la potencon de
 
 
-Goljato, do ili ne povas kalkuli pri la forto de siaj brakmusko-loj. Por la Slovenoj konvenas nur la saĝo de malgranda Da-
-
-vido, akirebla per respekto de vero kaj justeco. Se ni luktas sur la tereno kaj per rimedoj de Goljato, ĉiam venkos Goljato kaj ni perdos. Sed se ni uzos la konsekritajn armilojn de Davido, do se ni obeos la Dian leĝon, venkos la justa afero, kiu espereble (sed ne ĉiam nepre!) troviĝas niaflanke.
+Goljato, do ili ne povas kalkuli pri la forto de siaj brakmusko-loj. Por la Slovenoj konvenas nur la saĝo de malgranda Davido, akirebla per respekto de vero kaj justeco. Se ni luktas sur la tereno kaj per rimedoj de Goljato, ĉiam venkos Goljato kaj ni perdos. Sed se ni uzos la konsekritajn armilojn de Davido, do se ni obeos la Dian leĝon, venkos la justa afero, kiu espereble (sed ne ĉiam nepre!) troviĝas niaflanke.
 
 Mi demandis la pastron, ĉu li havas konkretan imagon pri
 
@@ -2129,12 +1635,7 @@ finiĝos.
 
 Mi opiniis, ke iamaniere ĉiu ricevos la plenumiĝon de siaj plej profundaj dumvivaj revoj. Eĉ la aferoj, kiuj ĉi tie sin eks-kludas, tie plenumiĝos. Tiel ekzemple Germanoj trovos sian transcendan Karintion eble plene germana; kaj Slovenoj trovos la saman landon eble plene slovena … Ni devis ridi pri la senkulpa naiveco de la homaj imagoj pri la alia mondo.
 
-Tiamaniere ni pasigis nian tempon, ĝis kiam venis la kel-
-
-nero kaj afable diris: ”Sperstunde!” (horo de fermiĝo) kaj ni disveturis hejmen. Mankas inter ni tiaj okazoj, ĉiu postkuras siajn negocojn kaj nur malmulte konsideras aliulon.
-
-
-LA MALBABELA JARO
+Tiamaniere ni pasigis nian tempon, ĝis kiam venis la kelnero kaj afable diris: ”Sperstunde!” (horo de fermiĝo) kaj ni disveturis hejmen. Mankas inter ni tiaj okazoj, ĉiu postkuras siajn negocojn kaj nur malmulte konsideras aliulon.
 
 
 ***1-an de ***
@@ -2147,9 +1648,7 @@ Vespere mi tuj daŭrigis sur mia antaŭmilita tajpmaŝino la
 
 tradukadon de modernaj slovenaj noveloj en Esperanton.
 
-Momente en la maŝino troviĝas la teksto de mia najbaro Le-
-
-opold Suhodolâan, kiu, jam kelkajn jarojn morta, eble nun
+Momente en la maŝino troviĝas la teksto de mia najbaro Leopold Suhodolâan, kiu, jam kelkajn jarojn morta, eble nun
 
 havas pli favoran opinion pri la lingvo, al kiu li ne povis ima-gi, iam esti tradukota, ol li iam havis …
 
@@ -2165,9 +1664,7 @@ Vespere mi estis tiel elĉerpita pri la disputo, ke mi tuj eniris liton, sen da�
 
 Post la artikolo pri Esperanto kaj mencio de mia tiusenca ak-tivado en Klaŭdiforumo, nun ankaŭ en slovena magazino
 
-*Teleks * aperis dupaĝa intervjuo kun mi sub la titolo ”Kiam oni sonĝas en Esperanto”. Al la demando, kion diri pri la riproĉo de kelkaj lingvistoj, ke Esperanto tute ne estas vera lingvo, mi respondis: ”Bone, ili estas fakuloj en lingvaj aferoj, kio mi ne estas. Mi do ne emas kun ili polemiki, sed preferas kredi je ilia 88
-
-LA MALBABELA JARO
+*Teleks * aperis dupaĝa intervjuo kun mi sub la titolo ”Kiam oni sonĝas en Esperanto”. Al la demando, kion diri pri la riproĉo de kelkaj lingvistoj, ke Esperanto tute ne estas vera lingvo, mi respondis: ”Bone, ili estas fakuloj en lingvaj aferoj, kio mi ne estas. Mi do ne emas kun ili polemiki, sed preferas kredi je ilia
 
 
 scienca argumento. Tamen, se ili pri tio pravas, ekestas nova scienca problemo: kiel difini kaj nomi la fenomenon, ke ekz.
@@ -2191,14 +1688,9 @@ tradukas la kortuŝan novelon de Boris Pahor el Triesto, kiu priskribas la krima
 Gorica Lojze Bratuò fare de la faŝista milico en la antaŭmilita tempo.
 
 
-LA MALBABELA JARO
-
-
 Dostojevski diras en sia romano *La junulo*: ”Se mi estus riĉulo, havanta cent milionojn, mi plej verŝajne sentus apartan ĝuon en tio, ke mi aperus publike en la plej malnova vesto kaj ke oni min opinius la plej povra malriĉulo, kiu apenaŭ ne petas almozon pro malriĉeco, ke oni min forpuŝus kaj malŝa-tegus: por mi estus sufiĉa jam la pura konscio pri mia reala stato.”
 
-ĉu tio ĉi ne estas la bonega elirpunkto por ĉiu fakte mal-
-
-riĉa, sed religiema homo, kiu cetere aperas kiel almozulo, sed havas la konscion, ke la tuta universo apartenas al li?
+ĉu tio ĉi ne estas la bonega elirpunkto por ĉiu fakte malriĉa, sed religiema homo, kiu cetere aperas kiel almozulo, sed havas la konscion, ke la tuta universo apartenas al li?
 
 Genia estas ankaŭ lia sekva tekstero: ”Persona libero, do
 
@@ -2210,16 +1702,12 @@ Jam tiuj ĉi kelkaj linioj al iom saĝa homo sufiĉas por ne
 
 freneziĝi faŝisme aŭ komunisme. Tial ankaŭ ne estas enigmo, kial oni ne presas en socialismaj landoj la verkojn de Dostojevski en sufiĉaj eldonkvantoj. Kial oni lin tamen presas en Jugoslavio, parte klarigas la fakto, ke unuflanke la homoj ĉi tie ne legas plu tiom multe kiel en Sovetio, kaj aliflanke, la aŭtoritato en Jugoslavio fariĝis jam pli cinika kaj rafina, ĝi povas neglekti eĉ literaturon, kiu subfosas ĝian mentalan bazon.
 
-Posttagmeze letero al Aloizo Rebula, kiu ĵus revenis el Gre-kio. Tie li diligente verkis sian taglibron, kiu verŝajne estos tre 90
-
-LA MALBABELA JARO
+Posttagmeze letero al Aloizo Rebula, kiu ĵus revenis el Gre-kio. Tie li diligente verkis sian taglibron, kiu verŝajne estos tre
 
 
 interesa pro lia bonega kono de la materio kaj de la helena lingvo.
 
-En la korto sidas malantaŭ ligna tablo mia patrino kaj ra-
-
-portas pri sia sanstato. ĉiun vorton ŝi elparolas en iom difek-tita formo. Probable tiamaniere naskiĝis lingva diverseco …
+En la korto sidas malantaŭ ligna tablo mia patrino kaj raportas pri sia sanstato. ĉiun vorton ŝi elparolas en iom difek-tita formo. Probable tiamaniere naskiĝis lingva diverseco …
 
 ***7-an de ***
 
@@ -2231,16 +1719,11 @@ Ni komencis trinki bonan tradician slovenan vinon cviĉek
 
 ’blua frankbero’, la vino estas produktita en malsupra Karni-olo en Slovenio) kaj apude manĝi sandviĉojn. Ni ŝercis pri la persono, kiu mankis, ni eĉ skribis al li ŝercan leteron kaj perpoŝte sendis al li kelkajn panerojn kun maldika salamfolieto.
 
-Sur la muroj en la loĝejo de Ferk pendas altrangaj pen-
-
-traĵoj, ĉefe de Oman. Foje iu el ni simple leviĝis kaj iris spekti la bildojn.
+Sur la muroj en la loĝejo de Ferk pendas altrangaj pentraĵoj, ĉefe de Oman. Foje iu el ni simple leviĝis kaj iris spekti la bildojn.
 
 Mi raportis, ke en iu butiko en la urbo mi trovis tajpmaŝinon el la jaro 1910 de la firmao Underwood en plej bona
 
 funkcianta stato por 5.000 ŝilingoj. Mi tre ŝatas tajpi sur tiuj malnovaj maŝinoj. Ferk proponis al mi sian dek jarojn aĝan maŝineton por 200 ŝilingoj. Mi tuj aĉetis, ja ĝi bone konvenas por survoja uzo.
-
-
-LA MALBABELA JARO
 
 
 ***9-an de ***
@@ -2251,9 +1734,7 @@ kaj kun kapelano de Slovenj Gradec mi en eta ’popola’ Fiat 750 suprenveturis
 
 La legaĵo pri la patriarko Abrahamo, kiu supreniris la monton Horeb kaj tie vidis Dion nek en fajro nek en fulmo nek en ŝtormo, sed en flustrado de la malforta vento, tre konvenis al mia vojo. La homaro volas vidi la ĉeeston de Dio en ekster-ordinaraj kaj fortegaj fenomenoj. Kaj preskaŭ ĉiuj neglektas la kampon de delikato kaj afablo, kie Dio multe pli evidentas.
 
-En la benkoj sidis simplaj kampulaj kaptukoj kaj deĉape-
-
-litaj kalvaĵoj kaj grizharaĵoj. Iliaj preĝaj respondoj estis samaj kiel en pariza Noterdamo aŭ katedralo de Kolonjo. La katolika eklezio faras el tiuj simplaj homoj civitanojn de la tuta mondo. Post la ceremonio Johano kaj mi promenis ĝis la tombo de la iom forgesita slovena verkisto Franc Ksaver Meôko (1874-1964). Li deĵoris en multaj lokoj de Karintio kaj estis persekutita fare de kontraŭslovenaj aktivistoj dum la aŭstro-hungara imperio kaj speciale eĉ de la nazioj. Post la dua mondmilito li administris la paro˛on de Sele kaj ĉi tie en la edena ĉirkaŭaĵo kaj trankvilo li verkis sian lirikecan prozon.
+En la benkoj sidis simplaj kampulaj kaptukoj kaj deĉapelitaj kalvaĵoj kaj grizharaĵoj. Iliaj preĝaj respondoj estis samaj kiel en pariza Noterdamo aŭ katedralo de Kolonjo. La katolika eklezio faras el tiuj simplaj homoj civitanojn de la tuta mondo. Post la ceremonio Johano kaj mi promenis ĝis la tombo de la iom forgesita slovena verkisto Franc Ksaver Meôko (1874-1964). Li deĵoris en multaj lokoj de Karintio kaj estis persekutita fare de kontraŭslovenaj aktivistoj dum la aŭstro-hungara imperio kaj speciale eĉ de la nazioj. Post la dua mondmilito li administris la paro˛on de Sele kaj ĉi tie en la edena ĉirkaŭaĵo kaj trankvilo li verkis sian lirikecan prozon.
 
 Sur la ligna krucifikso sur lia tombo estas tabuleto, sur kiu tekstas:
 
@@ -2268,9 +1749,6 @@ Sur la ligna krucifikso sur lia tombo estas tabuleto, sur kiu tekstas:
 *Ovene roòa, sveti kriò ostane, *
 
 *na svetu mine vse, ostane duôa, *
-
-
-LA MALBABELA JARO
 
 
 *otroci, le mnogokrat molite zame, *
@@ -2309,9 +1787,7 @@ La titolo, nature, trompas. Li ĉefe konstatas, kiugrade la poetoj transpaŝas f
 
 Apollinaire, verkisto en franca lingvo, naskiĝis en Romo al patrino el Helsinki, rus-pole devena; la poeto de Sicilio Turko Hikmet verkis ruse en Moskvo, la Usonano Pound verkis
 
-en Italio, la ĉiliano Neruda verkis en Jakarto, Madrido, Parizo 93
-
-LA MALBABELA JARO
+en Italio, la ĉiliano Neruda verkis en Jakarto, Madrido, Parizo
 
 
 kaj Moskvo; la Greko Kavafis naskiĝis en Konstantinoplo,
@@ -2333,9 +1809,6 @@ monda poezio estas monda nur pere de tradukoj. Kaj ĉiu traduko kiel ia semantik
 Ankaŭ Enzensberger verkas en iu speciala ’denominatoro’,
 
 en la komuna literatura germana lingvo, kiu rilatas al germanaj dialektoj ĝuste tiel, kiel Esperanto al la naciaj literaturaj lingvoj.
-
-
-LA MALBABELA JARO
 
 
 ***1-an de ***
@@ -2360,12 +1833,7 @@ Dio estas perfekta, ĉio alia havas mankojn. Oni do ne povas logike riproĉi al 
 
 ŝi diris, ke mi ĉiam pretas per iu respondo detrui ŝian koncepton.
 
-Interese, ke ĉe diletantoj, eĉ se altrangaj kaj talentitaj, kiel sinjorino Pavla, tiel ofte aperas stranga kaj iel eksterordina-95
-
-LA MALBABELA JARO
-
-
-ra ambicio: renversi ĉion ekzistantan kaj kvazaŭ Dio krei novan universon.
+Interese, ke ĉe diletantoj, eĉ se altrangaj kaj talentitaj, kiel sinjorino Pavla, tiel ofte aperas stranga kaj iel eksterordinara ambicio: renversi ĉion ekzistantan kaj kvazaŭ Dio krei novan universon.
 
 ***11-an de ***
 
@@ -2375,19 +1843,13 @@ Kiel mia konatino sinjorino Pavla, en esenco ĉiu homo laŭ
 
 propra maniero riproĉas al Dio la fakton, ke li anstataŭ sin mem kreis nur la neperfektan mondon, kiu almenaŭ enhavas
 
-la metafizikan fondon de malbono, sian ontologian malper-
+la metafizikan fondon de malbono, sian ontologian malperfektecon.
 
-fektecon.
-
-ĉiu ankaŭ elpensas por si certan filozofion aŭ pseŭdofilo-
-
-zofion, kiu pravigas Dion aŭ realon, ke ĝi estas, kia ĝi estas.
+ĉiu ankaŭ elpensas por si certan filozofion aŭ pseŭdofilozofion, kiu pravigas Dion aŭ realon, ke ĝi estas, kia ĝi estas.
 
 Sen tia teodiceo oni simple ne povus vivi. Homoj kiel Nietzsche elpensas al si imagon, ke ili apartenas al elito aŭ eĉ es-cepta kasto. Sed la mondo kun la cetera homaro estas subnivela kaj malica kaj per sia malbono konstante minacas nian
 
-”superhomon”. Al tia, eble tamen iom komika sinteno apar-
-
-tenas granda nombro da personoj, esence pli granda ol oni
+”superhomon”. Al tia, eble tamen iom komika sinteno apartenas granda nombro da personoj, esence pli granda ol oni
 
 povus kredi, eĉ pli granda ol tiaj homoj mem kredas.
 
@@ -2395,28 +1857,18 @@ La ŝlosila vorto, pli prave, la ŝlosila vortparo, kiu signas tian sintenon, es
 
 Damaĝo estas fenomeno, kiun oni ne povas suferi nun.
 
-Damaĝo estas perdo — sed ne perdo de io ajn. Damaĝo es-
-
-tas perdo de io, kio esence apartenas al la homo. Kaj esence 96
-
-LA MALBABELA JARO
+Damaĝo estas perdo — sed ne perdo de io ajn. Damaĝo estas perdo de io, kio esence apartenas al la homo. Kaj esence
 
 
 apartenas al la homo nur lia ligo kun sia origino, kun Dio. El tiu vidpunkto damaĝo neniam venas al ni en formo de tia aŭ alia maljustaĵo aŭ perforta forrabo. i ne venas en formo de sufero, sed prefere en la formo de malmultekosta ĝuo aŭ eĉ triviala riĉiĝo. Tiun esencan damaĝon — kaj nur ĝi estas vera damaĝo — libere elektas ĉiu por si mem. Damaĝo al la homo
 
 ne okazas, ĝi estas de la homo elektita kaj mem kaŭzita.
 
-Kontraŭe, la sufero neniam alportas perdon aŭ veran da-
+Kontraŭe, la sufero neniam alportas perdon aŭ veran damaĝon. Sufero estas la plej intensa akumulo de la anima potenco. Sufero produktas la plej fajnan kaj plej efikan energion, per kies helpo oni nur povas kreski en sia spirita vivo.
 
-maĝon. Sufero estas la plej intensa akumulo de la anima potenco. Sufero produktas la plej fajnan kaj plej efikan energion, per kies helpo oni nur povas kreski en sia spirita vivo.
+Same kiel la frotado inter la homa laborilo kaj la prilaborita objekto aŭ kruda materialo kaŭzas penon, foje eĉ suferon, kiu post la atingo de rezulto pligrandigas la ĝuon kaj kontentiĝon, tiel ankaŭ sufero, kiu aperas dum la ”frotado” inter la homa korpo kaj animo, renkontiĝe kun la fizika kaj spirita realoj, ebligas la homan spiritan realiĝon kaj finfine aperos kiel fonto de plej profunda ĝojo kaj feliĉo.
 
-Same kiel la frotado inter la homa laborilo kaj la prilaborita objekto aŭ kruda materialo kaŭzas penon, foje eĉ suferon, kiu post la atingo de rezulto pligrandigas la ĝuon kaj kontenti-
-
-ĝon, tiel ankaŭ sufero, kiu aperas dum la ”frotado” inter la homa korpo kaj animo, renkontiĝe kun la fizika kaj spirita realoj, ebligas la homan spiritan realiĝon kaj finfine aperos kiel fonto de plej profunda ĝojo kaj feliĉo.
-
-uste suferante oni subtrakas de la damaĝokonto — sam-
-
-kiel tra la banala ĝuado oni al ĝi adicias. Inter sufero kaj da-maĝo ne estas paralela ligo. ĉi tie estas la punkto, kie la popola saĝo komplete eraras!
+uste suferante oni subtrakas de la damaĝokonto — samkiel tra la banala ĝuado oni al ĝi adicias. Inter sufero kaj da-maĝo ne estas paralela ligo. ĉi tie estas la punkto, kie la popola saĝo komplete eraras!
 
 Vespere televida raporto: pli ol 100 delfenoj sur la atlantika bordo en Usono faris suicidon. Fiŝkaptistoj provis fari ĉion kontraŭ la malĝoja fenomeno, sed sensukcese. La delfenoj
 
@@ -2424,9 +1876,7 @@ nepre surbordiĝis por — morti. La biologiaj kialoj ne jam estas konataj. Sed 
 
 Fakulo pri alta modo en Parizo kaj profesorino pri franca
 
-lingvo dum televida dissendo diris, ke Parizo en lastaj jaroj 97
-
-LA MALBABELA JARO
+lingvo dum televida dissendo diris, ke Parizo en lastaj jaroj
 
 
 fariĝis polica fortikaĵo: sur ĉiu grava angulo staras policistoj kun maŝinpistoloj …
@@ -2437,24 +1887,15 @@ Kio fariĝis el vi, Parizo, iama lumo de la libero? ĉu vi transformiĝas en ple
 
 Fine venis la transporto de tegoloj por nia tegmento. Por kovri la plej malnovan domon en la vilaĝo.
 
-Povas esti, ke ni ankoraŭ tre bezonos tiun ĉi malnovan do-
+Povas esti, ke ni ankoraŭ tre bezonos tiun ĉi malnovan domon, kiun mia patro akiris je stranga prezo: li kiel 26-jara edziĝis kun la mastrino, tiam 73-jara … Ago, hodiaŭ nekom-prenebla, sed iel natura en la tempo, kiam nur tia geedziĝo levis la dependan serviston al la sendependa rango de mastro, kvankam mastro de tre malgranda bieno kaj domo.
 
-mon, kiun mia patro akiris je stranga prezo: li kiel 26-jara edziĝis kun la mastrino, tiam 73-jara … Ago, hodiaŭ nekom-prenebla, sed iel natura en la tempo, kiam nur tia geedziĝo levis la dependan serviston al la sendependa rango de mastro, kvankam mastro de tre malgranda bieno kaj domo.
-
-Nature, li ne estis plene akceptita en la klubo de grand-
-
-bienuloj. Ankaŭ la t.n. socialisma sistemo multe pardonis al sifuĉe riĉaj najbaroj, sed ĝi senkompate multe postulis de li, la plej malgranda. Revolucioj ŝanĝas la mastrojn, sed ne la mastradon …
+Nature, li ne estis plene akceptita en la klubo de grandbienuloj. Ankaŭ la t.n. socialisma sistemo multe pardonis al sifuĉe riĉaj najbaroj, sed ĝi senkompate multe postulis de li, la plej malgranda. Revolucioj ŝanĝas la mastrojn, sed ne la mastradon …
 
 ***13-an de ***
 
 Anstataŭ vizito — unupaĝa letero al Aloizo, kiu ferias en Lo-ka. is nun mi havas certe pli ol 300 leterojn de tiu interesa verkisto, profesoro kaj kavalira amiko. Cetere la kulturo de korespondado bedaŭrinde formortas eĉ ĉe verkistoj.
 
-La oficiala junulara organizaĵo en Slovenio laŭ sia lasta de-98
-
-LA MALBABELA JARO
-
-
-cido rezignis por la mandato por federacia junulara prezidio.
+La oficiala junulara organizaĵo en Slovenio laŭ sia lasta decido rezignis por la mandato por federacia junulara prezidio.
 
 ĉar la reprezentantoj de aliaj respublikoj ne akceptis la kand-idaton de Slovenio. Li insistas je slovenaj naciaj rajtoj kontraŭ la centralizaj tendencoj en Jugoslavio. Bone, la gefraŭloj el Slovenio montris iomete da karaktero kaj simple foriris. Tio estas la komenca ago en la dispartigo de la federacia junulara organizaĵo. La samo pasintjare okazis ĉe verkistoj. Kiam-iam la samo verŝajne okazos ankaŭ en pli gravaj institucioj de tiu malfeliĉa kontraŭnatura ŝtata organismo.
 
@@ -2462,31 +1903,18 @@ En Slovenj Gradec mi aĉetis du librojn de M. Roòanc: la
 
 romanon *Evangelij po Marku* (La evangelio laŭ Marko) kaj liajn eseojn *Evropa *(Eŭropo). Almenaŭ la titoloj de la ĉapitroj en la dua libro promesas interesan enhavon: Eseo pri la mezepoko, eseo pri la protestantismo, pri Paskalo, pri Dostojevski, pri Unamuno kaj senmorteco de la animo, …
 
-Nuntempe estas moderne paroli pri Eŭropo. Tamen mul-
+Nuntempe estas moderne paroli pri Eŭropo. Tamen multaj ignoras, ke la hodiaŭa Eŭropo cetere komune produktas
 
-taj ignoras, ke la hodiaŭa Eŭropo cetere komune produktas
+kaj distribuas varojn, eĉ komune aranĝas pentristajn ekspoziciojn kaj muzikajn koncertojn. Mankas detalo: la modernaj Eŭropanoj ĝenerale ne povas kompreni unu la alian. Kaj ĝenerale oni pli emas aĉe filozofiumi pri la ”muziko kiel la komuna lingvo” ol agnoski la problemon en ĝia plena profundo kaj seriozo. Bedaŭrinde ankaŭ en la libro de Roòanc tiu ĉi grava temo ne meritas eĉ linion. Vere grandaj perspektivoj de la surd-muta Eŭropo …
 
-kaj distribuas varojn, eĉ komune aranĝas pentristajn ekspoziciojn kaj muzikajn koncertojn. Mankas detalo: la modernaj Eŭropanoj ĝenerale ne povas kompreni unu la alian. Kaj ĝenerale oni pli emas aĉe filozofiumi pri la ”muziko kiel la komuna lingvo” ol agnoski la problemon en ĝia plena profun-
-
-do kaj seriozo. Bedaŭrinde ankaŭ en la libro de Roòanc tiu ĉi grava temo ne meritas eĉ linion. Vere grandaj perspektivoj de la surd-muta Eŭropo …
-
-ĉu mi legis gazete, ĉu mi aŭdis radie, memorindas la vor-
-
-toj de Polo Wladislaw Bartoszewski: ”Tre indas esti honesta!”
-
-
-LA MALBABELA JARO
+ĉu mi legis gazete, ĉu mi aŭdis radie, memorindas la vortoj de Polo Wladislaw Bartoszewski: ”Tre indas esti honesta!”
 
 
 ***16-an de ***
 
-Hieraŭ posttagmeze Kopeinig kunprenis ĝis nia hejmo la ge-
+Hieraŭ posttagmeze Kopeinig kunprenis ĝis nia hejmo la geedzan paron Apih el Labako. En akompano iu slovena viro el Argentino.
 
-edzan paron Apih el Labako. En akompano iu slovena viro el Argentino.
-
-Ni diskutis pri la lastaj okazintaĵoj en Slovenio. Temas ĉefe pri interŝanĝo de leteroj inter M. Apih, T. Kermauner kaj serbaj intelektuloj en Belgrado. Stariĝis la demando: nacionalismo, ĉu ĝi estas nepre negativa? Apih pledas por pozitiva kompreno de tiu ĉi nocio. Mi opinias iomete same. Negativa estas la nacia ŝovinismo, kiu tute diferencas de la nacionalis-mo mem. Bedaŭrinde multaj esperantistoj kopias la denun-
-
-con de tiu ĉi esprimo fare de mensoga bolŝevika ’internaciismo’. En fina efekto ili mem montriĝas kiel elstaraj ŝovinismoj.
+Ni diskutis pri la lastaj okazintaĵoj en Slovenio. Temas ĉefe pri interŝanĝo de leteroj inter M. Apih, T. Kermauner kaj serbaj intelektuloj en Belgrado. Stariĝis la demando: nacionalismo, ĉu ĝi estas nepre negativa? Apih pledas por pozitiva kompreno de tiu ĉi nocio. Mi opinias iomete same. Negativa estas la nacia ŝovinismo, kiu tute diferencas de la nacionalis-mo mem. Bedaŭrinde multaj esperantistoj kopias la denuncon de tiu ĉi esprimo fare de mensoga bolŝevika ’internaciismo’. En fina efekto ili mem montriĝas kiel elstaraj ŝovinismoj.
 
 Grandaj nacioj al la malgrandaj ĉiam predikis sennaciecon.
 
@@ -2502,11 +1930,7 @@ kuŝas en hospitalo, verŝajne neniam plu revenonta hejmen.
 
 Laŭ multaj indicoj li estis tiu ’fakulo’, kiu helpis al la sekreta polico instali en mia domo subaŭskultajn instrumentojn. La lastan pruvon mi ne havas, sed ankaŭ mi ne bezonas ĝin. La tuta mondo bonvolu subaŭskulti, kiel mi revas pri iom pli
 
-bonkora kaj saĝa mondo. Sed kial vi, mia kompatinda najba-
-
-ro, ne instalis viajn ruzajn aparatojn iom pli profunde, ke vi 100
-
-LA MALBABELA JARO
+bonkora kaj saĝa mondo. Sed kial vi, mia kompatinda najbaro, ne instalis viajn ruzajn aparatojn iom pli profunde, ke vi
 
 
 iom post iom aŭdu la sonojn de la elementoj, kiuj diras alian veron ol la supraĵa babilado de la eksteraj formoj?
@@ -2534,14 +1958,9 @@ Mi neniam al li montris, ke mi konas lian kromprofesion. Li kun afabla mieno sal
 Ne estas hazardo. Sinjorino Apih raportis per mallauta
 
 
-LA MALBABELA JARO
-
-
 voĉo, ke tiu viro jam en la antaŭa tago kontaktis ilin. Iaman kolonelon de la ŝtata polico oni ne lasas senkontrole ie en la provinca montaro. Precipe ne, se tiu kolonelo kaj antaŭmilita komunisto nuntempe estas unu el la plej akraj batalantoj por la demokratio kaj por la rajtoj de sia popolo je sendependeco.
 
-Montriĝis, ke ne nur tiu iom naiva viro, sed ankaŭ la kam-
-
-parano mem kunlaboras kun la reĝima polico. ĉu li cetere
+Montriĝis, ke ne nur tiu iom naiva viro, sed ankaŭ la kamparano mem kunlaboras kun la reĝima polico. ĉu li cetere
 
 ricevus tiel konvenajn kreditojn por konstrui novajn turismajn kapacitojn? Due, lia familio situas sur apudlima tereno.
 
@@ -2557,16 +1976,9 @@ Surprize agrabla poŝto, atendinta min en la kesto en Klaŭdiforumo. Afabla lete
 
 Hieraŭ vespere intendento de la aŭstra televido intevjuis la polan profesoron pri historio en la katolika universitato en Munkeno Wladislaw Bartuszewski, kiu kiel katolika aktivisto gvidis la kontraŭnazian grupon en Varsovio, estis enkarzeri-gita en Oswiezim — kaj estis post la milito denove dum multaj jaroj malliberigita en komunismaj karceroj.
 
-Tamen la interesa profesoro el ĉio spertita eltiras nur op-timisman sintenon. Interesaj liaj avertoj al Aŭstrio kaj okci-102
+Tamen la interesa profesoro el ĉio spertita eltiras nur op-timisman sintenon. Interesaj liaj avertoj al Aŭstrio kaj okcidenta mondo ĝenerale. Sian optimismon li starigas sur sian katolikan kredon, tamen li ankaŭ agnoskas, ke ekzistas optimismo ankaŭ ĉe homoj senreligiaj. Ilin li eĉ pli admiras. Sinteno tre proksima al mia.
 
-LA MALBABELA JARO
-
-
-denta mondo ĝenerale. Sian optimismon li starigas sur sian katolikan kredon, tamen li ankaŭ agnoskas, ke ekzistas optimismo ankaŭ ĉe homoj senreligiaj. Ilin li eĉ pli admiras. Sinteno tre proksima al mia.
-
-Li finis diskuton per frazo, en kiu li resumis sian tutan per-ceptadon. Li diris en la germana kun slave malmolaj konso-
-
-nantoj kaj vastaj vokaloj: ”Es lohnt sich sehr, anständig zu sein!” (Esti honesta ricevos rekompencon.)
+Li finis diskuton per frazo, en kiu li resumis sian tutan per-ceptadon. Li diris en la germana kun slave malmolaj konsonantoj kaj vastaj vokaloj: ”Es lohnt sich sehr, anständig zu sein!” (Esti honesta ricevos rekompencon.)
 
 Tion ĉi mi notas, aŭskultante samtempe la kantadon de
 
@@ -2586,15 +1998,9 @@ kvar, kvin fojojn jare, sidiĝas dum duona horo kun mi kaj
 
 diskutas pri politikaj novaĵoj el Slovenio kaj el Belgrado. Li havas bonajn rilatojn kun kelkaj gvidaj politikistoj kaj scias la ĉiaman temperaturon en la politika scenejo.
 
-Proksimume unu triono da maljunaj komunistoj en Slove-
+Proksimume unu triono da maljunaj komunistoj en Slovenio ankoraŭ obstine subtenas la belgradan centralisman re-
 
-nio ankoraŭ obstine subtenas la belgradan centralisman re-
-
-ĝimon kaj neŝanĝeblajn stalinismajn metodojn. Ceteraj opi-
-
-nias, kiel iu el ili al mia konatulo sin esprimis, ke eblas nur du 103
-
-LA MALBABELA JARO
+ĝimon kaj neŝanĝeblajn stalinismajn metodojn. Ceteraj opinias, kiel iu el ili al mia konatulo sin esprimis, ke eblas nur du
 
 
 vojoj: ĉu tuta Jugoslavio decidiĝu sin turni al Eŭropo — ĉu tion devos fari Slovenio sola …
@@ -2603,32 +2009,24 @@ D-ro Dvorak telefonis el Ulmo. Nia sankta eklezio ĵetas lin el la ofico, ĉar t
 
 Kiamaniere helpi al li? Restas mia foje sola helpaparato:
 
-rozario kun siaj globaj nukleoj, kiuj en la manoj de malpotenca kredanto foje komencas evolui fortegan nuklean energion de transcenda speco … Tamen mi provos telefoni al slovena eksministro pri kulturo, ke li laŭ sia trovo kaj povo interve-nu por la malfeliĉa intelektulo, kiu doktoriĝis en Prago pri ĉe-
-
-ąj lingvo kaj beletro, sed ne estis inda fariĝi en propra universitato en Labako eĉ adjunkto en la slavistika kaj boęmistika fako …
+rozario kun siaj globaj nukleoj, kiuj en la manoj de malpotenca kredanto foje komencas evolui fortegan nuklean energion de transcenda speco … Tamen mi provos telefoni al slovena eksministro pri kulturo, ke li laŭ sia trovo kaj povo interve-nu por la malfeliĉa intelektulo, kiu doktoriĝis en Prago pri ĉeąj lingvo kaj beletro, sed ne estis inda fariĝi en propra universitato en Labako eĉ adjunkto en la slavistika kaj boęmistika fako …
 
 ***19-an de ***
 
-Antaŭ pli ol 70 jaroj en preskaŭ duona Eŭropo estis solene celebrita la naskiĝtago de lia imperiestra moŝto Karlo Habsburgo von Lothringen. Kaj hieraŭ estus la kompatinda Kar-
-
-lo, se li ankoraŭ vivus, 100 jarojn aĝa.
+Antaŭ pli ol 70 jaroj en preskaŭ duona Eŭropo estis solene celebrita la naskiĝtago de lia imperiestra moŝto Karlo Habsburgo von Lothringen. Kaj hieraŭ estus la kompatinda Karlo, se li ankoraŭ vivus, 100 jarojn aĝa.
 
 En la televida dissendo Club 2 sidis interesa rondeto da
 
 homoj, kiuj iel rilatas al la familio, kiu dum tiel longa periodo formis aŭ almenaŭ kunformis la politikan vizaĝon de centra Eŭropo.
 
-Inter aliaj sidis ankaŭ la filino de d-ro Otto von Habsburg, 104
-
-LA MALBABELA JARO
+Inter aliaj sidis ankaŭ la filino de d-ro Otto von Habsburg,
 
 
 la deputito de Bavario en Eŭropa parlamento, cetere filo de la lasta imperiestro Karlo. El ĉiu aspekto ŝi efikis plej simple kaj afable sinregante. Kvankam kelkiu senkompate akre atakis la epokon de monarkio kaj la karakteron de la lasta imperiestro.
 
 Interese, ke plej pozitive esprimiĝis pri la Habsburgoj, krom s-ino Kovacs, kiu kiel historiisto zorgas pri la beatiga proceso por Karlo, la juna, sed brile klera hungara historiisto el Budapeŝto. Li menciis kelkajn kialojn por la plej nova ondo de nostalgio pri Habsburgoj. Ekzemple la senperspektivon ĉe la juna generacio en ĉiuj tiuj orienteŭropaj ŝtatoj, kiuj heredis la teritoriojn de la iama monarkio. Poste la fakton, ke ĉio, kio okazis en Eŭropo post la disfalo de la habsburga regno, estis senkompare pli malbona.
 
-Oni tre forte kontraŭargumentis la koncepton, ke la dina-
-
-sto estas donacita de speciala Dia graco. Kvazaŭ tio estus ek-sterdemokratia fenomeno. Kaj ĵus en tiu ĉi falsa opinio tro-viĝas la plej granda danĝero por demokratioj. Se ĉio estas nur en homaj manoj, baldaŭ nenio plu troviĝos en homaj manoj,
+Oni tre forte kontraŭargumentis la koncepton, ke la dinasto estas donacita de speciala Dia graco. Kvazaŭ tio estus ek-sterdemokratia fenomeno. Kaj ĵus en tiu ĉi falsa opinio tro-viĝas la plej granda danĝero por demokratioj. Se ĉio estas nur en homaj manoj, baldaŭ nenio plu troviĝos en homaj manoj,
 
 sed en la manoj de la malpura potenco. Monarkia principo
 
@@ -2636,11 +2034,7 @@ garantias, ke almenaŭ pri unu kolono de la aŭtoritata povo ne povas laŭplaĉe
 
 ***21-an de ***
 
-La Aŭstra zoologo Konrad Lorenz, kiu multe esploris kondu-
-
-ton de bestoj, diris al iu brita ĵurnalisto: ”Artistoj kaj sci-105
-
-LA MALBABELA JARO
+La Aŭstra zoologo Konrad Lorenz, kiu multe esploris konduton de bestoj, diris al iu brita ĵurnalisto: ”Artistoj kaj sci-105
 
 
 encistoj estas la plej feliĉaj homoj en la mondo, ĉar ili estas pagataj por sia hobio.”
@@ -2651,23 +2045,15 @@ Tamen oni povas diri, ke la artistoj kaj la sciencistoj havas certan privilegion
 
 malpeza laborilo — traduka kaj skribista plumo. is miaj lastaj fortoj, eble jam duone paralizita, mi ankoraŭ verŝajne povos labori per tiu simpla instrumento, kiu tiel konvenas al mia ne tro premata forta mano. Dum multaj miaj samgene-raciuloj jam delonge enuos pro la forlaso de sia profesia laboro, mi eĉ pli vigle ol nun povos labori sur mia kampo de duona skribtabla kvadratmetro.
 
-Vespere mi prenis la kapon de mia edzino en ambaŭ ma-
-
-nojn kaj kisis ŝin kiel deksesjara fraŭlo sian knabinon en iu kaŝa rendevua loko. Estas iom nekutime, enamiĝi al propra
+Vespere mi prenis la kapon de mia edzino en ambaŭ manojn kaj kisis ŝin kiel deksesjara fraŭlo sian knabinon en iu kaŝa rendevua loko. Estas iom nekutime, enamiĝi al propra
 
 edzino, sed io tia ŝajne okazas.
 
-ĉirkaŭ la kamparana domo, kie mi travivis mian infan-
-
-aĝon, ludas nun niaj malgrandaj knaboj Simĉjo kaj Peĉjo. Mateo kolektas uzitan paperon por ion salajri, Helena legas la romanon *Egiptano Sinuę* de la eminenta finna verkisto Mika Waltari. Kaj mi kaŝe amindumas kun mia propra edzino, al
+ĉirkaŭ la kamparana domo, kie mi travivis mian infanaĝon, ludas nun niaj malgrandaj knaboj Simĉjo kaj Peĉjo. Mateo kolektas uzitan paperon por ion salajri, Helena legas la romanon *Egiptano Sinuę* de la eminenta finna verkisto Mika Waltari. Kaj mi kaŝe amindumas kun mia propra edzino, al
 
 kiu la jaroj kaj suferoj surmetis specialan ĉarmon kaj belecon.
 
-Mi en la pensoj dankis Dion, kiu verŝajne aranĝis tiun ka-
-
-resan intrigon inter ni, premiante tiel ŝian firman fidelon kaj obstinon. En la profunda momento ŝi eldiris la timon, ĉu tiom 106
-
-LA MALBABELA JARO
+Mi en la pensoj dankis Dion, kiu verŝajne aranĝis tiun karesan intrigon inter ni, premiante tiel ŝian firman fidelon kaj obstinon. En la profunda momento ŝi eldiris la timon, ĉu tiom
 
 
 da feliĉo apartenas al la vivanta homa estaĵo, ĉu ĝi ne enkondukas novan, pli grandan malfeliĉon.
@@ -2680,16 +2066,12 @@ La Slovaka-aŭstra filmo *Die tausendjährige Biene* (La miljara abelo) de la re
 
 En la gazeto *Delo* el Labako troviĝas akra kritiko kontraŭ la konduto de la makedona milico, kiu marŝis kontraŭ la simpla popolo en la vilaĝo Veĉevo proksime al Struga, fama pro siaj tradiciaj poeziaj vesperoj. Dum la senkulpaj poetoj el la tuta mondo recitis siajn poeziaĵojn, nur kelkajn kilometrojn fore la milico sturmis kontraŭ virinoj, maljunuloj kaj infanoj. Eĉ antaŭ suĉuloj ili ne havis kompaton, ili ĝissange batis ankaŭ ilin per specialaj elektroŝargaj bastonoj. Kaj finfine la make-donaj gazetoj akuzis la slovenan gazetaron, kial ĝi tiel detale informis pri tiuj okazintaĵoj, kiel normale faras la okcidenta ĵurnalismo kaj kio estas kontraŭ la decidoj de la komunista partio …
 
-El Vilniuso mi ricevis kelkajn numerojn de *Horizonto de* *sovetia Litovio*. Nature, ene troviĝis blinda propagando por la 107
-
-LA MALBABELA JARO
+El Vilniuso mi ricevis kelkajn numerojn de *Horizonto de* *sovetia Litovio*. Nature, ene troviĝis blinda propagando por la
 
 
 aparteno de ”liberigita Litovio” al Sovetio. Sed tamen troviĝas ene ankaŭ kelkaj tre seriozaj kaj sufiĉe altnivelaj kontribuoj.
 
-Malfrue nokte filma klasikaĵo de Ingmar Bergman: La ride-
-
-to de la somera nokto. Li iomete imitis la komplikan amintrigon el Sonĝo de la somera nokto de Shakespeare, sed esen-
+Malfrue nokte filma klasikaĵo de Ingmar Bergman: La rideto de la somera nokto. Li iomete imitis la komplikan amintrigon el Sonĝo de la somera nokto de Shakespeare, sed esen-
 
 caj estas spritaj, foje jam profundaj dialogoj pri amo, pri interhomaj rilatoj. Por la jaro 1955 elstara filmo, kiu ankoraŭ ne eksmodiĝis.
 
@@ -2697,28 +2079,17 @@ caj estas spritaj, foje jam profundaj dialogoj pri amo, pri interhomaj rilatoj. 
 
 Ne tre facila tago. Denove sur mia dorso frakasiĝis la glacio de la rilato inter la eldonisto de *CZ* Societo de amikoj de la revuo *CZ* — kaj la posedanto Mohorjeva. Mi devis fari koncepton por la letero de la Societo, sendota al ĉiuj abonantoj en Slovenio, en kiu ni apelacias al ili forigi la barojn por normala transiro de la revuo translimen. Mi, nature, uzis relative fortan kaj spicitan politikan ironion. Sed tio ne plaĉis al mia ĉefo, reprezentanto de Mohorjeva, ĉar la eldonejo esperas grandajn negocojn en Jugoslavio …
 
-Interese, kiugrade kreskas kaj renoviĝas intereso kaj sim-
+Interese, kiugrade kreskas kaj renoviĝas intereso kaj simpatioj por Mussolini en Italio. Oni klarigas kaj pravigas tion per argumentoj, ke tiam oni pli respektis maljunajn homojn, ke regis pli granda disciplino ktp.
 
-patioj por Mussolini en Italio. Oni klarigas kaj pravigas tion per argumentoj, ke tiam oni pli respektis maljunajn homojn, ke regis pli granda disciplino ktp.
+Alvenis nova pakaĵo da studmaterialo de la verkista korespondinstituto en Hamburgo, kiun mi de duona jaro parto-
 
-Alvenis nova pakaĵo da studmaterialo de la verkista kores-
-
-pondinstituto en Hamburgo, kiun mi de duona jaro parto-
-
-prenas. Por mia verkado en slovena lingvo kaj Esperanto tre utilos tiu solida kurso pri verkista metio. En ambaŭ lingvoj abundas talentitaj diletantoj, sed mankas bonaj metiistoj. Na-108
-
-LA MALBABELA JARO
-
-
-ture, oni nur per metia scio ne povas krei arton. Sed almenaŭ solidajn utilajn produktojn oni per tio povas fari. Sed per nu-ra talento oni povas nur fuŝi kaj amatoraĉi. Precipe por slav-devenaj literaturistoj multon povus plibonigi iom pli profesia, metikonscia sinteno, ja ili emas iom tro ekspluati sian proverban ’vastan animon’.
+prenas. Por mia verkado en slovena lingvo kaj Esperanto tre utilos tiu solida kurso pri verkista metio. En ambaŭ lingvoj abundas talentitaj diletantoj, sed mankas bonaj metiistoj. Nature, oni nur per metia scio ne povas krei arton. Sed almenaŭ solidajn utilajn produktojn oni per tio povas fari. Sed per nu-ra talento oni povas nur fuŝi kaj amatoraĉi. Precipe por slav-devenaj literaturistoj multon povus plibonigi iom pli profesia, metikonscia sinteno, ja ili emas iom tro ekspluati sian proverban ’vastan animon’.
 
 ***29-an de ***
 
 Hieraŭ certaj sanaj malfacilaĵoj, manifestiĝantaj kiel vezikoj sur la membroj kaj sur la ventro. ĉu alergio, ĉu nerva ekscito, ĉu kormalsano? Se temus pri lasta, mi estus feliĉa. Estas granda privilegio, havi kormalsanon kaj iam, ankoraŭ relative juna, subite estingiĝi. ĉu mi havos tiun feliĉan privilegion?
 
-Vespere filmo de Claude Chabroll. Krimrakonto kun pro-
-
-funda psikologia pritrakto.
+Vespere filmo de Claude Chabroll. Krimrakonto kun profunda psikologia pritrakto.
 
 ***30-an de ***
 
@@ -2730,22 +2101,16 @@ Kverelo inter mia edzino kaj mi pri edukaj problemoj. La
 
 infanoj ne emas tro obei ŝiajn postulojn. Mi ne volas toleri tiun letargian hezitadon ĉe plenumado de gepatraj ordonoj.
 
-Infano multe pli facile obeas, se la ordonoj estas klaraj kaj 109
-
-LA MALBABELA JARO
+Infano multe pli facile obeas, se la ordonoj estas klaraj kaj
 
 
 neŝancelaj, se la kontrolo estas regula kaj tuja, se la sekvoj certaj. Tamen, la molaĉa patrina koro …
 
-Skandalo pri nekovritaj kambioj ĉe granda bosnia agra en-
-
-trepreno Agrokomerc, malantaŭ kiu ŝajne staras la tuta ŝta-ta nomenklatura pinto, okupas atenton de la publiko, kvazaŭ tio estus io nova kaj neatendita. La tuta komunisma ekonomio baziĝas sur sistema prirabo kaj plej primitiva ekspluatado. Se skandalo tie ie eksplodas, tio nur signifas, ke certaj homoj estas forstrekitaj el la elito.
+Skandalo pri nekovritaj kambioj ĉe granda bosnia agra entrepreno Agrokomerc, malantaŭ kiu ŝajne staras la tuta ŝta-ta nomenklatura pinto, okupas atenton de la publiko, kvazaŭ tio estus io nova kaj neatendita. La tuta komunisma ekonomio baziĝas sur sistema prirabo kaj plej primitiva ekspluatado. Se skandalo tie ie eksplodas, tio nur signifas, ke certaj homoj estas forstrekitaj el la elito.
 
 La hodiaŭa tagmanĝo: plenigitaj kapsikoj.
 
-Veturo al Slovenj Gradec: vizito ĉe amiko Roman en hos-
-
-pitalo. Li falis, tro inspirita de alkoholo, sur betona ŝtuparo kaj rompis manon kaj ripon. Kion fari: ni vivas evidente en la larma valo …
+Veturo al Slovenj Gradec: vizito ĉe amiko Roman en hospitalo. Li falis, tro inspirita de alkoholo, sur betona ŝtuparo kaj rompis manon kaj ripon. Kion fari: ni vivas evidente en la larma valo …
 
 ***31-an de ***
 
@@ -2755,17 +2120,9 @@ Hejme mi preparis salaton kun jogurto por la sekvonta
 
 tago.
 
-En necesejo mi rimarkis abundan sangadon el mia ridin-
+En necesejo mi rimarkis abundan sangadon el mia ridinda korpoparto. Mia plia malsana sekreto, kiu min espereble alproksimigas al laŭeble baldaŭa adiaŭo de tiu ĉi stranga pla-nedo.
 
-da korpoparto. Mia plia malsana sekreto, kiu min espereble alproksimigas al laŭeble baldaŭa adiaŭo de tiu ĉi stranga pla-nedo.
-
-Antaŭ enlitiĝo bela filmo de Lee Marvin kun lia ekscelen-
-
-
-LA MALBABELA JARO
-
-
-ta kantado: I was born on the wonderstar … Li mortis last-sabate.
+Antaŭ enlitiĝo bela filmo de Lee Marvin kun lia ekscelenta kantado: I was born on the wonderstar … Li mortis last-sabate.
 
 ***1-an de ***
 
@@ -2773,13 +2130,9 @@ Kiam mia ĉefo ne konsentas kun mi, li riproĉas, ke mi ’filozofias’. Kial t
 
 ĉu temas pri malamo kontraŭ la vero kaj ĝia postserĉo ĝenerale? ĉu temas simple pri subzona nekavalira bato, kiu min silentigu?
 
-En la poŝtkesto nova numero de la revuo *Monato*. La leteroj de legantoj ne honorigas ĝuste la intelektan nivelon de esperantista legantaro. Kiom da diletantismo kaj simpla men-
+En la poŝtkesto nova numero de la revuo *Monato*. La leteroj de legantoj ne honorigas ĝuste la intelektan nivelon de esperantista legantaro. Kiom da diletantismo kaj simpla mensa primitivismo furoras en Esperantujo!
 
-sa primitivismo furoras en Esperantujo!
-
-Iu skribas, ke li ne volas esti Esperantisto, ĉar li evitas ĉiujn -ismojn, do li preferas esti Esperanto-parolanto. Bone, sed ĉu li evitis ankaŭ strangismon? ĉu Esperanto vere estas nur lingvo, kiun oni parolas kiel ajnan alian? ĉu en ĝi ne kaŝi-
-
-ĝas speciala filozofio, kvankam oni ne konscias ĉiam klare pri
+Iu skribas, ke li ne volas esti Esperantisto, ĉar li evitas ĉiujn -ismojn, do li preferas esti Esperanto-parolanto. Bone, sed ĉu li evitis ankaŭ strangismon? ĉu Esperanto vere estas nur lingvo, kiun oni parolas kiel ajnan alian? ĉu en ĝi ne kaŝiĝas speciala filozofio, kvankam oni ne konscias ĉiam klare pri
 
 ĝi?
 
@@ -2787,18 +2140,12 @@ Iu skribas, ke li ne volas esti Esperantisto, ĉar li evitas ĉiujn -ismojn, do 
 
 Kun d-ro Apovnik, kun mia ĉefo kaj kun verkisto Ferk mi tagmanĝis en la gastejo apud la katedralo de Klaŭdiforumo.
 
-Dum ni atendis iom tro longdaŭran surtabligon, ni pritrak-
-
-tis la demandon, ĉu la perspektivoj de la slovena minoritato estas pli grandaj en la urbo, ĉu en vilaĝa provinco. Ili pli kre-111
-
-LA MALBABELA JARO
+Dum ni atendis iom tro longdaŭran surtabligon, ni pritraktis la demandon, ĉu la perspektivoj de la slovena minoritato estas pli grandaj en la urbo, ĉu en vilaĝa provinco. Ili pli kre-111
 
 
 dis je vilaĝoj, mi prefere kredis je la signifo de la urbo, kie la premo ne estas tiel forta pro la anonimeco de la urba vivo.
 
-Kiel spontana konfirmo venis juna kelnerino kaj ŝerce di-
-
-ris al ni en la germana: ”Ne parolu ruzaĵojn, ĉar mi ankaŭ la slovenan lingvon bone komprenas … ”
+Kiel spontana konfirmo venis juna kelnerino kaj ŝerce diris al ni en la germana: ”Ne parolu ruzaĵojn, ĉar mi ankaŭ la slovenan lingvon bone komprenas … ”
 
 Dumoficdeĵore mi por la familia monata revuo *Druòina in* *dom* tradukis artikolon de la aŭstradevena Judo, nun loĝanta en Izraelo. Li pritraktas la temon de antisemitismo en nuntempa Aŭstrio. Liaj konkludoj estas konsterne trafaj. ĉio dirita pri Judoj en Aŭstrio validas plene ankaŭ por Slovenoj en Karintio.
 
@@ -2810,9 +2157,7 @@ kaj antinegrulo.
 
 ”Ili (Judoj) posedas ĉion en siaj manoj … ” — tiel li.
 
-”Bonvolu posedi ankaŭ vi, Ne-Judoj, se vi estas sufiĉe en-
-
-treprenemaj … ” — tiel mi.
+”Bonvolu posedi ankaŭ vi, Ne-Judoj, se vi estas sufiĉe entreprenemaj … ” — tiel mi.
 
 ”Ili estas mafio … ”
 
@@ -2822,9 +2167,7 @@ treprenemaj … ” — tiel mi.
 
 ”Ili konstruis fundamenton de nia civilizacio, de nia religio kaj eĉ de nia oponado al la civilizo kaj al la religio … ”
 
-Mirinde, ke la katolika sacerdoto vere povas esti tia rasis-to, kio esence fremdas al la katolika doktrino. ĉu li ignoras, 112
-
-LA MALBABELA JARO
+Mirinde, ke la katolika sacerdoto vere povas esti tia rasis-to, kio esence fremdas al la katolika doktrino. ĉu li ignoras,
 
 
 ke ĉiuj herooj de lia altaro estis Judoj: Jesuo, Virgulino Maria, ĉiuj 12 apostoloj, eĉ la 13-a, Judaso … Kaj apude li estas honesta kaj bonkora homo, kiu e ne hareton tirus el ies kapo …
@@ -2845,12 +2188,7 @@ estis konflikto … Ni Karintianoj flegas amon kaj estimon distance; en fizika p
 
 malvarmon kaj silenton.
 
-Post kiam niaj valizoj estis metitaj en la vestiblo de mia amiko Aloizo en Opâine super Triesto, ni iris partopreni la diservon en la kapelo de Marianumo (tiel nomiĝas la studentaj hejmoj de katolikaj seminaristoj), kiun por kvin parto-prenintoj celebris mia antisemita konatulo T. Zrnec el Toron-113
-
-LA MALBABELA JARO
-
-
-to. Estis la unua vendredo en la monato kaj ni festis la tagon de s. Koro de nia majstro Jesuo. Tiamaniere mi havis eblecon ne interrompi la serion de naŭ sinsekvaj unuaj vendredoj kun komunio laŭ la tradicio kaj profetaĵo de s. Alcoque. Dankon al vi, Sinjoro, por via graco!
+Post kiam niaj valizoj estis metitaj en la vestiblo de mia amiko Aloizo en Opâine super Triesto, ni iris partopreni la diservon en la kapelo de Marianumo (tiel nomiĝas la studentaj hejmoj de katolikaj seminaristoj), kiun por kvin parto-prenintoj celebris mia antisemita konatulo T. Zrnec el Toronto. Estis la unua vendredo en la monato kaj ni festis la tagon de s. Koro de nia majstro Jesuo. Tiamaniere mi havis eblecon ne interrompi la serion de naŭ sinsekvaj unuaj vendredoj kun komunio laŭ la tradicio kaj profetaĵo de s. Alcoque. Dankon al vi, Sinjoro, por via graco!
 
 La societo ĉe profesoro Rebula estis en vigla diskuto pri
 
@@ -2868,13 +2206,9 @@ La unuan prelegon dum nia slovena simpozio Draga faris
 
 d-ro Rudolph M. Sussel sub la titolo God bless Slovenia!
 
-La preleganto estas redaktoro de slovene kaj angle redak-
+La preleganto estas redaktoro de slovene kaj angle redaktita gazeto en Klevelando en Usono: *Ameriôka domovina*. Li prezentis la situacion de la slovenaj elmigrintoj en Usono post tri generacioj. Li, kvankam ano de la jam tria en Usono naskiĝinta generacio, surprize por ni, parolis perfektan slovenan lingvon.
 
-tita gazeto en Klevelando en Usono: *Ameriôka domovina*. Li prezentis la situacion de la slovenaj elmigrintoj en Usono post tri generacioj. Li, kvankam ano de la jam tria en Usono naskiĝinta generacio, surprize por ni, parolis perfektan slovenan lingvon.
-
-Imponis lia — amerike tipa — estimo de faktoj, de realo. Li klare diris, ke li mem unue estas Amerikano kaj nur en dua vico ido de slovena popolo. Nature, ke miaj al tia sinteno ne 114
-
-LA MALBABELA JARO
+Imponis lia — amerike tipa — estimo de faktoj, de realo. Li klare diris, ke li mem unue estas Amerikano kaj nur en dua vico ido de slovena popolo. Nature, ke miaj al tia sinteno ne
 
 
 jam alkutimiĝintaj oreloj unue doloris, sed tiel efektive estas.
@@ -2889,9 +2223,7 @@ slovena nacia intereso ĉe la la grandpotenco Usono.
 
 Hodiaŭ matene mi vekis la preleganton el Argentino d-ron
 
-Andreon Fink. Ni partoprenis la diservon, kiun denove ce-
-
-lebris A. Zrnec. Mi legis legaĵon kaj psalmon.
+Andreon Fink. Ni partoprenis la diservon, kiun denove celebris A. Zrnec. Mi legis legaĵon kaj psalmon.
 
 La bongusta tagmanĝo okazis por nia rondo ĉe Rebula.
 
@@ -2903,14 +2235,9 @@ Kulturo, eĉ certa poezio en liaj prelegaj frazoj — bonega, unuaranga produkto
 
 Estas interesa sociologiaĵo, ke la malgrandaj komunumoj,
 
-kiel la slovena en Argentino (8.000), fermiĝas en certa historia, ideologia kaj eĉ lingva konservujo, kiun oni ne rajtas plu tuŝi, eĉ speciale ne malfermi kaj kontroli. Io simila okazis ver-
-
-ŝajne kun Buroj en la suda Afriko, kiuj konservis ĝis hodiaŭ la tiaman eksegezon de la Sankta skribo kaj ankaŭ la tiaman nederlandan lingvon, kiam ili forlasis Nederlandon kaj kon-keris la terenon de la nuna Suda Afriko.
+kiel la slovena en Argentino (8.000), fermiĝas en certa historia, ideologia kaj eĉ lingva konservujo, kiun oni ne rajtas plu tuŝi, eĉ speciale ne malfermi kaj kontroli. Io simila okazis verŝajne kun Buroj en la suda Afriko, kiuj konservis ĝis hodiaŭ la tiaman eksegezon de la Sankta skribo kaj ankaŭ la tiaman nederlandan lingvon, kiam ili forlasis Nederlandon kaj kon-keris la terenon de la nuna Suda Afriko.
 
 Speciala signo de tia grupo estas la konv pri propra
-
-
-LA MALBABELA JARO
 
 
 plena senkulpo rilate al la okazaĵoj, kiuj kaŭzis forlason de patrujo.
@@ -2923,15 +2250,11 @@ la milito luktis kontraŭ la partizanaj trupoj, gviditaj ekskluzive de la komuni
 
 La ’fidela bolŝeviko’ — lia profesio estas historio kaj literatura verkado — riproĉis al profesoro Rebula: ”Vi kristanoj havas strangan malfidon al via Dio. Vi kredas, ke eĉ la haro ne falas desur viaj kapoj sen Lia volo; sed vi ne povas kredi, ke ankaŭ la bolŝevisma sistemo, kiu daŭras jam dum 70 jaroj, povus esti efektivigo de la Dia volo!” Ni cetere laŭte ridis al tiu kurioza kaj afabla bolŝeviko, sed en la profundo mi sentis, ke li pravas …
 
-Post la vespermanĝo kaj longa diskutŝercado la homoj ko-
-
-mencis disiri. Mi invitis Andreon el Bonaero, ke ni iru en iun apartan ejon por pridiskuti lian hodiaŭan prelegon. Ni plenigis niajn glasojn kun iu amara senalkohola trinkaĵo, ĉar la gorĝo post tiom da vnsumo fariĝis soifa.
+Post la vespermanĝo kaj longa diskutŝercado la homoj komencis disiri. Mi invitis Andreon el Bonaero, ke ni iru en iun apartan ejon por pridiskuti lian hodiaŭan prelegon. Ni plenigis niajn glasojn kun iu amara senalkohola trinkaĵo, ĉar la gorĝo post tiom da vnsumo fariĝis soifa.
 
 ”La reprezentantoj de iu tiranio povus validi por ni kiel
 
-frenezuloj, sed tamen … Kaj nun ni staras antaŭ la elekto: ĉu batali kaj argumenti serioze kontraŭ ili — ĉu konduti laŭ la 116
-
-LA MALBABELA JARO
+frenezuloj, sed tamen … Kaj nun ni staras antaŭ la elekto: ĉu batali kaj argumenti serioze kontraŭ ili — ĉu konduti laŭ la
 
 
 maniero, kiel procedas la kuracistoj en frenezulejoj … En la unua kazo la venko tre verŝajne povus denove esti flanke de la frenezuloj, ja iliaj maskloj estas ordinare pli fortaj kaj ilia konscienco ne konas bremsojn. Sed en la dua kazo tamen
@@ -2942,28 +2265,20 @@ ekzistas ia minimuma ebleco, ke iam iu frenezulo resaniĝus kaj post certa tempo
 
 ***Dimanĉo, 6-an de ***
 
-Kvankam mi diskutis kun Andreo ĝis la 2-ahoro, mi ĝusta-
-
-tempe leviĝis por partopreni diservon kaj mi eĉ vekis An-
+Kvankam mi diskutis kun Andreo ĝis la 2-ahoro, mi ĝustatempe leviĝis por partopreni diservon kaj mi eĉ vekis An-
 
 dreon.
 
-Post la matenmanĝa kafo en la hoteleto, en kiu ni tranok-
-
-tis, mi tuj troviĝis en la prelega salono, kie okazis ankaŭ la meso. Kuncelebris tri sacerdotoj: la ĉefa celebranto estis d-ro J. Zdeôar el Munkeno, kie li pastras inter slovenaj elmigrintoj en Bavario.
+Post la matenmanĝa kafo en la hoteleto, en kiu ni tranoktis, mi tuj troviĝis en la prelega salono, kie okazis ankaŭ la meso. Kuncelebris tri sacerdotoj: la ĉefa celebranto estis d-ro J. Zdeôar el Munkeno, kie li pastras inter slovenaj elmigrintoj en Bavario.
 
 Estis iel kortuŝa situacio. En la unua vico sidis dum la liturgio kune: la iama komunista komisaro de partizana brigado
 
 Vlado Habjan kaj la iama oficiro de la kontraŭstara milicaro domobranci d-ro Johano Habjan. La unua el Labako, kie li
 
-verkas historiajn librojn, la dua el Toronto, kie li vivas sian vivon de ekzilito. Ne nur, ke ili kune partoprenis diservon, ili 117
-
-LA MALBABELA JARO
+verkas historiajn librojn, la dua el Toronto, kie li vivas sian vivon de ekzilito. Ne nur, ke ili kune partoprenis diservon, ili
 
 
-dum la tuta tempo formis amikan paron, al kiu neniam man-
-
-kis interesa komunika temo.
+dum la tuta tempo formis amikan paron, al kiu neniam mankis interesa komunika temo.
 
 La prelego post la diservo vekis grandan intereson. D-ro
 
@@ -2981,9 +2296,7 @@ Tiu ĉi tezo ŝokis multajn kredantojn, ĉar kelkaj eĉ pli fir-me ol je ĉielo 
 
 pekoj, kiuj tamen estis tempe limigitaj.
 
-Diskuto preskaŭ ne okazis, ĉar pelis nin la vokoj de kui-
-
-ristoj, kiuj ekstere preparis skoltan tagmanĝon: bonegan gu-laŝon kun pastaĵo, salaton kaj fruktojn laŭelekte.
+Diskuto preskaŭ ne okazis, ĉar pelis nin la vokoj de kuiristoj, kiuj ekstere preparis skoltan tagmanĝon: bonegan gu-laŝon kun pastaĵo, salaton kaj fruktojn laŭelekte.
 
 ĉe longa tablo ni trinkis kafon kaj iomete ŝerce, iomete
 
@@ -2994,14 +2307,9 @@ La lasta, posttagmeza prelego de d-ro Andreo Capuder
 okazis en salonego, kvankam ĝuste tiu ĉi prelegtempo ĉiam
 
 
-LA MALBABELA JARO
-
-
 estis tiel alloga en ekstero. Bedaŭrinde ne temis pri vera prelego, sed pri literatura eseo en bona franca stilo. Furoris Danto, Bergsono, Kierkegaard ktp. La temo: La vojo de Slovenoj al Kanaano.
 
-Nia ronda tablo ĉe Aloizo vespere ne estis tiel sukcesa, ĉar troviĝis inter ni iu juristo, kiu iel primitive kondutis. Eĉ Andreo kondutis malbone. Li sentis grandan bezonon respon-
-
-di mian komplimenton pri lia prelego per superfluaj vortoj:
+Nia ronda tablo ĉe Aloizo vespere ne estis tiel sukcesa, ĉar troviĝis inter ni iu juristo, kiu iel primitive kondutis. Eĉ Andreo kondutis malbone. Li sentis grandan bezonon respondi mian komplimenton pri lia prelego per superfluaj vortoj:
 
 ”Mankis nur, ke iu diru ion en Esperanto … ” Mi ŝercmiene
 
@@ -3009,22 +2317,15 @@ jesis por eviti plian diskuton tiudirekte, sed li volis ankoraŭ
 
 ’argumenti’ pri sia sinteno: ”Mi ne povas serioze trakti la lingvon, en kiu oni diras ’la libro’ … ”
 
-La profesoron de la itala kaj franca lingvoj mi ne volis demandi, kiel oni diras en la itala al la radio, al la mano (ĝuste same: la radio, la mano …); la iaman frekventinton de la klasika gimnazio en Labako mi ne volis memorigi pri la masku-
+La profesoron de la itala kaj franca lingvoj mi ne volis demandi, kiel oni diras en la itala al la radio, al la mano (ĝuste same: la radio, la mano …); la iaman frekventinton de la klasika gimnazio en Labako mi ne volis memorigi pri la maskulinaj finaĵoj ĉe multaj femininaj substantivoj kaj inverse. Mi eĉ ne volis lin, slovenan verkiston, memorigi pri la banala fakto, ke en nia gepatra lingvo oni same kombinas la feminin-forman montropronomon — kiu efektive rolas kiel artikolo —
 
-linaj finaĵoj ĉe multaj femininaj substantivoj kaj inverse. Mi eĉ ne volis lin, slovenan verkiston, memorigi pri la banala fakto, ke en nia gepatra lingvo oni same kombinas la feminin-forman montropronomon — kiu efektive rolas kiel artikolo —
-
-’ta’ kun la maskulinforma substantivo, ekzemple ’ĉlovek’, kio donas ’ta ĉlovek’ (tiu ĉi homo). Prefere Dio sendu sian an-
-
-ĝelon, komisiitan por common sense …
+’ta’ kun la maskulinforma substantivo, ekzemple ’ĉlovek’, kio donas ’ta ĉlovek’ (tiu ĉi homo). Prefere Dio sendu sian anĝelon, komisiitan por common sense …
 
 ***Mardo, 8-an de ***
 
 Akcidentis mia iama filmkameristo en Prevalje, Danilo Pisnik.
 
 Ni kune faris kelkajn duonprofesiajn filmojn kaj eĉ planis fondi propran filmentreprenon. La realo frue nrektis.
-
-
-LA MALBABELA JARO
 
 
 Malfrue vespere li iris sur tre danĝera tereno kaj pro den-sa nebulo falis en abismon de 150 metroj. En momento li estis morta, sed restis tie kuŝanta dum tri tagoj, ĉar neniu sciis lian vojon. Hodiaŭ estis planita lia enterigo ĉe s. Barbara.
@@ -3037,28 +2338,19 @@ Mankis la kristana ’amen’, kiu laŭ iu natura homa sento
 
 fermas eĉ tiel malĝojan ĉapitron kiel la enterigo.
 
-Dum mia amiko ion aranĝis en proksima loko post la ce-
-
-remonio, mi preĝis por la mortinta kolego. Eble ĝuste tiu ĉi pagana enterigo iniciatis pli da preĝado ol tio okazus dum ordinara kristana enterigo.
+Dum mia amiko ion aranĝis en proksima loko post la ceremonio, mi preĝis por la mortinta kolego. Eble ĝuste tiu ĉi pagana enterigo iniciatis pli da preĝado ol tio okazus dum ordinara kristana enterigo.
 
 ***Dimanĉo, 13-an de ***
 
 Demisiis la vicprezidanto de Jugoslavio Hamdija Pozderac —
 
-ŝirminto de ekonomiaj krimoj en Bosnia entrepreno Agroko-
-
-merc. Tamen io komencis sin movi en tiu ŝtato.
+ŝirminto de ekonomiaj krimoj en Bosnia entrepreno Agrokomerc. Tamen io komencis sin movi en tiu ŝtato.
 
 ***Mardo, 15-an de ***
 
 Dum oficdeĵora tempo telefonis iu redaktoro de la radiostacio Klaŭdiforumo. Li demandis, ĉu mi parolas Esperanton.
 
-Post mia ”wohl” (jes) li proponis intervjuon por la german-120
-
-LA MALBABELA JARO
-
-
-lingva programo. Mi avertis lin pri mia malperfekta germa-
+Post mia ”wohl” (jes) li proponis intervjuon por la germanlingva programo. Mi avertis lin pri mia malperfekta germa-
 
 na lingvo, sed li tiris, ke tio ne estas problemo. Poste mi ŝer-ce diris, ke mia akcenta prononco kaj erara gramatiko eĉ speciale pruvas, kiel bezonata estas simpla internacia lingvo. Li ridis kaj konfirmis la aranĝon.
 
@@ -3070,26 +2362,17 @@ sentas min ia ajn socialisto, ankaŭ ne kristana, ke mi povus kune ĝui ilian su
 
 Ni daŭrigis paroli pri la ebla estonto en Slovenio. Usono
 
-apenaŭ tolerus disiĝon de Jugoslavio, kvankam oni nur tia-
-
-maniere povus eviti Libanon sur la balkana duoninsulo.
+apenaŭ tolerus disiĝon de Jugoslavio, kvankam oni nur tiamaniere povus eviti Libanon sur la balkana duoninsulo.
 
 Mi demandis, kion li opinias pri la varianto, ke iu provizora slovena delegacio proponu al la heredanto de la Habsburga
 
 dinastio, Karlo, filo de la eŭropa deputito Oto, ke li transpre-nu almenaŭ la honoran protekton super Slovenio, ja nur Slovenoj kaj Hungaroj neniam deklare kaj leĝe sin eksigis elsub la dinastio de Habsburgoj.
 
-Li kun intereso aŭskultis kaj promesis la enketadon en La-
-
-bako.
+Li kun intereso aŭskultis kaj promesis la enketadon en Labako.
 
 Posttagmeze mi iris premi mian jam de longe menditan
 
-komputilon. Nun povas komenciĝi nia eta eldona entrepre-
-
-no.
-
-
-LA MALBABELA JARO
+komputilon. Nun povas komenciĝi nia eta eldona entrepreno.
 
 
 ***ĵaŭdo, 17-an de ***
@@ -3102,9 +2385,7 @@ En la hodiaŭa poŝtaĵo amika letero de mia nova fratino el
 
 Francio. ŝi invitas min helpi en sia lukto kontraŭ la sennaciismo en Francio. ŝi ankaŭ promesas kontribui al nia revuo *Celovôki Zvon*: kulturajn interesaĵojn el Ukrajnio.
 
-Posttagmeze venis ĵurnalisto de ORF Karintio, por inter-
-
-vjui min, okaze de centjariĝo de Esperanto por la german-
+Posttagmeze venis ĵurnalisto de ORF Karintio, por intervjui min, okaze de centjariĝo de Esperanto por la german-
 
 lingva programo. Estis juna viro, scianta ĝuste nenion pri la temo. Denove montriĝis, ke nula scio pli bonas ol iometa supraĵa kono. La portantoj de plej stultaj antaŭjuĝoj kontraŭ Esperanto estas kutime la kvinlecionuloj. Li starigis simplajn demandojn kaj ankaŭ mi respondis tre simple. Ne nur el la
 
@@ -3119,14 +2400,9 @@ Al la ’eterna’ demando, kial Esperanto ĝis nun ne sukcesis,
 Post la surbendigo ni iomete daŭrigis la interparolon pri
 
 
-LA MALBABELA JARO
-
-
 diversaj temoj, sed ĉefe pri la interetna problemo en Karintio.
 
-Vespere mi provis kelkajn kombinojn sur mia nova labo-
-
-rilo, sur mia komputilo. Sed la maksimuma rezulto estis: ”Bad command or file name” (malĝusta komando aŭ datennomo).
+Vespere mi provis kelkajn kombinojn sur mia nova laborilo, sur mia komputilo. Sed la maksimuma rezulto estis: ”Bad command or file name” (malĝusta komando aŭ datennomo).
 
 ***Sabato, 19-an de septembro***
 
@@ -3145,9 +2421,6 @@ Sed ŝia freŝa, iomete skandinavia vizaĝo malgraŭ ŝia slovena origino, efika
 ŝi devenas el iu konata kaj firma slovena familio. Sed la
 
 
-LA MALBABELA JARO
-
-
 amo ne agnoskas etnajn diferencojn. ŝia amiko estas Aŭstro de la germana lingvo. Kaj tio kaŭzis kvazaŭ katastrofon en ŝia familio kaj medio. Bedaŭrinde nek germane nek slovene parolantaj personoj en Karintio ĝis nun evoluigis kontentigan modelon por tiaj okazoj, kiuj ne estas maloftaj. Kiamaniere konservi la etnan kulturon kaj lingvon kaj samtempe esti libera koncerne amon kaj novan familifondon?
 
 Nature, ili ne havas ideon pri tio, kian perfektan servon
@@ -3161,16 +2434,11 @@ Vokis min s-ro Rader, estro de la blindula esperanta klubo en Klaŭdiforumo. Li 
 Pasintan nokton mi sonĝis pri Ronjo. ŝi parolis kun mi sur la korto ĉe mia domo. La enhavon mi forgesis, sed ne la aperon.
 
 
-LA MALBABELA JARO
-
-
 Poste venis el koridoro mia edzino kaj vidis nin tie stari kune.
 
 Mi ekfartis terure, kvankam ni nenion maldecan faris.
 
-Hodiaŭ la aŭstra pentristo prof. Ernst Fuchs en la televida dissendo *Spiegelbilder *(reflektitaj bildoj) prezentis la libron *Apokalipso de s. Johano*. Li asertis, ke pasintjare plenumiĝis tri antaŭdiroj el tiu fama biblia libro: la akcidento en ĉernobi-lo; la purigado de liberecmonumento en Novjorko kaj an-
-
-koraŭ io, pri kio mi forgesis.
+Hodiaŭ la aŭstra pentristo prof. Ernst Fuchs en la televida dissendo *Spiegelbilder *(reflektitaj bildoj) prezentis la libron *Apokalipso de s. Johano*. Li asertis, ke pasintjare plenumiĝis tri antaŭdiroj el tiu fama biblia libro: la akcidento en ĉernobi-lo; la purigado de liberecmonumento en Novjorko kaj ankoraŭ io, pri kio mi forgesis.
 
 Vespere ekscelenta sveda filmo el la jaro 1967 Elvira Madigan. Ekipita per la muziko de Mozart, per lia konata sonato sub la sama nomo.
 
@@ -3186,9 +2454,7 @@ anĝelon por ia pli intensa gardado. Sed povas esti, ke ŝi simple skribis al mi
 
 Varma kaj informriĉa letero de mia fratino Olga el Joeuf. ŝi interalie klarigas, kiel Rusoj manipulas la tutan politikan opinion pri ilia ŝajna 1000-jara kristaniĝa jubileo, kiu fakte apartenas ne al Moskvo, sed al Kievo, ne al Rusoj, sed al Ukraina-noj.
 
-En la sama poŝto ankaŭ nova numero de *Horizonto*. Raportoj kaj referaĵoj pri kaj el la jubilea konferenco en Graz. Apud 125
-
-LA MALBABELA JARO
+En la sama poŝto ankaŭ nova numero de *Horizonto*. Raportoj kaj referaĵoj pri kaj el la jubilea konferenco en Graz. Apud
 
 
 seriozaj enhavoj bedaŭrinde ankaŭ tre neserioza kulto pri
@@ -3207,16 +2473,10 @@ Kiel kursgvidanto estis proponita mi. Sed mi en la koncerna letero starigis unu 
 
 La rezulto estas, ke oni komencis pli kaj pli akre ataki Mar-tenon, kvazaŭ li pledus por la afero de Slovenoj (ne estus granda peko, ja li almenaŭ parte devenas el slovena etno), nur, ĉar li proponis min kaj ĉar li foje diras kelkiun slovenan vorton. Nun la tuta grupo disiris kaj la kulpanto por tiuj ĝis-ostaj ’esperantistoj’ estas mi …
 
-Tamen ankaŭ pli feliĉa novaĵo. Laŭ la propono de mia ko-
-
-lego en la oficejo, verkisto Ferk, mi alparolis junan simplan 126
-
-LA MALBABELA JARO
+Tamen ankaŭ pli feliĉa novaĵo. Laŭ la propono de mia kolego en la oficejo, verkisto Ferk, mi alparolis junan simplan
 
 
-kamparanon, kiu helpe deĵoras en la oficejo de slovena Na-
-
-cia konsilantaro, ke li eble ellernu Esperanton kaj komencu sekvi la artikolojn pri la minoritataj aferoj en Etnismo. Li efektive tuj komprenis la ideon kaj decidis aliĝi al la koresponda kurso ĉe Mayer en Vieno. Mi rememoris pri la
+kamparanon, kiu helpe deĵoras en la oficejo de slovena Nacia konsilantaro, ke li eble ellernu Esperanton kaj komencu sekvi la artikolojn pri la minoritataj aferoj en Etnismo. Li efektive tuj komprenis la ideon kaj decidis aliĝi al la koresponda kurso ĉe Mayer en Vieno. Mi rememoris pri la
 
 evangeliaj simpluloj, al kiuj estis revelaciitaj la misteroj, kiuj por la kleruloj restis prikaŝitaj.
 
@@ -3224,38 +2484,24 @@ evangeliaj simpluloj, al kiuj estis revelaciitaj la misteroj, kiuj por la klerul
 
 Malantaŭ la stirilo sidas Reginaldo, la ĉefredaktoro de nia revuo. En mia aktujo la tekoj kun la tagordo, proponita enhavo de la venonta numero, protokolo de la lasta kunsido —
 
-kaj malmultekosta skribilo. Apude du kvaronkilogramaj pa-
+kaj malmultekosta skribilo. Apude du kvaronkilogramaj pakaĵoj de kafo, tia trezoro por civitanoj en Slovenio. Kaj ĉoko-ladoj por la tri filinoj de Andreo en Labako.
 
-kaĵoj de kafo, tia trezoro por civitanoj en Slovenio. Kaj ĉoko-ladoj por la tri filinoj de Andreo en Labako.
+Malantaŭe sidas Maria kaj Johano. Ni jam solaj iel komencas la temon de la redakta kunsido.
 
-Malantaŭe sidas Maria kaj Johano. Ni jam solaj iel komen-
-
-cas la temon de la redakta kunsido.
-
-Kiam en Labako ni iras el nia veturilo, la pluvego, akom-
-
-panata de ŝtorma ventego, preskaŭ forprenas niajn ombre-
+Kiam en Labako ni iras el nia veturilo, la pluvego, akompanata de ŝtorma ventego, preskaŭ forprenas niajn ombre-
 
 lojn.
 
-La donacoj disdividiĝas; mi por Neva, kiu mirinde skulp-
+La donacoj disdividiĝas; mi por Neva, kiu mirinde skulptas, kvankam ŝi frekventas la lastan gimnazian klason, alportis saketon da ŝelako, kiu estas bezonata en ŝia por la virinoj iom nekutima metio.
 
-tas, kvankam ŝi frekventas la lastan gimnazian klason, alportis saketon da ŝelako, kiu estas bezonata en ŝia por la virinoj iom nekutima metio.
-
-Surtabliĝas kafo, disdividiĝas miaj redaktaj tekoj, ĉirkaŭ-
-
-sidiĝas kunredaktoroj. Je mia maldekstro Aloizo, dekstre Reginaldo. Fronte al li Andreo. Li ĵus klarigas, kion li povas plu 127
-
-LA MALBABELA JARO
+Surtabliĝas kafo, disdividiĝas miaj redaktaj tekoj, ĉirkaŭsidiĝas kunredaktoroj. Je mia maldekstro Aloizo, dekstre Reginaldo. Fronte al li Andreo. Li ĵus klarigas, kion li povas plu
 
 
 manĝi kaj trinki, ja oni trovis en lia korpo diabeton. Kaj li kun tia ĝuo konsumis vinon …
 
 Ni komencis diskuti laŭ nia programo. Mi timis pri unu
 
-punkto: kiamaniere mi sukcesos enŝovi artikolon pri Espe-
-
-ranto? Mi kvazaŭ instinkte trovis ĝustan solvon. ĉar mi havis ĉiujn manuskriptojn kun mi en la teko, mi je ĉiu punkto brue proponis, ke oni nepre legu la manuskripton. Dum du
+punkto: kiamaniere mi sukcesos enŝovi artikolon pri Esperanto? Mi kvazaŭ instinkte trovis ĝustan solvon. ĉar mi havis ĉiujn manuskriptojn kun mi en la teko, mi je ĉiu punkto brue proponis, ke oni nepre legu la manuskripton. Dum du
 
 tri punktoj ili tion supraĵe faris, sed poste pli kaj pli rifuzis, ĉar tio lacigis kaj forrabis tempon. La artikolo pri Esperanto troviĝis ie en la mezo; mi eĉ obstine proponis ĝin por legado, sed des pli obstine ĉiu rifuzis. Tiamaniere estis unuanime akceptita la artikolo, kiun verŝajne la plej multaj normale malak-ceptus. Kion fari: mia sola rimedo estas iom da diplomatio …
 
@@ -3265,12 +2511,7 @@ Kurioze estas, ke la laŭkonstitucie ŝtatkaraktera respubliko Slovenio ne posed
 
 ***Lundo, 29-an de ***
 
-Kolego Ferk denove faris bonan impreson. Li decidis protesti kontraŭ la maldungo de simpla homo ĉe Narodni svet (Nacia konsilantaro de karintiaj Slovenoj), kiu sekvis pro la kapri-128
-
-LA MALBABELA JARO
-
-
-co de certa persono, kiu pli kaj pli transprenas la povon en la organizaĵo.
+Kolego Ferk denove faris bonan impreson. Li decidis protesti kontraŭ la maldungo de simpla homo ĉe Narodni svet (Nacia konsilantaro de karintiaj Slovenoj), kiu sekvis pro la kaprico de certa persono, kiu pli kaj pli transprenas la povon en la organizaĵo.
 
 Dum duonhoro vizito de Slovenino el Argentino, kiu volis
 
@@ -3284,17 +2525,11 @@ li edziĝis kun juda damo el Sovetio.
 
 Jam ĉe la matena kafo nia domprizorganto, kiu volas prijuĝi ankaŭ ĉiujn aliajn aferojn, pri kiuj li nenion komprenas, montris sian deĵoron super nia religia ĝusteco. Li kun granda plezuro komunikis, ke kontraŭ mi protestis slovena sacerdoto el Parizo, ke mi en la nova poŝkalendaro publicis aforismon el la fama kolekto de la leĝoj de Murphy: ”La homo sen religio estas kiel fiŝo sen biciklo.”
 
-Mi ne konas tiun pastron, iaman oficiron el la slovena in-
-
-tercivitana milito, kiu ankaŭ nuntempe suspektas ĉiun sam-
+Mi ne konas tiun pastron, iaman oficiron el la slovena intercivitana milito, kiu ankaŭ nuntempe suspektas ĉiun sam-
 
 gentanon, kiu malfermas lian pordon. Tamen mi sendos al li adekvatan klarigon, por ke eble li ĉesu serĉi pri mia ortodok-sio kaj komencu zorgi pri sia propra.
 
-Vicprezidanto de Usono Bush en Varsovio demonstris sim-
-
-pation kun la iama sendependa sindikato Solidarnoŝĉ. La re-129
-
-LA MALBABELA JARO
+Vicprezidanto de Usono Bush en Varsovio demonstris simpation kun la iama sendependa sindikato Solidarnoŝĉ. La re-129
 
 
 ĝimo devis senkomente gluti ankaŭ tion. Por tion komenti ili dungis duarangajn ĵurnalistojn.
@@ -3315,14 +2550,10 @@ tre volonte montras kredon pri sia supereco, en Argentino
 
 oni tre alte estimas ĝuste fremdulojn. Bedaŭrinde mia Karintio en tiu ĉi punkto konkuras kun la norda parto de la amerika kontinento.
 
-Li parolis pri kortuŝa okazo dum la intercivitana milito en Slovenio. Li mem vidis, ke post iu lukta renkontiĝo inter la 130
-
-LA MALBABELA JARO
+Li parolis pri kortuŝa okazo dum la intercivitana milito en Slovenio. Li mem vidis, ke post iu lukta renkontiĝo inter la
 
 
-partizana brigado Cankarjeva kaj la hejmdefenda kontraŭko-
-
-munista milicaro Domobranci falis unu apud la alia du sol-
+partizana brigado Cankarjeva kaj la hejmdefenda kontraŭkomunista milicaro Domobranci falis unu apud la alia du sol-
 
 datoj el ambaŭ slovenaj militistaj grupoj. Antaŭ ol ili mortis, ili sukcesis reciproke interpaciĝe manpremi …
 
@@ -3330,17 +2561,13 @@ Ni ridis pri iom primitivaj reprezentantoj el la kontraŭkomunista tendaro, kiuj
 
 ne plene apartenas al ilia sekto. Mi menciis la anekdoton pri Ernesto Sabato … ĉu strange, ke ili perdis militon?
 
-Mi starigis al li rektan demandon: Se morgaŭ Slovenio fari-
-
-ĝus sendependa demokratia duklando, ĉu Slovenoj el Argen-
+Mi starigis al li rektan demandon: Se morgaŭ Slovenio fariĝus sendependa demokratia duklando, ĉu Slovenoj el Argen-
 
 tino revenus en sian gepatran landon? Li klare diris emfazan ne. Por ili la vera patrujo fariĝis Argentino, kiu larĝkore ilin akceptis en la jaroj post 1945. Ili forte deziras por Slovenio demokration kaj sendependecon, sed verŝajne nek unu el
 
 8000 da ili revenos por konstante vivi en la lando de siaj ge-avoj.
 
-”Ni mem komencis morti kiel etna komunumo. El 500 ju-
-
-naj Slovenoj, kiuj en Bonaero finis tiun aŭ alian fakultaton, nur dekkvin plu frekventas slovenan akademian klubon,” li
+”Ni mem komencis morti kiel etna komunumo. El 500 junaj Slovenoj, kiuj en Bonaero finis tiun aŭ alian fakultaton, nur dekkvin plu frekventas slovenan akademian klubon,” li
 
 raportis kun rezigna voĉo.
 
@@ -3353,16 +2580,11 @@ transpreni almenaŭ moralan patronecon super Slovenio. Li
 tuj aprobis mian ideon, inkluzive tion, ke Slovenio iam fariĝu sendependa duklando.
 
 
-LA MALBABELA JARO
-
-
 ***Sabato, 3-an de ***
 
 La cisterciana abatejo Stiâna situas ĉirkaŭ 25 km sude de Labako. i festis 850 jarojn de sia ekzisto. En ĝi nun okazas renkontiĝo de katolikaj kleruloj el Slovenio, Kroatio, Aŭstrio, Italio kaj Hungario. Interese: kiel apudan laboran lingvon oni laŭ mia propono metis Esperanton.
 
-Hieraŭ vespere prezentiĝis la plej impona aro da argumen-
-
-toj por la internacia lingvo. La tradukado malbonege funkciis
+Hieraŭ vespere prezentiĝis la plej impona aro da argumentoj por la internacia lingvo. La tradukado malbonege funkciis
 
 — cetere, ne estis prikonsideritaj la lingvoj friula kaj hungara. Sed la pinto estis, kiam d-rino Pomberger el la centro de UNO en Vieno, staris antaŭ la publiko kaj komencis paroli
 
@@ -3376,41 +2598,26 @@ ajn brila argumento teoria. Mi diris, ke esperantistoj deĵoras en la preteco, �
 
 Okaze de la vespermanĝo mi parolis kun iu Hungaro, kiu
 
-jam dum 30 jaroj vivas en Aŭstrio. Li kontraŭstaris mian proponon asertite, ke la rolon de la IL jam bone rolas la angla kaj ke nun nur hazarde tio ne funkciis tre bone. Mi respondis, ke eĉ se tio estus vera, pri kio mi cetere tre dubas, restus la demando de justeco. Li diris, ke laŭ li rilate lingvojn ne ekzistas 132
-
-LA MALBABELA JARO
+jam dum 30 jaroj vivas en Aŭstrio. Li kontraŭstaris mian proponon asertite, ke la rolon de la IL jam bone rolas la angla kaj ke nun nur hazarde tio ne funkciis tre bone. Mi respondis, ke eĉ se tio estus vera, pri kio mi cetere tre dubas, restus la demando de justeco. Li diris, ke laŭ li rilate lingvojn ne ekzistas
 
 
 morala problemo. En la privilegio por angla li ne vidas ion kontraumoralan.
 
-Mi nur poste komprenis lian starpunkton, kiam li konfe-
-
-sis, ke liaj infanoj komprenas e ne unu vorton de lia gepatra, hungara lingvo …
+Mi nur poste komprenis lian starpunkton, kiam li konfesis, ke liaj infanoj komprenas e ne unu vorton de lia gepatra, hungara lingvo …
 
 ***Dimanĉo, 4-an de ***
 
-La prelego de sinjorino Dolores Bauer devus okazi jam hie-
+La prelego de sinjorino Dolores Bauer devus okazi jam hieraŭ, sed ŝi venis el Vieno tro malfrue kaj oni decidis enpro-gramigi la aferon por hodiaŭ.
 
-raŭ, sed ŝi venis el Vieno tro malfrue kaj oni decidis enpro-gramigi la aferon por hodiaŭ.
+ŝi jam multon diras per sia elstara persona apero. Oni ricevas impreson, ke kontraŭ ŝia integreco ne ekzistas rimedo ŝancela aŭ kontraŭstara.
 
-ŝi jam multon diras per sia elstara persona apero. Oni ri-
-
-cevas impreson, ke kontraŭ ŝia integreco ne ekzistas rimedo ŝancela aŭ kontraŭstara.
-
-Svelta, altstatura, jam grizhara, sed memkonscia, ŝi paro-
-
-lis sian prelegon, kiun mi, kiam mi ĝin hejme tradukis sloven-lingven, ne povis tiel ĝui kiel nun. ŝia radiofonie trejnita voĉo enmetis pli da sencoplenaj komoj kaj pensstreketojn ol ilin proponus nura gramatika scio.
+Svelta, altstatura, jam grizhara, sed memkonscia, ŝi parolis sian prelegon, kiun mi, kiam mi ĝin hejme tradukis sloven-lingven, ne povis tiel ĝui kiel nun. ŝia radiofonie trejnita voĉo enmetis pli da sencoplenaj komoj kaj pensstreketojn ol ilin proponus nura gramatika scio.
 
 ŝi pritraktis la historian eklezion, kiu ligiĝis kun la politika povo kaj tiel rezignis pri la evangelia principo de la neuzo de perforto.
 
 D-ro Gabrovec, kiu sidis apud mi, en la diskuto korektis
 
-ŝian iom tro rigoran starpunkton pri la organiza strukturo de la eklezio. Li emfazis, ke en Slovenio la komunistoj detruis ĉiujn demokratiajn strukturojn kaj relative memstara kaj ne-
-
-tuŝita restis nur la eklezio. Laŭ li do oni nepre bezonas tiun strukturon por tiel almenaŭ interne de ĝi povi artikuli niajn naciajn kaj civilajn konceptojn kaj postulojn.
-
-
-LA MALBABELA JARO
+ŝian iom tro rigoran starpunkton pri la organiza strukturo de la eklezio. Li emfazis, ke en Slovenio la komunistoj detruis ĉiujn demokratiajn strukturojn kaj relative memstara kaj netuŝita restis nur la eklezio. Laŭ li do oni nepre bezonas tiun strukturon por tiel almenaŭ interne de ĝi povi artikuli niajn naciajn kaj civilajn konceptojn kaj postulojn.
 
 
 La diservo okazis en la signo de la babela puno. Dum la
@@ -3430,9 +2637,6 @@ lingvo; kun profesia labordisciplino kaj nula talento. Li foje venas en nian ofi
 Tamen nenio helpas. Li en sia malheleca kapo de longe
 
 
-LA MALBABELA JARO
-
-
 kovis ideon, ke la landaj politikaj klikoj ne permesas al li pro-speri, kvankam oni al li ebligis en unu jaro malfermi tri eks-poziciojn. La publiko venas kaj rigardas, sed nek miras nek aĉetas.
 
 Bone, sed ĉi tie temas pri malklera homo, kiun la naturo aŭ Dio ne pridonacis per multaj kapacitoj. Sed kion diri pri mia amiko, kiu lekcias en la universitato, ekscelente tradukas el itala, franca, hispana kaj portugala lingvoj, kiu verkas brilajn studojn kaj eseojn pri diversaj literaturaj kaj filozofiaj temoj
@@ -3447,9 +2651,7 @@ Raportoj el la mondo kaj patrujo — ĝuste laŭ la naturo de ili ambaŭ:
 
 —en Tibeto fortaj protestoj kontraŭ la ĉinaj okupantoj, kelkaj mortigitoj;
 
-—en Jugoslavio la ŝtata federacia administraro kaj oficiula-ro ne ricevis la ĉimonatan salajron, ĉar la kaso de la ŝtata aparato tute malpleniĝis. Tiel almenaŭ la reganta klaso iel spertas la efikojn de ilia propra altrudita sistemo. Iom demagogie 135
-
-LA MALBABELA JARO
+—en Jugoslavio la ŝtata federacia administraro kaj oficiula-ro ne ricevis la ĉimonatan salajron, ĉar la kaso de la ŝtata aparato tute malpleniĝis. Tiel almenaŭ la reganta klaso iel spertas la efikojn de ilia propra altrudita sistemo. Iom demagogie
 
 
 aŭdiĝas la informo, ke ankaŭ la registarestro Mikuliĝ ne ricevis salajron …
@@ -3460,9 +2662,7 @@ pozicion de la tiama klerulo en Eŭropo kaj tiun de la nuntempa lia kolego. Dum 
 
 siajn pensojn al sia plej proksima najbaro trans la limo.
 
-Antaŭ la fino de la hodiaŭa ofica deĵortempo mi interpa-
-
-rolis kun mia ĉefo pri tio, kian influon havas la okazaĵoj en Slovenio kaj Jugoslavio al nia laboro. Povas sekvi du aferoj: aŭ la okazaĵoj malfermos por ni relative grandan tutslovenan
+Antaŭ la fino de la hodiaŭa ofica deĵortempo mi interparolis kun mia ĉefo pri tio, kian influon havas la okazaĵoj en Slovenio kaj Jugoslavio al nia laboro. Povas sekvi du aferoj: aŭ la okazaĵoj malfermos por ni relative grandan tutslovenan
 
 libromerkaton — aŭ ili plene ĝin fermos. Do, ni devas serĉi en la direkto de slovena suvereneco. Nia domo povus fariĝi la centra servo por ĉiuj minoritatoj en Aŭstrio. Speciale bone estus fari proponon al Judoj en Aŭstrio, ke ankaŭ ili utiligu la saman sistemon.
 
@@ -3470,12 +2670,7 @@ Jam antaŭ noktmezo radiostacio informas pri la atenco al
 
 la landestro Leopoldo Wagner. Okazis jubilea festo de abiturientekzamenitoj de antaŭ 50 jaroj. Unu el la iamaj klaskolegoj, certa sinjoro Rieser, laŭprofesie instruisto, jam delonge kverelinta kun Wagner pro la nesatigitaj postenaj ambicioj, dum la festo en Volkskeller akompanis la landestron al necesejo kaj subite ekpafis en lian ventron du kuglojn el sia pistolo. Bonŝance oni tuj hospitaligis la vunditon kaj lin opera-ciis.
 
-Devas esti strange malsana tiu aŭstria animo, ke oni pre-
-
-tas pafi al sia klaskolego pro ambicioj en profesio, kiu ĝuste devus esti eduke ekzempla.
-
-
-LA MALBABELA JARO
+Devas esti strange malsana tiu aŭstria animo, ke oni pretas pafi al sia klaskolego pro ambicioj en profesio, kiu ĝuste devus esti eduke ekzempla.
 
 
 Mi ne scias, ĉu havas tiu ĉi atenco spiritan rilaton kun la fakto, ke la landestro Wagner ĵus en lastaj tagoj akre atakis instruistinon Gertraude Langer, kiu eldonis novan legolibron por la elementaj lernejoj kaj en la karintia himno ellasis la kvaran strofon, kiu prikantas la verŝitan sangon kontraŭ Slovenoj dum la plebiscita tempo 1918-1922. La strofo ne estas origina, sed aldonita en la jaro 1932 kaj jam multaj ĝin ignoris, ĉar ĝi ne stimulas la repaciĝon de ambaŭ popoloj en la lando. Sed sinjoro Wagner minacis, ke li forigos la libron el lerneja uzo, se la ellasita sangoavida strofo ne estos aldona-ta …
@@ -3486,13 +2681,9 @@ La atenculo al la landestro Wagner ne estis nur instruisto, sed eĉ havis propra
 
 La gvidanto de la tibeta popolo Dalajlamo el sia ekzilo en Bharato vokis sian popolon al senperforta rezisto kontraŭ la ĉina okupacia militistaro kaj polico. Espereble la metodo de Gandhi pli kaj pli fariĝos normala metodo de civila malobeo kaj rezisto kontraŭ ĉia perforta politika povo.
 
-Ion similan baldaŭ bezonos la nacioj en Jugoslavio. Radio-
+Ion similan baldaŭ bezonos la nacioj en Jugoslavio. Radiostacio ĵus raportas, ke tiu malbonŝanca ŝtato troviĝas sojle de la decida krizo. Generaloj minacas per puĉo, kvazaŭ dekoj da jam okazintaj puĉoj ne montrus klare, ke militistoj ne estas samtempe bonaj juraj, ekonomiaj kaj socialaj administrantoj.
 
-stacio ĵus raportas, ke tiu malbonŝanca ŝtato troviĝas sojle de la decida krizo. Generaloj minacas per puĉo, kvazaŭ dekoj da jam okazintaj puĉoj ne montrus klare, ke militistoj ne estas samtempe bonaj juraj, ekonomiaj kaj socialaj administrantoj.
-
-Vespere mi reiris la oficejon por ordigi la korespondencon de *Celovôki Zvon*. Interesaj leteroj de miaj korespondentoj kaj 137
-
-LA MALBABELA JARO
+Vespere mi reiris la oficejon por ordigi la korespondencon de *Celovôki Zvon*. Interesaj leteroj de miaj korespondentoj kaj
 
 
 de mi mem jam konsistigus dikan libron, en kiu oni povus re-konstrui parton de la slovena kultura kaj politika epoko en la lastaj kvin jaroj.
@@ -3507,9 +2698,7 @@ Subite malfermis la pordon en nia redaktejo d-ro Buâar1 ,
 
 veninta kun sia artikolo por *CZ*. La temo: 200 jaroj de la usona konstitucio — sub la aspekto de aktualaj konstituciaj problemoj en Slovenio.
 
-Li raportis al mi, ke jam estis decidita la tago por la milita puĉo en Jugoslavio: la 22-a de septembro; sed en la urĝa kunsido sur la insulo Brioni la puĉistoj rezignis pri sia plano. Ver-
-
-ŝajne mankis subteno el Moskvo. La linio de Gorbaĉov ne
+Li raportis al mi, ke jam estis decidita la tago por la milita puĉo en Jugoslavio: la 22-a de septembro; sed en la urĝa kunsido sur la insulo Brioni la puĉistoj rezignis pri sia plano. Verŝajne mankis subteno el Moskvo. La linio de Gorbaĉov ne
 
 preferas tiajn novajn problemojn rande de lia imperio.
 
@@ -3518,12 +2707,7 @@ preferas tiajn novajn problemojn rande de lia imperio.
 Post la ŝtata memstareco li dum unu periodo estis prezidanto de la demokratie formita slovena parlamento. Nun pensiulo kaj publicisto.
 
 
-LA MALBABELA JARO
-
-
-D-ro Buâar parolis ankaŭ pri la diskuto kun serbaj verki-
-
-stoj. Bedaŭrinde la intelektuloj el Serbio ankoraŭ ne kom-
+D-ro Buâar parolis ankaŭ pri la diskuto kun serbaj verkistoj. Bedaŭrinde la intelektuloj el Serbio ankoraŭ ne kom-
 
 prenas la postulojn kaj rajtojn de Slovenoj. Tamen ankaŭ ili ne kredas plu pri daŭra ekzisto de Jugoslavio.
 
@@ -3547,12 +2731,7 @@ Hejme en Prevalje dum dutaga feriado mi manĝis hejmajn
 
 vinberojn. Grandeco nordeŭrope eta, sed la gusto sudeŭrope dolĉa.
 
-Diskuto kun mia samgeneraciano J. J. pri aktualaĵoj. Li diris, ke li malgraŭ ĉio okazanta en Jugoslavio restas laŭ sia per-139
-
-LA MALBABELA JARO
-
-
-cepto komunisto. Mi respondis, ke ĝuste tiajn karakterojn mi ege ŝatas. Nun fariĝis afero de morala integro — resti sur la ferdeko de la dronanta ŝipo … Titanic ne enhavas hazarde la literojn, kiuj konsistigas la nomon de la jugoslavia diktatoro, kiu direktis la stirilon de la jugoslavia ŝipego precize en la centron de la glacia monto!
+Diskuto kun mia samgeneraciano J. J. pri aktualaĵoj. Li diris, ke li malgraŭ ĉio okazanta en Jugoslavio restas laŭ sia percepto komunisto. Mi respondis, ke ĝuste tiajn karakterojn mi ege ŝatas. Nun fariĝis afero de morala integro — resti sur la ferdeko de la dronanta ŝipo … Titanic ne enhavas hazarde la literojn, kiuj konsistigas la nomon de la jugoslavia diktatoro, kiu direktis la stirilon de la jugoslavia ŝipego precize en la centron de la glacia monto!
 
 Mi finlegis la kuriozan romanon de Izidor Cankar el la jaro 1916: *S poti* (De survoje). Kvankam liaj literaturaj metirime-doj estas mirinde fajnaj kaj distingaj, min iel ĝenas la deka-denca etoso, kiu cetere regis en tiu finjarcenta tempo.
 
@@ -3570,22 +2749,16 @@ Hieraŭ oni malfermis la ekspozicion pri Slovenoj en Venecia provinco en Italio,
 
 La gazetaro en Karintio provas per ĉiuj rimedoj konvinki
 
-siajn legantojn, ke la atenco kontraŭ la landestro Wagner ne estas politike motivita. Tamen: apenaŭ ekzistas iu nepolitika 140
-
-LA MALBABELA JARO
+siajn legantojn, ke la atenco kontraŭ la landestro Wagner ne estas politike motivita. Tamen: apenaŭ ekzistas iu nepolitika
 
 
 elemento en tiu ĉi bedaŭrinda okazintaĵo. La atenculo ja volis protesti kontraŭ la partieca disponigado de la postenoj en la lando — ĉu do tio ne koncernas politikon?
 
-Mi proponis al kolego Ferk, ke li uzu la temon de la aten-
-
-co por romano en slovena lingvo. Li diris, ke li jam havas alian temon kaj tiun ĉi ne volas tuŝi. La afero ne lasis min ri-pozi. Mi jam komencis kolekti materialojn. Povas esti, ke mi mem tion faros. La bazan strukturon mi jam vidas en mia
+Mi proponis al kolego Ferk, ke li uzu la temon de la atenco por romano en slovena lingvo. Li diris, ke li jam havas alian temon kaj tiun ĉi ne volas tuŝi. La afero ne lasis min ri-pozi. Mi jam komencis kolekti materialojn. Povas esti, ke mi mem tion faros. La bazan strukturon mi jam vidas en mia
 
 kapo.
 
-Meva Maron en sia letero el Bracknell raportas pri fervo-
-
-ro, kun kiu iu ĝisosta anglikano legis mian broŝuron pri Medjugorje kaj ne permesis sin ĝeni eĉ de miaj certaloke katastrofaj lingvaj eraroj, kaŭzitaj de troa hasto en la pretigo.
+Meva Maron en sia letero el Bracknell raportas pri fervoro, kun kiu iu ĝisosta anglikano legis mian broŝuron pri Medjugorje kaj ne permesis sin ĝeni eĉ de miaj certaloke katastrofaj lingvaj eraroj, kaŭzitaj de troa hasto en la pretigo.
 
 Dum mia skribado de tiuj ĉi linioj, kiun sekvos tradukado
 
@@ -3599,12 +2772,7 @@ Hieraŭ mi ricevis malvarmumon. Tamen mi iris viziti J. M., kiun samtempe viziti
 
 diskutis pri la metodoj de katolika kunlaboro sur la tuta slovena lingva tereno translime. Pli kaj pli montriĝas letargio.
 
-Preskaŭ ĉiu volas aranĝi ion propran, sed finfine ĉiuj restas sen publiko. Eĉ la jezuitoj en Labako preferis fondi propran revuon ol kunlabori kun la jam ekzistantaj, kiel nia *CZ*. Ekzistas fortaj ambicioj pri internacia kunlaboro, sed neniu pen-141
-
-LA MALBABELA JARO
-
-
-sas pri tio, ke oni unue devas solvi la lingvan problemon. La kutima efekto estas, ke la germana lingvo fariĝas lingua franca, kvankam kripligita ĝis apenaŭrekonebleco.
+Preskaŭ ĉiu volas aranĝi ion propran, sed finfine ĉiuj restas sen publiko. Eĉ la jezuitoj en Labako preferis fondi propran revuon ol kunlabori kun la jam ekzistantaj, kiel nia *CZ*. Ekzistas fortaj ambicioj pri internacia kunlaboro, sed neniu pensas pri tio, ke oni unue devas solvi la lingvan problemon. La kutima efekto estas, ke la germana lingvo fariĝas lingua franca, kvankam kripligita ĝis apenaŭrekonebleco.
 
 Mi proponis, ke oni unue levu la demandon pri la homo
 
@@ -3618,9 +2786,7 @@ kolego Ferk. En bonan germanan.
 
 ***Lundo, 19-an de ***
 
-En la jugoslavia parlamento en Belgrado okazis simbola ak-
-
-cidento. Volis paroli la prezidanto de la ŝtatestraro Lazaro Moisov, Makedono. Post la unuaj frazoj li svenis kaj devis esti prizorgita. Post duona horo li revenis kaj daŭrigis sian paroladon.
+En la jugoslavia parlamento en Belgrado okazis simbola akcidento. Volis paroli la prezidanto de la ŝtatestraro Lazaro Moisov, Makedono. Post la unuaj frazoj li svenis kaj devis esti prizorgita. Post duona horo li revenis kaj daŭrigis sian paroladon.
 
 La unua parto — la sveno — ĵus okazas sur ĉiuj niveloj; ĉu okazos ankaŭ la dua parto, la reviviĝo kaj plua prospero, pri tio ekzistas duboj.
 
@@ -3629,17 +2795,12 @@ En la persa golfo la usona militistaro atakis la persan tero-lean plategon kaj �
 Paveliĝ, kiu, por subteni solidare sian aliancanon Hitler, sam-tiel proklamis militan staton kontraŭ Usono.
 
 
-LA MALBABELA JARO
-
-
 Nia eldonejo ricevis manuskripton kun jena modesta de-
 
 
 Kiamaniere klarigi al li, ke tio ne sufiĉas eĉ por pozitiva abiturienta ekzameno? Naŭze stulta ambicio de diletantoj!
 
-Vespere mi volis demonstri mian komputilon, sed bedaŭ-
-
-rinde mi ankoraŭ ne sufiĉe sciis pri ĝi. Miaj plej multaj ko-mandoj estis responditaj per la surskribo: Bad command or
+Vespere mi volis demonstri mian komputilon, sed bedaŭrinde mi ankoraŭ ne sufiĉe sciis pri ĝi. Miaj plej multaj ko-mandoj estis responditaj per la surskribo: Bad command or
 
 fail name. Praktike estas en la ĉiutaga vivo same, nur ke ekster maŝino tion neniu kuraĝas tiel klare diri …
 
@@ -3652,26 +2813,19 @@ La malbonŝanca pentristo Weratschnig venis al mi por
 trinki sian kafon. Li ĵus revenis el Sovetio, kien li ekskursis dum ses tagoj. Mi demandis lin, ĉu li ion pentris en Ruslan-do. Jes, li pentris. ĉu pejsaĝon aŭ portretojn? Nek la unuan nek la duan. Li pentris pecojn kaj amasojn da terkarbo. Li veturis de Vieno ĝis Petersburgo por tie pentri karbon, kiu tute same amorfas kaj koloras en lia hejma urbo Klaŭdiforumo.
 
 
-LA MALBABELA JARO
-
-
 ***Merkredo, 21-an de ***
 
 Hieraŭ la franca prezidanto eldiris la veron pri la intencoj de grandaj nacioj. Li pledis por nepra kaj baldaŭa starigo de unuiĝinta Eŭropo, kiu fariĝu, tiel Mitterrand: unu ŝtattereno, unu merkato, unu kulturo kaj unu popolo. Nur, li ne kuraĝis malferme diri, ke tiu nova eŭropa ŝtato parolu ĝenerale la francan lingvon.
 
 Eŭropo atingos unuecon nur, kiam ĝiaj registaroj forlasos
 
-la bonapartisman metodon de ĝia unuigado. Kiam oni akcep-
-
-tos la plurkulturecon kaj plurlingvecon kiel apartan valoron kaj eĉ avantaĝon de la malnova kontinento, tiam proprafor-te ekestos ankaŭ Unuiĝinta Eŭropo.
+la bonapartisman metodon de ĝia unuigado. Kiam oni akceptos la plurkulturecon kaj plurlingvecon kiel apartan valoron kaj eĉ avantaĝon de la malnova kontinento, tiam proprafor-te ekestos ankaŭ Unuiĝinta Eŭropo.
 
 Malfrue en nokto rondtabla televida diskuto, gvidita de
 
 prof. Lendvai, pri la fenomeno de eŭrokomunismo. La ĉe˛o
 
-Pelikan, aŭstria komunisto Wimmer kaj prof. Francois Bon-
-
-dy, bona konanto de la temo.
+Pelikan, aŭstria komunisto Wimmer kaj prof. Francois Bondy, bona konanto de la temo.
 
 Mi pli miris pri la obstina kredo de J. Pelikan, ke la evoluo iras al ia demokratia socialismo. Do ĉiuj katastrofaj spertoj ne helpas malebriigi la homon, inklinan al utopia pensmaniero.
 
@@ -3681,12 +2835,7 @@ prijuĝis al vicitanoj de iu jam socialisma lando nur funkcion de interna indust
 
 ***ĵaŭdo, 22-an de ***
 
-En radioraportoj informo, ke la ĉijaran nobelpremion por literaturo ricevis la juda verkisto el Petersburgo Jozefo Brod-144
-
-LA MALBABELA JARO
-
-
-ski. Povas esti, ke li la premion meritas, sed dediĉi ĝin al iu ukrajna aŭ blankrusa aŭtoro estus multe pli sencoplene.
+En radioraportoj informo, ke la ĉijaran nobelpremion por literaturo ricevis la juda verkisto el Petersburgo Jozefo Brodski. Povas esti, ke li la premion meritas, sed dediĉi ĝin al iu ukrajna aŭ blankrusa aŭtoro estus multe pli sencoplene.
 
 En *Die ganze Woche* komenco de tekstoserio pri Hitler. Portretoj de lia patrino Klara kaj lia patro Aloizo kaj de li mem kiel bebo.
 
@@ -3698,18 +2847,13 @@ Finfine: metu min en similajn cirkonstancojn — ĉu la afero vere finiĝus esen
 
 Malfrue ĝisnokten daŭris la filma klasikaĵo el Usono el la jaro 1941: La virino kun cikatro. Tamen mi ne bedaŭras la
 
-perditan dormotempon. Kia profunda psikologio sur tiu el-
-
-stara vizaĝo de Joan Crawford, kiu kiel sola transiris el la epoko de la sensona en la epokon de la sona filmo.
+perditan dormotempon. Kia profunda psikologio sur tiu elstara vizaĝo de Joan Crawford, kiu kiel sola transiris el la epoko de la sensona en la epokon de la sona filmo.
 
 ***Vendredo, 23-an de ***
 
 El Velenje profesoro Rozman. Ni interparolis pri Kocbek, pri lia ekskurso en Sovetion ktp. Mi kuiris bonan turkan kafon.
 
 En radioraportoj furoras pli kaj pli fortaj demonstracioj de studentaro en Vieno kaj en tuta Aŭstrio. Mi jam iomete timis pri la simpozio en la universitata salono. Jam sufiĉis, ke mortis unu el plej salutindaj prelegantoj profesoro Szerdahely. Mi devas preĝi por li.
-
-
-LA MALBABELA JARO
 
 
 Helena alportis la plej altan prijuĝon por sia lerneja tasko en la germana.
@@ -3720,18 +2864,13 @@ Hieraŭ matene venis nova decido de la belgrada registaro. Ili sendis al la prov
 
 bremsi la iron de tiu proceso.
 
-Akriĝis ankaŭ la pli malgranda, sed tiom pli doloriga ’po-
-
-litika’ situacio en mia familio. Sufiĉis, ke mi menciis mian vojaĝon al Vieno, jam mia edzino fariĝis kiel diable obsedita drako. Mi simple silentis, ĉar mi decidis akcepti interkomu-nikadon nur sur la nivelo de afableco. ĉion, kio ne okazas en afabla tono, mi perceptas kiel senenhava bruo. Sed ĝuste tio efikis kiel benzino, verŝita sur ardaĵon. Tamen mi ne cedis.
+Akriĝis ankaŭ la pli malgranda, sed tiom pli doloriga ’politika’ situacio en mia familio. Sufiĉis, ke mi menciis mian vojaĝon al Vieno, jam mia edzino fariĝis kiel diable obsedita drako. Mi simple silentis, ĉar mi decidis akcepti interkomu-nikadon nur sur la nivelo de afableco. ĉion, kio ne okazas en afabla tono, mi perceptas kiel senenhava bruo. Sed ĝuste tio efikis kiel benzino, verŝita sur ardaĵon. Tamen mi ne cedis.
 
 Povas esti, ke mi ne estas bona homo, sed kanajlo. Bone. Tamen eĉ tio devas esti mesaĝita al mi en ĝentila maniero, se la alia volas mian respondon …
 
 Hodiaŭ estas la festotago de mia dua patrujo, Aŭstrio. Mi
 
 el plena koro deziras al tiu ĉi lando, ke ĝi la belecon de sia naturo kompletigu per grandanimeco de sia popolo kaj precipe de siaj gvidantoj. Aŭstrio povus fariĝi modela kerno de estonta unuiĝinta Eŭropo. Sed unue ĝi devus solvi la problemon de propraj radikoj kaj de sia historia vero.
-
-
-LA MALBABELA JARO
 
 
 ***Merkredo, 28-an de ***
@@ -3744,9 +2883,7 @@ Iu studentino iomete neafable klarigis al mi, ke mi staras
 
 La salonego ne sufiĉe plena por tia evento: anoncitaj nur
 
-100 partoprenantoj; prelegoj ne ĉiuj sur brila nivelo. Plej pla-
-
-ĉis al mi la verkisto kaj psikologo Piron kun sia analizo de
+100 partoprenantoj; prelegoj ne ĉiuj sur brila nivelo. Plej plaĉis al mi la verkisto kaj psikologo Piron kun sia analizo de
 
 ’esperantofobio’.
 
@@ -3754,21 +2891,14 @@ En la ĉina restoracio, proksime de mia loĝejo, mi bone kaj malmultekoste manĝ
 
 ***ĵaŭdo, 29-an de ***
 
-Temoj jam pli interesaj, aŭditorio eĉ malpli plena. Rilate al la aserto, ke Zamenhof kondutis sur la lingva kampo plene demokratie, mi en diskuto rimarkis, ke tio rezultiĝas el lia juda-isma spirita heredo, kvankam li estis pli reformulo ol dogma kredanto. Li simple imitis la manieron de Dio, kiu ankaŭ donis nur la semojn, sed igis la homojn kulturi mem. En tio ver-
-
-ŝajne troviĝas la respondo al la demando: kiel finfine Esperanto povis relative sukcesi kaj postvivi siajn konkurintojn.
-
-
-LA MALBABELA JARO
+Temoj jam pli interesaj, aŭditorio eĉ malpli plena. Rilate al la aserto, ke Zamenhof kondutis sur la lingva kampo plene demokratie, mi en diskuto rimarkis, ke tio rezultiĝas el lia juda-isma spirita heredo, kvankam li estis pli reformulo ol dogma kredanto. Li simple imitis la manieron de Dio, kiu ankaŭ donis nur la semojn, sed igis la homojn kulturi mem. En tio verŝajne troviĝas la respondo al la demando: kiel finfine Esperanto povis relative sukcesi kaj postvivi siajn konkurintojn.
 
 
 ***Vendredo, 3-an de ***
 
 La hieraŭaj prelegoj estis altvaloraj: Piron, Tonkin, Silfer, jen la plej bonaj. Mi ĝis nun subtaksis la intelektan kapaciton de Tonkin. Pli modesta ol Lapenna, sed ne malpli klera. Eble ne tiel renesance vasta, sed tial fake pli preciza. Piron estas persono laŭ mia gusto. Iom simila al mia amiko Rebula en Triesto. Same fervora por la lingvo, kiun li advokatas. Mi devas kun li paroli.
 
-Hodiaŭ mi leviĝi iom pli frue, por viziti antaŭ la prelegoj la faman vienan preĝejon Votivkirche, kiun iniciatis la malfeli-
-
-ĉa imperiestro de Meksikio Maksimiliano. Unue mi surgenuis en la benko kaj preĝis por kelkaj intencoj: por la sukceso de nia simpozio; por Gorbaĉov, por mia edzino, por Ronjo, por miaj origina kaj nova patrujoj …
+Hodiaŭ mi leviĝi iom pli frue, por viziti antaŭ la prelegoj la faman vienan preĝejon Votivkirche, kiun iniciatis la malfeliĉa imperiestro de Meksikio Maksimiliano. Unue mi surgenuis en la benko kaj preĝis por kelkaj intencoj: por la sukceso de nia simpozio; por Gorbaĉov, por mia edzino, por Ronjo, por miaj origina kaj nova patrujoj …
 
 Post tio mi paŝis admiri la grandan bildon de Gustave Doré Christus verlasst das Praetorium (Kristo forlasas la tribunalon). Kvankam Jesuo paŝas en la direkto al la morto sur la kruco, la lumo fariĝas pli kaj pli hela descende sur la ŝtuparo.
 
@@ -3782,14 +2912,9 @@ En tabakejo mi aĉetis markojn por miaj forsendaĵoj — kaj
 
 specimenon de *Die ganze Woche* kun la serio pri Hitler.
 
-Mi denove preskaŭ perdiĝis en la granda universitata kon-
-
-struaĵo.
+Mi denove preskaŭ perdiĝis en la granda universitata konstruaĵo.
 
 Novaj prelegoj: Raŝiĉ, Hirmann, Sakaguĉi … Plej bonan
-
-
-LA MALBABELA JARO
 
 
 Esperanton parolis d-ro Bach, kiu sin deklaris ne-ano de la movado.
@@ -3800,9 +2925,7 @@ kaj mem produkti ŝercojn en serba lingvo, en societo kun
 
 pensiita profesorino, kiu skandaliĝis pro tiel larĝa lingvopolitiko en Vojevodino … Tamen ankaŭ ĉiuj esperantistoj ne estas veraj esperantoj.
 
-Por mallonga tempo en la universitata salonego renkonti-
-
-ĝo kun Dorothea, kiu nun studas arthistorion en Vieno. Kun tiu sobra raciulino oni malfacile bone parolas.
+Por mallonga tempo en la universitata salonego renkontiĝo kun Dorothea, kiu nun studas arthistorion en Vieno. Kun tiu sobra raciulino oni malfacile bone parolas.
 
 Sekvaj prelegoj iel kuriozaj, la plej bona tamen tiu de d-ro Haszpra el Budapeŝto.
 
@@ -3815,9 +2938,6 @@ Post certa tempo Herbert kaj mi okupis la finan parton de
 la longa tablo kaj priparolis niajn planojn. Kiam mi dekovris al li mian ideon pri romano surbaze de iu kosma teorio, li ravita aklamis, ke mi tuj komencu verki.
 
 Iom post la deka mi jam troviĝis en tramo al stacidomo. En la mano restis iom da panplata varmo de ĉiuj adiaŭintoj; malantaŭ mi restis la terura viena vento, kiu purigas la grandur-ban atmosferon, sed malsanigas la gastojn, akomodiĝintaj al pli milda mediteranea klimato.
-
-
-LA MALBABELA JARO
 
 
 ***Dimanĉo, 1-an de ***
@@ -3836,16 +2956,9 @@ Peânik montris al mi la komencon de sia nova prozaĵo. Mi
 
 rekomendis forlason de troaj adjektivoj, per kiuj oni komen-tarias, anstataŭ priskribas, kio estas la vera afero de la verkisto.
 
-Davorin klarigis al mi la uzon de mola disko en komputi-
+Davorin klarigis al mi la uzon de mola disko en komputilo.
 
-lo.
-
-En la vespera televida programo triminuta raporto pri Es-
-
-peranto. Bedaŭrinde oni igis legi tekston el Asterikso al la funebra voĉo de bonkorulo, kiu ne sukcesis superi amatoran nivelon.
-
-
-LA MALBABELA JARO
+En la vespera televida programo triminuta raporto pri Esperanto. Bedaŭrinde oni igis legi tekston el Asterikso al la funebra voĉo de bonkorulo, kiu ne sukcesis superi amatoran nivelon.
 
 
 ***Mardo, 3-an de ***
@@ -3856,15 +2969,11 @@ Ni komencis per ordinara demando: Kio okazis, kio ŝajnas
 
 okazi en proksima estonto?
 
-En respubliko Serbio jam venkis la stalinisma modelo, si-
-
-mila al Romanio de ĉaŭŝesku. Ili tiamaniere esperas solvi sian problemon kun Albanoj en Kosovo. ĉu ili provos sammaniere
+En respubliko Serbio jam venkis la stalinisma modelo, simila al Romanio de ĉaŭŝesku. Ili tiamaniere esperas solvi sian problemon kun Albanoj en Kosovo. ĉu ili provos sammaniere
 
 solvi la rilaton kun Slovenio? Apenaŭ kredeble, ja Kosovo ligas ĉiujn iliajn fortojn. Tamen principe ankaŭ tio povas okazi.
 
-Post la tagmanĝo ni iris kafumi en la duone slovenan ga-
-
-stejon Pri Joklnu/Bierjokl. Ni konstatis, ke mankas aliancanoj, ja tuta Eŭropo evoluas en centralisma direkto, kiu ne havas komprenon por etaj nacioj. Eble tamen Bavaroj plej bone povas tion kompreni. Certe ne Francoj kaj Britoj. Sed ĉu oni povas fidi al Germanoj — post tiom da historiaj malfeliĉoj kun ili ekde la 8-a jarcento?
+Post la tagmanĝo ni iris kafumi en la duone slovenan gastejon Pri Joklnu/Bierjokl. Ni konstatis, ke mankas aliancanoj, ja tuta Eŭropo evoluas en centralisma direkto, kiu ne havas komprenon por etaj nacioj. Eble tamen Bavaroj plej bone povas tion kompreni. Certe ne Francoj kaj Britoj. Sed ĉu oni povas fidi al Germanoj — post tiom da historiaj malfeliĉoj kun ili ekde la 8-a jarcento?
 
 Apih eldonis jam la duan libron de siaj memoraĵoj el la
 
@@ -3874,11 +2983,7 @@ demisii el la partio, publikigante samtempe protestan broŝuron kontraŭ la ’p
 
 Mi proponis al li, prefere en ironia lingvaĵo danki al la partio, ke ĝi malfermis liajn okulojn antaŭ la iluzioj de komunismo.
 
-Post kelkaj horoj venis advokato el Labako, kiu same de-
-
-mandis, kion fari — ’ĉto zdjelatj’, kiel sin demandis siatempe 151
-
-LA MALBABELA JARO
+Post kelkaj horoj venis advokato el Labako, kiu same demandis, kion fari — ’ĉto zdjelatj’, kiel sin demandis siatempe
 
 
 Lenin — en la nuna situacio. Komunistoj eĉ ŝajnas esti certagrade pretaj proponi iometan kunlaboron kun nekomunistoj,
@@ -3902,9 +3007,6 @@ partizana komisaro, kiu ĵus verkis biografion pri la slovena episkopo Slomôek 
 F I N O
 
 
-LA MALBABELA JARO
-
-
 Redakta rimarko
 
 *Klaŭdiforumo* estas Klagenfurt/Celovec, ĉefurbo de Karintio, Aŭstrio
@@ -3921,16 +3023,11 @@ Slovenoj. El ili ĉ. 14.000 sin formale deklaras Slovenoj.
 
 plu ekzistanta kastelo sur Krnski grad (Karnburg) norde
 
-de Klaŭdiforumo. i ampleksis la landon Karintio, Sti-
-
-rio kaj Malsupra Aŭstrio preskaŭ ĝis Vieno. Tiu ĉi mez-
+de Klaŭdiforumo. i ampleksis la landon Karintio, Stirio kaj Malsupra Aŭstrio preskaŭ ĝis Vieno. Tiu ĉi mez-
 
 epoka ŝtato fariĝis bazo kaj kerno por Aŭstrio kaj ankaŭ
 
 por Slovenio.
-
-
-LA MALBABELA JARO
 
 
 www.omnibus.se/

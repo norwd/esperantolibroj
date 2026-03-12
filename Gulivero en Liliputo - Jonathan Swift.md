@@ -6,14 +6,10 @@ Gulivero
 Liliputo
 
 
-### 1
-
 GULIVERO EN LILIPUTO
 
 
 Jonathan Swift
-
-GULIVERO EN LILIPUTO
 
 
 M. Inman Lingve reviziita en 2002
@@ -21,23 +17,13 @@ M. Inman Lingve reviziita en 2002
 Ilustrita de J. R. Monsell
 
 
-X
-
-@omnibus.se
-
-
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO UNUA
+ĈAPITRO UNUA
 
 Mi, Lemuelo Gulivero, estis la tria el kvin filoj. Mia patro sendis min al Cambridge al unu el la kole-gioj. Mi havis dek kvar jarojn, kaj mi dediĉis min al stu-dado dum tri jaroj. Mia patro estis malriĉa, tial mi for-lasis Cambridge kaj fariĝis metilernanto ĉe sinjoro Bo, eminenta kirurgo en Londono.
 
 Mi lernis dum kvar jaroj ĉe sinjoro Bo. Mi ankaŭ stu-dis navigacion kaj matematikon, sciencoj, kiuj utilas al vojaĝistoj. Mi kredis, ke mi iam vojaĝos. Post kvar jaroj mi revenis hejmen. Mia patro, onklo kaj aliaj parencoj donis al mi kvarcent spesmilojn, ili ankaŭ promesis do-nacon de tricent spesmiloj jare. Tial mi vojaĝis al Ley-den, kie mi lernis fizikon dum du jaroj kaj sep monatoj.
 
-Nelonge post mia reveno, sinjoro Bo rekomendis min kiel kuraciston sur la ŝipo ”Hirundo”. La ŝipestro havis la nomon Pannel, kaj mi vojaĝis kun li tri jarojn kaj duo-non. Reveninte, mi deziris resti en Londono. Sinjoro Bo helpis min kaj rekomendis min al kelkaj familioj. Mi luis dometon kaj mi edziĝis kun fraŭlino Maria Burton. ŝi estis la dua filino de sinjoro Burton, ŝtrumpisto sur la 3
-
-GULIVERO EN LILIPUTO
+Nelonge post mia reveno, sinjoro Bo rekomendis min kiel kuraciston sur la ŝipo ”Hirundo”. La ŝipestro havis la nomon Pannel, kaj mi vojaĝis kun li tri jarojn kaj duo-non. Reveninte, mi deziris resti en Londono. Sinjoro Bo helpis min kaj rekomendis min al kelkaj familioj. Mi luis dometon kaj mi edziĝis kun fraŭlino Maria Burton. ŝi estis la dua filino de sinjoro Burton, ŝtrumpisto sur la
 
 
 Novpordega strato. Mi ricevis dote kvarmil spesmilojn de ŝia patro.
@@ -46,9 +32,7 @@ Post du jaroj miaj aferoj ne prosperis. La bona majs-tro Bo mortis kaj mi estis 
 
 Poste mi enuiĝis pri vojaĝoj kaj volis resti kune kun mia edzino kaj infanoj. Mi klopodis tri jarojn, sed mi ne sukcesis. Tial mi akceptis oficon ĉe la ŝipestro de ”Anti-lopo”, vojaĝonta al la Suda Maro. Ni foriris de Bristol la kvaran de majo milsescentnaŭdeknaŭan.
 
-Unue ni bone sukcesis, sed poste atakis nin ventego, kiu antaŭpelis la ŝipon ĝis la bordo de Suda Aŭstralio. Ni observis, ke ni atingis la tridekan gradon de suda latitu-do. Dek du maristoj jam mortis pro penegoj kaj malsato, la aliaj estis malfortaj. La kvinan de novembro estis somero kaj la vetero nebuliĝis. La maristoj ekvidis rokon tre proksime antaŭ ni. La vento estis tre forta, kaj pelis nin al la roko. La ŝipo fendiĝis. Ses el la maristoj, el kiuj mi estis unu, mallevis boaton sur la maron. Ni malimpli-kis nin for de la ŝipo kaj de la roko. Ni remis dek kvin 4
-
-GULIVERO EN LILIPUTO
+Unue ni bone sukcesis, sed poste atakis nin ventego, kiu antaŭpelis la ŝipon ĝis la bordo de Suda Aŭstralio. Ni observis, ke ni atingis la tridekan gradon de suda latitu-do. Dek du maristoj jam mortis pro penegoj kaj malsato, la aliaj estis malfortaj. La kvinan de novembro estis somero kaj la vetero nebuliĝis. La maristoj ekvidis rokon tre proksime antaŭ ni. La vento estis tre forta, kaj pelis nin al la roko. La ŝipo fendiĝis. Ses el la maristoj, el kiuj mi estis unu, mallevis boaton sur la maron. Ni malimpli-kis nin for de la ŝipo kaj de la roko. Ni remis dek kvin
 
 
 kilometrojn ĝis ni pro lacegeco ĉesis remi. Ni flosis tien kaj reen, ĝis subita ekblovo renversis la boaton. Mi kredas, ke la tuta maristaro mortis krom mi. Naĝante pelate de vento kaj marfluo, mi naĝis laŭ mia kapablo. Ofte mi mallevis la piedojn por serĉi la fundon. Post longa pena-do mi sukcesis, tiam la ventego kvietiĝis.
@@ -64,15 +48,9 @@ Baldaŭ mi sentis, ke vivulo marŝas sur mia maldekstra kruro, tuj ĝi estis sur
 Mi mallevis la okulojn, kiom eble, kaj mi ekvidis homon, kies alteco estis de nur dek kvin centimetroj.
 
 
-GULIVERO EN LILIPUTO
-
-
 Li tenis pafarkon kaj sagon, en la manoj. Sagujo estis sur lia dorso.
 
 Dum mi kun surprizo rigardis lin, kvardek similaj etuloj sekvis tin.
-
-
-GULIVERO EN LILIPUTO
 
 
 Mi ekkriis tiel laŭte, ke ili forkuris timigitaj. Mi sentis, ke ili saltas teren de miaj flankoj. Tamen ili baldaŭ revenis kaj unu el ili atingis lokon, de kie li povis klare vidi mian vizaĝon. Li levis la manojn kaj ekkriis laŭte kaj klare: ”Hekina degul! ”
@@ -89,12 +67,7 @@ Krom tio, alia cento da sagoj leviĝis alten kaj falis sur la tutan korpon kaj v
 
 Post tio mi opiniis preferinde, ke mi kuŝu senmove,
 
-ĝis mallumiĝo. Mi esperis, ke la stranga armeo forlasos min, kaj mi sukcesos liberigi min. Mi tute ne devis timi aron, kiel ajn grandan, da tiaj hometoj, tuj kiam mi rice-7
-
-GULIVERO EN LILIPUTO
-
-
-vos la eblon uzi miajn membrojn. Rimarkinte, ke mi restas senmove, ili ĉesis pafadi, sed laŭ la bruo mi komprenis, ke pli kaj pli multe da homoj ĉirkaŭas min. Samtempe mi aŭdis frapadon, kvazaŭ de iloj laborantaj.
+ĝis mallumiĝo. Mi esperis, ke la stranga armeo forlasos min, kaj mi sukcesos liberigi min. Mi tute ne devis timi aron, kiel ajn grandan, da tiaj hometoj, tuj kiam mi ricevos la eblon uzi miajn membrojn. Rimarkinte, ke mi restas senmove, ili ĉesis pafadi, sed laŭ la bruo mi komprenis, ke pli kaj pli multe da homoj ĉirkaŭas min. Samtempe mi aŭdis frapadon, kvazaŭ de iloj laborantaj.
 
 Turninte la kapon kiel eble plej multe, mi vidis, ke ili konstruas lignan estradon, sur kiu kvar viroj povis stari. Du aŭ tri ŝtuparetoj troviĝis apude. Per unu el ili unu el la etuloj, kiu ŝajnis persono grava, supreniris. Li staris sur la estrado, kaj de tie li parolis longe. Mi ne komprenis eĉ unu vorton.
 
@@ -102,12 +75,7 @@ La parolanto ŝajne havis la aĝon de tridek jaroj. Li estis iom pli alta ol la 
 
 Mi respondis mallonge kaj humile, kaj ĉar mi malsa-tis, mi penis montri al ili, ke mi bezonas manĝaĵon. Mi metis fingron en la buŝon kaj rigardis petante, ke oni donu al mi nutraĵon. La parolinto tuj komprenis min.
 
-Poste mi eksciis, ke li estas unu el la estroj. Li malsupreniris de la estrado kaj ordonis, ke oni metu ŝtupetarojn al miaj flankoj. Multope la etuloj supreniris kaj marŝis al mia buŝo, portante korbojn, plenaj da viandoj. La vian-daĵoj havis la saman formon kiel kuirpecoj, kiujn ni ha-8
-
-GULIVERO EN LILIPUTO
-
-
-vas hejme, lumbaĵo, femuro, kaj tiel plu, sed malpli grandaj ol flugiloj de alaŭdo.
+Poste mi eksciis, ke li estas unu el la estroj. Li malsupreniris de la estrado kaj ordonis, ke oni metu ŝtupetarojn al miaj flankoj. Multope la etuloj supreniris kaj marŝis al mia buŝo, portante korbojn, plenaj da viandoj. La vian-daĵoj havis la saman formon kiel kuirpecoj, kiujn ni havas hejme, lumbaĵo, femuro, kaj tiel plu, sed malpli grandaj ol flugiloj de alaŭdo.
 
 ĉio estis bone kuirita kaj mi manĝis du aŭ tri pecojn samtempe. Mi prenis po tri panoj ĉe ĉiu preno; ili estis ne pli grandaj ol kugloj. La etuloj donis al mi la nutraĵon kiel eble plej rapide. Mi manĝis tiom, ke mi mirigis ilin.
 
@@ -119,9 +87,7 @@ Tial ili suprentiris sur min unu el siaj plej grandaj bareloj. Ili rulis ĝin al
 
 Oni ekkriis por averti la homamason sur la tero, ke ili donu spacon. Mi ĵetis la barelojn ĉielen. Vidante ilin en la aero, la etuloj ekkriis tre laŭte. Mi konfesas, ke mi estis tentita kapti tiujn, kiuj kuris sur mia korpo, por ĵeti ilin teren. Sed memorinte la falon de sagoj, kaj la nutraĵon kiun oni donis al mi, mi sentis, ke la honoro malperme-sas, ke mi agu malbone al ili. Mi opiniis, ke ili estas tre kuraĝaj, ĉar ili sentime kuras sur mia korpo, kvankam unu el miaj manoj estis libera por kapti ilin.
 
-Post nelonge alvenis grava persono, la imperiestro de la etuloj. Lia Moŝto suriris sur mian dekstran kruron, kaj 9
-
-GULIVERO EN LILIPUTO
+Post nelonge alvenis grava persono, la imperiestro de la etuloj. Lia Moŝto suriris sur mian dekstran kruron, kaj
 
 
 antaŭen marŝis al la vizaĝo. Deko da korteganoj sekvis lin. Rigardante mian vizaĝon, li parolis dum dek minu-toj, ne kolere, sed li parolis serioze kaj severe.
@@ -138,9 +104,7 @@ Baldaŭ mi sentis amason da laborantoj ĉe la maldekstra flanko. Ili malligis la
 
 Ili ŝmiris miajn vizaĝon kaj manojn, kaj baldaŭ mi sentis malpli la doloron kaŭzitan de la sagaj vundoj. Re-freŝigita, mi ekdormis denove kaj dormis longe.
 
-Iliaj meąnikistoj faras bone ĉian maŝinon por porti pezajn objektojn. La militajn kaj komercajn ŝipojn, kiuj havas la grandecon de manĝotablo, ili konstruas en la arbaroj, kie troviĝas la arboj por la tratoj, kaj de tie oni veturigas ilin al la marbordo. Nun ili komencis pretigi 10
-
-GULIVERO EN LILIPUTO
+Iliaj meąnikistoj faras bone ĉian maŝinon por porti pezajn objektojn. La militajn kaj komercajn ŝipojn, kiuj havas la grandecon de manĝotablo, ili konstruas en la arbaroj, kie troviĝas la arboj por la tratoj, kaj de tie oni veturigas ilin al la marbordo. Nun ili komencis pretigi
 
 
 sian plej grandan veturilon. i estis ligna trabaĵo, porta-ta proksimume ok centimetroj super la tero, kaj iom simila al niaj litoj.
@@ -158,9 +122,6 @@ Dum la vojaĝo mi vekiĝis. Okazis, ke du aŭ tri enlanduloj volis vidi min dorm
 Li metis la akran pinton de sia glavo en mian naz-truon, ĝi tiklis min kiel pajlo kaj ternigis min perforte.
 
 
-GULIVERO EN LILIPUTO
-
-
 Fine mi alvenis al la urba pordego. La imperiestro kaj liaj korteganoj elvenis renkonte al mi. ĉe la loko, kie mi haltis, staris antikva templo, la plej granda el la temploj de la tuta insulo. ĉar antaŭ longe perfida mortigo okazis en la templo, la homoj ne plu preĝis tie kaj oni mal-plenigis ĝin. Mi devis loĝi en tiu templo. Tra la plej granda pordego, kies alteco estis ĉirkaŭ cent dudek centimetroj, kaj larĝeco ĉirkaŭ sesdek centimetroj, mi facile povis enrampi.
 
 Ambaŭflanke de la pordego troviĝis po unu fenestreto supre de la tero je dek kvin centimetroj. Al la dekstra fenestro la forĝisto de la imperiestro fiksis naŭdek unu ĉenojn, similajn al poŝhorloĝa ĉeno.
@@ -172,16 +133,10 @@ Aliflanke de la vojego, kaj precize kontraŭ la templo, staris turo, kies alteco
 Opiniante, ke mi ne povos liberigi min, la laboristoj tranĉis ĉiujn ŝnuretojn, kiuj min ligis.
 
 
-GULIVERO EN LILIPUTO
-
-
 Sentante min tre malfeliĉa, mi leviĝis. La homoj pro mirego ekkriis laŭte, vidante min staranta kaj faris veran bruegon. La ĉenoj, kiuj tenis la kruron, estis longaj du metrojn, tial mi povis marŝi tien kaj reen. Ankaŭ mi povis enrampi kaj kuŝi en la templo.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO DUA
+ĈAPITRO DUA
 
 Mi rigardis la ĉirkaŭaĵon. i similis grandan ĝarde-non. La kampoj, kiuj havis la mezan grandecon de niaj ĉambroj, aspektis kiel bedoj. Mi vidis arbaretojn, en kiuj la plej grandaj arboj ne estis pli alta ol mi.
 
@@ -189,9 +144,7 @@ La urbeto havis la aspekton de teatra sceno. Mi laciĝis tiom, ke mi baldaŭ enr
 
 La imperiestro rajdis al mi, sed la ĉevalo timis ekvi-dante min, preskaŭ forĵetante sian rajdanton. Tio ne estis strange, ĉar vere mi devis aspekti kiel monto. Estante lerta rajdanto, la imperiestro sidis firme, dum liaj kavaliroj iris helpi lin. Tiam la imperiestro deiris de sia ĉevalo kaj marŝis al mi. Li admiris min, sed li ne tiom proksimiĝis al mi, ke mi povus lin tuŝi.
 
-La imperiestro ordonis al siaj kuiristoj, ke ili alportu al mi pli da nutraĵo kaj trinkaĵo. Oni metis nutraĵon sur veturilojn, kiujn oni puŝis ĝis kie mi povis atingi ilin. La imperiestrino kun la junaj princoj, kaj multe da nobeloj kaj sinjorinoj venis apude, kaj ili rigardis min dum mi manĝis. La imperiestro estis la plej alta el la viroj. Kreske 14
-
-GULIVERO EN LILIPUTO
+La imperiestro ordonis al siaj kuiristoj, ke ili alportu al mi pli da nutraĵo kaj trinkaĵo. Oni metis nutraĵon sur veturilojn, kiujn oni puŝis ĝis kie mi povis atingi ilin. La imperiestrino kun la junaj princoj, kaj multe da nobeloj kaj sinjorinoj venis apude, kaj ili rigardis min dum mi manĝis. La imperiestro estis la plej alta el la viroj. Kreske
 
 
 li superis ĉiujn aliajn per la larĝeco de mia ungo. Li estis bela laŭ mieno kaj figuro, kaj havis majestan sin-tenon.
@@ -206,15 +159,10 @@ Kolonelo ordonis, ke oni kaptu kaj ligu lin, kune kun ses aliaj, kiuj ĝenis min
 
 ĝis kie mi povis kapti ilin.
 
-Mi levis ilin per la dekstra mano kaj metis kvin el ili en mian poŝon. Tenante la sesan, mi rigardis lin kvazaŭ mi intencus manĝi lin. La mizeruleto kriegis terure, kaj 15
+Mi levis ilin per la dekstra mano kaj metis kvin el ili en mian poŝon. Tenante la sesan, mi rigardis lin kvazaŭ mi intencus manĝi lin. La mizeruleto kriegis terure, kaj
 
 
-GULIVERO EN LILIPUTO
-
-
-la kolonelo kaj oficiroj mem ektimegis, precipe kiam mi eltiris mian poŝtranĉilon. Tamen ili tuj ĉesis timi, kiam mi delikate tratranĉis la fadenojn, kiuj ligis lin. Mi metis lin kviete teren kaj permesis, ke li forkuru. ĉiujn aliajn mi tiel same traktis, elprenante ilin unu post unu el 16
-
-GULIVERO EN LILIPUTO
+la kolonelo kaj oficiroj mem ektimegis, precipe kiam mi eltiris mian poŝtranĉilon. Tamen ili tuj ĉesis timi, kiam mi delikate tratranĉis la fadenojn, kiuj ligis lin. Mi metis lin kviete teren kaj permesis, ke li forkuru. ĉiujn aliajn mi tiel same traktis, elprenante ilin unu post unu el
 
 
 mia poŝo. Mi rimarkis, ke la soldatoj kaj homoj taksis tion kiel pruvon de mia bonkoreco, kaj oni rakontis fa-vore pri ĝi en la kortego.
@@ -223,9 +171,7 @@ Vespere mi enrampis malfacile en mian domon, kie mi kuŝis sur la tero, kaj tiu 
 
 Aŭdinte pri mia alveno, amaso da homoj alvenis por vidi min. Tiel la vilaĝoj senhomiĝis, ke la imperiestro ordonis, ke tiuj, kiuj min vidis, foriru tuj hejmen. Ili ne rajtis veni pli proksime ol dek ses metroj de mia domo sen la permeso de la kortego. El tiu cirkonstanco la reg-naj oficistoj aranĝis por si riĉan profiton.
 
-Dume la imperiestro kaj lia politikistaro konsiliĝis inter si pri tio, kion ili devas fari kun mi, por agi plej saĝe. Ili timis, ke mi eble liberigos min, kaj cetere ke mi formanĝos tiom da provizaĵo, ke estas danĝero, ke man-kos nutraĵoj. Foje ili preskaŭ decidis mortigi min aŭ per malsato aŭ per sagoj venenitaj. Tiam ili pripensis, ke, 17
-
-GULIVERO EN LILIPUTO
+Dume la imperiestro kaj lia politikistaro konsiliĝis inter si pri tio, kion ili devas fari kun mi, por agi plej saĝe. Ili timis, ke mi eble liberigos min, kaj cetere ke mi formanĝos tiom da provizaĵo, ke estas danĝero, ke man-kos nutraĵoj. Foje ili preskaŭ decidis mortigi min aŭ per malsato aŭ per sagoj venenitaj. Tiam ili pripensis, ke,
 
 
 mortiginte min, ili kreus peston, ĉar oni ne povus enterigi tiel grandan kadavron kiel mia.
@@ -241,9 +187,6 @@ La ĉevaloj de la imperiestro kaj kavaliroj estis ofte ek-zercataj antaŭ mi, po
 Post tri semajnoj mi progresis bone en la lernado de la lingvo. Dume lia Moŝto ofte honoris min per vizito kaj helpis instrui min en mia lernado.
 
 
-GULIVERO EN LILIPUTO
-
-
 Ni jam komencis iom interparoli. La unuaj vortoj, kiujn mi lernis, konsistigis peton pri mia liberigo. Mi rediris tiujn vortojn ĉiutage, genuante. La respondo, laŭ tio, kion mi povis kompreni estis, ke mi devas atendi.
 
 Unue mi devos ĵuri esti pacema kun la reĝo kaj lia lando.
@@ -257,9 +200,6 @@ Lia imperiestra Moŝto respondis, ke, laŭ la leĝoj, du oficistoj devos min pri
 Mi suprenlevis la oficistoj per miaj manoj. Unue mi metis ilin en la surtutajn poŝojn, kaj poste en ĉiun alian poŝon, krom du pantalonaj poŝoj, kaj en sekreta poŝo, en kiu troviĝis kelkaj necesaĵoj gravvaloraj nur por mi mem. Tiun poŝon mi decidis kaŝi pli zorge ol la aliajn.
 
 
-GULIVERO EN LILIPUTO
-
-
 En unu poŝeto ili trovis monujon enhavanta kelkajn orajn monerojn, en alia arĝentan poŝhorloĝon. La sinjoroj faris skribaĵon pri ĉio, kion ili vidis. Fininte, ili petis min meti ilin teren, por ke ili povu doni la raporton al la imperiestro. Post kelka tempo mi faris la jenan tradukon de tiu raporto:
 
 ”Unue, en la dekstra surtuta poŝo de la granda Homo Monto, post atenta serĉado, ni trovis nur tukegon unu-pecan el maldelikata ŝtofo sufiĉe grandan por servi kiel tapiŝo en la imperiestra trona ĉambrego.
@@ -270,9 +210,7 @@ Unu el ni enpaŝinte sin trovis vadanta en speco de pol-vo. Iom da ĝi fluge lev
 
 ”En la veŝta poŝo ni trovis aparaton similan al grandega palisaro el dudek fortikaj stangoj, per kiu konjek-teble la Homo Monto ordigas siajn harojn. En la dekstra pantalona poŝo ni trovis feran cilindron, kies longeco egalas viran altecon. i estas fiksita al forta lignaĵo pli granda ol ĝi. El unu flanko de la cilindro elstaras grandaj feraĵoj. Ni ne komprenis ĝian uzmanieron. Simila objekto estis en la dua poŝo. [Ili aludas al mia pistolo.]
 
-”En la pli malgranda ni trovis rondajn platajn meta-laĵojn ruĝajn kaj blankajn. La ŝajne arĝentaj estis tiel grandaj, ke apenaŭ ni povis levi ilin. En la maldekstra 20
-
-GULIVERO EN LILIPUTO
+”En la pli malgranda ni trovis rondajn platajn meta-laĵojn ruĝajn kaj blankajn. La ŝajne arĝentaj estis tiel grandaj, ke apenaŭ ni povis levi ilin. En la maldekstra
 
 
 poŝo troviĝis du ingoj. Estis malfacile tuŝi ilian supron kiam ni staris sur fundo de la poŝo.
@@ -290,9 +228,6 @@ poŝo troviĝis du ingoj. Estis malfacile tuŝi ilian supron kiam ni staris sur 
 Ni trovis interne kelke da pecegoj el flava metalo. Ili devas esti multvaloraj, se ili estas oraj. Obeinte la ordonojn de via Imperiestra Moŝto, ni elesploris ĉiujn poŝojn.
 
 
-GULIVERO EN LILIPUTO
-
-
 ”Poste ni rimarkis, ke zono ĉirkaŭas lin, farita el la haŭto de grandega besto. Maldekstre de ĝi pendis glavo, kiu havis la longecon de kvin viroj. Kaj dekstre sako dividita en du fakojn, sufiĉe granda por enhavi tri reg-nanojn de via Imperiestra Moŝto. En unu el tiuj ĉi ĉam-bretoj sin trovis kelke da globoj aŭ multpezaj pilkoj fa-ritaj el metalo. Ili havas la grandecon de niaj kapoj kaj ne estis facile ilin levi. La alia ĉambreto enhavis kvanton da nigraj grajnoj; ili estis nek grandaj nek pezaj, ĉar en la mano ni povis teni almenaŭ kvindek.
 
 ”Jen estas preciza katalogo de la apartenaĵoj de la Homo Monto. Li ĝentile kondutis al ni, kaj li montris decan respekton al la komisiitaro de via Imperiestra Moŝto.
@@ -303,22 +238,15 @@ GULIVERO EN LILIPUTO
 
 ”Marso Frelok.”
 
-Post la legado de tiu dokumento la imperiestro ordonis al mi, tre afable, ke mi transdonu ĉiujn objektojn. Unue li postulis la glavon, kiun mi deprenis de la zono, kune kun ĝia ingo. Li estis ordoninta tri mil el la plej bonaj soldatoj, ke ili ĉirkaŭu min malproksime. Ili devis havi 22
-
-
-GULIVERO EN LILIPUTO
+Post la legado de tiu dokumento la imperiestro ordonis al mi, tre afable, ke mi transdonu ĉiujn objektojn. Unue li postulis la glavon, kiun mi deprenis de la zono, kune kun ĝia ingo. Li estis ordoninta tri mil el la plej bonaj soldatoj, ke ili ĉirkaŭu min malproksime. Ili devis havi
 
 
 pafarkojn kaj sagojn pretaj por pafi. Mi ne rimarkis tion, ĉar miaj okuloj rigardis nur la imperiestron.
 
-Tiam li ordonis, ke mi eltiru la glavon. i ne estis ĉia-parte brilanta, ĉar la marakvo faris al ĝi kelkajn rustajn makulojn. Mi eltiris ĝin kaj tuj ĉiu soldato ekkriis pro 23
-
-GULIVERO EN LILIPUTO
+Tiam li ordonis, ke mi eltiru la glavon. i ne estis ĉia-parte brilanta, ĉar la marakvo faris al ĝi kelkajn rustajn makulojn. Mi eltiris ĝin kaj tuj ĉiu soldato ekkriis pro
 
 
-teruro kaj surprizo. Brilante hele, la suno rebrilis kaj miregigis la okulojn, dum mi svingis la glavon tien kaj reen. La imperiestro ne estis tiel timigita, kiel mi antaŭ-
-
-supozis. Li ordonis al mi, ke mi remetu ĝin en la ingon.
+teruro kaj surprizo. Brilante hele, la suno rebrilis kaj miregigis la okulojn, dum mi svingis la glavon tien kaj reen. La imperiestro ne estis tiel timigita, kiel mi antaŭsupozis. Li ordonis al mi, ke mi remetu ĝin en la ingon.
 
 Poste mi devis ĵeti ĝin teren kiel eble plej kviete kaj malproksime du metrojn de la fino de mia ĉeno.
 
@@ -330,9 +258,7 @@ La homoj miregis pli, ol kiam ili vidis mian glavon.
 
 Centoj falis teren kiel mortigitaj. Eĉ la brava imperiestro ne kvietiĝis rapide; kvankam li ne falis, li sin regis malfacile. Mi ĵetis miajn pistolojn teren, kiel mi ĵetis la glavon, ankaŭ la saketon kun pulvo kaj kugloj. Mi petis al li, ke li ne metu la pulvon proksime al fajro, ĉar ĝi ek-flamos facile, eble ĝi suprensendus la imperiestran pa-lacon ĉielen.
 
-Mi transdonis mian poŝhorloĝon, kiun lia Moŝto tre scivole deziris rigardi. Li ordonis, ke du el siaj plej altaj gvardianoj portu ĝin inter ili. Li miris pro ĝia bruegado kaj pro la senĉesa moviĝado de la montrilo. ĉi tion li povis vidi facile, kaj li konsiliĝis kun la saĝuloj kaj li demandis la opiniojn de siaj instruituloj. Iliaj respondoj 24
-
-GULIVERO EN LILIPUTO
+Mi transdonis mian poŝhorloĝon, kiun lia Moŝto tre scivole deziris rigardi. Li ordonis, ke du el siaj plej altaj gvardianoj portu ĝin inter ili. Li miris pro ĝia bruegado kaj pro la senĉesa moviĝado de la montrilo. ĉi tion li povis vidi facile, kaj li konsiliĝis kun la saĝuloj kaj li demandis la opiniojn de siaj instruituloj. Iliaj respondoj
 
 
 estas diversaj kaj malproksime de la vero, kiel la leganto povas imagi sen mia rakonto, kaj efektive mi ne komprenis ĉion, kion ili diris.
@@ -342,36 +268,23 @@ Mi transdonis miajn arĝentajn monerojn kaj la monujon en kiu mi portis nur oran
 Kiel mi diris, mi havis sekretan poŝon, kiun ili ne trovis. i enhavis okulvitrojn, lorneton kaj aliajn utilaĵojn, kiuj ne interesus lian Moŝton. Tial mi kredis, ke mi ne devas montri ilin, ĉar mi timis, ke oni malbonigus ilin, se mi fordonus ilin.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO TRIA
+ĈAPITRO TRIA
 
 Mia ĝentileco kaj bona konduto tiel gajnis la bonan opinion de la imperiestro kaj liaj korteganoj, ke mi esperis esti liberigota baldaŭ. Mi klopodis pligrandigi la favorajn sentojn. La enlanduloj grade iom pli kuraĝis.
 
-Foje mi kuŝiĝis kaj permesis al kvin aŭ ses el ili danci sur mia mano. Fine, geknaboj kuraĝis ludi sinkaŝon kaj ser-
-
-ĉon inter miaj haroj. De tiam, kiam tio unue okazis, mi povis iomete paroli kaj kompreni ilian lingvon.
+Foje mi kuŝiĝis kaj permesis al kvin aŭ ses el ili danci sur mia mano. Fine, geknaboj kuraĝis ludi sinkaŝon kaj serĉon inter miaj haroj. De tiam, kiam tio unue okazis, mi povis iomete paroli kaj kompreni ilian lingvon.
 
 Iun tagon la imperiestro deziris amuzi min. Li ordonis spektaklon. En tiaj vidaĵoj ili superas ĉiujn naciojn, kiujn mi konas, rilate lertecon kaj pompon. La dancan-toj sur la ŝnuro amuzis min bone. Ili montris sin sur maldika blanka fadeno, etendita proksimume unu metron super la tero.
 
 Pardonu al mi se mi plilongigas mian historion per plua rakontado. La ŝnurdancistoj estis ĉiam viroj, kiuj celas grandajn poziciojn, kaj altan kortegan favoron. Ili pretiĝas en frua juneco preparante sin por tiu ĉi arto, kaj kelkaj el ili estas nek instruituloj, nek el nobelaj familioj.
 
-Kiam granda ofico estas ne okupata pro morto aŭ malhonoro, kio okazas ofte, kvin aŭ ses kandidatoj pe-26
-
-GULIVERO EN LILIPUTO
-
-
-tas la imperiestron, ke li permesu ilin amuzi la kortegon per ŝnurdancado. Tiu, kiu saltis plej alte sen fali, gajnas.
+Kiam granda ofico estas ne okupata pro morto aŭ malhonoro, kio okazas ofte, kvin aŭ ses kandidatoj petas la imperiestron, ke li permesu ilin amuzi la kortegon per ŝnurdancado. Tiu, kiu saltis plej alte sen fali, gajnas.
 
 Ofte la imperiestro ordonas la ministrojn mem montri sian kapablon, por konvinki lian Moŝton, ke ili ne perdis sian lertecon.
 
 Flimnapo, la trezoristo, laŭ ĝenerala famo saltas sur ŝnuro almenaŭ du centimetrojn pli alta ol ĉiu alia sinjoro en la tuta lando. Mi vidis lin renverssaltanta fojon post fojo, sur plado fiksita sur unu el iliaj ŝnuroj, ne pli dika ol niaj pakfadenoj. Mia amiko Reldresal, ĉefa privata imperiestra sekretario, estas, laŭ mia opinio, la dua en ordo de la ŝnurdancistoj. La aliaj ministroj estas preskaŭ ega-laj inter si. Tiuj amuzaĵoj ofte kaŭzas mortigajn malfeliĉojn, el kiuj oni rakontas multajn. Mi mem vidis du aŭ tri kandidatojn rompi siajn membrojn.
 
 La danĝero pligrandiĝas, kiam la ministroj mem laŭ ordono montras sian lertecon, ĉar, klopodinte superi sin mem, kelkaj nepre ĉiuokaze falas. Apenaŭ unu, kiu ne estas vundita. Oni diris al mi, ke antaŭ du jaroj Flimnapo falis sur kusenon de la imperiestro, okaze kuŝanta sur la tero, kiu sola malhelpis, ke li estu rompinta al si la kolon. Pli malofte antaŭ iliaj Moŝtoj kaj la ĉefa ministro okazas alia sporto. La imperiestro metas sur la tablon tri maldikajn silkajn fadenojn, kies longeco estas dek kvin centimetroj. Unu estas purpura, dua flava, kaj la tria blanka, jen la premioj.
-
-
-GULIVERO EN LILIPUTO
 
 
 La ceremonio okazas en la granda trona ĉambro.
@@ -385,20 +298,13 @@ Iun tagon mi havis la feliĉon amuzegi la imperiestron.
 Unue mi proponis, ke li ordonu, ke oni alportu al mi kelkajn bastonojn, kies longeco devis esti kvindek centimetroj, kaj kies dikeco devas egali la mezdikecon de miaj bastonoj. Matene ses arbaristoj kun tiom da veturiloj alvenis. ĉiun veturilon ses ĉevaloj trenis. Mi prenis naŭ bastonojn kaj forte fiksis ilin en la tero, je la an-guloj de kvadrato.
 
 
-GULIVERO EN LILIPUTO
-
-
 Mi ligis mian naztukon al la bastonoj, streĉante ĝin firme, ĝis ĝi similis al tamburo.
 
 Kvar horizontalaj bastonoj estis fiksitaj en la alteco de dekdu centimetroj super la naztuko. Ili utilis por randoj ĉiuflanke. Post la perfektigo de la konstruaĵo, mi petis, ke la imperiestro lasu dudek kvar el siaj kavalerianoj veni kaj ekzerciĝi sur tiu ebenaĵo. Lia Moŝto bonvolis konsenti, tial mi suprenlevis la rajdantojn unuope per miaj manoj, armitajn kaj pretigitajn.
 
-La oficiroj ĉeestis por ekzerci ilin. Post kiam ili estis ordigitaj, ili apartiĝis duone, ili ŝajne bataletis, pafis sen-pintajn sagojn, eltiris la glavojn, forrajdis kaj sekvis, atakis kaj reiris, kaj per malmultaj vortoj, mi neniam vidis pli bonajn manovrojn. La randoj malhelpis ke la ĉevaloj falu malsupren. Tio tiel plaĉis al lia Moŝto, ke li ordonis, ke oni ripetu la spektaklon post kelkaj tagoj. Foje eĉ pla-
+La oficiroj ĉeestis por ekzerci ilin. Post kiam ili estis ordigitaj, ili apartiĝis duone, ili ŝajne bataletis, pafis sen-pintajn sagojn, eltiris la glavojn, forrajdis kaj sekvis, atakis kaj reiris, kaj per malmultaj vortoj, mi neniam vidis pli bonajn manovrojn. La randoj malhelpis ke la ĉevaloj falu malsupren. Tio tiel plaĉis al lia Moŝto, ke li ordonis, ke oni ripetu la spektaklon post kelkaj tagoj. Foje eĉ plaĉis al li esti levita de mi kaj komandi la soldatojn. Malfacile li decidigis la Imperiestrinan Moŝton, ke ŝi konfi-du sin en miajn manojn, kaj mi tenis ŝin sidanta en seĝo sufiĉe proksime por vidi la tutan faradon.
 
-ĉis al li esti levita de mi kaj komandi la soldatojn. Malfacile li decidigis la Imperiestrinan Moŝton, ke ŝi konfi-du sin en miajn manojn, kaj mi tenis ŝin sidanta en seĝo sufiĉe proksime por vidi la tutan faradon.
-
-Feliĉe, nenia malfeliĉo okazis dum tiuj paradoj, sed fine vivega ĉevalo, apartenanta al unu el la kapitanoj, piedobatante traskrapis truon en la naztuko. La ĉevalo faletis, deĵetante la rajdanton kaj sin mem. Mi tuj helpis ilin kaj, kovrinte la truon per unu mano, mi malsupren-metis la tutan skadron per la alia mano sammaniere, kiel 29
-
-GULIVERO EN LILIPUTO
+Feliĉe, nenia malfeliĉo okazis dum tiuj paradoj, sed fine vivega ĉevalo, apartenanta al unu el la kapitanoj, piedobatante traskrapis truon en la naztuko. La ĉevalo faletis, deĵetante la rajdanton kaj sin mem. Mi tuj helpis ilin kaj, kovrinte la truon per unu mano, mi malsupren-metis la tutan skadron per la alia mano sammaniere, kiel
 
 
 mi levis ilin. La falinta ĉevalo estis streĉvundita je la maldekstra ŝultro. La soldato estis tute sen difekto. Mi rebo-nigis mian tukon laŭ mia kapablo, tamen mi ne ree uzis
@@ -409,9 +315,7 @@ Foje, kiam mi amuzis la imperiestron kaj la kortega-nojn, alvenis rapide sendito
 
 Iuj el ili marŝis ĉirkaŭ ĝi, fine ili staris unuj sur la ŝul-troj de aliaj, kaj tiel suprenrampis sur ĝin, kaj, sin trovinte sur ebena supraĵo, ili piedfrapis kaj eksciis, ke ĝi estas kava interne.
 
-Kredante, ke ĝi apartenas al Homo Monto, ili proponis al la imperiestro venigi ĝin per nur kvin ĉevaloj al la palaco. Mi tuj komprenis, kion ili trovis, kaj ĝojis aŭdi la sciigon. ŝajne kiam mi atingis la bordon post la alveno, mi tiel konfuziĝis, ke mi ne rimarkis, antaŭ alveni al la loko, kie mi dormis, ke mi perdis la ĉapelon. i estis ligita per ŝnureto dum mi remis kaj naĝis, sed eble ĝi falis post la albordiĝo. Mi konjektis, ke la ŝnureto rompiĝis 30
-
-GULIVERO EN LILIPUTO
+Kredante, ke ĝi apartenas al Homo Monto, ili proponis al la imperiestro venigi ĝin per nur kvin ĉevaloj al la palaco. Mi tuj komprenis, kion ili trovis, kaj ĝojis aŭdi la sciigon. ŝajne kiam mi atingis la bordon post la alveno, mi tiel konfuziĝis, ke mi ne rimarkis, antaŭ alveni al la loko, kie mi dormis, ke mi perdis la ĉapelon. i estis ligita per ŝnureto dum mi remis kaj naĝis, sed eble ĝi falis post la albordiĝo. Mi konjektis, ke la ŝnureto rompiĝis
 
 
 akcidente, ne observate de mi, tial mi kredis, ke mi perdis la ĉapelon. kiam mi estis en la maro.
@@ -420,17 +324,12 @@ Mi klarigis al la imperiestro la utilecon de la ĉapelo kaj mi petis lin, ke li 
 
 Post du tagoj la imperiestro volis sin amuzi laŭ stranga maniero. Ordoninte, ke ĉiuj soldatoj loĝantaj en la ĉirkaŭaĵo de la ĉefurbo sin pretigu, li deziris, ke mi staru kun piedoj apartigitaj kiel eble plej vaste. Li tiam ordonis al maljuna generalo, sperta estro kaj mia bona pro-tektanto, ke li formu la soldatojn dense kaj marŝigu ilin sub mi. La infanterio po dudek kvar ĉiuvice, kaj la kavalerio po dek ses marŝis, tamburoj sonoris, standardoj flirtis kaj bataliloj brilis. ĉeestis tri mil el la infanterio kaj mil el la kavalerio.
 
-Mi sendis tiom da petoj al la imperiestro, ke fine li konsiliĝis kun siaj ministroj pri mia liberigo. ĉiuj konsentis krom Skajreŝ Bolgolam, kiu elektis sen ia incite-go esti mia malamiko. Sed la konsilantaro kune kun la imperiestro aprobis malgraŭ li. Skajreŝ estis admiralo, 31
-
-
-GULIVERO EN LILIPUTO
+Mi sendis tiom da petoj al la imperiestro, ke fine li konsiliĝis kun siaj ministroj pri mia liberigo. ĉiuj konsentis krom Skajreŝ Bolgolam, kiu elektis sen ia incite-go esti mia malamiko. Sed la konsilantaro kune kun la imperiestro aprobis malgraŭ li. Skajreŝ estis admiralo,
 
 
 tre estimata kaj konfidata de la imperiestro, ankaŭ li estis kompetentulo, sed li estas malgajema kaj murmu-rema.
 
-Tamen, fine, li konsentis, sed li postulis, ke mi devige ĵuru observi certajn kondiĉojn. Li aranĝis ilin, kaj li mem 32
-
-GULIVERO EN LILIPUTO
+Tamen, fine, li konsentis, sed li postulis, ke mi devige ĵuru observi certajn kondiĉojn. Li aranĝis ilin, kaj li mem
 
 
 kune kun du ministroj kaj kelkaj eminentuloj alportis al mi tiujn kondiĉojn.
@@ -450,9 +349,6 @@ Kiam li faras kapsignon la princoj tremas. Li estas agrabla kiel printempo, komf
 ”Due. Li ne rajtas viziti la ĉefurbon sen nia ordono, tiam la loĝantoj havos averton, ke ili restu dome.
 
 
-GULIVERO EN LILIPUTO
-
-
 ”Trie. La Homo Monto marŝos laŭlonge de la grandaj vojoj, ne flankiĝante ĉu por iri aŭ por kuŝiĝi sur la kampoj.
 
 ”Kvare. Li devas zorgi, ke li ne premu per la piedoj, ĉu la korpojn aŭ ĉevalojn, aŭ veturilojn de niaj amantaj regatoj, kaj ne prenu ilin en siajn manojn sen ilia konsento.
@@ -465,12 +361,7 @@ GULIVERO EN LILIPUTO
 
 ”Oke. En la daŭro de du monatoj la Homo Monto ter-mezuros la insulon, kalkulante siajn paŝojn, ĉirkaŭ la marbordo.
 
-”Fine. Post ĵuro, ke li observos ĉiujn regulojn, oni donos al la Homo Monto nutraĵon sufiĉan por nutri mil sepcent dudek kvar regatoj de nia lando. Li havos la per-34
-
-GULIVERO EN LILIPUTO
-
-
-meson alproksimiĝi al nia Imperiestra Persono kaj aliajn signojn de nia favoro.
+”Fine. Post ĵuro, ke li observos ĉiujn regulojn, oni donos al la Homo Monto nutraĵon sufiĉan por nutri mil sepcent dudek kvar regatoj de nia lando. Li havos la permeson alproksimiĝi al nia Imperiestra Persono kaj aliajn signojn de nia favoro.
 
 ”Subskribita en la palaco de Belfaborak la dekduan tagon de la naŭdekunua monato de nia regado.”
 
@@ -481,10 +372,7 @@ Kredeble plaĉos al la leganto rimarki, ke en la lasta paragrafo la imperiestro 
 Konsekvence, mi bezonos nutraĵon sufiĉan por mil sepcent dudek kvar da ili.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO KVARA
+ĈAPITRO KVARA
 
 Mia unua peto post mia liberiĝo estis permeso viziti la ĉefurbon, Milendon. La imperiestro bonvole konsentis, dirante samtempe, ke mi estu zorgema ne vundi loĝantojn nek difekti domojn. La homoj aŭdis per proklamo pri la vizito.
 
@@ -495,21 +383,13 @@ Flanke de ĝi je ĉiuj tri metroj staras fortegaj turoj. Mi superpaŝis la grand
 La tegmentoj kaj la plej altaj fenestroj estis plenaj de homoj. Mi kredis, ke mi neniam vidis pli multhoman urbon. i estas kvadrata; ĉiu flanko havas la longon de cent kvindek metroj. Du grandaj stratoj, kies larĝo estas unu metro kaj duono, apartigas ĝin kvarone.
 
 
-GULIVERO EN LILIPUTO
-
-
 La vojoj kaj stratoj, kiujn mi vidis, sed sur kiujn mi ne povis marŝi, havas larĝecon de tridek centimetroj. Kvincent mil homoj povas loĝi en la urbo. La domoj havas po tri ĝis kvin etaĝojn, la butikoj kaj vendejoj estas plenaj je provizaĵoj.
 
 La palaco de la imperiestro staras meze de la urbo, kie la du grandaj stratoj interkruciĝas. i estas ĉirkaŭata per muroj sesdek centimetrojn altaj kaj ses metrojn for de la palaco mem. La imperiestro permesis al mi transpaŝi tiun muron, kaj pro la vasteco de la loko, mi facile povis vidi ĉion. La ekstera korto estas kvadrato, kies ĉiu flanko havas la longecon de dek du metroj.
 
-i enhavas du aliajn kortojn. En la plej malgranda troviĝas la imperiestra loĝejo, kiun mi tre deziris vidi. Sed estis tre malfacile tion fari, ĉar la grandaj pordegoj havis la altecon de nur kvardek kvin centimetroj kaj la lar-
-
-ĝecon de dek ok. Nu, la konstruaĵoj de la ekstera korto havis almenaŭ unu metron kaj dudek kvin centimetrojn da alteco, ne estis eble por mi transpasi ilin sen difekti ion, kvankam la muroj estis konstruitaj el ĉizita ŝtono.
+i enhavas du aliajn kortojn. En la plej malgranda troviĝas la imperiestra loĝejo, kiun mi tre deziris vidi. Sed estis tre malfacile tion fari, ĉar la grandaj pordegoj havis la altecon de nur kvardek kvin centimetroj kaj la larĝecon de dek ok. Nu, la konstruaĵoj de la ekstera korto havis almenaŭ unu metron kaj dudek kvin centimetrojn da alteco, ne estis eble por mi transpasi ilin sen difekti ion, kvankam la muroj estis konstruitaj el ĉizita ŝtono.
 
 Tamen lia Moŝto volis, ke mi vidu la luksecon de lia palaco. Sed tion mi povis fari nur post tri tagoj. Irinte en la imperiestran parkon kaj tranĉinte du el la plej grandaj tieaj arboj, per mia poŝtranĉilo mi faris du skabelojn, kies alteco estis unu metro, kaj de sufiĉa forteco por subteni min.
-
-
-GULIVERO EN LILIPUTO
 
 
 Denove oni avertis la loĝantojn, mi remarŝis tra la urbo al la palaco, portante la du benketojn en la mano.
@@ -522,9 +402,7 @@ Du semajnoj post mia liberigo, Reldresal, ĉefa ministro por privataj aferoj, ve
 
 Tion mi bonvole faris, ĉar li estis ministro grava kaj honesta, kaj li foje helpis min ĉe la imperiestro.
 
-Mi proponis kuŝiĝi, tiel ke li atingu pli facile mian ore-lon, sed li preferis esti suprenlevita de mi kaj tenata en mia mano dum nia interparolado. Komencante li gratu-lis pri mia liberiĝo kaj diris, ke eble li helpis min. Sed li 38
-
-GULIVERO EN LILIPUTO
+Mi proponis kuŝiĝi, tiel ke li atingu pli facile mian ore-lon, sed li preferis esti suprenlevita de mi kaj tenata en mia mano dum nia interparolado. Komencante li gratu-lis pri mia liberiĝo kaj diris, ke eble li helpis min. Sed li
 
 
 aldonis, ke se ne estus pro la nuna stato de aferoj en la kortego, eble mi ne estus atinginta ĝin tiel frue. ĉar li diris: ”Ni ŝajnas prosperaj al fremduloj, sed ni suferas de du malbonoj, tio estas hejma malpaco, kaj la timo de fremdaj malamikoj.
@@ -537,24 +415,15 @@ Efektive oni pretendas, ke estas la altkalkanumuloj, kies opinioj plej bone akor
 
 La Trameksanuloj estas plej multaj, sed la potenco estas tute nia. Ni timas, ke lia Moŝto la heredonto inkliniĝas al la Trameksanoj, almenaŭ unu el liaj kalkanumoj estas pli alta ol la alia. Kaŭze de tio li marŝas nerekte.
 
-”Plie, ni estas minacataj per milito el la insulo Blefusku. Tio estas la alia granda imperio de la tutmondo, preskaŭ tiel granda kaj potenca kiel la nia. ĉar pri tio, kion vi diras pri aliaj ŝtatoj sur la mondo enhavantaj homojn 39
-
-GULIVERO EN LILIPUTO
+”Plie, ni estas minacataj per milito el la insulo Blefusku. Tio estas la alia granda imperio de la tutmondo, preskaŭ tiel granda kaj potenca kiel la nia. ĉar pri tio, kion vi diras pri aliaj ŝtatoj sur la mondo enhavantaj homojn
 
 
-tiel grandajn kiel vi, niaj saĝuloj multe dubas, pli volonte kredante, ke vi falis el la luno aŭ steloj, ĉar niaj histori-aj skribaĵoj de ses mil monatoj ne nomas ian landon krom Liliputo kaj Blefusku. Tiuj du potencaj regnoj sen-
+tiel grandajn kiel vi, niaj saĝuloj multe dubas, pli volonte kredante, ke vi falis el la luno aŭ steloj, ĉar niaj histori-aj skribaĵoj de ses mil monatoj ne nomas ian landon krom Liliputo kaj Blefusku. Tiuj du potencaj regnoj senĉese interbatalis en la daŭro de tridek ses monatoj.
 
-ĉese interbatalis en la daŭro de tridek ses monatoj.
-
-”Mi nun rakontos al vi kiel la milito komenciĝis. ĉiuj konfesas, ke la malnova maniero manĝi ovojn estis rompi ilin ĉe la larĝa fino. Tamen iam okazis, ke la avo de la nuna imperiestro, estante knabo, rompis ovon por man-
-
-ĝi ĝin laŭ la tiama kutimo ĉe la larĝa fino kaj tranĉis sian fingron. Tial la imperiestra patro dissendis ordonon ke, sub minaco de granda puno, ĉiuj regnanoj rompu la mallarĝajn finojn de siaj ovoj. La homoj tiel ofendiĝis pri tio, ke ses ribeloj okazis, per kiuj unu imperiestro perdis la vivon, alia la kronon. Tiuj ĉi malfeliĉoj estis ĉiam in-citataj de la monar˛oj de Blefusku, kaj ĉe ilia kvietigo la ekzilitoj rifuĝis al tiu insulo.
+”Mi nun rakontos al vi kiel la milito komenciĝis. ĉiuj konfesas, ke la malnova maniero manĝi ovojn estis rompi ilin ĉe la larĝa fino. Tamen iam okazis, ke la avo de la nuna imperiestro, estante knabo, rompis ovon por manĝi ĝin laŭ la tiama kutimo ĉe la larĝa fino kaj tranĉis sian fingron. Tial la imperiestra patro dissendis ordonon ke, sub minaco de granda puno, ĉiuj regnanoj rompu la mallarĝajn finojn de siaj ovoj. La homoj tiel ofendiĝis pri tio, ke ses ribeloj okazis, per kiuj unu imperiestro perdis la vivon, alia la kronon. Tiuj ĉi malfeliĉoj estis ĉiam in-citataj de la monar˛oj de Blefusku, kaj ĉe ilia kvietigo la ekzilitoj rifuĝis al tiu insulo.
 
 
 finuloj kaj ili ne povas labori por la ŝtato. Sed ili estas favorataj ĉe la kortego de la imperiestro de Blefusku. Ili ankaŭ ricevas helpon de siaj samideanoj en Liliputo kaj sanga milito okazas dum tridek monatoj.
-
-
-GULIVERO EN LILIPUTO
 
 
 ”Kelkfoje ni sukcesas, sed ne ĉiam. Ni jam perdis kvardek grandajn militŝipojn kaj multajn malgrandajn, kune kun tridek mil lertaj maristoj kaj soldatoj. La mal-utilo okazinta al la malamiko estas kalkulata esti iom pli granda ol nia. Tamen ili havas nun grandan militŝiparon kaj sin preparas por veni tien ĉi. Lia imperiestra Moŝto, kredante ke vi estas kuraĝa kaj forta, ordonis al mi montri al vi la aferon.”
@@ -564,10 +433,7 @@ Mi proponis mian humilan servon, kaj mi petis la sekretarion doni mian respektpl
 Sed mi estis preta, sen timi ion, protekti lian Moŝton kaj regnon kontraŭ ĉiu.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO KVINA
+ĈAPITRO KVINA
 
 La insula regno de Blefusku kuŝas norde de Liliputo.
 
@@ -578,9 +444,6 @@ Mi komunikis al lia Moŝto projekton, kiun mi elpen-sis, por kapti la tutan mili
 Poste mi revenis hejmen kaj petis, ke oni donu al mi kvanton da forta ŝnuraĵo kaj feraj stangoj, kiuj similis trikilojn. Mi plektis la ŝnuregojn trioble por plifortigi ilin.
 
 
-GULIVERO EN LILIPUTO
-
-
 Mi ankaŭ kuntordis ĉiujn ferajn stangojn triope kaj je la fino de ĉiu triobla stango mi formis hokon.
 
 Fiksinte kvindek hokojn al tiom da ŝnuregoj, mi reiris al la nordorienta marbordo, formetis la surtuton, ŝuojn kaj ŝtrumpojn kaj eniris la maron je duonhoro antaŭ altmaro. Mi vadis kiel eble plej rapide, meze de la kanalo mi naĝis proksimume tridek metrojn, ĝis mi povis tuŝi la teron. Mi alvenis al la ŝiparo post malpli ol duonhoro.
@@ -589,18 +452,10 @@ La malamikoj estis tiel timigitaj, kiam ili vidis min, ke ili elsaltis el la ŝi
 
 Mia plej granda timo estis pri la okuloj, kiujn mi preskaŭ perdis; sed, mi memoris miajn okulvitrojn, kiuj, kiel mi antaŭe diris, estis en la kaŝita poŝo ne trovita de la serĉantoj. Mi elprenis ilin kaj ligis ilin sur la vizaĝon, kaj tiel protektite mi daŭrigis la laboron sen atenti, ke la sagoj ofte frapis la vitrojn senefike. Mi estis liginta ĉiu-jn hokojn; preninte do la ligotuberon per la mano, mi penis fortiri la ŝipojn.
 
-Sed mi malsukcesis movi eĉ unu. ĉar ĉiuj estis ankritaj, la plej malfacila parto de mia entrepreno restis. Las-inte la fadenojn sen depreni la hokojn de la ŝipoj, mi 43
+Sed mi malsukcesis movi eĉ unu. ĉar ĉiuj estis ankritaj, la plej malfacila parto de mia entrepreno restis. Las-inte la fadenojn sen depreni la hokojn de la ŝipoj, mi
 
 
-GULIVERO EN LILIPUTO
-
-
-tratranĉis la ankrajn ŝnuregojn per la poŝtranĉilo, rice-vante samtempe centojn da sagoj en la manojn kaj viza-
-
-ĝon. Tiam, repreninte la fadenojn, mi facile fortiris la plej grandajn ŝipojn de la malamikoj.
-
-
-GULIVERO EN LILIPUTO
+tratranĉis la ankrajn ŝnuregojn per la poŝtranĉilo, rice-vante samtempe centojn da sagoj en la manojn kaj vizaĝon. Tiam, repreninte la fadenojn, mi facile fortiris la plej grandajn ŝipojn de la malamikoj.
 
 
 La Blefuskanoj ne povis imagi, kion mi intencis fari; ili estis tute mirigitaj. Ili supozis, ke mi volis nur malligi la ŝipojn, sed kiam ili vidis, ke mi tranĉis la ŝnuregojn por fortiri ilin, ili ellasis grandan krion de ĉagreno kaj male-spero; ĝi estas nepriskribebla!
@@ -609,25 +464,16 @@ Foririnte el danĝero, mi haltis por elŝiri la sagojn, kiuj pikvundis min, kaj 
 
 Lia imperiestra Moŝto kaj la tuta kortego staris sur la marbordo, atendante la rezulton de tiu aventuro. Ili vidis, ke la ŝipoj antaŭen vojaĝas en la formo de novluno, sed ili ne povis vidi min, ĉar mi estis subakvigita ĝis la brusto. Kiam mi atingis la plej profundan lokon, ili timis plu, ĉar mi subakviĝis ĝis la kolo.
 
-Lia Moŝto kredis, ke mi dronis kaj ke la ŝipoj de la malamikoj alvenas batale. Sed li baldaŭ rekuraĝiĝis, ĉar la akvo fariĝis malpli profunda je ĉiu paŝo, kiun mi faris. Baldaŭ ili povis vidi min kaj mi levis supren la ligotuberon de la ŝnuroj, kiuj kunligis la ŝipojn. Mi kriis laŭ-
-
-te: ”Vivu la potenca imperiestro de Liliputo!” Tiu ĉi granda potenculo gracie renkontis min, kaj kun multe da laŭdo li faris min ”Nardako”, kio estas la plej alta ran-go en lia lando.
+Lia Moŝto kredis, ke mi dronis kaj ke la ŝipoj de la malamikoj alvenas batale. Sed li baldaŭ rekuraĝiĝis, ĉar la akvo fariĝis malpli profunda je ĉiu paŝo, kiun mi faris. Baldaŭ ili povis vidi min kaj mi levis supren la ligotuberon de la ŝnuroj, kiuj kunligis la ŝipojn. Mi kriis laŭte: ”Vivu la potenca imperiestro de Liliputo!” Tiu ĉi granda potenculo gracie renkontis min, kaj kun multe da laŭdo li faris min ”Nardako”, kio estas la plej alta ran-go en lia lando.
 
 
-GULIVERO EN LILIPUTO
-
-
-Lia Moŝto deziris, ke mi provu tiri la aliajn ŝipojn de la malamikoj al liaj havenoj. Tiel senlima estas la ambi-cio de princoj, ke li ŝajne eĉ pripensis la venkon de la tuta regno Blefusku por igi ĝin provinco regata de vic-reĝo. Li intencis mortigi la ekzilitojn kaj devigi ĉiujn homojn rompi la mallarĝajn finojn de siaj ovoj, kaj tiel fari-
-
-ĝi la sola monar˛o de la tuta mondo. Mi penis ŝanĝi lian intencon per multe da argumentoj egale de la saĝeco kaj de la justeco. Mi malkaŝe diris, ke mi neniam helpos ne-niigi la liberecon de bravaj homoj.
+Lia Moŝto deziris, ke mi provu tiri la aliajn ŝipojn de la malamikoj al liaj havenoj. Tiel senlima estas la ambi-cio de princoj, ke li ŝajne eĉ pripensis la venkon de la tuta regno Blefusku por igi ĝin provinco regata de vic-reĝo. Li intencis mortigi la ekzilitojn kaj devigi ĉiujn homojn rompi la mallarĝajn finojn de siaj ovoj, kaj tiel fariĝi la sola monar˛o de la tuta mondo. Mi penis ŝanĝi lian intencon per multe da argumentoj egale de la saĝeco kaj de la justeco. Mi malkaŝe diris, ke mi neniam helpos ne-niigi la liberecon de bravaj homoj.
 
 La plej saĝaj ministroj de la konsilantaro konsentis kun mi pri tio. Mia malkaŝa, memkonfida deklaracio tiel kontraŭis la projektojn de la imperiestro, ke li neniam pardonis al mi. Li parolis ruze pri mia opinio ĉe la konsilantaro. Mi eksciis poste, ke iuj, per silento, ŝajnis konsenti kun mi, sed aliaj, kiuj estis miaj malamikoj, ellasis parolojn, kiuj nerekte malutilis min.
 
 Post tri semajnoj alvenis ambasadoraro el Blefusku, por proponi humile pacon. ĉio finiĝis feliĉe por nia imperiestro laŭ kondiĉoj, kiujn mi ne rakontos. Ses ambasadoroj alvenis kun sekvantaro de kvincent viroj. La eni-ro estis tre impona, kiel taŭgis por la okazo.
 
-Fininte la interkonsenton kaj aŭdinte iel pri mia bonvolo al ili, la senditoj vizitis min, laŭdante mian kuraĝon kaj grandanimecon. Ili invitis min viziti ilian insulon, dirante, ke ilia imperiestro tiel ordonis al ili. Tio, kion oni 46
-
-GULIVERO EN LILIPUTO
+Fininte la interkonsenton kaj aŭdinte iel pri mia bonvolo al ili, la senditoj vizitis min, laŭdante mian kuraĝon kaj grandanimecon. Ili invitis min viziti ilian insulon, dirante, ke ilia imperiestro tiel ordonis al ili. Tio, kion oni
 
 
 rakontis pri mi, mirigis ilin. Ili postulis, ke mi montru mian vastegan fortecon. Mi donis la pruvojn, kiujn ili petis de mi.
@@ -635,10 +481,7 @@ rakontis pri mi, mirigis ilin. Ili postulis, ke mi montru mian vastegan fortecon
 Poste ili amuzis sin longe. Mi regalis ilin je ilia grandega kontentigo kaj miro. Mi petis ilin honori min per la prezento de miaj humilaj salutoj al la imperiestro, ilia mastro, kies famo plenigis la tutan mondon. Sekve, mi petis permeson viziti la imperiestron Blefuskan. La imperiestro konsentis, sed mi rimarkis klare, ke la propo-no ne plaĉis al li. La kaŭzon mi ne komprenis, ĝis iu sciigis min, ke Flimnap kaj Bolgolam parolis false al li pri miaj rilatoj kun la ambasadoroj, dirante, ke mi estas malfidela al li. Sed pri tio mi estis tute senkulpa.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO SESA
+ĈAPITRO SESA
 
 Mi skribos kelkajn vortojn pri la liliputanoj kaj iliaj leĝoj kaj kutimoj. Tiuj etuloj estas tre lertaj kaj ili lernas diligente. Kiam iu el ili mortas, oni enteri-gas la korpon kun la piedoj supre, ĉar ili kredas, ke la mortintoj reviviĝos je la lasta tago. Sed antaŭ tiu tempo la mondo renversiĝos, kaj tial la mortintoj estos ree sur la piedoj, pretaj por marŝi.
 
@@ -646,9 +489,7 @@ Kelke da iliaj leĝoj estas iom strangaj kompare kun la niaj. Malveremo kaj trom
 
 Ankaŭ se iu havas monon, kiun li promesis gardi, kaj perdas ĝin pro malzorgemo aŭ elspezas ĝin, li estas kri-mulo. La leĝo postulas ne nur, ke la kulpuloj estu puna-taj, sed ke la senkulpuloj estu rekompencitaj. Tiu, kiu kondutas bone dum tuta jaro ricevos monon kaj favoron de la imperiestro.
 
-La statuo de la diino Justeco en la juĝejo havas mal-fermitajn okulojn, du antaŭe, du malantaŭe, kaj po du 48
-
-GULIVERO EN LILIPUTO
+La statuo de la diino Justeco en la juĝejo havas mal-fermitajn okulojn, du antaŭe, du malantaŭe, kaj po du
 
 
 dekstre kaj maldekstre de la kapo. Per tio oni volas signi, ke la diino povas vidi ĉie kaj ĉiel. ŝi tenas malfermi-tan sakon da oro en la dekstra mano, glavon en la ingo en la maldekstra. Tio signifas, ke ŝi preferas rekompenci el la malfermita sako ol puni per la glavo.
@@ -659,9 +500,7 @@ La imperiestro, volante montri specialan favoron aŭ nomi al ofico, ne elektas l
 
 Liliputo havas tri gimnaziojn. ĉiu infano devas iri en la lernejojn. ĉiu estas edukata bone kaj lernas fariĝi honorinda, brava kaj verema. Al la vartistinoj estas mal-permesate rakonti al la infanoj malsaĝajn kaj harstari-gajn fabelojn. Se ili rakontas tiajn, ili estas batataj per la vipo kaj estas sendataj al senkunula loko.
 
-Nun mi skribos al vi pri mia vivo inter tiuj strangaj liliputanoj. Mi fabrikis tablon kaj seĝon el la plej alta arbo en la imperiestra parko. Ducent kudristinoj sin okupis por fari miajn ĉemizojn kaj la tolaĵon por mia lito 49
-
-GULIVERO EN LILIPUTO
+Nun mi skribos al vi pri mia vivo inter tiuj strangaj liliputanoj. Mi fabrikis tablon kaj seĝon el la plej alta arbo en la imperiestra parko. Ducent kudristinoj sin okupis por fari miajn ĉemizojn kaj la tolaĵon por mia lito
 
 
 kaj tablo. Ili uzis la plej dikan kaj maldelikatan tolon, kiu troviĝis en la insulo. Eĉ ili kudris kelke da faldoj kune por plifortigi ĝin.
@@ -674,9 +513,7 @@ Aliamaniere la tricent tajloroj, kiuj fabrikis miajn vestojn, mezuris min. Mi st
 
 La plej granda peco de tuko havis nur la grandecon de metro de larĝa rubando; miaj vestoj aspektis kiel flikaĵo, sed samkolora.
 
-Tricent kuiristoj pretigis mian nutraĵon kaj ĉiu kuiris sufiĉan por du pladoj. Kiam mi estis preta por manĝi, mi levis dudek kelnerojn en la mano kaj starigis ilin sur la tablon. Cent restis tere por venigi manĝaĵojn kaj barelojn da vino. La kelneroj sur la tablo suprentiris ĉion per fadenoj, same kiel mi levas sitelon el puto. Unu kuirpeco ordinare sufiĉas por unu plenbuŝo. Unufoje mi eĉ 50
-
-GULIVERO EN LILIPUTO
+Tricent kuiristoj pretigis mian nutraĵon kaj ĉiu kuiris sufiĉan por du pladoj. Kiam mi estis preta por manĝi, mi levis dudek kelnerojn en la mano kaj starigis ilin sur la tablon. Cent restis tere por venigi manĝaĵojn kaj barelojn da vino. La kelneroj sur la tablo suprentiris ĉion per fadenoj, same kiel mi levas sitelon el puto. Unu kuirpeco ordinare sufiĉas por unu plenbuŝo. Unufoje mi eĉ
 
 
 manĝis lumbon de bovo tiel grandan, ke mi devis mor-di trifoje. Mi neniam manĝis alian tiel grandan. Ankaŭ la anserojn kaj meleagrojn mi manĝis per unufoja gluto. La malgrandajn birdojn mi manĝis po dudek sur la fino de mia tranĉilo; mi ne havis forkon.
@@ -692,10 +529,7 @@ Multe da sinjorinoj kaj nobeloj alveturis por viziti min. Kiam ili venis, mi lev
 Ofte kvar veturiloj, plenaj je homoj, estis sur la tablo samtempe. Sidante sur mia seĝo, mi kliniĝis por paroli al miaj gastoj. Dum mi babilis kun la areto en unu ka-leŝo, la veturigistoj de la aliaj malrapide ĉirkaŭiris sur la supro de la tablo.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO SEPA
+ĈAPITRO SEPA
 
 Nun mi volas skribi pri konspiro, kiun oni faris kontraŭ mi en Liliputo. Iun tagon, pretiĝante por viziti la imperiestron de Blefusku, mi aŭdis, ke iu nobelo venis al mia domo. Sen diri sian nomon, li petis interparoli kun mi. Elirinte, mi suprenprenis lian Moŝton. Mi ordonis al miaj servistoj diri, ke mi iris kuŝi kaj ke ili ne rajtas veki min.
 
@@ -707,21 +541,13 @@ Nu, ĉar mi kredas, ke ili agas maljuste, kaj ĉar vi ĉiam montris al mi bonon 
 
 ”Jen estas kopio de la kulpigoj redaktitaj kontraŭ vi.”
 
-Tuj li montris peceton da papero, kies grandeco egalis tiun de niaj poŝtmarkoj, kaj malferminte ĝin, legis laŭ-
-
-
-GULIVERO EN LILIPUTO
-
-
-te la jenon: ”La Homo Monto estas akuzata pri malobeo de la esprimitaj ordonoj de Lia Imperiestra Moŝto, kiu petis, ke la Homo Monto ekkaptu la tutan ŝiparon, kiu apartenas al la Imperio de Blefusku, ke li helpu venki tiun insulon kaj sklavigi la loĝantojn kaj mortigi ĉiujn, kiuj rompas siajn ovojn je la mallarĝa fino. Al tiu propo-no la Homo Monto malkonsentis. Li estas kulpa, ĉar li malobeis tiun ordonon de Lia Imperiestra Moŝto.
+Tuj li montris peceton da papero, kies grandeco egalis tiun de niaj poŝtmarkoj, kaj malferminte ĝin, legis laŭte la jenon: ”La Homo Monto estas akuzata pri malobeo de la esprimitaj ordonoj de Lia Imperiestra Moŝto, kiu petis, ke la Homo Monto ekkaptu la tutan ŝiparon, kiu apartenas al la Imperio de Blefusku, ke li helpu venki tiun insulon kaj sklavigi la loĝantojn kaj mortigi ĉiujn, kiuj rompas siajn ovojn je la mallarĝa fino. Al tiu propo-no la Homo Monto malkonsentis. Li estas kulpa, ĉar li malobeis tiun ordonon de Lia Imperiestra Moŝto.
 
 ”Ankaŭ ni akuzas la Homon Monton, ke li akceptis amike la senditojn de la kortego de Blefusku, kiuj estis antaŭ nelonge malkaŝaj malamikoj de Liliputo. Fine, la Homo Monto pretigis sin por viziti la insulon de Blefusku. Vere, Lia Imperiestra Moŝto konsentis al tiu vizito, sed ni kulpigas la Homon Monton pri la intenco helpi la Imperiestron de Blefusku militi kontraŭ nia insulo.”
 
 ”ĉu vi komprenas,” daŭrigis la nobelo, faldante la pa-peron, ”pri kio vi estas kulpigata? Unue, mi devas diri al vi, ke lia imperiestra Moŝto diris al la ministroj, ke kompato devas esti montrata al vi pro la servoj, kiujn vi faris por ni. Sed Skajreŝ kaj la aliaj nobeloj postulis, ke vi estu mortigata kruele. Aŭ oni ekbruligos vian domon dum via dormado, aŭ dudek mil viroj pafos al vi vene-najn sagojn.
 
-”Sed la imperiestro decidis, ke vi ne estu mortigota. Li demandis la opinion de Reldresal, kiu havas ĉiam amikecon por vi; li opiniis jene. Reldresal konsentis pri viaj 53
-
-GULIVERO EN LILIPUTO
+”Sed la imperiestro decidis, ke vi ne estu mortigota. Li demandis la opinion de Reldresal, kiu havas ĉiam amikecon por vi; li opiniis jene. Reldresal konsentis pri viaj
 
 
 grandaj krimoj, sed li opiniis ke, ĉar vi estas utila, vi me-ritas, ke oni montru kompaton, kaj rigardante viajn ser-vojn, li konsilis, ke oni ne mortigu, sed nur blindigu vin.
@@ -735,18 +561,13 @@ Tiel la postuloj de la justeco estos plenumitaj. Tiamaniere li agos juste.
 Li diris, ke, ĉar la ministroj opiniis ne sufiĉa la punon de blindigo, alia puno devas esti trovota. Reldresal denove parolis; li diris, ke, ĉar estis tiel multkoste nutri vin, estus puno tre konvena, se vi ricevus ĉiam malpli kaj malpli da nutraĵo, ĝis vi mortos pro malsato. Tiu metodo estus ŝparema. Tuj post via morto kvin aŭ ses mil regnanoj devus detranĉi la karnon de viaj ostoj, forporti la pecojn en veturiloj kaj enterigi ilin en diversaj lokoj de la insulo. La skeleto devus stari kiel monumento kaj admiraĵo por ĉiuj rigardontoj. ĉiuj konsentis, sed decidis fari ĉion sekrete.
 
 
-GULIVERO EN LILIPUTO
-
-
 ”Post tri tagoj Reldresal venos tien ĉi por legi tiujn ĉi kulpigojn, kiujn mi ĵus legis, kaj por diri al vi, ke laŭ la ordono de la imperiestro vi devas esti blindigita. Dudek kirurgoj de lia Moŝto pafos tre akrajn sagojn en viajn okulojn, dum vi kuŝos sur la tero. Jen mi rakontis al vi ĉion, kion vi devas atendi, kaj vi agu laŭ via volo. ĉar neniu rajtas ekscii, ke mi vizitis vin, mi reiros en la kortegon kiel eble plej sekrete.” Tuj li foriris kaj mi restis duba kaj maltrankvila.
 
 Mi pripensis, kion mi devas fari. Preskaŭ mi decidis uzi mian forton, ĉar, havante liberecon, mi povis venki facile ĉiujn etulojn kaj ruinigi la urbon per ŝtonoj. Sed tio ne estus honorinda, ĉar mi ĵuris, ke mi ne faros mal-utilon al la insulo kaj la loĝantoj. Kvankam la imperiestro estis maljusta kaj kruela kontraŭ mi, mi opiniis, ke mi ne rajtas rompi mian promeson.
 
 Fine mi decidis, kion mi devas fari. Havante la permeson de la imperiestro viziti la insulon de Blefusku, mi pretigis ĉion por tien iri. Mi sendis leteron al Reldresal por sciigi lin, ke mi intencas vojaĝi al Blefusku, laŭ la permeso donita al mi de la imperiestro, kaj mi aldonis, ke mi foriros hodiaŭ matene.
 
-Senprokraste mi iris al la rando de la insulo, kie estis la ŝiparo. Mi kaptis grandan militŝipon kaj ligis ŝnuron al ĝi. Mi senvestigis min kaj metis la vestojn sur la ŝipon, kaj marŝante en la maro, mi tiris la ŝipon post mi. Tiel 55
-
-GULIVERO EN LILIPUTO
+Senprokraste mi iris al la rando de la insulo, kie estis la ŝiparo. Mi kaptis grandan militŝipon kaj ligis ŝnuron al ĝi. Mi senvestigis min kaj metis la vestojn sur la ŝipon, kaj marŝante en la maro, mi tiris la ŝipon post mi. Tiel
 
 
 vadante kaj naĝante mi transiris la kanalon kaj atingis la havenon de Blefusku. Mi estis atendata, kaj la homoj ŝajnis kontentaj min vidi. Ili sendis du gvidantojn kun mi al la ĉefurbo. Tiujn virojn mi tenis en la mano, dum ili gvidis min laŭlonge de la vojoj.
@@ -756,10 +577,7 @@ Atinginte la pordegojn de la urbo, mi metis ilin sur la teron, kaj petis ilin, k
 Mi devis dormi sur la tero, kovrita de mantelo.
 
 
-GULIVERO EN LILIPUTO
-
-
-ĉAPITRO OKA
+ĈAPITRO OKA
 
 Tri tagojn post mia alveno en Blefusku, mi marŝis laŭlonge de la marbordo, kiam subite mi ekvidis ion sur la maro, kio similis boaton renversitan.
 
@@ -769,19 +587,9 @@ Mi rapide reiris al la bordo kaj marŝis al la urbo por peti, ke lia Moŝto bonv
 
 La imperiestro konsentis kaj la ŝiparo veturis al la loko, kie mi trovis la boaton.
 
-Mi ree vadis en la maron. La marfluo estis pelinta la boaton pli proksimen al la bordo. La maristoj havis ŝnureton torditan kvaroble kaj fortigitan. Mi piediris kiel eble plej proksimen al la boato kaj poste naĝis al ĝi. La maristoj ĵetis al mi la ŝnureton kaj per ĝi mi ligis la boaton al la militŝipo. Irante post la boato, mi naĝis kaj pu-
+Mi ree vadis en la maron. La marfluo estis pelinta la boaton pli proksimen al la bordo. La maristoj havis ŝnureton torditan kvaroble kaj fortigitan. Mi piediris kiel eble plej proksimen al la boato kaj poste naĝis al ĝi. La maristoj ĵetis al mi la ŝnureton kaj per ĝi mi ligis la boaton al la militŝipo. Irante post la boato, mi naĝis kaj puŝis, ĝis mi povis meti piedon sur la fundon de la maro, kaj post nelonge atingis teron kune kun la boato.
 
-ŝis, ĝis mi povis meti piedon sur la fundon de la maro, kaj post nelonge atingis teron kune kun la boato.
-
-Dumil viroj per ŝnuroj kaj maŝinoj helpis min renver-se rektigi la boaton. i estis bonstata kaj mi laboris mul-57
-
-
-GULIVERO EN LILIPUTO
-
-
-tajn tagojn farante remilojn kaj pretigante la boaton por veturi. La homoj de Blefusku venis kaj rigardis mirigitaj, ĉar la boato estis tiel granda! Mi diris al la imperiestro, ke bonŝanco donis al mi tiun boaton por forporti min al iu loko, de kie mi eble povos reiri al mia patrujo. Mi pe-58
-
-GULIVERO EN LILIPUTO
+Dumil viroj per ŝnuroj kaj maŝinoj helpis min renver-se rektigi la boaton. i estis bonstata kaj mi laboris multajn tagojn farante remilojn kaj pretigante la boaton por veturi. La homoj de Blefusku venis kaj rigardis mirigitaj, ĉar la boato estis tiel granda! Mi diris al la imperiestro, ke bonŝanco donis al mi tiun boaton por forporti min al iu loko, de kie mi eble povos reiri al mia patrujo. Mi pe-58
 
 
 tis, ke li permesu al mi provizi la boaton per necesaĵoj, kaj ankaŭ ke li donu al mi permeson foriri, kiam ĉio estos preta. Tion lia Moŝto bonkore konsentis al mi.
@@ -790,9 +598,7 @@ tis, ke li permesu al mi provizi la boaton per necesaĵoj, kaj ankaŭ ke li donu
 
 Tiu sendito rakontis al lia Imperiestra Moŝto mian kulpigon kaj pri la kompatema puno, kiun mi devas ricevi. Li diris, ke mi forkuris de justeco, kaj se mi ne revenos post du horoj, mi estos mortkondamnita. La imperiestro de Liliputo atendis, ke lia frato, la imperiestro de Blefusku, min malliberigu kaj li sendu min ligitan mane kaj piede al Liliputo.
 
-Lia Moŝto pripensis dum tri tagoj, tiam li ĝentile petis, ke oni pardonu al li, se li ne agos laŭ la deziro de la imperiestro de Liliputo. Ankaŭ, ke oni devas scii, ke ne estus eble ligi min, ĉar mi ankoraŭ havas la uzon de miaj membroj. Plue ke, kvankam forpreninte la ŝiparon, mi tamen montris al li bonkorecon kaj bonvolon alimanie-re, pro tio li povus esti kontenta pri mi, ĉar mi trovis boategon, sufiĉe grandan por porti min sur la maro, ke li permesis min provizi ĝin per iloj. Ke post ne longe mi 59
-
-GULIVERO EN LILIPUTO
+Lia Moŝto pripensis dum tri tagoj, tiam li ĝentile petis, ke oni pardonu al li, se li ne agos laŭ la deziro de la imperiestro de Liliputo. Ankaŭ, ke oni devas scii, ke ne estus eble ligi min, ĉar mi ankoraŭ havas la uzon de miaj membroj. Plue ke, kvankam forpreninte la ŝiparon, mi tamen montris al li bonkorecon kaj bonvolon alimanie-re, pro tio li povus esti kontenta pri mi, ĉar mi trovis boategon, sufiĉe grandan por porti min sur la maro, ke li permesis min provizi ĝin per iloj. Ke post ne longe mi
 
 
 forveturos kaj tiel forprenos de ambaŭ insuloj grande-gan malhelpaĵon kaj malfacilaĵon.
@@ -803,12 +609,7 @@ Mi rapide pretigis la boaton por foriri kaj la homoj, kiuj deziris sin liberigi 
 
 Mi ŝmiris la boaton per la graso de tri cent bovoj. Mi tranĉis kelkajn el la plej grandaj arboj por fari remilojn kaj mastojn. La ĉarpentistoj de la imperiestro helpis min glatigi ilin.
 
-Post monato mi sendis mesaĝon al la imperiestro por diri, ke ĉio estas preta kaj ke mi deziras la honoron vidi lin por adiaŭi. Iliaj Moŝtoj eliris el la palaco kaj permesis min kisi la manojn. La imperiestro donacis al mi kvindek monujojn, kiuj enhavis po ducent orajn mone-60
-
-GULIVERO EN LILIPUTO
-
-
-rojn, ankaŭ sian portreton tutfiguran. Mi tuj metis ĝin en mian ganton por gardi ĝin zorge.
+Post monato mi sendis mesaĝon al la imperiestro por diri, ke ĉio estas preta kaj ke mi deziras la honoron vidi lin por adiaŭi. Iliaj Moŝtoj eliris el la palaco kaj permesis min kisi la manojn. La imperiestro donacis al mi kvindek monujojn, kiuj enhavis po ducent orajn monerojn, ankaŭ sian portreton tutfiguran. Mi tuj metis ĝin en mian ganton por gardi ĝin zorge.
 
 Mi metis en la boaton cent bovajn kaj tricent ŝafajn korpojn, kune kun tiom da pano, trinkaĵo kaj kuirita viando, kiom kvarcent kuiristoj povis pretigi por mi.
 
@@ -816,23 +617,13 @@ Mi ankaŭ prenis ses vivantajn bovinojn, du bovojn kaj kvar ŝafojn por montri a
 
 Tiel pretigita mi forveturis la dudekkvaran de majo en la jaro milsepcentunua, je la sesa horo matene. Mi vo-jaĝis longe antaŭ ol mi vidis malgrandan insulon. Atinginte ĝin, mi ĵetis ankron apud la bordo.
 
-Foririnte el la boato, mi venis al la insulo, ĉar mi ne vidis iun ajn signon de loĝanto. Iom manĝinte, mi kuŝi-
-
-ĝis kaj dormis bone. Mi vekiĝis kiam ektagiĝis, mi ma-tenmanĝis sur la boato kaj antaŭ la sunleviĝo mi foriris.
+Foririnte el la boato, mi venis al la insulo, ĉar mi ne vidis iun ajn signon de loĝanto. Iom manĝinte, mi kuŝiĝis kaj dormis bone. Mi vekiĝis kiam ektagiĝis, mi ma-tenmanĝis sur la boato kaj antaŭ la sunleviĝo mi foriris.
 
 Mi vojaĝis la tutan tagon sen eltrovo, sed la sekvan-tan tagon mi vidis la blankajn velojn de malproksima ŝipo antaŭ mi. Mi vokis ĝin, sed neniu respondis. Mi klopodis atingi la ŝipon kaj veninte pli proksimen, mi vokis denove kaj tiam oni aŭdis min kaj respondis. Mi ne povas esprimi mian ĝojon, trovinte la okazon reiri hejmen.
 
-Kiam mi atingis la ŝipon, mi prenis la bestojn kaj, metin-61
+Kiam mi atingis la ŝipon, mi prenis la bestojn kaj, metinte ilin en la poŝon, transiris en la ŝipon. i estis brita komerca ŝipo, kiu revenis de Japanujo.
 
-
-GULIVERO EN LILIPUTO
-
-
-te ilin en la poŝon, transiris en la ŝipon. i estis brita komerca ŝipo, kiu revenis de Japanujo.
-
-La ŝipestro estis bonkora. Unu el la kvindek homoj, kiuj estis en la ŝipo, estis malnova kamarado mia. ĉiu sin montris ĝentila al mi kaj demandis, de kie mi venis kaj 62
-
-GULIVERO EN LILIPUTO
+La ŝipestro estis bonkora. Unu el la kvindek homoj, kiuj estis en la ŝipo, estis malnova kamarado mia. ĉiu sin montris ĝentila al mi kaj demandis, de kie mi venis kaj
 
 
 kien mi iros. Aŭdinte mian rakonton pri Liliputo kaj Blefusku, oni taksis min frenezulo, sed tirinte bovojn kaj ŝafojn el la poŝoj, mi montris ilin al la maristoj, mirigan-te ĉiujn sur la ŝipo. Poste mi montris ankaŭ la monon donitan al mi, kune kun la portreto de la imperiestro de Blefusku.
@@ -848,9 +639,6 @@ Zorginte, ke mia edzino kaj infanoj havu sufiĉe da mono, mi denove adiaŭis kaj
 ”Aventuro,” en kiu mi veturis orienten.
 
 Sed la rakonto pri tiu vojaĝo estos aparta historio.
-
-
-GULIVERO EN LILIPUTO
 
 
 www.omnibus.se/

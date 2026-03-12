@@ -5,36 +5,19 @@ Lando
 de blinduloj
 
 
-### 1
-
 LANDO DE BLINDULOJ
 
 
 H. G. Wells
 
-LANDO DE BLINDULOJ
-
 
 E. W. Amos
-
-
-@omnibus.se
-
-·
-
-
-LANDO DE BLINDULOJ
 
 
 Kvincent kilometrojn de Chimborazo, cent sesdek de la neĝo de Cotopaxi, en la plej sovaĝaj, nekulturitaj regio-noj de la Andoj de Ekvadoro, troviĝas tiu mistera monta valo fortranĉita de la homaro, la Lando de la blinduloj. Antaŭ longe, tiu valo estis tiel malfermita al la mondo, ke homoj povis fine alveni, tra teruraj fendegoj kaj Iaŭ glacia pasejo, al ĝiaj ebenaj kampoj; kaj efektive homoj iris tien, — unu du fami-lioj de Peruaj mestizoj, kiuj forkuris de la avido kaj tiraneco de malbona hispana reganto. Tiam venis la stranga okazaĵo de Mindobamba, kiam estis nokto en Quito dum dek sep tagoj, kaj la akvo bolis en Yaguachi; kaj la fiŝoj flosis mortante eĉ ĝis Guayaquil; ĉie laŭlonge de la Pacifikaj deklivoj okazis terglitoj kaj rapidaj degeloj kaj subitaj inundoj, kaj unu tuta flanko de la antikva montaro de Arauca ekglitis kaj tondre falegis, kaj la Landon de la blinduloj por ĉiam apartigis de la es-plorantaj piedoj de homoj. Sed okazis, ke unu el tiuj ĉi fruaj enmigrintoj estis ĉe la ekstera flanko de la fendegoj kiam la mondo tiel terure skuegis sin, kaj li devis forgesi siajn edzi-non kaj infanon kaj ĉiujn amikojn kaj posedaĵojn, kiujn li lasis tie supre, kaj devis rekomenci sian vivon en la malsupra mondo. Li rekomencis ĝin malbone; blindeco trafis lin, kaj li mortis pro puno en la minejoj; sed lia rakonto naskis legen-don, kiu ankoraŭ hodiaŭ ekzistas laŭlonge de la Cordillera de los Andes.
 
 
-LANDO DE BLINDULOJ
-
-
-Li klarigis, kial li riskis reveni el tiu fortikaĵo, kiun li unue eniris ligite al lamo, flanke de grandega pakaĵo, kiam li estis infano. La valo, li diris, enhavis ĉion, kion povus deziri la ho-ma koro — dolĉan akvon, paŝtejojn, kaj nevarian klimaton, deklivojn el riĉa, bruna tero, kun implikitaj arbustoj, kiuj portis bonegan frukton, kaj ĉe unu flanko kvazaŭ pendis pinar-baregoj, kiuj fortenis la lavangojn. Altege, ĉe tri flankoj, vas-taj krutaĵoj el grizverda roko surportis pliajn krutaĵojn el glacio; tamen, la glacia rivero ne atingis ilin, sed forfluis ĉe la malproksimaj deklivoj, kaj nur malofte grandegaj amasoj da glacio, falis ĉe la vala flanko. En tiu ĉi valo, nek pluvis nek neĝis, sed la abundaj riverfontoj provizis riĉan verdan paŝte-jon, kiun irigaciado povus etendi sur la tutan valon. La enmigrintoj ja vivis bone tie. Iliaj brutoj fartis bone kaj multob-liĝis, kaj nur unu afero malhelpis ilian feliĉon. Stranga malsano atakis ilin kaj blindigis ĉiujn novnaskitojn — kaj efektive ankaŭ multajn pli aĝajn infanojn. Por serĉi ian talismanon aŭ antidoton kontraŭ tiu ĉi pesto de blindeco, li lace, danĝere kaj malfacile revenis tra la fendego. Tiutempe en tiaj okazoj la homoj ne pensis pri mikroboj kaj infektoj, sed pri pekoj; kaj ŝajnis al li, ke la kaŭzo de tiu ĉi aflikto devas esti, ke tiuj ĉi senpasträj enmigrintoj malatentis la starigon de sanktejo tuj kiam ili eniris la valon. Li deziris, ke estu konstruata en la valo ia sanktejo — bela, malmultekosta, efika sanktejo; li deziris relikvojn kaj tiajn potencajn fidaĵojn, benitajn objektojn kaj misterajn medalojn kaj prekojn. En sia monujo li havis pecon da natura arĝento, pri kiu li ne volis doni klarigon; li insistis, kun la insisto de nesperta mensoganto, ke estas neniom en la valo. ĉiuj el ili kunmetis siajn monon kaj ornamaĵojn, havante tie supre malmultan bezonon por tia trezoro, li diris, por aĉeti 4
-
-LANDO DE BLINDULOJ
+Li klarigis, kial li riskis reveni el tiu fortikaĵo, kiun li unue eniris ligite al lamo, flanke de grandega pakaĵo, kiam li estis infano. La valo, li diris, enhavis ĉion, kion povus deziri la ho-ma koro — dolĉan akvon, paŝtejojn, kaj nevarian klimaton, deklivojn el riĉa, bruna tero, kun implikitaj arbustoj, kiuj portis bonegan frukton, kaj ĉe unu flanko kvazaŭ pendis pinar-baregoj, kiuj fortenis la lavangojn. Altege, ĉe tri flankoj, vas-taj krutaĵoj el grizverda roko surportis pliajn krutaĵojn el glacio; tamen, la glacia rivero ne atingis ilin, sed forfluis ĉe la malproksimaj deklivoj, kaj nur malofte grandegaj amasoj da glacio, falis ĉe la vala flanko. En tiu ĉi valo, nek pluvis nek neĝis, sed la abundaj riverfontoj provizis riĉan verdan paŝte-jon, kiun irigaciado povus etendi sur la tutan valon. La enmigrintoj ja vivis bone tie. Iliaj brutoj fartis bone kaj multob-liĝis, kaj nur unu afero malhelpis ilian feliĉon. Stranga malsano atakis ilin kaj blindigis ĉiujn novnaskitojn — kaj efektive ankaŭ multajn pli aĝajn infanojn. Por serĉi ian talismanon aŭ antidoton kontraŭ tiu ĉi pesto de blindeco, li lace, danĝere kaj malfacile revenis tra la fendego. Tiutempe en tiaj okazoj la homoj ne pensis pri mikroboj kaj infektoj, sed pri pekoj; kaj ŝajnis al li, ke la kaŭzo de tiu ĉi aflikto devas esti, ke tiuj ĉi senpasträj enmigrintoj malatentis la starigon de sanktejo tuj kiam ili eniris la valon. Li deziris, ke estu konstruata en la valo ia sanktejo — bela, malmultekosta, efika sanktejo; li deziris relikvojn kaj tiajn potencajn fidaĵojn, benitajn objektojn kaj misterajn medalojn kaj prekojn. En sia monujo li havis pecon da natura arĝento, pri kiu li ne volis doni klarigon; li insistis, kun la insisto de nesperta mensoganto, ke estas neniom en la valo. ĉiuj el ili kunmetis siajn monon kaj ornamaĵojn, havante tie supre malmultan bezonon por tia trezoro, li diris, por aĉeti
 
 
 sanktan helpon kontraŭ sia malfeliĉiĝo. Mi pripensas tiun ĉi blindetan junan montanon, sunbrunigitan, maldikan kaj mal-trankvilan, dum li ekscitite tenis sian ĉapelrandon kaj diris tiun ĉi rakonton al iu akraokula atenta pastro antaŭ ol okazis la granda konvulsio; mi povas imagi kiel li baldaŭ provis reiri kun piaj kaj certaj rimedoj kontraŭ tiu aflikto, kaj la in-tensan malĝojon, kiun li devis sperti, kiam li rigardis la falin-tan vastaĵon, kie antaŭe finiĝis la intermonta fendego. Sed la cetero de lia rakonto pri malbonŝancoj estas nekonata de mi, escepte, ke mi scias pri lia terura morto post kelkaj jaroj.
@@ -43,18 +26,14 @@ Kompatinda vaginto el tiu malproksimo! La rivero, kiu iam faris la fendegon, nun
 
 Kaj inter la malmultnombra loĝantako de tiu nun izola kaj forgesita valo la malsano daŭris. La maljunuloj fariĝis palpan-taj kaj miopaj, la junuloj vidis nur malklare, kaj la novnaskitoj tute neniam vidis. Sed la vivo estis tre facila en tiu neĝo-randa baseno, perdita al la tuta mondo, kiu enhavis nek dor-nojn, nek sovaĝajn arbustojn, nek fiinsektojn, nek iajn be-stojn krom la malsovaĝa raso de lamoj, kiujn ili trenis kaj ŝovis kaj sekvis laŭ la tiuejoj de la mallarĝiĝintaj riveroj, kiujn ili sekvis kiam ili eniris la landon. La vidantoj fariĝis miopaj iom post iom kaj apenaŭ rimarkis sian perdon. Ili gvidis la nevidantajn junulojn tien kaj reen ĝis tiuj mirinde bone konis la tutan valon, kaj kiam fine inter ili formortis la vidpovo, la raso daŭris ekzisti, Ili eĉ havis la tempon por adapti sin al la blinda regado de fajro, kiun ili zorge faris en ŝtonaj fornoj.
 
-Komence ili estis simplaj homoj, nekleraj, nur iomete tuŝitaj 5
-
-LANDO DE BLINDULOJ
+Komence ili estis simplaj homoj, nekleraj, nur iomete tuŝitaj
 
 
 de la hispana civilizado, sed kun iom de la tradicio de la ar-toj de antikva Peruo kaj de ties perdita filozofio. Generacio sekvis generacion. Ili forgesis multajn aferojn; ili elpensis multajn aferojn. Ilia scio pri la pli granda mondo de kie ili venis, fariĝis mita kaj necerta. Pri ĉiuj aferoj, krom la vidado, ili estis fortaj kaj kapablaj; kaj baldaŭ la hazardo de naskiĝo kaj heredo sendis inter ilin iun, kiu havis iniciateman menson, kaj kiu estis elokventa kaj instigema, kaj poste plian. Tiuj ĉi du forpasis, lasante sian influon, kaj la areto kreskis laŭ nombro kaj kompreno, kaj kunvenis por solvi la ekzistantajn sociajn kaj ekonomiajn problemojn. Generacio sekvis generacion. Generacio sekvis generacion. Venis tempo kiam naskiĝis infano, kiu estis en la dek kvina generacio post tiu antaŭulo, kiu iris el la valo kun peco da arĝento por trovi la helpon de Dio, kaj kiu neniam revenis. ĉirkaŭ tiu tempo okazis, ke viro el la ekstera mondo venis inter tiun aron. Kaj jen la rakonto pri tiu viro.
 
 Li estis montgrimpisto de la regiono proksime de Quito, viro kiu jam iris al la maro, kaj kiu vidis la mondon, leganto de libroj laŭ originala maniero, vigla kaj entreprenema viro.
 
-Aro de angloj, kiuj vizitis Ekvadoron por grimpi montojn, dungis lin por anstataŭi iun el iliaj tri svisaj gvidistoj, kiu mal-sanis. Li grimpis en unu loko, li grimpis en alia, kaj tiam okazis la provo al Parascotopetl, la Matterhorn de la Andoj, kiam li perdiĝis al la ekstera mondo. La rakonto pri la akcidento estas skribita dekon da fojoj. La plej bona estas la rakonto de Pointer. Li priskribas kiel la areto faris sian malfacilan kaj preskaŭ vertikalan grimpon ĝis la efektiva malsupro de la lasta kaj plej granda krutaĵo, kaj kiel ili konstruis dormejon en la neĝo de malgranda rokbreto, kaj, kun vere drama forto, kiel 6
-
-LANDO DE BLINDULOJ
+Aro de angloj, kiuj vizitis Ekvadoron por grimpi montojn, dungis lin por anstataŭi iun el iliaj tri svisaj gvidistoj, kiu mal-sanis. Li grimpis en unu loko, li grimpis en alia, kaj tiam okazis la provo al Parascotopetl, la Matterhorn de la Andoj, kiam li perdiĝis al la ekstera mondo. La rakonto pri la akcidento estas skribita dekon da fojoj. La plej bona estas la rakonto de Pointer. Li priskribas kiel la areto faris sian malfacilan kaj preskaŭ vertikalan grimpon ĝis la efektiva malsupro de la lasta kaj plej granda krutaĵo, kaj kiel ili konstruis dormejon en la neĝo de malgranda rokbreto, kaj, kun vere drama forto, kiel
 
 
 baldaŭ ili trovis, ke Nuñez malaperis. Ili kriegis kaj ne venis respondo; kriegis kaj fajfegis, kaj dum la resto de tiu nokto ili ne plu dormis.
@@ -65,11 +44,7 @@ Malproksimege sube, kaj malklarete pro la distanco, ili povis vidi arbojn en mal
 
 Kaj la falinto vivis.
 
-ĉe la fino de la deklivo li falis en nubo de neĝo tricent metrojn sur neĝan deklivon eĉ pli krutan ol tiu supre. Malsupren li ŝoviĝis, sensentigita kaj senkonscia, sed ne rompigis eĉ unu osto kaj tiam finfine li venis al pli malkrutaj deklivoj, kaj ru-ligis kaj kuŝis senmove, kovrita de moliĝanta amaso de la ne-
-
-ĝo, kiu akompanis kaj savis lin. Li rekonsciiĝis kun malklara supozo, ke li estas malsana en la lito; tiam, per montula saga-co, li konstatis sian situacion kaj skuis sin libera, kaj, post unu du ripozoj, li elrampis ĝis li vidis la stelojn. Li ripozis iom da tempo, sternite sur la brusto, demandante al si, kie li estas kaj kio okazis al li. Li esploris siajn membrojn, kaj trovis, ke pluraj el liaj butonoj malaperis, kaj ke lia jako estas turnita super la 7
-
-LANDO DE BLINDULOJ
+ĉe la fino de la deklivo li falis en nubo de neĝo tricent metrojn sur neĝan deklivon eĉ pli krutan ol tiu supre. Malsupren li ŝoviĝis, sensentigita kaj senkonscia, sed ne rompigis eĉ unu osto kaj tiam finfine li venis al pli malkrutaj deklivoj, kaj ru-ligis kaj kuŝis senmove, kovrita de moliĝanta amaso de la neĝo, kiu akompanis kaj savis lin. Li rekonsciiĝis kun malklara supozo, ke li estas malsana en la lito; tiam, per montula saga-co, li konstatis sian situacion kaj skuis sin libera, kaj, post unu du ripozoj, li elrampis ĝis li vidis la stelojn. Li ripozis iom da tempo, sternite sur la brusto, demandante al si, kie li estas kaj kio okazis al li. Li esploris siajn membrojn, kaj trovis, ke pluraj el liaj butonoj malaperis, kaj ke lia jako estas turnita super la
 
 
 kapon. Lia tranĉilo ne plu estis en lia poßo, kaj lia ĉapo perdiĝis, kvankam li estis liginta ĝin sub sia mentono. Li memo-ris, ke li serĉis ŝtonojn por levi sian parton de la ŝirmeja muro.
@@ -82,9 +57,7 @@ Post longa tempo li konsciis, ke li estas apud la malsupra rando de la neĝo. Su
 
 Lin vekis la kantado de birdoj malproksime sube en la arboj. Li ĉirkaŭrigardis kaj rimarkis, ke li estas sur monteto ĉe la malsupro de vasta krutaĵo, sulkigita kie ruliĝis li kaj la neĝo.
 
-Apude de li plia roko leviĝis kontraŭ la ĉielo. La fendego inter tiuj ĉi krutaĵoj iris de oriento al okcidento, kaj estis plena de la matena sunbrilo, kiu lumigis okcidente la amason de falinta monto, kiu fermis la malsuprenirantan fendegon. ŝajnis, ke sub li estas plia granda krutaĵo, sed malantaŭ la neĝo en la sulkego li trovis truon, en kiu gutis degelinta neĝo, kaj tra kiu povus malsuprengrimpi riskemulo. Li trovis la grim-padon pli facila ol li supozis, kaj fine venis al alia soleca monteto, kaj tiam, post ne tre malfacila grimpado inter rokoj, li 8
-
-LANDO DE BLINDULOJ
+Apude de li plia roko leviĝis kontraŭ la ĉielo. La fendego inter tiuj ĉi krutaĵoj iris de oriento al okcidento, kaj estis plena de la matena sunbrilo, kiu lumigis okcidente la amason de falinta monto, kiu fermis la malsuprenirantan fendegon. ŝajnis, ke sub li estas plia granda krutaĵo, sed malantaŭ la neĝo en la sulkego li trovis truon, en kiu gutis degelinta neĝo, kaj tra kiu povus malsuprengrimpi riskemulo. Li trovis la grim-padon pli facila ol li supozis, kaj fine venis al alia soleca monteto, kaj tiam, post ne tre malfacila grimpado inter rokoj, li
 
 
 venis al kruta arbokovrita deklivo. Li orientigis sin kaj turnis la vizaĝon Iaŭlonge de la fendego, ĉar li vidis ke ĝi finiĝas ĉe verdaj kampoj, inter kiuj li nun ekrimarkis tute klare aron de ŝtonaj dometoj kun strangaj formoj. Foje lia progreso similis al grimpado sur la flanko de muro, kaj post ioma tempo la leviĝanta suno ĉesis brili en la fendegon, la voĉoj de la kan-tantaj birdoj formortis kaj ĉirkaŭ li fariĝis malvarme kaj mal-hele. Sed pro tio, des pli hela estis la malproksima valo kun siaj domoj. Li venis baldaŭ al amaso de roketoj, kaj rimarkis inter ili — ĉar li estis observemulo — nekonatan filikon, kiu aspektis kiel intense verda mano elstaranta de la rokfendetoj.
@@ -95,19 +68,12 @@ Li prenis unu du foliojn kaj mordis la trunketon, kaj trovis ilin helpaj.
 
 Ili estis tre kuriozaj al liaj okuloj, efektive la tuta aspekto de tiu valo fariĝis, dum li rigardis ĝin, pli stranga kaj pli fremda.
 
-La plej granda parto de ĝia supraĵo konsistis el riĉa verda kamparo, makulita per multaj belaj floroj. i estis tre zorge irigaciita, kaj montris sisteman kulturadon. Alte, kaj ĉirkaŭan-te la valon, estis muro, kaj kio ŝajnis esti ĉirkaŭa akvofluejo, de kie fluetis la akvo por nutri la kampajn kreskaĵojn, kaj sur la pli altaj deklivoj super tio ĉi sin paŝtis aroj da lamoj, man-
-
-ĝante la maldensan herbaĵon. Diversloke kontraŭ la lima mu-ro staris kabanoj, ŝajne ŝirmejoj aŭ nutrejoj por la lamoj. La irigaciaj riveretoj kunfluis en ĉefkanalon Iaŭlonge de la mezo de la valo, kaj tiun ambaŭflanke limigis muro unu metron 9
-
-LANDO DE BLINDULOJ
+La plej granda parto de ĝia supraĵo konsistis el riĉa verda kamparo, makulita per multaj belaj floroj. i estis tre zorge irigaciita, kaj montris sisteman kulturadon. Alte, kaj ĉirkaŭan-te la valon, estis muro, kaj kio ŝajnis esti ĉirkaŭa akvofluejo, de kie fluetis la akvo por nutri la kampajn kreskaĵojn, kaj sur la pli altaj deklivoj super tio ĉi sin paŝtis aroj da lamoj, manĝante la maldensan herbaĵon. Diversloke kontraŭ la lima mu-ro staris kabanoj, ŝajne ŝirmejoj aŭ nutrejoj por la lamoj. La irigaciaj riveretoj kunfluis en ĉefkanalon Iaŭlonge de la mezo de la valo, kaj tiun ambaŭflanke limigis muro unu metron
 
 
 alta. Tio donis tre urban aspekton al tiu ĉi izola loko, aspekton, kiun pligrandigis la fakto, ke irante diversloken laŭ orda maniero estis nombro da vojoj, pavimitaj per nigraj kaj blankaj ŝtonoj, kaj ĉiu kun stranga ŝtona randeto ĉe la flanko. La domoj de la centra vilaĝo estis tute malsimilaj al la hazarda kaj sencela konfuzaĵo ĉe la montaj vilaĝoj, kiujn li konis; ili staris en daŭra vico ĉe ambaŭ flankoj de mirige pura meza strato; jen kaj jen en ilia diverskolora fasado aperis pordo, kaj eĉ unu fenestro ne rompis ilian glatan fronton. Ili estis miks-koloritaj eksterordinare neregule; ŝmiritaj per ia stuko jen gri-za, jen brunaĉa, jen ardezkolora aŭ malhelbruna; kaj estis la ekvido de tiu ĉi freneza stukado, kiu unue igis la esploranton pripensi la vorton ”blinda.” ”La bonulo kiu faris tion”, li pensis, ”certe estis blinda kiel vesperto.”
 
 Li malsupreniris deklivon kaj venis al la muro kaj kanalo, kiuj ĉirkaŭbordis la valon, proksime al kie la kanalo per mallarĝa tremeta kaskado elŝprucis sian troaĵon en la profundon de la fendego. Li nun povis vidi nombron da viroj kaj virinoj en la pli malproksima parto de la kampo, ripozantaj sur amasoj da herbaĵo kvazaŭ ili siestus, kaj pli proksime al la vilaĝo nombron da kuŝantaj infanoj, kaj tiam, pli apude, tri virojn portantajn sitelojn per jugoj, sur vojeto, kiu iris de la ĉirkaŭa muro al la domoj. Tiuj ĉi viroj havis vestojn el lama ŝtofo kaj botojn kaj zonojn el ledo, kaj ili surhavis drapajn ĉapojn kun ŝirmpecoj por la kolo kaj oreloj. Ili sekvis unu la alian laŭ unu vico, marŝante malrapide kaj samtempe oscedante, kiel homoj, kiuj ne enlitiĝis la antaŭan nokton. Ilia sinteno estis tiel trankvilige prospera kaj respektinda, ke post momenta hezito Nuñez antaŭenpaŝis sur sia roko, por ke li estu kiel eble plej rimarkebla, kaj faris tondran kriegon, kiu e˛is en la valo.
-
-
-LANDO DE BLINDULOJ
 
 
 La tri viroj haltis, kaj movis la kapojn kvazaŭ ili ĉirkaŭrigar-dus sin. Ili turnis la vizaĝojn en diversaj direktoj, kaj Nuñez multe gestis. Sed malgraŭ liaj gestoj, ili ŝajne ne vidis lin, kaj post iom da tempo, turnante sin al la montoj malproksime dekstre, ili kriegis kvazaŭ responde. Nuñez ree vokegis, kaj tiam denove. Kaj dum li senefike gestis, la vorto ”blinda” trafis liajn pensojn. ”La stultuloj ja estas blindaj”, li diris.
@@ -127,9 +93,6 @@ Kaj tre ĝentile li salutis ilin. Li parolis al ili kaj uzis siajn okulojn.
 ”De kie li venas, frato Pedro?” iu demandis.
 
 ”De inter la rokoj.”
-
-
-LANDO DE BLINDULOJ
 
 
 ”Mi venas de preter la montoj”, diris Nuñez, de la lando preter tie — kie la homoj povas vidi. De apud Bogota, kie estas centmil homoj, kaj kie la urbego etendiĝas ekster la vidon.”
@@ -163,9 +126,6 @@ Kaj ili tenis Nuñez kaj pripalpis lin, kaj ne diris plian vorton, ĝis ili fini
 ”El la mondo. Super montojn kaj glaciejojn; tute transe de tie; duonvoje al la suno. El la grandega mondo, kiu bezonas dek-du-tagan vojaĝon al la maro.”
 
 
-LANDO DE BLINDULOJ
-
-
 Ili apenaŭ ŝajnis aŭskulti lin. ”Niaj prapatroj diris al ni, ke homojn povas fari la fortoj de la naturo”, diris Correa. ”Estas la varmo de aĵoj kaj malseko kaj putro — putro.”
 
 ”Ni konduku lin al la ĉefoj”, diris Pedro.
@@ -190,9 +150,7 @@ Nu, siatempe li instruos ilin pri tio.
 
 Li aŭdis homojn krii, kaj vidis nombron da figuroj amasiĝantaj sur la meza strato de la vilaĝo.
 
-Li trovis, ke tiu unua renkontiĝo kun la homoj de la Lando de la blinduloj streĉis liajn nervojn kaj paciencon pli ol li atendis. La loko aspektis pli granda, kiam li alproksimiĝis, kaj la ŝmiritaj stukaĵoj pli strangaj, kaj ĉirkaŭis lin aro da infanoj kaj viroj kaj virinoj. (Pluraj el la virinoj kaj knabinoj, kiel li kontente rimarkis, havis tute belajn vizaĝojn, malgraŭ tio, ke iliaj okuloj estis fermitaj kaj kaviĝintaj.) Ili tenis lin, palpis lin per molaj sentemaj manoj, flaris lin, kaj aŭskultis ĉiun vorton, kiun li diris. Kelkaj el la junulinoj kaj infanoj, tamen, restis apartaj, kvazaŭ pro timo, kaj efektive lia voĉo ŝajnis kruda kaj 13
-
-LANDO DE BLINDULOJ
+Li trovis, ke tiu unua renkontiĝo kun la homoj de la Lando de la blinduloj streĉis liajn nervojn kaj paciencon pli ol li atendis. La loko aspektis pli granda, kiam li alproksimiĝis, kaj la ŝmiritaj stukaĵoj pli strangaj, kaj ĉirkaŭis lin aro da infanoj kaj viroj kaj virinoj. (Pluraj el la virinoj kaj knabinoj, kiel li kontente rimarkis, havis tute belajn vizaĝojn, malgraŭ tio, ke iliaj okuloj estis fermitaj kaj kaviĝintaj.) Ili tenis lin, palpis lin per molaj sentemaj manoj, flaris lin, kaj aŭskultis ĉiun vorton, kiun li diris. Kelkaj el la junulinoj kaj infanoj, tamen, restis apartaj, kvazaŭ pro timo, kaj efektive lia voĉo ŝajnis kruda kaj
 
 
 maldelikata kompare kun iliaj pli dolĉaj tonoj. Ili aklamis lin.
@@ -224,18 +182,11 @@ Estis paŭzo, kvazaŭ la nevidataj homoj ĉirkaŭ li penus kompreni liajn vortoj
 Aliaj ankaŭ diris pri li aferojn, kiujn li aŭdis aŭ komprenis malbone.
 
 
-LANDO DE BLINDULOJ
-
-
 ”ĉu mi povas leviĝi?” li demandis dum paŭzo. ”Mi ne lukt-os denove.”
 
 Ili interkonsiliĝis kaj lasis lin leviĝi.
 
-La voĉo de pli aĝa viro komencis fari demandojn kaj Nu-
-
-ñez devis klopodi klarigi al tiuj ĉi ĉefoj, kiuj sidis en mallumo en la Lando de la blinduloj, la grandegan mondon el kiu li falis, kaj la ĉielon kaj montojn kaj vidadon kaj tiajn mirindaĵojn. Kaj, kontraŭe al lia antaŭsupozo, ili kredis kaj komprenis absolute nenion, kion li diris al ili. Ili eĉ rifuzis kompreni multajn el liaj vortoj. Dum dek kvar generacioj tiuj ĉi homoj estas blindaj kaj apartigitaj de la vidanta mondo; la nomoj por ĉio rilate al vidado velkis kaj ŝanĝiĝis; la historio de la ekstera mondo velkis kaj ŝanĝiĝis al infana fabelo; kaj ili ĉasis ĝeni sin pri ĉio preter la rokaj deklivoj super tiu ĉirkaŭa muro. Blindaj geniuloj naskiĝis inter ili kaj kontestis la erojn de kredo kaj tradicio, kiujn ili kunportis el siaj vidaj tagoj, kaj forigis ĉiujn ĉi kiel bagatelajn fantaziaĵojn, kaj anstataŭis ilin per novaj kaj pli saĝaj klarigoj. Multe de ilia imago velkis kun ilia okuloj, kaj ili ĉiam pli sentfaris por si novajn imagojn per siaj emaj oreloj kaj fingroj. Malrapide Nuñez konstatis ĉi tion; ke ne efektiviĝos lia supozo, ke ili primiros kaj respektos liajn originon kaj talentojn. Kiam lian nekonvinkan provon klarigi al ili la vidon ili forŝovis kiel la konfuzitan rakonton de nove farita estaĵo, kiu priparolas la mirindaĵojn de siaj malkla-raj sentoj, li kvietiĝis, iom honta, kaj aŭskultis ilian instrua-don. Kaj la plej aĝa blindulo klarigis al li pri la vivo kaj filozofio kaj religio, kiel la mondo (tio estas, ilia valo) je la komenco estis malplena kavo en la rokoj, kaj tiam venis, unue, senvivaj aĵoj sen sentopovo, kaj lamoj kaj kelkaj aliaj estaĵoj, kiuj havis malmultan racion, kaj tiam homoj, kaj fine anĝeloj, 15
-
-LANDO DE BLINDULOJ
+La voĉo de pli aĝa viro komencis fari demandojn kaj Nuñez devis klopodi klarigi al tiuj ĉi ĉefoj, kiuj sidis en mallumo en la Lando de la blinduloj, la grandegan mondon el kiu li falis, kaj la ĉielon kaj montojn kaj vidadon kaj tiajn mirindaĵojn. Kaj, kontraŭe al lia antaŭsupozo, ili kredis kaj komprenis absolute nenion, kion li diris al ili. Ili eĉ rifuzis kompreni multajn el liaj vortoj. Dum dek kvar generacioj tiuj ĉi homoj estas blindaj kaj apartigitaj de la vidanta mondo; la nomoj por ĉio rilate al vidado velkis kaj ŝanĝiĝis; la historio de la ekstera mondo velkis kaj ŝanĝiĝis al infana fabelo; kaj ili ĉasis ĝeni sin pri ĉio preter la rokaj deklivoj super tiu ĉirkaŭa muro. Blindaj geniuloj naskiĝis inter ili kaj kontestis la erojn de kredo kaj tradicio, kiujn ili kunportis el siaj vidaj tagoj, kaj forigis ĉiujn ĉi kiel bagatelajn fantaziaĵojn, kaj anstataŭis ilin per novaj kaj pli saĝaj klarigoj. Multe de ilia imago velkis kun ilia okuloj, kaj ili ĉiam pli sentfaris por si novajn imagojn per siaj emaj oreloj kaj fingroj. Malrapide Nuñez konstatis ĉi tion; ke ne efektiviĝos lia supozo, ke ili primiros kaj respektos liajn originon kaj talentojn. Kiam lian nekonvinkan provon klarigi al ili la vidon ili forŝovis kiel la konfuzitan rakonton de nove farita estaĵo, kiu priparolas la mirindaĵojn de siaj malkla-raj sentoj, li kvietiĝis, iom honta, kaj aŭskultis ilian instrua-don. Kaj la plej aĝa blindulo klarigis al li pri la vivo kaj filozofio kaj religio, kiel la mondo (tio estas, ilia valo) je la komenco estis malplena kavo en la rokoj, kaj tiam venis, unue, senvivaj aĵoj sen sentopovo, kaj lamoj kaj kelkaj aliaj estaĵoj, kiuj havis malmultan racion, kaj tiam homoj, kaj fine anĝeloj,
 
 
 kies kantadon kaj flirtadon oni povas aŭdi, sed kiujn neniu povas tuŝi. Tio estis enigmo al Nuñez, ĝis li pensis pri la birdoj.
@@ -256,9 +207,7 @@ Foje li ridis, jen pro amuzo, jen pro indigno.
 
 Li ankoraŭ pensadis, kiam la suno malleviĝis.
 
-Nuñez estimis ĉiajn belaĵojn kaj ŝajnis al li, ke la brilo sur 16
-
-LANDO DE BLINDULOJ
+Nuñez estimis ĉiajn belaĵojn kaj ŝajnis al li, ke la brilo sur
 
 
 la neĝaj vastaĵoj kaj glaciejoj kiuj ĉirkaŭis la valon, estas la plej bela afero kiun iam li vidis. Lia rigardo iris de tiu neatingebla gloro al la vilaĝo kaj la akvumitaj kampoj, kiu rapide malaperis en la krepuskon, kaj subite li emociigis kaj elkore dankis al Dio, ke li havas la povon vidi.
@@ -300,9 +249,6 @@ Nuñez sekvis, iom kolera.
 ”Kio estas blinduloj?” senzorge demandis la blinda viro, super sian ŝultron.
 
 
-LANDO DE BLINDULOJ
-
-
 Pasis kvar tagoj kaj je la kvina la reĝo de la blinduloj ankoraŭ estis gnita inter siaj regatoj, kiel mallerta kaj senu-tila fremdulo.
 
 Li trovis, ke estas multe pli malfacile proklami sin, ol li estis supozanta, kaj intertempe, dum li meditis sian coup d’état, li faris ĉion, kion oni ordonis, kaj lernis la kutimojn kaj morojn de la Lando de la blinduloj. Li trovis precipe ĝenaj la dum-noktajn laboradon kaj iradon, kaj li decidis, ke tio estu la unua afero, kiun li ŝanĝos.
@@ -313,9 +259,7 @@ Estis mirige, kiel certe kaj precize ili moviĝadis en sia orda mondo. ĉio, vi 
 
 Modulado de la voĉo antaŭ longe anstataŭis esprimadon ĉe ili, kaj tuŝoj anstataŭis gestojn, kaj ilia laboro kun sarkiloj kaj fosiloj kaj forkegoj estis tiel libera kaj certa, kiel ja povas esti
 
-ĝardena laboro. Ilia flarosento estis eksterordinare delikata; ili povis distingi individuajn diferencojn tiel facile kiel hun-do, kaj ili prizorgis senpene kaj decide la lamojn kiuj vivis 18
-
-LANDO DE BLINDULOJ
+ĝardena laboro. Ilia flarosento estis eksterordinare delikata; ili povis distingi individuajn diferencojn tiel facile kiel hun-do, kaj ili prizorgis senpene kaj decide la lamojn kiuj vivis
 
 
 inter la rokoj supre kaj venis al la muroj por nutro kaj ŝirmo.
@@ -328,11 +272,7 @@ Komence li klopodis klarigi la vidadon al ili.
 
 ”Aŭskultu do”, li diris. ”Estas aferoj pri mi kiujn, vi ne komprenas.”
 
-Foje iuj el ili atentis lin; ili sidis kun malgajaj mienoj kaj kun la oreloj turnitaj inteligente al li kaj li faris sian eblon klarigi al ili, kio estas la vidado. Inter liaj aŭdantoj estis junulino, kiun li esperis konvinki, kun palpebroj malpli ruĝaj kaj kaviĝintaj ol la aliaj, tiel ke oni povis preskaŭ imagi, ke ŝi ka-
-
-ŝas okulojn. Li parolis pri la belaĵoj de vidado, pri rigardado al la montoj, pri la ĉielo kaj la sunleviĝo, kaj ili aŭdis lin kun amuzo kaj nekredemo, kiu baldaŭ fariĝis malaproba. Ili diris al li, ke efektive ne ekzistas montoj, sed ke la fino de la rokoj, kie paŝtas sin la lamoj, estas efektive la fino de la mondo; de tie leviĝas la kaverna tegmento de la universo, de kie falas la roso kaj la lavangoj; kaj kiam li kuraĝe asertis, ke la mondo, havas nek finon, nek tegmenton, kiel ili supozas, ili diris ke liaj pensoj estas malvirtaj. Tiom pri la ĉielo kaj nuboj kaj steloj, kiom li povis rakonti, ŝajnis al ili aĉa malpleno, terura neniaĵo, anstataŭ la glata tegmento je kiu ili kredis; estis parto de ilia kredo, ke la kaverna tegmento estas rave glata al pal-pado. Li vidis, ke iel li ŝokis ilin, kaj tute forlasis tiun flankon de la afero kaj penis montri al ili la praktikan valoron de la vidado. Iun matenon li vidis Pedron sur la vojo nomita Dek sep venis al la centraj domoj, sed ankoraŭ tro malproksime por aŭdo aŭ flaro, kaj li diris al ili pri tio. ”Post nelonge”, li profetis, ”Pedro estos tie ĉi.” Iu maljunulo menciis, ke Pedro 19
-
-LANDO DE BLINDULOJ
+Foje iuj el ili atentis lin; ili sidis kun malgajaj mienoj kaj kun la oreloj turnitaj inteligente al li kaj li faris sian eblon klarigi al ili, kio estas la vidado. Inter liaj aŭdantoj estis junulino, kiun li esperis konvinki, kun palpebroj malpli ruĝaj kaj kaviĝintaj ol la aliaj, tiel ke oni povis preskaŭ imagi, ke ŝi kaŝas okulojn. Li parolis pri la belaĵoj de vidado, pri rigardado al la montoj, pri la ĉielo kaj la sunleviĝo, kaj ili aŭdis lin kun amuzo kaj nekredemo, kiu baldaŭ fariĝis malaproba. Ili diris al li, ke efektive ne ekzistas montoj, sed ke la fino de la rokoj, kie paŝtas sin la lamoj, estas efektive la fino de la mondo; de tie leviĝas la kaverna tegmento de la universo, de kie falas la roso kaj la lavangoj; kaj kiam li kuraĝe asertis, ke la mondo, havas nek finon, nek tegmenton, kiel ili supozas, ili diris ke liaj pensoj estas malvirtaj. Tiom pri la ĉielo kaj nuboj kaj steloj, kiom li povis rakonti, ŝajnis al ili aĉa malpleno, terura neniaĵo, anstataŭ la glata tegmento je kiu ili kredis; estis parto de ilia kredo, ke la kaverna tegmento estas rave glata al pal-pado. Li vidis, ke iel li ŝokis ilin, kaj tute forlasis tiun flankon de la afero kaj penis montri al ili la praktikan valoron de la vidado. Iun matenon li vidis Pedron sur la vojo nomita Dek sep venis al la centraj domoj, sed ankoraŭ tro malproksime por aŭdo aŭ flaro, kaj li diris al ili pri tio. ”Post nelonge”, li profetis, ”Pedro estos tie ĉi.” Iu maljunulo menciis, ke Pedro
 
 
 ne havas kaŭzon por esti sur vojo Dek sep, kaj tiam, kvazaŭ konfirme, tiu individuo, kiam li alproksimiĝis, turnis sin kaj transiris sur vojon Dek, kaj per facilaj paŝoj returne al la ekstera muro. Ili mokis Nuñez, kiam Pedro ne alvenis, kaj poste, kiam li faris demandojn al Pedro por pravigi sin, Pedro neis lin kaj eĉ estis malamika al li.
@@ -347,12 +287,7 @@ Ili staris atentaj kun siaj kapoj skuitaj, kaj siaj okuloj turnitaj al li por tr
 
 Tiam li ŝovis iun el ili kontraŭ doman muron, kaj preter-kuregis lin ekster la vilaĝon.
 
-Li transkuris iun el iliaj paŝtejoj, postlasante strion de pied-premita herbaro, kaj baldaŭ li sidiĝis flanke de unu el iliaj vojoj. Li sentis iom de la ekstazo, kiu venas al ĉiu homo je la komenco de batalo, sed pli da konfuzo. Li komencis konsta-20
-
-LANDO DE BLINDULOJ
-
-
-ti, ke oni eĉ ne povas feliĉe batali kontraŭ homojn, kies mensa bazo estas malsama ol la propra. Malproksime li vidis nombron da viroj portantaj fosilojn kaj bastonojn kaj venantaj el la domaro. Ili venis al li en etendiĝanta linio sur la pluraj vojoj. Ili marŝis malrapide, ofte parolante inter si, kaj fojon post fojo la tuta aro haltis por flari la aeron kaj aŭskulti.
+Li transkuris iun el iliaj paŝtejoj, postlasante strion de pied-premita herbaro, kaj baldaŭ li sidiĝis flanke de unu el iliaj vojoj. Li sentis iom de la ekstazo, kiu venas al ĉiu homo je la komenco de batalo, sed pli da konfuzo. Li komencis konstati, ke oni eĉ ne povas feliĉe batali kontraŭ homojn, kies mensa bazo estas malsama ol la propra. Malproksime li vidis nombron da viroj portantaj fosilojn kaj bastonojn kaj venantaj el la domaro. Ili venis al li en etendiĝanta linio sur la pluraj vojoj. Ili marŝis malrapide, ofte parolante inter si, kaj fojon post fojo la tuta aro haltis por flari la aeron kaj aŭskulti.
 
 La unuan fojon kiam ili faris tion Nuñez ridis.
 
@@ -380,9 +315,7 @@ Li tenis eĉ pli forte sian fosilon, kaj pluriris sur la herbaĵoj al la vilaĝo
 
 ”Mi batos ilin, se ili tuŝos min”, li ĵuris; ”ĉielon, mi ja batos.”
 
-Li laŭte kriis, ”Komprenu vi, mi intencas agi laŭ mia volo en 21
-
-LANDO DE BLINDULOJ
+Li laŭte kriis, ”Komprenu vi, mi intencas agi laŭ mia volo en
 
 
 tiu ĉi valo. ĉu vi aŭdas? Mi agos laŭplaĉe kaj iros kien mi volos!”
@@ -406,21 +339,13 @@ Li aŭdis ĝustatempe paŝojn malantaŭe, kaj vidis altulon alkuri kaj bati la a
 Li estis en paniko. Li kuris furioze tien kaj reen.
 
 
-LANDO DE BLINDULOJ
-
-
 Li flankensaltis, kiam ne estis necese, kaj falis pro sia de-ziro vidi ĉiuflanken samtempe. Momenton li sterniĝis surtere, kaj ili aŭdis la falon. Malproksime en la ĉirkaŭmuro ia pordeto ŝajnis kiel la ĉielo, kaj furioze li alkuris ĝin. Li eĉ ne rerigardis siajn serĉantojn ĝis li atingis ĝin, ŝanceliĝis trans la pon-ton, kaj grimpiris iome inter la rokoj. Li surprizis kaj timigis junan lamon, kiu saltetis for, kaj li kuŝigis spiregante.
 
 Kaj tiel finiĝis lia coup détat.
 
 Li restis ekster la muro de la valo de la blinduloj du nok-tojn kaj du tagojn sen manĝaĵoj au ŝirmo, kaj meditis pri la neatenditaj okazaĵoj. Dum tiuj ĉi meditoj li ripetis tre ofte, kaj ĉiam kun pli granda mokeco, la krevintan proverbon: ”Inter blinduloj reĝas strabuloj.” Li pensis ĉefe pri rimedoj por batali kaj venki tiujn ĉi homojn, kaj evidentiĝis, ke nenia praktika rimedo estas ebla. Li havis nenian batalilon, kaj nun estus malfacile havigi ĝin. Eĉ en Bogota la civilizado estis atinginta lin, kaj li ne povis instigi sin iri al la vilaĝo por murdi blindulon. Kompreneble, se li farus tion, eble li povus tiam dikti siajn kondiĉojn, minacante mortigi la tutan aron. Sed — baldaŭ li ja devos dormi! …
 
-Li penis ankaŭ trovi manĝaĵon inter la pinarboj kaj esti komforta sub la pinbranĉoj dum la nokta frostiĝo, kaj — kun malpli da fido — li per artifikoj penis kapti lamon por mortigi ĝin, — eble martelante ĝin per ŝtono — kaj tiel fine li eble povos manĝi iom. Sed la lamoj dubis pri li, kaj rigardis lin per nefidantaj brunaj okuloj, kaj kraĉospiris, kiam li alproksimi-
-
-ĝis. Je la dua tago trafis lin timo kaj atakoj de tremado. Fine li rampis al la muro de la Lando de la blinduloj kaj klopodis interpaciĝi. Li rampis laŭlonge de la rivereto, kaj kriis ĝis du blinduloj venis al la pordo kaj parolis al li.
-
-
-LANDO DE BLINDULOJ
+Li penis ankaŭ trovi manĝaĵon inter la pinarboj kaj esti komforta sub la pinbranĉoj dum la nokta frostiĝo, kaj — kun malpli da fido — li per artifikoj penis kapti lamon por mortigi ĝin, — eble martelante ĝin per ŝtono — kaj tiel fine li eble povos manĝi iom. Sed la lamoj dubis pri li, kaj rigardis lin per nefidantaj brunaj okuloj, kaj kraĉospiris, kiam li alproksimiĝis. Je la dua tago trafis lin timo kaj atakoj de tremado. Fine li rampis al la muro de la Lando de la blinduloj kaj klopodis interpaciĝi. Li rampis laŭlonge de la rivereto, kaj kriis ĝis du blinduloj venis al la pordo kaj parolis al li.
 
 
 ”Mi estis freneza”, li diris. ”Sed mi estis nur duone formita.”
@@ -449,12 +374,7 @@ Dum kelkaj tagoj li estis malsana, kaj ili flegis lin bonkore.
 
 Tio plidolĉigis lian obeadon. Sed ili insistis, ke li kuŝu en la mallumo, kaj tio estis granda mizero. Kaj blindaj filozofoj venis kaj parolis al li pri la malvirta frivoleco de lia menso, kaj tiel imprese riproĉis lin pro liaj duboj pri la roka tegmento, kiu kovras ilian universon, ke li preskaŭ dubis, ĉu efektive li ne estas la viktimo de fantazio, nevidante la tegmenton supre.
 
-Tiel Nuñez fariĝis civitano de la Lando de la blinduloj kaj tiuj ĉi homoj ĉesis resti generalaj, kaj estiĝis konataj individu-24
-
-LANDO DE BLINDULOJ
-
-
-oj, dum la mondo preter la montaro ŝajnis pli kaj pli malproksima kaj nereala. Estis Jakob, lia mastro, bonkora viro, kiam li ne incitiĝis; estis Pedro, la nevo de Jakob, kaj estis Medina-saroté, la plej juna filino de Jakob. ŝi estis malmulte estima-ta inter la blinduloj, ĉar ŝi havis klarajn trajtojn, kaj malhavis tiun kontentigan, brilan glaton, kiu estas la blindula idealo de virina beleco; sed Nuñez komence opiniis ŝin bela, kaj baldaŭ la plej bela estaĵo en la tuta mondo. ŝiaj fermitaj palpebroj ne estis kaviĝintaj kaj ruĝaj, kiel esti kutime en la valo, sed kuŝis kvazaŭ ili eble subite malfermiĝos; kaj ŝi havis longajn okulharojn, kiujn oni konsideris grava difekto. Kaj ŝia voĉo estis forta, kaj ne plaĉis al la akra aŭdado de la valaj fraŭloj. Tial ŝi ne havis amanton.
+Tiel Nuñez fariĝis civitano de la Lando de la blinduloj kaj tiuj ĉi homoj ĉesis resti generalaj, kaj estiĝis konataj individuoj, dum la mondo preter la montaro ŝajnis pli kaj pli malproksima kaj nereala. Estis Jakob, lia mastro, bonkora viro, kiam li ne incitiĝis; estis Pedro, la nevo de Jakob, kaj estis Medina-saroté, la plej juna filino de Jakob. ŝi estis malmulte estima-ta inter la blinduloj, ĉar ŝi havis klarajn trajtojn, kaj malhavis tiun kontentigan, brilan glaton, kiu estas la blindula idealo de virina beleco; sed Nuñez komence opiniis ŝin bela, kaj baldaŭ la plej bela estaĵo en la tuta mondo. ŝiaj fermitaj palpebroj ne estis kaviĝintaj kaj ruĝaj, kiel esti kutime en la valo, sed kuŝis kvazaŭ ili eble subite malfermiĝos; kaj ŝi havis longajn okulharojn, kiujn oni konsideris grava difekto. Kaj ŝia voĉo estis forta, kaj ne plaĉis al la akra aŭdado de la valaj fraŭloj. Tial ŝi ne havis amanton.
 
 Venis tago kiam Nuñez pensis, ke se li gajnus ŝin, li povus rezigniĝi al ĝismorta restado en la valo.
 
@@ -464,9 +384,7 @@ Tiam tre delikate ŝi reciprokis lian premeton. Kaj iun tagon, dum ili manĝis e
 
 Li provis paroli al ŝi.
 
-Li iris al ŝi iun tagon, kiam ŝi sidis ŝpinanta en la somera lunlumo. La lumo faris el ŝi estaĵon arĝentan kaj misteran. Li sidiĝis ĉe ŝiaj piedoj kaj parolis al ŝi pri sia amo, kaj diris kiel bela li aspektas al li. Li havis la voĉon de amanto, li parolis per dolĉa respektego, kaj ŝi neniam antaŭe spertis adoradon. ŝi 25
-
-LANDO DE BLINDULOJ
+Li iris al ŝi iun tagon, kiam ŝi sidis ŝpinanta en la somera lunlumo. La lumo faris el ŝi estaĵon arĝentan kaj misteran. Li sidiĝis ĉe ŝiaj piedoj kaj parolis al ŝi pri sia amo, kaj diris kiel bela li aspektas al li. Li havis la voĉon de amanto, li parolis per dolĉa respektego, kaj ŝi neniam antaŭe spertis adoradon. ŝi
 
 
 ne definitive respondis, sed estis evidente, ke liaj vortoj plaĉis al ŝi.
@@ -484,18 +402,13 @@ Sed ankoraŭ ili trovis geedziĝon neebla.
 Maljuna Jakob tre amis sian lastan filineton, kaj malĝojis iam ŝi ploris ĉe lia ŝultro.
 
 
-LANDO DE BLINDULOJ
-
-
 ”Jen, kara, li estas idioto. Li fantazie imagas; li misfaras ĉion.”
 
 ”Mi scias”, ploris Medina-saroté. ”Sed li estas pli bona ol li estis. Li pliboniĝas. Kaj li estas forta, kara patro, kaj bonkora
 
 — pli forta kaj bonkora ol iu ajn alia viro en la mondo. Kaj li amas min — kaj, patro, mi amas lin.”
 
-La maljunulo estis tre malgaja pro ŝia nekonsoleblo, kaj krome — eĉ pli malgajige — li pro diversaj kaŭzoj ŝatis Nu-
-
-ñez. Li iris, do, al la senfenestra konsilanta ĉambro kaj sidis kun la aliaj ĉefoj kaj aŭskultis ilian paroladon, kaj diris, je la
+La maljunulo estis tre malgaja pro ŝia nekonsoleblo, kaj krome — eĉ pli malgajige — li pro diversaj kaŭzoj ŝatis Nuñez. Li iris, do, al la senfenestra konsilanta ĉambro kaj sidis kun la aliaj ĉefoj kaj aŭskultis ilian paroladon, kaj diris, je la
 
 ĝusta momento, ”Li estas pli bona ol li estis. Povas esti, ke iam ni trovos lin tiel racia, kiel ni.”
 
@@ -514,9 +427,6 @@ La ĉefoj murmuris konsente.
 ”Ha!” diris Jakob.
 
 ”Tio ĉi”, diris la kuracisto, responde al sia propra demando. ”Tiuj kuriozaj aĵoj, nomataj la okuloj, kaj kiuj ekzistas por fari agrablan molan kaveton en la vizaĝo, ĉe Bogota estas malsanaj, tiel ke ili tuŝas la cerbon. Ili estas tre ŝvelintaj, li havas okulharojn kaj liaj palpebroj moviĝas, kaj sekve lia menso estas en konstanta stato de agaciĝo kaj frenezemo.”
-
-
-LANDO DE BLINDULOJ
 
 
 ”ĉu jes?” diris la maljunulo, ”ĉu vere?”
@@ -547,9 +457,7 @@ Estis Medina-salroté, kiu instigis al Nuñez renkonti la blin-dajn kirurgojn.
 
 Kaj estas vi. Nur pro vi estas bone posedi vidadon, estas bone vidi vian dolĉan serenan vizaĝon, viajn afablajn lipojn, viajn karajn, belajn manojn kunplektitajn.
 
-Estas tiuj ĉi okuloj miaj, kiujn vi impresis, tiuj ĉi okuloj, kiuj tenas min al vi, kiujn volas tiuj ĉi idioto. Anstataŭe mi devos palpi vin, aŭdi vin, kaj neniam revidi vin. Mi devos veni sub tiun tegmenton el roko kaj ŝtono kaj mallumo, tiun teruran 28
-
-LANDO DE BLINDULOJ
+Estas tiuj ĉi okuloj miaj, kiujn vi impresis, tiuj ĉi okuloj, kiuj tenas min al vi, kiujn volas tiuj ĉi idioto. Anstataŭe mi devos palpi vin, aŭdi vin, kaj neniam revidi vin. Mi devos veni sub tiun tegmenton el roko kaj ŝtono kaj mallumo, tiun teruran
 
 
 tegmenton, sub kiu kliniĝas via imago … Ne, vi ne volas, ke mi faru tion?”
@@ -582,9 +490,7 @@ Li konstatis ĉion tre rapide. Li sentis koleron, ja koleron pro la mizera evolu
 
 ŝi ĵetis siajn brakojn ĉirkaŭ lin, kaj freneze ekploris. ”Ho, se vi konsentus”, ŝi plorĝemis, ”se vi povus konsenti!”
 
-Dum la semajno antaŭ la operacio, kiu levos lin de lia serv-uteco kaj malsupereco al la nivelo de blindulo, Nuñez tute ne dormis, kaj dum la varmaj sunlumaj horoj, kiam la aliaj dormis feliĉaj, li sidis meditante aŭ vagis sencele, kaj penis kon-centrigi sian menson je la dilemo. Li jam respondis, li jam konsentis, tamen li ankoraŭ ne estis certa. Kaj fine ĉesis la 29
-
-LANDO DE BLINDULOJ
+Dum la semajno antaŭ la operacio, kiu levos lin de lia serv-uteco kaj malsupereco al la nivelo de blindulo, Nuñez tute ne dormis, kaj dum la varmaj sunlumaj horoj, kiam la aliaj dormis feliĉaj, li sidis meditante aŭ vagis sencele, kaj penis kon-centrigi sian menson je la dilemo. Li jam respondis, li jam konsentis, tamen li ankoraŭ ne estis certa. Kaj fine ĉesis la
 
 
 laborperiodo, la suno leviĝis grandioza super la oraj montosuproj, kaj komenciĝis lia lasta tago de vidado. Li pasigis kelkajn minutojn kun Medina-saroté antaŭ ol ŝi foriris por dormi.
@@ -613,9 +519,7 @@ Li ne flankeniris, laŭ la intenco, sed iris plu kaj trapasis la ĉirkaŭan muro
 
 Li vidis ilian nedifineblan belecon, kaj lia imago transflu-gis ilin al la mondo pretere, kiun nun li rezignos por ĉiam.
 
-Li pripensis tiun grandan liberan mondon, de kiu li estas apartigita, sian propran mondo, kaj li havis vizion pri tiuj pli 30
-
-LANDO DE BLINDULOJ
+Li pripensis tiun grandan liberan mondon, de kiu li estas apartigita, sian propran mondo, kaj li havis vizion pri tiuj pli
 
 
 malproksimaj deklivoj, longe, longe for, kun Bogota kuŝanta bela en la mezo, Bogota, la loko de dekmil emociigaj belaĵoj, glora dum la tago, brile mistera dum la okto, la loko de pa-lacoj kaj fontanoj kaj statuoj kaj blankaj domoj. Li pensis, kiel post unu-du tagoj oni povus trairi montpasejojn, kaj pli kaj pli alproksimiĝi al ĝiaj movoplenaj stratoj kaj vojoj. Li pensis pri la rivera vojaĝo, tagon post tago, de granda Bogota al la ankoraŭ pli vasta transa mondo, tra urboj kaj vilaĝoj, arbaroj kaj dezertaj lokoj, la flueganta rivero, tagon post tago, ĝis ĝiaj bordoj pli larĝe apartiĝas kaj la grandaj vaporŝipoj preter-plaŭdas, kaj oni atingas la maron — la senliman maron, kun
@@ -627,9 +531,6 @@ Liaj okuloj rigardis pli serĉe la grandan kurtenon la montaro.
 Ekzemple, se oni suprenirus tien tra tiu gorĝo, kaj tra tiu truo, tiel oni povus atingi tiujn duonkreskintajn pinojn, kiuj alte ĉirkaŭas en formo de bretego, kiu leviĝas pli kaj pli alte
 
 ĝis ĝi superpasas la gorĝon. Kaj tiam? Estus eble entrepreni tiun krutan rokaron. Tiam, eble, oni trovus lokon por grimpi al la fendego; kaj se tiu truo ne utilus, tiam eble oni trovus alian pli oriente. Kaj tiam? Tiam oni estus ekstere sur la suk-ceneca neĝo tie, kaj duonvoje al la supro de tiu bela kaj ege soleca montaro.
-
-
-LANDO DE BLINDULOJ
 
 
 Subite li rerigardis la vilaĝon, tiam li tute turnis sin, kaj rigardis ĝin fikse.
@@ -647,9 +548,6 @@ Liaj vestoj estis ŝiritaj, liaj membroj estis sangaj, multloke li havis kontuzo
 De kie li ripozis, ŝajnis ke la valo estas en kavego unu ki-lometron malsupre. i jam estis malklara pro nebuleto kaj ombro; kvankam la ĉirkaŭaj montosuproj estis el lumo kaj fajro. Kaj la detaletoj de la apudaj rokoj briletis kun subtila beleco — vejno de ia verda mineralo penetris la grizon, jen kaj jen ekbrilis kristalaĵoj, kaj eta, detale belega, oranĝeca likeno estis apud lia vizaĝo. En la fendego estis nigraj misteraj ombroj, bluo malheliĝis en purpuron, kaj purpuro en lume-can malhelon, kaj supre estis la senlima vasto de la ĉielo. Sed li ne plu atentis tiujn ĉi aferojn; li kuŝis tie tute senmova, ri-detante kvazaŭ li estas kontenta nur pro sia forkuro el la valo de la blinduloj, en kiu li pensis fariĝi reĝo.
 
 Pasis la brilo de la sunsubiro kaj venis la nokto, kaj ankoraŭ li kuŝis trankvile kontenta sub la malvarmaj steloj.
-
-
-LANDO DE BLINDULOJ
 
 
 www.omnibus.se/

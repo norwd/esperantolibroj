@@ -44,10 +44,7 @@ Vi[du http://www.netword.com/booksreborn/](http://www.netword.com/booksreborn/)
 
 *la diplomatia vivo, kaj al niaj infanoj, kiuj nun devas aŭskulti la ŝercojn* *kaj enigmojn de niaj genepoj. *
 
-La aŭtoro dankas al Hutchinson of Australia pro ilia permeso eldoni Espe-
-
-
-era-Sikorska kaj al Nick Nicholas pro traduksugestoj, al Jay Grant pro la
+La aŭtoro dankas al Hutchinson of Australia pro ilia permeso eldoni Espeera-Sikorska kaj al Nick Nicholas pro traduksugestoj, al Jay Grant pro la
 
 enkomputiligo kaj al Donald Broadribb pro lia fina polurado. Tamen li
 
@@ -58,17 +55,13 @@ RALPH LINDSAY HARRY, AC, CBE
 
 Ralph Lindsay Harry, AC, CBE, post studoj en Hobarto kaj
 
-Oksfordo (Stipendiulo Rhodes) servis kiel Aŭstralia diplo-
-
-mato inter 1940 kaj 1978. Li estis Aŭstralia ambasadoro en
+Oksfordo (Stipendiulo Rhodes) servis kiel Aŭstralia diplomato inter 1940 kaj 1978. Li estis Aŭstralia ambasadoro en
 
 Bruselo, Sajgono, Bonno kaj ĉe UN en Nov-Jorko. Post sia
 
 emeritiĝo li fariĝis vizitanta Fratulo en la Universitato de
 
-Tasmanio, kiu faris lin Honora Doktoro pri Juro, kaj Admin-
-
-istranto de Aŭstralia Instituto pri Internaciaj Aferoj.
+Tasmanio, kiu faris lin Honora Doktoro pri Juro, kaj Administranto de Aŭstralia Instituto pri Internaciaj Aferoj.
 
 D-ro Harry estas Eksprezidanto de Aŭstralia Esperanto-
 
@@ -81,25 +74,25 @@ Aliaj libroj liaj en Esperanto inkluzivas *Aventuroj en Esper-*
 
 ***listo de ĉapitroj***
 
-enkonduko 9
+enkonduko
 
-unuaj principoj 11
+unuaj principoj
 
-reĝa diplomatio 17
+reĝa diplomatio
 
-pioniroj de la diplomatio 27
+pioniroj de la diplomatio
 
-diplomataj vizitoj 39
+diplomataj vizitoj
 
-aŭstralianoj eksterlande 45
+aŭstralianoj eksterlande
 
-diplomatiaj vendistoj 53
+diplomatiaj vendistoj
 
-la lingvo de la diplomatio 63
+la lingvo de la diplomatio
 
-diplomatiaj komunikaĵoj 69
+diplomatiaj komunikaĵoj
 
-la diplomatia profesio 75
+la diplomatia profesio
 
 
 ***enkonduko***
@@ -126,9 +119,7 @@ ekspluatis en la 30-aj jaroj.
 
 Diplomatoj, same kiel politikistoj, kelkfoje konsideras sin kaj siajn
 
-misiojn tro gravaj, kaj tio povas esti danĝera por la paco de la mondo. Bon-
-
-fortune la plejparto de la ambasadoroj havas ampleksan sperton kaj
+misiojn tro gravaj, kaj tio povas esti danĝera por la paco de la mondo. Bonfortune la plejparto de la ambasadoroj havas ampleksan sperton kaj
 
 bonan humursenton kiu malstreĉas la atmosferon dum intertraktado kaj
 
@@ -144,9 +135,7 @@ En 1978, la A.A.H.I.A. aljuĝis sian Noblan Premion al la antaŭa Usona
 
 ambasadoro en Hindio John Galbraith, pro lia “Plano de Norda Dakoto”,
 
-laŭ kiu la landlimoj de ĉiuj landoj estu redesegnitaj laŭ la formo kaj gran-
-
-deco de Norda Dakoto, tiel nuligante la Grandajn Potencojn kaj abolante
+laŭ kiu la landlimoj de ĉiuj landoj estu redesegnitaj laŭ la formo kaj grandeco de Norda Dakoto, tiel nuligante la Grandajn Potencojn kaj abolante
 
 ĉiujn marbordojn. Akceptante la honoron, Galbraith komentis ke nenio
 
@@ -161,15 +150,11 @@ kiu povas distranĉi torton tiel ke ĉiu ĉeestanto kredas ke ŝi ricevas la ple
 
 sed neniam memoras ŝian aĝon. Ambasadoroj, precipe se ili ne havas
 
-instrukciojn de siaj registaroj, devas certigi ke ili konservas la povon ele-
-
-kti taŭgan respondon. El tio fontas la klarigo de la diferenco inter diplo-
+instrukciojn de siaj registaroj, devas certigi ke ili konservas la povon elekti taŭgan respondon. El tio fontas la klarigo de la diferenco inter diplo-
 
 mato kaj “ĝentlemanino” aŭ damo:
 
-Se diplomato diras “Jes”, tio signifas “Eble”. Se li diras “Eble” la sig-
-
-nifo estas “Ne”. Se li diras “Ne” li ne estas diplomato. Se damo diras “Ne”
+Se diplomato diras “Jes”, tio signifas “Eble”. Se li diras “Eble” la signifo estas “Ne”. Se li diras “Ne” li ne estas diplomato. Se damo diras “Ne”
 
 tio signifas “Eble”. Se ŝi diras “Eble” la signifo estas “Jes”. Se ŝi diras “Jes”
 
@@ -187,9 +172,7 @@ nomon *Féerie*, kiun oni povus traduki: “Fekapriolado”. La heroo estis mita
 
 turmentis la hispanajn armeojn kiam ili invadis la Malaltajn Landojn.
 
-Specialaĵoj de la festo tiun jaron estis trupo de Francaj marŝantaj knab-
-
-inoj, la membroj de muziksocieto, kiuj kantis sur kamiono, kaj fajr-brigadaj tubegoj, kiuj blovis konfetojn en la homamason. Vespere estis
+Specialaĵoj de la festo tiun jaron estis trupo de Francaj marŝantaj knabinoj, la membroj de muziksocieto, kiuj kantis sur kamiono, kaj fajr-brigadaj tubegoj, kiuj blovis konfetojn en la homamason. Vespere estis
 
 sepplada bankedo kaj konkurso de blagrakontoj. Kiam alvenis mia vico,
 
@@ -203,10 +186,7 @@ Kompreneble la diplomatio estas pli ol simpla ĝentileco. Oni ordonis
 
 al juna servisto en hotelo ke, se li hazarde eniros ĉambron en kiu troviĝas
 
-gastino senvesta tute nuda, li ne nur diru ĝentile: “Senkulpigu min, Sin-
-
-
-jorino”, sed ke li devos uzi la diplomation kaj diri: “Senkulpigu min, Sin-
+gastino senvesta tute nuda, li ne nur diru ĝentile: “Senkulpigu min, Sinjorino”, sed ke li devos uzi la diplomation kaj diri: “Senkulpigu min, Sin-
 
 joro”! Unu tagon li malfermis pordon kaj ektrovis nudan paron.
 
@@ -246,9 +226,7 @@ solvis tiklan problemon majstre. Je unu el liaj bankedoj servisto enportis,
 
 por ĝin elmontri antaŭ ol servi, belan anason. Bedaŭrinde, li glitis kaj
 
-falis, kaj la anaso flugplonĝis al la planko. Sen eĉ eta embaraso, Tall-
-
-eyrand riproĉegis la malfeliĉan serviston: “Mallerta fuŝulo”, li diris, “For-
+falis, kaj la anaso flugplonĝis al la planko. Sen eĉ eta embaraso, Talleyrand riproĉegis la malfeliĉan serviston: “Mallerta fuŝulo”, li diris, “For-
 
 prenu tiun malpuraĵon kaj distranĉu la alian anason”. Kelkaj personoj
 
@@ -266,18 +244,14 @@ Folies Bergères. Unu el la eroj estis orangutango, kiu faris mirindajn
 
 lertaĵojn. Subite la besto, ŝajne neregebla, foriris de la scenejo kaj grimpis al loĝio kie juna Aŭstralia diplomato estis sidanta kun la ĉarma sekretar-iino de la Ministro, S-ino Johanna van der Graaf. Ŝi kriegis kaj ĵetis sin
 
-en la brakojn de sia akompananto por protekto. La diplomato gajnis plu-
-
-rajn sekundojn kovrante ŝiajn orelojn, dum la orangutango flustris: “Ne
+en la brakojn de sia akompananto por protekto. La diplomato gajnis plurajn sekundojn kovrante ŝiajn orelojn, dum la orangutango flustris: “Ne
 
 timu, sinjorino”.
 
 
 Eksa diplomato, sen laboro dum la ekonomia krizo, vidis anoncon pri
 
-posteno vaka en la zoologia ĝardeno, por diskreta viro. Kiam li kandi-
-
-datiĝis, la administranto de la personaro postulis promeson pri sekreteco,
+posteno vaka en la zoologia ĝardeno, por diskreta viro. Kiam li kandidatiĝis, la administranto de la personaro postulis promeson pri sekreteco,
 
 kaj tiam klarigis ke la gorilo de tiu zoo, la favorato de la infanoj, mortis.
 
@@ -285,9 +259,7 @@ Por ne trompi la esperojn de la infanoj, ĝis anstataŭanto povos esti akirita
 
 oni retenis la pelton kaj la tasko en la posteno estos aperi kvazaŭ oni estus la gorilo. Ĉar li bezonis la monon, la diplomato akceptis la postenon kaj,
 
-post iom da ekzercado, lokigis sin en la enfermejo de la gorilo. Ĉiuj infanoj ĝojegis vidante sian amikon, la gorilon, kaj la eksdiplomato baldaŭ svin-gadis sntente. Bedaŭrinde, post unu speciale forta svingiĝo, lia ten-
-
-povo malfirmiĝis kaj li surteriĝis en la leonloĝejo najbara. La leono alsaltis kaj la “gorilo”, sen rigardo al la neceso de sekreteco, estis krionta por helpo kiam la “leono” flustris: “Silentu, stultulo, aŭ ni ambaŭ perdos
+post iom da ekzercado, lokigis sin en la enfermejo de la gorilo. Ĉiuj infanoj ĝojegis vidante sian amikon, la gorilon, kaj la eksdiplomato baldaŭ svin-gadis sntente. Bedaŭrinde, post unu speciale forta svingiĝo, lia tenpovo malfirmiĝis kaj li surteriĝis en la leonloĝejo najbara. La leono alsaltis kaj la “gorilo”, sen rigardo al la neceso de sekreteco, estis krionta por helpo kiam la “leono” flustris: “Silentu, stultulo, aŭ ni ambaŭ perdos
 
 nian postenon”!
 
@@ -303,21 +275,15 @@ Medicino, kutimis rakonti ke foje li flegis la edzinon de ambasadoro. Ŝi
 
 estis graveda. La kutimaj naŭ monatoj estis jam finitaj, sed la nasko ne
 
-komenciĝis. Fine li decidis ke li devos fari cezaran operacion. Dum li oper-
-
-aciis la kialo de la prokrasto riveliĝis. Estis ĝemeloj en la utero—kaj ĉiu el ili deziris ke la alia iru antaŭe en la mondon!
+komenciĝis. Fine li decidis ke li devos fari cezaran operacion. Dum li operaciis la kialo de la prokrasto riveliĝis. Estis ĝemeloj en la utero—kaj ĉiu el ili deziris ke la alia iru antaŭe en la mondon!
 
 Aŭstralianoj ne ĉiam estis konataj pro sia ĝentileco. Cinikulo iam
 
 diris: “Vi devas lerni akcepti la malglatan kune kun la kruda”. Sed fakte
 
-Aŭstralianoj estas laŭnature ĝentilaj. Du Aŭstraliaj soldatoj kiuj estis for-
+Aŭstralianoj estas laŭnature ĝentilaj. Du Aŭstraliaj soldatoj kiuj estis forpermese en Anglio, dum la Unua Mondmilito, por resaniĝo, estis invititaj
 
-permese en Anglio, dum la Unua Mondmilito, por resaniĝo, estis invititaj
-
-al kampara hejmo, kie oni bonvenigis ilin kiel heroojn. Kiam ili estis fori-
-
-rontaj, la “fosistoj”1 dankis al sia gastiganto. Unu el ili diris fine: “Kaj mi devas diri, Sinjoro, ke via edzino estus mirinda amantino”. Dum la Anglo
+al kampara hejmo, kie oni bonvenigis ilin kiel heroojn. Kiam ili estis forirontaj, la “fosistoj”1 dankis al sia gastiganto. Unu el ili diris fine: “Kaj mi devas diri, Sinjoro, ke via edzino estus mirinda amantino”. Dum la Anglo
 
 retroiris, embarasite, la alia Soldato riproĉis sian amikon: “Tio estis iom
 
@@ -338,9 +304,7 @@ Evatt ĉe la Komisiono pri Atoma Energio, eksciis plurajn diplomatiajn
 
 sekretojn. Kiam li fariĝis Ŝtatestro de Sud-Aŭstralio, li diris ke kiel diplomato li devis lerni oscedi sen malfermi la buŝon.
 
-Diplomatia aparteco, la arto partopreni en diskutado sen riveli la per-
-
-sonajn sentojn, estas kelkfoje interpretata kiel manko de varmkoreco.
+Diplomatia aparteco, la arto partopreni en diskutado sen riveli la personajn sentojn, estas kelkfoje interpretata kiel manko de varmkoreco.
 
 Dum bankedo gastigata de Charles de Gaulle oni trovis ke la ĉampano ne
 
@@ -350,13 +314,9 @@ stabo, “Metu ĝin apud Couve de Murville”—la Ministro pri Eksterlandaj
 
 Aferoj—“Li tuj malvarmigos ĝin”.
 
-Nenia Ĝenerala Teorio de Diplomatio estas ĝis nun pruvita, sed Pro-
+Nenia Ĝenerala Teorio de Diplomatio estas ĝis nun pruvita, sed Profesoro C. Northcote Parkinson, la aŭtoro de *La Leĝo de Parkinson* 2, jam aplikis siajn bone konatajn teoriojn al kelkaj aspektoj. En parolado al la
 
-fesoro C. Northcote Parkinson, la aŭtoro de *La Leĝo de Parkinson* 2, jam aplikis siajn bone konatajn teoriojn al kelkaj aspektoj. En parolado al la
-
-Ekonomia Kolegio de Roterdamo, li sugestis ke la nombro de la diploma-
-
-tiaj misioj kaj la grandeco de iliaj staboj tiom kreskis ke diplomatoj povas
+Ekonomia Kolegio de Roterdamo, li sugestis ke la nombro de la diplomatiaj misioj kaj la grandeco de iliaj staboj tiom kreskis ke diplomatoj povas
 
 plenigi sian tutan tempon per akceptoj kaj bankedoj inter si mem, kaj tial
 
@@ -366,9 +326,7 @@ ili estas akredititaj. Per la citado de imagaj kaz-historioj de rilatoj inter Us
 
 kun turismo, kaj ke ambasadoj fariĝis prestiĝhoteloj.
 
-Oni kelkfoje akuzas la diplomatojn ke ili tro atentas formalaĵojn, ink-
-
-luzive la faradon de formalaj vizitoj al negravaj surlokaj aŭtoritatoj, kiam
+Oni kelkfoje akuzas la diplomatojn ke ili tro atentas formalaĵojn, inkluzive la faradon de formalaj vizitoj al negravaj surlokaj aŭtoritatoj, kiam
 
 ili unue alvenas al siaj misioj. Tamen, tiaj vizitoj ofte estas sekvataj de
 
@@ -382,9 +340,7 @@ en elekto por la ĉefeco de la Kristana Demokratia Unio kaj provizore estis
 
 ekster la teamo, politike. Mi kuraĝigis lin pligrandigi siajn sciojn pri
 
-eksterlandaj aferoj per vizito al Aŭstralio kaj Sud-orienta Azio. Li tag-
-
-manĝis kun mi kaj aliaj ambasadoroj, al kiuj mi prezentis lin. Post dek
+eksterlandaj aferoj per vizito al Aŭstralio kaj Sud-orienta Azio. Li tagmanĝis kun mi kaj aliaj ambasadoroj, al kiuj mi prezentis lin. Post dek
 
 2 Ŝerca leĝo ke registaraj departmentoj kreskas inverse al la laboro farenda.
 
@@ -405,17 +361,11 @@ Aŭstralio, estis optimisma rilate la preparojn por la Ludoj. “La ĉefa stadio
 
 tamen estos preta por la inaŭgura ceremonio,” li diris. “La jaro 1972 estos
 
-superjaro, kaj la Ludoj komenciĝos nur posttagmeze”. En 1982, Vogel far-
+superjaro, kaj la Ludoj komenciĝos nur posttagmeze”. En 1982, Vogel fariĝis la kandidato de la Sociala Demokratia Partio por fariĝi Kanceliero.
 
-iĝis la kandidato de la Sociala Demokratia Partio por fariĝi Kanceliero.
+Poste, mi faris miajn formalajn vizitojn en Berlino, kie mi estis la civila ĉefo de la Aŭstralia Milita Misio. Ĉeestante ceremonion, mi renkontis
 
-Poste, mi faris miajn formalajn vizitojn en Berlino, kie mi estis la civ-
-
-ila ĉefo de la Aŭstralia Milita Misio. Ĉeestante ceremonion, mi renkontis
-
-Usonan generalon kiun mi konis en Vjetnamo, kaj kiu havis kun si viz-
-
-itanton el Usono—Jimmy Carter, Guberniestro de la ŝtato Georgio, poste
+Usonan generalon kiun mi konis en Vjetnamo, kaj kiu havis kun si vizitanton el Usono—Jimmy Carter, Guberniestro de la ŝtato Georgio, poste
 
 Prezidento.
 
@@ -438,15 +388,11 @@ de la ŝtatestro, kaj estas akompanata de membroj de sia stabo, kiuj de
 
 tempo al tempo estas invitataj al la Palaco.
 
-Je mia unua posteno, en Otavo, la ĉefurbo de Kanado, mi ricevis invi-
-
-ton ludi tenison ĉe la Ĝenerala Guberniestro, la Grafo de Athlone. La sek-
+Je mia unua posteno, en Otavo, la ĉefurbo de Kanado, mi ricevis inviton ludi tenison ĉe la Ĝenerala Guberniestro, la Grafo de Athlone. La sek-
 
 retario de Lia Moŝto informis min ke mi estos kunludanto de Ŝia Moŝto
 
-Princino Alice, la edzino de la Grafo. Mi respondis ke estos honoro. La sek-
-
-retario daŭrigis ke la Princino (a) amas venki, kaj (b) preferas ke ŝia part-
+Princino Alice, la edzino de la Grafo. Mi respondis ke estos honoro. La sekretario daŭrigis ke la Princino (a) amas venki, kaj (b) preferas ke ŝia part-
 
 nero ne “ŝtelu” ŝiajn batojn. Mi respondis ke, kvankam mi estas
 
@@ -458,9 +404,7 @@ timu, amiko”, diris la sekretario, “Mi jam parolis ankaŭ al la kontraŭuloj
 
 Princino Alice estis ĉarma, kaj ni facile venkis.
 
-Princino Juliana de Nederlando, kiu ekloĝis en Kanado post la Ger-
-
-mana invado de ŝia patrujo, kaj loĝis en Otavo, ludis tenison en klubo de
+Princino Juliana de Nederlando, kiu ekloĝis en Kanado post la Germana invado de ŝia patrujo, kaj loĝis en Otavo, ludis tenison en klubo de
 
 kiu mi estis membro. Feliĉige, ŝi ludis malpli formale.
 
@@ -474,9 +418,7 @@ direktado de la Milito. En la Citadelo mi atendis ĝis Kavaliro William
 
 venis el la ĉambro kie li parolis kun Churchill.
 
-La Alta Komisiito rakontis al mi ke li diskutis kun Churchill la signi-
-
-fon de la eniro de Usono en la militon, je tempo kiam la Brita Komunreg-
+La Alta Komisiito rakontis al mi ke li diskutis kun Churchill la signifon de la eniro de Usono en la militon, je tempo kiam la Brita Komunreg-
 
 naro kaj Sovetunio nur tre malfacile daŭrigis la batalon kontraŭ Hitler.
 
@@ -485,17 +427,13 @@ Tiam post medito Churchill subite diris: “Pearl Harbour (Perlhaveno)
 Pearl Harbour, perloj senprezaj, Glasgow.”
 
 
-Antaŭ nia foriro de Otavo, ni ricevis sekretegan telegramon de la Min-
-
-istro pri Eksterlandaj Aferoj, D-ro Evatt. Post aliaj informoj la telegramo
+Antaŭ nia foriro de Otavo, ni ricevis sekretegan telegramon de la Ministro pri Eksterlandaj Aferoj, D-ro Evatt. Post aliaj informoj la telegramo
 
 finiĝis per la vortoj: “Informu Brendan Bracken [konsilanto de Churchill]
 
 ke la platipuso komencis sian vojaĝon”. Kavaliro William demandis al mi
 
-kio estas la signifo de la frazo pri la platipuso, la stranga Aŭstralia orni-
-
-tor, amfibia besto kiu demetas ovojn kaj poste mamnutras la idojn. Mi
+kio estas la signifo de la frazo pri la platipuso, la stranga Aŭstralia ornitor, amfibia besto kiu demetas ovojn kaj poste mamnutras la idojn. Mi
 
 sugestis ke eble estas aludo al tre sekreta amfibia ekspedicio. Ni estis
 
@@ -517,9 +455,7 @@ scias multon pri internaciaj aferoj. Post unu-du jaroj, je la fino de simila
 
 vizito li diris: “Truman lernis multon post kiam li fariĝis Prezidento”.
 
-En 1948 Truman, kiu heredis la prezidentecon de Franklin D. Roo-
-
-sevelt, kandidatiĝis por dua deĵorperiodo. Ĉiuj ĵurnalistoj, opinienketistoj, kaj aliaj spertuloj antaŭanoncis venkon por la Respublik-Partia kandidato Thomas E. Dewey. Kiel sekretario en la Ambasado mi preparis rap-
+En 1948 Truman, kiu heredis la prezidentecon de Franklin D. Roosevelt, kandidatiĝis por dua deĵorperiodo. Ĉiuj ĵurnalistoj, opinienketistoj, kaj aliaj spertuloj antaŭanoncis venkon por la Respublik-Partia kandidato Thomas E. Dewey. Kiel sekretario en la Ambasado mi preparis rap-
 
 orton al Kanbero, antaŭvidante Respublik-Partian registaron. Je nia
 
@@ -540,34 +476,26 @@ Post konversacio kun la Prezidento pri alia afero, li demandis al Truman
 
 atendas sukceson—kaj Makin lin kredis.
 
-Harry Truman ofte surprizis homojn kiuj ne konis liajn kvalitojn. Viz-
-
-itanta Franca politikisto kiu vizitis Truman en lia hejmurbo, Independ-
+Harry Truman ofte surprizis homojn kiuj ne konis liajn kvalitojn. Vizitanta Franca politikisto kiu vizitis Truman en lia hejmurbo, Independ-
 
 ence, Missouri, miris kiam Truman memoris ke tiu Franco faris antaŭan
 
 viziton al Independence, kiam li estis studento, ke li loĝis en specifa
 
 
-hotelo, kaj manĝis en nomita restoracio. Kompreneble la Ŝtata Departe-
-
-mento (pri Eksterlandaj Aferoj) estis zorge enketita pri la afero, kaj
+hotelo, kaj manĝis en nomita restoracio. Kompreneble la Ŝtata Departemento (pri Eksterlandaj Aferoj) estis zorge enketita pri la afero, kaj
 
 provizis al Truman bone indeksitan dosieron. La vere interesa aspekto de
 
 la afero kuŝis en tio ke nenio troviĝis en tiu dosiero pri la antaŭa vizito de la Franco!
 
-La malkaŝemo de Truman foje preskaŭ kaŭzis al mi embarason diplo-
-
-matian. La Prezidenton ege ĉagrenis ke kritikisto faris malestimajn rima-
+La malkaŝemo de Truman foje preskaŭ kaŭzis al mi embarason diplomatian. La Prezidenton ege ĉagrenis ke kritikisto faris malestimajn rima-
 
 rkojn pri koncerto de lia pianista filino Margaret. Ambasadoro Makin kaj
 
 mi vojaĝis el Nov-Jorko al Vaŝingtono per la Fervojo Pennsylvania, kun
 
-Generalo Carlos P. Rómulo de Filipinoj. La posttagmeza ĵurnalo havis kri-
-
-egan ĉeflinion: “Prezidento nomas kritikiston S.O.B.” (Usona sakraĵo,
+Generalo Carlos P. Rómulo de Filipinoj. La posttagmeza ĵurnalo havis kriegan ĉeflinion: “Prezidento nomas kritikiston S.O.B.” (Usona sakraĵo,
 
 laŭvorte: filo de hundino). La ambasadoro, strikta Metodisto, demandis al
 
@@ -603,9 +531,7 @@ Ni laŭorde verkis la artikolon, poste ĉesis labori por manĝi “piknikon”
 
 konsistantan el kokido, fritita laŭ la sudusona maniero, sur tabloj sur la
 
-gazono, servate de kelneroj kun blankaj jakoj. Sinjorino Roosevelt pro-
-
-ponis al Profesoro Cassin, kiu sidis kun mi, polvokovritan botelon da ruĝa
+gazono, servate de kelneroj kun blankaj jakoj. Sinjorino Roosevelt proponis al Profesoro Cassin, kiu sidis kun mi, polvokovritan botelon da ruĝa
 
 vino. “Ĉi tiu valora vino estis donaco de la familio Rothschild al Teodoro
 
@@ -632,15 +558,11 @@ vireco, kaj unu post alia Cassin, Chang, Pavlov, Hernén Santa Cruz de
 
 Eleanor vokis sian klason denove en la lernejon.
 
-Inter 1953 kaj 1956, kiel reprezentanto ĉe la Eŭropa Oficejo de Unu-
-
-iĝintaj Nacioj, kaj Ĝenerala Konsulo de Aŭstralio en Svislando, mi ne estis
+Inter 1953 kaj 1956, kiel reprezentanto ĉe la Eŭropa Oficejo de Unuiĝintaj Nacioj, kaj Ĝenerala Konsulo de Aŭstralio en Svislando, mi ne estis
 
 akreditita ĉe la Svisa prezidento. Ĉiuokaze, la prezidenteco de Svislando
 
-rondiras inter membroj de la Federala Konsilio, kaj tial eĉ la Svisoj ofte ne povas informi vin, je difinita momento, kiu estas ilia ŝtatestro. Sed hazarde, dank’ al skiferioj, mia familio poste kontaktiĝis kun Geprincoj Rain-
-
-ier de Monako. Ni kutimis lupreni ĉaleton ĉe Schönried en la apudberna
+rondiras inter membroj de la Federala Konsilio, kaj tial eĉ la Svisoj ofte ne povas informi vin, je difinita momento, kiu estas ilia ŝtatestro. Sed hazarde, dank’ al skiferioj, mia familio poste kontaktiĝis kun Geprincoj Rainier de Monako. Ni kutimis lupreni ĉaleton ĉe Schönried en la apudberna
 
 montaro (Oberland). En 1965 ni revizitis Schönried kun niaj filo kaj filino.
 
@@ -650,9 +572,7 @@ la proprietanto de nia ĉaleto. Mi havis nur mallongan kontakton kun la
 
 Princino, sur skitrenilo. Sed mia filino, kaj mia filo kiu estis en la unua
 
-remteamo de la Anglikana Gimnazio en Melburno kaj kiu estis solide kon-
-
-struita, pasigis posttagmezon glitkurante kun Princino Caroline kaj
+remteamo de la Anglikana Gimnazio en Melburno kaj kiu estis solide konstruita, pasigis posttagmezon glitkurante kun Princino Caroline kaj
 
 Princo Albert. Kiam li revenis hejmen Johano ŝajne havis zorgojn: “Estis
 
@@ -662,19 +582,13 @@ En Ĝenevo mi konatiĝis kun kelkaj eminentuloj de la Esperanto-
 
 Movado, ekzemple Hans Jakob, la administranto de la fonduso Hodler kaj
 
-de la biblioteko nun en Roterdamo. Unu vesperon mia edzino kaj mi tag-
-
-manĝis kun Harold Macmillan, la Brita Ministro pri Eksterlandaj Aferoj,
+de la biblioteko nun en Roterdamo. Unu vesperon mia edzino kaj mi tagmanĝis kun Harold Macmillan, la Brita Ministro pri Eksterlandaj Aferoj,
 
 kiu estis komenconta kunvenon kun la Ruso Molotov. Macmillan diris ke
 
-Molotov konstante citas proverbojn, kaj ke li ŝatus povi citi Rusan prover-
+Molotov konstante citas proverbojn, kaj ke li ŝatus povi citi Rusan proverbon por ridindigi la suspektemon de la Rusa ĉefo. Mi kontaktis Hans
 
-bon por ridindigi la suspektemon de la Rusa ĉefo. Mi kontaktis Hans
-
-Jakob, kiu provizis la proverbaron de Marko Zamenhof, la patro de Ludo-
-
-viko. Tie mi trovis Rusan proverbon: “La lupo avidas la ŝafojn sed restas
+Jakob, kiu provizis la proverbaron de Marko Zamenhof, la patro de Ludoviko. Tie mi trovis Rusan proverbon: “La lupo avidas la ŝafojn sed restas
 
 en la arbaro”. Mi sendis ĝin al Macmillan, kiu ĝoje uzis ĝin je la unua
 
@@ -683,9 +597,7 @@ okazo.
 
 Mi ankaŭ konatiĝis kun Ivo Lapenna kaj kun Edmond Privat. Mi
 
-vizitis D-ron Privat en Neuchatel, kie li estis profesoro pri Angla liter-
-
-aturo. Antaŭ ol foriri mi petis lin registri por mi ĉapitron de sia *Vivo de* *Zamenhof*, por ke la Esperantistoj de Aŭstralio aŭskultu lian belan dekla-madon. “Tute ne!” li respondis, “mi donos al vi mesaĝon”. Kaj sen kia ajn
+vizitis D-ron Privat en Neuchatel, kie li estis profesoro pri Angla literaturo. Antaŭ ol foriri mi petis lin registri por mi ĉapitron de sia *Vivo de* *Zamenhof*, por ke la Esperantistoj de Aŭstralio aŭskultu lian belan dekla-madon. “Tute ne!” li respondis, “mi donos al vi mesaĝon”. Kaj sen kia ajn
 
 preparo li stariĝis kaj oratoris bonegan paroladon al la Aŭstralianoj.
 
@@ -695,25 +607,17 @@ Aŭstralio en la Palaco de la Nacioj. La sekvan tagon oni telefonis al mi ke
 
 D-ro Privat paroladis en la Internacia Lernejo. “Mi komprenas” mi tuj
 
-diris, “la infanoj entuziasmiĝis kaj deziras lerni Esperanton, kaj vi bezo-
-
-nas instruiston”. Mi pravis. La maljunulo ankoraŭ havis arĝentan langon.
+diris, “la infanoj entuziasmiĝis kaj deziras lerni Esperanton, kaj vi bezonas instruiston”. Mi pravis. La maljunulo ankoraŭ havis arĝentan langon.
 
 Mi akceptis la instruan taskon.
 
-Post mia deĵorperiodo en Ĝenevo mi iris al Singapuro kiel reprezen-
+Post mia deĵorperiodo en Ĝenevo mi iris al Singapuro kiel reprezentanto (“Komisiito”) de Aŭstralio. Singapuro en 1956 ankoraŭ ne estis
 
-tanto (“Komisiito”) de Aŭstralio. Singapuro en 1956 ankoraŭ ne estis
-
-sendependa kaj oni traktadis diplomatie kun la Ĉefministro, David Mar-
-
-shall, kiu priskribis la proponojn de la Britoj por sendependeco kiel “krist-
+sendependa kaj oni traktadis diplomatie kun la Ĉefministro, David Marshall, kiu priskribis la proponojn de la Britoj por sendependeco kiel “krist-
 
 naskan pudingon kun saŭco el arseniko”. La nova konstitucio por
 
-sendependa Malajzio estis verkata de grupo kiu inkluzivis faman Aŭstral-
-
-ianon, la antaŭan Ĝeneralan Guberniestron, Kavaliron William [Vilĉjo]
+sendependa Malajzio estis verkata de grupo kiu inkluzivis faman Aŭstralianon, la antaŭan Ĝeneralan Guberniestron, Kavaliron William [Vilĉjo]
 
 McKell. Vilĉjo havis profundan konon de Aŭstraliaj aferoj—arto, muziko,
 
@@ -723,9 +627,7 @@ estis kritikita, ĉar li antaŭe estis aktiva politikisto—Premiero de Nova
 
 Sud-Kimrio. Estis skandaleto kiam la Prezidanto de la Parlamento—de la
 
-Ĉambro de Deputitoj—Archie Cameron, rifuzis iri al la Rezidejo en Yarra-
-
-lumla, en Kanbero, ĉar li malaprobis la enoficigon de McKell. En Sin-
+Ĉambro de Deputitoj—Archie Cameron, rifuzis iri al la Rezidejo en Yarralumla, en Kanbero, ĉar li malaprobis la enoficigon de McKell. En Sin-
 
 gapuro Kavaliro kaj Kavaliredzino McKell loĝis kun mi kaj mia edzino en
 
@@ -745,9 +647,7 @@ forprenas la nomon de la eksiĝinto el listoj, inkluzive de membreco de
 
 kluboj, kaj nur la novulon oni invitas fari ĉiujn paroladojn. Sed estas unu
 
-afero kiu daŭras—oni ankoraŭ ricevas invitojn al ŝtataj funebraj ceremo-
-
-nioj”. Li paŭzis, kaj tiam daŭrigis: “Kaj mi ĵus ricevis inviton al tiu de
+afero kiu daŭras—oni ankoraŭ ricevas invitojn al ŝtataj funebraj ceremonioj”. Li paŭzis, kaj tiam daŭrigis: “Kaj mi ĵus ricevis inviton al tiu de
 
 Archie Cameron”!
 
@@ -758,9 +658,7 @@ kie antaŭe reprezentis nin nia ambasadoro en Hago. Plejparte mia laboro
 
 rilatis al la Eŭropaj Komunumoj, sed mi estis akreditita ankaŭ al la Belga
 
-kortego kaj laŭorde prezentis mian leteron de akredito, adresita de Eliza-
-
-beth II, Reĝino de Aŭstralio, al sia “frato” Baudouin.
+kortego kaj laŭorde prezentis mian leteron de akredito, adresita de Elizabeth II, Reĝino de Aŭstralio, al sia “frato” Baudouin.
 
 Vestite per vespera frako kun blanka kravato kaj akompanate de mia
 
@@ -772,9 +670,7 @@ la lastan fojon kiam oni donis al ambasadoro tiun antikvan honoron. Post
 
 la ceremonio la Reĝo faris kelkajn demandojn, kaj montris sin tre bone
 
-informita, tro bone por mia trankvilo. Li kredis ke Aŭstralio estas send-
-
-onta soldatojn al Vjetnamo. Mi diris ke ni havas milit-konsilantojn en
+informita, tro bone por mia trankvilo. Li kredis ke Aŭstralio estas sendonta soldatojn al Vjetnamo. Mi diris ke ni havas milit-konsilantojn en
 
 Vjetnamo, sed neniu decido estas farita sendi trupojn. “Sed”, diris Reĝo
 
@@ -784,9 +680,7 @@ matene!”.
 
 La jaro 1965 estis la 150-a datreveno de la Batalo de Vaterlo, do de la
 
-decida venko, fare de Anglio kaj ties alianculoj, super la armeo de Napole-
-
-ono. La festado en Bruselo inkluzivis reokazigon de la balo en la Brita
+decida venko, fare de Anglio kaj ties alianculoj, super la armeo de Napoleono. La festado en Bruselo inkluzivis reokazigon de la balo en la Brita
 
 ambasadejo la vesperon antaŭ la batalo. La aktuala Duko de Wellington
 
@@ -802,15 +696,11 @@ la Aŭstralia ambasado konstante pilgrimis tien. Princino Lilian, edzino de
 
 Reĝo Leopoldo, antaŭa reĝo de Belgio, kiu loĝis je la rando de Bruselo,
 
-emis rakonti ke foje ŝi kondukis grupon da Usonaj vizitantoj al la bat-
-
-alkampo. Ŝi montris al ili kie la Imperiestro Napoleono staris kun sia
+emis rakonti ke foje ŝi kondukis grupon da Usonaj vizitantoj al la batalkampo. Ŝi montris al ili kie la Imperiestro Napoleono staris kun sia
 
 stabo, kaj kie la Angla generalo la Duko de Wellington direktis la batalon.
 
-La vizitantoj aŭskultis sed ne faris multajn demandojn. Dum la hejmen-
-
-veturado, tamen, ŝi aŭdis ke ili debatas pri io. Unu diris al alia: “Kial, do, ni ne demandu al the Princino”? Do unu el ŝiaj gastoj demandis: “Diru,
+La vizitantoj aŭskultis sed ne faris multajn demandojn. Dum la hejmenveturado, tamen, ŝi aŭdis ke ili debatas pri io. Unu diris al alia: “Kial, do, ni ne demandu al the Princino”? Do unu el ŝiaj gastoj demandis: “Diru,
 
 Princino, ĉu la Batalo de Vaterlo estis en la Unua aŭ la Dua Mondmilito?”
 
@@ -818,16 +708,12 @@ La Reĝo Leopoldo havis tre aktivan menson kaj, inter aliaj projektoj,
 
 li pripensis viziton al Aŭstralio. Preparante, li faris seriozan studon de la historio kaj kutimoj de la Aŭstraliaj aborigenoj. Ankaŭ li estis ankoraŭ
 
-bonega golfisto, kun handikapo de nur 6 aŭ 8. Pro lia sinteno, kiun oni opi-
-
-niis defetisma, en 1940 kiam la Nazioj invadis Belgion, oni organizis post
+bonega golfisto, kun handikapo de nur 6 aŭ 8. Pro lia sinteno, kiun oni opiniis defetisma, en 1940 kiam la Nazioj invadis Belgion, oni organizis post
 
 
 la milito referendumon por decidi ĉu li revenu al la trono. Plimulto de la
 
-Belga popolo voĉdonis favore al reveno, sed Paul Henri Spaak kaj la social-
-
-istoj kredis ke esti Reĝo de la Belgoj bezonas pli ol nudan plimulton. Li kaj liaj kolegoj stimulis manifestaciojn en la stratoj insistante ke Leopoldo
+Belga popolo voĉdonis favore al reveno, sed Paul Henri Spaak kaj la socialistoj kredis ke esti Reĝo de la Belgoj bezonas pli ol nudan plimulton. Li kaj liaj kolegoj stimulis manifestaciojn en la stratoj insistante ke Leopoldo
 
 cedu la oficon al la juna Reĝo Baudouin. Tiel la sinsekvo de misfortunoj,
 
@@ -867,13 +753,9 @@ menuero. Mi faradis mian diplomatan plej bonon kiam la Prezidento
 
 kliniĝis trans la tablon kaj flustris: “Mi opinias ke ve jam faris vian devon, ambasadora Moŝto!”
 
-La Aŭstralia ambasado en Sajgono de tempo al tempo disponis pri avi-
+La Aŭstralia ambasado en Sajgono de tempo al tempo disponis pri aviadilo Dakota (DC3), administrata de la Aŭstralia flugarmeo (R.A.A.F.) por
 
-adilo Dakota (DC3), administrata de la Aŭstralia flugarmeo (R.A.A.F.) por
-
-servi Aŭstraliajn ambasadojn en Sudorienta Azio. Oni organizis tutsema-
-
-jnajn vizitojn al ok provincoj, portante la tutan stabon kaj interpretistojn, kun surteriĝoj en la ĉefurbo de ĉiu provinco. La lastan tagon la aviadilo
+servi Aŭstraliajn ambasadojn en Sudorienta Azio. Oni organizis tutsemajnajn vizitojn al ok provincoj, portante la tutan stabon kaj interpretistojn, kun surteriĝoj en la ĉefurbo de ĉiu provinco. La lastan tagon la aviadilo
 
 kutimis viziti unu el la pretermarbordaj insuloj kun bona strando, kie ni
 
@@ -942,28 +824,20 @@ Aŭstralion prizorgi la interesojn de Kamboĝo en Sajgono. En , akompanate de mi
 
 por raporti al “mia Princo”. Sihanouk akceptis nin en Battambang, kie li
 
-inaŭguras novan sukerfabrikon. Li donis al ni honorseĝojn en la ceremo-
+inaŭguras novan sukerfabrikon. Li donis al ni honorseĝojn en la ceremonio. Dum lunĉo ni sidis kun la Princo kaj Princino Monique. Ambasadoroj
 
-nio. Dum lunĉo ni sidis kun la Princo kaj Princino Monique. Ambasadoroj
-
-kiuj rezidis en Phnom Penh sidis, envie, ĉe aliaj tabloj. Sihanouk entuzi-
-
-asmis pri sia venonta vizito al Francio, kie li intencis uzi la akvan dieton
+kiuj rezidis en Phnom Penh sidis, envie, ĉe aliaj tabloj. Sihanouk entuziasmis pri sia venonta vizito al Francio, kie li intencis uzi la akvan dieton
 
 en Grasse, la Franca banurbo. “Kion faros via Princa Moŝto post fino de la
 
-dieto?” mi demandis. Sihanouk respondis: “Nu, mi iros al Parizo, kom-
-
-preneble, kaj ĝuos bonan tagmanĝon ĉe la restoracio *Tour d’Argent*”!
+dieto?” mi demandis. Sihanouk respondis: “Nu, mi iros al Parizo, kompreneble, kaj ĝuos bonan tagmanĝon ĉe la restoracio *Tour d’Argent*”!
 
 
 Diplomatoj almenaŭ scias pri sia loko en la vicolisto. Je la funebraj
 
 ceremonioj pri la morto de Elizabeta, Reĝino de la Belgoj, la ĉefoficisto pri diplomatiaj ceremonioj vicigis la misiĉefojn en taŭga ordo, sed sciiĝis ke ili rigardas malĝustadirekten. Mankis tempo ĉar la ceremonia promenado
 
-estis tuj komenciĝonta, sed estis neniu konfuzo. La Dojeno de la Diplo-
-
-mata Korpuso faris U-turniĝon kaj la aliaj ambasadoroj inversigis sin ful-
+estis tuj komenciĝonta, sed estis neniu konfuzo. La Dojeno de la Diplomata Korpuso faris U-turniĝon kaj la aliaj ambasadoroj inversigis sin ful-
 
 morapide, senerare konservante sian vicordon.
 
@@ -972,9 +846,7 @@ morapide, senerare konservante sian vicordon.
 
 En 1940, kiam mi ankoraŭ estis studento en Oksfordo kiel stipendiulo
 
-Rhodes, oni akceptis min, post ekzameno en Londono, kiel trian sekretar-
-
-ion en la Departemento pri Eksterlandaj Aferoj en Kanbero. Dum mi
+Rhodes, oni akceptis min, post ekzameno en Londono, kiel trian sekretarion en la Departemento pri Eksterlandaj Aferoj en Kanbero. Dum mi
 
 atendis en promilita vico ŝipon al Aŭstralio, mi laboris volontule en la
 
@@ -984,17 +856,13 @@ artikoletojn, ĉeestis paroladojn en la Reĝa Instituto pri Internaciaj Aferoj
 
 kaj vizitis oficistojn en la Brita Oficejo pri Eksterlandaj Aferoj.
 
-Unu oficisto plendis al mi ke pro la bombatakoj oni ne plu povis kon-
-
-duki sian hundon al la oficejo. Li devis sendi sian al hundloĝejo en la
+Unu oficisto plendis al mi ke pro la bombatakoj oni ne plu povis konduki sian hundon al la oficejo. Li devis sendi sian al hundloĝejo en la
 
 kamparo. Li jam renversis la bovleton kiu antaŭe tenis la hundan
 
 nutraĵon. Tie ĝi restis ĝis la fino de la milito, kiam hundoj denove rajtis
 
-veni al la oficejo. S-ro S.M. Bruce, ĉefo de la Aŭstralia Altkomisio, komen-
-
-tis ke “ĉe la Angloj la hundoj estas pli gravaj ol pureco” (lia fraztordaĵo
+veni al la oficejo. S-ro S.M. Bruce, ĉefo de la Aŭstralia Altkomisio, komentis ke “ĉe la Angloj la hundoj estas pli gravaj ol pureco” (lia fraztordaĵo
 
 “dogliness comes before cleanliness” estas malfacile tradukebla: oni povus
 
@@ -1010,13 +878,9 @@ militregionon, por iri al la relativa sekureco de Aŭstralio. La adoltoj
 
 surŝipe, timante ke ses semajnoj sen okupo farus la konduton de eĉ la plej
 
-bonaj infanoj netolerebla, decidis organizi lernejon. Estis klasoj pri diver-
+bonaj infanoj netolerebla, decidis organizi lernejon. Estis klasoj pri diversaj lingvoj, kaj pri rolludado kaj aktorado. Mi proponis instrui Aŭstralian
 
-saj lingvoj, kaj pri rolludado kaj aktorado. Mi proponis instrui Aŭstralian
-
-historion, kaj kunmetis kelkajn “lecionojn” kiuj konsistis ĉefe el la aven-
-
-turoj de fruaj Aŭstraliaj esploristoj. Unu knabeto raportis al sia patrino ke Aŭstralia historio ne estas aŭtentika historio, sed nur rakontoj. La memoraĵoj de la eminenta Aŭstralia historiisto Manning Clark rivelis ke li
+historion, kaj kunmetis kelkajn “lecionojn” kiuj konsistis ĉefe el la aventuroj de fruaj Aŭstraliaj esploristoj. Unu knabeto raportis al sia patrino ke Aŭstralia historio ne estas aŭtentika historio, sed nur rakontoj. La memoraĵoj de la eminenta Aŭstralia historiisto Manning Clark rivelis ke li
 
 vojaĝis en la sama ŝipo. Sed li estis unuaklasa pasaĝero kaj ne vizitis
 
@@ -1026,10 +890,7 @@ La Aŭstralia diplomatia servo estas tre juna laŭ internaciaj normoj.
 
 En 1940 estis nur tri eksterlandaj misioj, krom Komercaj Komisionoj:
 
-Legacio en Vaŝingtono, Altkomisio en Otavo kaj Interrilata Oficejo en Lon-
-
-
-dono. La Departemento en Kanbero okupis nur ok malgrandajn ĉambrojn
+Legacio en Vaŝingtono, Altkomisio en Otavo kaj Interrilata Oficejo en Londono. La Departemento en Kanbero okupis nur ok malgrandajn ĉambrojn
 
 en la Okcidenta Oficejbloko. Tamen ni havis kelkajn agemajn pionirojn.
 
@@ -1053,21 +914,15 @@ rigardi la kamparon el afustotureto. McEwen tre fieris pri sia kromnomo
 
 “Nigra Joĉjo”, kaj foje, kiam ni festis lian naskiĝdaton en Ĝenevo metante
 
-grandegan nigran pupaĉon en lian liton, li sendis danktelegramon sub-
+grandegan nigran pupaĉon en lian liton, li sendis danktelegramon subskribitan “Jean Lenoir” (Johano la Nigra).
 
-skribitan “Jean Lenoir” (Johano la Nigra).
-
-McEwen-on sekvis, kiel Ministro, Kavaliro Frederick Stewart el Sid-
-
-nejo. Li pli kapablis sur la kampoj transporto kaj sociaj servoj ol pri
+McEwen-on sekvis, kiel Ministro, Kavaliro Frederick Stewart el Sidnejo. Li pli kapablis sur la kampoj transporto kaj sociaj servoj ol pri
 
 eksterlandaj aferoj. Baldaŭ post kiam li fariĝis Ministro pri Eksterlandaj
 
 Aferoj, Stewart diris al grupo da oficialaj vizitantoj el Tajlando, ĉiuj
 
-Budhistoj, ke la mondo nepre devas reveni al la observado de bonaj, tradi-
-
-ciaj, kristanaj principoj.
+Budhistoj, ke la mondo nepre devas reveni al la observado de bonaj, tradiciaj, kristanaj principoj.
 
 Stewart estis Metodista laika predikisto, preskaŭ tute puritana. Li
 
@@ -1081,9 +936,7 @@ Menzies ke Stewart nek fumis tabakaĵojn nek drinkis, Menzies respondis:
 
 Dum kelkaj monatoj mi deĵoris provizore kiel privata sekretario de
 
-Stewart. Unu tagon, en la ofickonstruaĵo de la Aŭstralia Federacio en Sid-
-
-nejo, la poŝtaĵoj inkluzivis leteron de la eldonistoj de la gazeto “*Man*”
+Stewart. Unu tagon, en la ofickonstruaĵo de la Aŭstralia Federacio en Sidnejo, la poŝtaĵoj inkluzivis leteron de la eldonistoj de la gazeto “*Man*”
 
 [Viro], kiuj proponis fari ion por helpi venkon en la milito. Specimeno de
 
@@ -1118,27 +971,19 @@ Aŭstralia armeo kontraŭ la Turkoj sur la duoninsulo Gallipoli, li studis la
 
 juron kaj faris karieron en la informa servo de la armeo kaj poste kiel ĉefo
 
-de la nova Departemento pri Eksterlandaj Aferoj. La Nacia Registaro apo-
-
-gis sin sur konsiloj fare de li kaj de la Departemento, kvankam la ĉefmin-
+de la nova Departemento pri Eksterlandaj Aferoj. La Nacia Registaro apogis sin sur konsiloj fare de li kaj de la Departemento, kvankam la ĉefmin-
 
 istro dependis ankaŭ de S-ro S.M. Bruce (poste Lordo Bruce), la Alta
 
 Komisiito de Aŭstralio en Londono.
 
-Post kelkaj jaroj Hodgson deĵoris kiel Alta Komisiito en Otavo, Rep-
-
-rezentanto de Aŭstralio ĉe Unuiĝintaj Nacioj en Nov-Jorko kaj ambasa-
+Post kelkaj jaroj Hodgson deĵoris kiel Alta Komisiito en Otavo, Reprezentanto de Aŭstralio ĉe Unuiĝintaj Nacioj en Nov-Jorko kaj ambasa-
 
 doro en Francio. En Nov-Jorko li tre ĝuis vortbataletojn kun la Sovetiaj
 
-reprezentantoj. Unu tagon Andrei Gromyko konstante interrompis Hodg-
+reprezentantoj. Unu tagon Andrei Gromyko konstante interrompis Hodgson per falsaj plendoj pri proceduraj punktoj. Fine, kiam la horo de lunĉo
 
-son per falsaj plendoj pri proceduraj punktoj. Fine, kiam la horo de lunĉo
-
-alproksimiĝis, Hodgson koleriĝis kaj diris per sia tre Aŭstralia parolmani-
-
-ero: “Prezidanta Moŝto, ŝajnas al mi ke S-ro Gromyko ne deziras konduti
+alproksimiĝis, Hodgson koleriĝis kaj diris per sia tre Aŭstralia parolmaniero: “Prezidanta Moŝto, ŝajnas al mi ke S-ro Gromyko ne deziras konduti
 
 laŭ la normalaj reguloj de U.N. Tio konvenas por mi. Post lunĉo mi volonte
 
@@ -1160,9 +1005,7 @@ basbalan teamon Dodgers de Brooklyn. Sed lia konversacia respondado ne
 
 estis tre brila. Dum lunĉo kun mi en 1947, kiam ni diskutis la internacian
 
-regadon de atomenergio, li reasertis ke la solvo estus detruo de ĉiuj atom-
-
-bomboj fare de ĉiuj nacioj. Tiutempe Usono estis la nura nacio kiu eksplodigis nuklean armilon, aŭ kiu jam evoluigis la kapablon produkti
+regadon de atomenergio, li reasertis ke la solvo estus detruo de ĉiuj atombomboj fare de ĉiuj nacioj. Tiutempe Usono estis la nura nacio kiu eksplodigis nuklean armilon, aŭ kiu jam evoluigis la kapablon produkti
 
 nuklean energion. Mi sugestis al Gromyko ke lia propono similas postulon
 
@@ -1185,9 +1028,7 @@ nepre devis havi pli bonan ĉambron kaj pli bonajn komunikilojn kun la
 
 Kimrio. Ankaŭ li deziris instrui al la Departemento ĝian subecan rolon.
 
-Por tio li instrukciis al mi akiri el la Departemento kopion de ĉiu tele-
-
-gramo, “en” kaj “el”, el la pasinta jaro. Kiam mi transigis tiun ukazon al
+Por tio li instrukciis al mi akiri el la Departemento kopion de ĉiu telegramo, “en” kaj “el”, el la pasinta jaro. Kiam mi transigis tiun ukazon al
 
 Kolonelo Hodgson, li diris ke certe la Ministro intencis peti nur “ĉiujn
 
@@ -1217,13 +1058,9 @@ Kanado, kie mi servis en la Altkomisiono sub unue Generalo Vilhelmo
 
 Glasgow kaj poste lia anstataŭanto S-ro Alfred Stirling.
 
-Foje Stirling ricevis telegramon kiu informis ke Evatt alvenos al Hal-
+Foje Stirling ricevis telegramon kiu informis ke Evatt alvenos al Halifax, la orientkanada haveno, per la ŝipo *ĵle de France*. La telegramo postulis ke ni organizu transporton tiel ke li povu elekti vojaĝon el Halifax al Nov-Jorko ĉu aviadile ĉu trajne. Ĉar ne estis flugoj rektaj inter tiuj du
 
-ifax, la orientkanada haveno, per la ŝipo *ĵle de France*. La telegramo postulis ke ni organizu transporton tiel ke li povu elekti vojaĝon el Halifax al Nov-Jorko ĉu aviadile ĉu trajne. Ĉar ne estis flugoj rektaj inter tiuj du
-
-urboj, ni prunteprenis la oficialan aviadilon de la ĉefministro, tipo Liber-
-
-ator, kiun la Alta Komisiito kaj mi uzis por flugi al Halifax. Mi persvadis
+urboj, ni prunteprenis la oficialan aviadilon de la ĉefministro, tipo Liberator, kiun la Alta Komisiito kaj mi uzis por flugi al Halifax. Mi persvadis
 
 la Fervojan Kompanion “Kanada-Pacifika” disponigi specialan trajnon
 
@@ -1237,9 +1074,7 @@ Evatt tuj kaj persone. Feliĉe, evidentiĝis ke lia nura misio estis bonvenigi
 
 la Ministron al la Nord-Amerika kontinento kaj saluti lin en la nomo de la
 
-Usona registaro. Kiam la Alta Komisiito informis D-ron Evatt pri la ele-
-
-kteblecoj pri transporto, li turnis sin al sia asistanto, Sam Atyeo, kaj
+Usona registaro. Kiam la Alta Komisiito informis D-ron Evatt pri la elekteblecoj pri transporto, li turnis sin al sia asistanto, Sam Atyeo, kaj
 
 demandis: “Kiun metodon ni uzu, Sam?” “Mi opinias, ke estus agrable
 
@@ -1256,9 +1091,7 @@ lerta pri diversaj aferoj. Ankaŭ li bone scipovis la Francan. Kiam Evatt
 
 elektiĝis Prezidanto de la Ĝenerala Asembleo en Parizo, Sam hazarde
 
-respondis al la telefono. La parolanto demandis ĉu li parolas kun la Prezi-
-
-danto de la Mondo (le Président du Monde). Sam, per sia Pariza Franca,
+respondis al la telefono. La parolanto demandis ĉu li parolas kun la Prezidanto de la Mondo (le Président du Monde). Sam, per sia Pariza Franca,
 
 respondis: “Non, c’est le Président du demi-monde qui parle” (“Ne, parolas
 
@@ -1270,25 +1103,19 @@ Entezam de Irano donis similan spritan respondon. Unu el la ĵurnalistoj
 
 faris speciale malfacilan, eĉ malican demandon, kiun Entezam sciis kiel
 
-certe stimulitan de la Rusa delegitaro. “Ĉu vi estas raportisto por la gaze-
-
-tagentejo Tass?” li enketis, post respondo al la demando. La ĵurnalisto
+certe stimulitan de la Rusa delegitaro. “Ĉu vi estas raportisto por la gazetagentejo Tass?” li enketis, post respondo al la demando. La ĵurnalisto
 
 diris ke li reprezentas la Polan gazetorganizon. “Ho!” diris Entezam, “nur
 
 demi-tasse” (duon-taso).
 
-La Alta Komisiito en Otavo, Kavaliro William Glasgow, estis emi-
-
-nenta Aŭstraliano kiu estis oficiro en la Milito inter la Brita Imperio kaj
+La Alta Komisiito en Otavo, Kavaliro William Glasgow, estis eminenta Aŭstraliano kiu estis oficiro en la Milito inter la Brita Imperio kaj
 
 la Buroj de Sud-Afriko je la komenco de la jarcento, kaj poste generalo
 
 komandanta Aŭstralian divizion en Francio en la Unua Mondmilito. Li
 
-poste fariĝis senatano kaj Ministro pri la Defendado. La Kanadanoj ŝate-
-
-gis la senafektan Aŭstralianon. Malsimile al la diplomato tradicia, se
+poste fariĝis senatano kaj Ministro pri la Defendado. La Kanadanoj ŝategis la senafektan Aŭstralianon. Malsimile al la diplomato tradicia, se
 
 Glasgow diris “Jes” tio signifis “Jes”.
 
@@ -1310,10 +1137,7 @@ La alia ĉefa tasko de Glasgow estis pritrakti la politikajn aspektojn de
 
 la Reciproka Helpoprogramo, la Kanada ekvivalento de la Usona Prunto-
 
-Luo. Dum la milito Kanado provizis multe da militmaterialo al la kon-
-
-
-traŭfaŝistaj alianculoj. La Kanadanoj konstruis du ŝipojn por porti varojn
+Luo. Dum la milito Kanado provizis multe da militmaterialo al la kontraŭfaŝistaj alianculoj. La Kanadanoj konstruis du ŝipojn por porti varojn
 
 al Aŭstralio, kiel parton de la tielnomita “Ŝiplineo de la Parkoj”, ĉar la
 
@@ -1331,25 +1155,19 @@ apud Sidnejo.
 
 Kiam la edzino de la Alta Komisiito lanĉis la ŝipon “Taronga Parko”,
 
-en la haveno Sankta Johano, Nova Brunsviko, oni pentris grandegan kan-
-
-guruon sur la flankon de la ŝipo, kun ŝipeto en la “poŝo”. La ĵurnaloj rap-
+en la haveno Sankta Johano, Nova Brunsviko, oni pentris grandegan kanguruon sur la flankon de la ŝipo, kun ŝipeto en la “poŝo”. La ĵurnaloj rap-
 
 ortis, kaj en la urbo Toronto la bestoĝardeno memorigis, ke ĝi ŝuldas al
 
 Taronga Parko ursidon kiun ĝi ne povis sendi pro la manko de ŝipoj dum
 
-la milito. La aŭtoritatuloj de la ĝardeno demandis ĉu ili povos sendi ursi-
-
-don al Sidnejo kiel talismanon por la unua vojaĝo. La estro de Taronga
+la milito. La aŭtoritatuloj de la ĝardeno demandis ĉu ili povos sendi ursidon al Sidnejo kiel talismanon por la unua vojaĝo. La estro de Taronga
 
 Parko ĝojegis, kaj informis ke estas aliaj bestoj kiujn li ŝatus same ricevi.
 
 Do oni preparis paron da ursidoj, kaj po du ruĝajn sciurojn, grizajn sciurojn, kaj striitajn sciurojn, kaj ankaŭ paron da mefitoj senigitaj je siaj odoraĉfaraj glandoj. Pro prokrasto unu ursido eniris sian vintrodormon,
 
-kaj oni devis trovi alian. Sed fine la Taronga Parko ekvojaĝis kvazaŭ mod-
-
-erna arkeo. La gazetaro notis ke la gardisto estas iu Sinjoro Papago. La
+kaj oni devis trovi alian. Sed fine la Taronga Parko ekvojaĝis kvazaŭ moderna arkeo. La gazetaro notis ke la gardisto estas iu Sinjoro Papago. La
 
 nura raporto kiu atingis la Aŭstralian oficejon en Otavo estis ke ĉiuj bestoj alvenis en bona ordo, kun escepto de unu griza sciuro kiu mortis dum la
 
@@ -1404,13 +1222,9 @@ Post la plialtigo de la Legacio al la rango de Ambasado, la unua tia en
 
 la Aŭstralia servo, oni invitis S-ron Makin partopreni en la radioprogramo
 
-“Urbkunveno de la Radio” (Town meeting of the air), en grupo kiu inkluz-
+“Urbkunveno de la Radio” (Town meeting of the air), en grupo kiu inkluzivis kelkajn altnivelajn Usonajn publikulojn, por debati la demandon pri
 
-ivis kelkajn altnivelajn Usonajn publikulojn, por debati la demandon pri
-
-vetoo en Unuiĝintaj Nacioj. Sen konsulti iun ajn Maknsentis parto-
-
-preni, sed nin avertis membroj de la stabo de la Ministro pri Eksterlandaj
+vetoo en Unuiĝintaj Nacioj. Sen konsulti iun ajn Maknsentis partopreni, sed nin avertis membroj de la stabo de la Ministro pri Eksterlandaj
 
 Aferoj, D-ro Evatt (kiu konsideris sin spertulo pri tiu vetoo), ke se la
 
@@ -1450,16 +1264,12 @@ Unu el niaj plej eminentaj vizitantoj en Vaŝingtono estis S-ro R.G.
 
 Menzies, tiam ĉefo de la Opozicio en la parlamento. Li jam fariĝis bone
 
-konata en Usono kiel la dummilita gvidanto de Aŭstralio. Kiam li paro-
-
-ladis al la Advokata Asocio oni lin prezentis kiel “La Thomas E. Dewey de
+konata en Usono kiel la dummilita gvidanto de Aŭstralio. Kiam li paroladis al la Advokata Asocio oni lin prezentis kiel “La Thomas E. Dewey de
 
 
 Aŭstralio, la venonta ĉefministro”. S-ro Dewey, tiam la favorata kandidato
 
-por la prezidenteco, fakte estis malsukcesonta post streĉa konkuro kon-
-
-traŭ Truman, sed Menzies gvidis la Liberalan Partion al venko la sekvan
+por la prezidenteco, fakte estis malsukcesonta post streĉa konkuro kontraŭ Truman, sed Menzies gvidis la Liberalan Partion al venko la sekvan
 
 jaron.
 
@@ -1467,9 +1277,7 @@ Oni kritikis Menzies ĉar li tenace tenis arkaikajn ideojn pri la Krono,
 
 la Brita Imperio kaj la strategio laŭ kiu la regado de la Kanalo de Suez
 
-fare de Britio kaj Francio superregis. Tamen, pere de Percy (pli poste Kav-
-
-aliro Percy) Spender komence, kaj poste per R.G. Casey kiel Ministro pri
+fare de Britio kaj Francio superregis. Tamen, pere de Percy (pli poste Kavaliro Percy) Spender komence, kaj poste per R.G. Casey kiel Ministro pri
 
 Eksterlandaj Aferoj, la Registaro de Menzies, post streĉa intertraktado,
 
@@ -1497,9 +1305,7 @@ estas afero kiu tuŝas nin”.
 
 En 1951 Spender sin retiris el la politika vivo por akcepti postenon
 
-kiel Aŭstralia Ambasadoro en Vaŝingtono. Kiam li estis forironta el Kan-
-
-bero, mi diris al li ke ni bedaŭre sentos lian mankon kaj ke mi esperas ke
+kiel Aŭstralia Ambasadoro en Vaŝingtono. Kiam li estis forironta el Kanbero, mi diris al li ke ni bedaŭre sentos lian mankon kaj ke mi esperas ke
 
 iam li revenos. Li respondis ke se politikisto provas fariĝi ĉefministro kaj
 
@@ -1509,9 +1315,7 @@ politiko.
 
 R.G. Casey, aliflanke, kiu komencis sian karieron kiel diplomato,
 
-poste eniris la parlamenton, foriris de la politika scenejo por fariĝi Minis-
-
-tro en la Legacio en Vaŝingtono, poste Brita Ŝtatministro en la Mezori-
+poste eniris la parlamenton, foriris de la politika scenejo por fariĝi Ministro en la Legacio en Vaŝingtono, poste Brita Ŝtatministro en la Mezori-
 
 ento, kaj fine revenis al Kanbero kaj fariĝis Ministro pri Eksterlandaj
 
@@ -1519,9 +1323,7 @@ Aferoj, kaj poste Ĝenerala Guberniestro kaj Lordo.
 
 Kiam mi deĵoris kiel Ĝenerala Konsulo en Svislando, Casey venis al
 
-Ĝenevo por Azia Konferenco malfrue en . Kiam li estis fori-
-
-ronta al Aŭstralio mi kondukis lin al Zuriko por kapti la aviadilon. Prizor-
+Ĝenevo por Azia Konferenco malfrue en . Kiam li estis forironta al Aŭstralio mi kondukis lin al Zuriko por kapti la aviadilon. Prizor-
 
 gis nin agento de la Brita Fluglinio, kiu organizis bonegan lunĉon, kaj
 
@@ -1536,9 +1338,7 @@ lin al feraĵisto, por ke li enketu ĉu la Svisoj havas iujn novajn ilojn kiuj
 
 povus utili ĉe Berwick, lia kultivbieno en Viktorio. Mi gajnis meriton,
 
-ekvidante en katalogo ilon kiun mi ne antaŭe vidis—grandegan krampi-
-
-lon, uzatan por meti draton sur barilojn. Eble ĝi estas ankoraŭ hodiaŭ
+ekvidante en katalogo ilon kiun mi ne antaŭe vidis—grandegan krampilon, uzatan por meti draton sur barilojn. Eble ĝi estas ankoraŭ hodiaŭ
 
 uzata en Berwick.
 
@@ -1558,9 +1358,7 @@ ekspluatis la okazon por turmenteti la Ministron. Li ne respondis al mia
 
 demando.
 
-Kavaliro Garfield Barwick kunportis al la Departemento pri Ekster-
-
-landaj Aferoj en 1961 la lerton de juristo por majstri siajn konsildokumen-
+Kavaliro Garfield Barwick kunportis al la Departemento pri Eksterlandaj Aferoj en 1961 la lerton de juristo por majstri siajn konsildokumen-
 
 tojn, kaj grandan kapablon rilate la luktadon en la Kabineto por la celoj
 
@@ -1570,9 +1368,7 @@ Baldaŭ post kiam li fariĝis Ministro, li decidis envoki la Ambasadoron
 
 de Francio por protesti kontraŭ la daŭranta provado, fare de Francio, de
 
-nukleaj armiloj en la Atolo Mururoa en Pacifiko. La Departemento pre-
-
-paris kelkajn “parolpunktojn”, kiujn mi transdonis al Kavaliro Garfield
+nukleaj armiloj en la Atolo Mururoa en Pacifiko. La Departemento preparis kelkajn “parolpunktojn”, kiujn mi transdonis al Kavaliro Garfield
 
 kiam li alvenis en la flughaveno, fluginte el Sidnejo. Li informis min ke li
 
@@ -1600,10 +1396,7 @@ Ekstrema Oriento de U.N., komisiono en kiu Aŭstralio, kune kun Usono
 
 kaj Granda Britio, ĝis tiam estis nur bonvola eksterregiona ano. Per plena
 
-diplomatia preparado ni estis aranĝintaj ke la Komisiono formale akcep-
-
-
-tos Aŭstralion dum kunveno en Filipinoj. Kun Allan Fleming, supera ofi-
+diplomatia preparado ni estis aranĝintaj ke la Komisiono formale akceptos Aŭstralion dum kunveno en Filipinoj. Kun Allan Fleming, supera ofi-
 
 cisto de la Komerca Departemento, mi estis sendita antaŭe al Manilo, kie
 
@@ -1613,9 +1406,7 @@ tiam komencanta rondiron de Aŭstralio. Mi menciis al la Ministro, kiu
 
 vigle priskribis sian renkonton kun la Reĝino, ke kvankam mi jam servis
 
-la Kronon dum tridek jaroj, mi neniam havis la honoron renkonti la mon-
-
-arkon. Mi opiniis ke multaj el niaj diplomatoj estas en la sama situacio—
+la Kronon dum tridek jaroj, mi neniam havis la honoron renkonti la monarkon. Mi opiniis ke multaj el niaj diplomatoj estas en la sama situacio—
 
 reprezentante ŝin eksterlande dum ŝi ricevas politikistojn en Aŭstralio.
 
@@ -1631,9 +1422,7 @@ el Aŭstralio.
 
 Kavaliro Garfield havis konferencon kun la ĵurnalistoj de Manila, unu
 
-el kiuj estis espriminta dubojn ĉu Aŭstralio tute ĉesigis la antaŭan poli-
-
-tikon de “Aŭstralio por la Blankuloj”. La Ministro deklaris ke la politiko
+el kiuj estis espriminta dubojn ĉu Aŭstralio tute ĉesigis la antaŭan politikon de “Aŭstralio por la Blankuloj”. La Ministro deklaris ke la politiko
 
 jam estas ŝanĝita—ekzemple, ĵurnalisto el Azia lando, kiu edziĝis kun
 
@@ -1649,9 +1438,7 @@ superaj Ministroj pri temoj kiaj Nord-Borneo kaj la sendependeco de
 
 Malajzio. Kaj li partoprenis en la Komisiono, kiu laŭplane akceptis
 
-Aŭstralion kiel regionan membron. Sed restis libera vespero, kaj la Min-
-
-istro demandis kia distraĵo estas havebla en Manila. Ni kondukis lin al
+Aŭstralion kiel regionan membron. Sed restis libera vespero, kaj la Ministro demandis kia distraĵo estas havebla en Manila. Ni kondukis lin al
 
 ludo de Jai-Alai, fulmorapida pilkoludo, pri kiu estis tre vigla vetado per
 
@@ -1680,9 +1467,7 @@ lando, kaj ankaŭ montru la ampleksan fonon de la projekto. Li instrukciis
 
 ke Aŭstralio koncentru sin je vere signifaj programoj por la ekonomia
 
-evoluo kaj ne frivole elspezetu monon per multaj, politike motivitaj, mal-
-
-grandaj donacoj. En li partoprenis en kunveno de la Kon-
+evoluo kaj ne frivole elspezetu monon per multaj, politike motivitaj, malgrandaj donacoj. En li partoprenis en kunveno de la Kon-
 
 sulta Komitato de la Plano de Kolombo (Helpo por Sud- kaj Sudorient-
 
@@ -1696,9 +1481,7 @@ lando. Kaj baldaŭ poste Aŭstralio konsentis provizi pli da kamionoj por
 
 uzado sur la vojoj de Butano.
 
-En 1976 la ministro pri Eksterlandaj Aferoj en la Laborpartia Regis-
-
-taro, Don Willesee de Okcident-Aŭstralio, estris la Aŭstralian delegitaron
+En 1976 la ministro pri Eksterlandaj Aferoj en la Laborpartia Registaro, Don Willesee de Okcident-Aŭstralio, estris la Aŭstralian delegitaron
 
 dum parto de la unua aferkunsido de la Dua Konferenco de Unuiĝintaj
 
@@ -1710,21 +1493,15 @@ Aŭstraliaj kaj mimoso (simila al akacio, nia nacia floro), sed kiam li vidis
 
 la bufedon, nebulo ombris la vizaĝon de S-ro Willesee. Alte sur la tablo
 
-estis grandega blanka cigno, modelita el margarino. Al ŝtatano de Okci-
+estis grandega blanka cigno, modelita el margarino. Al ŝtatano de Okcident-Aŭstralio tio estis nacia insulto, ĉar la emblemo de tiu federacia ŝtato estas nigra cigno. La ambasadoro ne povis ŝanĝi tiun brilan blankan bir-don, sed mi promesis ke en la venonta bankedo ĉiuj cignoj estos nigraj.
 
-dent-Aŭstralio tio estis nacia insulto, ĉar la emblemo de tiu federacia ŝtato estas nigra cigno. La ambasadoro ne povis ŝanĝi tiun brilan blankan bir-don, sed mi promesis ke en la venonta bankedo ĉiuj cignoj estos nigraj.
-
-Diversaj projektoj por muldo de gipsaj cignoj fiaskis, sed unu tagon, viz-
-
-itante Karakasan vitrofabrikon, mi ekvidis metiiston kiu faras cignon per
+Diversaj projektoj por muldo de gipsaj cignoj fiaskis, sed unu tagon, vizitante Karakasan vitrofabrikon, mi ekvidis metiiston kiu faras cignon per
 
 blovtubo. Mi persvadis lin fabriki dekduon da nigraj cignetoj, kiuj ornamis
 
 la tablon en bankedo kaj estis poste donacitaj al la sinjorinoj.
 
-Kavaliro Hubert Opperman, profesia ciklisto, komercisto kaj Minis-
-
-tro, unue pri Ŝipnavigado kaj Transporto, poste pri Enmigrado, eniris
+Kavaliro Hubert Opperman, profesia ciklisto, komercisto kaj Ministro, unue pri Ŝipnavigado kaj Transporto, poste pri Enmigrado, eniris
 
 novan karieron en 1967, kiel Aŭstralia Alta Komisiito en Malto. Survoje
 
@@ -1732,9 +1509,7 @@ al Valleta, Opĉjo decidis viziti Belgion, kie mi estis Ambasadoro. Mi
 
 aranĝis lunĉon kie li renkontis denove Hector Martin kaj aliajn antaŭajn
 
-kontraŭulojn en la Tour de France (Rondciklado de Francio). Li povis kom-
-
-pari spertojn kun siaj amikoj per miksaĵo de la Angla kaj la Franca, kaj
+kontraŭulojn en la Tour de France (Rondciklado de Francio). Li povis kompari spertojn kun siaj amikoj per miksaĵo de la Angla kaj la Franca, kaj
 
 oni faris fotojn de Opperman kaj Martin interŝanĝantaj donacojn kaj sin
 
@@ -1753,9 +1528,7 @@ Fruaj Aŭstraliaj diplomatoj fariĝis promocieblaj se ili povis transvivi
 
 la provegon prizorgi la Ministron pri Eksterlandaj Aferoj, D-ron H.V.
 
-Evatt, pri kiu oni faris detalajn batalplanojn, inkluzive “kostumprovlu-
-
-dojn” kun ŝoforoj en uniformo. Vizito al Nov-Jorko sukcesis senprobleme
+Evatt, pri kiu oni faris detalajn batalplanojn, inkluzive “kostumprovludojn” kun ŝoforoj en uniformo. Vizito al Nov-Jorko sukcesis senprobleme
 
 ĝis la lasta mateno, kiam ĵurnalisto de la ĵurnalo *New York Times*, Thomas Hamilton, venis al la hotelo. Li petis permeson alparoli la Ministron pri
 
@@ -1781,38 +1554,28 @@ motorciklistoj plugis por ni vojon al la ŝipo. Tiel Hamilton povis eldoni
 
 sian artikolon, en kiu li aldonis laŭdojn de la Ministro al siaj helpantoj en Nov-Jorko, inter ili Ralph Harry, heroo de la Milito en Nov-Gvineo.
 
-Kiam John Curtin, la Ĉefministro, vizitis Otavon ni havis plenan pro-
-
-gramon. Oni invitis lin alparoli la Ĉambron de Deputitoj kaj li devis kapti
+Kiam John Curtin, la Ĉefministro, vizitis Otavon ni havis plenan programon. Oni invitis lin alparoli la Ĉambron de Deputitoj kaj li devis kapti
 
 la trajnon tuj poste. La Aŭstraliaj ĵurnalistoj kiuj lin akompanis deziris la tekston de la parolado, sed Curtin havis nur resumon. Feliĉige mi povis
 
 aranĝi ricevi kopion de la paĝoj tajpitaj laŭ la stenografiaj notoj, unu
 
-paĝon post alia, kiam la raportistoj elvenis el la Ĉambro. Mi havis respon-
-
-decon kontroli kaj aprobi la tekston kiel korektan. Historiistoj eble obser-
+paĝon post alia, kiam la raportistoj elvenis el la Ĉambro. Mi havis respondecon kontroli kaj aprobi la tekston kiel korektan. Historiistoj eble obser-
 
 vos ke la frazoj de Curtin en Otavo estis malpli longaj ol normale.
 
-Kiam Ĉefministro Ben Chifley iris al Vaŝingtono post la Dua Mond-
-
-milito por intertrakti kun la Usonanoj pri finaranĝoj de la kontoj de
+Kiam Ĉefministro Ben Chifley iris al Vaŝingtono post la Dua Mondmilito por intertrakti kun la Usonanoj pri finaranĝoj de la kontoj de
 
 
 Prunto-Luo ( *Lend-Lease)*, oni invitis lin loĝi en la Blanka Domo. Li instrukciis la Ambasadoron klarigi al Prezidento Truman ke en Londono
 
 li ne loĝis en la Palaco Buckingham, kaj ke li preferus loĝi en la Domo
 
-Blair, la oficiala rezidejo disponigebla de la Usona registaro, trans la Ave-
-
-nuo Pensilvanio. La intertraktado bone sukcesis. La Aŭstralia registaro
+Blair, la oficiala rezidejo disponigebla de la Usona registaro, trans la Avenuo Pensilvanio. La intertraktado bone sukcesis. La Aŭstralia registaro
 
 pagis nur kelkajn milionojn da dolaroj por helpi pri la konstruado de la
 
-ambasadejo de Usono en Kanbero kaj por starigi kelkajn stipendiojn Ful-
-
-bright por Aŭstraliaj kaj Usonaj vizitinter-ŝanĝoj. Nia ambasado devis
+ambasadejo de Usono en Kanbero kaj por starigi kelkajn stipendiojn Fulbright por Aŭstraliaj kaj Usonaj vizitinter-ŝanĝoj. Nia ambasado devis
 
 transdoni la ĉekon al la Ŝtatdepartemento. Ĉar la ĉeko sola ŝajnis iom
 
@@ -1832,13 +1595,9 @@ Dum vizitoj de ŝtatestroj la gasto kutime havas unu liberan tagon por
 
 vidi lokon kiu estas speciale interesa, kun minimumo da ceremonio. Kiam
 
-la Registaro de la Federacia Respubliko Germanio planis viziton de Eliz-
+la Registaro de la Federacia Respubliko Germanio planis viziton de Elizabeth II de Britio, la Germana ambasado en Londono demandis al la
 
-abeth II de Britio, la Germana ambasado en Londono demandis al la
-
-instancoj en la Palaco kion Ŝia Reĝina Moŝto dezirus vidi dum sia “ripoz-
-
-tago”. La Reĝino respondis ke ŝi ŝatus viziti Marbach. La urbeto Marbach
+instancoj en la Palaco kion Ŝia Reĝina Moŝto dezirus vidi dum sia “ripoztago”. La Reĝino respondis ke ŝi ŝatus viziti Marbach. La urbeto Marbach
 
 pri kiu ŝi pensis estis en la ŝtato Baden Wurttemberg. Tie situas bonega
 
@@ -1854,46 +1613,31 @@ de Eksterlandaj Aferoj en Bonno supozis ke la Reĝino deziras viziti alian
 
 Marbach, urbon apud Stuttgart kie la poeto Schiller naskiĝis, kaj tio estis
 
-bonorde inkluzivita en la programo. Kiam alvenis la grava tago, la aŭtori-
-
-tatuloj de Marbach fiere montris al sia eminenta gasto la domon kie loĝis
+bonorde inkluzivita en la programo. Kiam alvenis la grava tago, la aŭtoritatuloj de Marbach fiere montris al sia eminenta gasto la domon kie loĝis
 
 Schiller, muzeon dediĉitan al liaj verkoj, kaj aliajn memorindaĵojn. Post
 
 iom da tempo la Reĝino malkvietiĝis. “Ĉi tio estas tre interesa”, ŝi diris al ataŝeo, “sed kie estas la ĉevaloj?”
 
-En 1965 Ŝia Reĝina Moŝto Elizabeth II faris viziton al Belgio. La viz-
-
-ito rilatis la Unuigitan Regnon kaj la Brita Ambasado ĉefe respondecis,
+En 1965 Ŝia Reĝina Moŝto Elizabeth II faris viziton al Belgio. La vizito rilatis la Unuigitan Regnon kaj la Brita Ambasado ĉefe respondecis,
 
 sed la ambasadoroj de la Komunregnaro, kiuj estigos akceptofeston, kaj
 
-kiuj estos en la reĝina “sekvantaro”, estis membroj de la organiza komi-
-
-
-tato. La Brita ministro kiu prezidis en la komitato estis tre sperta pri
+kiuj estos en la reĝina “sekvantaro”, estis membroj de la organiza komitato. La Brita ministro kiu prezidis en la komitato estis tre sperta pri
 
 reĝaj vizitoj. Li antaŭvidis ĉiun paŝon kaj ĉiun momenton. Se Ŝia Reĝina
 
-Moŝto venos de la dua ĝis la tera etaĝo, li anticipis eventualan malfunk-
-
-cion de la lifto kaj ukazis ke ŝi malsupreniru laŭ la ŝtuparo. Kiam mi pro-
+Moŝto venos de la dua ĝis la tera etaĝo, li anticipis eventualan malfunkcion de la lifto kaj ukazis ke ŝi malsupreniru laŭ la ŝtuparo. Kiam mi pro-
 
 ponis provizi Aŭstralian ŝaŭmvinon por la festo, la vizitspertulo insistis
 
-ke estu ankaŭ “vera” Franca ĉampano sur unu tablo, por la okazo se even-
+ke estu ankaŭ “vera” Franca ĉampano sur unu tablo, por la okazo se eventuale la gastoj ne ŝatos kolonian ŝaŭmaĵon. Fakte, ĉiu guto de la Aŭstralia
 
-tuale la gastoj ne ŝatos kolonian ŝaŭmaĵon. Fakte, ĉiu guto de la Aŭstralia
-
-seka vino estis trinkita, dum plejparte la boteloj de la Anglo restis fermi-
-
-taj.
+seka vino estis trinkita, dum plejparte la boteloj de la Anglo restis fermitaj.
 
 Dum vizito al Irano en 1976, Henry Kissinger la Ŝtatsekretario de
 
-Usono, kiu interesiĝis pri arto kaj arkeologio, trovis ke lia itinero inkluz-
-
-ivas, pro persona propono de la Ŝaho, viziton al fabriko de kaviaro en
+Usono, kiu interesiĝis pri arto kaj arkeologio, trovis ke lia itinero inkluzivas, pro persona propono de la Ŝaho, viziton al fabriko de kaviaro en
 
 Bandar Pahlevi apud la Kaspio. (Proksime al Bandar Pahlevi Lordo Slim,
 
@@ -1903,9 +1647,7 @@ plendis ke la marmelado havas fiŝguston!) Kissinger ne volis ofendi la
 
 Ŝtatestron rifuzante viziti la fabrikon, sed li diris al sia ambasadoro, Rich-ard Helms, ke li ne deziras rigardi la senintestigon de sturgoj. Bedaŭrinde
 
-la ambasadoro malsukcesis pri sia tasko kaj Kissinger devis rigardi la for-
-
-prenon de pluraj frajoj antaŭ ol gustumi la kaviaron kun vodko.
+la ambasadoro malsukcesis pri sia tasko kaj Kissinger devis rigardi la forprenon de pluraj frajoj antaŭ ol gustumi la kaviaron kun vodko.
 
 Foje Andrew Peacock, Aŭstralia Ministro pri Eksterlandaj Aferoj,
 
@@ -1942,9 +1684,7 @@ Departementon mi klarigis al la Ambasadoro ke la regularo estas tre
 
 strikta pro la minaco de afta febro kaj aliaj plagoj kontraŭ la Aŭstralia
 
-paŝtindustrio, sed mi promesis serĉi elirvojon. Mi proponis al la kvaran-
-
-tenaj instancoj ke Pompidou estu sigelita interne de sia aviadilkajuto. La
+paŝtindustrio, sed mi promesis serĉi elirvojon. Mi proponis al la kvarantenaj instancoj ke Pompidou estu sigelita interne de sia aviadilkajuto. La
 
 oficistoj de la kvaranteno tiam povos ŝprucigi ekstere laŭplezure. Studinte
 
@@ -1962,13 +1702,9 @@ kutima akcepta festo, kaj kiel Ambasadoro de Aŭstralio mi viciĝis kun
 
 miaj kolegoj por premi la prezidentan manon kaj diri kelkajn vortojn.
 
-Kiam alvenis mia vico miaj kolegoj surpriziĝis. Anstataŭ la atenditajn du-
+Kiam alvenis mia vico miaj kolegoj surpriziĝis. Anstataŭ la atenditajn dutri frazojn, mi kaj Jonas komencis viglan konversacion. Estis konjektado
 
-tri frazojn, mi kaj Jonas komencis viglan konversacion. Estis konjektado
-
-pri la temo—ĉu rifuĝantoj? Komerco? Poste mi rivelis la sekreton. Ni paro-
-
-ladis en Esperanto, la internacia lingvo, de kiu la Prezidento estis forta
+pri la temo—ĉu rifuĝantoj? Komerco? Poste mi rivelis la sekreton. Ni paroladis en Esperanto, la internacia lingvo, de kiu la Prezidento estis forta
 
 subtenanto, pri la frato de la Prezidento, kiun mi jam renkontis en Vieno.
 
@@ -1992,17 +1728,13 @@ demandu al ŝi ĉu ŝi havas infanojn. Certe ŝi ne daŭrigos la konversacion
 
 kaj vi povos vin turni al via maldekstra najbarino. Demandu al ŝi same ĉu
 
-ŝi estas edzino. Se ŝi jesas, demandu ĉu ŝi havas infanojn. Se ŝi jesas den-
-
-ove, vi devas demandi kiu estas la patro. Tio estos la fino de tiu konversa-
+ŝi estas edzino. Se ŝi jesas, demandu ĉu ŝi havas infanojn. Se ŝi jesas denove, vi devas demandi kiu estas la patro. Tio estos la fino de tiu konversa-
 
 cio. Fine parolu al la virino trans la tablo. Se ŝi estas edzino kaj se ŝi ne havas infanojn, vi demandos kiel ŝi evitas gravediĝon. Tio finos tiun
 
 interparoladon kaj vi povos senĝene ĝissate manĝi kaj trinki.
 
-Post kelkaj monatoj Masaryk reiris al Parizo kaj trovis la ambasa-
-
-doron same maldika kaj malsaneca. “Kara kolego”, diris la ministro, “Ĉu
+Post kelkaj monatoj Masaryk reiris al Parizo kaj trovis la ambasadoron same maldika kaj malsaneca. “Kara kolego”, diris la ministro, “Ĉu
 
 vi ne sekvis la konsilon kiun mi donis al vi, dum mia antaŭa vizito, pri kiel konduti je la bankedoj?”
 
@@ -2017,9 +1749,7 @@ havas infanojn. Tiam dum dudek minutoj ŝi rakontis al mi ĉiujn detalojn
 
 pri la sano de sia filo kaj pri la esperoj kiujn ŝi havas rilate la filineton.
 
-Fine mi sukcesis interrompi la konversacion kaj turnis min al mia mal-
-
-dekstra najbarino. Ŝi estis edzino. Mi demandis ĉu ŝi havas infanojn. Ŝi
+Fine mi sukcesis interrompi la konversacion kaj turnis min al mia maldekstra najbarino. Ŝi estis edzino. Mi demandis ĉu ŝi havas infanojn. Ŝi
 
 jesis. Mi persistis: “Kiu estas la patro?” “Ha, sinjoro, mi ne kredis ke vi
 
@@ -2048,17 +1778,13 @@ Unu el la plej gravaj devoj de diplomato estas prizorgi la ŝtatanojn de sia
 
 propra lando kiuj loĝas en tiu lando aŭ kiuj vizitas ĝin, por helpi ilin rilate iliajn laŭleĝajn entreprenojn kaj por doni helpan manon se ili havas malfacilaĵojn.
 
-Dum la Dua Mondmilito, multaj pilotoj de la Aŭstralia Reĝa Flu-
-
-garmeo, deĵorantaj en Kanado por la Komunregnara Trejnada Plano, edz-
+Dum la Dua Mondmilito, multaj pilotoj de la Aŭstralia Reĝa Flugarmeo, deĵorantaj en Kanado por la Komunregnara Trejnada Plano, edz-
 
 iĝis kun surlokaj fraŭlinoj. Poste ili foriris al Eŭropo por militado kaj fine hejmen. Neeviteble ili petis al la Altkomisiitejo en Otavo aranĝi por iliaj
 
 edzinoj transporton al Aŭstralio. Ne estis pasaĝerŝipoj dum la Milito, kaj
 
-nur malofte kajutoj disponiĝis sur ŝarĝoŝipoj aŭ provizŝipoj en la marar-
-
-meo. Antaŭinformo pri tiaj eblecoj kutime venis nur tre baldaŭ antaŭe,
+nur malofte kajutoj disponiĝis sur ŝarĝoŝipoj aŭ provizŝipoj en la mararmeo. Antaŭinformo pri tiaj eblecoj kutime venis nur tre baldaŭ antaŭe,
 
 kaj por esti preta mi tenis ĉiam ĝisdatan sliparon de la edzinoj, listantan
 
@@ -2088,17 +1814,13 @@ en Vaŝingtono informis nin ke prokura geedziĝo povus esti aranĝita en
 
 Norda Dakoto. Tial oni rapidege sendis dokumentojn el Kanbero, kaj mi
 
-skribis al la fraŭlino en Winnipeg, informante ŝin pri la aranĝoj jam fari-
-
-taj, kaj petante ke ŝi konfirmu ke ŝi povos vojaĝi al Norda Dakoto antaŭ
+skribis al la fraŭlino en Winnipeg, informante ŝin pri la aranĝoj jam faritaj, kaj petante ke ŝi konfirmu ke ŝi povos vojaĝi al Norda Dakoto antaŭ
 
 la dato kiam ŝi anticipas la naskon. Estis neniu respondo, kaj mi
 
 ekkomencis timi, ĉar la naŭa monato rapide alproksimiĝis, sed la fraŭlino
 
-neatendite alvenis al nia oficejo en Otavo. Ŝi estis alloga kaj sveltega vir-
-
-ino, kaj ŝi demandis, indigne: “El kie venis ĉi tiu onidiro ke mi estas
+neatendite alvenis al nia oficejo en Otavo. Ŝi estis alloga kaj sveltega virino, kaj ŝi demandis, indigne: “El kie venis ĉi tiu onidiro ke mi estas
 
 graveda?”
 
@@ -2109,13 +1831,9 @@ foriros el Nov-Jorko, povos transporti 39 edzinojn. Jen nia ŝanco. Mi
 
 sendis telegramojn al Vankuvero, Edmonton, Calgary, Winnipeg, Toronto
 
-kaj al orienta Kanado, vokante ĉiujn edzinojn kuniĝi en Montrealo, lun-
+kaj al orienta Kanado, vokante ĉiujn edzinojn kuniĝi en Montrealo, lundon la 7-an de majo. Tie Domo Stanley, hoteleto por la edzinoj de soldatoj,
 
-don la 7-an de majo. Tie Domo Stanley, hoteleto por la edzinoj de soldatoj,
-
-bone ekipita per infanlitetoj, ludiloj, bebĉaretoj kaj vestlavejo, estis pre-
-
-parita por batalo. La 6-an de majo mi iris al Montrealo kun du suboficiroj,
+bone ekipita per infanlitetoj, ludiloj, bebĉaretoj kaj vestlavejo, estis preparita por batalo. La 6-an de majo mi iris al Montrealo kun du suboficiroj,
 
 Ern Ryland kaj Vilĉjo Pamphilon, el la Aŭstralia Aerarmea Misio en
 
@@ -2123,15 +1841,11 @@ Otavo.
 
 Mi estis renkontanta kontingenton da edzinoj en la stacidomo kiam
 
-aŭtomobiloj komencis hupi per siaj kornoj, sonoriloj tintegis, homoj kri-
-
-adis, kaj la sonorilego de la Preĝejo Notre Dame eksonoris. La informa-
+aŭtomobiloj komencis hupi per siaj kornoj, sonoriloj tintegis, homoj kriadis, kaj la sonorilego de la Preĝejo Notre Dame eksonoris. La informa-
 
 gentejo Asociata Gazetaro ĵus anoncis la kapitulacon de Germanio en
 
-Rheims. Mi apenaŭ havis sufiĉan tempon intertrakti kun la Usona Kon-
-
-sulejo kaj Migra Servo de Kanado pograndan vizon por mia haremo, kiam
+Rheims. Mi apenaŭ havis sufiĉan tempon intertrakti kun la Usona Konsulejo kaj Migra Servo de Kanado pograndan vizon por mia haremo, kiam
 
 ĉio, ĉio fermiĝis por la festado. Per la helpo de la Ruĝa Kruco, ni kunpelis
 
@@ -2149,9 +1863,7 @@ nun estas en policejo, ebriaj kaj tumultemaj? Ĉar mi respondecas pri ili,
 
 Aŭstraliaj militherooj, kaj mi nur eskortas ilin al Nov-Jorko. Mi promesis
 
-veni kiel eble plej baldaŭ. Estis ridado je la alia ekstremaĵo de la telefon-
-
-lineo. Miaj kolegoj de la Aerarmeo, kiuj komplotis por trompi min, ĝuadis
+veni kiel eble plej baldaŭ. Estis ridado je la alia ekstremaĵo de la telefonlineo. Miaj kolegoj de la Aerarmeo, kiuj komplotis por trompi min, ĝuadis
 
 mian malkomforton.
 
@@ -2192,9 +1904,7 @@ novan ludilon, kaj ambaŭ aĉetis po unu por siaj infanoj. La ludilo estis
 
 se oni donas helpan ekpuŝon. La du patroj decidis provi la ludilon sur la
 
-savŝtuparo de la konstruaĵo. La Kirlulo funkciis bonege, kaj ili ludis kon-
-
-tente dum iom da tempo. Sed, kiam ili penis reeniri la oficejon de la dele-
+savŝtuparo de la konstruaĵo. La Kirlulo funkciis bonege, kaj ili ludis kontente dum iom da tempo. Sed, kiam ili penis reeniri la oficejon de la dele-
 
 gitaro, ili trovis ke la pordoj de la ŝtuparŝakto malfermeblas nur de
 
@@ -2204,15 +1914,11 @@ havis nur unu vojon—marŝi malsupren tra 45 etaĝoj, portante siajn
 
 “kirlulojn”.
 
-Diplomataj misioj ankaŭ devas prizorgi estontajn Aŭstraliajn ŝta-
-
-tanojn. En Ĝenevo en la 50aj jaroj la Konstanta Delegitaro ĉe la Eŭropa
+Diplomataj misioj ankaŭ devas prizorgi estontajn Aŭstraliajn ŝtatanojn. En Ĝenevo en la 50aj jaroj la Konstanta Delegitaro ĉe la Eŭropa
 
 sidejo de Unuiĝintaj Nacioj partoprenis en la laborado de Interregistara
 
-Komitato por Eŭropa Migrado. Kiel Ĝeneral-Konsulo mi ankaŭ adminis-
-
-tris programon de migrado al Aŭstralio. Iu Maltano petis helpon de la
+Komitato por Eŭropa Migrado. Kiel Ĝeneral-Konsulo mi ankaŭ administris programon de migrado al Aŭstralio. Iu Maltano petis helpon de la
 
 Konsulejo migri al Aŭstralio. Li estis la Malta Ministro pri Elmigrado.
 
@@ -2251,9 +1957,7 @@ estis instrukciita helpi min pri la organizado. Mi petis ke la Olimpika
 Komitato de Singapuro proponu kelkajn personojn. Tom petis al la
 
 
-Ĉefministro de Malajzio, Tunku Abdul Rahman, kiu nomumis sian prefer-
-
-atan kuiriston, virinon, por estri la skipon. Tio kreis problemon, ĉar miaj
+Ĉefministro de Malajzio, Tunku Abdul Rahman, kiu nomumis sian preferatan kuiriston, virinon, por estri la skipon. Tio kreis problemon, ĉar miaj
 
 kuiristoj rifuzis servi sub iu ajn virino. Post du konferencoj sensolvaj en
 
@@ -2269,33 +1973,23 @@ resumu sian eksterlandan politikon, respondis ke ĝi estas: povi iri al la
 
 Stacidomo Viktoria, kaj aĉeti bileton por vojaĝi kien ajn li deziras, sen
 
-pasporto. George Bidault de Francio priskribis landlimojn kiel “les cica-
+pasporto. George Bidault de Francio priskribis landlimojn kiel “les cicatrices de l’Europe” (la cikatroj de Eŭropo).
 
-trices de l’Europe” (la cikatroj de Eŭropo).
+Ambasadoroj devas gastigi kaj kuraĝigi multajn eminentajn sportistojn el siaj landoj. Kiel Aŭstralia Ambasadoro al la Federacia Respubliko
 
-Ambasadoroj devas gastigi kaj kuraĝigi multajn eminentajn sportis-
-
-tojn el siaj landoj. Kiel Aŭstralia Ambasadoro al la Federacia Respubliko
-
-Germanio mi havis plezuron bonvenigi la Aŭstralian teamon al la Olim-
-
-piaj Ludoj en Munkeno en 1972. Mi memorigis la atletojn pri la respondo
+Germanio mi havis plezuron bonvenigi la Aŭstralian teamon al la Olimpiaj Ludoj en Munkeno en 1972. Mi memorigis la atletojn pri la respondo
 
 donita de la Romia historiisto Plutarch kiam oni lin demandis ĉu li estus
 
 prefere Aĥilo la militisto aŭ Homero la poeto. Plutarch reciprokis per la
 
-demando: “Ĉu vi preferus esti venkinto en la Olimpiaj Ludoj aŭ la anon-
-
-canto de la rezultoj?”
+demando: “Ĉu vi preferus esti venkinto en la Olimpiaj Ludoj aŭ la anoncanto de la rezultoj?”
 
 Ambasadoj kaj aliaj eksterlandaj misioj prizorgas larĝan gamon da
 
 Aŭstraliaj vizitantaj oficistoj. En Ĝenevo la delegitaroj al la Internacia
 
-Labor-Oficejo inkluzivis ne nur oficistojn de la registaro sed ankaŭ rep-
-
-rezentantojn de sindikatoj kaj de organizoj de labordonantoj. Ofte tio estis
+Labor-Oficejo inkluzivis ne nur oficistojn de la registaro sed ankaŭ reprezentantojn de sindikatoj kaj de organizoj de labordonantoj. Ofte tio estis
 
 ilia ununura alilanda misio kaj ili penis pleje ĝui sian sperton, kelkfoje
 
@@ -2336,13 +2030,9 @@ La starigo de Unuiĝintaj Nacioj post kongreso en San-Francisko en
 
 1945 inaŭguris novan specon de diplomatio… la diplomation de oratorado,
 
-enkonduko de rezolucioj, kaj intertraktado malantaŭ la kulisoj en la kori-
+enkonduko de rezolucioj, kaj intertraktado malantaŭ la kulisoj en la koridoroj. Okazis ankaŭ florado de internacia humuro.
 
-doroj. Okazis ankaŭ florado de internacia humuro.
-
-Multaj el la poemoj ne estas tradukeblaj sed kelkaj blagoj estas uni-
-
-versale kompreneblaj. Ekzemple la *Manlibro por Delegitoj al U.N. *, kiu publikiĝis en Nov-Jorko. Ĝi citis serion de kliŝoj kun traduko:
+Multaj el la poemoj ne estas tradukeblaj sed kelkaj blagoj estas universale kompreneblaj. Ekzemple la *Manlibro por Delegitoj al U.N. *, kiu publikiĝis en Nov-Jorko. Ĝi citis serion de kliŝoj kun traduko:
 
 Interkonsento estas anticipebla
 
@@ -2487,13 +2177,9 @@ Atentu mian finalvokon:
 
 **Ne estu malamiko de la foko! **
 
-En 1976 la Ambasadoro de la Federacia Respubliko Germanio ĉe Unu-
+En 1976 la Ambasadoro de la Federacia Respubliko Germanio ĉe Unuiĝintaj Nacioj, Barono Rüdiger Von Wechmar, membro de la Ordeno por
 
-iĝintaj Nacioj, Barono Rüdiger Von Wechmar, membro de la Ordeno por
-
-Kontraŭbatali Aĉan Seriozecon, dissendis burleskan projekton de rezolu-
-
-cio proponanta komitaton por verki “Interkontrakton pri la limigo kaj
+Kontraŭbatali Aĉan Seriozecon, dissendis burleskan projekton de rezolucio proponanta komitaton por verki “Interkontrakton pri la limigo kaj
 
 parta forigo de sociaj eventoj, lunĉoj, akceptofestoj kaj bankedoj kiuj
 
@@ -2506,9 +2192,7 @@ daŭris pli ol du horojn kun kvin pladoj, inkluzive de omaroj kaj anasidoj!
 
 ***diplomatiaj vendistoj***
 
-Diplomatoj ne pasigas sian tutan tempon en stria pantalono partopre-
-
-nante en koktelfestoj aŭ eĉ intertraktante kun Departementoj pri Ekster-
+Diplomatoj ne pasigas sian tutan tempon en stria pantalono partoprenante en koktelfestoj aŭ eĉ intertraktante kun Departementoj pri Ekster-
 
 landaj Aferoj rilate politikajn problemojn. Multe da ilia energio estas
 
@@ -2530,15 +2214,11 @@ programo komenciĝis per registrita gakado de kukaburo (la Aŭstralia
 
 ridanta birdo, tiam la indiksignalo de Radio Aŭstralio), sekvata de dek
 
-kvin minutoj da novaĵoj. Ĉirkaŭ duono de la programo konsistis el ĝener-
-
-alaj novaĵoj kopiitaj el Radio-Aŭstralio. La cetero estis pri sporto, bazita
+kvin minutoj da novaĵoj. Ĉirkaŭ duono de la programo konsistis el ĝeneralaj novaĵoj kopiitaj el Radio-Aŭstralio. La cetero estis pri sporto, bazita
 
 sur telegramo kun raportoj de la rezultoj de eventoj je sabato. Estis du
 
-“kaptiloj por junaj ludantoj”—la Maoriaj nomoj kaj la nomoj de la Novze-
-
-landaj kurĉevaloj. Mi povis ĉiam kontroli la Maoriajn vortojn per amikoj
+“kaptiloj por junaj ludantoj”—la Maoriaj nomoj kaj la nomoj de la Novzelandaj kurĉevaloj. Mi povis ĉiam kontroli la Maoriajn vortojn per amikoj
 
 en la Novzelanda Aerarmea Misio, aŭ Altkomisiitejo, sed por la korekta
 
@@ -2546,23 +2226,17 @@ prononco de la nomoj de kurĉevaloj, kiu ne ĉiam konformas al klasika
 
 Greka aŭ Pariza Franca lingvo, mi devis fidi al ununura spertulo kiu
 
-havis profundan konon de la reĝa sporto, en la Misio de la Aŭstralia Aer-
-
-armeo. Kiam li estis for aŭ havis libertempon, mi kelkfoje faris terurajn
+havis profundan konon de la reĝa sporto, en la Misio de la Aŭstralia Aerarmeo. Kiam li estis for aŭ havis libertempon, mi kelkfoje faris terurajn
 
 erarojn.
 
 Feliĉige la Kanadanoj ne sciis pri tiuj eraregoj, kaj multe interesiĝis
 
-pri la “Anzakaj Novaĵoj”. Ni ricevis kelkajn amuzajn leterojn de admiran-
-
-toj. Unu aŭskultanto, priparolante la enkondukon al la programo, komen-
+pri la “Anzakaj Novaĵoj”. Ni ricevis kelkajn amuzajn leterojn de admirantoj. Unu aŭskultanto, priparolante la enkondukon al la programo, komen-
 
 tis kiel mirige S-ro Harry imitas la voĉon de la kanguruo!
 
-La Aŭstralia Ambasado en Vaŝingtono trovis Usonanojn tre malpreci-
-
-zaj pri geografio. Unu suda belulino, al kiu oni ne jam prezentis min,
+La Aŭstralia Ambasado en Vaŝingtono trovis Usonanojn tre malprecizaj pri geografio. Unu suda belulino, al kiu oni ne jam prezentis min,
 
 aŭskultinte min ne povis lokigi mian parolmanieron, kiu tiutempe estis
 
@@ -2573,27 +2247,17 @@ demandis: “Ĉu vi estas el la sudo?” “Jes”, mi respondis, “Mi ja estas
 
 sudo”. “Ĉu vi estas el Teksaso?” ŝi persistis. “Ne”, mi daŭrigis, por amuzo,
 
-“Mi estas el loko multe pli suda ol Teksaso”. “Sed estas nenio sude de Tek-
+“Mi estas el loko multe pli suda ol Teksaso”. “Sed estas nenio sude de Teksaso!” ŝi findiris, ankoraŭ nekomprenante.
 
-saso!” ŝi findiris, ankoraŭ nekomprenante.
-
-En Singapuro Aŭstralia komerco estis sufiĉe grava por necesigi apar-
-
-tan reprezentanton de la Departemento pri Komerco, sed la politikaj ofi-
+En Singapuro Aŭstralia komerco estis sufiĉe grava por necesigi apartan reprezentanton de la Departemento pri Komerco, sed la politikaj ofi-
 
 cistoj de la Komisiitejo respondecis pri programoj de ekonomia helpo. La
 
-Komisiito pri Komerco reciproke petis politikan helpon por specialaj vend-
+Komisiito pri Komerco reciproke petis politikan helpon por specialaj vendkampanjoj. Unu tia kampanjo konsistis el eksponludo de bilardoj fare de
 
-kampanjoj. Unu tia kampanjo konsistis el eksponludo de bilardoj fare de
+Walter Lindrum, Aŭstralia mondĉampiono, en la grandega Halo por Volanludoj, sub la aŭspicoj de la Aŭstralia Departemento pri Komerco. Mia
 
-Walter Lindrum, Aŭstralia mondĉampiono, en la grandega Halo por Vol-
-
-anludoj, sub la aŭspicoj de la Aŭstralia Departemento pri Komerco. Mia
-
-edzino kaj mi havis seĝojn en la plej antaŭa vico, proksime al la bilardta-
-
-blo kiu estis brile lumigata. La eta magiisto de la bilardbastono prezentis
+edzino kaj mi havis seĝojn en la plej antaŭa vico, proksime al la bilardtablo kiu estis brile lumigata. La eta magiisto de la bilardbastono prezentis
 
 bonegan spektaklon, kiun ni multe ĝuis ĝis Lindrum faris neatenditan
 
@@ -2607,9 +2271,7 @@ metos sur la nigran punkton. Ĉi tiun belegan botelon da tomatosaŭco IXL
 
 estu ĉi tie, kaj la konfitaĵo el fragoj ĉiflanke. La ruĝa globeto estos ĉi tie en la mezo de la tablo, kaj mi frapos la blankan al la maldekstra remburaĵo,
 
-preter la tomatosaŭcon, ĉirkaŭ la persikojn, malantaŭ la konfitaĵon, pre-
-
-ter la koalon kaj tiel fine enpoŝigos la ruĝan globon. Gesinjoroj Harry, ĉi
+preter la tomatosaŭcon, ĉirkaŭ la persikojn, malantaŭ la konfitaĵon, preter la koalon kaj tiel fine enpoŝigos la ruĝan globon. Gesinjoroj Harry, ĉi
 
 tiu estas honore al vi!”
 
@@ -2619,13 +2281,9 @@ fariĝas patronoj—solaj aŭ kun kolegoj—de sporteventoj, per donaco de
 
 premio. En 1974 la Aŭstralia Ambasado en Bonno donacis pokalon por la
 
-junula ĉampiono de la Golfklubo de Bonno-Bad Godesberg. La Ambasa-
+junula ĉampiono de la Golfklubo de Bonno-Bad Godesberg. La Ambasadoro, kiam li prezentis la pokalon, emfazis ke estas neniu “reĝa vojo” al
 
-doro, kiam li prezentis la pokalon, emfazis ke estas neniu “reĝa vojo” al
-
-sukceso en golfludo. Temas pri ellernado kaj fidela ekzercado. Li memori-
-
-gis la anekdoton pri Sankta Petro kaj Sankta Paŭlo, kiuj ludis golfon sur
+sukceso en golfludo. Temas pri ellernado kaj fidela ekzercado. Li memorigis la anekdoton pri Sankta Petro kaj Sankta Paŭlo, kiuj ludis golfon sur
 
 la ĉiela golfejo. Je la unua truo Petro atingis la truon per unu bato, kaj
 
@@ -2642,9 +2300,7 @@ jaro”. Mi rakontis ke en Aŭstralio estas ofte kanguruoj sur la golfejoj. Mi
 
 asertis ke en la Reĝa Klubo de Kanbero estas regulo ke, se la golfpilketo
 
-eniras la “poŝon” de kanguruino, la pilko estas “perdita”. Ankaŭ mi rakon-
-
-tis ke en vintro, sur la grandegaj gazonoj, estas tiom da frosto ke post
+eniras la “poŝon” de kanguruino, la pilko estas “perdita”. Ankaŭ mi rakontis ke en vintro, sur la grandegaj gazonoj, estas tiom da frosto ke post
 
 longa rulfrapo la pilketo kolektas froston, kaj fariĝas tro granda por eniri
 
@@ -2664,9 +2320,7 @@ handikapon. Precize kiam mi estis batonta je la unua ekbatejo, Keddie sin
 
 turnis al sia edzino kaj diris laŭte kaj klare: “Amy, ĉu tiuj leonoj ankoraŭ
 
-loĝas apud la kvara gazono?” Mi ne ludis mian plej bonan golfon tiun rond-
-
-iron.
+loĝas apud la kvara gazono?” Mi ne ludis mian plej bonan golfon tiun rondiron.
 
 En Belgio en la sesdekaj jaroj la ĉefa zorgo de Aŭstralio estis certigi
 
@@ -2686,9 +2340,7 @@ kvanto farita el troaĵo da pormanĝaj vinberoj kreskigitaj en oranĝerioj aŭ
 
 forcejoj de Wavre. Flandraparolantaj Belgoj apud la marbordo tradicie
 
-importis vinojn el Bordeaŭ, kaj Francparolantaj Valonoj aĉetadis el Bur-
-
-gonjo. Unu vesperon, por stimuli vendadon de Aŭstraliaj vinoj, mi parto-
+importis vinojn el Bordeaŭ, kaj Francparolantaj Valonoj aĉetadis el Burgonjo. Unu vesperon, por stimuli vendadon de Aŭstraliaj vinoj, mi parto-
 
 prenis en bankedo al kiu membroj de la diplomatia korpuso estis invititaj.
 
@@ -2696,26 +2348,20 @@ Maldekstre de mi sidis la Konsilisto de la Franca Ambasado. Li demandis
 
 ĝentile ĉu Aŭstralio efektive produktas trinkeblajn vinojn. Mi certigis al li ke ni ne nur produktas tablovinojn de la unua klaso, sed ankaŭ eksportas
 
-grandajn kvantojn al Britio, Nord-Ameriko kaj Sud-Orienta Azio. Postne-
-
-longe kelnero plen-igis niajn glasojn per klara ruĝa vino. Mi gustumis
+grandajn kvantojn al Britio, Nord-Ameriko kaj Sud-Orienta Azio. Postnelonge kelnero plen-igis niajn glasojn per klara ruĝa vino. Mi gustumis
 
 mian kaj sugestis ke ĝi estas komparebla kun, oni diru, vino de la marko
 
 St Emilion. La Franco koncedis, ĝentile, ke la vino estas trinkebla, sed
 
-diris ke ĝi apenaŭ atingas la klason de St. Emilion. En tiu momento la kel-
-
-nero revenis. Li parolfluege petis pardonon. Li ne komprenis ke mi estas
+diris ke ĝi apenaŭ atingas la klason de St. Emilion. En tiu momento la kelnero revenis. Li parolfluege petis pardonon. Li ne komprenis ke mi estas
 
 la Aŭstralia ambasadoro. La provizo de Aŭstraliaj vinoj elĉerpiĝis, kaj li
 
 propradecide servis nin per vino St. Emilion…
 
 
-En Otavo estis majstra petolisto en la oficejo de la Brita Altkomisi-
-
-itejo. Tiu estis Joe Garner, poste Kavaliro Savile Garner. Lia plej emi-
+En Otavo estis majstra petolisto en la oficejo de la Brita Altkomisiitejo. Tiu estis Joe Garner, poste Kavaliro Savile Garner. Lia plej emi-
 
 nenta viktimo estis lia propra Alta Komisiito, Malcolm Macdonald.
 
@@ -2725,15 +2371,11 @@ libron “Malsupren Norde”, pri la riveroj de la Nord-Okcidenta Teritorio.
 
 Jozeĉjo aranĝis kun la sekretario de Macdonald, Marjorie Gordon (kiu
 
-poste edziniĝis kun la Aŭstralia Ĝeneral-konsulo en Nov-Jorko kaj pat-
-
-ronis kolegion en la Universitato de Melburno) ŝajnige transsendi tele-
+poste edziniĝis kun la Aŭstralia Ĝeneral-konsulo en Nov-Jorko kaj patronis kolegion en la Universitato de Melburno) ŝajnige transsendi tele-
 
 fonkomunikaĵon el eksterlande. Marjorie faris la kutimajn sonojn kiuj
 
-akompanis internacian telefonkomunikaĵon en tiuj tempoj. “Ĉi tie Mac-
-
-donald”, respondis la Alta Komisiito. “Whitehall (la sidejo de la Brita
+akompanis internacian telefonkomunikaĵon en tiuj tempoj. “Ĉi tie Macdonald”, respondis la Alta Komisiito. “Whitehall (la sidejo de la Brita
 
 registaro) havas multajn zorgojn” diris Joseĉjo per sia plej longdistanca
 
@@ -2741,13 +2383,9 @@ voĉo. “Ŝajne vi faras tro da vojaĝado ĉirkaŭ la lando. Okazas kelkaj tre
 
 gravaj eventoj en Otavo—sur la kampo de politika evoluo, Macdonald;
 
-ekonomia evoluo; reciproka helpo; civila aviado…” Macdonald jam komen-
+ekonomia evoluo; reciproka helpo; civila aviado…” Macdonald jam komencis viglan defendadon de siaj vojaĝprogramoj kiam Joseĉjo metis sian
 
-cis viglan defendadon de siaj vojaĝprogramoj kiam Joseĉjo metis sian
-
-kapon ĉirkaŭ la pordo. “Whitehall havas multajn zorgojn” li diris, longdis-
-
-tance.
+kapon ĉirkaŭ la pordo. “Whitehall havas multajn zorgojn” li diris, longdistance.
 
 Kvankam Kanado estas glacie malvarma en vintro, la somero en
 
@@ -2757,19 +2395,13 @@ vizitantaj Aŭstraliaj oficistoj decidis naĝi en malgranda loka lago. Ili
 
 neglektis porti bankostumojn kaj estis ĝuantaj la aferon, kiam grupo da
 
-gesinjoroj, post bankedo en la rezidejo de S-ro Garner, elvenis por prome-
+gesinjoroj, post bankedo en la rezidejo de S-ro Garner, elvenis por promenado ĉirkaŭ la lagon. La Brita grupo vidis la vestojn apud la lago, korekte
 
-nado ĉirkaŭ la lagon. La Brita grupo vidis la vestojn apud la lago, korekte
-
-interpretis la situacion kaj plilongigis sian promenadon tra longan tem-
-
-pon, dum la nudaj koloniuloj devis resti en profunda akvo.
+interpretis la situacion kaj plilongigis sian promenadon tra longan tempon, dum la nudaj koloniuloj devis resti en profunda akvo.
 
 En Nov-Jorko, en la fruaj tagoj de Unuiĝintaj Nacioj, la ĵurnalistoj
 
-kelkfoje enuis pro manko de novaĵoj, kaj la internaciaj oficistoj de la sek-
-
-retariato ankaŭ havis longajn senlaborajn atendojn. Unu tagon en la
+kelkfoje enuis pro manko de novaĵoj, kaj la internaciaj oficistoj de la sekretariato ankaŭ havis longajn senlaborajn atendojn. Unu tagon en la
 
 printempo de 1948, oni dissendis la jenan gazetkomunikon:
 
@@ -2779,9 +2411,7 @@ printempo de 1948, oni dissendis la jenan gazetkomunikon:
 
 La aŭtonoma Respubliko Piralo en Nordokcidenta Azio
 
-kandidatas por membreco en Unuiĝintaj Nacioj. La kan-
-
-didatiĝa letero, subskribita de Ali Goonda Jaep, Ĝenerala
+kandidatas por membreco en Unuiĝintaj Nacioj. La kandidatiĝa letero, subskribita de Ali Goonda Jaep, Ĝenerala
 
 Ministro, estis ricevita hodiaŭ de Ĝenerala Sekretario
 
@@ -2794,9 +2424,7 @@ S-ro Jaep diris en sia letero ke nun la unuan fojon lia
 
 lando kandidatiĝas por membreco de iu ajn internacia
 
-organizo. La Ministro, kiu sendis sian leteron el Nov-Del-
-
-hio, diris ke lia lando estas preta akcepti ĉiujn devojn de
+organizo. La Ministro, kiu sendis sian leteron el Nov-Delhio, diris ke lia lando estas preta akcepti ĉiujn devojn de
 
 la Ĉarto.
 
@@ -2810,9 +2438,7 @@ Pluraj delegitaroj traserĉis siajn maparojn kaj *La Jarlibron por*
 
 En la lastaj kvardekaj jaraj Usono suferis plagon de “piramidaj
 
-kluboj”, speco de ĉenletero. La fina rezulto, laŭpretende, estis gajegaj fes-
-
-toj kiuj kunvenigis multajn homojn tute ne reciproke konatajn. La pirami-
+kluboj”, speco de ĉenletero. La fina rezulto, laŭpretende, estis gajegaj festoj kiuj kunvenigis multajn homojn tute ne reciproke konatajn. La pirami-
 
 doj, onidire, frakasis ĉiujn sociajn barilojn kaj inhibiciojn. Ŝercemulo
 
@@ -2829,13 +2455,9 @@ al kvin viramikoj, poste enpakigu vian edzinon kaj sendu
 
 ŝin al la ulo kies nomo estas ĉe la kapo de ĉi tiu listo.
 
-Kiam via nomo atingos la supron, vi ricevos 15,188 viri-
+Kiam via nomo atingos la supron, vi ricevos 15,188 virinojn, kaj kelkaj devas esti bonegulinoj!
 
-nojn, kaj kelkaj devas esti bonegulinoj!
-
-*Fidu*. Ne rompu la ĉenon; unu viro tion faris kaj rerice-
-
-vis sian propran edzinon.
+*Fidu*. Ne rompu la ĉenon; unu viro tion faris kaj rericevis sian propran edzinon.
 
 En , la Aŭstralia Ambasadoro en Nov-Jorko ricevis en
 
@@ -2860,9 +2482,7 @@ de la Ĝenerala Asembleo de Unuiĝintaj Nacioj) oni donis al li ekzempleron
 
 de projekto de rezolucio ankaŭ neriproĉeble verkita laŭ la norma formo de
 
-U.N. Ĝi estis rezolucio por diskutado en la Sepa (Speciala Feliĉeca) Kom-
-
-itato, urĝanta la junkorulojn de la diplomatiaj personaroj de la Konstantaj
+U.N. Ĝi estis rezolucio por diskutado en la Sepa (Speciala Feliĉeca) Komitato, urĝanta la junkorulojn de la diplomatiaj personaroj de la Konstantaj
 
 Misioj ĉe U.N. partopreni en bankedo-balo en la Filipina Oficejo.
 
@@ -2890,19 +2510,13 @@ ornamita per la nigraj literoj KGB!
 
 La Diplomataro en Kanbero en la fruaj tagoj de tiu artefarita ĉefurbo,
 
-devis krei multe da sia propra amuzo, ĉar mankis regulaj dramoj kaj kon-
-
-certoj. En 1950 oni organizis “ornitologian balon” en la foirhalo de Quean-
+devis krei multe da sia propra amuzo, ĉar mankis regulaj dramoj kaj koncertoj. En 1950 oni organizis “ornitologian balon” en la foirhalo de Quean-
 
 beyan, urbeto en Nova Sud-Kimrio, proksime al Kanbero, por adiaŭi
 
-Britan birdobservantan diplomaton Godfrey Bass. La ornitologiaj kapor-
+Britan birdobservantan diplomaton Godfrey Bass. La ornitologiaj kapornamaĵoj estis strangaj kaj mirindaj. La postan jaron balo estis organizita
 
-namaĵoj estis strangaj kaj mirindaj. La postan jaron balo estis organizita
-
-de la “Festivalo de Britio (Kanbera Filio), Divizio de Furioza Senrespond-
-
-eco”. Oni invitis la gastojn “festi ian ajn ideon aŭ objekton kiu stimulas la fantazion (escepte de la naciaj festotagoj por kiuj ekzistas jam pli taŭgaj
+de la “Festivalo de Britio (Kanbera Filio), Divizio de Furioza Senrespondeco”. Oni invitis la gastojn “festi ian ajn ideon aŭ objekton kiu stimulas la fantazion (escepte de la naciaj festotagoj por kiuj ekzistas jam pli taŭgaj
 
 okazoj)”. La “Vagantaj Aktoroj” de la stabo de la altkomisiito de Kanado
 
@@ -2926,9 +2540,7 @@ En Ĝenevo, belurbo
 
 Sen ia perturbo
 
-Ni unue diskutis fiŝad-
-
-k.t.p.4
+Ni unue diskutis fiŝadk.t.p.4
 
 Ĉiu delegitaro
 
@@ -2940,9 +2552,7 @@ En la kvardekaj jaroj, la Departemento pri Eksterlandaj Aferoj, eĉ
 
 dum la Milito, kaj spite al la sorĉallogo de eksterlanda vojaĝado, estis
 
-kompreneble registara departemento kies stabo konsistis el “ŝtataj funk-
-
-ciuloj”, tio estas burokratoj. La ŝercemuloj en la Departemento emis
+kompreneble registara departemento kies stabo konsistis el “ŝtataj funkciuloj”, tio estas burokratoj. La ŝercemuloj en la Departemento emis
 
 bildigi la tipan ŝtatan funkciulon kiel personon kiu trinkas tason da teo
 
@@ -2979,9 +2589,7 @@ Unu el la problemoj de la diplomatio estas manko de komuna lingvo. Oni
 
 kelkfoje pretendas ke la Angla estas la internacia lingvo. Dum la Dua
 
-Mondmilito, “Basic English” (simpla Angla kun limigita vortaro, kompil-
-
-ita de Charles K. Ogden) havis kelkajn subtenantojn kaj donis al ĝi impul-
+Mondmilito, “Basic English” (simpla Angla kun limigita vortaro, kompilita de Charles K. Ogden) havis kelkajn subtenantojn kaj donis al ĝi impul-
 
 son Winston Churchill. Sed Baza Angla devis esti lernita, eĉ de parolantoj
 
@@ -2995,9 +2603,7 @@ okullavaĵo”!
 
 Fakte oni ofte bezonas interpretistojn de la diversaj variaĵoj de la
 
-Angla. La Angla lingvo parolata en Londono, Vaŝingtono, Otavo kaj Kan-
-
-bero, sen mencii aliajn ĉefurbojn de la antaŭe Angleparolanta Imperio,
+Angla. La Angla lingvo parolata en Londono, Vaŝingtono, Otavo kaj Kanbero, sen mencii aliajn ĉefurbojn de la antaŭe Angleparolanta Imperio,
 
 varias rilate la vortaron, la prononcon kaj la parolmanieron—kio povas
 
@@ -3022,20 +2628,14 @@ la Aŭstralia parolmaniero tio estis “trajniz” kiu tre similas al “ĉajniz
 Alian fojon, raporto aperis en la *Ottawa Journal*, tre precizema ĵurnalo, pri Aŭstralianoj en Kanado. La raporto enhavis faktojn ne antaŭe
 
 
-la informaĵon de la Aŭstralia Aerarmea Misio. La Aŭsa oficiro kiu respon-
-
-decis pri disdonado de informaĵoj diris ke li tute ne parolis al ĵurnalisto.
+la informaĵon de la Aŭstralia Aerarmea Misio. La Aŭsa oficiro kiu respondecis pri disdonado de informaĵoj diris ke li tute ne parolis al ĵurnalisto.
 
 La nura persono al kiu li donis tiun informaĵon estas la “Auditor General”
 
 
-(Ĉef-Kontrolisto de Kontoj). En la Kanada elparolmaniero “Ottawa Jour-
+(Ĉef-Kontrolisto de Kontoj). En la Kanada elparolmaniero “Ottawa Journal” tre similas al “Auditor General” en la Aŭstralia!
 
-nal” tre similas al “Auditor General” en la Aŭstralia!
-
-Angloj kaj Nordamerikanoj kelkfoje rigardas la Aŭstralian kiel for-
-
-mon de la Londona “cockney”, ĉefe pro la fakto ke en la Aŭstralia oni pro-
+Angloj kaj Nordamerikanoj kelkfoje rigardas la Aŭstralian kiel formon de la Londona “cockney”, ĉefe pro la fakto ke en la Aŭstralia oni pro-
 
 noncas la sonon “ej” kiel “aj”. Fakte estas multaj diferencoj, sed tio estas
 
@@ -3043,9 +2643,7 @@ noncas la sonon “ej” kiel “aj”. Fakte estas multaj diferencoj, sed tio e
 
 Kolonelo W.R. Hodgson, kiam li estis Aŭstralia reprezentanto en Nov-
 
-Jorko, penis kontakti Kanadajn amikojn nomatajn “Beamish”. La telefon-
-
-fraŭlino ne povis kompreni lian Aŭstralian prononcon. Li ripetis la
+Jorko, penis kontakti Kanadajn amikojn nomatajn “Beamish”. La telefonfraŭlino ne povis kompreni lian Aŭstralian prononcon. Li ripetis la
 
 nomon—Beamish, kaj literumis BI I AJ EM AJ ES EĈ. La fraŭlino ripetis
 
@@ -3075,9 +2673,7 @@ kiu studis en la Angla lernejo en Bonno, estis prenita viziti la avon,
 
 farmiston. Estis varmega tago kaj Mikelo petis trinkaĵon. Lia avo montris
 
-al li akvocisternon, klarigante ke ĝi enhavas puran “rainwater” (plu-
-
-vakvon). Je lia surprizo Mikelo rifuzis trinki eĉ guton, malgraŭ sia evi-
+al li akvocisternon, klarigante ke ĝi enhavas puran “rainwater” (pluvakvon). Je lia surprizo Mikelo rifuzis trinki eĉ guton, malgraŭ sia evi-
 
 denta soifego. Feliĉe estis limonado en la fridujo. Kiam li reiris hejmen,
 
@@ -3093,9 +2689,7 @@ premion, grandegan Svisgermanan kolbasegon. Mi ankaŭ faris kelkajn
 
 interesajn kontaktojn pere de la internacia lingvo Esperanto. Tamen, eĉ
 
-uzante tiun majstroverkon de logiko kaj simpleco, oni ja povas erari. Espe-
-
-rantisto en Aŭstrio skribis invitante min fariĝi *baptopatro* al lia filino. Mi respondis dirante ke estus granda honoro, sed mi ne estas certa ke mi
+uzante tiun majstroverkon de logiko kaj simpleco, oni ja povas erari. Esperantisto en Aŭstrio skribis invitante min fariĝi *baptopatro* al lia filino. Mi respondis dirante ke estus granda honoro, sed mi ne estas certa ke mi
 
 povus adekvate plenumi la devojn de *bopatro* (!). Post tio mi ricevis leteron de la mistifikita Aŭstro, kiu diris ke estus granda honoro por lia filino
 
@@ -3114,19 +2708,13 @@ la amikeco inter Anglio kaj Francio.”
 
 Aŭstralio havas kelkajn bonegajn lingvistojn en sia diplomatia servo.
 
-En 1965 la stabo de la Aŭstralia ambasado en Bruselo inkluzivis spertu-
-
-lon pri komerco, kiu parolis la Nederlandan sen fremda prononcmaniero
+En 1965 la stabo de la Aŭstralia ambasado en Bruselo inkluzivis spertulon pri komerco, kiu parolis la Nederlandan sen fremda prononcmaniero
 
 (ĉar li estis de Nederlanda deveno!). Unu tagon mi vizitis la Komisionon
 
-de la Eŭropa Ekonomia Komunumo. Mi paroladis kun oficisto de la Komi-
+de la Eŭropa Ekonomia Komunumo. Mi paroladis kun oficisto de la Komisiono kiam la Nederlandparolanta diplomato alproksimiĝis en la koridoro.
 
-siono kiam la Nederlandparolanta diplomato alproksimiĝis en la koridoro.
-
-Mi prezentis mian kolegon, kiu poste plendegis: “Vi detruis miajn inform-
-
-fontojn, sinjoro. Ili ja ĉiuj kredadis ke mi estas de la Nederlanda misio!”
+Mi prezentis mian kolegon, kiu poste plendegis: “Vi detruis miajn informfontojn, sinjoro. Ili ja ĉiuj kredadis ke mi estas de la Nederlanda misio!”
 
 M. Briand de Francio iam diris ke en la fruaj tagoj de la Ligo de Nacioj
 
@@ -3152,24 +2740,18 @@ negro en la lignostako”. Tuj la negro leviĝis indignegante pri tiu rasaludo,
 
 kaj estis akra streĉeco ĝis la interpretisto klarigis ke fakte la vortoj en la Rusa lingvo estis: “nun ni scias ke estas pinta ponardo en la ingo”.
 
-En la lastaj jaroj “sinsekva” interpretado estas anstataŭigita en kun-
-
-venoj per “samtempa” interpretado, kiam la interpretistoj, en vitraj
+En la lastaj jaroj “sinsekva” interpretado estas anstataŭigita en kunvenoj per “samtempa” interpretado, kiam la interpretistoj, en vitraj
 
 ĉambretoj, parolas en mikrofonojn, kaj la delegitoj aŭskultas la elektitan
 
 oficialan lingvon per kapaŭskultiloj. Tamen oni devas uzi interpretistojn
 
 
-de la antaŭa stilo por privataj konversacioj, kaj interpretistoj estas erare-
-
-maj. Iam mi renkontis delegiton el la Mongola Popola Respubliko kaj ni
+de la antaŭa stilo por privataj konversacioj, kaj interpretistoj estas eraremaj. Iam mi renkontis delegiton el la Mongola Popola Respubliko kaj ni
 
 interŝanĝis informojn, pere de lia interpretisto, pri niaj landoj. Mi diris ke mi kredas ke Mongolio estas granda kaj seka lando. Mi komentis ke
 
-Aŭstralio estas la plej seka el ĉiuj kontinentoj, kaj ne havas grandajn riv-
-
-erojn similajn al Misisipo, Amazono aŭ Gango. La ambasadoro konfirmis
+Aŭstralio estas la plej seka el ĉiuj kontinentoj, kaj ne havas grandajn riverojn similajn al Misisipo, Amazono aŭ Gango. La ambasadoro konfirmis
 
 ke Mongolio estas tre seka, kvankam kompreneble ne entute dezerto. Mi
 
@@ -3179,9 +2761,7 @@ diris ke mia lando havas kelkajn dezertojn, sed ke ni havas ĉirkaŭ 120 000
 
 sian rolon kaj estis iom da diskutado inter li kaj la ambasadoro. Fine la
 
-interpretisto sin turnis denove al mi: “La ambasadoro ne povas kom-
-
-preni,” li diris, “kiel, se ne estas riveroj en Aŭstralio, vi povas havi 120 milionojn da ŝipoj”!
+interpretisto sin turnis denove al mi: “La ambasadoro ne povas kompreni,” li diris, “kiel, se ne estas riveroj en Aŭstralio, vi povas havi 120 milionojn da ŝipoj”!
 
 Jean Rey, “Ministro pri Eksterlandaj Aferoj” de la Eŭropa Ekonomia
 
@@ -3226,9 +2806,7 @@ Terence Smith, asistanto de la Eksterlanda Redaktoro de *New York*
 la kvalitojn de iliaj respektivaj konsilantoj pri eksterlandaj aferoj. Nixon
 
 
-asertis ke Kissinger havas grandajn intelekton, scion, sperton kaj talen-
-
-ton. Sinjorino Meir diris ke Aubrey Eban havas same bonan cerbon, estas
+asertis ke Kissinger havas grandajn intelekton, scion, sperton kaj talenton. Sinjorino Meir diris ke Aubrey Eban havas same bonan cerbon, estas
 
 enciklopedio de faktoj, kaj havas multan sperton. “Kaj ankaŭ”, ŝi aldonis,
 
@@ -3236,27 +2814,19 @@ enciklopedio de faktoj, kaj havas multan sperton. “Kaj ankaŭ”, ŝi aldonis,
 
 La plej embarasa eraro kiun ambasadoro povas fari estas intermiksi
 
-la nomojn aŭ rangojn de siaj gastoj. Norman Makin, kiam li estis la Amba-
-
-sadoro de Aŭstralio en Vaŝingtono, inventis metodon por tion eviti. Kiam
+la nomojn aŭ rangojn de siaj gastoj. Norman Makin, kiam li estis la Ambasadoro de Aŭstralio en Vaŝingtono, inventis metodon por tion eviti. Kiam
 
 liaj gastoj alvenis, li kutimis bonvenigi ilin varme: “Mi ĝojas vin vidi, Ekscelenco”. Kaj lia formulo por prezentoj estis: “Ekscelenco, vi konas Lian
 
 Ekscelencan Moŝton, ĉu ne?”
 
-La nomoj de internaciaj organizoj estas kelkfoje malfacile elparole-
-
-blaj, veraj langrompiloj. Kiam mi estis membro de la Komitato de U.N. pri
+La nomoj de internaciaj organizoj estas kelkfoje malfacile elparoleblaj, veraj langrompiloj. Kiam mi estis membro de la Komitato de U.N. pri
 
 la “peaceful uses” (pacaj uzoj) de kosma spaco, mia edzino foje informis
 
-amikon ke ŝia edzo estas spertulo pri “useful pieces” de kosma spaco (uti-
+amikon ke ŝia edzo estas spertulo pri “useful pieces” de kosma spaco (utilaj pecoj!). [Anglalingve, “peace” kaj “piece” sonas idente.]
 
-laj pecoj!). [Anglalingve, “peace” kaj “piece” sonas idente.]
-
-Unu el la problemoj kiujn alfrontas la diplomatoj estas resti infor-
-
-mataj pri la vortomodoj. Ve, se ambasadoro aludas Kamboĝon post kiam
+Unu el la problemoj kiujn alfrontas la diplomatoj estas resti informataj pri la vortomodoj. Ve, se ambasadoro aludas Kamboĝon post kiam
 
 ĝi fariĝis “Kampuĉeo”, aŭ al “Kampuĉeo” post kiam ĝi fariĝis “Demokrata
 
@@ -3278,9 +2848,7 @@ bankedo honore al reprezentantoj de la Japana sukerindustrio en 1962,
 
 Kavaliro Arturo Fadden, Ministro pri Financoj kaj dum nelonga periodo
 
-Ĉefministro de Aŭstralio, rakontis ke li ricevis plendon de unu el siaj ele-
-
-ktodistriktanoj, viro de itala origino, kiu demandis: “Sinjor’ Da Fado, kial
+Ĉefministro de Aŭstralio, rakontis ke li ricevis plendon de unu el siaj elektodistriktanoj, viro de itala origino, kiu demandis: “Sinjor’ Da Fado, kial
 
 ĉi uloj envenas kaj tujtuj ili ĉiuj fariĝas ‘Novaj Aŭstralianoj’—sed mi
 
@@ -3289,9 +2857,7 @@ ankoraŭ restas damnita olda Italaĉo?”
 
 ***diplomatiaj komunikaĵoj***
 
-La raportoj de ambasadoroj al siaj naciaj ĉefurboj povas havi diversajn for-
-
-mojn. Urĝaj raportoj kaj petoj pri instrukcioj estas telegrafataj aŭ faksataj per la registara radio-teleksa reto, ofte en sekreta kodo aŭ ĉifro. Oni uzas
+La raportoj de ambasadoroj al siaj naciaj ĉefurboj povas havi diversajn formojn. Urĝaj raportoj kaj petoj pri instrukcioj estas telegrafataj aŭ faksataj per la registara radio-teleksa reto, ofte en sekreta kodo aŭ ĉifro. Oni uzas
 
 de tempo al tempo la telefonon, sed diplomatoj, kiel bonaj burokratoj,
 
@@ -3299,9 +2865,7 @@ ordinare preferas presitajn tekstojn. Formalaj depeŝoj kaj rutinaj mesaĝoj
 
 (memorandoj) kaj leteroj estas portataj en “diplomatiaj sakoj”. Ĉi tiuj, laŭ
 
-internacia juro kaj konvencio, estas sanktaj kaj netuŝeblaj, sed la plej-
-
-multo de la registaroj sendas siajn diplomatiajn sakojn sub la zorgado de
+internacia juro kaj konvencio, estas sanktaj kaj netuŝeblaj, sed la plejmulto de la registaroj sendas siajn diplomatiajn sakojn sub la zorgado de
 
 kapitanoj de ŝipoj aŭ de aviadiloj de siaj naciaj kompanioj, aŭ en la manoj
 
@@ -3313,9 +2877,7 @@ taskon ĉifri kaj elĉifrigi telegramojn, kiuj ofte estis fuŝĉifritaj. Ili bal
 
 fariĝis spertaj pri provado de diversaj permutaĵoj de ciferoj, por diveni la
 
-signifon. En 1941, kiam oni intertraktadis pri armistico en Sirio, tele-
-
-gramo alvenis kiu raportis ke oni atingis interkonsenton pri armistico. Ĝi
+signifon. En 1941, kiam oni intertraktadis pri armistico en Sirio, telegramo alvenis kiu raportis ke oni atingis interkonsenton pri armistico. Ĝi
 
 finiĝis per fuŝa cifergrupoj “xxxxx jam informita”. La diplomatiaj oficistoj
 
@@ -3325,9 +2887,7 @@ vorto estas “gazetaro”. Kiam la ministro, Kavaliro Frederick Stewart,
 
 ricevis la telegramon, kaj legis ke oni jam informis la gazetaron, li menciis la novaĵon al raportisto de la Gazetagentejo Reuter, kiu, por esti certa ke
 
-lia agentejo ricevos la eron, pertelegrafe sendis la informon. Li sola rapor-
-
-tis, tiel gajnante “akaparon” (scoop) de la novaĵo. La korektaj vortoj en la
+lia agentejo ricevos la eron, pertelegrafe sendis la informon. Li sola raportis, tiel gajnante “akaparon” (scoop) de la novaĵo. La korektaj vortoj en la
 
 telegramo estis “De Gaulle”! Post tio la raportisto de Reuter ofte vizitis la oficejon de la Ministro, esperante ricevi alian novaĵakaparon.
 
@@ -3358,9 +2918,7 @@ finis sian inaŭguran vojaĝon nokte la 15-an de decembro kaj restos endoke
 
 Oni substrekis al ni, kiam ni estis junaj diplomatiaj oficistoj, ke la
 
-diplomatia sako nepre estu uzata nur por oficialaj komunikaĵoj. Oni mem-
-
-origis pri la fifama okazo kiam pela mantelo estis sendita el Vaŝingtono aŭ
+diplomatia sako nepre estu uzata nur por oficialaj komunikaĵoj. Oni memorigis pri la fifama okazo kiam pela mantelo estis sendita el Vaŝingtono aŭ
 
 Nov-Jorko al Londono en Brita diplomatia sako por, oni asertis, Lordino
 
@@ -3378,9 +2936,7 @@ Dua Mondmilito, Donald Shand, Aŭstralia terkultivisto el Armidale, en
 
 Nova Sud-Kimrio, vizitis la Aŭstralian Altkomisiitejon en Otavo. Li portis
 
-malgrandan, bluan saketon el tolo. Li diris ke ĝi entenas grajnojn de hibr-
-
-ida maizo kiun li senpage akiris de la Kanada Eksperimenta Bieno, post
+malgrandan, bluan saketon el tolo. Li diris ke ĝi entenas grajnojn de hibrida maizo kiun li senpage akiris de la Kanada Eksperimenta Bieno, post
 
 malsukceso de akirpenoj en Usono. Li klarigis al mi la gravecon de hibrida
 
@@ -3398,17 +2954,13 @@ samtempe sendante telegramon al la Departemento pri Eksterlandaj
 
 Aferoj por ke ili informu la kvarantenajn aŭtoritatojn.
 
-Unu tagon en 1957, kiam mi estis la Aŭstralia Komisiito en Sin-
-
-gapuro, mia sekretario informis min ke estas sinjoro el Armidale kiu
+Unu tagon en 1957, kiam mi estis la Aŭstralia Komisiito en Singapuro, mia sekretario informis min ke estas sinjoro el Armidale kiu
 
 deziras paroli kun mi. Estis Don Shand. Li demandis ĉu mi memoras iun
 
 bluan saketon. Mi diris ke mi ofte min demandis ĉu la grajnoj de maizo
 
-kreskis. “Nu”, diris Shand, “mi vizitetas vin por informi ke mi ĵus subskri-
-
-bis kontrakton nome de Aŭstraliaj kreskigantoj de maizo pri vendo de 100
+kreskis. “Nu”, diris Shand, “mi vizitetas vin por informi ke mi ĵus subskribis kontrakton nome de Aŭstraliaj kreskigantoj de maizo pri vendo de
 
 000 tunoj da maizo al la Japanoj… kaj ĉio elvenis el tiu eta sako”.
 
@@ -3423,35 +2975,23 @@ dolĉaĵon acersiropo. La Komisiito promesis akiri unu-du litrojn, kaj mi
 
 konsentis pagi la koston, inkluzive la transportkostojn. Dum kelkaj
 
-monatoj mi ricevis nenian informon pri la siropo kaj preskaŭ perdis espe-
+monatoj mi ricevis nenian informon pri la siropo kaj preskaŭ perdis esperon, sed unu matenon kolego telefonis el la ĉambro kie oni malfermas la
 
-ron, sed unu matenon kolego telefonis el la ĉambro kie oni malfermas la
-
-diplomatiajn sakojn. “Estas pakaĵo da dokumentoj ĉi tie por vi el la diplo-
-
-matia sako alveninta el Otavo—kaj ili estas treege gluecaj!”
+diplomatiajn sakojn. “Estas pakaĵo da dokumentoj ĉi tie por vi el la diplomatia sako alveninta el Otavo—kaj ili estas treege gluecaj!”
 
 Mia edzino havis talenton por la solvo de komunikilaj problemoj laŭ
 
-diplomatiaj metodoj. Kiam ni estis en Singapuro, ŝi deziris viziti Honkon-
-
-gon, kiu havis bonan reputacion inter la virinoj kiel bonaĉetejo. Mi mal-
+diplomatiaj metodoj. Kiam ni estis en Singapuro, ŝi deziris viziti Honkongon, kiu havis bonan reputacion inter la virinoj kiel bonaĉetejo. Mi mal-
 
 fidis la teorion ke ju pli oni elspezas en Honkongo des pli oni ŝparas.
 
-Tamen mi diris ke mi konsentus iri al Honkongo se ni povus aranĝi senko-
+Tamen mi diris ke mi konsentus iri al Honkongo se ni povus aranĝi senkostan transporton. La postan vesperon dum bankedo ŝi informiĝis de sia
 
-stan transporton. La postan vesperon dum bankedo ŝi informiĝis de sia
-
-najbaro, generalo, ke estas de tempo al tempo senpaga kajuto sur mil-
-
-itŝipo, kiun oni povus disponigi al ni. Akceptante la neevitablan vojaĝon,
+najbaro, generalo, ke estas de tempo al tempo senpaga kajuto sur militŝipo, kiun oni povus disponigi al ni. Akceptante la neevitablan vojaĝon,
 
 sed dezirante eviti kamforlignajn kestegojn kaj grandajn Persajn
 
-tapiŝojn, mi aranĝis ke ni revenos el Honkongo per aviadilo de la flu-
-
-garmeo, kiu strikte limigas la pakaĵaron transportatan por pasaĝeroj.
+tapiŝojn, mi aranĝis ke ni revenos el Honkongo per aviadilo de la flugarmeo, kiu strikte limigas la pakaĵaron transportatan por pasaĝeroj.
 
 Kiam nia trupŝipo alvenis al Honkongo, juna Aŭstralia militŝipa oficiro
 
@@ -3465,9 +3005,7 @@ Li transdonis al ŝi la salutojn de la Kapitano de ŝipo de la Reĝa Aŭstralia
 
 Mararmeo, tiam en la haveno, kaj diris ke se ŝi havas kelkajn objektojn
 
-tro pezajn por la Flugarmeo, la Mararmeo tre volonte portos ilin al Sin-
-
-gapuro por ŝi!
+tro pezajn por la Flugarmeo, la Mararmeo tre volonte portos ilin al Singapuro por ŝi!
 
 Kutime oficialaj ŝtataj vizitantoj portas kun si donacojn por
 
@@ -3477,13 +3015,9 @@ taŭgaj donacoj estas unu el la diplomatiaj artoj.
 
 La Aŭstralia Ministro pri Eksterlandaj Aferoj, D-ro H.V. Evatt, dum
 
-vizito al Otavo estis gasto en Rideau Hall, la rezidejo de la Ĝeneral-
+vizito al Otavo estis gasto en Rideau Hall, la rezidejo de la Ĝeneralguberniestro. Li menciis ke Aŭstralio produktas oranĝojn, kiuj estis tre
 
-guberniestro. Li menciis ke Aŭstralio produktas oranĝojn, kiuj estis tre
-
-maloftaj en Kanado dum la milito. Li promesis sendi kesteton da Aŭstral-
-
-iaj oranĝoj por iliaj guberniestraj moŝtoj. Sed kiam la oranĝoj alvenis al
+maloftaj en Kanado dum la milito. Li promesis sendi kesteton da Aŭstraliaj oranĝoj por iliaj guberniestraj moŝtoj. Sed kiam la oranĝoj alvenis al
 
 Vankuvero, post la vojaĝo trans Pacifiko, ili plejparte jam putris. Dua
 
@@ -3492,21 +3026,15 @@ ekspedo suferis la saman sorton. Sed D-ro Evatt ne estis venkita. Li
 sendis kesteton da oranĝmarmelado!
 
 
-Donacoj kelkfoje kunhavas liverproblemojn. Kiam la Usona ambasa-
-
-doro en Aŭstralio, William Crook, vizitis Vjetnamon en 1968, li faris
+Donacoj kelkfoje kunhavas liverproblemojn. Kiam la Usona ambasadoro en Aŭstralio, William Crook, vizitis Vjetnamon en 1968, li faris
 
 viziton al la aviadilportanta ŝipo Coral Sea (Korala Maro). La kuiristo
 
 estis bakinta grandegan kukon en la formo de la Aŭstralia flago, portotan
 
-al Aŭstralio kiel dankogeston de Usonaj maristoj gastigitaj dum sia liber-
+al Aŭstralio kiel dankogeston de Usonaj maristoj gastigitaj dum sia libertempo en Aŭstralio. Oni aranĝis ke la kuko estos transdonita ceremonie
 
-tempo en Aŭstralio. Oni aranĝis ke la kuko estos transdonita ceremonie
-
-al la Ĉefministro de Aŭstralio, Johano Gorton, sed oni devis nuligi la cer-
-
-emonion, ĉar riveliĝis ke mankas granda porcio de la kuko. Anstataŭante
+al la Ĉefministro de Aŭstralio, Johano Gorton, sed oni devis nuligi la ceremonion, ĉar riveliĝis ke mankas granda porcio de la kuko. Anstataŭante
 
 ĝin estis letereto ŝmirita per sukeraĵo kiu tekstis: “La fantomo denove
 
@@ -3523,15 +3051,11 @@ plej antikva.
 
 laboro de kirurgo”, diris la kuracisto.
 
-“Vere”, diris la arkitekto, “sed Dio estis arkitekto antaŭ ol li estis kiru-
-
-rgo. Li faris la mondon el ĥaoso”.
+“Vere”, diris la arkitekto, “sed Dio estis arkitekto antaŭ ol li estis kirurgo. Li faris la mondon el ĥaoso”.
 
 “Ha”, diris la diplomato, “sed el kie venis la ĥaoso?”.
 
-Shirley Temple Black (la nomo signifas “Nigra”), mondfama kiel fil-
-
-mostelo en sia infanaĝo, kandidatis por la Respublika Partio en San-
+Shirley Temple Black (la nomo signifas “Nigra”), mondfama kiel filmostelo en sia infanaĝo, kandidatis por la Respublika Partio en San-
 
 Mateo, distrikto proksima al San-Francisko. Ŝin venkis veterana
 
@@ -3541,9 +3065,7 @@ Usona Marsoldataro”. Shirley, post deĵoro kiel ambasadoro, fariĝis ĉefo de
 
 la Ceremoniarsekcio de la Departemento pri Eksterlandaj Aferoj (Ŝtat-
 
-Departemento). La diplomatoj bone kondutadis pro timo de “nigra” alri-
-
-gardo.
+Departemento). La diplomatoj bone kondutadis pro timo de “nigra” alrigardo.
 
 La iama ĉefministro de Kanado Mike Pearson estis unu el la pioniraj
 
@@ -3553,9 +3075,7 @@ je la tempo de la surtroniĝo de Reĝo Georgo VI, kaj oni petis lin roli kiel
 
 sidiganto. Li portis por la okazo plenformalan diplomatian uniformon
 
-(kun multe da orgalonaĵo) kaj glavon. Tuj antaŭ la komenco de la ceremo-
-
-nio li estis staranta kun reĝina helpantino proksime al la enirejo de
+(kun multe da orgalonaĵo) kaj glavon. Tuj antaŭ la komenco de la ceremonio li estis staranta kun reĝina helpantino proksime al la enirejo de
 
 necesejo, kiam eliris dukino klare bezonanta helpon. La helpantino
 
@@ -3567,9 +3087,7 @@ elprenu ĝin”.
 
 Eleanor Roosevelt, la vidvino de Prezidento Franklin D. Roosevelt,
 
-estis en la Usona delegitaro ĉe Unuiĝintaj Nacioj, la tagon kiam la Ĝener-
-
-ala Asembleo la unuan fojon komencis sian programon per momento da
+estis en la Usona delegitaro ĉe Unuiĝintaj Nacioj, la tagon kiam la Ĝenerala Asembleo la unuan fojon komencis sian programon per momento da
 
 silenta preĝado aŭ meditado. Dum lunĉo kun kelkaj amikoj, inter kiuj mi
 
@@ -3594,9 +3112,7 @@ okazo ĉe Unuiĝintaj Nacioj. “Ĝi estis belega,” ŝi sentimentale elverŝis
 
 tre ŝatus havi skribitan kopion”. “Mi bedaŭras”, li respondis, “sed mi faris
 
-ĝin ekstemporale, senprepare, kaj mi preferus ke oni ĝin eldonu post-
-
-morte”. “Do”, diris lia admiranto, “Mi ja esperas ke estos baldaŭ”.
+ĝin ekstemporale, senprepare, kaj mi preferus ke oni ĝin eldonu postmorte”. “Do”, diris lia admiranto, “Mi ja esperas ke estos baldaŭ”.
 
 La Brita ĵurnalo *The Times* iam raportis momenton da malstreĉiĝo
 
@@ -3612,17 +3128,13 @@ Je akceptofesto dum Konferenco de Ĉefministroj de la Komunregnaro,
 
 Winston Churchill demandis al la ĉefministro de Pakistano ĉu li ŝatus
 
-trinki glason da viskio. La pakistanano klarigis ke li neniam trinkas alko-
-
-holon. “Kio? Neniam?” komentis Churchill, “Bona Dio… mi intencas diri
+trinki glason da viskio. La pakistanano klarigis ke li neniam trinkas alkoholon. “Kio? Neniam?” komentis Churchill, “Bona Dio… mi intencas diri
 
 Bona Alaho!”
 
 Dum alia Konferenco de la Komunregnaro la diskutado turniĝis al
 
-Egiptio. “Mi estis en Egiptio kiel junulo”, memoris Churchill, “mi memo-
-
-ras la felahojn laborantajn sub la varmega suno, ĝenatajn de la muŝoj. Kaj
+Egiptio. “Mi estis en Egiptio kiel junulo”, memoris Churchill, “mi memoras la felahojn laborantajn sub la varmega suno, ĝenatajn de la muŝoj. Kaj
 
 mi aŭdacas diri, ke se mi reirus al Egiptio hodiaŭ, mi trovus la samajn
 
@@ -3638,9 +3150,7 @@ sintezaj. Tio kreis problemon por la Ŝtat-Departemento. Se ĝi sendus la
 
 kronon tia kia ĝi estas, oni eble asertus ke Usono anstataŭigis la veran per
 
-falsaĵo. Do, preciza kopio estis farita per veraj gemoj. La Hungaraj sper-
-
-tuloj sciis ke la originala krono kiun la Usonaj soldatoj prenis havis sinte-
+falsaĵo. Do, preciza kopio estis farita per veraj gemoj. La Hungaraj spertuloj sciis ke la originala krono kiun la Usonaj soldatoj prenis havis sinte-
 
 
 zajn ŝtonojn, sed ili ne povis protesti kontraŭ la anstataŭigo, ĉar oni eble
@@ -3653,9 +3163,7 @@ restis en Usono, sed oni povis nenion fari pri la afero.
 
 Papo Paŭlo VI iam deĵoris kiel Papa Nuncio en Germanio. Amiko
 
-memorigis lin ke en la fruaj tridekaj jaroj li estis raportinta ke oni ne serioze konsideru Hitler. “Ha”, diris Lia Papa Moŝto, “tio estis antaŭ ol mi far-
-
-iĝis neeraripova”.
+memorigis lin ke en la fruaj tridekaj jaroj li estis raportinta ke oni ne serioze konsideru Hitler. “Ha”, diris Lia Papa Moŝto, “tio estis antaŭ ol mi fariĝis neeraripova”.
 
 Clare Booth Luce, edzino de Henry Luce, la riĉega magazineldonisto,
 
@@ -3681,15 +3189,11 @@ Ambasadoro ĉe Unuiĝintaj Nacioj iam esprimis dubojn pri la valoro de
 
 kelkaj oratoraĵoj. Li diris: “Mi opinias ke multaj el ni ĉe U.N. vere kredas
 
-ke ni povas solvi la problemojn de la mondo per laŭta kaj persista orato-
-
-rado. Tio ne estas pli sukcesa ol penado malimpliki trafikan konfuzon per
+ke ni povas solvi la problemojn de la mondo per laŭta kaj persista oratorado. Tio ne estas pli sukcesa ol penado malimpliki trafikan konfuzon per
 
 hupado de la korno.”
 
-Ambasadoro estis stariĝonta por fari oratoraĵon kiam lia edzino flus-
-
-tris: “Memoru, karulino, ke parolado por esti senmorta ne devas esti
+Ambasadoro estis stariĝonta por fari oratoraĵon kiam lia edzino flustris: “Memoru, karulino, ke parolado por esti senmorta ne devas esti
 
 eterna”.
 

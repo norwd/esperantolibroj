@@ -32,73 +32,73 @@ ENHAVO
 
 LIBRO UNU
 
-Ĉapitro 1: Lago Sarn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 5
+Ĉapitro 1: Lago Sarn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Informi abelojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 9
+Ĉapitro 2: Informi abelojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: Pru liveras invitilojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 19
+Ĉapitro 3: Pru liveras invitilojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Torĉoj ka rosmarenoj. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 22
+Ĉapitro 4: Torĉoj ka rosmarenoj. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Falas unua garbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 29
+Ĉapitro 5: Falas unua garbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: “Selu viajn revojn tal rajd’in” . . . . . . . . . . . . . . . . . . . . . . . . . 36
+Ĉapitro 6: “Selu viajn revojn tal rajd’in” . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: Pomarboj ka ĵargoneloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 43
+Ĉapitro 7: Pomarboj ka ĵargoneloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO DU
 
-Ĉapitro 1: Rajd al foir . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 49
+Ĉapitro 1: Rajd al foir . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: *Kruĉo da Cidro * . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 59
+Ĉapitro 2: *Kruĉo da Cidro * . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: “Aŭ morti penante” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 67
+Ĉapitro 3: “Aŭ morti penante” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Sorĉisto de Plash . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 73
+Ĉapitro 4: Sorĉisto de Plash . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Ŝpinamfesto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 78
+Ĉapitro 5: Ŝpinamfesto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: Ludo *Multekostaj Koloroj* . . . . . . . . . . . . . . . . . . . . . . . . . . . . 83
+Ĉapitro 6: Ludo *Multekostaj Koloroj* . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: “Mestro ĉe’stas” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 93
+Ĉapitro 7: “Mestro ĉe’stas” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 8: Alvoki Veneran . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 98
+Ĉapitro 8: Alvoki Veneran . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 9: Konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 103
+Ĉapitro 9: Konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO TRI
 
-Ĉapitro 1: Dungfoir. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 114
+Ĉapitro 1: Dungfoir. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Taŭroludo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 123
+Ĉapitro 2: Taŭroludo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: Plej bona alta skribo kun ornamoj . . . . . . . . . . . . . . . . . . . . 131
+Ĉapitro 3: Plej bona alta skribo kun ornamoj . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Jancis forkuras . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 142
+Ĉapitro 4: Jancis forkuras . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Libeloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 161
+Ĉapitro 5: Libeloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO KVAR
 
-Ĉapitro 1: Rikolto hajmestas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 169
+Ĉapitro 1: Rikolto hajmestas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Beguildy serĉas sepan infanon . . . . . . . . . . . . . . . . . . . . . . . 184
+Ĉapitro 2: Beguildy serĉas sepan infanon . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: Malbeno mortiga . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 199
+Ĉapitro 3: Malbeno mortiga . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Dum maja maten. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 209
+Ĉapitro 4: Dum maja maten. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Lasta konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 223
+Ĉapitro 5: Lasta konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: Lago tremas. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 232
+Ĉapitro 6: Lago tremas. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: Malfermu pordojn ĉielvaste . . . . . . . . . . . . . . . . . . . . . . . . . 242
+Ĉapitro 7: Malfermu pordojn ĉielvaste . . . . . . . . . . . . . . . . . . . . . . . . .
 
-*Listo de dialektaĵoj *. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 246
+*Listo de dialektaĵoj *. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-*Proksimuma prononco de la anglalingvaj nomoj* . . . . . . . . . . . . . . . . . 248
+*Proksimuma prononco de la anglalingvaj nomoj* . . . . . . . . . . . . . . . . .
 
-*Pri la traduko* . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 249
+*Pri la traduko* . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 *Neniu miru*
@@ -1153,9 +1153,7 @@ Mi demandis al mi kion li celas ĉar li ja sci’s ke m ne kapablis
 
 skribi eĉ un vorton sed mi sci’s ke l klarigos kiam li stos preta ka n
 
-taŭe ĉar tia li stis. Nenju kredus ke l aĝis nur deksep li ŝajnis kvin-
-
-ka-dudek-jara laŭ sia parolmanier abrupta ka rapida tamen tre
+taŭe ĉar tia li stis. Nenju kredus ke l aĝis nur deksep li ŝajnis kvinka-dudek-jara laŭ sia parolmanier abrupta ka rapida tamen tre
 
 kvieta.
 
@@ -3155,9 +3153,7 @@ trogranda junk en lago ka m kutimiĝis honti same pro mia grandec
 
 kiel pr’alia problem ĝis—sed mi n tro taŭensaltu en rakonto.
 
-Gideon portis sian kitelon k aspektis bela en ĝi. Li nun aĝis du-
-
-ka-dudek jarojn plenkreska vir tre plaĉaspekta larĝaj ŝultroj
+Gideon portis sian kitelon k aspektis bela en ĝi. Li nun aĝis duka-dudek jarojn plenkreska vir tre plaĉaspekta larĝaj ŝultroj
 
 solida bonforma figur. Dum lia korpo plifirmiĝis lia mens samritme
 
@@ -4015,9 +4011,7 @@ grenoj sed post amara pripensado l ankor ne decidis ĉu rezignaci’
 
 ĉion tian ka kontente famili’ĝi kun Jancis k amas’ d etuloj ĝis in
 
-apartigos morto. Li do iom hezitis ka ĉar ŝi n kutimis al prikrast-
-
-prokrastado fare de bassocia vir ŝi koleriĝis “Nu! Nu! Vi ne havas
+apartigos morto. Li do iom hezitis ka ĉar ŝi n kutimis al prikrastprokrastado fare de bassocia vir ŝi koleriĝis “Nu! Nu! Vi ne havas
 
 tempon Sarn. Vi ne havas tempon, mi komprenas” ŝi diras. “Vi
 
@@ -4436,9 +4430,7 @@ unun aŭ alian. Ka ŝ stus sfiĉe kontenta kiam ekiĝus infanoj.
 
 Kvankam helpu in Eternul! I naskiĝus kun grimaco de Sammy ka
 
-buŝoj plenaj de citaĵoj. Sed ŝi kredus in perfektaj. Nu ĝuste-
-
-malĝuste tiel m enmensadis.”
+buŝoj plenaj de citaĵoj. Sed ŝi kredus in perfektaj. Nu ĝustemalĝuste tiel m enmensadis.”
 
 “Jadi kia Di plenpotenca!” mi diras iom mokante kvankam mi
 
@@ -5013,9 +5005,7 @@ Prepar por Event okupis longan tempon pro ke ĝ estis anke
 
 kukado. Nemalmultaj religiemaj homoj opini’s kukadojn fiaj ĉar i
 
-stis efektive vetludoj. Sed por ni virinoj kies vivoj stis tiel perditaj-
-
-ka-forgesitaj i stis iom d amuziĝo k eĉ edzin de Sakristian’ akceptis
+stis efektive vetludoj. Sed por ni virinoj kies vivoj stis tiel perditajka-forgesitaj i stis iom d amuziĝo k eĉ edzin de Sakristian’ akceptis
 
 partopreni ka kunvenigi Tivvyn. Ŝi konsentigis Srinon Beguildy
 
@@ -7260,9 +7250,7 @@ kun tibelulin kiel edzin? Buŝoj plenigendaj! Buŝoj plenigendaj!
 
 Nenjam nenju luksa domego nek geservistoj nek benk en kirko.
 
-Nenjom da mon por vi. Nenju ĉasbal por Jancis. Nenja saluton-mi-
-
-ĝojas-revidi-vin inter junkroj por mi. S iam ni gajnus monon ti stus
+Nenjom da mon por vi. Nenju ĉasbal por Jancis. Nenja saluton-miĝojas-revidi-vin inter junkroj por mi. S iam ni gajnus monon ti stus
 
 nur post jaroj ka jaroj. Ni perdus domon ka lante laborus ka
 
@@ -7510,9 +7498,7 @@ melkistinojn ka m aŭdis ke ŝ bezon’s novan ĉijare.”
 
 Gideon parolis triumfoplenece.
 
-“Ĉe tiom granda bien on dungas teksiston ĉiun-un-aŭ-du-
-
-monate. Teksisto povos skribi por Jancis.”
+“Ĉe tiom granda bien on dungas teksiston ĉiun-un-aŭ-dumonate. Teksisto povos skribi por Jancis.”
 
 “Ki?” mi diras spasmospire sciante ke m diros tinomon. “Ki?
 
@@ -10256,9 +10242,7 @@ Mi volas vidi vin edziĝi taŭ vintro.”
 
 “Ho ni n prokrastos Patrin. Ne timu! Kial necesus? M estos
 
-riĉul vendinte tritikon ka rikoltado kostos nenjon ĉar ni havos por-
-
-am-helpon ka m repagos per kromlabor por najbaroj dumvintre.
+riĉul vendinte tritikon ka rikoltado kostos nenjon ĉar ni havos poram-helpon ka m repagos per kromlabor por najbaroj dumvintre.
 
 Ka post dutri jaroj ni povos translokiĝi ĉar oldul ĉe Lullingford ne
 
@@ -12050,9 +12034,7 @@ pilkon.”
 
 “Domaĉege ke m n estis tie” diris Sukey. “Mi tuj mortigus por vi
 
-hundon Sinjor Woodseaves. Kion mi donis al vi ĉe Beguildy-
-
-amŝpinado Sinjor Woodseaves?”
+hundon Sinjor Woodseaves. Kion mi donis al vi ĉe Beguildyamŝpinado Sinjor Woodseaves?”
 
 “Poste ludu ‘Kisi en rondo’ kun ni Sinjor Woodseaves!” diras
 
@@ -15674,9 +15656,7 @@ kia kredeble li stis tutsenaverte Gideon mem ekkantis melodion.
 
 Li levis dekstran manon solene kiel parson’ diranta benon ka
 
-rigardis tra pordon lagen ka digvojen ka dense blankkazeiĝ-
-
-nebulen. Li kantis kvaz sub iu forta potenco kiu devigis lin. On
+rigardis tra pordon lagen ka digvojen ka dense blankkazeiĝnebulen. Li kantis kvaz sub iu forta potenco kiu devigis lin. On
 
 povis vidi ke l ne povis ne kanti. Li havis tondretan voĉon belsone
 
@@ -16852,15 +16832,6 @@ Ka dirinte tivortojn li klinis sian belan kapon ka kisis min trafe
 
 sur buŝo.
 
-·
-
-·
-
-·
-
-·
-
-·
 
 *Nun finiĝis rakonto de Prudence Sarn. *
 
@@ -16937,9 +16908,7 @@ nelge = antaŭ/post nelonge
 
 domne = damne
 
-nenj- = neni-
-
-dutri = du aŭ tri
+nenj- = nenidutri = du aŭ tri
 
 on = oni
 
@@ -16977,9 +16946,7 @@ Srin = sinjorino
 
 in = ilin
 
-st- = est-
-
-jadi = je Dio
+st- = estjadi = je Dio
 
 ŝ = ŝi (kutime antaŭ aŭ post
 
@@ -17141,9 +17108,7 @@ La simbolo ı indikas tre mallongan i.
 
 Akcentu ĉiam la unuan silabon.
 
-Nomoj ne en la listo estas prononceblaj kiel normalaj Esperanto-
-
-vortoj.
+Nomoj ne en la listo estas prononceblaj kiel normalaj Esperantovortoj.
 
 Listo kompilita laŭ konsiloj de Trevor Steele.
 

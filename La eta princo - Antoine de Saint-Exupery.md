@@ -3,22 +3,10 @@ Antoine de Saint-Exupéry
 La eta princo
 
 
-### 1
-
 LA ETA PRINCO
 
 
 Antoine de Saint-Exupéry
-
-LA ETA PRINCO
-
-
-@omnibus.se
-
-·
-
-
-LA ETA PRINCO
 
 
 Dediĉo de la aŭtoro al Léon Werth
@@ -40,9 +28,6 @@ Al Léon Werth,
 kiam li estis malgranda knabo.
 
 
-LA ETA PRINCO
-
-
 I.
 
 Iam, kiam mi estis sesjara, mi vidis belegan bildon en iu libro pri la praarbaro, titolita ”Travivitaj rakontoj”. Tiu bildo prezentis boaon, kiu glutas rabobeston. Jen kopio de la desegno:
@@ -51,9 +36,7 @@ En la libro oni diris: ”La boaj glutas sian rabaĵon unuglute, sen-maĉe. Sekv
 
 Ekde tiam mi multe meditis pri la aventuroj en ĝangalo kaj
 
-per kolorkrajono mi sukcesis miavice fari mian unuan deseg-
-
-non. Mian desegnon numero Unu. Jen kiel ĝi estis:
+per kolorkrajono mi sukcesis miavice fari mian unuan desegnon. Mian desegnon numero Unu. Jen kiel ĝi estis:
 
 Mi montris mian ĉefverkon al granduloj kaj ilin demandis, ĉu mia desegno timigis ilin.
 
@@ -61,10 +44,7 @@ Ili al mi respondis: ”Kial ĉapelo timigus?”
 
 Mia desegno ne prezentis ĉapelon. i prezentis boaon, kiu
 
-digestadas elefanton. Do, mi desegnis la enhavon de la boao, 4
-
-
-LA ETA PRINCO
+digestadas elefanton. Do, mi desegnis la enhavon de la boao,
 
 
 por komprenigi al granduloj. Ili ĉiam bezonas klarigojn. Jen kiel aspektis mia desegno numero Du:
@@ -75,16 +55,11 @@ Du. Neniam la granduloj komprenas tute per si mem kaj al la infanoj estas lacige
 
 Mi do devis elekti alian metion kaj lernis piloti aviadilojn. Mi flugis iom ĉie tra la mondo. Kaj mi tute konsentas, ke geografio multe utilis al mi. Mi scipovis unuavide distingi ĉinion de Ari-zono. Tio estas tre taŭga, se oni vojeraris nokte.
 
-Tiel, dum la daŭro de mia vivo, mi havis amasojn da kontak-
-
-toj kun amaso da seriozaj homoj. Mi multe vivis ĉe granduloj.
+Tiel, dum la daŭro de mia vivo, mi havis amasojn da kontaktoj kun amaso da seriozaj homoj. Mi multe vivis ĉe granduloj.
 
 De tre proksime mi vidadis ilin. Kaj tio malmulte plifavorigis mian opinion pri ili.
 
 Kiam mi renkontis inter ili iun, kiu ŝajnis al mi iom klarvida, iam mi provis per mia desegno numero Unu, kiun mi ĉiam kon-servis. Mi volis scii, ĉu tiu ĉi vere estas komprenema. Sed ĉiam oni respondis al mi: ”i estas ĉapelo.” Tiam al tiu mi parolis nek pri boaoj, nek pri praarbaroj, nek pri steloj. Mi adaptiĝis al ties komprenpovo. Mi priparolis briĝon, golfludon, politikon kaj kravatojn. Kaj la grandulo estis ja kontenta koni homon tiel konvenan.
-
-
-LA ETA PRINCO
 
 
 II
@@ -93,9 +68,7 @@ Do, mi vivis sola, sen iu ajn, kun kiu mi povus vere interparoli,
 
 ĝis paneo de mia motoro sur dezerto Saharo, kio okazis antaŭ ses jaroj. Io en la motoro rompiĝis. Kaj, ĉar estis kun mi nek me-kanikisto nek pasaĝeroj, mi min pretigis por provi tute sola suk-cesigi malfacilan riparon. Temis por mi pri vivdemando. Mi havis trinkeblan akvon apenaŭ por semajno.
 
-La unuan vesperon mi do endormiĝis sur la sablo, mil mej-
-
-lojn for de kiu ajn loĝigita loko. Mi ja estis multe pli izolita ol ŝip-rompulo sur floso meze de oceano. Sekve vi imagu mian
+La unuan vesperon mi do endormiĝis sur la sablo, mil mejlojn for de kiu ajn loĝigita loko. Mi ja estis multe pli izolita ol ŝip-rompulo sur floso meze de oceano. Sekve vi imagu mian
 
 surprizon, kiam tagiĝe vekis min kurioza voĉeto:
 
@@ -116,9 +89,6 @@ Nu, mia hometo ŝajnis al mi nek vojerarinta, nek mortanta pro laceco, malsato, 
 ”Sed… kion vi faras ĉi tie?”
 
 
-LA ETA PRINCO
-
-
 Kaj tiam li ripetis, tute milde, kiel aferon tre gravan:
 
 ”Mi petas… desegnu por mi ŝafeton!”
@@ -130,14 +100,9 @@ Kiam mistero tro impresas, oni ne kuraĝas malobei. Eĉ se tio ŝajnas al mi abs
 ĉar ŝafon mi neniam desegnis, mi refaris por li unu el la du solaj desegnoj. Kiujn mi kapablis fari: tiu de la fermita boao.
 
 
-LA ETA PRINCO
-
-
 Kaj en mirego mi aŭdis la hometon respondi al mi:
 
-”Ne! Ne! Mi ne volas elefanton en boao. Boao estas tre dan-
-
-ĝera kaj elefanto okupas tro multe da spaco. ĉe mi ĉio estas tute eta. Mi bezonas ŝafeton. Desegnu por mi ŝafeton!”
+”Ne! Ne! Mi ne volas elefanton en boao. Boao estas tre danĝera kaj elefanto okupas tro multe da spaco. ĉe mi ĉio estas tute eta. Mi bezonas ŝafeton. Desegnu por mi ŝafeton!”
 
 Do, mi desegnis.
 
@@ -155,13 +120,7 @@ Do mi rekomencis desegni. Sed, kiel la antaŭaj, ĝi estis rifu-zita:
 
 ”Tiu ĉi estas tro maljuna. Mi volas ŝafeton, kiu longe vivu.”
 
-Tiam mi senpacienciĝis kaj, ĉar mi volis senprokraste komen-8
-
-
-LA ETA PRINCO
-
-
-ci la malmuntadon de mia motoro, mi skizaĉis ĉi tiun lastan desegnon.
+Tiam mi senpacienciĝis kaj, ĉar mi volis senprokraste komenci la malmuntadon de mia motoro, mi skizaĉis ĉi tiun lastan desegnon.
 
 Kaj mi ĵetis tiujn ĉi vortojn:
 
@@ -182,9 +141,6 @@ Li klinis sian kapeton al la desegno:
 Kaj tiel mi konatiĝis kun la eta princo.
 
 
-LA ETA PRINCO
-
-
 III
 
 Longa tempo estis al mi necesa por kompreni, de kie li devenas.
@@ -192,9 +148,6 @@ Longa tempo estis al mi necesa por kompreni, de kie li devenas.
 La eta princo, kiu metis al mi multajn demandojn, neniam ŝajnis aŭdi la miajn. Estas ja vortoj hazarde diritaj, kiuj iom post iom malkovris al mi ĉion.
 
 Tiel, kiam la unuan fojon li ekvidis mian aviadilon (mi ne desegnos mian aviadilon, ĉar temas pri desegnaĵo tre malfacila por mi), li demandis al mi:
-
-
-LA ETA PRINCO
 
 
 ”Kio esta tiu ĉi aĵo?”
@@ -223,9 +176,7 @@ Sed li ne respondis al mi. Li trankvile kapskuetis, rigardante mian aviadilon:
 
 Kaj li enprofundiĝis en revado, kiu
 
-longe daŭris. Poste li elpoŝigis mian ŝa-
-
-feton kaj absorbiĝis en admiradon de
+longe daŭris. Poste li elpoŝigis mian ŝafeton kaj absorbiĝis en admiradon de
 
 sia trezoreto.
 
@@ -239,16 +190,11 @@ do penis por pliinformiĝi pri tio:
 
 mia? Kie estas tiu via ”ĉe
 
-mi”? Kien vi volas forpor-
-
-ti mian ŝafeton?”
+mi”? Kien vi volas forporti mian ŝafeton?”
 
 Post pormedita silento
 
 li respondis:
-
-
-LA ETA PRINCO
 
 
 ”La kesto, kiun vi donis al mi, ege taŭgas, ĉar dumnokte ĝi fariĝos ĝia dometo.”
@@ -276,9 +222,6 @@ Kaj, eble iom melankolie, li aldonis:
 ”Rekte antaŭen, oni ne povas iri tre malproksimen…”
 
 
-LA ETA PRINCO
-
-
 IV
 
 Tiel mi sciiĝis pri du tre grava afero: la planedo, de kie li venis, estas apenaŭ pli granda ol domo!
@@ -291,13 +234,9 @@ grandaj planedoj kiel Tero,
 
 Jupitero, Marso kaj Venuso,
 
-kiuj ricevis efektivajn no-
+kiuj ricevis efektivajn nomojn, kelkaj estas tiel mal-
 
-mojn, kelkaj estas tiel mal-
-
-grandaj, ke oni tre malfacile po-
-
-vas vidi ilin per lorno. Kiam astronomo
+grandaj, ke oni tre malfacile povas vidi ilin per lorno. Kiam astronomo
 
 altrovas unu el ili, li atribuas al ĝi certan
 
@@ -316,9 +255,6 @@ Li tiam faris ĉe iu internacia astronomia kongreso grandan
 demonstracion pri sia eltrovo. Sed pro lia kostumo neniu kredis lin.
 
 
-LA ETA PRINCO
-
-
 Tiaj estas la granduloj.
 
 Feliĉe por la reputacio de la asteroido B-612, iu turka dikta-toro devigis sian popolon sub mortpuno vesti sin eŭropane. En tre eleganta vesto la astronomo refaris sian demonstracion en 1920. Kaj ĉifoje ĉiuj samopiniis kun li.
@@ -327,23 +263,16 @@ Se mi rakontis al vi tiujn detalojn pri la asteroido B-612 kaj konfidis ĝian nu
 
 Anstataŭe: ”Kiom da fratoj li havas? Kiom li pezas? Kiom lia pa-tro gajnas?” Nur tiam ili kredas, ke ili konas lin. Se vi diras al granduloj: ”Mi vidis belan domon el ruĝetaj brikoj kun geranioj ĉe la fenestroj kaj kolomboj sur la tegmento…”, ili ne sukcesas imagi al si tiun domon. Oni devas diri al ili: ”Mi vidis domon por cent mil frankoj.” Tiam ili ekkrias: ”Kiel beleta ĝi estas!”
 
-Nu, se vi diros al ili: ”Pruvo, ke la eta princo ekzistis, estas, ke li estis rava kaj ridis kaj deziris ŝafeton. Se iu deziras ŝafeton, tio pruvas, ke tiu ekzistas”, ili levos moke siajn ŝultrojn kaj nomos vin infano! Sed se vi diros al ili: ”La planedo, de kie li venis, estas la 14
-
-LA ETA PRINCO
+Nu, se vi diros al ili: ”Pruvo, ke la eta princo ekzistis, estas, ke li estis rava kaj ridis kaj deziris ŝafeton. Se iu deziras ŝafeton, tio pruvas, ke tiu ekzistas”, ili levos moke siajn ŝultrojn kaj nomos vin infano! Sed se vi diros al ili: ”La planedo, de kie li venis, estas la
 
 
 asteroido B-612”, ili tiam estos konvinkitaj, kaj ne plu ĝenos vin per siaj demandoj. Tiaj ili estas. Ni ne malpardonu tion al ili. La infanoj devas esti tre indulgemaj al la granduloj.
 
-Sed kompreneble ni, kiuj komprenas la vivon, ja fajfas pri nu-meroj! Mi bedaŭras, ke mi ne komencis tiun ĉi rakonton kva-
-
-zaŭ fabelon. Plaĉus al mi diri:
+Sed kompreneble ni, kiuj komprenas la vivon, ja fajfas pri nu-meroj! Mi bedaŭras, ke mi ne komencis tiun ĉi rakonton kvazaŭ fabelon. Plaĉus al mi diri:
 
 ”Foje estis eta princo, kiu loĝis sur planedo apenaŭ pli granda ol li, kaj tiu pinco bezonis amikon.” Por tiuj, kiuj komprenas la vivon, tio ĉi ŝajnus multe pli vera.
 
 Fakte mi ne ŝatas, se oni legas mian libron supraĵe. Dolorigas min rakonti ĉi tiujn memoraĵojn. Jam antaŭ ses jaroj mia amiketo foriris kun sia ŝafeto. Se nun mi povas priskribi lin, mi faras tion por ne forgesi lin. Estas malgaje forgesi amikon. Ne ĉiu homo havas amikon. Kaj mi povus fariĝi tia, kiel la granduloj, kiuj ne interesiĝas plu pri io krom ciferoj. Do ankaŭ pro tio mi aĉetis skatolon da farboj kaj aron da krajonoj. ĉar mi neniam provis desegni ion alian krom fermitan kaj malfermitan boaojn, kiam mi estis sesjara, estas malfacile en mia nuna aĝo rekomenci desegni. Mi kompeneble povas fari la portetrojn kiel eble plej fidelaj. Sed mi ne estas tute certa, ĉu mi sukcesos. Unu desegno taŭgas, kaj alia ne similas plu. Mi ankaŭ eraras iom pri la staturo. Tie la eta princo estas tro granda. Aliloke li estas tro malgranda. Mi ankaŭ hezitas pri la koloro de lia vesteto. Mi do desegnas kun necerteco, tiel kaj tiel ĉi, pli-malpli bone. Eble mi eraros pri iuj pli gravaj detaloj, sed tion vi pardonu al mi. Mia amiketo neniam donis klarigojn. Eble li kredis min sama kiel sin. Sed mi bedaŭrinde ne kapablas vidi ŝafojn tra kesto. Eble mi estas iom kiel la granduloj. Verŝajne mi maljuniĝis.
-
-
-LA ETA PRINCO
 
 
 V
@@ -358,9 +287,7 @@ Ankaŭ ĉi foje tio okazis dank’al la ŝafeto, ĉar subite kvazaŭ kaptita per
 
 ”Ha! Mi estas kontenta.”
 
-Mi ne komprenis, kial tiel multe gravas, ke ŝafoj manĝu ar-
-
-bustojn. Sed la eta princo aldonis:
+Mi ne komprenis, kial tiel multe gravas, ke ŝafoj manĝu arbustojn. Sed la eta princo aldonis:
 
 ”Sekve, ankaŭ baobabojn ili manĝas, ĉu ne?”
 
@@ -369,22 +296,13 @@ Mi atentigis la etan princon, ke baobaboj ne estas arbustoj, sed arboj grandaj k
 La ideo pri elefantoj ridigis la etan princon:
 
 
-”Estus necese meti ilin unuj sur la aliajn…” Sed li saĝe rimarkis: ”Antaŭ ol fariĝi grandaj, la baobaboj unue estas malgran-16
-
-
-LA ETA PRINCO
-
-
-daj…” ”uste! Sed kial do viaj ŝafoj manĝu la malgrandajn baobabojn?” Li respondis al mi: ”Nu! Memkompreneble!”, kvazaŭ
+”Estus necese meti ilin unuj sur la aliajn…” Sed li saĝe rimarkis: ”Antaŭ ol fariĝi grandaj, la baobaboj unue estas malgrandaj…” ”uste! Sed kial do viaj ŝafoj manĝu la malgrandajn baobabojn?” Li respondis al mi: ”Nu! Memkompreneble!”, kvazaŭ
 
 temus pri io tute evidenta. Kaj mi devis multe cerbumi por
 
 kompreni sola tiun problemon.
 
 Kaj efektive, same kiel sur ĉiuj planedoj, bonaj kaj malbonaj herboj kreskis sur la planedo de la eta princo. Do: el bonaj semoj herboj kaj el malbonaj semoj malbonaj herboj. Sed la semoj estas nevideblaj. Ili dormas sekrete en la grundo, ĝis unu el ili ekhavas la kapricon vekiĝi. i tiam eltiriĝas kaj unue timeme di-rektas al la suno ravan sendanĝeran ŝoson. Se ĝi estas ŝoso de rafano aŭ roz-arbeto, oni povas lasi ĝin kreski, kiel ĝi volas. Sed se temas pri malbona planto, oni devas ĝin elradikigi tuj kiam oni rekonis ĝin.
-
-
-LA ETA PRINCO
 
 
 Nu, sur la planedo de la eta princo estis teruraj semoj… baobaboj. La grundo de la planedo estis danĝere plena de ili. Se oni tro malfrue zorgas pri baobaboj, oni neniam plu povas forigi
@@ -399,22 +317,11 @@ Kaj iun tagon li konsilis, ke mi penu fari pri tio belan desegnaĵon, por efekti
 
 Laŭ indikoj de la eta princo mi desegnis tiun planedon. Mi ne multe ŝatas paroli kun moralista tono. Sed la danĝero de la baobaboj estas tiom malmulte konata, kaj la riskoj por tiu, kiu voj-eraras sur asteroido, tiel multe konsiderindaj, ke ĉi-foje mi escepte forlasas mian rezerviĝemon. Mi diras: ”Infanoj! Atentu la baobabojn!”
 
-Por averti miajn amikojn pri tiu nekonata danĝero, kiu pre-
-
-skaŭ trafis ilin kaj min mem, mi tiom multe prizorgis tiun desegnon. La leciono, kiun mi donis, multe valoris.
+Por averti miajn amikojn pri tiu nekonata danĝero, kiu preskaŭ trafis ilin kaj min mem, mi tiom multe prizorgis tiun desegnon. La leciono, kiun mi donis, multe valoris.
 
 Eble vi demandos vin: ”Kial en ĉi tiu libro ne estas aliaj desegnoj tiel grandiozaj, kiel la desegno de la baobaboj?”.
 
-La respondo ja estas simpla: Mi provis, sed mi ne povis suk-18
-
-
-LA ETA PRINCO
-
-
-cesi. Kiam mi desegnis la baobabojn, mi estis pelata de urĝo-sento.
-
-
-LA ETA PRINCO
+La respondo ja estas simpla: Mi provis, sed mi ne povis sukcesi. Kiam mi desegnis la baobabojn, mi estis pelata de urĝo-sento.
 
 
 VI
@@ -431,11 +338,7 @@ Ho, eta princo, mi ekkomprenis tiele, iom-post-iome, vian melankolian vivon… D
 
 Unue vi ŝajnis tre surprizita, sed poste ridis pri vi mem. Kaj vi diris al mi:
 
-”Mi ĉiam pensas kvazaŭ mi estus hejme!” Efektive. Kiam tag-
-
-mezas en Usono, la suno — ĉiuj scias tion — subiras super Francio. Por ĉeesti la sunsubiron sufiĉus, ke oni povu en unu minuto 20
-
-LA ETA PRINCO
+”Mi ĉiam pensas kvazaŭ mi estus hejme!” Efektive. Kiam tagmezas en Usono, la suno — ĉiuj scias tion — subiras super Francio. Por ĉeesti la sunsubiron sufiĉus, ke oni povu en unu minuto
 
 
 atingi Francion. Bedaŭrinde, Francio estas multe tro malprok-sima. Sed sur via tiel eta planedo sufiĉis, ke vi tiru vian seĝon je kelkaj paŝoj. Kaj vi rigardis krepuskon tiel ofte kiel vi deziris…
@@ -449,9 +352,6 @@ Kaj iom pli poste vi aldonis:
 ”Do, ĉu en la kvardek-tri-foja tago vi estis tiom malĝoja?”
 
 Sed la eta princo ne respondis.
-
-
-LA ETA PRINCO
 
 
 VII
@@ -474,9 +374,7 @@ Mi ne scias. Mi tiam estis tre okupata, provante malŝraŭbi tro streĉitan bolt
 
 La eta princo neniam rezignis
 
-pri jam metita demando. Mi mal-
-
-pacienciĝis pro mia bolto kaj re-
+pri jam metita demando. Mi malpacienciĝis pro mia bolto kaj re-
 
 spondis senpripensaĵon:
 
@@ -488,18 +386,13 @@ floroj!”
 
 ”Ho!”
 
-Sed post silenteto li kva-
-
-zaŭ malpardoneme pafis al
+Sed post silenteto li kvazaŭ malpardoneme pafis al
 
 mi:
 
 ”Mi ne kredas al vi! La
 
 floroj estas malfortaj. Ili
-
-
-LA ETA PRINCO
 
 
 estas naivaj. Ili trankviliĝas, kiel ili povas. Ili pro siaj dornoj kredas sin teruraj…”
@@ -510,17 +403,13 @@ bolto plue rezistos, mi elsaltigos ĝin per martelo.” La eta princo denove ent
 
 ”Kaj vi, vi kredas, ke la floroj…”
 
-”Sed ne! Sed ne! Mi nenion kredas!” mi respondis senpripen-
-
-se. ”Mi ja zorgas pri seriozaĵoj.”
+”Sed ne! Sed ne! Mi nenion kredas!” mi respondis senpripense. ”Mi ja zorgas pri seriozaĵoj.”
 
 Li rigardis min mirigite.
 
 ”Pri seriozaĵoj!”
 
-Li vidis min tenanta enmane mian martelon, dum miaj fin-
-
-groj estis nigrigitaj de ŝmiroleo, kliniĝanta super objekto, kiu ŝajnis al li tre malbela.
+Li vidis min tenanta enmane mian martelon, dum miaj fingroj estis nigrigitaj de ŝmiroleo, kliniĝanta super objekto, kiu ŝajnis al li tre malbela.
 
 ”Vi parolas kiel granduloj!”
 
@@ -540,9 +429,7 @@ kaj pro tio li fierege ŝveliĝas. Se li ne estas homo, li estas fungo!”
 
 ”Fungo!”
 
-La eta princo jam estis tute pala pro kolero. ”Dum milionoj da jaroj la floroj fabrikis dornojn. Dum milionoj da jaroj la ŝafoj tamen manĝis la florojn. Kaj ĉu ne estas serioze klopodi por kompreni, kial ili tiel multe penas por fabriki por si dornojn, kiuj neniam utilas? ĉu ne estas gravaĵo la milito inter ŝafoj kaj 23
-
-LA ETA PRINCO
+La eta princo jam estis tute pala pro kolero. ”Dum milionoj da jaroj la floroj fabrikis dornojn. Dum milionoj da jaroj la ŝafoj tamen manĝis la florojn. Kaj ĉu ne estas serioze klopodi por kompreni, kial ili tiel multe penas por fabriki por si dornojn, kiuj neniam utilas? ĉu ne estas gravaĵo la milito inter ŝafoj kaj
 
 
 floroj? ĉu tio ne pli seriozas kaj pli gravas, ol adicioj de iu dika ruĝvizaĝa sinjoro? Kaj, se mi mem konas floron unikan en la mondo, kiu ekzistas nenie krom sur mia planedo, kaj kiun ŝafeto povas iun matenon nekonscie neniigi per unusola gluto kaj jen farite, ĉu tio ne estas ja grava afero?”
@@ -558,28 +445,18 @@ Mi ne tro bone scias, kiam ion diri. Mi min sentis tre maller-ta. Mi ne sciis, k
 Ja tiel mistera estas la lando de larmoj.
 
 
-LA ETA PRINCO
-
-
 VIII
 
 Mi tre rapide lernis pli bone koni tiun floron. De ĉiam kreska-dis sur la planedo de la eta princo floroj tre simplaj, ornamitaj per unu sola vico da petaloj, okupantaj malmulte da spaco kaj
 
 ĝenantaj neniun. Ili aperis iumatene en la herbo kaj poste vel-kis tiuvespere. Sed tiu ĉi ekĝermis unu tagon el semo alblovita Dio-scias-de-kie, kaj la eta princo tre atente observis tiun ŝoson, kiu ne similis al la aliaj. i povis estis nova specio de baobabo.
 
-Sed la arbusteto baldaŭ ĉesis kreski kaj komencis prepari floron. La eta princo, kiu ĉeestis la elvolviĝon de granda burĝono, ja sentis, ke iu mirakla aĵo ekaperos el ĝi, sed la floro, ŝirmata per sia verda ĉambro, senfine longe preparadis sian belecon. i zorge elektadis siajn kolorojn. i malrapide vestadis sin, ĝi taŭ-
-
-ge surmetadis siajn petalojn unu post unu. i ne volis naskiĝi tute ĉifita, kiel la papavetoj… i ne volis aperi alie, ol plene radi-anta de beleco. Jes ja! i estis tre koketa! ia mistera tualetado do daŭris tagojn kaj tagojn.
+Sed la arbusteto baldaŭ ĉesis kreski kaj komencis prepari floron. La eta princo, kiu ĉeestis la elvolviĝon de granda burĝono, ja sentis, ke iu mirakla aĵo ekaperos el ĝi, sed la floro, ŝirmata per sia verda ĉambro, senfine longe preparadis sian belecon. i zorge elektadis siajn kolorojn. i malrapide vestadis sin, ĝi taŭge surmetadis siajn petalojn unu post unu. i ne volis naskiĝi tute ĉifita, kiel la papavetoj… i ne volis aperi alie, ol plene radi-anta de beleco. Jes ja! i estis tre koketa! ia mistera tualetado do daŭris tagojn kaj tagojn.
 
 Kaj unu matenon, precize dum sunleviĝo, jen ĝi ekaperis.
 
 
-LA ETA PRINCO
-
-
-”Ha! mi apenaŭ vekiĝis… Mi pardonpetas… Mi ankoraŭ es-
-
-tas tute malkombita…”
+”Ha! mi apenaŭ vekiĝis… Mi pardonpetas… Mi ankoraŭ estas tute malkombita…”
 
 Tiam la eta princo ne povis teni sian admiron: ”Kiel bela vi estas!”.
 
@@ -595,9 +472,7 @@ matenmanĝo,” ĝi baldaŭ aldonis ”ĉu
 
 vi bonvolus atenti pri mi?…”
 
-Kaj la eta princo, tute konfuzi-
-
-ta, iris por verŝilo da freŝa akvo
+Kaj la eta princo, tute konfuzita, iris por verŝilo da freŝa akvo
 
 kaj alportis ĝin al la floro.
 
@@ -619,9 +494,7 @@ la floro.
 
 ”Pardonu al mi…”
 
-”Mi neniel timas tigrojn, sed ja abo-
-
-menas trablovojn. ĉu vi ne havas vent-
+”Mi neniel timas tigrojn, sed ja abomenas trablovojn. ĉu vi ne havas vent-
 
 ŝirmilon por mi?”
 
@@ -632,14 +505,9 @@ malfeliĉa afero,” rimarkigis al si la eta princo. ”Tiu ĉi floro estas sufi
 ”ĉiuvespere vi devos meti super min kloŝon. ĉe vi estas tre malvarme, malbone provizite. Tie, de kie mi devenas…”
 
 
-LA ETA PRINCO
-
-
 Sed ĝi ĉesis paroli. i venis kiel semo. i
 
-nenion povus scii pri aliaj mondoj. Hon-
-
-tante pro kaptiĝo ĉe la preparo de tiel
+nenion povus scii pri aliaj mondoj. Hontante pro kaptiĝo ĉe la preparo de tiel
 
 naiva mensogo, ĝi tusis du-tri-foje
 
@@ -651,9 +519,7 @@ por malpravigi la etan princon:
 
 vi parolis al mi!”
 
-Tiam ĝi troigis sian tusa-
-
-don, por spite ĉion trudi al li
+Tiam ĝi troigis sian tusadon, por spite ĉion trudi al li
 
 konscienc-riproĉojn.
 
@@ -677,21 +543,14 @@ neniam estu forkurinta. Mi estu diveninta
 
 La floroj estas tiel memkontraŭdiraj!
 
-Sed mi estis tro juna por ka-
-
-pabli ami ĝin!”
-
-
-LA ETA PRINCO
+Sed mi estis tro juna por kapabli ami ĝin!”
 
 
 IX
 
 Mi kredas, ke li forŝteliĝis dank’al migrado de sovaĝaj birdoj.
 
-Matene antaŭ la foriro li bone ordigis sian planedon. Li zorge skrapis siajn aktivajn vulkanojn. Tiajn li posedas du. Kaj ili estis tre oportunaj por varmigi la matenmanĝon. Li posedis ankaŭ 28
-
-LA ETA PRINCO
+Matene antaŭ la foriro li bone ordigis sian planedon. Li zorge skrapis siajn aktivajn vulkanojn. Tiajn li posedas du. Kaj ili estis tre oportunaj por varmigi la matenmanĝon. Li posedis ankaŭ
 
 
 unu estingitan vulkanon. Se vulkanoj estas bone skrapitaj, ili brulas modere kaj regule, sen erupcio. Vulkanaj erupcioj estas kiel kamen-bruloj. Kompreneble, sur nia Tero ni estas multe tro malgrandaj por skrapi niajn vulkanojn. Tial ili kaŭzas al ni amasojn da zorgoj.
@@ -729,20 +588,12 @@ Vi mem estos malproksime. Koncerne la grandajn bestojn mi
 nenion timas. Mi havas miajn ungegojn.”
 
 
-LA ETA PRINCO
-
-
 Kaj ĝi naive montris siajn kvar dornojn. Poste ĝi aldonis:
 
 ”Ne plu prokrastu. Tio min ekscitas. Vi decidis foriri. Foriru!”
 
 i ne volis, ke li vidu ĝin plori. Tiu floro estis tiel fierega…
 
-
-LA ETA PRINCO
-
-
-X
 
 Li troviĝis en la regiono de asteroidoj 325, 326, 327, 328, 329 kaj 330. Li do unue vizitis ilin, por tie serĉi okupon kaj por kleriĝi.
 
@@ -756,9 +607,7 @@ Li ne sciis, ke por reĝoj la mondo estas tre simpla. ĉiuj homoj estas regatoj.
 
 ”Alproksimiĝu, por ke mi vidu vin pli bone,” diris al li la reĝo, tre fiera, ke li estas reĝo por iu.
 
-La eta princo serĉis per okuloj lokon por sidiĝi, sed la 31
-
-LA ETA PRINCO
+La eta princo serĉis per okuloj lokon por sidiĝi, sed la
 
 
 planedo estis tute obstrukcita per la belega ermena mantelo. Li do restis staranta kaj, ĉar li estis laca, oscedis.
@@ -769,9 +618,7 @@ planedo estis tute obstrukcita per la belega ermena mantelo. Li do restis staran
 
 ”Tiukaze,” la reĝo diris, ”mi ordonas al vi oscedi. Dum multaj jaroj mi vidis neniun oscedi. La oscedoj estas por mi kuriozaĵoj. Nu! Oscedu ankoraŭ! Tio ĉi estas ordono.”
 
-”Tio timigas min… Mi ne povas plu…” diris la eta princo ru-
-
-ĝiĝante.
+”Tio timigas min… Mi ne povas plu…” diris la eta princo ruĝiĝante.
 
 ”Hm! Hm!” la reĝo respondis. ”Sekve, mi… mi ordonas al vi
 
@@ -794,9 +641,6 @@ Sed la eta princo miris. La planedo estis malgrandega. Super kio do la reĝo pov
 ”Super ĉio,” respondis la reĝo grandioze simple.
 
 ”Super ĉio?”
-
-
-LA ETA PRINCO
 
 
 La reĝo per diskreta gesto montris sian propran planedon, la aliajn planedojn kaj la stelojn.
@@ -835,9 +679,7 @@ La aŭtoritato unue baziĝas sur la saĝo. Se vi ordonos al via popolo sin ĵeti
 
 ”Kiam tio okazos?” demandis la eta princo.
 
-”Hm! Hm!” respondis al li la reĝo, kiu unue konsultis dikan 33
-
-LA ETA PRINCO
+”Hm! Hm!” respondis al li la reĝo, kiu unue konsultis dikan
 
 
 kalendaron, ”Hm! Hm! tio okazos ĉirkaŭ… ĉirkaŭ… tio estos hodiaŭ vespere ĉirkaŭ la sepa kaj kvardek minutoj! Kaj vi vidos kiel bone obeata mi estas.”
@@ -873,23 +715,15 @@ morto. Tiel ĝia vivo dependos de via juĝo. Sed ĉiufoje vi amnes-tios ĝin, po
 ”Ne,” diris la reĝo.
 
 
-LA ETA PRINCO
-
-
 Sed la eta princo, fininte siajn preparojn, ne volis ĉagreni la maljunan monarkon:
 
 ”Se Via Reĝa Moŝto dezirus esti akurate obeata, vi povus do-ni al mi saĝan ordonon. Ekzemple, vi povus ordoni al mi foriri antaŭ ol pasos unu minuto. ŝajnas al mi, ke la kondiĉoj estas favoraj…” ĉar la reĝo nenion respondis, la eta princo unue hezitis kaj poste kun suspiro ekiris for.
 
-”Mi nomumas vin mia ambasadoro,” tiam rapide kriis la re-
-
-ĝo.
+”Mi nomumas vin mia ambasadoro,” tiam rapide kriis la reĝo.
 
 Li surhavis mienon de grava aŭtoritatulo.
 
 ”La granduloj certe estas strangaj,” diris al si la eta princo dumvoje.
-
-
-LA ETA PRINCO
 
 
 XI
@@ -908,53 +742,36 @@ Efektive, por malmodestuloj la aliaj homoj estas admirantoj.
 
 ”ĉu vere?” diris la eta princo, kiu ne komprenis.
 
-”Klapfrapu viajn manojn unu kon-
-
-traŭ la alia,” konsilis la malmo-
+”Klapfrapu viajn manojn unu kontraŭ la alia,” konsilis la malmo-
 
 destulo.
 
-La eta princo kunfra-
+La eta princo kunfrapis siajn manojn. La mal-
 
-pis siajn manojn. La mal-
-
-modestulo modeste sa-
-
-lutis, levante sian ĉape-
+modestulo modeste salutis, levante sian ĉape-
 
 lon.
 
-”Tio ja estas pli amu-
-
-za ol la vizito ĉe la re-
+”Tio ja estas pli amuza ol la vizito ĉe la re-
 
 ĝo,” pensis la eta princo.
 
-Kaj li denove kunfrapis si-
-
-ajn manojn. La malmode-
+Kaj li denove kunfrapis siajn manojn. La malmode-
 
 stulo denove salutis, levante
 
 sian ĉapelon.
 
-Post kvin minutoj de tiu ek-
-
-zercado la eta princo laciĝis
+Post kvin minutoj de tiu ekzercado la eta princo laciĝis
 
 pro monotoneco de la ludo.
 
 ”Kaj kion fari,” li demandis,
 
 
-LA ETA PRINCO
-
-
 ”por ke la ĉapelo falu?” Sed la malmodestulo ne aŭdis. La malmodestuloj ĉiam aŭdas nur laŭdojn.
 
-”ĉu vi vere multe admiras min?” li demandis la etan prin-
-
-con.
+”ĉu vi vere multe admiras min?” li demandis la etan princon.
 
 ”Kion signifas admiri?”
 
@@ -968,12 +785,7 @@ con.
 
 Kaj la eta princo foriris.
 
-”La granduloj certe estas tre strangaj,” li nur pensis dum-
-
-voje.
-
-
-LA ETA PRINCO
+”La granduloj certe estas tre strangaj,” li nur pensis dumvoje.
 
 
 XII
@@ -998,14 +810,9 @@ mieno.
 
 ”Por forgesi,” respondis la ebriulo.
 
-”Por forgesi kion?” demandis la eta princo, kiu jam ekkom-
-
-patis lin.
+”Por forgesi kion?” demandis la eta princo, kiu jam ekkompatis lin.
 
 ”Por forgesi, ke mi hontas,” konfesis la ebriulo mallevante la kapon.
-
-
-LA ETA PRINCO
 
 
 ”Pri kio vi hontas?” demandis la eta princo, kiu deziris hel-pi al li.
@@ -1015,9 +822,6 @@ LA ETA PRINCO
 Kaj la eta princo foriris perpleksa.
 
 ”La granduloj certe estas tre multe strangaj,” li pensis dumvoje.
-
-
-LA ETA PRINCO
 
 
 XIII
@@ -1037,16 +841,11 @@ sepcent tridek unu.”
 ”Ha! ĉu vi ankoraŭ estas tie ĉi? Kvincent unu milionoj da …
 
 
-LA ETA PRINCO
-
-
 mi ne scias plu… Mi havas tiom da laboro! Mi ja estas serioza, mi ne amuziĝas per bagatelaĵoj! Du kaj kvin estas sep…”
 
 La negocisto levis la kapon.
 
-”Dum la kvindek kvar jaroj de kiam mi loĝas sur tiu ĉi pla-
-
-nedo, mi estis ĝenita nur trifoje. Unuan fojon tio okazis antaŭ dek jaroj, pro majskarabo, kiu falis de loko, kiun Dio scias. i bruis terure, kaj sekve mi faris kvar erarojn en adicio. Duan fojon tio okazis antaŭ dek unu jaroj pro reŭmatisma atako. Kor-pa ekzercado mankas al mi. Mi ne havas tempon por vagadi. Mi ja estas serioza. Trian fojon… jen! Mi do diris kvincent unu milionoj…”
+”Dum la kvindek kvar jaroj de kiam mi loĝas sur tiu ĉi planedo, mi estis ĝenita nur trifoje. Unuan fojon tio okazis antaŭ dek jaroj, pro majskarabo, kiu falis de loko, kiun Dio scias. i bruis terure, kaj sekve mi faris kvar erarojn en adicio. Duan fojon tio okazis antaŭ dek unu jaroj pro reŭmatisma atako. Kor-pa ekzercado mankas al mi. Mi ne havas tempon por vagadi. Mi ja estas serioza. Trian fojon… jen! Mi do diris kvincent unu milionoj…”
 
 ”Milionoj da kio?”
 
@@ -1083,9 +882,6 @@ unu. Mi ja estas serioza kaj preciza.”
 ”Sed mi jam vidis reĝon, kiu…”
 
 
-LA ETA PRINCO
-
-
 ”La reĝoj ne posedas. Ili reĝas. Tio estas tute alia afero.”
 
 ”Kaj kial utilas al vi posedi la stelojn?”
@@ -1108,9 +904,7 @@ La eta princo pensis: Tiu ĉi rezonas iom same, kiel mia ebriulo. Tamen li deman
 
 ”ĉu tio sufiĉas?”
 
-”Kompreneble. Se vi trovos diamanton, kiu estas nenies pro-
-
-praĵo, ĝi apartenos al vi. Se vi trovos insulon, kiu estas nenies propraĵo, ĝi apartenos al vi. Se vi kiel unua havas iun ideon, vi patentigas ĝin: ĝi apartenas al vi. Kaj sekve mi posedas la stelojn, ĉar neniam iu antaŭ mi havis la ideon ilin posedi.”
+”Kompreneble. Se vi trovos diamanton, kiu estas nenies propraĵo, ĝi apartenos al vi. Se vi trovos insulon, kiu estas nenies propraĵo, ĝi apartenos al vi. Se vi kiel unua havas iun ideon, vi patentigas ĝin: ĝi apartenas al vi. Kaj sekve mi posedas la stelojn, ĉar neniam iu antaŭ mi havis la ideon ilin posedi.”
 
 ”Tio estas vera,” diris la eta princo. ”Sed kion vi faras per ili?”
 
@@ -1133,9 +927,6 @@ miaj steloj. Kaj poste mi ŝlosas tiun ĉi paperon en tirkesto.”
 ”Nenion pli?”
 
 
-LA ETA PRINCO
-
-
 ”Tio sufiĉas!”
 
 ”Tio estas amuza,” pensis la eta princo. ”Sufiĉe poezia, sed ne tre serioza.”
@@ -1149,9 +940,6 @@ Mi bone skrapas ankaŭ tiun, kiu estas estingita. Oni neniam scias! Por miaj vul
 La negocisto malfermis sian buŝon, sed trovis nenion por respondi. Kaj la eta princo foriris.
 
 ”La granduloj certe estas tute strangaj,” li pensis dumvoje.
-
-
-LA ETA PRINCO
 
 
 XIV
@@ -1187,9 +975,6 @@ Poste li viŝis sian frunton per ruĝe kvadratita naztuko.
 ”Terura okupo ĝi estas. En la pasinteco estis bone. Matene mi estingis, kaj vespere mi eklumigis. Mi havis la ceteron de la tago por ripozi kaj la ceteron de la nokto por dormi.”
 
 
-LA ETA PRINCO
-
-
 ”Kaj ĉu de tiam la ordono estis ŝanĝita?”
 
 ”La ordono ne estis ŝanĝita,” diris la lanternisto. ”Ja precize pro tio ĝi estas terura. De jaro al jaro la planedo ĉiam pli kaj pli rapide turniĝis, sed la ordono neniam ŝanĝiĝis!”
@@ -1205,9 +990,6 @@ LA ETA PRINCO
 ”Unu monaton?”
 
 ”Jes. Tridek minutoj estas tridek tagoj! Bonan vesperon!”
-
-
-LA ETA PRINCO
 
 
 Kaj li denove eklumigis sian lanternon.
@@ -1245,9 +1027,6 @@ Li suspiris pro bedaŭro kaj pensis:
 La eta princo ne kuraĝis konfesi al si mem, ke li ŝatis tiun ĉi benitan planedon precipe pro la mil kvarcent kvardek sunsubiroj en ĉiu tago.
 
 
-LA ETA PRINCO
-
-
 XV
 
 La sesa planedo estis dekoble pli vasta. i estis loĝata de maljuna sinjoro, kiu verkis dikegajn librojn.
@@ -1275,9 +1054,6 @@ pro laceco. Li jam tiom vojaĝis!
 ”Estas tre bela via planedo. ĉu estas oceanoj sur ĝi?”
 
 ”Mi ne povas scii tion,” diris la geografo.
-
-
-LA ETA PRINCO
 
 
 ”Kaj urboj, riveregoj, dezertoj?”
@@ -1308,14 +1084,9 @@ princo.
 
 La geografo subite ekscitiĝis.
 
-”Sed vi mem venas de malproksime! Vi estas esploristo! Pri-
-
-skribu al mi vian planedon!”
+”Sed vi mem venas de malproksime! Vi estas esploristo! Priskribu al mi vian planedon!”
 
 Kaj la geografo malfermis sian registron kaj pintigis sian kra-jonon. Oni skribas la esploristajn rakontojn unue per krajono.
-
-
-LA ETA PRINCO
 
 
 Oni atendas por skribi per ĝis la esploristo estos alportinta pruvojn.
@@ -1357,9 +1128,6 @@ princo. ”Kion signifas efemera?”
 ”Mia floro estas efemera,” diris la eta princo, ”kaj ĝi havas nur kvar dornojn por sin defendi kontraŭ la mondo! Kaj mi lasis ĝin tute sola!”
 
 
-LA ETA PRINCO
-
-
 Tiel li unuafoje ekbedaŭris. Sed li tuj rekuraĝiĝis.
 
 ”Kion vi konsilas, ke mi vizitu?” li demandis.
@@ -1369,9 +1137,6 @@ Tiel li unuafoje ekbedaŭris. Sed li tuj rekuraĝiĝis.
 reputacion…”
 
 Kaj la eta princo foriris, meditante pri sia floro.
-
-
-LA ETA PRINCO
 
 
 XVI
@@ -1385,22 +1150,14 @@ unu reĝojn (sen forgesi la nigrajn kompreneble!), sep mil geo-grafojn, naŭcent
 Por doni al vi ideon pri la dimensioj de Tero, mi diros al vi, ke, antaŭ ol oni inventis elektron, estis necese vivteni sur ĉiuj ses kontinentoj veran armeon de kvarcent sesdek du mil kvincent dek unu lanternistoj.
 
 
-LA ETA PRINCO
-
-
 De malproksime tio faris belegan efekton. La movoj de tiu armeo estis regulaj kiel tiuj de operbaleto. Unuavice venis la lanternistoj de Nov-Zelando kaj Aŭstralio. Poste, eklumiginte siajn lanternojn, ili iris dormi. Tiam la lanternistoj de ĉinio kaj Sibe-rio siavice ekpartoprenis en la baleto. Kaj ankaŭ ili malaperis en la kulisojn. Tiam venis la vico de la lanternistoj el Rusio kaj Hin-dujo. Kaj la vico de tiuj de Afriko kaj Eŭropo. Kaj tiuj el Sud-Ameriko. Kaj ili neniam eraris pri siaj vicoj por eniri sur la sce-nejon. Estis grandioze.
 
 Nur la lanternisto de la unusola lanterno ĉe Nordpoluso kaj lia kolego ĉe Sudpoluso vivis malzorge kaj pigre: ili laboris po du fojoj ĉiujare.
 
 
-LA ETA PRINCO
-
-
 XVII
 
-Kiam oni volas spriti, oni foje mensogas iom. Mi ne estis tre honesta, parolante al vi pri la lanternistoj. Mi riskas doni mal-
-
-ĝustan ideon pri nia planedo al tiuj, kiuj ne konas ĝin. La homoj okupas tre malmulte da spaco sur la Tero. Se la duo da miliardoj da homoj, kiuj loĝas sur la Tero, starus iom dense kiel por mitingo, entenus ilin facile publika placo longa kaj larĝa dudek mejlojn. Oni povus amasigi la tutan homaron sur la plej malgranda pacifika insuleto.
+Kiam oni volas spriti, oni foje mensogas iom. Mi ne estis tre honesta, parolante al vi pri la lanternistoj. Mi riskas doni malĝustan ideon pri nia planedo al tiuj, kiuj ne konas ĝin. La homoj okupas tre malmulte da spaco sur la Tero. Se la duo da miliardoj da homoj, kiuj loĝas sur la Tero, starus iom dense kiel por mitingo, entenus ilin facile publika placo longa kaj larĝa dudek mejlojn. Oni povus amasigi la tutan homaron sur la plej malgranda pacifika insuleto.
 
 Kompreneble, la granduloj ne kredos vin. Ili kredas, ke ili okupas multe da spaco. Ili vidas sin gravaj, kiel baobaboj. Vi do konsilos al ili kalkuli. Ili amegas ciferojn: tio plaĉos al ili. Sed vi ne perdu vian propran tempon. Estas senutile. Vi fidas min.
 
@@ -1425,9 +1182,6 @@ La eta princo sidiĝis sur ŝtonon kaj levis siajn okulojn al la ĉielo:
 ”Mi demandas min,” li diris, ”ĉu la steloj brilas, por ke ĉiu povu iam retrovi la sian. Rigardu mian planedon! i estas ĝuste super ni… Sed kiel malproksime ĝi estas!”
 
 ”i estas bela,” diris la serpento. ”Kial vi venis ĉi tien?”
-
-
-LA ETA PRINCO
 
 
 ”Mi havas malfacilaĵojn kun certa floro,” diris la eta princo.
@@ -1455,9 +1209,6 @@ La eta princo ekridetis:
 povas vojaĝi…”
 
 
-LA ETA PRINCO
-
-
 ”Mi povas konduki vin pli malproksimen ol ŝipo,” diris la serpento.
 
 i volviĝis ĉirkaŭ maleolo de la eta princo kiel ora bracele-to:
@@ -1473,9 +1224,6 @@ La eta princo nenion respondis.
 ”Mi solvas ilin ĉiujn,” diris la serpento.
 
 Kaj ili eksilentis.
-
-
-LA ETA PRINCO
 
 
 XVIII
@@ -1497,9 +1245,6 @@ La floro iam vidis pasi karavanon.
 ”Adiaŭ!” diris la eta princo.
 
 ”Adiaŭ!” diris la floro.
-
-
-LA ETA PRINCO
 
 
 IXX
@@ -1529,13 +1274,7 @@ estas sola.”
 e˛o.
 
 
-LA ETA PRINCO
-
-
 ”Kia stranga planedo!” li tiam pensis. ”i estas tute seka kaj tute pinta kaj tute sola. Kaj la homoj ne havas fantazion. Ili ripetas, kion oni diras al ili… Hejme mi havis floron; ĝi parolis ĉiam unua…”
-
-
-LA ETA PRINCO
 
 
 XX
@@ -1561,15 +1300,9 @@ Kaj li sentis sin tre malfeliĉa. Lia floro rakontis al li, ke en la universo ĝ
 ”i ofendiĝus,” li diris al si, ”se ĝi vidus ĉi tion… ĝi treege tusus kaj ŝajnigus sin mortanta por eviti ridindon. Kaj mi devus ŝajnigi kvazaŭ mi flegas ĝin, ĉar alie ĝi vere mortus, nur por humiligi an-kaŭ min…”
 
 
-LA ETA PRINCO
-
-
 Poste li aldone diris al si: ”Mi kredis, ke mi posedas unikan floron, sed mi posedas nur ordinaran rozon. i kaj miaj tri vulkanoj, kies supro atingas altecon de miaj genuoj kaj el kiuj unu estas eble por ĉiam estingita, ja ne faras min tre grandioza princo…”
 
 Kaj, kuŝante sur herbejo, li ploris.
-
-
-LA ETA PRINCO
 
 
 XXI
@@ -1597,9 +1330,6 @@ Sed post pripenso li aldonis:
 ”Kion signifas malsovaĝigi?”
 
 
-LA ETA PRINCO
-
-
 ”Vi ne estas ĉi-tiea,” diris la vulpo. ”Kion vi serĉas?”
 
 ”Mi serĉas homojn,” diris la eta princo. ”Kion signifas malsovaĝigi?”
@@ -1617,9 +1347,6 @@ LA ETA PRINCO
 Kaj ankaŭ vi ne bezonas min. Mi estas por vi nur vulpo simila al cent mil vulpoj. Sed, se vi malsovaĝigos min, ni bezonos nin reciproke. Vi estos por mi unika en la mondo. Mi estos por vi unika en la mondo.”
 
 
-LA ETA PRINCO
-
-
 ”Mi ekkomprenas,” diris la eta princo. ”Mi konas certan floron… mi kredas, ke ĝi malsovaĝigis min…”
 
 ”Kredeble,” diris la vulpo. ”Oni vidas sur Tero ĉiajn aferojn…”
@@ -1628,9 +1355,7 @@ LA ETA PRINCO
 
 Sed ĝi revenis al sia ideo:
 
-”Mia vivo estas monotona. Mi ĉasas kokinojn kaj homoj ĉa-
-
-sas min. ĉiuj kokinoj similas unuj al aliaj, kaj ĉiuj homoj ankaŭ.
+”Mia vivo estas monotona. Mi ĉasas kokinojn kaj homoj ĉasas min. ĉiuj kokinoj similas unuj al aliaj, kaj ĉiuj homoj ankaŭ.
 
 Do mi iom enuas. Sed, se vi malsovaĝigos min, mia vivo estos kvazaŭ suna. Mi konos sonon de paŝoj, kiuj distingiĝas de ĉiuj aliaj. La aliaj paŝoj forpelas min en grundon. Viaj vokos min kiel muziko por iri el mia ternesto. Kaj rigardu! ĉu vi vidas tie tri-tikajn kampojn? Mi ne manĝas panon. Tritiko estas por mi sen-utila. Tritikaj kampoj memorigas min pri nenio. Kaj tio estas malgaja! Sed vi havas orajn harojn. Estos mirinde post kiam vi malsovaĝigos min! Ora tritiko memorigos min pri vi. Kaj mi
 
@@ -1644,19 +1369,12 @@ La vulpo eksilentis kaj longe rigadis la etan princon:
 
 ”Oni konas nur tion, kion oni malsovaĝigis,” diris la vulpo.
 
-”La homoj ne plu havas tempon por ion ajn koni. Ili aĉetas tute pretajn objektojn ĉe vendistoj. Sed, ĉar amikvendistoj ne ekzistas, homoj ne plu havas amikojn. Se vi volas amikon, malsova-
-
-ĝigu min!”
+”La homoj ne plu havas tempon por ion ajn koni. Ili aĉetas tute pretajn objektojn ĉe vendistoj. Sed, ĉar amikvendistoj ne ekzistas, homoj ne plu havas amikojn. Se vi volas amikon, malsovaĝigu min!”
 
 ”Kion necesas fari?” demandis la eta princo.
 
 
-LA ETA PRINCO
-
-
-”Necesas esti tre pacienca,” respondis la vulpo. ”Unue vi sidi-
-
-ĝu iom malproksime de mi, tiele, sur la herbo. Mi rigardos vin oblikve, sed vi nenion diros. Paroloj estas fonto de miskompre-noj. Sed ĉiutage vi povos sidiĝi iomete pli proksime…”
+”Necesas esti tre pacienca,” respondis la vulpo. ”Unue vi sidiĝu iom malproksime de mi, tiele, sur la herbo. Mi rigardos vin oblikve, sed vi nenion diros. Paroloj estas fonto de miskompre-noj. Sed ĉiutage vi povos sidiĝi iomete pli proksime…”
 
 La morgaŭan tagon la eta princo revenis.
 
@@ -1665,12 +1383,7 @@ La morgaŭan tagon la eta princo revenis.
 ”Kio estas rito?” diris la eta princo.
 
 
-LA ETA PRINCO
-
-
-”Tio ankaŭ estas tro forgesita afero,” diris la vulpo, ”Tio, kio distingas unu tagon de la aliaj. Miaj ĉasistoj ankaŭ respektas riton. ĉiun jaŭdon ili dancas kun knabinoj en la vilaĝo. Tial jaŭ-
-
-do estas mirinda tago! Mi iras promeni ĝis la vitejo. Se la ĉasistoj dancus iam ajn, la tagoj estus ĉiuj similaj, kaj mi neniel havus feriojn.”
+”Tio ankaŭ estas tro forgesita afero,” diris la vulpo, ”Tio, kio distingas unu tagon de la aliaj. Miaj ĉasistoj ankaŭ respektas riton. ĉiun jaŭdon ili dancas kun knabinoj en la vilaĝo. Tial jaŭdo estas mirinda tago! Mi iras promeni ĝis la vitejo. Se la ĉasistoj dancus iam ajn, la tagoj estus ĉiuj similaj, kaj mi neniel havus feriojn.”
 
 Tial la eta princo malsovaĝigis la vulpon. Sed alproksimiĝis la horo de la foriro:
 
@@ -1692,11 +1405,7 @@ Kaj la rozoj estis tute konsternitaj.
 
 morti por vi. Kompreneble, ordinara pasanto kredus, ke mia
 
-propra rozo similas vin. Sed ĝi sola pli gravas ol vi ĉiuj, ĉar ĝi estas tiu, kiun mi akvumis. ĉar ĝi estas tiu, kiun mi metis sub la kloŝon. ĉar ĝi estas tiu, kiun mi ŝirmis per la ventŝirmilo. ĉar ĝi estas tiu, kies raŭpojn mi mortigis (escepte de du aŭ tri fari-
-
-ĝontaj papilioj). ĉar ĝi estas tiu, kiun mi aŭskultadis, kiam ĝi 65
-
-LA ETA PRINCO
+propra rozo similas vin. Sed ĝi sola pli gravas ol vi ĉiuj, ĉar ĝi estas tiu, kiun mi akvumis. ĉar ĝi estas tiu, kiun mi metis sub la kloŝon. ĉar ĝi estas tiu, kiun mi ŝirmis per la ventŝirmilo. ĉar ĝi estas tiu, kies raŭpojn mi mortigis (escepte de du aŭ tri fariĝontaj papilioj). ĉar ĝi estas tiu, kiun mi aŭskultadis, kiam ĝi
 
 
 plendadis aŭ fanfaronadis, aŭ eĉ, iafoje, kiam ĝi silentis. ĉar ĝi estas mia rozo!”
@@ -1716,9 +1425,6 @@ Kaj li revenis al la vulpo:
 por memori.
 
 
-LA ETA PRINCO
-
-
 XXII
 
 ”Bonan tagon!” diris la eta princo.
@@ -1731,9 +1437,7 @@ XXII
 
 relŝangiŝto. ”Mi ekspedas, jen dekstren, jen maldekstren, la traj-nojn, kiuj forportas ilin.”
 
-Kaj lumanta rapidvagonaro, muĝanta kiel fulmotondro, tre-
-
-migis la budon de la relŝangisto.
+Kaj lumanta rapidvagonaro, muĝanta kiel fulmotondro, tremigis la budon de la relŝangisto.
 
 ”Ili certe urĝiĝas,” diris la eta princo. ”Kion ili serĉas?”
 
@@ -1743,15 +1447,11 @@ Kaj en la inversa direkto muĝis dua lumanta rapidvagonaro.
 
 ”ĉu ili jam revenas?” demandis la eta princo.
 
-”Ili ne estas la samaj,” diris la relŝanĝisto. ”Temas pri inter-
-
-ŝanĝo.”
+”Ili ne estas la samaj,” diris la relŝanĝisto. ”Temas pri interŝanĝo.”
 
 ”ĉu ili ne estis kontentaj tie, kie ili estis?”
 
-”Oni neniam estas kontenta tie, kie oni estas,” diris la rel-
-
-ŝanĝisto.
+”Oni neniam estas kontenta tie, kie oni estas,” diris la relŝanĝisto.
 
 Kaj kiel fulmotondro muĝis tria lumanta rapidvagonaro.
 
@@ -1764,9 +1464,6 @@ princo.
 ”Nur la infanoj scias, kion ili serĉas,” diris la eta princo. ”Ili dediĉas tempon al pupo el ĉifonoj, kaj ĝi fariĝas tre grava, kaj se oni forprenas ĝin de ili, ili ploras…”
 
 ”Ili havas fortunon,” diris la relŝanĝisto.
-
-
-LA ETA PRINCO
 
 
 XXIII
@@ -1788,9 +1485,6 @@ Oni glutas ilin po unu ĉiusemajne kaj oni ne plu sentas bezo-non trinki.
 ”Oni faras per ili, kion vi volas…”
 
 ”Se mi havus kvindek tri minutoj por foruzi,” diris la eta princo, ”mi paŝus tute malrapide al fontano…”
-
-
-LA ETA PRINCO
 
 
 XXIV
@@ -1823,18 +1517,13 @@ Post plurhora silenta marŝado, nokto falis kaj steloj eklumis.
 
 Mi vidis ilin kvazaŭ en sonĝo, iom febrante pro soifo. La vortoj de la eta princo dancis en mia memoro:
 
-”ĉu do vi ankaŭ soifas?” mi demandis lin. Sed li ne respon-
-
-dis al mia demando. Li simple diris:
+”ĉu do vi ankaŭ soifas?” mi demandis lin. Sed li ne respondis al mia demando. Li simple diris:
 
 ”Akvo povas esti bona ankaŭ por la koro…”
 
 Mi ne komprenis lian respondon, sed mi silentis… mi bone
 
 sciis, ke neniel utilus demandi lin.
-
-
-LA ETA PRINCO
 
 
 Li estis laca. Li sidiĝis. Mi sidiĝis apud li. Kaj post silento li daŭrigis:
@@ -1847,15 +1536,11 @@ Li estis laca. Li sidiĝis. Mi sidiĝis apud li. Kaj post silento li daŭrigis:
 
 Kaj estis vere. Mi ĉiam amis dezertojn. Oni sidiĝas sur sablan ondon. Oni vidas nenion. Oni nenion aŭdas. Kaj tamen io radias en silento…
 
-”Kio beligas dezerton,” diris la eta princo, ”estas, ke ĝi ie ka-
-
-ŝas puton…”
+”Kio beligas dezerton,” diris la eta princo, ”estas, ke ĝi ie kaŝas puton…”
 
 Mi miris subite kompreni tiun misteran radiadon de la sablo.
 
-Kiam mi estis knabeto, mi loĝis en antikva domo, kaj legendo rakontis, ke trezoro tie estis profunde enfosigita. Kompreneble, neniam iu sciis malkovri ĝin, eble eĉ ne serĉis ĝin. Sed ĝi ensor-
-
-ĉis la tutan domon. Mia domo kaŝis sekreton en la fundo de sia koro…
+Kiam mi estis knabeto, mi loĝis en antikva domo, kaj legendo rakontis, ke trezoro tie estis profunde enfosigita. Kompreneble, neniam iu sciis malkovri ĝin, eble eĉ ne serĉis ĝin. Sed ĝi ensorĉis la tutan domon. Mia domo kaŝis sekreton en la fundo de sia koro…
 
 ”Jes,” mi diris al la eta princo, ”ĉu temas pri domo, ĉu pri steloj, ĉu pri dezerto, kio faras ilian belecon, estas nevidebla!”
 
@@ -1865,9 +1550,7 @@ Kiam mi estis knabeto, mi loĝis en antikva domo, kaj legendo rakontis, ke trezo
 
 ĉar liaj duone malfermitaj lipoj ridetis, mi ankaŭ diris al mi:
 
-”Kio tiom kortuŝas min pri la dormanta princeto, estas lia fideleco al la floro, estas bildo de rozo, kiu radias interne de li kiel flamo de 70
-
-LA ETA PRINCO
+”Kio tiom kortuŝas min pri la dormanta princeto, estas lia fideleco al la floro, estas bildo de rozo, kiu radias interne de li kiel flamo de
 
 
 lampo, eĉ kiam li dormas…” Kaj mi sentis, ke li estas eĉ pli fragila.
@@ -1875,9 +1558,6 @@ lampo, eĉ kiam li dormas…” Kaj mi sentis, ke li estas eĉ pli fragila.
 Oni ja devas ŝirmi lampojn: ventblovo povas ilin estingi…
 
 Kaj tiel iranta, tagiĝe mi malkovris la puton.
-
-
-LA ETA PRINCO
 
 
 XXV
@@ -1897,9 +1577,6 @@ la sablo. Tiu ĉi similis al vilaĝa puto. Sed tie
 estis neniu vilaĝo, kaj mi pensis, ke mi nur
 
 sonĝas.
-
-
-LA ETA PRINCO
 
 
 ”Estas strange,” mi diris al la eta princo, ”ĉio estas preta: pulio, sitelo kaj ŝnuro…”
@@ -1926,9 +1603,7 @@ Mi levis la sitelon ĝis liaj lipoj. Trinkante li fermis siajn okulojn. Tio esti
 
 Kiam mi estis knabeto, la lumo de la kristnaska arbo, la muziko de la meznokta meso kaj la dolĉeco de la ridetoj, same donis radiadon al la kristnaska donaco, kiun mi ricevis.
 
-”Homoj ĉe vi kulturas kvin mil rozojn en unu ĝardeno,” di-
-
-ris la eta princo, ” …kaj tamen ili tie ne trovas, kion ili serĉas.”
+”Homoj ĉe vi kulturas kvin mil rozojn en unu ĝardeno,” diris la eta princo, ” …kaj tamen ili tie ne trovas, kion ili serĉas.”
 
 ”Ili ne trovas tion,” mi respondis.
 
@@ -1939,9 +1614,6 @@ ris la eta princo, ” …kaj tamen ili tie ne trovas, kion ili serĉas.”
 Kaj la eta princo aldonis:
 
 ”Sed la okuloj estas blindaj, necesas serĉi per la koro.”
-
-
-LA ETA PRINCO
 
 
 Mi estis trinkinta. Mi spiris bone. Tagiĝe la ĉielo estis miel-kolora. Mi feliĉis ankaŭ pro tiu miela koloro. Kial do mi eksentis angoron?
@@ -1976,9 +1648,7 @@ korpremon:
 
 ”Vi havas projekton, kiun mi ne konas…”
 
-”Sciu, ke morgaŭ estos la datreveno de mia falo sur la Te-
-
-ron…”
+”Sciu, ke morgaŭ estos la datreveno de mia falo sur la Teron…”
 
 Kaj post silento li diris ankoraŭ:
 
@@ -1990,9 +1660,7 @@ Denove, ne komprenante kial, mi sentis strangan angoron.
 
 Tamen demando venis en mian menson:
 
-”Do, ne estis hazardo, ke vi promenis tute sola, mil mejlojn 74
-
-LA ETA PRINCO
+”Do, ne estis hazardo, ke vi promenis tute sola, mil mejlojn
 
 
 malproksime de ĉiuj loĝataj landoj, tiam matene antaŭ ok tagoj, kiam mi konatiĝis kun vi. ĉu vi tiam estis reiranta direkte al via falpunkto?”
@@ -2003,9 +1671,7 @@ Kaj hezite mi aldonis:
 
 ”Eble pro la datreveno?”
 
-La eta princo refoje ruĝiĝis. Li neniam respondis al deman-
-
-doj, sed kiam oni ruĝiĝas, tio signifas ”jes”, ĉu ne?
+La eta princo refoje ruĝiĝis. Li neniam respondis al demandoj, sed kiam oni ruĝiĝas, tio signifas ”jes”, ĉu ne?
 
 ”Ha!” mi diris al li, ”mi timas…”
 
@@ -2014,14 +1680,9 @@ Sed li respondis al mi:
 ”Nun vi devas labori. Vi devas reiri al via maŝino. Mi atendos vin ĉi tie. Revenu morgaŭ vespere!…”
 
 
-LA ETA PRINCO
-
-
 XXVI
 
-Apud la puto estis ruino de manova ŝtona muro. Kiam la sek-
-
-vantan tagon vespere mi revenis de mia laboro, mi ekvidis de malproksime mian etan princon sidanta tie supre, kun kruroj pendantaj. Kaj mi aŭdis lin paroli:
+Apud la puto estis ruino de manova ŝtona muro. Kiam la sekvantan tagon vespere mi revenis de mia laboro, mi ekvidis de malproksime mian etan princon sidanta tie supre, kun kruroj pendantaj. Kaj mi aŭdis lin paroli:
 
 ”ĉu vi do ne memoras pri tio? Tio estis ne ĝuste ĉi tie!”
 
@@ -2033,9 +1694,7 @@ Mi plue iris direkte al la muro. Mi ankoraŭ neniun vidis, nek aŭdis. Tamen la 
 
 ”… Certe. Vi vidos, kie troviĝas sur la sablo la komenco de miaj piedsignoj. Nur tie atendu min. Mi estos tie ĉi-nokte.”
 
-Mi estis je dudek metroj de la muro kaj mi ja ankoraŭ neni-
-
-on vidis.
+Mi estis je dudek metroj de la muro kaj mi ja ankoraŭ nenion vidis.
 
 Post silenta momento la eta princo daŭrigis:
 
@@ -2045,36 +1704,24 @@ Mi haltis korpremite, sed mi ankoraŭ ne komprenis.
 
 ”Nun foriru!” li diris… ”Mi volas reiri malsupren!”
 
-Tiam mi mem ekrigardis la piedon de la muro kaj mi eksal-
+Tiam mi mem ekrigardis la piedon de la muro kaj mi eksaltis! Tie estis, leviĝanta kontraŭ la eta princo, unu el tiuj flavaj serpentoj, kiuj ekzekutas vin en tridek sekundoj. Penante el-poŝigi mian revolveron, mi ekkuris, sed, aŭdante la bruon, la serpento lasis sin malrapide glitfali en la sablon kiel malaper-anta fonto kaj, ne tro rapide, traŝoviĝis kun metala susuro inter ŝtonoj.
 
-tis! Tie estis, leviĝanta kontraŭ la eta princo, unu el tiuj flavaj serpentoj, kiuj ekzekutas vin en tridek sekundoj. Penante el-poŝigi mian revolveron, mi ekkuris, sed, aŭdante la bruon, la serpento lasis sin malrapide glitfali en la sablon kiel malaper-anta fonto kaj, ne tro rapide, traŝoviĝis kun metala susuro inter ŝtonoj.
-
-Mi alkuris la muron ĝustatempe por kapti en brakumon mi-
-
-an princan etulon, palan kiel neĝo.
+Mi alkuris la muron ĝustatempe por kapti en brakumon mian princan etulon, palan kiel neĝo.
 
 ”Kia afero! Nun vi parolas kun serpentoj!”
-
-
-LA ETA PRINCO
 
 
 Mi demetis lian ĉiaman orkoloran fulardon. Mi malsekigis
 
 liajn tempiojn kaj mi trinkigis lin. Kaj tiam mi nenion plu ku-raĝis demandi lin. Li rigardis min grave kaj brakumis mian ko-lon. Mi sentis lian koron bati kiel koreto de pafita, mortanta birdeto. Li diris al mi:
 
-”Mi estas kontenta, ke vi trovis tion, kio mankis al via ma-
-
-ŝino. Vi povos reiri hejmen…”
+”Mi estas kontenta, ke vi trovis tion, kio mankis al via maŝino. Vi povos reiri hejmen…”
 
 ”Kiel vi scias tion?”
 
 Mi ja venis por anonci al li, ke malgraŭ ĉiuj miaj malesperoj mi sukcesis mian laboron!
 
 Li nenion respondis al mia demando, sed aldonis:
-
-
-LA ETA PRINCO
 
 
 ”Ankaŭ mi hodiaŭ reiros hejmen…”
@@ -2101,9 +1748,7 @@ Li timis, kompreneble! Sed li dolĉe ridis:
 
 ”Mi ankoraŭ pli multe timos hodiaŭ vespere…”
 
-Denove mi sentis min frosta pro la konscio de io nekompen-
-
-sebla. Kaj mi komprenis, ke mi ne povas eĉ pensi, ke mi neniam plu aŭdos tiun ridon. i estis por mi kvazaŭ fonteto en dezerto.
+Denove mi sentis min frosta pro la konscio de io nekompensebla. Kaj mi komprenis, ke mi ne povas eĉ pensi, ke mi neniam plu aŭdos tiun ridon. i estis por mi kvazaŭ fonteto en dezerto.
 
 ”Etulo, mi ankoraŭ volas aŭdi vin ridi…”
 
@@ -2122,9 +1767,6 @@ Sed li ne respondis al mia demando. Li diris:
 ”Estas kiel pri tiu floro. Se vi amas floron, kiu troviĝas sur iu stelo, plaĉas al vi rigardi la ĉielon dumnokte. ĉiuj steloj estas florumitaj…”
 
 
-LA ETA PRINCO
-
-
 ”Certe…”
 
 ”Estas same kiel pri akvo. Tiu, kiun vi donis al mi por trinki, estis kvazaŭ muziko pro la pulio kaj la ŝnuro… Vi memoras… ĝi estis bongusta.”
@@ -2141,11 +1783,7 @@ Li denove ridis.
 
 ”Kion vi volas diri?”
 
-”Homoj havas stelojn, kiuj ne estas samaj. Por tiuj, kiuj voja-
-
-ĝas, steloj estas gvidantoj. Por aliaj ili estas nur malgrandaj lu-79
-
-LA ETA PRINCO
+”Homoj havas stelojn, kiuj ne estas samaj. Por tiuj, kiuj vojaĝas, steloj estas gvidantoj. Por aliaj ili estas nur malgrandaj lu-79
 
 
 moj. Por aliaj, kiuj estas sciencistoj, ili estas problemoj. Por mia negocisto ili estis oro. Sed ĉiuj tiuj steloj silentas. Vi mem havos stelojn, kiajn neniu alia havas…”
@@ -2172,9 +1810,7 @@ Kaj li denove ridis. Poste li serioziĝis:
 
 ”Mi ne forlasos vin!”
 
-”Mi aspektos kvazaŭ sentanta doloron, kvazaŭ mortanta. Es-
-
-tas tiel. Ne venu por vidi tion, ne indas…”
+”Mi aspektos kvazaŭ sentanta doloron, kvazaŭ mortanta. Estas tiel. Ne venu por vidi tion, ne indas…”
 
 ”Mi ne forlasos vin!”
 
@@ -2187,9 +1823,6 @@ Sed tio zorgigis lin:
 Tamen io maltrankviligis lin:
 
 ”Estas vere, ke ili ne havas plu venenon por mordi duafoje.”
-
-
-LA ETA PRINCO
 
 
 Tiunokte mi ne vidis lin ekvojiri. Li forkuris senbrue. Kiam mi sukcesis atingi lin, li estis iranta decideme per rapidaj paŝoj. Li nur diris al mi:
@@ -2233,9 +1866,6 @@ Li diris ankaŭ:
 Mi mem sidiĝis, ĉar mi ne plu povis teni min staranta. Li diris:
 
 
-LA ETA PRINCO
-
-
 ”Do… tio estas ĉio…”
 
 Li ankoraŭ iom hezitis, poste leviĝis. Li paŝis unu paŝon. Mi ne kapablis moviĝi.
@@ -2245,9 +1875,6 @@ Nur io flava fulmis apud lia maleolo. Li restis senmova un
 momenton. Li ne kriis. Li falis malrapide, kiel forhakita arbo.
 
 Tio eĉ faris neniun bruon pro la sablo.
-
-
-LA ETA PRINCO
 
 
 XXVII
@@ -2263,18 +1890,11 @@ Sed tamen io ne estas en ordo. Mi forgesis aldoni rimenon al la buŝumo, kiun mi
 Foje mi diras al mi: ”Certe ne! La eta princo enfermas sian floron ĉiunokte sub ĝia vitra kloŝo kaj li bone vartas sian ŝafeton…” Tiam mi estas feliĉa. Kaj ĉiuj steloj dolĉe ridadas.
 
 
-LA ETA PRINCO
-
-
-Alifoje mi diras al mi: ”Oni iam estas senatenta, kaj tio sufi-
-
-ĉas! Iuvespere li forgesis la vitran kloŝon, aŭ dumnokte la ŝafeto eliris senbrue…” Tiam ĉiuj tintiletoj aliformiĝas en larmojn!…
+Alifoje mi diras al mi: ”Oni iam estas senatenta, kaj tio sufiĉas! Iuvespere li forgesis la vitran kloŝon, aŭ dumnokte la ŝafeto eliris senbrue…” Tiam ĉiuj tintiletoj aliformiĝas en larmojn!…
 
 Jen estas tre granda mistero. Por vi, kiuj ankoraŭ amas la etan princon, same kiel por mi, nenio en la universo estas sama, se ie ajn oni ne scias kie ŝafeto, kiun oni ne konas, manĝis aŭ ne manĝis rozon…
 
-Rigardu la ĉielon! Demandu vin: ĉu, jes aŭ ne, la ŝafeto man-
-
-ĝis la floron? Kaj vi vidos, kiel tiam ĉio estas alia…
+Rigardu la ĉielon! Demandu vin: ĉu, jes aŭ ne, la ŝafeto manĝis la floron? Kaj vi vidos, kiel tiam ĉio estas alia…
 
 Kaj neniu grandulo iam ajn komprenos, ke tio tiel gravas!
 
@@ -2283,9 +1903,6 @@ Tio ĉi estas por mi la plej bela kaj la plej malgaja pejzaĝo en la mondo. i es
 Atente rigardu tiun pejzaĝon, por esti certa, ke vi rekonos
 
 ĝin, se vi iam vojaĝos en Afriko, en la dezerto. Kaj, se iam okazos al vi. ke vi trapasas tie, ne rapidu — mi petas vin! Atendu iom, ĝuste sub la stelo! Se tiam infano venos al vi, se li ridos, se li havos orkolorajn harojn, se li ne respondos, kiam vi demandos lin, vi ja divenos, kiu li estas. Tiam estu bonaj! Ne lasu min tiel malgaja: rapide skribu al mi, ke li revenis…
-
-
-LA ETA PRINCO
 
 
 www.omnibus.se/

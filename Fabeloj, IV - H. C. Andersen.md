@@ -7,17 +7,9 @@ Kvara libro
 
 Hans Christian Andersen
 
-FABELOJ 4
+FABELOJ
 
 Tradukis L. L. Zamenhof
-
-
-@omnibus.se
-
-·
-
-
-FABELOJ 4
 
 
 Lasta sonĝo de maljuna kverko
@@ -45,9 +37,6 @@ vi pensas per tio? ĉio estas ja tiel nekompareble luma kaj klara, tiel varma ka
 ampleksas tutajn sezonojn. Tio estas io tiel longa, ke vi tute ne povus tion kalkuli!”
 
 
-FABELOJ 4
-
-
 ”Ne, ĉar mi vin ne komprenas! Vi havas milojn da miaj
 
 tagoj, sed mi havas milojn da sekundoj, en kiuj mi povas esti
@@ -64,22 +53,15 @@ Kaj la unutaga muŝo dancis kaj suprenflugis en la aeron,
 
 ĝoje endormiĝis. Tio estis ĝia morto.
 
-”Kompatinda malgranda muŝeto!” diris la kverko, ”tio es-
+”Kompatinda malgranda muŝeto!” diris la kverko, ”tio estis ja tro mallonga vivo!”
 
-tis ja tro mallonga vivo!”
-
-Kaj ĉiutage ripetiĝadis la sama dancado, la sama interpa-
-
-rolado, la sama respondo kaj la sama endormiĝo; tio ripeti-
+Kaj ĉiutage ripetiĝadis la sama dancado, la sama interparolado, la sama respondo kaj la sama endormiĝo; tio ripeti-
 
 ĝadis en ĉiuj generacioj de la unutagaj muŝoj, kaj ĉiuj ili estis tiel same feliĉaj, tiel same ĝojaj. La kverko travivis maldor-me sian printempan matenon, sian someran tagmezon kaj
 
 sian aŭtunan vesperon, sed nun alproksimiĝis ĝia tempo de
 
 dormo, ĝia nokto. Alproksimiĝis la vintro.
-
-
-FABELOJ 4
 
 
 Jam la ventegoj kantis: ”Bonan nokton, bonan nokton! Jen
@@ -97,26 +79,17 @@ i ankaŭ iam estis malgranda; laŭ homa kalkulo ĝi havis
 nun la aĝon de kvara jarcento. i estis la plej granda kaj plej bela arbo en la arbaro, per sia kapo ĝi elstaris alte super ĉiuj aliaj arboj, kaj de la maro oni ĝin povis vidi jam en granda malproksimeco, ĝi servis al la maristoj kiel orientiĝa signo. i tute ne pensis pri tio, kiom multe da okuloj ĝin serĉadis. Alte supre en ĝia verda kapo havis siajn nestojn la sovaĝaj kolomboj, la kukolo kriis sian nomon, kaj en aŭtuno, kiam la folioj aspektis kiel martelitaj kupraj lamenoj, aperadis la migrantaj birdoj kaj ripozadis sur ĝi, antaŭ ol flugi trans la maron. Sed nun estis vintro, la arbo staris senfolie, kaj oni povis vidi tre klare, per kiaj arkoj kaj kurbaĵoj etendiĝas ĝiaj branĉoj. Kornikoj kaj monedoj venis kaj sidiĝis sur ĝi amase kaj babilis pri la malmilda tempo, kiu nun komenciĝis, kaj pri tio, kiel malfacile estas en la vintro trovi al si manĝaĵon.
 
 
-FABELOJ 4
-
-
 uste en la sankta Kristnaska tempo la arbo sonĝis sian
 
 plej belan sonĝon; ĝin ni aŭskultu.
 
 La arbo sentis tute klare, ke estas festa tempo; ŝajnis al ĝi, ke ĝi aŭdas, ke ĉirkaŭe sonas ĉiuj preĝejaj sonoriloj, kaj ĉe tio estis al ĝi en la animo kiel en bela dimanĉo, milde kaj varme.
 
-Freŝe kaj verde ĝi etendis sian potencan kapon, la radioj de la suno ludis inter ĝiaj folioj kaj branĉoj, la aero estis plena de la odoro de herboj kaj arbetaĵoj; diverskoloraj papilioj ludis unu kun la alia sinkaptadon, kaj la unutagaj muŝoj dancis, kvazaŭ ĉio ekzistus nur por tio, ke ili dancu kaj ĝoju. ĉio, kion la arbo dum multe da jaroj travivis kaj vidis ĉirkaŭ si, prete-rmarŝis nun antaŭ ĝi kiel en festa procesio. i vidis, kiel kavaliroj kaj sinjorinoj el malnova tempo surĉevale rajdas tra la arbaro kun plumoj sur la ĉapelo kaj kun falko sur la mano. La ĉaskorno sonis, kaj la hundoj bojis. i vidis, kiel malamikaj soldatoj kun brilantaj bataliloj kaj en diverskoloraj uniformoj, kun lancoj kaj halebardoj, starigas siajn tendojn kaj denove ilin forprenas; bivakaj fajroj flamis, kaj sub la larĝe etenditaj branĉoj de la arbo oni kantis kaj dormis. i vidis, kiel amantaj paroj renkontiĝas ĉi tie en la lumo de la luno kaj entran-
-
-ĉas siajn nomojn, la unuajn literojn, en la grize verdan ŝelon.
+Freŝe kaj verde ĝi etendis sian potencan kapon, la radioj de la suno ludis inter ĝiaj folioj kaj branĉoj, la aero estis plena de la odoro de herboj kaj arbetaĵoj; diverskoloraj papilioj ludis unu kun la alia sinkaptadon, kaj la unutagaj muŝoj dancis, kvazaŭ ĉio ekzistus nur por tio, ke ili dancu kaj ĝoju. ĉio, kion la arbo dum multe da jaroj travivis kaj vidis ĉirkaŭ si, prete-rmarŝis nun antaŭ ĝi kiel en festa procesio. i vidis, kiel kavaliroj kaj sinjorinoj el malnova tempo surĉevale rajdas tra la arbaro kun plumoj sur la ĉapelo kaj kun falko sur la mano. La ĉaskorno sonis, kaj la hundoj bojis. i vidis, kiel malamikaj soldatoj kun brilantaj bataliloj kaj en diverskoloraj uniformoj, kun lancoj kaj halebardoj, starigas siajn tendojn kaj denove ilin forprenas; bivakaj fajroj flamis, kaj sub la larĝe etenditaj branĉoj de la arbo oni kantis kaj dormis. i vidis, kiel amantaj paroj renkontiĝas ĉi tie en la lumo de la luno kaj entranĉas siajn nomojn, la unuajn literojn, en la grize verdan ŝelon.
 
 Citroj kaj Eolaj harpoj estis iam, antaŭ multe da jaroj, pendigitaj de junaj viglaj migrantaj viroj en la branĉoj de la kverko; nun ili denove tie pendis kaj denove sonis tiel ĉarme. La sovaĝaj kolomboj pepis, kvazaŭ ili volus rakonti, kion la arbo nun sentas, kaj la kukolo kriis sian nomon.
 
-Tiam ĝi eksentis, kvazaŭ nova torento da vivo trafluas ĝin de la plej malgrandaj fibroj de la radikoj ĝis la plej altaj bran-
-
-ĉoj, eĉ ĝis la internon de la folioj. La arbo sentis, ke tio donas al ĝi forton, por sin etendi, ĝi sentis per la radikoj, ke ankaŭ 6
-
-FABELOJ 4
+Tiam ĝi eksentis, kvazaŭ nova torento da vivo trafluas ĝin de la plej malgrandaj fibroj de la radikoj ĝis la plej altaj branĉoj, eĉ ĝis la internon de la folioj. La arbo sentis, ke tio donas al ĝi forton, por sin etendi, ĝi sentis per la radikoj, ke ankaŭ
 
 
 malsupre en la tero ekzistas vivo kaj varmo; ĝi sentis, ke ĝia amplekso pligrandiĝas, ĝi kreskis pli kaj pli alten. La trunko etendiĝis supren, ĝi ne haltis, ĝi kreskis ĉiam pli kaj pli, la kapo fariĝis pli plena, dislarĝiĝis, leviĝis supren, — kaj kun la kreskado de la arbo kreskis ankaŭ ĝia bonfarto, ĝia neesprimeble feliĉiga sopirado atingi ĉiam pli altajn celojn, elkreski
@@ -138,12 +111,7 @@ La kapo de la arbo moviĝadis, kvazaŭ ĝi ion serĉis kaj ne
 trovis, ĝi rigardis malantaŭen, kaj tiam penetris al ĝi la odoro de la asperulo kaj baldaŭ ankoraŭ pli forte la odoro de la kaprifolioj kaj de la violoj. ŝajnis al ĝi, ke ĝi aŭdas, ke la kukolo al ĝi respondas.
 
 
-FABELOJ 4
-
-
-Jes, tra la nuboj montriĝis la verdaj suproj de la arbaro, la kverko vidis, ke la aliaj arboj sub ĝi kreskas kaj leviĝas simile al ĝi. Arbetoj kaj herboj kreskis alte en la aeron, kelkaj el-
-
-ŝiriĝis kun siaj radikoj kaj flugis pli rapide. La betulo atingis la plej grandan altecon; kiel blanka radio de fulmo ĝia gracia trunko serpentforme leviĝis supren, ĝiaj branĉoj ondiĝis kiel verda krepo kaj standardoj. ĉio, kio estis en la arbaro, eĉ la brunplumeta kano, ankaŭ kreskis, kaj la birdoj sekvis kaj kantis, kaj sur la herba trunketo, kiu ŝvebis kaj flugis simile al longa verda silka rubando, sidis la akrido kaj ludis per la flugilo sur sia tibio. La majskaraboj murmuris kaj la abeloj zumis, ĉiu birdo kantis, kiel ĝi povosciis, ĉie estis kantado kaj ĝojo, tute kiel en la ĉielo.
+Jes, tra la nuboj montriĝis la verdaj suproj de la arbaro, la kverko vidis, ke la aliaj arboj sub ĝi kreskas kaj leviĝas simile al ĝi. Arbetoj kaj herboj kreskis alte en la aeron, kelkaj elŝiriĝis kun siaj radikoj kaj flugis pli rapide. La betulo atingis la plej grandan altecon; kiel blanka radio de fulmo ĝia gracia trunko serpentforme leviĝis supren, ĝiaj branĉoj ondiĝis kiel verda krepo kaj standardoj. ĉio, kio estis en la arbaro, eĉ la brunplumeta kano, ankaŭ kreskis, kaj la birdoj sekvis kaj kantis, kaj sur la herba trunketo, kiu ŝvebis kaj flugis simile al longa verda silka rubando, sidis la akrido kaj ludis per la flugilo sur sia tibio. La majskaraboj murmuris kaj la abeloj zumis, ĉiu birdo kantis, kiel ĝi povosciis, ĉie estis kantado kaj ĝojo, tute kiel en la ĉielo.
 
 ”Sed la malgranda ruĝa floro ĉe la akvo ankaŭ devus veni!”
 
@@ -155,16 +123,11 @@ diris la kverko, ”ankaŭ la blua kampanulo kaj la malgranda le-kanteto!” Jes
 
 ”Sed la bela asperulo de la pasinta somero … la antaŭa jaro estis tre abunda koncerne konvalojn … kaj la sovaĝa pomarbo, kiel bele ĝi staris! … kaj la tuta lukso de la arbaro antaŭ jaroj, antaŭ multe da jaroj! … se ĝi restus vivanta ĝis nun, ĝi ankaŭ povus partopreni!”
 
-”Ni ankaŭ partoprenas! Ni ankaŭ partoprenas!” aŭdigis so-
-
-nado kaj kantado ankoraŭ pli alte supre; ŝajnis, ke ili estis flugintaj antaŭen.
+”Ni ankaŭ partoprenas! Ni ankaŭ partoprenas!” aŭdigis sonado kaj kantado ankoraŭ pli alte supre; ŝajnis, ke ili estis flugintaj antaŭen.
 
 ”Ho, tio estas nekredeble bela!” ĝojkriis la maljuna kverko.
 
 ”Mi havas ilin ĉiujn, la malgrandajn kaj la grandajn, neniu estas forgesita! Kiamaniere ĉi tiu tuta feliĉego estas ebla kaj imagebla! ”
-
-
-FABELOJ 4
 
 
 ”En la ĉielo de Dio ĝi estas ebla kaj imagebla!” aŭdigis sonado.
@@ -183,16 +146,9 @@ En la Kristnaska mateno, kiam denove montriĝis la suno,
 
 la ventego kvietiĝis. ĉiuj preĝejaj sonoriloj feste sonoris, kaj el ĉiu kamentubo, eĉ el la plej malgranda sur la tegmento de la malgranda kabano, per blueta nubo leviĝis la fumo, kiel de la altaro dum la festo de la Druidoj, oferfumo de danko. La maro fariĝis ĉiam pli kaj pli trankvila, kaj sur granda ŝipo, kiu tie sur la maro dum la nokto trasuferis la malbonan veteron, nun estis suprentiritaj ĉiuj flagoj por la festa Kristnaska soleno.
 
-”La arbo malaperis! La maljuna kverko, nia orientiĝa sig-
+”La arbo malaperis! La maljuna kverko, nia orientiĝa signo sur la bordo!” diris la maristoj. ”i falis en ĉi tiu ventega nokto! Kiu ĝin anstataŭos por ni! Neniu tion povas!”
 
-no sur la bordo!” diris la maristoj. ”i falis en ĉi tiu ventega nokto! Kiu ĝin anstataŭos por ni! Neniu tion povas!”
-
-Tian funebran parolon, mallongan sed bonintencan, rice-
-
-vis la arbo, kiu kuŝis etendita sur la neĝa kovro ĉe la bordo.
-
-
-FABELOJ 4
+Tian funebran parolon, mallongan sed bonintencan, ricevis la arbo, kiu kuŝis etendita sur la neĝa kovro ĉe la bordo.
 
 
 Kaj trans ĝin eksonis de la ŝipo solena sankta kanto, kanto pri la Kristnaska ĝojo kaj pri la liberiĝo de la homaj animoj en Kristo kaj pri la eterna vivo:
@@ -210,14 +166,9 @@ oju, paŝtant’ kaj paŝtatoj!”
 Tiel sonis la malnova kanto, kaj ĉiu tie sur la ŝipo per la kanto kaj per la preĝo sentis sin tiel alte. kiel sentis sin la arbo en sia lasta, sia plej bela sonĝo.
 
 
-FABELOJ 4
-
-
 Abocolibro
 
-Estis iam homo, kiu verkis iom da novaj versoj por la abo-
-
-colibro, po du vicoj al ĉiu litero, ĝuste tiel, kiel estis en la malnova abocolibro. Li opiniis, ke oni bezonas ion novan, ke la malnovaj versoj estas jam tro tediĝintaj, kaj liaj propraj versoj tre plaĉis al li. La nova abocolibro ĝis nun estis nur skribita, kaj ĝi staris apud la malnova, la presita, en la granda libroŝranko, en kiu staris multe da sciencaj kaj interesaj libroj.
+Estis iam homo, kiu verkis iom da novaj versoj por la abocolibro, po du vicoj al ĉiu litero, ĝuste tiel, kiel estis en la malnova abocolibro. Li opiniis, ke oni bezonas ion novan, ke la malnovaj versoj estas jam tro tediĝintaj, kaj liaj propraj versoj tre plaĉis al li. La nova abocolibro ĝis nun estis nur skribita, kaj ĝi staris apud la malnova, la presita, en la granda libroŝranko, en kiu staris multe da sciencaj kaj interesaj libroj.
 
 Sed al la malnova abocolibro la najbareco estis malagrabla, kaj tial ĝi elsaltis el sia fako kaj samtempe donis tian puŝon al la nova, ke ankaŭ ĉi tiu falis sur la teron kaj ĝiaj nebindi-taj folioj disĵetiĝis ĉirkaŭen. La malnova abocolibro kuŝis kun la unua paĝo supre kaj ĉi tiu paĝo estas en ĝi la plej grava; sur
 
@@ -225,12 +176,7 @@ Sed al la malnova abocolibro la najbareco estis malagrabla, kaj tial ĝi elsalti
 
 Nun ili kuŝis, direktite supren. La koko en la granda ”A”
 
-radiis per ruĝaj, bluaj kaj verdaj plumoj. i havis fieran mie-11
-
-FABELOJ 4
-
-
-non, ĉar ĝi sciis, kion la literoj valoras kaj ke ĝi estas la sola vivanta estaĵo inter ili.
+radiis per ruĝaj, bluaj kaj verdaj plumoj. i havis fieran mienon, ĉar ĝi sciis, kion la literoj valoras kaj ke ĝi estas la sola vivanta estaĵo inter ili.
 
 Kiam la malnova abocolibro falis sur la plankon, la koko
 
@@ -238,9 +184,7 @@ ekbatis per la flugiloj, elflugis kaj sidiĝis sur angulo de la libroŝranko, gl
 
 ”Oni volas, ke ĉio nun estu nova!” li diris. ”ĉio devas sen-ripoze strebi antaŭen! La infanoj estas tiel saĝaj, ke ili povoscias legi, antaŭ ol ili konas la literojn. ”Ili havu ion novan!”
 
-diris tiu, kiu verkis la novajn abocoajn versojn, kiuj kuŝas tie disĵetite sur la planko. Mi ilnas; pli ol dek fojojn mi aŭ-
-
-dis, kiel li laŭte ilin legis al si. Tio faris al li neesprimeblan plezuron! Ne, mi volus defendi miajn proprajn, la bonajn
+diris tiu, kiu verkis la novajn abocoajn versojn, kiuj kuŝas tie disĵetite sur la planko. Mi ilnas; pli ol dek fojojn mi aŭdis, kiel li laŭte ilin legis al si. Tio faris al li neesprimeblan plezuron! Ne, mi volus defendi miajn proprajn, la bonajn
 
 malnovajn versojn kaj la belajn bildojn, kiuj al ili apartenas.
 
@@ -259,9 +203,6 @@ Baleno en la oceano
 Elspiras akvon per fontano.
 
 ”ĉi tiun verson mi trovas vere sensenca!” diris la koko, ”sed mi legas plue.”
-
-
-FABELOJ 4
 
 
 C. Citrono.
@@ -302,9 +243,7 @@ H. Ho.
 
 De l’ sorto malfacilan baton.
 
-”Kiel do infano povas tion kompreni?” diris la koko. ”Es-
-
-tas vero, ke sur la titola paĝo estas dirite. ”Abocolibro por grandaj kaj malgrandaj”, sed la grandaj havas ion alian por fari, ol legi en la abocolibro, kaj la malgrandaj ĝin ne povas kompreni! ĉio devas havi limon! Sed pluen!”
+”Kiel do infano povas tion kompreni?” diris la koko. ”Estas vero, ke sur la titola paĝo estas dirite. ”Abocolibro por grandaj kaj malgrandaj”, sed la grandaj havas ion alian por fari, ol legi en la abocolibro, kaj la malgrandaj ĝin ne povas kompreni! ĉio devas havi limon! Sed pluen!”
 
 I. Infano.
 
@@ -315,9 +254,6 @@ Eĉ se nenio ĝin doloras.
 J. Junulo.
 
 Junulo! En patrino-tero
-
-
-FABELOJ 4
 
 
 Vi baldaŭ kuŝos sen espero.
@@ -379,12 +315,7 @@ Seruro gardas kontraŭ ŝtelo,
 ĉar tio estas ĝia celo.
 
 
-FABELOJ 4
-
-
-”Permesu al mi nun kokokrii!” diris la koko. ”La longa le-
-
-gado lacigas! Oni bezonas iom spiri!” Kaj ĝi kokokriis tiel laŭ-
+”Permesu al mi nun kokokrii!” diris la koko. ”La longa legado lacigas! Oni bezonas iom spiri!” Kaj ĝi kokokriis tiel laŭ-
 
 te, kiel latuna trumpeto, kaj estis plezuro tion aŭdi — por la koko mem. ”Pluen!”
 
@@ -416,14 +347,9 @@ Pro sia bela varma felo.
 
 ”Nun ĉio estas finita, sed tio ne estas ankoraŭ ĉio! Nun oni tion presos, kaj poste oni devos tion legi! Per tia fuŝaĵo devas esti anstataŭitaj la malnovaj respektindaj versoj en mia libro!
 
-Kion diras pri tio la estimata aŭdantaro, la sciencaj kaj nes-ciencaj, simplaj kaj kolektitaj verkoj? Kion diras la libro-
-
-ŝranko? Mi finis, nun la aliaj povas agi!”
+Kion diras pri tio la estimata aŭdantaro, la sciencaj kaj nes-ciencaj, simplaj kaj kolektitaj verkoj? Kion diras la libroŝranko? Mi finis, nun la aliaj povas agi!”
 
 La libroj staris, kaj la ŝranko staris, sed la koko flugis returne al sia granda ”A” kaj fiere rigardis ĉirkaŭen. ”Mi parolis bone, mi kokokriis bone; en tio la nova abocolibro ne povas min imiti! i certe mortos, ĝi estas jam mortinta! i ne havas en si kokon!”
-
-
-FABELOJ 4
 
 
 Filino de la marĉa reĝo
@@ -436,69 +362,46 @@ La plej malgrandaj idoj estas ravataj, kiam oni diras al ili nur
 
 La dua ankoraŭ ne estas vaste konata, eble pro tio, ke la
 
-loko de ĝia agado estas nia propra lando. La fabelo en la daŭ-
-
-ro de mil jaroj estis transigata de unu cikonio-patrino al alia cikonio-patrino, kaj ĉiu el ili rakontis ĝin ĉiam pli bone, kaj ni ĝin nun rakontas plej bone.
+loko de ĝia agado estas nia propra lando. La fabelo en la daŭro de mil jaroj estis transigata de unu cikonio-patrino al alia cikonio-patrino, kaj ĉiu el ili rakontis ĝin ĉiam pli bone, kaj ni ĝin nun rakontas plej bone.
 
 La unua cikonia paro, kiu ĝin rakontis kaj kiu mem ludas
 
-rolon en ĝi, havis somerloĝejon sur unu traba domo en Jut-
+rolon en ĝi, havis somerloĝejon sur unu traba domo en Jutlando, ne malproksime de Skagen. Ankoraŭ en la nuna tem-
 
-lando, ne malproksime de Skagen. Ankoraŭ en la nuna tem-
-
-po tie troviĝas grandega marĉejo, kiel oni povas vidi el la priskribo de la distrikto. En tiu priskribo estas dirite, ke tie an-taŭe estis mara fundo, kiu tamen poste leviĝis. Kelkmejlan spacon okupas tiu marĉejo, ĉirkaŭita ĉiuflanke de malsekaj 16
-
-FABELOJ 4
+po tie troviĝas grandega marĉejo, kiel oni povas vidi el la priskribo de la distrikto. En tiu priskribo estas dirite, ke tie an-taŭe estis mara fundo, kiu tamen poste leviĝis. Kelkmejlan spacon okupas tiu marĉejo, ĉirkaŭita ĉiuflanke de malsekaj
 
 
 herbejoj kaj ŝanceliĝanta marĉa tero, kiu produktas nur malmulte da beroj kaj kelke da kriplaj arboj. Preskaŭ ĉiam super
 
-ĝi ŝvebas densa nebulo, kaj antaŭ ne tre longa tempo tie ekzistis ankoraŭ lupoj. i efektive meritis la nomon ”Sovaĝa marĉejo”, kaj oni povas imagi al si, kiel senvoja, plena de mar-
-
-ĉoj kaj lagoj ĝi estis antaŭ mil jaroj. Koncerne la detalaĵojn oni jam tiam vidis tion, kion oni vidas nun: la trunkoj de la kanoj havis la saman altecon, la samajn longajn foliojn kaj violbru-najn plumformajn floraĵojn, kiujn ili havas nun; la betulo staris kun blanka ŝelo kaj blankaj, libere pendantaj folioj, kiel nun, kaj koncerne la vivantajn estaĵojn, kiuj tien venadis, la muŝo portis sian krepan veston laŭ la sama fasono, kiel nun, la koloro de la cikonio estis blanka kun nigra kaj kun ruĝaj ŝtrumpoj; sed la homoj en tiu tempo havis alian vestofasonon ol nun. Tamen kiu ajn el ili, ĉu li estis servutulo, ĉu libera ĉasisto, kuraĝis iri sur la marĉejon, tiu havis la saman sorton kiel nun, ili venis, enfalis kaj malleviĝis malsupren al la mar-
+ĝi ŝvebas densa nebulo, kaj antaŭ ne tre longa tempo tie ekzistis ankoraŭ lupoj. i efektive meritis la nomon ”Sovaĝa marĉejo”, kaj oni povas imagi al si, kiel senvoja, plena de marĉoj kaj lagoj ĝi estis antaŭ mil jaroj. Koncerne la detalaĵojn oni jam tiam vidis tion, kion oni vidas nun: la trunkoj de la kanoj havis la saman altecon, la samajn longajn foliojn kaj violbru-najn plumformajn floraĵojn, kiujn ili havas nun; la betulo staris kun blanka ŝelo kaj blankaj, libere pendantaj folioj, kiel nun, kaj koncerne la vivantajn estaĵojn, kiuj tien venadis, la muŝo portis sian krepan veston laŭ la sama fasono, kiel nun, la koloro de la cikonio estis blanka kun nigra kaj kun ruĝaj ŝtrumpoj; sed la homoj en tiu tempo havis alian vestofasonon ol nun. Tamen kiu ajn el ili, ĉu li estis servutulo, ĉu libera ĉasisto, kuraĝis iri sur la marĉejon, tiu havis la saman sorton kiel nun, ili venis, enfalis kaj malleviĝis malsupren al la mar-
 
 ĉeja reĝo, kiel oni nomis tiun, kiu regis malsupre en la granda marĉeja regno. Oni efektive povis lin nomi marĉeja reĝo, sed al ni ŝajnis pli bone uzi la esprimon marĉa reĝo; kaj tiel ankaŭ nomis lin la cikonioj. Pri lia regado oni sciis tre malmulte, sed tio eble estas la plej bona.
 
-Proksime de la marĉejo, tute apude de la Limfjordo, staris la supre dirita traba domo kun masonita kelo, turo kaj tri eta-
+Proksime de la marĉejo, tute apude de la Limfjordo, staris la supre dirita traba domo kun masonita kelo, turo kaj tri etaĝoj. Sed sur la tegmento konstruis sian neston la cikonio, la cikonia patrino kuŝis sur la ovoj kaj estis tute certa, ke ŝi feliĉe elkovos.
 
-ĝoj. Sed sur la tegmento konstruis sian neston la cikonio, la cikonia patrino kuŝis sur la ovoj kaj estis tute certa, ke ŝi feliĉe elkovos.
-
-Unu vesperon la cikonia patro iom tro longe estis ekster-
-
-dome, kaj kiam li venis hejmen, li aspektis tre ekscitita kaj rapidema.
-
-
-FABELOJ 4
+Unu vesperon la cikonia patro iom tro longe estis eksterdome, kaj kiam li venis hejmen, li aspektis tre ekscitita kaj rapidema.
 
 
 ”Mi devas rakonti al vi ion tute teruran!” li diris al la cikonia patrino.
 
 ”Indulgu min!” ŝi diris, ”memoru, ke mi kuŝas sur ovoj. Mi povus ektimiĝi, kaj tio efikas sur la ovoj!”
 
-”Vi nepre devas tion sciiĝi!” li diris. ”ŝi venis ĉi tien, la filino de nia mastro en Egiptujo! ŝi kuraĝis entrepreni la voja-
-
-ĝon ĉi tien, kaj ŝi malaperis!”
+”Vi nepre devas tion sciiĝi!” li diris. ”ŝi venis ĉi tien, la filino de nia mastro en Egiptujo! ŝi kuraĝis entrepreni la vojaĝon ĉi tien, kaj ŝi malaperis!”
 
 ”ŝi, kiu estas el la gento de la feinoj! Rakontu do! Vi scias, ke en la tempo, kiam mi kovas, estas al mi malfacile atendi!”
 
 ”Vi vidas, patrino, ŝi tamen kredis al tio, kion diris la doktoro, kiel vi mem rakontis al mi. ŝi kredis, ke la marĉeja floro de nia regiono povos helpi al ŝia patro; kaj tial ŝi alflugis ĉi tien en sia pluma vesto kune kun la du aliaj plumprincinoj, kiuj ĉiujare devis veni en la nordon, por sin bani kaj juniĝi. ŝi alvenis, kaj ŝi malaperis!”
 
-”Vi rakontas tiel terure malrapide!” diris la cikonia patri-no, ”la ovoj povas dume malvarmiĝi! Mi ne povas traelpor-
-
-ti, kiam vi tiel turmentas mian paciencon!”
+”Vi rakontas tiel terure malrapide!” diris la cikonia patri-no, ”la ovoj povas dume malvarmiĝi! Mi ne povas traelporti, kiam vi tiel turmentas mian paciencon!”
 
 ”Mi bone atentis!” diris la cikonia patro; ”hodiaŭ vespere, kiam mi iris en la kanaron, kie la marĉa tero povas min porti, subite aperis tri cignoj. En la batado de la flugiloj estis io, kio diris al mi: ”atentu, tio ne estas veraj cignoj, tio estas nur cignaj haŭtoj! Vi tion ja ekkonas, patrino, per la sento, tiel same kiel mi. Vi scias, en kio konsistas la vereco!”
 
 ”Kompreneble!” ŝi respondis; ”sed rakontu do al mi fine pri la princino, jam tedis al mi ĉiam aŭdi nur pri cignaj haŭtoj !”
 
-”ĉi tie meze de la marĉejo troviĝas, kiel vi scias, siaspeca lago,” rakontis plue la cikonia patro. ”Se vi iom leviĝos, vi povas de ĉi tie vidi parton de ĝi. Tie apud la kanaro kuŝis trunko de alno. Sur ĉi tiu sidiĝis la tri cignoj, ekbatis per la 18
-
-FABELOJ 4
+”ĉi tie meze de la marĉejo troviĝas, kiel vi scias, siaspeca lago,” rakontis plue la cikonia patro. ”Se vi iom leviĝos, vi povas de ĉi tie vidi parton de ĝi. Tie apud la kanaro kuŝis trunko de alno. Sur ĉi tiu sidiĝis la tri cignoj, ekbatis per la
 
 
-flugiloj kaj rigardis ĉirkaŭen. Unu el ili deĵetis la cignan haŭ-
-
-ton, kaj jen mi rekonis en ĝi la princinon de nia domo en
+flugiloj kaj rigardis ĉirkaŭen. Unu el ili deĵetis la cignan haŭton, kaj jen mi rekonis en ĝi la princinon de nia domo en
 
 Egiptujo. ŝi sidis tie kaj havis nenian alian kovron sur si krom siaj longaj nigraj haroj. Mi aŭdis, kiel ŝi petis la du aliajn, ke ili gardobservu ŝian cignan plumaĵon, kiam ŝi subakviĝos, por deŝiri la floron, pri kiu ŝi pensis, ke ŝi ĝin vidas. Ili kapjesis, ekflugis supren kaj levis kun si liberan plumveston. Strange, kion ili volas fari kun ĝi? mi pensis, kaj kun tia sama demando ŝi ankaŭ kredeble sin turnis al ili. Per siaj propraj okuloj ŝi devis vidi la krimon, kiu estis farata kontraŭ ŝi: kun ŝia plumvesto ili forflugis supren! ”Subakviĝu!” ili kriis, ”vi neniam plu flugos en cigna plumaĵo, vi neniam plu vidos Egiptujon! Restu en la sovaĝa marĉejo!” Kaj ili disŝiris ŝian plumveston en malgrandajn pecojn, tiel ke la plumoj flugis ĉirkaŭen, kvazaŭ ili estus neĝaj flokoj, kaj la du malbonaj princinoj forflugis.”
 
@@ -506,12 +409,7 @@ Egiptujo. ŝi sidis tie kaj havis nenian alian kovron sur si krom siaj longaj ni
 
 ”La princino ploris kaj ploregis! ŝiaj larmoj falis sur la trun-kon de la alno, kaj subite ĝi komencis moviĝi, ĉar tio estis la marĉa reĝo mem, li, kiu loĝas en la marĉo. Mi vidis, kiel la trunko turniĝis, kaj jen plu ne estis trunko, sed longaj, de ŝli-mo kovritaj branĉoj simile al brakoj etendiĝis supren. Tiam la malfeliĉa knabino ektimiĝis kaj saltis sur la ŝanceliĝantan marĉan teron, sed ĉi tiu ne povas porti eĉ min, des malpli ŝin.
 
-Tuj ŝi malleviĝis internen de la tero kaj la trunko de la alno iris tien kun ŝi, ĝi estis tio, kio ŝin tiris malsupren. Grandaj nigraj vezikoj montriĝis sur la supraĵo, kaj poste oni vidis plu nenian postsignon. Nun ŝi estas enterigita en la sovaĝa mar-
-
-ĉo, neniam ŝi venos kun la floro en Egiptujon. Vi ne povus traelporti la vidaĵon, patrino!”’
-
-
-FABELOJ 4
+Tuj ŝi malleviĝis internen de la tero kaj la trunko de la alno iris tien kun ŝi, ĝi estis tio, kio ŝin tiris malsupren. Grandaj nigraj vezikoj montriĝis sur la supraĵo, kaj poste oni vidis plu nenian postsignon. Nun ŝi estas enterigita en la sovaĝa marĉo, neniam ŝi venos kun la floro en Egiptujon. Vi ne povus traelporti la vidaĵon, patrino!”’
 
 
 ”Similajn aferojn vi en ĉi tiu tempo ne devus rakonti al mi!
@@ -522,9 +420,7 @@ Tio povas fari malutilon al la ovoj! La princino iel sin savos, ŝi facile ricev
 
 Pasis longa tempo.
 
-Unu tagon la cikonio ekvidis, ke el la profundo kreskis ver-da trunketo, kaj kiam ĝi atingis la nivelon de la akvo, elkreskis el ĝi folio, kiu fariĝis ĉiam pli kaj pli larĝa. Tute apud ĝi formi-
-
-ĝis burĝono, kaj kiam unu matenon la cikonio flugis super ĝi, la burĝono malfermiĝis sub la agado de la varmegaj sunradioj, kaj en ĝia mezo kuŝis ĉarma infano, malgranda knabi-
+Unu tagon la cikonio ekvidis, ke el la profundo kreskis ver-da trunketo, kaj kiam ĝi atingis la nivelon de la akvo, elkreskis el ĝi folio, kiu fariĝis ĉiam pli kaj pli larĝa. Tute apud ĝi formiĝis burĝono, kaj kiam unu matenon la cikonio flugis super ĝi, la burĝono malfermiĝis sub la agado de la varmegaj sunradioj, kaj en ĝia mezo kuŝis ĉarma infano, malgranda knabi-
 
 neto, tiel pura, kvazaŭ ŝi ĵus eliris el bano. ŝi estis tiel forte simila al la Egipta princino, ke la cikonio komence pensis, ke tio estas ŝi, kiu denove fariĝis malgranda; sed post pli longa pripensado la cikonio tamen trovis, ke estas pli kredeble, ke tio estas infano de ŝi kaj de la marĉa reĝo. Tial ĝi kuŝis en akvolilio.
 
@@ -532,9 +428,7 @@ neto, tiel pura, kvazaŭ ŝi ĵus eliris el bano. ŝi estis tiel forte simila al
 
 Mi flugos kun la infano al la vikingedzino; kia ĝojo tio estos!”
 
-Kaj la cikonio prenis la malgrandan knabineton, flugis al la traba domo, trabatis per la beko truon en la fenestra aperturo, kiu estis tirkovrita per veziko, metis la infanon sur la bruston de la vikingedzino, kaj poste ĝi flugis al la cikonia 20
-
-FABELOJ 4
+Kaj la cikonio prenis la malgrandan knabineton, flugis al la traba domo, trabatis per la beko truon en la fenestra aperturo, kiu estis tirkovrita per veziko, metis la infanon sur la bruston de la vikingedzino, kaj poste ĝi flugis al la cikonia
 
 
 patrino kaj rakontis al ŝi ĉion, dum la idoj aŭskultis. Ili nun estis jam sufiĉe grandaj por tio.
@@ -551,33 +445,22 @@ Kian ĝojon havis vikingedzino, kiam matene post la vekiĝo
 
 Fine ĝi endormiĝis de la plorado, kaj kiam ĝi tiel kuŝis, ĝi aspektis tre ĉarme. Al la vikingedzino estis tiel ĝoje kaj bone en la koro, ŝi antaŭsentis, ke nun ankaŭ ĝia edzo kun ĉiuj siaj militistoj venos tiel same neatendite, kiel la infano, kaj tial ŝi kaj la tuta domanaro havis tre multe da laborado, por ĉion meti en bonan ordon. La longaj diverskoloraj tapiŝoj, kiujn ŝi mem faris kun siaj servistinoj, kaj en kiujn ŝi enteksis la bildojn de siaj ĉefaj dioj, de Odin, de Thor kaj de Freia, estis nun pendigitaj kiel murornamaĵoj; la servutuloj devis frotpurigi la ŝildojn, kiuj servis por la sama celo, sur la benkojn oni metis kusenojn, kaj sur la fajrejo meze de la ĉambrego oni amasigis sekan brullignon, por ke oni povu tuj fari fajron. La vikingedzino mem forte laboris, tiel ke vespere ŝi estis tre laca kaj bone dormis.
 
-Kiam matene ŝi vekiĝis, ŝi forte ektimiĝis, ĉar la malgran-21
-
-FABELOJ 4
-
-
-da infano malaperis sen postesignoj. ŝi saltleviĝis, ekbruligis pecon da ligno kaj rigardis ĉirkaŭen, kaj jen ŝi ekvidis, ke sur la pieda parto de la lito kuŝis ne la malgranda infano, sed granda malbela rano. ia aspekto elvokis ĉe ŝi grandan abo-menon, ŝi kaptis pezan bastonon kaj volis mortigi la ranon, sed ĉi tiu rigardis sin per tiel neordinare malgajaj okuloj, ke la koro ne permesis al ŝi ekbati. Ankoraŭ unu fojon ŝi rigardis ĉiuflanken, la rano kvakis tiel timeme, kvazaŭ ĝi volus elpetegi de ŝi kompaton; ŝi ektremis kaj kuris de sia lito al la fenestro, kiun ŝi ekpuŝe malfermis. En la sama momento levi-
+Kiam matene ŝi vekiĝis, ŝi forte ektimiĝis, ĉar la malgranda infano malaperis sen postesignoj. ŝi saltleviĝis, ekbruligis pecon da ligno kaj rigardis ĉirkaŭen, kaj jen ŝi ekvidis, ke sur la pieda parto de la lito kuŝis ne la malgranda infano, sed granda malbela rano. ia aspekto elvokis ĉe ŝi grandan abo-menon, ŝi kaptis pezan bastonon kaj volis mortigi la ranon, sed ĉi tiu rigardis sin per tiel neordinare malgajaj okuloj, ke la koro ne permesis al ŝi ekbati. Ankoraŭ unu fojon ŝi rigardis ĉiuflanken, la rano kvakis tiel timeme, kvazaŭ ĝi volus elpetegi de ŝi kompaton; ŝi ektremis kaj kuris de sia lito al la fenestro, kiun ŝi ekpuŝe malfermis. En la sama momento levi-
 
 ĝis la suno, ĵetis siajn radiojn rekte sur la grandan ranon en la lito, kaj subite montriĝis, ke la larĝa buŝo de la monstro kuntiriĝis kaj fariĝis malgranda kaj ruĝa, la membroj ricevis plej ĉarman formon, kaj jen tie kuŝis denove ŝia propra malgranda bela infano anstataŭ malbela rano.
 
 ”Kio tio estas!” ŝi diris; ”ĉu mi havis malbonan sonĝon? Tio estas ja mia propra plej ĉarma elfa infano, ĝi, kiu kuŝas tie antaŭ mi!” Kaj ŝi kisis ĝin kaj alpremis ĝin al sia koro, sed la infano gratis kaj mordis kiel sovaĝa kateto.
 
-Nek en tiu tago nek en la sekvanta venis la vikingo, kvan-
+Nek en tiu tago nek en la sekvanta venis la vikingo, kvankam li estis jam sur la vojo, sed li havis kontraŭ si la venton, kiu nun blovis, por peli la cikoniojn suden. ojo de unu estas ofte malĝojo de alia.
 
-kam li estis jam sur la vojo, sed li havis kontraŭ si la venton, kiu nun blovis, por peli la cikoniojn suden. ojo de unu estas ofte malĝojo de alia.
-
-Post kelke da tagoj kaj noktoj al la vikingedzino fariĝis klare, kia estas la afero kun ŝia malgranda infano. Terura sorĉo estis sur ĝi. En la tago ĝi estis bela kiel luma elfo sed havis malbonan, sovaĝan naturon; sed en la nokto ĝi estis malbela rano, silentema kaj kompatinda, kun malgajaj okuloj. Tie estis du tute malsamaj naturoj, kiuj alternadis kiel ekstere, tiel ankaŭ interne; ĝi venis de tio, ke la malgranda knabineto, 22
-
-FABELOJ 4
+Post kelke da tagoj kaj noktoj al la vikingedzino fariĝis klare, kia estas la afero kun ŝia malgranda infano. Terura sorĉo estis sur ĝi. En la tago ĝi estis bela kiel luma elfo sed havis malbonan, sovaĝan naturon; sed en la nokto ĝi estis malbela rano, silentema kaj kompatinda, kun malgajaj okuloj. Tie estis du tute malsamaj naturoj, kiuj alternadis kiel ekstere, tiel ankaŭ interne; ĝi venis de tio, ke la malgranda knabineto,
 
 
 kiun la cikonio alportis, en la tago posedis la eksteraĵon de sia patrino, sed samtempe la karakteron de sia patro, dum en la nokto ĝi montris sian parencecon kun li per la formo de sia korpo, havante la menson kaj koron de la patrino. Kiu povus forigi la potencon, kiun tie aperigis ia sorĉa forto? Tio kaŭzis al la vikingedzino zorgojn kaj afliktojn, kaj tamen ŝia koro estis alligita al tiu kompatinda estaĵo, pri kies stato ŝi pensis, ke ŝi nenion devas diri al sia edzo, kiam li revenos, ĉar alie li certe, konforme al la kutimoj kaj moroj, ordonus elĵeti la malfeliĉan infanon sur la landvojon, por ke ĝin prenu, kiu volos.
 
 Tion la koro de la bona vikingedzino ne povis permesi, tial ŝi decidis aranĝi, ke ŝia edzo vidu la infanon nur ĉe la lumo de la tago.
 
-Unu matenon trans la tegmenton brue transflugis la ciko-
-
-nioj; dum la nokto tie ripozis pli ol cent paroj da cikonioj post la grandaj manovroj. Nun ili leviĝis, por flugi suden.
+Unu matenon trans la tegmenton brue transflugis la cikonioj; dum la nokto tie ripozis pli ol cent paroj da cikonioj post la grandaj manovroj. Nun ili leviĝis, por flugi suden.
 
 ”ĉiuj estas pretaj!” oni proklamis; ”ankaŭ la inoj kaj infanoj!”
 
@@ -587,12 +470,7 @@ nioj; dum la nokto tie ripozis pli ol cent paroj da cikonioj post la grandaj man
 
 Kaj ili ekflugis.
 
-En la sama tempo aŭdiĝis sonado de kornoj super la erike-
-
-jo, ĵus elŝipiĝis la vikingo kun ĉiuj militistoj. Ili revenis kun riĉa militakiraĵo de la Galla bordo, kie la popolo, same kiel en Britujo, kun timego kantadis:
-
-
-FABELOJ 4
+En la sama tempo aŭdiĝis sonado de kornoj super la erikejo, ĵus elŝipiĝis la vikingo kun ĉiuj militistoj. Ili revenis kun riĉa militakiraĵo de la Galla bordo, kie la popolo, same kiel en Britujo, kun timego kantadis:
 
 
 ”Liberigu nin Dio, de l’ sovaĝaj Normandoj!”
@@ -601,17 +479,11 @@ Kia vivo, kia gajeco komenciĝis nun en la vikinga kastelo
 
 apud la sovaĝa marĉejo! Oni enportis la kruĉojn kun mielak-vo en la ĉambregon, oni ekbruligis fajron, oni buĉis ĉevalojn.
 
-La odoro de rostaĵo plenigis ĉiujn ĉambrojn. La pastro kon-sekre aspergis la sklavojn per varma ĉevala sango; la fajro kraketis, la fumo leviĝis sub la plafonon, la fulgo gutadis de la traboj, sed al tio oni estis alkutimiĝintaj. Gastoj estis invi-titaj kaj ricevis luksan regaladon, intrigoj kaj malicaĵoj estis forgesitaj, oni festenis bonege, kaj por signo de bona humoro oni ĵetadis al si la ĉirkaŭmanĝitajn ostojn reciproke en la viza-
+La odoro de rostaĵo plenigis ĉiujn ĉambrojn. La pastro kon-sekre aspergis la sklavojn per varma ĉevala sango; la fajro kraketis, la fumo leviĝis sub la plafonon, la fulgo gutadis de la traboj, sed al tio oni estis alkutimiĝintaj. Gastoj estis invi-titaj kaj ricevis luksan regaladon, intrigoj kaj malicaĵoj estis forgesitaj, oni festenis bonege, kaj por signo de bona humoro oni ĵetadis al si la ĉirkaŭmanĝitajn ostojn reciproke en la vizaĝon. La bardo, duone muzikisto kaj duone militisto, kiu partoprenis en la militiro kaj estis vidanta atestanto de la faroj, kiujn li prezentis, kantis al ili kanton, kiu gloris iliajn grandajn militajn agojn. ĉiu verso finiĝis per la rekantaĵo: ”La fortoj malaperas kaj la generacioj forpasas, al ĉiu venas la morto, sed eterne vivas glora nomo!” ĉe tio ili ĉiuj frapadis la ŝildojn kaj marteladis per la tranĉilo aŭ per osto sur la tabulo de la tablo, tiel ke regis terura bruo.
 
-ĝon. La bardo, duone muzikisto kaj duone militisto, kiu partoprenis en la militiro kaj estis vidanta atestanto de la faroj, kiujn li prezentis, kantis al ili kanton, kiu gloris iliajn grandajn militajn agojn. ĉiu verso finiĝis per la rekantaĵo: ”La fortoj malaperas kaj la generacioj forpasas, al ĉiu venas la morto, sed eterne vivas glora nomo!” ĉe tio ili ĉiuj frapadis la ŝildojn kaj marteladis per la tranĉilo aŭ per osto sur la tabulo de la tablo, tiel ke regis terura bruo.
+La vikingedzino sidis sur la laŭlarĝa benko en la nefermita festena ĉambrego; ŝi havis sur si silkan veston, orajn bra-celetojn kaj sukcenajn perlojn. ŝi estis en sia plej bona paradaĵo, kaj la bardo parolis en sia kanto ankaŭ pri ŝi, rakontis pri la ora trezoro, kiun ŝi alportis al sia riĉa edzo, kaj ĉi tiu estis ravita pri la bela infano, kiun li vidis nur en la tago en ĝia tuta beleco. La sovaĝeco, kiun oni vidis ĉe ĝi, plaĉis al li. La infano povus iam laŭ lia opinio fariĝi bonega ŝildknabino, kiu al neniu fortegulo devus cedi; ŝi ne palpebrumos, se lerta ma-no per akra glavo dehakos al ŝi la brovojn.
 
-La vikingedzino sidis sur la laŭlarĝa benko en la nefermi-
-
-ta festena ĉambrego; ŝi havis sur si silkan veston, orajn bra-celetojn kaj sukcenajn perlojn. ŝi estis en sia plej bona paradaĵo, kaj la bardo parolis en sia kanto ankaŭ pri ŝi, rakontis pri la ora trezoro, kiun ŝi alportis al sia riĉa edzo, kaj ĉi tiu estis ravita pri la bela infano, kiun li vidis nur en la tago en ĝia tuta beleco. La sovaĝeco, kiun oni vidis ĉe ĝi, plaĉis al li. La infano povus iam laŭ lia opinio fariĝi bonega ŝildknabino, kiu al neniu fortegulo devus cedi; ŝi ne palpebrumos, se lerta ma-no per akra glavo dehakos al ŝi la brovojn.
-
-La kruĉoj de mielakvo estis malplenigitaj, kaj oni alportis 24
-
-FABELOJ 4
+La kruĉoj de mielakvo estis malplenigitaj, kaj oni alportis
 
 
 aliajn. Tiam oni ne leviĝadis ankoraŭ tiel baldaŭ de festenado; la tiamaj homoj povis ion traelporti. En tiu tempo estis populara la proverbo: ”La bruto scias, kiam ĝi de la paŝtejo devas reiri hejmen, sed malprudenta homo neniam konas la
@@ -620,31 +492,23 @@ mezuron de sia stomako.” Ho, oni ĝnis tre bone, sed
 
 inter scii kaj fari estas diferenco. Oni ankaŭ sciis, ke amiko fariĝas teda, se li tro longe sidas en la domo de alia homo, sed malgraŭ tio oni restadis, ĉar viando kaj mielakvo estas bona aĵo. Estis gaje, kaj en la nokto la servutuloj dormadis en la varma cindro, trempadis la fingrojn en la grasa fulgo kaj le-kadis ilin. Tio estis stranga tempo!
 
-Ankoraŭ unu fojon en tiu jaro la vikingo entreprenis mili-
-
-tiron, malgraŭ ke jam leviĝis la aŭtunaj ventegoj. Li iris kun siaj militistoj al la Brita bordo, kio, kiel li diris, estas ja ”nur transe de la akvo”. Lia edzino restis hejme kun sia malgranda knabino, kaj estis certe, ke la edukantino baldaŭ preskaŭ pli amis la malfeliĉan ranon kun la mildaj okuloj, ol la belu-linon, kiu gratis kaj mordis.
+Ankoraŭ unu fojon en tiu jaro la vikingo entreprenis militiron, malgraŭ ke jam leviĝis la aŭtunaj ventegoj. Li iris kun siaj militistoj al la Brita bordo, kio, kiel li diris, estas ja ”nur transe de la akvo”. Lia edzino restis hejme kun sia malgranda knabino, kaj estis certe, ke la edukantino baldaŭ preskaŭ pli amis la malfeliĉan ranon kun la mildaj okuloj, ol la belu-linon, kiu gratis kaj mordis.
 
 La krudaj, malsekaj aŭtunaj nebuloj, antaŭ kiuj falas la folioj, kuŝis super la arbaro kaj super la erikejo; la birdosenplu-mulo, kiel oni tie nomas la neĝon, alflugis en densaj amasoj, la vintro alproksimiĝis. La paseroj okupis la neston de la cikonioj kaj mokridis siamaniere la forestantajn gemastrojn; kaj ĉi tiuj mem, la cikoniaj gepatroj kun ĉiuj siaj infanoj, kie ili nun estis?
 
 
-La cikonioj estis nun en Egiptujo, kie la suno lumis tiel varme, kiel ĉe ni en bela somera tago. Tamarindoj kaj akacioj 25
-
-FABELOJ 4
+La cikonioj estis nun en Egiptujo, kie la suno lumis tiel varme, kiel ĉe ni en bela somera tago. Tamarindoj kaj akacioj
 
 
 floris ĉirkaŭe, la luno de Mahometo hele radiis de la templaj kupoloj, tiu aŭ alia paro da cikonioj sidis sur la graciaj turoj kaj ripozis post la longa vojaĝo. Grandaj svarmoj havis neston apud nesto sur la potencaj kolonoj kaj ruiniĝintaj arkaĵo; de temploj kaj sur forlasitaj lokoj. La daktilpalmo etendis sian ŝirman foliaron tre alte, kvazaŭ ĝi volus ludi la rolon de su-nombrelo. La blankete-grizaj piramidoj estis distingeblaj kiel siluetoj en la klara aero en la flanko de la dezerto, kie la struto montris, ke li bone povoscias uzi siajn piedojn, kaj la leono kun siaj grandaj saĝaj okuloj sidis kaj rigardis la marmoran sfinkson, kiu kuŝis duone enterigita en la sablo. La akvo de Nilo estis retiriĝinta, la tuta fluejo estis plena de ranoj kaj prezentis por la cikonia familio la plej belan vidaĵon en ĉi tiu lando. La cikoniidoj pensis, ke tio estas trompo de la okuloj, tiel neesprimeble bela ili trovis la vidaĵon.
 
 ”Tiel estas ĉi tie, kaj tion ni havas ĉiam en nia varma lan-do!” diris la cikonia patrino, kaj la infanoj sentis tikladon en la stomako.
 
-”ĉu ni vidos ankoraŭ ion plu?” ili demandis; ”ĉu ni pene-
-
-tros pli profunden en la landon?”
+”ĉu ni vidos ankoraŭ ion plu?” ili demandis; ”ĉu ni penetros pli profunden en la landon?”
 
 ”Tie oni nenion plu povas vidi,” diris la cikonia patrino.
 
-”Post la luksa regiono komenciĝas nur nepenetrebla arbaro, en kiu la arboj kreskas unu en la alian kaj per pikantaj vol-vekreskaĵoj estas ligitaj en ne malimplikeblan densaĵon, tiel ke nur la elefanto havas la eblon trafari al si vojon per siaj masivaj piedoj. La serpentoj tie estas por ni tro grandaj kaj la lacertoj tro rapidkuraj kaj viglaj. Se vi volus iri en la dezerton, vi ricevus sablon en la okulojn, se la afero iros bone, sed se ĝi irus malbone, vi trafos en sablan trombon. Ne, ĉi tie estas plej 26
-
-FABELOJ 4
+”Post la luksa regiono komenciĝas nur nepenetrebla arbaro, en kiu la arboj kreskas unu en la alian kaj per pikantaj vol-vekreskaĵoj estas ligitaj en ne malimplikeblan densaĵon, tiel ke nur la elefanto havas la eblon trafari al si vojon per siaj masivaj piedoj. La serpentoj tie estas por ni tro grandaj kaj la lacertoj tro rapidkuraj kaj viglaj. Se vi volus iri en la dezerton, vi ricevus sablon en la okulojn, se la afero iros bone, sed se ĝi irus malbone, vi trafos en sablan trombon. Ne, ĉi tie estas plej
 
 
 bone; ĉi tie ni havas ranojn kaj akridojn, ĉi tie mi restos kaj vi ankaŭ!”
@@ -655,9 +519,7 @@ Poste ili elstreĉis la kolojn supren, salutis gravmiene kaj levis la kapojn kun
 
 Sed en la riĉa palaco de ilia Egipta dommastro ne estis gaje.
 
-La riĉa potenca sinjoro, paralizita en ĉiuj membroj, kuŝis etendita kiel mumio sur lito en la granda salono kun la kolorriĉaj muroj. Parencoj kaj servistoj staris ĉirkaŭ li; senviva li ne estis, tamen oni ankaŭ ne povis vere diri, ke li vivas. La sav-anta marĉeja floro el la nordaj landoj, kiu devis esti elserĉita 27
-
-FABELOJ 4
+La riĉa potenca sinjoro, paralizita en ĉiuj membroj, kuŝis etendita kiel mumio sur lito en la granda salono kun la kolorriĉaj muroj. Parencoj kaj servistoj staris ĉirkaŭ li; senviva li ne estis, tamen oni ankaŭ ne povis vere diri, ke li vivas. La sav-anta marĉeja floro el la nordaj landoj, kiu devis esti elserĉita
 
 
 kaj deŝirita de tiu, kiu amis lin plej varmege, ĉiam ankoraŭ ne estis alportita. Lia bela juna filino, kiu en cigna vesto flugis trans landojn kaj marojn malproksime norden, estis neniam
@@ -668,21 +530,15 @@ revenonta. ”ŝi mortis kaj malaperis!” raportis la du hejmen revenintaj virg
 
 Ili ambaŭ ploris, sed cikonia patro, kiu okaze estis aŭskultanto de tiu rakonto, frapis fortege per la beko.
 
-”Mensogo kaj elpenso!” li diris. ”Vere mi tre volonte en-
-
-puŝus al ili mian bekon en la bruston!”
+”Mensogo kaj elpenso!” li diris. ”Vere mi tre volonte enpuŝus al ili mian bekon en la bruston!”
 
 ”Por rompi al si la bekon!” diris la cikonia patrino. ”Bele vi tiam aspektus! Antaŭ ĉio pensu pri vi mem kaj pri via familio; ĉio alia vin ne devas interesi!”
 
-”Mi tamen morgaŭ sidiĝos sur la rando de la nefermita ku-
-
-polo, kiam ĉiuj scienculoj kaj saĝuloj kolektiĝos, por konsiliĝi pri la stato de la malsanulo; eble tiamaniere ili pli alproksimi-
+”Mi tamen morgaŭ sidiĝos sur la rando de la nefermita kupolo, kiam ĉiuj scienculoj kaj saĝuloj kolektiĝos, por konsiliĝi pri la stato de la malsanulo; eble tiamaniere ili pli alproksimi-
 
 ĝos al la vero.”
 
-Kaj la scienculoj kaj saĝuloj kunvenis kaj parolis multe tre multe, multvorte kaj edife, kion la cikonio tute ne povis kompreni, — kaj por la malsanulo aŭ por lia filino en la marĉejo 28
-
-FABELOJ 4
+Kaj la scienculoj kaj saĝuloj kunvenis kaj parolis multe tre multe, multvorte kaj edife, kion la cikonio tute ne povis kompreni, — kaj por la malsanulo aŭ por lia filino en la marĉejo
 
 
 efektive nenio rezultis el tio, tamen malgraŭ tio ni povas iom aŭskulti tion, ĉar diversajn aferojn oni ja ofte devas aŭskulti.
@@ -707,22 +563,16 @@ Li fariĝis ĉe tio tute enpensigita, fermis duone la okulojn, kaj dum la tuta s
 
 Tamen unu aferon la cikonia patro komprenis, ĉar li aŭdis, ke tion egale sincere esprimis simplaj burĝoj, kiel ankaŭ plej grandaj eminentuloj, — ke por multaj miloj da homoj kaj
 
-samtempe por la lando estas malfeliĉo, ke la granda sinjoro kuŝas malsana kaj ne povas denove resaniĝi; ke estus feliĉo kaj beno, se li denove ricevus sian sanon. ”Sed kie kreskas la 29
-
-FABELOJ 4
+samtempe por la lando estas malfeliĉo, ke la granda sinjoro kuŝas malsana kaj ne povas denove resaniĝi; ke estus feliĉo kaj beno, se li denove ricevus sian sanon. ”Sed kie kreskas la
 
 
 floro, kiu povas ree alporti al li sanon?” Pri tio ĉiuj demandis, serĉis en sciencaj verkoj, en lumantaj bildoj de la steloj, en la vento kaj vetero, serĉis per ĉiuj eblaj rimedoj, kaj fine la scienculoj kaj la saĝuloj eltrovis, kiel ni diris, ke ”la amo naskas kaj subtenas la vivon, la vivon de la patro,” kaj per tio ili diris pli, ol ili mem komprenis. Poste ili ripetis kaj skribis kiel recepton: ”la amo naskas kaj subtenas la vivon”, sed kiamaniere oni povus pretigi la recepton, — pri tio oni ne havis respondon. Fine ili venis al unuanima decido, ke la helpo devas veni de la princino, de ŝi, kiu amis sian patron per la tuta koro kaj la tuta animo. Oni fine trovis la rimedon, per kiu la helpo povus esti akirita, kaj en la serĉado pasis pli ol tuta jaro.
 
 ŝi devis en novluna nokto, post la subiro de la luno, iri al la marmora sfinkso ĉe la rando de la dezerto, forrasti la sablon antaŭ la pordo en la piedo de la sfinkso kaj trairi la longan koridoron, kiu kondukas en la mezon de unu el la grandaj
 
-piramidoj, kie unu el la potencaj reĝoj de la malproksima an-tikveco, ĉirkaŭita de granda lukso, kuŝas en mumia ĉirkaŭ-
+piramidoj, kie unu el la potencaj reĝoj de la malproksima an-tikveco, ĉirkaŭita de granda lukso, kuŝas en mumia ĉirkaŭkovro. Tie ŝi devis apogi sian kapon al la mortinto, kaj tiam estus malkaŝite al ŝi, kiamaniere oni povas akiri la vivon kaj savon por ŝia patro. ĉion ĉi tion ŝi plenumis, kaj en sonĝo ŝi sciiĝis, ke el la profunda marĉo norde en la Dana lando — la loko estis prisribita al ŝi tute precize — ŝi devas alporti hejmen la lotusan floron, kiu en la profundo de la akvo estos ektuŝinta ŝian bruston. Tiu floro redonos al li la sanon.
 
-kovro. Tie ŝi devis apogi sian kapon al la mortinto, kaj tiam estus malkaŝite al ŝi, kiamaniere oni povas akiri la vivon kaj savon por ŝia patro. ĉion ĉi tion ŝi plenumis, kaj en sonĝo ŝi sciiĝis, ke el la profunda marĉo norde en la Dana lando — la loko estis prisribita al ŝi tute precize — ŝi devas alporti hejmen la lotusan floron, kiu en la profundo de la akvo estos ektuŝinta ŝian bruston. Tiu floro redonos al li la sanon.
-
-Por tio ŝi flugis en cigna vesto al la sovaĝa marĉejo. ĉion ĉi tion sciis la cikonia patro kaj la cikonia patrino, kaj nun ni scias tion pli precize, ol ni sciis antaŭe. Ni scias, ke la reĝo de la marĉo malsuprentiris ŝin al si, ni scias, ke por la siaj en la hejmo ŝi mortis kaj malaperis. Nur la plej saĝa el ili ĉiuj diris 30
-
-FABELOJ 4
+Por tio ŝi flugis en cigna vesto al la sovaĝa marĉejo. ĉion ĉi tion sciis la cikonia patro kaj la cikonia patrino, kaj nun ni scias tion pli precize, ol ni sciis antaŭe. Ni scias, ke la reĝo de la marĉo malsuprentiris ŝin al si, ni scias, ke por la siaj en la hejmo ŝi mortis kaj malaperis. Nur la plej saĝa el ili ĉiuj diris
 
 
 ankoraŭ, tiel same kiel la cikonia patrino: ”ŝi iel sin savos!”
@@ -742,18 +592,12 @@ Kaj tion oni volis atendi, ĉar ion pli bonan oni ne sciis.
 
 En la vikinga kastelo ĉe la sovaĝa marĉejo, kien la cikonioj Flugis en la printempo, al la malgranda knabino estis donita nomo. Oni donis al ŝi la nomon Helga, sed ĉi tiu nomo por tia spirito, kia plenigis la belan estaĵon, estis tro milda.
 
-Kun ĉiu monato la infano pli disvolviĝis, kaj en la daŭro de kelke da jaroj, dum kiuj la cikonioj regule faris la saman voja-
-
-ĝon, aŭtune al Nilo, printempe al la sovaĝa marĉejo, el la malgranda infano fariĝis granda knabino, kaj antaŭ ol oni bone rimarkis, ŝi ekfloris kiel plej belega deksesjara junulino. Sed 31
-
-FABELOJ 4
+Kun ĉiu monato la infano pli disvolviĝis, kaj en la daŭro de kelke da jaroj, dum kiuj la cikonioj regule faris la saman vojaĝon, aŭtune al Nilo, printempe al la sovaĝa marĉejo, el la malgranda infano fariĝis granda knabino, kaj antaŭ ol oni bone rimarkis, ŝi ekfloris kiel plej belega deksesjara junulino. Sed
 
 
 la bela ŝelo kaŝis en si malmolan kaj maldolĉan kernon; la junulino havis naturon pli sovaĝan, ol eĉ en tiu kruela malluma tempo oni povus ĉe iu trovi.
 
-Estis por ŝi plezuro trempi siajn blankajn manojn en la var-ma sango de la oferbuĉita ĉevalo; ŝi tramordadis en sia sova-
-
-ĝeco la kolon al la nigraj kokoj, kiujn la oferpastro devis buĉi, kaj al sia adoptinta patro ŝi diris tute serioze:
+Estis por ŝi plezuro trempi siajn blankajn manojn en la var-ma sango de la oferbuĉita ĉevalo; ŝi tramordadis en sia sovaĝeco la kolon al la nigraj kokoj, kiujn la oferpastro devis buĉi, kaj al sia adoptinta patro ŝi diris tute serioze:
 
 ”Se venus via malamiko kaj ligus ŝnuron al la traboj de nia tegmento kaj levus ĉi tiun senpere super la ĉambro, en kiu vi dormas, mi vin ne vekus, eĉ se mi tion povus fari. Mi tion tute ne aŭdus, tiel ĉiam ankoraŭ bruas la sango ĉirkaŭ mia orelo, sur kiun vi donis al mi vangfrapon antaŭ kelka nombro da
 
@@ -767,9 +611,7 @@ La vikingedzino konforme al la tempo kaj kutimoj havis
 
 firman volon kaj fortan karakteron, sed en komparo kun sia filino ŝi estis milda, timema virino. ŝi sciis ja ankaŭ, ke sur la terura infano kuŝas sorĉo.
 
-Kiam la patrino estis en la subtegmento aŭ eliris sur la kor-ton, Helgan tre ofte kaptadis la malbona fantazio sidiĝi sur la 32
-
-FABELOJ 4
+Kiam la patrino estis en la subtegmento aŭ eliris sur la kor-ton, Helgan tre ofte kaptadis la malbona fantazio sidiĝi sur la
 
 
 rando de la puto, bati ĉirkaŭen per la manoj kaj piedoj kaj poste ĵeti sin en la mallarĝan profundan puton. Tie ŝi konforme al sia rana naturo subakviĝadis kaj poste leviĝadis returne supren, grimpadis kiel kato kaj venadis, abunde gutigan-te akvon, en la salonon.
@@ -786,30 +628,22 @@ malbona estas via aspekto, kiam via beleco brilas eksteren.”
 
 ĵetis ilin sur la malfeliĉan estaĵon, sed pliboniĝo ne aperis.
 
-”Oni ne povus pensi, ke ŝi estis tiel malgranda kaj kuŝis en akvolilio!” diris unu fojon la cikonia patro; ”nun ŝi estas tuta homo kaj mirinde simila al sia Egipta patrino. ĉi tiun ni neniam plu vidis! ŝi ne saviĝis, kiel diris vi kaj la scienculoj. ĉiujare mi flugis laŭlonge kaj laŭlarĝe super la tuta sovaĝa marĉejo, sed ŝi neniam donis ian signon pri si. Mi eĉ konfesos 33
-
-FABELOJ 4
+”Oni ne povus pensi, ke ŝi estis tiel malgranda kaj kuŝis en akvolilio!” diris unu fojon la cikonia patro; ”nun ŝi estas tuta homo kaj mirinde simila al sia Egipta patrino. ĉi tiun ni neniam plu vidis! ŝi ne saviĝis, kiel diris vi kaj la scienculoj. ĉiujare mi flugis laŭlonge kaj laŭlarĝe super la tuta sovaĝa marĉejo, sed ŝi neniam donis ian signon pri si. Mi eĉ konfesos
 
 
 al vi, en la jaroj, kiam mi venis ĉi tien kelke da tagoj antaŭ vi, por ripari la neston kaj ordigi tion aŭ alian, mi ĉiufoje flugadis tien kaj reen tra tuta nokto, kvazaŭ mi estus strigo aŭ ve-sperto, ĉiam super la akvo ĉi tie, sed tute sen ia sukceso. is nun ankoraŭ kuŝas tute sen ia utilo la du cignaj vestoj, kiujn mi kun niaj infanoj trenis de Nilo ĉi tien; tio estis sufiĉe malfacila, ni bezonis por tio tri plenajn vojaĝojn. Nun ili jam de tre longa tempo kuŝas sur la fundo de nia nesto, kaj se iam okazos fajro, se la traba domo forbrulos, tiam ankaŭ ili malaperos!”
 
 ”Kaj malaperos nia bona nesto!” diris la cikonia patrino.
 
-”Pri tio vi pensas malpli ol pri la plumvestoj kaj pri via mar-
+”Pri tio vi pensas malpli ol pri la plumvestoj kaj pri via marĉeja princino. Vi devus prefere tuj malsupreniri al ŝi kaj resti en la marĉo. En rilato al via propra familio vi estas malbona patro, tion mi jam diris al vi, kiam mi la unuan fojon ko-vis. Ke nur la sovaĝa vikinga knabinaĉo ne pafu al ni aŭ al niaj infanoj sagon en la flugilojn! ŝi ne scias ja, kion ŝi faras. Ni vivas ja ĉi tie de pli longatempe ol ŝi, tion ŝi devus pripensi!
 
-ĉeja princino. Vi devus prefere tuj malsupreniri al ŝi kaj resti en la marĉo. En rilato al via propra familio vi estas malbona patro, tion mi jam diris al vi, kiam mi la unuan fojon ko-vis. Ke nur la sovaĝa vikinga knabinaĉo ne pafu al ni aŭ al niaj infanoj sagon en la flugilojn! ŝi ne scias ja, kion ŝi faras. Ni vivas ja ĉi tie de pli longatempe ol ŝi, tion ŝi devus pripensi!
-
-Ni neniam forgesas nian devon, ni donas ĉiujare nian im-
-
-poston, plumon, ovon kaj birdidon, kiel la justeco kaj leĝo postulas. ĉu vi pensas, ke tiam, kiam ŝi estas ekstere, mi kura-
+Ni neniam forgesas nian devon, ni donas ĉiujare nian imposton, plumon, ovon kaj birdidon, kiel la justeco kaj leĝo postulas. ĉu vi pensas, ke tiam, kiam ŝi estas ekstere, mi kura-
 
 ĝas iri malsupren, kiel antaŭe kaj kiel mi faradis en Egiptujo, kie mi komunikiĝadis kun la homoj tute familiare kaj enrigar-dadis en pladojn kaj potojn? Ne, mi sidas ĉi tie supre kaj koleras pri ŝi, tiu knabinaĉo! Kaj mi koleras ankaŭ pri vi! Vi devis tiam trankvile lasi ŝin en la akvolilio, tiam ŝi nun ne estus ĉi tie!”
 
 ”Vi estas multe pli estiminda ol via parolo!” diris la cikonia patro; ”mi konas vin pli bone, ol vi mem vnas!”
 
-Kaj li faris salton, du fortajn batojn per la flugiloj, streĉis la 34
-
-FABELOJ 4
+Kaj li faris salton, du fortajn batojn per la flugiloj, streĉis la
 
 
 piedojn malantaŭen kaj ekflugis pluen, aŭ pli ĝuste eknaĝis, tute ne movante la flugilojn. Kiam li estis jam sufiĉe malproksime, li faris ankoraŭ unu fortan flugilbaton, la suno prilumis liajn blankajn plumojn, kaj lia kolo kaj kapo streĉiĝis antaŭen.
@@ -821,9 +655,7 @@ Oni povis samtempe admiri en li forton kaj energion.
 
 Frue, jam en la tempo de rikoltado, ĉi tiun fojon revenis la vikingo kun militakiraĵo kaj kaptitoj. Inter ĉi tiuj troviĝis juna Kristana pastro, unu el tiuj viroj, kiuj persekutis la malnovajn diojn de la nordaj landoj. El la lasta tempo oni ofte parolis en la ĉambrego kaj ankaŭ en la virina ĉambro pri la nova religio, kiu jam disvastiĝis en ĉiuj pli sudaj landoj kaj per la sankta Ansgario penetris jam eĉ alte norden. Eĉ la malgranda Helga aŭdis pri la kredo je la blanka Kristo, kiu pro amo al la homoj sin fordonis, por ilin savi. Tio, kiel oni ordinare diras, en unu orelon al ŝi eniris kaj el la dua eliris. Senton por amo ŝi, kiel ŝajnis, havis nur tiam, kiam ŝi en la ŝlosita ĉambreto ricevadis la mizeran formon de rano. Sed la vikingedzino aŭskultis, kaj ŝi sentis sin mirinde impresita de la rakontoj kiuj cirkuladis pri la filo de la sole vera Dio.
 
-La viroj, kiuj revenis el la militiro, rakontis pri la belegaj temploj el ĉirkaŭakitaj multekostaj ŝtonoj, kiuj estis konstruitaj por la honoro de tiu, kies ordono estis la amo. Kelke da pezaj oraj vazoj artiste faritaj oni alportis kun si hejmen, kaj ĉiu el ili eligadis strangan spican odoron. Tio estis incensiloj, kiujn la Kristanaj pastroj svingadis antaŭ la altaro, sur kiu 35
-
-FABELOJ 4
+La viroj, kiuj revenis el la militiro, rakontis pri la belegaj temploj el ĉirkaŭakitaj multekostaj ŝtonoj, kiuj estis konstruitaj por la honoro de tiu, kies ordono estis la amo. Kelke da pezaj oraj vazoj artiste faritaj oni alportis kun si hejmen, kaj ĉiu el ili eligadis strangan spican odoron. Tio estis incensiloj, kiujn la Kristanaj pastroj svingadis antaŭ la altaro, sur kiu
 
 
 neniam fluis sango, sed nur la konsekrita pano kaj vino aliformiĝadis en lian korpon kaj lian sangon, kiun li estis for-doninta por la ankoraŭ ne naskitaj generacioj.
@@ -844,29 +676,18 @@ La malbela rano kun la prisorĉita korpo staris antaŭ ŝi kaj fiksis sur ŝi si
 
 kiel ŝajnis — kun homa prudento komprenis ŝiajn vortojn.
 
-”Neniam, eĉ antaŭ mia edzo, eliris el mia buŝo eĉ unu vor-
-
-to pri tio, pro kio mi per vi nun duoble suferas!” diris la vikingedzino. ”En mia koro loĝas pli da suferado pro vi, ol kiom 36
-
-FABELOJ 4
+”Neniam, eĉ antaŭ mia edzo, eliris el mia buŝo eĉ unu vorto pri tio, pro kio mi per vi nun duoble suferas!” diris la vikingedzino. ”En mia koro loĝas pli da suferado pro vi, ol kiom
 
 
 mi mem povus pensi. Granda estas la amo de patrino, sed via koro ĉiam estis nealirebla por amo. Via koro estas malvarma kaj marĉa! Kiamaniere vi venis en mian domon?”
 
 Tiam stranga tremo trakuris la korpon de la malbela estaĵo, kvazaŭ la vortoj ektuŝis ian nevideblan ligilon inter la korpo kaj la animo; grandaj larmoj aperis en ĝiaj okuloj.
 
-”Via tempo de puno ankaŭ iam venos!” diris la vikinged-
+”Via tempo de puno ankaŭ iam venos!” diris la vikingedzino; ”terura ĝi estos ankaŭ por mi! Estus pli bone, se vi, estante ankoraŭ malgranda infano, estus elĵetita sur la landvojon kaj la malvarmo de la nokto lulus vin en la morton!” Kaj la vikingedzino ploris per maldolĉaj larmoj kaj kolere kaj afliktite eliris malantaŭ la ledan tapiŝon, kiu pendis malsupren de la plafona trabo kaj dividis la ĉambron.
 
-zino; ”terura ĝi estos ankaŭ por mi! Estus pli bone, se vi, estante ankoraŭ malgranda infano, estus elĵetita sur la landvojon kaj la malvarmo de la nokto lulus vin en la morton!” Kaj la vikingedzino ploris per maldolĉaj larmoj kaj kolere kaj afliktite eliris malantaŭ la ledan tapiŝon, kiu pendis malsupren de la plafona trabo kaj dividis la ĉambron.
-
-La ŝrumpinta rano sidis tute sola en la angulo; ĝi estis mu-ta, sed post kelka tempo ĝi eligis duone sufokitan ĝemon. Estis tiel, kvazaŭ en profunda doloro en la angulo de ĝia koro naskiĝis nova vivo. La malbela estaĵo faris unu paŝon antaŭ-
-
-en, aŭskultis, faris denove unu paŝon kaj kaptis per mallertaj manoj la pezan stangon, kiu estis antaŭsovita antaŭ la pordo.
+La ŝrumpinta rano sidis tute sola en la angulo; ĝi estis mu-ta, sed post kelka tempo ĝi eligis duone sufokitan ĝemon. Estis tiel, kvazaŭ en profunda doloro en la angulo de ĝia koro naskiĝis nova vivo. La malbela estaĵo faris unu paŝon antaŭen, aŭskultis, faris denove unu paŝon kaj kaptis per mallertaj manoj la pezan stangon, kiu estis antaŭsovita antaŭ la pordo.
 
 Senbrue ĝi eltiris la stangon, singarde ĝi forprenis la ŝtipeton, kiu estis ŝovita sub la anson. Poste ĝi prenis la brulantan lam-pon, kiu staris en la antaŭa parto de la ĉambro; estis tiel, kvazaŭ firma volo donis al ĝi forton. i eltiris la feran bolton el la fermita plankpordo kaj ŝtelece malsupreniris al la malliberulo. ĉi tiu dormis. La rano ektuŝis lin per sia malvarma malseka mano, kaj kiam li vekiĝis kaj ekvidis antaŭ si la malbelan figuron, li ektremis kiel de malbona vizio. La monstro eltiris sian tranĉilon, distranĉis la ligilojn de la malliberulo kaj faris al li signon, ke li ĝin sekvu.
-
-
-FABELOJ 4
 
 
 Li vokis sanktajn nomojn, faris la signon de kruco, kaj kiam li vidis, ke la figuro staras senŝange, li diris:
@@ -879,11 +700,7 @@ La kaptito ĝmprenis, kaj en rapida trotado ili rajdis laŭ vojo, kiun li neniam
 
 Li forgesis ĝian malbelan formon, li sentis nur la favorkorecon kaj kompaton de la Eternulo, aperigitan per ĉi tiu monstro; li eldiris piajn preĝojn kaj kantis sanktajn kantojn. Tiam
 
-ĝin atakis tremo; ĉu tio estis la forto de la preĝo kaj la potenco de la kantoj, kiuj ĉi tie sin elmontris, aŭ ĉu tio estis la malvarmo de la mateno, kiu estis jam proksima? Kion ŝi povis sen-ti? ŝi elrektiĝis, volis haltigi la ĉevalon kaj desalti, sed la Kristana pastro tenis ŝin per ĉiuj fortoj, laŭte kantis kanton, kiu povus forigi la sorĉon, kiu enigis ŝin en la malbelan ranan formon, kaj la ĉevalo pli sovaĝe ekkuris antaŭen, la ĉielo fari-
-
-ĝis ruĝa, la unua radio de la suno trarompis la nubon, kaj la klara lumfonto kaŭzis la aliformiĝon, ŝi denove estis la juna belulino kun la demona malbona spirito. Li tenis en siaj brakoj la plej belan junan virinon! kaj eksentis teruron pro tio, li desaltis de la ĉevalo kaj haltigis ĝin, pensante, ke nova pereiga sorĉaĵo blindigas liajn okulojn. Sed la juna Helga ankaŭ per unu salto estis sur la tero, la mallonga infana jupeto atingis 38
-
-FABELOJ 4
+ĝin atakis tremo; ĉu tio estis la forto de la preĝo kaj la potenco de la kantoj, kiuj ĉi tie sin elmontris, aŭ ĉu tio estis la malvarmo de la mateno, kiu estis jam proksima? Kion ŝi povis sen-ti? ŝi elrektiĝis, volis haltigi la ĉevalon kaj desalti, sed la Kristana pastro tenis ŝin per ĉiuj fortoj, laŭte kantis kanton, kiu povus forigi la sorĉon, kiu enigis ŝin en la malbelan ranan formon, kaj la ĉevalo pli sovaĝe ekkuris antaŭen, la ĉielo fariĝis ruĝa, la unua radio de la suno trarompis la nubon, kaj la klara lumfonto kaŭzis la aliformiĝon, ŝi denove estis la juna belulino kun la demona malbona spirito. Li tenis en siaj brakoj la plej belan junan virinon! kaj eksentis teruron pro tio, li desaltis de la ĉevalo kaj haltigis ĝin, pensante, ke nova pereiga sorĉaĵo blindigas liajn okulojn. Sed la juna Helga ankaŭ per unu salto estis sur la tero, la mallonga infana jupeto atingis
 
 
 nur ĝis ŝiaj genuoj; la akran tranĉilon ŝi eltiris el sia zono kaj ĵetis sin sur la surpriziton.
@@ -900,33 +717,22 @@ Kaj tamen li ankaŭ ĉi tie estis la pli forta; pli ol forto de viro kuŝis en l
 
 kiun ĝi venkis. ŝi mallevis siajn brakojn kaj rigardis kun ad-mirantaj okuloj tiun viron, kiu ŝajnis al ŝi potenca sorĉisto, potenca en la sekreta arto. Mallumajn, fatalajn runojn li laŭte legis; misterajn signojn li faradis en la aero. Nek antaŭ la brilanta hakilo nek antaŭ la akra tranĉilo ŝi eĉ palpebrumus, se li tion svingus antaŭ ŝiaj okuloj, sed ŝi ektremis, kiam li faris al ŝi sur la frunto kaj sur la brusto la signon de kruco. Kiel malsovaĝa birdo ŝi nun sidis, klininte la kapon al la brusto.
 
-Milde li parolis al ŝi pri la ama ago, kiun ŝi en tiu nokto faris rilate al li, kiam ŝi en la malbela formo de rano venis al li, disigis liajn ligilojn kaj rekondukis lin al la lumo kaj al la vivo. ŝi ankaŭ, li diris, estas ligita, ligita per pli kruelaj ligiloj ol li, sed ŝi ankaŭ venos al lumo kaj vivo per li. Al la sankta 39
-
-FABELOJ 4
+Milde li parolis al ŝi pri la ama ago, kiun ŝi en tiu nokto faris rilate al li, kiam ŝi en la malbela formo de rano venis al li, disigis liajn ligilojn kaj rekondukis lin al la lumo kaj al la vivo. ŝi ankaŭ, li diris, estas ligita, ligita per pli kruelaj ligiloj ol li, sed ŝi ankaŭ venos al lumo kaj vivo per li. Al la sankta
 
 
 Ansgario en Hedeby li ŝin venigos; tie en la Kristana urbo la sorĉo dissolviĝos. Sed li ne povas konduki ŝin tien antaŭ si sur la ĉevalo, eĉ se ŝi sidus trankvile kaj bonvole.
 
 ”Malantaŭ mi vi devas sidi sur la ĉevalo, ne antaŭ mi! Via sorĉa beleco havas potencon, kiu devenas el malbono, mi ĝin timas, — kaj tamen mi venkos en Kristo!”
 
-Li stariĝis genue kaj ekpreĝis pie kaj sincere. ŝajnis, kvazaŭ la silenta arbara naturo per tio fariĝis sankta preĝejo, la birdoj komencis kanti, kvazaŭ ankaŭ ili apartenus al la nova komunumo, kaj la sovaĝa mento bonodoris, kvazaŭ ĝi volus an-
-
-stataŭi altaron kaj incensojn. Laŭte li proklamis la vortojn de la Sankta Skribo:
+Li stariĝis genue kaj ekpreĝis pie kaj sincere. ŝajnis, kvazaŭ la silenta arbara naturo per tio fariĝis sankta preĝejo, la birdoj komencis kanti, kvazaŭ ankaŭ ili apartenus al la nova komunumo, kaj la sovaĝa mento bonodoris, kvazaŭ ĝi volus anstataŭi altaron kaj incensojn. Laŭte li proklamis la vortojn de la Sankta Skribo:
 
 ”La lumo el supre nin vizitis, por lumi al tiuj, kiuj sidas en la mallumo kaj en la ombro de la morto, por gvidi niajn piedojn al la vojo de la paco!”
 
 Kaj li parolis pri la sopirado de la kreitaĵo, kaj dum lia parolado haltis la ĉevalo, kiu estis portinta ilin en sovaĝa kurado, kaj movetadis la longajn trunketojn de la rubusarbeto, tiel ke la maturaj sukoplenaj fruktoj falis al la malgranda Helga en la manon kaj sin mem proponis kiel refreŝigaĵon.
 
-Pacience ŝi lasis sin levi sur la dorson de la ĉevalo kaj sidis tie kiel somnambulino, kiu ne vekiĝis kaj tamen ne vagas. La Kristana viro kunligis du branĉojn tiel, ke ili formis krucon, kiun li tenis rekte en la mano, kaj poste ili ekrajdis tra la arbaro, kie la denseco fariĝis ĉiam pli granda, la vojo ĉiam pli mallarĝa, kie la vojo fine eĉ tute ĉesiĝis. La prunelarbo baris al ili la vojon kiel bartrabo, kiun oni devis ĉirkaŭrajdi; el la fonto fariĝis ne fluanta rivereto, sed staranta marĉo, kiun oni ankaŭ devis ĉirkaŭrajdi. Forton kaj freŝecon elspiradis la pura arbara aero, kaj ne malpli granda forto fluis el la mildaj vor-40
+Pacience ŝi lasis sin levi sur la dorson de la ĉevalo kaj sidis tie kiel somnambulino, kiu ne vekiĝis kaj tamen ne vagas. La Kristana viro kunligis du branĉojn tiel, ke ili formis krucon, kiun li tenis rekte en la mano, kaj poste ili ekrajdis tra la arbaro, kie la denseco fariĝis ĉiam pli granda, la vojo ĉiam pli mallarĝa, kie la vojo fine eĉ tute ĉesiĝis. La prunelarbo baris al ili la vojon kiel bartrabo, kiun oni devis ĉirkaŭrajdi; el la fonto fariĝis ne fluanta rivereto, sed staranta marĉo, kiun oni ankaŭ devis ĉirkaŭrajdi. Forton kaj freŝecon elspiradis la pura arbara aero, kaj ne malpli granda forto fluis el la mildaj vortoj, kiuj sonadis en kredo kaj en Kristana amo, plenaj de kora deziro konduki al lumo kaj vivo ŝin, kiu estis jam venkita de la unua impreso.
 
-FABELOJ 4
-
-
-toj, kiuj sonadis en kredo kaj en Kristana amo, plenaj de kora deziro konduki al lumo kaj vivo ŝin, kiu estis jam venkita de la unua impreso.
-
-La guto da pluvo, kiel oni diras, kavigas la malmolan ŝto-
-
-non, la ondoj de la maro iom post iom rondigas la angulecan pecon da roko, la roso de la Dia favorkoreco, kiu nun la unuan fojon falis sur la malgrandan Helgan, kavigis la malmo-
+La guto da pluvo, kiel oni diras, kavigas la malmolan ŝtonon, la ondoj de la maro iom post iom rondigas la angulecan pecon da roko, la roso de la Dia favorkoreco, kiu nun la unuan fojon falis sur la malgrandan Helgan, kavigis la malmo-
 
 laĵon, rondigis la akraĵon. Estas vero, ke tuj oni tion ne povis rimarki, ŝi mem tion ne konsciis; ankaŭ la ĝermo en la tero ĉe la refreŝiga malsekeco kaj la varma radio de la suno ne scias ja, ke ĝi kaŝas en si kreskaĵon kaj floron.
 
@@ -936,16 +742,12 @@ menso de la infano kaj ĉi tiu imite balbutas la simplajn vortojn, ne komprenant
 
 Ili rapide forlasis la arbaron, trapasis la erikejon kaj denove senvojan arbaron, kaj vespere ili renkontiĝis kun rabistoj.
 
-”Kie vi ŝtelis la belan pupeton?” ili kriis; ili haltigis la ĉevalon kaj detiris la du rajdantojn, ĉar ili estis en tre granda nombro. La pastro havis nenian alian batalilon krom la tranĉilo, kiun li estis elŝirinta el la manoj de la malgranda Helga, kaj per ĝi li kuraĝe batadis ĉirkaŭen. Unu el la rabistoj eksvingis sian hakilon, sed la juna Kristano feliĉe saltis flanken, alie li estus trafita, tamen la tranĉflanko de la hakilo penetris profunde en la kolon de la ĉevalo, tiel ke la sango elŝprucis fon-te kaj la besto falis teren. Tiam la malgranda Helga, kvazaŭ vekita el profunda dormo, ektremis kaj ĵetis sin sur la ĝeme-gantan beston. La Kristana pastro stariĝis antaŭ ŝi, por ŝin defendi kaj ŝirmi, sed unu el la rabistoj frapis per sia peza fera 41
-
-FABELOJ 4
+”Kie vi ŝtelis la belan pupeton?” ili kriis; ili haltigis la ĉevalon kaj detiris la du rajdantojn, ĉar ili estis en tre granda nombro. La pastro havis nenian alian batalilon krom la tranĉilo, kiun li estis elŝirinta el la manoj de la malgranda Helga, kaj per ĝi li kuraĝe batadis ĉirkaŭen. Unu el la rabistoj eksvingis sian hakilon, sed la juna Kristano feliĉe saltis flanken, alie li estus trafita, tamen la tranĉflanko de la hakilo penetris profunde en la kolon de la ĉevalo, tiel ke la sango elŝprucis fon-te kaj la besto falis teren. Tiam la malgranda Helga, kvazaŭ vekita el profunda dormo, ektremis kaj ĵetis sin sur la ĝeme-gantan beston. La Kristana pastro stariĝis antaŭ ŝi, por ŝin defendi kaj ŝirmi, sed unu el la rabistoj frapis per sia peza fera
 
 
 martelo lian frunton, tiel ke ĝi frakasiĝis kaj la sango kaj cerbo ekŝprucis ĉirkaŭen; senviva li falis teren.
 
-La rabistoj kaptis Helgan je ŝiaj blankaj brakoj; en la sama momento la suno subiris, la lasta radio estingiĝis, kaj ŝi aliformiĝis en malbelan ranon. La blankete verda buŝo dis-
-
-larĝiĝis ĝis duono de la vizaĝo, la brakoj fariĝis maldikaj kaj mukaj, la manoj kun naĝmembrano dislarĝiĝis en formo de
+La rabistoj kaptis Helgan je ŝiaj blankaj brakoj; en la sama momento la suno subiris, la lasta radio estingiĝis, kaj ŝi aliformiĝis en malbelan ranon. La blankete verda buŝo dislarĝiĝis ĝis duono de la vizaĝo, la brakoj fariĝis maldikaj kaj mukaj, la manoj kun naĝmembrano dislarĝiĝis en formo de
 
 ventumilo! Tiam la rabistoj terurite ŝin ellasis; ŝi staris inter ili kiel malbela monstro, eksaltis laŭ sia rana naturo pli alten ol ŝia propra alteco kaj malaperis en la densejo. Tiam la rabistoj komprenis, ke ili havas aferon kun sekreta sorĉa forto, kaj kun timego ili forkuris de la terura loko.
 
@@ -954,9 +756,7 @@ La plenluno leviĝis, baldaŭ ĝi komencis disĵetadi brilon kaj lumon, kaj el l
 
 Baldaŭ povis veni la sovaĝaj bestoj kaj manĝi iliajn korpojn; ne, tio ne devis okazi! Tial ŝi elfosis kavon en la tero, tiel profunde, kiel ŝi povis, ŝi volis fari por ili tombon, sed por la fo-sado ŝi povis uzi nur fortan branĉon de arbo kaj siajn manojn; ĉe tio tamen la naĝmembrano inter la fingroj tiel streĉiĝis, ke
 
-ĝi disŝiriĝis kaj la sango komencis flui. ŝi komprenis, ke ŝia 42
-
-FABELOJ 4
+ĝi disŝiriĝis kaj la sango komencis flui. ŝi komprenis, ke ŝia
 
 
 laboro ne sukcesos. Tiam ŝi alportis akvon, lavis la vizaĝon de la mortinto, kovris ĝin per freŝaj verdaj folioj, altrenis grandajn branĉojn kaj metis ilin sur lin kaj ŝutis sur tion foliojn.
@@ -970,12 +770,7 @@ Neniu atentis la malgrandan Helgan, krom la garoloj, kiuj
 flugis ĉirkaŭ la supro de la arbo, sur kiu ŝi sidis; kun kuraĝa scivoleco ili saltetis laŭlonge de la branĉoj ĝis ŝi. Unu ekrigar-do el ŝiaj okuloj ilin forpelis, sed per tio ŝi ne fariĝis pli komprenebla por ili kaj ankaŭ ne por si mem.
 
 
-FABELOJ 4
-
-
-Kiam la vespero alproksimiĝis kaj la suno komencis subiĝi, la aliformiĝo devigis ŝin denove moviĝi. ŝi malleviĝis laŭ la trunko, kaj kiam la lasta radio de la suno estingiĝis, ĝi sidis malsupre en la ŝrumpinta formo de rano, kun disŝirita naĝ-
-
-membrano sur la manoj, sed la okuloj radiis nun per tia bela brilo, kiun ili antaŭe ne havis eĉ en ŝia bela formo. Tio estis plej mildaj, piaj knabinaj okuloj, kiuj lumis el la rana masko; ili atestis pri ŝia profunda animo, pri ŝia homa koro. La belaj okuloj komencis verŝi larmojn, ploris per pezaj larmoj, kiuj malpezigas la koron.
+Kiam la vespero alproksimiĝis kaj la suno komencis subiĝi, la aliformiĝo devigis ŝin denove moviĝi. ŝi malleviĝis laŭ la trunko, kaj kiam la lasta radio de la suno estingiĝis, ĝi sidis malsupre en la ŝrumpinta formo de rano, kun disŝirita naĝmembrano sur la manoj, sed la okuloj radiis nun per tia bela brilo, kiun ili antaŭe ne havis eĉ en ŝia bela formo. Tio estis plej mildaj, piaj knabinaj okuloj, kiuj lumis el la rana masko; ili atestis pri ŝia profunda animo, pri ŝia homa koro. La belaj okuloj komencis verŝi larmojn, ploris per pezaj larmoj, kiuj malpezigas la koron.
 
 Apud la aranĝita tomba monteto kuŝis ankoraŭ la kruco,
 
@@ -987,33 +782,20 @@ Tiam defalis la rana ĉirkaŭkovro, ŝi estis la juna belulino,
 
 ŝi dormis.
 
-Tamen ŝia dormo estis nur mallonga; en noktomezo ŝi ve-
-
-kiĝis; antaŭ ŝi staris la mortigita ĉevalo, radianta, plena de 44
-
-FABELOJ 4
+Tamen ŝia dormo estis nur mallonga; en noktomezo ŝi vekiĝis; antaŭ ŝi staris la mortigita ĉevalo, radianta, plena de
 
 
 vivo; el ĝiaj okuloj kaj la vundita kolo lumis apartspeca brilo. Apud ĝi montriĝis la mortigita Kristana pastro. ”Pli bela ol Baldur!” dirus la vikingedzino, kaj tamen li estis kvazaŭ en flamoj.
 
 En liaj grandaj mildaj okuloj kuŝis tia alta seriozeco, ili proklamis tiel justan juĝon, lia rigardo estis tiel penetranta, ke mirinda lumo heligis la plej internajn korfaldojn de la elpro-vitino. La malgranda Helga tremis, kaj ŝiaj rememoroj vekiĝis kun tia forto, kiel tio iam fariĝos ĉe la lasta juĝo. ĉio bona, kion oni iam faris al ŝi, ĉiu ama vorto, kiu iam estis parolita al ŝi, fariĝis kvazaŭ vivanta. ŝi komprenis, ke la amo estis tiu forto, kiu ŝin tenis rekte en la tagoj de elprovado, en kiuj ni, naskitoj de animo kaj marĉo, agas kaj strebas. ŝi komprenis, ke ŝi sekvis nur la impulsojn de siaj korinklinoj kaj ke per si mem ŝi nenion faris. ĉio, kio estis donita al ŝi, ĉio staris sub pli alta gvidado. ŝi kliniĝis profunde, humile, honte antaŭ tiu, kiu kredeble povis legi en ĉiu faldo de ŝia koro; kaj en tiu momento ŝi sentis kvazaŭ fajreron de la puriga flamo, fajreron de la flamo de la sankta spirito.
 
-”Vi filino de la marĉo!” diris la Kristana pastro, ”el marĉo, el la tero vi venis, — nun vi leviĝos denove el la tero. La sunradio en vi, konsciante sian korpon, reiras al sia naskiĝfonto, ne la radio el la suno, sed la radio el Dio! Neniu animo pereos, sed longa estas la vojo tra la pasantaĵo, ĝi estas forkuro de la vivo al la eterneco. Mi venas el la lando de la mortintoj; vi ankaŭ iam transmigros el la profundaj valoj en la lumantan montolandon, kie loĝas la favorkoreco kaj perfekteco. Mi ne kondukas vin en Hedebyon al Kristana bapto, antaŭe vi devas krevigi la akvan kovron super la profunda marĉo, vi de-45
+”Vi filino de la marĉo!” diris la Kristana pastro, ”el marĉo, el la tero vi venis, — nun vi leviĝos denove el la tero. La sunradio en vi, konsciante sian korpon, reiras al sia naskiĝfonto, ne la radio el la suno, sed la radio el Dio! Neniu animo pereos, sed longa estas la vojo tra la pasantaĵo, ĝi estas forkuro de la vivo al la eterneco. Mi venas el la lando de la mortintoj; vi ankaŭ iam transmigros el la profundaj valoj en la lumantan montolandon, kie loĝas la favorkoreco kaj perfekteco. Mi ne kondukas vin en Hedebyon al Kristana bapto, antaŭe vi devas krevigi la akvan kovron super la profunda marĉo, vi devas eltiri supren la vivantan radikon de via vivo, vi devas fari amajn agojn, antaŭ ol povos veni la konsekro.”
 
-FABELOJ 4
-
-
-vas eltiri supren la vivantan radikon de via vivo, vi devas fari amajn agojn, antaŭ ol povos veni la konsekro.”
-
-Kaj li levis ŝin sur la ĉevalon kaj donis al ŝi oran incensilon, similan al tiu, kiun ŝi antaŭe vidis en la vikinga kastelo. Dol-
-
-ĉa kaj forta bonodoro fluis el ĝi. La nefermita vundo sur la frunto de la mortinto lumis kiel radianta diademo; li prenis de la tombo la krucon, levis ĝin supren, kaj nun ili ekflugis antaŭen tra la aero, super la bruanta arbaro, super la montetoj, en kiuj estis enterigitaj la grandeguloj kaj kie ili en la nokto sidis sur siaj mortigitaj ĉevaloj. La potencaj figuroj leviĝis, elrajdis kaj haltis supre sur siaj gigantaj tombaj montetoj. En la lunlumo brilis la ora ringo ĉirkaŭ ilia frunto, ilia mantelo flirtis en la vento. La drako, kiu gardis la trezorojn, levis sian kapon kaj rigardis ilin. La gnomoj rigardis de altaĵoj kaj el sulkoj, ĉie aperis ruĝaj, bluaj kaj verdaj lumoj, kiujn ili portis en la manoj; tiu gaja svarmado similis al la fajreroj en la cindro de forbrulanta papero.
+Kaj li levis ŝin sur la ĉevalon kaj donis al ŝi oran incensilon, similan al tiu, kiun ŝi antaŭe vidis en la vikinga kastelo. Dolĉa kaj forta bonodoro fluis el ĝi. La nefermita vundo sur la frunto de la mortinto lumis kiel radianta diademo; li prenis de la tombo la krucon, levis ĝin supren, kaj nun ili ekflugis antaŭen tra la aero, super la bruanta arbaro, super la montetoj, en kiuj estis enterigitaj la grandeguloj kaj kie ili en la nokto sidis sur siaj mortigitaj ĉevaloj. La potencaj figuroj leviĝis, elrajdis kaj haltis supre sur siaj gigantaj tombaj montetoj. En la lunlumo brilis la ora ringo ĉirkaŭ ilia frunto, ilia mantelo flirtis en la vento. La drako, kiu gardis la trezorojn, levis sian kapon kaj rigardis ilin. La gnomoj rigardis de altaĵoj kaj el sulkoj, ĉie aperis ruĝaj, bluaj kaj verdaj lumoj, kiujn ili portis en la manoj; tiu gaja svarmado similis al la fajreroj en la cindro de forbrulanta papero.
 
 Super arbaro kaj erikejo, riveretoj kaj marĉoj ili flugis ĝis la sovaĝa marĉejo; super ĝi ili ŝvebis en grandaj rondoj. La Kristana pastro levis alte la krucon, kiu malproksimen radiis oran brilon, kaj el lia buŝo sonis la kantado de meso. La malgranda Helga kunkantis, kiel infano akompanas la kantadon
 
-de sia patrino. ŝi svingadis la incensilon, kiu eligadis altaran bonodoron tiel fortan, tiel miraklofaran, ke la kanoj per tio ekfloris. ĉiuj ĝermoj rapide elkreskis el la profunda grundo, ĉio, kio havis vivon, streĉiĝis supren; simile al teksita florta-piŝo etendiĝis tavolo da akvolilioj, kaj sur ĝi kuŝis dormanta virino, juna kaj bela. La malgranda Helga pensis, ke ŝi vidas sin mem, sian spegulan bildon en la trankvila akvo. Tio, kion 46
-
-FABELOJ 4
+de sia patrino. ŝi svingadis la incensilon, kiu eligadis altaran bonodoron tiel fortan, tiel miraklofaran, ke la kanoj per tio ekfloris. ĉiuj ĝermoj rapide elkreskis el la profunda grundo, ĉio, kio havis vivon, streĉiĝis supren; simile al teksita florta-piŝo etendiĝis tavolo da akvolilioj, kaj sur ĝi kuŝis dormanta virino, juna kaj bela. La malgranda Helga pensis, ke ŝi vidas sin mem, sian spegulan bildon en la trankvila akvo. Tio, kion
 
 
 ŝi vidis, estis ŝia patrino, la edzino de la marĉreĝo, la princino de la regiono de Nilo.
@@ -1038,9 +820,7 @@ profunda akvo!”
 
 Kaj ŝi ĉirkaŭprenis sian infanon kaj ploris; la larmoj estis la ama bapto de la malgranda Helga.
 
-”En cigna plumaĵo mi venis ĉi tien kaj deĵetis ĝin!” rakontis la patrino. ”Tra la ŝanceliĝanta marĉa grundo mi malleviĝis profunde en la ŝlimon de la marĉo, kiu fermiĝis ĉirkaŭ mi kiel muro; sed baldaŭ mi eksentis pli freŝan fluon; ia forto tiris min pli profunden, ĉiam pli profunden. Miaj palpebroj malleviĝis pro stranga dormemeco, mi ekdormis, mi sonĝis. ŝajnis al mi, ke mi denove kuŝas en la Egipta piramido, sed ke antaŭ mi troviĝas ankoraŭ la ŝanceliĝanta alna trunko, kiu naĝis sur la supraĵo de la marĉo. Mi rigardis la fendojn de la arba ŝelo, kaj ili lumis per ĉiaj eblaj koloroj kaj akceptis la 47
-
-FABELOJ 4
+”En cigna plumaĵo mi venis ĉi tien kaj deĵetis ĝin!” rakontis la patrino. ”Tra la ŝanceliĝanta marĉa grundo mi malleviĝis profunde en la ŝlimon de la marĉo, kiu fermiĝis ĉirkaŭ mi kiel muro; sed baldaŭ mi eksentis pli freŝan fluon; ia forto tiris min pli profunden, ĉiam pli profunden. Miaj palpebroj malleviĝis pro stranga dormemeco, mi ekdormis, mi sonĝis. ŝajnis al mi, ke mi denove kuŝas en la Egipta piramido, sed ke antaŭ mi troviĝas ankoraŭ la ŝanceliĝanta alna trunko, kiu naĝis sur la supraĵo de la marĉo. Mi rigardis la fendojn de la arba ŝelo, kaj ili lumis per ĉiaj eblaj koloroj kaj akceptis la
 
 
 formon de ĉiaj eblaj hieroglifoj. La loko, kiun miaj okuloj fiksis, prezentis la ĉirkaŭkovron de mumio. i disŝiriĝis, kaj el
@@ -1049,12 +829,7 @@ formon de ĉiaj eblaj hieroglifoj. La loko, kiun miaj okuloj fiksis, prezentis l
 
 La verda rubando, kiu ligis la patrinan koron kun la flugiloj de la birdo, kie ĝi nun flirtis, kie ĝi kuŝis forĵetita kaj forgesita? Nur la cikonio ĝin vidis siatempe; la rubando estis la verda trunketo, la banto estis la brilanta floro, la lulilo de tiu infano, kiu nun plene elkreskis kiel perfekta belulino kaj denove ripozis ĉe la patrina brusto.
 
-Kaj dum ili staris brako ĉe brako, la cikonia patro flugis ĉirkaŭ ili, poste ĝi sin direktis returne al sia nesto, prenis la cignajn vestojn, kiuj dum jaroj estis tie konservataj, kaj ĵetis po unu al ĉiu el la du virinoj. La plumaj kovroj firme ĉirkaŭ-
-
-fiksiĝis sur ili, tiel ke ili baldaŭ leviĝis de la tero en la formo de du blankaj cignoj.
-
-
-FABELOJ 4
+Kaj dum ili staris brako ĉe brako, la cikonia patro flugis ĉirkaŭ ili, poste ĝi sin direktis returne al sia nesto, prenis la cignajn vestojn, kiuj dum jaroj estis tie konservataj, kaj ĵetis po unu al ĉiu el la du virinoj. La plumaj kovroj firme ĉirkaŭfiksiĝis sur ili, tiel ke ili baldaŭ leviĝis de la tero en la formo de du blankaj cignoj.
 
 
 ”Nun ni reciproke intertraktu!” diris la cikonia patro; ”nun ni povas nin reciproke kompreni, kvankam niaj bekoj havas
@@ -1069,41 +844,25 @@ Hejmen! Hejmen!”
 
 Sed Helga diris, ke ŝi ne povas forlasi la Danan landon,
 
-antaŭ ol ŝi ne estos vidinta ankoraŭ unu fojon sian adoptintan patrinon, la amplenan vikingedzinon. ĉiu bela rememo-
+antaŭ ol ŝi ne estos vidinta ankoraŭ unu fojon sian adoptintan patrinon, la amplenan vikingedzinon. ĉiu bela rememoro, ĉiu ama vorto, ĉiu larmo, kiun la adoptinta patrino estis plorinta, subite stariĝis klare antaŭ la animo de Helga, kaj en ĉi tiu momento ŝi preskaŭ sentis, ke tiun patrinon ŝi plej multe amas.
 
-ro, ĉiu ama vorto, ĉiu larmo, kiun la adoptinta patrino estis plorinta, subite stariĝis klare antaŭ la animo de Helga, kaj en ĉi tiu momento ŝi preskaŭ sentis, ke tiun patrinon ŝi plej multe amas.
-
-”Jes, ni devas flugi al la vikinga domo!” diris la cikonia patro; ”tie atendas ja la patrino kun la infanoj! Kiel ili elmetos la okulojn kaj laborigos la klakbekon! Estas vero, ke la patrino nun ne parolas tre multe, ŝi parolas mallonge kaj konci-49
-
-FABELOJ 4
-
-
-ze, sed ŝiaj sentoj estas pli bonaj ol kiel ŝi ŝajnigas. Mi tuj iom ekklakos, por anonci nian alvenon!”
+”Jes, ni devas flugi al la vikinga domo!” diris la cikonia patro; ”tie atendas ja la patrino kun la infanoj! Kiel ili elmetos la okulojn kaj laborigos la klakbekon! Estas vero, ke la patrino nun ne parolas tre multe, ŝi parolas mallonge kaj koncize, sed ŝiaj sentoj estas pli bonaj ol kiel ŝi ŝajnigas. Mi tuj iom ekklakos, por anonci nian alvenon!”
 
 Kaj la cikonia patro ekklakis per la beko kaj ekflugis kun la cignoj al la vikinga kastelo.
 
 Tie ĉiuj ankoraŭ kuŝis en profunda dormo; nur malfrue en
 
-la nokto la vikingedzino endormiĝis. ŝi kuŝis en granda timego pri la malgranda Helga, kiu jam de tri tagoj malaperis kun la Kristana pastro. ŝi videble helpis al li saviĝi, ĉar la ĉevalo, kiu nun forestis el la stalo, estis ŝia. Per kia potenco ĉio ĉi tio plenumiĝis! La vikingedzino ekpensis pri la mirakloj, kiuj fari-
-
-ĝadis per Kristo kaj per tiuj, kiuj kredis je li kaj lin sekvis. La ŝanĝiĝantaj pensoj en ŝia sonĝo akceptis la formon de realaj bildoj. ŝajnis al ŝi, ke ŝi sendorme kaj meditante sidas ankoraŭ sur sia lito, dum ekstere sur la lando kuŝas densa mallumo. Aperis ventego, ŝi aŭdis la ruliĝadon de la maro okcidente kaj oriente, de la Norda maro kaj de la akvoj de Kate-gat. La grandega serpento, kiu ĉirkaŭtenis la teron en la profundo de la maro, konvulsie kuntiriĝis. Alproksimiĝis la nokto de la dioj, Ragnarok, kiel la idolanoj nomis la tagon de la lasta juĝo, kiam ĉio devis perei, eĉ la altaj dioj. La korno sonis laŭ-
+la nokto la vikingedzino endormiĝis. ŝi kuŝis en granda timego pri la malgranda Helga, kiu jam de tri tagoj malaperis kun la Kristana pastro. ŝi videble helpis al li saviĝi, ĉar la ĉevalo, kiu nun forestis el la stalo, estis ŝia. Per kia potenco ĉio ĉi tio plenumiĝis! La vikingedzino ekpensis pri la mirakloj, kiuj fariĝadis per Kristo kaj per tiuj, kiuj kredis je li kaj lin sekvis. La ŝanĝiĝantaj pensoj en ŝia sonĝo akceptis la formon de realaj bildoj. ŝajnis al ŝi, ke ŝi sendorme kaj meditante sidas ankoraŭ sur sia lito, dum ekstere sur la lando kuŝas densa mallumo. Aperis ventego, ŝi aŭdis la ruliĝadon de la maro okcidente kaj oriente, de la Norda maro kaj de la akvoj de Kate-gat. La grandega serpento, kiu ĉirkaŭtenis la teron en la profundo de la maro, konvulsie kuntiriĝis. Alproksimiĝis la nokto de la dioj, Ragnarok, kiel la idolanoj nomis la tagon de la lasta juĝo, kiam ĉio devis perei, eĉ la altaj dioj. La korno sonis laŭ-
 
 tege, kaj trans la ĉielarkon rajdis la dioj, vestitaj per ŝtalo, por batali la lastan batalon; antaŭ ili flugis la flugilhavaj ŝildisti-noj, kaj en la fino de la vico estis la figuroj de la mortintaj gigantoj. La tuta aero ĉirkaŭ ili lumis en la brilo de la nord-lumo, sed la mallumo fine venkis. Tio estis terura momento.
 
 Kaj tute apude de la terurita vikingedzino sidis sur la tero la malgranda Helga en sia malbela formo de rano; ŝi ankaŭ
 
-tremis kaj alpremis sin al sia adoptinta patrino, kiu prenis ŝin sur la genuojn kaj tenis ŝin ĉirkaŭprenite plene de amo, kiel ajn abomeninda estis por ŝi la rana eksteraĵo. La aero resona-50
-
-FABELOJ 4
-
-
-dis de batoj de glavoj kaj de bastonegoj, de siblantaj sagoj, kiuj elverŝiĝis super ŝi kiel ĉion ŝutkovranta hajlego. Venis la horo, kiam la ĉielo kaj tero devis perei, la steloj devis fali kaj ĉio devis forbruli. Sed ŝi sciis ankaŭ, ke devas naskiĝi nova ĉielo kaj nova tero, ke greno devas ondigi tie, kie nun la maro ruliĝas sur la senfruktan sablan grundon, ke ekregos la ne-nomebla Dio kaj ke Baldur, la milda, la ĉarma, liberigita el la regno de la mortintoj, devas leviĝi al li. Li venis, la vikingedzino lin vidis, ŝi rekonis lian vizaĝon, — tio estis la Kristana pastro, la kaptita.
+tremis kaj alpremis sin al sia adoptinta patrino, kiu prenis ŝin sur la genuojn kaj tenis ŝin ĉirkaŭprenite plene de amo, kiel ajn abomeninda estis por ŝi la rana eksteraĵo. La aero resonadis de batoj de glavoj kaj de bastonegoj, de siblantaj sagoj, kiuj elverŝiĝis super ŝi kiel ĉion ŝutkovranta hajlego. Venis la horo, kiam la ĉielo kaj tero devis perei, la steloj devis fali kaj ĉio devis forbruli. Sed ŝi sciis ankaŭ, ke devas naskiĝi nova ĉielo kaj nova tero, ke greno devas ondigi tie, kie nun la maro ruliĝas sur la senfruktan sablan grundon, ke ekregos la ne-nomebla Dio kaj ke Baldur, la milda, la ĉarma, liberigita el la regno de la mortintoj, devas leviĝi al li. Li venis, la vikingedzino lin vidis, ŝi rekonis lian vizaĝon, — tio estis la Kristana pastro, la kaptita.
 
 ”Kristo!” ŝi laŭte ekkriis, kaj ĉe la elparolado de la nomo ŝi metis kison sur la frunton de sia malbela rana infano. Tiam la rana haŭto defalis kaj la malgranda Helga staris tie en sia tuta beleco, milda kiel neniam antaŭe kaj kun radiantaj okuloj. ŝi kisis la manojn de sia adoptinta patrino, benis ŝin pro ŝia tuta prizorgado kaj amo, kiun ĉi tiu havigis al ŝi en la tagoj de la mizero kaj de la elprovado; ŝi dankis ŝin pro la elpa-rolo de la nomo, kiun ŝi ripetis: Kristo. Poste la malgranda Helga leviĝis en la formo de potenca cigno, majeste ŝi etendis siajn flugilojn, kaj kun bruo ŝi ekflugis supren, kiel kiam amasoj da migrantaj birdoj komencas sian vojaĝon.
 
-ĉe tio la vikingedzino vekiĝis, kaj de ekstere penetradis ankoraŭ al sia orelo la sama bruo de fortaj flugilbatoj. ŝi sciis, ke tiam estis la tempo, kiam la cikonioj formigras; de ili kredeble venis la bruo. ŝi volis ankoraŭ unu fojon vidi ilin antaŭ ilia formigro kaj diri al ili adiaŭ. ŝi leviĝis, eliris sur la balkonon, kaj sur la supro de la tegmento de la flanka konstruaĵo ŝi ekvidis vicon da cikonioj, kaj de ĉiuj flankoj ĉirkaŭ la korto trans la altajn arbojn flugis grandaj balanciĝantaj amasoj, sed ĝuste antaŭ ŝi sur la rando de la puto, kie Helga tiel ofte sidadis kaj 51
-
-FABELOJ 4
+ĉe tio la vikingedzino vekiĝis, kaj de ekstere penetradis ankoraŭ al sia orelo la sama bruo de fortaj flugilbatoj. ŝi sciis, ke tiam estis la tempo, kiam la cikonioj formigras; de ili kredeble venis la bruo. ŝi volis ankoraŭ unu fojon vidi ilin antaŭ ilia formigro kaj diri al ili adiaŭ. ŝi leviĝis, eliris sur la balkonon, kaj sur la supro de la tegmento de la flanka konstruaĵo ŝi ekvidis vicon da cikonioj, kaj de ĉiuj flankoj ĉirkaŭ la korto trans la altajn arbojn flugis grandaj balanciĝantaj amasoj, sed ĝuste antaŭ ŝi sur la rando de la puto, kie Helga tiel ofte sidadis kaj
 
 
 timigadis ŝin per sia sovaĝeco, sidis nun du cignoj kaj rigardis ŝin per siaj saĝaj okuloj. Tiam ŝi rememoris sian sonĝon, kiu staris ankoraŭ antaŭ ŝi tiel vive, kvazaŭ ĝi estus realaĵo. ŝi pensis pri la malgranda Helga en formo de cigno, ŝi pensis pri la Kristana pastro kaj eksentis sin subite mirinde ĝoja en sia koro.
@@ -1128,18 +887,11 @@ interrompis lin la cikonia patrino. ”La infanoj ricevus apeti-ton, kiun ni ne 
 ”ĉu tie malsupre estas la altaj montoj, pri kiuj mi aŭdis?” demandis Helga en la cigna plumaĵo.
 
 
-FABELOJ 4
-
-
-”Tio estas fulmotondraj nuboj, kiuj portiĝas sub ni,” re-
-
-spondis la patrino.
+”Tio estas fulmotondraj nuboj, kiuj portiĝas sub ni,” respondis la patrino.
 
 ”Kio estas tiuj blankaj nuboj, kiuj troviĝas tiel alte?” demandis Helga.
 
-”La montoj, kiujn vi tie vidas, estas kovritaj per eterna ne-
-
-ĝo!” respondis la patrino; kaj ili flugis trans la Alpojn al la blueta Mediteranea maro.
+”La montoj, kiujn vi tie vidas, estas kovritaj per eterna neĝo!” respondis la patrino; kaj ili flugis trans la Alpojn al la blueta Mediteranea maro.
 
 
 ”Afriko! La marbordo de Egiptujo!” ĝojkriis en sia cigna formo la filino de Nilo, kiam ili alte el la aero ekvidis blanketefla-van ondforman strion, ŝian hejmon.
@@ -1148,34 +900,23 @@ Ankaŭ la birdoj ekvidis la celon de sia migrado kaj plirapi-digis sian flugadon
 
 ”Mi flarsentas Nilan ŝlimon kaj malsekajn ranojn!” diris la cikonia patrino. ”Jam bone svarmas kaj jukas! Nun vi baldaŭ kontentigos vian tikladon de la palato. Vi ankaŭ vidos la ma-rabuon, la ibison kaj la gruojn. Ili apartenas ĉiuj al nia familio, sed mankas al ili multe, por esti tiel belaj kiel ni. Ili tenas sin tre grandsinjore, precipe la ibiso. La Egiptoj ĝin tro eldor-lotis, ili eĉ ŝtopas ĝin per bonodoraj herbaĵoj, kion ili nomas balzami. Mi preferas lasi ŝtopi min per vivantaj ranoj; mi pensas, tia estas ankaŭ via opinio, kaj ĝi estos kontentigita. Pli bone estas havi ion en la ventro, dum oni ankoraŭ vivas, ol servi al parado post sia morto. Tio estas mia opinio, kaj ĝi estas ĉiam ĝusta!”
 
-”La cikonioj alvenis!” oni diris en la riĉa domo ĉe la bordo de Nilo, kie en la nefermita ĉambrego sur molaj, per leopar-da felo kovritaj kusenoj kuŝis etendite la reĝa sinjoro, ne viv-53
-
-FABELOJ 4
-
-
-ante kaj ankaŭ ne mortinte, esperante je la lotusa floro el la profunda marĉo en nordo. Parencoj kaj servistoj staris ĉirkaŭ li.
+”La cikonioj alvenis!” oni diris en la riĉa domo ĉe la bordo de Nilo, kie en la nefermita ĉambrego sur molaj, per leopar-da felo kovritaj kusenoj kuŝis etendite la reĝa sinjoro, ne vivante kaj ankaŭ ne mortinte, esperante je la lotusa floro el la profunda marĉo en nordo. Parencoj kaj servistoj staris ĉirkaŭ li.
 
 Kaj en la ĉambregon enflugis la du belegaj blankaj cignoj, kiuj venis kune kun la cikonioj. Ili deĵetis la blindige blankajn cignajn vestojn kaj jen tie staris du belaj virinaj figuroj, tiel similaj unu al la alia, kiel du gutoj da roso. Ili sin klinis super la palan kadukan maljunan viron, ili ĵetis malantaŭen siajn longajn harojn, kaj dum la malgranda Helga sin klinis super la avon, liaj vangoj ruĝiĝis, liaj okuloj ricevis brilon kaj nova vivo ekfluis tra la paralizitaj membroj. La maljunulo sane kaj plijunigite leviĝis. La filino kaj la nepino tenis lin en siaj brakoj kiel por ĝoja matena saluto post longa turmenta sonĝo.
 
 
-ojo regis en la tuta palaco kaj ankaŭ en la cikonia nesto, sed en ĉi tiu ĝi estis kaŭzita ĉefe de la bona manĝaĵo, de la svarmado de ranoj; kaj dum la scienculoj rapide skizis per su-
-
-praĵaj konturoj la historion de la du princinoj kaj de la saniga floro, kiu estis granda okazintaĵo kaj beno por la domo kaj la lando, la cikoniaj gepatroj rakontis la historion al sia familio en sia maniero sed nur tiam, kiam ili ĉiuj estis sataj, ĉar alie ili ja havus ion alian por fari ol aŭskulti historiojn.
+ojo regis en la tuta palaco kaj ankaŭ en la cikonia nesto, sed en ĉi tiu ĝi estis kaŭzita ĉefe de la bona manĝaĵo, de la svarmado de ranoj; kaj dum la scienculoj rapide skizis per supraĵaj konturoj la historion de la du princinoj kaj de la saniga floro, kiu estis granda okazintaĵo kaj beno por la domo kaj la lando, la cikoniaj gepatroj rakontis la historion al sia familio en sia maniero sed nur tiam, kiam ili ĉiuj estis sataj, ĉar alie ili ja havus ion alian por fari ol aŭskulti historiojn.
 
 ”Nun vi ja fariĝos io!” flustris la cikonia patrino, ”tio estas tre kredebla!”
 
 ”Ho, kio mi povus fariĝi!” diris la cikonia patro, ”kaj kion do mi faris? Nenion!”
 
-”Vi faris pli ol ĉiuj aliaj! Sen vi kaj niaj infanoj la du princinoj neniam plu revidus Egiptujon kaj certe ne rehavigus al 54
-
-FABELOJ 4
+”Vi faris pli ol ĉiuj aliaj! Sen vi kaj niaj infanoj la du princinoj neniam plu revidus Egiptujon kaj certe ne rehavigus al
 
 
 la maljunulo la sanon. Vi fariĝos io! Vi certe ricevos doktoran titolon, kaj niaj estontaj infanoj tiam estos naskitaj doktoroj, kaj iliaj infanoj tiam atingos ankoraŭ ion pli. Cetere vi jam nun aspektas kiel Egipta doktoro, almenaŭ en miaj okuloj!”
 
-La scienculoj kaj saĝuloj disvolvis kiel fundamentan pen-
-
-son, kiel ili tion nomis, kiu tiriĝis tra la tuta okazintaĵo, la sentencon: ”Amo donas vivon!” Kaj la klarigon por tio ili donis en diversaj manieroj: ”La varma sunradio estas la Egipta princino, ŝi malleviĝis al la marĉreĝo, kaj de ŝia ĉirkaŭpreno naskiĝis…!”
+La scienculoj kaj saĝuloj disvolvis kiel fundamentan penson, kiel ili tion nomis, kiu tiriĝis tra la tuta okazintaĵo, la sentencon: ”Amo donas vivon!” Kaj la klarigon por tio ili donis en diversaj manieroj: ”La varma sunradio estas la Egipta princino, ŝi malleviĝis al la marĉreĝo, kaj de ŝia ĉirkaŭpreno naskiĝis…!”
 
 ”Mi ne povas tiel precize ripeti la vortojn!” diris la cikonia patro, kiu aŭskultis de sur la tegmento kaj devis raporti pri tio en la nesto. ”ĉio, kion ili diris, estis tiel ŝraŭbita kaj kompli-kita, tiel terure saĝa, ke ili tuj ricevis rangojn kaj donacojn, eĉ la kuiristo ricevis grandan ordenon, — tio estis kredeble pro la bona supo!”
 
@@ -1185,38 +926,28 @@ Malfrue en la nokto, kiam la paco de la dormo kuŝis super
 
 la denove feliĉa domo, la okuloj de unu persono ankoraŭ ne fermiĝis, kaj tio estis ne la okuloj de la cikonia patro, kvankam li supre sur unu piedo staris en la nesto kaj dormis gard-starante, — ne, la malgranda Helga ankoraŭ ne dormis, ŝi
 
-elkliniĝis super la balkonon kaj rigardis en la klaran aeron supren al la grandaj lumantaj steloj, kiuj brilis pli klare kaj pli pure ol en la alta nordo kaj tamen estis la samaj steloj. ŝi pensis pri la vikingedzino ĉe la sovaĝa marĉo, pri la mildaj okuloj de sia adoptinta patrino, pri la larmoj, kiujn ŝi ploris pro 55
-
-FABELOJ 4
+elkliniĝis super la balkonon kaj rigardis en la klaran aeron supren al la grandaj lumantaj steloj, kiuj brilis pli klare kaj pli pure ol en la alta nordo kaj tamen estis la samaj steloj. ŝi pensis pri la vikingedzino ĉe la sovaĝa marĉo, pri la mildaj okuloj de sia adoptinta patrino, pri la larmoj, kiujn ŝi ploris pro
 
 
 la malfeliĉa rano-infano, kiu nun en lukso kaj en stelbrilo staras ĉe la bordo de Nilo en la ĉarmega printempa aero. ŝi pensis pri la amo en la brusto de la idolana virino, pri la amo, kiun ŝi montris al mizera estaĵo, kiu en formo de homo estis sovaĝa besto kaj en formo de besto estis abomeninda por la vido kaj por la ektuŝo. ŝi rigardis la lumantajn stelojn, kaj ŝi pensis pri la brilo, kiun radiis la frunto de la mortinto, kiam ili flugis super la arbaro kaj la marĉo. Tonoj eksonis en ŝia rememoro, vortoj, kies elparoladon ŝi estis aŭdinta, kiam ili rajdis kune kaj ŝi sidis profunde emociita, vortoj pri la ĉefa fonto de la amo, de la plej alta amo, kiu ampleksas ĉiujn generaciojn.
 
-Jes, kio ne estis donita, akirita, atingita! La pensoj de la malgranda Helga prezentis al @si tage kaj nokte la tutan su-mon de ŝia feliĉo, kaj ĉe la konsiderado de tio ŝi staris kiel infano, kiu rapide turnas sin de la doninto al la dono, al ĉiuj belegaj donacoj. ŝi kvazaŭ dissolviĝis en la ĉiam pligrandi-
-
-ĝanta feliĉo, kiu povis veni. Per mirakloj ŝi estis ja levata al ĉiam pli alta ĝojo, al ĉiam pli alta feliĉo, kaj en tio ŝi unu tagon tiel perdis la orientiĝon, ke ŝi plu ne pensis pri la doninto.
+Jes, kio ne estis donita, akirita, atingita! La pensoj de la malgranda Helga prezentis al @si tage kaj nokte la tutan su-mon de ŝia feliĉo, kaj ĉe la konsiderado de tio ŝi staris kiel infano, kiu rapide turnas sin de la doninto al la dono, al ĉiuj belegaj donacoj. ŝi kvazaŭ dissolviĝis en la ĉiam pligrandiĝanta feliĉo, kiu povis veni. Per mirakloj ŝi estis ja levata al ĉiam pli alta ĝojo, al ĉiam pli alta feliĉo, kaj en tio ŝi unu tagon tiel perdis la orientiĝon, ke ŝi plu ne pensis pri la doninto.
 
 Tio estis la memfido de ŝia juneca spirito, kiu fordonis sin al ŝiaj fieraj revoj. ĉe tio ŝiaj okuloj brilis; sed en tiu momento el ŝiaj revoj elŝiris ŝin granda bruo malsupre sur la korto. ŝi rimarkis, ke tie du grandaj strutoj rapide kuras en malvasta rondo. Neniam antaŭe ŝi vidis tiun beston, tian grandan, tian mallertan kaj malgracian birdon; la flugiloj aspektis kiel pritranĉitaj, la birdo faris la impreson, kvazaŭ iu ĝin difektis, kaj ŝi demandis, kio fariĝis al ĝi. La unuan fojon ŝi aŭdis la legendon, kiun la Egiptoj rakontas al si pri la struto.
 
-Bela iam estis ĝia gento, grandaj kaj fortaj ĝiaj flugiloj. Unu 56
-
-FABELOJ 4
+Bela iam estis ĝia gento, grandaj kaj fortaj ĝiaj flugiloj. Unu
 
 
 vesperon la potencaj birdoj de la arbaro diris al ĝi: ”Frato, ĉu ni flugu morgaŭ, se Dio volos, al la rivero, por trinki?” La struto respondis: ”Mi tion faros!” Kiam komencis tagiĝi, ili ekflugis, antaŭe alten, renkonte al la suno, la okulo de Dio, ĉiam pli kaj pli alten, la struto multe antaŭ ĉiuj aliaj. Plena de fiero ĝi flugis al la lumo. i fidis sian forton kaj ne la donin-ton de tiu forto; ĝi ne diris: ”se Dio volos!” Tiam la anĝelo de juĝo fortiris la vualon de antaŭ la suno, kaj en la sama momento ekbrulis la flugiloj de la birdo; mizere ĝi falis sur la teron. i kaj ĝia raso neniam plu povas leviĝi; kiam ĝin atakas timo, ĝi komencas kuri kaj maltrankvile kuras ronde en mallarĝa spaco; tio estas averto por ni homoj, ke ĉe ĉiuj niaj pensoj, ĉe ĉiu entrepreno ni diru: ”se Dio volos!”
 
-Helga enpensiĝinte klinis sian kapon, rigardis la kuradan-
-
-tan struton, vidis ĝian timegon kaj vidis ĝian naivan ĝojon ĉe la vido de sia propra granda ombro sur la blanka lunlumita muro. Seriozeco profunde enradikiĝis en ŝia koro kaj menso.
+Helga enpensiĝinte klinis sian kapon, rigardis la kuradantan struton, vidis ĝian timegon kaj vidis ĝian naivan ĝojon ĉe la vido de sia propra granda ombro sur la blanka lunlumita muro. Seriozeco profunde enradikiĝis en ŝia koro kaj menso.
 
 Riĉa, feliĉa vivo estis akirita, estis atingita, — kio fariĝos nun, kio ankoraŭ venos? La plej bona, ”se Dio volos!”
 
 
 En la unuaj tagoj de la printempo, kiam la cikonioj denove ekflugis norden, la malgranda Helga prenis sian oran brace-leton, engravuris en ĝi sian nomon, alvokis per kapsigno la cikonian patron, metis al li la oran ringon ĉirkaŭ la kolon kaj petis lin, ke li transdonu ĝin al la vikingedzino, kiu vidos el tio, ke ŝia adoptita filino vivas, estas feliĉa kaj ĉiam ankoraŭ ame ŝin memoras.
 
-”Estas peze ĝin porti!” diris al si la cikonia patro, kiam li 57
-
-FABELOJ 4
+”Estas peze ĝin porti!” diris al si la cikonia patro, kiam li
 
 
 eksentis ĝian ŝarĝon ĉirkaŭ sia kolo; sed oron kaj honoron oni ne devas forĵeti sur la vojon. Ili tie norde devos konfesi, ke la cikonio alportas feliĉon!”
@@ -1227,25 +958,16 @@ Sed dankon neniu el ni ricevas! Tio ĉagrenas!”
 
 ”Oni havas la konscion de sia merito, patrino!” diris la cikonia patro.
 
-”Sed tion vi ne povas porti ekstere sur la brusto!” diris la cikonia patrino; ”ĝi donas nek favoran venton nek manĝa-
-
-ĵon!”
+”Sed tion vi ne povas porti ekstere sur la brusto!” diris la cikonia patrino; ”ĝi donas nek favoran venton nek manĝaĵon!”
 
 Kaj ili forflugis.
 
-La malgranda najtingalo, kiu kantis en la tamarinda arbe-
-
-taĵo, ankaŭ intencis baldaŭ forflugi norden. Tie ĉe la sovaĝa marĉejo la malgranda Helga ofte estis ĝin aŭdinta; ŝi volis sendi per ĝi sciigon pri si, ŝi komprenis ja la lingvon de la birdoj depost tiu tempo, kiam ŝi flugis en cigna plumaĵo. La najtingalo certe ŝmprenos. ŝi petis ĝin, ke ĝi flugu en la fagarbaron sur la Jutlanda duoninsulo, kie estis aranĝita la tombo el ŝtonoj kaj branĉoj, ŝi komisiis al ĝi peti ĉiujn malgrandajn birdojn, ke ili gardu tie la tombon kaj kantadu super ĝi kantojn.
+La malgranda najtingalo, kiu kantis en la tamarinda arbetaĵo, ankaŭ intencis baldaŭ forflugi norden. Tie ĉe la sovaĝa marĉejo la malgranda Helga ofte estis ĝin aŭdinta; ŝi volis sendi per ĝi sciigon pri si, ŝi komprenis ja la lingvon de la birdoj depost tiu tempo, kiam ŝi flugis en cigna plumaĵo. La najtingalo certe ŝmprenos. ŝi petis ĝin, ke ĝi flugu en la fagarbaron sur la Jutlanda duoninsulo, kie estis aranĝita la tombo el ŝtonoj kaj branĉoj, ŝi komisiis al ĝi peti ĉiujn malgrandajn birdojn, ke ili gardu tie la tombon kaj kantadu super ĝi kantojn.
 
 Kaj la najtingalo forflugis, kaj la tempo forflugis!
 
 
-ĉirkaŭ la rikolta tempo la aglo staris sur la piramido kaj ekvidis majestan karavanon de riĉe ŝarĝitaj kameloj kaj multe-koste vestitaj armitaj homoj sur laŭte spiregantaj arabaj ĉevaloj. Tio estis belegaj blankaj ĉevaloj, iliaj ruĝetaj nazotru-58
-
-FABELOJ 4
-
-
-oj estis en senĉesa moviĝado, kaj iliaj grandaj densaj kolharoj pendis malsupren ĝis la maldikaj piedoj. Riĉaj gastoj, reĝa princo el Arabujo, bela, kiel princo devas esti, faris sian en-veturon en la fieran domon, sur kiu la cikonia nesto nun staris malplena. iaj loĝantoj nun troviĝis ja en lando norda, sed devis baldaŭ reveni. Kaj ili alvenis ĝuste en tiu tago, kiam ĉi tie ĝojo kaj gajeco atingis la plej altan gradon. Edziĝofesta gajeco nun regis, kaj la malgranda Helga, en silka vesto kaj brilanta de juveloj, estis la fianĉino. La fianĉo estis la juna Araba princo. Ambaŭ okupis la honorajn lokojn ĉe la tablo
+ĉirkaŭ la rikolta tempo la aglo staris sur la piramido kaj ekvidis majestan karavanon de riĉe ŝarĝitaj kameloj kaj multe-koste vestitaj armitaj homoj sur laŭte spiregantaj arabaj ĉevaloj. Tio estis belegaj blankaj ĉevaloj, iliaj ruĝetaj nazotruoj estis en senĉesa moviĝado, kaj iliaj grandaj densaj kolharoj pendis malsupren ĝis la maldikaj piedoj. Riĉaj gastoj, reĝa princo el Arabujo, bela, kiel princo devas esti, faris sian en-veturon en la fieran domon, sur kiu la cikonia nesto nun staris malplena. iaj loĝantoj nun troviĝis ja en lando norda, sed devis baldaŭ reveni. Kaj ili alvenis ĝuste en tiu tago, kiam ĉi tie ĝojo kaj gajeco atingis la plej altan gradon. Edziĝofesta gajeco nun regis, kaj la malgranda Helga, en silka vesto kaj brilanta de juveloj, estis la fianĉino. La fianĉo estis la juna Araba princo. Ambaŭ okupis la honorajn lokojn ĉe la tablo
 
 kaj sidis inter la patrino kaj la avo.
 
@@ -1255,14 +977,9 @@ Jen ekstere en la aero eksonis fortaj flugilbatoj, la cikonioj revenis. Kiel ajn
 
 ”Tio estas granda distingo por ni!” diris la cikonia patro.
 
-”Tre malgranda!” diris la cikonia patrino, ”malpli da hon-
-
-oro ili ja ne povis fari al ni!”
+”Tre malgranda!” diris la cikonia patrino, ”malpli da honoro ili ja ne povis fari al ni!”
 
 Kiam Helga ilin ekvidis, ŝi leviĝis kaj eliris al ili sur la ve-randon, por karesi al ili la dorson. La maljuna cikonia paro klinis la kolojn, kaj la plej junaj infanoj tion ankaŭ vidis kaj sentis sin honoritaj.
-
-
-FABELOJ 4
 
 
 Helga rigardis supren al la brilanta stelo, kiu lumis ĉiam pli kaj pli hele. Kaj inter ĝi kaj ŝi moviĝadis figuro ankoraŭ pli klara ol la aero kaj tamen rimarkebla. i alŝvebis tute proksimen al ŝi; tio estis la mortinta Kristana pastro. Li ankaŭ venis al ŝia edziĝa festo, venis el la ĉiela regno.
@@ -1293,18 +1010,14 @@ Denove la malgranda Helga staris sur la verando, — sed
 
 Tiam la malgranda Helga eksentis timon, kaj ŝi eniris tra la malplena granda ĉambrego en la plej proksiman ĉambron.
 
-Fremdaj soldatoj tie dormis; ŝi malfermis la flankan pordon, kiu kondukis en ŝian propran ĉambron, kaj dum ŝi pensis, ke 60
-
-FABELOJ 4
+Fremdaj soldatoj tie dormis; ŝi malfermis la flankan pordon, kiu kondukis en ŝian propran ĉambron, kaj dum ŝi pensis, ke
 
 
 ŝi staras en ĝi, ŝi staris ekstere en la ĝardeno; tiel antaŭe ja ne estis ĉi tie. Ruĝete lumetis la ĉielo, estis ĉirkaŭ komenciĝo de la tago.
 
 Pasis nur tri minutoj en la ĉielo, sed granda nokto sur la tero.
 
-ŝi ekvidis la cikoniojn; ŝi alvokis ilin, parolis en ilia lingvo, kaj la cikonia patro turnis la kapon, aŭskultis kaj alproksimi-
-
-ĝis.
+ŝi ekvidis la cikoniojn; ŝi alvokis ilin, parolis en ilia lingvo, kaj la cikonia patro turnis la kapon, aŭskultis kaj alproksimiĝis.
 
 ”Vi parolas nian lingvon!” li diris, ”kion vi deziras? Kio vin venigis ĉi tien, vi fremda virino?”
 
@@ -1312,21 +1025,15 @@ Pasis nur tri minutoj en la ĉielo, sed granda nokto sur la tero.
 
 Antaŭ tri minutoj ni parolis unu kun la alia, tie sur la verando! ”
 
-”Tio estas eraro,” diris la cikonio; ”ĉion ĉi tion vi nur son-
-
-ĝis!”
+”Tio estas eraro,” diris la cikonio; ”ĉion ĉi tion vi nur sonĝis!”
 
 ”Ne, ne!” ŝi ekkriis kaj rememorigis al li pri la vikinga kastelo, pri la sovaĝa marĉejo kaj pri la vojaĝo ĉi tien.
 
-Tiam la cikonia patro palpebrumis per la okuloj. ”Tio es-
-
-tas ja malnova historio, kiun mi aŭdis el la tempo de mia pra-praavino. Jes, efektive ĉi tie en Egiptujo ekzistis iam princino el Danujo, sed antaŭ multaj centoj da jaroj ŝi malaperis en la vespero de sia edziĝo kaj ŝi neniam plu revenis! Tion vi povas legi eĉ sur la monumento ĉi tie en la ĝardeno. Sur ĝi estas ja skulptitaj cignoj kaj cikonioj, kaj tute supre staras vi mem en blanka marmoro.”
+Tiam la cikonia patro palpebrumis per la okuloj. ”Tio estas ja malnova historio, kiun mi aŭdis el la tempo de mia pra-praavino. Jes, efektive ĉi tie en Egiptujo ekzistis iam princino el Danujo, sed antaŭ multaj centoj da jaroj ŝi malaperis en la vespero de sia edziĝo kaj ŝi neniam plu revenis! Tion vi povas legi eĉ sur la monumento ĉi tie en la ĝardeno. Sur ĝi estas ja skulptitaj cignoj kaj cikonioj, kaj tute supre staras vi mem en blanka marmoro.”
 
 Tiel efektive estis. La malgranda Helga tion vidis, komprenis kaj stariĝis surgenue.
 
-La suno montriĝis, kaj kiel iam sub ĝiaj radioj faladis la rana ĉirkaŭkovro kaj montriĝadis la bela figuro, tiel nun en la 61
-
-FABELOJ 4
+La suno montriĝis, kaj kiel iam sub ĝiaj radioj faladis la rana ĉirkaŭkovro kaj montriĝadis la bela figuro, tiel nun en la
 
 
 lumo leviĝis bela figuro, pli klara, pli pura ol la aero, radio de lumo — supren al la Patro.
@@ -1343,14 +1050,9 @@ La korpo disfalis en cindron; tie, kie ĝi estis starinta, kuŝis nun forvelkint
 ”Jes, tio kompreneble estas la plej grava!” diris la cikonia patro.
 
 
-FABELOJ 4
-
-
 Kuristoj
 
-Premio estis destinita, eĉ du premioj estis destinitaj, malgranda kaj granda, pro plej rapida kurado, ne pro unu-
-
-foja kuro, sed pro egalmezura rapideco de kurado en la daŭro de tuta jaro.
+Premio estis destinita, eĉ du premioj estis destinitaj, malgranda kaj granda, pro plej rapida kurado, ne pro unufoja kuro, sed pro egalmezura rapideco de kurado en la daŭro de tuta jaro.
 
 ”Mi ricevis la unuan premion!” diris la leporo. ”Devas ja
 
@@ -1363,9 +1065,6 @@ esti justeco, kiam en la decidantaro troviĝas membroj de la propra familio kaj 
 ”Min oni ja ankaŭ povus konsideri!” diris la hirundo; ”pli rapida ol mi, mi pensas, montriĝis neniu, kaj kie nur mi ne estis! malproksime, malproksime, malproksime!”
 
 ”uste tio estas via malfeliĉo”, respondis la barila paliso; ”vi tro multe vagas! Kiam komencas frosti, vi tuj strebas ĉiam antaŭen, ekster la landon. Vi ne havas patriotismon! Vin oni ne povas konsideri!”
-
-
-FABELOJ 4
 
 
 ”Sed se mi dum la tuta vintro kuŝis en la marĉejo!” diris la hirundo, ”tradormis la tutan tempon, ĉu en tia okazo mi povas esti konsiderata?”
@@ -1396,12 +1095,7 @@ la literon ”e” kaj la limako la literon ”i”, kaj ĉar ”e” staras en 
 
 mi mem,” diris la mulo, kiu ankaŭ apartenis al la asesoroj.
 
-”Oni devas konsideri ne sole la rapidecon, sed oni devas atenti ankaŭ aliajn aferojn, ekzemple la cirkonstancon, kiom mul-64
-
-FABELOJ 4
-
-
-te oni havas la kapablon tiri. Tamen mi ĉi fojon tion ne akcen-tus, ankaŭ ne la saĝecon de la leporo, ke ĝi dum sia forkurado subite saltas flanken kaj per tio falsvojigas la homojn. Ne, ekzistas ankoraŭ io, al kio multaj atribuas grandan gravecon kaj kion oni neniel devas lasi sen atento, — ĝi estas tio, kion oni nomas la belo. Tion mi atentis; mi rigardis la belajn, bone elkreskintajn orelojn de la leporo; estas plezuro admiri ilian longecon! ŝajnis al mi, kvazaŭ mi vidas min mem, kiam mi
+”Oni devas konsideri ne sole la rapidecon, sed oni devas atenti ankaŭ aliajn aferojn, ekzemple la cirkonstancon, kiom multe oni havas la kapablon tiri. Tamen mi ĉi fojon tion ne akcen-tus, ankaŭ ne la saĝecon de la leporo, ke ĝi dum sia forkurado subite saltas flanken kaj per tio falsvojigas la homojn. Ne, ekzistas ankoraŭ io, al kio multaj atribuas grandan gravecon kaj kion oni neniel devas lasi sen atento, — ĝi estas tio, kion oni nomas la belo. Tion mi atentis; mi rigardis la belajn, bone elkreskintajn orelojn de la leporo; estas plezuro admiri ilian longecon! ŝajnis al mi, kvazaŭ mi vidas min mem, kiam mi
 
 estis ankoraŭ malgranda, kaj tial mi donis por la leporo mian voĉon.”
 
@@ -1414,9 +1108,6 @@ estis ankoraŭ malgranda, kaj tial mi donis por la leporo mian voĉon.”
 ĝi ne havas la naturon paroli, kvankam povus esti tre bone, se ĝi tion farus, — ”mi opinias, ke la suna radio devus ricevi la unuan premion kaj al tio ankaŭ la duan. i en unu momento traflugas la nemezureblan vojon de la suno ĝis ni kaj venas kun tia forto, ke la tuta naturo per tio vekiĝas. i estas tiel bela, ke ĉiuj rozoj ruĝiĝas kaj komencas bonodori. La alta estraro, kiu eldiris la verdikton, videble tute ĝin ne rimarkis.
 
 
-FABELOJ 4
-
-
 Se mi estus la sunradio, tiam mi farus al ĉiu el ili sunfrapon,
 
 — sed tio farus ilin plej efektive frenezaj, kaj tiaj ili sen tio fariĝos. Mi nenion diras!” pensis la sovaĝa rozo. ”Paco estu en la arbaro! Estas bele flori, bonodori kaj refreŝiĝi, vivi en la le-gendoj kaj kantoj! La sunradio postvivos ja nin ĉiujn!”
@@ -1427,14 +1118,9 @@ kiu estis tro longe dorminta kaj nur nun alvenis.
 
 ”En libera aliro al brasika ĝardeno!” diris la mulo. ”La premion proponis mi! La leporo nepre devis ĝin ricevi, kaj tial mi, kiel pensanta kaj aktiva membro de la juĝantaro, saĝe
 
-prenis sub atenton la utilecon por tiu, kiu ĝin devis ricevi; nun la leporo estas tute prizorgita. La limako ricevis la permeson sidi sur la muro, kiu ĉirkaŭas la brasikan ĝardenon, kaj varmigi sin en la suno, kaj krom tio ĝi ricevis la oficon de unu el la juĝantoj por kura konkurso. Estas bone havi inter la ju-
-
-ĝantaro unu specialiston! Mi devas konfesi, ke mi atendas
+prenis sub atenton la utilecon por tiu, kiu ĝin devis ricevi; nun la leporo estas tute prizorgita. La limako ricevis la permeson sidi sur la muro, kiu ĉirkaŭas la brasikan ĝardenon, kaj varmigi sin en la suno, kaj krom tio ĝi ricevis la oficon de unu el la juĝantoj por kura konkurso. Estas bone havi inter la juĝantaro unu specialiston! Mi devas konfesi, ke mi atendas
 
 multe de la estonteco, ĉar ni jam faris tiel bonan komencon.”
-
-
-FABELOJ 4
 
 
 Sonorila profundo
@@ -1443,14 +1129,10 @@ Ting-tang, ting-tang!” oni aŭdas el la sonorila profundo en la rivereto de Od
 
 ĉiu infano en la urbo Odense; ĝi fluas malantaŭ la ĝardenoj, de la kluzo ĝis la akva muelejo sub la lignaj pontoj. En la rivereto kreskas flavaj akvolilioj, brunpluma junko kaj nigraj velursimilaj bastonuloj, altaj kaj grandaj. Maljunaj salikoj kun multe da krevoj kaj fendoj, kreskante kurbe kaj oblikve, sur la flanko de la tiel nomata Monaą marĉejo kaj ĉe la blan-kigejo pendas malproksime en la akvon; sed rekte kontraŭe
 
-troviĝas ĝardenoj unu apud la alia, ĉiu aranĝita kaj vartata malsame ol la aliaj; unuj havas belajn florojn kaj laŭbojn, estas puraj kaj elegantaj kiel juvelujo, aliaj havas nur brasikon aŭ tute ne estas videblaj por la okulo de rigardanto, ĉar grandaj siringaj arbetoj etendiĝas kaj pendas larĝe super la fluanta akvo, kiu en kelkaj lokoj estas tiel profunda, ke oni ne povas atingi la fundon per remilo. Antaŭ la malnova instituto por fraŭlinoj troviĝas la plej profunda loko, kiun oni nomas la sonorila profundo, kaj tie loĝas la nikso! Dum la tago, kiam la suno lumas tra la akvo, li dormas, sed en stellumaj noktoj kaj ĉe lunlumo li leviĝas super la akvon. Li estas tre maljuna; la avino diris, ke ôi aŭdis pri li de sia avino; li vivas tre solece kaj havas neniun, kun kiu li povus interparoli, krom la granda malnova preĝeja sonorilo. Iam ĝi pendis en la preĝeja turo, 67
-
-FABELOJ 4
+troviĝas ĝardenoj unu apud la alia, ĉiu aranĝita kaj vartata malsame ol la aliaj; unuj havas belajn florojn kaj laŭbojn, estas puraj kaj elegantaj kiel juvelujo, aliaj havas nur brasikon aŭ tute ne estas videblaj por la okulo de rigardanto, ĉar grandaj siringaj arbetoj etendiĝas kaj pendas larĝe super la fluanta akvo, kiu en kelkaj lokoj estas tiel profunda, ke oni ne povas atingi la fundon per remilo. Antaŭ la malnova instituto por fraŭlinoj troviĝas la plej profunda loko, kiun oni nomas la sonorila profundo, kaj tie loĝas la nikso! Dum la tago, kiam la suno lumas tra la akvo, li dormas, sed en stellumaj noktoj kaj ĉe lunlumo li leviĝas super la akvon. Li estas tre maljuna; la avino diris, ke ôi aŭdis pri li de sia avino; li vivas tre solece kaj havas neniun, kun kiu li povus interparoli, krom la granda malnova preĝeja sonorilo. Iam ĝi pendis en la preĝeja turo,
 
 
-sed nun ekzistas plu nenia postsigno de la turo nek de la pre-
-
-ĝejo, kiu havis la nomon de la sankta Albano.
+sed nun ekzistas plu nenia postsigno de la turo nek de la preĝejo, kiu havis la nomon de la sankta Albano.
 
 ”Ting-tang, ting-tang!” sonadis la sonorilo, kiam la turo
 
@@ -1468,9 +1150,7 @@ sonorilo rakontas. i rakontas senĉese, tre ofte la samajn aferojn, jen mallonge
 
 ”Supren en la turon de la preĝejo de la sankta Albano, en
 
-kiu pendis la sonorilo, venis unu mona˛o, kiu estis juna kaj bela, sed meditema kiel neniu alia. Li rigardis tra la fenestreto 68
-
-FABELOJ 4
+kiu pendis la sonorilo, venis unu mona˛o, kiu estis juna kaj bela, sed meditema kiel neniu alia. Li rigardis tra la fenestreto
 
 
 trans la rivereton, kies fluejo tiam estis larĝa, trans la lagon, kiu kuŝis sur la loko de la nuna marĉejo, li rigardis trans la herbejon al la ”Mona˛ina monteto” kontraŭe, kie staris la
@@ -1483,32 +1163,20 @@ Jes, tiajn aferojn rakontis la sonorilo.
 
 Tie estas malvarme kaj malseke! La ratoj formanĝas ilin vivantajn! Neniu scias pri tio, neniu aŭdas pri tio! Nun ankaŭ ne, ĉar la sonorilo sonoras tiel laŭte: ting-tang, tingtang.”
 
-Estis iam reĝo, oni lin nomis Knut; li klinadis sin antaŭ episkopo kaj mona˛o, sed kiam li surmetis tro pezajn impostojn kaj parolis nur malmildajn vortojn, la popolo kaptis batalilojn kaj stangojn kaj forpelis lin, kvazaŭ li estus sovaĝa besto. Li forkuris en la preĝejon kaj ôlosis la portalon kaj pordon; la ekscitita popolamaso eksieĝis la preĝejon. La pigoj kaj kornikoj kaj ankaŭ la monedoj timegiĝis de la krioj kaj bruo. Ili flugadis en la turon kaj returne, ili rigardis malsupren al la popolamaso kaj enrigardis tra la fenestroj en la preĝejon kaj laŭte kriis, kion ili vidis. La reĝo Knut kuôis antaŭ la altaro kaj preĝis, liaj fratoj Eriko kaj Benedikto staris garde kun eltiri-taj glavoj, sed la servisto de la reĝo perfidis sian sinjoron. Oni sciis ekstere, kie oni povas lin trafi, kaj iu ?tis ôtonon tra la fe-69
-
-FABELOJ 4
-
-
-nestro, kaj la reĝo falis senviva. La sovaĝa amaso kaj la svarmoj da birdoj kriis kaj bruis, kaj mi ankaŭ kriis, mi kantis kaj sonoris: ting-tang, ting-tang!”
+Estis iam reĝo, oni lin nomis Knut; li klinadis sin antaŭ episkopo kaj mona˛o, sed kiam li surmetis tro pezajn impostojn kaj parolis nur malmildajn vortojn, la popolo kaptis batalilojn kaj stangojn kaj forpelis lin, kvazaŭ li estus sovaĝa besto. Li forkuris en la preĝejon kaj ôlosis la portalon kaj pordon; la ekscitita popolamaso eksieĝis la preĝejon. La pigoj kaj kornikoj kaj ankaŭ la monedoj timegiĝis de la krioj kaj bruo. Ili flugadis en la turon kaj returne, ili rigardis malsupren al la popolamaso kaj enrigardis tra la fenestroj en la preĝejon kaj laŭte kriis, kion ili vidis. La reĝo Knut kuôis antaŭ la altaro kaj preĝis, liaj fratoj Eriko kaj Benedikto staris garde kun eltiri-taj glavoj, sed la servisto de la reĝo perfidis sian sinjoron. Oni sciis ekstere, kie oni povas lin trafi, kaj iu ?tis ôtonon tra la fenestro, kaj la reĝo falis senviva. La sovaĝa amaso kaj la svarmoj da birdoj kriis kaj bruis, kaj mi ankaŭ kriis, mi kantis kaj sonoris: ting-tang, ting-tang!”
 
 ”La preĝeja sonorilo pendas alte, vidas malproksime ĉirkaŭ si, ricevas vizitojn de la birdoj kaj komprenas ilian lingvon, la vento bruas al ĝi tra aperturoj kaj sontruoj, tra ĉiu fendo, kaj la vento scias ĉion, ĝi havas tion el la aero, kaj ĉi tiu ampleksas ĉion, kio vivas, penetras en la pulmojn de la homo, scias ĉion, kio fariĝas aŭdebla, ĉiun vorton kaj ĉiun ĝemon! La aero tion scias, la vento tion rakontas, la preĝeja sonorilo komprenas ĝian lingvon kaj elsonoras tion antaŭ la tuta mondo: ting-tang, ting-tang!”
 
-”Sed ĉion ĉi tion aŭdi kaj scii fariĝis por mi tro multe, mi ne havis la eblon ĉion elsonori! Mi fariĝis tiel laca, mi fariĝis tiel peza, ke la trabo rompiĝis kaj mi elflugis en la aeron kaj de tie en la plej profundan lokon de la rivereto, kie loĝas la nikso, sola kaj soleca; kaj ĉe li mi rakontas ĉiam, kion mi aŭ-
-
-dis kaj kion mi scias: ting-tang, ting-tang!”
+”Sed ĉion ĉi tion aŭdi kaj scii fariĝis por mi tro multe, mi ne havis la eblon ĉion elsonori! Mi fariĝis tiel laca, mi fariĝis tiel peza, ke la trabo rompiĝis kaj mi elflugis en la aeron kaj de tie en la plej profundan lokon de la rivereto, kie loĝas la nikso, sola kaj soleca; kaj ĉe li mi rakontas ĉiam, kion mi aŭdis kaj kion mi scias: ting-tang, ting-tang!”
 
 Tiel sonas el la sonorila profundo en la rivereto Odense, la avino tion rakontis.
 
 Sed nia instruisto diras: ”Ne ekzistas sonorilo, kiu sonoras tie malsupre. Kaj ĝi ne povus tion fari! Kaj tie malsupre ne loĝas nikso, ĉar niksoj ne ekzistas!” Kiam ĉiuj preĝejaj sonoriloj sonoras tiel gaje, tiam li diras, ke sonoras ne la sonoriloj, sed nur la aero, ke la sonon aperigas la aero. Tion, diris la avino, asertis ankaŭ la sonorilo. Pri tio ili ambaŭ konsentas, kaj tial tio estas certa. ”Gardu vin, atentu!” diras ambaŭ.
 
-La aero scias ĉion! i estas ĉirkaŭ ni, ĝi estas en ni, ĝi parolas pri niaj pensoj kaj agoj, kaj ĝi parolas tion pli longe ol la sonorilo malsupre en la profundo de la rivereto Odense, ĝi 70
-
-FABELOJ 4
+La aero scias ĉion! i estas ĉirkaŭ ni, ĝi estas en ni, ĝi parolas pri niaj pensoj kaj agoj, kaj ĝi parolas tion pli longe ol la sonorilo malsupre en la profundo de la rivereto Odense, ĝi
 
 
 parolas tion en la grandan profundon de la ĉielo, tiel malproksimen, ĉiam kaj eterne, ĝis eksonas la sonoriloj de la ĉiela regno: ting-tang, ting-tang!
-
-
-FABELOJ 4
 
 
 Malbona princo
@@ -1521,36 +1189,25 @@ estis direktitaj nur al tio, ke li akiru ĉiujn landojn de la mondo kaj ke lia n
 
 muroj; sed la soldatoj ne konis kompaton, ili traserĉis ĉiujn angulojn, kaj kiam ili ŝin trovis kun ŝia infano, tiam ilia dia-bla ĝojo vere komenciĝis. Malbonaj spiritoj ne povus esti pli malbonaj gastoj. Sed la princo opiniis, ke tute ne povas esti alie. Kun ĉiu tago kreskis lia potenco, lian nomon ĉiuj timis, kaj feliĉo akompanis ĉiujn liajn entreprenojn. El la militaki-ritaj urboj li fortrenis kun si oron kaj grandajn trezorojn; en lia reĝurbo kolektiĝis tia riĉeco, kian oni nenie povus trovi. Li konstruigis belegajn palacojn, preĝejojn kaj arkadojn, kaj ĉiu, kiu vidis tiujn belegajn konstruaĵojn, ekkriis: ”Kia granda princo!” Ili ne pensis pri la mizero, kiun li venigis sur la aliajn landojn, ili ne aŭdis la ĝemojn kaj plorkriojn, kiuj sonis el la forbruligitaj urboj.
 
-La princo ĝojis ĉe la vidado de sia oro, ĉe la vidado de siaj belegaj konstruaĵoj kaj pensis tiam kiel la amaso: ”Kia granda princo! Sed mi devas havi pli, multe pli! Nenia potenco 72
-
-FABELOJ 4
+La princo ĝojis ĉe la vidado de sia oro, ĉe la vidado de siaj belegaj konstruaĵoj kaj pensis tiam kiel la amaso: ”Kia granda princo! Sed mi devas havi pli, multe pli! Nenia potenco
 
 
 devas esti simila al mia, des pli esti pli granda!” Kaj li iris milite kontraŭ ĉiujn siajn najbarojn kaj venkis ilin ĉiujn. La ven-kitajn reĝojn li, veturante tra la stratoj, alkatenigis per oraj ĉenoj al sia kaleŝo; kaj kiam li sidis ĉe la tablo, ili devis kuŝi antaŭ liaj piedoj kaj la piedoj de liaj korteganoj kaj nutri sin per la paneroj, kiujn oni ĵetadis al ili.
 
-Jen la princo ordonis starigi sian statuon sur la urbaj placoj kaj en la reĝaj palacoj, li eĉ postulis, ke ĝi staru en la pre-
-
-ĝejoj antaŭ la altaro de Dio; sed la pastroj diris: ”Princo, vi estas granda, sed Dio estas pli granda, ni ne kuraĝas tion fari.”
+Jen la princo ordonis starigi sian statuon sur la urbaj placoj kaj en la reĝaj palacoj, li eĉ postulis, ke ĝi staru en la preĝejoj antaŭ la altaro de Dio; sed la pastroj diris: ”Princo, vi estas granda, sed Dio estas pli granda, ni ne kuraĝas tion fari.”
 
 ”Bone,” diris la malbona princo, ”en tia okazo mi volas
 
 venki ankaŭ Dion!” En la malhumileco kaj malsaĝeco de sia
 
-koro li konstruigis eksterordinaran ŝipon, per kiu li povis veturi en la aero; ĝi estis kolorriĉa kiel vosto de pavo kaj ŝajnis esti garnita per mil okuloj, sed ĉiu okulo estis tubaperturo de pafilo. Meze en la ŝipo sidis la princo, li bezonis nur alpremi risorton, tiam miloj da kugloj flugis al sia celo, kaj la pafiloj tuj denove ŝargiĝis. Cent fortaj agloj estis aljungitaj al la ŝipo, kaj ĝi leviĝis renkonte al la suno. Profunde malsupre kuŝis la tero; en la komenco ĝi kun siaj montoj kaj arbaroj faris impreson de replugita kampo, kie la verdaĵo elvidiĝas el la ren-versitaj terpecoj, poste ĝi similis al plata geografia karto, kaj baldaŭ ĝi tute kovriĝis per nebulo kaj nuboj. ĉiam pli kaj pli alten flugis la agloj. Tiam Dio sendis unu solan el siaj sennombraj anĝeloj, kaj la malbona princo ekpafis kontraŭ lin per unu fojo el ĉiuj siaj mil pafiloj. Sed la kugloj resaltis kiel hajlo de la lumantaj flugiloj de la anĝelo; unu guto da sango, nur unu sola guto elŝprucis el blanka flugila plumo kaj falis sur la ŝipon, en kiu sidis la princo. Kun bruliga ardo ĝi eniris en la ŝipon, pezege premis ĝin malsupren kaj puŝis ĝin kun 73
-
-FABELOJ 4
+koro li konstruigis eksterordinaran ŝipon, per kiu li povis veturi en la aero; ĝi estis kolorriĉa kiel vosto de pavo kaj ŝajnis esti garnita per mil okuloj, sed ĉiu okulo estis tubaperturo de pafilo. Meze en la ŝipo sidis la princo, li bezonis nur alpremi risorton, tiam miloj da kugloj flugis al sia celo, kaj la pafiloj tuj denove ŝargiĝis. Cent fortaj agloj estis aljungitaj al la ŝipo, kaj ĝi leviĝis renkonte al la suno. Profunde malsupre kuŝis la tero; en la komenco ĝi kun siaj montoj kaj arbaroj faris impreson de replugita kampo, kie la verdaĵo elvidiĝas el la ren-versitaj terpecoj, poste ĝi similis al plata geografia karto, kaj baldaŭ ĝi tute kovriĝis per nebulo kaj nuboj. ĉiam pli kaj pli alten flugis la agloj. Tiam Dio sendis unu solan el siaj sennombraj anĝeloj, kaj la malbona princo ekpafis kontraŭ lin per unu fojo el ĉiuj siaj mil pafiloj. Sed la kugloj resaltis kiel hajlo de la lumantaj flugiloj de la anĝelo; unu guto da sango, nur unu sola guto elŝprucis el blanka flugila plumo kaj falis sur la ŝipon, en kiu sidis la princo. Kun bruliga ardo ĝi eniris en la ŝipon, pezege premis ĝin malsupren kaj puŝis ĝin kun
 
 
-terura rapideco al la tero. La fortaj flugiloj de la agloj frakasiĝis, la vento bruis ĉirkaŭ la kapo de la princo, kaj la nuboj ĉirkaŭe, kiuj kolektiĝis el la fumo de la cindrigitaj urboj, formis minacantajn bildojn; jen ili similis al mejle grandaj kan-kroj, kiuj etendis kontraŭ lin siajn fortajn pinĉilojn, jen al ruli-
-
-ĝantaj rokpecoj kaj fajrokraĉantaj drakoj. Duone mortinta la princo kuŝis en la ŝipo, kiu fine pendiĝis inter la densaj bran-
+terura rapideco al la tero. La fortaj flugiloj de la agloj frakasiĝis, la vento bruis ĉirkaŭ la kapo de la princo, kaj la nuboj ĉirkaŭe, kiuj kolektiĝis el la fumo de la cindrigitaj urboj, formis minacantajn bildojn; jen ili similis al mejle grandaj kan-kroj, kiuj etendis kontraŭ lin siajn fortajn pinĉilojn, jen al ruliĝantaj rokpecoj kaj fajrokraĉantaj drakoj. Duone mortinta la princo kuŝis en la ŝipo, kiu fine pendiĝis inter la densaj bran-
 
 ĉoj de arbaro.
 
 ”Mi volas venki Dion!” li diris, ”mi tion ĵuris, mia volo plenumiĝu!” En la daŭro de sep jaroj li konstruigis artoplenajn flugmaŝinojn kaj forĝigis fulmajn radiojn el plej malmola ŝta-lo, ĉar li volis krevigi la fortikaĵon de la ĉielo. El ĉiuj siaj landoj li kolektis grandajn armeojn, kiuj, kiam ili estis starigitaj en vicoj, homo apud homo, kovris la spacon de multe da mejloj. Ili suriris sur la maŝinojn, la reĝo mem jam alproksimiĝis al sia, sed tiam Dio subite sendis svarmon da kuloj, unu solan malgrandan svarmon. i ĉirkaŭsvarmis la reĝon kaj pikis al li la vizaĝon kaj la manojn. Plena de kolero li eltiris ˛ŝian glavon, sed li batis nur la malplenan aeron, la kulojn li ne povis trafi. Tiam li ordonis alporti multekostajn tapiŝojn kaj envolvis sin, kaj neniu pikilo de kulo povis penetri tra ĝi. Sed unu sola kulo sidiĝis sur la interna flanko de tapiŝo; ĝi enrampis en la orelon de la princo kaj tie pikis lin. Tio brulis kiel fajro, la veneno penetris en la cerbon, li forĵetis de si la ta-piŝojn, disŝiris siajn vestojn kaj dancis nude antaŭ la krudaj sovaĝaj soldatoj, kiuj nun mokis la frenezan princon, kiu volis ataki la regnon de Dio kaj estis venkita jam de unu malgranda kulo.
-
-
-FABELOJ 4
 
 
 La vento rakontas pri Valdemaro Doe
@@ -1569,9 +1226,6 @@ greno, tiam ĉi tiu ondiĝas kiel la maro; tio estas la danco de la vento. aŭsk
 ĝin jam antaŭe, kiam ĝi troviĝis ankoraŭ en la kastelo de
 
 Marsk Stig. La posedanto malriĉiĝis, la ŝtono denove leviĝis kaj formis novan muregon, novan kastelon, en alia loko, la kastelon Borreby, kiu staras ankoraŭ nun.
-
-
-FABELOJ 4
 
 
 Mi vidis kaj konis la alte nobelajn virojn kaj virinojn, la ŝanĝiĝantajn generaciojn, kiuj tie loĝis. Nun mi rakontos pri Valdemaro Doe kaj pri liaj filinoj!
@@ -1596,12 +1250,7 @@ en fremda lingvo. Tie regis vivo kaj societemeco, eminentaj fremduloj venadis de
 
 sonadis, pokaloj sonadis, mi ne povis superbrui ilin!” diris la vento. ”Tie regis malhumileco kun lukso kaj riĉeco, sinjore-co, sed ne Dio!
 
-Estis ĝuste la vespero de bela Maja tago,” rakontis la ven-to, ”mi venis de okcidente, mi estis ruiniginta la ŝipojn ĉe la okcidenta bordo de Jutlando, mi estis kurinta trans la erike-76
-
-FABELOJ 4
-
-
-jon kaj la arbarverdan marbordon kaj venis nun senspire
+Estis ĝuste la vespero de bela Maja tago,” rakontis la ven-to, ”mi venis de okcidente, mi estis ruiniginta la ŝipojn ĉe la okcidenta bordo de Jutlando, mi estis kurinta trans la erikejon kaj la arbarverdan marbordon kaj venis nun senspire
 
 trans la Belton. ĉe la bordo de Zelando mi kuŝiĝis por ripo-zi, proksime de la kastelo Borreby, kie staris ankoraŭ la arbaro kun belegaj kverkoj.
 
@@ -1610,16 +1259,11 @@ La junuloj el la ĉirkaŭaĵo elvenis kaj kolektis branĉaĵon kaj branĉojn, la
 ”Mi kuŝis silente”, diris la vento, ”sed senbrue mi blovis sur unu branĉon, kiu estis kuŝigita de la plej bela junulo. i ekfla-mis, flamis pli alte ol ĉiuj aliaj. Li estis la elektito, li fariĝis la reĝo de la festo kaj antaŭ ĉio elektis al si inter la knabinoj sian reĝinon. Estis ĝojo, estis gajeco, pli granda ol en la kastelo Borreby.
 
 
-Al la kastelo veturis en ora kaleŝo kun ses ĉevaloj la altmoŝ-
-
-ta sinjorino kaj ŝiaj tri filinoj, tiel elegantaj, tiel junaj, tri ĉarmaj floroj: rozo, lilio kaj pala hiacinto. La patrino mem estis luksa tulipo, ŝi salutis neniun el la tuta kolektiĝinta societo, kiu haltis en sia amuziĝo kaj riverencis kaj salutis per la piedoj; oni povus pensi, ke la sinjorino timis, ke de saluto ŝi rompiĝus.
+Al la kastelo veturis en ora kaleŝo kun ses ĉevaloj la altmoŝta sinjorino kaj ŝiaj tri filinoj, tiel elegantaj, tiel junaj, tri ĉarmaj floroj: rozo, lilio kaj pala hiacinto. La patrino mem estis luksa tulipo, ŝi salutis neniun el la tuta kolektiĝinta societo, kiu haltis en sia amuziĝo kaj riverencis kaj salutis per la piedoj; oni povus pensi, ke la sinjorino timis, ke de saluto ŝi rompiĝus.
 
 La rozo, la lilio kaj la pala hiacinto, jes, mi vidis ilin ĉiujn tri! Kies reĝinoj ili iam fariĝos? mi pensis. Ilia elektito estos fiera kavaliro, eble eĉ princo!
 
 Hu-u-u!
-
-
-FABELOJ 4
 
 
 La kaleŝo veturis kun ili pluen, kaj la vilaĝanoj daŭrigis sian dancadon.
@@ -1633,11 +1277,7 @@ Mi revenis, mi ofte revenadis, trans Funen kaj la akvon de Belto, kaj mi ripozis
 
 Estis frua sezono, kelkaj havis ovojn, aliaj havis jam idojn. Ha, kiel ili flugadis, kiel ili kriadis! Oni aŭdis frapojn de hakilo, unu post la alia. La arbaro estis elhakota, Valdemaro Doe volis konstrui multekostan ŝipon, militan ŝipon, triferdekulon, kiun la reĝo certe aĉetos, kaj tial la arbaro estis elhakata, la rekonilo de la maristoj, la loĝejo de la birdoj. Kun timego flugadis tien kaj reen alaŭdfalko, kies neston oni detruis; la maraglo kaj ĉiuj arbaraj birdoj devis forlasi sian hejmon, flugadis senplane kaj kriadis de timo kaj kolero; mi komprenis bo-ne ilian malĝojon kaj iliajn vortojn. La kornikoj kaj monedoj kriis moke tute laŭte: ”For el la nesto! For el la nesto! For, for!”
 
-Meze de la arbaro apud grupo de laboristoj staris Valde-
-
-maro Doe kun siaj tri filinoj, kaj ĉiuj ridis pri la sovaĝa ang-78
-
-FABELOJ 4
+Meze de la arbaro apud grupo de laboristoj staris Valdemaro Doe kun siaj tri filinoj, kaj ĉiuj ridis pri la sovaĝa ang-78
 
 
 ora kriado de la birdoj. Nur la plej juna filino, Anno-Doroteo, sentis kompaton en sia koro, kaj kiam oni volis faligi ankaŭ duone velksekiĝintan arbon, sur kies nudaj branĉoj havis sian neston la nigra cikonio, kies idoj scivole rigardis el la nesto, ŝi petis por ĝi, ŝi petis kun larmoj en la okuloj, kaj tial oni permesis, ke la arbo kun la nesto de la nigra cikonio restu. Tio cetere estis nur malgrava afero.
@@ -1645,12 +1285,7 @@ ora kriado de la birdoj. Nur la plej juna filino, Anno-Doroteo, sentis kompaton 
 Oni hakis, oni segis, — oni konstruis triferdekulon. La lulilo de la konstruisto estis starinta nur en malgrava kabano, sed nobelaj moroj kaj nobelaj manieroj lin distingis. La frunto kaj la okuloj atestis pri lia saĝeco kaj lia kapableco, kaj Valdemaro Doe volonte aŭskultadis, kiam li rakontis. Ankaŭ la malgranda Ido volonte aŭskultadis, la plej aĝa, dekkvinjara filino; kaj dum li estis konstruanta ŝipon por la patro, li konstruis por si mem ?merkastelon, en kiu li kaj la malgranda Ido sidis kiel edzo kaj edzino, kaj tio efektive fariĝus, se nur la kastelo estus konstruita el ŝtonoj kaj ĉirkaŭita de remparoj kaj fosoj, ĝardenoj kaj arbaroj. Sed ĉe sia tuta saĝeco la majstro tamen estis nur malriĉa birdo, kaj kion havas por fari la pasero en la rondo de la gruoj? Hu-u-u! Mi forflugis, kaj li ankaŭ forflugis, ĉar oni ne permesis al li resti, kaj la malgranda Ido paciĝis kun tio, ĉar ŝi devis paciĝi.
 
 
-En la ĉevalejo blekis la nigraj ĉevaloj, kiuj meritis admiradon, kaj oni ilin admiris. La admiralo estis sendita de la reĝo mem, por pririgardi la novan militan ŝipon kaj trakti pri la aĉeto. Li eldiris laŭte sian admiron pri la fajraj ĉevaloj; mi bone tion aŭdis,” diris la vento; ”mi sekvis la sinjorojn tra la malfermi-79
-
-FABELOJ 4
-
-
-ta pordo kaj disĵetis la pajlerojn kiel orajn fadenojn antaŭ iliajn piedojn. ?maro Doe volis havi oron, la admiralo volis havi la nigrajn ĉevalojn, tial li tiel ilin laŭdis, sed tio ne estis kom-prenita, kaj tial ankaŭ la ŝipo ne estis aĉetita. i staris, kovrita per tabulegoj, ĉe la bordo, kiel arkeo de Noa, kiu neniam iris sur la maron. Hu-u-u! Kaj tio estis ploreginda afero.
+En la ĉevalejo blekis la nigraj ĉevaloj, kiuj meritis admiradon, kaj oni ilin admiris. La admiralo estis sendita de la reĝo mem, por pririgardi la novan militan ŝipon kaj trakti pri la aĉeto. Li eldiris laŭte sian admiron pri la fajraj ĉevaloj; mi bone tion aŭdis,” diris la vento; ”mi sekvis la sinjorojn tra la malfermita pordo kaj disĵetis la pajlerojn kiel orajn fadenojn antaŭ iliajn piedojn. ?maro Doe volis havi oron, la admiralo volis havi la nigrajn ĉevalojn, tial li tiel ilin laŭdis, sed tio ne estis kom-prenita, kaj tial ankaŭ la ŝipo ne estis aĉetita. i staris, kovrita per tabulegoj, ĉe la bordo, kiel arkeo de Noa, kiu neniam iris sur la maron. Hu-u-u! Kaj tio estis ploreginda afero.
 
 En la vintro, kiam neĝa kovro kuŝis sur la kampo, kiam
 
@@ -1658,20 +1293,13 @@ naĝanta glacio plenigis Belton kaj mi ĝin puŝis al la bordo,”
 
 rakontis plue la vento, ”venis korvoj kaj kornikoj, unuj pli nigraj ol la aliaj, en grandaj svarmoj; ili sidiĝis sur la dezerta, senviva, soleca ŝipo ĉe la bordo kaj kriis raŭke kaj plendis pri la arbaro, kiu malaperis, pri la multaj belegaj birdaj nestoj, kiuj estis detruitaj, pri la senrifuĝaj maljunaj birdoj, pri la senrifuĝaj birdidoj, kaj ĉio fariĝis por la malnova neuzeblaĵo, por la fiera ŝipo, kiu estis neniam elnaĝonta.
 
-Mi blovis en la neĝon, tiel ke ĝi gaje ekturniĝis; ĝi alte amasiĝis ĉirkaŭ la ŝipo kaj sur ĝi. Mi aŭdigis al ĝi mian voĉon, por ke ĝi povu rimarki, kion vento havas por diri. Mi povas laŭ-
-
-di min, ke mi kunlaboris kiom mi povis, por ke ĝi kolektu al si sperton. Hu-u-u!
+Mi blovis en la neĝon, tiel ke ĝi gaje ekturniĝis; ĝi alte amasiĝis ĉirkaŭ la ŝipo kaj sur ĝi. Mi aŭdigis al ĝi mian voĉon, por ke ĝi povu rimarki, kion vento havas por diri. Mi povas laŭdi min, ke mi kunlaboris kiom mi povis, por ke ĝi kolektu al si sperton. Hu-u-u!
 
 Kaj la vintro foriris, vintro kaj somero, ili foriris kaj foriras tiel same, kiel mi foriras, kiel forbloviĝas la neĝo, kiel forfa-las la floraĵo de la pomarbo kaj kiel forskuiĝas la folioj. For, for! ankaŭ la homoj formalaperas!
 
 Sed ankoraŭ la filinoj estis junaj, la malgranda Ido estis rozo belaspekta kiel tiam, kiam la ŝipkonstruisto ŝin vidis.
 
-Ofte mi ludis kun ŝiaj longaj brunaj haroj, kiam ŝi enpense staris apud la pomarbo en la ĝardeno kaj ne rimarkis, ke mi ŝutas al ŝi floraĵojn sur la harojn, kiuj disliberiĝis, kaj ŝi rigar-80
-
-FABELOJ 4
-
-
-dis la ardantan sunon kaj la oran ĉielon tra la mallumaj arbetaĵo; kaj arboj de la ĝardeno.
+Ofte mi ludis kun ŝiaj longaj brunaj haroj, kiam ŝi enpense staris apud la pomarbo en la ĝardeno kaj ne rimarkis, ke mi ŝutas al ŝi floraĵojn sur la harojn, kiuj disliberiĝis, kaj ŝi rigardis la ardantan sunon kaj la oran ĉielon tra la mallumaj arbetaĵo; kaj arboj de la ĝardeno.
 
 ŝia fratino Johanino estis kiel lilio, brilanta kaj rigida; kun fiere levita kapo ŝi iradis, kaj, simile al sia patrino, ŝi neniam respondis al afabla saluto, timante, ke de resaluto ŝi povus rompiĝi. Volonte ŝi iradis en la grandan salonon, kie pendis la portretoj de la prapatroj; la virinoj sur la portretoj havis sur si veluron kaj silkon kaj malgrandajn ĉapeletojn kun riĉa perla brodaĵo sur la plektitaj haroj. Tio estis belaj virinoj! Iliajn edzojn oni vidis vestitajn en ŝtalo aŭ en multekostaj mante-loj, subŝtofitaj per sciuraj feloj, kaj kun blueta kolkrispo. La glavo estis zonita ĉirkaŭ la femuro, ne ĉirkaŭ la lumbo. Kie iam pendos sur la muro la portreto de Johanino, kaj kiel aspektos ŝia nobela edzo? Pri tio ŝi pensis, pri tio ŝi flustris, mi tion aŭdis, kiam mi tra la longa koridoro enkuris en la salonon kaj elkuris returne.
 
@@ -1679,9 +1307,7 @@ Anno-Doroteo, la pala hiacinto, nur dekkvarjara infano,
 
 estis silentema kaj meditema; la grandaj akvobluaj okuloj aspektis enpensigitaj, sed ĉirkaŭ la buŝo ludis infana rideto, mi ne povis ĝin forblovi, kaj mi tion ankaŭ ne volis.
 
-Mi renkontis ŝin en la ĝardeno, en la interkrutejo kaj ĉe la kamplimoj, kie ŝi kolektis herbojn kaj florojn, pri kiuj ŝi sciis, ke ŝia patro povas ilin uzi por trinkaĵoj kaj gutoj, kiujn li povosciis distili; Valdemaro Doe estis malhumila kaj fiera, sed ankaŭ multescia kaj sperta. Oni tion bone sciis, oni flustris al si pri tio diversajn rakontojn. Fajro brulis en lia kameno eĉ en somero; la pordo de la ĉambro estis ŝlosita; tage kaj nokte li laboradis senlace en sia laboratorio, sed li ne parolis pri tio multe; la fortojn de la naturo oni devas primajstri sekrete. Li 81
-
-FABELOJ 4
+Mi renkontis ŝin en la ĝardeno, en la interkrutejo kaj ĉe la kamplimoj, kie ŝi kolektis herbojn kaj florojn, pri kiuj ŝi sciis, ke ŝia patro povas ilin uzi por trinkaĵoj kaj gutoj, kiujn li povosciis distili; Valdemaro Doe estis malhumila kaj fiera, sed ankaŭ multescia kaj sperta. Oni tion bone sciis, oni flustris al si pri tio diversajn rakontojn. Fajro brulis en lia kameno eĉ en somero; la pordo de la ĉambro estis ŝlosita; tage kaj nokte li laboradis senlace en sia laboratorio, sed li ne parolis pri tio multe; la fortojn de la naturo oni devas primajstri sekrete. Li
 
 
 esperis, ke li baldaŭ ellernos la plej bonan arton — la arton fari oron.
@@ -1698,15 +1324,11 @@ kelo kaj en la subtegmento. Ju pli malbone staras la homoj, des pli da musoj. Un
 
 Mi blovis tra la pordego de la kastelo kiel gardisto, kiu
 
-trumpetas per la korno, sed tie estis neniu gardisto,” diris la vento. ”Mi turnis la ventmontrilon sur la tegmento tiel, ke ĝi knaris, kvazaŭ la gardisto ronkus sur la turo, sed neniu gardisto tie troviĝis. Ratoj kaj musoj tie troviĝis; malriĉeco kovris la tablon, malriĉeco sidis en la vesta ŝranko kaj en la manĝaĵ-
-
-korbo; la pordo deŝoviĝis de la hokoj, ricevis fendojn kaj kre-vojn. Mi eniradis kaj eliradis,” diris la vento, ”tial mi ĉion bo-ne scias.
+trumpetas per la korno, sed tie estis neniu gardisto,” diris la vento. ”Mi turnis la ventmontrilon sur la tegmento tiel, ke ĝi knaris, kvazaŭ la gardisto ronkus sur la turo, sed neniu gardisto tie troviĝis. Ratoj kaj musoj tie troviĝis; malriĉeco kovris la tablon, malriĉeco sidis en la vesta ŝranko kaj en la manĝaĵkorbo; la pordo deŝoviĝis de la hokoj, ricevis fendojn kaj kre-vojn. Mi eniradis kaj eliradis,” diris la vento, ”tial mi ĉion bo-ne scias.
 
 En la fumo kaj cindro, en ĉagreno kaj sendormaj noktoj
 
-griziĝis la haroj en la barbo kaj ĉe la tempioj, la haŭto fariĝis 82
-
-FABELOJ 4
+griziĝis la haroj en la barbo kaj ĉe la tempioj, la haŭto fariĝis
 
 
 sulka kaj flava, la okuloj brilis per avida serĉado de oro, de la atendata oro.
@@ -1721,9 +1343,7 @@ Estis tiel malvarme, ke la neĝo kraketis sub la piedoj. Mi kuradis tra la aŭdo
 
 Mi aŭdis, kiel li flustris al araneo en ĝia ŝpinaĵo: ”Vi lerta malgranda ŝpinisto, vi instruas al mi elteni. Se via ŝpinaĵo disŝiriĝas, vi komencas denove de la komenco kaj alkondukas al fino! Se denove disŝiriĝas, vi senlace denove komencas la laboron, de la komenco, de la komenco! Tiel oni devas agi, kaj tia persisteco estas rekompencata.”
 
-Estis Paska mateno, la sonoriloj sonoris, la suno ludis sur 83
-
-FABELOJ 4
+Estis Paska mateno, la sonoriloj sonoris, la suno ludis sur
 
 
 la ĉielo. Febre li estis maldorminta, kuirinta kaj malvarmig-inta, miksinta kaj distilinta. Mi aŭdis, kiel li ĝemis simile al senespera animo, mi aŭdis, kiel li preĝis, mi rimarkis, ke li retenas la spiron. La lampo finis sian bruladon, li tion ne rimarkis; mi blovis sur la ardantajn karbojn, ili prilumis lian krete blankan vizaĝon, kiu de tio iom ruĝetiĝis, liaj okuloj estis profunde enkaviĝintaj, — sed jen ili fariĝis pli kaj pli grandaj, tiel ke ili preskaŭ elŝoviĝis el siaj kavoj.
@@ -1732,22 +1352,14 @@ Vidu la alęmian glason! Io brilas en ĝi! i estas ardanta, pura kaj peza! Per t
 
 En malfrua tempo de la jaro, en la mallongaj tagoj, kiam en tiun regionon venas la nebulo kun sia vualo kaj ŝprucigas el
 
-ĝi malsekajn gutojn sur la ruĝajn berojn kaj senfoliajn bran-
+ĝi malsekajn gutojn sur la ruĝajn berojn kaj senfoliajn branĉojn, mi venis en plej bona humoro, blovis iomete, blovbalais la ĉielon kaj derompis la velksekiĝintajn kaj putrantajn bran-
 
-ĉojn, mi venis en plej bona humoro, blovis iomete, blovbalais la ĉielon kaj derompis la velksekiĝintajn kaj putrantajn bran-
-
-ĉojn. Tio ne estas granda laboro, sed oni devas ĝin fari. En alia maniero estis balaate ankaŭ en la kastelo Borreby ĉe Valdemaro Doe. Lia malamiko Ove Ramel el Basnas aĉetis per aŭk-
-
-cio la kastelon kaj la tutan meblaron. Mi tamburis sur la kre-84
-
-FABELOJ 4
+ĉojn. Tio ne estas granda laboro, sed oni devas ĝin fari. En alia maniero estis balaate ankaŭ en la kastelo Borreby ĉe Valdemaro Doe. Lia malamiko Ove Ramel el Basnas aĉetis per aŭkcio la kastelon kaj la tutan meblaron. Mi tamburis sur la kre-84
 
 
 vintaj fenestraj vitroj, frapis per la ruiniĝintaj pordoj, fajfis tra la fendoj kaj truoj: Hu-u! Mi volis forpreni de sinjoro Ove la deziron resti ĉi tie. Ido kaj Anno-Doroteo ploris per sangaj larmoj; Johanino staris rigida kaj pala kaj mordis al si la fingron, ke ĝi sangis. Jes, tio multe povis helpi! Ove Ramel volis permesi al sinjoro Doe, ke li restu dum sia tuta vivo en la kastelo, sed li ne ricevis dankon pro sia propono. Mi aŭskultis.
 
-Mi vidis, kiel la senhava sinjoro pli fiere levis sian kapon, stre-
-
-ĉis sian kolon, kaj mi direktis ventan puŝon kontraŭ la kastelon kaj la maljunajn tiliojn, tiel ke la plej dika branĉo rompiĝis, kvankam ĝi ne estis putra. i kuŝis antaŭ la pordo kiel balailo, por la okazo, se iu volos balai kaj estos forbalaita; tiel mi pensis en mi.
+Mi vidis, kiel la senhava sinjoro pli fiere levis sian kapon, streĉis sian kolon, kaj mi direktis ventan puŝon kontraŭ la kastelon kaj la maljunajn tiliojn, tiel ke la plej dika branĉo rompiĝis, kvankam ĝi ne estis putra. i kuŝis antaŭ la pordo kiel balailo, por la okazo, se iu volos balai kaj estos forbalaita; tiel mi pensis en mi.
 
 Tio estis malfacila, suferiga tago, malbona momento por
 
@@ -1762,9 +1374,6 @@ Mi malvarmetigis liajn varmegajn vangojn, mi karesis lian
 grizan barbon kaj liajn longajn blankajn harojn, mi kantis, kiel mi nur povis: Hu-u-u! Tio estis la fino de la riĉa lukso.
 
 Ido kaj Anno-Doroteo iris dekstre kaj maldekstre de li. Johanino returnis sin sub la portalo. Sed kion tio povis helpi, la feliĉo ja ne volis sin returni! ŝi rigardis la ruĝajn ŝtonojn de la muregoj, kiuj devenis ankoraŭ el la kastelo de Marsk Stig, ŝi pensis pri liaj filinoj:
-
-
-FABELOJ 4
 
 
 ”De l’ plej aĝa la manon la plej juna ekkaptis,
@@ -1789,14 +1398,10 @@ La vento rakontas:
 
 Sur la erikejo proksime de la urbo Viborg staris la nova eleganta domo de la preposto el ruĝaj ŝtonoj kaj kun dentita
 
-frontono; la fumo grase leviĝadis el la kamentubo. La milda dommastrino kaj la ĉarmaj filinoj sidis en la balkonaĵo kaj rigardis trans la ornamajn arbetaĵojn de la ĝardeno al la bruna erikejo. Kion ili rigardis! Ili rigardis la cikonian neston tie 86
-
-FABELOJ 4
+frontono; la fumo grase leviĝadis el la kamentubo. La milda dommastrino kaj la ĉarmaj filinoj sidis en la balkonaĵo kaj rigardis trans la ornamajn arbetaĵojn de la ĝardeno al la bruna erikejo. Kion ili rigardis! Ili rigardis la cikonian neston tie
 
 
-sur la kaduka domo. La malabundaj restaĵoj de la iama teg-
-
-mento estis kovritaj de musko kaj de sempervivo; la ĉefan
+sur la kaduka domo. La malabundaj restaĵoj de la iama tegmento estis kovritaj de musko kaj de sempervivo; la ĉefan
 
 ŝirmon prezentis la nesto de cikonio, kiun tenis en bona stato la cikonio, dum ĉio alia estis elmetita al ruiniĝado.
 
@@ -1806,9 +1411,7 @@ Tio estis domo nur por rigardi, ne por tuŝi. Mi devis tie agi singarde,” diri
 
 ĝardeno. ŝi memoris tion ĉion, ŝi, Anno-Doroteo. ”Ho, ho!”
 
-Jes, la homoj povoscias ĝemi, kiel tion faras la vento en junko kaj kanoj. ”Ho! Sonoriloj ne sonoris super via tombo, Valdemaro Doe! La malriĉaj lernejaj knaboj ne kantis, kiam la estinta posedanto de Borreby estis metata en la teron! Ho, ĉio ja finiĝas, ankaŭ la mizero. Fratino Ido fariĝis edzino de vila-
-
-ĝano; tio estis por nia patro la plej kruela elprovo! Lia bofilo mizera servutulo, kiu de sia sinjoro povis esti kondamnata al la plej malhonoraj punoj! Nun estas al li bone sub la tero, kaj al vi ankaŭ, Ido! Sed al mi ne venis ankoraŭ la fino, al mi, profundaĝa maljunulino, al mi, malfeliĉa estaĵo! Liberigu
+Jes, la homoj povoscias ĝemi, kiel tion faras la vento en junko kaj kanoj. ”Ho! Sonoriloj ne sonoris super via tombo, Valdemaro Doe! La malriĉaj lernejaj knaboj ne kantis, kiam la estinta posedanto de Borreby estis metata en la teron! Ho, ĉio ja finiĝas, ankaŭ la mizero. Fratino Ido fariĝis edzino de vilaĝano; tio estis por nia patro la plej kruela elprovo! Lia bofilo mizera servutulo, kiu de sia sinjoro povis esti kondamnata al la plej malhonoraj punoj! Nun estas al li bone sub la tero, kaj al vi ankaŭ, Ido! Sed al mi ne venis ankoraŭ la fino, al mi, profundaĝa maljunulino, al mi, malfeliĉa estaĵo! Liberigu
 
 min, ho granda Sinjoro!”
 
@@ -1816,9 +1419,7 @@ Tia estis la preĝo de Anno-Doroteo en la mizera dometo,
 
 kiun oni pro la cikonio lasis stari.
 
-Al la plej kuraĝa kaj plej forta el la fratinoj mi donis mian helpon. Kiaj estis ŝiaj pensoj, tiaj estis ankaŭ ŝiaj agoj. En la 87
-
-FABELOJ 4
+Al la plej kuraĝa kaj plej forta el la fratinoj mi donis mian helpon. Kiaj estis ŝiaj pensoj, tiaj estis ankaŭ ŝiaj agoj. En la
 
 
 vestoj de malriĉa ŝipservisto ŝi iris en servadon al ŝipisto; ŝi estis neparolema kaj malbonhumora, sed en sia profesio ŝi
@@ -1836,18 +1437,13 @@ La cikonio donis al ŝi protekton kaj ŝirmon ĝis ŝia morto!
 
 Mi kantis super ŝia tombo!” diris la vento. ”Mi kantis super la tombo de ŝia patro, mi scias, kie estas lia kaj kie estas ŝia tombo, neniu alia tion scias.
 
-Novaj tempoj, aliaj tempoj! Malnova landvojo fariĝas plug-
-
-tero, tombejo fariĝas libera landvojo, — kaj baldaŭ venas la vaporo kun sia vico da vagonoj kaj brue kuras super la tomboj, kiuj estas forgesitaj kiel la nomoj. Hu-u-u!
+Novaj tempoj, aliaj tempoj! Malnova landvojo fariĝas plugtero, tombejo fariĝas libera landvojo, — kaj baldaŭ venas la vaporo kun sia vico da vagonoj kaj brue kuras super la tomboj, kiuj estas forgesitaj kiel la nomoj. Hu-u-u!
 
 Tio estas la historio pri Valdemaro Doe kaj pri liaj filinoj.
 
 Rakontu ĝin pli bone, vi aliaj, se vi povas!” diris la vento kaj forturniĝis.
 
 Kaj ĝi forflugis.
-
-
-FABELOJ 4
 
 
 Knabino, kiu paŝis sur panon
@@ -1872,9 +1468,7 @@ propra patrino. ”Estante infano vi ofte faris al mi doloron, kiam vi ludis sur
 
 Kaj tion ŝi bedaŭrinde faris.
 
-Jen ŝi venis en servadon al altklasaj homoj en la kamparo; 89
-
-FABELOJ 4
+Jen ŝi venis en servadon al altklasaj homoj en la kamparo;
 
 
 ili traktadis ŝin kiel sian propran infanon, vestadis ŝin tiamaniere, kaj ŝia malhumileco de tio kreskis.
@@ -1885,37 +1479,26 @@ Kaj ŝi iris, sed nur por sin montri. Ili vidu, kiel eleganta ŝi fariĝis. Sed 
 
 Pasis denove duono da jaro.
 
-”Vi devus iam iri hejmen kaj viziti viajn maljunajn gepa-
-
-trojn, kara Inger!” diris ŝia mastrino. ”Jen vi havas grandan tritikan panon, vi povas ĝin preni kun vi por ili; ili ĝojos, kiam ili vin vidos.”
+”Vi devus iam iri hejmen kaj viziti viajn maljunajn gepatrojn, kara Inger!” diris ŝia mastrino. ”Jen vi havas grandan tritikan panon, vi povas ĝin preni kun vi por ili; ili ĝojos, kiam ili vin vidos.”
 
 Inger metis sur sin sian plej bonan veston kaj siajn novajn ŝuojn; ŝi levis alte siajn elegantajn vestojn kaj iris tre singarde, por ke ŝiaj piedoj restu puraj kaj elegantaj, kaj pro tio oni ja ne povas fari al ŝi riproĉon. Sed kiam ŝi atingis la vojeton, kiu kondukis trans la marĉon kaj sur kiu staris akvo kaj formiĝis kotkavo, ŝi ĵetis en la koton la panon por paŝi sur ĝin kaj transiri kun sekaj piedoj; sed dum ŝi per unu piedo staris sur la pano kaj levis la duan piedon, la pano malleviĝis kun ŝi ĉiam pli kaj pli profunden, ŝi malaperis, kaj oni povis vidi nur nigran vezikkovritan marĉon.
 
 Tiel rakontas la historio.
 
-Kien ŝi venis? ŝi venis malsupren al la marĉistino, kiu fa-90
-
-FABELOJ 4
-
-
-ras bieron. La marĉistino estas la onklino de la elfaj knabinoj; ĉi tiuj estas sufiĉe konataj, oni ilin prikantis kaj pentris, sed pri la marĉistino la homoj scias nur tion, ke ŝi faras bieron, kiam en somero la herbejoj vaporas. uste en ŝian bierfare-jon Inger malleviĝis kaj tie oni ne povas longe elteni. ŝlima truo estas preskaŭ palaco en komparo kun la bierfarejo de la marĉistino. ĉiu barelo malbonodoras tiel, ke la homoj svenas de tiu odoro; alte amasigitaj unu sur la alia staris la bareloj, kaj se inter ili ie montriĝis malgranda aperturo, tra kiu oni povus sin trapuŝi, tion malhelpis malsekaj bufoj kaj grasaj li-makoj, kiuj tie kuŝis intervolvitaj en formo de abomeninda bulo. Tien falis la malgranda Inger; tiu tuta abomeninda vivanta svarmo estis tiel glacie malvarma, ke ŝi tremis per ĉiuj membroj kaj ĉiam pli kaj pli rigidiĝis. Malgraŭ ĉiuj penoj ŝi ĉiam ankoraŭ estis fiksita al la pano, kaj ĉi tiu ŝin tiris malsupren, kiel peco da sukceno altiras peceton da papero.
+Kien ŝi venis? ŝi venis malsupren al la marĉistino, kiu faras bieron. La marĉistino estas la onklino de la elfaj knabinoj; ĉi tiuj estas sufiĉe konataj, oni ilin prikantis kaj pentris, sed pri la marĉistino la homoj scias nur tion, ke ŝi faras bieron, kiam en somero la herbejoj vaporas. uste en ŝian bierfare-jon Inger malleviĝis kaj tie oni ne povas longe elteni. ŝlima truo estas preskaŭ palaco en komparo kun la bierfarejo de la marĉistino. ĉiu barelo malbonodoras tiel, ke la homoj svenas de tiu odoro; alte amasigitaj unu sur la alia staris la bareloj, kaj se inter ili ie montriĝis malgranda aperturo, tra kiu oni povus sin trapuŝi, tion malhelpis malsekaj bufoj kaj grasaj li-makoj, kiuj tie kuŝis intervolvitaj en formo de abomeninda bulo. Tien falis la malgranda Inger; tiu tuta abomeninda vivanta svarmo estis tiel glacie malvarma, ke ŝi tremis per ĉiuj membroj kaj ĉiam pli kaj pli rigidiĝis. Malgraŭ ĉiuj penoj ŝi ĉiam ankoraŭ estis fiksita al la pano, kaj ĉi tiu ŝin tiris malsupren, kiel peco da sukceno altiras peceton da papero.
 
 La marĉistino estis hejme, la bierfarejo ĝuste en tiu tago estis pririgardata de la diablo kaj de lia avino. ĉi tiu estas maljuna, tre veneneca virino, kiu neniam estas senlabora. ŝi neniam eliras, ne prenante kun si sian manlaboron; ankaŭ ĉi tie ŝi havis ĝin kun si. ŝi kudris diversajn bagatelojn, por enŝovi ilin al la homoj en la ŝuojn, por ke ili perdu sian trankvilecon kaj sian pacon; ŝi brodis mensogojn kaj trikis senpripensajn vortojn, kiuj falis sur la tero, ĉion ŝi interkudris por malbono kaj pereo. Jes, ŝi povosciis kudri, brodi kaj triki, la maljuna avino!
 
 ŝi ekvidis Ingeron, surmetis siajn okulvitrojn kaj pririgardis ŝin ankoraŭ unu fojon. ”Tio estas knabino kun kapabloj!”
 
-si diris, ”mi petas, ke oni donu ŝin al mi kiel memorigaĵon pri 91
-
-FABELOJ 4
+si diris, ”mi petas, ke oni donu ŝin al mi kiel memorigaĵon pri
 
 
 mia ĉitiea vizito. ŝi povas servi kieląltaŭga postamento en la antaŭĉambro de mia nepo.”
 
 Kaj ŝi ricevis ŝin. Tiamaniere la malgranda Inger venis en la inferon. Tien la homoj trafas ne ĉiam rekte, ili povas ankaŭ per malrekta vojo tien veni, se ili havas konforman kapablon.
 
-Tio estis senfine longa antaŭĉambro; oni ricevis kaptur-
-
-non, kiam oni rigardis antaŭen, kaj ankaŭ kapturnon, kiam
+Tio estis senfine longa antaŭĉambro; oni ricevis kapturnon, kiam oni rigardis antaŭen, kaj ankaŭ kapturnon, kiam
 
 oni rigardis malantaŭen. Tie staris granda amaso da homoj, kiuj perdis jam ĉiujn siajn fortojn; ili atendis, ke oni malfer-mu al ili la pordon de favorkoreco. Ili povis longe atendi!
 
@@ -1925,9 +1508,7 @@ Grandaj, grasaj, anasirantaj araneoj ĉirkaŭŝpinis iliajn piedojn per miljaraj
 
 ”Estas kredeble plezuro min rigardi!” pensis la malgranda
 
-Inger, ”mi havas belan vizaĝon kaj bonajn vestojn!” Kaj ŝi faris movadon per ŝiaj okuloj, ĉar ŝia nuko estis tro rigida por tio. Ha, kiel ŝi malpuriĝis en la bierfarejo de la marĉistino! Pri tio ŝi antaŭe ne pensis. La vestoj estis kovritaj kvazaŭ de unu sola granda ŝlima makulo; limako alkroĉiĝis al ŝiaj haroj kaj 92
-
-FABELOJ 4
+Inger, ”mi havas belan vizaĝon kaj bonajn vestojn!” Kaj ŝi faris movadon per ŝiaj okuloj, ĉar ŝia nuko estis tro rigida por tio. Ha, kiel ŝi malpuriĝis en la bierfarejo de la marĉistino! Pri tio ŝi antaŭe ne pensis. La vestoj estis kovritaj kvazaŭ de unu sola granda ŝlima makulo; limako alkroĉiĝis al ŝiaj haroj kaj
 
 
 frapadis ŝin regule sur la nukon, kaj el ĉiu faldo de ŝia jupo elrigardis bufo, kiu bojis kiel astma mopso. Estis tre malkom-forte. ”Sed la aliaj ĉi tie ankaŭ aspektas terure!” ŝi diris al si, por sin mem konsoli.
@@ -1938,9 +1519,7 @@ aspekton. Poste venis la muŝoj, ili rampis super la okulojn, antaŭen kaj malan
 
 ”Se tio longe daŭros, mi ne eltenos!” ŝi diris, sed ŝi devis elteni kaj la turmento daŭris plue.
 
-Jen brulanta larmo falis sur ŝian kapon, ĝi ruliĝis trans ŝia vizaĝo kaj brusto rekte sur la panon; falis ankoraŭ unu larmo, falis multaj. Kiu ploras pri la malgranda Inger? ĉu ŝi ne havis patrinon sur la tero? La larmoj de malĝojo, kiujn patrino ploras pri sia infano, ĉiam ĝin atingas, sed ili ĝin ne liberigas, ili bruligas, ili faras suferojn ankoraŭ pli grandaj. Kaj jen tiu netraelportebla malsato, kaj la nepovado atingi la panon, sur kiun ŝi estis paŝinta per sia piedo! Fine ŝi havis la senton, kvazaŭ ĉio en si konsumiĝis, ŝi ŝajnis al si mem kvazaŭ maldika interne malplena trunko de kano, kiu ensuĉas en sin ĉiun sonon. ŝi aŭdis klare ĉion, kio supre sur la tero estis dirata pri 93
-
-FABELOJ 4
+Jen brulanta larmo falis sur ŝian kapon, ĝi ruliĝis trans ŝia vizaĝo kaj brusto rekte sur la panon; falis ankoraŭ unu larmo, falis multaj. Kiu ploras pri la malgranda Inger? ĉu ŝi ne havis patrinon sur la tero? La larmoj de malĝojo, kiujn patrino ploras pri sia infano, ĉiam ĝin atingas, sed ili ĝin ne liberigas, ili bruligas, ili faras suferojn ankoraŭ pli grandaj. Kaj jen tiu netraelportebla malsato, kaj la nepovado atingi la panon, sur kiun ŝi estis paŝinta per sia piedo! Fine ŝi havis la senton, kvazaŭ ĉio en si konsumiĝis, ŝi ŝajnis al si mem kvazaŭ maldika interne malplena trunko de kano, kiu ensuĉas en sin ĉiun sonon. ŝi aŭdis klare ĉion, kio supre sur la tero estis dirata pri
 
 
 ŝi, kaj tio, kion ŝi aŭdis, estis nur mallaŭda kaj severa. ŝia patrino efektive ploris per sinceraj larmoj, el profunde afliktita koro, sed ŝi tamen ankaŭ diris: ”Post malhumileco venas la falo! Tio estis via malfeliĉo, ho Inger! Kiel vi afliktis vian patrinon!”
@@ -1970,9 +1549,6 @@ Kaj ŝia menso fariĝis ĉiam pli kaj pli obstina.
 Kaj ŝia koro fariĝis kolera kontraŭ ĉiuj homoj.
 
 
-FABELOJ 4
-
-
 ”Nun ili tie supre havas ion por rakonti! Ha, kiel mi estas turmentata!”
 
 Jen ŝi aŭdis, ke oni rakontas al la infanoj ŝian historion, kaj la infanoj nomis ŝin malpia Inger. ”ŝi estis tiel malbona,” ili diris, ”tiel abomeninda, oni devis ŝin dece puni!”
@@ -1983,9 +1559,7 @@ Sed unu tagon, kiam kolero kaj malsato mordis interne en
 
 ŝia malplena korpo kaj ŝi aŭdis, ke oni eldiris ŝian nomon kaj rakontas ŝian historion al senkulpa infano, al malgranda knabineto, ŝi ekaŭdis, ke la infano ĉe la rakontado pri la malhumila, ornamiĝema Inger ekploris.
 
-”Sed ĉu ŝi neniam plu revenos supren?” demandis la mal-
-
-granda knabino. Kaj oni respondis al ŝi:
+”Sed ĉu ŝi neniam plu revenos supren?” demandis la malgranda knabino. Kaj oni respondis al ŝi:
 
 ”ŝi neniam plu revenos supren!”
 
@@ -2005,12 +1579,7 @@ Tiuj vortoj trafis la koron de Inger, ili tre agrable ŝin tuŝis.
 
 La unuan fojon nun troviĝis iu, kiu diris: ”malfeliĉa Inger!” kaj aldonis nenion pri ŝia malvirto. Malgranda senkulpa infano ploris kaj petis por ŝi; al ŝi fariĝis tiel strange en la koro, ŝi volus mem plori, sed ŝi ne povis plori, kaj tio estis turmento.
 
-Supre pasis la jaroj, sed malsupre fariĝis nenia ŝanĝo, kaj ŝi aŭdis malpli ofte sonojn, penetrantajn al ŝi de supre; oni malpli parolis pri ŝi. Sed jen unu tagon ŝi aŭdis ĝemon: ”Ing-95
-
-FABELOJ 4
-
-
-er, Inger! Kiel vi min afliktis! Mi tion antaŭvidis!” Tio estis ŝia mortanta patrino.
+Supre pasis la jaroj, sed malsupre fariĝis nenia ŝanĝo, kaj ŝi aŭdis malpli ofte sonojn, penetrantajn al ŝi de supre; oni malpli parolis pri ŝi. Sed jen unu tagon ŝi aŭdis ĝemon: ”Inger, Inger! Kiel vi min afliktis! Mi tion antaŭvidis!” Tio estis ŝia mortanta patrino.
 
 De tempo al tempo ŝi aŭdis, kiel ŝian nomon eldiris ŝiaj
 
@@ -2026,23 +1595,14 @@ Jen Inger denove aŭdis eldiron de ŝia nomo kaj vidis, ke
 
 super ŝi brilas kvazaŭ du helaj steloj. Tio estis du mildaj okuloj, kiuj sur la tero fermiĝis. Depost tiu tempo, kiam la malgranda knabineto senkonsole ploris pri ”la malfeliĉa Inger”, pasis tiom multe da jaroj, ke el la infano fariĝis maljuna virino, kiun nun Dio volis voki al si; kaj ĝuste en tiu momento, kiam ŝiaj pensoj forliberiĝis de ŝia tuta vivo kaj direktiĝis supren, ŝi rememoris, kiel ŝi, estante malgranda infano, devis maldolĉe plori ĉe la aŭskultado de tiu historio. Tiu tempo kaj tiu impreso tiel vive staris antaŭ la animo de la maljuna virino en la horo de ŝia morto, ke ŝi tute laŭte ekpreĝis: ”Certe mi ankaŭ, simile al Inger, ne respektis la donojn de via beno, certe mi ankaŭ estis malhumila, sed vi en via favorkoreco ne lasis min fali, sed vi tenis min rekte! Ne forlasu min en mia lasta horo!”
 
-Kaj la okuloj de la maljunulino fermiĝis, kaj antaŭ la okuloj de ŝia animo malfermiĝis la vido en la kaŝitaĵon, kaj ĉar Inger okupis ŝiajn lastajn pensojn, tial ŝi vidis ŝin, vidis, kiel profunden ŝi estis tirita, kaj ĉe tiu vido la pia virino ekploris kiel infano, ŝi staris en la ĉiela regno kaj ploris pri la malfeli-
-
-ĉa Inger. La ploro kaj la preĝo sonis kiel e˛o malsupren en la 96
-
-FABELOJ 4
+Kaj la okuloj de la maljunulino fermiĝis, kaj antaŭ la okuloj de ŝia animo malfermiĝis la vido en la kaŝitaĵon, kaj ĉar Inger okupis ŝiajn lastajn pensojn, tial ŝi vidis ŝin, vidis, kiel profunden ŝi estis tirita, kaj ĉe tiu vido la pia virino ekploris kiel infano, ŝi staris en la ĉiela regno kaj ploris pri la malfeliĉa Inger. La ploro kaj la preĝo sonis kiel e˛o malsupren en la
 
 
 kaviĝintan malplenan ŝelon, kiu ĉirkaŭkovris la katenitan tur-mentatan animon; ĉi tiu venkiĝis de la neniam esperita amo, kiu subite estis sentigita al ŝi: anĝelo de Dio ploris pri ŝi. Per kio ŝi meritis tiun favoron! La turmentata animo trarigardis spirite ĉiujn agojn de sia tera vivo kaj ektremis sub larmoj tiel, kiel Inger neniam estis havinta la kapablon plori. Malĝojo kaj aflikto pri si mem plenigis ŝin, ŝajnis al ŝi, ke neniam povas malfermiĝi por ŝi la pordo de favorkoreco, kaj dum ŝi tion konsciis en plej profunda konsterniteco, subite ekbrilis radio malsupren en la inferan abismon. La radio alproksimiĝis kun forto pli granda ol la forto de ia suna radio, kiu disfandas la neĝan homon, kiun la knaboj starigis sur la korto; kaj tiam, pli rapide ol la neĝa floko, kiu falis sur la varman buŝon de infano kaj fandiĝas, vapore dissolviĝis la ŝtoniĝinta figuro de Inger. Malgranda birdo fulmorapide ekflugis supren al la ho-ma mondo, sed timeme ĝi tremis antaŭ ĉiuj vivantaj estaĵoj kaj serĉis por si rapide kaŝiĝejon en malluma truo, kiun ĝi trovis en ruiniĝinta muro. Tie ĝi sidis kaj kaŭris, tremante per la tuta korpo; neniun sonon ŝi povis eligi el si, ĉar mankis al
 
 ĝi voĉo. Longan tempon ĝi tie sidis, antaŭ ol ĝi povis trankvile vidi kaj senti la tutan belegecon, kiu tie ĝin ĉirkaŭis. Jes, belegeco ĝin ĉirkaŭis. La aero estis tiel freŝa, la luno lumis tiel hele, la arboj kaj arbetaĵoj odoris tiel dolĉe. Kaj estis tiel agrable kaj komforte tie, kie ĝi sidis, ĝia pluma vesto estis tiel pura kaj delikata. Ha, kiel ĉio kreita estas plena de amo kaj belo!
 
-ĉiuj tiuj pensoj, kiuj emociis la bruston de la birdo, volis elverŝiĝi per kanto, sed la birdo ne povis kanti. Volonte ĝi kan-tus kiel la kukolo kaj najtingalo en printempo. La bona Dio, kiu aŭdas ankaŭ la mutan glorkanton de la vermo, aŭdis an-kaŭ ĉi tiun glorkanton, kiu leviĝis per dankaj akordoj kaj so-97
-
-FABELOJ 4
-
-
-nis kiel la psalmo en la brusto de David, antaŭ ol ĝi ricevis vortojn kaj melodion.
+ĉiuj tiuj pensoj, kiuj emociis la bruston de la birdo, volis elverŝiĝi per kanto, sed la birdo ne povis kanti. Volonte ĝi kan-tus kiel la kukolo kaj najtingalo en printempo. La bona Dio, kiu aŭdas ankaŭ la mutan glorkanton de la vermo, aŭdis an-kaŭ ĉi tiun glorkanton, kiu leviĝis per dankaj akordoj kaj sonis kiel la psalmo en la brusto de David, antaŭ ol ĝi ricevis vortojn kaj melodion.
 
 Tiuj kantoj sen vortoj en la daŭro de semajnoj ĉiam pli potence ŝveligis la bruston de la birdo; ili devis eliĝi ĉe la unua flugilbato de bona faro, sed sen tiu faro tio ne estis ebla.
 
@@ -2050,23 +1610,13 @@ Jen alproksimiĝis la sankta Kristnaska festo. Unu vilaĝano tute apude de la mu
 
 La suno leviĝis en la Kristnaska mateno kaj prilumis la avenan garbon, kaj ĉiuj pepantaj birdoj alflugis al la manĝdonanta stango. Tiam ankaŭ el la muro aŭdiĝis pepado; la ĉiam pli fortiĝanta penso esprimiĝis per sonoj, la malforta pepado estis himno de ĝojo, la penso pri bona faro estis vekita, kaj la birdo elflugis el sia truo. En la ĉiela regno oni bone sciis, kia birdo tio estis.
 
-La vintro estis akra, la akvoj profunde glaciiĝis, la birdoj kaj bestoj de la arbaro trovadis nur tre malmulte da manĝaĵo. La malgranda birdo elflugis sur la landvojon kaj serĉis kaj trovis tie aŭ alie en la glitveturilaj tersulkoj ian grajneton; dum la eljungado ĝi trovis kelke da panpecetoj, el kiuj ĝi tamen man-
+La vintro estis akra, la akvoj profunde glaciiĝis, la birdoj kaj bestoj de la arbaro trovadis nur tre malmulte da manĝaĵo. La malgranda birdo elflugis sur la landvojon kaj serĉis kaj trovis tie aŭ alie en la glitveturilaj tersulkoj ian grajneton; dum la eljungado ĝi trovis kelke da panpecetoj, el kiuj ĝi tamen manĝis nur malmulte, sed ĝi alvokis ĉiujn aliajn malsatiĝintajn paserojn, por ke ili trovu ĉi tie manĝaĵon por si. i flugis en la vilaĝojn kaj urbojn, serĉis ĉirkaŭe, kaj ĉie, kie bona mano estis ŝutinta panpecetojn por la birdoj, ĝi manĝis mem nur malmulte da pecetoj kaj donis ĉion ceteran al la aliaj.
 
-ĝis nur malmulte, sed ĝi alvokis ĉiujn aliajn malsatiĝintajn paserojn, por ke ili trovu ĉi tie manĝaĵon por si. i flugis en la vilaĝojn kaj urbojn, serĉis ĉirkaŭe, kaj ĉie, kie bona mano estis ŝutinta panpecetojn por la birdoj, ĝi manĝis mem nur malmulte da pecetoj kaj donis ĉion ceteran al la aliaj.
-
-En la daŭro de la vintro la birdo kolektis kaj disdonis tiom multe da panpecetoj, ke ili kune havis la pezon de la tuta pa-no, sur kiun la malgranda Inger estis paŝinta, por ne malpu-98
-
-FABELOJ 4
-
-
-rigi siajn ŝuojn; kaj kiam la lasta panpeceto estis trovita kaj fordonita, la grizaj flugiloj de la birdo fariĝis blankaj kaj etendiĝis.
+En la daŭro de la vintro la birdo kolektis kaj disdonis tiom multe da panpecetoj, ke ili kune havis la pezon de la tuta pa-no, sur kiun la malgranda Inger estis paŝinta, por ne malpurigi siajn ŝuojn; kaj kiam la lasta panpeceto estis trovita kaj fordonita, la grizaj flugiloj de la birdo fariĝis blankaj kaj etendiĝis.
 
 ”Jen mara alaŭdo flugas trans la maron!” diris la infanoj, kiuj vidis la blankan birdon; jen ĝi subakviĝis en la maron, jen
 
 ĝi leviĝis en la helan sunlumon. Estis tia brilo, ke oni ne povis vidi, kien ĝi flugas. La infanoj diris, ke ĝi flugas rekte al la suno.
-
-
-FABELOJ 4
 
 
 Turgardisto Ole
@@ -2075,11 +1625,7 @@ En la mondo ĉio iras supren kaj malsupren, malsupren kaj
 
 denove supren! Nun mi ne povas leviĝi pli alten!” diris la turgardisto Ole. ”Supren kaj malsupren, malsupren kaj denove supren, tio estas la sorto de la plejmulto. En efektiveco ni fine ĉiuj fariĝas turgardistoj kaj rigardas la vivon kaj la aferojn de supre.”
 
-Tiel parolis sur la turo Ole, mia amiko, la maljuna gardisto vigla, parolema homo, kiu ŝajne ĉion eldiradis kaj tamen tre multe kaŝis en sia koro. Li estis infano de bonaj homoj; kelkaj asertis, ke li estas filo de konferenca konsilano. Li estis studinta, li estis helpanto de instruisto, helpanto de sakristiano, sed kion tio povis helpi! Tiam li loĝis ĉe la sakristiano kaj devis havi en la domo ĉion senpage. Tiam li estis, kiel oni diras, ankoraŭ juna kaj eleganta: li postulis, ke liaj botoj estu polurataj, sed la sakristiano volis, ke ili estu nur ŝmirataj, kaj pro tio ili malpaciĝis. Unu parolis pri avareco, la alia parolis pri vanteco, la ciro fariĝis nigra kaŭzo de malamo, kaj tial ili disiĝis. Sed tion, kion li postulis de la sakristiano, li postulis ankaŭ de la mondo, ciron, kaj li regule ricevadis ankaŭ nur ŝmiraĵon. Tial li iom post iom apartiĝis de ĉiuj homoj kaj fari-
-
-ĝis ermito; sed ermitejon kun la necesaj vivrimedoj oni en granda urbo povas trovi nur sur la preĝeja turo; tien li leviĝis kaj fumadis sian pipon solece. Li rigardadis malsupren kaj rigardadis supren, meditadis ĉe tio, kaj li rakontis siamanie-100
-
-FABELOJ 4
+Tiel parolis sur la turo Ole, mia amiko, la maljuna gardisto vigla, parolema homo, kiu ŝajne ĉion eldiradis kaj tamen tre multe kaŝis en sia koro. Li estis infano de bonaj homoj; kelkaj asertis, ke li estas filo de konferenca konsilano. Li estis studinta, li estis helpanto de instruisto, helpanto de sakristiano, sed kion tio povis helpi! Tiam li loĝis ĉe la sakristiano kaj devis havi en la domo ĉion senpage. Tiam li estis, kiel oni diras, ankoraŭ juna kaj eleganta: li postulis, ke liaj botoj estu polurataj, sed la sakristiano volis, ke ili estu nur ŝmirataj, kaj pro tio ili malpaciĝis. Unu parolis pri avareco, la alia parolis pri vanteco, la ciro fariĝis nigra kaŭzo de malamo, kaj tial ili disiĝis. Sed tion, kion li postulis de la sakristiano, li postulis ankaŭ de la mondo, ciron, kaj li regule ricevadis ankaŭ nur ŝmiraĵon. Tial li iom post iom apartiĝis de ĉiuj homoj kaj fariĝis ermito; sed ermitejon kun la necesaj vivrimedoj oni en granda urbo povas trovi nur sur la preĝeja turo; tien li leviĝis kaj fumadis sian pipon solece. Li rigardadis malsupren kaj rigardadis supren, meditadis ĉe tio, kaj li rakontis siamanie-100
 
 
 re pri tio, kion li vidis kaj kion li ne vidis, kion li legis en libroj kaj en si mem. Mi ofte pruntis al li legaĵon, bonajn librojn, kaj laŭ la personoj, kun kiuj oni havas interrilatojn, estas difinata la propra valoro de homo. Li, kiel li diris, ne estis amanto de la anglaj romanoj pri guvernantinoj kaj ankaŭ ne de la fran-caj romanoj, kiuj estas preparitaj el vento kaj sekvinberaj trunketoj, ne, li volis havi biografiojn, librojn pri la mirindaĵoj de la naturo. Mi vizitadis lin almenaŭ unu fojon ĉiujare, ordinare tuj post la Nova Jaro. Li tiam havis ĉiam tion aŭ alian, kun kio kunligiĝis liaj pensoj ĉe la renoviĝo de la jaro.
@@ -2094,9 +1640,7 @@ Inter la libroj, kiujn mi lastfoje pruntis al Ole, troviĝis libro pri la siliko
 
 kutimojn kaj vekis en mi la deziron legi pluajn tiaspecaĵojn.
 
-La romano de la tero estas tamen la plej rimarkinda el ĉiuj romanoj! Estas domaĝe, ke oni ne povas legi la unuajn partojn, ĉar ili estas verkitaj en lingvo, kiun ni ne lernis. Oni devas legi en la tertavoloj, en la silikoj, en ĉiuj periodoj de la tero, kaj nur tiam en la sesa parto aperas la agantaj personoj: sinjoro Adam kaj sinjorino Eva. Por multaj legantoj tio estas 101
-
-FABELOJ 4
+La romano de la tero estas tamen la plej rimarkinda el ĉiuj romanoj! Estas domaĝe, ke oni ne povas legi la unuajn partojn, ĉar ili estas verkitaj en lingvo, kiun ni ne lernis. Oni devas legi en la tertavoloj, en la silikoj, en ĉiuj periodoj de la tero, kaj nur tiam en la sesa parto aperas la agantaj personoj: sinjoro Adam kaj sinjorino Eva. Por multaj legantoj tio estas
 
 
 iom malfrua, ili volas ilin havi tuj, sed por mi estas tute egale. Tio estas romano plena de aventuroj, kaj ni ĉiuj ludas en
@@ -2109,18 +1653,12 @@ Tio estas personetoj, kiuj povoscias ion rakonti. ĉu ne estas interese, se oni 
 
 Nu, tion vi eble tute ne konas?
 
-La veturado de la sorĉistinoj sur balaila bastono estas su-fiĉe konata, ĝi okazas en la Valpurga nokto kaj direktiĝas al Blocksberg, sed ni ĉi tie en Danujo ankaŭ havas sovaĝan arm-eon, ĝi estas enlanda, nuntempa, kaj en la Novjara nokto ĝi direktiĝas al la insulo Amager. ĉiuj malbonaj poetoj kaj po-etinoj, komponistoj, gazetistoj kaj konataj artistoj, ĉiuj, kiuj estas tute sentaŭgaj, rajdas en la Novjara nokto tra la aero al la insulo Amager. Ili sidas rajde sur siaj penikoj aŭ anseraj plumoj, la ŝtalplumo ne povas ilin porti, ĝi estas tro rigida. Mi vidas tion, kiel mi diris, en ĉiu Novjara nokto; la plejmulton el ili mi povus montri per ilia nomo, sed ne estas peninde 102
-
-FABELOJ 4
+La veturado de la sorĉistinoj sur balaila bastono estas su-fiĉe konata, ĝi okazas en la Valpurga nokto kaj direktiĝas al Blocksberg, sed ni ĉi tie en Danujo ankaŭ havas sovaĝan arm-eon, ĝi estas enlanda, nuntempa, kaj en la Novjara nokto ĝi direktiĝas al la insulo Amager. ĉiuj malbonaj poetoj kaj po-etinoj, komponistoj, gazetistoj kaj konataj artistoj, ĉiuj, kiuj estas tute sentaŭgaj, rajdas en la Novjara nokto tra la aero al la insulo Amager. Ili sidas rajde sur siaj penikoj aŭ anseraj plumoj, la ŝtalplumo ne povas ilin porti, ĝi estas tro rigida. Mi vidas tion, kiel mi diris, en ĉiu Novjara nokto; la plejmulton el ili mi povus montri per ilia nomo, sed ne estas peninde
 
 
 okupi sin per ili. Ili ne volas, ke la homoj ion sciiĝu pri ilia Amagera veturo sur anseraj plumoj. Mi havas parencinon,
 
-kiu estas fiŝistino kaj, kiel ŝi diras, liveras la insultajn vortojn al tri estimataj gazetoj. ŝi estis tie mem kiel invitita gasto, sed oni ŝin elportis, ĉar ŝi mem ne atribuas grandan valoron al la ansera plumo kaj ankaŭ ne povoscias rajdi; ŝi tion rakontis al mi. Duono de tio, kion ŝi rakontas, estas mensogo, sed la dua duono jam sufiĉas. Kiam ŝi estis tie, komenciĝis la soleno per kantado; ĉiu el la gastoj tenis antaŭ si skribitan sian propran kanton, kaj ĉiu kantis sian, ĉar ĝi estis la plej bona. Poste ili ekmarŝis per malgrandaj anaroj; la procesion malfermis tiuj, kiuj havis la destinon agadi per la buŝo; ili formis la grandajn sonorilojn, al kiuj ili kutimis ĉion alpendigi. Poste iris la malgrandaj tamburistoj, kiuj eltamburas ĉion el la familioj. Tie estis farata konateco kun tiuj, kiuj skribas, ne donante sian nomon, tio estas kie ŝmiraĵo estas prezentata sub la nomo de ciro. Tie estis la ekzekutisto kaj lia servisto, kaj la servisto estis la plej akra kaj plej batema, alie oni lin ne estimus; tie estis la honesta balaaĵisto, kiu fosas en la balaaĵbareloj kaj ilin ren-versas kaj pri ĉio diras ”bone, tre bone, bonege!” Meze de la komuna gajeco subite rapide elkreskis trunko, arbo, grandega floro, granda fungo, tuta tegmento. Tio estis la fremdlabora kolono de la estimata kunvenintaro, ĝi portis ĉion, kion ĝi donis al la mondo en la malnova jaro. Fajreroj simile al fajraj flamoj ŝprucis el ĝi; tio estis ĉiuj fremdaj pensoj kaj ideoj, per kiuj ili estis ornamintaj siajn verkojn kaj kiuj nun denove el-
-
-ŝiriĝis kaj eksplodis kiel artaj fajraĵoj. Estis tre gaje, diris mia parencino. Cetere ŝi aldonis ankoraŭ multe da aliaj aferoj, kiuj estis tre mordantaj kaj tamen sufiĉe interesaj; sed mi tion ne ripetos, oni devas aparteni al la bonaj homoj, ne al la rezo-103
-
-FABELOJ 4
+kiu estas fiŝistino kaj, kiel ŝi diras, liveras la insultajn vortojn al tri estimataj gazetoj. ŝi estis tie mem kiel invitita gasto, sed oni ŝin elportis, ĉar ŝi mem ne atribuas grandan valoron al la ansera plumo kaj ankaŭ ne povoscias rajdi; ŝi tion rakontis al mi. Duono de tio, kion ŝi rakontas, estas mensogo, sed la dua duono jam sufiĉas. Kiam ŝi estis tie, komenciĝis la soleno per kantado; ĉiu el la gastoj tenis antaŭ si skribitan sian propran kanton, kaj ĉiu kantis sian, ĉar ĝi estis la plej bona. Poste ili ekmarŝis per malgrandaj anaroj; la procesion malfermis tiuj, kiuj havis la destinon agadi per la buŝo; ili formis la grandajn sonorilojn, al kiuj ili kutimis ĉion alpendigi. Poste iris la malgrandaj tamburistoj, kiuj eltamburas ĉion el la familioj. Tie estis farata konateco kun tiuj, kiuj skribas, ne donante sian nomon, tio estas kie ŝmiraĵo estas prezentata sub la nomo de ciro. Tie estis la ekzekutisto kaj lia servisto, kaj la servisto estis la plej akra kaj plej batema, alie oni lin ne estimus; tie estis la honesta balaaĵisto, kiu fosas en la balaaĵbareloj kaj ilin ren-versas kaj pri ĉio diras ”bone, tre bone, bonege!” Meze de la komuna gajeco subite rapide elkreskis trunko, arbo, grandega floro, granda fungo, tuta tegmento. Tio estis la fremdlabora kolono de la estimata kunvenintaro, ĝi portis ĉion, kion ĝi donis al la mondo en la malnova jaro. Fajreroj simile al fajraj flamoj ŝprucis el ĝi; tio estis ĉiuj fremdaj pensoj kaj ideoj, per kiuj ili estis ornamintaj siajn verkojn kaj kiuj nun denove elŝiriĝis kaj eksplodis kiel artaj fajraĵoj. Estis tre gaje, diris mia parencino. Cetere ŝi aldonis ankoraŭ multe da aliaj aferoj, kiuj estis tre mordantaj kaj tamen sufiĉe interesaj; sed mi tion ne ripetos, oni devas aparteni al la bonaj homoj, ne al la rezo-103
 
 
 nistoj. Vi tamen komprenos, ke se oni estas informita pri la tiea festo tiel bone kiel mi, estas tre alloge observi dum ĉiu Novjara nokto la flugon de la sovaĝa armeo. Se en iu jaro mi ne trovas tie kelkajn, kompense montriĝas aliaj novaj. Sed en ĉi tiu jaro mi tute forgesis observi la gastojn. Mi ruliĝis kun la rulaĵo, kun la silikoj, mi ruliĝis tra milionoj da jaroj, mi vidis, kiel la rokoj supre en la nordaj landoj kun krakego falas, mi vidis, kiel ili naĝas sur glaciegoj, longe antaŭ ol estas konstruita la arkeo de Noa, mi vidis, kiel ili falas sur la fundon kaj denove leviĝas sur rifo, sur tiu, kiu elstariĝis el la akvo kaj diris: ”Mia nomo estu Zelando!” Mi vidis, kiel ili fariĝas ko-vejo de birdoj, kiujn ni hodiaŭ plu ne konas, mi vidis ilin kiel loĝejon de sovaĝaj hetmanoj, kies nomoj malaperis. Nur mal-multaj, en kiuj la hakilo engravuris siajn runojn, fariĝis objekto de tempokalkulo; sed ĉe ĉiuj tiuj meditoj mi forgesis la tempon kaj horon. Tiam subite falis tri aŭ kvar belegaj falste-loj, ili eklumis, miaj pensoj ricevis alian direkton. Vi scias ja, kio estas falstelo? Tion la scienculoj ordinare ne scias. Mi havas mian propran opinion pri tio, mi tion klarigas tiamanie-re: Ofte oni silente eldiras dankon kaj benon sur iun, kiu faris ion belan kaj bonan; ofte la danko estas sensona, sed ĝi ne falas sur la teron. Mi prezentas do al mi, ke la sunlumo ĝin levas kaj la sunradio alportas ĝin sur la kapon de la bonfarinto. Se tuta popolo dum longa tempo esprimas sian dankon,
@@ -2129,9 +1667,7 @@ tiam la danko venas en la formo de plena bukedo kaj falas en la formo de falstel
 
 ĝojo eltrovi per pripensado, kiun la dankesprimo celas.
 
-i estas granda penso, ĝoja penso, se oni scias, ke iam falstelo falos sur nian tombon; estas vero, ke kun mia tombo tio 104
-
-FABELOJ 4
+i estas granda penso, ĝoja penso, se oni scias, ke iam falstelo falos sur nian tombon; estas vero, ke kun mia tombo tio
 
 
 ne okazos, neniu sunradio min dankos, ĉar ĉi tie troviĝas nenio, kio meritus dankon. Mi ne atingos ciron,” diris Ole, ”mia sorto en la mondo estas ricevi ŝmiraĵon.”
@@ -2140,9 +1676,7 @@ Dua vizito
 
 Estis Novjara tago, kiam mi unu fojon denove iris sur la turon. Ole parolis pri la glasoj, kiuj estas malplenigataj ĉe la transiro de la malnova guto al la nova guto, kiel li nomis la jaron. Kaj li elmetis al mi sian historion pri la glasoj, kaj la esenco de liaj ideoj estis jena:
 
-”Kiam en la Novjara nokto la horloĝo batis dekdu, la ho-
-
-moj ĉe la tablo leviĝas kun plena glaso kaj trinkas je la sano de la nova jaro. Oni komencas la jaron kun la glaso en la ma-no, por drinkistoj tio estas bona komenco! Oni komencas la jaron per enlitiĝo, por mallaborulo; tio ankaŭ estas bona komenco˛komenco La dormado en la daŭro de la jaro ludos
+”Kiam en la Novjara nokto la horloĝo batis dekdu, la homoj ĉe la tablo leviĝas kun plena glaso kaj trinkas je la sano de la nova jaro. Oni komencas la jaron kun la glaso en la ma-no, por drinkistoj tio estas bona komenco! Oni komencas la jaron per enlitiĝo, por mallaborulo; tio ankaŭ estas bona komenco˛komenco La dormado en la daŭro de la jaro ludos
 
 grandan rolon, la glasoj ankaŭ. ĉu vi scias, kio loĝas en la glasoj?” li demandis. ”Jes, tie loĝas sano, ĝojo kaj petoleme-co, tie loĝas ĉagreno kaj maldolĉa malfeliĉo. Se mi nombros la glasojn, mi nombros kompreneble la grandaĵojn, kiujn la glaso kaŭzas ĉe la diversaj homoj.
 
@@ -2152,24 +1686,15 @@ Prenu la duan glason. El ĝi leviĝas malgranda birdo, kiu
 
 pepas senkulpe gaje, tiel ke la homo aŭskultas kaj eble kun-kantas la vivo estas bela, ni ne perdu la bonan humoron, ku-raĝe antaŭen!
 
-El la tria glaso leviĝas malgranda flugilhava knabeto, oni ne povas lin nomi anĝela infano, ĉar li havas sangon kaj men-105
+El la tria glaso leviĝas malgranda flugilhava knabeto, oni ne povas lin nomi anĝela infano, ĉar li havas sangon kaj menson de koboldo, ne por inciti, sed por fari ŝercojn. Li sidiĝas malantaŭ nia orelo kaj elflustras al ni viglan ideon; li kuŝiĝas sur nia brusto kaj varmigas nin, tiel ke ni fariĝas petolemaj, ni fariĝas spritulo laŭ la opinio de la aliaj spritaĵistoj.
 
-FABELOJ 4
-
-
-son de koboldo, ne por inciti, sed por fari ŝercojn. Li sidiĝas malantaŭ nia orelo kaj elflustras al ni viglan ideon; li kuŝiĝas sur nia brusto kaj varmigas nin, tiel ke ni fariĝas petolemaj, ni fariĝas spritulo laŭ la opinio de la aliaj spritaĵistoj.
-
-En la kvara glaso troviĝas nek herbo nek birdo nek knabe-
-
-to; en ĝi kuŝas la limlinio de la prudento, kaj tiun limlinion oni ne devas transpaŝi.
+En la kvara glaso troviĝas nek herbo nek birdo nek knabeto; en ĝi kuŝas la limlinio de la prudento, kaj tiun limlinion oni ne devas transpaŝi.
 
 Se vi prenas la kvinan glason, tiam vi ploras pri vi mem, al vi fariĝas tiel bone kaj samtempe tiel malgaje, vi fariĝas tiel kortuŝita, aŭ via koro en ia alia maniero elmontriĝas; el la glaso kun laŭta bruo elsaltas princo karnavala, babilema kaj petolema. Li vin kuntiras, vi forgesas vian dignon, se vi ĝin havas, vi forgesas pli, ol kiom estas al vi permesite forgesi. ĉio estas danco, kanto kaj bruo; la maskoj vin fortiras, la filinoj de la diablo, en tulo kaj silko, ili venas kun disliberigitaj haroj kaj belaj membroj, — forŝiru vin, se vi povas.
 
 La sesa glaso! Ha, en ĝi sidas Satano mem, malgranda, bele vestita, elokventa, treege komplezema vireto, kiu vin perfekte komprenas, pri ĉio diras, ke vi estas prava, via propra Mi! Li venas kun lanterno kaj akompanas vin hejmen. Ekzistas malnova legendo pri la sanktulo, kiu devis elekti unu el la sep mortmeritaj pekoj, kaj li elektis tiun, kiu ŝajnis al li la plej malgranda, la drinkemecon, sed en ĝi li faris ankaŭ la ses aliajn pekojn. La homo kaj la diablo intermiksas sian sangon, tio fariĝas ĉe la sesa glaso, kaj tiam abunde kreskas en ni ĉiuj malbonaj ĝermoj. ĉiu el ili fariĝas potenca, kiel la Biblia grajno de sinapo, elkreskas kiel arbo, kaj al la plejmulto tiam restas nenio alia por fari ol migri en la fandofornon kaj lasi sin refandi.
 
-Tio estas la historio pri la glasoj!” diris la turgardisto Ole, 106
-
-FABELOJ 4
+Tio estas la historio pri la glasoj!” diris la turgardisto Ole,
 
 
 ”kaj oni povas ĝin prezenti kiel kun ciro, tiel ankaŭ kun gu-dro; mi miksas ambaŭ en egalaj kvantoj!”
@@ -2177,20 +1702,13 @@ FABELOJ 4
 Tio estis la dua vizito ĉe Ole; se vi deziras aŭdi pli, oni devas fari pluajn vizitojn.
 
 
-FABELOJ 4
-
-
 Anneto
 
-Anneto estis kiel lakto kaj sango, juna kaj gaja kaj bel-
-
-aspekta; ŝiaj dentoj estis tiel blankaj, ŝiaj okuloj brulis tiel klare, ŝia piedo estis tiel facila en la dancado, kaj ŝia animo estis ankoraŭ pli facila! Kio povis fariĝi el tio? — ”La abomeninda knabo!” — Jes, bela li ne estis! Li estis donita por prizorgado al taglaboristino. Anneto estis prenita en la grafan palacon kaj sidis en belega ĉambro en silkaj kaj veluraj vestoj; nenia bloveto de vento devis ŝin tuŝi, neniu devis diri al ŝi ian malbonan vorton, ĉar tio povus fari al ŝi malutilon, kaj kontraŭ tio oni devis ŝin gardi: ŝi mamnutradis la grafan infanon;
+Anneto estis kiel lakto kaj sango, juna kaj gaja kaj belaspekta; ŝiaj dentoj estis tiel blankaj, ŝiaj okuloj brulis tiel klare, ŝia piedo estis tiel facila en la dancado, kaj ŝia animo estis ankoraŭ pli facila! Kio povis fariĝi el tio? — ”La abomeninda knabo!” — Jes, bela li ne estis! Li estis donita por prizorgado al taglaboristino. Anneto estis prenita en la grafan palacon kaj sidis en belega ĉambro en silkaj kaj veluraj vestoj; nenia bloveto de vento devis ŝin tuŝi, neniu devis diri al ŝi ian malbonan vorton, ĉar tio povus fari al ŝi malutilon, kaj kontraŭ tio oni devis ŝin gardi: ŝi mamnutradis la grafan infanon;
 
 ĝi estis delikata kiel princo, bela kiel anĝelo. Kiel forte ŝi amis tiun infanon! ŝia propra infano troviĝis en la loĝejo de la taglaboristino, kie la poto ne estis plena, sed la buŝo estis plena, kaj ordinare neniu tie estis hejme. La knabeto ploradis, sed kion neniu aŭdas, tio neniun tuŝas; li ploradis ĝis endormiĝo, kaj en la dormo oni sentas nek malsaton nek soifon, la dormo estas bela elpenso. Kun la tempo — la tempo kreskigas la malbonajn herbojn, oni diras, — ankaŭ la knabo de Anneto
 
-elkreskis, kvankam li restis malaltkreska; sed kun la familio, kiu pro mono prenis lin al si, li tute kunkreskiĝis. Anneto liberiĝis de li por ĉiam, ŝi estis nun urbanino, vivis en bona stato kaj portis ĉapelon. Sed neniam ŝi iris al la familio de la taglaboristino, ĉi tiu loĝis tro malproksime de la urbo, Anneto tie eĉ nenion havis por fari; la knabo apartenis al la familio, li tie 108
-
-FABELOJ 4
+elkreskis, kvankam li restis malaltkreska; sed kun la familio, kiu pro mono prenis lin al si, li tute kunkreskiĝis. Anneto liberiĝis de li por ĉiam, ŝi estis nun urbanino, vivis en bona stato kaj portis ĉapelon. Sed neniam ŝi iris al la familio de la taglaboristino, ĉi tiu loĝis tro malproksime de la urbo, Anneto tie eĉ nenion havis por fari; la knabo apartenis al la familio, li tie
 
 
 sentis sin bone, por sia vivteno li povis jam mem zorgi, kaj tial li paŝtadis la ruĝan bovinon de Mads Jensen. Gardi brutojn li povosciis, kaj laboron li volis havi.
@@ -2201,15 +1719,9 @@ kaj bojas kontraŭ ĉiu pasanto, en pluva vetero ĝi enrampas internen kaj kuŝa
 
 Kiel vivis la knabo de Anneto? Jes, kiel li povis vivi? Lia sorto estis: ”neniam sperti amon”.
 
-De la tero la sorto ĵetis lin sur la maron. Li iris en servadon sur mizeran ŝipeton, tie li sidadis ĉe la direktilo, dum la ŝipisto drinkis. Malpura kaj malbela li estis, malvarma kaj man-
+De la tero la sorto ĵetis lin sur la maron. Li iris en servadon sur mizeran ŝipeton, tie li sidadis ĉe la direktilo, dum la ŝipisto drinkis. Malpura kaj malbela li estis, malvarma kaj manĝegema; oni povus pensi, ke li neniam estis sata, kaj tia li efektive neniam estis.
 
-ĝegema; oni povus pensi, ke li neniam estis sata, kaj tia li efektive neniam estis.
-
-Estis malfrua sezono, regis kruda, malseka, ventega vete-
-
-ro. La vento tranĉis glacie tra la dikaj vestoj, precipe sur la maro, kaj malgraŭ tio sur la libera maro naĝis mizera ŝipeto kun nur du homoj, oni povis preskaŭ diri, ke nur kun unu kaj duono da homoj; tio estis la ŝipisto kaj lia servisto. Dum la tuta tago estis nur speco de krepusko, nun fariĝis pli mallume, estis akra malvarmo. La ŝipisto trinkis glaseton da brando, por varmigi interne. Li elprenis la botelon kaj ankaŭ la glaseton, supre ĝi estis sendifekta, sed la piedo estis derom-109
-
-FABELOJ 4
+Estis malfrua sezono, regis kruda, malseka, ventega vetero. La vento tranĉis glacie tra la dikaj vestoj, precipe sur la maro, kaj malgraŭ tio sur la libera maro naĝis mizera ŝipeto kun nur du homoj, oni povis preskaŭ diri, ke nur kun unu kaj duono da homoj; tio estis la ŝipisto kaj lia servisto. Dum la tuta tago estis nur speco de krepusko, nun fariĝis pli mallume, estis akra malvarmo. La ŝipisto trinkis glaseton da brando, por varmigi interne. Li elprenis la botelon kaj ankaŭ la glaseton, supre ĝi estis sendifekta, sed la piedo estis derom-109
 
 
 pita kaj anstataŭigita per blue farbita ligna ŝtipo. Glaseto da brando, pensis la ŝipisto, efikas bone, sed du efikas pli bone.
@@ -2222,9 +1734,7 @@ La vento fajfis, la ŝipo flugis rapide! La vento puŝegis la plenblovitan velon
 
 Nur unu klafton sub la akvo staris la ŝiprompitaĵo; entombigitaj ili estis ambaŭ; entombigitaj, forgesitaj! Nur la glaseto kun la blukolora ligna piedo ne dronis, la ligna ŝtipo tenis ĝin supre. La glaseto portiĝis sur la akvo, por ie disrompiĝi kaj esti alpelita al la bordo, kie kaj kiam? Nu, tio cetere ne estis ja grava! Nun ĝi finis sian servadon kaj estis amita. Kun la filo de Anneto la afero estis alia! Tamen en la ĉiela regno neniu animo povos plu diri: ”li neniam estis amita!”
 
-Anneto vivis en la urbo jam de multe da jaroj, estis nomata 110
-
-FABELOJ 4
+Anneto vivis en la urbo jam de multe da jaroj, estis nomata
 
 
 sinjorino kaj estis precipe fiera, kiam ŝi parolis pri siaj malnovaj rememoroj, pri la grafa tempo, kiam ŝi veturadis en kaleŝo kaj povis paroli kun grafinoj kaj baroninoj. ŝia dolĉa grafa infano estis plej ĉarma Dia anĝelo, plej kara animo, kaj ili ambaŭ sin reciproke tre amis. Ili reciproke sin kisis kaj karesis, la knabo estis ŝia ĝojo, duono de ŝia vivo. Nun li estis granda, havis la aĝon de dekkvar jaroj, estis saĝa kaj bela; depost la tempo, kiam ŝi estis portinta lin sur la brakoj, ŝi plu lin ne vidis. Depost multe da jaroj ŝi ne estis en la grafa palaco, estis tre malproksime ĝis tie.
@@ -2239,9 +1749,7 @@ Sed tion jam diros al ili grafino kaj ankaŭ ŝia propra filo. Ha, kiel ŝi sopi
 
 Jen Anneto fine estis ĉi tie. Longe ŝi devis atendi, kaj tempo de atendado daŭras tiel senfine longe! Antaŭ ol la gesinjoroj iris al la tablo, oni ŝin vokis al la grafino, kaj ĉi tiu akceptis ŝin tre afable. Sian dolĉan knabon ŝi estis vidonta post la manĝado, kaj por tio oni ŝin denove vokis.
 
-Kiel granda, longa kaj gracia li fariĝis! Sed la ĉarmajn okulojn kaj la anĝelan buŝon li ankoraŭ havis. Li rigardis ŝin, ne 111
-
-FABELOJ 4
+Kiel granda, longa kaj gracia li fariĝis! Sed la ĉarmajn okulojn kaj la anĝelan buŝon li ankoraŭ havis. Li rigardis ŝin, ne
 
 
 dirante eĉ unu vorton. Certe li ŝin ne rekonis. Li sin turnis kaj volis foriri returne, sed tiam ŝi kaptis lian manon kaj almetis
@@ -2262,35 +1770,25 @@ Subite granda nigra korvo malleviĝis antaŭ ŝi sur la vojon kaj kriis per raŭ
 
 ”La ŝipo tiam dronis kun ili!” daŭrigis la taglaboristino la interparoladon. ”La ŝipisto Lars kaj la knabo ambaŭ dronis.
 
-Nun ĉio finiĝis por ili. Mi ĉiam esperis, ke la knabo iam povos helpi al mi per iom da mono. Al vi li nun farus plu neniajn elspezojn, Anneto!” ”Jes, ili dronis!” respondis Anneto kaj plu ne parolis pri tiu afero. Anneto estis malgaja, ĉar ŝia grafa infano ne volis paroli kun ŝi, kun ŝi, kiu lin amis kaj nur por li entreprenis la longan vojon; tio kostis ankaŭ monon. La havita plezuro ne estis granda, sed ĉi tie ŝi ne diris eĉ unu vorton pri tio; ŝi ne volis malpezigi sian koron per ia komu-niko al la taglaboristino, ĉar ĉi tiu povus ja pensi, ke ŝi ĉe la 112
-
-FABELOJ 4
+Nun ĉio finiĝis por ili. Mi ĉiam esperis, ke la knabo iam povos helpi al mi per iom da mono. Al vi li nun farus plu neniajn elspezojn, Anneto!” ”Jes, ili dronis!” respondis Anneto kaj plu ne parolis pri tiu afero. Anneto estis malgaja, ĉar ŝia grafa infano ne volis paroli kun ŝi, kun ŝi, kiu lin amis kaj nur por li entreprenis la longan vojon; tio kostis ankaŭ monon. La havita plezuro ne estis granda, sed ĉi tie ŝi ne diris eĉ unu vorton pri tio; ŝi ne volis malpezigi sian koron per ia komu-niko al la taglaboristino, ĉar ĉi tiu povus ja pensi, ke ŝi ĉe la
 
 
 grafa familio plu ne estas estimata. Tiam la korvo transflugis super ŝi kaj denove eksonigis sian raŭkan voĉon.
 
 ”La nigra kriisto,” diris Anneto, ”hodiaŭ senĉese min timigas! ”
 
-ŝi alportis kun si kafon kaj cikorion; por la malriĉa taglaboristino, kiu longe ne havis tiajn frandaĵojn, tia donaco estis bonfaro, kaj Anneto petis, ke oni pretigu por ŝi ankaŭ unu tason. Dum la kafo estis kuirata, ŝi sidiĝis sur seĝo kaj endormiĝis. Tiam ŝi ekvidis en sonĝo tiun, kiu antaŭe neniam vivis en ŝiaj sonĝoj: ŝi sonĝis pri sia propra filo, kiu en ĉi tiu sama domo estis malsatinta kaj kriinta, kiu elkreskis en mal-
-
-ĝojo kaj mizero kaj nun kuŝis en la profunda maro, Dio sci-as kie. ŝi sonĝis, ke ŝi sidas tie, kie ŝi efektive nun sidis, kaj la taglaboristino sur la korto kuiras kafon. La odoro de la kafo jam plenigis ĉambron, kaj subite aperis en la pordo mirinda ĉarma estaĵo, bela kiel la grafa infano, kaj la infana figuro diris:
+ŝi alportis kun si kafon kaj cikorion; por la malriĉa taglaboristino, kiu longe ne havis tiajn frandaĵojn, tia donaco estis bonfaro, kaj Anneto petis, ke oni pretigu por ŝi ankaŭ unu tason. Dum la kafo estis kuirata, ŝi sidiĝis sur seĝo kaj endormiĝis. Tiam ŝi ekvidis en sonĝo tiun, kiu antaŭe neniam vivis en ŝiaj sonĝoj: ŝi sonĝis pri sia propra filo, kiu en ĉi tiu sama domo estis malsatinta kaj kriinta, kiu elkreskis en malĝojo kaj mizero kaj nun kuŝis en la profunda maro, Dio sci-as kie. ŝi sonĝis, ke ŝi sidas tie, kie ŝi efektive nun sidis, kaj la taglaboristino sur la korto kuiras kafon. La odoro de la kafo jam plenigis ĉambron, kaj subite aperis en la pordo mirinda ĉarma estaĵo, bela kiel la grafa infano, kaj la infana figuro diris:
 
 ”Nun la mondo pereas! Tenu vin forte je mi, ĉar vi estas ja ĉiuokaze mia patrino! Vi havas anĝelon en la ĉiela regno! Te-nu vin forte je mi!”
 
 Kaj la figuro ŝin prenis, sed samtempe leviĝis grandega
 
-bruo, kiu kredeble estis kaŭzata de la krevanta mondo, kaj la anĝelo leviĝis kaj tenis ŝin forte je la manikoj de la ĉemizo, tiel forte, ke ŝi, kiel ŝajnis al ŝi, leviĝis de la tero. Sed subite io peza alpendiĝis al ŝiaj piedoj, almetiĝis al ŝia dorso; ŝi havis la impreson, kvazaŭ cent virinoj alkroĉiĝis al ŝi kaj kriis: ”Se vi sa-viĝas, ni ankaŭ devas saviĝi! Tenu forte, tenu forte!” Kaj ili ĉiuj alpendiĝis. Tio estis tro multe; ”riĉ’, raĉ’”, la maniko dis-
-
-ŝiriĝis, kaj Anneto falegis en grandegan profundon, tiel ke ŝi ĉe tio vekiĝis, — kaj ŝi estis jam tuj renversiĝonta kun la seĝo, 113
-
-FABELOJ 4
+bruo, kiu kredeble estis kaŭzata de la krevanta mondo, kaj la anĝelo leviĝis kaj tenis ŝin forte je la manikoj de la ĉemizo, tiel forte, ke ŝi, kiel ŝajnis al ŝi, leviĝis de la tero. Sed subite io peza alpendiĝis al ŝiaj piedoj, almetiĝis al ŝia dorso; ŝi havis la impreson, kvazaŭ cent virinoj alkroĉiĝis al ŝi kaj kriis: ”Se vi sa-viĝas, ni ankaŭ devas saviĝi! Tenu forte, tenu forte!” Kaj ili ĉiuj alpendiĝis. Tio estis tro multe; ”riĉ’, raĉ’”, la maniko disŝiriĝis, kaj Anneto falegis en grandegan profundon, tiel ke ŝi ĉe tio vekiĝis, — kaj ŝi estis jam tuj renversiĝonta kun la seĝo,
 
 
 sur kiu ŝi sidis. ŝia kapo estis tiel konfuzita, ke ŝi tute ne povis rememori, kion ŝi sonĝis, ŝi nur konsciis, ke tio estis io malbona.
 
-Oni trinkis la kafon, ĉe kio oni multe rakontis, kaj poste Anneto iris al la plej proksima urbo, kie ŝi devis trovi la ŝarĝ-
-
-veturigiston kaj kun li ankoraŭ en la sama nokto veturi al sia hejmo. Sed kiam ŝi renkontis la ŝarĝveturigiston, li asertis, ke antaŭ la sekvanta vespero ili ne povos veturi. ŝi pripensis, kiom kostos al ŝi la nokta restado, ŝi konsideris la longecon de la vojo kaj prikalkulis, ke, se ŝi ne sekvos la landvojon, sed iros laŭlonge de la marbordo, ŝi ŝparos preskaŭ du mejlojn.
+Oni trinkis la kafon, ĉe kio oni multe rakontis, kaj poste Anneto iris al la plej proksima urbo, kie ŝi devis trovi la ŝarĝveturigiston kaj kun li ankoraŭ en la sama nokto veturi al sia hejmo. Sed kiam ŝi renkontis la ŝarĝveturigiston, li asertis, ke antaŭ la sekvanta vespero ili ne povos veturi. ŝi pripensis, kiom kostos al ŝi la nokta restado, ŝi konsideris la longecon de la vojo kaj prikalkulis, ke, se ŝi ne sekvos la landvojon, sed iros laŭlonge de la marbordo, ŝi ŝparos preskaŭ du mejlojn.
 
 Krom tio estis bela vespero kaj plej bela plenluno, per unu vorto — Anneto decidis iri piede. En la sekvanta tago ŝi povis esti hejme.
 
@@ -2300,29 +1798,18 @@ la marbordo, laŭlonge de kiu ŝi iris. ŝi aŭdis la paŝojn de siaj propraj pi
 
 Anneto iris kaj pensis, kiel oni diras, pri nenio, ŝi forpelis de si ĉiujn pensojn; tamen la pensoj ŝin ne forlasis, ili neniam nin forlasas, ili nur kuŝas en speco de dormo, la viviĝintaj kiuj trankviliĝis, kiel ankaŭ tiuj, kiuj ankoraŭ ne moviĝis. Sed la pensoj aperas, ili povas ekmoviĝi en nia koro, ili povas ekmoviĝi en nia kapo aŭ subite nin ataki.
 
-”Bonfaroj alportas benon!” estas skribite. ”La peko naskas 114
-
-FABELOJ 4
+”Bonfaroj alportas benon!” estas skribite. ”La peko naskas
 
 
 la morton! ” estas ankaŭ skribite. Multaj aferoj estas skribitaj, multaj estas diritaj, oni tion ne scias, oni tion ne memoras. Tiel estis kun Anneto. Sed tio povas subite veni en la kapon, tio povas veni!
 
 ĉiuj malvirtoj, ĉiuj virtoj kuŝas en nia koro, en via, en mia; ili kuŝas kiel malgrandaj, nevideblaj grajnetoj. Jen el ekstere venas sunradio, ektuŝo de malbona mano, vi turnas ĝin dek-stren, tio povas esti decida, kaj la malgranda grajneto skuiĝas,
 
-ĝi ŝvelas, ĝi krevas kaj enverŝas ĉiujn siajn sukojn en vian sangon, kaj tiam vi senhalte ekmoviĝas. Ekzistas pensoj maltran-kviligantaj; tiel longe, kiel oni iras kvazaŭ en sonĝo, oni ilin ne havas, sed ili komencas moviĝi! Anneto iris kvazaŭ en son-
-
-ĝo, la pensoj komencis moviĝi. De unu Kandelfesto ĝis la alia la koro havas multe sur sia kalkultabelo, la kalkulon pri tuta jaro; multe estas forgesite, pekoj per vortoj kontraŭ Dio, kontraŭ nia proksimulo kaj kontraŭ nia propra konscienco. Ni
+ĝi ŝvelas, ĝi krevas kaj enverŝas ĉiujn siajn sukojn en vian sangon, kaj tiam vi senhalte ekmoviĝas. Ekzistas pensoj maltran-kviligantaj; tiel longe, kiel oni iras kvazaŭ en sonĝo, oni ilin ne havas, sed ili komencas moviĝi! Anneto iris kvazaŭ en sonĝo, la pensoj komencis moviĝi. De unu Kandelfesto ĝis la alia la koro havas multe sur sia kalkultabelo, la kalkulon pri tuta jaro; multe estas forgesite, pekoj per vortoj kontraŭ Dio, kontraŭ nia proksimulo kaj kontraŭ nia propra konscienco. Ni
 
 tion ne pripensas, kaj tion ankaŭ Anneto ne faris; ŝi faris nenion malbonan kontraŭ la leĝoj de la lando, ŝi estis opiniata, kiel ŝi sciis, brava, honesta kaj estiminda. Kiam ŝi nun iris laŭlonge de la marbordo, ŝi subite ekvidis ke io tie kuŝis. Kio
 
-ĝi estas? ŝi haltis; kion la maro tie elĵetis? Tie kuŝis malnova vira ĉapelo. Kie ĝi povis defali de ŝipo? ŝi aliris pli proksime, haltis kaj rigardis la ĉapelon. He, kio tie kuŝis! Timo ŝin atakis; sed estis nenio, kion oni devus timi, tio estis mara herbo aŭ junko, kiu kovris longforman ŝtonon kaj aspektis kiel korpo de homo. Tio estis nur junko aŭ mara herbo, ŝi tamen restis timigita, kaj dum ŝi iris pluen, venis al ŝi en la kapon diversaj aferoj, kiujn ŝi aŭdis, kiam ŝi estis infano, la tuta superstiĉo pri la marborda fantomo, la fantomo de tiuj, kiujn la maro elĵetis sur la dezertan bordon kaj kiuj restis tie ne en-115
-
-FABELOJ 4
-
-
-terigitaj. Oni diris, ke la marborda fantomo sekvas la solecan migranton, alpendiĝas al li kaj postulas, ke oni portu ĝin sur la tombejon, por ke ĝi ricevu tombon en Kristana tero. ”Tenu forte, tenu forte!” ĝi krias, kiel oni diras. Kiam Anneto ripetis en si mem tiujn vortojn, ŝi subite rememoris sian tutan sonĝon, vivanta ĝi staris antaŭ ŝia animo, kiel la patrinoj kun la krio ”tenu forte, tenu forte” alkroĉiĝis al ŝi, kiel la mondo pereis, ŝiaj manikoj disŝiriĝis kaj ŝi forfalis de sia infano, kiu en la horo de juĝo volis ŝin tiri supren. ŝia infano, ŝia propra karno kaj sango, ŝia infano, kiun ŝi neniam amis, pri kiu ŝi eĉ ne pensis, tiu infano kuŝis nun sur la fundo de la maro, ĝi povis veni kiel marborda fantomo kaj krii: ”tenu forte, tenu forte! metu min en Kristanan teron!” Dum ĉi tiuj pensoj iris tra ŝia kapo, ŝi sentis pikadon en siaj piedoj, kaj ŝi iris pli rapide. La timo simile al malseka mano kuŝiĝis sur ŝia koro, tiel ke ŝi preskaŭ svenis. Dum ŝi rigardis la maron, la aero ĉirkaŭ ŝi subite fariĝis ĉiam pli kaj pli densa. Aperis peza nebulo kaj kuŝiĝis sur la arbetaĵoj kaj arboj, kio donis al ili strangan aspekton. ŝi sin returnis, por rigardi la lunon, kiu staris malantaŭ ŝi. i similis al pala disko sen radioj. ŝi havis la senton, kvazaŭ io peza kuŝiĝis sur ĉiuj ŝiaj membroj; ”tenu forte, tenu forte!” ŝi pensis. Kiam ŝi denove sin returnis kaj ekrigardis la lunon, ŝajnis al ŝi, ke ĝia vizaĝo troviĝas tute proksime antaŭ ŝi kaj ke la nebulo kvazaŭ blanka tola kovro pendas de ŝiaj ŝultroj. ŝajnis al ŝi, ke ŝi aŭdas: ”Tenu forte! Metu min en Kristanan teron!” kaj ŝi efektive aŭdis tonon, obtuzan, maltran-kviligan, kiu ne povis veni de la ranoj en la marĉo nek de korvoj aŭ kornikoj, ĉar ilin ŝi nenie rimarkis. ”Enterigu min, enterigu min!” sonis laŭte kaj aŭdeble. Jes, tio estis la marborda fantomo de ŝia infano, kiu kuŝis sur la fundo de la maro 116
-
-FABELOJ 4
+ĝi estas? ŝi haltis; kion la maro tie elĵetis? Tie kuŝis malnova vira ĉapelo. Kie ĝi povis defali de ŝipo? ŝi aliris pli proksime, haltis kaj rigardis la ĉapelon. He, kio tie kuŝis! Timo ŝin atakis; sed estis nenio, kion oni devus timi, tio estis mara herbo aŭ junko, kiu kovris longforman ŝtonon kaj aspektis kiel korpo de homo. Tio estis nur junko aŭ mara herbo, ŝi tamen restis timigita, kaj dum ŝi iris pluen, venis al ŝi en la kapon diversaj aferoj, kiujn ŝi aŭdis, kiam ŝi estis infano, la tuta superstiĉo pri la marborda fantomo, la fantomo de tiuj, kiujn la maro elĵetis sur la dezertan bordon kaj kiuj restis tie ne enterigitaj. Oni diris, ke la marborda fantomo sekvas la solecan migranton, alpendiĝas al li kaj postulas, ke oni portu ĝin sur la tombejon, por ke ĝi ricevu tombon en Kristana tero. ”Tenu forte, tenu forte!” ĝi krias, kiel oni diras. Kiam Anneto ripetis en si mem tiujn vortojn, ŝi subite rememoris sian tutan sonĝon, vivanta ĝi staris antaŭ ŝia animo, kiel la patrinoj kun la krio ”tenu forte, tenu forte” alkroĉiĝis al ŝi, kiel la mondo pereis, ŝiaj manikoj disŝiriĝis kaj ŝi forfalis de sia infano, kiu en la horo de juĝo volis ŝin tiri supren. ŝia infano, ŝia propra karno kaj sango, ŝia infano, kiun ŝi neniam amis, pri kiu ŝi eĉ ne pensis, tiu infano kuŝis nun sur la fundo de la maro, ĝi povis veni kiel marborda fantomo kaj krii: ”tenu forte, tenu forte! metu min en Kristanan teron!” Dum ĉi tiuj pensoj iris tra ŝia kapo, ŝi sentis pikadon en siaj piedoj, kaj ŝi iris pli rapide. La timo simile al malseka mano kuŝiĝis sur ŝia koro, tiel ke ŝi preskaŭ svenis. Dum ŝi rigardis la maron, la aero ĉirkaŭ ŝi subite fariĝis ĉiam pli kaj pli densa. Aperis peza nebulo kaj kuŝiĝis sur la arbetaĵoj kaj arboj, kio donis al ili strangan aspekton. ŝi sin returnis, por rigardi la lunon, kiu staris malantaŭ ŝi. i similis al pala disko sen radioj. ŝi havis la senton, kvazaŭ io peza kuŝiĝis sur ĉiuj ŝiaj membroj; ”tenu forte, tenu forte!” ŝi pensis. Kiam ŝi denove sin returnis kaj ekrigardis la lunon, ŝajnis al ŝi, ke ĝia vizaĝo troviĝas tute proksime antaŭ ŝi kaj ke la nebulo kvazaŭ blanka tola kovro pendas de ŝiaj ŝultroj. ŝajnis al ŝi, ke ŝi aŭdas: ”Tenu forte! Metu min en Kristanan teron!” kaj ŝi efektive aŭdis tonon, obtuzan, maltran-kviligan, kiu ne povis veni de la ranoj en la marĉo nek de korvoj aŭ kornikoj, ĉar ilin ŝi nenie rimarkis. ”Enterigu min, enterigu min!” sonis laŭte kaj aŭdeble. Jes, tio estis la marborda fantomo de ŝia infano, kiu kuŝis sur la fundo de la maro
 
 
 kaj ne povis trovi pacon nek ripozon, ĝis ĝi estos portita sur la tombejon kaj oni elfosos por ĝi tombon en Kristana tero.
@@ -2339,29 +1826,19 @@ fagarbaro povas eligi burĝonojn kaj ĉe la sunlumo de la sekvanta tago aperi en
 
 Kion ni diris ĉi tie per vortoj, tio ondiĝis en la pensoj de Anneto; tio ŝin senfortigis, ŝi falis sur la teron kaj rampis sur
 
-ĝi kelkan spacon. ”Enterigu min, enterigu min!” io sonis; ha, 117
-
-FABELOJ 4
+ĝi kelkan spacon. ”Enterigu min, enterigu min!” io sonis; ha,
 
 
-plej volonte ŝi enterigus sin mem, se nur la tombo estus eterna forgeso de ĉiuj pekoj. Tio estis la serioza horo de vekiĝo kun teruro kaj timego. Kaŭze de ŝia superstiĉo ŝia sango jen bolis, jen rigidiĝis; multaj aferoj, pri kiuj ŝi neniam volus paroli, venis al ŝi en la kapon. Sensone kiel la ombro de nubo en lunlumo traŝvebis antaŭ ŝi aperaĵo, pri kiu ŝi jam antaŭe aŭ-
-
-dis. Tute antaŭ ŝi pretergalopis kvar spiregantaj ĉevaloj, fajro flamis el iliaj okuloj kaj nazotruoj. Ili tiris ardantan kaleŝon, en kiu sidis la malbona bienmastro, kiu loĝis en ĉi tiu regiono antaŭ pli ol cent jaroj. ĉiun noktomezon li veturas, kiel oni diris, en sian bienon kaj tuj veturas returne. Li ne estis blanka, kiel oni ordinare prezentas al si mortinton, ne, li estis nigra kiel karbo, kiel estingiĝinta karbo. Li kapsalutis Anneton kaj faris al ŝi signojn. ”Tenu forte, tenu forte! Tiam vi povos denove veturi en grafa kaleŝo kaj forgesi vian infanon!”
+plej volonte ŝi enterigus sin mem, se nur la tombo estus eterna forgeso de ĉiuj pekoj. Tio estis la serioza horo de vekiĝo kun teruro kaj timego. Kaŭze de ŝia superstiĉo ŝia sango jen bolis, jen rigidiĝis; multaj aferoj, pri kiuj ŝi neniam volus paroli, venis al ŝi en la kapon. Sensone kiel la ombro de nubo en lunlumo traŝvebis antaŭ ŝi aperaĵo, pri kiu ŝi jam antaŭe aŭdis. Tute antaŭ ŝi pretergalopis kvar spiregantaj ĉevaloj, fajro flamis el iliaj okuloj kaj nazotruoj. Ili tiris ardantan kaleŝon, en kiu sidis la malbona bienmastro, kiu loĝis en ĉi tiu regiono antaŭ pli ol cent jaroj. ĉiun noktomezon li veturas, kiel oni diris, en sian bienon kaj tuj veturas returne. Li ne estis blanka, kiel oni ordinare prezentas al si mortinton, ne, li estis nigra kiel karbo, kiel estingiĝinta karbo. Li kapsalutis Anneton kaj faris al ŝi signojn. ”Tenu forte, tenu forte! Tiam vi povos denove veturi en grafa kaleŝo kaj forgesi vian infanon!”
 
 ŝi iris pli rapide antaŭen kaj atingis la tombejon. Sed la nigraj krucoj kaj la nigraj korvoj intermiksiĝis antaŭ ŝiaj okuloj. La korvoj kriis, kiel hodiaŭ la korvo estis kriinta, sed nun ŝi komprenis, kion ili kriis. ”Mi estas korva patrino, mi estas korva patrino!” diris ĉiu el ili, kaj Anneto sciis, ke tiu nomo rilatas ankaŭ al ŝi; ŝi eble aliformiĝos en tian nigran birdon kaj devos senĉese kriadi, kiel tiu kriis, se ŝi ne sukcesos elfosi la tombon.
 
 Kaj ŝi ĵetiĝis sur la teron kaj fosis per siaj manoj tombon en la malmola tero, ĝis la sango komencis ŝpruci el ŝiaj fingroj.
 
-”Enterigu min, enterigu min!” sonis seninterrompe; ŝi ti-
-
-mis la kokokrion, ŝi timis la unuan ruĝan strion en la oriento, ĉar se ŝia laboro ne estos finita ĝis tiam, ŝi pereos. Kaj la koko ekkriis, kaj en la oriento montriĝis brileto de lumo, — la tombo estis elfosita nur duone, glacia mano ekglitis sur ŝia 118
-
-FABELOJ 4
+”Enterigu min, enterigu min!” sonis seninterrompe; ŝi timis la kokokrion, ŝi timis la unuan ruĝan strion en la oriento, ĉar se ŝia laboro ne estos finita ĝis tiam, ŝi pereos. Kaj la koko ekkriis, kaj en la oriento montriĝis brileto de lumo, — la tombo estis elfosita nur duone, glacia mano ekglitis sur ŝia
 
 
-kapo kaj vizaĝo malsupren ĝis la koro. ”Nur duono de tom-
-
-bo!” io ĝemis, kaj ombro malrapide forŝvebis returne, al la fundo de la maro. Jes, tio estis la marborda fantomo! Senforte Anneto falis sur la teron, ŝi havis plu nek pensojn nek sentojn.
+kapo kaj vizaĝo malsupren ĝis la koro. ”Nur duono de tombo!” io ĝemis, kaj ombro malrapide forŝvebis returne, al la fundo de la maro. Jes, tio estis la marborda fantomo! Senforte Anneto falis sur la teron, ŝi havis plu nek pensojn nek sentojn.
 
 Estis luma tago, kiam ŝi denove rekonsciiĝis; du viroj levis ŝin. ŝi kuŝis ne sur la tombejo, sed sur la marbordo, kaj ŝi estis fosinta antaŭ si profundan truon en la sablo kaj sange vundis al si la fingrojn je rompita glaso, kies akraranda malsupra parto sidis sur blukolora ligna ŝtipo. Anneto estis malsana. ŝia konscienco miksis la kartojn de la superstiĉo, dismetis ilin kaj prenis el ili informon, ke ŝi nun havas nur duonon da animo, ke la duan duonon forprenis kun si ŝia infano sur la fundon de la maro. ŝi estis konvinkita, ke neniam ŝi povos akiri favor-korecon de la ĉielo, antaŭ ol ŝi ricevos returne tiun duan duonon, kiu estas retenata en la profundo de la maro. Anneto
 
@@ -2371,15 +1848,9 @@ revenis hejmen; ŝi ne estis plu tiu estaĵo, kiu ŝi estis antaŭe.
 
 tombon kaj per tio returne akiri sian tutan animon.
 
-En multaj noktoj ŝi malaperis el la domo, kaj ĉiam oni ŝin tiam trovis sur la marbordo, kie ŝi atendis la fantomon. Tiel pasis tuta jaro; en unu nokto ŝi denove malaperis, sed oni ne povis ŝin retrovi; la tuta sekvanta tago pasis en senfrukta ser-
+En multaj noktoj ŝi malaperis el la domo, kaj ĉiam oni ŝin tiam trovis sur la marbordo, kie ŝi atendis la fantomon. Tiel pasis tuta jaro; en unu nokto ŝi denove malaperis, sed oni ne povis ŝin retrovi; la tuta sekvanta tago pasis en senfrukta serĉado.
 
-ĉado.
-
-Kiam vespere la preĝeja servisto eniris en la preĝejon, por sonorigi al la vespera preĝo, li ekvidis Anneton, kuŝantan an-taŭ la altaro. ĉi tie ŝi estis depost la plej frua matena horo, ŝiaj fortoj preskaŭ tute ŝin forlasis, sed ŝiaj okuloj lumis, ŝia viza-
-
-ĝo havis ruĝetan brilon. La lastaj radioj de la suno falis sur 119
-
-FABELOJ 4
+Kiam vespere la preĝeja servisto eniris en la preĝejon, por sonorigi al la vespera preĝo, li ekvidis Anneton, kuŝantan an-taŭ la altaro. ĉi tie ŝi estis depost la plej frua matena horo, ŝiaj fortoj preskaŭ tute ŝin forlasis, sed ŝiaj okuloj lumis, ŝia vizaĝo havis ruĝetan brilon. La lastaj radioj de la suno falis sur
 
 
 ŝin, glitis brilante sur la altaron kaj origis la brilpurajn bukojn de la Biblio, kiu kuŝis sur ĝi malfermite. Klare oni povis legi la vortojn de la profeto Joel: ”Disŝiru viajn korojn, sed ne viajn vestojn, returnu vin al la Eternulo!” — ”Tio estis simpla hazardo!” oni diris, kiel multajn aferojn oni atribuas al la hazardo.
@@ -2392,12 +1863,7 @@ vi tenis min entombigite en via koro, kaj tie patrino konservas sian infanon ple
 
 ”Nun mi estas en la domo de Dio,” ŝi diris, ”kaj en Lia do-mo oni estas feliĉa!”
 
-Kiam la suno estis tute subiĝinta, la animo de Anneto es-
-
-tis tute supre, tie, kie ne ekzistas timo, kiam oni finis sian surteran bataladon; kaj Anneto ĝin finis.
-
-
-FABELOJ 4
+Kiam la suno estis tute subiĝinta, la animo de Anneto estis tute supre, tie, kie ne ekzistas timo, kiam oni finis sian surteran bataladon; kaj Anneto ĝin finis.
 
 
 Infana babilado
@@ -2414,9 +1880,7 @@ Inter la malgranda gastaro troviĝis unu plej ĉarma knabino, sed terure fiera. 
 
 ŝia patro estis palacano, kaj tio, kiel ŝi sciis, estis terure grava afero.
 
-”Mi estas palaca infano!” ŝi diradis. ŝi povus tiel same bone esti kela infano, ĉar nek la unuan staton nek la duan oni povas atingi per siaj propraj faroj. Krom tio ŝi rakontis al la aliaj infanoj, ke ŝi estas ”moŝtnaskita”, kaj ŝi diris plue, ke se oni ne estas moŝtnaskita, oni povas fariĝi nenio. Lerni kaj esti tre 121
-
-FABELOJ 4
+”Mi estas palaca infano!” ŝi diradis. ŝi povus tiel same bone esti kela infano, ĉar nek la unuan staton nek la duan oni povas atingi per siaj propraj faroj. Krom tio ŝi rakontis al la aliaj infanoj, ke ŝi estas ”moŝtnaskita”, kaj ŝi diris plue, ke se oni ne estas moŝtnaskita, oni povas fariĝi nenio. Lerni kaj esti tre
 
 
 diligenta nenion helpas, se oni ne estas moŝtnaskita, tiam oni nenion povas atingi.
@@ -2439,14 +1903,10 @@ La nomo de ŝia patro estis simpla, kaj tial ŝi diris tiel fiere, kiel ŝi povi
 
 Sed ekstere antaŭ la duone malfermita pordo staris malriĉa knabo kaj enrigardis tra la fendo. La knabo ne havis la rajton eĉ eniri en la ĉambron, tiel malaltstata li estis. Li estis turna-dinta la rostostangon por la kuiristino, kaj nun li ricevis la permeson stari malantaŭ la pordo kaj enrigardi al la elegante vestitaj infanoj, kiuj tie gaje amuziĝis, kaj tio estis por li tre multe.
 
-”Se mi povus ankaŭ esti unu el ili!” li pensis, kaj li aŭskultis, kio tie estis parolata, kaj tio donis sufiĉe da kaŭzo, por esti afliktita. Eĉ unu spesdekon ne havis liaj gepatroj hejme sur la 122
-
-FABELOJ 4
+”Se mi povus ankaŭ esti unu el ili!” li pensis, kaj li aŭskultis, kio tie estis parolata, kaj tio donis sufiĉe da kaŭzo, por esti afliktita. Eĉ unu spesdekon ne havis liaj gepatroj hejme sur la
 
 
-fundo de sia kofro, ili ne havis la rimedojn por aboni gazeton, des pli por ĝin verki, kaj la plej malbona estis ankoraŭ tio, ke la nomo de lia patro, kaj sekve ankaŭ lia, estis tre simpla, kaj el li sekve neniam io fariĝos en la mondo. Tio estis tre mal-
-
-ĝojiga.
+fundo de sia kofro, ili ne havis la rimedojn por aboni gazeton, des pli por ĝin verki, kaj la plej malbona estis ankoraŭ tio, ke la nomo de lia patro, kaj sekve ankaŭ lia, estis tre simpla, kaj el li sekve neniam io fariĝos en la mondo. Tio estis tre malĝojiga.
 
 Tio estis en tiu vespero.
 
@@ -2456,9 +1916,6 @@ Depost tiam pasis jaroj, kaj el la infanoj fariĝis homoj.
 Belega domo staris en la urbo, ĝi estis plena de belegaĵoj, ĉiuj volis ilin vidi, eĉ homoj el ekster la urbo venis, por tion admiri. Kiu, laŭ via opinio, el la infanoj, pri kiuj ni rakontis, povis diri, ke tiu domo estas lia? Nu, kredeble estas facile di-veni? Ne, ne tiel facile. La domo apartenis al la malgranda malriĉa knabo; io tamen fariĝis el li, kvankam lia nomo estis tre simpla — Thorwaldsen.
 
 Kaj la tri aliaj infanoj? El tiuj infanoj, kiuj apartenis al la no-belara deveno, mona kaj spirita, neniu faris ion eminentan, kio meritus mencion, neniu superis la aliajn. Sed bonaj kaj bravaj homoj tamen fariĝis el ili; ili havis en ˛ŝi bonan grundon. Tio, kion ili tiam pensis kaj parolis, estis nur infana babilado.
-
-
-FABELOJ 4
 
 
 Peco da perlovico
@@ -2477,35 +1934,25 @@ Kiom da perloj troviĝas en la perlovico de Kopenhago ĝis
 
 Korsĝr? Ni rigardu ses, kiuj en la okuloj de la plejmulto aperas kiel la plej rimarkindaj. Malnovaj rememoroj kaj eĉ kantoj donas al tiuj perloj brilon, tiel ke ili lumante vivas en niaj pensoj.
 
-ĉe la monteto, sur kiu staras la kastelo de Frederiko la Se-sa, kie Oehlenschlager travivis sian vivon, brilas en luksa arbara regiono unu el tiuj perloj, dua kabano de Filemono kaj Baŭcido, la ĉarma hejmo de du amindaj gemaljunuloj. ĉi tie loĝis Rahbeck kun sia edzino Camma; ĉi tie, sub ilia gastama tegmento, en la vivdaŭro de tuta generacio kolektiĝadis ne malmulte da herooj de la spirito el la agema kaj brua Kopenhago; ĉi tie estis fondita hejmo por la spirito, — kaj nun… Ne 124
-
-FABELOJ 4
+ĉe la monteto, sur kiu staras la kastelo de Frederiko la Se-sa, kie Oehlenschlager travivis sian vivon, brilas en luksa arbara regiono unu el tiuj perloj, dua kabano de Filemono kaj Baŭcido, la ĉarma hejmo de du amindaj gemaljunuloj. ĉi tie loĝis Rahbeck kun sia edzino Camma; ĉi tie, sub ilia gastama tegmento, en la vivdaŭro de tuta generacio kolektiĝadis ne malmulte da herooj de la spirito el la agema kaj brua Kopenhago; ĉi tie estis fondita hejmo por la spirito, — kaj nun… Ne
 
 
 diru: ”ha, kia ŝanĝo!” Ne, eĉ nun ankoraŭ tio estas hejmo de la spirito, varmejo por malsanemaj kreskaĵoj! La flora burĝo-no, kiu ne estas sufiĉe forta por disvolviĝi, tamen enhavas en si, kvankam kaŝite, ĉiujn ĝermojn por folioj kaj semo. ĉi tie la suno de la spirito lumas en bone vartatan hejmon de la
 
-spirito, vivigas kaj vigligas. La mondo de ĉirkaŭe radias tra la okuloj en la neesploreblan profundon de la animo. La hejmo de la idiotoj, ĉirkaŭata de homa amo, estas sankta loko, varmejo por la malsanema kreskaĵo, kiu devas denove esti plantita kaj ekflori en la ĝardeno de Dio. La plej malfortaj koncerne la spiriton nun estas kolektataj tie, kie iam renkontiĝadis la plej grandaj kaj fortaj, interŝanĝadis siajn pensojn kaj levi-
-
-ĝadis supren, — supren leviĝas ankaŭ nun ankoraŭ la flamo
+spirito, vivigas kaj vigligas. La mondo de ĉirkaŭe radias tra la okuloj en la neesploreblan profundon de la animo. La hejmo de la idiotoj, ĉirkaŭata de homa amo, estas sankta loko, varmejo por la malsanema kreskaĵo, kiu devas denove esti plantita kaj ekflori en la ĝardeno de Dio. La plej malfortaj koncerne la spiriton nun estas kolektataj tie, kie iam renkontiĝadis la plej grandaj kaj fortaj, interŝanĝadis siajn pensojn kaj leviĝadis supren, — supren leviĝas ankaŭ nun ankoraŭ la flamo
 
 de la animoj en la dua kabano de Filemono kaj Baŭcido.
 
 La urbo de la reĝaj tomboj ĉe la fonto de Hroar, la malnova Roskilde, kuŝas antaŭ ni. La graciaj turpintoj de la preĝejo leviĝas super la malalta urbo kaj speguliĝas en Isefjord. Nur unu tombon ni ĉi tie elserĉos, ni ĝin rigardos en la emajlo de la perlo. i ne estas la tombo de la potenca reĝino de la Unio, Margareto, ne, interne de la tombejo, antaŭ kies blanka muro ni tute proksime preterflugas, troviĝas la tombo, nevalora ŝtono ĝvras. La reĝo de la orgeno, la granda Dana ro-mantikisto, ĉi tie dormas, la verkinto de niaj plej belaj popolaj kantoj. Roskilde, urbo de la reĝaj tomboj, en la brilo de via perlo ni pririgardos la simplan tombon, sur kies ŝtono estas elhakita liro kaj la nomo: Weyse.
 
-Nun ni venas al Sigersted apud la urbo Ringsted; la fluejo de la rivero estas malprofunda; la flava greno kreskas tie, kie albordiĝis la boato de Hagbarth, ne malproksime de la virgu-lina turo de Signes. Kiu ne konas la legendon de Hagbarth, 125
-
-FABELOJ 4
+Nun ni venas al Sigersted apud la urbo Ringsted; la fluejo de la rivero estas malprofunda; la flava greno kreskas tie, kie albordiĝis la boato de Hagbarth, ne malproksime de la virgu-lina turo de Signes. Kiu ne konas la legendon de Hagbarth,
 
 
 kiu pendis en la kverko, kaj pri la kaĝo de Signes, kiu staris en flamoj, la legendon pri la forta amo?
 
-”Belega Soro, ĉirkaŭkronita de arbaro!” Nun la silenta mo-
+”Belega Soro, ĉirkaŭkronita de arbaro!” Nun la silenta monaęja vilaĝo ricevis travidon tra la muskokovritaj arboj. Kun okuloj de juneco ĝi el la akademio trans la lagon rigardas al la mondvojo, aŭdas la ĝemadon de la drako-lokomotivo, kiu
 
-naęja vilaĝo ricevis travidon tra la muskokovritaj arboj. Kun okuloj de juneco ĝi el la akademio trans la lagon rigardas al la mondvojo, aŭdas la ĝemadon de la drako-lokomotivo, kiu
-
-flugas tra la arbaro. Soro, vi perlo de la poezio, vi kaŝas en vi la polvon de Holberg! Simile al potenca blanka cigno ĉe la profunda arbara lago staras via kastelo de instruiteco, kaj supren al ĝi simile al blanka astrofloro en la arbaro lumas malgranda domo. Piaj kantoj sonas el ĝi malproksimen super la landon, tie estas parolataj vortoj, kiujn aŭskultas eĉ la vila-
-
-ĝano kaj per ili konatiĝas kun la malaperintaj tempoj de Danujo. La verda arbaro kaj la kantado de la birdoj estas ligitaj inter si, kiel la nomoj Soro kaj Ingemann.
+flugas tra la arbaro. Soro, vi perlo de la poezio, vi kaŝas en vi la polvon de Holberg! Simile al potenca blanka cigno ĉe la profunda arbara lago staras via kastelo de instruiteco, kaj supren al ĝi simile al blanka astrofloro en la arbaro lumas malgranda domo. Piaj kantoj sonas el ĝi malproksimen super la landon, tie estas parolataj vortoj, kiujn aŭskultas eĉ la vilaĝano kaj per ili konatiĝas kun la malaperintaj tempoj de Danujo. La verda arbaro kaj la kantado de la birdoj estas ligitaj inter si, kiel la nomoj Soro kaj Ingemann.
 
 Pluen al la urbo Slagelse! Kio speguliĝas ĉi tie en la emaj-lo de la perlo? Malaperis la monaęjo Antvoskov, malaperis
 
@@ -2519,9 +1966,7 @@ Korsĝr, — ĉi tie naskiĝis vi, kiu donis al ni:
 
 En kantoj pri la Zelandano Knut.”
 
-Vi, majstro en vortoj kaj spritaĵoj! La malaperantaj malnovaj remparoj de la forlasita fortikaĵo estas nun ĉi tie la lastaj videblaj atestantoj de la hejmo de via juneco. Kiam la suno subiras, iliaj ombroj montras al la loko, kie staris la domo de 126
-
-FABELOJ 4
+Vi, majstro en vortoj kaj spritaĵoj! La malaperantaj malnovaj remparoj de la forlasita fortikaĵo estas nun ĉi tie la lastaj videblaj atestantoj de la hejmo de via juneco. Kiam la suno subiras, iliaj ombroj montras al la loko, kie staris la domo de
 
 
 via naskiĝo. De ĉi tiuj remparoj vi vidis, kiam vi estis malgranda, kiel ”la lun’ post la insulo malleviĝas”, kaj vi tion senmor-tigis per via kanto, vi, kiu vagadis tra la labirinto de la mondo kaj trovis, ke
@@ -2534,28 +1979,18 @@ Nenie la lanugo tiel mola,
 
 Kiel en nia dolĉa infaneco.”
 
-La ĉarmaj kantoj de la bona humoro kaj spriteco! Ni plek-
-
-tas al vi florkronon el asperuloj, ĵetas ĝin en la maron, kaj la ondoj portos ĝin al la golfo de Kil, sur kies bordo kuŝas via polvo. i alportos al vi salutojn de la juna generacio, salutojn el la gepatra urbo Korsĝr, kie finiĝas la perlovico.
+La ĉarmaj kantoj de la bona humoro kaj spriteco! Ni plektas al vi florkronon el asperuloj, ĵetas ĝin en la maron, kaj la ondoj portos ĝin al la golfo de Kil, sur kies bordo kuŝas via polvo. i alportos al vi salutojn de la juna generacio, salutojn el la gepatra urbo Korsĝr, kie finiĝas la perlovico.
 
 2.
 
-i estas efektive peco da perlovico, la distanco inter Ko-
-
-penhago kaj Korsĝr,” diris la avino, kiu aŭdis la voĉlega-
+i estas efektive peco da perlovico, la distanco inter Kopenhago kaj Korsĝr,” diris la avino, kiu aŭdis la voĉlega-
 
 don de tio, kio estas skribita supre. ”Almenaŭ por mi ĝi estas perlovico kaj fariĝis tia antaŭ pli ol kvardek jaroj,” ŝi diris.
 
-”Tiam ni ne havis vapormaŝinojn; por traveturi tiun vojon, ni uzis tiom da tagoj, kiom da horoj vi nun uzas. Tio estis en la jaro 1815; tiam mi havis la aĝon de dudek unu jaroj; tio estas bela aĝo, kvankam en la tridekaj jaroj oni ankaŭ havas ankoraŭ ĉarman aĝon, ho tiel benitan! En la tempo de mia ju-
-
-neco veturi al Kopenhago estis pli granda maloftaĵo ol nun, al tiu urbo super ĉiuj urboj, kia ĝi estis en niaj okuloj. Miaj gepatroj volis post dudek jaroj denove fari tie viziton, kaj mi 127
-
-FABELOJ 4
+”Tiam ni ne havis vapormaŝinojn; por traveturi tiun vojon, ni uzis tiom da tagoj, kiom da horoj vi nun uzas. Tio estis en la jaro 1815; tiam mi havis la aĝon de dudek unu jaroj; tio estas bela aĝo, kvankam en la tridekaj jaroj oni ankaŭ havas ankoraŭ ĉarman aĝon, ho tiel benitan! En la tempo de mia juneco veturi al Kopenhago estis pli granda maloftaĵo ol nun, al tiu urbo super ĉiuj urboj, kia ĝi estis en niaj okuloj. Miaj gepatroj volis post dudek jaroj denove fari tie viziton, kaj mi
 
 
-estis veturonta kun ili. La vojaĝon ni priparolis jam dum jaroj, kaj nun ĝi devis efektiviĝi! ŝajnis al mi, kvazaŭ komenci-
-
-ĝas tute nova vivo, kaj en certa rilato por mi efektive kmenci-
+estis veturonta kun ili. La vojaĝon ni priparolis jam dum jaroj, kaj nun ĝi devis efektiviĝi! ŝajnis al mi, kvazaŭ komenciĝas tute nova vivo, kaj en certa rilato por mi efektive kmenci-
 
 ĝis nova vivo.
 
@@ -2570,9 +2005,6 @@ Estis al ni agrable eliri sur la teron; sed estis mallume, la lampoj brulis malk
 ”Vidu, ĉi tie naskiĝis Baggesen!” diris mia patro, ”kaj ĉi tie vivis Birckner.”
 
 
-FABELOJ 4
-
-
 Tiam la malnova urbo kun siaj malgrandaj domoj por unu
 
 fojo aperis al mi pli hela, pli aminda kaj pli granda; krom tio ni estis tiel ĝojaj, ke ni denove havas firman teron sub la piedoj. Dormi tamen mi ne povis, miaj pensoj estis okupitaj de ĉio nova, kion mi depost antaŭieraŭ jam vidis kaj travivis.
@@ -2581,13 +2013,9 @@ La sekvantan matenon ni devis frue leviĝi; ni havis antaŭ
 
 ni ĝis Slagelse malbonan vojon kun maloportunaj montoj kaj kun multe da truoj, kaj transe de tiu urbo kredeble ankaŭ ne estis multe pli bone; kaj tamen ni tre volis alveni en la Kankrejo sufiĉe frue, ke ni povu ankoraŭ dum la tago iri al Soro kaj viziti Emilon de Moller, kiel ni lin nomis. Tio estis via avo, mia formortinta edzo, la preposto; li estis tiam studento en Soro kaj ĵus trapasis sian duan ekzamenon.
 
-Post tagmezo ni alvenis en la Kankrejo; ĝi estis tiam mul-
+Post tagmezo ni alvenis en la Kankrejo; ĝi estis tiam multe vizitata loko, la plej bona gastejo sur la tuta vojo, kaj plej ĉarma regiono, kiel vi ĉiuj devas konfesi, ĝi estas ankoraŭ nun. Brava mastrino tie regis, sinjorino Plambek, ĉio en la domo brilis kaj fulmis de pureco. Sur la muro pendis sub vitro kaj en kadro letero de Baggesen al ŝi, ĝi certe meritis, ke oni ĝin rigardu. Por mi ĝi estis granda rimarkindaĵo. Poste ni iris al Soro kaj trovis tie Emilon. Vi povas kredi, ke li tre ĝojis, kiam li vidis nin, kaj por ni estis ne malpli granda ĝojo vidi lin; li estis tiel bona kaj atentema! Kun li ni pririgardis la preĝejon kun la tombo de Absalon kaj kun la ĉerko de Holberg; ni pririgardis la malnovajn surskribojn de la mona˛oj kaj trans-
 
-te vizitata loko, la plej bona gastejo sur la tuta vojo, kaj plej ĉarma regiono, kiel vi ĉiuj devas konfesi, ĝi estas ankoraŭ nun. Brava mastrino tie regis, sinjorino Plambek, ĉio en la domo brilis kaj fulmis de pureco. Sur la muro pendis sub vitro kaj en kadro letero de Baggesen al ŝi, ĝi certe meritis, ke oni ĝin rigardu. Por mi ĝi estis granda rimarkindaĵo. Poste ni iris al Soro kaj trovis tie Emilon. Vi povas kredi, ke li tre ĝojis, kiam li vidis nin, kaj por ni estis ne malpli granda ĝojo vidi lin; li estis tiel bona kaj atentema! Kun li ni pririgardis la preĝejon kun la tombo de Absalon kaj kun la ĉerko de Holberg; ni pririgardis la malnovajn surskribojn de la mona˛oj kaj trans-
-
-ŝipiĝis trans la lagon al ”Parnaso”. Tio estis la plej bela vespero, kiun mi memoras. Mi estis tute konvinkita, ke se oni ie en la mondo povas verki poeziaĵon, tio devas esti en Soro, en tiu paco, en tiu belegeco de la naturo. Poste ni iris malsupren laŭ la tiel nomata vojo de la filozofoj, la bela soleca vojo laŭlonge 129
-
-FABELOJ 4
+ŝipiĝis trans la lagon al ”Parnaso”. Tio estis la plej bela vespero, kiun mi memoras. Mi estis tute konvinkita, ke se oni ie en la mondo povas verki poeziaĵon, tio devas esti en Soro, en tiu paco, en tiu belegeco de la naturo. Poste ni iris malsupren laŭ la tiel nomata vojo de la filozofoj, la bela soleca vojo laŭlonge
 
 
 de la marbordo ĝis la Kankrejo ĉe la granda landvojo. Emilo restis kaj manĝis kun ni, miaj gepatroj trovis, ke li fariĝis tre saĝa kaj aspektas tre bone. Li promesis al ni, ke post kvin tagoj li estos ĉe sia familio en Kopenhago kaj kune kun ni; tio estis ja la festo de Pentekosto. La horoj en Soro kaj en la Kankrejo apartenas al la plej belaj en mia vivo.
@@ -2596,23 +2024,16 @@ La sekvantan matenon ni forveturis tre frue, ĉar ni havis
 
 ĝis Roskilde longan vojon kaj devis alveni tie sufiĉe frue, por povi ankoraŭ pririgardi la preĝejon. Krom tio la patro intencis viziti vespere malnovan lernejan kolegon. Tio ankaŭ estis farita. La nokton ni pasigis en Roskilde, kaj en la sekvanta tago, sed ne pli frue ol tagmeze, ĉar tio estis plej mizera, plej multe elveturita vojo, kiun ni devis traveturi, ni alvenis en Kopenhago. Proksimume tri tagojn ni uzis por veni de Korsĝr al
 
-Kopenhago; nun vi povas traflugi la saman vojon en tri ho-
-
-roj. La perloj ne fariĝis pli valoraj, tio ne estis ebla, sed ilia laĉo fariĝis nova kaj admirinda. Mi restis kun miaj gepatroj en Kopenhago tri semajnojn; kun Emilo ni estis kune dum tutaj ok tagoj, kaj kiam ni poste revojaĝis al Funen, li nin akompanis ankoraŭ de Kopenhago ĝis Korsĝr. Tie ni fianĉiĝis, antaŭ ol ni disiĝis. Tial vi povas bone kompreni, ke mi ankaŭ nomas la vojon de Kopenhago ĝis Korsĝr peco da perlovico.
+Kopenhago; nun vi povas traflugi la saman vojon en tri horoj. La perloj ne fariĝis pli valoraj, tio ne estis ebla, sed ilia laĉo fariĝis nova kaj admirinda. Mi restis kun miaj gepatroj en Kopenhago tri semajnojn; kun Emilo ni estis kune dum tutaj ok tagoj, kaj kiam ni poste revojaĝis al Funen, li nin akompanis ankoraŭ de Kopenhago ĝis Korsĝr. Tie ni fianĉiĝis, antaŭ ol ni disiĝis. Tial vi povas bone kompreni, ke mi ankaŭ nomas la vojon de Kopenhago ĝis Korsĝr peco da perlovico.
 
 Poste, kiam Emilo ricevis oficon de pastro en Assens, ni
 
-edziĝis; ni ofte parolis pri la Kopenhaga vojaĝo kaj pri tio, kiel bele estus fari ĝin ankoraŭ unu fojon, sed baldaŭ naskiĝis via patrino, poste ŝi ricevis gefratojn, kaj tiam estis tiom multe por varti, flegi kaj priatenti; kaj kiam la patro estis promociita kaj fariĝis preposto, ĉio ĉi tio estis ĝojo kaj beno, sed en Kopenhagon ni ne venis. Neniam plu mi tien venis, kiel ajn ofte ni pri tio pensis kaj parolis, kaj nun mi fariĝis tro maljuna, mi 130
-
-FABELOJ 4
+edziĝis; ni ofte parolis pri la Kopenhaga vojaĝo kaj pri tio, kiel bele estus fari ĝin ankoraŭ unu fojon, sed baldaŭ naskiĝis via patrino, poste ŝi ricevis gefratojn, kaj tiam estis tiom multe por varti, flegi kaj priatenti; kaj kiam la patro estis promociita kaj fariĝis preposto, ĉio ĉi tio estis ĝojo kaj beno, sed en Kopenhagon ni ne venis. Neniam plu mi tien venis, kiel ajn ofte ni pri tio pensis kaj parolis, kaj nun mi fariĝis tro maljuna, mi
 
 
 ne havas plu la forton, por elteni fervojan vojaĝon; kaj tamen mi ĝojas pri la fervojoj. Estas vera beno, ke oni ilin havas.
 
 Nun vi povas des pli rapide veni al mi! Nun Odense ne estas ja multe pli malproksima de Kopenhago, ol en mia juneco ĝi estis de Nyborg. Vi povas nun tiel same rapide flugi al Italujo, kiom ni devis uzi da tempo, por vojaĝi al Kopenhago! Jes, tio havas valoron! Kaj tamen mi restas hejme, mi lasas la aliajn vojaĝi, lasas ilin veni al mi! Vi tamen ne devas rideti, ke mi sidas tiel trankvile! Mi havas antaŭ mi alian, multe pli grandan vojaĝon ol via, multe pli rapidan ol la vojaĝoj per fervojo: kiam Dio volos, mi veturos supren al la avo, kaj kiam vi estos plenumintaj vian laboron kaj sufiĉe ĝojintaj en ĉi tiu benita mondo, tiam — mi scias — vi ankaŭ venos al ni supren, kaj tiam ni tie supre parolos pri la tagoj de nia surtera vivo. Sed eĉ tie, tiel same kiel nun — vi povas tion kredi al mi, infanoj — mi diros: ”La vojo de Kopenhago ĝis Korsĝr estas vere peco da perlovico.”
-
-
-FABELOJ 4
 
 
 Plumo kaj inkujo
@@ -2631,9 +2052,7 @@ el mi sufiĉas por duono da paĝo da papero, kaj kio ne povas stari sur ĝi! Mi 
 
 naturon; ĝi tamen vivas en mi. El mi eliris kaj ĉiam ankoraŭ eliras tiu anaro da ŝvebantaj ĉarmaj knabinoj, maltimaj kavaliroj sur spiregantaj ĉevaloj, gajaj kaj sanaj naturuloj! Jes, mi tion mem ne scias kaj mi nenion pensas ĉe tio.”
 
-”En tio vi estas tute prava!” diris la plumo; ”vi tute ne pensas, ĉar se vi pensus, tiam vi komprenus, ke vi nur donas flui-daĵon! Vi donas malsekecon, por ke mi povu eldiri kaj videbligi sur papero tion, kion mi havas en mi; tion mi skribas. La 132
-
-FABELOJ 4
+”En tio vi estas tute prava!” diris la plumo; ”vi tute ne pensas, ĉar se vi pensus, tiam vi komprenus, ke vi nur donas flui-daĵon! Vi donas malsekecon, por ke mi povu eldiri kaj videbligi sur papero tion, kion mi havas en mi; tion mi skribas. La
 
 
 skribanto estas la plumo; pri tio neniu homo dubas; kaj koncerne la poezian arton la plejmulto da homoj komprenas
@@ -2648,16 +2067,9 @@ eluzita. ĉu vi eble imagas al vi, ke vi estas la poeto? Vi estas nur la servist
 
 ”Malsaĝa inka tineto!” diris la plumo.
 
-Malfrue vespere la poeto venis hejmen, li venis el koncer-
+Malfrue vespere la poeto venis hejmen, li venis el koncertejo, kie li aŭdis bonegan violoniston kaj estis tute plenigita kaj emociita de lia nekomparebla ludado. Mirigan mondon
 
-tejo, kie li aŭdis bonegan violoniston kaj estis tute plenigita kaj emociita de lia nekomparebla ludado. Mirigan mondon
-
-da tonoj li elsorĉis el sia instrumento: jen ĝi sonis kiel sono-raj akvogutoj, perlo post perlo, jen kiel plena ˛oro da pepantaj birdoj, jen ventego bruis tra pinarbaro. ŝajnis al li, ke li aŭdis ploradon de sia propra koro, sed per melodioj, kiuj sonas el belega voĉo de virino. Estis tiel, kvazaŭ sonis ne nur la kordoj de la violono, sed ankaŭ la ponteto, eĉ la ŝraŭboj kaj la resontabulo; estis eksterordinare! i estis malfacila kaj tamen aspektis kiel infana ludo, kvazaŭ la arĉo nur simple kuradis tien kaj reen super la kordoj. Oni povus pensi, ke ĉiu devas povi fari tiel same. La violono sonis per si mem, la arĉo ludis per si mem, ili ambaŭ faris la tutaĵon, oni forgesis ĉe tio pri la majstro, kiu ilin gvidis, kiu enspiris al ili vivon kaj ani-133
-
-FABELOJ 4
-
-
-mon. Oni forgesis pri la majstro, sed pri li pensis la poeto, pri li li rakontis, kaj li skribis siajn pensojn tiamaniere:
+da tonoj li elsorĉis el sia instrumento: jen ĝi sonis kiel sono-raj akvogutoj, perlo post perlo, jen kiel plena ˛oro da pepantaj birdoj, jen ventego bruis tra pinarbaro. ŝajnis al li, ke li aŭdis ploradon de sia propra koro, sed per melodioj, kiuj sonas el belega voĉo de virino. Estis tiel, kvazaŭ sonis ne nur la kordoj de la violono, sed ankaŭ la ponteto, eĉ la ŝraŭboj kaj la resontabulo; estis eksterordinare! i estis malfacila kaj tamen aspektis kiel infana ludo, kvazaŭ la arĉo nur simple kuradis tien kaj reen super la kordoj. Oni povus pensi, ke ĉiu devas povi fari tiel same. La violono sonis per si mem, la arĉo ludis per si mem, ili ambaŭ faris la tutaĵon, oni forgesis ĉe tio pri la majstro, kiu ilin gvidis, kiu enspiris al ili vivon kaj animon. Oni forgesis pri la majstro, sed pri li pensis la poeto, pri li li rakontis, kaj li skribis siajn pensojn tiamaniere:
 
 ”Kiel malsaĝa tio estas, se la arĉo kaj la violono volas esti fieraj pri siaj faroj! Kaj tamen ni homoj ja agas tiel tre ofte, la poeto, la artisto, la eltrovinto kaj vojebeniganto en la scienco, la militestro. Ni fanfaronas, ni estas fieraj pri niaj faroj, — kaj tamen ni ĉiuj estas ja nur la instrumentoj, per kiuj Dio ludas; al Li sola apartenas la gloro! Ni havas nenion, pri kio ni povus esti fieraj.”
 
@@ -2680,9 +2092,6 @@ poeto ne dormis; liaj pensoj fluis kiel la tonoj de la violono, ruliĝante kiel 
 Al li sola apartenas la gloro!
 
 
-FABELOJ 4
-
-
 Infano en la tombo
 
 Estis funebro en la domo, estis funebro en la koroj: la plej juna infano, kvarjara knabo, la sola filo, la ĝojo de la gepatroj kaj ilia espero por la estonteco, mortis. Estas vero, ke ili havis ankoraŭ du pliaĝajn filinojn, el kiuj la maljuna ĝuste en tiu jaro estis konfirmota, kaj ambaŭ estis ĉarmaj, bonaj knabinoj, sed la infano perdita estas ĉiam la plej kara, kaj ĉi tiu estis la plej juna kaj filo. i estis peza bato de la sorto. La fratinoj malĝojis, kiel malĝojas junaj koroj, tuŝitaj precipe de la doloro de la gepatroj: la patro estis malgaja, sed plej profunde premita estis la koro de la patrino. Tage kaj nokte ŝi estis sur la piedoj, ŝi flegis la malsanan infanon, levadis ĝin kaj portadis sur la manoj. i estis parto de ŝi mem, tion ŝi sentis kaj konsciis. ŝi tute ne povis prezenti al si, ke la infano mortis, ke ĝi estos metita en ĉerkon, ke la tombo ĝin baldaŭ ĉirkaŭos. ŝi estis konvinkita, ke Dio ne povas forpreni de ŝi la infanon; kaj, kiam tio tamen fariĝis kaj estis jam afero senduba, ŝi diris en sia dolora suferado:
@@ -2691,9 +2100,7 @@ Estis funebro en la domo, estis funebro en la koroj: la plej juna infano, kvarja
 
 ŝi perdis sian fidon je Dio, kaj nun atakis ŝin mallumaj
 
-pensoj, pensoj pri la morto, timo je la porĉiama morto, timo, ke homo fariĝas polvo en polvo kaj per tio ĉio finiĝas. ĉe tiaj 135
-
-FABELOJ 4
+pensoj, pensoj pri la morto, timo je la porĉiama morto, timo, ke homo fariĝas polvo en polvo kaj per tio ĉio finiĝas. ĉe tiaj
 
 
 pensoj ŝi havis nenion, al kio ŝi povus alkroĉiĝi, kaj ŝi falis en senfundan abismon de malespero.
@@ -2716,13 +2123,7 @@ Tiel pasis la tago de enterigo, kaj multaj aliaj tagoj sekvis kun la sama unufor
 
 okuloj ŝin rigardadis en la domo la funebrantoj; ŝi ne aŭdis iliajn vortojn de konsolo; kaj cetere kion ili povus diri? Ili ja mem estis tro malgajaj.
 
-La dormon ŝi kvazaŭ tute plu ne konis, kaj tamen la dor-
-
-
-FABELOJ 4
-
-
-mo povus ja esti ŝia plej bona amiko, refortigi ŝian korpon kaj redoni trankvilecon al ŝia animo. Per admonoj oni tamen
+La dormon ŝi kvazaŭ tute plu ne konis, kaj tamen la dormo povus ja esti ŝia plej bona amiko, refortigi ŝian korpon kaj redoni trankvilecon al ŝia animo. Per admonoj oni tamen
 
 atingis almenaŭ tion, ke ŝi kuŝiĝis en la liton, kaj ŝi kuŝis silente, kiel dormantino.
 
@@ -2730,9 +2131,7 @@ En unu nokto ŝia edzo aŭskultis ŝian spiradon kaj kredis
 
 kun certeco, ke ŝi trovis trankvilecon kaj refreŝiĝon; tial li kunmetis siajn manojn, preĝis kaj baldaŭ ekdormis sane kaj forte. Tial li ne rimarkis, ke ŝi leviĝis, surmetis siajn vestojn kaj silente eliris el la domo, por iri tien, kie ŝiaj pensoj restis tage kaj nokte, al la tombo, kiu kaŝis en si ŝian infanon. ŝi iris tra la ĝardeno, kiu ĉirkaŭis la domon, kaj eliris sur la kampon, kie piedvojeto ĉirkaŭe de la urbo kondukis al la tombejo; neniu ŝin vidis; kaj ankaŭ ŝi vidis neniun.
 
-Estis bela stelluma nokto, la aero ankoraŭ varma kaj mil-
-
-da, ĉar tiam estis ankoraŭ septembro. ŝi eniris en la tombejon kaj direktis sin al la malgranda tombo, kiu vidiĝis kiel unu granda kaj bonodora bukedo. ŝi sidiĝis kaj klinis sian kapon al la tombo, kvazaŭ tra la dika tavolo da tero ŝi povus vidi sian knabeton, kies ĉarman rideton ŝi ankoraŭ tiel bone memoris.
+Estis bela stelluma nokto, la aero ankoraŭ varma kaj milda, ĉar tiam estis ankoraŭ septembro. ŝi eniris en la tombejon kaj direktis sin al la malgranda tombo, kiu vidiĝis kiel unu granda kaj bonodora bukedo. ŝi sidiĝis kaj klinis sian kapon al la tombo, kvazaŭ tra la dika tavolo da tero ŝi povus vidi sian knabeton, kies ĉarman rideton ŝi ankoraŭ tiel bone memoris.
 
 La bonkora esprimo de liaj okuloj, eĉ ankoraŭ sur la lito de malsanulo, estis ja neniam forgesebla. Kiel multeparola estis lia rigardo, kiam ŝi sin klinadis super lin kaj prenadis lian delikatan maneton, kiun li mem ne povis levi! Kiel ŝi antaŭe sidis apud lia lito, tiel ŝi sidis nun ĉe lia tombo; sed ĉi tie la larmoj povis libere flui; ili faladis sur la tombon.
 
@@ -2740,12 +2139,7 @@ La bonkora esprimo de liaj okuloj, eĉ ankoraŭ sur la lito de malsanulo, estis 
 
 ŝi ekrigardis supren, kaj apud ŝi staris homo, kovrita de
 
-granda funebra mantelo, kies kapuĉo estis tirita antaŭen su-137
-
-FABELOJ 4
-
-
-per lia kapo. Sed sub la kapuĉo ŝi vidis lian vizaĝon, ĝi estis severa, sed tamen konfidiga, kaj liaj okuloj brilis, kvazaŭ li havus ankoraŭ la aĝon de junulo.
+granda funebra mantelo, kies kapuĉo estis tirita antaŭen super lia kapo. Sed sub la kapuĉo ŝi vidis lian vizaĝon, ĝi estis severa, sed tamen konfidiga, kaj liaj okuloj brilis, kvazaŭ li havus ankoraŭ la aĝon de junulo.
 
 ”Mi volas al mia infano!” ŝi ripetis, kaj en ŝiaj vortoj estis petego de malespero.
 
@@ -2753,13 +2147,9 @@ per lia kapo. Sed sub la kapuĉo ŝi vidis lian vizaĝon, ĝi estis severa, sed 
 
 la Morto!”
 
-ŝi balancis jese la kapon. Tiam subite fariĝis, kvazaŭ ĉiuj steloj super ŝi lumus per la lumo de plenluno; ŝi vidis la be-legan diverskolorecon de la floroj sur la tombo, la tera kovro delikate kaj silente forŝoviĝis kiel flugetanta tuko, la patrino malleviĝis, kaj la figuro etendis ĉirkaŭ ŝi sian nigran man-telon. Fariĝis nokto, la nokto de la morto; ŝi malleviĝis pli profunden, ol kiom penetras la tombo-fosilo, la tombejo ku-
+ŝi balancis jese la kapon. Tiam subite fariĝis, kvazaŭ ĉiuj steloj super ŝi lumus per la lumo de plenluno; ŝi vidis la be-legan diverskolorecon de la floroj sur la tombo, la tera kovro delikate kaj silente forŝoviĝis kiel flugetanta tuko, la patrino malleviĝis, kaj la figuro etendis ĉirkaŭ ŝi sian nigran man-telon. Fariĝis nokto, la nokto de la morto; ŝi malleviĝis pli profunden, ol kiom penetras la tombo-fosilo, la tombejo kuŝis kiel tegmento super ŝia kapo.
 
-ŝis kiel tegmento super ŝia kapo.
-
-La basko de la mantelo ŝoviĝis flanken; ŝi staris en grande-ga halo; tre vasta kaj agrabla. ĉirkaŭe regis krepusko, sed an-taŭ ŝi staris ŝia infano, kiu tuj alpremiĝis al ŝia koro. i ridetis al ŝi kaj brilis per beleco pli granda ol iam antaŭe. ŝi ekkriis, sed la krio ne estis aŭdebla, ĉar tute proksime de ŝi kaj poste tre malproksime kaj denove tre proksime eksonis laŭ-
-
-ta mirinde ĉarma muziko. Neniam antaŭe tiel ravantaj tonoj tuŝis ŝian orelon; ili sonis transe de la noktenigra densa kurteno, kiu apartigis la halon de la granda lando de eterneco.
+La basko de la mantelo ŝoviĝis flanken; ŝi staris en grande-ga halo; tre vasta kaj agrabla. ĉirkaŭe regis krepusko, sed an-taŭ ŝi staris ŝia infano, kiu tuj alpremiĝis al ŝia koro. i ridetis al ŝi kaj brilis per beleco pli granda ol iam antaŭe. ŝi ekkriis, sed la krio ne estis aŭdebla, ĉar tute proksime de ŝi kaj poste tre malproksime kaj denove tre proksime eksonis laŭta mirinde ĉarma muziko. Neniam antaŭe tiel ravantaj tonoj tuŝis ŝian orelon; ili sonis transe de la noktenigra densa kurteno, kiu apartigis la halon de la granda lando de eterneco.
 
 ”Mia dolĉa, mia kara patrino!” diris ŝia infano.
 
@@ -2768,12 +2158,7 @@ i estis la konata amata voĉo; kaj kisoj sekvis post kisoj en senfina feliĉego.
 ”Tiel bele ne estas supre sur la tero! ĉu vi vidas, panjo, ĉu vi vidas ilin ĉiujn? ĉi tio estas feliĉego!”
 
 
-FABELOJ 4
-
-
-Sed la patrino vidis nenion, eĉ tie, kien la infano montris, nenion krom la nigra nokto; ŝi rigardis per teraj okuloj, ŝi ne vidis tiel, kiel vidis la infano, kiu estis venigita al Dio. ŝi aŭ-
-
-dis la sonojn, la tonojn, sed ne la vorton, kiun ŝi devis kredi.
+Sed la patrino vidis nenion, eĉ tie, kien la infano montris, nenion krom la nigra nokto; ŝi rigardis per teraj okuloj, ŝi ne vidis tiel, kiel vidis la infano, kiu estis venigita al Dio. ŝi aŭdis la sonojn, la tonojn, sed ne la vorton, kiun ŝi devis kredi.
 
 ”Nun mi povas flugi, panjo!” diris la infano, ”flugi kun ĉiuj aliaj gajaj infanoj rekte al la bona Dio. Mi tre dezirus tion fari, sed se vi ploras, kiel nun, mi ne povas foriĝi de vi, kaj mi tamen tiel dezirus! ĉu vi ne permesas? Vi ja baldaŭ venos al mi; kara panjo.”
 
@@ -2800,9 +2185,6 @@ atakis, ŝi ekrigardis antaŭen, kaj senĉese preterflugetadis figuroj, el kiuj 
 ”Panjo, nun sonas la sonoriloj de la ĉiela regno!” diris la infano. ”Panjo, nun leviĝas la suno!”
 
 
-FABELOJ 4
-
-
 Kaj torento da blindiga lumo verŝiĝis sur ŝin; la infano malaperis, kaj ŝi sentis, ke ŝi portiĝas supren.
 
 Fariĝis malvarme ĉirkaŭ ŝi, ŝi levis sian kapon kaj vidis, ke ŝi kuŝas sur la tombejo, super la tombo de sia infano. Sed Dio fariĝis por ŝi en la sonĝo apogo por ŝia piedo, lumo por ŝia prudento; ŝi fleksis siajn genuojn kaj preĝis:
@@ -2822,9 +2204,6 @@ Kaj ŝi kisis lin kaj kisis siajn infanojn.
 ”Mi ricevis ĝin de Dio, per mia infano en la tombo.”
 
 
-FABELOJ 4
-
-
 Korta koko kaj ventkoko
 
 Estis iam du kokoj, unu sur la sterkejo kaj la dua sur la tegmento, ambaŭ fieraj. Sed kiu el ili estis pli farpova? Diru al ni vian opinion, — ni tamen restos ĉe nia propra opinio.
@@ -2837,11 +2216,7 @@ aliaj vivantaj estaĵoj. La kokinoj, la anasoj kaj la tuta loĝantaro de la najb
 
 ĝi aperas, oni aŭdas, kio estas vera trumpetisto! Se ĝi venus ĉi tien, se ĝi formanĝus min kune kun la folioj kaj trunketo, se mi transirus en ĝian korpon, ho, tio estus feliĉa morto!”
 
-pensis la kukumo. ĉirkaŭ la nokto leviĝis terura ventego; la kokinoj, kokidoj kaj eĉ la koko enrampis ien, por trovi rifu-
-
-ĝon. Kun granda bruo falis la tabulo inter la kortoj; la tego-loj falis malsupren, sed la ventkoko sidis firme, ĝi eĉ ne tur-141
-
-FABELOJ 4
+pensis la kukumo. ĉirkaŭ la nokto leviĝis terura ventego; la kokinoj, kokidoj kaj eĉ la koko enrampis ien, por trovi rifuĝon. Kun granda bruo falis la tabulo inter la kortoj; la tego-loj falis malsupren, sed la ventkoko sidis firme, ĝi eĉ ne tur-141
 
 
 nis sin, ĝi tion ne povis fari, kaj tamen ĝi estis juna, freôe fandita, sed singardema kaj solida. Jam depost sia naskiĝo ĝi tenis sin serioze kaj pripenseme, ĝi per nenio similis al la flirtantaj birdoj sub la ĉielo, al la paseroj kaj hirundoj, ĝi males-timis ilin, ”tiujn pepantajn birdojn, malgrandajn per sia amplekso kaj malgravajn.” La kolomboj, ĝi diris, estas eĉ grandaj, blankaj kaj briletantaj kiel perlamoto, en kelkaj rilatoj aspektas kiel speco de ventkoko, sed ili estas dikaj kaj malsaĝaj, ĉiuj iliaj pensoj estas direktitaj nur al plenigado de sia korpo, en la interrilatoj ili estas tute enuigaj. La migrantaj birdoj faris al ĝi sian viziton, rakontis pri fremdaj landoj, pri aeraj karavanoj, rakontis terurajn historiojn pri rabobirdoj; la unuan fojon tio estis nova kaj interesa, sed poste la ventkoko rimarkis ke ili sin ripetas, ke ili rakontas ĉiam tion saman, kaj tio estas enuiga. Ili estis enuigaj kaj ĉio estis enuiga. Neniu taŭgis por kompanio, ĉiu estis sengusta kaj triviala.
@@ -2854,15 +2229,11 @@ scius. Sed ĝi havis okulojn nur por la korta koko, kaj ĉi tiu nun estis sur la
 
 La tabulbarilo estis faligita, sed la fulmotondro estis finita.
 
-”Kion vi diros pri tiu stranga kokokrio?” demandis la kor-
-
-ta koko siajn kokinojn kaj kokidojn. ”Estis en ĝi io kruda, mankis delikateco.”
+”Kion vi diros pri tiu stranga kokokrio?” demandis la korta koko siajn kokinojn kaj kokidojn. ”Estis en ĝi io kruda, mankis delikateco.”
 
 La kokinoj kaj kokidoj kuris sur la sterkamason, ilin sekvis per kavaliraj paôoj la koko.
 
-”ardena kreskaĵo!” diris la koko al la kukumo, kaj en ĉi tiu 142
-
-FABELOJ 4
+”ardena kreskaĵo!” diris la koko al la kukumo, kaj en ĉi tiu
 
 
 sola vorto la kukumo rimarkis lian profundan kaj vastan kle-recon kaj pro tio tute forgesis, ke li ĝin hakas kaj formanĝas.
@@ -2891,12 +2262,7 @@ volus, mi povus meti ventovon, sed la mondo ne meritas ventovon. ĉie nur simpla
 
 Kaj tial la ventkoko derompiĝis, sed li ne mortigis la kortan kokon, ”kvankam tia estis lia intenco!” diris la kokinoj. Kaj kion diras la moralinstruo?
 
-”Estas pli bone kokokrii, ol esti supersatigita kaj derompi-
-
-ĝi.”
-
-
-FABELOJ 4
+”Estas pli bone kokokrii, ol esti supersatigita kaj derompiĝi.”
 
 
 ”Bela”
@@ -2914,9 +2280,6 @@ imagi al si, ke li akceptas gastojn, tiom multe da homoj staris apud li sur la s
 Li parolis, li rakontis, kaj ĉiuj aŭskultis liajn vortojn kun
 
 ĝojo, eĉ kun religia atento, precipe unu nejuna vidvino de oficisto. Por ĉio, kion diris sinjoro Alfredo, ŝi estis kvazaŭ ne-skribuzita griza papero, kiu ĉion diritan tuj ensorbis kaj petis pri pluaĵo, senfine impresebla, nekredeble senscia, virina Caspar Haŭser.
-
-
-FABELOJ 4
 
 
 ”Romon mi volus vidi!” ŝi diris, ”ĝi certe estas ĉarma urbo kun ĉiuj fremduloj, kiuj tien venas. Priskribu al ni iom Romon! Kiel ĝi aspektas, kiam oni eniras en ĝin tra la pordego?”
@@ -2941,9 +2304,7 @@ starigita pli ĝuste: ”Ne, li ne estas el granda familio!”
 
 Certe ŝi povus demandi kaj paroli pli saĝe, sed se ŝi tiel de-mandus kaj parolus, ĉu tiam la filino apogus sin al ŝia ŝultro kaj rigardus ŝin kun tiu preskaŭ kortuŝanta rideto?
 
-Kaj sinjoro Alfredo parolis, parolis pri la kolorriĉeco de Italujo, pri la bluetaj montoj, pri la blua Mediteranea maro, pri 145
-
-FABELOJ 4
+Kaj sinjoro Alfredo parolis, parolis pri la kolorriĉeco de Italujo, pri la bluetaj montoj, pri la blua Mediteranea maro, pri
 
 
 la blua sudo, kiu prezentas tian belecon, kian oni en la nordo trovas en pli alta grado nur en la bluaj okuloj de la norda virino. Tio estis dirita kun aludo, sed ĝuste ŝi, kiu devis tion kompreni, ne montris per io, ke ŝi tion komprenis, kaj tio an-kaŭ estis ja bela.
@@ -2962,12 +2323,7 @@ La domo de la vidvino el ĉiuj domoj fariĝis la sola, kiun la skulptisto, sinjo
 
 nomoj kuntiriĝis en la formon Kala. ŝi estas bela, sed iom dormema, diris tiu aŭ alia; matene ŝi volonte restadis pli longe en la lito.
 
-”Al tio ŝi alkutimiĝis detempe de sia infaneco!” diris la pa-146
-
-FABELOJ 4
-
-
-trino; ”ŝi ĉiam estis juna Venero, kaj tiaj laciĝas ja tiel facile.
+”Al tio ŝi alkutimiĝis detempe de sia infaneco!” diris la patrino; ”ŝi ĉiam estis juna Venero, kaj tiaj laciĝas ja tiel facile.
 
 ŝi kuŝas iom longe, sed de tio ŝi havas siajn klarajn okulojn.”
 
@@ -2977,9 +2333,7 @@ Estis plezuro aŭdi kiel sinjoro Alfredo rakontas. Li rakontis pri Neapolo, pri 
 
 ”La ĉielo nin gardu!” ŝi ekkriis, ”tio estas ja fajrokraĉa monto! ĉu neniu povas suferi de tio?”
 
-”Tutaj urboj jam pereis!” li respondis, ”Pompejo kaj Her-
-
-kulano!”
+”Tutaj urboj jam pereis!” li respondis, ”Pompejo kaj Herkulano!”
 
 ”Ha, la malfeliĉaj homoj! Kaj ĉion ĉi tion vi mem vidis?”
 
@@ -2989,13 +2343,9 @@ Li prenis skizon, kiun li estis farinta per krajono, kaj la patrino, kiu sidis a
 
 ”Vi vidis, kiel ĝi kraĉis blankan fajron!”
 
-Por mallonga momento malaperis la estimo de sinjoro Alf-
+Por mallonga momento malaperis la estimo de sinjoro Alfredo koncerne la patrinon, sed ĉe la brilo, kiun ĉirkaŭ si disvastigis Kala, li baldaŭ komprenis, ke ŝia patrino ne komprenas pentraĵojn, tio estis ĉio, sed ŝi havis la plej bonan, la plej belan, ŝi havis Kalan.
 
-redo koncerne la patrinon, sed ĉe la brilo, kiun ĉirkaŭ si disvastigis Kala, li baldaŭ komprenis, ke ŝia patrino ne komprenas pentraĵojn, tio estis ĉio, sed ŝi havis la plej bonan, la plej belan, ŝi havis Kalan.
-
-Kaj Alfredo fianĉiĝis kun Kala, tio fariĝis tute nature, kaj pri 147
-
-FABELOJ 4
+Kaj Alfredo fianĉiĝis kun Kala, tio fariĝis tute nature, kaj pri
 
 
 la fianĉiĝo estis anoncite en la urbaj gazetoj. La patrino men-dis por si tridek ekzemplerojn, por eltranĉi la koncernan pecon kaj en leteroj sendi al amikoj kaj konatoj. La gefianĉoj estis feliĉaj, kaj la bopatrino ankaŭ, ŝi kvazaŭ samfamiliiĝis kun Thorwaldsen, ŝi diris:
@@ -3021,9 +2371,6 @@ Kala sidis silente, dum liaj elparolitaj pensoj forte ŝin ekscitis, sed la bopa
 ”Estas malfacile sekvi viajn pensojn, sed iom post iom mi
 
 
-FABELOJ 4
-
-
 tamen ilin klarigas al mi, kaj se ili en mia kapo eĉ zumas en granda konfuzo, mi ilin tamen tenas firme.”
 
 Kaj lin tenis firme la beleco, ĝi lin plenigis, ekposedis lin kaj regis super li. La beleco lumis el la tuta figuro de Kala, lumis el ŝia rigardo, el la anguloj de ŝia buŝo, eĉ el ĉiuj movoj de ŝiaj fingroj. Tion Alfredo eldiris, kaj li, skulptisto, estis kompetenta pri tio, li parolis nur pri ŝi, pensis nur pri ŝi, ili ambaŭ kun-fandiĝis, kaj tial ankaŭ ŝi parolis multe, ĉar li parolis tre multe.
@@ -3038,20 +2385,11 @@ La sekvantan tagon la juna paro forveturis Kopenhagon,
 
 por tie enloĝiĝi; la bopatrino ilin akompanis, por, kiel ŝi diris, preni sur sin la maldelikataĵon, tio estas por konduki la mastrumaĵon. Kala estis sidonta sub vitra kloŝo! ĉio estis nova, brilpura kaj bela! Tiel ili sidis ĉiuj tri kune, kaj Alfredo sidis, kiel diras la proverbo, kiel episkopo en anserejo.
 
-La sorĉo de la formo lin senprudentigis, li rigardis la ŝelon kaj ne la kernon, kaj tio estas malfeliĉo, granda malfeliĉo en la edzeco. Kiam la ŝelo aerdifektiĝas kaj la ekstera falsbrilaĵo desolviĝas, tiam oni pentas pri sia nesingarda elekto. En granda societo estas tre malagrable rimarki, ke la vesto malordiĝis kaj prezentas malkonvenaĵon, sed ankoraŭ multe pli malag-149
+La sorĉo de la formo lin senprudentigis, li rigardis la ŝelon kaj ne la kernon, kaj tio estas malfeliĉo, granda malfeliĉo en la edzeco. Kiam la ŝelo aerdifektiĝas kaj la ekstera falsbrilaĵo desolviĝas, tiam oni pentas pri sia nesingarda elekto. En granda societo estas tre malagrable rimarki, ke la vesto malordiĝis kaj prezentas malkonvenaĵon, sed ankoraŭ multe pli malagrable estas rimarki en granda societo, ke la edzino kaj bopatrino per malinteligenta babilado elvokas mokadon de aliaj, kaj ne povi havi fidon al si mem, ke oni kovros ĉiufoje la malsaĝaĵon per sprita enmiksiĝo.
 
-FABELOJ 4
+Ofte la junaj geedzoj sidis mano en mano, kaj li parolis, kaj ŝi de tempo al tempo ankaŭ enĵetis vorteton, ĉiam la saman melodion, ĉiam la samajn du-tri tonojn. Spirita venteto leviĝadis nur tiam, kiam aperis Sofio, unu el ŝiaj amikinoj.
 
-
-rable estas rimarki en granda societo, ke la edzino kaj bopatrino per malinteligenta babilado elvokas mokadon de aliaj, kaj ne povi havi fidon al si mem, ke oni kovros ĉiufoje la malsaĝaĵon per sprita enmiksiĝo.
-
-Ofte la junaj geedzoj sidis mano en mano, kaj li parolis, kaj ŝi de tempo al tempo ankaŭ enĵetis vorteton, ĉiam la saman melodion, ĉiam la samajn du-tri tonojn. Spirita venteto levi-
-
-ĝadis nur tiam, kiam aperis Sofio, unu el ŝiaj amikinoj.
-
-Sofio estis tute ne bela, tamen sen okulincitantaj malbon-
-
-punktoj. Estas vero, ke laŭ la aserto de Kala ŝi estis iom kurba, sed certe tio ne estis pli falanta en la okulojn, ol kiom povas rimarki nur intimaj amikinoj. ŝi estis tre prudenta knabino, tamen absolute ne venis al ŝi en la kapon, ke ŝi povas ĉi tie fariĝi danĝera. ŝi alportadis refreŝigan aermoviĝon sub la vitran kloŝon, kaj freŝa aero estis necesa, tion ili ĉiuj sentis.
+Sofio estis tute ne bela, tamen sen okulincitantaj malbonpunktoj. Estas vero, ke laŭ la aserto de Kala ŝi estis iom kurba, sed certe tio ne estis pli falanta en la okulojn, ol kiom povas rimarki nur intimaj amikinoj. ŝi estis tre prudenta knabino, tamen absolute ne venis al ŝi en la kapon, ke ŝi povas ĉi tie fariĝi danĝera. ŝi alportadis refreŝigan aermoviĝon sub la vitran kloŝon, kaj freŝa aero estis necesa, tion ili ĉiuj sentis.
 
 Oni devis iom aerumi ĉe ili, kaj tial ili entreprenis vojaĝon, por aerumiĝi. La bopatrino kaj la juna paro ekvojaĝis Italujon.
 
@@ -3062,85 +2400,55 @@ propraj muroj!”, diris la patrino kaj la filino, kiam ili en la sekvanta jaro 
 ”Vere ne estas plezuro vojaĝi!”, diris la bopatrino; ”en efektiveco tio estas enuiga! Pardonu, ke mi tion diras. Mi enuis, malgraŭ ke mi havis apud mi miajn infanojn; kaj kiel multekosta, kiel terure multekosta estas la vojaĝado! ĉiuj tiuj gale-rioj, kiujn oni devas viziti, ĉiuj rimarkindaĵoj, je kiuj oni devas plenforme fari ĉasadon! Alie oni ja ne povus doni infor-mojn, kiam oni revenas hejmen kaj estas demandata! Kaj fine oni devas ankoraŭ aŭdi, ke ĝuste tio estas la plej bela, kion oni forgesis rigardi. Post pli longa tempo tiuj eternaj Madonoj sufiĉege tedis al mi; oni fariĝis mem kvazaŭ Madono.”
 
 
-FABELOJ 4
-
-
 ”Kaj la manĝaĵo, kiun oni al vi donas!” aldonis Kala.
 
-”Oni ne ricevas eĉ bonordan viandan supon!”, diris la pa-
-
-trino. ”Ilia kuirarto ne staras tre alte!”
+”Oni ne ricevas eĉ bonordan viandan supon!”, diris la patrino. ”Ilia kuirarto ne staras tre alte!”
 
 Kala estis lacigita de la vojaĝo kaj restis, kio estis la plej malbona, daŭre suferetanta. Tiam Sofio enloĝiĝis en ilia do-mo kaj alportadis utilon.
 
-Oni devas konfesi, opiniis la patrino, ke Sofio estas kom-
-
-petenta kiel en la mastrumado, tiel ankaŭ en la artoj. Krom tio ŝi estis tre estiminda, fidela kaj fidinda. Tion si pruvis, kiam Kala malsaniĝis kaj ĉiam pli perdis la sanon.
+Oni devas konfesi, opiniis la patrino, ke Sofio estas kompetenta kiel en la mastrumado, tiel ankaŭ en la artoj. Krom tio ŝi estis tre estiminda, fidela kaj fidinda. Tion si pruvis, kiam Kala malsaniĝis kaj ĉiam pli perdis la sanon.
 
 Kie la ŝelo estas ĉio, tie la ŝelo devas teni sin forte, alie ĉio pereas. Kaj la ŝelo pereis, — Kala mortis.
 
 ”ŝi estis bela!~, diris la patrino, ”ŝi vere estis io tute alia ol la antikvaĵoj, kiuj estas tiel palaj kaj senkoloriĝintaj! Kala estis freŝa kaj ne tuŝita de la dento de la tempo, kaj tia devas esti belulino!”
 
-Alfredo ploris kaj la patrino ploris, kaj ambaŭ portis ni-
-
-grajn vestojn. Por la patrino la nigra koloro estis tre bone alaspekta, kaj ŝi plej longe vestis sin nigre, funebris plej longe kaj malĝojis ankoraŭ pri tio, ke Alfredo denove edziĝis kaj prenis Sofion, kiu tute ne havis belan eksteraĵon
+Alfredo ploris kaj la patrino ploris, kaj ambaŭ portis nigrajn vestojn. Por la patrino la nigra koloro estis tre bone alaspekta, kaj ŝi plej longe vestis sin nigre, funebris plej longe kaj malĝojis ankoraŭ pri tio, ke Alfredo denove edziĝis kaj prenis Sofion, kiu tute ne havis belan eksteraĵon
 
 ”Li amas ekstremojn!” diris la bopatrino, ”li iris de la plej bela al la plej malbela! Li povis forgesi sian unuan edzinon. La viroj ne havas konstantecon! mia edzo estis alia; li eĉ mortis antaŭ mi.”
 
-”Pigmaliono ricevis sian Galateon!”, diris Alfredo; ”jes, tiel estis dirite en la edziĝofesta kanto. Mi efektive enamiĝis je la bela statuo, kiu ricevis vivon en miaj brakoj. Sed la parencan animon, kiun sendas al ni la ĉielo, unu el Liaj anĝeloj, kiu povas senti kun ni, pensi kun ni, levi nin, kiam ni estas flek-151
-
-FABELOJ 4
-
-
-sitaj malsupren, — tiun mi nur nun trovis kaj akiris. Vi venis, Sofio, ne en beleco de formoj, ne en brilo de radioj, — sed ĉiam ankoraŭ pli bela, ol estas necese! La ĉefaĵo estas kaj restas ĉefaĵo! Vi venis kaj instruis al la skulptisto, ke lia verko estas nur argilo, nur polvo, nur el argilo farita ŝelo de tiu kerno, kiun ni devas serĉi. Malfeliĉa, malfeliĉa Kala! Nia surtera vivo estas kiel vojaĝa vivo. Supre, kie oni aliĝas al si en reciproka simpatio, ni estis unu por la alia eble duone fremdaj.”
+”Pigmaliono ricevis sian Galateon!”, diris Alfredo; ”jes, tiel estis dirite en la edziĝofesta kanto. Mi efektive enamiĝis je la bela statuo, kiu ricevis vivon en miaj brakoj. Sed la parencan animon, kiun sendas al ni la ĉielo, unu el Liaj anĝeloj, kiu povas senti kun ni, pensi kun ni, levi nin, kiam ni estas fleksitaj malsupren, — tiun mi nur nun trovis kaj akiris. Vi venis, Sofio, ne en beleco de formoj, ne en brilo de radioj, — sed ĉiam ankoraŭ pli bela, ol estas necese! La ĉefaĵo estas kaj restas ĉefaĵo! Vi venis kaj instruis al la skulptisto, ke lia verko estas nur argilo, nur polvo, nur el argilo farita ŝelo de tiu kerno, kiun ni devas serĉi. Malfeliĉa, malfeliĉa Kala! Nia surtera vivo estas kiel vojaĝa vivo. Supre, kie oni aliĝas al si en reciproka simpatio, ni estis unu por la alia eble duone fremdaj.”
 
 ”Tio ne estis amohava juĝo,” diris Sofio, ”tio ne estis kristana! Supre, kie oni ne svatiĝas, sed kie la animoj, kiel vi diras, aliĝas al si en reciproka simpatio, supre, kie ĉio bela disvolviĝas kaj altiĝas, ŝia animo eble eksonos per tiel plena forto, ke ĝi supersonos la mian, kaj vi — vi tiam denove, kiel en via unua amo, ekkrios la vortojn: bela, bela!”
-
-
-FABELOJ 4
 
 
 Historio el la dunoj
 
 i estas historio el la Jutlandaj dunoj, sed ĝi komenciĝas ne tie, ne, tre malproksime, en la sudo, en Hispanujo. La
 
-maro estas granda veturvojo inter la landoj. Transportu vin en via imago tien, Hispanujon! Tie estas varme, tie estas bele; tie disvolviĝas la fajroruĝaj granataj floraĵoj inter la mallumaj laŭraj arboj. De la montoj blovetas refreŝiga vento al la oranĝ-
-
-ĝardenoj kaj al la belegaj Maŭraj haloj kun la oraj kupoloj kaj pentritaj muroj. Tra la stratoj marŝas infanoj en procesio kun kandeloj kaj flirtantaj standardoj, kaj super ili alte kaj klare etendiĝas la ĉielo kun brilantaj steloj. Sonas kantoj kaj kastanjetoj, junuloj kaj knabinoj svingiĝas en danco sub la florantaj akacioj, dum la almozulo sidas sur la ĉirka^ŭakita marmora ŝtono, refreŝigas sin per sukplena akvomelono kaj forrevas sian vivon. La tutaĵo estas kiel bela revo; ho, se oni povus sin tute fordoni al ĝi! Sed tiel agis du junaj freŝe edzigitaj home-toj, kaj al ili ankaŭ estis riĉe donacitaj ĉiuj bonoj de la tero: sano, bona humoro, riĉeco kaj honoro.
+maro estas granda veturvojo inter la landoj. Transportu vin en via imago tien, Hispanujon! Tie estas varme, tie estas bele; tie disvolviĝas la fajroruĝaj granataj floraĵoj inter la mallumaj laŭraj arboj. De la montoj blovetas refreŝiga vento al la oranĝĝardenoj kaj al la belegaj Maŭraj haloj kun la oraj kupoloj kaj pentritaj muroj. Tra la stratoj marŝas infanoj en procesio kun kandeloj kaj flirtantaj standardoj, kaj super ili alte kaj klare etendiĝas la ĉielo kun brilantaj steloj. Sonas kantoj kaj kastanjetoj, junuloj kaj knabinoj svingiĝas en danco sub la florantaj akacioj, dum la almozulo sidas sur la ĉirka^ŭakita marmora ŝtono, refreŝigas sin per sukplena akvomelono kaj forrevas sian vivon. La tutaĵo estas kiel bela revo; ho, se oni povus sin tute fordoni al ĝi! Sed tiel agis du junaj freŝe edzigitaj home-toj, kaj al ili ankaŭ estis riĉe donacitaj ĉiuj bonoj de la tero: sano, bona humoro, riĉeco kaj honoro.
 
 ”Ni estas tiel feliĉaj, kiel iu nur povas esti!” ili diris kun plena kora konv. Sed ili povus leviĝi al ankoraŭ pli alta grado de feliĉo, tio fariĝus, se Dio donacus al ili filon, kiu si-milus al ili korpe kaj anime.
 
 La feliĉa infano estus salutita kun plej granda ĝojo, trovus plej dorloteman amon kaj vartadon, la tutan feliĉon, kiun povas havigi riĉeco kaj grandinflua parencaro.
 
 
-FABELOJ 4
-
-
 Kiel festo pasadis al ili la tagoj.
 
-”La vivo estas favorkora donaco de la amo, preskaŭ neima-
-
-geble granda!” diris la edzino, ”kaj ĉi tiu abundo de feliĉo ankoraŭ pligrandiĝas, kiel oni diras, en la alia vivo, kaj tiel plue en eterneco! Mi ne povas ampleksi tiun penson.”
+”La vivo estas favorkora donaco de la amo, preskaŭ neimageble granda!” diris la edzino, ”kaj ĉi tiu abundo de feliĉo ankoraŭ pligrandiĝas, kiel oni diras, en la alia vivo, kaj tiel plue en eterneco! Mi ne povas ampleksi tiun penson.”
 
 ”Kaj ĝi certe estas tromemfido de la homoj!” diris la edzo.
 
 ”En efektiveco tio estas terura fiereco, kredi, ke oni vivos eterne, ke oni fariĝos kiel Dio! Tio estis ja ankaŭ la vortoj de la serpento, kaj ĝi estis la spirito de la mensogo.”
 
-”Vi ne dubas ja pri transmorta vivo?” demandis la juna ed-
+”Vi ne dubas ja pri transmorta vivo?” demandis la juna edzino, kaj ŝi sentis, kvazaŭ la unuan fojon trairas ombro la su-nan regnon de ŝiaj pensoj.
 
-zino, kaj ŝi sentis, kvazaŭ la unuan fojon trairas ombro la su-nan regnon de ŝiaj pensoj.
-
-”La kredo tion promesas, la pastroj tion asertas!” respon-
-
-dis la juna viro; ”sed ĝuste en mia tuta feliĉo mi sentas kaj komprenas, ke postuli alian vivon post ĉi tiu, daŭrigatan feli-
+”La kredo tion promesas, la pastroj tion asertas!” respondis la juna viro; ”sed ĝuste en mia tuta feliĉo mi sentas kaj komprenas, ke postuli alian vivon post ĉi tiu, daŭrigatan feli-
 
 ĉon, estas fiereco, penso de aroganteco. ĉu jam en nia surtera ekzistado ne estas donite al ni tiom multe, ke ni povas kaj devas esti kontentaj?”
 
 ”Jes, al ni tio estas donita,” diris la juna edzino, ”sed al kiom multaj miloj da homoj ĉi tiu vivo fariĝis malfacila elprovado, kiom multe da homoj estas ĵetitaj en ĉi tiun mondon kvazaŭ nur por malriĉeco, malhonoro, malsano kaj malfeliĉo! Ne, se ne ekzistus alia vivo post ĉi tiu surtera, tiam ĉio ĉi tie estus disdividita tro malegale, tiam Dio ne estus la justulo.”
 
-”La almozulo tie malsupre sur la strato havas ĝojojn, kiuj por li estas tiel same grandaj, kiel la ĝojoj, kiujn havas la reĝo en sia riĉa palaco,” respondis la juna viro; ”kaj ĉu vi ne pensas, ke la ŝarĝbesto, kiu estas vipata, malsatas kaj morte la-ciĝas per trenado, havas konscion pri la malfacileco de la tagoj de sia vivo? i sekve kun egala rajto povus postuli alian 154
-
-FABELOJ 4
+”La almozulo tie malsupre sur la strato havas ĝojojn, kiuj por li estas tiel same grandaj, kiel la ĝojoj, kiujn havas la reĝo en sia riĉa palaco,” respondis la juna viro; ”kaj ĉu vi ne pensas, ke la ŝarĝbesto, kiu estas vipata, malsatas kaj morte la-ciĝas per trenado, havas konscion pri la malfacileco de la tagoj de sia vivo? i sekve kun egala rajto povus postuli alian
 
 
 vivon, nomi tion maljustaĵo, ke ĝi ne estas starigita en pli alta vico da estaĵoj.”
@@ -3161,16 +2469,12 @@ malaperis, ili estis tro feliĉaj.
 
 ĝojoj de la vivo. La juna viro estis sendita de sia reĝo kiel am-basadoro al la imperiestra kortego de Rusujo; tio estis honora posteno, por kiu lia deveno kaj liaj scioj donis al li la rajton.
 
-Li posedis grandan havon, ne malpli grandan alportis al li lia juna edzino, ĉar ŝi estis filino de unu el la plej riĉaj kaj eminentaj komercistoj. Unu el la plej grandaj kaj plej bonaj ŝipoj de ĉi tiu devis en tiu jaro ĝuste iri al Stokholmo kaj veturigi al Peterburgo la karajn infanojn, la filinon kaj la bofilon. En 155
-
-FABELOJ 4
+Li posedis grandan havon, ne malpli grandan alportis al li lia juna edzino, ĉar ŝi estis filino de unu el la plej riĉaj kaj eminentaj komercistoj. Unu el la plej grandaj kaj plej bonaj ŝipoj de ĉi tiu devis en tiu jaro ĝuste iri al Stokholmo kaj veturigi al Peterburgo la karajn infanojn, la filinon kaj la bofilon. En
 
 
 la ŝipo ĉio estis aranĝita reĝe, ĉie troviĝis molaj tapiŝoj sub la piedoj, silko kaj lukso.
 
-Ekzistas malnova kanto pri herooj, kiun ĉiuj konas; ĝi es-
-
-tas nomata: ”Angla reĝido”; li ankaŭ veturis sur tia multekosta ŝipo; ĝiaj ankroj estis tegitaj per brilanta oro, kaj ĉiu ŝnurego estis traplektita per silko. Nevole oni devis pensi pri tiu ŝipo, kiam oni vidis la ŝipon, kiu nun eliris el Hispanujo. Sur am-baŭ regis la sama lukso, la sama adiaŭa penso:
+Ekzistas malnova kanto pri herooj, kiun ĉiuj konas; ĝi estas nomata: ”Angla reĝido”; li ankaŭ veturis sur tia multekosta ŝipo; ĝiaj ankroj estis tegitaj per brilanta oro, kaj ĉiu ŝnurego estis traplektita per silko. Nevole oni devis pensi pri tiu ŝipo, kiam oni vidis la ŝipon, kiu nun eliris el Hispanujo. Sur am-baŭ regis la sama lukso, la sama adiaŭa penso:
 
 ”Dio volu, ke ni nin en ĝojo revidu!”
 
@@ -3190,48 +2494,31 @@ Ili ĵetis la ankron kaj nun senkuraĝaj
 
 Kvietiĝon atendis de l’ ondoj sovaĝaj.”
 
-Multe da tempo pasis depost tiam. La reĝo Kristiano la Se-
+Multe da tempo pasis depost tiam. La reĝo Kristiano la Sepa sidis sur la Dana trono kaj estis tiam juna homo; multe okazis depost tiu tempo, grandaj ŝanĝoj, multe da aliformiĝoj.
 
-pa sidis sur la Dana trono kaj estis tiam juna homo; multe okazis depost tiu tempo, grandaj ŝanĝoj, multe da aliformiĝoj.
-
-Lagoj kaj marĉoj fariĝis luksaj herbejoj, dezertaj lokoj fariĝis fekunda tero; sub la ŝirmo de la domoj eĉ sur la okcidenta 156
-
-FABELOJ 4
+Lagoj kaj marĉoj fariĝis luksaj herbejoj, dezertaj lokoj fariĝis fekunda tero; sub la ŝirmo de la domoj eĉ sur la okcidenta
 
 
-bordo de Jutlando kreskas pomarboj kaj rozoj, sed, estas vero, oni devas ilin serĉi, ĉar pro la akraj okcidentaj ventoj ili kaŝi-
-
-ĝas en ŝirmitaj lokoj. Oni rememoras tie delonge malaperintajn tempojn, multe antaŭ la regado de Kristiano la Sepa. Kiel tiam, tiel ankoraŭ nun en Jutlando sur spaco de multaj mejloj etendiĝas la bruna erikejo kun siaj tomboj de gigantoj, kun siaj aeraj fenomenoj, kun siaj multfoje kruciĝantaj malebenaj kaj sablaj vojoj. Okcidente, kie grandaj kaj multaj riveretoj enfluas en la golfon, troviĝas vastaj herbejoj kaj marĉoj, ĉir-kaŭlimitaj de altaj dunoj, kiuj kun siaj el sablo formiĝintaj pintoj leviĝas antaŭ la maro simile al Alpa montoĉeno. Nur en apartaj lokoj ili estas interrompataj de argilecaj deklivoj, de kiuj ĉiujare la maro per sia giganta buŝo englutas grandajn pecojn, tiel ke la deklivoj kaj montetoj disfalas, kvazaŭ skui-taj de tertremo. Tiel ĝi aspektas ankoraŭ nun, tiel estis antaŭ multe da jaroj, kiam la du feliĉuloj veturis sur la maro en la riĉa ŝipo.
+bordo de Jutlando kreskas pomarboj kaj rozoj, sed, estas vero, oni devas ilin serĉi, ĉar pro la akraj okcidentaj ventoj ili kaŝiĝas en ŝirmitaj lokoj. Oni rememoras tie delonge malaperintajn tempojn, multe antaŭ la regado de Kristiano la Sepa. Kiel tiam, tiel ankoraŭ nun en Jutlando sur spaco de multaj mejloj etendiĝas la bruna erikejo kun siaj tomboj de gigantoj, kun siaj aeraj fenomenoj, kun siaj multfoje kruciĝantaj malebenaj kaj sablaj vojoj. Okcidente, kie grandaj kaj multaj riveretoj enfluas en la golfon, troviĝas vastaj herbejoj kaj marĉoj, ĉir-kaŭlimitaj de altaj dunoj, kiuj kun siaj el sablo formiĝintaj pintoj leviĝas antaŭ la maro simile al Alpa montoĉeno. Nur en apartaj lokoj ili estas interrompataj de argilecaj deklivoj, de kiuj ĉiujare la maro per sia giganta buŝo englutas grandajn pecojn, tiel ke la deklivoj kaj montetoj disfalas, kvazaŭ skui-taj de tertremo. Tiel ĝi aspektas ankoraŭ nun, tiel estis antaŭ multe da jaroj, kiam la du feliĉuloj veturis sur la maro en la riĉa ŝipo.
 
 Estis fino de Septembro, estis dimanĉo kaj suna vetero, la sonado de la preĝejaj sonoriloj penetris al ili el multaj marbordaj vilaĝoj. La preĝejoj de tiu regiono staras kiel ĉirkaŭakitaj pecegoj da granito, ĉiu el ili estas peco da roko. La Norda maro povus transruliĝi super ili, kaj ili tamen restus staran-taj. La plejmulto el ili ne havas turon, la sonoriloj pendas inter du traboj ekstere kaj libere. La Diservo estis finita, la komunumo eliris el la preĝejo sur la tombejon, kie tiam, tiel same kiel nun, troviĝis nek arboj nek arbetaĵoj, kie sur la tomboj oni ne plantis florojn nek metis florkronojn. Senformaj montetoj montras la lokon, kie la mortintoj estas enterigitaj.
 
 Hirta herbo, vipata de la vento, kovras abunde la tutan tombejon. Eble nur unu tombon ornamas monumento, tio estas
 
 
-FABELOJ 4
-
-
 aerdifektita ligna ŝtipo, ĉirkaŭakita en la formo de ĉerko. De kie ĝi venas? i estas prenita el la okcidente troviŝanta arbaro; el la maro ĝi estas elakvigita. Tie por la loĝantoj de la marbordo kreskas la ĉirkaŭakitaj traboj, tabuloj kaj arbotrunkoj.
 
-La vento kaj la mara nebulo baldaŭ aerdifektas la alplektitajn pecojn da ligno. Tia ŝtipo kuŝis sur unu infana tombo kaj al ĉi tiu aliris unu el la virinoj, kiuj venis el la preĝejo. ŝi haltis kaj rigardis la duone forputrintan ŝtipon; tuj malantaŭ ŝi stariĝis ŝia edzo. Ili ne diris eĉ unu vorton; li kaptis ŝin je la ma-no, kaj de la tombo ili iris sur la brunan erikejon, trans mar-
-
-ĉan teron, al la dunoj; longe ili iris silente.
+La vento kaj la mara nebulo baldaŭ aerdifektas la alplektitajn pecojn da ligno. Tia ŝtipo kuŝis sur unu infana tombo kaj al ĉi tiu aliris unu el la virinoj, kiuj venis el la preĝejo. ŝi haltis kaj rigardis la duone forputrintan ŝtipon; tuj malantaŭ ŝi stariĝis ŝia edzo. Ili ne diris eĉ unu vorton; li kaptis ŝin je la ma-no, kaj de la tombo ili iris sur la brunan erikejon, trans marĉan teron, al la dunoj; longe ili iris silente.
 
 ”Hodiaŭ estis bona prediko,” diris la viro; ”se oni ne havus la bonan Dion, oni havus nenion.”
 
 ”Jes,” respondis la virino. ”Li ĝojigas kaj Li malĝojigas! Li havas la rajton por tio! Morgaŭ nia knabeto finus kvin jarojn, se ni povus lnservi.”
 
-”Neniu rezultas de tio, ke vi tiel fordonas vin al la mal-
-
-ĝojo!” diris la viro. ”Li foriris de la suferoj de la surtera vivo; li estas ja tie, kien ni ĉiuj deziras iam veni.”
+”Neniu rezultas de tio, ke vi tiel fordonas vin al la malĝojo!” diris la viro. ”Li foriris de la suferoj de la surtera vivo; li estas ja tie, kien ni ĉiuj deziras iam veni.”
 
 Ili plu ne parolis kaj iris per firmaj paŝoj al sia domo inter la dunoj. Subite de unu el ili, kie la marborda aveno ne havis la forton por reteni la sablon, leviĝis io simila al forta fuma kolono. Tio estis ekpuŝo de vento, kiu frapis la dunon kaj turnis supren la delikatajn sablajn partojn. Sekvis ankoraŭ unu ventpuŝo, kaj ĉiuj sur ŝnuro pendantaj fiŝoj ekbatiĝis al la muro de la domo, kaj ĉio denove estis silenta; la suno brulis varmege.
 
-La geedzoj iris en sian domon kaj baldaŭ demetis de si si-
-
-ajn dimanĉajn vestojn. Poste ili rapide iris trans la dunojn, kiuj staris kvazaŭ grandegaj subite en sia moviĝado rigidi-158
-
-FABELOJ 4
+La geedzoj iris en sian domon kaj baldaŭ demetis de si siajn dimanĉajn vestojn. Poste ili rapide iris trans la dunojn, kiuj staris kvazaŭ grandegaj subite en sia moviĝado rigidi-158
 
 
 ĝintaj ondoj el sablo. La blue-verdaj akraj trunketoj de la sabla herbo kaj sabla aveno prezentis sur la blanka sablo alme-naŭ kelkan kolordiversecon. Venis ankaŭ kelkaj el la najbaroj, ili helpis al si reciproke tiri la boatojn pli alten sur la sablon; la vento fariĝis pli forta, fariĝis akre malvarme, kaj kiam ili iris returne trans la dunojn, la sablo kaj malgrandaj ŝtonetoj saltadis al ili en la vizaĝon. La altaj ondoj estis kovritaj de blanka ŝaŭmo, kaj la vento debatadis ilian dorson, tiel ke la ŝaŭmo ŝprucis malproksimen ĉirkaŭen.
@@ -3242,18 +2529,11 @@ La ĉielo klariĝis, sed la ventego bruis kun grandega forto super la profunda n
 
 ”Granda ŝipo rompiĝis sur la lasta rifo!” Tuj la fiŝkaptistoj elsaltis el la litoj kaj metis sur sin siajn vestojn.
 
-La luno leviĝis; estis sufiĉe lume, por ke oni povu ĉion klare distingi, se nur la fluganta sablo ne malhelpus teni la okulojn malfermite. Estis tia vento, ke oni vere devis sntraŭstreĉi al ĝi, kaj nur kun granda malfacileco, ĉe la fortegaj ventpuŝoj ofte povante antaŭeniĝi nur rampante, oni transiris la dunojn, kaj ĉi tie en la aero flugadis simile al cigna lanugo la ŝaŭmo el la maro, kiu ruliĝadis sur la bordon kiel bolanta fal-159
-
-FABELOJ 4
-
-
-akvo. Oni devis efektive havi spertan okulon, por tuj trovi la ŝipon tie ekstere; tio estis belega trimastulo; en tiu momento ĝi ĝuste deŝoviĝis de la rifo kaj troviĝis en la distanco de tri
+La luno leviĝis; estis sufiĉe lume, por ke oni povu ĉion klare distingi, se nur la fluganta sablo ne malhelpus teni la okulojn malfermite. Estis tia vento, ke oni vere devis sntraŭstreĉi al ĝi, kaj nur kun granda malfacileco, ĉe la fortegaj ventpuŝoj ofte povante antaŭeniĝi nur rampante, oni transiris la dunojn, kaj ĉi tie en la aero flugadis simile al cigna lanugo la ŝaŭmo el la maro, kiu ruliĝadis sur la bordon kiel bolanta falakvo. Oni devis efektive havi spertan okulon, por tuj trovi la ŝipon tie ekstere; tio estis belega trimastulo; en tiu momento ĝi ĝuste deŝoviĝis de la rifo kaj troviĝis en la distanco de tri
 
 ĝis kvar kabloj de la tero; ĝi naĝis al la bordo, surpuŝiĝis sur la duan rifon kaj alfiksiĝis. Alporti helpon estis ne eble; la maro estis tro malkvieta, ĝi frapadis sur la ŝipon kaj trans ĝin.
 
-Oni pensis, ke oni aŭdas kriojn de alarmo, mortangorajn vokojn pri helpo, oni vidis la penegan vanan laboradon. Jen venis ondego, kiu simile al frakasanta roko ruliĝis trans la bu-spriton, kaj ĉi tiu forŝiriĝis, la malantaŭa parto leviĝis alte super la akvon. Du homoj kune saltis en la maron kaj malaperis, — post momento unu el la plej grandaj ondoj, rom-
-
-piĝante ĉe la dunoj, elĵetis korpon sur la marbordon, — tio estis virino, supozeble kadavro. Kelkaj el la virinoj komencis klopodi ĉirkaŭ ŝi kaj opiniis, ke ili rimarkis en ŝi ankoraŭ vivon; tial oni ŝin forportis trans la dunojn en la fiŝkaptistan domon. ŝi estis tre bela kaj delikata, certe altklasa sinjorino.
+Oni pensis, ke oni aŭdas kriojn de alarmo, mortangorajn vokojn pri helpo, oni vidis la penegan vanan laboradon. Jen venis ondego, kiu simile al frakasanta roko ruliĝis trans la bu-spriton, kaj ĉi tiu forŝiriĝis, la malantaŭa parto leviĝis alte super la akvon. Du homoj kune saltis en la maron kaj malaperis, — post momento unu el la plej grandaj ondoj, rompiĝante ĉe la dunoj, elĵetis korpon sur la marbordon, — tio estis virino, supozeble kadavro. Kelkaj el la virinoj komencis klopodi ĉirkaŭ ŝi kaj opiniis, ke ili rimarkis en ŝi ankoraŭ vivon; tial oni ŝin forportis trans la dunojn en la fiŝkaptistan domon. ŝi estis tre bela kaj delikata, certe altklasa sinjorino.
 
 Oni metis ŝin en la malluksan liton; delikata tolaĵo ne troviĝis en ĝi; por envolvo servis maldelikata lana litotuko, kiu donis varmon.
 
@@ -3263,12 +2543,7 @@ Oni metis ŝin en la malluksan liton; delikata tolaĵo ne troviĝis en ĝi; por 
 
 ĉar la ŝipo rompiĝis, ĝin savos nenio.”
 
-Pecoj de la ŝiprompitaĵo, ĉiuspecaj lignoj kaj lignetoj al-naĝis al la bordo; ŝi sola el ĉiuj restis vivanta ĉiam ankoraŭ la vento bruis super la marbordo. Dum kelke da minutoj la mal-160
-
-FABELOJ 4
-
-
-feliĉa ŝiprompulino estis trankvila, sed baldaŭ aperis doloroj, ŝi kriis angore, malfermis siajn belajn okulojn kaj balbutis kelkajn vortojn, kiujn tamen neniu povis kompreni.
+Pecoj de la ŝiprompitaĵo, ĉiuspecaj lignoj kaj lignetoj al-naĝis al la bordo; ŝi sola el ĉiuj restis vivanta ĉiam ankoraŭ la vento bruis super la marbordo. Dum kelke da minutoj la malfeliĉa ŝiprompulino estis trankvila, sed baldaŭ aperis doloroj, ŝi kriis angore, malfermis siajn belajn okulojn kaj balbutis kelkajn vortojn, kiujn tamen neniu povis kompreni.
 
 Kaj jen kompense pro ĉio, kion ŝi suferis kaj travivis, ŝi tenis en la brakoj ĵusnaskitan infaneton. i devis kuŝi en la riĉa domo sur parada lito kun silkaj kurtenoj; per ĝojkrioj ĝi estus salutita al vivo riĉa je ĉiuj teraj bonoj, kaj nun Dio faris, ke ĝi naskiĝis en la malriĉa angulo; eĉ kison de sia patrino ĝi ne ricevis.
 
@@ -3288,12 +2563,7 @@ tempoj, kiam eĉ en la preĝejoj oni petegis pri riĉa ŝiprompa beno, delonge j
 
 Neniu sciis, kiu estis la mortinta fremda virino, aŭ de kie ŝi venis. La ruinoj kaj lignopecoj de la ŝipo nenion rakontis pri tio.
 
-En Hispanujo, en la riĉa domo, neniam estis ricevitaj lete-161
-
-FABELOJ 4
-
-
-roj aŭ sciigoj pri la filino kaj la bofilo. Ili ne alvenis en sia loko de destino; fortaj ventegoj furiozis en la lastaj semajnoj; oni atendis multe da monatoj. — ”Tute pereis! ĉiuj pereis!” Tion oni nun sciis.
+En Hispanujo, en la riĉa domo, neniam estis ricevitaj leteroj aŭ sciigoj pri la filino kaj la bofilo. Ili ne alvenis en sia loko de destino; fortaj ventegoj furiozis en la lastaj semajnoj; oni atendis multe da monatoj. — ”Tute pereis! ĉiuj pereis!” Tion oni nun sciis.
 
 Sed tie malproksime sur la dunoj, en la domo de la fiŝisto, alvenis nova malgranda knabeto.
 
@@ -3305,53 +2575,35 @@ ankoraŭ iom da panpecetoj, kaj ĉe la marbordo ĉiam troviĝas ankoraŭ unu por
 
 ”i povas ankaŭ esti italo aŭ hispano!” diris la pastro. Estas vero, ke ĉiuj tiuj tri gentoj ŝajnis al la fiŝistino egalaj, kaj ŝi snsolis nur per tio, ke la infano estas baptita Kristane.
 
-La knabo prosperis, la nobela sango elmontriĝis malgraŭ la malluksa nutrado, la infano kreskis kaj ĉiam pli fortiĝis en la maleminenta domo. La dana lingvo, kiel ĝin parolas la lo-
-
-ĝanto de la okcidenta Jutlando, fariĝis lia lingvo. La granata kerno el la luksa grundo de Hispanujo disvolviĝis en sablan trunketon sur la Jutlanda marbordo; tiel povas fariĝi kun ho-mo! Per ĉiuj radikfibroj de sia infana koro li alkroĉiĝis al la nova hejmo. Lia sorto estis sperti malsaton kaj malvarmon, la premon kaj mizeron de malriĉeco, sed ankaŭ la plezurojn kaj
+La knabo prosperis, la nobela sango elmontriĝis malgraŭ la malluksa nutrado, la infano kreskis kaj ĉiam pli fortiĝis en la maleminenta domo. La dana lingvo, kiel ĝin parolas la loĝanto de la okcidenta Jutlando, fariĝis lia lingvo. La granata kerno el la luksa grundo de Hispanujo disvolviĝis en sablan trunketon sur la Jutlanda marbordo; tiel povas fariĝi kun ho-mo! Per ĉiuj radikfibroj de sia infana koro li alkroĉiĝis al la nova hejmo. Lia sorto estis sperti malsaton kaj malvarmon, la premon kaj mizeron de malriĉeco, sed ankaŭ la plezurojn kaj
 
 ĝojojn de malriĉeco.
 
 La tempo de la infaneco havas siajn lumajn altaĵojn, kies
 
-radioj poste lumas tra la tuta vivo. Kiom multe la infano havis por plezuro kaj ludoj! Kun mejloj da spaco kuŝis antaŭ li la tuta bordo, kovrita de ludiloj; mozaika grundo el ŝtonoj, ruga^j kiel koraloj, flavaj kiel sukceno, rondaj kiel ovoj de 162
-
-FABELOJ 4
+radioj poste lumas tra la tuta vivo. Kiom multe la infano havis por plezuro kaj ludoj! Kun mejloj da spaco kuŝis antaŭ li la tuta bordo, kovrita de ludiloj; mozaika grundo el ŝtonoj, ruga^j kiel koraloj, flavaj kiel sukceno, rondaj kiel ovoj de
 
 
-birdoj; ili kuŝis tie en ĉiuj koloroj, ĉiuj estis ŝlifitaj kaj glatigitaj de la maro. Eĉ la sekiĝintaj skeletoj de fiŝoj, la velksekiĝintaj akvaj kreskaĵoj, la fuko, blanke lumanta, longa kaj mallarĝa kiel tolaj rubandoj, ĉio estis por la okuloj kaj pensoj ludo kaj plezuro; kaj la knabo estis vigla infano, multaj kaj grandaj kapabloj dormetis en li. Tre bone li povosciis rememorigi al si la historiojn kaj kantojn, kiujn li estis aŭdinta, kaj tre lertajn fingrojn li havis: li povosciis el ŝtonoj kaj konkoj kunmeti tutajn ŝipojn, kiel ankaŭ bildojn, per kiuj oni povis ornami la ĉambron. Li povoscias plene esprimi siajn pensojn en tranĉ-
-
-skulptita peco da ligno, diris lia adoptinta patrino, kaj tamen la knabo estas ja ankoraŭ tiel malgranda. Krom tio li havis belan voĉon kaj la melodioj facile fluis de lia lango. En lia brusto sonis multaj kordoj, kies tonoj povus elsoni malproksimen en la mondon, se li estus starigita sur alia loko ol la fiŝkaptista domo ĉe la Norda maro.
+birdoj; ili kuŝis tie en ĉiuj koloroj, ĉiuj estis ŝlifitaj kaj glatigitaj de la maro. Eĉ la sekiĝintaj skeletoj de fiŝoj, la velksekiĝintaj akvaj kreskaĵoj, la fuko, blanke lumanta, longa kaj mallarĝa kiel tolaj rubandoj, ĉio estis por la okuloj kaj pensoj ludo kaj plezuro; kaj la knabo estis vigla infano, multaj kaj grandaj kapabloj dormetis en li. Tre bone li povosciis rememorigi al si la historiojn kaj kantojn, kiujn li estis aŭdinta, kaj tre lertajn fingrojn li havis: li povosciis el ŝtonoj kaj konkoj kunmeti tutajn ŝipojn, kiel ankaŭ bildojn, per kiuj oni povis ornami la ĉambron. Li povoscias plene esprimi siajn pensojn en tranĉskulptita peco da ligno, diris lia adoptinta patrino, kaj tamen la knabo estas ja ankoraŭ tiel malgranda. Krom tio li havis belan voĉon kaj la melodioj facile fluis de lia lango. En lia brusto sonis multaj kordoj, kies tonoj povus elsoni malproksimen en la mondon, se li estus starigita sur alia loko ol la fiŝkaptista domo ĉe la Norda maro.
 
 Unu tagon marrompiĝis ŝipo; kesto kun neordinaraj floraj
 
 bulboj alpeliĝis al la tero; parton el ili oni prenis kaj metis ilin en la kuirpoton, ĉar oni pensis, ke ili servas al manĝado, la aliaj kuŝis kaj putris en la sablo. Ili ne atingis sian destinon disvolvi la kolorriĉecon kaj belegecon, kiu kuŝis en ili. ĉu la malgranda Georgo havos iam pli bonan sorton? Kun la floraj bulboj ĉio baldaŭ estis finita, li estis ankoraŭ malfacile bata-lonta dum multaj jaroj.
 
-Nek al li nek al iu el la aliaj iam venis en la kapon, kiel solece kaj monotone pasas la tago; oni havis multe por fari, por aŭdi kaj por vidi. La maro mem estis granda lernolibro; ĉiun tagon ĝi malfermis novan folion: senventeco, ondiĝado, venteto, ventego, ŝiprompiĝo estis la ĉefaj fenomenoj. Iro en la preĝejon havis la karakteron de festotaga vizito; sed el la vi-163
-
-FABELOJ 4
-
-
-zitoj en la domo de la fiŝkaptistoj precipe unu estis tre agrabla, ĝi okazadis du fojojn ĉiujare, tio estis la vizito de la patrina frato, angilkomercisto, kiu loĝis kelke da mejloj pli norde. Li venadis kun ruĝe farbita veturilo plena de angiloj; la veturilo estis fermita kiel kesto kaj pripentrita per bluaj kaj blankaj tulipoj. in tiris du flavaj bovoj, kun kiuj Georgo havis la permeson iom ĉirkaŭveturi.
+Nek al li nek al iu el la aliaj iam venis en la kapon, kiel solece kaj monotone pasas la tago; oni havis multe por fari, por aŭdi kaj por vidi. La maro mem estis granda lernolibro; ĉiun tagon ĝi malfermis novan folion: senventeco, ondiĝado, venteto, ventego, ŝiprompiĝo estis la ĉefaj fenomenoj. Iro en la preĝejon havis la karakteron de festotaga vizito; sed el la vizitoj en la domo de la fiŝkaptistoj precipe unu estis tre agrabla, ĝi okazadis du fojojn ĉiujare, tio estis la vizito de la patrina frato, angilkomercisto, kiu loĝis kelke da mejloj pli norde. Li venadis kun ruĝe farbita veturilo plena de angiloj; la veturilo estis fermita kiel kesto kaj pripentrita per bluaj kaj blankaj tulipoj. in tiris du flavaj bovoj, kun kiuj Georgo havis la permeson iom ĉirkaŭveturi.
 
 La angilkomercisto estis spritulo, vigla gasto, ĉiam li havis kun si en la veturilo grandegan botelon plenan de brando; ĉiu ricevadis el ĝi glaseton da brando aŭ, se mankis glasetoj, tiam plenan tason; eĉ Georgo, kiel ajn malgranda li estis, ricevadis plenan fingringon. Tio estas farata, por bone digesti la grasan angilon, diradis la angilvendisto, kaj ĉe tio li rakontadis ĉiam la saman historion, kaj se oni ĉe tio ridis, li rakontis ĝin al la samaj homoj tuj ankoraŭ unu fojon; kaj ĉar Georgo mem en
 
 sia juneco kaj en sia vira aĝo ĝin ofte rakontadis kaj alkonfor-migis al ĝi sian propran agadon, tial ni devas ĝin aŭdi.
 
-”En la rivero naĝis la angiloj, kaj la angila patrino diris al siaj filinoj, kiam ili petis la permeson naĝi solaj kelkan distancon: ”Sed ne iru tro malproksime, ĉar alie venos la abomeninda angilpikisto kaj forprenos vin ĉiujn!” Sed ili iris tro malproksime, kaj el la ok filinoj revenis al la patrino nur tri. Ili ploregis: ”Kiam ni estis nur en la distanco de kelke da paŝoj antaŭ la pordo, venis la abomeninda angilpikisto kaj pikmortigis niajn kvin fratinojn!” — ”Ili revenos!” konsolis ilin la patrino. — ”Ne!” respondis la filinoj, ĉar li detiris de ili la haŭ-
-
-ton, distranĉis ilin en pecojn kaj rostis ilin.” — ”Ili revenos!”
+”En la rivero naĝis la angiloj, kaj la angila patrino diris al siaj filinoj, kiam ili petis la permeson naĝi solaj kelkan distancon: ”Sed ne iru tro malproksime, ĉar alie venos la abomeninda angilpikisto kaj forprenos vin ĉiujn!” Sed ili iris tro malproksime, kaj el la ok filinoj revenis al la patrino nur tri. Ili ploregis: ”Kiam ni estis nur en la distanco de kelke da paŝoj antaŭ la pordo, venis la abomeninda angilpikisto kaj pikmortigis niajn kvin fratinojn!” — ”Ili revenos!” konsolis ilin la patrino. — ”Ne!” respondis la filinoj, ĉar li detiris de ili la haŭton, distranĉis ilin en pecojn kaj rostis ilin.” — ”Ili revenos!”
 
 diris persiste la patrino. ”Sed poste li trinkis brandon!” diris la filinoj. ”Aj, aj! en tia okazo ili neniam plu revenos!” plorkriis la patrino; ”la brando entombigas la angilon!”
 
 
-FABELOJ 4
-
-
 ”Kaj tial oni devas ĉiam trinki glaseton da brando post tiu manĝaĵo!” diris la angilvendisto.
 
-Kaj ĉi tiu historio fariĝis la ora fadeno, la fadeno de ne-elĉerpebla bona humoro en la vivo de Georgo. Li ankaŭ vo-
-
-lus iri eksteren, ”malgrandan distancon laŭlonge de la rivero”, tio estas iri kun ŝipo en la mondon, kaj la patrino diris, simile al la angilpatrino: ”Ekzistas multe da malbonaj homoj, angilpikistoj!” Tamen iomete, tre malmulte, ekster la dunojn, iomete en la erikejon li devis iri, kaj estis al li permesite iri.
+Kaj ĉi tiu historio fariĝis la ora fadeno, la fadeno de ne-elĉerpebla bona humoro en la vivo de Georgo. Li ankaŭ volus iri eksteren, ”malgrandan distancon laŭlonge de la rivero”, tio estas iri kun ŝipo en la mondon, kaj la patrino diris, simile al la angilpatrino: ”Ekzistas multe da malbonaj homoj, angilpikistoj!” Tamen iomete, tre malmulte, ekster la dunojn, iomete en la erikejon li devis iri, kaj estis al li permesite iri.
 
 Kvar feliĉaj, gajaj tagoj malfermiĝis en lia juna vivo kun brilanta lumo. La tuta beleco de Jutlando, la tuta ĝojo, la tuta sunlumo de la hejmo kuŝis en ili. Li estis ironta al festeno, kvankam en efektiveco tio estis nur festeno postenteriga.
 
@@ -3361,24 +2613,18 @@ bona”, li tamen volis lasi mortigi la konstruiston, kiu konstruis por li lian 
 
 povis ankoraŭ vidi, sed ĉirkaŭe estis rubo, nenio krom rubo.
 
-ĉi tie la kavaliro Bugge, kiam la konstruisto forveturis, diris 165
-
-FABELOJ 4
+ĉi tie la kavaliro Bugge, kiam la konstruisto forveturis, diris
 
 
 al sia servisto: ”Sekvu lin kaj diru: ”majstro, la turo disfalas!”
 
 Se li sin returnos, tiam mortigu lin kaj forprenu de li la monon, kiun li ricevis de mi; sed se li sin ne returnos, tiam lasu lin iri trankvile!” La servisto obeis, kaj la konstruisto respondis: ”La turo ne disfalas; sed de la okcidento iam venos iu en blua mantelo, kaj li disfaligos la turon!” Kaj tio fariĝis cent jarojn poste, kiam la Norda maro enĵetiĝis kaj la turo disfalis. Sed la tiama posedanto de la kastelo, Predbjĝrn Goldstern, konstruis al si pli supre, kie la herbejo finiĝas, novan kastelon, kaj ĝi staras ankoraŭ, kaj ĝi estas la nuna Slorre-Vosborg.
 
-Tiun lokon Georgo kun siaj adoptintaj gepatroj devis pre-
-
-teriri; pri ĉiu loko de tie supre oni rakontis al li en la longaj vintraj vesperoj. Nun li mem vidis la kastelon kun ĝiaj duo-blaj foskavoj, kun la arboj kaj arbetaĵoj en la ĝardeno. Majeste staris la remparo, ĉirkaŭkreskita de filikoj; sed la plej belaj tamen estis la altaj tilioj, kiuj gracie kaj bele staris alte ĝis la supro de la tegmento kaj plenigis la aeron per plej dolĉa bonodoro. Nordokcidente en la angulo de la ĝardeno staris gran-da arbetaĵo kun floraĵoj similaj al vintra neĝo meze de somera verdaĵo. Tio estis siringa arbetaĵo, la unua, kiun Georgo vidis florantan en tia beleco. i kaj la tilioj vivis konstante en lia memoro, la bonodoro kaj beleco de Danujo, kiujn lia infana animo konservis ĝis profunda maljuneco.
+Tiun lokon Georgo kun siaj adoptintaj gepatroj devis preteriri; pri ĉiu loko de tie supre oni rakontis al li en la longaj vintraj vesperoj. Nun li mem vidis la kastelon kun ĝiaj duo-blaj foskavoj, kun la arboj kaj arbetaĵoj en la ĝardeno. Majeste staris la remparo, ĉirkaŭkreskita de filikoj; sed la plej belaj tamen estis la altaj tilioj, kiuj gracie kaj bele staris alte ĝis la supro de la tegmento kaj plenigis la aeron per plej dolĉa bonodoro. Nordokcidente en la angulo de la ĝardeno staris gran-da arbetaĵo kun floraĵoj similaj al vintra neĝo meze de somera verdaĵo. Tio estis siringa arbetaĵo, la unua, kiun Georgo vidis florantan en tia beleco. i kaj la tilioj vivis konstante en lia memoro, la bonodoro kaj beleco de Danujo, kiujn lia infana animo konservis ĝis profunda maljuneco.
 
 La vojaĝo daŭris senhalte pluen kaj fariĝis pli oportuna, ĉar
 
-ĝuste kontraŭe de la kastelo, tie, kie la siringa arbetaĵo staris en plena florado, ili trovis la eblon veturi. Ili renkontiĝis kun aliaj funebrantaj gastoj, kaj ĉi tiuj prenis ilin sur sian veturilon. Estas vero, ke ili ĉiuj tri devis sidiĝi malantaŭe, kaj al tio ankoraŭ sur ligna kesto kun fera garnaĵo, sed ili opiniis, ke malbone veturi estas tamen pli bone ol bone iri. Oni veturis 166
-
-FABELOJ 4
+ĝuste kontraŭe de la kastelo, tie, kie la siringa arbetaĵo staris en plena florado, ili trovis la eblon veturi. Ili renkontiĝis kun aliaj funebrantaj gastoj, kaj ĉi tiuj prenis ilin sur sian veturilon. Estas vero, ke ili ĉiuj tri devis sidiĝi malantaŭe, kaj al tio ankoraŭ sur ligna kesto kun fera garnaĵo, sed ili opiniis, ke malbone veturi estas tamen pli bone ol bone iri. Oni veturis
 
 
 tra la malebena erikejo. La bovoj, kiuj tiris la veturilon, de tempo al tempo haltis, kiam inter la eriko ili trafis freŝan her-bloketon, la suno lumis varme, kaj kun miro oni rimarkis en granda malproksimeco nubon da fumo, kiu ondiĝadis supren
@@ -3387,22 +2633,16 @@ kaj malsupren kaj tamen estis pli klara ol la aero. Oni povis vidi tra ĝi, oni 
 
 ”Tio estas Lokemann, kiu pelas sian ŝafaron,” ili diris, kaj tio estis por Georgo sufiĉe dirita. Li opiniis, ke li enveturas rekte en la landon de aventuroj, kaj tamen ĉirkaŭe estis nuda realaĵo. Estis tre silente.
 
-Granda kaj etendita tie kuŝis la erikejo, sed simile al multekosta tapiŝo; la eriko estis en plena florado, la verdaj juni-peraj arbetaĵoj kaj la freŝaj kverkidoj simile al florbukedoj leviĝis el la eriko. ĉio aspektis tiel alloga kaj invitanta al ruli-
-
-ĝado, se nur ne troviĝus tiom multe da vipuroj! Pri ili oni parolis kaj ankaŭ pri la multe da lupoj, kiuj antaŭe estis ĉi tie, pro kio la graflando ricevis sian nomon. La maljunulo, kiu tenis la kondukilojn, rakontis el la tempo de sia patro, kiel la ĉevaloj ĉi tie ofte devis malfacile batali kontraŭ la nun ekster-mitaj sovaĝaj bestoj. Kiam li unu matenon venis ĉi tien, ĉevalo staris super lupo, kiun ĝi mortige frapis kaj tretis per la piedoj, sed la karno sur ĝiaj piedoj estis tute disŝirita.
+Granda kaj etendita tie kuŝis la erikejo, sed simile al multekosta tapiŝo; la eriko estis en plena florado, la verdaj juni-peraj arbetaĵoj kaj la freŝaj kverkidoj simile al florbukedoj leviĝis el la eriko. ĉio aspektis tiel alloga kaj invitanta al ruliĝado, se nur ne troviĝus tiom multe da vipuroj! Pri ili oni parolis kaj ankaŭ pri la multe da lupoj, kiuj antaŭe estis ĉi tie, pro kio la graflando ricevis sian nomon. La maljunulo, kiu tenis la kondukilojn, rakontis el la tempo de sia patro, kiel la ĉevaloj ĉi tie ofte devis malfacile batali kontraŭ la nun ekster-mitaj sovaĝaj bestoj. Kiam li unu matenon venis ĉi tien, ĉevalo staris super lupo, kiun ĝi mortige frapis kaj tretis per la piedoj, sed la karno sur ĝiaj piedoj estis tute disŝirita.
 
 Tro rapide iris la veturado tra la malebena erikejo kaj tra la profunda sablo. Ili haltis antaŭ la funebra domo, kie interne kaj ekstere jam svarmis fremduloj; veturiloj staris unu apud la alia, ĉevaloj kaj bovoj promenadis kune sur la malgrasa paŝtejo. Grandaj sablaj dunoj staris tie tiel same kiel hejme ĉe la Norda maro malantaŭ la domo kaj etendiĝis sur granda
 
-spaco. Kiamaniere ili venis ĉi tien, tri mejlojn internen de la 167
-
-FABELOJ 4
+spaco. Kiamaniere ili venis ĉi tien, tri mejlojn internen de la
 
 
 lando, kaj estis tiel same altaj kaj grandaj kiel ĉe la bordo? La vento pelis ilin supren, ili ankaŭ havis sian historion.
 
-Oni kantis funebrajn kantojn, kelke da maljunaj homoj an-
-
-kaŭ ploris, sed cetere, kiel ŝajnis al Georgo, ĉio estis tre gaja.
+Oni kantis funebrajn kantojn, kelke da maljunaj homoj ankaŭ ploris, sed cetere, kiel ŝajnis al Georgo, ĉio estis tre gaja.
 
 Manĝaĵoj kaj trinkaĵoj troviĝis en granda abundo, plej belaj grasaj angiloj, post kiuj oni nepre devas trinki glaseton da brando. ”Tio helpas digesti!” diris la angilvendisto, kaj pri bona digesto ĉiuj videble tre zorgis.
 
@@ -3414,9 +2654,7 @@ Nun venis la kvara tago, kaj la funebra festeno estis finita; de la landaj dunoj
 
 ”Niaj tamen estas la veraj,” diris la patro, ”ĉi tiuj ne havas forton.”
 
-Oni parolis pri tio, kiamaniere ili venis ĉi tien, kaj ĉio estis eksterordinare komprenebla kaj klara. Sur la bordo estis trovita kadavro, la vilaĝanoj portis ĝin sur la tombejon, kaj de tiu tempo komenciĝis la blovado de la vento kaj la maro malkviete ĵetiĝis sur la teron. Saĝa homo en la paro˛o konsilis malfermi la tombon kaj rigardi, ĉu la enterigito ne kuŝas kaj suĉas sian dikan fingron, ĉar en tia okazo tio montrus, ke tiu, 168
-
-FABELOJ 4
+Oni parolis pri tio, kiamaniere ili venis ĉi tien, kaj ĉio estis eksterordinare komprenebla kaj klara. Sur la bordo estis trovita kadavro, la vilaĝanoj portis ĝin sur la tombejon, kaj de tiu tempo komenciĝis la blovado de la vento kaj la maro malkviete ĵetiĝis sur la teron. Saĝa homo en la paro˛o konsilis malfermi la tombon kaj rigardi, ĉu la enterigito ne kuŝas kaj suĉas sian dikan fingron, ĉar en tia okazo tio montrus, ke tiu,
 
 
 kiun ili enterigis, estas mara homo kaj la maro volas perforte malfermi la tombon, por preni lin. Oni malfermis la tombon, kaj tiam montriĝis, ke efektive li kuŝas kaj suĉas la dikan fingron; tial oni tuj ĵetis lin sur ĉaron, oni aljungis du bovojn, kaj kiel pikataj de tabanoj ili ekkuris kun li tra la erikejo kaj la marĉejo en la maron. Tiam la sabloblovado ĉesiĝis, sed la dunoj ĉiam ankoraŭ staras. ĉion ĉi tion Georgo aŭdis kaj konservis el la plej feliĉaj tagoj de sia juneco, el la tagoj de la funebra festeno.
@@ -3431,22 +2669,16 @@ En lia alte nobela Hispana sango estis io, kio bolis, tiel ke koleraj vortoj pu�
 
 La malpura ŝipa bubo ne ricevis eĉ la permeson iri sur la
 
-teron; nur en la lasta tago, en kiu la ŝipo staris sur ankro ĉe 169
-
-FABELOJ 4
+teron; nur en la lasta tago, en kiu la ŝipo staris sur ankro ĉe
 
 
 tiu bordo, oni permesis al li eliri sur la teron. Oni devis fari aĉetojn, kaj li estis komisiita porti la aĉetaĵojn sur la ŝipon.
 
-Jen Georgo staris en siaj mizeraj vestoj, kiuj aspektis, kvazaŭ ili estus lavitaj en marĉeto kaj sekigitaj en kamentubo. La unuan fojon li, loĝanto de la dunoj, vidis grandan urbon. Kiel altaj estis la domoj, kiel mallarĝaj kaj plenaj de homaj svarmoj estis la stratoj! Unuj puŝis ĉi tien, aliaj tien; estis vera kirligo de urbanoj kaj vilaĝanoj, mona˛oj kaj soldatoj. ĉie aŭdiĝis bruo kaj krioj, sonado de tintiloj de multe da azenoj kaj muloj, kaj en tiun tutan bruon senĉese ensonadis la pre-
-
-ĝejaj sonoriloj. Sur unu flanko sonis kanto kaj muziko, sur alia flanko oni aŭdis marteladon kaj frapadon, ĉar ĉiu meti-isto havis sian stablon en la pordo aŭ sur la trotuaro. Al tio la suno brulis tiel varmege, la aero estis tiel peza, oni havis la senton, kvazaŭ oni troviĝus en forno, en kiu ĉie svarmis kaj zumis skaraboj, abeloj kaj muŝoj; Georgo ne sciis, kiel li iras aŭ kiel li staras. Jen subite li ekvidis rekte antaŭ si la potencan portalon de la katedralo, kandeloj lumis el la duone mallumaj arkaĵoj, kaj odoro de incensoj plenigis la tutan ĉirkaŭ-
+Jen Georgo staris en siaj mizeraj vestoj, kiuj aspektis, kvazaŭ ili estus lavitaj en marĉeto kaj sekigitaj en kamentubo. La unuan fojon li, loĝanto de la dunoj, vidis grandan urbon. Kiel altaj estis la domoj, kiel mallarĝaj kaj plenaj de homaj svarmoj estis la stratoj! Unuj puŝis ĉi tien, aliaj tien; estis vera kirligo de urbanoj kaj vilaĝanoj, mona˛oj kaj soldatoj. ĉie aŭdiĝis bruo kaj krioj, sonado de tintiloj de multe da azenoj kaj muloj, kaj en tiun tutan bruon senĉese ensonadis la preĝejaj sonoriloj. Sur unu flanko sonis kanto kaj muziko, sur alia flanko oni aŭdis marteladon kaj frapadon, ĉar ĉiu meti-isto havis sian stablon en la pordo aŭ sur la trotuaro. Al tio la suno brulis tiel varmege, la aero estis tiel peza, oni havis la senton, kvazaŭ oni troviĝus en forno, en kiu ĉie svarmis kaj zumis skaraboj, abeloj kaj muŝoj; Georgo ne sciis, kiel li iras aŭ kiel li staras. Jen subite li ekvidis rekte antaŭ si la potencan portalon de la katedralo, kandeloj lumis el la duone mallumaj arkaĵoj, kaj odoro de incensoj plenigis la tutan ĉirkaŭ-
 
 aĵon. Eĉ la plej malriĉa almozulo en ĉifonoj kuraĝis supreniri la altan ŝtuparon kaj eniri. La ŝipano, kiun Georgo akompanis, direktis sin en la mezon de la preĝejo, kaj Georgo troviĝis nun en la templo. Kolorriĉaj pentraĵoj brilis el ora ka-draĵo. La Dipatrino kun la infano Jesuo staris sur la altaro inter floroj kaj kandeloj; pastroj en ornato kantis, kaj belaj riĉe vestitaj ˛orknaboj svingis arĝentajn incensilojn. Kian belegecon, kian lukson oni povis tie vidi! Tio trapenetris la animon de Georgo, tio prenis lin tutan sub sian potencon. La
 
-preĝejo kaj la kredo de liaj gepatroj faris sur li neordinaran 170
-
-FABELOJ 4
+preĝejo kaj la kredo de liaj gepatroj faris sur li neordinaran
 
 
 impreson kaj eksonigis en lia animo tian akordon, ke larmoj aperis en liaj okuloj.
@@ -3459,22 +2691,13 @@ La unua kurso de lia ŝipservado finiĝis, la ŝipo troviĝis denove en la golfo
 
 La vintro, kiu nun sekvis, estis tre akra. Neĝaj ventegoj blovis super la tero kaj la maro, oni apenaŭ povis ion vidi antaŭ si. Kiel malegale estas dividitaj la sortoj en ĉi tiu mondo! ĉi tie tiel glacia malvarmo kaj abundega neĝo, dum en Hispanujo
 
-regis bruliga sunvarmego; kaj tamen kiam ĉi tie iam estis frosta klara tago kaj Georgo vidis, kiel la cignoj en grandaj amasoj flugas trans la maron, al li ŝajnis, ke oni ĉi tie spiras la plej bonan aeron kaj ankaŭ la somero ĉi tie estas la plej bela. En siaj pensoj li tiam vidis, kiel la erikejo floras kaj estas plena de maturaj sukaj beroj, li vidis, kiel floras la tilioj kaj la siringar-171
+regis bruliga sunvarmego; kaj tamen kiam ĉi tie iam estis frosta klara tago kaj Georgo vidis, kiel la cignoj en grandaj amasoj flugas trans la maron, al li ŝajnis, ke oni ĉi tie spiras la plej bonan aeron kaj ankaŭ la somero ĉi tie estas la plej bela. En siaj pensoj li tiam vidis, kiel la erikejo floras kaj estas plena de maturaj sukaj beroj, li vidis, kiel floras la tilioj kaj la siringarbeto apud tiu malnova kastelo; tien li tamen devas iri ankoraŭ unu fojon.
 
-FABELOJ 4
-
-
-beto apud tiu malnova kastelo; tien li tamen devas iri ankoraŭ unu fojon.
-
-Blovis la unuaj printempaj ventetoj, la fiŝkaptado komen-
-
-ciĝis, Georgo helpis. Dum la lasta jaro li alte elkreskis kaj fari-
+Blovis la unuaj printempaj ventetoj, la fiŝkaptado komenciĝis, Georgo helpis. Dum la lasta jaro li alte elkreskis kaj fari-
 
 ĝis lerta en ĉiuj siaj moviĝoj. Li estis plena de vivo, li povosciis naĝi kaj fari ĉiaspecajn turniĝojn kaj moviĝojn en la akvo simile al fiŝo. Ofte oni lin avertis, ke li gardu sntraŭ la skom-braj sablorifoj, ke ili kaptas la plej bonan naĝanton, tiras lin sub la akvon, formanĝas lin, kaj tiam venas lia fino; sed tio ne estis la sorto de Georgo.
 
-La plej proksimaj najbaroj en la dunoj havis knabon, no-
-
-matan Morten, kun kiu Georgo estis en amikaj interrilatoj.
+La plej proksimaj najbaroj en la dunoj havis knabon, nomatan Morten, kun kiu Georgo estis en amikaj interrilatoj.
 
 Ambaŭ samtempe iris en servadon sur ŝipon, kiu veturis al
 
@@ -3488,24 +2711,16 @@ kaptas la tranĉilon!”
 
 Apenaŭ tio estis dirita, la mano de Georgo tuj malrapide
 
-malleviĝis; li ne diris eĉ unu vorton, formanĝis sian tagman-
-
-ĝon kaj iris al sia laboro. Kiam li revenis de la laboro, li aliris al Morten kaj diris: ”Donu al mi tuj frapon sur la vizaĝon! Mi 172
-
-FABELOJ 4
+malleviĝis; li ne diris eĉ unu vorton, formanĝis sian tagmanĝon kaj iris al sia laboro. Kiam li revenis de la laboro, li aliris al Morten kaj diris: ”Donu al mi tuj frapon sur la vizaĝon! Mi
 
 
 ĝin meritis! Mi havas en mi kvazaŭ ian poton, kiu iufoje su-perbolas.”
 
-”Nu, ni ne parolu pri tio!” diris Morten, kaj de tiam ili fari-
-
-ĝis preskaŭ duoble bonaj amikoj. Kiam ili poste denove revenis al siaj dunoj en Jutlando kaj rakontis pri ĉio, kion ili travivis, ili rakontis ankaŭ pri tiu malpaceto. ”Georgo povas super-boli, sed malgraŭ tio li estas honesta homo; Jutlandano li ja ne estas, oni ne povas lin nomi Jutlandano!” Tio estis tre spi-ritplena rimarko de Morten.
+”Nu, ni ne parolu pri tio!” diris Morten, kaj de tiam ili fariĝis preskaŭ duoble bonaj amikoj. Kiam ili poste denove revenis al siaj dunoj en Jutlando kaj rakontis pri ĉio, kion ili travivis, ili rakontis ankaŭ pri tiu malpaceto. ”Georgo povas super-boli, sed malgraŭ tio li estas honesta homo; Jutlandano li ja ne estas, oni ne povas lin nomi Jutlandano!” Tio estis tre spi-ritplena rimarko de Morten.
 
 Ambaŭ ili estis junaj kaj sanaj, bone elkreskintaj kaj kun fortaj membroj, sed Georgo estis pli lerta.
 
-En Norvegujo la vilaĝanoj transiras en la paŝtistajn dome-
-
-tojn kaj lasas siajn brutojn paŝtiĝi sur la altaĵoj; sur la okcidenta bordo de Jutlando oni starigis meze de la dunoj kabanojn, kiuj estas aranĝitaj el ŝiprompaĵoj kaj kovritaj per erikeja torfo kaj per tavolo da eriko. ĉirkaŭe ĉe la muroj estas aranĝitaj dormolokoj, kaj ĉi tie jam frue en printempo dormas kaj loĝas la fiŝkaptistoj. ĉiu havas servistinon, kies laboro konsistas en tio, ke ili provizas la fis˛okojn per logaĵo, la fiŝ-
+En Norvegujo la vilaĝanoj transiras en la paŝtistajn dometojn kaj lasas siajn brutojn paŝtiĝi sur la altaĵoj; sur la okcidenta bordo de Jutlando oni starigis meze de la dunoj kabanojn, kiuj estas aranĝitaj el ŝiprompaĵoj kaj kovritaj per erikeja torfo kaj per tavolo da eriko. ĉirkaŭe ĉe la muroj estas aranĝitaj dormolokoj, kaj ĉi tie jam frue en printempo dormas kaj loĝas la fiŝkaptistoj. ĉiu havas servistinon, kies laboro konsistas en tio, ke ili provizas la fis˛okojn per logaĵo, la fiŝ-
 
 kaptistojn ĉe ilia albordiĝo ili akceptas kun varma biero kaj havigas al ili manĝaĵon, kiam ili lace revenas hejmen. Tiuj servistinoj ankaŭ trenas la fiŝojn el la boatoj, tranĉmalfermas ilin kaj ĝenerale havas multe da laboro.
 
@@ -3513,26 +2728,18 @@ Georgo, lia patro, kelke da aliaj fiŝkaptistoj kaj iliaj servistinoj loĝis en 
 
 Inter la knabinoj troviĝis unu, nomata Else, kiun Georgo
 
-konis de sia plej frua infaneco. Ili ambaŭ vivis tre bone unu kun la alia; en multaj aferoj ili estis samopiniaj, nur ilia eksteraĵo prezentis grandajn kontrastojn. Li havis brunan haŭton, 173
-
-FABELOJ 4
+konis de sia plej frua infaneco. Ili ambaŭ vivis tre bone unu kun la alia; en multaj aferoj ili estis samopiniaj, nur ilia eksteraĵo prezentis grandajn kontrastojn. Li havis brunan haŭton,
 
 
 Else havis neĝblankan haŭton kaj llorajn harojn; ŝiaj okuloj estis tiel bluaj kiel la mara akvo en la sunlumo.
 
 Kiam ili unu tagon iris kune kaj Georgo tenis ŝin je la ma-no, tre forte kaj simplanime, ŝi diris al li: ”Georgo, mi havas ion sur la koro. Lasu min esti via servistino, ĉar vi estas por mi kiel frato, sed Morten, kiu min dungis, — jes, mi kaj li estas gefianĉoj — sed tio ne meritas, ke oni babilu pri tio al aliaj!”
 
-Georgo ĉe tiuj vortoj eksentis, kvazaŭ la duna sablo sub liaj piedoj moviĝas. Li ne diris eĉ unu vorton, sed li faris kap-movon, kaj tio signifas ja tion saman kiel ”jes”. Pli oni ankaŭ ne bezonis. Sed li eksentis subite en sia koro, ke li ne povas toleri Mortenon. Ju pli li pri tio meditis kaj pensis — kaj tiamaniere li antaŭe neniam pensis pri Else —, des pli klare fari-
-
-ĝis al li, ke Morten ŝtelis de li la solan, kio estis kara por li, kaj tio nun kompreneble estis Else, nur nun tio fariĝis klara por li.
+Georgo ĉe tiuj vortoj eksentis, kvazaŭ la duna sablo sub liaj piedoj moviĝas. Li ne diris eĉ unu vorton, sed li faris kap-movon, kaj tio signifas ja tion saman kiel ”jes”. Pli oni ankaŭ ne bezonis. Sed li eksentis subite en sia koro, ke li ne povas toleri Mortenon. Ju pli li pri tio meditis kaj pensis — kaj tiamaniere li antaŭe neniam pensis pri Else —, des pli klare fariĝis al li, ke Morten ŝtelis de li la solan, kio estis kara por li, kaj tio nun kompreneble estis Else, nur nun tio fariĝis klara por li.
 
 Kiam la maro estas iom malkvieta kaj la fiŝkaptistoj direktas sin kun siaj ŝipoj hejmen, rigardu, kiel ili tiam transŝipiĝas trans la rifojn: unu el la homoj staras rekte supre, la aliaj atente lin observas, sidas senmove kun la remiloj, kiujn ili senpere antaŭ la rifo tenas flanke, ĝis tiu homo donas al ili la signon, ke nun venas la granda ondo, kiu levos la boaton; kaj ĝi tiel leviĝas, ke de la tero oni povas vidi la kilon. En la sekvanta momento la ondo ĝvras, oni vidas nek la homojn nek la maston, oni povus pensi, ke la maro ion englutis; sed unu
 
-momenton poste ĝi denove elakviĝas kiel grandega mara be-
-
-sto, kiu grimpas sur la ondon; la remiloj ekmoviĝas kiel ĝiaj lertaj piedoj. ĉe la dua kaj la tria rifo oni agas tiel same kiel ĉe la unua, kaj jen la fiŝkaptistoj saltas en la akvon, tiras la 174
-
-FABELOJ 4
+momenton poste ĝi denove elakviĝas kiel grandega mara besto, kiu grimpas sur la ondon; la remiloj ekmoviĝas kiel ĝiaj lertaj piedoj. ĉe la dua kaj la tria rifo oni agas tiel same kiel ĉe la unua, kaj jen la fiŝkaptistoj saltas en la akvon, tiras la
 
 
 boaton al la tero, kaj ĉiu frapo de la ondoj ilin helpas kaj donas al la boato bonan ŝovon, ĝis ili venigas ĝin bonrifuĝe al la tero.
@@ -3552,22 +2759,15 @@ La adoptinta patro de Georgo devis kuŝiĝi en la lito; ĝi estis fariĝonta lia
 domo malgrandvalora, sed ĝi tamen estis io, tiom multe Morten ne havis.
 
 
-FABELOJ 4
-
-
 ”Nun vi certe ne servos plu sur ŝipo, Georgo, sed vi restos por ĉiam ĉe ni?” demandis unu el la maljunaj fiŝistoj.
 
-Georgo tamen ne havis tian intencon, kontraŭe, li intencis denove iom vidi la mondon. Nia malnova amiko, la angilvendisto, havis en Gammel-Skagen onklon, kiu okupadis sin per fiŝvendado, sed samtempe estis bonhava komercisto kaj posedis propran ŝipon. Li estis rigardata kiel vigla maljuna sinjoro, ĉe kiu servi estas afero nur honora kaj profita. Gammel-Skagen troviĝas en la plej norda parto de Jutlando, tiel malproksime de la dunoj de Georgo, kiel en tiu lando ĝenerale ne povas ekzisti pli granda distanco. Kaj ĝuste tio plej multe pla-
-
-ĉis al Georgo; li ne volis eĉ resti hejme ĝis la edziĝo de Else kaj Morten, kiu devis okazi post kelke da semajnoj.
+Georgo tamen ne havis tian intencon, kontraŭe, li intencis denove iom vidi la mondon. Nia malnova amiko, la angilvendisto, havis en Gammel-Skagen onklon, kiu okupadis sin per fiŝvendado, sed samtempe estis bonhava komercisto kaj posedis propran ŝipon. Li estis rigardata kiel vigla maljuna sinjoro, ĉe kiu servi estas afero nur honora kaj profita. Gammel-Skagen troviĝas en la plej norda parto de Jutlando, tiel malproksime de la dunoj de Georgo, kiel en tiu lando ĝenerale ne povas ekzisti pli granda distanco. Kaj ĝuste tio plej multe plaĉis al Georgo; li ne volis eĉ resti hejme ĝis la edziĝo de Else kaj Morten, kiu devis okazi post kelke da semajnoj.
 
 Estas nepripensita ago nun forvojaĝi, opiniis la maljuna
 
 fiŝkaptisto; nun Georgo havas ja domon, kaj Else certe kon-sentus preni prefere lin.
 
-Pri tio Georgo donis tiel mallongan respondon, ke la sen-
-
-con de liaj vortoj oni ne facile povis kompreni; tamen la maljuna fiŝkaptisto alkondukis al li Elsen; ŝi diris ne multe, sed ŝi diris: ”Vi havas nun domon, tion oni devas pripensi.”
+Pri tio Georgo donis tiel mallongan respondon, ke la sencon de liaj vortoj oni ne facile povis kompreni; tamen la maljuna fiŝkaptisto alkondukis al li Elsen; ŝi diris ne multe, sed ŝi diris: ”Vi havas nun domon, tion oni devas pripensi.”
 
 Kaj Georgo multe pripensis.
 
@@ -3583,17 +2783,10 @@ pli volonte prenus?”
 
 ”Ni tamen supozu por momento, ke li ricevis domon!”
 
-”Nu, tiam mi supozeble prenus Mortenon, ĉar mi ja elek-
-
-tis lin jam antaŭe! Sed de tio oni ne povas vivi.”
+”Nu, tiam mi supozeble prenus Mortenon, ĉar mi ja elektis lin jam antaŭe! Sed de tio oni ne povas vivi.”
 
 
-FABELOJ 4
-
-
-Georgo pensis dum la nokto pri tiu interparolo. Lin mal-
-
-trankviligis io, pri kio li mem ne povis doni al si kalkulon; sed unu penso, kiu estis pli forta ol lia amo al Else, plene lin okupis. Tial li iris al Morten, kaj tion, kion li tie diris kaj faris, li antaŭe bone pripensis. Li proponis al li pro plej malgranda kaj plej facile plenumebla pago sian domon, li mem, kiel li diris, intencas enservigi sin sur ŝipo, al tio estas direktitaj ĉiuj liaj deziroj. Kiam Else tion aŭdis, ŝi pro ĝojo donis al li kison sur la buŝo, ĉar Mortenon ŝi amis ja plej multe.
+Georgo pensis dum la nokto pri tiu interparolo. Lin maltrankviligis io, pri kio li mem ne povis doni al si kalkulon; sed unu penso, kiu estis pli forta ol lia amo al Else, plene lin okupis. Tial li iris al Morten, kaj tion, kion li tie diris kaj faris, li antaŭe bone pripensis. Li proponis al li pro plej malgranda kaj plej facile plenumebla pago sian domon, li mem, kiel li diris, intencas enservigi sin sur ŝipo, al tio estas direktitaj ĉiuj liaj deziroj. Kiam Else tion aŭdis, ŝi pro ĝojo donis al li kison sur la buŝo, ĉar Mortenon ŝi amis ja plej multe.
 
 Frue matene Georgo volis forvojaĝi. La antaŭan vesperon,
 
@@ -3601,9 +2794,7 @@ kiam estis jam malfrue, li ekdeziris ankoraŭ unu fojon viziti Mortenon. Li iris
 
 En la sekvanta mateno antaŭ tagiĝo li ligis sian pakon, prenis sian manĝaĵkorbon kaj ekiris laŭlonge de la dunoj; oni tie povis iri pli facile ol sur la malfacila sabla vojo; krom tio li faris sufiĉe grandan vojiron flanken, ĉar li volis antaŭe esti en Fjaltring apud Bovbjerg, kie loĝis la angilvendisto, al kiu li promesis, ke li lin vizitos.
 
-La blua maro estis glata kiel spegulo, konkoj kuŝis ĉie ĉir-kaŭe, la ludilo de lia infaneco rompiĝadis sub liaj piedoj. Dum li tiel iris, el lia nazo montriĝis sango; tio estis nur senvalora cirkonstanco, sed eĉ tia povas havi signifon. Kelke da grandaj 177
-
-FABELOJ 4
+La blua maro estis glata kiel spegulo, konkoj kuŝis ĉie ĉir-kaŭe, la ludilo de lia infaneco rompiĝadis sub liaj piedoj. Dum li tiel iris, el lia nazo montriĝis sango; tio estis nur senvalora cirkonstanco, sed eĉ tia povas havi signifon. Kelke da grandaj
 
 
 sangaj gutoj falis sur lian manikon, li forviŝis ilin, haltigis la sangon, kaj ŝajnis al li, ke ĝia perdo malplipezigis al li la kapon kaj la koron. En la sablo floris malgranda mara brasiko; li derompis trunketon kaj fiksis ĝin al sia ĉapelo. Kuraĝa kaj bonhumora li volis esti, li iris ja en la malproksiman mondon,
@@ -3612,9 +2803,7 @@ sangaj gutoj falis sur lian manikon, li forviŝis ilin, haltigis la sangon, kaj 
 
 estas bona defendo.
 
-La suno staris jam alte sur la ĉielo, kiam li atingis la mallarĝan enveturejon, kiu kondukas el la Norda maro en Nis-
-
-sumfjordon. Li ekrigardis malantaŭen kaj rimarkis en sufiĉe granda distanco du rajdantojn, kiujn sekvis aliaj homoj piede; ŝajnis, ke ili tre rapidas, sed lin tio cetere ne povis interesi.
+La suno staris jam alte sur la ĉielo, kiam li atingis la mallarĝan enveturejon, kiu kondukas el la Norda maro en Nissumfjordon. Li ekrigardis malantaŭen kaj rimarkis en sufiĉe granda distanco du rajdantojn, kiujn sekvis aliaj homoj piede; ŝajnis, ke ili tre rapidas, sed lin tio cetere ne povis interesi.
 
 La boato troviĝis sur la alia flanko de la enveturejo; Geor-go vokis, ke ĝi lin prenu; sed kiam li kun la boatisto ne traveturis ankoraŭ duonon de la vojo, aperis la homoj, kiuj tiel rapidis alveni. Ili vokis, ili minacis, ili ordonis en la nomo de la leĝo. Georgo ne komprenis, kion tio povas signifi, tamen li opiniis, ke plej bone estas iri returne; li mem prenis remilon kaj direktis la boaton returne. En la sama momento la homoj ensaltis en la boaton, kaj antaŭ ol li komprenis, kion ili faras, ili ligis al li manojn per ŝnuro.
 
@@ -3622,9 +2811,7 @@ La boato troviĝis sur la alia flanko de la enveturejo; Geor-go vokis, ke ĝi li
 
 Ili lin akuzis ne pli kaj ne malpli ol pri tio, ke li mortigis homon. Oni trovis Mortenon kun tratranĉita gorĝo. Unu el la
 
-fiŝkaptistoj estis renkontinta Georgon hieraŭ malfrue vespere, 178
-
-FABELOJ 4
+fiŝkaptistoj estis renkontinta Georgon hieraŭ malfrue vespere,
 
 
 irantan laŭ la vojo al Morten. Krom tio oni sciis, ke Georgo ne la unuan fojon levis tranĉilon kontraŭ Mortenon. Li do certe estis la mortiginto, kaj nun oni devis meti lin en fidindan gardejon. La vera loko, kien ili devis lin venigi, estis Ringkjobing; sed la vojo estis malproksima, la vento havis la direkton okcidenten, malpli ol duonon da horo oni bezonis por transveturi la golfon, kaj de tie estis nur kvarono de la vojo ĝis Vosborg, kie troviĝis forta kastelo kun remparo kaj foskavo.
@@ -3633,16 +2820,9 @@ En la boato troviĝis frato de la tiea ĉefa servisto, li opiniis, ke ili certe 
 
 La sinpravigadon de Georgo oni ne volis aŭskulti, kelke da sangaj gutoj sur lia ĉemizo parolis kontraŭ li pli konvinke ol ĉio alia. Li konsciis sian senkulpecon, kaj ĉar li ĉi tie ne povis ja elmontri sian pravecon, li submetis sin al sia sorto.
 
-Ili eliris sur la teron ĝuste apud la malnova remparo, ma-
+Ili eliris sur la teron ĝuste apud la malnova remparo, malantaŭ kiu estis starinta la kastelo de la kavaliro Bugge, kien Georgo kun siaj adoptintaj gepatroj siatempe venis al la festeno, al la funebra festeno; tiuj kvar feliĉaj tagoj estis la luma punkto de lia tempo de juneco. Oni denove kondukis lin laŭ la sama vojo tra la herbejo al Vosborg, la siringa arbeto staris en plena florado, la altaj tilioj bonodoris, ŝajnis al li, kvazaŭ li nur hieraŭ estis ĉi tie.
 
-lantaŭ kiu estis starinta la kastelo de la kavaliro Bugge, kien Georgo kun siaj adoptintaj gepatroj siatempe venis al la festeno, al la funebra festeno; tiuj kvar feliĉaj tagoj estis la luma punkto de lia tempo de juneco. Oni denove kondukis lin laŭ la sama vojo tra la herbejo al Vosborg, la siringa arbeto staris en plena florado, la altaj tilioj bonodoris, ŝajnis al li, kvazaŭ li nur hieraŭ estis ĉi tie.
-
-En la okcidenta flankparto de la kastelo troviĝas la enire-jo al la malsupraj lokoj sub la alta ŝtuparo; de tie oni venas en malaltan arkaĵan kelon, el kiu Longmargareto estis kondukita al la ekzekutejo. ŝi estis formanĝinta kvin infanajn korojn kaj estis konvinkita, ke se ŝi ricevus ankoraŭ du, ŝi akirus la kapablon flugi kaj fari sin nevidebla. En la muro troviĝis mal-179
-
-FABELOJ 4
-
-
-granda mallarĝa senvitra truo por aero; la ekstere tiel ĉarme odorantaj tilioj ne povis sendi sian refreŝigan odoron tiel profunde malsupren; ĉi tie interne ĉio estis malagrabla, kruda kaj ŝima. Nur unu tabullito staris ĉi tie, sed pura konscienco estas mola kuseno, kaj tial malgraŭ ĉio Georgo povis dormi
+En la okcidenta flankparto de la kastelo troviĝas la enire-jo al la malsupraj lokoj sub la alta ŝtuparo; de tie oni venas en malaltan arkaĵan kelon, el kiu Longmargareto estis kondukita al la ekzekutejo. ŝi estis formanĝinta kvin infanajn korojn kaj estis konvinkita, ke se ŝi ricevus ankoraŭ du, ŝi akirus la kapablon flugi kaj fari sin nevidebla. En la muro troviĝis malgranda mallarĝa senvitra truo por aero; la ekstere tiel ĉarme odorantaj tilioj ne povis sendi sian refreŝigan odoron tiel profunde malsupren; ĉi tie interne ĉio estis malagrabla, kruda kaj ŝima. Nur unu tabullito staris ĉi tie, sed pura konscienco estas mola kuseno, kaj tial malgraŭ ĉio Georgo povis dormi
 
 trankvile kaj kviete.
 
@@ -3654,12 +2834,7 @@ Cetere li sidis tie ne longe, oni forkondukis lin en Ringkjo-bingon, kie oni lin
 
 La tempo, en kiu li vivis, tute ne estis simila al nia; al la kompatinda homo estis tre malfacile. Ne malproksima estis
 
-ankoraŭ la tempo, kiam vilaĝanaj domoj kaj eĉ tutaj vilaĝoj estis aligataj al novaj bienoj. Sub tiu regado koĉero kaj servistoj fariĝadis voktoj, kiuj povis kondamni malriĉulon pro plej malgranda eraro al perdo de lia kampo kaj al vergoj sub la malhonora kolono. En tiu aŭ alia loko troviĝis ankoraŭ ho-mo de tiu speco, kaj en Jutlando, malproksime de la reĝurbo Kopenhago kaj de la kleraj bonintencaj regantoj, oni ofte an-180
-
-FABELOJ 4
-
-
-koraŭ manipuladis kun la leĝo arbitre, kaj la malplej ĉefa estis tio, ke la afero de Georgo daŭris tre longe.
+ankoraŭ la tempo, kiam vilaĝanaj domoj kaj eĉ tutaj vilaĝoj estis aligataj al novaj bienoj. Sub tiu regado koĉero kaj servistoj fariĝadis voktoj, kiuj povis kondamni malriĉulon pro plej malgranda eraro al perdo de lia kampo kaj al vergoj sub la malhonora kolono. En tiu aŭ alia loko troviĝis ankoraŭ ho-mo de tiu speco, kaj en Jutlando, malproksime de la reĝurbo Kopenhago kaj de la kleraj bonintencaj regantoj, oni ofte ankoraŭ manipuladis kun la leĝo arbitre, kaj la malplej ĉefa estis tio, ke la afero de Georgo daŭris tre longe.
 
 Tre malvarme estis tie, kie li sidis. Kiam ĉio finiĝos? Senkulpe li estis ĵetita en suferojn kaj mizeron; tia estis lia sorto!
 
@@ -3677,11 +2852,7 @@ sur la tero, sed nur tiam, kiam la ventego kvietiĝis. i sonas tiel, kvazaŭ cen
 
 sian. Oni staras ĉiam sur sia propra grundo, sur la grundo de la hejmo, eĉ en fremda lando.
 
-Kiel atente li aŭskultadis la profundan ruliĝadon! Kiel forte ondiĝadis en liaj pensoj la rememoroj! Esti libera, libera, feli-
-
-ĉe libera, se eĉ sen plandoj ĉe la ŝuoj kaj kun flikita ĉemizo el maldelikataj fadenoj! De tempo al tempo ĉiam denove ekfla-181
-
-FABELOJ 4
+Kiel atente li aŭskultadis la profundan ruliĝadon! Kiel forte ondiĝadis en liaj pensoj la rememoroj! Esti libera, libera, feliĉe libera, se eĉ sen plandoj ĉe la ŝuoj kaj kun flikita ĉemizo el maldelikataj fadenoj! De tempo al tempo ĉiam denove ekfla-181
 
 
 madis en li la malnova fajro de juneco, kaj per kunpremita pugno li batadis la muron.
@@ -3692,9 +2863,7 @@ Norde de la Ringkjobinga golfo en unu drinkejo, en la
 
 posttagmezo antaŭ la forvojaĝo de Georgo kaj la okazinta
 
-hommortigo, renkontiĝis Niels-ŝtelisto kaj Morten. Oni trinkis kelke da glasoj, ne tiom multe por tro eksciti al iu la kapon, tamen sufiĉe por meti en moviĝadon la babileman bu-
-
-ŝon de Morten. Li parolis laŭte, fanfaronis, rakontis, ke li aĉetis al si domon kaj intencas edziĝi; kaj kiam Niels demandis, ĉu li havas por tio sufiĉe da mono, Morten fiere frapis la po-
+hommortigo, renkontiĝis Niels-ŝtelisto kaj Morten. Oni trinkis kelke da glasoj, ne tiom multe por tro eksciti al iu la kapon, tamen sufiĉe por meti en moviĝadon la babileman buŝon de Morten. Li parolis laŭte, fanfaronis, rakontis, ke li aĉetis al si domon kaj intencas edziĝi; kaj kiam Niels demandis, ĉu li havas por tio sufiĉe da mono, Morten fiere frapis la po-
 
 ŝon kaj diris:
 
@@ -3702,12 +2871,7 @@ hommortigo, renkontiĝis Niels-ŝtelisto kaj Morten. Oni trinkis kelke da glasoj
 
 Tiu fanfaronado kostis al li la vivon. Kiam li foriris, Niels lin sekvis kaj trapikis al li per tranĉilo la gorĝon, por forpreni de li la monon, kiu ne troviĝis.
 
-ĉion ĉi tion oni klarigis detale, sed por ni sufiĉas scii, ke Georgon oni liberigis. Sed kion li ricevis kiel kompenson pro tio, kion li dum longa tempo suferis en malliberejo kaj malvarmo, forpuŝita de la homoj? Nu, oni diris al li, ke li devas senti sin feliĉa, ke li estas senkulpa, ke li povas nun iri sian vojon. La urbestro donis al li kvin spesmilojn por la vojaĝo, kaj kelkaj urbanoj regalis lin per biero kaj bona manĝo. Tie ekzistis ankaŭ bonaj homoj! Ne ĉiuj ”pikmortigas, detiras la haŭton kaj metas en la kaserolon.” Sed la plej bona estis tio, ke la komercisto Bronne el Skagen, tiu sama, ĉe kiu Georgo antaŭ unu jaro volis sin enserviĝi, ĝuste en tiuj tagoj estis ne-182
-
-FABELOJ 4
-
-
-gocafere en Ringkjobing. Li aŭdis pri la tuta afero, komprenis kaj sentis, kiom multe Georgo suferis, kaj tial li decidis aranĝi por li pli bonan vivon, montri al li, ke ekzistas ankaŭ bonaj homoj.
+ĉion ĉi tion oni klarigis detale, sed por ni sufiĉas scii, ke Georgon oni liberigis. Sed kion li ricevis kiel kompenson pro tio, kion li dum longa tempo suferis en malliberejo kaj malvarmo, forpuŝita de la homoj? Nu, oni diris al li, ke li devas senti sin feliĉa, ke li estas senkulpa, ke li povas nun iri sian vojon. La urbestro donis al li kvin spesmilojn por la vojaĝo, kaj kelkaj urbanoj regalis lin per biero kaj bona manĝo. Tie ekzistis ankaŭ bonaj homoj! Ne ĉiuj ”pikmortigas, detiras la haŭton kaj metas en la kaserolon.” Sed la plej bona estis tio, ke la komercisto Bronne el Skagen, tiu sama, ĉe kiu Georgo antaŭ unu jaro volis sin enserviĝi, ĝuste en tiuj tagoj estis negocafere en Ringkjobing. Li aŭdis pri la tuta afero, komprenis kaj sentis, kiom multe Georgo suferis, kaj tial li decidis aranĝi por li pli bonan vivon, montri al li, ke ekzistas ankaŭ bonaj homoj.
 
 Post la malliberejo venis nun libereco, ĉiela regno, amo kaj koreco; ankaŭ tion li devis gustumi. Neniu pokalo de la vivo enhavas ekskluzive nur vermuton, neniu bona homo povus
 
@@ -3717,29 +2881,17 @@ regali homon nur per la maldolĉa kaliko da suferoj, des pli tion ne povas fari 
 
 Tio povis esti nomata vojaĝo! Tio povis esti nomata denove bone spiri, el la malvarma mallibereja aero veni en la varman sunlumon! La erikejo estis kovrita de floranta eriko, floroj vidiĝis abunde unu apud la alia, kaj la knabo-paŝtisto sidis sur la tombo de giganto kaj blovis per sia fluto, kiun li eltranĉis al si el ŝafa osto. Montriĝis la Fatamorgano, tiu belega aera fenomeno de la dezertoj, kun ŝvebantaj ĝardenoj kaj naĝantaj arbaroj, kaj samtempe ankaŭ tiu mirinda aera ondo, kiu estas konata sub la nomo ”Lokemann, kiu pelas sian ŝafaron.”
 
-Oni vojaĝis supren de Limfjord ĝis Skagen, el kie elmigris la viroj kun la longaj barboj, la Longobardoj, kiam en la tempo de granda malsato sub la reĝo Snio oni volis mortigi ĉiu-jn maljunulojn kaj infanojn, sed oni aprobis la proponon de unu nobla virino, nomata Gambaruk, kiu tie posedis bienojn, kaj kiu proponis, ke prefere la junaj homoj elmigru el la lan-183
-
-FABELOJ 4
-
-
-do. Pri tio Georgo sciis, tiel instruita li estis; kaj kvankam li ne konis la landon de la Longobardoj transe de la altaj Alpoj, li tamen sciis, kiel tie supozeble aspektas, ĉar li mem en sia kna-ba aĝo estis ja en la sudo, en la lando de la Hispanoj. Li memoris la tieajn amasojn da fruktoj, la ruga^jn granatajn floraĵojn, la zumadon, murmuradon kaj sonoradon de la abe-
+Oni vojaĝis supren de Limfjord ĝis Skagen, el kie elmigris la viroj kun la longaj barboj, la Longobardoj, kiam en la tempo de granda malsato sub la reĝo Snio oni volis mortigi ĉiu-jn maljunulojn kaj infanojn, sed oni aprobis la proponon de unu nobla virino, nomata Gambaruk, kiu tie posedis bienojn, kaj kiu proponis, ke prefere la junaj homoj elmigru el la lando. Pri tio Georgo sciis, tiel instruita li estis; kaj kvankam li ne konis la landon de la Longobardoj transe de la altaj Alpoj, li tamen sciis, kiel tie supozeble aspektas, ĉar li mem en sia kna-ba aĝo estis ja en la sudo, en la lando de la Hispanoj. Li memoris la tieajn amasojn da fruktoj, la ruga^jn granatajn floraĵojn, la zumadon, murmuradon kaj sonoradon de la abe-
 
 lujoj de la grandaj urboj; plej bele tamen estas en la hejma lando, kaj la hejmo de Georgo estis Danujo.
 
 Fine ili atingis ”Vendilskaga”n, kiel Skagen estas nomata en malnovaj Norvegaj kaj Islandaj skriboj. Sur la spaco de mejloj, nur en tiu aŭ alia loko interrompate de dunoj kaj plugteraj kampoj, etendiĝas kaj jam tiam etendiĝis la malnova Skagen kun sia okcidenta kaj orienta urbo ĝis la lumturo proksime de
 
-”Grenen”. Domoj kaj bienetoj troviĝis, kiel ankoraŭ nun, dis-
+”Grenen”. Domoj kaj bienetoj troviĝis, kiel ankoraŭ nun, disĵetite inter kunkunblovitaj sablaj montetoj, kiuj ofte ŝanĝas sian formon. De ĉiuj flankoj al la okulo prezentiĝas vera dezerto, kie la vento plensence ruliĝas en la sablo kaj kie mevoj, maraj hirundoj kaj sovaĝaj cignoj tiom multe krias, ke la oreloj doloras. Unu mejlon sudokcidente de ”Grenen” troviĝas
 
-ĵetite inter kunkunblovitaj sablaj montetoj, kiuj ofte ŝanĝas sian formon. De ĉiuj flankoj al la okulo prezentiĝas vera dezerto, kie la vento plensence ruliĝas en la sablo kaj kie mevoj, maraj hirundoj kaj sovaĝaj cignoj tiom multe krias, ke la oreloj doloras. Unu mejlon sudokcidente de ”Grenen” troviĝas
-
-”La Monteto” aŭ Malnova Skagen, kaj tie loĝis la komercis-
-
-to Bronne, tie de nun devis vivi Georgo. La domo estis gudrita, la flankaj konstruaĵoj anstataŭ tegmento havis sur si ren-versitan boaton, porkostaloj estis konstruitaj el ŝiprompaĵoj, barilo tie ne ekzistis, ĉar por kio oni ĝin bezonus! Sed sur ŝnuroj pendis en longaj vicoj, unu vico super la alia, tranĉ-
+”La Monteto” aŭ Malnova Skagen, kaj tie loĝis la komercisto Bronne, tie de nun devis vivi Georgo. La domo estis gudrita, la flankaj konstruaĵoj anstataŭ tegmento havis sur si ren-versitan boaton, porkostaloj estis konstruitaj el ŝiprompaĵoj, barilo tie ne ekzistis, ĉar por kio oni ĝin bezonus! Sed sur ŝnuroj pendis en longaj vicoj, unu vico super la alia, tranĉ-
 
 malfermitaj fiŝoj, por ke ili sekiĝu en la vento. La tuta bordo estis ankoraŭ kovrita de putrantaj haringoj, la reto ja apenaŭ estis ĵetita en la akvon, oni jam tiradis plenajn ĉarojn da haringoj sur la teron; estis tro multe da ili, oni ĵetadis ilin returne en la maron, aŭ oni lasadis ilin kuŝi kaj putri.
-
-
-FABELOJ 4
 
 
 La edzino kaj la filino de la komercisto kaj eĉ ĉiuj domanoj
@@ -3757,24 +2909,15 @@ Estis tial efektive tre feliĉa cirkonstanco, ke fraŭlino Klaro post tri semajn
 Dimanĉon antaŭ la forveturo ili ĉiuj estis en la preĝejo, por komuniiĝi. Granda kaj bela estis la preĝejo, Skotoj kaj Holan-danoj konstruis ĝin antaŭ kelke da jarcentoj, en malgranda distanco de la nuna urbo. i fariĝis iom kaduka, kaj la vojo supren kaj malsupren tra la profunda sablo estis tre malfacila, tamen oni faradis al si la rilate malgrandan penon, por veni en la domon de Dio, kanti sanktan preĝon kaj aŭskulti pre-dikon. La alte amasiĝinta moviĝema sablo leviĝis jam ĝis super la ĉirkaŭbara muro de la tombejo, tamen ĝis nun oni ĉiam ankoraŭ havis la eblon ŝirmi kontraŭ la sablo la tombojn.
 
 
-FABELOJ 4
-
-
-Tio estis la plej granda preĝejo sur la norda flanko de Limfjord. La virgulino Mario staris sur la altaro en natura grandeco, kun ora krono sur la kapo kaj kun la infano Jesuo sur la brako. En la ˛orejo estis skulptitaj la sanktaj apostoloj, kaj supre sur la muro oni vidis la portretojn de la malnovaj urbestroj kaj urbaj konsilanoj de Skagen kun iliaj subskriboj. La katedro estis ornamita per multekosta tranĉskulptaĵo. La su-no ĉarme lumis en la preĝejon, kaj ĝiaj radioj falis sur la la-tunan lustron kaj sur la malgrandan ŝipon, kiu pendis mal-
-
-supren de la plafono.
+Tio estis la plej granda preĝejo sur la norda flanko de Limfjord. La virgulino Mario staris sur la altaro en natura grandeco, kun ora krono sur la kapo kaj kun la infano Jesuo sur la brako. En la ˛orejo estis skulptitaj la sanktaj apostoloj, kaj supre sur la muro oni vidis la portretojn de la malnovaj urbestroj kaj urbaj konsilanoj de Skagen kun iliaj subskriboj. La katedro estis ornamita per multekosta tranĉskulptaĵo. La su-no ĉarme lumis en la preĝejon, kaj ĝiaj radioj falis sur la la-tunan lustron kaj sur la malgrandan ŝipon, kiu pendis malsupren de la plafono.
 
 Georgon ekposedis sankta, infane pura sento, tiel same kiel tiam, kiam li, estante ankoraŭ duone infano, staris en la riĉa Hispana preĝejo, sed ĉi tie li havis en si la konscion, ke li an-kaŭ apartenas al la komunumo.
 
 Post la prediko okazis la ceremonio de la komunio, li ricevis kun la aliaj la panon kaj la vivon, kaj hazarde okazis, ke li genuis tuj apude de fraŭlino Klaro. Sed liaj pensoj estis direktitaj plene al Dio kaj al la sankta ceremonio, tiel ke nur kiam ili leviĝis, li rimarkis, kiu estis lia najbaro; li vidis, kiel sur ŝiaj vangoj deruliĝis pezaj larmoj.
 
-Du tagojn post tio ŝi forveturis Norvegujon; Georgo labo-
+Du tagojn post tio ŝi forveturis Norvegujon; Georgo laboradis en la domo kaj okupadis sin je la fiŝkaptado, kaj en tiu tempo oni povis kapti ankoraŭ pli da fiŝoj ol nuntempe. ĉiun dimanĉon, kiam li sidis en la preĝejo kaj direktis siajn okulojn al la bildo de la patrino Mario sur la altara pentraĵo, liaj okuloj rigardis ankaŭ dum momento tiun lokon, kie fraŭlino Kla-ro estis genuinta flanke de li, kaj li pensis pri ŝi, li pensis pri tio, kiel kore bona ŝi estis en rilato al li.
 
-radis en la domo kaj okupadis sin je la fiŝkaptado, kaj en tiu tempo oni povis kapti ankoraŭ pli da fiŝoj ol nuntempe. ĉiun dimanĉon, kiam li sidis en la preĝejo kaj direktis siajn okulojn al la bildo de la patrino Mario sur la altara pentraĵo, liaj okuloj rigardis ankaŭ dum momento tiun lokon, kie fraŭlino Kla-ro estis genuinta flanke de li, kaj li pensis pri ŝi, li pensis pri tio, kiel kore bona ŝi estis en rilato al li.
-
-Venis la aŭtuno kun pluvo kaj neĝo; la akvo staris kaj kovris la tutan ĉirkaŭaĵon de la urbo, la tero ne povis enpreni en 186
-
-FABELOJ 4
+Venis la aŭtuno kun pluvo kaj neĝo; la akvo staris kaj kovris la tutan ĉirkaŭaĵon de la urbo, la tero ne povis enpreni en
 
 
 sin la tutan akvon, oni devis vadi aŭ eĉ veturi per boato. La ventego ĵetis ŝipojn unu post la alia sur la mortodonajn rifojn, estis neĝoventegoj kaj sabloventegoj, la sablo leviĝis ĉirkaŭ la domoj kaj amasiĝis tiel alte, ke la homoj elrampis tra la ka-mentuboj. Sed en ĉi tiu regiono tio estis nenio eksterordinara. Kompense estis varme kaj komforte en la loĝejoj, erikeja torfo kaj ŝiprompaĵa ligno kraketis en la fornoj, kaj la komercisto Bronne voĉlegis el malnova kroniko, legis pri la reĝido Hamlet el Danujo, kiu transŝipiĝis el Anglujo Jutlandon kaj donis batalon apud Bovberg. Lia tombo estis apud Ramme,
@@ -3797,12 +2940,7 @@ okuloj ĉe tio mirinde lumis, cetere ili ja de lia naskiĝo estis tiel nigraj ka
 
 Kantado kaj legado alternadis reciproke, bonstato estis
 
-sentebla en la domo, la familia vivo ampleksis ĉiujn en la do-mo, kaj ĉio estis bone tenata. La frotpurigitaj stanaj teleroj brilis, sub la plafono pendis kolbasoj kaj ŝj, da vintraj ŝtofoj tie estis granda abundo. Ion similan ni eĉ nun ankoraŭ povas trovi en multaj riĉaj vilaĝanaj bienetoj de la okciden-187
-
-FABELOJ 4
-
-
-ta bordo, kie troviĝas neelĉerpebla provizo de manĝaĵoj kaj en la ĉambroj regas plej granda pureco. Al tio oni ĝuste en nia tempo trovas tie tute rimarkindan gradon de saĝeco kaj bona humoro. Gastamo tie regas kiel en la tendo de Arabo.
+sentebla en la domo, la familia vivo ampleksis ĉiujn en la do-mo, kaj ĉio estis bone tenata. La frotpurigitaj stanaj teleroj brilis, sub la plafono pendis kolbasoj kaj ŝj, da vintraj ŝtofoj tie estis granda abundo. Ion similan ni eĉ nun ankoraŭ povas trovi en multaj riĉaj vilaĝanaj bienetoj de la okcidenta bordo, kie troviĝas neelĉerpebla provizo de manĝaĵoj kaj en la ĉambroj regas plej granda pureco. Al tio oni ĝuste en nia tempo trovas tie tute rimarkindan gradon de saĝeco kaj bona humoro. Gastamo tie regas kiel en la tendo de Arabo.
 
 Depost tiuj kvar feliĉaj tagoj de sia juneco, kiam Georgo
 
@@ -3825,16 +2963,11 @@ staras en granda malproksimeco de Malnova Skagen, tute
 apude de ”Grenen”. Kiam li alvenis sur la turo, la karboj sur la turniĝanta disko estis delonge estingiĝintaj kaj la suno staris jam alte. Sur la spaco de tuta mejlo de la plej ekstrema pinto de la bordo etendiĝis sablorifoj sub la akvo. Antaŭ ili hodiaŭ montriĝis kvar ŝipoj, kaj ŝajnis al li, ke inter ili li rimarkas per la lorno la ”Karen Bronne”, kiel estis nomata lia ŝipo.
 
 
-FABELOJ 4
-
-
 Kaj efektive tiel estis, la ŝipo estis alproksimiĝanta; Klaro kaj Georgo estis sur la ŝipo. La lumturo kaj preĝeja turo de Skagen aperis al ili kiel ardeo kaj cigno sur la blua akvo. Klaro sidis sur la ferdeko kaj vidis, kiel iom post iom elakviĝas la dunoj. Se la vento restus tiel favora, ili povus post unu horo atingi la hejmon; tiel proksime ili estis de ĝi kaj de la ĝojo, —
 
 tiel proksime ili estis de la morto kaj de morta angoro.
 
-Subite rompiĝis tabulo en la ŝipo, la akvo penetris inter-
-
-nen; oni penis ŝtopi la fendon, ĉiuj pumpiloj komencis labo-ri, ĉiujn velojn oni suprentiris, oni pendigis supre la flagon de alarmo. Ili estis en la distanco de ankoraŭ unu mejlo de la tero, oni vidis fiŝkaptistajn boatojn, sed en granda malproksimeco, la vento pelis ilin al la tero, la ondoj ankaŭ helpis, sed tio ne sufiĉis, la ŝipo komencis droni. Georgo forte ĉirkaŭprenis Klaron per sia dekstra brako.
+Subite rompiĝis tabulo en la ŝipo, la akvo penetris internen; oni penis ŝtopi la fendon, ĉiuj pumpiloj komencis labo-ri, ĉiujn velojn oni suprentiris, oni pendigis supre la flagon de alarmo. Ili estis en la distanco de ankoraŭ unu mejlo de la tero, oni vidis fiŝkaptistajn boatojn, sed en granda malproksimeco, la vento pelis ilin al la tero, la ondoj ankaŭ helpis, sed tio ne sufiĉis, la ŝipo komencis droni. Georgo forte ĉirkaŭprenis Klaron per sia dekstra brako.
 
 Per kiaj okuloj ŝi rigardis lin, kiam li en la nomo de Dio ĵetis sin kun ŝi en la maron! ŝi eligis krion, sed ŝi povis esti certa, ke li ŝin ne forlasos.
 
@@ -3842,14 +2975,10 @@ Kion kantis la kanto: ”Virgulinon tre belan kaj plenan de
 
 ĉarmo
 
-La reĝido karesis kun amo kaj varmo,” tion faris Georgo en la horo de angoro kaj danĝero. Nun alportis al li grandan utilon la cirkonstanco, ke li estis bona naĝisto; per la piedoj kaj per unu brako li penis naĝi antaŭen, la duan brakon li tenis forte ĉirkaŭ la juna knabino. Kiam li volis iom ripozi, li faris akvotretadon kaj uzis ĉiujn artaĵojn, kiujn li konis, por konservi tiom da fortoj, ke li povu atingi la teron. Li aŭdis, ke ŝi ekĝemas, li sentis, ke ŝi konvulsie ektremas, kaj li tenis ŝin des pli forte. Unu sola ondo transĵetiĝis super ŝi; la fluo denove ŝin levis. La akvo estis tiel profunda, tiel klara, ke al li dum 189
-
-FABELOJ 4
+La reĝido karesis kun amo kaj varmo,” tion faris Georgo en la horo de angoro kaj danĝero. Nun alportis al li grandan utilon la cirkonstanco, ke li estis bona naĝisto; per la piedoj kaj per unu brako li penis naĝi antaŭen, la duan brakon li tenis forte ĉirkaŭ la juna knabino. Kiam li volis iom ripozi, li faris akvotretadon kaj uzis ĉiujn artaĵojn, kiujn li konis, por konservi tiom da fortoj, ke li povu atingi la teron. Li aŭdis, ke ŝi ekĝemas, li sentis, ke ŝi konvulsie ektremas, kaj li tenis ŝin des pli forte. Unu sola ondo transĵetiĝis super ŝi; la fluo denove ŝin levis. La akvo estis tiel profunda, tiel klara, ke al li dum
 
 
-unu momento ŝajnis, ke li vidas en la profundo briletantan skombran rifon, aŭ eble tio estis la Levjatano mem, kiu volis ilin engluti. La nuboj ĵetadis ombron sur la akvon, kaj poste denove aperadis lumantaj sunradioj. Kriantaj birdoj en grandaj amasoj flugis super li, kaj la sovaĝaj anasoj, kiuj peze kaj dormeme naĝis sur la akvo, kun timego ekflugis supren an-taŭ la naĝanto. Sed liaj fortoj, kiel li sentis, elĉerpiĝadis; ĝis la tero estis ankoraŭ distanco de kelkaj kabloj, sed venis helpo, alproksimiĝis boato. Tamen sub la akvo staris — li tion klare vidis — blanka, sovaĝokule lin rigardanta figuro… ondo lin levis, la figuro ĵetis sin sur lin… li sentis ekpuŝon, antaŭ li fari-
-
-ĝis nokto, lia konscio malaperis.
+unu momento ŝajnis, ke li vidas en la profundo briletantan skombran rifon, aŭ eble tio estis la Levjatano mem, kiu volis ilin engluti. La nuboj ĵetadis ombron sur la akvon, kaj poste denove aperadis lumantaj sunradioj. Kriantaj birdoj en grandaj amasoj flugis super li, kaj la sovaĝaj anasoj, kiuj peze kaj dormeme naĝis sur la akvo, kun timego ekflugis supren an-taŭ la naĝanto. Sed liaj fortoj, kiel li sentis, elĉerpiĝadis; ĝis la tero estis ankoraŭ distanco de kelkaj kabloj, sed venis helpo, alproksimiĝis boato. Tamen sub la akvo staris — li tion klare vidis — blanka, sovaĝokule lin rigardanta figuro… ondo lin levis, la figuro ĵetis sin sur lin… li sentis ekpuŝon, antaŭ li fariĝis nokto, lia konscio malaperis.
 
 Sur la sablorifo staris ŝiprompitaĵo, la maro ĝvris, la blanka bekfiguro de la ŝipo estis apogita al ankro, kaj ĝia an-kra fero elstaris ĝuste ĝis la nivelo de la akvo. Georgo, kiun la fluo kun granda forto pelis antaŭen, surpuŝiĝis sur ĝin. Sen-forta li falis kun sia ŝarĝo, sed la sekvanta ondo denove levis lin kaj la knabinon.
 
@@ -3859,12 +2988,7 @@ La ŝipanoj kaptis ilin kaj tiris ilin en la boaton, la sango fluis de la vizaĝ
 
 Georgo ankoraŭ spiris; lin oni portis al la plej proksima
 
-domo en la dunoj. Iu kvazaŭ sub˛irurgo, kiu troviĝis sur tiu loko, sed kiu laŭ sia profesio estis forĝisto kaj butikisto, pro-190
-
-FABELOJ 4
-
-
-vizore bandaĝis Georgon, ĝis oni en la sekvanta tago povis venigi kuraciston el Gjorring.
+domo en la dunoj. Iu kvazaŭ sub˛irurgo, kiu troviĝis sur tiu loko, sed kiu laŭ sia profesio estis forĝisto kaj butikisto, provizore bandaĝis Georgon, ĝis oni en la sekvanta tago povis venigi kuraciston el Gjorring.
 
 La cerbo de la malsanulo estis atakita, li kuŝis en furioze-co kaj eligadis sovaĝajn kriojn; sed en la tria tago li fariĝis sen-konscia, lia vivo, kiel ŝajnis, pendis nur sur unu fadeno, kaj se
 
@@ -3872,32 +2996,24 @@ La cerbo de la malsanulo estis atakita, li kuŝis en furioze-co kaj eligadis sov
 
 ”Ni petu Dion, ke li evitu la morton; li tamen restos ja ho-mo.”
 
-Kaj efektive, la vivo tenis lin forte, la fadeno ne volis dis-
-
-ŝiriĝi, sed la fadeno de rememoroj disŝiriĝis, ĉiuj mensaj kapabloj malaperis, kaj tio estis terura. Restis nur vivanta korpo, korpo, kiu estis ricevonta returne sian sanon.
+Kaj efektive, la vivo tenis lin forte, la fadeno ne volis disŝiriĝi, sed la fadeno de rememoroj disŝiriĝis, ĉiuj mensaj kapabloj malaperis, kaj tio estis terura. Restis nur vivanta korpo, korpo, kiu estis ricevonta returne sian sanon.
 
 Georgo restis en la domo de la komercisto Bronne.
 
 ”Li ricevis ja sian mortigan malsanon per tio, ke li faris su-perhomajn penojn por savi al ni nian infanon,” diris la maljuna homo; ”nun li estas nia filo.”
 
-Oni nomis Georgon idioto, tio tamen ne estis la ĝusta es-
-
-primo; li estis kiel instrumento, kies kordoj malstreĉiĝis kaj ne povas plu soni. Nur por unu sola momento, por malmulte da
+Oni nomis Georgon idioto, tio tamen ne estis la ĝusta esprimo; li estis kiel instrumento, kies kordoj malstreĉiĝis kaj ne povas plu soni. Nur por unu sola momento, por malmulte da
 
 minutoj ili streĉiĝis, kaj ili eksonis. Malnovaj melodioj eksonis, apartaj taktoj, bildoj, ravantaj bildoj disruliĝis. Poste li denove sidis kun rigida rigardo kaj senpense; ni povas supozi, ke li ne suferis; la nigraj okuloj perdis sian brilon, ili similis al nigra spirnebulita vitro.
 
 ”Malfeliĉa idiota Georgo!” oni diradis.
 
-Tia estis li, kiu sub la koro de sia patrino estis portata por tiel riĉa kaj feliĉa surtera vivo, ke ”estis fiereco, terura malhumileco” deziri al si vivon post la tera aŭ kredi je ĝi. ĉiuj grandaj kapabloj de la animo estas do forĵetitaj? Nur malfacilaj 191
-
-FABELOJ 4
+Tia estis li, kiu sub la koro de sia patrino estis portata por tiel riĉa kaj feliĉa surtera vivo, ke ”estis fiereco, terura malhumileco” deziri al si vivon post la tera aŭ kredi je ĝi. ĉiuj grandaj kapabloj de la animo estas do forĵetitaj? Nur malfacilaj
 
 
 tagoj, doloro kaj trompiĝo estis lia sorto. Li estis belega bulbo, elŝirita el sia riĉa tero kaj ĵetita en la sablon, por forvelki!
 
-ĉu la estaĵo, kreita laŭ la bildo de Dio, havis neniam pli bonan, pli altan valoron? ĉu la tutaĵo estis kaj estas nur ludo de la hazardo? Ne! La amo de Dio devis kaj volis doni al li en alia vivo kompenson pro ĉio, kion li ĉi tie suferis kaj je kio li estis senigita. ”La Eternulo estas favorkora, kaj Lia boneco daŭ-
-
-ras eterne.” ĉi tiujn vortojn el la psalmoj de Davido kun kredo kaj konsolo parolis la pia maljuna komercistedzino, kaj la preĝo de ŝia koro estis, ke Dio baldaŭ liberigu Georgon de liaj suferoj, por ke li povu eniri en la vivon eternan.
+ĉu la estaĵo, kreita laŭ la bildo de Dio, havis neniam pli bonan, pli altan valoron? ĉu la tutaĵo estis kaj estas nur ludo de la hazardo? Ne! La amo de Dio devis kaj volis doni al li en alia vivo kompenson pro ĉio, kion li ĉi tie suferis kaj je kio li estis senigita. ”La Eternulo estas favorkora, kaj Lia boneco daŭras eterne.” ĉi tiujn vortojn el la psalmoj de Davido kun kredo kaj konsolo parolis la pia maljuna komercistedzino, kaj la preĝo de ŝia koro estis, ke Dio baldaŭ liberigu Georgon de liaj suferoj, por ke li povu eniri en la vivon eternan.
 
 Sur la tombejo, kie la sablo flugadis trans la muron, kuŝis la enterigita Klaro. ŝajnis, ke Georgo absolute ne pensas pri tio, ĝi ne apartenis al la rondo de liaj pensoj, kiu konsistis nur el fragmentoj el delonge malaperinta tempo. ĉiun dimanĉon
 
@@ -3905,9 +3021,7 @@ li akompanis la familion en la preĝejon kaj sidis tie silente kaj kun senpensa 
 
 Oni elkondukis lin el la preĝejo, kaj li diris, ke li sentas sin bone; al li ne ŝajnis, ke io al li mankas, li ne havis ian reme-moron pri tio. Tiel konfesis li, kiun Dio suferigis, kiun Dio ŝajne forĵetis. — Kaj Dio, nia kreinto estas plej saĝa kaj plej amanta, — kiu povas dubi pri tio? Nia koro kaj nia prudento tion komprenas, la Biblio tion konfirmas: ”Lia boneco daŭras eterne!”
 
-En Hispanujo, kie inter oranĝoj kaj laŭroj estas ĉirkaŭblo-vataj de varmaj ventetoj la oraj Maŭraj kupoloj, kie sonas 192
-
-FABELOJ 4
+En Hispanujo, kie inter oranĝoj kaj laŭroj estas ĉirkaŭblo-vataj de varmaj ventetoj la oraj Maŭraj kupoloj, kie sonas
 
 
 kantado kaj kastanjetoj, en belega domo sidis seninfana maljunulo, la plej riĉa komercisto. Tra la stratoj iris infanoj en procesio kun kandeloj kaj flirtantaj standardoj. Kiom multe el sia riĉeco li plej volonte fordonus, por posedi ankoraŭ siajn infanojn, sian filinon, aŭ ŝian infanon, kiu eble neniam ekvidis la lumon de ĉi tiu mondo, kaj kiamaniere ĝi povus
@@ -3918,9 +3032,7 @@ Jes, malfeliĉa infano! Efektive ankoraŭ infano, kaj tamen
 
 havanta jam la aĝon de pli ol tridek jaroj, — tiun aĝon Georgo atingis en Malnova Skagen.
 
-La fluganta sablo kuŝiĝis sur la tomboj ĝis la supra rando de la preĝeja muro; tamen la mortantoj volis kaj devis esti enterigataj ĉi tie, apud la antaŭe mortintaj, apud la parencoj kaj la karaj personoj. La komercisto Bronne kaj lia edzino ku-
-
-ŝis ĉi tie apud sia infano sub la blanka sablo.
+La fluganta sablo kuŝiĝis sur la tomboj ĝis la supra rando de la preĝeja muro; tamen la mortantoj volis kaj devis esti enterigataj ĉi tie, apud la antaŭe mortintaj, apud la parencoj kaj la karaj personoj. La komercisto Bronne kaj lia edzino kuŝis ĉi tie apud sia infano sub la blanka sablo.
 
 Estis frua sezono, la tempo de la ventegoj; la dunoj fumis; la maro ĵetadis altajn ondojn; la birdoj flugadis en grandaj amasoj, kiel nuboj en ventego, kriaĉante super la dunoj. ŝiprompiĝoj sekvis unu la alian sur la rifoj kaj sablaĵoj.
 
@@ -3930,9 +3042,7 @@ subite komencis iom tagiĝi en lia animo; lin atakis la sento de ia speciala mal
 
 ”Hejmen! hejmen!” li diris. Neniu lin aŭdis. Li eliris el la domo, al la dunoj, la sablo kaj malgrandaj ŝtonetoj batadis lian vizaĝon kaj turniĝadis ĉirkaŭ li. Li iris rekte al la preĝejo.
 
-La sablo, kiu amasiĝis ĉe la muro, atingis jam la altecon de duono de la fenestroj, sed sur la vojeto antaŭ la preĝejo la 193
-
-FABELOJ 4
+La sablo, kiu amasiĝis ĉe la muro, atingis jam la altecon de duono de la fenestroj, sed sur la vojeto antaŭ la preĝejo la
 
 
 sablo estis forŝovelita, la pordo de la preĝejo ne estis ŝlosita kaj ĝi estis facile malfermebla. Georgo eniris.
@@ -3943,12 +3053,7 @@ terura vetero. Sed Georgo estis en la domo de Dio, kaj dum ekstere malleviĝis l
 
 ŝajnis al li, ke li aŭdas la sonadon de la orgeno, sed tio estis la ventego kaj la ruliĝanta maro. Li sidiĝis en preĝeja seĝo, kaj la kandeloj ekbrulis, unu apud la alia, tia granda kvanto, kian li vidis nur en Hispanujo. Kaj ĉiuj bildoj de la malnovaj urbaj konsilanoj kaj urbestroj fariĝis vivantaj, ili eliris el la muro, kie ili staris de multe da jaroj, kaj sidiĝis en la ˛orejo. La pordoj de la preĝejo malfermiĝis, kaj eniris ĉiuj mortinto; feste vestitaj en la kostumoj de sia tempo; ili venis sub la sonoj de bela muziko kaj sidiĝis en la seĝoj Tiam eksonis sankta kanto simile al la ruliĝanta maro, kaj liaj maljunaj adoptintaj gepatroj de la Huusbyaj dunoj ankaŭ estis ĉi tie, kaj la maljuna komercisto Bronne kun sia edzino, kaj flanke de ili, tute apude de Georgo, sidis ilia milda ĉarma filino. ŝi donis al Georgo la manon, kaj ili iris al la altaro, kie ili iam antaŭe genuis, kaj la pastro kunmetis iliajn manojn kaj konsekris ilin al vivo en amo. Supre ekbruis sonoj de trombonoj, admirindaj kiel infanaj voĉoj plenaj de sopiro kaj de ĝojo, ili fariĝis plenaj or-genaj sonoj, uragano de plenaj, majestaj tonoj, ĉarmaj por la orelo kaj tamen tiel potencaj, ke ili povis krevigi tombajn ŝtonojn.
 
-Kaj la ŝipo, kiu pendis en la ˛orejo, malleviĝis antaŭ ili am-baŭ; ĝi fariĝis granda, belega, kun silkaj veloj kaj oritaj vel-194
-
-FABELOJ 4
-
-
-stangoj, ĉiu ŝnurego estis traplektita per silko, kaj la ankroj estis el ruĝa oro, tute tiel, kiel estis dirite en la malnova kanto. Kaj la gefianĉoj iris sur la ŝipon, kaj la tuta preĝeja komunumo sekvis, kaj tie troviĝis sufiĉe da loko kaj da belegeco por ili ĉiuj. La muroj kaj arkaĵoj de la preĝejo floris kiel la siringa arbetaĵo kaj la bonodoraj tilioj, milde bruetis la branĉoj kaj folioj. Ili kliniĝis, disŝoviĝis, kaj la ŝipo leviĝis kaj eknaĝis kun ili tra la maro, tra la aero. ĉiu preĝeja lumo estis malgranda stelo, kaj la ventoj kunigis sian voĉon kun la preĝeja kantado, kaj ĉiuj kantis kune:
+Kaj la ŝipo, kiu pendis en la ˛orejo, malleviĝis antaŭ ili am-baŭ; ĝi fariĝis granda, belega, kun silkaj veloj kaj oritaj velstangoj, ĉiu ŝnurego estis traplektita per silko, kaj la ankroj estis el ruĝa oro, tute tiel, kiel estis dirite en la malnova kanto. Kaj la gefianĉoj iris sur la ŝipon, kaj la tuta preĝeja komunumo sekvis, kaj tie troviĝis sufiĉe da loko kaj da belegeco por ili ĉiuj. La muroj kaj arkaĵoj de la preĝejo floris kiel la siringa arbetaĵo kaj la bonodoraj tilioj, milde bruetis la branĉoj kaj folioj. Ili kliniĝis, disŝoviĝis, kaj la ŝipo leviĝis kaj eknaĝis kun ili tra la maro, tra la aero. ĉiu preĝeja lumo estis malgranda stelo, kaj la ventoj kunigis sian voĉon kun la preĝeja kantado, kaj ĉiuj kantis kune:
 
 ”En amo, al majesto!” — ”Neniu vivo perdiĝu!” — ”Feliĉe
 
@@ -3968,33 +3073,21 @@ Georgon oni ne povis trovi, nek en la urbo, nek inter la
 dunoj, kie oni lin serĉis. Oni diris, ke la ondoj, ruliĝantaj ĝis alte sur la sablon, fortiris lin.
 
 
-FABELOJ 4
-
-
 Lia korpo kuŝis entombigita en la plej granda sarkofago, en la preĝejo mem. Dio en ventego ĵetis teron sur lian ĉerkon, la peza tavolo da sablo kuŝis kaj ankoraŭ nun kuŝas super ĝi.
 
 La flugsablo kovris la potencajn arkaĵojn, dunaj kreskaĵoj kaj sovaĝaj rozoj kreskas super la preĝejo, super kiu la migranto paŝas al ĝia turo, kiu simile al grandega tomboŝtono, tre malproksime videbla, elstaras el la sablo kaj montras al la ĉielo. Neniu reĝo ricevis pli belan tombon! Neniu malhelpas la ripozon de la mortinto, neniu tion scias aŭ sciis antaŭ ĉi tiu rakonto, — la ventego ĝin kantis al mi inter la dunoj.
-
-
-FABELOJ 4
 
 
 Pupludisto
 
 Sur la vaporŝipo troviĝis nejuna sinjoro kun tia gaja vizaĝo, ke, se tio ne mensogis, li devis esti la plej feliĉa homo sur la tero. Tia li ankaŭ estas, li diris; mi aŭdis tion el lia propra buŝo; li estis Dano, mia samlandano, kaj migranta direktoro de teatro. Sian tutan personaron li portis ĉiam kun si, ĝi kuŝis en granda kesto; li estis pupludisto. Lia denaskiĝa bona humoro, li rakontis, estis purigita kaj perfektigita de lernanto de la politeknika lernejo, kaj per tiu eksperimento li fariĝis plene feliĉa. En la komenco mi ne bone lmprenis, sed tiam li klare elmetis antaŭ mi sian tutan historion kaj jen ĝi estas.
 
-Mi donis prezentadon, li diris, en la poŝtejo de Slagelse, kaj mi havis brilantan prezentejon kaj brilantan publikon; es-ceptinte kelke da maljunaj virinoj, tio estis sole nekonfirmitaj infanoj. Subite aperas nigre vestita persono kun studenta eksteraĵo, ĝi sidiĝas, kaj ĝi ridas ĉiam en la ĝustaj lokoj, aplaŭ-
-
-das en la ĝustaj lokoj, per unu vorto ĝi estas tute neordinara rigardanto. Mi devis nepre scii, kiu li estas, kaj mi aŭdis, ke li estas lernanto de la politeknika lernejo, kiun oni elsendis, por klerigi la popolon en la provincoj. Precize je la oka horo mia prezentado finiĝis, la infanoj devis ja frue iri dormi, kaj oni devas ankaŭ pensi pri la oportuneco de sia publiko. Je la naŭa horo la politeknikisto komencis sian prelegon kaj siajn eks-perimentojn, kaj nun mi miaflanke estis lia aŭskultanto. Estis efektive interese aŭdi kaj vidi. La plejparto iris, kiel oni 197
-
-FABELOJ 4
+Mi donis prezentadon, li diris, en la poŝtejo de Slagelse, kaj mi havis brilantan prezentejon kaj brilantan publikon; es-ceptinte kelke da maljunaj virinoj, tio estis sole nekonfirmitaj infanoj. Subite aperas nigre vestita persono kun studenta eksteraĵo, ĝi sidiĝas, kaj ĝi ridas ĉiam en la ĝustaj lokoj, aplaŭdas en la ĝustaj lokoj, per unu vorto ĝi estas tute neordinara rigardanto. Mi devis nepre scii, kiu li estas, kaj mi aŭdis, ke li estas lernanto de la politeknika lernejo, kiun oni elsendis, por klerigi la popolon en la provincoj. Precize je la oka horo mia prezentado finiĝis, la infanoj devis ja frue iri dormi, kaj oni devas ankaŭ pensi pri la oportuneco de sia publiko. Je la naŭa horo la politeknikisto komencis sian prelegon kaj siajn eks-perimentojn, kaj nun mi miaflanke estis lia aŭskultanto. Estis efektive interese aŭdi kaj vidi. La plejparto iris, kiel oni
 
 
 diras, trans mian kapon, tamen tio estis por mi klara: se ni, homoj, povas ion tiaspecan elpensi kaj elkalkuli, tiam ni en efektiveco devas elteni pli multe, antaŭ ol oni ŝovas nin en la teron. Tio, kion li faris antaŭ ni, estis malgrandaj mirakloj, kaj tamen ĉio iris bone, kaj li montris al ni la naturan reciprokan rilaton. En la tempoj de Moseo kaj de la profetoj tia politeknika lernanto fariĝus unu el la saĝuloj de la lando, kaj en la mezaj jarcentoj oni lin forbruligus. Mi ne dormis dum la tuta nokto, kaj kiam mi en la sekvanta vespero donis prezentadon kaj la politeknikisto denove aperis, mi ricevis plej bonan humoron. Mi aŭdis pri unu aktoro, ke en siaj roloj li pensadis nur pri unu sola ĉarmulino el ĉiuj rigardantoj, por ŝi li ludadis, forgesante pri la tuta cetera publiko. La politeknikisto estis mia ”ŝi”, mia sola rigardanto, por kiu mi ludis. Post la fino de la prezentado oni elvokis ĉiujn pupojn, kaj min la politeknikisto invitis al si por glaso da vino. Li parolis pri mia pupa komedio, kaj mi parolis pri lia scienco, kaj mi opinias, ke ni ambaŭ havis grandan plezuron unu de la alia; sed la
 
-lasta vorto tamen restis mia, ĉar en lia parolado estis multe, pri kio li mem ne povis doni al si kalkulon, ekzemple pri la sperta regulo, ke peco da fero, kiu falas tra spiralo, fariĝas magneta. Jes, kio tio estas? La spirito venas sur ĝin, de kie ĝi venas? Tio, mi pensas, estas tiel same, kiel kun la homoj de ĉi tiu mondo; Dio faligas ilin tra la spiralo de la tempo, kaj tiam la spirito venas sur ilin, kaj tiam aperas ia Napoleono, Luter aŭ simila persono. ”La tuta mondo estas vico da mirindaĵoj,” diris mia nova amiko, ”sed ni tiel alkutimiĝis al ili, ke ni nomas ilin aferoj ĉiutagaj.” Kaj li parolis kaj klarigis, fine estis al mi tiel, kvazaŭ li deprenus la ŝelon de mia cerbo, kaj mi honeste konfesis, ke se mi ne estus jam maljuna ulo, mi tuj 198
-
-FABELOJ 4
+lasta vorto tamen restis mia, ĉar en lia parolado estis multe, pri kio li mem ne povis doni al si kalkulon, ekzemple pri la sperta regulo, ke peco da fero, kiu falas tra spiralo, fariĝas magneta. Jes, kio tio estas? La spirito venas sur ĝin, de kie ĝi venas? Tio, mi pensas, estas tiel same, kiel kun la homoj de ĉi tiu mondo; Dio faligas ilin tra la spiralo de la tempo, kaj tiam la spirito venas sur ilin, kaj tiam aperas ia Napoleono, Luter aŭ simila persono. ”La tuta mondo estas vico da mirindaĵoj,” diris mia nova amiko, ”sed ni tiel alkutimiĝis al ili, ke ni nomas ilin aferoj ĉiutagaj.” Kaj li parolis kaj klarigis, fine estis al mi tiel, kvazaŭ li deprenus la ŝelon de mia cerbo, kaj mi honeste konfesis, ke se mi ne estus jam maljuna ulo, mi tuj
 
 
 irus en politeknikan lernejon kaj lernus la artifikojn de la mondo, kaj malgraŭ tio mi estis unu el la plej feliĉaj homoj.
@@ -4007,16 +3100,12 @@ li demandis. ”Jes,” mi diris, ”mi estas feliĉa, kaj en ĉiuj urboj, en ki
 
 mia plej alta deziro estis efektiviĝonta, la pupoj estis fariĝontaj vivantaj kaj mi estis fariĝonta direktoro de homa trupo. Ni trinkis; li pakis ĉiujn miajn pupojn en la lignan keston, alligis
 
-ĝin al mia dorso kaj poste faligis min tra spiralo. Mi aŭdas ankoraŭ, kiel mi peze falis; mi kuŝis sur la tero kaj la tuta societo elsaltis el la kesto. La spirito venis sur ilin ĉiujn, ĉiuj 199
-
-FABELOJ 4
+ĝin al mia dorso kaj poste faligis min tra spiralo. Mi aŭdas ankoraŭ, kiel mi peze falis; mi kuŝis sur la tero kaj la tuta societo elsaltis el la kesto. La spirito venis sur ilin ĉiujn, ĉiuj
 
 
 pupoj aliformiĝis en bonegajn artistojn, tion asertis ili mem, kaj mi estis nur la direktoro. ĉio estis preta por la unua prezentado; la tuta trupo volis paroli kun mi, kaj la publiko an-kaŭ. La dancistino asertis, ke se ŝi ne starus sur unu piedo, la teatro farus fiaskon, ke ŝi estas en ĉiu rilato majstrino, kaj ŝi postulis, ke ŝi estu traktata konforme al tio. La pupo, kiu ludis la rolon de imperiestrino, postulis, ke oni ankaŭ ekster la scenejo honoru ŝin kiel imperiestrinon, ĉar alie ŝi perdus la necesan sintenadon. La juna homo, kiu estis uzata por eniri kun letero, tenis sin tiel same grave, kiel unua amanto, ĉar la malgrandaj personoj, li diris, en artista tutaĵo havas tian saman gravecon kiel la grandaj. La heroo postulis, ke lia tuta rolo konsistu nur el lokoj energiaj, ĉar ilin oni ordinare aplaŭdas.
 
-La primadono volis ludi nur en ruĝa tualeto, ĉar tia estas al ŝi plej bone alaspekta, — ŝi absolute ne volis aperi en blua vesto. ĉio faris sur mi la impreson de botelo plena de muŝoj, en kiu mi sidis meze interne, kaj mi estis la direktoro. Mi ne povis spiri, mi perdis la kapon, mi estis tiel mizera, kiel homo nur povas fariĝi. ŝajnis, ke mi trafis en tute novan homan generacion, mi deziris, ke mi ilin ĉiujn havu denove en la kesto kaj mi neniam estu fariĝinta direktoro. Mi tion diris al ili tute rekte, ke ili en efektiveco estas ja nur pupoj, kaj tiam ili mortigis min. Mi kuŝis en mia ĉambro sur la lito. Kiamaniere mi de la politeknikisto venis tien, tion li eble scias, mi tion ne scias. La luno lumis sur la plankon, kie la kesto de la pupoj kuŝis renversite kaj ĉiuj pupoj disĵetite. Kiel brasikoj kaj rapoj kuŝis la grandaj kaj malgrandaj, ĉiuj interkonfuzite. Sed mi ne estis mallaborema; rapide mi elsaltis el la lito, kaj ĉiuj pupoj iris denove en la keston, unuj kun la kapo antaŭen, aliaj kun la piedoj. Mi fermis la kovrilon kaj sidiĝis supre sur la 200
-
-FABELOJ 4
+La primadono volis ludi nur en ruĝa tualeto, ĉar tia estas al ŝi plej bone alaspekta, — ŝi absolute ne volis aperi en blua vesto. ĉio faris sur mi la impreson de botelo plena de muŝoj, en kiu mi sidis meze interne, kaj mi estis la direktoro. Mi ne povis spiri, mi perdis la kapon, mi estis tiel mizera, kiel homo nur povas fariĝi. ŝajnis, ke mi trafis en tute novan homan generacion, mi deziris, ke mi ilin ĉiujn havu denove en la kesto kaj mi neniam estu fariĝinta direktoro. Mi tion diris al ili tute rekte, ke ili en efektiveco estas ja nur pupoj, kaj tiam ili mortigis min. Mi kuŝis en mia ĉambro sur la lito. Kiamaniere mi de la politeknikisto venis tien, tion li eble scias, mi tion ne scias. La luno lumis sur la plankon, kie la kesto de la pupoj kuŝis renversite kaj ĉiuj pupoj disĵetite. Kiel brasikoj kaj rapoj kuŝis la grandaj kaj malgrandaj, ĉiuj interkonfuzite. Sed mi ne estis mallaborema; rapide mi elsaltis el la lito, kaj ĉiuj pupoj iris denove en la keston, unuj kun la kapo antaŭen, aliaj kun la piedoj. Mi fermis la kovrilon kaj sidiĝis supre sur la
 
 
 kesto. Tio estis bildo pentrinda! ĉu vi povas tion imagi al vi?
@@ -4046,9 +3135,6 @@ Kaj mi, kiel samlandano, kompreneble tuj rakontas tion
 pluen, simple nur por rakonti.
 
 
-FABELOJ 4
-
-
 Du fratoj
 
 Sur unu el la Danaj insuloj, kie malnovaj juĝejoj vidiĝas sur la grenkampoj kaj inter potencaj arboj de la fagarbaroj,
@@ -4065,9 +3151,7 @@ En la ĉambro sidis ĉe la brava patrino du el ŝiaj filoj, ankoraŭ malgrandaj,
 
 La pli aĝa el la knaboj aspektis petolema kaj kuraĝa, li amis legi pri la fortoj de la naturo, pri la suno kaj la steloj; nenia fabelo ŝajnis al li pli bela. Ho, kia feliĉo kredeble estas, se oni povas veturi por fari malkovrojn, aŭ elpensi, kiamaniere oni povas fari imitaĵon de la flugiloj de birdoj kaj poste havi la eblon flugi! Jes, tio povas esti nomata trovi la ĝuston! La patro estas prava, kaj la patrino estas prava; la vero kunkunte-nas la mondon.
 
-La pli juna frato estis pli silentema kaj tute fordonis sin al 202
-
-FABELOJ 4
+La pli juna frato estis pli silentema kaj tute fordonis sin al
 
 
 la libroj. Kiam li legis pri Jakob, ke li kovris sin per felo de kaprido por simili al Esav kaj per tio trompe rabi de li la rajton de unuenaskiteco kaj la benon de lia patro, li kolere pug-nigis sian malgrandan manon, plena de indigno kontraŭ la
@@ -4085,9 +3169,6 @@ klinis sin super la liton kaj kisis la frunton de la knabo. ”Fa-riĝu forta en
 La pli aĝa frato ne estis ankoraŭ en la lito, li staris ĉe la fenestro kaj rigardis la nebulajn figurojn, kiuj leviĝis de la herbejo. Tio ne estis elfaj knabinoj, kiuj tie dancis, kiel iam diris al li maljuna honesta servistino. Li havas jam pli bonajn sciojn pri tio, estis vaporo, kiu estis pli malpeza ol la aero kaj tial leviĝis. Falis falstelo, kaj en la sama momento la pensoj de la knabo leviĝis de la vaporoj de la tero alte supren al la brilanta meteoro. La steloj de la ĉielo brilis, oni havis la impreson, kvazaŭ longaj oraj fadenoj pendis de ili malsupren al la tero.
 
 
-FABELOJ 4
-
-
 ”Flugu kun mi!” io kantis kaj sonis en la koro de la knabo; kaj la potenca genio de la homaj generacioj portis lin pli rapide ol birdo, ol sago, ol ĉio tera, kio povas flugi, eksteren en la senliman universon, kie radioj, irantaj de stelo al stelo, ligis unu kun la alia la korpojn de la universo. Nia tero tur-niĝadis en la maldensa aero, vilaĝoj aperis dense unu tute apud la alia. Tra la sferoj sonis la vortoj:
 
 ”Kio estas proksima, kio estas malproksima, se la potenca
@@ -4098,12 +3179,7 @@ Kaj ĉiam ankoraŭ la knabo staris ĉe la fenestro kaj rigardis eksteren, la pli
 
 ”Anders kaj Hans ĉristian!”
 
-Danujo ilnas, la mondo konas ambaŭ fratojn — Oer-
-
-sted.
-
-
-FABELOJ 4
+Danujo ilnas, la mondo konas ambaŭ fratojn — Oersted.
 
 
 Malnova preĝeja sonorilo
@@ -4120,9 +3196,7 @@ pendis malsupren, verŝiĝis abunda pluvo, kaj la malvarma
 
 vento fariĝadis ĉiam pli forta; por la malriĉuloj tio ne estis agrabla tempo. La tagoj estis mallumaj, kaj ankoraŭ pli mallume estis en la malnovaj malgrandaj domoj. Unu el tiuj domoj staris kun frontono direktita al la strato, kun malaltaj fenestroj, malriĉa kaj malgrava laŭ sia aspekto, kaj tia ankaŭ estis la familio, kiu loĝis en ĝi, sed ĝi estis honesta kaj laborema, kun timo al Dio en la trezorejo de sia koro. Ankoraŭ unu infanon Dio estis baldaŭ sendonta al ili. La horo alvenis, la patrino kuŝis en doloroj kaj angoro; subite de la proksima preĝeja turo eksonis al ŝi la tonoj de la sonorilo, tiel profunde, tiel solene. Tiam estis festa horo, kaj la sonoj de la sonorilo plenigis la preĝantan virinon per religia sento kaj fido.
 
-ŝiaj pensoj leviĝis kun sincera amo al Dio, kaj en la sama momento ŝi naskis malgrandan filon kaj eksentis sin senfine ĝoja 205
-
-FABELOJ 4
+ŝiaj pensoj leviĝis kun sincera amo al Dio, kaj en la sama momento ŝi naskis malgrandan filon kaj eksentis sin senfine ĝoja
 
 
 kaj feliĉa. ŝajnis, kvazaŭ la sonorilo sur la turo elsonas ŝian
@@ -4143,9 +3217,7 @@ he la unua vizito en Marbach la urbo ne multe ŝanĝiĝis;
 
 estis ja ankoraŭ ne longe depost tiu tempo, kiam ili elmigris.
 
-La domoj staris kiel antaŭe kun pintaj frontonoj, malrektaj muroj kaj malaltaj fenestroj. Sur la tombejo aperis novaj tomboj, kaj tute apud la muro staris nun en la herbo la malnova 206
-
-FABELOJ 4
+La domoj staris kiel antaŭe kun pintaj frontonoj, malrektaj muroj kaj malaltaj fenestroj. Sur la tombejo aperis novaj tomboj, kaj tute apud la muro staris nun en la herbo la malnova
 
 
 sonorilo, kiu estis falinta de sia alta loko, krevis kaj ne povis plu sonori; sur ĝia loko nun troviĝis jam nova sonorilo
@@ -4160,11 +3232,7 @@ Scioj estis instruataj al li sub la konstantaj komandoj: ”Marŝ’!”
 
 ”Halt’!” ”Front’!” El tio jam povis io fariĝi.
 
-La malnova sonorilo certe estis venonta iam en fandofor-
-
-non, sed kio el ĝi fariĝos? Nu, tion oni neniel povis antaŭdi-ri, kaj tiel same oni neniel povis antaŭdiri, kio iam elvenos kaj elsonos el la sonorilo en la juna brusto. i havis en si meta-207
-
-FABELOJ 4
+La malnova sonorilo certe estis venonta iam en fandofornon, sed kio el ĝi fariĝos? Nu, tion oni neniel povis antaŭdi-ri, kaj tiel same oni neniel povis antaŭdiri, kio iam elvenos kaj elsonos el la sonorilo en la juna brusto. i havis en si meta-207
 
 
 lon, kiu laŭte eksonoris, kiu eksonoris malproksimen en la mondon. Ju pli malvaste fariĝis inter la lernejaj muroj kaj ju pli laŭtege tondris la komando ”Marŝ’!” ”Halt’!” ”Front’!”, des pli fortaj sonoj eliĝis el la brusto de la junulo, kaj li kantis tion, kio vivis en li, en la rondeto de siaj kamaradoj, kaj la tonoj sonis trans la limojn de la lando. Sed ne por tia celo li ricevis senpagan lernadon, vestojn kaj manĝadon. Li havis la nume-ron de la najleto, kiu devis esti en la granda horloĝa meą-
@@ -4177,12 +3245,7 @@ doloro penis nerimarkate atingi fremdan teron. Li devis forlasi la patrujon, for
 
 Al la malnova sonorilo estis bone, ĝi staris ŝirmita ĉe la Marbacha preĝeja muro! La vento blovis super ĝi kaj povus
 
-rakonti al ĝi pri tiu, ĉe kies naskiĝo ĝi sonoris, rakonti, kiel malvarme ĝi blovis super li, kiam li antaŭ nelonge tute senfortiĝinte falis en la arbaro de la najbara lando, kie lia tuta riĉeco kaj lia tuta espero je la estonteco konsistis nur en la manuskripto de ”Fiesko”. La vento povus rakonti pri liaj unuaj protektantoj, ĉiuj artistoj, kiuj unu post la alia forŝteliĝis de la prelegado kaj preferis amuziĝi per kegloj. La vento povus rakonti pri la pala forkurinto, kiu dum semajnoj, eĉ dum monatoj loĝis en mizera drinkejo, kie la mastro insultadis, furi-208
-
-FABELOJ 4
-
-
-ozadis kaj drinkadis, kie regis bruta gajeco, dum li kantis pri sia idealo. Malfacilaj tagoj, mallumaj tagoj! La koro devas mem suferi kaj sperti tion, kion ĝi iam per kanto proklamos al la mondo.
+rakonti al ĝi pri tiu, ĉe kies naskiĝo ĝi sonoris, rakonti, kiel malvarme ĝi blovis super li, kiam li antaŭ nelonge tute senfortiĝinte falis en la arbaro de la najbara lando, kie lia tuta riĉeco kaj lia tuta espero je la estonteco konsistis nur en la manuskripto de ”Fiesko”. La vento povus rakonti pri liaj unuaj protektantoj, ĉiuj artistoj, kiuj unu post la alia forŝteliĝis de la prelegado kaj preferis amuziĝi per kegloj. La vento povus rakonti pri la pala forkurinto, kiu dum semajnoj, eĉ dum monatoj loĝis en mizera drinkejo, kie la mastro insultadis, furiozadis kaj drinkadis, kie regis bruta gajeco, dum li kantis pri sia idealo. Malfacilaj tagoj, mallumaj tagoj! La koro devas mem suferi kaj sperti tion, kion ĝi iam per kanto proklamos al la mondo.
 
 Mallumaj tagoj, malvarmaj noktoj pasis super la malnova
 
@@ -4195,14 +3258,9 @@ do, kiel okazis, mirinde kaj belege iras la aferoj en la mondo.
 En Danujo, sur unu el la verdaj insuloj, kie kreskas la fago kaj kie leviĝas la multaj tomboj de gigantoj, vivis tre malriĉa knabo. Li havis sur si lignajn ŝuojn, kaj li portadis en malnova tuko manĝaĵon al sia patro, malriĉa lignaĵisto. La malriĉa knabo fariĝis la fiero de sia lando, li kreis belegajn marmorajn figurojn, kiuj kaŭzis admiron de la mondo, kaj ĝuste li estis tiu, kiu ricevis la honoran komision formi per argilo la figuron de nekomparebla grandeco, de radianta beleco, por ke ĝi povu
 
 
-FABELOJ 4
-
-
 esti fandita el metalo, — la figuron de tiu knabo, kies nomon la patro enskribis en sia Biblio: Johann Christoph Friedrich.
 
-Kaj en la formon fluis la ardanta metalo, la malnova pre-
-
-ĝeja sonorilo. Neniu pensis pri ĝia hejmo, neniu pensis pri ĝia ĉesiĝinta sonorado; la sonorilo fluis kun la alia metalo en la formon kaj formis la kapon kaj la bruston de la statuo, kiu nun staras en Stutgarto antaŭ la malnova palaco, sur tiu loko, kie li, kiun ĝi prezentas, dum sia vivo iradis luktante kaj stre-bante, sub la premado de la mondo, li, la knabo el Marbach, la edukato de la Karola lernejo, la forkurinto, la granda senmorta poeto de Germanujo, kiu kantis pri la liberiginto de Svisujo kaj pri la de Dio inspirita virgulino de Francujo.
+Kaj en la formon fluis la ardanta metalo, la malnova preĝeja sonorilo. Neniu pensis pri ĝia hejmo, neniu pensis pri ĝia ĉesiĝinta sonorado; la sonorilo fluis kun la alia metalo en la formon kaj formis la kapon kaj la bruston de la statuo, kiu nun staras en Stutgarto antaŭ la malnova palaco, sur tiu loko, kie li, kiun ĝi prezentas, dum sia vivo iradis luktante kaj stre-bante, sub la premado de la mondo, li, la knabo el Marbach, la edukato de la Karola lernejo, la forkurinto, la granda senmorta poeto de Germanujo, kiu kantis pri la liberiginto de Svisujo kaj pri la de Dio inspirita virgulino de Francujo.
 
 Estis suna tago, flagoj flirtis de turoj kaj tegmentoj de la reĝurbo Stutgarto, la preĝejaj sonoriloj sonoris por festo kaj
 
@@ -4213,9 +3271,6 @@ Estis suna tago, flagoj flirtis de turoj kaj tegmentoj de la reĝurbo Stutgarto,
 ĝuste cent jaroj depost tiu tago, kiam la sonorilo sur la turo de Marbach sonoris ĝojon kaj konsolon al la suferanta patrino, kiu estis naskanta sian infanon, malriĉan en la malriĉa domo, sed iam estontan riĉan homon, kies trezorojn benas la mondo; cent jaroj pasis depost la naskiĝo de la poeto de noblaj virinaj koroj, de la prikantanto de la grando kaj belo, depost la naskiĝo de Johann Christoph Friedrich Schiller.
 
 
-FABELOJ 4
-
-
 Dekdu per la poŝto
 
 Estis terure malvarme, la ĉielo estis stelklara, neniu venteto moviĝis. ”Bum!” oni rompis poton je la pordo. ”Paf!”
@@ -4224,9 +3279,7 @@ oni signalis per kanono la alvenon de la nova jaro. Estis Silvestra vespero; jen
 
 ”Trateratra!” la poŝto alvenis. La granda poŝta kaleŝo haltis antaŭ la urba pordego, ĝi venigis en si dekdu personojn, pli ĝi ne povis enpreni, ĉiuj lokoj estis okupitaj.
 
-”Hura! Hura!” oni kriis en la domoj, en kiuj la homoj fes-
-
-tis la Silvestran vesperon, kaj ĝuste nun ili leviĝis kun plenaj glasoj kaj toastis vivuon al la nova jaro.
+”Hura! Hura!” oni kriis en la domoj, en kiuj la homoj festis la Silvestran vesperon, kaj ĝuste nun ili leviĝis kun plenaj glasoj kaj toastis vivuon al la nova jaro.
 
 ”Sanon kaj kontentecon en la nova jaro!” ili proklamis,
 
@@ -4239,9 +3292,6 @@ Kiaj personoj tio estis? Ili havis pasportojn, ili havis ĉe si vojaĝan pakaĵo
 ”Bonan matenon!” ili diris al la gardostaranto ĉe la porde-go.
 
 ”Bonan matenon!” respondis ĉi tiu, ĉar la horloĝo ja estis jam batinta dekdu.
-
-
-FABELOJ 4
 
 
 ”Via nomo? Via profesio?” demandis la gardostaranto tiun,
@@ -4264,36 +3314,24 @@ Nun venis la tria; li aspektis kiel enkorpigita malsato, sed malgraŭ tio li ten
 
 Lia ornamo konsistis en bukedo da violoj, kiun li portis en la butontruo.
 
-”Marto, marŝ’!” ekkriis la kvara kaj donis puŝon al sia an-212
-
-FABELOJ 4
-
-
-taŭirinto. ”Marto, marŝ’! eniru en la gardistejon, ĉi tie troviĝas punĉo, mi ĝin flaras!” Sed tio tute ne estis vera, li volis nur fari al li Aprilan trompon. Per tio la kvara ulo sin enkondukis. Lia vigla karaktero plaĉis ĉe la unua vido, li tamen ne multe faris, li havis tro multe da festoj. ”Supren kaj malsupren, tio al mi plaĉas!” li diris; ”pluvo kaj sunlumo, eliri kaj eniri! Mi estas komisario de transloĝiĝoj, mi estas funebra invitisto, mi povoscias ankaŭ ridi, ankaŭ plori. Mi havas someran ŝtofon en mia kofro, estus tamen malsaĝe fari uzon de ĝi. Jen mi
+”Marto, marŝ’!” ekkriis la kvara kaj donis puŝon al sia antaŭirinto. ”Marto, marŝ’! eniru en la gardistejon, ĉi tie troviĝas punĉo, mi ĝin flaras!” Sed tio tute ne estis vera, li volis nur fari al li Aprilan trompon. Per tio la kvara ulo sin enkondukis. Lia vigla karaktero plaĉis ĉe la unua vido, li tamen ne multe faris, li havis tro multe da festoj. ”Supren kaj malsupren, tio al mi plaĉas!” li diris; ”pluvo kaj sunlumo, eliri kaj eniri! Mi estas komisario de transloĝiĝoj, mi estas funebra invitisto, mi povoscias ankaŭ ridi, ankaŭ plori. Mi havas someran ŝtofon en mia kofro, estus tamen malsaĝe fari uzon de ĝi. Jen mi
 
 estas! Por parado mi portas silkajn ŝtrumpojn kaj mufon.”
 
 Nun el la poŝta kaleŝo eliris sinjorino.
 
-”Fraŭlino Majo!” ŝi diris. Strange, ŝi portis somerajn ve-
-
-stojn kaj samtempe galoŝojn. ŝi havis sur si suke-verdan silkan jupon, ŝiaj haroj estis ornamitaj per anemonoj kaj samtempe tiel forte odoris konvalojn, ke la gardostaranto devis terni. ”Dio vin benu!” Per ĉi tiu afabla saluto ŝi sin prezentis.
+”Fraŭlino Majo!” ŝi diris. Strange, ŝi portis somerajn vestojn kaj samtempe galoŝojn. ŝi havis sur si suke-verdan silkan jupon, ŝiaj haroj estis ornamitaj per anemonoj kaj samtempe tiel forte odoris konvalojn, ke la gardostaranto devis terni. ”Dio vin benu!” Per ĉi tiu afabla saluto ŝi sin prezentis.
 
 ŝi estis ĉarma, kaj krom tio ŝi estis kantistino, ne tia, kiajn oni trovas en la teatroj, sed kiajn oni trovas en la arbaro; ne sub tendojn, ne, en la freŝan verdan arbaron ŝi iris kaj kantis por sia propra plezuro. En sia tualeta kesteto ŝi havis la ”Ligno-gravuroj” de ĉristian Winther, ĉar ili estas kiel la fagarbaro mem, kaj ”Malgrandaj versaĵo; de Riĉard”, ili estas kiel konvaloj.
 
 ”Nun venas la sinjorino, la juna sinjorino!” oni ekkriis en la kaleŝo, kaj tiam venis la sinjorino, juna kaj eleganta, fiera kaj bela. Oni povis tuj vidi, ke ŝi estis naskita por festi la ”Sep Dormantojn”. Festenon ŝi aranĝis en la plej longa tago, por ke oni havu tempon formanĝi ĉiujn diversajn manĝaĵojn. ŝi havis rimedojn por veturi en propra kaleŝo, tamen ŝi simile al la aliaj venis per la poŝto, por montri per tio, ke ŝi ne estas fiera.
 
 
-FABELOJ 4
-
-
 Cetere ŝi ne vojaĝis sola, ŝi estis akompanata de sia pli juna frato Julio.
 
 Li estis sufiĉe korpulenta, portis somerajn vestojn kaj paj-lan ĉapelon. Da pakaĵo li havis kun si nur malmulte, ĉar en la varmego ĝi estus por li tro laciga. Li havis ĉe si nur banman-telon kaj naĝpantalonojn; tio ne estas tre multe.
 
-Nun venis patrino, sinjorino aŭgusto, pogranda fruktisti-
-
-no, posedantino de pli ol unu da fiŝujoj, vilaĝanino en granda krinolino. ŝi estis grasa kaj varmega, ĉie ĉiam ĉeestis kaj mem iradis kun la bierbareleto al la homoj sur la vendejon.
+Nun venis patrino, sinjorino aŭgusto, pogranda fruktistino, posedantino de pli ol unu da fiŝujoj, vilaĝanino en granda krinolino. ŝi estis grasa kaj varmega, ĉie ĉiam ĉeestis kaj mem iradis kun la bierbareleto al la homoj sur la vendejon.
 
 ”Oni devas manĝi sian panon en ŝvito de sia vizaĝo,” tia estis ŝia devizo. ”Tio estas skribita en la Biblio, poste oni povas ankoraŭ aranĝi arbaran feston kaj doni aŭtunan festenon.” ŝi estis patrino.
 
@@ -4301,20 +3339,13 @@ Nun venis denove viro, pentristo laŭ sia profesio, majstro en afero de koloroj,
 
 Ruĝan, flavan, brunan aspekton baldaŭ ricevis la arbaro. La majstro povosciis fajfi kiel la nigra sturno, li estis lerta labo-ranto, kaj sian bierkruĉon li ĉirkaŭvolvis per brune-verdaj volvotrunkoj de lupolo. Tio ornamis, kaj pri ornamoj li estis kompetenta. Jen li staris kun sia farbujo, kiu estis lia tuta vo-jaĝa pakaĵo.
 
-Post li venis la bienposedanto; li pensis nur pri la tempo de semado, pri plugiloj kaj preparado de kampoj, iomete ankaŭ pri la ĉasplezuro. Li havis kun si hundon kaj pafilon, lia poŝo estis plena de nuksoj; oni aŭdis senĉese: klak! klak! Terure multe da pakaĵo li trenis kun si, interalie ankaŭ anglan plu-gilon. Lia tuta parolado koncernis nur aferojn agrikulturajn; oni tamen ne multe povis kompreni kaŭze de konstanta tu-214
-
-FABELOJ 4
-
-
-sado kaj spiregado de lia sekvanto; tio estis Novembro, kiu nun elpaŝis.
+Post li venis la bienposedanto; li pensis nur pri la tempo de semado, pri plugiloj kaj preparado de kampoj, iomete ankaŭ pri la ĉasplezuro. Li havis kun si hundon kaj pafilon, lia poŝo estis plena de nuksoj; oni aŭdis senĉese: klak! klak! Terure multe da pakaĵo li trenis kun si, interalie ankaŭ anglan plu-gilon. Lia tuta parolado koncernis nur aferojn agrikulturajn; oni tamen ne multe povis kompreni kaŭze de konstanta tusado kaj spiregado de lia sekvanto; tio estis Novembro, kiu nun elpaŝis.
 
 Li havis kataron, teruran kataron, tiel ke li prefere povus uzi litotukon anstataŭ poŝtukon, kaj tamen li devas helpi al la servistinoj, li diris, la malvarmumo jam pasos, kiam li komencos haki lignon, kaj tion li volis fari, ĉar li estis profesia lig-nosegisto. La vesperojn li pasigadis en pretigado de glitiloj, ĉar li sciis, ke post kelke da semajnoj oni fervore uzos tiun gajan ŝuaĵon.
 
 Nun la lasta venis la maljuna avineto kun la fajropoto; estis al ŝi tre malvarme, sed ŝiaj okuloj brilis kiel du klaraj steloj.
 
-ŝi portis florpoton kun malgranda abieto. ”in mi zorge vartados, por ke ĝi ĝis la Kristnasko fariĝu granda, atingu de la planko ĝis la plafono kaj paradu per brulantaj kandeloj, oritaj pomoj kaj nuksoj kaj aliaj ornamoj. La fajropoto varmigas kiel kahela forno, mi prenas el la poŝo la fabellibron kaj voĉ-
-
-legas al la infanoj, tiel ke ĉiuj infanoj en la ĉambro fariĝas si-lentaj, sed la pupoj sur la arbo fariĝas vivantaj kaj la malgranda vaksa anĝelo sur la plej supra pinto de la arbo skuas siajn oritajn flugilojn, deflugas de la verda supro kaj kisas ĉiujn en la ĉambro, ankaŭ la malriĉajn infanojn, kiuj staras ekstere kaj kantas la Kristnaskan kanton pri la stelo super Betlehem.”
+ŝi portis florpoton kun malgranda abieto. ”in mi zorge vartados, por ke ĝi ĝis la Kristnasko fariĝu granda, atingu de la planko ĝis la plafono kaj paradu per brulantaj kandeloj, oritaj pomoj kaj nuksoj kaj aliaj ornamoj. La fajropoto varmigas kiel kahela forno, mi prenas el la poŝo la fabellibron kaj voĉlegas al la infanoj, tiel ke ĉiuj infanoj en la ĉambro fariĝas si-lentaj, sed la pupoj sur la arbo fariĝas vivantaj kaj la malgranda vaksa anĝelo sur la plej supra pinto de la arbo skuas siajn oritajn flugilojn, deflugas de la verda supro kaj kisas ĉiujn en la ĉambro, ankaŭ la malriĉajn infanojn, kiuj staras ekstere kaj kantas la Kristnaskan kanton pri la stelo super Betlehem.”
 
 ”La kaleŝo povas nun forveturi,” diris la gardostaranto; ”la tuta dekduo estas jam ĉi tie. Nun antaŭaltu alia kaleŝo!”
 
@@ -4325,13 +3356,7 @@ legas al la infanoj, tiel ke ĉiuj infanoj en la ĉambro fariĝas si-lentaj, sed
 Kaj li eniris.
 
 
-FABELOJ 4
-
-
 Kiam la jaro estos pasinta, mi diros al vi, kion la dekdu alportis al vi, al mi kaj al ni ĉiuj. Nun mi tion ne Scias, kaj supozeble ili mem tion ne scias, — ĉar stranga estas la tempo, en kiu ni vivas.
-
-
-FABELOJ 4
 
 
 Sterkskarabo
@@ -4352,11 +3377,7 @@ Tiam elrampis la sterkskarabo.
 
 ”Via prudento certe estas ne en normala stato!” diris la
 
-forĝisto. ”Vi volas ankaŭ havi orajn hufumojn?” ”Orajn hu-
-
-fumojn!” respondis obstine la skarabo. ”ĉu mi ne estas tiel same bona kiel la granda besto, kiu ĉiam estas priservata, 217
-
-FABELOJ 4
+forĝisto. ”Vi volas ankaŭ havi orajn hufumojn?” ”Orajn hufumojn!” respondis obstine la skarabo. ”ĉu mi ne estas tiel same bona kiel la granda besto, kiu ĉiam estas priservata,
 
 
 striglata, vartata kaj ricevas bonan manĝadon kaj drinkadon?
@@ -4367,17 +3388,13 @@ striglata, vartata kaj ricevas bonan manĝadon kaj drinkadon?
 
 forĝisto. ”ĉu vi tion tute ne komprenas?”
 
-”Kompreni? Mi komprenas almenaŭ tion, ke tio estas mal-
-
-ŝato kontraŭ mi,” diris la skarabo, ”tio estas ofendo, — kaj nun mi tial eliras en la malproksiman mondon.”
+”Kompreni? Mi komprenas almenaŭ tion, ke tio estas malŝato kontraŭ mi,” diris la skarabo, ”tio estas ofendo, — kaj nun mi tial eliras en la malproksiman mondon.”
 
 ”Forportu vin!” ridante diris la forĝisto.
 
 ”Malĝentilulo!” diris la skarabo kaj eliris tra la pordo de la stalo, flugis malgrandan distancon kaj troviĝis en beleta malgranda florĝardeno, kie oni sentis la odoron de rozoj kaj la-vendo.
 
-”ĉu ĉi tie ne estas belege?” demandis malgranda makulko-
-
-lora kokcinelo. ”Kiel dolĉe odoras kaj kiel bele estas ĉi tie!”
+”ĉu ĉi tie ne estas belege?” demandis malgranda makulkolora kokcinelo. ”Kiel dolĉe odoras kaj kiel bele estas ĉi tie!”
 
 ”Mi alkutimiĝis al io pli bona,” respondis la skarabo. ”Vi nomas tion ĉi tie bela? ĉi tie oni ja eĉ ne havas sterkejon.”
 
@@ -4392,9 +3409,6 @@ vekiĝos kaj estos papilio.”
 i falis sur grandan pecon da herbotero. ĉi tie ĝi iom kuŝis kaj poste endormiĝis.
 
 
-FABELOJ 4
-
-
 Ho ve! Kia pluvego ekverŝiĝis! La skarabo vekiĝis de la
 
 plaŭdado de la akvo kaj volis tuj enrampi en la teron, sed ĝi ne povis tion fari. i ruliĝis, ĝi naĝis sur la ventro kaj sur la dorso, pri flugado oni eĉ ne povis pensi, ĝi certe neniam fori-ros vivanta de ĉi tiu loko. i kuŝis tie, kie ĝi kuŝis, kaj ĝi tie restis.
@@ -4405,14 +3419,9 @@ Du ranoj sidis sur la tolo; iliaj helaj okuloj lumis de ravite-co. ”ĉarmega v
 
 ”Mi volus nur scii,” diris la dua, ”ĉu la hirundo, kiu vagas tiel malproksimen, ĉu en siaj multaj vojaĝoj eksterlanden ĝi trovis ie pli bonan klimaton ol la nia. Tia pluvo, tia malsekeco! estas tute tiel, kvazaŭ oni kuŝus en malseka foskavo. Se oni pri tio ne ĝojas, tiam oni vere ne amas sian patrujon.”
 
-”Vi certe neniam estis en la stalo de la imperiestro?” de-
-
-mandis la skarabo. ”Tie la malsekeco estas varma kaj spica. Al tio mi alkutimiĝis; tio estas la klimato, kiu plej bone al mi plaĉas, sed bedaŭrinde oni ne povas preni ĝin kun si en la vojaĝon. ĉu ne ekzistas ĉi tie en la ĝardeno ia sterkejo, kie altklasaj personoj, kiel mi, povus loĝi kaj senti sin hejmece?”
+”Vi certe neniam estis en la stalo de la imperiestro?” demandis la skarabo. ”Tie la malsekeco estas varma kaj spica. Al tio mi alkutimiĝis; tio estas la klimato, kiu plej bone al mi plaĉas, sed bedaŭrinde oni ne povas preni ĝin kun si en la vojaĝon. ĉu ne ekzistas ĉi tie en la ĝardeno ia sterkejo, kie altklasaj personoj, kiel mi, povus loĝi kaj senti sin hejmece?”
 
 Sed la ranoj ĝin ne komprenis aŭ ne volis ĝmpreni.
-
-
-FABELOJ 4
 
 
 ”Mi neniam demandas duafoje,” diris la skarabo, kiam ĝi
@@ -4435,9 +3444,7 @@ poto; ĉi tiu en efektiveco ne devis kuŝi ĉi tie, sed ĉar ĝi jam kuŝis, ĝi
 
 diris tria kaj kvara el la patrinoj. ”Ili estas la plej ĉarmaj infanoj kaj tiel amuzaj! Ili neniam estas malbonkondutaj, krom la okazo, kiam ili havas ventrodoloron, sed tion oni ja ricevas tre facile en ilia aĝo.”
 
-Kaj poste ĉiu patrino rakontis pri siaj infanoj, kaj la infanoj enmiksis sin en la paroladon, kaj ili uzis la forkon, kiun ili 220
-
-FABELOJ 4
+Kaj poste ĉiu patrino rakontis pri siaj infanoj, kaj la infanoj enmiksis sin en la paroladon, kaj ili uzis la forkon, kiun ili
 
 
 havis malantaŭe ĉe la vosto, por pinĉi la skarabon je lia barbo.
@@ -4448,9 +3455,7 @@ havis malantaŭe ĉe la vosto, por pinĉi la skarabon je lia barbo.
 
 transe de la foskavo,” diris unu forfikulo; ”tiel malproksime, ke, kiel mi esperas, neniu el miaj infanoj iam venos tiel malproksimen, ĉar tio estus mia morto.
 
-”Mi tamen provos iri tiel malproksimen,” respondis la ska-
-
-rabo kaj foriris sen adiaŭdiro. Tiel estas plej bonmaniere.
+”Mi tamen provos iri tiel malproksimen,” respondis la skarabo kaj foriris sen adiaŭdiro. Tiel estas plej bonmaniere.
 
 ĉe la foskavo ĝi renkontis multajn el sia speco, ĉiuj estis sterkskaraboj.
 
@@ -4469,9 +3474,6 @@ Mi ankaŭ ricevis artriton en unu el la flugilartikoj, ĉar mi devis stari en tr
 Post tio la skarabo iris malsupren en la grasan ŝlimon. ĉi tie sidis tri junaj sterkskarabaj fraŭlinoj, kiuj honteme ridetis, ĉar ili ne sciis, kion ili devas diri.
 
 
-FABELOJ 4
-
-
 ”Ili ankoraŭ ne estas fianĉigitaj,” diris la patrino, kaj ili denove komencis rideti, sed nun pro embaraso.
 
 ”Eĉ en la stalo de la imperiestro mi ne vidis pli belajn!” gal-ante respondis la vojaĝanta skarabo.
@@ -4480,9 +3482,7 @@ FABELOJ 4
 
 ”Hura!” ekkriis la aliaj, kaj tiamaniere la skarabo subite vidis sin fianĉigita. Antaŭe fianĉiĝo, poste edziĝo; ekzistis ja nenio, por kio oni bezonus atendi.
 
-La sekvanta tago pasis tre bone, la postsekvanta pasis jam pli malrapide, sed en la tria tago estis ja necese pensi pri man-
-
-ĝaĵo por la edzino kaj eble ankaŭ por infanoj.
+La sekvanta tago pasis tre bone, la postsekvanta pasis jam pli malrapide, sed en la tria tago estis ja necese pensi pri manĝaĵo por la edzino kaj eble ankaŭ por infanoj.
 
 ”Mi lasis min kapti neatendite,” diris la skarabo al si mem,
 
@@ -4494,22 +3494,13 @@ Kaj li tion faris. Li malaperis; li forestis la tutan tagon, li forestis la tuta
 
 diris la patrino, ”resti ĉe mi kiel mia infano. Fi al la abomeninda kotanimulo, kiu ŝin trompe forlasis!”
 
-Nia skarabo dume troviĝis denove sur la landvojo; sur fo-
+Nia skarabo dume troviĝis denove sur la landvojo; sur folio de brasiko ĝi transŝipiĝis trans la foskavon. ĉirkaŭ la mateno venis subite du homoj, ili rimarkis la skarabon, prenis
 
-lio de brasiko ĝi transŝipiĝis trans la foskavon. ĉirkaŭ la mateno venis subite du homoj, ili rimarkis la skarabon, prenis
-
-ĝin, turnis ĝin ĉiuflanken, kaj ili ambaŭ estis mireginde in-struitaj, precipe la knabo. ”Alaho vidas la nigran skarabon en la nigra ŝtonaĵo de la nigra roko! ĉu ne tiel estas skribite en la Korano?” li demandis, kaj li tradukis la nomon de la ska-222
-
-FABELOJ 4
-
-
-rabo en la lingvon latinan kaj priskribis ĝian rason kaj ĝian naturon. La pli aĝa scienculo ne konsilis preni la skarabon hejmen; oni tie havas tiel same bonajn ekzemplerojn, li diris, kaj tio ne estis ĝentila parolo laŭ la opinio de la skarabo. Tial
+ĝin, turnis ĝin ĉiuflanken, kaj ili ambaŭ estis mireginde in-struitaj, precipe la knabo. ”Alaho vidas la nigran skarabon en la nigra ŝtonaĵo de la nigra roko! ĉu ne tiel estas skribite en la Korano?” li demandis, kaj li tradukis la nomon de la skarabo en la lingvon latinan kaj priskribis ĝian rason kaj ĝian naturon. La pli aĝa scienculo ne konsilis preni la skarabon hejmen; oni tie havas tiel same bonajn ekzemplerojn, li diris, kaj tio ne estis ĝentila parolo laŭ la opinio de la skarabo. Tial
 
 ĝi elflugis el lia mano, kaj, ĉar ĝiaj flugiloj elsekiĝis, ĝi flugis sufiĉe grandan distancon kaj atingis la oranĝerion, kie unu fenestro estis so^vita supren, kaj tial la skarabo tre oportune povis englitigi sin kaj sin enfosi en la freŝan sterkon. ĉi tie estas belege kaj bonguste!” ĝi ekkriis.
 
-Baldaŭ ĝi endormiĝis kaj sonĝis, ke la ĉevalo de la impe-
-
-riestro pereis kaj sinjoro la sterkskarabo ricevis ĝiajn orajn hufumojn kaj la promeson, ke ĝi ricevos ankoraŭ du. Kiel agrabla, kiel ĝojiga estas tia sonĝo! Kiam la skarabo vekiĝis, ĝi elrampis kaj rigardis ĉirkaŭen. Kia lukso estis ĉi tie en la oran-
+Baldaŭ ĝi endormiĝis kaj sonĝis, ke la ĉevalo de la imperiestro pereis kaj sinjoro la sterkskarabo ricevis ĝiajn orajn hufumojn kaj la promeson, ke ĝi ricevos ankoraŭ du. Kiel agrabla, kiel ĝojiga estas tia sonĝo! Kiam la skarabo vekiĝis, ĝi elrampis kaj rigardis ĉirkaŭen. Kia lukso estis ĉi tie en la oran-
 
 ĝerio! Grandaj ventumilformaj palmoj staris gracie kaj alte, la suno faris ilin kvazaŭ travideblaj, kaj sub ili kreskis abundo da verdaĵo kaj lumis floroj ruĝaj kiel fajro, flavaj kiel sukceno kaj blankaj kiel freŝe falinta neĝo.
 
@@ -4521,11 +3512,7 @@ diris la skarabo. ”i estas bonega manĝprovizejo. ĉi tie certe loĝas membroj
 
 Subite ia mano ĉirkaŭis la skarabon; ĝi estis kunpremita kaj turnata tien kaj reen.
 
-La malgranda filo de la ĝardenisto kaj unu el liaj kamara-
-
-doj troviĝis en la oranĝerio, ili vidis skarabon kaj volis amu-223
-
-FABELOJ 4
+La malgranda filo de la ĝardenisto kaj unu el liaj kamaradoj troviĝis en la oranĝerio, ili vidis skarabon kaj volis amu-223
 
 
 ziĝi per ĝi. Oni volvis ĝin en vinberan folion kaj metis en varman pantalonan poŝon. i turniĝadis tien kaj reen, sed ricevis pro tio fortan premon per la mano de la knabo, kiu rapide iris kun ĝi al granda lageto en la fino de la ĝardeno. ĉi tie la skarabo estis metita en malnovan rompitan lignan ŝuon,
@@ -4546,18 +3533,12 @@ interparoladon. ”ĉi tie mi povas ripozi, ĉi tie mi povas sidi en la sunlumo.
 
 ”Sed mi ne estas alligita,” respondis la muŝo kaj forflugis.
 
-”Nun mi konas la mondon,” diris la skarabo. ”i estas mal-
+”Nun mi konas la mondon,” diris la skarabo. ”i estas malnobla mondo, mi estas la sola konvena estaĵo en ĝi! Antaŭe oni rifuzas al mi orajn hufumojn, poste mi devas kuŝi sur
 
-nobla mondo, mi estas la sola konvena estaĵo en ĝi! Antaŭe oni rifuzas al mi orajn hufumojn, poste mi devas kuŝi sur
-
-malseka tolo, stari en trablovo, kaj fine oni ankoraŭ altrudas 224
-
-FABELOJ 4
+malseka tolo, stari en trablovo, kaj fine oni ankoraŭ altrudas
 
 
-al mi edzinon. Kiam mi faras rapidan paŝon en la malprok-
-
-siman mondon kaj vidas, kion oni povas havi kaj kion oni
+al mi edzinon. Kiam mi faras rapidan paŝon en la malproksiman mondon kaj vidas, kion oni povas havi kaj kion oni
 
 devus havi, venas tia homa bubaĉo, alligas min kaj fordonas min al la sovaĝa maro. Kaj dume la ĉevalo de la imperiestro promenas kun oraj hufumoj! ĉi tio min plej multe kolerigas.
 
@@ -4576,9 +3557,6 @@ de granda konstruaĵo; laca ĝi falis sur la delikatan, molan, longan kolhararon
 Nun mi komprenas; pro mi la ĉevalo ricevis orajn hufumojn!”
 
 
-FABELOJ 4
-
-
 Kaj ĉi tiu ideo metis la skarabon en bonan humoron
 
 ”En vojaĝoj oni fariĝas komprenema!” ĝi diris.
@@ -4588,9 +3566,6 @@ La radioj de la suno falis rekte sur ĝin, la suno lumis tiel belege. ”La mond
 ”Nun mi tamen malsupreniros kaj rakontos al la aliaj membroj de la familio, kiom multe oni faris por mi. Mi rakontos ĉiujn agrablaĵojn, kiujn mi ĝuis dum mia eksterlanda vojaĝo, kaj mi diros al ili, ke mi nun restos hejme tiel longe,
 
 ĝis la ĉevalo eluzos siajn orajn hufumojn.”
-
-
-FABELOJ 4
 
 
 Kion la patro faras, estas ĉiam ĝusta
@@ -4607,14 +3582,9 @@ vilaĝanan domon kun pajla tegmento. Musko kreskas sur ĝi,
 
 nesto de cikonio estas sur la supro de la tegmento. La cikonio neniam mankas; la muroj estas malrektaj, la fenestroj estas malaltaj, kaj nur unu el ili estas malfermebla. La bakfor-no elstaras kiel malgranda dika ventro, kaj la siringa arbetaĵo kliniĝas super la barilon, apud kiu troviĝas marĉeto kun anaso aŭ junaj anasidoj ĝuste sub la kripla saliko. Krom tio troviĝas ankaŭ ĉenhundo, kiu bojas kontraŭ ĉio kaj ĉiu.
 
-uste tia vilaĝana dometo staris tie en la kamparo, kaj en la dometo loĝis paro da maljunaj homoj, vilaĝano kaj vila-
-
-ĝanino. Kvankam ili posedis tre malmulte, ili havis ankoraŭ ion superfluan, tio estis ĉevalo, kiu ordinare paŝtiĝadis ĉe la foskavoj apud la landvojo. Patro rajdadis sur ĝi en la urbon, la najbaroj pruntadis ĝin kaj faradis pro tio iajn kontraŭser-vojn, tamen estus pli profite por la maljuna paro vendi la ĉevalon aŭ interŝanĝi ĝntraŭ tio aŭ alio, kio donus pli grandan profiton. Sed kontraŭ kio interŝanĝi?
+uste tia vilaĝana dometo staris tie en la kamparo, kaj en la dometo loĝis paro da maljunaj homoj, vilaĝano kaj vilaĝanino. Kvankam ili posedis tre malmulte, ili havis ankoraŭ ion superfluan, tio estis ĉevalo, kiu ordinare paŝtiĝadis ĉe la foskavoj apud la landvojo. Patro rajdadis sur ĝi en la urbon, la najbaroj pruntadis ĝin kaj faradis pro tio iajn kontraŭser-vojn, tamen estus pli profite por la maljuna paro vendi la ĉevalon aŭ interŝanĝi ĝntraŭ tio aŭ alio, kio donus pli grandan profiton. Sed kontraŭ kio interŝanĝi?
 
 ”Tion vi, patreto, komprenos plej bone!” diris la virino.
-
-
-FABELOJ 4
 
 
 ”Nun ĝuste estas foiro en la plej proksima vilaĝo, rajdu tien, vendu la ĉevalon aŭ faru bonan interŝanĝon. Kion vi faras, estas ĉiam ĝusta. Rajdu al la foiro!”
@@ -4637,9 +3607,7 @@ La negoco estis finita, kaj nun la vilaĝano povus iri retur-ne, ĉar li atingis
 
 abunde kovrita de lano.
 
-”Tion mi volus havi!” pensis la vilaĝano. ”ĉe niaj foskavoj 228
-
-FABELOJ 4
+”Tion mi volus havi!” pensis la vilaĝano. ”ĉe niaj foskavoj
 
 
 ne mankus al ĝi herbo, kaj en la vintro oni povus preni ĝin al si en la loĝejon. En efektiveco estus por ni pli ĝuste teni ŝafon ol bovinon. ĉu ni faros interŝanĝon?”
@@ -4652,17 +3620,11 @@ tion volonte, kaj tiamaniere la interŝanĝo estis farita, kaj la vilaĝano iris
 
 ”Kian grason kaj kiajn plumojn ĝi havas! i bone aspektus en nia marĉeto! Tiam patrino havus do ion, por kio ŝi povus kolekti siajn ŝelojn! Ofte ŝi diris: ”bone estus, se ni havus anseron!” Nun ŝi povas ĝin ricevi, kaj ŝi ĝin ricevos! ĉu vi volas interŝanĝi? Pro via ansero mi donos al vi la ŝafon kaj ankoraŭ sinceran dankon!”
 
-Nu, tion la alia certe volis, kaj tiamaniere ili faris inter-
-
-ŝanĝon; la vilaĝano ricevis la anseron. Li troviĝis proksime de la urbo, la puŝiĝado sur la vojo pligrandiĝis, estis svarmado de homoj kaj bestoj. ĉiuj iris laŭlonge de la vojo, preter la terpoma kampo de la ŝosea impostisto; sur tiu kampo staris alligita la kokino de la impostisto, por ke ĝi ne forkuru en la
+Nu, tion la alia certe volis, kaj tiamaniere ili faris interŝanĝon; la vilaĝano ricevis la anseron. Li troviĝis proksime de la urbo, la puŝiĝado sur la vojo pligrandiĝis, estis svarmado de homoj kaj bestoj. ĉiuj iris laŭlonge de la vojo, preter la terpoma kampo de la ŝosea impostisto; sur tiu kampo staris alligita la kokino de la impostisto, por ke ĝi ne forkuru en la
 
 ĝenerala konfuzo kaj ne malaperu por ĉiam. La kokino palpe-brumadis per unu okulo kaj aspektis sufiĉe bone. ”Kluk, kluk!” ĝi kriadis; kion ĝi pensis ĉe tio, mi ne povas diri, sed kiam la vilaĝano ĝin ekvidis, li pensis: tio estas la plej bela kokino, kian mi iam vidis, ĝi estas pli bela ol la kokino de la pastro; mi volus ĝin havi. Kokino ĉiam trovas por si grajnon,
 
-ĝi preskaŭ mem povas zorgi pri si! Mi opinias, ke estus bona interŝanĝo, se mi ricevus ĝin pro la ansero. ”ĉu vi volas inter-
-
-ŝanĝi kun mi?” li demandis. ”Interŝanĝi?” demandis la alia, 229
-
-FABELOJ 4
+ĝi preskaŭ mem povas zorgi pri si! Mi opinias, ke estus bona interŝanĝo, se mi ricevus ĝin pro la ansero. ”ĉu vi volas interŝanĝi kun mi?” li demandis. ”Interŝanĝi?” demandis la alia,
 
 
 ”nu, tio ne estus tre malbona!” Kaj ili faris la interŝanĝon La ŝosea impostisto ricevis la anseron, kaj la vilaĝano la kokinon.
@@ -4685,9 +3647,7 @@ interŝanĝe la kokinon, ricevis la pomojn kaj eniris en la drin-kejon rekte al 
 
 ”Sss! sss! Kio estis tiu stranga sono ĉe la forno? La pomoj komencis rostiĝi.”
 
-”Kio tio estas?” Tion ili baldaŭ sciiĝis, la tutan historion pri 230
-
-FABELOJ 4
+”Kio tio estas?” Tion ili baldaŭ sciiĝis, la tutan historion pri
 
 
 la ĉevalo, kiu estis interŝanĝita kontraŭ bovino kaj tiel ĉiam pli malsupren ĝis la putraj pomoj.
@@ -4698,9 +3658,7 @@ hejmen!” diris la angloj. ”Mi ricevos kisojn, ne batojn!” respondis la vil
 
 patrino diros: kion patro faras, estas ĉiam ĝusta!”
 
-”ĉu ni vetu?” ili demandis. ”Tutajn barelojn da oraj mone-
-
-roj!”
+”ĉu ni vetu?” ili demandis. ”Tutajn barelojn da oraj moneroj!”
 
 ”Mi estos kontenta de unu buŝelo!” respondis la vilaĝano,
 
@@ -4712,9 +3670,7 @@ min mem kaj patrinon.”
 
 La veturilo de la drinkejmastro haltis antaŭ la pordo, la
 
-angloj eniris, la vilaĝano eniris, la putraj pomoj estis metitaj en la veturilon, kaj fine ili alveturis antaŭ la domo de la vila-
-
-ĝano.
+angloj eniris, la vilaĝano eniris, la putraj pomoj estis metitaj en la veturilon, kaj fine ili alveturis antaŭ la domo de la vilaĝano.
 
 ”Bonan vesperon, patrino!”
 
@@ -4732,20 +3688,13 @@ Tio estis bela interŝanĝo!”
 
 ”Jes, sed la bovinon mi denove interŝanĝis kontraŭ ŝafo!”
 
-”Tio certe estas ankaŭ pli bona!” diris la virino. ”Vi agas ĉiam pripensite. Por ŝafo ni havas tute sufiĉe da herbo. Nun ni povas havi ŝafan lakton, ŝafan fromaĝon kaj lanajn ŝtrumpojn, eĉ lanajn noktajn jakojn. Tion bovino ne donas; ĝi per-231
-
-FABELOJ 4
-
-
-das siajn harojn! Vi estas tre pripensema kaj prudenta ho-
+”Tio certe estas ankaŭ pli bona!” diris la virino. ”Vi agas ĉiam pripensite. Por ŝafo ni havas tute sufiĉe da herbo. Nun ni povas havi ŝafan lakton, ŝafan fromaĝon kaj lanajn ŝtrumpojn, eĉ lanajn noktajn jakojn. Tion bovino ne donas; ĝi perdas siajn harojn! Vi estas tre pripensema kaj prudenta ho-
 
 mo!”
 
 ”Sed la ŝafon mi interŝanĝis kontraŭ ansero!”
 
-”ĉu efektive ni havos en ĉi tiu jaro Sanktmartenan anse-
-
-ron, patreto? Vi ĉiam pensas nur pri tio, ke vi faru al mi ĝojon! Tio estis ĉarmega ideo de via flanko! La anseron ni povas alligi tie sur la herbo, kaj tiam ĝi ĝis la Sankta Marteno fariĝos ankoraŭ pli grasa!”
+”ĉu efektive ni havos en ĉi tiu jaro Sanktmartenan anseron, patreto? Vi ĉiam pensas nur pri tio, ke vi faru al mi ĝojon! Tio estis ĉarmega ideo de via flanko! La anseron ni povas alligi tie sur la herbo, kaj tiam ĝi ĝis la Sankta Marteno fariĝos ankoraŭ pli grasa!”
 
 ”Sed la anseron mi denove interŝanĝis kontraŭ kokino!”
 
@@ -4759,9 +3708,7 @@ diris la edzo.
 
 ”Nun mi devas vin kisi!” ekkriis la virino plena de ĝojo.
 
-”Dankon al vi, mia kara edzo! Mi ion rakontos al vi. Kiam vi forestis, mi havis la intencon prepari por vi tre bonan man-
-
-ĝaĵon: ovaĵon kun ŝenoprazo. La ovojn mi havis, la ŝenoprazon mi ne havis. Tial mi iris al la edzino de la lernejestro. Mi scias certe, ke ili havas ŝenoprazon, sed la virino estas avaru-lino, tiu maljuna azenino! Mi petis, ke ŝi pruntu al mi iom.
+”Dankon al vi, mia kara edzo! Mi ion rakontos al vi. Kiam vi forestis, mi havis la intencon prepari por vi tre bonan manĝaĵon: ovaĵon kun ŝenoprazo. La ovojn mi havis, la ŝenoprazon mi ne havis. Tial mi iris al la edzino de la lernejestro. Mi scias certe, ke ili havas ŝenoprazon, sed la virino estas avaru-lino, tiu maljuna azenino! Mi petis, ke ŝi pruntu al mi iom.
 
 Prunti! ŝi diris, nenio kreskas en nia ĝardeno, eĉ putra pomo tie ne troviĝas; eĉ tion mi ne povus al vi prunti! Nun mi povas prunti al ŝi dek, kaj eĉ plenan sakon! Kia ĝojo, patreto!”
 
@@ -4772,15 +3719,9 @@ Kaj ŝi kisis lin sur la buŝo.
 Kaj al la vilaĝano, kiu ricevis ne puŝojn, sed kisojn, ili donis barelon da oraj moneroj.
 
 
-FABELOJ 4
-
-
 Jes, tio ĉiam estas rekompencata, se la edzino konscias kaj konfesas, ke patro estas pli saĝa kaj ke ĉio, kion li faras, estas ĉiam ĝusta.
 
 Vidu, tio estas bona historio! Mi aŭdis ĝin, kiam mi estis malgranda infano, kaj nun vi ankaŭ ĝin aŭdis kaj vi scias, ke kion patro faras, ĉiam estas ĝusta.
-
-
-FABELOJ 4
 
 
 Neĝulo
@@ -4805,9 +3746,7 @@ Se mi povus tion fari, mi irus nun malsupren sur la glacion por glitkuri, kiel m
 
 ”For, for!” bojis la maljuna ĉenhundo. i estis iom raŭka,
 
-ĝi estis tia depost la tempo, kiam ĝi ĉesis esti ĉambra hundo kaj kuŝi sub la forno. ”La suno jam instruos al vi kuri! Tion mi 234
-
-FABELOJ 4
+ĝi estis tia depost la tempo, kiam ĝi ĉesis esti ĉambra hundo kaj kuŝi sub la forno. ”La suno jam instruos al vi kuri! Tion mi
 
 
 vidis en la pasinta jaro ĉe via antaŭulo. For, for, kaj for ili estas ĉiuj!”
@@ -4824,20 +3763,14 @@ sentas, ke li aludas al mi pri ia malagrablaĵo. Tiu, kiu min pri-radiis kaj rig
 
 ”For, for!” bojis la hundo, turnis sin trifoje kaj poste kuŝiĝis en sia dometo por dormi.
 
-Efektive la vetero ŝanĝiĝis. Densa kaj malseka nebulo kuŝi-
+Efektive la vetero ŝanĝiĝis. Densa kaj malseka nebulo kuŝiĝis matene sur la tuta ĉirkaŭaĵo. Mallonge antaŭ la leviĝo de la suno komenciĝis malgranda blovado. La vento estis glacia, la frosto tremigis, sed kia belega vido prezentiĝis, kiam leviĝis la suno! ĉiuj arboj kaj arbetaĵoj staris kovritaj de prujno. La regiono similis al tuta arbaro da blankaj koraloj. Estis tiel, kvazaŭ ĉiuj branĉoj estas kovritaj de blindige blankaj floraĵoj.
 
-ĝis matene sur la tuta ĉirkaŭaĵo. Mallonge antaŭ la leviĝo de la suno komenciĝis malgranda blovado. La vento estis glacia, la frosto tremigis, sed kia belega vido prezentiĝis, kiam leviĝis la suno! ĉiuj arboj kaj arbetaĵoj staris kovritaj de prujno. La regiono similis al tuta arbaro da blankaj koraloj. Estis tiel, kvazaŭ ĉiuj branĉoj estas kovritaj de blindige blankaj floraĵoj.
-
-La senfine multaj kaj delikataj disbranĉiĝoj, kiujn oni en la somero ne povas vidi pro la multo da folioj, nun prezentiĝis tute klare, tiel blindige blanke, kvazaŭ blanka brilo fluis el ĉiu aparta branĉo. La betulo moviĝadis en la vento, estis en ĝi 235
-
-FABELOJ 4
+La senfine multaj kaj delikataj disbranĉiĝoj, kiujn oni en la somero ne povas vidi pro la multo da folioj, nun prezentiĝis tute klare, tiel blindige blanke, kvazaŭ blanka brilo fluis el ĉiu aparta branĉo. La betulo moviĝadis en la vento, estis en ĝi
 
 
 vivo, kiel en la arboj en somera tempo. Estis mirinde bele!
 
-Kiam la suno lumis, ha, kiel la tutaĵo brilis kvazaŭ ĝi estus pudrita per diamanta polvo, kaj sur la neĝa kovro brilis grandaj diamantoj. aŭ oni ankaŭ povus pensi, ke brulas sennom-
-
-bra kvanto da malgrandaj lumetoj, ankoraŭ pli blankaj ol la blanka neĝo.
+Kiam la suno lumis, ha, kiel la tutaĵo brilis kvazaŭ ĝi estus pudrita per diamanta polvo, kaj sur la neĝa kovro brilis grandaj diamantoj. aŭ oni ankaŭ povus pensi, ke brulas sennombra kvanto da malgrandaj lumetoj, ankoraŭ pli blankaj ol la blanka neĝo.
 
 ”Estas mirinde belege,” diris unu juna knabino, kiu kun
 
@@ -4845,13 +3778,9 @@ juna viro eliris en la ĝardenon kaj haltis ĝuste apud la neĝulo, rigardante d
 
 ”Kaj tian ulon kiel ĉi tiu oni tiam eĉ tute ne havas,” respondis la juna viro, montrante la neĝulon. ”Li estas bonega!”
 
-La juna knabino ridetis, kapsalutis la neĝulon kaj dance-
+La juna knabino ridetis, kapsalutis la neĝulon kaj dancetante ekiris kun sia amiko trans la kraketantan neĝon.
 
-tante ekiris kun sia amiko trans la kraketantan neĝon.
-
-”Kiuj estis tiuj du personoj?” demandis la neĝulo la ĉen-
-
-hundon. ”Vi estas pli aĝa sur la korto ol mi, ĉu vi ilnas?”
+”Kiuj estis tiuj du personoj?” demandis la neĝulo la ĉenhundon. ”Vi estas pli aĝa sur la korto ol mi, ĉu vi ilnas?”
 
 ”Kompreneble!” diris la hundo. ”ŝi min ja karesis, kaj li
 
@@ -4867,13 +3796,7 @@ ofte donis al mi oston; ilin mi ne mordas.”
 
 efektive scias tre malmulte, se oni nur hieraŭ naskiĝis, tion mi vidas ĉe vi! Mi estas maljuna kaj posedas sciojn, mi konas ĉiujn ĉi tie sur la korto. Kaj estis iam tempo, kiam mi ne stara-dis ĉi tie en la malvarmo kaj alligita al ĉeno. For, for!”
 
-”La malvarmo estas bonega,” diris la neĝulo. ”Rakontu, ra-
-
-
-FABELOJ 4
-
-
-kontu! Sed ne kraktintu tiel per via ĉeno, ĉar tiam tuj io kraketas en mi.”
+”La malvarmo estas bonega,” diris la neĝulo. ”Rakontu, rakontu! Sed ne kraktintu tiel per via ĉeno, ĉar tiam tuj io kraketas en mi.”
 
 ”For, for!” bojis la hundo. ”Mi estis hundeto, malgranda kaj beleta, kiel oni diris. Tiam mi kuŝadis interne en la palaco sur velura seĝo, mi kuŝadis sur la genuoj de la plej altaj gesinjoroj. Oni min kisadis sur la buŝo, kaj oni viŝadis al mi la piedojn per brodita poŝtuko. Oni min nomadis ”Plejbeleta”,
 
@@ -4885,13 +3808,9 @@ kvanto. Mi havis mian propran kusenon, kaj krom tio tie tro-viĝis forno, kio, p
 
 estas simila al mi?”
 
-”i estas ĝuste la malo de vi! i estas karbe nigra kaj havas longan kolon kun latuna tamburo. i manĝegas brullig-
+”i estas ĝuste la malo de vi! i estas karbe nigra kaj havas longan kolon kun latuna tamburo. i manĝegas brullignon tiel, ke la fajro ŝprucas el ĝia buŝo. Oni devas sin teni flanke de ĝi, super ĝi aŭ sub ĝi; tiam ĝi disvastigas senfine agrablan varmon. De tiu loko, kie vi staras, vi povas ĝin vidi tra la fenestro.”
 
-non tiel, ke la fajro ŝprucas el ĝia buŝo. Oni devas sin teni flanke de ĝi, super ĝi aŭ sub ĝi; tiam ĝi disvastigas senfine agrablan varmon. De tiu loko, kie vi staras, vi povas ĝin vidi tra la fenestro.”
-
-La neĝulo enrigardis kaj efektive ekvidis nigran poluritan objekton kun latuna tamburo. La fajro lumis antaŭen sur la 237
-
-FABELOJ 4
+La neĝulo enrigardis kaj efektive ekvidis nigran poluritan objekton kun latuna tamburo. La fajro lumis antaŭen sur la
 
 
 plankon. Al la neĝulo fariĝis tre strange en la animo. Li havis senton, pri kiu li mem ne povis doni al si klarigon. Li eksentis ion, kion li ne konis, sed kion konas ĉiuj homoj, se ili ne estas neĝuloj.
@@ -4904,17 +3823,11 @@ La neĝulo plu ne aŭskultis; li rigardis senĉese en la kelan loĝejon de la ma
 
 ”Mi sentas en mi tian strangan kraketadon!” li diris. ”ĉu mi neniam povas tien veni? Tio estas senkulpa deziro, kaj niaj senkulpaj deziroj devus ja plenumiĝi. Tio estas mia plej granda deziro, mia sola deziro, kaj estus preskaŭ maljuste, se ĝi ne plenumiĝus. Mi devas eniri, mi devas apogi min al ĝi, eĉ se mi devus rompi la fenestron!”
 
-”Tien vi neniam envenos!” diris la hundo; ”kaj se vi efek-
+”Tien vi neniam envenos!” diris la hundo; ”kaj se vi efektive venus al la forno, tiam vi estus for, for!”
 
-tive venus al la forno, tiam vi estus for, for!”
+”Mi jam nun estas preskaŭ for,” diris la neĝulo. ”Mi pensas, ke mi rompiĝas.”
 
-”Mi jam nun estas preskaŭ for,” diris la neĝulo. ”Mi pen-
-
-sas, ke mi rompiĝas.”
-
-La tutan tagon tiel staris la neĝulo kaj rigardis tra la fenestro. En la krepusko la ĉambro fariĝis ankoraŭ pli alloga. El 238
-
-FABELOJ 4
+La tutan tagon tiel staris la neĝulo kaj rigardis tra la fenestro. En la krepusko la ĉambro fariĝis ankoraŭ pli alloga. El
 
 
 la forno iris tia milda lumo, kiun nek la suno nek la luno povas doni, kiel povas lumi nur la forno, se io en ĝi troviĝas.
@@ -4935,16 +3848,11 @@ Frue matene la fenestroj de la kelo estis glacikovritaj; ili havis sur si la ple
 
 Kaj efektive la vetero ŝanĝiĝis, fariĝis vetero degela.
 
-La degelado fariĝis pli granda, la neĝulo fariĝis pli maldi-ka. Li nenion diris, li ne plendis, kaj tio estas malbona antaŭ-
-
-signo.
+La degelado fariĝis pli granda, la neĝulo fariĝis pli maldi-ka. Li nenion diris, li ne plendis, kaj tio estas malbona antaŭsigno.
 
 Unu matenon li disfalis. Tie, kie li estis starinta, oni vidis ion similan al balaila bastono. ĉirkaŭ ĉi tiu objekto, kiu devis lin teni sur si, la knaboj estis aranĝintaj lin.
 
 ”Nun mi povas kompreni lian sopiradon!” diris la hundo.
-
-
-FABELOJ 4
 
 
 ”La neĝulo havis en la korpo fornan skrapilon; ĝi estis tio, kio moviĝadis en li. Nun ĉio pasis por li. For, for!”
@@ -4966,9 +3874,6 @@ Ku-ku, kvi-vi! ku-ku, kvi-vi!
 Rapide venu sun’ al ni!”
 
 Nun neniu plu pensas pri la neĝulo.
-
-
-FABELOJ 4
 
 
 www.omnibus.se/

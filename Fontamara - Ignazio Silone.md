@@ -3,27 +3,18 @@ Ignazio Silone
 Fontamara
 
 
-### 1
-
 FONTAMARA
 
 
 Ignazio Silone
 
-FONTAMARA
 
 El la la itala tradukis A. Angelo kaj J. van Scheepen
 
 Lingve reviziita en 2003
 
 
-@omnibus.se
-
-
-FONTAMARA
-
-
-ANTAŭPAROLO
+ANTAŬPAROLO
 
 La faktoj, kiujn mi rakontos, okazis en somero de la pasinta jaro en Fontamara.
 
@@ -31,22 +22,16 @@ Imagu Fontamaran kiel la plej malriĉan kaj neprogre-sintan vilaĝon de Marsica,
 
 Io alia pri Fontamara ne estus dirinda, se ne estus okazintaj la faktoj, kiujn mi rakontos.
 
-Mi vivis en la ĉirkaŭaĵo de Fontamara la unuajn dudek jarojn de mia vivo. Dum dudek jaroj ĉiam la sama suno, la sama tero, la sama pluvo, la sama neĝo, la samaj 3
-
-FONTAMARA
+Mi vivis en la ĉirkaŭaĵo de Fontamara la unuajn dudek jarojn de mia vivo. Dum dudek jaroj ĉiam la sama suno, la sama tero, la sama pluvo, la sama neĝo, la samaj
 
 
-domoj, la sama kapeleto, la samaj festoj, la samaj man-
-
-ĝoj, la sama mizero: la mizero, ricevita de niaj gepatroj, kiuj ĝin heredis de la geavoj, kiuj siavice heredis ĝin de siaj gepatroj. La vivo de la homoj, de la bestoj kaj de la tero ŝajnis fermita en senmova ringo, imuna kontraŭ nekonstanteco de la tempo; fermita en ringo natura.
+domoj, la sama kapeleto, la samaj festoj, la samaj manĝoj, la sama mizero: la mizero, ricevita de niaj gepatroj, kiuj ĝin heredis de la geavoj, kiuj siavice heredis ĝin de siaj gepatroj. La vivo de la homoj, de la bestoj kaj de la tero ŝajnis fermita en senmova ringo, imuna kontraŭ nekonstanteco de la tempo; fermita en ringo natura.
 
 Antaŭe venis semado, post tio sarkado, pritranĉado, sulfurado, falĉado, rikolto de vinberoj. Kaj poste? Poste rekomenco: semado, sarkado, pritranĉado, sulfurado, falĉado, rikolto de vinberoj. ĉiam la sama, neŝanĝebla afero. ĉiam. La jaroj pasis, la jaroj akumuliĝis, la junuloj maljuniĝis, la maljunuloj mortis kaj oni semadis, sarkadis, pritranĉadis, sulfuradis, falĉadis, rikoltadis. Kaj poste ankoraŭ? La sama afero. Kaj post tio? ĉiam la sama afero. ĉiun jaron kiel la pasintan jaron, ĉiun sezonon kiel la antaŭan sezonon, ĉiun generacion kiel la antaŭan generacion.
 
 Dum la monatoj de malbona vetero oni ordigas la familiajn aferojn, tio estas: oni kverelas. En Fontamara ne ekzistas familioj, kiuj ne estas parencaj inter si. En malgrandaj vilaĝoj, ĝenerale ĉiuj familioj estas parencaj.
 
-ĉiuj familioj havas komunajn interesojn. Pro tio ili malpaciĝas. ĉiam la samaj disputoj, senfinaj konfliktoj, kiujn oni transprenas de generacio al generacio en senfinaj procesoj, en nekalkuleblaj elspezoj por povi fiksi, al kiu 4
-
-FONTAMARA
+ĉiuj familioj havas komunajn interesojn. Pro tio ili malpaciĝas. ĉiam la samaj disputoj, senfinaj konfliktoj, kiujn oni transprenas de generacio al generacio en senfinaj procesoj, en nekalkuleblaj elspezoj por povi fiksi, al kiu
 
 
 apartenas dornbarilo. La dornbarilo forbrulas, tamen restas la kvereloj.
@@ -60,19 +45,11 @@ La sekigo de la lago Fucino, okazinta antaŭ okdek jaroj, kaŭzis tian plialtiĝ
 * malriĉa kamparano
 
 
-FONTAMARA
-
-
 La ekspluatado de la grundo, akirita per la sekigo de la lago Fucino, malgraŭ tio, ke ĝi apartenas al plej fruk-todonaj kampoj de Italio, ne rekompencas tiujn perdojn.
 
 La ebenaĵo de Fucino estas fakte regata kiel kolonio. La egaj riĉaĵoj, kiujn ĝi ĉiujare produktas, ne restas tie, sed migras al la metropolo. Kune kun grandegaj agroj romaj kaj toskanaj, la dek kvar mil hektaroj de Fucino estas en la manoj de tiel nomata princo Torlonia. ĉi tiu devenas de iu aŭvergnano, iu Torlogne, kiu venis en Romon kun franca regimento komence de la pasinta jarcento; li spekulaciis je milito, poste je paco, spekulaciis je salo, je la milito de ’48-a kaj je la paco, kiu sekvis, je la milito de la jaro ’59-a kaj je la paco, kiu sekvis, je Burbonoj kaj je ilia ruiniĝo. Post la jaro ’60-a li sukcesis akiri per malgranda elspezo la akciojn de iu societo napola-franca-hispana, kiu konstruis la akvoeliron por la sekigo de Fucino: laŭ la agnoskitaj rajtoj de la napola reĝo al la societo, Torlonia rajtis ricevi la renton de la sekigitaj kampoj dum 90 jaroj. Sed pro la politika subteno, kiun li donis al la piemonta dinastio, Torlonia ricevis la sekigitajn kampojn por eterne. Li estis distingita per titolo de duko kaj poste per titolo de princo. La piemonta dinastio donacis al li ion, kio ne apartenis al ĝi.
 
-La tiel nomita princo Torlonia havas nuntempe propran gvardion por defendi sian sanktan propraĵon. Ka-6
-
-FONTAMARA
-
-
-nalo, longa proksimume 60 kilometrojn, ĉirkaŭas lian grandegan feŭdon. Por atingi ĝin oni devas transpasi pontojn, kiujn oni nokte levas. Neniu rajtas konstrui domojn aŭ kabanojn sur la vastega terebenaĵo.
+La tiel nomita princo Torlonia havas nuntempe propran gvardion por defendi sian sanktan propraĵon. Kanalo, longa proksimume 60 kilometrojn, ĉirkaŭas lian grandegan feŭdon. Por atingi ĝin oni devas transpasi pontojn, kiujn oni nokte levas. Neniu rajtas konstrui domojn aŭ kabanojn sur la vastega terebenaĵo.
 
 Pri la kulturado de Fucino laboras proksimume dek mil kafonoj. La t.n. princo Torlonia luigas la teron al advokatoj, kuracistoj, notarioj, instruistoj kaj al riĉaj kamparanoj de la ĉirkaŭaĵoj, kiuj poste ludonas aŭ mem kulturas ĝin, dungante potage la plej malriĉajn kafonojn.
 
@@ -85,9 +62,6 @@ La betoj de Fucino konsistigas la ĉefan materialon de unu el la plej grandaj su
 * cent kilogramoj
 
 
-FONTAMARA
-
-
 por pretigi makaroniojn, kie ĝi servas por nutri ankaŭ hundojn kaj katojn, sed la kafonoj, kiuj ĝin kulturas, estas devigataj nutri sin per maizo preskaŭ la tutan jaron. Tion, kion la kafonoj akiras el Fucino, ili povas konsideri vera kaj propra rento de malsato: rento, kiu lasas al ili la eblon nur vivi, sed ne progresi.
 
 Iam almenaŭ kelkaj kafonoj sukcesis elmigri al Ameriko. Ankaŭ kelkaj fontamaranoj antaŭ la milito provis sian sorton en Argentino aŭ Brazilo. Tiuj, kiuj havis fortunon, ne revenis al Fontamara, sed ekloĝis en la apudaj komunumoj, kie ili havis eblon fruktigi siajn ŝpa-raĵojn. Tiuj, kiuj ne estis bonŝancaj, revenis al Fontamara kaj tie refalis en la ĝeneralan bestecan letargion, kon-servante, kiel perditan paradizan revon, la vizion pri la vivo pasigita transmare.
@@ -97,17 +71,11 @@ Sed la pasintan jaron, dum mallonga tempospaco de kelkaj semajnoj, okazis serio 
 Fontamara, menciita de neniu geografia karto, subite fariĝis objekto de multaj diskutoj kaj al kelkaj aktuale simbolis grandan parton de Italio, nome la sudan parton.
 
 
-FONTAMARA
-
-
 Foresto dum multaj jaroj ne malpermesis al mi, kiu naskiĝis en la apudo de Fontamara kaj tie vivis dudek jarojn, pensi, ke la epizodoj koncernantaj Fontamaran, estas fantaziaj, neniam okazintaj, tute inventitaj, kiel multaj aliaj pro diskuteblaj motivoj kaj atribuitaj al tiu malproksima vilaĝo pro tio, ke la kontrolado estas nefa-cila. ĉiuj miaj klopodoj, tuj faritaj por ekhavi sciigojn, ne donis iajn rezultojn. Mi jam ne plu pensis pri tio, kiam okazis io neantaŭvidita: revenante hejmen, malfrue en la nokto, mi trovis antaŭ mia hejmo, kuŝantaj kontraŭ la enirejo kaj preskaŭ endormiĝintaj, du virojn kaj unu virinon, kiujn mi laŭ iliaj surtutoj kaj jutsakoj tuj rekonis kiel fontamaranoj. ĉe mia alveno ili ekstaris kaj ĉe la lumo de gaso mi rekonis ankaŭ la vizaĝojn. Ili vere estis el Fontamara.
 
 Alta maljunulo, ege maldika kun malviglaj ursaj movoj, sulka vizaĝo kaj grizaj barbharoj. Malantaŭ li en lia ombro liaj filo kaj edzino. Ili eniris, eksidis kaj komencis rakontadi. (Tiam mi rekonis ankaŭ la voĉojn) Antaŭe parolis la maljunulo. Poste la edzino. Post tio denove la maljunulo. Poste denove la edzino. Post tio denove la maljunulo. Poste la filo kaj fine la maljunulo.
 
 Kiam la maljunulo finis paroli, mateniĝis. Tio, kion ili diris, troviĝas en ĉi tiu libro.
-
-
-FONTAMARA
 
 
 Nun du rimarkoj. ĉi tiu rakonto ŝajnos al la leganto akre kontrasta al la pitoreska bildo pri Suditalio, kia la literaturo ĝin ofte prezentas. Estas konate, ke en libroj Suditalio estas benita kaj belega tero, kie la kamparanoj iras al la laboro kantante en ˛oro pro ĝojo, al kio ˛ore respondas la vilaĝaninoj vestitaj de belegaj tradiciaj vestoj, dum en apuda arbaro trilas najtingaloj.
@@ -119,9 +87,6 @@ Kiu serĉos en la rakonto ian folkloron, estos seniluziigita. Li ne trovos eĉ u
 La nura persono, kiu kantis en Fontamara dum mia junaĝo, estis iu ŝuisto. Li kantis nur unu kanzonon, kiu
 
 * montaro en meza Italio
-
-
-FONTAMARA
 
 
 rememorigas la komenciĝon de la etiopia milito kaj komenciĝas jene:
@@ -138,18 +103,14 @@ La dua estas ĉi tiu: en kiu lingvo mi rakontu la historion?
 
 Neniu pensu, ke la fontamaranoj parolas la italan lingvon. La itala lingvo estas por ni lingvo lernita en la lernejo, kiel la latina, franca aŭ esperanta. La itala lingvo estas por ni fremda lingvo, morta lingvo, lingvo, kies vortaron kaj gramatikon oni verkis, ne kontaktinte kun ni, nia vivmaniero, nia agmaniero, nia pensmaniero, nia esprimmaniero.
 
-Kompreneble, jam antaŭ mi, aliaj sudaj kafonoj parolis kaj skribis itallingve en la sama maniero, kiel ni, 11
-
-FONTAMARA
+Kompreneble, jam antaŭ mi, aliaj sudaj kafonoj parolis kaj skribis itallingve en la sama maniero, kiel ni,
 
 
 irontaj en la urbon, surmetas ciritajn ŝuojn kaj kolumon kun kravato. Sed sufiĉas observi nin por rimarki nian neklerecon. La itala lingvo ne povas fari ion alian ol krip-ligi en la formado niajn pensojn, rompi ilin, donante al ili sensencan kaj banalan aspekton, aspekton de tradu-ko. Sed, por bone sin esprimi, la homo ne traduku. Se estas vere, ke, por flue esprimi sin en iu lingvo, necesas antaŭe lerni pensi en ĝi, la peno, kiun kostas al ni paroli itallingve, signifas evidente, ke ni ne scias pensi en ĝi, (do, ke ĉi tiu itala kulturo estas por ni fremda). Sed, ĉar ni ne havas alian manieron komprenigi nin (kaj komprenigi nin estas por ni afero pri vivo aŭ morto), tial ni penos kiel eble plej bone traduki en la lingvon, kiun ni lernis en la lernejo, tion, kion ni deziras, por ke ĉiuj sciu: la veron pri la okazintaĵoj en Fontamara.
 
 Kvankam ni prunteprenas la lingvon, la maniero rakonti apartenas al ni. i estas fontamara arto. i estas la sama, kiun ni eklernis en junaĝo dum longaj, sendormaj noktoj, ĉe la ŝpinilo, sekvante ĝian ritmon.
 
-Ekzistas neniu diferenco inter ĉi tiu rakontarto, inter ĉi tiu arto meti vorton post vorto, linion post linio, frazon post frazo, figuron post figuro, kaj la antikva teksar-to, la antikva arto meti fadenon post fadeno, koloron post koloro, ordige, purege, insiste, klare. Antaŭe vidiĝas la trunketo de la rozo, post tio la folioj, poste la kaliko 12
-
-FONTAMARA
+Ekzistas neniu diferenco inter ĉi tiu rakontarto, inter ĉi tiu arto meti vorton post vorto, linion post linio, frazon post frazo, figuron post figuro, kaj la antikva teksar-to, la antikva arto meti fadenon post fadeno, koloron post koloro, ordige, purege, insiste, klare. Antaŭe vidiĝas la trunketo de la rozo, post tio la folioj, poste la kaliko
 
 
 kaj poste la koroloj; sed de la komenco ĉiu komprenas, ke temas pri rozo. Pro tio niaj produktoj ŝajnas al la urbanoj senkulpaj kaj malkleraj; sed, ĉu ni iam klopodis vendi ilin en la urbo? ĉu ni ofertis ilin en la urbo? Egale: ĉu ni iam petis al la urbanoj rakonti siajn okazintaĵojn laŭ nia maniero? Tion ni neniam petis.
@@ -161,10 +122,7 @@ Zürich, someron 1930
 Ignazio Silone
 
 
-FONTAMARA
-
-
-ĉAPITRO I.
+ĈAPITRO I.
 
 La unuan de junio pasintjare Fontamara estis la unuan fojon sen elektra lumo. La duan, la trian, la kvaran de junio Fontamara restis senluma.
 
@@ -180,12 +138,7 @@ Sufokiĝu tiu, kiu fumis ilin la unuan fojon. Por ni su-fiĉis ĉiam tabako.
 
 Kiam la elektra lumo mankis al ni la unuan fojon, tio ne devus esti surprizo, tamen estis.
 
-La elektra lumo fariĝis en Fontamara aĵo natura. En la senco, ke neniu pagis por ĝi. Neniu pagis por ĝi dum multaj monatoj. En la lasta tempo la komunuma enkasigisto ne plu venis por distribui la kutiman monatan fak-14
-
-FONTAMARA
-
-
-turon, markitan per la vorto ”nepagita”. ĉi tiun papereton ni utiligis por purigi la pipon. La lastan fojon, kiam la enkasigisto venis, li apenaŭ savis la vivon. Pafo el fusilo preskaŭ mortigis lin ĉe la eliro de la vilaĝo. Li estis tre prudenta. Li venis en Fontamaran, kiam la viroj laboris kaj en la domoj troviĝis nur virinoj kaj infanoj. Sed neniam oni povas esti tro prudenta. Li estis tre afabla. Li distribuis la paperojn kun stulta, kompata rideto, dirante:
+La elektra lumo fariĝis en Fontamara aĵo natura. En la senco, ke neniu pagis por ĝi. Neniu pagis por ĝi dum multaj monatoj. En la lasta tempo la komunuma enkasigisto ne plu venis por distribui la kutiman monatan fakturon, markitan per la vorto ”nepagita”. ĉi tiun papereton ni utiligis por purigi la pipon. La lastan fojon, kiam la enkasigisto venis, li apenaŭ savis la vivon. Pafo el fusilo preskaŭ mortigis lin ĉe la eliro de la vilaĝo. Li estis tre prudenta. Li venis en Fontamaran, kiam la viroj laboris kaj en la domoj troviĝis nur virinoj kaj infanoj. Sed neniam oni povas esti tro prudenta. Li estis tre afabla. Li distribuis la paperojn kun stulta, kompata rideto, dirante:
 
 ”Prenu, mi petas. En mastrumo peco da papero estas ja ĉiam utiligebla . . .” Sed neniam oni povas esti tro afabla.
 
@@ -198,31 +151,22 @@ Sed, ĉar tio ankoraŭ ne estas permesita de la leĝo, restas nenio alia ol forp
 * la senkulpa leĝo
 
 
-FONTAMARA
-
-
 La liverado de la kurento estis ĉesigota la unuan de januaro. Poste la unuan de marto, la unuan de majo, la unuan de junio. Fine la unuan de junio la ĉesigo estis efektivigita.
 
 La virinoj kaj la infanoj estantaj hejme estis la lastaj, kiuj rimarkis tion. Sed ni, kiuj revenis de la laboro — tiuj, kiuj estis en la muelejo kaj revenis laŭ la ŝoseo, tiuj, kiuj estis en la proksimo de la tombejo kaj revenis malsupren de la monto, tiuj, kiuj estis en la sablofosejo kaj revenis laŭ la bordoj de la rivereto, tiuj, kiuj estis ĉe la ĉiutaga laboro kaj revenis de ĉiuj direktoj, dum iom post iom krepuskiĝis, ni ĉiuj vidis eklumigi la lampojn de la apudaj vilaĝoj kaj vidis, ke Fontamara estas senluma, nigra, vuala, nebula, kunfandiĝanta kun la arboj, arbu-stoj kaj sterkejoj. Tuj ni komprenis la kialon. (Estis surprizo kaj ne estis.)
 
 Por la geknaboj tio estis motivo por petolado. ĉe ni la knaboj ne ofte havas distron kaj, kiam ĝi prezentiĝas, ili plene ĝuas ĝin. Tiel estas, kiam pasas motociklo, kiam du azenoj sekskuniĝas, kiam forbrulas kamentubo.
 
-Alveninte en la vilaĝon, ni trovis General Baldissera, kiu somere kutimis fliki ŝuojn antaŭ sia hejmo ĝis malfrua horo ĉe la lumo de lampiono; la buboj ĉirkaŭis lian stableton kaj estis intermiksintaj la fajlilojn, najlojn, tranĉilojn, pecon, fadenojn kaj la ledajn detranĉaĵojn. Ili estis elverŝintaj la kuveton, plenan de malpura akvo, sur 16
-
-FONTAMARA
+Alveninte en la vilaĝon, ni trovis General Baldissera, kiu somere kutimis fliki ŝuojn antaŭ sia hejmo ĝis malfrua horo ĉe la lumo de lampiono; la buboj ĉirkaŭis lian stableton kaj estis intermiksintaj la fajlilojn, najlojn, tranĉilojn, pecon, fadenojn kaj la ledajn detranĉaĵojn. Ili estis elverŝintaj la kuveton, plenan de malpura akvo, sur
 
 
 liajn piedojn kaj li laŭte malbenis ĉiujn sanktulojn de la ĉirkaŭaĵo kaj demandis nin, kiuj revenis de la laboro, ĉu en sia aĝo, miopa, li meritas, ke oni forrabas la lumon de la lampiono kaj kion opinios pri tia fiago reĝo Umberto.
 
 Malfacile estis imagi, kion pensos reĝo Umberto.
 
-Tutkompreneble kelkaj virinoj plendis. Kelkaj virinoj, (ne necesas mencii nomojn) sidante sur la pavimo antaŭ siaj hejmoj, mamnutrantaj siajn idojn, aŭ pretigantaj manĝon, lamentis kvazaŭ iu mortis. Ili plendis pro la manko de la lumo, kvazaŭ la mizero en la mallumo fari-
+Tutkompreneble kelkaj virinoj plendis. Kelkaj virinoj, (ne necesas mencii nomojn) sidante sur la pavimo antaŭ siaj hejmoj, mamnutrantaj siajn idojn, aŭ pretigantaj manĝon, lamentis kvazaŭ iu mortis. Ili plendis pro la manko de la lumo, kvazaŭ la mizero en la mallumo fariĝis ankoraŭ pli nigra.
 
-ĝis ankoraŭ pli nigra.
-
-Antaŭ la trinkejo de Marietta Sorcanera, ĉe la tablo metita sur la straton, haltis Michele Zompa kaj mi. Tuj malantaŭ ni alvenis Giacobbe Losurdo kun la azenino, kiu ĵus estis gravedigita. Sekvis ankaŭ Ponzio Pilato, portanta sur la dorso la pumpilon por sulfuri, kaj poste alvenis Antonio Ranocchia kaj Baldovino Sciarappa, kiuj pritranĉis la vinberbranĉojn. Venis ankaŭ Giacinto Barletta, Venerdì Santo, Ciro Zironda, Papasisto kaj aliaj, kiuj estis en la sablofosejo kaj kune ni interparolis pri la elektra lumo, pri la impostoj novaj kaj malnovaj, pri impostoj komunumaj kaj ŝtataj, ĉiam ripetante la saman aferon, ĉar ekzistas aferoj, kiuj neniam ŝanĝiĝas. Kaj ne-rimarkite alvenis fremdulo. Fremdulo kun biciklo. Estis malfacile konjekti, kiu venis je tia horo. Ne estis tiu de 17
-
-FONTAMARA
+Antaŭ la trinkejo de Marietta Sorcanera, ĉe la tablo metita sur la straton, haltis Michele Zompa kaj mi. Tuj malantaŭ ni alvenis Giacobbe Losurdo kun la azenino, kiu ĵus estis gravedigita. Sekvis ankaŭ Ponzio Pilato, portanta sur la dorso la pumpilon por sulfuri, kaj poste alvenis Antonio Ranocchia kaj Baldovino Sciarappa, kiuj pritranĉis la vinberbranĉojn. Venis ankaŭ Giacinto Barletta, Venerdì Santo, Ciro Zironda, Papasisto kaj aliaj, kiuj estis en la sablofosejo kaj kune ni interparolis pri la elektra lumo, pri la impostoj novaj kaj malnovaj, pri impostoj komunumaj kaj ŝtataj, ĉiam ripetante la saman aferon, ĉar ekzistas aferoj, kiuj neniam ŝanĝiĝas. Kaj ne-rimarkite alvenis fremdulo. Fremdulo kun biciklo. Estis malfacile konjekti, kiu venis je tia horo. Ne estis tiu de
 
 
 la elektra lumo. Ankaŭ ne tiu de la komunumo, nek de la juĝejo. Laŭ aspekto li estis elegantulo. Li havis delikatan, razitan vizaĝon, ruĝan buŝeton, similan al kokina postaĵo. Per unu mano li tenis la biciklon ĉe la direktilo kaj la mano estis malgranda, glata kia ventro de lacerto.
@@ -235,9 +179,7 @@ Sed krome, ekzistis neniu dubo, ke li faris senutilan vo-jaĝon, ke liaj folioj 
 
 Intertempe la fremdulo demandis jam du aŭ tri fojojn kun kapra voĉo, ke oni indiku al li la hejmon de la vid-vino post la heroo Sorcanera.
 
-Marietta Sorcanera staris sur la sojlo de la trinkejo, barante la eniron per sia monstra graveda figuro, graveda la trian aŭ kvaran fojon, de kiam ŝia edzo mortis en la milito. La edzo postlasis al ŝi arĝentan medalon kaj pension, sed ne la tri aŭ kvar gravedecojn. Pro la gloro de sia edzo (kiel oni diras) Sorcanera ofte kontaktis post la milito kun gravaj personoj. Foje, en solena patriota ceremonio en la ĉefurbo oni elektis ŝin prezidantino kaj lokigis ŝin flanke de la episkopo. Tiam ŝi estis la duan fojon gravediĝinta. La gravedeco sin montris en ŝi ĉiam 18
-
-FONTAMARA
+Marietta Sorcanera staris sur la sojlo de la trinkejo, barante la eniron per sia monstra graveda figuro, graveda la trian aŭ kvaran fojon, de kiam ŝia edzo mortis en la milito. La edzo postlasis al ŝi arĝentan medalon kaj pension, sed ne la tri aŭ kvar gravedecojn. Pro la gloro de sia edzo (kiel oni diras) Sorcanera ofte kontaktis post la milito kun gravaj personoj. Foje, en solena patriota ceremonio en la ĉefurbo oni elektis ŝin prezidantino kaj lokigis ŝin flanke de la episkopo. Tiam ŝi estis la duan fojon gravediĝinta. La gravedeco sin montris en ŝi ĉiam
 
 
 per aĉaj kaj monstraj formoj. La episkopo, kiu ne estis blinda, demandis al ŝi:
@@ -265,9 +207,6 @@ La urbano paroladis plu. Sed neniu komprenis lin.
 Neniu komprenis, kio estus ankoraŭ impostebla.
 
 
-FONTAMARA
-
-
 Finfine li ĉesis paroli, turnis sin al mi, kiu estis plej proksime al li, metis blankan folion antaŭ min, donis krajonon kaj diris:
 
 ”Subskribu!”
@@ -289,9 +228,6 @@ La urbano ege ekkoleris. Laŭ la tono, en kiu li parolis, ni konjektis, ke li in
 ”Parolu, respondu,” li kriis, ”hundo, vermo, malbe-nito. . . . Kial vi ne parolas? . . . Kial vi ne volas subskribi? . . .”
 
 
-FONTAMARA
-
-
 Mi komprenigis lin, ke ni ne estas idiotaj. Mi klarigis, ke per ĉiuj liaj babiloj li ne kapablos konvinki nin, ke ne temas pri nova imposto.
 
 ”Ni komprenas,” mi respondis. ”Tre bone ni komprenas, tamen ni ne pagos. Impostita estas la domo, la vitkulturejo, la azeno, la hundo, la paŝtejo, la porko, la ĉaro kaj la vino . . . Jam sufiĉas. Kion vi intencas ankoraŭ imposti?”
@@ -302,9 +238,7 @@ Li rigardis min, kvazaŭ mi parolus la hebrean lingvon.
 
 Estis vere. Urbano kaj kafono ne facile povas inter-kompreniĝi. Kiam li parolis, li estis urbano kaj, estante urbano, ne povis ne paroli kiel urbano. Sed ni estis kafonoj. Ni komprenis ĉion kiel kafonoj, tio estas laŭ nia maniero. Mil fojojn dum mia vivo mi rimarkis tion: urbanoj kaj kafonoj estas du malsamaj aferoj. Dum mia junaĝo mi estis en Argentino, en la pampoj*; mi parolis kun kafonoj de ĉiu raso, de la hispana ĝis la indiana kaj ni reciproke komprenis nin, kvazaŭ ni estus en Fontamara; kaj mi parolis kun italo, kiu ĉiudimanĉe venis de la urbo, sendita de la konsulejo. Ni interparolis, sed ne komprenis unu la alian; eĉ ofte ni komprenis la malon de tio, kio estis dirita.
 
-* stepo en Sud-Ameriko, precipe en Argentino 21
-
-FONTAMARA
+* stepo en Sud-Ameriko, precipe en Argentino
 
 
 Tial mi ne miris, kiam la fremdulo rekomencis la babiladon klarigante, ke li ne parolis pri impostoj, ke li tute ne okupas sin pri ili, ke li venis en Fontamaran pro alia afero kaj ke ne temas pri pago.
@@ -323,16 +257,12 @@ Samspecajn liaj kolegoj portas al aliaj vilaĝoj. Do estas afero ne speciale por
 
 Fakte estas petskribo al la registaro, li diris al ni. i bezonas multajn subskribojn. Li ne havas ĝin ĉe si kaj ne konas la enhavon. Liaj superuloj pretigis ĝin. Li devas nur kolekti subskribojn. Kaj la kafonoj havas la devon subskribi.
 
-”ĉu vi komprenas?” li demandis al ni kaj klarigis: ”Fi-nigis la tempo, kiam la kafonoj estis ignorataj kaj mal-estimataj. Nun ekzistas novaj aŭtoritatuloj, kiuj sentas 22
-
-FONTAMARA
+”ĉu vi komprenas?” li demandis al ni kaj klarigis: ”Fi-nigis la tempo, kiam la kafonoj estis ignorataj kaj mal-estimataj. Nun ekzistas novaj aŭtoritatuloj, kiuj sentas
 
 
 grandan estimon por la kafonoj kaj volas scii ilian opinion . . . tial, subskribu! . . .”
 
-Grandvalore taksu la honoron, kiun al vi faras la aŭ-
-
-toritatuloj, sendintaj ĉi tien funkciulon por ekscii vian opinion . . .
+Grandvalore taksu la honoron, kiun al vi faras la aŭtoritatuloj, sendintaj ĉi tien funkciulon por ekscii vian opinion . . .
 
 Ni estis ankoraŭ malfidaj. Sed intertempe alproksimiĝis General Baldissera, kiu aŭdis la lastajn klarigojn kaj ne pripensinte diris (vi scias ja, kiaj estas la ŝuistoj):
 
@@ -343,9 +273,6 @@ Li subskribis unua. Sekvis mi. Poste Ponzio Pilato, kiu estis apud mi kaj Michel
 Kiel peti ilin? Pro la malfrua horo ne eblis viziti hejmon post hejmo. Kavaliro Pelino trovis solvon: Ni diktu al li la nomojn de ĉiuj kafonoj en Fontamara kaj li surskribos ilin. Tiel ni decidis. Nur pri la nomo de Berardo Viola ni diskutis. Ni klopodis klarigi al kavaliro Pelino, ke Berardo neniel cedus subskribon, sed tamen ankaŭ lia nomo estis registrita.
 
 La urbano plenigis jam la duan folion per nomoj kaj li forbruligis tridekon aŭ kvardekon da alumetoj, kiam subite li observis ion sur la tablo. Io, kio estis sur la tablo, impresis lin, naŭzis lin. Sur la tablo estis nenio. Li ekbruligis alumeton kaj ree fikse rigardis sur la tablon. Li klinis sin super la tablon, preskaŭ tuŝante ĝin per la nazo.
-
-
-FONTAMARA
 
 
 Poste, montrante per fingro punkton sur la tablo, li kriis kun sia kapra voĉo:
@@ -366,9 +293,7 @@ Michele Zompa agis, kvazaŭ li ne komprenas kaj fumis, rigardante la ĉielon. An
 
 Michele Zompa saltleviĝis kaj ekkriis:
 
-»Kion? . . . Kion? . . . . ĉu ĝi vere havas krucon sur la dorso? Kaj vi forĵetis ĝin? ĉu vi forĵetis la pedikon de 24
-
-FONTAMARA
+»Kion? . . . Kion? . . . . ĉu ĝi vere havas krucon sur la dorso? Kaj vi forĵetis ĝin? ĉu vi forĵetis la pedikon de
 
 
 la Papo? La pediko de la Repaciĝo? Malfeliĉulino, mal-benitino, sakrilegiulino . . .”
@@ -394,9 +319,6 @@ La Krucumito diris:
 La Papo respondis:
 
 
-FONTAMARA
-
-
 ”Sinjoro, la registaro ne konsentos . . . Ne forgesu, ke per la impostoj, pagitaj de la kafonoj, la registaro devas pagi du miliardojn da liroj al la kaso de sankta Petro.”
 
 La Krucumito diris:
@@ -415,12 +337,7 @@ Tiam diris la Papo, kiu tre amas la kafonojn:
 
 Tiel en la nokto de la Repaciĝo, Kristo kaj la Papo flugis ĉirkaŭ Fucino super ĉiuj vilagoj de Marsica. Kristo antaŭiris, portante sur la ŝultroj grandan sakon. Malantaŭ li iris la Papo, kiu havis permeson preni el la sako ĉion, kio povos helpi la kafonojn.
 
-La du diaj vojaĝantoj vidis en ĉiu vilaĝo la samon. La kafonoj lamentis, blasfemis, afliktiĝis, ne sciante, kion manĝi, per kio sin vesti. Tiam la Papo sentis sin profund-26
-
-FONTAMARA
-
-
-kore malĝoja; li prenis el la sako amason da pedikoj kaj
+La du diaj vojaĝantoj vidis en ĉiu vilaĝo la samon. La kafonoj lamentis, blasfemis, afliktiĝis, ne sciante, kion manĝi, per kio sin vesti. Tiam la Papo sentis sin profundkore malĝoja; li prenis el la sako amason da pedikoj kaj
 
 ĝin ĵetis sur Marsica, dirante:
 
@@ -440,9 +357,7 @@ Kaj multon alian li kriis tiamaniere, ke neniu lmprenis.
 
 Ni pensis: li paroladas, sed poste silentos, poste certe silentos. Sed li parolis plu. Li ne silentis.
 
-”ĉu vi ne scias,” li diris al Michele, ”ke, se mi denun-cos vin, oni vndamnos minimume je dek jaroj da 27
-
-FONTAMARA
+”ĉu vi ne scias,” li diris al Michele, ”ke, se mi denun-cos vin, oni vndamnos minimume je dek jaroj da
 
 
 mallibero? ĉu vi ne scias, ke multaj, kiuj diris aferojn malpli gravajn aŭ malpli perfidajn ol tiujn, kiujn vi ĵus diris, estas malliberigitaj kaj kondamnitaj je dek jaroj da malliberejo? Sed en kia mondo vi vivas? ĉu vi scias, kio okazis dum la lastaj jaroj? Kiu regas hodiaŭ? Kiu nuntempe estas la estro?”
@@ -466,9 +381,6 @@ Poste la hundoj de la armita gvardio de princo Torlonia.
 Poste nenio!
 
 
-FONTAMARA
-
-
 Poste ankoraŭ nenio.
 
 Poste ankoraŭ nenio.
@@ -490,20 +402,13 @@ Kavaliro Pelino salte leviĝis. Li tremis pro kolero kaj diris al ni:
 Kaj li foriris.
 
 
-FONTAMARA
-
-
-ĉAPITRO II.
+ĈAPITRO II.
 
 La sekvintan tagon tuta Fontamara incitiĝis pro mis-kompreno.
 
-ĉe la eniro de Fontamara, el sub ŝtonamaso, fluas mizera akvofadeno, simila al marĉeto. Post kelkpaŝa distanco la akvo eniras la ŝtonriĉan teron, fosante truon, kaj reaperas ĉe la piedo de monteto, pli abunde, en formo de rivereto. Antaŭ ol direkti sin al Fucino, la rivereto serpentumas diversflanken. El ĝi la kafonoj de Fontamara ĉiam ĉerpis akvon por irigaci la malmultajn kul-turejojn, kiujn ili posedas en la ebenaĵo kaj kiuj formas la solan riĉaĵon de la vilaĝo. Por disdividi la akvon de la rivereto ĉiusomere furiozis malpacoj inter la kafonoj. En la jaroj de granda seko, la malpacoj ofte finiĝas per tran-
+ĉe la eniro de Fontamara, el sub ŝtonamaso, fluas mizera akvofadeno, simila al marĉeto. Post kelkpaŝa distanco la akvo eniras la ŝtonriĉan teron, fosante truon, kaj reaperas ĉe la piedo de monteto, pli abunde, en formo de rivereto. Antaŭ ol direkti sin al Fucino, la rivereto serpentumas diversflanken. El ĝi la kafonoj de Fontamara ĉiam ĉerpis akvon por irigaci la malmultajn kul-turejojn, kiujn ili posedas en la ebenaĵo kaj kiuj formas la solan riĉaĵon de la vilaĝo. Por disdividi la akvon de la rivereto ĉiusomere furiozis malpacoj inter la kafonoj. En la jaroj de granda seko, la malpacoj ofte finiĝas per tranĉilo.
 
-ĉilo.
-
-Kiam matene de la dua de junio la unuaj kafonoj de Fontamara supreniris la monteton por iri al la laboro, ili ekvidis grupon da terlaboristoj, veninta de la ĉefurbo kun fosiloj kaj pioĉoj por, kiel ili diris, deviigi la rivereton de la kampoj kaj legomĝardenoj, kiujn ĝi ĉiam irigacis, ĉiam, tiel longe, kiel ekzistas akvo kaj tero. La laboristoj direktos ĝin en kontraŭan direkton, tiel ke ĝi fluos 30
-
-FONTAMARA
+Kiam matene de la dua de junio la unuaj kafonoj de Fontamara supreniris la monteton por iri al la laboro, ili ekvidis grupon da terlaboristoj, veninta de la ĉefurbo kun fosiloj kaj pioĉoj por, kiel ili diris, deviigi la rivereton de la kampoj kaj legomĝardenoj, kiujn ĝi ĉiam irigacis, ĉiam, tiel longe, kiel ekzistas akvo kaj tero. La laboristoj direktos ĝin en kontraŭan direkton, tiel ke ĝi fluos
 
 
 laŭ kelkaj vitkulturejoj, kiuj ne apartenas al Fontamara, sed al iu riĉa bienposedanto, don Carlo Manĝas, (tiel nomita, ĉar al la demando: ĉu mi povas paroli kun don Carlo? ĉu don Carlo estas hejme? la servistino nevarie respondis: ’Don Carlo? Manĝas! Se vi deziras, vi povos paroli kun la mastrino’.
@@ -512,18 +417,11 @@ En la unua momento ni pensis, ke la laboristoj intencas moki nin. La loĝantoj d
 
 En Fontamara neniam estis pastro. La preĝejo havas tro malgrandan enspezon por povi pagi pastron; pro tio
 
-ĝi estis malfermita nur dum solenaj okazoj, kiam venis don Abbacchio el la ĉefurbo por celebri la meson kaj klarigi la evangelion. Antaŭ du jaroj la fontamaranoj sendis petskribon al la episkopo, por ke ankaŭ nia pre-
-
-ĝejo havu propran pastron. Post kelkaj tagoj oni komunikis al ni el la ĉefurbo, ke nia peto estas favore akceptita. Ni preparu nin por festi la alvenon de la unua pastro. Ni, kompreneble, faris ĉion necesan por akcepti lin.
+ĝi estis malfermita nur dum solenaj okazoj, kiam venis don Abbacchio el la ĉefurbo por celebri la meson kaj klarigi la evangelion. Antaŭ du jaroj la fontamaranoj sendis petskribon al la episkopo, por ke ankaŭ nia preĝejo havu propran pastron. Post kelkaj tagoj oni komunikis al ni el la ĉefurbo, ke nia peto estas favore akceptita. Ni preparu nin por festi la alvenon de la unua pastro. Ni, kompreneble, faris ĉion necesan por akcepti lin.
 
 La preĝejo estis tute purigata. La vojon kondukantan al Fontamara, ni riparis kaj sur kelkaj lokoj plilarĝigis. ĉe la eniro de Fontamara ni konstruis grandan triumfarkon.
 
-La dompordoj estis ornamitaj per verdaj branĉoj. Fine, en la fiksita tago, la tuta vilaĝo iris renkonte al sia pas-31
-
-FONTAMARA
-
-
-tro, kiu estis alvenonta el la ĉefurbo. Post kvaronhora promeno ni vidis malproksime grandan homamason venanta renkonte al ni. Ni plu antaŭeniris, kantante sanktajn himnojn kaj trapreĝante la rozarion. La maljunuloj iris fronte kun General Baldissera, kiu devus salut-diri kelkajn vortojn. Post ili sekvis la virinoj kaj infanoj.
+La dompordoj estis ornamitaj per verdaj branĉoj. Fine, en la fiksita tago, la tuta vilaĝo iris renkonte al sia pastro, kiu estis alvenonta el la ĉefurbo. Post kvaronhora promeno ni vidis malproksime grandan homamason venanta renkonte al ni. Ni plu antaŭeniris, kantante sanktajn himnojn kaj trapreĝante la rozarion. La maljunuloj iris fronte kun General Baldissera, kiu devus salut-diri kelkajn vortojn. Post ili sekvis la virinoj kaj infanoj.
 
 Kiam ni atingis la grupon el la ĉefurbo, ni vicigis nin flanke de la vojo por akcepti nian pastron. Nur General Baldissera antaŭenpaŝis, kriante:
 
@@ -534,9 +432,6 @@ En tiu momento ankaŭ la venintoj el la ĉefurbo disiĝis kaj, pelata per piedba
 Tiajn ŝercojn oni ne facile forgesas, precipe, kiam la loĝantoj de la ĉefurbo konstante elpensas ion novan.
 
 Tial ni pensis, ke la deviigo de la rivereto eble estas nova mokŝerco. Fakte estus la fino de ĉio, se la volo de la homoj komencus influi eĉ la elementojn, kreitajn de Dio, se ĝi komencus deviigi la iron de la suno, la iron de la ventoj, la iron de la akvo, fiksitajn de Dio. Estus, kvazaŭ oni rakontas al ni, ke azenoj flugas, ke princo Torlonia ĉesis esti princo aŭ ke la kafonoj ĉesis suferi pro malsato. Per unu vorto, ke la diaj leĝoj ĉesis esti leĝoj de Dio.
-
-
-FONTAMARA
 
 
 Sed la laboristoj, ne donante klarigojn, kaptis la fosi-lojn kaj pioĉojn por fosi la novan riveretan vojon. Tiam la ŝerco ŝajnis transiri la limojn. Iu kafono iris returne supren al Fontamara kaj alarmis la loĝantojn.
@@ -553,9 +448,7 @@ Unu devis prizorgi la kokinojn, alia la porkon, tria devis lavpurigi la tolaĵon
 
 ”ĉu ni permesu,” mi diris al la edzino de Michele Zompa, ”ke por afero grava al la tuta vilaĝo Fontamara estu reprezentata de, pardonu min, du malĉastulinoj?”
 
-* (elparolu: síndako) komunumestro 33
-
-FONTAMARA
+* (elparolu: síndako) komunumestro
 
 
 Tion ni ne povis permesi. Ni interparolis kun Lisabetta Limona kaj Maria Grazia kaj sukcesis persvadi ilin iri kun ni al la ĉefurbo. Maria Grazia kunvenigis Ciammaruga, kiu venis kun la filino de Cannarozzo, kiu siavice kunvenigis Filomenan Quaterna.
@@ -573,9 +466,6 @@ La suno estis jam alte, kiam ni forlasis la vilaĝon. La vetero estis sufoke var
 Vidante nin, la terlaboristoj ektimis kaj fuĝis tra la vinberejoj.
 
 
-FONTAMARA
-
-
 Lisabetta Limona deziris, ke ni iru returne, ĉar ni atingis la celon, sed Sorcanera, kiu surmetis la novan an-taŭtukon, diris, ke ni tamen iru al la ĉefurbo. La laboristoj ja agis ne propravole, sed laŭ ordono de la komunumo.
 
 Ni diskutis pri tio, kion ni faru, kiam Marietta ĉesigis ĉiun diskuton:
@@ -591,9 +481,6 @@ Kiam ni aperis sur la magistratdoma placo, multaj timis. Nia aspekto ne estis tr
 Kelkaj fruktovendistoj, troviĝantaj meze de la placo, fuĝis kun la korbetoj sur la kapo. Malantaŭ fenestroj kaj sur balkonoj iĝis homoplene. En la pordo de la magistrata domo aperis kelkaj timigitaj oficistoj. ĉiuj atendis, ke ni atake prenos la domon. Ni marŝis en fermita vicaro, pretaj al ĉio. En tiu momento kampara gvardiano kriis de fenestro en la magistrata domo:
 
 ”Ne permesu al ili eniri . . . Ili plenigos la domon per pedikoj . . .”
-
-
-FONTAMARA
 
 
 Tiam ĉiuj rideksplodis.
@@ -618,12 +505,7 @@ Post tiu respondo la oficistoj ĉe la pordo mirigite rigardis unu al la alia. Ke
 
 ”Paroli kun la sindaco,” ni respondis kvar- aŭ kvinope.
 
-Tiam la oficistoj denove stulte ekridis. Laŭtvoĉe ili ripe-36
-
-FONTAMARA
-
-
-tis nian respondon kaj nova ridego kuris sur la placon, sur la balkonojn kaj en la manĝejojn de la najbaraj domoj, ĉar estis manĝotempo.
+Tiam la oficistoj denove stulte ekridis. Laŭtvoĉe ili ripetis nian respondon kaj nova ridego kuris sur la placon, sur la balkonojn kaj en la manĝejojn de la najbaraj domoj, ĉar estis manĝotempo.
 
 La oficistoj forlasis la domon kaj unu el ili fermis la pordon. Antaŭ ol foriri, li diris al ni:
 
@@ -634,9 +516,6 @@ En tiu momento altiris nian atenton fontano en angulo de la placo. Ni ĉiuj rapi
 Povis esti portempa interrompo. Ni atendis, sed la akvo ne revenis. La fontano estis elĉerpita. Ni estis fori-rontaj, kiam plaŭdbruo de la akvo revenigis nin: la akvo denove fluis. Ekestis nova interpuŝado, novaj diskutoj.
 
 Du knabinoj reciproke kaptis sin je la haroj. Fine ni re-konsentis pri trinkado laŭvica. Sed tuj la akvo denove mankis. Ni atendis iom, sed ĝi ne reaperis.
-
-
-FONTAMARA
 
 
 La sinteno de la akvo estis vere neklarigebla. ĉe nia fonto, troviĝanta apud la eniro de la vilaĝo, ni ankoraŭ neniam spertis ion similan.
@@ -654,9 +533,6 @@ Kiam post nia kurado, la akvo malaperis la kvaran fojon, alvenis deko da karaben
 ”ĉu la sindaco?” kriis la estro de la patrolo. ”ĉu la sindaco? Sed ĉu vi ne scias, ke sindaco ne ekzistas? Kiam vi kapablos memori, ke nuntempe sindaco nomiĝas podestà?”
 
 
-FONTAMARA
-
-
 Al ni estis tute egale, ĉu la komunumestro nomiĝas sindaco aŭ podestà. Sed por la kleruloj la diferenco certe estas granda, se ne, la oficistoj ne estus tiom ridintaj post nia peto, paroli kun la sindaco kaj la patrolestro ne estus tiel furioza. La instruitoj estas sofistoj kaj pro bagatelo ekkoleras.
 
 La estro ordonis al kvar karabenistoj konduki nin al la podestà. Du ekmarŝis antaŭ kaj du malantaŭ ni. En la stratoj de la urbo la scivolemuloj vokis unu la alian kaj mokis nin per gestoj kaj vortoj hontigaj, kiel la enloĝantoj de gravaj urboj, speciale manlaboristoj kaj metiler-nantoj, ofte faras kontraŭ kafonoj el la vilaĝoj.
@@ -665,9 +541,7 @@ La karabenistoj irigis nin laŭ la ĉefstrato de la urbo, post tio laŭ multaj s
 
 La karabenistoj, ni diris inter ni, mokas nin. La komunumestro povas esti nur don Circostanza. Tio li estis ja antaŭ kaj dum la milito kaj post la milito li restis estro.
 
-Dum la mallongaj tempospacoj, kiam don Circostanza 39
-
-FONTAMARA
+Dum la mallongaj tempospacoj, kiam don Circostanza
 
 
 ne estis komunumestro, lia loko estis okupita ĉiam de don Carlo Manĝas. Post kiam la karabenistoj preterpasis la domojn de la unua kaj dua, estis evidente, ke ili preparas ian mokŝercon, ni pensis.
@@ -680,9 +554,7 @@ Kiel? ĉu tiun banditon oni nomis estro de la komunumo? ĉu fremdulon? Neeble!
 
 ”Hieraŭ,” la karabenistoj diris al ni, ”alvenis el Romo telegramo, per kiu oni nomis lin podestà.”
 
-Antaŭ tri jaroj, kiam la Impresario venis en nian regionon, neniu sciis, kiu li estas, nek kie li naskiĝis. Li ekloĝis en gastejo, kien venis nur trapasantoj. Li aĉetis pomojn de la kafonoj en majo, kiam ili estis ankoraŭ sur la arboj kaj la kafonoj bezonis monon. Poste li aĉetis cepojn, fazeolojn, lentojn kaj tomatojn. ĉion, kion li aĉetis, li ekspedis al Romo. Poste li bredadis porkojn kaj 40
-
-FONTAMARA
+Antaŭ tri jaroj, kiam la Impresario venis en nian regionon, neniu sciis, kiu li estas, nek kie li naskiĝis. Li ekloĝis en gastejo, kien venis nur trapasantoj. Li aĉetis pomojn de la kafonoj en majo, kiam ili estis ankoraŭ sur la arboj kaj la kafonoj bezonis monon. Poste li aĉetis cepojn, fazeolojn, lentojn kaj tomatojn. ĉion, kion li aĉetis, li ekspedis al Romo. Poste li bredadis porkojn kaj
 
 
 prizorgis ankaŭ ĉevalojn. Per kelkaj vortoj, li okupis sin pri ĉio: kunikloj, abeloj, feloj, strat-, ter-, lignolaboroj, brikoj. Oni vidis lin sur ĉiuj foiroj kaj ĉiuj apudaj vendo-placoj. Komence la terposedantoj rigardis lin malestime kaj rifuzis negoci kun li. Sed la Impresario submetis ilin unu post alia. Ne ekzistis plu iu grava entrepreno, en kiu li ne venkis la konkurencon de la malnovaj posedantoj.
@@ -694,18 +566,13 @@ Ni multe parolis en Fontamara pri tiu stranga afero, kiun neniu povis kredi. Ni 
 Post la enketo fare de la karabenistoj, la aŭtoritato de la Impresario multe kreskis. Li reprezentis la bankon. Li disponis fabrikon de monbiletoj. La malnovaj posedantoj komencis timi lin. Malgraŭ ĉio ĉi ni ne povis kompreni, kiel oni povis destini al li la postenon de sindaco (aŭ podestà, kio estas por ni la samo).
 
 
-FONTAMARA
-
-
 Apenaŭ la virinoj, kiuj balais en la korto de la vilao, ekvidis nin, ili kuris por voki Rosalian, la edzinon de la Impresario. ĉi tiu aperis kiel furio. ŝi estis virino jam nejuna, vestita kiel urbano, kun rabobirda kapo sur korpo longa kaj maldika.
 
 ”For! . . . for! . . . for! . . .” ŝi kriis al ni. ”Kion vi deziras? ĉu en propra hejmo ni ne plu estas mastroj? ĉu vi ne scias, ke hodiaŭ ni festas? Post unu horo komenciĝos la bankedo pro la enoficigo. Neniu vin invitis . . . Iru for! Mia edzo ne estas hejme kaj kiam li revenos, li ne havos tempon por perdi kun vi . . . Se vi deziras paroli kun li, serĉu lin en la brikbakejo.”
 
 La karabenistoj indikis al ni la irotan vojon al la fabriko kaj forlasis nin.
 
-Post multaj erarvojoj, ni atingis la brikbakejon. Ni trovis dudekon da laboristoj kaj kelkajn veturigistojn ŝar-
-
-ĝantaj brikojn. Sed ni ne vidis la Impresarion.
+Post multaj erarvojoj, ni atingis la brikbakejon. Ni trovis dudekon da laboristoj kaj kelkajn veturigistojn ŝarĝantaj brikojn. Sed ni ne vidis la Impresarion.
 
 Antaŭ mallonge li estis ĉi tie, sed jam foriris, oni diris al ni. Li iris eble al la elektra segejo, sed verŝajne jam el
 
@@ -713,9 +580,7 @@ Antaŭ mallonge li estis ĉi tie, sed jam foriris, oni diris al ni. Li iris eble
 
 Ni ne sciis, kien direkti nin kaj momenton staris ne-decide en la polvo meze de la strato. Estis terure varme.
 
-La polvo fiksiĝis sur niaj okuloj. Ni fariĝis preskaŭ nere-koneblaj kun la malpura hararo kaj la dentoj, la buŝo, la 42
-
-FONTAMARA
+La polvo fiksiĝis sur niaj okuloj. Ni fariĝis preskaŭ nere-koneblaj kun la malpura hararo kaj la dentoj, la buŝo, la
 
 
 gorĝo, la brusto plenaj de polvo. Ni sentis nin malfortaj pro soifo kaj malsato.
@@ -731,9 +596,6 @@ Giuditta Scarpone kaj la filino de Cannarozzo reciproke kaptis siajn harojn kaj 
 ”Estis malsaĝe sekvi tiun megeron,” diris Limona, montrante Mariettan, kiam ĉiuj denove kvietiĝis. ”La Impresario ne povas kulpi pri la deviigo de la rivereto.
 
 Kial ni estas ĉi tie?”
-
-
-FONTAMARA
 
 
 ”Ni iru al don Carlo Manĝas,” la edzino de Michele Zompa proponis. ”Oni deviigos la rivereton laŭ lia kamparo. Do povas esti, ke temas pri privata afero de li.”
@@ -752,33 +614,22 @@ En tiu momento aperis la mastrino, kiu nin jam konis.
 
 Donna Zizzola nin akceptis, kvazaŭ ŝi atendus nin. ŝi petis al ni eniri la kuirejon. De sur la plafono pendis ŝin-koj, salamoj, kolbasoj, vezikoj da porkograso, aroj da sorpofruktoj, ajloj, cepoj . . . Donna Zizzola estis ĉiam vestita malnovmode, kun nigra kufo kaj jupo pendanta
 
-ĝis la planko. Kiam ŝi parolis, estis kvazaŭ ŝi plorus; ŝi ne povis paroli ne lamentante. ĉe ni, en la familioj de la bienposedantoj, la virinoj same bone konas ĉiujn aferojn kiel la viroj. Koncerne demandojn pri heredo aŭ posedo, la opinio de la virinoj preskaŭ ĉiam superas. Ili defendas la familian posedon, traktas kun la servistoj, pagas al la laboristoj, fiksas la vendoprezojn de la produktoj. Arde defendante la integron de la bienoj, dote alportitaj de ili, la edzinoj de la bienhavantoj sekurigas almenaŭ parton 44
-
-FONTAMARA
+ĝis la planko. Kiam ŝi parolis, estis kvazaŭ ŝi plorus; ŝi ne povis paroli ne lamentante. ĉe ni, en la familioj de la bienposedantoj, la virinoj same bone konas ĉiujn aferojn kiel la viroj. Koncerne demandojn pri heredo aŭ posedo, la opinio de la virinoj preskaŭ ĉiam superas. Ili defendas la familian posedon, traktas kun la servistoj, pagas al la laboristoj, fiksas la vendoprezojn de la produktoj. Arde defendante la integron de la bienoj, dote alportitaj de ili, la edzinoj de la bienhavantoj sekurigas almenaŭ parton
 
 
 el la posedo for de la spekulacioj kaj debitoroj de la edzo.
 
 Koncerne don Carlo Manĝas ĉiu sciis, ke li estas lude-mulo, drinkemulo kaj manĝemulo.
 
-Se la edzino ne bridus lin, li estus jam longe fordibo-
-
-ĉinta sian tutan havon. La senvaria respondo, donata dum multaj jaroj de la servistino al la vizitantoj, estis el-penso de la mastrino por kontroli la edzajn aferojn.
+Se la edzino ne bridus lin, li estus jam longe fordiboĉinta sian tutan havon. La senvaria respondo, donata dum multaj jaroj de la servistino al la vizitantoj, estis el-penso de la mastrino por kontroli la edzajn aferojn.
 
 Kiam ni finis la historion pri la rivereto, donna Zizzola estis palega, kvazaŭ ŝi estus svenonta. Sur la maldika vizaĝo ni vidis je la rigidaj makzeloj la penadon bremsi la larmojn.
 
 ”Kia bandito! . . . Kia bandito! . . .” flustre ŝi murmuris. Per tio ŝi aludis ne sian edzon, sed la Impresarion.
 
-”Li estas vera bandito,” ŝi diris. ”Li neglektas ĉiun leĝon. Se li restos ĉi tie ankoraŭ kelkajn jarojn, li formanĝos nin ĉiujn vivaj, kun niaj domoj, niaj bienoj, niaj arboj, nia monto. Li disŝiros nin ĉiujn . . . Li kaj lia diabla banko devigos nin almozpeti. Post tio ili ankoraŭ for-
+”Li estas vera bandito,” ŝi diris. ”Li neglektas ĉiun leĝon. Se li restos ĉi tie ankoraŭ kelkajn jarojn, li formanĝos nin ĉiujn vivaj, kun niaj domoj, niaj bienoj, niaj arboj, nia monto. Li disŝiros nin ĉiujn . . . Li kaj lia diabla banko devigos nin almozpeti. Post tio ili ankoraŭ forŝtelos niajn almozojn.”
 
-ŝtelos niajn almozojn.”
-
-Tiel ni eksciis, ke la famaj bienoj de don Carlo Man-
-
-ĝas, kien oni deviigos la rivereton de Fontamara, de unu semajno estas en la manoj de la Impresario, kiu sendube vendos ilin por pli alta prezo, post kiam li transformis ilin en irigacitajn kampojn.
-
-
-FONTAMARA
+Tiel ni eksciis, ke la famaj bienoj de don Carlo Manĝas, kien oni deviigos la rivereton de Fontamara, de unu semajno estas en la manoj de la Impresario, kiu sendube vendos ilin por pli alta prezo, post kiam li transformis ilin en irigacitajn kampojn.
 
 
 ”Nun oni nomis lin podestà,” plu diris donna Zizzola.
@@ -790,9 +641,6 @@ Dum la tuta ekscita vortfluo ni havis unu fortan im-preson: ankaŭ por la malnov
 Denove ni troviĝis surstrate al la vilao de la podestà.
 
 Pro la tro multa marŝado miaj genuoj doloris kiel en sankta Vendredo, kiam oni surgenue surgrimpas la kalvarian vojon. Miaj nudaj piedoj brulis.
-
-
-FONTAMARA
 
 
 Survoje ni renkontis Antonion Zappa, kapropaŝtiston el Fontamara, kiu ankaŭ serĉis la Impresarion. Li estis kun siaj ŝafoj sur la traturo*, kiam kampara gvardiano ordonis al li foriri, ĉar ĉi tiu parto de la traturo apartenas al la Impresario.
@@ -807,9 +655,7 @@ Ni konis Antonion Zappa kiel junulon ne tre saĝan, sed en tiu kazo li pravis. V
 
 ”La podestà ankoraŭ ne revenis! La sinjoroj manĝas jam dum duona horo kaj la persono, pro kiu ni festenas, ankoraŭ ne venis.”
 
-* altaj vojoj en Apuglia kaj Abruzzo, kie oni paŝtas brutojn 47
-
-FONTAMARA
+* altaj vojoj en Apuglia kaj Abruzzo, kie oni paŝtas brutojn
 
 
 Ni flaris la odoron de la manĝaĵoj. La servistino detale raportis pri la bankedo. Don Circostanza faris belan paroladon. Post tio ŝi parolis pri la manĝaĵoj kaj esprimis sin per diminutivoj. ŝi diris: cepetoj, saŭcetoj, fungetoj terpometoj, odoretoj kaj gustetoj.
@@ -833,9 +679,6 @@ Rideksplodo salutis la eltrovon de la pastro. Ekestis nova paŭzo. Poste don Abb
 Tio estis la signalo por fini la bankedon. La gastoj eliris en la ĝardenon por urini.
 
 
-FONTAMARA
-
-
 Kanoniko don Abbacchio, dika kaj spireganta, kun ŝvelinta kolo kaj purpura vizaĝo, fermitaj okuloj kun esprimo de benita porko, elvenis unua. Li apenaŭ kapablis stari surpiede pro ebrio kaj urinis kontraŭ arbon en la ĝardeno, tenante la kapon premita kontraŭ ĝin por ne fali, la malfermitan pantalonon turninte al ni . . . .
 
 Malantaŭ li ni vidis eliri advokaton don Pomponio, subtenata de la karabenistestro kaj sincerdire, li lasis snduki malantaŭ la domon, kie neniu lin povis vidi, por plenumi naturan devon.
@@ -845,9 +688,6 @@ Elvenis ankoraŭ la apotekisto, la enkasigisto de impostoj, la poŝtestro kaj la
 Poste eliris advokato don Ciccone kun junulo, kiu subtenis lin per brako. La advokato ekvomis malantaŭ la arbo, kiun don Abbacchio ĵus surŝprucis kaj la junulo apogis lian frunton per unu mano; pro tio ni povis vidi ĉe la piedo de la arbo la delikataĵojn, laŭditajn de la servistino: makaroneton, saŭceton, cepetojn, terpometojn, salateton, odoreton, gusteton.
 
 Tiam aperis maljuna komunuma oficisto, kiun ni nomis la Studento, ĉar li enskribigis sin ĉe la universitato en dudekjara aĝo, sed estante sesdekjara li ankoraŭ preparis sin por la ekzamenoj. Ankaŭ li iris malantaŭ la domon por plenumi necesan naturan aferon.
-
-
-FONTAMARA
 
 
 Advokato don Cuccavascio, malgranda, dika, kun bo-vaj okuloj kaj ĉevalaj makzeloj, faris ĉion necesan malantaŭ la brikamaso.
@@ -860,12 +700,7 @@ Li surhavis laboristajn vestojn kaj portis sian jakon sur brako. En la mano li t
 
 Neniu, ne konanta lin, kredus, ke li estas la plej riĉa ho-mo en nia regiono kaj la estro de la komunumo. Kvankam li rimarkis nian ĉeeston, li kriis kaj diskutis plu kun la laboristoj lin akompanantaj.
 
-”. . . Se la veturigisto ne estos pli singarda kaj plu rompos tegolojn,” li diris, ”mi page rekompencos lin per la pecetoj. Kion? . . . ĉu vi deziras la salajron de la pas-50
-
-FONTAMARA
-
-
-inta monato? . . . Kiel hontige! ĉu vi timas, ke mi fuĝos?
+”. . . Se la veturigisto ne estos pli singarda kaj plu rompos tegolojn,” li diris, ”mi page rekompencos lin per la pecetoj. Kion? . . . ĉu vi deziras la salajron de la pasinta monato? . . . Kiel hontige! ĉu vi timas, ke mi fuĝos?
 
 Danku min, ke mi laborigas vin en tempo plenkriza. ĉu la cementistoj rifuzos labori po dek horoj en tago? ĉu jes? ĉu dekhora tago estas tro longa? Sed mi laboras dek du horojn. Mi estas la mastro kaj ĉiutage laboras dek du horojn.”
 
@@ -884,9 +719,6 @@ Antonio Zappa ekkuris malantaŭ li kaj diris:
 ”Vi, virinoj, ĉi tie atendu.”
 
 
-FONTAMARA
-
-
 Ni vidis lin malaperanta malantaŭ konstruatan domon kaj atendis ĝis kiam li revenos.
 
 Intertempe la ebriaj gastoj kolektiĝis sur la balkono de la vilao. En la grupo de advokatoj plej multe reliefiĝis don Circostanza kun siaj volboĉapelo, senforma pora nazo, ventumilaj oreloj kaj la ventro en la tria stadio. Vi sciu, ke advokatoj en niaj regionoj, ironte al bankedo, surmetas specialan tipon de pantalono, del nomitan harmonikan aŭ intelektulan pantalonon, ĉar, anstataŭ unu, ĝi havas tri vicojn da butonoj. Tiel la posedantoj povas laŭbezone plilarĝigi ĝin, por ke la ventro ne sentu la abundon. Cetere la unuan stadion oni atingas post la pasta asciutta, pastaĵo kun tomata saŭco, la duan post la rostita viando, la trian post la deserto.
@@ -899,12 +731,7 @@ Don Circostanza, apenaŭ rekoninte nin, laŭte salutis.
 
 Don Circostanza ĉiam montris specialan bonvolon al la enloĝantoj de Fontamara. ĉiuj malpacoj trairis liajn manojn. Tial la pli gran da parto de la kokinoj kaj ovoj de Fontamara transloĝiĝis en la kuirejon de don Circostanza.
 
-Iun fojon, kiam rajtis voĉdoni nur tiuj, kiuj scias legi kaj skribi, venis al Fontamara instruisto, kiu al ĉiuj ka-52
-
-FONTAMARA
-
-
-fonoj instruis skribi la nomon kaj antaŭnomon de don Circostanza. La fontamaranoj voĉdonis do ĉiam unu-anime por li. Se ili dezirus elekti iun alian, ili ne povus, ĉar ili kapablis skribi nur lian nomon. Poste oni abolis la voĉdonadon, sed neniu el ni perdis larmon pro tio.
+Iun fojon, kiam rajtis voĉdoni nur tiuj, kiuj scias legi kaj skribi, venis al Fontamara instruisto, kiu al ĉiuj kafonoj instruis skribi la nomon kaj antaŭnomon de don Circostanza. La fontamaranoj voĉdonis do ĉiam unu-anime por li. Se ili dezirus elekti iun alian, ili ne povus, ĉar ili kapablis skribi nur lian nomon. Poste oni abolis la voĉdonadon, sed neniu el ni perdis larmon pro tio.
 
 Sed don Circostanza konservis la titolon Amiko de la Popolo.
 
@@ -921,9 +748,6 @@ Rimarkante, ke la invititoj eksalutas sinjorinon Rosalia kaj intencas foriri, du
 . . . ŝtelistoj! . . . Ankaŭ ni estas kristanoj! . . . De la mateno ni rondiras kaj neniu aŭskultas nin! . . . Dio vin trovos! . . . Dio vin punos! . . .”
 
 
-FONTAMARA
-
-
 Du aŭ tri el ni prenis ŝtonojn kaj ĵetis ilin tra la unua-etaĝa fenestro. La vitropecoj dissaltis ĉiudirekten. In-stigitaj de la bruo de la falanta vitro, ni ĵetis nin sur brikamason ĉe la fera pordo. La ebriuloj en la ĝardeno, kiuj intencis hejmeniri, ektimis kaj rifuĝis en la vilaon. La servistino rapide fermis la fenestrajn ŝirmilojn.
 
 Subite ni aŭdis malantaŭ ni la voĉon de la Impresario.
@@ -938,9 +762,7 @@ Marietta Sorcanera paŝis al la fronto de nia grupo, metis manon sur la koron je
 
 ”Ni estas certaj, ke vi, sinjoro, pensas pri puno al la laboristoj pro ilia perforta agado,” resumis Marietta.
 
-”Se temas pri perforto,” rediris tuj la Impresario ”vi povos esti certaj, ke mi kapablos subpremi ĝin. Tiel longe, kiel mi estas estro de la komunumo, perfortoj ne 54
-
-FONTAMARA
+”Se temas pri perforto,” rediris tuj la Impresario ”vi povos esti certaj, ke mi kapablos subpremi ĝin. Tiel longe, kiel mi estas estro de la komunumo, perfortoj ne
 
 
 okazos. Precipe, ili ne okazos kontraŭ laboristoj, kiaj fontamaranoj . . . Sed en ĉi tiu kazo ne temas pri perforto. Kapitano, klarigu, pri kio temas.”
@@ -964,9 +786,6 @@ La kapitano intencis ankoraŭ aldoni pli, sed ni ne permesis tion. Ni bone sciis
 La Impresario klopodis aldoni ion, sed vane.
 
 
-FONTAMARA
-
-
 ”Ni ne deziras aŭdi babilojn,” ni kriis. ”Ni sufiĉe parolis. ĉiu vorto via estas trompo. La akvo estas nia kaj restos nia. Ni forbruligos vian vilaon. Fajro! Fajro!”
 
 Save al la Impresario intervenis don Circostanza.
@@ -988,16 +807,11 @@ diris don Circostanza, ”ĉar ili meritas respekton. Tiuj virinoj ne estas malb
 Kiam don Circostanza ĉesis paroli favore por ni, oni kompromise faris kelkajn proponojn. Don Abbacchio faris iun proponon, la notario alian, trian la impostisto.
 
 
-FONTAMARA
-
-
 Sed ili estis neakcepteblaj, ĉar ili tute ignoris la kvanton da akvo kaj la manieron de irigacado.
 
 La Impresario diris nenion. Li lasis paroli la aliajn. La veran solvon prezentis don Circostanza.
 
-”Tiuj virinoj diris, ke la duono de la rivereto ne sufi-
-
-ĉas por irigaci iliajn kampojn. Ili deziras pli ol duonon, mi almenaŭ kredas bone interpreti iliajn bezonojn. Ili pravas, dekoble pravas. Ekzistas unu sola, unika solvo.
+”Tiuj virinoj diris, ke la duono de la rivereto ne sufiĉas por irigaci iliajn kampojn. Ili deziras pli ol duonon, mi almenaŭ kredas bone interpreti iliajn bezonojn. Ili pravas, dekoble pravas. Ekzistas unu sola, unika solvo.
 
 Ni lasu al la podestà tri kvaronojn de la rivereta akvo kaj tri kvaronoj de la resto estu por la fontamaranoj. Tiel ambaŭ havos tri kvaronojn, t.e. iom pli ol duonon. Jen la sola, ununura ebla solvo. Mi komprenas, ke mia propono postulas multegon de la podestà, sed mi apelacias al la bona koro de filantropo kaj bonfaranto, kiu kutimas doni, postulante nenion.”
 
@@ -1012,18 +826,12 @@ La notario skribis la tekston de la kompromiso, kiun subskribis la Impresario, l
 Post tio ni ekiris hejmen.
 
 
-FONTAMARA
-
-
 (Verdire, neniu el ni komprenis, kion praktike entenas la interkonsento).
 
 Tion, kio poste okazis, rakontos al vi mia edzo.
 
 
-FONTAMARA
-
-
-ĉAPITRO III.
+ĈAPITRO III.
 
 Dum la sekvintaj tagoj, la laboristoj, gardataj de du karabenistoj, rekomencis fosi la kanaleton, kiu for-kondukos parton de nia akvo al la kampoj de la Impresario. Sed kiun parton?
 
@@ -1034,9 +842,6 @@ Eĉ la virinoj, akceptintaj la proponon pri divido, ne sciis, el kio ĝi fakte k
 Sincerdire, neniu el ni deziris diskuti kun la Impresario, konsiderante tion perdita tempo. Des pli oni pripensis manieron akiri plej multe da akvo, koste de la aliaj kafonoj. Daŭris ankoraŭ kelkajn semajnojn, antaŭ ol mankos la akvo, sed la malpacoj kaj diskutoj jam komenciĝis.
 
 
-FONTAMARA
-
-
 En tiu epoko la plimulto el ni laboris potage en Fucino. Ni devis ellitiĝi matene je la tria kaj esti sur la ĉefur-ba placo, kie estis la merkato, antaŭ la sunleviĝo kaj atendi, ĝis kiam iu ofertos al ni laboron. Antaŭe nur la plej malriĉaj kafonoj estis devigitaj iri al la merkato, sed poste la tempo pli malboniĝis por ĉiuj. La malmulta tero, posedata de la kafono, estis ŝarĝita per hipotekoj kaj apenaŭ sufiĉe produktis por pagi la rentojn de la ŝuldoj.
 
 La grandan alfluon de kafonoj sur la placon la posedantoj kaj grandfarmistoj elprofitis por malgrandigi la salajron. Kiom ajn malalta la salajro estis, ĉiam ekzistis kafonoj, kiuj pro malsato akceptis ĝin. Multaj proponis sin, ne demandante pri salajro, pretaj al ĉia mizero.
@@ -1045,9 +850,7 @@ De la placo en Fucino ni devis marŝi dek ĝis dek kvin kilometrojn, kiuj ankora
 
 Dum la marŝoj al kaj la hejmeniroj de Fucino, la diskutoj pri la akvo fariĝis de tago al tago pli akraj.
 
-Kelkaj el ni grave vundiĝis. Michele Zompa perdis pro puŝo per branĉotondilo de Giacobbe Losurdo preskaŭ tutan sidvangon; al Baldovino Sciarappa oni rompis la kapon kiel melonon; la bofrato de Antonio Ranocchia rompis al li brakon. Inter mi kaj Ponzio Pilato minacis terura solvo, ĉar neniu el ni pretis oferi sin por la alia kaj ambaŭ ni iris al la laboro, akompanataj de la respektivaj 60
-
-FONTAMARA
+Kelkaj el ni grave vundiĝis. Michele Zompa perdis pro puŝo per branĉotondilo de Giacobbe Losurdo preskaŭ tutan sidvangon; al Baldovino Sciarappa oni rompis la kapon kiel melonon; la bofrato de Antonio Ranocchia rompis al li brakon. Inter mi kaj Ponzio Pilato minacis terura solvo, ĉar neniu el ni pretis oferi sin por la alia kaj ambaŭ ni iris al la laboro, akompanataj de la respektivaj
 
 
 filoj kaj armitaj de la kapo ĝis la piedoj. Renkontante unu la alian, ni ne plu salutis, sed reciproke rigardis nin, kvazaŭ por diri, ke interbatado estos neevitebla.
@@ -1062,12 +865,7 @@ Berardo Viola kaj la du gardostarantaj karabenistoj alkuregis kaj malhelpis la m
 
 Berardo akompanis nin kelkajn tagojn al Fucino por malhelpi novan tian renkonton kun Ponzio Pilato: li povis fari pacon pro la fakto, ke li ne posedas teron, nek sekan, nek irigacitan kaj do havas interesojn malsamajn al tiuj de la aliaj kafonoj. Antaŭ du jaroj, kiam li intencis elmigri al Ameriko, li vendis la solan pecon da tero, kiun li heredis de sia patro. Sed li ne ricevis permeson enŝipigi sin kaj restis en Fontamara kiel liberigita hundo, kiu ne kapablas ĝui sian liberon kaj malsata vagas ĉirkaŭ la perdita posedaĵo. Sed, kutime, li tute ne estis paciganto.
 
-Estante nepo de la fama rabisto Viola, la lasta en nia regiono, ekzekutita de la piemontanoj en 1867, Berardo heredis de la avo la animon kaj la korpon: li estis alt-61
-
-FONTAMARA
-
-
-statura, fortika kiel trunko de kverko, la kapo malmola kaj kvadrata kiel amboso, kun du grandegaj okuloj, kiajn havas frenezulo, senhonta, bravega, impulsa, batalema.
+Estante nepo de la fama rabisto Viola, la lasta en nia regiono, ekzekutita de la piemontanoj en 1867, Berardo heredis de la avo la animon kaj la korpon: li estis altstatura, fortika kiel trunko de kverko, la kapo malmola kaj kvadrata kiel amboso, kun du grandegaj okuloj, kiajn havas frenezulo, senhonta, bravega, impulsa, batalema.
 
 Li ne respektis Dion, ŝatis vinon, malŝparis, tamen al amikoj li estis malavara, sed volonte ankaŭ kruda. Pro sia fizika supero li havis influon je kelkaj junuloj en Fontamara, kiu efikis ofte per malkonstruoj kaj perfortagoj alportantaj nenian utilon.
 
@@ -1080,9 +878,6 @@ Kiam mankis en Fontamara la lumo la unuan fojon, Berardo diris eĉ ne unu vorton
 Kaj li klarigis:
 
 
-FONTAMARA
-
-
 ”Urbanoj kreas leĝojn; ilin aplikas juĝistoj kaj inter-pretas advokatoj, kiuj ĉiuj estas urbanoj. Kiel kamparano povas pravi? . . .”
 
 Se iu demandis al li:
@@ -1091,14 +886,9 @@ Se iu demandis al li:
 
 Lia respondo estis facila:
 
-”Ili perdas tempon. La laboristoj, kiuj diskutas kun la mastro, perdas tempon. Oni ne povas konvinki mastron per rezonoj. La mastro agas laŭ siaj propraj interesoj. Li ne plu malaltigos la salajron, se tio ne favoras liajn interesojn . . . Kiel tio eblas? Tre simple: Por la sarkado de greno, oni malaltigis la salajron de la knaboj de sep ĝis kvin liroj. Laŭ mia konsilo la junuloj ne protestis, sed anstataŭ eltiri la herbaĉojn, ili kovris ilin per tero. Post la aprilaj pluvoj la mastroj malkovris, ke la herbo estas pli alta ol la greno . . . La malmulton, kion ili kredis gajni per la malaltigo de la salajroj, ili perdis dekoble post kelkaj semajnoj, kiam estis tempo de rikoltado . . . ĉu oni malaltigas la salajron de la fal-
-
-ĉistoj? Senutile protesti. Neutile diskuti. Ne ekzistas unu sola maniero de grenfalĉado, sed dek: ĉiu maniero kon-formas al certa pago. ĉu la salajro estas bona? La rikolto estos bona. ĉu la salajro estas malbona? La rikolto estos ankoraŭ pli malbona . . .”
+”Ili perdas tempon. La laboristoj, kiuj diskutas kun la mastro, perdas tempon. Oni ne povas konvinki mastron per rezonoj. La mastro agas laŭ siaj propraj interesoj. Li ne plu malaltigos la salajron, se tio ne favoras liajn interesojn . . . Kiel tio eblas? Tre simple: Por la sarkado de greno, oni malaltigis la salajron de la knaboj de sep ĝis kvin liroj. Laŭ mia konsilo la junuloj ne protestis, sed anstataŭ eltiri la herbaĉojn, ili kovris ilin per tero. Post la aprilaj pluvoj la mastroj malkovris, ke la herbo estas pli alta ol la greno . . . La malmulton, kion ili kredis gajni per la malaltigo de la salajroj, ili perdis dekoble post kelkaj semajnoj, kiam estis tempo de rikoltado . . . ĉu oni malaltigas la salajron de la falĉistoj? Senutile protesti. Neutile diskuti. Ne ekzistas unu sola maniero de grenfalĉado, sed dek: ĉiu maniero kon-formas al certa pago. ĉu la salajro estas bona? La rikolto estos bona. ĉu la salajro estas malbona? La rikolto estos ankoraŭ pli malbona . . .”
 
 Se iu demandis al li:
-
-
-FONTAMARA
 
 
 ”Nuntempe, kiam la Impresario intencas ŝteli de ni la akvon, ĉu ni ne devas diskuti?”
@@ -1120,23 +910,13 @@ Ne havante teron, do estante pli malsupera ol la aliaj kafonoj, li havis nenian 
 Tiel, ĉiun fojon, kiam li partoprenis niajn diskutojn, la konfuzo kreskis kaj neniu praktika homo aŭskultis lin, eĉ ne por kontraŭargumenti, escepte de General Baldissera, principe tute lia kontraŭulo, kiu kiel ŝuisto, avidis fari interparolojn senutilajn.
 
 
-FONTAMARA
-
-
 Per siaj strangaj ideoj kaj ankoraŭ pli per sia ekzemplo, Berardo estis ŝanĝinta la pensmanieron de la tuta junularo en Fontamara.
 
-En la vilaĝo neniam estis tiom da junuloj. Antaŭe ili ekmigris por serĉi laboron, estante apenaŭ deksesjaraj; unu foriris al Lazio, dua al Apuglia kaj tria al Ameriko; multaj disiĝis de la fianĉino por kvar, ses aŭ ĝis dek jaroj kaj ĉe reveno edziĝis; aliaj edziĝis la tagon antaŭ la forveturo kaj post la unua nokto de amoro foriris mal-proksimen por kvar, ses aŭ dek jaroj; ĉe la reveno ili trovis la filon granda kaj okazis ankaŭ, ke ili trovis kelkajn de diferencaj aĝoj. Sed la elmigromalpermeso haltigis la forvojaĝon de la junuloj, kiuj estis devigataj resti en Fontamara, kie la laboro estis malmulta por ĉiuj. La malpermeso elmigri signifis por ili neeblon laborenspezi kaj ŝpari tiom, kiom bezonate por konservi la malgrandan gepatran teron, almorditan de ŝuldoj kaj hipotekoj, por fari la plej necesajn plibonigojn kaj kulturi laŭ malpli primitiva metodo, por anstataŭigi la maljunan aŭ mor-tintan azenon per juna, por akiri porkon, du kaprinojn, aĉeti liton por edziĝi. Sed estante junaj, ili ne montris sian malkontenton per lamentoj kaj plendoj kaj eĉ ne pervorte esprimis sin pri la senkompata sorto, kiu trafis ilin. En la multaj tagoj de neniofarado ili kolektiĝis kaj influataj de la plej aĝaj, tamen plej malprudentaj, ili fa-65
-
-FONTAMARA
-
-
-cile faris sensencaĵojn kaj ekplanis entreprenojn malsaĝajn.
+En la vilaĝo neniam estis tiom da junuloj. Antaŭe ili ekmigris por serĉi laboron, estante apenaŭ deksesjaraj; unu foriris al Lazio, dua al Apuglia kaj tria al Ameriko; multaj disiĝis de la fianĉino por kvar, ses aŭ ĝis dek jaroj kaj ĉe reveno edziĝis; aliaj edziĝis la tagon antaŭ la forveturo kaj post la unua nokto de amoro foriris mal-proksimen por kvar, ses aŭ dek jaroj; ĉe la reveno ili trovis la filon granda kaj okazis ankaŭ, ke ili trovis kelkajn de diferencaj aĝoj. Sed la elmigromalpermeso haltigis la forvojaĝon de la junuloj, kiuj estis devigataj resti en Fontamara, kie la laboro estis malmulta por ĉiuj. La malpermeso elmigri signifis por ili neeblon laborenspezi kaj ŝpari tiom, kiom bezonate por konservi la malgrandan gepatran teron, almorditan de ŝuldoj kaj hipotekoj, por fari la plej necesajn plibonigojn kaj kulturi laŭ malpli primitiva metodo, por anstataŭigi la maljunan aŭ mor-tintan azenon per juna, por akiri porkon, du kaprinojn, aĉeti liton por edziĝi. Sed estante junaj, ili ne montris sian malkontenton per lamentoj kaj plendoj kaj eĉ ne pervorte esprimis sin pri la senkompata sorto, kiu trafis ilin. En la multaj tagoj de neniofarado ili kolektiĝis kaj influataj de la plej aĝaj, tamen plej malprudentaj, ili facile faris sensencaĵojn kaj ekplanis entreprenojn malsaĝajn.
 
 Vintre ili kunvenis prefere en la stalo de Antonio Zappa, kie la haladzoj de la kaprinoj varmigis la aeron. Tien iris Antonio Spaventa, Luigi della Croce, Palummo, Raffaele Scarpone, Venerdì Santo, mia filo, tiu de Ponzio Pilato kaj aliaj. Berardo Viola aperis ĉiufoje, kiam oni planis fanfaronaĵojn kaj perfortojn. Oni allasis neniun alian en la societon, kiun la knabinoj de Fontamara nomis ”La malvirta rondo”. Tiu nomo estis pli ĝusta ol unuavide ŝajnis. Iun tagon oni malkovris, ke la plej dezirata tempopasigo estas misuzi la kaprinojn kaj precipe la junan kaprinon de Baldovino Sciarappa, nomitan Roscetta, laŭ la koloro de la felo, pri kiu oni rakontis, ke kun multaj obeo kaj volupto ĝi sciis kontentigi la dezirojn de la junuloj. Pro Roscetta ili multe disputis kaj la malĉasto longe daŭris, ĝis kiam, kiel ĉiam okazas en similaj aferoj, la posedanto de la kaprino, Baldovino Sciarappa, fine aŭdis pri tio. Pro tiu skandalo multaj kafonoj, konfidintaj siajn kaprinojn al Antonio Zappa, reprenis ilin kaj ”La malvirta rondo” likvidiĝis.
 
-Plej mirige estis, ke Berardo, sana, muskola junulo, jam tridekjaraĝa, orfo, por kiu estis devigita mastrumi la proksimume naŭdekjara avino, montras nenian intencon edziĝi. Iam inter li kaj Elvira, la tinkturistino, ekzistis amrilato kaj pli bonan kunulinon li ne povus trovi, sed 66
-
-FONTAMARA
+Plej mirige estis, ke Berardo, sana, muskola junulo, jam tridekjaraĝa, orfo, por kiu estis devigita mastrumi la proksimume naŭdekjara avino, montras nenian intencon edziĝi. Iam inter li kaj Elvira, la tinkturistino, ekzistis amrilato kaj pli bonan kunulinon li ne povus trovi, sed
 
 
 post la perdo de la peceto da tero, Berardo rompis la rilaton, donante neniun klarigon. Demandi al li pri Elvira estis certa maniero furiozigi lin. Dum la longaj vin-traj vesperoj, kiam ne estis laboro farenda, kiam la pliaĝuloj drinkis kaj la gejunuloj amkaresis, Berardo diskutis kun General Baldissera ĝis noktmezo pri la diferenco inter urbanoj kaj kamparanoj, inter la tri privile-gioj, nome la privilegio de la pastraro, de la posedantoj kaj de la kutimo. ĉe tio li pugnobatis sur la tablon tiel, ke ĉio en la trinkejo de Marietta Sorcanera tremis, sed la maljuna General, adepto de la ”neŝanĝebla ordo” restis kvieta. Oni povus pensi, ke Berardo ne plu havas preten-dojn pri Elvira, sed iun tagon, kiam lin atingis la sciigo, ke Filippo il Bello petis ŝin edziniĝi, li ege furioziĝis. Li kuris al lia hejmo, sed tie lin ne trovis. Ekaŭdinte, ke li iris al la ŝtonmino, Berardo rapidis tien kaj trovis lin me-zuranta altamasojn da silikoj kaj ne petinte konfirmon de la onidiro, li kaptis lin ĉe la brusto kaj ĵetis lin dekon da fojoj sur ŝtonamason kiel ĉifonon, ĝis kiam alkuregis laboristoj.
@@ -1147,12 +927,7 @@ Iun vesperon, reveninte el Fucino, mi klopodis paroli kun li.
 
 ”Elvira eble jam transpasis sian dudek-kvinan jaron,”
 
-mi diris, ”kaj en nia regiono, kie la junuloj geedziĝas an-67
-
-FONTAMARA
-
-
-taŭ la dudeka jaro, tio estas jam tro aĝa. Krom tio ŝia patro estas paralizita kaj ne kapablas helpi ŝin ĉe teksado kaj tinkturado. Ekster ĉiu alia motivo Elvira bezonas edzon, kiu povas helpi hejme.”
+mi diris, ”kaj en nia regiono, kie la junuloj geedziĝas antaŭ la dudeka jaro, tio estas jam tro aĝa. Krom tio ŝia patro estas paralizita kaj ne kapablas helpi ŝin ĉe teksado kaj tinkturado. Ekster ĉiu alia motivo Elvira bezonas edzon, kiu povas helpi hejme.”
 
 Berardo ne diris ion.
 
@@ -1166,9 +941,7 @@ La sekvintan tagon mi vane atendis lin por iri al Fucino. Mi iris al lia hejmo p
 
 ”Berardo freneziĝos,” ŝi diris al mi, ”li finos ankoraŭ pli malbone ol lia avo. ĉi tiun nokton li ne fermis la okulojn, eĉ ne unu minuton. Li ellitiĝis antaŭ la dua. Mi diris al li: estas tro frue por Fucino. Li diris: mi ne iros al Fucino. Mi demandis: kien do? Li respondis: mi iros al Cammarese. Mi: kaj kial vi iros al Cammarese, se estas laboro en Fucino? Li: ĉar tie oni laborenspezas pli multe. Mi: de kiam vi zorgas pri enspezado? Sed li foriris, ne doninte aliajn klarigojn . . .”
 
-La sciigo pri la forveturo de Berardo al la romana agro tuj disvastiĝis inter la kafonoj de Fontamara kaj alportis miregon, kvankam kafono, kiu vivas de tago al tago, se li povas akiri pagon malpli modestan, havas nenian 68
-
-FONTAMARA
+La sciigo pri la forveturo de Berardo al la romana agro tuj disvastiĝis inter la kafonoj de Fontamara kaj alportis miregon, kvankam kafono, kiu vivas de tago al tago, se li povas akiri pagon malpli modestan, havas nenian
 
 
 devon resti en sia vilaĝo, eĉ kiam la laboro estas inten-sa. Nia miro kreskis, kiam tiun saman vesperon Berardo revenis al Fontamara.
@@ -1185,9 +958,7 @@ Mi respondis: al Cammarese por labori. Ili diris: — Montru la permesilon! — 
 
 — tiel tekstas la nova regularo pri migrantaj laboristoj.
 
-Mi klopodis konvinki ilin, ke mi iros al Cammarese ne 69
-
-FONTAMARA
+Mi klopodis konvinki ilin, ke mi iros al Cammarese ne
 
 
 por interna migrado, sed nur por labori, sed ĉio estis senutila. — Ni ricevis niajn ordonojn — diris la karabenistoj, — ni ne povas permesi al iu ajn laboristo, kiu vo-jaĝos en alian regionon por labori, sen permesilo eniri la vagonaron. Oni repagis la prezon de la bileto kaj mi devis foriri. Sed tiu historio pri la permesilo ne eliris mian kapon . . . Mi eniris gastejon kaj ekparolis kun tiuj, kiuj estis tie. — La permesilo? ĉu vi ne scias, kio ĝi estas? —
@@ -1201,9 +972,6 @@ General Baldissera plej multe interesiĝis pri la rakonto de Berardo, ĉar li el
 Vere temis pri ĝi. La sindikato de manlaboristoj, sek-cio ”prilaborado de ledo,” provinco Aquila, invitis General Baldissera havigi al si ŝuistan permesilon.
 
 ”Ankaŭ Elvira ricevis similan leteron,” aldonis Marietta, ”ŝi venis al mi, tute timigita, por ke mi klarigu, pri kio temas, sed mi komprenis nur tion, ke ne plu ekzistas la libero labori . . . La prapatroj de Elvira ĉiuj estis tinkturistoj kaj teksistoj kaj neniu iam malhelpis tion al ili; nun oni skribis al ŝi, ke, se ŝi deziras daŭrigi la metion, ŝi devas pagi imposton kaj havigi al si permesilon . . .”
-
-
-FONTAMARA
 
 
 La ricevo de tiuj cirkuleroj en Fontamara, kiuj koin-cidis kun la incidentoj okazintaj al Berardo, igis min supozi, ke probable oni preparas burleskon:
@@ -1222,12 +990,7 @@ Tiu demando impresis nin ĉiujn.
 
 Simplicio diris, ke estas kontraŭ la turkoj kaj nur poste ni sciiĝis, ke ni batalis kontraŭ Trento kaj Trieste . . .
 
-Sed en la historio estis militoj, pri kiuj neniu komprenis kontraŭ kiu! ĉu milito? Sed milito estas tiel komplikita, ke kafono neniam povos kompreni ĝin . . . Kafono vi-71
-
-FONTAMARA
-
-
-das nur etan parton de la milito, ekzemple permesilon kaj tio impresas lin. La urbano vidas pli multe, kazernojn kaj armilfabrikojn. La reĝo la tutan landon. Nur Dio vidas ĉion!”
+Sed en la historio estis militoj, pri kiuj neniu komprenis kontraŭ kiu! ĉu milito? Sed milito estas tiel komplikita, ke kafono neniam povos kompreni ĝin . . . Kafono vidas nur etan parton de la milito, ekzemple permesilon kaj tio impresas lin. La urbano vidas pli multe, kazernojn kaj armilfabrikojn. La reĝo la tutan landon. Nur Dio vidas ĉion!”
 
 ”Sed, ĉu vi prenos la permesbileton?” mi demandis al Baldissera.
 
@@ -1249,9 +1012,7 @@ Neniu sciis respondi. Sidante antaŭ la trinkejo de Sorcanera, General Baldisser
 
 La konfuzo en niaj pensoj kreskis pro la neatendita alveno de Innocenzo La Legge.
 
-Ke Innocenzo kuraĝas denove reveni al Fontamara, de kie li pro komprenebla timo restis malproksima dum 72
-
-FONTAMARA
+Ke Innocenzo kuraĝas denove reveni al Fontamara, de kie li pro komprenebla timo restis malproksima dum
 
 
 kelkaj monatoj, certe havis gravan motivon; propravole li certe ne venis. Preskaŭ atinginte la trinkejon de Sorcanera kaj vidante, ke la kafonoj de ĉiuj flankoj kuras renkonte al li, dum momento li ektimis. La palego de lia leporvizaĝo perfidis lian internan angoron. ustatempe Marietta alŝovis benketon, antaŭ ol li falus teren.
@@ -1260,9 +1021,7 @@ kelkaj monatoj, certe havis gravan motivon; propravole li certe ne venis. Preska
 
 ”ne timu, ne, ne timu; kial timi? ĉu mi eble vin timigas?”
 
-”Parolu,” konsolis Berardo kun malmulte kuraĝiga vo-
-
-ĉo.
+”Parolu,” konsolis Berardo kun malmulte kuraĝiga voĉo.
 
 ”Jen, ni bone komprenu,” plu parolis Innocenzo, ”bo-ne ni komprenu, ke ne temas pri impostoj, mi ĵuras je ĉiuj sanktuloj, ke ne temas pri impostoj, mi denove ripetas, ne estas parolo pri impostoj. Se estos pri impostoj, Dio tuj igu min blinda!”
 
@@ -1270,9 +1029,7 @@ Li paŭzis kelkajn minutojn kaj ne perdis la vidpovon.
 
 ”Daŭrigu!” diris Berardo.
 
-”ĉu vi memoras, ke iun vesperon venis ĉi tien milica oficiro, iu kavaliro Pelino? ĉu vi memoras? Bone, bone-ge, tio plaĉas al mi. Kavaliro Pelino raportis al la plej altaj aŭtoritatuloj, ke li konstatis en Fontamara centron de malamikoj kontraŭ la nuna registaro . . . Ne timu, estas nenio malbona, ne timu . . . Kavaliro Pelino denuncis, vorton post vorto, certajn parolojn faritajn en lia ĉeesto kontraŭ la nuna registaro kaj la religio . . . Sendube li malbone komprenis viajn diskutojn, sendube. Sed la plej 73
-
-FONTAMARA
+”ĉu vi memoras, ke iun vesperon venis ĉi tien milica oficiro, iu kavaliro Pelino? ĉu vi memoras? Bone, bone-ge, tio plaĉas al mi. Kavaliro Pelino raportis al la plej altaj aŭtoritatuloj, ke li konstatis en Fontamara centron de malamikoj kontraŭ la nuna registaro . . . Ne timu, estas nenio malbona, ne timu . . . Kavaliro Pelino denuncis, vorton post vorto, certajn parolojn faritajn en lia ĉeesto kontraŭ la nuna registaro kaj la religio . . . Sendube li malbone komprenis viajn diskutojn, sendube. Sed la plej
 
 
 superaj aŭtoritatuloj decidis fari kelkajn antaŭzorgojn koncerne Fontamara . . . Nenio grava, mi certigas, nenio pagenda, nenio . . . Temas pri bagateloj, kiujn la urbanoj rigardas gravaj, sed por kafonoj havas nenian signifon . . .”
@@ -1291,12 +1048,7 @@ La unua decido estis la deviga enkonduko de la leĝo, koncernanta la fermotempon
 
 Innocenzo La Legge embarasiĝis.
 
-”Vi ne komprenis min,” li diris, ”aŭ, pardonu min, vi ŝajnigas ne kompreni por turmenti min. Kiu diris al vi, ke vi ŝanĝu viajn kutimojn? Vi restos kafonoj kaj plenu-74
-
-FONTAMARA
-
-
-mas vian laboron, kiam vi deziras. Sed la Impresario estas podestà kaj vi ne povas malhelpi al li esti podestà.
+”Vi ne komprenis min,” li diris, ”aŭ, pardonu min, vi ŝajnigas ne kompreni por turmenti min. Kiu diris al vi, ke vi ŝanĝu viajn kutimojn? Vi restos kafonoj kaj plenumas vian laboron, kiam vi deziras. Sed la Impresario estas podestà kaj vi ne povas malhelpi al li esti podestà.
 
 Kaj mi, kio estas mi? Komisiito de la komunumo kaj vi ne povas malhelpi tion. La Impresario, kiel podestà, decidis, por eviti protestojn kaj plendojn de aliaj aŭtoritatuloj, ke vi dumnokte restu hejme. Mi, kiel komisiito, komunikas al vi lian ordonon. Vi, kiel kafonoj, faru tion, kio plaĉas al vi.”
 
@@ -1312,18 +1064,11 @@ Kaj mi, kio estas mi? Komisiito de la komunumo kaj vi ne povas malhelpi tion. La
 
 ”Bonege,” decidis la komisiito, ”mi nomas vin reprezentanto de la leĝo. . .”
 
-ĉiuj ekridegis, sed Baldissera restis serioza kaj ĉar estis jam mallume, li foriris por dormi. Innocenzo, feli-
+ĉiuj ekridegis, sed Baldissera restis serioza kaj ĉar estis jam mallume, li foriris por dormi. Innocenzo, feliĉa pro sia neatendita sukceso, fariĝis pli kuraĝa. Li ekbruligis cigaredon kaj ekfumis. Sed li fumis laŭ maniero nekonata: anstataŭ eligi la fumon el la buŝo, li tenis
 
-ĉa pro sia neatendita sukceso, fariĝis pli kuraĝa. Li ekbruligis cigaredon kaj ekfumis. Sed li fumis laŭ maniero nekonata: anstataŭ eligi la fumon el la buŝo, li tenis
+ĝin tie kaj poste elblovis tra la naztruoj, sed ne tra am-baŭ samtempe, kiel ankaŭ ni kapablas, sed alterne, an-taŭe tra unu kaj poste tra la alia . . . Li profitis la momentan miron por surprizi nin per la dua decido de la podestà koncerne Fontamara: en ĉiuj publikaj salonoj devas pendi afiŝo, tekstanta:
 
-ĝin tie kaj poste elblovis tra la naztruoj, sed ne tra am-baŭ samtempe, kiel ankaŭ ni kapablas, sed alterne, an-taŭe tra unu kaj poste tra la alia . . . Li profitis la mo-75
-
-FONTAMARA
-
-
-mentan miron por surprizi nin per la dua decido de la podestà koncerne Fontamara: en ĉiuj publikaj salonoj devas pendi afiŝo, tekstanta:
-
-EN ĉI TIU EJO ESTAS MALPERMESITE
+EN ĈI TIU EJO ESTAS MALPERMESITE
 
 PAROLI PRI POLITIKO.
 
@@ -1342,18 +1087,13 @@ prave rimarkigis Sorcanera, ”en mia trinkejo neniu parolis iam pri politiko.�
 ”Do, ni tute ne bezonas plu paroli!” konkludis Berardo.
 
 
-FONTAMARA
-
-
 ”uste! Jen, Berardo perfekte komprenis ĉion,” ekkriis Innocenzo, ”vi ne plu bezonas rezoni; jen la senco de la decido. Vi ĉesigu ĉian rezonadon.”
 
-La kontento de Innocenzo estis granda, kiam li konstatis, ke Berardo pravigas lin kaj tial li akceptis lian proponon pliklarigi la afiŝon, skribitan en nia ĉeesto sur lar-
-
-ĝan folion de blanka papero kaj kiu devis pendi sur muro, jene:
+La kontento de Innocenzo estis granda, kiam li konstatis, ke Berardo pravigas lin kaj tial li akceptis lian proponon pliklarigi la afiŝon, skribitan en nia ĉeesto sur larĝan folion de blanka papero kaj kiu devis pendi sur muro, jene:
 
 LAŭ ORDONO DE LA PODESTÀ,
 
-ĉIUJ REZONADOJ ESTAS MALPERMESITAJ!
+ĈIUJ REZONADOJ ESTAS MALPERMESITAJ!
 
 Berardo prizorgis la pendigon de la afiŝo, alte sur la muron, fronte de la trinkejo. Lia konduto tre mirigis nin.
 
@@ -1369,9 +1109,7 @@ Sed la klarigoj, kiujn Berardo aldonis, estingis lian entuziasmon.
 
 diris Berardo. ”Oni ne diskutu kun mastroj, tio estas mia tezo. ĉiuj malfeliĉaĵoj okazis al la kafonoj pro rezonadoj.
 
-La kafono estas azeno, kiu rezonas. Tial nia vivo estas centoble pli malbona ol tiu de veraj azenoj, kiuj ne diskutas (aŭ almenaŭ ŝajnigas tion). Azeno ne rezonanta 77
-
-FONTAMARA
+La kafono estas azeno, kiu rezonas. Tial nia vivo estas centoble pli malbona ol tiu de veraj azenoj, kiuj ne diskutas (aŭ almenaŭ ŝajnigas tion). Azeno ne rezonanta
 
 
 portas 70, 90, 100 kilogramojn da sarĝo; pli ĝi ne portas.
@@ -1382,12 +1120,7 @@ Oni povas kredigi al li, ke en la alia mondo ekzistas infero. Vidu la rezultojn.
 
 ĉio, kion diris Berardo, ne estis nova al ni. Sed Innocenzo La Legge ektimis.
 
-”Senprudenta ulo ne fastas. i diras: se mi manĝas, mi laboras, se mi ne manĝas, mi ne laboras,” daŭrigis Berardo, ”aŭ pli ĝuste, ĝi eĉ ne diras tion, ĉar tiukaze ĝi rezo-nus, sed ĝi agas tiel laŭ naturo. Do, imagu, se la sesmil kafonoj, kiuj kulturas Fucinon, anstataŭ esti rezonantaj azenoj, t.e. malsovaĝaj, konvinkeblaj, timaj pro karabenistoj, pastro, juĝisto, estus veraj nerezonantaj sarĝ-
-
-bestoj . . . Princo Torlonia povus almozpeti . . . Vi, ho Innocenzo, venis ĉi tien kaj post iom da tempo reiros laŭ la malluma vojo al la ĉefurbo. Kio retenas nin, mortba-ti vin? . . . Respondu!”
-
-
-FONTAMARA
+”Senprudenta ulo ne fastas. i diras: se mi manĝas, mi laboras, se mi ne manĝas, mi ne laboras,” daŭrigis Berardo, ”aŭ pli ĝuste, ĝi eĉ ne diras tion, ĉar tiukaze ĝi rezo-nus, sed ĝi agas tiel laŭ naturo. Do, imagu, se la sesmil kafonoj, kiuj kulturas Fucinon, anstataŭ esti rezonantaj azenoj, t.e. malsovaĝaj, konvinkeblaj, timaj pro karabenistoj, pastro, juĝisto, estus veraj nerezonantaj sarĝbestoj . . . Princo Torlonia povus almozpeti . . . Vi, ho Innocenzo, venis ĉi tien kaj post iom da tempo reiros laŭ la malluma vojo al la ĉefurbo. Kio retenas nin, mortba-ti vin? . . . Respondu!”
 
 
 Innocenzo penis iom balbuti, sed ne kapablis; li estis morte pala.
@@ -1409,16 +1142,10 @@ Kaj li foriris hejmen.
 La diskutoj kun li ĉiam tiel finiĝis. Li parolis, paroladis dum tutaj horoj kiel pastro kaj diris la plej absurdajn kaj terurajn aferojn, kiuj venis en lian kapon, kun voĉo, kiu ne permesas kontraŭargumentojn. Se post tio, kiam li ĉesis paroli, iu faris al li demandon, li embarasiĝis kaj ne respondinte foriris.
 
 
-FONTAMARA
-
-
 Tiun vesperon Innocenzo La Legge ne reiris al la ĉefurbo: eble pro la minacaj vortoj de Berardo, eble pro subita malforto, li preferis pasigi la nokton ĉe Sorcanera.
 
 
-FONTAMARA
-
-
-ĉAPITRO IV.
+ĈAPITRO IV.
 
 Meze de junio disvastiĝis la diro, ke la reprezentantoj de la kafonoj en Marsica estos vokataj al kunveno en Avezzano por aŭskulti la decidojn de la nova roma registaro pri la problemo koncerne Fucino.
 
@@ -1427,9 +1154,6 @@ Meze de junio disvastiĝis la diro, ke la reprezentantoj de la kafonoj en Marsic
 Ke en Romo estas nova registaro, pri tio ni ne plu dubis, ĉar kelktempe ni aŭdis paroli pri ĝi. Tio povis esti konfirmo, ke furiozis aŭ ankoraŭ furiozas milito, ĉar nur milito forpelis la antaŭajn registojn kaj instalis novajn: tiel en nia regiono la Burbonoj forpelis la hispanojn kaj poste la piemontanoj la Burbonojn. Sed en Fontamara neniu certe sciis, de kie venis kaj al kiu nacio apartenas la nova registaro. Tio estis aferoj speciale por urboj . . .
 
 Koncerne ĉiun novan registaron, kafono povas diri nur: ”Dio helpu nin,” kiel somere, kiam ĉe la horizonto aperas nuboj, kaj dependas ne de li, sed de Dio, ĉu ili alportos akvon aŭ hajlon.
-
-
-FONTAMARA
 
 
 Tamen estis mirige, ke registara reprezentanto deziras paroli kun kafonoj.
@@ -1447,21 +1171,13 @@ Esperante, ke pro nova divido de la grundo en Fucino, li povos akiri kampon, Ber
 ”ĉiu registaro ĉiam konsistas el ŝtelistoj,” diris Berardo. ”Kompreneble, por la kafonoj estas pli bone, se la regado okazas de nur unu ŝtelisto ol de kvincent . . . ĉar granda ŝtelisto, kiom ajn granda li estas, manĝas ne tiom, kiom kvincento da ili, malgrandaj kaj malsataj . . .
 
 
-FONTAMARA
-
-
 Se oni intencas dividi la grundojn de Fucino, Fontamara devos postuli siajn rajtojn . . .”
 
-Iun dimanĉan matenon en Fontamara venis sarĝ-
-
-aŭtomobilo kaj ĝia direktisto invitis ĉiujn kafonojn, dezirantajn iri al Avezzano, suriri la veturilon. La vojaĝo estos senpaga. La aŭtomobilo estis tute ornamita per trikoloraj flagoj kaj ĝin sendis la aŭtoritatuloj. Ni tre miris, ke ni ne devos pagi.
+Iun dimanĉan matenon en Fontamara venis sarĝaŭtomobilo kaj ĝia direktisto invitis ĉiujn kafonojn, dezirantajn iri al Avezzano, suriri la veturilon. La vojaĝo estos senpaga. La aŭtomobilo estis tute ornamita per trikoloraj flagoj kaj ĝin sendis la aŭtoritatuloj. Ni tre miris, ke ni ne devos pagi.
 
 Hazarde en Fontamara troviĝis ankoraŭ deko da kafonoj, ĉar la aliaj jam eklaboris. ĉiudimanĉe en somero, kiam multo estas farenda, la preĝejaj superuloj mem permesas al ni labori. Sed neniu el ni povis kulpigi la novan registaron, ke ĝi ignoras la fakton, ke fine de junio komenciĝas la falĉado. Kiel registaro, konsistanta el urbanoj, povus scii, en kiu sezono estas rikolto? Sed kontraŭ perdo de tuttaga laboro, ni pretis ĉeesti la kun-venon, kie oni solvos la problemon koncerne Fucino.
 
 Ni, fontamaranoj, ĉiam deziris reakiri la rajton ricevi kontraŭ lupago terpecojn de Fucino, sed la administrantaro de Torlonia konstante rifuzis, ĉar li preferis luigi la kampojn al kuracistoj, advokatoj, profesoroj kaj riĉaj urbanoj, kiuj laborigis nin kiel taglaboristojn. Sed neniam ni ĉesis esperi luakiri pecon de ĝi; ne restis io alia ol atendi la faman eksproprigon, pri kiu don Circostanza tiom parolis al ni, precipe antaŭ la voĉdonoj.
-
-
-FONTAMARA
 
 
 ”Fucino apartenu al tiuj, kiuj ĝin kulturas!” estis la rekantaĵo de don Circostanza.
@@ -1482,12 +1198,7 @@ Antaŭ la foriro la ŝoforo demandis al ni:
 
 ”La rubando estas la flago,” klarigis li.
 
-Ni ne volis malbone impresi la novan registaron kaj precipe ne ĉe la ceremonio, en kiu oni solvos la problemon koncerne Fucino. Tial ni konsentis pri la propono de Teofilo, kiu konservis la preĝejan ŝlosilon. Li ekhavis la penson, kunporti la standardon de sankta Rocco. Kun helpo de Raffaele Scamorza, li eniris la preĝejon por al-84
-
-FONTAMARA
-
-
-porti ĝin. Sed kiam la ŝoforo vidis ilin reveni, pene tenantaj dekkvinmetran arbon, je kiu pendas grandega tuko el blanka kaj ĉiela koloroj kun bildo de sankta Rocco kaj la hundo, kiu lekas lian vundon, li volis malpermesi porti ĝin sur la veturilon. Sed en Fontamara ni ne havis alian standardon kaj post insisto de Berardo la veturigisto konsentis.
+Ni ne volis malbone impresi la novan registaron kaj precipe ne ĉe la ceremonio, en kiu oni solvos la problemon koncerne Fucino. Tial ni konsentis pri la propono de Teofilo, kiu konservis la preĝejan ŝlosilon. Li ekhavis la penson, kunporti la standardon de sankta Rocco. Kun helpo de Raffaele Scamorza, li eniris la preĝejon por alporti ĝin. Sed kiam la ŝoforo vidis ilin reveni, pene tenantaj dekkvinmetran arbon, je kiu pendas grandega tuko el blanka kaj ĉiela koloroj kun bildo de sankta Rocco kaj la hundo, kiu lekas lian vundon, li volis malpermesi porti ĝin sur la veturilon. Sed en Fontamara ni ne havis alian standardon kaj post insisto de Berardo la veturigisto konsentis.
 
 Por teni la standardon rekte supren dum la veturado, ni triope devis laŭvice subteni ĝin kaj tio postulis pene-gan laboron. Nia standardo similis pli velŝipan maston, atakatan de uragano, ol flagon. Jam de malproksime ĝi estis videbla: ni vidis la kafonojn, dise laborantajn sur la kampoj, mire gestantaj, dum la virinoj ekgenuis kaj faris la signon de la kruco.
 
@@ -1504,9 +1215,6 @@ Sed ni konis neniun himnon kaj krom tio ni estis tro okupitaj per tenado de la s
 Sur la vojo ni renkontis aliajn sarĝaŭtomobilojn kun kafonoj, multajn ĉaretojn, aŭtomobilojn, motociklojn kaj biciklojn, kiuj ankaŭ direktis sin al Avezzano.
 
 
-FONTAMARA
-
-
 La apero de nia granda standardo kun blanka kaj ĉiela koloroj vekis unuavide miron, poste ridon. La rubandoj kunportataj de la aliaj estis nigraj kaj ne pli grandaj ol naztuko. En la mezo ili surhavis skeletkapon inter kvar ostoj, kian oni povas vidi sur telegrafaj fostoj kun surskribo: mortdanĝero.
 
 Pro la grandega standardo ni ekhavis malfacilaĵojn ĉe la eniro de Avezzano. Meze sur la strato troviĝis grupo da junuloj, vestitaj per nigraj ĉemizoj, kiu atendis nin kaj tuj ordonis forigi la standardon. Ni rifuzis, ĉar ni ne posedis alian. La junuloj ordonis al la ŝoforo haltigi la veturilon kaj ili klopodis perforte forpreni la standardon.
@@ -1515,18 +1223,14 @@ Sed ni, kiuj jam tre ekscitiĝis pro la mokoj aŭditaj sur-voje de la renkontito
 
 ĉirkaŭ nia aŭtomobilo kolektiĝis ululanta amaso. Tie estis multaj nigraĉemizaj junuloj, sed ankaŭ multaj kafonoj el vilaĝoj apudaj al Fontamara, kiuj rekonis nin kaj laŭtvoĉe salutis. Ni staris silente sur la veturilo ĉirkaŭ la standardo, decidinte ne plu akcepti pliajn insultojn. Subite en la amaso ni vidis aperanta la dikan, ŝvitantan kaj snufantan figuron de kanoniko don Abbacchio kun kelkaj oficiroj karabenistaj kaj ni ne dubis, ke li, kiel pastro defendos sanktan Roccon. Sed la malo okazis.
 
-”ĉu vi opinias, ke estas karnavalo?” Don Abbacchio akre alparolis nin. ”ĉu tio estas la maniero akordigi la 86
-
-FONTAMARA
+”ĉu vi opinias, ke estas karnavalo?” Don Abbacchio akre alparolis nin. ”ĉu tio estas la maniero akordigi la
 
 
 pastraron kun la aŭtoritatuloj? . . . Kiam fine, vi fontamaranoj, ĉesigos tiujn provokojn kaj tumultojn? . . .”
 
 Silentante, ni lasis forpreni la standardon fare de la nigraĉemizuloj. Kiam kanoniko perfidas sanktan Roccon, kial ni devus resti fidelaj, riskante per tio niajn rajtojn pri Fucino?
 
-Oni kondukis nin al la granda placo en Avezzano, kie oni lokigis nin en la ombron, malantaŭ la tribunalo. Aliaj grupoj da kafonoj estis lokigitaj ĉe konstruaĵoj, ĉirkaŭ-
-
-antaj la placon. Inter la diversaj grupoj troviĝis karabenistaj patroloj. Karabenistoj surbicikle veturis ĉiudirekte sur la placo. Tuj post la alveno de nova sarĝaŭtomobilo la kafonoj eliris kaj akompanataj de karabenistoj, ili ricevis lokon, disigitan de la aliaj kafonoj.
+Oni kondukis nin al la granda placo en Avezzano, kie oni lokigis nin en la ombron, malantaŭ la tribunalo. Aliaj grupoj da kafonoj estis lokigitaj ĉe konstruaĵoj, ĉirkaŭantaj la placon. Inter la diversaj grupoj troviĝis karabenistaj patroloj. Karabenistoj surbicikle veturis ĉiudirekte sur la placo. Tuj post la alveno de nova sarĝaŭtomobilo la kafonoj eliris kaj akompanataj de karabenistoj, ili ricevis lokon, disigitan de la aliaj kafonoj.
 
 Oficiro sur bela nigra ĉevalo ĉirkaŭrajdis la placon.
 
@@ -1536,16 +1240,11 @@ El ĉiu patrolo iu karabenisto komunikis ĝin al la kafonoj. i tekstis;
 
 ”Estas permesite eksidi surtere.”
 
-Ni eksidis. Post unuhora atendado nova kuriero kaŭ-
-
-zis viglan agadon. En angulo de la placo aperis grupo da aŭtoritatuloj. La karabenistoj ordonis al ni:
+Ni eksidis. Post unuhora atendado nova kuriero kaŭzis viglan agadon. En angulo de la placo aperis grupo da aŭtoritatuloj. La karabenistoj ordonis al ni:
 
 ”Ekstaru! ekstaru! . . . Laŭte kriu; Vivu la podestà!
 
 Vivu la honestaj administrantoj! Vivu la administrantoj, kiuj ne ŝtelas.”
-
-
-FONTAMARA
 
 
 Ni saltleviĝis kaj forte kriis:
@@ -1572,12 +1271,7 @@ Sed apenaŭ ni sidis kaj denove ni devis ekstari. ”Kriu kiel eble plej forte: 
 
 ”Vivu la ministro! Vivu! . . .”
 
-Poste, ricevinte permeson de la karabenistoj, ni eksidis sur la teron. La patroloj estis anstataŭigataj pro man-
-
-ĝo. Ni malfermis niajn pansaketojn kaj ekmanĝis, kion ni kunportis.
-
-
-FONTAMARA
+Poste, ricevinte permeson de la karabenistoj, ni eksidis sur la teron. La patroloj estis anstataŭigataj pro manĝo. Ni malfermis niajn pansaketojn kaj ekmanĝis, kion ni kunportis.
 
 
 Proksimume je la dua la ludo ripetiĝis. Unua revenis la ministro, poste la prefekto kaj sekvis la neŝtelantaj administrantoj. ĉiun fojon ni devis ekstari, krii kaj montri entuziasmon. ĉe la fino la karabenistoj diris al ni:
@@ -1603,9 +1297,6 @@ Kvazaŭ Berardo eldiris teruran blasfemon, la karabenistoj sin ĵetis sur lin ka
 Sed ni alkroĉis nin al li kaj ekestis manbatalo. De interne de la konstruaĵo alkuris multaj homoj, inter kiuj don Circostanza, evidente ebria kaj lia harmonikopantalono en la tria stadio.
 
 ”Neniun perforton kontraŭ miaj fontamaranoj! Trak-tu ilin bone! . . .” li ekkriis.
-
-
-FONTAMARA
 
 
 La karabenistoj lasis nin. Don Circostanza venis al ni kaj intencis ĉirkaŭbraki kaj kisi nin unu post alia.
@@ -1638,9 +1329,7 @@ Sed li parolis kun via reprezentanto,” li respondis.
 
 . . .” plu demandis Berardo.
 
-”Oni ne dividos la kampojn,” respondis la oficisto. ”La ministro kaj la reprezentanto de la kafonoj decidis, ke la 90
-
-FONTAMARA
+”Oni ne dividos la kampojn,” respondis la oficisto. ”La ministro kaj la reprezentanto de la kafonoj decidis, ke la
 
 
 malgrandaj farmistoj estu eliminataj . . . Multaj el ili ricevis kampon, pro tio ke ili estas eksmilitistoj, sed tio estas nejusta kriterio ekonomia . . .”
@@ -1655,9 +1344,7 @@ estas la devizo de don Circostanza.”
 
 ”Kion diris pri tio nia reprezentanto?” mi demandis.
 
-”kavaliro Pelino, reprezentanto de la kafonoj, konsentis, ke en la intereso de la nacia produktado, la kafonoj estu eliminotaj ĉe la luado de Fucino . . . Por akiri tion, li proponis, ke la lupagoj de grandbienuloj estu malalti-gotaj kaj tiuj de etfarmistoj estu plialtigotaj per dudek procentoj. La lupago okazu per naturaĵoj kaj precipe per sukerbetoj, kies prezon fiksos la administrantaro de Torlonia . . . La etfarmistoj, ne kulturantaj betojn, pagu po sepcent liroj por hektaro . . . Plaĉas al mi diri, ke la proponoj de via reprezentanto estas tute akceptitaj . . . La 91
-
-FONTAMARA
+”kavaliro Pelino, reprezentanto de la kafonoj, konsentis, ke en la intereso de la nacia produktado, la kafonoj estu eliminotaj ĉe la luado de Fucino . . . Por akiri tion, li proponis, ke la lupagoj de grandbienuloj estu malalti-gotaj kaj tiuj de etfarmistoj estu plialtigotaj per dudek procentoj. La lupago okazu per naturaĵoj kaj precipe per sukerbetoj, kies prezon fiksos la administrantaro de Torlonia . . . La etfarmistoj, ne kulturantaj betojn, pagu po sepcent liroj por hektaro . . . Plaĉas al mi diri, ke la proponoj de via reprezentanto estas tute akceptitaj . . . La
 
 
 kafonoj el tuta Fucino, kunvenintaj en Avezzano, manifestis sian kontenton per aklama salutado al la ministro, la prefekto kaj al la aliaj aŭtoritatuloj . . . ĉu vi deziras ankoraŭ pliajn klarigojn?”
@@ -1681,9 +1368,6 @@ Miaj haroj kontraŭ viaj
 Ho, kia amaso tio estas . . .
 
 
-FONTAMARA
-
-
 Post la unua grupo sekvis dua, en kiu troviĝis la junuloj en nigraj ĉemizoj, kiuj forprenis de ni la standardon de sankta Rocco ĉe nia alveno en Avezzano. Apenaŭ rekoninte nin, ili ekkriis: ”Vivu sankta Rocco,” kaj post tio sekvis fibanalaĵoj. Ili prenis unu la alian ĉe la mano, ĉir-kaŭis nin kaj en cirklo saltis ĉirkaŭ ni, kantante kun voluptamaj movoj, kiel parodion de amo: Miaj kruroj kontraŭ viaj
 
 Ho, kia arko tio estas . . .
@@ -1703,9 +1387,6 @@ Ni ne respondis.
 Ni ne respondis.
 
 
-FONTAMARA
-
-
 ”Sed vi pravas,” li diris. ”Vi faros bone ekribelante. Kia la stato nun estas, tia ĝi ne povos resti . . . Venu, ni parolu neĝenate.”
 
 Li eniris flankan straton. Ni sekvis lin. Malantaŭ ni iris junulo, kiu havis aspekton inter laboristo kaj studento kaj kiu jam du aŭ trifoje al ni ridetis, kvazaŭ por diri ion al ni. La ruĝhara sinjoro eniris izolan kaj malplenan trinkejon. Ni eniris malantaŭ li. La junulo sekvanta nin, iom hezitis, sed poste envenis kaj eksidis ĉe tablo tre apuda al nia.
@@ -1719,9 +1400,6 @@ La ruĝharulo mendis vinon kaj malfide observis la junulon. Poste flustravoĉe l
 Se vi havas planojn, petu konsilojn al mi . . . ĉu vi komprenas?”
 
 La sinteno de tiu nekonata sinjoro, kiu senkondiĉe disponigis sin al ni, aperigus dubon ĉe kiu ajn, ne estanta en nia animstato. Estis la unua fojo, ke urbano tiel konfidence parolas kun ni. Ni lasis lin paroli.
-
-
-FONTAMARA
 
 
 ”Mi komprenas vin . . . Sufiĉas al mi rigardi viajn okulojn por kompreni vin,” li plu diris. ”La karabenistoj diris al vi, ke post unu horo vi devos esti for, sed tiu horo jam pasis kaj vi estas ankoraŭ ĉi tie . . . Mi komprenas.
@@ -1739,9 +1417,6 @@ Ni diris ankoraŭ neniun vorton, sed la urbano ne ĉesis paroli por propra konto
 Doninte al ni manon kaj paginte la menditan vinon, li foriris.
 
 
-FONTAMARA
-
-
 Apenaŭ li estis foririnta, la junulo, sidanta sur la benko tuj apud la nia, alproksimiĝis kaj diris:
 
 ”ĉi tio estas sekreta policisto . . . provokisto . . . Bo-ne atentu! Li alportos kelkajn eksplodilojn kaj poste are-stigos vin . . . Foriru, antaŭ ol li estos reveninta.”
@@ -1755,10 +1430,7 @@ Noktmeze ni atingis Fontamaran.
 Je la tria matene denove ni ekmarŝis al Fucino. Komenciĝis la falĉado.
 
 
-FONTAMARA
-
-
-ĉAPITRO V.
+ĈAPITRO V.
 
 ĉirkaŭ la traturon, kiun la Impresario senpage alproprigis, la komunumo konstruigis lignan barilon.
 
@@ -1772,12 +1444,7 @@ La Impresario konstruigis duan per la komunuma mono kaj gardigis ĝin per du arm
 
 Ili ne povus. En ĉeesto de la du stratpurigistoj la barilo denove ekflamis. Ili klare vidis la flamojn elpafiĝi el la tero kaj en kelkaj minutoj cindrigi la tutan barilon.
 
-Kiel ĉiam pri mirakloj, la du gardistoj tuj rakontis ĉion al kanoniko don Abbacchio kaj post tio al ĉiu, kiu volis aŭskulti. Konsultinte multajn antikvajn librojn, don Abbacchio eksciis, ke la incendio sendube estis supernatu-ra fakto, diabla laboro. Ni trovis, ke post ĉio, la diablo ne estas tiel kruda, kiel oni pentras lin. La Impresario, de-97
-
-FONTAMARA
-
-
-vigita savi sian aŭtoritatan prestiĝon kaj ne povante arestigi la diablon, malliberigis la du gardantojn.
+Kiel ĉiam pri mirakloj, la du gardistoj tuj rakontis ĉion al kanoniko don Abbacchio kaj post tio al ĉiu, kiu volis aŭskulti. Konsultinte multajn antikvajn librojn, don Abbacchio eksciis, ke la incendio sendube estis supernatu-ra fakto, diabla laboro. Ni trovis, ke post ĉio, la diablo ne estas tiel kruda, kiel oni pentras lin. La Impresario, devigita savi sian aŭtoritatan prestiĝon kaj ne povante arestigi la diablon, malliberigis la du gardantojn.
 
 Kiu venkos: la diablo aŭ la Impresario?
 
@@ -1790,9 +1457,6 @@ Niaj edzoj estis malfrue revenontaj, ĉar dum la falĉa-do en Fucino oni malaten
 Subite en la silento ekaŭdiĝis monotona, regula bruo, simila al tiu de abelujo kaj poste al tiu de draŝiloj. La bruo suprenvenis de la ebenaĵo, sed la kaŭzo estis ankoraŭ kaŝita. Ni ne vidis draŝilojn. La lokoj, kie ili devus troviĝi, estis malplenaj. Krom tio, draŝiloj ne revenos antaŭ la fino de la rikoltado.
 
 La bruo rapide pliklariĝis.
-
-
-FONTAMARA
 
 
 Subite ĉe la unua vojkurbiĝo de la ebenaĵo al Fontamara, aperis homoplena ŝarĝaŭtomobilo.
@@ -1815,13 +1479,7 @@ Alarmite de la neniam aŭdita bruo de tiom da motoroj, la tuta loĝantaro de Fon
 
 ”nuntempe la pilgrimantoj ne plu piediras, sed vojaĝas per aŭtomobiloj. Estas pilgrimo dediĉe al nia sankta Rocco . . .”
 
-”Estas konkurso inter aŭtomobiloj . . .” ripetis Pasquale Cipolla, kiu soldatis en urbo, ”estas veto inter aŭ-
-
-
-FONTAMARA
-
-
-tomobilistoj, kiu el ili plej rapide veturas. En la urbo ĉiutage okazas tiaj konkursoj . . .”
+”Estas konkurso inter aŭtomobiloj . . .” ripetis Pasquale Cipolla, kiu soldatis en urbo, ”estas veto inter aŭtomobilistoj, kiu el ili plej rapide veturas. En la urbo ĉiutage okazas tiaj konkursoj . . .”
 
 La bruo de la veturiloj pli kaj pli laŭtiĝis kaj impresis.
 
@@ -1844,9 +1502,6 @@ Aro da sekaj eksplodoj, sekvataj de tintado, kiun kaŭzis falanta vitro de la pr
 ”Se estas milito, ni diru la litanion de la milito,” proponis Teofilo la sakristiano kaj ekkantis: Regina Pacis, ora pro nobis, sed dua salvo truis la preĝejan fasadon kaj kovris nin per kalko. ĉio, kio okazis, estis tute sensenca. ĉu milito? Sed kial milito? Giuditta Scarpone ekhavis atakon de ˛oreo. Ni staris ĉirkaŭ ŝi kiel freneziĝintaj kaproj.
 
 ĉiuj kriis sensencaĵojn. Nur General Baldissera senemo-cie ripetis:
-
-
-FONTAMARA
 
 
 ”Ni povas fari nenion. Estas milito, estas milito, nenio estas farebla, estas milito, estas la sorto, ĉiu milito, kiam
@@ -1874,9 +1529,6 @@ De supre ni vidis halti la aŭtomobilojn ĉe la enirejo de Fontamara.
 Granda nombro da homoj, armitaj per pafiloj, mal-supreniris de la veturiloj. Grupo el ili restis ĉe la aŭtomobiloj. La aliaj iris en la direkton de la preĝejo.
 
 
-FONTAMARA
-
-
 Malsupre la loĝantoj jam finis la litaniojn de la milito kaj komencis tiujn de la ekzercado: Propitius esto, parce nobis, Domino, Propitius esto, exaudi nos, Domine.
 
 Teofilo la sakristiano diris la alvokon kaj la aliaj ˛ore respondis: Libera nos, Domine. Ankaŭ Elvira kaj mi ekgenuis en la sonorilejo, flustre respondante: Libera nos, Domine. Neniu sciis, kio estas okazonta. Teofilo diris ĉiujn ajn malbonojn kaj post ĉiu ni aldonis: Libera nos, Domine.
@@ -1885,9 +1537,7 @@ Ab ogni malo, libera nos, Domine, Ab ogni peccato, libera nos, Domine, Ab ira tu
 
 Teofilo jam diris la preĝojn kontraŭ ˛olero, malsato kaj milito, kiam la kolono disiĝis sur la placeto, hurlan-te kaj svingante la pafilojn en la aero. Ilia granda nombro timigis nin. Instinkte Elvira kaj mi kaŝis nin en an-gulon de la sonorilejo tiel, ke ni povis vidi, ne vidate.
 
-Ni taksis la nombron de la armitoj je proksimume ducent. La pli granda parto havis ponardon en la zono. ĉiuj surhavis nigran ĉemizon. Ni rekonis nur la kamparan gvardianon kaj la ĉefterlaboriston Filippo il Bello, sed 102
-
-FONTAMARA
+Ni taksis la nombron de la armitoj je proksimume ducent. La pli granda parto havis ponardon en la zono. ĉiuj surhavis nigran ĉemizon. Ni rekonis nur la kamparan gvardianon kaj la ĉefterlaboriston Filippo il Bello, sed
 
 
 ankaŭ la aliaj ne havis nekonatajn vizaĝojn kaj venis de proksime. Parto el ili estis kafonoj sen tero, kiuj servis siajn mastrojn, enspezante per tio malmulte, kaj ili vivis per ŝtelado kaj mallibero. Aliaj estis makleristoj, kiujn oni vidis en la foiroj, serviclavistoj de gastejoj, barbiroj, veturigistoj el privataj domoj kaj migrantaj muzikistoj.
@@ -1909,9 +1559,6 @@ La viktimo metis manon sur la frapitan vangon kaj ĉirkaŭrigardante, time deman
 ”Kial? . . .”
 
 
-FONTAMARA
-
-
 ”Malkuraĝulo! . . . Malkuraĝulo! . . .” ekkriis la hometo kun trikolora ventro. ”Kial vi ne defendas vin? . . .
 
 Malkuraĝulo! . . .”
@@ -1928,9 +1575,7 @@ Kiam sur la placo ne estis plu iu fontamarano, la hometo turnis sin al la nigra�
 
 ”Kvinope vi eniru la domojn, traserĉu ĉion kaj konfis-ku ĉian armilon . . . Rapide, antaŭ ol revenos la viroj!”
 
-Post momento la placo estis senhoma. Jam krepuski-
-
-ĝis.
+Post momento la placo estis senhoma. Jam krepuskiĝis.
 
 De nia rifuĝejo ni povis vidi, ke la patroloj disiĝas sur la malmultaj vojetoj de Fontamara kaj po kvin malaperas en la mallumajn domojn.
 
@@ -1938,9 +1583,7 @@ De nia rifuĝejo ni povis vidi, ke la patroloj disiĝas sur la malmultaj vojetoj
 
 ni diris unu al alia.
 
-Sed la subita kriado de Maria Grazia, kiu loĝis tuj apud la preĝejo, kaj tuj poste, preskaŭ samtempe, la sen-esperaj krioj de Filomena Castagna, Sofia Recchiuta, Lisabetta Limona, Carracina, Filomena Quaterna kaj la 104
-
-FONTAMARA
+Sed la subita kriado de Maria Grazia, kiu loĝis tuj apud la preĝejo, kaj tuj poste, preskaŭ samtempe, la sen-esperaj krioj de Filomena Castagna, Sofia Recchiuta, Lisabetta Limona, Carracina, Filomena Quaterna kaj la
 
 
 vekrioj el pli malproksimaj loĝejoj, kiujn akompanis bruo kaj frapoj de rompitaj mebloj, pecigitaj seĝoj, tin-tantaj vitroj, malkovris al ni la veran intencon de tiu armita bando.
@@ -1949,12 +1592,7 @@ Maria Grazia, sub ni, hurlis kiel besto buĉota. Tra la malfermita pordo ni vidi
 
 La kvara kaj kvina povis misuzi sin, dum neniu bezonis teni ŝiajn krurojn kaj brakojn. Poste la grupo forlasis la domon ridante kaj kuris al la hejmo de Lisabetta Limona, kiu troviĝis dudek metrojn pli malproksime . . .
 
-Ankaŭ Elvira estis atestanto de la tuta sceno. Kiel mi povus malhelpi tion? ĉio okazis antaŭ niaj okuloj, kelkajn metrojn for de ni. ŝi ne povis ne vidi eĉ unu deta-lon. Premita kontraŭ mi kun la brakoj ĉirkaŭ mia kolo, mi sentis ŝin tremanta, kvazaŭ trafita de konvulsioj. ŝaj-105
-
-FONTAMARA
-
-
-nis, ke tremas la tuta turo, la tuta tero. Mi devis atenti, ke Elvira ne falu, per tio minacante rompi la lignan ŝtu-pareton kaj altirante la atenton de la armitoj al nia kaŝe-jo. Kun grandaj, senmovaj, tute malfermitaj okuloj, Elvira rigardis la ĉambreton, el kiu foriris la kvin homoj kaj kie kuŝis etendita la suferinta korpo de Maria Grazia. Mi timis, ke Elvira perdos la prudenton. Mi fermis ŝiajn okulojn per miaj manoj, kiel oni faras ĉe mortinto. Poste subite ankaŭ mia rezisto forlasis min. Miaj kruroj tremis kaj ni glitis surplanken en la mallumo.
+Ankaŭ Elvira estis atestanto de la tuta sceno. Kiel mi povus malhelpi tion? ĉio okazis antaŭ niaj okuloj, kelkajn metrojn for de ni. ŝi ne povis ne vidi eĉ unu deta-lon. Premita kontraŭ mi kun la brakoj ĉirkaŭ mia kolo, mi sentis ŝin tremanta, kvazaŭ trafita de konvulsioj. ŝajnis, ke tremas la tuta turo, la tuta tero. Mi devis atenti, ke Elvira ne falu, per tio minacante rompi la lignan ŝtu-pareton kaj altirante la atenton de la armitoj al nia kaŝe-jo. Kun grandaj, senmovaj, tute malfermitaj okuloj, Elvira rigardis la ĉambreton, el kiu foriris la kvin homoj kaj kie kuŝis etendita la suferinta korpo de Maria Grazia. Mi timis, ke Elvira perdos la prudenton. Mi fermis ŝiajn okulojn per miaj manoj, kiel oni faras ĉe mortinto. Poste subite ankaŭ mia rezisto forlasis min. Miaj kruroj tremis kaj ni glitis surplanken en la mallumo.
 
 Pri ĉi tiu vespero mi rememoras nenion alian ol tion, kion mi rakontis.
 
@@ -1965,9 +1603,6 @@ Kio sekvis, rakontos mia edzo.
 Ni, viroj, kiuj revenis el Fucino, sciis pri nenio. Se la virinoj estus sonigintaj la sonorilon! . . .
 
 Sur la vojo ĉe Pescina renkontiĝis mi, Berardo Viola, Vincenzo Scorza, Papasisto, Ciro Zironda, la patro de Maria Grazia kaj la fianĉo de Lisabetta Limona kaj kune ni reiris. Malantaŭ ni iris je malgranda distanco Giacinto Barletta, Quintiliano, Venerdì Santo, Luigi Serpa kaj aliaj.
-
-
-FONTAMARA
 
 
 Kiam ni ekvidis ĉe la vilaĝo la grandan vicaron da aŭtomobiloj kaj la grupon da militistoj, Berardo diris:
@@ -1982,9 +1617,7 @@ En la mezo de la kvadrato ni rimarkis General Baldis-seran, Teofilon la sakristi
 
 Berardo rigardis min, ne sciante, ĉu li ridu aŭ indignu.
 
-Ni klopodis ekscii de General Baldissera ĉion, kio okazis antaŭ nia alveno kaj li proksimiĝis al mi kaj flustris en la orelon: ”Tio estas io neniam spertita” kaj post tio li turnis sin al Berardo kaj ripetis al li la samon kaj an-kaŭ al la aliaj li murmuris la saman frazon: ”Tio estas io 107
-
-FONTAMARA
+Ni klopodis ekscii de General Baldissera ĉion, kio okazis antaŭ nia alveno kaj li proksimiĝis al mi kaj flustris en la orelon: ”Tio estas io neniam spertita” kaj post tio li turnis sin al Berardo kaj ripetis al li la samon kaj an-kaŭ al la aliaj li murmuris la saman frazon: ”Tio estas io
 
 
 neniam spertita, neniam, neniam!” ĉi tio estis eble ne tre klara, sed certe eksterordinara, ĉar por ĉiuj okazintaĵoj, eĉ la plej gravaj, ĝis nun Baldissera ĉiam trovis klarigon. Unuafoje en sia vivo li konfesis ne kompreni.
@@ -1998,9 +1631,6 @@ Post tio alvenis ankoraŭ al ni: Achille Piunzo, Alberto Saccone, Palummo, la ed
 Neniu komprenis, kio okazis. Neniu parolis. Ni rigardis unu la alian. ĉiu konjektis, ke ni estos respondaj al la aŭtoritatuloj pro iu ankoraŭ nekonata motivo kaj neniu volis kompromiti sin pli ol alia. ĉiu pensis pri si mem.
 
 Post nova malfermiĝo envenis Antonio Spaventa, Raffaele Scarpone, Luigi della Croce, Antonio Zappa kaj aliaj.
-
-
-FONTAMARA
 
 
 Kion intencas la dikventrulo, estis malfacile imageble.
@@ -2017,9 +1647,7 @@ Renkontate tage sur strato, ili estis humilaj kaj respek-toplenaj; nokte en grup
 
 Ili estas la t.n. faŝistoj.
 
-Ilia indiferento havas ankoraŭ alian klarigon. ĉiu el ni, fizike, valoris almenaŭ tri el ili; sed, kio ni estis, ĉirkaŭitaj 109
-
-FONTAMARA
+Ilia indiferento havas ankoraŭ alian klarigon. ĉiu el ni, fizike, valoris almenaŭ tri el ili; sed, kio ni estis, ĉirkaŭitaj
 
 
 de ili? Kion komunan ni havis kun ili? Kiu ligilo estis inter ni?
@@ -2049,9 +1677,6 @@ Teofilo ŝajnis falinta el la nuboj.
 ”Vivu kiu?” incite ripetis la reprezentanto de la leĝo.
 
 Teofilo turnis sian timplenan vizaĝon al ni, esperan-te ricevi konsilon, sed ĉiu el ni sciis tiom, kiom li.
-
-
-FONTAMARA
 
 
 ĉar Teofilo silentis, la malgrandulo turnis sin al Filippo il Bello, kiu havis grandan registron en la manoj, kaj ordonis:
@@ -2091,9 +1716,6 @@ Pasquale Cipolla estis la kvara.
 * ribelulo, malobeulo
 
 
-FONTAMARA
-
-
 ”Klare respondu, kion vi pensas,” la hometo ordonis al li. ”Vivu kiu?”
 
 ”Vivu pano kaj vino!” estis la sincera respondo de Pasquale Cipolla. Ankaŭ li estis refrattario.
@@ -2119,9 +1741,6 @@ La efiko estis alia ol atendis Baldissera. ĉiuj militistoj rideksplodis kaj la 
 ”ĉu mortinta?” konsternite demandis Baldissera,
 
 ”Neeble!”
-
-
-FONTAMARA
 
 
 ”Skribu,” estis la ordono al Filippo il Bello: ”Konsti-tuciano”.
@@ -2151,9 +1770,6 @@ Plej multe impresis Raffaele Scarpone, kriante al la aĉa vizaĝo de la leĝorep
 La hometo volis arestigi lin, sed Raffaele estis zorginta elparoli tion ekster la kvadrato kaj per du saltoj li malaperis malantaŭ la preĝejon kaj neniu vidis lin plu.
 
 Per Giacobbe Losurdo komenciĝis la vico de prudentaj homoj.
-
-
-FONTAMARA
 
 
 ”Vivu ĉiuj!” li respondis kaj malfacile estis pripensi pli prudentan respondon. Sed oni ne alte taksis ĝin.
@@ -2187,9 +1803,6 @@ Ankoraŭ neniu estis sukcesinta trovi kontentigan respondon. Post la iom post io
 ”Kiun bankon?” demandis al li Filippo il Bello.
 
 
-FONTAMARA
-
-
 ”Ekzistas nur unu banko, kiu donas nur al la Impresario,” respondis Venerdì, kiu estis bone informita.
 
 ”Skribu: komunisto.”
@@ -2215,9 +1828,6 @@ Maljuna Maria Vincenza atingis la preĝejan sojlon kaj ekgenuinte denove ekkriis
 ”Madono, ŝirmu nin, savu nin, intervenu . . .”
 
 La maljunulino apenaŭ finis la alvokon, kiam aŭdiĝis la sono de la granda sonorilo kaj ni ĉiuj rigardis al la sonorilejo.
-
-
-FONTAMARA
 
 
 Flanke de la granda sonorilo ni rimarkis virinan ombron kiel fantomon, junan, altan, delikatan kun vizaĝo blanka kiel neĝo kaj la manoj apogitaj sur la balustrado.
@@ -2247,24 +1857,16 @@ Kiam la aŭtomobiloj ekveturis, estis noktmezo.
 ”Antaŭe ni esploru, kiu estas en la sonorilejo,” li respondis.
 
 
-FONTAMARA
-
-
 Laŭ vero li kredis pri la diablo, sed ne pri la Madono.
 
 La apero de la diablo konvinkus lin, sed ne la veno de la Madono.
 
 Ni supreniris la turon kaj trovis mian edzinon kaj Elvira pli mortaj ol vivaj.
 
-(La sekvintan tagon ankaŭ ni eksciis la kaŭzon de la veturprokrasto. ĉe la piedo de la monteto renversiĝis la unua aŭtomobilo, kiu ne sukcesis eviti arban trunkon, kuŝanta transverse sur la strato. Pluraj personoj vundi-
-
-ĝis, inter ili la hometo kun la trikoloro).
+(La sekvintan tagon ankaŭ ni eksciis la kaŭzon de la veturprokrasto. ĉe la piedo de la monteto renversiĝis la unua aŭtomobilo, kiu ne sukcesis eviti arban trunkon, kuŝanta transverse sur la strato. Pluraj personoj vundiĝis, inter ili la hometo kun la trikoloro).
 
 
-FONTAMARA
-
-
-ĉAPITRO VI.
+ĈAPITRO VI.
 
 La ekscitoj de tiu terura nokto devigis Elviran resti malsana en la lito.
 
@@ -2273,9 +1875,7 @@ La ekscitoj de tiu terura nokto devigis Elviran resti malsana en la lito.
 
 Elvira sendis peton al Berardo, ke li bonvolu helpi al ŝi haki lignon por la kaldrono kaj Berardo, ne parolante pri rekompenco, tuj akceptis. Li ne nur hakis, sed laŭ indikoj de Elvira, ankaŭ tinkturis la lanon.
 
-Elvira kuŝis sur pajlomatraco en angulo de la ĉambreto. ŝi estis malgrasiĝinta pro angoro kaj eble pro tio aspektis pli bela kun siaj simpla bruna vizaĝo, nigraj haroj kaj okuloj kaj svelta korpo. ŝi ordonis kaj Berardo 118
-
-FONTAMARA
+Elvira kuŝis sur pajlomatraco en angulo de la ĉambreto. ŝi estis malgrasiĝinta pro angoro kaj eble pro tio aspektis pli bela kun siaj simpla bruna vizaĝo, nigraj haroj kaj okuloj kaj svelta korpo. ŝi ordonis kaj Berardo
 
 
 plenumis ŝiajn dezirojn, kvazaŭ infano lernanta novan arton. Ofte li embarasis Elviran per siaj demandoj, ekzemple, kiam li deziris scii, kial flava stofo trempita en indigon, iĝas malhelblua.
@@ -2297,9 +1897,6 @@ Iun vesperon, en mia ĉeesto, Elvira faris novan klopo-don igi Berardon rekompen
 ”Se Berardo rifuzas,” mi aŭdacis diri, ”li deziras, ke vi ŝparu ilin por la geedziĝa tago . . .”
 
 Elvira arde ruĝiĝis kaj Berardo okulumis al mi, kvazaŭ intencante batataki min.
-
-
-FONTAMARA
 
 
 ”Ne estas io farebla,” mi pensis ĉe mi, ”Berardo ne estas homo, kiu povos edziĝi.”
@@ -2324,9 +1921,7 @@ Tiam mi komprenis, ke Berardo pasigis la nokton ĉe Elvira.
 
 ”Mia konsilo estas,” mi diris, ”ke per baldaŭa edziĝo vi neniom perdos, male, vi nur gajnos . . . Pli bona edzino en Fontamara ne ekzistas.”
 
-”Vi ne komprenas min,” Berardo klarigis. ”ĉu mi iam pensis pri edzino pli valora ol Elvira? Kontraŭe. Kio mi estas? . . . Kafono, ne posedanta teron. Vermo, talpo, vulpo sen kaverno. ĉu Elvira estus kontenta kun sentera edzo? . . . Tio ne sufiĉus. Se ne ŝi estas prudenta, mi estas. Ne ĝenas min, malsati sola aŭ kun mia avino. Sed 120
-
-FONTAMARA
+”Vi ne komprenas min,” Berardo klarigis. ”ĉu mi iam pensis pri edzino pli valora ol Elvira? Kontraŭe. Kio mi estas? . . . Kafono, ne posedanta teron. Vermo, talpo, vulpo sen kaverno. ĉu Elvira estus kontenta kun sentera edzo? . . . Tio ne sufiĉus. Se ne ŝi estas prudenta, mi estas. Ne ĝenas min, malsati sola aŭ kun mia avino. Sed
 
 
 kiam Elvira venas en mian hejmon? . . . Labori unu tagon ĉe unu mastro, alian tagon ĉe nova, ne tre ĝenas min. Sed ĉu la edzo de Elvira povos esti taglaboristo?
@@ -2347,9 +1942,7 @@ Berardo ĉiam parolis tiel pri ĉiuj aferoj. Oni povus diskuti tutan tagon kun l
 
 Berardo tre senkuraĝiĝis. La kaŭzo de lia maltrankvilo fakte estis la malhavo de tero. is nun li eltrovis per strangaj rezonadoj motivojn por eviti konfeson pri tio, sed la urĝa neceso fondi familion, memorigis al li la kru-dan veron.
 
-En Fontamara kaj en la najbaraj vilaĝoj la pli granda parto de la kafonoj estis etfarmistoj. La nombro de kafonoj sen tero estis limigita. Oni malestimis la nepose-dantojn; ili estis devigitaj ofte ŝanĝi metion kaj dum la 121
-
-FONTAMARA
+En Fontamara kaj en la najbaraj vilaĝoj la pli granda parto de la kafonoj estis etfarmistoj. La nombro de kafonoj sen tero estis limigita. Oni malestimis la nepose-dantojn; ili estis devigitaj ofte ŝanĝi metion kaj dum la
 
 
 lastaj jaroj la salajro malpliiĝis. Oni konsideris taglabo-rantan kafonon homo plej netaŭga, plej stulta, nescia, plej mallaborema kaj vere multfoje tiu juĝo ŝajnis prava. Sed dum la lastaj jaroj multo ŝanĝiĝis. En niaj regionoj ne estis etfarmistoj, kiuj sciis pligrandigi siajn kampojn, nek iu taglaboristo fariĝis etfarmisto; kontraŭe, ni povis mencii multajn kazojn, ke kreditoroj eksproprigis etfarmistojn kaj devigis ilin fariĝi taglaboristoj kaj fine, ke riĉaj kamparanoj malaltiĝis al rango de kafono. Oni povus diri pri Berardo Viola, kion oni volus, sed oni ne povus malkonfesi, ke li superas per forto kaj inteligen-to ĉiujn fontamaranojn. Ke li ne sukcesis ŝpari etan su-mon por aĉeti pecon da tero, tio signifas, ke finiĝis la tempo, kiam kafono sentera povis fariĝi etfarmisto. La saman sorton suferis granda parto de la kafonoj.
@@ -2357,9 +1950,6 @@ lastaj jaroj la salajro malpliiĝis. Oni konsideris taglabo-rantan kafonon homo 
 Kvankam ŝanĝiĝis la tempoj, la rezonado estis ankoraŭ antikva. Kafono, ne posedanta teron, restis malesti-mata. Berardo ne povis submetiĝi. Li ĉiam esperis akiri teron, laborinte kelkajn jarojn en Ameriko aŭ en aliaj regionoj italaj, sed li neniam sukcesis tiurilate. Kun la minacanta kaj neevitebla edziĝo antaŭ la okuloj, li sentis sin dumvive kondamnita al rango pli malalta ol tiu de la aliaj kafonoj. Elirvojon li ne vidis.
 
 Ne atendinte tion, ni aŭdis novaĵojn pri la urbaj labor-metodoj de iu persono, kiun ni supozis neniam revidi en Fontamara.
-
-
-FONTAMARA
 
 
 Li estis kurbiĝinta maljunulo, nek kafono, nek urbano, aŭ pli ĝuste kafono ŝanĝita de la urbo, kiun ni, kiam li, anhelante alvenis sur la placeton de Fontamara kun valizo sur la ŝultroj, rigardis kiel profeton migrantan, kiu antaŭdiras la rikolton, malaperigas epidemiojn, imuni-gas bestojn kaj virinojn kontraŭ la malica okulo kaj ven-das la veran balzamon kontraŭ kalo.
@@ -2379,9 +1969,6 @@ Li aspektis stranga: malgranda infana kapo, du larm-okuloj, longaj lipharoj kaj 
 ”Havu paciencon . . . Voku ĉi tien Giudittan Goriano,” respondis la maljunulo.
 
 
-FONTAMARA
-
-
 ”ŝi jam polviĝis,” diris Michele, per tio esprimante, ke ŝi jam mortis. Ni ekridis, ĉar la maljunulo prezentis sin malbona profeto.
 
 ”Se Giuditta estas mortinta, tiuokaze voku Berardon Goriano,” petis la falsa profeto.
@@ -2396,12 +1983,7 @@ La opinioj diferencis. Sorcanera, kiu ankaŭ kun Peppino Goriano amrilatis en si
 
 ”Li forlasis Fontamaran por vojaĝi al Romo en la jaro de la murdo al reĝo Umberto . . . Antaŭ kiom da jaroj?
 
-. . . Estas facile kalkuleble: de la morto de Umberto ĝis la kometo, kiu aperis post la milito de Tripoli, pasis jar-deko; de la kometo ĝis la milito de Trieste pasis ankoraŭ kvin jaroj, tio estas dek kvin; la milito de Trieste daŭris kvar aŭ kvin jarojn, tio estas dudek; poste, dum kvin jaroj potencis la sindikatoj, tio estas dudek kvin; sekvis la epoko de ordo, kiu daŭras dek jarojn kaj pri kiu ĉiu esperas, ke ĝi finiĝos kaj ke sur ĝian lokon venos la tur-124
-
-FONTAMARA
-
-
-koj, sed ĝi ne finiĝis kaj la turkojn ni ne vidas, tio estas tridek kvin jaroj.
+. . . Estas facile kalkuleble: de la morto de Umberto ĝis la kometo, kiu aperis post la milito de Tripoli, pasis jar-deko; de la kometo ĝis la milito de Trieste pasis ankoraŭ kvin jaroj, tio estas dek kvin; la milito de Trieste daŭris kvar aŭ kvin jarojn, tio estas dudek; poste, dum kvin jaroj potencis la sindikatoj, tio estas dudek kvin; sekvis la epoko de ordo, kiu daŭras dek jarojn kaj pri kiu ĉiu esperas, ke ĝi finiĝos kaj ke sur ĝian lokon venos la turkoj, sed ĝi ne finiĝis kaj la turkojn ni ne vidas, tio estas tridek kvin jaroj.
 
 Do antaŭ tridek kvin jaroj, Peppino Goriano foriris al Romo por serĉi fortunon kaj intencis reveni al Fontamara, tuj post kiam li atingis sian celon, por edziĝi kun deksepjara junulino, kiun li amis kaj kiu nomiĝis tiam Marietta Sorcettonero . . . .”
 
@@ -2411,18 +1993,11 @@ Do antaŭ tridek kvin jaroj, Peppino Goriano foriris al Romo por serĉi fortunon
 
 Ni konfirmis la diron de Marietta kaj la profeto silentis konfuzita kaj embarasita. Post longa paŭzo li plu profetis la vivon de Peppino Goriano.
 
-”Li kalkulis ekhavi fortunon post kelke da jaroj. En Romo li tuj trovis okupon kiel kuireja servisto ĉe la fondaĵo ”Fate-bene-fratelli,” sed ne riĉiĝis tie. Li laboris ĉiutage dum dek kvar horoj kaj ricevis manĝon kaj dorme-jon, sed ne trn. La pastroj de la fondaĵo opiniis, ke vino humiligas la homon kaj ili ne volis, ke iliaj subuloj humiliĝu. La solaj, kiuj rajtis humiligi sin tie, estis la superuloj. Sed la vino de la superuloj estis en la kelo kaj en la kelo laboris Peppino Goriano, kiun post dujara fidela servado, oni metis ekster la pordon pro konstanta ebrio . . . Dum kelka tempo li ne havis okupon. Kelkfoje li laborenspezis kelkajn soldojn per malgrandaj servoj, sed tio apenaŭ sufiĉis por kvietigi la soifon kaj por fori-125
-
-FONTAMARA
-
-
-gi la malsaton kaj tiom malpli por dormi . . . Laŭ la sezono li dormis en la botanika ĝardeno, en Koloseo*, aŭ sub la pordego de Esdra, belaj vidindaĵoj dumtage, sed maloportunaj por dormi . . . Iun nokton Peppino Goriano vidis en sonĝo sanktan Roccon, kiu klarigis al li kiel eniri proksiman salambutikon. Peppino tuj kuris al la indikita loko, sed ĉe la freŝa faro li estis surprizita de gardisto, arestita kaj poste kondamnita je okmonata mallibero. Dum la proceso li klopodis tiri la atenton al sankta Rocco, sed la juĝistoj ne kredis lin. enerale, la juĝistoj ne kredas malriĉulojn . . . En la karcero li ekhavis feliĉon: liaj okuloj malsaniĝis. Antaŭe fluis el ili blanka fluidaĵo, poste ili ŝvelis kaj ruĝiĝis kvazaŭ tomatoj kaj li vere estis kompatinda. Pro tiu stato liberigita el karcero, Peppino Goriano unuafoje en sia vivo sukcesis kapti la fortunon ĉe la haroj: de iu konato li dungis knabi-neton kaj dediĉis sin al almozado. Kutime li iris ĉiumatene preter la preĝejoj, kie oni celebris la meson por la animoj en la purgatorio, ĉiutagmeze li manĝis supon ĉe du aŭ tri monaęjoj kaj en la posttagmezo li lokigis sin ĉe tombejoj kaj ĉe la enirejoj de teatroj. Kvankam la kna-bineto kostis al li po du liroj por tago, Peppino Goriano gajnis ankoraŭ sufiĉe por pagi loĝejon kaj ŝpari kelkajn soldojn. Li ne bezonis timi pri manĝado, ĉar ĉe la mona-
+”Li kalkulis ekhavi fortunon post kelke da jaroj. En Romo li tuj trovis okupon kiel kuireja servisto ĉe la fondaĵo ”Fate-bene-fratelli,” sed ne riĉiĝis tie. Li laboris ĉiutage dum dek kvar horoj kaj ricevis manĝon kaj dorme-jon, sed ne trn. La pastroj de la fondaĵo opiniis, ke vino humiligas la homon kaj ili ne volis, ke iliaj subuloj humiliĝu. La solaj, kiuj rajtis humiligi sin tie, estis la superuloj. Sed la vino de la superuloj estis en la kelo kaj en la kelo laboris Peppino Goriano, kiun post dujara fidela servado, oni metis ekster la pordon pro konstanta ebrio . . . Dum kelka tempo li ne havis okupon. Kelkfoje li laborenspezis kelkajn soldojn per malgrandaj servoj, sed tio apenaŭ sufiĉis por kvietigi la soifon kaj por forigi la malsaton kaj tiom malpli por dormi . . . Laŭ la sezono li dormis en la botanika ĝardeno, en Koloseo*, aŭ sub la pordego de Esdra, belaj vidindaĵoj dumtage, sed maloportunaj por dormi . . . Iun nokton Peppino Goriano vidis en sonĝo sanktan Roccon, kiu klarigis al li kiel eniri proksiman salambutikon. Peppino tuj kuris al la indikita loko, sed ĉe la freŝa faro li estis surprizita de gardisto, arestita kaj poste kondamnita je okmonata mallibero. Dum la proceso li klopodis tiri la atenton al sankta Rocco, sed la juĝistoj ne kredis lin. enerale, la juĝistoj ne kredas malriĉulojn . . . En la karcero li ekhavis feliĉon: liaj okuloj malsaniĝis. Antaŭe fluis el ili blanka fluidaĵo, poste ili ŝvelis kaj ruĝiĝis kvazaŭ tomatoj kaj li vere estis kompatinda. Pro tiu stato liberigita el karcero, Peppino Goriano unuafoje en sia vivo sukcesis kapti la fortunon ĉe la haroj: de iu konato li dungis knabi-neton kaj dediĉis sin al almozado. Kutime li iris ĉiumatene preter la preĝejoj, kie oni celebris la meson por la animoj en la purgatorio, ĉiutagmeze li manĝis supon ĉe du aŭ tri monaęjoj kaj en la posttagmezo li lokigis sin ĉe tombejoj kaj ĉe la enirejoj de teatroj. Kvankam la kna-bineto kostis al li po du liroj por tago, Peppino Goriano gajnis ankoraŭ sufiĉe por pagi loĝejon kaj ŝpari kelkajn soldojn. Li ne bezonis timi pri manĝado, ĉar ĉe la mona-
 
 ęjoj li ricevis tro multe kaj li estis devigata vendi par-
 
-* grandega, famkonata amfiteatro en Romo 126
-
-FONTAMARA
+* grandega, famkonata amfiteatro en Romo
 
 
 ton en gastejo ĉe la pordego sankta Giovanni, kontraŭ vino. Dum kelkaj jaroj li okupis sin per almozado por ŝpari sumeton kaj veni al Fontamara kaj edziĝi kun Sorcettonero . . .”
@@ -2433,23 +2008,16 @@ ton en gastejo ĉe la pordego sankta Giovanni, kontraŭ vino. Dum kelkaj jaroj l
 
 En malbona tago iu gvardiano arestis lin kaj kondukis lin al malsanulejo, por ke liaj okuloj resaniĝu. Peppino Goriano ekribelis. La okuloj estas miaj, li diris, kaj mi estas libera fari per ili, kion mi deziras. Sed en Italio neniam estis vera libero . . . Do, post kelkaj tagoj li ree ekhavis la vidpovon kaj perdis per tio sian vivrimedon.
 
-Finiĝis la feliĉaj tempoj, la tempoj de superfluo, kaj komenciĝis la tentoj. Li provis pezajn laborojn kiel masonisto, sarĝveturigisto, sablisto ĉe rivero Tevere, sed li ne sukcesis ie pli longe ol unu semajnon. Kiam li havis deziron labori, mankis la fortoj kaj kiam li havis la fortojn, mankis la deziro. Laŭ mil manieroj li serĉis riĉon . . . En tiu tempo alvenis ĉiutage en Romon centoj da provincanoj por serĉi fortunon. Tiuj, kiuj havis malgrandajn aspirojn, eklaboris kiel stratlaboristoj, ŝuciristoj, kuirej-servistoj, stalistoj, ĝardenistoj kaj ili sukcesis okupi malgravajn lokojn kaj ĉiutage povis flankenmeti kelkajn soldojn. Sed Peppino Goriano ne havis tiom da pacienco, por atendi dek jarojn por ŝpari milon da liroj kiel la 127
-
-FONTAMARA
+Finiĝis la feliĉaj tempoj, la tempoj de superfluo, kaj komenciĝis la tentoj. Li provis pezajn laborojn kiel masonisto, sarĝveturigisto, sablisto ĉe rivero Tevere, sed li ne sukcesis ie pli longe ol unu semajnon. Kiam li havis deziron labori, mankis la fortoj kaj kiam li havis la fortojn, mankis la deziro. Laŭ mil manieroj li serĉis riĉon . . . En tiu tempo alvenis ĉiutage en Romon centoj da provincanoj por serĉi fortunon. Tiuj, kiuj havis malgrandajn aspirojn, eklaboris kiel stratlaboristoj, ŝuciristoj, kuirej-servistoj, stalistoj, ĝardenistoj kaj ili sukcesis okupi malgravajn lokojn kaj ĉiutage povis flankenmeti kelkajn soldojn. Sed Peppino Goriano ne havis tiom da pacienco, por atendi dek jarojn por ŝpari milon da liroj kiel la
 
 
 aliaj vilaĝanoj. Li atendis, ke iam subite malfermiĝos la pordo al fortuno. Sed kontraŭe, al li estis ĉiufoje malfermita la pordo de karcero, kie li entute pasigis kvar jarojn kaj kvin monatojn.
 
 Post multaj malsukcesoj Peppino Goriano perdis la kuraĝon. Fine ankaŭ li pretis vivi la vivon de la malriĉuloj el Abruzzo, kiuj plenumis en Romo la plej malŝatin-dajn laborojn . . . Li vagis kelktempe ĉe stacioj kaj kazernoj kun papago, kiu kontraŭ du soldoj donis koverton, en kiu estis profetita la estonta tempo, sed post kelkaj monatoj la besto mensmalsaniĝis kaj iun tagon ĝi mortis. Eluzante la konstantan alfluon de laborserĉantoj el Abruzzo, kiuj dum la vintra sezono venis al Romo, Peppino iom da tempo okupis sin per laborhavigo al kamparaninoj kiel nutristinoj kaj servistinoj kaj al kamparanoj kiel serviclavistoj kaj masonistoj.
 
-En tiu periodo Peppino koniĝis kun sankta homo, monsignor Calogero, nudpieda karmelito*, kiu enoficigis lin kiel provizestron. Lia moŝto estis pli voluptema ol laŭ lia aĝo konvenis kaj por kontentigi sin li preferis kampa-raninojn el Abruzzo. Peppino ricevis loĝlokon kaj man-
-
-ĝon, krom tio premie po dek liroj por ĉiu kamparanino, kiun li sukcesis konduki en la liton de la sanktulo. La unuajn monatojn Peppino konscience plenumis sian
+En tiu periodo Peppino koniĝis kun sankta homo, monsignor Calogero, nudpieda karmelito*, kiu enoficigis lin kiel provizestron. Lia moŝto estis pli voluptema ol laŭ lia aĝo konvenis kaj por kontentigi sin li preferis kampa-raninojn el Abruzzo. Peppino ricevis loĝlokon kaj manĝon, krom tio premie po dek liroj por ĉiu kamparanino, kiun li sukcesis konduki en la liton de la sanktulo. La unuajn monatojn Peppino konscience plenumis sian
 
 * monaą ordenano, nomita laŭ la monto ”Karmelo” en Nord-Palestino
-
-
-FONTAMARA
 
 
 laboron kaj li konstante kuris laŭ aleoj kaj publikaj par-koj por inklinigi servistinojn konfesi ĉe monsignor Calogero. La rezultoj iĝis ĉiam pli malbonaj. Krome la sanktulo ne akceptis la saman knabinon pli ol du aŭ trifoje kaj Peppino devis ĉiam serĉi novajn. Por ne perdi sian profesion li estis devigita iri al la virinoj en Via Panico, kiuj profesie amoris; li igis ilin manĝi ajlon kaj cepojn, por ke monsignor havu la iluzion, ke ili estas kamparaninoj, ĵus venintaj el Abruzzo . . . La sanktulo rimarkis la trompon, sed ne antaŭ ol li ekhavis malican malsanon.
@@ -2460,15 +2028,9 @@ La malfeliĉo denove persekutis lin . . .”
 
 ”Sed kial li ne reiris al Fontamara?” demandis Marietta.
 
-”ĉu reveni kiel almozpetanto? Neeble! . . . Li restis en Romo, kie li supozis la mizeron malpli peza kaj li okupis sin per mil metioj: hundorazisto, sonorigisto, tombo-fosisto, vendisto de laĉoj kaj bildkartoj de Gugliemo Oberdan, serviclavisto en diversaj gastejoj. Ju pli li ŝan-
+”ĉu reveni kiel almozpetanto? Neeble! . . . Li restis en Romo, kie li supozis la mizeron malpli peza kaj li okupis sin per mil metioj: hundorazisto, sonorigisto, tombo-fosisto, vendisto de laĉoj kaj bildkartoj de Gugliemo Oberdan, serviclavisto en diversaj gastejoj. Ju pli li ŝanĝis metion, des pli ĉio estis sama.
 
-ĝis metion, des pli ĉio estis sama.
-
-Miloj da loĝantoj el Abruzzo vivis kaj vivas en Romo kiel li, farante ĉion, kion ’la aliaj’ ne ŝatas fari. La tutan vivon ili troviĝas unu gradon malpli alte ol ’la aliaj’. Ili restas dumvivaj kafonoj, dumvivaj almozpetantoj. Sufi-
-
-ĉas iri surstrate en Romo por unuavide rekoni ilin. Ili alie sin vestas, promenas, ridas, rigardas kaj parolas ol ’la 129
-
-FONTAMARA
+Miloj da loĝantoj el Abruzzo vivis kaj vivas en Romo kiel li, farante ĉion, kion ’la aliaj’ ne ŝatas fari. La tutan vivon ili troviĝas unu gradon malpli alte ol ’la aliaj’. Ili restas dumvivaj kafonoj, dumvivaj almozpetantoj. Sufiĉas iri surstrate en Romo por unuavide rekoni ilin. Ili alie sin vestas, promenas, ridas, rigardas kaj parolas ol ’la
 
 
 aliaj.’ ĉiudimanĉe ’la aliaj’ iras al la stadiono aŭ al Pari-oli, eniras kelkajn malgrandajn gastejojn. Peppino Goriano estis en Romo, kiam ’la aliaj’ manifestaciis por aŭ kontraŭ la milito de Trieste kaj li eniris malgrandan gastejon ĉe pordego Trionfale. Post la milito ’la aliaj’ iris preskaŭ ĉiuj al la laborhaviga oficejo, li multfoje vizitis trinkejon ĉe Testaccio. Ofte en la urbo estis malkviete kaj nevole li miksis sin inter ’la aliajn.’ Sed tio havis mal-bonan rezulton.
@@ -2476,9 +2038,6 @@ aliaj.’ ĉiudimanĉe ’la aliaj’ iras al la stadiono aŭ al Pari-oli, enira
 Ekzemple en tiu tago, kiam Peppino vidis sur strato Cola di Rienzo homamason kun ruĝaj flagoj, atakantan butikojn, li miksis sin en la amason kaj eniris ŝubutikon, sed elirinte, li rimarkis, ke la ŝuoj de li kaptitaj estas ne-paraj; li havis du porfraŭlinajn balŝuojn, ambaŭ por la maldekstra piedo kaj grandan rajdboton por la dekstra
 
 . . . Kion li povis fari per ili? Li do ekserĉis la personon, kiu forprenis la ŝuojn, konvenantajn al la liaj kaj demandis dekstre kaj maldekstre, ĝis kiam li renkontis elegan-tan sinjoron, kiu pretis helpi lin kaj invitis lin al sia hejmo. Sed la elegantulo kondukis lin ne al sia hejmo, sed al policejo, kie oni arestis lin kaj akuzis pri rabado. Dum la proceso Peppino aperis antaŭ la tribunalo kun multaj aliaj laboristoj, kiuj ĉiuj deklaris, ke ili partoprenis la atakon pro ’politikaj motivoj’, sed Peppino konfesis, ke li bezonas ŝuojn kaj pro tio li estis kondamnita al duoble longa puno.
-
-
-FONTAMARA
 
 
 En tiu tempo okazis ankaŭ, ke, se iu homo surstrate estis murdita, lia murdinto estis ne persekutata, sed pre-miita, kiam la murdo okazis pro ’politikaj motivoj’ kaj kondamnita al grava puno, kiam la murdo okazis pro mizero. Peppino konvinkiĝis, ke lia vivo estis malsukceso pro tio, ke li ĉiam agis pro malsato kaj neniam pro
@@ -2496,9 +2055,6 @@ En tiu tempo okazis ankaŭ, ke, se iu homo surstrate estis murdita, lia murdinto
 * malliberejo en Romo
 
 
-FONTAMARA
-
-
 ciroj kaj soldatoj, dum liaj kamaradoj de Regina Coeli tuj fuĝis ĉiudirekte. Sed li estis ĉe la komenciĝo de sia karie-ro ’politika’ kaj volis plenumi sian devon; tial li plu kriis, kion ordonis al li la polico, kvankam li ne sciis, kion tio signifas. La oficistoj kaj soldatoj ĉirkaŭis lin kaj kio okazis, tion li neniam povis rakonti, ĉar li svenis kaj rekonsciiĝis en la malsanulejo sankta Giacomo . . .”
 
 ”Sekve, la oficiroj estis kontraŭ la polico? . . . Kiel tio eblas?” demandis General Baldissera, kiu havis altan koncepton pri militista disciplino.
@@ -2509,23 +2065,13 @@ ciroj kaj soldatoj, dum liaj kamaradoj de Regina Coeli tuj fuĝis ĉiudirekte. S
 
 ”Kaj Peppino, kial ne fuĝis ankaŭ li?” time demandis Marietta.
 
-”Por pli multe enspezi,” klarigis la falsa profeto. ”Li ricevis de la polico po kvin liroj por tago kaj krom tio premie dudek kvin lirojn ĉiufoje, kiam li eniris malsanu-132
-
-FONTAMARA
-
-
-lejon. Kompare kun la kostoj por vivi, kvin liroj ne povis sufiĉi al li kaj li nepre bezonis bastonbatojn . . .
+”Por pli multe enspezi,” klarigis la falsa profeto. ”Li ricevis de la polico po kvin liroj por tago kaj krom tio premie dudek kvin lirojn ĉiufoje, kiam li eniris malsanulejon. Kompare kun la kostoj por vivi, kvin liroj ne povis sufiĉi al li kaj li nepre bezonis bastonbatojn . . .
 
 Kompreneble, ne estis agrabla afero, sed laborado neniam estis agrabla . . . Mi devas diri, ke la vortoj kriotaj ofte ŝanĝiĝis; kriinte dum ses monatoj: ’Vivu Nitti!’ oni devigis Peppino krii dum tuta jaro: ’For Nitti!’ sed la rezulto estis ĉiam egala. ĉiam li ricevis batojn. Post unu kaj duona jaroj da ’politika’ aktiveco, la korpo de Peppino Goriano similis tiun de Jesuo sur la kruco, kiam Ponzio diris: jen, homo.
 
 Oni vere povis konsideri Peppinon Goriano martiro de la politiko. Neniu italo iam suferis tiom pro la politiko, tiom li. Li ne apartenis al tiuj, kiuj restis hejme kaj sendis aliajn por ricevi batojn. Li mem laboris. Multaj aliaj italoj tiutempe batalis por siaj idealoj, sed ili ne estis kompareblaj kun Peppino, kiu batalis por ĉiuj idealoj, kiu donis sian sangon por la demokratio kaj por la na-ciismo, por la socialismo kaj por la religio. ĉiu ajn idealo enhavas ion bonan kaj Peppino trovis, ke tiu bono fakte estas, ke li enspezas pro sia servado ĉiutage kvin lirojn kaj dudek kvin lirojn premie ĉiufoje, kiam li eniras malsanulejon.
 
-Plimaljuniĝinte, Peppino malpli bone povis elteni la batojn. La deziro retiri sin el ’la politiko’ komencis turmenti lin. La politikaj bataloj ĉiam pli danĝeriĝis. La ma-nifestantoj ne plu uzis ŝtonojn kaj bastonojn, sed tuj ek-133
-
-FONTAMARA
-
-
-pafis. La ’politiko’ iĝis mortiga. i ĉesis esti arto vivsub-teni sin per batricevado. i iĝis grava afero, nekunigebla kun la karaktero de Peppino Goriano . . .”
+Plimaljuniĝinte, Peppino malpli bone povis elteni la batojn. La deziro retiri sin el ’la politiko’ komencis turmenti lin. La politikaj bataloj ĉiam pli danĝeriĝis. La ma-nifestantoj ne plu uzis ŝtonojn kaj bastonojn, sed tuj ekpafis. La ’politiko’ iĝis mortiga. i ĉesis esti arto vivsub-teni sin per batricevado. i iĝis grava afero, nekunigebla kun la karaktero de Peppino Goriano . . .”
 
 ”Sed kial la popolo pafis?” ekdemandis Sorcanera.
 
@@ -2543,12 +2089,7 @@ La falsa profeto silentis, hezitante, ĉu daŭrigi aŭ ne.
 
 Sed post iom da tempo li daŭrigis, ne atentante la inter-rompon de Michele.
 
-”Vere estis parolo pri ’politiko’ nova kaj belega, neniam vidita. Temis pri t.n. faŝismo. Kion signifis la faŝis-134
-
-FONTAMARA
-
-
-mo al Peppino Goriano? Mirigan aferon! Bonan paga-don, trioble pli bonan ol tiun de kafono, la rajton bati, ne estante batata kaj la protekton de la aŭtoritatuloj.
+”Vere estis parolo pri ’politiko’ nova kaj belega, neniam vidita. Temis pri t.n. faŝismo. Kion signifis la faŝismo al Peppino Goriano? Mirigan aferon! Bonan paga-don, trioble pli bonan ol tiun de kafono, la rajton bati, ne estante batata kaj la protekton de la aŭtoritatuloj.
 
 Policisto kondukis lin en grandan salonon, malantaŭ la presejo de ’Giornale d’Italia’. Kiam li alvenis, ĉeestis jam multaj personoj, oficiroj, studentoj, soldatoj, oficistoj, elegantaj sinjorinoj, komercistoj, du aŭ tri pastroj, inter kiuj monsignor Calogero. La muroj estis ornamitaj per trikoloraj flagoj. ĉiuj laŭte diskutis. Inter tiom da honorindaj homoj, Peppino sentis sin tima. Sed en angulo li trovis grupon da konataj vizaĝoj, malnovaj kamaradoj de Regina Coeli, preskaŭ ĉiuj krimuloj. Oni eksilen-tis. Sur la scenejo aperis sinjoro, kiu ekparolis. Antaŭ ĉio li elkore salutis Peppinon Goriano kaj ties kamaradojn
 
@@ -2556,22 +2097,13 @@ Policisto kondukis lin en grandan salonon, malantaŭ la presejo de ’Giornale d
 
 Kiam li ĉesis paroli, la salono malpleniĝis kaj oni invitis Peppinon kaj la kamaradojn resti por partopreni la ven-kon de Porta Pia.
 
-Ili ricevis manĝon kaj trn en proksima gastejo kaj post tio oni ŝarĝis per ili aŭtomobilon, kiu transportis ilin al Porta Pia ĉe la monumento de Breccia, kie ili atendis proksimume unu horon. De sia loko ili povis vidi grupojn da karabenistoj kaj reĝaj gvardianoj, invadan-taj la administrejon de iu komunista gazeto kaj elkondu-135
+Ili ricevis manĝon kaj trn en proksima gastejo kaj post tio oni ŝarĝis per ili aŭtomobilon, kiu transportis ilin al Porta Pia ĉe la monumento de Breccia, kie ili atendis proksimume unu horon. De sia loko ili povis vidi grupojn da karabenistoj kaj reĝaj gvardianoj, invadan-taj la administrejon de iu komunista gazeto kaj elkondukantaj iom poste kiel malliberigitoj ĉiujn, kiuj troviĝis en la administrejo. Policisto alvenis por averti Peppinon Goriano kaj la aliajn, ke ili ne timu kaj ke ili sendanĝere povos ataki la administrejon de la gazeto. Tiel okazis. Ili invadis la oficejojn, transportis la meblaron al la mezo de la strato kaj ekbruligis ĝin kun la administraj libroj kaj kartoj; ili pecigis la vitrojn, pordojn, skribmaŝinojn, pentraĵojn, fornojn kaj vazojn kaj ĵetis la inkujojn kontraŭ la tapeton de la muroj; la brulrezista ŝranko estis malfermita laŭ la reguloj de la arto, sed ĝi estis malplena . . .
 
-FONTAMARA
-
-
-kantaj iom poste kiel malliberigitoj ĉiujn, kiuj troviĝis en la administrejo. Policisto alvenis por averti Peppinon Goriano kaj la aliajn, ke ili ne timu kaj ke ili sendanĝere povos ataki la administrejon de la gazeto. Tiel okazis. Ili invadis la oficejojn, transportis la meblaron al la mezo de la strato kaj ekbruligis ĝin kun la administraj libroj kaj kartoj; ili pecigis la vitrojn, pordojn, skribmaŝinojn, pentraĵojn, fornojn kaj vazojn kaj ĵetis la inkujojn kontraŭ la tapeton de la muroj; la brulrezista ŝranko estis malfermita laŭ la reguloj de la arto, sed ĝi estis malplena . . .
-
-Antaŭ la forlaso de la detruitaj oficejoj, la invadintoj estis fotografataj de grupo da ĵurnalistoj. Peppino trovi-
-
-ĝis en la mezo de la grupo, svingante tablan piedon en la aero. La sekvintan tagon la fotografaĵo aperis en ’Pic-colo’ sub la titolo ’La Heroo de Porta Pia.’
+Antaŭ la forlaso de la detruitaj oficejoj, la invadintoj estis fotografataj de grupo da ĵurnalistoj. Peppino troviĝis en la mezo de la grupo, svingante tablan piedon en la aero. La sekvintan tagon la fotografaĵo aperis en ’Pic-colo’ sub la titolo ’La Heroo de Porta Pia.’
 
 De tiu tago la famo pri Peppino Goriano estis disvasti-gita kaj oni honoris lin. Li komencis viziti la redaktejojn de ĵurnaloj, kie oni pagis al li trinkmonon. Fine li ricevis inviton de markizino Parucchini, kiu prezentis lin al siaj amikinoj, poste kondukis lin en la kuirejon kaj post tio en la dormoĉambron, kie li multe pli laciĝis ol dum la atako ĉe Porta Pia.
 
-Peppino sciis elprofiti sian akiritan famon kaj trovis okupon kiel gardisto ĉe la noktazilo Borgo Pio. Unu el liaj kamaradoj estis murdita de laboristoj de la kvartalo 136
-
-FONTAMARA
+Peppino sciis elprofiti sian akiritan famon kaj trovis okupon kiel gardisto ĉe la noktazilo Borgo Pio. Unu el liaj kamaradoj estis murdita de laboristoj de la kvartalo
 
 
 sankta Lorenzo kaj tio igis lin multe pripensi. Ricevinte plurajn kunvokilojn de la faŝistoj, li ĉiam respondis, ke li malsanas . . . Kiel gardisto li laborenspezis malmulton, sed ankaŭ malmulton riskis.”
@@ -2585,9 +2117,6 @@ sankta Lorenzo kaj tio igis lin multe pripensi. Ricevinte plurajn kunvokilojn de
 Sekve, por Peppino rekomenciĝis la vivo kun malfacilaĵoj, senokupeco, kun la malnova malsato, kiu neniam ĉesas. De monato al monato ĝi fariĝis pli malfacila. Neniu supozis, ke la nova reĝimo povos ekzisti dek jarojn, sed ĝi eltenis.
 
 
-FONTAMARA
-
-
 Romo fariĝis neloĝebla. ĉiu tago alportas novan leĝon. Certe, ĉiu nova registaro kreis novajn leĝojn, sed la nuna tion faras ĉiutage.
 
 Dum jarcentoj la papoj regis per kvin leĝoj, la kvin leĝoj de la eklezio. Post la ekspedicio de la milo, Garibaldi enkondukis nur tri leĝojn, la leĝon de la tranĉilo, la leĝon de la sangovenĝo kaj la leĝon de la passatella*. La nuna registaro kreas leĝon por ĉiu afero. Ekzistas leĝo, kiu al ni malpermesas paroli pri certaj temoj, urini kontraŭ murojn, promeni maldekstre, kanti dumnokte, en-salti tramon tra la antaŭa pordo; ekzistas leĝo por tiuj, kiuj ne deziras edziĝi, aliaj por ĉiuj metioj, por laborha-vigaj oficejoj, por la opinidiferencoj inter labordonantoj kaj laborprenantoj . . .
@@ -2599,9 +2128,6 @@ La komunumo deklaris militon kontraŭ musoj, distribuis venenon por detrui ilin 
 * itala popola ludo
 
 
-FONTAMARA
-
-
 lionoj da ili mortis . . . Sed la haladzo restis. Dum iuj horoj de la tago ĝi estis tiel forta, ke ĝi inklinigas al vo-mado.”
 
 ”Kio estas la kaŭzo? ĉu malpuraĵo? . . .” demandis Michele.
@@ -2610,9 +2136,7 @@ lionoj da ili mortis . . . Sed la haladzo restis. Dum iuj horoj de la tago ĝi e
 
 ĉiusemajne la polico malkovras novajn komplotojn.
 
-Dumnokte oni invadas tutajn laboristajn kvartalojn per miloj da armitaj homoj; oni traserĉas la domojn de la keloj ĝis la mansardoj kaj arestas centojn da personoj 139
-
-FONTAMARA
+Dumnokte oni invadas tutajn laboristajn kvartalojn per miloj da armitaj homoj; oni traserĉas la domojn de la keloj ĝis la mansardoj kaj arestas centojn da personoj
 
 
 . . . Neniu scias la motivon. ĉiu komprenas, ke ankaŭ lin povos trafi tia sorto. Multaj timas.
@@ -2636,9 +2160,6 @@ faŝistoj. Ankaŭ ili scias kaj diras, ke tiel ne povos daŭri kaj ili timas. Ki
 ”Kaj kion faras la Papo?” demandis Marietta.
 
 
-FONTAMARA
-
-
 ”La Papo timas . . . Li akceptis du miliardojn de la registaro. Li aĉetis aŭtomobilon, konstruigis radiosendsta-cion kaj kvankam neniam vojaĝante, li konstruigis fer-vojan stacion kaj permesas al si luksojn kaj ĉio ĉi timigas lin. La preĝejoj kaj monaęjoj en Romo ricevis leteron de la Papo, ke ili disdonadu pli multe da supo al malriĉuloj. i estas supo pro timo. ĉe la fondaĵo ”Fate-bene-fratelli” ĉiuĵaŭde oni aldonis en la supo pecon da porkhaŭto. i estas porkhaŭto pro timo. Sed multaj su-poj kaj porkhaŭtoj estas bezonataj por forgesigi du miliardojn . . .”
 
 ”Kiel vivas la provincanoj en Romo?” mi demandis.
@@ -2648,18 +2169,12 @@ FONTAMARA
 ”ĉu Peppino Goriano estas vi?” time demandis al li Marietta.
 
 
-FONTAMARA
-
-
 ”ĉu la Heroo de Porta Pia estas vi?” General Baldissera demandis.
 
 Estis li.
 
 
-FONTAMARA
-
-
-ĉAPITRO VII.
+ĈAPITRO VII.
 
 Ne havante propran hejmon kaj proksimajn parencojn, la Heroo de Porta Pia trovis loĝejon en la lito de Marietta Sorcanera.
 
@@ -2673,9 +2188,7 @@ Kion respondi? Kiu povas scii, kial la homo naskiĝis?
 
 Eĉ General Baldissera tion ne sciis. Plej multe frapis lin la rakonto pri la vivo en la urbo. La malnova mondo, kiun li konis, mortis jam antaŭ tridek jaroj. in anstataŭas stranga kaj malkonsekvenca mondo, en kiu okazas frenezaj aferoj.
 
-* atmosfera trompbildo pro rompo de lumradioj 143
-
-FONTAMARA
+* atmosfera trompbildo pro rompo de lumradioj
 
 
 La kafonoj sulkigis la grundon per lignaj plugiloj, kontraŭe la urbanoj fendis la aeron per flugantaj maŝinoj.
@@ -2699,9 +2212,6 @@ Deŝiru min
 Prenu mian koron
 
 Kaj deŝiru min!..
-
-
-FONTAMARA
 
 
 ĉe la roma stacio la Heroo estis ricevinta propagan-dan broŝuron, por la kafonoj presitan de la nova registaro. Ni supozis, ke en ĝi troviĝas klarigoj koncerne la sintenon de la registaro kontraŭ ni kaj iun vesperon ni kolektiĝis ĉirkaŭ la Heroo, por ke li voĉlegu al ni.
@@ -2733,9 +2243,6 @@ De la ombroplenaj arbaroj
 Mallaŭte murmuras kaskado.
 
 
-FONTAMARA
-
-
 Aliaj partoj de la libreto estis pli klaraj kaj priskribis la benitan vivon en la kamparo. Inter la donitaj argumentoj mi rememoras jenajn:
 
 ”Kiam la urbanoj volas ripozi kaj ĝui freŝan aeron, kien ili iras?
@@ -2764,9 +2271,7 @@ Kiam la Heroo tion legis, ni rigardis unu la alian, kvazaŭ por diri: li trompas
 
 La Heroo transdonis la broŝuron al Michele Zompa, kiu legis la samon kaj post li Ponzio Pilato.
 
-ĉi tiu donis ĝin al mi kaj mi legis: 146
-
-FONTAMARA
+ĉi tiu donis ĝin al mi kaj mi legis:
 
 
 ”Dank’al la nova registaro la kafonoj laboras ĉiutage ne pli ol ok horojn.
@@ -2794,9 +2299,6 @@ Kial ĝi volas elrabi, mortigi kafonojn en la nomo de kafonoj? . . .”
 Vere, unuafoje ni rimarkis, ke la registaro prezentas sin kiel registaro por kafonoj. Sed ĝuste ĝi transdonis nin al malsato.
 
 
-FONTAMARA
-
-
 ”La registaro ĉiam estis kontraŭ la malriĉuloj,” klarigis la Heroo de Porta Pia, ”sed la nuna registaro estas speciala . . . i estas kontraŭ la malriĉuloj, sed en speciala maniero. ia tuta potenco estas kontraŭ la malriĉuloj, inter kiuj estis multaj, kiuj verŝis sian sangon por fondi ĝin. Mi ne parolas pri mi mem kaj miaj samsor-tanoj, kvankam neniu povus diri, ke ni estas riĉaj. Sed mi parolas pri la oficistoj, tramistoj, fervojistoj, manlaboristoj, kiuj estis inter la unuaj faŝistoj . . . Mi parolas pri tiuj, kiuj nuntempe estas en la milico, kiuj grandparte ne estas milionuloj, sed malriĉaj kafonoj. Sen ili la nuna registaro ne regus longe. i bezonas ilin. La registaro de princo Torlonia kaj la banko bezonas ilin. Ju pli la registaro plenumas la interesojn de princo Torlonia kaj la banko, des pli ĝi ilin bezonas kaj des pli ĝi bezonas kredigi, ke ĝi estas registaro por kafonoj kaj ĉiuj manlaboristoj . . .”
 
 Tio, kion diris la Heroo de Porta Pia, ne estis tre klara.
@@ -2805,9 +2307,7 @@ Sed dum kelka tempo nenio estis komprenebla.
 
 Milicanoj venis al Fontamara kaj seksperfortis plurajn virinojn, tio estis klara. Sed tio okazis en nomo de la leĝo kaj dum ĉeesto de policestro kaj tio estis neklara.
 
-En Fucino la lupago de la malgrandaj luantoj estis altigita kaj tiu de la grandaj farmistoj malaltigita, tio estis 148
-
-FONTAMARA
+En Fucino la lupago de la malgrandaj luantoj estis altigita kaj tiu de la grandaj farmistoj malaltigita, tio estis
 
 
 klara. Sed la propono estis farita de reprezentanto de la etfarmistoj kaj tio estis neklara.
@@ -2819,9 +2319,6 @@ Oni povis diri, ke ĉiuj malfeliĉoj, kiujn ni spertis, ek-zamenitaj unu post al
 Ni povis klarigi plu nenion.
 
 La malmulta greno, kiu de la venonta rikolto devus resti en Fontamara, estis aĉetata de la Impresario jam fine de majo, kiam ĝi estis ankoraŭ verda, kontraŭ po 120 liroj por kvintalo. Ni tre miris, ke la Impresario, kutime tiel singarda, kuraĝas aĉeti grenon en majo, kiam neniu jam povas scii la merkatan prezon, sed ni bezonis monon kaj vendis la verdan grenon kaj tiel faris ankaŭ la kafonoj de la najbaraj vilaĝoj. Dum la rikolto solviĝis la mistero: la registaro proklamis leĝon speciale favoran al nacia greno kaj la prezo altiĝis de 120 ĝis 170 liroj por kvintalo. Evidente la Impresario sciis pri tiu leĝo jam en majo. Li gajnis tuj 50 lirojn je ĉiu kvintalo de nia greno, antaŭ ol ĝi estis falĉita.
-
-
-FONTAMARA
 
 
 Tiel la tuta profito de nia laborado malaperis al la Impresario. La tuta profito de niaj plugado, semado, erpa-do, sarkado, la tuta profito de tutjara laborado iris en la poŝon de la Impresario. La kafonoj plugis, sarkis, semis, fosis, rikoltis, draŝis kaj kiam ĉio finiĝis, intervenis la Impresario kaj profitis, intervenis la banko kaj profitis.
@@ -2840,9 +2337,7 @@ Al Berardo Viola li ŝuldis dek kvin tagojn, al Raffaele Scarpone kaj mi po dek 
 
 La Amiko de la Popolo faris seriozan mienon. Kelkajn minutojn li silentis. Du aŭ trifoje li trapasis la studejon.
 
-Li rigardis tra la fenestro, aŭskultis ĉe la porda seruro 150
-
-FONTAMARA
+Li rigardis tra la fenestro, aŭskultis ĉe la porda seruro
 
 
 por ekscii, ĉi iu kaŝaŭskultas. Post tio li proksimiĝis al ni kaj subpremante sian emocion, flustre diris:
@@ -2872,9 +2367,6 @@ Mi prenis ĵurnalon, kiun don Circostanza metis antaŭ min kaj legis kelkajn per
 * centono de liro
 
 
-FONTAMARA
-
-
 ”La nuna salajro de agrikulturaj laboristoj estas malaltigita per kvardek procentoj por laboristoj de la unua kategorio (viroj de 19 ĝis 60 jaroj).
 
 La reduktita salajro estas plie malaltigita per dudek procentoj por junuloj 17 kaj 18-jaraj (dua kategorio) kaj per kvardek kvin procentoj por virinoj kaj infanoj (tria kategorio).”
@@ -2898,9 +2390,6 @@ Berardo volis preni sian, sed don Circostanza antaŭis lin.
 ”Kion?” li ekkriis, ŝanĝante voĉon kaj mienon. ”ĉu en mia hejmo tia misago? . . . ĉu ĉe mi? . . .”
 
 
-FONTAMARA
-
-
 ”Ne estas misago,” mi diris. ”Ni laboris kontraŭ interkonsentita salajro dum interkonsentita nombro da tagoj.
 
 Ne estos malfacile kalkuli, kiom vi ŝuldas . . .”
@@ -2913,16 +2402,11 @@ Ne estos malfacile kalkuli, kiom vi ŝuldas . . .”
 
 ”Nuntempe ordonas ne Moseo, sed Musolino,” rediris don Circostanza . . . ”Krome, ne mi devas igi respekti la leĝon . . . Se vi ne konvinkiĝos propravole, restos al mi nenio alia ol voki la karabenistojn.”
 
-Don Circostanza ekscitiĝis. Li trairis la studejon laŭ-
-
-longe kaj laŭlarĝe kaj liaj okuloj furioze turniĝis.
+Don Circostanza ekscitiĝis. Li trairis la studejon laŭlonge kaj laŭlarĝe kaj liaj okuloj furioze turniĝis.
 
 ”Ion tian mi neniam atendis de vi,” li diris, ”post la multa bono, kiun mi faris al vi. . . Mian tutan vivon mi dediĉis al la popolo . . . Kion vi deziras? . . . ĉu vi intencas ruinigi min? . . . Kial? Diru malkaŝe: kial vi intencas ruinigi min? . . .”
 
 Poste li kvietiĝis. Li iris al la pupitro, prenis la koverton de Berardo kaj eltiris 85 lirojn. Preninte papereton kaj krajonon li ekkalkulis:
-
-
-FONTAMARA
 
 
 ”Laŭ la leĝo,” li diris, ”ni devas subtrahi entute 40 procentojn . . . Tio estas 34 liroj . . . Restas 51 liroj . . . De tiu sumo ni devas laŭleĝe depreni 25 procentojn pro la laborhavigo . . . Tio estas 13 liroj . . . Restas al Berardo 38 liroj . . . Kara, karega Berardo, mi tre bedaŭras, sed kulpas la faŝistoj.”
@@ -2941,12 +2425,7 @@ Ni ne povis ne akcepti kaj trinkis.
 
 Tiun saman matenon donna Zizzola invitis Baldovinon Sciarappa kaj lian edzinon al la ĉefurbo. Baldovino estis luinta terpeceton de don Carlo Manĝas kaj pagis antaŭ kelkaj tagoj la luprezon. Sed donna Zizzola ne kontentis pri la pago, ĉar la antaŭan jaron la edzino de Baldovino donacis ĉe la pago dudek kvar ovojn kaj laŭ la leĝo de kutimo ŝi postulis, ke ĉiujare ĉe la monpago Baldovino donacu dudek kvar ovojn.
 
-Elirinte la hejmon de la Amiko de la Popolo, ni renkontis Baldovinon Sciarappa, kiu meze sur la strato, ĝis-154
-
-FONTAMARA
-
-
-sange batis sian edzinon. Ili estis ĉe donna Zizzola kaj devis konfesi, ke laŭ la leĝo de kutimo, ili havas la devon ĉiujare donaci ĉe la lupago dudek kvar ovojn . . .
+Elirinte la hejmon de la Amiko de la Popolo, ni renkontis Baldovinon Sciarappa, kiu meze sur la strato, ĝissange batis sian edzinon. Ili estis ĉe donna Zizzola kaj devis konfesi, ke laŭ la leĝo de kutimo, ili havas la devon ĉiujare donaci ĉe la lupago dudek kvar ovojn . . .
 
 La ideo pri la regalo venis pasintan jaron de Baldovino, sed ĝin plenumis lia edzino, kiu ne diris, ke ĝi estas unika, eksterordinara . . . Do, fakte la edzino kulpas.
 
@@ -2961,9 +2440,6 @@ Laŭ antikva kutimo donna Zizzola kaj aliaj malnovaj posedantoj havis lignan rin
 Sed kiom kulpis la kafonoj pri tio, ke la kokinoj deme-tas ovojn ne pli grandajn? . . .
 
 
-FONTAMARA
-
-
 En tiu tempo Teofilo la sakristiano kolektis monon por peti al don Abbacchio celebri meson por la loĝantaro de Fontamara. La rezulto de la kolektado estis deko da liroj. Don Abbacchio respondis, ke la prezo de mesoj plialtiĝis kaj ke li povos veni, se ni sendos ankoraŭ dek lirojn. Kun grandega peno, soldon post soldo, la petita sumo estis ŝparita kaj iun dimanĉan matenon don Abbacchio venis por celebri la meson.
 
 La preĝejo estis nebone konservita, plena de polvo kaj araneaĵoj, kun muroj multloke senkalkaj.
@@ -2976,12 +2452,7 @@ Jesuo havis en la mano pecon da pure tritika pano kaj diris:
 
 ”ĉi tio (la tritika pano) estas mia korpo.”
 
-Tio signifas la korpon de la dia filo; tio signifas veron kaj vivon; tio signifas: kiu havas blankan panon, havas min (Dion). Kiu ne havas blankan panon, kiu havas nur maizan, ne havas dian benon, ne konas Dion, ne konas la veron, ne posedas la vivon. Al tiu, kiu ne havas triti-156
-
-FONTAMARA
-
-
-kan panon, sed nur maizan, estas, kvazaŭ la Savinto ne vivis, kvazaŭ Jesuo ankoraŭ estas venonta.
+Tio signifas la korpon de la dia filo; tio signifas veron kaj vivon; tio signifas: kiu havas blankan panon, havas min (Dion). Kiu ne havas blankan panon, kiu havas nur maizan, ne havas dian benon, ne konas Dion, ne konas la veron, ne posedas la vivon. Al tiu, kiu ne havas tritikan panon, sed nur maizan, estas, kvazaŭ la Savinto ne vivis, kvazaŭ Jesuo ankoraŭ estas venonta.
 
 Kiel eblis ne pensi pri nia greno, kulturita kun multa peno dum la tuta jaro kaj akaparita de la banko fine de majo, kiam ĝi estis ankoraŭ verda? Ni kulturis ĝin kun nia ŝvito, sed neniam ĝin gustumis. i estis ekspedita al la urbo, kie manĝis ĝin eĉ hundoj kaj katoj, sed ni ne povis ĝin akiri. Ni manĝis nur maizan panon.
 
@@ -2999,9 +2470,7 @@ ne estas maizpano, sed pano el tritiko (de greno, kre-skinta sur la kampo kaj ko
 
 Leginte la evangelion, don Abbacchio turnis sin al ni kaj ekpredikis pri sankta Berardo.
 
-Sankta Berardo estis kafono kaj ĉiam estis la sanktulo nia. La plej granda miraklo en lia vivo estis granda 157
-
-FONTAMARA
+Sankta Berardo estis kafono kaj ĉiam estis la sanktulo nia. La plej granda miraklo en lia vivo estis granda
 
 
 grendistribuado al la kafonoj de Pescina en jaro de granda malsato. Tial, iusence, li estis la sanktulo de la pano, de la blanka pano.
@@ -3028,9 +2497,7 @@ Sed sankta Berardo ne kuraĝis esprimi sian peton. Li timis, ke lia malmodera de
 
 Dio ne rompis sian honoran vorton kaj ne ekkoleris, sed ĉirkaŭbrakis la sanktan kafonon kaj ploris kun li.
 
-Poste, kun tondranta voĉo, Li vokis dek du anĝelojn kaj ordonis al ili, ke ĉiutage, de mateno ĝis vespero, ”per om-nia saecula saeculorum”’, ili provizu sanktan Berardon per la plej bona tritika pano trovebla en la paradizo. Tio 158
-
-FONTAMARA
+Poste, kun tondranta voĉo, Li vokis dek du anĝelojn kaj ordonis al ili, ke ĉiutage, de mateno ĝis vespero, ”per om-nia saecula saeculorum”’, ili provizu sanktan Berardon per la plej bona tritika pano trovebla en la paradizo. Tio
 
 
 okazis antaŭ proksimume kvarcent jaroj. De tiu tempo neniu alia kafono eniris la paradizon. ĉi tio estas la vera historio pri sankta Berardo, kiel rakontas ĝin ĉe ni la patroj al la filoj. Sed la pastroj rakontas ĝin diference.
@@ -3041,9 +2508,7 @@ Don Abbacchio finis sian predikon, proponante novenon* por konservi la dian prot
 
 ”Meso estas tre bona, sed nesufiĉa,” li diris. ”Meso daŭras duonan horon kaj post tio finiĝas. Kiu el vi, havante gravan aferon ĉe advokato, konsentas paroli pri ĝi nur unu fojon? . . . La saman persiston ni devas havi antaŭ Dio. Dio, kompreneble, estas bonvola, sed plaĉas al Li, ke ni preĝadas . . . Noveno alportus al Fontamara multan benon, se ne materian, certe spiritan . . . Por plenumi novenon estos necese, ke Fontamara dum naŭ tagoj gastigu pastron je kosto de la loĝantaro . . . La elspezo sumiĝos je kvindek liroj . . .”
 
-* laŭ la katolika religio: dum 9 tagoj ripetata preĝado en preĝejo 159
-
-FONTAMARA
+* laŭ la katolika religio: dum 9 tagoj ripetata preĝado en preĝejo
 
 
 ”Pagi, ĉiam pagi!” interdiris Berardo Viola kun laŭta voĉo kaj eliris la preĝejon. Lin sekvis unu post alia la aliaj viroj.
@@ -3058,9 +2523,7 @@ En Fontamara ne ekzistis du familioj, kiuj vivis en paco. La plej eta okazo sufi
 
 En tia mizera tempo, la motivoj por malpaciĝi sin prezentis ĉiutage dekfoje. Sed por ni la plej grava motivo restis ĉiam la akvo de la rivereto.
 
-* laŭ la katolika religio: dum 3 tagoj ripetata preĝeja ceremonio 160
-
-FONTAMARA
+* laŭ la katolika religio: dum 3 tagoj ripetata preĝeja ceremonio
 
 
 La fosistoj rapide fosis la novan fluejon de la rivereto kaj en la tago de la divido de la akvo, ĉiuj kafonoj, kiujn interesis la irigaco, ĉeestis.
@@ -3072,9 +2535,6 @@ De la ĉefurbo venis cento da karabenistoj, kiuj lokis sin sur la vojo. Patrolo 
 Iom poste alvenis du grupoj da faŝistaj soldatoj kaj fine la altranguloj: la Impresario, la notario, don Circostanza, la Pensemulo, don Cuccavascio, don Ciccone, don Pomponio, don Tarandella, kanoniko don Abbacchio, don Pelino en nigra ĉemizo, aliaj sinjoroj, nekonataj de ni, kaj malantaŭ ili Filippo il Bello kaj Innocenzo La Legge.
 
 Don Circostanza venis rekte al ni, donis al ĉiu la manon kaj konsilis havi fidon pri li pro nia propra intereso. Oni decidis, ke ni nomu komisionon de kleruloj, kiu helpos ĉe la divido de la akvo. En tiu komisiono estis ankaŭ Ponzio Pilato, Giacobbe Losurdo kaj mi. Al la aliaj kafonoj oni permesis kolektiĝi malantaŭ kordono de karabenistoj.
-
-
-FONTAMARA
 
 
 Post tio la notario pasis antaŭ nin kaj legis la interkonsenton inter la loĝantaro de Fontamara kaj la Impresario pri la akvodivido.
@@ -3100,9 +2560,6 @@ Per niaj gestado kaj kriado la kafonoj sur la vojo, ĉir-kaŭitaj de la karabeni
 Precipe Raffaele Scarpone, subtenata de sia kutima grupo da senpripensaj junuloj, hurlis kvazaŭ frenezulo.
 
 
-FONTAMARA
-
-
 ”ĉar la fontamaranoj prenas provokan sintenon kaj la membroj de la komisiono, nomita por helpi ĉe la akvodivido, ne konsentas inter si,” diris la Impresario, ”mi, kiel rajtigita estro de la komunumo, nomas reprezentantoj por Fontamara kavaliron Pelino, estron de la faŝista milico, kaj don Circostanza . . .”
 
 Ses karabenistoj ĵetis sin sur nin kaj kondukis nin al la aliaj fontamaranoj sur la vojo. Don Circostanza kriis post ni:
@@ -3114,9 +2571,6 @@ De malantaŭ la kordono ni povis malklare distingi tion, kio okazas ĉe la river
 Antaŭe la notario, poste arkitekto kaj kvar laboristoj kun fosiloj proksimiĝis al la rivereto. Don Pelino kaj don Circostanza kelkfoje diskutis kun la arkitekto.
 
 Sed la vojdigo kaj la granda amaso da karabenistoj kaj aŭtoritatuloj ĉirkaŭ la kluzoj reguligontaj la akvodivi-don, malhelpis al ni vidi kiel okazas la finreguligo de la famaj tri kvaronoj kaj tri kvaronoj. Sed centon da metroj pli malproksime, kie la malnova rivereta vojo kurbis sin tra la legomkulturejoj de Giacinto Barletta kaj Papasisto, ni povis klare distingi, kiamezure malpliiĝas nia akvo kaj kiom restas.
-
-
-FONTAMARA
 
 
 Ni ĉiuj do okulis tien. Ni klopodis diveni, kion decidis la aŭtoritatuloj kaj niaj reprezentantoj kelkajn paŝojn for de ni.
@@ -3146,12 +2600,7 @@ Intertempe la akvo daŭre malaltiĝis sur la loko, kie ni povis kontroli ĝin, �
 ”Consumatum est!” ni aŭdis diranta kanonikon don Abbacchio.
 
 
-FONTAMARA
-
-
-”ĉiom da akvo! ĉiom da akvo! Ili forprenis ĉiom da akvo!” ni denove ekkriis. Raffaele Scarpone kaj Venerdì Santo per helpo de la aliaj junuloj turnis sntraŭ la kordono de karabenistoj, kiu tenis ilin sur la vojo. La karabenistoj defendis sin per la kolboj de la pafiloj, sova-
-
-ĝe batante kaj kriante: malantaŭen! malantaŭen!
+”ĉiom da akvo! ĉiom da akvo! Ili forprenis ĉiom da akvo!” ni denove ekkriis. Raffaele Scarpone kaj Venerdì Santo per helpo de la aliaj junuloj turnis sntraŭ la kordono de karabenistoj, kiu tenis ilin sur la vojo. La karabenistoj defendis sin per la kolboj de la pafiloj, sovaĝe batante kaj kriante: malantaŭen! malantaŭen!
 
 Kun granda peno don Circostanza sukcesis aŭdigi sian voĉon super la granda tumulto.
 
@@ -3167,12 +2616,7 @@ Poste li turnis sin al la Impresario kaj diris:
 
 ”uste!” interdiris don Abbacchio.
 
-”Ni eble povus fiksi templimon, post kiam la rivereta akvo tute reirus al Fontamara,” proponis don Circo-165
-
-FONTAMARA
-
-
-stanza. ”Estu al la fontamaranoj konsolo: ilia perdo estas laŭleĝa, sed ne eterna! . . . ĉiu faru proponon.”
+”Ni eble povus fiksi templimon, post kiam la rivereta akvo tute reirus al Fontamara,” proponis don Circostanza. ”Estu al la fontamaranoj konsolo: ilia perdo estas laŭleĝa, sed ne eterna! . . . ĉiu faru proponon.”
 
 ”Kvindek jarojn,” proponis la Impresario. Indigna hurlado el niaj buŝoj protestis kontraŭ tiu senhonta propono.
 
@@ -3197,9 +2641,6 @@ Denove don Circostanza paŝis antaŭen, dirante:
 * jarkvinojn
 
 
-FONTAMARA
-
-
 Don Tarandello, don Ciccone, don Pomponio, don Cuccavascio kaj la Pensemulo ĉirkaŭis la Impresarion, klopodante konsentigi lin, fari tiun oferon niafavore.
 
 Post multaj petoj la Impresario cedis.
@@ -3209,10 +2650,7 @@ Oni alportis folion da papero. La notario formulis la proponon, faritan de don C
 (Verdire, neniu el ni komprenis, kiom da tempo reprezentas dek lustrumoj).
 
 
-FONTAMARA
-
-
-ĉAPITRO VIII.
+ĈAPITRO VIII.
 
 En Fontamara ni multe diskutis por sciiĝi, kiom da tempo reprezentas dek lustrumoj.
 
@@ -3222,12 +2660,7 @@ La Heroo de Porta Pia asertis, ke temas pri cent jaroj, sed General Baldissera o
 
 ĉiuokaze, dek lustrumoj signifis por Fontamara konstantan malsaton. ĉe la piedo de la monteto, la kampoj kaj la legomkulturejoj, forlasitaj de la rivereto, de tago al tago aspektis pli senkonsolaj. Kvazaŭ la ĉiela patro interkonsentis kun la Impresario, post finiĝo de majo ne plu falis pluvo. Don Abbacchio utiligis tion per propono, okazigi naŭtagan preĝadon, sed Teofilo, la sakristiano, estis la unua, kiu kontraŭis per vortoj sakrilegiaj el buŝo de preĝeja servisto, kia li.
 
-En la ebenaĵo la tuta rikolto brulsekiĝis. Multaj longaj fendoj aperis en la sekega grundo. Vidataj de malproksime, nur la maizkampoj de Ponzio Pilato kaj Antonio Ranocchia ŝajnis esceptoj, tamen tio estis nur ŝajno: la herbecaj partoj de la plantoj bone elkreskis, sed la mai-zospikoj estis maloftaj kaj malgrandaj kun grajnoj sen-168
-
-FONTAMARA
-
-
-signifaj kaj nemultaj. Ili eble povus servi kiel brutman-
+En la ebenaĵo la tuta rikolto brulsekiĝis. Multaj longaj fendoj aperis en la sekega grundo. Vidataj de malproksime, nur la maizkampoj de Ponzio Pilato kaj Antonio Ranocchia ŝajnis esceptoj, tamen tio estis nur ŝajno: la herbecaj partoj de la plantoj bone elkreskis, sed la mai-zospikoj estis maloftaj kaj malgrandaj kun grajnoj sensignifaj kaj nemultaj. Ili eble povus servi kiel brutman-
 
 ĝaĵo. La fazeolkampoj de Michele Zompa, Baldovino Sciarappa kaj mi statis ankoraŭ pli malfavore: la fazeoloj similis herbaĉon bruldifektitan de la suno: ŝajnis, kvazaŭ fluas sur la kulturejoj de Giacinto Barletta, Venerdì Santo, Antonio Braciola kaj Papasisto riverego da lafo.
 
@@ -3245,22 +2678,14 @@ Ne estas facile kompreni, kion ĉi tio signifis por ni.
 
 Kafono ĉiam konsideras sin senhelpa kaj perdita, kiel vermo sur la terfaco, se li ne sukcesis akiri la protekton de iu ”honestulo,” se li ne sukcesis eniri klientelon*, kies
 
-* kunigo de laboristoj, dependaj de labor donantoj 169
-
-FONTAMARA
+* kunigo de laboristoj, dependaj de labor donantoj
 
 
-gvidanto estas ”honestulo,” ofte advokato, se li ne konas iun, al kiu sin turni kun malfacilaj problemoj, kiaj: ser-
-
-ĉi juston kontraŭ la ruzaĵoj de aliaj, akiri laboron, elmigri, akiri kelktagan libertempon por la filo, kiu estas soldato, peti konsilon pri heredoj, pri geedziĝo kaj similaj aferoj. Tial ĉiu kafono serĉas kontakton kun iu el la intelektula klaso, prefere kun advokato; tiu kontaktas kun kolego, kiu havas influon ĉe la subprefekto kaj ĉi tiu, siavice, havas influon ĉe la prefekto, kiu fine trovas sub-tenon ĉe la registaro en Romo. La reto de ĉi tiu konspiro konsistigas tion, kion la homoj kleraj nomas la ŝtaton.
+gvidanto estas ”honestulo,” ofte advokato, se li ne konas iun, al kiu sin turni kun malfacilaj problemoj, kiaj: serĉi juston kontraŭ la ruzaĵoj de aliaj, akiri laboron, elmigri, akiri kelktagan libertempon por la filo, kiu estas soldato, peti konsilon pri heredoj, pri geedziĝo kaj similaj aferoj. Tial ĉiu kafono serĉas kontakton kun iu el la intelektula klaso, prefere kun advokato; tiu kontaktas kun kolego, kiu havas influon ĉe la subprefekto kaj ĉi tiu, siavice, havas influon ĉe la prefekto, kiu fine trovas sub-tenon ĉe la registaro en Romo. La reto de ĉi tiu konspiro konsistigas tion, kion la homoj kleraj nomas la ŝtaton.
 
 Estas vere, ke antaŭ ĉiuj okazintaĵoj ni ne vidis la fadenon tiel klare, sed nun niaj okuloj malfermiĝis.
 
-Neniam iu fontamarano enirus publikan oficejon por peti, ekzemple, ateston pri naskiĝo, sen akompano de don Circostanza. Oni forpelus lin. General Baldissera ofte rakontis, ke dum la unua tempo de la fervojo Ro-mo–Pescara, la fontamaranoj iris al la stacidomo de la ĉefurbo, ne nur kun sufiĉe da mono por aĉeti vojaĝ-
-
-bileton, sed ankaŭ kun rekomenda letero de don Circostanza. La fervojoj apartenis ja al la ŝtato kaj ĉu la ŝta-to iam havis devojn al la kafonoj? Kiam poste oni pli ofte vojaĝis kaj la vagonaroj pli pleniĝis, malaperis la kutimo prezenti ĉe la stacidomo rekomendan leteron kaj fine okazis, ke la kafonoj vojaĝas al Romo, eĉ ne parolinte pri 170
-
-FONTAMARA
+Neniam iu fontamarano enirus publikan oficejon por peti, ekzemple, ateston pri naskiĝo, sen akompano de don Circostanza. Oni forpelus lin. General Baldissera ofte rakontis, ke dum la unua tempo de la fervojo Ro-mo–Pescara, la fontamaranoj iris al la stacidomo de la ĉefurbo, ne nur kun sufiĉe da mono por aĉeti vojaĝbileton, sed ankaŭ kun rekomenda letero de don Circostanza. La fervojoj apartenis ja al la ŝtato kaj ĉu la ŝta-to iam havis devojn al la kafonoj? Kiam poste oni pli ofte vojaĝis kaj la vagonaroj pli pleniĝis, malaperis la kutimo prezenti ĉe la stacidomo rekomendan leteron kaj fine okazis, ke la kafonoj vojaĝas al Romo, eĉ ne parolinte pri
 
 
 tio kun don Circostanza. Sed cetere, sen la helpo de iu
@@ -3273,9 +2698,7 @@ Kiam mi estis juna, en nia ĉefurbo loĝis du advokatoj, kiuj estis samtempe not
 
 Opinidiferencoj, interkonsente likvidataj en antaŭa tempo, nuntempe per helpo de advokatoj, daŭras jarojn, kostas manplenojn da mono kaj postlasas malamon kaj koleron. Pro advokatoj la sinteno inter parencoj fariĝas ĉiam pli malfida. Advokatoj sin okupas pri ĉiuj aferoj.
 
-Iliaj gestoj, tono de la voĉo, manieroj sin vesti, saluti, trinki, manĝi estas studitaj por imponi la fantazion de la 171
-
-FONTAMARA
+Iliaj gestoj, tono de la voĉo, manieroj sin vesti, saluti, trinki, manĝi estas studitaj por imponi la fantazion de la
 
 
 kafonoj. La plej granda ambicio de kafono estas havi advokaton kiel baptopatron; tial oni vidas en la komunia tago ĉirkaŭ ĉiu advokato de la ĉefurbo, en la preĝejo dekon da feste vestitaj infanoj, akompanataj de siaj pa-trinoj. Advokatoj estas nemankipovaj gastoj ĉe grandaj festoj familiaj kaj precipe ĉe geedziĝaj bankedoj, kie ili sidas dekstre de la fianĉino.
@@ -3284,12 +2707,7 @@ kafonoj. La plej granda ambicio de kafono estas havi advokaton kiel baptopatron;
 
 Per tiuj rimedoj klientelo ofte sukcesis alproprigi tutan vilaĝon. Tiel Fontamara ĉiam sekvis don Circostanza, Collarmele apartenis al don Cuccavascio, Ortona al don Ciccone, Bisegna al don Tarandella, San Benedetto al don Pomponio . . . Povis ŝanĝiĝi juĝistoj, karabenistoj, oficistoj; la novuloj devis sin submeti al la reganta klientelo aŭ foriri.
 
-Malpaco inter ”honestuloj” fariĝis malpaco inter vila-
-
-ĝoj. Sufiĉas rememorigi la militon inter Pescina kaj San Benedetto en 1913. i estis malpaco inter la ”sinjoroj,”
-
-
-FONTAMARA
+Malpaco inter ”honestuloj” fariĝis malpaco inter vilaĝoj. Sufiĉas rememorigi la militon inter Pescina kaj San Benedetto en 1913. i estis malpaco inter la ”sinjoroj,”
 
 
 pro kiu militis kafonoj per ĉiaj armiloj: venenigo de akvo, fortranĉo de vitoj, forbruligo de grengarboj, pafado; milito, kiun la roma registaro nur kun granda peno kapablis subpremi, sendante regimenton infanterian kaj kelkcenton da kavalerianoj. La milito finiĝis, sed la malamo inter la kafonoj restis.
@@ -3298,9 +2716,7 @@ En la klientelo ne partoprenis nur tiuj kafonoj, kiuj ne posedis ion por protekt
 
 Necesas diri, ke la t.n. partioj, fonditaj lastatempe en niaj regionoj laŭ ekzemplo de tiuj en aliaj partoj de la lando, estas nenio alia ol la malnovaj klienteloj sub aliaj nomoj. Tiel don Circostanza lokis sin sur la plej altan postenon de la popola partio por pligrandigi sian poten-con super la plej malriĉaj kafonoj. Li prezentis sin defen-danto de Marsica kontraŭ la enpenetrado de fremdaj ekspluatantoj, favoranto de la aŭtonomio kaj la eksproprigo de Fucino, sed ĉe la vera ekspluatanto li ludis tute inversan rolon.
 
-Don Carlo Manĝas kaj la aliaj grandbienposedantoj sendube multe perdis per la banko. Sur la merkato ne plu ili, sed la Impresario fiksis la prezojn; ĉe la aljuĝo de publikaj laboroj la Impresario sisteme elpuŝis ilin; en 173
-
-FONTAMARA
+Don Carlo Manĝas kaj la aliaj grandbienposedantoj sendube multe perdis per la banko. Sur la merkato ne plu ili, sed la Impresario fiksis la prezojn; ĉe la aljuĝo de publikaj laboroj la Impresario sisteme elpuŝis ilin; en
 
 
 komunumaj aferoj ili havis voĉon nur tiam, kiam ĝi ne interesis la Impresarion. La posedantoj klopodis rekom-penci la perdojn, kaŭzitajn de la banko, koste de la kafonoj, sed samtempe ili kaŝe kontraŭis la Impresarion, koruptante kontraŭ li la kafonojn kaj la malnovajn ko-munumajn oficistojn. La agmaniero de don Circostanza kaj liaj kolegoj estis alia. Pli lertaj ol la Impresario, sci-antaj pli bone la pensojn de la kafonoj, ekspertoj pri la arto trompi malriĉulojn, ili klopodis savi siajn antaŭajn influojn per perado inter la kafonoj kaj la novaj aŭtoritatuloj. Fakte don Circostanza savis la Impresarion el ĉiuj malfacilaj situacioj.
@@ -3311,16 +2727,12 @@ Ili ĉiuj estis kontraŭ ni. La malnova stato kun siaj multaj internaj konspiroj
 
 Do, al kiu ni turnu nin?
 
-”Ni atingis la tempon, kiam la kafonoj ne plu havas panon,” Baldissera predikis, ”la ŝuistoj ne havas ŝuojn, la tajloroj montras la postaĵon tra la pantalono kaj la 174
-
-FONTAMARA
+”Ni atingis la tempon, kiam la kafonoj ne plu havas panon,” Baldissera predikis, ”la ŝuistoj ne havas ŝuojn, la tajloroj montras la postaĵon tra la pantalono kaj la
 
 
 cementistoj dormas sub la ĉielo. Ni atingis la tempon de la banko. Ni atingis la finon. Venis Antikristo . . .”
 
-Neniu povis submeti sin al la perdo de la akvo, sed neniu konis vojon por reakiri ĝin. Ponzio Pilato kaj Michele Zompa deziris, ke ni denuncu la Impresarion, sed mi kaj la aliaj interesatoj kontraŭis tiun proponon. Ni tro bone sciis, kiel finiĝos tiaj procesoj; ili daŭras centon da jaroj, pasas de unu juĝejo en alian, de apelacio al apelacio, formanĝas la ŝparaĵojn de tutaj generacioj kaj fini-
-
-ĝos tiaj, kiaj ili komenciĝis. ĉiu vilaĝo de Marsica konas tiajn procesojn inter malriĉuloj kaj riĉuloj, inter komunumo kaj komunumo, kiuj finiĝas nur por denove komenciĝi. Sed, se ni intencus procesi, al kiu ni konfidu niajn interesojn? ĉu al don Circostanza? Li certe eltro-vus novan artifikon, kia la du trikvaronoj kaj la dek lustrumoj. ĉu don Cuccavascio? ĉu don Tarandella? Estis pli bone ne paroli pri tio.
+Neniu povis submeti sin al la perdo de la akvo, sed neniu konis vojon por reakiri ĝin. Ponzio Pilato kaj Michele Zompa deziris, ke ni denuncu la Impresarion, sed mi kaj la aliaj interesatoj kontraŭis tiun proponon. Ni tro bone sciis, kiel finiĝos tiaj procesoj; ili daŭras centon da jaroj, pasas de unu juĝejo en alian, de apelacio al apelacio, formanĝas la ŝparaĵojn de tutaj generacioj kaj finiĝos tiaj, kiaj ili komenciĝis. ĉiu vilaĝo de Marsica konas tiajn procesojn inter malriĉuloj kaj riĉuloj, inter komunumo kaj komunumo, kiuj finiĝas nur por denove komenciĝi. Sed, se ni intencus procesi, al kiu ni konfidu niajn interesojn? ĉu al don Circostanza? Li certe eltro-vus novan artifikon, kia la du trikvaronoj kaj la dek lustrumoj. ĉu don Cuccavascio? ĉu don Tarandella? Estis pli bone ne paroli pri tio.
 
 Sed neniu kontentiĝis pri la perdo de la akvo, pri la perdo de la rikolto. Neniu povis prezenti al si vintron sen pano kaj supo.
 
@@ -3329,9 +2741,6 @@ Sed neniu kontentiĝis pri la perdo de la akvo, pri la perdo de la rikolto. Neni
 ”Se la regnaj leĝoj ne plu validas kaj se ilin unuaj mal-respektas tiuj, kiuj devus respekti ilin, revenos la popolaj leĝoj,” iun vesperon diris la ŝuisto.
 
 ”Kiuj estas tiuj leĝoj popolaj?”
-
-
-FONTAMARA
 
 
 ”Helpu vin mem, por ke Dio vin helpu!” respondis Baldissera, kiu transprenis la amaran doktrinon de Berardo Viola.
@@ -3349,9 +2758,6 @@ La trompo pri la dek lustrumoj tute ne tuŝis lin, sam-kiel niaj proponoj reakir
 ”Bedaŭrinde por vi,” li diris, ”sed mi ne posedas teron irigacotan. Mi ne plu estas infano kaj devas atenti miajn proprajn aferojn.”
 
 Berardo suferis monomanion: elmigri, foriri, labori kvazaŭ besto, labori duoble pli multe ol aliaj kaj reveni post ses monatoj aŭ post unu jaro al Fontamara, aĉeti pecon da tero kaj edziĝi . . . Pri io alia oni ne povis paroli kun li. Li ne plu estis la sama homo.
-
-
-FONTAMARA
 
 
 ”Foriri, labori dek, dek du, dek kvar horojn ĉiutage
@@ -3374,9 +2780,7 @@ Berardo akceptis. De Elvira li prunte akiris ankoraŭ kvindek lirojn.
 
 La vesperon antaŭ la forvojaĝo mi serĉis Berardon por doni al li kelkajn konsilojn koncerne mian filon kaj, kiel kutime, mi trovis lin en la tinkturejo, sidanta ĉe la pie-doparto de la pajlomatraco, sur kiu kuŝis Elvira.
 
-”Mi deziras, ke mia filo faru pezan laboron ne pli longe ol dek horojn ĉiutage,” mi ekparolis al Berardo. ”Mi 177
-
-FONTAMARA
+”Mi deziras, ke mia filo faru pezan laboron ne pli longe ol dek horojn ĉiutage,” mi ekparolis al Berardo. ”Mi
 
 
 deziras, ke li ne loĝu en gastejoj, kien venas malĉastulinoj . . .” ĉi tie mi devis interrompi min pro la alveno de Raffaele Scarpone. Lin akompanis aliaj personoj, kiuj atendis antaŭ la domo.
@@ -3407,11 +2811,7 @@ Dum la atendado neniu parolis.
 
 Baldissera venis post multaj petoj kaj rakontis al ni la jenon: .
 
-”Hodiaŭ mi iris al la ĉefurbo por aĉeti ledon. Sur la placo mi renkontis Donnan Zizzola, kiu vizitis la pre-
-
-ĝejon. Kiel vi scias, en mia junaĝo mi servis en la gepa-178
-
-FONTAMARA
+”Hodiaŭ mi iris al la ĉefurbo por aĉeti ledon. Sur la placo mi renkontis Donnan Zizzola, kiu vizitis la preĝejon. Kiel vi scias, en mia junaĝo mi servis en la gepa-178
 
 
 tra domo de donna Zizzola kaj tial inter ni estis ĉiam fido kaj renkontante unu la alian ni iom ekparolis.
@@ -3426,9 +2826,7 @@ Poste ŝi flustris al mi en la orelon: ”Dum du monatoj mi bruligis du kandeloj
 
 ĝi ne venis.” ĉar mi ankoraŭ silentis, donna Zizzola parolis malkaŝe kun mi: ”ĉi tio estas la momento por agadi
 
-. . . La karabenistoj foriris al Sulmona . . . La malkontento kontraŭ la Impresario estas ĝenerala . . . ĉiuj pretas komenci post signalo . . . Nur la fontamaranoj ĝin 179
-
-FONTAMARA
+. . . La karabenistoj foriris al Sulmona . . . La malkontento kontraŭ la Impresario estas ĝenerala . . . ĉiuj pretas komenci post signalo . . . Nur la fontamaranoj ĝin
 
 
 povas doni. Renkontante vin ĉe la preĝejo, mi tuj komprenis, ke sankta Antonio sendis vin . . .” Mi klarigis al ŝi, ke mi venis al la ĉefurbo por aĉeti ledon, sed donna Zizzola pensis alie. ”Estas sankta Antonio mem, kiu sendis vin,” ŝi diris . . .”Hodiaŭ matene, kiam laŭkutime mi preĝis al sankta Antonio, la sanktulo donis al mi ĉi tiun inspiron: Mi povas fari por vi nenion, nur la fontamaranoj kapablas doni al tiu rabisto la lecionon, kiun li meritas . . . Kaj elirinte la preĝejon, mi renkontis vin!”
@@ -3442,9 +2840,6 @@ La edzino de don Carlo Manĝas komprenigis al la maljuna ŝuisto, ke, se la font
 ”Antaŭ ol veni ĉi tien kuniĝis Luigi della Croce, Antonio Spaventa, Venerdì Santo, Gasparone, Antonio Zappa kaj mi . . . Ankaŭ en la nomo de tiuj, kiuj atendas ekstere, mi diras al vi, ke necesas sekvi la ekzemplon de Sulmona kaj ni ne rifuzu la helpon de iu ajn,” respondis Raffaele. Li pretigis jam tutan planon por nokta atako al la ĉefurbo, komencanta per detruo de la diversaj konstruaĵoj apartenantaj al la Impresario.
 
 ”Sed pro kio ĉion ĉi?” demandis Berardo.
-
-
-FONTAMARA
 
 
 ”ĉu vi vivas sur la luno?” seke redemandis Raffaele.
@@ -3463,9 +2858,7 @@ Kun la sama tono li alparolis Scarponen:
 
 Fine li ŝanĝis sian tonon kaj malkaŝe diris, kion li havas sur la lango:
 
-”ĉio ne tuŝas min. Nia situacio vere estas kruela. Necesas, ke ĉiu faru siajn proprajn aferojn. En pasinta tempo mi okupis min per aferoj, kiuj ne estis miaj. La rezulto estas, ke en mia tridekjara aĝo mi posedas nenion, krom mia pajlomatraco, sur kiu mi povas dormi . . . Hodiaŭ 181
-
-FONTAMARA
+”ĉio ne tuŝas min. Nia situacio vere estas kruela. Necesas, ke ĉiu faru siajn proprajn aferojn. En pasinta tempo mi okupis min per aferoj, kiuj ne estis miaj. La rezulto estas, ke en mia tridekjara aĝo mi posedas nenion, krom mia pajlomatraco, sur kiu mi povas dormi . . . Hodiaŭ
 
 
 mi ne plu estas knabo kaj devas pensi pri miaj propraj aferoj. Tial lasu min en paco!”
@@ -3477,9 +2870,6 @@ mi ne plu estas knabo kaj devas pensi pri miaj propraj aferoj. Tial lasu min en 
 Berardo aŭskultis, skuante la kapon. ĉiujn argumentojn li ja konis. Centfoje li debatis per ili en diskutoj kontraŭ General Baldissera. Sed li ne plu estis etulo, ne plu estis sola. Li ne povis senatente riski la vivon kaj perso-nan liberon, ĉar li ne plu estis sola. Li estis devigita pensi alimaniere. De la nokto, pasigita ĉe Elvira, liaj pensoj aliiĝis. Kiam la tuta vilaĝo pensis kiel li, lia opinio estis ŝanĝiĝinta.
 
 ”Aŭskultu,” li diris, ”mi klarigos ankoraŭ pli bone. ”Mi havas neniun deziron iri en malliberejon pro viaj akvo kaj tero. Mi devas okupi min pri miaj propraj aferoj.”
-
-
-FONTAMARA
 
 
 Scarpone kaj Baldissera ekstaris kaj foriris.
@@ -3501,9 +2891,6 @@ Aŭdante, ke ankaŭ Elvira malpravigas lin, li ne povis kaŝi esprimon de kolero
 Proksimume noktomeze mi revenis en mian hejmon.
 
 ”Okazu, kio okazos,” mi diris al mia filo, ”sed klopodu dormi, ĉar morgaŭ antaŭ aŭroro vi devos forvojaĝi.”
-
-
-FONTAMARA
 
 
 Ni ĉiuj klopodis dormi aŭ ŝajnigis tion, sed ni ne sukcesis. ĉiuj tri estis ankoraŭ vekaj, kiam, proksimume je la dua, subite eksonis la sonorilo de la preĝejo. La unua kaj dua batoj sonis sufiĉe forte kaj klare, la aliaj kiel e˛o de la antaŭaj.
@@ -3535,18 +2922,12 @@ Post iom da tempo la sonorilo ankoraŭfoje eksonetis, kion ni aŭdis nur, ĉar n
 ”Se ne estas mustelo, ĝi estas sorĉistino,” mi diris, ne sciante alian respondon.
 
 
-FONTAMARA
-
-
 En tiu momento malmultaj personoj en Fontamara povis dormi. Kaj ĉiuj, kiuj vekiĝis pro la nekutima so-norado, faris verŝajne la samajn supozojn kaj interparolojn kiel ni. Sed ĉiu pensis pri si mem kaj neniu ekstaris por rigardi, kio okazas en la turo.
 
 Tion, kio sekvos, rakontos mia filo.
 
 
-FONTAMARA
-
-
-ĉAPITRO IX.
+ĈAPITRO IX.
 
 Je la kvara matene Berardo kaj mi forlasis Fontamaran kaj ekvojaĝis al la ĉefurbo por kapti la vagonaron al Romo.
 
@@ -3565,9 +2946,6 @@ Veninte ĉe la eniro de la ĉefurbo, ni aŭdis subite la fajfon de nia vagonaro 
 Ni estis duonan horon en la stacidoma atendejo, kiam Raffaele Scarpone aperis en la pordo.
 
 
-FONTAMARA
-
-
 Berardo ŝajnigis ne rimarki lian alvenon, turnis la dorson al li kaj eklegis afiŝon gluitan sur la muron. Sed Scarpone ekiris rekte al Berardo.
 
 ”Teofilo pendigis sin!” li diris.
@@ -3582,9 +2960,7 @@ Sed Berardo ne turnis la okulojn for de la afiŝo.
 
 ”Pacon havu lia animo!” stoike ripetis Berardo.
 
-”Ni volas meti sur katafalkon la kadavron de Teofilo meze en la preĝejo,” diris Scarpone. ”Se la pastro ne venos, ni faros ĉion sen li. Se li sendos karabenistojn, ni 187
-
-FONTAMARA
+”Ni volas meti sur katafalkon la kadavron de Teofilo meze en la preĝejo,” diris Scarpone. ”Se la pastro ne venos, ni faros ĉion sen li. Se li sendos karabenistojn, ni
 
 
 kontraŭstaros. Ni metu la kadavron de Teofilo en la mezon de la preĝejo kaj tie ĝi restu dudek kvar horojn, por ke Kristo, la Madono, sanktaj Rocco, Antonio, Giuseppe, Berardo kaj ĉiuj aliaj sanktuloj havu tempon por vidi lin . . . Ili vidu en kia stato ni troviĝas . . .”
@@ -3611,9 +2987,7 @@ Rigardante lin, mi komprenis, ke Berardo kuraĝus fari ĉion. Neniu skrupulo mal
 
 En Romo ni ekloĝis en la gastejo ”La bona rabisto,”
 
-kiun rekomendis al ni la Heroo de Porta Pia. Super la pordo troviĝis tabulo, reprezentanta la tri krucojn de 188
-
-FONTAMARA
+kiun rekomendis al ni la Heroo de Porta Pia. Super la pordo troviĝis tabulo, reprezentanta la tri krucojn de
 
 
 Kalvario. Per tio oni povis supozi, ke la nomo de la gastejo rilatas al la fama rabisto, kiun oni krucumis dekstre de Kristo kaj kiu antaŭ sia morto rekonis lian diecon kaj rekompence ricevis la grandan promeson: ”Hodiaŭ vi estos kun mi en la Paradizo.” Sed laŭvere la gastejo ricevis sian nomon de la posedanto, kiu pro ŝtelado kelkfoje estis malliberigita kune kun la Heroo de Porta Pia.
@@ -3625,9 +2999,6 @@ La sekvintan tagon, frumatene, ni ekiris al Via Venti Settembre kaj anoncis nin 
 La pordisto sendis nin al la tria etaĝo. Ni supreniris kaj vidis koridoron, en kiu multaj homoj atendis. Ni stariĝis malantaŭ ili. Proksimume je tagmezo estis nia vico kaj nur tiam ni rimarkis, ke anstataŭ en la tria, ni atendis en la kvara etaĝo.
 
 La tagon poste ni iris al la tria etaĝo. Ni atendis tri horojn, sidante sur benko nur duope. Multaj homoj preterpasis, sed neniu okupis sin pri ni. Fine oni sendis nin al la kvina etaĝo. Tie ni atendis du horojn, ĝis kiam oni donis al ni adreson en Corso Vittorio.
-
-
-FONTAMARA
 
 
 Tiel pasis la tria tago.
@@ -3661,9 +3032,6 @@ Mi devas diri, ke Berardo ne perdis sian paciencon pro tiu tempoperdo. Kontraŭe
 Posttagmeze, kiam la oficejoj estis fermitaj, Berardo trairis kun mi la urbon ĉiudirekte.
 
 
-FONTAMARA
-
-
 ”Rigardu, rigardu” li diris al mi, kiam ni unuafoje preterpasis konstruaĵon, surhavantan tabuleton kun la surskribo ”Banko.” Dum kelkaj minutoj li rigardis sorĉite la surskribon.
 
 ”ĉi tie la Impresario akiras sian monon,” li flustris al mi en la orelon.
@@ -3681,9 +3049,6 @@ Iun vesperon ni vidis antaŭ nia gastejo grandan homamason. Armea veturilo renve
 Tiu okazintaĵo redonis al Berardo iom de lia antaŭa babilemo.
 
 
-FONTAMARA
-
-
 ”Donna Zizzola bruligas du kandelojn antaŭ la statuo de sankta Antonio por rompi la forton de la bankoj. ĉu ne ridige?” li demandis al mi tiun vesperon.
 
 Sed mi ne havis deziron diskuti. Mi komprenis, ke Berardo intencas rekomenci la diskuton, kiun li havis kun Scarpone, la vesperon antaŭ nia foriro.
@@ -3698,12 +3063,7 @@ Mi lasis lin paroli, ĉar li ne povis ne paroli.
 
 ”Sed ne temas pri kuraĝo, mi certigas al vi,” respondis Berardo. ”Nek pri forto. ĉu la Impresario uzis perforton kontraŭ ni? Tute ne! La Impresario ne uzis perforton kontraŭ ni, nek kuraĝon, nek forton, sed ruzon. Per
 
-ĝi li akiris la rivereton. Li eĉ ne prenis ĝin, sed la fonta-192
-
-FONTAMARA
-
-
-maranoj donis ĝin al li. . . Antaŭe ili subskribis petskribon al la registaro, poste akceptis la artifikon pri tiuj du trikvaronoj kaj la artifikon pri la dek lustrumoj . . . Kion devis fari la Impresario? Li agis korekte laŭleĝe kaj en siaj interesoj . . .”
+ĝi li akiris la rivereton. Li eĉ ne prenis ĝin, sed la fontamaranoj donis ĝin al li. . . Antaŭe ili subskribis petskribon al la registaro, poste akceptis la artifikon pri tiuj du trikvaronoj kaj la artifikon pri la dek lustrumoj . . . Kion devis fari la Impresario? Li agis korekte laŭleĝe kaj en siaj interesoj . . .”
 
 Koncerne tiun punkton liaj ideoj tre ŝanĝiĝis.
 
@@ -3732,9 +3092,6 @@ Post kiam oni rekvietiĝis kaj la oficisto sekigis la okulojn, kiuj baniĝis en 
 ”La oficejo de Aquila estas en Aquila . . .”
 
 
-FONTAMARA
-
-
 Sed ni tute ne deziris rondvojaĝi tra tuta Italio.
 
 ”Ni vidis jam sufiĉe da oficejoj,” diris Berardo energie.
@@ -3755,12 +3112,7 @@ Sub la lito ni vidis noktovazon plenan de urino.
 
 ”Po dek liroj por persono,” li plu diris. Ni donis ankoraŭ dek lirojn.
 
-La kavaliro eliris la liton kaj malaperis el la ĉambro, dirante nenion. Ni aŭdis lin tusanta en la koridoro. Poste ni aŭdis la tusadon malrapide malsupreniranta la ŝtupa-194
-
-FONTAMARA
-
-
-ron. Kelkajn minutojn ĝi restis en la teretaĝo, kie spionis la bona rabisto, eliris sur la straton kaj mutiĝis en la kontraŭa trinkejo.
+La kavaliro eliris la liton kaj malaperis el la ĉambro, dirante nenion. Ni aŭdis lin tusanta en la koridoro. Poste ni aŭdis la tusadon malrapide malsupreniranta la ŝtuparon. Kelkajn minutojn ĝi restis en la teretaĝo, kie spionis la bona rabisto, eliris sur la straton kaj mutiĝis en la kontraŭa trinkejo.
 
 Ni devis atendi preskaŭ plenan horon, antaŭ ol la tusado reaŭdiĝis, transversis la straton, malrapide kaj pene supreniris la ŝtuparon. ĉe la pordo la kavaliro iom hezitis, envenis, ĵetante sur la liton pecon da pano, duonan kolbason kaj duonplenan botelon da ruĝa vino.
 
@@ -3781,9 +3133,6 @@ Post nova medito li demandis al ni:
 ”Kaj kelkajn kokinetojn? Kaj iom da fromaĝo? iom da mielo kontraŭ la tusado?” aldonis la kavaliro.
 
 ”Certe,” rapidis respondi Berardo, kiu dum sia tuta vivo ankoraŭ neniam vidis mielon.
-
-
-FONTAMARA
 
 
 ”Via afero iom klariĝas,” diris kavaliro Paaenza al ni kun larĝa ĉevala rideto, montrante tridekon da flavaj dentoj.
@@ -3815,9 +3164,6 @@ Li do aldonis al la telegramo la peton ankoraŭ sendi dek kilogramojn da persiko
 ”Pagu kaj sekvu min!”
 
 
-FONTAMARA
-
-
 Ni pagis kaj sekvis lin. La dua celo estis la labordona oficejo de la faŝista sindikato, el kiu oni resendis nin la unuan tagon. Don Pazienza lasis nin en la koridoro, sed tra giĉeto ni povis vidi lnfidence parolanta kaj vigle diskutanta kun la oficeja estro. Li vidigis al li la kopion de la telegramo, kiun ni ekspedis al Fontamara kaj fingre montris la plej signifoplenajn vortojn. La estro supoze-ble diris al nia advokato kelkajn fortajn skrupulojn, ĉar ni vidis, ke li paliĝas kaj kuras al ni por demandi:
 
 ”ĉu oni devas raspi la fromaĝon aŭ tuj manĝi?”
@@ -3835,9 +3181,6 @@ La sepan tagon de nia restado en Romo ni posedis ne pli ol kvar lirojn. Ni aĉet
 ”La alvoko de la labordona oficejo certe ne restos longe for,” ripetadis Berardo al mi, por kuraĝigi sin mem.
 
 
-FONTAMARA
-
-
 Por tuj respondi al la alvoko kaj, ĉar ne manĝinte, ni ne havis deziron promeni, ni ne plu eliris la gastejon. ĉe ĉiu brueto, kiu preterpasis, ni kuris al la pordo. ĉiun fojon, kiam alvenis la poŝtisto, ni rapidis malsupren al la teretaĝo, kie embuskis la bona rabisto.
 
 En tiu sama timo vivis kavaliro Pazienza. La diferenco tamen estis, ke ni atendis la alvokon al laboro kaj li la telegrafan monsendon kun la nutraĵoj de la patro de Berardo. ĉiuj tri pasigis la tutan tagon etenditaj sur la lito kaj triope ni staris ĉe la ŝtuparo post ĉia brueto. Dum la supreniradoj la reciprokaj riproĉoj fariĝis de tago al tago pli akraj.
@@ -3849,9 +3192,6 @@ En tiu sama timo vivis kavaliro Pazienza. La diferenco tamen estis, ke ni atendi
 ”Ni devas pacienci koncerne la postan pakaĵon,” aldonis la kavaliro. ”Ni scias, ke pakaĵoj vojaĝas malrapide, precipe, kiam ili entenas rompeblajn vazetojn, sed telegrafa monsendo povas esti ĉi tie post unu tago . . . Via patro estas egoista porko.”
 
 ”Kiel naskiĝatesto rilatas al laboro?” demandis Berardo. ”Kiam iu petas pri laboro, tiam estas ja klare, ke li jam naskiĝis . . . Neniu petos laboron, ne naskite!”
-
-
-FONTAMARA
 
 
 Fastinte kaj senutile atendinte dum tri tagoj, Berardo kaj mi ĉesis kuri malsupren ĉe alveno de la leterportis-to. Ni restis kuŝantaj sur la lito de la mateno ĝis la vespero kaj leviĝis de tempo al tempo nur por trinki akvon ĉe la krano en la necesejo.
@@ -3871,9 +3211,6 @@ Sed Berardo ne respondis.
 Posttagmeze de la kvara fastotago ni havis kaŭzon por
 
 ĝoji. Estis proksimume je la kvina, kiam ni aŭdis sur la ŝtuparo konfuzajn kriojn de la kavaliro kaj la bona rabisto.
-
-
-FONTAMARA
 
 
 ”Hura! Hura!” kriis la kavaliro.
@@ -3899,9 +3236,6 @@ Dumla kavaliro enverŝis trinkaĵon, Berardo prenis la telegramon, malfermis ĝi
 Berardo ne donis respondon. Lia mieno estis rigida.
 
 Sed la blanko de liaj okuloj subite fariĝis malbrila kaj sangostria. Mi jam sciis el Fontamara, ke tio estas la sola ekstera signo, per kiu manifestiĝas ĉe li granda emocio.
-
-
-FONTAMARA
 
 
 ”Kio okazis?” mi demandis ankoraŭfoje kun voĉo kiel eble plej amika.
@@ -3931,9 +3265,6 @@ Estis jam mallume, kiam ni devis forlasi la gastejon
 ”La bona rabisto.”
 
 
-FONTAMARA
-
-
 ”Kion ni faru?” mi demandis al Berardo. Sed li ne respondis.
 
 Mi sentis min malforta sur miaj piedoj kaj pro la malsato mi havis teruran kapdoloron. De tempo al tempo mi kredis min falanta surteren. La homoj sur la strato nin rigardis. La sinjoroj flankeniris, kvazaŭ ili timus nin.
@@ -3954,9 +3285,7 @@ Berardo malfide okulis al li kaj ne respondis.
 
 La junulo ekridis. Li aspektis inter laboristo kaj studento. Li estis alta, maldika, bone sed ne elegante vestita kaj liaj voĉo kaj rigardo fide impresis.
 
-”ĉu vi memoras la unuan fojon, kiam vi estis en Avezzano?” la junulo demandis al Berardo. ”ĉu vi memoras la trinkejon, en kiun la ruĝhara spiono kun la cikatro sur 202
-
-FONTAMARA
+”ĉu vi memoras la unuan fojon, kiam vi estis en Avezzano?” la junulo demandis al Berardo. ”ĉu vi memoras la trinkejon, en kiun la ruĝhara spiono kun la cikatro sur
 
 
 la mentono invitis vin kaj la aliajn fontamaranojn? . . .
@@ -3967,23 +3296,17 @@ Berardo esplore rigardis lin kaj rekonis la junulon.
 
 ”Donu manĝaĵon al ni,” mi petis, vidante, ke Berardo lasis preteriri la okazon.
 
-La juna avezzanano kondukis nin al proksima man-
-
-ĝejo kaj mendis ovojn kaj ŝn.
+La juna avezzanano kondukis nin al proksima manĝejo kaj mendis ovojn kaj ŝn.
 
 ”ĉu tio estas por ni?” demandis malfide Berardo ”kaj kiu pagos? Ni posedas eĉ ne unu soldon!”
 
 Por kvietigi Berardo, la junulo devis anticipe pagi ĉe la kaso la prezon de la manĝaĵoj. Berardo rigardis min, kvazaŭ por diri: li sendube estas frenezulo!
 
-”Kion signifas tiu ekscitiĝo de la karabenistoj kaj soldatoj?” demandis Berardo al la junulo, post kiam li sufi-
-
-ĉe manĝis.
+”Kion signifas tiu ekscitiĝo de la karabenistoj kaj soldatoj?” demandis Berardo al la junulo, post kiam li sufiĉe manĝis.
 
 ”Oni serĉas la Faman Nekonaton,” li respondis. Sed tiu respondo estis tre neklara.
 
-”Dum kelka tempo iu nekonato, la Fama Nekonato, endanĝerigas la publikan ordon,” aldonis la junulo. ”En ĉiuj procesoj antaŭ la speciala tribunalo oni parolas pri la Fama Nekonato, kiu presas kaj distribuas sekretajn folietojn . . . Tiuj, kiujn oni surprizis kun neleĝaj presaĵoj, ĉiam konfesas, ke ili ricevis la paperojn de la Fama Nekonato . . . Komence li prefere laboris ĉe kelkaj fabrikoj; poste li ofte vizitis la ĉirkaŭaĵojn de la urbo, la 203
-
-FONTAMARA
+”Dum kelka tempo iu nekonato, la Fama Nekonato, endanĝerigas la publikan ordon,” aldonis la junulo. ”En ĉiuj procesoj antaŭ la speciala tribunalo oni parolas pri la Fama Nekonato, kiu presas kaj distribuas sekretajn folietojn . . . Tiuj, kiujn oni surprizis kun neleĝaj presaĵoj, ĉiam konfesas, ke ili ricevis la paperojn de la Fama Nekonato . . . Komence li prefere laboris ĉe kelkaj fabrikoj; poste li ofte vizitis la ĉirkaŭaĵojn de la urbo, la
 
 
 kazernojn de soldatoj; fine li aperis en la universitatoj.
@@ -4008,9 +3331,7 @@ En tiu momento, policisto, sekvata de grupo da militistoj, eniris la manĝejon k
 
 ”Pasportojn kaj identecajn kartojn!” li ordonis.
 
-Dum la policisto esploris la permesbiletojn, kiujn Berardo kaj mi ricevis en la oficejo de la faŝista sindikato kaj la identecan karton, pasporton kaj multajn doku-mentojn de la avezzanano, kiu estis ĉe ni, la militistoj 204
-
-FONTAMARA
+Dum la policisto esploris la permesbiletojn, kiujn Berardo kaj mi ricevis en la oficejo de la faŝista sindikato kaj la identecan karton, pasporton kaj multajn doku-mentojn de la avezzanano, kiu estis ĉe ni, la militistoj
 
 
 traserĉis la manĝejon. Niaj dokumentoj estis bonordaj kaj la policisto intencis jam foriri, kiam la militistoj venis al li kun paketo en tolpeco, kiun ili trovis sub la vest-hokaro. La enhavo de la paketo sufiĉis por furiozigi la policiston kaj soldatojn, kiuj ĵetis sin sur nin, kriante:
@@ -4027,9 +3348,7 @@ En la policejon, kien oni kondukis nin, konstante al-fluis novaj grupoj da arest
 
 ”La daŭra ĉaso al la Fama Nekonato,” flustre klarigis la avezzanano al Berardo, kiu fine komprenis, ke oni suspektas nin ne pri ŝtelado kaj tial trankviliĝis.
 
-Kiam post malmultaj formalaĵoj oni metis nin en ĉelon, kie troviĝis jam du aliaj arestitoj, Berardo kaj mi interŝanĝis kontentan rideton: fine ni havis loĝejon kaj 205
-
-FONTAMARA
+Kiam post malmultaj formalaĵoj oni metis nin en ĉelon, kie troviĝis jam du aliaj arestitoj, Berardo kaj mi interŝanĝis kontentan rideton: fine ni havis loĝejon kaj
 
 
 almenaŭ ĝis morgaŭ manĝaĵon . . . Pri la pli malproksima tempo ni povus pensi poste.
@@ -4042,9 +3361,7 @@ Se li estas urbano kaj venas al Abruzzo, li devas havi ian celon . . .”
 
 ”Sed la urbanoj ja vivas bone,” li diris ankoraŭ. ”Ili vivas bone pro tio, ke ili elpremas la kafonojn. Mi komprenas, ke ankaŭ en la urbo estas homoj, kiuj vivas malbone. Ekzemple: Peppino Goriano kaj kavaliro Pazienza ne naĝas en abundo. Sed ili ne estas veraj urbanoj; ili estas abruzzanoj translokitaj en la urbon . . .”
 
-Kelkfoje, kiam Berardo streĉis sin por paroli flustre, mi perdis la fadenon de la diskutoj, sed laŭ la gestoj de 206
-
-FONTAMARA
+Kelkfoje, kiam Berardo streĉis sin por paroli flustre, mi perdis la fadenon de la diskutoj, sed laŭ la gestoj de
 
 
 li kaj la avezzanano mi komprenis, ke ili ankoraŭ ne in-terkonsentas. Kiam estis utile mallaŭtigi la voĉon, Berardo forgesis ĉion kaj lin povis aŭdi ne nur la du nekonatoj, sed verŝajne ankaŭ tiuj en la najbaraj ĉeloj.
@@ -4059,9 +3376,7 @@ Kun larĝe malfermitaj okuloj la avezzanano aŭskultis.
 
 ”Estas terure,” li murmuris al si mem. ”ĉu vere vi kredas, kion vi diris? ĉu la aliaj kafonoj pensas kiel vi?”
 
-”Mi ne komprenas,” diris Berardo iom poste, ”kial la urbanoj presas gazetojn por senpage distribui inter la kafonoj. Kial la Fama Nekonato okupas sin pri aferoj, 207
-
-FONTAMARA
+”Mi ne komprenas,” diris Berardo iom poste, ”kial la urbanoj presas gazetojn por senpage distribui inter la kafonoj. Kial la Fama Nekonato okupas sin pri aferoj,
 
 
 kiuj ne estas liaj? Sed li eble estas komercisto de papero kaj presas gazetojn por vendi ilin?”
@@ -4075,9 +3390,6 @@ La espero, kiun Berardo havis, kiam li forlasis Fontamaran, estis detruita. La e
 La konversacia temo transiris al aliaj landoj kaj Rusio, ĉar min atingis frazo de Berardo, kiu diris:
 
 ”ĉu Rusio? Diru al mi la veron: ĉu vere ekzistas tia Rusio, pri kia oni tiom parolas? ĉiuj parolas pri ĝi, sed neniu iam estis tie. Kafonoj vizitis eĉ Amerikon, Afrikon, Francion. Sed neniu iam vidis Rusion.”
-
-
-FONTAMARA
 
 
 Pri kelkaj punktoj, ekzemple, kiam en la diskuto temis pri libero, Berardo estis nekonvinkebla.
@@ -4094,12 +3406,7 @@ Poste mi ekdormetis. Kelkajn horojn mi estis dormin-ta, kiam Berardo vekis min. 
 
 ”ĉu vi sonĝas?” mi demandis al li.
 
-”Sciu,” respondis Berardo, ”ke t.n. princo Torlonia, kiun la kafonoj adoras kiel teran dion, venis Italion an-taŭ proksimume cent jaroj, kiel kantinisto de franca regimento. Li ne nur ne estis princo, sed eĉ ne kavaliro kiel don Pazienza. Li estis vendisto de vino kaj kolbasoj. Lia nomo estis eĉ ne Torlonia, sed Torlogne. Li estis franco, spekulaciisto. Li spekulaciis je milito, je salo, enspezis per pastroj, per la piemontanoj, ŝtelis dekstre kaj mal-209
-
-FONTAMARA
-
-
-dekstre kaj estis nomata antaŭe duko kaj poste princo . . .”
+”Sciu,” respondis Berardo, ”ke t.n. princo Torlonia, kiun la kafonoj adoras kiel teran dion, venis Italion an-taŭ proksimume cent jaroj, kiel kantinisto de franca regimento. Li ne nur ne estis princo, sed eĉ ne kavaliro kiel don Pazienza. Li estis vendisto de vino kaj kolbasoj. Lia nomo estis eĉ ne Torlonia, sed Torlogne. Li estis franco, spekulaciisto. Li spekulaciis je milito, je salo, enspezis per pastroj, per la piemontanoj, ŝtelis dekstre kaj maldekstre kaj estis nomata antaŭe duko kaj poste princo . . .”
 
 ”ĉu vi sonĝas?” mi redemandis al Berardo.
 
@@ -4115,12 +3422,7 @@ Dum ili plu parolis, mi ree ekdormis kaj vekiĝis matene. Berardo iris kun grand
 
 ”Diru en Fontamara, ke ĉiu lin devas fidi. Li estas eksterordinara homo. Tio, kio al li okazis, ne povis ne okazi al li. Verŝajne ne troviĝas nuntempe en tuta Italio kafono, kia li. Ripetu tion en Fontamara. Oni faru, kion li diros.
 
-Sendube oni liberigos vin hodiaŭ aŭ post kelkaj tagoj kaj resendos vin hejmen. Mia sorto estos eble alia. Pardonu, ke mi tion ne klarigos al vi: Berardo diros al vi ĉion en Fontamara. Tio, kion vi devas fari, estas repacigi Berar-210
-
-FONTAMARA
-
-
-don kun Raffaele Scarpone. La ceteron Berardo jam scias.”
+Sendube oni liberigos vin hodiaŭ aŭ post kelkaj tagoj kaj resendos vin hejmen. Mia sorto estos eble alia. Pardonu, ke mi tion ne klarigos al vi: Berardo diros al vi ĉion en Fontamara. Tio, kion vi devas fari, estas repacigi Berardon kun Raffaele Scarpone. La ceteron Berardo jam scias.”
 
 Je la oka oni donis al ni tason da kafo. Berardo ĉesis paŝi tra la ĉelo kaj diris al la gardisto:
 
@@ -4141,10 +3443,7 @@ Berardo antaŭenpaŝis kaj diris:
 ”La paketo kun malpermesitaj presaĵoj, trovita en la manĝejo ĉe la stacio, apartenas al mi . . . Mi igis ilin presi por distribui inter la kafonoj . . . La Fama Nekonato estas mi.”
 
 
-FONTAMARA
-
-
-ĉAPITRO X.
+ĈAPITRO X.
 
 La Nekonato, la Fama Nekonato estis arestita!
 
@@ -4163,9 +3462,6 @@ Multfoje oni trenis Berardon el la ĉelo por montri lin al ĉiu nova funkciulo, 
 Pro antaŭzorgo oni disigis nin ĉiuvespere kaj lokis en tri diversajn ĉelojn min, Berardon kaj la avezzananon, sed la sekvintajn tagojn oni kunigis nin por esplordemandi.
 
 
-FONTAMARA
-
-
 La policestro deziris scii multon de Berardo. Li deziris scii, kie estas la malpermesita presejo, kiu estas la presisto kaj ĉu estas ankoraŭ kunkulpuloj. Sed Berardo ne respondis. Li mordis siajn lipojn per la dentoj, ĝis kiam ili sangis, por pruvi al la estro sian obstinan volon silenti. Post la esploroj Berardo aspektis ĉiam pli difektita. La unuan fojon li havis nur bluon sub la dekstra okulo, sed post la sekvintaj esploroj lia vizaĝo estis preskaŭ nerekonebla; la lipoj, la nazo, la oreloj, la brovoj prezentis postsignojn de la teruraj turmentoj. Tamen li silentis. Li ne respondis al la demandoj de la policestro.
 
 ĉar li ne plu kapablis kunpremi la fenditajn lipojn, li kunpremis la dentojn, ĉiam obstine silentante.
@@ -4177,9 +3473,6 @@ Rekonsciinte, mi vidis, ke sango gutas el mia buŝo, formante sur la benko flake
 La sekvintan matenon oni liberigis la avezzananon.
 
 * fluida maseto
-
-
-FONTAMARA
 
 
 Berardo kaj mi devis iri denove en la saman ĉelon, ĉe iu malliberigito, kiu aspektis kiel spiono. Mi komunikis mian suspekton al Berardo, tamen li diris al mi:
@@ -4198,9 +3491,7 @@ Kiam Berardo diris al la policestro, ke lia unua konfeso estis mistifiko, ĉi ti
 
 ”Vi konfesu ĉion, kion vi scias, se ne, vi malbone far-tos.”
 
-Tiun saman vesperon Berardo suferis novan ”specialan esplordemandadon”. Oni ĉiam estis tre kruela. Berardo defendis sin. Li ne povis ricevi baton, ne redonante ĝin. Por ligi liajn manojn kaj piedojn oni bezonis ok aŭ naŭ policistojn. ĉi tiun vesperon li hipokritis ne kontraŭi la torturojn, sed, kiam policisto intencis ligi snuron ĉir-kaŭ la genuojn, li faligis sin sur lin, kaptis per la dentoj la nukon kaj tenis ĝin tiel fortike, ke la aliaj policistoj devis pugnobati lin sur la makzelon por liberigi la vik-timon . . . Kaj ĉe la fino oni rekondukis lin en la ĉelon, 214
-
-FONTAMARA
+Tiun saman vesperon Berardo suferis novan ”specialan esplordemandadon”. Oni ĉiam estis tre kruela. Berardo defendis sin. Li ne povis ricevi baton, ne redonante ĝin. Por ligi liajn manojn kaj piedojn oni bezonis ok aŭ naŭ policistojn. ĉi tiun vesperon li hipokritis ne kontraŭi la torturojn, sed, kiam policisto intencis ligi snuron ĉir-kaŭ la genuojn, li faligis sin sur lin, kaptis per la dentoj la nukon kaj tenis ĝin tiel fortike, ke la aliaj policistoj devis pugnobati lin sur la makzelon por liberigi la vik-timon . . . Kaj ĉe la fino oni rekondukis lin en la ĉelon,
 
 
 trenante lin ĉe la kruroj kaj ŝultroj, kiel Kriston post la krucumo.
@@ -4226,9 +3517,6 @@ VIVU BERARDO VIOLA!
 ”En ĉi tiu gazeto” diris la estro ”troviĝas multaj sciigoj pri la traktado, kiun la polico al vi juste faris, de post la aresto ĝis hodiaŭ . . . Estante preta konfesi ĉion, ekra-kontu, kiel vi kapablis kontrabandi tiujn sciigojn el via ĉelo al la sekreta gazeto.”
 
 
-FONTAMARA
-
-
 Berardo ne respondis.
 
 ”En ĉi tiu gazeto,” la estro daŭrigis ”oni skribas multon pri Fontamara. Oni skribas pri la devio de iu rivereto
@@ -4247,12 +3535,7 @@ VIVU BERARDO VIOLA
 
 La estro kuraĝigis lin. Sed, enpense, Berardo estis jam aliloke. Li ne plu vidis la estron, ne plu aŭdis lin. Li lasis sin rekonduki en la ĉelon kiel iun, kiu ĵus farigis sian testamenton antaŭ ol morti. Tamen la lukto ankoraŭ ne finiĝis.
 
-Neniu el ni ambaŭ fermis tiun nokton la okulojn. Berardo tenis la kapon inter la manoj, kvazaŭ ĝi krevus. Li decidis konfesi, poste bedaŭris tion, denove decidis konfesi, sed poste denove bedaŭris. Li ĉirkaŭprenis la ka-216
-
-FONTAMARA
-
-
-pon, por ke ĝi ne krevu. Kial li devis resti kaptita? Kial li devus morti en malliberejo en sia trideka jaro? . . . ĉu pro honoro? . . . ĉu pro konv? . . . Sed li ja neniam okupis sin pri politiko. Tiel pasis la noktaj horoj.
+Neniu el ni ambaŭ fermis tiun nokton la okulojn. Berardo tenis la kapon inter la manoj, kvazaŭ ĝi krevus. Li decidis konfesi, poste bedaŭris tion, denove decidis konfesi, sed poste denove bedaŭris. Li ĉirkaŭprenis la kapon, por ke ĝi ne krevu. Kial li devis resti kaptita? Kial li devus morti en malliberejo en sia trideka jaro? . . . ĉu pro honoro? . . . ĉu pro konv? . . . Sed li ja neniam okupis sin pri politiko. Tiel pasis la noktaj horoj.
 
 Tiel Berardo Viola parolis al mi, al si mem kaj dume la alia klopodis kapti ĉiun vorton. La lukto daŭris:
 
@@ -4271,9 +3554,6 @@ Tio estis lia granda revelacio. Tiuj vortoj malfermis al li la okulojn, kvazaŭ 
 Diru ĝin al ĉiuj . . . Unue al Raffaele Scarpone, poste al la aliaj, Michele Zompa, General Baldissera, Ponzio Pilato, Antonio Ranocchia, al ĉiuj: Unueco . . . Ke ĉesu la malpaco inter la kafonoj. Al ili mankas nur: Unueco . . .
 
 ĉio cetera venos per si mem.”
-
-
-FONTAMARA
 
 
 Ili estis la lastaj vortoj, kiujn mi aŭdis de Berardo.
@@ -4303,9 +3583,6 @@ Post tio oni kondukis min en la oficejon de la ĉefpolic-estro.
 ”Jes, sinjoro.”
 
 
-FONTAMARA
-
-
 ”ĉu vi konfesas, ke la mortinto estis malliberigita en la sama ĉelo, kie estis vi kaj ke li profitis la okazon, kiam vi dormis, por pendigi sin ĉe la krado?”
 
 ”Jes, sinjoro.”
@@ -4331,9 +3608,6 @@ Ankaŭ li igis min subskribi protokolon kaj mi povis foriri.
 En la posttagmezo oni liberigis min, akompanis min al la stacidomo, envagonigis min al Avezzano, doninte vojaĝbileton laŭ deviga vojo. La ceteron rakontos mia patro.
 
 
-FONTAMARA
-
-
 Ni jam aŭdis de la Fama Nekonato la pli grandan parton de tio, kion mia filo sciis rakonti, kiam li alvenis al Fontamara.
 
 Mia filo alvenis, ĝuste kiam ni dekkvinope staris ĉir-kaŭ la ”ŝtono” kaj la aliaj materialoj, donacitaj de la Nekonato por presi la gazeton de la kafonoj. (La unuan gazeton de la kafonoj).
@@ -4345,9 +3619,6 @@ Ni estis metintaj la ŝtonon sur la tablon de Sorcanera, meze de la strato kaj d
 Tie estis la Heroo de Porta Pia, kiu skribis plej klare kaj devis skribi la foliojn; General Baldissera, kiu konis la gramatikon kaj ortografion; Raffaele Scarpone, al kiu la Nekonato jam klarigis la funkciadon de la aparato. Kaj krome ĉeestis Antonio Braciola, Pasquale Cipolla, Ciro Zironda, Vincenzo Scorza, Giacinto Barletta, Giovanni Testone, Anacleto la tajloro, Alberto Saccone, Michele Zompa, Sorcanera kaj mi.
 
 La unuan diskuton ni havis pri la titolo donota al la gazeto.
-
-
-FONTAMARA
 
 
 La Heroo de Porta Pia deziris titolon, kian oni havas en la urbo: II Messaggero, La Tribuna, aŭ similan. Sed Raffaele Scarpone, kiu de Berardo heredis la manierojn, silentigis lin . . .
@@ -4371,9 +3642,6 @@ Ankaŭ General Baldissera havis bonan ideon: ”La Justico.”
 ”Sed vi freneziĝis,” kriis Scarpone al li, ”la justico estis ja ĉiam kontraŭ ni!”
 
 Por kompreni ĉi tiun kontraŭargumenton vi sciu, ke por ni ”justico” signifas karabenistojn. Havi aferon kun la justico, signifas havi aferon kun la karabenistoj. Fali en la manojn de la justico, signifas fali en la manojn de karabenistoj. Esti en servo de la justico signifas esti spiono, esti konfidenculo de karabenistoj.
-
-
-FONTAMARA
 
 
 ”Sed mi aludas la veran justicon,” diris incitite la maljuna ŝuisto. ”La justico estas egala al ĉiuj . . .”
@@ -4407,9 +3675,6 @@ kaj surprizite ni rigardis unu al alia.
 ”kiam kopio de la gazeto atingos Romon, ĉiu ekri-dos . . .”
 
 
-FONTAMARA
-
-
 Raffaele Scarpone furioziĝis. ”La gazeto estu gazeto de la kafonoj, la unua gazeto presita de kafonoj por kafonoj
 
 . . . ĉio, kion opinios la romanoj, ne tuŝos min . . .
@@ -4437,9 +3702,6 @@ Se ni ne ripetos, la titolo ne valoros . . . Antaŭ ĉio ĝi reliefiĝu . . .”
 Tiam ni ĉiuj komprenis kaj konsentis pri la propono de Scarpone.
 
 
-FONTAMARA
-
-
 Malgravan diskuton ni ekhavis pri la nomo de Berardo. Baldissera asertis, ke oni devas skribi ”Violla” per du
 
 ”l,” kontraŭe Michele Zompa opiniis, ke unu ”l” sufiĉas.
@@ -4457,9 +3719,6 @@ Ni foriris al San Benedetto la sekvintan tagmezon. Por distribui la gazetojn mi 
 Duonvoje ni aŭdis pafadon, malproksime.
 
 ”Kiu festo estas hodiaŭ?” demandis mia edzino por ekscii el kiu vilaĝo venas la pafado. Estis malfacile diri, kiu festo. Sankta Ludoviko jam pasis kaj sankta Anna ne ankoraŭ venis.
-
-
-FONTAMARA
 
 
 Kiam ni pluiris, la pafoj plimultiĝis. ”Oni povus kredi, ke la pafoj venas el Fontamara,” mi diris.
@@ -4489,9 +3748,6 @@ Pli kaj pli ni konjektis, ke la eksplodoj venas el Fontamara. Oni pafis per fusi
 ”Kien vi intencas iri? . . . ĉu al Fontamara? . . . ĉu vi freneziĝis? . . .” Cipolla kriis al ni kaj plukuris al Pescina.
 
 Ni postkuris lin.
-
-
-FONTAMARA
 
 
 ”Sed kio okazas en Fontamara? . . .” mi kriis malantaŭ li, ”kial oni pafas? . . .”
@@ -4533,9 +3789,6 @@ Eble tio estas karabenistoj el Pescina, kiuj rajdas al Fontamara.
 Ni rifuĝis en la kamparon. En la mallumo ni perdis Cipollan el la vido.
 
 
-FONTAMARA
-
-
 Ni aŭdis plu nenion pri li.
 
 Ankaŭ pri la aliaj ni ne aŭdis plu ion. Nek pri tiuj, kiuj sin savis, nek pri tiuj, kiuj mortis. Nek pri nia hejmo, nek pri la tero.
@@ -4547,9 +3800,6 @@ Per helpo de la Fama Nekonato ni atingis eksterlan-don. Sed estas klare, ke ni n
 Kion ni faru?
 
 Post tiom da penoj, da luktoj, da larmoj kaj vundoj, post tiom da sango, da malamo kaj da malespero: KION NI FARU?
-
-
-FONTAMARA
 
 
 www.omnibus.se/

@@ -42,27 +42,27 @@ Vi[du http://www.poboxes.com/bookleaf/](http://www.poboxes.com/bookleaf/)
 
 ENHAVO
 
-Antaŭparolo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 5
+Antaŭparolo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 1 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 13
+Parto 1 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 2 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 44
+Parto 2 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 3 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 72
+Parto 3 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 4 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 107
+Parto 4 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 5 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 136
+Parto 5 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 6 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 171
+Parto 6 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 7 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 200
+Parto 7 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 8 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 228
+Parto 8 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 9 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 256
+Parto 9 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Parto 10 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 280
+Parto 10 . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Antaŭparolo de la Tradukinto
@@ -129,9 +129,7 @@ li dediĉis sian tutan karieron al la konservado de ties instruoj. Ni eĉ
 
 ne scias ĉu lia persona nomo efektive estis Platono aŭ ĉu ĝi originis
 
-kiel intima ŝercnomo (ĝi signifas “larĝa,” eble mallongigo de “larĝ-
-
-ŝultrulo” aŭ, iuj sugestas, “larĝ-nazulo!”). Sed ni ja scias ke li estis filo
+kiel intima ŝercnomo (ĝi signifas “larĝa,” eble mallongigo de “larĝŝultrulo” aŭ, iuj sugestas, “larĝ-nazulo!”). Sed ni ja scias ke li estis filo
 
 de tre honorinda Atenano nomata Aristono. Proksimume jardekon
 
@@ -289,9 +287,7 @@ kvankam ili ne plene kongruas inter si nek kun la greka originalo. Sed
 
 la plejmultaj nomoj ne troviĝas en tiu leksikono kaj mi devis uzi
 
-propran sistemon de transliterumado el la greka alfabeto en la espe-
-
-rantan. Pro la ĉiam kreskanta tendenco de nacilingvaj tradukistoj uzi
+propran sistemon de transliterumado el la greka alfabeto en la esperantan. Pro la ĉiam kreskanta tendenco de nacilingvaj tradukistoj uzi
 
 transliterumadon kiel eble plej fidelan al la greka teksto (ĝis antaŭ
 
@@ -309,9 +305,7 @@ du grekaj literoj ε kaj η, kaj o por la du literoj ο kaj ω, dum f
 
 reprezentas la grekan literon φ, t la literojn τ kaj θ, ks la literon ξ kaj
 
-ĥ la literon χ. Tio konformas al la kutima nuntempa transskrib-
-
-sistemo en la plej multaj okcidentaj lingvoj kaj al la rekomendoj de
+ĥ la literon χ. Tio konformas al la kutima nuntempa transskribsistemo en la plej multaj okcidentaj lingvoj kaj al la rekomendoj de
 
 *PIV*. Unu punkto tamen estas mencienda kaj eble provokos disputojn:
 
@@ -1604,9 +1598,7 @@ provos konstati. Via respondo, Trasimaĥo, estas ke kio donas
 
 avantaĝon estas morala—kvankam vi malpermesis ke mi faru tian
 
-respondon—sed vi tamen pligrandigas la difinon: ‘…kio donas avan-
-
-taĝon por la superulo’.”
+respondon—sed vi tamen pligrandigas la difinon: ‘…kio donas avantaĝon por la superulo’.”
 
 “Nur malgranda aldono” li diris.
 
@@ -1697,9 +1689,7 @@ estas justa. Kiam li faris ambaŭ deklarojn li akceptis ke foje la
 
 superuloj ordonas ke la malsuperuloj, la regatoj, faru malavantaĝon al
 
-ili. Laŭ tiuj deklaroj ne estas pli juste avantaĝi superulon ol mal-
-
-avantaĝi lin.”
+ili. Laŭ tiuj deklaroj ne estas pli juste avantaĝi superulon ol malavantaĝi lin.”
 
 “Sed,” Klejtofono diris, “li diris ke avantaĝo por superulo estas tio,
 
@@ -2583,9 +2573,7 @@ Post nia interkonsento ke justeco estas inda kaj saĝa, sed
 
 maljusteco estas malbona kaj senlerneco, mi daŭrigis: “Nu, ni lasu
 
-tion. Sed ni diris ke maljusteco estas forta. Aŭ ĉu vi ne memoras, Tra-
-
-simaĥo?”
+tion. Sed ni diris ke maljusteco estas forta. Aŭ ĉu vi ne memoras, Trasimaĥo?”
 
 “Mi memoras,” li diris. “Sed ne plaĉas al mi kion vi ĵus diris. Mi
 
@@ -3142,9 +3130,7 @@ por akcepti tion. Do jen la karaktero de justeco, Sokrato, kaj kiel ĝi
 
 originis, laŭ tiu argumento.
 
-“Ni plej bone komprenos kial homoj praktikantaj justecon mal-
-
-volonte faras tion, kaj ke ili akceptas nur pro sia manko de kapablo agi
+“Ni plej bone komprenos kial homoj praktikantaj justecon malvolonte faras tion, kaj ke ili akceptas nur pro sia manko de kapablo agi
 
 maljuste, se ni pripensos ĉi tion: Imagu ke ni donas kaj al la moralulo
 
@@ -3602,9 +3588,7 @@ kredi la tuton aŭ nenion. Se ni devas kredi, do ni estu malhonestaj kaj
 
 purigu nin de la malhonesteco per oferoj. Se ni estas honestaj, estas
 
-vere ke la Dioj ne punos nin, sed ni perdos la profiton kiun mal-
-
-honesteco ebligas. Se ni estas malhonestaj, ni profitas. Kaj per
+vere ke la Dioj ne punos nin, sed ni perdos la profiton kiun malhonesteco ebligas. Se ni estas malhonestaj, ni profitas. Kaj per
 
 preĝado dum ni uzurpos kaj pekos ni persvados la Diojn absolvi nin de
 
@@ -6384,9 +6368,7 @@ nemalgranda diskuto estas necesa por decido. Ĉu vi malakordas?”
 
 “Je Zeŭso, ne mi!”
 
-“Sed vi ja povas decidi ke respektindeco kaj miskonduto akom-
-
-panas bonritmon kaj misritmon.
+“Sed vi ja povas decidi ke respektindeco kaj miskonduto akompanas bonritmon kaj misritmon.
 
 “Certe.”
 
@@ -6742,9 +6724,7 @@ viro kiu devas bonfartigi sian korpon.”
 
 “Kompreneble.”
 
-“Mi kredas ke ni prave komparus tiajn manĝaĵojn kaj manĝ-
-
-kutimojn kun la verkado de muziko kaj kantoj laŭ ĉiuj modaloj kaj
+“Mi kredas ke ni prave komparus tiajn manĝaĵojn kaj manĝkutimojn kun la verkado de muziko kaj kantoj laŭ ĉiuj modaloj kaj
 
 ritmoj.”
 
@@ -9585,9 +9565,7 @@ konsisto de la civito, en kiu estas tri klasoj, la lukrantoj, la militistoj,
 
 Parto Kvar
 
-kaj la konsilianoj. Ĉu simile en la psiko fervoro estas tria parto, serv-
-
-anto de la racio se ĝi ne estis koruptita per malbona edukado?”
+kaj la konsilianoj. Ĉu simile en la psiko fervoro estas tria parto, servanto de la racio se ĝi ne estis koruptita per malbona edukado?”
 
 “Ĝi nepre estas tria parto,” li diris.
 
@@ -10906,9 +10884,7 @@ estas necesa, ni scias ke la kuracisto devas esti pli kapabla.”
 
 “Prave. Sed kion vi celas diri?”
 
-“Ĉi tion:” mi diris. “Necesos ke niaj regantoj utiligu multajn men-
-
-sogojn kaj malveraĵojn por la bono de la regatoj. Ni diris ke ĉio tia estas
+“Ĉi tion:” mi diris. “Necesos ke niaj regantoj utiligu multajn mensogojn kaj malveraĵojn por la bono de la regatoj. Ni diris ke ĉio tia estas
 
 speco de medikamento.”
 
@@ -12371,9 +12347,7 @@ realaĵo.”
 
 60 Nun, unuafoje en ĉi tiu libro, Platono mencias sian koncepton pri la
 
-arketipoj, kiujn li detale diskutos poste, speciale en ĉapitroj ses kaj sep. Ĉi-
-
-loke nur necesas atentigi ke li antaŭsupozas ke arketipoj de bono, belo, kc.,
+arketipoj, kiujn li detale diskutos poste, speciale en ĉapitroj ses kaj sep. Ĉiloke nur necesas atentigi ke li antaŭsupozas ke arketipoj de bono, belo, kc.,
 
 ekzistas sendepende de siaj surteraj manifestiĝoj. Ekzemple, belo estas
 
@@ -13410,9 +13384,7 @@ maniero suferas pli ol neinda naturo.”
 
 karakteroj fariĝas elstare malbonaj se ili ricevas malbonan edukadon?
 
-Aŭ ĉu vi supozas ke ordinara karaktero, ruinigita de eduko, respond-
-
-ecas pri la plej grandaj krimoj kaj pura malboneco, eĉ kvankam
+Aŭ ĉu vi supozas ke ordinara karaktero, ruinigita de eduko, respondecas pri la plej grandaj krimoj kaj pura malboneco, eĉ kvankam
 
 malforta naturo ne povas esti la kaŭzo de grandaj bono aŭ malbono.”
 
@@ -15998,9 +15970,7 @@ vidas ĝin.”
 “Ni konsentas pri tio.”
 
 
-“Kaj neniu kiu eĉ iomete konas geometrion,” mi diris, “kontraŭ-
-
-diros nian deklaron ke tiu studtemo faras precize la malon laŭ la
+“Kaj neniu kiu eĉ iomete konas geometrion,” mi diris, “kontraŭdiros nian deklaron ke tiu studtemo faras precize la malon laŭ la
 
 vortuzo de ĝiaj uzantoj.”
 
@@ -17358,9 +17328,7 @@ inter si mem? Aŭ ĉu, kiel Homero, ni preĝu ke la Muzoj diru al ni ‘kiel
 
 unue falis sur nin’92 malakordo?” Ĉu ni dirus ke ili ludas kun ni
 
-kvazaŭ ni estus infanoj, kaj ŝercas parolante pompe, fiere, pseŭdo-
-
-serioze?
+kvazaŭ ni estus infanoj, kaj ŝercas parolante pompe, fiere, pseŭdoserioze?
 
 “Kion ili dirus?”
 
@@ -17373,9 +17341,7 @@ eterne, ankaŭ ĝi degenerus. Jen kiel ĝi degenerus: Estas sinsekvaj
 
 cikloj de produktiveco kaj malproduktiveco, kaj emocie kaj korpe,
 
-inter kaj plantoj kaj animaloj. La cikloj estas mallongaj por mallong-
-
-vivantoj, longaj por long-vivantoj. Malgraŭ sia saĝeco, la homoj
+inter kaj plantoj kaj animaloj. La cikloj estas mallongaj por mallongvivantoj, longaj por long-vivantoj. Malgraŭ sia saĝeco, la homoj
 
 edukitaj por esti gvidistoj de la civito ne povus per logiko kaj racio
 
@@ -17397,7 +17363,7 @@ proporcion 4:3 kun 5, triobligita, estigas du harmoniojn. Unu estas
 
 kvadrato centobligita. Komuna faktoro estas por unu, nekomuna
 
-faktoro por la alia. Cent numeroj laŭ la diametroj racionalaj de la 5
+faktoro por la alia. Cent numeroj laŭ la diametroj racionalaj de la
 
 92 Frazo tre ofte uzata en la poemoj atribuataj al Homero.
 
@@ -19205,9 +19171,7 @@ fremdajn virabelojn?”
 
 fari ilin siaj korpogardistoj?”
 
-“Jes, kompreneble!” li diris. “Ili estus liaj plej fidelaj korpo-
-
-gardistoj.”
+“Jes, kompreneble!” li diris. “Ili estus liaj plej fidelaj korpogardistoj.”
 
 “Kian benon donas la fatalo al tirano!” mi diris. “Se tiaj fideluloj
 
@@ -19924,9 +19888,7 @@ Parto Naŭ
 
 “Certe.”
 
-“Ĉu eblus trovi pli lamentoplenan, ĝemoplenan, plorplenan, dolo-
-
-roplenan socion?”
+“Ĉu eblus trovi pli lamentoplenan, ĝemoplenan, plorplenan, doloroplenan socion?”
 
 “Neniel.”
 
@@ -20726,10 +20688,7 @@ Parto Naŭ
 
 “Tio estas neevitebla konkludo.”
 
-“Do personoj kiuj ne spertis prudentecon kaj indecon kaj parto-
-
-
-prenas nur en festoj kaj tiaĵoj, dum sia tuta vivo nur moviĝas
+“Do personoj kiuj ne spertis prudentecon kaj indecon kaj partoprenas nur en festoj kaj tiaĵoj, dum sia tuta vivo nur moviĝas
 
 konstante supren kaj suben inter la plej malalta kaj la meza niveloj,
 
@@ -21028,13 +20987,9 @@ oni malsatigas kaj malfortigas la homon, tiel ke lin tiras ien ajn unu
 
 el la aliaj bestoj laŭ sia volo. Ke li tute ne provas kutimigi ilin, unu al
 
-la alia, nek amikigi ilin. Ke li lasas ilin mordi unu la alian kaj kontraŭ-
+la alia, nek amikigi ilin. Ke li lasas ilin mordi unu la alian kaj kontraŭbatali kaj manĝi unu la alian.”
 
-batali kaj manĝi unu la alian.”
-
-“Jes,” li diris, “tio estas precize tio kion signifas laŭdi maljust-
-
-econ.”
+“Jes,” li diris, “tio estas precize tio kion signifas laŭdi maljustecon.”
 
 “Inverse: Diri ke justeco profitigas, signifas ke oni devus fari kaj
 
@@ -21743,7 +21698,7 @@ malatentis lin dum sia vivo.”
 
 123 Likurgo (ĉ. 9a aŭ eble 7a jarcento a.K.) estis laŭlegende la aŭtoro de la
 
-leĝaro de Lacedemono = Sparto. Pri Ĥarondo nenio estas sciata. Solono (ĉ. 600
+leĝaro de Lacedemono = Sparto. Pri Ĥarondo nenio estas sciata. Solono (ĉ.
 
 a.K.) estis grava politikisto kaj socireformisto en Ateno.
 
@@ -22505,9 +22460,7 @@ kaj utilas estas bona.”
 “Pripensu. Ĉu vi akceptas ke estas malbono kaj bono rilatantaj al
 
 
-ĉio? Ekzemple, la okuloj suferas pro oftalmito kaj ekzistas ĉiaj mal-
-
-sanoj de la korpo. Greno suferas pro plantrusto. Ligno putras. Bronzo
+ĉio? Ekzemple, la okuloj suferas pro oftalmito kaj ekzistas ĉiaj malsanoj de la korpo. Greno suferas pro plantrusto. Ligno putras. Bronzo
 
 kaj fero suferas pro metalrusto. Ĝenerale, por ĉio estas propra
 
@@ -22585,9 +22538,7 @@ rilatanta al la manĝaĵoj. Manĝaĵoj havas sian naturon kaj la korpo
 
 havas naturon propran al si. La malboneco de manĝaĵoj estas tute
 
-diferenca de malsano de la korpo. Do ni neniam povas akuzi la manĝ-
-
-aĵon ke ĝi detruas la korpon. Ni povas diri nur ke malboneco de
+diferenca de malsano de la korpo. Do ni neniam povas akuzi la manĝaĵon ke ĝi detruas la korpon. Ni povas diri nur ke malboneco de
 
 manĝaĵoj kreas kondiĉon favoran por ke la korpo fariĝu malsana.”
 

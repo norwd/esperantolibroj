@@ -5,9 +5,6 @@ Pasko
 Dramo en tri aktoj
 
 
-### 1
-
-
 ## P A S KO
 
 
@@ -17,14 +14,6 @@ PASKO
 
 
 Stellan Engholm
-
-
-@omnibus.se
-
-·
-
-
-## P A S KO
 
 
 PERSONOJ
@@ -42,16 +31,11 @@ Benjamin, gimnaziano
 Lindkvist
 
 
-## P A S KO
-
-
 SCENEJO
 
 por ĉiuj aktoj
 
-La tuta antaŭaĵo konsistas el vitroverando en la malsupra eta-
-
-ĝo, aranĝita kiel ĉambro. Meze granda pordo al ĝardenkva-drato kun barilo kaj barilpordo al la strato. Aliflanke de la strato, kiu same kiel la domo kuŝas sur altaĵo, oni vidas mal-altan barilon de ĝardeno, kiu deklivas malsupren al la urbo.
+La tuta antaŭaĵo konsistas el vitroverando en la malsupra etaĝo, aranĝita kiel ĉambro. Meze granda pordo al ĝardenkva-drato kun barilo kaj barilpordo al la strato. Aliflanke de la strato, kiu same kiel la domo kuŝas sur altaĵo, oni vidas mal-altan barilon de ĝardeno, kiu deklivas malsupren al la urbo.
 
 La fono prezentas la printempoverdajn arbosuprojn de tiu
 
@@ -66,9 +50,6 @@ Ekstere sur la strato gaslanterno kun Auer-flamingo.
 Maldekstre en la verando estas pordo al la ĉambraro; dekstre estas pordo al la kuirejo.
 
 Tempo: la nia.
-
-
-## P A S KO
 
 
 UNUA AKTO
@@ -97,9 +78,7 @@ Elis
 
 (ĉirkaŭrigardas)
 
-La internaj fenestroj elprenitaj; la planko lavi-
-
-ta, puraj kurtenoj … jes, estas ree printempo!
+La internaj fenestroj elprenitaj; la planko lavita, puraj kurtenoj … jes, estas ree printempo!
 
 Oni forhaĝisla stratglacion, kaj malsupre ĉe la
 
@@ -108,9 +87,6 @@ rivero floras la salikoj … jes, estas printempo
 . . . Kaj mi povas formeti la vintran surtuton …
 
 jen, ĝi estas tiel peza (pesas la surtuton per la mano) kvazaŭ ĝi estus ensorbinta ĉiujn penojn de la
-
-
-## P A S KO
 
 
 vintro, la ŝviton de la angoro kaj la polvon de
@@ -129,9 +105,7 @@ Paskan libertempon! Kvin belajn tagojn por
 
 (Donas la manon al Kristina kaj poste sidiĝas en la brakseĝon.)
 
-Ho vidu, la suno revenis … ĝi foriris en no-
-
-vembro, mi memoras la tagon, kiam ĝi mala-
+Ho vidu, la suno revenis … ĝi foriris en novembro, mi memoras la tagon, kiam ĝi mala-
 
 peris malantaŭ la bierfarejo oblikve trans la
 
@@ -185,13 +159,7 @@ Kristina
 
 Elis
 
-Apenaŭ estis oliva, sed mi kredas, ke estis pa-
-
-
-## P A S KO
-
-
-cosigno, kaj ĝuste nun mi sentas sunan, ĉiel-
+Apenaŭ estis oliva, sed mi kredas, ke estis pacosigno, kaj ĝuste nun mi sentas sunan, ĉiel-
 
 feliĉan trankvilon … Kie estas patrino?
 
@@ -213,9 +181,7 @@ kiel mi aŭdas tion? — Plej pro la aksingoj de
 
 la veturiloj … sed kio estas? La fringoj kantas!
 
-Kaj oni martelas en la ŝipkonstruejo, kaj odo-
-
-ras oleofarbo de la vaporŝipoj, de la ruĝa mi-
+Kaj oni martelas en la ŝipkonstruejo, kaj odoras oleofarbo de la vaporŝipoj, de la ruĝa mi-
 
 nio.
 
@@ -225,19 +191,13 @@ Kristina
 
 Elis
 
-Tie ĉi ? Vere, ni estas tie ĉi, sed mi estis tie, tie en la nordo, kie kuŝas nia hejmo . . . Kiel ni venis al tiu ĉi terura urbo, kie ĉiuj homoj mala-
-
-mas unu la alian, kaj kie oni ĉiam soliĝas? Jes,
+Tie ĉi ? Vere, ni estas tie ĉi, sed mi estis tie, tie en la nordo, kie kuŝas nia hejmo . . . Kiel ni venis al tiu ĉi terura urbo, kie ĉiuj homoj malamas unu la alian, kaj kie oni ĉiam soliĝas? Jes,
 
 estis la pano, kiu montris la vojon … sed apud
 
-la pano kuŝis la malfeliĉoj: la krima ago de pa-
+la pano kuŝis la malfeliĉoj: la krima ago de patro kaj la malsano de mia fratineto; — Diru, ĉu
 
-tro kaj la malsano de mia fratineto; — Diru, ĉu
-
-vi scias, ĉu estis permesite al patrino viziti pa-
-
-tron en la malliberejo?
+vi scias, ĉu estis permesite al patrino viziti patron en la malliberejo?
 
 Kristina
 
@@ -258,9 +218,6 @@ Io tamen estas gajnita; post la verdikto venis
 certeco kaj aparta trankvilo, kiam silentiĝis la
 
 
-## P A S KO
-
-
 sciigoj de la gazetoj. Unu jaro pasis; post unu
 
 jaro li liberiĝos, kaj tiam ni povos rekomenci.
@@ -271,9 +228,7 @@ Mi admiras vian paciencon en la sufero.
 
 Elis
 
-Nc faru tion! Admiru ĉe mi nenion, ĉar mi ha-
-
-vas nur mankojn! Nun vi scias tion! Ho! Se vi
+Nc faru tion! Admiru ĉe mi nenion, ĉar mi havas nur mankojn! Nun vi scias tion! Ho! Se vi
 
 volus kredi tion!
 
@@ -293,9 +248,7 @@ Estas ja la kuirejaj ĵaluzioj, kara mia!
 
 Elis
 
-Aspektas kiel edziniĝa vualo … Aŭtune, Kris-
-
-tina, vi fariĝos mia edzino, ĉu ne?
+Aspektas kiel edziniĝa vualo … Aŭtune, Kristina, vi fariĝos mia edzino, ĉu ne?
 
 Kristina
 
@@ -307,23 +260,17 @@ La somero, ja!
 
 (Elpoŝigas ĉeklibron.)
 
-Vidu, la monon mi jam havas en la banko! Ki-
-
-am finiĝos la lernejo, tiam ni iros norden al
+Vidu, la monon mi jam havas en la banko! Kiam finiĝos la lernejo, tiam ni iros norden al
 
 nia lando — al Mälaren. La dometo staras en
 
-ordo, kiel ĝi staris en nia infanaĝo, la tilioj re-
-
-stas, la platboato kuŝas sub la bordaj salikoj …
+ordo, kiel ĝi staris en nia infanaĝo, la tilioj restas, la platboato kuŝas sub la bordaj salikoj …
 
 Ho, se estus somero, kaj mi povus bani min
 
 en la lago! Tiu malhonoro de la familio metis
 
-sin sur miajn animon kaj korpon, kaj mi sopi-
-
-ras al lago, en kiu mi povas lavi min.
+sin sur miajn animon kaj korpon, kaj mi sopiras al lago, en kiu mi povas lavi min.
 
 Kristina
 
@@ -338,24 +285,17 @@ skribas leterojn, kiuj disŝiras min. ŝi volas for
 kaj hejmen kompreneble, sed la estro de la
 
 
-## P A S KO
-
-
 azilo ne kuraĝas lasi ŝin, ĉar ŝi faras agojn, kiuj
 
 kondukus al malliberejo. Ofte la konscienco
 
-riproĉas min terure, ĉar mi subtenis ŝian in-
-
-ternigon.
+riproĉas min terure, ĉar mi subtenis ŝian internigon.
 
 Kristina
 
 Kara amiko, pro ĉio vi riproĉas vin, sed en tiu
 
-okazo estis ja bonfaro, ke la kompatinda rice-
-
-vis flegadon.
+okazo estis ja bonfaro, ke la kompatinda ricevis flegadon.
 
 Elis
 
@@ -416,14 +356,9 @@ Larmoj matene, ĝojo vespere! Elis, eble mi
 povos helpi vin trapasi …
 
 
-## P A S KO
-
-
 Elis
 
-ĉu vi kredas, ke patrino havas blankan krava-
-
-ton?
+ĉu vi kredas, ke patrino havas blankan kravaton?
 
 Kristina
 
@@ -449,17 +384,13 @@ kiel sufiĉe sendanka lernanto de mi.
 
 Kristina
 
-Mi ne neas, ke lia malfidelo ekscitis min; pro-
-
-mesinte citi vian disertacion li prirabis ĝin sen
+Mi ne neas, ke lia malfidelo ekscitis min; promesinte citi vian disertacion li prirabis ĝin sen
 
 indiki la fonton.
 
 Elis
 
-Ho! Tio estas ordinara, kaj mi ĝojas en la kon-
-
-scio, ke ”tion faris mi”.
+Ho! Tio estas ordinara, kaj mi ĝojas en la konscio, ke ”tion faris mi”.
 
 Kristina
 
@@ -475,30 +406,21 @@ kvazaŭ mi memkompreneble partoprenu, kaj
 
 mi parolis al aliaj pri la afero. Preterlaso de
 
-invito nun estus por mi publika hontigo. Ega-
-
-le, ne estas la unua fojo; kaj ne la lasta!
+invito nun estus por mi publika hontigo. Egale, ne estas la unua fojo; kaj ne la lasta!
 
 (Paŭzo.)
 
 Kristina
 
-Benjamin ne venas! ĉu vi kredas, ke li sukce-
-
-sas en la skriboj?
+Benjamin ne venas! ĉu vi kredas, ke li sukcesas en la skriboj?
 
 Elis
 
-Tion mi certe esperas, en latino kun alta ate-
-
-sto!
+Tion mi certe esperas, en latino kun alta atesto!
 
 Kristina
 
 Benjamin estas bona knabo.
-
-
-## P A S KO
 
 
 Elis
@@ -517,9 +439,7 @@ Pro tio … ke mia patro kiel kuratoro foruzis
 
 lian monon, same kiel de multaj aliaj! Vidu,
 
-Kristina, tio estas la terura, ke mi en la lerne-
-
-jo devas vidi tiujn prirabitajn senpatrulojn,
+Kristina, tio estas la terura, ke mi en la lernejo devas vidi tiujn prirabitajn senpatrulojn,
 
 kiuj nun suferas la humiligon esti nepagantaj
 
@@ -547,9 +467,7 @@ pasinto!
 
 Elis
 
-Jes, pri la somero! — Aŭdu, lastnokte mi ve-
-
-kiĝis pro studenta kantado; oni kantis: ”Jes,
+Jes, pri la somero! — Aŭdu, lastnokte mi vekiĝis pro studenta kantado; oni kantis: ”Jes,
 
 mi venos, kampoj kaj birdaroj, ilin, gaja vent’,
 
@@ -576,12 +494,7 @@ Elis
 Sed ĉu vi kredas, ke mi vidos miajn betulojn
 
 
-## P A S KO
-
-
-kaj tiliojn, kiel mi iam vidis ilin, ĉu vi ne kre-
-
-das, ke kovros ilin la sama nigra vualaĵo, kiu
+kaj tiliojn, kiel mi iam vidis ilin, ĉu vi ne kredas, ke kovros ilin la sama nigra vualaĵo, kiu
 
 tie ĉi kovras la naturon kaj la vivon post tiu
 
@@ -619,15 +532,11 @@ gefianĉecon! Jen, tio estis la plej malfacila el
 
 ĉio. Mi preskaŭ mortis, pecon post peco; sed
 
-kiam vi revenis — mi reviviĝis. ĉu vi memo-
-
-ras, kial vi foriris?
+kiam vi revenis — mi reviviĝis. ĉu vi memoras, kial vi foriris?
 
 Kristina
 
-Ne, tion mi ne memoras, kaj nun ŝajnas, kva-
-
-zaŭ motivo ne ekzistis. Mi nur sentis instigon
+Ne, tion mi ne memoras, kaj nun ŝajnas, kvazaŭ motivo ne ekzistis. Mi nur sentis instigon
 
 foriri; kaj mi foriris, kvazaŭ en dormo. Klam
 
@@ -639,29 +548,20 @@ Kaj nun ni ne disiĝos plu, ĉar se vi nun forirus,
 
 tiam mi efektive mortus! … Jen venas patrino!
 
-Diru nenion, indulgu ŝin en ŝia imagita mon-
-
-do, kie ŝi vivas kaj kredas, ke patro estas mar-
+Diru nenion, indulgu ŝin en ŝia imagita mondo, kie ŝi vivas kaj kredas, ke patro estas mar-
 
 tiro kaj ĉiuj liaj viktimoj friponoj.
 
 
-## P A S KO
-
-
 Sinjorino Heyst (envenas el la kuirejo, en kuireja antaŭtuko, senŝeligante pomon; parolas afable, iom nalve)
 
-Bonan tagon, infanoj! ĉu vi volas havi la pom-
-
-supon malvarma aŭ varma?
+Bonan tagon, infanoj! ĉu vi volas havi la pomsupon malvarma aŭ varma?
 
 Elis
 
 Malvarma, panjo.
 
-Sinjorino Heyst Estas bone, mia knabo, vi ĉiam scias, kion vi volas, kaj diras tion, sed tion ne povas Kristina. Kaj tion Elis lernis de sia patro; li ĉiam sci-
-
-is, kion li volis kaj faris. Tion homoj ne toleras,
+Sinjorino Heyst Estas bone, mia knabo, vi ĉiam scias, kion vi volas, kaj diras tion, sed tion ne povas Kristina. Kaj tion Elis lernis de sia patro; li ĉiam sciis, kion li volis kaj faris. Tion homoj ne toleras,
 
 kaj tial iris malbone por li. Sed iam venos lia
 
@@ -701,12 +601,7 @@ Elis
 
 Kiam mono sufiĉos, panjo!
 
-Sinjorino Heyst Kiam mono sufiĉos! Tio ne estas vera respondo! . Kaj Benjamin! ĉu li sukcesis en la skri-
-
-boj?
-
-
-## P A S KO
+Sinjorino Heyst Kiam mono sufiĉos! Tio ne estas vera respondo! . Kaj Benjamin! ĉu li sukcesis en la skriboj?
 
 
 Elis
@@ -741,9 +636,7 @@ Elis
 
 Tute ne, panjo.
 
-Sinjorino Heyst Elis ne devas meti sian surtuton tien … aspektas tiel senorde! … Nu, Kristina, ĉu miaj ĵalu-
-
-zioj baldaŭ estos pretaj?
+Sinjorino Heyst Elis ne devas meti sian surtuton tien … aspektas tiel senorde! … Nu, Kristina, ĉu miaj ĵaluzioj baldaŭ estos pretaj?
 
 Kristina
 
@@ -755,16 +648,11 @@ Elis
 
 Certe mi partoprenos.
 
-Sinjorino Heyst Nu, kial vi diris, ke vi volas havi la pomsupon malvarma, se vi devos foriri. Vi ne estas tre ordema, Elis. Sed Petro estas ordema! … Kaj fer-
-
-mu la pordojn, kiam fariĝos malvarme, por ke
+Sinjorino Heyst Nu, kial vi diris, ke vi volas havi la pomsupon malvarma, se vi devos foriri. Vi ne estas tre ordema, Elis. Sed Petro estas ordema! … Kaj fermu la pordojn, kiam fariĝos malvarme, por ke
 
 vi ne havu nazkataron!
 
 (Eliras dekstre.)
-
-
-## P A S KO
 
 
 Elis
@@ -799,13 +687,9 @@ De kiu?
 
 Elis
 
-Anonime! … Nu, tio estas ja nur ŝerco, mi me-
+Anonime! … Nu, tio estas ja nur ŝerco, mi metos ĝin en akvon, kaj ĝi verdiĝos kiel la basto-
 
-tos ĝin en akvon, kaj ĝi verdiĝos kiel la basto-
-
-no de Aron! Betulo … ”kiel iam en la infana-
-
-go” … Kaj Lindkvist venis tien ĉi.
+no de Aron! Betulo … ”kiel iam en la infanago” … Kaj Lindkvist venis tien ĉi.
 
 Kristina
 
@@ -847,13 +731,7 @@ Sed vi ne devas tenti min! … Lundkvist estas
 
 malriĉa homo kaj bezonas la sian … Kie pasis
 
-mia patro, estas kvazaŭ batalkampo kun mor-
-
-
-## P A S KO
-
-
-tintoj kaj vunditoj … kaj patrino kredas, ke li
+mia patro, estas kvazaŭ batalkampo kun mortintoj kaj vunditoj … kaj patrino kredas, ke li
 
 estas la viktimo! … ĉu vi volas promeni?
 
@@ -865,9 +743,7 @@ Elis
 
 ĉu vi komprenas, ke la Savanto suferis pro
 
-niaj ŝuldoj, kaj tamen ni devas daŭrigi la pa-
-
-gadon. Neniu pagas por mi!
+niaj ŝuldoj, kaj tamen ni devas daŭrigi la pagadon. Neniu pagas por mi!
 
 Kristina
 
@@ -885,9 +761,7 @@ Kristina
 
 (elrigardas tra la fonpordo).
 
-Li iras malrapide … Kaj nun li haltas ĉe la fon-
-
-tano … kaj lavas la okulojn …
+Li iras malrapide … Kaj nun li haltas ĉe la fontano … kaj lavas la okulojn …
 
 Elis
 
@@ -923,25 +797,18 @@ Montru vian skribaĵon! Kion vi faris?
 
 Benjamin
 
-Mi skribis ut kun indikativo, kvankam mi sci-
-
-is, ke devas esti konjunktivo.
+Mi skribis ut kun indikativo, kvankam mi sciis, ke devas esti konjunktivo.
 
 Elis
 
 Do vi estas perdita! Sed kiel vi povis?
 
 
-## P A S KO
-
-
 Benjamin
 
 (humile)
 
-Tion mi ne povas klarigi . . . mi sciis, kiel de-
-
-vas esti, volis skribi la ĝustan kaj faris male!
+Tion mi ne povas klarigi . . . mi sciis, kiel devas esti, volis skribi la ĝustan kaj faris male!
 
 (Sidiĝas animpremite ĉe la manĝotablo.)
 
@@ -971,9 +838,7 @@ Ke ĉio venas samtempe, ankaŭ! — Kaj vi estis
 
 mia plej bona lernanto, kion mi do povas
 
-atendi de la aliaj! — Mia reputacio kiel instru-
-
-isto perdiĝos, mi ne ricevos lecionojn plu, kaj
+atendi de la aliaj! — Mia reputacio kiel instruisto perdiĝos, mi ne ricevos lecionojn plu, kaj
 
 … ĉio disfalos!
 
@@ -1010,9 +875,6 @@ al malpacienco … Eltenu la provon, ĉar estas
 nur provo, mi sentas tiel …
 
 
-## P A S KO
-
-
 Elis
 
 ĉu jaro povos esti pli mallonga por Benjamin
@@ -1033,9 +895,7 @@ al infanoj!
 
 Kristina
 
-Estu infano, kaj mi diros tiel … Pensu pri pa-
-
-trino … kiel ŝi portas ĉion!
+Estu infano, kaj mi diros tiel … Pensu pri patrino … kiel ŝi portas ĉion!
 
 Elis
 
@@ -1087,9 +947,7 @@ La kreditoro, li kiu povas preni niajn meblojn,
 
 kiam ajn, Lindkvist, kiu venis tien ĉi por sidi
 
-kiel araneo meze en la reto kaj gardi la mu-
-
-ŝojn …
+kiel araneo meze en la reto kaj gardi la muŝojn …
 
 Kristina
 
@@ -1102,12 +960,7 @@ Ne! Ne fuĝi! … Nun, kiam vi malfortiĝis, mi
 fortiĝis … jen li alvenas sur la strato, . . . kaj
 
 
-## P A S KO
-
-
-jam ĵetis siajn malicajn rigardojn sur la kap-
-
-taĵon …
+jam ĵetis siajn malicajn rigardojn sur la kaptaĵon …
 
 Kristina
 
@@ -1115,27 +968,19 @@ Iru flanken, almenaŭ!
 
 Elis
 
-Ne, nun li amuzas min … Li ŝajnas heliĝi, kva-
-
-zaŭ li vidus la kaptaĵon en kaptilo, … Venu
+Ne, nun li amuzas min … Li ŝajnas heliĝi, kvazaŭ li vidus la kaptaĵon en kaptilo, … Venu
 
 nur! … Li kalkulas la paŝojn al la barilpordo,
 
-kaj pro la malfermita pordo li vidis, ke ni es-
+kaj pro la malfermita pordo li vidis, ke ni estas hejme … Sed nun li renkontis iun kaj hal-
 
-tas hejme … Sed nun li renkontis iun kaj hal-
-
-tas por babili … Li parolas, pri ni, ĉar li rigar-
-
-das tien ĉi …
+tas por babili … Li parolas, pri ni, ĉar li rigardas tien ĉi …
 
 Kristina
 
 Se li nur ne renkontos patrinon tie ĉi, kaj ŝi
 
-per koleraj vortoj faros lin nepacigema … Evi-
-
-tigu tion, Elis!
+per koleraj vortoj faros lin nepacigema … Evitigu tion, Elis!
 
 Elis
 
@@ -1143,13 +988,9 @@ Nun li skuas la bastonon, kvazaŭ li ĵurus, ke
 
 tie ĉi kompato ne anstataŭos justecon! … Li
 
-malbutonas la surtuton por montri, ke oni an-
+malbutonas la surtuton por montri, ke oni ankoraŭ ne prenis la vestojn de la korpo … Mi
 
-koraŭ ne prenis la vestojn de la korpo … Mi
-
-vidas sur lia buŝo, kion li diras … Kion mi re-
-
-spondu al li … ”Sinjoro, vi estas prava! Prenu
+vidas sur lia buŝo, kion li diras … Kion mi respondu al li … ”Sinjoro, vi estas prava! Prenu
 
 ĉion, ĝi apartenas al vi” …
 
@@ -1169,23 +1010,16 @@ malbenitan babiladon … jen la bastono ree
 
 moviĝas … ili ĉiam havas bastonojn, tiuj kiuj
 
-havas nepagitajn bonhavojn … kaj ledgalo-
-
-ŝojn, kiuj diras ”vitŝ, vitŝ tute kiel vergoj en la
+havas nepagitajn bonhavojn … kaj ledgaloŝojn, kiuj diras ”vitŝ, vitŝ tute kiel vergoj en la
 
 aero …
-
-
-## P A S KO
 
 
 (Metas la manon de Kristina sur sian korflankon.)
 
 … ĉu vi sentas, kiel batas mia koro … mi mem
 
-aŭdas ĝin kiel oceanŝipegon en la dekstra ore-
-
-lo . — Nu, Dio, jen li adiaŭas! … Kaj la galoŝoj!
+aŭdas ĝin kiel oceanŝipegon en la dekstra orelo . — Nu, Dio, jen li adiaŭas! … Kaj la galoŝoj!
 
 ”Vitŝ, vitŝ kiel la fastotempa branĉeto … sed li
 
@@ -1227,13 +1061,9 @@ Kaj la tagmanĝo kun Petro?
 
 Elis
 
-ĉar mi ankoraŭ ne estas invitita, mi cedas! Ce-
+ĉar mi ankoraŭ ne estas invitita, mi cedas! Cetere, kion mi faru tie en la gajeco! Renkonti
 
-tere, kion mi faru tie en la gajeco! Renkonti
-
-malfidelan amikon! Mi nur suferus en lia no-
-
-mo, tiel ke mi ne sentus min ofendita en mia
+malfidelan amikon! Mi nur suferus en lia nomo, tiel ke mi ne sentus min ofendita en mia
 
 propra!
 
@@ -1248,9 +1078,6 @@ Tion mi plej ŝatas! Kiel vi scias … ĉu ni eliru?
 Kristina
 
 Jes, tiun ĉi vojon!
-
-
-## P A S KO
 
 
 (Eliras maldekstre.)
@@ -1269,9 +1096,7 @@ Elis
 
 (prenas la branĉeton de la manĝotablo kaj metas ĝin malantaŭ la spegulon).
 
-Ne estis oliva branĉeto, kiun alportis la ko-
-
-lombo — estis betula!
+Ne estis oliva branĉeto, kiun alportis la kolombo — estis betula!
 
 Eleonora
 
@@ -1291,9 +1116,7 @@ Benjamin
 
 (infanece, simple)
 
-Estas ja paskolilio, kompreneble! Sed kiu es-
-
-tas vi?
+Estas ja paskolilio, kompreneble! Sed kiu estas vi?
 
 Eleonora
 
@@ -1326,9 +1149,6 @@ Oni ne parolas pri la mortintoj!
 Benjamin
 
 Mortintoj!
-
-
-## P A S KO
 
 
 Eleonora
@@ -1385,9 +1205,7 @@ Eleonora
 
 Ne uzu krudajn vortojn, alie mi foriros; mi
 
-estas tiel mola, ke mi ne eltenas ion malmo-
-
-lan! Sed jen … tion vi suferas pro mi?
+estas tiel mola, ke mi ne eltenas ion malmolan! Sed jen … tion vi suferas pro mi?
 
 Benjamin
 
@@ -1410,9 +1228,6 @@ Mi havis malagrablaĵon!
 Eleonora
 
 ĉu vi malĝojas pro tio? ”Vergado kaj puno
-
-
-## P A S KO
 
 
 donas saĝecon, sed kiu punon malamas, tiu
@@ -1498,20 +1313,11 @@ butiko de fratino malproksime en Ameriko.
 Kiam bone iras por mia fratino kaj ŝi povas
 
 
-## P A S KO
+vendi, tiam mi sentas ŝian ĝojon, kaj mi suferas, kiam iras malbone por ŝi, sed plej mi su-
 
+feras, kiam ŝi agas maljuste. Benjamin, vi nomiĝas Benjamin, ĉar vi estas la plej juna el
 
-vendi, tiam mi sentas ŝian ĝojon, kaj mi sufe-
-
-ras, kiam iras malbone por ŝi, sed plej mi su-
-
-feras, kiam ŝi agas maljuste. Benjamin, vi no-
-
-miĝas Benjamin, ĉar vi estas la plej juna el
-
-miaj amikoj … jes, ĉiuj homoj estas miaj ami-
-
-koj … se vi permesas al mi aligi vin, mi sufe-
+miaj amikoj … jes, ĉiuj homoj estas miaj amikoj … se vi permesas al mi aligi vin, mi sufe-
 
 ros ankaŭ por vi.
 
@@ -1521,9 +1327,7 @@ Verdire mi ne komprenas viajn vortojn, sed
 
 ŝajnas al m!, ke mi perceptas la sencon de viaj
 
-pensoj! Kaj de nun mi volas ĉion, kion vi vo-
-
-las!
+pensoj! Kaj de nun mi volas ĉion, kion vi volas!
 
 Eleonora
 
@@ -1541,9 +1345,7 @@ Eleonora
 
 ĉu vere! Do helpu al mi interpreti tion de
 
-granda filozofo. Li nome diras: ”Tiuj, kiuj ma-
-
-lamas la justulon, estos krimuloj.”
+granda filozofo. Li nome diras: ”Tiuj, kiuj malamas la justulon, estos krimuloj.”
 
 Benjamin
 
@@ -1576,9 +1378,6 @@ En la Sankta Skribo!
 Benjamin
 
 Vere? ĉu tiaj aferoj troviĝas tie?
-
-
-## P A S KO
 
 
 Eleonora
@@ -1617,9 +1416,7 @@ la krudaj vortoj, kiujn la mola, belruĝa kupro
 
 ne povas toleri . . . kiam la homoj kalumnias
 
-unu la alian en telefono, tiam plendas la ku-
-
-pro, kaj akuzas… —
+unu la alian en telefono, tiam plendas la kupro, kaj akuzas… —
 
 (Forte.)
 
@@ -1645,14 +1442,9 @@ Eleonora
 
 (al si)
 
-Ke homoj estas tiel senpensaj, ke ili metas si-
-
-ajn sekretojn en fornojn … Kien ajn mi venas,
+Ke homoj estas tiel senpensaj, ke ili metas siajn sekretojn en fornojn … Kien ajn mi venas,
 
 ili tuj iras al la forno! Sed mi neniam misuzas
-
-
-## P A S KO
 
 
 tion, tion mi ne kuraĝus, ĉar tiam mi suferus!
@@ -1663,9 +1455,7 @@ tion, tion mi ne kuraĝus, ĉar tiam mi suferus!
 
 Benjamin
 
-Estas licenciato Petro, kiu skribas kaj inter-
-
-konsentas pri renkonto kun Kristina … TIon
+Estas licenciato Petro, kiu skribas kaj interkonsentas pri renkonto kun Kristina … TIon
 
 mi longe atendis!
 
@@ -1673,15 +1463,11 @@ Eleonora
 
 (metas la manon sur la paperojn)
 
-Ho, vi, kion vi atendis? Diru, vi malbona ho-
-
-mo, kiu kredas nur malbonon! Tiu ĉi letero
+Ho, vi, kion vi atendis? Diru, vi malbona homo, kiu kredas nur malbonon! Tiu ĉi letero
 
 alportos nur bonon, ĉar mi konas Kristinan,
 
-kiu estos mia bofratino. Kaj tiu renkonto evi-
-
-tigos malfeliĉon al frato Elis … ĉu vi prome-
+kiu estos mia bofratino. Kaj tiu renkonto evitigos malfeliĉon al frato Elis … ĉu vi prome-
 
 sas silenti, Benjamin?
 
@@ -1723,9 +1509,7 @@ Ili ja ne povas paroli?
 
 Eleonora
 
-ĉu vi ne aŭdis sturnojn, kiujn oni instruis pa-
-
-roli?
+ĉu vi ne aŭdis sturnojn, kiujn oni instruis paroli?
 
 Benjamin
 
@@ -1736,18 +1520,13 @@ Eleonora
 Sekve sturnoj povas lerni paroli! Jen troviĝas
 
 
-## P A S KO
-
-
 tiaj, kiuj instruas sin mem, estas aŭtodidaktoj
 
 … kompreneble ili sidas kaj aŭskultas, sen ke
 
 ni scias, kaj poste ili imitas. Jus, kiam mi venis,
 
-mi aŭdis du, kiuj sidis kaj babilis sur la jug-
-
-landarbo.
+mi aŭdis du, kiuj sidis kaj babilis sur la juglandarbo.
 
 Benjamin
 
@@ -1759,9 +1538,7 @@ Jen! ”Petro” — diris unu. ”Judaso” diris la alia
 
 — ”Same multe” diris la unua. — ”Fi, fi, fi!”
 
-diris la dua. Sed ĉu vi rimarkis, ke la najting-
-
-aloj kantas nur en la ĝardeno de la surdmutu-
+diris la dua. Sed ĉu vi rimarkis, ke la najtingaloj kantas nur en la ĝardeno de la surdmutu-
 
 loj tie ĉi apude?
 
@@ -1793,9 +1570,7 @@ Neniam disputu pri miaj vortoj, kaj neniam
 
 diru, ke tiel vi diris tiam, kaj tiam vi diris tiel
 
-… ĉu mi parolu ankoraŭ pri birdoj! Estas ma-
-
-lica birdo, kiu nomiĝas mus-buteo; kiel la no-
+… ĉu mi parolu ankoraŭ pri birdoj! Estas malica birdo, kiu nomiĝas mus-buteo; kiel la no-
 
 mo diras, ili vivas de musoj. Sed ĉar ĝi estas
 
@@ -1803,31 +1578,20 @@ malica birdo, ĝi laŭdire malfacile kaptas la
 
 musojn. Tial ĝi povas diri nur unu vorton, kaj
 
-ĝi sonas, kiel la kato diras ”miaŭ”. Kiam la bu-
+ĝi sonas, kiel la kato diras ”miaŭ”. Kiam la buteo diras ”miaŭ”, tiam la musoj kaŝas sin …
 
-teo diras ”miaŭ”, tiam la musoj kaŝas sin …
-
-sed la buteo ne komprenas, kion ĝi mem di-
-
-ras — sed manĝaĵo ofte mankas al ĝi, ĉar ĝi
-
-
-## P A S KO
+sed la buteo ne komprenas, kion ĝi mem diras — sed manĝaĵo ofte mankas al ĝi, ĉar ĝi
 
 
 estas malica! — ĉu vi volas aŭdi pli? Aŭ ĉu mi
 
-parolu pri floroj? … Jen, kiam mi estis mals-
-
-ana, mi devis preni drogon de hiskiamo, kiu
+parolu pri floroj? … Jen, kiam mi estis malsana, mi devis preni drogon de hiskiamo, kiu
 
 havas la kvaliton, ke ĝi faras grandigvitron el
 
 la okulo … Male la beladono faras tiel, ke oni
 
-vidas ĉion malgrandigita … Bone, nun mi po-
-
-vas vidi pli malproksimen ol aliaj, kaj mi po-
+vidas ĉion malgrandigita … Bone, nun mi povas vidi pli malproksimen ol aliaj, kaj mi po-
 
 vas vidi la stelojn meze en la tago!
 
@@ -1839,9 +1603,7 @@ Eleonora
 
 Kiel amuza vi estas! La steloj ja ĉian estas sur
 
-la ĉielo … kaj nun mi sidas alnorde kaj rigar-
-
-das Cassiopean, kiu similas, al duobla v kaj
+la ĉielo … kaj nun mi sidas alnorde kaj rigardas Cassiopean, kiu similas, al duobla v kaj
 
 sidas meze en la Lakta vojo … ĉu vi povas vidi
 
@@ -1861,9 +1623,7 @@ pri viaj okuloj! … Nun mi volas paroli pri tiu
 
 ĉi floro, kiu staras sur la tablo … Estas paska
 
-lilio, kiu estas hejme en Svisujo … ĝi havas ka-
-
-likon, kiu trinĝissunlumon, tial tiu estas flava
+lilio, kiu estas hejme en Svisujo … ĝi havas kalikon, kiu trinĝissunlumon, tial tiu estas flava
 
 kaj trankviligas dolorojn … Mi ĵus preteriris
 
@@ -1882,26 +1642,15 @@ provis … ĉu vi povas imagi, mia pordŝlosilo
 konvenis … Mi eniris … Jes, ĉu vi komprenas
 
 
-## P A S KO
+la silentan lingvon de la floroj? ĉiu odoro esprimas amason da pensoj, kaj tiuj pensoj ata-
 
-
-la silentan lingvon de la floroj? ĉiu odoro es-
-
-primas amason da pensoj, kaj tiuj pensoj ata-
-
-kis min; kaj per mia pligrandigita okulo mi vi-
-
-dis en iliajn laboratoriojn, kiujn neniu vidis.
+kis min; kaj per mia pligrandigita okulo mi vidis en iliajn laboratoriojn, kiujn neniu vidis.
 
 Kaj ili parolis al mi pri siaj ĉagrenoj, kiujn
 
-kaŭzis al ili la malsaĝa ĝardenisto, — mi ne di-
+kaŭzis al ili la malsaĝa ĝardenisto, — mi ne diras kruela — ĉar li estas nur senpripensa! …
 
-ras kruela — ĉar li estas nur senpripensa! …
-
-metis unu kronon kaj mian karton sur la ven-
-
-dotablon — prenis la floron kaj foriris.
+metis unu kronon kaj mian karton sur la vendotablon — prenis la floron kaj foriris.
 
 Benjamin
 
@@ -1951,19 +1700,12 @@ Benjamin
 
 Eleonora
 
-Silentu! Kaj parolu pri io alia! … Lektoro Ahl-
-
-gren! … Kompatinda Elis! Kompatindaj ni
+Silentu! Kaj parolu pri io alia! … Lektoro Ahlgren! … Kompatinda Elis! Kompatindaj ni
 
 ĉiuj! Sed estas pasko, kaj ni devas suferi. Estos
 
 
-## P A S KO
-
-
-ja koncerto morgaŭ kaj oni ludos ”La sep vor-
-
-toj sur la kruco” de Haydn! ”Patrino, vidu vian
+ja koncerto morgaŭ kaj oni ludos ”La sep vortoj sur la kruco” de Haydn! ”Patrino, vidu vian
 
 filon!”
 
@@ -1975,9 +1717,7 @@ Kian malsanon vi havis?
 
 Eleonora
 
-Tiu malsano ne estas mortiga, sed por la glo-
-
-ro de Dio! ”Mi atendis bonon, sed venis mal-
+Tiu malsano ne estas mortiga, sed por la gloro de Dio! ”Mi atendis bonon, sed venis mal-
 
 bono; mi atendis lumon, sed venis mallumo!”
 
@@ -1997,9 +1737,7 @@ ion, tio estis nur kiel memoroj. Mi konis la …
 
 senpripensecon kaj malsaĝon de la homoj,
 
-kiam mi estis kvarjara, kaj tial oni estis malbo-
-
-na al mi!
+kiam mi estis kvarjara, kaj tial oni estis malbona al mi!
 
 Benjamin
 
@@ -2031,17 +1769,9 @@ sola amiko sur la tero! …
 
 Sed … li ne atendas min! Kaj li ne ĝojos, kiam
 
-li vidos min! Ne, li ne ĝojos! … Certe ne! — Be-
+li vidos min! Ne, li ne ĝojos! … Certe ne! — Benjamin, Benjamin, montru afablan vizaĝon
 
-
-## P A S KO
-
-
-njamin, Benjamin, montru afablan vizaĝon
-
-kaj gajan humoron, kiam venos mia kompa-
-
-tinda frato. Mi eniros tien, kaj vi sciigu al li
+kaj gajan humoron, kiam venos mia kompatinda frato. Mi eniros tien, kaj vi sciigu al li
 
 mian alvenon. Sed atentu, neniujn malmolajn
 
@@ -2106,9 +1836,6 @@ trasuferi tiun tutan pasiotempan historion —
 Denove!
 
 
-## P A S KO
-
-
 Sinjorino Heyst Jes, sed oni tamen senkulpigos lin en la dua instanco!
 
 Elis
@@ -2137,13 +1864,9 @@ Sinjorino Heyst Estas malbone fari tiel!
 
 Elis
 
-Mi scias, sed mi ja estas ĵetata kiel lignospli-
+Mi scias, sed mi ja estas ĵetata kiel lignosplito inter kontraŭaj ondoj.
 
-to inter kontraŭaj ondoj.
-
-Sinjorino Heyst Precize ŝajnis al mi, ke mi aŭdas, fremdan vo-
-
-ĉon, kiun mi rekonas! — Sed verŝajne mi era-
+Sinjorino Heyst Precize ŝajnis al mi, ke mi aŭdas, fremdan voĉon, kiun mi rekonas! — Sed verŝajne mi era-
 
 ris!
 
@@ -2155,9 +1878,7 @@ Mi diris, ke tiu surtuto ne pendu tie!
 
 Elis
 
-(tiras sin maldekstren; ekvidas la paskolilion sur la man-
-
-ĝotablo. Al Benjamin.)
+(tiras sin maldekstren; ekvidas la paskolilion sur la manĝotablo. Al Benjamin.)
 
 De kie venis tiu floro ?
 
@@ -2180,9 +1901,6 @@ Elis
 Benjamin
 
 Jes!
-
-
-## P A S KO
 
 
 Elis
@@ -2211,15 +1929,11 @@ Benjamin
 
 Elis
 
-Strange! … ĉu ŝi parolis pri mi? ĉu ŝi tre kole-
-
-ris kontraŭ mi?
+Strange! … ĉu ŝi parolis pri mi? ĉu ŝi tre koleris kontraŭ mi?
 
 Benjamin
 
-Ne! Tute male! ŝi diris, ke vi estas ŝia plej bo-
-
-na, sola amiko sur la tero …
+Ne! Tute male! ŝi diris, ke vi estas ŝia plej bona, sola amiko sur la tero …
 
 Elis
 
@@ -2278,9 +1992,6 @@ Benjamin
 Jes!
 
 
-## P A S KO
-
-
 Elis
 
 Kompatinda Eleonora, kiu mem estas tiei
@@ -2290,9 +2001,6 @@ malfeliĉa kaj povas ĝojigi aliajn!
 (Eliras maldekstre, hezite.)
 
 Dio helpu min!
-
-
-## P A S KO
 
 
 DUA AKTO
@@ -2316,9 +2024,6 @@ Sur la skribtablo kuŝas la procesaj aktoj dissternitaj. Sur la kudrotablo stara
 Tiam kaj tiam vidiĝas sur la kurtenoj ombro de preterpasanto sur la strato.
 
 
-## P A S KO
-
-
 Elis
 
 (duonlaŭte al Kristina)
@@ -2327,9 +2032,7 @@ Jes, Sankta vendredo! Sed tiel terure longa!
 
 Kaj sur la stratŝtonoj kuŝas la neĝo kiel pajlo
 
-antaŭ la loĝejo de mortanto; ĉiu sono silen-
-
-tiĝis — krom la bazoj de la orgeno, kiujn mi
+antaŭ la loĝejo de mortanto; ĉiu sono silentiĝis — krom la bazoj de la orgeno, kiujn mi
 
 aŭdas eĉ tie ĉi …
 
@@ -2339,9 +2042,7 @@ Patrino ŝajne iris al la vespera diservo …
 
 Elis
 
-Jes, ĉar ŝi ne kuragis iri al la tagmeza … la ri-
-
-gardoj de la homoj vundas ŝin …
+Jes, ĉar ŝi ne kuragis iri al la tagmeza … la rigardoj de la homoj vundas ŝin …
 
 Kristina
 
@@ -2402,14 +2103,9 @@ Kristina
 Rigardu ilin!
 
 
-## P A S KO
-
-
 Elis
 
-ĉu vi rimarkis, kiel Benjamin ŝanĝiĝis? La ob-
-
-tuza spito donis lokon al kvieta submetiĝo …
+ĉu vi rimarkis, kiel Benjamin ŝanĝiĝis? La obtuza spito donis lokon al kvieta submetiĝo …
 
 Kristina
 
@@ -2471,9 +2167,7 @@ tiuj etuloj …
 
 Kristina
 
-Silentu, silentu … ne tuŝu la flugilojn de la pa-
-
-pilio! Alie ĝi flugos for!
+Silentu, silentu … ne tuŝu la flugilojn de la papilio! Alie ĝi flugos for!
 
 Elis
 
@@ -2488,9 +2182,6 @@ Kristina
 Silentu!
 
 
-## P A S KO
-
-
 Elis
 
 Jen, nun ŝi ne povas regi sin …
@@ -2501,9 +2192,7 @@ Eleonora
 
 Kristina
 
-ŝi volas montri sian tutan afablecon, kompat-
-
-inda Eleonora.
+ŝi volas montri sian tutan afablecon, kompatinda Eleonora.
 
 Elis
 
@@ -2525,33 +2214,23 @@ tamen restas kiel dornoj en la fundo de mia
 
 okulo. La diroj de la atestantoj, ciferaj sumoj,
 
-la konfesoj de patro … tiel: ”la akuzito konfe-
-
-sis kun larmoj” … Tiom da larmoj, tiom da
+la konfesoj de patro … tiel: ”la akuzito konfesis kun larmoj” … Tiom da larmoj, tiom da
 
 larmoj. Kaj tiuj paperoj … kun siaj stampoj,
 
-kiuj memorigas pri falsaj monbiletoj aŭ mal-
-
-liberejaj seruroj; kaj la ŝnuroj kaj la ruĝaj sige-
+kiuj memorigas pri falsaj monbiletoj aŭ malliberejaj seruroj; kaj la ŝnuroj kaj la ruĝaj sige-
 
 loj … ili similas al la kvin vundoj de Jesuo …
 
-kaj la frazoj, kiuj ne havas finon — al la eter-
+kaj la frazoj, kiuj ne havas finon — al la eternaj suferoj … Estas laboro por la Sankta vend-
 
-naj suferoj … Estas laboro por la Sankta vend-
-
-redo … Hieraŭ lumis la suno, hieraŭ ni vetu-
-
-ris kamparen, en la pensoj … Kristina … ima-
+redo … Hieraŭ lumis la suno, hieraŭ ni veturis kamparen, en la pensoj … Kristina … ima-
 
 gu, se ni devos resti tie ĉi dum la somero!
 
 Kristina
 
-Ni ŝparus multe da mono … sed estus malga-
-
-je!
+Ni ŝparus multe da mono … sed estus malgaje!
 
 Elis
 
@@ -2562,26 +2241,17 @@ tie ĉi … kaj estas kiel en tombo. Meze de la
 tago, kaj oni vidas la longan, grizan straton
 
 
-## P A S KO
-
-
 serpenti kiel tranĉeo, neniun homon, neniun
 
-ĉevalon, neniun hundon … Sed el la kloak-
-
-elfluejoj elvenas la ratoj, ĉar la katoj someru-
+ĉevalon, neniun hundon … Sed el la kloakelfluejoj elvenas la ratoj, ĉar la katoj someru-
 
 mas … Kaj malantaŭ la reflektspeguloj sidas
 
 kelkaj restantoj kaj observas la vestojn de siaj
 
-proksimuloj … ”Jen, tiu portas vintran kostu-
+proksimuloj … ”Jen, tiu portas vintran kostumon!” … kaj la oblikvajn kalkanumojn de siaj
 
-mon!” … kaj la oblikvajn kalkanumojn de siaj
-
-proksimuloj kaj iliajn erarojn … Kaj el la kvar-
-
-taloj de la malriĉuloj elrampas kripluloj, kiuj
+proksimuloj kaj iliajn erarojn … Kaj el la kvartaloj de la malriĉuloj elrampas kripluloj, kiuj
 
 antaŭe sin kaŝis, homoj sen nazoj kaj oreloj,
 
@@ -2591,13 +2261,9 @@ la granda promenejo kaj sunas sin, kvazaŭ
 
 konkerintoj de la urbo … kie ĵus ludis belaj,
 
-bonvestitaj infanoj dum karesaj, vigligaj vor-
+bonvestitaj infanoj dum karesaj, vigligaj vortoj de belaj patrinoj, tie nun svarmas aroj da
 
-toj de belaj patrinoj, tie nun svarmas aroj da
-
-ĉifonuloj, kiuj insultas kaj suferigas unu la ali-
-
-an … Mi memoras Johanotagon antaŭ du ja-
+ĉifonuloj, kiuj insultas kaj suferigas unu la alian … Mi memoras Johanotagon antaŭ du ja-
 
 roj!
 
@@ -2617,9 +2283,7 @@ Elis
 
 (sidiĝas ĉe la skribtablo)
 
-Se nur ĉesus neĝi! Kaj oni povus eliri kaj pro-
-
-meni!
+Se nur ĉesus neĝi! Kaj oni povus eliri kaj promeni!
 
 Kristina
 
@@ -2629,12 +2293,7 @@ mallumo revenu, por ke la homoj ne vidu nin
 
 … ”La mallumo estas tiel agrabla kaj bonfara”,
 
-vi diris; ”estas kvazaŭ kaŝi la kapon sub la lit-
-
-kovrilo!”
-
-
-## P A S KO
+vi diris; ”estas kvazaŭ kaŝi la kapon sub la litkovrilo!”
 
 
 Elis
@@ -2661,9 +2320,7 @@ malvarmon?
 
 Kristina
 
-Ne, sed varme ne estas! … Lina ne estas hej-
-
-me?
+Ne, sed varme ne estas! … Lina ne estas hejme?
 
 Elis
 
@@ -2712,9 +2369,6 @@ Elis
 nekomprenebla. Kompatinda patrinol
 
 Sinjorino Heyst (eniras; nigre vestita, kun himnlibro kaj naztuko en la mano)
-
-
-## P A S KO
 
 
 Bonan vesperon, infanoj.
@@ -2778,9 +2432,6 @@ Sinjorino Heyst Demandis, kiel mi fartas … kaj, imagu mian teruriĝon, demandi
 hodiaŭ vespere.
 
 
-## P A S KO
-
-
 Elis
 
 En festotaga vespero?
@@ -2797,9 +2448,7 @@ Elis
 
 Tien ĉi? Nun?
 
-Sinjorino Heyst Li diris, ke li volas transdoni paperon, kiu ur-
-
-ĝas.
+Sinjorino Heyst Li diris, ke li volas transdoni paperon, kiu urĝas.
 
 Elis
 
@@ -2825,9 +2474,7 @@ Sinjorino Heyst Sed la meblojn li ne prenu. Kie ni loĝus, se li forprenus ĉiuj
 
 Elis
 
-La vulpoj havas kavernojn kaj la birdoj ne-
-
-stojn, ekzistas senhejmuloj, kiuj loĝas en la ar-
+La vulpoj havas kavernojn kaj la birdoj nestojn, ekzistas senhejmuloj, kiuj loĝas en la ar-
 
 baro.
 
@@ -2840,18 +2487,13 @@ Elis
 Nun mi legos, patrino!
 
 
-## P A S KO
-
-
 Sinjorino Heyst ĉu vi ne trovis eraron?
 
 Elis
 
 Ne, mi kredas, ke ekzistas neniu!
 
-Sinjorino Heyst Sed mi ĵus renkontis la urban notarion, kaj li diris, ke povus esti iu formala eraro, iu netaŭ-
-
-ga atestanto, iu nepruvita aserto aŭ iu kon-
+Sinjorino Heyst Sed mi ĵus renkontis la urban notarion, kaj li diris, ke povus esti iu formala eraro, iu netaŭga atestanto, iu nepruvita aserto aŭ iu kon-
 
 traŭdira atesto. Certe vi ne legas zorge!
 
@@ -2861,9 +2503,7 @@ Tamen, patrino, sed estas tiel turmente …
 
 Sinjorino Heyst Aŭdu, mi ĵus renkontis la urban notarion, —
 
-vere, tion mi ja diris — kaj li rakontis pri ŝte-
-
-lenrompo, okazis en la urbo hieraŭ, meze en
+vere, tion mi ja diris — kaj li rakontis pri ŝtelenrompo, okazis en la urbo hieraŭ, meze en
 
 la hela tago.
 
@@ -2873,21 +2513,15 @@ Elis
 
 Enrompo? Tie ĉi en la urbo? Kie?
 
-Sinjorino Heyst Laŭdire estis, en la florvendejo en la Mona-
+Sinjorino Heyst Laŭdire estis, en la florvendejo en la Monaęja strato. ĉio estis tre stranga. Estis tiel: la
 
-ęja strato. ĉio estis tre stranga. Estis tiel: la
-
-vendisto fermis sian butikon por iri al la pre-
-
-ĝejo, kie lia filo, … eble estis la filino, estos
+vendisto fermis sian butikon por iri al la preĝejo, kie lia filo, … eble estis la filino, estos
 
 konfirmata. Jen kiam li revenis ĉirkaŭ la tria,
 
 eble estis la kvara, sed tio ja ne gravas … nu,
 
-tiam la butika pordo estis malfermita kaj flo-
-
-roj mankis, tuta amaso, speciale flava tulipo,
+tiam la butika pordo estis malfermita kaj floroj mankis, tuta amaso, speciale flava tulipo,
 
 kion li unue rimarkis!
 
@@ -2899,17 +2533,12 @@ Sinjorino Heyst Ne, estis tulipo, tio estas tute certa. Jes, kaj nun la polico m
 
 (Eleonora leviĝas, kvazaŭ ŝi volos paroli, sed Benjamin iras al ŝi kaj flustras ion.)
 
-Sinjorino Heyst Imagu, fari enrompon eĉ en la sankta ĵaŭdo, 43
-
-
-## P A S KO
+Sinjorino Heyst Imagu, fari enrompon eĉ en la sankta ĵaŭdo,
 
 
 kiam la gejunuloj konfirmiĝas … Nur friponoj,
 
-la tuta urbo! Kaj tial oni metas senkulpajn ho-
-
-mojn en malliberejon.
+la tuta urbo! Kaj tial oni metas senkulpajn homojn en malliberejon.
 
 Elis
 
@@ -2925,9 +2554,7 @@ Sinjorino Heyst Kaj se Lina nur venus hejmen! … Jes, mi aŭdis pri la tagmanĝ
 
 Elis
 
-Tio surprizas min, ĉar oni ĉiam opiniis, ke Pe-
-
-tro estas kontraŭ la guberniestra partio!
+Tio surprizas min, ĉar oni ĉiam opiniis, ke Petro estas kontraŭ la guberniestra partio!
 
 Sinjorino Heyst Kredeble li do ŝangis opinion.
 
@@ -2943,9 +2570,7 @@ Li estas malhelpanto! Li malhelpas ĉion; li
 
 malhelpis la popolan altlernejon, malhelpis la
 
-armilekzercojn de la junuloj, li volis malebli-
-
-gi la senkulpajn biciklojn, la belajn somerko-
+armilekzercojn de la junuloj, li volis malebligi la senkulpajn biciklojn, la belajn somerko-
 
 loniojn por lernantoj … kaj li malhelpis min!
 
@@ -2955,9 +2580,7 @@ kaj Petro dankis
 
 Elis
 
-… kortuŝite, mi supozas, kaj perfidis sian in-
-
-struiston dirante: ”Mi ne konas tiun homon.”
+… kortuŝite, mi supozas, kaj perfidis sian instruiston dirante: ”Mi ne konas tiun homon.”
 
 Kaj ree kriis la koko! ĉu la guberniestro ne
 
@@ -2965,10 +2588,7 @@ nomiĝis Pontius kun la postnomo Pilato?
 
 Eleonora
 
-(movas sin, kvazaŭ ŝi volus paroli, sed trankviliĝas) 44
-
-
-## P A S KO
+(movas sin, kvazaŭ ŝi volus paroli, sed trankviliĝas)
 
 
 Sinjorino Heyst Ne estu tiel amara, Elis. Homoj estas homoj, kaj oni devas toleri ilin!
@@ -2981,9 +2601,7 @@ Sinjorino Heyst ĉu vi povas aŭdi lin en la neĝo?
 
 Elis
 
-Mi aŭdas lian bastonon puŝi la ŝtonojn kaj li-
-
-ajn galoŝojn! … Eliru, panjo!
+Mi aŭdas lian bastonon puŝi la ŝtonojn kaj liajn galoŝojn! … Eliru, panjo!
 
 Sinjorino Heyst Ne, nun mi volas resti por diri ion al li!
 
@@ -3001,9 +2619,7 @@ Ne blasfemu!
 
 Sinjorino Heyst (kun esprimo de anima grandeco)
 
-”ĉu ne prefere maljustulo hava tiun ĉi mal-
-
-facilaĵon kaj malbonfaranto suferu en tia mi-
+”ĉu ne prefere maljustulo hava tiun ĉi malfacilaĵon kaj malbonfaranto suferu en tia mi-
 
 zero.”
 
@@ -3024,21 +2640,13 @@ Elis
 
 Li haltis! … Eble ŝajnas al li ne dece … aŭ tro
 
-kruele! … Sed certe ne ŝajnas al li tiel, al li, kiu povis skribi tiel terurajn leterojn! i ĉiam es-45
-
-
-## P A S KO
-
-
-tis sur blua papero, kaj de tiam mi ne povas
+kruele! … Sed certe ne ŝajnas al li tiel, al li, kiu povis skribi tiel terurajn leterojn! i ĉiam estis sur blua papero, kaj de tiam mi ne povas
 
 vidi bluan leteron sen tremi!
 
 Kristina
 
-Kion vi intencas diri, kion vi intencas propo-
-
-ni?
+Kion vi intencas diri, kion vi intencas proponi?
 
 Elis
 
@@ -3056,9 +2664,7 @@ Ni supozu la plej malbonan! Li prenos ĉion …
 
 Elis
 
-Poste venos la dommastro kaj volas havi ga-
-
-rantion, kiun mi ne povas havigi … Li volas
+Poste venos la dommastro kaj volas havi garantion, kiun mi ne povas havigi … Li volas
 
 havi garantion, kiam la mebloj ne plu staras
 
@@ -3105,12 +2711,7 @@ Kia feliĉo, ke mi ne partoprenis la tagmanĝon
 hieraŭ … Certe mi estus farinta paroladon
 
 
-## P A S KO
-
-
-kontraŭ la guberniestro, … kaj tiel, estus de-
-
-truinta ĉion por mi kaj ni! Estis granda feIiĉo!
+kontraŭ la guberniestro, … kaj tiel, estus detruinta ĉion por mi kaj ni! Estis granda feIiĉo!
 
 Kristina
 
@@ -3130,9 +2731,7 @@ Mi volis diri … mian! Jen, nun li denove estas
 
 tie! Ve al ni!
 
-(Oni vidas sur la kurteno la ombron de viro, kiu hezite proksimiĝas. La ombro iom post lom grandiĝas kaj fari-
-
-ĝas giganta. ĉiujn kaptas plej granda angoro.)
+(Oni vidas sur la kurteno la ombron de viro, kiu hezite proksimiĝas. La ombro iom post lom grandiĝas kaj fariĝas giganta. ĉiujn kaptas plej granda angoro.)
 
 La giganto! La giganto, kiu volas engluti nin!
 
@@ -3152,17 +2751,13 @@ Rigardu la bastonon, do, kaj vi devos ridi!
 
 Elis
 
-Li foriris! Nun mi povas spiri, ĉar nun li reve-
-
-nos nur morgaŭ! Ho!
+Li foriris! Nun mi povas spiri, ĉar nun li revenos nur morgaŭ! Ho!
 
 Kristina
 
 Kaj morgaŭ brilos la suno, tiam estos la tago
 
-antaŭ la reviviĝo, la neĝo estos for, kaj la bir-
-
-doj kantos.
+antaŭ la reviviĝo, la neĝo estos for, kaj la birdoj kantos.
 
 Elis
 
@@ -3187,9 +2782,6 @@ Elis
 Kion? Diru?
 
 
-## P A S KO
-
-
 Kristina
 
 Kiam mi nun … petas vin pri io.
@@ -3208,9 +2800,7 @@ Provo! Provsufero? Bone!
 
 Kristina
 
-Permesu … Ne, mi ne kuraĝas! Povos malsuk-
-
-cesi!
+Permesu … Ne, mi ne kuraĝas! Povos malsukcesi!
 
 Eleonora
 
@@ -3224,9 +2814,7 @@ Kristina
 
 Certe oni devos penti tion! … Sed estu! Elis,
 
-permesu al mi iri al la koncerto hodiaŭ vespe-
-
-re.
+permesu al mi iri al la koncerto hodiaŭ vespere.
 
 Elis
 
@@ -3283,9 +2871,6 @@ Iru! Mi fidas al vi; sed tamen mi suferas pro
 tio, ke vi serĉis kuneston kun tiu perffidulo!
 
 
-## P A S KO
-
-
 Kristina
 
 Tion mi komprenas! Sed estas ja provo!
@@ -3318,9 +2903,7 @@ Elis
 
 (al la telefono)
 
-Hola! … Neniu respondo! … Hola! … Respon-
-
-das per mia propra voĉo! … Kiu parolas? …
+Hola! … Neniu respondo! … Hola! … Respondas per mia propra voĉo! … Kiu parolas? …
 
 Kiel strange! Mi aŭdas miajn proprajn vortojn
 
@@ -3371,18 +2954,13 @@ is revido, mia amiko!
 Por ĉiam!
 
 
-## P A S KO
-
-
 (Elkuras maldekstre.)
 
 Eleonora
 
 Helpu nin Dio, kion mi faris? La polico serĉas
 
-la kulpulon, kaj se oni trovos min — kompat-
-
-inda patrino, kaj Elis!
+la kulpulon, kaj se oni trovos min — kompatinda patrino, kaj Elis!
 
 Benjamin
 
@@ -3414,9 +2992,7 @@ Eleonora
 
 Ne, mi maljuste agis, kaj mi estu punata per
 
-maltrankvilo. Mi vekis ilian timon pro enrom-
-
-po, kaj mi estu timigata.
+maltrankvilo. Mi vekis ilian timon pro enrompo, kaj mi estu timigata.
 
 Benjamin
 
@@ -3438,16 +3014,9 @@ ping, ping! Nun estas la oka! Ping, ping, ping
 
 dekdua! … Nun estas sankta sabato! Baldaŭ la
 
-suno leviĝos, kaj tiam ni skribos sur la pas-
+suno leviĝos, kaj tiam ni skribos sur la paskovoj! Mi skribos tiel: ”Jen postulis vin la mal-
 
-kovoj! Mi skribos tiel: ”Jen postulis vin la mal-
-
-amiko por kribri vin kiel tritikon; sed mi pre-
-
-ĝis por vi” …
-
-
-## P A S KO
+amiko por kribri vin kiel tritikon; sed mi preĝis por vi” …
 
 
 Benjamin
@@ -3456,17 +3025,13 @@ Kial vi tiel turmentas vin, Eleonora?
 
 Eleonora
 
-Mi! Turmentas! Benjamin, pensu pri ĉiuj ek-
-
-florintaj floroj, bluanemonoj kaj galantoj, kiuj
+Mi! Turmentas! Benjamin, pensu pri ĉiuj ekflorintaj floroj, bluanemonoj kaj galantoj, kiuj
 
 staris en la neĝo la tutan tagon kaj la tutan
 
 nokton kaj sentas froston en la mallumo!
 
-Kiom ili suferas! Certe la nokto estas plej mal-
-
-facila, kiam estas mallume kaj ili timas la mal-
+Kiom ili suferas! Certe la nokto estas plej malfacila, kiam estas mallume kaj ili timas la mal-
 
 lumon kaj ne povas forkuri … kaj staras kaj
 
@@ -3486,15 +3051,11 @@ Eleonora
 
 Ne ekzistas tiom da kavaj arboj, ke sufiĉas por
 
-ĉiuj! Mi vidis nur du kavajn arbojn en la par-
-
-koj, kaj tie loĝas ja la strigoj, kiuj mortigas la
+ĉiuj! Mi vidis nur du kavajn arbojn en la parkoj, kaj tie loĝas ja la strigoj, kiuj mortigas la
 
 birdetojn … Kompatinda Elis, kiu kredas, ke
 
-Kristina foriris de li; sed mi scias, ke ŝi reve-
-
-nos!
+Kristina foriris de li; sed mi scias, ke ŝi revenos!
 
 Benjamin
 
@@ -3504,9 +3065,7 @@ Eleonora
 
 ĉar Elis devas suferi; ĉiuj devas suferi en la
 
-Sankta vendredo por memorigi al si la sufe-
-
-rojn de Kristo sur la kruco.
+Sankta vendredo por memorigi al si la suferojn de Kristo sur la kruco.
 
 (Polica fajfilo sonas ekstere sur la strato.)
 
@@ -3525,9 +3084,6 @@ Eleonora
 Ne!
 
 
-## P A S KO
-
-
 Benjamin
 
 Estis la polico!
@@ -3544,9 +3100,7 @@ Benjamin
 
 (starigas sntraŭ la fonpordo antaŭ Eleonoran)
 
-Ne, ili ne prenu vin! Mi vin defendos, Eleono-
-
-ra!
+Ne, ili ne prenu vin! Mi vin defendos, Eleonora!
 
 Eleonora
 
@@ -3558,9 +3112,7 @@ Benjamin
 
 Estas du!
 
-(Eleonora volas forŝovi Benjaminon, sed li milde kontraŭ-
-
-staras.)
+(Eleonora volas forŝovi Benjaminon, sed li milde kontraŭstaras.)
 
 Ne vi, Eleonora, tiam — mi ne volus vivi plu!
 
@@ -3576,9 +3128,7 @@ Eleonora
 
 (elrigardas malantaŭ la kurtenoj sen kaŝi sin)
 
-Estis nur du knaboj! Ho, ni senfidaj; ĉu vi kre-
-
-das, ke Dio estis tiel kruela, kvankam mi ne-
+Estis nur du knaboj! Ho, ni senfidaj; ĉu vi kredas, ke Dio estis tiel kruela, kvankam mi ne-
 
 nion malbonan faris, nur agis senpense …
 
@@ -3586,28 +3136,19 @@ Tion mi meritis! Kial mi malfidis!
 
 Benjamin
 
-Sed morgaŭ venos li, kiu volas preni la me-
-
-blojn.
+Sed morgaŭ venos li, kiu volas preni la meblojn.
 
 Eleonora
 
-Li venu! Kaj ni eliru! De ĉio … de ĉiuj malno-
-
-vaj mebloj, kiujn patro kolektis por ni, kaj ki-
+Li venu! Kaj ni eliru! De ĉio … de ĉiuj malnovaj mebloj, kiujn patro kolektis por ni, kaj ki-
 
 ujn mi vidis, de kiam mi estis infaneto! Jes, oni
 
-ne devas posedi ion, kio ligas al la tero. Ekste-
-
-ren sur la ŝtonajn vojojn por iradi per vundaj
+ne devas posedi ion, kio ligas al la tero. Eksteren sur la ŝtonajn vojojn por iradi per vundaj
 
 piedoj, ĉar tiu vojo kondukas supren, kaj tial
 
 ĝi estas peniga …
-
-
-## P A S KO
 
 
 Benjamin
@@ -3630,15 +3171,11 @@ miajn horojn kaj tagojn. …
 
 … kaj ĝi haltis en la horo, kiam avo mortis, ĉar
 
-ĝi kunestis jam tiam! Adiaŭ, horloĝeto, vi bal-
-
-daŭ denove haltu! … Jen, ĝi kutimis fruiĝi,
+ĝi kunestis jam tiam! Adiaŭ, horloĝeto, vi baldaŭ denove haltu! … Jen, ĝi kutimis fruiĝi,
 
 kiam ni havis malfeliĉon en la domo, kvazaŭ
 
-ĝi volus transsalti la malbonon, por ni, kom-
-
-preneble! Sed kiam estis bonaj tempoj, tiam ĝi
+ĝi volus transsalti la malbonon, por ni, kompreneble! Sed kiam estis bonaj tempoj, tiam ĝi
 
 malfruiĝis, por ke ni povu ĝin ĝui pli longe.
 
@@ -3668,14 +3205,9 @@ Jes, kion mi faru! . . .
 
 Eleonora
 
-Vi estas bona knabo, Benjamin, sed vi estu se-
-
-rioza! Memoru la branĉeton, kiu sidas malan-
+Vi estas bona knabo, Benjamin, sed vi estu serioza! Memoru la branĉeton, kiu sidas malan-
 
 taŭ la spegulo!
-
-
-## P A S KO
 
 
 Benjamin
@@ -3694,9 +3226,7 @@ Hm!
 
 Eleonora
 
-Vi volis ridi la tutan tagon, sed tial vi ankaŭ ri-
-
-cevis punon! Kaj mi ŝatas vin, nur kiam vi es-
+Vi volis ridi la tutan tagon, sed tial vi ankaŭ ricevis punon! Kaj mi ŝatas vin, nur kiam vi es-
 
 tas serioza. Memoru tion!
 
@@ -3708,9 +3238,7 @@ Eleonora
 
 Jes, la plimulto ordiĝos, kiam nur pasis la
 
-Sankta vendredo, sed ne ĉio! Hodiaŭ branĉe-
-
-ton, morgaŭ paskovon! Hodiaŭ neĝo, morgaŭ
+Sankta vendredo, sed ne ĉio! Hodiaŭ branĉeton, morgaŭ paskovon! Hodiaŭ neĝo, morgaŭ
 
 degelo! Hodiaŭ morto, morgaŭ reviviĝo!
 
@@ -3720,19 +3248,13 @@ Kiel saĝa vi estas!
 
 Eleonora
 
-Jes; mi jam sentas, ke ekstere klariĝas por bo-
-
-na vetero, ke la neĝo degelas … jam oni tie ĉi
+Jes; mi jam sentas, ke ekstere klariĝas por bona vetero, ke la neĝo degelas … jam oni tie ĉi
 
 interne sentas la odoron de degelanta neĝo …
 
-kaj morgaŭ la violoj elburĝoniĝos ĉe la sud-
+kaj morgaŭ la violoj elburĝoniĝos ĉe la sudflanko! La nuboj leviĝos, tion mi sentas, kiam
 
-flanko! La nuboj leviĝos, tion mi sentas, kiam
-
-mi spiras … ho, mi tiel bone scias, kiam la ĉie-
-
-lo ne estas kaŝita! … Iru flankentiri la kurte-
+mi spiras … ho, mi tiel bone scias, kiam la ĉielo ne estas kaŝita! … Iru flankentiri la kurte-
 
 nojn, Benjamin; mi volas, ke Dio vidu nin!
 
@@ -3747,9 +3269,6 @@ Vidu la plenlunon! Tiun de la pasko! Kaj nun
 vi scias, ke la suno ankoraŭ ekzistas, kvankam
 
 la luno redonas la lumon!
-
-
-## P A S KO
 
 
 TRIA AKTO
@@ -3788,18 +3307,13 @@ Kie do estis vi, Eleonora?
 
 Eleonora
 
-Mi estis sur la foirplaco kaj aĉetis bluanemo-
-
-nojn kaj nun mi varmigos ilin, ĉar ili frostis, la
+Mi estis sur la foirplaco kaj aĉetis bluanemonojn kaj nun mi varmigos ilin, ĉar ili frostis, la
 
 kompatinduloj.
 
 Benjamin
 
 Kie estas la suno?
-
-
-## P A S KO
 
 
 Eleonora
@@ -3881,18 +3395,13 @@ Ne, panjo!
 Sinjorino Heyst (ree eliras dekstre)
 
 
-## P A S KO
-
-
 Diru unue al mi, kiam ĝi venos!
 
 Eleonora
 
 La gazeto, la gazeto! — Ho, se la presmaŝinoj
 
-estus rompiĝintaj, se la redaktoro estus mal-
-
-saniĝinta … ne, oni ne rajtas diri tiel! Aŭdu,
+estus rompiĝintaj, se la redaktoro estus malsaniĝinta … ne, oni ne rajtas diri tiel! Aŭdu,
 
 lastnokte mi estis ĉe patro …
 
@@ -3904,9 +3413,7 @@ Eleonora
 
 Jes, en la dormo … kaj mi estis en Ameriko ĉe
 
-fratino … antaŭhieraŭ ŝi vendis por tridek do-
-
-laroj, kaj tiam ŝi gajnis kvin.
+fratino … antaŭhieraŭ ŝi vendis por tridek dolaroj, kaj tiam ŝi gajnis kvin.
 
 Benjamin
 
@@ -3932,9 +3439,7 @@ mi ne donos ilin.
 
 Benjamin
 
-ĉu vi kredas, ke vi tiamaniere ekscios la mi-
-
-ajn!
+ĉu vi kredas, ke vi tiamaniere ekscios la miajn!
 
 Eleonora
 
@@ -3952,16 +3457,9 @@ Eleonora
 
 ĉio! La tuta vivo estas terura! Sed ni tamen
 
-devas esti kontentaj! … Pensu pri Elis kaj Kris-
+devas esti kontentaj! … Pensu pri Elis kaj Kristina; ili ŝatas unu la alian, kaj tamen ili mala-
 
-tina; ili ŝatas unu la alian, kaj tamen ili mala-
-
-mas unu la alian, tiel ke la termometro mal-
-
-altiĝas, kiam ili iras tra la ĉambro! ŝi estis en
-
-
-## P A S KO
+mas unu la alian, tiel ke la termometro malaltiĝas, kiam ili iras tra la ĉambro! ŝi estis en
 
 
 la koncerto hieraŭ, kaj hodiaŭ ili ne parolas
@@ -3992,17 +3490,13 @@ Eleonora
 
 Jes! ĉu ne estas, kvazaŭ la tuta malbono en ĝi
 
-estus penetrinta en lian animon kaj nun elbri-
-
-lus tra lia vizaĝo kaj liaj rigardoj . . . Tion sen-
+estus penetrinta en lian animon kaj nun elbrilus tra lia vizaĝo kaj liaj rigardoj . . . Tion sen-
 
 tas Kristina, kaj por ke ŝi ne infektiĝu de lia
 
 malbono, ŝi faras al si kirason el glacio! Ho,
 
-tiuj paperoj; se mi povus bruligi ilin! Ili elra-
-
-dias malicon: kaj falsecon kaj venĝemon. Tial,
+tiuj paperoj; se mi povus bruligi ilin! Ili elradias malicon: kaj falsecon kaj venĝemon. Tial,
 
 mia infano, tenu for de vi la malbonon kaj la
 
@@ -4014,9 +3508,7 @@ Kiel vi ĉion rimarkas?
 
 Eleonora
 
-ĉu vi scias, kio atendos min, se Elis kaj la ali-
-
-aj ekscios, ke estis mi, kiu aĉetis la pasklilion
+ĉu vi scias, kio atendos min, se Elis kaj la aliaj ekscios, ke estis mi, kiu aĉetis la pasklilion
 
 en tiu neordinara maniero?
 
@@ -4037,9 +3529,6 @@ nur ploradon kaj ĝemadon, kie mi forsidis
 unu jaron de mia vivo!
 
 
-## P A S KO
-
-
 Benjamin
 
 Kion vi volas diri?
@@ -4048,9 +3537,7 @@ Eleonora
 
 Kie oni estas pli turmentata ol en malliberejo,
 
-kie loĝas la kondamnitoj, la hejmo de mal-
-
-trankvilo, kie malespero dormas nek nokte
+kie loĝas la kondamnitoj, la hejmo de maltrankvilo, kie malespero dormas nek nokte
 
 nek tage, kaj de kie neniu revenas.
 
@@ -4078,9 +3565,7 @@ morti.
 
 Eleonora
 
-Kiam ĝi scias, ke ĝi estas buĉota, ĝi ne plen-
-
-das kaj ne provas forkuri. Kion ĝi povus fari!
+Kiam ĝi scias, ke ĝi estas buĉota, ĝi ne plendas kaj ne provas forkuri. Kion ĝi povus fari!
 
 Elis
 
@@ -4117,9 +3602,6 @@ Elis
 Jes!
 
 
-## P A S KO
-
-
 Sinjorino Heyst De la azilo?
 
 Elis
@@ -4146,9 +3628,7 @@ Mi ne scias! Mi ne povas pensi plu!
 
 Sinjorino Heyst Sed tion povas mi! … Eleonora, la infano de malĝojo, venis kun ĝojo, tamen ne de tiu ĉi
 
-mondo; ĝia maltrankvilo transformiĝis en pa-
-
-con, kiun ŝi disdonas! Prudenta aŭ ne! Al mi
+mondo; ĝia maltrankvilo transformiĝis en pacon, kiun ŝi disdonas! Prudenta aŭ ne! Al mi
 
 ŝi estas saĝa, ĉar ŝi komprenas porti la ŝarĝon
 
@@ -4160,9 +3640,7 @@ mian edzon senkulpa? Mi ja sciis, ke li estis
 
 pruvita kulpa per materiaj, evidentaj pruvoj,
 
-kaj ke li mem konfesis! … Kaj vi, Elis, ĉu vi ha-
-
-vas vian prudenton, kiam vi ne vidas, ke Kris-
+kaj ke li mem konfesis! … Kaj vi, Elis, ĉu vi havas vian prudenton, kiam vi ne vidas, ke Kris-
 
 tina amas vin? Kiam vi kredas, ke ŝi malamas
 
@@ -4178,12 +3656,7 @@ kaj tial vi devas suferi!
 
 Elis
 
-Kiel mi povas esti malprava? ĉu ŝi ne kunes-
-
-tis kun mia malfidela amiko hieraŭ vespere!
-
-
-## P A S KO
+Kiel mi povas esti malprava? ĉu ŝi ne kunestis kun mia malfidela amiko hieraŭ vespere!
 
 
 Sinjorino Heyst Jes, tion ŝi faris, kaj kun via scio. Sed kial ŝi iris? Jes, tion vi devus kompreni!
@@ -4228,24 +3701,17 @@ Sinjorino Heyst Tio jam tiom multfoje okazis … Kaj vi, infano, se vi konus mia
 
 kun mi, kiam mi vidis vian patron paŝon post
 
-paŝo iri en la pereon, sen povi averti la mul-
-
-tajn, al kiuj li alportis malfeliĉon. Kiam li falis, mi sentis min kunkulpa, ĉar mi estis konscia
+paŝo iri en la pereon, sen povi averti la multajn, al kiuj li alportis malfeliĉon. Kiam li falis, mi sentis min kunkulpa, ĉar mi estis konscia
 
 pri la krimo, kaj se la juĝisto ne estus estinta
 
-saĝa viro, kiu komprenis mian malfacilan si-
-
-tuacion kiel edzino, ankaŭ mi estus punita!
+saĝa viro, kiu komprenis mian malfacilan situacion kiel edzino, ankaŭ mi estus punita!
 
 Elis
 
 Pro kio falis nia patro, mi neniam komprenis
 
 tion?
-
-
-## P A S KO
 
 
 Sinjorino Heyst Pro fiero, kiel ni ĉiuj!
@@ -4309,9 +3775,6 @@ perdita … retrovita kaj perdita … Parolu kun
 ŝi!
 
 
-## P A S KO
-
-
 (Eliras dekstre.)
 
 Elis
@@ -4358,9 +3821,7 @@ Eleonora
 
 Jes, kaj ne! ĉiam estas tiel malagrable … sed
 
-mi faris nenion malbonan … mi nur bone vo-
-
-lis … ĉu vi kredas min?
+mi faris nenion malbonan … mi nur bone volis … ĉu vi kredas min?
 
 Elis
 
@@ -4387,9 +3848,6 @@ Ne, ne tuŝu ŝin, ĉar ŝi nenion malbonan faris.
 Mi scias tion, ĉar estis mi, mi, mi —
 
 (Ploras)
-
-
-## P A S KO
 
 
 — kiu faris tion!
@@ -4440,15 +3898,11 @@ multaj jaroj. Kial nur nun?
 
 Sinjorino Heyst ĉar … ĉar la floristo estas tie kaj petas pardo-non pro tio, ke li kaŭzis tiom da malagrablaĵo
 
-… la perdita monero estas retrovita kaj via no-
-
-mo …
+… la perdita monero estas retrovita kaj via nomo …
 
 Eleonora
 
-(kuras en la brakojn de Elis kaj kisas lin; poste ŝi ĉirkaŭ-
-
-prenas la kolon de Benjamin kaj kisas lin supre sur la ka-po).
+(kuras en la brakojn de Elis kaj kisas lin; poste ŝi ĉirkaŭprenas la kolon de Benjamin kaj kisas lin supre sur la ka-po).
 
 Vi bona infano, kiu volis suferi por mi! Kiel vi
 
@@ -4463,18 +3917,13 @@ Benjamin
 Sinjorino Heyst Nun surmetu vestojn kaj iru en la ĝardenon, infanoj. La ĉielo klariĝas.
 
 
-## P A S KO
-
-
 Eleonora
 
 Ho, klariĝas! Venu, Benjamin!
 
 (Prenas lian manon; manenmane ili eliras maldekstre.) Elis
 
-ĉu ni baldaŭ povos ĵeti la branĉeton sur la faj-
-
-ron?
+ĉu ni baldaŭ povos ĵeti la branĉeton sur la fajron?
 
 Sinjorino Heyst Ankoraŭ ne! Iom restas!
 
@@ -4516,14 +3965,9 @@ Lindkvist
 
 (eniras de dekstre. Estas iom maljuna, serioza viro kun terura aspekto. Li havas grizajn harojn kun surfrunta hartufo kaj ”huzartemploj”. Grandaj nigraj tufaj brovoj.
 
-Malgrandaj mallongtranĉitaj nigraj vangharoj. Okul-
-
-vitroj kun nigra kadraĵo, rondaj. Grandaj karneolbrelokoj sur la horloĝa ĉeno; kanbastono, en la mano. Nigre vestita kun pelto; cilindra ĉapelo en la mano; altaj botoj kun galoŝoj, kiuj knaras. Enirante li scivoleme rigardas Elison kaj dum la tuta tempo restas staranta).
+Malgrandaj mallongtranĉitaj nigraj vangharoj. Okulvitroj kun nigra kadraĵo, rondaj. Grandaj karneolbrelokoj sur la horloĝa ĉeno; kanbastono, en la mano. Nigre vestita kun pelto; cilindra ĉapelo en la mano; altaj botoj kun galoŝoj, kiuj knaras. Enirante li scivoleme rigardas Elison kaj dum la tuta tempo restas staranta).
 
 Lindkvist estas mia nomo!
-
-
-## P A S KO
 
 
 Elis
@@ -4546,13 +3990,9 @@ Lindkvist
 
 (solene)
 
-Hm! — Mi havis la honoron jam hieraŭ ves-
+Hm! — Mi havis la honoron jam hieraŭ vespere anonci mian intencitan viziton; sed je
 
-pere anonci mian intencitan viziton; sed je
-
-plua pripenso mi trovis nedece komenci in-
-
-terparolon pri monaferoj en festotago.
+plua pripenso mi trovis nedece komenci interparolon pri monaferoj en festotago.
 
 Elis
 
@@ -4566,9 +4006,7 @@ Ni ne estas dankaj! Jes!
 
 (Paŭzo)
 
-Nu, antaŭhieraŭ mi okaze vizitis la gubernie-
-
-stron…
+Nu, antaŭhieraŭ mi okaze vizitis la guberniestron…
 
 (Paŭzas por vidi, kian impreson la vorto faras al Elis.)
 
@@ -4598,12 +4036,7 @@ Kaj tie mi ricevis tiun ĉi paperon!
 
 Elis
 
-in mi longe atendis! Sed antaŭ ol ni daŭri-
-
-gos, mi petas permeson demandi pri io!
-
-
-## P A S KO
+in mi longe atendis! Sed antaŭ ol ni daŭrigos, mi petas permeson demandi pri io!
 
 
 Lindkvist
@@ -4614,9 +4047,7 @@ Bonvolu!
 
 Elis
 
-Kial vi ne transdonas tiun paperon al la ofi-
-
-cistoj, tiel ni almenaŭ evitus tiun ĉi turmentan
+Kial vi ne transdonas tiun paperon al la oficistoj, tiel ni almenaŭ evitus tiun ĉi turmentan
 
 kaj malrapidan ekzekuton ?
 
@@ -4626,9 +4057,7 @@ Aha, juna viro!
 
 Elis
 
-Juna aŭ ne, mi ne petas kompaton, nur juste-
-
-con!
+Juna aŭ ne, mi ne petas kompaton, nur justecon!
 
 Lindkvist
 
@@ -4648,9 +4077,7 @@ demandis, kiom da prokrasto vi bezonas, vi
 
 respondis malĝentile! Kaj traktis min, kvazaŭ
 
-mi estus procentegisto, kiu volas prirabi vid-
-
-vinojn kaj senpatrulojn, kvankam ja mi estis la
+mi estus procentegisto, kiu volas prirabi vidvinojn kaj senpatrulojn, kvankam ja mi estis la
 
 prirabito kaj vi apartenis al la rabanta parto.
 
@@ -4679,22 +4106,15 @@ patrino estas tie ĉi? Verŝajne ŝi amas justecon
 same forte kiel vi!
 
 
-## P A S KO
-
-
 Elis
 
 Mi esperas tion!
 
 Lindkvist
 
-Bone! … ĉu vi scias, ke via patrino estus sub-
+Bone! … ĉu vi scias, ke via patrino estus submetita al la homa justeco, ĉar ŝi estis konscia
 
-metita al la homa justeco, ĉar ŝi estis konscia
-
-pri la krima ago, se ĉio estus farita laŭ la jus-
-
-teco, kiun vi tiel alte taksas?
+pri la krima ago, se ĉio estus farita laŭ la justeco, kiun vi tiel alte taksas?
 
 Elis
 
@@ -4714,9 +4134,7 @@ Lindkvist
 
 (elprenas alian sed bluan paperon kaj metas ĝin sur la ta-blan).
 
-Vidu, nun mi metas tiun ĉi paperon sur la ta-
-
-blon, kaj ĝi efektive estas blua … tamen an-
+Vidu, nun mi metas tiun ĉi paperon sur la tablon, kaj ĝi efektive estas blua … tamen an-
 
 koraŭ mankas stampoj!
 
@@ -4726,9 +4144,7 @@ Dio en ĉielo! Mia patrino! ĉio revenas.
 
 Lindkvist
 
-Jes, mia juna amanto de la justeco, ĉio rev-
-
-enas, ĉio! … Tiel estas! … Se mi nun farus tiun
+Jes, mia juna amanto de la justeco, ĉio revenas, ĉio! … Tiel estas! … Se mi nun farus tiun
 
 demandon al mi: Vi, Anders Johan Lindkvist,
 
@@ -4742,9 +4158,7 @@ tiun monon, kiun vi per diligento, pripenso
 
 kaj rezignoj, rimarku: rezignoj, kolektis oeron
 
-post oero? Kion vi farus, Anders Johan Lind-
-
-kvist, se vi volus esti justa? Vi prirabis neniun,
+post oero? Kion vi farus, Anders Johan Lindkvist, se vi volus esti justa? Vi prirabis neniun,
 
 sed se ŝajnas al vi malagrable, ke oni prirabis
 
@@ -4753,9 +4167,6 @@ vin, vi ne povos plu loĝi en urboj, ĉar neniu
 volas saluti la senkompatulon, kiu repostulis
 
 la sian. ĉu vi do vidas, ke ekzistas kompato,
-
-
-## P A S KO
 
 
 kiu estas kontraŭ la justeco, kaj super ĝi! …
@@ -4790,9 +4201,7 @@ patrinon?
 
 Lindkvist
 
-Nun ni faru pluan pagon, unue! Vi do ne ko-
-
-nas la guberniestron persone?
+Nun ni faru pluan pagon, unue! Vi do ne konas la guberniestron persone?
 
 Elis
 
@@ -4804,9 +4213,7 @@ Lindkvist
 
 Ne tiel, ne tiel! … Vidu, la guberniestro estis
 
-junaĝa amiko de via patro, kaj li deziras ko-
-
-natiĝi kun vi. ĉio revenas, ĉio! ĉu vi ne volas
+junaĝa amiko de via patro, kaj li deziras konatiĝi kun vi. ĉio revenas, ĉio! ĉu vi ne volas
 
 viziti lin?
 
@@ -4828,9 +4235,7 @@ Estu ĝentila al mi, ĉar mi estas sendefenda …
 
 nome vin subtenas la publika opinio sed min
 
-nur la justeco. Kion vi havas kontraŭ la guber-
-
-niestro? Li ne ŝatas biciklojn kaj popolajn alt-
+nur la justeco. Kion vi havas kontraŭ la guberniestro? Li ne ŝatas biciklojn kaj popolajn alt-
 
 lernejojn, tio apartenas al liaj malgrandaj
 
@@ -4839,16 +4244,11 @@ apartaĵoj. Ni ne bezonas precize respekti la
 apartaĵojn, sed ni preteriru ilin, preteriru kaj
 
 
-## P A S KO
-
-
 tenu nin al la ĉefaferoj, inter homo kaj homo!
 
 En la grandaj krizoj de la vivo ni devas akcepti
 
-unu la alian kun mankoj kaj malfortecoj, engl-
-
-uti kun haŭto kaj haroj! … Iru al la gubernie-
+unu la alian kun mankoj kaj malfortecoj, engluti kun haŭto kaj haroj! … Iru al la gubernie-
 
 stro!
 
@@ -4870,13 +4270,9 @@ Lindkvist
 
 (leviĝas kaj komencas iri tien kaj reen sur la planko kun siaj knarantaj botoj, gestante per la blua papero).
 
-Malfacila afero! Malfacila! … Nu, do mi kom-
+Malfacila afero! Malfacila! … Nu, do mi komencu de alia flanko! … Venkema persono in-
 
-encu de alia flanko! … Venkema persono in-
-
-tencas akuzi vian patrinon. Tion vi povas ma-
-
-lebligi!
+tencas akuzi vian patrinon. Tion vi povas malebligi!
 
 Elis
 
@@ -4896,9 +4292,7 @@ Lindkvist
 
 Do vi estas la plej aĉa homo, kiun mi en mia
 
-vivo renkontis! Kaj nun mi mem iros al via pa-
-
-trino!
+vivo renkontis! Kaj nun mi mem iros al via patrino!
 
 Elis
 
@@ -4925,9 +4319,6 @@ Lindkvist
 Do tiu afero estas klara!
 
 
-## P A S KO
-
-
 (Transdonas la bluan paperon.)
 
 Tie estas tiu papero!
@@ -4938,9 +4329,7 @@ Elis
 
 Lindkvist
 
-Poste ni havas numeron du; kiu estis nume-
-
-ro unu! … ĉu ni sidiĝu! . . .
+Poste ni havas numeron du; kiu estis numero unu! … ĉu ni sidiĝu! . . .
 
 (ili sidiĝas kiel antaŭe.)
 
@@ -4982,9 +4371,7 @@ la karnoruĝa karneolo; la giganto el la montoj,
 
 kiu ne manĝas infanojn, nur timigas ilin! Mi
 
-timigos vin, jes, tiel ke vi freneziĝos. La valo-
-
-ron de ĉiu meblopeco mi elpremos … mi ha-
+timigos vin, jes, tiel ke vi freneziĝos. La valoron de ĉiu meblopeco mi elpremos … mi ha-
 
 vas la liston tie ĉi en la poŝo, kaj se mankos iu
 
@@ -4994,12 +4381,7 @@ la suno nek Cassiopeja! Jes, mi povas manĝi
 
 infanojn kaj vidvinojn, kiam oni incitas min,
 
-kaj la publika opinio? pah ĝi … mi nur trans-
-
-loĝiĝos al alia urbo!
-
-
-## P A S KO
+kaj la publika opinio? pah ĝi … mi nur transloĝiĝos al alia urbo!
 
 
 Elis
@@ -5026,15 +4408,11 @@ Lindkvist
 
 La homa naturo estas nefidinda kiel la aĵoj kaj
 
-la pensoj; Petro estis malfidela, tion mi ne ne-
-
-as, kaj ne defendas lin. En tiu punkto! Sed la
+la pensoj; Petro estis malfidela, tion mi ne neas, kaj ne defendas lin. En tiu punkto! Sed la
 
 homa koro estas senfunda, kaj tie kuŝas oro
 
-kaj skorio intermikse! Petro estis por vi malfi-
-
-dela amiko, sed tamen amiko!
+kaj skorio intermikse! Petro estis por vi malfidela amiko, sed tamen amiko!
 
 Elis
 
@@ -5076,16 +4454,11 @@ vivon el mi!
 
 Lindkvist
 
-Ne la vivon, sed la fieron kaj la malicon mi el-
-
-premos el vi!
+Ne la vivon, sed la fieron kaj la malicon mi elpremos el vi!
 
 Elis
 
 Daŭrigu!
-
-
-## P A S KO
 
 
 Lindkvist
@@ -5100,13 +4473,9 @@ Lindkvist
 
 ĉu ni nun denove estas tie! … Aŭskultu! Per
 
-perado de via amiko Petro la guberniestro es-
+perado de via amiko Petro la guberniestro estas persvadita pledi por via patrino! Tial vi de-
 
-tas persvadita pledi por via patrino! Tial vi de-
-
-vas skribi leteron al Petro por danki lin! Pro-
-
-mesu tion!
+vas skribi leteron al Petro por danki lin! Promesu tion!
 
 Elis
 
@@ -5122,9 +4491,7 @@ en la banko!
 
 Elis
 
-Nu, kio koncernas vin! Mi tamen ne respon-
-
-decas pri la ŝuldoj de mia patro!
+Nu, kio koncernas vin! Mi tamen ne respondecas pri la ŝuldoj de mia patro!
 
 Lindkvist
 
@@ -5169,14 +4536,9 @@ Elis
 Tamen ne sufiĉos!
 
 
-## P A S KO
-
-
 Lindkvist
 
-Do vi devas iri por prunti la reston! ĉiun oe-
-
-ron vi devas havi!
+Do vi devas iri por prunti la reston! ĉiun oeron vi devas havi!
 
 Elis
 
@@ -5216,9 +4578,7 @@ Lindkvist
 
 Vi estas la plej aĉa homo, kiun mi konas! Per
 
-simpla ago de ĝentileco vi povas savi la hej-
-
-mon de via patrino kaj la vivrimedojn por via
+simpla ago de ĝentileco vi povas savi la hejmon de via patrino kaj la vivrimedojn por via
 
 fianĉino, sed vi ne faras tion! Devas ekzisti
 
@@ -5259,9 +4619,6 @@ Elis
 Ne, ne la tutan!
 
 
-## P A S KO
-
-
 Lindkvist
 
 Aha! … Tiel? Do vi ne scias, ke Petro fianĉiĝis?
@@ -5280,9 +4637,7 @@ Kiel …
 
 Lindkvist
 
-Li fianĉiĝis al fraŭlino Alice, kaj la afero pre-
-
-tiĝis hieraŭ vespere en koncerto, kie via fian-
+Li fianĉiĝis al fraŭlino Alice, kaj la afero pretiĝis hieraŭ vespere en koncerto, kie via fian-
 
 ĉino aperis kiel peranto!
 
@@ -5292,15 +4647,11 @@ Kial tiel sekrete?
 
 Lindkvist
 
-ĉu du junaj homoj ne rajtas havi siajn korse-
-
-kretojn malgraŭ vi?
+ĉu du junaj homoj ne rajtas havi siajn korsekretojn malgraŭ vi?
 
 Elis
 
-Kaj por ilia feliĉo mi devis suferi tiujn turmen-
-
-tojn?
+Kaj por ilia feliĉo mi devis suferi tiujn turmentojn?
 
 Lindkvist
 
@@ -5316,9 +4667,7 @@ Elis
 
 (Dum la antaŭa kaj sekvonta scenoj klariĝas ekstere.) Lindkvist
 
-Estis antaŭ kvardek jaroj proksimume! Mi ve-
-
-nis kiel junulo al la ĉefurbo, sola, nekonata kaj
+Estis antaŭ kvardek jaroj proksimume! Mi venis kiel junulo al la ĉefurbo, sola, nekonata kaj
 
 sen konatoj, por serĉi laboron. Mi posedis nur
 
@@ -5328,33 +4677,22 @@ mi ne konis malkaran hotelon, mi demandis
 
 preterpasantojn; sed neniu respondis. Kiam
 
-mia malespero kulminis, venis viro kaj de-
-
-mandis, kial mi ploras — nome mi ploris. Mi
+mia malespero kulminis, venis viro kaj demandis, kial mi ploras — nome mi ploris. Mi
 
 rakontis al li pri mia mizero! Tiam li reiris sian
 
 vojon, akompanis min al hotelo kaj konsolis
 
 
-## P A S KO
-
-
-min per afablaj vortoj. Kiam mi trairis la vest-
-
-iblon, oni malfermis butikan vitropordon, kiu
+min per afablaj vortoj. Kiam mi trairis la vestiblon, oni malfermis butikan vitropordon, kiu
 
 puŝis mian kubuton, kaj la vitro rompiĝis. La
 
-furioza butikisto kaptis min kaj postulis pa-
-
-gon, aŭ li vokos la policon. Imagu mian male-
+furioza butikisto kaptis min kaj postulis pagon, aŭ li vokos la policon. Imagu mian male-
 
 speron, kaj antaŭ mi nokto sur la strato! — La
 
-bonvola nekonato, kiu vidis la tumulton, in-
-
-tervenas, faras al si la penon voki la policon
+bonvola nekonato, kiu vidis la tumulton, intervenas, faras al si la penon voki la policon
 
 kaj savas min! . . . Tiu viro — estis via patro! …
 
@@ -5368,9 +4706,7 @@ tiun ĉekon!
 
 (Leviĝas.)
 
-ĉar vi nur malfacile diras dankon, mi tuj fori-
-
-ros, precipe ĉar danko ĝenas min!
+ĉar vi nur malfacile diras dankon, mi tuj foriros, precipe ĉar danko ĝenas min!
 
 (Proksimiĝas al la fonpordo.)
 
@@ -5388,9 +4724,6 @@ Elis
 (La fonpordoj malfermiĝas. Eleonora kaj Benjamin envenas, trankvilaj sed seriozaj; haltas teruritaj, kiam ili ekvidas Lundkvist.)
 
 
-## P A S KO
-
-
 Lindkvist
 
 Nu, etuloj, eniru kaj ne timu … ĉu vi scias, kiu
@@ -5401,9 +4734,7 @@ estas, mi? ..
 
 Mi estas la giganto el la montoj, kiu timigas
 
-infanojn! Muh! Muh! … Sed mi ne estas dan-
-
-ĝera! — Venu, Eleonora!
+infanojn! Muh! Muh! … Sed mi ne estas danĝera! — Venu, Eleonora!
 
 (Prenas ŝian kapon inter siaj manoj kaj rigardas en ŝiajn okulojn.)
 
@@ -5468,9 +4799,6 @@ Lindkvist
 Bone! Antaŭ la dudeka vi devas igi fraton Elis
 
 
-## P A S KO
-
-
 fari viziton al la guberniestro kaj skribi leteron
 
 al Petro.
@@ -5481,9 +4809,7 @@ Nur tion!
 
 Lindkvist
 
-Ho, infano! Sed se li preterlasos tion, tiam ve-
-
-nos la giganto kaj diros Muh!
+Ho, infano! Sed se li preterlasos tion, tiam venos la giganto kaj diros Muh!
 
 Eleonora
 
@@ -5511,15 +4837,11 @@ Ne, tiu nomo estas tiel ordinara …
 
 Lindkvist
 
-is revido, infanoj! Nun vi povas ĵeti la bran-
-
-ĉeton sur la fajron!
+is revido, infanoj! Nun vi povas ĵeti la branĉeton sur la fajron!
 
 Eleonora
 
-Ne, ĝi restu tie, ĉar la infanoj estas tiel forge-
-
-semaj.
+Ne, ĝi restu tie, ĉar la infanoj estas tiel forgesemaj.
 
 Lindkvist
 
@@ -5548,9 +4870,6 @@ Benjamin
 ĉu mi ne povas diri tion silente?
 
 
-## P A S KO
-
-
 Eleonora
 
 Jes, vi povas diri ĝin silente! ĉar nun la nuboj
@@ -5559,9 +4878,6 @@ estas for, kaj tiam ĝi estas aŭdebla en la alto!
 
 
 (Kristina envenis de maldekstre kaj haltis. Elis kaj Sinjorino Heyst de dekstre. Kristina kaj Elis iras kun afablaj mienoj unu al la alia, sed la kurteno falas, antaŭ ol ili renkontiĝas.)
-
-
-## P A S KO
 
 
 www.omnibus.se/

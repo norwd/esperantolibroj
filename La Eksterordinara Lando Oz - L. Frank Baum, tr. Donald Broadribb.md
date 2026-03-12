@@ -2,9 +2,7 @@ Historio de la pluaj aventuroj de la Birdotimigilo kaj la
 
 Stana Lignohakisto kaj ankaŭ la strangaj spertoj de la
 
-Multe Pligrandigita Ŝancel-Insekto, Joĉjo Kukurbo-
-
-kapo, la viviĝinta Segĉevalo, kaj la Gumpo;
+Multe Pligrandigita Ŝancel-Insekto, Joĉjo Kukurbokapo, la viviĝinta Segĉevalo, kaj la Gumpo;
 
 la rakonto estas la sekvo al
 
@@ -203,7 +201,7 @@ La Miriga Flugo de la Gumpo
 En la Nesto de la Monedoj
 
 
-La Famaj Dezirpiloloj de D-ro Nikidiko 219
+La Famaj Dezirpiloloj de D-ro Nikidiko
 
 La Birdotimigilo Petas Helpon
 
@@ -957,9 +955,7 @@ demandis angoroplene. “Ne utilos al vi marmora
 
 statuo.”
 
-“Jes ja ĝi utilos,” respondis Mombi. “Venontprin-
-
-tempe mi plantos florĝardenon, kaj mi ornamos ĝin
+“Jes ja ĝi utilos,” respondis Mombi. “Venontprintempe mi plantos florĝardenon, kaj mi ornamos ĝin
 
 per vi en la mezo. Mirigas min ke mi ne elpensis tion
 
@@ -1049,9 +1045,7 @@ en la korbo de Mombi por trovi la fromaĝon kiun
 
 ŝi portintis el la vilaĝo. Serĉante en la korbo li
 
-ektrovis la piproskatolon en kiu estis la “Vivo-
-
-pulvoro”.
+ektrovis la piproskatolon en kiu estis la “Vivopulvoro”.
 
 “Mi kunportu ankaŭ ĉi tion,” li pensis, “se ne, do
 
@@ -2806,9 +2800,7 @@ kontentiga aranĝo?” li demandis al sia gasto.
 
 “Tute kontentiga,” estis la respondo.
 
-“Do demandu al li, unue,” pludiris la Birdo-
-
-timigilo, turninte sin al Ĵelea Konfitaĵ, “kial li venis
+“Do demandu al li, unue,” pludiris la Birdotimigilo, turninte sin al Ĵelea Konfitaĵ, “kial li venis
 
 al la Smeralda Urbo.”
 
@@ -3332,9 +3324,7 @@ ke estas danĝere konkeri urbon?”
 
 “Ni ne timas!” respondis la Generalo; kaj ŝi
 
-aspektis tiom plene certa ke la Gardisto mal-
-
-trankviliĝis.
+aspektis tiom plene certa ke la Gardisto maltrankviliĝis.
 
 Do li sonoris por venigi la Soldaton kun la Verda
 
@@ -3736,9 +3726,7 @@ la Seg-Ĉevalo; sekve tute ne estis verŝajne ke ili
 
 forfalos.
 
-“Nun malfermu la pordon,” ordonis la Birdo-
-
-timigilo, “kaj ni ekkuros al libereco aŭ al morto.”
+“Nun malfermu la pordon,” ordonis la Birdotimigilo, “kaj ni ekkuros al libereco aŭ al morto.”
 
 La korto en kiu ili staris sin trovis en la centro de
 
@@ -4236,9 +4224,7 @@ min, amiko Joĉjo.”
 
 putros!” respondis Joĉjo, kolere.
 
-“Trankvile!—trankvile!” interrompis la Birdo-
-
-timigilo; “ni ne kverelu. Ĉiu el ni havas mankojn,
+“Trankvile!—trankvile!” interrompis la Birdotimigilo; “ni ne kverelu. Ĉiu el ni havas mankojn,
 
 karaj amikoj; do ni strebu kompati unu la alian. Kaj
 
@@ -4472,9 +4458,7 @@ frotiĝintis sur la korpon de lia kamarado.
 
 “Ve!” diris la Birdotimigilo malĝoje. “Kia fuŝo!”
 
-“Ne gravas, amiko,” respondis la Stana Ligno-
-
-hakisto, “mi sendos vin al la Imperia Vestlavejo, kaj
+“Ne gravas, amiko,” respondis la Stana Lignohakisto, “mi sendos vin al la Imperia Vestlavejo, kaj
 
 ili plene repurigos vin.”
 
@@ -4636,9 +4620,7 @@ ONI DISPARTIGIS KAJ ZORGE LAVIS LA BIRDOTIMIGILON.
 
 Nikelkovrita Imperiestro
 
-“Ni ne bezonas armeon,” respondis la Ligno-
-
-hakisto. “Ni kvar, per la helpo de mia brilanta hakilo,
+“Ni ne bezonas armeon,” respondis la Lignohakisto. “Ni kvar, per la helpo de mia brilanta hakilo,
 
 sufiĉas por teruri la korojn de la ribelantinoj.”
 
@@ -4961,9 +4943,7 @@ Tamen aliaj problemoj kuŝis antaŭ ili. La Seg-
 
 Kukurbokapo ĵetiĝis enaeren, kaj lia historio verŝajne
 
-ĉesus je tiu preciza momento se la Stana Ligno-
-
-hakisto ne lerte kaptus la kukurbon dum ĝi falis kaj
+ĉesus je tiu preciza momento se la Stana Lignohakisto ne lerte kaptus la kukurbon dum ĝi falis kaj
 
 savis ĝin.
 
@@ -5370,9 +5350,7 @@ apogeo de grandeco. La
 Profesoro trovis min dum mi
 
 
-“Kaptis min per siaj dik-
-
-kaj antaŭ-fingroj.”
+“Kaptis min per siaj dikkaj antaŭ-fingroj.”
 
 La Eksterordinara Lando Oz
 
@@ -5891,9 +5869,7 @@ peton. Kiam vi estos preta, mi alvokos dekdu el miaj
 
 plej inteligentaj regatoj.”
 
-“Mi estas preta jam nun,” respondis la Birdo-
-
-timigilo. Li sternis sin sur la teron kaj malbutonumis
+“Mi estas preta jam nun,” respondis la Birdotimigilo. Li sternis sin sur la teron kaj malbutonumis
 
 sian jakon, malkovrante la pajlan amason kiu plenigis
 
@@ -6133,9 +6109,7 @@ diris la Stana Lignohakisto, ridante pro sia facila
 
 konkero je la gardistinoj.
 
-“Dankon, amiko Noĉjo,” respondis la Birdo-
-
-timigilo, dankeme. “Nenio povas rezisti vian amantan
+“Dankon, amiko Noĉjo,” respondis la Birdotimigilo, dankeme. “Nenio povas rezisti vian amantan
 
 koron kaj vian akran hakilon.”
 
@@ -6202,9 +6176,7 @@ Tiu ago maltrankviligis la Birdotimigilon.
 
 malsaĝulinoj jam estas konkeritaj!”
 
-Sed la Birdotimigilo skuis sian kapon dubo-
-
-maniere, kaj Tip diris:
+Sed la Birdotimigilo skuis sian kapon dubomaniere, kaj Tip diris:
 
 “Estas multe tro facile. Tute certe atendas nin
 
@@ -6276,9 +6248,7 @@ La Eksterordinara Lando Oz
 
 kaj estas punenda laŭ la leĝo menciita de vi.”
 
-Tiu vidpunkto pri la afero konfuzis la Birdo-
-
-timigilon.
+Tiu vidpunkto pri la afero konfuzis la Birdotimigilon.
 
 “Ĉu estas tiel, amiko Noĉjo?” li demandis, turninte
 
@@ -6394,9 +6364,7 @@ manĝo. Kaj tiun gigantan Ŝancel-Insekton—”
 
 insekto.
 
-“Mi opinias ke mi petos la kuiristinon prepari verd-
-
-kelonian supon el vi,” pludiris la Reĝino, mediteme.
+“Mi opinias ke mi petos la kuiristinon prepari verdkelonian supon el vi,” pludiris la Reĝino, mediteme.
 
 La Ŝancel-Insekto tremetis.
 
@@ -6537,9 +6505,7 @@ por turni sian vizaĝon por ke ĝi rigardu la
 
 Birdotimigilon.
 
-“Ĉu ni vere venkis ŝin?” demandis la Birdo-
-
-timigilo, kviete. “Rigardu tra la fenestro, kaj diru al
+“Ĉu ni vere venkis ŝin?” demandis la Birdotimigilo, kviete. “Rigardu tra la fenestro, kaj diru al
 
 
 La Eksterordinara Lando Oz
@@ -6823,9 +6789,7 @@ la Edukita Ŝancel-Insekto.
 
 eblos,” deklaris Tip; “se,
 
-efektive, la Stana Ligno-
-
-hakisto kapablos fari la
+efektive, la Stana Lignohakisto kapablos fari la
 
 Aĵon.”
 
@@ -6880,9 +6844,7 @@ Lignohakiston labori, “ke mia maldekstra kruro estos
 
 mia plej eleganta kaj fortika parto.”
 
-“Tio pruvas vin malkutima,” respondis la Birdo-
-
-timigilo; “kaj mi konvinkiĝis ke la solaj konsiderindaj
+“Tio pruvas vin malkutima,” respondis la Birdotimigilo; “kaj mi konvinkiĝis ke la solaj konsiderindaj
 
 personoj en ĉi tiu mondo estas la malkutimaj. Ĉar la
 
@@ -6951,9 +6913,7 @@ atenton.
 
 Tip, helpate de la Seg-Ĉevalo, portis grandan,
 
-remburitan sofon al la tegmento. Ĝi estis malnov-
-
-moda meblo, kun altaj dorso kaj finaĵoj, kaj ĝi tiom
+remburitan sofon al la tegmento. Ĝi estis malnovmoda meblo, kun altaj dorso kaj finaĵoj, kaj ĝi tiom
 
 pezis ke eĉ kvankam la plejgranda parto de la pezo
 
@@ -7052,9 +7012,7 @@ La Miriga Flugo de la Gumpo
 
 alia identa al ĉi tiu sur la malsupra etaĝo.”
 
-“Tre sencoplena sugesto,” kriis la Stana Ligno-
-
-hakisto. “Tuj alportu la alian sofon.”
+“Tre sencoplena sugesto,” kriis la Stana Lignohakisto. “Tuj alportu la alian sofon.”
 
 Do Tip kaj la Seg-Ĉevalo sukcesis, per multa
 
@@ -8240,9 +8198,7 @@ p u r a j n b i l e t o j n k a j
 
 apartigis ilin laŭ valoroj. Ili
 
-plenigis la mal-
-
-dekstran kr uron
+plenigis la maldekstran kr uron
 
 k a j b o t o n d e l a
 
@@ -8252,13 +8208,9 @@ kvindolaraj biletoj;
 
 l i a n d e k s t r a n
 
-kr uron per dek-
+kr uron per dekdolaraj, kaj lian
 
-dolaraj, kaj lian
-
-korpon ili plen-
-
-plenigis per kvin-
+korpon ili plenplenigis per kvin-
 
 d e k d o l a r a j ,
 
@@ -8295,9 +8247,7 @@ cerbo ne sukcesos savi nin, ni devos resti dum nia tuta
 
 vivo en ĉi tiu nesto.”
 
-“Kion pri la dezirpiloloj?” demandis la Birdo-
-
-timigilo, prenante la skatolon el sia poŝo. “Ni povos
+“Kion pri la dezirpiloloj?” demandis la Birdotimigilo, prenante la skatolon el sia poŝo. “Ni povos
 
 uzi ilin por eskapi.”
 
@@ -8428,9 +8378,7 @@ La Famaj Dezirpiloloj de D-ro Nikidiko
 
 dolorojn ke li alarmiĝis.
 
-“La pilolo venenis min!” li anhelis; “O—o! O-o-o-o-
-
-o! Huj! Murdo! Fajro! O-o-o!” kaj li falis sur la plankon
+“La pilolo venenis min!” li anhelis; “O—o! O-o-o-oo! Huj! Murdo! Fajro! O-o-o!” kaj li falis sur la plankon
 
 de la nesto kaj tiom tordis sin ke li timigis ĉiujn.
 
@@ -8515,9 +8463,7 @@ akceptas esprimi deziron. Donu al mi pilolon.”
 
 Li glutis ĝin senhezite, kaj ĉiuj ĉirkaŭstaris
 
-admirante lian kuraĝon dum la Insekto kalkulis dek-
-
-sepon per duoj sammaniere kiel Tip kalkulis. Kaj
+admirante lian kuraĝon dum la Insekto kalkulis deksepon per duoj sammaniere kiel Tip kalkulis. Kaj
 
 ial—eble ĉar Ŝancel-Insektoj havas pli fortikajn
 
@@ -8645,9 +8591,7 @@ neston.
 
 Sed niaj aventurantoj ne paŭzis por atendi la
 
-batalon. Kiel eble plej rapide ili suriris la sid-
-
-kusenojn de la sofoj, kaj Tip ordonis ke la Gumpo
+batalon. Kiel eble plej rapide ili suriris la sidkusenojn de la sofoj, kaj Tip ordonis ke la Gumpo
 
 ekflugu.
 
@@ -9214,9 +9158,7 @@ antaŭ la pordego de la palaco. La
 
 uniformoj de la soldatinoj estis belaj
 
-kaj gajkoloraj, kaj iliaj arĝento-
-
-pintaj lancoj estis brilantaj, la
+kaj gajkoloraj, kaj iliaj arĝentopintaj lancoj estis brilantaj, la
 
 longaj teniloj estis inkrustitaj per
 
@@ -9271,9 +9213,7 @@ klinis trans la flankon por rigardi la armeon sub si.
 
 “Ne gravus,” komentis la edukita Ŝancel-Insekto;
 
-“li ne povos rompiĝi, ĉar li ĉiam falos sur sian mono-
-
-litan naturon.”
+“li ne povos rompiĝi, ĉar li ĉiam falos sur sian monolitan naturon.”
 
 “Mi ordonis ke vi—” komencis Tip, riproĉavoĉe.
 
@@ -9348,9 +9288,7 @@ vundiĝu.”
 
 “La malamikinoj plu estas ekster la muroj,
 
-do ni penu akiri pli da tempo per inter-
-
-traktado kun ili. Iru kun pacflago al Glinda
+do ni penu akiri pli da tempo per intertraktado kun ili. Iru kun pacflago al Glinda
 
 kaj demandu al ŝi kial ŝi aŭdacis invadi mian
 

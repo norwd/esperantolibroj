@@ -12,20 +12,10 @@ DOKTORO JEKYLL KAJ SINJORO HYDE
 
 R. L. Stevenson
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
 
 William Morrison kaj William W. Mann (1909)
 
 Lingve reviziis Margaret Munrow (2001)
-
-
-@omnibus.se
-
-·
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 La rakonto pri la pordo
@@ -45,27 +35,20 @@ En tiu ĉi rolo la sorto ofte faris, ke li estu la lasta konato kun bona reputac
 Por sinjoro Utterson sendube tio estis facila faro, ĉar eĉ en sia plej bona humoro li estis sindetenema, kaj eĉ liaj amikiĝoj ŝajnis esti fonditaj sur simila universaleco de bonkoremo.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 Jen signo de modesta homo: akcepti sian amikan rondon
 
 pretan el la manoj de la okazo; kaj tio estis la maniero de tiu advokato. Liaj amikoj estis liaj propraj samsanganoj aŭ tiuj, kiujn li konis dum plej longa tempo; liaj preferoj, same kiel la hedero, kreskis kun la tempo; ili necesigis nenian specialan taŭgecon ĉe sia objekto. De tio sendube naskiĝis la ligo, kiu ligis lin kun sinjoro Richard Enfield, lia malproksima paren-co, la konata urba elegantulo. Kion tiuj du povis vidi unu en la alia, aŭ kiun temon komunan al ambaŭ ili povis trovi, tio estis por multaj personoj fendenda nukso. Tiuj, kiuj renkontis ilin dum iliaj ĉiudimanĉaj promenoj, raportis, ke ili kutime diras nenion, ŝajnas strange malgajaj, kaj akceptas kun videbla senĝeniĝo la alvenon de amiko. Malgraŭ tio, la du viroj plej multe ŝatis tiujn ekskursojn, taksis ilin la ĉefa juvelo de ĉiu semajno, kaj ne nur flankenmetis okazojn de plezuro, sed eĉ malcedis al la alvokoj de profesiaj aferoj, por ke ili povu ĝui ilin sen interrompoj.
 
 Okazis dum unu el tiuj promenoj, ke ilia vojo kondukis ilin tra flanka strato en vivoplena kvartalo de Londono. La strato estis mallonga, kaj tia, kian oni nomas trankvila, sed ĝi faris prosperan komercon en la laboraj tagoj de la semajno. ŝajne ĉiuj loĝantoj bone prosperis, kaj ĉiuj esperis sukcesi ankoraŭ pli bone, kaj la superfluon de siaj gajnoj elspezis je koketaĵoj; tiamaniere, ke la frontoj de la butikoj sur tiu vojo staris kun invita mieno, kiel vicoj da ridetantaj vendistinoj.
 
-Eĉ dimanĉe, kiam ĝi vualis siajn pli brilajn ĉarmojn kaj estis malpli trairata, la strato lumis, kontraste al sia malgaja ĉirkaŭaĵo, kiel fajro en arbarego; kaj per siaj freŝe koloritaj fe-nestraj kovriloj, siaj bone poluritaj latunaĵoj, siaj ĝeneralaj 4
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Eĉ dimanĉe, kiam ĝi vualis siajn pli brilajn ĉarmojn kaj estis malpli trairata, la strato lumis, kontraste al sia malgaja ĉirkaŭaĵo, kiel fajro en arbarego; kaj per siaj freŝe koloritaj fe-nestraj kovriloj, siaj bone poluritaj latunaĵoj, siaj ĝeneralaj
 
 
 pureco kaj gajeco de tono, tuj kaptis kaj plaĉis la okulon de la preteriranto.
 
 Du pordojn for de angulo, je la maldekstra flanko orienten, la frontlinio estis rompita de korta enirejo, kaj ĝuste ĉe tiu punkto malbonaŭspicia masivo de konstruaĵoj eltrudis sian gablon al la strato. i estis duetaĝa, montris neniun fenest-ron, nenion alian ol pordon en la suba etago kaj blindan kvazaŭfrunton de makulita muro en la supra; ĝi havis en ĉiu trajto la signojn de longdaŭra avara malzorgo. La pordo, kiu posedis nek sonorilon nek frapilon, estis vezikita kaj makulita.
 
-Vagabondoj sin trenis en la pordalkovon kaj bruligis alume-tojn sur la paneloj; infanoj butikludis sur la ŝtupoj; lerneja knabo provis sian poŝtranĉilon sur la muldaĵoj, kaj en la daŭ-
-
-ro de preskaŭ tuta generacio, aperis neniu por forpeli tiujn okazajn vizitantojn aŭ por ripari iliajn ruinigaĵojn.
+Vagabondoj sin trenis en la pordalkovon kaj bruligis alume-tojn sur la paneloj; infanoj butikludis sur la ŝtupoj; lerneja knabo provis sian poŝtranĉilon sur la muldaĵoj, kaj en la daŭro de preskaŭ tuta generacio, aperis neniu por forpeli tiujn okazajn vizitantojn aŭ por ripari iliajn ruinigaĵojn.
 
 Sinjoro Enfield kaj la advokato iris sur la alia flanko de la strato; sed kiam ili alvenis ĝuste kontraŭ la enirejo, la unua levis montre sian bastonon.
 
@@ -77,18 +60,9 @@ Sinjoro Enfield kaj la advokato iris sur la alia flanko de la strato; sed kiam i
 
 Estis strato post strato, kaj ĉiuj logantoj estis dormantaj —
 
-strato post strato, ĉiuj lumigitaj kvazaŭ por procesio, kaj ĉiuj tiel malplenaj kiel preĝejo — ĝis fine mi eniris tian mensos-5
+strato post strato, ĉiuj lumigitaj kvazaŭ por procesio, kaj ĉiuj tiel malplenaj kiel preĝejo — ĝis fine mi eniris tian mensostaton, en kiu oni aŭskultas kaj aŭskultadas kaj komencas arde deziri, ke sin montru policano. Subite mi vidis du figurojn: unu estis malgranda viro, kiu iris orienten laŭ bona marŝado, kaj la alia knabino eble ok aŭ dekjara, kuranta tiel rapide, kiel ŝi povis sur transa strato. Nu, sinjoro, ili ambaŭ, ja sufiĉe kompreneble, kunfrapiĝis unu kontraŭ la alian je la angulo, kaj tiam okazis la terurega parto de la afero; ĉar la viro trankvile premis per piedo la korpon de la knabino kaj lasis ŝin krieganta sur la tero. Aŭdi tion estas nenio, sed vidi, tio estis infera. Ne estis kiel homo; estis kvazaŭ iu malbenita Juggernaut. ”He! haltu!” mi kriis, kaj lin atinginte, kaptis mian sinjoron je la nuko kaj rekondukis lin tien, kie staris jam tuta gru-po ĉirkaŭ la krieganta knabino. Li estis tute trankvila kajne kontraŭstaris, sed li ĵetis sur min rigardon, tiel malbelan, ke
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-taton, en kiu oni aŭskultas kaj aŭskultadas kaj komencas arde deziri, ke sin montru policano. Subite mi vidis du figurojn: unu estis malgranda viro, kiu iris orienten laŭ bona marŝado, kaj la alia knabino eble ok aŭ dekjara, kuranta tiel rapide, kiel ŝi povis sur transa strato. Nu, sinjoro, ili ambaŭ, ja sufiĉe kompreneble, kunfrapiĝis unu kontraŭ la alian je la angulo, kaj tiam okazis la terurega parto de la afero; ĉar la viro trankvile premis per piedo la korpon de la knabino kaj lasis ŝin krieganta sur la tero. Aŭdi tion estas nenio, sed vidi, tio estis infera. Ne estis kiel homo; estis kvazaŭ iu malbenita Juggernaut. ”He! haltu!” mi kriis, kaj lin atinginte, kaptis mian sinjoron je la nuko kaj rekondukis lin tien, kie staris jam tuta gru-po ĉirkaŭ la krieganta knabino. Li estis tute trankvila kajne kontraŭstaris, sed li ĵetis sur min rigardon, tiel malbelan, ke
-
-ĝi ŝvitigis min kiel kurado. La personoj alvenintaj estis la familio de la knabino; kaj baldaŭ aperis kuracisto, por kiu oni estis ŝin sendinta. Nu, la knabino ne estis multe vundita, sed pli ĝuste timigita, laŭ la diro de lia ostosegista moŝto; kaj jen, vi povus supozi, estus la fino de la afero. Sed estis unu stranga cirkonstanco. Jam ĉe la unua vido, la viraĉo inspiris al mi naŭ-
-
-zon. Ankaŭ la familio de la knabino ŝajnis senti la samon, kio estis ja nur nature. Sed kio frapis min, estis la kuracisto. Li estisordinara tipo de apotekisto, de neniu speciala aĝo aŭ koloro, kun forta Edinburga parolmaniero, kaj ne pli emociema ol sakfajfilo. Nu, sinjoro, al li estis, kiel al ni ĉiuj: kiam li rigardis mian kaptiton, mi vidis, ke tiu ostosegisto naŭziĝas kaj blankiĝas pro deziro lin mortigi. Mi sciis, kio estas en lia menso same kiel li sciis, kio estas en mia, kaj, ĉar mortigo estis neebla, ni faris tion, kion ni juĝis plej bona. Ni diris al la viro, ke ni povas fari, kaj ja faros, tian skandalon el la okazaĵo, ke 6
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+ĝi ŝvitigis min kiel kurado. La personoj alvenintaj estis la familio de la knabino; kaj baldaŭ aperis kuracisto, por kiu oni estis ŝin sendinta. Nu, la knabino ne estis multe vundita, sed pli ĝuste timigita, laŭ la diro de lia ostosegista moŝto; kaj jen, vi povus supozi, estus la fino de la afero. Sed estis unu stranga cirkonstanco. Jam ĉe la unua vido, la viraĉo inspiris al mi naŭzon. Ankaŭ la familio de la knabino ŝajnis senti la samon, kio estis ja nur nature. Sed kio frapis min, estis la kuracisto. Li estisordinara tipo de apotekisto, de neniu speciala aĝo aŭ koloro, kun forta Edinburga parolmaniero, kaj ne pli emociema ol sakfajfilo. Nu, sinjoro, al li estis, kiel al ni ĉiuj: kiam li rigardis mian kaptiton, mi vidis, ke tiu ostosegisto naŭziĝas kaj blankiĝas pro deziro lin mortigi. Mi sciis, kio estas en lia menso same kiel li sciis, kio estas en mia, kaj, ĉar mortigo estis neebla, ni faris tion, kion ni juĝis plej bona. Ni diris al la viro, ke ni povas fari, kaj ja faros, tian skandalon el la okazaĵo, ke
 
 
 lia nomo malbonodoros de unu fino de Londono ĝis la alia.
@@ -101,9 +75,7 @@ Nu, ni suprentordis lin ĝis 100 funtoj por la familio de la knabino; li videble
 
 —Trankviligu vin, li diris, mi restos kun vi ĝis la bankoj malfermiĝos, kaj tiam mi mem monigos la ĉekon.
 
-Tial ni ĉiuj ekiris, la kuracisto, la patro de la knabino, nia amiko, kaj mi mem, kaj ni pasigis la reston de la nokto en mia 7
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Tial ni ĉiuj ekiris, la kuracisto, la patro de la knabino, nia amiko, kaj mi mem, kaj ni pasigis la reston de la nokto en mia
 
 
 apartamento; kaj, la postan matenon, post kiam ni manĝis, ni iris kune al la banko. Mi mem prezentis la ĉekon kaj diris, ke mi havas ĉiun kaŭzon kredi, ke ĝi estas falsaĵo. Sed tute ne. La ĉeko estis bona.
@@ -118,13 +90,9 @@ El tio li estis revokita de iom subita demando de sinjoro Utterson:
 
 —Verŝajna loko, ĉu ne? respondis sinjoro Enfield. Sed okazas, ke mi rimarkis lian adreson; li loĝas ĉe iu placo.
 
-—Kaj vi neniam demandis pri … la loko kun la pordo? di-
+—Kaj vi neniam demandis pri … la loko kun la pordo? diris sinjoro Utterson.
 
-ris sinjoro Utterson.
-
-—Ne, sinjoro, mi estas diskretema, estis la respondo. Mi havas tre decidan opinion pri farado de demandoj; ĝi tro inklinas al la stilo de la Lasta Juĝo. Vi irigas demandon, kaj tio estas kiel irigi ŝtonon. Vi sidas kviete sur la supro de monte-to; kaj malsupreniras la ŝtono, irigante aliajn ŝtonojn, kaj baldaŭ iu afabla maljunulo (la lasta pri kiu vi povus pensi en tiu rilato) estas frapita en la kapo en sia propra malantaŭa ĝardeno, kaj la familio devas ŝanĝi sian nomon. Ne, sinjoro, mi 8
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Ne, sinjoro, mi estas diskretema, estis la respondo. Mi havas tre decidan opinion pri farado de demandoj; ĝi tro inklinas al la stilo de la Lasta Juĝo. Vi irigas demandon, kaj tio estas kiel irigi ŝtonon. Vi sidas kviete sur la supro de monte-to; kaj malsupreniras la ŝtono, irigante aliajn ŝtonojn, kaj baldaŭ iu afabla maljunulo (la lasta pri kiu vi povus pensi en tiu rilato) estas frapita en la kapo en sia propra malantaŭa ĝardeno, kaj la familio devas ŝanĝi sian nomon. Ne, sinjoro, mi
 
 
 faris al mi regulon, ke ju pli afero ŝajnas stranga, des malpli da demandoj mi faras.
@@ -141,20 +109,13 @@ La paro denove marŝis antaten silente dum iom da tempo, kaj poste:
 
 —Jes, tiel mi kredas, respondis Enfield.
 
-—Sed malgraŭ ĉio, daŭrigis la advokato, estas unu punk-
-
-to pri kiu mi deziras demandi; mi deziras peti la nomon de tiu homo, kiu piedpremis la knabinon.
+—Sed malgraŭ ĉio, daŭrigis la advokato, estas unu punkto pri kiu mi deziras demandi; mi deziras peti la nomon de tiu homo, kiu piedpremis la knabinon.
 
 —Nu, diris sinjoro Enfield, mi ne povas vidi, kiel tio mal-utilus. Estis homo nomita Hyde.
 
 —Hm, diris sinjoro Utterson, kia homo, kiel li aspektas?
 
-—Ne estas facile lin priskribi. Estas io malagrabla en lia aspekto; io malplaĉa, io absolute abomeninda. Mi neniam vidis homon, kiu tiom malplaĉis al mi, kaj tamen mi apenaŭ scias kial. Li ja nepre estas iel kriplita; li forte sentigas ian kriple-con, kvankam mi ne povus precizigi ĝian lokon. Lia aspekto estas iel neordinara kaj mi tamen ĉe li ne povas citi ion mal-norman. Ne, sinjoro, mi ne sukcesas, mi ne povas lin priskri-9
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-bi. Kaj tio ne estas pro manko de memoro; ĉar mi certigas, ke mi povas revidi lin en ĉi tiu momento.
+—Ne estas facile lin priskribi. Estas io malagrabla en lia aspekto; io malplaĉa, io absolute abomeninda. Mi neniam vidis homon, kiu tiom malplaĉis al mi, kaj tamen mi apenaŭ scias kial. Li ja nepre estas iel kriplita; li forte sentigas ian kriple-con, kvankam mi ne povus precizigi ĝian lokon. Lia aspekto estas iel neordinara kaj mi tamen ĉe li ne povas citi ion mal-norman. Ne, sinjoro, mi ne sukcesas, mi ne povas lin priskribi. Kaj tio ne estas pro manko de memoro; ĉar mi certigas, ke mi povas revidi lin en ĉi tiu momento.
 
 Sinjoro Utterson denove iom marŝis silente, kaj evidente sub la pezo de ia pripenso.
 
@@ -175,20 +136,13 @@ Sinjoro Utterson ekĝemis profunde, sed ne diris vorton; kaj la junulo parolis d
 —Tutkore, diris la advokato. Mi donas pri tio la manon, Richard.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 Serĉante sinjoron Hyde
 
 Tiun saman vesperon sinjoro Utterson revenis hejmen al
 
 sia fraŭla domo malgajhumora kaj sidiĝis vespermanĝi
 
-sen apetito. Estis dimanĉe lia kutimo, post la fino de tiu man-
-
-ĝo sidi apud la fajro kun volumo de neinteresa religiaĵo sur sia pupitro, ĝis la horloĝo de la apuda preĝejo sonorigis la dekduan horon, kiam li sobre kaj dankeme iris kuŝiĝi. Tiun nokton, tamen, tuj kiam oni forportis la tablotukon, li prenis kandelon kaj eniris en sian aferĉambron. Tie li malfermis sian gardoŝrankon, elprenis el kia plej privata parto dokumenton surskribitan ”Testamento de Doktoro Jekyll”, kaj sidiĝis kun nuba frunto por esplori ĝian enhavon. La testamento estis holografa; ĉar sinjoro Utterson, kvankam li gardis ĝin nun, kiam ĝi estas farita, antaŭe rifuzis doni eĉ la plej malgrandan helpon pri ĝia farado; ĝi kondiĉis ne nur ke, en okazo de la morto de Henry Jekyll M.D., D.C.L., LL.D., F.R.S., k. t. p., lia tuta bonhavo pasu en la manojn de lia ”amiko kaj bonfarinto Edward Hyde”; sed ke, en okazo de la malapero aŭ malkla-ra foresto de doktoro Jekyll dum periodo pli ol trimonata”, la dirita Edward Hyde anstataŭu la diritan Doktoron Jekyll sen plua prokrasto kaj estu liberade ĉia ŝarĝo aŭ devo, krom la pago de kelkaj malgrandaj sumoj al la anoj de la doktora do-mo. Delonge ĉi tiu dokumento estis la ĉefa abomenaĵo de la advokato. i lin ofendis, ne nur kiel advokaton, por kiu la fan-tazieco estis nemodesta, sed ankaŭ kiel amanton de la pru-11
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+sen apetito. Estis dimanĉe lia kutimo, post la fino de tiu manĝo sidi apud la fajro kun volumo de neinteresa religiaĵo sur sia pupitro, ĝis la horloĝo de la apuda preĝejo sonorigis la dekduan horon, kiam li sobre kaj dankeme iris kuŝiĝi. Tiun nokton, tamen, tuj kiam oni forportis la tablotukon, li prenis kandelon kaj eniris en sian aferĉambron. Tie li malfermis sian gardoŝrankon, elprenis el kia plej privata parto dokumenton surskribitan ”Testamento de Doktoro Jekyll”, kaj sidiĝis kun nuba frunto por esplori ĝian enhavon. La testamento estis holografa; ĉar sinjoro Utterson, kvankam li gardis ĝin nun, kiam ĝi estas farita, antaŭe rifuzis doni eĉ la plej malgrandan helpon pri ĝia farado; ĝi kondiĉis ne nur ke, en okazo de la morto de Henry Jekyll M.D., D.C.L., LL.D., F.R.S., k. t. p., lia tuta bonhavo pasu en la manojn de lia ”amiko kaj bonfarinto Edward Hyde”; sed ke, en okazo de la malapero aŭ malkla-ra foresto de doktoro Jekyll dum periodo pli ol trimonata”, la dirita Edward Hyde anstataŭu la diritan Doktoron Jekyll sen plua prokrasto kaj estu liberade ĉia ŝarĝo aŭ devo, krom la pago de kelkaj malgrandaj sumoj al la anoj de la doktora do-mo. Delonge ĉi tiu dokumento estis la ĉefa abomenaĵo de la advokato. i lin ofendis, ne nur kiel advokaton, por kiu la fan-tazieco estis nemodesta, sed ankaŭ kiel amanton de la pru-11
 
 
 dentaj kaj ordinaraj flankoj de la vivo. Kaj ĝis tiam estis lia nescio pri sinjoro Hyde, kiu ŝveligis lian indignon; nun, per subita okazintaĵo, estis lia scio. Sufiĉe malbone jam, ke la no-mo estis nur nomo, pri kiu li ne povas ion plian ekscii. Estis ankoraŭ pli malbone, kiam ĝi vestiĝis de abomenindaj ecoj; kaj el la ŝanĝiĝemaj sensubstancaj nebuloj, kiuj tiel trompis lian okulon, saltis la subita, difinita bildo de demono.
@@ -204,9 +158,6 @@ La seriozmiena ĉefservisto konis kaj bonvenigis lin; li ne estis devigata prokr
 ĉar tiuj du estis malnovaj kunuloj en la lernejo kaj la univer-sitato; ambaŭ plenege respektis sin mem kaj la alian, kaj, kio ne ĉiam sekvas, ili estis homoj, kiuj plenege ĝuis sian kunesta-don. Post iom da vaga interparolado, la advokato alproksimiĝis al la temo, kiu tiel malagrable priokupis liajn pensojn.
 
 —Mi supozas, Lanyon, li diris, ke vi kaj mi estas la du plej malnovaj amikoj, kiujn havas Harry Jekyll?
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —Mi dezirus, ke la amikoj estu pli junule freŝaj, diris ride doktoro Lanyon. Nu, mi supozas, ke ni ja estas. Kaj kio el tio?
@@ -235,19 +186,12 @@ Jen la sumo de la informoj, kiun la advokato reportis kun si al la granda mallum
 
 por lia penanta menso, penanta en la mallumo kaj sieĝata de demandoj.
 
-La sonoriloj de la preĝejo, kiu staris tiel oportune apud la 13
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+La sonoriloj de la preĝejo, kiu staris tiel oportune apud la
 
 
 domo de sinjoro Utterson, sonis la sesan horon, kaj ankoraŭ li luktis kun la problemo. is nun tiu problemo estis tuŝinta lin nur sur la flanko intelekta, sed nun ankaŭ lia imago estis okupata aŭ, por diri pli ĝuste, sklavigita; kaj, dum li kuŝis tie kaj ĵetiĝis en la mallumo de la nokto kaj de sia kurtendrapi-rita ĉambro, la rakonto de sinjoro Enfield preterpasis antaŭ lia menso kvazaŭ sur rulaĵo de lumigitaj bildoj. Jen li vidas la longajn vicojn de lanternoj de nokta urbo; poste figuron de homo rapide marŝanta; jen knabinon kuranta de la kuracis-ta domo, jen tiuj du kunfrapiĝas kaj tiu homa Juggernaut piede subpremas la knabinon kaj pluiras, neniel atentante pri ŝiaj krioj. Aŭ li vidas ĉambron en riĉa domo, kie kuŝas lia amiko dormanta, sonĝante, kaj ridetante pro siaj sonĝoj; kaj jen la pordo malfermiĝas, la kurtenoj apartiĝas, la dormanto ve-kiĝas, kaj jen! staras apud li figuro, al kiu estas donita potenco, kaj eĉ dum tiu senviva horo li devas leviĝi kaj fari laŭ ĝia ordono…
 
-La figuro en tiuj du fazoj obsedis la advokaton dum la tuta nokto; kaj se je iu momento li ekdormis, estis nur por vidi ĝin gliti pli kaŝe inter dormantaj domoj aŭ ŝoviĝi pli rapide, eĉ ĝis kapturniĝo, tra pli larĝaj labirintoj de la lanterne lumata urbo, kaj ĉe ĉiu angulo surmarŝi knabinon kaj lasi ŝin krieganta. Kaj tamen la figuro ne havis vizaĝon, per kiu li povus ĝin rekoni; eĉ dum la sonĝoj ĝi havis aŭ nenian vizaĝon, aŭ unu, kiu trompis lin kaj dissolviĝis antaŭ liaj okuloj; kaj tiel naskiĝis en la spirito de la advokato kaj pligrandiĝis strange forta, preskaŭ supermezura scivolo rigardi la trajtojn de la vera sinjoro Hyde. Se li povus nur unufoje rigardi lin, li opiniis, la mistero klariĝus kaj eble forruliĝus, kiel estas kutimo ĉe misteroj, kiam oni esploras ilin. Li eble povus vidi kaŭzon por la stran-14
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ga prefero aŭ dependeco (nomu ĝin, kiel al vi plaĉas) de sia amiko, kaj eĉ por la frape strangaj kondiĉoj de la testamento. Se almenaŭ estus vizaĝo vidinda; vizaĝo de homo tute senkompata; vizaĝo, kiu devis sin nur montri por naski, en la menso de la neimpresiĝema Enfield, senton de daŭronta mal-
+La figuro en tiuj du fazoj obsedis la advokaton dum la tuta nokto; kaj se je iu momento li ekdormis, estis nur por vidi ĝin gliti pli kaŝe inter dormantaj domoj aŭ ŝoviĝi pli rapide, eĉ ĝis kapturniĝo, tra pli larĝaj labirintoj de la lanterne lumata urbo, kaj ĉe ĉiu angulo surmarŝi knabinon kaj lasi ŝin krieganta. Kaj tamen la figuro ne havis vizaĝon, per kiu li povus ĝin rekoni; eĉ dum la sonĝoj ĝi havis aŭ nenian vizaĝon, aŭ unu, kiu trompis lin kaj dissolviĝis antaŭ liaj okuloj; kaj tiel naskiĝis en la spirito de la advokato kaj pligrandiĝis strange forta, preskaŭ supermezura scivolo rigardi la trajtojn de la vera sinjoro Hyde. Se li povus nur unufoje rigardi lin, li opiniis, la mistero klariĝus kaj eble forruliĝus, kiel estas kutimo ĉe misteroj, kiam oni esploras ilin. Li eble povus vidi kaŭzon por la stranga prefero aŭ dependeco (nomu ĝin, kiel al vi plaĉas) de sia amiko, kaj eĉ por la frape strangaj kondiĉoj de la testamento. Se almenaŭ estus vizaĝo vidinda; vizaĝo de homo tute senkompata; vizaĝo, kiu devis sin nur montri por naski, en la menso de la neimpresiĝema Enfield, senton de daŭronta mal-
 
 ŝato.
 
@@ -258,9 +202,6 @@ ja en ĉiu horo la advokato estis trovebla ĉe sia elektita posteno.
 —Se li estas sinjoro Hyde, li pensis, mi estos sinjoro Seek1.
 
 Kaj fine lia pacienco estis rekompencita. Estis hela, seka nokto; frosto en la aero; la stratoj tiel puraj, kiel la planko de balĉambro; la lanternoj, skuataj de neniu vento, desegnis re-gulajn formojn el lumo kaj ombro. Je la deka, kiam la butikoj fermiĝis, la flankstrato estis jam tute senhoma, kaj malgraŭ la mallaŭta muĝado de Londono ĉie ĉirkaŭe, tre silenta. Sinjoro Utterson jam staris dum kelkaj minutoj ĉe sia posteno, kiam li eksciiĝis pri stranga malpeza piedpaŝo alproksimiĝanta. En la daŭro de siaj ĉiunoktaj patroloj, li jam de longe kutimiĝis al la kurioza efekto, kun kiu la piedsonado de sola persono, dum tiu estas ankoraŭ malproksima, subite elsaltas klare dis-tingebla el la vasta zumado kaj bruado de la urbo. Tamen lia atento estis neniam antaŭe tiel subite kaj decidige koncent-rita, kaj estis kun forta superstiĉa antaŭsento de sukceso, ke li retiris sin en la enirejon de la korto. La paŝoj rapide prok-1 ”Hide and Seek” estas infana ludo, laŭ kiu unuj devas sin kaŝi (Hide) kaj la aliaj ilin senserĉi (Seek).
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 simiĝis, kaj subite plilaŭtiĝis, kiam ili ĉirkaŭpasis la angulon de la strato. La advokato, rigardante el la enirejo, povis baldaŭ vidi, kun kia homo li devas trakti. Tiu ĉi estis malgranda kaj tre simple vestita; kaj lia mieno, ce je tiu distanco, iel naskis en la observanto fortan malsimpation. Sed li iris rekte al la pordo, pasante oblikve la straton por ne perdi tempon, kaj eltiris ŝlosilon el la poŝo kiel iu, kiu proksimiĝas al la hejmo.
@@ -290,9 +231,6 @@ advokato.
 Sinjoro Hyde ŝajnis heziti; fine kvazaŭ post subita pripenso, li frontis lin kun mieno de defio, kaj la paro sufiĉe fikse rigardis unu la alian dum kelkaj momentoj.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 — Nun mi povos rekoni vin, diris sinjoro Utterson. Eble estos utile.
 
 —Jes, respondis sinjoro Hyde, estas ja bone, ke ni renkontiĝis; kaj, konvenas, ke vi havu mian adreson. Kaj li donis nu-meron en strato de Soho.
@@ -317,9 +255,7 @@ Sed li retenis siajn sentojn kaj nur gruntis dankon pro la dono de la adreso.
 
 —Nu, diris sinjoro Utterson, tia parolo ne estas deca. La alia rikanis laŭte en sovaĝan ridon; kaj jen la postan momenton, kun eksterordinara rapideco, li malŝlosis la pordon kaj malaperis en la domon. La advokato staris dum kelka tempo post kiam sinjoro Hyde forlasis lin, kiel bildo de maltrankvilo.
 
-Tiam li malrapide supreniris la straton, haltis post ĉiuj du-tri paŝoj, kaj metis la manon al la frunto, kiel homo kun mensa perplekso. La problemo, kiun li promenante tiee pripensis, estis el speco, kiu malofte solviĝas. Sinjoro Hyde estis pala, kaj havis pigmean eksteraĵon; li donis la impreson de malbel-formiteco sen ia nomebla malbeleco de formo, li havis mal-allogan rideton, kaj li kondutis al la advokato kun mikso de 17
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Tiam li malrapide supreniris la straton, haltis post ĉiuj du-tri paŝoj, kaj metis la manon al la frunto, kiel homo kun mensa perplekso. La problemo, kiun li promenante tiee pripensis, estis el speco, kiu malofte solviĝas. Sinjoro Hyde estis pala, kaj havis pigmean eksteraĵon; li donis la impreson de malbel-formiteco sen ia nomebla malbeleco de formo, li havis mal-allogan rideton, kaj li kondutis al la advokato kun mikso de
 
 
 timemo kaj trokuraĝo, kaj li parolis per raŭka mallaŭta kaj iom rompita voĉo — ĉiuj ĉi punktoj estis kontraŭ li; sed ĉio ĉi kune ne sufiĉis por klarigi la ĝis tiam nekonitan naŭzon, abo-menon kaj timon, kun kiu sinjoro Utterson rigardis lin:
@@ -333,9 +269,6 @@ Unu konstruaĵo, tamen, la dua for de la angulo, estis ankoraŭ tute okupata; ka
 —ĉu doktoro Jekyll estas hejme, Poole? demandis la advokato.
 
 —Mi kontrolos, sinjoro Utterson, diris Poole, dume enlasante la vizitanton en grandan komfortan vestiblon kun malalta plafono, pavimita per kahelo, hejtata (laŭ la maniero de kampara domego) per hela malfermita fajro kaj meblita per multekostaj mebloj el kverko.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —ĉu vi volas atendi ĉi tie apud la fajro, sinjoro? aŭ ĉu mi lumigu por vi en la manĝoĉambro?
@@ -361,9 +294,6 @@ Mi ja vidas lin tre malofte ĉi-tiuflanke de la domo; li plej ofte venas kaj ira
 —Bonan nokton, sinjoro Utterson.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 Kaj la advokato ekiris al sia hejmo kun tre malgaja koro.
 
 —Malfeliĉa Harry Jekyll, li pensis, miaj pensoj min trompas se li ne perdiĝas en profundajn akvojn! Li estis tre sovaĝa, kiam li estis juna, antaŭ tre longe, ja vere, sed en la leĝaro de Dio stato de limigo ne ekzistas. Ha! devas esti tio; la fantomo de iu malnova peko — la kancero de iu kaŝita malhonoro, puno venanta, pede claudo, jarojn post kiam la memoro forgesis kaj la memamo pardonis la kulpon.
@@ -373,22 +303,15 @@ Kaj la advokato, timigita de la penso, zorgmeditis dum iom da tempo pri sia prop
 —Tiu ĉi sinjoro Hyde, se oni lin esplorus, li pensis, devas ja havi siajn proprajn sekretojn; nigrajn sekretojn, laŭ sia mieno; sekretojn kompare al kiuj la plej malbonaj de malfeliĉa Jekyll estus kvazaŭ sunlumo. La afero ne povas daŭrigi tiel, kiel estas. Mi malvarmiĝas, kiam mi pensas pri tiu ĉi estaĵo rampanta kiel ŝtelisto al la lito de Harry! Malfeliĉa Harry, kia vekiĝo! Kaj la danĝero! ĉar se tiu ĉi Hyde suspektas la ekzis-ton de la testamento, li povos malpacienciĝi pro deziro heredi. Ha, mi devos prizorgi la taskon, — se nur Jekyll tion al mi permesos, li aldonis. ĉar denove li vidis antaŭ sia interna okulo, klarajn kiel diafanaĵo, la strangajn kondiĉojn de la testamento.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 Doktoro Jekyll estis tute senĝena
 
-Post du semajnoj, laŭ bonega bonŝanco, la doktoro invitis al unu el siaj agrablaj vespermanĝoj kvin aŭ ses malno-vajn intimulojn, ĉiuj inteligentaj estimindaj homoj, kaj ĉiuj kompetentaj pri bona vino; kaj sinjoro Utterson tiel manov-ris, ke li restis post la foriro de la aliaj. Tio ne estis nova aran-
-
-ĝo, sed jam okazis dekojn da fojoj. Kie Utterson estis ŝatata, tie li estis tre ŝatata. Dommastroj amis reteni la sekan advokaton, kiam la gajeguloj kaj la babilemuloj havis jam la piedon sur la sojlo por foriri; ili amis sidi dum iom da tempo kun lia netrudema kunesto, sin ekzercante por la soleco, sobrigante siajn menson en lia riĉa silento, post la elspezoj kaj streĉoj de la festeno. Al tiu ĉi regulo, doktoro Jekyll ne estis escepto; kaj dum li nun sidis ĉe la kontraŭa flanko de la fajro, — randa, belforma, glatvizaĝa, kvindekjara viro, kun eksteraĵo eble iom ruzeta, sed kun ĉia signo de kapableco kaj bonkoreco, — oni povis vidi per liaj rigardoj, ke li havas al sinjoro Utterson sin-ceran kaj varman korinklinon.
+Post du semajnoj, laŭ bonega bonŝanco, la doktoro invitis al unu el siaj agrablaj vespermanĝoj kvin aŭ ses malno-vajn intimulojn, ĉiuj inteligentaj estimindaj homoj, kaj ĉiuj kompetentaj pri bona vino; kaj sinjoro Utterson tiel manov-ris, ke li restis post la foriro de la aliaj. Tio ne estis nova aranĝo, sed jam okazis dekojn da fojoj. Kie Utterson estis ŝatata, tie li estis tre ŝatata. Dommastroj amis reteni la sekan advokaton, kiam la gajeguloj kaj la babilemuloj havis jam la piedon sur la sojlo por foriri; ili amis sidi dum iom da tempo kun lia netrudema kunesto, sin ekzercante por la soleco, sobrigante siajn menson en lia riĉa silento, post la elspezoj kaj streĉoj de la festeno. Al tiu ĉi regulo, doktoro Jekyll ne estis escepto; kaj dum li nun sidis ĉe la kontraŭa flanko de la fajro, — randa, belforma, glatvizaĝa, kvindekjara viro, kun eksteraĵo eble iom ruzeta, sed kun ĉia signo de kapableco kaj bonkoreco, — oni povis vidi per liaj rigardoj, ke li havas al sinjoro Utterson sin-ceran kaj varman korinklinon.
 
 —Mi deziris paroli kun vi, Jekyll, komencis tiu ĉi. Vi scias, tiu via testamento …
 
 Atenta observanto povus konstati, ke la temo estas malagrabla; sed la doktoro eltenis ĝin gaje.
 
-—Mia malfeliĉa Utterson, li diris, vi estas kompatinda pro tia kliento. Mi neniam vidis homon tiel afliktita, kiel vi estis pro mia testamento; escepte se estus tiu limigita pedanto 21
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Mia malfeliĉa Utterson, li diris, vi estas kompatinda pro tia kliento. Mi neniam vidis homon tiel afliktita, kiel vi estis pro mia testamento; escepte se estus tiu limigita pedanto
 
 
 Lanyon, pri tio, kion li nomas miaj sciencaj herezoj. Eĉ mi scias, ke li estas bonulo, — vi ne bezonas fari nuban vizaĝon, vere bonegulo, mi ĉiam intencas vidi lin pli ofte; sed li estas tamen, malgraŭ ĉio, limigita pedanto, ignoranta, aroganta pedanto. Mi neniam pri iu estis pli dolore trompita, ol pri Lanyon.
@@ -405,15 +328,11 @@ La granda bela vizaĝo de doktoro Jekyll paliĝis ĝis la lipoj mem, kaj nigro a
 
 —Tio, kion mi aŭdis, estis abomena, diris Utterson.
 
-—Tio ne povas ŝanĝi la aferon. Vi ne komprenas mian po-
-
-zicion, respondis la doktoro, kun ia nekonsekvenceco de maniero. Mi troviĝas en doloriga situacio, Utterson. Mia pozicio estas tre stranga, ja tre stranga. Estas unu el tiuj aferoj, kiujn la diskuto ne povas ripari.
+—Tio ne povas ŝanĝi la aferon. Vi ne komprenas mian pozicion, respondis la doktoro, kun ia nekonsekvenceco de maniero. Mi troviĝas en doloriga situacio, Utterson. Mia pozicio estas tre stranga, ja tre stranga. Estas unu el tiuj aferoj, kiujn la diskuto ne povas ripari.
 
 —Jekyll, diris Utterson, vi min intime konas mi estas homo fidinda. Faru pri ĉi tio plenan malkaŝan konfeson, kaj mi neniel dubas, ke mi povos eltiri vin el via embaraso.
 
-—Mia bona Utterson, diris la doktoro, estas treege bone vi-aparte, kaj mi ne trovas vortojn, per kiuj vin danki. Mi plene kredas vin; mi fidas al vi pli ol al iu alia vivanta, ja, pli ol al mi mem, se mi povus fari la elekton; sed vere ne estas tio, kion vi supozas, ne estas tiel malbone; kaj ĝuste por trankviligi 22
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Mia bona Utterson, diris la doktoro, estas treege bone vi-aparte, kaj mi ne trovas vortojn, per kiuj vin danki. Mi plene kredas vin; mi fidas al vi pli ol al iu alia vivanta, ja, pli ol al mi mem, se mi povus fari la elekton; sed vere ne estas tio, kion vi supozas, ne estas tiel malbone; kaj ĝuste por trankviligi
 
 
 vian bonan koron, mi diros al vi ĉi tion: Tuj kiam mi volos, mi povos min liberigi de sinjoro Hyde. Pri tio mi donas al vi mian manon, kaj mi dankas vin ree kaj ree. Kaj mi aldonos nur unu malgrandan vorton, Utterson, kiun, — mi estas certa pri tio,
@@ -435,28 +354,15 @@ Utterson ekĝemis malgraŭvole.
 —Nu, li diris, mi promesas.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 La murdo de Carew
 
-Preskaŭ unu jaron poste, en la monato oktobro 18–, Lon-
+Preskaŭ unu jaron poste, en la monato oktobro 18–, Londono estis timigita de krimo de stranga krueleco, kiun
 
-dono estis timigita de krimo de stranga krueleco, kiun
-
-igis pli rimarkinda la alta rango de la viktimo. La detaloj estis malmultaj kaj timigaj. Servistino, loĝanta sola en domo ne malproksime de la rivero, supreniris por kuŝiĝi ĉirkaŭ la de-kunua. Kvankam nebulo ruliĝis super la urbo dum la fruaj horoj, la unua parto de la nokto estis sennuba, kaj la strateto, sur kiun rigardis la fenestro de la servistino, estis brile lumigata de la plena luno. ŝajnas, ke ŝi estis romantikema, ĉar ŝi sidiĝis sur sian keston, kiu staris ĝuste sub la fenestro, kaj enprofundiĝis en revadon. Neniam, — ŝi kutimis diri kun fluantaj larmoj, kiam ŝi rakontis la okazintaĵon, — neniam ŝi sentis sin pli en paco kun ĉiuj homoj, aŭ pensis pli bonvole pri la mondo. Kaj dum ŝi tiel sidis, ŝi vidis maljunan, belan sinjoron kun blankaj haroj, kiu alproksimiĝis sur la strateto; kaj renkonte al li, alian tre malgrandan sinjoron, kiun kom-ence ŝi malpli atentis. Kiam ili venis al paroldistanco — kio estis ĝuste sub la okuloj de la servistino — la pli aĝa viro klin-salutis kaj alparolis la alian en ĝentila maniero. Ne ŝajnis, ke la temo de lia parolado estas grava; fakte, de lia montrado ŝajnis, ke li nur demandas pri la vojo; sed la luno brilis sur lian vizaĝon dum li parolis, kaj plaĉis al la knabino ĝin observi, tiel senkulpan kaj malnovmodan bonkorecon de maniero ĝi ŝajnis elspiri, tamen estis ankaŭ ĉe ĝi io alta, kvazaŭ de ia bon-24
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-fondita memkontento. Baldaŭ ŝia rigardo vagis al la alia, kaj ŝi estis surprizita rekoni en li sinjoron Hyde, kiu foje vizitis ŝian mastron, kaj al kiu ŝi sentis malsimpation. Li portis en la mano pezan bastoneton, kiun li sencele manumis; sed li nenion respondis, kaj ŝajnis aŭskulti kun malfacile retenata malpacienco. Kaj tiam subite li eksplodis en grandan flamiĝon de kolero, frapis per la piedo, svingis sian bastonon kaj kondutis, — kiel diris la servistino, — kvazaŭ frenezulo. La maljunulo retiriĝis unu paŝon, kun mieno de homo treege surprizita kaj iom ĉagrenita; kaj ĉe tio sinjoro Hyde diskrevigis ĉiujn li-mojn kaj bastonegis lin teren. Tuj poste li kun simia furiozo premegis subpiede sian viktimon, kaj hajligis sur lin tian ventegon da batoj, ke la ostoj aŭdeble frakasiĝis kaj la korpo saltis sur la vojo. Pro la teruro de tiu vido kaj tiuj sonoj, la servistino svenis.
+igis pli rimarkinda la alta rango de la viktimo. La detaloj estis malmultaj kaj timigaj. Servistino, loĝanta sola en domo ne malproksime de la rivero, supreniris por kuŝiĝi ĉirkaŭ la de-kunua. Kvankam nebulo ruliĝis super la urbo dum la fruaj horoj, la unua parto de la nokto estis sennuba, kaj la strateto, sur kiun rigardis la fenestro de la servistino, estis brile lumigata de la plena luno. ŝajnas, ke ŝi estis romantikema, ĉar ŝi sidiĝis sur sian keston, kiu staris ĝuste sub la fenestro, kaj enprofundiĝis en revadon. Neniam, — ŝi kutimis diri kun fluantaj larmoj, kiam ŝi rakontis la okazintaĵon, — neniam ŝi sentis sin pli en paco kun ĉiuj homoj, aŭ pensis pli bonvole pri la mondo. Kaj dum ŝi tiel sidis, ŝi vidis maljunan, belan sinjoron kun blankaj haroj, kiu alproksimiĝis sur la strateto; kaj renkonte al li, alian tre malgrandan sinjoron, kiun kom-ence ŝi malpli atentis. Kiam ili venis al paroldistanco — kio estis ĝuste sub la okuloj de la servistino — la pli aĝa viro klin-salutis kaj alparolis la alian en ĝentila maniero. Ne ŝajnis, ke la temo de lia parolado estas grava; fakte, de lia montrado ŝajnis, ke li nur demandas pri la vojo; sed la luno brilis sur lian vizaĝon dum li parolis, kaj plaĉis al la knabino ĝin observi, tiel senkulpan kaj malnovmodan bonkorecon de maniero ĝi ŝajnis elspiri, tamen estis ankaŭ ĉe ĝi io alta, kvazaŭ de ia bonfondita memkontento. Baldaŭ ŝia rigardo vagis al la alia, kaj ŝi estis surprizita rekoni en li sinjoron Hyde, kiu foje vizitis ŝian mastron, kaj al kiu ŝi sentis malsimpation. Li portis en la mano pezan bastoneton, kiun li sencele manumis; sed li nenion respondis, kaj ŝajnis aŭskulti kun malfacile retenata malpacienco. Kaj tiam subite li eksplodis en grandan flamiĝon de kolero, frapis per la piedo, svingis sian bastonon kaj kondutis, — kiel diris la servistino, — kvazaŭ frenezulo. La maljunulo retiriĝis unu paŝon, kun mieno de homo treege surprizita kaj iom ĉagrenita; kaj ĉe tio sinjoro Hyde diskrevigis ĉiujn li-mojn kaj bastonegis lin teren. Tuj poste li kun simia furiozo premegis subpiede sian viktimon, kaj hajligis sur lin tian ventegon da batoj, ke la ostoj aŭdeble frakasiĝis kaj la korpo saltis sur la vojo. Pro la teruro de tiu vido kaj tiuj sonoj, la servistino svenis.
 
 Estis la dua horo, kiam ŝi rekonsciiĝis kaj venigis la policon. La murdinto jam antaŭ longe foriris; sed tie kuŝis lia murdito meze de la strateto, nekredeble senformigita. La bastono, per kiu la ago estis farita, kvankam el malofta, tre fortika kaj peza ligno, rompiĝis ĉe la mezo per la forto de tiu sensenta kruelo, kaj unu splitigita duono ruliĝis en la deflui-lon, la alian sendube forportis la murdinto. Monujo kaj ora poŝhorloĝo estis trovitaj sur la mortigito, sed neniu karto aŭ papero, krom sigelita kaj afrankita koverto, kiun li kredeble portis al la poŝto, kaj kiu surhavis la nomon kaj adreson de sinjoro Utterson.
 
 in oni oni portis la postan matenon al la advokato antaŭ ol li leviĝis; kaj ĝin vidinte kaj sciiĝinte pri la cirkonstancoj, li tuj surmetis seriozan mienon.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —Mi diros nenion, ĝis mi vidos la korpon, li diris, ĉi tio povas esti tre grava. Bonvolu atendi, dum mi vestos min.
@@ -479,9 +385,7 @@ Sinjoro Utterson pripensis; poste, levante la kapon:
 
 —Se vi venos kun mi en mia veturilo, li diris, mi kredas, ke mi povos konduki vin al lia domo.
 
-Estis jam preskaŭ la naŭa matene, kaj venis la unua nebulo de la sezono. Vasta ĉokoladkolora vaporo malleviĝis de la ĉie-lo kvazaŭ ĉerkokovrilo, sed la vento senĉese atakegis kaj forpelis tiujn remparigitajn vaporojn — tiel, ke dum la malrapida rampado de la fiakro el unu strato sur la alian, sinjoro Utterson povis vidi mirindan nombron da gradoj kaj nuancoj de krepuska lumo; ĉar jen malhelis kvazaŭ en la profundo de 26
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Estis jam preskaŭ la naŭa matene, kaj venis la unua nebulo de la sezono. Vasta ĉokoladkolora vaporo malleviĝis de la ĉie-lo kvazaŭ ĉerkokovrilo, sed la vento senĉese atakegis kaj forpelis tiujn remparigitajn vaporojn — tiel, ke dum la malrapida rampado de la fiakro el unu strato sur la alian, sinjoro Utterson povis vidi mirindan nombron da gradoj kaj nuancoj de krepuska lumo; ĉar jen malhelis kvazaŭ en la profundo de
 
 
 vespera ĉielo; jen la ardado de riĉa flamstriita bruno, kiel la brilo de ia stranga brulado, kaj jen, momente, la nebulo tute distriĝis, kaj palega radio da taglumo traglitis inter la turniĝantaj volvaĵoj de la vaporo. La funebreca kvartalo Soho, vi-data sub ĉi tiuj ŝanĝiĝantaj rigardoj kun siaj kotaj vojoj kaj malelegantaj preterirantoj, kaj siaj lanternoj, kiuj estis aŭ ankoraŭ ne estingitaj aŭ rebruligitaj por kontraŭbatali tiun ĉi malĝojan invadon de la mallumo, ŝajnis al la okuloj de la advokato simili kvartalon de urbo en ia koŝmaro. Liaj pensoj, plie, estis kolorigitaj de la plej malgajaj nuancoj; kaj kiam li rigardis sian veturkunulon, li sentis tuŝon de tiu teruro al la leĝo kaj ĝiaj oficistoj, kiu foje povas ataki eĉ la plej honestan.
@@ -491,9 +395,6 @@ Kiam la veturilo haltis ĉe la indikita adreso, la nebulo iom leviĝis, kaj li v
 Arĝenthara maljunulino, kun vizaĝo kvazaŭ el eburo, malfermis la pordon. ŝi havis malbonan vizaĝon, glatigitan de hi-pokriteco; sed ŝia maniero estis afabla.
 
 —Jes, ŝi diris, ja loĝas sinjoro Hyde tie ĉi, sed li ne estas hejme, li estis en la domo lastnokte tre malfrue, sed reeliris post malpli ol unu horo; tio tute ne estas stranga; liaj kutimoj estas tre neregulaj, kaj li ofte forestas; ekzemple, ĝis hieraŭ ŝi ne vidis lin jam de preskaŭ du monatoj.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —Bone, ni do deziras vidi liajn ĉambrojn, diris la advokato; kaj, kiam la virino komencis deklari, ke tio estas neebla: Mi devas sciigi al vi, kiu estas ĉi tie kun mi, li aldonis: Tiu ĉi estas Inspektoro Newcomen de Scotland Yard.
@@ -508,31 +409,18 @@ Sinjoro Utterson kaj la inspektoro rigardis unu la alian.
 
 —Kaj nun, mia bonulino, permesu, ke mi kaj tiu ĉi sinjoro iom ĉirkaŭrigardu.
 
-El la tuta domo, kiu krom pro la maljunulino estis senho-ma, sinjoro Hyde estis okupinta nur du ĉambrojn; sed tiuj estis meblitaj lukse kaj bonguste. ŝranko estis plena de bona vino; la teleraro estis el arĝento, la tukaro eleganta; bona pen-traĵo pendis sur la muro, donaco (Utterson supozis) de Henry Jekyll, kiu estis granda konulo; la tapiŝoj estis dikegaj kaj el agrablaj koloroj. En tiu momento, tamen, la ĉambroj portis signon de antaŭnelonga kaj rapida traserĉado: dise sur la planko kuŝis vestaĵoj, kun la poŝoj turnitaj eksteren; ŝIoseblaj tirkestoj estis malfermitaj kaj sur la fajrejo kuŝis amaso da griza cindro, kvazaŭ multe da paperoj estis bruligitaj. El tiu cindramaso la inspektoro eltiris dikan ekstremaĵon de verda ĉeklibro, kiu kontraŭstaris la efikon de la fajro; la alia duono de la bastono estis trovita malantaŭ la pordo; kaj, ĉar tio ĉi certigis liajn suspektojn, la policano deklaris sin ravita. Vizito al la banko, kie oni sciigis lin, ke kelkmilo da pundoj kuŝas tie je la kredito de la murdinto, kompletigis lian kontentecon.
+El la tuta domo, kiu krom pro la maljunulino estis senho-ma, sinjoro Hyde estis okupinta nur du ĉambrojn; sed tiuj estis meblitaj lukse kaj bonguste. ŝranko estis plena de bona vino; la teleraro estis el arĝento, la tukaro eleganta; bona pen-traĵo pendis sur la muro, donaco (Utterson supozis) de Henry Jekyll, kiu estis granda konulo; la tapiŝoj estis dikegaj kaj el agrablaj koloroj. En tiu momento, tamen, la ĉambroj portis signon de antaŭnelonga kaj rapida traserĉado: dise sur la planko kuŝis vestaĵoj, kun la poŝoj turnitaj eksteren; ŜIoseblaj tirkestoj estis malfermitaj kaj sur la fajrejo kuŝis amaso da griza cindro, kvazaŭ multe da paperoj estis bruligitaj. El tiu cindramaso la inspektoro eltiris dikan ekstremaĵon de verda ĉeklibro, kiu kontraŭstaris la efikon de la fajro; la alia duono de la bastono estis trovita malantaŭ la pordo; kaj, ĉar tio ĉi certigis liajn suspektojn, la policano deklaris sin ravita. Vizito al la banko, kie oni sciigis lin, ke kelkmilo da pundoj kuŝas tie je la kredito de la murdinto, kompletigis lian kontentecon.
 
-—Vi povas fidi, sinjoro, diris li al sinjoro Utterson, ke mi nun havas lin bone en la mano. Li sendube perdis la kapon, alie li neniam lasus la bastonon, kaj, antaŭ ĉio, neniam bru-28
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ligus la ĉekojn. Nur per mono li povas ja vivi. Ni havas nenion por fari, krom atendi lin ĉe la banko kaj eldoni afiŝetojn.
+—Vi povas fidi, sinjoro, diris li al sinjoro Utterson, ke mi nun havas lin bone en la mano. Li sendube perdis la kapon, alie li neniam lasus la bastonon, kaj, antaŭ ĉio, neniam bruligus la ĉekojn. Nur per mono li povas ja vivi. Ni havas nenion por fari, krom atendi lin ĉe la banko kaj eldoni afiŝetojn.
 
 Tiu ĉi lasta afero, tamen, ne estis tiel facila; ĉar sinjoro Hyde havis malmulte da konatoj, eĉ la mastro de la servistino lin vidis nur dufoje, lian parencaron oni povis trovi nenie, li estis neniam fotita, kaj la malmultaj, kiuj povis lin priskribi, tute malkonsentis inter si, laŭ la kutimo de ordinaraj ob-servantoj. Nur pri unu sola punkto ili konsentis; kaj tiu estis la obseda sento de neesprimita kripleco, per kiu la fuĝinto impresis tiujn, kiuj lin vidis.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 La okazaĵo pri la letero
 
 Estis malfrue en la posttagmezo, kiam sinjoro Utterson alvenis al la pordo de doktoro Jekyll, kie li estis tuj enlasi-ta de Poole kaj kondukita malsupren preter la kuirejo kaj trans korton, kiu iam estis ĝardeno, ĝis la konstruaĵo, kiun oni nomis indiferente, la laboratorio aŭ dissekca ĉambro. La doktoro aĉetis la domon de la heredintoj de fama ˛irurgo; kaj ĉar liaj propraj gustoj estis pli ęmiaj ol anatomiaj, li ŝanĝis la uzon de la konstruaĵo en la malantaŭa parto de la ĝardeno.
 
-Estis la unua fojo, ke la advokato estis akceptita en tiu parto de la loĝejo de sia amiko; li observis la malluman senfene-stran konstruaĵon kun scivolo kaj ĉirkaŭrigardis kun malagrabla sento de strangeco, dum li transiris la operacian teatron, iam amase plenigitan del fervoraj studentoj, nun mal-plenan kaj silentan, kun la tabloj ŝarĝitaj de ęmiaj aparatoj, la planko kovrita de kestoj kaj pakpajlo, kaj la lumo malkla-re falanta tra la tegmenta kupolo. ĉe la alia flanko, ŝtuparo kondukis supren al pordo kovrita de ruĝa ŝtofaĵo, kaj tra tiu sinjoro Utterson estis fine akceptita en la kabineton de la doktoro. Estis granda ĉambro, ĉirkaŭgarnita per vitraj ŝrankoj, meblita interalie per spegulego kaj skribtablo, kaj rigardanta sur la korton per tri polvokovritaj fenestroj kun feraj baroj. Fajro brulis en la kameno, bruligita lampo staris sur la kamenbreto, ĉar eĉ en la domoj la nebulo komencis kuŝi dense, kaj tie, proksimege de la varmo, sidis doktoro Jekyll, ŝaj-30
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ne morte malsana. Li ne stariĝis por akcepti sian vizitanton, sed etendis malvarme la manon kaj bonvenigis lin per ŝanĝita voĉo.
+Estis la unua fojo, ke la advokato estis akceptita en tiu parto de la loĝejo de sia amiko; li observis la malluman senfene-stran konstruaĵon kun scivolo kaj ĉirkaŭrigardis kun malagrabla sento de strangeco, dum li transiris la operacian teatron, iam amase plenigitan del fervoraj studentoj, nun mal-plenan kaj silentan, kun la tabloj ŝarĝitaj de ęmiaj aparatoj, la planko kovrita de kestoj kaj pakpajlo, kaj la lumo malkla-re falanta tra la tegmenta kupolo. ĉe la alia flanko, ŝtuparo kondukis supren al pordo kovrita de ruĝa ŝtofaĵo, kaj tra tiu sinjoro Utterson estis fine akceptita en la kabineton de la doktoro. Estis granda ĉambro, ĉirkaŭgarnita per vitraj ŝrankoj, meblita interalie per spegulego kaj skribtablo, kaj rigardanta sur la korton per tri polvokovritaj fenestroj kun feraj baroj. Fajro brulis en la kameno, bruligita lampo staris sur la kamenbreto, ĉar eĉ en la domoj la nebulo komencis kuŝi dense, kaj tie, proksimege de la varmo, sidis doktoro Jekyll, ŝajne morte malsana. Li ne stariĝis por akcepti sian vizitanton, sed etendis malvarme la manon kaj bonvenigis lin per ŝanĝita voĉo.
 
 —Kaj nun, diris sinjoro Utterson, tuj post la eliro de Poole, vi aŭdis la novaĵon, ĉu ne?
 
@@ -542,27 +430,18 @@ La doktoro tremetis.
 
 —Unu vorton, diris la advokato. Carew estis mia kliento, sed tio vi ankaŭ estas; kaj mi volas scii, kion mi devas fari. Vi ja ne estis sufiĉe freneza, ke vi kaŝis ie tiun kanajlon?
 
-—Utterson, mi ĵuras antaŭ Dio, ekkriis la doktoro, mi ĵuras antaŭ Dio, ke mi neniam revidos lin plu. Mi ligas min al vi per mia honoro, ke mi de nun ĉesigos ĉian rilaton kun li en tiu ĉi mondo. ĉio finiĝas. Kaj, vere, li ne bezonas ian helpon; vi ne konas lin kiel mi; li estas for el danĝero, tute for el dan-
-
-ĝero. Atentu miajn vortojn, oni pri li ne aŭdos plu.
+—Utterson, mi ĵuras antaŭ Dio, ekkriis la doktoro, mi ĵuras antaŭ Dio, ke mi neniam revidos lin plu. Mi ligas min al vi per mia honoro, ke mi de nun ĉesigos ĉian rilaton kun li en tiu ĉi mondo. ĉio finiĝas. Kaj, vere, li ne bezonas ian helpon; vi ne konas lin kiel mi; li estas for el danĝero, tute for el danĝero. Atentu miajn vortojn, oni pri li ne aŭdos plu.
 
 La advokato aŭskultis malgaje. Ne plaĉis al li la febra maniero de lia amiko.
 
 —Vi ŝajnas tre certa pri li, li diris, kaj por vi mem mi esperas, ke vi estos prava. Se okazus proceso, via nomo eble ape-rus.
 
-—Mi estas tute certa pri li, respondis Jekyll, por tio mi havas sciojn, kiun mi povas konfidi al neniu. Sed estas unu afero, pri kiu vi povas mnsili. Mi havas — mi ricevis leteron, kaj miestas en embaraso decidi, ĉu mi devus montri ĝin al la polico. Mi volus lasi la aferon en viaj manoj, Utterson; vi ju-
-
-ĝus saĝe, mi estas certa, tiel grandan fidon mi havas al vi.
+—Mi estas tute certa pri li, respondis Jekyll, por tio mi havas sciojn, kiun mi povas konfidi al neniu. Sed estas unu afero, pri kiu vi povas mnsili. Mi havas — mi ricevis leteron, kaj miestas en embaraso decidi, ĉu mi devus montri ĝin al la polico. Mi volus lasi la aferon en viaj manoj, Utterson; vi juĝus saĝe, mi estas certa, tiel grandan fidon mi havas al vi.
 
 —Vi timas, mi supozas, ke ĝi povus konduki al lia trovo, ĉu ne? demandis la advokato.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-—Ne, diris la alia. Mi ne povas diri, ke min tuŝas, kio fari-
-
-ĝos el Hyde, kun li mi ne rilatos plu. Mi pensis pri mia propra reputacio, kiun ĉi tiu malaminda afero iom kompromitis.
+—Ne, diris la alia. Mi ne povas diri, ke min tuŝas, kio fariĝos el Hyde, kun li mi ne rilatos plu. Mi pensis pri mia propra reputacio, kiun ĉi tiu malaminda afero iom kompromitis.
 
 Utterson pripensis iom. Lin mirigis la egoismo de lia amiko kaj, tamen, trankviligis lin.
 
@@ -574,9 +453,7 @@ La letero estis skribita laŭ stranga vertikala maniero, kaj subskribita ”Edwa
 
 —Mi bruligis ĝin, respondis Jekyll, antaŭ ol konscii, kion mi faras; sed ĝi portis nenian stampon de la poŝto. Oni alportis ĝin private.
 
-—ĉu mi konservu ĉi tion kaj dormu sur ĝi, demandis Ut-
-
-terson.
+—ĉu mi konservu ĉi tion kaj dormu sur ĝi, demandis Utterson.
 
 —Mi deziras, ke vi decidu por mi tute, estis la respondo. Mi perdis ĉian fidon al mi mem.
 
@@ -587,9 +464,6 @@ La doktoron ŝajne kaptis sveno. Li kunpremis la lipojn kaj jesis per kapsigno.
 —Tion mi divenis, diris Utterson. Li intencis mortigi vin.
 
 Nur iom plu, kaj vin jam estus trafinta la morto.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —Min trafis io multe pli efika, respondis solene la doktoro.
@@ -609,9 +483,7 @@ Tio estis la funebra parolado de unu amiko kaj kliento. Kaj li ne povis ne timi,
 
 Baldaŭ poste li sidis ĉe flanko de sia propra kameno, kun sinjoro Guest, sia ĉefaktisto, ĉe la alia, kaj meze inter ili, je taŭge kalkulita distanco de la fajro, staris botelo da speciala malnova vino, kiu de longe kuŝis en malhelo en lia domkelo.
 
-La nebulo ankoraŭ pendis super la droninta urbo, kie la lam-poj lumetis kiel karbunkoloj, kaj tra la obtuziganta kaŝamaso de tiuj falintaj nuboj la procesio de la vivo de la urbo plu-ruliĝis tra la grandaj arterioj kun sono kvazaŭ de potenca vento. Sed la ĉambro estis gaja en la lumo de fajro. En la botelo la acidoj jam de longe solviĝis; kun la tempo la imperia 33
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+La nebulo ankoraŭ pendis super la droninta urbo, kie la lam-poj lumetis kiel karbunkoloj, kaj tra la obtuziganta kaŝamaso de tiuj falintaj nuboj la procesio de la vivo de la urbo plu-ruliĝis tra la grandaj arterioj kun sono kvazaŭ de potenca vento. Sed la ĉambro estis gaja en la lumo de fajro. En la botelo la acidoj jam de longe solviĝis; kun la tempo la imperia
 
 
 koloro mildiĝis, kiel la koloro en koloritaj fenestroj alprenas nuancojn pli riĉajn; kaj la ardo de varmegaj aŭtunaj posttag-mezoj sur deklivaj vitejoj estis preta liberiĝi kaj distri la ne-bulojn de Londono. Nesenteble la advokato fandiĝis. Al neniu li kaŝus malpli da sekretoj, ol al sinjoro Guest. Li ja ne estis ĉiam certa, ke li kaŝis tiom, kiom li intencis. Guest ofte iris al la doktora domo pri aferoj. Li konis Poole, li povis apenaŭ ne rimarki la intimecon de sinjoro Hyde en tiu domo; li povus fari konkludojn. ĉu do ne estus konsilinde, ke li vidu leteron, kiu tiun misteron klarigas? Kaj antaŭ ĉio, ĉar Guest, estis fervora studanto kaj kritikanto de skribmanieroj, ĉu li konside-rus la fidon natura kaj kompleza? Guest plie estis konsilemu-lo, — li apenaŭ legus tian strangan dokumenton, sen fari ri-markon, kaj laŭ tiu rimarko sinjoro Utterson povos direkti sian estontan agadon.
@@ -627,9 +499,6 @@ La okuloj de Guest plibrilis, kaj li tuj komencis esplori ĝin pasie.
 —Ne, sinjoro, li diris, ne freneza; sed estas stranga skribmaniero.
 
 —Kaj laŭ ĉiuj diroj ankaŭ tre stranga skribinto, aldonis la advokato.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 uste en tiu momento la servisto eniris kun letereto.
@@ -656,27 +525,18 @@ Okazis longa paŭzo, dum kiu sinjoro Utterson batalis kontraŭ si mem.
 
 —Jes, sinjoro, diris la aktisto, mi komprenas.
 
-Sed sinjoro Utterson, tuj kiam li estis sola tiun nokton, en-
-
-ŝlosis la leteron en sian gardoŝrankon, kaj tie ĝi ripozis ek de tiam.
+Sed sinjoro Utterson, tuj kiam li estis sola tiun nokton, enŝlosis la leteron en sian gardoŝrankon, kaj tie ĝi ripozis ek de tiam.
 
 —Kio! li pensis, Harry Jekyll falsi por murdinto!
 
 Kaj lia sango malvarmiĝis en liaj vejnoj.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 La rimarkinda okazaĵo de doktoro Lanyon
 
-La tempo pasis; miloj da pundoj estis proponitaj kiel re-kompenco, ĉar la morto de Sir Danvers ofendis kiel pu-
+La tempo pasis; miloj da pundoj estis proponitaj kiel re-kompenco, ĉar la morto de Sir Danvers ofendis kiel publika malfeliĉo, sed sinjoro Hyde estis malaperinta el la konscio de la polico kvazaŭ li neniam ekzistis. Oni elfosis multon pri lia estinta vivo, kaj ĉio estis malbonfama; rakontoj elsal-tis pri lia krueleco kaj senkompata kaj perforta; pri lia malnobla vivo, pri liaj strangaj kunuloj, pri la malamo, kiu ŝajnis ĉirkaŭi lian karieron; sed pri lia nuntempa kaŝejo, eĉ ne mur-mureto. De la tempo, kiam li forlasis la domon en Soho, la matenon de la murdo, li simple malaperis; kaj iom post iom, kun la paso de la tempo, sinjoro Utterson komencis perdi la unuan ekscitiĝon de sia timo kaj kvietiĝis. La morto de Sir Danvers estis, laŭ lia opinio, pli ol kompensita per la malapero de sinjoro Hyde. Jam kiam tiu malbona influo estis forigita, nova vivo komenciĝis por doktoro Jekyll. Li elvenis el sia soleco, renovigis rilatojnkun siaj amikoj, fariĝis denove ilia familiara gasto kaj regalanto; kaj, kvankam li estis ĉiam konita kiel bonfaranto, li nun estis ne malpli fama pro sia pieco. Li estis tre okupita, li estis multe en la libera aero, li bonfaris; lia vizaĝo ŝajnis malfermiĝi kaj pliheliĝi, kvazaŭ pro interna konscio de servofarado; kaj dum pli ol du monatoj la doktoro vivis en paco.
 
-blika malfeliĉo, sed sinjoro Hyde estis malaperinta el la konscio de la polico kvazaŭ li neniam ekzistis. Oni elfosis multon pri lia estinta vivo, kaj ĉio estis malbonfama; rakontoj elsal-tis pri lia krueleco kaj senkompata kaj perforta; pri lia malnobla vivo, pri liaj strangaj kunuloj, pri la malamo, kiu ŝajnis ĉirkaŭi lian karieron; sed pri lia nuntempa kaŝejo, eĉ ne mur-mureto. De la tempo, kiam li forlasis la domon en Soho, la matenon de la murdo, li simple malaperis; kaj iom post iom, kun la paso de la tempo, sinjoro Utterson komencis perdi la unuan ekscitiĝon de sia timo kaj kvietiĝis. La morto de Sir Danvers estis, laŭ lia opinio, pli ol kompensita per la malapero de sinjoro Hyde. Jam kiam tiu malbona influo estis forigita, nova vivo komenciĝis por doktoro Jekyll. Li elvenis el sia soleco, renovigis rilatojnkun siaj amikoj, fariĝis denove ilia familiara gasto kaj regalanto; kaj, kvankam li estis ĉiam konita kiel bonfaranto, li nun estis ne malpli fama pro sia pieco. Li estis tre okupita, li estis multe en la libera aero, li bonfaris; lia vizaĝo ŝajnis malfermiĝi kaj pliheliĝi, kvazaŭ pro interna konscio de servofarado; kaj dum pli ol du monatoj la doktoro vivis en paco.
-
-La 8-an de januaro Utterson estis manĝinta ĉe la doktoro kun malgranda invititaro; Lanyon ĉeestis; kaj la vizaĝo de la 36
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+La 8-an de januaro Utterson estis manĝinta ĉe la doktoro kun malgranda invititaro; Lanyon ĉeestis; kaj la vizaĝo de la
 
 
 mastro rigardis de unu al la alia kiel en la pasintaj tagoj, kiam la trio estis nedisigeblaj amikoj.
@@ -698,18 +558,13 @@ Kaj tamen, kiam Utterson parolis pri lia malsana aspekto, estis kun ŝajno de gr
 Estas afero nur de semajnoj. Nu, la vivo estis agrabla; mi ŝatis ĝin, jes, sinjoro, mi kutimis ĝin ŝati. Mi foje pensas, ke se ni scius ĉion, ni pli ĝojus foriri.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —Jekyll ankaŭ estas malsana, diris Utterson, ĉu vi vidis lin?
 
 Sed la vizaĝo de Layton ŝanĝiĝis, kaj li levis tremantan manon.
 
 —Mi volas nek vidi nek aŭdi plu pri doktoro Jekyll, li diris per laŭta ŝancelanta voĉo. Kun tiu persono mi ne rilatos plu, kaj mi petas, ke vi evitu ĉian aludon al iu, kiun mi konsideras mortinta.
 
-—Tat, tat! diris sinjoro Utterson. Kaj tiam, post longa paŭ-
-
-zo:
+—Tat, tat! diris sinjoro Utterson. Kaj tiam, post longa paŭzo:
 
 —ĉu mi ne povas fari ion? li demandis, ni estas tri tre malnovaj amikoj, Lanyon; ni ne vivos sufiĉe longe, por fari aliajn.
 
@@ -721,32 +576,22 @@ mem.
 
 —Tio min ne surprizas, estis la respondo. lam, Utterson, kiam mi estos mortinta, vi eble ekscios pri la praveco kaj mal-praveco de ĉi tiu afero. Mi ne povas diri. Kaj dume, se vi povas sidi kun mi kaj paroli pri aliaj aferoj, pro Dio restu kaj tiel faru; sed, se vi ne povas eviti tiun malbenitan temon, je la nomo de Dio foriru, ĉar tion mi ne povas elteni.
 
-Alveninte hejmen, Utterson tuj sidiĝis kaj skribis al Jekyll, plendante pri sia eksigo de lia domo, kaj demandante la kaŭ-
-
-zon de la malfeliĉa disiĝo rilate al Lanyon, kaj la morgaŭa tago alportis al li longan respondon, jen tre kortuŝe verkitan, jen kun senco mallume mistera. La malpaco kun Lanyon estis nekuracebla.
+Alveninte hejmen, Utterson tuj sidiĝis kaj skribis al Jekyll, plendante pri sia eksigo de lia domo, kaj demandante la kaŭzon de la malfeliĉa disiĝo rilate al Lanyon, kaj la morgaŭa tago alportis al li longan respondon, jen tre kortuŝe verkitan, jen kun senco mallume mistera. La malpaco kun Lanyon estis nekuracebla.
 
 —Mi ne kulpigas mian malnovan amikon, Jekyll skribis,
 
-sed mi dividas lian opinion, ke ni devas neniam revidi unu la alian. Mi intencas de nun vivi en ekstrema soleco; vi devos ne esti surprizita, nek dubi pri mia amikeco, se mia pordo estos 38
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+sed mi dividas lian opinion, ke ni devas neniam revidi unu la alian. Mi intencas de nun vivi en ekstrema soleco; vi devos ne esti surprizita, nek dubi pri mia amikeco, se mia pordo estos
 
 
 ofte fermita eĉ por vi. Vi devos toleri, ke mi iru laŭ mia propra malluma vojo. Mi faligis sur min punon kaj danĝeron, kiujn mi ne povas nomi. Se mi estas la ĉefa el pekintoj, mi estas ankaŭ la ĉefa el suferantoj. mi ne povis pensi, ke tiu ĉi tero havas lokon por suferoj kaj teruroj tiel animŝancelaj; kaj por malpezigi tiun ĉi fatalon, vi povas fari nur tion: respekti mian silenton.
 
-Utterson miregis; la malbona influo de Hyde estis fortirita, la doktoro jam revenis al siaj kutimaj taskoj kaj amikoj; antaŭ unu semajno la estonteco estis ridetanta kun ĉia pro-meso pri gaja kaj estimata maljuneco; kaj jen, subite, amikeco kaj paco de animo, kaj la tuta vojiro de lia vivo ruiniĝis. Tiel granda kaj subita ŝanĝo montris al frenezeco; sed laŭ la teni-
+Utterson miregis; la malbona influo de Hyde estis fortirita, la doktoro jam revenis al siaj kutimaj taskoj kaj amikoj; antaŭ unu semajno la estonteco estis ridetanta kun ĉia pro-meso pri gaja kaj estimata maljuneco; kaj jen, subite, amikeco kaj paco de animo, kaj la tuta vojiro de lia vivo ruiniĝis. Tiel granda kaj subita ŝanĝo montris al frenezeco; sed laŭ la teniĝo kaj paroloj de Lanyon, devas ekzisti por ĝi kaŭzo pli profunda.
 
-ĝo kaj paroloj de Lanyon, devas ekzisti por ĝi kaŭzo pli profunda.
-
-Semajnon post tio doktoro Lanyon enlitigis kaj antaŭ ol pasis dek kvar tagoj, li mortis. La nokton post la enterigo, ĉe kiu li estis dolore kortuŝita, Utterson ŝlosis la pordon de sia privata oficejo kaj, sidante tie en la lumo de malgaja kandelo, li eltiris kaj metis antaŭ sverton mane adresitan kaj sigelitan per la sigelilo de sia mortinta amiko. ”PRIVATA: por la manoj de j. G. Utterson SOLA, kaj en la okazo de lia antaŭ-
-
-morto, detruota nelegite”, tiel ĝi estis emfaze surskribita kaj la advokato timegis rigardi la enhavon.
+Semajnon post tio doktoro Lanyon enlitigis kaj antaŭ ol pasis dek kvar tagoj, li mortis. La nokton post la enterigo, ĉe kiu li estis dolore kortuŝita, Utterson ŝlosis la pordon de sia privata oficejo kaj, sidante tie en la lumo de malgaja kandelo, li eltiris kaj metis antaŭ sverton mane adresitan kaj sigelitan per la sigelilo de sia mortinta amiko. ”PRIVATA: por la manoj de j. G. Utterson SOLA, kaj en la okazo de lia antaŭmorto, detruota nelegite”, tiel ĝi estis emfaze surskribita kaj la advokato timegis rigardi la enhavon.
 
 —Mi hodiaŭ enterigis jam unu amikon, li pensis, kion fari, se ĉi tio kostos al mi alian?
 
-Poste li kondanmis la timon kiel nelojalecon kaj rompis la sigelon. Interne troviĝis alia enmetaĵo, ankaŭ sigelita, kaj sig-nita sur la koverto jene: ”Malfermota nur post la morto aŭ malapero de doktoro Henry Jekyll.” Utterson ne povis fidi 39
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Poste li kondanmis la timon kiel nelojalecon kaj rompis la sigelon. Interne troviĝis alia enmetaĵo, ankaŭ sigelita, kaj sig-nita sur la koverto jene: ”Malfermota nur post la morto aŭ malapero de doktoro Henry Jekyll.” Utterson ne povis fidi
 
 
 siajn okulojn. Jes, la vorto estis malapero; kaj tie denove, kiel en la freneza testamento, kiun li antaŭ longe redonis al ĝia aŭtoro, denove estis kunligitaj la ideo de malapero kaj la no-mo de Harry Jekyll. Sed en la testamento, tiu ideo naskiĝis el la fisugesto de la viro Hyde; ĝi estis metita tien kun celo nur tro evidenta kaj terura. Sed skribita de la mano de Lanyon, kion ĝi povas signifi? Kreskis en la administranto granda scivolo malatenti la malpermeson kaj tuj esplori ĝisfunde tiujn misterojn; sed la profesia honoro kaj fideleco al lia mortinta amiko estis severaj devoj; kaj la pako kuŝis en la plej interna angulo de lia privata gardoŝranko.
@@ -754,9 +599,6 @@ siajn okulojn. Jes, la vorto estis malapero; kaj tie denove, kiel en la freneza 
 Tamen, forŝovi la scivolemon ne estas ĝin venki, kaj oni povas dubi, ĉu ek de tiu tago Utterson deziris la kuneston de sia amiko kun tiom da fervoro. Li pensis pri li bonkore, sed liaj pensoj estis maltrankvilaj kaj plenaj de timo. Li ja iris viziti lian domon; sed eble estis por li malpeziĝo, ke oni mal-permesis al li la eniron; eble, en sia koro, li preferis paroli kun Poole sur la sojlo, ĉirkaŭata de la aero kaj la sonoj de la malfermita urbo, ol esti lasita en tiun domon de propravola mal-libero por sidi kaj paroli kun ĝia nepenetrebla enfermita er-mito. Poole ja havis neniun agrablan novaĵon por komuniki.
 
 La doktoro, ŝajnis, nun pli ol iam fermis sin en la kabineto super la laboratorio, kie li eĉ kelkfoje dormis; li estis malgaja, fariĝis tre silenta; li ne legis; ŝajnis, kvazaŭ io absorbas lian menson. Utterson tiel kutimiĝis al la ĉiam egalaj raportoj, ke li iom post iom maloftigis siajn vizitojn.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 La okazaĵo de la fenestro
@@ -784,9 +626,6 @@ senkonsola malliberulo, Utterson vidis doktoron Jekyll.
 —Kio! Jekyll! li ekkriis, mi esperas, ke vi pli bone fartas.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —Mi estas en tre malbona stato, Utterson, respondis la
 
 doktoro senespere; tre malbona. Tio ne daŭros longe, dank’al Dio.
@@ -799,18 +638,11 @@ Venu do; prenu vian ĉapelon kaj faru kun ni viglan promena-don.
 
 —Nu, do, diris la advokato bonkore, ni ne povos pli bone fari, ol resti tie ĉi kaj paroli kun vi de kie ni estas.
 
-—Tiun proponon mi jus estis riskonta, respondis la dok-
+—Tiun proponon mi jus estis riskonta, respondis la doktoro kun rideto. Sed apenaŭ la parolo eliris el lia bußo, la rideto estis forfrapita el lia vizaĝo kaj sekvita de esprimo tiel profunde terura kaj malespera, ke ĝi glaciigis la sangon al la du sinjoroj malsupre. Ili ĝin vidis nur dum momento, ĉar la fenestro estis rapide malsuprentirita; sed la vido sufiĉis, kaj ili sin turnis kaj forlasis la korton sen vorto. Silente, ankaŭ, ili trairis la flankstraton, kaj nur veninte en apudan straton, sinjoro Utterson turnis sin por rigardi sian kunulon. Ili estis am-baŭ palaj, kaj estis signo de terurego en iliaj okuloj.
 
-toro kun rideto. Sed apenaŭ la parolo eliris el lia bußo, la rideto estis forfrapita el lia vizaĝo kaj sekvita de esprimo tiel profunde terura kaj malespera, ke ĝi glaciigis la sangon al la du sinjoroj malsupre. Ili ĝin vidis nur dum momento, ĉar la fenestro estis rapide malsuprentirita; sed la vido sufiĉis, kaj ili sin turnis kaj forlasis la korton sen vorto. Silente, ankaŭ, ili trairis la flankstraton, kaj nur veninte en apudan straton, sinjoro Utterson turnis sin por rigardi sian kunulon. Ili estis am-baŭ palaj, kaj estis signo de terurego en iliaj okuloj.
-
-—Dio nin pardonu! Dio nin pardonu! diris sinjoro Utter-
-
-son.
+—Dio nin pardonu! Dio nin pardonu! diris sinjoro Utterson.
 
 Sed sinjoro Enfield nur serioze skuis la kapon, kaj denove antaŭeniris silente.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 La lasta nokto
@@ -842,9 +674,6 @@ Lia mieno plene konfirmis liajn parolojn; lia maniero estis ŝanĝita; kaj krom 
 Eĉ nun li ankoraŭ sidis kun la glaso da vino negustumita sur sia genuo, la okuloj direktitaj al angulo de la planko.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —Mi ne povas elteni tion plu, li rediris.
 
 —Nu, diris la advokato, mi vidas, ke vi havas bonan moti-von, Poole; mi komprenas, ke okazas io grave maltrankviliga.
@@ -870,9 +699,6 @@ La placo, kiam ili tien alvenis, estis plena de vento kaj polvo. Poole, kiu la t
 —ĉu estas vi, Poole?
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —ĉio en ordo, diris Poole, enlasu nin.
 
 La vestiblo, kiam ili envenis, estis hele lumigita; la fajro estis alte amasigita, kaj ĉirkaŭ la fajrejo la tuta servistaro, viroj kaj virinoj, staris kunpremite kiel ŝafaro. Vidinte sinjoron Utterson, la ĉambristino histerie ekploretis, kaj la kuiristino, kriante: Dank’al Dio! estas sinjoro Utterson! kuris antaŭen, kvazaŭ ŝi dezirus lin ĉirkaŭbraki.
@@ -891,9 +717,7 @@ Tiam li petis al sinjoro Utterson lin sekvi kaj kondukis lin al la malantaŭa ĝ
 
 —Nun, sinjoro, li diris, venu kiel eble plej senbrue. Mi deziras, ke vi aŭdu, sed ke vi ne estu aŭdata. Kaj vidu, sinjoro, se hazarde li petus al vi eniri, ne faru.
 
-La nervoj de sinjoro Utterson, ĉe tiu neatendita finiĝo, faris salton, kiu preskaŭ renversis lin, sed li reprenis sian kuraĝon kaj sekvis la serviston en la laboratoriejon kaj tra la ˛irurgian teatron, kun ĝia malordo de ujoj kaj boteloj, ĝis la malsupro de la ŝtuparo. Tie Poole signalis al li, ke li staru flanke kaj 45
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+La nervoj de sinjoro Utterson, ĉe tiu neatendita finiĝo, faris salton, kiu preskaŭ renversis lin, sed li reprenis sian kuraĝon kaj sekvis la serviston en la laboratoriejon kaj tra la ˛irurgian teatron, kun ĝia malordo de ujoj kaj boteloj, ĝis la malsupro de la ŝtuparo. Tie Poole signalis al li, ke li staru flanke kaj
 
 
 aŭskultu, dum li mem, demetante la kandelon kaj farante grandan kaj evidentan alvokon al sia decidemo, supreniris la ŝtuparon kaj frapis per iom ŝancelanta mano sur la ruĝan ŝto-faĵon de la kabineta pordo.
@@ -914,18 +738,14 @@ Voĉo el interne respondis:
 
 —Tio estas tre stranga rakonto, Poole; tio estas iom fantazia rakonto, mia bonulo, diris sinjoro Utterson, mordante sian fingron. Supozu, ke estas, kiel vi kredas, supozu, ke doktoro Jekyll estis … nu, murdita, kio povus decidigi la murdin-ton resti ĉi tie? Estas sensence. Tio ne estas prudenta ago.
 
-—Nu, sinjoro Utterson, vi estas viro tre malfacile konvin-kebla, sed mi ja vin fine kredigos, diris Poole. Dum tiu ĉi lasta 46
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Nu, sinjoro Utterson, vi estas viro tre malfacile konvin-kebla, sed mi ja vin fine kredigos, diris Poole. Dum tiu ĉi lasta
 
 
 semajno, li, aŭ ĝi, aŭ tio, kio ajn loĝas en tiu kabineto, postulis nokte kaj tage iuspecan medikamenton, kaj ne povas ricevi
 
 ĝin laŭ sia deziro. Estis kelkfoje lia kutimo (tio estas, la kutimo de la mastro), skribi siajn ordonojn sur paperfolion kaj ĵeti
 
-ĝin sur la ŝtuparon. Ni havis nenion alian dum tiu ĉi semajno, nenion alian ol paperojn kaj fermitan pordon, kaj la man-
-
-ĝaĵoj mem devis esti lasitaj tie por esti kontrabande enkapta-taj, kiam neniu rigardis. Nu, sinjoro, ĉiutage, ja du-trifoje en la sama tago, estis ordonoj kaj plendo kaj mi estis sendita kuri al ĉiuj pograndaj apotekistoj en la urbo. ĉiun fojon, kiam mi reportis la substancon, estis alia papero diranta al mi, ke mi redonu ĝin, ĉar ĝi ne estas pura, kaj poste venis alia mendo al alia firmo. Tiu ĉi drogo estas treege bezonata — kiu ajn estas la motivo.
+ĝin sur la ŝtuparon. Ni havis nenion alian dum tiu ĉi semajno, nenion alian ol paperojn kaj fermitan pordon, kaj la manĝaĵoj mem devis esti lasitaj tie por esti kontrabande enkapta-taj, kiam neniu rigardis. Nu, sinjoro, ĉiutage, ja du-trifoje en la sama tago, estis ordonoj kaj plendo kaj mi estis sendita kuri al ĉiuj pograndaj apotekistoj en la urbo. ĉiun fojon, kiam mi reportis la substancon, estis alia papero diranta al mi, ke mi redonu ĝin, ĉar ĝi ne estas pura, kaj poste venis alia mendo al alia firmo. Tiu ĉi drogo estas treege bezonata — kiu ajn estas la motivo.
 
 —ĉu vi havas iun el tiuj paperoj? demandis sinjoro Utterson.
 
@@ -938,16 +758,11 @@ povas apenaŭ esti troigita.”
 is tiu punkto la letero estis skribita sufiĉe trankvile; sed poste, kun subita plumknaro, la emocio de la skribinto eksplodis. ”Pro Dio”, li estis aldoninta, ”trovu por mi iom de la antaŭa.”
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —Tio estas stranga letero, diris sinjoro Utterson, kaj tiam, rapidavoĉe. — Kiel okazis, ke ĝi estas malfermita?
 
 —La viro ĉe Maw estis tre kolera, sinjoro, kaj reĵetis ĝin al mi kvazaŭ ĝi estus malpuraĵo, respondis Poole.
 
-—ĉi tio estas sendube la skribstilo de la doktoro, ĉu? daŭ-
-
-rigis la advokato.
+—ĉi tio estas sendube la skribstilo de la doktoro, ĉu? daŭrigis la advokato.
 
 —Mi pensas, ke ĝi similas, diris la servisto iom malkontente; kaj, poste, per alia voĉo: Sed kion gravas la stilo de la skribo? li diris; mi vidis lin.
 
@@ -957,9 +772,7 @@ rigis la advokato.
 
 La viro haltis, kaj pasigis la manon sur la vizaĝo.
 
-—ĉio ĉi estas strangaj cirkonstancoj, diris sinjoro Utterson, sed mi kredas, ke mi vidas lumon. Via mastro, Poole, estas evidente atakita de unu el tiuj malsanoj, kiuj samtempe tur-mentegas kaj deformas la suferanton. Tial, kiom mi scias, la ŝanĝo de lia voĉo, tial la masko kaj la evitado de la amikoj, tial la dezirego trovi tiun drogon, per kiu la malfeliĉulo konser-vas iom da espero pri fina resaniĝo. — Dio permesu, ke li ne trompiĝu! Jen mia klarigo; ĝi estas sufiĉe malgaja, Poole, ja 48
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—ĉio ĉi estas strangaj cirkonstancoj, diris sinjoro Utterson, sed mi kredas, ke mi vidas lumon. Via mastro, Poole, estas evidente atakita de unu el tiuj malsanoj, kiuj samtempe tur-mentegas kaj deformas la suferanton. Tial, kiom mi scias, la ŝanĝo de lia voĉo, tial la masko kaj la evitado de la amikoj, tial la dezirego trovi tiun drogon, per kiu la malfeliĉulo konser-vas iom da espero pri fina resaniĝo. — Dio permesu, ke li ne trompiĝu! Jen mia klarigo; ĝi estas sufiĉe malgaja, Poole, ja
 
 
 terurega, sed ĝi estas simpla kaj natura, konsekvencas bone kune kaj liberigas nin de ĉiaj troaj timoj.
@@ -987,9 +800,6 @@ La advokato prenis en la manon tiun malelegantan, sed
 pezan ilon, kaj balancis ĝin.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 —ĉu vi scias, Poole, li diris, suprenrigardante, ke vi kaj mi metos nin en situacion iom danĝeran?
 
 —Vi povas prave diri tion, respondis la servisto.
@@ -1008,11 +818,7 @@ i ja estis simile granda; kaj ĝi havis la saman rapidan mal-pezon de moviĝo; k
 
 —Ekzakte, sinjoro, respondis Poole, nu, kiam tiu maskitaĵo saltis kvazaŭ simio el inter la ęmiaĵoj kaj kuregis en la kabineton, tio malsupreniris mian spinon kiel glacio. Ho! mi scias, ke tio ne estas pruvo, sinjoro Utterson, sed homo havas siajn sentojn, kaj mi donas al vi mian biblioĵuron, ke estis sinjoro Hyde.
 
-—Jes, jes, diris la advokato, miaj timoj inklinas al la sama konkludo. Malbono, mi timas, malbono devis nepre naskiĝi el tiu kunligo. Jes, vere, mi vin kredas, mi kredas, ke malfeli-
-
-ĉa Harry estas murdita, kaj mi kredas, ke lia murdinto (pro 50
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Jes, jes, diris la advokato, miaj timoj inklinas al la sama konkludo. Malbono, mi timas, malbono devis nepre naskiĝi el tiu kunligo. Jes, vere, mi vin kredas, mi kredas, ke malfeliĉa Harry estas murdita, kaj mi kredas, ke lia murdinto (pro
 
 
 kia celo, Dio sole povas diri) ankoraŭ sin kaŝas en la ĉambro de sia viktimo. Nu, estu nia nomo la Venĝo! Alvoku Bradshaw!
@@ -1027,9 +833,7 @@ La lakeo alvenis, tre nervema kaj pala.
 
 —Tiamaniere ĝi marŝas la tutan tagon, sinjoro, murmuris Poole, jes, kaj pli grandan parton de la nokto. Nur kiam nova specimeno venas de la apotekisto, okazas mallonga halteto.
 
-Ha! estas malbona konscienco, kiu estas tiel malamika al la ripozo. Ha, sinjoro! ĉiu paŝo parolas pri sango kruele disverŝita. Sed aŭskultu denove, iom pli proksime, metu vian 51
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Ha! estas malbona konscienco, kiu estas tiel malamika al la ripozo. Ha, sinjoro! ĉiu paŝo parolas pri sango kruele disverŝita. Sed aŭskultu denove, iom pli proksime, metu vian
 
 
 koron en viajn orelojn, sinjoro Utterson, kaj diru al mi, ĉu tio estas la piedoj de la doktoro?
@@ -1062,9 +866,7 @@ Li paŭzis momenton, sed venis neniu respondo.
 
 ekkriis Utterson. Trahaku la pordon, Poole.
 
-Poole svingis la hakilon super sian ŝultron; la bato skuis la konstruaĵon, kaj la ruĝtegita pordo saltis kontraŭ la seruron kaj ĉarnirojn. Morna kriego, kvazaŭ de besta teruro, sonis el la kabineto. Supren denove la hakilo, kaj denove la paneloj 52
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Poole svingis la hakilon super sian ŝultron; la bato skuis la konstruaĵon, kaj la ruĝtegita pordo saltis kontraŭ la seruron kaj ĉarnirojn. Morna kriego, kvazaŭ de besta teruro, sonis el la kabineto. Supren denove la hakilo, kaj denove la paneloj
 
 
 fendiĝis kaj saltis la kadro; kvarfoje falis la bato, sed la ligno estis kuntenema kaj la metalaĵoj estis de bona kvalito; nur post la kvina bato disrompiĝis la seruro, kaj la ruinoj de la pordo falis internen sur la tapiŝon.
@@ -1075,12 +877,7 @@ La sieĝantoj, timigitaj de sia propra tumulto kaj de la silento kiu sekvis, sta
 
 —Ni venas tro malfrue, li diris severe, ĉu por savi, ĉu por puni. Hyde estas irinta al sia juĝo, kaj ni devas nur trovi la korpon de via mastro.
 
-La plej granda parto de la konstruaĵo estis okupata de la teatro, kiu okupis preskaŭ la tutan teretaĝon, kaj de la kabineto, kiu formis pli supran etaĝon ĉe unu ekstremo kaj rigardis sur la korton. Koridoro kunigis la teatron kun la pordo en la flankstrato. Estis ankaŭ kelkaj mallumaj ĉambroj kaj vas-53
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ta kelo. ĉiujn ili nun traserĉis. En ĉiun ĉambron ili bezonis nur rigardi, ĉar ĉiuj estis malplenaj. La kelo ja estis plena de ĉiuspecaj forĵetaĵoj, sed jam kiam ili malfermis la pordon, ili rimarkis la senutilon de plua serĉado pro falo de tuta mato da araneaĵo, kiu dum jaroj sigelis la enirejon. Nenie troviĝis postsigno de Harry Jekyll, senviva aŭ viva.
+La plej granda parto de la konstruaĵo estis okupata de la teatro, kiu okupis preskaŭ la tutan teretaĝon, kaj de la kabineto, kiu formis pli supran etaĝon ĉe unu ekstremo kaj rigardis sur la korton. Koridoro kunigis la teatron kun la pordo en la flankstrato. Estis ankaŭ kelkaj mallumaj ĉambroj kaj vasta kelo. ĉiujn ili nun traserĉis. En ĉiun ĉambron ili bezonis nur rigardi, ĉar ĉiuj estis malplenaj. La kelo ja estis plena de ĉiuspecaj forĵetaĵoj, sed jam kiam ili malfermis la pordon, ili rimarkis la senutilon de plua serĉado pro falo de tuta mato da araneaĵo, kiu dum jaroj sigelis la enirejon. Nenie troviĝis postsigno de Harry Jekyll, senviva aŭ viva.
 
 Poole piedfrapis sur la kahelojn de la koridoro.
 
@@ -1100,12 +897,7 @@ Ili silente supreniris la ŝtuparon, kaj, de tempo al tempo turnante timoplenan 
 
 —Tiu estas la sama drogo, kiun, mi ĉiam portis al li, diris Poole.
 
-Post tio, en la daŭro de sia esplorado de la ĉambro, la ser-54
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ĉantoj alvenis ĝis la spegulo, en kies profundon ili rigardis kun senvola teruro.
+Post tio, en la daŭro de sia esplorado de la ĉambro, la serĉantoj alvenis ĝis la spegulo, en kies profundon ili rigardis kun senvola teruro.
 
 —Tiu ĉi spegulo vidis kelkajn strangaĵojn, sinjoro, murmuris Poole.
 
@@ -1121,9 +913,7 @@ Li levis la plej proksiman paperon; ĝi estis mallonga letereto skribita de la d
 
 —Ho, Poole! la advokato kriis, li estis viva ĉi tie, hodiaŭ. Lin forigi dum tiel mallonga intertempo, oni ne povus; li devas ankoraŭ vivi, li certe ien forkuris!
 
-—Sed kial do forkuris? Kaj kiel? Kaj ĉi tion en tiu okazo ni kuraĝu nomi memmortigo? Ho, ni devos esti singardemaj. Mi 55
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Sed kial do forkuris? Kaj kiel? Kaj ĉi tion en tiu okazo ni kuraĝu nomi memmortigo? Ho, ni devos esti singardemaj. Mi
 
 
 antaŭvidas, ke ni ankoraŭ povas impliki vian mastron en ian teruran katastrofon.
@@ -1147,9 +937,6 @@ Harry Jekyll.”
 Ili eliris, ŝlosis post si la pordon de la teatro, kaj Utterson, denove lasinte la servistaron kuniĝinta ĉirkaŭ la fajro en la vestiblo, malrapide reiris al sia oficejo por legi la du rakon-tojn, per kiuj ĉi tiu mistero estas nun klarigota.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 La rakonto de doktoro Lanyon
 
 La naŭan de januaro, jam antaŭ kvar tagoj, mi ricevis per la vespera livero rekomenditan leteron, adresitan mane
@@ -1162,9 +949,7 @@ de mia kolego kaj malnova lerneja kunulo, Harry Jekyll. Tio tre surprizis min, �
 
 amo unu al la alia. Neniam estis tago en kiu, se vi estus dirinta al mi: Jekyll, mia vivo, mia honoro, mia prudento dependas de vi, — mi ne oferus mian tutan havon aŭ mian maldekstran manon por vin helpi. Lanyon, mia vivo, mia honoro, mia prudento, ĉio estas en viaj manoj; se vi mankos al mi hodiaŭ nokte, mi pereos. Vi povus suspekti, post ĉi tiu antaŭparolo, ke mi estas petonta al vi, cedi ion malhonorigan. Juĝu por vi mem.
 
-”Mi deziras, ke vi prokrastu ĉiujn aliajn rendevuojn por hodiaŭ nokte, eĉ se oni vin alvokus al la lito de imperiestro; 57
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+”Mi deziras, ke vi prokrastu ĉiujn aliajn rendevuojn por hodiaŭ nokte, eĉ se oni vin alvokus al la lito de imperiestro;
 
 
 ke vi prenu veturilon, krom se via propra kaleŝo estus fakte ĉe la pordo, kaj kun tiu ĉi letero en la mano, veturu rekte al mia domo. Poole, mia ĉefservisto, havas siajn ordonojn; vi trovos lin atendanta kun seruristo vian alvenon. Vi devas tiam perforte malfermi la pordon de mia kabineto, kaj vi devas eniri sola; malfermi la vitran ŝrankon (litero E) maldekstre, disrompi la seruron, se ĝi estos ŝlosita, kaj eltiri, kun la tuta enhavo tia, kia ĝi staras, la kvaran tirkeston de la supro aŭ (kio estas sama) la trian de la malsupro. En mia ekstrema afliktigo mi havas teruran timon malĝuste direkti vin; sed, eĉ se mi eraras, vi ekkonos la ĝustan tirkeston laŭ ĝia enhavo: kelkaj pulvoroj, boteleto, kaj papera libro. Tiun ĉi tirkeston mi petas vin reporti kun vi al Cavendish Square ĝuste tian, kia
@@ -1175,12 +960,7 @@ ke vi prenu veturilon, krom se via propra kaleŝo estus fakte ĉe la pordo, kaj 
 
 ”Je noktomezo, do, mi petas, ke vi estu sola en via konsultejo, ke vi enlasu en la domon per via propra mano homon, kiu sin prezentos en mia nomo, kaj ke vi metu en liajn manojn la tirkeston, kiun vi estos portinta el mia kabineto.
 
-Tiam vi estos plenuminta vian rolon, kaj gajninta mian kor-an dankon. Post kvin minutoj, se vi insistos pri klarigo, vi estos kompreninta, ke ĉi tiuj ŝrankoj estas plej ekstreme gravaj; kaj ke, per la neplenumo de eĉ unu el ili, kiel ajn fantaziaj ili ŝajnas, vi povas esti ŝarĝinta vian konsciencon je mia morto aŭ la pereo de mia prudento. Kvankam mi fidas, ke vi ne kon-58
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-sideros kiel malseriozan tiun ĉi peton, mia koro malleviĝas kaj mia mano tremas jam ĉe la penso pri tiu ebleco. Pensu pri mi en tiu ĉi horo, en stranga loko, suferanta sub mallumo de mizero, kiun neniu imago povas trograndigi, kaj tamen bone scianta, ke, se vi nur akurate min servos, miaj ĉagrenoj forruliĝos kiel rakonto dirita. Servu min, mia kara Lanyon, kaj savuvian amikon,
+Tiam vi estos plenuminta vian rolon, kaj gajninta mian kor-an dankon. Post kvin minutoj, se vi insistos pri klarigo, vi estos kompreninta, ke ĉi tiuj ŝrankoj estas plej ekstreme gravaj; kaj ke, per la neplenumo de eĉ unu el ili, kiel ajn fantaziaj ili ŝajnas, vi povas esti ŝarĝinta vian konsciencon je mia morto aŭ la pereo de mia prudento. Kvankam mi fidas, ke vi ne konsideros kiel malseriozan tiun ĉi peton, mia koro malleviĝas kaj mia mano tremas jam ĉe la penso pri tiu ebleco. Pensu pri mi en tiu ĉi horo, en stranga loko, suferanta sub mallumo de mizero, kiun neniu imago povas trograndigi, kaj tamen bone scianta, ke, se vi nur akurate min servos, miaj ĉagrenoj forruliĝos kiel rakonto dirita. Servu min, mia kara Lanyon, kaj savuvian amikon,
 
 H. J.”
 
@@ -1195,21 +975,13 @@ Post la lego de tiu ĉi letero, mi decidis, ke mia kolego estas nepre freneza; s
 Mi do leviĝis tuj de la tablo, eniris fiakron kaj veturis rekte al la domo de Jekyll. La servisto atendis mian alvenon; li estis ri-cevinta, per la sama livero kiel mi, rekomenditan leteron kun instrukcioj, kaj tuj venigis seruriston kaj ĉarpentiston. Tiuj alvenis jam dum ni parolis; kaj ni iris kune al la ˛irurgia teatro de la iama doktoro Denman, de kie (kiel vi sendube scias) oni plej oportune eniras en la privatan kabineton de doktoro Jekyll. La pordo estis tre fortika, kaj la seruro bonega —
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 sed fine, post duhora laborado, la pordo staris malfermita. La ŝranko markita E estis neŝlosita; kaj mi eltiris la tirkeston, plenigis ĝin je pajlo, envolvis ĝin en littukon kaj reportis ĝin kun mi al Cavendish Square. Tie mi esploris ĝian enhavon. La pulvoroj estis sufiĉe nete faritaj, sed ne kun la lerteco de profesia drogisto; estis evidente, ke ili estas private faritaj de doktoro Jekyll; kaj malferminte unu el la kovriloj, mi trovis tion, kio ŝajnis al mi simpla kristaleca salo blanka. La botelo, al kiu mi poste turnis la atenton, estis duonplenigita de sangruĝa fluidaĵo tre akra al la flaro, kaj kiu ŝajnis al mi enhavi fosfo-ron kaj ian volatilan eteron. Pri la aliaj ingrediencoj mi ne povis diveni. La libro estis ordinara notlibreto, kaj enhavis malmulton krom serio da datoj. Tiuj kovris periodon de multaj jaroj; sed mi rimarkis, ke la enskriboj ĉesis preskaŭ antaŭ unu jaro kaj tute abrupte. Jen kaj jen mallonga noto estis aldonita al dato, plej ofte ne pli ol nura vorto; ”duobla” okazis eble sesfoje tra tuto de kelkcento da enskriboj; kaj unufoje
 
-”tuta malsukceso!!!” Nu, kiel povus la ĉeesto de tiuj objektoj en mia domo tuŝi la honoron, la mensosanon, aŭ la vivon de mia kaprica amiko? Se la sendito povus iri al unu loko, kial ne al alia? Kaj eĉ se estus efektive ia malhelpo, kial mi devas akcepti tiun sinjoron sekrete? Ju pli mi pripensis, des pli mi konvinkiĝis, ke mi interrilatas kun kazo de cerba malsano; kaj kvankam mi forsendis mian servistaron kuŝiĝi, mi tamen ŝar-
-
-ĝis malnovan revolveron, por ke mi povu eventuale min defendi.
+”tuta malsukceso!!!” Nu, kiel povus la ĉeesto de tiuj objektoj en mia domo tuŝi la honoron, la mensosanon, aŭ la vivon de mia kaprica amiko? Se la sendito povus iri al unu loko, kial ne al alia? Kaj eĉ se estus efektive ia malhelpo, kial mi devas akcepti tiun sinjoron sekrete? Ju pli mi pripensis, des pli mi konvinkiĝis, ke mi interrilatas kun kazo de cerba malsano; kaj kvankam mi forsendis mian servistaron kuŝiĝi, mi tamen ŝarĝis malnovan revolveron, por ke mi povu eventuale min defendi.
 
 La noktomeza horo apenaŭ sonoris super Londono, kiam
 
 iu frapetis mallaŭte sur la pordo. Mi mem iris malfermi, kaj trovis malgrandulon, sin duonapoganta sin al la kolonoj de la portiko.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 —ĉu vi venis de doktoro Jekyll? mi demandis. Li jesis per
@@ -1224,9 +996,7 @@ Tiu lasta iom similis atakon de rigoro, kaj estis akompanata de tute rimarkebla 
 
 Tiu persono (kiu tiel, jam ek de la unua momento de sia alveno, naskis ĉe mi, kion mi povas nur nomi naŭzoplena scivolo) estis vestita laŭ maniero, kiu ĉe ordinara persono estus ridinda; t. e. liaj vestoj, kvankam faritaj el riĉa kaj bonkvalita ŝtofo, estis multe tro grandaj por li laŭ ĉiu mezuro. La pan-talono pendis ĉirkaŭ la kruroj kaj estis suprenfaldita por teni
 
-ĝin for de la tero, la talio de la redingoto troviĝis sub liaj kok-soj, kaj ĝia kolumo vastiĝis larĝe sur liaj ŝultroj. Sed, strange, 61
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+ĝin for de la tero, la talio de la redingoto troviĝis sub liaj kok-soj, kaj ĝia kolumo vastiĝis larĝe sur liaj ŝultroj. Sed, strange,
 
 
 tiu ĉi ridindega vestaĵo tute ne ridigis min. Pli ĝuste ja, ĉar estis io malnorma kaj monstra en la esenco mem de la estaĵo, kiu nun staris kontraŭ mi, io enkateniganta, surprizanta kaj naŭzanta, ŝajnis, ke tiu ĉi nova neegaleco nur ĝnvenis, kaj intensiĝis; tiel ke al mia intereso pri la karaktero de tiu homo estis aldonita scivolo pri lia deveno, lia vivo, lia havo kaj rango en la mondo. Tiuj observoj, kiuj bezonis tiel grandan spacon por meti ilin sur paperon, tamen okupis nur kelkajn momentojn. Mia vizitanto ja brulis pro ia sombra eksci-teco.
@@ -1246,12 +1016,7 @@ Li saltis al ĝi kaj poste haltis kaj metis manon al la koro; mi povis aŭdi, ki
 —Trankviliĝu! mi diris.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-Li turnis al mi terurigan rideton kaj, kvazaŭ kun decidemo de malespero, forŝiris la tukon. Vidante ĝian enhavon, li aŭ-
-
-digis laŭtan singulton de tiel intensa senpremiĝo… ke mi sidis kiel ŝtonigita. Kaj la momenton poste, per voĉo jam sufi-
+Li turnis al mi terurigan rideton kaj, kvazaŭ kun decidemo de malespero, forŝiris la tukon. Vidante ĝian enhavon, li aŭdigis laŭtan singulton de tiel intensa senpremiĝo… ke mi sidis kiel ŝtonigita. Kaj la momenton poste, per voĉo jam sufi-
 
 ĉe regata:
 
@@ -1269,26 +1034,18 @@ Laŭ via decido, vi restos tiel sama kiel vi antaŭe estis, nek pli riĉa, nek p
 
 Aŭ, se vi preferos elekti novan regionon de la scio kaj novajn vojojn al renomo, la potenco por tio estos malkaŝita; al vi ĉi tie, en ĉi tiu ĉambro, tuj kaj senprokraste kaj plenumiĝos an-taŭ via rigardo tia miregindaĵo, kia ŝancelus la nekredemon de Satano.
 
-—Sinjoro, mi diris, ŝajnigante indiferentecon, kiun mi vere 63
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+—Sinjoro, mi diris, ŝajnigante indiferentecon, kiun mi vere
 
 
 tute ne havis, vi parolas per enigmoj, kaj vi eble ne miros, ke mi vin aŭskultas sen tre forta impreso de kredo. Sed mi jam iris tro malproksimen sur la vojo de neklarigeblaj servoj por halti antaŭ ol vidi ĝian finon.
 
-—Estas bone, respondis mia vizitanto. Lanyon, vi memo-
-
-ras viajn ĵurojn; kio sekvos, tio estos sub la sigelo de nia pro-fesio. Kaj nun, vi kiu jam de tiel longe estas ligita al la plej mallarĝaj kaj materialismaj ideoj, vi kiu neis la efikon de transcenda medicino, vi kiu mokis viajn superulojn, rigardu!
+—Estas bone, respondis mia vizitanto. Lanyon, vi memoras viajn ĵurojn; kio sekvos, tio estos sub la sigelo de nia pro-fesio. Kaj nun, vi kiu jam de tiel longe estas ligita al la plej mallarĝaj kaj materialismaj ideoj, vi kiu neis la efikon de transcenda medicino, vi kiu mokis viajn superulojn, rigardu!
 
 Li almetis la glason al siaj lipoj, kaj eltrinkis per unu en-gluto. Sekvis krio; li balanciĝis, ŝanceliĝis, kaptis la tablon kaj tenis sin, rigardante kun injektitaj okuloj, spiregante el malfermita buŝo; kaj dum mi rigardis, venas, mi pensis, ŝanĝo —
 
-li ŝajnis ŝveli — lia vizaĝo subite nigriĝis kaj la trajtoj ŝajnis fandiĝi kaj aliiĝi — kaj momenton poste mi saltegis sur miajn piedojn kaj malantaŭen ĝis la muro, kun la brako levita por min ŝirmi kontraŭ tiu miregindaĵo, kun la menso premata de teruro. — Dio! mi kriegis, kaj Dio! ree kaj ree; ĉar tie antaŭ miaj okuloj — pala kaj skuita, kaj duonsvenanta, kaj palpser-
+li ŝajnis ŝveli — lia vizaĝo subite nigriĝis kaj la trajtoj ŝajnis fandiĝi kaj aliiĝi — kaj momenton poste mi saltegis sur miajn piedojn kaj malantaŭen ĝis la muro, kun la brako levita por min ŝirmi kontraŭ tiu miregindaĵo, kun la menso premata de teruro. — Dio! mi kriegis, kaj Dio! ree kaj ree; ĉar tie antaŭ miaj okuloj — pala kaj skuita, kaj duonsvenanta, kaj palpserĉanta antaŭ si per manoj kvazaŭ homo reveninta el la mor-to — tie staris Harry Jekyll!
 
-ĉanta antaŭ si per manoj kvazaŭ homo reveninta el la mor-to — tie staris Harry Jekyll!
-
-Tion, kion li diris al mi dum la sekvanta horo, mi ne povas decidiĝi meti skribe sur paperon. Mi vidis tion, kion mi vidis; mi aŭdis tion, kion mi aŭdis, kaj ĝi naŭzis mian animon; kaj, tamen, nun kiam tiu vidaĵo jam malaperis de miaj okuloj, mi al mi demandas, ĉu mi ĝin kredas? kaj mi ne povas respondi. Mia vivo estas skuita ĝis la radikoj; la dormo forlasis min; la plej mortiga teruro kunsidas kun mi je ĉiuj horoj de la tago kaj nokto; mi sentas, ke miaj tagoj estas kalkulitaj, ke mi devos morti; kaj, tamen, mi mortos nekredanta. Kaj la morala 64
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Tion, kion li diris al mi dum la sekvanta horo, mi ne povas decidiĝi meti skribe sur paperon. Mi vidis tion, kion mi vidis; mi aŭdis tion, kion mi aŭdis, kaj ĝi naŭzis mian animon; kaj, tamen, nun kiam tiu vidaĵo jam malaperis de miaj okuloj, mi al mi demandas, ĉu mi ĝin kredas? kaj mi ne povas respondi. Mia vivo estas skuita ĝis la radikoj; la dormo forlasis min; la plej mortiga teruro kunsidas kun mi je ĉiuj horoj de la tago kaj nokto; mi sentas, ke miaj tagoj estas kalkulitaj, ke mi devos morti; kaj, tamen, mi mortos nekredanta. Kaj la morala
 
 
 malnobleco, kiun tiu viro eĉ kun larmoj de la pento senvua-ligis al mi, tion mi ne povas, eĉ en mia memoro pripensi, sen salto de teruro. Mi nur diros, Utterson, kaj tio (se vi povos vin devigi kredi ĝin) jam pli ol sufiĉos. La estaĵo, kiu tiun nokton englitis en mian domon, estis, laŭ la konfeso de Jekyll mem, konata sub la nomo Hyde kaj serĉata en ĉiuj anguloj de la lando kiel la murdinto de Carew.
@@ -1296,32 +1053,20 @@ malnobleco, kiun tiu viro eĉ kun larmoj de la pento senvua-ligis al mi, tion mi
 Hastie Lanyon
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 La plena deklaro pri la afero,
 
 skribita de doktoro Jekyll
 
-Mi naskiĝis en la jaro 18… a, heredonto de granda riĉe-
-
-co, naturdotita plie per bonegaj talentoj, inklina laŭ
+Mi naskiĝis en la jaro 18… a, heredonto de granda riĉeco, naturdotita plie per bonegaj talentoj, inklina laŭ
 
 karaktero al laboremo, amanta la estimon de la saĝuloj kaj bonuloj inter miaj kunhomoj, kaj tial — kion oni povus supozi — kun ĉia garantio por honorplena kaj distinga estonteco.
 
-La plej malbona el miaj kulpoj, efektive, estis ia malpacienca gajeco de temperamento, tia, kia ĉe multaj faris la feliĉon, sed kian mi trovis malfacile akordigebla kun mia ĉiondeviga deziro teni alte la kapon kaj montri pli ol kutime gravan vizaĝon antaŭ la publiko. Okazis el tio, ke mi kaŝis miajn plezurojn, kaj ke, atinginte la aĝon de la pripensado kaj komencinte ĉir-kaŭrigardi kaj konsideri mian progreson kaj lokon en la mondo, mi jam staris kompromitita en profunde trompa vivmaniero. Multaj homoj eĉ fanfaronegus pri tiaj neregulaĵoj, pri kiuj mi estis kulpa; sed pro la altaj celoj, kiujn mi al mi antaŭ-
-
-metis, mi rigardis kaj kaŝis ilin kun sento de honto preskaŭ morbida. Estis do pli la postulema naturo de miaj aspiroj ol speciala malnobleco de miaj kulpoj, kiu faris min tio, kio mi estis, kaj per fosaĵo eĉ pli profunda ol ĉe la plejmulto, disigis en mi tiujn regionojn de la Bono kaj Malbono, kiuj dividas kaj kompletigas la duoblan naturon de la homo.
+La plej malbona el miaj kulpoj, efektive, estis ia malpacienca gajeco de temperamento, tia, kia ĉe multaj faris la feliĉon, sed kian mi trovis malfacile akordigebla kun mia ĉiondeviga deziro teni alte la kapon kaj montri pli ol kutime gravan vizaĝon antaŭ la publiko. Okazis el tio, ke mi kaŝis miajn plezurojn, kaj ke, atinginte la aĝon de la pripensado kaj komencinte ĉir-kaŭrigardi kaj konsideri mian progreson kaj lokon en la mondo, mi jam staris kompromitita en profunde trompa vivmaniero. Multaj homoj eĉ fanfaronegus pri tiaj neregulaĵoj, pri kiuj mi estis kulpa; sed pro la altaj celoj, kiujn mi al mi antaŭmetis, mi rigardis kaj kaŝis ilin kun sento de honto preskaŭ morbida. Estis do pli la postulema naturo de miaj aspiroj ol speciala malnobleco de miaj kulpoj, kiu faris min tio, kio mi estis, kaj per fosaĵo eĉ pli profunda ol ĉe la plejmulto, disigis en mi tiujn regionojn de la Bono kaj Malbono, kiuj dividas kaj kompletigas la duoblan naturon de la homo.
 
 Kvankam mi estis tiel profunde duoblaganto, mi neniel
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-estis hipokritulo — miaj ambaŭ flankoj estis tute seriozaj; mi ne estis pli mi mem, kiam mi forlasis la sindetenadon kaj ĵetis min en la honton, ol kiam mi laboris malkaŝe pri la dis-vastigo de scioj, aŭ pri la forigo de doloro kaj sufero. Kaj hazarde okazis, ke la direkto de miaj sciencaj studoj, kiuj kondukis tute al mistikismo kaj al la transcendismo, kaŝis kaj forte lumigis sur ĉi tiun konscion pri la ĉiama batalado inter miaj membroj. Kun ĉiu tago, kaj de ambaŭ flankoj de mia in-teligenteco, la morala kaj la intelekta, mi tiel alproksimiĝis konstante al tiu vero, per kies parta eltrovo mi estas kondamnita al tia terura pereo, nome: la vero, ke la homo efektive ne estas unu, sed du. Estis ĉe la morala flanko, kaj en mia propra persono, ke mi lernis konstati la entutan kaj primitivan duecon de la homo, mi sentis pri la du naturoj, kiuj konkuris en la kampo de mia konscienco, ke eĉ se oni povus prave diri, ke mi estas unu aŭ la alia, tio estas nur tial, ke mi estis radike ambaŭ, kaj jam frue en mia vivo, eĉ antaŭ ol la direkto de miaj sciencaj eltrovoj komencis inspiri la plej nudan eblecon de tia miraklo, mi kutimiĝis pensi kun plezuro, kiel en amata revo, pri la disigo de tiuj elementoj. Se nur ĉiu, mi diris al mi, povus esti loĝigita en apartan identaĵon, tiam de la vivo estus forprenita ĉio, kio estis neeltenebla; la maljustulo povus iri laŭ sia vojo, liberigita de la aspiroj kaj riproĉado de sia pli pia ĝemelo, kaj la justulo povus iri konstante kaj sendanĝere sur sia vojo supren, farante bonaĵojn, en kiuj troviĝas lia plezuro, kaj jam ne plu elmetata kontraŭ la malhonoro kaj la pentofarado pro ĉi tiu ekstera malbono. Por la homaro estas ja malbeno, ke tiuj reciproke maltaŭgaj faske-roj estis tiel kunligitaj, ke en la doloranta ventro de la konscio, 67
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+estis hipokritulo — miaj ambaŭ flankoj estis tute seriozaj; mi ne estis pli mi mem, kiam mi forlasis la sindetenadon kaj ĵetis min en la honton, ol kiam mi laboris malkaŝe pri la dis-vastigo de scioj, aŭ pri la forigo de doloro kaj sufero. Kaj hazarde okazis, ke la direkto de miaj sciencaj studoj, kiuj kondukis tute al mistikismo kaj al la transcendismo, kaŝis kaj forte lumigis sur ĉi tiun konscion pri la ĉiama batalado inter miaj membroj. Kun ĉiu tago, kaj de ambaŭ flankoj de mia in-teligenteco, la morala kaj la intelekta, mi tiel alproksimiĝis konstante al tiu vero, per kies parta eltrovo mi estas kondamnita al tia terura pereo, nome: la vero, ke la homo efektive ne estas unu, sed du. Estis ĉe la morala flanko, kaj en mia propra persono, ke mi lernis konstati la entutan kaj primitivan duecon de la homo, mi sentis pri la du naturoj, kiuj konkuris en la kampo de mia konscienco, ke eĉ se oni povus prave diri, ke mi estas unu aŭ la alia, tio estas nur tial, ke mi estis radike ambaŭ, kaj jam frue en mia vivo, eĉ antaŭ ol la direkto de miaj sciencaj eltrovoj komencis inspiri la plej nudan eblecon de tia miraklo, mi kutimiĝis pensi kun plezuro, kiel en amata revo, pri la disigo de tiuj elementoj. Se nur ĉiu, mi diris al mi, povus esti loĝigita en apartan identaĵon, tiam de la vivo estus forprenita ĉio, kio estis neeltenebla; la maljustulo povus iri laŭ sia vojo, liberigita de la aspiroj kaj riproĉado de sia pli pia ĝemelo, kaj la justulo povus iri konstante kaj sendanĝere sur sia vojo supren, farante bonaĵojn, en kiuj troviĝas lia plezuro, kaj jam ne plu elmetata kontraŭ la malhonoro kaj la pentofarado pro ĉi tiu ekstera malbono. Por la homaro estas ja malbeno, ke tiuj reciproke maltaŭgaj faske-roj estis tiel kunligitaj, ke en la doloranta ventro de la konscio,
 
 
 ĉi tiuj polusaj ĝemeloj senĉese interbatalas. Kiel do ilin disigi?
@@ -1333,42 +1078,21 @@ Mi hezitis longe antaŭ ol provi praktike tiun ĉi teorion. Mi bone sciis, ke mi
 Sed la tento al eltrovo tiel eksterordinara kaj profunda, fine venkis la sugestiojn de la timo. Mi jam antaŭlonge pretigis mian tinkturaĵon; mi tuj aĉetis, de firmo de apotekistoj, grandan kvanton de iu speciala salo, pri kiu mi sciis per miaj eks-perimentoj, ke ĝis estas la lasta ingredienco bezonata, kaj malfrue en iu malbenita nokto mi kunmetis la elementojn, rigardis ilin boli kaj fumi kune en la glaso, kaj kiam la agitiĝo ĉesis, kun forta ardo de kuraĝo mi eltrinkis la miksturon.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Sekvis doloregoj plej turmentaj: grincado de la ostoj, mortiga naŭzo, kaj teruro de spirito, ne malpli intensa, ol tiu sen-tebla en horo de la naskiĝo aŭ de la morto. Poste, tiuj agonioj rapide kvietiĝis, kaj mi rekonsciiĝis kvazaŭ el granda malsano. Estis io stranga en miaj sentoj, io nepriskribeble nova, kaj, pro ĝia noveco, nekredeble dolĉa. Mi sentis min pli juna, pli malpeza, pli feliĉa en mia korpo; interne mi konsciis pri iu kapturnanta senzorgeco, pri fluado de malordaj voluptemaj imagoj, kurantaj kiel muelilfluo tra mia fantazio, pri disigo de la ligiloj de la devo, pri nekonata sed ne senkulpa libereco de la animo. Mi sciis, kun la unua enspiro de tiu ĉi nova vivo, ke mi estas pli malvirta, dekoble pli malnobla, ke mi vendiĝis kiel sklavo al mia origina malbono, kaj la penso, en tiu momento, stimulis kaj gajigis min kiel vino. Mi etendis la manojn, ĝojegante en la noveco de tiuj sentoj, kaj ĉe tio mi subite eksciis, ke mia staturo iom malgrandiĝis. En tiu tempo ne estis spegulo en mia ĉambro; tiu, kiu staras apud mi dum mi nun skribas, estis tien portita poste, kaj por la celo mem de tiuj aliformiĝoj. La nokto, tamen, jam preskaŭ tagiĝis; la loĝantoj de mia domo kuŝis plej profunde dormantaj, kaj mi decidis, ekscitita kiel mi estis de espero kaj triumfo, riski iri sub mia nova formo al mia dormoĉambro. Mi transiris la korton, mi glitis tra la koridorojn, kiel fremdulo en mia propra domo, kaj alveninte en mian ĉambron, mi vidis, la unuan fojon, la aspekton de Edward Hyde.
 
+Mi devas paroli ĉi tie nur pri mia teorio, ne dirante tion, kion mi scias, sed tion, kion mi supozas plej verŝajna. La malbona parto de mia naturo estis malpli fortika, malpli disvolvita, ol la bona, kiun mi ĵus eksigis. Plie, en la daŭro de mia vivo, kiu estis estinta, malgraŭ ĉio, naŭ dekone vivo de penado, de virto kaj de memregado, la malbona parto estis multe malpli ekzercita kaj uzata. Kaj tial okazis, mi pensas, ke Edward Hyde estis tiom pli malgranda, pli maldika, pli juna ol Harry Jekyll. Kiel la bono brilis el la vizaĝo de unu, tiel sa-me la malbono estis skribita larĝe kaj klare sur tiu de la alia.
 
-Sekvis doloregoj plej turmentaj: grincado de la ostoj, mortiga naŭzo, kaj teruro de spirito, ne malpli intensa, ol tiu sen-tebla en horo de la naskiĝo aŭ de la morto. Poste, tiuj agonioj rapide kvietiĝis, kaj mi rekonsciiĝis kvazaŭ el granda malsano. Estis io stranga en miaj sentoj, io nepriskribeble nova, kaj, pro ĝia noveco, nekredeble dolĉa. Mi sentis min pli juna, pli malpeza, pli feliĉa en mia korpo; interne mi konsciis pri iu kapturnanta senzorgeco, pri fluado de malordaj voluptemaj imagoj, kurantaj kiel muelilfluo tra mia fantazio, pri disigo de la ligiloj de la devo, pri nekonata sed ne senkulpa libereco de la animo. Mi sciis, kun la unua enspiro de tiu ĉi nova vivo, ke mi estas pli malvirta, dekoble pli malnobla, ke mi vendiĝis kiel sklavo al mia origina malbono, kaj la penso, en tiu momento, stimulis kaj gajigis min kiel vino. Mi etendis la manojn, ĝojegante en la noveco de tiuj sentoj, kaj ĉe tio mi subite eksciis, ke mia staturo iom malgrandiĝis. En tiu tempo ne estis spegulo en mia ĉambro; tiu, kiu staras apud mi dum mi nun skribas, estis tien portita poste, kaj por la celo mem de tiuj aliformiĝoj. La nokto, tamen, jam preskaŭ tagiĝis; la lo-
-
-ĝantoj de mia domo kuŝis plej profunde dormantaj, kaj mi decidis, ekscitita kiel mi estis de espero kaj triumfo, riski iri sub mia nova formo al mia dormoĉambro. Mi transiris la korton, mi glitis tra la koridorojn, kiel fremdulo en mia propra domo, kaj alveninte en mian ĉambron, mi vidis, la unuan fojon, la aspekton de Edward Hyde.
-
-Mi devas paroli ĉi tie nur pri mia teorio, ne dirante tion, kion mi scias, sed tion, kion mi supozas plej verŝajna. La malbona parto de mia naturo estis malpli fortika, malpli disvolvita, ol la bona, kiun mi ĵus eksigis. Plie, en la daŭro de mia vivo, kiu estis estinta, malgraŭ ĉio, naŭ dekone vivo de pena-69
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-do, de virto kaj de memregado, la malbona parto estis multe malpli ekzercita kaj uzata. Kaj tial okazis, mi pensas, ke Edward Hyde estis tiom pli malgranda, pli maldika, pli juna ol Harry Jekyll. Kiel la bono brilis el la vizaĝo de unu, tiel sa-me la malbono estis skribita larĝe kaj klare sur tiu de la alia.
-
-Plie, la malbono lasis sur tiu korpo la stampon de kripleco kaj kadukeco. Kaj tamen, kiam mi rigardis tiun malbelan mon-stron en la spegulo, mi konsciis nenian malsimpation, kontraŭe, mi sentis ja salton de bonveno. Ankaŭ tio estis mi. i ŝajnis natura kaj homa. Laŭ miaj okuloj, ĝi portis pli vivan bildon de la spirito, ĝi ŝajnis pli difinita kaj unuobla ol la ne-perfekta kaj dividita vizaĝo, kiun mi ĝis nun kutimis nomi mia. Kaj ĝis tiu punkto mi estis sendube prava. Mi rimarkis ke, kiam mi havis la aspekton de Edward Hyde, neniu povis proksimiĝi al mi sen videbla malsimpatio de la karno. Tio, laŭ mia opinio, estis tial, ke ĉiuj homoj, kiaj ni renkontas ilin, estas kunmiksitaj el bono kaj malbono, kaj Edward Hyde, sola, en la vicoj de la homaro, estis nura malbono. Nur momenton mi restis antaŭ la spegulo; mi devis ankoraŭ provi la duan kaj decidigan eksperimenton; mi devis ankaŭ konstati, ĉu mi perdis nerepreneble mian individuecon, kaj devos antaŭ la tagi-
-
-ĝo forkuri el domo jam ne plu mia kaj, rapidante reen al mia kabineto, mi denove pretigis kaj trinkis la miksturon, denove suferis la turmentegojn de tiu kvazaŭmorto kaj rekonscii-
+Plie, la malbono lasis sur tiu korpo la stampon de kripleco kaj kadukeco. Kaj tamen, kiam mi rigardis tiun malbelan mon-stron en la spegulo, mi konsciis nenian malsimpation, kontraŭe, mi sentis ja salton de bonveno. Ankaŭ tio estis mi. i ŝajnis natura kaj homa. Laŭ miaj okuloj, ĝi portis pli vivan bildon de la spirito, ĝi ŝajnis pli difinita kaj unuobla ol la ne-perfekta kaj dividita vizaĝo, kiun mi ĝis nun kutimis nomi mia. Kaj ĝis tiu punkto mi estis sendube prava. Mi rimarkis ke, kiam mi havis la aspekton de Edward Hyde, neniu povis proksimiĝi al mi sen videbla malsimpatio de la karno. Tio, laŭ mia opinio, estis tial, ke ĉiuj homoj, kiaj ni renkontas ilin, estas kunmiksitaj el bono kaj malbono, kaj Edward Hyde, sola, en la vicoj de la homaro, estis nura malbono. Nur momenton mi restis antaŭ la spegulo; mi devis ankoraŭ provi la duan kaj decidigan eksperimenton; mi devis ankaŭ konstati, ĉu mi perdis nerepreneble mian individuecon, kaj devos antaŭ la tagiĝo forkuri el domo jam ne plu mia kaj, rapidante reen al mia kabineto, mi denove pretigis kaj trinkis la miksturon, denove suferis la turmentegojn de tiu kvazaŭmorto kaj rekonscii-
 
 ĝis kun la karaktero, la staturo, kaj la vizaĝo de Harry Jekyll.
 
-En tiu nokto mi estis atinginta la fatalan kruciĝon de la vojoj. Se mi estus alproksimiĝinta al mia eltrovaĵo laŭ pli nobla spirito, se mi estus riskinta mian eksperimenton dum mi estis sub la influo de malavaraj aŭ piaj aspiroj, ĉio estus alia kaj, el tiuj agonioj de morto kaj naskiĝo, mi estus elirinta an-70
+En tiu nokto mi estis atinginta la fatalan kruciĝon de la vojoj. Se mi estus alproksimiĝinta al mia eltrovaĵo laŭ pli nobla spirito, se mi estus riskinta mian eksperimenton dum mi estis sub la influo de malavaraj aŭ piaj aspiroj, ĉio estus alia kaj, el tiuj agonioj de morto kaj naskiĝo, mi estus elirinta anĝelo anstataŭ diablo. La drogo povis neniel distingi, nek diabla nek dia ĝi estis; ĝi nur skuis la pordojn de la mallibere-jo de mia temperamento, kaj, kiel ĉe la kaptitoj en Philippi, elkuris tio, kio estis interne. En tiu tempo mia virto dormetis; mia malvirto, vekita de la ambicio, kaptis vigle kaj rapide la okazon, kaj la rezultinta elĵetaĵo estis Edward Hyde. Tial, kvankam mi nun havis kaj du karakterojn, kaj du mienojn, unu estis tute malbona, kaj la alia estis daŭre la malnova Harry Jekyll, tiu malharmonia kombinaĵo pri kies virtigo kaj pli-bonigo mi jam lernis malesperi. La ganto do estis tute al la pli malbona flanko.
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ĝelo anstataŭ diablo. La drogo povis neniel distingi, nek diabla nek dia ĝi estis; ĝi nur skuis la pordojn de la mallibere-jo de mia temperamento, kaj, kiel ĉe la kaptitoj en Philippi, elkuris tio, kio estis interne. En tiu tempo mia virto dormetis; mia malvirto, vekita de la ambicio, kaptis vigle kaj rapide la okazon, kaj la rezultinta elĵetaĵo estis Edward Hyde. Tial, kvankam mi nun havis kaj du karakterojn, kaj du mienojn, unu estis tute malbona, kaj la alia estis daŭre la malnova Harry Jekyll, tiu malharmonia kombinaĵo pri kies virtigo kaj pli-bonigo mi jam lernis malesperi. La ganto do estis tute al la pli malbona flanko.
-
-Eĉ en tiu tempo, mi ankoraŭ ne tute venkis mian malsim-
-
-pation al la tedeco de vivo de studado. Mi ankoraŭ foje havis inklinon al gajo, kaj pro tio, ke miaj plezuroj estis, je la plej indulga nomo, ne tro dignoplenaj, kaj ĉar mi ne nur estis bo-ne konata kaj honore estimata, sed ankaŭ farigis maljunulo, ĉi tiu nekonsekvenceco de mia vivo fariĝis por mi ĉiutage pli
+Eĉ en tiu tempo, mi ankoraŭ ne tute venkis mian malsimpation al la tedeco de vivo de studado. Mi ankoraŭ foje havis inklinon al gajo, kaj pro tio, ke miaj plezuroj estis, je la plej indulga nomo, ne tro dignoplenaj, kaj ĉar mi ne nur estis bo-ne konata kaj honore estimata, sed ankaŭ farigis maljunulo, ĉi tiu nekonsekvenceco de mia vivo fariĝis por mi ĉiutage pli
 
 ĝena. Estis unuflanke, ke mia nova potenco tentis min ĝis sklaviĝo. Necesis nur trinki la miksaĵon por tuj demeti la korpon de la fama profesoro kaj surmeti, kiel densan mantelon, tiun de Edward Hyde.
 
-Mi ridetis pro la ideo; ĝi ŝajnis al mi, tiutempe, humoraĵo, kaj mi faris miajn pretigojn kun plej granda zorgo. Mi luis kaj mebligis tiun domon en Soho, al kiu Hyde estis postsigne sekvota de la polico; mi dungis, kiel dommastrinon, virinon, kiun mi bone konis kiel silenta kaj senskrupula. Aliflanke mi sciigis al mia servistaro, ke iu sinjoro Hyde (kiun mi priskribis) devos havi plenan liberecon kaj aŭtoritaton en mia domo sur la placo; kaj por ŝirmi mntraŭ eventualaj akcidentoj, mi eĉ faris tie vizitojn kaj igis min bone konata persono en 71
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Mi ridetis pro la ideo; ĝi ŝajnis al mi, tiutempe, humoraĵo, kaj mi faris miajn pretigojn kun plej granda zorgo. Mi luis kaj mebligis tiun domon en Soho, al kiu Hyde estis postsigne sekvota de la polico; mi dungis, kiel dommastrinon, virinon, kiun mi bone konis kiel silenta kaj senskrupula. Aliflanke mi sciigis al mia servistaro, ke iu sinjoro Hyde (kiun mi priskribis) devos havi plenan liberecon kaj aŭtoritaton en mia domo sur la placo; kaj por ŝirmi mntraŭ eventualaj akcidentoj, mi eĉ faris tie vizitojn kaj igis min bone konata persono en
 
 
 mia dua rolo. Poste mi faris tiun testamenton, kiun vi tiel kontraŭis, ke, se io okazus al mi en la persono de doktoro Jekyll, mi povus transiri en tiun de Edward Hyde sen mona perdo. Kaj tiel ĉirkaŭita de remparoj, kiel mi supozis, sur ĉiu flanko, mi komencis profiti la strangan imunecon de mia situacio.
@@ -1377,22 +1101,13 @@ Jam okazis, ke homoj dungis bravulaĉojn por fari iliajn kri-mojn, dum ilia prop
 
 mi eĉ ne ekzistis! Nur permesu al mi kuri en mian laboratorion, donu al mi nur du-tri sekundojn por miksi kaj gluti la trinkaĵon, kiu staris ĉiam preta, kaj Edward Hyde, kion ajn li estus farinta, forpasus kiel spirnebuleto sur spegulo, kaj jen, anstataŭ li, kviete en sia hejmo, pretiganta la noktomezan lampon en sia studejo, homo, kiu povis senriske ridi je la suspekto, troviĝus Harry Jekyll.
 
-La plezuroj, kiujn mi rapidis serĉi sub mia alikorpaĵo, estis, kiel mi jam diris, maldecaj, sed, en la manoj de Edward Hyde ili baldaŭ fariĝis monstraj. Reveninte de iu el tiuj ekskursoj, mi ofte profundiĝis en ia mirado pri mia alikorpa malnobleco. Tiu demono familiara, kiun mi elvokis el mia propra animo, kaj forsendis solan por plenumi sian bonan plezuron, estis estaĵo esence malica kaj kanajla; kun ĉiu lia ago kaj penso centrita en si mem; kun besta avideco drinkanta la plezu-72
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-ron el kia ajn grado de turmento, tiel neŝancelebla, kiel homo el kono.
+La plezuroj, kiujn mi rapidis serĉi sub mia alikorpaĵo, estis, kiel mi jam diris, maldecaj, sed, en la manoj de Edward Hyde ili baldaŭ fariĝis monstraj. Reveninte de iu el tiuj ekskursoj, mi ofte profundiĝis en ia mirado pri mia alikorpa malnobleco. Tiu demono familiara, kiun mi elvokis el mia propra animo, kaj forsendis solan por plenumi sian bonan plezuron, estis estaĵo esence malica kaj kanajla; kun ĉiu lia ago kaj penso centrita en si mem; kun besta avideco drinkanta la plezuron el kia ajn grado de turmento, tiel neŝancelebla, kiel homo el kono.
 
 Harry Jekyll foje staris konsternita antaŭ la agoj de Edward Hyde; sed la situacio estis ekster la kampo de ordinaraj leĝoj, kaj inside malpezigis la premon de la konscienco. Estis ja Hyde, kaj Hyde sola, kiu estis kulpa. Jekyll mem ne estis pli malbona; li revekiĝis al siaj bonaj ecoj ŝajne nedifektita; li eĉ kutimis, kiam tio estis ebla, rapidi por malfari la malbonon faritan de Hyde. Kaj tiel lia konscienco dormetis.
 
 Pri la detaloj de la malgIoro, al kiu mi tiel kunkonsentis (ĉar eĉ nun mi ne povas konfesi, ke mi ĝin faris) mi ne intencas priparoli; mi volas nur montri la avertojn kaj la sekvajn paŝojn, per kiuj alproksimiĝis mia puno. Unu malfeliĉo okazis, kiun, pro tio, ke ĝi ne havis sekvon, mi nur aludetos. Kru-elega ago kontraŭ knabino vekis kontraŭ min la koleron de preteriranto, kiun mi rekonis antaŭ kelkaj tagoj kiel vian pa-rencon; kuracisto kaj la familio de la knabino kuniĝis kun li; estis momentoj, kiam mi timis pri mia vivo, kaj fine, por kontentigi ilian tro justan koleron, Edward Hyde devis alkonduki ilin al la pordo de Harry Jekyll kaj pagi ilin, per ĉeko subskribita per lia nomo. Sed tiu danĝero estis facile forigita el la estonteco per la transmeto en alian bankon de monsumo sub la nomo de Edward Hyde mem, kaj kiam, malantaŭen klinante mian skribmanieron, mi provizis subskribon al mia duulo, mi pensis, ke mi sidas jam ekster la atingo de la fatalo.
 
-Preskaŭ du monatojn antaŭ la murdo de Sir Danvers, for-
-
-estinte el la hejmo por unu el miaj aventuroj, de kiu mi revenis malfrue, mi vekiĝis la postan tagon en lito kun sentoj iom strangaj. Vane mi ĉirkaŭrigardis, vane mi vidis la decan meblaron kaj grandan amplekson de la ĉambro en mia domo 73
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Preskaŭ du monatojn antaŭ la murdo de Sir Danvers, forestinte el la hejmo por unu el miaj aventuroj, de kiu mi revenis malfrue, mi vekiĝis la postan tagon en lito kun sentoj iom strangaj. Vane mi ĉirkaŭrigardis, vane mi vidis la decan meblaron kaj grandan amplekson de la ĉambro en mia domo
 
 
 sur la placo, vane mi rekonis la desegnaĵon de la litkurtenoj, io ankoraŭ insistis, ke mi ne estas tie, kie mi estas, ke mi ne vekiĝis tie, kie mi ŝajnas esti, sed en la ĉambreto en Soho, en kiu mi kutimis dormi en la korpo de Edward Hyde.
@@ -1402,63 +1117,36 @@ Mi ridetis kaj, laŭ mia psikologia maniero, komencis mal-laboreme esplori la el
 Mi certe rigardis ĝin dum preskaŭ duona minuto, antaŭ ol la teruro vekiĝis en mia brusto tiel subite kaj tremige kiel la bruego de cimbaloj, kaj saltegante el la lito, mi kuregis al la spegulo. ĉe la vido, kiun renkontis miaj okuloj, mia sango ŝanĝiĝis en ion treege maldensan kaj glacian. Jes, mi kuŝiĝis kiel Harry Jekyll kaj vekiĝis kiel Edward Hyde. Kiel klarigi tion? mi al mi demandis, kaj poste, kun alia saltego de teruro, kiel ripari tion? Estis malfrue en la mateno, la servistaro jam leviĝis, ĉiuj miaj drogoj estis en la kabineto — longa iro estis malsupren sur du ŝtuparoj, tra la posta irejo, trans la korton kaj tra la anatomia teatro, de tie, kie mi tiam staris terurita. Mi ja povus eble kovri mian vizaĝon, sed kion tio helpos, se mi ne povos kaŝi la aliformiĝon de mia staturo? Kaj tiam kun sentata dolĉeco de senpremiĝo mi memoris, ke mia servistaro jam kutimis la venadon kaj iradon de mia duulo.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
 Baldaŭ mi vestis min, kiel eble plej bone, per vestoj konvenaj al mia amplekso: baldaŭ pasis tra la domo, kie Bradshaw min rigardegis kaj retiriĝis pro tio, ke li vidis sinjoron Hyde je tia horo kaj en tia stranga vestaĵo, kaj post dek minutoj, doktoro Jekyll eniris sian propran formon kaj sidiĝis kun malheliĝinta frunto, por ŝajnigi matenmanĝon.
 
-Malgranda ja estis mia apetito. ĉi tiu neklarigebla okazaĵo, ĉi tiu renversiĝo de mia antaŭa sperto, ŝajnis, kiel la Babilo-na fingro sur la muro, skribi la literojn de mia kondamniĝo, kaj mi komencis, pli serioze ol iam, pripensi la rezultojn kaj eblecojn de mia duobla ekzistado. Tiu parto de mi, kiun mi havis la povon projekcii, en la lasta tempo multe ekzerciĝis kaj nutriĝis; ŝajnis al mi en la lastaj tagoj ke la korpo de Edward Hyde pligrandiĝas, kvazaŭ (kiam mi portis tiun formon) mi konscias pli riĉan fluon de sango, kaj mi komencis vidi danĝeron ke, se ĉi tio estos daŭrigata, la ekvilibro de mia naturo povos esti por ĉiam renversita, ke la kapablo de laŭ-
-
-vola ŝanĝiĝo povos esti perdita, kaj la karaktero de Edward Hyde fariĝos nerevokeble mia. La potenco de la drogo ne ĉiam montriĝis egala. Unu fojon, tre frue en mia kariero, ĝi restis tute senefika; de tiu tempo je pli ol unu okazo, mi estis devigita duobligi, kaj unufoje, kun granda risko de morto, triobligi la kvanton, kaj tiu malofta necerteco ĵetis ĝis nun la solan ombron sur mian kontentecon. Nun, tamen, pro la
+Malgranda ja estis mia apetito. ĉi tiu neklarigebla okazaĵo, ĉi tiu renversiĝo de mia antaŭa sperto, ŝajnis, kiel la Babilo-na fingro sur la muro, skribi la literojn de mia kondamniĝo, kaj mi komencis, pli serioze ol iam, pripensi la rezultojn kaj eblecojn de mia duobla ekzistado. Tiu parto de mi, kiun mi havis la povon projekcii, en la lasta tempo multe ekzerciĝis kaj nutriĝis; ŝajnis al mi en la lastaj tagoj ke la korpo de Edward Hyde pligrandiĝas, kvazaŭ (kiam mi portis tiun formon) mi konscias pli riĉan fluon de sango, kaj mi komencis vidi danĝeron ke, se ĉi tio estos daŭrigata, la ekvilibro de mia naturo povos esti por ĉiam renversita, ke la kapablo de laŭvola ŝanĝiĝo povos esti perdita, kaj la karaktero de Edward Hyde fariĝos nerevokeble mia. La potenco de la drogo ne ĉiam montriĝis egala. Unu fojon, tre frue en mia kariero, ĝi restis tute senefika; de tiu tempo je pli ol unu okazo, mi estis devigita duobligi, kaj unufoje, kun granda risko de morto, triobligi la kvanton, kaj tiu malofta necerteco ĵetis ĝis nun la solan ombron sur mian kontentecon. Nun, tamen, pro la
 
 okazo de tiu mateno, mi estis devigata konstati, ke dum komence la malfacilaĵo estis forĵeti la korpon de Jekyll, lastatempe ĝi grade sed decide transloĝiĝis al la alia flanko. ĉio ŝajnis montri al la konkludo, ke mi malrapide perdas mian unuan kaj pli bonan memon, kaj iom post iom enkorpiĝas en mian duan kaj pli malbonan.
 
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-Inter tiuj du, mi komprenis, mi jam devas elekti. Miaj du naturoj havis la komunan memoron, sed ĉiujn aliajn fakultojn plej neegale posedis inter si. Jekyll (kiu estis kunmetaĵo) jen kun la plej akraj timoj, jen kun avida gustaĵo projektis kaj partoprenis la plezurojn kaj aventurojn de Hyde: sed Hyde estis indiferenta pri Jekyll aŭ nur memoris lin kiel la monta bandito memoras la kavernon, en kiu li sin kaŝas kontraŭ la persekutado. Jekyll sentis pli ol patran intereson; Hyde sentis pli ol filan indiferentecon. Kunligi mian sorton kun tiu de Jekyll, estus morti rilate al tiuj apetitoj, je kiuj mi de longa tempo min indulgis kaj kiujn mi jam de kelka tempo dorlotis. Kunligi ĝin kun Hyde, estus morti pri mil interesoj kaj aspiroj kaj fariĝi por iĉiam malestimata kaj senamika. La mar-
-
-ĉando povus aperi neegala, sed estis ankoraŭ alia afero pri-pesinda; ĉar, dum Jekyll turmente suferadus en la fajroj de la abstinenco, Hyde eĉ ne konscius, kion li perdis.
+Inter tiuj du, mi komprenis, mi jam devas elekti. Miaj du naturoj havis la komunan memoron, sed ĉiujn aliajn fakultojn plej neegale posedis inter si. Jekyll (kiu estis kunmetaĵo) jen kun la plej akraj timoj, jen kun avida gustaĵo projektis kaj partoprenis la plezurojn kaj aventurojn de Hyde: sed Hyde estis indiferenta pri Jekyll aŭ nur memoris lin kiel la monta bandito memoras la kavernon, en kiu li sin kaŝas kontraŭ la persekutado. Jekyll sentis pli ol patran intereson; Hyde sentis pli ol filan indiferentecon. Kunligi mian sorton kun tiu de Jekyll, estus morti rilate al tiuj apetitoj, je kiuj mi de longa tempo min indulgis kaj kiujn mi jam de kelka tempo dorlotis. Kunligi ĝin kun Hyde, estus morti pri mil interesoj kaj aspiroj kaj fariĝi por iĉiam malestimata kaj senamika. La marĉando povus aperi neegala, sed estis ankoraŭ alia afero pri-pesinda; ĉar, dum Jekyll turmente suferadus en la fajroj de la abstinenco, Hyde eĉ ne konscius, kion li perdis.
 
 Kvankam strangaj estis miaj cirkonstancoj, la kondiĉoj de tiu ĉi interbatalo estas tiel malnovaj kaj banalaj, kiel la homo mem; efektive la samaj allogoj kaj timoj ĵetas la ludkubon por kiu ajn tentata kaj tremanta pekulo; kaj okazis ĉe mi, kiel okazas ĉe la plej granda nombro de miaj similuloj, ke mi elektis la pli bonan parton, kaj poste mankis al mi la forto plenumi mian elekton.
 
-Jes, mi preferis la maljunan kaj malkontentan doktoron, ĉirkaŭata de amikoj kaj tenanta honestajn esperojn, kaj mi diris decidan adiaŭon al la libereco, la rilata juneco, la facila paŝo, saltanta pulso kaj sekretaj plezuroj, kiujn mi ĝuis en la alivesto de Hyde. Tiun elekton mi faris eble kun senkonscia rezervo, ĉar mi nek forlasis la Soho-an domon, nek detruis la vestojn de Edward Hyde, kiuj ankoraŭ kuŝis pretaj en mia 76
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Jes, mi preferis la maljunan kaj malkontentan doktoron, ĉirkaŭata de amikoj kaj tenanta honestajn esperojn, kaj mi diris decidan adiaŭon al la libereco, la rilata juneco, la facila paŝo, saltanta pulso kaj sekretaj plezuroj, kiujn mi ĝuis en la alivesto de Hyde. Tiun elekton mi faris eble kun senkonscia rezervo, ĉar mi nek forlasis la Soho-an domon, nek detruis la vestojn de Edward Hyde, kiuj ankoraŭ kuŝis pretaj en mia
 
 
-kabineto. Dum du monatoj, tamen, mi restis fidela al mia decido; dum du monatoj mi vivis laŭ tiu vivo de severmoreco, kiun mi neniam antaŭe atingis, kaj ĝuis la kompensojn de aprobanta konscienco. Sed kun la tempo fine foriĝis la fre-
+kabineto. Dum du monatoj, tamen, mi restis fidela al mia decido; dum du monatoj mi vivis laŭ tiu vivo de severmoreco, kiun mi neniam antaŭe atingis, kaj ĝuis la kompensojn de aprobanta konscienco. Sed kun la tempo fine foriĝis la freŝeco de mia timo, la laŭdoj de mia konscienco fariĝis kutimo; min turmentegis afliktoj kaj sopiroj, kvazaŭ Hyde baraktus por la liberiĝo, kaj, fine, en horo de morala malforteco, mi denove kunmetis kaj englutis la aliformigan trinkaĵon.
 
-ŝeco de mia timo, la laŭdoj de mia konscienco fariĝis kutimo; min turmentegis afliktoj kaj sopiroj, kvazaŭ Hyde baraktus por la liberiĝo, kaj, fine, en horo de morala malforteco, mi denove kunmetis kaj englutis la aliformigan trinkaĵon.
+Mia diablo estis tenita longatempe en kaĝo, li liberiĝis fu-riozega. Mi sentis, eĉ jam dum mi trinkis la miksturon, pli senbridan, pli furiozan emon al la malbono. Mi supozas, ke sendube estis tio, kio vekis en mia animo tiun ventegon de senpacienco, kun kiu mi aŭskultis la ĝentilaĵojn de mia malfeliĉa viktimo; almenaŭ mi deklaras antaŭ Dio, ke neniu ho-mo morale sana povus esti kulpa pri tia krimo pro tiel baga-tela incito, kaj ke mi frapis en humoro ne pli racia ol tiu, en kiu malsana infano rompus ludilon. Tuj la spirito de la infero vekiĝis en mi, kaj furiozis. Kun paroksismo de ĝojo mi dis-bategis la pasivan korpon, gustumante ĝojegon ĉe ĉiu bato, kaj nur kiam la laceco komencis sekvi, subite dum la plej alta punkto de mia deliro, pikegis mian koron malvarma spasmo de teruro. Disiĝis la nebulo; mi vidis, ke mi metas mian vivon en danĝeron, kaj mi forkuris de la sceno de tiuj ekscesoj, fieriĝante eĉ dum mi tremas, kun mia avideco por la malbono
 
-Mia diablo estis tenita longatempe en kaĝo, li liberiĝis fu-riozega. Mi sentis, eĉ jam dum mi trinkis la miksturon, pli senbridan, pli furiozan emon al la malbono. Mi supozas, ke sendube estis tio, kio vekis en mia animo tiun ventegon de senpacienco, kun kiu mi aŭskultis la ĝentilaĵojn de mia malfeliĉa viktimo; almenaŭ mi deklaras antaŭ Dio, ke neniu ho-mo morale sana povus esti kulpa pri tia krimo pro tiel baga-tela incito, kaj ke mi frapis en humoro ne pli racia ol tiu, en kiu malsana infano rompus ludilon. Tuj la spirito de la infero vekiĝis en mi, kaj furiozis. Kun paroksismo de ĝojo mi dis-bategis la pasivan korpon, gustumante ĝojegon ĉe ĉiu bato, kaj nur kiam la laceco komencis sekvi, subite dum la plej alta punkto de mia deliro, pikegis mian koron malvarma spasmo de teruro. Disiĝis la nebulo; mi vidis, ke mi metas mian vivon en danĝeron, kaj mi forkuris de la sceno de tiuj ekscesoj, fieri-
-
-ĝante eĉ dum mi tremas, kun mia avideco por la malbono
-
-kontentigita kaj stimulita, kaj mia amo al la vivo altigita ĝis la plej ekstrema grado. Mi kuris al la domo en Soho kaj detruis miajn paperojn; de tie mi iris tra la lanternolumitajn stra-tojn, en la sama dividita ekstazo de spirito, ĝojegante pri mia krimo, gajkore projektante aliajn por la estonteco, kaj tamen, ankoraŭ rapidante kaj aŭskultante, ĉu sekvas min la paŝoj de 77
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+kontentigita kaj stimulita, kaj mia amo al la vivo altigita ĝis la plej ekstrema grado. Mi kuris al la domo en Soho kaj detruis miajn paperojn; de tie mi iris tra la lanternolumitajn stra-tojn, en la sama dividita ekstazo de spirito, ĝojegante pri mia krimo, gajkore projektante aliajn por la estonteco, kaj tamen, ankoraŭ rapidante kaj aŭskultante, ĉu sekvas min la paŝoj de
 
 
-la venĝonto. Hyde havis kanton sur la lipoj dum li kunmetis la miksturon, kaj trinkante ĝin li tostis la mortinton. Apenaŭ la agonio de la transformiĝo ĉesis disŝiri lin, jam Harry Jekyll, kun fluantaj larmoj de dankemo kaj memriproĉo, falis genu-en kaj levis la kunplektitajn manojn al Dio. La vualo de la memindulgo estis disŝirita de supre ĝis malsupre, kaj mi vidis mian vivon kiel tuton — mi sekvis ĝin de la tagoj de mia infaneco, kiam mi iris manon ĉe mano, kun mia patro, tra memoferemaj penadoj de mia profesia vivo, por alveni, foje kaj ree, kun la sama sento de nerealeco, ĉe la malbenitaj teruraĵoj de la vespero. Mi volis krii, mi penis kun larmoj kaj pre-
-
-ĝoj sufoki la amason da malbelegaj imagoj kaj sonoj, kiuj ari-
+la venĝonto. Hyde havis kanton sur la lipoj dum li kunmetis la miksturon, kaj trinkante ĝin li tostis la mortinton. Apenaŭ la agonio de la transformiĝo ĉesis disŝiri lin, jam Harry Jekyll, kun fluantaj larmoj de dankemo kaj memriproĉo, falis genu-en kaj levis la kunplektitajn manojn al Dio. La vualo de la memindulgo estis disŝirita de supre ĝis malsupre, kaj mi vidis mian vivon kiel tuton — mi sekvis ĝin de la tagoj de mia infaneco, kiam mi iris manon ĉe mano, kun mia patro, tra memoferemaj penadoj de mia profesia vivo, por alveni, foje kaj ree, kun la sama sento de nerealeco, ĉe la malbenitaj teruraĵoj de la vespero. Mi volis krii, mi penis kun larmoj kaj preĝoj sufoki la amason da malbelegaj imagoj kaj sonoj, kiuj ari-
 
 ĝis en mia memoro kontraŭ mi kaj, ankoraŭ inter miaj pete-goj, la fi-vizaĝo de mia kanajleco rigardis fikse en mian animon. Kiam la akreco de tiu memriproĉo mortis, ĝi estis sek-vata de sento de ĝojo. De nun Hyde estos neebla; ĉu mi volos, aŭ ne volos, mi estas de nun enfermita en la pli bona parto de mia ekzistado, kaj, ho, kiel mi ĝojis pensi pri tio! Kun kia volonta humileco mi akceptis denove la ĉirkaŭbarojn de la vivo natura! Kun kia sincera spirito de forlaso mi ŝlosis la pordon, per kiu mi tiel ofte iris kaj revenis, kaj dispremis la ŝlosilon sub mia piedo!
 
 En la posta tago venis la sciigo, ke la murdo estis observi-ta, ke la kulpo de Hyde estas evidenta al la mondo, kaj ke la viktimo estas viro alta en la publika estimado. Ne nur estis krimo, sed tragedia malsaĝaĵo. Mi pensas, ke mi ĝojis scii tion; mi pensas, ke mi ĝojis pro tio, ke miajn pli bonajn im-pulsojn tiel ĉirkaŭremparis kaj gardis la teruroj de la eŝafodo.
 
-Jekyll estis nun mia rifuĝejo; Hyde rigardetu eĉ nur dum mo-78
+Jekyll estis nun mia rifuĝejo; Hyde rigardetu eĉ nur dum momento, kaj la manoj de tiuj homoj tuj leviĝos por lin kapti kaj mortigi.
 
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-mento, kaj la manoj de tiuj homoj tuj leviĝos por lin kapti kaj mortigi.
-
-Mi decidis per mia estonta konduto reaĉeti la estintecon, kaj mi povas honeste diri, ke mia decido portis iom da bona frukto. Vi scias mem, kiel fervore dum la lastaj monatoj de la pasinta jaro, mi laboris por mildigi la suferojn de aliaj; vi scias, ke multo estis farita, kaj ke la tagoj pasis por mi trankvile kaj preskaŭ feliĉe. Kaj mi ja ne povas vere diri, ke min enui-gis ĉi tiu bonfara kaj senkulpa vivado; mi kontraŭe kredas, ke mi ĉiutage ĝuis ĝin plene; sed min ankoraŭ malbenis mia dueco de intenco; kaj, kiam fine iom post iom eluziĝis la unua akreco de mia pento, mia pli malnobla parto, tiel longe dor-lotita, tiel mallonge ĉenigita, komencis muĝi por liberiĝo. Mi ja ne revis revivigi Hyde; tion eĉ pripensi tremigis min ĝis frenezo; ne, en mia propra personeco stariĝis la tento ankoraŭ unu fojon petoli kun mia konscienco, kaj kiel ordinara sekreta pekanto mi fine submetiĝis al la atakoj de la tentado. Al ĉio venas fino; la plej vasta mezurilo fine pleniĝas, kaj ĉi tiu mallonga cedo al inia malboneco fine detruis la ekvilibron de mia animo. Estis bela, klara, januara tago, malseke subpiede, kie la frosto degelis, sed kun sennuba ĉielo, kaj Regent’s Park estis plena de vintraj pepadoj kaj dolĉa pro odoroj de prin-tempo. Mi sidis en la sunlumo sur benko; la besto en mi le-kis la lipojn pro rememoro; la spirita parto estis iom dorme-ma, promesante postan penton sed ankoraŭ ne incitita ĝis komenco. Nu, mi al mi diris, mi ja nur similas al miaj najba-roj, kaj poste mi ridetis, komparante min kun aliaj homoj, komparante mian ageman bonvolon kun la maldiligenta krueleco de ilia malzorgo. Kaj en la momento mem de tiu vanta fanfaronema penso, kaptis min spasmo, terura naŭzo kaj plej 79
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+Mi decidis per mia estonta konduto reaĉeti la estintecon, kaj mi povas honeste diri, ke mia decido portis iom da bona frukto. Vi scias mem, kiel fervore dum la lastaj monatoj de la pasinta jaro, mi laboris por mildigi la suferojn de aliaj; vi scias, ke multo estis farita, kaj ke la tagoj pasis por mi trankvile kaj preskaŭ feliĉe. Kaj mi ja ne povas vere diri, ke min enui-gis ĉi tiu bonfara kaj senkulpa vivado; mi kontraŭe kredas, ke mi ĉiutage ĝuis ĝin plene; sed min ankoraŭ malbenis mia dueco de intenco; kaj, kiam fine iom post iom eluziĝis la unua akreco de mia pento, mia pli malnobla parto, tiel longe dor-lotita, tiel mallonge ĉenigita, komencis muĝi por liberiĝo. Mi ja ne revis revivigi Hyde; tion eĉ pripensi tremigis min ĝis frenezo; ne, en mia propra personeco stariĝis la tento ankoraŭ unu fojon petoli kun mia konscienco, kaj kiel ordinara sekreta pekanto mi fine submetiĝis al la atakoj de la tentado. Al ĉio venas fino; la plej vasta mezurilo fine pleniĝas, kaj ĉi tiu mallonga cedo al inia malboneco fine detruis la ekvilibron de mia animo. Estis bela, klara, januara tago, malseke subpiede, kie la frosto degelis, sed kun sennuba ĉielo, kaj Regent’s Park estis plena de vintraj pepadoj kaj dolĉa pro odoroj de prin-tempo. Mi sidis en la sunlumo sur benko; la besto en mi le-kis la lipojn pro rememoro; la spirita parto estis iom dorme-ma, promesante postan penton sed ankoraŭ ne incitita ĝis komenco. Nu, mi al mi diris, mi ja nur similas al miaj najba-roj, kaj poste mi ridetis, komparante min kun aliaj homoj, komparante mian ageman bonvolon kun la maldiligenta krueleco de ilia malzorgo. Kaj en la momento mem de tiu vanta fanfaronema penso, kaptis min spasmo, terura naŭzo kaj plej
 
 
 mortiga tremo. Tiuj forpasis kaj lasis min svenema, kaj poste, dum siavice la svenemo kvietiĝis, mi konstatis ŝanĝon en la karaktero de miaj pensoj; pli grandan kuraĝon, malestimon al la danĝero, solviĝon de la ligiloj de devo. Mi rigardis malsupren, miaj vestoj pendis senforme sur miaj malŝvelintaj membroj; la mano kuŝanta sur mia genuo estis sulkoplena kaj vila. Mi estis denove Edward Hyde. Antaŭ momento al mi
@@ -1473,69 +1161,43 @@ jen la problemo, kies solvon — premegante per la manoj
 
 miajn tempiojn — mi nun devas entrepreni. La laboratorian pordon mi mem jam fermis. Se mi provus eniri tra la domo, miaj propraj servistoj min sendus al la eŝafodo. Mi komprenis, ke mi devos uzi alian manon, kaj pensis pri Lanyon. Kiel lin trafi? Kiel konsentigi lin? Supozu, ke mi evitos kaptiĝon sur la stratoj, kiel mi povos eniri en lian domon? Kaj kiel mi, nekonata kaj malplaĉa vizitanto, povos decidigi la faman ku-raciston rabi la kabineton de sia kolego, doktoro Jekyll? Tiam mi memoris, ke restas al mi unu parto de mia origina karaktero: mi povas skribi laŭ mia propra skribmaniero. Tuj kiam ekbrilis en mi tiu ideo, klariĝis al mi la tuta vojo, kiun mi devos sekvi. Mi do ordigis mian vestojn kiel eble plej bone, alvo-kis pasantan fiakron kaj veturigis min al hotelo sur Portland Street, kies nomon mi hazarde memoris. Pro mia aspekto, —
 
-kiu estis faskte sufiĉe ridinda, kiel ajn tragedia la sorto, kiun kovris ĉi tiuj vestoj, — la veturigisto ne povis kaŝi sian ride-80
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
-
-
-mon. Mi grincigis la dentojn al li kun ventego de diabla furiozo; kaj la rideto forvelkis sur lia vizaĝo, — feliĉe por li, —
+kiu estis faskte sufiĉe ridinda, kiel ajn tragedia la sorto, kiun kovris ĉi tiuj vestoj, — la veturigisto ne povis kaŝi sian ridemon. Mi grincigis la dentojn al li kun ventego de diabla furiozo; kaj la rideto forvelkis sur lia vizaĝo, — feliĉe por li, —
 
 ankoraŭ pli feliĉe por mi, ĉar, nur momenton plu, kaj mi lin jam certe deŝirus de sur lia sidejo. Enirinte la hotelon, mi ĉir-kaŭrigardis kun tia malluma mieno, ke la servistoj tremis; neniun rigardon ili interŝanĝis dum mia ĉeesto; sed sklaveme ili ricevis miajn ordonojn, kondukis min al privata ĉambro kaj alportis al mi skribilaron. Hyde, en danĝero pri sia vivo, estis al mi estaĵo nova; skuita de supermezura kolero, streĉita
 
-ĝis murdemo, avidega kaŭzi al iu doloron. Li tamen estis ru-zulo; venkis sian koleregon per granda peno de volo, verkis du gravajn leterojn, unu al Lanyon kaj unu al Poole, kaj por ke li ricevu certigon, ke ili efektive estis metitaj en la poŝton, li ordonis, ke oni ilin rekomendu. De tiam li sidis la tutan tagon apud la fajro en la privata ĉambro, mordetante siajn ungojn; tie li tagmanĝis, sidante sola kun siaj timoj, kun la kelnero videble tremanta antaŭ lia okulo; kaj de tie, post plena noktiĝo, li veturis en angulo de fermita veturilo kaj kon-dukigis sin tra la stratoj de la urbo. — ”Li”, mi diras; mi ne povas diri ”mi”. En tiu infano de la infero estis nenio homa; loĝis en li nenio alia ol timo kaj malamo. Kaj kiam fine, — pensan-te, ke la veturigisto komencas ion suspekti, — li forsendis la veturilon kaj riskis piediri, en siaj maltaŭgaj vestoj, objekto certe rimarkita de la noktajn preterirantojn, tiuj du malnoblaj pasioj furiozis en li kvazaŭ uragano. Li marŝis rapide, per-sekutata de siaj timoj; babilante al si mem, ŝtelirante tra la malpli vizitataj stratoj, kalkulante la minutojn, kiuj kvazaŭ barilo ankoraŭ apartigis lin de noktomezo. Foje virino alparolis lin, proponante, mi pensas, skatolon da alumetoj. Li pugnis ŝin en la vizaĝon, kaj ŝi forkuris. Kiam mi rekonsciiĝis 81
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+ĝis murdemo, avidega kaŭzi al iu doloron. Li tamen estis ru-zulo; venkis sian koleregon per granda peno de volo, verkis du gravajn leterojn, unu al Lanyon kaj unu al Poole, kaj por ke li ricevu certigon, ke ili efektive estis metitaj en la poŝton, li ordonis, ke oni ilin rekomendu. De tiam li sidis la tutan tagon apud la fajro en la privata ĉambro, mordetante siajn ungojn; tie li tagmanĝis, sidante sola kun siaj timoj, kun la kelnero videble tremanta antaŭ lia okulo; kaj de tie, post plena noktiĝo, li veturis en angulo de fermita veturilo kaj kon-dukigis sin tra la stratoj de la urbo. — ”Li”, mi diras; mi ne povas diri ”mi”. En tiu infano de la infero estis nenio homa; loĝis en li nenio alia ol timo kaj malamo. Kaj kiam fine, — pensan-te, ke la veturigisto komencas ion suspekti, — li forsendis la veturilon kaj riskis piediri, en siaj maltaŭgaj vestoj, objekto certe rimarkita de la noktajn preterirantojn, tiuj du malnoblaj pasioj furiozis en li kvazaŭ uragano. Li marŝis rapide, per-sekutata de siaj timoj; babilante al si mem, ŝtelirante tra la malpli vizitataj stratoj, kalkulante la minutojn, kiuj kvazaŭ barilo ankoraŭ apartigis lin de noktomezo. Foje virino alparolis lin, proponante, mi pensas, skatolon da alumetoj. Li pugnis ŝin en la vizaĝon, kaj ŝi forkuris. Kiam mi rekonsciiĝis
 
 
 ĉe la domo de Lanyon, la teruro de mia malnova amiko iom kortuŝis min; mi ne scias; estis almenaŭ nur kvazaŭ guto en la maro, kompare al la abomenego, kun kiu mi rigardis reen al tiuj horoj. Estis okazinta en mi ia ŝanĝiĝo. Jam ne plu timo al la eŝafodo, sed la teruro fariĝi denove Hyde, turmentis min.
 
-La kondamnon de Lanyon mi ricevis duone en sonĝo; duo-
-
-ne en sonĝo revenis hejmen kaj kuŝiĝis. Post la laciĝoj de la tago mi dormis, en dormo tiel severa kaj profunda, ke ne sukcesis ĝin rompi eĉ la teruraj koŝmaroj min turmentantaj. Mi vekiĝis matene skuita, malfortigita, sed refreŝiĝinta. Mi ankoraŭ malamis kaj timis pensi pri la bruto, kiu en mi dormetis, kaj kompreneble mi ne forgesis la konsternantajn dan-
+La kondamnon de Lanyon mi ricevis duone en sonĝo; duone en sonĝo revenis hejmen kaj kuŝiĝis. Post la laciĝoj de la tago mi dormis, en dormo tiel severa kaj profunda, ke ne sukcesis ĝin rompi eĉ la teruraj koŝmaroj min turmentantaj. Mi vekiĝis matene skuita, malfortigita, sed refreŝiĝinta. Mi ankoraŭ malamis kaj timis pensi pri la bruto, kiu en mi dormetis, kaj kompreneble mi ne forgesis la konsternantajn dan-
 
 ĝerojn de la antaŭa tago; sed mi estis denove hejme, en mia propra domo kaj apud miaj drogoj, kaj dankemo pro mia sa-vo brilis en mia animo tiel forte, ke ĝi preskaŭ konkuris la helecon de la espero mem.
 
-Mi estis malrapide paŝanta tra la korto post matenmanĝo, entrinkanta la malvarman aeron kun plezuro, kiam denove min kaptis tiuj nepriskribeblaj sentoj, kiuj heroldis la ŝan-
+Mi estis malrapide paŝanta tra la korto post matenmanĝo, entrinkanta la malvarman aeron kun plezuro, kiam denove min kaptis tiuj nepriskribeblaj sentoj, kiuj heroldis la ŝanĝiĝon: kaj apenaŭ mi havis la tempon atingi la ŝirmon de mia kabineto, kiam en mi denove furiozis kaj glaciis la pasioj de Hyde. ĉi tiun fojon, duobla dozo estis necesa por revoki min al mi mem, kaj jen ho ve! post ses horoj, dum mi sidis malgaje rigardanta la fajron, jam revenis la doloroj kaj la drogo denove devis esti trinkata. Mallonge, de tiu tago ŝajnis, ke nur per granda, kvazaŭ gimnastika penado, kaj nur sub la rekta stimulo de la drogo, mi povis porti la vizaĝon de Jekyll. Je ĉiu horo de la tago kaj nokto min kaptis la avertanta tremo; pre-cipe se mi dormis, aŭ eĉ dum momento dormetis sur mia se-
 
-ĝiĝon: kaj apenaŭ mi havis la tempon atingi la ŝirmon de mia kabineto, kiam en mi denove furiozis kaj glaciis la pasioj de Hyde. ĉi tiun fojon, duobla dozo estis necesa por revoki min al mi mem, kaj jen ho ve! post ses horoj, dum mi sidis malgaje rigardanta la fajron, jam revenis la doloroj kaj la drogo denove devis esti trinkata. Mallonge, de tiu tago ŝajnis, ke nur per granda, kvazaŭ gimnastika penado, kaj nur sub la rekta stimulo de la drogo, mi povis porti la vizaĝon de Jekyll. Je ĉiu horo de la tago kaj nokto min kaptis la avertanta tremo; pre-cipe se mi dormis, aŭ eĉ dum momento dormetis sur mia se-
-
-ĝo, ĉiam mi vekiĝis kiel Hyde. Sub la streĉo de ĉi tiu senĉese 82
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+ĝo, ĉiam mi vekiĝis kiel Hyde. Sub la streĉo de ĉi tiu senĉese
 
 
-minacanta fatalo, kaj pro la maldormo, al kiu mi nun mndamnis eĉ super ĉia grado, kiun mi kredis ebla al homo, mi fariĝis en mia propra persono estaĵo konsumita kaj elĉer-pita de febro, malforta, korpe kaj mense, ĉiam okupata de unu sola penso: abomeno al mia alia memo. Sed dum mi dormis aŭ kiam la efekto de la drogo elĉerpiĝis, mi saltis preskaŭ sen transiro — ĉar la doloroj de la aliformiĝo fariĝis ĉiutage malpli severaj — en la posedon de imago plenega de teruraj fantazioj, de animo bolanta per senkaŭzaj malamoj, kaj en la posedon de korpo, kiu ŝajnis ne sufiĉe forta por enteni la fu-riozantajn energiojn de la vivo. La povoj de Hyde ŝajnis des pli kreski, ju pli kadukiĝis Jekyll. Kaj certe la malamo, kiu apartigis ilin, estis nun ambaŭflanke egala. ĉe Jekyll ĝi estis afero de esenca instinkto. Li nun konsciis plene pri la fifor-miĝo de tiu estaĵo, kiu partoprenis kun li kelkajn el la feno-menoj de la konscienco, kaj kiu estis kunheredonto kun li de la morto; kaj krom tiuj ligiloj de komuna posedo, kiuj konsti-tuis la plej dolorigan parton de lia turmento, li pensis pri Hyde kvazaŭ pri io ne nur infera sed neorganika. Jen la terura afero: ke la ŝlimo de la abismo ŝajnias aŭdigi kriojn kaj vo-
+minacanta fatalo, kaj pro la maldormo, al kiu mi nun mndamnis eĉ super ĉia grado, kiun mi kredis ebla al homo, mi fariĝis en mia propra persono estaĵo konsumita kaj elĉer-pita de febro, malforta, korpe kaj mense, ĉiam okupata de unu sola penso: abomeno al mia alia memo. Sed dum mi dormis aŭ kiam la efekto de la drogo elĉerpiĝis, mi saltis preskaŭ sen transiro — ĉar la doloroj de la aliformiĝo fariĝis ĉiutage malpli severaj — en la posedon de imago plenega de teruraj fantazioj, de animo bolanta per senkaŭzaj malamoj, kaj en la posedon de korpo, kiu ŝajnis ne sufiĉe forta por enteni la fu-riozantajn energiojn de la vivo. La povoj de Hyde ŝajnis des pli kreski, ju pli kadukiĝis Jekyll. Kaj certe la malamo, kiu apartigis ilin, estis nun ambaŭflanke egala. ĉe Jekyll ĝi estis afero de esenca instinkto. Li nun konsciis plene pri la fifor-miĝo de tiu estaĵo, kiu partoprenis kun li kelkajn el la feno-menoj de la konscienco, kaj kiu estis kunheredonto kun li de la morto; kaj krom tiuj ligiloj de komuna posedo, kiuj konsti-tuis la plej dolorigan parton de lia turmento, li pensis pri Hyde kvazaŭ pri io ne nur infera sed neorganika. Jen la terura afero: ke la ŝlimo de la abismo ŝajnias aŭdigi kriojn kaj voĉojn; ke la amorfa polvo gestaĉis kaj pekis; ke tio, kio estas senviva, kaj ne havas formon, povas uzurpi la funkciojn de la vivo. Kaj jen ankoraŭ: ke tiu ribelanta abomenaĵo estis ligita al li pli intime ol edzino, pli proksime ol okulo; kuŝis kaŝita en lia karno, kie li aŭdis ĝin murmuri, sentis ĝin barakti al naskiĝo kaj en ĉiu horo de malforteco, kaj dum la konfido de la dormo, lin venkis kaj uzurpis lian vivon.
 
-ĉojn; ke la amorfa polvo gestaĉis kaj pekis; ke tio, kio estas senviva, kaj ne havas formon, povas uzurpi la funkciojn de la vivo. Kaj jen ankoraŭ: ke tiu ribelanta abomenaĵo estis ligita al li pli intime ol edzino, pli proksime ol okulo; kuŝis kaŝita en lia karno, kie li aŭdis ĝin murmuri, sentis ĝin barakti al naskiĝo kaj en ĉiu horo de malforteco, kaj dum la konfido de la dormo, lin venkis kaj uzurpis lian vivon.
-
-La malamo de Hyde kontraŭ Jekyll estis de malsama spe-
-
-co. Lia teruro pri la eŝafodo devigis lin senĉese fari provizo-ran memmortigon, kaj reveni al lia stato de subulo, fariĝi par-83
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+La malamo de Hyde kontraŭ Jekyll estis de malsama speco. Lia teruro pri la eŝafodo devigis lin senĉese fari provizo-ran memmortigon, kaj reveni al lia stato de subulo, fariĝi par-83
 
 
 to anstataŭ persono; sed li abomenis la neceson, li abomenis la malĝojegon en kiun Jekyll jam falis, kaj lin akre indignigis la malplaĉo, kiun li mem inspiris. Pro tio la simio-similaj fipe-toloj, kiujn li faris al mi, skribaĉante laŭ mia propra skribstilo blasfemaĵojn sur la paĝoj de miaj libroj; bruligante la leterojn kaj portreton de mia patro; kaj vere, se lin ne detenus timo pri propra morto, jam antaŭlonge li estus ruiniginta sin por impliki min en la ruino. Sed lia amo por la vivo estas mi-riga; mi diros plu: mi, kiu malsanas kaj glaciiĝas pro simpla penso pri li, mi, kiam mi memoras la mizeraĉon kaj pasion de lia alkroĉemo al la vivo, kaj kiam mi scias, kiom li timas mian kapablon detranĉi lin per la memmortigo, mi povas en mia koro lmpati. Ne utilas, kaj la tempo dolore mankas al mi, plilongigi ĉi tiun priskribon; neniam mi suferis tiajn turmentegojn, tio sufiĉu. Kaj tamen eĉ al tiaj la kutimado alportis —
 
-ne, ne malpeziĝon, sed ian kalecon de la animo, ian submeti-
-
-ĝemon al la malespero; kaj mia puno povus ja daŭri dum jaroj, se ne estus okazinta tiu lasta malfeliĉaĵo, kiu nun fine min trafis kaj disiĝis de mia propra vizaĝo kaj naturo. Mia provizo de la salo, kiu neniam renoviĝis de post la dato de mia unua eksperimento, komencis elĉerpiĝi. Mi venigis novan provizon kaj kunmiksis la trinkaĵon: la kvazaŭbolado sekvis, ankaŭ la unua kolorŝanĝiĝo, sed ne la dua. Mi trinkis la miksturon, ĝi ne efikis. Vi ekscios de Poole, kiel mi traserĉigis tutan Londonon; vane estis, kaj mi estas nun konvinkita, ke mia unua provizo estis nepura, kaj ke estis tiu nekonata nepuraĵo, kiu donis al la miksaĵo efikon.
+ne, ne malpeziĝon, sed ian kalecon de la animo, ian submetiĝemon al la malespero; kaj mia puno povus ja daŭri dum jaroj, se ne estus okazinta tiu lasta malfeliĉaĵo, kiu nun fine min trafis kaj disiĝis de mia propra vizaĝo kaj naturo. Mia provizo de la salo, kiu neniam renoviĝis de post la dato de mia unua eksperimento, komencis elĉerpiĝi. Mi venigis novan provizon kaj kunmiksis la trinkaĵon: la kvazaŭbolado sekvis, ankaŭ la unua kolorŝanĝiĝo, sed ne la dua. Mi trinkis la miksturon, ĝi ne efikis. Vi ekscios de Poole, kiel mi traserĉigis tutan Londonon; vane estis, kaj mi estas nun konvinkita, ke mia unua provizo estis nepura, kaj ke estis tiu nekonata nepuraĵo, kiu donis al la miksaĵo efikon.
 
 Proksimume unu semajno nun pasis, kaj mi finas ĉi tiun
 
 rakonton sub la influo de la lasta el miaj malnovaj pulvoroj.
 
-ĉi tiu, do, estas la lasta fojo — se ne okazos miraklo — kiam 84
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
+ĉi tiu, do, estas la lasta fojo — se ne okazos miraklo — kiam
 
 
 Harry Jekyll povas pensi siajn proprajn pensojn aŭ vidi sian propran vizaĝon (nun, ho ve! kiel malgaje aliigitan!) en la spegulo. Mi ne rajtas prokrasti tro longe la finon de ĉi tiu skri-bado, ĉar se mia rakonto ĝis nun evitis detruiĝon, tio estis pro kombino de granda antaŭzorgo kaj granda bonŝanco. Se la agonioj de la ŝanĝo kaptos min dum mi ĝin skribas, Hyde ĝin disŝiros; sed se iom da tempo pasos de kiam mi estos ĝin flan-kenmetinta, lia mirinda egoismo kaj absorbiteco en la pasanta momento, eble savos ĝin denove kontraŭ la ago de lia simio-simila malico. Kaj efektive, la fatalo, kiu proksimiĝas al ni ambaŭ, jam ŝanĝis kaj premis lin. Pasos nur duonhoro, kaj mi denove kaj por ĉiam eniros tiun malamitan personecon…
 
 Mi scias, kiel mi sidos tremante kaj plorante sur mia seĝo, aŭ daŭros, en plej streĉita kaj timopenetra ekstazo de aŭskulta-do, paŝi tien kaj reen tra ĉi tiu ĉambreto — mia lasta surtera rifuĝejo — kaj subaŭskulti dian sonon de minaco. ĉu Hyde mortos sur la eŝafodo? aŭ ĉu li en la lasta momento trovos la kuraĝon sin liberigi? Dio scias: al mi estas indiferente; ĉi tiu estas la vera horo de mia morto, kaj tio, kio nepre sekvos, koncernos alian ol min mem. ĉi tie, do, demetante mian plu-mon kaj sigelante mian konfeson, mi metas finon al la vivhis-torio de tiu malfeliĉa Harry Jekyll.
-
-
-DOKTORO JEKYLL KAJ SINJORO HYDE
 
 
 www.omnibus.se/

@@ -8,14 +8,6 @@ Franjo Modrijan
 FABELOJ
 
 
-@omnibus.se
-
-·
-
-
-FABELOJ
-
-
 I. Judito dormas
 
 La brulruĝa luno naĝas sur la
@@ -28,9 +20,7 @@ nenombreblaj steloj kaj steletoj.
 
 La mistera reĝino de la nokto, de
 
-la sonĝoj kaj fabeloj, veturas ĉir-
-
-kaŭen por feliĉigi la homaron
+la sonĝoj kaj fabeloj, veturas ĉirkaŭen por feliĉigi la homaron
 
 per dolĉa ripozo. Enrigardante
 
@@ -57,9 +47,6 @@ La unua mallaŭte ekparolas.
 —Nia patrineto dormas. Ni forlasu niajn paĝojn kaj iru al Judito! Ni rakontos al ŝi fabelojn, kiujn ŝi tre ŝatas, por ke ŝi povu pli dolĉe sonĝi, nia bonkora belulino.
 
 
-FABELOJ
-
-
 —Jes, jes! konsentas la aliaj unuvoĉe. Ni iru!
 
 La literoj pligrandiĝas kaj, malsupren grimpante kaj paŝetante, ili direktas sian iron al la sonĝanta dormulino.
@@ -73,9 +60,6 @@ La literoj pligrandiĝas kaj, malsupren grimpante kaj paŝetante, ili direktas s
 —Dume ni estas al ŝi rakontontaj belegajn fabelojn.
 
 La literoj svarme alvenadas, kiel formiĝoj el sia loĝejo, tut-plene superŝutante kaj okupante la litkovraĵon.
-
-
-FABELOJ
 
 
 II. La literoj parolas
@@ -94,21 +78,11 @@ Judito, ĉu vi konas nin?
 
 —Nur en sonĝo oni povas vidi ŝin. ŝia vizaĝo brilas kiel la ridetanta sunlumo.
 
-Sur oraj aerinsuloj kun mirindaj grotoj kaj sanktaj fontetoj staras kristalaj palacoj, meze de ensorĉitaj arbaretoj: ŝia lo-
-
-ĝejo. Nur feinoj kaj niksinoj, nimfoj kaj elfknabinoj, gnomoj kaj koboldoj estas iliaj gastoj.
+Sur oraj aerinsuloj kun mirindaj grotoj kaj sanktaj fontetoj staras kristalaj palacoj, meze de ensorĉitaj arbaretoj: ŝia loĝejo. Nur feinoj kaj niksinoj, nimfoj kaj elfknabinoj, gnomoj kaj koboldoj estas iliaj gastoj.
 
 Sur paradizaj valoj kun florantaj herbejoj kaj bluaj lagetoj ili promenas, kantante kaj dancante en arĝenta lunlumo, en-volvitaj en travidebla vualo de blankaj nebuletoj.
 
-En la lando de la fabeloj la malbono kaj la morto estas ne-konataj. Tie en la alta templo de la sankta fantazio regas sen-5
-
-FABELOJ
-
-
-morteco, pura gajeco, nura boneco. La tuta naturo tie dormas kaj sonĝas pri misteraj sekretoj de la tera patrino.
-
-
-FABELOJ
+En la lando de la fabeloj la malbono kaj la morto estas ne-konataj. Tie en la alta templo de la sankta fantazio regas senmorteco, pura gajeco, nura boneco. La tuta naturo tie dormas kaj sonĝas pri misteraj sekretoj de la tera patrino.
 
 
 III. La fabelo venis
@@ -123,16 +97,11 @@ La stansoldatoj, kuŝantaj en granda, ligna skatolo, aparte-nantaj al la frato d
 
 La dormoĉambro plilongiĝis, plilarĝiĝis; stranga lumo ek-briligis la ĉambron.
 
-Tintiloj kaj sonoriloj eksonis. Malgrandaj gnomoj, apogan-te sin sur bastonetoj, alvenadis. Babilante kaj ridetante ili ek-
-
-ĉirkaŭstaris la liton de Judito. Ilin sekvis mentonbarbaj koboldoj kun trumpetoj kaj lanternoj.
+Tintiloj kaj sonoriloj eksonis. Malgrandaj gnomoj, apogan-te sin sur bastonetoj, alvenadis. Babilante kaj ridetante ili ekĉirkaŭstaris la liton de Judito. Ilin sekvis mentonbarbaj koboldoj kun trumpetoj kaj lanternoj.
 
 Starante spalire kun la stansoldatoj, subite ĉiuj eksilentis.
 
 Jen jam estis la ĉarmega knabino, kun ora diademo en nigraj harbukloj. ŝi estis la fabelo, unu el la multnombraj servisti-noj de la fabelreĝino. Beletaj elfinoj ĉirkaŭiris ŝin, portantaj plurkolorajn, bonodorajn bukedojn. La ĉambrego fariĝis paradiza, belegaspekta ĝardeno.
-
-
-FABELOJ
 
 
 IV. La balo
@@ -151,11 +120,7 @@ Nun aperis strangestaĵoj: el la angulo algrimpis ĝibulo longharulo, kiu, kaptu
 
 Jen alvenis blondhara junulo.
 
-—Via memoro! flustris la fabelo. La frato de via animo! Lo-
-
-ĝinte ĉe vi de la infaneco ĝis la maljuneco kaj rakontinte al vi 8
-
-FABELOJ
+—Via memoro! flustris la fabelo. La frato de via animo! Loĝinte ĉe vi de la infaneco ĝis la maljuneco kaj rakontinte al vi
 
 
 ĉiujn okazintajojn de via vivo, la memoro forlasos vin, kiam vi mortos, alflugonte kun via animo al la eterna Dio.
@@ -167,9 +132,6 @@ FABELOJ
 La homfiguraj spiritoj flugdancadis, la junulo blondharu-lo rakontadis ĉarmajn rakontetojn. Kiam la moviĝantaj om-brofiguroj estis malaperintaj, Judito ekvidis en siaj manoj belegan libron!
 
 —Jen unu donaco de nia bonega reĝino: la orbindita fabellibro! Prenu ĝin: vi vidos miraklojn! Neniam vi povos trarigar-di la mirigajn, parolantajn ilustraĵojn; ili estas senfinaj!
-
-
-FABELOJ
 
 
 V. La reĝa festo
@@ -191,18 +153,13 @@ Tiam aŭdiĝis laŭta voĉo
 —Judito mankas, la senkulpa belulino! Voku ŝin! Mi ŝin elektis princidino!
 
 
-FABELOJ
-
-
 VI. La fabelreĝino
 
 Ektimigite eniris Judito la reĝan salonon, vestita per luksa vestaĵo, ornamita per ora diademo. ĉiuj gastoj ekflustris, entuziasmiĝintaj:
 
 —ĉarmanta knabino! Vera princidino!
 
-La reĝa salono ekbriliĝis per fortega lumo; kantantaj pa-radizbirdoj enflugis, agrabla odoro plenigis la salonon, mola, dolĉa muziko eksonis. La ĉambrego aliiĝis: oni sidis en ensor-
-
-ĉita arbareto.
+La reĝa salono ekbriliĝis per fortega lumo; kantantaj pa-radizbirdoj enflugis, agrabla odoro plenigis la salonon, mola, dolĉa muziko eksonis. La ĉambrego aliiĝis: oni sidis en ensorĉita arbareto.
 
 Sennombraj estaĵoj aperis, beletaj sorĉistinoj superŝutis la plankon per odorantaj floroj. Sur purpuraj fungoj sidis ridan-taj, kolorvestitaj koboldoj. Gnomoj kaj gnominoj ĉirkaŭsal-tetadis la surprizitajn gastojn, surgenuigante sin. Belegaj feinoj, ĉarmaj niksinoj kaj orharaj elfinoj alpaŝadis, dancante, kantante. Nebulitaj fabeloj flugpendis super la kapoj de mi-reganta korteganaro.
 
@@ -211,9 +168,6 @@ Jen aperis kvar flugetantaj cignoj kun luksa veturilo kaj ĉiela baldakeno, plen
 — ŝi havas nekonstantan formon — kaj ĉiam ŝi fariĝis pli bela.
 
 La melodia ario de la muziko plifortiĝis, la birdoj ĝoje flirtadis, ŝia sekvantaro kantadis. Sed kiam la fabelreĝino kun dolĉagrabla rideto ekparolis karesvoĉe, ĉiuj subite eksilentis kaj ne aŭdebliĝis ia sono.
-
-
-FABELOJ
 
 
 VII. Kio estas fabelo?
@@ -226,21 +180,14 @@ La fantazio kaj la poezio kreis mian miljaran patrujon, la sonĝon de la homaro,
 
 Per brilantaj flugiloj la fabeloj migras de loko al loko. ĉiu akceptas ilin, ĉu en la palaco, ĉu en la malriĉa dometo. ĉiuj popoloj nnas, adoras, kaj diigas. La poetoj glorigas nin.
 
-ĉiu generacio ĝojvenas al ni por satigi siajn sopirojn al la pura beleco. La junularo amas nin kaj sonĝas pri ni la unuajn son-
-
-ĝojn.
+ĉiu generacio ĝojvenas al ni por satigi siajn sopirojn al la pura beleco. La junularo amas nin kaj sonĝas pri ni la unuajn sonĝojn.
 
 La avino rakontas fabelojn al siaj genepoj kaj tiuj al siaj. La fabelo vivas eterne. Jarcentoj kaj jarcentoj jam estas pasintaj, sed mi ĉiam vivas, juna kaj bela, kiel la miljara floro.
 
-Mi vidis vin kiel infanojn, mi vidos viajn pranepojn, kiel maljunulojn, kaj mi al ili rakontos novajn fabelojn. La fabelo rekondukas la homajn pensojn en la infanan junecon, kiam 12
-
-FABELOJ
+Mi vidis vin kiel infanojn, mi vidos viajn pranepojn, kiel maljunulojn, kaj mi al ili rakontos novajn fabelojn. La fabelo rekondukas la homajn pensojn en la infanan junecon, kiam
 
 
 ĉiu travivis la plej feliĉajn tagojn de sia vivo. La infanoj tial estas miaj plej amataj gastoj.
-
-
-FABELOJ
 
 
 VIII. La bela princo
@@ -258,9 +205,6 @@ Rajdante tra la kampoj, li iutage ekvidis antaŭ si florantan, serenaspektan kna
 —Jen la odoranta, vekiĝanta naturo, la printempa juneco kaj beleco, la dia poezio, la sankta mistero de la eterna mond-fabelo! ĉu vi ne vidas, ne aŭdas ĝin? ĉiu vivo, ĉiu estaĵo estas po unu rakonto. Rigardu naturon kaj vi vidos kaj aŭdos fabelojn.
 
 
-FABELOJ
-
-
 IX. La himno de la naturo
 
 Liaj sentoj preskaŭ forlasis lin, la pensoj distriĝis ĉiuflan-ken. La oreloj aŭskultadis la dian muzikon de la naturo, la okuloj rigardadis la miraklojn, la koro sentis nekonatan feliĉon. Li kontaktiĝis kun la sanktaj misteroj de la terpatri-no.
@@ -272,9 +216,6 @@ Dum tiuj momentoj la princo ekvidis la dian belecon, la novan vivon de la vekiĝ
 Jen estis ĝojplenaj, apenaŭ videblaj sorĉestaĵoj kun vivantaj trajtoj. Lumbriletante kaj dolĉkantante ili flugdancadis milo-pe en la karesa suno kaj plenigis la superteran aerspacon, sidiĝante sur liaj ŝultroj.
 
 Kiu ilin vidas kaj aŭdas, estas feliĉa homo. Oni nomas ilin voĉoj de Dio. La briletantaj steletokuloj kortuŝe ridetis, la in-fanaj buŝetoj moviĝante aŭdigis sanktan kanton, kiu unuiĝis kun glorigaj himnoj de la printempa vivo.
-
-
-FABELOJ
 
 
 X. La servistino de Dio
@@ -290,9 +231,6 @@ Larĝa ĉielarko aperis. Belkreska knabino malsuprenpaŝetis, alparolante la pri
 ”La unua homparo nomis min eterna vivo. Sed kiam la prahomoj perdis tiun ĉi donacon de Dio, mi forlasis ilin. De tiam ni serĉas nin reciproke: la homo feliĉon, mi la homon.
 
 ”Mi estas la simbolo de la homa kaj surtera vivo: nun oni nomas min morto. Sed mi estas bonkorulino, liberigante la mortemulojn de ĉiu malbono. La mortdeva okulo ne povas vidi la senmortecon. Nur vi estas la elektito de Dio. Vi ne mortos, vi vivos eterne en la fabelo.”
-
-
-FABELOJ
 
 
 XI. La karmezina papilio
@@ -316,9 +254,6 @@ La reĝo aranĝis grandan edziĝofeston. Sed la juna dancistino forkuris el la p
 La papilio denove aperis, briletanta en la sunlumo kiel granda perlo. Ekflugetinte, ĝi sidigis sin sur blankan floron.
 
 
-FABELOJ
-
-
 XII. La neĝblanka floro
 
 ŝi iĝis senmorta! ekflustris la princo.
@@ -340,9 +275,6 @@ La bestoj ne estis tiel malbonkoraj, ili faris al li kuŝejon kaj ludis kun li.
 Sed li ploris, ne volante plu vivi kaj almozpeti. Li nur volus repagi ĉion al la malbonfarantoj. Aŭdinte liajn plendojn, la feinoj plenumis lian deziron. Li farigis ensorĉita, blanka floro. ĉiu malbona homo mortas, tuŝinte ĝin, sed al bonkoru-loj plilongiĝas la vivo.
 
 
-FABELOJ
-
-
 XIII. La floranimoj
 
 ĉu la floroj havas animon? demandis la princo, ekvidinte la reaperintan floron.
@@ -358,27 +290,19 @@ Kunveninte sur la kampo, la animoj amuziĝis per ludo kaj dancado. Jen aperis il
 —Jes, vi estis! respondis la florreĝino.
 
 
-FABELOJ
-
-
 XIV. La arbardiablo
 
 Forta ventego ekblovegis — la spirego de diablo — reson ante kiel fulmotondro.
 
 ”Silentu! Arbardiablo! ” ekĝemegis la floranimoj.
 
-Nigra nubego, kiel granda kovrajo, surtegis la ĉielon. Oni ekvidis du fajrajn okulaĉojn de la monstra giganto, kiu duon-freneziĝante grandpaŝe flugkuris el la arbarkreskaĵo. Pezaj rosgutoj faladis de lia aĉa barbo. Grimacridetante kaj elgorĝ-
-
-blekante, li pelegis antaŭ si multegon da sovaĝaj hundoj kaj sangavidaj lupoj. Bruega galopado strange sonigis la teron.
+Nigra nubego, kiel granda kovrajo, surtegis la ĉielon. Oni ekvidis du fajrajn okulaĉojn de la monstra giganto, kiu duon-freneziĝante grandpaŝe flugkuris el la arbarkreskaĵo. Pezaj rosgutoj faladis de lia aĉa barbo. Grimacridetante kaj elgorĝblekante, li pelegis antaŭ si multegon da sovaĝaj hundoj kaj sangavidaj lupoj. Bruega galopado strange sonigis la teron.
 
 ”Ho-o! Mi piedbatos la mondon!” kriegis la malbonhumo-ra maljulnulaĉo kun dislarĝigita buŝo en granda kolerekfla-mo. Malbondezirege li minacis, manegsvingante kaj malan-taŭen klinante la kapon.
 
 ĉi tiu grandegulo estis iam drinkulo, brutulo, kiu per hel-po de la diablo mem faradis dum sia tuta vivo nur malbonaĵojn. Ne zorginte pri sia almozpetanta familio, li finfine freneziĝis. Sed Dio kondamnis la ebriulon al senhalta kaj sen-ripoza vagado. Lia animo neniam povos vidi la ĉielon.
 
 Tiel rapide, kiel li venis, li malaperis.
-
-
-FABELOJ
 
 
 XV. La malica sorĉistino
@@ -393,16 +317,11 @@ Vivis iam malbonkora maljunulino, kiu malamis la mondon. ŝi estis tiel potenca,
 
 Por mortigi kiel eble plej multe da homoj, ŝi faris ensorĉitan, belegan arbareton, el kiu neniu plu povis eliri. ĉiu estis dediĉita al la neevitebla morto, ĉar la okuloj de la fikse rigar-danta maljunulino lin tuj aliformigis en ŝtonon. Nur teruraj, senvivaspektaj statuoj staris tie en la reĝolando de la morto.
 
-Iam deiris en tiun arbareton la juna reĝidino mem kaj fari-
-
-ĝis ŝtono. La sovaĝa sorĉistino malafablamiene ekridaĉis, kontentege kaj ekĝojigite enrigardante la noblan viktimon.
+Iam deiris en tiun arbareton la juna reĝidino mem kaj fariĝis ŝtono. La sovaĝa sorĉistino malafablamiene ekridaĉis, kontentege kaj ekĝojigite enrigardante la noblan viktimon.
 
 Senlima timo kaptis la urbanoj; neniu kuraĝis forlasi la do-mon. La malfeliĉa reĝo sidis pala kaj senmova sur sia trono.
 
 Liaj haroj griziĝis pro malĝojo.
-
-
-FABELOJ
 
 
 XVI. La nobla kavaliro
@@ -411,9 +330,7 @@ Tiam eniris bela kavaliro, promesante, ke li estas morti-gonta la maljunan sorĉ
 
 La reĝo diris: ”Mi donacas al vi tri kastelojn, sed se mia filino revenos viva, ŝi estiĝu via edzino!”
 
-Preninte kun si ĉashundon, pafarkon kaj tranĉilon, la kura-
-
-ĝa junulo eniris la mirindan arbareton. Ekrigardinte belan statuon, li ektremiĝis ekkolerigita: ankaŭ la reĝidino ŝtonigis!
+Preninte kun si ĉashundon, pafarkon kaj tranĉilon, la kuraĝa junulo eniris la mirindan arbareton. Ekrigardinte belan statuon, li ektremiĝis ekkolerigita: ankaŭ la reĝidino ŝtonigis!
 
 La hundo maltrankviliĝis. Jen almarŝis abomena virinaĉo kaj ekstaris antaŭ la reĝidino, ridaĉrigardante la ŝtonigitan knabinon.
 
@@ -428,9 +345,6 @@ Mallaŭte ekkriante, ŝi renversiĝinte mortfalis teren. ŝia koro ne batis plu.
 Alproksimiĝinte, la junulo detranĉis la aĉan kapon. Fortega tondro eksonoris, la arbareto malaperis, la statuoj ekviviĝis.
 
 Dankeme salutante sian savinton, la reviviĝintoj akompanis lin al la urbo. La feliĉa, kuraĝa kavaliro festis kun la bela reĝidino grandan edziĝofeston.
-
-
-FABELOJ
 
 
 XVII. La reĝidino de la birdoj
@@ -448,9 +362,6 @@ Nokte la kaptita birdo revenis al la kavaliro, alportinte la ringon. La venontan
 Ricevinte sian antaŭan formon, la knabinoj dankis al li pro la savo. La kavaliro portis la birdon hejmen. La tuta lando gloris lin. ĵetinte la ringon en la riveron, li estiĝis princo kaj edziĝis al la plej bela princidino. La reĝidino de la birdoj kantis tiam vemalgajajn melodiojn. ŝi fariĝis malbelkanta korni-ko.
 
 
-FABELOJ
-
-
 XVIII. La paradizbirdo
 
 Aŭskultu! Jen kantas la paradizbirdo.” Dolĉa birdkanto eksonis: dia lulkanto, kiu ensonĝigas ĉiun homon en centjaran sonĝon. La pura, belsona voĉo resonis en la trankvi-la nokto, kiel anĝela sonorilo sur la ĉielo. La birdo kantis pri la ĉiela beleco, pri la eterna harmonio de la universo. Dio lasis al ĝi la ĉarmegan voĉon, kiam ĝi iĝis birdo el bonkora, mortinta kantisto.
@@ -460,9 +371,6 @@ Kiam li kantis, akompanante sin per mistertona harpo, ĉiu forgesis sian vivon, 
 Mortonte li kantis kortuŝantan kanton pri la morto de la naturo. ĉiuj birdoj ploris, aŭskultinte lin, mortantan kune kun la vintra naturo.
 
 Donacite de Li per eterneco, li nun kiel birdo feliĉigas la homojn per sia dia voĉo. Feliĉaj estas tiuj, kiuj povas aŭskulti la centjaran, neelkanteblan lulkanton pri la eterna belega na-turfabelo.
-
-
-FABELOJ
 
 
 XIX. La ĉevalbirdo
@@ -498,9 +406,6 @@ Naskiĝinta la saman tagon, mi akompanas vin la tutan vivon.
 ĉiu homo havas sian fabelon. Ni iru!
 
 
-FABELOJ
-
-
 XX. Judito vekiĝas
 
 Ankaŭ Judito havas sian fabelon. ŝi ne sciis tion ĉi. Sed la filo de la suno, restinte vespere, kiam la sunreĝo kunvo-kis al ĉielo siajn filojn, ĉe la bonkora Judito, diris al ŝi ĉion, rakontante al ŝi belegajn fabelojn la tutan nokton.
@@ -517,15 +422,10 @@ Vekiĝinte, Judito ĉirkaŭrigardis ekmirigite, malĝoje flus-trante:
 
 —Kiel bela estis la nokto, kiel dolĉa la sonĝo, plena de fabeloj! Sed mi nur sonĝis!
 
-—Jes, vi sonĝis, Judito, kaj vi povas ĝoje trasonĝi la junecon, la plej puran sonĝon de via senkulpa vivo, vian belan fabelon! diris karesvoĉe la suno kaj kisis ŝin denove. El ŝiaj 26
-
-FABELOJ
+—Jes, vi sonĝis, Judito, kaj vi povas ĝoje trasonĝi la junecon, la plej puran sonĝon de via senkulpa vivo, vian belan fabelon! diris karesvoĉe la suno kaj kisis ŝin denove. El ŝiaj
 
 
 okuloj ekrigardis la ĉiela filo kaj la dia patro ekridetis ankoraŭ pli agrable…
-
-
-FABELOJ
 
 
 www.omnibus.se/

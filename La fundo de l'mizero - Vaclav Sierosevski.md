@@ -14,14 +14,6 @@ Kabe
 Lingve reviziita en 2001
 
 
-@omnibus.se
-
-·
-
-
-LA FUNDO DE L’MIZERO
-
-
 I
 
 En la tajgo de la malproksima nordo misteraj lokoj ekzistas, pri kiuj la enlanduloj ne volonte parolas, eviteme res-pondante la demandojn: ”tien nur la vento alflugas kaj la migrantaj birdoj sidiĝas dum sia flugo al la maro”. Tie la akvoj regas; oni ĉie vidas ilin palajn kaj brilantajn; kaj la ĉielo pendas super ili pala pro ilia rebrilo. Sur la bluaj vastaĵoj vejnoj de akvumita tero serpentumas kaprice kiel polipaj palpiloj.
@@ -32,31 +24,20 @@ Mirinde malgaja lando.
 
 Sed la dramon de tiuj ĉi akvaj vastaĵoj kreas precipe iliaj …
 
-bordoj. La tieaj lagoj plej multe mirigas ne tiam, kiam la ventego ilin skuas kaj ĵetas furiozajn ondojn; ne en hela tago, kiam la ora suno kisas ilian bruston, malkovritan kvazaŭ en dormo, kaj ili en siaj bluaj speguloj observas plej malgrandan nube-ton, plej delikatan nuancon de la ĉielo, kliniĝinta super ili; nek en silenta nokto, kiam la brilo de la luno tremas sur ili kaj la fajreroj de la puraj steloj bruletas en iliaj nigraj profundegaĵoj; sed tiam, kiam pelataj de delikata blovo de la vento miloj da iliaj etaj ondoj karesas la abomenajn bordojn, deli-3
-
-LA FUNDO DE L’MIZERO
-
-
-kate murmuretante. La lagoj karesas ilin, ĉar ili posedas nenion alian: nek ŝtonegojn, nek altaĵojn … ĉar se ĉi tiuj mizeraj bordoj ne ekzistus, la akvoj malaperus — forfluus en la Oceanon, por ĉiuj same maldolĉan, indiferentan kaj profun-degan, ili do karese premiĝas al la marĉoj, trinkas la kotan akvon, lekas la muskojn malpurajn kaj ĉifitajn. De la griza, kvazaŭ senviva supraĵo nenio tiam rebrilas … Reto de malbelaj sulkoj kaj de rustkolora ŝaŭmo fluas sur ili, puŝata de la vento, kaj en la bruo de la ondoj oni aŭdas senliman malĝojon …
+bordoj. La tieaj lagoj plej multe mirigas ne tiam, kiam la ventego ilin skuas kaj ĵetas furiozajn ondojn; ne en hela tago, kiam la ora suno kisas ilian bruston, malkovritan kvazaŭ en dormo, kaj ili en siaj bluaj speguloj observas plej malgrandan nube-ton, plej delikatan nuancon de la ĉielo, kliniĝinta super ili; nek en silenta nokto, kiam la brilo de la luno tremas sur ili kaj la fajreroj de la puraj steloj bruletas en iliaj nigraj profundegaĵoj; sed tiam, kiam pelataj de delikata blovo de la vento miloj da iliaj etaj ondoj karesas la abomenajn bordojn, delikate murmuretante. La lagoj karesas ilin, ĉar ili posedas nenion alian: nek ŝtonegojn, nek altaĵojn … ĉar se ĉi tiuj mizeraj bordoj ne ekzistus, la akvoj malaperus — forfluus en la Oceanon, por ĉiuj same maldolĉan, indiferentan kaj profun-degan, ili do karese premiĝas al la marĉoj, trinkas la kotan akvon, lekas la muskojn malpurajn kaj ĉifitajn. De la griza, kvazaŭ senviva supraĵo nenio tiam rebrilas … Reto de malbelaj sulkoj kaj de rustkolora ŝaŭmo fluas sur ili, puŝata de la vento, kaj en la bruo de la ondoj oni aŭdas senliman malĝojon …
 
 Tiaj estas la tieaj lagoj, kiam ili vivas.
 
-Sed vintre, kiam la vento ŝutas amase neĝon sur la glaciiĝintajn akvojn kaj la prujno blankigas la trunkojn kaj bran-
-
-ĉojn de la arboj, la ĉirkaŭaĵo fariĝas senlima, blanka, malplena, senviva, marmora mortintejo, kovrita de la glacia ĉielo.
+Sed vintre, kiam la vento ŝutas amase neĝon sur la glaciiĝintajn akvojn kaj la prujno blankigas la trunkojn kaj branĉojn de la arboj, la ĉirkaŭaĵo fariĝas senlima, blanka, malplena, senviva, marmora mortintejo, kovrita de la glacia ĉielo.
 
 Tiam eĉ la vento tie ne fajfas. La malmoliĝinta tero kuŝas en nepriskribebla silento; la maldensa tajgo kovras ĝin tie ĉi kaj tie kvazaŭ aranea punto; la senmova, kruda aero premas ĉion kiel multepeza kristalo. La suno leviĝas sen brilo kaj tuj subiras; la longaj noktoj, malsupre mallumaj, supre brilas fosfo-re. Nenio rompas la senvivan silenton; nur iafoje ruliĝas la bruo de la tero, krevanta pro la frostoj, ĝi ruliĝas kiel la tremo de la mortiĝo kaj ripetas ĝin febrotreme ĉiuj partetoj de la malmoliĝinta aero kaj ŝtoniĝinta tero, de la arbaroj kaj akvoj kaj ĝi fariĝas simila al la tondro, Ekster tio ĉi … nenio.
 
 Tute … nenio!… Silento. Oni aŭdas la murmureton de pruj-naj steletoj, falantaj teren. Frosto. La vojaĝanton ĝojigas la izoleco, — neniu ekster li suferas la malvarmegon.
 
-En la fino de la vintro malofta apero rompis la silenton de la sanktejo. Du nordaj cervoj jungitaj al glitveturilo kaj du homoj en grandegaj peltoj rompis kun krako kaj ronko tra la 4
-
-LA FUNDO DE L’MIZERO
+En la fino de la vintro malofta apero rompis la silenton de la sanktejo. Du nordaj cervoj jungitaj al glitveturilo kaj du homoj en grandegaj peltoj rompis kun krako kaj ronko tra la
 
 
-arbaraj vojetoj kaj tra la glataj lagoj similaj al ŝtona plato de grandega tombo. Ili pene marŝis en la neĝaj amasoj, kiuj atingis ĝis iliaj genuoj; de la feloj, kovrantaj iliajn vizaĝojn, flugis kun murmureto la vaporo de ilia elspiraĵo, kuniĝis kun la vaporo ĉirkaŭanta la ŝvitantajn cervojn kaj formis moviĝantan nubon, kiu tuj falis sur iliajn vestojn kaj jungaĵon kiel neĝaj skvamoj, aŭ flugis post ili kiel longa blanka rubando kiel ŝaŭ-
-
-ma sulko post vaporŝipo. Ili similis malgrandan, koloran gre-nadon, kiu brilas kaj fumiĝas, flugante malalte superblanka maro. La viro tenis en unu mano la rimenajn kondukilojn de la cervoj, en la alia rektan branĉon, sur kiu li apogis sin kiel sur episkopan bastonon. De tempo al tempo li atente rigardis la blankigitan densejon aŭ la malproksimon, kie la palaj lagoj kuniĝis kun la ĉielo. La virino verŝajne nenion vidis, ĉar kolumo el sciuraj vostoj tute kovris ŝian vizaĝon. La aŭdado gvidis ŝin; ĝi ne estis malfacila, ĉar la plej malgranda murmureto kuris al ŝi kiel akra grinco. Kiam do ŝi aŭdis, ke la cervoj haltis subite, ŝi rapide detiris de la vizaĝo la kovrilon kaj rigardis tra la fendo inter la peltoj. La cervoj turnis sin flanken kaj staris laŭlarĝe de la vojo. La viro, demetinte de la vizaĝo la kapuĉon, montris per la bastono nudan lokon inter la arboj kaj murmuretis:
+arbaraj vojetoj kaj tra la glataj lagoj similaj al ŝtona plato de grandega tombo. Ili pene marŝis en la neĝaj amasoj, kiuj atingis ĝis iliaj genuoj; de la feloj, kovrantaj iliajn vizaĝojn, flugis kun murmureto la vaporo de ilia elspiraĵo, kuniĝis kun la vaporo ĉirkaŭanta la ŝvitantajn cervojn kaj formis moviĝantan nubon, kiu tuj falis sur iliajn vestojn kaj jungaĵon kiel neĝaj skvamoj, aŭ flugis post ili kiel longa blanka rubando kiel ŝaŭma sulko post vaporŝipo. Ili similis malgrandan, koloran gre-nadon, kiu brilas kaj fumiĝas, flugante malalte superblanka maro. La viro tenis en unu mano la rimenajn kondukilojn de la cervoj, en la alia rektan branĉon, sur kiu li apogis sin kiel sur episkopan bastonon. De tempo al tempo li atente rigardis la blankigitan densejon aŭ la malproksimon, kie la palaj lagoj kuniĝis kun la ĉielo. La virino verŝajne nenion vidis, ĉar kolumo el sciuraj vostoj tute kovris ŝian vizaĝon. La aŭdado gvidis ŝin; ĝi ne estis malfacila, ĉar la plej malgranda murmureto kuris al ŝi kiel akra grinco. Kiam do ŝi aŭdis, ke la cervoj haltis subite, ŝi rapide detiris de la vizaĝo la kovrilon kaj rigardis tra la fendo inter la peltoj. La cervoj turnis sin flanken kaj staris laŭlarĝe de la vojo. La viro, demetinte de la vizaĝo la kapuĉon, montris per la bastono nudan lokon inter la arboj kaj murmuretis:
 
 —Li iris ĉi tie … ĉu vi vidas?…
 
@@ -65,9 +46,6 @@ La virino rapide viŝis per la mano la palpebrojn, kovritajn de la prujno. Sur l
 —Verŝajne jam ne malproksime de ĉi tie … Atendu, mi vokos.
 
 Li komencis raŭke krii.
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Uhu!… hu … ho … hu …
@@ -94,12 +72,7 @@ ne, mi ne iros plu por io ajn en la mondo … Mi ne veturos, ne,
 
 … mortigu min, mi ne veturos!…
 
-Efektive iu restigis sangajn postsignojn — grandajn rube-6
-
-LA FUNDO DE L’MIZERO
-
-
-najn makulojn kun flava rando. Anka rigardis tiujn signojn de sufero kaj ŝi estis timigita ne malpli ol Pjotruĉan.
+Efektive iu restigis sangajn postsignojn — grandajn rubenajn makulojn kun flava rando. Anka rigardis tiujn signojn de sufero kaj ŝi estis timigita ne malpli ol Pjotruĉan.
 
 —Viro, aŭ virino? — demandis ŝi.
 
@@ -123,9 +96,7 @@ iom. Kriu, kaj poste ni veturos.
 
 Pjotruĉan nee balancis la kapon.
 
-—Mi vokos, sed mi ne veturos. i estas vana. Por ĉiu kara estas la vivo … Mi veturus, sed la sango … De la sola odoro 7
-
-LA FUNDO DE L’MIZERO
+—Mi vokos, sed mi ne veturos. i estas vana. Por ĉiu kara estas la vivo … Mi veturus, sed la sango … De la sola odoro
 
 
 oni povas malsaniĝi. Tiam vi ne sekvus min tien, ho ne! Huhu
@@ -146,37 +117,26 @@ Pjotruĉan kaptis ŝian manikon.
 
 ĝis la supro, kaj antaŭ ĝi kelke da nigraj homaj figuroj. Ili rimarkis ŝin kaj genufleksis, etendinte la manojn. ŝi rekonis la edzon. Li staris antaŭ la aliaj, ŝi do kuris al li, forgesinte pri ĉio.
 
-—Anka!… Anka!… Atendu! Haltu!… Kion vi faras?… Aten-
-
-du, mi diros al vi! — kriis post ŝi Pjotruĉan, penante ŝin kapti. ŝi ne aŭskultis lin; ju pli proksime ŝi sentis la persekuton, 1 Jakuta domo.
-
-
-LA FUNDO DE L’MIZERO
+—Anka!… Anka!… Atendu! Haltu!… Kion vi faras?… Atendu, mi diros al vi! — kriis post ŝi Pjotruĉan, penante ŝin kapti. ŝi ne aŭskultis lin; ju pli proksime ŝi sentis la persekuton, 1 Jakuta domo.
 
 
 ju pli laŭte piedfrapis la cervoj, des pli rapide ŝi kuris … ŝia alproksimiĝo kaŭzis tumulton en la areto da mizeruloj. Unua forkuris malgranda, preskaŭ nuda knabineto; post ŝi rapidis maldikiĝinta skeleto kun longaj haroj kaj gestoj de Tunguzo; eĉ viva kadavro, kies tuta vizaĝo prezentis unu vundon, leviĝis de la tero. Nur li staris genue rigidiĝinta kaj, kvankam li rigardis ŝin, ŝajnis, ke li tute ŝin ne vidis. La sama vizaĝo, la samaj okuloj malgajaj, kiujn ŝi tiom da fojoj kisadis!
 
 ŝi saltis al li kaj kaptis lian manon.
 
-—Vi estas … vivas … spiras … Gregorio!… Ankoraŭ la viza-
-
-ĝon vi havas … ili mensogis … kaj la buŝo ne estas difektita …
+—Vi estas … vivas … spiras … Gregorio!… Ankoraŭ la vizaĝon vi havas … ili mensogis … kaj la buŝo ne estas difektita …
 
 Mi ne volas … Mi restos ĉi tie … Mi preferas kun vi ie ajn …
 
 Oni min turmentis … Mi estis kvazaŭ malbenita … Oni evitis min … La sennazulo … Pjotruĉan … nur li … — parolis ŝi senorde.
 
-—ĉu ankaŭ vi malsaniĝis? — balbutis la viva kadavro, tu-
-
-ŝante ŝian brakon.
+—ĉu ankaŭ vi malsaniĝis? — balbutis la viva kadavro, tuŝante ŝian brakon.
 
 ŝi ekrigardis kaj ĵetis sin flanken de la kripla, sanga, sen-fingra mano etendita al ŝi. ŝi rimarkis teruran vizaĝon, en kiu tra la putraj lipoj la dentoj lumis, kvazaŭ en moka rideto … La konscio subite ekbrilis en ŝiaj larĝe malfermitaj pupiloj!
 
 —Kial vi tuŝis min, abomenulo?… Vi scias, ke estas malpermesite. Kio okazis?… — La kadavro ekridis. Samtempe virino, staranta en la pordo, maldikiĝinta, sed juna kaj vestita pli bone ol la aliaj, kiu ĝis nun suspekte rigardis la fremdan virinon, subite ĵetis sin antaŭen kun malfermitaj brakoj:
 
-—Haltu, haltu! Deĵetu la pakaĵojn, kiujn vi alveturigis. Ili estas niaj. La komunumo ilin sendis, mi scias … Haltu, ĉar alie mi ŝmiros vian vizaĝon per mia propra sango … vi abomena, sennaza monstro … Tuj lasu ĉion. — ŝi kriis kaj kuris rapide 9
-
-LA FUNDO DE L’MIZERO
+—Haltu, haltu! Deĵetu la pakaĵojn, kiujn vi alveturigis. Ili estas niaj. La komunumo ilin sendis, mi scias … Haltu, ĉar alie mi ŝmiros vian vizaĝon per mia propra sango … vi abomena, sennaza monstro … Tuj lasu ĉion. — ŝi kriis kaj kuris rapide
 
 
 preter Anka kaj Gregorio. Tiam ankaŭ la aliaj tien rigardis; Pjotruĉan, kiu jam turnis la glitveturilon por forkuri, ŝanceliĝis, poste li komencis rapide deĵeti la sakojn: manĝaĵon, vestojn, eĉ litaĵon. Li deĵetis ĉion kaj ekbatis la cervojn, kiuj ekkuris galope. La virino tute ne intencis lin persekuti; ŝi ridis, kliniĝis al la deĵetitaj objektoj kaj rigardis ilin. La terurita Jakuto lasis ankaŭ sian propraĵon kaj tiamaniere pligrandigis la
@@ -196,9 +156,6 @@ mondo bonaj Jakutoj! — ekĝemis longharulo, simila al Tunguzo. — Eĉ pri vi,
 La virino kolere lin rigardis, deturnis sin, sed ŝi ne ellasis la akiron el sia mano.
 
 
-LA FUNDO DE L’MIZERO
-
-
 II
 
 La ruĝaj briloj de la fajro rampis sur la malalta plafono kaj sur la klinitaj muroj de la jurto, kovritaj per fulgo, ĵetante sur ilin grandegajn monstrajn ombrojn de la figuroj sidan-taj ĉirkaŭ la fajrujo. Oni kuiris la vespermanĝon kaj ĉiuj malsanuloj kolektiĝis por observi ĉi tiun gravan laboron. Eĉ Salban kaj lia edzino Kutuja˛sit — du vivaj, preskaŭ senkarnaj skeletoj — sidis ĉe la kaldronoj, tremante kaj mallaŭte ĝemante, kaj rigardis avide la bolantan akvon.
@@ -213,9 +170,7 @@ La ruĝaj briloj de la fajro rampis sur la malalta plafono kaj sur la klinitaj m
 
 —Antaŭe mi mortos, mi ne atendos, — rediris Mergenj.
 
-—Tro malhumila vi estas. Eble vi pli frue bezonos homan helpon! — aldonis longharulo, kiun pro liaj mallertaj gestoj kaj malrapida parolado oni moke nomis Fluo, kaj li rigardis plensignife la tro dikiĝintan talion de la virino. ŝi ruĝiĝis, ŝiaj 11
-
-LA FUNDO DE L’MIZERO
+—Tro malhumila vi estas. Eble vi pli frue bezonos homan helpon! — aldonis longharulo, kiun pro liaj mallertaj gestoj kaj malrapida parolado oni moke nomis Fluo, kaj li rigardis plensignife la tro dikiĝintan talion de la virino. ŝi ruĝiĝis, ŝiaj
 
 
 okuloj brilis, sed ŝi diris nenion. ŝian atenton tute okupis murmureto, kiu flugis de la benkoj, kaŝitaj en la ombro.
@@ -237,9 +192,6 @@ Gregorio silentis.
 ŝi eksilentis malfacile spirante.
 
 —La sennazulo?
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Jes, tiu ĉi … malbela, abomena …
@@ -264,9 +216,7 @@ Ne ni altrenis ja vin ĉi tien, sed via propra edzo ĵetis vin ligi-tan. Se ni n
 
 —Ni ĉiuj estas ombroj de homoj! — ekĝemis Fluo.
 
-—Kaj tiu ĉi virino memvole venis! Nian mizeran nutraĵon, kiu al ni ne sufiĉas, ni devos dividi kun ŝi … Deŝiru de ŝi la 13
-
-LA FUNDO DE L’MIZERO
+—Kaj tiu ĉi virino memvole venis! Nian mizeran nutraĵon, kiu al ni ne sufiĉas, ni devos dividi kun ŝi … Deŝiru de ŝi la
 
 
 vestojn, smiru ŝin per viaj sukoj, ŝi eksentu plej baldaŭ dolo-ron kaj suferon! — kriis la kolera furiozulino. ŝi ĵetis sin al la geedzoj.
@@ -281,9 +231,7 @@ min?… Kredeble vi ne unufoje aŭdis pri mi de la Jakutoj …
 
 maljuste agis kontraŭ vi, ke nun vi venĝas vin al ili kaj disportas la infekton.
 
-—Ho, ankoraŭ ne! Mia korpo ankoraŭ estas sana, sed ve-
-
-nos la tempo … Aŭskultu, vi diris, ke oni maljuste agis kontraŭ mi, jes, maljuste, ho kiel maljuste! Mi estis bona, kvieta, mi havis ĉion …
+—Ho, ankoraŭ ne! Mia korpo ankoraŭ estas sana, sed venos la tempo … Aŭskultu, vi diris, ke oni maljuste agis kontraŭ mi, jes, maljuste, ho kiel maljuste! Mi estis bona, kvieta, mi havis ĉion …
 
 —i jam estas kuirita! Rigardu, ĝi bolas kaj tuj elfluos —
 
@@ -296,9 +244,6 @@ Oni elverŝis la ”enhavon” en grandegan lignan pladon, kaj la malsanuloj, si
 —Kial vi nomas lin pli bona, ol la aliaj?… La komunumo sendis lin, li venis, ĉar ĝi ordonis al li — aldonis kolere Gregorio.
 
 —Diru, ke via edzino! — diris Mergenj malice rigardante la geedzojn.
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Rakontu, Anka, la novaĵojn el la mondo, — sin turnis al la juna virino Salban.
@@ -324,12 +269,7 @@ El la plej gravaj novaĵoj plej multe impresis ĉiujn la rakonto pri ”sinjorin
 —ŝi estis tre granda sinjorino, oni faris por ŝi apartajn vojojn, dehakinte arbojn en la tajgo, apartajn pontojn sur la riveroj, ĉar sur la malnovaj ŝi ne povis veturi. ŝi veturis de la imperiestrino mem kaj devis veni ĉien. Nur al ni ŝi ne povis, ĉar la kuloj terure pikis sin. ŝi demandis ĉie pri sanigaj herboj.
 
 
-LA FUNDO DE L’MIZERO
-
-
-—Kia sanigo! La morto estas nia sanigo! — samtempe ek-
-
-ĝemis Salban kaj lia edzino.
+—Kia sanigo! La morto estas nia sanigo! — samtempe ekĝemis Salban kaj lia edzino.
 
 —Pro ĉi tiuj herboj oni intencis konstrui domon kun feraj fenestroj …
 
@@ -352,9 +292,6 @@ Sed pri kio ni estas kulpaj, pri kio?
 —Silentu! ne parolu tro multe! — haltigis lin Gregorio. —
 
 
-LA FUNDO DE L’MIZERO
-
-
 Kion ili povas fari al mi? Kion? Ili venu ĉi tien, ili alkonduku tutan militistaron …
 
 —Ni al ĉiuĵ ŝmiros la buŝegojn per sango! — ekridis Mergenj. — Kiam ĉiuj estos malsanaj, pli bone estos por ni, ĉar ĉiuj estos egalaj!
@@ -367,15 +304,11 @@ Fluo eksilentis kaj indigne rigardis ŝin.
 
 Anka malligis sian pakaĵon kaj komencis tondi kaj kudri ion por la edzo. Mergenj ankaŭ kudris ion. La geedzoj Salban ĝemis en silenta angulo, kaj Fluo flikis la retojn ĉe la fajrujo kaj rakontis al Biterąj per raŭka voĉo:
 
-—”Malgranda Dika Maljunulino, kiu posedis kvin bovi-
-
-nojn, eliris matene serĉi la brutojn sur la kampo. Tie ŝi trovis floron kun kvin branĉetoj kaj, rompinte neniun, ŝi alportis ĝin hejmen, metis sur la kusenon kaj zorge kovris. Poste ŝi sidiĝis por melki la bovinojn. Subite … eksonoris sonoriletoj, la tondilo falis teren. La maljunulino ektremis, la lakto elfluis teren.
+—”Malgranda Dika Maljunulino, kiu posedis kvin bovinojn, eliris matene serĉi la brutojn sur la kampo. Tie ŝi trovis floron kun kvin branĉetoj kaj, rompinte neniun, ŝi alportis ĝin hejmen, metis sur la kusenon kaj zorge kovris. Poste ŝi sidiĝis por melki la bovinojn. Subite … eksonoris sonoriletoj, la tondilo falis teren. La maljunulino ektremis, la lakto elfluis teren.
 
 ŝi kuris en la jurton, rigardas la florojn: la floro kuŝas kiel antaŭe. ŝi revenis kaj ree melkis. Kaj ree ŝi aŭdas sonoriletojn, ree la tondilo falis de la tablo. ŝi ree disverŝis la lakton teren.
 
-Kaj la floro … ĝi kuŝas kiel antaŭe. Triafoje si mallaŭte alproksimiĝis kaj rigardis tra fendo en la pordo. Maldekstre, kie la virinoj dormas, kie staras la benko por la nesvatitaj knabinoj, betega virgulino sidas. Super la helaj okuloj la brovoj kuŝas kiel du zibeloj, kiuj etendis la piedetojn unu al la alia, ŝia buŝo 17
-
-LA FUNDO DE L’MIZERO
+Kaj la floro … ĝi kuŝas kiel antaŭe. Triafoje si mallaŭte alproksimiĝis kaj rigardis tra fendo en la pordo. Maldekstre, kie la virinoj dormas, kie staras la benko por la nesvatitaj knabinoj, betega virgulino sidas. Super la helaj okuloj la brovoj kuŝas kiel du zibeloj, kiuj etendis la piedetojn unu al la alia, ŝia buŝo
 
 
 — el fandita arĝento, ŝia nazo — el forĝita arĝento … Kiam ŝi parolas, ŝajnas, ke papilio flirtas sur ŝiaj vangoj; kiam ŝi glu-tas, ŝajnas, ke hirundo flugas en ŝia gorĝo. Tra la blanka vesto brilas la lunsimila korpo, tra la travidebla vesto brilas la korpo amata.
@@ -388,16 +321,12 @@ Fluo interrompis la rakonton kaj enpensiĝis. La virinoj portis en la jurton la 
 
 —Iru dormi, Biterąj. La vundoj doloras min, mi ne rakontos plu. Morgaŭ la vetero ŝanĝiĝos: ni havos degelon aŭ ven-ton …
 
-Biterąj obee iris en la angulon, kie ŝi dormis kun Fluo sur 18
-
-LA FUNDO DE L’MIZERO
+Biterąj obee iris en la angulon, kie ŝi dormis kun Fluo sur
 
 
 benko. Antaŭ la fajrujo Fluo longe lavis en varma akvo kaj bandaĝis siajn kripligitajn piedojn. Laca kaj suferanta li falis sur la liton kaj tuj ekdormis.
 
-—Vi dormas, Fluo! Ne dormu, karulo … Vi ne aŭdas — ve-
-
-kis lin post momento Biterąj. — Fluo, bona Fluo … Ne dormu, mi timas …
+—Vi dormas, Fluo! Ne dormu, karulo … Vi ne aŭdas — vekis lin post momento Biterąj. — Fluo, bona Fluo … Ne dormu, mi timas …
 
 —Kio okazis? — demandis dormetante Fluo. — Bruego …
 
@@ -414,9 +343,6 @@ granda bruego!
 —Mi prenos vin, mi prenos … Sed nun dormu.
 
 
-LA FUNDO DE L’MIZERO
-
-
 III
 
 Vintre la ekstera mondo preskaŭ ne ekzistis por la malsanuloj. Pro manko de vestoj kaj de fortoj ili ĉiam restis en la jurto. La ĉielon, neĝon, sunon ili vidis nur malofte, kiam ili estis devigataj eliri por alporti faskon da branĉaĵo, kiun ili kolektis somere, aŭ neĝon, kiun ili fluidigis kaj uzis kiel akvon, fine por aerumi la litaĵon, plenan de parazitoj. Tiujn ĉi laborojn plenumis ordinare la pli sanaj: Gregorio, Anka, Fluo, iafoje Mergenj.
@@ -428,9 +354,6 @@ En la malluma, haladza jurto la tempo pasis monotone kiel malgaja, griza, malbon
 —Malbone, Fluo, malbone vi zorgis aŭtune pri la jurto …
 
 Nun ni estas devigataj pli multe hejti kaj malgraŭ tio la malvarmo turmentas nin.
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Mi mem suferas. Vi forgesas, ke en la fino de la laboroj sur miaj manoj ulceroj aperis …
@@ -458,9 +381,6 @@ min en vian domon, Vi konstruis novan jurton. Varme estis en ĝi, ni estis feli�
 Kaj nun ni estas ĉi tie! Malaperis niaj riĉaĵoj, nia juneco pasis kiel la fumo — murmuretis Anka.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Kiam mi konstruis la domon, mi ne sciis, ke ĝi restos malplena, ke nia fajrujo estingiĝos … mi kredis, ke plenigos mian hejmon la babilado kaj la ridoj de niaj infanoj … Nun nigra nubo kovris al ni la mondon … Ofte mi pensas, ĉu pli bone estas vivi, aŭ ne vivi! — rediris Gregorio. Anka ektremis.
 
 —Aŭskultu, tiam mi restus tute sola. Ni povas vivi. ankoraŭ longe … Por tio ĉi mi venis. La morto kaj la maljuneco ĉiam estas egalaj, ĉu por la lepruloj, ĉu por sanaj homoj. ĉiujn minacas kvazaŭ lepro — murmuretis ŝi, rigardante lian vizaĝon ankoraŭ sanan, sed jam kovritan de bluaj makuletoj.
@@ -477,9 +397,7 @@ La krakado de la fajro kaj la ĝemoj de Salbran sonis monotone kiel tik! tak! de
 
 —Ne, hodiaŭ estas malgranda festo … La tukon lasu por
 
-granda festo kiel Pasko aŭ Sankta Nikolao, kaj hodiaŭ … — Li 22
-
-LA FUNDO DE L’MIZERO
+granda festo kiel Pasko aŭ Sankta Nikolao, kaj hodiaŭ … — Li
 
 
 eksilentis kaj kovris la nudan dorson de la knabineto per la basko de sia ĉifona vesto.
@@ -509,9 +427,6 @@ Gregorio kaj Anka tute ne rigardas min … Nur vin, Fluo, nur vin mi amas …
 —Vi estas malsaĝa … is tiu tempo mi fariĝos kiel Salban aŭ eble ankoraŭ pli abomena … Atendu, eble ankaŭ al vi Dio sendos iun …
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Kaj li pafos, kaj la sago falos en la kamentubon … Li eniros en la jurton por preni ĝin … kaj li ekvidos min, estos ravita, svenos; poste li reviviĝos, enamiĝos, elsaltos, sidiĝos sur la ĉevalon, rapidos al la gepatroj kaj diros: mi vidis knabinon, la brovoj kiel du zibeloj; la okuloj kiel du nigraj birdoj, kiuj flirtas per siaj oraj flugiloj, la buŝo kiel du papilioj, kiuj flirtas per siaj ruĝaj flugiloj … Kiam ŝi parolas, super ŝia kolo kvazaŭ flugas blanka mevo, kiam ŝi iras, kvazaŭ flugas arĝenta mevo
 
 … Tra la blanka vesto brilas la lunsimila korpo, tra la travidebla vesto brilas la korpo amata …
@@ -524,9 +439,7 @@ Fluo laŭdis.
 
 okulojn, mi tuj ĉion vidas …
 
-—Vere, homoj, ankaŭ ni festu hodiaŭ! — subite Fluo laŭ-
-
-te diris kaj leviĝis de la benko.
+—Vere, homoj, ankaŭ ni festu hodiaŭ! — subite Fluo laŭte diris kaj leviĝis de la benko.
 
 —Ni festu, ni festu! — subtenis lin Anka, alirante al la fajrujo. — Malgaje, tre malgaje estas hodiaŭ … Ni faru pli grandan fajron. ĉu vi konsentas?
 
@@ -538,16 +451,12 @@ te diris kaj leviĝis de la benko.
 
 — atakis Mergenj la projekton, sed ĉar ŝi ne povis nun leviĝi, neniu timis ŝin.
 
-La festeno sukcesis. ĉe la brila fajro ili fine sufiĉe varmigis siajn malvarmajn vunditajn korpojn … Ili banis sin plezure en 24
-
-LA FUNDO DE L’MIZERO
+La festeno sukcesis. ĉe la brila fajro ili fine sufiĉe varmigis siajn malvarmajn vunditajn korpojn … Ili banis sin plezure en
 
 
 la varmego. Larmoj de kontenteco plenigis iliajn fermetitajn okulojn. La rigidiĝintaj tendenoj fariĝis ree elastaj, la malsanaj artikoj ĉesis dolori. Ili kuiris tutan monton da fiŝoj.
 
-—Dio sendas ĝojon ankaŭ en nian animon … — murmure-
-
-tis Kutuja˛sit.
+—Dio sendas ĝojon ankaŭ en nian animon … — murmuretis Kutuja˛sit.
 
 Ebriaj pro la sateco ili tuj profunde ekdormis. Por ne longe, por kelke da horoj eksilentis eĉ la ĝemoj.
 
@@ -559,9 +468,7 @@ La aliaj ankaŭ levis la kapojn.
 
 emoj, sed aliaj … ne iliaj ĝemoj, ĝemoj plenaj de forto kaj batalo, flugis el la malluma angulo de Mergenj.
 
-—Anka, iru al ŝi — murmuretis Gregorio per tremanta vo-
-
-ĉo. La Jakutino rapide vestis sin, ekbruligis la fajron kaj malaperis en la malluma angulo. La krioj ĉesis unu momenton, sed poste ili ree eksonis grincantaj, koleraj, petegantaj helpon. Biterąj timigita kaptis forte la manon de Fluo.
+—Anka, iru al ŝi — murmuretis Gregorio per tremanta voĉo. La Jakutino rapide vestis sin, ekbruligis la fajron kaj malaperis en la malluma angulo. La krioj ĉesis unu momenton, sed poste ili ree eksonis grincantaj, koleraj, petegantaj helpon. Biterąj timigita kaptis forte la manon de Fluo.
 
 —Fluo mi timas! ŝi tiel krias!… Kaj nun io alia krias … Fluo, Fluo!… Mia Dio … Infaneto krias … Anka alportis etulon al la fajrujo kaj ĝi krias, tiel krias … ĉu ankaŭ ĝin oni elpelis el la mondo, ke ĝi tiel krias, Fluo?…
 
@@ -574,9 +481,6 @@ emoj, sed aliaj … ne iliaj ĝemoj, ĝemoj plenaj de forto kaj batalo, flugis e
 Fluo nee skuis la kapon.
 
 —Grasa knabeto! — aldonis li. — Bone estas, ke naskiĝis knabo, ni havos poste laboranton.
-
-
-LA FUNDO DE L’MIZERO
 
 
 Anka lavis la infanon per akvo, kiun ŝi prenis en la buŝon.
@@ -598,9 +502,6 @@ La edzo malamis min, li trovis al si alian virinon, kaj min li turmentis, batis;
 —Donu la infanon! ĉu vi vindis ĝin? — fine diris ŝi, kiam ŝi iom trankviliĝis.
 
 —Mi tuj donos ĝin al vi, sed antaŭe mi ĵetos oferon en la fajron. Ni ne sciis, ke ĝi okazos hodiaŭ nokte … Iru, Fluo, alportu la plej grasan fiŝon, ni devas danki pro la nova spiro.
-
-
-LA FUNDO DE L’MIZERO
 
 
 Prenu ankaŭ mian korbon el betula ŝelo, mi lasis en ĝi iom da butero por vi, Mergenj!
@@ -628,18 +529,13 @@ Dume Anka fandis la buteron en kaseroleto, verŝis ĝin sur subtason kaj tenis �
 —Trinku, virino!
 
 
-LA FUNDO DE L’MIZERO
-
-
 La malsanulino, ne malfermante la okulojn, glutis avide la bongustan kaj bonodoran trinkaĵon, Subite ŝi malfermis la okulojn, mire rigardis Ankan kaj maldelikate repuŝis ŝin:
 
 —Iru for! Iru … de mi!
 
 Anka prenis la infanon kaj lasis la malsanulinon, ŝi ne revenis al la edzo, kiu senmove kuŝis sur la lito kaj turninte la vizaĝon al la muro dormis aŭ ŝajnigis dormon, sed ŝi sidiĝis flanke sur neokupitan benkon. La infano, vindita per ĉifonoj, maltrankvile moviĝis surŝiaj genuoj, kaj ŝi rigardis tra larmoj la malluman, haladzan, malpuran jurton, kie vivaj mortintoj mallaŭte ĝemis en duondormo.
 
-—Ankaŭ mi fariĝos tia … Dio kompatu mian pekeman ani-
-
-mon, donu morton rapidan kaj sendoloran.
+—Ankaŭ mi fariĝos tia … Dio kompatu mian pekeman animon, donu morton rapidan kaj sendoloran.
 
 ŝi ne povis kompreni, kiamaniere fariĝis, ke la mondo estas fermita por ŝi, ke nenien, nenien ŝi povas forkuri de sia mizera sorto. Tiuj ĉi pensoj rompis ŝian kuraĝon kiel la blovo de la vento putrantan arbon. ĉu ne pli bone estus tuj morti?
 
@@ -651,15 +547,7 @@ La ploro ŝnsolis; ŝi volis dormi, sed pro laciĝo ŝi ne povis reveni sur la l
 
 La blanka tago rigardis tra la glaciaj fenestretoj de la jurto kaj lumigis per malviva brilo la teruran pentraĵon: kotan malbonodoran akvon, kiu brilis sur la planko kiel spegulo, la figurojn de la malsanuloj, kiuj kuŝis sur la benkoj kaj similis mortintojn, envolvitajn en ĉifonojn.
 
-Anka nenion vidis; ŝi aŭdis nek la bruon de la vento, pene-28
-
-LA FUNDO DE L’MIZERO
-
-
-tranta tra la kamentubo, nek la ĝemojn de la kunuloj, nek la vokadon de Gregorio, kiu fine decidis peti, ke ŝi revenu. ŝi dolĉe dormis kun la etulo sur la genuoj, delikata rideto brilis sur ŝia bruna vizaĝo kaj la okulharoj ĵetis longajn ombrojn sur ŝiajn maldikiĝintajn vangojn.
-
-
-LA FUNDO DE L’MIZERO
+Anka nenion vidis; ŝi aŭdis nek la bruon de la vento, penetranta tra la kamentubo, nek la ĝemojn de la kunuloj, nek la vokadon de Gregorio, kiu fine decidis peti, ke ŝi revenu. ŝi dolĉe dormis kun la etulo sur la genuoj, delikata rideto brilis sur ŝia bruna vizaĝo kaj la okulharoj ĵetis longajn ombrojn sur ŝiajn maldikiĝintajn vangojn.
 
 
 IV
@@ -674,15 +562,11 @@ infanon!… ĝemis Salban.
 
 —Por kio?… Ili haladzos kaj malpurigos la fajron … La fajron oni ne devas malŝati — murmuris Gregorio …
 
-—Ho miaj manoj, miaj fortaj manoj … Nun mi estas kva-
-
-zaŭ arbo, karbigita de la fulmo! ĉu vi memoras, Kutuja˛sit, la tempon, kiam ni falĉis sur nia herbejo? ĉu mi tiam pensis, ke mi mortos ĉi tie? Mi, la plej lerta falĉisto en la tuta ĉir-kaŭaĵo!… ĉu vi memoras, maljunulino, kiel feliĉe ni vivis? La najbaroj vizitis nin, alportis novaĵojn … Nun nigra nokto kovris niajn pupilojn … Ni edukis du filojn, du filinojn, sed ni scias nenion pri ili. En la komenco ili venis por etendi la manojn al ni almenaŭ de malproksime, sed nun ni ne scias, ĉu ili havas idojn, aŭ mortis mem? La pesto ilin …
+—Ho miaj manoj, miaj fortaj manoj … Nun mi estas kvazaŭ arbo, karbigita de la fulmo! ĉu vi memoras, Kutuja˛sit, la tempon, kiam ni falĉis sur nia herbejo? ĉu mi tiam pensis, ke mi mortos ĉi tie? Mi, la plej lerta falĉisto en la tuta ĉir-kaŭaĵo!… ĉu vi memoras, maljunulino, kiel feliĉe ni vivis? La najbaroj vizitis nin, alportis novaĵojn … Nun nigra nokto kovris niajn pupilojn … Ni edukis du filojn, du filinojn, sed ni scias nenion pri ili. En la komenco ili venis por etendi la manojn al ni almenaŭ de malproksime, sed nun ni ne scias, ĉu ili havas idojn, aŭ mortis mem? La pesto ilin …
 
 —Ne malbenu, Sablan! — detenis lin Kutuja˛sit.
 
-—Manĝaĵo restis por du tagoj, se ni manĝos kiel homoj, sed se ni ne faros tion, — mi ne scias, — komencis solene 30
-
-LA FUNDO DE L’MIZERO
+—Manĝaĵo restis por du tagoj, se ni manĝos kiel homoj, sed se ni ne faros tion, — mi ne scias, — komencis solene
 
 
 Fluo, enirante en la jurton kun vazo en la mano. Anka sekvis lin.
@@ -721,9 +605,7 @@ rediris malgaje Gregorio kaj lia voĉo subite raŭkiĝis.
 
 Gregorio silentis kaj ne turnis la okulojn, sangajn kaj mal-klarajn, de la fajro. ŝajnis al li, ke ĝi estingiĝas, malaperas, ke profunda mallumo lin ĉirkaŭas kaj vundoj, kiujn li ne havis
 
-ĝis nun, aperas sur la tuta korpo. Li esperis, ke la malsano pli 31
-
-LA FUNDO DE L’MIZERO
+ĝis nun, aperas sur la tuta korpo. Li esperis, ke la malsano pli
 
 
 longe indulgos lin, ke li longe ankoraŭ vivos preskaŭ sana …
@@ -750,9 +632,7 @@ Fluo momenton meditis, poste li kolere metis sur la kapon la ĉifitan peltan ĉa
 
 —Kion vi diris?… Malbona virino, vi diris, kanajlo!… Vi estas bona … Rigardu lin! La bona estas sana, la bona estas forta, — li neniun petas pri io … Kiam li bezonas, li mem trovos ĉion … Mi ankaŭ trovos, kiam mi bezonos … Sed vi devas labori … Malbenitaj lepruloj … Mi estis kaj estas sana. Dio ne punis, ne signis min kiel vin … Oni ne devus vin helpi, sed mortigi. Se vi ne ekzistus, mi ne estus ĉi tie … Kial oni indul-gas vin kaj lasas al vi la vivon?
 
-Tuta rivero da insultaj vortoj kaj malbenoj ekfluis el la buŝo 32
-
-LA FUNDO DE L’MIZERO
+Tuta rivero da insultaj vortoj kaj malbenoj ekfluis el la buŝo
 
 
 de la pasia virino; kiam neniu respondis al ŝi, ŝi kaptis la plorantan etulon, premis ĝin al la brusto kaj siblis kolere:
@@ -784,9 +664,6 @@ Anka ekĝemis.
 La lipoj de Anka tremis.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Kion mi diros al li?… Li ja ne estas infano … Ho, mia Dio!
 
 —Jen kion mi konsilos al vi: plendu al la princo, ke via frato proprigis al si la bovinojn, postulu, ke li redonu ilin … La brutaro utilus, gajigus nin … Nun ni estas solaj, ni havas nenion
@@ -809,9 +686,7 @@ En la silentiĝinta jurto oni aŭdis nur la ĝemojn de Salban.
 
 Li ne povis eĉ kuŝi, ĉar grandega, ĵus aperinta vundo, okupis lian tutan dorson kaj ekstreme doloris lin, krom tio li havis putran manon. Li duone sidis sur la benko, apogante la nukon al ĝia dorso, kaj ĝemis pli kaj pli plende. Kutuja˛sit, kiu ne malpli suferis, leviĝis de tempo al tempo por doni al li akvon aŭ lavi liajn vundojn, ŝtopitajn per la malfluidiĝinta sango. Tiam la malsanulo silentis momenton aŭ murmuretis al la edzino vortojn de la amo kiel en iliaj junaj jaroj … Neniu alia kuraĝis aliri al li. Eĉ Fluo deturnis kun timego la okulojn de ĉi tiu pentraĵo de la propra estonteco. Neniu iris eksteren.
 
-Ili forte fermis la pordon kaj rekonis la tagojn per sunaj radioj, kiuj penetris tra la glaciaj fenestroj kaj metis ĉielarkoko-lorajn makulojn sur la argilan plankon kaj sur la senmovajn 34
-
-LA FUNDO DE L’MIZERO
+Ili forte fermis la pordon kaj rekonis la tagojn per sunaj radioj, kiuj penetris tra la glaciaj fenestroj kaj metis ĉielarkoko-lorajn makulojn sur la argilan plankon kaj sur la senmovajn
 
 
 figurojn, kuŝantaj en la anguloj. La noktojn ili rekonis per la grandiĝinta frosto, per krakado de la krevanta tero kaj per la luna brilo, kiu same kiel la suno penetris tra la glaciaj fenestroj, arĝentkolora, kaduka kaj malvarma, ĉiutage ili manĝis iom da restinta nutraĵo, al kiu ili almiksis felon, segaĵon, larikan ŝelon.
@@ -835,9 +710,6 @@ Neniu respondis. La ĉiam servema Fluo ŝajnigis dormi aŭ eble efektive ne aŭd
 Fluo kuŝis senmova.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Efektive, ili mortis, Mi devos mem labori anstataŭ ĉi tiuj sentaŭguloj! La maljunulo tute infektos la aeron!…
 
 ŝi deĵetis la vestojn kaj nuda, terura, kun maldikaj pendantaj mamoj kaj kun malligitaj haroj, ŝi aliris al la mortinto kiel malsata lupino. ŝi rigardis lian vizaĝon kaj ektremis pro abo-meno, sed en ŝiaj okuloj tuj ekbrilis kolero kaj malamo.
@@ -854,11 +726,7 @@ Neniu respondis. La obstina virino kovris sian nazon kaj buŝon per tuko, kaptis
 
 —Mi devas min lavi, alie mi mortos de la sola odoro …
 
-ŝi fluidigis glacion en la kaldrono kaj lavis sin. Poste ŝi ser-
-
-ĉis manĝaĵon en ĉiuj anguloj de la jurto. La infano plende ploris. ŝi rigardis la vestojn de Anka, elektis pli bonajn kaj vestis sin. En la ĉifonoj de Fluo ŝi trovis tranĉilon kaj prenis 36
-
-LA FUNDO DE L’MIZERO
+ŝi fluidigis glacion en la kaldrono kaj lavis sin. Poste ŝi serĉis manĝaĵon en ĉiuj anguloj de la jurto. La infano plende ploris. ŝi rigardis la vestojn de Anka, elektis pli bonajn kaj vestis sin. En la ĉifonoj de Fluo ŝi trovis tranĉilon kaj prenis
 
 
 ĝin. ĉe Gregorio ŝi staris momenton meditante, sed ne tuŝis lin. ŝi revenis al la fajro, kiu preskaŭ estingiĝis kaj malforte briletis. La etulo ploris. La spirado de la dormantoj sonis en la anguloj de la jurto; ŝajnis al Mergenj, ke si aŭdas paŝadon.
@@ -883,12 +751,7 @@ LA FUNDO DE L’MIZERO
 
 —Mi ne havas fortojn, mi ne leviĝos, mi ne povas …
 
-Gregorio ne insistis, sed ili ambaŭ ne povis dormi kaj sen-
-
-ĉese aŭskultis: la etulo ploris pli kaj pli mallaŭte, li kaj pli plende.
-
-
-LA FUNDO DE L’MIZERO
+Gregorio ne insistis, sed ili ambaŭ ne povis dormi kaj senĉese aŭskultis: la etulo ploris pli kaj pli mallaŭte, li kaj pli plende.
 
 
 Mergenj iris en la arbaron sur la vojon, sur kiu Anka iam veturis kun Pjotruĉan, ĉar tie staris la plej proksima loĝejo de la Jakutoj. La mallumo kaj malbona vojo ne malhelpis ŝin. Tie ĉi ŝi naskiĝis kaj konis tre bone la ĉirkaŭaĵojn. La noktaj frostoj glaciigis la supraĵon. de la degelantaj neĝoj kaj formis sur ili glatan ŝelon, kiu faciligis la iradon. Jam antaŭe Mergenj vizitis la najbarajn vilaĝojn, Puŝata de nevenkebla sopiro al la mondo, kiu tiel maljuste ŝin forpelis. Iafoje ŝi sukcesis ŝteli ion, preni forgesitan veston, somere eltiri retojn el la akvo aŭ proprigi al si boaton, lasitan ĉe la bordo. ŝi estis kuraĝa kaj forta.
@@ -905,16 +768,12 @@ estas: ĉu ili leviĝis, aŭ ne?… Se ili leviĝis, mi malkaŝe eniros en la ju
 
 Malvarma ŝvito kovris ŝin, kiam ŝi pensis, kio okazos, kiam ŝi aperos subite, malbenita inter vivaj.
 
-En la mallumo ŝi vidis malklare la jurtojn, kovritajn de la neĝo. ĉiuj dormis tie: oni vidis nek lumon en la fenestroj, nek fumon super la kamentuboj. ĉe la jurto staris pli malgrandaj konstruaĵoj: la staloj por la bovinoj kaj la provizejoj, Mergenj ŝanceliĝis. La hundoj ĵetis sin al ŝi bojante, sed ŝi jakute ilin vokis, ili trankviliĝis kaj komencis svingi la vostojn, atendante 38
-
-LA FUNDO DE L’MIZERO
+En la mallumo ŝi vidis malklare la jurtojn, kovritajn de la neĝo. ĉiuj dormis tie: oni vidis nek lumon en la fenestroj, nek fumon super la kamentuboj. ĉe la jurto staris pli malgrandaj konstruaĵoj: la staloj por la bovinoj kaj la provizejoj, Mergenj ŝanceliĝis. La hundoj ĵetis sin al ŝi bojante, sed ŝi jakute ilin vokis, ili trankviliĝis kaj komencis svingi la vostojn, atendante
 
 
 de ŝi donacon. La Jakutino kiel ombro, pasis preter la domo kun la hundoj kaj malfermis mallaŭte la pordon de la stalo.
 
-La varma aero kaj la akra odoro de la brutaro, tiel agrabla por ĉiu Jakuto, ĉirkaŭis ŝin. Senbrue ŝi enrampis kaj fermis post si la pordon. Momenton ŝi staris senmova aŭskultante. Iu dormis en la stalo. Kune kun la ronkado kaj remaĉado de la bovinoj ŝi aŭdis regulan homan spiradon. Ebria pro dezirego, ŝi etendis la manojn kaj iris antaŭen. ŝi tuj trovis la varman kaj moviĝeman dorson de bovino. ŝi genufleksis kaj per tre-mantaj manoj komencis serĉi la mamojn. Ili estis plenaj de lakto. ŝi kliniĝis al la ventro de la besto, ĉirkaŭis ĝin per la brakoj kaj komencis avide suĉi … ŝia korpo ektremis pro dol-
-
-ĉa ĝuo … ŝi sentis, ke ŝia propra brusto, tiel longe malplena, varmiĝas kaj pleniĝas. …
+La varma aero kaj la akra odoro de la brutaro, tiel agrabla por ĉiu Jakuto, ĉirkaŭis ŝin. Senbrue ŝi enrampis kaj fermis post si la pordon. Momenton ŝi staris senmova aŭskultante. Iu dormis en la stalo. Kune kun la ronkado kaj remaĉado de la bovinoj ŝi aŭdis regulan homan spiradon. Ebria pro dezirego, ŝi etendis la manojn kaj iris antaŭen. ŝi tuj trovis la varman kaj moviĝeman dorson de bovino. ŝi genufleksis kaj per tre-mantaj manoj komencis serĉi la mamojn. Ili estis plenaj de lakto. ŝi kliniĝis al la ventro de la besto, ĉirkaŭis ĝin per la brakoj kaj komencis avide suĉi … ŝia korpo ektremis pro dolĉa ĝuo … ŝi sentis, ke ŝia propra brusto, tiel longe malplena, varmiĝas kaj pleniĝas. …
 
 —Kiu estas tie?… Kiu estas tie ĉi? — kriis post ŝi timigita virina voĉo, kiam ŝi mallaŭte kaj singarde rampis reen al la pordo.
 
@@ -928,9 +787,7 @@ Kiam frue matene ŝi revenis hejmen, la lepruloj kuniĝintaj ĉe la fajro renkon
 
 Sed ankaŭ en la sekvinta tago ŝi trovis nenion: ŝi revenis malfrue kun pafvundo en la piedo …
 
-Ili demandis ŝin pri nenio; malgaja kaj silenta ŝi bandaĝis 39
-
-LA FUNDO DE L’MIZERO
+Ili demandis ŝin pri nenio; malgaja kaj silenta ŝi bandaĝis
 
 
 la vundon, petante nenies helpon. Nokte ŝi deliris. ŝiaj ĝemoj fariĝis nun sovaĝa kanto, kun kiu subite kuniĝis la blekoj de la lupoj, disŝirantaj ekstere la korpon de Salban. La terura
@@ -957,9 +814,7 @@ La ekskursoj de Mergenj ne restis sen sekvoj. Post kelke da tagoj ili ekaŭdis v
 
 —Vi ĉiam donas malnovajn retojn … — ĝemis Fluo.
 
-—Ni donas pro kompato, senpage! Vi prenu ilin tiajn, kiaj ili estas! Kanajlo Mergenj ne kuraĝu vagi en niaj vilaĝoj … ni 40
-
-LA FUNDO DE L’MIZERO
+—Ni donas pro kompato, senpage! Vi prenu ilin tiajn, kiaj ili estas! Kanajlo Mergenj ne kuraĝu vagi en niaj vilaĝoj … ni
 
 
 ŝin mortigos. La leĝo ne permesas disporti la infekton en la lando …
@@ -991,20 +846,13 @@ malforta voĉo. — Diru, ke mi plendas, ke Pjotruĉan trompis min … Ne, li ne
 —Iru, Dio vin benu! Vi estu feliĉaj, vi vivu, sed ne forgesu pri ni, la plej mizeraj el la mizeruloj! — kriis post li la lepruloj.
 
 
-LA FUNDO DE L’MIZERO
-
-
 V
 
-Ne longe daŭras ĉi tie la printempo, somero kaj aŭtuno, ili do rapide forkuras. La printempo precipe estas laŭ-
-
-tega, plena de bruo de la riveroj, de pepado de la transflugan-taj birdoj, de sonĝigaj blovoj de la suda vento. La kvazaŭ ebria tero, senĉese ĝoje krianta kaj tremanta de volupto, rapidas deĵeti de si la neĝan kovrilon: tuj aperas la ŝvelaj brustoj de la montetoj, la krutaj bordoj de la lagoj, la insuloj kaj promontoroj, la arbaroj ankoraŭ nigraj, sed jam plenaj de rezi-na odoro kaj de varma malsekeco. Tie ĉi kaj tie brilas la bluaj pupiloj de la liberiĝinta akvo. Aroj da flugilaj gastoj, jen la grandaj cignoj, blankaj kiel la neĝo, jen la skolopoj, etaj kiel muŝoj, falas sur la marĉojn, banas sin en la akvoj, bruas en la maljunaj kanejoj. La ridado, fajfado kaj pepado ne silentiĝas.
+Ne longe daŭras ĉi tie la printempo, somero kaj aŭtuno, ili do rapide forkuras. La printempo precipe estas laŭtega, plena de bruo de la riveroj, de pepado de la transflugan-taj birdoj, de sonĝigaj blovoj de la suda vento. La kvazaŭ ebria tero, senĉese ĝoje krianta kaj tremanta de volupto, rapidas deĵeti de si la neĝan kovrilon: tuj aperas la ŝvelaj brustoj de la montetoj, la krutaj bordoj de la lagoj, la insuloj kaj promontoroj, la arbaroj ankoraŭ nigraj, sed jam plenaj de rezi-na odoro kaj de varma malsekeco. Tie ĉi kaj tie brilas la bluaj pupiloj de la liberiĝinta akvo. Aroj da flugilaj gastoj, jen la grandaj cignoj, blankaj kiel la neĝo, jen la skolopoj, etaj kiel muŝoj, falas sur la marĉojn, banas sin en la akvoj, bruas en la maljunaj kanejoj. La ridado, fajfado kaj pepado ne silentiĝas.
 
 Kaj ĉi tiu rivero da vivo ne ripozas, ne dormas, sed frenezas, amas, festenas en la varmegaj radioj de la suno, kiu tute ne subiras. Oni povus pensi, ke ĉiujn timigas la glaciaj lagoj, kiuj dormas ankoraŭ malvivaj, kvankam la tero ĉirkaŭprenanta ilin jam vekiĝis. ĉiuj rapidas vivi, ĉar ili timas, ke eble revenos la severa vintro, kiu ĵus foriris. Fine vekiĝas ankaŭ la lagoj. En ili kolektiĝis jam sufiĉe da akvo, ilia glacia ŝildo ekŝanceliĝis kaj leviĝis, kaj la ondoj senĉese batas kaj rompas ĝin.
 
-La fiŝoj gaje saltas inter la glacioj. Ofte, kiam post varmega tago la ĉielruĝo brilas sur la nigraj akvoj, oni vidas en la vespera lumo vicojn da grandegaj ezokoj, kiuj, malferminte la 42
-
-LA FUNDO DE L’MIZERO
+La fiŝoj gaje saltas inter la glacioj. Ofte, kiam post varmega tago la ĉielruĝo brilas sur la nigraj akvoj, oni vidas en la vespera lumo vicojn da grandegaj ezokoj, kiuj, malferminte la
 
 
 buŝegojn, restas senmovaj por spiri la bonodoran vivigan aeron per la brankoj, lacaj de la vintra ŝlima malbonodoro de la profundegaĵoj! Tage la ludado de la fiŝoj senĉese aperigas rondojn sur la akvo.
@@ -1034,9 +882,6 @@ Aŭ tuj vendu por la oro …
 —Bela estas la voĉo de la kanteto … Traduku ĝin, Fluo.
 
 La fiŝkaptisto pacience tradukis la enhavon de la kanteto.
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Kion ŝi vendos, Fluo?
@@ -1071,12 +916,7 @@ eksilentis.
 
 —Psst!… Ni ne bruu … Sidiĝu ĉi tie malantaŭe kaj ne mo-viĝu, ne moviĝu … Vi min dronigos.
 
-La akrepinta boato rapidis facile kiel hirundo, sur la nigra akvo al la mezo de la lago, al la glacioj. Tie Fluo turnis la boaton kaj komencis elĵeti la retojn, kiuj kuŝis volvitaj sur ĝia fundo. Biterąj klinis la kapon al la rando kaj observis scivole, kiel ŝanceliĝas ŝia figuro en la akva spegulo de la lago, kiel tremas sur ŝia kapo la flavaj anemonoj. Fluo havis tre ruzan planon; ĉar la fiŝoj varmiĝis ĉe la bordo, li intencis bari al ili la vojon al la profundaĵo kaj poste subite ektimigi ilin. Li estis certa, ke ili forkuros blinde kaj ne evitos la embuskon. Li plene sukcesis. Kiam ili bruis, kantis kaj plaŭdis en la barita loko, ili vidis de malproksime, kiel la betulaj naĝiloj de la reto subakviĝas kaj dronas, kiel malklariĝas la akvo. La akiro es-44
-
-LA FUNDO DE L’MIZERO
-
-
-tis ekstreme riĉa. Baldaŭ la boato ektremis pro la batoj de la vostoj de la grandegaj ezokoj, eltiritaj el la akvo. La monstroj larĝe malfermis la buŝegojn, penante ion ekmordi antaŭ la morto. Sed Biterąj tute ne intencis meti tien la fingron. La plataj, arĝentoskvamaj fiŝoj kun la bierkoloraj okuloj saltis furioze en la boato kiel arĝentaj moneroj, skuataj en kribri-lo. Unu ezokon Fluo pli longe tenis en la mano.
+La akrepinta boato rapidis facile kiel hirundo, sur la nigra akvo al la mezo de la lago, al la glacioj. Tie Fluo turnis la boaton kaj komencis elĵeti la retojn, kiuj kuŝis volvitaj sur ĝia fundo. Biterąj klinis la kapon al la rando kaj observis scivole, kiel ŝanceliĝas ŝia figuro en la akva spegulo de la lago, kiel tremas sur ŝia kapo la flavaj anemonoj. Fluo havis tre ruzan planon; ĉar la fiŝoj varmiĝis ĉe la bordo, li intencis bari al ili la vojon al la profundaĵo kaj poste subite ektimigi ilin. Li estis certa, ke ili forkuros blinde kaj ne evitos la embuskon. Li plene sukcesis. Kiam ili bruis, kantis kaj plaŭdis en la barita loko, ili vidis de malproksime, kiel la betulaj naĝiloj de la reto subakviĝas kaj dronas, kiel malklariĝas la akvo. La akiro estis ekstreme riĉa. Baldaŭ la boato ektremis pro la batoj de la vostoj de la grandegaj ezokoj, eltiritaj el la akvo. La monstroj larĝe malfermis la buŝegojn, penante ion ekmordi antaŭ la morto. Sed Biterąj tute ne intencis meti tien la fingron. La plataj, arĝentoskvamaj fiŝoj kun la bierkoloraj okuloj saltis furioze en la boato kiel arĝentaj moneroj, skuataj en kribri-lo. Unu ezokon Fluo pli longe tenis en la mano.
 
 —Rigardu Biterąj … i estas kiel ni … De tiu ĉi fiŝo deve-nas nia malsano … — diris li kaj donis al la knabineton fiŝon kovritan de cikatroj, vunditan, kun ŝvelinta kapo kiel ĉe la lepruloj. La fiŝo malforte baraktis en la mano de la infano kaj minace rigardis ŝin persiaj koleraj, malklaraj okuloj …
 
@@ -1092,12 +932,7 @@ tis ekstreme riĉa. Baldaŭ la boato ektremis pro la batoj de la vostoj de la gr
 
 — ne venenu floron aŭ beron. Eĉ el la tombo la veneno povas elrampi, la musoj elfosos ĝin, la birdoj disportos … Plej bone estus ĝin bruligi, sed la fajro ne amas la malpuraĵojn, venĝos sin …
 
-Babilante tiamaniere ili veturis al la bordo. La luno miksis sian arĝenton kun la purpuro de la ĉielruĝo kaj lumigis al ili la vojon. Dekstre kaj maldekstre la lago kuŝis malluma, senmova. La randoj de la ruĝaj glacioj brilis sur ĝi kaj malproksime la blua tajgo aperis kvazaŭ tra nebulo. Kiam ili supreniris la monteton, kie la jurto staris, tra la arbetaĵoj kaj arba-45
-
-LA FUNDO DE L’MIZERO
-
-
-roj ilin rigardis miloj da similaj brilaj lagoj, sangkoloraj pro la ĉielruĝo, arĝentaj pro la luno kaj glacioj. La fiŝkaptintoj aliris al la pordo de la jurto, kie granda fajro brulis. Iliaj manoj estis plenaj de akiro, iliaj vizaĝoj estis gajaj kaj ĝojaj. ĉe la sojlo renkontis ilin Mergenj, kiu eliris voki ilin por la vespermanĝo.
+Babilante tiamaniere ili veturis al la bordo. La luno miksis sian arĝenton kun la purpuro de la ĉielruĝo kaj lumigis al ili la vojon. Dekstre kaj maldekstre la lago kuŝis malluma, senmova. La randoj de la ruĝaj glacioj brilis sur ĝi kaj malproksime la blua tajgo aperis kvazaŭ tra nebulo. Kiam ili supreniris la monteton, kie la jurto staris, tra la arbetaĵoj kaj arbaroj ilin rigardis miloj da similaj brilaj lagoj, sangkoloraj pro la ĉielruĝo, arĝentaj pro la luno kaj glacioj. La fiŝkaptintoj aliris al la pordo de la jurto, kie granda fajro brulis. Iliaj manoj estis plenaj de akiro, iliaj vizaĝoj estis gajaj kaj ĝojaj. ĉe la sojlo renkontis ilin Mergenj, kiu eliris voki ilin por la vespermanĝo.
 
 —Jen la akiro!
 
@@ -1109,9 +944,7 @@ roj ilin rigardis miloj da similaj brilaj lagoj, sangkoloraj pro la ĉielruĝo, 
 
 Ni povus kapti kaj fumaĵi fiŝojn por la tuta vintro …
 
-—La ostoj doloras min … La akvo estas malvarma … — re-
-
-diris la Jakuto post longa pripensado.
+—La ostoj doloras min … La akvo estas malvarma … — rediris la Jakuto post longa pripensado.
 
 —Oni ja ne bezonas eniri profunde en la akvon … Baro jam estis tie, eĉ restis unu stango …
 
@@ -1121,9 +954,7 @@ diris la Jakuto post longa pripensado.
 
 —Kaj mi? Miaj piedoj estas ankoraŭ pli malbonaj, tamen vi postulas, ke mi iru. Se oni agus ĉiam tiamaniere, oni putriĝus viva … Oni putriĝus, antaŭ ol la karno defalos …
 
-—Kial tiom diskutadi! Li iros, li devas iri … i estas laboro por la viroj, kaj se vi iras, li ankaŭ devas iri — kriis kolere Mergenj. — Alie ni ne donos al Anka eĉ unu peceton da man-
-
-ĝaĵo. ŝi estas sana, ŝi venis ĉi tien memvole. La nutraĵon la komunumo sendas por la malsanuloj, ni ne donos nian pro-
+—Kial tiom diskutadi! Li iros, li devas iri … i estas laboro por la viroj, kaj se vi iras, li ankaŭ devas iri — kriis kolere Mergenj. — Alie ni ne donos al Anka eĉ unu peceton da manĝaĵo. ŝi estas sana, ŝi venis ĉi tien memvole. La nutraĵon la komunumo sendas por la malsanuloj, ni ne donos nian pro-
 
 praĵon.
 
@@ -1132,18 +963,13 @@ Gregorio sidis konsternita.
 —Mi mem iros! — diris nekuraĝe Anka.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Iru, iru, ĉirkaŭe tie estas densa arbetaro … — ridis Mergenj.
 
 —Eble ankaŭ vi iros, Mergenj? — demandis naive Fluo. —
 
 Laboro sufiĉos por ĉiuj … tranĉi vergaĵon, porti stangojn kaj bastonojn, dispecigi branĉetojn. Ankaŭ Biterąjon ni prenos kun ni, por ke ŝi bruligu fajron. Sed vi devas prepari por ŝi ĉemizeton, por ke la kuloj ne piku ŝin tro dolore …
 
-—Bela plano! — murmuris Mergenj. — Sed kiu restos hej-
-
-me por flegi Kutuja˛siton!?
+—Bela plano! — murmuris Mergenj. — Sed kiu restos hejme por flegi Kutuja˛siton!?
 
 —Mi bezonas neniun … — ekĝemis la maljunulino. — Pli
 
@@ -1167,12 +993,7 @@ Gregorio ankaŭ insistis, ke Li iros al la rivereto.
 
 Mergenj nenion diris; si ĵetis la kuleron kaj iris en la angulon. ŝi ne iris kun ili kaj neniu kuraĝis plu ŝin inviti.
 
-—ĉu vi vidis? Li timis! — murmuretis Fluo kun rideto, pal-47
-
-LA FUNDO DE L’MIZERO
-
-
-pebrumis kaj montris Gregorion, kiu iris antaŭe kun hakilo sur la ŝultro.
+—ĉu vi vidis? Li timis! — murmuretis Fluo kun rideto, palpebrumis kaj montris Gregorion, kiu iris antaŭe kun hakilo sur la ŝultro.
 
 —Li timis!… Mi vin certigas!… Ho, li scias, ke por la virinoj mi estas vera Tataro …
 
@@ -1186,12 +1007,7 @@ La lepruloj haltis ĉe la bordo, kie dika, nigra stango elsta-ris el la akvo, tr
 
 —Tie ĉi ni baros, tie ĉi estas malplej larĝe kaj malplej profunde.
 
-Biterąj ekbruligis la fajron, la viroj dehakis arbojn kaj trenis ilin al la bordo, Ili konstruis malgrandan floseton kaj en-48
-
-LA FUNDO DE L’MIZERO
-
-
-batis la unuan stangon. Poste ili metis sur la stangon ponteton kaj enbatis la duan; tiamaniere paŝo post paŝo ili celis al la mezo de la rivero. Anka rigardis kun timo, kiel la malfor-laj pontetoj balanciĝas sub ili, kiel la fluo elŝiras el iliaj manoj la trabojn kaj turnas ilin, kiel ĝi minacas ĉiumomente deĵeti en la akvon la homojn kaj ilian konstruaĵon. La malfortaj nigraj trabaĵoj rebrilis en la travidebla akvo kiel aranea reto, sur kiu rampis mallertaj, duone nudaj homaj figuroj.
+Biterąj ekbruligis la fajron, la viroj dehakis arbojn kaj trenis ilin al la bordo, Ili konstruis malgrandan floseton kaj enbatis la unuan stangon. Poste ili metis sur la stangon ponteton kaj enbatis la duan; tiamaniere paŝo post paŝo ili celis al la mezo de la rivero. Anka rigardis kun timo, kiel la malfor-laj pontetoj balanciĝas sub ili, kiel la fluo elŝiras el iliaj manoj la trabojn kaj turnas ilin, kiel ĝi minacas ĉiumomente deĵeti en la akvon la homojn kaj ilian konstruaĵon. La malfortaj nigraj trabaĵoj rebrilis en la travidebla akvo kiel aranea reto, sur kiu rampis mallertaj, duone nudaj homaj figuroj.
 
 —Pro Dio!… vi ne falu en akvon! — murmuretis Anka.
 
@@ -1207,9 +1023,7 @@ En la malluma jurto estis tute silente. Kutuja˛sit vekiĝis, kiam ili jam estis
 
 —Mi ekdormis de malsato … — senkulpigis sin la maljunulino. — Mergenj prenis la manĝaĵon. ŝi prenis ankaŭ nian plej bonan kaldronon, hakilon, tranĉilon, ŝi ligis ĉion kune kaj foriris. Mi demandis ŝin, kien ŝi iras kaj kiam ŝi revenos, ŝi respondis nenion … nenion, kvazaŭ mi estus hundo, ne ho-mo … Mi parolas al ŝi … kaj ŝi prenis nian plej bonan kaldronon, tranĉilon, hakilon … — ripetis la malĝojiĝinta Kutuja˛sit.
 
-—ŝi prenis la tranĉilon, hakilon, kaldronon- balbutis Fluo, serĉante en la anguloj de la jurto. — ŝi prenis ankaŭ mian 49
-
-LA FUNDO DE L’MIZERO
+—ŝi prenis la tranĉilon, hakilon, kaldronon- balbutis Fluo, serĉante en la anguloj de la jurto. — ŝi prenis ankaŭ mian
 
 
 reton, la plej bonan reton … Oni devas gardi la boaton, por ke ŝi ne ŝtelu ĝin …
@@ -1237,16 +1051,11 @@ Li volis tuj konstrui floson kaj veturi por repreni la retojn, metitajn en la la
 Biterąj serĉis en ĉiuj anguloj kiel muso. Eble Mergenj, pensis la knabino, lasis la ŝtelitan ĉemizon.
 
 
-LA FUNDO DE L’MIZERO
-
-
 VI
 
 Nokte, kiam la suno ne varmigas, kaj la nuboj sur la ĉie-lo ne malhelpas la vaporiĝon, la elspiraĵo de la lagoj, tuŝinte la lastajn glaciojn, falas sur la landon, densiĝas kaj kovras la ĉirkaŭaĵon per neĝa nebulo. ia bukloriĉa supraĵo similas vilan ŝafidfelon. Tra la blanka kovrilo briletas la mallumaj makuloj de la montetoj, promontoroj, kaj terkoloj. La nigraj pintoj de la arboj elstaras super la nebulo kiel strangaj aeraj insuloj. ĉio estas blanka kaj silenta kiel vintre, sed samtempe varma kaj moviĝema. Jen duone degelinta glacio perdas la ekvilibron kaj falas en la akvon; ĝia rando disŝiras la nebulon, kaj la arĝente nigraj ondoj de la lago ekbrilas tra la fendo. Jen vico da anasoj brue kaj gaje naĝas, serĉante nutraĵon; neniu danĝero minacas ilin sub la nebula kovrilo. Silente estas en la aero. La agloj, vulturoj kaj mevoj dormetas en siaj kaŝejoj, kovritaj de la perla roso. Sur la pala ĉielo la steloj pale briletas. La ĉielruĝo aperas kaj komencas kolorigi la nebulojn;
 
-ĝi grandiĝas, fariĝas pli potenca, disvastiĝas pli kaj pli malproksime, la fajra brilo kovras la tutan horizonton. Fine de tie, kie la leviĝanta suno sin kaŝas, elsaltas grandega ora radio. La steloj estingiĝas. Facila venteto pelas la nebulon. Al la unua radio aliĝas dua, tria … tutaj garboj da rapidaj, oraj, blindi-gantaj radioj. La nebuloj maldensiĝas, brilas la lagoj, iliaj verdaj bordoj gaje ridetas. La birdaj ˛oroj komencas laŭte kanti. La vento dispelas la glaciojn sur la lago; ili puŝas unu la 51
-
-LA FUNDO DE L’MIZERO
+ĝi grandiĝas, fariĝas pli potenca, disvastiĝas pli kaj pli malproksime, la fajra brilo kovras la tutan horizonton. Fine de tie, kie la leviĝanta suno sin kaŝas, elsaltas grandega ora radio. La steloj estingiĝas. Facila venteto pelas la nebulon. Al la unua radio aliĝas dua, tria … tutaj garboj da rapidaj, oraj, blindi-gantaj radioj. La nebuloj maldensiĝas, brilas la lagoj, iliaj verdaj bordoj gaje ridetas. La birdaj ˛oroj komencas laŭte kanti. La vento dispelas la glaciojn sur la lago; ili puŝas unu la
 
 
 alian, brilante en la suno. Kaj tiamaniere ĉiutage ĝis la glacio degelos.
@@ -1280,18 +1089,13 @@ Ili estis jam proksime de la rivereto. La monotona bruo de la akvo scigis ilin p
 —Nun, ĉu vi aŭdas?
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Efektive iu iras sur nia baro … La stangoj krakas en la pontetoj … — murmuretis li.
 
 La knabino genufleksis pro teruro. La Jakuto atente rigardis la blankajn vaporaĵojn. Post momento li komencis rekoni la mallumajn konturojn de la arboj, kliniĝintaj super la blanka profundegaĵo.
 
 —La rivereto! — diris li.
 
-La nebulo tie ĉi senĉese tremis, iris antaŭen kaj malantaŭ-
-
-en, leviĝis aŭ falis ĉifita. en la rivereton. Nun Fluo jam povis vidi la stangojn de la baro, la ponteton, kaj sur ĝi malluman, grandan, malklaran figuron, kliniĝantan al la akvo … Samtempe li aŭdis plaŭdon, krakon kaj laŭtan ĝemon.
+La nebulo tie ĉi senĉese tremis, iris antaŭen kaj malantaŭen, leviĝis aŭ falis ĉifita. en la rivereton. Nun Fluo jam povis vidi la stangojn de la baro, la ponteton, kaj sur ĝi malluman, grandan, malklaran figuron, kliniĝantan al la akvo … Samtempe li aŭdis plaŭdon, krakon kaj laŭtan ĝemon.
 
 —Urso! — murmuretis la terurita Jakuto, Biterąj ektremis.
 
@@ -1313,9 +1117,7 @@ kriis li al la knabino.
 
 —Vana estis nia laboro!… — ripetis malgaje Anka kaj Kutuja˛sit.
 
-—Nun ĝi staros garde sur la baro … Eble ĝi venos eĉ en la 53
-
-LA FUNDO DE L’MIZERO
+—Nun ĝi staros garde sur la baro … Eble ĝi venos eĉ en la
 
 
 provizejon! Nun ili estas malsataj, ne estas beroj kaj radikoj
@@ -1346,9 +1148,7 @@ En la sekvinta tago la malsato komencis forte turmenti ilin; malgraŭ la timo Fl
 
 Gregorio ne tuj la espondis; li rigardis longe kaj atente la verdan arbaran kronon, kiu kuŝis izola sur la bluaj akvaj vastaĵoj, oritaj de la suno. Granda fumo pendis super la arbaj pintoj. Fluo bone divenis, ke tie estas la kaŝejo de Mergenj.
 
-—ŝi vidas de tie ĉion, kiel sur la manplato. Kvankam ŝi 54
-
-LA FUNDO DE L’MIZERO
+—ŝi vidas de tie ĉion, kiel sur la manplato. Kvankam ŝi
 
 
 estas proksime de ni, ni ne povas ŝin atingi. Sed ne ĝoju!…
@@ -1361,9 +1161,7 @@ Baldaŭ mi faros boaton kaj reprenos miajn retojn … Mi trovos ilin kaj repreno
 
 Ili revenis kun bona akiro; ili trovis kelke da anasaj nestoj: la ovoj enhavis jam embriojn, sed ĉu tio ĉi ne estas manĝaĵo?
 
-Kuraĝiĝintaj ili iris en la sekvinta tago al la baro. Fluo sen-
-
-ĉese kriis kaj tamburis sur malnova pato; Gregorio ankaŭ kriis kaj svingis brulantan torĉon. Fluo antaŭiris; ĉiufoje, kiam li rerigardis la kunulon, Gregorio turnis flanken la okulojn kaj kaŝis la paliĝintan vizaĝon.
+Kuraĝiĝintaj ili iris en la sekvinta tago al la baro. Fluo senĉese kriis kaj tamburis sur malnova pato; Gregorio ankaŭ kriis kaj svingis brulantan torĉon. Fluo antaŭiris; ĉiufoje, kiam li rerigardis la kunulon, Gregorio turnis flanken la okulojn kaj kaŝis la paliĝintan vizaĝon.
 
 —Konfesu, vi forlasos min, kiam ĝi elsaltos? — demandis fine Fluo.
 
@@ -1375,18 +1173,11 @@ Ili provis fari tion, sed la malsekaj herboj ne bruliĝis.
 
 —Estu la volo de Dio; — kuraĝe decidis Fluo, svingis la manon kaj bruante iris antaŭen.
 
-ĉe la rivereto estis tute trankvile. La suno oris la verdetan, rapide fluantan akvon; la salikoj kaj la malgrandegulaj alnoj rebrilis en ĝi, kliniĝante de la bordoj; la nigra reto de la pon-55
-
-LA FUNDO DE L’MIZERO
-
-
-tetoj ĵetis de supre moviĝemajn ombrojn, kaj la ŝaŭmo de la fluo ĉirkaŭis la stangojn.
+ĉe la rivereto estis tute trankvile. La suno oris la verdetan, rapide fluantan akvon; la salikoj kaj la malgrandegulaj alnoj rebrilis en ĝi, kliniĝante de la bordoj; la nigra reto de la pontetoj ĵetis de supre moviĝemajn ombrojn, kaj la ŝaŭmo de la fluo ĉirkaŭis la stangojn.
 
 La Jakutoj atente aŭskultis, ĉu ie bruas, poste ili ekbruligis fajron. Ili tuj rimarkis, ke la baro estas detruita, ke la korbo malaperis.
 
-—La malbenita hommanĝantino! Rigardu, ŝi ĉion tratran-
-
-ĉis!… Kion ŝi volas? — kriis Fluo, kiu aliris la unua al la pontetoj.
+—La malbenita hommanĝantino! Rigardu, ŝi ĉion tratranĉis!… Kion ŝi volas? — kriis Fluo, kiu aliris la unua al la pontetoj.
 
 —Kial vi diris, ke tio estas urso? Kion vi babilis?… Pro vi ni ĉiuj malsatis! — koleris Gregorio.
 
@@ -1412,15 +1203,10 @@ Neniu scias, kion ili volas, Sed ne pro mi ŝi venĝas sin kaj malbonigas la bar
 
 Gregorio malgajiĝis.
 
-Kiam ili kaptis kelke da fiŝoj, ili decidis, ke Fluo portos ilin 56
-
-LA FUNDO DE L’MIZERO
+Kiam ili kaptis kelke da fiŝoj, ili decidis, ke Fluo portos ilin
 
 
 hejmen kaj sendos Ankan kun la litaĵo, ĉar Gregorio intencis stari garde ĉe la baro la tutan nokton.
-
-
-LA FUNDO DE L’MIZERO
 
 
 VII
@@ -1445,9 +1231,7 @@ La ĉielo estis malluma, kvankam la nuboj ne kovris ĝin. La paliĝinta, flavru�
 
 Anka silentis.
 
-—Ne … Por kio bedaŭri, se oni ne povas tion ŝanĝi? Se la 58
-
-LA FUNDO DE L’MIZERO
+—Ne … Por kio bedaŭri, se oni ne povas tion ŝanĝi? Se la
 
 
 inferanino nur lasus nin trankvilaj … Eble Dio sendos al ni infanon … Ni edukos ĝin, ĝi nin zorgos, kiam ni maljuniĝos …
@@ -1466,13 +1250,9 @@ Anka turnis sin subite, ĉar Gregorio atente rigardis per strangaj okuloj la riv
 
 —La diablino! Kion ŝi volas? — diris Gregorio, — Sed nun ŝi ne venos plu … Oni povas dormi! ĉu vi iros hejmen, Anka, aŭ restos ĉi tie? Nokte estos malvarme.
 
-—Mi restos … — diris Anka post momento. — Se vi perme-
+—Mi restos … — diris Anka post momento. — Se vi permesos, mi restos.
 
-sos, mi restos.
-
-La fiŝkapto estis tre sukcesa. Ili kaptis precipe grandegajn, verdetajn ezokojn kun ruĝaj vostoj kaj brankoj. La tutan tagon la loĝantoj de la jurto purigis kaj lavis la fiŝojn, kiujn ili intencis fumaĵi. Eĉ Kutuja˛sit alrampis el la jurto; ŝi sidis ĉe 59
-
-LA FUNDO DE L’MIZERO
+La fiŝkapto estis tre sukcesa. Ili kaptis precipe grandegajn, verdetajn ezokojn kun ruĝaj vostoj kaj brankoj. La tutan tagon la loĝantoj de la jurto purigis kaj lavis la fiŝojn, kiujn ili intencis fumaĵi. Eĉ Kutuja˛sit alrampis el la jurto; ŝi sidis ĉe
 
 
 la fajro kaj kun Biterąj vete rostis sur la karboj la grasajn ezokajn internaĵojn. Oni permesis tion, ĉar oni havis tro multe da ili. Vespere la virinoj kaj Gregorio portis la akiron hejmen, ĉar tie pli facile estis kaŝi la fiŝojn dum la pluvo. Fluo restis por gardi la baron.
@@ -1499,9 +1279,7 @@ kantis ŝi per sia delikata voĉo … Sed foje ŝi subite interrompis la kanton 
 
 —Mergenj … — balbutis la paliĝinta knabino.
 
-ĉiuj ĵetis sin al la pordo. Gregorio Prenis hakilon. Sed sur la vojeto krom Fluo neniu estis; li iris rapide, kolere svingis la 60
-
-LA FUNDO DE L’MIZERO
+ĉiuj ĵetis sin al la pordo. Gregorio Prenis hakilon. Sed sur la vojeto krom Fluo neniu estis; li iris rapide, kolere svingis la
 
 
 manojn, sed sen ia dubo tio estis li, ne la diablino. Sed kial Biterąj vidis ŝin? ĉu Mergenj sorĉe malaperis?
@@ -1522,12 +1300,7 @@ La viroj tuj prenis armaĵojn kaj rapidis por kapti la korbon kaj rebonigi la ba
 
 Pri dormado oni ne povis eĉ sonĝi. Li do ekbruligis grandan kronon de fajroj malproksime de la rivereto, sidiĝis meze de ili, kuiris la vespermanĝon kaj kantetis por forpeli la enuon. Ekstere la amasoj da pikemaj insektoj zumis senĉese.
 
-La Jakuto ofte interrompis la kanton kaj aŭskultis la monoto-nan murmuron, kiu kuniĝis kun la bruo de la rivereto. Krom tio li nenion aŭdis, li do fermetis la okulojn, ruĝajn kaj ple-najn de larmoj pro la fumo, kaj li daŭrigis la kanteton, kiu sonis monotone kiel la akvo bolanta en la kaldrono, Subite ekkrakis branĉeto, rompita per ies piedo. Li malfermis la oku-61
-
-LA FUNDO DE L’MIZERO
-
-
-lojn kaj kaptis la tranĉilon. En la griza krepusko, lumigita de la briloj de la fajro, Mergenj staris.
+La Jakuto ofte interrompis la kanton kaj aŭskultis la monoto-nan murmuron, kiu kuniĝis kun la bruo de la rivereto. Krom tio li nenion aŭdis, li do fermetis la okulojn, ruĝajn kaj ple-najn de larmoj pro la fumo, kaj li daŭrigis la kanteton, kiu sonis monotone kiel la akvo bolanta en la kaldrono, Subite ekkrakis branĉeto, rompita per ies piedo. Li malfermis la okulojn kaj kaptis la tranĉilon. En la griza krepusko, lumigita de la briloj de la fajro, Mergenj staris.
 
 —Vi volas mortigi min, Gregorio … Vi jam forgesis, kiel vi amis kaj karesis min …
 
@@ -1548,9 +1321,6 @@ Sed rigardu, Gregorio, kiel dika mi nun estas, kiel ŝveligas mian korpon la san
 —Ho, ne!… Oni ne donos al vi bovinojn, oni mortigos vin!
 
 
-LA FUNDO DE L’MIZERO
-
-
 Nenion oni donos al vi, vi ja tie nenion posedas … Via edzo prenis ĉion kaj transmigris en la gubernion …
 
 —Eĉ sen bovinoj ni vivos feliĉe!… Kiam mi vin posedos, mi trovos ĉion … Mi faros por vi multekostajn peltojn; mi kaptos vulpojn, leporojn, lupojn kaj sovaĝajn cervojn … Mi metos kaptilojn, mempafilojn. ĉiutage vi manĝos viandon, plej bonan grason, bongustajn fiŝojn. Mi estos bona, tiel bona kaj dolĉa, kiel la beroj post la aŭtunaj frostoj … Mi estas malbona, ĉar mi posedas neniun … Kiam mi iras en la mondo kaj vidas la homojn, kiuj ripozas trankvile, ridas, manĝas ĝis sate, havas infanojn kaj brutaron, tia enuo suĉas mian animon, ke mi nepre devas ion detrui, rompi … Ili ankaŭ sciu, kio estas larmoj! sed por vi mi estos dolĉa, kvieta …
@@ -1567,12 +1337,7 @@ Ne ŝajnigu bonkorecon … ĉu vi iam portis al mi akvon, kiam nokte la soifo tu
 
 ĉiam oni devas krii: Gregorio iru, Gregoriu faru … Gregorio, tio estas via laboro … Vi estas kvazaŭ peco da glacio … Mi devis ami vin tian, kia vi estas, ĉar mi havis neniun alian, sed Anka … malsaĝa Anka.
 
-ŝia vizaĝo fariĝis terura, la okuloj brilis kiel serpenta skva-63
-
-LA FUNDO DE L’MIZERO
-
-
-mo, la lipoj tremis, malkovrante blankajn, akrajn dentojn.
+ŝia vizaĝo fariĝis terura, la okuloj brilis kiel serpenta skvamo, la lipoj tremis, malkovrante blankajn, akrajn dentojn.
 
 Gregorio etendis antaŭ si la manojn:
 
@@ -1580,9 +1345,7 @@ Gregorio etendis antaŭ si la manojn:
 
 ŝi desaltis de li kaj faligis la kaldronon per piedbato.
 
-—Putru, malbenita putrulo! Morgaŭ komencu! Vi ĉiuj me-
-
-moru, ke nun mi ne indulgos vin … Kiam vi ne ekzistos plu, mi kaptos por mi knabeton … mi lin ŝtelos! Mi estas ankoraŭ juna … mi lin edukos por mi … Vi pensas, abomena kadavro, ke vi estas trezoro! ĉar frenezulino, kiun neniu volis havi, alkuris al li, li imagis, ke li taŭgas por io! Putru … pereu! Mi pereigos vin ĉiujn, por ke via malbeno malaperu kun vi …
+—Putru, malbenita putrulo! Morgaŭ komencu! Vi ĉiuj memoru, ke nun mi ne indulgos vin … Kiam vi ne ekzistos plu, mi kaptos por mi knabeton … mi lin ŝtelos! Mi estas ankoraŭ juna … mi lin edukos por mi … Vi pensas, abomena kadavro, ke vi estas trezoro! ĉar frenezulino, kiun neniu volis havi, alkuris al li, li imagis, ke li taŭgas por io! Putru … pereu! Mi pereigos vin ĉiujn, por ke via malbeno malaperu kun vi …
 
 Tiam mi iros malproksimen … Neniu devigos min vivi en venenita loko! La malsato tordu viajn internaĵojn, vi manĝu la putran viandon de Kutuja˛sit kiel buteron, vi leku ŝiajn mal-junajn ostojn kiel sukeron kaj ĉesu ofendi aliajn malfeliĉulojn! …
 
@@ -1595,17 +1358,9 @@ Gregorio desaltis de la litaĵo, ĉar en la okuloj de Mergenj terura fajro ekbri
 ĝi rebrilis en la pura supraĵo. Sur la lago super la blanka nebula muslino ŝanceliĝis la kapo kaj la brakoj de Mergenj, kiu rapide remis, kaj malsupre glitis la longa makulo de la boato. Fine ĉio malaperis en la griza nokta krepusko.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Dio gardu mntraŭ ĉi tiu virino … Vera viro-virino!
 
-Kion mi faros nun? ŝi disverŝis mian vespermanĝon, kaj tro frue estas eltiri la korbon … La tondro ŝin … ŝi diris, ke mi timas. ŝi estas prava … Se mi kisus ŝin, ŝi demordus mian bu-
-
-ŝon … ĉu oni povas scii, kion ŝi celas? ŝi venis por peti, kaj poste ŝi disverŝis mian manĝaĵon! — murmuretis Gregorio, penante savi el la fajro pecetojn da kuirita fiŝo.
-
-
-LA FUNDO DE L’MIZERO
+Kion mi faros nun? ŝi disverŝis mian vespermanĝon, kaj tro frue estas eltiri la korbon … La tondro ŝin … ŝi diris, ke mi timas. ŝi estas prava … Se mi kisus ŝin, ŝi demordus mian buŝon … ĉu oni povas scii, kion ŝi celas? ŝi venis por peti, kaj poste ŝi disverŝis mian manĝaĵon! — murmuretis Gregorio, penante savi el la fajro pecetojn da kuirita fiŝo.
 
 
 VIII
@@ -1635,9 +1390,6 @@ La knabino paliĝis, rigidiĝis kiel peceto de glacio kaj nenion parolante, riga
 —ŝi diris, ke ŝi ankoraŭ ne manĝos min … Verŝajne ŝi faros tion vintre … — konfesis la knabineto al Fluo, rakontan-te al li pri la renkonto.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Donu Dio, ke la aliaj ne estu devigitaj nun tion fari. Vere mi ne scias, kion ni manĝos aŭtune; neniu zorgas pri tio; ni jam komencis manĝi la sekigitajn fiŝojn … Vi Anka devus iri al la komunumo kaj repreni vian havon. Ili ne povas ne doni
 
 … Vi havis dek brutojn, ili devas redoni almenaŭ kelke da ili …
@@ -1656,13 +1408,9 @@ la komunumo mem sendos la bovinon … Mi ja diris al ili, ke mi postulas mian pr
 
 —Aŭskultu, Fluo … Kion vi povas perdi? Nenion! ŝi ja tute saturis vin. Mi havas nur unu malgrandan vundeton, eble la mano ankoraŭ resaniĝos. Sed mi devas min gardi, por ke la hommanĝantino ne rigardu min per siaj sorĉaj okuloj … kompatu min …
 
-—Kompreneble!… ĉiu preferas kuŝi sur la lito … — mur-
+—Kompreneble!… ĉiu preferas kuŝi sur la lito … — murmuris Fluo, sed malgraŭ ĉi tio li iris al la rivereto kaj ofte sidis tie tutan tagon por ne lasi la akiron al Mergenj kaj pli frue preni ĝin. Foje li revenis tre ekscitita:
 
-muris Fluo, sed malgraŭ ĉi tio li iris al la rivereto kaj ofte sidis tie tutan tagon por ne lasi la akiron al Mergenj kaj pli frue preni ĝin. Foje li revenis tre ekscitita:
-
-—ŝi ŝtelis, malgraŭ mia ĉeesto ŝi ŝtelis … ŝi venis rekte al la baro, suriris la ponteton, malligis la korbon … Mi kriis, mi 67
-
-LA FUNDO DE L’MIZERO
+—ŝi ŝtelis, malgraŭ mia ĉeesto ŝi ŝtelis … ŝi venis rekte al la baro, suriris la ponteton, malligis la korbon … Mi kriis, mi
 
 
 ĵetis bastonojn … ”ĉesigu tion”, ŝi ridis, ”alie mi malsupreni-ros kaj batos vin!…”
@@ -1687,11 +1435,7 @@ La Jakuto leviĝis sur la lito kaj rigardis lin suspekte.
 
 —Kiam ni havos retojn kaj boaton — fanfaronis Fluo — mi trovos tian kaŝejon, ke eĉ la diablo ne penetros tien … Mi ve-tas, ke la inferanino furioziĝos, krevos de kolero, sed ŝi kom-prenos, ke ekzistas homoj pli saĝaj ol ŝi … Jes! La viro ĉiam estas viro, la virino ne povas lin egali! Tiam ni veturos, kien ni deziros, ni metos la retojn, kie ni volos …
 
-—Sed mi prenos kun mi Biterąjon — interrompis lin An-
-
-ka. — Mi timas iri sola. Kiam la knabineto estos kun mi, ili 68
-
-LA FUNDO DE L’MIZERO
+—Sed mi prenos kun mi Biterąjon — interrompis lin Anka. — Mi timas iri sola. Kiam la knabineto estos kun mi, ili
 
 
 devos min indulgi … ĉar kiu rekondukus la infanon … La kompato moligos iliajn korojn …
@@ -1724,12 +1468,7 @@ Ili decidis, ke Anka kaj Biterąj iros al la princo, kiam ek-ventos.
 
 La vojo al la princo estis malfacila kaj longa: dudek verstoj aŭ eble pli multe tra marĉoj, lagoj kaj riveretoj. La trairejojn Anka tute ne konis. La viroj penis ĉiamaniere klarigi al ŝi la direkton de la vojo. Ili desegnis kartojn sur la tero kaj ripetis centfoje:
 
-—Dekstre lago, maldekstre arbaro … Poste marĉo … Pos-
-
-te: maldekstre lago, dekstre betula arbaro … Vi iros sur la vojeto … ĉu vi komprenas …
-
-
-LA FUNDO DE L’MIZERO
+—Dekstre lago, maldekstre arbaro … Poste marĉo … Poste: maldekstre lago, dekstre betula arbaro … Vi iros sur la vojeto … ĉu vi komprenas …
 
 
 —La vojo estas rekta kiel sago. ĉiam al la okcidento.
@@ -1740,18 +1479,11 @@ Poste vi rampos tra marĉo. i ne estas profunda, vi devos iri sur la vojo, kie i
 
 —Dio estas nia espero! — diris Anka.
 
-Blovis facila vento, sed kiam la suno leviĝis pli alte kaj komencis varmigi, la vento fariĝis ventego. De la klara ĉielo ondoj de furioza aero falis sur la senmovan teron, sur la ŝanceli-
+Blovis facila vento, sed kiam la suno leviĝis pli alte kaj komencis varmigi, la vento fariĝis ventego. De la klara ĉielo ondoj de furioza aero falis sur la senmovan teron, sur la ŝanceliĝantajn lagojn. Ili tiel forte premegis la malgrandajn akvujojn, ke la ondoj ebeniĝis, kvankam pli profunde la akvo tremis kaj bolis. La pli grandaj akvujoj, kovritaj per grandegaj sulkoj kaj ondoj, skuataj ĝis la fundo, furiozaj, volis salti trans la bordojn, sed sub la potenca mano de la ventego ili ne povis levi-
 
-ĝantajn lagojn. Ili tiel forte premegis la malgrandajn akvujojn, ke la ondoj ebeniĝis, kvankam pli profunde la akvo tremis kaj bolis. La pli grandaj akvujoj, kovritaj per grandegaj sulkoj kaj ondoj, skuataj ĝis la fundo, furiozaj, volis salti trans la bordojn, sed sub la potenca mano de la ventego ili ne povis levi-
-
-ĝi, ili do batis la marĉan teron, kiel turmentata malliberulo batas la muron per la kapo. Nur la akvaj grandeguloj, kies bordoj malaperis en la blua malproksimo, levis alte siajn dorsojn kaj respondis la atakon de la aera oceano per surdiganta kriego. Le senfortaj arbaroj kliniĝis kiel herboj, la herboj ku-
-
-ŝis plate, senmove. La ventego kaptis de la brusto de la lagoj ŝaŭmajn ĉifonojn, plenmanojn da akva polvo, miksis ilin kaj pelis antaŭen; sur tiu nubo la suno pentris kadukajn ĉiel-arkajn figurojn.
+ĝi, ili do batis la marĉan teron, kiel turmentata malliberulo batas la muron per la kapo. Nur la akvaj grandeguloj, kies bordoj malaperis en la blua malproksimo, levis alte siajn dorsojn kaj respondis la atakon de la aera oceano per surdiganta kriego. Le senfortaj arbaroj kliniĝis kiel herboj, la herboj kuŝis plate, senmove. La ventego kaptis de la brusto de la lagoj ŝaŭmajn ĉifonojn, plenmanojn da akva polvo, miksis ilin kaj pelis antaŭen; sur tiu nubo la suno pentris kadukajn ĉiel-arkajn figurojn.
 
 La virino kaj infano malfacile rampis tra ĉi tiuj koloraj fantomoj, kiuj kovris al ili la mondon. Jen larĝa rubando de la ĉielarko aperis sur la vojo kaj tremis, kvazaŭ skuata de nevi-debla mano, jen ŝanceliĝanta hela makulo kovris arbarojn, arbetaĵojn kaj lagojn.
-
-
-LA FUNDO DE L’MIZERO
 
 
 La malvarmo turmentis ilin, la malsekaj vestoj malhelpis la iradon, sed ili estis kontentaj, ĉar ili ne timis plu la kulojn.
@@ -1774,12 +1506,7 @@ estas … tiom da vojo … Ne eble estas … la friponino mortigus nin — murmu
 
 Ili iris. En la virga tajgo nenie vojo estis. La malsekaj, verdaj, flavruĝaj, blankaj muskoj dispremiĝis sub iliaj piedoj, malkovrante la glaciiĝintajn marĉojn. Sur la senarbaj lokoj estis ankoraŭ pli danĝere, ĉar tie la marĉoj degelis. Anka kaj Biterąj rampis en la kota akvo, kiu atingis ĝis la genuoj, eĉ
 
-ĝis la zono. Post longa penado ili venis malfrue post la tagmezo al grandega lago, kies nigraj, brilaj ondoj bruegis, leviĝis alte kaj falis sur la platan bordon … Tiu ĉi bordo estis ŝlima kaj maldika kiel fadeno, kaj post ĝi aliaj lagoj kaj lagetoj bruegis kaj furiozis. Surdigitaj, lacaj, senfortaj, la vojaĝantinoj de-71
-
-LA FUNDO DE L’MIZERO
-
-
-cidis tie ĉi ripozi kaj varmigi sin, sed sur la mallarĝa bordo ne eble estis ekbruligi fajron. Ilidevis iom reiri. Fine post malgranda monteto ili kuiris en kruĉeto teon, t. e. sovaĝajn herbojn kaj manĝis iom da fumaĵita fiŝo, kiun Anka portis en sitelo el betula ŝelo. Post la vespermanĝo ili kuraĝiĝis kaj ekiris sur la maldika tera fadeno inter la ondoj de la furiozantaj lagoj. i estis la sola vojo al la sudo. La tera rubando fariĝis tiel mallarĝa, ke ili haltis de teruro, antaŭ ol ili kuraĝis kuri tra la ŝaŭmo, ĵetata de lago al lago. La grandegaj ondoj saltis minace kaj oni ne povis scii, kie falos iliaj grizaj piedegoj; Anka kaj Biterąj timis, ke la potenca elemento dronigos ilin, kaj kuris rapide kiel timigitaj perdrikoj, premiĝante unu al la alia.
+ĝis la zono. Post longa penado ili venis malfrue post la tagmezo al grandega lago, kies nigraj, brilaj ondoj bruegis, leviĝis alte kaj falis sur la platan bordon … Tiu ĉi bordo estis ŝlima kaj maldika kiel fadeno, kaj post ĝi aliaj lagoj kaj lagetoj bruegis kaj furiozis. Surdigitaj, lacaj, senfortaj, la vojaĝantinoj decidis tie ĉi ripozi kaj varmigi sin, sed sur la mallarĝa bordo ne eble estis ekbruligi fajron. Ilidevis iom reiri. Fine post malgranda monteto ili kuiris en kruĉeto teon, t. e. sovaĝajn herbojn kaj manĝis iom da fumaĵita fiŝo, kiun Anka portis en sitelo el betula ŝelo. Post la vespermanĝo ili kuraĝiĝis kaj ekiris sur la maldika tera fadeno inter la ondoj de la furiozantaj lagoj. i estis la sola vojo al la sudo. La tera rubando fariĝis tiel mallarĝa, ke ili haltis de teruro, antaŭ ol ili kuraĝis kuri tra la ŝaŭmo, ĵetata de lago al lago. La grandegaj ondoj saltis minace kaj oni ne povis scii, kie falos iliaj grizaj piedegoj; Anka kaj Biterąj timis, ke la potenca elemento dronigos ilin, kaj kuris rapide kiel timigitaj perdrikoj, premiĝante unu al la alia.
 
 —Anka, mi tremas de teruro. Kial vi prenis min?
 
@@ -1797,9 +1524,7 @@ cidis tie ĉi ripozi kaj varmigi sin, sed sur la mallarĝa bordo ne eble estis e
 
 —Vi rajdos, infano, vi rajdos, sed nun iru …
 
-ŝajnis al ili, ke la arbaro tute ne proksimiĝas. Ili iris kaj iris, kaj ĝi la estis same malgranda, same nebula. La monotona bruego de la lago tute malklarigis iliajn pensojn. Anka volis sidiĝi kaj lasi la ondojn superakvi ŝin. Per la senforta pendiĝo de la manoj, per la faletanta irado de la infano ŝi divenis, ke 72
-
-LA FUNDO DE L’MIZERO
+ŝajnis al ili, ke la arbaro tute ne proksimiĝas. Ili iris kaj iris, kaj ĝi la estis same malgranda, same nebula. La monotona bruego de la lago tute malklarigis iliajn pensojn. Anka volis sidiĝi kaj lasi la ondojn superakvi ŝin. Per la senforta pendiĝo de la manoj, per la faletanta irado de la infano ŝi divenis, ke
 
 
 ankaŭ Biterąj deziris tion, tiam ŝi premis la dentojn, fermetis la okulojn kaj iris rapide tra la nudaj marĉoj ĝis ia ŝanĝo, blovo de la vento, izola arbo aŭ mevo forkuranta de superakvi-ta sablaĵo, rekonsciigis ŝin.
@@ -1816,16 +1541,9 @@ Ili iris ĉe la bordo de la lago-grandegulo. iaj ŝaŭmaj ondoj briletis en la k
 
 Anka rimarkis en la arbaro palan rubandon de vojeto. Ili iris nun unu post la alia. La knabineto tremis ĉi tie pli forte ol ĉe la lago.
 
-—Mi timas la homojn! Anka, permesu al mi teni vian ma-
+—Mi timas la homojn! Anka, permesu al mi teni vian manon … Mi tre timas, kiam mi ne sentas vin …
 
-non … Mi tre timas, kiam mi ne sentas vin …
-
-La vojeto kondukis ilin al nuda monteto, de kies supro oni vidis la potencan lagon. Sur la monteto jurto staris, de la ka-73
-
-LA FUNDO DE L’MIZERO
-
-
-mentubo supreniris fumo, sed en la fenestroj la nokto regis.
+La vojeto kondukis ilin al nuda monteto, de kies supro oni vidis la potencan lagon. Sur la monteto jurto staris, de la kamentubo supreniris fumo, sed en la fenestroj la nokto regis.
 
 La jurto estis malriĉa, sen provizejo, sen ĉirkaŭbaro. Sur la deklivo de la palaj bordoj, lavataj de la ondoj, kuŝis boato renversite.
 
@@ -1853,9 +1571,7 @@ Li devis ripeti la ordonon kelkfoje: fine la knabo vekiĝis el profunda dormo, l
 
 —Pardonu sinjoro — komencis Anka per tremanta voĉo. —
 
-En la arbaro estas malvarme kaj mallume … Nia meĉaĵo malsekiĝis … ni ne povas ekbruligi fajron … Ni timas la sovaĝajn bestojn … Ne koleru sinjoro. Ni estas el la malbenita loko, sed 74
-
-LA FUNDO DE L’MIZERO
+En la arbaro estas malvarme kaj mallume … Nia meĉaĵo malsekiĝis … ni ne povas ekbruligi fajron … Ni timas la sovaĝajn bestojn … Ne koleru sinjoro. Ni estas el la malbenita loko, sed
 
 
 ni ambaŭ estas ankoraŭ sanaj … Ne forpelu nin, aŭ donu almenaŭ brulaĵon al ni.
@@ -1892,25 +1608,15 @@ La maljunulo ekĝemis:
 
 —Ni iras al la princo.
 
-Anka rakontis mallonge pri la celo de la vojaĝo. ŝi rakon-75
-
-LA FUNDO DE L’MIZERO
-
-
-tis pri Mergenj, pri la malsato minacanta ilin, pri Sennazulo kaj pri la frato, kiuj proprigis al si ŝian havon …
+Anka rakontis mallonge pri la celo de la vojaĝo. ŝi rakontis pri Mergenj, pri la malsato minacanta ilin, pri Sennazulo kaj pri la frato, kiuj proprigis al si ŝian havon …
 
 —Mi aŭdis pri tio. La princo ordonis, ke ili redonu vian propraĵon, sed via frato ne obeos la komunumon, li estas potenca, riĉa homo. ĉu vi havas vazon por la manĝaĵo? Niajn vazojn ni ne povas doni al vi ĉar ni devus poste ilin bruligi, kaj ni mem havas malmulte da ili. Vi venis tien ĉi, vi restu. Vi dormos sur la benko ĉe la pordo. Vi diras, ke vi estas sanaj?
 
-Kiu povas scii! Vi kuŝiĝu, morgaŭ ni verŝos sur la benkon bolantan akvon … La malriĉulo egalas la leprulon … Nenio fari-
-
-ĝas sen la volo de Dio. Morgaŭ la knabo montros al vi la vojon …
+Kiu povas scii! Vi kuŝiĝu, morgaŭ ni verŝos sur la benkon bolantan akvon … La malriĉulo egalas la leprulon … Nenio fariĝas sen la volo de Dio. Morgaŭ la knabo montros al vi la vojon …
 
 —Dio donu al vi sanon kaj feliĉon — laŭte benis lin Anka.
 
 Ili manĝis avide kaj etendinte sin sur la malmola, sed seka benko, ili tuj ekdormis, lacaj de la malfacila vojo.
-
-
-LA FUNDO DE L’MIZERO
 
 
 IX
@@ -1928,9 +1634,6 @@ Dio helpas nin! La gepatroj aĉetos en ĉi tiu jaro knabinon por mi, ankaŭ blin
 … Ni estas blindaj unu generacio post la alia, jam de praavoj
 
 … Nun mi lasas vin, vi ne erariĝos … Iru kun Dio … Vi jam vidas la fumon de la princo, al la najbaroj la vojeto kondukos vin … Ne estas malproksime!
-
-
-LA FUNDO DE L’MIZERO
 
 
 Anka ekrigardis, kien li montris per la mano, kaj ekvidis super la akvoj, super la verda bordo fuman kolonon …
@@ -1951,9 +1654,7 @@ Ili iris solaj. La ĉirkaŭaĵo estis pli kaj pli seka, gaja; la belaj arboj mir
 
 Ju pli multe da signoj de proksima homa loĝejo ili renkontis, — lignon, ĉirkaŭbarojn, signojn ĉevalajn kaj brutajn, des pli granda fariĝis la timo de Anka.
 
-Fine tra la arbetaĵo ili ekvidis maldensejon kaj sur ĝi konstruaĵojn kaj fumon de la kamentuboj. Anka demetis de Biter-
-
-ąj la tukon.
+Fine tra la arbetaĵo ili ekvidis maldensejon kaj sur ĝi konstruaĵojn kaj fumon de la kamentuboj. Anka demetis de Biterąj la tukon.
 
 —Poste mi redonos al vi, nun ili vidu, ke vi havas nenion.
 
@@ -1964,12 +1665,7 @@ La knabineto rimarkis, ke la manoj kaj lipoj de Anka tremis; ŝi mem komencis tr
 arbaro. Nigra hundo bojante ĵetis sin al ili.
 
 
-LA FUNDO DE L’MIZERO
-
-
-—Ho!… hot … hooo! Homoj! — kriis ŝi seninterrompe, al-
-
-proksimiĝante malrapide.
+—Ho!… hot … hooo! Homoj! — kriis ŝi seninterrompe, alproksimiĝante malrapide.
 
 —Kiu krias? Kion vi volas kaj de kie vi estas? — ekkriis neatendite knabo en blua ĉemizo, elirante el la porka stalo. Li tenis ŝovelilon en la mano, verŝajne li elĵetis sterkon.
 
@@ -1983,25 +1679,16 @@ Anka plorante rakontis sian tutan historion.
 
 —Vi estas Anka … la malfeliĉa Anka? — kompate balbutis li, iom alproksimiĝis, kolektis branĉaĵon kaj ekbruligis fajron inter si kaj la leprulinoj. Tiam ankaŭ la virinoj kaj infanoj alproksimiĝis.
 
-—Aŭskultu: malproksime estas al la princo … Vi iris mal-
-
-ĝustan vojon … Mi ne konsilas al vi iri al la princo … Anka, vi ja estas prudenta kaj bona virino, vi devas scii, ke danĝere estas disportadi la infekton en la mondo … Vi diras, ke vi estas sana, sed ĉu vi povas scii?… Vi loĝas kun ili, spiras la sam-an aeron, tuŝas ilin … Vi portas en viaj vestoj ilian elspiraĵon, iliajn sukojn … Aŭskultu: restu ĉi tie, mi iros al la princo kaj alveturigas lin … Li venos, oni ja ne povas lasi vin sen helpo, tia leĝo ne ekzistas …
+—Aŭskultu: malproksime estas al la princo … Vi iris malĝustan vojon … Mi ne konsilas al vi iri al la princo … Anka, vi ja estas prudenta kaj bona virino, vi devas scii, ke danĝere estas disportadi la infekton en la mondo … Vi diras, ke vi estas sana, sed ĉu vi povas scii?… Vi loĝas kun ili, spiras la sam-an aeron, tuŝas ilin … Vi portas en viaj vestoj ilian elspiraĵon, iliajn sukojn … Aŭskultu: restu ĉi tie, mi iros al la princo kaj alveturigas lin … Li venos, oni ja ne povas lasi vin sen helpo, tia leĝo ne ekzistas …
 
 —Kompreneble, ili ja estas ankaŭ vivaj animoj! — konsentis la virinoj …
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Rigardu, kiel maldika estas la knabino … La kapo kiel floreto, la manoj kiel herbetoj …
 
-—Nur ŝia ventro estas granda! — rimarkis la knabo. — Ver-
+—Nur ŝia ventro estas granda! — rimarkis la knabo. — Verŝajne la larika ŝelo kaŭzis tion …
 
-ŝajne la larika ŝelo kaŭzis tion …
-
-—Kompreneble … Ili manĝas nur larikan ŝelon! — konsen-
-
-tis alia virino.
+—Kompreneble … Ili manĝas nur larikan ŝelon! — konsentis alia virino.
 
 —Bela knabineto! Rigardu ŝiajn grandajn okulojn, ŝiajn okulharojn densajn kaj fleksitajn …
 
@@ -2021,18 +1708,11 @@ Antaŭ la forveturo la muljuna Jakuto ordonis, ke oni donu nutraĵon al la venin
 
 —Surmetu la ĉemizon, surmetu! — ili kriis al Biterąj, kiu estis ravita de la preskaŭ nova ĉemizo, sed ne sciis, kion fari kun ĝi. Eĉ kelkajara etulo, alrampis al la fajro kaj ĵetis al la knabineto lerte skulptitajn ludilojn.
 
-—Brave, Murun! Li ankaŭ volas ion donaci … Prenu infa-
-
-no, tio estas bovinoj.
+—Brave, Murun! Li ankaŭ volas ion donaci … Prenu infano, tio estas bovinoj.
 
 Biterąj avide kaptis kaj kaŝis ilin; ŝiaj okuloj brilis, ŝi estis ravita, feliĉa.
 
-Kiam la princo venis, la virino kaj infano sataj, ripozintaj sidis sur la sama loko post la fajro kaj gaje babilis kun amaso da scivoluloj, kiuj venis unu post la alia. Anka ekvidis la princon kaj tuj rememoriĝis pri la pasintaj kaj ree ŝin aten-80
-
-LA FUNDO DE L’MIZERO
-
-
-dantaj doloroj. Sinceraj larmoj ekfluis el ŝiaj okuloj, kiam ŝi komencis rakonti al li ilian komunan mizeron.
+Kiam la princo venis, la virino kaj infano sataj, ripozintaj sidis sur la sama loko post la fajro kaj gaje babilis kun amaso da scivoluloj, kiuj venis unu post la alia. Anka ekvidis la princon kaj tuj rememoriĝis pri la pasintaj kaj ree ŝin atendantaj doloroj. Sinceraj larmoj ekfluis el ŝiaj okuloj, kiam ŝi komencis rakonti al li ilian komunan mizeron.
 
 —Multaj homoj plendis, ke vi senĉese maltrankviligas ilin, ŝtelas retojn, provizojn … — diris severe la princo.
 
@@ -2044,24 +1724,15 @@ dantaj doloroj. Sinceraj larmoj ekfluis el ŝiaj okuloj, kiam ŝi komencis rakon
 
 —Kaj bovinon … miajn bovinojn, kiujn proprigis al si Pjotruĉan.
 
-—Mi jam ordonis, ke li redonu … unu bovinon. Li diras, ke vi ŝuldas al li por la nutraĵo, por la fojno, kiun la brutaro man-
-
-ĝis dum la vintro …
+—Mi jam ordonis, ke li redonu … unu bovinon. Li diras, ke vi ŝuldas al li por la nutraĵo, por la fojno, kiun la brutaro manĝis dum la vintro …
 
 —Mia Dio … Mi ja laboris, li ja manĝis lakton kaj buteron de ĉi tiuj bovinoj … Senkonsciencaj estas la homoj!
 
 —Sufiĉe! Li redonos unu kun ido. Mi ripetos al li mian ordonon. Nun vi foriru. Oni veturigos vin tra la lago, por ke vi ne vagu tro multe inter homoj. Malpli longa estos via vojo!…
 
-Fortika, malgaja Jakuto atendis ĉe la bordo en boato. Apude alia boato staris, iom pli granda, por du personoj. En ĝin Anka metis la donacitajn manĝaĵon, retojn kaj vestojn. Anka puŝis la boaton sur la akvon, sidiĝis kun Biterąj kaj prenis remilon. La Jakuto ligis ilian boaton al la sia, veturis antaŭe kaj tiamaniere trenis ilin. La ondoj delikate balancis la voja-
+Fortika, malgaja Jakuto atendis ĉe la bordo en boato. Apude alia boato staris, iom pli granda, por du personoj. En ĝin Anka metis la donacitajn manĝaĵon, retojn kaj vestojn. Anka puŝis la boaton sur la akvon, sidiĝis kun Biterąj kaj prenis remilon. La Jakuto ligis ilian boaton al la sia, veturis antaŭe kaj tiamaniere trenis ilin. La ondoj delikate balancis la vojaĝantojn. La Jakutoj, kiuj kolektiĝis sur la bordo, kriis al ili kon-solajn kaj kompatajn vortojn.
 
-ĝantojn. La Jakutoj, kiuj kolektiĝis sur la bordo, kriis al ili kon-solajn kaj kompatajn vortojn.
-
-La vento preskaŭ tute malfortiĝis. Ili glitis rapide sur la travideblaj ondoj, oritaj de la suno. Malantaŭe paliĝis, mal-81
-
-LA FUNDO DE L’MIZERO
-
-
-grandiĝis kaj malaperis la verdaj arbaroj, kie la ”homoj” loĝis, kie kreskis grandaj arboj, kie riĉa vivo bolis, kie oni aŭdis ne sole plorojn kaj ĝemojn … Anka returnis sin, por ankoraŭ unu fojon rigardi ĉion tion, kaj ekvidis larĝan fumon, rampantan sur la tero. Oni bruligis la lokon, kie ili sidis!
+La vento preskaŭ tute malfortiĝis. Ili glitis rapide sur la travideblaj ondoj, oritaj de la suno. Malantaŭe paliĝis, malgrandiĝis kaj malaperis la verdaj arbaroj, kie la ”homoj” loĝis, kie kreskis grandaj arboj, kie riĉa vivo bolis, kie oni aŭdis ne sole plorojn kaj ĝemojn … Anka returnis sin, por ankoraŭ unu fojon rigardi ĉion tion, kaj ekvidis larĝan fumon, rampantan sur la tero. Oni bruligis la lokon, kie ili sidis!
 
 La silenta remanto elŝipigis ilin, montris la vojon, kaj forveturis. Ili pasigis la nokton en la tajgo kaj venis hejmen apenaŭ tagmeze. La neatendita sukceso de la vojaĝo ebriigis ĉiujn.
 
@@ -2073,11 +1744,7 @@ Vi diras, ke la princo nin ĉiujn koleras!… Mi ja antaŭdiris, ke oni ekkolero
 
 Gregorio rigardis la fajron, sur kiu teo en vazo bolis, kaj pensis pri nenio, sed li jese balancis la kapon.
 
-En la sekvinta tago ili jam havis freŝajn fiŝojn. Dika tavolo da kuloj dronigitaj de la ventego kovris la lagojn ĉe la bordoj kaj allogis amason da blankeskvamaj salmoj. La donacitaj retoj estis malnovaj kaj difektitaj, sed pro la granda kvanto da fiŝoj oni povus kapti ilin eĉ per antaŭtuko. Mergenj ion suspektis, eble eĉ rimarkis la boaton. Kelkfoje ŝi alproksimi-
-
-ĝis, staris en la boato kaj tenante super la okuloj la manplaton por gardi ilntraŭ la suno, ŝi longe rigardis la jurton de la lepruloj. ŝia gracia bronzkolora korpo, kovrita nur sur 82
-
-LA FUNDO DE L’MIZERO
+En la sekvinta tago ili jam havis freŝajn fiŝojn. Dika tavolo da kuloj dronigitaj de la ventego kovris la lagojn ĉe la bordoj kaj allogis amason da blankeskvamaj salmoj. La donacitaj retoj estis malnovaj kaj difektitaj, sed pro la granda kvanto da fiŝoj oni povus kapti ilin eĉ per antaŭtuko. Mergenj ion suspektis, eble eĉ rimarkis la boaton. Kelkfoje ŝi alproksimiĝis, staris en la boato kaj tenante super la okuloj la manplaton por gardi ilntraŭ la suno, ŝi longe rigardis la jurton de la lepruloj. ŝia gracia bronzkolora korpo, kovrita nur sur
 
 
 la femuroj per mallarĝa tuko, akre kontrastis la fonon de la bluaj, trankvile dormantaj lagoj.
@@ -2100,9 +1767,7 @@ Sed lia memfido daŭris ne longe. Post kelke da tagoj li revenis kolera kaj konf
 
 koleris Gregorio. La sukceso de Anka kaj precipe la espero ricevi bovinon ree inspiris al li kuraĝon kaj amon al la edzino. La vundo sur la brako malgrandiĝis kaj li esperis resaniĝon.
 
-—Ni veturos kaj prenos ŝian boaton — diris li post mo-
-
-mento. — ŝi restu sur la insulo ĝis la fino de la somero … ŝi ne mortos pro malsato. ŝi kolektis grandajn provizojn … Cetere ni povos sendi al ŝi, se ŝi bezonos.
+—Ni veturos kaj prenos ŝian boaton — diris li post momento. — ŝi restu sur la insulo ĝis la fino de la somero … ŝi ne mortos pro malsato. ŝi kolektis grandajn provizojn … Cetere ni povos sendi al ŝi, se ŝi bezonos.
 
 —Kompreneble! Kiam ni kvietigos ŝin, nenio mankos al ni!
 
@@ -2110,9 +1775,7 @@ unu, du, tri … dek-du retojn ni havos kaj la baron … Ni havos amason da fiŝ
 
 —Jes. Tio estas ankaŭ mia opinio. Sed se ni ne sukcesos?
 
-—Kial? ĉu vi pensas, ke ŝi kontraŭbatalos? Tiam ni … lasos ŝin! Ni ja volas preni ne ŝin, sed la boaton … Ni ne bezonas 83
-
-LA FUNDO DE L’MIZERO
+—Kial? ĉu vi pensas, ke ŝi kontraŭbatalos? Tiam ni … lasos ŝin! Ni ja volas preni ne ŝin, sed la boaton … Ni ne bezonas
 
 
 aliri proksime … Ni prenos la boaton, kaj se ni ne sukcesos, ni revenos sen ĝi … ĉio restos kiel antaŭe!
@@ -2129,9 +1792,7 @@ Preskaŭ ne levante la remilojn ili veturis ĉe la bordo. La larikoj klinis al i
 
 —Eble sovaĝa besto! — murmuretis Fluo, sed Gregorio
 
-montris per la remilo pli alten, kie apenaŭ videblaj nubetoj de griza fumo supreniris kaj malaperis en la blua aero de la nokto. Pli malalte, inter la arboj ili vidis konturojn de tendo. Ili haltis, duone eltiris la boaton el la akvo kaj komencis traserĉi mallaŭte la bordon kiel musoj. Sed ili ne trovis tie la boaton 84
-
-LA FUNDO DE L’MIZERO
+montris per la remilo pli alten, kie apenaŭ videblaj nubetoj de griza fumo supreniris kaj malaperis en la blua aero de la nokto. Pli malalte, inter la arboj ili vidis konturojn de tendo. Ili haltis, duone eltiris la boaton el la akvo kaj komencis traserĉi mallaŭte la bordon kiel musoj. Sed ili ne trovis tie la boaton
 
 
 de Mergenj. Tiam kuraĝiĝinte pro la ĉirkaŭa silento, ili eniris en la arbetaĵon. Ankaŭ tie ne estis la boato.
@@ -2161,9 +1822,6 @@ Sur la bordo staris Mergenj, nuda, arĝentita de la luno, kun streĉita pafarko 
 —Ne ĝoju, inferanino; la princo promesis, ke oni kaptos vin kiel sovaĝan beston!
 
 
-LA FUNDO DE L’MIZERO
-
-
 Anstataŭ respondo ŝi sendis al ili sagon kaj trafis la randon de la boato. Granda peco da tabulo defalis en la akvon.
 
 —Vi forkuras!… Ho viroj, ho batalistoj, kiujn oni povas meti sur la manplaton kaj forblovi en la aeron!…
@@ -2174,26 +1832,14 @@ Anstataŭ respondo ŝi sendis al ili sagon kaj trafis la randon de la boato. Gra
 
 Post kelke da tagoj Fluo perdiĝis. La teruritaj Jakutoj, ne trovinte eĉ postesignojn, ne sciis, kion entrepreni. En la komenco Gregorio pensis, ke li dronis, ili do serĉis la korpon kaj boaton apud la bordoj de la lagoj, sed ili trovis nenion; kvankam forta vento blovis, la ondoj ne elĵetis la malfeliĉulon. La lepruloj ree restis sen manĝaĵo, sen iloj por la fiŝkaptado. La bovinon oni ne sendis al ili. La malesperinta Anka ree iris al la princo.
 
-ŝi iris la ĝustan vojon kaj venis al li rapide kaj sen aven-turoj. Sed oni akceptis ŝin ekstreme severe. La princo kriis, kunpremis la pugnojn kaj sendube li batus ŝin, se li ne timus aliri kaj ŝin tuŝi. Oni nenion donacis, oni eĉ ne donis man-
-
-ĝaĵon. Jakuto, rajdante sur ĉevalo kun ponardego en la mano, pelis ŝin antaŭ si! ŝi iris tremanta, tute senforta de malsato kaj laciĝo. ŝia sola konsolo estis la bovino kun ido. La rajdanto kondukis la bruton, liginte ŝin al la vosto de la ĉevalo. La bovido, kiu kuŝis ligita en korbo, plende blekis.
+ŝi iris la ĝustan vojon kaj venis al li rapide kaj sen aven-turoj. Sed oni akceptis ŝin ekstreme severe. La princo kriis, kunpremis la pugnojn kaj sendube li batus ŝin, se li ne timus aliri kaj ŝin tuŝi. Oni nenion donacis, oni eĉ ne donis manĝaĵon. Jakuto, rajdante sur ĉevalo kun ponardego en la mano, pelis ŝin antaŭ si! ŝi iris tremanta, tute senforta de malsato kaj laciĝo. ŝia sola konsolo estis la bovino kun ido. La rajdanto kondukis la bruton, liginte ŝin al la vosto de la ĉevalo. La bovido, kiu kuŝis ligita en korbo, plende blekis.
 
 —Fine ni havos ilin … — murmuretis Anka per sekiĝintaj lipoj.
 
-Trairinte la duonon da vojo, ŝi eksentis, ke ŝi ne povos plu iri, ke ŝi falos. ŝi do petis la Jakuton, ke li permesu al ŝi suĉi iom da lakto el la plenaj mamoj de la bovino kaj ke li ellasu momenton la idon el la malvasta korbo. Li konsentis, ekbru-86
-
-LA FUNDO DE L’MIZERO
-
-
-ligis fajron, kuiris teon kaj neamike rigardis la virinon, kiu kisis kaj karesis la beston.
+Trairinte la duonon da vojo, ŝi eksentis, ke ŝi ne povos plu iri, ke ŝi falos. ŝi do petis la Jakuton, ke li permesu al ŝi suĉi iom da lakto el la plenaj mamoj de la bovino kaj ke li ellasu momenton la idon el la malvasta korbo. Li konsentis, ekbruligis fajron, kuiris teon kaj neamike rigardis la virinon, kiu kisis kaj karesis la beston.
 
 —Domaĝe estas! ŝi putriĝos, kiel vi! — murmuretis li kolere.
 
-
-LA FUNDO DE L’MIZERO
-
-
-X
 
 Nur nun Biterąj eksciis, kiel agrable estas havi kunulon.
 
@@ -2205,9 +1851,7 @@ Bovĉjo havis ankaŭ aliajn, eksterordinarajn kaj rimarkin-dajn kutimojn. Dum la
 
 —Malsaĝa Bovĉjo! Estas nenio, trankviliĝu. Ni iru en la jurton, ĉar Anka baldaŭ alpelos Patrinjon!
 
-Ilia amikeco tiel grandiĝis, ke Biterąj metis al Bovĉjo en la 88
-
-LA FUNDO DE L’MIZERO
+Ilia amikeco tiel grandiĝis, ke Biterąj metis al Bovĉjo en la
 
 
 trogon ”por ĉiam” la belajn, skulptitajn ludilojn donacitajn al ŝi. ŝi eĉ volis dormi kun li eli lia angulo post la kameno, sed Anka ne konsentis.
@@ -2216,28 +1860,20 @@ trogon ”por ĉiam” la belajn, skulptitajn ludilojn donacitajn al ŝi. ŝi e�
 
 Via ronkado timigus lin kaj li povus sufokiĝi per la ŝnuro aŭ rompi la piedon. La bruto ankaŭ devas havi liberantempon.
 
-Biterąj tre bone sciis, kio estas ”libera tempo”, ĉar ŝi preskaŭ neniam havis ĝin, precipe post la alveno de la bovino. Al la devo balai la ĉambron, porti akvon, kolekti vergaĵon, okzaIon, herbojn, berojn, aliĝis la zorgado pri la bovino. ĉiam la knabino devis scii, kie ŝi estas. Kiam ŝi ne vidis la bovinon de la plata tegmento de la jurto, ŝi iris en la arbetaĵon, sur la marĉojn, kie ankoraŭ multe da kuloj estis. La granda, varma korpo de la besto, longa, moviĝema vosto, brilaj kornoj, fra-pantaj hufoj, ruĝa lango, nigraj, elstarantaj okuloj, rapidaj senpaciencaj movoj, kiam ŝi pelis for la insektojn aŭ kuris en la jurton blekante kaj balancante la mamojn, — ĉio tio sen-
-
-ĉese plenigis la infanon per timo, kiun eĉ la amo al Bovĉjo ne povis forigi. — ”ŝi ja estas lia patrinjo!” — trankviligis ŝi sin mem. Sed malgraŭ tio, kiam ŝi devis peli la erarintan bovinon hejmen, ŝi prenis grandan branĉon kaj, kaŝinte sin post la arboj, ŝi laŭte kriis:
+Biterąj tre bone sciis, kio estas ”libera tempo”, ĉar ŝi preskaŭ neniam havis ĝin, precipe post la alveno de la bovino. Al la devo balai la ĉambron, porti akvon, kolekti vergaĵon, okzaIon, herbojn, berojn, aliĝis la zorgado pri la bovino. ĉiam la knabino devis scii, kie ŝi estas. Kiam ŝi ne vidis la bovinon de la plata tegmento de la jurto, ŝi iris en la arbetaĵon, sur la marĉojn, kie ankoraŭ multe da kuloj estis. La granda, varma korpo de la besto, longa, moviĝema vosto, brilaj kornoj, fra-pantaj hufoj, ruĝa lango, nigraj, elstarantaj okuloj, rapidaj senpaciencaj movoj, kiam ŝi pelis for la insektojn aŭ kuris en la jurton blekante kaj balancante la mamojn, — ĉio tio senĉese plenigis la infanon per timo, kiun eĉ la amo al Bovĉjo ne povis forigi. — ”ŝi ja estas lia patrinjo!” — trankviligis ŝi sin mem. Sed malgraŭ tio, kiam ŝi devis peli la erarintan bovinon hejmen, ŝi prenis grandan branĉon kaj, kaŝinte sin post la arboj, ŝi laŭte kriis:
 
 —Hot! hot!
 
-La bovino mire ŝin rigardis kaj iris malrapide al la jurto, alvokante per bleko la idon, pri kiu ŝi tute forgesis pro la dol-
+La bovino mire ŝin rigardis kaj iris malrapide al la jurto, alvokante per bleko la idon, pri kiu ŝi tute forgesis pro la dolĉaj herboj. Tiuj ĉi blekoj, la krakado de la rompataj arbetoj, brua hufofrapado de la besto, ĝia odoro kaj ronkado, kiam enkondukita en la jurton por la nokto ĝi malrapide maĉis la fojnon, agrable tiklis la aŭdadon der malbenitoj.
 
-ĉaj herboj. Tiuj ĉi blekoj, la krakado de la rompataj arbetoj, brua hufofrapado de la besto, ĝia odoro kaj ronkado, kiam enkondukita en la jurton por la nokto ĝi malrapide maĉis la fojnon, agrable tiklis la aŭdadon der malbenitoj.
-
-—Miaj okuloj ankoraŭ vidas vin. Mi ankoraŭ sentas vian 89
-
-LA FUNDO DE L’MIZERO
+—Miaj okuloj ankoraŭ vidas vin. Mi ankoraŭ sentas vian
 
 
 odoron antaŭ mia morto … Sed Salban ne ĝisvivis, ne ĝisvivis!… — plendis Kutuja˛sit.
 
 Ilia vivo ekfluis pli rapide, novaj esperoj vizitis iliajn korojn, revenis la antaŭaj kutimoj. Gregorio falĉis la tutan tagon. An-ka rastis kaj sekigis la fojnon. Cetere, kion ŝi ne faris? De la tago, kiam ŝi akiris la bovinon, la dezirego labori konsumis ŝin.
 
-Kiel muso ŝi kolektis en la ĉirkaŭaĵo kaj portis en la jurton ĉion, kio taŭgis kiel manĝaĵo, kio havis nutran indon. Krata-go, nigra ribo, okzalo, sovaĝa cepo, dolĉaj herboj, ”lagaj man-
-
-ĝaĵoj”, gelatenaj globoj de ”akvaj beroj”, — ĉion tion oni povas konservi kaj uzi, ĉar ĝi fluidiĝas en la acida lakto kaj pli-bonigas ĝian guston kaj nutran indon. La loĝantoj de la jurto tute ne suspektis, ke Anka ŝparas multe da lakto. Ili ja havis ĉiutage matene teon el herboj kun lakto, vespere supon el acida lakto kaj beroj, en la festoj kuiritan lakton sen aldonoj, iafoje eĉ buteron. Anka estis bona mastrino, ĉion ili havis kiel la ”homoj”. Negrandajn porciojn ili ricevis; tio estis kompre-nebla, ĉar eĉ bona bovino liveras ne multe da lakto.
+Kiel muso ŝi kolektis en la ĉirkaŭaĵo kaj portis en la jurton ĉion, kio taŭgis kiel manĝaĵo, kio havis nutran indon. Krata-go, nigra ribo, okzalo, sovaĝa cepo, dolĉaj herboj, ”lagaj manĝaĵoj”, gelatenaj globoj de ”akvaj beroj”, — ĉion tion oni povas konservi kaj uzi, ĉar ĝi fluidiĝas en la acida lakto kaj pli-bonigas ĝian guston kaj nutran indon. La loĝantoj de la jurto tute ne suspektis, ke Anka ŝparas multe da lakto. Ili ja havis ĉiutage matene teon el herboj kun lakto, vespere supon el acida lakto kaj beroj, en la festoj kuiritan lakton sen aldonoj, iafoje eĉ buteron. Anka estis bona mastrino, ĉion ili havis kiel la ”homoj”. Negrandajn porciojn ili ricevis; tio estis kompre-nebla, ĉar eĉ bona bovino liveras ne multe da lakto.
 
 —En la sekvonta jaro ni havos ree bovidon, kune tri brutojn. Dume Bovĉjo grandiĝos kaj povos veturigi fiŝojn kaj lignon. Kiom da tempo, kiom da fortoj nun pereas vane! — diris Gregorio.
 
@@ -2245,9 +1881,7 @@ Kiel muso ŝi kolektis en la ĉirkaŭaĵo kaj portis en la jurton ĉion, kio ta�
 
 —Ne malĝoju, ne pensu … Forgesu, ke vi estas malsana …
 
-ĉiu, kiu vivas, devas morti … Anstataŭe diru, ĉu vi faros ĝis 90
-
-LA FUNDO DE L’MIZERO
+ĉiu, kiu vivas, devas morti … Anstataŭe diru, ĉu vi faros ĝis
 
 
 morgaŭ novan barelon por la acida lakto, ĉar la unua jam estas plena.
@@ -2279,9 +1913,6 @@ La okazo tre ekscitis ĉiujn kaj timigis Ankan. ŝi nevolonte parolis pri ĝi. F
 —Kion vi dirus, se ŝi … revenus?
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Ne, ŝi ne revenos. ŝi estas riĉa … havas ĉion.
 
 —Sed Fluo, Fluo?… Kiu povus supozi, ke li ne dronis?…
@@ -2298,9 +1929,7 @@ Unu tagon ŝi revenis kun multepeza korbo, plena de fiŝoj, kiam ŝi rimarkis ap
 
 —Mi vivas, Anka, mi vivas, danke al Dio! Kaj mi venis viziti vin.
 
-— Kiel vi fartas? Kie vi kaŝas vin? Kial vi nin forlasis? Kial vi ne venadis al ni?… Kiom da timo kaj maltrinkvilo vi kaŭ-
-
-zis al ni!…
+— Kiel vi fartas? Kie vi kaŝas vin? Kial vi nin forlasis? Kial vi ne venadis al ni?… Kiom da timo kaj maltrinkvilo vi kaŭzis al ni!…
 
 —Mi ne havis tempon — balbutis la konfuzita fiŝkaptisto.
 
@@ -2317,9 +1946,6 @@ Fluo gratis la mentonon kaj deturnis la vizaĝon de ŝia rigardo.
 —Kuru, Biterąj … voku la mastron! Diru, ke Fluo venis …
 
 —Reviviĝinta?
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Jes, reviviĝinta! Kuru!
@@ -2354,14 +1980,10 @@ La knabino apenaŭ havis tempon palpebrumi al Bovĉjo kaj rapidis sur la herbejo
 
 diris plende Fluo. — Donu la falĉilon, Gregorio, mi provos, ĉu mi ne forgesis …
 
-Li restis ĉe ili ĝis la vespero. Li atente rigardis la bovinon kaj donis kelkajn saĝajn konsilojn; li karesis Bovĉjon, kisis 93
-
-LA FUNDO DE L’MIZERO
+Li restis ĉe ili ĝis la vespero. Li atente rigardis la bovinon kaj donis kelkajn saĝajn konsilojn; li karesis Bovĉjon, kisis
 
 
-Biterąjon kaj donacis al ŝi grasan fumaĵitan fiŝon. Anka ver-
-
-ŝis al li iom da lakto en sitelon el betula ŝelo.
+Biterąjon kaj donacis al ŝi grasan fumaĵitan fiŝon. Anka verŝis al li iom da lakto en sitelon el betula ŝelo.
 
 —Eble vi restos dum la nokto?… Ventas, leviĝos altaj ondoj!… — ili logis lin.
 
@@ -2370,16 +1992,11 @@ Biterąjon kaj donacis al ŝi grasan fumaĵitan fiŝon. Anka ver-
 La bonulo prenis la sitelon kaj eklamis al la boato. ĉiuj akompanis lin kaj staris sur la bordo, ĝis li eniris kaj forveturis al la nigra, malproksima insulo, sur kiu la arboj kliniĝis al la akvo.
 
 
-LA FUNDO DE L’MIZERO
-
-
 XI
 
 Alflugis la ventoj de la okcidento, renkontis la ventojn de la oriento, nuboj saltis sur nubojn, en la ĉielo ekbolis kiel en poto, kaj kiam la norda vento blovis ĉien sian malvarman spiron, densa, seninterrompa, senfina pluvo komenciĝis. Pro
 
-ĝia siblanta bruo, pro ĝia sopira plaŭdo, miksita kun la plo-rego de la ondiĝintaj lagoj, la malkovrita, plata kaj malseka tero ŝajnis ankoraŭ pli malgaja. Sub la pluva vualo la ĉirkaŭ-
-
-aĵo fariĝis griza, malpura makulo … La malalte flugantaj nuboj malklarigis ĝiajn konturojn, estingis la brilon kaj la ko-lorojn, la ventoj skuis ĝin kiel forĵetitan ĉifonon, la pluvo faris en la tero abomenajn, malpurajn fendojn.
+ĝia siblanta bruo, pro ĝia sopira plaŭdo, miksita kun la plo-rego de la ondiĝintaj lagoj, la malkovrita, plata kaj malseka tero ŝajnis ankoraŭ pli malgaja. Sub la pluva vualo la ĉirkaŭaĵo fariĝis griza, malpura makulo … La malalte flugantaj nuboj malklarigis ĝiajn konturojn, estingis la brilon kaj la ko-lorojn, la ventoj skuis ĝin kiel forĵetitan ĉifonon, la pluvo faris en la tero abomenajn, malpurajn fendojn.
 
 —Feliĉe estas, ke ni ĝustatempe kolektis la fojnon!… — diris Gregorio.
 
@@ -2390,9 +2007,6 @@ aĵo fariĝis griza, malpura makulo … La malalte flugantaj nuboj malklarigis �
 —Atendu iom, ĉie gutos! Mi timas, ke la pluvo penetros en la provizejon, al la fumaĵitaj fiŝoj!
 
 La ”atendado” ne estis longa, ne ekzistis plu seka loko en la jurto. La malvarma akvo ne faras la homojn afablaj … Tamen ili ne malpacis. Anka gardis la ĝeneralan pacon per sia bonkara gajeco. Iafoje Gregorio, kies ostoj ree komencis dolori dum la pluva vetera, ekriproĉis ŝin:
-
-
-LA FUNDO DE L’MIZERO
 
 
 —La virinoj ĉiam, ĉiam …
@@ -2415,35 +2029,24 @@ Se la riproĉoj kaj la kolero ne ĉesis, Anka prenis lian manon kaj kondukis lin
 
 —Benita estu la mano, kiu sendis ŝin por malgrandigi niajn dolorojn! — laŭte preĝis Kutuja˛sit, senĉese tremanta de la malvarmo.
 
-Sed tio ne daŭris longe. Foje vespere la pordo subite malfermiĝis kaj Fluo kovrita de koto aperis en la jurto. Post li eniris Mergenj, maldikiĝinta, kun okuloj brilantaj kiel du tor-
-
-ĉoj.
+Sed tio ne daŭris longe. Foje vespere la pordo subite malfermiĝis kaj Fluo kovrita de koto aperis en la jurto. Post li eniris Mergenj, maldikiĝinta, kun okuloj brilantaj kiel du torĉoj.
 
 —La pluvo detruis, tute detruis la tegmenton de nia tendo.
 
 Ne eble estas resti tie … Same kiel sub libera ĉielo!… Brrr! Kia malvarmo. ĉe vi estas varme, seke …
 
-—Mi ĉiam diras, ke plej bone estas loĝi kune! — certigis Fluo, demetante la vestojn antaŭ la fajro. Mergenj iris en la 96
-
-LA FUNDO DE L’MIZERO
+—Mi ĉiam diras, ke plej bone estas loĝi kune! — certigis Fluo, demetante la vestojn antaŭ la fajro. Mergenj iris en la
 
 
 angulon kaj ĵetis la ligaĵon kun sia havo sur la antaŭan lokon.
 
 Ili akceptis ŝin; ĉu eble estis rifuzi? Ili tute ne intencis venĝi al ŝi ŝiajn atakojn. La domo apartenas al tiuj, kiuj bezonas varmon kaj rifuĝejon. Cetere ili ne povus kontraŭstari. Mergenj ekscitita, helpata de Fluo, kuraĝus ĉion fari.
 
-Sed kune kun ŝi malĝojo eniris en la jurton. ŝi nenion faris; kiel ordinare, ŝi parolis malmulte; la tutan tagon ŝi sidis ĉe la fajrujo kaj malŝpare bruligis vergaĵon, kiun Biterąj portis sur siaj maldikaj ŝultroj. La altkreska figuro de Mergenj, la severaj trajtoj de ŝia vizaĝo, la akraj brilaj okuloj silentigis ĉiun paroladon; ili parolis libere nur malantaŭ la pordo, kiam Mergenj ĉeestis, Fluo ne ŝercis. Anka tremis ĉiam, kiam la rigardo de la krimulino trafis ŝian vizaĝon aŭ fingrojn. La dol-
-
-ĉa bonkoreco, kiu antaŭ nelonge beligis la vizaĝon de la feliĉa mastrino, velkis kaj malaperis; ĝi ne konsolis plu la malfeliĉulojn dum la plej doloraj momentoj. ŝiaj antaŭzorgaj intencoj renkontis ĉiam diversajn neforigeblajn malhelpojn. Kutuja˛-
+Sed kune kun ŝi malĝojo eniris en la jurton. ŝi nenion faris; kiel ordinare, ŝi parolis malmulte; la tutan tagon ŝi sidis ĉe la fajrujo kaj malŝpare bruligis vergaĵon, kiun Biterąj portis sur siaj maldikaj ŝultroj. La altkreska figuro de Mergenj, la severaj trajtoj de ŝia vizaĝo, la akraj brilaj okuloj silentigis ĉiun paroladon; ili parolis libere nur malantaŭ la pordo, kiam Mergenj ĉeestis, Fluo ne ŝercis. Anka tremis ĉiam, kiam la rigardo de la krimulino trafis ŝian vizaĝon aŭ fingrojn. La dolĉa bonkoreco, kiu antaŭ nelonge beligis la vizaĝon de la feliĉa mastrino, velkis kaj malaperis; ĝi ne konsolis plu la malfeliĉulojn dum la plej doloraj momentoj. ŝiaj antaŭzorgaj intencoj renkontis ĉiam diversajn neforigeblajn malhelpojn. Kutuja˛-
 
 sit ofte ne havis akvon por siaj vundoj, ĉar Mergenj bezonis la vazon; la vestoj ne estis ĝustatempe rebonigitaj, ĉar Anka povis kudri nur ĉe la fajro, ŝi do devis atendi, ĝis Mergenj foriros de la kameno. ĉiu pli laŭta parolado, vekinta Mergenjon, kaŭzis riveron da malbenoj kaj insultoj. Biterąj ne sciis, kiam ŝi devis balai la ĉambron, ĉar Mergenj ekstreme koleris pro la polvo. Insultita, batita kaj timigita, la knabineto ne kuraĝis iafore iri al sia kuŝejo. Malgraŭ la malpermeso de Anka, ŝi tiam ekdormis, apogante la vizaĝeton al la dorso de Bovĉjo.
 
-Dume Mergenj, en la varma jurto kaj ĉirkaŭita de oportu-naĵoj, rapide resaniĝis. Post unu semajno ŝi ordonis, ke oni montru al ŝi ŝiajn riĉaĵojn, kiujn Fluo dum du tagoj transpor-97
-
-LA FUNDO DE L’MIZERO
-
-
-tis de la insulo. ŝi havis grandajn provizojn da fiŝa oleo kaj da sekigitaj fiŝoj, fine vestojn, vazojn, armilojn, — ĉion tion ŝi ŝtelis en la loĝejoj de fiŝkaptistoj, kiuj forlasis la hejmon dum la kaptado. ŝi rigardis ĉion fiere kiel batalisto.
+Dume Mergenj, en la varma jurto kaj ĉirkaŭita de oportu-naĵoj, rapide resaniĝis. Post unu semajno ŝi ordonis, ke oni montru al ŝi ŝiajn riĉaĵojn, kiujn Fluo dum du tagoj transportis de la insulo. ŝi havis grandajn provizojn da fiŝa oleo kaj da sekigitaj fiŝoj, fine vestojn, vazojn, armilojn, — ĉion tion ŝi ŝtelis en la loĝejoj de fiŝkaptistoj, kiuj forlasis la hejmon dum la kaptado. ŝi rigardis ĉion fiere kiel batalisto.
 
 —Kial vi malligis sen mia permeso la sekigitajn fiŝojn? —
 
@@ -2474,9 +2077,6 @@ Eĉ la kolektadon de fojno ŝi administris kaj ne permesis starigi amasegon.
 —i putros … ĝi estas malseka!
 
 
-LA FUNDO DE L’MIZERO
-
-
 Anka ploris la tutan vesperon, malpacis kun Gregorio, sed la fojno restis sur la herbejo.
 
 Dume venis la bela, flavruĝe-ora aŭtuno. La arbetoj de la sovaĝaj rozoj, framboj kaj nigraj riboj fariĝis en la nokta malvarmo ruĝaj kiel fajro; la delikataj oraj betuletoj tremis de plej facila ventetokaj deĵetis siajn travideblajn foliojn; la ĉielo fa-rigis arĝentkolora; la malvarmiĝantaj lagoj paliĝis. La mal-pure-verdaj muskoj kovris la flaviĝintajn herbojn kaj kolorigis la senfoliajn arbetaĵojn kaj arbarojn. La noktoj pligrandiĝis kaj plilongiĝis la vesperoj.
@@ -2499,12 +2099,7 @@ aliajn, kaj tuj la koro trankviliĝos.
 
 … Por kio vi taŭgas? — aldonis ŝi post momento.
 
-—Somere ni ree transveturos sur la insulon! — murmure-
-
-tis la Jakuto.
-
-
-LA FUNDO DE L’MIZERO
+—Somere ni ree transveturos sur la insulon! — murmuretis la Jakuto.
 
 
 —Somere! Kiu scias, kio okazos ĝis tiu tempo! Eble viaj piedoj defalos …
@@ -2529,23 +2124,16 @@ mi komencos kun Gregorio haki stangojn kaj trabojn …
 
 Gregorio, al kiu Anka komunikis siajn intencojn, flame ek-laboris. Dum kelke da tagoj ili starigis la stangojn kaj metis la tabulojn. Anka kaj Biterąj ŝmiris la murojn per argilo kaj surĵetis teron ĝis la tegmento.
 
-La eta jurto havis kamenon, du fenestretojn, plankon parte 100
-
-LA FUNDO DE L’MIZERO
+La eta jurto havis kamenon, du fenestretojn, plankon parte
 
 
-kovritan per tabuloj, parte per argilo. i estis tiel malgranda, ke la bovino preskaŭ tute ĝin plenigis. Nur inter la kameno kaj trogo estis malgranda spaco, kie oni povis starigi kuŝejon por du homoj. Mergenj ĉion rimarkis, sed ŝi silentis. Ankaŭ ŝi havis planojn por la tempo, kiam Anka kuŝos graveda en la stalo. Sur la tegmenton de la jurto kaj sur la nordan muron ili ĵetis fojnon, provizon, kiun ili bezonis por la brutoj. Baldaŭ ili solene enkondukis Bovĉjon kaj lian patrinon en la novan lo-
-
-ĝejon, kaj en la sekvinta tago Gregorio kaj Anka transportis en la stalon siajn litaĵojn.
+kovritan per tabuloj, parte per argilo. i estis tiel malgranda, ke la bovino preskaŭ tute ĝin plenigis. Nur inter la kameno kaj trogo estis malgranda spaco, kie oni povis starigi kuŝejon por du homoj. Mergenj ĉion rimarkis, sed ŝi silentis. Ankaŭ ŝi havis planojn por la tempo, kiam Anka kuŝos graveda en la stalo. Sur la tegmenton de la jurto kaj sur la nordan muron ili ĵetis fojnon, provizon, kiun ili bezonis por la brutoj. Baldaŭ ili solene enkondukis Bovĉjon kaj lian patrinon en la novan loĝejon, kaj en la sekvinta tago Gregorio kaj Anka transportis en la stalon siajn litaĵojn.
 
 En la komenco ili pasigis tie nur la noktojn; poste ili pli kaj pli frue kuris en sian dometon; pli kaj pli longe brulis en ĝia kameno gaja fajreto. Biterąj sidis tie senĉese; ŝi eĉ dormus tie, se ne mankus libera loko. Sed la jurto intence pro la varmo estis konstruita tiel malgranda, ke restis nur mallarĝa, malalta trairo inter la muro kaj la flanko de la bruto. Sed tio detenis nek Biterąjon, nek Fluon, kiu vizitis la najbarojn ”de tempo al tempo”. Por regali la gastojn, la geedzoj kuiris teon el arbaraj herboj. Mergenj tutajn longajn vesperojn pasigis sola en la jurto kaj nur la ĝemoj de Kutuja˛sit rompis la tom-ban silenton de la forlasita domo.
 
 Sed de ekstere ridoj kaj gaja babilado flugis. Tiam Mergenj komencis longan, malĝojan kaj sovaĝan kanton, per kiu ŝi kvazaŭ volus silentigi la najbarojn; pli ofte ŝi iris eksteren, aŭskultis avide la paroladojn, fine vokis Biterąjon kaj Fluon, pretekstante, ke estas jam malfrue, ke jam venis tempo dormi.
 
 —Morgaŭ vi ree leviĝos por la laboro tagmeze. Sufiĉe jam vi babilis!
-
-
-LA FUNDO DE L’MIZERO
 
 
 —Ho; ŝi bone scias voki aliajn al la laboro! — murmuretis Anka, premiĝante al Gregorio.
@@ -2578,9 +2166,7 @@ Sed ŝi konis iun, por kiu ŝi estus bona kaj cedema.
 
 ĉiuj tagoj similis unu la alian: la sama izoleco, krakado de la fajro en la kameno, ĝemoj de Kutuja˛sit, kaj ekstere bru-ado de voĉoj. Iu rakontas fabelojn kaj kantas, lerte imitante voĉojn de homoj, herooj, mirindaj ĉevaloj, potencaj malami-koj kaj … dioj.
 
-ŝajnis al ŝi, ke ŝi rekonas la voĉon de Gregorio. Li malofte rakontis fabelojn. ŝi tre volonte aŭskultis lin. ŝi eliris antaŭ la 102
-
-LA FUNDO DE L’MIZERO
+ŝajnis al ŝi, ke ŝi rekonas la voĉon de Gregorio. Li malofte rakontis fabelojn. ŝi tre volonte aŭskultis lin. ŝi eliris antaŭ la
 
 
 sojlon. Nebulo rampis sur la tero, kaj alte sur la ĉielo aroj da steloj briletis. Jes, efektive li ŝanĝis la voĉon kaj komencis novan rakonton … Ne, tio ne estis rakonto, tio estis ama kanto!
@@ -2612,12 +2198,7 @@ Mergenj vivege malfermis la pordon. Lumigitaj de la fajro ili sidis avide aŭsku
 —Kio okazis? — demandis Fluo, gratante la kapon, kiam li venis en la jurton kaj rigardis en la fajrajn okulojn de la virino.
 
 
-LA FUNDO DE L’MIZERO
-
-
-—Dum la tuta tago mi ne aŭdas homan voĉon … Mi ne vi-
-
-das homan vizaĝon … ĉiam la krioj kaj ĝemoĵ de mortiĝanta Kutuja˛sit!… Kaj vi tie festenas!… Sufiĉe!… Mi ne permesos!…
+—Dum la tuta tago mi ne aŭdas homan voĉon … Mi ne vidas homan vizaĝon … ĉiam la krioj kaj ĝemoĵ de mortiĝanta Kutuja˛sit!… Kaj vi tie festenas!… Sufiĉe!… Mi ne permesos!…
 
 Vi dufoje trinkas teon … al la aliaj lakto kaj butero mankas …
 
@@ -2648,9 +2229,6 @@ Diru al ili, ke mi volas, ordonas, ke ili ree loĝu kun ni, ke alie mi elpelos l
 ŝi iris en la angulon kaj deĵetis la vestojn. Fluo senvestigis sin kaj meditis.
 
 
-LA FUNDO DE L’MIZERO
-
-
 —Kion ŝi celas? Ne eble estas kompreni la virinon!… Ili estas tute malsaĝaj. Morgaŭ sendube ili elŝiros harojn unu al la alia … Mi devas antaŭsciigi Gregorion. Jen mia konsilo: en la stalo dormu Anka kun Biterąj, kaj Gregorio ĉi tie … tiam Anka kvazaŭ forestus … aŭ Mergenj dormu tie, tio estus plej bona. …
 
 La plano trankviligis lin. Laca de la laboro, li tuj profunde ekdormis.
@@ -2663,9 +2241,7 @@ Sed Mergenj ne povis dormi. ĉiuj esperoj kaj ĝojoj, vekitaj per la kanto, ekst
 
 Malvarma tremo kuris sur ŝia dorso.
 
-ŝi elrampis el la lito kaj komencis blovi sur la fajron. Ek-bruletis unu brulaĵo, la sola kiu restis en la kameno. ŝi eliris por ligno, sed ŝi ne revenis. En la griza brilo de la tagiĝo la eta 105
-
-LA FUNDO DE L’MIZERO
+ŝi elrampis el la lito kaj komencis blovi sur la fajron. Ek-bruletis unu brulaĵo, la sola kiu restis en la kameno. ŝi eliris por ligno, sed ŝi ne revenis. En la griza brilo de la tagiĝo la eta
 
 
 stalo aperis antaŭ ŝiaj okuloj, kvazaŭ fantomo … Delikata fu-ma strio supreniris el la kamentubo.
@@ -2674,30 +2250,18 @@ Sovaĝa ĝojo ekbrilis en ŝiaj okuloj kaj ŝi revenis en la jurton. ŝi atente 
 
 —Savu!… Brulas!… Malfermu!…
 
-Fluo, Biterąj, eĉ Kutuja˛sit elkuris el la jurto. — Kie brulas? Kio brulas? — ripetis ili sensence, kvankam tute proksime de ili staris la flama amaso. En ĝia interno bruis akraj vo-
+Fluo, Biterąj, eĉ Kutuja˛sit elkuris el la jurto. — Kie brulas? Kio brulas? — ripetis ili sensence, kvankam tute proksime de ili staris la flama amaso. En ĝia interno bruis akraj voĉoj de doloro kaj malespero, plendaj blekoj de la brutoj kaj la terura batalo pro la vivo. Fine Fluo rimarkis la baritan pordon, saltis al ĝi. Kvankam la flamoj, kvazaŭ serpentoj, volvis sin ĉirkaŭ liaj nudaj brakoj, li forpuŝis la trabon kaj malfermis la pordon. En la sama momento granda kapo de bovino aperis, sed la bruto ne povis jam eliri, falis kaj ĝia korpo ŝtopis la pordon. Fluo penis ŝin eltiri; li batis, ŝiris ŝin, sed la malfeli-
 
-ĉoj de doloro kaj malespero, plendaj blekoj de la brutoj kaj la terura batalo pro la vivo. Fine Fluo rimarkis la baritan pordon, saltis al ĝi. Kvankam la flamoj, kvazaŭ serpentoj, volvis sin ĉirkaŭ liaj nudaj brakoj, li forpuŝis la trabon kaj malfermis la pordon. En la sama momento granda kapo de bovino aperis, sed la bruto ne povis jam eliri, falis kaj ĝia korpo ŝtopis la pordon. Fluo penis ŝin eltiri; li batis, ŝiris ŝin, sed la malfeli-
-
-ĉa besto ne povis leviĝi, ĝi nur tremis kaj blekis. Subite, kvazaŭ puŝita eksteren, la bovino ĵetis sin antaŭen kaj ŝia brusto ekbatis la kadron de la pordo. La duone forbrulinta muro ŝanceliĝis kaj ĝiaj traboj falis sur Fluon kaj la bovinon. Amaso da brulaĵoj kovris ilin. Nur la piedoj de la malfeliĉulo, liaj vun-106
-
-LA FUNDO DE L’MIZERO
-
-
-ditaj piedoj restis liberaj. Li penis leviĝi kaj liberiĝi el la terura kaptilo. Mergenj rapidis al li kaj, forgesinte pri la danĝero, komencis disĵeti la brulantan lignon.
+ĉa besto ne povis leviĝi, ĝi nur tremis kaj blekis. Subite, kvazaŭ puŝita eksteren, la bovino ĵetis sin antaŭen kaj ŝia brusto ekbatis la kadron de la pordo. La duone forbrulinta muro ŝanceliĝis kaj ĝiaj traboj falis sur Fluon kaj la bovinon. Amaso da brulaĵoj kovris ilin. Nur la piedoj de la malfeliĉulo, liaj vunditaj piedoj restis liberaj. Li penis leviĝi kaj liberiĝi el la terura kaptilo. Mergenj rapidis al li kaj, forgesinte pri la danĝero, komencis disĵeti la brulantan lignon.
 
 Subite la vento ekblovis pli forte, el la interno de la domo elflugis nuboj de nigra fumo kaj sangaj flamoj, kiel multpikila lango de grandega drako, ĉirkaŭis Mergenjon; samtempe la tuta konstruaĵo, jam kliniĝinta al ŝi, ŝanceliĝis kaj disfalis. La ĉefa trabo de la tegmento trafis ŝian bruston, renversis ŝin kaj premegis al la tero. Furioze ĝemegante ŝi tordiĝis en la brulanta lignaro. Fine ŝi silentiĝis.
 
 La leviĝanta suno oris la grizajn fumojn de la brulo kaj la figurojn de Biterąj kaj Kutuja˛sit ŝtoniĝintajn de teruro.
 
 
-LA FUNDO DE L’MIZERO
-
-
 XII
 
-Kutuja˛sit tuj revenis en la jurton, kuŝiĝis kaj ne leviĝis plu. ŝi mortis post kelkaj tagoj. Biterąj restis sola, preskaŭ senkonscia de teruro. ŝi havis nutraĵon en la provizejo, tre proksime, sed ŝi timis iri preter la mortintoj. ŝi nutris sin per muskoj, beroj de sovaĝa rozo, radikoj, kiujn ŝi povis kolekti proksime de la jurto. ŝi maldikiĝis, paliĝis, perdis la fortojn. La tempon liberan de la ĉasado kaj de la kolektadode la beroj, ŝi pasigis en la jurto, kvankam la malbonodoro de la putranta korpo de Kutuja˛sit venenigis la aeron. Fine la sorto sendis al ŝi liberanton. Foje vespere ŝi rimarkis lin, kiam ŝi revenis kun sitelo da akvo. i estis besto nigra kaj granda kiel la bovino. La knabineto ektremis de ĝojo. En la komenco ŝajnis al ŝi, ke ĝi efektive estas ilia bovino, ke nenio okazis, ke tuj Anka kaj Gregorio venos. Sed la gasto havis haroriĉan, trian-gulan buŝegon kaj grandajn ungegojn, posedis nek kornojn, nek voston. Rimarkinte ŝin, la besto haltis, sidiĝis kaj komencis grati sin per la posta piedo post la orelo. Biterąj tuj saltis en la jurton, rapide fermis la pordon kaj rigardis tra la fenestreto, kio okazos. La bruo timigis la beston, ĝi ekstaris sur la postaj piedoj kaj rigardis ĉirkaŭe. Estis silente, mallume, nur la lago, purpura de la vespera ĉielruĝo, bruis en la malproksimo; la gasto do trankviliĝis, aliris al la forbrulinta jurto, puŝis per la buŝego la nigriĝintan kapon de Mergenj kaj 108
-
-LA FUNDO DE L’MIZERO
+Kutuja˛sit tuj revenis en la jurton, kuŝiĝis kaj ne leviĝis plu. ŝi mortis post kelkaj tagoj. Biterąj restis sola, preskaŭ senkonscia de teruro. ŝi havis nutraĵon en la provizejo, tre proksime, sed ŝi timis iri preter la mortintoj. ŝi nutris sin per muskoj, beroj de sovaĝa rozo, radikoj, kiujn ŝi povis kolekti proksime de la jurto. ŝi maldikiĝis, paliĝis, perdis la fortojn. La tempon liberan de la ĉasado kaj de la kolektadode la beroj, ŝi pasigis en la jurto, kvankam la malbonodoro de la putranta korpo de Kutuja˛sit venenigis la aeron. Fine la sorto sendis al ŝi liberanton. Foje vespere ŝi rimarkis lin, kiam ŝi revenis kun sitelo da akvo. i estis besto nigra kaj granda kiel la bovino. La knabineto ektremis de ĝojo. En la komenco ŝajnis al ŝi, ke ĝi efektive estas ilia bovino, ke nenio okazis, ke tuj Anka kaj Gregorio venos. Sed la gasto havis haroriĉan, trian-gulan buŝegon kaj grandajn ungegojn, posedis nek kornojn, nek voston. Rimarkinte ŝin, la besto haltis, sidiĝis kaj komencis grati sin per la posta piedo post la orelo. Biterąj tuj saltis en la jurton, rapide fermis la pordon kaj rigardis tra la fenestreto, kio okazos. La bruo timigis la beston, ĝi ekstaris sur la postaj piedoj kaj rigardis ĉirkaŭe. Estis silente, mallume, nur la lago, purpura de la vespera ĉielruĝo, bruis en la malproksimo; la gasto do trankviliĝis, aliris al la forbrulinta jurto, puŝis per la buŝego la nigriĝintan kapon de Mergenj kaj
 
 
 komencis disŝiri ŝian korpon. La tutan nokton ĝi bruis kaj rulis la trabojn.
@@ -2709,14 +2273,9 @@ La besto rigardis en la jurton kaj malleviĝis internen. i haltis sur la planko,
 i stariĝis sur la postaj piedoj, ekronkis kaj, stariginte la harojn, furioze spiregante, ĝi iris terura al la knabineto … ŝi ne moviĝis, ne kriis, eĉ ne ekĝemis, kiam ĝia piedego ekpre-megis ŝian maldikan korpeton al la benko.
 
 
-LA FUNDO DE L’MIZERO
-
-
 La neĝoj superŝutis la glaciiĝintajn lagojn, maldensajn arbarojn kaj mizeran teron. De la potenca frosto ĉio fariĝis malmola kiel kristalo.
 
-Kiam la komunumo eksciis de la ĉasistoj, ke fumo ne levi-
-
-ĝas plu el la jurto de la lepruloj, la princo sendis delegiton por konvinkiĝi, ĉu Dio efektive forprenis de la lando la ”malbe-non”. La Jakuto longe vane kriis, fine li levis la pordon per sia ponardego …! Li rimarkis la rompitan tegmenton kaj komprenis ĉion.
+Kiam la komunumo eksciis de la ĉasistoj, ke fumo ne leviĝas plu el la jurto de la lepruloj, la princo sendis delegiton por konvinkiĝi, ĉu Dio efektive forprenis de la lando la ”malbe-non”. La Jakuto longe vane kriis, fine li levis la pordon per sia ponardego …! Li rimarkis la rompitan tegmenton kaj komprenis ĉion.
 
 —Urso! — murmuretis li.
 
@@ -2727,9 +2286,6 @@ decidis sendi monon en la urbeton por funebra meso kaj bruligi la jurton. La sen
 Sur la malbenita loko restis nur du amasoj da cindro kaj iom da ostoj. La tuta ĉirkaŭaĵo de la jurto de la lepruloj longe ne estis vizitata de iu … Neniu kuraĝis tie kolekti berojn, kapti fiŝojn, persekuti forkurantan ĉasaĵon …
 
 Sed la ŝimo de la vivo ne estis elŝirita kun la radiko, ne estis detruita kune kun la malfeliĉuloj, — ĝi ree ekkreskos ie sur homaj korpoj kaj ree pleniĝos kaj ekĝemos la malbenitaj de-zertoj.
-
-
-LA FUNDO DE L’MIZERO
 
 
 www.omnibus.se/

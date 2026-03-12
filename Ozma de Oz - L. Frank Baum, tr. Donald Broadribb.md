@@ -39,7 +39,7 @@ III. La Literoj sur la Sablo - - - - 37
 
 IV. Tiktoko la Maŝinulo - - - - - 49
 
-V. Doroteo Malfermas la Manĝoskatolon 64
+V. Doroteo Malfermas la Manĝoskatolon
 
 VI. La Kapoj de Langvorlino - - - - 76
 
@@ -62,7 +62,7 @@ de
 
 Paĝo
 
-XII. La Dek Unu Divenoj 175
+XII. La Dek Unu Divenoj
 
 XIII. La Reĝo de la
 
@@ -547,9 +547,7 @@ kaj unue, dum ŝi frotis la dormon el siaj
 
 okuloj, ŝi vere kredis ke ŝi estas tie.
 
-“Kut-kut-kut, ka-da-kut! Kut-kut-kut, ka-da-
-
-kut!”
+“Kut-kut-kut, ka-da-kut! Kut-kut-kut, ka-dakut!”
 
 Ha; denove jen tiu stranga bruo kiu vekis ŝin.
 
@@ -576,9 +574,7 @@ kaj nekonata maro.
 
 “Nu, mi demetis ovon, jen ĉio,” respondis
 
-malgranda, sed akra kaj klara voĉo, kaj ĉirkaŭ-
-
-rigardante la knabineto trovis flavan kokinon
+malgranda, sed akra kaj klara voĉo, kaj ĉirkaŭrigardante la knabineto trovis flavan kokinon
 
 kaŭrantan en la kontraŭa angulo de la kaĝo.
 
@@ -1117,9 +1113,7 @@ aŭ bebĉaretojn aŭ ŝarĝoĉaretojn,” diris Doroteo.
 
 “Eble ili estas aŭtomobiloj,” proponis la flava
 
-kokino. “Ne necesas eviti bebĉaretojn kaj ŝarĝo-
-
-ĉaretojn; sed aŭtomobiloj estas danĝeraj. Pluraj
+kokino. “Ne necesas eviti bebĉaretojn kaj ŝarĝoĉaretojn; sed aŭtomobiloj estas danĝeraj. Pluraj
 
 amikoj miaj estas mortigitaj de ili.”
 
@@ -1845,9 +1839,7 @@ horloĝ-funkciulo diris, sen movi iun parton de sia
 
 korpo escepte de la lipoj:
 
-“Bo-na-n ma-te-no-n, knab-in-et-o. Bo-na-n ma-
-
-te-no-n, Sin-jor-in-o Kok-in-o.”
+“Bo-na-n ma-te-no-n, knab-in-et-o. Bo-na-n mate-no-n, Sin-jor-in-o Kok-in-o.”
 
 La vortoj sonis iom raŭkaj kaj knaretaj, kaj ili
 
@@ -1887,9 +1879,7 @@ Ozma de Oz
 
 ge-ser-vist-ojn ĝis i-li mor-tis. Ta-men, li ne po-vis
 
-mor-ti-gi min, ĉar mi ne vi-vis, kaj o-ni de-vas u-nu-
-
-e vi-vi por po-vi mor-ti. Do li-a ba-ta-do ne da-ma-ĝis
+mor-ti-gi min, ĉar mi ne vi-vis, kaj o-ni de-vas u-nue vi-vi por po-vi mor-ti. Do li-a ba-ta-do ne da-ma-ĝis
 
 mi-n, ĝi nur plu-po-lu-ris mi-a-n ku-pra-n kor-po-n.
 
@@ -1901,19 +1891,13 @@ kna-bi-noj-n—sed dum ko-le-re-go li ven-dis i-li-n al
 
 la Re-ĝo de la Kno-moj, ki-u per si-aj ma-gi-aj ar-toj
 
-a-li-for-mig-is i-li-n kaj me-tis i-li-n en si-a-n sub-te-
+a-li-for-mig-is i-li-n kaj me-tis i-li-n en si-a-n sub-tera-n pa-la-co-n por or-na-mi la ĉam-broj-n.
 
-ra-n pa-la-co-n por or-na-mi la ĉam-broj-n.
-
-“Pos-te la Re-ĝo de Ev be-daŭ-ris si-a-n fi-a-n a-
-
-go-n, kaj vo-lis re-pre-ni si-aj-n ed-zi-no-n kaj in-fa-
+“Pos-te la Re-ĝo de Ev be-daŭ-ris si-a-n fi-a-n ago-n, kaj vo-lis re-pre-ni si-aj-n ed-zi-no-n kaj in-fa-
 
 noj-n de la Re-ĝo de la Kno-moj, sed sen-suk-ce-se.
 
-Do, pro mal-es-pe-ro, li ŝlo-sis mi-n en ĉi ti-u-n ro-
-
-ko-n, ĵe-tis la ŝlo-si-lo-n en la o-ce-a-no-n, kaj pos-
+Do, pro mal-es-pe-ro, li ŝlo-sis mi-n en ĉi ti-u-n roko-n, ĵe-tis la ŝlo-si-lo-n en la o-ce-a-no-n, kaj pos-
 
 te en-sal-tis kaj dro-nis.”
 
@@ -1925,13 +1909,9 @@ en-ŝlo-si-ta mi kri-is por hel-po ĝis mi-a vo-ĉo es-tis
 
 mal-stre-ĉi-ta; kaj post ti-o mi mar-ŝis ti-en kaj re-en
 
-en ĉi ti-u ĉam-bre-to ĝis mi-a a-ga-do es-tis mal-stre-
+en ĉi ti-u ĉam-bre-to ĝis mi-a a-ga-do es-tis mal-streĉi-ta; kaj post ti-o mi sta-ris sen-mo-ve kaj pen-sis ĝis
 
-ĉi-ta; kaj post ti-o mi sta-ris sen-mo-ve kaj pen-sis ĝis
-
-mi-aj pen-soj es-tis mal-ŝtre–ĉit-aj. Post ti-o mi me-
-
-mo-ras ne-ni-on ĝis vi re-stre-ĉis mi-n.”
+mi-aj pen-soj es-tis mal-ŝtre–ĉit-aj. Post ti-o mi memo-ras ne-ni-on ĝis vi re-stre-ĉis mi-n.”
 
 
 LA KUPRULO MARŜIS EL LA ROKA KAVERNO
@@ -1942,9 +1922,7 @@ Ozma de Oz
 
 la Lando Ev vere estas felando, same kiel mi supozis.”
 
-“Kom-pre-ne-ble,” respondis la kuprulo. “Mi su-po-
-
-zas ke ti-om per-fek-ta ma-ŝi-no es-tus far-eb-la nur
+“Kom-pre-ne-ble,” respondis la kuprulo. “Mi su-pozas ke ti-om per-fek-ta ma-ŝi-no es-tus far-eb-la nur
 
 en fe-lan-do.”
 
@@ -1972,9 +1950,7 @@ sian kupran ĉapelon kaj ĝentile kliniĝis antaŭ Doroteo.
 
 Diris li:
 
-“Ek-de nun mi es-tos vi-a o-be-e-ma ser-vis-to. Ki-
-
-o-n ajn vi or-do-nos, ti-o-n mi vo-lon-te fa-ros—se vi
+“Ek-de nun mi es-tos vi-a o-be-e-ma ser-vis-to. Kio-n ajn vi or-do-nos, ti-o-n mi vo-lon-te fa-ros—se vi
 
 ri-pe-te stre-ĉos mi-n.”
 
@@ -1982,9 +1958,7 @@ ri-pe-te stre-ĉos mi-n.”
 
 “Tik-to-ko,” li respondis. “Mi-a eks-mas-tro no-mis
 
-min ti-el ĉar mi-a hor-loĝ-me-ka-nis-mo ĉi-am tik-ta-
-
-kas ki-am ĝi es-tas stre-ĉi-ta.”
+min ti-el ĉar mi-a hor-loĝ-me-ka-nis-mo ĉi-am tik-takas ki-am ĝi es-tas stre-ĉi-ta.”
 
 
 Tiktoko la Maŝinulo
@@ -1999,9 +1973,7 @@ time: “Vi ne sonoras, ĉu?”
 
 ko-nek-ti-ta al mi-a me-ka-nis-mo. Ta-men mi po-vas
 
-di-ri la tem-po-n per-vo-ĉe, kaj ĉar mi ne-ni-am dor-
-
-mas mi po-vos ve-ki vi-n je ki-u ajn ho-ro ki-u-n vi
+di-ri la tem-po-n per-vo-ĉe, kaj ĉar mi ne-ni-am dormas mi po-vos ve-ki vi-n je ki-u ajn ho-ro ki-u-n vi
 
 vo-los por ve-ki-ĝi en la ma-te-no.”
 
@@ -2036,9 +2008,7 @@ Raduloj estas sube, sciu, kaj
 
 minacas mortigi nin.”
 
-“Ne ne-ce-sas ti-mi la Ra-du-
-
-loj-n,” diris Tiktoko; liaj vortoj
+“Ne ne-ce-sas ti-mi la Ra-duloj-n,” diris Tiktoko; liaj vortoj
 
 estis malpli rapidaj ol antaŭe.
 
@@ -2131,9 +2101,7 @@ vo-las kre-di-gi ke i-li es-tas te-ru-raj, sed e-fek-ti-ve la
 
 Doroteo Malfermas la Manĝoskatolon
 
-Ra-du-loj es-tas su-fi-ĉe sen-dan-ĝe-raj se o-ni aŭ-da-
-
-cas ba-ta-li kon-traŭ i-li-n. I-li e-ble pro-vus da-ma-ĝi
+Ra-du-loj es-tas su-fi-ĉe sen-dan-ĝe-raj se o-ni aŭ-dacas ba-ta-li kon-traŭ i-li-n. I-li e-ble pro-vus da-ma-ĝi
 
 kna-bi-ne-to-n ki-a vi, ĉar i-li es-tas tre pe-to-le-maj.
 
@@ -2204,25 +2172,19 @@ Tiktoko, dum ŝi manĝadis.
 
 “Kom-pre-neb-le ne,” li respondis. “I-li a-par-te-nas
 
-al la re-ĝa fa-mi-li-o de Ev, sed kom-pre-ne-ble ne ek-
-
-zis-tas re-ĝa fa-mi-li-o ĝus-te nun ĉar Re-ĝo E-vol-do
+al la re-ĝa fa-mi-li-o de Ev, sed kom-pre-ne-ble ne ekzis-tas re-ĝa fa-mi-li-o ĝus-te nun ĉar Re-ĝo E-vol-do
 
 sal-tis en la ma-ro-n kaj li-aj ed-zi-no kaj dek in-fa-noj
 
 es-tas trans-for-mi-taj de la Re-ĝo de la Kno-moj. Do
 
-res-tas ne-ni-u re-gan-to de la Lan-do Ev, laŭ mi-a me-
-
-mo-ro. E-ble pro ti-o la Ra-du-loj pre-ten-das po-se-di
+res-tas ne-ni-u re-gan-to de la Lan-do Ev, laŭ mi-a memo-ro. E-ble pro ti-o la Ra-du-loj pre-ten-das po-se-di
 
 la ar-boj-n, kaj plu-kas la lun-ĉoj-n kaj man-ĝoj-n por
 
 pro-pra man-ĝa-do. Sed i-li a-par-te-nas al la Re-ĝo, kaj
 
-vi tro-vos la re-ĝa-n ‘E’ stam-pi-tan sur la mal-su-pro-
-
-n de ĉi-u man-ĝo-si-te-lo.”
+vi tro-vos la re-ĝa-n ‘E’ stam-pi-tan sur la mal-su-pron de ĉi-u man-ĝo-si-te-lo.”
 
 Doroteo renversis la sitelon, kaj tuj vidis la reĝan
 
@@ -2247,13 +2209,9 @@ mi-a mal-no-va mas-tro, Re-ĝo E-vol-do, ku-ti-mis
 
 kun-por-ti vi-p-on, ki-am li e-li-ris mar-ŝi, por es-tri la
 
-u-loj-n. Tuj ki-am mi fa-ri-ĝis la Ra-du-loj pro-vis su-
+u-loj-n. Tuj ki-am mi fa-ri-ĝis la Ra-du-loj pro-vis super-ve-tu-ri mi-n, kaj ba-ti mi-n per si-aj ka-poj; sed i-
 
-per-ve-tu-ri mi-n, kaj ba-ti mi-n per si-aj ka-poj; sed i-
-
-li bal-daŭ tro-vis ke mi kon-stru-iĝ-is el tro so-li-da ma-
-
-te-ri-a-lo kaj i-li ne po-vis da-ma-ĝi mi-n.”
+li bal-daŭ tro-vis ke mi kon-stru-iĝ-is el tro so-li-da mate-ri-a-lo kaj i-li ne po-vis da-ma-ĝi mi-n.”
 
 “Vi ŝajnas tre fortike konstruita,” diris Doroteo. “Kiu
 
@@ -2265,9 +2223,7 @@ ki-e si-tu-as la re-ĝa pa-la-co,” respondis Tiktoko.
 
 “Ĉu ili fabrikis multon da vi?” demandis la infano.
 
-“Ne; mi es-tas la so-la aŭ-to-ma-ta me-ka-ni-ka ho-
-
-mo ki-u-n i-li i-am kom-ple-ti-gis,” li respondis. “I-li
+“Ne; mi es-tas la so-la aŭ-to-ma-ta me-ka-ni-ka homo ki-u-n i-li i-am kom-ple-ti-gis,” li respondis. “I-li
 
 es-tis ve-re ta-len-taj in-ven-tis-toj, mi-aj fa-bri-kin-toj,
 
@@ -2277,18 +2233,14 @@ kaj tre ar-tis-me la-bo-ris.”
 
 urbeto Evna nun?”
 
-“Am-baŭ for-la-sis ni-n,” respondis la maŝino. “Sin-
-
-jo-ro Smith es-tis ar-tis-to, ki-el an-kaŭ in-ven-tis-to,
+“Am-baŭ for-la-sis ni-n,” respondis la maŝino. “Sinjo-ro Smith es-tis ar-tis-to, ki-el an-kaŭ in-ven-tis-to,
 
 kaj li pen-tris bil-do-n de ri-ve-ro ki-u es-tis ti-om na-
 
 
 Doroteo Malfermas la Manĝoskatolon
 
-tu-ra ke, dum li e-ten-dis si-n por pen-tri kel-kaj-n flo-
-
-roj-n sur la a-li-a-n bor-do-n, li fa-lis en la ak-vo-n kaj
+tu-ra ke, dum li e-ten-dis si-n por pen-tri kel-kaj-n floroj-n sur la a-li-a-n bor-do-n, li fa-lis en la ak-vo-n kaj
 
 dro-nis.”
 
@@ -2296,13 +2248,9 @@ dro-nis.”
 
 “Sin-jo-ro Tin-ker,” pludiris Tiktoko, “fa-ris ti-om
 
-al-ta-n ŝtu-pa-re-to-n ke li po-vis a-po-gi ĝi-a-n fi-na-
+al-ta-n ŝtu-pa-re-to-n ke li po-vis a-po-gi ĝi-a-n fi-naĵo-n per la lu-no, dum li sta-ris sur la plej al-ta ŝtu-pe-
 
-ĵo-n per la lu-no, dum li sta-ris sur la plej al-ta ŝtu-pe-
-
-to kaj plu-kis la ste-le-tojn por me-ti i-li-n en la pin-
-
-toj-n de la kro-no de la re-ĝo. Sed ki-am li a-tin-gis la
+to kaj plu-kis la ste-le-tojn por me-ti i-li-n en la pintoj-n de la kro-no de la re-ĝo. Sed ki-am li a-tin-gis la
 
 lun-on Sin-jo-ro Tin-ker tro-vis ĝin ti-om be-la ke li
 
@@ -2318,9 +2266,7 @@ torton.
 
 “Jes ve-re,” agnoskis Tiktoko. “An-kaŭ mi sper-tis tre
 
-gran-da-n per-do-n per ti-o. Ĉar se mi fuŝ-i-ĝus mi ko-
-
-nas ne-ni-u-n ka-pa-bla-n ri-pa-ri mi-n, ĉar mi es-tas
+gran-da-n per-do-n per ti-o. Ĉar se mi fuŝ-i-ĝus mi konas ne-ni-u-n ka-pa-bla-n ri-pa-ri mi-n, ĉar mi es-tas
 
 tre kom-pli-ka. Vi ne po-vas di-ve-ni ki-om ple-na de
 
@@ -2328,9 +2274,7 @@ ma-ŝi-na-ĵoj mi es-tas.”
 
 “Mi povas imagi,” diris Doroteo, fervore.
 
-“Kaj nun,” pludiris la maŝino, “mi de-vas ĉe-si pa-
-
-ro-li kaj ko-men-ci de-no-ve pen-si por tr-ovi ri-me-do-
+“Kaj nun,” pludiris la maŝino, “mi de-vas ĉe-si paro-li kaj ko-men-ci de-no-ve pen-si por tr-ovi ri-me-do-
 
 n es-ka-pi de ĉi ti-u ro-ko.” Do li turnis sin duone, por
 
@@ -2396,9 +2340,7 @@ turnis sin al la maŝino kaj demandis tre fervortone: “Ĉu
 
 vi konas la Landon Oz, Tiktoko?”
 
-“Ne; sed mi aŭ-dis pri ĝi,” diris la kuprulo. “Ĉar ĝi-
-
-n a-par-ti-gas de ĉi ti-u Lan-do Ev nur lar-ĝa de-zer-
+“Ne; sed mi aŭ-dis pri ĝi,” diris la kuprulo. “Ĉar ĝin a-par-ti-gas de ĉi ti-u Lan-do Ev nur lar-ĝa de-zer-
 
 to.”
 
@@ -2416,15 +2358,11 @@ Tiktoko.
 
 “Li estis Reĝo kiam mi foriris,” deklaris Doroteo.
 
-“Mi sci-as,” diris Tiktoko, “sed o-ka-zis re-vo-lu-ci-
-
-o en la Lan-do Oz, kaj la Bir-do-ti-mi-gi-lo-n de-tro-
+“Mi sci-as,” diris Tiktoko, “sed o-ka-zis re-vo-lu-cio en la Lan-do Oz, kaj la Bir-do-ti-mi-gi-lo-n de-tro-
 
 ni-gis sol-da-ti-no no-mi-ta Ge-ne-ra-lo Zin-gi-bra.
 
-Kaj pos-te Zin-gi-bra-n de-tro-ni-gis kna-bi-ne-to no-
-
-mi-ta Oz-ma, ki-u es-tis la ve-ra he-re-dan-ti-no de la
+Kaj pos-te Zin-gi-bra-n de-tro-ni-gis kna-bi-ne-to nomi-ta Oz-ma, ki-u es-tis la ve-ra he-re-dan-ti-no de la
 
 tro-no kaj nun re-gas la lan-do-n kaj es-tas ti-to-li-ta
 
@@ -2492,9 +2430,7 @@ la rokojn kiuj blokis la iron. Post tio li
 
 turnis sin al Doroteo kaj diris:
 
-“La-su mi-n por-ti vi-a-n man-ĝo-si-te-
-
-lo-n.”
+“La-su mi-n por-ti vi-a-n man-ĝo-si-telo-n.”
 
 Ŝi tuj metis ĝin en lian dekstran manon, kaj
 
@@ -2615,17 +2551,13 @@ Radulo. “Mi estas terure feroca persono.”
 
 “Ri-la-te al ti-o,” respondis Tiktoko, “mi es-tas nur
 
-ma-ŝi-no, kaj nek po-vas mal-ĝo-ji nek ĝo-ji, ne-gra-
-
-ve ki-o o-ka-zas. Sed vi e-ra-ras kre-dan-te vi-n te-
+ma-ŝi-no, kaj nek po-vas mal-ĝo-ji nek ĝo-ji, ne-grave ki-o o-ka-zas. Sed vi e-ra-ras kre-dan-te vi-n te-
 
 ru-ra aŭ fe-ro-ca.”
 
 “Kial?” demandis la Radulo.
 
-“Ĉar ne-ni-u a-li-a kre-das ti-o-n. Vi-aj ra-doj ma-
-
-leb-li-gas ke vi da-ma-ĝu i-u-n. Vi ne ha-vas pug-noj-
+“Ĉar ne-ni-u a-li-a kre-das ti-o-n. Vi-aj ra-doj maleb-li-gas ke vi da-ma-ĝu i-u-n. Vi ne ha-vas pug-noj-
 
 n kaj ne po-vas gra-ti aŭ eĉ el-ti-ri ha-roj-n. Kaj vi
 
@@ -2687,9 +2619,7 @@ Ozma de Oz
 
 ple-naj, kaj vi am-as ĝe-ni vi-aj-n ti-man-toj-n. Kaj
 
-vi es-tas an-kaŭ of-te mal-ĝen-ti-laj kaj ma-la-grab-
-
-laj. Sed se vi stre-bos ku-ra-ci ti-uj-n mis-oj-n mi in-
+vi es-tas an-kaŭ of-te mal-ĝen-ti-laj kaj ma-la-grablaj. Sed se vi stre-bos ku-ra-ci ti-uj-n mis-oj-n mi in-
 
 for-mos al ne-ni-u pri vi-a sen-po-vo.”
 
@@ -2729,9 +2659,7 @@ Langvorlino ne estas precize registo, sciu, ĉar ŝi ne
 
 regas; sed ŝi estas nia plej regema persono.”
 
-“Mi ne me-mo-ras ŝi-n,” diris Tiktoko. “Ki-a ŝi as-
-
-pek-tas?”
+“Mi ne me-mo-ras ŝi-n,” diris Tiktoko. “Ki-a ŝi aspek-tas?”
 
 
 La Kapoj de Langvorlino
@@ -3340,9 +3268,7 @@ restariĝi, do li kaptis la knabinon firme kaj ŝi ne povis
 
 eskapi.
 
-“Ĝe-ne!” diris la maŝino. “Mi de-vus funk-ci-i an-
-
-ko-raŭ ses ho-roj-n, aŭ pli, sed ver-ŝaj-ne mi-a lon-ga
+“Ĝe-ne!” diris la maŝino. “Mi de-vus funk-ci-i anko-raŭ ses ho-roj-n, aŭ pli, sed ver-ŝaj-ne mi-a lon-ga
 
 mar-ŝa-do kaj mi-a ba-ta-lo kon-traŭ la Ra-du-loj-n
 
@@ -3872,9 +3798,7 @@ po-lu-ra-ĵo-n.”
 
 mi po-vas pen-si kaj pa-ro-li kaj a-gi, ki-am mi es-tas
 
-ĝus-te stre-ĉi-ta. Ĝus-te nun mi-a a-ga-do es-tas mal-
-
-stre-ĉi-ta, kaj Do-ro-te-o ha-vas la ŝlo-si-lo-n.”
+ĝus-te stre-ĉi-ta. Ĝus-te nun mi-a a-ga-do es-tas malstre-ĉi-ta, kaj Do-ro-te-o ha-vas la ŝlo-si-lo-n.”
 
 “Do bone,” respondis la Birdotimigilo. “Doroteo
 
@@ -3890,9 +3814,7 @@ kompatas vin.”
 
 Birdotimigilo.
 
-“Sed jes, mi ha-vas,” protestis Tiktoko. “O-ni me-
-
-tis en mi-n la Pli-bo-ni-gi-ta-n Kom-bi-ni-ta-n Ŝta-
+“Sed jes, mi ha-vas,” protestis Tiktoko. “O-ni metis en mi-n la Pli-bo-ni-gi-ta-n Kom-bi-ni-ta-n Ŝta-
 
 la-n Cerbo-n in-ven-ti-ta-n de Smith & Tin-ker. Ĝi
 
@@ -3933,15 +3855,11 @@ havas cerbon kiun oni ne bezonas streĉi, dum mi havas
 
 bonegan koron kiu konstante batas en mia brusto.”
 
-“Mi gra-tu-las vi-n,” respondis Tiktoko. “Mi ne-e-vi-
-
-te-ble es-tas mal-pli va-lo-ra ol vi ĉar mi es-tas nur ma-
+“Mi gra-tu-las vi-n,” respondis Tiktoko. “Mi ne-e-vite-ble es-tas mal-pli va-lo-ra ol vi ĉar mi es-tas nur ma-
 
 ŝi-no. Ki-am mi es-tas stre-ĉi-ta mi ple-nu-mas mi-aj-n
 
-tas-koj-n per a-ga-do pre-ci-ze re-ga-ta de la funk-ci-a-
-
-do de mi-a me-ka-nis-mo. Vi ne po-vas i-ma-gi ki-om
+tas-koj-n per a-ga-do pre-ci-ze re-ga-ta de la funk-ci-ado de mi-a me-ka-nis-mo. Vi ne po-vas i-ma-gi ki-om
 
 ple-na de me-ka-nis-mo mi es-tas.”
 
@@ -3956,9 +3874,7 @@ disapartigos vin por vidi ĝuste kiel vi estas fabrikita.”
 
 “Ne fa-ru ti-on, mi pe-te-gas,” diris Tiktoko, “ĉar
 
-vi ne po-vus re-mun-ti mi-n, kaj mi-a u-ti-le-co de-
-
-tru-i-ĝus.”
+vi ne po-vus re-mun-ti mi-n, kaj mi-a u-ti-le-co detru-i-ĝus.”
 
 “Ho! Ĉu vi estas utila?” demandis la Birdotimigilo,
 
@@ -4449,9 +4365,7 @@ malbone enkarcerigi reĝinan patrinon kaj ŝiajn dek
 
 infanojn?”
 
-“I-li-n ven-dis al la Re-ĝo de la Kno-moj Re-ĝo E-
-
-vol-do,” respondis Tiktoko. “Mal-bon-fa-rin-to es-tis la
+“I-li-n ven-dis al la Re-ĝo de la Kno-moj Re-ĝo Evol-do,” respondis Tiktoko. “Mal-bon-fa-rin-to es-tis la
 
 Re-ĝo de Ev, kaj ki-am li kom-pre-nis si-a-n kul-po-n
 
@@ -4598,9 +4512,7 @@ bedaŭris ŝian foriron), Ozma diris al Tiktoko:
 
 “Ĉu vi akompanos nin?”
 
-“Mi es-tas skla-vo de la kna-bi-no Do-ro-te-o, ki-
-
-u sa-vis mi-n el kar-ce-ro,” respondis la maŝino. “Ki-
+“Mi es-tas skla-vo de la kna-bi-no Do-ro-te-o, kiu sa-vis mi-n el kar-ce-ro,” respondis la maŝino. “Ki-
 
 e-n ŝi i-ros mi i-ros.”
 
@@ -5130,13 +5042,9 @@ kaj farus el mi pordotapiŝeton.”
 
 “Ti-u fe-ra gi-gan-to es-tas ve-ra bo-nu-lo,” diris
 
-Tiktoko, “li la-bo-ras fi-de-le ki-el hor-lo-ĝo. Li-n fa-
+Tiktoko, “li la-bo-ras fi-de-le ki-el hor-lo-ĝo. Li-n faris por la Re-ĝo de la Kno-moj Smith & Tin-ker, ki-
 
-ris por la Re-ĝo de la Kno-moj Smith & Tin-ker, ki-
-
-uj fa-ris mi-n, kaj li-a tas-ko es-tas ma-leb-li-gi ke o-
-
-ni tro-vu la sub-te-ra-n pa-la-co-n. Ve-re be-la ar-ta-
+uj fa-ris mi-n, kaj li-a tas-ko es-tas ma-leb-li-gi ke oni tro-vu la sub-te-ra-n pa-la-co-n. Ve-re be-la ar-ta-
 
 ĵo, ĉu ne?”
 
@@ -5149,9 +5057,7 @@ Ozma de Oz
 
 “Ne,” respondis la maŝino; “o-ni fa-bri-kis li-n nur
 
-por ke li ba-ta-du la vo-jo-n, kaj li ne ha-vas pen-si-
-
-lo-n nek p-aro-li-lo-n. Sed li bo-ne-ge ba-tad-as, laŭ
+por ke li ba-ta-du la vo-jo-n, kaj li ne ha-vas pen-silo-n nek p-aro-li-lo-n. Sed li bo-ne-ge ba-tad-as, laŭ
 
 mi-a opi-ni-o.”
 
@@ -5161,9 +5067,7 @@ baras nian pluiron. Ĉu ne eblas haltigi lian
 
 mekanismon?”
 
-“Nur la Re-ĝo de la Kno-moj, kiu ha-vas la ŝlo-
-
-si-lo-n, po-vas fa-ri ti-o-n,” respondis Tiktoko.
+“Nur la Re-ĝo de la Kno-moj, kiu ha-vas la ŝlosi-lo-n, po-vas fa-ri ti-o-n,” respondis Tiktoko.
 
 “Do,” diris Doroteo, “maltrankvile, “kion ni
 
@@ -5521,9 +5425,7 @@ duontime.
 
 “I-li es-tas rok-fe-oj, kaj ser-vas la Re-ĝo-n de la
 
-Kno-moj,” respondis la maŝino. “Sed i-li ne da-ma-
-
-ĝos ni-n. Vi de-vos vo-ki la Re-ĝon, ĉar sen li vi ne-
+Kno-moj,” respondis la maŝino. “Sed i-li ne da-maĝos ni-n. Vi de-vos vo-ki la Re-ĝon, ĉar sen li vi ne-
 
 ni-am tro-vos la e-ni-re-jon de la pa-la-co.”
 
@@ -5568,9 +5470,7 @@ Lignohakisto. “Mi esperas ke vi ne forgesos ke vi estas
 
 kuraĝaj.”
 
-“Neniam!” kriis la generalo, frapante sian or-
-
-ornamitan bruston.
+“Neniam!” kriis la generalo, frapante sian orornamitan bruston.
 
 “Neniam!” kriis ĉiuj aliaj oficiroj, indigne frapante
 
@@ -5608,9 +5508,7 @@ Knomoj sur la monto ridis moke.
 
 “Vi ne raj-tas or-do-ni la Re-ĝon de la Kno-moj,”
 
-diris Tiktoko, “ĉar vi ne re-gas li-n, ki-el vi-a-n pro-
-
-pra-n po-po-lo-n.”
+diris Tiktoko, “ĉar vi ne re-gas li-n, ki-el vi-a-n propra-n po-po-lo-n.”
 
 
 NUR LA MOKA RIDADO RESPONDIS AL ŜI
@@ -5977,9 +5875,7 @@ gigantan subteran kavernon kaj necesigis ke la multe
 
 okupataj laboristoj ĉesigu sian laboradon.
 
-Kvankam tiu grandega armeo konsistis el rok-
-
-koloraj Knomoj, malaltaj kaj dikaj, ili estis vestitaj
+Kvankam tiu grandega armeo konsistis el rokkoloraj Knomoj, malaltaj kaj dikaj, ili estis vestitaj
 
 per brilanta kiraso el polurita ŝtalo, en kiu belaj
 
@@ -6861,9 +6757,7 @@ Ozma de Oz
 
 ornamaĵoj en mia kolekto. Mi opinias ke ili estos
 
-tre belaj, intermiksitaj inter la aliaj. Ĉu vi mal-
-
-akordas?”
+tre belaj, intermiksitaj inter la aliaj. Ĉu vi malakordas?”
 
 La Servisto kolere gruntis.
 
@@ -7054,9 +6948,7 @@ tie kaj mem diveni.”
 
 “Bone,” diris Doroteo.
 
-“Sed mia vico sekvas nun,” deklaris la Birdo-
-
-timigilo.
+“Sed mia vico sekvas nun,” deklaris la Birdotimigilo.
 
 “Sed ĉu vi volas malaperi kaj lasi min tute sola?”
 
@@ -7122,13 +7014,9 @@ nin, kaj li fa-ris kap-ti-lon por ni. Mi kre-das ke ni
 
 ĉi-u-j per-di-ĝis,” li respondis.
 
-“Kaj ankaŭ mi kredas tiel,” diris Doroteo, mal-
+“Kaj ankaŭ mi kredas tiel,” diris Doroteo, malfeliĉe.
 
-feliĉe.
-
-“Smith & Tin-ker ne do-nis al mi di-ven-me-ka-
-
-nis-mo-n,” pludiris Tiktoko, “a-li-e mi po-vus de-fi-i
+“Smith & Tin-ker ne do-nis al mi di-ven-me-kanis-mo-n,” pludiris Tiktoko, “a-li-e mi po-vus de-fi-i
 
 la Re-ĝo-n de la Kno-moj. Sed mi-aj pen-soj es-tas
 
@@ -7354,9 +7242,7 @@ la aliaj grupanoj; sed dum li sidis revante malĝojon
 
 akra voĉo subite kriis:
 
-“Kut, kut, kut—ka-da-kut! Kut, kut, kut—ka-da-
-
-kut!”
+“Kut, kut, kut—ka-da-kut! Kut, kut, kut—ka-dakut!”
 
 La Reĝo de la Knomoj preskaŭ saltis de sia seĝo, li
 
@@ -7556,9 +7442,7 @@ gvidante la malgrandan Princon Evring per mano.
 
 La Birdotimigilo bonvenigis la knabinon per
 
-profunda ĉirkaŭbrakumo, kaj li volonte ĉirkaŭ-
-
-brakumus ankaŭ Evringon, pro sia ĝojo. Sed la
+profunda ĉirkaŭbrakumo, kaj li volonte ĉirkaŭbrakumus ankaŭ Evringon, pro sia ĝojo. Sed la
 
 Princeto timemis, kaj retiris sin de la farbita
 
@@ -8027,9 +7911,7 @@ homo,” diris la soldato, treme.
 
 “Mi kre-dis li-n ho-nes-ta, sed mi e-ra-ris,”
 
-komentis Tiktoko. “Mi-aj pen-soj ku-ti-me es-tas ĝus-
-
-taj, sed kul-pas Smith & Tin-ker ki-am i-li kelk-fo-je
+komentis Tiktoko. “Mi-aj pen-soj ku-ti-me es-tas ĝustaj, sed kul-pas Smith & Tin-ker ki-am i-li kelk-fo-je
 
 e-ra-ras aŭ mis-funk-ci-as.”
 
@@ -8130,9 +8012,7 @@ nun estis tiom furiozege kolera ke li eĉ ne povis diri
 
 vorton, li nur saltis el sia trono kaj tra la tuta
 
-ĉambro freneze, tiel ke al Doroteo li similis salto-
-
-ludilon.
+ĉambro freneze, tiel ke al Doroteo li similis saltoludilon.
 
 La knabino, siavice, ĝojis pro ĉiu sono de la
 
@@ -8370,9 +8250,7 @@ ke nia soldato ataku tiujn militistojn.”
 
 “Antaŭ-en—marŝu!” kriis ĉiuj generaloj, unuvoĉe.
 
-“Antaŭ-en—marŝu!” kriis la koloneloj. “Antaŭ-
-
-en—marŝu!” kriis la majoroj. “Antaŭ-en—marŝu!”
+“Antaŭ-en—marŝu!” kriis la koloneloj. “Antaŭen—marŝu!” kriis la majoroj. “Antaŭ-en—marŝu!”
 
 
 La Birdotimigilo Venkas
@@ -8862,9 +8740,7 @@ L a k a v a l k a d o n g v i d i s O z m a , r a j d a n t e l a
 
 Malkuraĝan Leonon, kaj la Reĝino de Ev, sur la dorso
 
-de la Tigro. La infanoj de la Reĝino sekvis ŝin, man-
-
-en-mane. Doroteo rajdis la Segĉevalon, dum la
+de la Tigro. La infanoj de la Reĝino sekvis ŝin, manen-mane. Doroteo rajdis la Segĉevalon, dum la
 
 Birdotimigilo marŝis kaj komandis la armeon pro la
 
@@ -8962,13 +8838,9 @@ Tiktoko, “nur se la Stana Lignohakisto estus kun ni.
 
 Sed rompas mian koron postlasi lin.”
 
-“Li es-tis bo-ne-gu-lo,” respondis Tiktoko, “kvan-
+“Li es-tis bo-ne-gu-lo,” respondis Tiktoko, “kvankam li-a ma-te-ri-a-lo ne es-tis tre for-ti-ka.”
 
-kam li-a ma-te-ri-a-lo ne es-tis tre for-ti-ka.”
-
-“Nu, stano estas bonega materialo,” la Birdo-
-
-timigilo senhezite diris; “kaj se kompatinda Noĉjo
+“Nu, stano estas bonega materialo,” la Birdotimigilo senhezite diris; “kaj se kompatinda Noĉjo
 
 Hakisto iam renkontus mison, estus facile luti lin.
 
@@ -8979,9 +8851,7 @@ Ozma de Oz
 
 misfunkciado.”
 
-“Mi kelk-foj-e de-zi-ras,” diris Tiktoko, “es-ti ple-
-
-ni-gi-ta per paj-lo, ki-el vi. Es-tas du-ra sor-to kon-
+“Mi kelk-foj-e de-zi-ras,” diris Tiktoko, “es-ti pleni-gi-ta per paj-lo, ki-el vi. Es-tas du-ra sor-to kon-
 
 si-sti el ku-pro.”
 
@@ -9077,9 +8947,7 @@ fojon post mia pretiĝo el stano, ĉar mi ne memoras
 
 foriri de la Reĝo de la Knomoj.”
 
-“Vi estis sorĉita,” respondis la knabino, ĉirkaŭ-
-
-brakumante sian malnovan amikon kaj premante lin
+“Vi estis sorĉita,” respondis la knabino, ĉirkaŭbrakumante sian malnovan amikon kaj premante lin
 
 al si pro sia ĝojo. “Sed nun denove estas bone.”
 

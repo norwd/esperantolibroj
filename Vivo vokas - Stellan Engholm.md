@@ -12,27 +12,17 @@ Tria libro en la Torento-trilogio
 Lingve reviziita en 2001
 
 
-@omnibus.se
-
-
-VIVO VOKAS
-
-
 I.
 
 Johano daŭrigas sian laboron en la forĝejo, Eriko estas en
 
 la gisejo kaj Ejnar inter la konstrulaboristoj.
 
-Ilia labortago finiĝas je la kvina en la vesperoj, kaj ili venas hejmen proksimume samtempe. ĉiuj tri demetas siajn la-
-
-borvestojn, pendigas ilin en angulo de la kuirejo kaj estas
+Ilia labortago finiĝas je la kvina en la vesperoj, kaj ili venas hejmen proksimume samtempe. ĉiuj tri demetas siajn laborvestojn, pendigas ilin en angulo de la kuirejo kaj estas
 
 pretaj por lavi sin.
 
-En la komenco Ejnar faris grandan bruon dum tiuj minu-
-
-toj. Pro manko de loko ili devis lavi sin laŭvice, kaj Ejnar ĉiam pretendis, ke estas lia vico lavi sin unua.
+En la komenco Ejnar faris grandan bruon dum tiuj minutoj. Pro manko de loko ili devis lavi sin laŭvice, kaj Ejnar ĉiam pretendis, ke estas lia vico lavi sin unua.
 
 —Estis pli simple en mia junaĝo, diris la patrino dum tia
 
@@ -55,14 +45,9 @@ Tamen la tri fratoj kaj la patrino vivis relative komforte kaj pace en la kuirej
 Ofte Elsa mem pli ol ŝia knabino detruis la trankvilon. La
 
 
-VIVO VOKAS
-
-
 junuloj ĝenis ŝin jen en la kuirejo, jen en la ĉambro. Iliaj la-borvestoj kaj laborŝuoj en la kuirejo malbonodoris kaj prenis tro multe da loko. Iliaj aliaj vestoj kaj ŝuoj ne lasis lokon al ŝiaj. Jen ili ĝenis la knabinon per babilo, jen ŝin per silento.
 
-Sed en la komenco de septembro ŝi edziniĝis kun sia kava-
-
-liro kaj kune kun la knabino transloĝis al propra hejmo.
+Sed en la komenco de septembro ŝi edziniĝis kun sia kavaliro kaj kune kun la knabino transloĝis al propra hejmo.
 
 Post la vespermanĝo Ejnar ordinare malaperas. La patrino
 
@@ -82,9 +67,7 @@ fojon Eriko grumbletis pro tuŝitaj paperoj. Post tio ŝi baptis
 
 ĝin sanktejo.
 
-La tablon en la mezo de la ĉambro ili okupis por si. Tie ku-
-
-ŝas libroj, skribkajeroj, paperoj kaj skribiloj. Ankaŭ malgranda tablo apud la lito de Eriko estas simile ŝarĝita.
+La tablon en la mezo de la ĉambro ili okupis por si. Tie kuŝas libroj, skribkajeroj, paperoj kaj skribiloj. Ankaŭ malgranda tablo apud la lito de Eriko estas simile ŝarĝita.
 
 Inter la libroj sur tiu tablo estas dika notlibro en nigra
 
@@ -96,21 +79,14 @@ paĝo li skribis la vorton ”Paŝoj”. La enhavo konsistas el sen-interrompa s
 
 —Kial vi notas tion? demandis Johano.
 
-—Estas helpo por mia konscienco, respondis Eriko kun ri-
-
-deto kaj iom ĝenite. Mi volas, ke neniu tago forpasu sen iom
+—Estas helpo por mia konscienco, respondis Eriko kun rideto kaj iom ĝenite. Mi volas, ke neniu tago forpasu sen iom
 
 da utilo farita de mi.
 
 
-VIVO VOKAS
-
-
 Veninte en la ĉambron Eriko unue legas tagan gazeton,
 
-foje kelkajn. Dume li tiam kaj tiam babilas kun Johano, ser-
-
-ĉas fremdvortojn en malgranda vortaro, rigardas landkartojn.
+foje kelkajn. Dume li tiam kaj tiam babilas kun Johano, serĉas fremdvortojn en malgranda vortaro, rigardas landkartojn.
 
 Je la sepa horo li lasas la legadon por aŭskulti la radiajn
 
@@ -130,23 +106,14 @@ Tiuj novaĵoj forte efikas al Eriko. Li vivas pli multe en siaj pensoj kaj ideoj
 
 tiu malproksima batalo estas kunligita kun liaj ideoj. Tial ĝi estas por li tiel grava, kvazaŭ ĝi okazus antaŭ liaj okuloj.
 
-Sed nenion aŭ malmulton li diras. Li nur kunpremas la li-
+Sed nenion aŭ malmulton li diras. Li nur kunpremas la lipojn, kaj la vizaĝo heliĝas aŭ malheliĝas laŭ la sciigoj. Post la fino de la novaĵoj li tuj foriras kaj ĝis la lasta novaĵelsendo lasas la radion kaj la kurirejon por plena dispono al la patrino.
 
-pojn, kaj la vizaĝo heliĝas aŭ malheliĝas laŭ la sciigoj. Post la fino de la novaĵoj li tuj foriras kaj ĝis la lasta novaĵelsendo lasas la radion kaj la kurirejon por plena dispono al la patrino.
-
-Foje Eriko kaj Johano studas kune, sed plej ofte Eriko la-
-
-boras memstare. Li dediĉas sin al siaj taskoj kun tiaj energio kaj celkonscio, en kiuj Johano ne povas sekvi lin. Se li bezonas studkonsilojn, li nun turnas sin ne al Johano sed al Jern, la prezidanto en la esperanta klubo, kiu havas la saman pos-tenon ankaŭ en la socialdemokrata junulara klubo kaj en la
+Foje Eriko kaj Johano studas kune, sed plej ofte Eriko laboras memstare. Li dediĉas sin al siaj taskoj kun tiaj energio kaj celkonscio, en kiuj Johano ne povas sekvi lin. Se li bezonas studkonsilojn, li nun turnas sin ne al Johano sed al Jern, la prezidanto en la esperanta klubo, kiu havas la saman pos-tenon ankaŭ en la socialdemokrata junulara klubo kaj en la
 
 laborista klerigasocio.
 
 
-VIVO VOKAS
-
-
-Tamen Johano pasigas multajn vesperojn kune kun la fra-
-
-to. Foje li ion legas, foje skribas kaj jen kaj jen babilas kelkajn vortojn kun li. Pli ofte li nenion faras, nur sidas aŭ kuŝas sur la sofo, ripozante post la taga laboro. Sed ĉiam la kunesto kun la frato estas agrabla.
+Tamen Johano pasigas multajn vesperojn kune kun la frato. Foje li ion legas, foje skribas kaj jen kaj jen babilas kelkajn vortojn kun li. Pli ofte li nenion faras, nur sidas aŭ kuŝas sur la sofo, ripozante post la taga laboro. Sed ĉiam la kunesto kun la frato estas agrabla.
 
 —ĉu vi povas klarigi, kiel vi fariĝis tia, kia vi nun estas?
 
@@ -156,23 +123,17 @@ la diligentan laboron de la frato.
 
 Eriko skuis la kapon
 
-—La ŝanĝo ne estas granda, li diris. Mi ne estas pli inteli-
-
-genta nun ol antaŭe, kaj malfacile mi lernas. La diferenco ŝaj-ne estas en tio, ke antaŭe mi ne vidis ion por lerni kaj ne trovis ion por fari. Mi nur kvazaŭ ĉirkaŭvagis sen senco kaj celo.
+—La ŝanĝo ne estas granda, li diris. Mi ne estas pli inteligenta nun ol antaŭe, kaj malfacile mi lernas. La diferenco ŝaj-ne estas en tio, ke antaŭe mi ne vidis ion por lerni kaj ne trovis ion por fari. Mi nur kvazaŭ ĉirkaŭvagis sen senco kaj celo.
 
 Li pripense rigardis Johanon kaj aldonis:
 
-—Kial vi ne faras ion? Ne lasu la lacon tro regi vin! Vi po-
-
-vus fariĝi inerta.
+—Kial vi ne faras ion? Ne lasu la lacon tro regi vin! Vi povus fariĝi inerta.
 
 —Diligenta mi ne estas, sed ankaŭ ne inerta. Mi volas havi
 
 iom da tempo ankaŭ por propraj pensoj kaj fantazioj.
 
-Foje Johano forlasas Erikon, sidas en la kuirejo kaj aŭskul-
-
-tas radion, iom babilas kun patrino.
+Foje Johano forlasas Erikon, sidas en la kuirejo kaj aŭskultas radion, iom babilas kun patrino.
 
 La horoj pasas. Patrino ordigas iliajn litojn por la nokto. Je la deka venas la lastaj novaĵoj. Poste oni fermas la pordon
 
@@ -180,17 +141,10 @@ inter la du ĉambroj. Patrino kaj Ejnar, se li jam estas hejme, baldaŭ enlitiĝ
 
 Jam silentas la radioaparatoj en najbaraj loĝejoj, silentiĝis bruo de interparoloj, silentas la akra voĉo de la bandokanti-sto, kiu loĝas super ili, kaj la ĝemoj de lia havaja gitaro.
 
-Eriko faris el kartono dometsimilan ŝirmilon por sia tablo-
-
-lampo. i tralasas nur iom da lumo por li mem, cetere estas
+Eriko faris el kartono dometsimilan ŝirmilon por sia tablolampo. i tralasas nur iom da lumo por li mem, cetere estas
 
 
-VIVO VOKAS
-
-
-mallumo en la tuta ĉambro. Johano povas bone dormi mal-
-
-graŭ la studemo de Eriko.
+mallumo en la tuta ĉambro. Johano povas bone dormi malgraŭ la studemo de Eriko.
 
 En la matenoj Eriko havas ruĝajn okulojn, kaj estas facile
 
@@ -200,9 +154,7 @@ vidi, ke li tro malmulte dormis.
 
 admone.
 
-—Povas esti. Sed kie preni tempon kaj por lego kaj por dor-
-
-mo?
+—Povas esti. Sed kie preni tempon kaj por lego kaj por dormo?
 
 Sed ne ĉiujn vesperojn li pasigas en tiu maniero. Post la
 
@@ -214,9 +166,7 @@ Kelkaj taskoj estas bonaj kaj interesaj, aliaj ne plaĉas al li. La amuzkunvenoj
 
 —Jen mi devas ĉirkaŭkuri por aĉeti kafon, sukeron, panon
 
-kaj diversajn aferojn, devas aranĝi amuzojn kvazaŭ por mal-
-
-grandaj infanoj! li diris riproĉe al Jern. Pli bone mi povus uzi la tempon.
+kaj diversajn aferojn, devas aranĝi amuzojn kvazaŭ por malgrandaj infanoj! li diris riproĉe al Jern. Pli bone mi povus uzi la tempon.
 
 —Certe, respondis Jern. Sed tia ofero de propra intereso
 
@@ -233,16 +183,9 @@ pri varbado de gazetabonantoj — jen tasko por Eriko. Tiel li
 ricevas ion por fari kaj por la kunvenoj kaj por la intertempoj.
 
 
-VIVO VOKAS
+Jern volas, ke li zorgu ankaŭ pri sia mensa evoluo. La laborista kleriga asocio havas multe da studgrupoj. Kunvenoj oka-
 
-
-Jern volas, ke li zorgu ankaŭ pri sia mensa evoluo. La labo-
-
-rista kleriga asocio havas multe da studgrupoj. Kunvenoj oka-
-
-zas en ĉiuj vesperoj krom sabate kaj dimanĉe. Neniu perso-
-
-no kapablas partopreni en ĉiuj, sed Jern diras, ke Eriko devas partopreni almenaŭ en du, eble tri.
+zas en ĉiuj vesperoj krom sabate kaj dimanĉe. Neniu persono kapablas partopreni en ĉiuj, sed Jern diras, ke Eriko devas partopreni almenaŭ en du, eble tri.
 
 Li apartenas ankaŭ al la esperanta klubo. i kunvenas dufoje monate. Eriko ne ĉiam partoprenas, tamen ofte. Hejme li konstante kaj sisteme dediĉas iom da tempo al lernado
 
@@ -266,15 +209,11 @@ respondis Eriko indiferente. Pri kio mi parolu?
 
 —Tute egale, se vi jen kaj jen nur dirus kelkajn vortojn.
 
-ŝajne vi fariĝis tro klera por paroli kun mi. Antaŭe vi alme-
-
-naŭ povis insulti min.
+ŝajne vi fariĝis tro klera por paroli kun mi. Antaŭe vi almenaŭ povis insulti min.
 
 —ĉu tio estis pli bona? demandis Eriko same indiferente.
 
-—Jes. Tiam mi almenaŭ sentis, ke mi havas ian homan rila-
-
-ton kun vi. Nun vi estas kvazaŭ pensionloĝanto ĉe neaten-
+—Jes. Tiam mi almenaŭ sentis, ke mi havas ian homan rilaton kun vi. Nun vi estas kvazaŭ pensionloĝanto ĉe neaten-
 
 tinda mastrino.
 
@@ -285,9 +224,6 @@ tinda mastrino.
 kelkaj vortoj, ĉu bonaj ĉu malbonaj.
 
 Reciproka insultado ofte okazis inter ŝi kaj Ejnar. ŝajne la
-
-
-VIVO VOKAS
 
 
 vortbataloj bone efikis al ŝi, ĉar post ili ŝi ĉiam estis en bona humoro. Al Ejnar ŝi estis eĉ dorlota.
@@ -308,19 +244,13 @@ Foje malpleniĝis la monujo de Ejnar. Tiam li sekreteme
 
 interflustris kun la patrino, kaj post kelkaj riproĉoj de ŝi li ordinare sukcesis elpremi la bezonatan sumon. En la salajro-tago li ofte donis al la patrino nur parton de la pagota sumo, kaj la reston ŝi ricevis post ankoraŭ du semajnoj.
 
-Eriko eksciis pri tiuj manipuloj kaj severe admonis la fra-
+Eriko eksciis pri tiuj manipuloj kaj severe admonis la fraton kaj ankaŭ la patrinon.
 
-ton kaj ankaŭ la patrinon.
-
-—Vi ne bezonas insulti lin nek min, ŝi respondis. La mast-
-
-rumado estas mia afero. Se mi konsentas prokraston de la
+—Vi ne bezonas insulti lin nek min, ŝi respondis. La mastrumado estas mia afero. Se mi konsentas prokraston de la
 
 pago, tio ne koncernas vin.
 
-Kiam ŝi pro mankanta pago de Ejnar devis antaŭpeti mo-
-
-non de Eriko, ŝi ne povis nei, ke tio koncernas ankaŭ Erikon.
+Kiam ŝi pro mankanta pago de Ejnar devis antaŭpeti monon de Eriko, ŝi ne povis nei, ke tio koncernas ankaŭ Erikon.
 
 Malgraŭ tio ŝi trovis defendon por Ejnar .
 
@@ -328,22 +258,16 @@ Tamen Ejnar estis al ŝi pli malĝentila ol afabla, kaj li eĉ ne parolis kun ŝ
 
 —Ejnar havas mankojn, ŝi konsentis. Mi insultis kaj insultis
 
-lin pro liaj kvalitoj. Li tro amuzas sin, postkuras knabinojn, 9
-
-VIVO VOKAS
+lin pro liaj kvalitoj. Li tro amuzas sin, postkuras knabinojn,
 
 
-ŝatas alkoholon, malbone zorgas pri mono, malbone kondu-
-
-tas al mi. Sed tiujn aferojn mi povas kompreni, mi povas par-
+ŝatas alkoholon, malbone zorgas pri mono, malbone kondutas al mi. Sed tiujn aferojn mi povas kompreni, mi povas par-
 
 doni lin kaj poste konduti al li kiel al homo simila al mi mem.
 
 Sed Eriko! Li estas bonkonduta, donas akurate la pagon,
 
-donas ankaŭ kroman monon, aĉetas donacojn, aĉetis la ra-
-
-dion. Sed mi ne komprenas lin. Tiu ĉiama legado, tiuj fiksaj
+donas ankaŭ kroman monon, aĉetas donacojn, aĉetis la radion. Sed mi ne komprenas lin. Tiu ĉiama legado, tiuj fiksaj
 
 ideoj, tiu cerbumado kaj tiu silento! Li estas kvazaŭ homo el fremda lando, kiu ŝajnas al mi nur stranga estaĵo. En mia ju-naĝo ofte trapasis tie ĉi migrantaj eksterlandaj muzikistoj. Ili ne povis paroli kiel ni, ne aspektis kiel ni. Ili en multo similis al ni, tamen estis strangaj estaĵoj. Same estas rilate al Eriko.
 
@@ -353,9 +277,7 @@ Johano demandis, ĉu ŝi antaŭe pli bone komprenis Erikon.
 
 Tamen estis ĉe li io stranga kaj nekomprenebla.
 
-—Mi komencas timi vin, ŝercis Johano. Eble ankaŭ mi ŝaj-
-
-nas al vi stranga kaj nekomprenebla?
+—Mi komencas timi vin, ŝercis Johano. Eble ankaŭ mi ŝajnas al vi stranga kaj nekomprenebla?
 
 —Estas granda diferenco. Sed ankaŭ vi havas ion specialan.
 
@@ -374,9 +296,6 @@ aŭ ne kuraĝas ion fari. ĉiuokaze ekzistis. Sed mi ne ŝatas tiajn aferojn. Mi
 —Vi tamen ne opinias, ke mi povas sorĉi aŭ volas fari ion
 
 malbonan?
-
-
-VIVO VOKAS
 
 
 Nun ekridis la patrino.
@@ -405,11 +324,7 @@ se ĝi malvarmiĝis, eĉ kuiras novan, se nenio restas en la poto.
 
 Kiam ili poste sidas apud siaj tasoj, ŝi estas brile kontenta. ŝia lango laboras, kaj Johano povas kiom ajn rigardi ŝin, kaj ŝi eĉ ne rimarkas liajn rigardojn.
 
-Ofte li observas ŝin, kiam li interesite aŭskultas ŝiajn ra-
-
-kontojn. Kiam ŝi rakontas pri sia junaĝo, li provas imagi, kiel 11
-
-VIVO VOKAS
+Ofte li observas ŝin, kiam li interesite aŭskultas ŝiajn rakontojn. Kiam ŝi rakontas pri sia junaĝo, li provas imagi, kiel
 
 
 tiam aspektis tiu vizaĝo kaj tiu figuro. Sed nur se li forturnas la okulojn kaj provas sole per sia fantazio krei la bildon, li sukcesas en tio. Se li konstante rigardas ŝin, la maljuniĝanta vizaĝo restas tia, kia ĝi estas, aŭ li komencas imagi, kiel ĝi iom post iom ankoraŭ pli maljuniĝos, ĝis la vivo fine malaperos el
@@ -423,9 +338,6 @@ kion ŝi diras. Liaj pensoj disvagas. Fine li forgesas eĉ ŝajnigi, ke li aŭsk
 —Vi estas laca, diras la patrino. Iru dormi!
 
 Foje ŝi pravas, foje ne. Kiam li forlasas la patrinon, li iam ankoraŭ prokrastas la enlitiĝon, sidante en medito. Tute trankvile li povus sidi tiel dum horoj. Eriko malofte rimarkas, kion faras Johano.
-
-
-VIVO VOKAS
 
 
 Ofte li vizitas Aldan. Li sentas sin hejme tie. La patrino estas afabla, kaj la patro kondutas al li kiel kamarado.
@@ -458,20 +370,14 @@ plena de vivo kaj atendo.
 
 Sed dum la marŝado foje revenas pensoj kaj sentoj de la
 
-tago. Johano starigas bilancon de sia ĝisnuna laborista vivo: 13
-
-VIVO VOKAS
+tago. Johano starigas bilancon de sia ĝisnuna laborista vivo:
 
 
 —Mi vekiĝas duonhoron post la sesa, glutas tason da kafo
 
-kun buterpano kaj kuras al la uzino. Je la sepa mi staras preta kiel laboraparato kaj poste funkcias kiel tia ĝis la kvina vespere escepte la manĝopaŭzojn. Por kio? Por ke mi ricevu ti-
+kun buterpano kaj kuras al la uzino. Je la sepa mi staras preta kiel laboraparato kaj poste funkcias kiel tia ĝis la kvina vespere escepte la manĝopaŭzojn. Por kio? Por ke mi ricevu tiujn kelkajn kronojn, por kiuj mi aĉetas manĝaĵon, vestojn kaj ceterajn necesajn aferojn. Kaj mi manĝas kaj vestas min kaj
 
-ujn kelkajn kronojn, por kiuj mi aĉetas manĝaĵon, vestojn kaj ceterajn necesajn aferojn. Kaj mi manĝas kaj vestas min kaj
-
-cetere zorgas pri mia farto, por ke mi povu labori plu. Labo-
-
-ri kaj ebligi al mi labori plu, jen la senco!
+cetere zorgas pri mia farto, por ke mi povu labori plu. Labori kaj ebligi al mi labori plu, jen la senco!
 
 Ses monatojn mi estis tie. Sed tiel pasas tago post tago,
 
@@ -483,9 +389,7 @@ oleado kaj zorgado al la aparato, por ke ĝi povu funkcii plu.
 
 La forĝistoj martelas de junaĝo ĝis kadukiĝo kaj aspektas,
 
-kvazaŭ ili estus venintaj en la mondon sole por tiu martela-
-
-do. Ili malaperas, kaj la tuta rezulto kaj senco de ilia vivo estas kelkaj ferpecoj, kiuj disrustas en domoj, ĉaroj, pontoj kaj aliloke. Kaj eble kelkaj filoj, kiuj daŭrigas la marteladon, kelkaj filinoj, kiuj zorgos pri la hejmoj de aliaj forĝistoj kaj naskos novan forĝistmaterialon.
+kvazaŭ ili estus venintaj en la mondon sole por tiu martelado. Ili malaperas, kaj la tuta rezulto kaj senco de ilia vivo estas kelkaj ferpecoj, kiuj disrustas en domoj, ĉaroj, pontoj kaj aliloke. Kaj eble kelkaj filoj, kiuj daŭrigas la marteladon, kelkaj filinoj, kiuj zorgos pri la hejmoj de aliaj forĝistoj kaj naskos novan forĝistmaterialon.
 
 Tia vivo ne havas multe pli da senco ol tiu de laborĉevalo,
 
@@ -494,18 +398,11 @@ kiu tagon post tago tiras sian ĉaron, ricevas iom da furaĝo kaj havas stalon p
 la funkcio de rado sub la ĉaro, kiun tiras tiu ĉevalo …
 
 
-VIVO VOKAS
-
-
-Dum la aŭtuno Ajna renkontis siajn amikojn nur en klu-
-
-baj kunvenoj. Eĉ tiujn ŝi ne povis ĉiam partopreni. Post
+Dum la aŭtuno Ajna renkontis siajn amikojn nur en klubaj kunvenoj. Eĉ tiujn ŝi ne povis ĉiam partopreni. Post
 
 ŝia laboro en la inĝeniera familio restis nemulte da tempo por ŝi mem en la vesperoj. Du vesperojn en ĉiu semajno ŝi instruis esperanton al komencantoj.
 
-Estis vespero en la fino de novembro, en tempo kun den-
-
-saj nuboj kaj duonhelaj tagoj, kiam la okuloj laciĝas pro ĉia-ma lampolumo. Survoje al klubkunveno Ajna trovis akompa-
+Estis vespero en la fino de novembro, en tempo kun densaj nuboj kaj duonhelaj tagoj, kiam la okuloj laciĝas pro ĉia-ma lampolumo. Survoje al klubkunveno Ajna trovis akompa-
 
 non kun Alda.
 
@@ -540,9 +437,6 @@ sola. Sed se mi estus en via situacio, mi certe sentus kiel vi.
 ŝi forte respondis la manpremon de Ajna.
 
 
-VIVO VOKAS
-
-
 Ili alvenis kaj kune kun la aliaj sidigis sin ĉirkaŭ la longa tablo. Multaj membroj forestis, kelkaj okaze, aliaj laŭ kutimo.
 
 Jern kun la sekretario apud si prezidis ĉe unu ekstremo de
@@ -555,21 +449,15 @@ demandoj. Tiuj estis same negravaj kaj seninteresaj, sed Jern zorge ripetis ilin
 
 La gejunuloj fariĝis malviglaj. Tiu kaj tiu oscedis. La influo de la forestantoj estis pli granda ol la reciproka vigligo de la ĉeestantoj. Multaj pensis, ke estus bone, se la kunveno baldaŭ finiĝus.
 
-Fine la traktado estis preta. La sekvanta punkto estis mal-
+Fine la traktado estis preta. La sekvanta punkto estis mallonga parolado de Eriko. Por ekzerco ili laŭvice faris tiajn pa-roladojn dum la kunvenoj.
 
-longa parolado de Eriko. Por ekzerco ili laŭvice faris tiajn pa-roladojn dum la kunvenoj.
-
-Eriko levis sin, kvazaŭ vekiĝante el propraj pensoj, kaj sta-
-
-rigis sin malantaŭ sian seĝon. Eĉ li estis malmulte atentinta pri cirkuleroj kaj prokrastitaj demandoj.
+Eriko levis sin, kvazaŭ vekiĝante el propraj pensoj, kaj starigis sin malantaŭ sian seĝon. Eĉ li estis malmulte atentinta pri cirkuleroj kaj prokrastitaj demandoj.
 
 Li komencis paroli. Lia temo estis la homara batalo por
 
 libero kaj frateco. Malrapide li parolis, kvazaŭ tirante la vortojn el la profundo de sia interno. La vortoj kaj la frazoj estis senornamaj kaj senarte aranĝitaj, sed ili estis liaj propraj, kaj ili estis plenaj de la sama retenita energio, kiu vivigis lian vi-zaĝon, kaj ili bone esprimis tion, kion li volis komuniki al siaj aŭskultantoj.
 
-Liaj okuloj estis direktitaj al ili. Sed nur kvazaŭ tra vualo li vidis ilin, ĉar li vidis antaŭ si la homaron klopodantan tra jarcentoj kaj jarmiloj, pionirojn en peniga kaj sinofera laboro, multmilionajn amasojn, kiuj devas vekiĝi el inerto al konscio 16
-
-VIVO VOKAS
+Liaj okuloj estis direktitaj al ili. Sed nur kvazaŭ tra vualo li vidis ilin, ĉar li vidis antaŭ si la homaron klopodantan tra jarcentoj kaj jarmiloj, pionirojn en peniga kaj sinofera laboro, multmilionajn amasojn, kiuj devas vekiĝi el inerto al konscio
 
 
 pri sia propra vivo. Tion li klare kaj animkaptite vidis, kaj lia voĉo fariĝis kiel voĉo de vokanto.
@@ -590,9 +478,7 @@ Kiam li finis kaj residigis sin, fariĝis silento, antaŭ ol ili komencis aplaŭ
 
 parolado.
 
-Regis alia atmosfero ol antaŭ duonhoro. Kaptitaj de la sa-
-
-ma sento ili komencis foliumi la kantlibrojn, kaj la kanto sonis pli forta kaj gaja, ol dum longa tempo.
+Regis alia atmosfero ol antaŭ duonhoro. Kaptitaj de la sama sento ili komencis foliumi la kantlibrojn, kaj la kanto sonis pli forta kaj gaja, ol dum longa tempo.
 
 La tri rondanoj kaj Eriko kune iris hejmen. La tri parolis
 
@@ -616,14 +502,9 @@ klubo?
 
 —Antaŭ nelonge Jern demandis vin, sed tiam vi ne volis.
 
-—Jes. Sed post via parolado mi pli bone komprenas, kaj an-
-
-kaŭ mi volas kunhelpi, se mi povos.
+—Jes. Sed post via parolado mi pli bone komprenas, kaj ankaŭ mi volas kunhelpi, se mi povos.
 
 —ĉiu povas, ĉiu devus. Vi estas bonvena!
-
-
-VIVO VOKAS
 
 
 Lia vizaĝo heliĝis, kaj per sentinspirita movo li etendis al
@@ -632,9 +513,7 @@ Lia vizaĝo heliĝis, kaj per sentinspirita movo li etendis al
 
 Sed subite lia vizaĝo serioziĝis, peziĝis, iom ruĝiĝis. Lia
 
-mano perdis sian forton kaj elglitis el ŝia. Post momento renkontis ŝin pardonpeta rigardo el liaj okuloj. Kun malĝoja ri-
-
-deto li diris:
+mano perdis sian forton kaj elglitis el ŝia. Post momento renkontis ŝin pardonpeta rigardo el liaj okuloj. Kun malĝoja rideto li diris:
 
 —Pardonu! Mi ekpensis, ke vi rajtas diri: ”Kiu estas vi, ke
 
@@ -653,20 +532,13 @@ Ajna per rapida movo rekaptis lian manon kaj preme skuis
 —Ne parolu tiel! Nun ni kune laboru!
 
 
-VIVO VOKAS
-
-
 La duonpatro de Arne ne tro grumblis, kiam oni decidis,
 
 ke Arne forveturu por viziti artan lernejon. La afero estis
 
-subtenata de tiaj personoj, kontraŭ kiuj li ne kuraĝis kontraŭ-
+subtenata de tiaj personoj, kontraŭ kiuj li ne kuraĝis kontraŭstari, kaj oni ne postulis monon de li. Sed en la hejmo li deklaris, ke la afero estas stulta.
 
-stari, kaj oni ne postulis monon de li. Sed en la hejmo li deklaris, ke la afero estas stulta.
-
-Jam en sia unua letero frue en la aŭtuno la patrino paro-
-
-lis pri revido dum kristnasko. Tion ŝi ripetis en ĉiuj leteroj.
+Jam en sia unua letero frue en la aŭtuno la patrino parolis pri revido dum kristnasko. Tion ŝi ripetis en ĉiuj leteroj.
 
 Pasis nun la pli granda parto de la aŭtuno, kaj ŝiaj simplaj
 
@@ -689,16 +561,9 @@ Ilia loĝejo havis tri ĉambrojn kaj kuirejon. Ankaŭ tie ĉio
 estis same bela, hela, komforta kaj racie farita kiel ĉio ekstera en tiu nova urboparto. Sed la mebloj kaj aliaj objektoj
 
 
-VIVO VOKAS
+grandparte devenis el iama altklasa medio, kaj en la komenco Arne sentis, kvazaŭ li ŝtelirus en medio malpermesita al li.
 
-
-grandparte devenis el iama altklasa medio, kaj en la komen-
-
-co Arne sentis, kvazaŭ li ŝtelirus en medio malpermesita al li.
-
-Tiuj malnovaj objektoj estis tre belaj, kaj li ĝojis, kiam li rigardis ilin, sed ili samtempe kvazaŭ riproĉis lin: ”Kial vi en-
-
-ŝtelis vin en nian regnon? Vi ne apartenas al nia medio. Estus por vi pli bone reiri tien, de kie vi venis.”
+Tiuj malnovaj objektoj estis tre belaj, kaj li ĝojis, kiam li rigardis ilin, sed ili samtempe kvazaŭ riproĉis lin: ”Kial vi enŝtelis vin en nian regnon? Vi ne apartenas al nia medio. Estus por vi pli bone reiri tien, de kie vi venis.”
 
 Ofte li pensis: ”La homoj, kiuj apartenas al tia medio, ne
 
@@ -706,9 +571,7 @@ povas kompreni la krudkondutajn kaj simplanimajn homojn
 
 en laborista loĝejo en Torento.”
 
-Iom post iom malaperis tiu sento de fremdeco. Li konten-
-
-tige konatiĝis kun antaŭe nekonataj aferoj, kiuj komence ĝe-
+Iom post iom malaperis tiu sento de fremdeco. Li kontentige konatiĝis kun antaŭe nekonataj aferoj, kiuj komence ĝe-
 
 nis lin. Sed restis kaj plifortiĝis la impreso, kiun lasis en li la medio de lia infanaĝo.
 
@@ -732,9 +595,7 @@ staras sur la perono de la stacio en Torento, kune kun Brita
 
 kaj ŝia patrino. Ili kiel kutime pasigos la libertempon en la pensiono.
 
-Kiam ili eniris en la aŭton, li prenis sian valizon kaj diris al 20
-
-VIVO VOKAS
+Kiam ili eniris en la aŭton, li prenis sian valizon kaj diris al
 
 
 ili ĝisrevidon. Li volas iri hejmen piede, li diris. Ili rigardis lin ne komprenante.
@@ -755,41 +616,28 @@ Iel ĝi aspektis malpli granda, malpli signifa. Li tremis pro
 
 ĝojo, kiam li ĉion revidis, sed samtempe li iel sentis sin fremdulo en la hejma loko.
 
-En la mola krepusko li iris sur sia hejma strato. Venis kel-
-
-kaj knaboj kun kristnaskaj arbetoj. Kelkaj infanoj ludis en la nova neĝo, sed la plej multaj estis interne. Tra la fenestroj li vidis la lastajn preparojn por la festo. Iuj rekonis lin, salutis, faris iun demandon kaj deziris feliĉan feston.
+En la mola krepusko li iris sur sia hejma strato. Venis kelkaj knaboj kun kristnaskaj arbetoj. Kelkaj infanoj ludis en la nova neĝo, sed la plej multaj estis interne. Tra la fenestroj li vidis la lastajn preparojn por la festo. Iuj rekonis lin, salutis, faris iun demandon kaj deziris feliĉan feston.
 
 Post kvarmonata foresto li denove malfermis la pordon de
 
-la hejmo. Patrino staris ĉe la forno kun ladplato kun nov-
-
-bakitaj bulkoj, kiun ŝi ĝuste elprenis. Kiam ŝi ekvidis lin, ŝi formetis la platon, ĉirkaŭbrakis lin kaj silente ploris.
+la hejmo. Patrino staris ĉe la forno kun ladplato kun novbakitaj bulkoj, kiun ŝi ĝuste elprenis. Kiam ŝi ekvidis lin, ŝi formetis la platon, ĉirkaŭbrakis lin kaj silente ploris.
 
 El la ĉambro venis Eta. ŝi estis ornamanta la kristnaskan
 
 arbon, kaj ŝi gaje kaj bubmaniere salutis. Elvenis ankaŭ la
 
-patro, kun sapita vizaĝo kaj razaparato en la mano. Li scivo-
-
-le rigardis Arnen, diris bonvenon kaj poste reiris.
+patro, kun sapita vizaĝo kaj razaparato en la mano. Li scivole rigardis Arnen, diris bonvenon kaj poste reiris.
 
 La patrino petis lin eksidi ĉe la tablo kaj donis al li kafon kaj freŝajn bulkojn. ŝi ŝajnis kontenta.
-
-
-VIVO VOKAS
 
 
 —Vi multe kreskis, ŝi diris, kaj vi ne estas malgrasa. Certe
 
 vi havas bonan mastrinon.
 
-Li lavas sin kaj iom okupas sin pri sia pakaĵo. Kaj jen res-
+Li lavas sin kaj iom okupas sin pri sia pakaĵo. Kaj jen restas nenio por fari. Li iras el la kuirejo en la ĉambron kaj denove en la kuirejon, sidas jen sur la sofo, jen sur iu seĝo, rigardas la okupiĝon de Eta kaj kiel la patrino komencas prepari
 
-tas nenio por fari. Li iras el la kuirejo en la ĉambron kaj denove en la kuirejon, sidas jen sur la sofo, jen sur iu seĝo, rigardas la okupiĝon de Eta kaj kiel la patrino komencas prepari
-
-la manĝaĵon por la vespero. Patrino multe demandas, kaj an-
-
-kaŭ Eta faras kelkajn demandojn, sed li trovas malmultajn
+la manĝaĵon por la vespero. Patrino multe demandas, kaj ankaŭ Eta faras kelkajn demandojn, sed li trovas malmultajn
 
 vortojn por respondi.
 
@@ -811,9 +659,7 @@ transdoni ĝin nun.
 
 —Eble, sed mi tamen volas. Mi rapide revenos.
 
-Kiam li denove estis sur la strato, li duonkuris sur la sen-
-
-homa vojo, ĝoja pro baldaŭa renkonto kun Alekso kaj sam-
+Kiam li denove estis sur la strato, li duonkuris sur la senhoma vojo, ĝoja pro baldaŭa renkonto kun Alekso kaj sam-
 
 tempe kun sento de malĝojo.
 
@@ -826,9 +672,6 @@ Ili kun ĝojo salutis lin kaj donis lokon al li apud si. Li transdonis sian dona
 Ili sidis kune apud la fajro, kaj Alekso kaj la edzino faris
 
 multajn demandojn. Nun li facile respondis kaj mem multe
-
-
-VIVO VOKAS
 
 
 demandis. Li vidis la trankvilan, firman rigardon de Alekso
@@ -857,13 +700,9 @@ La du glasoj tamen efikis. Li volas paroli kaj turnas sin al
 
 Arne.
 
-—Nu, knabo, ĉu vi havas sukceson en via lernejo? li de-
+—Nu, knabo, ĉu vi havas sukceson en via lernejo? li demandis preskaŭ afable.
 
-mandis preskaŭ afable.
-
-—Mi kredas ke jes, respondis Arne, mirante pri la deman-
-
-do.
+—Mi kredas ke jes, respondis Arne, mirante pri la demando.
 
 —Tio tre ĝojigas min, diris la patro. Antaŭe mi eble tro
 
@@ -874,39 +713,26 @@ malestimis vian strekadon kaj ŝmiradon, sed povas esti, ke tio estas la plej bo
 mire.
 
 
-VIVO VOKAS
-
-
 —Okazis antaŭ kelkaj semajnoj, eble monato, ke inĝeniero
 
 Brink trairis la rostfornon, vi scias, estas tiu, ĉe kiu servas tiu via kamaradino Ajna, kaj li komencis demandi min, kiel fartas vi, kaj ĉu vi venos hejmen dum kristnasko, kaj ke li havas grandan intereson por vi, ĉar vi estas talenta. Sed ĉu vi kredas, sinjoro inĝeniero, demandis mi, ke li vere povos vivteni sin per tia sinjoreca metio? Certe, certe, diris la inĝeniero kaj ridis al mi, kvazaŭ mi estus tre naiva. Li povas gajni multe da mono, kaj li fariĝos fama, diris la inĝeniero. La famo malmulte gravas, diris mi, sed estas bone, ke li povos vivteni sin. Sed ĉu ne estus pli honeste, ke li restus laboristo? Laboristo devas resti laboristo, fari sian taskon kaj pri nenio alia okupi sin, tio estas plej honesta, diris mi. La inĝeniero denove ridis kaj diris, ke tio estas ja simpla kaj honesta vidpunkto, sed povas esti, ke ankaŭ laboristaj infanoj foje konvenas pli bone por tia sinjoreca metio ol por krudlaboro, kaj rilate al vi tio estas tute certa, li diris. Kaj mi supozas, ke li estas homo, kiu scias, pri kio li parolas.
 
-Li eksilentis kaj palpebrumis al Arne, kvazaŭ li volas mon-
-
-tri, ke nun li komprenas la sekreton.
+Li eksilentis kaj palpebrumis al Arne, kvazaŭ li volas montri, ke nun li komprenas la sekreton.
 
 Patrino kaj Eta forportis ĉion de la tablo. Eta bruligis la
 
 kandelojn sur la arbo, kaj ili malfermis la ricevitajn donacojn.
 
-Post reciproka dankado kaj iom da babilo venis denove silen-
-
-to.
+Post reciproka dankado kaj iom da babilo venis denove silento.
 
 La patro prenis grandan glason, plenigis ĝin per varma
 
-akvo kaj enmiksis iom da konjako kaj sukero. Li trinkis glu-
-
-ton, metis la glason sur malgrandan tablon, sur kiu staris cin-drujo kaj skatolo kun cigaroj. Li sidigis sin en brakseĝon apud la tablo, prenis cigaron en la skatolo, zorge bruligis ĝin kaj 24
-
-VIVO VOKAS
+akvo kaj enmiksis iom da konjako kaj sukero. Li trinkis gluton, metis la glason sur malgrandan tablon, sur kiu staris cin-drujo kaj skatolo kun cigaroj. Li sidigis sin en brakseĝon apud la tablo, prenis cigaron en la skatolo, zorge bruligis ĝin kaj
 
 
 faris kelkajn dikajn fumnubojn. Poste li klinis sin malantaŭen en la seĝo kaj ŝajnis tute kontenta.
 
-—Jen, jen, li diris al Arne post kelka silento, certe vi suk-
-
-cesos. Eble mi foje estis severa al vi, sed estis nur bona volo, vi scias mian opinion pri laboristo. Mi esperas, ke vi ne tro atentis pri tio, se tiel estis, kaj ke vi ne forturnos vin de viaj gepatroj, kiam vi fariĝos riĉa kaj fama. Mi estas ja verdire nur via duonpatro, kiel vi scias, sed tamen, tamen, verŝajne la
+—Jen, jen, li diris al Arne post kelka silento, certe vi sukcesos. Eble mi foje estis severa al vi, sed estis nur bona volo, vi scias mian opinion pri laboristo. Mi esperas, ke vi ne tro atentis pri tio, se tiel estis, kaj ke vi ne forturnos vin de viaj gepatroj, kiam vi fariĝos riĉa kaj fama. Mi estas ja verdire nur via duonpatro, kiel vi scias, sed tamen, tamen, verŝajne la
 
 diferenco inter patro kaj duonpatro ne estas tre granda.
 
@@ -935,9 +761,6 @@ lernejo, ĉe lia laboro kaj liaj aspiroj, jen en la hejmo de la moderna domo, je
 ornamitaj kaj iluminitaj por la festo.
 
 
-VIVO VOKAS
-
-
 Liaj pensoj revenas al la ĉambro, kie li sidas. Li memoras
 
 antaŭajn kristnaskojn, kiam li sidis tie en la sama maniero,
@@ -950,19 +773,13 @@ La patro levis sin kaj rigardis la horloĝon sur la muro. Li
 
 ekmemoris pri la vesperaj novaĵoj kaj volis funkciigi la radion.
 
-En la sekvanta momento li memoris, ke oni ne sendas no-
+En la sekvanta momento li memoris, ke oni ne sendas novaĵojn en la kristnaska vespero.
 
-vaĵojn en la kristnaska vespero.
-
-—Kaj tio povas esti egala, li diras. Ili havu pacon en Hispa-
-
-nujo almenaŭ en tiu ĉi nokto. Sed nun ni enlitiĝu, ĉar en la
+—Kaj tio povas esti egala, li diras. Ili havu pacon en Hispanujo almenaŭ en tiu ĉi nokto. Sed nun ni enlitiĝu, ĉar en la
 
 rostforno estos labortago ankaŭ morgaŭ.
 
-La patrino levis sin, lumigis la elektran lampon kaj komen-
-
-cis aranĝi por la nokto.
+La patrino levis sin, lumigis la elektran lampon kaj komencis aranĝi por la nokto.
 
 —Panjo, mi eliros promeni iomete, diris Arne duonlaŭte al
 
@@ -980,18 +797,11 @@ kapricojn, diris la patrino.
 
 La strato estis tute senhoma kaj netuŝite blanka en la lumo
 
-de la lanternoj kaj de la duonluno, kiu brilis en sudokciden-
-
-to inter senmovaj nubstrioj. Arne rigardis al la okcidenta ekstremo de la strato. Strieto da lumo elŝtelis sin ĉe la fenestro-rando en la hejmo de Johano. Se li povus eniri kaj saluti! Johano ne malŝatus sed eble la aliaj.
+de la lanternoj kaj de la duonluno, kiu brilis en sudokcidento inter senmovaj nubstrioj. Arne rigardis al la okcidenta ekstremo de la strato. Strieto da lumo elŝtelis sin ĉe la fenestro-rando en la hejmo de Johano. Se li povus eniri kaj saluti! Johano ne malŝatus sed eble la aliaj.
 
 Li iom staras, poste pluiras. Elglitas lumstrio ankaŭ el la
 
-hejmo de Ajna. Li ankoraŭ pli malrapide iras, kiam li preter-
-
-pasas, kaj preskaŭ en atendo li rigardas al la korto.
-
-
-VIVO VOKAS
+hejmo de Ajna. Li ankoraŭ pli malrapide iras, kiam li preterpasas, kaj preskaŭ en atendo li rigardas al la korto.
 
 
 Li venas al la gazetvendejo. Ankaŭ tie estas neniuj homoj.
@@ -1006,23 +816,15 @@ Li haltas antaŭ la montrofenestroj kaj senatente rigardas.
 
 Eble ankaŭ la kaprica Alda ekhavus la ideon fari promenon.
 
-Li povus eniri. La gepatroj certe ne malaprobus. Sed io rete-
-
-nas lin. Soleco premas lin, kaj li krius pro ĝojo, se Alda venus, sed samtempe li sentas deziron resti sola.
+Li povus eniri. La gepatroj certe ne malaprobus. Sed io retenas lin. Soleco premas lin, kaj li krius pro ĝojo, se Alda venus, sed samtempe li sentas deziron resti sola.
 
 Post kvin minutoj li forlasis la fenestrojn kaj iris norden.
 
-Finiĝis la vicoj de lanternoj, finiĝis ankaŭ ilia lumo. Nemiksita kaj pura kuŝis la lunlumo sur neĝokovrita tero kaj neĝo-
+Finiĝis la vicoj de lanternoj, finiĝis ankaŭ ilia lumo. Nemiksita kaj pura kuŝis la lunlumo sur neĝokovrita tero kaj neĝokovritaj arboj.
 
-kovritaj arboj.
+Malrapide kaj aŭtomate li iras sur la strio de forte premita neĝo, kiun postlasis la larĝaj radoj de ŝarĝaŭtoj, kaj rigide liaj okuloj rigardas antaŭen.
 
-Malrapide kaj aŭtomate li iras sur la strio de forte premi-
-
-ta neĝo, kiun postlasis la larĝaj radoj de ŝarĝaŭtoj, kaj rigide liaj okuloj rigardas antaŭen.
-
-Li haltis kaj kvazaŭ vekiĝis. Jam li estis en profunda arba-
-
-ro, almenaŭ kvar kilometrojn de Torento. Nenio estis videbla
+Li haltis kaj kvazaŭ vekiĝis. Jam li estis en profunda arbaro, almenaŭ kvar kilometrojn de Torento. Nenio estis videbla
 
 krom neĝo kaj arboj kaj steloj. Neniu sono estis aŭdebla krom la susuro de la sango en liaj oreloj, kaj tiu sonis, kvazaŭ ĝi venus de ekstere, kvazaŭ la silento mem kantus kaj plenigus
 
@@ -1031,79 +833,51 @@ per sia kanto la tutan mondspacon.
 Li longe restis staranta kaj poste same malrapide reiris.
 
 
-VIVO VOKAS
-
-
 II.
 
-Iom post novjaro Johano laŭ propra peto ricevis laboron in-
-
-ter la transportlaboristoj anstataŭ en la forĝejo.
+Iom post novjaro Johano laŭ propra peto ricevis laboron inter la transportlaboristoj anstataŭ en la forĝejo.
 
 En la hejmo li ne parolis pri tio antaŭe. Kiam Eriko eksciis
 
 pri la ŝanĝo, li fariĝis malkontenta.
 
-—Vi devus pli bone pripensi tian aferon, li diris. Kiel for-
-
-ĝisto vi havus sekuran pozicion, kaj forĝado estas bona labo-
+—Vi devus pli bone pripensi tian aferon, li diris. Kiel forĝisto vi havus sekuran pozicion, kaj forĝado estas bona labo-
 
 ro. Se tio pli plaĉus al vi, vi povus daŭrigi kiel mekanikisto de iu speco. Estas bonaj metioj kaj bona pago. Kaj tiaj homoj
 
 estas solidaj homoj.
 
-—Mi fariĝos nek forĝisto nek mekanikisto de iu speco, res-
+—Mi fariĝos nek forĝisto nek mekanikisto de iu speco, respondis Johano. Mi ankaŭ ne restos transportlaboristo. Sed en
 
-pondis Johano. Mi ankaŭ ne restos transportlaboristo. Sed en
-
-tiu laboro mi gajnas duoble pli multe ol en la forĝejo. Mo-
-
-mente tio estas la ĉefa afero.
+tiu laboro mi gajnas duoble pli multe ol en la forĝejo. Momente tio estas la ĉefa afero.
 
 —Mi neniam rimarkis, ke vi havas grandan bezonon de
 
 mono. Kio vi volas fariĝi, cetere?
 
-Johano rigardis kvazaŭ al malproksimo. Li malmulte aten-
-
-tis pri la demando sed diris post kelkaj momentoj:
+Johano rigardis kvazaŭ al malproksimo. Li malmulte atentis pri la demando sed diris post kelkaj momentoj:
 
 —Tion mi ankoraŭ ne eltrovis.
 
-Proksimume kiel Eriko parolis ankaŭ la patrino. Sed pos-
-
-te ŝi aldonis:
+Proksimume kiel Eriko parolis ankaŭ la patrino. Sed poste ŝi aldonis:
 
 —Cetere la diablo scias, kio estas pli prudenta. Antaŭ nur
 
-unu jaro multaj mekanikistoj kaj forĝistoj estis same senva-
-
-loraj subtenlaboruloj kiel plej simpla taglaboristo. Estas saĝe 28
-
-VIVO VOKAS
+unu jaro multaj mekanikistoj kaj forĝistoj estis same senvaloraj subtenlaboruloj kiel plej simpla taglaboristo. Estas saĝe
 
 
-perlabori monon, se oni komprenas ŝpari ĝin. Vi ankoraŭ ha-
-
-vas tempon por elekti.
-
-
-VIVO VOKAS
+perlabori monon, se oni komprenas ŝpari ĝin. Vi ankoraŭ havas tempon por elekti.
 
 
 Johano kaj Alda iris sur la silenta vojo al nordokcidento.
 
-Neĝo kaj steloj donis sufiĉe da lumo por distingi la prok-
-
-siman ĉirkaŭaĵon, kaj en la okcidento tritaga novluno pendis
+Neĝo kaj steloj donis sufiĉe da lumo por distingi la proksiman ĉirkaŭaĵon, kaj en la okcidento tritaga novluno pendis
 
 kvazaŭ ora ŝipeto glitanta tra la nigra spaco.
 
 Ili ĝojis pro la luno. i estis por ili kvazaŭ bona amiko kaj membro de ilia rondo. Kiel fidela kamarado ĝi akompanis ilin
 
-dum vesperaj promenoj kaj skiekskursoj. Kiel fidela gardiran-
-
-to ĝi paŝis sian vojon tra la alto, kiam ili tranoktis ĉe la lago, kaj silente ili sekvis ĝian moviĝon same kiel en tiu vespero, kiam ili unuafoje observis la moviĝon de la steloj.
+dum vesperaj promenoj kaj skiekskursoj. Kiel fidela gardiranto ĝi paŝis sian vojon tra la alto, kiam ili tranoktis ĉe la lago, kaj silente ili sekvis ĝian moviĝon same kiel en tiu vespero, kiam ili unuafoje observis la moviĝon de la steloj.
 
 Samtempe ĝi estis por ili dieca aperaĵo. i sentigis al ili
 
@@ -1123,18 +897,11 @@ nin tre malgrandaj. Ili rigardas sin mem kaj trovas la universon malgranda.
 
 Liaj pensoj denove iris al la ora ŝipeto.
 
-—Se oni nur pripensas, ke tiel la luno velis tra la spaco dum jarmiloj kaj centoj da jarmiloj, oni jam sentas sin tre malgran-30
-
-VIVO VOKAS
-
-
-da Nun ĝi staras tie en okcidento, kaj estas ni, kiuj rigardas
+—Se oni nur pripensas, ke tiel la luno velis tra la spaco dum jarmiloj kaj centoj da jarmiloj, oni jam sentas sin tre malgranda Nun ĝi staras tie en okcidento, kaj estas ni, kiuj rigardas
 
 ĝin. Tute same ĝi staris tie en iu vespero antaŭ mil jaroj en la vikinga tempo, kaj estis homoj, kiuj rigardis ĝin kiel ni nun.
 
-Tute same ĝi naĝis tie, kiam ŝtonepoka homo rigardis la ves-
-
-peran ĉielon. Tiu homo verŝajne havis tre kuriozajn pensojn
+Tute same ĝi naĝis tie, kiam ŝtonepoka homo rigardis la vesperan ĉielon. Tiu homo verŝajne havis tre kuriozajn pensojn
 
 pri ĝi, sed certe pensis same serioze kiel ni, certe ĝi estis por li pli granda miraklo ol por ni.
 
@@ -1146,13 +913,9 @@ rigardis ĝin en tiu ĉi regiono. Same kiel nun ĝi brilis en sia ĉiama velado,
 
 kreskis la ŝtonkarbaj arbaroj kaj homoj ankoraŭ tute ne ekzistis. Kaj same ĝi staros tie kaj velos tra la spaco en la epokoj de la estonto, kiam la nuna mondo ne ekzistos plu.
 
-Kaj en tiu ĉi momento estas ni, kiuj rigardas ĝin. ĉiuj an-
+Kaj en tiu ĉi momento estas ni, kiuj rigardas ĝin. ĉiuj antaŭaj rigardantoj forpasis, ĉiuj estontaj ankoraŭ ne venis. Kie estas la pasintaj, kie la estontaj? Kaj de kie venis ni, de kie venis niaj imagoj, revoj, pensoj, ideoj pri la vivo? La miraklo estas same granda por ni kiel por la ŝtonepoka homo.
 
-taŭaj rigardantoj forpasis, ĉiuj estontaj ankoraŭ ne venis. Kie estas la pasintaj, kie la estontaj? Kaj de kie venis ni, de kie venis niaj imagoj, revoj, pensoj, ideoj pri la vivo? La miraklo estas same granda por ni kiel por la ŝtonepoka homo.
-
-Kaj dume la homoj fervore dediĉas sin al siaj kuriozaj pe-
-
-nadoj. ĉiu devas fariĝi io grava, io eminenta. La krudlaboran-ta knabo fariĝas mekanikisto, la filo de la mekanikisto fariĝas inĝeniero. Membro de loka organizo fariĝas gvidanto en federacio, fariĝas parlamentano, ano de la registaro.
+Kaj dume la homoj fervore dediĉas sin al siaj kuriozaj penadoj. ĉiu devas fariĝi io grava, io eminenta. La krudlaboran-ta knabo fariĝas mekanikisto, la filo de la mekanikisto fariĝas inĝeniero. Membro de loka organizo fariĝas gvidanto en federacio, fariĝas parlamentano, ano de la registaro.
 
 Iu fariĝas plej eminenta en kurado, alia en naĝado, tria en
 
@@ -1163,12 +926,7 @@ luno trankvile iris sian vojon. —
 Subite Johano ŝanĝis temon.
 
 
-VIVO VOKAS
-
-
-—Mi havis strangan travivaĵon hodiaŭ. Kiam nia laborgru-
-
-po faris momentan paŭzon, ni subite ekvidis junulinon antaŭ
+—Mi havis strangan travivaĵon hodiaŭ. Kiam nia laborgrupo faris momentan paŭzon, ni subite ekvidis junulinon antaŭ
 
 ni. Estis en la mallarĝa loko inter la altforno, la ŝtalfarejo kaj la forĝejo. Muroj kaj tero kaj aero estas plenaj de fulgo kaj karbopolvo. Subite aperis dek metrojn antaŭ ni junulino, dek
 
@@ -1182,9 +940,7 @@ kiam tiu neatendite aperis, la bildo tute frapis min.
 
 —Kaj kio poste okazis?
 
-—Nenio menciinda. Iu kriis al ŝi kaj demandis, kion ŝi ser-
-
-ĉas — estis laborista knabino, kaj kelkaj konis ŝin, kvankam
+—Nenio menciinda. Iu kriis al ŝi kaj demandis, kion ŝi serĉas — estis laborista knabino, kaj kelkaj konis ŝin, kvankam
 
 mi ne. ŝi ricevis la informon, kiun ŝi deziris, kelkaj kriis al ŝi iujn ŝercojn, kaj ŝi pluiris kaj malaperis. Sed dum pluraj horoj mi pensis nur pri tiu afero.
 
@@ -1201,9 +957,6 @@ tutan agotempon de sia vivo ili pasigas en aparta, ekskluzive vira mondo. Virino
 de sia vivo, kiel estaĵojn, kiuj kuiras, flikas, trikas, purigas kaj cetere kiel flirtulinojn, amatinojn, edzinojn.
 
 
-VIVO VOKAS
-
-
 —ĉu vi volas, ke en la uzino laboru same multe da virinoj
 
 kiel da viroj?
@@ -1216,9 +969,7 @@ proprecojn de tiuj du medioi.
 
 Malgrandaj knaboj kaj knabinoj ordinare kondutas kiel
 
-egaluloj, se grandaj homoj ne instruis al ili ion alian. Sed kiam ili fariĝas ok, naŭjaraj, ili disiĝas kaj englitas en siajn special-ajn mediojn. Plenkreskaj homoj diras al knabo: ”Nun vi kon-
-
-dutas kiel knabino, kaj la knaboj ridos pri vi”, aŭ: ”Vi ne devas simili al knabino sed fariĝi brava knabo kaj brava viro”. Al knabino oni diras: ”Nun vi kondutas kiel knabo. Neniam vi
+egaluloj, se grandaj homoj ne instruis al ili ion alian. Sed kiam ili fariĝas ok, naŭjaraj, ili disiĝas kaj englitas en siajn special-ajn mediojn. Plenkreskaj homoj diras al knabo: ”Nun vi kondutas kiel knabino, kaj la knaboj ridos pri vi”, aŭ: ”Vi ne devas simili al knabino sed fariĝi brava knabo kaj brava viro”. Al knabino oni diras: ”Nun vi kondutas kiel knabo. Neniam vi
 
 fariĝos bona kaj taŭga knabino, se vi tiel daŭrigos.” Same mokas kaj diras pli aĝaj knaboj kaj knabinoj.
 
@@ -1228,9 +979,7 @@ ludon kun ili, evitas ilian societon, komencas taksi ilin kiel malsuperajn esta�
 
 Same estas rilate al la knabinoj, almenaŭ ili hontas esti kune kun knaboj.
 
-La knaboj vivas en sia medio, kun siaj sentoj, pensoj, inter-
-
-paroloj kaj okupoj. Same la knabinoj vivas en sia. Nur supraĵe ili havas ion komunan. Esence ili estas tute fremdaj unu al
+La knaboj vivas en sia medio, kun siaj sentoj, pensoj, interparoloj kaj okupoj. Same la knabinoj vivas en sia. Nur supraĵe ili havas ion komunan. Esence ili estas tute fremdaj unu al
 
 alia.
 
@@ -1238,12 +987,7 @@ Sed dum tio la knaboj inter si parolas pri la knabinoj, kaj
 
 de kamaradoj kaj viroj ili lernas pri knabinoj, sed nur tiom ili lernas, ke ili estas inoj. Pli multe tiuj ne povas instrui, ĉar pli multe ili ne scias.
 
-Tiel la knaboj rigardas la knabinojn kiel malsuperajn esta-
-
-ĵojn, foje kun bonvolo sed pli ofte kun malestimo. Ili volas
-
-
-VIVO VOKAS
+Tiel la knaboj rigardas la knabinojn kiel malsuperajn estaĵojn, foje kun bonvolo sed pli ofte kun malestimo. Ili volas
 
 
 havi nenion komunan kun ili. Sed samtempe ili fantazias pri
@@ -1262,9 +1006,7 @@ unu por la alia kiel fianĉo kaj fianĉino en malnova ĉinujo.
 
 Eble ili iom post iom povas konatiĝi kaj rigardi unu la alian kiel egalulojn. Sed ŝajnas al mi, ke la viroj ordinare restas anoj de ekskluzive vira medio kaj la virinoj de virina.
 
-Dum la mallonga tempo, kiun mi pasigis inter la transport-
-
-laboristoj mi vole nevole pensis pri tiuj aferoj. Tiajn interpa-rolojn, kiuj okazas inter ili, kaj tian ĉiamecon de tiaj interparoloj mi antaŭe eĉ ne imagis. Dum la tuta tempo pasis neniu
+Dum la mallonga tempo, kiun mi pasigis inter la transportlaboristoj mi vole nevole pensis pri tiuj aferoj. Tiajn interpa-rolojn, kiuj okazas inter ili, kaj tian ĉiamecon de tiaj interparoloj mi antaŭe eĉ ne imagis. Dum la tuta tempo pasis neniu
 
 tago sen plej krudaj historioj pri seksaj aferoj. Hieraŭ diris unu el ili, kvindekjara, post iom da politika rezonado: ”En tre stranga tempo ni vivas. Fakte ni parolas pri Hitler kaj Mus-solini kaj Hispanujo preskaŭ same multe kiel pri virinoj, kiuj ja en ĉiuj tempoj estis ĉeftemo por babilado.”
 
@@ -1275,20 +1017,13 @@ uzino estas plenaj de desegnoj de nudaj virinoj kaj viroj en
 diversaj pozoj, eĉ lerte faritaj. Skribitaj vortoj kaj frazoj estas same aĉaj. Multaj eĉ notas tre fiere, kiam ili havis seksan ku-niĝon kun tiu aŭ tiu knabino. Kaj — tio kurioze aspektas —
 
 
-VIVO VOKAS
-
-
 miksite kun tiuj desegnoj kaj notaĵoj estas notitaj la rezultoj de preskaŭ ĉiuj piedpilkaj vetludoj ĉi tie dum la lastaj jaroj.
 
 —Kaj tiaj homoj ekzistas en Torento en la jaro 1937, diris
 
-Alda, kiam ni havas tiom da studrondoj, kluboj, fakaj organi-
+Alda, kiam ni havas tiom da studrondoj, kluboj, fakaj organizoj, abstinencaj grupoj, kristanaj kaj aliaj movadoj de diversaj specoj.
 
-zoj, abstinencaj grupoj, kristanaj kaj aliaj movadoj de diversaj specoj.
-
-—ĉu la cetera mondo estas pli bona? ĉu tio ne estas la ĉef-
-
-temo por filmoj, por dancokantoj, por semajnaj gazetoj, por
+—ĉu la cetera mondo estas pli bona? ĉu tio ne estas la ĉeftemo por filmoj, por dancokantoj, por semajnaj gazetoj, por
 
 klaĉado de malriĉuloj kaj altuloj, por la plej multaj distraj prezentoj, tio ke la viro el sia virmondo kaj la virino el sia medio renkontiĝas?
 
@@ -1308,22 +1043,15 @@ Mi fartas malbone, kiam mi vidas kaj aŭdas tian homvivon
 
 Ni kreis al ni aliajn imagojn pri la vivo. Sed niaj pensoj ŝajne ne estas konvenaj por ordinara homa kunvivo. Ni kreskis
 
-flanke de aliaj kaj fariĝis apartuloj. La ideoj kiuj estiĝis en la 35
-
-VIVO VOKAS
+flanke de aliaj kaj fariĝis apartuloj. La ideoj kiuj estiĝis en la
 
 
 kunvivo en nia rondo, ne estas aplikeblaj ekster ĝi. Inter aliaj ni estas senhejmaj.
 
 
-VIVO VOKAS
-
-
 is Elsa komencis preparojn por edziĝo, Johano konis la
 
-kavaliron nur aspekte. Tiam li komencis jen kaj jen vi-
-
-ziti la novan hejmon. La tuta afero neniel interesis Johanon, sed li trovis, ke Rudolfo, tio estas la kavaliro, estas almenaŭ ne malsimpatia homo.
+kavaliron nur aspekte. Tiam li komencis jen kaj jen viziti la novan hejmon. La tuta afero neniel interesis Johanon, sed li trovis, ke Rudolfo, tio estas la kavaliro, estas almenaŭ ne malsimpatia homo.
 
 Antaŭ la edziĝo Elsa fantaziis pri bela, moderna meblaro
 
@@ -1341,18 +1069,13 @@ troviĝis nur la plej necesaj mebloj. Ili estis de plej simpla speco, kaj kelkaj
 
 tono de spertulo. Konsiderante ĉion ni venis al la konkludo,
 
-ke estus ege malsaĝe komenci nian kunvivon kun granda ŝul-
-
-do. Pli simple sed pli senzorge, estas nia devizo.
+ke estus ege malsaĝe komenci nian kunvivon kun granda ŝuldo. Pli simple sed pli senzorge, estas nia devizo.
 
 Rudo nenion diris pri tiu ŝanĝo en la planoj de Elsa. Entute
 
 li nemulte parolis, kaj li kondutis kaj aspektis, kvazaŭ liaj kon-sideroj kaj opinioj estus neatentindaj.
 
 En libera tempo li ĉiam estis okupita de diversaj laboretoj.
-
-
-VIVO VOKAS
 
 
 Per simplaj rimedoj kaj el ŝajne senvalora materialo li kunmetis diversajn utilajn kaj ne malbelajn objektojn por ilia bezo-no.
@@ -1371,9 +1094,7 @@ tagon li faros meblojn same belajn kiel estas tiuj milkronaj
 
 kompletoj.
 
-En ŝia admiro por la edzo ŝi komencis eltrovi ankaŭ pro-
-
-pran kapablon. Por ne postresti la edzon ŝi komencis fervo-
+En ŝia admiro por la edzo ŝi komencis eltrovi ankaŭ propran kapablon. Por ne postresti la edzon ŝi komencis fervo-
 
 re triki kaj mankudri. Malmulte ŝi okupis sin pri tiaj laboroj antaŭe, kaj la unuaj rezultoj ne estis tre sukcesaj. Sed Rudo admiris ŝiajn kreaĵojn. Iom post iom ŝiaj produktoj fariĝis pli bonaj, kaj ŝi jam parolis pri kudromaŝino. Per tia elspezo oni akirus ŝuldon, sed verŝajne tamen estus gajno. Kaj Rudo komplimentis ŝian prudenton kaj diris, ke kompreneble jes.
 
@@ -1383,19 +1104,12 @@ kvalitoj. Kiam la patrino laŭdis ŝin, Johano enŝovis preterpa-se:
 
 —Sed kiel antaŭe ŝi tamen plej multe laboras per la lango.
 
-Por Rudo li havis pli da respekto. Li havis specialan manie-
-
-ron, kiu plaĉis al Johano. Lia kapo ordinare estis iom klinita, kaj li ŝajnis rigardi al la tero, kiel kelkaj homoj faras, kiam ili estas en pensoj. Sed jen kaj jen li neatendite levis la kapon kaj la palpebrojn kaj el liaj klarbluaj okuloj venis gaja, amikeca, eĉ petola rigardo. Lia vizaĝo similis al malriĉaspekta kabano, kiun oni senatente preteriras, sed kies malalta pordo subite
+Por Rudo li havis pli da respekto. Li havis specialan manieron, kiu plaĉis al Johano. Lia kapo ordinare estis iom klinita, kaj li ŝajnis rigardi al la tero, kiel kelkaj homoj faras, kiam ili estas en pensoj. Sed jen kaj jen li neatendite levis la kapon kaj la palpebrojn kaj el liaj klarbluaj okuloj venis gaja, amikeca, eĉ petola rigardo. Lia vizaĝo similis al malriĉaspekta kabano, kiun oni senatente preteriras, sed kies malalta pordo subite
 
 malfermiĝas, kaj en ĝi aperas afabla kaj ridetanta homo.
 
 
-VIVO VOKAS
-
-
-En iu fruprintempa dimanĉo Elsa kaj Rudo vizitis la hej-
-
-mon de Johano. Tia vizito ne estis malofta, sed nun troviĝis
+En iu fruprintempa dimanĉo Elsa kaj Rudo vizitis la hejmon de Johano. Tia vizito ne estis malofta, sed nun troviĝis
 
 io certa en la esprimo kaj konduto de Elsa, kio diris, ke ili venas pro speciala kaŭzo. ŝi preskaŭ tremis pro io, kion ŝi kiel eble plej baldaŭ volas rakonti, sed samtempe kiel eble plej
 
@@ -1411,9 +1125,7 @@ La surprizo estis nur en tio, ke Elsa jam troviĝas en tia sta-to, ke ŝi povas 
 
 domoj estis en tiu tempo ĉiutaga afero. La industrio multe
 
-grandiĝis, kaj venis centoj da novaj laboristoj, por kiuj mankis loĝejoj. Anstataŭ konstrui laboristajn domojn en la mal-
-
-nova maniero, oni aranĝis tiel, ke la laboristoj povu mem
+grandiĝis, kaj venis centoj da novaj laboristoj, por kiuj mankis loĝejoj. Anstataŭ konstrui laboristajn domojn en la malnova maniero, oni aranĝis tiel, ke la laboristoj povu mem
 
 konstrui domojn.
 
@@ -1423,25 +1135,16 @@ estas dirata en najbaraj loĝejoj, oni estas ĝenata, najbaroj
 
 malpaciĝas.
 
-—ĉu vi havas monon por tia entrepreno? demandis la pa-
+—ĉu vi havas monon por tia entrepreno? demandis la patrino.
 
-trino.
-
-Elsa klarigis. La pli grandan parton de la elspezoj kovras la industria societo, kaj al ĝi oni poste pagos ĉiumonate tiom kaj tiom da mono. Post tiom kaj tiom da jaroj la domo vere apar-tenos al ili. Cetere Rudo sukcesis prunti iom da mono de pa-
-
-rencoj.
-
-
-VIVO VOKAS
+Elsa klarigis. La pli grandan parton de la elspezoj kovras la industria societo, kaj al ĝi oni poste pagos ĉiumonate tiom kaj tiom da mono. Post tiom kaj tiom da jaroj la domo vere apar-tenos al ili. Cetere Rudo sukcesis prunti iom da mono de parencoj.
 
 
 —Nu jes, nu jes, diris la patrino. Tempoj ŝanĝiĝas. Kiam mi
 
 estis same juna kiel vi, mi ne estus kuraĝinta eĉ fantazii pri propra domo.
 
-Kaj nun Elsa komencis paroli pri farotaj laboroj, kiujn Ru-
-
-do kiom eble mem faros, eble eĉ ŝi povos iom helpi. Kaj eble
+Kaj nun Elsa komencis paroli pri farotaj laboroj, kiujn Rudo kiom eble mem faros, eble eĉ ŝi povos iom helpi. Kaj eble
 
 Eriko kaj Johano povos foje helpi? Ejnar bedaŭrinde baldaŭ
 
@@ -1457,9 +1160,7 @@ ke vi ne kredu, ke mi volas profiti de mia boeco kun vi. Sed
 
 se vi povas kaj volas iom helpi, ni estos ege dankaj.
 
-—Pri mi vi ne kalkulu, diris Eriko decide. Mi volonte hel-
-
-pus, sed mi havas proprajn okupojn, kiuj por mi estas pli gravaj. Sed se okaze konvenos, mi kun plezuro faros iom.
+—Pri mi vi ne kalkulu, diris Eriko decide. Mi volonte helpus, sed mi havas proprajn okupojn, kiuj por mi estas pli gravaj. Sed se okaze konvenos, mi kun plezuro faros iom.
 
 —Vi povus dediĉi al ni almenaŭ tiujn dimanĉajn horojn,
 
@@ -1477,9 +1178,7 @@ patrino estis liberigita de militservo, li volas almenaŭ iom
 
 ripari sian mankon tiurilate.
 
-—Ne, ne, li respondis, prefere mi oferos kelkajn legoho-
-
-rojn. Hejmojn oni konstruas, sed eble venos momento, kiam
+—Ne, ne, li respondis, prefere mi oferos kelkajn legohorojn. Hejmojn oni konstruas, sed eble venos momento, kiam
 
 ni devos defendi tiujn kaj ceterajn akiraĵojn de nia laborista klaso.
 
@@ -1490,14 +1189,9 @@ Poste ŝi turnis sin al la patrino kaj denove komencis paroli
 pri la domo. En momento de emocio kaj bonvolo ŝi iom pale
 
 
-VIVO VOKAS
-
-
 sugestis, ke ili eble havos lokon ankaŭ por la patrino en la
 
-nova hejmo, se la fratoj edziĝos kaj ne bezonos plu ŝian hel-
-
-pon.
+nova hejmo, se la fratoj edziĝos kaj ne bezonos plu ŝian helpon.
 
 —Mi dankas pro via bona penso, sed tio ne okazos, diris la
 
@@ -1506,9 +1200,6 @@ patrino en decida tono. Maljuna kromhomo en juna familio
 estas malbona afero. Se mi vivos, ĝis neniu el la knaboj bezonos min plu, mi certe trovos iun ĉambreton aŭ mi transloĝos
 
 al la komunuma hejmo por la maljunaj.
-
-
-VIVO VOKAS
 
 
 En la fino de aprilo ili komencis. La tereno decidita por
@@ -1523,15 +1214,11 @@ betuloj, alnoj kaj arbetaj densejoj, kaj somere la tero estis kovrita de herbo k
 
 Torento kaj arbarkovritaj montoj.
 
-Johano promesis helpi preskaŭ nur tial, ke li ne volis mon-
-
-tri sin malafabla. Sed en la vespero, kiam li kune kun Rudo
+Johano promesis helpi preskaŭ nur tial, ke li ne volis montri sin malafabla. Sed en la vespero, kiam li kune kun Rudo
 
 kaj la patro de Rudo komencis fosi en la netuŝita tero, plenigis lin la samaj sentoj, kiujn li havis, kiam li estis knabeto kaj konstruis en la sablejo.
 
-Li fosas, elrompas ŝtonojn kaj hakas arboradikojn. La ter-
-
-odoro agrable tiklas lian nazon, kaj pli kaj pli profunden li pe-netras en la tavolo de sablo kaj ŝtonoj, kiun postlasis la granda glacio.
+Li fosas, elrompas ŝtonojn kaj hakas arboradikojn. La terodoro agrable tiklas lian nazon, kaj pli kaj pli profunden li pe-netras en la tavolo de sablo kaj ŝtonoj, kiun postlasis la granda glacio.
 
 La ordinaraj laborhoraj pensoj kaj sentoj ne venas al li tie
 
@@ -1539,12 +1226,7 @@ La ordinaraj laborhoraj pensoj kaj sentoj ne venas al li tie
 
 Agrabla estas la forta streĉo, agrabla la ŝvitado kaj la freŝa vespera aero kun odoro de frua printempo. ĉirkaŭe staras la
 
-unuaj bluaj kaj blankaj anemonoj, el la tavolo de bruna, pa-
-
-sintjara herbo elŝovas sin novaj verdaj trunkoj, kaj sur la arboj trilas fringoj kaj flutas sturnoj.
-
-
-VIVO VOKAS
+unuaj bluaj kaj blankaj anemonoj, el la tavolo de bruna, pasintjara herbo elŝovas sin novaj verdaj trunkoj, kaj sur la arboj trilas fringoj kaj flutas sturnoj.
 
 
 Ili ne estas la solaj laborantoj. La tuta ĉirkaŭaĵo estas ple-na de homoj, kiuj laboras same fervore kiel Johano kaj Rudo.
@@ -1555,21 +1237,15 @@ Kelkaj domoj estas el la antaŭkriza tempo. Ankaŭ tie oni
 
 laboras, sed en ĝardenoj aŭ pri io alia ekstera. Aliajn oni starigis en la pasinta aŭtuno, kaj nun oni plulaboras sur la eksteraĵo de la domoj aŭ preparas la teron por vojoj kaj bedoj. Aliloke oni sukcesis pasintjare pretigi nur la fundamenton kaj
 
-nun starigas la murojn. En multaj lokoj oni ĝuste nun ko-
-
-mencas.
+nun starigas la murojn. En multaj lokoj oni ĝuste nun komencas.
 
 ĉiuj estis tiel okupitaj, ke laborante ili donis neniom da
 
 atento al siaj najbaroj. Sed kiam ili foje faris paŭzeton, ili estis kvazaŭ unu sola, harmonia familio. Ili gaje salutis unu la alian kaj interbabilis en tono de gaja festo. Same okupitaj kaj gajaj estis la infanoj, kiuj ludis aŭ helpis aŭ venis kun kafo kaj
 
-buterpanoj al patroj aŭ parencoj. Ankaŭ multaj virinoj labo-
+buterpanoj al patroj aŭ parencoj. Ankaŭ multaj virinoj laboris ĉe la jam pretaj domoj aŭ alportis al la siaj ion por trinki kaj manĝi kaj sidis en ripozanta rondo aŭ staris babilante kun laborantoj
 
-ris ĉe la jam pretaj domoj aŭ alportis al la siaj ion por trinki kaj manĝi kaj sidis en ripozanta rondo aŭ staris babilante kun laborantoj
-
-Venis multaj tiaj vesperoj. Post taga laborfino Johano ra-
-
-pide kuris hejmen, glutis iom da manĝaĵo kaj poste per bici-
+Venis multaj tiaj vesperoj. Post taga laborfino Johano rapide kuris hejmen, glutis iom da manĝaĵo kaj poste per bici-
 
 klo rapidis al la konstruo. Multajn kubmetrojn da tero ili forigis por la subdoma kelo. Neniam antaŭe Johano imagis, ke
 
@@ -1577,12 +1253,7 @@ tiom enhavas unu kubmetro, kaj ke tiom da kubmetroj estas
 
 en tiel malgranda loko. Tamen tio ne tedis. Estis nur agrable venki la malfacilaĵojn.
 
-La patro de Rudo laboris tie la tutajn tagojn kaj ankaŭ ves-
-
-pere. Li estis ĉarpentisto, kiu laboris jen tie, jen tie, kaj cetere li posedis bieneton ĉe la rando de la ebeno.
-
-
-VIVO VOKAS
+La patro de Rudo laboris tie la tutajn tagojn kaj ankaŭ vespere. Li estis ĉarpentisto, kiu laboris jen tie, jen tie, kaj cetere li posedis bieneton ĉe la rando de la ebeno.
 
 
 En iu vespero venis ankaŭ Ejnar por partopreni. Li estis
@@ -1617,9 +1288,7 @@ Jen kaj jen vizitis ilin iu najbaro. La fervore laborantaj no-vuloj venis por ke
 
 pretaj domoj ne tiom avaris pri la tempo.
 
-En iu vespero, kiam oni sidis ĉirkaŭ la kafofajro, venis al ili 44
-
-VIVO VOKAS
+En iu vespero, kiam oni sidis ĉirkaŭ la kafofajro, venis al ili
 
 
 iu el tiuj, kiu havis domon jam antaŭ la krizo, metallaboristo kun grizaj tempioj kaj kun trankvila, inteligenta vizaĝo. Oni invitis lin preni lokon en la rondo kaj donis al li tason da kafo.
@@ -1628,32 +1297,21 @@ Kiel ĉiam oni parolis pri konstruado.
 
 —Opinioj rapide ŝanĝiĝas, diris la gasto. Mi memoras iun
 
-vesperon en 1918, en la fino de la vintro. Estis publika kun-
-
-veno, flama socialista parolado. Post la parolado iu rakontis, ke ĵus venis al la stacio tuta vagono kun terpomoj. Iu ekstaze proponis, ke ni tuj iru al la stacio por preni la terpomojn kaj dividi ilin inter la laboristaj familioj. Ni ankaŭ iris al la stacio kaj faris grandan bruon, sed iu sukcesis trankviligi nin, kaj ni ne faris revolucion.
+vesperon en 1918, en la fino de la vintro. Estis publika kunveno, flama socialista parolado. Post la parolado iu rakontis, ke ĵus venis al la stacio tuta vagono kun terpomoj. Iu ekstaze proponis, ke ni tuj iru al la stacio por preni la terpomojn kaj dividi ilin inter la laboristaj familioj. Ni ankaŭ iris al la stacio kaj faris grandan bruon, sed iu sukcesis trankviligi nin, kaj ni ne faris revolucion.
 
 En tiu printempo oni pli ol iam antaŭe propagandis por
 
 kulturado de legomoj kaj terpomoj, kaj en la ĉirkaŭaĵoj de la urboj la koloniĝardena movado fariĝis tre granda. Sed multaj radikalaj opiniis, ankaŭ gazetoj, ke la legomkulturantoj
 
-perfidas la laboristan klason. Anstataŭ kiel honestaj proletoj agadi por revolucio kaj ŝanĝo de la tuta sistemo, la sola vojo por klaskonscia laboristo, ili lasas sin trompi de la burĝa pro-pagando, kulturas terpomojn kaj legomojn kaj tiel mem fari-
+perfidas la laboristan klason. Anstataŭ kiel honestaj proletoj agadi por revolucio kaj ŝanĝo de la tuta sistemo, la sola vojo por klaskonscia laboristo, ili lasas sin trompi de la burĝa pro-pagando, kulturas terpomojn kaj legomojn kaj tiel mem fariĝas malgrandaj burĝoj. La tutan someron ili laboras kiel idiotoj por potpleno da manĝaĵo kaj ne havas tempon por viziti
 
-ĝas malgrandaj burĝoj. La tutan someron ili laboras kiel idiotoj por potpleno da manĝaĵo kaj ne havas tempon por viziti
+eĉ ordinarajn kunvenojn. Peklataj estu la klasmalamikaj legomidiotoj!
 
-eĉ ordinarajn kunvenojn. Peklataj estu la klasmalamikaj lego-
-
-midiotoj!
-
-Laboristo kiu konstruis al si domon estis por la klaskonsci-
-
-aj honorperdinta transkurulo. Kaj se li havis flagstangon kaj hisis la svedan flagon, li jam apartenis al tiuj, super kiuj oni triumfos en la granda tago. Tiam la flago estis ankoraŭ ”tiu
+Laboristo kiu konstruis al si domon estis por la klaskonsciaj honorperdinta transkurulo. Kaj se li havis flagstangon kaj hisis la svedan flagon, li jam apartenis al tiuj, super kiuj oni triumfos en la granda tago. Tiam la flago estis ankoraŭ ”tiu
 
 bluflava ĉifono, insigno de profesiaj murdistoj, tiranoj kaj
 
 sangosuĉantoj”.
-
-
-VIVO VOKAS
 
 
 Tamen legomkulturantoj kaj domposedantoj plimultiĝis.
@@ -1662,32 +1320,23 @@ Paliĝis la idealoj de la ekstaza periodo de malsato kaj alilandaj revolucioj, p
 
 ruĝa.
 
-La metallaboristo silentiĝis, kaj la aliaj diris kelkajn ko-
-
-mentojn pri liaj vortoj. Sed jen liaj pensoj denove iris sian propran vojon.
+La metallaboristo silentiĝis, kaj la aliaj diris kelkajn komentojn pri liaj vortoj. Sed jen liaj pensoj denove iris sian propran vojon.
 
 —Vere la homoj multe ŝanĝiĝas, kiam ili ricevas domon kaj
 
 kelkajn kvadratmetrojn da tero, li daŭrigis. Mi estis la unua en Paŝtejo, miaj pomarboj jam estas grandaj, miaj aceroj
 
-donas ombron kaj al ni kaj al niaj gastoj. Post mi venis mul-
-
-taj aliaj. Kelkaj havis en si bonan kernon jam de komenco.
+donas ombron kaj al ni kaj al niaj gastoj. Post mi venis multaj aliaj. Kelkaj havis en si bonan kernon jam de komenco.
 
 Aliaj apartenis al speco de homoj, kiun oni ofte renkontas
 
-inter barakloĝantoj: ili ne sentas respondecon por si mem, ili ne respektas aliajn homojn kaj iliajn posedaĵojn. Iliaj infanoj ne komprenas, ke ili ĉagrenas homon, se ili kuras en liaj ĝar-denbedoj, prenas pomojn de liaj arboj aŭ difektas lian boa-
-
-ton ĉe la bordo.
+inter barakloĝantoj: ili ne sentas respondecon por si mem, ili ne respektas aliajn homojn kaj iliajn posedaĵojn. Iliaj infanoj ne komprenas, ke ili ĉagrenas homon, se ili kuras en liaj ĝar-denbedoj, prenas pomojn de liaj arboj aŭ difektas lian boaton ĉe la bordo.
 
 Sed jen tiaj homoj komencas konstrui domon, kulturi
 
 pecon da tero. Ili havas ion propran por gardi kaj prizorgi. Ili ion amas, kio donas sencon kaj ĝojon al ilia vivo. Ili komencas kompreni, kion signifas respekto por posedaĵo de aliaj,
 
 por sentoj de aliaj, respekto de homo al homo. Ili komprenas, ke estas devo por honesta homo ion fari por ion ricevi, ke oni devas mem respekti por esti respektata. Iliaj infanoj ne tiel facile kuras en legombedoj de alia homo aŭ disbatas la seru-ron de lia boato.
-
-
-VIVO VOKAS
 
 
 Kaj ili estas multe, multe pli kontentaj kaj ĝojaj ol antaŭe, kvankam ili ne povas permesi al si diversajn amuzojn, kiuj
@@ -1700,13 +1349,9 @@ virino teksas tapiŝojn por siaj plankoj kaj viro faras barilon por sia ĝardeno
 
 ili estas ne nuraj pansklavoj …
 
-Okaze Eriko ĉeestis en tiu vespero. Nur malofte li perme-
+Okaze Eriko ĉeestis en tiu vespero. Nur malofte li permesis al si tian uzon de libera tempo, sed kiam li foje venis, li laboris por du. Kiam la metallaboristo finis sian parolon, replikis Eriko:
 
-sis al si tian uzon de libera tempo, sed kiam li foje venis, li laboris por du. Kiam la metallaboristo finis sian parolon, replikis Eriko:
-
-—Estas bone, ke laboristo nun povas posedi propran do-
-
-mon kaj povas vivi, en diversaj rilatoj, duoble pli bone ol an-taŭ kelkaj jardekoj. Sed ĉu tio ne estas merito de la laborista movado? ĉu ne estas la senĉesaj klopodoj, kiuj tiom altigis la salajron, ke laboristo nun povas konstrui domon? ĉu ne estas
+—Estas bone, ke laboristo nun povas posedi propran domon kaj povas vivi, en diversaj rilatoj, duoble pli bone ol an-taŭ kelkaj jardekoj. Sed ĉu tio ne estas merito de la laborista movado? ĉu ne estas la senĉesaj klopodoj, kiuj tiom altigis la salajron, ke laboristo nun povas konstrui domon? ĉu ne estas
 
 la komuna klopodado, kiu havigis al li tiom da libera tempo,
 
@@ -1716,26 +1361,15 @@ estas longjaraj bataloj, kiuj akiris por li tiom da respekto, ke la superuloj ne
 
 maniero?
 
-—Vi pravas, respondis la metallaboristo kun amika kapk-
-
-lino. Sed tio ne estas la tuto. Mia tempo en la mondo ne estas longa, kompare al epokoj, sed jam mi ofte spertis, ke preskaŭ neniam nur unu flanko estas prava kaj meritoplena, dum la
+—Vi pravas, respondis la metallaboristo kun amika kapklino. Sed tio ne estas la tuto. Mia tempo en la mondo ne estas longa, kompare al epokoj, sed jam mi ofte spertis, ke preskaŭ neniam nur unu flanko estas prava kaj meritoplena, dum la
 
 alia estas ekskluzive malbona kaj malprava.
 
-Ne estis radikalaj homoj, kiuj fondis la movadon por pro-
+Ne estis radikalaj homoj, kiuj fondis la movadon por propraj hejmoj al laboristoj. Estis tiel nomataj burĝuloj, kiuj volis, ke la gejunuloj restu en la patrolando anstataŭ en miloj kaj
 
-praj hejmoj al laboristoj. Estis tiel nomataj burĝuloj, kiuj volis, ke la gejunuloj restu en la patrolando anstataŭ en miloj kaj
+centmiloj veturi al Ameriko. Sed la laboristoj insultis la movadon kaj same la patrolandon, ĝis ili post multaj jaroj lernis pli bone kompreni.
 
-centmiloj veturi al Ameriko. Sed la laboristoj insultis la mo-47
-
-VIVO VOKAS
-
-
-vadon kaj same la patrolandon, ĝis ili post multaj jaroj lernis pli bone kompreni.
-
-ĉu ne estas industriaj gvidantoj, kiuj en multaj grandaj in-
-
-dustrilokoj faris grandiozajn aranĝojn, por ke la laboristoj
+ĉu ne estas industriaj gvidantoj, kiuj en multaj grandaj industrilokoj faris grandiozajn aranĝojn, por ke la laboristoj
 
 povu facile akiri proprajn hejmojn, kunvenejojn, sportlokojn
 
@@ -1745,9 +1379,7 @@ ni trovas en multaj aliaj kazoj, se ni ne studas unuflankan
 
 priskribon de la faktoj.
 
-Troviĝas mankoj ĉe superuloj, troviĝas mankoj ĉe labo-
-
-ristoj. Ni komencas kompreni tion. Tial malaperas la klasdi-
+Troviĝas mankoj ĉe superuloj, troviĝas mankoj ĉe laboristoj. Ni komencas kompreni tion. Tial malaperas la klasdi-
 
 ferencoj. En kunveno, en sportloko, en amuzejo, en grupo de
 
@@ -1766,12 +1398,7 @@ Per tio finiĝis la diskuto, ĉar la patro de Rudo levis sin. Li senkulpigis sin
 —Estas interese aŭskulti vin. Sed la plej saĝaj kaj interesaj vortoj ne kreskigas la domon eĉ per unu colo, kaj tial mi devas reiri al mia okupo.
 
 
-VIVO VOKAS
-
-
-Johano bone kaj persiste helpis dum la konstruado. Li sek-
-
-vis la laboron de komenco ĝis fino, kaj pri ĉiu detalo li lernis almenaŭ iom.
+Johano bone kaj persiste helpis dum la konstruado. Li sekvis la laboron de komenco ĝis fino, kaj pri ĉiu detalo li lernis almenaŭ iom.
 
 —Vi estas kreita por tiu ĉi metio, diris al li la patro de Rudo.
 
@@ -1779,21 +1406,15 @@ Sekvu min kaj lasu tiun senkvalitan laboron, kiun vi nun
 
 havas!
 
-La propono ne malplaĉis al Johano, sed tamen li ne kon-
+La propono ne malplaĉis al Johano, sed tamen li ne konsentis.
 
-sentis.
-
-En la komenco de junio li aranĝis kelkajn bedojn por flo-
-
-roj antaŭ la pordo. Iun vesperon li post laborfino iris rekte al la ĝardeno por aĉeti florplantojn kaj kelkajn rozarbustojn.
+En la komenco de junio li aranĝis kelkajn bedojn por floroj antaŭ la pordo. Iun vesperon li post laborfino iris rekte al la ĝardeno por aĉeti florplantojn kaj kelkajn rozarbustojn.
 
 Kiam li trairis la barilpordon sub la maljunaj arbegoj, li
 
 subite sentis, kiel lia mano de si mem faras ĝuste tiun specialan movon, kiu en plej facila maniero malfermas ĝuste tiun
 
-pordon. Kaj li memoris kiom da fojoj lia mano faris tiun sa-
-
-man movon.
+pordon. Kaj li memoris kiom da fojoj lia mano faris tiun saman movon.
 
 Antaŭ li staris la fruktarboj en plej bela florado, kaj floroj kaj legomoj estis netuŝite freŝaj en sia juna verdo. Neniam
 
@@ -1806,9 +1427,6 @@ Li ĉirkaŭiris la angulon de la ejo por laboriloj kaj trovis la
 ĝardeno.
 
 
-VIVO VOKAS
-
-
 ĉiun malgrandan parton de ĝi li rekonis en tute speciala
 
 maniero, en ĉiu parto li iam faris iun laboron, fosis, rastis, sarkis, rikoltis. ŝajnis al li, ke li povas klare reaperigi en sia memoro ĉiun apartan laboron dum la kvin monatoj, kiam li
@@ -1818,9 +1436,6 @@ laboris tie. Kaj li sentis certan ĝojon pro tio, ke li faris tiujn laborojn kaj
 Sed kiam la ĝardenisto diris tion, Johano denove sentis la
 
 enuon de longaj tagoj en soleco, la rigidon de la korpo kaj la doloron en la dorso. Kaj kiam li foriris, regis lin du kontraŭaj sentoj. Li ne volis reiri al la ĝardeno, sed li sentis dolĉan kontenton pro tio, ke li faris tiujn laborojn tie kaj trapasis tiujn longajn horojn …
-
-
-VIVO VOKAS
 
 
 Tre malofte Johano renkontis Aldan en tiu printempo.
@@ -1837,24 +1452,17 @@ Krom tio li sentis sekretan devon fari kiel eble plej multe
 
 da utilo, ĉar kun Alda, Arne kaj Brita li faris interkonsenton, kiun la patrino kaj Eriko ne ŝatos.
 
-Kunlige kun la somermeza festo la laboristoj havis kelkta-
-
-gan libertempon, kune kun la festotagoj unu semajnon. Jam
+Kunlige kun la somermeza festo la laboristoj havis kelktagan libertempon, kune kun la festotagoj unu semajnon. Jam
 
 oni parolis pri laŭleĝa, pli longa libertempo por ĉiuj laboristoj en la lando, sed tio ankoraŭ ne estis decidita
 
 Unu semajnon antaŭ la festo Johano diris al la patrino kaj
 
-Eriko, ke li intencas peti pri trisemajna libertempo post tiu libera semajno. Kune kun la kamaradoj li faros biciklan voja-
-
-ĝon.
+Eriko, ke li intencas peti pri trisemajna libertempo post tiu libera semajno. Kune kun la kamaradoj li faros biciklan vojaĝon.
 
 Tiel strange ŝajnis tio al la patrino, ke ŝi unue nur silentis kaj rigardis lin kun mieno de plena nekompreno. Iom post
 
 iom la vizaĝo fariĝis malgaja, sed ankoraŭ ŝi nenion diris.
-
-
-VIVO VOKAS
 
 
 —Vi ne bezonas timi, panjo. Mi ŝparis monon, kaj mi
@@ -1877,9 +1485,7 @@ laboris por Rudo kaj lia sinjorineto. ĉu mi ne bezonas iom da rekompenco pro ti
 
 —Li fariĝis same konsternita kiel vi kaj kredis, ke mi ne
 
-estas tute normala. Fine li tamen permesis kaj ankaŭ perme-
-
-sis laboron post la reveno. Sed estas la sola escepto li diris, kvazaŭ li komencis timi, ke ankaŭ aliaj volas havi tian libertempon. Ne timu, mi konsolis lin, ili ne forkuros de vi!
+estas tute normala. Fine li tamen permesis kaj ankaŭ permesis laboron post la reveno. Sed estas la sola escepto li diris, kvazaŭ li komencis timi, ke ankaŭ aliaj volas havi tian libertempon. Ne timu, mi konsolis lin, ili ne forkuros de vi!
 
 Ankaŭ Eriko fariĝis malkontenta.
 
@@ -1903,14 +1509,9 @@ Mi fakte ŝatus akompani vin, sed mi ne povas tion fari. — De
 
 kie vi ricevos biciklon?
 
-—Mi intencis lui de riparisto, sed la patro de Alda propo-
-
-nis al mi prunti lian.
+—Mi intencis lui de riparisto, sed la patro de Alda proponis al mi prunti lian.
 
 —Prenu mian! i estas en bona stato.
-
-
-VIVO VOKAS
 
 
 —Sed vi?
@@ -1923,12 +1524,7 @@ tio.
 
 —ĉu vi devas tion fari?
 
-—Ne devas, neniu postulas. Sed ankaŭ mi volas gajni mo-
-
-non, same kiel vi. Eble estos bone havi ĝin iun tagon.
-
-
-VIVO VOKAS
+—Ne devas, neniu postulas. Sed ankaŭ mi volas gajni monon, same kiel vi. Eble estos bone havi ĝin iun tagon.
 
 
 III.
@@ -1951,9 +1547,7 @@ sin ĉe la tablo kaj malfermis libron.
 
 —Tio tamen estas tro, diris la patrino.
 
-—Kial? Ne ofte okazas, ke oni meze en semajno povas libe-
-
-re dediĉi sin al propraj okupoj.
+—Kial? Ne ofte okazas, ke oni meze en semajno povas libere dediĉi sin al propraj okupoj.
 
 La patrino skuis la kapon, sed ne turmentis lin per pluaj
 
@@ -1961,13 +1555,9 @@ vortoj.
 
 Li komencis legi. Leginte unu paĝon li rimarkis, ke nenio
 
-restas en lia memoro, kvazaŭ li estus leginta en stato de en-
+restas en lia memoro, kvazaŭ li estus leginta en stato de endormiĝo. Tamen li ne estis laca.
 
-dormiĝo. Tamen li ne estis laca.
-
-Li denove tralegis, sed kun sama rezulto. Kaj subite li 54
-
-VIVO VOKAS
+Li denove tralegis, sed kun sama rezulto. Kaj subite li
 
 
 rimarkis, ke li ne plu havas intereson por la legado. Li sentas sin sata de legado, kaj li sentas deziron formeti la libron.
@@ -1976,17 +1566,13 @@ La devosento igas lin ankoraŭfoje rekomenci, sed poste li
 
 rezignas. Eble la odoro de floroj kaj folioj en la ĉambro efikas al la cerbo kaj narkotas lian aktivecon, li pensas, eble efikas ankaŭ la ĝenerala festosento kaj la belo de la vespero.
 
-ĉiuj someraj noktoj estas helaj, sed en la nokto de la so-
-
-mera festo oni atentas pri tio en alia maniero ol ordinare.
+ĉiuj someraj noktoj estas helaj, sed en la nokto de la somera festo oni atentas pri tio en alia maniero ol ordinare.
 
 Somermezo, kiun oni en aliaj landoj nomas Johanofesto, estas
 
 festo pramalnova, same malnova kiel la homa observado de
 
-la tempopaso. Tiam estas la benata tempo, kiam la suno sta-
-
-ras plej alte, kiam varmo venis aŭ almenaŭ komenciĝas, kiam
+la tempopaso. Tiam estas la benata tempo, kiam la suno staras plej alte, kiam varmo venis aŭ almenaŭ komenciĝas, kiam
 
 estas lumo kaj tage kaj nokte.
 
@@ -2002,17 +1588,13 @@ sed post du semajnoj oni jam vidas, ke ĝi subiras pli frue ol en somermezo. Tia
 
 altiras la atenton pli forte ol en aliaj someraj noktoj, jes, ĝi tute kaptas la atenton, same kiel ĝi antaŭ jarmiloj kaptis la tutan animon de sunadorantaj prapatroj. Estas la festo, kies
 
-kontraŭpunkto en la jarorondo estas la vintromezo, la sunre-
-
-veno.
+kontraŭpunkto en la jarorondo estas la vintromezo, la sunreveno.
 
 Kun la kubutoj sur la tablo Eriko sidis senmova kaj rigardis
 
 tra la fenestro. Minuto post minuto pasis kaj fine tuta horo.
 
-Li estis kolera kontraŭ si pro sia inerto, sed samtempe la ne-nifarado estis agrabla. La patrino jen kaj jen rigardis lin tra la 55
-
-VIVO VOKAS
+Li estis kolera kontraŭ si pro sia inerto, sed samtempe la ne-nifarado estis agrabla. La patrino jen kaj jen rigardis lin tra la
 
 
 nefermita pordo, unue kun mieno de scivolo, poste ŝiaj lipoj
@@ -2025,21 +1607,15 @@ kafomuelilo en la kuirejo. Samtempe atingis lin la voĉo de la patrino.
 
 —Eble vi ne malŝatus tason da kafo?
 
-ŝia voĉo sonis pli afable ol ordinare, kun ia peto la subto-
-
-no, kaj li turnis la kapon kaj rigardis ŝin.
+ŝia voĉo sonis pli afable ol ordinare, kun ia peto la subtono, kaj li turnis la kapon kaj rigardis ŝin.
 
 —Dankon, estas bona propono, li diris, kaj ankaŭ li ŝajnis
 
 pli afabla ol en aliaj tagoj.
 
-Kiam la kafo estis preta, ŝi venis en la ĉambron. De la tablo ŝi forprenis ĉiujn librojn kaj paperojn, kaj senproteste li lasis ŝin fari tion. Anstataŭe ŝi metis tien kafopleton, sur kiu safra-na pano pompis en bela gustotenta koloro, kaj apud la ple-
+Kiam la kafo estis preta, ŝi venis en la ĉambron. De la tablo ŝi forprenis ĉiujn librojn kaj paperojn, kaj senproteste li lasis ŝin fari tion. Anstataŭe ŝi metis tien kafopleton, sur kiu safra-na pano pompis en bela gustotenta koloro, kaj apud la pleton ŝi metis vazon kun arbaraj antriskoj, kiuj estas la floroj de la somermezo.
 
-ton ŝi metis vazon kun arbaraj antriskoj, kiuj estas la floroj de la somermezo.
-
-Ili trinkis la kafon, kaj Eriko kontraŭ sia kutimo diris kel-
-
-kajn laŭdajn vortojn pri ŝia bongusta kafopano. Tio ankoraŭ
+Ili trinkis la kafon, kaj Eriko kontraŭ sia kutimo diris kelkajn laŭdajn vortojn pri ŝia bongusta kafopano. Tio ankoraŭ
 
 pli moligis ŝian humoron. Ili pliproksimiĝis unu al alia, kaj babilante ili sufiĉe longe restis kune ĉe la tablo.
 
@@ -2049,20 +1625,13 @@ Poste li levis sin, komencis promeni en la ĉambro kaj poste
 
 iris en la kuirejon.
 
-—Jen panjo, mi estas tiel maldiligenta hodiaŭ, ke mi ne-
-
-nion povas fari. Anstataŭe mi iom eliros.
+—Jen panjo, mi estas tiel maldiligenta hodiaŭ, ke mi nenion povas fari. Anstataŭe mi iom eliros.
 
 La patrino aspektis gaja kaj kontenta.
 
 —Dankon al Dio, ke mi ankoraŭfoje vidas vnduti kiel
 
-ordinara junulo! Ke vi nun ankaŭ renkontu iun belan knabi-
-
-non, kiu igos vin danci kun ŝi! Mi ne plendos, se vi revenos
-
-
-VIVO VOKAS
+ordinara junulo! Ke vi nun ankaŭ renkontu iun belan knabinon, kiu igos vin danci kun ŝi! Mi ne plendos, se vi revenos
 
 
 nur post sunleviĝo. Mi iros al Elsa kaj Rudo por horeto. Agrablan nokton!
@@ -2099,16 +1668,9 @@ ne preferas esti sola, ni povus kune promeni.
 
 gepatroj iris al la konstruata domo en Paŝtejo, kaj la gefratoj iris al la popola parko por partopreni la dancludojn ĉirkaŭ la florstango.
 
-Eriko kaj Ajna renkontiĝis sufiĉe ofte. ŝi aliĝis al la socialdemokrata junulara klubo nelonge post tiu parolado de Eri-
+Eriko kaj Ajna renkontiĝis sufiĉe ofte. ŝi aliĝis al la socialdemokrata junulara klubo nelonge post tiu parolado de Eriko, kiu vekis ŝian entuziasmon. En la klubo ŝi tuj ricevis diversajn taskojn por plenumi.
 
-ko, kiu vekis ŝian entuziasmon. En la klubo ŝi tuj ricevis diversajn taskojn por plenumi.
-
-Eriko ŝajne decidis fari el ŝi veran batalantinon. Li havigis al ŝi diversajn okupojn en la kluba vivo, kaj li rekomendis aŭ preskaŭ ordonis al ŝi legi jen gazetan artikolon, jen pamfle-57
-
-VIVO VOKAS
-
-
-ton, jen tutan libron. Poste li pedante kontrolis, ke ŝi tion ankaŭ faris.
+Eriko ŝajne decidis fari el ŝi veran batalantinon. Li havigis al ŝi diversajn okupojn en la kluba vivo, kaj li rekomendis aŭ preskaŭ ordonis al ŝi legi jen gazetan artikolon, jen pamfleton, jen tutan libron. Poste li pedante kontrolis, ke ŝi tion ankaŭ faris.
 
 Tia legaĵo ŝajnis al ŝi malmulte interesa kaj eĉ teda, sed ŝi diris al si, ke tion kaŭzas ŝia juneco kaj manko de kompreno.
 
@@ -2122,9 +1684,7 @@ En la vintro mortis avino. Ajna sidis ĉe ŝia lito dum ŝiaj
 
 lastaj noktoj kaj kiam ŝi faris sian lastan spiron.
 
-Kiam ŝi en iu vespero sidis ĉe la lito kaj rigardis la dorme-
-
-tantan avinon, ŝi ekpensis pri tiu iama julia vespero, kiam ili kune kun Alekso rigardis la moviĝon de la steloj. Ankaŭ la
+Kiam ŝi en iu vespero sidis ĉe la lito kaj rigardis la dormetantan avinon, ŝi ekpensis pri tiu iama julia vespero, kiam ili kune kun Alekso rigardis la moviĝon de la steloj. Ankaŭ la
 
 homa vivo apartenas al la granda moviĝo, ŝi pensis.
 
@@ -2134,17 +1694,10 @@ Iam en nebula pasinto ĝi komenciĝis. Naskiĝis knabineto,
 
 nekonscia, kvazaŭ nura homforma bulo el vivohava materio.
 
-Pasas sekundoj, tagoj, monatoj, jaroj. La homvivo glitas an-
-
-taŭen kiel stelo sur la ĉielo. En sola momento estas videbla
+Pasas sekundoj, tagoj, monatoj, jaroj. La homvivo glitas antaŭen kiel stelo sur la ĉielo. En sola momento estas videbla
 
 
-VIVO VOKAS
-
-
-neniu moviĝo, sed se oni atente rigardas, oni baldaŭ rimar-
-
-kas ĝin.
+neniu moviĝo, sed se oni atente rigardas, oni baldaŭ rimarkas ĝin.
 
 El la eta homforma ekzistaĵo fariĝas knabino, junulino,
 
@@ -2152,9 +1705,7 @@ virino, patrino, kaj en ŝi vivas io, kiu ankaŭ evoluis el tiu eta, homforma bu
 
 pri la bona paŝtisto kaj iel kaptas grandan sencon en tiu rakonto, io, kio volas krei ĝojon kaj pacon, kio igas ŝiajn jam maljunajn manojn forviŝi la larmojn sur la vangoj de la nepi-noj kaj igas la maljunajn lipojn flustri konsolajn vortojn, io, kio vekas belan brilon en ŝiaj jam malfortaj okuloj kaj igas ŝin rakonti pri belaĵoj kaj justo kaj feliĉo, kiuj estas pli grandaj ol inter la homoj
 
-Senhalte glitas tiu homvivo antaŭen, sekundon post sekun-
-
-do. Nun avinjo kuŝas en la lito. En ŝia korpo preskaŭ tute
+Senhalte glitas tiu homvivo antaŭen, sekundon post sekundo. Nun avinjo kuŝas en la lito. En ŝia korpo preskaŭ tute
 
 elĉerpiĝis la moviĝemo, malmulte da vivoforto restas en ĝi.
 
@@ -2162,13 +1713,9 @@ Ankoraŭ restas konscio, sed ĝi fariĝas pli kaj pli limigita. Ankoraŭ restas 
 
 —Ajna, ŝi flustras pene kaj nelaŭte, ĉu vi memoras la rakonton pri la bona paŝtisto?
 
-Ajna senvorte kapklinas, kaj ŝiaj okuloj estas plenaj de lar-
+Ajna senvorte kapklinas, kaj ŝiaj okuloj estas plenaj de larmoj.
 
-moj.
-
-—Kaj vi memoros ĝin … kaj vi iam instruos ĝin al viaj infa-
-
-noj.
+—Kaj vi memoros ĝin … kaj vi iam instruos ĝin al viaj infanoj.
 
 —Jes, jes, flustras Ajna.
 
@@ -2180,9 +1727,7 @@ ili, oni ne plu vidas unu la alian, sola lastelasta saluto de unu al alia ne est
 
 Apud la lito sidis krom Ajna la gepatroj kaj flegistino, sed
 
-Ajna sentis, kvazaŭ la aliaj estus fremduloj. Avino tamen estas 59
-
-VIVO VOKAS
+Ajna sentis, kvazaŭ la aliaj estus fremduloj. Avino tamen estas
 
 
 nur ŝia avino, ili komprenis unu la alian. Pli kaj pli maloftiĝis la spiroj, pli kaj pli penaj ili fariĝis. Ajna sentis doloran kompaton, kaj ŝi flustris interne: ”Baldaŭ, tre baldaŭ vi havos
@@ -2201,24 +1746,18 @@ Sed kiam la flegistino fermis la okulojn de avino kaj jam
 
 kovris ŝian vizaĝon, io ekŝiris en la interno de Ajna, kaj ŝia korpo momente ektremis. Sed neniu sono venis de ŝiaj kunpremitaj lipoj. Nur interne, tute sekrete inter si kaj avino, ŝi flustris plortreme: ”Adiaŭ avino, adiaŭ avino! ” —
 
-Jam pasis monatoj de tiam, kaj nun estas la plej bela el ĉiuj helaj noktoj. La homoj liberiĝis el la katenoj de la ordinara vivo kaj por kelkaj horoj fariĝas civitanoj en poezia revomondo — revomondo sed tamen plene reala, kreita el homaj sen-
-
-toj kaj plenflora, sed ankoraŭ virge netuŝita naturo.
+Jam pasis monatoj de tiam, kaj nun estas la plej bela el ĉiuj helaj noktoj. La homoj liberiĝis el la katenoj de la ordinara vivo kaj por kelkaj horoj fariĝas civitanoj en poezia revomondo — revomondo sed tamen plene reala, kreita el homaj sentoj kaj plenflora, sed ankoraŭ virge netuŝita naturo.
 
 Tion sentas ne nur la junulinoj kaj junuloj en la dancejoj,
 
-por kiuj la vivo estas sopiro kaj feliĉo. Tion sentas ankaŭ la infanoj, kiuj jam faris siajn dancoludojn kaj kun pezaj palpebroj kaj fojaj oscedoj brave batalas kontraŭ la laco. Tion sentas la maljuna fraŭlo, kiu flanke de junaj sopiroj fumadas kaj rakontas gajajn historiojn. Tion sentas eĉ la junulo, kiun malfeliĉe tro tentis iu trinkaĵo, tiel ke li devas resti flanke kaj de knabinoj kaj de gajaj kamaradoj — ankaŭ por li la nokto estas 60
-
-VIVO VOKAS
+por kiuj la vivo estas sopiro kaj feliĉo. Tion sentas ankaŭ la infanoj, kiuj jam faris siajn dancoludojn kaj kun pezaj palpebroj kaj fojaj oscedoj brave batalas kontraŭ la laco. Tion sentas la maljuna fraŭlo, kiu flanke de junaj sopiroj fumadas kaj rakontas gajajn historiojn. Tion sentas eĉ la junulo, kiun malfeliĉe tro tentis iu trinkaĵo, tiel ke li devas resti flanke kaj de knabinoj kaj de gajaj kamaradoj — ankaŭ por li la nokto estas
 
 
 pli hela kaj pli virge plenflora ol iu alia nokto. Tion sentas la maljunulo, kiu trankvile fumas sian pipon sur la benko antaŭ
 
 sia hejmo, la maljunulino ĉe sia kafotaso, la fiŝisto sur lago en soleca arbaro. —
 
-Post momento Ajna revenis al Eriko. ŝia vizaĝo estis seri-
-
-oza sed hela de ĝojo, kaj ŝiaj okuloj brilis kontraŭ li kvazaŭ danke.
+Post momento Ajna revenis al Eriko. ŝia vizaĝo estis serioza sed hela de ĝojo, kaj ŝiaj okuloj brilis kontraŭ li kvazaŭ danke.
 
 Ili sen urĝo iris antaŭen kaj sen urĝo jen kaj jen interŝanĝis iujn vortojn. Eriko demandis pri la domkonstruado, kiun ŝi
 
@@ -2228,9 +1767,7 @@ povos trankvile pasigi sian maljunaĝon. Sed avino ne ĝisvivis tiun tagon …
 
 Ili iris norden kaj preterpasis la vojon al la popola parko.
 
-Tra la arbaro aŭdiĝis muziko kaj difuza bruo de multaj hom-
-
-voĉoj. Sed nek li nek ŝi atentis pri la gaja loko, kiam ili preter-iris.
+Tra la arbaro aŭdiĝis muziko kaj difuza bruo de multaj homvoĉoj. Sed nek li nek ŝi atentis pri la gaja loko, kiam ili preter-iris.
 
 Jen kaj jen ili renkontis biciklanton aŭ piediranton, kiu nur malfrue povis iri al la dancejo. Ili suriris la vojon al okcidento, kaj nun preterpasis ilin nur malofta aŭto, cetere ili estis solaj en la arbaro.
 
@@ -2241,9 +1778,6 @@ kiu aperis en ŝia memoro, jen alian, kaj iom post iom ŝi plektis tutan bildon 
 kiam oni parolas al amiko, al kiu sola oni povas rakonti siajn plej internajn pensojn kaj sentojn.
 
 
-VIVO VOKAS
-
-
 Dekstre de la ŝoseo kaj pli profunde aperis la akvovasto de
 
 Lupolago kun la helo de la ĉielo ŝvebanta en la profundo.
@@ -2252,27 +1786,17 @@ Tute apude forglitis arbara vojeto inter la arboj en direkto al la lago. Ili sek
 
 Ajna jam rakontis ĉion gravan en la rilato inter ŝi kaj avino.
 
-Sed iel ŝi implikis sin mem en la rakonto, kaj io pelis ŝin ankoraŭ diri ion. En ŝi sufoke premas sento, kiu ĉiam restis pre-
+Sed iel ŝi implikis sin mem en la rakonto, kaj io pelis ŝin ankoraŭ diri ion. En ŝi sufoke premas sento, kiu ĉiam restis preskaŭ tute kaŝita.
 
-skaŭ tute kaŝita.
+Malrapide kaj hezite venas tremantaj vortoj pri senpatreco, pri manko de kompreno, pri soleco kaj sopiroj. En la ron-
 
-Malrapide kaj hezite venas tremantaj vortoj pri senpatre-
-
-co, pri manko de kompreno, pri soleco kaj sopiroj. En la ron-
-
-do de la kamaradoj estis vivo pli feliĉa, konsolo por senhej-
-
-mulino. Sed tamen restis vundo, vundo kiu fermiĝis kaj cika-
+do de la kamaradoj estis vivo pli feliĉa, konsolo por senhejmulino. Sed tamen restis vundo, vundo kiu fermiĝis kaj cika-
 
 triĝis sed tamen restis kaj doloris, doloris …
 
-ŝi ne rigardis Erikon, kiam ŝi parolis, sed li rigardis ŝin, kaj la malmola, voloplena trajto en lia vizaĝo moliĝis, kaj ĝi fari-
+ŝi ne rigardis Erikon, kiam ŝi parolis, sed li rigardis ŝin, kaj la malmola, voloplena trajto en lia vizaĝo moliĝis, kaj ĝi fariĝis tre milda. Kiam ŝi ĉesis paroli, ŝi levis la okulojn kaj rigardis lin kun mieno kvazaŭ ŝi estus dirinta ion, kion ŝi ne devus diri.
 
-ĝis tre milda. Kiam ŝi ĉesis paroli, ŝi levis la okulojn kaj rigardis lin kun mieno kvazaŭ ŝi estus dirinta ion, kion ŝi ne devus diri.
-
-Eriko kapklinis al ŝi kaj longe silentis. Poste ankaŭ li ko-
-
-mencis paroli. Liaj vortoj estis same tremantaj kaj hezitaj kiel ŝiaj, kaj ili estis plenaj de multjara amaro. Kiel ŝi li parolis pri sia frua infanaĝo, pri insultado kaj batado, pri malĝojo kaj
+Eriko kapklinis al ŝi kaj longe silentis. Poste ankaŭ li komencis paroli. Liaj vortoj estis same tremantaj kaj hezitaj kiel ŝiaj, kaj ili estis plenaj de multjara amaro. Kiel ŝi li parolis pri sia frua infanaĝo, pri insultado kaj batado, pri malĝojo kaj
 
 sentoj de forlasiteco kaj furioza ribelemo, pri la bona patro, kiu tamen baldaŭ mortis, pri ribela memstareco de junulaj
 
@@ -2280,12 +1804,7 @@ jaroj.
 
 —Tio estas eltenita, li diris kvazaŭ resume. Mi patrinon ne
 
-akuzas, neniun akuzas. Patrino ne komprenis pli bone, anko-
-
-raŭ ne komprenas, neniam komprenos. Sed ke mi venkis min
-
-
-VIVO VOKAS
+akuzas, neniun akuzas. Patrino ne komprenis pli bone, ankoraŭ ne komprenas, neniam komprenos. Sed ke mi venkis min
 
 
 mem, ke mi saviĝis el pereo, tio estas merito de aliaj pli ol de mi …
@@ -2298,9 +1817,7 @@ sentoj tiel proksimaj al ŝiaj propraj.
 
 ŝi etendis la manon kaj kaptis lian. Li levis la okulojn kaj ŝi rigardis rekte en ilin kaj vidis en ili esprimon, kiun ŝi iel rekonis, sed kiu tamen estis por ŝi nova, kaj kiu tiel forte influis al ŝi, ke ŝi ektremis.
 
-—Eriko! ŝi diris tremvoĉe. Sed en la sama motnento ŝi ruĝi-
-
-ĝis. ŝi kaŝis la vizaĝon en la manoj kaj la ŝultroj skuiĝis. Sed jen ŝi sentis, kiel la mano de Eriko karese glitas sur ŝiaj haroj, kaj li flustris:
+—Eriko! ŝi diris tremvoĉe. Sed en la sama motnento ŝi ruĝiĝis. ŝi kaŝis la vizaĝon en la manoj kaj la ŝultroj skuiĝis. Sed jen ŝi sentis, kiel la mano de Eriko karese glitas sur ŝiaj haroj, kaj li flustris:
 
 —Ajna! Ne ploru!
 
@@ -2316,21 +1833,15 @@ diris. Nun ŝi kuraĝis denove rigardi lin, kaj ŝi longe rigardis en liajn okul
 
 ŝi demandis lin, sed li nenion diris, kaj ŝi ankoraŭ serĉis en sia memoro.
 
-—Estis en tiu vespero ĉe Alda, kiam ni revenis de skieks-
-
-kurso kaj ni disputis pri mia ĉapo kaj mi demandis vian opi-
+—Estis en tiu vespero ĉe Alda, kiam ni revenis de skiekskurso kaj ni disputis pri mia ĉapo kaj mi demandis vian opi-
 
 nion! ĉu vi jam tiam …
 
 —Jam la unuan fojon, kiam ni estis kune, mi ekamis vin, li
 
-diris, ekamis, kiel kulpa pentanto ekamas homon, kiu akcep-
+diris, ekamis, kiel kulpa pentanto ekamas homon, kiu akceptas lin. Kiam mi aliĝis al la esperantokurso, tio estis pro vi.
 
-tas lin. Kiam mi aliĝis al la esperantokurso, tio estis pro vi.
-
-Tamen mi preskaŭ ne kuraĝis pensi pri vi, tiel juna vi estis kaj 63
-
-VIVO VOKAS
+Tamen mi preskaŭ ne kuraĝis pensi pri vi, tiel juna vi estis kaj
 
 
 pura. Sed vi estis por mi kiel kanta diino por la poeto. Vi estis estaĵo preskaŭ alimonda, kiu donis al mi inspiron, forton,
@@ -2376,9 +1887,6 @@ Sed jen: se la cirkonstancoj en Hispanujo ne decide ŝanĝiĝos
 ĝis aŭtuno, mi veturos tien kiel volontulo.
 
 
-VIVO VOKAS
-
-
 —Vi al Hispanujo? Nun …?
 
 —Jen aŭskultu, li diris per milda voĉo. Dum la lastaj du
@@ -2401,9 +1909,7 @@ La ideoj de la socialismo estas por mi kiel religio. Ili donas sencon al la vivo
 
 sencon. Mi volas ion fari, devas ion fari, ne nur legi en libroj kaj revi. Sed kion mi povas fari tie ĉi en Torento, inter torentaj socialistoj, kies ĉefa agado por la estonto konsistas el cirku-lerlegado, dancado kaj amuziĝo de diversaj specoj?
 
-Sed jam antaŭe ni tiom interparolis pri tio, ke vi kompre-
-
-nas min. Se mi falos, tio tamen havos por mi pli da senco ol
+Sed jam antaŭe ni tiom interparolis pri tio, ke vi komprenas min. Se mi falos, tio tamen havos por mi pli da senco ol
 
 vivi ĝis okdek jaroj nenion farante por la ideo
 
@@ -2415,9 +1921,7 @@ Pala, tremetanta kvazaŭ pro frosto, ŝi sidis antaŭ li, sed
 
 strange trankvile ŝi respondis:
 
-—Kion mi povus diri, se vi tion jam decidis? Estas tiel inter 65
-
-VIVO VOKAS
+—Kion mi povus diri, se vi tion jam decidis? Estas tiel inter
 
 
 ni, ke neniu faras postulon al alia. ĉiu plene respektas la volon de la alia
@@ -2432,18 +1936,11 @@ kaj animforesta.
 
 —Ajna! vokis fine Eriko kun mola voĉo. Lia vizaĝo estis
 
-ankoraŭ pli molesprima ol antaŭe. Longe kaj silente li rigar-
-
-dis en ŝiajn okulojn, kvazaŭ preĝe.
+ankoraŭ pli molesprima ol antaŭe. Longe kaj silente li rigardis en ŝiajn okulojn, kvazaŭ preĝe.
 
 —ĉu vi forlasos min? li demandis.
 
-ŝi ne respondis. Sed subite ŝi denove levis sin duone, plek-
-
-tis siajn brakojn ĉirkaŭ lian kolon kaj metis sian kapon al lia brusto.
-
-
-VIVO VOKAS
+ŝi ne respondis. Sed subite ŝi denove levis sin duone, plektis siajn brakojn ĉirkaŭ lian kolon kaj metis sian kapon al lia brusto.
 
 
 IV.
@@ -2460,9 +1957,7 @@ dum la tuta vintro loĝis en la ĉefurbo, sed cetere estis same por li.
 
 Ili forlasis la ĉirkaŭaĵon de Torento kaj subite troviĝis en
 
-tute alia pejzaĝo. ĉirkaŭ ili estas herbejoj en somermeza abundo, kaj herboj kaj floroj staras densaj kaj altaj ĝis la rando de la vojo. ĉirkaŭondas ilin bonodoroj de floroj kaj zuma-
-
-do de burdoj kaj abeloj.
+tute alia pejzaĝo. ĉirkaŭ ili estas herbejoj en somermeza abundo, kaj herboj kaj floroj staras densaj kaj altaj ĝis la rando de la vojo. ĉirkaŭondas ilin bonodoroj de floroj kaj zumado de burdoj kaj abeloj.
 
 Jen kuŝas kampoj kun greno, kun terpomoj, rapoj, napoj.
 
@@ -2472,16 +1967,9 @@ verdaĵo de kampoj kaj arboj. Koko krias, bovino blekas, kato
 
 sidas kaj lavas sin en sunlumo sur perono.
 
-Preskaŭ nova estis tiu mondo por ili, kvankam tiel proksi-
+Preskaŭ nova estis tiu mondo por ili, kvankam tiel proksima al ilia propra. La aspekton de la ebeno ili konis, kaj foje ili vizitis la nordan parton de ĝi, kiam ili promenis aŭ havis ion por fari en la preĝeja vilaĝo. Sed ĉiam ili rigardis ĝin kiel flankregionon de Torento, ne gravan kaj ne interesan.
 
-ma al ilia propra. La aspekton de la ebeno ili konis, kaj foje ili vizitis la nordan parton de ĝi, kiam ili promenis aŭ havis ion por fari en la preĝeja vilaĝo. Sed ĉiam ili rigardis ĝin kiel flankregionon de Torento, ne gravan kaj ne interesan.
-
-Sed nun aperas tiu regiono kiel granda kaj grava landpar-
-
-to, kiu vivas sian propran, trankvilan vivon sendepende de
-
-
-VIVO VOKAS
+Sed nun aperas tiu regiono kiel granda kaj grava landparto, kiu vivas sian propran, trankvilan vivon sendepende de
 
 
 Torento, kiu jam malaperis malantaŭ la migrantoj. Nur eta
@@ -2490,17 +1978,13 @@ fumnubaĵo en la nordo ankoraŭ atestas pri ĝia ekzisto.
 
 Jen staras lernejo en verdaĵo de fruktarboj kaj bedoj, jen
 
-estas bontemplana kunvenejo, jen iu sekta preĝejo, jen ven-
-
-dejoj privataj kaj kooperativaj. ĉe la vojkruciĝoj staras anonc-tabuloj. Nun antaŭ somermezo superregas sur ili grandaj afi-
+estas bontemplana kunvenejo, jen iu sekta preĝejo, jen vendejoj privataj kaj kooperativaj. ĉe la vojkruciĝoj staras anonc-tabuloj. Nun antaŭ somermezo superregas sur ili grandaj afi-
 
 ŝoj pri danco kaj amuziĝo en diversaj lokoj, sed troviĝas ankaŭ aliaj informoj, kiuj atestas, ke tie ĉi ekzistas multaj diversaj unuiĝoj, same kiel en Torento.
 
 La nemultaj homoj, kiujn ili vidas, ne tre diferencas en sia
 
-aspekto de la homoj en Torento. Tamen ili donas alian impre-
-
-son, ŝajnas pli trankvilaj kaj memfidaj, pli seriozaj eĉ se ili estas gajaj, pli solidaj.
+aspekto de la homoj en Torento. Tamen ili donas alian impreson, ŝajnas pli trankvilaj kaj memfidaj, pli seriozaj eĉ se ili estas gajaj, pli solidaj.
 
 Post du horoj ili haltas antaŭ najbarparoą preĝejo, kiu
 
@@ -2527,9 +2011,6 @@ Brita. Tie ĉi oni sentas kunligon inter generacio vivanta kaj generacioj pasint
 konstruaĵo.
 
 
-VIVO VOKAS
-
-
 La knabo pliproksimiĝis, rigardis la verdajn flagojn sur la
 
 bicikloj de Johano kaj Alda kaj demandis, ĉu ili estas esperan-tistoj. Nun ili rapide konatiĝis unu kun alia. La knabo nomiĝis Gustavo. Li studis esperanton koresponde kaj mem iom legis,
@@ -2538,9 +2019,7 @@ sed li estis sola kaj neniam antaŭe renkontis esperantiston.
 
 Dume venas la preĝejvizitantoj. Estas multe da homoj, kaj
 
-preskaŭ ĉiuj havas trajton de memstaro kaj samtempe humi-
-
-lo, kvazaŭ ili bone konus sian propran valoron, sed samtem-
+preskaŭ ĉiuj havas trajton de memstaro kaj samtempe humilo, kvazaŭ ili bone konus sian propran valoron, sed samtem-
 
 pe rilatigus ĝin al la forpaso de la generacioj, kiuj nun ripozas en la silenta loko meze inter iliaj bienoj, rilatigus ĝin al la eksterkomprenaj aferoj, antaŭ kiuj ili medite silentadas en la malnova templo, en kiu same kolektiĝis antaŭ jarcentoj iliaj
 
@@ -2570,12 +2049,7 @@ La junaj ne multe vizitas preĝejon.
 
 —Kaj tiel la preĝejo iom post iom restos sen vizitantoj?
 
-—Mi ne scias. Verŝajne multaj el la junaj iros, kiam ili fari-
-
-ĝos pli aĝaj aŭ maljunaj. Ili edziĝos, baptos infanojn, enterigos parencojn, spertos malfeliĉojn, fariĝos seriozaj, kaj iom post iom ili fariĝos preĝejvizitantoj.
-
-
-VIVO VOKAS
+—Mi ne scias. Verŝajne multaj el la junaj iros, kiam ili fariĝos pli aĝaj aŭ maljunaj. Ili edziĝos, baptos infanojn, enterigos parencojn, spertos malfeliĉojn, fariĝos seriozaj, kaj iom post iom ili fariĝos preĝejvizitantoj.
 
 
 La loko antaŭ la preĝejo jam estis senhoma. Ili volis daŭrigi sian veturon, sed Gustavo ŝatis ankoraŭ iom resti kun ili.
@@ -2584,9 +2058,7 @@ La loko antaŭ la preĝejo jam estis senhoma. Ili volis daŭrigi sian veturon, s
 
 kaj vi ricevos kafon. Tiel ni povos iom pli babili.
 
-—Tion ni tamen ne kuraĝas, diris Johano. Kion dirus patri-
-
-no kaj patro?
+—Tion ni tamen ne kuraĝas, diris Johano. Kion dirus patrino kaj patro?
 
 —Patro kaj patrino ne manĝos vin, asertis Gustavo kun
 
@@ -2600,9 +2072,7 @@ Ilia antaŭtimo malaperis, kiam ili renkontis la gepatrojn.
 
 Gustavo klarigis, kiuj estas liaj gastoj, kaj kial li kunprenis ilin.
 
-La kvar ĝenite proksimiĝis kaj mansalutis, la knaboj kun dor-
-
-soklino kaj la knabinoj kun genuflekso, kiel malgrandaj infa-
+La kvar ĝenite proksimiĝis kaj mansalutis, la knaboj kun dorsoklino kaj la knabinoj kun genuflekso, kiel malgrandaj infa-
 
 noj.
 
@@ -2610,9 +2080,7 @@ Kafon ili tuj ricevis. Kune kun ili trinkis ankaŭ la gepatroj, ĉar estis ilia 
 
 demandojn al la gastoj, rigardis ilin esplore kaj pritakse kaj ŝajnis kontentaj pri ili.
 
-—Mi kunprenis ilin por babili kun ili, diris Gustavo admo-
-
-ne al la gepatroj, sed nun vi tiom babilas, ke mi devas la tutan tempon silenti.
+—Mi kunprenis ilin por babili kun ili, diris Gustavo admone al la gepatroj, sed nun vi tiom babilas, ke mi devas la tutan tempon silenti.
 
 —Nu, nu, diris la patro, ni devas esplori, kiaj vagabondoj
 
@@ -2623,9 +2091,6 @@ Li petole rigardis ilin, kaj en liaj helbluaj okuloj estis lumo kiel la somera l
 —Mi ŝatus dungi vin kiel serviston, li diris al Johano. Vi povas bone labori, tion mi vidas. Kaj vi — li turnis sin al Brita —
 
 bone farus vian taskon en la bovinejo kaj dum la rikolto.
-
-
-VIVO VOKAS
 
 
 Brita ridis kaj ŝajnis kontenta pri lia pritakso.
@@ -2640,9 +2105,7 @@ Denove ili volis daŭrigi sian veturon, sed Gustavo haltigis
 
 ilin.
 
-—ĉu vi ne volas unue rigardi mian brasikon kaj mian por-
-
-kon? li pete demandis.
+—ĉu vi ne volas unue rigardi mian brasikon kaj mian porkon? li pete demandis.
 
 Li kondukis ilin al proksima kampo, kie troviĝis granda
 
@@ -2670,9 +2133,7 @@ Li forgesas, ke ili ĵus parolis pri foriro kaj faras prelegeton, kiu montras, k
 
 aferojn. ĉiu provas atingi kiel eble plej bonan rezulton. Estas konkurso. Krom tio la finrezulto de ilia laboro estos ilia gajno.
 
-Poste li kondukas ilin al sia porko, kiu estas tute lia propra, 71
-
-VIVO VOKAS
+Poste li kondukas ilin al sia porko, kiu estas tute lia propra,
 
 
 kaj pri kiu li same bone zorgas. Kun la sama fervoro li rakontas pri bestbredado en la klubo.
@@ -2687,9 +2148,7 @@ kaj pri kiu li same bone zorgas. Kun la sama fervoro li rakontas pri bestbredado
 
 tempo por legi kaj por aliaj okupoj. Sed oni devas ĉion fari en sia ĝusta tempo, kaj finfine oni estas plej kontenta, kiam ĉio estas en bona ardo.
 
-—ĉu via bieno estas malnova? demandis Brita, kiam ili re-
-
-iris al la domo por diri ĝisrevidon al la gepatroj .
+—ĉu via bieno estas malnova? demandis Brita, kiam ili reiris al la domo por diri ĝisrevidon al la gepatroj .
 
 —Oni ne povas precize diri. Antaŭ tricent jaroj ĝi ekzistis.
 
@@ -2704,14 +2163,9 @@ jarmilo. Sed ni ne loĝis longe tie ĉi. La patro de mia avo estis la unua. Li a
 malnovaj. Aliflanke de la preĝejo estas bieno, kie loĝis la sama familio pli ol kvarcent jarojn.
 
 
-VIVO VOKAS
-
-
 Ili disiĝis de sia nova amiko kaj pli rapide ol antaŭe daŭriĝis sian veturon. Ili atingis la sudan randon de la ebeno. Denove sekvis pejzaĝo pli simila al ilia propra, kun pli da arbaro ol kulturita tero.
 
-Se la pejzaĝo foje estas soleca, la vojo estas des pli vivo-
-
-plena. Aŭtoj estas multaj, precipe en tiu ĉi semajno, kiam
+Se la pejzaĝo foje estas soleca, la vojo estas des pli vivoplena. Aŭtoj estas multaj, precipe en tiu ĉi semajno, kiam
 
 venas tiom da libertempaj aŭtoj, kaj ilia rapido kaj ne ĉiam
 
@@ -2737,12 +2191,7 @@ vento sub la alta ĉielo, kvazaŭ survoje al la estonto.
 
 Verdire estas juna generacio survoje al la estonto. Antaŭ
 
-nemulte da jaroj tia bildo ne ekzistis sur la ŝoseoj. La gejunu-73
-
-VIVO VOKAS
-
-
-loj ofte ne havis monon por plej simpla plezurekskurso, kaj
+nemulte da jaroj tia bildo ne ekzistis sur la ŝoseoj. La gejunuloj ofte ne havis monon por plej simpla plezurekskurso, kaj
 
 libertempon ili tute ne havis. Krom tio neniu povis eĉ pensi, ke prudentaj homoj povus tiamaniere ĉirkaŭvagi kvazaŭ ciga-noj.
 
@@ -2767,9 +2216,6 @@ samideanoj — en la posttagmezo ili pasigis tutan horon kun
 du nederlandanoj ĉe la vojrando en profunda arbaro.
 
 
-VIVO VOKAS
-
-
 En la vespero ili starigis sian tendon ĉe vojeto en konifera
 
 arbaro, kelkajn centmetrojn de la ŝoseo. Post manĝo kaj kafo
@@ -2778,9 +2224,7 @@ ili kuŝigis sin sur la molan, dikan tavolon de pinbranĉoj, per kiuj ili kovris
 
 Johano komencis komenti la impresojn de la tago.
 
-—ĉu ne estas strange, ke Torento kaj la ebeno estas najba-
-
-roj, kaj tamen oni en Torento pensas kaj taksas ĉion en la
+—ĉu ne estas strange, ke Torento kaj la ebeno estas najbaroj, kaj tamen oni en Torento pensas kaj taksas ĉion en la
 
 mondo preskaŭ ekskluzive laŭ la vivmaniero kaj la kondiĉoj
 
@@ -2798,9 +2242,7 @@ sed por la kreado de tiuj produktoj ni estas same fremdaj, kiel por la fruktoj e
 
 Kaj kia novspeca miksaĵo Torento estas! Homoj aperas
 
-kvazaŭ el nenio, ne konante siajn antaŭulojn. Antaŭ la gepa-
-
-troj estas ofte senluma nenio. Ni loĝas en ĉambroj, kiuj ne
+kvazaŭ el nenio, ne konante siajn antaŭulojn. Antaŭ la gepatroj estas ofte senluma nenio. Ni loĝas en ĉambroj, kiuj ne
 
 apartenas al ni, jen tie, jen tie.
 
@@ -2810,14 +2252,9 @@ Gustavo preparis sin por fojnorikolto same kiel nun Gustavo
 
 kaj lia patro.
 
-Mi nenion konas pri la patro de mia patro. Mia patro ve-
-
-nis el alia provinco. Eĉ pri la gepatroj de patrino mi tre malmulte scias. Sed en tiu tre malnova bieno vivas junulo kiel mi, kaj li scias pri siaj prapatroj dum kvar jarcentoj kaj sentas kunligon kun tiuj pasintaj generacioj.
+Mi nenion konas pri la patro de mia patro. Mia patro venis el alia provinco. Eĉ pri la gepatroj de patrino mi tre malmulte scias. Sed en tiu tre malnova bieno vivas junulo kiel mi, kaj li scias pri siaj prapatroj dum kvar jarcentoj kaj sentas kunligon kun tiuj pasintaj generacioj.
 
 —ĉu vi kredas, ke ili tiel forte sentas tion? demandis Brita.
-
-
-VIVO VOKAS
 
 
 —Mi supozas, ke jes. Almenaŭ mi sentus en tia situacio.
@@ -2826,13 +2263,9 @@ Kion diras vi, Brita?
 
 Brita ekridis.
 
-—Patrino havas iom da intereso por tiaj familiaj parencri-
+—Patrino havas iom da intereso por tiaj familiaj parencrilatoj, sed mi tute ne.
 
-latoj, sed mi tute ne.
-
-—Intereson ne, povas esti. Sed ĉu vi tamen ne sentas cer-
-
-tan kunligon kun tiuj pasintaj, certan respondecon, mi eĉ
+—Intereson ne, povas esti. Sed ĉu vi tamen ne sentas certan kunligon kun tiuj pasintaj, certan respondecon, mi eĉ
 
 volus diri, pro tio, ke nun estas vi, kiu staras plej antaŭe en la longa vico.
 
@@ -2850,9 +2283,7 @@ grandaj kvalitoj de la prapatroj ili grandigas sian senton por sia propra valoro
 
 kvankam vi ne scias pri ili, kaj verŝajne ili estis same bonaj homoj kiel miaj.
 
-Nun Arne povas diri sian opinion, li reprezentas la kon-
-
-traŭan flankon. Li ja neniam vidis sian patron kaj nenion scias pri lia deveno.
+Nun Arne povas diri sian opinion, li reprezentas la kontraŭan flankon. Li ja neniam vidis sian patron kaj nenion scias pri lia deveno.
 
 —Mi sentas min, kiel verŝajne sentis sin Adamo, diris Arne.
 
@@ -2864,22 +2295,14 @@ nia propra tasko.
 
 —Certe ni sentas nin kiel Adamo, diris Johano. Kiam ni
 
-estis tre malgrandaj, ni demandis nin, de kie ni venis. Poste 76
-
-VIVO VOKAS
+estis tre malgrandaj, ni demandis nin, de kie ni venis. Poste
 
 
-ni eksciis, ke ni venis el la ventro de patrino. Tamen ni de-
+ni eksciis, ke ni venis el la ventro de patrino. Tamen ni demandis nin, de kie ni venis. Ni eksciis, ke ni estiĝis el du malgrandaj ĉeloj kaj kiel ni estiĝis. Kaj tamen ni demandas nin, de kie ni venis.
 
-mandis nin, de kie ni venis. Ni eksciis, ke ni estiĝis el du malgrandaj ĉeloj kaj kiel ni estiĝis. Kaj tamen ni demandas nin, de kie ni venis.
+Sed ne pri tio mi pensis. Vi komprenas, ke juna homo vivanta en tia malnova bieno, en tia regiono, estas kiel planto
 
-Sed ne pri tio mi pensis. Vi komprenas, ke juna homo viv-
-
-anta en tia malnova bieno, en tia regiono, estas kiel planto
-
-metita en longe kulturatan teron. Sed juna homo en Toren-
-
-to sen propra hejmo, sen sento pri familio, kun sole salajra
+metita en longe kulturatan teron. Sed juna homo en Torento sen propra hejmo, sen sento pri familio, kun sole salajra
 
 rilato al sia laboro estas kiel semo, kiu falas en teron malfe-kundan kaj neniam tuŝitan.
 
@@ -2888,12 +2311,7 @@ rilato al sia laboro estas kiel semo, kiu falas en teron malfe-kundan kaj neniam
 tute kiel Adamo en la ĝardeno, ni ne scias en kies arbaro kaj ne scias bone eĉ kie ni estas, kaj tamen estas tute bone. —
 
 
-VIVO VOKAS
-
-
-Ili daŭrigis suden kaj ekvidis la unuajn densejojn de pru-
-
-nelarbustoj. Arne, kiu printempe vidis ilin en florado eks-
+Ili daŭrigis suden kaj ekvidis la unuajn densejojn de prunelarbustoj. Arne, kiu printempe vidis ilin en florado eks-
 
 ter la ĉefurbo, provis per vortoj pentri ilian belon.
 
@@ -2901,17 +2319,13 @@ Ili renkontis la unuajn kverkojn. Tiuj estis rimarkindaj nur
 
 kiel limpostenantoj, sed baldaŭ ili renkontis ankaŭ imponajn
 
-specimenojn, dikegajn ulojn kun kurbaj kaj nodoplenaj bran-
-
-ĉegoj kiuj dum jarcentoj kaj jarmilo eltenis ŝtormojn kaj malbonan klimaton.
+specimenojn, dikegajn ulojn kun kurbaj kaj nodoplenaj branĉegoj kiuj dum jarcentoj kaj jarmilo eltenis ŝtormojn kaj malbonan klimaton.
 
 —Tiuj estas bonaj kamaradoj, diris Johano. Mi timas, ke mi
 
 tro pensos pri ili, kiam mi estos inter la hejmaj pinoj.
 
-Novajn florojn ili renkontis, kaj Brita konatigis la nekona-
-
-tojn al siaj kamaradoj.
+Novajn florojn ili renkontis, kaj Brita konatigis la nekonatojn al siaj kamaradoj.
 
 Ili nun troviĝis en la regiono de Meza lago, la dekomenca
 
@@ -2919,17 +2333,13 @@ centro de la lando. La lago estas granda sed tiel dividita de insuloj kaj terlan
 
 videbla. Tie la akvo donis bonan vojon al la unuaj loĝantoj, de bordo al bordo kaj inter la mil insuloj, kaj la iama marfundo donis bonan teron por kulturado.
 
-Bela sed tre trankvila kaj ne gravimpresa aspektas tiu lan-
-
-do, sed kiam la rondanoj vagas en la borda regiono kaj sur
+Bela sed tre trankvila kaj ne gravimpresa aspektas tiu lando, sed kiam la rondanoj vagas en la borda regiono kaj sur
 
 terlangoj kaj insuloj, reviviĝas por ili ĝiaj epokoj.
 
 Jen kuŝas la belaj longaltaĵoj el ŝtonetoj kaj sablo, kiujn
 
-kreis antaŭ dekmilo da jaroj la glacitempaj riveroj. Jen estas granitaj platrokoj, kiujn en la sama epoko rabotis kaj poluris 78
-
-VIVO VOKAS
+kreis antaŭ dekmilo da jaroj la glacitempaj riveroj. Jen estas granitaj platrokoj, kiujn en la sama epoko rabotis kaj poluris
 
 
 la giganta glacio. Jen estas videbla en iu deklivo la bordaj pos-tesignoj de la iama maro. La tri torentanoj antaŭe nur aŭdis
@@ -2944,19 +2354,13 @@ por belo ol la nunaj.
 
 Tie kaj tie staras apud ilia vojo miljaraj runŝtonoj, kiuj
 
-rakontas pri homoj vaste vojaĝintaj, al Ruslando kaj Greklan-
+rakontas pri homoj vaste vojaĝintaj, al Ruslando kaj Greklando, al landoj ĉe Atlanta maro. La tekstoj kun siaj strangaj literoj estas por ili nekompreneblaj, sed rigardante tian ŝtonon
 
-do, al landoj ĉe Atlanta maro. La tekstoj kun siaj strangaj literoj estas por ili nekompreneblaj, sed rigardante tian ŝtonon
-
-ili tamen eksentas vibron en sia interno, kvazaŭ ili por mo-
-
-mento troviĝus en tiu delonge pasinta tempo.
+ili tamen eksentas vibron en sia interno, kvazaŭ ili por momento troviĝus en tiu delonge pasinta tempo.
 
 Sur Betula insulo kuŝas kvietaj, herbokovritaj kampoj, kie
 
-antaŭ jarmilo estis la tiama ĉefurbo de la lando, floranta komerca urbo, en kiu aperis komercistoj el multaj eŭropaj lan-
-
-doj kaj okaze eĉ el la lando de Mil kaj unu noktoj. El Francujo venis al tiu urbo la unua misiisto.
+antaŭ jarmilo estis la tiama ĉefurbo de la lando, floranta komerca urbo, en kiu aperis komercistoj el multaj eŭropaj landoj kaj okaze eĉ el la lando de Mil kaj unu noktoj. El Francujo venis al tiu urbo la unua misiisto.
 
 For estas urbo kaj urbomuroj, for havenoj kaj ŝipoj kun
 
@@ -2966,9 +2370,7 @@ insuloj de Meza lago.
 
 Ili vizitas pezajn kastelojn el la fino de la mezepoko kaj
 
-kastelojn pompajn kaj riĉajn el la grandpotenca periodo de la lando. Ili haltas en urboj kun nomoj en la historio. Jen urbo, 79
-
-VIVO VOKAS
+kastelojn pompajn kaj riĉajn el la grandpotenca periodo de la lando. Ili haltas en urboj kun nomoj en la historio. Jen urbo,
 
 
 kie kolektiĝis antaŭ kvincent jaroj la unua parlamento kaj
@@ -2977,9 +2379,7 @@ metis fundamenton por tutpopola memregado. Jen urbo, kie
 
 oni elektis tiun reĝon, kiu kreis veran ŝtaton el la landopartoj, kaj kie oni poste decidis pri la reformacio. Kaj jen kuŝas la modernaj urboj, kun miloj kaj dekmiloj da altkvalitaj laboristoj en modernaj grandfabrikoj, kies produktoj iras al ĉiuj partoj de la mondo
 
-Tiel ili travagis dum multaj tagoj la landon ĉirkaŭ Meza la-
-
-go, zigzage en direktoj kaj zigzage en tempo. Multe, kio antaŭe estis por ili nebulaj imagoj el lernolibroj kaj gazetoj, kaj kio antaŭ jarcentoj malaperis en la fluo de la tempo, fa-riĝis kvazaŭ ankoraŭ vivanta kun juna, freŝa vivo kaj kun ri-
+Tiel ili travagis dum multaj tagoj la landon ĉirkaŭ Meza lago, zigzage en direktoj kaj zigzage en tempo. Multe, kio antaŭe estis por ili nebulaj imagoj el lernolibroj kaj gazetoj, kaj kio antaŭ jarcentoj malaperis en la fluo de la tempo, fa-riĝis kvazaŭ ankoraŭ vivanta kun juna, freŝa vivo kaj kun ri-
 
 lato al ili mem.
 
@@ -2989,21 +2389,14 @@ la urbo, kie ili estas. La junulo ŝajne konis iom de tiuj aferoj, sed montris n
 
 sian scion pri la sporto en la negranda loko en la ferindustria regiono.
 
-Alian fojon li parolis kun sinjoro, kiu ĉion konis pri sia regiono. Lia animo estis kvazaŭ muzeo kun miloj da montro-
-
-kestoj. Kun granda plezuro li ĉion prezentis, kaj ĉio estis por li same grava. La precizaj nomoj de cetere tute nekonataj personoj estis por li same gravaj kiel okazo kun signifo por jarcentoj.
-
-
-VIVO VOKAS
+Alian fojon li parolis kun sinjoro, kiu ĉion konis pri sia regiono. Lia animo estis kvazaŭ muzeo kun miloj da montrokestoj. Kun granda plezuro li ĉion prezentis, kaj ĉio estis por li same grava. La precizaj nomoj de cetere tute nekonataj personoj estis por li same gravaj kiel okazo kun signifo por jarcentoj.
 
 
 Alia sinjoro ne tiom multe konis, sed bone sciis pri gravaj
 
 okazoj, kaj li rakontis pri ili, kvazaŭ estus la merito de li kaj la nuna loĝantaro en la urbo, ke tutlande gravaj aferoj okazis tie antaŭ kvincent jaroj.
 
-Johano ŝatis fantazii pri tempoj pasintaj. En malnova epis-
-
-kopa urbo ili iris supren al la altaĵo, sur kiu staras la katedralo.
+Johano ŝatis fantazii pri tempoj pasintaj. En malnova episkopa urbo ili iris supren al la altaĵo, sur kiu staras la katedralo.
 
 La pavimo konsistis el negrandaj pli mal pli rondaj ŝtonoj.
 
@@ -3011,9 +2404,7 @@ Oni ne bone iris sur ili.
 
 Subite Johano haltis kaj komencis paroli.
 
-—Jen rigardu la ŝtonojn! Estas rulŝtonoj. Glacitempa rive-
-
-ro rulis kaj tornis ilin. Poste ili kuŝis en sablodorso dum dekmilo da jaroj. Iam en la mezepoko oni veturigis ilin tien ĉi.
+—Jen rigardu la ŝtonojn! Estas rulŝtonoj. Glacitempa rivero rulis kaj tornis ilin. Poste ili kuŝis en sablodorso dum dekmilo da jaroj. Iam en la mezepoko oni veturigis ilin tien ĉi.
 
 Imagu, kiel la mezepokaj malgrandaj ĉevaloj — malgrandaj
 
@@ -3023,14 +2414,9 @@ sablodorso kaj tie ĉi, estas multaj centoj da ĉarŝarĝoj en la strato. Kaj im
 
 Suprenirante la rondŝtonan straton ili trairis la katedralon.
 
-Ili rigardis tombojn, kirasojn kaj malnovajn standardojn, preskaŭ polviĝintajn pro aĝo, rigardis pentraĵojn kaj la altarŝran-kon, nederlandan majstroverkon, kiu altiris la atenton speci-
-
-ale de Arne. Nek li nek la aliaj povis ĝuste taksi ĝian valoron, sed ili almenaŭ ricevis impreson de fremda religia mondo,
+Ili rigardis tombojn, kirasojn kaj malnovajn standardojn, preskaŭ polviĝintajn pro aĝo, rigardis pentraĵojn kaj la altarŝran-kon, nederlandan majstroverkon, kiu altiris la atenton speciale de Arne. Nek li nek la aliaj povis ĝuste taksi ĝian valoron, sed ili almenaŭ ricevis impreson de fremda religia mondo,
 
 abunda kaj pompa.
-
-
-VIVO VOKAS
 
 
 Tra mezepoke mallarĝaj pasejoj ili iris al la supro de la turo.
@@ -3047,9 +2433,7 @@ granda kvanto da laboro, kiu kuŝas en ĝiaj muroj.
 
 Subite venis alia penso.
 
-—ĉu la homoj vere kredis, ke ili devas starigi tian konstru-
-
-aĵon por adori Dion, kaj ke ili per tiel pompa preĝejo pli bone adoras lin kaj sekvas lian volon ol per simpla konstruaĵo?
+—ĉu la homoj vere kredis, ke ili devas starigi tian konstruaĵon por adori Dion, kaj ke ili per tiel pompa preĝejo pli bone adoras lin kaj sekvas lian volon ol per simpla konstruaĵo?
 
 —Certe ili tion kredis — kaj ankoraŭ kredas, diris Brita. Mi
 
@@ -3057,18 +2441,11 @@ tamen kredas, ke la konstruantoj iom similis al tiu sinjoro, kiu parolis, kvaza�
 
 merito de li kaj liaj samurbanoj. Mi kredas, ke tiuj konstruantoj kaj verŝajne ankaŭ la aliaj urbanoj sentis, kvazaŭ estus ilia merito, ke Dio estas tiel granda, potenca kaj adorinda. Ju pli granda kaj pompa preĝejo des pli granda kaj potenca Dio.
 
-—Povas esti, ke kelkaj tiel sentis, diris Arne, sed mi kredas ke la pli multaj ne estis tiaj. Tiuj mezepokaj homoj timis la inferon kaj la regnon de malbono, kaj ili spertis multajn suferojn, militojn kaj malsanojn, kaj ili sopiris al io pli alta kaj valora, ili sentis adoremon kaj sopiron al Dio. Kaj tiujn sentojn kaj sopirojn ili esprimis konstruante tian grandiozan pre-
-
-ĝejon. Estas kvazaŭ ili per ĝi dirus: Tio montras, kion ni pensas pri la senco de la vivo.
+—Povas esti, ke kelkaj tiel sentis, diris Arne, sed mi kredas ke la pli multaj ne estis tiaj. Tiuj mezepokaj homoj timis la inferon kaj la regnon de malbono, kaj ili spertis multajn suferojn, militojn kaj malsanojn, kaj ili sopiris al io pli alta kaj valora, ili sentis adoremon kaj sopiron al Dio. Kaj tiujn sentojn kaj sopirojn ili esprimis konstruante tian grandiozan preĝejon. Estas kvazaŭ ili per ĝi dirus: Tio montras, kion ni pensas pri la senco de la vivo.
 
 —Verŝajne vi ambaŭ estas pravaj, diris Johano, Brita ne
 
-malpli ol Arne. Kaj certe ili konstruis kiel eble plej grandio-82
-
-VIVO VOKAS
-
-
-ze ankaŭ por brili antaŭ aliaj urboj. Sed kial konstrui tiajn templojn por plenumi la instruon de Jesuo?
+malpli ol Arne. Kaj certe ili konstruis kiel eble plej grandioze ankaŭ por brili antaŭ aliaj urboj. Sed kial konstrui tiajn templojn por plenumi la instruon de Jesuo?
 
 —ĉu vi memoras la vortojn, diris Arne, kiujn Jesuo diris al
 
@@ -3079,42 +2456,28 @@ nek en Jerusalem vi adoros la patron, venas la horo kaj jam
 estas, kiam la veraj adorantoj adoros la patron laŭ spirito kaj vero.”
 
 
-VIVO VOKAS
-
-
 Post kelkaj horoj ili forlasis la malgrandan urbon. Antaŭ la
 
-eliro en la kamparon ili ankoraŭfoje haltis kaj sendis kel-
-
-kajn lastajn rigardojn al la katedralo. Ruĝe brilas la brika koloro en densa verdaĵo de arbokronoj. Impona ĝi aspektas sur
+eliro en la kamparon ili ankoraŭfoje haltis kaj sendis kelkajn lastajn rigardojn al la katedralo. Ruĝe brilas la brika koloro en densa verdaĵo de arbokronoj. Impona ĝi aspektas sur
 
 la plej alta punkto en la malgranda urbo kun ĝiaj malgrandaj
 
-domoj, impona kaj solida kaj tamen tre malpeza. Kiam ili lon-
-
-ge rigardas ĝin, kun drivantaj someraj nuboj super ĝi kaj hi-
+domoj, impona kaj solida kaj tamen tre malpeza. Kiam ili longe rigardas ĝin, kun drivantaj someraj nuboj super ĝi kaj hi-
 
 rundoj kaj monedoj velantaj en la alto ĉirkaŭ ĝia turo, iom
 
 post iom ŝajnas al ili, ke la granda konstruaĵo kvazaŭ leviĝas kaj ŝvebas.
 
 
-VIVO VOKAS
-
-
 En la sekvanta tago ili ripozis dum la posttagmezo ĝis
 
-malfrue en la vespero. Pro la varmo kaj por eviti la gran-
-
-dan trafikon sur la suda ĉefvojo al la ĉefurbo ili decidis veturi dum la nokto.
+malfrue en la vespero. Pro la varmo kaj por eviti la grandan trafikon sur la suda ĉefvojo al la ĉefurbo ili decidis veturi dum la nokto.
 
 Kaj jen, ĉirkaŭ la tria horo matene, subite aperis antaŭ ili
 
 la urbo. Sur granda ponto ili veturis super kolosimila akvo,
 
-golfo el Meza lago. Ili vidis altajn domojn, industriajn kon-
-
-struaĵojn maldekstre ĉe la buŝo de la golfo, dekstre estas fabriko kaj giganta fervoja ponto. Estas preskaŭ plena silento, kaj la matena suno brilas kun milda, freŝa lumo rekte antaŭ
+golfo el Meza lago. Ili vidis altajn domojn, industriajn konstruaĵojn maldekstre ĉe la buŝo de la golfo, dekstre estas fabriko kaj giganta fervoja ponto. Estas preskaŭ plena silento, kaj la matena suno brilas kun milda, freŝa lumo rekte antaŭ
 
 ili en nordoriento.
 
@@ -3134,22 +2497,13 @@ unue kaj poste denove altiĝanta ĉe la alia ekstremo. Ili glitas malsupren, sed
 
 —Mi volas ion montri al vi, ŝi diras. Estas nur duminuta
 
-afero. Ili traveturas placosimilan lokon antaŭ tramstaloj. Kur-85
-
-VIVO VOKAS
-
-
-baj stratetoj kun kuriozaj lignaj dometoj kondukas ilin sur
+afero. Ili traveturas placosimilan lokon antaŭ tramstaloj. Kurbaj stratetoj kun kuriozaj lignaj dometoj kondukas ilin sur
 
 granitan altaĵon.
 
-Tie ĉi, nur du cent metrojn for de la longa, teda strato ape-
+Tie ĉi, nur du cent metrojn for de la longa, teda strato aperas surpriza vidaĵo. Ili staras ĉe krutaĵo. Kvindek metrojn sub ili kuŝas la golfo, per kiu Meza lago proksimiĝas al la maro.
 
-ras surpriza vidaĵo. Ili staras ĉe krutaĵo. Kvindek metrojn sub ili kuŝas la golfo, per kiu Meza lago proksimiĝas al la maro.
-
-Nebulo ne estas, sed maldensa vaporo kuŝas kvazaŭ ia mo-
-
-laĵo sur la suna akvovasto. Maldekstre, kie oni en la fono
+Nebulo ne estas, sed maldensa vaporo kuŝas kvazaŭ ia molaĵo sur la suna akvovasto. Maldekstre, kie oni en la fono
 
 videtas la pejzaĝon de Meza lago, ŝvebas kilometrolonga
 
@@ -3169,9 +2523,7 @@ akvo, kaj super ĝia junulinstature leviĝanta angulturo ŝvebas sub la cielo ĝ
 
 Dekstre de ĝi estas la centro de la urbo, modernaj domoj
 
-kaj malnovaj palacoj, turoj de preĝejoj kaj aliaj konstruaĵoj, ĉio sur malebena grundo, ĉio kiel fantazie aranĝita, nesime-tria sed plene harmonia ludurbo starigita sur la molbrila tapi-
-
-ŝo de la akvo. Malantaŭ la urbo la rigardo ĉiuflanke atingas
+kaj malnovaj palacoj, turoj de preĝejoj kaj aliaj konstruaĵoj, ĉio sur malebena grundo, ĉio kiel fantazie aranĝita, nesime-tria sed plene harmonia ludurbo starigita sur la molbrila tapiŝo de la akvo. Malantaŭ la urbo la rigardo ĉiuflanke atingas
 
 arbokronojn aŭ arbarojn, la randon de la kamparo. Silenta kaj kvieta kuŝas la urbo en la matenbrilo, kvazaŭ infano ridetanta en sia matendormo, kiam la radioj de la leviĝanta suno ludas
 
@@ -3181,12 +2533,7 @@ en ĝia ĉambro.
 
 bela, diris Johano.
 
-—Mi ankaŭ ne, diris Brita. Neniam antaŭe mi vidis la ur-
-
-bon en tiu ĉi horo.
-
-
-VIVO VOKAS
+—Mi ankaŭ ne, diris Brita. Neniam antaŭe mi vidis la urbon en tiu ĉi horo.
 
 
 Ili daŭrigis kaj baldaŭ troviĝis sur vasta loko inter Meza
@@ -3211,9 +2558,7 @@ mi komprenas, ke devas esti tie — kuŝas insulo tute plena de
 
 fabrikoj, kiuj apartenas al ni. Kaj sude de la akvokolo, trans kiun ni unue veturis en la urbon, ni havas lampfabrikon, kaj
 
-ĝin posedas ne nur ni, sed niaj kunlaborantoj en la tuta Nor-
-
-do, danoj, norvegoj, finnoj, estonoj. Estas valoroj por multege da milionoj, kaj finfine mi posedas multajn kronojn en tiu ĉi urbo.
+ĝin posedas ne nur ni, sed niaj kunlaborantoj en la tuta Nordo, danoj, norvegoj, finnoj, estonoj. Estas valoroj por multege da milionoj, kaj finfine mi posedas multajn kronojn en tiu ĉi urbo.
 
 —ĉu vi estas kooperativano? demandis Brita.
 
@@ -3223,14 +2568,9 @@ do, danoj, norvegoj, finnoj, estonoj. Estas valoroj por multege da milionoj, kaj
 
 —Ne, estas ĝuste mi. Mi aŭdis, kion diris prudentaj homoj,
 
-kaj kiam mi komencis labori en la ĝardeno, mi ordonis al pa-
-
-trino aĉeti nur en la kooperativa vendejo, kaj mi mem aliĝis
+kaj kiam mi komencis labori en la ĝardeno, mi ordonis al patrino aĉeti nur en la kooperativa vendejo, kaj mi mem aliĝis
 
 kiel membro. La salajroj de Eriko kaj Ejnar pli multe ol miaj kontribuis por la rezulto, sed ili ne interesas sin por tiuj aferoj nek volas havi rekompencon.
-
-
-VIVO VOKAS
 
 
 Ili estis lacaj, kaj Brita kondukis ilin la plej proksiman vojon al sia hejmo.
@@ -3247,9 +2587,7 @@ kiel patro kaj mi imagis ilin, kiam mi estis malgranda.
 
 —Kvankam ne socialista, diris Brita. Sed tute apude estas
 
-similaj domoj, kiuj estas ne socialistaj sed almenaŭ koopera-
-
-tivaj, posedataj de la loĝantoj.
+similaj domoj, kiuj estas ne socialistaj sed almenaŭ kooperativaj, posedataj de la loĝantoj.
 
 Dume ili metis la biciklojn en konvenan lokon, kunprenis
 
@@ -3257,9 +2595,7 @@ la necesan pakaĵon kaj sekvis Britan, kiu rapide kuris al la lif-to.
 
 Post vivado sur la vojoj kaj vagado inter multaj lokoj ili
 
-unuafoje post unu kaj duona semajno denove troviĝas en hej-
-
-ma ĉambro. Tio estas stranga, kvazaŭ reveno al medio, kiu
+unuafoje post unu kaj duona semajno denove troviĝas en hejma ĉambro. Tio estas stranga, kvazaŭ reveno al medio, kiu
 
 estas konata kaj memkomprenebla, sed kiu fariĝis preskaŭ
 
@@ -3271,28 +2607,16 @@ dormemon. Ili sentas deziron kuŝigi sin sur la plankon kaj tuj dormi. Sed trakt
 
 Pretiginte kafon Brita metis kvar tasojn sur la tablon, sed
 
-poste ŝi rigardis ilin malkontente, skuis la ŝultrojn kaj decide metis ilin en la mezon de la planko. Apude ŝi sternis malnovan gazeton, sur kiun ŝi metis panon kaj buteron el la komu-
-
-na provizo.
+poste ŝi rigardis ilin malkontente, skuis la ŝultrojn kaj decide metis ilin en la mezon de la planko. Apude ŝi sternis malnovan gazeton, sur kiun ŝi metis panon kaj buteron el la komuna provizo.
 
 —Estas pli agrable tiel, kaj tiel ni pli bone ripozas ol sidante sur seĝoj.
 
 
-VIVO VOKAS
-
-
 Duonkuŝante kiel en la tendo ili trinkis kafon kaj manĝis
 
-buterpanojn. Sed kvankam estis agrable tiel kuŝi, neniu ha-
+buterpanojn. Sed kvankam estis agrable tiel kuŝi, neniu havis emon resti tie pli longe ol necese. Eltrinkinte sian tason Brita tuj prenis tolaĵon el ŝranko kaj kun helpo de Alda aran-
 
-vis emon resti tie pli longe ol necese. Eltrinkinte sian tason Brita tuj prenis tolaĵon el ŝranko kaj kun helpo de Alda aran-
-
-ĝis litojn por la knaboj en la ĉambro de Arne kaj en sia ĉam-
-
-bro por si kaj Alda, kaj ili senprokraste iris dormi.
-
-
-VIVO VOKAS
+ĝis litojn por la knaboj en la ĉambro de Arne kaj en sia ĉambro por si kaj Alda, kaj ili senprokraste iris dormi.
 
 
 V.
@@ -3309,9 +2633,7 @@ Johano miris sed silente atendis klarigon.
 
 —Mi intencas veturi al Hispanujo.
 
-Johano rigardis lin senspire kaj ekhavis la senton, ke li son-
-
-ĝas. Post kelkaj sekundoj li kaptis la sencon de la vortoj, sed la afero ankoraŭ pli similis al sonĝo. Sed kiam li vidis la esprimon en la vizaĝo kaj la okuloj de Eriko, ŝajnis al li preskaŭ memkomprenebla afero, ke Eriko tiel decidis.
+Johano rigardis lin senspire kaj ekhavis la senton, ke li sonĝas. Post kelkaj sekundoj li kaptis la sencon de la vortoj, sed la afero ankoraŭ pli similis al sonĝo. Sed kiam li vidis la esprimon en la vizaĝo kaj la okuloj de Eriko, ŝajnis al li preskaŭ memkomprenebla afero, ke Eriko tiel decidis.
 
 —Kiam? demandis fine Johano, kaj la voĉo sonis, kvazaŭ li
 
@@ -3327,18 +2649,13 @@ La mieno de Eriko subite ŝanĝiĝis pro miro.
 
 estus atendinta. Tute trankvile vi demandas nur: Kiam? Nu,
 
-post tri tagoj. Mi petis maldungon, sub preteksto ke mi rice-
-
-vos laboron en alia loko. Mi volas tute senbrue malaperi.
+post tri tagoj. Mi petis maldungon, sub preteksto ke mi ricevos laboron en alia loko. Mi volas tute senbrue malaperi.
 
 —Patrino ne komprenos tion.
 
 —Certe ŝi ne komprenos. Sed ĉu vi komprenas? Kiel vi
 
 povas kompreni?
-
-
-VIVO VOKAS
 
 
 —Mi ne komprenas.
@@ -3367,9 +2684,7 @@ malpli reala ol konkreta?
 
 Johano silentis kaj ili rigardis unu la alian. Eriko aspektis, kvazaŭ li ordigus la pensojn aŭ serĉus konvenajn vortojn.
 
-—Vi ne komprenas, li diris, kaj rideto aperis ĉe la buŝ-
-
-anguloj. Mi kredas, ke vi komprenos, kiam vi havos ankoraŭ
+—Vi ne komprenas, li diris, kaj rideto aperis ĉe la buŝanguloj. Mi kredas, ke vi komprenos, kiam vi havos ankoraŭ
 
 duondekon da jaroj. Se mi estus plena de aventuremo, vi pli
 
@@ -3394,14 +2709,9 @@ ludas diskutojn kaj oni ludas laboron por socialismo. Oni
 dancas kaj flirtas kaj edziĝas por socialismo.
 
 
-VIVO VOKAS
-
-
 —Ekzistas ankaŭ aliaj organizoj.
 
-—Kaj en tiuj estas figuroj el seka ligno, regas maljunul-
-
-spirito. Sed mi ne estu maljusta, ie en la organizoj troviĝas ankaŭ iom da viva forto, okazas iom da bona laboro. Sed mia
+—Kaj en tiuj estas figuroj el seka ligno, regas maljunulspirito. Sed mi ne estu maljusta, ie en la organizoj troviĝas ankaŭ iom da viva forto, okazas iom da bona laboro. Sed mia
 
 loko ne estas tie.
 
@@ -3409,9 +2719,7 @@ Lia voĉo komencis vibri kaj la okuloj brilis.
 
 —M i a j kamaradoj estas ĉe la frontoj en Hispanujo, ili
 
-konstruas fabrikojn kaj urbojn kaj plugas kampojn en Ruslan-
-
-do. Ie inter ili estas mia loko, kaj plej necese estas doni hel-pan manon al la kamaradoj en la sudo.
+konstruas fabrikojn kaj urbojn kaj plugas kampojn en Ruslando. Ie inter ili estas mia loko, kaj plej necese estas doni hel-pan manon al la kamaradoj en la sudo.
 
 Estas granda tasko, kaj plenumi ĝin estas la sola granda
 
@@ -3433,9 +2741,7 @@ Kiam patrino revenis, Eriko anoncis sian decidon ankaŭ al
 
 inventis? Oni pafos vin.
 
-—Povos okazi, diris Eriko trankvile. Sed pro tio vi ne bezo-
-
-nas nomi tion idiota bubaĵo. ĉu ne ankaŭ vi kondamnis la
+—Povos okazi, diris Eriko trankvile. Sed pro tio vi ne bezonas nomi tion idiota bubaĵo. ĉu ne ankaŭ vi kondamnis la
 
 ribelantojn kaj deziris venkon al la registaranoj?
 
@@ -3448,16 +2754,11 @@ pri legataj aferoj kaj tute alia mem miksi sin en la realan batalon.
 provos fari mian devon
 
 
-VIVO VOKAS
-
-
 —Diable stulta vi estas! Kial vi parolas pri timo, se vi intencas militi? Sed tion vi devus pripensi, ke Hispanujo estas malproksima, kaj ke aferoj kaj homoj tie estas por vi kiel por mi nur vortoj en gazetoj. Kiu garantias, ke la homoj, kun kiuj vi volas batali, efektive meritas vian helpon?
 
 —ĉu vi dubas pri ilia pravo?
 
-—Mi ne havas kaŭzon dubi. Sed se homoj, kiujn mi ne-
-
-niam vidis kaj neniel konas, proponas al mi batali kune kun
+—Mi ne havas kaŭzon dubi. Sed se homoj, kiujn mi neniam vidis kaj neniel konas, proponas al mi batali kune kun
 
 ili kaj eventuale eĉ doni mian vivon por ili, tiam mi almenaŭ devas kontroli, ĉu ili tion meritas. Estas ja tamen eble, ke ili estas friponoj.
 
@@ -3477,9 +2778,7 @@ sukceso, alie via afero tamen estus sensenca. Vi ne konas la
 
 homojn, kaj vi ne konas la militajn cirkonstancojn.
 
-Sed ŝia rezonado kaj ŝiaj admonoj neniel efikis al li. ŝi komprenis, ke li estas neskuebla, kaj ŝi ricevis esprimon de mal-
-
-ĝojo kaj samtempe de kolero, preskaŭ malŝato.
+Sed ŝia rezonado kaj ŝiaj admonoj neniel efikis al li. ŝi komprenis, ke li estas neskuebla, kaj ŝi ricevis esprimon de malĝojo kaj samtempe de kolero, preskaŭ malŝato.
 
 
 —Freneza vi estas, ŝi diris rezigne kaj kun kapskuo. Certe
@@ -3488,18 +2787,12 @@ mi povus perforte reteni vin, sed kiel ni povus poste vivi
 
 kune?
 
-Eriko iris en la ĉambron kaj fermis la pordon. Johano res-
-
-tis ĉe la patrino, kiu sidigis sin sur la sofon kaj kun mieno de aflikto balancis la korpon tien kaj reen. Iom post iom ŝi ŝaj-93
-
-VIVO VOKAS
+Eriko iris en la ĉambron kaj fermis la pordon. Johano restis ĉe la patrino, kiu sidigis sin sur la sofon kaj kun mieno de aflikto balancis la korpon tien kaj reen. Iom post iom ŝi ŝaj-93
 
 
 nis trankviliĝi. ŝi rigardis Johanon kvazaŭ atendante, ke li parolos.
 
-—ĉu vi longe sciis tion? ŝi demandis, kiam ŝia atendo res-
-
-tis vana.
+—ĉu vi longe sciis tion? ŝi demandis, kiam ŝia atendo restis vana.
 
 —Iom antaŭ via reveno li rakontis al mi.
 
@@ -3527,16 +2820,11 @@ reprenis sian antaŭan aspekton. ŝi tute trankvile rigardis Johanon kaj diris:
 
 ol la Johano.
 
-—Se li saltus en akvon por savi dronanton aŭ kurus en bru-
-
-lantan domon por elporti kriplulon, mi tion komprenus. Se li
+—Se li saltus en akvon por savi dronanton aŭ kurus en brulantan domon por elporti kriplulon, mi tion komprenus. Se li
 
 mortus, mi plorus, sed mi ne malaprobus lian agon. Sed tiel
 
 agi kiel nun, tion mi ne povas kompreni. Kial mi vin portis en mia ventro kaj donis al vi vivon, se la fino estos tia?
-
-
-VIVO VOKAS
 
 
 —Kiam vi tion faris, vi tamen verŝajne malmulte pensis pri
@@ -3561,9 +2849,7 @@ Eriko laboris dum la tri tagoj kiel antaŭe. En la vespero de
 
 la tria tago li venis hejmen en kutima tempo. Kiel ordinare li lavis kaj razis sin, sed anstataŭ surmeti la vestojn, kiujn li ordinare portis en la vesperoj, li prenis uzitan, pli dikan kostumon, kiun li dum la lasta vintro portis en la liberaj horoj.
 
-—ĉu vi intencas veturi sur la trajno en tiu malnova kostu-
-
-mo? diris la patrino. Vi tamen havas novan, bonan.
+—ĉu vi intencas veturi sur la trajno en tiu malnova kostumo? diris la patrino. Vi tamen havas novan, bonan.
 
 Eriko vole nevole ekridetis.
 
@@ -3573,9 +2859,7 @@ kostumon, kiam oni iras batali? Tiu ĉi estas pli konvena por
 
 tia vojaĝo.
 
-Sur seĝo kuŝis lia valizo. i estis malfermita, kaj en ĝi kuŝis zorge pakitaj lia tolaĵo kaj aliaj objektoj. Eriko kontrolis la enhavon kaj trovis kelkajn novajn subĉemizojn kaj subpan-talonojn. Li rigardis la patrinon kaj Johanon kaj diris mole: 95
-
-VIVO VOKAS
+Sur seĝo kuŝis lia valizo. i estis malfermita, kaj en ĝi kuŝis zorge pakitaj lia tolaĵo kaj aliaj objektoj. Eriko kontrolis la enhavon kaj trovis kelkajn novajn subĉemizojn kaj subpan-talonojn. Li rigardis la patrinon kaj Johanon kaj diris mole:
 
 
 —Tio ne estus bezonata. Tamen dankon, vi estas bonaj al
@@ -3615,9 +2899,6 @@ Eriko aspektis nekontenta, sed post kelkaj momentoj li
 cedis.
 
 Patrino vokis lin al kafo. ĉio lia estis en ordo, kaj post nemultaj minutoj li staris ĉe la pordo kun sia valizo. Li etendis sian manon al la patrino. ŝi kaptis ĝin, kaj la fingroj de ŝia maldekstra mano tremante alkroĉis sin al la refaldaĵo de lia
-
-
-VIVO VOKAS
 
 
 jako. ŝi estis iomete pli alta ol Eriko, sed en tiu momento ŝi aspektis pli malgranda ol li.
@@ -3660,9 +2941,7 @@ Eriko kapklinis
 
 —Estu trankvila. Sed kial vi ne klarigis tion antaŭe? Nun mi
 
-nur ĝenos, almenaŭ ŝin. Pli bone tuj reiri hejmen, tre malra-
-
-pide, kaj raporti, ke vi feliĉe venis en vagonon.
+nur ĝenos, almenaŭ ŝin. Pli bone tuj reiri hejmen, tre malrapide, kaj raporti, ke vi feliĉe venis en vagonon.
 
 —Ne, ne, diris Eriko. Nun venu! Ni ne havos scenojn, kaj
 
@@ -3671,24 +2950,15 @@ vin ŝi ja konas.
 Ajna alvenis jam antaŭ ili kaj promenis tien kaj reen antaŭ
 
 
-VIVO VOKAS
-
-
 la stacidomo. ŝi konfuziĝis, kiam ŝi ekvidis Johanon, sed Eriko trankviligis ŝin.
 
-—Mi ne sukcesis restigi Johanon hejme kaj tial devis ra-
-
-konti al li, ke vi estas tie ĉi kaj kial.
+—Mi ne sukcesis restigi Johanon hejme kaj tial devis rakonti al li, ke vi estas tie ĉi kaj kial.
 
 ŝi rigardis Johanon kaj iomete ruĝiĝis. Pala rideto aperis en la rigide serioza vizaĝo. ŝia ĝeniteco malaperis.
 
-—Johanon mi ne timas. Mi devus kompreni, ke vi ne suk-
+—Johanon mi ne timas. Mi devus kompreni, ke vi ne sukcesis forkuri de li.
 
-cesis forkuri de li.
-
-Eriko iris aĉeti bileton. Poste restis ankoraŭ dek kvin minu-
-
-toj ĝis la trajno, kaj Ajna proponis, ke ili promenu.
+Eriko iris aĉeti bileton. Poste restis ankoraŭ dek kvin minutoj ĝis la trajno, kaj Ajna proponis, ke ili promenu.
 
 —Promenu vi ambaŭ, mi restos tie ĉi kaj gardos la valizon,
 
@@ -3715,16 +2985,11 @@ Ili kvazaŭ rigidiĝis. Ajna ektremis, kaj subite ŝi metis siajn brakojn ĉirka
 La trajno apenaŭ haltis, kiam Eriko malfermis la peronan
 
 
-VIVO VOKAS
-
-
 pordon kaj saltis supren. Li turnis sin, klinis sin kaj premis la manon de Johano. Poste li premis la manon de Ajna kaj denove rektigis sin. Johano rigardis lian vizaĝon. Tiel mildan kaj puran brilon li neniam vidis en la vizaĝo de Eriko. Sed kiam
 
 li rektigis sin, malmoliĝis denove liaj trajtoj.
 
-Kaj jen la radoj post minuta ripozo denove komencas tur-
-
-niĝi. Eriko svingas la manon, ili svingas la siajn, lia vizaĝo malaperas, la tuta trajno malaperas en la krepusko, kaj en la krepusko formortas ankaŭ la bruo de la radoj.
+Kaj jen la radoj post minuta ripozo denove komencas turniĝi. Eriko svingas la manon, ili svingas la siajn, lia vizaĝo malaperas, la tuta trajno malaperas en la krepusko, kaj en la krepusko formortas ankaŭ la bruo de la radoj.
 
 Johano turnis sin al Ajna. Sinkaŝe ŝi klinis la kapon, kaj la korpo tremis. Nek vorto nek ĝemo venis de ŝi.
 
@@ -3734,9 +2999,7 @@ Kiam ili estis en la senhoma aleo, ŝi proksimiĝis al li kaj
 
 ŝovis sian manon sub lian brakon kvazaŭ serĉante apogon.
 
-En la unua momento li ne sciis kion fari, ĉar neniam li pro-
-
-menis tiel, sed instinkte li levis la suban parton de la brako, kaj tuj ŝi metis sian manon sur ĝin kaj peze apogis sin sur li.
+En la unua momento li ne sciis kion fari, ĉar neniam li promenis tiel, sed instinkte li levis la suban parton de la brako, kaj tuj ŝi metis sian manon sur ĝin kaj peze apogis sin sur li.
 
 Per la alia mano ŝi tenis poŝtukon antaŭ la okuloj, dum ŝi
 
@@ -3761,12 +3024,7 @@ Sen ion demandi Johano turnis sin al sudo, kaj ili transiris
 la fervojon. Li intencis iri suden, sed Ajna turnis lin al la ŝoseo al oriento, kiu iras paralele kun la fervojo.
 
 
-VIVO VOKAS
-
-
-—Ne tien! ŝi diris. ĉu vi forgesis, ke ni nun loĝas en Paŝte-
-
-jo? Eble oni ne vidus min, sed pli bone iri alian vojon.
+—Ne tien! ŝi diris. ĉu vi forgesis, ke ni nun loĝas en Paŝtejo? Eble oni ne vidus min, sed pli bone iri alian vojon.
 
 Kiam ili atingis la ŝosean ponton sude de la fervoja ponto,
 
@@ -3801,18 +3059,13 @@ kiam ni estis malgrandaj.
 povas nun fari por vi?
 
 
-VIVO VOKAS
-
-
 —Vi jam helpis min. Mi tiel ĝojas, ke vi akompanis Erikon.
 
 Kion mi alie estus farinta?
 
 Kaj ŝi tre forte premis lian manon.
 
-—ĉu vi memoras, Ajna, diris Johano, ke Arne tiam dona-
-
-cis al mi sian ĉevaleton, la kompatindan trikruran ĉevaleton?
+—ĉu vi memoras, Ajna, diris Johano, ke Arne tiam donacis al mi sian ĉevaleton, la kompatindan trikruran ĉevaleton?
 
 —La ĉevalon mi memoras de niaj ludoj en la sablejo, sed
 
@@ -3820,9 +3073,7 @@ ne ke Arne donacis ĝin al vi.
 
 —Tion li faris, kaj ankaŭ tio estis por mi granda konsolo.
 
-Sed mi absolute ne povas memori, kio poste okazis al la ĉeva-
-
-lo. Tre sendanka mi estis al la brava, kompatinda ĉevaleto.
+Sed mi absolute ne povas memori, kio poste okazis al la ĉevalo. Tre sendanka mi estis al la brava, kompatinda ĉevaleto.
 
 Ajna ridetis.
 
@@ -3838,9 +3089,7 @@ vojon. Kiam ili atingis la ŝoseon apud la stacio ili haltis kaj restis kune por
 
 Sed mi volus baldaŭ denove renkonti vin. ĉu vi volas tion?
 
-—Tre volonte. Ni ja povos promeni. Cetere vi povas sen-
-
-ĝene vieni hejmen, patrino ne estas danĝera.
+—Tre volonte. Ni ja povos promeni. Cetere vi povas senĝene vieni hejmen, patrino ne estas danĝera.
 
 —Vian patrinon mi ne timas. Mi kredas, ke mi iom post
 
@@ -3852,14 +3101,10 @@ kiun ili havis unu por alia, kiam ili inter si ankoraŭ neniam salutis per manpr
 
 La patrino sidis kaj flikis ŝtrumpojn, kiam Johano venis
 
-hejmen. Johano vidis, ke ankaŭ ŝi estas plorinta, kio estis ne-ordinara afero ĉe ŝi. Kontraŭe al multaj el ŝiaj fratinoj en temperamento, ŝi ne same facile ploris, kiel ŝi koleriĝis kaj uzis 101
-
-VIVO VOKAS
+hejmen. Johano vidis, ke ankaŭ ŝi estas plorinta, kio estis ne-ordinara afero ĉe ŝi. Kontraŭe al multaj el ŝiaj fratinoj en temperamento, ŝi ne same facile ploris, kiel ŝi koleriĝis kaj uzis
 
 
-fortajn vortojn. La radio staris silenta, kvankam estis pro-
-
-gramo, kiu povus interesi ŝin, kaj kvankam la vesperaj novaĵoj venos post kelkaj minutoj.
+fortajn vortojn. La radio staris silenta, kvankam estis programo, kiu povus interesi ŝin, kaj kvankam la vesperaj novaĵoj venos post kelkaj minutoj.
 
 —Kie vi estis tiel longe? ŝi demandis.
 
@@ -3873,20 +3118,13 @@ tono:
 
 estas fajro en la forno, la kafo ankoraŭ estas varma.
 
-—Jes, panjo, ni trinku ankoraŭ tason da kafo. Kaj ĉu ni du-
+—Jes, panjo, ni trinku ankoraŭ tason da kafo. Kaj ĉu ni dume aŭskultu la novaĵojn?
 
-me aŭskultu la novaĵojn?
-
-ŝia vizaĝo malheliĝis. Sed post momento ŝi suspiris rezig-
-
-ne kaj diris:
+ŝia vizaĝo malheliĝis. Sed post momento ŝi suspiris rezigne kaj diris:
 
 —Nu, turnu la butonon. Finfine oni tamen volas scii, kio
 
 okazas en la mondo.
-
-
-VIVO VOKAS
 
 
 En la mateno vekis lin kiel ordinare la voĉo de la patrino.
@@ -3899,9 +3137,7 @@ Nun li estas venanta al Gotenburgo, pensis Johano. Certe
 
 li estas tre laca.
 
-Kiam li venis en la kuirejon, li rimarkis, ke la patrino kva-
-
-zaŭ serĉante rigardas en la ĉambron. Kiam ili sidis ĉe la tab-lo kaj trinkis kafon, ŝi animforeste rigardis la lokon, kie antaŭe sidis Eriko. ŝia mieno estis peza, sed ŝi nenion diris.
+Kiam li venis en la kuirejon, li rimarkis, ke la patrino kvazaŭ serĉante rigardas en la ĉambron. Kiam ili sidis ĉe la tab-lo kaj trinkis kafon, ŝi animforeste rigardis la lokon, kie antaŭe sidis Eriko. ŝia mieno estis peza, sed ŝi nenion diris.
 
 Same ili sidis ĉe la tablo en la manĝotempo. Patrino metis
 
@@ -3920,9 +3156,6 @@ studoj. Jen li iris en la kuirejon kaj sidis kune kun patrino.
 Malmulte da vortoj ili diris, sed patrino ŝajne ŝatis, ke li restas kune kun ŝi.
 
 Venas novaj tagoj kaj novaj vesperoj, kaj la malplena loko
-
-
-VIVO VOKAS
 
 
 en la hejmo ne tiel efikas al ili kiel en la unuaj momentoj. Ili jam estas nur du en la hejmo.
@@ -3945,9 +3178,7 @@ demandis. Malaperas sen diri eĉ unu vorton.
 
 —Li diris, ke li devas rapide foriri.
 
-—Povas esti, tamen li estus trovinta tempon por diri kel-
-
-kajn vortojn al mi.
+—Povas esti, tamen li estus trovinta tempon por diri kelkajn vortojn al mi.
 
 —Vi certe baldaŭ aŭdos de li.
 
@@ -3957,57 +3188,38 @@ En la kvara vespero Johano vizitis Aldan.
 
 —Kien iris Eriko? ŝi demandis tuj post lia enveno.
 
-—Al Hispanujo, respondis Johano, la unuan fojon menci-
-
-ante tion al iu.
+—Al Hispanujo, respondis Johano, la unuan fojon menciante tion al iu.
 
 La patro de Alda, kiu sidis leganta, levis la kapon.
 
-—ĉu mi misaŭdis, aŭ ĉu vi diris, ke Eriko iris al Hispanu-
-
-jo?
+—ĉu mi misaŭdis, aŭ ĉu vi diris, ke Eriko iris al Hispanujo?
 
 —Jes, li iris tien, konfirmis Johano.
 
 —Kaj tion vi tiel bovintrankvile diras! Aŭdu: en Torento tia
 
-ago okazas nur unu fojon dum jarcento … Kaj Eriko! Mi sus-
+ago okazas nur unu fojon dum jarcento … Kaj Eriko! Mi suspektis, ke vi estas bona knabo, sed tiom mi ne atendis de vi.
 
-pektis, ke vi estas bona knabo, sed tiom mi ne atendis de vi.
-
-—Kaj vi ŝajnas tiel indiferenta! li daŭrigis, ekzamene rigar-
-
-dante Johanon. ĉu vi ne aprobas lian agon?
-
-
-VIVO VOKAS
+—Kaj vi ŝajnas tiel indiferenta! li daŭrigis, ekzamene rigardante Johanon. ĉu vi ne aprobas lian agon?
 
 
 —Ne estas mia tasko aprobi aŭ malaprobi
 
 —Vi pravas. Sed entuziasma vi evidente ne estas.
 
-—Kiel mi estu? Iom de Torento mi konas kaj de plej prok-
-
-simaj aferoj, sed la internaciajn rilatojn ne. Kiel mi do juĝu?
+—Kiel mi estu? Iom de Torento mi konas kaj de plej proksimaj aferoj, sed la internaciajn rilatojn ne. Kiel mi do juĝu?
 
 —Estas preskaŭ nekredeble, ke li veturis al Hispanujo, diris
 
 Alda. Mi memoras, kiam li estis kun ni ĉe Perkolago … Cetere, paĉjo, ĉu Johano ne prijuĝas laŭ unu el viaj principoj?
 
-La patro residigis sin en la brakseĝon, rigardis ilin kaj en-
+La patro residigis sin en la brakseĝon, rigardis ilin kaj enreviĝis.
 
-reviĝis.
-
-—Vi pravas, li diris post ioma silento. Oni kuras de vid-
-
-punkto al vidpunkto, oni kaŝludas kun si mem. La ago de Eri-
+—Vi pravas, li diris post ioma silento. Oni kuras de vidpunkto al vidpunkto, oni kaŝludas kun si mem. La ago de Eri-
 
 ko estas heroa kaj admirinda. Malgraŭ tio la afero ne estas tiel memkomprenebla . .
 
-La malnovaj ideoj pri libero kaj individua memstaro dro-
-
-nas en la nuntempa fluo de potencavido. Kaj tamen ili an-
+La malnovaj ideoj pri libero kaj individua memstaro dronas en la nuntempa fluo de potencavido. Kaj tamen ili an-
 
 koraŭ estas same junaj kaj belaj kiel antaŭ tridek jaroj, nur pli revosimilaj. Havu mian benon, infanoj, vi estas proksimaj al
 
@@ -4023,16 +3235,9 @@ La lastajn vortojn aŭdis ankaŭ la patrino, kiu ĝuste venis
 
 hejmen. ŝi tuj eniris al ili.
 
-—Via voĉo sonas kiel en pasinta tempo, kaj mi aŭdas vor-
+—Via voĉo sonas kiel en pasinta tempo, kaj mi aŭdas vortojn, kiujn mi delonge ne aŭdis de vi, ŝi diris ridetante kaj kun hela ekbrilo en la okuloj. Pri kio temas?
 
-tojn, kiujn mi delonge ne aŭdis de vi, ŝi diris ridetante kaj kun hela ekbrilo en la okuloj. Pri kio temas?
-
-—Pri tio, ke ni devus vivi laŭ nia plej sankta sopiro kaj fari el nia ekzisto ion belegan, subliman. Sed anstataŭ tio ni ven-105
-
-VIVO VOKAS
-
-
-das aĉajn gazetojn de ĉiuj specoj kaj kvazaŭ tra funelo en-
+—Pri tio, ke ni devus vivi laŭ nia plej sankta sopiro kaj fari el nia ekzisto ion belegan, subliman. Sed anstataŭ tio ni vendas aĉajn gazetojn de ĉiuj specoj kaj kvazaŭ tra funelo en-
 
 verŝas en la homajn cerbojn ĉiujn spiritajn malsanojn de la
 
@@ -4044,9 +3249,7 @@ la cindro de la ĉiutagaĵoj restas ankoraŭ ardo.
 
 ŝi eksciis pri la kaŭzo de la interparolo. Tio faris al ŝi fortan impreson, sed kontraŭan al tiu de la edzo.
 
-—Estas terure! ŝi diris. Kompatinda knabo! Li estas since-
-
-ra kaj oferema, sed li ne scias, kion li faras. Mortigo estas mortigo, kaj perforto naskas perforton, eĉ se ĝi estas farata en la nomo de libero.
+—Estas terure! ŝi diris. Kompatinda knabo! Li estas sincera kaj oferema, sed li ne scias, kion li faras. Mortigo estas mortigo, kaj perforto naskas perforton, eĉ se ĝi estas farata en la nomo de libero.
 
 ŝiaj okuloj brilis, kaj la vizaĝon plivivigis varma koloro.
 
@@ -4068,16 +3271,9 @@ La edzo estis serioza kaj emocio tuŝis lian vizaĝon.
 
 —Mi memoras.
 
-—Kaj ĉu vi memoras, kiel ni instruis al Alda tiun kontraŭ-
+—Kaj ĉu vi memoras, kiel ni instruis al Alda tiun kontraŭmilitan kanton, kiun ŝi poste ĉiam kantis? ĉu vi memoras,
 
-militan kanton, kiun ŝi poste ĉiam kantis? ĉu vi memoras,
-
-kiam ŝi, nur kvinjara, kantis ĝin dum la kristnaska festo en la popola domo kaj tute sorĉis kvin cent homojn, ĝis ĉiuj kom-106
-
-VIVO VOKAS
-
-
-encis kanti kune kun ŝi? Tio estis kristnaskofesto pli bona ol en iu ajn preĝejo.
+kiam ŝi, nur kvinjara, kantis ĝin dum la kristnaska festo en la popola domo kaj tute sorĉis kvin cent homojn, ĝis ĉiuj komencis kanti kune kun ŝi? Tio estis kristnaskofesto pli bona ol en iu ajn preĝejo.
 
 —Mi memoras, li diris. Larmoj brilis en liaj okuloj, kaj li
 
@@ -4085,9 +3281,7 @@ prenis la manon de la edzino.
 
 —Tiam estis tiel, ŝi daŭrigis. La pli multaj estis kiel ni. Sed nun, nun la pli multaj estas defendemaj kaj bonaj patriotoj.
 
-Se ili tiel evoluos, ili post nemultaj jaroj predikos militarismon en la nomo de la laboristaro … Kaj ni aliaj, jam malpli multaj, sidas kiel izoluloj kun dika tavolo de cindro super la ardo, kaj la ardo ne sufiĉas por varmigi eĉ nian propran animon. Vi pravas, amiko, false kaj malbone ni vivis kaj vivas, ni — tio estas la proletaro en ĉiuj landoj Malbone ni uzis la evangelion de niaj apostoloj, kaj por la nuna generacio nia iama sim-
-
-bolo, Danko* kun sia flamanta koro, estas nur ridinda fabe-
+Se ili tiel evoluos, ili post nemultaj jaroj predikos militarismon en la nomo de la laboristaro … Kaj ni aliaj, jam malpli multaj, sidas kiel izoluloj kun dika tavolo de cindro super la ardo, kaj la ardo ne sufiĉas por varmigi eĉ nian propran animon. Vi pravas, amiko, false kaj malbone ni vivis kaj vivas, ni — tio estas la proletaro en ĉiuj landoj Malbone ni uzis la evangelion de niaj apostoloj, kaj por la nuna generacio nia iama simbolo, Danko* kun sia flamanta koro, estas nur ridinda fabe-
 
 lo.
 
@@ -4103,32 +3297,18 @@ malsupren ili sidis kaptitaj de emocio, ankoraŭ kun mano en
 
 mano.
 
-Sed jen ili revenis el sia propra pensomondo, kaj la rigar-
-
-doj de ambaŭ restis fiksitaj al Alda kaj Johano, kiuj sidis an-taŭ ili preskaŭ same kiel ili mem. La patro rigardis ilin inten-se, la muskoloj en lia vizaĝo komencis moviĝi, kaj li aspektis
+Sed jen ili revenis el sia propra pensomondo, kaj la rigardoj de ambaŭ restis fiksitaj al Alda kaj Johano, kiuj sidis an-taŭ ili preskaŭ same kiel ili mem. La patro rigardis ilin inten-se, la muskoloj en lia vizaĝo komencis moviĝi, kaj li aspektis
 
 * Aludo al novelo de Gorkij.
 
 
-VIVO VOKAS
-
-
-kvazaŭ en ekstazo. Subite li kun grandioza movo etendis si-
-
-ajn brakojn kvazaŭ por aŭ ĉirkaŭbraki Aldan kaj Johanon aŭ
+kvazaŭ en ekstazo. Subite li kun grandioza movo etendis siajn brakojn kvazaŭ por aŭ ĉirkaŭbraki Aldan kaj Johanon aŭ
 
 veki atenton de granda publiko.
 
-—Jen ni! li diris per vibranta voĉo. Ardo sub cindro kaj om-
+—Jen ni! li diris per vibranta voĉo. Ardo sub cindro kaj ombro de mortintaj idealoj! Jen vi! Ekbrilas la unua juna flamo, konturiĝas la freŝe juna bildo de la unuaj idealoj.
 
-bro de mortintaj idealoj! Jen vi! Ekbrilas la unua juna flamo, konturiĝas la freŝe juna bildo de la unuaj idealoj.
-
-—Ho, Dio en la ĉieloj, kvankam mi apenaŭ scias, ĉu mi kre-
-
-das al vi aŭ vin neas, mizera kaj grandioza estas la vivo de la homoj, kiujn vi kreis!
-
-
-VIVO VOKAS
+—Ho, Dio en la ĉieloj, kvankam mi apenaŭ scias, ĉu mi kredas al vi aŭ vin neas, mizera kaj grandioza estas la vivo de la homoj, kiujn vi kreis!
 
 
 VI.
@@ -4159,22 +3339,15 @@ kaj karese frapetis la ŝultron de Ajna. Ajna renkontis ŝian
 
 rigardon kaj eksentis, ke la patrino komprenas ŝian sekreton.
 
-—Nu ja, nu ja, ripetis la patrino kun nova kapklino, babi-
+—Nu ja, nu ja, ripetis la patrino kun nova kapklino, babilu kun Johano! Dume mi faros tason da kafo por ni.
 
-lu kun Johano! Dume mi faros tason da kafo por ni.
-
-Johano kaj Ajna iris en la ĉambron. Ajna sidigis sin en so-
-
-fangulon. Johano restis staranta apud la tablo, silenta, kvazaŭ en atendo.
+Johano kaj Ajna iris en la ĉambron. Ajna sidigis sin en sofangulon. Johano restis staranta apud la tablo, silenta, kvazaŭ en atendo.
 
 —Venu sidi tie ĉi!
 
 —Mi atendis vin jam en antaŭaj vesperoj, diris Johano,
 
 preninte lokon apud ŝi.
-
-
-VIVO VOKAS
 
 
 —Mi volis iri, sed samtempe mi sentis, ke mi ne povus
@@ -4230,18 +3403,13 @@ povas ankaŭ silenti kune, kiel multfoje en la rondo.
 —Vi nenion rakontis al Alda? diris Ajna duon demande.
 
 
-VIVO VOKAS
-
-
 —Via travivaĵo apartenas sole al vi. Kiel mi rajtus donaci
 
 ĝin al alia?
 
 —Ni ofte diris, ke inter ni sekretoj ne ekzistas.
 
-—Sekreto estas kaŝindaĵo, sekreto signifas, ke oni hipokri-
-
-tas. Hipokritaĵo estas koto, kiun mi ne volas tuŝi. Sed se homo estas sincera, mi devas respekti lian travivaĵon same kiel lin mem.
+—Sekreto estas kaŝindaĵo, sekreto signifas, ke oni hipokritas. Hipokritaĵo estas koto, kiun mi ne volas tuŝi. Sed se homo estas sincera, mi devas respekti lian travivaĵon same kiel lin mem.
 
 —En nia rondo ni tiel plene estis amikoj, ke nenio restis
 
@@ -4282,12 +3450,7 @@ li certe desegnus vin.
 ŝatus vidi, ĉu li povus tion desegni.
 
 
-VIVO VOKAS
-
-
-Jen patrino malfermis la pordon kaj anoncis, ke venis kna-
-
-bo, kiu volas paroli kun Johano. Tiu knabo estis Gustavo.
+Jen patrino malfermis la pordon kaj anoncis, ke venis knabo, kiu volas paroli kun Johano. Tiu knabo estis Gustavo.
 
 Johano kun manpremo bonvenigis lin kaj poste konatigis
 
@@ -4295,9 +3458,7 @@ Ajnan kaj lin unu al la alia.
 
 —A ha, diris Gustavo, kaj lia ĝeno antaŭ ŝi malaperis, vi
 
-estas tiu, kiu ne povis partopreni la ekskurson. Viaj kamara-
-
-doj menciis pri vi, kiam ili estis ĉe ni.
+estas tiu, kiu ne povis partopreni la ekskurson. Viaj kamaradoj menciis pri vi, kiam ili estis ĉe ni.
 
 Sed Ajna ĝis nun nenion aŭdis pri Gustavo, kaj Johano
 
@@ -4305,9 +3466,7 @@ devis rakonti iom pli pri ilia interkonatiĝo.
 
 —Mi deziris viziti vin pli frue, diris Gustavo, sed mi devis
 
-unue iom prepari min. Krome somero kaj aŭtuno donas mul-
-
-te da laboro.
+unue iom prepari min. Krome somero kaj aŭtuno donas multe da laboro.
 
 —ĉu nun vi estas libera por la vintro? demandis Johano.
 
@@ -4330,9 +3489,6 @@ tablo ŝi okupis Gustavon tute por si. ŝi eksciis, ke li estas kampara knabo. K
 komencis demandi pri lia hejmo: pri bovinoj kaj bovidoj, pri
 
 porkoj kaj kokinoj, pri areo de la kampoj kaj pri terlaboro.
-
-
-VIVO VOKAS
 
 
 Post torento da demandoj kaj rimarkigoj ŝi momente haltis,
@@ -4375,22 +3531,16 @@ pri tero kaj bestoj ol pri aliaj aferoj, oni imagas multajn belajn sed stultajn 
 
 kun Johano.
 
-Gustavo sidis sur sia seĝo kvazaŭ ĝuante ripozon. La kor-
+Gustavo sidis sur sia seĝo kvazaŭ ĝuante ripozon. La korpo aspektis iom laca, peza pro kampa laboro. Lia vizaĝo ne
 
-po aspektis iom laca, peza pro kampa laboro. Lia vizaĝo ne
-
-estis bela sed agrabla, kaj la kranio estis masiva. En la unua 113
-
-VIVO VOKAS
+estis bela sed agrabla, kaj la kranio estis masiva. En la unua
 
 
 momento oni povis kredi lin stulta, sed ju pli oni rigardis lin, des pli oni komprenis, ke estas tute kontraŭe. Unue oni kredis lin hezita kaj timema, sed baldaŭ oni komprenis, ke lia
 
 malrapideco signifas nur trankvilan konsideron.
 
-Tamen nek Johano nek Ajna ĝojis pro lia vizito. En ili tro-
-
-viĝis ankoraŭ tiuj sentoj, kiuj regis ilin antaŭ la alveno de Gustavo. Ili preferus paroli inter si aŭ solaj kune silenti. Gustavo nenion sciis pri iliaj sentoj. Li rigardis ilin kun infana atendo en siaj helbluaj okuloj, kiuj similis al tiuj de la patro, kun lumbrilo de vastaj kaj trankvilaj kampoj. Kaj li veturis dekkvin kilometrojn por babili kun Johano. Estis malfacile klari-
+Tamen nek Johano nek Ajna ĝojis pro lia vizito. En ili troviĝis ankoraŭ tiuj sentoj, kiuj regis ilin antaŭ la alveno de Gustavo. Ili preferus paroli inter si aŭ solaj kune silenti. Gustavo nenion sciis pri iliaj sentoj. Li rigardis ilin kun infana atendo en siaj helbluaj okuloj, kiuj similis al tiuj de la patro, kun lumbrilo de vastaj kaj trankvilaj kampoj. Kaj li veturis dekkvin kilometrojn por babili kun Johano. Estis malfacile klari-
 
 gi al li, ke li venis en nekonvena momento
 
@@ -4400,22 +3550,15 @@ laboro, pri la brasiko kaj la porko kaj aliaj aferoj el lia ĉiutaga vivo. La vi
 
 Gustavo malrapide sed bone kaj sen hezito kunmetis la
 
-respondojn, kaj malmulte da eraroj li faris. Post kelkaj repli-koj li komencis mem fari frazojn flanke de la mallongaj res-
-
-pondoj, kiujn postulis la demandoj de Johano.
+respondojn, kaj malmulte da eraroj li faris. Post kelkaj repli-koj li komencis mem fari frazojn flanke de la mallongaj respondoj, kiujn postulis la demandoj de Johano.
 
 Tio vekis la instruistajn instinktojn de Ajna. ŝi komencis
 
 interŝovi demandojn inter tiujn de Johano. Baldaŭ ŝi sola gvidis la konversacion. Lerte ŝi tuŝis kelkajn temojn kaj eksciis jen tion jen tion pri la nova konato kaj same li pri ŝi.
 
-Iom post iom la demandoj kaj respondoj perdis la karakte-
-
-ron de leciono, kaj Johano kaj Ajna trovis sin intime babilantaj kun Gustavo. Ili devis paroli malrapide, sed Gustavo havis solidan scion kaj rapide kutimiĝis al aŭskultado kaj parolado.
+Iom post iom la demandoj kaj respondoj perdis la karakteron de leciono, kaj Johano kaj Ajna trovis sin intime babilantaj kun Gustavo. Ili devis paroli malrapide, sed Gustavo havis solidan scion kaj rapide kutimiĝis al aŭskultado kaj parolado.
 
 Li brilis de fervoro kaj ĝojo pro sia sukceso, kaj Ajna kaj
-
-
-VIVO VOKAS
 
 
 Johano parte forgesis siajn proprajn sentojn pro la influo de la liaj.
@@ -4428,9 +3571,7 @@ Kaj jen ili denove restis duope, en silento sub la steloj. Iliaj pensoj iris al 
 
 —Vane mi provis tion eltrovi, murmuris Johano. Laŭ sia
 
-konv li agis prave. Tion mi komprenas, sed tion kom-
-
-prenas ankaŭ vi.
+konv li agis prave. Tion mi komprenas, sed tion komprenas ankaŭ vi.
 
 —Jes. Sed ĉu li prave agis ankaŭ el ĝenerala vidpunkto,
 
@@ -4446,9 +3587,7 @@ la saman rajton al ĉiu alia. Mi ne volas iri en militon. ŝajnas al mi freneze 
 
 sinjoroj venus tien ĉi kaj volus malpermesi al ni nian propran ordon kaj niajn pensojn, volus devigi nin aliĝi al iliaj organizoj, devigi nin labori aŭ eĉ militi por iliaj celoj — jes, kion mi farus?
 
-—uste tia estas ja la afero en Hispanujo! Kontraŭ tiaj sin-
-
-joroj ili batalas, kaj ili batalas ankaŭ por ni, ĉar tiaj sinjoroj volas regi la tutan mondon.
+—uste tia estas ja la afero en Hispanujo! Kontraŭ tiaj sinjoroj ili batalas, kaj ili batalas ankaŭ por ni, ĉar tiaj sinjoroj volas regi la tutan mondon.
 
 —Kredeble.
 
@@ -4456,20 +3595,12 @@ joroj ili batalas, kaj ili batalas ankaŭ por ni, ĉar tiaj sinjoroj volas regi 
 
 prave agis. Se li restos en la hispana tero …
 
-—La saman timon certe havas centmiloj da patrinoj, pa-
-
-troj, fratinoj, fianĉinoj.
-
-
-VIVO VOKAS
+—La saman timon certe havas centmiloj da patrinoj, patroj, fratinoj, fianĉinoj.
 
 
 ŝi premis sin al li kaj kaptis lian brakon kvazaŭ serĉante
 
 apogon, kaj ŝi estis skuata de retenita ploro.
-
-
-VIVO VOKAS
 
 
 En sia taga laboro Johano ofte revis pri trankvila vespero
@@ -4505,9 +3636,6 @@ posttagmezon. Tiam li anoncis al la patrino, ke li iros al Rudo por vidi, ĉu li
 Johano ne rakontis, kion li intencas fari, sed diris, ke li nur deziras iom ekzerci la manojn.
 
 
-VIVO VOKAS
-
-
 Kiam li venis al la hejmo de Rudo, Elsa staris ĉe la barilpor-do kaj elprenis karton el la poŝtkesto. ŝi svingis ĝin antaŭ
 
 Johano kaj kriis triumfe:
@@ -4528,9 +3656,7 @@ Rudo devis plenumi ŝian deziron. La sekvantan tagon li
 
 alportis keston, sur kiun li bezonis nur pentri numeron. Sed
 
-ĝia koloro ne plaĉis al Elsa, ĉar ĝi estis malhelgriza kiel milit-
-
-ŝipo.
+ĝia koloro ne plaĉis al Elsa, ĉar ĝi estis malhelgriza kiel militŝipo.
 
 —Uf! kriis Elsa. Tian koloron mi ne toleras. Gajan, agrablan
 
@@ -4544,25 +3670,15 @@ karton. Mi montros ĝin al vi. Poŝtisto ĝuste metas en la ruĝan keston letero
 
 devas esti nia kesto.
 
-Elsa ne cedis, kaj la kesto ricevis la koloron de ruĝa sigel-
+Elsa ne cedis, kaj la kesto ricevis la koloron de ruĝa sigelvakso.
 
-vakso.
-
-—i estas bela inter la verdaj betuloj, ĉu tion mi ne antaŭ-
-
-diris? konstatis Elsa. Venontsomere ni havos ankaŭ propran
+—i estas bela inter la verdaj betuloj, ĉu tion mi ne antaŭdiris? konstatis Elsa. Venontsomere ni havos ankaŭ propran
 
 flagon. Imagu! Ruĝa leterkesto, verdaj betuloj kaj super ĉio la bluflava flago!
 
 Johano iam petole demandis ŝin pri la celo de la kesto, sed
 
-ŝi bonhumore kaj kontente asertis, ke domo devas havi leter-
-
-
-VIVO VOKAS
-
-
-keston, kaj ke la portisto iam metos en ĝin La Plej Altan Gajnon.
+ŝi bonhumore kaj kontente asertis, ke domo devas havi leterkeston, kaj ke la portisto iam metos en ĝin La Plej Altan Gajnon.
 
 Nun Elsa triumfis super Johano, sed nur por momento.
 
@@ -4576,15 +3692,11 @@ sed …
 
 hieraŭ diris ion pri via naskiĝotago, sed tio preterpasis miajn orelojn. Sed patrino venos tien ĉi post du horoj, ŝi diris. Certe ŝi gratulos por ni ambaŭ.
 
-—Estas nur ordinara poŝtkarto, kaj ĝi estas de nia malfeli-
-
-ĉulo, diris Elsa kun suspiro.
+—Estas nur ordinara poŝtkarto, kaj ĝi estas de nia malfeliĉulo, diris Elsa kun suspiro.
 
 Johano rigardis la karton. i estis el Hispanujo, kaj la tuta karto estis plenskribita, kvankam per sufiĉe grandaj literoj.
 
-”Fratino! Jam post kelkaj tagoj mi troviĝas en mia destin-
-
-loko. Mi ricevis novajn vestojn kaj ceteran ekipon por tiu
+”Fratino! Jam post kelkaj tagoj mi troviĝas en mia destinloko. Mi ricevis novajn vestojn kaj ceteran ekipon por tiu
 
 laboro, kiu atendas min. Kiam ni hodiaŭ faris ekzercojn, mi
 
@@ -4604,12 +3716,7 @@ al Rudo kaj ĉiuj ceteraj! Eriko.”
 
 ŝi legis, kaj leginte ŝi ploretis.
 
-—Ho, tiu kompatinda stultulo! ŝi diris. Li diras, ke ni vivas tiel feliĉe. Jes, kiu neas tion. Sed li ja povus vivi same feliĉe, trovi knabinon, konstrui domon. Kial li stulte forkuras rekte en morton? Tamen estas kortuŝe, ke li tiel malproksime me-119
-
-VIVO VOKAS
-
-
-moras mian naskiĝotagon, li, kiu neniam antaŭe gratulis min
+—Ho, tiu kompatinda stultulo! ŝi diris. Li diras, ke ni vivas tiel feliĉe. Jes, kiu neas tion. Sed li ja povus vivi same feliĉe, trovi knabinon, konstrui domon. Kial li stulte forkuras rekte en morton? Tamen estas kortuŝe, ke li tiel malproksime memoras mian naskiĝotagon, li, kiu neniam antaŭe gratulis min
 
 eĉ per du vortoj. Vere mi devas skribi kelkajn liniojn al li.
 
@@ -4617,13 +3724,9 @@ Ili eniris. La tablo estis preta por kafotrinkado, kun bela
 
 torto, kaj apud la tablo sidis Rudo atendante Elsan. ŝi metis tason ankaŭ por Johano.
 
-—Kvankam vi ne venis por gratuli, vi tamen havu la rega-
+—Kvankam vi ne venis por gratuli, vi tamen havu la regalon, ŝi diris. Frufrue en la mateno Rudo ellitiĝis, faris kafon kaj donis al mi en la lito. ĉu mi ne elektis bonan edzon? Sed nun mi regalas lin. ĉu la torto ne estas bela, Johano? Rudo
 
-lon, ŝi diris. Frufrue en la mateno Rudo ellitiĝis, faris kafon kaj donis al mi en la lito. ĉu mi ne elektis bonan edzon? Sed nun mi regalas lin. ĉu la torto ne estas bela, Johano? Rudo
-
-asertas, ke ĝi estas ankaŭ bona. Ankaŭ la panon mi faris spe-
-
-ciale.
+asertas, ke ĝi estas ankaŭ bona. Ankaŭ la panon mi faris speciale.
 
 Johano laŭdis ŝin kaj per manĝado kaj per vortoj, kaj tio
 
@@ -4631,15 +3734,11 @@ Johano laŭdis ŝin kaj per manĝado kaj per vortoj, kaj tio
 
 —Jen kiel feliĉe oni povas vivi, Elsa diris, kaj tamen tiu
 
-kompatindulo forkuras el la lando kaj marŝas rekte, Dio mal-
-
-permesu, rekte en la morton, mi preskaŭ diris.
+kompatindulo forkuras el la lando kaj marŝas rekte, Dio malpermesu, rekte en la morton, mi preskaŭ diris.
 
 Johano nun turnis sin al Rudo kaj per malmultaj vortoj
 
-klarigis la celon de sia vizito. Rudo asertis, ke la slojdejo en la kelo estos plene al la dispono de Johano, kaj daŭrigis la man-
-
-ĝadon de sia tortopeco, kiu ŝajne pli interesis lin ol la intencoj de Johano.
+klarigis la celon de sia vizito. Rudo asertis, ke la slojdejo en la kelo estos plene al la dispono de Johano, kaj daŭrigis la manĝadon de sia tortopeco, kiu ŝajne pli interesis lin ol la intencoj de Johano.
 
 —Jen kiel prudenta vi fariĝis! diris Elsa. Kion vi volas fari?
 
@@ -4652,9 +3751,6 @@ sugestis, kion li provos fari.
 ridante. Sed post momento ŝia vizaĝo ricevis patrinecan esprimon kaj ŝi aldonis:
 
 —Sed tre prudenta vi estas. Vi komencas fariĝi viro. Post
-
-
-VIVO VOKAS
 
 
 malmultaj jaretoj vi estos preta por propra hejmo. Rapide
@@ -4683,9 +3779,7 @@ almenaŭ en bona stato. Restas sufiĉe multe da ligno post la
 
 konstruado, kaj vi trovos taŭgajn pecojn por via laboro.
 
-Kaj Johano komencis. En kelĉambro Rudo havis sian ligna-
-
-ĵejon, kiu estis tre bona, sed ankoraŭ ne en plena ordo. Joha-no elektis lignon, mezuris, segis kaj hakis, kaj baldaŭ la rabo-taĵo fluis kiel belaj, flavaj bukloj el la rabotilo, dum la ligna odoro agrable tiklis lian nazon.
+Kaj Johano komencis. En kelĉambro Rudo havis sian lignaĵejon, kiu estis tre bona, sed ankoraŭ ne en plena ordo. Joha-no elektis lignon, mezuris, segis kaj hakis, kaj baldaŭ la rabo-taĵo fluis kiel belaj, flavaj bukloj el la rabotilo, dum la ligna odoro agrable tiklis lian nazon.
 
 Dum kelkminuta vizito Rudo komplimentis lin pro bona
 
@@ -4693,9 +3787,7 @@ laboro.
 
 —Mi ja lernis en la lernejo, diris Johano. Sed nenio en la
 
-lernejo estis agrabla por mi, ankaŭ manlaboro ne estis. Ta-
-
-men mi lernis uzi la diversajn ilojn kaj ankaŭ faris kelkajn
+lernejo estis agrabla por mi, ankaŭ manlaboro ne estis. Tamen mi lernis uzi la diversajn ilojn kaj ankaŭ faris kelkajn
 
 objektojn. Sed ofte mi pensis, ke estas stulte tiel pasigi la tempon. Nun mi tamen ĝojas, ke mi tion lernis.
 
@@ -4704,14 +3796,9 @@ Rudo kapklinis kaj ridetis.
 —Kiam patro devigis mmenci en lia metio, mi tre
 
 
-VIVO VOKAS
-
-
 malŝatis la laboron kaj revis pri aliaj aferoj. Nun mi ĝojas, ke li tiel agis.
 
-—Sed el la lernantoj eble nur du aŭ tri el cent poste utili-
-
-gas sian kapablon en ligna laboro.
+—Sed el la lernantoj eble nur du aŭ tri el cent poste utiligas sian kapablon en ligna laboro.
 
 —Certe la kapablo de la manoj estas utila ankaŭ por aliaj
 
@@ -4723,9 +3810,7 @@ rimarkis tian efikon. Ekzerco malmulte helpas, se mankas
 
 emo kaj intereso.
 
-Johano daŭrigis. Tri horojn li laboris la unuan tagon. Pos-
-
-te li revenis preskaŭ ĉiuvespere. Aldan li ne vizitis plu. Ajna ne revenis post sia unua vizito, kaj li ankaŭ ne renkontis ŝin.
+Johano daŭrigis. Tri horojn li laboris la unuan tagon. Poste li revenis preskaŭ ĉiuvespere. Aldan li ne vizitis plu. Ajna ne revenis post sia unua vizito, kaj li ankaŭ ne renkontis ŝin.
 
 Li restis sola kaj estis plene kontenta pri tio.
 
@@ -4749,9 +3834,7 @@ Kiam li rimarkis, ke ĝi estas tute firma sidloko, li kontente ekzamenis ĝin pe
 
 Post tiu provspecimeno li faris ankoraŭ du. Kiam ĉiuj tri
 
-estis pretaj por porti hejmen, Elsa ekzamenis ilin, antaŭ ol li 122
-
-VIVO VOKAS
+estis pretaj por porti hejmen, Elsa ekzamenis ilin, antaŭ ol li
 
 
 forveturis kun ili sur la biciklo. Kaj ŝi rigardis Johanon afable, preskaŭ dorlote.
@@ -4776,20 +3859,13 @@ sperto ili ne estis tro malfacilaj, ĉar li faris ilin en simpla maniero kaj el 
 
 Post la manĝo en la vesperoj li tuj prenas la biciklon kaj
 
-rapidas al la hejmo de Rudo. Tie li fidele restas en la kelĉambro kiel mezepoka alkemia sorĉanto en sia laboratorio. Me-
-
-tode kaj zorge li laboras, sed tamen preskaŭ ekstaze. Li for-
+rapidas al la hejmo de Rudo. Tie li fidele restas en la kelĉambro kiel mezepoka alkemia sorĉanto en sia laboratorio. Metode kaj zorge li laboras, sed tamen preskaŭ ekstaze. Li for-
 
 gesas la tagan laboron, la hejmon kaj ĉion, kio ordinare ligas liajn pensojn, eĉ la amikojn li forgesas. Dum tuta monato li
 
-nur unu fojon renkontas Aldan, kaj Ajna kaj ŝia ĉagreno for-
-
-glitas el lia konscio. Plenigas lin forta ĝojo de ludo kaj kreado kaj iu animvibriga sento de granda atendo, kvazaŭ li estus kreanta sian propran estonton.
+nur unu fojon renkontas Aldan, kaj Ajna kaj ŝia ĉagreno forglitas el lia konscio. Plenigas lin forta ĝojo de ludo kaj kreado kaj iu animvibriga sento de granda atendo, kvazaŭ li estus kreanta sian propran estonton.
 
 Li finis la brakseĝojn, ricevis novan laŭdparolon de Elsa kaj koran akcepton de la patrino. En tiu vespero, kiam li portis
-
-
-VIVO VOKAS
 
 
 ilin hejmen, patrino kaj li provsidis en ili kaj trinkis malfru-an tason da kafo apud la fajro en la kahela forno.
@@ -4808,9 +3884,7 @@ sentoj.
 
 kune kun vi dum ankoraŭ multaj jaroj.
 
-Nun venis la vico de la skribtablo. Johano deziris nek kon-
-
-toran nek alian skribistan meblon, nur ordinaran, sufiĉe grandan tablon kun du kestoj. Tio tute sufiĉos por ĉiam por liaj
+Nun venis la vico de la skribtablo. Johano deziris nek kontoran nek alian skribistan meblon, nur ordinaran, sufiĉe grandan tablon kun du kestoj. Tio tute sufiĉos por ĉiam por liaj
 
 skribaj bezonoj. Eriko eble bezonus pli multkestan objekton,
 
@@ -4826,9 +3900,7 @@ kontraŭ kutimo tuŝis tiun temon. Estas sensence spekuli pri
 
 tio.
 
-Kiel sentas Ajna, li povas nur imagi. Nur unu fojon li ren-
-
-kontis ŝin post ŝia vizito, en klubkunveno. Ili interkomprene rigardis unu la alian, kaj li vidis, ke ŝi suferas, sed ili inter-
+Kiel sentas Ajna, li povas nur imagi. Nur unu fojon li renkontis ŝin post ŝia vizito, en klubkunveno. Ili interkomprene rigardis unu la alian, kaj li vidis, ke ŝi suferas, sed ili inter-
 
 ŝanĝis nur kelkajn sensignifajn vortojn. Eble ŝi volas esti sola en sia doloro, pensis Johano.
 
@@ -4839,18 +3911,13 @@ pro tio la laboro ne plu ŝajnas same interesa kiel antaŭe, li pensas. Lia anta
 La tablo tamen havas tiom da apartaj konstrudetaloj, kiujn
 
 
-VIVO VOKAS
-
-
 li antaŭe ne faris, ke li ne tute perdas la intereson. Sed la ardo de la unua kreado ne varmigas lin plu. Lia konscio kvazaŭ
 
 dividas sin en du partojn. Unu el ili gvidas kaj kontrolas la laboron, la alia rigardas lian rilaton al tiu laboro kaj taksas
 
 ĝian valoron.
 
-Kaj venas vespero, kiam li haltas kaj dum kelka tempo res-
-
-tas en medito. Li daŭrigas sed malrapide kaj kun la vizaĝo
+Kaj venas vespero, kiam li haltas kaj dum kelka tempo restas en medito. Li daŭrigas sed malrapide kaj kun la vizaĝo
 
 markita de cerbumado Kaj antaŭ la finpretigo de la tablo li
 
@@ -4864,9 +3931,7 @@ Restas tamen la bona ekzerco, li pensas. Verdire restas
 
 ankaŭ la mebloj, uzeblaj kaj utilaj. Tamen lia ĝojo estas rom-pita. Kial li tiel ĝojis antaŭe sed ne nun? ĉu lia deziro estis nura infana kaprico? Li sentas, kvazaŭ li finfine laboris nek por mebloj nek por ekzerco, sed por trovi en tiu laboro iun
 
-kontentigan kaj vivogravan. Dum la pasintaj agrablaj vesper-
-
-horoj li havis tiun feliĉon, sed nun ĝi jam estas for.
+kontentigan kaj vivogravan. Dum la pasintaj agrablaj vesperhoroj li havis tiun feliĉon, sed nun ĝi jam estas for.
 
 Kiam la tablo fine troviĝis hejme, la patrino volis festi ankaŭ ĝian alvenon. Tion ŝi faris ne per skribado, sed en sia kutima maniero kaj invitis Johanon al la inaŭguro.
 
@@ -4875,9 +3940,6 @@ Kiam la tablo fine troviĝis hejme, la patrino volis festi ankaŭ ĝian alvenon.
 li ne plu imagas ion farindan, sed se ŝi ion deziras, li volonte faros. Sed ankaŭ ŝi ne bezonis ion.
 
 —La lignaĵado jam tedas vin? ŝi diris vidante lian mienon.
-
-
-VIVO VOKAS
 
 
 Ne malĝoju pro tio. Kiam venos bezono, tiam venos ankaŭ
@@ -4889,12 +3951,7 @@ Post la kafo Johano faris longan promenon. Tute sola li iris
 la samajn vojojn, kiujn li antaŭe iris kune kun Alda, tute sola en mallumo kaj nebula pluveto.
 
 
-VIVO VOKAS
-
-
-Sed post du tagoj li trovis sur iu tabulo maŝinskribitan afi-
-
-ŝeton, kiu forviŝis la sentojn, kiujn postlasis la tro fervo-
+Sed post du tagoj li trovis sur iu tabulo maŝinskribitan afiŝeton, kiu forviŝis la sentojn, kiujn postlasis la tro fervo-
 
 ra lignaĵado. En la vespero li iris al Alda.
 
@@ -4929,24 +3986,15 @@ Duono el ili estis viroj kaj virinoj tridek- ĝis kvindekjaraj. Estis malnovaj a
 Ili konis ĉiujn laŭ aspekto, sed ne pli. Sola escepto estis la edzino de Alekso, kiu estis la unua, kiu salutis kaj bonvenigis ilin je ilia alveno.
 
 
-VIVO VOKAS
-
-
 —Estas kurioze renkonti vin tie ĉi, diris Alda. Mi pensis, ke vi ĉiam restas hejme kaj neniam renkontas homojn.
 
-—Ni apartenas al la societo de dudek jaroj, diris la sinjori-
-
-no kaj ridetis. Kaj mi estas membro de la gildo de ĝia fondiĝo, tio estas dum dek kvin jaroj, kaj mi estis eĉ sufiĉe aktiva
+—Ni apartenas al la societo de dudek jaroj, diris la sinjorino kaj ridetis. Kaj mi estas membro de la gildo de ĝia fondiĝo, tio estas dum dek kvin jaroj, kaj mi estis eĉ sufiĉe aktiva
 
 membro.
 
-Ajna kaj Johano aspektis, kvazaŭ tio estus por ili nekre-
+Ajna kaj Johano aspektis, kvazaŭ tio estus por ili nekredebla.
 
-debla.
-
-—Vi kredis, ke mi estas onklino, kiu nur staras apud la for-
-
-no aŭ sidas en la teksostablo? Estas agrable, ke ni nun ren-
+—Vi kredis, ke mi estas onklino, kiu nur staras apud la forno aŭ sidas en la teksostablo? Estas agrable, ke ni nun ren-
 
 kontiĝas en komuna intereso. Cetere mi ne vidis vin dum
 
@@ -4978,18 +4026,12 @@ antaŭ du jaroj. —
 
 Tio okazis antaŭ la komenco de la unua kunveno. Baldaŭ
 
-la dekkvin sidis ĉirkaŭ kelkaj kunmetitaj tabloj. La gvidanto 128
-
-VIVO VOKAS
+la dekkvin sidis ĉirkaŭ kelkaj kunmetitaj tabloj. La gvidanto
 
 
-disdonis studleterojn kaj alian studmaterialon de la koopera-
+disdonis studleterojn kaj alian studmaterialon de la kooperativa korespondinstituto, kaj la laboro komenciĝis.
 
-tiva korespondinstituto, kaj la laboro komenciĝis.
-
-La temo de la kurso estis ampleksa kaj ne facila: la ekono-
-
-mio de kooperativaj societoj. Por Johano kaj Alda tiuj aferoj estis novaj. Sed la gvidanto estis bona, kaj la studkajeroj estis bonaj, kaj la sekvantan fojon iliaj skribitaj respondoj kaj partopreno en la diskutado trovis aprobon ĉe la maljunaj.
+La temo de la kurso estis ampleksa kaj ne facila: la ekonomio de kooperativaj societoj. Por Johano kaj Alda tiuj aferoj estis novaj. Sed la gvidanto estis bona, kaj la studkajeroj estis bonaj, kaj la sekvantan fojon iliaj skribitaj respondoj kaj partopreno en la diskutado trovis aprobon ĉe la maljunaj.
 
 Tiam ĉeestis ankaŭ Alekso. Kaj liaj skribitaj respondoj estis en same bona ordo kiel ĉe iu ajn alia.
 
@@ -5001,9 +4043,7 @@ Momente ili sentis sin fremdiĝintaj antaŭ li, sed baldaŭ tiu
 
 sento malaperis.
 
-—Neniam vi diris, ke vi havas tiom da intereso por la ko-
-
-operativa movado, admonis Alda.
+—Neniam vi diris, ke vi havas tiom da intereso por la kooperativa movado, admonis Alda.
 
 —Eble ne. Kaj certe vi havis pli da intereso por ekskursoj
 
@@ -5025,12 +4065,7 @@ kvankam ili estis lastaj.
 
 Dum la diskutoj la maljunaj por okaza komparo foje donis
 
-memorojn el la unua tempo de la societo, kiam oni komen-
-
-cis per preskaŭ nenio, kiam oni devis multe oferi kaj venki
-
-
-VIVO VOKAS
+memorojn el la unua tempo de la societo, kiam oni komencis per preskaŭ nenio, kiam oni devis multe oferi kaj venki
 
 
 grandajn malfacilaĵojn. Nuanco de melankolio tiam vibris en
@@ -5053,9 +4088,7 @@ la estonto. Ni ĉiam pensis, ke junaj generacioj iros kun ni kaj daŭrigos nian 
 
 bonaj aferoj en la mondo. Sed kie estas la junaj? En ĉiuj niaj studgrupoj vi du estas la solaj sub dudek. Ankaŭ tiuj inter
 
-dudek kaj tridek estas ege malgranda parto de nia membra-
-
-ro. Kaj ni ĉiuj kune estas preskaŭ sensignifa parto de la loĝantaro en nia distrikto. Nia movado havas brilan staton ekono-
+dudek kaj tridek estas ege malgranda parto de nia membraro. Kaj ni ĉiuj kune estas preskaŭ sensignifa parto de la loĝantaro en nia distrikto. Nia movado havas brilan staton ekono-
 
 mie kaj laŭ amplekso. Sed kio okazos, se venos tempo, kiam
 
@@ -5069,14 +4102,9 @@ Johano.
 
 Li rigardis Johanon penetre, kaj en lia rigardo estis doloro.
 
-—Malmulte da konsolo por ni. Ni havis la ideon, ke ni pli-
-
-bonigu la varperadon, kaj en tio ni grandparte sukcesis, ne
+—Malmulte da konsolo por ni. Ni havis la ideon, ke ni plibonigu la varperadon, kaj en tio ni grandparte sukcesis, ne
 
 atendite rapide. Sed kune kun tio ni havis ankaŭ la ideon, kaj tio estis la ĉefa afero, ke la homoj transformiĝu sampaŝe kun la ekstera evoluo, el membroj-aĉetantoj fariĝu kooperativa-noj en vero kaj spirito, kunlaborantoj por la komuna bono kaj pliperfektiĝo de la tuta homaro.
-
-
-VIVO VOKAS
 
 
 Iu el la junaj pretendis, ke la junularo de la nova tempo
@@ -5101,9 +4129,7 @@ La maljunulo denove skuis la kapon.
 
 akvon kaj liberan moviĝon kaj ili estas junaj kaj sanaj, faras bonan impreson. Sed rilate al kompreno por la ideoj la pro-cento ne estas pli granda inter ili ol ĉe ni.
 
-La gvidanto delikate reŝovis la parolanton al la gusta kam-
-
-po:
+La gvidanto delikate reŝovis la parolanton al la gusta kampo:
 
 —Estas tre bele, kiam vi maljunaj kune kun la materia stato
 
@@ -5111,20 +4137,13 @@ volas plibonigi ankaŭ la spiritan — kaj tion ja ankaŭ ni faras, ĉu nia kurs
 
 komenco en Rochdale ĝis la nuna tutmonda movado, estas
 
-havigi al la homoj kiel eble plej bonajn varojn por kiel eble plej malalta prezo, kaj, ni povas nuntempe aldoni, en manie-131
-
-VIVO VOKAS
-
-
-ro, kiu kiel eble plej bone kontentigas la aĉetantojn. ĉu ne
+havigi al la homoj kiel eble plej bonajn varojn por kiel eble plej malalta prezo, kaj, ni povas nuntempe aldoni, en maniero, kiu kiel eble plej bone kontentigas la aĉetantojn. ĉu ne
 
 estas tiel?
 
 La maljunulo ridetis.
 
-—Estas ja tiel. Kiam ni estis junaj ni ne ĉiam klare distin-
-
-gis inter realo kaj idealo, sed nuntempe ne estas danĝero por tia intermikso. Vidu, tiaj pensoj estas nur kaŝvizito al la diaj de nia junaĝo. Cetere ni tute interkonsentas kun vi. Se la koro foje ĝemas, tio estas nia privata afero.
+—Estas ja tiel. Kiam ni estis junaj ni ne ĉiam klare distingis inter realo kaj idealo, sed nuntempe ne estas danĝero por tia intermikso. Vidu, tiaj pensoj estas nur kaŝvizito al la diaj de nia junaĝo. Cetere ni tute interkonsentas kun vi. Se la koro foje ĝemas, tio estas nia privata afero.
 
 Sed tiaj flankaj diskutoj ne detruis la bonan agordon en la
 
@@ -5155,12 +4174,7 @@ fartis, kiam ni restis silentaj apud la lago? Ankaŭ tiam ni foje silentis.
 —Apud la lago kaj en la arbaro la vivo estas simpla. Oni
 
 
-VIVO VOKAS
-
-
-silentas aŭ babilas laŭ sia emo, kaj tamen regas la sama har-
-
-monio.
+silentas aŭ babilas laŭ sia emo, kaj tamen regas la sama harmonio.
 
 Alekso demandis pri Ajna. Ili rakontis, ke ili dum monatoj
 
@@ -5169,12 +4183,7 @@ nur malofte kaj okaze vidis ŝin. ŝajne ŝi emas resti sola, kaj ŝi diris, ke 
 Johano kaj Alda pasigis kune la pli multajn el la liberaj vesperoj, jen en esperanta kunveno, jen en la studgrupo, jen iris aŭskulti prelegon, jen sidis hejme kaj aŭskultis radion. Denove ili promenis. Ne malofte ili vizitis Gustavon kaj li ilin. Lia inteligento kaj lia senbrua energio vigligis ilin, kaj lia veno estis kiel freŝa vento el la kampoj, kie tero kaj suno kaj homa laboro dum jarmiloj donis panon al la homoj.
 
 
-VIVO VOKAS
-
-
-En malfruaŭtuna vespero Ejnar revenis de siaj militekzer-
-
-coj. Dum la tuta tempo li vizitis la hejmon nur unu fojon,
+En malfruaŭtuna vespero Ejnar revenis de siaj militekzercoj. Dum la tuta tempo li vizitis la hejmon nur unu fojon,
 
 kaj tio estis jam en la somero. Dum lia foresto Johano kaj la patrino kutimiĝis al sia trankvila duopa vivo. La reveno de
 
@@ -5188,15 +4197,11 @@ grincado. Sed por estonto oni bezonos pli da enspezo por la
 
 hejmo.
 
-Ejnar salutis, formetis valizon, ĉapon kaj surtuton kaj sidi-
-
-gis sin sur sian kutiman lokon sur la sofo, atendante ke la
+Ejnar salutis, formetis valizon, ĉapon kaj surtuton kaj sidigis sin sur sian kutiman lokon sur la sofo, atendante ke la
 
 patrino kiel antaŭe portu al li manĝaĵon kaj kafon.
 
-Sed li ne aspektis tute same kiel antaŭe. En lia korpo res-
-
-tis iom de soldata teniĝo ankaŭ en la civilaj vestoj, kaj li aspektis pli vira kaj matura ol antaŭe. Li estis netuŝita de alkoholo, kaj li ne donis kiel antaŭe impreson de junulaĉo.
+Sed li ne aspektis tute same kiel antaŭe. En lia korpo restis iom de soldata teniĝo ankaŭ en la civilaj vestoj, kaj li aspektis pli vira kaj matura ol antaŭe. Li estis netuŝita de alkoholo, kaj li ne donis kiel antaŭe impreson de junulaĉo.
 
 Preskaŭ en silento li satmanĝis, trinkis kafon kaj poste en
 
@@ -5208,17 +4213,10 @@ videble kontenta stato bruligis cigaredon.
 
 —Kaj volus por nenio retrapasi tiun tempon?
 
-—Tamen, se bezonate. Cetere restas ja por mi du ripetek-
-
-zercoj, kvankam ili ne estas longaj.
+—Tamen, se bezonate. Cetere restas ja por mi du ripetekzercoj, kvankam ili ne estas longaj.
 
 
-VIVO VOKAS
-
-
-Tion li diris kun mieno de modesta sed devokonscia solda-
-
-to, kiu vidas gravan sencon en sia metio. La patrino rigardis lin kun surprizo.
+Tion li diris kun mieno de modesta sed devokonscia soldato, kiu vidas gravan sencon en sia metio. La patrino rigardis lin kun surprizo.
 
 —ĉu ankaŭ vi fariĝis militisto?
 
@@ -5236,13 +4234,9 @@ Ankoraŭ pli surprizita aspektis la patrino.
 
 Ejnar ekridis kaj rigardis ŝin amuzite kaj onklece indulge.
 
-—Vi ne komprenas tion, panjo. Vi ankoraŭ kredas, ke lan-
+—Vi ne komprenas tion, panjo. Vi ankoraŭ kredas, ke landodefendo estas diablaĵo. Sed la mondo ne estas tia, kia deziras ĝin la pacistoj. Venos tago, kiam ni devos defendi nntraŭ judoj kaj kapitalistoj kaj imperiistoj kaj krei liberon por la popolo. Ni junaj komprenas tion. La spirito inter ni ne estas la sama kiel inter la junuloj antaŭ dekkvin jaroj.
 
-dodefendo estas diablaĵo. Sed la mondo ne estas tia, kia deziras ĝin la pacistoj. Venos tago, kiam ni devos defendi nntraŭ judoj kaj kapitalistoj kaj imperiistoj kaj krei liberon por la popolo. Ni junaj komprenas tion. La spirito inter ni ne estas la sama kiel inter la junuloj antaŭ dekkvin jaroj.
-
-—Malmulte lernema vi antaŭe estis, sed nun vi ŝajne tro-
-
-vis temon, kiu vin kaptis!
+—Malmulte lernema vi antaŭe estis, sed nun vi ŝajne trovis temon, kiu vin kaptis!
 
 Li skuis la ŝultrojn kaj ridetis pardone.
 
@@ -5257,9 +4251,6 @@ oni ŝatas, alia, kion oni kiel viro devas. Eble venos tago, kiam
 La patrino rezigne silentis. Ejnar turnis sin al Johano.
 
 
-VIVO VOKAS
-
-
 —Kaj jen vi. Kiel la vivo traktas vin? ĉu vi havas fianĉinon?
 
 Certe tiuj viaj knabinkamaradoj jam komencis elburĝoniĝi?
@@ -5268,9 +4259,7 @@ Johano momente levis la okulojn, rigardis lin indiferente,
 
 nenion diris.
 
-—ĉu ankaŭ tiaj ŝercoj apartenas al la lando defenda spiri-
-
-to? interŝovis sarkasme la patrino.
+—ĉu ankaŭ tiaj ŝercoj apartenas al la lando defenda spirito? interŝovis sarkasme la patrino.
 
 Sed Ejnar ne donis atenton al ŝi.
 
@@ -5280,9 +4269,7 @@ vi estos soldato. Eble tia vivo ne plaĉos al vi, kiu kreskis inter knabinoj. Se
 
 estos por vi nur utila.
 
-Ankaŭ nun Johano ne respondis. La patrino en malpacien-
-
-ca tono tranĉis lian babilon.
+Ankaŭ nun Johano ne respondis. La patrino en malpacienca tono tranĉis lian babilon.
 
 —Finu! Vi jam plene kontentigis nin per via nova spirito.
 
@@ -5315,12 +4302,7 @@ kaj jen denove Johanon.
 —Diable! ĉu tiel kapabla vi fariĝis?
 
 
-VIVO VOKAS
-
-
-Li komencis detale ekzameni unu el la brakseĝoj kaj rigar-
-
-dis eĉ sub la sidtabulon. Poste li sidigis sin tute komforte en la seĝon.
+Li komencis detale ekzameni unu el la brakseĝoj kaj rigardis eĉ sub la sidtabulon. Poste li sidigis sin tute komforte en la seĝon.
 
 —Bonege oni sidas en ĝi! li diris kaj en preskaŭ duonkuŝa
 
@@ -5346,9 +4328,7 @@ fumo li devas spiri kaj dormi dum tuta nokto.
 
 Johano sidigis sin kaj komencis depreni la ŝuojn. Ejnar por
 
-momento metis la gazeton flanken, ĉirkaŭrigardis en la ĉam-
-
-bro kaj diris:
+momento metis la gazeton flanken, ĉirkaŭrigardis en la ĉambro kaj diris:
 
 —Eble ni povus malfermi la fenestron por kelkaj minutoj
 
@@ -5366,23 +4346,14 @@ la fenestron, mi ne malŝatas freŝan aeron. Cetere vi baldaŭ
 
 kutimiĝos al la fumo. Post kelkaj tagoj vi eĉ ne rimarkos ĝin.
 
-Ili enlitiĝis kaj estingis la lumon. Johano ne sentis dorme-
-
-mon, sed li havis fantazian deziron forkuri el tiu ĉi ĉambro, 137
-
-VIVO VOKAS
+Ili enlitiĝis kaj estingis la lumon. Johano ne sentis dormemon, sed li havis fantazian deziron forkuri el tiu ĉi ĉambro,
 
 
 kiu ne plu estis hejmo por li. Longe liaj pensoj moviĝis, ĝis la laco fine efikis.
 
-Endormiĝante li denove plenvekiĝis pro alumeta frotbru-
-
-eto kaj lumeksplodo. Preskaŭ tuj mallumiĝis, denove, sed
+Endormiĝante li denove plenvekiĝis pro alumeta frotbrueto kaj lumeksplodo. Preskaŭ tuj mallumiĝis, denove, sed
 
 post kelkaj momentoj atingis lin ondo de cigareda fumo.
-
-
-VIVO VOKAS
 
 
 VII.
@@ -5407,20 +4378,14 @@ oftaj, ŝi rakontis, ke ili estas de Eriko, kaj ŝi ankaŭ donis ilin al ili por
 
 Eriko ja petis vin fari ĉion, por ke la klubo bone funkciu.
 
-—Jes. Sed mi ne volas por ĉiam resti servistino. Miaj stu-
-
-doj estas por mi pli gravaj ol la klublaboro.
+—Jes. Sed mi ne volas por ĉiam resti servistino. Miaj studoj estas por mi pli gravaj ol la klublaboro.
 
 —En tio vi pravas. Nu, Eriko estas brava knabo, tion mi
 
-devas konfesi, kvankam mi ne multe ŝatas lin. Imagu, ke li tiel 139
-
-VIVO VOKAS
+devas konfesi, kvankam mi ne multe ŝatas lin. Imagu, ke li tiel
 
 
-foriras, kvankam li havas tiel grandan ŝancon esti mortpafa-
-
-ta aŭ disŝirata de grenado!
+foriras, kvankam li havas tiel grandan ŝancon esti mortpafata aŭ disŝirata de grenado!
 
 Strabe-kaŝe li rigardis ŝian vizaĝon, sed ne suk cesis registri tremeton en ŝia mieno.
 
@@ -5434,35 +4399,24 @@ kvazaŭ demande rigardis ŝin — kaj tiel la klubo samtempe
 
 perdas du el siaj plej bonaj fortoj.
 
-Post momenta silento li kun komprenoŝajniga mieno kap-
-
-klinetis al ŝi kaj aldonis:
+Post momenta silento li kun komprenoŝajniga mieno kapklinetis al ŝi kaj aldonis:
 
 —Mi kredas, ke mi divenis. Vi estas pardoninda, knabino.
 
-Tamen mi esperas, ke vi denove laboros. Provu foje doni al-
-
-menaŭ iomete da tempo al nia afero! Imagu, kiom oferas Eri-
+Tamen mi esperas, ke vi denove laboros. Provu foje doni almenaŭ iomete da tempo al nia afero! Imagu, kiom oferas Eri-
 
 ko! Por esti solidaraj kun li, ni devus labori centoble pli multe ol ni nun faras.
 
 
-VIVO VOKAS
-
-
 Kiel freŝa, paca rifuĝejo estas ŝia malgranda ĉambro, hela
 
-kaj kiel eble plej simpla en la linioj, laŭ la moderna gu-
-
-sto, kun minimumo da mebloj. En la supra etaĝo Ajna estas
+kaj kiel eble plej simpla en la linioj, laŭ la moderna gusto, kun minimumo da mebloj. En la supra etaĝo Ajna estas
 
 ĝis nun sola. Bruo de malsupre estas ne multe audebla. La
 
 sonon de la radio ŝi ne rimarkas, se ŝi atentas pri io alia, sed se ŝi atentas, ŝi tamen povas aŭskulti la vesperajn raportojn pri Hispanujo sen iri malsupren al la familio.
 
-Estas bona loko por studo. Kaj ŝi vere studas sed pli mal-
-
-multe, ol ŝi ŝajnigas.
+Estas bona loko por studo. Kaj ŝi vere studas sed pli malmulte, ol ŝi ŝajnigas.
 
 Antaŭ unu jaro la inĝeniero preterpase demandis ŝin, ĉu ŝi
 
@@ -5474,9 +4428,7 @@ trovis, ke ŝi progresas, li alŝovis al ŝi jen kaj jen paperojn por netskribad
 
 —Vi jam skribas same bone kiel mi, li deklaris iun tagon.
 
-Sed bona skribistino devas uzi ĉiujn fingrojn metode kaj ruti-ne. ĉu vi ne ŝatus trapasi kurson en maŝinskribado? Kores-
-
-ponda kurso ne kostas multe.
+Sed bona skribistino devas uzi ĉiujn fingrojn metode kaj ruti-ne. ĉu vi ne ŝatus trapasi kurson en maŝinskribado? Koresponda kurso ne kostas multe.
 
 —Mia nuna kapablo tute sufiĉas por mi, ŝi respondis kun
 
@@ -5484,9 +4436,7 @@ rideto.
 
 —Certe. Sed mi kredas, ke iun tagon vi ne plu volas resti
 
-servistino. Vi estas bona servistino, sed vi havas multe da aliaj 141
-
-VIVO VOKAS
+servistino. Vi estas bona servistino, sed vi havas multe da aliaj
 
 
 interesoj kaj kapabloj. Iam vi pli ŝatos ekzerci ilin ol resti en kuirejo kaj infanĉambro.
@@ -5495,21 +4445,15 @@ Sinretene ŝi konsentis, ke eble jes.
 
 —Mi ne scias, kiun vojon vi elektos. Sed ne malutilas ion
 
-lerni, kiam oni havas tempon kaj kapablon. Se vi lernos per-
-
-fekte trakti maŝinon, tio povos esti utila por vi, ankaŭ kiam temas pri alia laboro. Se vi ne vivtenos vin per ĝi, ĝi tamen estos por vi valora aktivo, eĉ se vi edziĝos kaj ne laboros pro-fesie. Aŭ ĉu vi havas pli definitivan planon por via estonto kaj preferas alian fakon?
+lerni, kiam oni havas tempon kaj kapablon. Se vi lernos perfekte trakti maŝinon, tio povos esti utila por vi, ankaŭ kiam temas pri alia laboro. Se vi ne vivtenos vin per ĝi, ĝi tamen estos por vi valora aktivo, eĉ se vi edziĝos kaj ne laboros pro-fesie. Aŭ ĉu vi havas pli definitivan planon por via estonto kaj preferas alian fakon?
 
 Neniujn planojn ŝi havis. Kvankam ŝi ne havis specialan
 
 intereson por maŝinskribado, ŝi faris laŭ lia propono. La patro estis tre kontenta pri ŝia nova libertempa okupo kaj transdonis al ŝi diversajn aktojn por netskribo.
 
-Kiam ŝi estis fininta tiun kurson, la inĝeniero diris, ke perfekta skribistino devas regi ankaŭ stenografion. Se ŝi ne ha-
+Kiam ŝi estis fininta tiun kurson, la inĝeniero diris, ke perfekta skribistino devas regi ankaŭ stenografion. Se ŝi ne havos uzon por ĝi en eventuala metio, ĝi tamen estos utila ankaŭ en ĉiutaga praktika vivo, precipe por societa homo kiel ŝi. ĉiuokaze ĝi estos valora aktivo.
 
-vos uzon por ĝi en eventuala metio, ĝi tamen estos utila ankaŭ en ĉiutaga praktika vivo, precipe por societa homo kiel ŝi. ĉiuokaze ĝi estos valora aktivo.
-
-Kiam li en la fino de la somero proponis kurson en komer-
-
-ca korespondo, ŝi tamen kontraŭdiris.
+Kiam li en la fino de la somero proponis kurson en komerca korespondo, ŝi tamen kontraŭdiris.
 
 —Estas sensence! Neniun emon por kontora laboro mi
 
@@ -5526,9 +4470,6 @@ Sen multaj vortoj ŝi cedis al lia propono ankaŭ tiun fojon.
 Kiam Eriko forveturis, la unuaj studleteroj kuŝis sur ŝia tab-lo, ĵus komencitaj.
 
 
-VIVO VOKAS
-
-
 ŝiaj studoj ripozis dum multaj tagoj post la forveturo de
 
 Eriko. Kiam ŝi en la unua vespero venis hejmen post la
@@ -5543,9 +4484,7 @@ Subite ŝi rimarkis, ke el la legita nenio restas en ŝia memoro.
 
 ŝi sidigis sin duonkuŝe sur sian liton, kun la dorso kontraŭ la muro.
 
-Senmova, kvazaŭ en letargio ŝi restas tie. ŝiaj okuloj rigi-
-
-de rigardas antaŭ si, kaj ŝi ne konscias pri io vidata. ŝi nek pensas, nek fantazias. Letargio regas ankaŭ en ŝia interno.
+Senmova, kvazaŭ en letargio ŝi restas tie. ŝiaj okuloj rigide rigardas antaŭ si, kaj ŝi ne konscias pri io vidata. ŝi nek pensas, nek fantazias. Letargio regas ankaŭ en ŝia interno.
 
 Jen ŝi vekigas el tiu stato. Imago kaj pensoj komencas lace
 
@@ -5559,9 +4498,7 @@ pri io ĉirkaŭ ŝi, ŝiaj okuloj kaptis sur la kontraua muro la bildon de la bo
 
 moderna ĉambro. Nu, nu, mi ne pensas pri la religia senco —
 
-li interŝovis, kiam la edzino protestis — nur pri la maniero, en 143
-
-VIVO VOKAS
+li interŝovis, kiam la edzino protestis — nur pri la maniero, en
 
 
 kiu ĝi estas pentrita kaj reproduktita. Krome vitroŝirmita bil-do estas abomenajo.
@@ -5574,13 +4511,9 @@ ekrido.
 
 pentraĵojn.
 
-Sed Ajna savis la bonan paŝtiston al la nova hejmo. Bran-
+Sed Ajna savis la bonan paŝtiston al la nova hejmo. Branting trovis sian honorlokon malsupre en la salono, sed la paŝ-
 
-ting trovis sian honorlokon malsupre en la salono, sed la paŝ-
-
-tiston Ajna kunprenis al sia ĉambro, kie ĝi estis la sola orna-majo krom malgranda desegno, kiun Arne faris. i iom fra-
-
-pis la envenanton. Tian bildon li ne atendus en tia ĉambro.
+tiston Ajna kunprenis al sia ĉambro, kie ĝi estis la sola orna-majo krom malgranda desegno, kiun Arne faris. i iom frapis la envenanton. Tian bildon li ne atendus en tia ĉambro.
 
 Sed ridinda ĝi ne aspektis.
 
@@ -5594,23 +4527,13 @@ Tiel ŝi sidis ĉiuvespere, ĝis ŝi vizitis Johanon. Sed kun Joha-no ŝi ne pov
 
 Sed iun vesperon ŝi kun surprizo trovis, ke ŝi iel kutimiĝis
 
-al tio, ke Eriko estas for, same kiel ŝi iam kutimiĝis al tio, ke avino estas for. ŝi ne sentas plu la fakton tiel frakasa, tiel ĉion-detrua kiel unue. ŝi sentas kvazaŭ en ŝia interno estus mal-
-
-plena loko post forpreno de grava organo, kaj kvazaŭ ŝi kun
+al tio, ke Eriko estas for, same kiel ŝi iam kutimiĝis al tio, ke avino estas for. ŝi ne sentas plu la fakton tiel frakasa, tiel ĉion-detrua kiel unue. ŝi sentas kvazaŭ en ŝia interno estus malplena loko post forpreno de grava organo, kaj kvazaŭ ŝi kun
 
 miro trovus, ke ŝi povas vivi ankaŭ post tiu operacio, sed tiu eltrovo ne gojigas ŝin.
 
-En tiu vespero ŝi prenis la luitan skribmaŝinon el ĝia kes-
+En tiu vespero ŝi prenis la luitan skribmaŝinon el ĝia kesto, kaj ŝiaj fingroj en furiozo ludis sur la klavoj, dum la tipoj frapadis kontraŭ la cilindron kiel hajlograjnoj kontraŭ ladan tegmenton.
 
-
-VIVO VOKAS
-
-
-to, kaj ŝiaj fingroj en furiozo ludis sur la klavoj, dum la tipoj frapadis kontraŭ la cilindron kiel hajlograjnoj kontraŭ ladan tegmenton.
-
-La mekanika laboro donis al ŝi forgeson por iom da tem-
-
-po, kaj post tio ŝi sentis sin pli forta kaj vivoplena kvazaŭ post bonfartiga ripozo.
+La mekanika laboro donis al ŝi forgeson por iom da tempo, kaj post tio ŝi sentis sin pli forta kaj vivoplena kvazaŭ post bonfartiga ripozo.
 
 ŝi komencis denove labori. Plej multe ŝi maŝinskribis kaj
 
@@ -5630,21 +4553,14 @@ image vidas lin mortpafi homojn, kies vizaĝoj terure aspektas en malamo kaj mor
 
 fariĝas nehomece kruda kaj plena de mortiĝemo, iel eĉ pli
 
-terura ol tiu de lia viktimo. Samtempe vekigas en ŝia memo-
-
-ro iu legita esprimo pri sango sur la manoj, kaj subite ŝi ne povas imagi lin sen vidi liajn manojn plenaj de sango. Teru-rite ŝi provas denove kaj denove imagi liajn manojn, kiel ŝi
+terura ol tiu de lia viktimo. Samtempe vekigas en ŝia memoro iu legita esprimo pri sango sur la manoj, kaj subite ŝi ne povas imagi lin sen vidi liajn manojn plenaj de sango. Teru-rite ŝi provas denove kaj denove imagi liajn manojn, kiel ŝi
 
 antaue vidis ilin, sed ŝi ne sukcesas. Ili restas tute ŝmiritaj de la sango de liaj viktimoj, kaj lia vizaĝo restas vizaĝo de mur-danta homo.
 
 
-VIVO VOKAS
-
-
 Okazas ŝanĝiĝo en ŝia interno. ŝi ne pensas plu pri Eriko
 
-kiel sia heroo kaj amato. ŝi vidas antaŭ si vizaĝon de murdan-to kaj manojn makulitajn de sango, kaj tio estas por ŝi tur-
-
-mente abomena. Tamen ŝi ne abomenas la personon, al kiu
+kiel sia heroo kaj amato. ŝi vidas antaŭ si vizaĝon de murdan-to kaj manojn makulitajn de sango, kaj tio estas por ŝi turmente abomena. Tamen ŝi ne abomenas la personon, al kiu
 
 ili apartenas. Korpreman doloron kaj kompaton ŝi sentas por
 
@@ -5652,19 +4568,13 @@ tiu homsimila sed monstra estaĵo, kiun ŝi imagas, kaj en kiu
 
 ŝi ne plu rekonas la trajton de sia heroo, kiu tiel arde batalis por feliĉo al la homoj. Nur tia ŝi povas imagi lin. ŝi ne sukcesas eĉ por momento ŝanĝi la bildon.
 
-ŝi kuŝas. La korpo estas skuata de ploro kaj kuntiriĝas kva-
+ŝi kuŝas. La korpo estas skuata de ploro kaj kuntiriĝas kvazaŭ pro tranĉa doloro, ardaj larmoj lavas ŝiajn vangojn. —
 
-zaŭ pro tranĉa doloro, ardaj larmoj lavas ŝiajn vangojn. —
-
-”Ho Eriko, Eriko”, ŝi flustras en sia delirosimila stato, ”kiel vi povis fariĝi tia, kio faris vin tia? Dio, Dio! Se mi nur povus helpi vin, se mi povus forlavi la sangon de viaj manoj kaj for-
-
-karesi la maskon de murdanto el via vizaĝo! Mi ne pretendus
+”Ho Eriko, Eriko”, ŝi flustras en sia delirosimila stato, ”kiel vi povis fariĝi tia, kio faris vin tia? Dio, Dio! Se mi nur povus helpi vin, se mi povus forlavi la sangon de viaj manoj kaj forkaresi la maskon de murdanto el via vizaĝo! Mi ne pretendus
 
 vin por mi, mi ne pretendus vin mia heroo. Se vi nur fariĝus
 
-denove homo, kiom ajn sensignifa, sed kun vizaĝo sen stam-
-
-po de mortigo kaj kun puraj manoj!”
+denove homo, kiom ajn sensignifa, sed kun vizaĝo sen stampo de mortigo kaj kun puraj manoj!”
 
 Tiom ŝi konsciis en sia vespera mondo de imagoj, ke ŝi
 
@@ -5684,9 +4594,7 @@ antaŭe estis, kaj en mia memoro vi restus homo, homo.”
 
 Kaj jen alia penso: ”Kial mi ne malhelpis lian foriron, kial
 
-ne diris, ke mi ne povas aprobi ĝin, ke milito estas murdo. Mi 146
-
-VIVO VOKAS
+ne diris, ke mi ne povas aprobi ĝin, ke milito estas murdo. Mi
 
 
 ne klare vidis, ne klare komprenis — tamen estas kulpa ankaŭ
@@ -5704,9 +4612,6 @@ bona paŝtisto kaj interplektas siajn fingrojn, dum ŝiaj lipoj arde flustras vo
 malbela kaj forigas el ŝia animo ankaŭ la potencon de la teruraj imagoj, kiuj antaŭe regis ŝin.
 
 
-VIVO VOKAS
-
-
 La sabatajn posttagmezojn kaj la dimanĉojn Johano kaj
 
 Alda rezervis por si. Johano finis sabate sian laboron je la
@@ -5715,9 +4620,7 @@ unua, kaj se ne estis tro urĝe en la gazetvendejo, Alda ricevis forpermeson de 
 
 Tiam ili jen vizitis Gustavon, jen skiis, jen ekskursis piede, jen pasigis la tempon en alia maniero laŭ sia propra plaĉo. Ili lasis malantaŭ si la ĉiutagan vivon kun laboro kaj vivado laŭ horloĝo, kun studoj, devoj kaj asocioj. Por kelkaj horoj ili vivis liberaj de tiuj ligoj, kiuj pli kaj pli katenis ilin al la mondo de la plenkreskuloj.
 
-Estis sabata posttagmezo en la transiro de vintro al fru-
-
-printempo. Kun kelkaj buterpanoj kaj varmboteloj kun kafo
+Estis sabata posttagmezo en la transiro de vintro al fruprintempo. Kun kelkaj buterpanoj kaj varmboteloj kun kafo
 
 en siaj dorsosakoj ili forlasis Torenton por marŝi kaj viziti kelkajn punktojn en la ĉirkauaĵoj.
 
@@ -5738,9 +4641,6 @@ ombraj lokoj en la arbaro restis ankoraŭ maloftaj pecetoj.
 En la vespero ili troviĝis en sabla tereno, kiun iam formis
 
 
-VIVO VOKAS
-
-
 glacitempa rivero. La sablo ne estis multe videbla, ĉar preskaŭ ĉie kovris ĝin densa tapiŝo de vakcinioj kaj aliaj kreskaĵoj. Bela arbaro el altaj pinoj kaj piceoj okupis la pli grandan parton de la loko, jen kaj jen kun iom da libera spaco.
 
 Estis agrable promeni tie kaj retrovi ĉiujn detalojn de la
@@ -5751,51 +4651,32 @@ karto. Kontraŭe al ordinara arbara tereno tute mankis tie ĉi
 
 Travaginte la lokon ili paŭzis sur la okcidenta deklivo de tia altaĵeto. Ili rompis iom da piceaj branĉoj por povi sidi sur la ankoraŭ malvarma, iom malseka tero kaj malfermis siajn dor-sosakojn.
 
-Estis unu el tiuj fruprintempaj vesperoj, kiam la subiran-
-
-ta suno pentras la pinojn per ia purpura lumo, kiu vekas sen-
+Estis unu el tiuj fruprintempaj vesperoj, kiam la subiranta suno pentras la pinojn per ia purpura lumo, kiu vekas sen-
 
 ton de korŝira sopiro. Ne estas la milda melankolio, kiun
 
 vekas la klara, kvazaŭ velkinta sunbrilo en silenta oktobra
 
-vespero, kiam la lasta vivo de la somero por momentoj ek-
+vespero, kiam la lasta vivo de la somero por momentoj ekbelas kiel infana rigardbrileto en maljunaj okuloj. Ne estas tiu altfluganta sopiro, kiun vekas la plensomera vespero, kiam la ĉielo estas kvazaŭ alta templo kaj la senspira silento estas
 
-belas kiel infana rigardbrileto en maljunaj okuloj. Ne estas tiu altfluganta sopiro, kiun vekas la plensomera vespero, kiam la ĉielo estas kvazaŭ alta templo kaj la senspira silento estas
-
-majesta, dum la arda globo glitas malsupren malantaŭ la ran-
-
-don de la arbaro.
+majesta, dum la arda globo glitas malsupren malantaŭ la randon de la arbaro.
 
 Tute alian senton vekas tiu purpura vesperlumo sur la
 
-pinoj, kiu estas la plej sopiroplena lumludo, kiu ekzistas en la nordo. Estas kvazaŭ ĝi esprimus la tutan sopiron de la dormanta-vekiĝanta vivo, de la ankoraŭ vintroligita naturo. An-
-
-koraŭ kuŝas ĉiuj printempaj floroj kiel embrioj sub la frosta tero, ankoraŭ la folioj de la arboj kuŝas same embrie en siaj kaŝejoj de la burĝonoj. Katenita estas la vivo, kiu en milionoj da nevideblaj semoj kaj en milionoj da kaŝitaj insektoj atendas sunon kaj varmon.
+pinoj, kiu estas la plej sopiroplena lumludo, kiu ekzistas en la nordo. Estas kvazaŭ ĝi esprimus la tutan sopiron de la dormanta-vekiĝanta vivo, de la ankoraŭ vintroligita naturo. Ankoraŭ kuŝas ĉiuj printempaj floroj kiel embrioj sub la frosta tero, ankoraŭ la folioj de la arboj kuŝas same embrie en siaj kaŝejoj de la burĝonoj. Katenita estas la vivo, kiu en milionoj da nevideblaj semoj kaj en milionoj da kaŝitaj insektoj atendas sunon kaj varmon.
 
 
-VIVO VOKAS
+Tiu tuta sopiro de la katenita vivo estas pentrata de la vespera suno, kaj rigardante ĝin oni sentas tiun korŝiran sopiron, kiun sentas granda kreanto, kiam li en sia interno perceptas
 
+la formiĝon de granda ideo, kiu atendas burĝoniĝon kaj floradon.
 
-Tiu tuta sopiro de la katenita vivo estas pentrata de la ves-
-
-pera suno, kaj rigardante ĝin oni sentas tiun korŝiran sopiron, kiun sentas granda kreanto, kiam li en sia interno perceptas
-
-la formiĝon de granda ideo, kiu atendas burĝoniĝon kaj flo-
-
-radon.
-
-Ili sidis tie kaj manĝis siajn buterpanojn, trinkis sian kafon, rigardis la kartojn kaj iomete babilis. Ne estis varme, sed la varmo de la suno estis almenaŭ sentebla, kiam ĝi tuŝis la viza-
-
-ĝon. Manĝinte ili restis ankoraŭ iom sidantaj por ĝui la su-
+Ili sidis tie kaj manĝis siajn buterpanojn, trinkis sian kafon, rigardis la kartojn kaj iomete babilis. Ne estis varme, sed la varmo de la suno estis almenaŭ sentebla, kiam ĝi tuŝis la vizaĝon. Manĝinte ili restis ankoraŭ iom sidantaj por ĝui la su-
 
 non, sed jam ĝia forto malfortigis kaj la koloroj ŝanĝiĝis. Unue
 
 ĝi fariĝis ruĝeta, poste venis iom post iom tiu viola nuanco.
 
-Ili rigardis la lumludon sur brunaj trunkoj kaj verdaj kro-
-
-noj, sur verdaj vakcinioj, grizaj branĉoj kaj brunaj arbopingloj sur la tero. Ili silentis, kiel silentis la arbaro, kie ankoraŭ vibris neniu turda trilo, kaj tiel kaptis ilin tiu sopirovibra lumo, ke ili por momento tute forgesis unu la alian.
+Ili rigardis la lumludon sur brunaj trunkoj kaj verdaj kronoj, sur verdaj vakcinioj, grizaj branĉoj kaj brunaj arbopingloj sur la tero. Ili silentis, kiel silentis la arbaro, kie ankoraŭ vibris neniu turda trilo, kaj tiel kaptis ilin tiu sopirovibra lumo, ke ili por momento tute forgesis unu la alian.
 
 Pli kaj pli intensiĝis la purpura ardo, ĝis ĝi vekis preskaŭ
 
@@ -5809,32 +4690,24 @@ La momentoj pasis. Ili fariĝas konsciaj pri si mem kaj unu
 
 pri la alia. Iliaj manoj renkontiĝis kvazaŭ en sankta kuniĝo, sed la korpoj restis senmovaj, kaj la okuloj restis katenitaj. Ili vidis kaj sentis unu en la alia respondon al la propra vivo,
 
-trema sopiro, ili sentis sin kiel unu. Ili vidis la vizaĝon unu de la alia, kiel ili neniam antaŭe vidis ĝin. Ili vidis la belon de vizaĝo kaj korpo, tra kiuj trabrilis la lumo de animo sopiranta al la perfekta vivo. Sed nenio estis direbla per vortoj, nenio 150
-
-VIVO VOKAS
+trema sopiro, ili sentis sin kiel unu. Ili vidis la vizaĝon unu de la alia, kiel ili neniam antaŭe vidis ĝin. Ili vidis la belon de vizaĝo kaj korpo, tra kiuj trabrilis la lumo de animo sopiranta al la perfekta vivo. Sed nenio estis direbla per vortoj, nenio
 
 
 kaptebla kiel klaraj komprenaĵoj. Kiel la korŝira sopiro de la dormanta-vekiĝanta naturo estis esprimata de la vespera purpura ardo, tiel tiu renkonto de iliaj animoj senvorte esprimis la sopiron de la spirito en ili. Kaj tamen ĉio estis klara, memkomprenebla.
 
-Konscie ili rigardas unu la alian. Sen vortoj, gestoj aŭ mi-
-
-miko ili pli klare ol per iuj vortoj perceptas, kion pensas kaj sentas la alia.
+Konscie ili rigardas unu la alian. Sen vortoj, gestoj aŭ mimiko ili pli klare ol per iuj vortoj perceptas, kion pensas kaj sentas la alia.
 
 Ili pensas pri momentoj, kiam iliaj rigardoj renkontiĝis kiel nun, kaj tamen ne en la sama maniero. Ili ŝatis unu la alian
 
 kiel knabo kaj knabino, sed tiu sento kunfandiĝis kun tiu de
 
-amikeco sendependa de sekso, kaj tiel forta estis tiu amike-
-
-co, ke la alia sento estis kaŝita de ĝi.
+amikeco sendependa de sekso, kaj tiel forta estis tiu amikeco, ke la alia sento estis kaŝita de ĝi.
 
 Revenis en ilia memoro tiu malfrusomera vespero, kiam ili
 
 rikoltis ribojn en la ĝardeno de Alda kaj unue eksentis tiun
 
-sekretan interligon. Ili memoris iaman promenon sur la kru-
-
-stoneĝo en printempa frumateno, kun la aliaj rondanoj, kiam
+sekretan interligon. Ili memoris iaman promenon sur la krustoneĝo en printempa frumateno, kun la aliaj rondanoj, kiam
 
 iliaj rigardoj tiel renkontiĝis kaj ili iel komprenis kaj iel ne komprenis unu la alian. Ili memoris tiun momenton, kiam ili
 
@@ -5846,14 +4719,9 @@ Kaj jen ili nun sidas tie ĉi, kaj la nunaj momentoj klarigas
 
 ĉion, kion ili antaŭe ne klare komprenis. Tio pasinta estis sub-konscia revado pli bela mondo, ne vidita. La nuno estas la
 
-momento de eniro en tiun mondon. Ili sentas sin kiel vivo-
-
-kamaradoj kaj kunlaborantoj kiel povas esti nur viro kaj viri-no, kompletigante unu la alian.
+momento de eniro en tiun mondon. Ili sentas sin kiel vivokamaradoj kaj kunlaborantoj kiel povas esti nur viro kaj viri-no, kompletigante unu la alian.
 
 —Alda, diras Johano, ĉu ni ne konis unu la alian iam en la
-
-
-VIVO VOKAS
 
 
 komenco de la mondo kaj tiam interkonsentis kune konstrui
@@ -5881,9 +4749,6 @@ tute klare memoras nian interkonsenton.
 —Kaj tiel granda estas la vivo, tiel senfine granda, kaj tiel senfine granda estas nia tasko konstrui la vivon.
 
 
-VIVO VOKAS
-
-
 Ajna traluktis la vintrajn monatojn. Iom post iom forlasis
 
 ŝin la unuaj atakoj de anima doloro, kaj ŝi fariĝis pli
@@ -5892,9 +4757,7 @@ trankvila. Sed premis ŝin granda malĝojo en la vesperoj. En
 
 la tagoj ŝi devis ĉion kaŝi kaj aspekti, se ne gaja, almenaŭ ne turmentita.
 
-ŝi ne havis multe da entuziasmo por siaj studoj, sed ŝi kuti-
-
-miĝis al ili kiel aliaj homoj al diversaj manieroj por tempo-
+ŝi ne havis multe da entuziasmo por siaj studoj, sed ŝi kutimiĝis al ili kiel aliaj homoj al diversaj manieroj por tempo-
 
 pasigo, kaj ŝi fartis pli bone, kiam ŝi sentis sin okupita.
 
@@ -5910,9 +4773,7 @@ La patro dum kelka tempo ne fartis bone. La stomako ne
 
 estas en ordo, li diris. Fine li konsultis kuraciston. Tiu konstatis kanceron. Li trapasis operacion, sed la rezulto ne estis esperiga.
 
-Kiam la patrino venis hejmen el la malsanulejo kun tiu in-
-
-formo de la kuracisto, ŝi ŝajnis tute frakasita, parte maltrankvila pro la vivo de ŝia edzo, parte, kaj ŝajne pli multe, timan-ta pro la ekonomia stato de la familio, se mortos la edzo.
+Kiam la patrino venis hejmen el la malsanulejo kun tiu informo de la kuracisto, ŝi ŝajnis tute frakasita, parte maltrankvila pro la vivo de ŝia edzo, parte, kaj ŝajne pli multe, timan-ta pro la ekonomia stato de la familio, se mortos la edzo.
 
 Ajna provis konsoli ŝin rilate al ekonomio.
 
@@ -5923,18 +4784,13 @@ preskaŭ vivteni sin, se ŝi bone klopodos kaj ne tro multe
 postulos por si. Post kelkaj jaroj komencos ankaŭ la knabo.
 
 
-VIVO VOKAS
-
-
 Certe estis pli malfacile por vi, kiam vi kaj avino estis solaj kun mi kaj Greta.
 
 La patrino konsentis, ke jes. Sed nun ili havas la domon,
 
 kaj ĝin ŝi ne volas forlasi. Restas ankoraŭ ŝuldo por ĝi. La viv-asekuro de la edzo, se li mortos, kovros preskaŭ la reston de la ŝuldo. Sed tamen, tamen. Kaj eble li longe restos malsana, ankaŭ tio premos la ekonomion.
 
-Kiam Ajna denove sidis en sia ĉambro, venis granda tran-
-
-kvilo en ŝian animon. La pensoj fariĝis klaraj, kaj ŝi sentis, kion ŝi vole nevole devas fari. Tio puŝis flanken ŝiajn antaŭajn ĉagrenojn kaj donis al ŝi senton de liberiĝo.
+Kiam Ajna denove sidis en sia ĉambro, venis granda trankvilo en ŝian animon. La pensoj fariĝis klaraj, kaj ŝi sentis, kion ŝi vole nevole devas fari. Tio puŝis flanken ŝiajn antaŭajn ĉagrenojn kaj donis al ŝi senton de liberiĝo.
 
 La sekvantan tagon ŝi parolis kun la inĝeniero. Iel ŝi devas
 
@@ -5971,14 +4827,9 @@ Ni provu!
 Unu semajnon poste ŝi komencis en la kontoro. Timo pro
 
 
-VIVO VOKAS
-
-
 nova medio kaj nespertita laboro maltrankviligis ŝin en la
 
-tagoj antaŭ la komenco. Sed ŝi ricevis en la unuaj tagoj mul-
-
-te pli facilajn laborojn ol ŝi atendis, kaj sen granda peno ŝi sukcesis bone plenumi ilin. ŝia ĉefo ŝajnis kontenta pri ŝi, ŝi ricevis pli malfacilajn taskojn, ŝia memfido kreskis, kaj kun surprizo ŝi trovis, ke la nova laboro interesas ŝin, kaj ke la horoj tre rapide forpasas.
+tagoj antaŭ la komenco. Sed ŝi ricevis en la unuaj tagoj multe pli facilajn laborojn ol ŝi atendis, kaj sen granda peno ŝi sukcesis bone plenumi ilin. ŝia ĉefo ŝajnis kontenta pri ŝi, ŝi ricevis pli malfacilajn taskojn, ŝia memfido kreskis, kaj kun surprizo ŝi trovis, ke la nova laboro interesas ŝin, kaj ke la horoj tre rapide forpasas.
 
 Ankaŭ ŝia timo pro la novaj homoj malaperis. Pro okazaj
 
@@ -5992,16 +4843,11 @@ Pro malnova kutimo ŝi en la unua tempo vekiĝis same frue
 
 kiel antaue. La unuaj sunradioj pentris la kontraŭfenestran
 
-muron per varma, flava koloro, kaj la ĉambro ŝajnis pli paco-
-
-plena kaj freŝe hela ol dum aliaj tempoj de la tago.
+muron per varma, flava koloro, kaj la ĉambro ŝajnis pli pacoplena kaj freŝe hela ol dum aliaj tempoj de la tago.
 
 ŝi rigardas la horloĝon. Kiam ŝi trovas, ke ŝi povas dormi
 
 ankoraŭ du horojn, se ŝi volas, ŝi sentas sin tiel kontenta, ke ŝi perdas sian tutan dormemon. ŝi pleniĝas de trankvila ĝojo: pro libero kaj laŭplaĉa ripozo, pro la printempa lumo kaj la
-
-
-VIVO VOKAS
 
 
 pepado de la paruoj ekster la fenestro, pro la taga laboro, kiu atendas ŝin, pro certa sento de memfido kaj memstaro, kiu
@@ -6010,15 +4856,11 @@ komencas naskiĝi en ŝi.
 
 Duonreve ŝi sekvas la glitadon de la sunstrio sur la muro.
 
-Subite rompas la silenton la obtuza bruo de la matena traj-
-
-no, kaj la tuta domo ekvibras, kiam ĝi preterpasas. Tio efikas al ŝi kiel vekopuŝo. ŝi saltas el la lito, rapide lavas kaj vestas sin kaj poste atakas siajn studleterojn.
+Subite rompas la silenton la obtuza bruo de la matena trajno, kaj la tuta domo ekvibras, kiam ĝi preterpasas. Tio efikas al ŝi kiel vekopuŝo. ŝi saltas el la lito, rapide lavas kaj vestas sin kaj poste atakas siajn studleterojn.
 
 Meze en sia matena ĝojo ŝi foje subite pensas: ”Baldaŭ
 
-aperos la unuaj sunradioj ankaŭ sur la militkampoj en Hispa-
-
-nujo.” Por momento ŝi vidas antaŭ si la vizaĝon de Eriko, sed
+aperos la unuaj sunradioj ankaŭ sur la militkampoj en Hispanujo.” Por momento ŝi vidas antaŭ si la vizaĝon de Eriko, sed
 
 ĝi baldaŭ malaperas. Eriko kaj ŝia rilato al li iel forglitis el la realo kaj fariĝis kvazaŭ revaĵo.
 
@@ -6032,9 +4874,7 @@ por ŝia propra vivo. Promenante ŝi meditadas, kaj la soleco
 
 kaj la silento estas kvazaŭ templo por ŝi.
 
-Sola ŝi estas ankaŭ hejme. Malmulte da vortoj estas ŝan-
-
-ĝataj inter ŝi kaj la aliaj, kaj malmulte ili okupas sin unu pri la alia.
+Sola ŝi estas ankaŭ hejme. Malmulte da vortoj estas ŝanĝataj inter ŝi kaj la aliaj, kaj malmulte ili okupas sin unu pri la alia.
 
 Antaŭe la patrino ne malofte traktis ŝin per admonoj kiel
 
@@ -6049,20 +4889,13 @@ Ajna proponis al ŝi la servistinan laboron ĉe la inĝeniero.
 Konsentinte ŝi multe lamentis dum la unuaj tagoj pro troa
 
 
-VIVO VOKAS
-
-
 laboro kaj manko de libera tempo. Ajna atentigis ŝin pri tio, ke ŝi mem dum du jaroj estis en la sama situacio kaj tio sen
 
-nepra bezono. Nun ili bezonas la helpon de Greta. Kaj Gre-
-
-ta iom post iom ŝajnis rezigni, tamen pli pro la nova pozicio de Ajna ol pro la racio de ŝiaj vortoj.
+nepra bezono. Nun ili bezonas la helpon de Greta. Kaj Greta iom post iom ŝajnis rezigni, tamen pli pro la nova pozicio de Ajna ol pro la racio de ŝiaj vortoj.
 
 La patro restis en la hejmo. Sano ne revenis, kaj li pasigis
 
-preskaŭ la tutajn tagojn en brakseĝo aŭ kuŝante sur sofo. Lia antaŭa parolemo estis malaperinta. Kun Ajna li tute ne parolis dum multaj tagoj post sia reveno kaj per neniu vorto alu-
-
-dis pri la nova stato.
+preskaŭ la tutajn tagojn en brakseĝo aŭ kuŝante sur sofo. Lia antaŭa parolemo estis malaperinta. Kun Ajna li tute ne parolis dum multaj tagoj post sia reveno kaj per neniu vorto aludis pri la nova stato.
 
 Sed iun vesperon li vokis ŝin. ŝi iris en lian ĉambron kaj
 
@@ -6091,33 +4924,21 @@ Li faris ankoraŭ diversajn demandojn pri ŝia laboro, pri
 salajro kaj pri ebloj por avanci, pri ŝiaj studoj kaj intencoj por la estonto.
 
 
-VIVO VOKAS
-
-
 Post siaj demandoj li silentis kaj rigardis ŝin. Subite li prenis ŝian manon kaj premis ĝin.
 
 —Mi dankas vin, Ajna. Ni estis iom fremdaj unu al la alia;
 
 kaj estas tra malfrue ripari tion nun. Sed vi estas brava knabino, kaj mi ĝojas, ke vi zorgos por ili. —
 
-Pli kaj pli frue venis la suno en ŝian ĉambron. La aero fari-
+Pli kaj pli frue venis la suno en ŝian ĉambron. La aero fariĝis milda. Kiam ŝi vekiĝis en la fruhora kvieto, ŝi malfermis la fenestron, kaj la matenfreŝa aero portis al ŝi la unuajn deli-katajn odorojn de frua printempo.
 
-ĝis milda. Kiam ŝi vekiĝis en la fruhora kvieto, ŝi malfermis la fenestron, kaj la matenfreŝa aero portis al ŝi la unuajn deli-katajn odorojn de frua printempo.
-
-La migrobirdoj revenas post sia vintra restado en malprok-
-
-sima sudo. En la lastaj tagoj de marto aperas la sturnoj, kaj iliaj flutotonoj vekas imagojn pri verdo kaj varmo. Iom poste eksonas la tonkaskadoj de la fringoj. Iun matenon prome-
+La migrobirdoj revenas post sia vintra restado en malproksima sudo. En la lastaj tagoj de marto aperas la sturnoj, kaj iliaj flutotonoj vekas imagojn pri verdo kaj varmo. Iom poste eksonas la tonkaskadoj de la fringoj. Iun matenon prome-
 
 nas motacilo sur la korto, kaj post ankoraŭ iom da tempo
 
-salutas ŝin la modesta klara voĉo de la blankanigra muŝ-
-
-kaptulo.
+salutas ŝin la modesta klara voĉo de la blankanigra muŝkaptulo.
 
 Kaj dum la tuta tempo ŝi vivas sola, sola sed ne en soleco.
-
-
-VIVO VOKAS
 
 
 VIII.
@@ -6150,9 +4971,7 @@ Dum kelkaj momentoj ili silente rigardis unu la alian.
 
 —Kurioze, ke vi venas ĝuste nun, kvazaŭ vi atendus min.
 
-—ĉiutage mi preterpasas tie ĉi, kiam venas la vespera traj-
-
-no. Mi tiam iras hejmen de mia laboro. — Sed kiel stulta mi
+—ĉiutage mi preterpasas tie ĉi, kiam venas la vespera trajno. Mi tiam iras hejmen de mia laboro. — Sed kiel stulta mi
 
 estas! Vi fariĝas tute malseka, kvankam mi staras apud vi kun ombrelo!
 
@@ -6161,14 +4980,9 @@ estas! Vi fariĝas tute malseka, kvankam mi staras apud vi kun ombrelo!
 ombrelo super lian kapon.
 
 
-VIVO VOKAS
-
-
 Sed li paŝis flanken. Eta rideto por la unua fojo montris sin en lia vizaĝo, sed la rigardo el liaj okuloj venis kvazaŭ el fora malproksimo.
 
-—Malmulte ĝenas kelkaj akvogutoj, kiam oni venas el mi-
-
-lito. Kaj mi tuj iros hejmen. ĉu ĉio bona hejme?
+—Malmulte ĝenas kelkaj akvogutoj, kiam oni venas el milito. Kaj mi tuj iros hejmen. ĉu ĉio bona hejme?
 
 —Laŭ mia scio jes.
 
@@ -6176,9 +4990,7 @@ lito. Kaj mi tuj iros hejmen. ĉu ĉio bona hejme?
 
 Li salute etendis la manon, sed ŝi ne prenis ĝin.
 
-Anstataŭe ŝi denove faris paŝon al li kaj ree metis la om-
-
-brelon super lian kapon.
+Anstataŭe ŝi denove faris paŝon al li kaj ree metis la ombrelon super lian kapon.
 
 —Mi tamen akompanu vin.
 
@@ -6190,15 +5002,11 @@ Li ne finis la frazon, ŝajnis ŝanceliĝi.
 
 Sed poste li aldonis:
 
-—Tio tamen ne havus sencon. Mi estas tiel laca, ke mi ape-
-
-naŭ scias, ĉu mi estas maldormanta aŭ sonĝas. Sence paroli
+—Tio tamen ne havus sencon. Mi estas tiel laca, ke mi apenaŭ scias, ĉu mi estas maldormanta aŭ sonĝas. Sence paroli
 
 mi ne povas, cetere la vojo ne sufiĉus por multaj vortoj. Iru hejmen! Ni ja baldaŭ revidos nin.
 
-Denove li faris movon por etendi al ŝi la manon, sed ren-
-
-kontis lin serena kaj trankvile firma rigardo, kiu retenis la movon. Kaj subite li rimarkis, kiel rektstatura ŝi estas, kiel liberaj kaj belaj estas ŝiaj movoj kaj teniĝo.
+Denove li faris movon por etendi al ŝi la manon, sed renkontis lin serena kaj trankvile firma rigardo, kiu retenis la movon. Kaj subite li rimarkis, kiel rektstatura ŝi estas, kiel liberaj kaj belaj estas ŝiaj movoj kaj teniĝo.
 
 —Mi kuniros ne por interparoli. Mi volas tute simple
 
@@ -6210,16 +5018,9 @@ kune kun mi. ĉu ne ĝenos vin homaj rigardoj kaj diroj?
 
 —Ili ne ĝenos. Ni iru!
 
-Li cedis al ŝia propono, kaj ili ekiris. Ili silentis, sed la silento ĝenis nek lin nek ŝin. En sia laca, nebuleca mensostato Eri-160
+Li cedis al ŝia propono, kaj ili ekiris. Ili silentis, sed la silento ĝenis nek lin nek ŝin. En sia laca, nebuleca mensostato Eriko ekmiris pri ŝi. ŝi ne premas sin al li kiel iam por serĉi rifu-
 
-VIVO VOKAS
-
-
-ko ekmiris pri ŝi. ŝi ne premas sin al li kiel iam por serĉi rifu-
-
-ĝejon, kaj ŝi ankaŭ ne estas kiel junulino plena de arda am-
-
-sopiro. ŝi eĉ ne multe atentas pri li, ŝajnas nur amike iri kune kun li. ŝi estas tre trankvila kaj kvazaŭ plena de silenta ĝojo, kaj iel ŝi donas impreson de memstara kaj libera homo.
+ĝejon, kaj ŝi ankaŭ ne estas kiel junulino plena de arda amsopiro. ŝi eĉ ne multe atentas pri li, ŝajnas nur amike iri kune kun li. ŝi estas tre trankvila kaj kvazaŭ plena de silenta ĝojo, kaj iel ŝi donas impreson de memstara kaj libera homo.
 
 —Vi ŝanĝiĝis dum mia foresto, li diris.
 
@@ -6229,9 +5030,7 @@ samtempe firma esprimo en ŝiaj okuloj.
 
 —Vi aspektas pli vera homo ol homoj ordinare, li aldonis
 
-post ioma silento. Vi kreskis kaj perfektiĝis, dum mi prakti-
-
-kis la metion de neniigo.
+post ioma silento. Vi kreskis kaj perfektiĝis, dum mi praktikis la metion de neniigo.
 
 Estis akra nuanco en la lasta frazo, kaj en lia vizaĝo estis
 
@@ -6241,15 +5040,11 @@ Ankaŭ nun ŝi ne respondis, nur rigardis lin kiel antaŭe kaj
 
 preskaŭ nerimarkeble kapklinis.
 
-—Nu jes, estas sensence nun paroli, li diris post nova paŭ-
-
-zo. La vagonradoj ankoraŭ bruas en miaj oreloj, eĉ pli forte
+—Nu jes, estas sensence nun paroli, li diris post nova paŭzo. La vagonradoj ankoraŭ bruas en miaj oreloj, eĉ pli forte
 
 ol antaŭe, kaj la kapo estas kvazaŭ ne la mia. Cetere estas pli bone prokrasti interbabilon ĝis tempo kaj trankvilo …
 
-Post ankoraŭ unu paŭzo li diris flustre sed preskaŭ eksplo-
-
-de:
+Post ankoraŭ unu paŭzo li diris flustre sed preskaŭ eksplode:
 
 —Sed mi ĝojas, ke vi akompanis min nun. ĉu vi aŭdas,
 
@@ -6260,22 +5055,15 @@ Kiam ili trapasis Torenton, Eriko rigardis al la konataj lokoj, al uzinoj, strat
 atentis pri la reveninto.
 
 
-VIVO VOKAS
-
-
 Kiam ili estis proksime al lia hejmo, ŝi diris, ke nun ŝi tamen reiros hejmen
 
 —Se vi tiel longe kuniris, vi ankaŭ eniru, diris Eriko. Patri-no eble havas kafon, kaj vi povos trinki tason kun mi. Venu!
 
-—Ne pro la kafo, sed se vi volas, mi eniros por kelkaj minu-
-
-toj.
+—Ne pro la kafo, sed se vi volas, mi eniros por kelkaj minutoj.
 
 —Nu bone, sed min taso da bona kafo tre interesas.
 
-Eriko senbrue malfermis la hejman pordon. La patrino sta-
-
-ris ĉe la forno kun la dorso al la pordo. Nur kiam li estis trans-pasinta la sojlon, ŝi ion rimarkis kaj turnis sin. Li metis sian valizon sur la plankon kaj restis staranta antaŭ la patrino.
+Eriko senbrue malfermis la hejman pordon. La patrino staris ĉe la forno kun la dorso al la pordo. Nur kiam li estis trans-pasinta la sojlon, ŝi ion rimarkis kaj turnis sin. Li metis sian valizon sur la plankon kaj restis staranta antaŭ la patrino.
 
 Dume ankaŭ Ajna enpaŝis post li kaj same senbrue fermis la
 
@@ -6297,14 +5085,9 @@ premis ilin.
 
 —Estu bonvena! ŝi diris nelaŭte
 
-Poste ŝi turnis sin al Ajna, kun iom da surprizo en la traj-
-
-toj.
+Poste ŝi turnis sin al Ajna, kun iom da surprizo en la trajtoj.
 
 —ĉu vi lin atendis, ĉu vi sciis, ke li venos?
-
-
-VIVO VOKAS
 
 
 —Mi ne sciis. Mi renkontis lin, kiam mi iris hejmen de la
@@ -6327,9 +5110,7 @@ unue mi ŝatus lavi min.
 
 —Certe, kafon vi havos, post kvin minutoj.
 
-La renkonto estis pasinta tute senbrue. ĉiuokaze la radio-
-
-aparatoj en la najbaraj loĝejoj faris pli da bruo ol Eriko kaj lia patrino. Nun ŝi kun petoltrema esprimo iom malfermis la
+La renkonto estis pasinta tute senbrue. ĉiuokaze la radioaparatoj en la najbaraj loĝejoj faris pli da bruo ol Eriko kaj lia patrino. Nun ŝi kun petoltrema esprimo iom malfermis la
 
 pordon al la ĉambro kaj kriis kun ŝajnigita malpacienco:
 
@@ -6353,22 +5134,16 @@ finita!
 
 —i estas finita tie, kie mi estis.
 
-—Ho jes, vi pravas. Kaj estu certa, ke baldaŭ ĝi estos fini-
+—Ho jes, vi pravas. Kaj estu certa, ke baldaŭ ĝi estos finita ankaŭ en la alia parto. Per tio mi ne deziras malbonon al
 
-ta ankaŭ en la alia parto. Per tio mi ne deziras malbonon al
-
-vi. Mi ĝojas, ke vi revenis viva kaj sana. Kaj brave vi agis, kiam 163
-
-VIVO VOKAS
+vi. Mi ĝojas, ke vi revenis viva kaj sana. Kaj brave vi agis, kiam
 
 
 vi foriris. Sed vi ne komprenis la sencon de la afero. Alian
 
 fojon vi aliĝos al la ĝusta flanko!
 
-Eriko rigardis lin, kvazaŭ li pro laco ne povus klare kom-
-
-preni la sencon de la vorto.
+Eriko rigardis lin, kvazaŭ li pro laco ne povus klare kompreni la sencon de la vorto.
 
 —Hm, vi komencis interesi vin pri aferoj? li diris. Sed mi
 
@@ -6380,9 +5155,7 @@ Kiam la patrino demandis, kiel ili volas dividi inter si la litojn, neniu tuj re
 
 —Mia lito apartenis ja antaŭe al Johano, tiu de Johano al
 
-Eriko, kaj mi kuŝis en la kuirejo. ĉar Eriko revenis, estas ver-
-
-ŝajne plej bone, ke ĉiu reprenos sian antaŭan lokon.
+Eriko, kaj mi kuŝis en la kuirejo. ĉar Eriko revenis, estas verŝajne plej bone, ke ĉiu reprenos sian antaŭan lokon.
 
 —Kiel vi volas, diris la patrino. Sed jen fiksu tion en via
 
@@ -6390,9 +5163,7 @@ kapo, Ejnar, ke vi ne fumos post enlitiĝo. Multe mi toleris de vi, sed tion mi 
 
 Post la aranĝo de la litoj Eriko kaj Johano kiel iam antaŭe
 
-eniris en sian ĉambron kaj fermis la pordon. Ejnar ĉirkaŭri-
-
-gardis en la kuirejo, surmetis sian ĉapelon kaj diris:
+eniris en sian ĉambron kaj fermis la pordon. Ejnar ĉirkaŭrigardis en la kuirejo, surmetis sian ĉapelon kaj diris:
 
 —Mi eliros por unu horo aŭ du. Kaj se mi venos pli malfrue
 
@@ -6406,14 +5177,9 @@ hejmo, diris la patrino. Ne iru! Johano certe interŝanĝos kun vi. Atendu, mi d
 
 —Ne faru! diris Ejnar decide. Ili bone interkompreniĝas, mi
 
-ne interkompreniĝas bone kun iu el ili. Cetere mi ne malŝa-
-
-tas la kuirejon. Sed por la momento estas enue sidi tie ĉi, kaj tial mi eliras.
+ne interkompreniĝas bone kun iu el ili. Cetere mi ne malŝatas la kuirejon. Sed por la momento estas enue sidi tie ĉi, kaj tial mi eliras.
 
 —Kaj denove komencos …
-
-
-VIVO VOKAS
 
 
 —Estu trankvila! asertis Ejnar. Nun mi havas pli gravajn
@@ -6430,23 +5196,17 @@ Vi pliperfektiĝis, dum mi praktikis la metion de neniigo.
 
 Johano ne respondis al la rimarkigo sed diris:
 
-—Vi certe estas terure laca. ĉu ne plej bone por vi tuj en-
-
-litiĝi?
+—Vi certe estas terure laca. ĉu ne plej bone por vi tuj enlitiĝi?
 
 —Terure laca mi estas, sed dormemo forpasis.
 
-Li komencis denove promeni, sed baldaŭ haltis antaŭ la li-
-
-brobreto. Li rigardis ĝian enhavon, sed subite la breto mem
+Li komencis denove promeni, sed baldaŭ haltis antaŭ la librobreto. Li rigardis ĝian enhavon, sed subite la breto mem
 
 kaptis lian intereson.
 
 —Vi havigis novan librobreton?
 
-—Mi faris tiun pasintan aŭtunon. Sed mi konservis la mal-
-
-novan, se vi volas havi ĝin.
+—Mi faris tiun pasintan aŭtunon. Sed mi konservis la malnovan, se vi volas havi ĝin.
 
 —Vi faris mem? Ne malbone. Do ni uzu ĝin. Sed jam mi
 
@@ -6462,9 +5222,7 @@ Li returnis sin al la librobreto, elprenis iun notlibron, foliumis kaj ridetis, 
 
 unuan lernolibron.
 
-Li lasis la librobreton kaj ekvidis, ke apud lia lito same kiel 165
-
-VIVO VOKAS
+Li lasis la librobreton kaj ekvidis, ke apud lia lito same kiel
 
 
 iam staras la malgranda tablo, kaj sur ĝi kuŝas paperoj kun
@@ -6486,26 +5244,17 @@ Subite li tamen forturnis sin de tiuj aferoj kaj komencis
 devesti sin. Antaŭ ol enlitiĝi li iris al sia valizo kaj alportis al sia tablo du dikajn notlibrojn en vakstolaj kovriloj. Johano tuj rekonis unu el ili. Estis la malnova taglibro, liaj ”Paŝoj”. La dua similis al la unua. Enlitiĝinte li skribis en ĝi dum kelkaj minutoj, antaŭ ol li definitive sin kuŝigis.
 
 
-VIVO VOKAS
-
-
 Malgraŭ sia laco Eriko vekiĝis en la sekvanta mateno jam
 
-je la naŭa. Li tuj ellitiĝis, lavis kaj razis sin kaj surme-
+je la naŭa. Li tuj ellitiĝis, lavis kaj razis sin kaj surmetis tiajn vestojn, kiajn li dum preskaŭ unu jaro ne portis.
 
-tis tiajn vestojn, kiajn li dum preskaŭ unu jaro ne portis.
-
-La patrino vokis lin al matenmanĝo, kaj li iris en la kuire-
-
-jon. ŝi renkontis lin kun afabla mieno kaj babilemo.
+La patrino vokis lin al matenmanĝo, kaj li iris en la kuirejon. ŝi renkontis lin kun afabla mieno kaj babilemo.
 
 —Vi estus devinta dormi multe pli longe post tia vojaĝo.
 
 Sed ĉar vi vekiĝis, vi certe same multe bezonas ion por via
 
-stomako. Certe vi pli ol unu fojon sopiris iom da solida hej-
-
-ma manĝaĵo, ĉu ne?
+stomako. Certe vi pli ol unu fojon sopiris iom da solida hejma manĝaĵo, ĉu ne?
 
 —Foje, jes.
 
@@ -6527,16 +5276,9 @@ ridetis pro ŝia afablo.
 
 —Jes, mi devus sarki la legombedojn, sed verŝajne la tero
 
-estas tro malseka post la pluvo. Sed mi povas sidi ekstere kaj fliki ŝtrumpojn. Tamen ankaŭ vi devas eliri, promeni, renkon-167
+estas tro malseka post la pluvo. Sed mi povas sidi ekstere kaj fliki ŝtrumpojn. Tamen ankaŭ vi devas eliri, promeni, renkonti konatojn, povos viziti Elsan. Estas tro enue por vi sidi hejme.
 
-VIVO VOKAS
-
-
-ti konatojn, povos viziti Elsan. Estas tro enue por vi sidi hejme.
-
-Al tiu propono li ne respondis, kaj li ne eliris. Post la man-
-
-ĝo li restis en la kuirejo sidante apud la fenestro kaj rigardis la straton kun ludantaj infanoj kaj preterpasantaj virinoj kaj knabinoj. Sed lia mieno estis same malgaja kiel antaŭe.
+Al tiu propono li ne respondis, kaj li ne eliris. Post la manĝo li restis en la kuirejo sidante apud la fenestro kaj rigardis la straton kun ludantaj infanoj kaj preterpasantaj virinoj kaj knabinoj. Sed lia mieno estis same malgaja kiel antaŭe.
 
 Unu horon li restis tie. Poste li subite levis sin kaj foriris.
 
@@ -6546,9 +5288,7 @@ li vizitis la kontoron, denove ricevis laboron kaj komencos la sekvantan matenon
 
 La patrino surpriziĝis kaj ŝajnis ne kontenta.
 
-—Estas bone, ke vi volas labori, sed certe semajno da ripo-
-
-zo estus utila por vi.
+—Estas bone, ke vi volas labori, sed certe semajno da ripozo estus utila por vi.
 
 —Estas pli bone tuj komenci.
 
@@ -6568,15 +5308,9 @@ igis saluti per manpremo kaj genuflekso.
 
 havas. En la milito li estis.
 
-Kaj ŝi faris multajn demandojn pri la milito kaj pri Hispa-
+Kaj ŝi faris multajn demandojn pri la milito kaj pri Hispanujo, sed Eriko tiel mallonge respondis, ke ŝi fine devis lasi tion.
 
-nujo, sed Eriko tiel mallonge respondis, ke ŝi fine devis lasi tion.
-
-—Nu, mi komprenas, ke estas malfacile rakonti pri memo-
-
-roj el milito, ŝi diris. Mi legis, ke partoprenintoj de milito ne povas facile rakonti pri la teruraj aferoj, precipe ne tuj. Sed nun vi povas danki Dion, ke vi revenis, kaj alian fojon vi estos pli saĝa. Faru kiel Rudo kaj mi: aĉetu pecon da tero, kon-168
-
-VIVO VOKAS
+—Nu, mi komprenas, ke estas malfacile rakonti pri memoroj el milito, ŝi diris. Mi legis, ke partoprenintoj de milito ne povas facile rakonti pri la teruraj aferoj, precipe ne tuj. Sed nun vi povas danki Dion, ke vi revenis, kaj alian fojon vi estos pli saĝa. Faru kiel Rudo kaj mi: aĉetu pecon da tero, kon-168
 
 
 struu domon, edziĝu kun bona kaj taŭga knabino! Tiam vi
@@ -6587,9 +5321,7 @@ hejmo kaj ne bezonos iri al eksterlando kaj milito por trovi
 
 ion travivindan. —
 
-En la vespero venis Jern. Kore kaj kun ĝojobrilo en la oku-
-
-loj li salutis Erikon.
+En la vespero venis Jern. Kore kaj kun ĝojobrilo en la okuloj li salutis Erikon.
 
 —Kaj tiel ŝtele vi forkuris, ruzulo, ke mi estis tute kolera
 
@@ -6615,23 +5347,14 @@ poste parolos en la klubo kaj en la esperanta klubo, kaj ni
 
 aranĝos ankaŭ publikan paroladon!
 
-Poste ankaŭ li faris multajn demandojn, sed Eriko respon-
-
-dis same mallonge al li kiel al Elsa.
-
-
-VIVO VOKAS
+Poste ankaŭ li faris multajn demandojn, sed Eriko respondis same mallonge al li kiel al Elsa.
 
 
 En la unua sabata vespero post la reveno Eriko renkontis
 
-Ajnan. Denove ili iris la saman vojon kiel en la somer-
+Ajnan. Denove ili iris la saman vojon kiel en la somermeza vespero antaŭ unu jaro.
 
-meza vespero antaŭ unu jaro.
-
-Ili renkontis kiel tiam gejunulojn survoje al la popola par-
-
-ko, aŭdis la saman tonbruon de aktuala dancmuziko, venis
+Ili renkontis kiel tiam gejunulojn survoje al la popola parko, aŭdis la saman tonbruon de aktuala dancmuziko, venis
 
 denove al la senhoma kaj trankvila arbaro kaj haltis en la sa-ma loko ĉe la lago.
 
@@ -6661,12 +5384,7 @@ demandis:
 
 Malproksima estis por ŝi tiu tempo, kiam ŝi kune kun li
 
-batalis por liberigo kaj nova socio. ŝia vizaĝo spegulis surpri-170
-
-VIVO VOKAS
-
-
-zon pro la demando, sed la surprizo ne rompis tiun belan
+batalis por liberigo kaj nova socio. ŝia vizaĝo spegulis surprizon pro la demando, sed la surprizo ne rompis tiun belan
 
 trankvilon, kiu ankaŭ nun elradiis de ŝi.
 
@@ -6674,9 +5392,7 @@ trankvilon, kiu ankaŭ nun elradiis de ŝi.
 
 diris simple kaj neĝenite.
 
-—ĉu vi multe legis kaj lernis en tiuj libroj, kiujn mi reko-
-
-mendis al vi?
+—ĉu vi multe legis kaj lernis en tiuj libroj, kiujn mi rekomendis al vi?
 
 —Neniom mi legis en tiuj libroj, neniom mi lernis pri sociaj
 
@@ -6710,18 +5426,13 @@ ideo helpas al oni pli facile porti malfacilaĵojn kaj dolorojn.
 
 mi, ŝi diris en preskaŭ pardonpeta tono, sed tamen ŝi restis
 
-same trankvila. Verdire mi ne meritis. Post via foriro mi komencis kompreni, ke mia intereso por viaj ideoj estis nur pre-
-
-teksto por proksimiĝo al vi.
+same trankvila. Verdire mi ne meritis. Post via foriro mi komencis kompreni, ke mia intereso por viaj ideoj estis nur preteksto por proksimiĝo al vi.
 
 Li rigardis ŝin pli atente, kaj lia rigardo havis kuriozan
 
 esprimon, sed ŝi ne povis diri, ĉu pro surprizo aŭ ne, ĉu pro malkontento aŭ kontento.
 
 —ĉu tiel. Pri tio mi ne havis eĉ ombreton da suspekto.
-
-
-VIVO VOKAS
 
 
 —Mi kredas vin. Mi mem ne komprenis, nur foje sentis, ke
@@ -6738,9 +5449,7 @@ malbone uzis tiun tempon.
 
 Post tio ŝi iom paŭzis, sed baldaŭ daŭrigis kun voĉo pli
 
-mallaŭta ol antaŭe ŝi rakontis pri siaj terurvizioj de liaj sango-makulitaj manoj kaj lia vizaĝo de mortiganto, pri la turmen-
-
-to kaj teruro de siaj solecaj vesperoj.
+mallaŭta ol antaŭe ŝi rakontis pri siaj terurvizioj de liaj sango-makulitaj manoj kaj lia vizaĝo de mortiganto, pri la turmento kaj teruro de siaj solecaj vesperoj.
 
 Ankaŭ pri la bildo de la bona paŝtisto ŝi rakontis, kaj kiel
 
@@ -6758,16 +5467,11 @@ diri tiel pri mi, sed tio estas por mi tute egala. Kaj pri kredaj unuiĝoj mi an
 
 tio. Mi nur ekhavis iun novan senton, ke mi vivu juste, kiel
 
-instruis Kristo, laŭ mia konscienco. Tiam mia vivo havos ple-
-
-nan sencon, kaj ĉio alia estos negrava, trankvile mi poivos iri mian vojon, okazu kio ajn. Kaj tiu sento ne forlasis min plu.
+instruis Kristo, laŭ mia konscienco. Tiam mia vivo havos plenan sencon, kaj ĉio alia estos negrava, trankvile mi poivos iri mian vojon, okazu kio ajn. Kaj tiu sento ne forlasis min plu.
 
 —ĉu vi legas la biblion?
 
 —Kiam mi estis infano, mi ofte legis. i ĉiam kuŝis sur la
-
-
-VIVO VOKAS
 
 
 tablo de avinjo, kaj ŝi ĉiutage legis en ĝi. Post la fino de la lernejo mi preskaŭ neniam legis. Nun mi denove foje legas, jen
@@ -6784,13 +5488,9 @@ forton.
 
 Estas belaj kaj saĝaj aferoj en la biblio. Tiuj, kiuj skribis la biblion, ofte rigardis kaj kredis kiel malgrandaj infanoj, kaj foje ili havis kuriozajn pensojn, sed tamen ili estis saĝaj kaj vidis la sencon de la vivo pli bone ol ni ordinare faras. — Sed ĉu vi ne volas nun rakonti?
 
-—Vi rajtas demandi tion. Sed mi apenaŭ scias, kiel rakon-
+—Vi rajtas demandi tion. Sed mi apenaŭ scias, kiel rakonti.
 
-ti.
-
-Kiam mi estis en malliberejo, mi unuafoje komencis pen-
-
-si. Mi supozas, ke en mi troviĝis iu emo, iu eblo por evoluo, kiu ĝis tiam ne montris sin, sed kiun aktivigis la izoleco. Kiam mi venis hejmen, mia pensado min sekvis, kaj ĝi estis por mi
+Kiam mi estis en malliberejo, mi unuafoje komencis pensi. Mi supozas, ke en mi troviĝis iu emo, iu eblo por evoluo, kiu ĝis tiam ne montris sin, sed kiun aktivigis la izoleco. Kiam mi venis hejmen, mia pensado min sekvis, kaj ĝi estis por mi
 
 kiel peza kaj dolora ŝarĝo. Poste mi aktiviĝis. Mi lernis kaj lernis, tiom ke mi preskaŭ ne vidis la mondon ĉirkaŭ mi. Kaj
 
@@ -6798,22 +5498,16 @@ mi opiniis, ke mi ankoraŭ pensas.
 
 Kiam mi venis al Hispanujo, mi denove izoliĝis. Librojn mi
 
-ne kunportis krom mia notlibro. Fremda estis la medio, frem-
-
-da la lingvo, fremdaj la homoj. La homoj estis ja miaj fratoj en la batalo, kamaradoj, sed tamen ili restis pli malpli fremdaj, eĉ la nordanoj. Mi antaŭe kreis al mi bildon pri diversaj aferoj, sed la realo ne tute respondis al la bildo.
+ne kunportis krom mia notlibro. Fremda estis la medio, fremda la lingvo, fremdaj la homoj. La homoj estis ja miaj fratoj en la batalo, kamaradoj, sed tamen ili restis pli malpli fremdaj, eĉ la nordanoj. Mi antaŭe kreis al mi bildon pri diversaj aferoj, sed la realo ne tute respondis al la bildo.
 
 Antaŭe mi kredis, ke aliĝo al grandega amaso da homoj
 
-vivantaj kaj batalantaj por la sama ideo, la sama celo, estos 173
-
-VIVO VOKAS
+vivantaj kaj batalantaj por la sama ideo, la sama celo, estos
 
 
 kulmino de la vivo. Eble estas tiel por multaj, mi ne scias. Sed mi sentis inter tiuj miloj kaj dekmiloj kaj centmiloj da homoj, ke mi estas sola, kaj ke la granda amaso estas io stranga, preskaŭ nehomeca, kion mi ne povas kompreni. Kompreneble
 
-troviĝis ankaŭ ĉe mi entuziasmo kaj batalardo, en la komen-
-
-co. Sed iom post iom mi fariĝis simpla sola homo, kiu de sia
+troviĝis ankaŭ ĉe mi entuziasmo kaj batalardo, en la komenco. Sed iom post iom mi fariĝis simpla sola homo, kiu de sia
 
 simpla vidpunkto rigardas la mondon ĉirkaŭ si.
 
@@ -6825,19 +5519,13 @@ denove pensi kiel en la malliberejo, sole per helpo de propraj spertoj kaj propr
 
 Tiam komencis ŝajni al mi, ke tiuj, kiuj volas plibonigi la
 
-mondon por la homoj, ofte forgesas la esencan aferon, la ho-
-
-mojn mem, kaj tio okazas precipe dum militoj. Kiel simpla
+mondon por la homoj, ofte forgesas la esencan aferon, la homojn mem, kaj tio okazas precipe dum militoj. Kiel simpla
 
 sola homo mi rigardis ĉirkaŭ mi kaj vidis, kiel homoj sekvas
 
-siajn imagojn kaj pro siaj imagoj suferas kaj suferigas, mor-
+siajn imagojn kaj pro siaj imagoj suferas kaj suferigas, mortigas kaj mortas. Mi vidis soldatojn kaj mi vidis civilulojn brave kaj eĉ fiere elteni suferojn, terurojn kaj eĉ morton. Ili vidis nur siajn imagojn, kaj ili apartenis al la granda amaso.
 
-tigas kaj mortas. Mi vidis soldatojn kaj mi vidis civilulojn brave kaj eĉ fiere elteni suferojn, terurojn kaj eĉ morton. Ili vidis nur siajn imagojn, kaj ili apartenis al la granda amaso.
-
-Sed mi estis sola, kaj mi vidis nur malsatajn homojn, vun-
-
-ditajn kaj disŝiritajn homojn, senhejmajn homojn, skeletosi-
+Sed mi estis sola, kaj mi vidis nur malsatajn homojn, vunditajn kaj disŝiritajn homojn, senhejmajn homojn, skeletosi-
 
 milajn infanojn, senfine da homoj en mizero. ”Tio estas la
 
@@ -6848,12 +5536,7 @@ Oni diris pri la mortigitoj en la mondmilito, ke ili malgraŭ
 ĉio ne vane falis: post ili venos eterna paco. Pasis de tiu tumulto nur dudek jaroj, sed jam la nuna situacio pli promesas eternan mortigon ol eternan pacon.
 
 
-VIVO VOKAS
-
-
-Cetere — se mi estus homo estonta, mi hontus akcepti feli-
-
-ĉon, kiu baziĝus sur mortigo de centmiloj kaj milionoj da ho-
+Cetere — se mi estus homo estonta, mi hontus akcepti feliĉon, kiu baziĝus sur mortigo de centmiloj kaj milionoj da ho-
 
 moj dum longa ĉeno de ĉiam militoplenaj jarcentoj. Kelkaj
 
@@ -6880,12 +5563,7 @@ alia?” ĉion oni defendas krom la homoj. Ili estas sen bedaŭro oferataj en la
 vivanta kaj moviĝanta kaj viandoĉifonoj forŝiritaj el la anko-raŭ vivanta amaso. —
 
 
-VIVO VOKAS
-
-
-Li silentis por kelkaj momentoj, rigardis al la tero kaj ŝaj-
-
-nis mediti.
+Li silentis por kelkaj momentoj, rigardis al la tero kaj ŝajnis mediti.
 
 —Sed plej terura en tiu afero estas, ke ĝi ŝajnas preskaŭ
 
@@ -6903,24 +5581,17 @@ grandsinjoroj en la fino de la mezepoko provis servutigi la
 
 liberajn malgrandbienulojn en nia lando, tiuj forpelis batale la sinjorojn kaj iliajn soldatojn, kaj mi komprenas tion, eĉ
 
-devas diri, ke ni ŝuldas dankon al ili. Kaj se venos novaj sinjoroj por servutigi nrpe kaj anime — kion fari, se ne pro-
-
-vi malhelpi la aferon?
+devas diri, ke ni ŝuldas dankon al ili. Kaj se venos novaj sinjoroj por servutigi nrpe kaj anime — kion fari, se ne provi malhelpi la aferon?
 
 Estas afero senespera. Kion mi povas fari? Nur repreni
 
-mian lokon inter laborantaj homoj kaj kiel ili akiri mian ĉiutagan panon, eble fari ian sensignifan laboron por la komu-
-
-na bono, iom pensadi en miaj liberaj horoj. Por grandaj vor-
+mian lokon inter laborantaj homoj kaj kiel ili akiri mian ĉiutagan panon, eble fari ian sensignifan laboron por la komuna bono, iom pensadi en miaj liberaj horoj. Por grandaj vor-
 
 toj kaj idolaj imagoj mi apenaŭ havos uzon plu. Ne estas faci-le adapti sin al la mondo, kia ĝi estas, sed ŝajne tio estas la sola vojo, se oni ne volas kapitulaci.
 
 Li levis la kapon kaj rigardis ŝin, kvazaŭ li atendus de ŝi ian komenton. ŝi estis serioza ĝis malgajo, sed la serena trankvilo same kiel antaŭe estis la plej grava trajto en ŝia vizaĝo kaj en ŝia tuta teniĝo.
 
 —La mondo estas malbona kaj malbela rilate al granda
-
-
-VIVO VOKAS
 
 
 parto de la homaj faroj. Kaj tamen la vivo estas bela kaj ple-na de ĝojo. Estas kvazaŭ mi interne aŭdus mirindan kanton,
@@ -6941,9 +5612,7 @@ Se Kristo ekzistus, li povus rigardi min kiel vi. Ho jes, vi
 
 vidas miajn manojn kaj mian vizaĝon, vi vidas, ke estas sango sur la manoj, kaj la vizaĝo portas la stampon de mortiginto.
 
-Mi volus penti, se pento havus sencon, sed kia senco en pen-
-
-to, se la vivo estas tia? Sed peze mi sentas, ke mi apartenas al tiuj estaĵoj, kiuj mortigas unu la alian.
+Mi volus penti, se pento havus sencon, sed kia senco en pento, se la vivo estas tia? Sed peze mi sentas, ke mi apartenas al tiuj estaĵoj, kiuj mortigas unu la alian.
 
 Li kvazaŭ time rigardis ŝin, sed tuj denove mallevis la kapon. Lia korpo ektremis, kaj li forte kunmordis la makze-lojn.
 
@@ -6955,9 +5624,7 @@ estis kune.
 
 liajn manojn kaj poste preĝe-solene kisis ilin. ŝi karesis lian vizaĝon, kaj ŝiaj okuloj, serenaj kiel la vespera ĉielo, rigardis en liajn. El ŝiaj okuloj kaj el ŝiaj manoj la trankvilo kvazaŭ transfluis al li. La streĉita, malmola esprimo en lia vizaĝo mal-streĉiĝis, la makzeloj ĉesis mordi, kaj la sulkoj sur la frunto kaj ĉirkaŭ la okuloj glatiĝis. Lia vizaĝo kiel iam antaŭe fariĝis knabeca kaj ŝajnis netuŝita de turmento kaj volstreĉo.
 
-—Vi estas bona, li flustris kun eta rideto sur la lipoj. Mi ne 177
-
-VIVO VOKAS
+—Vi estas bona, li flustris kun eta rideto sur la lipoj. Mi ne
 
 
 opinias, ke via bono povos, por tiel diri, pardoni mian brutecon. Se mi pekon faris, mi devas ankaŭ porti ĝin, kaj se la
@@ -6966,13 +5633,9 @@ mondo estas malbona, ĝi tia restos malgraŭ via sinteno al mi.
 
 Sed vi helpas min elteni. ĉu vi tiel kondutas nur pro tio, ke vi similas al Kristo, aŭ ĉu vi ankoraŭ volas resti kune kun mi?
 
-—Antaŭ unu jaro, ŝi diris, mi amis ne vin, sed la batalan-
+—Antaŭ unu jaro, ŝi diris, mi amis ne vin, sed la batalanton kaj la heroon, kiun mi vidis en vi, kaj mi amis, eble tio estis la ĉefa afero, la kuneston kun viro.
 
-ton kaj la heroon, kiun mi vidis en vi, kaj mi amis, eble tio estis la ĉefa afero, la kuneston kun viro.
-
-En tiu ĉi momento vi aspektas kiel infano, kiel knabo ne-
-
-tuŝita de malbono. ĉu vi memoras, kiel la bona paŝtisto diris al la homoj: ”Se vi ne fariĝos kiel infanoj, vi ne eniros la regnon ĉielan.” Nun mi vidas infanon en via vizaĝo, infano-
+En tiu ĉi momento vi aspektas kiel infano, kiel knabo netuŝita de malbono. ĉu vi memoras, kiel la bona paŝtisto diris al la homoj: ”Se vi ne fariĝos kiel infanoj, vi ne eniros la regnon ĉielan.” Nun mi vidas infanon en via vizaĝo, infano-
 
 homon, vidas vin, kia vi plej interne estas, kaj tiun knabon mi amas, kun tiu knabo mi volas vivi kune. Se mi nur povus por
 
@@ -6982,14 +5645,9 @@ homon, vidas vin, kia vi plej interne estas, kaj tiun knabon mi amas, kun tiu kn
 
 Sed ŝi rigardis lin, kaj en ŝiaj okuloj aperis vibra brilo, deli-kata kaj plena de junaj revoj kiel la violkoloraj vesperoj de printempiĝo, hela kiel la lumvibro en la blua ĉielo de somera tago
 
-—Sed foje vi montros vin al mi kiel nun. Kaj kiam via viza-
-
-ĝo estos malmola kaj malhela, mi tamen scios, ke alie aspek-
+—Sed foje vi montros vin al mi kiel nun. Kaj kiam via vizaĝo estos malmola kaj malhela, mi tamen scios, ke alie aspek-
 
 tas vi mem, mi povos vin vidi, kvankam aliaj okuloj ne vidos.
-
-
-VIVO VOKAS
 
 
 www.omnibus.se/

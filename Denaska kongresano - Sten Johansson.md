@@ -12,7 +12,6 @@ DENASKA KONGRESANO
 
 Sten Johansson
 
-DENASKA KONGRESANO
 
 kaj aliaj noveloj
 
@@ -20,9 +19,7 @@ kaj aliaj noveloj
 ĉi tiu ekzistas ankaŭ en presita
 
 
-UEA (www.uea.org), ĉe vialanda libro-
-
-servo aŭ rekte ĉe la eldonejo
+UEA (www.uea.org), ĉe vialanda libroservo aŭ rekte ĉe la eldonejo
 
 Al-fab-et-o,
 
@@ -36,15 +33,8 @@ Svedio
 
 (alfabeto@esperanto.se)
 
-@omnibus.se
 
-·
-
-
-DENASKA KONGRESANO
-
-
-ANTAŭPAROLO
+ANTAŬPAROLO
 
 Por nunepoka leganto la novelo prezentas oportunan formon de literaturo. Neampleksa kaj tempoŝpara ĝi tamen kapablas redoni kernan enhavon de tuta romano. Oni povas kompari novelon kun bildoarta skizo. Ofte ĝia minimume detala trajto montriĝas pli vera kaj pli rekte peras artan im-preson ol finlaborita pentraĵo. Simpleco estas bazo de arto entute.
 
@@ -57,10 +47,7 @@ La riveretoj kune plenigas la maron.
 Stig Jacobson
 
 
-DENASKA KONGRESANO
-
-
-LA ĉOKOLADA BISKVITO
+LA ĈOKOLADA BISKVITO
 
 (Unua premio de la branĉo prozo
 
@@ -74,9 +61,7 @@ Je la deka kaj duono mi devis anonci min. Kiel kutime mi iris trame. enerale mi 
 
 La kafejo estis plenplena de atendantoj, sed mi trovis libe-ran tablon, kie mi metis mian kafon. Kompreneble mi lasis la mansaketon ĉe la kasejo, kaj devis reiri por preni ĝin. Feliĉe neniu fripono jam pinĉis ĝin.
 
-Revenante mi konstatis, ke teda, grizhara eksterlandano prenis lokon ĉe mia tablo. Nu ja, nenio direbla, ĉiuj tabloj estas okupitaj, plejparte de unuopuloj. Prenante mian biskviton mi tamen surpriziĝis, por ne diri pli. En la biskvito estis bela spuro de dentoj, mankis al ĝi unu mordaĵo, kaj troviĝis neniu dubo kie serĉi tiun mordaĵon. Antaŭ la maljunulo staris taso da kafo kaj nenio plu. Tamen mi klare vidis lin kaŝe 4
-
-DENASKA KONGRESANO
+Revenante mi konstatis, ke teda, grizhara eksterlandano prenis lokon ĉe mia tablo. Nu ja, nenio direbla, ĉiuj tabloj estas okupitaj, plejparte de unuopuloj. Prenante mian biskviton mi tamen surpriziĝis, por ne diri pli. En la biskvito estis bela spuro de dentoj, mankis al ĝi unu mordaĵo, kaj troviĝis neniu dubo kie serĉi tiun mordaĵon. Antaŭ la maljunulo staris taso da kafo kaj nenio plu. Tamen mi klare vidis lin kaŝe
 
 
 maĉi kaj gluti ion. Li ankaŭ gapis al mia biskvito kaj videble ruĝiĝis. Nu vere, se iu iam havis kaŭzon ruĝiĝi...
@@ -89,15 +74,10 @@ Fine li foriris, kiel batita hundo. Sed revenis? Jes, revenis kun propra ĉokola
 
 Tre kontenta pri mi mem mi rimarkis, ke estas tempo iri al la estonta laborejo por renkonti la estron. Facile mi trovis la oficejon, kie mi devis atendi ankoraŭ dek minutojn antaŭ la pordo de la klinikestro. Mi mallaŭte ekzercis prononci lian nomon, kiu estas de fremda origino. Fine mi povis iri en lian ĉambron. Li mem ankoraŭ ne alvenis, kaj mi eksidis sur so-fon. Faldante mian mantelon sur la genuojn mi konstatis, ke el ĝia granda poŝo falis io — ĉokolada biskvito! Evidente ĝi estis la mia, do la sola kiun mi aĉetis, kiu neatentite glitis en la poŝon, kiam mi portis mian kafon al la tablo.
 
-uste tiam venis la klinikestro, grizhara enmigrinto, ŝajne 5
-
-DENASKA KONGRESANO
+uste tiam venis la klinikestro, grizhara enmigrinto, ŝajne
 
 
 ankoraŭ bedaŭranta siajn du ĉokoladajn biskvitojn, el kiuj li povis gustumi nur unu solan mordaĵon.
-
-
-DENASKA KONGRESANO
 
 
 KROKIZO
@@ -106,13 +86,9 @@ KROKIZO
 
 Li vidis ŝin unue nudan. Pli ĝuste, li vidis unue ŝian nudan korpon. Rigardis kaj taksis ĝin, mezuris la proporciojn, studis la koksojn, femurojn, pubon, mamojn, dorson, ŝultrojn. La kolon, tiel diable malfacilan. ĉiam li fuŝis la kolon, ĉe virinoj. ĉe viroj li fuŝis la plejparton, la vira korpo ŝajnis neebla, sed ĉe virinoj estis kutime la kolo. ĉe virinoj la cen-tro estis plej facila, la ventro, la mamoj. En la periferio li faris pli da eraroj. La brakoj estis malfacilaj, por ne paroli pri la manoj. Kutime li preterlasis la manojn, desegnis nur ovalojn por indiki la proksimuman grandecon. La gamboj kaj entute la ekvilibro de la korpo estis problemo, precipe ĉe stara pozo. Sidantojn aŭ kuŝantojn estis pli facile desegni.
 
-Ankaŭ la vizaĝon li evitis, desegnis nur ovalon, ĝenerale li eĉ ne pensis pri la trajtoj de la vizaĝo. ŝian vizaĝon li entute ne rigardis ĝis kiam ŝi vestis banmantelon, okaze de la paŭ-
+Ankaŭ la vizaĝon li evitis, desegnis nur ovalon, ĝenerale li eĉ ne pensis pri la trajtoj de la vizaĝo. ŝian vizaĝon li entute ne rigardis ĝis kiam ŝi vestis banmantelon, okaze de la paŭzo. Kiam ŝi kaŝis sian nudan korpon, la vizaĝo riveliĝis. Estis tute ordinara vizaĝo, cetere.
 
-zo. Kiam ŝi kaŝis sian nudan korpon, la vizaĝo riveliĝis. Estis tute ordinara vizaĝo, cetere.
-
-Kutime li profitis de la paŭzo por ripozigi la okulojn, trin-kante malrapide la amaran kafon. Li eĉ kutimis fermi la okulojn, kvankam tia izoliĝemo rimarkeble iritis la aliajn ama-torojn. Pluraj el ili kunportis siajn krokizojn ĉe la paŭzo, plen-detis pri sia nekapablo por gajni flaton de najbaro, montris al la pozistino por pruvi, ke troviĝas nenio ĝena en la situacio, 7
-
-DENASKA KONGRESANO
+Kutime li profitis de la paŭzo por ripozigi la okulojn, trin-kante malrapide la amaran kafon. Li eĉ kutimis fermi la okulojn, kvankam tia izoliĝemo rimarkeble iritis la aliajn ama-torojn. Pluraj el ili kunportis siajn krokizojn ĉe la paŭzo, plen-detis pri sia nekapablo por gajni flaton de najbaro, montris al la pozistino por pruvi, ke troviĝas nenio ĝena en la situacio,
 
 
 komentis la reliefecon de la mamoj dum la mamulino mem kuntiris sian mantelon ĉebruste.
@@ -129,11 +105,7 @@ Oni rekomencis la krokizan ekzercadon, kaj poste li ne ku-raĝis malrapidi sed i
 
 La sekvan semajnon venis nova pozistino, nur post kvar aŭ kvin semajnoj revenis ŝi. Kaj tiam la situacio jam estis tute alia, kaj estis al li multe pli malfacile desegni ŝin. Ne plu nur la kolon li fuŝis, ĉar intertempe okazis io.
 
-Intertempe okazis ĉio. Okazis unue, ke ŝi alparolis lin en la lernejo. Li tuj ĝojis renkonti konatan vizaĝon, kaj poste ruĝi-
-
-ĝis memorante, ke la vizaĝo tamen estas la parto de ŝi kiun 8
-
-DENASKA KONGRESANO
+Intertempe okazis ĉio. Okazis unue, ke ŝi alparolis lin en la lernejo. Li tuj ĝojis renkonti konatan vizaĝon, kaj poste ruĝiĝis memorante, ke la vizaĝo tamen estas la parto de ŝi kiun
 
 
 li malplej konas. Parolante kun ŝi pri ĉiutagaĵoj, la vetero, la instruistoj, li penis imagi al si ŝian ventron kun la sulketoj, ŝian dorson, ŝiajn mamojn, sed nenion li vidis antaŭ si. Estis neeble. ŝi estis du personoj, unu nun ĉeestanta kun vizaĝo sed sen korpo, alia kun nuda korpo, kies formojn li ne kapablis revoki.
@@ -144,9 +116,7 @@ Tiam okazis al li io stranga. Li, la timidulo, kiu malofte renkontis virinojn ka
 
 Li ne povus diri, ĉu regis lin deziro seksa aŭ arta. La impul-so daŭris ankoraŭ kiam ili sidis flankon ĉe flanko sur lia sofolito, kiam ili kuŝis sur ĝi, kiam ĉiuj iliaj vestaĵoj kuŝis ĵetite sur la plankon en granda amaso kaj ŝi trovis sin nuda kun li, kaj ĉifoje jam ne pozis, sed laboris, luktis, strebis, ŝvitis, deziris — kaj ankaŭ atingis. Atingis la malstreĉiĝon, la kvieton kune kun li. Kaj en tiu kvieteco li povis rekomenci la studa-don de ŝia korpo, dum ŝi ridante demandas, kion li faras, ĉu li freneziĝis?
 
-En tia maniero komenciĝis ilia rilato. ĉu ĝi estis amo? Kiu 9
-
-DENASKA KONGRESANO
+En tia maniero komenciĝis ilia rilato. ĉu ĝi estis amo? Kiu
 
 
 povus juĝi, kiuj amas kaj kiuj nur deziras — aŭ deziras ami?
@@ -164,9 +134,6 @@ Dum du jaroj ili ne renkontiĝis. ŝi ambicie finis la gimna-ziajn studojn kaj k
 ŝi iris al li kaj salutis. Neniu reago. Kun peno ŝi sukcesis igi lin rigardi en ŝian vizaĝon. En liaj okuloj ŝi trovis neniun sig-non de rekono.
 
 
-DENASKA KONGRESANO
-
-
 LA GARANTIULO
 
 (Dua premio de la branĉo prozo
@@ -181,12 +148,7 @@ Ni estas vere bela aro, indaj reprezentantoj de la civilizo, aŭ de la blankuloj
 
 Plue estas la sola virino, finna evoluhelpa ekspertizisto. ŝi laboris en lernejo de silvikulturo aŭ io simila, en Kenjo. ŝia antaŭnomo estas Sirkka, la familian nomon mi ne kaptis, sed
 
-ĝi enhavas sufiĉe da literoj en ŝajne hazarda ordo. Tie ĉi ni uzadas la antaŭnomojn; ni estas kvazaŭ familio — ha ha! La misiistoj lastatempe volas inkludi eĉ la gardantojn en la ron-11
-
-DENASKA KONGRESANO
-
-
-don familian — ĉu pro kristana amo, ĉu pro taktiko. Nu, al tio mi revenos.
+ĝi enhavas sufiĉe da literoj en ŝajne hazarda ordo. Tie ĉi ni uzadas la antaŭnomojn; ni estas kvazaŭ familio — ha ha! La misiistoj lastatempe volas inkludi eĉ la gardantojn en la rondon familian — ĉu pro kristana amo, ĉu pro taktiko. Nu, al tio mi revenos.
 
 La kvara estas mi. Mia nomo vin ne koncernas, profesie komerca agento de svisa farmacia firmo, nacie franco, kiel vi eble jam divenis pro mia emo rezoni. Mi havas tridek sep jarojn. Tio jam sufiĉas por via bezono.
 
@@ -199,10 +161,7 @@ La lingvoj, jes, ni kreis inter ni etan Babilonon. Kun la misiistoj mi parolas m
 Ho, mi preskaŭ forgesis! La gardantoj parolas al ni angle, kun nekonata akĉento. Ili parolas sufiĉe malrapide ke ankaŭ mi kaptu la sencon. La naciecon de la kaperantoj ni ĝis nun ne povis diveni. Inter si ili neniam parolas en nia ĉeesto.
 
 
-Nia provizora prizono estas la antaŭa parto de la kabino, kie ni povas sidi sur la foteloj, promeni po unu persono maksi-mume ok paŝojn tien, ok reen kaj tiel plu. Nokte ni kuŝas sur la ferdeko de la pasejo, en vico, krom la portugalo, kiu ĉiam 12
-
-
-DENASKA KONGRESANO
+Nia provizora prizono estas la antaŭa parto de la kabino, kie ni povas sidi sur la foteloj, promeni po unu persono maksi-mume ok paŝojn tien, ok reen kaj tiel plu. Nokte ni kuŝas sur la ferdeko de la pasejo, en vico, krom la portugalo, kiu ĉiam
 
 
 sidas. ĉeestas ĉiam unu aŭ du gardantoj kun mitraleto. Se ĉeestas du, oni rajtas gardata de unu el ili viziti la necesejon en la malantaŭa parto de la aviadilo. Se ĉeestas nur unu, oni devas atendi.
@@ -218,9 +177,6 @@ Trie, la nekonato, kiun mi nomas portugalo. Lia sinteno estas identa al mia prez
 La angla de Sirkka ne estas perfekta, sed malfeliĉe tiaj poli-tikaj insultoj formas internacian vortaron.
 
 
-DENASKA KONGRESANO
-
-
 Se ŝiaj vortoj ankoraŭ ne vekis reagon ĉe la alia flanko, tamen inter ni estiĝis malagrabla etoso. Wim petegas ŝin ĉesi-gi la akuzadon, en sia propra intereso. Ankaŭ mi foje konstatis, ke ŝia sinteno estas riska por ni ĉiuj. Sed ŝi per multaj ar-gumentoj pruvis ke ŝi agas prudente.
 
 Fine mi mem. Mia strategio baziĝas sur detala konsidera-do de la situacio kaj de la alternativaj ebloj. Mia celo estas savi mian vivon, ĉio cetera estas akcesora. La aliaj kvar iru inferen, mi eĉ ĝojos, se tio nur kreskigos mian ŝancon. Tial mi havas du diversajn planojn. La unua, kiun mi senĉese plenumadas, estas ne veki atenton. Estu tiu el la kvinopo, kiun oni laste pripensas. Kial? Simple: se komenciĝos ekzekutado, tiu okazos po unu. La kvina ekzekutoto havos kvinoble pli da ŝancoj pluvivi ol la unua.
@@ -229,12 +185,7 @@ Mia dua plano estas efektivigota en kriza okazo. Tiam ne-cesos agi rapidege kaj 
 
 — ripetita. i estas simpla ĉar ne troviĝas komplika eblo. Mi kuros al la rezerva elirejo, piede frapegos tiel ke la fenestro elfalos, kaj mi elsaltos. Mi ja diris simpla, ĉu ne? Vi ne nomas tion plano; nu bone, donu al mi pli taŭgan! Certe oni pafos al mi, sed homo kuranta kaj saltanta havas pli da ŝancoj eskapi ol homo sidanta, se oni pafas al li per mitraleto. Kaj memo-ru ke tiu ĉi plano ja sekvos la unuan planon, laŭ kiu oni aten-dos ion similan laste de mi.
 
-Do, sekvante mian unuan planon mi agas kiel eble plej normale. ”ĉiam meze” estas mia devizo. Mi malmulte parolas, sed ne mutas. Mi foje jes, foje ne partoprenas en la kart-ludado de Wim. (Kartludanta pastro — jen kien atingis la re-formacio!) Dufoje mi faris demandojn al la gardistoj: ”Kie ni estas?” kaj ”Kiam ni liberiĝos?” Neniu respondo, komprene-14
-
-DENASKA KONGRESANO
-
-
-ble. Mi sidas sola pensante, sed ne tro ofte. Mi foje kun la aliaj spekulativas pri niaj gardantoj, sed evitas lanĉi novan, saga-can teorion. Mi eĉ vizitas la necesejon kun meza ofteco.
+Do, sekvante mian unuan planon mi agas kiel eble plej normale. ”ĉiam meze” estas mia devizo. Mi malmulte parolas, sed ne mutas. Mi foje jes, foje ne partoprenas en la kart-ludado de Wim. (Kartludanta pastro — jen kien atingis la re-formacio!) Dufoje mi faris demandojn al la gardistoj: ”Kie ni estas?” kaj ”Kiam ni liberiĝos?” Neniu respondo, kompreneble. Mi sidas sola pensante, sed ne tro ofte. Mi foje kun la aliaj spekulativas pri niaj gardantoj, sed evitas lanĉi novan, saga-can teorion. Mi eĉ vizitas la necesejon kun meza ofteco.
 
 
 La ĝenerala klaĉo, gvidata de Wim kaj Sirkka, decidis ke ni troviĝas en Libio kaj ke la celo de la kaperantoj estas io kio koncernas Israelon, Iranon aŭ Afganistanon. Ankaŭ mi diskutis pri tiuj eblecoj, sed ili ne kontentigas min.
@@ -249,9 +200,6 @@ La kvara unuavide povus esti arabo, sed post gvatado mi decidis, ke li estas eŭ
 Mi trapensis ĉiujn konfliktojn kie povus aperi tia aro da teroristoj. Krome, kie Eŭropo, aŭ Okcidento, aŭ io simila estas enmiksita. Definitive mi ne solvis la misteron, sed mi trovis unu aŭ du taŭgajn kazojn. ĉiuokaze mi pensas ke kelkaj el la viroj apartenas al subpremata malplimulto en lando kun bonaj rilatoj kun okcidenta Eŭropo. Por savi niajn vivojn necesas ke la koncernaj eŭropaj registaroj influu al tiu lando cedi ion. Se mi pravas, ni eble troviĝas en Eŭropo, sed la ŝan-co trovi solvon per traktado estas nula. Des pli mi bezonas bonan planon!
 
 
-DENASKA KONGRESANO
-
-
 La situacio grade fariĝas pli streĉita. Hodiaŭ mi ŝtelaŭdis bru-skan disputon el la kokpito. Vortojn mi ne kaptis kaj eĉ ne povis identigi la lingvon. Tuj nia gardanto kriis al ni kelkajn sensencajn ordonojn por superi la neaŭdendan disputon. Sur lia frunto ekbrilis gutoj de ŝvito, kaj ŝajnas al mi ke la atmos-fero iel nervoziĝis poste. Sendube io okazos baldaŭ. ĉiuj el ni rimarkas tion, sed ĉu ĉiu havas taŭgan planon? Kredeble —
 
 
@@ -264,10 +212,7 @@ estas senkompate kaj fridsange komenci ekzekutadon de ni garantiuloj. Malfeliĉe
 ĵus Wim faris mispaŝon. En sia penado komprenigi al la nervoza gardanto, ke ni esence havas komunan intereson, li venis tro proksime, kaj la gardanto, kiu estis la ”hindo”, per sia fusilo puŝfrapis lian bruston. Wim dum momento perdis la spiradon, kaj dum duonhoro la bonan humoron. Ankoraŭ li grimacante metadas la manon al sia brusto, sed laŭte li ne plendas.
 
 
-Nun unuafoje montriĝas samtempe tri kaperantoj, la ”hindo”, 16
-
-
-DENASKA KONGRESANO
+Nun unuafoje montriĝas samtempe tri kaperantoj, la ”hindo”,
 
 
 la ”eŭropano” kun sunokulvitroj kaj unu el la ”araboj”. La sun-timanto ekparolas, kaj ŝajnas al mi ke lia akĉento estas ger-maneska. Mi devos konsulti pri tio Sirkkan, se ŝi ankoraŭ restos konsultebla.
@@ -287,18 +232,10 @@ La kaperanto daŭrigas:
 Li eksilentas kaj la duopo staranta antaŭ ni levas la fusilojn.
 
 
-DENASKA KONGRESANO
-
-
 Kion faras tiu malantaŭe mi ne vidas. Nun pruviĝu ĉu mi ĝuste planis. Kvazaŭ en nebulo mi vidas Wim genui antaŭ mi, kaj samtempe mi fore, tre fore aŭdas virinan voĉon raŭke krii
 
 ”murdistoj”, kaj la du videblaj fusiloj malrapide moviĝas ĝis mi rigardas en la nigrajn faŭkojn de ambaŭ, kaj mia korpo jam estas senmova kiel statuo kiam mi estas ĵetata dorsen kaj aŭdas la akran ekspl...
 
-
-DENASKA KONGRESANO
-
-
-DENASKA KONGRESANO
 
 (1989)
 
@@ -308,9 +245,7 @@ Mia patrino estis en la bonŝanca situacio havi asiston de du profesiuloj, alkur
 
 Bedaŭrinde, ilia praktika helpo ne daŭris ĝis panjo — kaj mi
 
-— atingis la celon en gloro. En la kriza momento ili sorbiĝis en disputo pri la demando, ĉu mi estos naskita aŭ naskata. La fraŭlino el Finnlando, ĝisosta atisto, montris al tufo de miaj vertharoj kiu jam videblis, demandante ĉu iu iam povus esti pli evidente naskata. Dume, la doktoro el Hungario principe 19
-
-DENASKA KONGRESANO
+— atingis la celon en gloro. En la kriza momento ili sorbiĝis en disputo pri la demando, ĉu mi estos naskita aŭ naskata. La fraŭlino el Finnlando, ĝisosta atisto, montris al tufo de miaj vertharoj kiu jam videblis, demandante ĉu iu iam povus esti pli evidente naskata. Dume, la doktoro el Hungario principe
 
 
 atentigis, ke la verbo naski ja klare esprimas rezulton, kaj sekve necesas el historia vidpunkto konstati ke mi estos naskita.
@@ -325,12 +260,7 @@ Sufiĉe frue mia patro ekinstruis al mi la internacian lingvon. Bedaŭrinde mi n
 
 kiun li uzadis kiel lernolibron. Mi neniam penetris pli ol la unuan ĉapitron, sed tiun mi devis tradraŝi ripetitajn fojojn, ĉar paĉjo estis obstina kiel kapro. Ankoraŭ mi memoras ĝiajn
 
-”tio estas tablo”, ”tio estas poto”, ”tio estas spongo”. Precipe tiu lasta estis neforgesebla mirindaĵo. En mia kvin- aŭ sesjara vivo mi neniam renkontiĝis kun vera spongo, sekve tiu vorto kaj la miniatura bildo de la objekto estis por mi ia mistera, preskaŭ magia simbolo de la lingvo Esperanto. Fakte, kiom koncernas ĝuste la vorton ”spongo”, oni eĉ povas aserti ke Es-20
-
-DENASKA KONGRESANO
-
-
-peranto estas mia unua lingvo. Sed eĉ guto malgranda kaj tiel plu. Malgraŭ tiu fortimiga komenco, post ankoraŭ kelkaj jaroj mi jam estis eterna komencanto. Tiam mi ekkonis la historion de onklo Rudolfo.
+”tio estas tablo”, ”tio estas poto”, ”tio estas spongo”. Precipe tiu lasta estis neforgesebla mirindaĵo. En mia kvin- aŭ sesjara vivo mi neniam renkontiĝis kun vera spongo, sekve tiu vorto kaj la miniatura bildo de la objekto estis por mi ia mistera, preskaŭ magia simbolo de la lingvo Esperanto. Fakte, kiom koncernas ĝuste la vorton ”spongo”, oni eĉ povas aserti ke Esperanto estas mia unua lingvo. Sed eĉ guto malgranda kaj tiel plu. Malgraŭ tiu fortimiga komenco, post ankoraŭ kelkaj jaroj mi jam estis eterna komencanto. Tiam mi ekkonis la historion de onklo Rudolfo.
 
 Onklo Rudolfo estis pli juna frato de mia patro. En sia ju-naĝo li estis tre promesplena esperantisto. Dum kelka tempo li eĉ redaktis, multobligis kaj distribuis la organon de espe-rantistaj gimnazianoj, ”La Verda Spongo”. Sed subite okazis katastrofo. Unu tagon li ne plu salutis mian patron per la ku-tima ”bonan matenon”, sed per ”bona matino”. Patro unue ne volis kompreni pri kio temas, sed baldaŭ li eksciis ke Rudolfo jam fondis Idistan klubon de nia urbo. Kaj kvankam li dum ĉiuj jaroj restis sola membro de tiu klubo, li neniam revenis al la verda stelo. Rudolfo por ni fariĝis sinonimo de renega-to.
 
@@ -338,12 +268,7 @@ Por mi la junula ribelemo interalie konsistis el malperme-sita renkontiĝado kun
 
 Mi jam ŝvitante kaj blasfemante ellernis la senfinan stakon da esperantaj tabelvortoj — kiu, kio, kies, tiu, tio kaj tiel plu. Nun mi eksciis ke mi devus forgesi ilin ĉiujn kaj eklerni tute novajn. Sekve, mi neniam fariĝis dua membro de la Ido-klubo.
 
-Miaj gepatroj preskaŭ ĉiujare vizitis universalan kongre-son. Ili ne volis lasi min ĉe parenco — la sola parenco estis onklo Rudolfo — kaj sekve ili devis kunpreni min kaj lasi min en la infana kongreseto. Tie mi neniam estis ŝatata, pro mia malbona lingvoscio. La kulmino okazis en la infana kongreseto de Londono en 1938. Oni simple ekzilis min el la kongreseto, sub la preteksto ke mi venigis kun mi knabinon en mal-21
-
-DENASKA KONGRESANO
-
-
-luman vestoĉambreton kaj tie flustris en ŝian orelon: ”I love you”. La stulta anserino klaĉis al la ”fraŭlino”, tio estas la gar-distino de tiu infana prizono. Oni eĉ asertis ke mi endanĝerigis la tutan kongreseton, kaj efektive, de 1940 ĝis 1946 oni entute evitis aranĝi infanajn kongresetojn, kredeble pro mi.
+Miaj gepatroj preskaŭ ĉiujare vizitis universalan kongre-son. Ili ne volis lasi min ĉe parenco — la sola parenco estis onklo Rudolfo — kaj sekve ili devis kunpreni min kaj lasi min en la infana kongreseto. Tie mi neniam estis ŝatata, pro mia malbona lingvoscio. La kulmino okazis en la infana kongreseto de Londono en 1938. Oni simple ekzilis min el la kongreseto, sub la preteksto ke mi venigis kun mi knabinon en malluman vestoĉambreton kaj tie flustris en ŝian orelon: ”I love you”. La stulta anserino klaĉis al la ”fraŭlino”, tio estas la gar-distino de tiu infana prizono. Oni eĉ asertis ke mi endanĝerigis la tutan kongreseton, kaj efektive, de 1940 ĝis 1946 oni entute evitis aranĝi infanajn kongresetojn, kredeble pro mi.
 
 Tiu tempo — el mia persona vidpunkto — estis kvieta epoko. En mia lando la aŭtoritatoj ne malamike traktis la espe-rantistojn, sed lasis ilin mem trankvile endormiĝi. Ne plu kongresaj vojaĝoj, ne plu sur la sofo fremdlandaj prelegantoj kun aŭ sen diapozitivoj, ne plu korespondamikoj. Eĉ ”La Verda Semaforo” ĉesis funkcii, kaj ial ankaŭ la mondfederalistoj ne tro aktivis. Entute, kvieta epoko.
 
@@ -351,9 +276,7 @@ Sed en la mondon venis nova tempo, kaj mi trafis el sub pluvo en riveron. Oni ta
 
 Kompreneble nia filo fariĝis denaska esperantisto, kaj mi ankoraŭ memoras mian kontentecon kiam mi banis la kna-beton kaj frotis lin, ripetante al li tiun magian formulon: ”tio estas spongo”.
 
-Mia filo komence tre riĉe plenumis la altajn ambiciojn, kiujn Donna kaj mi havis pri li. Neniam li estis forpelita el infana kongreseto — ĉu danke al pli bona rego de la lingvo aŭ 22
-
-DENASKA KONGRESANO
+Mia filo komence tre riĉe plenumis la altajn ambiciojn, kiujn Donna kaj mi havis pri li. Neniam li estis forpelita el infana kongreseto — ĉu danke al pli bona rego de la lingvo aŭ
 
 
 Sed lastatempe la filo vere ŝokis min. Estas ja konate ke la juna generacio en opinioj kaj esprimmanieroj ĉiam oponas al ni olduloj, sed aŭdu kion li unutage sputis en mian vizaĝon:
@@ -367,9 +290,6 @@ Kaj for li iris. Nu, kia lingvaĵo! Kvankam verdire mi ne tute kaptis la sencon,
 Do, kiel multaj homoj en mia aĝo, mi komencas esperi pli multe pri la nepoj. Efektive, kiam mia unua nepo festis sian unujaran naskiĝtagon, mi donacis al li tre belan kaj molan spongon. Ni esperu, ke la magio ankoraŭ funkcias!
 
 
-DENASKA KONGRESANO
-
-
 NILS LAPONO
 
 (1987)
@@ -381,9 +301,6 @@ Kiu kuraĝas sur paperon skribi ĉi tiujn liniojn al nia Plej Supera Sinjora Mo�
 ĉion ni tamen volas pretervidi kaj forgesi, nur ne la plej se-veran plagon, tio estas la Lapona Kontrolisto. Pro la Kontrolisto ne plu restas al ni la propra haŭto, nek sur dorso, nek en manoj. La kontrolisto mian filon morte batis, kaj mian filinon li uzis tiele, ke ŝi iris en la riveron. Ni ĉiuj kredas kiel certaĵon, se nia plej Alta Moŝto konus tiujn turmentojn, ni baldaŭ estus savitaj.
 
 Plej humile Nils Isakson
-
-
-DENASKA KONGRESANO
 
 
 Noticoj el Härnösand 14 Octobris
@@ -400,12 +317,7 @@ Primo: Trovis la restadejon de la lapono Nils Isakson. Konstatis, ke restis tie 
 
 Secundo: La Kabano aŭ goato estas malgranda, kovrita de torfo. Ne estas Pordo ĉe ĝi, sed nure peco el felo.
 
-Tertio: Eniris la kabanon. La ĉambro mezuras nure kvin ĝis ses ulnojn de muro al muro, meze fajrejo kaj super ĝi libera ĉielo laŭ la kutimo de laponoj, kie fumo eskapas kaj lumo envenas. Post la fajrejo kelke da ŝtipoj kaj branĉetoj. Da Kui-25
-
-DENASKA KONGRESANO
-
-
-riloj estas malmulte, krom fera poto tute nigra, pendanta de unu supra trabo, da Armiloj kaj akraĵoj neniom, sed ilin sen dubo forportis la lapono. Da Tukoj estas iomete, kvankam malpura kaj eluzita, plej multe tamen nur feloj el boaco kaj sovaĝaj bestoj. Strange estas, ke troviĝas unu Biblio en leda saketo kune kun tabako en betulŝela skatolo. Laponoj tamen ne posedas la Legadon, kial ni kredas ke la Biblio estas por magia celo ŝtelita. Tion ĉi certigas la bienuloj en najbara Bjurbygget, kiuj atestas pri Pagana praktikado kaj Magio de Nils Isakson. Kiel pruvon ili montris plurajn rokojn, kiujn li uzadis kiel sejton aŭ Idolon. Ankoraŭ estas en la kabano multo da Figuroj el ligno kaj osto, laboritaj per Tranĉilo, en formo de bestoj kaj estuloj. Ties celo estas nekonata, sed sen dubo magia. Sorĉtamburon, pri kies ekzisto atestas la loĝantoj de Bjurbygget, ni ne trovis, sed ĝi estis tro sekrete kaŝita, se la lapono ne kunportis ĝin.
+Tertio: Eniris la kabanon. La ĉambro mezuras nure kvin ĝis ses ulnojn de muro al muro, meze fajrejo kaj super ĝi libera ĉielo laŭ la kutimo de laponoj, kie fumo eskapas kaj lumo envenas. Post la fajrejo kelke da ŝtipoj kaj branĉetoj. Da Kuiriloj estas malmulte, krom fera poto tute nigra, pendanta de unu supra trabo, da Armiloj kaj akraĵoj neniom, sed ilin sen dubo forportis la lapono. Da Tukoj estas iomete, kvankam malpura kaj eluzita, plej multe tamen nur feloj el boaco kaj sovaĝaj bestoj. Strange estas, ke troviĝas unu Biblio en leda saketo kune kun tabako en betulŝela skatolo. Laponoj tamen ne posedas la Legadon, kial ni kredas ke la Biblio estas por magia celo ŝtelita. Tion ĉi certigas la bienuloj en najbara Bjurbygget, kiuj atestas pri Pagana praktikado kaj Magio de Nils Isakson. Kiel pruvon ili montris plurajn rokojn, kiujn li uzadis kiel sejton aŭ Idolon. Ankoraŭ estas en la kabano multo da Figuroj el ligno kaj osto, laboritaj per Tranĉilo, en formo de bestoj kaj estuloj. Ties celo estas nekonata, sed sen dubo magia. Sorĉtamburon, pri kies ekzisto atestas la loĝantoj de Bjurbygget, ni ne trovis, sed ĝi estis tro sekrete kaŝita, se la lapono ne kunportis ĝin.
 
 Quarto: Apud la kabano staras Provizejo sur unu fosto, laŭ la maniero de laponoj. Ene estis malmulte da sekigita viando, boaca fromaĝo, salo. Konfiskis tiujn kiel pagon de la inspekta-daj kostoj.
 
@@ -417,9 +329,7 @@ Komisaro Johannes Anderson
 Enketprotokolo
 
 
-ĉe la enketo en la karcero de Härnösand de la laponino Kris-tina Måskos, edzino de Nils Isakson, murdinto de la lapona 26
-
-DENASKA KONGRESANO
+ĉe la enketo en la karcero de Härnösand de la laponino Kris-tina Måskos, edzino de Nils Isakson, murdinto de la lapona
 
 
 kontrolisto, ŝi komence estis tute impertinenta, neante, ke ŝia edzo entute estu kulpa pri la ago. Riproĉoj de la juĝservantoj havis nenian influon al ŝia malvolemo, nek instigoj, ke ŝi ne risku la eternan ripozon de sia animo. Sekve la oficanto, ĉefkomisaro Hagwardt, estis devigita utiligi fortajn rimedojn kontraŭ la malhumila virino. ŝi tiam fine ŝanĝis sian rakon-ton, kaj konfesis ĉion, pri kio ŝi estis demandata, kaj ankoraŭ pli, kiel tion, ke ŝi kaj la edzo kaŝe decidis mortigi la pastron en Ramsele kaj du komercistojn, sed ne povis finfari tion. Post mallonge ŝi denove ŝanĝis sian vorton, ĉion duan fojon neante, kaj plue pretendis, ke ŝi ne konas la restadejon de sia edzo, tamen supozante ke li troviĝas en la montaro por serĉi es-kapintajn rangiferojn.
@@ -431,9 +341,6 @@ La arestitino do montradis apartan obstinecon, kiu fine ne ŝanĝiĝis malgraŭ 
 Demandita pri la konduto de ŝia edzo ŝi asertis, ke li estas tute pia kaj paca, kaj ke li neniam antaŭe estis en kontraŭe-co al la Superuloj. Nur je unu okazo la pastro avertis lin pri la danĝero mem legi la Sanktan Vorton en la Libro, kaj ne nur ricevi ĝin per la klarigado de la Dia Servanto. Tamen li laste fariĝis melankolia, kion ŝi atribuis al la morto de du gefiloj.
 
 Denove admonita ne prezenti mensogojn, ŝi ne plu volis paroli.
-
-
-DENASKA KONGRESANO
 
 
 Granda rivero, granda rivero, mi kantas al vi. Vi venas de la monto, vi prenas vian vojon. Neniu komisaro, neniu kontrolisto, neniu pastro haltigas vin. Neniu malhelpas vin. Vi ne laciĝas. Por ĉiu tago vi nur plifortiĝas. Granda rivero, kiam vi venas al la maro, al la urbo, tiam vi estas la sinjoro de ĉio. Vi etendas vin kaj ĉesas flui. Vi fariĝas la maro.
@@ -450,12 +357,7 @@ Granda rivero, granda rivero, mi kantas al vi. Vian fonton mi serĉos, mi vidos 
 Noticoj el Härnösand 11 Novembris
 
 
-La fuĝinta murdisto, lapono Nils Isakson, ŝajnas ankoraŭ re-stadi en la arbara regiono inter Junsele kaj Bergvattnet. Mult-28
-
-DENASKA KONGRESANO
-
-
-nombraj perfortaĵoj atestas la daŭre teruran sangavidon de la sovaĝulo. uste antaŭ la aŭtuna buĉado unu bienulo en Mårdsjö perdis sian servistinon, kiu verŝajne estas prenita de la lapono. Knabeto malaperis en la setla vilaĝo de Björksele, kaj multaj terposedantoj povas rakontadi pri rabitaj provizoj kaj distranĉitaj fiŝretoj. ĉar nun fine falis neĝo, la popolanoj tamen esperas baldaŭ neniigi la perfortulon.
+La fuĝinta murdisto, lapono Nils Isakson, ŝajnas ankoraŭ re-stadi en la arbara regiono inter Junsele kaj Bergvattnet. Multnombraj perfortaĵoj atestas la daŭre teruran sangavidon de la sovaĝulo. uste antaŭ la aŭtuna buĉado unu bienulo en Mårdsjö perdis sian servistinon, kiu verŝajne estas prenita de la lapono. Knabeto malaperis en la setla vilaĝo de Björksele, kaj multaj terposedantoj povas rakontadi pri rabitaj provizoj kaj distranĉitaj fiŝretoj. ĉar nun fine falis neĝo, la popolanoj tamen esperas baldaŭ neniigi la perfortulon.
 
 Pastro Scherwinius en Ramsele dediĉis sian predikadon okaze de la tago de ĉiuj Sanktuloj, kiam ĉeesto estas deviga ankaŭ por laponoj plej malproksime loĝantaj, al la terura fi-ago de la sovaĝulo. La prediko estis severa averto pri ĉia ri-belo kaj malobeemo kontraŭ la superuloj, kiujn Dio metis por gvidi kaj gardi la popolon. La sama milda mano, kiu donas al ni la panon ĉiutagan, ankaŭ senindulge ekstermos ĉiun, kiu servas al Antikristo, diris pastro Scherwinius. Nia raportan-to konstatis, ke liaj vortoj skuis kaj timigis la laponojn kaj kuraĝigis la lojalajn paroąnojn de Ramsele.
 
@@ -465,9 +367,7 @@ Pastro Scherwinius en Ramsele dediĉis sian predikadon okaze de la tago de ĉiuj
 
 Jes ja, patrino mia, sciu, ŝi vere povis rakonti multajn aferojn, jes vere. Pri la supernatura, pri tiaj estuloj kies nomojn oni prefere ne elparolu, nu, la malgrandaj, ĉu ne, kaj tiuj en la akvo, kiuj tiras, tiras... Jes ja, kaj antaŭsentoj, kaj ĉiaj aferoj.
 
-Kaj sciu, ŝi rakontis pri tiu, nu, tiu Nils Lapono, kiu vivis... oni diras, ke li vivis en nia arbaro antaŭ multaj benitaj jaroj. Jes, sciu, mia kara, en tiu tempo vivis ja laponoj ĉe ni, en nia pa-ro˛o, nu bone, ili nun jam longe estas for, sed la avino de patrino mia, ŝi bone memoris ilin. Jes, vere. Kaj oni diras, ke 29
-
-DENASKA KONGRESANO
+Kaj sciu, ŝi rakontis pri tiu, nu, tiu Nils Lapono, kiu vivis... oni diras, ke li vivis en nia arbaro antaŭ multaj benitaj jaroj. Jes, sciu, mia kara, en tiu tempo vivis ja laponoj ĉe ni, en nia pa-ro˛o, nu bone, ili nun jam longe estas for, sed la avino de patrino mia, ŝi bone memoris ilin. Jes, vere. Kaj oni diras, ke
 
 
 tiam vivis unu, kiu nomiĝis Nils Lapono. Nu, tiuj laponoj, ili ja estas nigraharaj kaj malaltaj, sed Nils Lapono estis giganto, pli ol sep futojn alta, diris patrino, jes, tion ŝi aŭdis de sia avino. Kaj grandan barbon li havis, ĝis la genuoj. Nu, sciu, li mortigis ursojn per siaj nudaj manoj, kaj li mem loĝis en ur-sejo. Sed, li estis plej severa al la homoj, jes ja, li estis vere granda murdisto, kaj neniam la homoj iris solaj en la arbaron.
@@ -491,10 +391,7 @@ sejto
 ŝtona aŭ ligna kultobjekto de lapona paganismo
 
 
-DENASKA KONGRESANO
-
-
-KIU KAĉON KUIRIS...
+KIU KAĈON KUIRIS...
 
 (1991)
 
@@ -510,12 +407,7 @@ Sed atendante eterne la definitivan decidon, ŝi havas nur provizoran restadperm
 
 ĉio tamen komenciĝis tiel bone. Jam antaŭ du jaroj Mira renkontis tri simpatiajn svedinojn en la IJK. Ili estis samaĝaj kun ŝi, proksimume 25-jaraj, kaj sciis multe amuziĝi samkiel ŝi. Poste ili sendadis inter si kelkajn bildkartojn, sed ŝi ne estas tre skribema persono. Pli facile estas kune babili, kaj plej facile kune ridi, ŝi opinias.
 
-Kio ĉefe frapis ŝin ĉe tiuj svedinoj, kaj kion ŝi envias al ili, estas ilia memfido kaj trankvilo. Hejme en ŝibenik la atmos-31
-
-DENASKA KONGRESANO
-
-
-fero fariĝis al ŝi ĉiam pli fendita. Kun parencoj ambaŭflanke en la frata interbuĉado, ŝi pretas krevi. Kiel eskapi kaj krei al si novan vivon?
+Kio ĉefe frapis ŝin ĉe tiuj svedinoj, kaj kion ŝi envias al ili, estas ilia memfido kaj trankvilo. Hejme en ŝibenik la atmosfero fariĝis al ŝi ĉiam pli fendita. Kun parencoj ambaŭflanke en la frata interbuĉado, ŝi pretas krevi. Kiel eskapi kaj krei al si novan vivon?
 
 Per la lasta ŝparita mono ŝi alvenas en la IJK de Karlskoga, kaj retrovas siajn amikinojn. Dumkongrese ili ne havas mul-tan tempon por ŝi, sed poste ŝi akompanas ilin al Stokholmo.
 
@@ -535,12 +427,7 @@ Tamen subite iutage Karin demandas:
 
 — ĉu vi memoras tiun ulon kun la rufa hararo kurte ton-dita, kiu estis en Karlskoga? Fredrik li nomiĝas. Mi parolis kun li, kaj li akceptus ŝajn-edziĝi al vi. Tiel vi povos resti!
 
-Mira unue ŝokiĝas, sed pripensas la aferon, renkontas Fredrikon, kaj trovas lin afabla, kvankam iom neinteresa. Li havas du jarojn malpli ol ŝi. Post du semajnoj la afero jam pretas, kaj fraŭlino Markovic transformiĝas al sinjorino Larsson. Poste venos surprizoj, sed kiu kaĉon kuiris, tiu ĝin man-
-
-ĝu.
-
-
-DENASKA KONGRESANO
+Mira unue ŝokiĝas, sed pripensas la aferon, renkontas Fredrikon, kaj trovas lin afabla, kvankam iom neinteresa. Li havas du jarojn malpli ol ŝi. Post du semajnoj la afero jam pretas, kaj fraŭlino Markovic transformiĝas al sinjorino Larsson. Poste venos surprizoj, sed kiu kaĉon kuiris, tiu ĝin manĝu.
 
 
 — Vi devos loĝi ĉe mi, kompreneble, diras Fredrik kun tre afabla mieno.
@@ -560,9 +447,6 @@ is nun ŝi pasloĝis ĉe du el la amikinoj.
 Fredrik loĝas en la Suda Kvartalo, en la strato de Sankta Paŭlo. Sendube tiu estas praktika loko, kompare kun la hejmo de Karin kaj Åsa, kiu situas en antaŭurbo. Plaĉas al ŝi promeni de lia loĝejo al la montetoj Skinnarviksbergen por ĝui la panoramon. Antaŭ ŝi akvo, fone la Urbodomo kun sia turo.
 
 Dekstre la Malnova Urbo kaj maldekstre la arkego de la Okcidenta ponto. Kaj vespere la afabla Fredrik pinĉante gitaron mekas:
-
-
-DENASKA KONGRESANO
 
 
 Bela kiel stelo, bela kiel tag’
@@ -587,9 +471,7 @@ Li restas silenta dum momento, poste suspiretas kaj reiras en sian ĉambron. ŝi
 
 Mira turnas sin en la sofolito. i efektive ne estas tro malmola, eble eĉ male. i havas iomete hamakan formon.
 
-Nevole ŝi ekpensas pri viroj. Damne! Kial nun zorgi pri 34
-
-DENASKA KONGRESANO
+Nevole ŝi ekpensas pri viroj. Damne! Kial nun zorgi pri
 
 
 tiaj? Vere troviĝas pli gravaj aferoj por pripensi. Kiam ŝi aki-ros definitivan restadpermeson kaj laborpermeson? Kiel eskapi el tiu ĉi diabla impliko? Nu jes, kiu kaĉon kuiris...
@@ -598,9 +480,7 @@ Fakte, ŝi eĉ tre volonte renkontus viron tie ĉi en Stokholmo. Ne tian hezitem
 
 Aliflanke... ŝi denove pensas pri sia lasta fianĉo, Duŝan. Li ne estis hezitema. Efektive, ĉe li ne ĝenus iom pli da hezito kaj diskreteco. Tio eĉ estis unu kaŭzo ke ŝi rompis la rilaton kun li. Li estis tro forta kaj aplomba, kaj li ne permesis al ŝi stari proprapiede. Kaj ne plaĉis al li ŝia intenco edukiĝi.
 
-ŝi pensas pri tiu ĉi Fredrik. Se li nur esprimus klare kaj laŭ-
-
-te, kion li volas! Tio ne signifas, ke li agu kiel buldozo, sed almenaŭ estu klare distingebla. Nenia ombrulo!
+ŝi pensas pri tiu ĉi Fredrik. Se li nur esprimus klare kaj laŭte, kion li volas! Tio ne signifas, ke li agu kiel buldozo, sed almenaŭ estu klare distingebla. Nenia ombrulo!
 
 Efektive, ŝi devus iam provi paroli kun li. is nun ŝi tre ĝuis diskutante, babilante, ŝercante kaj ridante kun la amikinoj.
 
@@ -621,27 +501,17 @@ la versoj en ĉi novelo estas citaĵoj el kantoj de la Stokholma rokgrupo Person
 .
 
 
-DENASKA KONGRESANO
-
-
 SPURO EN BLANKO
 
 (1989)
 
-En la kvina tago eksplodas printempo. Estas la dek kvara de majo, kaj ĝis nun la du amikoj havis normalan vete-ron — iom da suno, iom da nuboj, malforta vento kaj ĉirkaŭ kvin gradoj tage. Nur malfrue en la posttagmezoj la neĝo fari-
-
-ĝis tro malseka kaj peza, sed tiam ili kutime haltas por tag-manĝi kaj starigi la tendeton. Sed en la kvina tago ili jam matene sentas, ke ekde hodiaŭ estos finitaj la komfortaj tagoj, kaj komenciĝos io pli laboriga. La suno brilas de malhelblua duonsfero, kaj en la aero estas humida odoro de pigmebetulo kaj musko, kiu penetras de sube tra la neĝo.
+En la kvina tago eksplodas printempo. Estas la dek kvara de majo, kaj ĝis nun la du amikoj havis normalan vete-ron — iom da suno, iom da nuboj, malforta vento kaj ĉirkaŭ kvin gradoj tage. Nur malfrue en la posttagmezoj la neĝo fariĝis tro malseka kaj peza, sed tiam ili kutime haltas por tag-manĝi kaj starigi la tendeton. Sed en la kvina tago ili jam matene sentas, ke ekde hodiaŭ estos finitaj la komfortaj tagoj, kaj komenciĝos io pli laboriga. La suno brilas de malhelblua duonsfero, kaj en la aero estas humida odoro de pigmebetulo kaj musko, kiu penetras de sube tra la neĝo.
 
 De la turistaj domoj ĉe Alisjavri ili iras orienten, supren sur modera deklivo. Maldekstre ĉe la lago ili vidas de malproksime dometojn kaj goatojn en lapona somervilaĝo. Supre sur la deklivo venas iom da freŝa vento, kiu sekigas la ŝvitgutojn sur iliaj fruntoj, kaj la neĝo estas sufiĉe glita kiam ili pasas sur la lagetoj ĉaĝajavrit.
 
 Antaŭ ol gliti malsupren de la unua ŝtupo kiu kondukas en la Vistas-valon, ili paŭzas por kuiri kafon. Irante sudorienten ili alfrontos la sunon, kies senvualajn radiojn multobligas la ĉirkaŭanta blanko. Eĉ kun sunokulvitroj kaj viziera ĉapo ili suferas de tiu ĉionpenetra lumo. Nu, plendi estus sendanke,
 
-ĝuste tio ĉi ja logis ilin turisti en la neĝa nordo. Por la unua fojo ili turnas sin for de la suno konstruante sian bivakan ka-fejon. Kiel kutime ili ŝovas la skiojn oblikve en la neĝon, fo-36
-
-DENASKA KONGRESANO
-
-
-sas kavon por la piedoj, lokigas ĉiu sian plastan tatamon al la skioj kaj sidiĝas-kuŝiĝas kvazaŭ sur luksan ripozfotelon ĉe iu Mediteranea plaĝo.
+ĝuste tio ĉi ja logis ilin turisti en la neĝa nordo. Por la unua fojo ili turnas sin for de la suno konstruante sian bivakan ka-fejon. Kiel kutime ili ŝovas la skiojn oblikve en la neĝon, fosas kavon por la piedoj, lokigas ĉiu sian plastan tatamon al la skioj kaj sidiĝas-kuŝiĝas kvazaŭ sur luksan ripozfotelon ĉe iu Mediteranea plaĝo.
 
 — Estos ŝvita tago, rimarkigas Peter.
 
@@ -657,9 +527,7 @@ Bone. Jen ili malsupre sur la pli ebena fundo de la valo.
 
 Dum certa tempo la neĝo ankoraŭ estas skiebla, same glita antaŭen kiel malantaŭen. Nu, tie ĉi, kie mankas altaĵoj, la re-troglito ne tiel ĝenas. Ili deprenas la longmanikajn ĉemizojn kaj la kontraŭneĝajn gamaŝojn por pli efike aerumi la korpon.
 
-Vidiĝas la unuaj torditaj miskreskintaj betuloj laŭlonge de Vistasjokka, la rivero kaŝita sub neĝa kovrilo. Dekstre altiĝas la monto Unna Vistasĉokka, kun aspekto de malhela ŝipego naviganta suden. Maldekstre imponas la sulkaj krutaĵoj de 37
-
-DENASKA KONGRESANO
+Vidiĝas la unuaj torditaj miskreskintaj betuloj laŭlonge de Vistasjokka, la rivero kaŝita sub neĝa kovrilo. Dekstre altiĝas la monto Unna Vistasĉokka, kun aspekto de malhela ŝipego naviganta suden. Maldekstre imponas la sulkaj krutaĵoj de
 
 
 Bogiĉokka kaj Vassaĉorru, peze nigraj. Antaŭ ili la Vistas-valo sinuas sud-orienten, kaj super ĝi la blanka suno. La blanko de la tero agace turmentas la okulojn; nur sur la nigraj skeletoj de kompatindaj arbetoj eblas ripozigi la rigardon.
@@ -680,9 +548,7 @@ Kristnasko en Laponio, ĉu? Ni eĉ povus viziti Sanktan Niko-laon...
 
 Post lunĉo ili reprenas la vojon. ŝajnas ke iu trolo sidas malantaŭe sur la skioj. Ili ŝmiras parafinon sub la skioj, sed vane.
 
-Kun peno ili malrapide trenas sin malsupren de la deklivo, kvazaŭ en melaso. Poste, sur la ebeno, la irado tute haltas. Ili trovas sin profunde sub la pruo de la ŝipego Unna Vistasĉok-ka, kaj nun ekaperas la flankoj de Bossusĉokka kaj la dino-saŭra dorso de Siehtagas. Restas kvin kilometroj al la turista 38
-
-DENASKA KONGRESANO
+Kun peno ili malrapide trenas sin malsupren de la deklivo, kvazaŭ en melaso. Poste, sur la ebeno, la irado tute haltas. Ili trovas sin profunde sub la pruo de la ŝipego Unna Vistasĉok-ka, kaj nun ekaperas la flankoj de Bossusĉokka kaj la dino-saŭra dorso de Siehtagas. Restas kvin kilometroj al la turista
 
 
 dometo de Vistas, kaj tridek kvin al la vilaĝo Nikkaluokta, kun vojo, kafejo kaj aŭtobushaltejo. Daŭrigi nun ne plu eblas.
@@ -705,9 +571,7 @@ La du amikoj denove serĉas taŭgan ripozejon kun la ĉefa komfortaĵo — fluan
 
 ĝi tamen ekbrilas tra la nuboj, antaŭ ol ĝin fine kaŝas Bossusĉokka.
 
-ŝajnas ke ili ĵus endormiĝis en la tendo, kiam bip-bipas la vekhorloĝo de Johan. Senvorte ili volvas siajn dormsakojn kaj tatamojn kaj enpakas la tendon. Matenmanĝi neniu emas je la dua horo. La sulkoj de laco kaj mishumoro en iliaj vizaĝoj 39
-
-DENASKA KONGRESANO
+ŝajnas ke ili ĵus endormiĝis en la tendo, kiam bip-bipas la vekhorloĝo de Johan. Senvorte ili volvas siajn dormsakojn kaj tatamojn kaj enpakas la tendon. Matenmanĝi neniu emas je la dua horo. La sulkoj de laco kaj mishumoro en iliaj vizaĝoj
 
 
 tamen ebeniĝas, kiam Johan surmetante la skiojn surprize krias: ”Hej... mi glitas!”
@@ -716,9 +580,7 @@ Efektive, ilia vadado en la neĝo ŝajnas tiel ĵusa, ke estas malfacile kredi k
 
 Ne estas forta krusto sur la neĝo, tamen ĝi tute ŝanĝis kar-akteron. La melaso kandiĝis!
 
-Malantaŭ ili, en nordo super la valo, roziĝas la ĉielo, sed ili ne havas intereson rigardi aŭroron. Rapide suden! Ili ĵetas sin antaŭen. Post unu horo ili preterpasas la dometon de Vistas kaj la buŝon de la Granda Reajda-valo, post ankoraŭ unu ho-ro la Malgrandan. La trian flankvalon, la Gaskas-valon, ili ek-vidas je la kvina kaj duono matene. Ili paŭzas por matenman-
-
-ĝi antaŭ la dezerta ”Dometo de Lisa”. La suno ankoraŭ ne atingas la valfundon, sed ili povas sekvi ĝian rampadon malsupren sur la deklivo de la longa montodorso Gogiĉorru, kiu etendas sin de tie ĉi dudek kilometrojn ĝis Nikkaluokta, la celo de ilia skiado.
+Malantaŭ ili, en nordo super la valo, roziĝas la ĉielo, sed ili ne havas intereson rigardi aŭroron. Rapide suden! Ili ĵetas sin antaŭen. Post unu horo ili preterpasas la dometon de Vistas kaj la buŝon de la Granda Reajda-valo, post ankoraŭ unu ho-ro la Malgrandan. La trian flankvalon, la Gaskas-valon, ili ek-vidas je la kvina kaj duono matene. Ili paŭzas por matenmanĝi antaŭ la dezerta ”Dometo de Lisa”. La suno ankoraŭ ne atingas la valfundon, sed ili povas sekvi ĝian rampadon malsupren sur la deklivo de la longa montodorso Gogiĉorru, kiu etendas sin de tie ĉi dudek kilometrojn ĝis Nikkaluokta, la celo de ilia skiado.
 
 — Estos plej bone iri laŭ la nord-orienta flanko de la valo; tie restos ombro plej longe.
 
@@ -729,9 +591,6 @@ kun ŝmirfromaĝo.
 — Eble oni eĉ povos iri alten sur la deklivo, se necese, supozas Johan.
 
 — Tiuokaze ni devos tre alten, ĉar tie ĉi malsupre estas arbaro sur la deklivoj. Kaj ankoraŭ estas tiuj gorsoj, tiuj dam-nitaj ravinoj. Rigardu! Jen Roavigorsa, jen Marfigorsa, jen Gajpugorsa kaj Guppusgorsa. Ni devus iri super tiu krutaĵo, sur nivelo de mil unucent metroj! Ne eblas. Ni devos treni nin sur la valfundo. Kaj se la neĝo haltigos nin, bone, ni do dor-mos ĝis la sekvonta nokto.
-
-
-DENASKA KONGRESANO
 
 
 — Kaj maltrafos la buson! Kaj la trajnon! Nia kuŝvagono iros sen ni! Neniam!
@@ -748,12 +607,7 @@ Ili devas denove halti por manĝi. Buljonon, panon, tason da kafo, avelojn kaj s
 
 Ankoraŭ kilometron post kilometro. La suno aperas super Guppusĉokka. Preskaŭ tuj ili sentas ŝviton ekflui. Sur vasta marĉo Peter per unu piedo tretas tra la neĝotavolo en suban akvon. La irado estas ĉiam pli bremsata. Ili jam ne skias sed peze paŝas. La skipintoj fiksiĝas sub grandera neĝo kaj faligas ilin surventre en la degelaĵon.
 
-Ili haltas. Antaŭ ili malfermiĝas vasta senarba areo, evidente lago aŭ granda marĉo. Laŭ la mapo ĝi devas esti Vidnarjav-ri. Ili mezuras. Al la vojo kaj ponto trans Vistas-riveron restas kvar kaj duona kilometroj. Por elita skisportulo sur prepa-rita spuro tio egalus dek minutojn. Dek minutojn al la aŭto-41
-
-DENASKA KONGRESANO
-
-
-buso! Por ili mem, sen spuro kaj kun pezaj dorsosakoj, en la kondiĉoj de la lasta nokto, tio egalus unu horon. Sed nun —
+Ili haltas. Antaŭ ili malfermiĝas vasta senarba areo, evidente lago aŭ granda marĉo. Laŭ la mapo ĝi devas esti Vidnarjav-ri. Ili mezuras. Al la vojo kaj ponto trans Vistas-riveron restas kvar kaj duona kilometroj. Por elita skisportulo sur prepa-rita spuro tio egalus dek minutojn. Dek minutojn al la aŭtobuso! Por ili mem, sen spuro kaj kun pezaj dorsosakoj, en la kondiĉoj de la lasta nokto, tio egalus unu horon. Sed nun —
 
 ĉu ili devos atendi ĝisnokte? Peter ŝajnas konvinkita pri tio:
 
@@ -804,9 +658,6 @@ motorsledo, malgranda veturilo kun antaŭaj glitiloj
 kaj posta raŭpo por irado sur neĝo
 
 
-DENASKA KONGRESANO
-
-
 LA VIRO KIU RESTOS
 
 (1987)
@@ -817,13 +668,9 @@ Kiuj utiligas la haltejon, tiuj ĝnas. Aliajn ĝi ne koncernas.
 
 Ne estas certe, ke la aŭtobuskompanio konas la haltejon. Eble oni jam forigis ĝin por ŝpari monon. ĉe skribtablo oni eble forigis tiun ĉi haltejon, sed vojrande staras maljuna viro atendante aŭtobuson. Kaj li scias, ke la aŭtobuso haltos. Skribtable ĝi ne haltos, sed jes vojrande, en la arbaro.
 
-Antaŭ la viro do estas asfalta ŝoseo. Malantaŭ li troviĝas fosaĵo. En la fosaĵo kreskas herboj kaj someraj floroj. Ne estas akvo en la fosaĵo. Eble oni tamen malsekiĝus tretante sur la fundon, sed tion la viro ne faris. Liaj ŝuoj estas sekaj. Uzi-taj, kaj pudritaj de polvo kaj poleno, sed sekaj. Venante li pa-
+Antaŭ la viro do estas asfalta ŝoseo. Malantaŭ li troviĝas fosaĵo. En la fosaĵo kreskas herboj kaj someraj floroj. Ne estas akvo en la fosaĵo. Eble oni tamen malsekiĝus tretante sur la fundon, sed tion la viro ne faris. Liaj ŝuoj estas sekaj. Uzi-taj, kaj pudritaj de polvo kaj poleno, sed sekaj. Venante li paŝis singarde trans la fosaĵon. Maljuna li estas, sed ne kripla.
 
-ŝis singarde trans la fosaĵon. Maljuna li estas, sed ne kripla.
-
-Piediri li ankoraŭ kapablas. Li ne iras rapide, sed senĝene. Pri 43
-
-DENASKA KONGRESANO
+Piediri li ankoraŭ kapablas. Li ne iras rapide, sed senĝene. Pri
 
 
 aliaj kapabloj ni ne parolu. Inter la herboj de la fosaĵo ĉirpas grilo. Tion la viro ne aŭdas. De tridek jaroj li ne plu aŭdas ĉirpadon de griloj kaj akridoj. Kaj se li devas transiri ŝoseon, li antaŭe longe gvatas kaj aŭskultas. Sed pri tio ni ne parolu.
@@ -836,18 +683,14 @@ La viro do venis de trans la fosaĵo. Tie komenciĝas vojeto, kiu kondukas arbar
 
 La vojeto estas paro da gruzaj kaj sablaj radsulkoj, inter kiuj kreskas herboj. Tiu vojeto serpentas arbaren. Kun la ŝoseo ĝi faras akutan angulon, kaj poste deflankiĝas por ĉirkaŭi-ri monteton. La ŝoseo trairas tiun monteton senkurbe kaj sen-deklive. Helpe de dinamito oni venkis tiun obstaklon al racia trafiko. Do eblas konkludi, ke la vojeto estas eksa ŝoseo, iama antaŭulo de la nuna asfaltita ŝoseo. Sed la viro ne konkludas, li estas viro maljuna. Estis tempo kiam li kapablis aŭdi grilojn.
 
-Tiam li loĝis apud la ŝoseo. Li ne transloĝiĝis, lia domo restas sialoke, sed li ne plu loĝas ĉe ŝoseo. La viro ne migris, sed jes la ŝoseo. Li aŭdis dinamiton eksplodi, kaj li ankoraŭ aŭdis 44
-
-DENASKA KONGRESANO
+Tiam li loĝis apud la ŝoseo. Li ne transloĝiĝis, lia domo restas sialoke, sed li ne plu loĝas ĉe ŝoseo. La viro ne migris, sed jes la ŝoseo. Li aŭdis dinamiton eksplodi, kaj li ankoraŭ aŭdis
 
 
 ĉirpadon de griloj, kiam malfermiĝis la nova ŝoseo. Sur la malnova vojo ĉesis la trafiko. Ankaŭ la ĉirpado ĉesis. La griloj ne migris, sed jes lia aŭdado.
 
 Kelkfoje pasas aŭtoj preter la viro kiu atendas aŭtobuson.
 
-Iam aŭtoj iris sur la malnova vojo. ĉu efektive aŭtoj povis iri tiun vojeton, kiu nun preskaŭ ne plu videblas? ŝajnas neeble, kaj fremdulo ne kredus tion. Sed la viro ne zorgas pri frem-duloj. Li scias. Lia memorkapablo ankoraŭ funkcias. Pri aliaj kapabloj ni ne parolu. Kompreneble, tiam ne veturis multaj aŭtoj sur la vojo. Kaj ili iris malrapide. Li kriis ”jen aŭto!”, kaj la infanoj alkuris. Granda spektaklo estis, se du aŭtoj renkontiĝis apud lia domo. Tiam unu devis retroiri ĝis loko, kie la vojo estis pli larĝa. Tion memoras la viro kiu atendas aŭ-
-
-tobuson. Antaŭ li pasas aŭto, sed li ne plu krias ”jen aŭto”. La aŭtoj migris kun la ŝoseo, la grila ĉirpado estingiĝis, la viro maljuniĝis kaj ĉesis krii ”jen aŭto”. Li ne bedaŭras la aŭtojn, kiuj ne plu preterpasas lian domon. Intertempe ili multiĝis kaj rapidiĝis, kaj la viro malrapidiĝis. La paso de aŭto ne plu signifas spektaklon, sed ĝenon kaj bruon. Se aŭtoj ankoraŭ pa-sus preter lia domo, li ne plu povus aŭdi ĉirpadon de griloj.
+Iam aŭtoj iris sur la malnova vojo. ĉu efektive aŭtoj povis iri tiun vojeton, kiu nun preskaŭ ne plu videblas? ŝajnas neeble, kaj fremdulo ne kredus tion. Sed la viro ne zorgas pri frem-duloj. Li scias. Lia memorkapablo ankoraŭ funkcias. Pri aliaj kapabloj ni ne parolu. Kompreneble, tiam ne veturis multaj aŭtoj sur la vojo. Kaj ili iris malrapide. Li kriis ”jen aŭto!”, kaj la infanoj alkuris. Granda spektaklo estis, se du aŭtoj renkontiĝis apud lia domo. Tiam unu devis retroiri ĝis loko, kie la vojo estis pli larĝa. Tion memoras la viro kiu atendas aŭtobuson. Antaŭ li pasas aŭto, sed li ne plu krias ”jen aŭto”. La aŭtoj migris kun la ŝoseo, la grila ĉirpado estingiĝis, la viro maljuniĝis kaj ĉesis krii ”jen aŭto”. Li ne bedaŭras la aŭtojn, kiuj ne plu preterpasas lian domon. Intertempe ili multiĝis kaj rapidiĝis, kaj la viro malrapidiĝis. La paso de aŭto ne plu signifas spektaklon, sed ĝenon kaj bruon. Se aŭtoj ankoraŭ pa-sus preter lia domo, li ne plu povus aŭdi ĉirpadon de griloj.
 
 Eĉ se li kapablus, li ne povus. ĉar la trafiko estas for, li nun povus aŭdi grilojn, se li nur kapablus. Junaj homoj povas aŭdi ilin. Se loĝus tie ĉi junaj homoj, ili sendube aŭdus la grilojn.
 
@@ -860,18 +703,13 @@ Restas la maljuna viro, restas ankoraŭ kelkaj maljunuloj. La junaj homoj maljun
 Junaj homoj veturas aŭte sur la ŝoseo. Ili preterpasas la viron kiu atendas aŭtobuson. Eble ili vidas lin, eble ne. La vojeton ili ne vidas, kaj ili ne divenas, ke troviĝas tie ĉi aŭtobushaltejo.
 
 
-DENASKA KONGRESANO
-
-
 ĉu ili aŭdas grilojn? Se ili haltigus la aŭton, saltus trans la fosaĵon kaj irus sur la vojeton, eble ili aŭdus ĉirpadon de griloj. Sed ili ne havas tempon halti. Kondukante aŭton neniu povas aŭdi grilojn, kaj por halti ne sufiĉas la tempo.
 
 Por la viro kiu atendas aŭtobuson sufiĉas la tempo. Li tamen ne havas pli da tempo ol la junaj homoj en la aŭtoj. Efektive li havas malpli, li estas maljuna. Sed la tempo, kiun li havas, sufiĉas al li. La aŭtobuso malfruas, sed li ne maltrankviliĝas. La homoj kiuj veturas aŭtobuse eble malpacienciĝas.
 
 Ili venos hejmen pli malfrue. Ili ne havas tempon, al ili ne sufiĉas la tempo, ili perdas tempon. Sed la viro ĉe la vojrando ne perdas tempon. Li trankvile atendas. La aŭtobuso venos. La aŭtobuso haltos. i haltos ĉe la haltejo, kiun fremdulo ne povas vidi. Eble iu veturanto, al kiu ne sufiĉas la tempo, malpacienciĝos. Kial halti tie ĉi, meze de arbaro? Tie ĉi ja ne troviĝas haltejsigno! Sed oni ne disputos kun la ŝoforo, ĉar tio prenus ankoraŭ pli da tempo. Oni estas survoje hejmen de la laborejo. Estas severa puno devi labori en tia varma somera tago.
 
-La viro kiu atendas aŭtobuson ne plu laboras. Li estas pensiulo. Antaŭ ol pensiulo li estis senlaborulo. Kaj antaŭ tio li estis segisto, laboristo en segejo. Sed la segejo ĉesis. Tio ne signifas, ke la segado ĉesis, oni ankoraŭ segas, sed la segado migris. La malgranda arbara segejo ĉesis. i ne plu estis profi-ta. La segado migris al pli granda segejo en urbeto. Kelkaj laboristoj kunmigris, sed la viro kiu atendas aŭtobuson estis tro maljuna. Pensiulo li ankoraŭ ne estis. Li ne estis sufiĉe maljuna, sed tro maljuna. La malgranda segejo ne estis profi-ta, nek la maljuna viro. De tiam li ne plu laboras. Estas vere, ke li kultivas terpomojn kaj karotojn, ke li segas kaj hakas sian 46
-
-DENASKA KONGRESANO
+La viro kiu atendas aŭtobuson ne plu laboras. Li estas pensiulo. Antaŭ ol pensiulo li estis senlaborulo. Kaj antaŭ tio li estis segisto, laboristo en segejo. Sed la segejo ĉesis. Tio ne signifas, ke la segado ĉesis, oni ankoraŭ segas, sed la segado migris. La malgranda arbara segejo ĉesis. i ne plu estis profi-ta. La segado migris al pli granda segejo en urbeto. Kelkaj laboristoj kunmigris, sed la viro kiu atendas aŭtobuson estis tro maljuna. Pensiulo li ankoraŭ ne estis. Li ne estis sufiĉe maljuna, sed tro maljuna. La malgranda segejo ne estis profi-ta, nek la maljuna viro. De tiam li ne plu laboras. Estas vere, ke li kultivas terpomojn kaj karotojn, ke li segas kaj hakas sian
 
 
 brullignon. Sed tio ne estas laboro. Krome li riparas sian domon kaj helpas al sia edzino pri la edzinaj taskoj de la hejmo.
@@ -886,12 +724,7 @@ La viro, kiu atendas ne aŭtobuson sed sian edzinon, scias ke ŝi ne resaniĝos.
 
 Iutage la viro helpos sian edzinon el la domo, ne al aŭtobuso, sed al taksio aŭ ambulanco. Migros ankaŭ ŝi, al hospitalo por kronikaj malsanuloj. Tiam li estos sola en la arbaro, sola en la domo kiun li konstruis. Sola li propramane portis lignon el la segejo, sola li konstruis la domon, sola li restos en
 
-ĝi. La unua infano jam estis survoje, kiam la viro kun sia juna edzino forlasis la provizoran hejmon ĉe la bopatro. Ankoraŭ du infanojn ŝi naskis al li en la propra domo. ĉiuj tri nun lo-
-
-ĝas enurbe, kaj li ne scias kiel longe li ankoraŭ havos ŝin ĉe si.
-
-
-DENASKA KONGRESANO
+ĝi. La unua infano jam estis survoje, kiam la viro kun sia juna edzino forlasis la provizoran hejmon ĉe la bopatro. Ankoraŭ du infanojn ŝi naskis al li en la propra domo. ĉiuj tri nun loĝas enurbe, kaj li ne scias kiel longe li ankoraŭ havos ŝin ĉe si.
 
 
 La viro ĉe la vojrando estas kontenta, ke liaj infanoj migris urben. Arbare troviĝas nenio por ili. Li ne plendas pri tio, li ne estas viro kiu plendas. Li estos kontenta ankaŭ kiam la edzino iros al hospitalo. Li prizorgos ŝin hejme tiel longe kiel li kapablos, sed li ne ŝatus teni ŝin en mizero. Hospitalo estos pli bona por ŝi. Estas vere ke li bedaŭros ŝin. ŝi estis la ama-tino kiun li deziris pli ol ion ajn, kaj kiun li gajnis per sia aŭda-co. Nun, post pli ol kvardek jaroj, ŝi estas kiel parto de lia propra korpo. Kaj tamen li estos kontenta resti sola kiel la lasta en sia domo, sola en sia arbaro.
@@ -901,9 +734,6 @@ La viro kiu atendas sian edzinon ne migros al la urbo. Li estos kontenta resti a
 ĝin, se li nur kapablus. Tiu estas lia loko, kaj li estos kontenta resti tie. Lia respondeco estas ne migri.
 
 La viro kiu restos rigardas maldekstren kaj vidas aŭtobuson proksimiĝi. Post momento ĝi haltos antaŭ li. Kun peno malsupreniros lia edzino apud lin, kaj ili ekiros malrapide, tre singarde, laŭ la arbara vojeto.
-
-
-DENASKA KONGRESANO
 
 
 RENKONTIO KUN BOACO
@@ -918,9 +748,7 @@ Tien ni iris laŭ la fjordoj, mirinde belan vojon, almenaŭ kiam ni kuraĝis rig
 
 ĉe iu dezerta ŝoseo proksime de la Muonia Rivero grego da boacoj trankvile promenis laŭ la vojrando. Ni malmulte atentis, ĉar ni jam alkutimiĝis al tiuj bestoj kaj ilia stranga trotado, simila al fluanta akvo. Mi nur ion diris pri la eblo trovi boacan kornon, se ni irus iom for de la ŝoseo. Sed Hanne, mia edzino, opiniis ke se ni iun trovus, tiu verŝajne estus malnova kaj plena de vermoj, kiujn ŝi ne deziris kunporti al nia lando kaj hejmo.
 
-Tiam unu besto saltis tuj antaŭ nin. Mi reflekse turnis maldekstren, sed vane. Forta, obtuza bruo, la aŭto skuiĝis, kaj mi sentis la bruston premiĝi al la sekurzono. Haltinte ni konstatis, ke koliziis kun ni bela granda virboaco. i ne sangis sed 49
-
-DENASKA KONGRESANO
+Tiam unu besto saltis tuj antaŭ nin. Mi reflekse turnis maldekstren, sed vane. Forta, obtuza bruo, la aŭto skuiĝis, kaj mi sentis la bruston premiĝi al la sekurzono. Haltinte ni konstatis, ke koliziis kun ni bela granda virboaco. i ne sangis sed
 
 
 kuŝis morta sur la pavimo. Ni ŝovis ĝin flanken. Sur la kapo-to estis malprofunda kavo, sed nenio grava.
@@ -933,9 +761,7 @@ kuŝis morta sur la pavimo. Ni ŝovis ĝin flanken. Sur la kapo-to estis malprof
 
 — ĉiuokaze ni ne scias legi tiun laponan alfabeton, kaj la ĉirkaŭaĵo estas dezerta, eĉ la ŝoseo. Ni pluiru!
 
-Hanne hezite prenis lokon en la aŭto, kaj ni ekiris. Kiam post nur du kilometroj ni preterpasis bieneton, kie fumo levi-
-
-ĝis el la kamentubo, ŝi decidis:
+Hanne hezite prenis lokon en la aŭto, kaj ni ekiris. Kiam post nur du kilometroj ni preterpasis bieneton, kie fumo leviĝis el la kamentubo, ŝi decidis:
 
 — Haltu. Ni iros sciigi pri la boaco.
 
@@ -943,32 +769,20 @@ Mi sekvis ŝin. La bienulo estis hejme, la kafo staris surta-ble, almenaŭ ia su
 
 Resume: nia informo tre amuzis lin, por ne diri ĝojigis. Laŭ li, la laponaj boacbredistoj intence pelas la bestojn al la ŝoseo por ke aŭtoj mortigu ilin, ĉar por tiel mortigita boaco la ŝta-to donas kompenson. Precipe post ĉernobilo tio estas la ĉefa maniero akiri monon per boacoj.
 
-Mi ne povas diri, ke mi kredis lin. Lia diro, aŭ ĉu mi diru lia teatra prezentado, al mi ŝajnis fonti el antagonismo inter la bienulo kaj la boacisto — jen simpla esprimo de nacia an-50
-
-DENASKA KONGRESANO
-
-
-taŭjuĝo. Malgraŭ tio ni konkludis, ke ne plu indas raporti la akcidenton al iu. Sekve ni adiaŭis la nordan bienetulon kun la intenco pluiri suden.
+Mi ne povas diri, ke mi kredis lin. Lia diro, aŭ ĉu mi diru lia teatra prezentado, al mi ŝajnis fonti el antagonismo inter la bienulo kaj la boacisto — jen simpla esprimo de nacia antaŭjuĝo. Malgraŭ tio ni konkludis, ke ne plu indas raporti la akcidenton al iu. Sekve ni adiaŭis la nordan bienetulon kun la intenco pluiri suden.
 
 Ekironte mi tamen memoris unu aferon: ni forgesis foto-grafi la boacon. Fakte, ankoraŭ mankis al ni taŭga portreto de boaco, ĉar la malĝentiluloj ĉiam forkuris, kiam ni haltis kaj levis fotoaparaton. Mi decidis reiri la mallongan distancon por eternigi la forpasintan beston. Verdire, al Hanne la ideo ne plaĉis, sed ŝi ne rifuzis kuniri.
 
 La boaco kuŝis vojrande. Mi kun peno ŝovis ĝin al apuda roko por iom apogi ĝian kapon. i eĉ ankoraŭ ne malvar-miĝis. Nia vizito ĉe la bienulo do eble ne daŭris tiel longe, kiel ŝajnis al ni? Farinte unu foton mi ekhavis pli bonan ideon. Mi malvestis mian jakon, metis ĝin sur la ŝultrojn de la mortin-ta besto kaj krome pendigis mian binoklon ĉirkaŭ ĝian kolon.
 
-Mian karan edzinon mi volis starigi apude, sed ŝi ne volis kunpozi. Kiom pli malfacile instrukcii al viva aktoro ol al mor-tinta! Nu, kun aŭ sen Hanne, mi volis fari la amuzan portre-ton, sed rigardante tra la okulario mi preskaŭ svenis. Senpova mi devis vidi la bestaĉon leviĝi, ĵeti tien-reen la kapon, salteti, kaj forkuri de la ŝoseo, vestita per bonkvalita lanjako kaj taŭ-
+Mian karan edzinon mi volis starigi apude, sed ŝi ne volis kunpozi. Kiom pli malfacile instrukcii al viva aktoro ol al mor-tinta! Nu, kun aŭ sen Hanne, mi volis fari la amuzan portre-ton, sed rigardante tra la okulario mi preskaŭ svenis. Senpova mi devis vidi la bestaĉon leviĝi, ĵeti tien-reen la kapon, salteti, kaj forkuri de la ŝoseo, vestita per bonkvalita lanjako kaj taŭga japana binoklo.
 
-ga japana binoklo.
-
-Kompreneble mi klopodis sekvi ĝin. La rezulton ne necesas priparoli. Kaj kiel la kara leganto sendube jam divenis, mia monujo kaj pasporto kuŝis en jakpoŝo. Mi preferas ne detale priskribi la interparolon en la banko, kie mi devis anonci la malaperon de niaj vojaĝĉekoj. Se tiuj nordaj ŝtatoj almenaŭ aliĝus al la Eŭropa Komunumo, tiel ke ne plu nece-sus al ni pasporto! Sed ne, ankaŭ ĉe la polico mi devis ripeti la historion: ”ne sinjoro, mi tute ne ŝercas; jes, mi estis tute 51
-
-DENASKA KONGRESANO
+Kompreneble mi klopodis sekvi ĝin. La rezulton ne necesas priparoli. Kaj kiel la kara leganto sendube jam divenis, mia monujo kaj pasporto kuŝis en jakpoŝo. Mi preferas ne detale priskribi la interparolon en la banko, kie mi devis anonci la malaperon de niaj vojaĝĉekoj. Se tiuj nordaj ŝtatoj almenaŭ aliĝus al la Eŭropa Komunumo, tiel ke ne plu nece-sus al ni pasporto! Sed ne, ankaŭ ĉe la polico mi devis ripeti la historion: ”ne sinjoro, mi tute ne ŝercas; jes, mi estis tute
 
 
 sobra; ne, en mia lando efektive neniam okazis al mi kolizio kun sovaĝa besto; jes, sendube nia ambasado sendos taŭgajn vojaĝdokumentojn.”
 
 Nun, kiam homoj demandas pri la vojaĝo al Nordkabo, mi diras simple: ”Nu, la noktomeza suno efektive estas neforgesebla spektaklo, sed la veturado estas iom tro longa kaj enua.”
-
-
-DENASKA KONGRESANO
 
 
 www.omnibus.se/

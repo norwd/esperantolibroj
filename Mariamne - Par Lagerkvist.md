@@ -5,9 +5,6 @@ Mariamne
 Al-fab-et-o
 
 
-### 1
-
-
 ## M A R I A M N E
 
 
@@ -19,14 +16,9 @@ MARIAMNE
 Bertil Nilsson
 
 
-ĉi tiu ekzistas ankaŭ en pre-
+ĉi tiu ekzistas ankaŭ en prevo de UEA (www.uea.org), ĉe via-
 
-
-vo de UEA (www.uea.org), ĉe via-
-
-landa libroservo aŭ rekte ĉe la eldo-
-
-nejo
+landa libroservo aŭ rekte ĉe la eldonejo
 
 Al-fab-et-o,
 
@@ -40,15 +32,6 @@ Svedio
 
 (alfabeto@esperanto.se)
 
-X
-
-@omnibus.se
-
-·
-
-
-## M A R I A M N E
-
 
 Kiam la granda reĝo Herodo vivis sur la tero, li estis potenca homo kaj alia homo same potenca eble neniam
 
@@ -60,22 +43,14 @@ Li estis reĝo de la judoj, sed lia popolo ne amis lin. Parte pro lia granda mal
 
 Kaj li amis Mariamne.
 
-Malgraŭ tio, ke li naskiĝis en Jerusalemo, la dezerto estis lia 3
+Malgraŭ tio, ke li naskiĝis en Jerusalemo, la dezerto estis lia
 
 
-## M A R I A M N E
-
-
-vera hejmlando, ĉar ĝi estis la lando de liaj prapatroj, kie ili ricevis sian animon. Kvankam nesciante tion, li portis la de-zerton ene en si kaj foje sentis la grandan dezertecon, kiu venas el tio. Sed li ankaŭ posedis la sovaĝan ĝojon pri la vivo, kiu karakterizis lian popolon, ĝojon je perforto, sango, lukto, je mortigado kaj je plezuro mem vivi, kiun ĝi estigas, je fuĝ-
-
-antoj kaj vunditoj, je virinraboj kaj seksperfortoj kaj je ĉio, kion alportas la milito, kiam ĝi estas sukcesa kaj bone farata, je prospero, oro, potenco, unuvorte je la tuta vivo. Ankaŭ malsukcesoj — ankaŭ tiaj okazis al li — plenigis lin per plezuro, ĉar lia malamo kontraŭ la kulpantoj estis fortega kaj ekscitis lin ĝis furiozo, kiu, fermita en li mem, zorge kaŝita an-taŭ aliaj, atendis okazon de venĝo kaj nova lukto. Sed malsukcesoj koncerne virinojn ne plenigis lin per plia vivplezuro, sed per la jam menciita dezerteco en lia interno kaj tio certe havis rilaton kun la malpleno kaj soleco en lia dezertanimo.
+vera hejmlando, ĉar ĝi estis la lando de liaj prapatroj, kie ili ricevis sian animon. Kvankam nesciante tion, li portis la de-zerton ene en si kaj foje sentis la grandan dezertecon, kiu venas el tio. Sed li ankaŭ posedis la sovaĝan ĝojon pri la vivo, kiu karakterizis lian popolon, ĝojon je perforto, sango, lukto, je mortigado kaj je plezuro mem vivi, kiun ĝi estigas, je fuĝantoj kaj vunditoj, je virinraboj kaj seksperfortoj kaj je ĉio, kion alportas la milito, kiam ĝi estas sukcesa kaj bone farata, je prospero, oro, potenco, unuvorte je la tuta vivo. Ankaŭ malsukcesoj — ankaŭ tiaj okazis al li — plenigis lin per plezuro, ĉar lia malamo kontraŭ la kulpantoj estis fortega kaj ekscitis lin ĝis furiozo, kiu, fermita en li mem, zorge kaŝita an-taŭ aliaj, atendis okazon de venĝo kaj nova lukto. Sed malsukcesoj koncerne virinojn ne plenigis lin per plia vivplezuro, sed per la jam menciita dezerteco en lia interno kaj tio certe havis rilaton kun la malpleno kaj soleco en lia dezertanimo.
 
 Lia korpo estis granda kaj iom peza kaj li havis iom krudajn vizaĝtrajtojn. Li eble ne estis bela viro, sed se oni unufoje vidis lin, oni jam ne forgesis. Almenaŭ lian rigardon oni ne forgesis, kvankam oni ne longe eltenis ĝin, ne pli longe ol necese. i estis danĝere serĉa, per ĝi li prijuĝis la homojn kaj li evidente ne ŝatis ilin. La okuloj estis brunaj kun kelkaj helaj ma-kuletoj, iuj diris, ke li havas leonokulojn, tamen leonoj ne havas tiajn okulojn, sed multe pli palajn. Lia vizaĝkoloro estis flaveca, ankaŭ la lipoj iom flavecaj. Tio ne estis sana koloro, sed cetere li ŝajnis plena de forto kaj sano. Pro tio kelkaj kredis, ke li suferas de ia malsano kaj ke li baldaŭ mortos. Sed en tio ili miskredis, li ne mortis.
 
-Ne havante ian ajn difekton, li tamen paŝis multe pli peze 4
-
-
-## M A R I A M N E
+Ne havante ian ajn difekton, li tamen paŝis multe pli peze
 
 
 per la dekstra piedo ol per la maldekstra. Li kredeble mem ne sciis tion, sed aliaj rimarkis kaj opiniis, ke li pro tio aspektas pli fortika kaj kvazaŭ malbonaŭgura, precipe se oni lin vidas de malantaŭe, kiam li rompis interparolon kaj foriras. Sed tiel ŝajnis eble pro tio, ke li en tiaj okazoj ofte estis kolera kaj ĉar lia foriro sen vortoj ne aŭguris ion bonan.
@@ -84,10 +59,7 @@ Preskaŭ ĉiuj renkontoj kun li ŝajnis malbonaŭguraj. Pli bo-ne estus, se oni 
 
 Sanga vojo lndukis al la trono, la sankta trono de Davi-do kaj Salomono, kaj okupinte ĝin lia unua ago estis venĝi sntraŭ tiuj, kiuj klopodis malhelpi, ke li ĝin okupu. Li ne forgesis, ke pro siaj perfortaĵoj li foje estis vokita antaŭ la Grandan Konsilantaron, antaŭ la sinedrion, kaj li ne forgesis, kiuj kaŭzis tion. Ili ne longe retenis sian vivon, malgraŭ tio, ke ili estis la plej altranga pastraro de Izrael kaj plej respek-tataj aĝuloj. Li malestimis la pastrojn kaj malkaŝe mokis ilin kaj la dion, kiun ili adoradis en sia malnova temploruino, kiun ili respektis pro ĝia malnoveco kaj kie oni rajtis ŝanĝi nenion en la konstruaĵo nek en la servado al la Sinjoro. An-kaŭ aliaj, kiuj lntraŭstaris aŭ povus kontraŭstari, viktimiĝis en la buĉado, kiun li okazigis tuj post sia veno al potenco. Kelkajn jarojn pli poste li, helpate de la romianoj, sieĝis Jerusalemon, sian propran ribeleman ĉefurbon, kaj permesis poste al la senpuraj paganoj prirabi kaj murdadi la stratojn plenaj de kadavroj kaj la sanktejon mem plena de mortigitoj kaj mortiĝantoj. Ne estas strange do, ke lia popolo lin malamis kaj konsideris lin monstro en homa haŭto.
 
-Sed kiel povis okazi, ke tiu sama homo malmultajn jarojn 5
-
-
-## M A R I A M N E
+Sed kiel povis okazi, ke tiu sama homo malmultajn jarojn
 
 
 pli poste komencis elkovi planon konstruigi templon por tiu dio, je kiu li ne kredis. Belegan, senkomparan templon.
@@ -111,12 +83,7 @@ Kaj kiam li forlasis ĝin por reiri al la palaco, li volonte restis dum horeto r
 ĉar li estis agema homo, homo direktita al la ekstero, al la ekstera okazado. Li neniam pensis pri si mem. Li nur estis tia, kia li estis.
 
 
-## M A R I A M N E
-
-
-Kun profunda malfidemo la judoj rigardis tiun templokon-
-
-struadon de tre peka homo, kulpa je tiom da sangaj faroj kaj ne vere el juda gento kaj ne ĝustamaniere cirkumcidita. Ili estis agititaj pro tio, ke li konstruigas domon al la Sinjoro. Kiel la Sinjoro povas permesi tion?
+Kun profunda malfidemo la judoj rigardis tiun templokonstruadon de tre peka homo, kulpa je tiom da sangaj faroj kaj ne vere el juda gento kaj ne ĝustamaniere cirkumcidita. Ili estis agititaj pro tio, ke li konstruigas domon al la Sinjoro. Kiel la Sinjoro povas permesi tion?
 
 Nu, certe ĝi ŝajnas fariĝi bela kaj multekosta templo kun muroj el marmoro, fremda ŝtono portita de fore, de tute alia lando, kaj ornamita per oro kaj arĝento, per kupro kaj Korinta bronzo, plej multekosta el ĉio. Sed ĉu la Sinjoro vere volas loĝi tiel? ĉu li vere volas tion? ĉu ne ĉio ĉi fremda kaj tro luksa propre estas por li abomenaĵo.
 
@@ -130,33 +97,20 @@ Oni ne certe sciis tion. Oni neniam povis tute certe scii pri la deziro de la Si
 
 Tamen li ne faligis la novajn murojn, kion li povus fari, se li plene malaprobus ĉi tiun templokonstruadon de malbonulo.
 
-Kaj tio eble dependis de tio, ke la malnova templo ne per unu fojo estis malkonstruita, sed nur pecon post peco anstataŭ-
-
-ata de la novaj muroj. Tiel ankaŭ estis en la interno, la serva-7
-
-
-## M A R I A M N E
+Kaj tio eble dependis de tio, ke la malnova templo ne per unu fojo estis malkonstruita, sed nur pecon post peco anstataŭata de la novaj muroj. Tiel ankaŭ estis en la interno, la serva-7
 
 
 do al la Sinjoro povis daŭri nemalhelpate, kvankam iom per-turbata de la konstrulaboro, kompreneble, sed ĝi ne estis in-terrompita. Tion la pastroj kaj la popolo timis plej multe el ĉio, ĉar nenio estas pli necesa ol ĉiun tagon servi al la Sinjoro.
 
 Oni devas konfesi, ke Herodo mem aranĝis la aferojn tiel, ke li mem ordonis, ke la konstruprocedo estu tia. Sufiĉe stranga faro, konfesinde, de tiu krima homo kaj profananto de ĉio sankta.
 
-Sed oni devas mencii, ke tio tute ne ŝanĝis ilian opinion pri li kaj ili ankaŭ ne havis kaŭzon ŝanĝi ĝin. Por ili li restis sama kiel antaŭe kaj liaj malicaj agoj en Jerusalemo kaj aliloke daŭ-
-
-re vekis teruron ĉie, kie liaj solduloj moviĝis. La pli multaj el ili estis fremdoriginaj kaj tute senrespektaj kontraŭ la loĝantoj de la lando, la popolo de la Sinjoro. Per helpo de ili li povis reteni sian potencon kaj resti sur sia trono. Ili alte taksis lin, ĉar li permesis al ili ĉion ajn, ili povis rabi kaj murdi kaj inter liaj malamikoj kaj inter tiuj, kiuj eventuale estus malamikoj, kaj ili povis konfiski iliajn propraĵojn por si kaj sia mastro. Ili similis al li kaj tial estis tre fidelaj al li.
+Sed oni devas mencii, ke tio tute ne ŝanĝis ilian opinion pri li kaj ili ankaŭ ne havis kaŭzon ŝanĝi ĝin. Por ili li restis sama kiel antaŭe kaj liaj malicaj agoj en Jerusalemo kaj aliloke daŭre vekis teruron ĉie, kie liaj solduloj moviĝis. La pli multaj el ili estis fremdoriginaj kaj tute senrespektaj kontraŭ la loĝantoj de la lando, la popolo de la Sinjoro. Per helpo de ili li povis reteni sian potencon kaj resti sur sia trono. Ili alte taksis lin, ĉar li permesis al ili ĉion ajn, ili povis rabi kaj murdi kaj inter liaj malamikoj kaj inter tiuj, kiuj eventuale estus malamikoj, kaj ili povis konfiski iliajn propraĵojn por si kaj sia mastro. Ili similis al li kaj tial estis tre fidelaj al li.
 
 ĉiuj bone konis ĉion ĉi kaj kiel sanga nebulo ĝi ĉirkaŭis lin, lian pezan staturon, kiun oni malofte vidis sed ĉiam sentis, ĉu li estis en la palaco ĉu en nekonata loko en sia regno, kie ĝuste tiam supozeble io malica estis okazonta.
 
 Nemultaj eniris la palacon kaj oni ne bone estis informitaj pri tio, kio okazas tie. Sed oni asertis, ke la vivo tie estas ob-scena kun paganaj virinoj el nekonataj triboj kaj nekonataj, humiligaj malvirtoj. Kaj ke li mem estas la plej malvirta el ĉiuj.
 
-Ne strange, oni flustris inter si — liaj spionoj povus troviĝi ĉie — ne strange, ĉar lia origino ja estas tiu lando de ĉiuj mal-8
-
-
-## M A R I A M N E
-
-
-virtoj, kie iam situis Sodomo kaj Gomoro, kaj kiun poste la Sinjoro mem dezertigis.
+Ne strange, oni flustris inter si — liaj spionoj povus troviĝi ĉie — ne strange, ĉar lia origino ja estas tiu lando de ĉiuj malvirtoj, kie iam situis Sodomo kaj Gomoro, kaj kiun poste la Sinjoro mem dezertigis.
 
 Ili fakte ne multon sciis pri tio. La vero estas, ke kun virinoj li estis kruela kaj perforta kaj sncernis pri neniu krom si mem. Lia malestimo al virinoj estis malkaŝa kaj bru-tala kaj sian perfortemon li montris ankaŭ kun ili. Estante orienta princo li ĉiam tenis virinojn ĉe si kaj liaj adjutantoj provizis novajn al li por komplezi kaj por mem transpreni ilin, kiam li trovis ilin tedaj. Kaj ofte ili tre frue tedis lin. Post kiam li kontentigis sin per ili, li ekenuis. Kelkfoje tamen povis okazi, ke li retenis iun dum relative longa tempo. Tio vekis surprizon ĉe la ĉirkaŭantaro kaj por kelka tempo kaŭzis ian ŝanĝon en la palaco. Sed li amis neniun. Kaj neniu amis lin.
 
@@ -168,10 +122,7 @@ Tiel daŭris kaj la templokonstruado kaj la vivo en la palaco, la vivo, kiun oni
 
 Kaj la stelnokto super la sankta lando, kies reĝo li estis.
 
-Sed dum longaj periodoj li forestis de sia ĉefurbo, sovaĝe raj-dante antaŭ siaj solduloj por batali, por subfrapi siajn kontraŭulojn, tiujn, kiuj eble intencus forrabi de li la potencon kaj mem potenciĝi. Tiu vivo surĉevala konvenis al li pli bone 9
-
-
-## M A R I A M N E
+Sed dum longaj periodoj li forestis de sia ĉefurbo, sovaĝe raj-dante antaŭ siaj solduloj por batali, por subfrapi siajn kontraŭulojn, tiujn, kiuj eble intencus forrabi de li la potencon kaj mem potenciĝi. Tiu vivo surĉevala konvenis al li pli bone
 
 
 ol io alia. i estis vivo simila al la vivo de liaj prapatroj, kiun ili vivis en siaj sudaj dezertoj rabekskursante en Judeon kaj atakante la karavanojn tien direktitajn. i estis severa kaj kruela vivo kaj li sentis ilian sovaĝan sangon en sia korpo kaj ilian sovaĝan ĝojon pri la ekzistado. Pri la vivo, kia ĝi reale estas, pri la vivo de liaj prapatroj, pri tiu, kiu donis al li lian animon.
@@ -181,27 +132,17 @@ Sed la judoj diris:
 Li estas dezerthomo. Tial ni devas elteni ĉi tion.
 
 
-## M A R I A M N E
-
-
 Kaj li renkontis Mariamne.
 
-Li staris sur la vojo al Damasko, nur mallongan distan-
-
-con ekster la urbopordo, kaj ŝi venis preterpase. Tiel simple estis kaj tamen la momento, kiam tio okazis, estis tre malsimila al la momento tuj antaŭa, kiam tio ankoraŭ ne okazis, kaj nenio estis tiel sama kiel antaŭe, nek la sunlumo, nek la grundo, nek la malaltaj herboj sur la grundo, nek la floroj sur ĝi.
+Li staris sur la vojo al Damasko, nur mallongan distancon ekster la urbopordo, kaj ŝi venis preterpase. Tiel simple estis kaj tamen la momento, kiam tio okazis, estis tre malsimila al la momento tuj antaŭa, kiam tio ankoraŭ ne okazis, kaj nenio estis tiel sama kiel antaŭe, nek la sunlumo, nek la grundo, nek la malaltaj herboj sur la grundo, nek la floroj sur ĝi.
 
 Kiuj floroj estas tiuj, li neniam antaŭe vidis ilin? La herboj estis morditaj de la ŝafoj, sed la florojn ili lasis, ne tuŝis. Ili ja troviĝis tie dum la tuta tempo, sed li ne rimarkus ilin, se ŝi ne estus pasinta.
 
-Nur dum momento li ŝin vidis, sed tiu momento ne simi-
-
-lis al alia en lia vivo, similis al nenio ĝis tiam spertita. Li tute ne komprenis, kion li travivas. Nur ke tio estas malsimila, mirinda, malebla klarigi. Kaj tuj poste ŝi estis for. Tuj poste ŝi ne estis tie.
+Nur dum momento li ŝin vidis, sed tiu momento ne similis al alia en lia vivo, similis al nenio ĝis tiam spertita. Li tute ne komprenis, kion li travivas. Nur ke tio estas malsimila, mirinda, malebla klarigi. Kaj tuj poste ŝi estis for. Tuj poste ŝi ne estis tie.
 
 Kaj li kovris siajn okulojn per la mano por ne forgesi, kion li vidis, por tute ne vidi ion alian.
 
 Tiel li neniam pli frue faris. Kaŭzis strangan senton stari tie kun la mano antaŭ la okuloj, homoj ja povus surpriziĝi, sin demandi, kial li staras tiel, sed verŝajne ili kredis, ke li ŝirmas la okulojn kontraŭ la sunlumo. Sed li ne faris. Tiel ne estis.
-
-
-## M A R I A M N E
 
 
 Sed oni devas rakonti la viditan, la realaĵon malantaŭ tio, kion li travivis, kio lin tiel tuŝis.
@@ -222,10 +163,7 @@ Malrapide li forprenis la manon de la okuloj kaj vidis la homojn pasi antaŭ si,
 
 Plene absorbita li mem iris al la pordo kaj trapasis ĝin.
 
-Li provis ekscii, kiu ŝi estas. Sed tio ne estis facila. ĉar li ne 12
-
-
-## M A R I A M N E
+Li provis ekscii, kiu ŝi estas. Sed tio ne estis facila. ĉar li ne
 
 
 volis malkaŝi sin mem, ne diri, kial li volas ekscii. Kaj li ne volis ŝin priskribi, ne ellasi la bildon, kiun li havis pri ŝi al tiu malnobla hordo el spionoj kaj klaĉuloj, kiu ĉirkaŭis lin, li opiniis, ke tio estus senhonta. Alie ili povus doni informojn pri preskaŭ ĉiu homo en Jerusalemo krom pri la malriĉuloj. Kaj al ili ŝi certe ne apartenas. Li opiniis, ke estus abomene utili-gi ilin en ĉi tiu afero, miksi ilin kun ŝi. Kaj ĉu li vere povus propre rakonti pri sia vidaĵo, propre priskribi ŝin?
@@ -246,10 +184,7 @@ Al ilia plej alta klaso ŝi apartenas.
 
 Celante venĝon pro la kruelaĵoj faritaj kontraŭ lia familio unu el ŝiaj parencoj, knabo nur dek du aŭ dek tri jara provis ponardi gardiston ekster la palaco. Li estis kaptita kaj ĵetita en unu el la prizonkarceroj, provizore, ĝis oni havos tempon por li. Eble oni povos per konvenaj rimedoj elpremi el li kelkajn informojn eventuale valorajn.
 
-Tio estis la kaŭzo, kial Herodo en la posta tago je sia granda surprizo ekvidis la junan virinon de la Damaskvoja pordo 13
-
-
-## M A R I A M N E
+Tio estis la kaŭzo, kial Herodo en la posta tago je sia granda surprizo ekvidis la junan virinon de la Damaskvoja pordo
 
 
 veni al li per siaj malpezaj birdosimilaj paŝoj kaj vestita tut-same kiel tiam.
@@ -275,9 +210,6 @@ Nun li vidis, kiel bela ŝi estas, nur nun li tion rimarkis.
 ŝiaj lipoj estis pale ruĝaj kaj iom elstaraj kaj tute ne ŝminkitaj kiel ĉe liaj virinoj en la palaco kaj ofte ankaŭ ĉe la nobel-inoj en la urbo.
 
 Li do el tiu ĉi buŝo, el ŝia propra buŝo, aŭdis, kiu ŝi estas kaj ceterajn aferojn pri ŝi. Tute sen hezito ŝi informis lin, ke ŝi samkiel la knabo apartenas al la familio de la makabeoj kaj ŝajnis kvazaŭ ŝi fierus pri tio. Certe ŝi sciis, ke ankaŭ ili iam estis reĝoj.
-
-
-## M A R I A M N E
 
 
 Denove li pensis, de kie ŝi prenas sian kuraĝon. ĉu povus esti, ke ĝuste ŝia delikateco ŝin faras forta kaj kuraĝa?
@@ -312,17 +244,12 @@ Herodo sin turnis al ŝi.
 
 —ĉu tio vere estas ebla, ŝi respondis.
 
-—Jes. Ekster la Damaskvoja pordo. Tie kreskas floroj, kiuj 15
-
-
-## M A R I A M N E
+—Jes. Ekster la Damaskvoja pordo. Tie kreskas floroj, kiuj
 
 
 estas tre belaj, sed mi ne scias, kiel ili nomiĝas. Kaj mi ne vidis, ke ili estas belaj, antaŭ ol vi pasis.
 
-ŝi nenion respondis, sed metis sian mallarĝan manon an-
-
-taŭ la sino kvazaŭ por sin ŝirmi. Oni diras, ke tiel virinoj sen-konscie faris en ĉiuj epokoj. Ankaŭ ŝi ne estis konscia pri tio, ŝi ne sciis, ke ŝi tiel faris.
+ŝi nenion respondis, sed metis sian mallarĝan manon antaŭ la sino kvazaŭ por sin ŝirmi. Oni diras, ke tiel virinoj sen-konscie faris en ĉiuj epokoj. Ankaŭ ŝi ne estis konscia pri tio, ŝi ne sciis, ke ŝi tiel faris.
 
 —Poste mi plurajn fojojn iris tien kaj esperis, ke vi denove pasos. Sed vi neniam faris.
 
@@ -339,14 +266,9 @@ Ili disiris kaj ŝi tre kviete elpaŝis el la granda halo kaj same kviete la tut
 Kiel fatale por ŝi, ke ŝi lin renkontis.
 
 
-## M A R I A M N E
-
-
 La famo diskuris pri tiu nekredebla mildeco ĉe la tirano kaj pri tio, kiu akiris la liberiĝon de la knabo. Estis nekompreneble, sed ĉe la subprematoj vekiĝis malforta espero. Tre multaj havis edzon aŭ filojn aŭ aliajn parencojn suferantajn en liaj prizonkarceroj, se ili ne jam estis mortigitaj aŭ forpasis pro perfortaĵoj, manksuferoj kaj malsato. Pri tio oni sciis nenion. Ili venis al ŝi kaj petegis ŝin pri helpo, ke ŝi provu akiri gracon ankaŭ por ili.
 
-ŝi ektimis pro tio, kion ili postulis de ŝi. Kaj pro iliaj viza-
-
-ĝoj tiel agititaj kaj senesperaj, kiel ŝi neniam vidis ĉe homoj.
+ŝi ektimis pro tio, kion ili postulis de ŝi. Kaj pro iliaj vizaĝoj tiel agititaj kaj senesperaj, kiel ŝi neniam vidis ĉe homoj.
 
 ŝi certe volus ilin helpi, se ŝi povus. Ilin ĉiujn helpi. Sed kiel ŝi povus? Ili ŝutis siajn petojn sur ŝin, sed ili ne sciis, kion tio signifas por ŝi mem. Kiel ŝi povus diri tion al ili, tion ŝi ja ne povas.
 
@@ -355,9 +277,6 @@ La famo diskuris pri tiu nekredebla mildeco ĉe la tirano kaj pri tio, kiu akiri
 Tiam ĉiu volis, ke ŝia filo, ŝia edzo estu elektita. ĉar tia estas la homo. Estis malfacile por ŝi vidi ĉiujn tiujn suferantajn, plorkonsumitajn vizaĝojn kaj elekti unu el ili.
 
 Farinte sian elekton ŝi nenion diris pri ĝia rezulto kaj tial ĉiu el ili kredis, ke ŝi elektis laŭ ties peto, elektis lin, kiun ŝi aŭ li tiom sopiris revidi.
-
-
-## M A R I A M N E
 
 
 Kaj kun maltrankvila koro ŝi denove iris la pezan vojon
@@ -398,10 +317,7 @@ Dube li ŝin rigardis.
 
 Tio estis la unua fojo, ke ŝi rimarkis lian suspektemon, kiu estis malsano, kiun li suferis.
 
-Poste li tute ŝanĝiĝis, li promesis liberigi la prizonulon kaj 18
-
-
-## M A R I A M N E
+Poste li tute ŝanĝiĝis, li promesis liberigi la prizonulon kaj
 
 
 ili ne plu parolis pri tiu afero. Anstataŭe li montris al ŝi la palacon, unu ĉambron post la alia, relative dezertajn ĉam-brojn, ŝi surpriziĝis, ke li tiel loĝas. Kaj pri tio, kiel malmulte da homoj estas tie, nur iuj servistoj. Neniuj virinoj — ŝi aŭdis, ke estas multaj. Estis kvazaŭ li loĝus tute sola en la granda palaco. Krom la prizonuloj malsupre en la prizonkavernoj, kompreneble, kaj tiuj, kiuj gardis ilin.
@@ -418,26 +334,15 @@ Li neniun virinon havis, post kiam li ŝin renkontis.
 
 En tiu maniero ŝi daŭrigis viziti lin, ĉar ĉiuj tiuj mizeraj parencoj de prizonuloj tion petadis kaj ĉar ŝi mem estis plena de kompato por tiuj, kiuj suferas en lia malliberejo. Kelkfoje li decideme neis, estis senceda, kaj iufoje ŝi povis kompreni, ke tiu, por kiu ŝi petas, ne plu vivas. Sed ofte ŝi povis akiri gracon ĉe li, ĉe tiu por ĉiuj aliaj timiga homo, kaj tiam opinii, ke ŝi faris ion bonan oferante sin. ĉar ofero ĝi estis por ŝi, tion ŝi devis konfesi.
 
-ŝiaj propraj parencoj malaprobis tiujn vizitojn ĉe la malamata idumido, kiu kulpis la morton de tiom da iliaj proksim-uloj. ŝi ja loĝis ĉe ili kaj dependis de ili kaj estis por ŝi tre mal-19
-
-
-## M A R I A M N E
-
-
-facile elteni ĉion, kion ili diris al ŝi, aŭdigis al ŝi. ĉu ŝi eble ne scias, ke du el la fratoj de ŝia patro viktimiĝis pro la abomena tirano, kiu kun helpo de la romianoj uzurpis la tronon, malgraŭ tio, ke li ne devenas de la juda gento. Kaj certe ŝia propra patro renkontus saman faton, se li ne mallonge antaŭ la murdo de ili mortus nature.
+ŝiaj propraj parencoj malaprobis tiujn vizitojn ĉe la malamata idumido, kiu kulpis la morton de tiom da iliaj proksim-uloj. ŝi ja loĝis ĉe ili kaj dependis de ili kaj estis por ŝi tre malfacile elteni ĉion, kion ili diris al ŝi, aŭdigis al ŝi. ĉu ŝi eble ne scias, ke du el la fratoj de ŝia patro viktimiĝis pro la abomena tirano, kiu kun helpo de la romianoj uzurpis la tronon, malgraŭ tio, ke li ne devenas de la juda gento. Kaj certe ŝia propra patro renkontus saman faton, se li ne mallonge antaŭ la murdo de ili mortus nature.
 
 Plej kruela kontraŭ ŝi estis la knabeto, kiu antaŭe estis tiel kortuŝe sindona al ŝi, ĉiam serĉis ŝian societon. Lia vizaĝeto estis tute tordita, dum li superŝutis ŝin per mokaj insultoj kaj montris al ŝi sian malestimon. Sed ŝi tre milde lin rigardis kaj kelkfoje metis sian manon sur lian kapon por kvietigi lin. Ne estis strange, ke li tiel kondutis, ĉar lian patron Herodo kredeble mem mortigis, hakis per sia glavo, eble tiu sama, kiun li ĉiam portadis en la palaco.
 
-Sed aliaj homoj, tiuj, kiujn ŝi helpis, kaj tiuj, kiuj esperis helpon, estis plenaj de dankemo kaj montris al ŝi tion en ĉiu maniero. Iliaj vizaĝoj lumis, kiam ili ŝin renkontis kaj virinoj genufleksis kaj kisis ŝian mantelborderon. Tiuj homoj donis al ŝi grandan ĝojon kaj kaŭzis, ke ŝi ne povis ĉesigi siajn klo-podojn kompatigi la koron de la kruela reganto. Sed kom-
-
-patigeblan koron li verŝajne ne havis, kaj li ja diris, ke li ilin amnestias nur, ĉar ŝi petas lin pri tio, ĉar li volas ŝin revidi.
+Sed aliaj homoj, tiuj, kiujn ŝi helpis, kaj tiuj, kiuj esperis helpon, estis plenaj de dankemo kaj montris al ŝi tion en ĉiu maniero. Iliaj vizaĝoj lumis, kiam ili ŝin renkontis kaj virinoj genufleksis kaj kisis ŝian mantelborderon. Tiuj homoj donis al ŝi grandan ĝojon kaj kaŭzis, ke ŝi ne povis ĉesigi siajn klo-podojn kompatigi la koron de la kruela reganto. Sed kompatigeblan koron li verŝajne ne havis, kaj li ja diris, ke li ilin amnestias nur, ĉar ŝi petas lin pri tio, ĉar li volas ŝin revidi.
 
 Estis malfacile por ŝi pensi pri tio, ke li tiel diris. Kio okazos al ŝi sur tiu vojo, kiun ŝi ekiris, sur tiu eble danĝera vojo?
 
 Kaj inter siaj propraj parencoj ŝi fariĝis pli kaj pli sola kaj forlasita. Plej forlasita de la malgranda dura knabo, li, kiu sin ĵetis en ŝian ĉirkaŭbrakon, kiam ŝi unuafoje venis al ili, kiam li unuafoje ŝin vidis.
-
-
-## M A R I A M N E
 
 
 Kiam ŝi proksimiĝis al la palaco, ŝi tion ĉiam faris kun peza koro. Apud ĉiu enirejo estis duobla gardo kaj ĉe la ĉefenirejo eĉ pli kaj ĉirkaŭ la kastelo bivakis soldatoj armitaj per glavoj kaj aliaj armiloj. Kaj tiu, kiun ili gardis, estis sola viro, kiu ĉir-kaŭiras tie en la dezertaj haloj, ankaŭ li kun glavo, ĉar li ĉiam timas pri sia vivo, oni diris.
@@ -448,21 +353,13 @@ Iun tagon li ŝin demandis, ĉu ŝi volas edziniĝi al li. Li ne diris, ke li ŝ
 
 ĝin neniam uzis kaj estis hontema pri ĝi. Tio kredeble ne estas vorto por li, tion li sentis.
 
-ŝi nenion respondis. Kaj li ankaŭ ne postulis tion. ŝi bon-volu pensi pri tio dum kelka tempo, li diris preskaŭ submeti-
-
-ĝeme.
+ŝi nenion respondis. Kaj li ankaŭ ne postulis tion. ŝi bon-volu pensi pri tio dum kelka tempo, li diris preskaŭ submetiĝeme.
 
 Kiel ventetis ŝia spirado inter la duonapertaj, palaj lipoj, kiam ŝi ĉifoje lin forlasis. Kiel ŝi rapidis antaŭen tra la stratoj per siaj birdofacilaj paŝoj, kun sia malkvieta koro! Rapidis? Kien ŝi rapidu? ŝi havis tute nenion, tute nenian lokon al kiu rapidi.
 
 ŝi komencis iri malpli rapide. Komencis iri tre malrapide, sen celo. Kaj ŝi klopodis regi sin. Pensi. Pensi pri tio, kiel ŝi agu. Ekzistis neniu, kiu povus helpi ŝin. ŝi devis decidi tute sola. Pri si mem. ŝi kutimis tion. Tion ŝi devis diri al si. Sed nun estis multe pli malfacile ol iam antaŭe.
 
-ĉu ŝi oferu sin eĉ ĝis tio, ke ŝi partoprenos lian vivon? Lian timigan vivon. ŝi ne povos fari tion el propraj motivoj, devos esti pro alies. ĉu ŝi povos atingi ian bonon per tio. Transdon-21
-
-
-## M A R I A M N E
-
-
-ante sin al li. Ian bonon por ĉiuj tiuj mizeraj suferantaj homoj, kiuj ŝin petegas, kiuj ŝin fidas. Por ĉiuj tiuj, kiujn li suferigas.
+ĉu ŝi oferu sin eĉ ĝis tio, ke ŝi partoprenos lian vivon? Lian timigan vivon. ŝi ne povos fari tion el propraj motivoj, devos esti pro alies. ĉu ŝi povos atingi ian bonon per tio. Transdonante sin al li. Ian bonon por ĉiuj tiuj mizeraj suferantaj homoj, kiuj ŝin petegas, kiuj ŝin fidas. Por ĉiuj tiuj, kiujn li suferigas.
 
 ĉu si povus ian bonon fari donante sin al li? Tiel ŝi sin demandis foje kaj refoje. ĉu ŝi povus fari lian animon pli milda kaj liajn agojn ne tiom malicaj? ĉi ŝi povus? ĉu ŝi povus lin ŝanĝi?
 
@@ -487,9 +384,6 @@ Tiam ŝi reiris hejmen.
 Post kelka tempo ŝi iris al la palaco kaj diris al li, ke se li tion deziras, ŝi konsentas edziniĝi al li. Li fariĝis tre feliĉa pro tio.
 
 
-## M A R I A M N E
-
-
 Malgraŭ tio, ke li kredeble ne kutimis senti feliĉon kaj tial kredeble ankaŭ ne kutimis ĝin esprimi, ĝin montri.
 
 ŝi donis al li sian manon, ĝi estis tiel mallarĝa kaj malgranda en lia, ke ambaŭ ridetis iomete, kvankam ili estis tiel seri-ozaj. Ili staris tie unu antaŭ la alia, tiel malsimilaj kiel eblas pensi, ŝi gracila kaj fragila, kun tiu delikata vizaĝo, kiun ŝi heredis de multaj generacioj, kiu estis bela kvazaŭ de antikva belo, kaj li kun sia granda, peza korpo, kun vizaĝo ankaŭ peza kaj malbela, kun krudaj trajtoj.
@@ -499,16 +393,11 @@ Li ne ŝin ĉirkaŭbrakis, nenio tia, neniaj alproksimiĝoj ajna-specaj, kaj ŝi
 ŝi apartenis al tiuj homoj, kiuj ĉiam demandas sin, ĉu ili faris maljuston.
 
 
-## M A R I A M N E
-
-
 Dum la geedziĝa nokto ŝin timigis la perfortema pasio,
 
 kun kiu li ŝin ekkonis. ŝi ne havis sperton pri amo kaj
 
-neniam imagis, ke ĝi povus esti tia. ŝi klopodis lin sekvi en lia pasiforto, sed neniam antaŭe viro ekkonis ŝin kaj ŝi ne havis sperton kiel samtempe sin submeti kaj lin regi. Nur la mallumo evitigis al li ion rimarki, vidi ŝiajn turmentatajn vizaĝ-
-
-trajtojn.
+neniam imagis, ke ĝi povus esti tia. ŝi klopodis lin sekvi en lia pasiforto, sed neniam antaŭe viro ekkonis ŝin kaj ŝi ne havis sperton kiel samtempe sin submeti kaj lin regi. Nur la mallumo evitigis al li ion rimarki, vidi ŝiajn turmentatajn vizaĝtrajtojn.
 
 Estis tro perforte kaj dolorige, por ke ŝi povu senti ĝuon tiun fojon.
 
@@ -517,9 +406,6 @@ Sed pli poste ŝi povis, almenaŭ kelkfoje. ŝi pli kutimiĝis al li kaj ankaŭ 
 Tiel ilia kunvivo fariĝis pli bona ol ŝi kuraĝis esperi. Sed tute kutimiĝi al li ŝi ne povis. ŝi timis, ke li rimarkos, faris ĉion por ne montri. Sed ne ĉiam tio eblis kaj ŝi ja sciis, kiel suspektema li estas. ŝi klopodis tute ne pensi pri tio, ne atenti pri tio ĉe li, kio vekis ŝian antipation. Kaj en tio ŝi vere pli kaj pli sukcesis.
 
 Sed ami lin, tion ŝi ne faris, almenaŭ ne laŭ sia kompreno.
-
-
-## M A R I A M N E
 
 
 ŝi aranĝis tiel, ke la palaco, almenaŭ parteto de ĝi, fariĝis pli kiel hejmo. La dezertecon ŝi forpelis kaj la ĉambroj, kiujn ŝi elektis por ili, fariĝis loĝeblaj kaj preskaŭ plaĉaj, oni povis vidi, ke ili estas destinitaj por homoj. Vere senti komforton tie ŝi ne povis, sed la ĉambroj tamen havis alian karakteron ol antaŭe. Kelkaj el la grandaj dezertecaj haloj devis resti tiaj kiel antaŭe, sed tio ne estis grava, ŝi ja tamen neniam vizitis ilin.
@@ -539,9 +425,6 @@ Mariamne, ŝi, kiu tuŝis la koron de la malica reĝo kaj decidigis lin por tiu 
 Benata ŝi estu. Benata ŝi estu.
 
 
-## M A R I A M N E
-
-
 Sed ŝiaj parencoj sentis naŭzon kaj malamon kontraŭ ŝi sen mezuro kaj limo pro tio, kion ŝi faris, post tio ke ŝi fariĝis edzino de la abomenata kaj vomiga uzurpanto. Kia humiliĝo
 
 por ilia familio, kiu estis de vere reĝa sango. Kia honto. Neniam eblos tion pardoni kaj ĉiuj rilatoj inter ili ĉesis. Jes, ili eĉ povus deziri ŝian morton, nur por ke ŝia kaj ilia honto forviŝiĝu.
@@ -552,10 +435,7 @@ La popolo, kontraŭe, almenaŭ la plimulto, plene adoris ŝin post la liberiĝo 
 
 Sed ili ŝin adoris ankaŭ pro ŝi mem, ne nur pro ŝiaj bon-faroj. Pro ŝia karaktero, ĉar ŝi ŝajnis tiel diferenca de ĉiuj aliaj. En tiu kruela kaj severa tempo ŝi estis milda kaj kvieta al ĉiuj renkontatoj, kiujn ĉiujn ŝi rigardis per sia malhela rigardo. Tuj, kiam ŝi sin montris sur la stratoj, ŝi estis amata, amo ŝin alfluis. Kaj ŝi estis konata de ĉiuj, tuj rekonita. Tio ankaŭ dependis de tio, ke ŝi preskaŭ ĉiam estis same vestita. Kvankam nun reĝino, ŝi estis vestita tute kiel antaŭe, relative simple, ŝajnis, sed kredeble ne estis. ŝiaj vestoj ofte estis brodi-taj per arĝentfadenoj, ŝia mantelo havis arĝentan borderon, ankaŭ la zono ofte estis el arĝento. Kaj ŝiaj sandaloj ĉiam havis arĝentaĵon ĉirkaŭ la maleoloj.
 
-La pala arĝento konvenis al ŝi, konvenis al ŝia speco de beleco, kvazaŭ apartenis al ĝi. Se ŝi portis ornamaĵojn, ili ĉiam estis el arĝento, neniam el oro. La reĝo havis fortan deziron, precipe dum la unua tempo, ŝin superŝuti per multekostaj 26
-
-
-## M A R I A M N E
+La pala arĝento konvenis al ŝi, konvenis al ŝia speco de beleco, kvazaŭ apartenis al ĝi. Se ŝi portis ornamaĵojn, ili ĉiam estis el arĝento, neniam el oro. La reĝo havis fortan deziron, precipe dum la unua tempo, ŝin superŝuti per multekostaj
 
 
 juveloj, per ĉiaj gemaj ŝtonoj de la oriento, arte facetitaj kaj poluritaj por ornami virinojn. Sed ŝi ĉiujn malakceptis. ŝi ne volis ŝanĝiĝi, ĉar ŝi fariĝis reĝino, ŝi volis resti, kia ŝi estis kaj vestiĝi kiel ŝi, ne multe pensante pri tio, jam elektis.
@@ -574,10 +454,7 @@ Ankaŭ tiuj, kiuj ŝin malestimis pro ŝia interligo kun la abomena idumido, rek
 
 ĉiuj, escepte de ŝia propra parencaro, kiu restis neŝanĝita en sia mortiga malamo.
 
-Foje li ŝin akompanigis al la templo. Li volis montri ĝin al ŝi, 27
-
-
-## M A R I A M N E
+Foje li ŝin akompanigis al la templo. Li volis montri ĝin al ŝi,
 
 
 sian propran templon. Ili longe promenis tie kaj li ĉion klarigis al ŝi, kia ĝi estos kaj ke ĝi estos eĉ pli bela ol tiu de Salomono.
@@ -597,9 +474,6 @@ Kial li faris? Li mem ne sciis. Tio ja ne havis sencon. Tamen li iris tien. Sufi
 Konekso inter li kaj tio, kio estas dia, ne ekzistis. Lia interno estis kiel dezerto kaj la steloj profundigis siajn fridajn lancojn en lian animon.
 
 Parton de sia vivo li ĉiam tenis por si, ne permesis al ŝi informiĝi pri ĝi. Ne nur pri noktaj templovagadoj, sed pri tute aliaj aferoj. Li ne havis la kutimon snfidi. Kaj li neniam snfidis al ŝi. Ili neniam snfidis reciproke, tio ne konve-nus al ili, al neniu el ili.
-
-
-## M A R I A M N E
 
 
 Ankaŭ ŝi havis la kutimon decidi pri si mem kaj li lasis al ŝi fari tion. ĉiu el ili sncernis pri siaj aferoj kaj la alia ne sin miksis en tio.
@@ -624,15 +498,10 @@ Lia perfortema deziro je ŝi ne malkreskis. ŝi malfacile povis elteni tion, ĉa
 
 Li ja neniam havis tian virinon kiel ŝi, lia pasio verŝajne dependis ankaŭ de tio. De tio, ke ŝi estis tute nova sperto por li, io tute mala. Kaj lia kapablo ŝmpreni, intimiĝi kun ŝiaj tute alikvalitaj kaj malpasiaj sentoj dependis ankaŭ de tio.
 
-Amon li neniam antaŭe travivis, li ĝin ne konis. i ankaŭ estis tute fremda al lia vera naturo. Li ŝin amas, tion li sciis, 29
+Amon li neniam antaŭe travivis, li ĝin ne konis. i ankaŭ estis tute fremda al lia vera naturo. Li ŝin amas, tion li sciis,
 
 
-## M A R I A M N E
-
-
-sed li ne sciis, kiel tio devus konkretiĝi. Kaj lia amo lin ne ŝan-
-
-ĝis.
+sed li ne sciis, kiel tio devus konkretiĝi. Kaj lia amo lin ne ŝanĝis.
 
 Sed la deziron pri ŝi li komprenis kaj li kredis, ke ĝi sufiĉas kaj ke ĝi estas la amo.
 
@@ -650,12 +519,7 @@ Sed ŝi volis fari lin bona al ĉiuj.
 
 En tia disvolviĝo de ilia kunvivo ja tamen ne eblis ne rimarki la streĉitecon en ŝia amo al li kaj ke ŝi ne sentas la samon kiel li. Kun aliaj virinoj li sin ne koncernis pri tiaj aferoj, se nur li mem kontentiĝis, povis fari laŭ sia volo. Sed rilate al ŝi la afero estis tute alia. Li suferis pro tio, sed nenion volis montri, tenis tion ĉe si mem. Nenion li volis montri, nenion li volis konfidi el tio, kion li sentis. Ne estis facila afero por viro kia li travivi tian humiliĝon, sed antaŭ ĉio li volis nenion forkon-fidi.
 
-Ke li vere suferas, oni ne povis dubi. Li fariĝis ĉiam pli fermita en si kaj kovanta kaj lia rigardo ŝin timigis, ŝi ne kura-
-
-ĝis ĝin renkonti. Kaj ankaŭ li evitis rigardi ŝin. ŝi ja sciis, de kio tio dependas, sed ne kuraĝis paroli kun li pri tio. Kaj kion 30
-
-
-## M A R I A M N E
+Ke li vere suferas, oni ne povis dubi. Li fariĝis ĉiam pli fermita en si kaj kovanta kaj lia rigardo ŝin timigis, ŝi ne kuraĝis ĝin renkonti. Kaj ankaŭ li evitis rigardi ŝin. ŝi ja sciis, de kio tio dependas, sed ne kuraĝis paroli kun li pri tio. Kaj kion
 
 
 ŝi povus diri? Ne estas facile por du kunvivantoj paroli pri tia afero. Kaj ilia plena manko de konfidemo inter si faris tion malebla. ŝi penis eĉ pli kontentigi lin kaj montri al li, ke an-kaŭ ŝi vere bezonas lin, ke ne nur li bezonas ŝin. Sed tio nur kreskigis lian suspektemon kaj lian ĉiam atentan observadon pri ŝi kaj nur eĉ pli faris ĉion evidenta al li kaj ankoraŭ pli fatala por ili ambaŭ.
@@ -674,26 +538,15 @@ Ili adiaŭis unu la alian kaj ŝi longe tenis lian manon en sia. En siaj ambaŭ 
 
 Kiel ĉiam li sentis faciliĝon forirante de la palaco kaj Jerusalemo. Ne malpli ol iam li sentis tiel, sentis kvazaŭ liberiĝon.
 
-Kiam li kun sia sekvantaro kaj aldonaj trupoj, kiujn li ve-31
-
-
-## M A R I A M N E
-
-
-nigis kun si, alproksimiĝis al la montoj kaj sentis la freŝan venton de tie, tiam li kvazaŭ denove trovis sin mem, sian malnovan personon, la personon de siaj gepatroj, malgraŭ ĉio, kio koviĝis en li kaj maltrankviligis lin.
+Kiam li kun sia sekvantaro kaj aldonaj trupoj, kiujn li venigis kun si, alproksimiĝis al la montoj kaj sentis la freŝan venton de tie, tiam li kvazaŭ denove trovis sin mem, sian malnovan personon, la personon de siaj gepatroj, malgraŭ ĉio, kio koviĝis en li kaj maltrankviligis lin.
 
 Nur li sidis surĉevale, kaj li rajdis antaŭ la aliaj, antaŭ la gvardio kaj la trupoj kaj tiamaniere sola. Sed ili kutimis al tio, li neniam multe rilatis kun ili, nek kun la trupoj nek kun la oficiroj. Malgraŭ tio li estis, kiel dirite, tre ŝatata de siaj soldatoj. Kompreneble tio dependis de tio, ke li permesis al ili agi kiom ajn senbride, rabi kiom ajn ili volis. Sed verŝajne ili ankaŭ aprecis, ke li sin tenis flanke kaj sola en tiu maniero, sen ligo kun ili, kredeble tia ili preferis gvidanton, komandanton. Li ne estis unu el ili, ne devus esti.
 
 Jam longa tempo pasis, dum li ne militis kun ili, kaj ili ŝatis revidi lin ĉe si. Sed lia humoro estis tre morna kaj prema-ta, tion ili rimarkis.
 
-Kiam ili atingis la montojn, ili unuafoje kontaktiĝis kun siaj kunbatalantoj renkontante gardiston en ravino, kiun ili laŭ-
+Kiam ili atingis la montojn, ili unuafoje kontaktiĝis kun siaj kunbatalantoj renkontante gardiston en ravino, kiun ili laŭmarŝis. Ili informiĝis, kie estas la trupoj. En valo pli alte ili estis trovitaj, kelkaj fajroj brulis en la valo, ĉar tiel alte estis malvarme en tiu sezono. La oficiro surpriziĝis de la neaten-dita vizito, certe li ja petis aldonajn trupojn, sed ne atendis, ke Herodo mem venos kun ili. Li devis informi pri ĉio, kio okazis ekde la komenciĝo de la bataloj kaj Herodo silente aŭ-
 
-marŝis. Ili informiĝis, kie estas la trupoj. En valo pli alte ili estis trovitaj, kelkaj fajroj brulis en la valo, ĉar tiel alte estis malvarme en tiu sezono. La oficiro surpriziĝis de la neaten-dita vizito, certe li ja petis aldonajn trupojn, sed ne atendis, ke Herodo mem venos kun ili. Li devis informi pri ĉio, kio okazis ekde la komenciĝo de la bataloj kaj Herodo silente aŭ-
-
-skultis. Poste li faris riproĉojn pri multo farita, kaj kiam la komandanto defendis sin dirante, ke liaj taĉmentoj estis ne-sufiĉaj, li respondis, ke la trupoj certe sufiĉus, se li nur uzus ilin en ĝusta maniero. Li estis malbonhumora kaj montris tion senkaŝe. La komandanto, kiu estis iom aĝa viro kutimiĝinta al li kaj lia foje ĝene varia temperamento, komprenis, ke li 32
-
-
-## M A R I A M N E
+skultis. Poste li faris riproĉojn pri multo farita, kaj kiam la komandanto defendis sin dirante, ke liaj taĉmentoj estis ne-sufiĉaj, li respondis, ke la trupoj certe sufiĉus, se li nur uzus ilin en ĝusta maniero. Li estis malbonhumora kaj montris tion senkaŝe. La komandanto, kiu estis iom aĝa viro kutimiĝinta al li kaj lia foje ĝene varia temperamento, komprenis, ke li
 
 
 malĝuste prijuĝis pro malbonhumoro. Herodo tiel bone konis la batalojn en la montaro kaj la eblajn malfacilaĵojn en ĝi, ke li ne juĝus tiel, se nenio alia efikus sur lin.
@@ -704,17 +557,9 @@ Herodo tuj mem prenis komandon kaj rapide eldiris siajn
 
 ordonojn. Li preferus renkonti la malamikojn en la pasejo, se tio estus ebla, sed povus okazi, ke ne estus. Antaŭ ol la trupoj ordiĝis kaj la helpaj taĉmentoj estis lokitaj ĝustamaniere inter ili, la makabeoj jam penetris la orientan parton de la valo kaj disvastiĝis tie. Sed tie ili estis haltigitaj de la kontraŭuloj kaj baldaŭ la lukto estis en plena vervo kaj ambaŭ partioj levis siajn batalkriojn.
 
-La makabeoj sciis nenion pri la helpaj taĉmentoj venintaj kaj surpriziĝis pri la superforto renkontanta ilin. Sed ili luktis kun ĉiom da tiu mortmaltimo kaj fanatika sovaĝeco, kiuj karakterizis ilin. Se ne estus veninta helpe Herodo kun siaj novaj nelacaj trupoj, nenio malhelpus ilin venki kaj eble ekstermi la tutan armeon enfermitan en la valo. Nun finiĝis alie kaj ili trovis sin atakataj de soldatoj, kiuj kuris kontraŭ ilin en nombro ŝajne senlima, kiom ajn granda. La mortado ambaŭ-
+La makabeoj sciis nenion pri la helpaj taĉmentoj venintaj kaj surpriziĝis pri la superforto renkontanta ilin. Sed ili luktis kun ĉiom da tiu mortmaltimo kaj fanatika sovaĝeco, kiuj karakterizis ilin. Se ne estus veninta helpe Herodo kun siaj novaj nelacaj trupoj, nenio malhelpus ilin venki kaj eble ekstermi la tutan armeon enfermitan en la valo. Nun finiĝis alie kaj ili trovis sin atakataj de soldatoj, kiuj kuris kontraŭ ilin en nombro ŝajne senlima, kiom ajn granda. La mortado ambaŭflanke estis signifa, sed inter la makabeoj multe pli fatala, ĉar nun ili estis tiel malsuperaj al la kontraŭuloj.
 
-flanke estis signifa, sed inter la makabeoj multe pli fatala, ĉar nun ili estis tiel malsuperaj al la kontraŭuloj.
-
-Herodo mem luktis unualinie, kiel li ĉiam faris. Sed ŝajnis, ke li faras tion sen sia kutima batalemo. Kaj se iu emis al bataloj, li faris tion. Sed ne ĉifoje, ŝajnis. Li ŝajnis senverva kaj malbonhumora, ne tia kiel aliam. Li batalis nur kiel ordina-33
-
-
-## M A R I A M N E
-
-
-ra soldato, oni povus diri, kaj sen tiu furiozo, kiu kutimis karakterizi lin. Estis tre malsimile al li.
+Herodo mem luktis unualinie, kiel li ĉiam faris. Sed ŝajnis, ke li faras tion sen sia kutima batalemo. Kaj se iu emis al bataloj, li faris tion. Sed ne ĉifoje, ŝajnis. Li ŝajnis senverva kaj malbonhumora, ne tia kiel aliam. Li batalis nur kiel ordinara soldato, oni povus diri, kaj sen tiu furiozo, kiu kutimis karakterizi lin. Estis tre malsimile al li.
 
 Tamen, la batalo disvolviĝis tiel, kiel ĝi devis pro ilia super-nombro en trupoj. La makabeoj havis tiom da mortigitoj kaj ilia lukto estis tiel senespera, ke ili, malgraŭ sia granda ku-raĝo, devus kompreni tion. Kaj rimarkiĝis pli kaj pli, ke ili tion faras, malgraŭ tio, ke ili ne volas kapitulaci.
 
@@ -731,9 +576,6 @@ Poste Herodo ŝajnis sufiĉe ekzaltita kaj spiradis forte. Li rapide okulumis la
 Kiam tio okazis, la batalo fakte jam finiĝis. La makabeoj grandparte retiriĝis tra la pasejo kaj nur malgranda taĉmento restis por ŝirmi la returniron. Ankaŭ tiuj lastaj poste sin sa-vis fuĝante.
 
 
-## M A R I A M N E
-
-
 La kadavroj restis kuŝantaj sur la batalkampo, kie okazis ilia malvenko, kaj inter ili estis tiu de la knabo.
 
 La soldatoj de Herodo zorgis pri siaj vunditoj, sed tiujn de la malamiko ili lasis, ĉar tia ĉiam estis la moro en ambaŭ partioj. Poste ili retiriĝis al siaj bivakaj fajroj, kolektiĝis ĉirkaŭ ili.
@@ -743,17 +585,11 @@ La tago proksimiĝis al sia fino. La soldatoj eksidis kaj purigis siajn armilojn
 Post tio venis la krepusko.
 
 
-## M A R I A M N E
-
-
 Mariamne informiĝis pri la afero per tio, ke makabeo,
 
 kiu ĉeestis kaj vidis la okazaĵon, venis el la montoj kaj kuraĝis eniri Jerusalemon por lasi flegi siajn vundojn. Sed tiu, kiu rakontis al ŝi, estis la maljuna servistino el la domo de ŝiaj parencoj.
 
 ŝi ploris du tagojn.
-
-
-## M A R I A M N E
 
 
 Daŭris longe antaŭ ol Herodo revenis en Jerusalemon. Li
@@ -767,9 +603,6 @@ Lia vizaĝo estis tiel pala kaj lia rigardo tiel riproĉa, ŝi opiniis.
 Pri tio ŝi cerbumis.
 
 Kaj pri tio, kial Herodo mortigis la knabon. Kaj kial li mortigis lin en tiel furioza maniero, kiel estis informate, tio estis ja nekomprenebla. ĉu tio eble povus dependi de tio, ke li neniam iun pardonas, eĉ ne infanon. Tia li estas, tion ŝi sciis, kaj tion li kelkfoje mem rekonis. Eble li repentis la mildecon, kiun li montris liberigante lin kaj koleriĝis, kiam li vidis lin tie inter la malamikoj.
-
-
-## M A R I A M N E
 
 
 Sed eĉ se tiel, ŝi ja ne estis malpli kulpa. ŝi estis kulpa ĉiu-kaze.
@@ -788,18 +621,11 @@ Sed ŝi ja apartenis al tiuj homoj, kiuj ĉion riproĉas al si.
 
 Kiam Herodo fine revenis en Jerusalemon, li tuj komprenis, ke Mariamne ĉion scias. ŝia vizaĝo estis ŝanĝita de la funebro sed, sufiĉe strange, en tia maniero, ke ŝi ŝajnis pli bela ol an-taŭe. i estis eĉ pli pala ol antaŭe, kvazaŭ diafana, ŝia funebro tralumis ĝin elinterne kaj faris ĝin eĉ pli nemateria.
 
-ŝi ne plu havis larmojn, antaŭlonge ŝiaj okuloj perdis la ka-pablon plori, sed ili estis plenaj de tiu funebro, kiun ili devus priplori. Strange, ili fariĝis eĉ pli mildaj de tio, kvazaŭ eĉ pli varmaj, dum kontraŭe alies okuloj kaj rigardo verŝajne duri-
+ŝi ne plu havis larmojn, antaŭlonge ŝiaj okuloj perdis la ka-pablon plori, sed ili estis plenaj de tiu funebro, kiun ili devus priplori. Strange, ili fariĝis eĉ pli mildaj de tio, kvazaŭ eĉ pli varmaj, dum kontraŭe alies okuloj kaj rigardo verŝajne duriĝus post ties sufero. Sed en ŝi la sufero ŝajnis aldoni eĉ pli da mildeco.
 
-ĝus post ties sufero. Sed en ŝi la sufero ŝajnis aldoni eĉ pli da mildeco.
+Kiam Herodo vidis ŝin ŝanĝita en tiu maniero kaj komprenis, kion li faris al ŝi, komprenis, kion ŝi devis suferi pro li, li falis genue ĉe ŝiaj piedoj kun ĝemado sur siaj lipoj, angorŝvito gutiĝis sur lia frunto kaj li etendis siajn brakojn al ŝi sed sen tuŝi ŝin, kaj rigardis ŝin pete per siaj sangostriaj okuloj. Sen vortoj li petis al ŝi pardonon pro sia malico, pro tio, ke li estas, kia li estas. Al ŝi, kiu povis pardoni ĉion.
 
-Kiam Herodo vidis ŝin ŝanĝita en tiu maniero kaj kompre-
-
-nis, kion li faris al ŝi, komprenis, kion ŝi devis suferi pro li, li falis genue ĉe ŝiaj piedoj kun ĝemado sur siaj lipoj, angorŝvito gutiĝis sur lia frunto kaj li etendis siajn brakojn al ŝi sed sen tuŝi ŝin, kaj rigardis ŝin pete per siaj sangostriaj okuloj. Sen vortoj li petis al ŝi pardonon pro sia malico, pro tio, ke li estas, kia li estas. Al ŝi, kiu povis pardoni ĉion.
-
-Kaj per sia malvarmeta mano ŝi karesis lian frunton, for-karesis la angorŝviton de ĝi, de la frunto de la hombesto, la 38
-
-
-## M A R I A M N E
+Kaj per sia malvarmeta mano ŝi karesis lian frunton, for-karesis la angorŝviton de ĝi, de la frunto de la hombesto, la
 
 
 malsekajn nigreruĝajn harojn de ĝi, ĝis liaj lipoj ĉesis tremi kaj lia rigardo fariĝis malpli ekscitita kaj sovaĝa kaj ŝajnis, ke li iel paciĝis.
@@ -808,13 +634,7 @@ malsekajn nigreruĝajn harojn de ĝi, ĝis liaj lipoj ĉesis tremi kaj lia rigar
 
 Mirigis ŝin, ke ŝi post tio, kio okazis, povis percepti ian ajn plezuron, kiam li serĉis ŝian sinon. Sed ŝi perceptas tion, ŝi devis konfesi tion. ŝi riproĉis sin mem pro tio. Kiel ŝi sin riproĉis pro ĉio. Kaj en la mallumo ŝi vidis la palan vizaĝon de la knabeto kun la malgajaj okuloj, kiuj eĉ pli grandiĝis nun post lia morto.
 
-Herodo vere nun trankviliĝis por kelka tempo, tion ŝi efikis, kaj oni ne aŭdis, ke io aparte indigniga okazis, almenaŭ ne en Jerusalemo. Ne laŭ ŝia scio. Sed ŝiaj kontaktoj kun la ekstera mondo ja ne estis multaj. Ili plejparte konsistis el tio, ke la maljuna servistino ŝin kelkfoje vizitis. La familio ne sciis pri ŝiaj venoj, se ili scius, ili estus tre koleraj kaj tio certe signifus certan danĝeron por ŝi. ŝi tamen venis. ĉar malgraŭ tio, ke ŝi neniam per vortoj menciis tion, ŝi ekŝatis Mariamne dum la mallonga tempo, kiam ŝi loĝis en ilia domo. Kaj Mariamne ekŝatis ŝin. La maljunulino havis sulkan, severan viza-39
-
-
-## M A R I A M N E
-
-
-ĝon, sed same severa kiel la aspekto ŝi kredeble ne estis. Estis nur tiel, ke ŝi neniam ridetis. Kial ŝi ne faris tion, oni ne sciis, verŝajne neniu sciis. Sed kelkaj homoj ja neniam faras ti-on, precipe maljunuloj, kiuj traspertis la tutan vivon.
+Herodo vere nun trankviliĝis por kelka tempo, tion ŝi efikis, kaj oni ne aŭdis, ke io aparte indigniga okazis, almenaŭ ne en Jerusalemo. Ne laŭ ŝia scio. Sed ŝiaj kontaktoj kun la ekstera mondo ja ne estis multaj. Ili plejparte konsistis el tio, ke la maljuna servistino ŝin kelkfoje vizitis. La familio ne sciis pri ŝiaj venoj, se ili scius, ili estus tre koleraj kaj tio certe signifus certan danĝeron por ŝi. ŝi tamen venis. ĉar malgraŭ tio, ke ŝi neniam per vortoj menciis tion, ŝi ekŝatis Mariamne dum la mallonga tempo, kiam ŝi loĝis en ilia domo. Kaj Mariamne ekŝatis ŝin. La maljunulino havis sulkan, severan vizaĝon, sed same severa kiel la aspekto ŝi kredeble ne estis. Estis nur tiel, ke ŝi neniam ridetis. Kial ŝi ne faris tion, oni ne sciis, verŝajne neniu sciis. Sed kelkaj homoj ja neniam faras ti-on, precipe maljunuloj, kiuj traspertis la tutan vivon.
 
 ŝi rakontis ion pri tio, kio okazis en la domo de la parencoj kaj kion ili diris pri la okazintaĵoj en Jerusalemo kaj en la provinco. ŝi propre estis neparolema kaj ne tiom por paroli ŝi venis, kiom por sidi dum kelka tempo ĉe Mariamne.
 
@@ -835,9 +655,6 @@ Sed ili miris pri tio, kiel ŝi ŝanĝiĝis. De kio tio povas dependi?
 Kaj pri tio, ke ŝi ne plu ridetas al ili kiel antaŭe.
 
 
-## M A R I A M N E
-
-
 La pliboniĝanta stato en la lando kaj la pli trankvila rilato inter la du en la palaco ja ne povis daŭri kiom ajn longe.
 
 Herodo komencis denove ĉiam pli maltrankviliĝi, denove
@@ -848,10 +665,7 @@ Kaj ŝi sciis, de kio tio dependas. ĉifoje ŝi cetere eksciis tion de li mem.
 
 Fine li denove foriris al militado, iris al la trupoj inter la montoj, kie li ĉiam sentis sin plej komforta.
 
-Mariamne ne tre malĝojis pro tio, ĉar lastatempe fariĝadis por ŝi ĉiam pli malfacile. Li jam komencis malkaŝe riproĉi ŝin, ke ŝi ne amas lin, konstante paroli pri tio. Antaŭe li ja klopodis kaŝi tion, kaŝi sian humiliĝon, kiel li nomis ĝin, ne rekoni ĝin, teni ĉion en si mem. Sed nun li male rekte diris tion, senkurbe kontraŭ ŝia vizaĝo. Ke li tre bone scias, ke ŝi ne amas lin, ke li rimarkas tion ĉiufoje, kiam ili kunestas, kaj ke ŝi mem scias tion same bone kiel li kaj montras tion eĉ tro klare, precipe kiam ŝi afektas deziron pri li, ŝajnigas sin plena de sekspostulemo malgraŭ tio, ke ŝi tute ne estas, sentas absolute nenion, ŝajnigas ardon kaj fajron, kiujn ŝi neniam kapablus senti, neniam trasperti en sia malvarmeta korpo, en 41
-
-
-## M A R I A M N E
+Mariamne ne tre malĝojis pro tio, ĉar lastatempe fariĝadis por ŝi ĉiam pli malfacile. Li jam komencis malkaŝe riproĉi ŝin, ke ŝi ne amas lin, konstante paroli pri tio. Antaŭe li ja klopodis kaŝi tion, kaŝi sian humiliĝon, kiel li nomis ĝin, ne rekoni ĝin, teni ĉion en si mem. Sed nun li male rekte diris tion, senkurbe kontraŭ ŝia vizaĝo. Ke li tre bone scias, ke ŝi ne amas lin, ke li rimarkas tion ĉiufoje, kiam ili kunestas, kaj ke ŝi mem scias tion same bone kiel li kaj montras tion eĉ tro klare, precipe kiam ŝi afektas deziron pri li, ŝajnigas sin plena de sekspostulemo malgraŭ tio, ke ŝi tute ne estas, sentas absolute nenion, ŝajnigas ardon kaj fajron, kiujn ŝi neniam kapablus senti, neniam trasperti en sia malvarmeta korpo, en
 
 
 tiu pala kaj suferanta korpo, kie ĉio estas malvarmeta, manoj, sino, koro, ĉio.
@@ -861,14 +675,9 @@ tiu pala kaj suferanta korpo, kie ĉio estas malvarmeta, manoj, sino, koro, ĉio
 Tiel ili disiris. Antaŭ ol li foriris al la montoj.
 
 
-## M A R I A M N E
-
-
 Por Mariamne komenciĝis nun en ŝia soleco kvieta tempo.
 
-ŝi komencis mem vivi, ŝajnis kvazaŭ ŝi dumlonge ne fa-
-
-ris tion. ŝi mergiĝis en sin mem, en sian propran esencon, sed tute sen sinatento. ŝi nur estis, vere estis kaj io, ŝi ne sciis kio, tiriĝis tra ŝia animo kaj ŝia fragila, malvarmeta korpo kiel vento tra arbo.
+ŝi komencis mem vivi, ŝajnis kvazaŭ ŝi dumlonge ne faris tion. ŝi mergiĝis en sin mem, en sian propran esencon, sed tute sen sinatento. ŝi nur estis, vere estis kaj io, ŝi ne sciis kio, tiriĝis tra ŝia animo kaj ŝia fragila, malvarmeta korpo kiel vento tra arbo.
 
 Fakte ŝi tre malmulte konis sin mem. Estis strange, kiel malmulte ŝi sciis pri si mem, estante tiel neordinara kaj, oni supozeble povas diri, aparta homo. Kaj kiel malmulte ŝi pri-atentis tion. Aŭ prefere oni diru, kiel malmulte ŝi priatentus tion, se tio envenus ŝian kapon.
 
@@ -882,13 +691,7 @@ Kiel oni povus konstrui templon por ili?
 
 Ankaŭ ŝi ne bezonis templon.
 
-ŝi estis kiel la arboj. La vento estas ilia diservo, kiu pleni-43
-
-
-## M A R I A M N E
-
-
-gas ilin kaj kiun ili aŭskultas kelkfoje, ne ĉiam, sed kelkiam.
+ŝi estis kiel la arboj. La vento estas ilia diservo, kiu plenigas ilin kaj kiun ili aŭskultas kelkfoje, ne ĉiam, sed kelkiam.
 
 Interne en si mem ili celebras sian diservon. Tiel estas por ili.
 
@@ -904,10 +707,7 @@ Kelkajn fojojn venis la maljuna servistino por ŝin viziti kaj tiam ŝi parolis 
 
 Foje, kiam Mariamne promenis en la urbo, ŝi venis al puto, kie virinoj prenadis akvon. i troviĝis sur malgranda placo kaj certe virinoj prenadis akvon tie jam de la mondestiĝo. La placo kaj la puto certe ambaŭ estis tre malnovaj, kiel ĉio en Jerusalemo.
 
-Kiam ŝi nun preterpasis tie, ŝi ekvidis, ke unu el la virinoj estas ŝia proksima parenco, kuzino de ŝi, samaĝa kiel ŝi. ŝi rapidis manetende al ŝi kaj ŝiaj lipoj jam malfermiĝis por eldiri ŝian nomon. Sed la juna virino sin forturnis kaj, ĉar ŝia kruĉo jam estis plena, ŝi foriris de tie portante ĝin sur sia kapo 44
-
-
-## M A R I A M N E
+Kiam ŝi nun preterpasis tie, ŝi ekvidis, ke unu el la virinoj estas ŝia proksima parenco, kuzino de ŝi, samaĝa kiel ŝi. ŝi rapidis manetende al ŝi kaj ŝiaj lipoj jam malfermiĝis por eldiri ŝian nomon. Sed la juna virino sin forturnis kaj, ĉar ŝia kruĉo jam estis plena, ŝi foriris de tie portante ĝin sur sia kapo
 
 
 sen retrorigardo, en la mallarĝan straton kondukantan al ilia hejmo.
@@ -937,9 +737,6 @@ Sed ja ŝin li amis.
 Sed la silento de Mariamne, tio, ke ŝi nenion respondis, venis el tio, ke ŝi kompreneble suferis pro tio, ke li havis aliajn virinojn, kompreneble tio turmentis ŝin, sed ŝi ja nenion alian povis atendi. ŝi ne povis riproĉi lin pro tio. Tial ŝi ankaŭ ne faris tion.
 
 
-## M A R I A M N E
-
-
 Nun li neniam plu serĉis ŝian brakumon, ne plu venis proksime al ŝi. Kaj ja estis nature, ke ŝi tamen iom suferis pro tio, sentis mankon de la sama kontentiĝo, al kiu li ŝin kutimigis, estus malvero, se ŝi tion neus, spite al ĉio en li, kio vekis ŝian naŭzon kaj abomenon.
 
 ŝi ankaŭ pensis, ke tiu afero kun la virinoj povus esti antaŭsigno, ke li eble reprenos sian malnovan vivmanieron, kaj ŝi havis grandan maltrankvilon pro tio. Ke ŝi mem perdis ĉian potencon super li, estis ja evidente. Kio nun okazos?
@@ -958,13 +755,7 @@ Ankaŭ io alia okazis en la palaco. Herodo ja nun kutimiĝis al alia speco de vi
 
 Sed li faris tion ne nur pro sia seksdeziro, sed ankaŭ por humiligi, ofendi kaj malaltigi ŝin, kiun li amis kaj kiu ne amis lin, faris tion pro nura malico. ĉe li eĉ la amo estis malica.
 
-Sed ne estis facile malaltigi Mariamne. ŝi havis ion inter-46
-
-
-## M A R I A M N E
-
-
-ne, jes ankaŭ ĉirkaŭ si, ion neklarigeblan, kio ŝin faris nea-tingebla. ŝi promenis en tiu domo de malvirtoj kvazaŭ la ĉir-kaŭantaj aferoj ŝin ne tuŝus. Ja kompreneble tio ŝin tuŝis, sed humiligita kaj malaltigita ŝi ne sentis sin. Ion tian ŝi entute ne povis senti.
+Sed ne estis facile malaltigi Mariamne. ŝi havis ion interne, jes ankaŭ ĉirkaŭ si, ion neklarigeblan, kio ŝin faris nea-tingebla. ŝi promenis en tiu domo de malvirtoj kvazaŭ la ĉir-kaŭantaj aferoj ŝin ne tuŝus. Ja kompreneble tio ŝin tuŝis, sed humiligita kaj malaltigita ŝi ne sentis sin. Ion tian ŝi entute ne povis senti.
 
 Unufoje li superŝutis ŝin per senbridaj riproĉoj pro tio, ke ŝi toleras tion, ke ŝi ne lasas sin influi de tio, kio okazas ĉir-kaŭ ŝi, kaj pro tio, ke ŝi ne akuzas lin pro lia malvirta vivo.
 
@@ -983,18 +774,13 @@ Cetere ili sin tenis en aliaj partoj de la palaco, dum ŝi mem loĝis en tiu par
 Sed unu el ili, kaptita makabea virino, kiu lokiĝis tie pro ia fortikmembra beleco, elverŝis foje, kiam ili renkontiĝis, sian senmezuran malamon kaj malestimon sur ŝin.
 
 
-## M A R I A M N E
-
-
 —Mi estas kaptitino, ŝi kriis, devigita min doni al li, tiu honta tirano, tiu abomena idumido. Sed vi vin donis al li pro-pravole kaj pro tio vi fariĝis reĝino kaj tion vi verŝajne kredas nobla. Mi ne estas reĝino! Mi estas perfortita malamiko kaj pri tio mi povas fieri. Sed pri kio vi povas fieri! ĉu vi povas diri! Fi!
 
 Herodo eksciis tion de la aliaj virinoj, eksciis, kiel ŝi kondutis kontraŭ Mariamne. Li mem ŝin punis kaj kun sia tuta konata perfortemo, kiam li koleris, li ŝin draŝis. Eĉ ne flustron ŝi ellasis. Sed li tamen lasis ŝin resti en la palaco, kvankam ĉiuj kredis, ke li ne faros tion. ĉar li ŝatis, ke ŝi neniam submetas sin, ke ŝi neniam cedas, ke li ĉiam devas perforti ŝin.
 
 Malgraŭ ĉio li do ne toleris, ke iu mistraktu Mariamne.
 
-La maljuna servistino dum longa tempo ne venis kaj Mari-
-
-amne sin demandis pro kio. Tio ne laŭ neceso ion signifus, kelkfoje daŭris iom longe inter la fojoj. ŝi pensis, ke ŝi certe venos. Certe ŝi baldaŭ venos.
+La maljuna servistino dum longa tempo ne venis kaj Mariamne sin demandis pro kio. Tio ne laŭ neceso ion signifus, kelkfoje daŭris iom longe inter la fojoj. ŝi pensis, ke ŝi certe venos. Certe ŝi baldaŭ venos.
 
 Sed ŝi ne venis.
 
@@ -1009,14 +795,9 @@ Tiam ŝi fine informiĝis de unu el la putinoj en la palaco, ke tiu maljunulino,
 Mariamne tre agitiĝis. Demandis, kiel ŝi povas scii tion. Jes, ŝi aŭdis tion.
 
 
-## M A R I A M N E
-
-
 ĉu ŝi volas diri, ke ŝi mortis? Tion ŝi ne tute certe scias, sed ŝi estas for kaj tial ŝi kredeble mortis, ili kutime mortas.
 
-De alia flanko Mariamne poste ricevis konfirmon, ke tiel vere okazis. Ke ŝi vere mortis. Kaj ke ŝi estis forviŝita, ĉar Herodo ŝin suspektis mesaĝulino inter Mariamne kaj la makabeoj, al kiuj apartenis ŝia familio. Ke li do eĉ suspektis Mariamne pri rilatoj kun liaj malamikoj. ŝi informiĝis pri tiu dan-
-
-ĝera afero.
+De alia flanko Mariamne poste ricevis konfirmon, ke tiel vere okazis. Ke ŝi vere mortis. Kaj ke ŝi estis forviŝita, ĉar Herodo ŝin suspektis mesaĝulino inter Mariamne kaj la makabeoj, al kiuj apartenis ŝia familio. Ke li do eĉ suspektis Mariamne pri rilatoj kun liaj malamikoj. ŝi informiĝis pri tiu danĝera afero.
 
 Tio estis tro absurda. ŝi povis nenion kompreni.
 
@@ -1034,10 +815,7 @@ Jes, estis vero, ke li suspektis ŝin rilati kun la makabeoj, liaj malamikoj. Ke
 
 Sed la danĝero ne pasis, li diris al si.
 
-Kiel multaj perforteme vivantaj homoj li tre timis pri sia vivo. malgraŭ tio, ke li multajn aliajn homojn mortigis, li havis timon morti mem. Li ne timis morton en batalo, dum tiu ekscitiĝo, kiu regas en batalo, en tia situacio troviĝis eĉ ne grajno da timo en li. Sed timo antaŭ la morto pro malsano, 49
-
-
-## M A R I A M N E
+Kiel multaj perforteme vivantaj homoj li tre timis pri sia vivo. malgraŭ tio, ke li multajn aliajn homojn mortigis, li havis timon morti mem. Li ne timis morton en batalo, dum tiu ekscitiĝo, kiu regas en batalo, en tia situacio troviĝis eĉ ne grajno da timo en li. Sed timo antaŭ la morto pro malsano,
 
 
 morto elinterne, dum rabas la vivon nevidebla malamiko,
@@ -1060,10 +838,7 @@ plimulto. Kiam ŝi venis promenanta sur la stratoj, kio tamen ne okazis tiel oft
 
 Malgraŭ tio, ke ŝi ne plu ridetis al ili, neniam plu ridetos al ili.
 
-Ili sciis, kiel ŝi suferas, kial ŝi ĉiam aspektas malgaja, ili ĉion sciis. Ili sciis, kial ŝi ŝanĝiĝis, kial ŝi ne plu similas al si. Sed ili 50
-
-
-## M A R I A M N E
+Ili sciis, kiel ŝi suferas, kial ŝi ĉiam aspektas malgaja, ili ĉion sciis. Ili sciis, kial ŝi ŝanĝiĝis, kial ŝi ne plu similas al si. Sed ili
 
 
 tamen ŝin amis. Kial ŝi neniam plu povas rideti, neniam plu ridetos al ili. Ili tamen ŝin amis.
@@ -1087,9 +862,6 @@ La soldita murdanto estis viro, kiun li ofte antaŭe uzis por similaj taskoj. Si
 Li estis alta fortika homo kiel li mem. Kial li estis? Kial li similis al li mem?
 
 Kial li uzis ĝuste lin? Kial iun, kiu similas al li mem? Troviĝis ja multaj aliaj. Kial li ne uzis iun el ili? Kial ĝuste lin? Lin, kiu similas al li mem?
-
-
-## M A R I A M N E
 
 
 Nu jes, li ja kutimas volonte lin uzi. Sed troviĝis ja ankaŭ aliaj. Kial ĝuste tiun? Lin, kiu similas al li mem?
@@ -1117,9 +889,6 @@ Neniam li tion ekscios.
 ĉu ŝi ne scias…? ĉu ŝi ne scias…? Jes, ŝi ja devas…
 
 
-## M A R I A M N E
-
-
 Aŭ ĉu ŝi scias, sed tamen faris tiel…?
 
 Tamen tiel…?
@@ -1141,9 +910,6 @@ Daŭris iom, sed ne tre longe, antaŭ ol li kaptis ŝian murdin-ton. Li sin ĵet
 Malgraŭ tio, ke la viro estis same forta kaj granda kiel li mem, li eĉ ne iom kontraŭluktis, allasis sin ponardi.
 
 
-## M A R I A M N E
-
-
 Pri la vivo de Herodo post la morto de Mariamne estas
 
 rakontate, ke li plu vivis tute kiel antaŭe en malico kaj krueleco, ke nenia ŝanĝo okazis en ĝi. Same kiel la amo ne povis vere ŝanĝi lin, la morto de Mariamne ne faris tion. Nur tuj poste, dum mallonga tempo, li ŝajnis iom pli milda kaj la homoj opiniis, ke estis al ili pli bone dum ioma tempo, por la lasta fojo Mariamne ion eldevigis por ili. Poste ĉio reiris al la malnova ordinaro. Poste li resimiliĝis al si.
@@ -1156,13 +922,7 @@ Per daŭranta teroro li nelimigite regis popolon tute subpre-mitan.
 
 Sian malbonmoran vivon li ankaŭ daŭrigis kaj lian sanon
 
-subminis fine la senmezuraj diboĉoj, al kiuj li sin dediĉis. Sed ili ne rompis lin, krom nur korpe kun la tempo, li restis tamen sama, same nevenkebla kaj danĝera por sia ĉirkaŭo kaj por ĉiuj, kiuj kuraĝis altiri lian malamon aŭ eĉ nur lian malkon-54
-
-
-## M A R I A M N E
-
-
-tenton. Li retenis sian tutan forton. Kaj la malamo kontraŭ li retenis sian.
+subminis fine la senmezuraj diboĉoj, al kiuj li sin dediĉis. Sed ili ne rompis lin, krom nur korpe kun la tempo, li restis tamen sama, same nevenkebla kaj danĝera por sia ĉirkaŭo kaj por ĉiuj, kiuj kuraĝis altiri lian malamon aŭ eĉ nur lian malkontenton. Li retenis sian tutan forton. Kaj la malamo kontraŭ li retenis sian.
 
 Malgraŭ ĉio li ja estis maljuna homo, kaj tio komenciĝis videbli. Maljunulo kun ne multe da restanta vivo. Li tamen daŭrigis sian senmoderan vivon, nenion ŝanĝis, kontentigis siajn malvirtojn kaj pasiojn, kiel li ĉiam faris.
 
@@ -1175,9 +935,6 @@ Strange, li pensis en si.
 Kaj poste li komencis ĉirkaŭiri en sia templo, en tiu sanktejo, kiun li konstruis por sia propra singloro, por ke lia nomo vivu post li, por ke li fariĝu senmorta. Kiun li konstruigis tiel kosta kaj bela, eble pli bela ol iu alia templo en la mondo. Li refoje ekĝojis pro ĝia oro kaj kupro, ĝia bronzo kaj arĝento, kaj la brilanta marmoro, kiun li je alta kosto venigis defore el fremda lando. Li ĉirkaŭiris tie per siaj pezaj paŝoj, kiuj fariĝis eĉ pli pezaj nun, kiam li estis maljuna. Li aspektis malsana kaj aĝa, sed tio neniom gravis, ĉar neniu ĉeestis, kiu povus rimarki, li tie ĉirkaŭvagis tute sola. Irinte tie longe kaj trovinte tie ĉion tia, kia ĝi devas esti, li revenis al la palaco, al tiu parto de
 
 ĝi, kiun Mariamne faris hejmo. Kiam li estis sola, li ĉiam restadis tie. Kaj li ofte estis, ĉar li ofte sentis tedon pri la homoj, per kiuj li sin ĉirkaŭis.
-
-
-## M A R I A M N E
 
 
 Estis ja vero, ke Mariamne ne bezonis templon. ŝi havis sian diservon interne en si, kiun ŝi povis aŭskulti iam ajn. ŝi estis kiel arbo, kiun la vento plenigas per sia sekreta susuro. Tiel estis ĉe ŝi. ŝi ne bezonis sanktejon por tio.
@@ -1198,13 +955,7 @@ Kaj li fariĝis nur pli malsana ol iam.
 
 En mizera stato li revenis al Jerusalemo. Lia ŝvelinta korpo estis turmento por li mem kaj por aliaj kun sia forpuŝa odoro.
 
-Kaj lia humoro estis pro la malsano pli malbona ol iam, lia senkonsideremo sin direktis kontraŭ ĉio kaj ĉiuj en lia ĉir-56
-
-
-## M A R I A M N E
-
-
-kaŭaĵo, tiel ke fine preskaŭ neniu kuraĝis proksimiĝi al li. Eĉ liaj malnovaj servistoj ektimis proksimiĝi.
+Kaj lia humoro estis pro la malsano pli malbona ol iam, lia senkonsideremo sin direktis kontraŭ ĉio kaj ĉiuj en lia ĉirkaŭaĵo, tiel ke fine preskaŭ neniu kuraĝis proksimiĝi al li. Eĉ liaj malnovaj servistoj ektimis proksimiĝi.
 
 Liaj doloroj estis teruraj. Vere frapis lin tio, kion li plej multe timis, morti elinterne, esti prirabata je la vivo de malamiko, kiun li ne povas vidi, ne scias, kiu li estas.
 
@@ -1217,9 +968,6 @@ plu esti plenigita de si mem, de sia grandiozeco, sia supere-co, kiel li estis d
 De kiu malsano li suferis, ne estas konate. Oni diris, ke ver-moj lin manĝis — kion povu signifi tiu ideo — kaj ke tio okazis pro lia granda malico. Por la popolo ja ne estis malfacile tion kredi.
 
 Li nun vivis preskaŭ sola en sia palaco, ĉar ĉiuj homoj tedis lin, same kiel li tedis ilin. Nur unu servisto ankoraŭ restis. Sed ekster la palaco kompreneble daŭre kiel ĉiam staris multnombre da armitaj viroj por gardi lian vivon. Lia vivo estis tre bone ŝirmata kaj gardata, malgraŭ tio, ke ĉiuj nur esperis lian morton.
-
-
-## M A R I A M N E
 
 
 Je tiu tempo okazis, ke stelo lumiĝis en Oriento per brilo, kiu estis pli forta ol tiu de ĉiuj aliaj. Kaj tri saĝuloj el dezer-tolando longe for vidis la stelon kaj komprenis ĝian mesaĝon.
@@ -1237,9 +985,6 @@ La servisto ektimis kaj petis ilin atendi ekstere, dum li informos sian mastron.
 Sed Herodo ne koleris. Perpleksigite la servisto trovis, ke anstataŭ kolera li ŝajnas preskaŭ timigita. Ion tian li neniam antaŭe vidis ĉe sia mastro. Ordonite de Herodo li rapidis venigi la tri virojn kaj ilnduki antaŭ lin.
 
 Herodo vere ektimis. Sed kiam la tri viroj alpaŝis ĝis antaŭ li, li denove trankviliĝis. ĉar li komprenis, ke tiel malriĉe ves-titaj homoj certe ne povas havi ian signifan mesaĝon por transdoni. Li tamen demandis ilin, kial ili venis, kian komision ili havas. Kaj ili ripetis siajn vortojn parolitajn al la servisto, ke infano naskiĝis, kiu estos reĝo de Judolando kaj ankaŭ de la tuta mondo.
-
-
-## M A R I A M N E
 
 
 Herodo demandis, kiel ili povas scii.
@@ -1267,9 +1012,6 @@ Sed la saĝuloj vidis, ke la stelo moviĝas, ke ĝi daŭrigas sian vojon, ke ĝi
 Sed Herodo restis staranta kaj rigardis la vastegan ĉielvol-bon kaj la steloj mergis siajn fridajn lancojn en lian animon.
 
 
-## M A R I A M N E
-
-
 Kiam la saĝuloj migris jam longe en la nokto de Judeo, ili venis en urbeton, kies nomon ili ne konis. Super ĝi haltis la stelo. Super kaverno ĉe la rando de la urbeto, kien paŝtistoj kutimis konduki sian gregon, sed nun loĝis tie viro kaj virino kun sia infano, kaj super tiu infano la stelo senmoviĝis. Kaj poste komencis forpaliĝi de la ĉielo kaj ne plu videblis, ĉar fariĝis jam mateno.
 
 Tiam la tri viroj komprenis, ke ili atingis sian celon kaj ke la infano estas la reĝo, kiun ili serĉis, al kiu la stelo volis ilnduki.
@@ -1291,9 +1033,6 @@ La tria donis al la infano kruĉon da akvo prenita el fonto en la dezerto de lia
 Tiuj estis la donacoj, kiujn ili donis al la infano.
 
 
-## M A R I A M N E
-
-
 Kaj la gepatroj, kiuj ankaŭ estis simplaj homoj kaj ne dor-lotitaj per kostaj donacoj, multe dankis ilin.
 
 Kaj ankoraŭ unufoje riverencinte antaŭ la infano kaj antaŭ
@@ -1313,9 +1052,6 @@ Tio estis lia lasta malbonfaro. ĉar nun lia propra morto estis proksima.
 Sed kiam la murdoj okazis en la urbeto, la infano kaj ĝiaj gepatroj ne plu estis tie.
 
 
-## M A R I A M N E
-
-
 Herodo estis nun tute sola en la palaco. La lastaj servistoj jam forlasis lin, ne plu eltenis. Kaj, ĉar ili sciis, ke li estas preskaŭ mortanta, ili ne plu timis lin, sed kuraĝis lin forlasi, simple foriri.
 
 En tiu ĉi sia plena soleco li komencis pensi pri Mariamne.
@@ -1326,16 +1062,11 @@ Kvankam tute ne influante lian vivon, neniel ĝin ŝanĝante.
 
 Ankaŭ la morto de Mariamne neniel ajn ŝanĝis lin, nek lian vivon. Kaj ankaŭ ne tiu fakto, ke li sciis, ke li mem kulpas ĝin, ke li ŝin mortigis, kvankam li dungis alian viron, viron, kiu tre similis al li, por fari tion, por ne bezoni mem fari tion.
 
-Nenio lin ŝanĝis. Nenio iam ajn povos lin ŝanĝi, ĉar li estis dezerthomo. Kaj en lia dezerto troviĝis nenia fonto de miraklo kun freŝa kaj klara akvo, kiun oni povus alporti en kru-
-
-ĉeto por refreŝigi sin kaj fariĝi alia persono ol oni estas.
+Nenio lin ŝanĝis. Nenio iam ajn povos lin ŝanĝi, ĉar li estis dezerthomo. Kaj en lia dezerto troviĝis nenia fonto de miraklo kun freŝa kaj klara akvo, kiun oni povus alporti en kruĉeto por refreŝigi sin kaj fariĝi alia persono ol oni estas.
 
 Nenio simila troviĝis por li.
 
 Li ankaŭ ne estis kiel Mariamne. ŝi, kiu ne bezonis templon. ŝi, kiu estis kvazaŭ arbo, kiun la vento plenigas per sia sekreta susuro. Li ankaŭ ne estis kiel ŝi.
-
-
-## M A R I A M N E
 
 
 Nenio tia troviĝis ĉe li.
@@ -1362,9 +1093,7 @@ La malplenaj haloj e˛is pro liaj vokoj.
 
 Mariamne! Mariamne!
 
-Kaj la e˛o kavece redonis la nomon de lia mortinta amat-
-
-ino.
+Kaj la e˛o kavece redonis la nomon de lia mortinta amatino.
 
 En al mallumo de la morto li trenis sin antaŭen, faris la las-tajn paŝojn de sia malica vivo.
 
@@ -1373,21 +1102,12 @@ Fine li falis kaj restis kuŝanta. Provis denove stariĝi, sed ne povis. Li eten
 Mariamne! Mariamne!
 
 
-## M A R I A M N E
-
-
 Post tio la etenditaj brakoj senpove malleviĝis kaj li estis mortinta.
-
-
-## M A R I A M N E
 
 
 Tiel la granda reĝo Herodo vivis sian vivon ĉi tie sur la tero, tiun tempon, kiu estis donita al li por vivi. Tiel li estis bildo de la homo, kiu plenigas la teron, sed kiu iam estos forviŝita de ĝi, kaj se ni ĝuste komprenas, ne lasos memoraĵon post si. Tiel li vivis sian vivon.
 
 Mariamne! Mariamne!
-
-
-## M A R I A M N E
 
 
 www.omnibus.se/

@@ -11,17 +11,8 @@ LA INTERROMPITA KANTO
 
 Eliza Orzeszko
 
-LA INTERROMPITA KANTO
 
 Kabe
-
-
-@omnibus.se
-
-·
-
-
-LA INTERROMPITA KANTO
 
 
 I
@@ -41,9 +32,6 @@ Tra la pordo de la kuirejo enkuris en unu el la ĉambroj Klaro Wygrycz kantante,
 Per la manoj ĵus lavitaj, ankoraŭ ruĝaj de la malvarma ak-vo, ŝi rapide demetis la antaŭtukon, kunvolvis ĝin kaj metis en tirkeston de malnova komodo, pensante: ”Mi jam devas
 
 
-LA INTERROMPITA KANTO
-
-
 ĝin lavi, ĝi estas tre malpura”. Poste ŝi malfaldis la manikojn kaj metis en sian korbon pecojn de tondita perkalo, tondilojn, fadenojn, fingringon. ŝi ĉirkaŭrigardis la ĉambron kaj de la bretaro ŝi prenis libron, kiun ŝi ankaŭ metis en la korbon ku-ne kun peceto da pano, alportita el la kuirejo. Tiam ŝi ekkan-tis valsan melodion: La, la, la! la, la, la! kaj kuris sur la balkonon. Tie ŝi haltis, rigardis la fazeolon kaj la florbedon. La fazeolo jam estis kovrita de ŝeloj, sed tie ĉi kaj tie restis ankoraŭ inter ĝiaj grandegaj folioj kelke da fajre ruĝaj floroj. Klaro deŝiris unu kaj enŝovis ĝin inter siajn nigrajn harojn, kiuj fri-ziĝis sur la frunto kaj falis en liberaj bukloj sur la nukon kaj ŝultrojn. La ruĝa floro ŝajnis inter ili malgranda flameto.
 
 La knabino ne estis perfekte bela, sed ŝi posedis la freŝecon de deknaŭ jaroj kaj la ĉarmon de siaj vivaj movoj, rigardoj kaj ridetoj. ŝi ridetis ankaŭ nun rigardante la ĝardenon. ŝi sentis sin gaja, ŝi jam plenumis ĉiujn devojn kaj estis tute libera dum du horoj. La patro estis en la oficejo, la frato en la lernejo, la fratino en la kudrejo; la tagmanĝo, jam tute preta, atendis ilian revenon en la forno.
@@ -54,9 +42,7 @@ Ordiginte la loĝejon kaj kuirinte la tagmanĝon, ŝi estis iom malsata. Tial ŝ
 
 ĉiufoje, kiam ŝi pasigis tie unu horon aŭ du tute sola, nur kun sia laboro kaj kun siaj pensoj, ŝi fariĝis gaja.
 
-La knabino, viva kiel fajrero, amis la solecon. La juna kapo havis siajn zorgojn. Kaj nenie ŝi sentis sin tiel sola, nenie ŝi povis pensi tiel senĝene, kiel en la siringa laŭbo. Tie, malantaŭ la malalta krado, estis ombra aleo de maljunaj arboj, kiuj 4
-
-LA INTERROMPITA KANTO
+La knabino, viva kiel fajrero, amis la solecon. La juna kapo havis siajn zorgojn. Kaj nenie ŝi sentis sin tiel sola, nenie ŝi povis pensi tiel senĝene, kiel en la siringa laŭbo. Tie, malantaŭ la malalta krado, estis ombra aleo de maljunaj arboj, kiuj
 
 
 disiĝis kontraŭ la laŭbo, montrante post vasta herbaro malgrandan, sed belan palacon, kun du turoj kaj kun tri vicoj de altaj, mallarĝaj fenestroj. Pro la silento, kiu ĉiam regis ĉirkaŭe, la griza, grandioza palaco ŝajnis io mistera. La fenestroj ĉiam estis fermitaj, la ĝardenon vizitis neniu, krom la ĝardenistoj, kiuj ordigis la vojojn kaj herbarojn. Proksime de la laŭbo estis malgranda pordego, ĉiam fermita. Parko bela kaj zorge konservata, sed sen promenantoj.
@@ -70,16 +56,11 @@ Tiom da elspezoj! Eĉ plej malkara vesto kostas multe. La malgranda salajro de l
 La penso pri la manĝo rememorigis al ŝi la peceton da pa-no, kiun ŝi havis en la korbo; ŝi demordis iom, metis la panon sur la tablon kaj daŭrigis la kudradon.
 
 
-LA INTERROMPITA KANTO
-
-
 En la sama momento en la aleo, kiu ĉirkaŭis la parkon, iris de la palaco viro alta kaj tre gracia; en hejma sed eleganta vesto, en malgranda felta ĉapelo sur siaj malhele blondaj haroj. La ovalo de lia vizaĝo estis delikata kaj pala, la vangoj glate razitaj; la malgrandaj lipharoj ombris la maldikajn lipojn, iom ironiajn, iom enuajn. Li estis tridekkelkjara, liaj movoj estis junaj, lertaj, iom malzorgetaj.
 
 Li iris en la komenco kun klinita kapo, sed poste li levis ĝin por rigardi kaj admiri la arbojn de la parko. Ili staris senmovaj, en la kvieta aero kaj en la oro de la suno. La aŭtuno jam flavigis la foliojn. De tempo al tempo la sekaj folioj kun kra-keto dispeciĝis sub la piedoj de la iranto, kiu, malrapidigan-te la paŝojn, direktis la rigardon al la du verdaĵmuroj de la aleo: de la pintoj, oraj kaj ruĝaj de la suno, ĝis la dikaj trunkoj, kovritaj de muskoj, kvazaŭ de verdaĵĉifitaj puntoj.
 
-ĉarma anguleto, li pensis, kvankam malgranda kaj en mal-
-
-granda urbo. Sed eble ĝi estas ĉarma ĝuste tial, ke ĝin pleni-gas tia silento, kian ne eblas trovi en la grandaj urboj, eĉ en la plimulto da grandaj princaj kamparoj.
+ĉarma anguleto, li pensis, kvankam malgranda kaj en malgranda urbo. Sed eble ĝi estas ĉarma ĝuste tial, ke ĝin pleni-gas tia silento, kian ne eblas trovi en la grandaj urboj, eĉ en la plimulto da grandaj princaj kamparoj.
 
 Longe vivi en tia loko povus nur mona˛o, sed mallonga
 
@@ -89,9 +70,7 @@ Inter ĉi tiuj arboj oni dezirus vidi idilion. ĉu nur vidi? Eble ankaŭ ludi ro
 
 Tiaj revoj ne estas tre saĝaj, la loko naskigas ilin, ili mala-peros kiel vantaj sonĝoj, lasante malĝojon sur la fundo de la koro dum kelkaj horoj. Cetere, kio estas saĝa en la mondo?
 
-En la brua vivo de la homoj oni trovas tiom da saĝo kiom da malsaĝo; tia opinio estas eĉ tro optimista. La procento da 6
-
-LA INTERROMPITA KANTO
+En la brua vivo de la homoj oni trovas tiom da saĝo kiom da malsaĝo; tia opinio estas eĉ tro optimista. La procento da
 
 
 saĝo estas tre malgranda; la vero same rilatas la malveron.
@@ -102,20 +81,13 @@ Montru al mi en la mondo homon — miraklon, kiu ne konas
 
 Sed oni ne povas ĉiun trompadi senfine. La sperto, eĉ ne tre longa, konvinkas, ke la kaptita papilio fariĝas baldaŭ abo-mena kadavreto. Tiam oni eksopiros al kvieta soleco, odoran-ta idilion — la blagon de la poetoj. ĉar en la realo la idilia paŝtistino havas grandajn ruĝajn manojn kaj magnetan inkli-non al la monujo de sia paŝtisto.
 
-Tie ĉi, malproksime de la mondo, bone estus legi Roche-
-
-foucauld’on. Kia malhela kaj preciza pentro de la malhela vivo! Oni nepre devas veni ĉi tien kun Rochefoucauld kaj legi sub la arboj … Sed ĉu estas tie ĉi benkoj?
+Tie ĉi, malproksime de la mondo, bone estus legi Rochefoucauld’on. Kia malhela kaj preciza pentro de la malhela vivo! Oni nepre devas veni ĉi tien kun Rochefoucauld kaj legi sub la arboj … Sed ĉu estas tie ĉi benkoj?
 
 Por vidi, ĉu en la maljuna ombra aleo estas loko, kie li povus sidiĝi kun Rochefoucauld, li levis la kapon kaj ekmiregis.
 
 Kelke da paŝoj antaŭ li, tuj malantaŭ la krado, knabino en perkala vesto kun ruĝaj kaj grizaj strioj sidis sur mallarĝa benko sub siringa arbeto kaj diligente kudris. Ruĝa floro flamis en ŝiaj nigraj haroj, nigraj bukloj volviĝis sur la klinita nuko kaj sur la kolumo de la korsaĵo. De meza kresko, delikata kaj gracia, kun pala vizaĝo kaj ruĝega buŝo ŝi estis plena de freŝeco kaj ĉarmo.
 
-La rapideco de ŝia kudrado ne malhelpis ŝin preni de tem-po al tempo pecon da pano, kuŝanta sur tableto el du dikaj, fendiĝintaj tabuloj. ŝi demordis peceton kaj maĉante ĝin reprenis la laboron. La pano estis bruna, la dentoj, kiuj profun-7
-
-LA INTERROMPITA KANTO
-
-
-diĝis en ĝin, egalaj kaj blankaj, kiel perloj. Du, tri minutojn ŝi kudras, kaj ree la mano kun brilanta fingringo etendiĝas al la peco, pli kaj pli malgranda, sed la laboro progresas. La kun-kudrado de du pecoj de perkalo estos baldaŭ finita. Ankoraŭ unu mordo, ankoraŭ kelkaj steboj kaj fine la blankaj dentoj tratranĉas ne la panon, sed la fadenon: la knabino rektiĝas, rigardas la laboraĵon kaj sendube ŝi trovas, ke ĝi estas bona, ke la pano estis bongusta, ke la vetero estas bela, ĉar el ŝia buŝo elflugas gaja valsa melodio.
+La rapideco de ŝia kudrado ne malhelpis ŝin preni de tem-po al tempo pecon da pano, kuŝanta sur tableto el du dikaj, fendiĝintaj tabuloj. ŝi demordis peceton kaj maĉante ĝin reprenis la laboron. La pano estis bruna, la dentoj, kiuj profundiĝis en ĝin, egalaj kaj blankaj, kiel perloj. Du, tri minutojn ŝi kudras, kaj ree la mano kun brilanta fingringo etendiĝas al la peco, pli kaj pli malgranda, sed la laboro progresas. La kun-kudrado de du pecoj de perkalo estos baldaŭ finita. Ankoraŭ unu mordo, ankoraŭ kelkaj steboj kaj fine la blankaj dentoj tratranĉas ne la panon, sed la fadenon: la knabino rektiĝas, rigardas la laboraĵon kaj sendube ŝi trovas, ke ĝi estas bona, ke la pano estis bongusta, ke la vetero estas bela, ĉar el ŝia buŝo elflugas gaja valsa melodio.
 
 —La, la, la! la, la! la, la, la!
 
@@ -129,12 +101,7 @@ Kelke da sekundoj li ŝajnis sanceliĝi aŭ konsideri, poste li rapide proksimi�
 
 —Permesu demandi vin, fraŭlino, kiu loĝas en ĉi tiu bela dometo?
 
-Lia rigardo montris la duonruinon, dronanta en la fazeo-
-
-la verdaĵo.
-
-
-LA INTERROMPITA KANTO
+Lia rigardo montris la duonruinon, dronanta en la fazeola verdaĵo.
 
 
 Klaro, iom konfuziĝinte, respondis:
@@ -145,9 +112,7 @@ Sed tuj ŝi korektis:
 
 —Mia patro, Teofilo Wygrycz, mi, mia frato kaj fratino.
 
-La maniero de ŝia parolado montris bone edukitan knabi-
-
-non, al kiu ne mankas spiritĉeesto.
+La maniero de ŝia parolado montris bone edukitan knabinon, al kiu ne mankas spiritĉeesto.
 
 —Agrabla loko, — rimarkis la juna viro.
 
@@ -177,12 +142,7 @@ fratino ne havas tempon kulturi pli multe.
 
 Ili eksilentis; ŝi ree konfuziĝis, mallevis la vizaĝon al la laboraĵo kaj komencis kudri; li apogis sin al la krado, rigardis ŝin kaj restis. ŝia konfuzo devenis ĝuste de la maniero, per kiu li ŝin rigardis.
 
-Li ĵus demetis la ĉapelon, kaj sub la frunto kun profunda sulko liaj bluaj okuloj ŝerce ridetis. La teniĝo, la maniero pa-9
-
-LA INTERROMPITA KANTO
-
-
-roli iom malrapide kaj skandante la silabojn, la rideto de la okuloj de la nekonato tute ne estis neĝentilaj, sed lia memfido kaj aristokrata ŝajno konfuzis la knabinon. Krom tio ŝi sciis, ke juna fraŭlino ne rajtas longe paroli kun nekonataj viroj, sed bruligis ŝin la scivolo: kiu li estas? De kie kaj kiel li aperis en ĉi tiu loko, ordinare senhoma? ŝi pensis: kiamaniere demandi? — sed ŝi trovis nenian konvenan esprimon. ŝi do kudris, kaj amaso da pensoj rapidis en ŝia cerbo unu post alia: Eble li foriros? Eble mi devas leviĝi kaj foriri? Ne, tio estus malĝentila; kial forkuri? Mi ja estas en mia propra laŭbo. Li reiru, de kie li venis! Kiu li estas? Li estas beleta … Lia voĉo estas tre agrabla …
+Li ĵus demetis la ĉapelon, kaj sub la frunto kun profunda sulko liaj bluaj okuloj ŝerce ridetis. La teniĝo, la maniero paroli iom malrapide kaj skandante la silabojn, la rideto de la okuloj de la nekonato tute ne estis neĝentilaj, sed lia memfido kaj aristokrata ŝajno konfuzis la knabinon. Krom tio ŝi sciis, ke juna fraŭlino ne rajtas longe paroli kun nekonataj viroj, sed bruligis ŝin la scivolo: kiu li estas? De kie kaj kiel li aperis en ĉi tiu loko, ordinare senhoma? ŝi pensis: kiamaniere demandi? — sed ŝi trovis nenian konvenan esprimon. ŝi do kudris, kaj amaso da pensoj rapidis en ŝia cerbo unu post alia: Eble li foriros? Eble mi devas leviĝi kaj foriri? Ne, tio estus malĝentila; kial forkuri? Mi ja estas en mia propra laŭbo. Li reiru, de kie li venis! Kiu li estas? Li estas beleta … Lia voĉo estas tre agrabla …
 
 Li, post kelkaj silentaj minutoj, reparolis per voĉo vere tre agrabla, mola kiel veluro:
 
@@ -216,12 +176,7 @@ Ne levante la kapon, ŝi respondis:
 
 —Mi penas tion fari … mi tre deziras … laŭ eblo …
 
-La ŝerca rideto malaperis de la buŝo kaj okuloj de la neko-10
-
-LA INTERROMPITA KANTO
-
-
-nato. Li apogis pli forte la brakon al la krado kaj diris post momento:
+La ŝerca rideto malaperis de la buŝo kaj okuloj de la nekonato. Li apogis pli forte la brakon al la krado kaj diris post momento:
 
 —Mi vidas libron en via korbo … ĉu vi amas la legadon?
 
@@ -229,9 +184,7 @@ nato. Li apogis pli forte la brakon al la krado kaj diris post momento:
 
 —Kion vi legas?
 
-Li etendis la manon super la krado; post momenta ŝan-
-
-celiĝo ŝi donis al li la libron.
+Li etendis la manon super la krado; post momenta ŝanceliĝo ŝi donis al li la libron.
 
 —Vere, stranga homo! Li staras kaj tute ne intencas foriri!
 
@@ -255,13 +208,9 @@ Al la arbar’ — montetoj, herbejoj verdantaj,
 
 Larĝe apud lazura Njemen tiriĝantajl1 …
 
-Kvankam nur duonlaŭte, li legis tre bone. La knabino es-
+Kvankam nur duonlaŭte, li legis tre bone. La knabino estis strange impresita: ŝi neniam aŭdis versojn, legatajn voĉe, kaj nun ili estis legataj per voĉo velura, plena de karesoj kaj iom malĝoja.
 
-tis strange impresita: ŝi neniam aŭdis versojn, legatajn voĉe, kaj nun ili estis legataj per voĉo velura, plena de karesoj kaj iom malĝoja.
-
-Li interrompis la legadon kaj ekpensis: — Jen mi estas tre 1 El ”Sinjoro Tadeuŝ” de Mickiewicz, traduko de A. Grabovski 11
-
-LA INTERROMPITA KANTO
+Li interrompis la legadon kaj ekpensis: — Jen mi estas tre 1 El ”Sinjoro Tadeuŝ” de Mickiewicz, traduko de A. Grabovski
 
 
 malproksime de Rochefoucauld … en tute alia regiono … —
@@ -297,9 +246,6 @@ En betula arbaro, sur eta monteto …
 Kvazaŭ pripensinte dum la legado, li fermis la libron kaj diris kun saluto:
 
 —Mi ankoraŭ ne prezentis min al vi. Mi ne supozis, ke nia interparolado daŭros tiel longe. Sed nun mi sentas, ke mi deziros ripeti ĝin …
-
-
-LA INTERROMPITA KANTO
 
 
 Momenton li konsideris, mallevinte la okulojn, poste li diris:
@@ -339,9 +285,6 @@ Przyjemski momenton ŝanceliĝis kaj poste respondis kun
 rideto, kiu ŝajnis stranga al ŝi:
 
 —Jes kaj ne; li vivis ne longe, sed li travivis multon …
-
-
-LA INTERROMPITA KANTO
 
 
 ŝi jese balancis la kapon.
@@ -386,13 +329,7 @@ pri ĉio, helpi unu la alian, havi la samajn ĝojojn kaj ĉagre-nojn …
 
 —Mi neniam sukcesis. Jam du fojojn mi estis certa, ke mi havas tian amikinon kaj mi estis ekstreme feliĉa, kaj poste …
 
-—ĉu vi permesas al mi fini anstataŭ vi? … Poste vi kon-
-
-
-LA INTERROMPITA KANTO
-
-
-vinkiĝis, ke unue: la amikinoj estis multe malpli saĝaj ol vi, oni do ne povis havi komunajn pensojn; due: ke ili ne amis vin sincere … ĉu jes?
+—ĉu vi permesas al mi fini anstataŭ vi? … Poste vi konvinkiĝis, ke unue: la amikinoj estis multe malpli saĝaj ol vi, oni do ne povis havi komunajn pensojn; due: ke ili ne amis vin sincere … ĉu jes?
 
 Ne ĉesante kudri, ŝi jese balancis la kapon.
 
@@ -425,9 +362,6 @@ Levante la palpebrojn, li demandis.
 Per rapida gesto ŝi montris la ĝardenon malantaŭ la krado.
 
 
-LA INTERROMPITA KANTO
-
-
 —Ekzemple, tia ĝardeno! Ho Dio, kiom da fojoj sidante ĉi tie mi pensis pri la feliĉo povi ĉiam, kiam oni tion deziras, promeni kaj sidi sub tiaj arboj, rigardi la belajn florojn, loĝi en domo de tiel bela ar˛itekturo … Mi estas jam feliĉa, kiam mi sidas ĉi tie kaj nur rigardas la silueton de ĉi tiu palaco kun linioj tiel harmoniaj kaj elegantaj, la arbojn, la herbaron … En aprilo tiom da violoj ornamas la herbaron, ke la verdaĵo mal-aperas sub ili, ĉio estas violkolora, kaj la bonodoro atingas eĉ nian dometon …
 
 —Vi estas tre sentema al beleco …
@@ -438,22 +372,13 @@ Kun vivaj gestoj ŝi komencis gaje rakonti:
 
 Mi devis trovi la posedanton; persone paroli kun li; li estas riĉa homo, loĝas en la centro de la urbo, en grandega domo.
 
-Mi estis tie kelke da fojoj, antaŭ ol li konsentis trakti kun mi la aferon. La prezo estis tro alta por ni, ni devis prokrasti la aĉeton, la transloĝiĝo kostis multe … unuvorte, mil da malfacilaĵoj kaj malhelpoj. Mi venkis ĉion, kaj dank’al Dio ni lo-
+Mi estis tie kelke da fojoj, antaŭ ol li konsentis trakti kun mi la aferon. La prezo estis tro alta por ni, ni devis prokrasti la aĉeton, la transloĝiĝo kostis multe … unuvorte, mil da malfacilaĵoj kaj malhelpoj. Mi venkis ĉion, kaj dank’al Dio ni loĝas ĉi tie … Jam de tri jaroj …
 
-ĝas ĉi tie … Jam de tri jaroj …
-
-—Vi do estis deksesjara, kiam vi plenumis ĉi tiujn hero-
-
-aĵojn?
+—Vi do estis deksesjara, kiam vi plenumis ĉi tiujn heroaĵojn?
 
 ŝi ekridis.
 
-—Heroaĵo certe ĝi ne estas, sed forta decidemo estis nece-16
-
-LA INTERROMPITA KANTO
-
-
-sa. Mi estas certa, ke la sanon de mia patro subtenos nur la ĉi tiea pura aero kaj kvieto. Se ni restus en nia antaŭa loĝejo, en malpura kaj brua kvartalo, kiu povas scii, kio okazus! Kaj ĉi tie la stato de mia patro almenaŭ ne plimalboniĝas kaj ni ĉiuj fartas bone.
+—Heroaĵo certe ĝi ne estas, sed forta decidemo estis necesa. Mi estas certa, ke la sanon de mia patro subtenos nur la ĉi tiea pura aero kaj kvieto. Se ni restus en nia antaŭa loĝejo, en malpura kaj brua kvartalo, kiu povas scii, kio okazus! Kaj ĉi tie la stato de mia patro almenaŭ ne plimalboniĝas kaj ni ĉiuj fartas bone.
 
 —Bone! — ripetis Przyjemski, — vi do estas tute feliĉa, de kiam vi loĝas ĉi tie?
 
@@ -492,18 +417,13 @@ vive:
 —ŝajnas al mi … eble … mi ne memoras bone …
 
 
-LA INTERROMPITA KANTO
-
-
 —Sankta Virgulino staras, kaj el ambaŭ ŝiaj manoj fluas
 
 amase radioj, kiuj konsolas, lumigas kaj defendas kontraŭ la malbono … se mi estus princo, mi surirus la turon kaj eten-dinte la brakojn mi verŝus riverojn da radioj …Ho Dio, kiel feliĉa mi estus! …
 
 La vortojn ŝi akompanis per gestoj: ŝi montris la pinton de la turo, poste ŝi mallevis la brakojn kaj skuis ilin, kvazaŭ ŝu-tante ion teren.
 
-Przyjemski aŭskultis; liaj okuloj sub la profunda sulko fari-
-
-ĝis dolĉaj kaj brilaj.
+Przyjemski aŭskultis; liaj okuloj sub la profunda sulko fariĝis dolĉaj kaj brilaj.
 
 —Bele, tre bele! — li flustris al si mem.
 
@@ -517,9 +437,7 @@ Iom levante la ĉapelon, kiun li ĵus remetis sur la kapon, li aldonis:
 
 vi …
 
-Karmina ruĝo kovris la vizaĝon de Klaro. ŝi komencis ra-
-
-pide, rapide meti la laboraĵon en la korbon.
+Karmina ruĝo kovris la vizaĝon de Klaro. ŝi komencis rapide, rapide meti la laboraĵon en la korbon.
 
 —Jam estas tempo reveni hejmen …
 
@@ -538,9 +456,6 @@ morgaŭ!
 venos en la laŭbon. ĉu vi konsentas?
 
 
-LA INTERROMPITA KANTO
-
-
 —Jes, sinjoro — ŝi respondis senŝancelige, — mi venas ĉi tien ĉiutage, se la vetero estas bela …
 
 —i estu bela morgaŭ! …
@@ -553,9 +468,7 @@ Sur la balkono aperis knabeto dekjara en gimnazia vesto
 
 kaj svingante la manojn al la laŭbo, vokis kaj kriis:
 
-—Klaro, Klaro! Jen mi revenis! La patro ankaŭ venas, Fran-jo tuj alkuros el la kudrejo. Venu rapide kaj donu la tagman-
-
-ĝon! Mi mortas de malsato! …
+—Klaro, Klaro! Jen mi revenis! La patro ankaŭ venas, Fran-jo tuj alkuros el la kudrejo. Venu rapide kaj donu la tagmanĝon! Mi mortas de malsato! …
 
 —Mi venas, mi venas! — ekkriis Klaro kaj salutinte la novan konaton estis forkuronta, kiam li haltigis ŝin per la vortoj:
 
@@ -564,20 +477,13 @@ kaj svingante la manojn al la laŭbo, vokis kaj kriis:
 Ne ŝanceliĝante, kun ĝentila saluto ŝi etendis la manon; nur kiam ĉi tiu mano gracia, sed iom malglata, troviĝis en la blanka mola mano, kiu delikate sed longe premis ĝin, kar-mina ruĝo kovris ŝian tutan vizaĝon, de la nigraj bukloj sur la frunto, ĝis la kolumo de la korsaĵo.
 
 
-LA INTERROMPITA KANTO
-
-
 II
 
-Longe antaŭ tagmezo, Julio Przyjemski, sidante sur ben-
-
-ko en la parko kun la libro en la mano, rigardis ofte la dometon, staranta en la fazeola verdaĵo meze de la najbara
+Longe antaŭ tagmezo, Julio Przyjemski, sidante sur benko en la parko kun la libro en la mano, rigardis ofte la dometon, staranta en la fazeola verdaĵo meze de la najbara
 
 ĝardeno. La malalta krado kaj la disiĝo de la arbaj branĉoj permesis vidi klare ĉion, kio okazas ĉirkaŭ la dometo.
 
-Unue li ekvidis viron altan, maldikan, kun griziĝantaj haroj, kiu iris sur la balkonon, en eluzita palto, en ĉapo kun steleto, kun malgranda paperujo sub la brako. Post li kuris Klaro kaj, metinte ambaŭ manojn sur liajn ŝultrojn, parolis kun li, proksimigis sian frunton por kiso kaj revenis internen. La maldika, griza viro ekiris malrapide al la pordeto de la ĉirkaŭ-
-
-baro. Li ankoraŭ ne trairis la duonon de la vojo, kiam haltigis lin laŭta vokado el la domo:
+Unue li ekvidis viron altan, maldikan, kun griziĝantaj haroj, kiu iris sur la balkonon, en eluzita palto, en ĉapo kun steleto, kun malgranda paperujo sub la brako. Post li kuris Klaro kaj, metinte ambaŭ manojn sur liajn ŝultrojn, parolis kun li, proksimigis sian frunton por kiso kaj revenis internen. La maldika, griza viro ekiris malrapide al la pordeto de la ĉirkaŭbaro. Li ankoraŭ ne trairis la duonon de la vojo, kiam haltigis lin laŭta vokado el la domo:
 
 —Paĉjo, paĉjo!
 
@@ -593,9 +499,7 @@ kaj hodiaŭ matene li jam sciis ĉion. Tridek rubloj monate …
 
 ĝi estas mizero. Kompreneble. La idilioj ja ekzistas por mal-sataj poemamantoj. ŝi manĝas nigran panon kaj … portas poemojn en la korbo.
 
-Li rigardis la libron, kiun li havis en la mano. i ne estis La 20
-
-LA INTERROMPITA KANTO
+Li rigardis la libron, kiun li havis en la mano. i ne estis La
 
 
 Rochefoucauld, sed la malnova libro en eluzita bindajo, kiun li pruntis hieraŭ de Klaro. Jen ree kelkaj versoj signitaj per krajono. Ni legu:
@@ -616,9 +520,7 @@ Li tuj tion eksciis. Klaro aperis sur la balkoneto, portante ion pezan en la dis
 
 Li legis, meditis, foriris, revenis, foriris por kelkaj horoj kaj post tagmezo li ree estis en la parko preskaŭ en la sama horo, en kiu li hieraŭ renkontis Klaron.
 
-Li sidiĝis sur la benko kun la sama libro en la malnova bindaĵo kaj ĉiumomente levis la okulojn, rigardante la najbaran 21
-
-LA INTERROMPITA KANTO
+Li sidiĝis sur la benko kun la sama libro en la malnova bindaĵo kaj ĉiumomente levis la okulojn, rigardante la najbaran
 
 
 ĝardenon. Fine li kliniĝis rapide antaŭen por pli bone vidi tra la branĉoj.
@@ -634,14 +536,9 @@ Klaro de la frua mateno meditis: ĉu iri, aŭ ne iri? Prepa-rante la matenmanĝo
 Stranga okazo! Renkonti homon fremdan, tiel longe paroli kun li, eĉ prunti al li libron! Mi neniam aŭdis iun tiel belege leganta. Kiel ĉarma li estas! Stranga estas la sulko sur lia frunto, tiel profunda, kaj sub ĝi la okuloj tiel bluaj, tiel bluaj, jen maltimaj kaj ridantaj, jen malĝojaj! Kiel ĉarma li estas! Unufoje li tiamaniere ekrigardis min, ke mi estis forkuronta … Mi sentis min kvazaŭ ofendita de li, sed poste li komencis rakonti pri la princo tiel interesajn aferojn … Kiel ĉarma li estas. Kiel li diris: ”Oni devas nenion aldoni al vi, nenion depreni!” Kiel ĉarma li estas.
 
 
-LA INTERROMPITA KANTO
-
-
 La flamo de la fajrujo kovris ŝian vizaĝon per varmega purpuro; ŝi ofte stariĝis antaŭ la malfermita fenestro, tra kiu la vento karesis ŝiajn vangojn. Ju pli proksima estis la tempo, kiam ŝi ordinare iris en la laŭbon, des pli granda iĝis ŝia mal-trankvileco. Fininte ĉion, ŝi demetis la antaŭtukon, prenis el la ŝranko la korbon kun la laboraĵo kaj demandis sin lastfoje: ĉu iri, aŭ ne iri?
 
-Rigardinte la korbon, ŝi rememoris la pruntedonitan li-
-
-bron.
+Rigardinte la korbon, ŝi rememoris la pruntedonitan libron.
 
 ĉu ŝi ne devas iri por repreni la libron? Kompreneble; kion alie farus la nova najbaro? Li devus resendi ĝin, tio estus em-barasa por li.
 
@@ -661,14 +558,9 @@ Klaro ĝoje kisis ŝian manon en lana duonganto.
 
 —Sidiĝu, kara sinjorino … — ŝi invitis.
 
-—Mi ne havas tempon — respondis la maljunulino malfa-
-
-cile spiregante, dum ŝi pene tiris ion el sia poŝo. Fine aperis el ĝi du ruĝaj pomoj kaj manpleno da bombonoj.
+—Mi ne havas tempon — respondis la maljunulino malfacile spiregante, dum ŝi pene tiris ion el sia poŝo. Fine aperis el ĝi du ruĝaj pomoj kaj manpleno da bombonoj.
 
 —La pomoj por la paĉjo, la bombonoj por la infanoj, — ŝi diris, metante sur la tablon la alportitajn donacojn.
-
-
-LA INTERROMPITA KANTO
 
 
 ŝiaj grandaj bluaj okuloj ridis sub la grizaj brovoj kaj bonkora rideto ornamis ŝiajn dikajn lipojn. Klaro ree kisis ŝian manon.
@@ -704,12 +596,7 @@ por la lernejpago de Staĉjo. Oni jam devas pagi?
 —Adiaŭ! — ŝi pensis kaj subite sentis sin tre malfeliĉa.
 
 
-LA INTERROMPITA KANTO
-
-
-Aĉetinte ĉion necesan por la maljuna amikino kaj bonfa-
-
-rantino, Klaro rapidis hejmen. En la pordo de la ĝardeno ŝi renkontis unu el la amikinoj, pri kiuj ŝi hieraŭ rakontis al Przyjemski kaj kiuj seniluziigis ŝin.
+Aĉetinte ĉion necesan por la maljuna amikino kaj bonfarantino, Klaro rapidis hejmen. En la pordo de la ĝardeno ŝi renkontis unu el la amikinoj, pri kiuj ŝi hieraŭ rakontis al Przyjemski kaj kiuj seniluziigis ŝin.
 
 ŝi tiam ploris iom, sed ne koleris kontraŭ la knabino, kiu ŝajnigante amikecon, priridis ŝin kun siaj konatoj, nomante ŝin lavistino, malpurulino k. t. p.
 
@@ -733,9 +620,7 @@ Domaĝe estas, ke Klaro ne konas la societon, eble ŝi volus partopreni la eksku
 
 en liaj lernekzercoj.
 
-Klaro tre dezirus adiaŭi la amikinon, sed ne trovas pretek-ston. Paŭlino rakontas, ke ŝi pasigis la hieraŭan tagon en la 25
-
-LA INTERROMPITA KANTO
+Klaro tre dezirus adiaŭi la amikinon, sed ne trovas pretek-ston. Paŭlino rakontas, ke ŝi pasigis la hieraŭan tagon en la
 
 
 najbaraĵo, ĉe la intendanto de la princa palaco. ŝia panjo estas amikino de la edzino de la intendanto.
@@ -744,9 +629,7 @@ najbaraĵo, ĉe la intendanto de la princa palaco. ŝia panjo estas amikino de l
 
 Klaro eksentis kvazaŭ baton en la brusto, sed ŝi tuj ekregis sian kortuŝiĝon. Paŭlino daŭrigis la babiladon:
 
-—Princo Oskaro venis antaŭ kelkaj tagoj kun sia sekreta-
-
-rio, Julio Przyjemski, granda favorato de la princo. ĉe Perkowski sinjoro Przyjemski estis kelkaj fojoj pro negocaj aferoj; kompreneble li ja devis paroli kun la intendanto de la palaco. La geedzoj Perkowski invitis lin al la hieraŭa vespero kaj, ni diru la veron, ili eĉ aranĝis la vesperkunvenon por honori la sekretarion de la princo. Kaj li ne venis! Domaĝo estas, ĉar mi tre deziris vidi sinjoron Przyjemski! Oni diras, ke li estas juna nigraharulo, beleta kaj tre gaja …
+—Princo Oskaro venis antaŭ kelkaj tagoj kun sia sekretario, Julio Przyjemski, granda favorato de la princo. ĉe Perkowski sinjoro Przyjemski estis kelkaj fojoj pro negocaj aferoj; kompreneble li ja devis paroli kun la intendanto de la palaco. La geedzoj Perkowski invitis lin al la hieraŭa vespero kaj, ni diru la veron, ili eĉ aranĝis la vesperkunvenon por honori la sekretarion de la princo. Kaj li ne venis! Domaĝo estas, ĉar mi tre deziris vidi sinjoron Przyjemski! Oni diras, ke li estas juna nigraharulo, beleta kaj tre gaja …
 
 —Nigraharulo! — ripetis Klaro.
 
@@ -758,9 +641,7 @@ Sed Paŭlino devis rapidi kaj rakontinte ĉion plej gravan, adiaŭis Klaron per 
 
 Klaro, enirante hejmon, ripetis: ”Nigraharulo?” — kaj ridis: Li tute ne estas nigrahara, sed malhele blonda. Gaja? Tute ne; kontraŭe, iom melankolia. Paŭlino, kiel ĉiam, babilas pri ĉio, eĉ se ŝi nenion scias. Iu diris al ŝi: gaja nigraharulo, kaj ŝi ri-petas tion al ĉiuj …
 
-Sendube gesinjoroj Perkowski invitis lin al la ekskurso, sa-me kiel hieraŭ al la vesperkunveno, kaj li akompanos ilin. Kiu 26
-
-LA INTERROMPITA KANTO
+Sendube gesinjoroj Perkowski invitis lin al la ekskurso, sa-me kiel hieraŭ al la vesperkunveno, kaj li akompanos ilin. Kiu
 
 
 rifuzus? … Kiel gaje estos ekster la urbo, en arbaro! Mi dezirus esti kun ili.
@@ -777,9 +658,7 @@ La balkono havis du ŝtupojn, truplenajn kaj ŝanceliĝantajn.
 
 Klaro eksidis sur unu el ili, apogis la mentonon sur la manplato kaj rigardadis la belan, kvietan vesperon. Regis plena silento. Neniu veturis en tiel malfrua horo sur la strato izo-la, preskaŭ eksterurba. De la centro de la urbo flugis malklara bruo, mutigata de la interspaco kaj unutona. La arboj gran-deguloj en la princa parko jen skuiĝis, jen silentis senmovaj kaj staris, kvazaŭ nigra muro. La aŭgusta ĉielo estis plena de steloj, — la nokta mallumo similis vesperan krepuskon, kaj oni povis distingi la konturojn eĉ de malproksimaj objektoj.
 
-Klaro ekvidis la amatan laŭbon, la interrompon en la gran-da aleo de la parko kaj tra la interrompo, en la fundo de la perspektivo la murojn de la palaco same mallumajn, kiel la 27
-
-LA INTERROMPITA KANTO
+Klaro ekvidis la amatan laŭbon, la interrompon en la gran-da aleo de la parko kaj tra la interrompo, en la fundo de la perspektivo la murojn de la palaco same mallumajn, kiel la
 
 
 apudaj arboj. Sed sur la nigra fono brilis vico da lumoj, kiuj en la komenco ŝajnis al Klaro steloj, briletantaj malantaŭ la arboj, sed tuj ŝi rimarks, ke tio estis lumigitaj fenestroj.
@@ -803,16 +682,11 @@ Du personoj iras sur la vojeto: sinjoro Przyjemski kaj Paŭlinjo
 Subite ŝi ekaŭdis veluran voĉon, kiu tuj super ŝi skandis la silabojn:
 
 
-LA INTERROMPITA KANTO
-
-
 —Bonan vesperon, fraŭlino!
 
 Ne eble estas diri, kio en tiu momento estis pli forta en ŝi: la miro aŭ la ĝojo. ĉion ŝi povis atendi, sed ne ekaŭdi ĉi tiun voĉon kaj ekvidi la homon, kiu staris nun antaŭ ŝi, la ĉapelo en la mallevita mano. Malgraŭ la krepusko ŝi rimarkis sur lia vizaĝo amikan kaj iom ŝerceman rideton.
 
-—Mi promenis en la ĝardeno, mi ekvidis vin sur la balko-
-
-no kaj mi ne povis kontraŭbatali la tenton diri al vi: ”Bonan vesperon”. Bela vespero, ĉu ne vere? Precipe nun ĝi fariĝas tre bela. Pri kio vi tiel meditas?
+—Mi promenis en la ĝardeno, mi ekvidis vin sur la balkono kaj mi ne povis kontraŭbatali la tenton diri al vi: ”Bonan vesperon”. Bela vespero, ĉu ne vere? Precipe nun ĝi fariĝas tre bela. Pri kio vi tiel meditas?
 
 En la komenco ŝi ne aŭdis, kion li diris, tiel forte batis ŝia koro. Post momento ŝi ankoraŭ ne sufiĉe rekonsciiĝis por respondi lian demandon.
 
@@ -837,12 +711,7 @@ Per la mano kun la ĉapelo li montris la ĉielon kaj eksidis sur la ŝtupo de la
 ŝia ordinara malkaŝemo kaj ŝia pli kaj pli granda ĝojo diktis al ŝi jenan respondon, kiun ŝi gaje diris:
 
 
-LA INTERROMPITA KANTO
-
-
-—Mi demandis min, ĉu via societo jam revenis de la eks-
-
-kurso aŭ estas revenanta..:
+—Mi demandis min, ĉu via societo jam revenis de la ekskurso aŭ estas revenanta..:
 
 Kun miro li levis la kapon.
 
@@ -874,9 +743,7 @@ gesinjoroj Perkowski. Mi tre dankas vin por la libro, kiun vi pruntis al mi, sed
 
 —Mi legis iom, kiam la patro dormis ankoraŭ, kaj Staĉjo
 
-jam ellernis la lecionojn. Franjo okupiĝis pri la temaŝino, kaj 30
-
-LA INTERROMPITA KANTO
+jam ellernis la lecionojn. Franjo okupiĝis pri la temaŝino, kaj
 
 
 mi iom legis. Mi ricevas librojn de sinjorino, kiu estis mia instruistino en la edukejo.
@@ -904,9 +771,6 @@ Sed lin la rekomenco de la interrompita interparolado tute ne embarasis. Iom kli
 La eta maljunulino estis sinjorino Dutkiewicz, vidvino de veterinaro kaj baptopatrino de la patrino de Klaro, ŝi estas tre estiminda persono, tre bona kaj komplezema, ilia vera amikino kaj bonfarantino, multfoje ŝi helpis ilin dum malfacilaj tempoj kaj nun ŝi pagas por la edukado de Staĉjo.
 
 —ŝi do estas riĉa persono? — demandis Przyjemski.
-
-
-LA INTERROMPITA KANTO
 
 
 —Jes, riĉa! — fervore jesis Klaro; — ŝi loĝas sola en tri ĉambroj, havas servantinon …
@@ -940,14 +804,9 @@ Kaj post momento ŝi aldonis:
 —Oni diras, ke kiam stelo falas, oni devas antaŭ ĝia estingiĝo esprimi deziron kaj ĉi tiu deziro plenumiĝos … Jen sinjoro, ankoraŭ unu falis! … Kaj tie! Kaj tie! Ili falas, kvazaŭ plu-vo.
 
 
-LA INTERROMPITA KANTO
-
-
 Rigardante la ĉielon, de kiu tie ĉi kaj tie falis oraj fajreroj kaj tuj estingiĝis en la subĉiela krepusko, li diris malrapide:
 
-—Esprimu do deziron … la steloj falas amase kaj vi suk-
-
-cesos eldiri ĝin, antaŭ ol ĉiuj estingiĝos.
+—Esprimu do deziron … la steloj falas amase kaj vi sukcesos eldiri ĝin, antaŭ ol ĉiuj estingiĝos.
 
 Klaro silentis; li turnis la kapon al ŝi. Ili sidis nun tiel proksime unu de la alia, ke ŝi vidis klare la brilon de liaj okuloj.
 
@@ -961,19 +820,13 @@ Penante paroli libere, ŝi respondis:
 
 Granda estis la miro de Klaro.
 
-—Por mi? Mia peto esprimus ja ĝuste mian varmegan de-
+—Por mi? Mia peto esprimus ja ĝuste mian varmegan deziron … mi do petus tiamaniere por mi mem.
 
-ziron … mi do petus tiamaniere por mi mem.
-
-—Abomena egoismo! — li diris — sed ĉu efektive vi ne de-
-
-zirus, ke la ora steleto sendu al vi iam … ian feliĉon grandan, senliman, kiu aliformigas la koron en flaman stelon, vivantan alte, alte super la tero?
+—Abomena egoismo! — li diris — sed ĉu efektive vi ne dezirus, ke la ora steleto sendu al vi iam … ian feliĉon grandan, senliman, kiu aliformigas la koron en flaman stelon, vivantan alte, alte super la tero?
 
 ŝi sentis, ke ŝia koro jam fariĝas flama stelo, kaj ĝuste tial ŝi respondis ŝerce:
 
-—Se mi devus nepre peti pri io por mi mem, mi komuni-
-
-kus al la steloj mian deziron fari ekskurson kaj pasigi tutan duontagon en la arbaro. Mi adoras la arbaron.
+—Se mi devus nepre peti pri io por mi mem, mi komunikus al la steloj mian deziron fari ekskurson kaj pasigi tutan duontagon en la arbaro. Mi adoras la arbaron.
 
 Poste ŝi aldonis:
 
@@ -983,18 +836,14 @@ Poste ŝi aldonis:
 
 Li komencis paroli meditplena:
 
-—Mi petus la oran stelon pri la kredo, ke ekzistas sur la 33
-
-LA INTERROMPITA KANTO
+—Mi petus la oran stelon pri la kredo, ke ekzistas sur la
 
 
 tero koroj bonaj, puraj kaj fidelaj; mi petus la stelon, ke tia koro apartenu al mi …
 
 Post mallonga silento li daŭrigis:
 
-—Mi dirus: Hela stelo, helpu min forgesi la mallumajn son-
-
-ĝojn, kiuj tiel ofte turmentis min …
+—Mi dirus: Hela stelo, helpu min forgesi la mallumajn sonĝojn, kiuj tiel ofte turmentis min …
 
 ŝi aŭskultis la voĉon, ŝi ensorbis la vortojn, plenajn de maldolĉa melankolio. ĉarma estis la voĉo, malĝojaj la vortoj, ne-kompreneblaj sed timigaj …
 
@@ -1025,14 +874,9 @@ Klaro ekridetis en la krepusko. Stranga homo! ŝia patro
 bezonas fruktojn; la ĝardeno de la princo posedas multe da ili … sed kia estas la rilato de ĉi tiuj du faktoj?
 
 
-LA INTERROMPITA KANTO
-
-
 Li silente rigardis ŝin, kvazaŭ atendante ion. Poste li komencis paroli per indiferenta tono:
 
-—Hodiaŭ mi vizitis kun la princo la persikejon, ananase-
-
-jon, varmigejon, kiuj estas plenaj de bonaj fruktoj, kaj la princo diris al mi, ke mi sendu la superfluon al gesinjoroj Perkowski kaj al ĉiuj miaj konatoj en la urbo …
+—Hodiaŭ mi vizitis kun la princo la persikejon, ananasejon, varmigejon, kiuj estas plenaj de bonaj fruktoj, kaj la princo diris al mi, ke mi sendu la superfluon al gesinjoroj Perkowski kaj al ĉiuj miaj konatoj en la urbo …
 
 Ree li ĉesis paroli kaj rigardis ŝin.
 
@@ -1063,9 +907,6 @@ vi amas la muzikon?
 En la palaco ree eksonis la akordoj kaj ĉi foje daŭris pli longe, kuniĝante kun la murmuro de la arboj. Baldaŭ ĉesis la muziko de la naturo, sed la fortepiano daŭrigis la kanton.
 
 —Mi ne povas aŭskulti muzikon sen kortuŝiĝo, — diris Kla-ro.
-
-
-LA INTERROMPITA KANTO
 
 
 —ĉu vi ofte aŭskultis ĝin?
@@ -1111,18 +952,13 @@ Nekapabla kontraŭbatali lian volon, kun rideto sur la tremantaj lipoj ŝi komen
 Sed ŝi haltis, ĉar en la aero ekflugis muziko. Tio ne estis plu apartaj akordoj, sed harmoniaj, seninterrompaj tonoj. Admiro aperis sur ŝia vizaĝo, turnita al la steloj. Rideto malfermetis ŝian buŝon, ora brilo plenigis ŝiajn okulojn, malgraŭ la krepusko. ŝi staris kvazaŭ najlita al la tero, aŭdante ekstaze la muzikon. Lia parolado fariĝis flustro:
 
 
-LA INTERROMPITA KANTO
-
-
 —Vi vidas, kiel rapide la steloj plenumas la dezirojn de siaj teraj fratinoj! Sed rilate al vi mia komparo ne estis bona. Oni ekstreme trouzis ĉi tiun komparon, kiu nun rememorigas ion tute alian … Jen nova penso! … ĉu vi scias, kiu estis Heine?
 
 —Germana poeto, — ŝi flustris.
 
 —Jes; mi rememoris nun versaĵon de Heine, per kiu mi adi-aŭos vin …
 
-Li mallevis la kapon, kvazaŭ por ĝuste rememori la ver-
-
-saĵon. La muziko fariĝis pli kaj pli melodia kaj klara; la arboj mallaŭte ekmurmuris. Kun la muziko de la fortepiano kaj naturo kuniĝis velura, karesema voĉo:
+Li mallevis la kapon, kvazaŭ por ĝuste rememori la versaĵon. La muziko fariĝis pli kaj pli melodia kaj klara; la arboj mallaŭte ekmurmuris. Kun la muziko de la fortepiano kaj naturo kuniĝis velura, karesema voĉo:
 
 Vi estas kiel la flor’
 
@@ -1138,7 +974,7 @@ Miajn manojn … petegus mi larma,
 
 Ke Di’ lasu vin por sia glor’
 
-Tiel bela kaj pura kaj ĉarma! … 1
+Tiel bela kaj pura kaj ĉarma! …
 
 Elparolante la lastajn vortojn, li prenis ŝian manon, kliniĝis kaj delikate kisis ĝin, apenaŭ tuŝetante per la lipoj. Post momento li diris:
 
@@ -1149,13 +985,7 @@ Li metis la ĉapelon kaj rapide foriris.
 Tra la pordeto de la krado li eniris en la ombroplenan ĝardenon kaj malaperis inter la arboj. ĉirkaŭ Klaro dum kelkaj minutoj regis plena silento, ĝis ree eksonis la muziko, ĉifoje de du instrumentoj. Malantaŭ la lumigitaj fenestroj de la pa-1 Traduko de Leo Belmont
 
 
-LA INTERROMPITA KANTO
-
-
 laco fortepiano kaj violonĉelo ludis harmonie grandan ver-kon, kies tonoj plenigis la ombrojn de la parko, miksiĝis kun la mallaŭta murmuro de la arboj, kaj ĉirkaŭis per ebriiganta ĉarmo la knabinon, apogita al la krado kaj kaŝanta la vizaĝon en la manoj.
-
-
-LA INTERROMPITA KANTO
 
 
 III
@@ -1181,9 +1011,6 @@ Tiel bela kaj pura kaj ĉarma! …
 Dio, Dio! Kio okazis? Kiel feliĉa ŝi estas! ŝia koro ensorbis dolĉan feliĉon, pri kiu ŝi eĉ ne imagis ĝis nun … ”Mi ludos por vi kun mia amiko …” Ili ludis ĝis malfrua vespero, ŝi aŭskultis. Kia nokto! Oni ludis por ŝi! Neniam ankoraü okazis io simila. Li ludis por ŝi … por ŝi! … Kiel bona li estas!
 
 
-LA INTERROMPITA KANTO
-
-
 ŝi forte kunpremis la manojn kaj diris decide:
 
 —Sufiĉe!
@@ -1199,9 +1026,6 @@ Klaro staris kun mallevitaj kaj forte kunpremitaj manoj. En la unua momento de a
 Fajra ruĝo kovris ŝian vizaĝon.
 
 
-LA INTERROMPITA KANTO
-
-
 —Li disdonu ilin … sed ne al ni! ne al mi — ŝi ripetis, — ho ne! Neniam! Donaco de tute nekonata homo, — neniam!
 
 ŝi klare eksentis nun, ke li estas fremda por ŝi, kaj samtempe doloriga sago trapikis ŝian koron. Sed ĉu ĝi doloras ŝin aŭ ne, tamen li estas fremda por ŝi. Li ne konas eĉ ŝian patron!
@@ -1214,30 +1038,22 @@ Dum la sekvintaj horoj ŝi sentis sin jen trankvila kaj indiferenta, jen tiel ko
 
 Por la patro, Franjo kaj Staĉjo tio ja estas indiferenta, kial do ĉagreniĝi?
 
-Sed post duonhoro ŝian decidemon anstataŭis tia malĝojo, ke ŝi ne sciis plu, kion ŝi faras. ŝi forlasis la laboron, apogis la 41
-
-LA INTERROMPITA KANTO
+Sed post duonhoro ŝian decidemon anstataŭis tia malĝojo, ke ŝi ne sciis plu, kion ŝi faras. ŝi forlasis la laboron, apogis la
 
 
 kubutojn sur la malnova komodo kaj premis la palpebrojn
 
 per la manoj por ne plori.
 
-Uno horon antaŭ la tagmanĝo ŝi sidiĝis en la siringa laŭ-
+Uno horon antaŭ la tagmanĝo ŝi sidiĝis en la siringa laŭbo kaj komencis kudri rapide, diligente, kun mallevita kapo.
 
-bo kaj komencis kudri rapide, diligente, kun mallevita kapo.
-
-Apud ŝi staris sur la benko la fruktoplena korpo. Velkintaj folioj ekkrakis sub ies piedoj. Klaro klinis la kapon ankoraŭ pli malalte kaj komencis kudri ankoraŭ pli rapide. Brulis ŝia viza-
-
-ĝo, ŝvelis la palpebroj, kaj ŝi tion sentis. Tra la densa nebulo, kiu kovris ŝiajn okulojn, ŝi ne vidis plu la kudraĵon. Bone konata voĉo diris malantaŭ la krado:
+Apud ŝi staris sur la benko la fruktoplena korpo. Velkintaj folioj ekkrakis sub ies piedoj. Klaro klinis la kapon ankoraŭ pli malalte kaj komencis kudri ankoraŭ pli rapide. Brulis ŝia vizaĝo, ŝvelis la palpebroj, kaj ŝi tion sentis. Tra la densa nebulo, kiu kovris ŝiajn okulojn, ŝi ne vidis plu la kudraĵon. Bone konata voĉo diris malantaŭ la krado:
 
 —Bonan tagon, fraŭlino!
 
 ŝi levis la kapon, sed ŝia rigardo ne renkontis la rigardon de Przyjemski, kiu estis fiksita sur la fruktoj, formantaj piramidon apud ŝia vesto kun rozaj kaj grizaj strioj. Tenante ankoraŭ la ĉapelon super la kapo, Przyjemski senmoviĝis. La sulko sur lia frunto pliprofundiĝis kaj la lipoj kolere kuntiriĝis.
 
-Sed ĉi tio daŭris nur kelke da sekundoj, post kiuj la bela viza-
-
-ĝo ree fariĝis serena, eĉ ekradiis de plezuro. Klaro neniam vidis lin tia. Sur ŝia vizaĝo paleco forigis nun la purpuron. ŝiaj fingroj, tenantaj fadenon, malseka de ŝiaj larmoj, iom tremis.
+Sed ĉi tio daŭris nur kelke da sekundoj, post kiuj la bela vizaĝo ree fariĝis serena, eĉ ekradiis de plezuro. Klaro neniam vidis lin tia. Sur ŝia vizaĝo paleco forigis nun la purpuron. ŝiaj fingroj, tenantaj fadenon, malseka de ŝiaj larmoj, iom tremis.
 
 Przyjemski etendis la manon super la krado kaj diris ridetante:
 
@@ -1252,14 +1068,9 @@ Przyjemski etendis la manon super la krado kaj diris ridetante:
 —Mi alportis ĝin, esperante renkonti vin ĉi tie. Volu meti la korbon trans la krado kaj sendi iun, por ke li prenu ĝin.
 
 
-LA INTERROMPITA KANTO
-
-
 Kaj ŝi pene etendis al li la pezan korbon.
 
-Silente, kun perfekta malvarma sango, malrapide Przyjem-
-
-ski faris ĉion laŭ ŝia diro: li prenis la korbon, metis ĝin sur la herbon trans la krado kaj, rigardante ŝin per okuloj plenaj de stranga brilo, diris:
+Silente, kun perfekta malvarma sango, malrapide Przyjemski faris ĉion laŭ ŝia diro: li prenis la korbon, metis ĝin sur la herbon trans la krado kaj, rigardante ŝin per okuloj plenaj de stranga brilo, diris:
 
 —Bone. Nun kiam la ekzekuto jam estas finita, mi dezirus ekkoni la motivojn de la dekreto.
 
@@ -1290,9 +1101,6 @@ Przyjemski rigardis ŝin admire, kiel ĉielarkon; poste li demandis:
 —Kaj mi estas fremda por vi, diru?
 
 
-LA INTERROMPITA KANTO
-
-
 —Jes, — ŝi flustris.
 
 Momenton ankoraŭ li staris, apoginte sin al la krado, rigardante jam ne ŝin, sed ien malproksimen. Poste li rektiĝis, po-steniĝis unu paŝon kaj levante la ĉapelon diris:
@@ -1313,9 +1121,7 @@ Li do ne ofendiĝis; kontraŭe, li promesis viziti ŝian patron hodiaŭ … hodi
 
 Li fariĝos intima konato; eble amiko. ŝia koro estis plena de dankemo. ŝi rememoris ĉiun vorton, kiun li diris, ĉiun movon, kiun li faris. Ekstreme amuzis ŝin la silenta kaj serioza maniero, per kiu, plenumante ŝian deziron, li prenis la korbon el ŝiaj manoj kaj metis ĝin sur la herbon trans la krado.
 
-ĉi tio estis tre ridinda: liaj movoj kaj gestoj, kvazaŭ li estus faririnta ion solenan, kaj samtempe preskaŭ nevidebla rideto, eraranta sur liaj maldikaj, iom ŝercemaj lipoj. Belega estas 44
-
-LA INTERROMPITA KANTO
+ĉi tio estis tre ridinda: liaj movoj kaj gestoj, kvazaŭ li estus faririnta ion solenan, kaj samtempe preskaŭ nevidebla rideto, eraranta sur liaj maldikaj, iom ŝercemaj lipoj. Belega estas
 
 
 lia buŝo, la okuloj kaj la frunto … Vere, ŝi ne sciis, kio estis plej bela. Eble la delikata profilo kun malkavaj brovoj, apartigitaj de la sulko plena de melankolio kaj saĝo … Ne, nek la profilo, nek la buŝo, nek la okuloj! Lia animo, ĝi sendube estis lia plej granda belaĵo! Lia nobla, alta kaj tiel malĝoja animo … Ankaŭ lia koro, kiu ne ekkoleris, ke ŝi ne akceptis la donacon, kiu, kontraŭe, ekdeziris proksimiĝi pli multe al ŝi …
@@ -1334,9 +1140,7 @@ rezeda tufo en glaso. La du infanoj sidis ĉe ambaŭ flankoj de la patro; Klaro 
 
 —ĉu ili estas karaj? — demandis Wygrycz.
 
-La vizaĝo de la maljuna oficisto estis longa kaj osta, ĝia 45
-
-LA INTERROMPITA KANTO
+La vizaĝo de la maljuna oficisto estis longa kaj osta, ĝia
 
 
 koloro estis flava. La duone acida, duone apatia mieno montris homon ˛ronike malsanan kaj plenumantan neamatan
@@ -1357,13 +1161,9 @@ Aŭdinte la demandon de la fratino, Klaro kliniĝis por levi de la planko piran 
 
 —Elegante! Tute ne, mi nur metis freŝan pinton, ĉar la an-taŭa estis jam malpura.
 
-—Vi metis ankaŭ vian novan zonon! — daŭrigis Franjo in-
+—Vi metis ankaŭ vian novan zonon! — daŭrigis Franjo incitete.
 
-citete.
-
-Ne respondante al la malpacema fratino, Klaro metis an-
-
-taŭ la patro la senŝeligitan piron kaj tranĉilon kun ligna tenilo.
+Ne respondante al la malpacema fratino, Klaro metis antaŭ la patro la senŝeligitan piron kaj tranĉilon kun ligna tenilo.
 
 —Ni hodiaŭ havos gaston, paĉjo, — ŝi diris.
 
@@ -1374,9 +1174,6 @@ Dutkiewicz? … sed ŝi ne estas gasto.
 Klaro, senŝeligante duan piron, daŭrigis kviete:
 
 —Kelke da fojoj mi renkontis en la ĝardeno sinjoron Przyjemski, la sekretarion de princo Oskaro, kaj ni longe interparolis. Hodiaŭ li diris al mi, ke li vizitos vin.
-
-
-LA INTERROMPITA KANTO
 
 
 Wygrycz faris grimacon.
@@ -1403,16 +1200,11 @@ rapide babili.
 
 —Silentu, Staĉjo! — diris Franjo, — la kavaliro de Klaro venas.
 
-Oni aŭdis malrapidajn, egalajn paŝojn malantaŭ la fazeo-
-
-lo; baldaŭ malfermiĝis la vestibla pordo, tiel malalta, ke la ve-nanto devis klini la kapon. Przyjemski aperis kaj per unu rigardo ĉirkaŭprenis ĉion: la malaltan plafonon, la verdan ka-menon, la ruĝajn punktojn sur la blue tapetitaj muroj, la restaĵojn de kaĉo sur la teleroj, la kvar personojn ĉe la tablo, kovrita per vakstolo, la siringan tufon sur la komodo.
+Oni aŭdis malrapidajn, egalajn paŝojn malantaŭ la fazeolo; baldaŭ malfermiĝis la vestibla pordo, tiel malalta, ke la ve-nanto devis klini la kapon. Przyjemski aperis kaj per unu rigardo ĉirkaŭprenis ĉion: la malaltan plafonon, la verdan ka-menon, la ruĝajn punktojn sur la blue tapetitaj muroj, la restaĵojn de kaĉo sur la teleroj, la kvar personojn ĉe la tablo, kovrita per vakstolo, la siringan tufon sur la komodo.
 
 Klaro kun roza nebulo sur la vangoj diris sufiĉe malestime al la patro:
 
 —Paĉjo, sinjoro Julio Przyjemski, mia konato.
-
-
-LA INTERROMPITA KANTO
 
 
 Kaj al la gasto:
@@ -1429,14 +1221,9 @@ Kiam la vakstolo estis forigita, oni vidis fraksenan tablon, kovritan per kotona
 
 Post kelkaj minutoj Klaro revenis el la kuirejo. oje ŝi rimarkis, ke ŝia patro vive parolas kun la gasto. Li estas vera sorĉisto, se li sukcesis tiel rapide forigi de la vizaĝo de la laca muljunulo maldolĉon kaj apation!
 
-Przyjemski li demandisn pri la urbo, kie la maljuna oficisto pasigis la tutan vivon, kaj tiamaniere tuj trovis aferon bone al li konatan kaj ne indiferentan. Wygrycz parolis detale pri la loĝantaro de la urbo, pri ĝiaj klasoj, pri la materiala stato de ĉiu el ili. En la komenco li parolis malrapide kaj malfacile, kiel homo kiu malkutimis interparoli, sed post kelkaj minutoj la vortoj ekfluis pli libere; en liaj malhelaj okuloj ekbrilis inteligenteco kaj la ostaj manoj akompanis la frazojn per energiaj gestoj. Klariginte al la gasto la interrilatojn de la lo-
-
-ĝantoj, li diris:
+Przyjemski li demandisn pri la urbo, kie la maljuna oficisto pasigis la tutan vivon, kaj tiamaniere tuj trovis aferon bone al li konatan kaj ne indiferentan. Wygrycz parolis detale pri la loĝantaro de la urbo, pri ĝiaj klasoj, pri la materiala stato de ĉiu el ili. En la komenco li parolis malrapide kaj malfacile, kiel homo kiu malkutimis interparoli, sed post kelkaj minutoj la vortoj ekfluis pli libere; en liaj malhelaj okuloj ekbrilis inteligenteco kaj la ostaj manoj akompanis la frazojn per energiaj gestoj. Klariginte al la gasto la interrilatojn de la loĝantoj, li diris:
 
 —Malfeliĉo supre, malfeliĉo malsupre, malfeliĉo en la me-zo. Multo mankas ĉie kaj al ĉiu. Sed vi pardonu min, se mi diras al vi, ke iom kulpaj pri ĉi tio estas la homoj riĉaj kaj kredeble inteligentaj, kiel princo Oskaro …
-
-
-LA INTERROMPITA KANTO
 
 
 Li interrompis, ekŝanceliĝis.
@@ -1469,9 +1256,7 @@ Wygrycz, disetendante la manojn, ekkriis …
 
 Liaj okuloj brilis, sur la mallarĝaj lipoj ironio anstataŭis la maldolĉan grimacon. En liaj vortoj estis sentebla ia protesto kontraŭ ĉio suferita, eble longe kaŝata malamo kontraŭ la aristokrataro, kiu fine eksplodis, — malamo bazita sur serio-zaj konsideroj
 
-Przyjemski sidis sur fraksena seĝo, la kapo iom klinita, la ĉapelo en la mallevita mano. Lia eleganta kaj gracia silueto, lia profilo kun delikataj brovoj kaj kun maldikaj lipoj ombritaj de ore blondaj lipharoj mirinde kontrastis la bluan ĉambron 49
-
-LA INTERROMPITA KANTO
+Przyjemski sidis sur fraksena seĝo, la kapo iom klinita, la ĉapelo en la mallevita mano. Lia eleganta kaj gracia silueto, lia profilo kun delikataj brovoj kaj kun maldikaj lipoj ombritaj de ore blondaj lipharoj mirinde kontrastis la bluan ĉambron
 
 
 kun la verda kameno. Mallevinte la okulojn li komencis malrapide paroli:
@@ -1501,9 +1286,6 @@ La lasta levis la okulojn kaj respondis malrapide:
 Aŭdinte la konfirmon de sia praveco, Wygrycz kvietiĝis. Li levis sian longan flavan fingron.
 
 
-LA INTERROMPITA KANTO
-
-
 —Tamen la princo estas kristano, li naskiĝis en tiu ĉi lando kaj havas ĉi tie bienojn …
 
 Klaro, kiu sidis ĉe la fenestro kaj ornamis blankan kufon per pinto, levis la kapon kaj duonvoĉe interrompis la patron:
@@ -1514,9 +1296,7 @@ Klaro, kiu sidis ĉe la fenestro kaj ornamis blankan kufon per pinto, levis la k
 
 —Vi estas prava, sinjoro … — konsentis Przyjemski — vi
 
-diris profundan veron … Erari, suferi kaj morti ĉiuj devas kaj ĉi tio estas granda egaleco … sed mi estus tre danka al fraŭ-
-
-lino Klaro, se ŝi daŭrigus la defendon de mia amiko.
+diris profundan veron … Erari, suferi kaj morti ĉiuj devas kaj ĉi tio estas granda egaleco … sed mi estus tre danka al fraŭlino Klaro, se ŝi daŭrigus la defendon de mia amiko.
 
 Li rigardis ŝin per tiel radiantaj okuloj, ke ŝi ridetante, tute libere finis:
 
@@ -1524,12 +1304,7 @@ Li rigardis ŝin per tiel radiantaj okuloj, ke ŝi ridetante, tute libere finis:
 
 La vizaĝo dePrzyjemski fariĝis pli kaj pli ravoplena; li rigardis la knabinon, kiel ĉielarkon. Wygrycz, kontraŭe, aŭskultis la filinon malpacience. Kiam ŝi finis, li levis la ŝultrojn:
 
-—Virina rezonado, sinjoro! La virinoj ĉion scias klarigi: ”ĉi tio kaj tio, tiel kaj alie!” Kutiminte dozi la kaĉon, ili ĉie vidas kaĉerojn. Mi komprenas nur unu leĝon kaj juĝon: aŭ reĝo aŭ vagulo! Aŭ la homo obeas la dian leĝon, servas al sia proksi-51
-
-LA INTERROMPITA KANTO
-
-
-mulo kaj al ĉiu bona afero, aŭ li ne faras tion. En la unua okazo, eĉ se li estas pekulo, li ion valoras; en la dua li ne valoras eĉ la ŝnuron por lin pendigi … Mi finis.
+—Virina rezonado, sinjoro! La virinoj ĉion scias klarigi: ”ĉi tio kaj tio, tiel kaj alie!” Kutiminte dozi la kaĉon, ili ĉie vidas kaĉerojn. Mi komprenas nur unu leĝon kaj juĝon: aŭ reĝo aŭ vagulo! Aŭ la homo obeas la dian leĝon, servas al sia proksimulo kaj al ĉiu bona afero, aŭ li ne faras tion. En la unua okazo, eĉ se li estas pekulo, li ion valoras; en la dua li ne valoras eĉ la ŝnuron por lin pendigi … Mi finis.
 
 Przyjemski respondis post momento:
 
@@ -1545,32 +1320,22 @@ Wygrycz faris maldolĉan grimacon.
 
 oficejoj. Mi estas filo de metiisto, mia patro posedis ĉi tie dometon, kie li laboris. Li edukis min en lernejo, mi finis kvin-klasan kurson kaj fariĝis oficisto. Sed kial vi demandas min pri ĉi tio?
 
-Przyjemski pripensis momenton kaj diris kun delikata sa-
-
-luto:
+Przyjemski pripensis momenton kaj diris kun delikata saluto:
 
 —Mi malkaŝe konfesos al vi, ke mi trovis pensojn kaj parol-manieron … pli altajn …
 
-—Ol vi esperis! — finis Wygrycz kun ironia rideto. — Su-
-
-pozeble en la domo de via estro kaj amiko vi ne ofte renkontis malriĉajn homojn. La malriĉeco, sinjoro, ne ĉiam estas sino-nimo de malsaĝeco … Ha, ha, ha! …
+—Ol vi esperis! — finis Wygrycz kun ironia rideto. — Supozeble en la domo de via estro kaj amiko vi ne ofte renkontis malriĉajn homojn. La malriĉeco, sinjoro, ne ĉiam estas sino-nimo de malsaĝeco … Ha, ha, ha! …
 
 Wygrycz ŝajnigis sarkasman ridon, sed oni povis rimarki, ke la opinio de la gasto flatis kaj ĝojigis lin.
 
-—Tamen, — li daŭrigis, — koncerne min, en mia vivo ek-
-
-zistis favoraj cirkonstancoj. Mi edziĝis kun virino instruita kaj plej bona, plej bona! ŝi estis instruistino, kiam ni ekamis unu la alian. ŝi elektis min, kvankam ŝi povis edziniĝi kun pli riĉa 52
-
-LA INTERROMPITA KANTO
+—Tamen, — li daŭrigis, — koncerne min, en mia vivo ekzistis favoraj cirkonstancoj. Mi edziĝis kun virino instruita kaj plej bona, plej bona! ŝi estis instruistino, kiam ni ekamis unu la alian. ŝi elektis min, kvankam ŝi povis edziniĝi kun pli riĉa
 
 
 homo. Sed ŝi ne bedaŭris tion. Ni estis feliĉaj. ŝi estis pli instruita ol mi, sed mi estis sufiĉe prudenta por profiti ŝian spi-ritan superecon. Post la ofica laboro, dum la liberaj horoj ni legis kune, aŭ ŝi ludis por mi fortepianon, ĉar ŝi havis muzi-kan talenton … Mi posedas, sinjoro, bonajn, sanktajn rememoraĵojn de mia vivo, kaj en la alia mondo min atendas mia sanktulino, kun kiu mi dezirus ree esti kiel eble plej baldaŭ, se ŝi ne estus lasinta al mi la infanojn. Nur por ili mi vivas. Mi ŝuldas multon, sinjoro, al ĉi tiu virino, kun kiu mi vivis kune dudek tri jarojn kiel dudek tri tagojn … Ankaŭ ŝi, sur sia morta lito, tute konscia, dankis min, antaŭ ol ŝi spiris la lastan spiron … Ni disiĝis en paco kaj amo, same ni renkontos unu la alian antaŭ Dio …
 
 Per la fino de sia osta fingro li viŝis la malsekajn palpebrojn kaj eksilentis.
 
-Przyjemski ankaŭ silentis, mallevinte la kapon. Post mo-
-
-mento li diris medite:
+Przyjemski ankaŭ silentis, mallevinte la kapon. Post momento li diris medite:
 
 —Ekzistas do sur la tero tiaj poemoj — tiaj unuiĝoj kaj rememoraĵoj …
 
@@ -1585,9 +1350,6 @@ Przyjemski levis la kapon per subita movo kaj ekrigardis la oficiston kun mirego
 —Jes, jes … — li diris, — malriĉeco kaj riĉeco havas tute malsaman signifon … tute malsaman …
 
 Li turnis sin al Klaro, kliniĝinta al la muslino kuŝanta sur ŝiaj genuoj.
-
-
-LA INTERROMPITA KANTO
 
 
 —Mi ankoraŭ ne redonas al vi la libron, kiun vi pruntis al mi, mi eĉ petas alian de la sama speco, se vi posedas ian …
@@ -1606,9 +1368,7 @@ Kaj li aldonis afable:
 
 —i estas en mia ĉambro — diris Klaro leviĝante.
 
-Dio! ĉu eblas nomi ĉambro ĉi tiun kaĝeton? Ree verda ka-
-
-meno, unu fenestro, du dikaj traboj super la kapo, lito, tablo, du seĝoj kaj ruĝa ŝranko vitrita! Kia ĉambro, tia biblioteko. Kelke da bretoj, ducent volumoj en grizaj, malnovaj bindaĵoj. Przyjemski staris tuj malantaŭ Klaro, kiu tuŝante ĉiun libron per la fingro, diris la nomon de la aŭtoro kaj titolon de la verko.
+Dio! ĉu eblas nomi ĉambro ĉi tiun kaĝeton? Ree verda kameno, unu fenestro, du dikaj traboj super la kapo, lito, tablo, du seĝoj kaj ruĝa ŝranko vitrita! Kia ĉambro, tia biblioteko. Kelke da bretoj, ducent volumoj en grizaj, malnovaj bindaĵoj. Przyjemski staris tuj malantaŭ Klaro, kiu tuŝante ĉiun libron per la fingro, diris la nomon de la aŭtoro kaj titolon de la verko.
 
 —’’En Svisujo”. ĉu vi deziras ĝin?
 
@@ -1625,18 +1385,13 @@ Ili revenis en la manĝoĉambron. Przyjemski ekstaris kun la ĉapelo en la mano 
 —Mi dezirus — li diris post momento, — demandi kaj peti
 
 
-LA INTERROMPITA KANTO
-
-
 vin pri io kaj mi anticipe petas vian pardonon, se mi — estas maldiskreta …
 
 —Mi petas vin — diris Wygrycz, — parolu malkaŝe. Ni ja
 
 estas najbaroj, kaj se mi povas esti utila al vi …
 
-—Kontraŭe — interrompis Przyjemski, — mi volis propo-
-
-ni al vi miajn servojn …
+—Kontraŭe — interrompis Przyjemski, — mi volis proponi al vi miajn servojn …
 
 Li apogis pli forte la manon al la tablo kaj daŭrigis per pli molo, velura voĉo:
 
@@ -1653,9 +1408,6 @@ Li klinis la kapon, li atendis. Wygrycz aŭskultis en la komenco scivole, poste 
 Mi ne kutimis. ĉu mia ofico estis profita, ĉu ne profita, mi ĉiam estis mia servisto kaj mia estro.
 
 Przyjemski levis la kapon. Kolera flamo ekbrilis en liaj bluaj okuloj. Li komencis paroli, pli forte ol ordinare skandante la vortojn:
-
-
-LA INTERROMPITA KANTO
 
 
 —Vi vidas!. … Vi mem vidas! … Vi riproĉas al la princo, ke li estas senutila por la aliaj, kaj kiam aperas okazo esti utila, oni ne akceptas liajn servojn …
@@ -1687,9 +1439,6 @@ Dirante la lastajn vortojn, li rigardis Klaron; ŝiaj okuloj estis turnitaj ne a
 ŝi kisis liajn manojn kaj vangojn. Wygrycz turnis for la kapon, grimacante.
 
 
-LA INTERROMPITA KANTO
-
-
 —Sufiĉe … donu al mi la noktan surtuton kaj la pantoflojn.
 
 Mi kuŝiĝos … la vizito lacigis min …
@@ -1718,9 +1467,7 @@ Klaro alvokis la fraton.
 
 —Alportu la kajeron, ni ripetos vian aritmetikan lecionon.
 
-La knabo, bela kaj rondvanga, kun vivplenaj okuloj, ĉirkaŭ-
-
-prenis ŝin kaj komencis kolerete:
+La knabo, bela kaj rondvanga, kun vivplenaj okuloj, ĉirkaŭprenis ŝin kaj komencis kolerete:
 
 —Malbona estas Franjo! ŝi ĉiam incitetas kaj ĉikanas vin!
 
@@ -1731,15 +1478,9 @@ Klaro, karesante la frunton kaj la harojn de la knabo, respondis:
 Premante ŝin en siaj brakoj, la knabo daŭrigis:
 
 
-LA INTERROMPITA KANTO
-
-
 —Vi estas pri bona, pli bona … vi estas patrinjo de mi, de Franjo, de paĉjo, de ni ĉiuj! …
 
 Klaro ekridetis kaj dufoje kisis la ruĝvangan knabon.
-
-
-LA INTERROMPITA KANTO
 
 
 IV
@@ -1748,9 +1489,7 @@ En la sekvinta tago, kiam Wygrycz en nokta surtuto kaj
 
 pantofloj faris sian sieston, Franjo estis ĉe la kudrejo kaj Klaro kun la frato sidis ĉe libroj kaj kajeroj, iu frapis delikate la pordon. Staĉjo salte leviĝis de la seĝo kaj malfermis la pordon; Klaro, levante la okulojn de la kajero, ruĝiĝis purpu-re.
 
-—Eĉ se mi estus trudema, ĉi tiu rolo estas malagrabla kaj ridinda — komencis Przyjemski jam en la pordo, — mi venas ion proponi al vi. Sed antaŭe, bonan tagon! aŭ pli ĝuste: bonan vesperon! kaj demando: kial vi ne estis hodiaŭ en via laŭ-
-
-bo?
+—Eĉ se mi estus trudema, ĉi tiu rolo estas malagrabla kaj ridinda — komencis Przyjemski jam en la pordo, — mi venas ion proponi al vi. Sed antaŭe, bonan tagon! aŭ pli ĝuste: bonan vesperon! kaj demando: kial vi ne estis hodiaŭ en via laŭbo?
 
 —Mi ne havis tempon; mi estis ĉe sinjorino Dutkiewicz,
 
@@ -1769,9 +1508,6 @@ Ili interŝangis vortojn kaj senĉese rigardis sin reciproke, kvazaŭ iliaj riga
 —Mi tute ne intencas sidiĝi kaj mi venis, por ke vi ankaŭ ne sidu ĉi tie. Rigardu.
 
 
-LA INTERROMPITA KANTO
-
-
 Li montris la libron pruntitan hieraŭ, kiun li ĵetis en la ĉapelon, kiam li venis en la ĉambron.
 
 —Jen estas mia propono: Ni iru en la laŭbon kaj ni legu
@@ -1784,9 +1520,7 @@ Sed ŝi ekrigardis Staĉjon.
 
 —Mi devas ripeti la lecionojn kun li …
 
-La knabo, kiu scivole aŭskultis la interparoladon, ĉirkaŭ-
-
-prenis ŝin kaj komencis peti:
+La knabo, kiu scivole aŭskultis la interparoladon, ĉirkaŭprenis ŝin kaj komencis peti:
 
 —Iru, Klaro, mia kara, mia ora, iru, se vi volas … Mi lernos ĉion. Granda afero la geografio! Mi lernos parkere kaj vespere mi ripetos al vi ĉion. Vi vidos, mi scios ĝin, kiel Patro nia …
 
@@ -1802,9 +1536,7 @@ ojo ekbrilis sur ŝia vizaĝo, tamen ŝi flustris ŝanceliĝante:
 
 —Kaj kiam la patro vekiĝos, vi alvokos min?
 
-—Mi alvokos! Granda afero alvoki! Kaj kiam Franjo reve-
-
-nos, mi ankaŭ vokos, por ke ŝi ne vidu vin kun la sinjoro, ĉar se ŝi vidos, ŝi ree priridos vin.
+—Mi alvokos! Granda afero alvoki! Kaj kiam Franjo revenos, mi ankaŭ vokos, por ke ŝi ne vidu vin kun la sinjoro, ĉar se ŝi vidos, ŝi ree priridos vin.
 
 Klaro fermis al li la buŝon per kiso. Post du minutoj ŝi iris kun Przyjemski tra la ĝardeno, tenante en la mano la korbon plena de muslino kaj pintoj.
 
@@ -1815,12 +1547,7 @@ kisi lin pro tio, ke li liberigis vin de la … servado. ĉar vi estas servistin
 Se via fratino vidos vin kun mi, ŝi vin priridos?
 
 
-LA INTERROMPITA KANTO
-
-
-Granda estis la konfuzo de Klaro. Feliĉe, en la sama mo-
-
-mento ŝi rimarkis en la najbara parko tiel belan ludon de koloroj, ke ŝi ekkriis kun entuziasmo.
+Granda estis la konfuzo de Klaro. Feliĉe, en la sama momento ŝi rimarkis en la najbara parko tiel belan ludon de koloroj, ke ŝi ekkriis kun entuziasmo.
 
 —Rigardu, sinjoro, tie en la angulo de la parko, kiel belege la suno sternas siajn radiojn en la malluma aleo … kvazaŭ tapiŝon el oraj moviĝantaj fadenoj …
 
@@ -1857,9 +1584,6 @@ Przyjemski ekridis ree tiel laŭte, kiel ŝi neniam aŭdis lin ridi.
 Sed li diris:
 
 
-LA INTERROMPITA KANTO
-
-
 —Mi petas vin: kredeble jam de longe vi deziras viziti la parkon, kaj plenumo de via deziro estos feliĉo por mi. Vi petis la falantan stelon pri ekskurso en ĉi tiu somero en la arbaron
 
 … Eble promeno en la parko anstatoŭos la revatan … Ne rifuzu al mi …
@@ -1887,9 +1611,6 @@ Silente ili trairis la aleon paralela al la ĝardeno, kie staris la dometo kovri
 ĝis la fino de la mondo, mi irus kun vi kaj mi ne demandus, kiam ĝi finiĝos.
 
 
-LA INTERROMPITA KANTO
-
-
 —Sed ĉar ĝi ne kondukas al la fino de la mondo, sed rekte
 
 ĝis la palaco … — diris Klaro, provante ŝerci.
@@ -1914,15 +1635,11 @@ La silenton interrompis ekkrio de Klaro. Sidiĝante sur la benkon, ŝi ekvidis l
 
 Przyjemski prenis el ŝia mano la korbon kaj metis ĝin apu-de sur la benkon. ojo ekbrilis sur lia vizaĝo, kiam li petis:
 
-—Restu momenton sola ĉi tie. Mi tuj revenos. Mi nur pe-
-
-tas vin: timu nenion kaj ne foriru … Mi tuj revenos!
+—Restu momenton sola ĉi tie. Mi tuj revenos. Mi nur petas vin: timu nenion kaj ne foriru … Mi tuj revenos!
 
 Li foriris al la palaco per rapidaj paŝoj.
 
-Klaro sekvis lin per sia rigardo. Renkonte al li kuris juna knabo en livreo kun metalaj butonoj, supozeble ĝardenisto 63
-
-LA INTERROMPITA KANTO
+Klaro sekvis lin per sia rigardo. Renkonte al li kuris juna knabo en livreo kun metalaj butonoj, supozeble ĝardenisto
 
 
 aŭ lakeeto. Przyjemski ion diris al li kun ordona gesto. Kiam la knabo rapide forkuris, Przyjemski ankoraŭ unu fojon sin turnis al li, kriante, tiel laŭte, ke ŝi klare aŭdis:
@@ -1947,13 +1664,9 @@ malpaceman … ŝi kredeble kaŭzas al vi multajn suferojn …
 
 —Tute ne, mi certigas vin! — ekkriis vive Klaro, — ŝi estas tre bona, ora koro. Nur unu afero ĉagrenas min, ke ŝi ne amas kudradon. Tamen ŝi nepre devas ellerni metion, por havi poste pecon da pano. Ni decidis, patro kaj mi, ke ŝi estu modis-tino. Kion ni povus plu? Sed kiel forigi la malbonajn influojn, jen estas demando, kiu nin tre ĉagrenas
 
-ŝi parolis, ne ĉesante kudri, ne levante la kapon. Li aŭskultis atente, sed ne sidiĝis kaj ĉiumomente rigardis al la flor-
+ŝi parolis, ne ĉesante kudri, ne levante la kapon. Li aŭskultis atente, sed ne sidiĝis kaj ĉiumomente rigardis al la florĝardeno, kvazaŭ ion atendante. Fine li ekvidis la knabon en livreo kuranta kun granda bukedo. Przyjemski rapidis al li.
 
-ĝardeno, kvazaŭ ion atendante. Fine li ekvidis la knabon en livreo kuranta kun granda bukedo. Przyjemski rapidis al li.
-
-Klaro levis la kapon kaj vidis, ke Przyjemski prenas el la 64
-
-LA INTERROMPITA KANTO
+Klaro levis la kapon kaj vidis, ke Przyjemski prenas el la
 
 
 manoj de la knabo la florojn. Metinte la manon kun la bukedo malantaŭ la dorson, li rapide revenis. Diveninte, ke la floroj estas por ŝi, Klaro faris vivan movon; la kufo kaj la puntoj falis de ŝiaj genuoj teren.
@@ -1962,9 +1675,7 @@ Przyjemski, kiu jam estis kelke da paŝoj de ŝi, rapide proksimiĝis, fleksis u
 
 Unu momento, unu movo, unu rigardo en ŝiajn okulojn,
 
-kaj ree li staris antaŭ la knabino, kiu kaŝis la purpuran viza-
-
-ĝon en la bukedo.
+kaj ree li staris antaŭ la knabino, kiu kaŝis la purpuran vizaĝon en la bukedo.
 
 La floroj, rapide deŝiritaj, senarte kunigitaj, belegaj, variaj kaj bonodoraj.
 
@@ -1991,9 +1702,6 @@ Al tiu savita, amata la mia!1
 Flugis la momentoj. Flavaj kaj rozaj folioj falis de la arboj.
 
 1. ”El Svisujo” de I. Slovacki, traduko de A. Grabowski
-
-
-LA INTERROMPITA KANTO
 
 
 La oblikvaj sunaj radioj fariĝis pli kaj pli mallongaj, la malgrandaj oraj rondoj sur la nigra tero — malpli larĝaj kaj malpli multenombraj. Klaro ĉesis kudri. Metinte la manojn sur la genuojn, ŝi aŭskultis, kaj ŝiaj pupiloj ore brilis.
@@ -2033,9 +1741,6 @@ Pasis la minutoj; proksimiĝis la fino de la poemo.
 La delogita amatino ”flugis per sonĝo la ora”, la amato, konvinkita ke ŝi ”venis el ĉielarko”, ploras ŝian perdon.
 
 
-LA INTERROMPITA KANTO
-
-
 Kaj fluas fontan’, najtingala ar’ ĝemas,
 
 Pri ŝi ili diras — mi kore ektremas
@@ -2068,18 +1773,11 @@ Tio ne daŭris longe. Li trankviliĝis, remetis sian manon sur ŝian kaj diris p
 
 —Vi ne iros ankoraŭ, ĉar ni ankoraŭ ne finis la poemon.
 
-La unuan fojon, de la tempo kiam ŝi konis lin, despota tono eksonis en lia voĉo. Tenante sian manon en la sia, kaj rigar-67
-
-LA INTERROMPITA KANTO
-
-
-dante teren, li ekmeditis kaj mordetis la malsupran lipon.
+La unuan fojon, de la tempo kiam ŝi konis lin, despota tono eksonis en lia voĉo. Tenante sian manon en la sia, kaj rigardante teren, li ekmeditis kaj mordetis la malsupran lipon.
 
 Post momento li lasis ŝian manon kaj ekparolis pli delikate:
 
-—Mi rememoris ion, kio post la belega poemo ”En Svisu-
-
-jo” sonos kvazaŭ grinco post anĝela kanto. Kion fari? Mi devas ĝmuniki al vi. Ni kune aŭskultis la anĝelan kanton, ni kune aŭdos la grincon. Kial mi sola devus aŭdi ĝin?
+—Mi rememoris ion, kio post la belega poemo ”En Svisujo” sonos kvazaŭ grinco post anĝela kanto. Kion fari? Mi devas ĝmuniki al vi. Ni kune aŭskultis la anĝelan kanton, ni kune aŭdos la grincon. Kial mi sola devus aŭdi ĝin?
 
 Ironia fariĝis la esprimo de liaj lipoj, la sulko inter la brovoj pli profundiĝis. Post momenta silento li daŭrigis.
 
@@ -2109,9 +1807,7 @@ Ne sciis eĉ unu pri dua
 
 En lasta de l’vivo la hor’ …
 
-—Rimarku bone … ili amis unu la alian, sed ”ne sciis eĉ unu pri dua en lasta de l’vivo la hor’ ” ĉar ”la reciprokan konfeson haltigis ilia estim’ ”. i estas grinco kaj disonanco. Nobla amo 68
-
-LA INTERROMPITA KANTO
+—Rimarku bone … ili amis unu la alian, sed ”ne sciis eĉ unu pri dua en lasta de l’vivo la hor’ ” ĉar ”la reciprokan konfeson haltigis ilia estim’ ”. i estas grinco kaj disonanco. Nobla amo
 
 
 estas bazita sur la estimo, sed la estimo estas haltigilo de la amo, Nenio en la mondo estas simpla kaj facila, ĉio estas komplikita kaj ĉirkaŭita de malhelpoj. Vi ne volas plu forkuri? ĉu ni finos legi ”En Svisujo”? Mi estas danka al vi, ke vi konigis al mi la poemon! La pli grandan parton de mia vivo mi pasigis en eksterlando, mi legis nur fremdajn verkojn. Sed nia literaturo ankaŭ estas belega! … Mi multon lernis de vi …
@@ -2128,9 +1824,7 @@ La pens’, revenante pasinton sen fino,
 
 Ne scias, en kia pentradi sin formo …
 
-Flugis la momentoj; aŭskultante Klaro kudris, sed malra-
-
-pide kaj malrekte.
+Flugis la momentoj; aŭskultante Klaro kudris, sed malrapide kaj malrekte.
 
 La leganta voĉo eksilentis. Sur la herbaro malantaŭ la arboj ne estis plu la oraj strioj, la ora reto malaperis de la nigra tero. Nun la okcidentaj lumoj brilis sur la pintoj de la arboj kvazaŭ rozaj torĉoj kaj kandeloj. Malsupre jam noktiĝis; la bela florĝardeno ŝajnis nun griza; nur la blankaj floroj estis ankoraŭ klare videblaj.
 
@@ -2145,9 +1839,6 @@ Mia Dio! — ŝi ekkriis, — kion mi faris?
 —Katastrofo! ĉu vi ĝin malkudros?
 
 
-LA INTERROMPITA KANTO
-
-
 —Kompreneble, sed la malfeliĉo ne estas granda. Post duonhoro ĉio estos en ordo.
 
 —Ne eblas servi al du sinjoroj … Vi volis servi al la prozo kaj al la poezio; la prozo venĝis sin.
@@ -2160,9 +1851,7 @@ LA INTERROMPITA KANTO
 
 —ĉar mi ŝin amas, mi estas danka al ŝi; krome, en tia kufo ŝi estas ĉarma, aminda maljunulino.
 
-—Granda feliĉo estas ami sinjorinon Dutkiewicz! — li di-
-
-ris kun ĝemo.
+—Granda feliĉo estas ami sinjorinon Dutkiewicz! — li diris kun ĝemo.
 
 —Kial? — ŝi demandis.
 
@@ -2174,17 +1863,13 @@ Li ne finis, ĉar de malproksime, el la najbara ĝardeno eksonis la vokoj de Sta
 
 Ne trovinte la fratinon en la laŭbo kaj ne sciante, kie ŝi estas, li kriis pli kaj pli laŭte. Klaro prenis la korbon kaj salte leviĝis de la benko.
 
-—Kaj miaj floroj? — rememorigis Przyjemski, — vi ne pre-
-
-nos ilin?
+—Kaj miaj floroj? — rememorigis Przyjemski, — vi ne prenos ilin?
 
 —Mi prenos, dankon — ŝi respondis, prenante la bukedon,
 
 kiun li momenton tenis kun ŝia mano en sia.
 
-Fulmoj ekbrilis en liaj okuloj, la moviĝemaj naztruoj ree 70
-
-LA INTERROMPITA KANTO
+Fulmoj ekbrilis en liaj okuloj, la moviĝemaj naztruoj ree
 
 
 larĝiĝis post kelkaj sekundoj li mallevis la manon kaj iris en la aleo kelke da paŝoj malantaŭ la knabino. Sur la vojturniĝo li demandis:
@@ -2218,18 +1903,13 @@ Klaro lumigis la lampon, preparis teon por la patro, verŝis lakton al Staĉjo, 
 ŝi rakontis, ke ŝi estis en la princa parko, ke ŝi legis tie kun sinjoro Przyjemski ”En Svisujo”, ke li donis al ŝi la florojn, ke ŝi vidis de malproksime la florĝardenon antaŭ la palaco, sur la fono de la verdaĵo de la parko.
 
 
-LA INTERROMPITA KANTO
-
-
 ŝia tuta persono radiis de ĝojo; ŝiaj movoj fariĝis graciaj, nervaj. ŝi ne povis resti sur sama loko, ŝi sentis bezonon iri, kuri, paroli, eligi la troon da vivo, kiu bolis en ŝi. Iafoje ŝi eksilentis en la mezo de la frazo kaj staris senmova, mutiĝinta; ŝiaj rigardo kaj animo estis aliloke.
 
 Wygrycz ne rigardis ŝin atente, li jen aŭskultis ŝiajn vortojn, jen meditis; lia vizaĝo estis nek malgaja, nek maldolĉa: kontraŭe, petola rideto eraris sur liaj sensangaj lipoj.
 
 Franjo, kiu ĵus revenis kaj aŭskultis la rakonton de la fratino, diris per sia akra voĉo:
 
-—Atendu nenion, ĉar estos nenio! Sinjoro Przyjemski en-
-
-amiĝis, jes, sed mi dubas, ĉu li edziĝos kun Klaro. Li estas por ŝi tro granda sinjoro … Tiaj sinjoroj nur delogas malriĉajn knabinojn kaj poste forlasas ilin.
+—Atendu nenion, ĉar estos nenio! Sinjoro Przyjemski enamiĝis, jes, sed mi dubas, ĉu li edziĝos kun Klaro. Li estas por ŝi tro granda sinjoro … Tiaj sinjoroj nur delogas malriĉajn knabinojn kaj poste forlasas ilin.
 
 Wygrycz tuta ektremis.
 
@@ -2241,12 +1921,7 @@ Certe, ŝi sciis; ke junaj knabinoj, se ili amas kaj estas ama-taj, edziniĝas. 
 
 La fratino maldelikate deŝiris la virgan vualon, kovranta la revojn de ŝia koro. En ŝia cerbo, kiel muŝo en aranea reto, skuiĝis la vortoj de Franjo: ”Li estas tro granda sinjoro por ŝi.”
 
-Klaro ĉiam sentis lian superecon en la instruiteco kaj elegan-72
-
-LA INTERROMPITA KANTO
-
-
-teco. Krome, kvankam li estis nur la unua el la princaj servistoj, kompare kun ŝi li estis granda sinjoro. Li nomis la princon sia amiko, li mastrumis en la princa domo, kvazaŭ en sia.
+Klaro ĉiam sentis lian superecon en la instruiteco kaj eleganteco. Krome, kvankam li estis nur la unua el la princaj servistoj, kompare kun ŝi li estis granda sinjoro. Li nomis la princon sia amiko, li mastrumis en la princa domo, kvazaŭ en sia.
 
 Kiu scias, eble li estas riĉa! La lasta supozo. plej multe ĉagrenis ŝin.
 
@@ -2254,9 +1929,7 @@ Sur la fundo de sia koro ŝi sentis, ke kvankam kompare
 
 kun li ŝi estas malriĉa, modesta knabino, nenio nevenkebla apartigis ilin.
 
-—Se li nur amas min … — ŝi pensis. En ŝia koro kantis la magia vorto: ”Li amas! li amas!” Kiam ŝia patro foriris en sian ĉambron legi ĵurnalon, pruntitan de oficeja kolego, kiam Sta-
-
-ĉjo jam ekdormis kaj Franjo sin senvestigis. Klara kuris sur la balkonon.
+—Se li nur amas min … — ŝi pensis. En ŝia koro kantis la magia vorto: ”Li amas! li amas!” Kiam ŝia patro foriris en sian ĉambron legi ĵurnalon, pruntitan de oficeja kolego, kiam Staĉjo jam ekdormis kaj Franjo sin senvestigis. Klara kuris sur la balkonon.
 
 La vespero estis varma, sed nuba. Neniu stelo brilis sur la ĉielo; des pli helaj ŝajnis la fenestroj de la palaco. La vento jen blovis de la nuboj, jen tute ĉesis. Subite ĝi ekblovis pli forte kaj disportis en la du ĝardenoj ondon de muzikaj tonoj.
 
@@ -2265,20 +1938,13 @@ Malantaŭ la altaj, mallarĝaj lumaj fenestroj la fortepiano kaj violonĉelo lud
 Klaro trakuris la ĝardenon kaj haltis ĉe la krado apud la siringa laŭbo. Apogita al la krado ŝi aŭskultis kaj ĉesis pensi pri io ajn. Neesprimebla plezurego plenigis ŝian animon. La nuba nokto, la fenestroj brilantaj alte en la mallumo, la ĝemoj de la vento, la fluo de solenaj tonoj, formis unu estetikan tuton. Sed ĉiujn sentojn superregis en ŝi kortuŝiĝo, dankemo, pasia celado de ŝia animo al ĉi tiuj brilaj fenestroj, similaj al la pordoj de la paradizo, tra kiuj venis lumo kaj anĝela har-monio. Kun la okuloj levitaj al la helaj punktoj, ŝi rigardis kaj aŭskultis, rememorante la vortojn: ”Niaj animoj estos kune!”
 
 
-LA INTERROMPITA KANTO
-
-
 Kiel prava li estis! La muziko estis lia animo, kiu malleviĝis al ŝi kaj karesis ŝin per dolĉa, bruliga ĉirkaŭpreno.
 
 ŝi kovris la vizaĝon per la manoj kaj rapide spirante ensorbis la muzikajn tonojn, pensante, ke ŝi ensorbas lian animon.
 
-La kvaronhoroj pasis. Subite ĉio silentiĝis. En la palaco oni ĉesis ludi, sed post kelkaj minutoj eksonis muziko pli mallaŭ-
+La kvaronhoroj pasis. Subite ĉio silentiĝis. En la palaco oni ĉesis ludi, sed post kelkaj minutoj eksonis muziko pli mallaŭta, kvazaŭ pli malproksima, ĉar la violonĉelo eksilentis, la fortepiano kantis sola. ia kanto daŭris sufiĉe longe, la violonĉelo ŝilentis. Subite en aleo ĉe la krado eksonis malaŭta paŝado. Klaro rektiĝis, ektremis. Trans la krado, kontraŭ ŝi staris alta viro, eleganta kaj gracia eĉ en la mallumo. Li prenis ambaŭ ŝiajn manojn en siajn kaj flustris:
 
-ta, kvazaŭ pli malproksima, ĉar la violonĉelo eksilentis, la fortepiano kantis sola. ia kanto daŭris sufiĉe longe, la violonĉelo ŝilentis. Subite en aleo ĉe la krado eksonis malaŭta paŝado. Klaro rektiĝis, ektremis. Trans la krado, kontraŭ ŝi staris alta viro, eleganta kaj gracia eĉ en la mallumo. Li prenis ambaŭ ŝiajn manojn en siajn kaj flustris:
-
-—Mi nepre devis vidi vin hodiaŭ ankoraŭ unu fojon. Lu-
-
-dante, mi pensis senĉese: ”Mi iros al ŝi!” Mi lasis la violonĉelon kaj diris al li: ”Ludu, ludu seninterrompe!” ĉar mi volis kun vi paroli, akompanata de muziko. Kia nuba nokto! kiel siblas la vento! La tonoj de la muziko kune kun la bruo de la vento formas iajn aerajn arabeskojn. Ni aŭskultu.
+—Mi nepre devis vidi vin hodiaŭ ankoraŭ unu fojon. Ludante, mi pensis senĉese: ”Mi iros al ŝi!” Mi lasis la violonĉelon kaj diris al li: ”Ludu, ludu seninterrompe!” ĉar mi volis kun vi paroli, akompanata de muziko. Kia nuba nokto! kiel siblas la vento! La tonoj de la muziko kune kun la bruo de la vento formas iajn aerajn arabeskojn. Ni aŭskultu.
 
 Li premis ŝiajn manojn pli kaj pli forte, li proksimigis sian kapon al ŝia. Momenton ili staris tiamaniere, aŭskultante. La melankolia kaj pasia kanto kuniĝis kun la bruo de la vento, kiu blovis de la nuboj kaj kune kun ĝi revenis al la nuboj. La muziko fluis en la silentan mallumon de la parko.
 
@@ -2287,9 +1953,6 @@ Li premis ŝiajn manojn pli kaj pli forte, li proksimigis sian kapon al ŝia. Mo
 Preskaŭ senkonscia, ŝi flustris:
 
 —Oh, bone!
-
-
-LA INTERROMPITA KANTO
 
 
 Li altiris ŝin, tiel, ke ŝi tuta kliniĝis al li, kaj flustris:
@@ -2316,14 +1979,9 @@ Kelke da sekundoj ŝi silentis; poste, kvazaŭ plej mallaŭta blovo, el ŝia eks
 
 —Oh, mia plej amata!
 
-En la sama momento okazis io eksterordinara. Jam de kel-
-
-kaj minutoj homa figuro aperis el la mallumo kaj kelkfoje jen proksimiĝis mallaŭte al la parolanta paro, jen time foriris. i estis homo en vesto kun metalaj butonoj, kiuj bruis sur lia brusto kaj manikoj ĉiufoje, kiam li estis en malpli densa ombro. Li ne povis aŭdi la flustron de la paro, eble li eĉ ne vidis la virinan silueton malantaŭ la vira figuro, sed la lastan li re-konis bone kaj kelke da minutoj li rondiris ĉirkaŭ ĝi, ne sciante, kion fari.
+En la sama momento okazis io eksterordinara. Jam de kelkaj minutoj homa figuro aperis el la mallumo kaj kelkfoje jen proksimiĝis mallaŭte al la parolanta paro, jen time foriris. i estis homo en vesto kun metalaj butonoj, kiuj bruis sur lia brusto kaj manikoj ĉiufoje, kiam li estis en malpli densa ombro. Li ne povis aŭdi la flustron de la paro, eble li eĉ ne vidis la virinan silueton malantaŭ la vira figuro, sed la lastan li re-konis bone kaj kelke da minutoj li rondiris ĉirkaŭ ĝi, ne sciante, kion fari.
 
 ĉe la krado la viro kliniĝinta al la virina kapo kuŝanta sur lia brusto, flustris:
-
-
-LA INTERROMPITA KANTO
 
 
 —Rigardu min! ne kaŝu vian buŝon … Vane, vane! … Mi ĝin
@@ -2367,14 +2025,9 @@ Li provis ree kapti ŝiajn manojn. Sed ŝi levis ilin al la kapo, dronigis en la
 ĝardenojn. ŝi forkuris terurita kaj malaperis en la mallumo.
 
 
-LA INTERROMPITA KANTO
-
-
 V
 
-Post tri tagoj la princo revenis vespere de sia onklo. Unu horon post la reveno li iris en la aleo de la parko. Lia viza-
-
-ĝo estis malgaja, malĝoja … Antaŭ la herbaĵa benko li haltis, rigardis ĝin kaj ĉion ĉirkaŭe. Estis la momento, kiu antaŭiras la krepuskon. Sur la herbo malantaŭ la dikaj trunkoj brilis la oraj strioj de la sunaj radioj; sur la tero, en la aleo tremis oraj rondoj kaj rondetoj. Inter la herboj de la benko velkis kelkaj forgesitaj floroj.
+Post tri tagoj la princo revenis vespere de sia onklo. Unu horon post la reveno li iris en la aleo de la parko. Lia vizaĝo estis malgaja, malĝoja … Antaŭ la herbaĵa benko li haltis, rigardis ĝin kaj ĉion ĉirkaŭe. Estis la momento, kiu antaŭiras la krepuskon. Sur la herbo malantaŭ la dikaj trunkoj brilis la oraj strioj de la sunaj radioj; sur la tero, en la aleo tremis oraj rondoj kaj rondetoj. Inter la herboj de la benko velkis kelkaj forgesitaj floroj.
 
 ĉio restis sama, kia ĝi estis en la sama horo antaŭ tri tagoj.
 
@@ -2405,9 +2058,6 @@ Antaŭ unu horo, tuj post la reveno, kiam li estis sola kun la ĉambristo Benedi
 —Mi ankoraŭ ne scias; sed se via princa moŝto ordonas …
 
 
-LA INTERROMPITA KANTO
-
-
 Li volis diri: ”mi ekscios”, sed li preferis ne fini la frazon. Li atendis. La princo silentis. Li rigardis tra la fenestro kaj ne turnante sin demandis ankoraŭ:
 
 —Vi ne vidis ŝin?
@@ -2420,27 +2070,18 @@ Tion ĉi Benedikto diris unutone, kvazaŭ raporton. La prin-co, ne turnante sin 
 
 —Vi povas foriri.
 
-Al la ĉambristo ŝajnis, ke la voĉo de la princo estis tute ŝan-
+Al la ĉambristo ŝajnis, ke la voĉo de la princo estis tute ŝanĝita.
 
-ĝita.
-
-Post momento la princo sidis sur la herbaĵa benko kaj mal-
-
-ĝoje meditis.
+Post momento la princo sidis sur la herbaĵa benko kaj malĝoje meditis.
 
 —”De kiam ĝi flugis per sonĝo la ora …” ŝi forflugis. Sed tio estas bagatelo. Nenio estas pli facila, ol trovi ŝin. Li diros unu vorton al Benedikto, kaj morgaŭ aŭ post du tagoj li ekscios, kien ŝi transloĝiĝis.
-
-
-LA INTERROMPITA KANTO
 
 
 Sed ĉu li devas serĉi? ŝi forkuris. ŝia virina instinkto puŝis ŝin al forkuro. Tia estas la natura leĝo. La ino forkuras, se ŝi ne volas meti neston kun la persekutanto. Klaro, tiel prudenta kaj tiel noble fiera, komprenis, ke ŝia feliĉo daŭrus ne longe, ke la malfeliĉo estus granda. ŝi forkuris plorante, sed ŝi forkuris.
 
 En ĉi tiu infano, kia forto de volo! Tamen por li ŝi estis ce-dema; ankaŭ li en similaj cirkonstancoj estas tre malforta; kiu scias, kio estus okazinta? Feliĉe tio ne okazis. Neniam li pardonus al si.
 
-ĉu do li devas serĉi kaj rekomenci?… ree meti sin en dan-
-
-ĝeron? ŝin, ĉar por li … ah, en ŝi li vidis sian savon, revivigi-tan kredon pri multaj aferoj, kies ekzistadon li neis. Dum ĉi tiuj kelkaj tagoj li sentis sin renaskita … Posedi ĉi tiun estaĵon tiel puran, tiel allogan, tian korpon kaj tian animon! … Nur vidi ŝin nun estus grandega feliĉo! … Se li revidus ŝin, li petus ŝian pardonon, ke li rompis ŝian trankvilecon, ke li forpe-lis ŝin el ŝia modesta loĝejo, ke li estis kaŭzo de ŝiaj larmoj!
+ĉu do li devas serĉi kaj rekomenci?… ree meti sin en danĝeron? ŝin, ĉar por li … ah, en ŝi li vidis sian savon, revivigi-tan kredon pri multaj aferoj, kies ekzistadon li neis. Dum ĉi tiuj kelkaj tagoj li sentis sin renaskita … Posedi ĉi tiun estaĵon tiel puran, tiel allogan, tian korpon kaj tian animon! … Nur vidi ŝin nun estus grandega feliĉo! … Se li revidus ŝin, li petus ŝian pardonon, ke li rompis ŝian trankvilecon, ke li forpe-lis ŝin el ŝia modesta loĝejo, ke li estis kaŭzo de ŝiaj larmoj!
 
 Jes, sed post la peto pri pardono kio okazus? ”Di’ lasu vin por sia glor’ tiel bela kaj pura kaj ĉarma!” Sed li ne lasus ŝin tia.
 
@@ -2452,23 +2093,13 @@ Li leviĝis kaj daŭrigis la promenon. En la aleo, najbara al la ĝardeno de Wyg
 
 —Sendube sinjorino Dut … kiewicz.
 
-Li konsideris momenton, malfermis la pordeton en la kra-
+Li konsideris momenton, malfermis la pordeton en la krado kaj eniris en la najbaran ĝardenon. La maljunulino, ekvi-dinte la vizitanton, forlasis la seĝon kaj kiam li salutis ŝin per la ĉapelo, ŝi ekparolis kun bonkora rideto sur la larĝa buŝo.
 
-
-LA INTERROMPITA KANTO
-
-
-do kaj eniris en la najbaran ĝardenon. La maljunulino, ekvi-dinte la vizitanton, forlasis la seĝon kaj kiam li salutis ŝin per la ĉapelo, ŝi ekparolis kun bonkora rideto sur la larĝa buŝo.
-
-—Se via princa moŝto volus sidiĝi sur mia malgranda bal-
-
-kono, tio estus por mi granda honoro … Mi petas vian princan moŝton! …
+—Se via princa moŝto volus sidiĝi sur mia malgranda balkono, tio estus por mi granda honoro … Mi petas vian princan moŝton! …
 
 ŝi akompanis la vortojn per multe da riverencoj, kiuj ne estis facilaj sur la malgranda balkono, kies parton okupis dika kato, kuŝanta sur granda kuseno. Malgraŭ manko de spaco la maljunulino faris profundajn riverencojn, balanciĝante kaj sidetiĝante. ŝia jupo leviĝis kaj oni vidis blankajn ŝtrumpojn kaj tolajn ŝuojn.
 
-—Via princa moŝto faru la honoron al mia malriĉa dome-
-
-to kaj volu sidiĝi … Mi aŭskultos vian princan moŝton …
+—Via princa moŝto faru la honoron al mia malriĉa dometo kaj volu sidiĝi … Mi aŭskultos vian princan moŝton …
 
 ŝi ankoraŭ unufoje riverencis, montrante la blankajn ŝtrumpojn, kaj sidiĝis sur la antaŭa loko, metante sur la genuojn la trikilojn kaj la laboraĵon.
 
@@ -2480,17 +2111,13 @@ La princo ne sidiĝis, li suriris la balkonon, malkovris la kapon kaj demandis:
 
 La princo demandis per velura voĉo:
 
-—ĉu mi havas la honoron paroli kun sinjorino Dutkie-
-
-wicz …
+—ĉu mi havas la honoron paroli kun sinjorino Dutkiewicz …
 
 —Jes, via princa moŝto, Dutkiewicz, preta servi vian princan moŝton.
 
 —ĉu oni povus ekscii, kien transloĝiĝis la Wygrycz’oj?
 
-La afabla kaj bonkora rideto malaperis de la vizaĝo de la 80
-
-LA INTERROMPITA KANTO
+La afabla kaj bonkora rideto malaperis de la vizaĝo de la
 
 
 maljunulino; ŝia mieno fariĝis malĝoja kaj serioza. ŝi levis la bluajn okulojn kaj diris, skuante la kapon:
@@ -2503,13 +2130,9 @@ maljunulino; ŝia mieno fariĝis malĝoja kaj serioza. ŝi levis la bluajn okulo
 
 Sed la gesto faligis la volvaĵon, kiu ruliĝis de la genuoj sur la truplenan plankon. ŝi provis altiri ĝin per la fadeno, sed vane.
 
-La princo levis ĝin kaj donis al ŝi. La maljunulino salte levi-
+La princo levis ĝin kaj donis al ŝi. La maljunulino salte leviĝis de la benko kaj refaris profundan riverencon.
 
-ĝis de la benko kaj refaris profundan riverencon.
-
-—Mi dankas vian princan moŝton … Via princa moŝto pe-
-
-nis por mi … mi dankas …
+—Mi dankas vian princan moŝton … Via princa moŝto penis por mi … mi dankas …
 
 La princo staris apogita al la balkona kolono. La sulko sur lia frunto pli profundiĝis, la vangoj ruĝiĝis. Li demandis:
 
@@ -2525,18 +2148,13 @@ loĝejon de Wygrycz … se mi serĉus?
 
 —Sed via princa moŝto ne serĉos.
 
-La princo sendube estis observema bomo, ĉar eĉ la malju-
-
-nulinon li rigardis atente. Krome, ŝia kufo ornamita per puntoj rememorigis al li multon. Dufoje li vidis ĝin en la manoj de Klaro.
+La princo sendube estis observema bomo, ĉar eĉ la maljunulinon li rigardis atente. Krome, ŝia kufo ornamita per puntoj rememorigis al li multon. Dufoje li vidis ĝin en la manoj de Klaro.
 
 Li krucigis la manojn sur la brusto kaj demandis:
 
 —Kio donas al vi la certecon, ke mi ne serĉos?
 
 La maljunulino ekpalpebrumis por siaj senharaj palpebroj kaj respondis:
-
-
-LA INTERROMPITA KANTO
 
 
 —ĉar via princa moŝto estas bona … mi tion vidas. Eh, eh, mi manĝis panon ne el unu forno, mi vidis multajn princojn kaj grafojn dum mia juneco, kiam mi estis ĉambristino en riĉaj domoj. Mi ĉion divenas per plej malgranda bagatelo.
@@ -2561,12 +2179,7 @@ Al kiu ŝi povus konfesi tion krom mi? Mi lulis ŝian patrinon kaj ŝin mem sur 
 
 … ĝis …” Via princa moŝto komprenas? ”Sed, — ŝi aldonis —
 
-mi ne parolos pri ĉi tio kun la patro, ĉar oni devas paroli kun li malvarmasange, kaj mi ne povus fari tion …” Mi do iris mem kaj mi ĉion rakontis al sinjoro Teofilo, klarigis, proponis: Li estas prudenta homo. Li komprenis kaj konsentis, li eĉ dankis min. Kiam Klaro revenis hejmen, li kisis ŝin kaj iom ri-82
-
-LA INTERROMPITA KANTO
-
-
-proĉis … nur iom … Nokte li multe tusis, sed la tuso pasos, pasos. Hodiaŭ frumatene mi transportigis ĉiujn miajn vesta-
+mi ne parolos pri ĉi tio kun la patro, ĉar oni devas paroli kun li malvarmasange, kaj mi ne povus fari tion …” Mi do iris mem kaj mi ĉion rakontis al sinjoro Teofilo, klarigis, proponis: Li estas prudenta homo. Li komprenis kaj konsentis, li eĉ dankis min. Kiam Klaro revenis hejmen, li kisis ŝin kaj iom riproĉis … nur iom … Nokte li multe tusis, sed la tuso pasos, pasos. Hodiaŭ frumatene mi transportigis ĉiujn miajn vesta-
 
 ĵojn kaj meblojn ĉi tien kaj iliajn en mian loĝejon. Kaj jen mi estas. Mi diris ĉion al via princa moŝto, ĉar mi devis tion fari.
 
@@ -2594,16 +2207,12 @@ La princo staris nun tute proksime de la maljunulino, kiu volis fini la interrom
 
 —Kvankam tre malriĉa …
 
-—Ne finu, sinjorino! ĉion, kion vi povus diri pri fraŭlino 83
-
-LA INTERROMPITA KANTO
+—Ne finu, sinjorino! ĉion, kion vi povus diri pri fraŭlino
 
 
 Klaro, mi scias, kaj eble eĉ pli multe, ol vi. ĉu vi konsentos diri kelke da vortoj de mi al fraŭlino Klaro?
 
-Sinjorino Dutkiewicz momenton rigardis lin per siaj pal-
-
-pebrumantaj okuloj.
+Sinjorino Dutkiewicz momenton rigardis lin per siaj palpebrumantaj okuloj.
 
 —ĉu via princa moŝto serĉos ŝin?
 
@@ -2631,9 +2240,7 @@ La voĉo mankis al li, en liaj okuloj ekbrilis larmoj.
 
 —Mi havas la honoron saluti vin, — li diris kaj rapide foriris.
 
-La maljunulino rapide leviĝis kaj faris du riverencojn, ree montrante la blankajn ŝtrumpojn. Poste ŝi eksidis sur la benko, almetis tukon al la okuloj kaj ekploris. La kato en la blanka kaj flava vesto, ne povante liberigi la piedojn el la fadenoj, 84
-
-LA INTERROMPITA KANTO
+La maljunulino rapide leviĝis kaj faris du riverencojn, ree montrante la blankajn ŝtrumpojn. Poste ŝi eksidis sur la benko, almetis tukon al la okuloj kaj ekploris. La kato en la blanka kaj flava vesto, ne povante liberigi la piedojn el la fadenoj,
 
 
 sidis kune kun la ŝtrumpo, trikiloj kaj volvaĵo sur la alia fino de la balkono kaj petege rigardante sian sinjorinon, miaŭis.
@@ -2646,9 +2253,7 @@ Princo Oskaro, enirante en sian luksan kabineton, sin turnis al Benedikto, kiu s
 
 Benedikto konfuziĝis;
 
-—Ankoraŭ ne, via princa moŝto … La knabo ploras kaj pe-
-
-tegas …
+—Ankoraŭ ne, via princa moŝto … La knabo ploras kaj petegas …
 
 —Li restu.
 
@@ -2666,14 +2271,9 @@ La princo haltis antaŭ li.
 
 la piedoj ĝis la kapo, kaj vi proponas al mi ludadon aŭ skri-badon! … Jen kial mi alvokis vin … morgaŭ ni veturos en la kamparon … volu hodiaŭ aranĝi ĉiujn aferojn kun intendan-toj, advokatoj k. t. p. Se ili volos paroli kun mi, ili venu tien.
 
-ĉi tie mi ne povas resti, mi ne povas! Mi bezonas aeron, ŝan-
-
-ĝon, forgeson. Mi volas ankaŭ, ke ŝi povu reveni en la lokon, kiun ŝi amas … Faru do por mi oferon, lasu la fraŭlinojn Perkowski kaj veturu kun mi … Sed se vi ne volas forlasi la urbon, restu, sed tute sola tie mi freneziĝus de malespero …
+ĉi tie mi ne povas resti, mi ne povas! Mi bezonas aeron, ŝanĝon, forgeson. Mi volas ankaŭ, ke ŝi povu reveni en la lokon, kiun ŝi amas … Faru do por mi oferon, lasu la fraŭlinojn Perkowski kaj veturu kun mi … Sed se vi ne volas forlasi la urbon, restu, sed tute sola tie mi freneziĝus de malespero …
 
 Przyjemski eksidis sur apogseĝo kaj iom ŝerce diris:
-
-
-LA INTERROMPITA KANTO
 
 
 —ĉu efektive via malespero estas tiel granda?
@@ -2696,9 +2296,7 @@ La princo eksplodis.
 
 —Ankaŭ ĉi tion mi aŭdis.
 
-—La vivo estas unu granda sensencaĵo. Dum la homo kre-
-
-das, li estas feliĉa, sed li estas infano. Ekzistas homoj kiuj restas infanoj la tutan vivon. Sed tiuj, kiuj perdis iluziojn? … Se ĉio estas mensogo, erariga ombro, efemero …
+—La vivo estas unu granda sensencaĵo. Dum la homo kredas, li estas feliĉa, sed li estas infano. Ekzistas homoj kiuj restas infanoj la tutan vivon. Sed tiuj, kiuj perdis iluziojn? … Se ĉio estas mensogo, erariga ombro, efemero …
 
 —Mi aŭdas pri tio tre ofte.
 
@@ -2709,9 +2307,6 @@ das, li estas feliĉa, sed li estas infano. Ekzistas homoj kiuj restas infanoj l
 —Vi ne konas ŝin, tio estas indiferenta! Sed en ili estas io tia! … Kaj ŝi, ŝi …
 
 Kun nova eksplodo li ekkriis:
-
-
-LA INTERROMPITA KANTO
 
 
 —Julio, ŝi ŝutis perlojn en mian animon! Kaj kiel ĉarma ŝi estas! … ŝi ne estas perfekte bela, sed mi ne donus cent belu-linojn por ŝia simpla, modesta ĉarmo … por ŝiaj oraj okuloj!..
@@ -2736,9 +2331,7 @@ La princo levis la kapon kaj fikse lin rigardis.
 
 —Por kio? — li diris, — ŝin eĉ por miliono vi ne aĉetos, eĉ miliono ne konsolos sin …
 
-—Pardonu min, princo: Mia konsilo estis malbona. i es-
-
-tis diktita de mia kompato al vi pro viaj suferoj.
+—Pardonu min, princo: Mia konsilo estis malbona. i estis diktita de mia kompato al vi pro viaj suferoj.
 
 Nun Przyjemski komencis kuri en la ĉambro; li tiris siajn nigrajn lipharojn, pensis, fine haltis antaŭ la amiko.
 
@@ -2751,9 +2344,6 @@ Princo Oskaro levis la kapon kaj rigardis lin kvazaŭ ne kre-dante al la propraj
 —Kion vi diris?
 
 —Vi edziĝu kun ŝi! — ripetis sentime Przyjemski.
-
-
-LA INTERROMPITA KANTO
 
 
 La vizaĝo de la princo komencis rapide ŝanĝiĝi, ĝis subite rido eksplodis en la luksa ĉambro.
@@ -2769,9 +2359,6 @@ mortos de ĉagreno, sed vi, ha, ha, ha! vi ridigus mortinton, ha, ha, ha!
 Li eltiris naztukon el la poŝo, levis ĝin al la okuloj kaj ridis tiel forte, ke la rido similis ploregon.
 
 —Ha, ha, ha! Ha, ha!
-
-
-LA INTERROMPITA KANTO
 
 
 www.omnibus.se/

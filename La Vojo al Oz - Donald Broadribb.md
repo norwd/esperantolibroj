@@ -1,4 +1,4 @@
-Vidu Ĉapitro 16
+Vidu Ĉapitro
 
 
 La Vojo al Oz
@@ -1241,7 +1241,7 @@ interesataj, kaj Toto tiom ekscitiĝis ke li volis boji
 
 ĉiuminute kaj ĉasi kaj batali ĉiun vulpon kiun li
 
-e k v i d i s ; s e d D o r o t e o t e n i s l i a n m a l g r a n d a n 38
+e k v i d i s ; s e d D o r o t e o t e n i s l i a n m a l g r a n d a n
 
 Kurioza Vilaĝo
 
@@ -1563,9 +1563,7 @@ nomo estas Dokso, sed oni ne rajtas nomi Reĝon per
 
 lia privata nomo; oni devas uzi oficialan nomon. Do
 
-mia oficiala nomo estas Reĝo Renard la Kvara. Ren-
-
-ard, akcentu la ‘Ren’.”
+mia oficiala nomo estas Reĝo Renard la Kvara. Renard, akcentu la ‘Ren’.”
 
 “Kio estas ‘ren’?” demandis Buton-Brilo.
 
@@ -1686,9 +1684,7 @@ Kaj la vilulo kaj Doroteo aspektis malfeliĉaj kaj
 
 maltrankvilaj, ĉar ili lamentis ke tia misfortuno trafis
 
-ilian kunuleton. Toto bojis je la vulpoknabo unu-du-
-
-foje, ne komprenante ke estas lia antaŭa amiko nun
+ilian kunuleton. Toto bojis je la vulpoknabo unu-dufoje, ne komprenante ke estas lia antaŭa amiko nun
 
 portanta bestokapon; sed Doroteo punfrapis la hundon
 
@@ -2035,9 +2031,7 @@ respondis.
 
 La Vulporeĝo jam pretigis bonegan lunĉon por ili,
 
-kiun la vilulo puŝis en sian poŝon, kaj la vulpo-
-
-kapitano eskortis ilin al arkaĵo ĉe la flanko de la vilaĝo
+kiun la vilulo puŝis en sian poŝon, kaj la vulpokapitano eskortis ilin al arkaĵo ĉe la flanko de la vilaĝo
 
 kontraŭ tiu tra kiu ili eniris. Tie ili trovis pli da
 
@@ -2378,9 +2372,7 @@ KIAM venis la tagmezo ili malfermis la lunĉokorbon
 
 de la Vulporeĝo, kaj trovis belan rostitan meleagron
 
-kun oksikoka saŭco kaj kelkaj pan-kun-butero-
-
-tranĉaĵoj. Dum ili sidis sur la herbo apud la vojo la
+kun oksikoka saŭco kaj kelkaj pan-kun-buterotranĉaĵoj. Dum ili sidis sur la herbo apud la vojo la
 
 vilulo distranĉis la meleagron per sia poŝtranĉilo kaj
 
@@ -4432,9 +4424,7 @@ Doroteo prenis Toton, kaj poste ekprenis manon de
 
 Poli kaj kuris rapide cele la elirejon de la kavo. La
 
-vilulo metis Buton-Brilon sur siajn ŝultrojn kaj post-
-
-kuris ilin. Ili movis sin tiel rapide kaj ilia eskapo estis
+vilulo metis Buton-Brilon sur siajn ŝultrojn kaj postkuris ilin. Ili movis sin tiel rapide kaj ilia eskapo estis
 
 tiel neatendita ke ili preskaŭ atingis la ponton antaŭ
 
@@ -4872,9 +4862,7 @@ magiaj iloj ĉar ili tiel rapide kaj tiom bone efikis.
 
 La viro zumis kanteton dum li laboris, kaj Doroteo
 
-provis aŭskulti ĝin. Ŝi kredis ke la vortoj estas pli-
-
-malpli tiuj:
+provis aŭskulti ĝin. Ŝi kredis ke la vortoj estas plimalpli tiuj:
 
 *Por ion fari ĝuste, *
 
@@ -5639,9 +5627,7 @@ gapante la kuprulon.
 
 “Ho, ne, sed pro sia mekanismo li estas same bone
 
-kiel viva.” Ŝi turnis sin al la kuprulo kaj diris ĝentile: “S-
-
-ro Tiktoko, jen miaj novaj amikoj: la vilulo, kaj Poli
+kiel viva.” Ŝi turnis sin al la kuprulo kaj diris ĝentile: “Sro Tiktoko, jen miaj novaj amikoj: la vilulo, kaj Poli
 
 Filino de la Ĉielarko, kaj Buton-Brilo, kaj Toto. Tamen
 
@@ -5666,9 +5652,7 @@ Tiktoko kaj Vilĉinjo
 
 loko sub lia dekstra brako kaj li pludiris:
 
-“Par-do-nu mi-n pri mi-a mal-stre-ĉi-ĝo. Mi in-ten-
-
-cis di-ri ke al mi pla-ĉas ren-kon-ti la a-mi-ko-j-n de
+“Par-do-nu mi-n pri mi-a mal-stre-ĉi-ĝo. Mi in-tencis di-ri ke al mi pla-ĉas ren-kon-ti la a-mi-ko-j-n de
 
 Do-ro-te-o, ki-uj de-vos es-ti mi-aj a-mi-koj.” La
 
@@ -5725,15 +5709,11 @@ renkontintaj nin?”
 
 monotona voĉo, ĉar ĉiuj sonoj en liaj vortoj estis
 
-samnivelaj—“Prin-ci-no Oz-ma vi-dis vi-n en si-a ma-
-
-gi-a bil-do, kaj sci-is ke vi ve-nas ĉi ti-e-n; do ŝi sen-
+samnivelaj—“Prin-ci-no Oz-ma vi-dis vi-n en si-a magi-a bil-do, kaj sci-is ke vi ve-nas ĉi ti-e-n; do ŝi sen-
 
 dis Vil-ĉin-jo-n kaj mi-n por bon-ve-ni-gi vi-n, ĉar ŝi
 
-ne po-vis mem ve-ni; do—fiz-i-dig-le kum-so-lut-e hi-
-
-ber-gob-le in-tu-zib-ik—”
+ne po-vis mem ve-ni; do—fiz-i-dig-le kum-so-lut-e hiber-gob-le in-tu-zib-ik—”
 
 “Jadi! Kio okazas nun?” kriis Doroteo, dum la
 
@@ -5775,9 +5755,7 @@ Oz-ma sen-dis ni-n por bon-ve-ni-gi vi-n kaj in-vi-ti
 
 vi-n ve-ni rek-te al la Sme-ral-da Ur-bo. Ŝi es-tis tro
 
-o-ku-pa-ta por mem ve-ni, ĉar ŝi pre-pa-ras si-a-n nas-
-
-kiĝ-ta-ga-n fes-to-n, ki-u es-tos gran-di-o-za a-fe-ro.”
+o-ku-pa-ta por mem ve-ni, ĉar ŝi pre-pa-ras si-a-n naskiĝ-ta-ga-n fes-to-n, ki-u es-tos gran-di-o-za a-fe-ro.”
 
 “Mi aŭdis pri ĝi,” diris Doroteo, “kaj mi ĝojas ke
 
@@ -5785,13 +5763,9 @@ ni venis ĝustatempe por ĉeesti. Ĉu estas granda
 
 distanco inter ĉi tie kaj la Smeralda Urbo?”
 
-“Ne tre,” respondis Tiktoko, “kaj ni hav-as mul-ta-
+“Ne tre,” respondis Tiktoko, “kaj ni hav-as mul-tan tem-po-n. Ĉi-nok-te ni hal-tos ĉe la pa-la-co de la
 
-n tem-po-n. Ĉi-nok-te ni hal-tos ĉe la pa-la-co de la
-
-Sta-na Lig-no-ha-kis-to, kaj mor-gaŭ nok-te ni a-tin-
-
-gos la Sme-ral-da-n Ur-bo-n.”
+Sta-na Lig-no-ha-kis-to, kaj mor-gaŭ nok-te ni a-tingos la Sme-ral-da-n Ur-bo-n.”
 
 “Bone!” kriis Doroteo. “Min ĝojigos revidi karan
 
@@ -6512,9 +6486,7 @@ planko de sia antaŭa salono.”
 
 “sed neniam el blua urso.”
 
-“Nu,” pludiris la Stana Lignohakisto, “la mal-
-
-junulino supozis ke la Pulvoro en la botelo devas esti
+“Nu,” pludiris la Stana Lignohakisto, “la maljunulino supozis ke la Pulvoro en la botelo devas esti
 
 kontraŭtinea pulvoro, ĉar ĝi odoris iom simile al
 

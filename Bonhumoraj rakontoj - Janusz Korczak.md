@@ -10,15 +10,8 @@ BONHUMORAJ RAKONTOJ
 
 Janusz Korczak
 
-BONHUMORAJ RAKONTOJ
 
 Anna Weinstein Lingve reviziita en 2002
-
-
-@omnibus.se
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Enhavo
@@ -47,9 +40,6 @@ Printempa kanto
 Leciono pri gramatiko
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Reĝo Maĉjo Unua
 
 Maturaj homoj prefere ne legu mian rakonton, ĉar estas en ĝi malkonvenaj ĉapitroj, kiujn ili ne komprenos kaj pro tio primokos. Sed se ili nepre volas, ili legu — al plenkreskuloj oni ja nenion povas malpermesi — ili ne obeas.
@@ -62,12 +52,7 @@ La plej maljuna ministro tre malĝojis kaj invitis al konferenco la aliajn minis
 
 Antaŭ ĉiu ministro kuŝis paperfolio kaj du krajonoj; unu krajono estis ordinara, kaj la dua estis ĉe unu flanko blua, ĉe la alia ruĝa, kaj antaŭ la plej maljuna ministro staris sonorileto.
 
-La ministroj ŝlosis la pordon, por ke neniu malhelpu la kunsidon, ili lumigis elektrajn lampojn kaj parolis ne-4
-
-BONHUMORAJ RAKONTOJ
-
-
-nion. Poste la plej maljuna ministro eksonorigis la so-norileton kaj diri:s:
+La ministroj ŝlosis la pordon, por ke neniu malhelpu la kunsidon, ili lumigis elektrajn lampojn kaj parolis nenion. Poste la plej maljuna ministro eksonorigis la so-norileton kaj diri:s:
 
 ”Nun ni interkonsiliĝos, kion fari, ĉar la reĝo estas malsana kaj ne plu povas regi.”
 
@@ -92,9 +77,6 @@ Sed la kuracisto ne povis veni baldaŭ, ĉar en tiu momento li surmetis al la re
 ”Ne grave,” respondis la justicministro, ”en nia ŝtato tio ankoraŭ ne okazis, sed en Hispanujo, en Belgujo kaj en aliaj landoj okazis, ke reĝo mortis kaj postlasis malgrandan filon — kaj tiu malgranda filo devis esti reĝo.”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”O,” jesis la poŝt- kaj telegrafministro, ”mi eĉ vidis poŝtmarkojn kun fotografaĵo de tia malgranda reĝo.”
 
 ”Sed, estimataj sinjoroj,” diris la klerecministro; ”ne estas ja eble, ke reĝo ne sciu skribi kaj kalkuli, ke li konu nek geografion nek gramatikon.”
@@ -109,9 +91,7 @@ BONHUMORAJ RAKONTOJ
 
 ”Sed Maĉjo estas tro malgranda,” kriis ĉiuj ministroj,
 
-”kaj certe fariĝus terura malpaco …” Sed en la sama momento la pordo malfermiĝis, kaj eniris la salonon fremdlanda ambasadoro. ŝajnos eble strange, ke li venis en kunsidon, kvankam la pordo estis ŝlosita — do mi devas klarigi, ke kiam oni iris por venigi la kuraciston, oni forgesis fermi la pordon. Poste kelkaj eĉ opiniis, ke tio estis 6
-
-BONHUMORAJ RAKONTOJ
+”kaj certe fariĝus terura malpaco …” Sed en la sama momento la pordo malfermiĝis, kaj eniris la salonon fremdlanda ambasadoro. ŝajnos eble strange, ke li venis en kunsidon, kvankam la pordo estis ŝlosita — do mi devas klarigi, ke kiam oni iris por venigi la kuraciston, oni forgesis fermi la pordon. Poste kelkaj eĉ opiniis, ke tio estis
 
 
 perfido, ke la justicministro intence lasis malfermita la pordon, ĉar li sciis pri alveno de la ambasadoro.
@@ -126,12 +106,7 @@ En tiu momento en la salonon eniris la kuracisto, kaj ĉiuj ministroj komencis p
 
 La ministroj aŭdis la konsilon, ili venigis famajn dok-torojn, oni elsendis ĉiuj reĝajn aŭtomobilojn — kaj du-me ili ordonis al la reĝa kuiristo, ke li donu al ili vespermanĝon, ĉar ili estis tre malsataj, — ili ne sciis, ke la konferenco daŭros tiel longe, kaj ili eĉ ne tagmanĝis hejme.
 
-La kuiristo orde starigis arĝentajn telerojn, plenverŝis botelojn per plej bona vino, ĉar li volis resti en la pala-7
-
-BONHUMORAJ RAKONTOJ
-
-
-co eĉ post morto de la reĝo. La ministroj manĝis kaj trinkis, ili fariĝis gajaj, kaj en salono kolektiĝis doktoroj.
+La kuiristo orde starigis arĝentajn telerojn, plenverŝis botelojn per plej bona vino, ĉar li volis resti en la palaco eĉ post morto de la reĝo. La ministroj manĝis kaj trinkis, ili fariĝis gajaj, kaj en salono kolektiĝis doktoroj.
 
 ”Mi pensas,” diris maljuna, barbhava doktoro, ”ke oni devas fari je la reĝo operacion.”
 
@@ -150,9 +125,6 @@ Li haltis antaŭ la tagmanĝeja pordo, ne por subaŭskulti, sed en la reĝa pala
 ”Ho! la reĝo havas bonegan vinon,” kriis la financministro, ”ni trinku ankoraŭ, karaj kamaradoj. Se Maĉjo fariĝos reĝo, vino ne estos al li bezonata, ĉar al infanoj ja estas malpermesite trinki vinon.”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”Ankaŭ cigarojn li ne bezonos, mi do povas preni kelkajn hejmen,” laŭte kriis la komercministro.
 
 ”Kaj se estos milito, miaj karuloj, mi garantias, ke nenio restos de tiu ĉi palaco, ĉar Maĉjo ja ne defendos nin.”
@@ -168,9 +140,6 @@ Maĉjo ne komprenis multon el tiu ĉi interparolo; li sciis, ke paĉjo estas mal
 ”Mi donos mian kapon, se la reĝo ankoraŭ vivos pli longe ol unu semajnon.” Maĉjo ne plu aŭskultis, li rapide trakuris la koridoron kaj du grandajn reĝajn ĉambrojn kaj enfalis la reĝan dormoĉambron preskaŭ sen-spire. La reĝo kuŝis tre pala sur la lito kaj malfacile spiris — apud li sidis bonkora doktoro, tiu sama, kiu sanigis Maĉjon, kiam li estis malsana.
 
 ”Paĉjo, paĉjo,” ekkriis li plorante, ”mi ne volas, ke vi mortu.”
-
-
-BONHUMORAJ RAKONTOJ
 
 
 La reĝo malfermis siajn okulojn kaj malĝoje, mallonge rigardis la fileton.
@@ -193,9 +162,7 @@ La enterigo de la reĝo okazis kun granda pompo: lan-ternoj estis ĉirkaŭvolvit
 
 Maĉjo sidis malgaja en sia ĉambro, ĉar kvankam li devis fariĝi reĝo, li perdis la patron. Li rememoris sian patrinon. Kvankam ŝi estis reĝino, ŝi tute ne estis fiera —
 
-ŝi ludis kun li, ŝi orde starigis ŝtupetojn kun li, ŝi rakontis 10
-
-BONHUMORAJ RAKONTOJ
+ŝi ludis kun li, ŝi orde starigis ŝtupetojn kun li, ŝi rakontis
 
 
 al li interesajn rakontojn, montris bildetojn en libroj —
@@ -212,9 +179,7 @@ Sep knaboj amuziĝis — kiel plej ofte — per militluda-do. Ilmandis, ekzercad
 
 Maĉjo tre deziris voki lin kaj iom interparoli kun li tra la kradoj, sed li ne sciis, ĉu tio estas permesita; li ankaŭ ne sciis, kion diri kaj kiel komenci interparolon.
 
-Dume en la stratoj oni surgluis grandajn afiŝojn pri Maĉjo, kiu fariĝis reĝo kaj salutas siajn regatojn, ke restos la samaj antaŭaj ministroj, kiuj helpos la junan reĝon en la laboro. En ĉiuj vendejoj estis videblaj fotografaĵoj de Maĉjo: Maĉjo sur ĉevalido, Maĉjo en marista vesto, 11
-
-BONHUMORAJ RAKONTOJ
+Dume en la stratoj oni surgluis grandajn afiŝojn pri Maĉjo, kiu fariĝis reĝo kaj salutas siajn regatojn, ke restos la samaj antaŭaj ministroj, kiuj helpos la junan reĝon en la laboro. En ĉiuj vendejoj estis videblaj fotografaĵoj de Maĉjo: Maĉjo sur ĉevalido, Maĉjo en marista vesto,
 
 
 Maĉjo en militista eleganta uniformo, Maĉjo dum militista revuo. Oni vidigis lin ankaŭ per kinematografo en teatro, en ĉiuj semajnaj gazetoj en- kaj eksterlandaj —
@@ -228,16 +193,9 @@ Jen mi rakontos, kiamaniere tio okazis. Maĉjo petis sian kuraciston, ke li perm
 ”Mi scias,” li diris, ”ke en la reĝa parko estas belege, sed en plej bela ĝardeno ja estas enuige, se oni estas sola.”
 
 
-BONHUMORAJ RAKONTOJ
+Fine la kuracisto permesis, kaj helpe de la granda marŝalo li turnis sin al la palaca administracio, ke la zor-ganto de la reĝo dum ministro-kunsido petu por reĝo Maĉjo tri promenojn. Por ĉiu reĝa promeno la polico ricevis tri mil florenojn kaj la sanecoficejo barelon da Kolonja Akvo, — antaŭ ĉiu promeno ducent laboristoj kaj cent virinoj ĝisfunde purigis la ĝardenon. Oni bala-adis la tutan ĝardenon, pentradis la benkojn, surverŝadis ĉiujn aleojn per aroma akvo kaj forviŝadis polvon de arboj kaj folioj. La kuracistoj diris, ke malpureco kaj polvo malutilas la sanon. Polico gardis pri tio, ke dum la promeno de la reĝo ne estu strataj buboj, kiuj interpuŝiĝas kaj bruegas.
 
-
-Fine la kuracisto permesis, kaj helpe de la granda marŝalo li turnis sin al la palaca administracio, ke la zor-ganto de la reĝo dum ministro-kunsido petu por reĝo Maĉjo tri promenojn. Por ĉiu reĝa promeno la polico ricevis tri mil florenojn kaj la sanecoficejo barelon da Kolonja Akvo, — antaŭ ĉiu promeno ducent laboristoj kaj cent virinoj ĝisfunde purigis la ĝardenon. Oni bala-adis la tutan ĝardenon, pentradis la benkojn, surverŝadis ĉiujn aleojn per aroma akvo kaj forviŝadis polvon de arboj kaj folioj. La kuracistoj diris, ke malpureco kaj polvo malutilas la sanon. Polico gardis pri tio, ke dum la promeno de la reĝo ne estu strataj buboj, kiuj interpuŝi-
-
-ĝas kaj bruegas.
-
-Maĉjo amuziĝis bonege. Li surhavis ordinaran veston, do neniu sciis, ke li estas reĝo; cetere neniu povis eĉ nur pensi, ke reĝo venas en ordinaran ĝardenon. Reĝo Ma-
-
-ĉjo dufoje ĉirkaŭpromenis la tutan ĝardenon kaj petis preni lokon sur benko sur malgranda placo, kie infanoj amuziĝis. Sed apenaŭ li sidiĝis, malgranda knabineto alvenis kaj demandis:
+Maĉjo amuziĝis bonege. Li surhavis ordinaran veston, do neniu sciis, ke li estas reĝo; cetere neniu povis eĉ nur pensi, ke reĝo venas en ordinaran ĝardenon. Reĝo Maĉjo dufoje ĉirkaŭpromenis la tutan ĝardenon kaj petis preni lokon sur benko sur malgranda placo, kie infanoj amuziĝis. Sed apenaŭ li sidiĝis, malgranda knabineto alvenis kaj demandis:
 
 ”ĉu vi volas amuziĝi en nia rondo?”
 
@@ -246,9 +204,6 @@ Maĉjo amuziĝis bonege. Li surhavis ordinaran veston, do neniu sciis, ke li est
 knabinetoj kantis diversajn kantojn kaj turnis sin en rondo, kaj poste, atendante novajn amuzaĵojn, ŝi komencis interparoli:
 
 ”ĉu vi havas fratinon?”
-
-
-BONHUMORAJ RAKONTOJ
 
 
 ”Ne, mi ne havas.”
@@ -272,9 +227,6 @@ Reĝo Maĉjo rimarkis, ke vere li estas la sola knabo lu-danta en la rondo.
 ”Venu por amuziĝi kun ni,” diris la knabo, kaj Maĉjo atente lin rigardis.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Ah! ĝuste li estas Felek, la sama Felek, kun kiu Maĉjo jam de longe volis fari interkonatiĝon, — kaj ankaŭ Felek atente rigardis Maĉjon kaj laŭte kriis:
 
 ”Ah! kiel li similas al reĝo Maĉjo!”
@@ -283,18 +235,13 @@ Maĉjo hontis, ĉar ĉiuj komencis rigardi lin, do li volis plej rapide forkuri 
 
 — li falis kaj defrotis haŭton de sur genuo.
 
-Dum ministro-kunsido oni decidis malpermesi al la reĝo iri en la ĝardenon — oni ĉion faros, kion li volas, sed li ne povas viziti popularan ĝardenon, kie estas mal-
-
-ĝentilaj infanoj atakintaj kaj mokintaj lin. La reĝa honoro ne permesas tion. Maĉjo tre malĝojis, ĉar li longe pensis pri tiuj du amuzoj en la ĝardeno, kaj li rememoris la deziron de Irenka.
+Dum ministro-kunsido oni decidis malpermesi al la reĝo iri en la ĝardenon — oni ĉion faros, kion li volas, sed li ne povas viziti popularan ĝardenon, kie estas malĝentilaj infanoj atakintaj kaj mokintaj lin. La reĝa honoro ne permesas tion. Maĉjo tre malĝojis, ĉar li longe pensis pri tiuj du amuzoj en la ĝardeno, kaj li rememoris la deziron de Irenka.
 
 ”ŝi volas havi pupon grandan ĝis plafono.” Tiu penso maltrankviligis lin.
 
 ”Mi estas ja reĝo — do mi rajtas ordoni — dume oni devigas min aŭskulti ĉiujn. Mi lernas legi kaj skribi same kiel aliaj infanoj, mi devas lavi la orelojn, kolon kaj dentojn same kiel aliaj infanoj — kalkuloj estas por reĝo malfacilaj, kiel por ĉiuj infanoj — do pro kio mi estas reĝo?”
 
 Maĉjo ribelis, kaj dum aŭdienco li laŭte postulis, ke oni aĉetu la plej grandan pupon, kiun oni povas trovi en la mondo, kaj sendu ĝin al Irenka.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 ”Via reĝa moŝto bonvolu kompreni …” komencis la ministro-prezidanto.
@@ -314,9 +261,6 @@ La ministro-prezidanto mirigite rigardis Maĉjon, poste li ion notis en notlibro
 Neniu sciis, kion oni tie parolis, ĉar la konsiliĝo okazis malantaŭ fermita pordo, tamen oni decidis aĉeti pupon, kaj la komercministro kuradis du tagojn kaj rigardadis la plej grandajn pupojn; sed tiel grandega estis nenie. Tiam oni venigis ĉiujn industriistojn, kaj unu el ili devis fari la postulatan pupon en la daŭro de kvar semajnoj por alta prezo. Kiam la pupo estis preta, li ekspoziciis ĝin en magazenfenestro kun surskribo: kortega liveranto de Lia Reĝa Moŝto faris tiun ĉi pupon por Irenka, filino de fajrobrigada kapitano. La ĵurnaloj baldaŭ prezentis fotografaĵon de la fajrobrigado dum faj-restingado.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Multaj knabinoj skribis leterojn al la reĝo, ke ili deziras ankaŭ havi pupojn, sed la kortega sekretario tute ne legis tiujn leterojn, ĉar la ministro-prezidanto severe malpermesis tion. Antaŭ la fenestro staris tri tagojn po-polamaso, admiranta la reĝan donacon, kaj la kvaran tagon, danke al dispono de la polica prefekto, oni elpre-nis la pupon el la fenestro.
 
 Maĉjo ellitiĝis je la sepa horo, — li lavis kaj vestis sin mem, li mem purigis siajn botojn kaj pretigis sian liton.
@@ -325,9 +269,7 @@ Tian kutimon enkondukis la praavo de Maĉjo, la heroa reĝo Paŭlo la Venkinto. 
 
 Maĉjo sidis sur la trono kaj dentklakis pro malvarmo, kaj la ministroj rakontis al li, kio okazas en la tuta ŝtato
 
-… Tio estis tre malagrabla, ĉar ĉiuj informoj estis iel mal-gajaj. La eksterland-ministro rakontis, kiu koleras kaj kiu volas amikiĝi kun ilia ŝtato, — kaj Maĉjo preskaŭ nenion 17
-
-BONHUMORAJ RAKONTOJ
+… Tio estis tre malagrabla, ĉar ĉiuj informoj estis iel mal-gajaj. La eksterland-ministro rakontis, kiu koleras kaj kiu volas amikiĝi kun ilia ŝtato, — kaj Maĉjo preskaŭ nenion
 
 
 komprenis. La militministro elkalkuladis, kiom da forti-kaĵoj estas difektitaj, kiom da kanonoj detruitaj, kaj kiom da militistoj estas malsanaj.
@@ -343,22 +285,15 @@ Maĉjo lernus ankoraŭ pli volonte, se li povus solvi diversajn problemojn venin
 Se Maĉjo inventus tian vitron, li deklarus militon al ĉiuj reĝoj kaj en la antaŭtago de batalo li eksplodigus ĉiujn malamikajn pulvejojn. Li venkus la militon, ĉar nur li sola havus pulvon.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Sed kiam li pri tio demandis sian instruiston, ĉi tiu nur movis la brakon kaj nenion respondis. Alifoje Maĉjo demandis, ĉu estas eble, ke se patro mortas, li transdonu al filo sian prudenton. La patro de Maĉjo, Stefan la Prudenta, estis tre saĝa. Maĉjo sidas nun sur la sama trono kaj portas la saman kronon, kaj li devas ĉion lerni de la komenco. Se tia transdono estus ebla, li ricevus kune kun la krono la bravecon de sia praavo Paŭlo la Venkinto, la piecon de la avino kaj la tutan scion de la patro.
 
 Sed tiu ĉi demando ankaŭ ne trovis favoran akcepton.
 
-Longe, tre longe Maĉjo pensis, ĉu oni povus akiri tian ĉapon, kiu donus eblecon, ke ĝia portanto vidas ĉion, sed mem ne estas vidata. Li dirus ekzemple, ke li havas kapdoloron, oni permesus al li dumtage resti en lito, li bonege kaj sufiĉe dormus, kaj nokte li surmetus tian sor-
-
-ĉoĉapon kaj irus en la stratojn, li vizitus la urbon, rigar-dadus magazenajn ekspoziciojn, irus en teatron. Maĉjo estis nur unu fojon en teatro — dum parada spektaklo, kiam vivis ankoraŭ panjo kaj paĉjo — li preskaŭ nenion memoris, ĉar li estis tre malgranda, sed li scias, ke estis belege.
+Longe, tre longe Maĉjo pensis, ĉu oni povus akiri tian ĉapon, kiu donus eblecon, ke ĝia portanto vidas ĉion, sed mem ne estas vidata. Li dirus ekzemple, ke li havas kapdoloron, oni permesus al li dumtage resti en lito, li bonege kaj sufiĉe dormus, kaj nokte li surmetus tian sorĉoĉapon kaj irus en la stratojn, li vizitus la urbon, rigar-dadus magazenajn ekspoziciojn, irus en teatron. Maĉjo estis nur unu fojon en teatro — dum parada spektaklo, kiam vivis ankoraŭ panjo kaj paĉjo — li preskaŭ nenion memoris, ĉar li estis tre malgranda, sed li scias, ke estis belege.
 
 Se Maĉjo havus nevidebligan ĉapon, li elirus el la parko en la palacan korton kaj interkonatiĝus kun Felek, —
 
-li irus en la kuirejon por rigardi, kiamaniere oni prepa-ras la manĝaĵojn, en la stalon, kie estas la ĉevaloj, kaj en 19
-
-BONHUMORAJ RAKONTOJ
+li irus en la kuirejon por rigardi, kiamaniere oni prepa-ras la manĝaĵojn, en la stalon, kie estas la ĉevaloj, kaj en
 
 
 ĉiujn diversajn konstruaĵojn, kien eniri estas al li malpermesite.
@@ -366,9 +301,6 @@ BONHUMORAJ RAKONTOJ
 Estas eble strange, ke tiel multe da aferoj estas al reĝo malpermesitaj, do mi devas klarigi, ke en la reĝaj korte-goj estas tre severa etiketo. i signifas, ke tion kaj tion faris la antaŭaj reĝoj, kaj la nova reĝo ne rajtas fari ion alian, kaj se li volus ion ŝanĝi, li perdus estimon, kaj ĉiuj ĉesus obei kaj timi lin, ĉar tio signifas, ke li malestimas sian faman patron aŭ avon aŭ praavon. Mi jam diris, ke la matenmanĝo de reĝo Maĉjo daŭris dek ses minutojn kaj tridek kvin sekundojn, ĉar tio estis kutimo de lia avo, kaj ke en la tronsalono oni ne hejtis, ĉar tion deziris lia praavino antaŭ longe mortinta, kaj ja ne estas eble demandi, ĉu ŝi nun permesus la hejtadon.
 
 Iutempe reĝo povas ion ŝanĝi, sed tiam okazas longaj konferencoj pri tio. Reĝo Maĉjo estis en pli malbona situacio ol aliaj reĝoj, ĉar la etiketo ja estis destinita por maturaj homoj, kaj Maĉjo estis infano. Oni devis ion ŝanĝi — tial, anstataŭ bongusta biero, reĝo Maĉjo devis trinki fiŝoleon, kiu tute ne bongustis al li, tial anstataŭ legi ĵurnalojn, li trarigardis nur bildolibrojn. ĉio estus alia, se Maĉjo havus la saĝecon de sia patro kaj sorĉan ĉapon nevidebligan. Tiuokaze li estus vera reĝo, sed nun li ofte ne scias, ĉu ne estas pli bone naskiĝi kiel simpla knabo, vizitadi lernejon, elŝiri paĝojn el kajeroj kaj ĵeti ŝtonojn.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Fine venis al Maĉjo la ideo, ke kiam li lernis skribi, li skribos leteron al Felek — eble Felek respondos al li —
@@ -380,9 +312,6 @@ De tiu tempo li energie sin dediĉis al lernado. Tutajn tagojn li skribadis, kop
 Eble iu diros, ke pordomalfermo estas nenia laboro, do mi devas klarigi, ke tiuj ĉi lakeoj ĉiutage estis okupitaj dum kvin horoj. ĉiu prenis matene malvarman banon, poste frizisto kombis ilin, razis iliajn lipharojn kaj bar-bojn, la vesto devis esti purega, ke ne estu sur ĝi eĉ unu polvero, ĉar antaŭ tricent jaroj, kiam regis Henriko la Kolerema, okazis foje, ke de unu lakeo saltis pulo sur la reĝan sceptron, — tiun nezorgemulon la ekzekutisto senkapigis, kaj la kortega marŝalo apenaŭ evitis morton.
 
 De tiu tempo la inspektanto mem zorgis pri la pureco de la lakeoj, kiuj banitaj, vestitaj kaj puraj staris jam de la dekunua horo kaj sep minutoj en la koridoro kaj atendis ĝis la unua horo dek sep minutoj, por ke la ceremoniestro mem inspektu ilin. Ili devis bonege gardadi sian purecon, ĉar pro malbone butonumita butono minacis sesjara mallibereco, pro malbona kombado —
-
-
-BONHUMORAJ RAKONTOJ
 
 
 kvarjaraj severaj laboroj, pro ne sufiĉe lerta saluto —
@@ -403,9 +332,7 @@ Maĉjo, Reĝo.”
 
 Forte batis la koro de Maĉjo, kiam li vokis Felekon tra la barilo kaj transdonis al li sian leteron, kaj tre forte batis lia koro, kiam la sekvantan tagon li samvoje ricevis respondon.
 
-”Reĝo!” skribis Felek, ”mia paĉjo estas plotonestro en la kortega palaco kaj estas militista homo — mi tre volas esti en la reĝa ĝardeno. Mi estas, ho reĝo, fidela al vi kaj estas preta, iri por vi en akvon kaj fajron kaj ŝirmi vin 22
-
-BONHUMORAJ RAKONTOJ
+”Reĝo!” skribis Felek, ”mia paĉjo estas plotonestro en la kortega palaco kaj estas militista homo — mi tre volas esti en la reĝa ĝardeno. Mi estas, ho reĝo, fidela al vi kaj estas preta, iri por vi en akvon kaj fajron kaj ŝirmi vin
 
 
 ĝis mia lasta sangoguto. Kiomfoje vi bezonos mian hel-pon, vi nur fajfu, kaj mi tuj venos je via alvoko.
@@ -429,16 +356,9 @@ En la reĝa ĝardeno tre dense kreskis framboj, tie sin kaŝis reĝo Maĉjo kun 
 ĝuste faras tion, kion oni ordonas al mi, sed oni ordonas al mi nur enuigajn aferojn kaj malpermesas ĉion, kio estas agrabla.”
 
 
-BONHUMORAJ RAKONTOJ
+”Kiu do ordonas aŭ malpermesas ion al via reĝa moŝto?”
 
-
-”Kiu do ordonas aŭ malpermesas ion al via reĝa moŝ-
-
-to?”
-
-”La ministroj,” respondis Maĉjo. ”Kiam vivis mia paĉ-
-
-jo, mi faris tion, kion li ordonis.”
+”La ministroj,” respondis Maĉjo. ”Kiam vivis mia paĉjo, mi faris tion, kion li ordonis.”
 
 ”Nu, kompreneble, tiam vi estis en reĝa alteco, tron-heredonto, sed nun …”
 
@@ -457,9 +377,6 @@ Maĉjon mirigis tiu demando, sed ĉar li havis grandan fidon al Felek, li respon
 ”Kiam vi havos respondon por mi, vi ankaŭ ekfajfu!”
 
 ĝoje kriis Maĉjo.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 ”Oni ne fajfas je reĝo,” diris Felek, kolereme, ”mi donos kukolsignalon.”
@@ -483,9 +400,6 @@ Maĉjo nun agadis komune kun Felek, kvankam ili estis disigitaj per krado. Maĉj
 li plendadis pri sia soleco, kaj unufoje li eĉ diris al la militministro, ke li volonte ekzercus la militistan arton.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”ĉu vi eble konas iun plotonestron, kiu povas instrui min?”
 
 ”Estas tre laŭdinda celado de via reĝa moŝto, akiri pri-militajn sciojn, sed kial via instruisto devas esti plotonestro?”
@@ -496,9 +410,7 @@ La militministro sulkigis la brovojn kaj notis la reĝan postulon, — Maĉjo ek
 
 Sed okazis alia afero. En la venonta kunsido estis nur unu temo por interparoloj: tri ŝtatoj neatendite deklaris militon al reĝo Maĉjo.
 
-Milito! ne vane Maĉjo estis pranepo de kuraĝa Paŭlo la Venkinto: la sango ekbolis en li. Ho! se li nun havus vitron, bruligontan la malamikan pulvon de malproksime, kaj ĉapon nevidebligan. Maĉjo atendis ĝis la vespero, li atendis ĝis la sekvanta mateno, ĝis tagmezo — neniu sciigis lin pri tio. Pri la milito sciigis lin Felek. Kiam li antaŭe havis transdonotajn leterojn, li kukolis trifoje, nun li kukoladis eble centfoje, kaj Maĉjo komprenis, ke la nuna letero enhavas iun neordinaran novaĵon. Jam de longe ne estis milito, ĉar Stefan la Prudenta amike vivis kun najbaroj. Nun estis klare: la najbaroj profitis tion, ke 26
-
-BONHUMORAJ RAKONTOJ
+Milito! ne vane Maĉjo estis pranepo de kuraĝa Paŭlo la Venkinto: la sango ekbolis en li. Ho! se li nun havus vitron, bruligontan la malamikan pulvon de malproksime, kaj ĉapon nevidebligan. Maĉjo atendis ĝis la vespero, li atendis ĝis la sekvanta mateno, ĝis tagmezo — neniu sciigis lin pri tio. Pri la milito sciigis lin Felek. Kiam li antaŭe havis transdonotajn leterojn, li kukolis trifoje, nun li kukoladis eble centfoje, kaj Maĉjo komprenis, ke la nuna letero enhavas iun neordinaran novaĵon. Jam de longe ne estis milito, ĉar Stefan la Prudenta amike vivis kun najbaroj. Nun estis klare: la najbaroj profitis tion, ke
 
 
 Maĉjo estas malgranda kaj malsperta. Tiom pli multe Maĉjo volis pruvi, ke ili eraras, ke malgranda Maĉjo estas kapabla defendi sian landon. La letero de Felek anoncis: Tri ŝtatoj deklaris militon al via reĝa moŝto. Mia patro ofte promesis al mi ĝojtrinki ĉe la unua militanon-co.
@@ -508,15 +420,9 @@ Maĉjo atendis — li pensis, ke en la sama tago oni vokos lin por eksterordinar
 Maĉjo atendis ĝis la aŭdienca horo, sed kiam la ceremoniestro anoncis, ke estas kunvokita konferenco, Maĉjo trankvile, sed estante tre pala, decideme diris: ”Mi postulas, ke oni tuj voku la militministron en la tronsalonon.” La vorton ”milit” Maĉjo diris kun tia akcento, ke la ceremoniestro baldaŭ komprenis, ke Maĉjo jam ĉion scias.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”La militministro ĉeestos la kunsidon,” li respondis.
 
 ”Mi ankaŭ partoprenos la kunsidon,” rediris reĝo Maĉjo kaj direktis siajn paŝojn al la kunsidsalono.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Terure ridinda
@@ -527,12 +433,7 @@ En tiu domo troviĝis magazeno de tolaĵoj, kravatoj, bastonoj kaj galanteriaĵo
 
 ”Mi eksigos unu komizon — por kudrado de ĉemizo mi de nun pagos dek groŝojn malpli, por kudrado de kravato kvin groŝojn malpli — gratifikaĵon mi ne donos en la nuna jaro.” Kaj ŝtono falis el lia koro.
 
-De post tiu tago sep kudristinoj kaj tri kravatfaristinoj estis devigitaj ĉiutage labori unu horon pli longe por ricevi tiom da mono, kiom ili ricevis antaŭe. La magazenservisto ĝemis pri tio, ke li ne povos aĉeti tiun ĉi jaron kristarbeton por siaj infanoj. La forigita komizo malfermis propran magazenon de skribaĵoj, kaj post tri monatoj li estis perdinta la doton de sia edzino kaj la pro-29
-
-BONHUMORAJ RAKONTOJ
-
-
-pran kapitaleton; poste li ĉion vendis kaj forveturis Amerikon.
+De post tiu tago sep kudristinoj kaj tri kravatfaristinoj estis devigitaj ĉiutage labori unu horon pli longe por ricevi tiom da mono, kiom ili ricevis antaŭe. La magazenservisto ĝemis pri tio, ke li ne povos aĉeti tiun ĉi jaron kristarbeton por siaj infanoj. La forigita komizo malfermis propran magazenon de skribaĵoj, kaj post tri monatoj li estis perdinta la doton de sia edzino kaj la propran kapitaleton; poste li ĉion vendis kaj forveturis Amerikon.
 
 En la sama domo estis alia butiko — konsuma — kies posedanto ankaŭ ĉagreniĝis kaŭze de la plialtigo de la luprezo; poste li meditadis kaj fine decidis: ”Oni devas aĉeti panon kaj bulkojn ĉe bakisto liveranta pli malalt-preze, kvankam liaj bakaĵoj estas malpli bonaj — ankaŭ viandaĵojn kaj aliajn produktojn mi aĉetos ĉe pli malalt-preze liveranta vendisto — pri faruno kaj salspeco neniu havas perfektan konon, kaj lakto kun akvo havas same blankan koloron kiel pura lakto — komerco ne estas sentimentalaĵo …”
 
@@ -540,9 +441,7 @@ En la unua etaĝo alstrate loĝis advokato. Li ĉagreniĝis pro la plialtigo de 
 
 — al la instruistino mi pagos nur ses rublojn monate kaj al la instruisto de Zigusjo nur sep — mi ne plu abonos por la infanoj ”Mian ĵurnaleton,” mi konvs mian edzon pri tio, ke li ne plu abonu ”ŝanton,” ĵurnalon ne bezonatan de advokato, kaj en la vendejoj mi de nun marĉandos.”
 
-La sesrubla instruistino donis superprograman lecionon kaj forlasis unu senpagan lecionon, kiun ŝi donadis al la filo de la domgardisto. La instruisto de Zigusjo diris al sia patrino: ”Oni ne volis doni pli multe, sed ja 30
-
-BONHUMORAJ RAKONTOJ
+La sesrubla instruistino donis superprograman lecionon kaj forlasis unu senpagan lecionon, kiun ŝi donadis al la filo de la domgardisto. La instruisto de Zigusjo diris al sia patrino: ”Oni ne volis doni pli multe, sed ja
 
 
 sufiĉos por lernejpago, kaj rilate al vintra palto — mi ĝin tute ne bezonas, ĉar la vintro cetere estos varma.”
@@ -560,9 +459,6 @@ Kuracisto, loĝanta en la dua etaĝo, estis alvokita al malsanulo el supervistul
 Oficisto el maldekstra oficejo en la tria etaĝo decidis, ke oni ne estu Kato, kiam la vivkondiĉoj fariĝas pli kaj pli malfacilaj. Kion fari? Oni devas preni, se oni oferas. Ko-ruptumo — oni nomas ĝin malbela, sed ĝi havas multajn pozitivajn flankojn.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 En la teatro, — supre sur la galerio — unu loko estis neokupita — tie sidus loĝanto de malgranda ĉambreto en la kvara etaĝo, se la luprezo ne estus plialtigita.
 
 Oficejo troviĝanta en la dua korto, kaŭze de la plialtigo de la luprezo malpligrandigis sian kunlaborantaron, eksigante unu serviston. ĉi tiu havis tri infanojn. Perdin-te sian okupon, li fariĝis kolportisto de ĵurnalo, kaj perla-borante duonon malpli ol antaŭe, li cedis en sia ĉambro angulon por unu rublo monate al juna ĝardenisto. Sed la ĝardenisto ofte vizitis sian fratinon, kies infanoj malsaniĝis je difterito, kaj li alportis infekton al la infanoj de la kolportisto. Ili ĉiuj mortis en unu semajno.
@@ -572,9 +468,6 @@ En kela loĝejo de tiu ĉi domo loĝis botisto. En la sama momento, kiam li scii
 Kaj multaj, multaj ridindaj faktoj okazis; ili ne estas mil kaj eĉ ne tri mil — iliaj konsekvencoj tiriĝados ĝis la mondfino. Mortis tri infanoj de la servisto, do mortis la infanoj de tiuj ĉi infanoj, kaj iliaj nepoj kaj pranepoj, kiuj ludus iun rolon en la vivo de ceteraj homoj. Vi demandos: ”Kion ridindan tamen la aŭtoro vidas en tio?”
 
 Ho! multajn ridindaĵojn mi vidas en tio.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Pro la filino de la domposedanto, kiun paĉjo volas enkonduki en la mondon, pro la filo, kiu por fini studadon devas forveturi eksterlanden — laboradas kudristinoj loĝantaj en alia urboparto, tute ne konantaj ilin. Pro ili la meti-lernantoj havas malpli bonan nutraĵon, la infanoj de la magazenservisto ne havos kristarbon, la stu-dento-instruisto ne havos varman palton. Pro ili ĵurnaloj perdis abonantojn, la bonfara societo — unu membron, la teatro — unu aboninton en opero, la vendistinoj en bazaro — parton de profito, la filo de vidvino — oficon.
@@ -588,13 +481,7 @@ Por enkonduki en la mondon iun fraŭlinon, kaj por ke iu junulo finu studadon en
 senigata de honesto, de scienco, de saniga nutrado, eĉ de la vivo. Pro ili oni eligis knabinon el lernejo kaj enigis ŝin en baleton. Ridinda estis tio, ke nek la domposedanto nek liaj infanoj sciis pri tio; ili mirus, se oni scii-gus al ili, ke ie iu malriĉa kudristino ĉe la ekstremo de nia urbo sin oferas pro ilia bono.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Tio estas tiel nekredeble ridinda, ke eĉ humoristo ek-plorus sincere, kaj larmoj de humoristo eble estas plej ridindaj, ĉu ne?
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Tute ne sprita
@@ -603,29 +490,21 @@ Tio okazis foje en la ĉefa strato de granda kaj mult-homa urbo. Tiu urbo ne est
 
 Tra tiu ĉefa strato iris ĉifone vestita malgranda, proksimume dekjara knabo. Mi diras ”proksimume,” ĉar iu sciencisto, jam mortinta, rimarkigis, ke li nenie renkon-tis tiom da grizaj junuloj kaj kvindekjaraj infanoj kiel ĉe ni … Aliflanke oni renkontas junajn maljunulojn, malmulte respektindajn kaj tute ne grizharajn, ĉar ili ne havas harojn.
 
-Do tiu knabo iris tra la strato — se li nur irus, estus en tio nenia spritaĵo, sed li subite ŝanceliĝis kaj falis sur la pavimon, kiu kostis al la urba estraro kvardek rublojn por ĉiu kvadratmetro. Li falis kaj eĉ ne plu moviĝis, kaj krome, falante, lia kapo puŝegiĝis kontraŭ muro de domo. Kvankam nenio sprita estas en ĉi tio, tamen ĉiu 35
-
-BONHUMORAJ RAKONTOJ
+Do tiu knabo iris tra la strato — se li nur irus, estus en tio nenia spritaĵo, sed li subite ŝanceliĝis kaj falis sur la pavimon, kiu kostis al la urba estraro kvardek rublojn por ĉiu kvadratmetro. Li falis kaj eĉ ne plu moviĝis, kaj krome, falante, lia kapo puŝegiĝis kontraŭ muro de domo. Kvankam nenio sprita estas en ĉi tio, tamen ĉiu
 
 
-facile komprenos, ke la dekjara knabo devis forte kun-puŝiĝi kun la muro, por ke komencu elflui el lia disba-tita kapo ruĝa sango, same kiel ĝi elfluus el la kapo de ĉiu karulo, de Kazjo aŭ de Janko aŭ el la kapo de dotha-va solfilino, se ili, okaze falante sur la multekostan pavimon de la ĉefurbo, batus la kapon kontraŭ muro de domo. Preterpasantoj en tiu urbo, kiu ne estas Warszawa, ronde ĉirkaŭis la kuŝantan knabon, ĉar ĉiu el ili po-sedis interalie ankaŭ cerbon kaj langon, do tiu kolekti-
-
-ĝinta societo povis pensi kaj paroli — efektive oni komencis pensi kaj paroli.
+facile komprenos, ke la dekjara knabo devis forte kun-puŝiĝi kun la muro, por ke komencu elflui el lia disba-tita kapo ruĝa sango, same kiel ĝi elfluus el la kapo de ĉiu karulo, de Kazjo aŭ de Janko aŭ el la kapo de dotha-va solfilino, se ili, okaze falante sur la multekostan pavimon de la ĉefurbo, batus la kapon kontraŭ muro de domo. Preterpasantoj en tiu urbo, kiu ne estas Warszawa, ronde ĉirkaŭis la kuŝantan knabon, ĉar ĉiu el ili po-sedis interalie ankaŭ cerbon kaj langon, do tiu kolektiĝinta societo povis pensi kaj paroli — efektive oni komencis pensi kaj paroli.
 
 Iu sinjoro, kvankam li havis sur butono alpenditan pakaĵeton kun kuko, ekĝemis kaj diris: ”Kompatinda knabo!” Tiu ĉi sinjoro verŝajne havis ne nur kukon, cerbon kaj langon, sed ankaŭ koron, ĉar ne ĉiu kapablus, tiel baldaŭ aŭdigi sin kaj krom tio ekĝemi. ĉe similaj okazaĵoj homo perdas la kapablon pri logika argumen-tado — la koro sola povis dikti al lia parolo tiajn noblajn, amplenajn vortojn.
 
-”Malfeliĉa knabo!” ripetis tiu ĉi sinjoro kun koro en la brusto kaj kun kukpakaĵeto pendanta je butono. ĉi tiujn vortojn ne mi sola aŭdis, sed kvardek aliaj personoj, sta-rantaj pli proksime al tiu sinjoro. Li estis tiel modesta, ke li anonime tion diris, ne pro reklamo. Li eĉ post momento nerimarkite forŝoviĝis el la aro kaj malaperis inter la preterpasantoj de la ĉefa strato, kaj aliaj atestantoj jam 36
-
-BONHUMORAJ RAKONTOJ
+”Malfeliĉa knabo!” ripetis tiu ĉi sinjoro kun koro en la brusto kaj kun kukpakaĵeto pendanta je butono. ĉi tiujn vortojn ne mi sola aŭdis, sed kvardek aliaj personoj, sta-rantaj pli proksime al tiu sinjoro. Li estis tiel modesta, ke li anonime tion diris, ne pro reklamo. Li eĉ post momento nerimarkite forŝoviĝis el la aro kaj malaperis inter la preterpasantoj de la ĉefa strato, kaj aliaj atestantoj jam
 
 
 rericevis konscion pri la malĝojiga fakto kaj de kelkaj flankoj kune alkuris la malriĉan infanon kun ĝemetoj kaj kompatvortoj. Kaj jen — nova penso — iu diris: ”Eble la mizerulo svenis pro malsato!”
 
 ĉiu nova ideo, ĉiu nova vero aŭ kuraĝa hipotezo, an-taŭ ol ĝi estos akceptata de aliaj, antaŭ ol ĝin festos ba-talado aŭ briligos la venko, devas trairi mokadon kaj mallaŭdon de amaso, kio ankaŭ ne estas spritaĵo.
 
-”Li eble nur ŝajnigas esti malsana?” diris kuraĝe iu sinjoro, tenante unu manon en la poŝo kun monujo kaj du fingrojn en la poŝeto kun horloĝeto, ĉar inter la kolektiĝintaj homoj, havantaj koron kaj amon, povis trovi-
-
-ĝi fripono preta por profiti la kortuŝon de noblaj bonfa-rantoj kaj senigi lin ne nur de poŝhorloĝeto, sed ankaŭ de ora ĉeneto. — ”Li eble nur ŝajnigas?”
+”Li eble nur ŝajnigas esti malsana?” diris kuraĝe iu sinjoro, tenante unu manon en la poŝo kun monujo kaj du fingrojn en la poŝeto kun horloĝeto, ĉar inter la kolektiĝintaj homoj, havantaj koron kaj amon, povis troviĝi fripono preta por profiti la kortuŝon de noblaj bonfa-rantoj kaj senigi lin ne nur de poŝhorloĝeto, sed ankaŭ de ora ĉeneto. — ”Li eble nur ŝajnigas?”
 
 Kompreneble! Kiomfoje malvarma kalkulo elŝiras el nia brusto kompatsopiron — kiomfoje malnobla ruzaĵo malvarmigas sur niaj lipoj varman spiron de tiuj belegaj vortoj, elirantaj el la buŝo de sinjoro kun kuko je butono.
 
@@ -634,9 +513,6 @@ Kompreneble! Kiomfoje malvarma kalkulo elŝiras el nia brusto kompatsopiron — 
 Post silento malbonaŭgura iu voĉo aŭdiĝis: ”Kion do vi diras? Li ne ŝajnigas — li ja sangas.”
 
 ”Ba!” diris la konsiderema sinjoro, tenante sian oran ĉeneton — kaj kun mallaŭda rideto forlasis la aron.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Subite iu ekfrapis min sur la dorson, poste mi eksentis doloron en flanko, kaj kiam mi iom trankviliĝis, mi ekvidis ĉifonulon, klinitan super la knabo.
@@ -653,9 +529,7 @@ La knabo estas ŝtelita filo — malespera patro ruiniĝas per sensukcesa serĉa
 
 ”Rapida Helpo”. La kurteno malsupreniĝas.
 
-Mi vekiĝis el la revado. Ho, vi mokuloj, kiuj diras, ke homo estas nur bestviro aŭ bestvirino aŭ egoisto, se vi aŭdus, kia indignobrueto movis tiun ĉi aron, kiam ĝi 38
-
-BONHUMORAJ RAKONTOJ
+Mi vekiĝis el la revado. Ho, vi mokuloj, kiuj diras, ke homo estas nur bestviro aŭ bestvirino aŭ egoisto, se vi aŭdus, kia indignobrueto movis tiun ĉi aron, kiam ĝi
 
 
 vidis, ke ĉifonulo volis enverŝi al malfeliĉa knabo bran-don en la buŝon.
@@ -671,9 +545,6 @@ Kio fariĝis kun li, mi ne diros — ĉar estas en tio neniu spritaĵo — mi vo
 Cetere mi povas eĉ diri: ”Rapida Helpo” veturigis lin al hospitalo, kie mankis loko, tamen oni lokis lin. Oni diras, ke pro malsato li erare manĝis alumetkapetojn.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 For la pureco!
 
 Kiel vi povas tiel malzorgi vian veston?” oni demandis min.
@@ -684,50 +555,29 @@ Kiel vi povas tiel malzorgi vian veston?” oni demandis min.
 
 Kiam vespere, enuigita, mi en la lito trarigardis ĵurnalojn, mi trovis artikolojn, kiuj postulas pedantan purecon, artikolojn, kiuj avertas pri plej teruraj efikoj al ho-mo, ĉiurilate malzorganta purecon.
 
-”Ho,” mi ekpensis, ”mi provos!” kaj mi iris al botisto, al tajloro, al ĉapelisto, al gantisto, al frizisto, — oni me-zuradis min ĉiuflanke, oni turnis, returnis, puŝis min, oni ordonis al mi iri, kapon levi kaj mallevi, salteti, kaŭri, mallonge: oni turmentadis min terure. Krome oni for-prenis de mi tiom da tempo, ke mi treege malzorgis miajn okupojn, kio estis tiom pli fatala, ke miaj elspezoj en tiu malfeliĉa monato triobliĝis. Fine mi estis vestita tiel, ke, komparante min kun multaj rondirantaj malsa-
-
-ĝuloj en stratoj (legu: elegantuloj), mi rimarkis nenian diferencon; por kompletigi mian veston, mi eĉ metis 40
-
-BONHUMORAJ RAKONTOJ
+”Ho,” mi ekpensis, ”mi provos!” kaj mi iris al botisto, al tajloro, al ĉapelisto, al gantisto, al frizisto, — oni me-zuradis min ĉiuflanke, oni turnis, returnis, puŝis min, oni ordonis al mi iri, kapon levi kaj mallevi, salteti, kaŭri, mallonge: oni turmentadis min terure. Krome oni for-prenis de mi tiom da tempo, ke mi treege malzorgis miajn okupojn, kio estis tiom pli fatala, ke miaj elspezoj en tiu malfeliĉa monato triobliĝis. Fine mi estis vestita tiel, ke, komparante min kun multaj rondirantaj malsaĝuloj en stratoj (legu: elegantuloj), mi rimarkis nenian diferencon; por kompletigi mian veston, mi eĉ metis
 
 
 tuberozon aŭ alian floreton en la refaldaĵon de mia surtuto.
 
-Triumfo estis videbla. Multaj homoj, ĝis nun atendin-taj mian saluton, komencis saluti min kiel unuaj, kelkaj, kies nomojn mi eĉ ne konis, haltis, kore premante mian manon, kaj demandis pri la adresoj de tiuj specialistoj, kiuj preparis por mi la vestaron. Mi ankaŭ ŝanĝiĝis: mia irmaniero fariĝis pli malrapida, la movoj pli seriozaj, la tuta persono pli majesta. Mi komencis rigardi kun ia ka-
+Triumfo estis videbla. Multaj homoj, ĝis nun atendin-taj mian saluton, komencis saluti min kiel unuaj, kelkaj, kies nomojn mi eĉ ne konis, haltis, kore premante mian manon, kaj demandis pri la adresoj de tiuj specialistoj, kiuj preparis por mi la vestaron. Mi ankaŭ ŝanĝiĝis: mia irmaniero fariĝis pli malrapida, la movoj pli seriozaj, la tuta persono pli majesta. Mi komencis rigardi kun ia kaŝita malŝatemo la homojn malzorgeme vestitajn — disvolviĝis en mi perceptemo kaj ia scivolo tiurilate — mia lingvo riĉiĝis per novaj, ĝis nun de mi tute ne konataj vortoj, ĉar mi konis nur la esprimojn pantalono, veŝto, surtuto, palto, ne havante ideon pri la ekzisto de granda nomtrezorejo de diversaj vestopartoj.
 
-ŝita malŝatemo la homojn malzorgeme vestitajn — disvolviĝis en mi perceptemo kaj ia scivolo tiurilate — mia lingvo riĉiĝis per novaj, ĝis nun de mi tute ne konataj vortoj, ĉar mi konis nur la esprimojn pantalono, veŝto, surtuto, palto, ne havante ideon pri la ekzisto de granda nomtrezorejo de diversaj vestopartoj.
-
-Mi konformigis, kompreneble, al mia vesto ankaŭ la eksteran aspekton de mia loĝejo, de miaj edzino kaj infanoj. ĉie regis pureco kaj bongusteco. Mi malpermesis al miaj infanoj amuziĝi kun la infanoj de la meblisto, ĉar kiom da infektiloj tiuj malpuruloj povus alporti en la organismon de niaj idoj! Mi malpermesis al mia plej aĝa filo instrui la filon de la domgardisto, ĉar kvankam li estas kapabla kaj diligenta knabo, li detruos aŭ povos detrui la novajn kovrilojn de niaj mebloj aŭ malpurigi per koto la ĉambrojn. Mi mem ne respondis al la amikaj salutoj de la domgardisto, de la sendito kaj de ĉiuj, kiujn 41
-
-BONHUMORAJ RAKONTOJ
+Mi konformigis, kompreneble, al mia vesto ankaŭ la eksteran aspekton de mia loĝejo, de miaj edzino kaj infanoj. ĉie regis pureco kaj bongusteco. Mi malpermesis al miaj infanoj amuziĝi kun la infanoj de la meblisto, ĉar kiom da infektiloj tiuj malpuruloj povus alporti en la organismon de niaj idoj! Mi malpermesis al mia plej aĝa filo instrui la filon de la domgardisto, ĉar kvankam li estas kapabla kaj diligenta knabo, li detruos aŭ povos detrui la novajn kovrilojn de niaj mebloj aŭ malpurigi per koto la ĉambrojn. Mi mem ne respondis al la amikaj salutoj de la domgardisto, de la sendito kaj de ĉiuj, kiujn
 
 
-oni ne povas resaluti, ne riskante tute perdi societajn interrilatojn — mi tion faris pro facile kompreneblaj kaŭ-
+oni ne povas resaluti, ne riskante tute perdi societajn interrilatojn — mi tion faris pro facile kompreneblaj kaŭzoj: la ĉapelo fuŝformiĝas per ofta depreno, la kolumo kaj kravato ĉifiĝas pro ofta kapklino. Dum la unuaj tagoj estis al mi iel strange, sed danke al miaj novaj kona-toj, konformigitaj al la nova vestaro, mi kutimiĝis al multe da novaj objektoj: kelnerojn mi igis ne plu nomi min ”sinjoro,” kaj mi nomis ilin mallonge ”ci,” al almo-zuloj mi ne donis moneron, ĉar pro ofta elpreno de la monujo eluziĝas la poŝoj. Miaj interrilatoj kun la edzino kaj infanoj ankaŭ malvarmiĝis: pro nenia trezoro de la mondo mi prenus la infanon sur miajn genuojn, ĉar tio malutilas la pantalonon, krome — infano povas havi malpurajn manojn; mi klopodis ne proksimiĝi al la edzino por ne ĉifi ŝian belan matenveston kaj mian kravaton. Mi fariĝis furioza, kiam io minacis la purecon aŭ tutecon de mia vesto, kio malgraŭ ĉiu singardemo ofte okazis.
 
-zoj: la ĉapelo fuŝformiĝas per ofta depreno, la kolumo kaj kravato ĉifiĝas pro ofta kapklino. Dum la unuaj tagoj estis al mi iel strange, sed danke al miaj novaj kona-toj, konformigitaj al la nova vestaro, mi kutimiĝis al multe da novaj objektoj: kelnerojn mi igis ne plu nomi min ”sinjoro,” kaj mi nomis ilin mallonge ”ci,” al almo-zuloj mi ne donis moneron, ĉar pro ofta elpreno de la monujo eluziĝas la poŝoj. Miaj interrilatoj kun la edzino kaj infanoj ankaŭ malvarmiĝis: pro nenia trezoro de la mondo mi prenus la infanon sur miajn genuojn, ĉar tio malutilas la pantalonon, krome — infano povas havi malpurajn manojn; mi klopodis ne proksimiĝi al la edzino por ne ĉifi ŝian belan matenveston kaj mian kravaton. Mi fariĝis furioza, kiam io minacis la purecon aŭ tutecon de mia vesto, kio malgraŭ ĉiu singardemo ofte okazis.
+Foje la domgardisto surŝprucigis per akvo mian novan, helan, someran palton kun silkaj refaldaĵoj. Mi insultis lin, dirante, ke li estas malsaĝulo, idioto, stultulo, kaj kiam la kompatindulo, volante senkulpigi sin, buŝo-tuŝis mian manikon kaj lasis sur ĝi guteton da humida tabako, mi venigis policiston kaj ordonis, ke li metu la domgardiston en malliberejon. Alifoje iu blinda maljunulo surpaŝis mian elegantan ĉaman boteton, — mi forsendis lin al ĉiuj diabloj. Mi fariĝis eksterordinare iriti-
 
-Foje la domgardisto surŝprucigis per akvo mian novan, helan, someran palton kun silkaj refaldaĵoj. Mi insultis lin, dirante, ke li estas malsaĝulo, idioto, stultulo, kaj kiam la kompatindulo, volante senkulpigi sin, buŝo-tuŝis mian manikon kaj lasis sur ĝi guteton da humida tabako, mi venigis policiston kaj ordonis, ke li metu la domgardiston en malliberejon. Alifoje iu blinda maljunulo surpaŝis mian elegantan ĉaman boteton, — mi for-42
-
-BONHUMORAJ RAKONTOJ
-
-
-sendis lin al ĉiuj diabloj. Mi fariĝis eksterordinare iriti-
-
-ĝema: eĉ la plej malgranda bagatelo perdigis al mi la sa-
-
-ĝon. Iu virino venis foje al mi: ŝi estis funebre vestita kaj petis min pri helpo. Mi tute ne sciis, kion ŝi deziris, kvankam ŝi longe parolis kaj ploris maldolĉe. ĉu vi scias, kial mi ne aŭdis ŝin? Tial ke mi rimarkis sur la tapiŝo ŝian kotan piedsignon: ŝi venis dum pluvo sengaloŝe.
+ĝema: eĉ la plej malgranda bagatelo perdigis al mi la saĝon. Iu virino venis foje al mi: ŝi estis funebre vestita kaj petis min pri helpo. Mi tute ne sciis, kion ŝi deziris, kvankam ŝi longe parolis kaj ploris maldolĉe. ĉu vi scias, kial mi ne aŭdis ŝin? Tial ke mi rimarkis sur la tapiŝo ŝian kotan piedsignon: ŝi venis dum pluvo sengaloŝe.
 
 Alifoje mi interesiĝus pri ŝia malĝojo, ĉar mi treege kom-patas plorantajn virinojn, tamen tiufoje mi nur diris:
 
 ”Bone, mi notos vian adreson kaj sciigos vin pri la rezul-to.” Kiam ŝi komencis denove peti min kaj danki, mi al-diris: ”Mi certe ne promesas, sed mi ĉion faros, kio estos ebla al mi.”
 
-Mi kondutis kiel homo vere amanta purecon — mi estis fiera pri mi. Mi agis kiel iu tromemfida prezidanto de iu institucio, kiam antaŭ kelkaj jaroj mi petis lin pri helpo por iu malfeliĉa familio: li finaŭskultis min, promesis ĉion fari, li notis la adreson kaj donis al mi la manon. Kaj kiam la sekvantan tagon mi revenis por ricevi respondon, li ne rekonis min, li perdis la adreson kaj tute ne memoris, pri kio mi lin petis. Okazis, ke infanoj pilkludante dispecigis iun multekostan aĵeton, kio kaŭ-
+Mi kondutis kiel homo vere amanta purecon — mi estis fiera pri mi. Mi agis kiel iu tromemfida prezidanto de iu institucio, kiam antaŭ kelkaj jaroj mi petis lin pri helpo por iu malfeliĉa familio: li finaŭskultis min, promesis ĉion fari, li notis la adreson kaj donis al mi la manon. Kaj kiam la sekvantan tagon mi revenis por ricevi respondon, li ne rekonis min, li perdis la adreson kaj tute ne memoris, pri kio mi lin petis. Okazis, ke infanoj pilkludante dispecigis iun multekostan aĵeton, kio kaŭzis al mi dusemajnan malsanon.
 
-zis al mi dusemajnan malsanon.
-
-Mi havis nun malpli multajn amuzojn ol antaŭe: mi dumjare nur dufoje vizitis teatron, ĉar mi rezignis pri la malkaraj lokoj, kie apud mi povus sidi iu malzorgeme 43
-
-BONHUMORAJ RAKONTOJ
+Mi havis nun malpli multajn amuzojn ol antaŭe: mi dumjare nur dufoje vizitis teatron, ĉar mi rezignis pri la malkaraj lokoj, kie apud mi povus sidi iu malzorgeme
 
 
 vestita homo. Pro tiu sama kaŭzo mi malofte veturis per tramo.
@@ -738,21 +588,13 @@ Tamen okazis male: mi malgrasiĝis, la laboro fariĝis al mi peniga, kaj mi kome
 
 Tamen nenio helpis al mi. La penso pri sinmortigo ne forlasis min unu momenton — kaj mi komencis serĉi revolveron, hereditan iam de mia avo. Mia malfeliĉa edzino, pala kaj malĝoja, miaj kompatindaj infanoj tute ne sciis, kia orfeco minacis ilin, kiam mi kun flamanta okulo enkuris la subtegmenton por trovi tie inter malnovaĵoj la mortigilon. Mi vane disĵetis la enhavon de tri korboj kaj du pakaĵoj, kiam subite mia rigardo falis sur malnovan senkoloriĝintan kravaton, sur foruzitan pantalonon kaj malnovajn botojn kun eluzitaj kalkanumoj.
 
-Mi longe rigardis la aĵojn. En la unua momento mi sentis furiozon, kiel mi povis iam vesti mian korpon per si-44
-
-BONHUMORAJ RAKONTOJ
-
-
-milaj malnovaĵoj — poste mi pripensis: kiel mi aspektus en tio? Kaj jen subite iu kortuŝo ekregis mian animon.
+Mi longe rigardis la aĵojn. En la unua momento mi sentis furiozon, kiel mi povis iam vesti mian korpon per similaj malnovaĵoj — poste mi pripensis: kiel mi aspektus en tio? Kaj jen subite iu kortuŝo ekregis mian animon.
 
 Estas ja miaj malnovaj amikoj, senrevene perditaj kaj tial tiom pli amindaj. Mi ilin enpakis en ĵurnalon kaj sekre-te portis en mian ĉambron kune kun la revolvero fine trovita. Mi pasigis teruran nokton. Mia tuta pasinteco stariĝis antaŭ miaj okuloj, kiam mi kun pala vizaĝo staris antaŭ spegulo kun revolvero en mano. Mi komencis analizi ĉiun mian agon, ĉiun penson, kaj kiam la suno ĵetis sian unuan radion en la ĉambron, mi surmetis miajn malnovajn vestaĵojn kaj eliris sur la straton. De post tiu tempo pasis du semajnoj.
 
 Legantoj! Vi kredu al mi aŭ ne — mi ree estas sana kaj feliĉa, mia edzino rericevis sian bonan humoron, la infanoj sian antaŭan gajecon kaj mi — la volon vivi kaj labori. Mi ree salutas la domgardiston, miaj infanoj gaje amuziĝas kun la petoluloj de la meblisto, homoj (?!!) malpli ofte honoras min per salutoj — la teatron mi ĝuas nur el la malkaraj lokoj — mallonge: mi sentas min tiel bone kiel jam de longe ne plu …
 
 Mi do krias ĝoje per laŭta voĉo: ”For la pureco!”
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Kelnero estas homo
@@ -786,9 +628,6 @@ Post unu momento la sukerujo aperis.
 ”Mi petas pardonon,” li diris.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”Kiel do, vi petas pardonon?”
 
 ”Jes, mi petas pardonon.”
@@ -797,9 +636,7 @@ En la unua momento mi pensis, ke li mokas min.
 
 ”ĉu vi jam riĉiĝis? ĉu vi eble aĉetos domon?” mi demandis.
 
-Mi severe lin rigardis, kaj imagu, mi unuafoje rimarkis, ke li estas proksimume tridekjara viro kun grizetaj haroj — li havas nazon, okulojn kaj orelojn. ĉu tio estas stranga? Ho, tute ne, kvankam tio iom mirigis min, ke kelnero havas ion plian ol manojn por donadi tagman-
-
-ĝon kaj ricevadi pagon kun trinkmono. Sed, kio estis pli stranga, mi rimarkis, ke la kelnero havas malgajan vizaĝ-
+Mi severe lin rigardis, kaj imagu, mi unuafoje rimarkis, ke li estas proksimume tridekjara viro kun grizetaj haroj — li havas nazon, okulojn kaj orelojn. ĉu tio estas stranga? Ho, tute ne, kvankam tio iom mirigis min, ke kelnero havas ion plian ol manojn por donadi tagmanĝon kaj ricevadi pagon kun trinkmono. Sed, kio estis pli stranga, mi rimarkis, ke la kelnero havas malgajan vizaĝ-
 
 esprimon.
 
@@ -818,9 +655,6 @@ esprimon.
 Vidu gesinjoroj — kelnero havas ne nur nazon, okulojn — li havas ankaŭ edzinon.
 
 Nu, ke li havas orelojn, tio ja estas natura, por ke li aŭdu, kiam oni sonorigas je li, ke li havas nazon kaj okulojn — oni eĉ tion povas kompreni, sed pro kio, je diablo, kelnero bezonas edzinon kaj infanojn?
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Mi decidis, klarigi tiun ĉi aferon kaj demandis:
@@ -856,9 +690,6 @@ Mi rigardis kaj rigardis … mi larĝe malfermis la okulojn — li estis la sama
 ”Kvar rublojn ĉiumonate li kostas al mi.”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Kulereto forŝoviĝis el miaj manoj kaj falis brue sur la marmoran tablo-platon …
 
 ”Aha! kion vi krome volis diri al mi? Kiel nomas vin viaj infanoj?”
@@ -879,9 +710,7 @@ Poste mi eksciis, ke li o,bservas la gastojn, el kiuj iuj estas malbonedukitaj, 
 
 kiun li legis, li ne dormis poste dum multaj noktoj, tiel li havis la kapon plena de tiuj belegaj divershistorioj, —
 
-li diris al mi, ke ofte estas malagrable al li doni al gasto kelkajn frandaĵojn, ĉar li konas la postkulisajn sekretojn de la restoracio de sia ĉefo, ke inter la kelneroj estas in-trigoj, li scias, ke en nia lando regas malklereco kaj tial 49
-
-BONHUMORAJ RAKONTOJ
+li diris al mi, ke ofte estas malagrable al li doni al gasto kelkajn frandaĵojn, ĉar li konas la postkulisajn sekretojn de la restoracio de sia ĉefo, ke inter la kelneroj estas in-trigoj, li scias, ke en nia lando regas malklereco kaj tial
 
 
 estas tiel malbone vivi ĉe ni, ke se li havus kapitalon, li aĉetus kalandrilon kaj vivus trankvile.
@@ -892,17 +721,12 @@ ke kelnero havas patrinon, patron, ke li povas havi fratojn kaj fratinojn, do pa
 
 — el malgrandaj ĵurnalinformoj ni scias, ke ne nur doktoroj, inĝenieroj, juĝistoj aŭ komercistoj scias ami kaj malami.
 
-Do kelnero estas homo! kio — se ĝi ne estas renverso-ta per diskuto — devas okazigi, ke en restoracioj kaj en sukeraĵejoj apud tabulo kun surskribo: ”Ne kraĉu sur plankon!” aŭ ”Oni petas depreni la ĉapelojn!” oni stari-gu tabulon kun la surskribo ”Kelnero estas homo!” Tio 50
-
-BONHUMORAJ RAKONTOJ
+Do kelnero estas homo! kio — se ĝi ne estas renverso-ta per diskuto — devas okazigi, ke en restoracioj kaj en sukeraĵejoj apud tabulo kun surskribo: ”Ne kraĉu sur plankon!” aŭ ”Oni petas depreni la ĉapelojn!” oni stari-gu tabulon kun la surskribo ”Kelnero estas homo!” Tio
 
 
 tamen estas sufiĉe riska paŝo, ĉar diablo ne dormas. Eble montriĝos poste, ke pordisto, fiakristo, laboristo, servistino, kudristino, kantistino ankaŭ estas homoj. Tio devus fatale influi la societajn interrilatojn, sed ne estas plu mia tasko, disvolvi tiel komplikitan aferon. Mi travivis sufiĉe multajn kortuŝojn, antaŭ ol mi mem komencis paroli al mia kelnero: ”Bonan tagon, sinjoro; mi dan-kas, ĝis revido, sinjoro.”
 
 Tio kostis al mi fortojn kaj sanon, sed oni ja diras, ke alkutimiĝo estas dua naturo.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Profesio
@@ -911,12 +735,7 @@ Kutime oni diras: sinjoro Wladislaw estas advokato, sinjoro Piotr estas ęmiisto
 
 Sed plej ofte oni devus diri: vivcirkonstancoj faris sinjoron Wladislawon advokato, cirkonstancoj de la vivo faris sinjoron Piotron ęmiisto, danke al diversaj kondiĉoj sinjoro Kazimir fariĝis instruisto. Estas kvazaŭ la samo, tamen ne tute — mi baldaŭ klarigos la aferon. Mi ne scias, leganto, kiu vi estas, supozu, ke vi estas advokato, kaj vi nur ekpensu, ekkonsideru kaj respondu: ĉu vi devis fariĝi advokato, kaj kiaj cirkonstancoj influis tion, ke vi fariĝu advokato? ĉu vi ne povus esti hodiaŭ telegrafisto, muzikinstruisto, funebra entreprenisto, im-posta inspektoro, dentisto, agronomo, akuŝisto, tram-kontrolisto, bierfabrikanto, tanisto aŭ hotelposedanto?
 
-ĉu senkonsidere al pozicio kaj al bonstato de viaj gepatroj, al geografia larĝeco kaj al vivcirkonstancoj vi fariĝus tio, kio vi estas? ĉu vi, se vi naskiĝus en apudmara malriĉa familio, nun ne estus maristo kaj ne ĉasus balenojn, anstataŭ stari en juĝejoj, petskribadi, kuradi al notarioj kaj al juĝaj ekzekutistoj? ĉu vi, se via patro havus kon-52
-
-BONHUMORAJ RAKONTOJ
-
-
-suman butikon aŭ botistan metiejon, tiukaze ne estus kalandril-posedanto, aŭ kelnero en restoracio, aŭ mun-tisto en iu ferfabriko?
+ĉu senkonsidere al pozicio kaj al bonstato de viaj gepatroj, al geografia larĝeco kaj al vivcirkonstancoj vi fariĝus tio, kio vi estas? ĉu vi, se vi naskiĝus en apudmara malriĉa familio, nun ne estus maristo kaj ne ĉasus balenojn, anstataŭ stari en juĝejoj, petskribadi, kuradi al notarioj kaj al juĝaj ekzekutistoj? ĉu vi, se via patro havus konsuman butikon aŭ botistan metiejon, tiukaze ne estus kalandril-posedanto, aŭ kelnero en restoracio, aŭ mun-tisto en iu ferfabriko?
 
 Leganto kuracisto! Se via patrino siatempe estus estinta unua baletistino sur scenejo, ĉu vi nun ne saltus en baleto, anstataŭ esplorfrapi ventrojn kaj skribi: oleum ricini?
 
@@ -929,9 +748,6 @@ Mi portis foje mian palton al ŝmul Igla.
 ”Kion vi volas havi el tiu truriĉa sako?” li demandis min ironie.
 
 ”Mi volas, ke vi pretigu al mi novan palton.”
-
-
-BONHUMORAJ RAKONTOJ
 
 
 ”Nu, nu — venu, sinjoro, post tri tagoj.”
@@ -952,9 +768,7 @@ Mi venis post tri tagoj.
 
 Kion mi faris kun la dua poŝo? Mi ĝin kunkudris. ĉe tute nova palto ĉiam estas du poŝoj, kaj vi havos unu. Nu?”
 
-Diru, kion vi volas — en tiu ĉi laboro estis inspiro kaj en la rakontmaniero — entuziasmo; ĉar ŝmul Igla estas flikisto, ĉar, ĉu li naskiĝus en varmega sablaro de Saha-ra, ĉu apud glaciaro de Grenlando, li estus flikisto. Se lia patro estus bankisto, ŝmul ankaŭ estus flikisto: li flikus sian heraldikon, li flikus sian mankon je aristokrata sin-tenado, li flikus sian malbonan elparolon per modaj 54
-
-BONHUMORAJ RAKONTOJ
+Diru, kion vi volas — en tiu ĉi laboro estis inspiro kaj en la rakontmaniero — entuziasmo; ĉar ŝmul Igla estas flikisto, ĉar, ĉu li naskiĝus en varmega sablaro de Saha-ra, ĉu apud glaciaro de Grenlando, li estus flikisto. Se lia patro estus bankisto, ŝmul ankaŭ estus flikisto: li flikus sian heraldikon, li flikus sian mankon je aristokrata sin-tenado, li flikus sian malbonan elparolon per modaj
 
 
 francaj elturniĝoj — sed li flikus; ĉar ne vivcirkonstancoj faris lin flikisto, sed li tia estas. Se al ŝmul Igla iu dirus:
@@ -973,15 +787,11 @@ Imagu, ke la fama komponisto Grieg, la kantisto Resz-ke aŭ la verkisto Ibsen ha
 
 ”danke al miaj nomo, influo kaj riĉeco vi povas okupi tute alian postenon en la mondo.”
 
-”Paĉjo, permesu al mi resti kamentubisto, aŭ mi fari-
-
-ĝos drinkema kaj pafos en mian kapon.”
+”Paĉjo, permesu al mi resti kamentubisto, aŭ mi fariĝos drinkema kaj pafos en mian kapon.”
 
 Kaj imagu, ke la patro permesas al la filo, fariĝi kamentubisto.
 
-Mi estas profunde konvinkita, ke tiu ĉi junulo fariĝus unu el la plej feliĉaj homoj sub la suno. Li enmetus sian tutan inteligentecon hereditan de la patro en la puriga-don de kamentuboj — li pripensus novan specon de ba-lailoj, novan manieron por enigado en kamentubojn, li elpensus specialan ŝtofon por kamentubista vesto, li aranĝus orkestron kaj kamentubistan klubon, li fariĝus prezidanto de speciala kaso por vidvinoj kaj orfoj de kamentubistoj, li nobligus la kamentubistan metion en 55
-
-BONHUMORAJ RAKONTOJ
+Mi estas profunde konvinkita, ke tiu ĉi junulo fariĝus unu el la plej feliĉaj homoj sub la suno. Li enmetus sian tutan inteligentecon hereditan de la patro en la puriga-don de kamentuboj — li pripensus novan specon de ba-lailoj, novan manieron por enigado en kamentubojn, li elpensus specialan ŝtofon por kamentubista vesto, li aranĝus orkestron kaj kamentubistan klubon, li fariĝus prezidanto de speciala kaso por vidvinoj kaj orfoj de kamentubistoj, li nobligus la kamentubistan metion en
 
 
 la tuta mondo, kolegoj admirus lin, posteuloj rememo-rus lin estime.
@@ -992,17 +802,12 @@ Se li fariĝus komponisto, oni laŭdus lin duonvoĉe, ĝis kiam iu kuraĝulo kri
 
 Do vi bone komprenas, kial mi mire aŭdas, kiam iu parolas pri si, ke li estas tio aŭ alio, kiam mi sub ies vi-zitbileto trovas surskribon: estas aŭ estis tio kaj alio. Mi mem al demando: ”Pri kio vi okupiĝas, estimata sinjoro?” ĉiam respondas: ”La vivkondiĉoj implikis min en la felietonan reton,” sed mi neniam diras: ”Mi estas humoristo.”
 
-Nun mi turnas min al gepatroj. Aŭskultu! Se vi havas malgrandajn infanojn, klopodu ekscii, kio ili volas esti, klopodu disvoli en ili ian celadon. Gepatroj! se viaj infanoj estas plenaĝaj, ne malhelpu ilin en iliaj intencoj. Se via Janek de sia junaĝo ne kuracis muŝojn, orfiŝetojn, 56
-
-BONHUMORAJ RAKONTOJ
+Nun mi turnas min al gepatroj. Aŭskultu! Se vi havas malgrandajn infanojn, klopodu ekscii, kio ili volas esti, klopodu disvoli en ili ian celadon. Gepatroj! se viaj infanoj estas plenaĝaj, ne malhelpu ilin en iliaj intencoj. Se via Janek de sia junaĝo ne kuracis muŝojn, orfiŝetojn,
 
 
 katojn, — se li ne distranĉas sian pantaloneton, blatojn kaj librojn; se li eĉ ne unufoje venenas per fungoj siajn pli junajn gefratojn, — ne devigu lin esti kuracisto.
 
 Se via Vacek ne ŝirmas kontraŭ puno sian hundeton aŭ fratinon aŭ servistinon, kiu rompis pormemoran flor-vazon, restintan de onklina avino, — ne permesu al li esti advokato, tiom malpli, se li estas verdirema. Alie vi estigas malfeliĉon al vi mem kaj al via idaro.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Printempa kanto
@@ -1022,12 +827,7 @@ Apud mi sidiĝis homo kun tre malagrabla eksteraĵo. Li havis senspritan vizaĝo
 Kune kun ĝi ŝteliris amo en mian koron. En aŭtuno mi eble ne rimarkus vin — nun mi vin amas. Ne grave, ke vi havas malagrablan vizaĝesprimon. Se vi estas malsaĝa aŭ malbona, tio ne estas via kulpo. Donu al mi vian manon kaj rakontu pri viaj edzino kaj infanoj, konfideme parolu al mi pri viaj zorgoj kaj malĝojoj.”
 
 
-BONHUMORAJ RAKONTOJ
-
-
-”Sed mi ja ne konas vin,” diris la malkontentulo, for-
-
-ŝovante sin kaj kaptante sian flankan ĵaketpoŝon.
+”Sed mi ja ne konas vin,” diris la malkontentulo, forŝovante sin kaj kaptante sian flankan ĵaketpoŝon.
 
 Mi rimarkis tiun ĉi malfideman movon, kaj maldolĉo plenverŝis mian animon.
 
@@ -1048,9 +848,6 @@ La vizaĝo de la sinjorino esprimis vivecan maltran-kvilon.
 ”Sinjorino, mi havas peton al vi: Kisu mian frunton kaj benu min. ŝajnas al mi, ke via kiso faros min bona, kaj via beno montros al mi rektan vivovojon kaj ŝirmos mntraŭ tentoj. Diru al mi: filo mia, estu pacienca kaj brava.”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 La maljunulino per tremantaj lipoj ektuŝis mian frunton, kaj levante sian tremantan manon, diris tremvoĉe:
 
 ”Filo, estu pacienca kaj brava.”
@@ -1067,11 +864,7 @@ Poste junulo sidiĝis apud mi; li havis viglajn, pruden-tajn okulojn, malzorgema
 
 ”ĉu vi eble volas interparoli kun mi?” mi komencis tiufoje iom pli singardeme.
 
-”Vi estas sola, kaj ankaŭ mi estas sola, ni ne interŝan-
-
-ĝu niajn nomojn, al kio tio utilos? Jen printempo, suno, freŝa verdaĵo, paseroj. Mi scias, ke la samaj sentoj ludas nun en niaj koroj. Kiam oni vidas tiun ĉi junan vivon, 60
-
-BONHUMORAJ RAKONTOJ
+”Vi estas sola, kaj ankaŭ mi estas sola, ni ne interŝanĝu niajn nomojn, al kio tio utilos? Jen printempo, suno, freŝa verdaĵo, paseroj. Mi scias, ke la samaj sentoj ludas nun en niaj koroj. Kiam oni vidas tiun ĉi junan vivon,
 
 
 tiom da brilo, oni nepre devas ami. Ni, urbloĝantoj, tiel malmulte komunikiĝantaj kun la naturo, surŝutitaj per strata polvo, ĉirkaŭataj de venenaj fabrikhaladzoj — ni perdis la bondeziran senton al homoj. Mi volus varme-ge, tiel korege, sincere interparoli kun iu, trovi fratan e˛on en frata koro …”
@@ -1095,9 +888,6 @@ Tra la larmoj mi ekvidis knabeton kvinjaran, kiu min rigardis.
 ”Kiel vi nomiĝas, karulo?” mi demandis.
 
 ”Janek,” respondis la malgrandulo.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 ”Diru al mi, Janek,” mi komencis interparolon, ”ĉu en via malgranda koro troviĝas ankaŭ skatoleto, en kiu homoj estas specigitaj laŭ koloroj aŭ konvj?”
@@ -1129,9 +919,6 @@ Sidiĝis apud mi knabino pudrita.
 ”ĉu oni povas alparoli vin?”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 ”Oj! oj! kompreneble,” ŝi respondis kaj alproksimiĝis al mi.
 
 ”Diru,” mi komencis malgaje, ”diru, ĉu tiu freŝeco de la naturo vekiĝinta al nova vivo, ne memorigas al vi vian infanecon, kiam vi estis malgranda kaj ĉasta, kiam vi ka-rese premis vian blankan frunton al la buŝo de via patrino? Kiam vi ne sciis, ke ekzistas malbonaj homoj en la mondo, ke tiom da malpuraĵoj kaj da maljustaĵoj mal-klara vivondo portas en larĝa rivero? Jen en via animo vekiĝas e˛o de la malproksimaj memoraĵoj kaj de forge-sitaj doloroj.”
@@ -1145,9 +932,6 @@ BONHUMORAJ RAKONTOJ
 ŝi leviĝis indignoplena, kaj forirante ŝi ĵetis al mi kiel adiaŭdiron nur unu vorton: ”idioto!”
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Kaj maldolĉo surverŝis mian animon, kaj mi faris al la printempo malĝojan riproĉon: ”Oh! printempo, kial vi mensogas?”
 
 Jen sidiĝis sur mia benko du knabinetoj — rideto or-namis iliajn vizaĝojn, ruĝiĝo gajigis ilin. Ilia interparolo certe estis konfidencia, ĉar ili paroletis mallaŭte, kaj la konfidenciaĵoj ŝajne estis ĝojigaj, ĉar ili senĉese ridadis.
@@ -1158,32 +942,18 @@ Helaj sunradioj, verdaĵo de junaj folioj, paseroj kaj tiuj ĉi du kreaĵoj fari
 
 ”permesu al mi varmigi mian rigidiĝintan koron en la radioj de via maja libereco, por ke degelu la glacio de miaj vivmalesperoj sub la sorĉa brilo de via junaĝo kaj por ke ekbruletu unu fajrero de antaŭaj esperoj. Vi laŭte parolu, mi sidos trankvile kaj aŭdos — eble el seka okulo elfluos kortuŝeca larmo kaj surrosigos mian frunton.”
 
-Mi sciis, ke larmo ne povas flui sur frunton, sed mi sciis ankaŭ, ke ne aŭskultis min sentema orelo de kriti-kulo, sed freŝa juneco de verdaj folietoj, suno, paseroj kaj tiuj ĉi knabinetoj. Ili min rigardis kortuŝitaj kaj timi-gitaj, kiam viro subite alproksimiĝis rapidpaŝe kaj, svingante energie sian dikan bastonon, diris: ”En hela tago, je tri paŝoj de la gepatroj, havi la kuraĝon ataki junulinojn — por tio oni devas esti cinikulo plej malbon-64
-
-BONHUMORAJ RAKONTOJ
-
-
-speca. Manjo, Zonjo — iru hejmen, sufiĉas jam tiuj promenoj.”
+Mi sciis, ke larmo ne povas flui sur frunton, sed mi sciis ankaŭ, ke ne aŭskultis min sentema orelo de kriti-kulo, sed freŝa juneco de verdaj folietoj, suno, paseroj kaj tiuj ĉi knabinetoj. Ili min rigardis kortuŝitaj kaj timi-gitaj, kiam viro subite alproksimiĝis rapidpaŝe kaj, svingante energie sian dikan bastonon, diris: ”En hela tago, je tri paŝoj de la gepatroj, havi la kuraĝon ataki junulinojn — por tio oni devas esti cinikulo plej malbonspeca. Manjo, Zonjo — iru hejmen, sufiĉas jam tiuj promenoj.”
 
 Ekploregis la arĝenta kordo per lasta ĝemanta agor-do, kaj mortis mia printempa amkanto. La suno brilis plu sur sennuba ĉielo, sed la homoj ne plu estis miaj fratoj — mi ne deziris plu iun bondeziran koron. Oh! kanto! vi faris min elpoŝa ŝtelisto, nervozulo, agento, lepru-lo, idioto, cinikulo — nur pro tio, ke mi volis proksimiĝi al la homoj …
-
-
-BONHUMORAJ RAKONTOJ
 
 
 Leciono pri gramatiko
 
 V i diras, knaboj, ke vi lernis gramatikon, ke ĝi estas malfacila kaj laŭ via opinio tute ne bezonata kaj el-pensita por turmento al infanoj? Jen vi tuj konvinkiĝos, ke ne estas tiel, ke kontraŭe gramatiko enhavas multajn interesajn aferojn.
 
-Mi do komencas kaj petas, atente aŭskultu: Ni prenu tute malgrandan infanon, ne ankoraŭ parolantan — suĉ-
+Mi do komencas kaj petas, atente aŭskultu: Ni prenu tute malgrandan infanon, ne ankoraŭ parolantan — suĉinfanon.
 
-infanon.
-
-Tia infaneto scias jam diferencigi, kio estas por ĝi agrabla kaj kio malagrabla — ĝi aŭ ridetas aŭ ploras aŭ kriegas, kio en ĝia parolmaniero signifas: la nazo ŝvelu al vi, ke vi min forgesis tiel longan tempon! Tia infaneto vidas ĉirkaŭe diversajn objektojn, aŭdas parolojn de plenaĝuloj — ĝi provas mem paroli aaa … ooo, pri kio ni diras, ke ĝi paroletas, kaj fine ĝi diros: mama. i ripetas tiun ĉi vorton kelkfoje kaj estas kontenta scii tian saĝ-
-
-aĵon. i rimarkas, ke tiam ĉiuj ĉirkaŭe ĝojas — kaj jen ĉio moviĝanta estas por ĝi mama — kaj kato kaj panjo, kaj paĉjo kaj birdo. ĉar tia etulo vidas nur tion, kio moviĝas, kio iras, eligas sonojn, ĝi nomas per sia mama ĉiujn vi-vantajn objektojn — tio estas substantivoj vivantaj. El 66
-
-BONHUMORAJ RAKONTOJ
+Tia infaneto scias jam diferencigi, kio estas por ĝi agrabla kaj kio malagrabla — ĝi aŭ ridetas aŭ ploras aŭ kriegas, kio en ĝia parolmaniero signifas: la nazo ŝvelu al vi, ke vi min forgesis tiel longan tempon! Tia infaneto vidas ĉirkaŭe diversajn objektojn, aŭdas parolojn de plenaĝuloj — ĝi provas mem paroli aaa … ooo, pri kio ni diras, ke ĝi paroletas, kaj fine ĝi diros: mama. i ripetas tiun ĉi vorton kelkfoje kaj estas kontenta scii tian saĝaĵon. i rimarkas, ke tiam ĉiuj ĉirkaŭe ĝojas — kaj jen ĉio moviĝanta estas por ĝi mama — kaj kato kaj panjo, kaj paĉjo kaj birdo. ĉar tia etulo vidas nur tion, kio moviĝas, kio iras, eligas sonojn, ĝi nomas per sia mama ĉiujn vi-vantajn objektojn — tio estas substantivoj vivantaj. El
 
 
 substantivoj nevivantaj la etulo plej rapide lernos diri: papu = manĝado, ĉar manĝi ja ne estas io, kaj vi prefe-rus ankaŭ manĝi, anstataŭ lerni, ĉu ne vere, knaboj?
@@ -1196,23 +966,14 @@ malbona, malvarma, maldolĉa. Vidu, kia saĝulo ĝi estas:
 
 ĝi konas adjektivojn. Post ne longe oni devos diri al ĝi: estimata sinjoro. (La knaboj ridas.) Vi ne ridu, vi devas scii, ke paroli por tia etulo estas tiel malfacile, kiel por vi fari dividadon en tri ciferojn. Kiom tia mizerulo devas turmentiĝi, antaŭ ol ĝi komprenos, kion oni devas fari per la lipoj kaj per la lango por elparoli unu literon! Vi provu diri ”m,” ne fermante la buŝon. Aha! vi vidas; aŭ
 
-”b”. En tio vi ankaŭ ne sukcesas. Plej facile estas, diri ”a”; vi larĝe malfermas la buŝon, kaj tio sufiĉas. Pli malfacilaj literoj estas ”d” kaj ”t”. Por elparoli ilin, oni devas ektuŝi la dentojn per la fino de la lango, pli malfacile eĉ estas diri ”‘r” aŭ ”ŝ,” kaj vi scias, ke infanoj longe prononcas 67
-
-BONHUMORAJ RAKONTOJ
+”b”. En tio vi ankaŭ ne sukcesas. Plej facile estas, diri ”a”; vi larĝe malfermas la buŝon, kaj tio sufiĉas. Pli malfacilaj literoj estas ”d” kaj ”t”. Por elparoli ilin, oni devas ektuŝi la dentojn per la fino de la lango, pli malfacile eĉ estas diri ”‘r” aŭ ”ŝ,” kaj vi scias, ke infanoj longe prononcas
 
 
 patjo anstataŭ patro. Vi ne pensas plu pri tiuj malfacilaĵoj, ĉar vi ilnas. Rigardu nur la etulon, kiu provas butonumi butonon: jen li ne povas ekkapti la truon, jen la butono ekkaptas ion de ĝi, jen ĝi ne volas eniri la truon. Vi ne ridu: la samo estis kun vi — tiel estas kun ĉio en la mondo: la plej saĝecaj objektoj ŝajnas facilaj, kiam oni konas ilin — hodiaŭ adicio estas malfacila por vi, kaj morgaŭ ĝi estos facila, hodiaŭ dividado ŝajnas al vi malfacila, kaj morgaŭ vi ĝmprenos, kaj ĝi estos facila.
 
-Nun ni iom parolos pri la homa lingvo. Vi multe miros, eksciante, ke la homa lingvo vivas, sin nutras, malsaniĝas kaj mortas — ĝi povas esti tre riĉa aŭ tre malri-
+Nun ni iom parolos pri la homa lingvo. Vi multe miros, eksciante, ke la homa lingvo vivas, sin nutras, malsaniĝas kaj mortas — ĝi povas esti tre riĉa aŭ tre malriĉa. Aŭskultu: diversaj instruitaj vojaĝantoj veturis en fremdajn, malproksimajn landojn, kaj tie ili rimarkis, ke ekzistas sovaĝuloj, kiuj havas nur tre malmultajn vortojn, ke ilia lingvo estas tre malriĉa — ĝi havas nur kelkajn substantivojn, ĉar oni ja devas nomi iamaniere siajn potojn, tablojn, benkojn kaj aliajn objektojn; ĝi havas ankaŭ kelkajn adjektivojn, ĉar unu poto estas pura, alia — malpura, unu benko estas alta, alia — mal-alta. Ilia lingvo estas same malriĉa kiel tiu de niaj malgrandaj infanoj. Ju pli saĝa iu popolo estas, ju pli multe
 
-ĉa. Aŭskultu: diversaj instruitaj vojaĝantoj veturis en fremdajn, malproksimajn landojn, kaj tie ili rimarkis, ke ekzistas sovaĝuloj, kiuj havas nur tre malmultajn vortojn, ke ilia lingvo estas tre malriĉa — ĝi havas nur kelkajn substantivojn, ĉar oni ja devas nomi iamaniere siajn potojn, tablojn, benkojn kaj aliajn objektojn; ĝi havas ankaŭ kelkajn adjektivojn, ĉar unu poto estas pura, alia — malpura, unu benko estas alta, alia — mal-alta. Ilia lingvo estas same malriĉa kiel tiu de niaj malgrandaj infanoj. Ju pli saĝa iu popolo estas, ju pli multe
-
-ĝi estas instruita, des pli multajn diversajn esprimojn ĝi havas, kaj konstante naskiĝas al ĝi novaj vortoj, kiel ĉe vi naskiĝas fratoj kaj fratinoj. Vi eble demandos min, kiaj novaj vortoj naskiĝis lasttempe? Nu, aŭtomobilo. Iu el-68
-
-BONHUMORAJ RAKONTOJ
-
-
-pensis veturilon, irantan senĉevale, oni ja devis nomi ĝin
+ĝi estas instruita, des pli multajn diversajn esprimojn ĝi havas, kaj konstante naskiĝas al ĝi novaj vortoj, kiel ĉe vi naskiĝas fratoj kaj fratinoj. Vi eble demandos min, kiaj novaj vortoj naskiĝis lasttempe? Nu, aŭtomobilo. Iu elpensis veturilon, irantan senĉevale, oni ja devis nomi ĝin
 
 — kaj oni nomis ĝin aŭtomobilo — memmoviĝanto.
 
@@ -1229,24 +990,14 @@ Kaj alia ekzemplo: vi scias, kio estas scivolemo. Scivolemo estas: enrigardi fre
 Vi scias, ke ekzistas esprimoj ”bonstata” kaj ”riĉa”.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Bonstata estas tiu, kiu havas tion, kion li bezonas, kaj riĉa homo havas plion, ol li bezonas, kaj ne sciante, kion fari per mono, li plej ofte faras malsaĝaĵojn. Same la esprimo malriĉa havas nuancojn; malriĉa estas tiu, kiu havas malplion, ol li bezonas, mizera estas tiu, kiu povas nek bone saniĝi, nek instruigi siajn infanojn, nek tiom manĝi por esti sana kaj forta. Vi vidas, kia esprim-riĉeco. Krome alia ekzemplo: prudenta, instruita kaj inteligenta. ĉu vi iam pripensis, ke oni povas esti instruita kaj samtempe malsaĝa?
 
-Instruita ofte estas tiu, kies gepatroj sendis lin en lernejon kaj pagis por la instruado al li, poste li fariĝis doktoro aŭ advokato kaj hontas pri sia parenco pro lia malriĉeco aŭ kaŭze de tio, ke la parenco ne sidadis inter libroj. Li estas eble tre instruita, sed ankaŭ malsaĝa. Kaj homo prudenta povas tute ne scii legi, sed li agas ĉiam prudente kaj donas iafoje bonan konsilon. Krom tiuj esprimoj oni prunteprenis el la latina lingvo la vorton inteligenta, ĉar ĉiu lingvo havas multajn fremdajn vortojn, ekzemple ”amatoro” estas latina, ”hundo” — ger-mana, ”birdo” — angla, ”kontenta” franca. Ekzistas an-kaŭ malnovaj vortoj ne plu uzataj; ili estas kvazaŭ grizaj kaj seriozaj — oni povas aŭdi ilin en preĝejo, Estas tre interese, kion la lingvo faras por havi el unu vorto multajn aliajn — kiel saĝulo ĝi faris ŝanĝojn — de-klinaciojn — el unu vorto. El ”libro” ĝi faris: de libro, al 70
-
-BONHUMORAJ RAKONTOJ
+Instruita ofte estas tiu, kies gepatroj sendis lin en lernejon kaj pagis por la instruado al li, poste li fariĝis doktoro aŭ advokato kaj hontas pri sia parenco pro lia malriĉeco aŭ kaŭze de tio, ke la parenco ne sidadis inter libroj. Li estas eble tre instruita, sed ankaŭ malsaĝa. Kaj homo prudenta povas tute ne scii legi, sed li agas ĉiam prudente kaj donas iafoje bonan konsilon. Krom tiuj esprimoj oni prunteprenis el la latina lingvo la vorton inteligenta, ĉar ĉiu lingvo havas multajn fremdajn vortojn, ekzemple ”amatoro” estas latina, ”hundo” — ger-mana, ”birdo” — angla, ”kontenta” franca. Ekzistas an-kaŭ malnovaj vortoj ne plu uzataj; ili estas kvazaŭ grizaj kaj seriozaj — oni povas aŭdi ilin en preĝejo, Estas tre interese, kion la lingvo faras por havi el unu vorto multajn aliajn — kiel saĝulo ĝi faris ŝanĝojn — de-klinaciojn — el unu vorto. El ”libro” ĝi faris: de libro, al
 
 
-libro, libron. El ”legi” ĝi faris: mi legis, mi legos — krome: leganto, legejo. Kaj ankoraŭ ne estas fino — ĝi aldo-nas malgrandan silabon ek aŭ tra, kaj la signifo ŝan-
-
-ĝiĝas. Mi legis; tio ja ne signifas, ke mi scias, kio estas en la fino de libro, sed tralegis signifas, ke mi legis ĝis la fino.
+libro, libron. El ”legi” ĝi faris: mi legis, mi legos — krome: leganto, legejo. Kaj ankoraŭ ne estas fino — ĝi aldo-nas malgrandan silabon ek aŭ tra, kaj la signifo ŝanĝiĝas. Mi legis; tio ja ne signifas, ke mi scias, kio estas en la fino de libro, sed tralegis signifas, ke mi legis ĝis la fino.
 
 Jen venas homo kaj diras: Oni devas ja fari ian ordi-gon, alie ni nenion scios. Nun imagu nur tian butiketon: haringoj kuŝas kune kun cigaredoj, petrolo troviĝas apud pano, bombonoj apud sapo. Vi venas por aĉeti unu kajeron. Komenciĝas serĉado, — la butikisto diras, ke la kajeroj estas tie, lia edzino diras, ke ili estas aliloke. Li koleras pri ŝi, ŝi insultas pri li — ili elverŝas sur sian kapon botelegon da petrolo, faruno ŝutiĝas en ilian nazon, bombonoj falas en vazon de acidaj kukumoj — ili ne scias, kion ili posedas, kio mankas al ili, kion ili devas aĉeti. Kaj homoj, popoloj ja devas scii, kiajn vortojn ili posedas, kion ili bezonas, kion oni devas pruntepreni, kaj kion ili devas jam redoni, por ke ĉiu povu paroli kaj pensi en sia propra lingvo. Ju pli grava io estas por ni, des pli orde ni tion tenas. Vi vidas ordon en apoteko, ĉiu medikamento troviĝas en aparta vazo kun surskribo. La samon decidis fari homoj pri sia lingvo. Ili dividis ĉiujn vortojn laŭspece, ĉiun specon ili metis en apartan tirkeston kaj provizis ĉi tiun je surskribo. Kiel ŝajnas al vi? ĉu tio estas facila aŭ malfacila laborado?
-
-
-BONHUMORAJ RAKONTOJ
 
 
 O, knaboj, tio estas terure malfacila. Sed homoj timas neniun laboradon — ili elpensis telefonon kaj telegrafon, vaporŝipon kaj mikroskopon — tiajn mirigaĵojn, ke se mi komencus rakonti pri ili, vi eĉ ĉesus spiri pro miro. Unue la homoj orde starigis la vortojn kvazaŭ tirkestvice kaj komencis disspecigi ilin — sur unu tirkeston ili skribis:
@@ -1258,9 +1009,6 @@ En dua tirkesto troviĝas: ”kia? kies? — adjektivo”.
 Poste ili vidis, ke Vistulo kaj rivero estas kvazaŭ la samo; tamen, se mi diras ”rivero,” neniu scias, pri kiu mi parolas, ĉar estas multe da riveroj en la mondo. ĉu vi aŭdis pri substantivoj propraj? Pripensu nur, kia bela inven-to estas tiaj propraj substantivoj. Mi skribas sur kover-ton: Stanislav Marĉak, Solee No. 20, Warszawa — kaj fino. Kaj kiel mi adresus leteron, se ili ne ekzistus? Respektinda sinjoro kun nigraj lipharoj, havanta du kna-bojn, el kiuj unu estas granda petolulo, sed bone lernas, en tiu strato, en granda urbo, situanta sur malrekta bor-do de larĝa rivero — kaj mi povus tiamaniere skribi longan adreson, kaj poste oni serĉus du jarojn kaj fine en-manigus la leteron al alia sinjoro, ĉar de tiaj urboj kaj larĝaj riveroj kaj stratoj kaj sinjoroj kun nigraj lipharoj ekzistas multegaj en la mondo. Do vi nun scias, kio estas substantivoj propraj.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 Mi nun rakontos al vi, karuloj, pri malgranda vorteto
 
 — tia malgranda vorteto: kiu. Oni frapas pordon, kaj vi demandas: Kiu frapas? Se ne ekzistus tiu malgrandulo kiu, vi devus demandi: ĉu frapas Kuzio, ĉu Mania, ĉu onklino, ĉu leterportisto, ĉu almozulo? Kaj la frapinto ĉiam respondas: ne, ne … Kaj vi povus tiamaniere de-mandadi tri horojn kaj tute ne diveni, vi ekŝvitus kiel muso, ekkolerus, ne manĝus kaj ne enlitiĝus, vi ĉiam nur demandus.
@@ -1269,11 +1017,7 @@ Sed se vi havas la vorteton ”kiu,” vi baldaŭ scias. Kiu frapis. kiu estas p
 
 Mi jam diris al vi, ke ekzistas en la gramatiko lingvopartoj, kiuj ŝanĝas siajn finaĵojn — ili estas riĉaj sinjoroj, povantaj el unu vorto fari multajn aliajn. Kaj tia utila konjunkcio aŭ prepozicio estas malriĉa — ili ne havas ŝanĝojn. Estas vortoj: el, pri, de, en, kiuj restas tiaj dum la tuta vivo, kvankam ili estas utilaj laborantoj kaj hel-pantoj. Kaj vi vidas ankaŭ, ke riĉa adjektivo pruntedo-nas siajn vortojn al adverbo: el ”bona” oni faras adver-bon ”bone”.
 
-La homa lingvo estas kiel maljuna, mistera arbaro, en-havanta laŭtajn kaj gajajn kantojn kaj terurajn, neko-natajn murmurojn, ĝi estas plena de ĝojo kaj de mal-
-
-ĝojo, de juneco kaj de morto. En la homa lingvo ekzistas fortaj kaj potencaj vortoj, kvazaŭ kverkoj, suprenle-73
-
-BONHUMORAJ RAKONTOJ
+La homa lingvo estas kiel maljuna, mistera arbaro, en-havanta laŭtajn kaj gajajn kantojn kaj terurajn, neko-natajn murmurojn, ĝi estas plena de ĝojo kaj de malĝojo, de juneco kaj de morto. En la homa lingvo ekzistas fortaj kaj potencaj vortoj, kvazaŭ kverkoj, suprenle-73
 
 
 vantaj sin, kiel: kuraĝo, heroo, amo; vortoj gajaj, kiel: suno, kanto, rido, — vortoj malhelaj, kiel: premo, mal-nobleco, — vortoj sonantaj kiel alaŭdkanto en ĉielbluo de printempa mateno, aŭ siblantaj kiel venena vipero, aŭ plendantaj kiel ĝemo.
@@ -1289,15 +1033,9 @@ Malbone paroli aŭ skribi signifas ofendi kaj dolorigi ĉiujn, kiuj adore konstr
 Vi rememoras, kiel mi koleris, kiam unu el vi diris la trian fojon ”mia kajero pri aritmetiko” anstataŭ ”por aritmetiko”. ŝajnis tiam al mi, kvazaŭ iu enmetus spliton aŭ kudrilon en ungon de vivanta homo, sur kies vangojn fluis larmoj el la okuloj.
 
 
-BONHUMORAJ RAKONTOJ
-
-
 La gramatiko instruas ŝati la homan lingvon kaj admi-ri la homan prudenton.
 
 Nu, karaj knaboj, mi adiaŭas vin, ĉar hodiaŭ ni sufiĉe jam parolis pri la gramatiko.
-
-
-BONHUMORAJ RAKONTOJ
 
 
 www.omnibus.se/

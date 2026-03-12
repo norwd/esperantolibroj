@@ -5,14 +5,10 @@ Synnĝve
 Solbakken
 
 
-### 1
-
 SYNNØVE SOLBAKKEN
 
 
 Bjĝrnstjerne Bjĝrnson
-
-SYNNØVE SOLBAKKEN
 
 
 Edith kaj August Weide
@@ -20,21 +16,11 @@ Edith kaj August Weide
 Lingve reviziita en 2003
 
 
-X
-
-@omnibus.se
-
-
-SYNNØVE SOLBAKKEN
-
-
-UNUA ĉAPITRO
+UNUA ĈAPITRO
 
 En norvega valo oni povas trovi altaĵon kun tute libe-raj flankoj, al kiu la suno sendas siajn radiojn de frumateno ĝis sunsubiĝo. Tiuj, kiuj loĝas pli proksime al la rokoj kaj ĝuas pli maltofte la sunon, nomas tiun lokon Solbakke1. ŝi, pri kiu ĉi tie estos rakontate, loĝis sur tiu monteto. De tio ŝia bieno havis sian nomon. Tie la neĝo ekrestis nur tre malfrue en la aŭtuno kaj tie ĝi unue de-gelis printempe.
 
-La bienuloj estis Haŭge-anoj2. Laŭfame ili estis lege-muloj, ĉar ili kutimis legi la biblion pli fervore ol aliaj. La edzo nomis sin Guttorm, la edzino Karen. Al ili naskiĝis knabo, li mortis. Dum tri jaroj ili evitis la okcidentan flankon de la preĝejo, tie staris la baptejo. Poste naskiĝis al ili knabino. Ili nomis ŝin laŭ la knabo. Li havis la nomon Syvert3. ŝi baptiĝis Synnĝv, ĉar ili ne trovis nomon pli parencan al la lia. Sed la patrino alparolis ŝin Synnĝ-
-
-ve, ĉar al ŝi venis la emo diri: — Synnĝv-mia, dum la infano estis eta, kaj tial Synnĝve ŝajnis al ŝi pli oportuna.
+La bienuloj estis Haŭge-anoj2. Laŭfame ili estis lege-muloj, ĉar ili kutimis legi la biblion pli fervore ol aliaj. La edzo nomis sin Guttorm, la edzino Karen. Al ili naskiĝis knabo, li mortis. Dum tri jaroj ili evitis la okcidentan flankon de la preĝejo, tie staris la baptejo. Poste naskiĝis al ili knabino. Ili nomis ŝin laŭ la knabo. Li havis la nomon Syvert3. ŝi baptiĝis Synnĝv, ĉar ili ne trovis nomon pli parencan al la lia. Sed la patrino alparolis ŝin Synnĝve, ĉar al ŝi venis la emo diri: — Synnĝv-mia, dum la infano estis eta, kaj tial Synnĝve ŝajnis al ŝi pli oportuna.
 
 1 Solbakke = Sunmonteto; Solbakken = La sunmonteto.
 
@@ -43,14 +29,9 @@ ve, ĉar al ŝi venis la emo diri: — Synnĝv-mia, dum la infano estis eta, kaj
 3 y = i; ĝ = e; ĝ = e (tre pinta kiel la germana ö).
 
 
-SYNNØVE SOLBAKKEN
-
-
 Kiam la knabino maturiĝis, ĉiuj nomis ŝin Synnĝve, kiel la patrino. Plej multaj diris, ke en tempo memorebla en la regiono ne kreskis knabino, kiu en beleco estis egala al Synnĝve Solbakken.
 
-ŝi estis ankoraŭ tre juna, kiam la gepatroj komencis kunpreni ŝin al la preĝejo ĉiun predikdimanĉon. Synnĝ-
-
-ve en la unua tempo ne komprenis pli, ol ke la pastro staras kaj admonas Bent Friponon, kiun ŝi vidis sidi tuj antaŭ la pupitro. Tamen la patro deziris ŝian ĉeeston: —
+ŝi estis ankoraŭ tre juna, kiam la gepatroj komencis kunpreni ŝin al la preĝejo ĉiun predikdimanĉon. Synnĝve en la unua tempo ne komprenis pli, ol ke la pastro staras kaj admonas Bent Friponon, kiun ŝi vidis sidi tuj antaŭ la pupitro. Tamen la patro deziris ŝian ĉeeston: —
 
 Por kutimiĝi, li diris. La patrino ankaŭ deziris tion: —
 
@@ -59,9 +40,6 @@ Por kutimiĝi, li diris. La patrino ankaŭ deziris tion: —
 Se en la bieno ŝafido, kaprido aŭ porkido estis malsaneta, aŭ bovino malbonfarta, oni ĉiam donis la beston al Synnĝve. La patrino imagis, ke de tiu momento ĝi bon-fartetis. La patro ne absolute kredis, ke la ŝango venas de tio. Sed estis indiferente, kie estas la besto, se ĝi nur bonfartas.
 
 Sur la alia flanko de la valo, proksime al la alta roko, situis bieno nomata Granlien4, ĉar ĝi kuŝis meze en granda abiarbaro, la sola en la regiono. La prapatro de la nuna posedanto estis inter la soldatoj, kiuj bivakis en Holstinio atendante la rusojn. De tiu ekskurso li hejmen portis en la tornistro multajn fremdlandajn semojn. Ilin li semis ĉirkaŭ sia domo. En la tempo de tiam pasinta, la kreskaĵoj formortis unu post alia. El kelkaj abisemoj, kiuj 4 Granlien = Deklivo kun abioj.
-
-
-SYNNØVE SOLBAKKEN
 
 
 hazarde restis, kreskis la arbaro. i nun ombrumis la bienon de ĉiuj flankoj.
@@ -74,9 +52,7 @@ Li pripensis, ĉu ne estus eble eduki la knabon tiel, ke li evitu la ŝtonon de 
 
 Sĝmund miris, ke grade kun la kresko de la knabo ekestis pli kaj pli multaj korektendaj aferoj ĉe li, kaj tio malgraŭ ĉiam pli severa kontrolo. Jam frue li legigis lin.
 
-Li kunirigis lin al la kamparo por havi lin en okulkon-trolo. La patrino havis grandmastrumadon kaj etajn infanojn; ŝi nur povis karesi kaj admoni la fileton ĉiuma-tene, kiam ŝi vestis lin, kaj paroli delikate kun la patro, 5
-
-SYNNØVE SOLBAKKEN
+Li kunirigis lin al la kamparo por havi lin en okulkon-trolo. La patrino havis grandmastrumadon kaj etajn infanojn; ŝi nur povis karesi kaj admoni la fileton ĉiuma-tene, kiam ŝi vestis lin, kaj paroli delikate kun la patro,
 
 
 kiam sanktaj tagoj kunigis ilin. Sed Torbjĝrn pensis, kiam li puniĝis, ĉar a-b estas ab kaj ne ba, kaj ĉar li ne rajtis vergi la etan Ingrid same kiel la patro lin. — Estas strange, ke mi tiom suferu, dum ĉiuj etaj gefratoj estas tiel feliĉaj!
@@ -87,9 +63,7 @@ kiam sanktaj tagoj kunigis ilin. Sed Torbjĝrn pensis, kiam li puniĝis, ĉar a-
 
 —Ne sidu tie kaj rigardu tiel stulte, diris la patro kaj donis al li puŝon. — ĉiflanke ni ĉiuj laboregu: la etaj kaj la grandaj, se ni havu ion endome.
 
-Sĝmund dungis novan helpanton, kiam Torbjĝrn eble estis inter la sepa kaj oka jaroj. Aslak estis la nomo de la novulo. Li ŝajne jam multe vagadis, kvankam li ankoraŭ estis junhelpanto. La vesperon, en kiu li venis, Torbjĝrn jam estis en la lito, sed la postan tagon, kiam li sidis kaj legis, iu malfermis la pordon per tia puŝo, kian li antaŭe neniam aŭdis. Jen estis Aslak, kiu venis bru-paŝante kun granda plenbrako da brulaĵo. La lignon li ĵetis teren tiel forte, ke la ŝtipoj ŝprucis ĉiuflanken. Li 6
-
-SYNNØVE SOLBAKKEN
+Sĝmund dungis novan helpanton, kiam Torbjĝrn eble estis inter la sepa kaj oka jaroj. Aslak estis la nomo de la novulo. Li ŝajne jam multe vagadis, kvankam li ankoraŭ estis junhelpanto. La vesperon, en kiu li venis, Torbjĝrn jam estis en la lito, sed la postan tagon, kiam li sidis kaj legis, iu malfermis la pordon per tia puŝo, kian li antaŭe neniam aŭdis. Jen estis Aslak, kiu venis bru-paŝante kun granda plenbrako da brulaĵo. La lignon li ĵetis teren tiel forte, ke la ŝtipoj ŝprucis ĉiuflanken. Li
 
 
 mem saltis alten en la aeron por forskui la neĝon, kaj ĉe ĉiu salto li diris:
@@ -125,9 +99,6 @@ Sed de tiu momento neniu havis tian influon al li kiel Aslak.
 En sia tuta vivo Torbjĝrn ne aŭdis tiom da saĝo samtempe.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Kie okazis tio, li demandis.
 
 —Kie? . . . Jes, tio okazis . . . ĝuste, tie transe sur Solbakken.
@@ -147,9 +118,6 @@ Kaj dum Aslak nun gaje daŭrigis labori, li eĉ pli gaje plurakontadis. Temis pr
 —Je la nomo de Dio, kio okazis al la knabo? diris la patrino la postan tagon. — De frumatene li genusidis sur la benko kaj rigardis transen al Solbakken.
 
 —Jes, hodiaŭ li estas okupata, diris la patro, kiu kuŝis kaj ripozis la tutan longan dimanĉon.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —La homoj diras, ke li fianĉiĝis al Synnĝve Solbakken, diris Aslak. — Sed la homoj ja diras multon, li aldonis.
@@ -181,18 +149,13 @@ Kiam foje Sĝmund tage estis laborinta kun Aslak en la kamparo, li vespere diris
 —De nun vi ne plu interrilatu kun la helpanto.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Sed Torbjĝrn ne tro atentis pri tiu malpermeso. Sekve li tempeton poste devis aŭdi:
 
 —Se vi denove kaptiĝos ĉe li, vi spertos malbonaĵon.
 
 De tiam Torbjĝrn kaŝiris al li, kiam la patro ne povis observi. Foje li tamen surprizis ilin, kiam ili sidis kune kaj babilis. Torbjĝrn ricevis batojn kaj estis sendita do-men. De tiam Torbjĝrn serĉis la societon de Aslak nur, kiam la patro ne estis hejme.
 
-Foje en dimanĉo, kiam la patro estis en la preĝejo, Torbjĝrn faris petolaĵon hejme: Aslak kaj li ĵetis neĝ-
-
-bulojn unu al la alia.
+Foje en dimanĉo, kiam la patro estis en la preĝejo, Torbjĝrn faris petolaĵon hejme: Aslak kaj li ĵetis neĝbulojn unu al la alia.
 
 —Lasu, lasu vi sufokos min, petis Torbjĝrn post mallonga tempo. — Ni kune ĵetu al io alia.
 
@@ -211,9 +174,6 @@ Torbjĝrn ĵetis kaj trafis duan vitron.
 Sammomente venis lia pli aĝa fratino, la eta Ingrid, el la domo.
 
 —ĵetu al ŝi!
-
-
-SYNNØVE SOLBAKKEN
 
 
 Torbjĝrn tuj konsentis. La knabino ekploris, kaj la patrino venis el la domo. ŝi admonis lin ĉesi.
@@ -240,14 +200,10 @@ Li havis fortan stomakdoloron kaj liaj manoj estis tiel ŝvitaj, ke la libro glu
 
 Li devis grimpi al la fenestro kaj rigardi al Solbakken.
 
-Tie ĝi kuŝis, silenta kaj sola, tute neĝkovrita, brilis kiel ĉiam en la sunradioj kaj ridis per ĉiuj fenestroj . . . kaj 11
-
-SYNNØVE SOLBAKKEN
+Tie ĝi kuŝis, silenta kaj sola, tute neĝkovrita, brilis kiel ĉiam en la sunradioj kaj ridis per ĉiuj fenestroj . . . kaj
 
 
-en ili certe ne estas rompitaj vitroj. Tre gaja fumo iris el la kameno . . . certe tie oni ankaŭ preparas la tagman-
-
-ĝon por la preĝejvizitantoj. Tie certe Synnĝve iretas kaj elrigardas al sia patro, kaj ŝi ne havos batojn, kiam li estos veninta hejmen. Li ne sciis kiel okupiĝi, kaj subite li ekestis senmezure karesema al siaj fratinetoj. Al Ingrid li estis tiel afabla, ke li donacis al ŝi brilan butonon, kiun li ricevis de Aslak. ŝi ĉirkaŭbrakis lin kaj li metis la manojn ĉirkaŭ ŝia kolo.
+en ili certe ne estas rompitaj vitroj. Tre gaja fumo iris el la kameno . . . certe tie oni ankaŭ preparas la tagmanĝon por la preĝejvizitantoj. Tie certe Synnĝve iretas kaj elrigardas al sia patro, kaj ŝi ne havos batojn, kiam li estos veninta hejmen. Li ne sciis kiel okupiĝi, kaj subite li ekestis senmezure karesema al siaj fratinetoj. Al Ingrid li estis tiel afabla, ke li donacis al ŝi brilan butonon, kiun li ricevis de Aslak. ŝi ĉirkaŭbrakis lin kaj li metis la manojn ĉirkaŭ ŝia kolo.
 
 —Kara, eta Ingrid, ĉu vi koleras al mi?
 
@@ -264,9 +220,6 @@ La patrino metis la manĝaĵon antaŭ lin.
 Torbjĝrn rigardis la patrinon ĝis kiam larmoj venis en liajn okulojn.
 
 —Ho . . . bonete, ŝi respondis nekredeble malrapide; kaj ŝi volis diri pli multe, tion li observis klare. — Mi permesis al Aslak eliri, ŝi aldonis.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Nun venos la katastrofo, pensis Torbjĝrn kaj eklu-hdis kun Ingrid kvazaŭ li havus eĉ ne unu kroman pen-son.
@@ -298,9 +251,6 @@ brilas la sun’ sur herbejo!
 Kaj ŝi respondis:
 
 
-SYNNØVE SOLBAKKEN
-
-
 Or’ — reĝino,
 
 perl’ — reĝino,
@@ -322,25 +272,15 @@ Sed kiam la ludo plej bone funkciis, envenis la patro kaj fikse direktis la okul
 Tion li ne estis farinta en tempo memorebla al la knabo, kaj tial ekvarmiĝis lia koro kaj lia tuta korpo, kaj la timo forfluis kiel glacio en sunlumo. Li ne konsciis, kiel li atingis la liton, kaj ĉar li povis nek ekkanti nek kriadi, li silenta interplektis la fingrojn, preĝis “Patro Nia-n” ses-foje antaŭen kaj malantaŭen tute mallaŭte . . . kaj sentis ekdormante, ke tamen neniun sur la verda tero de Dio li tiel amas kiel sian patron.
 
 
-SYNNØVE SOLBAKKEN
-
-
-La postan matenon li vekiĝis en terura timo, pro la neeblo krii, ĉar li nun tamen havos batojn. Kiam li malfermis la okulojn, li observis kun granda malpeziĝo, ke li nur estis sonĝinta, sed observis ankaŭ baldaŭ, ke iu alia tuj havos batojn, kaj tiu estis Aslak. Sĝmund paŝis tien kaj reen sur la planko, kaj Torbjĝrn konis tiun paŝadon. La iom malalta sed fortika viro de tempo al tempo de sub la densaj brovoj tiel rigardis al Aslak, ke tiu sendube sentis, kio ŝargas la aeron. Aslak mem sidis sur la kovrilo de granda barelo. Liaj kruroj aŭ pendis laŭ la barelo aŭ li krucigis ilin sub si. Li havis kiel kutime la manojn en la poŝoj. La ĉapo estis tiel premita sur la kapon, ke la densa, malhela hararo elfalis en tufoj el sub la ŝirmilo. La iom malrekta buŝo estis eĉ pli malrekta nun, la tutan kapon li tenis iom klinita, kaj rigardis al Sĝ-
-
-mund de la flanko el duonfermitaj okuloj.
+La postan matenon li vekiĝis en terura timo, pro la neeblo krii, ĉar li nun tamen havos batojn. Kiam li malfermis la okulojn, li observis kun granda malpeziĝo, ke li nur estis sonĝinta, sed observis ankaŭ baldaŭ, ke iu alia tuj havos batojn, kaj tiu estis Aslak. Sĝmund paŝis tien kaj reen sur la planko, kaj Torbjĝrn konis tiun paŝadon. La iom malalta sed fortika viro de tempo al tempo de sub la densaj brovoj tiel rigardis al Aslak, ke tiu sendube sentis, kio ŝargas la aeron. Aslak mem sidis sur la kovrilo de granda barelo. Liaj kruroj aŭ pendis laŭ la barelo aŭ li krucigis ilin sub si. Li havis kiel kutime la manojn en la poŝoj. La ĉapo estis tiel premita sur la kapon, ke la densa, malhela hararo elfalis en tufoj el sub la ŝirmilo. La iom malrekta buŝo estis eĉ pli malrekta nun, la tutan kapon li tenis iom klinita, kaj rigardis al Sĝmund de la flanko el duonfermitaj okuloj.
 
 —Jes, vere, via bubo estas freneza, li diris. — Sed pli malbone estas, ke via ĉevalo estas sorĉumita.
 
 Sĝmund ekhaltis.
 
-—Vi estas senrespekta fibubo, li diris, tiel ke e˛is en la ĉambro, kaj Aslak eĉ pli multe fermis la okulojn. Sĝ-
-
-mund denove tien kaj reen iradis. Aslak sidis senmova dum momento.
+—Vi estas senrespekta fibubo, li diris, tiel ke e˛is en la ĉambro, kaj Aslak eĉ pli multe fermis la okulojn. Sĝmund denove tien kaj reen iradis. Aslak sidis senmova dum momento.
 
 —Sorĉumita ĝi estas, absolute, li diris. Kaj li strabe rigardis al li, por vidi la efikon de la vortoj.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Ne sorĉumita, sed ĝi timas la arbojn, tion ĝi faras, diris Sĝmund ankoraŭ paŝante. — Vi faligis arbon sur
@@ -353,18 +293,13 @@ Aslak aŭskultis dum momento.
 
 . . . sed mi dubas, ke ĝi kuracos vian ĉevalon, tion li aldonis. Kaj li ŝovis sin pli malantaŭen sur la barelo, kaj li ŝirmis la vizaĝon per la mano.
 
-Sĝmund efektive iris rekte al li kaj diris al li mallaŭ-
-
-te, sed en timiga tono,
+Sĝmund efektive iris rekte al li kaj diris al li mallaŭte, sed en timiga tono,
 
 —Vi estas fia . . .
 
 —Sĝmund! aŭdiĝis el la angulo ĉe la forno. Estis Ingeborg, la edzino, kiu trankviligis lin, same kiel ŝi trankviligis la suĉinfanon, kiu timis kaj emis plori. La infano silentis kaj nun ankaŭ silentis Sĝmund. Sed li tamen metis sian por tiel fortika viro tre malgrandan pugnon precize sub la nazon de Aslak kaj tenis ĝin tie momenton, dume li antaŭen klinis sin kaj rigardis lin fikse per ardantaj okuloj. Poste li denove tien kaj reen iradis en la ĉambro, kaj rapide rigardis al li jen kaj jen. Aslak estis tre pala. Malgraŭ tio li ridis per la duona vizaĝo al Torbjĝrn; la flankon al Sĝmund li tenis tre serioza.
 
 —La bona Dio donu al ni paciencon, li diris iom poste, sed samtempe levis la kubuton kvazaŭ li volus haltigi baton.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Sĝmund abrupte haltis kaj kriis plenvoĉe, dum li piedbatis la plankon:
@@ -381,9 +316,7 @@ absolute!
 
 —Sĝmund! Sĝmund! petetis Ingeborg. Sed antaŭ ol tio atingis lin, li jam saltegis al Aslak, kiu etendis piedon antaŭ si. i estis suben premita, la bubo kaptita je ĝi kaj la jakkolumo, levita kaj tiel ĵetita kontraŭ la fermita pordo, ke la kadro elfalis kaj li transkapiĝis tra ĝi. La edzino, Torbjĝrn, ĉiuj infanoj kriis kaj petis por li, la tuta familio lamentadis.
 
-Sed Sĝmund sekvis lin, eĉ ne korekte malfermis la pordon, sed puŝis flanken la restajn erojn, kaptis lin duan fojon kaj portis lin el la koridoro en la korton, levis lin alten kaj ĵetis lin tutforte malsupren. Kaj kiam li konstatis, ke la multa neĝo mildigis la falon, li metis genuon sur lian bruston kaj batis lin meze en la vizaĝon, levis lin trian fojon, portis lin — kiel lupo trenas ŝiritan hundon — al ne neĝkovrita loko, ĵetis lin denove, eĉ pli forte ol antaŭe, remetis la genuon sur lin . . . kaj neniu 17
-
-SYNNØVE SOLBAKKEN
+Sed Sĝmund sekvis lin, eĉ ne korekte malfermis la pordon, sed puŝis flanken la restajn erojn, kaptis lin duan fojon kaj portis lin el la koridoro en la korton, levis lin alten kaj ĵetis lin tutforte malsupren. Kaj kiam li konstatis, ke la multa neĝo mildigis la falon, li metis genuon sur lian bruston kaj batis lin meze en la vizaĝon, levis lin trian fojon, portis lin — kiel lupo trenas ŝiritan hundon — al ne neĝkovrita loko, ĵetis lin denove, eĉ pli forte ol antaŭe, remetis la genuon sur lin . . . kaj neniu
 
 
 povus diri, kiel ĉio finiĝus, se Ingeborg ne estus enmik-sinta sin kun la bebo sur la brako. — Ne malfeliĉigu nin, ŝi kriis. Iom poste Ingeborg sidis en la ĉambro, Torbjĝrn vestis sin, la patro ree iradis: tien . . . reen, trinkis jen kaj jen iom da akvo, sed la mano tiel tremis, ke la akvo fluis planken trans la tasrandon. Aslak ne envenis, kaj Ingeborg iom poste faris kvazaŭ ŝi volus eliri.
@@ -393,9 +326,6 @@ povus diri, kiel ĉio finiĝus, se Ingeborg ne estus enmik-sinta sin kun la bebo
 Tempeton pli malfrue li tamen mem iris. Li ne revenis. Torbjĝrn prenis sian libron kaj legis senĉese, sen levi la okulojn, kvankam li ne komprenis eĉ unu vorton.
 
 Baldaŭ la vivo en la domo ree ruliĝis sur la kutimaj reloj; kvankam la loĝantoj havis la senton kvazaŭ neŝatata gasto estus irinta. Torbjĝrn kuraĝis eliri kaj la unua, kiun li renkontis ekstere, estis Aslak. Tiu ŝarĝis sledon per siaj objektoj, sed la sledo apartenis al Torbjĝrn. Torbjĝrn gapis al li, ĉar li aspektis terura. Sango gluiĝis kaj sur la vizaĝo kaj sur la vestoj. Li tusis kaj ofte palpis sian bruston. Momenton li silente rigardis Torbjĝrn kaj tiam li kriis. — Mi ne ŝatas viajn okulojn, knabo! ĉe tiuj vortoj li eksidis sur la sledo kaj veturis malsupren. — Vi ne tre baldaŭ revidos vian sledon! li diris kaj ridaĉis. Ankoraŭfoje li turnis sin kaj montris la langon . . . Tiel vo-jaĝis Aslak.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Sed en la posta semajno venis la policisto al Granlien.
@@ -433,24 +363,16 @@ Iom poste Ingeborg uzis fivorton. Oni alvokis Torbjĝrn, kaj Sĝmund diris, ke e
 La sekvintan diservodimanĉon la patro diris al li.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Hodiaŭ vi ne havos okazon petoladi hejme; vi iru kun mi preĝejen!
 
 
-SYNNØVE SOLBAKKEN
-
-
-DUA ĉAPITRO
+DUA ĈAPITRO
 
 La preĝejo okupas altan rangon en la animo de kamparano; soleca kaj sankta ĝi staras . . . ekstere la solena silento de la tombejo, interne la viveca diservo. i estas la sola domo en la valo, kiun li pompe ekipis, kaj tial la turpinto ŝajnas pli alta ol ĝi reale estas. iaj sonoriloj jam de malproksime sendas al li sian saluton, kiam li en klara dimanĉmateno pilgrimas al ĝi; kaj ĉiam, kiam li aŭdas ilian sonoradon, li levas sian ĉapon, kvazaŭ li volus diri al ili: — Dankon pro la antaŭa plezuro5.
 
 Ekzistas ligo inter li kaj ili, kiun neniu konas.
 
-Antaŭe Torbjĝrn staris en la malfermita pordo kaj aŭ-
-
-skultis ilian sonadon, dum malsupre sur la strato en silenta kolono pretermigris la preĝej-irantoj. La patro aliĝis al ili, sed li mem ankoraŭ estis tro juna. Li tiam ligis multajn bildojn al la fortaj sonplenaj tonoj, kiuj, e˛-
+Antaŭe Torbjĝrn staris en la malfermita pordo kaj aŭskultis ilian sonadon, dum malsupre sur la strato en silenta kolono pretermigris la preĝej-irantoj. La patro aliĝis al ili, sed li mem ankoraŭ estis tro juna. Li tiam ligis multajn bildojn al la fortaj sonplenaj tonoj, kiuj, e˛-
 
 ante de roko al roko, sonadis kelkajn horojn inter la montoj.
 
@@ -459,22 +381,13 @@ Tri pensoj neniam estis disigeblaj de la festa sonorado: . . . puraj, novaj vest
 5 Saluto tre kutima en la nordiaj landoj.
 
 
-SYNNØVE SOLBAKKEN
-
-
-Kaj kiam nun venas la dimanĉo, en kiu la sonoriloj sonoradas pri lia feliĉo kaj li en tute novaj, eble iom tro vastaj vestoj, flanke de sia patro la unuan fojon fiere paŝas al la preĝejo . . . tiam, jes, tiam estas ĝojo kaj feli-
-
-ĉo en iliaj tonoj! Ili malfermas al li la pordon al ĉio, kion li nun vidos. Kaj kiam sur la vojo hejmen la sonoriltonoj bruas super lia kapo, kiu ankoraŭ estas peza kaj s-pa de la kantoj, la meso, la prediko . . . kio flanken ŝovi-
+Kaj kiam nun venas la dimanĉo, en kiu la sonoriloj sonoradas pri lia feliĉo kaj li en tute novaj, eble iom tro vastaj vestoj, flanke de sia patro la unuan fojon fiere paŝas al la preĝejo . . . tiam, jes, tiam estas ĝojo kaj feliĉo en iliaj tonoj! Ili malfermas al li la pordon al ĉio, kion li nun vidos. Kaj kiam sur la vojo hejmen la sonoriltonoj bruas super lia kapo, kiu ankoraŭ estas peza kaj s-pa de la kantoj, la meso, la prediko . . . kio flanken ŝovi-
 
 ĝas de tio, kion li samtempe suĉis en sin per la okuloj; la altartabulo, la regionaj vestoj, la multaj homoj . . . tiam ekvolbiĝas por ĉiam kupolo super ĉi tiuj multspecaj im-presoj kaj la eta preĝejo, kiun li de nun portas en sia koro, estas inaŭgurita.
 
 Iom pli aĝa, li devas paŝti la brutaron en la montaro.
 
-Sed kiam li, kun sia bestaro profunde sub si, en la bela, rosplena dimanĉmateno sidas sur la rokoj, kaj se tiam la muĝantaj tonoj de la preĝejsonoriloj superondante la sonoradon de lia brutaro, penetras al li, tiam sopiro kap-tas lian koron. ĉar kun tiuj tonoj venas de malsupre serenaj, agrablaj, tentaj pensoj . . . pensoj pri la konatoj, kiujn oni renkontas en la preĝejo, pri la ĝojo, kiam oni estas tie . . . pri la eĉ pli granda ĝojo post la reveno pro la bonaj manĝaĵoj hejme, pri la gefratoj kaj gepatroj, pri la gajaj ludoj sur la verda herbejo en la serenaj dimanĉ-
-
-vesperoj; kaj la eta koro iĝas ribela en la brusto. Tamen fine ĉiam revenas la penso, ke estas la preĝejaj sonori-22
-
-SYNNØVE SOLBAKKEN
+Sed kiam li, kun sia bestaro profunde sub si, en la bela, rosplena dimanĉmateno sidas sur la rokoj, kaj se tiam la muĝantaj tonoj de la preĝejsonoriloj superondante la sonoradon de lia brutaro, penetras al li, tiam sopiro kap-tas lian koron. ĉar kun tiuj tonoj venas de malsupre serenaj, agrablaj, tentaj pensoj . . . pensoj pri la konatoj, kiujn oni renkontas en la preĝejo, pri la ĝojo, kiam oni estas tie . . . pri la eĉ pli granda ĝojo post la reveno pro la bonaj manĝaĵoj hejme, pri la gefratoj kaj gepatroj, pri la gajaj ludoj sur la verda herbejo en la serenaj dimanĉvesperoj; kaj la eta koro iĝas ribela en la brusto. Tamen fine ĉiam revenas la penso, ke estas la preĝejaj sonori-22
 
 
 loj, kiuj sonoradas. Li meditas kaj fine trovas en la memoro verson el iu psalmo. Li kantas la verson kaj sendas karesan rigardon valen, aldonas mallongan preĝon, ek-staras, estas feliĉa kaj blovas sian kornon tiel, ke eąs vaste en la montaro.
@@ -487,9 +400,7 @@ Ne estas eble skizi norvegajn kamparanojn, ĉu bonajn
 
 . . . ĉu malbonajn, sen iel aŭ tiel tuŝi la preĝejon. Eble tio estas monotona, sed tia monotoneco eble ne estas plej malbona. Tio estu dirita por nun kaj ĉiam, sed ne tute speciale pro la preĝejvizito, kiu nun sekvos.
 
-Torbjĝrn sentis grandan ĝojon pro la promeno al la preĝejo kaj la rigardo al ĉiuj novaj aferoj. Ekstere antaŭ la preĝejo liaj okuloj blindiĝis pro la miriga diverseco de koloroj; interne li sentis sin premata de la profunda silento, kiu kovris ĉiujn kaj ĉion antaŭ la komenco de la 23
-
-SYNNØVE SOLBAKKEN
+Torbjĝrn sentis grandan ĝojon pro la promeno al la preĝejo kaj la rigardo al ĉiuj novaj aferoj. Ekstere antaŭ la preĝejo liaj okuloj blindiĝis pro la miriga diverseco de koloroj; interne li sentis sin premata de la profunda silento, kiu kovris ĉiujn kaj ĉion antaŭ la komenco de la
 
 
 meso; kaj kvankam li mem forgesis klini la kapon, kiam oni komencis legi la preĝon, li tuj klinis ĝin je la ekvido de la multaj centoj da kliniĝintaj kapoj. Nun komenciĝis kanto, kaj la kredantaro subite ekkunkantis tiel, ke li preskaŭ sentis timon. Tiel enpense li sidis, ke li ekrek-tiĝis kvazaŭ dorminte, kiam oni malfermis la seĝarejon kaj iu eniris. Post la finiĝo de la kanto la patro donis la manon al la veninto kaj demandis:
@@ -500,9 +411,7 @@ Torbjĝrn faris grandajn okulojn. Sed kiom li ankaŭ rigardis la viron, estis al
 
 —Jen vi povas vidi Synnĝve, diris la patro, kliniĝante al Torbjĝrn, prenante lin sur la genuojn kaj montrante al la vidalvida virinseĝarejo. ŝi estis eĉ pli blonda ol la fremda viro . . . tiel blonda, kiel li ankoraŭ neniun vidis.
 
-ŝi havis ruĝajn, flirtantajn rubandojn sur la kapuĉeto, el sub kiu ŝiaj flavblondaj haroj videbliĝis, kaj ridis nun tiel gaje al li, ke li tutan tempeton ne povis rigardi al io alia ol al ŝiaj blankaj dentoj. ŝi tenis en unu mano belan kantaron kaj en la alia falditan poŝtukon de ruĝflava silko, kaj ŝi amuziĝis per tio, ke ŝi batis per la poŝtuko la kantaron. Ju pli li rigardis, des pli ŝi ridis, kaj nun li volis, kiel 24
-
-SYNNØVE SOLBAKKEN
+ŝi havis ruĝajn, flirtantajn rubandojn sur la kapuĉeto, el sub kiu ŝiaj flavblondaj haroj videbliĝis, kaj ridis nun tiel gaje al li, ke li tutan tempeton ne povis rigardi al io alia ol al ŝiaj blankaj dentoj. ŝi tenis en unu mano belan kantaron kaj en la alia falditan poŝtukon de ruĝflava silko, kaj ŝi amuziĝis per tio, ke ŝi batis per la poŝtuko la kantaron. Ju pli li rigardis, des pli ŝi ridis, kaj nun li volis, kiel
 
 
 ŝi, ankaŭ genui sur la benko. Tiam ŝi mute kapjesis al li.
@@ -520,18 +429,13 @@ Sed nun li mem sentis sin kaptita je la kolo kaj levita kiel sako da pajlo . . .
 —Se ni ne estus en la preĝejo, vi nun ricevus batojn, li flustris en lian orelon, kaj dume li premis lian manon, tiel ke doloris ĝis en liajn piedfingrojn.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Nun li memoris pri Synnĝve kaj rigardis transen. ŝi ankoraŭ staris tie, sed tiel rigide kaj konfuzite, ke li komprenis, ke li faris ion tre malbonan. Tuj kiam ŝi observis, ke li rigardas al ŝi, ŝi rampis de la benko kaj ne plu montris sin. Tiam aperis la pedelo . . . poste la pastro. Li apenaŭ rigardis kaj aŭdis ilin. Kaj ree venis la pedelo kaj ree sekvis la pastro. Li ankoraŭ sidis sur la genuoj de la patro kaj pensis. — ĉu ŝi baldaŭ ree levos la okulojn? La knabo, kiu tiris lin de la benko, sidis sur tabureto en la alia angulo de la seĝarejo, kaj tuj, se li volis levi sin, li ricevis puŝon en la dorson de maljunulo, kiu sidis kaj dormetis, sed aŭtomate vekiĝis, ĉiam kiam la etulo ekemis levi sin.
 
 —ĉu ŝi nun baldaŭ ree rigardos? pensis Torbjĝrn, kaj ĉiu ruĝa rubando, kiu movis sin en lia proksimo, me-morigis lin al tiuj, kiujn ŝi portis; kaj ĉiu bele pentrita bildo en la malnova preĝejo estis aŭ egale granda kiel ŝi aŭ iom pli malgranda. Ho! jen ŝi elŝovas la kapeton, sed apenaŭ vidinte lin, ŝi serioze retiris ĝin . . .
 
 Ankoraŭfoje elpaŝis la pedelo kaj la pastro, la sonoriloj ekparolis kaj la kredantaro leviĝis.
 
-La patro denove parolis kun la blonda viro, ili kune iris al la seĝarejo de la virinoj, kie oni ankaŭ levis sin. La unua, kiu elpaŝis estis blonda virino. ŝi ridetis kiel la fremda viro, sed ne tute tiel serene. ŝi estis malalta kaj pala kaj tenis Synnĝve ĉe la mano. Torbjĝrn tuj rapidis 26
-
-SYNNØVE SOLBAKKEN
+La patro denove parolis kun la blonda viro, ili kune iris al la seĝarejo de la virinoj, kie oni ankaŭ levis sin. La unua, kiu elpaŝis estis blonda virino. ŝi ridetis kiel la fremda viro, sed ne tute tiel serene. ŝi estis malalta kaj pala kaj tenis Synnĝve ĉe la mano. Torbjĝrn tuj rapidis
 
 
 rekte al ŝi, sed ŝi fuĝis antaŭ li kaj kaŝis sin malantaŭ la vesto de la patrino.
@@ -565,12 +469,7 @@ Torbjĝrn proksimiĝis al ŝi kaj rigardis ŝin; kaj nun ili staris momenton kaj
 —Kion do mi krimis?
 
 
-SYNNØVE SOLBAKKEN
-
-
-—Vi batalis en la preĝejo, kaj eĉ kiam la pastro voĉ-
-
-preĝis . . . fi!
+—Vi batalis en la preĝejo, kaj eĉ kiam la pastro voĉpreĝis . . . fi!
 
 —Jes, sed tio estis antaŭ longe.
 
@@ -597,18 +496,13 @@ Synnĝve haltis kaj tiam ŝi revenis malantaŭen irante, kaj ŝiaj grandaj, blua
 —ĉu estas vere, ke ĉe vi svarmas koboldoj, sorĉistinoj kaj malbonaj fantomoj? li demandis, apogis manon en la flankon, antaŭen metis unu piedon kaj tenis sin sur la alia . . . ekzakte kiel li tion vidis ĉe Aslak.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Panjo, panjo! ĉu vi scias, kion li diris? Li diris . . .
 
 —Ne malhelpu min . . . obeu nun! Kaj ne venu ĉi tien antaŭ ol mi vokos vin!
 
 Jam denove ŝi devis, malantaŭen paŝante, malrapide foriri. ŝi prenis angulon de la tuko en la buŝon, mordis kaj tiris ĝin.
 
-—ĉu ne estas vere, ke oni tie transe en la montaro aŭ-
-
-das ĉiunokte muzikon?
+—ĉu ne estas vere, ke oni tie transe en la montaro aŭdas ĉiunokte muzikon?
 
 —Ne!
 
@@ -631,9 +525,6 @@ das ĉiunokte muzikon?
 —Nu, tion mi ne scias.
 
 —ĉe ni estas la patro. Li estas tiel forta, ke li eĉ bategis Aslak; kaj tion vi povas kredi, Aslak estas forta.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —ĉu . . . u?
@@ -675,9 +566,6 @@ Tiu raporto tute kontentigis lin.
 Nun ŝi memoris, ke ŝi ne malhelpu panjon.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Vi povas kredi al mi, ke mi havas egan aron da ŝafoj, ŝi diris, returninte sin al li.
 
 —ĉu . . . ĉu vi vere havas?
@@ -715,9 +603,6 @@ Jes, tion li certe faros.
 Tio ŝajnis ankaŭ al li plej saĝa, kaj nun ili ekrakontis pri siaj komunaj gekonatoj, ili ne havis multajn. La gepatroj finparolis kaj nun oni iris hejmen.
 
 
-SYNNØVE SOLBAKKEN
-
-
 En la posta nokto li sonĝis pri Solbakken. Estis al li, kvazaŭ li vidus tie nenion krom blankajn ŝafidojn kaj blondan knabineton kun ruĝaj rubandoj, kaj ŝi paŝadas inter ili. Ingrid kaj li parolis ĉiutage pri la planita vizito, kaj en la fantazio ili atendis tiom da ŝafidoj kaj porkidoj, ke ili tute ne sciis, kiel ili mastrumu ilin. Baldaŭ ili miris, ke ili ne rajtas tuj iri transen.
 
 —ĉu, ĉar la etulineto invitis vin? demandis la patrino.
@@ -741,9 +626,6 @@ Ingrid tre malpacience atendis lian revenon, kiam li venis, li rakontis al ŝi k
 Ingrid diris nenion. Sed de tiu momento ŝi kaj la patrino admonis lin, se li ekfanfaronis aŭ blasfemis. Iun tagon tamen li kaj Ingrid disputis, ĉu la esprimo ”La hundo eniru min”, estas blasfemo aŭ ne. Ingrid ricevis batojn kaj li nun diris la tutan tagon ”La hundo eniru min!” Sed vespere la patro aŭdis tion.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Jes, ĝi eniru vin, li diris kaj donis al li puŝon, tiel ke li falis. Torbjĝrn forte hontis, des pli ĉar Ingrid ĉeestis, sed post tempeto ŝi venis al li kaj karesis lin.
 
 Post kelkaj monatoj ili ambaŭ iris transen al Solbakken. Pli poste Synnĝve venis al ili, sekve de tio ili ree vizitis ŝin, kaj tiel daŭris ĝis kiam ili estis plenkreskuloj.
@@ -754,12 +636,7 @@ Da tempo al tempo okazis, ke Torbjĝrn kaŭzis ĉagre-non al Synnĝve, ĉar li e
 
 Sed se la patrino de Synnĝve aŭdis pri interbatalo, li ne rajtis veni al Solbakken en tiu semajno, kaj ofte en la posta nur kun granda peno. Al Sĝmund neniu rakontis ion. — Li estas tro severa al la knabo, diris lia edzino, kaj ŝi silentigis ĉiujn.
 
-Kiam ili nun plimaturiĝis, ĉiuj tri estis belaj infanoj, ĉiu laŭ sia maniero. Synnĝve iĝis alta kaj gracila. ŝi havis helblondajn harojn kaj delikatan, radiantan vizaĝon kaj trankvilajn, bluajn okulojn. ŝi ridetis, kiam ŝi paro-33
-
-SYNNØVE SOLBAKKEN
-
-
-lis, kaj la homoj diris, ke estas beno esti en la cirklo de tiu rideto.
+Kiam ili nun plimaturiĝis, ĉiuj tri estis belaj infanoj, ĉiu laŭ sia maniero. Synnĝve iĝis alta kaj gracila. ŝi havis helblondajn harojn kaj delikatan, radiantan vizaĝon kaj trankvilajn, bluajn okulojn. ŝi ridetis, kiam ŝi parolis, kaj la homoj diris, ke estas beno esti en la cirklo de tiu rideto.
 
 Ingrid estis pli malalta kaj rondeta, ŝi havis eĉ pli helajn harojn kaj tre etan, rondan vizaĝon kaj molajn trajtojn. Torbjĝrn iĝis mezalta, sed li estis de bela kaj forta staturo. Li havis malhelan hararon, ege bluajn okulojn, akrajn trajtojn kaj fortikajn membrojn. Kiam li furioziĝis, li kutimis diri, ke li povas legi kaj skribi same bone kiel la instruisto, kaj ke li timas neniun homon en la valo. — Escepte de la patro, li pensis, sed tion li ne diris.
 
@@ -780,9 +657,6 @@ Ne estis mirige, ke jam alvenis kelkaj svatemuloj. Unu estis filo de altrangulo,
 Synnĝve mem ne aŭdis pri tio.
 
 
-SYNNØVE SOLBAKKEN
-
-
 La sinjorinoj en la pastrejo tiel ŝatis Synnĝve, ke ili envenigis ŝin por babili kun ŝi. Ingrid kaj Torbjĝrn restis ekstere ĉe la aliaj, kaj kiam unu knabo diris al li: —
 
 Kial ankaŭ vi ne eniris? Ili kaptos ŝin for de antaŭ via nazo, tiu petolaĵo enspezigis al tiu bluan okulon. De nun estis kutimo inter la knaboj moki lin pri Synnĝve. Montriĝis, ke nenio alia tiel povis tikli lian furiozon.
@@ -791,16 +665,9 @@ Kaŭzita de tiuj moketadoj finfine ekestis ega interbatalo en arbaro proksime al
 
 Pli kaj pli da kontraŭuloj ekatakis lin. Li devis defendi sin kiel eble plej bone. Multaj batoj disdoniĝis. Tiuj poste mem rakontis, kio okazis. La kaŭzo de la batalo koniĝis kaj multe de klaĉado estis en la paro˛o.
 
-La venintan dimanĉon Torbjĝrn ne volis iri al la pre-
+La venintan dimanĉon Torbjĝrn ne volis iri al la preĝejo, kaj kiam li la proksiman fojon estis ironta al la pastro, li ŝajnigis malsanon. Ingrid do iris sola. ĉe la reveno li demandis ŝin, kion Synnĝve diris. — Nenion, estis la respondo.
 
-ĝejo, kaj kiam li la proksiman fojon estis ironta al la pastro, li ŝajnigis malsanon. Ingrid do iris sola. ĉe la reveno li demandis ŝin, kion Synnĝve diris. — Nenion, estis la respondo.
-
-Kiam li ree kuniris, li kredis, ke ĉiuj homoj rigardas lin kaj ke la gekonfirmotoj sekrete priridas lin. Sed Synnĝ-
-
-ve venis pli malfrue ol la aliaj kaj tiun tagon ŝi estis longe ĉe la pastra familio.
-
-
-SYNNØVE SOLBAKKEN
+Kiam li ree kuniris, li kredis, ke ĉiuj homoj rigardas lin kaj ke la gekonfirmotoj sekrete priridas lin. Sed Synnĝve venis pli malfrue ol la aliaj kaj tiun tagon ŝi estis longe ĉe la pastra familio.
 
 
 Li timis riproĉojn de la pastro, sed baldaŭ sentis, ke en la valo nur du homoj ne scias ion pri la interbatalo, lia patro kaj la pastro. Tiu flanko do estis en ordo, sed li multe cerbumis, kion li faru por denove paroli kun Synnĝve. Por la unuan fojon li ne kuraĝis peti Ingrid peradi inter ili. Kiam la lecionoj finiĝis, Synnĝve reiris en la pastran domon. Li atendis tiom longe kiom aliaj estis en la korto, sed fine ankaŭ li devis iri. Ingrid iris jam kun la unuaj.
@@ -816,9 +683,6 @@ Torbjĝrn encerbigis tion.
 Kiam Synnĝve elvenis al la aliaj, ili estis eĉ pli ĝenti-laj ol ĝenerale. Sed ŝi iris tuj al Ingrid, salutis ŝre kaj petis ŝin iri kun ŝi al la herbejo. Tie ili eksidis. Jam longan tempon ili ne interparolis senĝene. Torbjĝrn restis inter la aliaj kaj rigardis la belajn, eksterlandajn florojn de Synnĝve.
 
 Tiun tagon Synnĝve tuj hejmen iris kun la aliaj.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —ĉu mi portu la florojn por vi? demandis Torbjĝrn.
@@ -839,13 +703,9 @@ La tutan vojon li havis la firman volon peti permeson planti la florojn por ŝi.
 
 Kiam ĉiuj estis en la litoj, Torbjĝrn revestis sin kaj eliris. Estis bela vespero, trankvila kaj milda. La ĉielo havis vualon de blu-grizaj nuboj, tie kaj ie ŝiritaj, tiel ke aspektis kvazaŭ iu rigardus malsupren el la profunda bluo kiel el okulo.
 
-Neniu homo estis videbla en la bieno aŭ en la ĉirkaŭ-
+Neniu homo estis videbla en la bieno aŭ en la ĉirkaŭaĵo. Sed ĉiuflanke muzikadis en la herbo la akridoj, per-driko knaris dekstre, de maldekstre respondis alia kaj nun komenciĝis en la herbo kantado de unu loko al alia, kvazaŭ li estus akompanata de granda eskorto, kvankam nenio estis videbla.
 
-aĵo. Sed ĉiuflanke muzikadis en la herbo la akridoj, per-driko knaris dekstre, de maldekstre respondis alia kaj nun komenciĝis en la herbo kantado de unu loko al alia, kvazaŭ li estus akompanata de granda eskorto, kvankam nenio estis videbla.
-
-La arbaro etendiĝis blua, kaj pli malantaŭe malhela kaj pli malhela ĝis al la montokresto . . . kiel granda maro en nebulo. Sed el ĝia interno li aŭdis la galon ludi 37
-
-SYNNØVE SOLBAKKEN
+La arbaro etendiĝis blua, kaj pli malantaŭe malhela kaj pli malhela ĝis al la montokresto . . . kiel granda maro en nebulo. Sed el ĝia interno li aŭdis la galon ludi
 
 
 al siaj propraj notoj kaj solecan strigon krii, dum la akvofalo kantis siajn pratempajn, malmolajn versojn, li kantis pli laŭte ol iam, nun kiam ĉio kuŝiĝis por aŭskulti lin. Torbjĝrn rigardis transen al Solbakken kaj paŝis plu.
@@ -856,9 +716,7 @@ Li forlasis la ordinaran vojon, iris rekte antaŭen kaj baldaŭ staris en la mal
 
 . . . ĉi tie vira brako estas necesa, li pensis kaj tuj ekla-boris. Li ne sentis eĉ la plej etan emon dormi, kaj neniam laboro ŝajnis al li tiel facila. Li memoris kiel la floroj estu plantitaj, memoris ankaŭ la pastran ĝardenon kaj aranĝis ĉion bonorde.
 
-La nokto pasis, sed li tion ne rimarkis. Apenaŭ li permesis al si ripozeton, baldaŭ la tuta bedo estis fosita, la floroj plantitaj kaj unu kaj alia translokigitaj, se ili tiel konformis pli bone. De tempo al tempo li sendis rigar-deton al la subtegmenta fenestro, por vidi, ĉu ne tamen iu observas lin. Sed nek tie nek aliloke iu videbliĝis, ja eĉ hundon li ne aŭdis boji. Forta silento regis ĉirkaŭe ĝis 38
-
-SYNNØVE SOLBAKKEN
+La nokto pasis, sed li tion ne rimarkis. Apenaŭ li permesis al si ripozeton, baldaŭ la tuta bedo estis fosita, la floroj plantitaj kaj unu kaj alia translokigitaj, se ili tiel konformis pli bone. De tempo al tempo li sendis rigar-deton al la subtegmenta fenestro, por vidi, ĉu ne tamen iu observas lin. Sed nek tie nek aliloke iu videbliĝis, ja eĉ hundon li ne aŭdis boji. Forta silento regis ĉirkaŭe ĝis
 
 
 kiam la virkoko ekkikerikis kaj vekis la birdojn en la arbaro. Tiuj nun unu post alia leviĝis kaj kantis sian ”Bonan matenon!” Kiam li staris kaj glatigis la teron, li memoris la historietojn, kiujn Aslak pli frue rakontis al li, kaj ke li iam kredis, ke sur Solbakken vivas sorĉistinoj kaj koboldoj.
@@ -866,10 +724,7 @@ kiam la virkoko ekkikerikis kaj vekis la birdojn en la arbaro. Tiuj nun unu post
 Li rigardis alten al la fenestreto kaj ridetis. — Kion pensos Synnĝve, kiam ŝi en frumatena horo venos rigardi siajn florojn . . . ? Jam estis tre hele kaj la birdoj faris egan bruon . . . Li levis sin trans la heĝon kaj rapidis hejmen. Ja . . . nun nur iu kuraĝu diri, ke estis li, kiu estis tie transe kaj plantis la florojn en la ĝardeno de Synnĝve Solbakken.
 
 
-SYNNØVE SOLBAKKEN
-
-
-TRIA ĉAPITRO
+TRIA ĈAPITRO
 
 Baldaŭ multaj famoj rakontiĝis en la valo, sed neniu sciis ion certan. Neniam plu oni vidis Torbjĝrn sur Solbakken, de kiam li kaj Synnĝve konfirmiĝis, kaj ĝuste tion la homoj komprenis plej malfacile. Ingrid ofte iris transen, kaj tiam ŝi kaj Synnĝve kutime faris longajn promenadojn en la arbaro.
 
@@ -890,9 +745,6 @@ Tiu demando venis al Synnĝve tiel neatendite, ke ŝi ruĝiĝis.
 —ĉu vi al iu donis vian jeson? daŭrigis la patrino kaj rigardis ŝin esplore.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Ne, respondis Synnĝve rapide.
 
 Poste oni ne plu parolis pri tiu afero.
@@ -907,16 +759,12 @@ En la preĝejo Torbjĝrn sidis kontraŭe de ŝi, sed neniam ili interparolis, la
 
 Sed memoru, ke la mia eble estas pli forta.
 
-Aŭtuno kaj vintro pasis, la printempo jam anoncis sin, kaj ankoraŭ la homoj ne sciis ion certan. Cirkulis tiel multaj onidiroj pri la rifuzoj, kiujn Synnĝve disdonis, ke oni lasis ŝin iri sian vojon. Sed Ingrid konstante estis ĉir-kaŭ ŝi. La du nunjare estos kune sur la montarpaŝtejo, 41
-
-SYNNØVE SOLBAKKEN
+Aŭtuno kaj vintro pasis, la printempo jam anoncis sin, kaj ankoraŭ la homoj ne sciis ion certan. Cirkulis tiel multaj onidiroj pri la rifuzoj, kiujn Synnĝve disdonis, ke oni lasis ŝin iri sian vojon. Sed Ingrid konstante estis ĉir-kaŭ ŝi. La du nunjare estos kune sur la montarpaŝtejo,
 
 
 ĉar Guttorm Solbakken aĉetis parton de la paŝtejo, kiu apartenas al Granlien. Oni aŭdis Torbjĝrn kanti en la montaro. Tie li ordigis kelkajn aferojn por la fraŭlinoj.
 
-Iun tagon, kiam li estis fininta sian laboron, kaj la vespero jam alvenis, li eksidis kaj meditis, speciale pri la famoj, kiuj kolportiĝis en la valo. Li surdorsiĝis en la ruĝ-
-
-bruna eriko. Kun la manoj sub la kapo li rigardis supren al la ĉielo, kiu malhelblua volbiĝis super densaj branĉaroj. La verdaĵo de folio- kaj pinglo-arboj kunfluis en tre-mantan amason, kaj la nigraj branĉoj, kiuj trairis ĝin, formis en ĝi sovaĝe fantaziajn skizojn. Sed la ĉielo mem vidiĝis nur, se folio bloviĝis flanken, kvankam iom pli malproksime, tie kie la branĉaroj ne atingis unu la alian,
+Iun tagon, kiam li estis fininta sian laboron, kaj la vespero jam alvenis, li eksidis kaj meditis, speciale pri la famoj, kiuj kolportiĝis en la valo. Li surdorsiĝis en la ruĝbruna eriko. Kun la manoj sub la kapo li rigardis supren al la ĉielo, kiu malhelblua volbiĝis super densaj branĉaroj. La verdaĵo de folio- kaj pinglo-arboj kunfluis en tre-mantan amason, kaj la nigraj branĉoj, kiuj trairis ĝin, formis en ĝi sovaĝe fantaziajn skizojn. Sed la ĉielo mem vidiĝis nur, se folio bloviĝis flanken, kvankam iom pli malproksime, tie kie la branĉaroj ne atingis unu la alian,
 
 ĝi elvenis kiel larĝa rivero kaj fluadis en pitoreskaj kur-boj. Tio agordis lian animon, kaj li ekpensis pri tio, kion li vidas.
 
@@ -927,9 +775,6 @@ La betulo ree ridis per mil okuloj supren al la pino; la abio staris tie en sile
 esploris la abio, ventumadis sin kaj ŝvitis rezinon en la netolerebla varmo. — Estas tro, vere! — Tiel norde, fi!
 
 
-SYNNØVE SOLBAKKEN
-
-
 Sed jen staris maljuna, grizkapa abio, kiu, ĉar ĝi povis rigardi trans ĉiujn, sukcesis meti multfingran branĉon vertikale malsupren kaj kapti petoleman aceron ĉe gia foliara supro, tiel ke ĝi ektremis eĉ en la genuoj. De ĉi tiu giganta abio homaj manoj ĉiam pli kaj pli alten forrabis la branĉojn, ĝis kiam iun tagon, ne plu ŝatante tian traktadon, ĝi subite kreskis tiel alten en la aeron, ke la malforta pino ĉe ĝia flanko ektimis kaj demandis la abion, ĉu tiu ankaŭ pensas pri la vintraj ventegoj.
 
 —ĉu mi pensas pri la vintraj ventegoj? respondis la abio kaj batis helpe de la norda vento la orelojn de la pino tiel, ke tiu preskaŭ perdis la ekvilibron, kaj tio estis vere terura. La fortika, malhela abio nun metis tiel fortan piedon en la teron, ke la piedfingroj en distanco de kvar metroj elteriĝis kaj eĉ tie estis pli dikaj ol la saliko je ĝia plej dika parto, kion ĉi tiu iun vesperon kun certa hontemo flustris al la lupolo, kiu ameme tenis ĝin en siaj brakoj. La estiminda abio bone konis sian forton kaj kriis provoke al la homoj, dum ĝi alte super ilia regno metis branĉon post branĉo en la sovaĝan aeron. — Nun rabu miajn branĉojn, se vi povas!
@@ -938,9 +783,7 @@ Sed jen staris maljuna, grizkapa abio, kiu, ĉar ĝi povis rigardi trans ĉiujn,
 
 —Mi pensas, ke mi invitu la reĝinon eksidi ĉi tie . . .
 
-ŝi estas graveda je kelkaj ovoj, kiujn ŝi deziras demeti, li 43
-
-SYNNØVE SOLBAKKEN
+ŝi estas graveda je kelkaj ovoj, kiujn ŝi deziras demeti, li
 
 
 aldonis pli mallaŭte, kaj li rigardis siajn nudajn piedojn, ĉar li hontis pri amaso da dolĉaj memoroj de jenaj unuaj printempaj tagoj, en kiuj oni duonfreneziĝas pro la unuaj varmaj sunradioj. Sed baldaŭ li levis denove la kapon kaj rigardis de sub la plumombrumitaj palpebroj supren al la nigraj rokrandoj, ĉu ne ie tie la reĝino ŝve-bas laceta kaj suferanta pro siaj ovoj. Li leviĝis supren kaj baldaŭ la abio vidis la paron alte en la klara, blua aero, kie ĝi veladis en la alteco de la plej alta montopin-to, priparolante siajn mastrumajn aferojn. La abio sentis iom da maltrankvilo. Kvankam ĝi jam estis tre fiera, sed pri nenio ĝi pli fierus ol se ĝi povus luli agloparon.
@@ -951,9 +794,7 @@ La abio eble eĉ pli ŝveliĝis . . . fakte estis neniu, kiu povus malhelpi ĝin
 
 Sed nun, kiam la la arboj vidis, kia honoro venis al la abia grandmoŝto, en la arbaro ekestis vigla babilo. Jen estis beleta, malalta betulo, kiu staris kaj spegulis sin en klara lageto kaj imagis, ke ĝi rajtas atendi iom da amo de grizblanka kanabeno, kiu kutimis tagmeze dormeti en
 
-ĝia branĉaro. i estis sendinta siajn odoretojn rekte en la beketon de la kanabeno kaj kaptinta per siaj folioj in-sektojn, por ke ĝi facile povu preni ilin, jes, por la varmaj tagoj ĝi eĉ plektis al ĝi malgrandan, densan, kun freŝa foliaro kovritan domon, kaj la kanabeno vere emis 44
-
-SYNNØVE SOLBAKKEN
+ĝia branĉaro. i estis sendinta siajn odoretojn rekte en la beketon de la kanabeno kaj kaptinta per siaj folioj in-sektojn, por ke ĝi facile povu preni ilin, jes, por la varmaj tagoj ĝi eĉ plektis al ĝi malgrandan, densan, kun freŝa foliaro kovritan domon, kaj la kanabeno vere emis
 
 
 instali sin tie por la somero. Sed nun la aglo ekloĝis sur la abia moŝto, kaj for devis iri la kanabeno. Kia mizero!
@@ -963,9 +804,6 @@ Li trilis karesan adiaŭmelodion, sed tute mallaŭte, por ke la aglo ne aŭdu.
 Ne pli agrabla estis la sorto de kelkaj etaj paseroj en sambuka arbusto. Ili tie ĝuis tre ĝojbruan vivon. La turdo, kiu tute proksime loĝis en frakseno, neniam ĝusta-tempe povis ekdormi, kaj tial ofte tiel koleriĝis, ke ĝi plej ĉagrene fivortis. Serioza pilaro en najbara arbo tiel ridis pri tio, ke ĝi preskaŭ transkape falis de sia branĉo. Sed nun ili vidis la aglon sur la granda abio. Kaj turdo kaj paseroj kaj pilaro kaj ĉio, kio povis flugi, devis foriĝi, sen volo aŭ elekto, trans kaj sub la branĉojn. Sed la turdo ĵuris forflugante, ke ĝi neniam plu ekloĝos tie, kie paseroj estas ĝiaj najbaroj.
 
 Tiel nun staris la arbaro en la serena sunbrilo, forlasi-ta, meditanta. La abia moŝto nun estu ĝia tuta ĝojo, sed estis mizera ĝojo. Timeme klinis sin la arboj ĉiufoje, kiam la norda vento blovis. La grandabio vipis la aeron per siaj gigantaj branĉoj, kaj la aglo ĉirkaŭsvebis ĝin, trankvila kaj digna, kvazaŭ estus nur aĉa ventpuŝo, kiu alportas al li iom da fibruo el la arbaro. Sed la tuta abifamilio estis en vigla humoro: eĉ ne unu el la membroj pripensis, ke ĝi mem ne lulos neston en ĉi tiu somero. — For! Flanken! ili diris. — Ni apartenas al la familio . . . !
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Pri kio vi pensas? demandis Ingrid . . . ŝi ridetante paŝis el inter kelkaj branĉoj, kiujn ŝi tenis flanken.
@@ -999,12 +837,7 @@ Torbjĝrn leviĝis.
 Li turnis sin al ŝi kaj ridis.
 
 
-SYNNØVE SOLBAKKEN
-
-
-—Trankviliĝu nur, li diris . . . Kiel dirite: multo fantomas en ies kapo . . . ĉu vi holdiaŭ parolis kun Synnĝ-
-
-ve?
+—Trankviliĝu nur, li diris . . . Kiel dirite: multo fantomas en ies kapo . . . ĉu vi holdiaŭ parolis kun Synnĝve?
 
 —Jes, ŝi jam venis al la paŝtejo.
 
@@ -1045,9 +878,6 @@ la birdo vekiĝas en tim’:
 —Vi parolu kun la patro pli ofte ol vi kutimas, ŝi diris afable. — Li tre ŝatas, ŝi aldonis.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Povas esti.
 
 —Li ofte parolas pri vi, kiam vi estas eksterdome.
@@ -1085,9 +915,6 @@ Ingrid silentis momenton; poste ŝi rondrigardis kaj daŭrigis:
 —Jes, ĝuste tie mi volas esti! Ne vane mi havas la nomon Torbjĝrn Granlien.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Li senŝeligis branĉon kaj nun li distranĉis ĝin en la mezo. Ingrid rigardis lin kaj iom heziteme demandis.
 
 —ĉu dimanĉe vi iros al Nordhaŭg?
@@ -1121,9 +948,6 @@ Li forĵetis la branĉerojn, metis la tranĉilon en la ingon kaj turnis sin al �
 —Aŭskultu! Ofte la tuta afero naŭzigas min. La homoj klaĉas pri ŝi kiel pri mi, ĉar nenio okazas malkaŝe. Kaj aliflanke: mi ja neniam iras transen al Solbakken . . . ĉar la gepatroj ne ŝatas min, ŝi diras. Mi ne rajtas viziti ŝin kiel la aliaj junuloj vizitas sian knabinon, ĉar ŝi estas unu el la piulinoj . . . tion vi sciu!
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Torbjĝrn, kriis Ingrid maltrankvile.
 
 Sed li daŭrigis.
@@ -1149,9 +973,6 @@ Neniu rigardis al Synnĝve.
 Kaj ŝi sidiĝis. Torbjĝrn turnis la kapon kvazaŭ li volus vidi, ĉu estas seke tie, kie ŝi sidiĝos. Ingrid estis direk-tinta la okulojn al Granlien, kaj subite ŝi ekkriis:
 
 —ĉu eble! ĉu eble! Fagerlin ŝiris la ligilon kaj paŝtas sin en la juna trifolio . . . la aĉa besto! Kaj, ĉu Kelleros ankaŭ? Ne, tio tamen estas tro multe! Vere estas tempo peli la brutaron al la montarpaŝtejo.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Kaj ŝi eksaltis kaj forkuris, malsupren laŭ la deklivo, eĉ sen adiaŭo.
@@ -1191,9 +1012,6 @@ Kaj kiam li pli precize observis, li vidis, ke ŝi ploras.
 Li ne sciis, kion fari aŭ diri kaj tial elbuŝigis la vortojn.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Mi certe estis tro rigora.
 
 Tio diriĝis tre milde. ŝi rigardis teren kaj duone forturniĝis.
@@ -1223,9 +1041,6 @@ Nun ŝi ploris eĉ pli forte ol antaŭe kaj klopodis liberiĝi.
 —Venu, ni iom interparolu, li diris kaj lasis ŝin sidiĝi en la erikaro. Li mem eksidis apud ŝi.
 
 ŝi sekigis siajn okulojn kaj provis ridi, sed tio ne volis tute sukcesi. Li prenis unu el ŝiaj manoj kaj rigardis en ŝian vizaĝon.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Kara Synnĝve, kial mi ne venu transen al Solbakken?
@@ -1261,9 +1076,6 @@ Tiam li aŭdis apud si flustri:
 Li metis sian brakon ĉirkaŭ ŝi kaj premis ŝin firme al si.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Parolu kun viaj gepatroj, li flustris. — Kaj vi spertos, ke ĉio ordiĝos bone.
 
 —ĉio dependas de vi, ŝi diris mallaŭte.
@@ -1293,14 +1105,9 @@ Nun eklumiĝis al li. Li nun tre klare vidis, kiel ŝi ron-diris sur Solbakken, 
 —Eble ne, ĉar . . . mi ne kuraĝis.
 
 
-SYNNØVE SOLBAKKEN
-
-
 La ideo, ke ŝi povus timi lin, tiel tuŝis lin, ke li unuan fojon en sia vivo donis al ŝi kison.
 
-Nun ŝi tre ŝanĝiĝis. La plorado subite ĉesis, ŝiaj okuloj estis maltrankvilaj. ŝi provis rideti, rigardis antaŭ sin kaj fine levis la okulojn al li, sed nun ŝi vere ridetis. Ili ne plu parolis, sed iliaj manoj renkontiĝis . . . neniu kura-
-
-ĝis premi. ŝi returnis sin kaj sekigis la okulojn kaj la viza-
+Nun ŝi tre ŝanĝiĝis. La plorado subite ĉesis, ŝiaj okuloj estis maltrankvilaj. ŝi provis rideti, rigardis antaŭ sin kaj fine levis la okulojn al li, sed nun ŝi vere ridetis. Ili ne plu parolis, sed iliaj manoj renkontiĝis . . . neniu kuraĝis premi. ŝi returnis sin kaj sekigis la okulojn kaj la viza-
 
 ĝon, glatigis la harojn, ĉar ili iom malordiĝis. Li sidis kaj rigardis ŝin, dume li pensis. — Se ŝi estas pli delikata ol la aliaj knabinoj en la valo kaj estu traktata alie, oni kon-sideru tion.
 
@@ -1319,14 +1126,9 @@ La rivereto de Granlien neniam estis senakva. Amaso da sakoj estis portenda, kel
 La virinoj staris apude kaj tordis lavitaĵon. Torbjĝrn iris al la patro kaj prenis sakon.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —ĉu mi eble helpu al vi?
 
-—Ho, mi bone povas tion fari sola, respondis Sĝ-
-
-mund, lerte ĵetis sakon sur la dorson kaj paŝis al la muelejo.
+—Ho, mi bone povas tion fari sola, respondis Sĝmund, lerte ĵetis sakon sur la dorson kaj paŝis al la muelejo.
 
 —Estas multaj, diris Torbjĝrn, prenis du grandajn sakojn, metis sian dorson kontraŭ ili, ŝovis ambaŭ sur la ŝultrojn kaj kontraŭpremis la kubutojn de ambaŭ flankoj. Duonvoje li renkontis Sĝmund, kiu revenis por preni aliajn. La patro rapide rigardis lin, sed diris nenion.
 
@@ -1343,10 +1145,7 @@ Ingrid levis la okulojn de sia laboro kaj rigardis lin pete; la patrino ankaŭ.
 —Ne.
 
 
-SYNNØVE SOLBAKKEN
-
-
-KVARA ĉAPITRO
+KVARA ĈAPITRO
 
 La montarpaŝtejo de Granlien situis tre bele. De ĝi oni povis rigardi tra la tuta regiono. En la antaŭaĵo oni vidis Solbakken, ĉirkaŭata de sia multkolora arbare-to; pli malantaŭe la aliajn bienojn, kiuj kuŝis kvazaŭ en kronoj de arbaroj tiel, ke la verdaj paŝtejoj kun la domoj en la mezo aspektis kiel loketoj de paco, kiujn oni per-forte prenis de la sovaĝa tereno.
 
@@ -1361,9 +1160,6 @@ Hodiaŭ la menuo estos peklaĵo kaj lardo.
 — Mi volus scii, kie ili hodiaŭ laboras.
 
 Kaj iliaj okuloj sekvis la fumon, kiu rapide kaj gaje leviĝis en la klaran kaj sunplenan aeron, sed kiu baldaŭ iĝis laca kaj pensema . . . poste en larĝa strio fluis trans la arbaron kaj pli kaj pli maldensiĝis kiam fine, kiel flirtanta vualo, ĝi malaperis en la malproksimo.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Diversaj pensoj leviĝis el la kapoj de la knabinoj kaj sternis sin trans montojn kaj valojn.
@@ -1390,9 +1186,7 @@ Al tio Synnĝve ne respondis.
 
 —Mi ne bone scias.
 
-Ingrid provizore lasis la temon, ĉar ŝi memoris, ke danci estas rigore malpermesite al la Haŭgeanoj, kaj ŝi ne volis pli detale esplori, kiom Synnĝve en tiu afero 58
-
-SYNNØVE SOLBAKKEN
+Ingrid provizore lasis la temon, ĉar ŝi memoris, ke danci estas rigore malpermesite al la Haŭgeanoj, kaj ŝi ne volis pli detale esplori, kiom Synnĝve en tiu afero
 
 
 konformis kun la gepatroj. Kien ajn ankaŭ ŝiaj pensoj estis flugintaj, post momento ŝi diris:
@@ -1423,9 +1217,7 @@ Ingrid havis siajn proprajn pensojn.
 
 Synnĝve malfermis la buŝon kvazaŭ ŝi volus paroli, silentis tamen, prenis kaj ŝanĝis trikilon.
 
-—Torbjĝrn ankaŭ ŝatus esti tie, tion mi certe scias, diris Ingrid. Sed tiam ŝi ekkonsciis, kion ŝi diris kaj rigardis al Synnĝve; tiu tute ruĝiĝinte sidis kaj trikis. Tiam Ingrid rapide trapensis la tutan interparolon, interfrapis 59
-
-SYNNØVE SOLBAKKEN
+—Torbjĝrn ankaŭ ŝatus esti tie, tion mi certe scias, diris Ingrid. Sed tiam ŝi ekkonsciis, kion ŝi diris kaj rigardis al Synnĝve; tiu tute ruĝiĝinte sidis kaj trikis. Tiam Ingrid rapide trapensis la tutan interparolon, interfrapis
 
 
 la manojn kaj rampis tra la eriko ĝis kiam ŝi estis antaŭ Synnĝve, al kiu ŝi nun rigardis rekte en la okulojn. Sed Synnĝve daŭrigis triki. Nun Ingrid ekridis gaje kaj diris.
@@ -1453,9 +1245,6 @@ Kaj tiam ŝi prenis Synnĝve ĉirkaŭ la korpo.
 Nun ankaŭ Synnĝve devis ridi aŭ almenaŭ provi ridi.
 
 —Iu povus vidi min, ŝi diris.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Dio benu vin pro tiu respondo, kiel malsaĝa ĝi an-kaŭ estis, diris Ingrid kaj jam komencis kanti dancme-lodion kaj turni Synnĝve laŭ la takto.
@@ -1491,9 +1280,6 @@ Ingrid kun grandaj paŝoj antaŭeniris kaj svingis laŭ virkutimo la brakojn; Sy
 leporo venis — facilkorul’ —
 
 :,: tra l’ eriko. :,:
-
-
-SYNNØVE SOLBAKKEN
 
 
 ”Ho, kiel bela kaj brila tag’!
@@ -1537,9 +1323,6 @@ Synnĝve ridis kaj diris, ke ŝi preferus valson.
 —Nu, kontraŭ tio ne estas argumentoj, estis la opinio de Ingrid, kaj jam ŝi komencis montri al Synnĝve, kiel ŝi metu la piedojn. — ĉar valsi estas malfacile, ŝi diris.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Ho, certe funkcios, se ni nur tenos la takton, respondis Synnĝve. Ingrid proponis fari provon. Tion ili do ankaŭ faris. Ingrid kantis kaj Synnĝve kunkantis . . .
 
 komence nur zume, poste pli kaj pli forte kaj laŭte. Sed subite Ingrid haltis, lasis Synnĝve kaj frapis la manojn pro miro.
@@ -1567,16 +1350,11 @@ Ho,”
 —Mi ne scias, kion mi kantas . . . vere ne. Torbjĝrn kantis tiel.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Estas verso de Bent Fripono. Mi konas ilin, diris Synnĝve.
 
 —ĉu ili estas de li? demandis Ingrid kaj iom timigis. ŝi rigardis teren kaj silentis. Subite ŝi rimarkis iun malsupre sur la strato.
 
-—Rigardu . . . jen veturas iu de Granlien laŭ la paro-
-
-ą vojo. La okuloj de Synnĝve rigardis al la indikita direkto.
+—Rigardu . . . jen veturas iu de Granlien laŭ la paroą vojo. La okuloj de Synnĝve rigardis al la indikita direkto.
 
 —ĉu estas li? ŝi demandis.
 
@@ -1584,16 +1362,12 @@ SYNNØVE SOLBAKKEN
 
 . . . Estis Torbjĝrn kaj li veturis al la urbo. La urbo estis malproksima, kaj ĉar la ŝarĝo estis peza, li veturis tre malrapide sur la polva vojo. Tiu situis tiel, ke ĝi estis videbla de la paŝtejo. Kiam li aŭdis vokojn el la supro, li tuj sciis, kiun koncernis la saluto. Li ekstaris sur li veturilo kaj revokis, ke e˛is de monto al monto. Tiam oni blovis al li per la korno. Li sidis kaj aŭskultis, kaj kiam la sonoj estis forfluintaj, li ekstaris kaj ree voksalutis. Tiel kontinuis tempeton kaj li sentis sin en ĝoja humoro. Li rigardis transen al Solbakken kaj estis al li, kvazaŭ ĝi neniam tiel pompe brilis en la sunlumo kiel ĝuste hodiaŭ.
 
-Sidante kaj rigardante supren, li tute forgesis la ĉevalon, kiu laŭ propra bontrovo paŝadis. Subite li vekiĝis. La ĉevalo estis saltinta flanken kun tia premo, ke unu direktilstango rompiĝis. Poste ĝi sovaĝe ekgalopis trans la 64
-
-SYNNØVE SOLBAKKEN
+Sidante kaj rigardante supren, li tute forgesis la ĉevalon, kiu laŭ propra bontrovo paŝadis. Subite li vekiĝis. La ĉevalo estis saltinta flanken kun tia premo, ke unu direktilstango rompiĝis. Poste ĝi sovaĝe ekgalopis trans la
 
 
 kampojn de Nordhaŭg, ĉar tra ili kondukis la vojo. Torbjĝrn saltleviĝis kaj tiris la bridon al si kaj nun ekestis batalo inter la du. La ĉevalo volis kuri trans la kanalon de la vojo kaj li provis reteni ĝin. Li tiris la bridon tiel forte, ke la ĉevalo baŭmis kaj tiam Torbjĝrn saltis de la veturilo, kaj antaŭ ol la ĉevalo denove povis ekkuri, li estis liginta la bridon al arbo kaj nun la besto devis stari. . . . La ŝarĝo parte falis, unu direktilstango rompiĝis, la ĉevalo staris kaj tremis. Li paŝis al ĝi, prenis la bridon, parolis afablajn vortojn kaj turnis ĝin, por ke ĝi ne estu en danĝero, se ĝi ankoraŭfoje emus forsalti. Sed stari trankvile la timigita besto ne povis kaj li devis sekvi ĝin saltante, antaŭen ĉiam antaŭen, ĝis kiam ili ree estis sur la ĉefvojo. Ili preteriris la defalintajn objektojn. La ujoj rompiĝis kaj la enhavo parte fuŝiĝis. is nun li nur pripensis la danĝeron. Nun li cerbumis pri la sekvoj de la akcidento kaj li furioziĝis. Li konstatis, ke la ekskurso ne povos plenumiĝi, kaj ju pli li pensis pri la afero, des pli li ĉagreniĝis. Atinginte la straton, la ĉevalo ree perdis la nervojn kaj provis liberigi sin per subita flankensalto.
 
-Tiam eksplodis la furiozo de Torbjĝrn. Tenante per la maldekstra mano la buŝumon, li per la dekstra mano donis al la flanko de la ĉevalo baton post bato. . . . Baton post bato per sia peza vojaĝvipo, ĝis kiam la ĉevalo, ŝaŭmante pro furiozo, provis bati lian bruston per la antaŭaj piedoj. Sed li tenis ĝin for de sia korpo, batis ĝin 65
-
-SYNNØVE SOLBAKKEN
+Tiam eksplodis la furiozo de Torbjĝrn. Tenante per la maldekstra mano la buŝumon, li per la dekstra mano donis al la flanko de la ĉevalo baton post bato. . . . Baton post bato per sia peza vojaĝvipo, ĝis kiam la ĉevalo, ŝaŭmante pro furiozo, provis bati lian bruston per la antaŭaj piedoj. Sed li tenis ĝin for de sia korpo, batis ĝin
 
 
 pli forte ol antaŭe, tutforte, kaj li eĉ uzis la dikan parton de la vipo. — Mi instruos cin, ci obstina kreitaĉo, kaj li batis. La ĉevalo henis pro furiozo kaj doloro . . . li batis. — Ha, vi sentu pugnon! . . . Kaj li batis. La ĉevalo spiregis, ke la ŝaŭmo ŝprucis sur la manon de Torbjĝrn, sed li ne ĉesis bati. — ĉi tio estu la unua kaj lasta fojo, ci malica besto . . . jen, jen prenu! Mi instruos al vi disci-plinon . . . kaj li batis.
@@ -1607,12 +1381,7 @@ Torbjĝrn ne sciis kial, sed frosttremo transkuris lin. —
 ĉu do estis vi, kiu timigis la beston ambaŭfoje? demandis li.
 
 
-SYNNØVE SOLBAKKEN
-
-
-—Mi kuŝis ĉi tie kaj dormis, respondis Aslak iom levi-
-
-ĝante. — Sed vi vekis min, kiam vi batadis vian ĉevalon kiel frenezulo.
+—Mi kuŝis ĉi tie kaj dormis, respondis Aslak iom leviĝante. — Sed vi vekis min, kiam vi batadis vian ĉevalon kiel frenezulo.
 
 —Estis vi, kiu sovaĝigis ĝin; ĉiuj bestoj timas vin, kaj li batetis kaj karesis la ĉevalon, de kiu ankoraŭ gutadis la ŝvito.
 
@@ -1628,9 +1397,7 @@ Tiam Aslak leviĝis kaj rampis el la kanalo.
 
 —Estas vere aĉa afero, daŭrigis Aslak, alproksimiĝan-te kaj deprenante la ĉapelon. — Fulmotondro! li daŭrigis. — Kia belega junulo vi fariĝis, de kiam mi laste vidis vin.
 
-Li ŝovis ambaŭ manojn en la poŝojn kaj staris kiel eble plej firme, rigardante al Torbjĝrn, kiu ne sukcesis malligi la ĉevalon de la rompita veturilo. Li bezonis helpon, sed ne povis venki sin por peti al Aslak. Tiu aspektis aĉa, liaj vestoj estis kotaj de la kanala ŝlimo, liaj haroj gluiĝis 67
-
-SYNNØVE SOLBAKKEN
+Li ŝovis ambaŭ manojn en la poŝojn kaj staris kiel eble plej firme, rigardante al Torbjĝrn, kiu ne sukcesis malligi la ĉevalon de la rompita veturilo. Li bezonis helpon, sed ne povis venki sin por peti al Aslak. Tiu aspektis aĉa, liaj vestoj estis kotaj de la kanala ŝlimo, liaj haroj gluiĝis
 
 
 kaj elpendis sub la malnova velurĉapelo. Lia vizaĝo, kvankam ĝi havis parte la bonkonatajn trajtojn, nun konstante grimacis ride, kaj la okuloj estis eĉ pli fermitaj ol antaŭe, tiel ke li devis iom malantaŭen klini la kapon kaj duonfermi la buŝon, se li volis rigardi iun. Liaj trajtoj estis velkaj kaj liaj membroj rigidaj. . . . Aslak kapitulacis al drinkado. Torbjĝrn antaŭe iam kaj tiam vidis lin, sed Aslak ŝajnigis kvazaŭ li ne scius tion. Kiel kol-portisto li estis travaginta la tutan regionon, kaj ĉiam li estis renkontebla, kie oni festis, ĉar tie li povis prezenti kantojn kaj rakonti historiojn. Tion li lerte faris kaj oni regalis lin per brando. Tial li ankaŭ estis ĉe la geedziĝa festo en Nordhaŭg. Li pensis tamen, ke estus pli saĝe, kiel Torbjĝrn poste eksciis, malaperi provizore, ĉar li, laŭ sia malnova kutimo, igis la festantojn interbatali kaj mem devis timi batojn.
@@ -1643,11 +1410,7 @@ Torbjĝrn jam havis la saman ideon, sed ĝis nun ne sekvis ĝin.
 
 —Kaj tial ĉia helpo havebla, diris Aslak.
 
-Torbjĝrn ankoraŭ hezitis. Sed sen helpo li povis movi-
-
-ĝi nek antaŭen nek malen, kaj tial ŝajnis al li pli bone iri 68
-
-SYNNØVE SOLBAKKEN
+Torbjĝrn ankoraŭ hezitis. Sed sen helpo li povis moviĝi nek antaŭen nek malen, kaj tial ŝajnis al li pli bone iri
 
 
 al la bieno. Do li jungis la ĉevalon kaj iris. Aslak sekvis.
@@ -1669,9 +1432,6 @@ Torbjĝrn ne respondis. Baldaŭ la sonoj de dancmuzi-ko atingis ilin. En la fene
 Oni salutis Torbjĝrn afable kaj formis cirklon ĉirkaŭ li.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Dio benu la festenon: bona biero sur la tablo, belaj knabinoj sur la dancplanko kaj bonaj muzikistoj sur la podio, diris Aslak kaj ŝovis sin inter la aliajn.
 
 Kelkaj ridis, aliaj restis severaj. Unu el la gastoj diris:
@@ -1691,9 +1451,6 @@ Li ne demandis, kie oni trovus Knut Nordhaŭg.
 La patro de la fianĉo, maljunulo, kiu sidis kaj fumis argilan pipon kaj trinkadis bieron, diris nun:
 
 —Nu, Aslak, regalu nin per historieto . . . foje ankaŭ tio povas esti amuza.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —ĉu estas pli multaj, kiuj petas min? demandis Aslak, kiu eksidis sur tabureto, sed en kelka distanco de la tablo, ĉe kiu sidis la aliaj.
@@ -1718,9 +1475,7 @@ La fianĉo rigardis ŝin, kaj lia patro lin.
 
 —Do, rakontu pri la batalo ĉe Lier, petis Svend la tam-buristo.
 
-—Ne, prefere ion gajan, diris gracila junulo, kiu, en ĉemizmanikoj, staris kontraŭ la muro, dum lia dekstra mano, kiu pendis malstreĉe, ludis per la haroj de kelkaj 71
-
-SYNNØVE SOLBAKKEN
+—Ne, prefere ion gajan, diris gracila junulo, kiu, en ĉemizmanikoj, staris kontraŭ la muro, dum lia dekstra mano, kiu pendis malstreĉe, ludis per la haroj de kelkaj
 
 
 knabinoj, kiuj sidis apude . . . ili riproĉis lin, sed ne iris de la loko.
@@ -1752,9 +1507,6 @@ Pluraj parolis al li, sed li ne aŭdis.
 —La brando venkis lin, diris tiu sur la lito.
 
 
-SYNNØVE SOLBAKKEN
-
-
 ĉe tiuj vortoj Aslak levis la okulojn kaj denove ekride-tis.
 
 —Jes, nun mi rakontu al vi vere gajan historion, li diris. — Ho, tiel gajan! li aldonis post momento kaj ridis kun larĝe malfermita buŝo, sed sen aŭdigi la ridaĉon.
@@ -1765,13 +1517,9 @@ SYNNØVE SOLBAKKEN
 
 Oni donis ĝin al li. Li eltrinkis la glason malrapide, tenis la kapon kun la lasta guto sur la lango iom malantaŭen, glutis ankaŭ tiun kaj diris, sin turnante al la viro sur la lito:
 
-—Jen, nun mi estas via porko. Li ridis same kiel an-taŭe. Li plektis la manojn ĉirkaŭ la genuoj, movadis la piedon supren-malsupren, samtempe lia korpo balanci-
+—Jen, nun mi estas via porko. Li ridis same kiel an-taŭe. Li plektis la manojn ĉirkaŭ la genuoj, movadis la piedon supren-malsupren, samtempe lia korpo balanciĝis . . . kaj tiam li komencis.
 
-ĝis . . . kaj tiam li komencis.
-
-—Knabino loĝis en valo. La nomo de la valo ne gravas por la afero, ankaŭ ne tiu de la knabino. Sed la knabino estis bela, tion vidis ankaŭ la bienulo ĉe kiu ŝi laboris. ŝi ricevis bonan salajron, ĉion ŝi ricevis, kaj ŝi ricevis pli ol ŝi volis: ŝi ricevis infanon. La homoj diris, ke la infano estas de li, sed li ne diris tion, tar li estis edzo, kaj ankaŭ ŝi ne diris, ĉar ŝi estis fiera, la kompatindulino. Kaj tial okazis, ke oni diris mensogon ĉe la bapto. Kaj la knabo, 73
-
-SYNNØVE SOLBAKKEN
+—Knabino loĝis en valo. La nomo de la valo ne gravas por la afero, ankaŭ ne tiu de la knabino. Sed la knabino estis bela, tion vidis ankaŭ la bienulo ĉe kiu ŝi laboris. ŝi ricevis bonan salajron, ĉion ŝi ricevis, kaj ŝi ricevis pli ol ŝi volis: ŝi ricevis infanon. La homoj diris, ke la infano estas de li, sed li ne diris tion, tar li estis edzo, kaj ankaŭ ŝi ne diris, ĉar ŝi estis fiera, la kompatindulino. Kaj tial okazis, ke oni diris mensogon ĉe la bapto. Kaj la knabo,
 
 
 kiu naskiĝis al ŝi, estis sentaŭgulo, tial estis indiferente, ke li baptiĝis kun mensogo. Sed ŝi ricevis loĝejon apud la bieno kaj, kiel oni povas supozi, tio ne plaĉis al la bie-nulino. Se la knabino venis al la domo, la mastrino kraĉis al ŝi, kaj se venis ŝia eta filo, kaj li volis ludi kun la infanoj en la bieno, ŝi ordonis al ili forpeli la bastardon . . .
@@ -1784,9 +1532,7 @@ kiu naskiĝis al ŝi, estis sentaŭgulo, tial estis indiferente, ke li baptiĝis
 
 —Kaj nun ŝi do devis cedi . . . Sed en la lasta nokto la bieno en belaj, helaj flamoj konsumiĝis. La viro mortis en la brulo, ĉar li estis ebria. La sinjorino savis sin kun la infanoj, kaj ŝi diris, ke la almozulino estigis la brulon.
 
-Eble ŝi faris tion . . . eble ankaŭ ne . . . Estis stranga ulo, ŝia bubo. Ok jarojn li vidis la patrinon malsata kaj batalanta, kaj li bone sciis, kies kulpo tio estis, ĉar la patrino ofte rakontis al li, kiam li demandis pri ŝia konstan-ta plorado. Tion ŝi faris ankaŭ en la tago antaŭ la foriro, 74
-
-SYNNØVE SOLBAKKEN
+Eble ŝi faris tion . . . eble ankaŭ ne . . . Estis stranga ulo, ŝia bubo. Ok jarojn li vidis la patrinon malsata kaj batalanta, kaj li bone sciis, kies kulpo tio estis, ĉar la patrino ofte rakontis al li, kiam li demandis pri ŝia konstan-ta plorado. Tion ŝi faris ankaŭ en la tago antaŭ la foriro,
 
 
 kaj tial li dumnokte ne estis hejme . . . ŝi iris por dum-vive en la malliberejon, ĉar ŝi mem diris al la juĝisto, ke ŝi kaŭzis la belan fajron en la bieno . . . La knabo restis en la regiono, kaj ĉiuj homoj helpis al li, ĉar li havis tiel malbonan patrinon. Poste li iris el tiu regiono en alian. Tie la homoj estis eĉ pli bonaj al li, ĉar ŝajne tie neniu sciis, kiel malbonan patrinon li havis. Mi ne kredas, ke li mem havis saman opinion pri la patrino . . . Kiam mi lastfoje aŭdis pri li, li estis ebria, kaj la homoj diris, ke li nun estas drinkemulo. ĉu estas la vero aŭ ne, tion mi ne esploru, sed estas vere, ke mi ne scias, kion pli bonan li faru. Li estas malbona, malica ulo, tion vi povas kredi. Li ne ŝatas la homojn . . . ne ŝatas, ke ili estu bonaj unuj al la aliaj, kaj plej malmulte, ke ili estu bonaj al li mem. Kaj li ege deziras vidi la aliajn, kia li mem estas
@@ -1798,18 +1544,12 @@ kaj tial li dumnokte ne estis hejme . . . ŝi iris por dum-vive en la malliberej
 —Nun la porko estas ebria, diris tiu sur la lito. — Tiel li ĉiam ploras sin en dormon.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Estis aĉe, diris la virinoj kaj leviĝis por iri eksteren.
 
 —Neniam mi aŭdis lin rakonti aliajn historiojn, se li havis sian propran volon, diris maljunulo, leviĝinte de sia seĝo apud la pordo. — Dio sciu, kial la homoj volas aŭdi lin, li aldonis kaj rigardis la fianĉinon.
 
 
-SYNNØVE SOLBAKKEN
-
-
-KVINA ĉAPITRO
+KVINA ĈAPITRO
 
 Kelkaj eliris, aliaj provis revenigi la muzikiston, por ke la dancado rekomenciĝu; sed la violonisto dormis en angulo de la koridoro kaj kelkaj petis, ke oni lasu lin trankvile kuŝi tie.
 
@@ -1823,9 +1563,7 @@ Kaj Torbjĝrn ekpensis pri tiuj vortoj; li tamen insistis daŭrigi la veturadon 
 
 ĉeestis multaj homoj. Tamen estis tre silente, kaj la tuto ne tre aspektis kiel geedziĝa festo. Torbjĝrn vidis, ke li bezonas novan jungŝtipon kaj iris serĉi taŭgan lignon.
 
-ĉar li ne trovis taŭgan pecon da ligno en la korto, li iom pluiris, venis al la brulaĵejo kaj eniris malrapide kaj senbrue. La vortoj de la fianĉo ne forlasis lin. Li trovis, kion 77
-
-SYNNØVE SOLBAKKEN
+ĉar li ne trovis taŭgan pecon da ligno en la korto, li iom pluiris, venis al la brulaĵejo kaj eniris malrapide kaj senbrue. La vortoj de la fianĉo ne forlasis lin. Li trovis, kion
 
 
 li serĉis. Tiam li eksidis ĉe la muro. Liaj pensoj vagis. La tranĉilon kaj la ŝtipon li havis en la mano. Nun li aŭdis sonon kvazaŭ iu ĝemus proksime. La sonoj venis de la alia flanko de la maldika muro. Tie estis la veturilejo.
@@ -1854,13 +1592,7 @@ Momenton regis silento. Poste ŝi rekomencis:
 
 Nun li aŭdis nenion krom ploradon. Fine ŝi erupcie elbuŝigis la vortojn. — Kial vi ne parolis?
 
-—Certe ne utilus multe al la filo de maljuna Birte sin proponi al la filino de Nordhaŭg, li respondis post paŭ-
-
-
-SYNNØVE SOLBAKKEN
-
-
-zo, kiun nur interrompis la profundaj kaj oftaj ĝemoj. Li atendis respondon . . .
+—Certe ne utilus multe al la filo de maljuna Birte sin proponi al la filino de Nordhaŭg, li respondis post paŭzo, kiun nur interrompis la profundaj kaj oftaj ĝemoj. Li atendis respondon . . .
 
 —Ni tiom da jaroj okulumis unu la alian, li fine aŭdis.
 
@@ -1885,9 +1617,6 @@ Ree ŝi rompis la silenton.
 —Bona li ne estas, diris la fratino.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Tempeton ili silentis. Poste li diris:
 
 —Mi estas scivola, ĉu mi resaniĝos. A˛, estas ankaŭ tute indiferente al mi.
@@ -1910,9 +1639,7 @@ Torbjĝrn kredis, ke ŝi foriras aŭ ne plu kapablas diri ion kroman, ĉar longe
 
 —Hm, inter ili? Jes, diris Petro Farmisto kaj sulkumis la vizaĝon, kvazaŭ li volus kaŝi ion en la faldoj. — Jes, de-mandu . . . estis nur frazeto. Knut demandis Lars, ĉu lia violono havas bonan tonon ĉe ĉi tiu geedziĝo.
 
-En la sama momento la fianĉino preteriris ilin. ŝi forturnis la vizaĝon, sed kiam ŝi aŭdis nomi Lars, ŝi turnis sin al ili kaj montris paron da grandaj, ruĝaj okuloj mal-certe rigardantaj. Sed cetere ŝia vizaĝo estis malvarma 80
-
-SYNNØVE SOLBAKKEN
+En la sama momento la fianĉino preteriris ilin. ŝi forturnis la vizaĝon, sed kiam ŝi aŭdis nomi Lars, ŝi turnis sin al ili kaj montris paron da grandaj, ruĝaj okuloj mal-certe rigardantaj. Sed cetere ŝia vizaĝo estis malvarma
 
 
 . . . tiel malvarma, ke Torbjĝrn ne povis trovi harmonion inter ŝi kaj ŝiaj vortoj. Kaj nun li komencis cerbumi pri pliaj aferoj.
@@ -1944,9 +1671,6 @@ Li tiris la bridon, sed ĉar la ĉevalo ne ekhaltis, li lasis
 Nun li pli forte tiris la bridon, sed ne rigardis malantaŭen.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Venu de la veturilo kaj festu kun ni! kriis iu. Torbjĝrn turnis la kapon.
 
 —Dankon, sed mi devas veturi hejmen, li diris.
@@ -1970,9 +1694,6 @@ La junulo, kiu antaŭe staris kontraŭ la muro kaj ludis kun la haroj de la knab
 Tion aŭdis Knut.
 
 —ĉu mi ne kuraĝas? Kiu diris tion? Mi ne kuraĝas! li kriis.
-
-
-SYNNØVE SOLBAKKEN
 
 
 ĉiam pli multaj homoj restis ĉe la veturilo.
@@ -2000,9 +1721,6 @@ Torbjĝrn saltis de la veturilo.
 Sed la maljunulo, kiu leviĝis, kiam Aslak finis sian rakonton, nun venis al Torbjĝrn, prenis lin ĉe la brako kaj diris:
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Sĝmund Granlien estas tiel nobla viro, ke ne decas al lia filo interbatali kun tia fripono.
 
 Torbjĝrn trankviliĝis, sed Knut diris:
@@ -2021,9 +1739,7 @@ Torbjĝrn aŭdis tion, sed ne respondis. Kelkaj el la aro ridis, aliaj diris, ke
 
 —Ne, tiel hipokritaj inoj ne koncernas min, redonis Knut. — Sed eble estas ŝi, kiu faris vin tiel malkuraĝa.
 
-Tio estis tro multe por Torbjĝrn. Li rondrigardis, kvazaŭ li esplorus la lokon. Sed denove kelkaj pli maturaj 84
-
-SYNNØVE SOLBAKKEN
+Tio estis tro multe por Torbjĝrn. Li rondrigardis, kvazaŭ li esplorus la lokon. Sed denove kelkaj pli maturaj
 
 
 homoj peradis kaj diris, ke Knut jam faris tro da malbono en la festo.
@@ -2044,9 +1760,7 @@ Absoluta silento ekestis. Knut streĉis sin kaj kuris an-taŭen sen diri vorton.
 
 —Nun Knut renkontis sian mastron, diris tiu, kiu for-kondukis la ĉevalon. — Cedu lokon!
 
-La sinjorinoj kaj knabinoj fuĝis. Nur unu staris sur la ŝtuparo por pli bone vidi; estis la fianĉino. Torbjĝrn vidis ŝin kaj haltis momenton. Sed kiam li vidis en la mano 85
-
-SYNNØVE SOLBAKKEN
+La sinjorinoj kaj knabinoj fuĝis. Nur unu staris sur la ŝtuparo por pli bone vidi; estis la fianĉino. Torbjĝrn vidis ŝin kaj haltis momenton. Sed kiam li vidis en la mano
 
 
 de Knut tranĉilon, li memoris ŝiajn vortojn, ke Knut estas malbona homo, kaj boncelita bato trafis la brakon de Knut super la pojno tiel, ke ĝi pendis senforta. La tranĉilo falis.
@@ -2066,9 +1780,6 @@ Du maljunulinoj preteriris. — Granda Disinjoro, diris unu al la alia. — Jen 
 —Estas Knut Nordhaŭg, respondis iu el la apudsta-rantoj.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Nu, en la estonteco ni eble ne plu havos tiom da interbataloj, diris la alia virino. — Ili uzu sian forton por io pli bona.
 
 —Jen vi diris pravan vorton, Randi, opiniis la unua. —
@@ -2077,9 +1788,7 @@ Dio helpu ilin tiel, ke ili lernu rigardi unu preter la alia kaj al pli alta cel
 
 Tiuj vortoj strange impresis al Torbjĝrn. Li parolis eĉ ne unu vorton, sed staris silenta kaj rigardis la homojn, kiuj okupiĝis pri Knut. Unu kaj alia alparolis lin, sed li ne respondis. Li forturniĝis kaj meditadis. Synnĝve aperis antaŭ lia animo kaj venis al li sento de honto. Li pripensis, kiel li rakontu la aferon kaj sentis, ke fini la ĝisnunan vivmanieron tamen ne estas tiel facile, kiel li antaŭe pensis. Subite li aŭdis malantaŭ si krion. — Atentu, Torbjĝrn! Sed antaŭ ol li povis turni sin, li estis de malantaŭe kapita ĉe la ŝultroj kaj ĵetita teren . . . Li sentis sve-nigan doloron, sen certe scii, en kiu parto de la korpo. Li aŭdis voĉojn ĉirkaŭ si, sentis, ke li estas veturata, kredis foje, ke li mem estas la koĉero, sed li ne sciis ion difinitan.
 
-Tio daŭris longan tempon. Iĝis malvarme kaj poste varme. Tiam li sentis sin tiel malpeza, ke estis al li kvazaŭ li ŝvebus en la aero . . . Kaj nun ĉio estis klara al li: la arboj portis lin de unu pinto al alia, tiel ke li supren-iris la deklivon, kaj poste pli kaj pli alten . . . ĝis sur la plej altan monton. Tie Synnĝve kliniĝis al li, plorante ŝi 87
-
-SYNNØVE SOLBAKKEN
+Tio daŭris longan tempon. Iĝis malvarme kaj poste varme. Tiam li sentis sin tiel malpeza, ke estis al li kvazaŭ li ŝvebus en la aero . . . Kaj nun ĉio estis klara al li: la arboj portis lin de unu pinto al alia, tiel ke li supren-iris la deklivon, kaj poste pli kaj pli alten . . . ĝis sur la plej altan monton. Tie Synnĝve kliniĝis al li, plorante ŝi
 
 
 diris, ke li devus esti parolinta. ŝi ploris multe kaj diris, ke li ja mem vidis, ke Knut Nordhaŭg konstante venis sur ŝian vojon, tial ŝi ja devis edziniĝi al Knut.
@@ -2092,9 +1801,7 @@ Sed ankoraŭ tiam li ĵetis la sakojn pli kaj pli alten en la aeron kaj diris:
 
 —Imitu min, se vi povas! . . .
 
-Tre malproksime en la nuboj staris la preĝejo. La blonda virino de Solbakken staris sur la turo kaj svingis ruĝflavan poŝtukon per unu mano, kaj en la alia havis kantaron, kaj diris. — Vi ne venu ĉi tien antaŭ ol vi lasis bataladon kaj blasfemojn . . . kaj jen . . . kiam li rigardis pli precize, tio ne estis la preĝejo, sed Solbakken, kaj 88
-
-SYNNØVE SOLBAKKEN
+Tre malproksime en la nuboj staris la preĝejo. La blonda virino de Solbakken staris sur la turo kaj svingis ruĝflavan poŝtukon per unu mano, kaj en la alia havis kantaron, kaj diris. — Vi ne venu ĉi tien antaŭ ol vi lasis bataladon kaj blasfemojn . . . kaj jen . . . kiam li rigardis pli precize, tio ne estis la preĝejo, sed Solbakken, kaj
 
 
 la suno tiel hele brilis al la centoj da fenestroj, tiel hele, ke la brilo dolorigis liajn okulojn kaj li firme devis fermi ilin . . .
@@ -2116,9 +1823,6 @@ Tenu vi lian kapon, panjo, se li mem ne havas forton por teni ĝin. ŝi iris ant
 Kiam li estis kovrita kaj kuŝis komforte, Sĝmund demandis:
 
 
-SYNNØVE SOLBAKKEN
-
-
 —ĉu la servisto jam forveturis?
 
 —Rigardu, jen li estas! diris la patrino kaj montris eksteren.
@@ -2137,28 +1841,18 @@ Sed liaj okuloj senpaŭze rigardis la patrinon. Neniam antaŭe ŝi rimarkis tian
 
 —La Disinjoro kompatu vin! fine venis de ŝiaj lipoj. —
 
-Mi scias, ke Sĝmund estos ruino en la tago, en kiu vi forlasis nin. Torbjĝrn rigardis ŝin per senmovaj okuloj kaj rigida vizaĝo. Tiu rigardo penetris en ŝian animon kaj ŝi ekpreĝis voĉe por li ”Patro Nia-n”. ŝi kredis, ke li baldaŭ mortos. Kiam ŝi tiel sidis, venis al ŝi la penso, kiel kara ĝuste li estis al ili ĉiuj, kaj nun neniu el liaj gefratoj 90
-
-SYNNØVE SOLBAKKEN
+Mi scias, ke Sĝmund estos ruino en la tago, en kiu vi forlasis nin. Torbjĝrn rigardis ŝin per senmovaj okuloj kaj rigida vizaĝo. Tiu rigardo penetris en ŝian animon kaj ŝi ekpreĝis voĉe por li ”Patro Nia-n”. ŝi kredis, ke li baldaŭ mortos. Kiam ŝi tiel sidis, venis al ŝi la penso, kiel kara ĝuste li estis al ili ĉiuj, kaj nun neniu el liaj gefratoj
 
 
-estis hejme. Tiam ŝi sendis komunikon supren al la paŝ-
-
-tejo.
+estis hejme. Tiam ŝi sendis komunikon supren al la paŝtejo.
 
 ŝi venigis Ingrid kaj unu el la pli junaj fratoj. Poste ŝi revenis kaj denove eksidis sur la tabureto apud la lito. Li rigardis al ŝi ankoraŭ. La rigardo efikis al ŝi kiel psalmo.
 
 Per tio ŝiaj pensoj iom post iom turnis sin al pli altaj aferoj. Pie Ingeborg prenis la biblion kaj diris. — Nun mi voĉlegu al vi, por ke vi fartu pli bone. ĉar ŝi ne havis okulvitrojn ĉemane, ŝi malfermis la libron je paĝo, kiun ŝi de siaj knabinaj jaroj konis parkere. Estis parto en la evangelio de Johano. ŝi ne sciis certe, ĉu li aŭdas ŝin. Li restis senmova kiel antaŭe kaj nur rigardis ŝin rigide, sed ŝi daŭrigis legi . . . se ne por li, do tamen por si mem.
 
-Ingrid baldaŭ alvenis por anstataŭi la patrinon, sed nun Torbjĝrn dormis. Ingrid ploris senfine. ŝiaj larmoj jam sur la paŝtejo komencis flui, ĉar ŝi pensis pri Synnĝ-
+Ingrid baldaŭ alvenis por anstataŭi la patrinon, sed nun Torbjĝrn dormis. Ingrid ploris senfine. ŝiaj larmoj jam sur la paŝtejo komencis flui, ĉar ŝi pensis pri Synnĝve, al kiu oni diris nenion.
 
-ve, al kiu oni diris nenion.
-
-La kuracisto venis kaj ekzamenis lin. En la flanko estis tranĉilpiko kaj krome estis aliaj gravaj vundoj. La kuracisto diris nenion kaj neniu kuraĝis demandi lin. Sĝ-
-
-mund sekvis lin en la ĉambron, restis tie staranta kaj observi senpaŭze la vizaĝon de la kuracisto, reiris kun li, helpis al li eniri la kaleŝon kaj deprenis la ĉapon, kiam la kuracisto diris, ke li revenos la postan tagon. Tiam li turnis sin al sia edzino kaj diris. — Se tiu viro diras nenion, 91
-
-SYNNØVE SOLBAKKEN
+La kuracisto venis kaj ekzamenis lin. En la flanko estis tranĉilpiko kaj krome estis aliaj gravaj vundoj. La kuracisto diris nenion kaj neniu kuraĝis demandi lin. Sĝmund sekvis lin en la ĉambron, restis tie staranta kaj observi senpaŭze la vizaĝon de la kuracisto, reiris kun li, helpis al li eniri la kaleŝon kaj deprenis la ĉapon, kiam la kuracisto diris, ke li revenos la postan tagon. Tiam li turnis sin al sia edzino kaj diris. — Se tiu viro diras nenion,
 
 
 estas danĝero. Liaj lipoj vibris, la piedoj tremis sub li kaj li iris al la kamparo.
@@ -2177,12 +1871,7 @@ Denove venis la kuracisto, ankaŭ la morgaŭan tagon kaj ĉiujn postajn tagojn. 
 
 Tion oni rakontis al Sĝmund. Li ne respondis, sed en ĉi tiu tago li ne estis hejme, kiam la kuracisto venis.
 
-Kiam tiu poste estis iom for de la domo, li vidis Sĝ-
-
-mund. Tiu sidis apud la vojo kaj atendis lin. Salutinte, Sĝmund demandis pri sia filo.
-
-
-SYNNØVE SOLBAKKEN
+Kiam tiu poste estis iom for de la domo, li vidis Sĝmund. Tiu sidis apud la vojo kaj atendis lin. Salutinte, Sĝmund demandis pri sia filo.
 
 
 —Oni traktis lin terure, estis la lakona respondo.
@@ -2215,9 +1904,7 @@ La kuracisto sentis emocion.
 
 Kaj krome la inoj, li daŭrigis. — Ili ĉiufoje spionis, ĉu mi demandos, kaj tial mi ne povis.
 
-La kuracisto lasis al li tempon trankviliĝi. Sĝmund rigardis rekte en liajn okulojn kaj demandis subite: 93
-
-SYNNØVE SOLBAKKEN
+La kuracisto lasis al li tempon trankviliĝi. Sĝmund rigardis rekte en liajn okulojn kaj demandis subite:
 
 
 —ĉu li rehavos sian sanecon?
@@ -2240,9 +1927,7 @@ En la sama tempo Ingrid sidis ĉe la malsanulo.
 
 —Nur tiam li enketis pri la interbatalo. Oni rakontis al li tute precize kiel ĝi okazis. Poste envenis Knut. Nun la patro postulis, ke li rakontu. Ili iris en la korton al la loko, kie vi interbatalis. ĉiuj gastoj sekvis. Knut rakontis, kiel vi traktis lin, post kiam vi lambatis lian brakon.
 
-Sed, ĉar Knut ne volis daŭrigi la rakonton, la patro eksaltis kaj demandis. — ĉu okazis tiel? . . . En la sama momento li kaptis Knut ĉe la brusto, levis lin kaj metis 94
-
-SYNNØVE SOLBAKKEN
+Sed, ĉar Knut ne volis daŭrigi la rakonton, la patro eksaltis kaj demandis. — ĉu okazis tiel? . . . En la sama momento li kaptis Knut ĉe la brusto, levis lin kaj metis
 
 
 lin sur la ŝtonplatojn, sur kiuj via sango ankoraŭ estis videbla. Per la maldekstra mano li premis lin teren, kaj per la dekstra elingigis sian tranĉilon. Knut paliĝis kaj la festantoj silentis. Multaj vidis la patron plori. Sed li ne vun-dis Knut. Tiu mem estis paralizita. La patro levis lin, sed baldaŭ remetis lin. — Estas al mi tre malfacile tiel lasi vin, li diris rigardante lin akre, kaj tenis lin.
@@ -2260,9 +1945,6 @@ Ingeborg ekploris kaj sekvis al la edzo eksteren en la korton. Tie ili sidiĝis 
 Multajn aferojn la du nun priparolis.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Kiam Ingrid mallaŭte reiris al Torbjĝrn, tiu havis paperon en la mano kaj diris trankvile kaj malrapide,
 
 —in vi donu al Synnĝve tuj kiam vi renkontos ŝin.
@@ -2278,18 +1960,13 @@ La bona Dio restu kun ni ambaŭ!
 Torbjĝrn, filo de Sĝmund Granlien.
 
 
-SYNNØVE SOLBAKKEN
-
-
-SESA ĉAPITRO
+SESA ĈAPITRO
 
 Synnĝve eksciis la postan tagon, ke Torbjĝrn estis en la festo. Lia pli juna frato venis kun la sciigo al la paŝtejo, sed Ingrid haltigis lin en la koridoro kaj instruis lin, kion li diru. Synnĝve do sciis nur, ke Torbjĝrn havis akcidenton kaj iris al Nordhaŭg por peti helpon, ke li kaj Knut interkverelis kaj Torbjĝrn vundetiĝis kaj nun kuŝas en la lito, sed ne estas danĝero. La komuniko estis tia, ke Synnĝve estis pli kolera ol malfeliĉa; kaj ju pli ŝi pripensis, des pli melankolio kaptis ŝin. Malgraŭ la bonaj pro-mesoj, li ĉiam kondutas tiel, ke la gepatroj rajtas lin kri-tiki. — Sed tamen, pensis Synnĝve. — Tio ne disigu nin.
 
 Nur malofte novaĵoj penetris ĝis la paŝtejo. Daŭris do kelkan tempon, antaŭ ol Synnĝve ricevis novajn sciigojn.
 
-La nescio peze premis ŝian animon. Ingrid ne revenis, do certe io terura okazis. Vespere ŝi ne plu povis hejmen-kanti siajn bovinojn kiel ŝi ĝis nun faris, kaj nokte ŝi dormis maltrankvile, ĉar mankis al ŝi Ingrid. Tial ŝi dum-tage sentis sin laca, kaj tio tute ne plibonfartigis ŝin. ŝi klopodis distri sin per laboro, purigis la laktujojn kaj kuvojn, faris fromaĝon kaj acidigis lakton, sed ŝi ne plu laboris kun emo kaj ĝojo. La pli juna frato de Torbjĝrn 97
-
-SYNNØVE SOLBAKKEN
+La nescio peze premis ŝian animon. Ingrid ne revenis, do certe io terura okazis. Vespere ŝi ne plu povis hejmen-kanti siajn bovinojn kiel ŝi ĝis nun faris, kaj nokte ŝi dormis maltrankvile, ĉar mankis al ŝi Ingrid. Tial ŝi dum-tage sentis sin laca, kaj tio tute ne plibonfartigis ŝin. ŝi klopodis distri sin per laboro, purigis la laktujojn kaj kuvojn, faris fromaĝon kaj acidigis lakton, sed ŝi ne plu laboris kun emo kaj ĝojo. La pli juna frato de Torbjĝrn
 
 
 kaj la alia knabo, kiu helpis al li paŝti la brutojn, nun estis absolute konvinkitaj, ke inter ŝi kaj Torbjĝrn estas interrilatoj. Tio donis al ili temon por multaj interparo-loj.
@@ -2302,9 +1979,7 @@ Jam pasis tiom da tempo kaj ankoraŭ neniu sciigo. ŝi lasis la laboron kaj eksi
 
 ŝi sentis kompaton al la floroj kaj petis lin reporti ilin al ŝi.
 
-—Jes, tion mi volonte faros, li diris, kolektis ilin kaj venis al ŝi. Sed nun ŝi ne plu sidis en la subtegmento. Li 98
-
-SYNNØVE SOLBAKKEN
+—Jes, tion mi volonte faros, li diris, kolektis ilin kaj venis al ŝi. Sed nun ŝi ne plu sidis en la subtegmento. Li
 
 
 venis al ŝi rekte el la gardeno. Sammomente la patrino envenis.
@@ -2322,9 +1997,6 @@ Kaj Synnĝve tiel ektimis, tiel timegis; ŝi ja ne sciis, al kiu ŝi deziru la v
 —Jes, diris Synnĝve kaj vekiĝis.
 
 —Synnĝve! oni vokis.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Jes, ŝi respondis kaj levis la okulojn.
@@ -2349,9 +2021,7 @@ Karen, tio estis la nomo de la patrino, estis, kiel jam priskribite, malalta, gr
 
 Synnĝve dankis pro la donaco, levis la kovrilon de la korbo kaj kontrolis la enhavon.
 
-—Kion mi volis diri . . . jes, tion vi faru alian fojon, diris la patrino. — Mi observis, ke viaj kuvoj ankoraŭ ne 100
-
-SYNNØVE SOLBAKKEN
+—Kion mi volis diri . . . jes, tion vi faru alian fojon, diris la patrino. — Mi observis, ke viaj kuvoj ankoraŭ ne
 
 
 estas purigitaj. Paru vian laboron, infano mia, antaŭ ol vi kuŝiĝas por ripozi!
@@ -2362,14 +2032,9 @@ estas purigitaj. Paru vian laboron, infano mia, antaŭ ol vi kuŝiĝas por ripoz
 
 Tion vi ne forgesu, ŝi diris. — Alie la postan tagon la laboro malbone progresas.
 
-Finlaborinte, ili eliris al la herbejo kaj tie ili eksidis por atendi la bovinojn. Post momento la patrino demandis pri Ingrid: ĉu ŝi ne baldaŭ revenos al la paŝtejo. Synnĝ-
-
-ve ne sciis pli multe ol la patrino. — Jes, tiel kondutas la homoj, diris la patrino, kaj Synnĝve bone komprenis, ke ŝi ne celis Ingrid. Volonte ŝi estus doninta alian direkton al la babilado, sed mankis al ŝi la kuraĝo.
+Finlaborinte, ili eliris al la herbejo kaj tie ili eksidis por atendi la bovinojn. Post momento la patrino demandis pri Ingrid: ĉu ŝi ne baldaŭ revenos al la paŝtejo. Synnĝve ne sciis pli multe ol la patrino. — Jes, tiel kondutas la homoj, diris la patrino, kaj Synnĝve bone komprenis, ke ŝi ne celis Ingrid. Volonte ŝi estus doninta alian direkton al la babilado, sed mankis al ŝi la kuraĝo.
 
 —Kiu ne portas la Sinjoron en la koro, tiu estas ad-monata de Li, ĝenerale kiam li plej malmulte atendas tion, diris la patrino.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Synnĝve silentis.
@@ -2403,9 +2068,6 @@ Tiam Synnĝve ekkonjektis, ke io terura okazis.
 Synnĝve nun estis tiel premita, ke ŝi tute ne sciis helpi sin. La patrino daŭrigis:
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Nun montriĝis, kiel bone estas, ke neniu ligis sin al li. La ĉionpova tion aranĝis plej bone.
 
 Synnĝve sentis svenon; ŝi kredis, ke ŝi devas fali de la monto.
@@ -2425,9 +2087,6 @@ Sed kiam Synnĝve pensis pri la patro kaj memoris, kiel bona li ĉiam estis, ŝi
 —Kiel vi nur povas paroli tiel! diris la patrino. — Kio povus okazi al li . . . ? La vojo estas bona ĝis la urbo . . .
 
 —Jes, sed pensu nur . . . kiel . . . okazis al la alia, singultis Synnĝve.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Jes, al tiu . . . ! Sed via patro, mi opinias, ne veturas kiel idioto. Li revenos sana kaj bonfarta . . . se Dio ne prenos sian favoron de li.
@@ -2451,9 +2110,6 @@ Karen Solbakken nun estis okupata saluti sian gregon.
 Unu bovino post la alia alvenis. Ili rekonis ŝin kaj blekis, ŝi karesis ilin, parolis kun ili kaj reĝojiĝis, kiam ŝi vidis, kiel bone ili ĉiuj fartas.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —A˛ jes, ŝi diris. — La Sinjoro ne forlasas tiun, kiu ne forlasas Lin.
 
 ŝi helpis al Synnĝve enpeli la brutaron, ĉar hodiaŭ Synnĝve ĉie progresis nur malrapide. La patrino aludis tion, sed helpis al ŝi ankaŭ ĉe la melkado, kvankam ŝi tial restis pli longe ol ŝi intencis. Kiam la lakto estis filtrita, la patrino pretigis sin por foriri. Synnĝve volis akompani ŝin parton de la vojo.
@@ -2465,18 +2121,11 @@ Mi baldaŭ revenos, por vidi kiel vi fartas . . . Serĉu vian forton ĉe ni kaj 
 Apenaŭ la patrino estis malaperinta, Synnĝve ekcer-bumis, kiel sendi plej rapide komunikon al Granlien. ŝi alvokis la fraton de Torbjĝrn por sendi lin. Sed kiam tiu venis, ŝi ne kuraĝis malkaŝi sin al li kaj tial diris. — Estis nenio. ŝi pripensis mem iri, ĉar certecon ŝi havu. Ne estis amike de Ingrid ne sendi al ŝi sciigon. La nokto estis tute klara, kaj la bieno ne estis tiom malproksima, ke ŝi ne povus marŝi tien, precipe se tia kaŭzo tiras. Kiam ŝi nun sidis tie kaj pripensis tion, revenis en ŝian kapon ĉiuj vortoj, kiujn la patrino diris, tial la plorado denove komencigis. Sed nun ŝi ne pli longe hezitis. ŝi surmetis tukon kaj ekiris sur flanka vojo, por ke la knaboj ne rimarku ion.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Ju pli ŝi progresis des pli ŝi rapidis, kaj baldaŭ ŝi ekkuris sur la vojeto, tiel ke ŝtonetoj nefiksaj ekruliĝis kaj timigis ŝin. Kvankam ŝi sciis, ke nur estas la ruliĝantaj ŝtonoj, estis al ŝi kvazaŭ iu estus proksima. ŝi haltis kaj aŭskultis. Ne, estis nenio. ŝi daŭrigis kuri kaj eĉ pli rapide ol antaŭe. Saltante, ŝi subite tuŝis grandan ŝtonon, kiu parte kuŝis en la tero. La ŝtono liberiĝis, ekruliĝis preter ŝi kaj malsupren. i faris egan bruon, krakis kaj tondris en la arbustoj. ŝi ektimis, sed ŝi eĉ pli timiĝis, kiam malsupre sur la vojo ŝi vere vidis iun leviĝi kaj moviĝi.
 
 Unue ŝi kredis, ke estas sovaĝa besto. ŝi ekhaltis kaj retenis la spiron. . . . La io sur la vojo ankaŭ haltis. —
 
-Ho-ooo-i! aŭdiĝis. Estis la patrino. La unua, kion Synnĝ-
-
-ve faris, estis salti flanken kaj kaŝiĝi. ŝi sidis dum momento por atendi kaj observi, ĉu la patrino ekkonis ŝin kaj revenas, sed tion ŝi ne faris. ŝi atendis kroman tempeton, ke la patrino marŝu sufiĉan distancon. Kiam ŝi poste daŭrigis, ŝi iris malrapide, baldaŭ ŝi proksimiĝis al la domoj. Kiam ŝi vidis la domojn, ŝi sentis denove angoron, kaj ju pli ŝi proksimiĝis des pli ĝi premis. ĉio estis silenta, laboriloj staris kontraŭ la muroj, hakita ligno kuŝis staplita kaj la hakilo estis batita en la blokon. ŝi pasis ĉion kaj iris al la pordo. Tie ŝi refoje haltis, rigardis ĉirkaŭen kaj aŭskultis; nenio estis aŭdebla. Kaj kiam ŝi nun staris kaj ne sciis, ĉu ŝi iru al Ingrid en la sub-tegmentejon aŭ ne, venis al ŝi la penso, ke tia certe estis 106
-
-SYNNØVE SOLBAKKEN
+Ho-ooo-i! aŭdiĝis. Estis la patrino. La unua, kion Synnĝve faris, estis salti flanken kaj kaŝiĝi. ŝi sidis dum momento por atendi kaj observi, ĉu la patrino ekkonis ŝin kaj revenas, sed tion ŝi ne faris. ŝi atendis kroman tempeton, ke la patrino marŝu sufiĉan distancon. Kiam ŝi poste daŭrigis, ŝi iris malrapide, baldaŭ ŝi proksimiĝis al la domoj. Kiam ŝi vidis la domojn, ŝi sentis denove angoron, kaj ju pli ŝi proksimiĝis des pli ĝi premis. ĉio estis silenta, laboriloj staris kontraŭ la muroj, hakita ligno kuŝis staplita kaj la hakilo estis batita en la blokon. ŝi pasis ĉion kaj iris al la pordo. Tie ŝi refoje haltis, rigardis ĉirkaŭen kaj aŭskultis; nenio estis aŭdebla. Kaj kiam ŝi nun staris kaj ne sciis, ĉu ŝi iru al Ingrid en la sub-tegmentejon aŭ ne, venis al ŝi la penso, ke tia certe estis
 
 
 la nokto, kiam antaŭ kelkaj jaroj Torbjĝrn iris transen kaj plantis ŝiajn florojn. Rapide ŝi demetis la ŝuojn kaj ŝteliris supren laŭ la ŝtuparo.
@@ -2496,9 +2145,6 @@ Ingrid ankoraŭ klopodis eviti la veron, sed la timo de Synnĝve pelis ŝin kaj 
 Flustre venis la demandoj, flustre la respondoj. En la profunda silento la demandoj kaj respondoj sonis eĉ pli serioze. Tiel iĝis unu el la tiel solenaj horoj, en kiuj oni kuraĝas rigardi eĉ al la plej terura vero rekte en la okulojn.
 
 Ambaŭ kredis kompreni, ke ĉiokaze la kulpo de Torbjĝrn estis eta, kaj ke nenio malbona de lia flanko staris inter li kaj ilia simpatio. Ambaŭ ploradis senrezerve, sed silente . . . sed plej kortuŝe ploris Synnĝve. ŝi sidis tute kaŭre sur la litrando.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Ingrid provis reserenigi ŝin, memorigante kiom da
@@ -2534,9 +2180,6 @@ Ingrid nun memoris pri la letereto, kaj tio komencis premi ŝin.
 Ambaŭ silentis tempeton. Poste Ingrid diris. — La malgranda Sankta-Johano ludilo, kiun vi iam donacis al li, pendas en la fenestro kaj turniĝas.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Jes, nun estas klare al mi, diris Synnĝve subite kun emfazo. — Neniam iu en la mondo igu min lasi lin, venu do kio venu!
 
 Ingrid sentis angoron.
@@ -2555,12 +2198,7 @@ Tio tre tuŝis Ingrid, sed antaŭ ol ŝi sukcesis diri ion, ŝi sentis sian mano
 
 —Letereto? demandis Synnĝve.
 
-Ingrid jam leviĝis, aperigis la paperon kaj iris kun ĝi al Synnĝve. Per la maldekstra mano ŝovante ĝin en ŝian bluzon, ŝi metis la dekstran brakon ĉirkaŭ la nuko de la amikino kaj redonis al ŝi la kison. Synnĝve sentis ŝiajn larmojn fali, grandaj kaj varmaj, sur sian vizagon. Pos-109
-
-SYNNØVE SOLBAKKEN
-
-
-te Ingrid ŝovis ŝin delikate tra la pordo kaj fermis ĝin. ŝi ne kuraĝis vidi tion, kio venos.
+Ingrid jam leviĝis, aperigis la paperon kaj iris kun ĝi al Synnĝve. Per la maldekstra mano ŝovante ĝin en ŝian bluzon, ŝi metis la dekstran brakon ĉirkaŭ la nuko de la amikino kaj redonis al ŝi la kison. Synnĝve sentis ŝiajn larmojn fali, grandaj kaj varmaj, sur sian vizagon. Poste Ingrid ŝovis ŝin delikate tra la pordo kaj fermis ĝin. ŝi ne kuraĝis vidi tion, kio venos.
 
 Synnĝve ŝteliris en ŝtrumpoj malsupren laŭ la ŝtuparo. Sed, ĉar samtempe multaj pensoj okupis sin, ŝi mal-singarde bruis. ŝi ektimis, rapidis tra la koridoro kaj kuris, kun la ŝuoj en la mano, preter la domoj tra la kampoj ĝis la barilo. Tie ŝi haltis kaj surmetis la ŝuojn. Poste ŝi ekiris rapidpaŝe supren sur la monton. ŝia sango pulsis rapide. ŝi iris pli kaj pli rapide, ĝis kiam ŝi fine estis laca kaj devis eksidi. Kaj tiam ŝi memoris la letereton.
 
@@ -2568,18 +2206,11 @@ Kiam la postan matenon la paŝthundo ekbojis, la buboj vekiĝis kaj la bovinoj e
 
 Kiam la knaboj staris kaj mirigite provis diveni, kie ŝi povus esti . . . kiam ili konstatis, ke ŝi la tutan nokton ne estis en la lito . . . tiam aperis Synnĝve. ŝi estis pala kaj silenta. Sen diri vorton ŝi preparis la matenmanĝon por la buboj, metis al ili la provizojn por la tago en la ujojn kaj helpis ĉe la melkado.
 
-La nebulo kuŝis ankoraŭ preme sur la malalta montkresto. Sur la tuta ruĝbruna paŝtejo brilis roseroj en la eriko. Estis malvarmete. Kaj kiam la hundo bojis, e˛is de la najbaraj altaĵoj. La bovinoj estis ellasataj. Ili blekis en la freŝa aero. Bovino post bovino iris al la barilo. Tie si-110
-
-SYNNØVE SOLBAKKEN
-
-
-dis la hundo kaj akceptis ilin. i haltigis ilin ĝis kiam ĉiuj estis kune, tiam ĝi lasis ilin eliri. La sonoretado tintis trans la montkrestojn, la hundo bojis kuraĝe kaj la buboj konkursis per plej forta kornblovado.
+La nebulo kuŝis ankoraŭ preme sur la malalta montkresto. Sur la tuta ruĝbruna paŝtejo brilis roseroj en la eriko. Estis malvarmete. Kaj kiam la hundo bojis, e˛is de la najbaraj altaĵoj. La bovinoj estis ellasataj. Ili blekis en la freŝa aero. Bovino post bovino iris al la barilo. Tie sidis la hundo kaj akceptis ilin. i haltigis ilin ĝis kiam ĉiuj estis kune, tiam ĝi lasis ilin eliri. La sonoretado tintis trans la montkrestojn, la hundo bojis kuraĝe kaj la buboj konkursis per plej forta kornblovado.
 
 Tiun bruon Synnĝve forlasis kaj iris al la loko sur la deklivo, kie Ingrid kaj ŝi kutimis sidi. ŝi ne ploris. Tute silenta ŝi sidis, rigardis malproksimen kaj de tempo al tempo aŭskultis la bruon, kiu nun estis malproksima kaj harmonia.
 
-Dume ŝi ekkantis, en la komenco mallaŭte, poste laŭ-
-
-tete kaj fine per plena, klara voĉo. ŝi verkis la kanton laŭ ritmo de alia, kiun ŝi konis de la infanaĝo.
+Dume ŝi ekkantis, en la komenco mallaŭte, poste laŭtete kaj fine per plena, klara voĉo. ŝi verkis la kanton laŭ ritmo de alia, kiun ŝi konis de la infanaĝo.
 
 Pro la pasinto nun dankas mi, pro lud’ en rondoj, en pinarbaroj.
 
@@ -2598,9 +2229,6 @@ de l’ abiaro atendis ĝojon,
 sed kuŝis ombro de l’ mont’ sur ter’
 
 kaj vi ne trovis la vojon.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Mi atendadis kun la imag’:
@@ -2640,10 +2268,7 @@ kunmetis seĝojn en sankta loko, por ke alvenu la homopar’
 laŭ la altara alvoko.
 
 
-SYNNØVE SOLBAKKEN
-
-
-SEPA ĉAPITRO
+SEPA ĈAPITRO
 
 Kelkan tempon poste Guttorm kaj Karen sidis en la granda, hela ĉambro sur Solbakken kaj voĉlegis reciproke el kelkaj novaj libroj, kiujn ili ricevis el la urbo.
 
@@ -2658,9 +2283,6 @@ Nun la libroj estis rigarditaj kaj Karen opiniis, ke la malnovaj estis pli bonaj
 —Eble estas vero en tio, li respondis. — Hodiaŭ en la preĝejo Sĝmund diris al mi: la infanoj estas nura rekar-niĝo de la gepatroj.
 
 —Jes, vi kaj Sĝmund interparolis multe hodiaŭ.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Sĝmund estas saĝa viro.
@@ -2706,9 +2328,6 @@ Al tio Guttorm ne respondis. Post momento Karen diris:
 —Li aspektis malbona.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Pli bona ol atendeble. Mi miris, ke li fartas tiel bone.
 
 — Jes, lia sovaĝeco puniĝis.
@@ -2748,9 +2367,6 @@ Guttorm rigardis al ŝi.
 —Ni ne estu tro severaj.
 
 
-SYNNØVE SOLBAKKEN
-
-
 La edzino unue silentis, sed post momento ŝi diris:
 
 —Mi neniam malpermesis al ŝi.
@@ -2774,12 +2390,7 @@ Estis ŝia vico aranĝi la tablon, kiu staris proksime al la fenestro. La patro,
 —Mi kredas, ke releviĝos la hordeo, kiun la pluvo teren batis, li diris.
 
 
-SYNNØVE SOLBAKKEN
-
-
-Synnĝve ekstaris apud li kaj ankaŭ elrigardis. Li turni-
-
-ĝis. La edzino ĝuste estis en la ĉambro, tial li nur delikate tuŝis ŝiajn harojn kaj denove iris tien kaj reen.
+Synnĝve ekstaris apud li kaj ankaŭ elrigardis. Li turniĝis. La edzino ĝuste estis en la ĉambro, tial li nur delikate tuŝis ŝiajn harojn kaj denove iris tien kaj reen.
 
 Ili manĝis, neniu parolis.
 
@@ -2790,9 +2401,6 @@ Kaj nun ŝi ekrakontis,
 —En mia junaĝo vivis knabino en Haŭg. ŝi estis la ne-pino de maljuna, klera vilaĝestro. Li prenis ŝin frue al si.
 
 ŝi estu al li ĝojo en la tagoj la maljuneco. Li instruis ŝmpreneble pri la vorto de Dio kaj bonaj moroj. ŝi lernis facile kaj ĝojis pri la scio. Baldaŭ ŝi estis pli lerta ol ni aliaj. Dekkvinjara ŝi sciis skribi kaj kalkuli kaj konis parkere siajn lernolibrojn, krome 25 ĉapitrojn el la biblio. Mi memoras tion kvazaŭ ĝi okazis hieraŭ. ŝi pli emis legi ol danci, tial oni malofte vidis ŝin en amuzejoj, sed ofte en la subtegmento de la avo, kie liaj multaj libroj estis. Tiel okazis, ke ĉiam kiam ni renkontis ŝin, ŝi ŝajnis esti tute enpensa, kaj ni diris unu al alia. — Se ni nur estus tiel saĝaj kiel estas Karen Haŭgen.
-
-
-SYNNØVE SOLBAKKEN
 
 
 ĉar ŝi estos la heredantino de la avo, multaj bonaj junuloj proponis sin al ŝi. Al ĉiuj ŝi neis. En tiu tempo la filo de la pastro venis hejmen de la universitato. Li ne sukcesis ĉe la ekzameno, ĉar li pli emis al sovaĝeco kaj malbonaĵoj ol al bonaj faroj kaj li eĉ drinkadis.
@@ -2818,9 +2426,6 @@ Neniu sciis, kiel li sukcesis eniri.
 —Nun mi murdos vin, li diris.
 
 —Bonvolu, se vi havas la kuraĝon, ŝi respondis.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Sed li ekploris kaj diris, ke estas en ŝia povo, fari el li taŭgan homon.
@@ -2852,9 +2457,6 @@ Nun li ree iris al Karen.
 —Nun mi kredas, ke vi vivas laŭ via propra instruo, diris Karen. — Nun mi diru al vi, ke de tri jaroj mi estas la fianĉino de mia kuzo Anders Haŭgen. Venontan dimanĉon vi anoncu nian geedziĝon en la preĝejo.
 
 
-SYNNØVE SOLBAKKEN
-
-
 ĉi tie la patrino haltis. Komence Synnĝve nur kun malmulta intereso sekvis la rakonton, sed poste kreskis ŝia intereso per ĉiu vorto.
 
 —ĉu nenio plia? ŝi demandis tute ekscitita.
@@ -2878,10 +2480,7 @@ Guttorm rigardis la edzinon. Tiu en embaraso rigardis flanken kaj daŭrigis post
 —Ni devas fini, kie la fino estas, diris la patrino kaj leviĝis. La patro ankaŭ leviĝis, kaj iom poste Synnĝve ankaŭ.
 
 
-SYNNØVE SOLBAKKEN
-
-
-OKA ĉAPITRO
+OKA ĈAPITRO
 
 Kelkajn semajnojn poste ĉiuj loĝantoj de Solbakken jam frumatene preparis sin por iri preĝejen. Estis la konfirmacia tago, kiu ĉi tiun jaron estis pli frue ol ĝenerale. ĉe tia okazo oni ŝlosis la domojn, ĉar neniu restu hejme. Ili ne volis veturi, ĉar la vetero estis klara, kvankam malvarmeta kaj iom venteta en la mateno. La komenco promesis belan tagon.
 
@@ -2889,9 +2488,7 @@ La vojo kondukis tra la valo preter Granlien kaj malantaŭ la domoj dekstren. Kv
 
 Sed la rokmuroj komencis pli peze kuŝi super la valo nun, kiam la aŭtuno senvestigis ilin kaj faris ilin severaj.
 
-Kontraŭe la riveretoj: ili, kiuj dum la somero nur okaze 121
-
-SYNNØVE SOLBAKKEN
+Kontraŭe la riveretoj: ili, kiuj dum la somero nur okaze
 
 
 montris viveton, nun ŝaŭmis gaje kaj vantaj bruegis valen. La rivereto de Granlien iris pli digne kaj peze, speciale malantaŭ la ŝtonoj de Granlien, kie la rokoj subite ne plu volis kunludi kaj retiriĝis. Tie la rivereto kolektis forton kaj fluis tiel sible, ke la rokaro tremis, kaj la rokaro estis pune lavata pro la perfido. El la rivereto ŝprucis moka akvoradio rekte en ĝian vizaĝon. Kelkaj arbetoj sciemaj, mizeraj, kiuj proksimiĝis al la abismo, preskaŭ ŝiriĝis en la kirlon. Nun ili staris kaj ĝemis en la bano. La rivereto estis tre malŝparema en tiu tago.
@@ -2902,23 +2499,17 @@ Torbjĝrn, liaj gepatroj, ambaŭ liaj gefratoj kaj la ce-teraj domanoj ĵus pasi
 
 tute malantaŭe . . .
 
-Aŭ la Granlien-anoj de nun iris pli rapide aŭ la Solbakken-anoj pli malrapide, ĉiukaze la distanco inter ili pli kaj pli grandiĝis. Fine ili apenaŭ povis vidi unuj la aliajn. ŝajne hodiaŭ estos amaskunveno en la preĝejo. La longa vojo estis plena de marŝantoj, veturantoj kaj raj-dantoj, kiuj celis la preĝejon. La ĉevaloj, kiuj nun en la aŭtuno estis bone nutritaj, ne kutimis esti kune tiom are, 122
-
-SYNNØVE SOLBAKKEN
+Aŭ la Granlien-anoj de nun iris pli rapide aŭ la Solbakken-anoj pli malrapide, ĉiukaze la distanco inter ili pli kaj pli grandiĝis. Fine ili apenaŭ povis vidi unuj la aliajn. ŝajne hodiaŭ estos amaskunveno en la preĝejo. La longa vojo estis plena de marŝantoj, veturantoj kaj raj-dantoj, kiuj celis la preĝejon. La ĉevaloj, kiuj nun en la aŭtuno estis bone nutritaj, ne kutimis esti kune tiom are,
 
 
 tial ili estis petolemaj kaj ekscititaj. Tio faris la veturadon vigla, sed danĝera. Ju pli oni proksimiĝis al la preĝejo, des pli da bruo aŭdiĝis de la ĉevaloj, ĉar ĉiu aliranta henis al la venintaj. Tiuj tiris je la bridoj, dancis sur la malantaŭaj piedoj kaj henadis al la alvenantoj. ĉiuj hun-doj el la paro˛o, kiuj tutsemajne vivis solaj hejme aŭs-kultante, faŭkante kaj provokante unuj la aliajn, nun renkontiĝis ĉe la preĝejo kaj tuj sovaĝe ekbatalis, kelkaj duope aliaj amase. La tuta ĉirkaŭa kamparo estis bata-lejo. La homoj staris apud la preĝeja muro kaj la domoj.
 
 Ili flustre interbabilis kaj nur ŝtele rigardis sin reciproke. La vojo preter la muro ne estis larĝa kaj sur la alia flanko dense staris la domoj. La virinoj ĝenerale staris apud la muro kaj la viroj vidalvide apud la domoj. Nur pli malfrue ili iris aliflanken. Eĉ konatoj ŝajnigis neekko-non antaŭ la deca salutmomento, escepte, se novvenin-toj devis ekstari tiel proksime al ĉeestantoj, ke salutado ne estis evitebla. Sed tiam ili salutis per malmultaj vortoj, kun la vizaĝo duone forturnita. Poste ĉiuj ŝatis retiriĝi al la kutimaj lokoj.
 
-Kiam la Granlien-anoj alvenis, estis preskaŭ pli silente ol antaŭe. Sĝmund ne renkontis multajn salutendulojn, tial li rapide pasis la vicon. Kontraŭe la virinoj tuj havis interbabilon kaj restis ĉe la unuaj. Tio kaŭzis, ke la viroj, kiam oni eniru, devis reiri la tutan vicon, por akompani la virinojn. Sammomente tri veturiloj, unu malantaŭ 123
-
-SYNNØVE SOLBAKKEN
+Kiam la Granlien-anoj alvenis, estis preskaŭ pli silente ol antaŭe. Sĝmund ne renkontis multajn salutendulojn, tial li rapide pasis la vicon. Kontraŭe la virinoj tuj havis interbabilon kaj restis ĉe la unuaj. Tio kaŭzis, ke la viroj, kiam oni eniru, devis reiri la tutan vicon, por akompani la virinojn. Sammomente tri veturiloj, unu malantaŭ
 
 
-alia, venis pli rapide ol iu el la antaŭaj kaj ne haltis an-taŭ ol ili estis meze inter la homoj. Sĝmund kaj Torbjĝrn, kiuj preskaŭ subveturiliĝis, samtempe levis la okulojn. En la unua veturilo sidis Knut Nordhaŭg kaj maljunulo, en la dua lia fratino kaj ŝia edzo kaj en la tria la helpistaro. Patro kaj filo sin rigardis reciproke. La viza-
-
-ĝo de Sĝmund estis masko, tiu de Torbjĝrn estis tute pala. Kiam ili lasis la okulojn unu de la alia, ili vidis la homojn de Solbakken, kiuj ekstaris vidalvide por saluti Ingeborg kaj Ingrid Granlien. La veturiloj venis inter ilin.
+alia, venis pli rapide ol iu el la antaŭaj kaj ne haltis an-taŭ ol ili estis meze inter la homoj. Sĝmund kaj Torbjĝrn, kiuj preskaŭ subveturiliĝis, samtempe levis la okulojn. En la unua veturilo sidis Knut Nordhaŭg kaj maljunulo, en la dua lia fratino kaj ŝia edzo kaj en la tria la helpistaro. Patro kaj filo sin rigardis reciproke. La vizaĝo de Sĝmund estis masko, tiu de Torbjĝrn estis tute pala. Kiam ili lasis la okulojn unu de la alia, ili vidis la homojn de Solbakken, kiuj ekstaris vidalvide por saluti Ingeborg kaj Ingrid Granlien. La veturiloj venis inter ilin.
 
 La interparolo haltis. La okuloj sekvis la geveturantojn.
 
@@ -2933,9 +2524,6 @@ Synnĝve, kies okuloj supozeble renkontis liajn, turnis sin al Ingrid kvazaŭ po
 Same salutis la edzinoj.
 
 —Dankon pro la antaŭa ĝentileco!
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Dankon ankaŭ!
@@ -2963,9 +2551,6 @@ Estis Sĝmund, kiu respondis:
 —Tio dependas de la laborpovo, diris Sĝmund kaj turnis sin al ŝi tiel ke ŝi ne bone sukcesis rigardi, kien ŝi volis. — Mi ofte pripensis, ke kelkaj bienoj kunmetu sian laborpovon, tiel certe estus pli facile.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Sed povus okazi, ke ambaŭ emus eluzi la belan ve-teron samtempe, diris Karen kaj faris paŝon flanken.
 
 —Jes, certe, diris Ingeborg kaj ekstaris tuj apud sia edzo, tiel ke Karen ankaŭ nun ne povis rigardi tien, kien ŝi deziris. — Sed en kelkaj lokoj la greno ja estas matura pli frue ol en aliaj, Solbakken ekzemple ofte antaŭas nin je dek kvar tagoj.
@@ -2982,18 +2567,13 @@ SYNNØVE SOLBAKKEN
 
 —ĉu vi kredas, ke li havus ian proteston, se ni sur Granlien kaj Solbakken helpus unuj la aliajn rikolti?
 
-—Ne, estis la opinio de Guttorm. — Li certe ne mal-
-
-ŝatus, kaj li rigardis admone al la edzino.
+—Ne, estis la opinio de Guttorm. — Li certe ne malŝatus, kaj li rigardis admone al la edzino.
 
 ŝi ŝanĝis la temon.
 
 —Kiom da homoj estas hodiaŭ ĉe la preĝejo, ŝi diris,
 
 —Estas edife vidi, ke ili sopiras la domon de Dio.
-
-
-SYNNØVE SOLBAKKEN
 
 
 ŝajne neniu emis respondi. Tiam diris Guttorm:
@@ -3016,18 +2596,13 @@ SYNNØVE SOLBAKKEN
 
 —Mi miras, ke la diservo ankoraŭ ne komenciĝis, diris Karen kaj rigardis al la pordo de la preĝejo.
 
-—Jes, hodiaŭ estas tre varme ekstere, enŝovis Sĝ-
-
-mund. Li ridetis kiel antaŭe.
+—Jes, hodiaŭ estas tre varme ekstere, enŝovis Sĝmund. Li ridetis kiel antaŭe.
 
 —Venu do, Synnĝve, ni eniru!
 
 Synnĝve skuetiĝis kaj turniĝis . . . ŝi estis parolinta kun Torbjĝrn.
 
 —ĉu vi ne bonvolas atendi ĝis kiam sonoras? demandis Ingrid kun flankenrigardo al Synnĝve. — Tiam ni ĉiuj eniros, aldonis Ingeborg.
-
-
-SYNNØVE SOLBAKKEN
 
 
 Synnĝve ne sciis, kion respondi. Sĝmund rigardis al ŝi.
@@ -3040,35 +2615,24 @@ Sed li ridetis al ŝi.
 
 —ĉio ordiĝas laŭ la volo de Dio; ĉu vi ne diris tiel an-taŭ momento? Kaj li ekpaŝis al la preĝejo. La aliaj sekvis.
 
-Estis interpremado antaŭ la pordo. Ili vidis, ke ĝi estas ankoraŭ fermita. uste kiam ili aliris por esplori la kaŭ-
-
-zon, ĝi malfermiĝis. La homoj eniris. Sed kelkaj revenis, kaj ili disigis la alpaŝantojn. Apogitaj al la muro staris du personoj kaj interparolis. Unu de ili estis alta kaj larĝ-
+Estis interpremado antaŭ la pordo. Ili vidis, ke ĝi estas ankoraŭ fermita. uste kiam ili aliris por esplori la kaŭzon, ĝi malfermiĝis. La homoj eniris. Sed kelkaj revenis, kaj ili disigis la alpaŝantojn. Apogitaj al la muro staris du personoj kaj interparolis. Unu de ili estis alta kaj larĝ-
 
 ŝultra, havis helajn, sed hirtajn harojn kaj platnazon.
 
 Estis Knut Nordhaŭg, kiu, kiam li vidis la alvenantajn Granlien-anojn, ĉesis paroli, iom ĝeniĝis, sed tamen restis sur sia loko.
 
-Sĝmund, kiu devis pasi lin, akre rigardis en liajn okulojn. Knut ne mallevis siajn, kvankam ili ne tre kuraĝe rigardis. Nun venis Synnĝve. ŝi paliĝis, kiam ŝi tiel neatendite ekvidis Knut. Nun Knut mallevis la okulojn, pu-
-
-ŝis sin de la muro kaj volis foiri. Apenaŭ farinte kelkajn paŝojn, li vidis kvar vizaĝojn kontraŭ si. Estis Guttorm, lia edzino, Ingrid kaj Torbjĝrn. Kvazaŭ sen ia sn-trolo li rekte aliris ilin, tiel ke li tute nekonscie baldaŭ 128
-
-SYNNØVE SOLBAKKEN
+Sĝmund, kiu devis pasi lin, akre rigardis en liajn okulojn. Knut ne mallevis siajn, kvankam ili ne tre kuraĝe rigardis. Nun venis Synnĝve. ŝi paliĝis, kiam ŝi tiel neatendite ekvidis Knut. Nun Knut mallevis la okulojn, puŝis sin de la muro kaj volis foiri. Apenaŭ farinte kelkajn paŝojn, li vidis kvar vizaĝojn kontraŭ si. Estis Guttorm, lia edzino, Ingrid kaj Torbjĝrn. Kvazaŭ sen ia sn-trolo li rekte aliris ilin, tiel ke li tute nekonscie baldaŭ
 
 
 staris vivdalvide antaŭ Torbjĝrn. ŝajne li volis paŝi flanken, sed, ĉar ĉiam pli da homoj alpuŝiĝis, tio ne estis ebla. ĉio ĉi okazis precize sur la ŝtona pavimo antaŭ la preĝejo. Sur la sojlo de la armilejo6 ekstaris Synnĝve.
 
 Sĝmund staris iom pli malantaŭe. ĉar ili staris pli alte ol la aliaj, ili estis bone videblaj kaj ili mem bone povis vidi ĉiujn. Synnĝve forgesis ĉion kaj gapis al Torbjĝrn, same Sĝmund, lia edzino, la paro de Solbakken kaj Ingrid. Torbjĝrn sentis tion kaj staris kvazaŭ alnajlita sur la pavimo. Knut pensis, ke li faru ion, tial li etendis iom unu manon, sed silentis. Ankaŭ Torbjĝrn iom etendis sian, sed ne tiom, ke ili sukcesis atingi unu la alian.
 
-—Dankon pro la antaŭa . . . ekdiris Knut, sed subite sentis, ke tiu saluto ne estas konvena ĉi tie. Li reiris pa-
-
-ŝon. Torbjĝrn levis la okulojn kaj ili tuŝis Synnĝve. ŝi estis pala kiel neĝo. Farinte grandan paŝon antaŭen, prenante forte la manon de Knut, Torbjĝrn diris tiel ke la ĉirkaŭstarantoj povis aŭdi:
+—Dankon pro la antaŭa . . . ekdiris Knut, sed subite sentis, ke tiu saluto ne estas konvena ĉi tie. Li reiris paŝon. Torbjĝrn levis la okulojn kaj ili tuŝis Synnĝve. ŝi estis pala kiel neĝo. Farinte grandan paŝon antaŭen, prenante forte la manon de Knut, Torbjĝrn diris tiel ke la ĉirkaŭstarantoj povis aŭdi:
 
 —Dankon pro la antaŭa renkonto, Knut; certe estis bone por ni ambaŭ.
 
 Knut elgorĝigis sonon kvazaŭ li singultus. Plurfoje li provis paroli, sed vane. Torbjĝrn ne havis ion por aldoni, li atendis . . . ne levis la okulojn, sed nur atendis. Sed elvenis eĉ ne unu vorto, kaj kiam Torbjĝrn nun staris kaj turnis la kantaron en la manoj, tiu falis teren. Tuj Knut 6 Ejo antaŭ la preĝejo por la bastonoj, hakiloj ktp. de la vizitantoj.
-
-
-SYNNØVE SOLBAKKEN
 
 
 kliniĝis, prenis kaj redonis ĝin al li. — Dankon! diris Torbjĝrn, kiu ankaŭ estis kliniĝinta. Li levis la okulojn, sed, ĉar Knut mallevis la siajn, Torbjĝrn pensis: — Estas pli bone por mi iri. Kaj li iris.
@@ -3081,16 +2645,9 @@ Sĝmund, la patro, flustris en lian orelon:
 
 Ili aŭdis la komencan preĝon, kantis psalmon kaj la konfirmotoj jam viciĝis, kiam Sĝmund duafoje flustris al li. — Sed Knut nur malfacile povas bone konduti, lasu ĉiam longa la distancon inter Granlien kaj Nordhaŭg.
 
-La konfirmacio komenciĝis, la pastro envenis kaj la infanoj ekkantis la konfirmacian kanton de Kingo. Aŭdi ilin, ĉiuj kune, sonplene kaj kuraĝe, ĝenerale estas kortuŝe al la homoj, speciale al tiuj, kiuj ankoraŭ memoras sian propran konfirmacion. Kiam poste sekvis la profunda silento, kaj la pastro . . . la sama nun jam de pli ol dudek jaroj, tiu sama, kiu foje al ĉiu el ili diris konsolan vorton . . . krucigas la manojn sur la brusto kaj ekparo-las, ekvenas ĝenerale emociaj sentoj. Sed la infanoj ek-130
+La konfirmacio komenciĝis, la pastro envenis kaj la infanoj ekkantis la konfirmacian kanton de Kingo. Aŭdi ilin, ĉiuj kune, sonplene kaj kuraĝe, ĝenerale estas kortuŝe al la homoj, speciale al tiuj, kiuj ankoraŭ memoras sian propran konfirmacion. Kiam poste sekvis la profunda silento, kaj la pastro . . . la sama nun jam de pli ol dudek jaroj, tiu sama, kiu foje al ĉiu el ili diris konsolan vorton . . . krucigas la manojn sur la brusto kaj ekparo-las, ekvenas ĝenerale emociaj sentoj. Sed la infanoj ekploras nur, kiam la pastro petas la gepatrojn preĝi al Dio pro siaj infanoj. Torbjĝrn, kiu antaŭ kelka tempo estis tiel proksima al la morto kaj antaŭ nelonge kredis, ke li estos kriplulo, ploradis multe, ĉefe kiam la infanoj diris la ĵuron . . . ĉiuj kredante, ke ili neniam rompos gin.
 
-SYNNØVE SOLBAKKEN
-
-
-ploras nur, kiam la pastro petas la gepatrojn preĝi al Dio pro siaj infanoj. Torbjĝrn, kiu antaŭ kelka tempo estis tiel proksima al la morto kaj antaŭ nelonge kredis, ke li estos kriplulo, ploradis multe, ĉefe kiam la infanoj diris la ĵuron . . . ĉiuj kredante, ke ili neniam rompos gin.
-
-Eĉ ne unu fojon li rigardis al la virinseĝejo. Post la fini-
-
-ĝo de la diservo li iris al Ingrid kaj flustris ion al ŝi. Post tio li rapide premiĝis tra la amaso. Iuj diris, ke li anstataŭ iri laŭ la ŝoseo, verŝajne iris laŭ la rando de la monto kaj arbaren, sed tute certaj ili ne estis pri tio. Sĝmund serĉis lin, sed lasis, kiam li konstatis, ke ankaŭ Ingrid estis for. Li serĉis la Solbakken-anojn, kiuj kuris en la najbaraĵo kaj serĉis Synnĝve, kiun neniu estis vidinta. Ili ekiris hejmen, ĉiuj sian vojon, sen la infanoj.
+Eĉ ne unu fojon li rigardis al la virinseĝejo. Post la finiĝo de la diservo li iris al Ingrid kaj flustris ion al ŝi. Post tio li rapide premiĝis tra la amaso. Iuj diris, ke li anstataŭ iri laŭ la ŝoseo, verŝajne iris laŭ la rando de la monto kaj arbaren, sed tute certaj ili ne estis pri tio. Sĝmund serĉis lin, sed lasis, kiam li konstatis, ke ankaŭ Ingrid estis for. Li serĉis la Solbakken-anojn, kiuj kuris en la najbaraĵo kaj serĉis Synnĝve, kiun neniu estis vidinta. Ili ekiris hejmen, ĉiuj sian vojon, sen la infanoj.
 
 Malproksime sur la vojo iris Synnĝve kaj Ingrid.
 
@@ -3105,9 +2662,6 @@ Malproksime sur la vojo iris Synnĝve kaj Ingrid.
 —Li havas longan ĉirkaŭvojon, diris Synnĝve.
 
 —Jam alveninta, diris Torbjĝrn, leviĝante malantaŭ granda ŝtono.
-
-
-SYNNØVE SOLBAKKEN
 
 
 En la kapo li jam ordigis ĉion, kion li volis diris, kaj ne estis malmulte. Hodiaŭ li parolos senpene, ĉar la patro ja scias kaj aprobis, pri tio li kredis esti certa laŭ tio, kio okazis en la preĝejo. Kaj kiel li sopiris la tutan someron; fakte li nun devus havi pli da kuraĝo paroli kun ŝi ol antaŭe.
@@ -3135,14 +2689,9 @@ Al tio ŝi ne respondis.
 —La somero estis tre longa, li daŭrigis.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Ankaŭ al tio ŝi ne respondis.
 
-—Ne, tiel ne estas eble, pensis Torbjĝrn. — Se ni daŭ-
-
-rigas la iradon, ni ne havos taŭgan interparolon. — Mi kredas, ke estas plej bone atendi Ingrid, li diris.
+—Ne, tiel ne estas eble, pensis Torbjĝrn. — Se ni daŭrigas la iradon, ni ne havos taŭgan interparolon. — Mi kredas, ke estas plej bone atendi Ingrid, li diris.
 
 —Jes, ni atendu! diris Synnĝve kaj haltis. ĉi tie ne estis beroj por kolekti, tion vidis Torbjĝrn. Synnĝve estis pre-ninta longan herbon kaj ŝi nun faris girlandon el al beroj kaj la herbtrunketo.
 
@@ -3154,9 +2703,7 @@ rigas la iradon, ni ne havos taŭgan interparolon. — Mi kredas, ke estas plej 
 
 Synnĝve ankoraŭ diligente pikis la herbon tra la beroj. ŝia kapo estis klinita. Li paŝis iom flanken por vidi ŝian vizaĝon, sed kvazaŭ ŝi estus observinta tion, ŝi sciis aranĝi tiel, ke ŝi devis turniĝi denove.
 
-Nun li preskaŭ timis, ke li tute ne sukcesos. — Synnĝ-
-
-ve, ĉu vi ne havas ion por diri al mi?
+Nun li preskaŭ timis, ke li tute ne sukcesos. — Synnĝve, ĉu vi ne havas ion por diri al mi?
 
 ŝi levis la okulojn kaj ridis.
 
@@ -3169,9 +2716,6 @@ Li sentis sian kuraĝon reveni kaj volis ĉirkaŭbraki ŝin, sed ĝuste kiam li 
 —Jes, ŝi respondis.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Do, vi havas ion por diri, li daŭrigis.
 
 ŝi silentis.
@@ -3182,9 +2726,7 @@ SYNNØVE SOLBAKKEN
 
 —Jes, li diris kaj ŝatis preni ŝian manon, sed ŝi eĉ pli diligente ol antaŭe vicigis la berojn.
 
-—Estas fatala afero, li diris. — Ke vi tiel prenis la kura-
-
-ĝon de mi. Li ne povis vidi, ĉu ŝi ridetas pri tio, kaj tial li ne sciis, kion li aldonu.
+—Estas fatala afero, li diris. — Ke vi tiel prenis la kuraĝon de mi. Li ne povis vidi, ĉu ŝi ridetas pri tio, kaj tial li ne sciis, kion li aldonu.
 
 —Bone do, li diris subite laŭtvoĉe, kvankam la voĉo ne estis firma. — Kion vi faris kun la letereto?
 
@@ -3205,9 +2747,6 @@ Rapide li prenis ŝin kaj turnis ŝian vizaĝon al si, sed kiam li vidis, ke ŝi
 —Jes, sed estis . . . kruele de vi.
 
 —La patro deziris . . .
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Tamen . . .
@@ -3237,9 +2776,6 @@ Nun ŝi ne plu kolektis berojn.
 Denove ili iris flankon ĉe flanko kaj tiel longe kiel ŝi silentis, li ne kuraĝis tuŝi ŝin nek paroli al ŝi. Li sentis sin mirige malpeza kaj kirlo estis en lia kapo. Brulis antaŭ liaj okuloj. Kiam ili atingis la altaĵon, de kiu Solbakken estis bone videbla, estis al li kvazaŭ li estus loĝinta tie sian tutan vivon kaj sopiris tien kiel al sia hejmo.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Same bone mi povos nun tuj akompani ŝin tien, li pensis. Li sorbis kuraĝon per la rigardo, kaj lia decido plifirmiĝis per ĉiu paŝo. — La patro helpos al mi, li pensis. — Mi ne eltenos ĉi tion pli longe, mi devas iri tien
 
 . . . mi devas! Li iris pli kaj pli rapide, rigardante nur antaŭen. Sunbrilo estis super la regiono kaj la bieno.
@@ -3265,9 +2801,6 @@ Torbjĝrn skuiĝis. La disiĝo venis tro frue. Ankaŭ Synnĝve havis strangan se
 Synnĝve devis rideti.
 
 —Bone, li diris. — Alian fojon do . . . Li prenis ŝian manon.
-
-
-SYNNØVE SOLBAKKEN
 
 
 ŝi levis la okulojn en plena, klara rigardo. Li sentis dolĉan varmon, kaj tuj fulmis tra lia kapo. — Mi iru kun ŝi, tuj! Sed tiam ŝi retiris la manon milde, turniĝis al Ingrid kaj diris al ŝi. — is la revido! kaj iris trankvile malsupren al la vojo . . . Torbjĝrn ne povis sekvi ŝin. La du gefratoj iris tra la arbaro hejmen.
@@ -3296,9 +2829,7 @@ Torbjĝrn ne respondis, sed iris aliflanken al la benko, supozeble por demeti la
 
 —ĉu do la D . . blo? murmuris Sĝmund kaj manĝadis.
 
-Iom poste li estis preta kaj leviĝis. Li iris al la fenestro, 137
-
-SYNNØVE SOLBAKKEN
+Iom poste li estis preta kaj leviĝis. Li iris al la fenestro,
 
 
 staris momenton kaj elrigardis. Poste li turniĝis. — Torbjĝrn . . . ni iru kaj rigardu la grenaron.
@@ -3311,9 +2842,7 @@ Torbjĝrn, kiu sidis ĉemizmanike, prenis malnovan jakon, kiu pendis super li.
 
 —Sed, ĉu vi ne vidas, ke mi surmetis mian novan jakon? demandis Sĝmund.
 
-Torbjĝrn surmetis ankaŭ la novan kaj ili eliris, Sĝ-
-
-mund unua, Torbjĝrn malantaŭ li.
+Torbjĝrn surmetis ankaŭ la novan kaj ili eliris, Sĝmund unua, Torbjĝrn malantaŭ li.
 
 Ili iris malsupren al la vojo.
 
@@ -3329,9 +2858,7 @@ uste kiam ili atingis la straton, veturilo alvenis malrapide.
 
 La veturilo haltis, kiam ĝi estis proksima al la viroj de Granlien.
 
-—ŝi vere estas impona ino, tiu Marit Nordhaŭg, flustris Sĝmund, kiu ne povis turni siajn okulojn de ŝi. ŝi sidis malantaŭen klinetita en la veturilo kun unu tuko metita ĉirkaŭ la kapo kaj alia sur la ŝultroj. ŝi rigardis rekte al la viroj, ŝiaj puraj, fortaj trajtoj estis masko. La viro estis tre pala kaj maldika. Li aspektis eĉ pli milda ol 138
-
-SYNNØVE SOLBAKKEN
+—ŝi vere estas impona ino, tiu Marit Nordhaŭg, flustris Sĝmund, kiu ne povis turni siajn okulojn de ŝi. ŝi sidis malantaŭen klinetita en la veturilo kun unu tuko metita ĉirkaŭ la kapo kaj alia sur la ŝultroj. ŝi rigardis rekte al la viroj, ŝiaj puraj, fortaj trajtoj estis masko. La viro estis tre pala kaj maldika. Li aspektis eĉ pli milda ol
 
 
 ĝenerale, kvazaŭ kiel homo, kiu havas dolorojn, pri kiuj li ne povas paroli.
@@ -3373,9 +2900,6 @@ Marit rigardis unue lin kaj poste la aliajn; ioma ruĝiĝo rapidis trans ŝian v
 —Ne, tion ŝi ne faros.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Laŭdire oni facile povas gajni monon en Ameriko, diris Torbjĝrn, kiu sentis, ke estas pli bone, ne permesi halton en la interparolado.
 
 —A˛ . . . ja! diris la viro.
@@ -3403,9 +2927,6 @@ Ili veturis antaŭen . . . malrapide. Polvnubo kirlis ĉir-kaŭ ili. La radioj d
 Longe iris patro kaj filo . . . silentaj.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Mi sentas, ke daŭros longe antaŭ ol li revenos, diris Torbjĝrn fine.
 
 —Estas pli bone tiel, opiniis Sĝmund. — Se iu ne trovas la feliĉon en la hejma lando.
@@ -3421,10 +2942,7 @@ Kaj ili plu marŝis.
 Torbjĝrn ne kuraĝis demandi kien ili iru. Jam ili pasis la limon de la Granliena tero.
 
 
-SYNNØVE SOLBAKKEN
-
-
-NAŭA ĉAPITRO
+NAŬA ĈAPITRO
 
 Guttorm kaj Karen jam finis manĝi, kiam Synnĝve envenis tute ruĝa kaj preskaŭ senspira.
 
@@ -3449,9 +2967,6 @@ Synnĝve altabliĝis kaj la patrino, eksidinte vidalvide, daŭrigis:
 —Kompreneble, ŝi rajtas, diris la patrino iom pli afable. — Sed ŝi devus ja sekvi la gepatrojn.
 
 Al tio ne venis respondo.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Estis benita diservo, diris la patrino. — Estas edife vidi la infanojn en la preĝejo.
@@ -3485,9 +3000,6 @@ La patrino ŝovis la fingron sur la tablo. Larmo falis, la fingro forigis ĝin.
 — Vi marŝis longan vojon.
 
 —Mi ne havas apetiton, diris Synnĝve kaj tiretadis angulon de sia brusttuko.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Manĝu, infano mia, diris la patro.
@@ -3531,9 +3043,6 @@ La viroj pli kaj pli proksimiĝis. La pli aĝa haltis kaj rigardis returne, la p
 La patrino turniĝis, reiris al la tablo kaj ordigis ĝin post la manĝeto de Synnĝve.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Estus bone, resurmeti la tukon, kara infano, ĉar venas gastoj, ŝi diris al Synnĝve.
 
 Apenaŭ ŝi diris tion, Sĝmund malfermis la pordon kaj eniris; Torbjĝrn sekvis lin.
@@ -3560,9 +3069,7 @@ Plej laste ili venis al Synnĝve, kiu staris ankoraŭ en angulo kun la tuko en l
 
 Lia edzino eksidis sur la benko.
 
-—Certe, diris Sĝmund. — Oni tiel serioze pensas pri ili . . . Kaj pro tio mi promenis ĉi tien hodiaŭ vespere, li aldonis rigardante ĉirkaŭen kun sinfido, prenis novan 145
-
-SYNNØVE SOLBAKKEN
+—Certe, diris Sĝmund. — Oni tiel serioze pensas pri ili . . . Kaj pro tio mi promenis ĉi tien hodiaŭ vespere, li aldonis rigardante ĉirkaŭen kun sinfido, prenis novan
 
 
 maĉtabakon kaj remetis la uzitan pecon tre zorge en la latunan skatolon.
@@ -3579,9 +3086,7 @@ Li kaŝrigardis al Synnĝve, kiu kvazaŭ sentis tiun rigardon.
 
 —La afero nun estas tia, ke li amas Synnĝve, de kiam li komprenas ion pri tio . . . kaj ne estas dubo, ke ankaŭ ŝi amas lin. Tial mi kredas, ke estas plej bone, ke ili havu unu la alian. Mi ne ŝatis la aferon, kiam mi vidis, ke li apenaŭ povis regi sin mem, malpli do aliajn. Sed mi kredas, ke mi povas garantii pri li, kaj se mi ne povus, ŝi povus, ĉar ŝia influo estas nun pli granda. . . . Kio estas via opinio? ĉu ni geedzigu ilin? Ne necesas urĝi, sed mi ne scias, kial prokrasti la kunigon. Vi Guttorm, estas bonhava, mi ne tiom kaj mi devos partigi al pli multaj, sed mi tamen kredas, ke ni povas aranĝi la aferon. Diru nun, kion vi pensas . . . ŝin mi demandos plej laste, ĉar mi kredas scii, kion ŝi volas.
 
-Tiel parolis Sĝmund. Guttorm sidis klinita, metis interŝanĝe unu manon sur la alian, plurfoje li penis leviĝi, 146
-
-SYNNØVE SOLBAKKEN
+Tiel parolis Sĝmund. Guttorm sidis klinita, metis interŝanĝe unu manon sur la alian, plurfoje li penis leviĝi,
 
 
 ĉe ĉiu provo li profunde spiris, sed nur post kvar aŭ kvin vanaj provoj li sukcesis. Nun li rektigis la dorson, gliti-gis la manon sur la genuo kaj rigardis al sia edzino tiel, ke de tempo al tempo lia rigardo tuŝis Synnĝve.
@@ -3607,9 +3112,6 @@ La geedzoj reciproke rigardis sin. Tio daŭris certe tutan minuton.
 —Se ni nur povus tute fidi al li, diris ŝi.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Jes, Sĝmund nun reprenis la vorton. — Koncerne al tiu punkto mi devas ripeti, kion mi antaŭe diris: La veturado sukcesos, se ŝi prenos la bridon. Estas apenaŭ kredeble, kiom ŝi okupas lin. Mi konstatis ŝian influon, kiam li kuŝis malsana hejme kaj ne sciis kiel finiĝos, ĉu li ree estos sana aŭ ne.
 
 —Vi ne kontraŭstaru plu, diris Guttorm. Vi scias, kion ŝi mem deziras kaj estas ja ŝi, por kiu ni vivas!
@@ -3627,9 +3129,6 @@ Nun Guttorm leviĝis.
 —Nun . . . kion vi diras nun, infano mia? diris la patrino, kiu ankaŭ estis irinta al Synnĝve.
 
 Tiu ankoraŭ sidis, la aliaj staris ĉirkaŭ ŝi. Escepte de Torbjĝrn, li sidis ankoraŭ, kie li unue eksidis.
-
-
-SYNNØVE SOLBAKKEN
 
 
 —Vi devas leviĝi, infano mia, flustris la patrino al ŝi. ŝi leviĝis, ridetis, turniĝis kaj ekploris.
@@ -3661,9 +3160,6 @@ La pordo senbrue malfermiĝis, iu enŝovis la kapon. —
 —ŝi envenu! diris kvar voĉoj samtempe. La mastrino de Solbakken paŝis al la pordo, dum la aliaj ĝoje rigardis unuj la aliajn.
 
 
-SYNNØVE SOLBAKKEN
-
-
 —Venu nur, panjo, ili aŭdis diri Ingrid. Do envenis Ingeborg Granlien kun sia neĝblanka ĉapeto.
 
 —Mi ĝuste divenis, ŝi diris. — Kvankam Sĝmund neniam diras ion al mi, kaj Ingrid kaj mi ne povis ne veni ĉi tien.
@@ -3683,15 +3179,9 @@ Torbjĝrn estis eksidinta apud la fenestro. Synnĝve de-likatpaŝe iris al li ka
 —Kien vi rigardas? ŝi flustris.
 
 
-SYNNØVE SOLBAKKEN
-
-
 Li turnis la kapon al ŝi, longe rigardis ŝin milde kaj nun ree rigardis tra la fenestro.
 
 —Mi rigardas transen al Granlien, li diris. — Estas tiel emocie vidi ĝin de ĉi tie . . .
-
-
-SYNNØVE SOLBAKKEN
 
 
 www.omnibus.se/

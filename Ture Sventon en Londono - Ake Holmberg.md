@@ -18,10 +18,6 @@ Malte Markheden
 
 (www.uea.org) aŭ vialanda libroservo.
 
-@omnibus.se
-
-·
-
 
 S V E N TO N E N L O N D O N O
 
@@ -44,9 +40,6 @@ Strange, li pensis kaj plueniris en la halon. Li eklumigis la lampon kaj vokis t
 Neniu respondis. Nu, certe estas iu natura kialo, li pensis.
 
 
-S V E N TO N E N L O N D O N O
-
-
 En la sekva tago li sidis en la biblioteko kaj pritraktis nepagitajn fakturojn. Li ekĝemis kaj pensis, ke li tamen devos skribi al sia onklino Viktoria. Domaĝe devi ĝeni ŝin, kiam ŝi estas forvojaĝinta, sed li kiel kutime ne vidis alian rimedon.
 
 La edzo de Viktoria Smito dum sia tempo estis konata pro siaj kalsonoj — tio estas, li produktis kalsonojn, li fondis fabrikon kaj produktis amason da kalsonoj. Nun ŝia filo transprenis la entreprenon, kaj li fabrikis eĉ pli da kalsonoj. uste nun li kaj lia edzino estis forvojaĝintaj. Temis pri kalsonoj. Estis negocvojaĝo. Kaj pro tio iliaj infanoj Maria kaj Diko loĝis ĉe li.
@@ -66,9 +59,6 @@ La kuiristino foriris malbonhumore murmurante.
 En la sekva mateno lordo Hubardo envenis en la halon,
 
 kiam Beti polvosuĉis la tapiŝon. Li portis kvadratumitan kostumon kaj liaj ruĝbrunaj lipharoj pendis kiel kutime.
-
-
-S V E N TO N E N L O N D O N O
 
 
 –Bonan matenon, Beti, li diris. Kian veteron ni havas hodiaŭ?
@@ -93,9 +83,7 @@ Vespere li ree sidis en la biblioteko kaj kontrolis siajn fakturojn. Nun mi vere
 
 Tiam li subite rimarkis, ke paro da ŝuoj elstaras de sub la kurteno. Li sidis senmove kaj pensis. Ankaŭ la ŝuoj ne mo-viĝis. Eble la ŝuoj estas armitaj, li pensis kaj silente levis sin en la seĝo. Li piedpinte iris el la ĉambro kaj ŝlosis la pordon kiel plejeble silente. Li suprenkuris al sia dormĉambro, havigis pistolon el la noktotabla kesto kaj returnis malsupren. Li levis la pistolon kaj malfermis la pordon.
 
-La ŝuoj estis for. Li rigardis malantaŭ la kurtenoj, kaj li rigardis ĉie en la ĉambro. Neniu estis tie. La biblioteko havis 5
-
-S V E N TO N E N L O N D O N O
+La ŝuoj estis for. Li rigardis malantaŭ la kurtenoj, kaj li rigardis ĉie en la ĉambro. Neniu estis tie. La biblioteko havis
 
 
 nur unu pordon, kaj la fenestroj estis bone fermitaj, la hok-oj estis surmetitaj. Malgraŭ tio la ŝuoj ne plu restadis en la ĉambro.
@@ -103,9 +91,6 @@ nur unu pordon, kaj la fenestroj estis bone fermitaj, la hok-oj estis surmetitaj
 Lordo Hubardo sidiĝis en seĝon kaj cerbumis.
 
 Nu, li pensis, kiam li longe cerbumadis kaj ne trovis klari-gon, kredeble ekzistas iu natura kialo.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Privatdetektivo T. Sventon, Stokholmo
@@ -118,9 +103,7 @@ Privatdetektivo
 
 Estis multaj homoj, kiuj eniris tra la pordego, kaj plej multaj estis survoje al Sventon. Li havis grandan klientaron. En novembra tago viro kun pendantaj lipharoj kaj kvadratumita kostumo eniris tra la pordego. Li portis valizon.
 
-Li sidiĝis en la atendejo de la privatdetektivo. Tie kiel kutime estis neordinare multaj homoj, kaj tio estis nenio mirin-da. ĉiuj sciis, ke T. Sventon estas la plej lertega privatdetektivo, kiu iam ekzistis ĉe la malsupra parto de Reĝina Strato en Stokholmo, jes en la tuta lando. Li estis tute superŝutita de komisioj. ĉie oni vidis lin. Ekzemple oni supozu, ke familio en Katrineholmo subite rimarkas, ke ilia piano malaperis el la manĝoĉambro. Oni serĉas ĝin en ĉiuj ĉambroj, oni serĉas en la subtegmentejo kaj en la kelo, sed la piano estas for. La manĝoĉambro aspektas tre dezerta. Tiaj okazoj estas pli of-taj, ol oni volas kredi. La plej saĝa, kion oni povas fari en tia kazo, estas turni sin al T. Sventon, Stokholmo. En la sekva tago oni tute ne miru, se oni sur iu el la kvietaj stratoj en Katrineholmo renkontas ĝardeniston, kiun oni antaŭe ne vidis 7
-
-S V E N TO N E N L O N D O N O
+Li sidiĝis en la atendejo de la privatdetektivo. Tie kiel kutime estis neordinare multaj homoj, kaj tio estis nenio mirin-da. ĉiuj sciis, ke T. Sventon estas la plej lertega privatdetektivo, kiu iam ekzistis ĉe la malsupra parto de Reĝina Strato en Stokholmo, jes en la tuta lando. Li estis tute superŝutita de komisioj. ĉie oni vidis lin. Ekzemple oni supozu, ke familio en Katrineholmo subite rimarkas, ke ilia piano malaperis el la manĝoĉambro. Oni serĉas ĝin en ĉiuj ĉambroj, oni serĉas en la subtegmentejo kaj en la kelo, sed la piano estas for. La manĝoĉambro aspektas tre dezerta. Tiaj okazoj estas pli of-taj, ol oni volas kredi. La plej saĝa, kion oni povas fari en tia kazo, estas turni sin al T. Sventon, Stokholmo. En la sekva tago oni tute ne miru, se oni sur iu el la kvietaj stratoj en Katrineholmo renkontas ĝardeniston, kiun oni antaŭe ne vidis
 
 
 tie. Estas Sventon, kiu esplorrigardas. Li havas kelke da pere-noj sub la brako, sed oni rekonas lin pro lia tranĉilakra pro-filo.
@@ -129,18 +112,13 @@ En la venonta tago eblas, ke oni renkontas lin en iu el la plej fekundaj agrardi
 
 Jes, Sventon aperis en la plej neantauviditaj lokoj, kaj tio dependis de la fakto, ke li posedas flugantan tapiŝon. Kompreneble fervojoj estas konvenaj, kiam temas pri vojaĝoj. An-kaŭ aŭtoj povas esti bonaj. Kaj kompreneble ankaŭ aviadilo povas esti praktike utila, se temas pri vojaĝo inter du mal-proksimaj lokoj. Sed vera araba fluganta tapiŝo estas io tute alia. En nia lando ĉi tiuj praktikaj tapiŝoj neniam akiris suk-ceson. En la Proksima Oriento kun ĉirkaŭaĵo oni ofte vidas ilin. En la arabaj urboj kun siaj svarmantaj homamasoj eĉ estas specialaj parkejoj por la tapiŝoj.
 
-Ture Sventon estis aĉetinta la tapiŝon de sinjoro Omaro, kiu loĝas en la Araba Dezerto. Kaj poste li povis surteriĝi kie ajn. Ekzistis spertaj enrompŝtelistoj, kiuj opiniis, ke ŝtelado ne plu donas profiton. Ekzemple Franco Briljanto kaj Tomaso Larsono. Ili renkontiĝis en iu nokto ekster unu el la malmultaj juvelistfenestroj, kiujn ili ankoraŭ ne rompis. Briljanto kunhavis grandan rompilon, kaj Tomaso havis pli malgrandan faldeblan modelon en la poŝo. Krom tio ili havis pli ol 300
+Ture Sventon estis aĉetinta la tapiŝon de sinjoro Omaro, kiu loĝas en la Araba Dezerto. Kaj poste li povis surteriĝi kie ajn. Ekzistis spertaj enrompŝtelistoj, kiuj opiniis, ke ŝtelado ne plu donas profiton. Ekzemple Franco Briljanto kaj Tomaso Larsono. Ili renkontiĝis en iu nokto ekster unu el la malmultaj juvelistfenestroj, kiujn ili ankoraŭ ne rompis. Briljanto kunhavis grandan rompilon, kaj Tomaso havis pli malgrandan faldeblan modelon en la poŝo. Krom tio ili havis pli ol
 
 ŝtelŝlosilojn en la dorssako. Briljanto elprenis el la dorssako ŝtrumpon plenan de sablo. Li levis ĝin por disbati la fenestro-vitron, kiam Tomaso ekpensis pri io.
 
 —Vi! Atendu momenton! Ekpensis pri io. Sventon!
 
-—Aj! Vi diris ion, Tomaso! Sventon, jes. Tio ne donos profi-8
-
-S V E N TO N E N L O N D O N O
-
-
-ton. Mi pensas, ke mi anstataŭe prenos laboron en iu brullignejo.
+—Aj! Vi diris ion, Tomaso! Sventon, jes. Tio ne donos profiton. Mi pensas, ke mi anstataŭe prenos laboron en iu brullignejo.
 
 —Jes, mi opinias, ke vi faru tion, Briljanto. Kaj mi serĉos laboron en iu rapidekspedejo.
 
@@ -151,9 +129,6 @@ ton. Mi pensas, ke mi anstataŭe prenos laboron en iu brullignejo.
 —Dankon, la samon reciproke!
 
 Ili malgajaj foriris, ĉiu al sia direkto.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Lordo Hubardo ĉe Ture Sventon
@@ -178,29 +153,20 @@ Sventon ankoraŭfoje demandis, pri kio temas la afero.
 
 T. Sventon rigardis la horloĝon.
 
-—Estas loĝanta en Londono, daŭrigis Hubardo. Havas do-
-
-mon ĉe Holanda Parkavenuo.
-
-
-S V E N TO N E N L O N D O N O
+—Estas loĝanta en Londono, daŭrigis Hubardo. Havas domon ĉe Holanda Parkavenuo.
 
 
 Sventon tiris al si notblokon kaj notis tiujn faktojn.
 
 —ĉu io estas ŝtelita? li demandis.
 
-—Ne, nenio laŭ mia scio. Mankas al mi nenio. Mi traser-
-
-ĉis ĉiun moveblan havaĵon laŭ la inventaro.
+—Ne, nenio laŭ mia scio. Mankas al mi nenio. Mi traserĉis ĉiun moveblan havaĵon laŭ la inventaro.
 
 —ĉu la inventaro estas fidinda? Sventon demandis. Eble ĝi estas malnova?
 
 —Ho ne, ne tre malnova. i estas de la jaro 1881, kiam mia avo mortis. La sama jaro, en kiu Ruĝa Vulpo fariĝis dua en la ĉevalkonkurso Granda Nacia.
 
-—Pri kio do temas? diris Sventon. Li eligis sian poŝhorlo-
-
-ĝon kaj klakige metis ĝin sur la tablon.
+—Pri kio do temas? diris Sventon. Li eligis sian poŝhorloĝon kaj klakige metis ĝin sur la tablon.
 
 —Por rekte paroli, diris lordo Hubardo kaj suĉis sian pipon, la tuta historio estas tre stranga. Tute ne povas klarigi ĝin.
 
@@ -220,9 +186,7 @@ Lordo Hubardo montris, kion li havas en la valizo. Unue li metis tri kamizolojn 
 
 —La plej valoraj objektoj! ekkriis Sventon. Aha! estas mal-multe da kamizoloj en Britio! ĉu eble ne aĉeteblaj nuntempe?
 
-—Kamizoloj? Malmultaj? diris lordo Hubardo kaj levis la 11
-
-S V E N TO N E N L O N D O N O
+—Kamizoloj? Malmultaj? diris lordo Hubardo kaj levis la
 
 
 brovojn. Tion mi ne povas kredi. Estis ĵus ĉe Jaksono & An-dreo ĉe Bondostrato. Tie vere ne estis manko. Vojaĝos al Stokholmo, mi diris, kaj mi ne scias, kian veteron ili havas tie.
@@ -237,9 +201,7 @@ Donu al mi tri kamizolojn por eviti riskon.
 
 Sventon tamburis senpacience sur la tablo.
 
-—Ankaŭ aŭdis hazarde tra la pordo telefonan interparo-
-
-lon, Hubardo daŭrigis ne konsterniĝinta. El Manĉestro. Ili estis sendintaj plenvagonon da kamizoloj! li diris kaj trium-fe rigardis Sventon. Kial li por ĉio en la mondo kredas, ke estus manko de kamizoloj en Britio? li pensis.
+—Ankaŭ aŭdis hazarde tra la pordo telefonan interparolon, Hubardo daŭrigis ne konsterniĝinta. El Manĉestro. Ili estis sendintaj plenvagonon da kamizoloj! li diris kaj trium-fe rigardis Sventon. Kial li por ĉio en la mondo kredas, ke estus manko de kamizoloj en Britio? li pensis.
 
 Poste li elprenis arĝentan kuleron, per kiu lordo Nelson kiel infano ne volis manĝi la kaĉon. Plue ege valoran salujon kun kovrilo kaj entenanta iom da salo, kiun reĝino Viktoria iam kredis esti sukero, kaj tial ŝia rabarbkompoto estiĝis tute nemanĝebla. Plue etan pentraĵon, kiu ankaŭ estis eksterordi-nare valora.
 
@@ -248,9 +210,6 @@ Poste li elprenis arĝentan kuleron, per kiu lordo Nelson kiel infano ne volis m
 diris.
 
 —Nekonata? Kiel oni do scias, ke li estis majstro? Sventon akre demandis kaj rigardis la pentraĵon. i prezentis nenion specialan. i estis tiel malnova, ke ĝi estis tute nigra. i estis pentrita en la jaro 1323. Kelkaj esploristoj opiniis, ke ĝi pre-zentas ”La fuĝon al Egiptio”, aliaj opiniis, ke ĝi montras ”Matenmanĝon en la arbargardista kabano”.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Opinias, ke ŝajnas esti motorciklo ĉi tie, diris la lordo kaj montris al eĉ pli malhela parto.
@@ -285,12 +244,7 @@ daŭrigis lordo Hubardo.
 
 —Antonon Smiton? Sventon diris kun sulkigita frunto.
 
-—Jes, li, kiu nun posedas la fabrikon. Mia bofrato. Li per-13
-
-S V E N TO N E N L O N D O N O
-
-
-dis 500 kalsonojn en Mjölby antaŭ kelkaj jaroj, kiam li estis je negocvojaĝo, kaj tion sinjoro Sventon solvis al li. Tial mi pensis, ke ankaŭ mi turnu min ĉi tien.
+—Jes, li, kiu nun posedas la fabrikon. Mia bofrato. Li perdis 500 kalsonojn en Mjölby antaŭ kelkaj jaroj, kiam li estis je negocvojaĝo, kaj tion sinjoro Sventon solvis al li. Tial mi pensis, ke ankaŭ mi turnu min ĉi tien.
 
 Antono Smito? Jes, estis tiel. Sventon nun memoris, ke fa-brikestro Smito en tute neklarigebla maniero estis perdinta siajn kalsonojn. Kompreneble Sventon solvis la aferon. Post intensa esplorlaboro Sventon trovis la tutan kvanton en malgranda stacia vilaĝo en meza Svedio (sed tiam ĝi jam estis disigita kaj cetere la tuta kvanto estis uzita).
 
@@ -306,12 +260,7 @@ kuŝiĝis. Kaj lordo Hubardo rakontis, kion li aŭdis en tiu vespero, kiam oni e
 
 —Kial ŝi staris malantaŭ la kurteno? ĉu ŝi kaŝludis? Sventon demandis malkonfide.
 
-–Kaŝludis? diris Hubardo kun vera surprizo. Kiel tiu Sven-14
-
-S V E N TO N E N L O N D O N O
-
-
-ton povas kredi, ke Beti kaŝludis, li pensis. En la biblioteko?
+–Kaŝludis? diris Hubardo kun vera surprizo. Kiel tiu Sventon povas kredi, ke Beti kaŝludis, li pensis. En la biblioteko?
 
 Kiam mi sidis tie kaj kontrolis (nepagitajn) fakturojn. Komplete ridinde. Stranguloj, tiuj privatdetektivoj.
 
@@ -340,16 +289,11 @@ Sventon, kiu ordeme notis, retenis sin.
 Lordo Hubardo rigardis Sventon esplore. Strangaj uloj, tiuj privatdetektivoj. Oni neniam povas tute kompreni ilin.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Ni ja parolis pri la kurtenoj, li diris. Ili estas el ruĝa ve-luro kun franĝoj malsupre. Mia patro aĉetis ilin en la sama jaro, kiam reĝino Viktoria festis sian jubileon.
 
 —Kiu staris malantaŭ la kurteno?
 
-—Tute fremda homo. Ne povas memori, ke mi antaŭe vi-
-
-dis lin.
+—Tute fremda homo. Ne povas memori, ke mi antaŭe vidis lin.
 
 —Priskribu la aspekton, por ke ni havu klaran personpri-skribon, diris Ture Sventon.
 
@@ -372,9 +316,6 @@ Nalo Nivalo estas konata de ĉiu praktikanta privatdetektivo. Ankaŭ de ĉiu nep
 ĉiame tiu Nivalo!
 
 
-S V E N TO N E N L O N D O N O
-
-
 Sventon sidis tie konfuze simila al akcipitro. Estis konate, ke la sola, kiu iam sukcesis kapti Nivalon, estis T. Sventon.
 
 —Se mi nur povus kompreni, kion li volas. Li nur kaŝiras tie en tre incita maniero. Kaj tial mi demandas, ĉu sinjoro Sventon volas preni sur sin la aferon. Unue mi intencis turni min al Scotland Yard.
@@ -389,14 +330,9 @@ Sventon estis, ke li diris fattobulkoj, kiam li volis diri fastobulkoj, kaj ke l
 
 —Povas kredi tion! diris Sventon. Ha! Ridinde! Neniuj fattobulkoj en Londono, unu el la plej grandaj kaj riĉaj urboj en la mondo. Li ekmemoris, ke ekzistas tutaj kontinentoj, kie regas la sama terura manko de fattobulkoj.
 
-Fraŭlino Jansono malfermis la pordon kaj enmetis la ka-
-
-pon:
+Fraŭlino Jansono malfermis la pordon kaj enmetis la kapon:
 
 —Sinjoro Omaro atendas, ŝi diris.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Forvojaĝo al Londono
@@ -419,12 +355,7 @@ Tuj sinjoro Omaro aperis je la pordo. Li estis alta kaj svel-ta, kaj vere orient
 
 —Agrabla surprizo, diris Sventon. ĉu mi rajtas regali vin per fattobulko?
 
-—Post miaj antaŭaj vizitoj ĉe sinjoro Sventon mi tenas tiujn fastobulkojn en dankema memoro, kaj estos por mi gran-18
-
-S V E N TO N E N L O N D O N O
-
-
-da plezuro persone konsumi tian en kunesto de sinjoro Sventon.
+—Post miaj antaŭaj vizitoj ĉe sinjoro Sventon mi tenas tiujn fastobulkojn en dankema memoro, kaj estos por mi granda plezuro persone konsumi tian en kunesto de sinjoro Sventon.
 
 —Fraŭlino Jantono, vokis Sventon. Bonvolu telefoni al Ro-to pri dek kvar plenigitaj.
 
@@ -442,18 +373,13 @@ konvene brunaj kaj kun multe da kremo, kiu superŝvelis en ĉiuj direktoj. Fraŭ
 
 —Tiamaniere, diris T. Sventon. Privatdetektivo kutimiĝas al la plej strangaj cirkonstancoj, kaj Sventon estiĝis neniel surprizita.
 
-—La varmega dezerta vento kune kun ĉirkaŭŝvebantaj sab-
-
-leroj en la aero sekigis miajn bronkojn, klarigis Omaro.
+—La varmega dezerta vento kune kun ĉirkaŭŝvebantaj sableroj en la aero sekigis miajn bronkojn, klarigis Omaro.
 
 —Malagrable aŭdi, diris lordo Hubardo.
 
 —Tre malagrable, diris Sventon.
 
 —Mia kuracisto doktoro Huseno ĉe Okcidenta Bazarstrato
-
-
-S V E N TO N E N L O N D O N O
 
 
 konsilis al mi serĉi malsekan kaj prefere nebulan klimaton. Mi bezonas malsekon en la bronkoj, li diris. Li proponis Londonon en novembro.
@@ -483,9 +409,6 @@ Dum tiu tempo lordo Hubardo kaj sinjoro Omaro rigardis
 la tapiŝon. i estis mezgranda, iom uzita orienta tapiŝo, kiu disigis specialan odoron.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Kion ĝi odoras? lordo Hubardo demandis kaj entiris la
 
 odoron tra la nazo.
@@ -503,14 +426,9 @@ Kiel levita de nevideblaj manoj la tapiŝo supreniĝis kaj elflugis tra la fenes
 Fraŭlino Jansono fermis la fenestron post ili kaj komencis kroĉtriki pottuketojn.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Alveno al Londono
 
-La angla londononebulo estas tre mondfama. Londonone-
-
-buloj en aliaj landoj preskaŭ ĉiam havas mankojn: aŭ ili estas tro maldensaj kaj akvecaj, aŭ ili aperas nur ĉirkaŭ altaj montopintoj, kiuj estas malfacile atingeblaj, aŭ sur marĉaj herbejoj, kie neniu havas efektivan ĝojon de ili. La angla londononebulo malleviĝas komforte super la meza urbo, tiel ke oni havas ĝin sub la manoj. Plue ĝi estas bonkvalita kaj rezistas ĉiun streĉon. Neniu alia urbo povas produkti tian unu-aklasan londononebulon kiel Londono.
+La angla londononebulo estas tre mondfama. Londononebuloj en aliaj landoj preskaŭ ĉiam havas mankojn: aŭ ili estas tro maldensaj kaj akvecaj, aŭ ili aperas nur ĉirkaŭ altaj montopintoj, kiuj estas malfacile atingeblaj, aŭ sur marĉaj herbejoj, kie neniu havas efektivan ĝojon de ili. La angla londononebulo malleviĝas komforte super la meza urbo, tiel ke oni havas ĝin sub la manoj. Plue ĝi estas bonkvalita kaj rezistas ĉiun streĉon. Neniu alia urbo povas produkti tian unu-aklasan londononebulon kiel Londono.
 
 La tapiŝo frue en la mateniĝo transpasis la Nordan Maron,
 
@@ -522,11 +440,7 @@ Privatdetektivo Sventon turnis sin, sed vidis nur lakton.
 
 —Jes, ĉio bone! aŭdiĝis voĉo malantaŭ li en la lakto. Estis lordo Hubardo.
 
-—Mi jam havas la nemerititan plezuron senti iom da mil-
-
-digo en la bronkoj, aŭdiĝis la voĉo de Omaro. Kaj la du aliaj 22
-
-S V E N TO N E N L O N D O N O
+—Mi jam havas la nemerititan plezuron senti iom da mildigo en la bronkoj, aŭdiĝis la voĉo de Omaro. Kaj la du aliaj
 
 
 aŭdis, kiel li tiris ekstre longajn enspirojn por pli bone utili-gi la klimaton.
@@ -543,12 +457,7 @@ Nun ili ĝojis, ke ili baldaŭ estos ĉe la celo. Ie en ĉi tiu laktomaro situis
 
 —Kio okazis? la lordo gruntis.
 
-—Laŭ mia modesta opinio la tapiŝo ĉesis flugi, Omaro di-23
-
-S V E N TO N E N L O N D O N O
-
-
-ris kaj metis la manon sur la grundon apud si. Estis sablo. Oni sidis sur sablovojeto.
+—Laŭ mia modesta opinio la tapiŝo ĉesis flugi, Omaro diris kaj metis la manon sur la grundon apud si. Estis sablo. Oni sidis sur sablovojeto.
 
 Sventon estis la unua, kiu ekregis sin kaj stariĝis. Lia nigra plenbarbo aperis proksime al la aliaj. Li estis tute erarige simila al akcipitro (se oni povas imagi al si akcipitron, kiu aperas kun nigra plenbarbo en la londona nebulo).
 
@@ -560,9 +469,7 @@ akre demandis.
 
 diris lordo Hubardo. Li leviĝis de la tapiŝo kaj komencis etan matenan gimnastikon. Sentiĝis agrable iom moviĝi. Malvarma mateno.
 
-—Ne estas tempo por perdi. Devas tuj komenci la esplor-
-
-laboron! malpacience aŭdiĝis de Sventon.
+—Ne estas tempo por perdi. Devas tuj komenci la esplorlaboron! malpacience aŭdiĝis de Sventon.
 
 —Tute ĝuste. Temas pri rapido ĉi tie, diris Hubardo, kiu
 
@@ -583,17 +490,9 @@ uste en tiu momento malforta matena brizo ekblovis tra la urbo. La laktomaro tia
 Mia avo aĉetis la domon en sia tempo. Mi ĉiam loĝis ĉi tie.
 
 
-S V E N TO N E N L O N D O N O
-
-
 (Vere strangaj homoj tiuj privatdetektivoj, li pensis. Kial li kredas, ke mi estus transloĝinta? ĉu mi diris vorton pri tia afero?)
 
-Lordo Hubardo malfermis la pordon per sia ŝlosilo kaj pa-
-
-ŝis flanken. Privatdetektivo T. Sventon el Stokholmo prenis la fattobulkujon, tapiŝon, primuson, kamplornon kaj kafokaserolon kaj iris en la domon. Sinjoro Omaro riverencis respektplene en la nebulo kaj ankaŭ eniris. Lordo Hubardo fermis la pordon malantaŭ ili.
-
-
-S V E N TO N E N L O N D O N O
+Lordo Hubardo malfermis la pordon per sia ŝlosilo kaj paŝis flanken. Privatdetektivo T. Sventon el Stokholmo prenis la fattobulkujon, tapiŝon, primuson, kamplornon kaj kafokaserolon kaj iris en la domon. Sinjoro Omaro riverencis respektplene en la nebulo kaj ankaŭ eniris. Lordo Hubardo fermis la pordon malantaŭ ili.
 
 
 Kiu estas fraŭlino Poli?
@@ -606,20 +505,14 @@ Londono, estis meblita per pezaj kaj malgajaj mebloj. An-kaŭ la mateno estis tr
 
 Lordo Hubardo manĝis ŝn kaj ovojn. ŝajnis,ke li estus preta nomi gajulo ĉiun, kiu opinius, ke estas strange, ke praktikanta privatdetektivo sidas ĉe la tablo. Li prenis ankoraŭ unu porcion da ŝ kaj ovo, kaj koncerne kaŝirajn paŝojn oni volus kredi, ke li heredis ilin kune kun la domo (Holanda Parkavenuo 104, Londono).
 
-Sinjoro Omaro, Arabio, trinkis teon. Neniu povus antaŭ-
+Sinjoro Omaro, Arabio, trinkis teon. Neniu povus antaŭsenti, ke li cerbumis, kial teo estas trinkata, kiam ekzistas ka-fo. Neniu povis nei, ke ekzistas kafo. Liaj malhelaj okuloj estis nepenetreblaj kiel araba nokto.
 
-senti, ke li cerbumis, kial teo estas trinkata, kiam ekzistas ka-fo. Neniu povis nei, ke ekzistas kafo. Liaj malhelaj okuloj estis nepenetreblaj kiel araba nokto.
-
-Ankaŭ Maria Hubardo trinkis teon. ŝi havis kvadratitan ro-bon kaj helajn harojn. La nura strangaĵo pri ŝi estis, ke sur ŝia rostita pantranĉaĵo, kiun ŝi tenis per la dekstra mano, estas tiom da spaco por oranĝomarmelado. Koncerne ŝian fraton Dikon la marmelado ne trovis lokon sur lia panrostaĵo. Neniu rostita pantranĉaĵo en la mondo povus havi lokon por 26
-
-S V E N TO N E N L O N D O N O
+Ankaŭ Maria Hubardo trinkis teon. ŝi havis kvadratitan ro-bon kaj helajn harojn. La nura strangaĵo pri ŝi estis, ke sur ŝia rostita pantranĉaĵo, kiun ŝi tenis per la dekstra mano, estas tiom da spaco por oranĝomarmelado. Koncerne ŝian fraton Dikon la marmelado ne trovis lokon sur lia panrostaĵo. Neniu rostita pantranĉaĵo en la mondo povus havi lokon por
 
 
 tiom da marmelado. Ankaŭ neniu nerostita. Tial ĝi gutis sur liajn fingrojn kaj sur la pantalonon.
 
-T. Sventon, kiu metis la nigran plenbarbon apud sia tele-ro, sidis profundiĝinta en pensoj. Li apogis la kubuton al la tablo kaj la kapon en la mano. Li ne dubis pri tio, ke la kaŝ-
-
-iranta viro estas Nalo Nivalo. Kredeble li kunlaboris kun aliaj krimuloj, eble kun tuta – aŭ pli feliĉe duona – krimulbando.
+T. Sventon, kiu metis la nigran plenbarbon apud sia tele-ro, sidis profundiĝinta en pensoj. Li apogis la kubuton al la tablo kaj la kapon en la mano. Li ne dubis pri tio, ke la kaŝiranta viro estas Nalo Nivalo. Kredeble li kunlaboris kun aliaj krimuloj, eble kun tuta – aŭ pli feliĉe duona – krimulbando.
 
 Nalo nome estis konata pro tio, ke li neniam sola faris kri-mon. Nun Sventon cerbumis pri
 
@@ -627,9 +520,7 @@ Nalo nome estis konata pro tio, ke li neniam sola faris kri-mon. Nun Sventon cer
 
 2) kiel oni praktikas esploradon en nebulo.
 
-Sventon kompreneble de tempo al tempo restadis en ne-
-
-bulo, sed ĝi ĉiam disiĝis antaŭ la tagmezo, kiam la laboro de privatdetektivo komenciĝas.
+Sventon kompreneble de tempo al tempo restadis en nebulo, sed ĝi ĉiam disiĝis antaŭ la tagmezo, kiam la laboro de privatdetektivo komenciĝas.
 
 —Aŭskultu nun, diris Sventon kaj frapis per forko kontraŭ polurita tablotabulo. Mi tuj komencos la esploran laboron.
 
@@ -641,9 +532,7 @@ Petu la servistaron enveni.
 
 —Beti kaj Joana!
 
-Poste ĉiuj ree atendis dum momento. ĉiuj scivolis aŭdi, kiel la fremda privatdetektivo komencos la esplorlaboron – ĉiuj krom Sventon, kiu sciis tion, kaj lordo Hubardo, kiu enverŝis ankoraŭ tason da teo, kaj sinjoro Omaro, kiu kun orienta 27
-
-S V E N TO N E N L O N D O N O
+Poste ĉiuj ree atendis dum momento. ĉiuj scivolis aŭdi, kiel la fremda privatdetektivo komencos la esplorlaboron – ĉiuj krom Sventon, kiu sciis tion, kaj lordo Hubardo, kiu enverŝis ankoraŭ tason da teo, kaj sinjoro Omaro, kiu kun orienta
 
 
 egalanimeco miriĝis, ke la tegrandkomercistoj povis gajni viv-rimedojn, kiam fakte trovigas kafgrandkomercistoj (multaj el ili eble ankaŭ havis grandajn familiojn). La nuraj, kiuj estis scivolaj, estis Diko kaj Maria. Ili ne povis ne rigardi Sventon.
@@ -664,16 +553,11 @@ Sventon rigardis la ovon kaj cerbumis sagace.
 
 —Estas ankoraŭ tro frue diri ion pri la afero, li deklaris.
 
-—ĉu iu fremda ovo estis videbla en la domo, kiam mi es-
-
-tis for? Hubardo demandis por kunhelpi en la esplora laboro. Iu fremda persono, mi volas diri. Persono. Ne ovo. Persono.
+—ĉu iu fremda ovo estis videbla en la domo, kiam mi estis for? Hubardo demandis por kunhelpi en la esplora laboro. Iu fremda persono, mi volas diri. Persono. Ne ovo. Persono.
 
 —Vidis iun, ne, danke al Dio, sed mi aŭdis ion.
 
 Sventon tiris al si la notlibron, lordo Hubardo murmuris ion pri ”natura kialo”. Omaro aspektis pli nepenetrebla ol la nokto. Diko kaj Maria interŝanĝis rigardon. Ili ŝatis detekti-vojn.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Mi aŭdis la ŝtuparon al la subtegmentejo knari lastnok-te, diris Joana.
@@ -692,9 +576,7 @@ Mi ne kuraĝis elrigardi en la subtegmentejon.
 
 —Fraŭlino Poli, kompreneble. Mi ne siblis.
 
-—Kiu estas Fraŭlino Poli? Sventon demandis kun firma vo-
-
-ĉo.
+—Kiu estas Fraŭlino Poli? Sventon demandis kun firma voĉo.
 
 —Kaj kiam mi venis en la banĉambron antaŭ kelkaj tagoj, staris tie fremda viro, Beti interrompis kun malfermegitaj okuloj.
 
@@ -713,9 +595,6 @@ Antaŭ ol iu povis respondi, aŭdiĝis kaŝiraj paŝoj de la pordo. ĉiuj turnis
 Blanka angurokato staris en la pordotruo kaj rigardis ilin per malvarmaj, flavverdaj okuloj.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Sventon fariĝas lordo Hubardo
 
 Profunda silento regis en la hubarda manĝoĉambro. Fine
@@ -730,9 +609,7 @@ Maria trilis.
 
 lordo Hubardo kaj rigardis Joanan. Kiam li pretrigardis, li rapide diris: Nenia urĝo. Duonan haringon je okazo. Iom pli malfrue eble.
 
-—ĉu mi iam forgesis la haringoduonon al la kato? deman-
-
-dis Joana kaj apogis sin al la muro.
+—ĉu mi iam forgesis la haringoduonon al la kato? demandis Joana kaj apogis sin al la muro.
 
 —Ne, ne, ne. Belega ŝ ĉi tiu, cetere. Ankaŭ vere delika-taj ovoj.
 
@@ -740,9 +617,7 @@ Privatdetektivo T. Sventon opiniis, ke estas tro multe pa-rolate pri katoj, hari
 
 —Ni daŭrigas, li diris. ĉu estas iu, kiu povas doni ankoraŭ pli da informoj?
 
-Neniu havis pli da scigoj pri la mistika viro, kvankam Joana 30
-
-S V E N TO N E N L O N D O N O
+Neniu havis pli da scigoj pri la mistika viro, kvankam Joana
 
 
 murmuris ion pri tio, ke sufiĉas la jam dirita, kaj Diko murmuris ion pri pistolo, kiun li ne rajtas pruntepreni.
@@ -755,11 +630,7 @@ Lordo Hubardo kraĉotusis kaj deklaris, ke ekzistas bone-ga bakejo-butiko en la 
 
 Lordo Hubardo petis, ke Sventon kaj Omaro sekvu lin al la supra etaĝo, por ke li montru al ili iliajn ĉambrojn. Lordo Hubardo, Sventon, Omaro, Maria, Diko kaj Fraŭlino Poli ansero-vice supreniris la ŝtuparon. Omaro diris, ke tio estas por li granda honoro. La lordo asertis, ke la ĉokoladumitaj keksoj honeste dirite estas bongustaj. Fraŭlino Poli stariĝis je la post-kruroj kaj lekis la fingropintojn de Maria kaj poste tiujn de Diko.
 
-Sventon kaj Omaro ricevis ĉiu sian malvarman kaj malse-
-
-kan ĉambron kun kurteno de malseka nebulo ekster la duo-ne fermitaj fenestroj. Omaro riverencis respektplene kaj di-31
-
-S V E N TO N E N L O N D O N O
+Sventon kaj Omaro ricevis ĉiu sian malvarman kaj malsekan ĉambron kun kurteno de malseka nebulo ekster la duo-ne fermitaj fenestroj. Omaro riverencis respektplene kaj di-31
 
 
 ris, ke la ĉambro estos netakseble utila al liaj bronkoj, en kiuj li jam havis la plezuron senti mildigon.
@@ -784,18 +655,11 @@ Diko kaj Maria surprizitaj silente fiksrigardis lin, kiam li envenis. Ili preska
 
 Tiam la pordo malfermiĝis kaj lordo Hubardo envenis. En kvadratita kostumo. En egala kostumo, kostumo el sama ŝto-fo kaj sama modelo. Ekzakte egala. Nun neniu povus distingi ilin unu de la alia.
 
-Ambaŭ staris silentaj kaj rigardis sin reciproke. La lordo sentis iom da malagrablo kaj fermis la okulojn. Dum momen-32
-
-S V E N TO N E N L O N D O N O
-
-
-to li ne sciis, ĉu li estas lordo Hubardo aŭ privatdetektivo Sventon. Aŭ ĉu male Sventon estas privatlordo Hubardo kaj inverse. Li sentis facilan kapturnon kaj provis esplori, kiel la aferoj statas. Li levis la manon al la frunto kaj feliĉe rimarkis cikatron sur la dikfingro, kiun li ricevis, kiam li kiel infano vundis sin per tranĉilo. Kaj tial li certe sciis, ke Sventon ne estas Hubardo kaj male.
+Ambaŭ staris silentaj kaj rigardis sin reciproke. La lordo sentis iom da malagrablo kaj fermis la okulojn. Dum momento li ne sciis, ĉu li estas lordo Hubardo aŭ privatdetektivo Sventon. Aŭ ĉu male Sventon estas privatlordo Hubardo kaj inverse. Li sentis facilan kapturnon kaj provis esplori, kiel la aferoj statas. Li levis la manon al la frunto kaj feliĉe rimarkis cikatron sur la dikfingro, kiun li ricevis, kiam li kiel infano vundis sin per tranĉilo. Kaj tial li certe sciis, ke Sventon ne estas Hubardo kaj male.
 
 —Por kio tio utilus? demandis Sventon.
 
-—Uzas ĉiam la saman specon de kostumo, diris lordo Hu-
-
-bardo. Havas nur tiun ĉi specon labortage. ĉiam havis.
+—Uzas ĉiam la saman specon de kostumo, diris lordo Hubardo. Havas nur tiun ĉi specon labortage. ĉiam havis.
 
 Sventon ŝmacis malpacience per la lango. Nu, nur restu en via ĉambro. Ne lasu iun vidi nin kune. Li turnis sin al sinjoro Omaro. ĉu sinjoro Omaro volas servi kiel ĉefservisto? Estus bezonate por la gardado.
 
@@ -809,16 +673,11 @@ Sinjoro Omaro serveme riverencis.
 
 Lordo Hubardo elprenis blankan amelitan kolumon kaj
 
-pompan nigran antaŭtagmezan kostumon. Kiam Omaro es-
-
-tis surmetinta tiujn vestojn, neniu povis distingi lin de orientlanda ĉefservisto.
+pompan nigran antaŭtagmezan kostumon. Kiam Omaro estis surmetinta tiujn vestojn, neniu povis distingi lin de orientlanda ĉefservisto.
 
 —Vidu! diris Sventon kaj eltiris rezervpistolon el la poŝo.
 
 Prenu ĉi tiun pitolon.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Mi havas mian en la noktotabla kesto, diris lordo Hubar-do.
@@ -826,9 +685,6 @@ S V E N TO N E N L O N D O N O
 —Estas bone. Sed memoru. Uzu la pittolojn nur se necese.
 
 Memoru tion, knaboj – nur se necese! Li turnis sin al Maria kaj Diko. Kaj vi, miaj junaj geamikoj – memoru, ke kion vi ĉi tie aŭdis kaj vidis, tio estas sekreto. Nun mi estas via onklo.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Sventon solvas la misteron de Fraŭlino Poli
@@ -847,15 +703,11 @@ Sventon singarde gustumis la fastobulkon. Poste li manĝis pli rapide. i estas t
 
 Post kelkaj minutoj, kiam Sventon ree sidis en profundaj pensoj, Omaro aperis same senbrue kiel antaŭe. Nun li portis en la mano etan arĝentan teleron, kaj sur ĝi kuŝis letero.
 
-—Estas por mi granda honoro prezenti tiun ĉi leterpoŝ-
-
-taĵon, kiun la poŝtisto ĵus havis la honoron…
+—Estas por mi granda honoro prezenti tiun ĉi leterpoŝtaĵon, kiun la poŝtisto ĵus havis la honoron…
 
 —Dankon, diris Sventon kaj prenis la leteron. ĉar ĝi estis adresita al lordo Hubardo, Sventon tuj malfermis ĝin.
 
-Estas ege grave por praktikanta privatdetektivo identiĝi kun la rolo, kiun li ĝuste tiam ludas. Lordo Hubardo dum 35
-
-S V E N TO N E N L O N D O N O
+Estas ege grave por praktikanta privatdetektivo identiĝi kun la rolo, kiun li ĝuste tiam ludas. Lordo Hubardo dum
 
 
 momento fermis la okulojn kaj ne bone sciis, kiu li estas. T.
@@ -880,16 +732,12 @@ Sventon aŭskultis. Li klare aŭdis mallaŭtan zumantan sonon en la ĉambro, sed
 
 Sonis kiel eta senbrua motoro kun konstanta agrabla moviĝo.
 
-Privatdetektivo ĉiam estas elmetita al danĝeroj de diversaj specoj, kaj se li subite aŭdas etan motoron en la ĉambro, tio estas grava kaŭzo, ke li estu singarda. Sventon prenis la kavaleripistolon el la poŝo kaj ĉirkaŭrigardis. La ĉambro havis altajn librobretarojn, kaj meze de unu el la longaj flankoj estis 36
-
-S V E N TO N E N L O N D O N O
+Privatdetektivo ĉiam estas elmetita al danĝeroj de diversaj specoj, kaj se li subite aŭdas etan motoron en la ĉambro, tio estas grava kaŭzo, ke li estu singarda. Sventon prenis la kavaleripistolon el la poŝo kaj ĉirkaŭrigardis. La ĉambro havis altajn librobretarojn, kaj meze de unu el la longaj flankoj estis
 
 
 granda kameno. Estis du fenestroj, kiuj ambaŭ rigardis al la nebulo. Li rigardis en la paperkorbo kaj malantaŭ la kurtenoj.
 
-Li aŭskultis zorgeme. Sonis kvazaŭ la motoro troviĝus proksime al la kameno. Tie staris du grandaj brakseĝoj, kiuj vere ŝajnis senkulpaj, sed kiujn li tamen decidis pli detale esplori. En unu kuŝis ruĝa kuseno, en la alia blanka. Li kredis, ke li eraris kaj anstataŭe iris al unu el la librobretoj. Tiam li aŭ-
-
-dis la motoron ree starti malantaŭ si.
+Li aŭskultis zorgeme. Sonis kvazaŭ la motoro troviĝus proksime al la kameno. Tie staris du grandaj brakseĝoj, kiuj vere ŝajnis senkulpaj, sed kiujn li tamen decidis pli detale esplori. En unu kuŝis ruĝa kuseno, en la alia blanka. Li kredis, ke li eraris kaj anstataŭe iris al unu el la librobretoj. Tiam li aŭdis la motoron ree starti malantaŭ si.
 
 ĉiu, kiu iam aŭdis nevideblan bibliotekmotoron starti dorsflanke, scias, kiom ekscita tio estas. Sventon rapide turniĝis kaj levis la ofican pistolon. Tiam la blanka kuseno leviĝis kaj eksaltis al la planko.
 
@@ -900,9 +748,6 @@ Fraŭlino Poli, kiu kuŝis kaj ŝpinis en la seĝo. Li provis kapti la eternan k
 Estas necerte, kiom longe Sventon-Hubardo sidis en la
 
 seĝo kaj pensis. Eble li sidis tie dum relative longa momento. Aliflanke tio eble okazis dum multe pli mallonga momento. Sed kiam li stariĝis, li estis solvinta la tutan misteron.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Sekretario Smito en Societo Kato
@@ -919,14 +764,9 @@ Omaro subite estis videbla. Li stariĝis interne de la pordo kaj avizis vizitant
 
 —Estas por mi granda honoro anonci, ke iu sinjoro Smito estas veninta por — eĉ se okaza — vizito.
 
-Smito? pensis Sventon-Hubardo. Kie mi aŭdis tiun no-
-
-mon? Jes, kompreneble — la kalsonoj de Smito. Parenco vizitas.
+Smito? pensis Sventon-Hubardo. Kie mi aŭdis tiun nomon? Jes, kompreneble — la kalsonoj de Smito. Parenco vizitas.
 
 —Kara malnova amiko! Mi ĝojas vidi vin! diris Sventon-
-
-
-S V E N TO N E N L O N D O N O
 
 
 Hubardo kaj iris al la vizitanto kun eltendita mano. Kiel iras la komerco?
@@ -941,9 +781,7 @@ La viro aspektis nepre suspektema.
 
 —Pardonu, li diris, mia nomo estas Smito. Mi estas sekretario en SLUK.
 
-—SLUK…? Jes, tio estas…, diris Sventon kaj karesis la ruĝ-
-
-brunajn lipharojn.
+—SLUK…? Jes, tio estas…, diris Sventon kaj karesis la ruĝbrunajn lipharojn.
 
 —Jes, Societo de Londonaj Unuiĝintaj Katamikoj.
 
@@ -955,19 +793,12 @@ vetero. Sidiĝu!
 
 Ili ambaŭ sidiĝis. La eta fremda viro, kiu portis malhel-bluan ŝeviotkostumon kun bone gladita pantalono kaj mal-grandajn bele purigitajn pintajn ŝuojn, respondis nenion. Liaj okuloj strabis en ĉiujn direktojn. Li rigardis ĉion samtempe.
 
-Nun Sventon sciis tute certe, kiun li havas antaŭ si, kvankam nenia nuanco en lia bonhumora hubardovizaĝo mal-
-
-kaŝis tiun danĝeran scion.
+Nun Sventon sciis tute certe, kiun li havas antaŭ si, kvankam nenia nuanco en lia bonhumora hubardovizaĝo malkaŝis tiun danĝeran scion.
 
 —ĉu mi havos la nemerititan plezuron — rilate al la nuna vetero — regali vin per iu varmiga freŝigaĵo? demandis ĉefservisto Omaro ĉe la pordo.
 
 
-S V E N TO N E N L O N D O N O
-
-
-—ĉu tason da teo, sinjoro Smito? demandis Sventon-Hu-
-
-bardo gastame.
+—ĉu tason da teo, sinjoro Smito? demandis Sventon-Hubardo gastame.
 
 —Mi tre dankas, dankon, diris sekretario Smito kaj ternis.
 
@@ -977,9 +808,7 @@ Li sidis plej ekstere sur la seĝorando.
 
 tago prezenti tason da bongusta, varma teo. Mi tamen per-mesas al mi atentigi pri tio, ke la varmigaj kvalitoj de kafo estas videble pli grandaj ol tiuj de la teo, kaj koncerne la aro-mon ĝi tute ne similas al tiu de la teo.
 
-—Nur donu al ni ion varman, diris Sventon-Hubardo. ĉef-
-
-servisto Omaro diris, ke li provos respondi la konfidon, kaj poste li plurfoje riverencis kaj malaperis senbrue.
+—Nur donu al ni ion varman, diris Sventon-Hubardo. ĉefservisto Omaro diris, ke li provos respondi la konfidon, kaj poste li plurfoje riverencis kaj malaperis senbrue.
 
 Smito suspekteme rigardis post li.
 
@@ -991,9 +820,7 @@ Smito suspekteme rigardis post li.
 
 Privatdetektivo Sventon estis en tiu momento vere timige simila al akcipitro, sed lia lerta maskaĵo faris, ke neniu povis ekvidi tion. La ruĝbrunaj haroj pendis paceme, kie li sidis kaj suĉis sian pipon. Li tenis unu manon en la poŝo. La vizitanto estus surprizita, se li scius, ke lordo Hubardo sidas kaj premas oficistpistolon, kaj ke li tute ne estas Hubardo.
 
-—Fraŭlino Poli ĉiam kutimas partopreni. Mi ĝuste hodiaŭ matene diris al la estraro: Povas esti, ke fariĝos tertremo, tion 40
-
-S V E N TO N E N L O N D O N O
+—Fraŭlino Poli ĉiam kutimas partopreni. Mi ĝuste hodiaŭ matene diris al la estraro: Povas esti, ke fariĝos tertremo, tion
 
 
 oni ne scias, sed unu aferon oni scias, knaboj: Poli venos! mi diris.
@@ -1014,16 +841,12 @@ La orientana ĉefservisto aperis senbrue el malplena nenio kun kafopleto.
 
 Estas por mi granda plezuro povi regali vin per araba kafo el mia hejmlando. Li enverŝis du etajn tasojn da vaporanta bonodora kafo.
 
-Lordo Hubardo-Sventon iomete levis unu el la brovoj kaj faris moveton kontraŭ la poŝo, kie li konservis la oficistan pistolon. Omaro respondis per komplete nerimarkebla araba kapklineto kaj metis orientanan montrofingron sur la pantalonpoŝon, kie la rezervpistolo konserviĝis, poste li malaperis. Estis neniu dubo pri tio, ke Omaro el Araba Dezerto donis grandan senton de sekureco. Oni certe povus kredi, ke li en kriza momento aperus de malantaŭ ruĝstria kurteno en la 41
-
-S V E N TO N E N L O N D O N O
+Lordo Hubardo-Sventon iomete levis unu el la brovoj kaj faris moveton kontraŭ la poŝo, kie li konservis la oficistan pistolon. Omaro respondis per komplete nerimarkebla araba kapklineto kaj metis orientanan montrofingron sur la pantalonpoŝon, kie la rezervpistolo konserviĝis, poste li malaperis. Estis neniu dubo pri tio, ke Omaro el Araba Dezerto donis grandan senton de sekureco. Oni certe povus kredi, ke li en kriza momento aperus de malantaŭ ruĝstria kurteno en la
 
 
 mezo de Londono kun rezervpistolo en la mano. Silentema, fidinda kaj sekretema kiel la malhela nokto.
 
-—Jes, diris Sventon-Hubardo, tiaokaze Fraŭlino kompre-
-
-neble devas kunesti ankaŭ ĉi-jare.
+—Jes, diris Sventon-Hubardo, tiaokaze Fraŭlino kompreneble devas kunesti ankaŭ ĉi-jare.
 
 —Bonege, diris la sekretario en Societo Kato kaj frotis la manojn pro raviĝo. Mi havas komfortan korbon en la vestiblo, do mi povas tuj kunpreni ŝin. Tiel vi povos eviti ĉiajn ĝenojn. Li leviĝis kaj apenaŭ povis stari senmove pro malpacienco. Li aspektis tre gaja. Kie ŝi estas? Li rigardis en ĉiujn direktojn samtempe.
 
@@ -1035,9 +858,7 @@ La eta viro rigidiĝis. Nur liaj strabaj okuloj faris sian ordinaran laboron.
 
 —Veterinaro!
 
-—Jes, diplomita veterinaro. Stomakospecialisto. Poli man-
-
-ĝis tro multe da haringoduonoj. Estas la kuiristino, kiu dor-lotas ŝin. Tio ne finos bone, Joana! mi kutimas diri.
+—Jes, diplomita veterinaro. Stomakospecialisto. Poli manĝis tro multe da haringoduonoj. Estas la kuiristino, kiu dor-lotas ŝin. Tio ne finos bone, Joana! mi kutimas diri.
 
 Smito staris senmova kaj cerbumis. Nur liaj strabaj okuloj laboris, faris preterhoran laboron.
 
@@ -1052,12 +873,7 @@ Smito staris senmova kaj cerbumis. Nur liaj strabaj okuloj laboris, faris preter
 ĉio postulas multe da tempo. Estis mem pumpita en la pasinta jaro.
 
 
-S V E N TO N E N L O N D O N O
-
-
-—Mi venos preni ŝin morgaŭ. Morgaŭ je ĉi tiu horo. Pos-
-
-te estos tro malfrue.
+—Mi venos preni ŝin morgaŭ. Morgaŭ je ĉi tiu horo. Poste estos tro malfrue.
 
 —Estus tre afable, se sinjoro Smito volus fari tion. Mi dankas pro la afableco. Do, bonan matenon! Malvarman veteron ni havas.
 
@@ -1084,9 +900,6 @@ Kun unu el la respektoplenaj riverencoj, kiuj faris la orient-landan ĉefservist
 Sinjoro Smito el Societo Kato foriris en la saman nebulon.
 
 
-S V E N TO N E N L O N D O N O
-
-
 La nebulo malfaciligas la esploradon
 
 Tuj kiam la pordo estis klakfermita malantaŭ Smito, fenestropurigisto kuregis en la halon. Estis privatdetektivo T.
@@ -1101,16 +914,11 @@ mienon.
 
 Sventon donis al li grizan plenbarbon de praktika sport-modelo, kiun Omaro surmetis kun orientana lerteco, post kio ili ambaŭ kuregis tra la pordo kaj daŭrigis sur la straton. Ili troviĝis en nebulo de nesuperita kvalito. Ili eĉ ne povis vidi sin reciproke. Ili staris senmovaj kaj aŭskultis. Dekstre aŭdiĝis rapidaj piedpaŝoj, kiuj malproksimiĝis.
 
-—En tiun direkton! ekkriis Sventon kaj premis la kavaleripistolon en la poŝo. Ambaŭ kuregis dekstren kaj tuj puŝis la kapon kontraŭ parkita ŝarĝaŭto, kiu apartenis al torfsternaĵ-
-
-fabriko.
+—En tiun direkton! ekkriis Sventon kaj premis la kavaleripistolon en la poŝo. Ambaŭ kuregis dekstren kaj tuj puŝis la kapon kontraŭ parkita ŝarĝaŭto, kiu apartenis al torfsternaĵfabriko.
 
 Ambaŭ daŭrigis iom kaj poste ili haltis kaj aŭskultis. Nun nenio estis aŭdata krom la muĝo de la mondurbego kaj la sono de preĝejaj sonoriloj, miksita kun la bruo de preterpas-anta aŭtobuso. Cetere ĉio estis tiel silenta, ke oni povus kredi, ke la tuta urbo estas senhoma.
 
 —Ha, eksonis Sventon. Nenia ideo daŭrigi sur ĉi tiu stra-to, kio nun estas ĝia nomo.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Eta Strato, diris voĉo, kiu iris apud li. Sventon ekhaltis.
@@ -1125,9 +933,7 @@ Omaro jam estis hejme. Li demetis la grizan plenbarbon
 
 kaj elparolis sian varman dankemon pro la prunto. Sventon rapide transformis sin de fenestropurigisto al lordo Hubardo.
 
-Post kelkaj minutoj ĉiuj sidis kune en la biblioteko: privatdetektivo Sventon-Hubardo, sinjoro Omaro, lordo Hubardo kaj la du junaj parencoj Maria kaj Diko. Inter la ĉeestantoj estis ankaŭ la angurokato de maljuna sinjorino Smito, Fraŭ-
-
-lino Poli. Oni trinkis teon, kaj la fajro brulis hejmece. ĉiu ajn povus kredi, ke ili estas feliĉa londona familio, kiu ĉe taso da varma, bongusta teo sidas babilante pri la fiaj prezoj de kar-bo kaj bovrostaĵo kaj pri la aĉegaj lernejaj atestoj al la infanoj.
+Post kelkaj minutoj ĉiuj sidis kune en la biblioteko: privatdetektivo Sventon-Hubardo, sinjoro Omaro, lordo Hubardo kaj la du junaj parencoj Maria kaj Diko. Inter la ĉeestantoj estis ankaŭ la angurokato de maljuna sinjorino Smito, Fraŭlino Poli. Oni trinkis teon, kaj la fajro brulis hejmece. ĉiu ajn povus kredi, ke ili estas feliĉa londona familio, kiu ĉe taso da varma, bongusta teo sidas babilante pri la fiaj prezoj de kar-bo kaj bovrostaĵo kaj pri la aĉegaj lernejaj atestoj al la infanoj.
 
 Kiu ajn tiaokaze eraras. Oni parolis pri Nalo Smito-Nivalo.
 
@@ -1137,12 +943,7 @@ Kiu ajn tiaokaze eraras. Oni parolis pri Nalo Smito-Nivalo.
 
 Kredis unue, ke estas ulo, kiu emus aĉeti la domon.
 
-—Li kaŝiris ĉi tie por ŝteli la katon. Ni memoras, ke Poli siblis ĉiufoje, kiam li aperis. ŝi estas malfacile kaptebla de fremdulo. Hodiaŭ li provis alian metodon: li prezentis sin kiel se-45
-
-S V E N TO N E N L O N D O N O
-
-
-kretario de katasocio, kiu ne ekzistas, kaj volis kun granda afableco kunpreni la katon al ekspozicio, kiu ankaŭ ne ekzistas.
+—Li kaŝiris ĉi tie por ŝteli la katon. Ni memoras, ke Poli siblis ĉiufoje, kiam li aperis. ŝi estas malfacile kaptebla de fremdulo. Hodiaŭ li provis alian metodon: li prezentis sin kiel sekretario de katasocio, kiu ne ekzistas, kaj volis kun granda afableco kunpreni la katon al ekspozicio, kiu ankaŭ ne ekzistas.
 
 —ĉu tiel, diris lordo Hubardo kaj elsendis kvietan fumnubon. Sed per tio ni ne lasos nin trompi. Iom pli da teo?
 
@@ -1171,9 +972,6 @@ klarigis Diko.
 —Miaj junaj geamikoj, diris Sventon, Nivalo estas danĝera.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Sed aŭskultu! Vi volonte povos enveni kaj saluti al sekretario Smito. Tio nur aspektus agrable kaj senafekte. Plej grave estas, ke li ne suspektu ion. Hodiaŭ ĉio sukcesis bone. Li kredis, ke mi estas lordo Hubardo.
 
 —Jes, sed tio sinjoro Sventon ja estis, la lordo diris kun sin-cera miro.
@@ -1189,9 +987,6 @@ Maria kaj Diko nenion pli volonte farus.
 —Estas bone. Mi donos al vi precizajn instrukciojn, diris privatdetektivo Sventon kaj defrapis la cindron de la cigaro.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Smito-Nivalo malaperas el la biblioteko
 
 En la posttagmezo Sventon (lordo Hubardo) sidis sola en la biblioteko, okupita de profundaj pensoj. La fajro jam finbrulis. La krepusko estis falinta super la nebulokovrita mondurbo. Regis silento en la domo, krom tiu malforta kla-kado, kiu ekestas, kiam osta bovidsteko fritiĝas en la kuirejo.
@@ -1202,12 +997,7 @@ La ĉambro estis nur duone mallumigita. En partoj de ĝi
 
 estis lumo de la stratlanternoj, en aliaj partoj regis profunda ĵetombro. Aŭdiĝis mallaŭta palpanta kaŝira sono, kiu ekestas, kiam paro da malgrandaj, pintaj, belpoluritaj ŝuoj sin serĉas antaŭen en la mallumo. Sed Sventon daŭre spiris profunde kaj trankvile. Viro en malgranda, bone gladita, perfida ŝeviotkostumo staris nevidebla en la plej profunda ĵetombro de la ĉambro. Li tenis pistolon en unu mano kaj poŝlampon en la alia. Li eklumigis la poŝlampon kaj lasis la lumkonuson ludi sur la muroj de la biblioteko, ĝis ĝi subite trafis viron en kvadratumita kostumo kaj ruĝbrunaj lipharoj, kiu sidis en seĝo kaj dormis. Lordo Hubardo. Li tuj estingis la lampon kaj staris tute senmova. Por eviti riskon li ankaŭ ĉesis spiri.
 
-Lordo Hubardo ne moviĝis. La viro tiam piedpinte iris en la apudan ĉambron, ankaŭ ĝi preskaŭ senluma. Tiam Hubar-48
-
-S V E N TO N E N L O N D O N O
-
-
-do-Sventon senbrue kiel ombro leviĝis kaj sekvis la alian ombron. La alia daŭrigis en la vestiblon. La hubarda ombro vidis, kiel la malgranda ŝeviotombro haltis ĉe la ŝtuparo kaj aŭskultis. De malproksime oni aŭdis disajn sonojn de la bovidsteko, cetere ĉio estis silenta.
+Lordo Hubardo ne moviĝis. La viro tiam piedpinte iris en la apudan ĉambron, ankaŭ ĝi preskaŭ senluma. Tiam Hubardo-Sventon senbrue kiel ombro leviĝis kaj sekvis la alian ombron. La alia daŭrigis en la vestiblon. La hubarda ombro vidis, kiel la malgranda ŝeviotombro haltis ĉe la ŝtuparo kaj aŭskultis. De malproksime oni aŭdis disajn sonojn de la bovidsteko, cetere ĉio estis silenta.
 
 La eta mallarĝa ombro ĝuste metis la piedon sur la unuan ŝtupon, kiam ankoraŭ unu ombro, orientlanda ĉefservisto, aperis ĉe la flanko de la sventona ombro.
 
@@ -1217,9 +1007,7 @@ La eta mallarĝa ombro ĝuste metis la piedon sur la unuan ŝtupon, kiam ankora�
 
 La orientlanda ombro riverencis kaj diris, ke ĝi tenas la pistolon en tuta preteco.
 
-Dum la tempo la ŝeviotombro estis veninta duonvoje sup-
-
-ren sur la hubarda ŝtuparo, kiu de densaj ĵetombroj estis envolvita en nepenetrebla mallumo. Nur pro la diversaj krake-toj oni povis sekvi lian iron. ”Ses – naŭ – dek kvar”, Sventon murmuris malrapide. ĉiu ŝtupo nome krakis malsimile al la aliaj, kaj pro tio Sventon sciis precize, kiom longe la ombro estis irinta. La krakoj de la ŝtupoj ĉiam estas la unua afero, kiun privatdetektivo lernas, kiam li venas al fremda domo en la koro de Londono.
+Dum la tempo la ŝeviotombro estis veninta duonvoje supren sur la hubarda ŝtuparo, kiu de densaj ĵetombroj estis envolvita en nepenetrebla mallumo. Nur pro la diversaj krake-toj oni povis sekvi lian iron. ”Ses – naŭ – dek kvar”, Sventon murmuris malrapide. ĉiu ŝtupo nome krakis malsimile al la aliaj, kaj pro tio Sventon sciis precize, kiom longe la ombro estis irinta. La krakoj de la ŝtupoj ĉiam estas la unua afero, kiun privatdetektivo lernas, kiam li venas al fremda domo en la koro de Londono.
 
 Sventon kaj Omaro malrapide supreniris la ŝtuparon.
 
@@ -1229,9 +1017,7 @@ Omaro flustris:
 
 —Ratkaptilo laŭ mia modesta opinio verŝajne estas la ĝusta vorto.
 
-La viro malaperis en la supran halon. Omaro kaj Sventon 49
-
-S V E N TO N E N L O N D O N O
+La viro malaperis en la supran halon. Omaro kaj Sventon
 
 
 pasis plejeble proksime al la flankoj de la ŝtuparo. Tie la lig-no ne krakis. Sventon tenis sian kavaleripistolon kaj Omaro sian rezervpistolon en la plej alta preteco. Nivalo estis praktike nekaptebla, sed ĉi tiun fojon li estis fiksita. Ili supreniris paŝon post paŝo.
@@ -1257,22 +1043,15 @@ Sventon lumigis la pordon per la poŝlampo.
 —Dispafu la seruron, li diris al Omaro. La ĉambro ne havas alian elirejon.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Omaro metis kun orientana spiritĉeesto sian rezervpistolon al la seruro kaj pafis. La seruro detruiĝis kaj Sventon ar-tifike malfermis la pordon. ĉio estis momenta ago.
 
 Ambaŭ iris singarde en la ĉambron kun levitaj pistoloj.
 
 —Levu la manojn! La ludo estas finita! kriis Sventon.
 
-La ĉambro estis senhoma. Omaro volis lumigi la plafon-
+La ĉambro estis senhoma. Omaro volis lumigi la plafonlampon, sed tio ne eblis. Sventon lasis la poŝlampon lumi ĉie.
 
-lampon, sed tio ne eblis. Sventon lasis la poŝlampon lumi ĉie.
-
-La fenestroj estis fermitaj. Li lumigis malantaŭ la grandaj se-
-
-ĝoj, la sofo, la kurtenoj kaj en la paperkorbo. Smito-Nivalo ne troviĝis en la biblioteko.
+La fenestroj estis fermitaj. Li lumigis malantaŭ la grandaj seĝoj, la sofo, la kurtenoj kaj en la paperkorbo. Smito-Nivalo ne troviĝis en la biblioteko.
 
 En la pordotruo kolektiĝis jam lordo Hubardo, Joana, Beti, Maria kaj Diko. ĉiuj ŝajnis paralizitaj de teruro, ĉiuj krom lordo Hubardo, kiu iris en la ĉambron kun sia pipo en la buŝo kaj diris:
 
@@ -1280,28 +1059,18 @@ En la pordotruo kolektiĝis jam lordo Hubardo, Joana, Beti, Maria kaj Diko. ĉiu
 
 Sventon faris ĝisfundan esploradon de la biblioteko.
 
-—Vetas dek pundojn, diris lordo Hubardo. Nenecese ser-
-
-ĉi. Restadas aliloke.
+—Vetas dek pundojn, diris lordo Hubardo. Nenecese serĉi. Restadas aliloke.
 
 Sventon estingis sian poŝlampon. Li dum momento staris
 
 profundiĝinta en pensoj. Pro la malmulta lumo, kiun la stratlanternoj dissendis en la ĉambron, la aliaj ne povis vidi, kiel mirige simila al akcipitro li estas (se oni povas imagi al si akcipitron kun ruĝbrunaj lipharoj). Ankaŭ ili ne sciis, kian teru-regan eltrovon li estis farinta. Li ŝovis la kavaleripistolon en la poŝon kaj diris al Diko kaj Maria:
 
-—Miaj junaj geamikoj, rigardu, ĉu ne la ĉefŝaltilo estas el-
-
-ŝaltita!
+—Miaj junaj geamikoj, rigardu, ĉu ne la ĉefŝaltilo estas elŝaltita!
 
 Maria kaj Diko estis ĝuste ekkuregontaj, kiam la lumo revenis kaj Omaro diris ĉe la pordo:
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Mi jam havis la honoron kontroli la ŝaltilon. Laŭ mia modesta opinio ĝi estis elŝaltita.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Smito-Nivalo revenas
@@ -1321,12 +1090,7 @@ Sventon intencis respondi, ke li deziras kafon, kiam li ekmemoris, ke li estas e
 —ĉu estas dezirata cejlona teo, ĉina teo aŭ hinda altregi-ona teo? demandis Beti.
 
 
-S V E N TO N E N L O N D O N O
-
-
-—Kion? Cejlona aŭ…? Ne gravas. Teo. ĉu estas nebulo an-
-
-kaŭ hodiaŭ?
+—Kion? Cejlona aŭ…? Ne gravas. Teo. ĉu estas nebulo ankaŭ hodiaŭ?
 
 —Jes. Kun aŭ sen sukero?
 
@@ -1359,9 +1123,6 @@ Beti venis kun kafo kaj novbakita, bone plenigita fastobulko.
 Sventon kaj forviŝis iomete da kremo de la nazo. Beti promesis havigi tiujn objektojn, kaj Sventon daŭrigis pri la fastobulko, kafo kaj manlibro.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Je la deka horo lordo Hubardo-Sventon sidis en la biblioteko kun sia kavaleripistolo en la poŝo. Lordo Hubardo estis en la gastĉambro, kie li restos dum la vizito de sekretario Smito. Dum ĉia esplorado estas grave, ke ne du ekzakte samas-pektaj lordoj aperu samtempe. Nenio alia povas tiel facile kaŭzi nenecesajn suspektojn.
 
 Diko kaj Maria streĉe atendis la alvenon de Smito. Ili jam ricevis siajn instrukciojn. Estis ekscite por ili, sed ankaŭ iom terure.
@@ -1370,15 +1131,11 @@ Diko kaj Maria streĉe atendis la alvenon de Smito. Ili jam ricevis siajn instru
 
 —Vi ja povas preni vian akvopistolon, proponis Maria.
 
-—Ne estu stulta nun! Sed Diko tamen plenigis sian akvo-
-
-pistolon en la banĉambro kaj ŝovis ĝin en la poŝon.
+—Ne estu stulta nun! Sed Diko tamen plenigis sian akvopistolon en la banĉambro kaj ŝovis ĝin en la poŝon.
 
 ĉefservisto Omaro estis sur sia posteno – silenta, sekretema kaj praktike nevidebla.
 
-Sventon-Hubardo sidis en profunda brakseĝo kun la gam-
-
-boj etenditaj kaj ŝajnigis studi matenan gazeton. Li ekskuiĝis, kiam li ekvidis anoncon kun la jena teksto:
+Sventon-Hubardo sidis en profunda brakseĝo kun la gamboj etenditaj kaj ŝajnigis studi matenan gazeton. Li ekskuiĝis, kiam li ekvidis anoncon kun la jena teksto:
 
 SOCIETO DE LONDONAJ
 
@@ -1387,24 +1144,17 @@ UNUIINTAJ KATAMIKOJ
 memorigas pri sia ĉiujara ekspozicio de purrasaj katoj. Koncer-nas la intereson de ĉiu unuiĝinta katposedanto unufoje jare permesi al sia bela dombesto esti eksponata. Kato alte taksas tian atenton kaj fariĝas poste duoble fidela. Avizoj akceptiĝas de sekretario Smito, kiu ankaŭ prizorgas venigon kaj hejmen-sendon de niaj kvarpiedaj amikoj.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Ha, murmuris Sventon. Povis ĝuste pensi tion. ĉi tie ni havas rilaton al radikala kaj metoda bando. Kaj li premis la kavaleripistolon en la poŝo.
 
 ĉefservisto Omaro staris subite ĉe la pordo kaj diris:
 
-—Estas por mi granda honoro anonci, ke sekretario Smi-
-
-to en Societo de Londonaj Unuiĝintaj Katamikoj estas veninta por – eĉ se okaza – vizito.
+—Estas por mi granda honoro anonci, ke sekretario Smito en Societo de Londonaj Unuiĝintaj Katamikoj estas veninta por – eĉ se okaza – vizito.
 
 Li riverencis respektplene kaj sinjoro Smito eniris. Sventon faris preskaŭ nerimarkeblan movon per la dekstra brovo, kaj Omaro faris tute nevideblan movon per la montrofingro kontraŭ sia orientana pantalonpoŝo, kie li konservis sian ŝarĝitan rezervpistolon. Poste li senbrue malaperis en la vestiblon, kie li per sekurpinglo fiksis fortikan ŝnureton sur la palto de Smito-Nivalo.
 
 —Ne, vidu, sinjoro Smito! Bonan tagon! diris Sventon-Hubardo. La nebulo daŭras. Malvarma vetero.
 
-Sventon rimarkis, ke Nivalo strabas pli ol ordinare malantaŭ siaj orkadritaj okulvitroj. La viro evidente estis plene stre-
-
-ĉita.
+Sventon rimarkis, ke Nivalo strabas pli ol ordinare malantaŭ siaj orkadritaj okulvitroj. La viro evidente estis plene streĉita.
 
 —Bonvolu sidiĝi, diris Sventon kaj montris al senkompare profunda fotelo, en kiun Nivalo sinkis, tiel ke preskaŭ nur liaj vagantaj okuloj kaj pinta nazo estis videblaj. Per kio mi povas servi al vi? demandis lordo Hubardo-Sventon.
 
@@ -1415,14 +1165,9 @@ Sventon rimarkis, ke Nivalo strabas pli ol ordinare malantaŭ siaj orkadritaj ok
 —Lasu min montri tie en la gazeto! La vortoj venis el profunda fotelo, el kiu sinjoro Smito faris senesperajn provojn levi sin.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Legis ĵus la anoncon. ĉiam kutimas diri, ke solida ekspozicio estas la plej malmulto, kion ni povas fari por niaj etaj kvarpiedaj amikoj.
 
-—Kie estas Fraŭlino Poli? demandis Smito-Nivalo kaj ri-
-
-gardis en ĉiujn direktojn samtempe, post kiam li ternis. ŝi estas sana nun, ĉu?
+—Kie estas Fraŭlino Poli? demandis Smito-Nivalo kaj rigardis en ĉiujn direktojn samtempe, post kiam li ternis. ŝi estas sana nun, ĉu?
 
 —Kiel nuksokerno. La veterinaro ĝuste diris, ke li neniam vidis ion similan. Vera ferstomako en tiu nuksokerno, li diris.
 
@@ -1438,9 +1183,7 @@ vestiblo.
 
 —Rapidu! Babilu malpli! aŭdiĝis la voĉo de la sekretario el la fotela profundo.
 
-—Estos por mi granda honoro dum malpli da babilado ra-
-
-pidi…
+—Estos por mi granda honoro dum malpli da babilado rapidi…
 
 —Eklaboru! siblis Nivalo kaj ternis.
 
@@ -1449,9 +1192,6 @@ pidi…
 —ĉu li ne babilas iom tro multe? diris sinjoro Smito suspekteme.
 
 —Malfacile trovi bonan ĉefserviston nuntempe, diris Sventon-Hubardo.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Mi scias. Mi mem havis grandajn malfacilaĵojn, diris sekretario en Societo Kato kaj ternis trifoje.
@@ -1488,12 +1228,7 @@ Maria rigardis la tapiŝon kaj skuis sian kapon, tiel ke la haroj falis kiel kur
 
 —Ni estas liberaj. Estas parotidito en la lernejo.
 
-Diko kaj Maria daŭre desegnis per la ŝupinto sur la hubar-58
-
-S V E N TO N E N L O N D O N O
-
-
-da bibliotektapiŝo. Poste Maria haste forlasis la ĉambron, sed Diko restis ĉe la pordo kaj tiris pistolon el la poŝo. Sinjoro Smito en Societo Kato ĝuste tiam hazarde turnis sin al la pordo. Povas esti, ke akvopistolo estas akvopistolo. i tamen iom similas ordinaran pistolon. La vaganta rigardo de Smito rigidiĝis. Li eksaltis el la fotelo kaj ŝovis fulmrapide la manon en la dekstran pantalonpoŝon. Sventon same fulmrapide ŝovis la manon en la dekstran pantalonpoŝon. Diko kuris el la ĉambro. Sinjoro Smito ridis streĉe kaj tiris la manon el la pantalonpoŝo. Hubardo-Sventon ridis bonhumore kaj tiris la manon el la pantalonpoŝo.
+Diko kaj Maria daŭre desegnis per la ŝupinto sur la hubarda bibliotektapiŝo. Poste Maria haste forlasis la ĉambron, sed Diko restis ĉe la pordo kaj tiris pistolon el la poŝo. Sinjoro Smito en Societo Kato ĝuste tiam hazarde turnis sin al la pordo. Povas esti, ke akvopistolo estas akvopistolo. i tamen iom similas ordinaran pistolon. La vaganta rigardo de Smito rigidiĝis. Li eksaltis el la fotelo kaj ŝovis fulmrapide la manon en la dekstran pantalonpoŝon. Sventon same fulmrapide ŝovis la manon en la dekstran pantalonpoŝon. Diko kuris el la ĉambro. Sinjoro Smito ridis streĉe kaj tiris la manon el la pantalonpoŝo. Hubardo-Sventon ridis bonhumore kaj tiris la manon el la pantalonpoŝo.
 
 Smito trankviliĝis, kiam li aŭdis la infanojn kuri el la ĉambro. Kaj li fariĝis eĉ pli trankvila, kiam li aŭdis ilin malfermi la eksteran pordon kaj elkuri en la nebulon. La pordo klakfermiĝis kaj en la domo fariĝis silente.
 
@@ -1512,9 +1247,6 @@ La eta sekretario apenaŭ sciis kion fari pro raviĝo. Li ŝovis la manon en la 
 —Vidu ĉi tie, mia bona viro, li diris.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Estas por mi nemeritita honoro…, komencis Omaro.
 
 —Babilaĉo! interrompis sekretario Smito kaj metis rapide la neĝoblankan angurokaton en la korbon.
@@ -1523,9 +1255,7 @@ S V E N TO N E N L O N D O N O
 
 —Societo Kato garantias, ke la kato estos hejmensendata en la sama momento, kiam la ekspozicio fermiĝos, diris Smito solene.
 
-—Nenia urĝo, ne gravas, diris Hubardo-Sventon bonhu-
-
-more kaj suĉis sian pipon. Tute nenia rapidego.
+—Nenia urĝo, ne gravas, diris Hubardo-Sventon bonhumore kaj suĉis sian pipon. Tute nenia rapidego.
 
 Sekretario Smito diris ĝis revido, prenis la katokorbon kaj ekkuris kontraŭ la pordo. Li ne faris pli ol du-tri etajn paŝojn, kiam li abrupte haltis. Viro en kvadratita kostumo, pendantaj lipharoj kaj pipo en la buŝo enpaŝis en la ĉambron. Lordo Hubardo.
 
@@ -1539,12 +1269,7 @@ Sekretario Smito tiris fulmrapide sian pistolon el la dekstra pantalonpoŝo.
 
 —Levu la manojn! li siblis kaj mem levis la pistolon.
 
-Lordo Hubardo elsendis pacan fumnubon kaj mirigita le-
-
-vis la manojn. Sventon, kiu ne sukcesis sufiĉe rapide eltiri sian pezan kavaleripistolon, ankaŭ levis la manojn. Omaro, kiu en la kriza momento staris antaŭenklinita por preni cigarstum-pon de la tapiŝo, ankaŭ levis la manojn.
-
-
-S V E N TO N E N L O N D O N O
+Lordo Hubardo elsendis pacan fumnubon kaj mirigita levis la manojn. Sventon, kiu ne sukcesis sufiĉe rapide eltiri sian pezan kavaleripistolon, ankaŭ levis la manojn. Omaro, kiu en la kriza momento staris antaŭenklinita por preni cigarstum-pon de la tapiŝo, ankaŭ levis la manojn.
 
 
 Smito-Nivalo iris malantaŭen kontraŭ la pordo kun la katkorbo en unu mano kaj la pistolo en la alia. Li klakfermis la pordon al la biblioteko kaj provis rigli ĝin je la ekstera flanko.
@@ -1554,16 +1279,13 @@ Tio ne eblis, ĉar sinjoro Omaro en la antaŭa vespero per bone direktita araba 
 La tri bibliotekviroj, kiuj en la hasto ne ekmemoris, ke la seruro mankas, metis ĉiuj samtempe la ŝultrojn kontraŭ la pordon kaj krevigis ĝin, kaj poste ili kun levitaj oficistaj pistoloj kuregis pluen. Ili kuris tra la ekstera pordo, kiu estis mal-fermita. Kiam ili alvenis al la sablopado, ili aŭdis aŭton enmeti unu rapidon post la alia kaj malaperi en la nepenetreblan londonan nebulon.
 
 
-S V E N TO N E N L O N D O N O
-
-
 La viroj en la kelo
 
 Kiam Smito-Nivalo faris viziton en la domo de Hubardo,
 
 tri viroj sidis en eta ejo en kelo en tute alia distrikto de la urbo kaj atendis lian revenon. La viroj estis Franco Briljanto kaj Tomaso Larsono el Stokholmo kaj ilia amiko Jimo, kiu loĝis en Londono.
 
-La lokalo situis ĉe Nigra Strato, unu el tiuj simplaj kaj abo-menaj flankstratoj, kiuj aspektas plej belaj en nepenetrebla nebulo. La keloĉambro estis malalta kaj havis malsekan plankon el tero. Sur breto kuŝis 50 rompiloj de diversaj grandecoj kaj modeloj (kelkaj faldeblaj), 600 ŝtelŝlosiloj pendis en vicoj sur najloj, plue troviĝis tie 10 vitrotranĉiloj, 2 brunaj kaj 3
+La lokalo situis ĉe Nigra Strato, unu el tiuj simplaj kaj abo-menaj flankstratoj, kiuj aspektas plej belaj en nepenetrebla nebulo. La keloĉambro estis malalta kaj havis malsekan plankon el tero. Sur breto kuŝis 50 rompiloj de diversaj grandecoj kaj modeloj (kelkaj faldeblaj), 600 ŝtelŝlosiloj pendis en vicoj sur najloj, plue troviĝis tie 10 vitrotranĉiloj, 2 brunaj kaj
 
 grizstriaj tutlanaj ŝtrumpoj plenaj de sablo, paro da ladmal-fermiloj kaj kelkaj lanternoj. ĉio kuŝis belaspekte vicigita.
 
@@ -1573,9 +1295,7 @@ En angulo staris ronda tablo kaj sur ĝi petrola lampo. ĉir-kaŭ la tablo stari
 
 Antaŭ la truoj pendis malgrandaj bone gladitaj bluaj kurtenoj.
 
-Jimo estis vestita per bonega ruĝstria jako. Sur la ĉapo li havis brilan altan ĉapelon, t.n. dimanĉkruĉon, kiun li pruntis 62
-
-S V E N TO N E N L O N D O N O
+Jimo estis vestita per bonega ruĝstria jako. Sur la ĉapo li havis brilan altan ĉapelon, t.n. dimanĉkruĉon, kiun li pruntis
 
 
 de pelata borsmakleristo, kiu demetis ĝin, kiam li volis viŝi sian frunton per la poŝtuko.
@@ -1615,9 +1335,6 @@ Tute malcertaj perspektivoj.
 —Oni povas bone vidi, ke li estas fidinda. Li povas trompi kiun ajn.
 
 
-S V E N TO N E N L O N D O N O
-
-
 —Jes, eble vi pravas, diris Jimo trankviligita.
 
 —La sola, kun kiu li havis iom da malfacilaĵoj, estas Sventon, diris Briljanto.
@@ -1643,9 +1360,6 @@ Nun aŭdiĝis frapoj sur la pordo – dek du frapoj en rapida takto, unu forta p
 Briljanto iris al la pordo kaj malfermis ĝin. Ekster ĝi en la nebulo staris Nalo Nivalo kun korbo en la mano.
 
 —ĉu vi prenas sieston ĉi tie? li diris senpacience kaj ternis.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Nivalo metis la korbon sur la tablon. Li malfermis la kovrilon, kaj la aliaj fervore kliniĝis antaŭen por rigardi. Ili vidis angurokaton, kiu estis blanka kiel neĝo. La kato rigardis al ili per malvarmaj flave verdaj okuloj kaj estus movanta la voston en okoj, se ne estus tro malvaste en la korbo. Kiel nun estis,
@@ -1681,18 +1395,13 @@ Nivalo rigardis tiel minace al Jimo, ke ŝajnis al tiu plej sekure tuj ŝovi la 
 —Iru aĉeti haringon kaj kremon. Neniu pagos moneron
 
 
-S V E N TO N E N L O N D O N O
-
-
 por mortintaj katoj, siblis Nivalo. Mortinta kato estas praktike senvalora.
 
 —Mi certe volonte irus, murmuris Jimo, sed ĉi tie ne estas aĉetebla fumaĵita haringo. Pri tio mi neniam aŭdis ion.
 
 —Do aŭskultu pli bone, kiam oni parolas pri fumaĵharingo, siblis Nivalo.
 
-—Atendu momenton, Briljanto diris mediteme. Povas oka-
-
-zi, ke li pravas. Fumaĵharingo estas la samo kiel baltharingo, kaj baltharingo ne troviĝas en ĉi tiu lando.
+—Atendu momenton, Briljanto diris mediteme. Povas okazi, ke li pravas. Fumaĵharingo estas la samo kiel baltharingo, kaj baltharingo ne troviĝas en ĉi tiu lando.
 
 —Babilaĉo! aŭdiĝis de Nivalo pli malpacience ol antaŭe.
 
@@ -1711,9 +1420,6 @@ Li vidis, ke ŝnureto estas fiksita ĉe la palto per sekurpinglo.
 Tio ŝajnis stranga, sed li ne kuraĝis demandi.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Maria kaj Diko rakontas
 
 Kiam la aŭto de sekretario Smito-Nivalo estis malaperinta en la nebulo, lordo Hubardo diris:
@@ -1726,20 +1432,13 @@ Sventon diris abrupte.
 
 —Jes, konsentis Hubardo, sed la fakto estas, ke mi sentis min ema je partio de tabloteniso. Ne ekpensis pri la malbe-nita katosekretario. ĉu ni tamen interkonsentiĝu kun Scotland Yard, li proponis.
 
-—La knaboj en Yard scias nenion pri la metodoj de Niva-
-
-lo, diris Sventon.
+—La knaboj en Yard scias nenion pri la metodoj de Nivalo, diris Sventon.
 
 Lordo Hubardo ekĝemis. Fraŭlino Poli for, Beti eksiĝas, Joana eksiĝas, nepagitaj fakturoj, onklino Viktoria alvenanta.
 
 Io tia povas detrui la plej fortan. Lordo Hubardo sentis la teron ŝanceliĝi sub siaj piedoj. Li bezonis momenton da trankvilo, kaj tial li foriris al la klubo.
 
-Kiam li iris laŭ la strato kaj paŝis sur la flavaj folioj, kiuj kuŝis sur la malseka asfalto, li pensis pri sia bofrato Antono en la firmao Smito, Smito, Smito & Smito, kiu tiel varme re-komendis detektivon Sventon el Stokholmo. Jes, li pensis amare, se oni perdas kalsonojn, oni eble povas turni sin al Sventon. Angurokatoj estas alia afero. Kaj kiam kelkaj flavaj folioj falis sur lian ĉapelon, li pensis, ke lia patro kaj lia pra-67
-
-S V E N TO N E N L O N D O N O
-
-
-patro antaŭ li ĉiam turnis sin al la malnova honesta Scotland Yard je similaj okazoj.
+Kiam li iris laŭ la strato kaj paŝis sur la flavaj folioj, kiuj kuŝis sur la malseka asfalto, li pensis pri sia bofrato Antono en la firmao Smito, Smito, Smito & Smito, kiu tiel varme re-komendis detektivon Sventon el Stokholmo. Jes, li pensis amare, se oni perdas kalsonojn, oni eble povas turni sin al Sventon. Angurokatoj estas alia afero. Kaj kiam kelkaj flavaj folioj falis sur lian ĉapelon, li pensis, ke lia patro kaj lia prapatro antaŭ li ĉiam turnis sin al la malnova honesta Scotland Yard je similaj okazoj.
 
 Koncerne sinjoron Omaron, li forlasis la domon por fari rapidan viziton al kafovendejo. Joana verŝajne intencis eksiĝi, kaj kun araba singardemo li opiniis, ke tiaokaze estas plej sekure mem pligrandigi la kafoprovizon.
 
@@ -1757,9 +1456,7 @@ Diko kaj Maria rakontis. Ili tute sekvis la instrukciojn. Ili rakontis.
 
 Ili observadis ĉe la heĝo por vidi, ĉu sekretario Smito venos per aŭto, kiel onklo Sventon supozis. Tion li vere faris. Li parkis la aŭton ekster la domo kaj eliris kun korbo en la ma-no. Post kiam li suspekteme rigardis en ĉiujn direktojn, li eniris tra la barilpordo. Post momento ili mem eniris kaj salutis lin. Poste ili eliris al la aŭto, kaj Diko malfermis la kofrokov-rilon. i ne estis ŝlosita, do li ne bezonis uzi la ŝtelŝlosilon, kiun Sventon estis doninta al li. Ili ambaŭ engrimpis kaj klakfermis la kovrilon post si. Estis spaco por ili tie, sed ili ekha-vis doloron en la nuko pro la faldita sidado. Ili malkovris, ke oni povas rigardi en la aŭton levante iom la malantaŭan benkon.
 
-uste kiam ili estis levintaj la benkon iomete, la viro kun 68
-
-S V E N TO N E N L O N D O N O
+uste kiam ili estis levintaj la benkon iomete, la viro kun
 
 
 la perfida nazo kaj la komforta katkorbo ensaltis la aŭton. Li startis kiel plejeble rapide, kaj estis vera miraklo, ke li ne ko-liziis kontraŭ iu domo aŭ alia malgranda objekto en la nebula mondurbo. Maria kaj Diko ŝtelrigardis tra la fendo sub la benko.
@@ -1783,9 +1480,6 @@ Fine ili tamen estis ĉe la celo. Tuj kiam la aŭto haltis, la motoro haltiĝis,
 Tiam ili levis la benkon kaj ŝtelrigardis. La viro estis for, kaj same la katkorbo.
 
 —Vidu! flustris Maria.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Tra la fendo ili povis iom vidi la viron. Li staris ekster malalta kelopordo kun la korbo en la mano. Per unu mano li faris serion da frapoj kaj batoj sur la pordo. Kiam neniu malfermis, li ankaŭ komencis piedbati la pordon. Nur tiam ĝi malfermiĝis.
@@ -1812,9 +1506,7 @@ La ŝoforo ne aspektis tute konvinkita.
 
 —Urĝe, jes, murmuris la ŝoforo kaj fikse rigardis en la densan laktomaron. Tamen li ekveturis.
 
-ĉion supran la infanoj ne tuj sukcesis rakonti. Iom post 70
-
-S V E N TO N E N L O N D O N O
+ĉion supran la infanoj ne tuj sukcesis rakonti. Iom post
 
 
 iom ĝi malkovriĝis. La sola, kio estis interesa por Sventon estis Nigra Strato 9, la kelopordo.
@@ -1822,9 +1514,6 @@ iom ĝi malkovriĝis. La sola, kio estis interesa por Sventon estis Nigra Strato
 Li ŝarĝis la kavaleripistolon kaj vokis Omaron. Neniu respondo. Li vokis lordon Hubardon. Neniu respondo. Tiam li malvolvis la tapiŝon sur la sablovojeto ekster la domo.
 
 Momenton poste li estis malaperinta en la laktomaro.
-
-
-S V E N TO N E N L O N D O N O
 
 
 T. Sventon venas al Nigra Strato
@@ -1840,9 +1529,6 @@ Li malfermetis ĝin kaj ŝtelrigardis internen.
 Tie sidis Nivalo ĉe la tablo kaj mordis la ungojn. La alian viron Sventon ankaŭ konis. Briljanto. Franco Briljanto el Stokholmo. Sur la tablo staris la korbo kun la blanka kato.
 
 —Levu la manojn! Tio venis kiel bone direktita pistolpafo de la pordo.
-
-
-S V E N TO N E N L O N D O N O
 
 
 La du viroj ekskuiĝis. Ili aspektis konsternitaj, kaj eĉ Nivalo ne sukcesis eltiri la pistolon.
@@ -1863,9 +1549,7 @@ Sventon povis ne fari ion alian ol levi la manojn. Nivalo kaj Briljanto mallevis
 
 —Agrable renkontiĝi, sinjoro Sventon, pepaĉis Nivalo, kaj la du aliaj ridaĉis. Estas tiel, ke ni renkontiĝas kelkfoje, daŭrigis Nivalo, kaj la du ridegeksplodis tiel, ke e˛is en la kelo.
 
-Sventon devis stari kun levitaj manoj en la fora angulo de 73
-
-S V E N TO N E N L O N D O N O
+Sventon devis stari kun levitaj manoj en la fora angulo de
 
 
 la ĉambro. La tri viroj staris ĉe la tablo, sur kiun ili metis ĉiujn pistolojn. Ili staris kaj interkonsiliĝis, kion fari.
@@ -1900,9 +1584,7 @@ Estis Jimo. Omaro kaj Sventon levis la manojn, la tri ĉan-taĝistoj mallevis la
 
 Dum Jimo kontrolis Sventon kaj Omaron, Nivalo kaj liaj
 
-helpantoj kolektis ĉiujn pistolojn. Sventon kaj Omaro devis 74
-
-S V E N TO N E N L O N D O N O
+helpantoj kolektis ĉiujn pistolojn. Sventon kaj Omaro devis
 
 
 stariĝi kun levitaj manoj en angulo. La aliaj kolektiĝis ĉe la tablo, kie ili havis ĉiujn pistolojn en oportuna distanco, se Sventon kaj Omaro estus maltrankvilaj.
@@ -1927,9 +1609,7 @@ Sventon kaj Lordo Hubardo kontrolis la tutan bandon,
 
 dum Omaro iris al cigarbutiko kaj telefonis al Scotland Yard.
 
-Ne daŭris longe, antaŭ ol oni aŭdis policaŭtojn brui sur la strato. La bruo ĉesis, bremsoj grincis, aŭtopordoj klakfermiĝis 75
-
-S V E N TO N E N L O N D O N O
+Ne daŭris longe, antaŭ ol oni aŭdis policaŭtojn brui sur la strato. La bruo ĉesis, bremsoj grincis, aŭtopordoj klakfermiĝis
 
 
 kaj sinjoro Omaro gvidis kun orientana ĝentileco la polici-stojn en la kelon. Estis granda amaso da policistoj, ili venis en longa vico tra la pasejo. Unue venis granda kaj afabla ĉefpolicisto.
@@ -1956,17 +1636,13 @@ Privatdetektivo Sventon alpaŝis.
 
 —Jes, sinjoro Sventon, fariĝos, diris la ĉefpolicisto kaj metis du fingrojn al la pinta kasko.
 
-—Estas bone, knaboj, nun vi helpas vin mem, diris Sven-
-
-ton al la policistoj kaj ŝovis la kavaleripistolon en la poŝon.
+—Estas bone, knaboj, nun vi helpas vin mem, diris Sventon al la policistoj kaj ŝovis la kavaleripistolon en la poŝon.
 
 Nalo Smito-Nivalo, Franco Briljanto, Tomaso Larsono kaj Jimo estis forkondukataj. La eta kolera Nivalo rigardaĉis per-fide en ĉiujn direktojn. Li ternis trifoje.
 
 —Permesu al mi, diris Omaro kaj forprenis ŝnureton de la jako de Nivalo. Laŭ mia modesta opinio la ŝnureto verŝajne ne plu estas bezonata por la esplorlaboro.
 
-Lordo Hubardo venis suben en la kelon al la aliaj. Tamen lertaj knaboj, tiuj privatdetektivoj, li pensis kaj gratis la katon 76
-
-S V E N TO N E N L O N D O N O
+Lordo Hubardo venis suben en la kelon al la aliaj. Tamen lertaj knaboj, tiuj privatdetektivoj, li pensis kaj gratis la katon
 
 
 malantaŭ unu orelo. Tranĉilakraj homoj. Fakte. Nun onklino Viktoria povas alveni kiam ajn ŝi volas, li pensis kaj gratis la katon malantaŭ la orelo. Li dankis al Sventon dirante:
@@ -1989,22 +1665,15 @@ Estis Maria kaj Diko, kiuj venis.
 
 En tiu momento okazis io tute neatendita.
 
-La belega angurokato longe supozis, ke regas trafiko de 77
-
-S V E N TO N E N L O N D O N O
+La belega angurokato longe supozis, ke regas trafiko de
 
 
 ratoj ekstere sur la strato. ŝi ekmemoris nun, ke ŝi ne manĝis lunĉon kaj faris belan salton supren al la fenestrotruo kaj eksteren sur la straton. ŝi tuj fariĝis kaptita de ĉifonkolektisto, kiu ĝuste tiam pasis kun sia sako kaj kiu alte taksis anguro-katojn. En la sekva momento li kaj la kato estis malaperintaj en la nebulokovrita metropolo.
 
 
-S V E N TO N E N L O N D O N O
-
-
 Reveno al Holanda Parkavenuo
 
-Kiam la kunveno en la kelo ĉe Nigra Strato okazis, ekblovis forta nordokcidenta vento. La densa unuaklasa nebu-
-
-lo, kiu prave estas mondfama kaj kiu dum pluraj tagoj kuŝis super la urbo, nun forbloviĝis. La suno eklumis sur la mondurbo ĉe la rivero Tamizo.
+Kiam la kunveno en la kelo ĉe Nigra Strato okazis, ekblovis forta nordokcidenta vento. La densa unuaklasa nebulo, kiu prave estas mondfama kaj kiu dum pluraj tagoj kuŝis super la urbo, nun forbloviĝis. La suno eklumis sur la mondurbo ĉe la rivero Tamizo.
 
 Privatdetektivo T. Sventon el Stokholmo sternis sian ta-piŝon sur la strato kaj kvin personoj je ĉies miro sidiĝis sur
 
@@ -2017,9 +1686,6 @@ Li karesis per la mano la franĝon de la tapiŝo kaj diris:
 —Holanda Parkavenuo 104.
 
 Kvazaŭ levita de nevideblaj manoj la tapiŝo leviĝis en la klaran aŭtunan aeron kaj prenis la direkton al Holanda Parkavenuo. Fariĝis agrabla flugado. Kompreneble la londona nebulo estas bonega en si mem kaj plej unuaranga, kiu ekzistas, sed aliflanke oni pli bone vidas la urbon sen nebulo. Profunde sube ili vidis la larĝan trembrilan bendon, la Tamizon, kun amaso da ŝipoj el ĉiuj landoj, oni vidis la mallarĝajn stratojn kun vicoj da aŭtoj kaj busoj, kiuj el la aero nur similis al senmovaj ludiloj, kaj se ili turnis la kapon, ili vidis la grandajn parkojn Hajdparko kaj Regantparko.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —La pulmoj de Londono, diris Sventon kaj bruligis novan cigaron. La pulmoj de Londono.
@@ -2044,9 +1710,7 @@ Lordo Hubardo suspiris, sed diris nenion.
 
 Oni facile povus platigi la piedan dikfingron, se ne ion alian, diris Sventon.
 
-De malproksime sube sonis la forta tondro de la sonoriloj en la katredralo Sankta Paŭlo. Lordo Hubardo pruntis la ak-ran kampolornon de Sventon kaj rigardis la montrilojn de la turhorloĝo. Nun ni ankaŭ malfruas al la lunĉo, li pensis. Kaj 80
-
-S V E N TO N E N L O N D O N O
+De malproksime sube sonis la forta tondro de la sonoriloj en la katredralo Sankta Paŭlo. Lordo Hubardo pruntis la ak-ran kampolornon de Sventon kaj rigardis la montrilojn de la turhorloĝo. Nun ni ankaŭ malfruas al la lunĉo, li pensis. Kaj
 
 
 plue li pensis pri Joana kaj suspiris. Li tuŝis Sventon sur la ŝultro kaj diris:
@@ -2072,9 +1736,6 @@ Sventon havis bonan apetiton.
 —Bonega fruktopudingo tiu ĉi, li diris kaj ŝutis pro eraro iom da salo el la salujo de reĝino Viktoria sur la pudingon.
 
 Iom tro sala, eble.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Nur sinjoro Omaro konservis sian kutiman trankvilon.
@@ -2111,12 +1772,7 @@ alvenas londonon hodiaŭ vespere esperas arde polia fartas bone via onklino
 
 La silento ĉe la tablo fariĝis preskaŭ fantomeca.
 
-—Pardonu, diris Sventon fine kaj leviĝis. Mi iom urĝas. Vo-82
-
-S V E N TO N E N L O N D O N O
-
-
-jaĝos tuj al Stokholmo. Li rigardis sian horloĝon. ĉu vi sekvos min, sinjoro Omaro? li demandis.
+—Pardonu, diris Sventon fine kaj leviĝis. Mi iom urĝas. Vojaĝos tuj al Stokholmo. Li rigardis sian horloĝon. ĉu vi sekvos min, sinjoro Omaro? li demandis.
 
 —ĉar mi danke al la klimato, respondis Omaro, havas la
 
@@ -2133,9 +1789,6 @@ montri sin gastama ĝis fino.
 Neniu respondis. Sinjoro Omaro riverencis kun orientana
 
 ĝentileco.
-
-
-S V E N TO N E N L O N D O N O
 
 
 Sventon solvas la katomisteron
@@ -2160,9 +1813,7 @@ domo, disajn tubmuntistsonojn ktp. Post tiuj sonoj sekvas ĉiam la siblado de Fr
 
 ”Motorciklo en Egiptio” de nekonata arbargardisto. Jam frue do estas klare, ke oni volis havi Polin. Oni sciis, ke sinjorino Smito estas tre kore ligita al Poli. Do ordinara ĉantaĝokazo.
 
-Tuj, kiam mi aŭdis, ke paro da pintaj ŝuoj estis viditaj sub la 84
-
-S V E N TO N E N L O N D O N O
+Tuj, kiam mi aŭdis, ke paro da pintaj ŝuoj estis viditaj sub la
 
 
 bibliotekkurtenoj, miaj suspektoj iris en difinitan direkton.
@@ -2188,9 +1839,6 @@ Lordo Hubardo ĝemplendis. Ne sufiĉas, ke la privatdetektivoj lasas katojn mala
 —Danke al la atentemo de miaj junaj geamikoj ĉi tie ni povis spuri la tutan ĉantaĝan teamon al Nigra Strato, daŭrigis Sventon. Oni neniam povas esti sufiĉe singarda, kiam oni havas rilatojn kun Nalo Nivalo. Mi ne kuraĝis doni Fraŭlinon Polin al li.
 
 
-S V E N TO N E N L O N D O N O
-
-
 ĉiuj rigardis mirigitaj al Sventon. Lordo Hubardo malfermis la buŝon, kvazaŭ li volus diri ion.
 
 —Mi do komisiis al la provizora ĉefservisto Omaro havigi rezervkaton.
@@ -2211,16 +1859,11 @@ uste tiam envenis Joana kun granda plado da plenigitaj fastobulkoj, kiuj estis t
 
 ĉiu havas sian propran etan econ, kaj la eta eco de Joana estis, ke ŝi ŝatis, ke oni laŭdu la manĝaĵojn.
 
-—Ek de hodiaŭ la domo estos tute malplena je katoj, ha-
-
-ringoduonoj kaj fremdaj fumtubistoj, daŭrigis Sventon.
+—Ek de hodiaŭ la domo estos tute malplena je katoj, haringoduonoj kaj fremdaj fumtubistoj, daŭrigis Sventon.
 
 —Tiaokaze mi restos, diris Joana.
 
 —Jes, tiaokaze, diris Beti.
-
-
-S V E N TO N E N L O N D O N O
 
 
 —Sed Fraŭlino Poli? diris lordo Hubardo kaj ree leviĝis duone de la seĝo.
@@ -2236,9 +1879,6 @@ Sventon kaj Omaro sidiĝis sur la tapiŝon. Privatdetektivo Ture Sventon karesis
 —La oficejon.
 
 Kvazaŭ levita de nevideblaj manoj la tapiŝo leviĝis de la planko kaj elflugis tra la pordo, eksteren en la klaran sun-lumon.
-
-
-S V E N TO N E N L O N D O N O
 
 
 www.omnibus.se/

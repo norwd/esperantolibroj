@@ -40,26 +40,17 @@ Eldonis L. Schwentner, Ljubljana 1904
 *http://www.omnibus.se/*
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 I
 
 Mallaŭte fermiĝis la granda fera pordo; en la krepuska
 
-koridoro, sur la malvarmaj muroj por momento ekbri-
+koridoro, sur la malvarmaj muroj por momento ekbrilis la aŭtuna suno. Malantaŭ vitra pordo, en la pordista budo,
 
-lis la aŭtuna suno. Malantaŭ vitra pordo, en la pordista budo,
-
-brulis ruĝeta lampo kun alta, trankvila flamo; super la lam-
-
-po estis fiksita sur la muro krucifikso kun nuda, plene sang-
+brulis ruĝeta lampo kun alta, trankvila flamo; super la lampo estis fiksita sur la muro krucifikso kun nuda, plene sang-
 
 kovrita korpo de la krucumita Kristo, kiu ne ankoraŭ klinis
 
-sian kapon kaj rigardis per grandaj kvietaj okuloj. Manjo ek-
-
-tremis en la patrina sino kaj faris krucsignon.
+sian kapon kaj rigardis per grandaj kvietaj okuloj. Manjo ektremis en la patrina sino kaj faris krucsignon.
 
 El malantaŭ la vitra pordo elpaŝis pordistino, juna, lama
 
@@ -75,9 +66,7 @@ sankta Agnesa.”
 
 Ili kontinuis la iradon; Manjo ĉirkaŭprenis sian patrinon
 
-ĉirkaŭkole kaj apogiĝis per sia korpo sur ŝia brusto. La kori-
-
-doroj estis malplenaj, malhelaj, la paŝoj e˛is en granda dis-
+ĉirkaŭkole kaj apogiĝis per sia korpo sur ŝia brusto. La koridoroj estis malplenaj, malhelaj, la paŝoj e˛is en granda dis-
 
 tanco ĉirkaŭ si, kvazaŭ venus kaj forirus nevideblaj homoj. La
 
@@ -90,9 +79,6 @@ lumigita altaro. La vandoj estis plenaj de sanktaj ikonoj; antaŭ
 ili brulis ruĝaj lumoj; de la kadroj pendis forvelkitaj floroj.
 
 Manjo spektis tiujn bildojn, ŝiaj okuloj fiksiĝis sur ili kvazaŭ
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 sorĉitaj, ŝi sentis angoron kaj puŝiĝis al sia patrino. Sur la
@@ -125,9 +111,7 @@ troviĝis en ŝiaj haroj kaj eĉ pli blanka estis ŝia vizaĝo. ŝiaj
 
 okuloj alcelis ĉielon, altaron, sur kiu ŝi oferis siajn blankajn
 
-virgulinajn mamojn … Malantaŭ ŝi, en malhela fono, embus-
-
-kis ŝin du sovaĝaj vizaĝoj.
+virgulinajn mamojn … Malantaŭ ŝi, en malhela fono, embuskis ŝin du sovaĝaj vizaĝoj.
 
 Ili iris antaŭen, la koridoroj estis malhelaj kaj solecaj. Ili
 
@@ -145,20 +129,11 @@ fenestro antaŭ harmoniumo. ŝia kapo estis klinita, la vizaĝo
 
 kvazaŭ el marmoro, ankaŭ ŝiaj lipoj estis tute blankaj, eĉ pli
 
-blankaj ol la hela tolaĵo de la kufflugiloj. ŝiaj okuloj estis duo-4
+blankaj ol la hela tolaĵo de la kufflugiloj. ŝiaj okuloj estis duone fermitaj, trankvilaj kiel la tuta vizaĝo kaj kiel la duon-
 
-LA DOMO DE MARIA HELPANTINO
+krepusko tie sube. ŝia mano tuŝis klavon kaj soleca voĉo, kvazaŭ el fora distanco, luliĝis en la aero, ĝi falis laŭgrade, ĝi
 
-
-ne fermitaj, trankvilaj kiel la tuta vizaĝo kaj kiel la duon-
-
-krepusko tie sube. ŝia mano tuŝis klavon kaj soleca voĉo, kva-
-
-zaŭ el fora distanco, luliĝis en la aero, ĝi falis laŭgrade, ĝi
-
-perdiĝis tie sube en la mallumo. El la mallumo briletis la lus-
-
-tro; alte pendis la arĝenta lustro de arĝentaj ĉenoj, ĝi lumigis
+perdiĝis tie sube en la mallumo. El la mallumo briletis la lustro; alte pendis la arĝenta lustro de arĝentaj ĉenoj, ĝi lumigis
 
 la grandan bildon de Dipatrino, kiu etendiĝis de plafono ĝis
 
@@ -168,29 +143,21 @@ mantelo; ŝi staris sur la terglobo, brile blanka piedo vidiĝis
 
 elsub la ore bordita mantelo. Kaj ŝia piedo staris sur la plata
 
-kapo de granda verda serpento, kiu tordiĝis ĉirkaŭ la ter-
-
-globo, ĝin trifoje serpentumis en terura kaj naŭzeca serpen-
+kapo de granda verda serpento, kiu tordiĝis ĉirkaŭ la terglobo, ĝin trifoje serpentumis en terura kaj naŭzeca serpen-
 
 taĵo.
 
-Kaj la piedo ripozis sur la platforma kapo de granda ver-
-
-da serpento, kiu meandris ĉirkaŭ la terglobo, trifoje ĝin ĉirkaŭprenante en terura, naŭza rondo. De la manoj de Dipatrino fluis, de ĉiuj dek fingroj, radioj de mizerikordo sur la
+Kaj la piedo ripozis sur la platforma kapo de granda verda serpento, kiu meandris ĉirkaŭ la terglobo, trifoje ĝin ĉirkaŭprenante en terura, naŭza rondo. De la manoj de Dipatrino fluis, de ĉiuj dek fingroj, radioj de mizerikordo sur la
 
 teron. Sed pli klara ol la steloj sur ŝia mantelo kaj ĝia ora
 
 rando kaj eĉ pli ol la radioj de mizerikordo, fluantaj sur la
 
-teron, estis la vizaĝo de Dipatrino. Manjo ekrigardis al gran-
-
-daj, al la ĉielo fiksitaj okuloj, plenaj de trankvilo kaj de amo, al la lipoj, seriozaj kaj teneraj, al la arĝenta larmguto, kiu brilis mirinde sur la blanka vango, kaj ŝi sentis dolĉecon, ŝi premis
+teron, estis la vizaĝo de Dipatrino. Manjo ekrigardis al grandaj, al la ĉielo fiksitaj okuloj, plenaj de trankvilo kaj de amo, al la lipoj, seriozaj kaj teneraj, al la arĝenta larmguto, kiu brilis mirinde sur la blanka vango, kaj ŝi sentis dolĉecon, ŝi premis
 
 sian frunton al la fenestro, Dipatrino alproksimiĝis, ŝi paŝis el la mallumo kaj tuj antaŭ ŝi troviĝis la gracoplena vizaĝo …
 
-Ili leviĝis, Manjo alkroĉiĝis al la kolo de sia patrino. Preter-
-
-pasis virino kaj Manjo ektremetis de angoro. La vizaĝo de la
+Ili leviĝis, Manjo alkroĉiĝis al la kolo de sia patrino. Preterpasis virino kaj Manjo ektremetis de angoro. La vizaĝo de la
 
 virino estis tute dismordita, montriĝis la nuda karno, lipoj ne
 
@@ -198,18 +165,14 @@ plu vidiĝis, same ne nazo, lango lekis nudan makzelon. ŝi
 
 haltis, turnis la vizaĝon kun trankvila rigardo —”Estu laŭdata
 
-Jesuo Kristo!” — kaj ŝi iris sian vojon. Manjo tremetis, ŝi sentis 5
-
-LA DOMO DE MARIA HELPANTINO
+Jesuo Kristo!” — kaj ŝi iris sian vojon. Manjo tremetis, ŝi sentis
 
 
 fridon; la koridoro estis senfine longa, obskura kaj soleca. i
 
 kondukis en nekonaton, al nova lando, kie ne ekzistas plu
 
-suno kaj homaj voĉoj, en nekonatan landon, plenan de sank-
-
-taj kaj teruraj miraklaĵoj, de flustrataj preĝoj, de blankaj kvietaj vizaĝoj, tiel fremdaj, kvazaŭ ili descendus el la ĉielo, de
+suno kaj homaj voĉoj, en nekonatan landon, plenan de sanktaj kaj teruraj miraklaĵoj, de flustrataj preĝoj, de blankaj kvietaj vizaĝoj, tiel fremdaj, kvazaŭ ili descendus el la ĉielo, de
 
 antaŭ la Dia trono …
 
@@ -221,17 +184,13 @@ La ĉambro estis granda, tute blanka. Du fenestroj etendiĝis
 
 de plafono preskaŭ ĝis planko, vualitaj per blankaj kurtenoj,
 
-agrabla duonobskuro regis en la ĉambro. Laŭlonge de la van-
-
-do lito apud lito, dekkvar da ili. Super la litoj sanktaj ikonoj, krucifiksoj, inter ambaŭ fenestroj bildo de dika kalva sinjoro
+agrabla duonobskuro regis en la ĉambro. Laŭlonge de la vando lito apud lito, dekkvar da ili. Super la litoj sanktaj ikonoj, krucifiksoj, inter ambaŭ fenestroj bildo de dika kalva sinjoro
 
 kun ruĝa kolumo kaj ora krucifikso sur la ora ĉeno. Sub la
 
 bildo troviĝis kristnaska kripo, artece kunmetita el ligno kaj
 
-papero — ĉio bele kaj tre verece, stalo, la sankta familio, paŝ-
-
-tistoj, la sanktaj tri saĝuloj kaj ĉirkaŭ tio verda pejzaĝo, en
+papero — ĉio bele kaj tre verece, stalo, la sankta familio, paŝtistoj, la sanktaj tri saĝuloj kaj ĉirkaŭ tio verda pejzaĝo, en
 
 malantaŭo la urbo Betlehem.
 
@@ -251,24 +210,18 @@ La patrino ekploris. Jam ŝi troviĝis ĉeporde kaj ŝi revenis,
 
 surgenuis ĉe la malalta lito kaj ploris. Ankaŭ Manjo havis
 
-humidajn okulojn, sed ŝia vizaĝo estis trankvila kaj ŝi ne post-
-
-rigardis la patrinon; en sia korpo ŝi sentis doloron pro la
+humidajn okulojn, sed ŝia vizaĝo estis trankvila kaj ŝi ne postrigardis la patrinon; en sia korpo ŝi sentis doloron pro la
 
 longa vojo, ŝi sentis, kiel malfermiĝas vundo sur ŝia gambo;
 
-ŝi ankaŭ sentis soifon, sed ŝi ne kuraĝis peti por akvo. ŝi estis 6
-
-LA DOMO DE MARIA HELPANTINO
+ŝi ankaŭ sentis soifon, sed ŝi ne kuraĝis peti por akvo. ŝi estis
 
 
 en embaraso, ĉar la patrino ploris, ŝi hontis, ĉar la aliaj rigardis ŝin, sed ankaŭ el ŝiaj okuloj volis gliti larmoj, kvankam ŝi
 
 ne sciis pro kio kaj kvankam ŝi ne volis plori.
 
-La patrino leviĝis, ŝi kisis ŝian vizaĝon; Manjo sentis juke-
-
-tadon sur sia vango pro la patrinaj larmoj, ŝi skuiĝis kaj ŝi
+La patrino leviĝis, ŝi kisis ŝian vizaĝon; Manjo sentis juketadon sur sia vango pro la patrinaj larmoj, ŝi skuiĝis kaj ŝi
 
 levis manon por tuŝi la vizaĝon de la patrino, kiu estis febra
 
@@ -282,9 +235,7 @@ timo, grandaj, malklaraj de la larmoj, ŝiaj lipoj tremetis.
 
 Fratulino Cecilia akompanis la patrinon ĝis la pordo.
 
-”Neniam plu ŝi foriros de ĉi tie!” diris la patrino kaj alrigar-
-
-dis la fratulinon per strangaj, infanecaj, petantaj okuloj.
+”Neniam plu ŝi foriros de ĉi tie!” diris la patrino kaj alrigardis la fratulinon per strangaj, infanecaj, petantaj okuloj.
 
 ”Laŭ la Dia volo,” respondis fratulino Cecilia kviete. La
 
@@ -298,13 +249,9 @@ vino, miksita kun akvo.
 
 Manjo eltrinkis la vinon, poste ŝi demetis sian tutan veston
 
-ĝis la ĉemizo kaj survestis sin per ruĝe krucstriita jupo, tajlo-
+ĝis la ĉemizo kaj survestis sin per ruĝe krucstriita jupo, tajlorita el unu peco, kiel kutime ĉe malgrandaj infanoj, super la
 
-rita el unu peco, kiel kutime ĉe malgrandaj infanoj, super la
-
-jupo ŝi vestis sin per blue striita antaŭtuko kun zono kaj ŝul-
-
-trorubandoj. ŝi eksidis sur la lito kaj rigardis ĉirkaŭe en la
+jupo ŝi vestis sin per blue striita antaŭtuko kun zono kaj ŝultrorubandoj. ŝi eksidis sur la lito kaj rigardis ĉirkaŭe en la
 
 ĉambro. Nur malofte kaŝglitis kontraŭ ŝi scivolema, ironia,
 
@@ -312,27 +259,18 @@ preskaŭ malica rigardo, sed jam la aliaj alkutimiĝis je ŝi, denove aŭdiĝis 
 
 unu la alian tien reen ĉiudirekte.
 
-En tiu momento larĝa, ruĝa, petola vizaĝo sin turnis rek-
-
-te al Manjo.
+En tiu momento larĝa, ruĝa, petola vizaĝo sin turnis rekte al Manjo.
 
 ”Ne pensu, ke vi havos vinon laŭplaĉe!”
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Manjo ektimis. Tiu knabino, kiu ŝin alparolis per akra
 
-voĉo, sidis sur malalta seĝeto, per manoj ŝi apogis sin je apo-
-
-giloj, kiajn havas riĉaj apogseĝoj; ŝi lulis sian seĝeton de mal-
+voĉo, sidis sur malalta seĝeto, per manoj ŝi apogis sin je apogiloj, kiajn havas riĉaj apogseĝoj; ŝi lulis sian seĝeton de mal-
 
 dekstre al dekstre, tre forte kaj tre rapide, kaj tiamaniere ŝi
 
-movis sin antaŭen, sen tuŝi la plankon per siaj malsanaj pie-
-
-doj, kaŝitaj en pezaj pantofloj. ŝi proksimiĝis al la lito kaj
+movis sin antaŭen, sen tuŝi la plankon per siaj malsanaj piedoj, kaŝitaj en pezaj pantofloj. ŝi proksimiĝis al la lito kaj
 
 Manjo timis, per ambaŭ manoj ŝi alkroĉiĝis al litkovrilo kaj
 
@@ -370,17 +308,10 @@ Tio estis Rozinjo, la tria Rozinjo, ĉar jam antaŭe estis du;
 
 ŝi servis al ĉiuj, ŝi portis al iliaj litoj kafon kaj supon kaj matene ŝi ĉiam plektis la hararon de la senmova Franciska. ŝia
 
-vizaĝo nur tiam estis konsternita kaj pala, kiam la aliaj kna-
-
-binoj ŝin ekscitis: ”Rozinjo, la patrino venas vin preni!” Tiam
+vizaĝo nur tiam estis konsternita kaj pala, kiam la aliaj knabinoj ŝin ekscitis: ”Rozinjo, la patrino venas vin preni!” Tiam
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-ŝi kaŝis sin en angulon kaj gapis de malantaŭ sia lito per timi-
-
-ĝintaj okuloj …
+ŝi kaŝis sin en angulon kaj gapis de malantaŭ sia lito per timiĝintaj okuloj …
 
 ŝi venis al la lito kaj apogis la kubutojn sur la kusenon.
 
@@ -416,9 +347,7 @@ nazo kiel tranĉilo, okuloj ardaj, haroj nigraj; etendiĝis la mano, osteca, mal
 
 fermiĝis.
 
-Ili strarigis demandojn al Manjo, sed ŝi ne respondis abun-
-
-de; ŝi sidis firme rekte, kun kunpremitaj brovoj, atentaj oku-
+Ili strarigis demandojn al Manjo, sed ŝi ne respondis abunde; ŝi sidis firme rekte, kun kunpremitaj brovoj, atentaj oku-
 
 loj, rigidaj, ŝiaj etaj fingroj estis enfositaj sub litkovrilo — kvazaŭ ŝi rigardus en okulojn de dektri malamikoj …
 
@@ -430,24 +359,16 @@ Fratulino Cecilia malfermis la pordon.
 
 Kunpremiĝis la manoj, krianta voĉo leviĝis el la grupo kaj
 
-post ĝi aŭdiĝis zumantaj, tirataj voĉoj. La vizaĝoj estis kvie-
-
-taj, seriozaj, neniu scias, kien rigardis la okuloj, silentaj, larĝe 9
-
-LA DOMO DE MARIA HELPANTINO
+post ĝi aŭdiĝis zumantaj, tirataj voĉoj. La vizaĝoj estis kvietaj, seriozaj, neniu scias, kien rigardis la okuloj, silentaj, larĝe
 
 
-malfermitaj. La vespera preĝado finiĝis rapide — kaj kiel mo-
-
-mentdaŭra ombro malaperis de la vizaĝoj serioza kvieto sen
+malfermitaj. La vespera preĝado finiĝis rapide — kaj kiel momentdaŭra ombro malaperis de la vizaĝoj serioza kvieto sen
 
 ajna spuro, la lipoj gaje ridetis, la okuloj rigardis vigle kaj petole.
 
 Manjo tenis en sia sino pelvon da supo.
 
-”ĉu la supo estas bongusta?” demandis ŝin Aloiza kaj ek-
-
-ridis per siaj ruĝaj, dikaj lipoj kaj ŝiaj blankaj negrulaj dentoj brilis.
+”ĉu la supo estas bongusta?” demandis ŝin Aloiza kaj ekridis per siaj ruĝaj, dikaj lipoj kaj ŝiaj blankaj negrulaj dentoj brilis.
 
 ”Bongusta,” respondis Manjo kaj malrapide sorbmanĝis,
 
@@ -463,9 +384,7 @@ supon en vazon, en kiu troviĝis malpura lavakvo.
 
 Ekparolis Tina, la plej maljuna, jam dekkvarjarojn aĝa. ŝi
 
-estis fortkorpa, ŝia vizaĝo montris sanon, iom ruĝa, iom kru-
-
-da, ŝiaj okuloj rigardis serioze, patrinece. ŝiaj fortaj, karnecaj brakoj apogiĝis je seĝo; ŝi paŝis alimaniere ol Aloiza: ŝi lulis
+estis fortkorpa, ŝia vizaĝo montris sanon, iom ruĝa, iom kruda, ŝiaj okuloj rigardis serioze, patrinece. ŝiaj fortaj, karnecaj brakoj apogiĝis je seĝo; ŝi paŝis alimaniere ol Aloiza: ŝi lulis
 
 kun la seĝo kaj la tuta korpo antaŭen kaj malantaŭen, ne de
 
@@ -475,22 +394,15 @@ faris bruon kaj malrapide moviĝis. ŝiaj gamboj estis maldikaj,
 
 kiel gamboj de dujara infano, ili estis kaŝitaj subjupe.
 
-”Manĝu vian supon, Manjo! La supo estas bona, nur Alo-
+”Manĝu vian supon, Manjo! La supo estas bona, nur Aloiza estas malica … Vi, eĉ supon vi ne havos, nur atentu!”
 
-iza estas malica … Vi, eĉ supon vi ne havos, nur atentu!”
-
-La vizaĝo de Aloiza en momento serioziĝis; ŝi mire ekrigar-
-
-dis; ŝi sidis silente ĉe fenestro, ĝis ili faris lumon; ŝiaj lipoj estis duone malfermitaj, malicaj kaj tristaj.
+La vizaĝo de Aloiza en momento serioziĝis; ŝi mire ekrigardis; ŝi sidis silente ĉe fenestro, ĝis ili faris lumon; ŝiaj lipoj estis duone malfermitaj, malicaj kaj tristaj.
 
 Venis fratulino Cecilia kaj bruligis gaslampon, pendanta de
 
 la plafono. Arda blanka lumo disverŝiĝis en la ĉambro.
 
 Ili vestis kaj preparis sin por dormado. Seĝoj bruis, foje
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 aŭdiĝis krieto — foje unu el ili ne sukcesis bone kaj falis dum
@@ -513,17 +425,13 @@ Kapoj leviĝis en la litoj.
 
 siaj lantaj, mallertaj manoj ŝi flankentiris la kurtenon, ŝi venis, kun klinita kapo, kun etenditaj brakoj, kun vizaĝo ridetanta,
 
-kvieta, sentima. ŝiaj okuloj, belaj, nigraj, rigardis mal-
-
-trankvile, senesprime. Antonia estis blinda.
+kvieta, sentima. ŝiaj okuloj, belaj, nigraj, rigardis maltrankvile, senesprime. Antonia estis blinda.
 
 ”Kie vi estis, Antonia?”
 
 ”ĉe la fenestro, fratulino Cecilia.”
 
-Antonia staris ĉe la fenestro horon post horo, kiam la ves-
-
-pero estis bela kaj ŝi rigardis per siaj grandaj, senesprimaj
+Antonia staris ĉe la fenestro horon post horo, kiam la vespero estis bela kaj ŝi rigardis per siaj grandaj, senesprimaj
 
 okuloj, kun ridetanta, kvieta vizaĝo. ŝiaj vangoj ektremetis,
 
@@ -533,33 +441,22 @@ kiam sunradio ŝin karesis.
 
 Antonia ne respondis; ŝi senvestigis sin malrapide kaj ŝi
 
-ridetis, kvazaŭ ŝi travivus ion mirindan, al homoj nekompre-
+ridetis, kvazaŭ ŝi travivus ion mirindan, al homoj nekompreneblan.
 
-neblan.
-
-”ĉu vi ne scias, ke ni havas denove novan knabinon? Man-
-
-jo estas ŝia nomo.”
+”ĉu vi ne scias, ke ni havas denove novan knabinon? Manjo estas ŝia nomo.”
 
 Kvazaŭ iuj manoj turnus ŝian kapon, Antonia alrigardis la
 
 liton, en kiu kuŝis Manjo.
 
-”Bonan vesperon, Manjo!” ekridetis Antonia. Manjo ape-
-
-naŭ turnis sian rigardon; ŝiaj okuloj estis lacaj, ŝi tute estis
-
-
-LA DOMO DE MARIA HELPANTINO
+”Bonan vesperon, Manjo!” ekridetis Antonia. Manjo apenaŭ turnis sian rigardon; ŝiaj okuloj estis lacaj, ŝi tute estis
 
 
 laca; la tago estis maltrankvila kaj longdaŭra, same kiel tiam,
 
 kiam ŝi veturis per trajno ek de mateno ĝis vespero.
 
-”Silenton, infanoj! Preĝu kaj dormu! Sankta anĝelo gardan-
-
-to estu kun vi!”
+”Silenton, infanoj! Preĝu kaj dormu! Sankta anĝelo gardanto estu kun vi!”
 
 Fratulino Cecilia estingis la lumon. De nenie aŭdiĝis voĉo.
 
@@ -569,15 +466,11 @@ susuranta litkovrilo.
 
 Manjo ne dormis. ŝi sentis malvarmon en sia nova lito, ŝi
 
-sentis kapdoloron kaj la vundo ĉe la gambo kaŭzis al ŝi dolo-
-
-ron; foje ŝi sentis entranĉon, ke ŝi povus ekkrii, almenaŭ
+sentis kapdoloron kaj la vundo ĉe la gambo kaŭzis al ŝi doloron; foje ŝi sentis entranĉon, ke ŝi povus ekkrii, almenaŭ
 
 ekĝemi, sed ŝi ne kuraĝis. ŝi tremis, ŝi kovris la kovrilon ĝis sia buŝo kaj kunpremis la manojn sub la ĉemizo je sia brusto.
 
-Tuj post kiam la doloro iomete ĉesis, alvenis strangaj, tris-
-
-taj pensoj. Estis silento, sensona blanka lumo brilis tra altaj
+Tuj post kiam la doloro iomete ĉesis, alvenis strangaj, tristaj pensoj. Estis silento, sensona blanka lumo brilis tra altaj
 
 fenestroj. Nenie vidiĝis luno, sed la ĉielpeco, kiu brilis super
 
@@ -593,17 +486,11 @@ ekĝemis kaj ekmuĝis.
 
 Manjo estis sola, ŝi perdiĝis, kvazaŭ sola meze de arbaro.
 
-Se ŝi vokus sian patrinon, ŝi ne aŭdus ŝin, neniu en la mon-
+Se ŝi vokus sian patrinon, ŝi ne aŭdus ŝin, neniu en la mondo aŭdus ŝin … ŝi komencis preĝi, sed ŝiaj vortoj subite ĉesis,
 
-do aŭdus ŝin … ŝi komencis preĝi, sed ŝiaj vortoj subite ĉesis,
+peza, turmenta plorĝemo leviĝis el ŝia brusto, ŝiaj lipoj tremetis kaj grimacis, ŝi sentis doloreton en okuloj. ŝi rememoris
 
-peza, turmenta plorĝemo leviĝis el ŝia brusto, ŝiaj lipoj treme-
-
-tis kaj grimacis, ŝi sentis doloreton en okuloj. ŝi rememoris
-
-pri sia eta frato, kiu kuŝas hejme, duone dekovrita, kun mal-
-
-fermita buŝo, kun ruĝaj vangoj, ŝvitinta. ŝi rememoris pri sia
+pri sia eta frato, kiu kuŝas hejme, duone dekovrita, kun malfermita buŝo, kun ruĝaj vangoj, ŝvitinta. ŝi rememoris pri sia
 
 patrino, kiu sidas ĉe la tablo kun lumo kaj kudras; profunde
 
@@ -612,32 +499,23 @@ kliniĝis ŝia kapeto, ŝia vizaĝo estas hela kaj ruĝeta pro la
 lumo. ŝi trovis kompaton por ĉiuj, ankaŭ por la kanario, kiu
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 sidis tie en la kaĝo tute supre, kun kapeto en plumaro, kiel
 
 bela flava bulo … ŝi volis ekparoli, sed ŝi rigardis ĉirkaŭ si —
 
-ĉie en la ĉirkaŭo silento, blankaj vandoj, altaj malafablaj fe-
-
-nestroj, Dio scias, ankaŭ soleca nigra arbaro.
+ĉie en la ĉirkaŭo silento, blankaj vandoj, altaj malafablaj fenestroj, Dio scias, ankaŭ soleca nigra arbaro.
 
 ŝi kisis medaleton, ŝi fermis okulojn.
 
 ”Anĝelo sankta, mia gardanto —”
 
-Sed ŝia litkovrilo skuiĝis abrupte, sur ŝiaj vangoj fluis lar-
-
-moj, ŝi ne povis tion bari, singlutplorado aperis en la ĉambro.
+Sed ŝia litkovrilo skuiĝis abrupte, sur ŝiaj vangoj fluis larmoj, ŝi ne povis tion bari, singlutplorado aperis en la ĉambro.
 
 ŝi turnis la kapon kaj premis la buŝon kontraŭ la kapkuseno.
 
 De la dua fenestro io ekmurmuris, Antonia leviĝis en sia
 
-lito kaj aŭskultis kun kliniĝinta korpo. ŝi leviĝis, lante tra-
-
-marŝis la ĉambron, en blanka ĉemizo ĝis genuoj, kun etendi-
+lito kaj aŭskultis kun kliniĝinta korpo. ŝi leviĝis, lante tramarŝis la ĉambron, en blanka ĉemizo ĝis genuoj, kun etendi-
 
 taj brakoj, kun klinita kapo, vaste apertaj okuloj. ŝi atingis
 
@@ -661,18 +539,11 @@ Manjo mem ekridetis — morgaŭ estos dimanĉo. Apenaŭ ŝi
 
 turnis sian rigardon, jam ŝin trapenetris varmo kaj laco, ŝiaj
 
-okuloj fermiĝis … Baldaŭ ŝi sonĝis pri io tre stranga: tie eten-
-
-diĝis herbejo, herboj atingis ŝiajn genuojn kaj ruĝaj kaj flavaj
+okuloj fermiĝis … Baldaŭ ŝi sonĝis pri io tre stranga: tie etendiĝis herbejo, herboj atingis ŝiajn genuojn kaj ruĝaj kaj flavaj
 
 floroj kliniĝis. La suno brilis kaj Manjo ludis per sia granda
 
-ruĝa pilko; la gamboj ŝin portis facile, kvazaŭ ili estus flugi-
-
-loj.
-
-
-LA DOMO DE MARIA HELPANTINO
+ruĝa pilko; la gamboj ŝin portis facile, kvazaŭ ili estus flugiloj.
 
 
 II
@@ -687,9 +558,7 @@ horo, la knabinoj atendis gastojn.
 
 Antonia apogstaris ĉe la fenestro. ŝi turnis sntraŭ la
 
-ĉambro, ŝia vizaĝo estis hela kaj ruĝa, kvazaŭ sunradioj post-
-
-restus sur ĝi.
+ĉambro, ŝia vizaĝo estis hela kaj ruĝa, kvazaŭ sunradioj postrestus sur ĝi.
 
 ”Brilas suno, ne venos multaj.”
 
@@ -709,18 +578,11 @@ apenaŭ rigardis ĉirkaŭen en la ĉambro kaj kapjesis. ŝi paŝis
 
 al la lito, kie kuŝis Katinjo, la malsana Katinjo; ŝi kliniĝis tute proksime al ŝiaj lipoj kaj ili flustris, ĝis venis krepusko; neniu aŭdis unu solan vorton kaj neniu atentis pri ili ambaŭ. ŝi kunportis ion envolvitan en paperon, sed Aloiza, kiu foje turnis
 
-tien sian rigardon, neniam vidis, ke Katinjo ion de tio man-
+tien sian rigardon, neniam vidis, ke Katinjo ion de tio manĝus. La patrino, kiam ŝi adiaŭis, havis ruĝajn okulojn, kaj Ka-
 
-ĝus. La patrino, kiam ŝi adiaŭis, havis ruĝajn okulojn, kaj Ka-
-
-tinjo turnis sin al la vando kaj parolis kun neniu. ŝi havis mal-
-
-belan vizaĝon, grandan nazon, premitan kiel negrulino,
+tinjo turnis sin al la vando kaj parolis kun neniu. ŝi havis malbelan vizaĝon, grandan nazon, premitan kiel negrulino,
 
 dikajn lipojn, etajn okulojn kaj taŭzajn, cindrokolorajn
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 harojn; ŝi probable havis nur dektri jarojn, sed super ŝia lito
@@ -733,9 +595,7 @@ Tina, dekkvarjara knabino, sidis sola en angulo inter du
 
 litoj; ŝia vizaĝo brulis, la okuloj rigardis meditece.
 
-Aloiza turnis sin al ŝi kaj okulumis, kvazaŭ la suno ŝin tra-
-
-fus vizaĝen per sia brilo.
+Aloiza turnis sin al ŝi kaj okulumis, kvazaŭ la suno ŝin trafus vizaĝen per sia brilo.
 
 ”Edvardo!” ŝi kriis per mola, kantanta voĉo.
 
@@ -749,13 +609,9 @@ kunpremis la lipojn, puŝe duonrenverŝis la seĝon, lulis per sia
 
 supra korpo antaŭen kaj reen kaj brue moviĝis al la tablo.
 
-Aloiza laŭte ridis per laŭta, stranga, raŭka rido, lerte ŝi lulmovis sian seĝeton kaj fuĝis. Tina haltis ĉe la tablo, kombis per-
+Aloiza laŭte ridis per laŭta, stranga, raŭka rido, lerte ŝi lulmovis sian seĝeton kaj fuĝis. Tina haltis ĉe la tablo, kombis permane sian hararon, falintan al ŝi transfrunte kaj ekridetis.
 
-mane sian hararon, falintan al ŝi transfrunte kaj ekridetis.
-
-Ankaŭ Aloiza haltis ĉe la fenestro kaj rigardis rekte al la oku-
-
-loj de Tina …
+Ankaŭ Aloiza haltis ĉe la fenestro kaj rigardis rekte al la okuloj de Tina …
 
 Knaris la pordo, envenis tri elegante vestitaj damoj, ĉiu el
 
@@ -771,12 +627,7 @@ nazon kaj portis grandan nigran ĉapelon surkape. Ankaŭ la
 
 aliaj du estis sveltegaj kaj ruĝnazaj, sed pli junaj, probable la filinoj de la unua. Lante la unua damo demetis la gantojn, ŝi
 
-ankoraŭ staris ĉeporde kaj per tre afabla, dolĉa rideto rigar-
-
-dis ĉirkaŭe en la ĉambro.
-
-
-LA DOMO DE MARIA HELPANTINO
+ankoraŭ staris ĉeporde kaj per tre afabla, dolĉa rideto rigardis ĉirkaŭe en la ĉambro.
 
 
 ”Kiel vi fartas, infanoj?” demandis ŝia maldika, nazala voĉo
@@ -793,9 +644,7 @@ streĉita pro la retenita rido. Aloiza estis serioza kaj ne movis
 
 la palpebrojn.
 
-La damo per lantaj movoj malligis sian pakaĵon kaj ĉir-
-
-kaŭrigardis per petolaj okuloj: Jen rigardu infanoj, kion mi
+La damo per lantaj movoj malligis sian pakaĵon kaj ĉirkaŭrigardis per petolaj okuloj: Jen rigardu infanoj, kion mi
 
 kunportis al vi!
 
@@ -805,9 +654,7 @@ Ili rigardis kaj atendis, neniu el ili elparolis eĉ vorton. El la pakaĵo montr
 
 Juna ruĝnaza damo malligis buntan saketon kaj prenis el
 
-ĝi ŝikan blankan tranĉileton. La pli aĝa damo paŝis al la tab-
-
-lo kaj per sinjorecaj gestoj tranĉis la oranĝojn, ŝi nete movis
+ĝi ŝikan blankan tranĉileton. La pli aĝa damo paŝis al la tablo kaj per sinjorecaj gestoj tranĉis la oranĝojn, ŝi nete movis
 
 siajn ruĝajn maldikfingrojn, ŝi sendis rigardojn elsub sia nigra
 
@@ -815,17 +662,11 @@ siajn ruĝajn maldikfingrojn, ŝi sendis rigardojn elsub sia nigra
 
 de ŝi dekstre kaj maldekstre.
 
-Poste ili marŝis ĉirkaŭ la tablo kaj de lito al lito kaj distri-
+Poste ili marŝis ĉirkaŭ la tablo kaj de lito al lito kaj distribuis la pecetojn, el kiuj eligiĝis dolĉa fluaĵo.
 
-buis la pecetojn, el kiuj eligiĝis dolĉa fluaĵo.
+”Dio rekompencu!” aŭdiĝis monotone, longe tirite, en takto. Kaj la damo observis la vizaĝojn, ŝi viŝis siajn maldikajn
 
-”Dio rekompencu!” aŭdiĝis monotone, longe tirite, en tak-
-
-to. Kaj la damo observis la vizaĝojn, ŝi viŝis siajn maldikajn
-
-fingrojn en sia poŝtuko, dolĉa etoso ridetis en ŝia boninten-
-
-ca koro.
+fingrojn en sia poŝtuko, dolĉa etoso ridetis en ŝia bonintenca koro.
 
 Kaj poste ŝi elpaŝis en la mezon de la ĉambro, ŝi levis la
 
@@ -836,9 +677,6 @@ manon.
 Kaj malpli laŭte, gaje:
 
 ”Malfermu la pakaĵon, Edita!”
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 La juna ruĝnaza damo malfermis la paperan pakaĵon, ke
@@ -855,9 +693,7 @@ Mallaŭte, ĝoje:
 
 ”Malfermu la pakaĵon, Marga!”
 
-La tria, la plej juna damo malfermis la pakaĵeton kaj mon-
-
-triĝis buntaj bildetoj, ili estis precize dekkvar. Afabla, ridetan-ta patrino tenis en siaj brakoj dikan infanon, vestitan nur per
+La tria, la plej juna damo malfermis la pakaĵeton kaj montriĝis buntaj bildetoj, ili estis precize dekkvar. Afabla, ridetan-ta patrino tenis en siaj brakoj dikan infanon, vestitan nur per
 
 ĉemizo kaj ŝi grasnutris ĝin per kulereto. Kaj sub la bildeto
 
@@ -881,27 +717,17 @@ infaneto?”
 
 Manjo, ĉu vi preĝas por viaj bonfaruloj?”
 
-Manjo mallevis siajn okulojn kaj silentis. Elsub siaj palpe-
-
-broj ŝi vidis, kiel Aloiza ĵus grimacis tie malantaŭe; kaj Manjo
+Manjo mallevis siajn okulojn kaj silentis. Elsub siaj palpebroj ŝi vidis, kiel Aloiza ĵus grimacis tie malantaŭe; kaj Manjo
 
 trovis bona la aferon, ke Aloiza grimacis.
 
 Antaŭ la pordo staris fratulino Cecilia, kun krucumitaj
 
-manoj surbruste, klinita kapo iomete flanken, kun silenta ri-
-
-
-LA DOMO DE MARIA HELPANTINO
-
-
-deto surlipe. Ankaŭ la rideto de fratulino Cecilia plaĉis al
+manoj surbruste, klinita kapo iomete flanken, kun silenta rideto surlipe. Ankaŭ la rideto de fratulino Cecilia plaĉis al
 
 Manjo.
 
-”Pripensu, mia kara infaneto,” diris la damo, ”ke tiu ĉi sur-
-
-tera suferado ne daŭras longe. Baldaŭ vin vokos al si Sinjoro
+”Pripensu, mia kara infaneto,” diris la damo, ”ke tiu ĉi surtera suferado ne daŭras longe. Baldaŭ vin vokos al si Sinjoro
 
 Dio, por savi vin de ĉio malbona —”
 
@@ -925,9 +751,7 @@ Venis grandstatura, dika virino, tre riĉe vestita, kun larĝa
 
 kaj mola vizaĝo, kvazaŭ el pasto. ŝi malice ekridetis, kiam ŝi
 
-vidis la ruĝnazan nigran damon kaj ŝia submentono ektreme-
-
-tis kaj daŭre tremetis, dum preter ŝi paŝis la ruĝnazaj damoj
+vidis la ruĝnazan nigran damon kaj ŝia submentono ektremetis kaj daŭre tremetis, dum preter ŝi paŝis la ruĝnazaj damoj
 
 per siaj fortaj paŝoj. Profunda riverenco, malica rigardo, la
 
@@ -935,9 +759,7 @@ pordo fermiĝis.
 
 Grandan pakaĵon kunportis la dika damo. ŝi tuj sidiĝis,
 
-metis sian pakaĵon surgenuen, viŝis per la poŝtuko sian ŝvi-
-
-titan frunton, frotitan de la ĉapelo, kiu sidis profunde trans
+metis sian pakaĵon surgenuen, viŝis per la poŝtuko sian ŝvititan frunton, frotitan de la ĉapelo, kiu sidis profunde trans
 
 la vizaĝo.
 
@@ -952,16 +774,11 @@ La vizaĝo de la damo ekbrilis, kvazaŭ ili dirus al ŝi ion tre
 agrablan.
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ”Tio estas avareco, la grafa avareco … Aloiza, kial vi ne
 
 donis al ŝi panpecon? — Jen por vi, infanoj!”
 
-ŝi malligis la pakaĵon kaj surtabligis kukojn, pomojn, oran-
-
-ĝojn, bonbonojn; granda amaso troviĝis sur la tablo.
+ŝi malligis la pakaĵon kaj surtabligis kukojn, pomojn, oranĝojn, bonbonojn; granda amaso troviĝis sur la tablo.
 
 ”Fratulino Cecilia, disdonu!”
 
@@ -975,25 +792,17 @@ La damo sidis sur la seĝo, granda, dika, potenca. ŝiaj etaj
 
 okuloj kuris en la profundaj kavoj, elfositaj en la pasto. Kun
 
-dezira, preskaŭ petanta rigardo ŝi serĉis la rigardon de fratu-
+dezira, preskaŭ petanta rigardo ŝi serĉis la rigardon de fratulino Cecilia, ŝi gapis al ĝi, ŝia vizaĝo transformiĝis al ronde-
 
-lino Cecilia, ŝi gapis al ĝi, ŝia vizaĝo transformiĝis al ronde-
-
-caj faldoj, la submentono tremetis, tremetis ŝia tuta ega kor-
-
-po.
+caj faldoj, la submentono tremetis, tremetis ŝia tuta ega korpo.
 
 ”Tiaj ili estas, jen vidu … ili venas al povrulinoj kvazaŭ
 
-sankta Nikolao … ŝi ŝuldas al mi por la viando eĉ de la pas-
-
-inta jaro, de la pasinta jaro … Tiam ni ankoraŭ havis nian
+sankta Nikolao … ŝi ŝuldas al mi por la viando eĉ de la pasinta jaro, de la pasinta jaro … Tiam ni ankoraŭ havis nian
 
 malnovan viandvendejon, nu, en tiu tempo …”
 
-Fratulino Cecilia silente ekridis, riverencis kaj iris al la por-
-
-do. La damo sidis sur la seĝo, dika, potenca, ŝi ridetis, rigar-
+Fratulino Cecilia silente ekridis, riverencis kaj iris al la pordo. La damo sidis sur la seĝo, dika, potenca, ŝi ridetis, rigar-
 
 dante kun peto en la ĉambro. Sed neniu atentis pri ŝi, la
 
@@ -1001,9 +810,7 @@ infanoj manĝis kaj ridis.
 
 Venis aliaj homoj, pli kaj pli multaj. La patrinoj staris ĉe la
 
-litoj, enuaj malgajaj vizaĝoj. Manjo kuŝis, ĉekusene ŝia patri-
-
-no; ŝi kunportis por ŝi kukojn kaj bakitan viandon. ŝi deman-
+litoj, enuaj malgajaj vizaĝoj. Manjo kuŝis, ĉekusene ŝia patrino; ŝi kunportis por ŝi kukojn kaj bakitan viandon. ŝi deman-
 
 dis, sed Manjo estis perdita en siaj pensoj kaj rigardis ĉirkaŭ
 
@@ -1013,14 +820,10 @@ Silente sidis Tina, kun arda vizaĝo, kun okuloj, gapantaj al
 
 la pordo. ŝi skuiĝis, klinis sian kapon flanken kaj rigardis
 
-foren. Venis tri virinoj, kun ili juna fraŭlo. Ili transmarŝis la 19
-
-LA DOMO DE MARIA HELPANTINO
+foren. Venis tri virinoj, kun ili juna fraŭlo. Ili transmarŝis la
 
 
-ĉambron ĝis la fenestro, kie apud la lito sidis Paŭla kaj salu-
-
-tis ilin jam defore per siaj gajaj okuloj.
+ĉambron ĝis la fenestro, kie apud la lito sidis Paŭla kaj salutis ilin jam defore per siaj gajaj okuloj.
 
 Paŭla vivis solece, kun neniu parolante, ŝi estis la sola juda
 
@@ -1034,9 +837,7 @@ fratinoj kaj frato; ili parolis mallaŭte, fride, preskaŭ devigite, kvazaŭ dum
 
 Edvardo estis juna homo, lia vizaĝo estis tute virineca,
 
-mola, tenera, sen lipharoj; elsub liaj nigraj, buklaj, judaj ha-
-
-roj lia frunto brilis kvazaŭ de marmoro; liaj grandaj okuloj
+mola, tenera, sen lipharoj; elsub liaj nigraj, buklaj, judaj haroj lia frunto brilis kvazaŭ de marmoro; liaj grandaj okuloj
 
 rigardis senzorge kaj trankvile ĉirkaŭe en la ĉambro. Li tenis
 
@@ -1048,9 +849,7 @@ Li paŝis al Tina kaj tenere ekridetis.
 
 ”Kio pri vi, Tina?”
 
-Lia trankvila rigardo eksidis sur ŝiajn harojn, sur ŝian viza-
-
-ĝon, lante ĝi glitis al ŝia duonburĝoninta brusto, sur ŝia kor-
+Lia trankvila rigardo eksidis sur ŝiajn harojn, sur ŝian vizaĝon, lante ĝi glitis al ŝia duonburĝoninta brusto, sur ŝia kor-
 
 po, manoj, maldikaj mortaj gamboj, kunpremitaj sub ŝia jupo.
 
@@ -1068,27 +867,15 @@ Ankaŭ li ekridis kaj paŝis al Aloiza. Kiam li karesis permane
 
 ŝiajn riĉajn blondajn harojn, ŝi klinis sian kapon flanken kaj
 
-sub lia blanka malvasta mano alrigardis al Tina, kiu sidis pro-
-
-
-LA DOMO DE MARIA HELPANTINO
-
-
-funde kliniĝinta, kun fortaj laboristaj manoj apogitaj je seĝo,
+sub lia blanka malvasta mano alrigardis al Tina, kiu sidis profunde kliniĝinta, kun fortaj laboristaj manoj apogitaj je seĝo,
 
 kun okuloj ardaj …
 
-Paŭla enuis. ŝi senpacience atendis sian patrinon kaj la fra-
+Paŭla enuis. ŝi senpacience atendis sian patrinon kaj la fratinojn kaj la fraton, sed kiam ŝi vidis ilin veni tra la pordo, ŝi deziris, ke ili reiru … Kaj ekstere estis bela aŭtuna tago, la
 
-tinojn kaj la fraton, sed kiam ŝi vidis ilin veni tra la pordo, ŝi deziris, ke ili reiru … Kaj ekstere estis bela aŭtuna tago, la
+ĉielo brilis super bela pejzaĝo tie antaŭ la urbo, super orkoloraj aŭtunaj arboj … Ili staris apud la lito, dimanĉmaniere
 
-ĉielo brilis super bela pejzaĝo tie antaŭ la urbo, super orko-
-
-loraj aŭtunaj arboj … Ili staris apud la lito, dimanĉmaniere
-
-vestitaj, kun vualo transvizaĝe, kun gantoj surmane, kaj rigar-
-
-dis tra la fenestro — tie ekstere brilis vere bela aŭtuna tago …
+vestitaj, kun vualo transvizaĝe, kun gantoj surmane, kaj rigardis tra la fenestro — tie ekstere brilis vere bela aŭtuna tago …
 
 Paŭla rigardis al la patrina vizaĝo, al la fratinoj, al la frato kaj ŝia koro ekridetis de iu kaŝita malico.
 
@@ -1096,9 +883,7 @@ Paŭla rigardis al la patrina vizaĝo, al la fratinoj, al la frato kaj ŝia koro
 
 Staris ili apud la lito kaj silentis, dum ekstere la tago jam
 
-adiaŭis, jam ŝvebis la ombroj sur la firmamento, ili jam grim-
-
-pis surmuren … Paŭla rimarkis malican, malamikan rigardon,
+adiaŭis, jam ŝvebis la ombroj sur la firmamento, ili jam grimpis surmuren … Paŭla rimarkis malican, malamikan rigardon,
 
 kiu ekbrilis en la okuloj kiel tranĉilo.
 
@@ -1106,19 +891,13 @@ kiu ekbrilis en la okuloj kiel tranĉilo.
 
 En la ĉambro ŝvebis Rezinjo, svelta, silenta, kvazaŭ spiro.
 
-”Rezinjo, — panjo!” vokis Aloiza. Rezinjo paliĝis kaj kro-
-
-ĉiĝis al la lito ambaŭmane. Sed ŝiaj lipoj, ankoraŭ timigitaj,
+”Rezinjo, — panjo!” vokis Aloiza. Rezinjo paliĝis kaj kroĉiĝis al la lito ambaŭmane. Sed ŝiaj lipoj, ankoraŭ timigitaj,
 
 gaje ekridis.
 
-Venis maljuna, malbone vestita viro, maldika kaj malfor-
+Venis maljuna, malbone vestita viro, maldika kaj malforta. Liaj manoj estis grandaj, mallertaj, malpuraj de laboro. Lia
 
-ta. Liaj manoj estis grandaj, mallertaj, malpuraj de laboro. Lia
-
-vizaĝo estis tre pala kaj kunfalinta, la okuloj ruĝaj, la palpe-
-
-broj nudaj.
+vizaĝo estis tre pala kaj kunfalinta, la okuloj ruĝaj, la palpebroj nudaj.
 
 Rezinjo levis siajn brakojn alte kaj ĉirkaŭprenis lin, kvazaŭ
 
@@ -1127,9 +906,6 @@ Rezinjo levis siajn brakojn alte kaj ĉirkaŭprenis lin, kvazaŭ
 Trans liajn sekajn, dismorditajn vangojn kuris radio; estis
 
 strange, — kvazaŭ griza ŝtono ekridetus.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ”Kiel vi fartas, Rezinjo?”
@@ -1164,9 +940,7 @@ oni bruligis lumon.
 
 ”La sesa!” kriis fratulino Cecilia ĉeporde.
 
-La malsana Katinjo, kuŝanta en la lito ĉe la pordo, ek-
-
-movetis kaj lante levis sian livan brakon kontraŭ la patrino,
+La malsana Katinjo, kuŝanta en la lito ĉe la pordo, ekmovetis kaj lante levis sian livan brakon kontraŭ la patrino,
 
 ĝis ŝia brusto, ĝis la vizaĝo. ŝia dekstra mano kuŝis morta sur
 
@@ -1187,18 +961,11 @@ kliniĝis kaj ŝiaj lipoj tuŝis la etajn ostecajn fingrojn, kiuj etendiĝis al 
 morte kuŝis sur ŝia korpo …
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ”La sesa!”
 
-Fermiĝis la pordo post la vivo kaj okazis, kvazaŭ plene mal-
+Fermiĝis la pordo post la vivo kaj okazis, kvazaŭ plene malfermiĝus la fenestroj kaj en la ĉambron ekbrilus nova nema-
 
-fermiĝus la fenestroj kaj en la ĉambron ekbrilus nova nema-
-
-kulita lumo. Kvazaŭ malfermiĝus la fenestroj kaj en la ĉam-
-
-bron enspiriĝus la printempa aero por elpeli la sufokan aeron
+kulita lumo. Kvazaŭ malfermiĝus la fenestroj kaj en la ĉambron enspiriĝus la printempa aero por elpeli la sufokan aeron
 
 de la vivo. La vandoj denove estis virge blankaj, super la
 
@@ -1216,19 +983,13 @@ publiko … i fuĝis kiel mallerte malica vesperto aŭrore, kaj la
 
 suno ridis per sia vasta infaneca vizaĝo …
 
-Estis pli silente en la ĉambro, la knabinoj estis lacaj, duo-
-
-ne lacaj, duone ekscititaj. Lante estingiĝis la okuloj, estingiĝis la survanga fajro.
+Estis pli silente en la ĉambro, la knabinoj estis lacaj, duone lacaj, duone ekscititaj. Lante estingiĝis la okuloj, estingiĝis la survanga fajro.
 
 Aloiza svingiris kontraŭ la pordo. ŝia vizaĝo estis serioza,
 
-sed ŝiaj dikaj vive ruĝaj lipoj moviĝis en gaja rideto — priri-
+sed ŝiaj dikaj vive ruĝaj lipoj moviĝis en gaja rideto — prirideto.
 
-deto.
-
-ŝi leviĝis pene, malfermis la pordon kaj sputis sur la gale-
-
-rion.
+ŝi leviĝis pene, malfermis la pordon kaj sputis sur la galerion.
 
 ”Adiaŭ sinjorino grafino! Estu laŭdata Jesuo Kristo!”
 
@@ -1240,16 +1001,11 @@ Aloiza rezigne alrigardis.
 
 ”Kiel diras la Dia volo.”
 
-Babilante, flustrante ŝi preparis sin por enlitiĝi. Tina apog-
-
-staris en angulo, ŝi apogis ambaŭ siajn manojn je la lito, la
+Babilante, flustrante ŝi preparis sin por enlitiĝi. Tina apogstaris en angulo, ŝi apogis ambaŭ siajn manojn je la lito, la
 
 kapo troviĝis interbrake.
 
 ”Iru dormi, Tina!”
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Leviĝis la malklaraj, ruĝe randigitaj okuloj; ŝia vizaĝo estis
@@ -1270,15 +1026,11 @@ profunda ĝi estis kaj laca, fremda …
 
 Silento; dormiga, blanka lumo sonĝis sur la kurtenoj, sur
 
-la vandoj. Trankvile kaj egalritme sentiĝis la spirado en la li-
-
-toj; ekstere obtuze ekknaris; oni fermis la grandan pordon; de
+la vandoj. Trankvile kaj egalritme sentiĝis la spirado en la litoj; ekstere obtuze ekknaris; oni fermis la grandan pordon; de
 
 malproksime ankoraŭ venis malklara, nedistingebla zumo —
 
-la zumo de la urbo, kiu vivis tie malproksime, fore kaj tran-
-
-se de la vivo …
+la zumo de la urbo, kiu vivis tie malproksime, fore kaj transe de la vivo …
 
 Silento; anĝelo iris de lito al lito, fermiĝis palpebroj, sur
 
@@ -1286,19 +1038,13 @@ lipoj postrestis rideto. De lito al lito iris blanka anĝelo, li tenis la kompat
 
 kaj iris renkonte al la ĝoja suna vivo, troviĝanta transe de la
 
-morto. Tagiĝis kaj la ombroj paliĝis, mire bela pejzaĝo mal-
-
-fermiĝis, kian neniam ĝise la okulo vidis. Granda blanka suno
+morto. Tagiĝis kaj la ombroj paliĝis, mire bela pejzaĝo malfermiĝis, kian neniam ĝise la okulo vidis. Granda blanka suno
 
 kaj verdaj herbejoj subsunaj kaj helaj blankaj vestaĵoj, floroj
 
-enmane kaj enharare, blankaj, ruĝaj, bluaj floroj, hela blan-
+enmane kaj enharare, blankaj, ruĝaj, bluaj floroj, hela blanka rideto survange, enokule, sonorilanta, pasktempe ĝoja rido
 
-ka rideto survange, enokule, sonorilanta, pasktempe ĝoja rido
-
-super tiu ĉi mire bela pejzaĝo, kiu troviĝas transe de la mor-
-
-to …
+super tiu ĉi mire bela pejzaĝo, kiu troviĝas transe de la morto …
 
 Manjo subite vekiĝis kaj gapis en la duonaŭroron. De la
 
@@ -1309,9 +1055,6 @@ dormiga lumo de la aŭtuna nokto …
 Tina leviĝis, eksidis sur la lito en bela noktĉemizo, la manoj
 
 krucumitaj surbruste. ŝia kapo kliniĝis, ŝiaj manplatoj kovris
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 la vizaĝon kaj la tuta korpo skuiĝis, aŭdiĝis kaŝita plorĝemo,
@@ -1337,9 +1080,6 @@ malklare, kvazaŭ ili ekvidus ion nekonatan, misteran …
 ŝi sidis laca ĉe la lito kaj parolis kun neniu …
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 III
 
 Estis la tago de ĉiuj Sanktuloj. Ili leviĝis frue kaj preparis
@@ -1348,9 +1088,7 @@ sin por la pormortinta meso. Estis ankoraŭ nokto, kiam
 
 ili leviĝis, la lumo brulis; ekstere en galerio resonis paŝoj.
 
-Nur kvar el ili restis en la litoj, ĉiuj aliaj iris al la meso. Longa procesio moviĝis en la galerio; antaŭe iris fratulino Ceci-
-
-lia kaj portis Manjon sur siaj brakoj; poste venis Paŭla, la juda knabino, jam tute ŝvitoplena kaj laca; ŝi apogis unu piedon,
+Nur kvar el ili restis en la litoj, ĉiuj aliaj iris al la meso. Longa procesio moviĝis en la galerio; antaŭe iris fratulino Cecilia kaj portis Manjon sur siaj brakoj; poste venis Paŭla, la juda knabino, jam tute ŝvitoplena kaj laca; ŝi apogis unu piedon,
 
 per ambaŭ manoj ŝi lulis sian seĝon; de malantaŭe puŝis
 
@@ -1368,18 +1106,11 @@ teksitaj pantofloj, provizitaj per pelto, en manoj ili tenis rozarion kun granda
 
 rozario de Brigita atingis preskaŭ ŝiajn piedojn.
 
-Strange e˛is en la galerio — bruo de la seĝoj, pena spira-
+Strange e˛is en la galerio — bruo de la seĝoj, pena spirado, obtuzaj paŝoj. Estis duonkrepusko; nur de fore, tie fine de
 
-do, obtuzaj paŝoj. Estis duonkrepusko; nur de fore, tie fine de
-
-la koridoro, brilis lumo. De vandoj, el la mallumo streĉrigar-
-
-dis la sanktulaj vizaĝoj, nigris sango sur blankaj, nudaj kor-
+la koridoro, brilis lumo. De vandoj, el la mallumo streĉrigardis la sanktulaj vizaĝoj, nigris sango sur blankaj, nudaj kor-
 
 poj, ili rigardis la malican vizaĝon de la torturisto …
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Eksonoris kloŝo en kapeleto, fratulino Cecilia turniĝis.
@@ -1394,9 +1125,7 @@ Vitra pordo ekbrilis, la procesio haltis. Fratulino Cecilia
 
 malfermis la pordon kaj ili venis en longan malhelan ˛orejon;
 
-survande troviĝis neniu lumo, la motivoj sur la vandoj apen-
-
-aŭ distingiĝis. Antaŭ la apoga muro troviĝis malaltaj benkoj
+survande troviĝis neniu lumo, la motivoj sur la vandoj apenaŭ distingiĝis. Antaŭ la apoga muro troviĝis malaltaj benkoj
 
 por genuiĝi, sed la apoga muro estis tiel malalta, ke Manjo,
 
@@ -1406,13 +1135,9 @@ la ĉefaltaron, kie dormece brulis kvar altaj kandeloj. ŝi vidis
 
 ankaŭ en la mezon de la kapelo, kie sur alta katafalko troviĝis
 
-ĉerko, ĝisplanke kovrita per nigra veluro; supre survelure bri-
+ĉerko, ĝisplanke kovrita per nigra veluro; supre survelure brilis blanka krucifikso, sub la krucifikso troviĝis kranio. Apud
 
-lis blanka krucifikso, sub la krucifikso troviĝis kranio. Apud
-
-la katafalko brulis kandeloj en arĝentaj kandelingoj, de am-
-
-baŭ flankoj po tri.
+la katafalko brulis kandeloj en arĝentaj kandelingoj, de ambaŭ flankoj po tri.
 
 De plafono pendis lustro, sed ĝi estis envolvita en nigran
 
@@ -1426,18 +1151,13 @@ ili tremetadis kaj timiĝis, se la kandela flamo subite kreskis
 
 alten, ili revenis, proksimiĝis, kovris preskaŭ la tutan kapelon.
 
-Estis kvazaŭ temus pri stranga, mistera vivo, vivanta survan-
-
-de, ĉie en la ĉirkaŭo, ĝi silente tremetis, probable suferis, Dio scias; vivis tiuj longaj, blankaj, lulantaj flamoj kaj vivis tiuj ombroj sur la altaro, sur la plafono, sur la sanktaj ikonoj; ili
+Estis kvazaŭ temus pri stranga, mistera vivo, vivanta survande, ĉie en la ĉirkaŭo, ĝi silente tremetis, probable suferis, Dio scias; vivis tiuj longaj, blankaj, lulantaj flamoj kaj vivis tiuj ombroj sur la altaro, sur la plafono, sur la sanktaj ikonoj; ili
 
 probable perdiĝis for de la homoj, ili fuĝis, kaj nun ili vivas
 
 sian malkvietan, silentan vivon, en eterna timo kaj silento.
 
 Ankaŭ tiuj sanktaj ikonoj vivas; vivplene, terure ili blankas el
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 la mallumo, sur iliaj vizaĝoj sentiĝas sufero, la larmoj sur iliaj vangoj ne ankoraŭ sekiĝis …
@@ -1450,29 +1170,19 @@ klinitaj. Ili haltis meze de la kapelo antaŭ la alta podesto, ili kantis tirita
 
 kvazaŭ ĝemado, morbida suspirado e˛is de la muroj.
 
-Manjo tremis de stranga terursento. Tio estis mondo ple-
+Manjo tremis de stranga terursento. Tio estis mondo plena de teruraj, sanktaj misteroj; ŝiaj okuloj estis mirinde kla-
 
-na de teruraj, sanktaj misteroj; ŝiaj okuloj estis mirinde kla-
-
-raj, kvazaŭ senkorpaj, kaj ili vidis tion, kio estis senkorpa kaj vivis ĉie ĉirkaŭe sian nekonatan vivon; ŝi aŭdis sonojn, al-venintajn el nekonataj pejzaĝoj, plendantajn kaj suspiran-
-
-tajn …
+raj, kvazaŭ senkorpaj, kaj ili vidis tion, kio estis senkorpa kaj vivis ĉie ĉirkaŭe sian nekonatan vivon; ŝi aŭdis sonojn, al-venintajn el nekonataj pejzaĝoj, plendantajn kaj suspirantajn …
 
 ŝi tremis, ŝi sentis doloron en sia kapo, ŝi kliniĝis kaj la
 
-frunto tuŝis fridan muron. Fratulino Cecilia paŝis al ŝi, ŝi karesis per sia varma mano ŝiajn malvarmajn vangojn kaj Man-
-
-jo vekiĝis. Fariĝis jam pli hele en la ˛orejo kaj sube en la kape-lo, la sinjoroj revenis de la nigra katafalko kaj komencis kanti
+frunto tuŝis fridan muron. Fratulino Cecilia paŝis al ŝi, ŝi karesis per sia varma mano ŝiajn malvarmajn vangojn kaj Manjo vekiĝis. Fariĝis jam pli hele en la ˛orejo kaj sube en la kape-lo, la sinjoroj revenis de la nigra katafalko kaj komencis kanti
 
 altajn, ĝojajn kaj solenajn kantojn antaŭ la ĉefaltaro.
 
-Ili estis lacaj, kiam ili revenis en sian ĉambron kaj ili ek-
+Ili estis lacaj, kiam ili revenis en sian ĉambron kaj ili ekkuŝis aŭ ili apogiĝis je la seĝoj, kun la manoj trankvile surge-
 
-kuŝis aŭ ili apogiĝis je la seĝoj, kun la manoj trankvile surge-
-
-nue. Malhela tago estis ekstere, la ĉielo estis malpura kaj ma-
-
-lafabla, preskaŭ oni devus fari lumon. Sur la alta tablo antaŭ
+nue. Malhela tago estis ekstere, la ĉielo estis malpura kaj malafabla, preskaŭ oni devus fari lumon. Sur la alta tablo antaŭ
 
 la kripo apenaŭ brulis ”la animo” sur la oleo en la glaso; svelta flava flameto senĉese lulis; ĝi mortadis, sed ĝi ne povis morti. La morto estis en la ejo, ĉiuj ĝin sentis, sed ĝi ne estis trista kaj ĝi neniel estis terura; ili konis ĝin same kiel fratulinon Anastasia, fratulino inspektoro, kiu foje venis en la ĉambron
 
@@ -1481,12 +1191,7 @@ kaj superrigardis senvorte la litojn, kun serioza kaj trankvila
 vizaĝo: ili sentis iomete da svarmo kaj ili rigardis al la pordo
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-kiel prisorĉitaj, kiu jam delonge fermiĝis post la maljuna in-
-
-spektorino. Ili ne sentis timon, sed tamen ili ne kuraĝis diri
+kiel prisorĉitaj, kiu jam delonge fermiĝis post la maljuna inspektorino. Ili ne sentis timon, sed tamen ili ne kuraĝis diri
 
 petolan vorton.
 
@@ -1506,17 +1211,13 @@ estis kvazaŭ ungegoj de morta birdo.
 
 antaŭ kvar jaroj … Tiam inter ni ankoraŭ estis Olga, ŝi kuŝis
 
-aliflanke apud mi kaj ŝi estis inter ni nur dum kelkaj semaj-
-
-noj. Tre malsana ŝi estis kaj ĉiam ŝi preĝis … kaj maldikega ŝi
+aliflanke apud mi kaj ŝi estis inter ni nur dum kelkaj semajnoj. Tre malsana ŝi estis kaj ĉiam ŝi preĝis … kaj maldikega ŝi
 
 estis, eĉ pli maldika ol mi, kvankam ŝi eble jam havis dekkvar
 
 jarojn … Iam dumnokte aperis antaŭ ŝi Dipatrino …”
 
-Ili aŭskultis per grandaj, helaj okuloj. Minka tusis, Rezin-
-
-jo alportis glason da akvo.
+Ili aŭskultis per grandaj, helaj okuloj. Minka tusis, Rezinjo alportis glason da akvo.
 
 ”Kia aspektis Dipatrino?” demandis Paŭla, la judino.
 
@@ -1538,27 +1239,18 @@ kandeloj brulis antaŭ Dipatrino en la kapelo … Dumnokte,
 
 infanoj, mi vekiĝis, kaj mi sentis, kvazaŭ io blanka malaperus
 
-tra la pordo. Min ĝenis la brilo, mi frotis okulojn kaj alrigar-
-
-dis; la pordo estis fermita. Kaj poste okazis al mi, kvazaŭ iu
+tra la pordo. Min ĝenis la brilo, mi frotis okulojn kaj alrigardis; la pordo estis fermita. Kaj poste okazis al mi, kvazaŭ iu
 
 estus apud mia lito kaj malforte metus sian manon sur miajn
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-okulojn kaj mi endormiĝis … Sed matene, vidu, Olga ne tro-
-
-viĝis en la lito. Mallumo estis, kiam venis la fratulino; ŝi vekis nin ĉiujn, oni faris lumon kaj serĉis. Nenie troviĝis Olga. Kaj
+okulojn kaj mi endormiĝis … Sed matene, vidu, Olga ne troviĝis en la lito. Mallumo estis, kiam venis la fratulino; ŝi vekis nin ĉiujn, oni faris lumon kaj serĉis. Nenie troviĝis Olga. Kaj
 
 ili iris kun siaj kandeloj tra la galerio laŭ ĝia tuta longeco kaj suben laŭ la ŝtupetaro kaj en la kapelon. Kaj en la kapelo
 
 kuŝis Olga kaj ŝi estis mortinta.”
 
-ŝi eksilentis kaj ĉiuj silentis, tiel ke oni povus aŭdi treme-
-
-tadon de la mortanta flamo antaŭ la kripo.
+ŝi eksilentis kaj ĉiuj silentis, tiel ke oni povus aŭdi tremetadon de la mortanta flamo antaŭ la kripo.
 
 ”Sed mi konis certan homon, kiu ne kredis, ke temas pri
 
@@ -1576,28 +1268,19 @@ fuĝis, sed mi ne povis fuĝi, ĉar io tenis miajn piedojn. Kaj
 
 tiam, pripensu, leviĝis ekstere antaŭ la fenestro io granda,
 
-nigra; tio dum longa tempo staris antaŭ la fenestro kaj pos-
-
-te malaperis kaj tiu homo sur la planko estis mortinta …”
+nigra; tio dum longa tempo staris antaŭ la fenestro kaj poste malaperis kaj tiu homo sur la planko estis mortinta …”
 
 Io peza ekkuŝis en ilia koro — kvazaŭ tie ekstere antaŭ la
 
-fenestro starus io granda kaj nigra. Duone malkuraĝe, duo-
-
-ne riproĉe Tina rigardis al ĝibohava Brigita, kiu sidis ĉe la lito, flava kaj malica nano.
+fenestro starus io granda kaj nigra. Duone malkuraĝe, duone riproĉe Tina rigardis al ĝibohava Brigita, kiu sidis ĉe la lito, flava kaj malica nano.
 
 ”Pasintjare mortis Anjo,” rakontis Tina, ”ŝi estis la tria Anjo
 
-kaj ĉiuj tri mortis. ŝi estis simila al vi, Manjo, nur pli malgran-da ŝi estis. ŝi havis vere etan vizaĝon, vere blankan, kiel anĝe-
-
-lo. Neniam ŝi ploris, ŝi nur rigardis kaj ridis kaj ŝi mortis tute senvoĉe. Nur mi sciis, ke ŝi mortis. Estis vespero, ni ĉiuj jam
+kaj ĉiuj tri mortis. ŝi estis simila al vi, Manjo, nur pli malgran-da ŝi estis. ŝi havis vere etan vizaĝon, vere blankan, kiel anĝelo. Neniam ŝi ploris, ŝi nur rigardis kaj ridis kaj ŝi mortis tute senvoĉe. Nur mi sciis, ke ŝi mortis. Estis vespero, ni ĉiuj jam
 
 kuŝis kaj fratulino Cecilia estingis la lumon. Anjo kuŝis apud
 
 la fenestro, en via lito, Manjo, kaj ŝi ne moviĝis. Sed ŝia kapo
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 estis turnita kontraŭ la fenestro kaj mi vidis, ke ŝiaj okuloj
@@ -1612,9 +1295,7 @@ kiel se temus pri tagiĝo. Kaj tiam el la lito, en kiu kuŝis Anjo, leviĝis io 
 
 pli alten, tra la fenestro kaj ĉielen. ŝia animo tio estis … Mi
 
-ektremis kaj vokis fratulinon Cecilia; estis malhele en la ĉam-
-
-bro, kaj Anjo estis mortinta.”
+ektremis kaj vokis fratulinon Cecilia; estis malhele en la ĉambro, kaj Anjo estis mortinta.”
 
 Antonia sidis proksime al la fenestro, ŝi apogis sin je la lito;
 
@@ -1622,9 +1303,7 @@ trista ŝi estis, ĉar la suno ne brilis. Tuŝis ŝi la fenestran vitron, sed la
 
 ŝiaj grandaj blindaj okuloj rigardis ĉirkaŭ si en la ĉambro.
 
-”Pasintjare mortis Agnesa; pluvis kaj frostis, dum ni vetu-
-
-ris en la enteriga procesio. ĉu vi rememoras, Tina, kiamaniere
+”Pasintjare mortis Agnesa; pluvis kaj frostis, dum ni veturis en la enteriga procesio. ĉu vi rememoras, Tina, kiamaniere
 
 gutoj frapetis sur la fenestreton, kvazaŭ fingro frapus? Antaŭe
 
@@ -1640,20 +1319,13 @@ kaj Agnesa vekis en mi kompaton, sed Tina aŭdis nenion …
 
 Kaj dum la tuta vojo aŭdiĝis ĝemado kaj mallaŭta plorado,
 
-infanoj, Dio nmpatu. Oni enterigis ŝin kaj aŭdiĝis plo-
-
-rado, dum oni ŝutis pezan teron sur la ĉerkon. Poste ni reve-
+infanoj, Dio nmpatu. Oni enterigis ŝin kaj aŭdiĝis plorado, dum oni ŝutis pezan teron sur la ĉerkon. Poste ni reve-
 
 nis kaj dume daŭre pluvis, frapetis sur la fenestreton. Mi
 
-aŭskultis kaj jen, ekstere antaŭ la fenestreto io suspiris, fra-
-
-pis kaj petis, dum la tuta vojo. ŝia eta animo akompanis nin;
+aŭskultis kaj jen, ekstere antaŭ la fenestreto io suspiris, frapis kaj petis, dum la tuta vojo. ŝia eta animo akompanis nin;
 
 ekstere ŝi iris, en pluvo kaj malvarmo, kaj ŝi ne povis eniri la
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ĉielon. Kiam ni venis hejmen, ni eniris kapelon kaj preĝis
@@ -1674,13 +1346,9 @@ Rosalia, kiu ĉiam ridis. Estas nur ses semajnoj, ke ŝi mortis.
 
 En via lito ŝi kuŝis, Manjo. Kaj nun aŭskultu, Manjo. Ridis ŝi
 
-ĉiam kaj ŝi ne povis endormiĝi vespere, kiam ni jam ĉiuj dor-
+ĉiam kaj ŝi ne povis endormiĝi vespere, kiam ni jam ĉiuj dormis, ŝi daŭre parolis kaj ridis. Se mi vekiĝis, mi aŭdis ŝin kaj
 
-mis, ŝi daŭre parolis kaj ridis. Se mi vekiĝis, mi aŭdis ŝin kaj
-
-mi aŭdis ŝin eĉ en mia dormo, kvazaŭ kloŝsonorus. Kaj sam-
-
-tiel ŝi ridis, kvazaŭ oni sonorus per eta kloŝo. Tute malsana ŝi
+mi aŭdis ŝin eĉ en mia dormo, kvazaŭ kloŝsonorus. Kaj samtiel ŝi ridis, kvazaŭ oni sonorus per eta kloŝo. Tute malsana ŝi
 
 jam estis kaj maldikega, apenaŭ oni ŝin povis vidi en la lito kaj ŝiaj okuloj estis pli grandaj ol ŝia tuta vizaĝo. Sed ŝi ridis. ’Hodiaŭ, Minka,’ ŝi diris, ’mi mortos kaj mi venos diri al vi.’ Kaj
 
@@ -1692,9 +1360,7 @@ estis tute torditaj kaj ŝi plenis je vundoj. Ni endormiĝis kaj
 
 estis mallumo … Tiam mi ektimis kaj vekiĝis. Aŭdiĝis tiel
 
-laŭta rido, per tiu eta kloŝo, kaj dufoje aŭdiĝis la voko: ’Min-
-
-ka! Minka!’ — Mi pensis, ke mi nur ĵus ekdormis kaj ke Ro-
+laŭta rido, per tiu eta kloŝo, kaj dufoje aŭdiĝis la voko: ’Minka! Minka!’ — Mi pensis, ke mi nur ĵus ekdormis kaj ke Ro-
 
 salia min vokas, kiu ne povas dormi, sed vidu, jam tagiĝis. Mi
 
@@ -1711,9 +1377,6 @@ laca kaj ke tiel ŝi endormiĝis. Sed ŝi estis mortinta …”
 Rapide malheliĝis; la ĉielo pli kaj pli malaltiĝis kaj nigriĝis;
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ĝi pendis ekstere antaŭ la fenestro kvazaŭ malklara kurteno,
 
 kaj ankaŭ domoj perdiĝis en la griza nokto.
@@ -1722,9 +1385,7 @@ kaj ankaŭ domoj perdiĝis en la griza nokto.
 
 trankvila rideto.
 
-”Katinjo estos la unua!” respondis Rezinjo serioze. Katin-
-
-jo apenaŭ turnis la rigardon kaj facila rideto kuris trans la
+”Katinjo estos la unua!” respondis Rezinjo serioze. Katinjo apenaŭ turnis la rigardon kaj facila rideto kuris trans la
 
 malbela malsane griza vizaĝo.
 
@@ -1736,9 +1397,7 @@ Paŭla anoncis sin per profunda, prudenta voĉo.
 
 ”Ne tiel! Ni aŭguru! — Rezinjo, pasigu al mi paperpecon!”
 
-ŝi tranĉis la folion je dektri pecetoj plus la pli longa dek-
-
-kvara.
+ŝi tranĉis la folion je dektri pecetoj plus la pli longa dekkvara.
 
 ”Tiu el ni, kiu tiros la pli longan, estos la unua!”
 
@@ -1752,13 +1411,9 @@ korpo, kliniĝis al la lito kaj rigardis precize en la okulojn, sur la manon.
 
 ”Tiru!”
 
-ŝi venis ĝis Katinjo, ankaŭ Katinjo tiris mallongan paper-
+ŝi venis ĝis Katinjo, ankaŭ Katinjo tiris mallongan paperpeceton kaj ĵetis ĝin neglekte surplanken.
 
-peceton kaj ĵetis ĝin neglekte surplanken.
-
-Kiam ŝi venis ĝis Minka, Minka rigardis al la plafono, ek-
-
-ridis, etendis sian manon kaj rapide tiris.
+Kiam ŝi venis ĝis Minka, Minka rigardis al la plafono, ekridis, etendis sian manon kaj rapide tiris.
 
 ”La pli longa!” ili kriis.
 
@@ -1769,14 +1424,9 @@ ridis, etendis sian manon kaj rapide tiris.
 mi estos la unua.”
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ”ĉu vi venos diri?” ekridis Aloiza.
 
-”Mi venos, nur atendu! Mi venos dumnokte kaj tirharu-
-
-mos vin … Pasigu al mi akvon, Rezinjo!”
+”Mi venos, nur atendu! Mi venos dumnokte kaj tirharumos vin … Pasigu al mi akvon, Rezinjo!”
 
 Minka dum tiu vespero ne parolis plu.
 
@@ -1784,9 +1434,7 @@ Sed pri morto Minka ne pensis. ŝia koro estis tiel kvieta kaj
 
 malvarma, kiel koro de tombisto. Ili venadis kaj mortadis kaj
 
-aliaj venadis anstataŭ ili. La lito fariĝos malplena, oni forpre-
-
-nos la tabuleton, forviŝos ŝian nomon kaj skribos alian. Kaj la
+aliaj venadis anstataŭ ili. La lito fariĝos malplena, oni forprenos la tabuleton, forviŝos ŝian nomon kaj skribos alian. Kaj la
 
 ĉambro estos sama kaj ĉio alia estos sama.
 
@@ -1796,17 +1444,11 @@ Pri sia hejmo pensis Minka, kiu jam delonge forgesis ĝin.
 
 fabeloj. Strange blankaj estis la domoj, kvazaŭ pentritaj; strange lazura estis la ĉielo; buntaj ĝardenoj, verdaj herbejoj,
 
-kaj la arboj kaj la malaltaj preĝejetoj — ĉio pura miraĵo. Pen-
+kaj la arboj kaj la malaltaj preĝejetoj — ĉio pura miraĵo. Pentrita sur blankan paperon por distri infanojn. Homoj iris tien
 
-trita sur blankan paperon por distri infanojn. Homoj iris tien
+reen, parolis laŭ vira maniero, plenaj de zorgoj kaj de seriozo. Dum la tuta tago ili zorgis pri kion ili manĝos, kion ili trs; ankaŭ pri la vestoj ili zorgis kaj eĉ pri la ŝuoj. ”Hem,
 
-reen, parolis laŭ vira maniero, plenaj de zorgoj kaj de serio-
-
-zo. Dum la tuta tago ili zorgis pri kion ili manĝos, kion ili trs; ankaŭ pri la vestoj ili zorgis kaj eĉ pri la ŝuoj. ”Hem,
-
-hem!” tiel seriozaj ili estis kaj tiel ridindaj, kvazaŭ tiuj viretoj el ligno; oni tiras iomete la fadenon, hop — kaj leviĝas gamboj, leviĝas ankaŭ manoj, sed la vizaĝo restas serioza … Re-
-
-memoris Minka pri la ŝnuro kaj ŝi rememoris pri sia patro.
+hem!” tiel seriozaj ili estis kaj tiel ridindaj, kvazaŭ tiuj viretoj el ligno; oni tiras iomete la fadenon, hop — kaj leviĝas gamboj, leviĝas ankaŭ manoj, sed la vizaĝo restas serioza … Rememoris Minka pri la ŝnuro kaj ŝi rememoris pri sia patro.
 
 Pendigis sin ŝia kompatinda patro! Tiel malgranda li estis kaj
 
@@ -1825,12 +1467,7 @@ estis ridinda; dika, rondeca, dum sia iro ĉio lulis sur ŝi, kiel
 kokino ŝi iris kaj ankaŭ ŝia vizaĝo estis kokinaspekta. Kaj ŝi
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-premis siajn manojn: ”Ho-ho-ho!” — Nu, mortis ankaŭ la pa-
-
-trino. Kiel strange ŝi kuŝis sur la katafalko, havante tiel ridindan rondan vizaĝon, estante tiel dika? Kompatinda patrino!
+premis siajn manojn: ”Ho-ho-ho!” — Nu, mortis ankaŭ la patrino. Kiel strange ŝi kuŝis sur la katafalko, havante tiel ridindan rondan vizaĝon, estante tiel dika? Kompatinda patrino!
 
 Probable ŝi suspiris eĉ sur la katafalko? — Ho-ho-ho! Portis
 
@@ -1875,9 +1512,6 @@ estis.
 Kaj Rozinjo prenis glason, kiu estis ĝisduone plenigita kaj
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 proponis ĝin al Minka. Sed la mano de Minka tremetis, ŝi ne
 
 povis teni la glason, la akvo disverŝiĝis sur la litkovrilo.
@@ -1910,9 +1544,7 @@ tiu streĉa aŭskultado ŝi endormiĝis kaj aŭskultis kaj rigardis
 
 en siaj sonĝoj. Kaj dum ŝi tiel rigardis, ŝi subite vidis ion
 
-helan, brilantan, kvazaŭ ormonero. i ŝvebis super la ĉam-
-
-bro, tra la fenestro, pli kaj pli alten. Antaŭ la fenestro ĝi transformiĝis, ĝi daŭre restis hela kaj brila, kvazaŭ ormonero, sed
+helan, brilantan, kvazaŭ ormonero. i ŝvebis super la ĉambro, tra la fenestro, pli kaj pli alten. Antaŭ la fenestro ĝi transformiĝis, ĝi daŭre restis hela kaj brila, kvazaŭ ormonero, sed
 
 ĝi estis la vizaĝo de Minka. Kaj Minka ridis kaj kriis.
 
@@ -1922,9 +1554,7 @@ Aloiza vekiĝis, estis jam preskaŭ tago. Tina jam vestis sin,
 
 Rozinjo sidis ĉe la tablo kaj plektis siajn harojn. Antonia sidis en la lito, ŝi oscedis kaj ne emis leviĝi.
 
-Minka kuŝis trankvile, kun la manoj surbruste, kun malfer-
-
-mitaj okuloj, kun brilantaj dentoj.
+Minka kuŝis trankvile, kun la manoj surbruste, kun malfermitaj okuloj, kun brilantaj dentoj.
 
 Rezinjo ekhavis ideon, ŝi leviĝis kaj iris al Minka.
 
@@ -1933,9 +1563,6 @@ Rezinjo ekhavis ideon, ŝi leviĝis kaj iris al Minka.
 Minka ne movis sin. Rezinjo tuŝis ŝiajn manojn, vangojn;
 
 nenio sin movis. ŝiaj vangoj estis fridaj, la frunto dura kaj
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 glata, kvazaŭ porcelana; ŝiaj okuloj rigardis trankvile, la pupiloj turnitaj iom supren, duone kaŝitaj sub la palpebroj.
@@ -1965,9 +1592,6 @@ rozarion; la rozarioj raslis, la junaj voĉoj kantis egalritme,
 melankolie …
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 IV
 
 Ili ricevis kanarion. i estis tute malgranda kaj stulta kaj ĝi
@@ -1988,9 +1612,7 @@ montros al vi!”
 
 La kaĝo staris sur la tablo, Aloiza malfermis la pordeton,
 
-sed la kanario kriis, kortuŝe pepis, kvazaŭ ĝi petus pri mize-
-
-rikordo.
+sed la kanario kriis, kortuŝe pepis, kvazaŭ ĝi petus pri mizerikordo.
 
 ”Nu, lasu ĝin! Estu ĝi ino!” cedis Paŭla.
 
@@ -1998,9 +1620,7 @@ rikordo.
 
 Fratulino Cecilia pendigis la kaĝon sur la muron apud la
 
-fenestro tuj ĉe la lito de Manjo, tiel ke ŝprucis kontraŭ la viza-
-
-ĝo de Manjo kaj ŝia lito, kiam la kanario sin lavis.
+fenestro tuj ĉe la lito de Manjo, tiel ke ŝprucis kontraŭ la vizaĝo de Manjo kaj ŝia lito, kiam la kanario sin lavis.
 
 ”He, Hanĉjo, kial vi surŝprucas min?” ridis Manjo kaj la
 
@@ -2010,19 +1630,12 @@ Hanĉjo studis la situacion; ĝi rigardis per siaj viglaj nigraj
 
 okuloj en la ĉambro ĉirkaŭ si, kvazaŭ ĝi observus kaj mirus.
 
-Kaj ju pli ĝi observis, des malpli ĝi sentis timon. Se alprok-
-
-simiĝis la mano de Rozinjo aŭ de Manjo, eta mano, ĝi unue
+Kaj ju pli ĝi observis, des malpli ĝi sentis timon. Se alproksimiĝis la mano de Rozinjo aŭ de Manjo, eta mano, ĝi unue
 
 retiriĝis kaj streĉe rigardis. Poste ĝi iom post iom etendis la
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-kolon, malfermis la bekon kaj ĝiaj okuloj pleniĝis per ia mal-
-
-amika lumo. La kolo pli kaj pli etendiĝis, la plumaro sur la
+kolon, malfermis la bekon kaj ĝiaj okuloj pleniĝis per ia malamika lumo. La kolo pli kaj pli etendiĝis, la plumaro sur la
 
 kolo kaj sur la kapo imponvastiĝis, rektiĝis, la flugiloj svingis, unue malforte, poste ĉiam pli haste, kaj kolere brua voĉo
 
@@ -2034,9 +1647,7 @@ fajlilo.
 
 ke mi regalas vin per akvo! ĉu vi ne ŝatas akvon?”
 
-Hanĉjo iomete turnis la rigardon, iomete movis siajn pie-
-
-dojn; ĝi vidis, ke oni vere alportis por ĝi akvon, kaj laŭtempe
+Hanĉjo iomete turnis la rigardon, iomete movis siajn piedojn; ĝi vidis, ke oni vere alportis por ĝi akvon, kaj laŭtempe
 
 ĝi trankviliĝis; nur foje ĝi iomete strabis, ĝi estis malfidema;
 
@@ -2062,18 +1673,11 @@ Iom post iom ĝi konatiĝis kun la mondo, ĝia cerbo akriĝis.
 
 i registris, ke ne troviĝas multe da danĝero en la mondo.
 
-Kiam la knabinoj malfermis al ĝi pordeton, ĝi unue saltis soj-
+Kiam la knabinoj malfermis al ĝi pordeton, ĝi unue saltis sojlen kaj rigardis ĉirkaŭ si. Nenio fremda, nekonata montriĝis,
 
-len kaj rigardis ĉirkaŭ si. Nenio fremda, nekonata montriĝis,
-
-nenio nekutima moviĝis en la ĉambro. i ekflirtis kaj ekflu-
-
-gis sur la kapon de Manjo, sur ŝian molan blondan hararon.
+nenio nekutima moviĝis en la ĉambro. i ekflirtis kaj ekflugis sur la kapon de Manjo, sur ŝian molan blondan hararon.
 
 Manjo klinis la kapon, estis agrable al ŝi kaj ŝi ridis. Poste ŝi levis la manon, ŝi movis la fingrojn. La kanario saltis sur ŝian
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 manon kaj ĝi sentis mirindan, ĝis tiam nekonatan delicon. i
@@ -2100,27 +1704,19 @@ trankvile, kvazaŭ nenio okazus.
 
 Sed same kiel ĝi alkutimiĝis al la ĉambro, ĝi ne liberiĝis de
 
-la duboj kaj same ne de la timo. Io movetiĝis, io eksonis stran-
-
-ge, kaj jam ĝi ektimis. La malhelaj danĝeroj embuskis el ĉiuj
+la duboj kaj same ne de la timo. Io movetiĝis, io eksonis strange, kaj jam ĝi ektimis. La malhelaj danĝeroj embuskis el ĉiuj
 
 anguloj, kaj povus okazi, ke subite intervenus de ĉi tie aŭ de
 
-tie io granda kaj nigra, tio intervenus kaj fulmrapide prok-
-
-simiĝus; ĝi ektremetis, saltis sur la tegmenton de sia malalta
+tie io granda kaj nigra, tio intervenus kaj fulmrapide proksimiĝus; ĝi ektremetis, saltis sur la tegmenton de sia malalta
 
 kaĝo, tenante sin je malvarma drato, kaj rigardis suben. Estis
 
 trankvile, nenio montriĝis.
 
-En ĝi aperis melankolia sento, naskiĝinta el nekomprene-
+En ĝi aperis melankolia sento, naskiĝinta el nekomprenebla sopiro. Kiam tiu apero fariĝis tro forta, bolŝaŭmis el ĝia
 
-bla sopiro. Kiam tiu apero fariĝis tro forta, bolŝaŭmis el ĝia
-
-brusto, ĝi klinis sin profunde, dancis sur la ŝtupeto kaj pep-
-
-kantis. Manjo alrigardis ĝin per siaj grandaj okuloj. Kio oka-
+brusto, ĝi klinis sin profunde, dancis sur la ŝtupeto kaj pepkantis. Manjo alrigardis ĝin per siaj grandaj okuloj. Kio oka-
 
 zas en ĝia koro? i rigardas kiel homo, nur paroli ĝi ne povas.
 
@@ -2132,12 +1728,7 @@ Tempaltempe ĝi ekflugis sur la breton antaŭ la fenestro, ĝi
 
 promenis de angulo al angulo kaj frapetis kontraŭ la vitron.
 
-Ankaŭ tie ekstere troviĝis la mondo. Kaj foje io alflugis ekste-
-
-re preter la fenestro, flirtis kaj malaperis. i tute ektimis,
-
-
-LA DOMO DE MARIA HELPANTINO
+Ankaŭ tie ekstere troviĝis la mondo. Kaj foje io alflugis ekstere preter la fenestro, flirtis kaj malaperis. i tute ektimis,
 
 
 deflugis de la breto; ekstere troviĝis stranga mondo, plena de
@@ -2146,17 +1737,13 @@ nekonataj teruraĵoj. Multfoje venis en la ĉambron teruraĵoj,
 
 kiuj troviĝis ekstere. Tiam la knabinoj fermis ĝin en la kaĝon
 
-kaj ĝi rigardis timeme kaj malamike, dum oni promenis pre-
-
-ter ĝi tien reen, de lito al lito, kaj ĝi aŭskultis iliajn malbelajn profundajn voĉojn. Kiam la homoj foriris, ĝi apenaŭ kuraĝis
+kaj ĝi rigardis timeme kaj malamike, dum oni promenis preter ĝi tien reen, de lito al lito, kaj ĝi aŭskultis iliajn malbelajn profundajn voĉojn. Kiam la homoj foriris, ĝi apenaŭ kuraĝis
 
 eliri el la kaĝo. Probable restis io en tiu ĉi, en iu alia angulo, eble nur io atendis, ke ĝi tiel naive alproksimiĝu, kaj tiam tio
 
 kaptus ĝin, tiu granda kaj nigra teruraĵo. Sed ĝi havis racion,
 
-ĝi ne eliris tuj el la kaĝo, kvankam la pordeto estis plene mal-
-
-fermita. Poste ĝi iomete elflugis, nur iomete en la ĉambro, kaj
+ĝi ne eliris tuj el la kaĝo, kvankam la pordeto estis plene malfermita. Poste ĝi iomete elflugis, nur iomete en la ĉambro, kaj
 
 tuj reen en la kaĝon, nur por provi, nur por vidi. Sed en la
 
@@ -2172,9 +1759,7 @@ kiam ne troviĝis tiu vivo en la ĉambro kaj samtiel ĝi sopire
 
 atendis, ke ĝi adiaŭu kaj elruliĝu.
 
-Io mistera venis foje tuj ĝis ĝia kaĝo, ĝi provis eĉ per gran-
-
-da kaj terura mano malfermi la pordeton; sed ĝi ne malfermis
+Io mistera venis foje tuj ĝis ĝia kaĝo, ĝi provis eĉ per granda kaj terura mano malfermi la pordeton; sed ĝi ne malfermis
 
 ĝin. i puŝis sin profunde en angulon, ĝi streĉokulis per ardaj,
 
@@ -2184,25 +1769,18 @@ bekon, el la gorĝo elpremiĝis kvikeca, senespera voĉo.
 
 Sed tiam leviĝis io sur la lito sub ĝi, venis el ĉiuj flankoj;
 
-malbasaj voĉoj, similaj al la kvikeca voĉo de la kanario, paro-
-
-lis dise unu preter la alia.
+malbasaj voĉoj, similaj al la kvikeca voĉo de la kanario, parolis dise unu preter la alia.
 
 ”For! For!”
 
 Kaj tiu nekonata forto lasis la pordeton, ĝi devis foriri, la
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 kanario povis denove bone spiri. ĉiuj knabinoj sentis, kion
 
 sentis ĝi mem. Fremda mano ne devis tuŝi ĝin, ĝi mortigus
 
-ĝin. Eĉ sukeron fremda mano ne rajtis donaci al ĝi. La grafi-
-
-no iam alportis dolĉajn kreskaĵojn, belajn cerastiojn, sed kiam
+ĝin. Eĉ sukeron fremda mano ne rajtis donaci al ĝi. La grafino iam alportis dolĉajn kreskaĵojn, belajn cerastiojn, sed kiam
 
 ŝi foriris —”Dio kompensu! Estu laŭdata Jesuo Kristo!” — la
 
@@ -2220,9 +1798,7 @@ fremda mano troviĝus proksime, sed poste ĝi konsoliĝus kaj
 
 gustumus la etajn verdajn folietojn. Manjo tion sciis kaj ŝi
 
-riproĉis al ĝi en sia koro, ke ĝi estas tiel malpura kaj man-
-
-ĝema. ŝi, jes, lekis fremdajn bonbonojn, sed la kanario tion
+riproĉis al ĝi en sia koro, ke ĝi estas tiel malpura kaj manĝema. ŝi, jes, lekis fremdajn bonbonojn, sed la kanario tion
 
 kvazaŭ ne rajtus.
 
@@ -2230,17 +1806,13 @@ Fortan hororon sentis la kanario, kiam foje venis la patro
 
 de Rezinjo. Tio signifis du fortegajn, pezajn nigrajn manojn,
 
-du ŝovilojn, kreitajn efektive por mortigi, por tenebraj krima-
-
-goj. Kaj ĉio estis malhela, terura — la tuta nigra staturo, longaj lipharoj sur lia vizaĝo, profunda kaj raŭka voĉo. Dum tiu
+du ŝovilojn, kreitajn efektive por mortigi, por tenebraj krimagoj. Kaj ĉio estis malhela, terura — la tuta nigra staturo, longaj lipharoj sur lia vizaĝo, profunda kaj raŭka voĉo. Dum tiu
 
 hororulo troviĝis en la ĉambro, la kanario bekpikis eĉ ne unu
 
 grajnon. Rezinjo ne permesis, ke ŝia patro paŝu al la kaĝo.
 
-Tamen ŝi trovis sin iomete en embaraso kaj ŝi komencis pa-
-
-roli al la kanario.
+Tamen ŝi trovis sin iomete en embaraso kaj ŝi komencis paroli al la kanario.
 
 ”Kial vi do timas, Hanĉjo malsaĝa? La patro tamen estas
 
@@ -2253,26 +1825,17 @@ iomete movi tiun sian ŝovilon, nur iomete kunpremi! — Kaj
 ĝi rigardis streĉe kaj rigide, kiamaniere tiu monstro moviĝis
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-en la ĉambro, kiel ĝi finfine forruliĝis kaj fine fermis la por-
-
-don.
+en la ĉambro, kiel ĝi finfine forruliĝis kaj fine fermis la pordon.
 
 ”Dio kompensu! Estu laŭdata Jesuo Kristo!”
 
-La vivo estis tie ekstere, la rido estis en la ĉambro, la blan-
-
-kaj litoj brilis …
+La vivo estis tie ekstere, la rido estis en la ĉambro, la blankaj litoj brilis …
 
 Sentis la eta kanario ion tenebran, tial ĝi foje estis iomete
 
 melankolia. La tuta veo venas de ekstere, sed kiam ĝi venas
 
-kaj en kia formo, neniu scias. Tie ekstere kaŝiĝas teruraj mi-
-
-raĵoj, subite io povas malfermi la pordon kaj aperas … Forte-
+kaj en kia formo, neniu scias. Tie ekstere kaŝiĝas teruraj miraĵoj, subite io povas malfermi la pordon kaj aperas … Forte-
 
 gaj nigraj manoj etendiĝas ĝis la litoj, en la kaĝon; neniu voĉo
 
@@ -2288,23 +1851,17 @@ haroj, kaj se ĝi eltiris haron, ĝi kunportis ĝin tuj en la kaĝon.
 
 Foje ĝi marŝetis en la tuta ĉambro, de lito al lito ĝi marŝis,
 
-agrable amuziĝante, iomete kolerante, ĝi dum mallonga tem-
-
-po kantis, bekpikis paneron, sed fine ĝi trovis blankan fade-
+agrable amuziĝante, iomete kolerante, ĝi dum mallonga tempo kantis, bekpikis paneron, sed fine ĝi trovis blankan fade-
 
 non aŭ ĝi eltiris el la kuseno molan plumeton kaj revenis en
 
 la kaĝon. i metis fadenon, plumeton en la angulon, iomete
 
-pripensis, sed ĝi ne povis tiri la penson ĝis konkludo. i sal-
-
-tis sur la plej altan ŝtupeton, frotis la fadenon inter siaj pie-
+pripensis, sed ĝi ne povis tiri la penson ĝis konkludo. i saltis sur la plej altan ŝtupeton, frotis la fadenon inter siaj pie-
 
 doj kaj ekkantis longan kaj belan kanton.
 
-La knabinoj rigardis al ĝi per kontenta kaj amplena rigar-
-
-do, nuraj patrinecaj vizaĝoj.
+La knabinoj rigardis al ĝi per kontenta kaj amplena rigardo, nuraj patrinecaj vizaĝoj.
 
 ”Jen nia eta kanario, tia nenie ekzistas kaj neniam ekzistis!”
 
@@ -2315,12 +1872,7 @@ hororo.
 Estis trista dimanĉo, frida kaj nebula tago estis ekstere,
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-venis malmultaj homoj kaj ili estis eĉ pli enuaj ol cetere. Man-
-
-jo senzorge turnis la rigardon; venis la patrino, iomete sidis
+venis malmultaj homoj kaj ili estis eĉ pli enuaj ol cetere. Manjo senzorge turnis la rigardon; venis la patrino, iomete sidis
 
 kaj foriris. Io senkompare peza kaj melankolia troviĝis en la
 
@@ -2328,9 +1880,7 @@ kaj foriris. Io senkompare peza kaj melankolia troviĝis en la
 
 ĉambro lia malsana spiro. Katinjo atendis, maltrankvilaj estis
 
-ŝiaj okuloj, la patrino ne venis. Kaj tiam malfermiĝis la por-
-
-do plene kaj iu venis brue.
+ŝiaj okuloj, la patrino ne venis. Kaj tiam malfermiĝis la pordo plene kaj iu venis brue.
 
 En la porda kadro aperis granda, larĝŝultra viro. Li estis
 
@@ -2338,9 +1888,7 @@ malbone vestita, tre malpura kaj ĉifonita. Estis malvarmego
 
 ekstere, sed li portis maldikan nigran frakon, foruzitan kaj
 
-makulitan. Lia griza, kruce striita pantalono estis sube kom-
-
-plete ĉifonita kaj ankaŭ liaj ŝuoj estis foruzitaj, ili faŭkis, tiel ke oni povis vidi malsekajn ŝtrumpojn. Lia vizaĝo estis ŝvelinta, nerazita, grize pala, liaj okuloj rigardis malklare, ili estis tute ruĝaj.
+makulitan. Lia griza, kruce striita pantalono estis sube komplete ĉifonita kaj ankaŭ liaj ŝuoj estis foruzitaj, ili faŭkis, tiel ke oni povis vidi malsekajn ŝtrumpojn. Lia vizaĝo estis ŝvelinta, nerazita, grize pala, liaj okuloj rigardis malklare, ili estis tute ruĝaj.
 
 Li haltis en la porda kadro kaj alrigardis la ĉambron.
 
@@ -2358,39 +1906,26 @@ volus sin defendi, sed ŝi povis levi sian malsanan manon nur
 
 rigardas, ĉu vi tion ne trovas en ordo?”
 
-Katinjo rigardis, kvazaŭ la patro volus ŝin frapi per sia pug-
+Katinjo rigardis, kvazaŭ la patro volus ŝin frapi per sia pugno kaj ŝi daŭre tenis la manon antaŭ la vizaĝo. Fratulino Ce-
 
-no kaj ŝi daŭre tenis la manon antaŭ la vizaĝo. Fratulino Ce-
-
-cilia venis, ŝi staris apud la pordo, kun vizaĝo ruĝa pro mal-
-
-trankvilo; ili ambaŭ rigardis same, timeme kaj scivole, la fra-
+cilia venis, ŝi staris apud la pordo, kun vizaĝo ruĝa pro maltrankvilo; ili ambaŭ rigardis same, timeme kaj scivole, la fra-
 
 tulino kaj la kanario.
 
 ”Jam mi bone vidas, Katinjo, jam mi tute bone vidas! Kiajn
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 aferojn ŝi diris al vi? Mi venis tial, ke mi vin iomete vidu. ĉu
 
-vi vere opinias, ke mi estas tia drinkemulo? Ke mi ĉion for-
+vi vere opinias, ke mi estas tia drinkemulo? Ke mi ĉion forkonsumas, fortrinkas en branda formo? Ke mi eĉ forinton ne
 
-konsumas, fortrinkas en branda formo? Ke mi eĉ forinton ne
-
-donas al ŝi, ke mi batas la infanojn? Ke ili malsatas? Ke ili nu-
-
-das? — Mensogo, Katinja, mensogo! Sciis mi bone, ke ŝi ĉion
+donas al ŝi, ke mi batas la infanojn? Ke ili malsatas? Ke ili nudas? — Mensogo, Katinja, mensogo! Sciis mi bone, ke ŝi ĉion
 
 tion rakontas al vi kaj ke vi ĉion tion kredas, vi infano stulta!
 
 Mi donas sufiĉe da mono al ŝi, sed ŝi —”
 
-Li parolis tre laŭte, rapide kaj koleroplene; li tenis la ma-
-
-non de Katinjo, tiel ke ŝi sentis doloron. Fratulino Cecilia vidis la vizaĝon de Katinjo, ŝi sentis kompaton por ŝi kaj ŝi havis
+Li parolis tre laŭte, rapide kaj koleroplene; li tenis la manon de Katinjo, tiel ke ŝi sentis doloron. Fratulino Cecilia vidis la vizaĝon de Katinjo, ŝi sentis kompaton por ŝi kaj ŝi havis
 
 strangan timon. Li turnis sin subite al ŝi.
 
@@ -2414,15 +1949,11 @@ kolero.
 
 ion, kiam ŝi venas? … Jen, prenu kaj manĝu, estas bongusta!”
 
-Li kunportis biskotojn kaj ili odoris je brando. Katinjo abo-
-
-meniĝis, kiam ŝi vidis ilin, sed ŝi tremis de timo kaj ŝi man-
+Li kunportis biskotojn kaj ili odoris je brando. Katinjo abomeniĝis, kiam ŝi vidis ilin, sed ŝi tremis de timo kaj ŝi man-
 
 ĝis.
 
-Poste li rigardis ĉirkaŭ si en la ĉambro. Etaj, timiĝintaj viza-
-
-ĝoj streĉokulis al li, neniu voĉo aŭdiĝis. Kaj li vaste ekridis.
+Poste li rigardis ĉirkaŭ si en la ĉambro. Etaj, timiĝintaj vizaĝoj streĉokulis al li, neniu voĉo aŭdiĝis. Kaj li vaste ekridis.
 
 ”Kial vi timas antaŭ mi, infanoj? ĉu mi estas tia? Atendu,
 
@@ -2433,18 +1964,13 @@ Li turnis sin al Aloiza. Aloiza rigardis aŭdace, sed ŝi tenis
 la seĝon spasme per ambaŭ manoj.
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ”He, infanoj, mi ne estas tia! Se mi scius, mi alportus al vi
 
 kelkion. Al ĉiuj! Bombonojn, pomojn, oranĝojn! Kiam mi
 
 venos la sekvan fojon, mi alportos por vi ĉiuj!”
 
-Li ridis, sed la kolero elverŝiĝis el lia koro en okulojn, sur-
-
-frunten, sur lian tutan vizaĝon; liaj lipoj malfermiĝis, kvazaŭ
+Li ridis, sed la kolero elverŝiĝis el lia koro en okulojn, surfrunten, sur lian tutan vizaĝon; liaj lipoj malfermiĝis, kvazaŭ
 
 ili ridus, sed ili nur montris akrajn malicajn dentojn.
 
@@ -2466,9 +1992,7 @@ malbonodoris.
 
 ”Ne estas mi tiel malica, Katinjo, kiel vi pensas. ĉiu homo
 
-havas pli nigran ombron ol li mem estas. Benon al vi, Katin-
-
-jo!”
+havas pli nigran ombron ol li mem estas. Benon al vi, Katinjo!”
 
 Kaj li turnis sin.
 
@@ -2478,9 +2002,7 @@ Aŭdiĝis pepado, ĝemado.
 
 ”He, kaj kanarion vi ankaŭ havas, kiel belan kanarion, he!”
 
-Aŭdiĝis voko en lia koro kaj kanto, li mem ne sciis, kiama-
-
-niere tio okazis. Kaj li marŝis trans la ĉambron, granda kaj
+Aŭdiĝis voko en lia koro kaj kanto, li mem ne sciis, kiamaniere tio okazis. Kaj li marŝis trans la ĉambron, granda kaj
 
 nigra, de angoro paliĝintaj vizaĝoj rigardis lin.
 
@@ -2493,9 +2015,6 @@ voĉo eliĝis el ŝia gorĝo …
 Sed la pordeto estis malfermita, Dio tion volis, kaj ĝi estis
 
 malfermita.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 La kanarieto rigardis kaj tremis. Tie io venis, ĝi proksimiĝis
@@ -2542,16 +2061,11 @@ Sed ĉi tie ene ne estis vintro, ne estis frosto, ne ŝtormo; la
 
 vintro venis kiel la Dia bebo, hejmvarma kaj afabla. Kiel la
 
-Dia bebo ĝi venis kaj kiel fratulino Cecilia, kiu aranĝis la kri-
-
-pon kaj ridetis kun ridetantaj okuloj, plenaj de mistero.
+Dia bebo ĝi venis kaj kiel fratulino Cecilia, kiu aranĝis la kripon kaj ridetis kun ridetantaj okuloj, plenaj de mistero.
 
 Venis matene fratulino Cecilia, ŝi kaŝis ion en siaj manoj,
 
 sed tio moviĝis kaj piedbatetis.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ”Infanoj, rigardu!”
@@ -2596,9 +2110,7 @@ Fratulino Cecilia rigardis al ĝi, kaj ĉar ĝi estis tiel nigra kaj insidema en
 
 ”Anarkiisto!”
 
-Kaj la anarkiisto ne enhejmiĝis, ĝi ne ŝatis la belan, blan-
-
-kan, hejtitan ĉambron. Ankaŭ amon ĝi ne ŝatis. La knabinoj
+Kaj la anarkiisto ne enhejmiĝis, ĝi ne ŝatis la belan, blankan, hejtitan ĉambron. Ankaŭ amon ĝi ne ŝatis. La knabinoj
 
 volis ĝin nutri. Manjo prenis ĝin al si en la liton por varmigi
 
@@ -2611,9 +2123,6 @@ tramp’ …
 ”Kio pri tiu ĉi pasero?” Manjo malbonhumore demandis;
 
 ŝi estis ĉagrenita, ĉar ĝi ne atentis pri ŝi kaj ne ŝatis ŝian amon.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ”Vi ne scias ĝin nutri!” diris Aloiza kaj veturis tien reen
@@ -2630,9 +2139,7 @@ La anarkiisto serĉis Dio scias kion; ĝi esploretis en anguloj,
 
 ĝi trapilgrimis jam la tutan ĉambregon; se ĝi ripozis, ĝi kaŝis
 
-sin en malhelan lokon, kaj tiam oni vidis brili du propra-
-
-volajn, ribelajn okulojn.
+sin en malhelan lokon, kaj tiam oni vidis brili du propravolajn, ribelajn okulojn.
 
 Ili estis pretaj ĝin lasi, sed fratulino Cecilia ne volis.
 
@@ -2644,27 +2151,19 @@ i proksimiĝis al Aloiza, ŝi forpelis ĝin per frapa manmovo
 
 kaj la knabinoj ridis, kiam ĝi falruliĝis kaj poste balancante
 
-kaj trampante foriris per malfacilaj movoj. i atingis la fene-
-
-stron, rigardis supren kaj saltetis. iaj flugiloj estis tro mal-
+kaj trampante foriris per malfacilaj movoj. i atingis la fenestron, rigardis supren kaj saltetis. iaj flugiloj estis tro mal-
 
 fortaj, ĝi penis kaj falis; apenaŭ du spanojn alten ĝi povis salti, eĉ la randon de la lito ĝi ne atingis. i kuris tien reen sub la
 
 fenestro laŭ ĝia tuta larĝo, ĝi saltis tie kaj aliloke, sed nenie la fenestro estis pli malalta.
 
-i vekis kompaton en Rezinjo, ŝi levis ĝin sur la fenestro-
+i vekis kompaton en Rezinjo, ŝi levis ĝin sur la fenestrobreton. i tuj eksaltis, koliziis kape kontraŭ la fenestro, efek-
 
-breton. i tuj eksaltis, koliziis kape kontraŭ la fenestro, efek-
-
-tive per sia tuta eta, mallerta korpo. i frapis tien, sed io ĝin puŝis reen, ĝi falis sur la breton. i tuj leviĝis, marŝis sur la breto iomete antaŭen, eksaltis kaj denove koliziis. Kaj denove io ĝin puŝis reen, denove ĝi renversiĝis kaj denove ĝi levi-
-
-ĝis. i haltis meze de la breto, vidis eksteren — tie troviĝis
+tive per sia tuta eta, mallerta korpo. i frapis tien, sed io ĝin puŝis reen, ĝi falis sur la breton. i tuj leviĝis, marŝis sur la breto iomete antaŭen, eksaltis kaj denove koliziis. Kaj denove io ĝin puŝis reen, denove ĝi renversiĝis kaj denove ĝi leviĝis. i haltis meze de la breto, vidis eksteren — tie troviĝis
 
 ĉielo kaj nigraj domoj, ĝi vidis pinton de nuda arbo. Kaj la
 
-anarkiisto forgesis, ke ĝi estis repuŝita — ja tie ekstere troviĝis 49
-
-LA DOMO DE MARIA HELPANTINO
+anarkiisto forgesis, ke ĝi estis repuŝita — ja tie ekstere troviĝis
 
 
 la ĉielo kaj la nigraj domoj kaj videblis nudaj arboj kaj ĉio
@@ -2691,13 +2190,9 @@ lanbulo.
 
 ”i mortis!”
 
-Ili rigardis, neniu el ili movis sin. Sed la pasero skuiĝis, ek-
+Ili rigardis, neniu el ili movis sin. Sed la pasero skuiĝis, eksvingis per siaj flavaj gambetoj kaj leviĝis.
 
-svingis per siaj flavaj gambetoj kaj leviĝis.
-
-”He, pasero!” koleriĝis Aloiza. ”i estas kvazaŭ farita el lig-
-
-no.”
+”He, pasero!” koleriĝis Aloiza. ”i estas kvazaŭ farita el ligno.”
 
 Tuj, kiam ĝi leviĝis, jam ĝi saltis kontraŭ la fenestro, sed
 
@@ -2705,9 +2200,7 @@ nun ne plu ol unu spanon de alteco; ĝi falis eĉ pli peze, jam
 
 pli surbrusten kaj surkapen ol surpieden. Sed ĝi ne laciĝis, tiel bone ĝi sciis, ke finfine ĝi saltos sufiĉe alten kaj forflugos
 
-eksteren, kie troviĝas la ĉielo kaj la arboj. Dum la tuta tem-
-
-po ĝi ne eligis sonon, ne troviĝis iu, al kiu ĝi parolus, pri kiu
+eksteren, kie troviĝas la ĉielo kaj la arboj. Dum la tuta tempo ĝi ne eligis sonon, ne troviĝis iu, al kiu ĝi parolus, pri kiu
 
 ĝi koleriĝus aŭ kiun ĝi por io petus.
 
@@ -2717,18 +2210,14 @@ saltado kaj falado.
 
 Sed kiam ĝi alrigardis supron, antaŭ ĝiaj okuloj pli kaj pli
 
-fariĝis malhele, la ĉielo malaperis, malaperis la arboj, la nokto 50
-
-LA DOMO DE MARIA HELPANTINO
+fariĝis malhele, la ĉielo malaperis, malaperis la arboj, la nokto
 
 
 kun siaj malhelaj konstruaĵoj disvastiĝis kaj disvastiĝis, ĝi
 
 kovris ĉion.
 
-Ankoraŭfoje ĝi saltis, nur unu colon de alteco — sed rigar-
-
-du, jam ne plu io troviĝis por ĝi, ankaŭ la fenestro ne …
+Ankoraŭfoje ĝi saltis, nur unu colon de alteco — sed rigardu, jam ne plu io troviĝis por ĝi, ankaŭ la fenestro ne …
 
 Ili ne plu atentis pri ĝi, la lumo jam brilis, ili preparis sin
 
@@ -2736,26 +2225,17 @@ por enlitiĝi. ĉesis la falado, ankaŭ la tretetado ne aŭdiĝis plu, la anarki
 
 ekdormis …
 
-Kiam Aloiza frumatene surmetis siajn pantoflojn, ŝi ekti-
-
-mis kaj ekkriis. La nigra lanbulo ruliĝis el ŝia pantoflo, ĝi estis kaŝita profunde de ĝi.
+Kiam Aloiza frumatene surmetis siajn pantoflojn, ŝi ektimis kaj ekkriis. La nigra lanbulo ruliĝis el ŝia pantoflo, ĝi estis kaŝita profunde de ĝi.
 
 ŝi puŝegis ĝin foren per sia piedo, la anarkiisto naŭzigis ŝin.
 
 La ungoj estis strange torditaj, kunpremitaj, ĝia kapo estis
 
-tute vundita, apenaŭ oni povis konstati, kie troviĝas la oku-
+tute vundita, apenaŭ oni povis konstati, kie troviĝas la okuloj kaj kie estas la beko, ĉio estis plena de sango kaj taŭzita.
 
-loj kaj kie estas la beko, ĉio estis plena de sango kaj taŭzita.
-
-ŝi prenis balailon kaj forbalais ĝin tra la pordo en la korido-
-
-ron.
+ŝi prenis balailon kaj forbalais ĝin tra la pordo en la koridoron.
 
 Tiel ĝi pereis, post ĝi troviĝis nek ies malĝojo nek ies memoro.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 V
@@ -2766,19 +2246,13 @@ hieraŭ la vangoj estis glataj, hodiaŭ ili estas krispiĝintaj,
 
 kiu povus pensi pri tio, ke pasis tagoj, ke pasis jaroj.
 
-La vintro ekstere estis akra kaj malamika; la ĉielo estis mo-
-
-roza kaj oni povis vidi, ke eĉ la nuboj estis malvarmaj, naĝ-
+La vintro ekstere estis akra kaj malamika; la ĉielo estis moroza kaj oni povis vidi, ke eĉ la nuboj estis malvarmaj, naĝ-
 
 antaj sub ĝi. Sur la nudajn branĉojn ekstere eksidis prujno, la
 
-fenestroj estis frumatene kovritaj per glaciaj floroj. Senden-
+fenestroj estis frumatene kovritaj per glaciaj floroj. Sendenta kaj malafabla aĝulino estis la vintro ekstere, avara olduli-
 
-ta kaj malafabla aĝulino estis la vintro ekstere, avara olduli-
-
-no, grumblema, marŝanta per longaj paŝoj sur seka neĝo, ras-
-
-lante per rozario.
+no, grumblema, marŝanta per longaj paŝoj sur seka neĝo, raslante per rozario.
 
 Sed alia ĝi estis en la ĉambro; ĝi estis la panjo, sidanta ĉe
 
@@ -2786,13 +2260,9 @@ la forno, rakontanta fabelojn pri naturspiritoj kaj noktomezaj
 
 fantomoj …
 
-Jam frue venis la nokto; venis ombroj kaj venis paco. Var-
+Jam frue venis la nokto; venis ombroj kaj venis paco. Varma kaj afabla estis la lumo, kiu fluis de la plafono, la lumo de
 
-ma kaj afabla estis la lumo, kiu fluis de la plafono, la lumo de
-
-la hejma, gaja suno, kiu ne estas tiel orgojla kaj sinjoreca kiel la suno tie ekstere, kiu nur malofte ridetas; sed tiu ĉi eta blanka suneto estis distriga, kvazaŭ ĝi mem rakontus gajajn fabe-
-
-lojn kaj mem ridus pro ili … Sed ekstere estis frosto kaj estis
+la hejma, gaja suno, kiu ne estas tiel orgojla kaj sinjoreca kiel la suno tie ekstere, kiu nur malofte ridetas; sed tiu ĉi eta blanka suneto estis distriga, kvazaŭ ĝi mem rakontus gajajn fabelojn kaj mem ridus pro ili … Sed ekstere estis frosto kaj estis
 
 nokto; la vivo, malestimita kaj malestiminda, pasis pretere; la
 
@@ -2800,12 +2270,7 @@ sendenta, malafabla oldulino grumble preterpasis kaj raslis
 
 per sia rozario …
 
-Kiel sorĉistino preterpasis la vintro, pasis la vivo. La infa-
-
-noj timis pro ĝi, ili kunpuŝiĝis en angulon kaj rigardis per
-
-
-LA DOMO DE MARIA HELPANTINO
+Kiel sorĉistino preterpasis la vintro, pasis la vivo. La infanoj timis pro ĝi, ili kunpuŝiĝis en angulon kaj rigardis per
 
 
 timigitaj okuloj. Tiel rakontas la fabelo: leviĝis la infano kaj
@@ -2840,18 +2305,13 @@ juneco; sur iliaj vangoj, ĉirkaŭ la okuloj kaj lipoj vidiĝis olde-ca, malsana
 
 de simio; elsub la kovrilo etendiĝis la gambo: osto, envolvita
 
-en maldensan flavetan haŭton. Super la litoj altaj mortaj van-
-
-doj — tiaj vandoj, pensis Tina, troviĝas en malliberejoj, van-
+en maldensan flavetan haŭton. Super la litoj altaj mortaj vandoj — tiaj vandoj, pensis Tina, troviĝas en malliberejoj, van-
 
 doj, sur kiuj estas skribita la sufero kaj la povreco de la homoj, kiuj al ili rigardis. ĉiuj suspiroj restis daŭre sur ili, ĉiuj pezaj pensoj restis tie; kaj kiam estas nokto kaj silento, tiam denove
 
 aŭdiĝas la sopiroj, vekiĝas la malnova suferado kaj plendas
 
 per klaraj vortoj. Ve al tiu, kiu vekiĝas kaj aŭskultas, ve al tiu, kiu konas tiujn suspirojn kaj komprenas tiujn vortojn; li neniam ilin forgesas kaj trista estas lia vivo.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Tina aŭskultis kaj komprenis ĉion kaj tial ŝia vivo estis sen
@@ -2878,9 +2338,7 @@ ruĝaj floroj, verdaj herboj kaj belaj altkreskaj arboj … ŝi havis pupon, ves
 
 … Dio sciu, kiam tio estis kaj en kiu mondo; ĉio tio luliĝis,
 
-subiris; tio, kion ŝi ĵus ankoraŭ klare vidis antaŭ si, ne ekzis-
-
-tis plu ie, falis granda nigra kurteno; el distanco plurigardis
+subiris; tio, kion ŝi ĵus ankoraŭ klare vidis antaŭ si, ne ekzistis plu ie, falis granda nigra kurteno; el distanco plurigardis
 
 nur kompataj kaj mizerikordaj okuloj …
 
@@ -2890,31 +2348,22 @@ restos por eterne.
 
 ŝi rememoris pri alta mallarĝa ŝtuparo en la antaŭurbo.
 
-Estis antaŭ multe da tempo. ŝi grimpis sur la ŝtuparo, mal-
-
-rapide, ŝia malsana gambo tiriĝis post ŝi kiel morta. En sia
+Estis antaŭ multe da tempo. ŝi grimpis sur la ŝtuparo, malrapide, ŝia malsana gambo tiriĝis post ŝi kiel morta. En sia
 
 mano ŝi premis botelon kaj en la botelo troviĝis prunbrando.
 
-Ponardeto profundiĝis en ŝian vundon, ŝi ekkriis, Dio kom-
-
-patu, la botelo troviĝis frakasita sur planko. En tiu momen-
+Ponardeto profundiĝis en ŝian vundon, ŝi ekkriis, Dio kompatu, la botelo troviĝis frakasita sur planko. En tiu momen-
 
 to la doloro ĉesis, ĉio ĉesis, kiel morto ĉio disfluis en ŝia kor-po. ŝi kaŝis sin ĉe la ŝtuparo kaj atendis ĝis la nokto. Kaj kiam krepuskiĝis, ŝi preĝis — ŝi pensis, nun venos, Dio scias de kie,
 
 la kompata mano, venos probable la Dia anĝelo mem, kiel
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 okazis en la rakonto, kaj prenos ŝin kun si. Estis malvarme,
 
 jam anoncis sin la nokto. La koridoro estis senluma, nur ĉe la
 
-fenestro, kiu kun morna okulo rigardis sur la malvastan kor-
-
-ton, troviĝis io blanka. Tio pli kaj pli lumis, ŝajnis, ke ĝi movi-
+fenestro, kiu kun morna okulo rigardis sur la malvastan korton, troviĝis io blanka. Tio pli kaj pli lumis, ŝajnis, ke ĝi movi-
 
 ĝas, sendas signalojn. ŝi sentis angoron, ŝia kapo falis inter la genuojn, ŝia korpo skuiĝis. ŝi rampis al la pordo, ŝi aŭskultis,
 
@@ -2926,17 +2375,13 @@ renversus seĝon. Io proksimiĝis kun pezaj, necertaj paŝoj,
 
 okulparo ekbrilis. ”Kie vi havas la brandon?” ŝi klinis sian
 
-kapon, premis la okulojn kaj etendis la timemajn manojn an-
-
-taŭ si. Io kaptis ŝin per ega forto, ŝia kapo frapis kontraŭ la
+kapon, premis la okulojn kaj etendis la timemajn manojn antaŭ si. Io kaptis ŝin per ega forto, ŝia kapo frapis kontraŭ la
 
 planko, kontraŭ la vando, ŝia malsana gambo strange glitis,
 
 ŝi ne sentis doloron, ŝi estis kvazaŭmorta kaj malpeza, kiel
 
-vestopeco. ŝi ne petis, ŝi eĉ ne ploris; en ŝi superregis io dol-
-
-ĉa, mola, ĉio silentis, strange kvietis. Kiam ŝi vekiĝis, ŝi neni-am plu povis leviĝi; el la vundo daŭre fluis.
+vestopeco. ŝi ne petis, ŝi eĉ ne ploris; en ŝi superregis io dolĉa, mola, ĉio silentis, strange kvietis. Kiam ŝi vekiĝis, ŝi neni-am plu povis leviĝi; el la vundo daŭre fluis.
 
 ĉio estis tie stranga, Dio evidente malbenis tiun domon kaj
 
@@ -2946,18 +2391,11 @@ Tie ne estis afablaj vizaĝoj, ne estis gajaj okuloj; nigra estis ĉio kaj malpu
 
 kiam proksimiĝis paŝo, ja ĉiuj homoj por ŝi estis malicaj …
 
-Venis tiu vintro, kiam oni prenis ŝian liton kaj portis ŝin mal-
+Venis tiu vintro, kiam oni prenis ŝian liton kaj portis ŝin malsupren sur la alta, mallarĝa ŝtuparo kaj metis ŝin en la korto
 
-supren sur la alta, mallarĝa ŝtuparo kaj metis ŝin en la korto
-
-sur la amason de sterko. Tie ŝi kuŝis dum du tagoj kaj du nok-
-
-toj; estis frostego kaj en la dua nokto neĝis, tiel erece kaj fros-te, ke neĝeroj pikis en la vangojn, la manojn kiel per pingloj.
+sur la amason de sterko. Tie ŝi kuŝis dum du tagoj kaj du noktoj; estis frostego kaj en la dua nokto neĝis, tiel erece kaj fros-te, ke neĝeroj pikis en la vangojn, la manojn kiel per pingloj.
 
 Sed tiu nokto estis bela, el ĉiuj noktoj la plej bela. Tina estis malsata kaj ŝi petus panon, sed neniu troviĝis tie. Tiel krepuskis, ĉio estis silenta kaj soleca kaj Tina deziris por si morton.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 La unuan fojon ŝi deziris al si morton kaj je tiu deziro ŝi sentis fluon de dolĉeco. ĉio maturiĝis en ŝi en tiu horo, tiun nokton.
@@ -2970,13 +2408,9 @@ la kaptuko rigardas afablaj okuloj. Plektitan korbon ŝi havas
 
 en sia mano, blanktuke kovritan, kaj en la korbo troviĝas
 
-kukoj; bele odoras, kvazaŭ el dolĉaĵejo. ŝi venas pli proksi-
+kukoj; bele odoras, kvazaŭ el dolĉaĵejo. ŝi venas pli proksimen kaj rigardas kaj kliniĝas. ŝi malkovras la korbon kaj pre-
 
-men kaj rigardas kaj kliniĝas. ŝi malkovras la korbon kaj pre-
-
-nas el ĝi … ĉu ne venas ŝi de tie efektive? Io moviĝis, io mon-
-
-triĝis ĉe la muro, ĝi lulas, pendolas, sed ne alproksimiĝas …
+nas el ĝi … ĉu ne venas ŝi de tie efektive? Io moviĝis, io montriĝis ĉe la muro, ĝi lulas, pendolas, sed ne alproksimiĝas …
 
 Afabla oldulino, volvita en varman pelton, venu proksimen!
 
@@ -2984,9 +2418,7 @@ Afabla oldulino, volvita en varman pelton, venu proksimen!
 
 iras … Jen, ŝi leviĝis kaj ekmarŝis. ŝi iris kvazaŭ en sonĝo,
 
-facile, ŝiaj piedoj apenaŭ tuŝis la teron. Malfermiĝis la mon-
-
-do, malfermiĝis la ĉielo. Tina rememoris pri sia malpura kaj
+facile, ŝiaj piedoj apenaŭ tuŝis la teron. Malfermiĝis la mondo, malfermiĝis la ĉielo. Tina rememoris pri sia malpura kaj
 
 ĉifonita vesto kaj ŝi hontis. Sed kiam ŝi rigardis al sia jupo, ŝi estis tre ĝoja, ke ŝi portas belan blankan jupon kun ruĝa
 
@@ -2994,24 +2426,15 @@ rubando. Jam la steloj venis proksimen, preskaŭ ŝiaj manoj
 
 povus ilin tuŝi, brilaj ili estis kaj afable flirtantaj, kiel la steloj sur la kristnaska arbo, ekspoziciita en la dolĉaĵeja montrofe-nestro. Venis anĝeloj, svingantaj malforte per siaj blankaj
 
-flugiloj, ke agrabla venteto spiriĝis al ŝiaj vangoj. El malprok-
-
-simo ekbrilis kvazaŭ suno, kloŝoj eksonoris, sonorilaj voĉoj
+flugiloj, ke agrabla venteto spiriĝis al ŝiaj vangoj. El malproksimo ekbrilis kvazaŭ suno, kloŝoj eksonoris, sonorilaj voĉoj
 
 ekkantis ĝojplenan kanton. ŝi premis sin al la oldulino, pro
 
 ĝojo ŝi fermis siajn okulojn … Kaj kiam ŝi fermis la okulojn,
 
-ĉio eksilentis; tiam el malproksimoj leviĝis bruska voĉo, fra-
+ĉio eksilentis; tiam el malproksimoj leviĝis bruska voĉo, frapanta ŝin kvazaŭ pugne, aŭdiĝis ankaŭ aliaj voĉoj, ili pli kaj
 
-panta ŝin kvazaŭ pugne, aŭdiĝis ankaŭ aliaj voĉoj, ili pli kaj
-
-pli proksimiĝis, ŝi jam preskaŭ povis distingi unuopajn vor-
-
-tojn, sed ŝi ne kuraĝis malfermi la okulojn. Ili venis, kaptis la liton kaj ĝin levis; ŝi delikate movis siajn palpebrojn, sed ili
-
-
-LA DOMO DE MARIA HELPANTINO
+pli proksimiĝis, ŝi jam preskaŭ povis distingi unuopajn vortojn, sed ŝi ne kuraĝis malfermi la okulojn. Ili venis, kaptis la liton kaj ĝin levis; ŝi delikate movis siajn palpebrojn, sed ili
 
 
 estis pezaj, kvazaŭ lignaj, apenaŭ iomete lumis: barbohavaj
@@ -3024,9 +2447,7 @@ nek fremdaj vizaĝoj, nenio plu estis …
 
 Ankaŭ tio estis alia mondo, alia vivo tio estis; nun ĝi estas
 
-malantaŭ nigra kurteno, kiu nur foje malfermiĝas, nur por-
-
-momente — tiam, kiam estas nokto kaj la okuloj gapas al la
+malantaŭ nigra kurteno, kiu nur foje malfermiĝas, nur pormomente — tiam, kiam estas nokto kaj la okuloj gapas al la
 
 grizaj vandoj de la mortoĉambro. Sur la vando montriĝas
 
@@ -3036,13 +2457,9 @@ stranga bildo, aperas alta mallarĝa ŝtuparo, bildiĝas la korto,
 
 fenestroj, kvazaŭ mortoavidaj okuloj de malsanulo, mortanta
 
-sur la sterkamaso. Dio sciu, kiam tio okazis kaj en kiu mon-
+sur la sterkamaso. Dio sciu, kiam tio okazis kaj en kiu mondo …
 
-do …
-
-Susuris ĉe la lito apud la fenestro; Manjo suspiris en dor-
-
-mo kaj svingis per sia mano. Tina ektremis pro frosto, ŝi kuŝi-
+Susuris ĉe la lito apud la fenestro; Manjo suspiris en dormo kaj svingis per sia mano. Tina ektremis pro frosto, ŝi kuŝi-
 
 ĝis kaj kovris sin ĝis la kolo. Tuj la kapkuseno denove fariĝis
 
@@ -3058,9 +2475,7 @@ pendantan super la lito, sur kiu estis notita la tago, kiam oni
 
 ŝin alportis. Jam pasis longa tempo de tiam, la tuta vivo pasis
 
-intertempe; jaro egalis al jaro, tago similis al tago … Voja-
-
-ĝanto marŝas, facilaj pensoj troviĝas en lia kapo, en lia koro
+intertempe; jaro egalis al jaro, tago similis al tago … Vojaĝanto marŝas, facilaj pensoj troviĝas en lia kapo, en lia koro
 
 neniaj zorgoj; kiel sonĝoj pasas lia vojaĝado, li sentas nek
 
@@ -3068,27 +2483,18 @@ gambojn nek sin mem, li ne rigardas antaŭen, ne rigardas
 
 reen, li estas gaje perdita kvazaŭ birdo en la aero, portata de
 
-la suda vento translanden; sed subite li vekiĝas, probable kre-
-
-puskiĝis, eble la ĉielo nubiĝis; en lian koron falas peza pen-
-
-
-LA DOMO DE MARIA HELPANTINO
+la suda vento translanden; sed subite li vekiĝas, probable krepuskiĝis, eble la ĉielo nubiĝis; en lian koron falas peza pen-
 
 
 so, li rememoras pri si, pri sia trista vivo, pri sia malbela
 
 pasinto, pri silenta estonto; li rigardas returnen — kaj jen, li
 
-tramarŝis la senmezuran vojon sen vivi; liaj okuloj malfer-
-
-miĝis kaj lia koro nun estas deprimita, peza kaj necerta estas
+tramarŝis la senmezuran vojon sen vivi; liaj okuloj malfermiĝis kaj lia koro nun estas deprimita, peza kaj necerta estas
 
 lia paŝo … Okazis iunokte, ke ŝi ne povis dormi kaj tiam Tina
 
-aŭdis la unuan fojon, kiel la vandoj parolas. ŝi aŭskultis time-
-
-me kaj ŝi ekkonis la mortoĉambron. Lito apud lito, ĉerko
+aŭdis la unuan fojon, kiel la vandoj parolas. ŝi aŭskultis timeme kaj ŝi ekkonis la mortoĉambron. Lito apud lito, ĉerko
 
 apud ĉerko. Kaj la mortintoj leviĝas, iras ĉirkaŭen, ridas kaj
 
@@ -3100,17 +2506,13 @@ venis la oldulino, raslante per sia rozario, ŝia sendenta buŝo
 
 ridis; kaj la infano leviĝis kaj postsekvis ŝin, kien ŝi invitis, ŝi iris kaj perdiĝis; perdiĝis kaj pereis, ĉar ŝia koro estis varma
 
-kaj senpaca … Kien ajn venas la oldulino, sendenta, per roza-
-
-rio raslanta, venas kun ŝi ankaŭ la malbono kaj malpacienco;
+kaj senpaca … Kien ajn venas la oldulino, sendenta, per rozario raslanta, venas kun ŝi ankaŭ la malbono kaj malpacienco;
 
 rigardas tra la fenestro, invitas, kaj ve al tiu, kiu leviĝas …
 
 Manjo vidis, kiel pereis la anarkiisto; ĝi deziris la vivon kaj
 
-tamen mizere pereis en la pantoflo. Manjo rigardis al la viza-
-
-ĝo de Tina kaj rememoris pri la anarkiisto, ja ŝiaj okuloj estis
+tamen mizere pereis en la pantoflo. Manjo rigardis al la vizaĝo de Tina kaj rememoris pri la anarkiisto, ja ŝiaj okuloj estis
 
 mirakle klarvidaj. ŝi leviĝis meze de la nokto, rigardis ĉirkaŭ
 
@@ -3131,16 +2533,11 @@ Turnis sin Manjo en la lito, kombis permane lace siajn
 harojn transfrunten kaj trankvile ekdormis. Tina rigardis en
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 la nokton, ĝis ŝi kuŝiĝis kiel en vertiĝo kaj ŝiaj malkvietaj pensoj transformiĝis en sovaĝe buntajn sonĝojn …
 
 Venis frumatene fratulino Cecilia, haltante ĉe la lito. ŝia
 
-vizaĝo estis serioza, kiel bela memoro aperis io en ŝiaj oku-
-
-loj, sur ŝiaj lipoj. ŝi rigardis la vangojn, kiuj estis pale ruĝetaj, la okulojn, kiuj brilis kvazaŭ en febro, la lipojn, kiuj estis sekaj kaj sulkiĝintaj. ŝi haltis kaj ne kuraĝis demandi kaj pasis
+vizaĝo estis serioza, kiel bela memoro aperis io en ŝiaj okuloj, sur ŝiaj lipoj. ŝi rigardis la vangojn, kiuj estis pale ruĝetaj, la okulojn, kiuj brilis kvazaŭ en febro, la lipojn, kiuj estis sekaj kaj sulkiĝintaj. ŝi haltis kaj ne kuraĝis demandi kaj pasis
 
 pretere; ankaŭ sur ŝiaj vangoj aperis tiam ia senkutima ruĝeco
 
@@ -3156,13 +2553,9 @@ mortintoj kaj ilia tuta agado ŝajnis al ŝi abomena kaj ridinda.
 
 ŝiaj okuloj rigardis en alian direkton, aliloke promenis ŝiaj
 
-pensoj, kaj se ŝi parolis, ŝiaj vortoj estis strangaj kaj nekom-
+pensoj, kaj se ŝi parolis, ŝiaj vortoj estis strangaj kaj nekompreneblaj; ili venis el aliaj lokoj, elsub alia ĉielo. Kaj la mortintoj sentis, ke viva koro troviĝas inter ili … Tiel ili rigardis ŝin per malkontentaj rigardoj, ŝi ŝajnis al ili ridinda kaj abomena, apenaŭ en ili moviĝis kompato. ”Se ne plaĉas al vi, bon-
 
-preneblaj; ili venis el aliaj lokoj, elsub alia ĉielo. Kaj la mortintoj sentis, ke viva koro troviĝas inter ili … Tiel ili rigardis ŝin per malkontentaj rigardoj, ŝi ŝajnis al ili ridinda kaj abomena, apenaŭ en ili moviĝis kompato. ”Se ne plaĉas al vi, bon-
-
-volu foriri; iru eksteren, kie estas nudaj arboj kaj neĝo kaj kie estas homoj, kiuj havas malicajn okulojn kaj manojn dan-
-
-ĝerajn kaj malicajn. Iru eksteren, kie estas la vivo, pereu!”
+volu foriri; iru eksteren, kie estas nudaj arboj kaj neĝo kaj kie estas homoj, kiuj havas malicajn okulojn kaj manojn danĝerajn kaj malicajn. Iru eksteren, kie estas la vivo, pereu!”
 
 … Sed la anarkiisto ne konsideris tion; aŭdiĝis frapado
 
@@ -3174,29 +2567,20 @@ alta, mallarĝa ŝtuparo, malhela korto, ĉie ĉirkaŭe masonita?
 
 En tiu tempo, kiam Tina vekiĝis, okazis io mirinda; ŝiaj vangoj
 
-kaj ŝiaj haroj estis karesitaj de mano blanka, ĝi glitis delika-
-
-te malsupren kaj tuŝis ŝian ŝultron, la naztukon sur ŝia brusto
+kaj ŝiaj haroj estis karesitaj de mano blanka, ĝi glitis delikate malsupren kaj tuŝis ŝian ŝultron, la naztukon sur ŝia brusto
 
 … Tiu vivo ŝin salutis, kie ne troviĝas mallarĝa alta ŝtuparo,
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 kie ne troviĝas malhela korto, ĉirkaŭe masonita. Granda kaj
 
 terura estis la tempo, kiam ŝi rekonis la mortintejon, sian
 
-hejmon kaj per sia tuta koro, plena de nekonata amaro, ek-
-
-sopiris.
+hejmon kaj per sia tuta koro, plena de nekonata amaro, eksopiris.
 
 Legis Tina iam libron, en kiu troviĝis buntaj ilustraĵoj. ŝi
 
-rememoris pri bildo, kvazaŭ ĝi estus desegnita tie sur la van-
-
-do, kontraŭe de ŝia lito, sub bildo de la oldulo kun ruĝa kolumo. Sur tiu bildo troviĝis verda arbo kaj sub la arbo estis
+rememoris pri bildo, kvazaŭ ĝi estus desegnita tie sur la vando, kontraŭe de ŝia lito, sub bildo de la oldulo kun ruĝa kolumo. Sur tiu bildo troviĝis verda arbo kaj sub la arbo estis
 
 benko. Fraŭlo kaj fraŭlino sidis sur la benko, kapo ĉe kapo,
 
@@ -3228,9 +2612,6 @@ parolis kun Tina, kvazaŭ ŝi estus lia fratino, kaj kiam li foriris, li rigardi
 nigraj bukloj; li iris per facila sinjoreca paŝado, kaj kiam li
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 parolis, kiam li ekridetis, Tina sentis, ke ŝi emas lin priservi
 
 sindone, ke ŝi volas esti lia servistino por ĉiam … Fermiĝis la
@@ -3249,15 +2630,11 @@ venos; ŝi deziris por si malagrablan ĉielon, tiujn malaltajn
 
 grizajn nubojn, kiam la homo ne scias, kien sin turni kaj
 
-rememoras pri malsanuloj. Neniam li venis sola, sed ŝi reko-
-
-nis liajn paŝojn jam laŭ nedistingebla zumo en la koridoro.
+rememoras pri malsanuloj. Neniam li venis sola, sed ŝi rekonis liajn paŝojn jam laŭ nedistingebla zumo en la koridoro.
 
 Nur sporade li haltis antaŭ ŝi, kiam li iris preter la dua vico
 
-de litoj kontraŭ la fenestro, kie kuŝis Paŭla. Li haltis, kiel haltas homo sur la strato kaj alrigardas distrita, per ŝajne aten-
-
-temaj okuloj, detalon, kiun li ne konsiderus, se li urĝus. Kaj
+de litoj kontraŭ la fenestro, kie kuŝis Paŭla. Li haltis, kiel haltas homo sur la strato kaj alrigardas distrita, per ŝajne atentemaj okuloj, detalon, kiun li ne konsiderus, se li urĝus. Kaj
 
 same lia mano leviĝis tiel distrite — kiel ĉe iu, kiu marŝas sur
 
@@ -3267,9 +2644,7 @@ probable dehakas ŝoson el proksima heĝo. Tiel distraj estis
 
 ankaŭ liaj okuloj kaj rideto sur liaj lipoj estis hazarda, sen
 
-vivo, rideto de morta bildo, kiu gapas en malplenon kaj ride-
-
-tas.
+vivo, rideto de morta bildo, kiu gapas en malplenon kaj ridetas.
 
 ”Kio estas via nomo?” li demandis, kiam li alparolis ŝin
 
@@ -3277,27 +2652,15 @@ unuafoje. ”Kio pri vi, Tina?” li demandis pli poste. Pri nenio
 
 alia li parolis, li turnis sian rigardon kaj iris antaŭen, paŝis al Aloiza, kiu gaje ridetis, al Antonia, kiu rigide rigardis per siaj grandaj blindaj okuloj kaj kunpremis siajn brovojn, divenan-te, kia povus esti la vizaĝo de li, kiu staras antaŭ ŝi. Tiel li
 
-paŝis, ke pasis horoj kaj krepuskiĝis, li adiaŭis de Paula duo-
+paŝis, ke pasis horoj kaj krepuskiĝis, li adiaŭis de Paula duone afable, duone ignore kaj foriris tiel same distrita, kiel li
 
+alvenis, kun siaj pli aĝaj fratinoj, abunde evoluitaj, krie vestitaj judaj knabinoj.
 
-LA DOMO DE MARIA HELPANTINO
-
-
-ne afable, duone ignore kaj foriris tiel same distrita, kiel li
-
-alvenis, kun siaj pli aĝaj fratinoj, abunde evoluitaj, krie vest-
-
-itaj judaj knabinoj.
-
-Ensuĉintaj en blankajn manojn, en blankan vizaĝon, sek-
-
-vis lin la rigardoj de Tina. Kaj kiam estis nokto, peze spiris ŝia brusto; la kapkuseno estis kvazaŭ ardanta karbo kaj la vejnoj
+Ensuĉintaj en blankajn manojn, en blankan vizaĝon, sekvis lin la rigardoj de Tina. Kaj kiam estis nokto, peze spiris ŝia brusto; la kapkuseno estis kvazaŭ ardanta karbo kaj la vejnoj
 
 pulsis sur la tempioj, kvazaŭ iu batus per marteleto.
 
-… Printempo pasis trans kampojn kaj ĉie, kie antaŭe tro-
-
-viĝis nuda humo, dumnokte ekburĝonis riĉa vivo, okazis Dia
+… Printempo pasis trans kampojn kaj ĉie, kie antaŭe troviĝis nuda humo, dumnokte ekburĝonis riĉa vivo, okazis Dia
 
 miraklo …
 
@@ -3307,17 +2670,13 @@ viva, fortega sopiro, ekĝermis en abunda riĉeco la revoj kiel
 
 floroj en sovaĝa ĝardeno … Sur la benko, sub la kaŝtanarbo,
 
-sidis fraŭlo kaj fraŭlino, kap-ĉe-kape, man-en-mane kaj silen-
-
-tis. Sed jen, la imago viviĝis! La okuloj, kiuj antaŭe reve rigardis en la sunplenan pejzaĝon tie sube, ekhavis ideon, ekfla-
+sidis fraŭlo kaj fraŭlino, kap-ĉe-kape, man-en-mane kaj silentis. Sed jen, la imago viviĝis! La okuloj, kiuj antaŭe reve rigardis en la sunplenan pejzaĝon tie sube, ekhavis ideon, ekfla-
 
 mis, timemaj, sopirantaj rigardoj serĉis unu la alian, ili sin
 
 finfine trovis; la vangoj ruĝiĝis, la mano moviĝis, kuŝanta en
 
-alies mano, la korpo sin premis al la korpo, la buŝo proksimi-
-
-ĝis al la buŝo, ardanta, tremetanta … ŝi premis sian frunton
+alies mano, la korpo sin premis al la korpo, la buŝo proksimiĝis al la buŝo, ardanta, tremetanta … ŝi premis sian frunton
 
 kusenen. ”Anĝelo sankta, gardu min, gardu min hodiaŭ …” —
 
@@ -3327,16 +2686,9 @@ jam ĝi tuŝis ŝian varmegan vangon; kaj ŝi emis klini la kapon,
 
 ŝi emis per ambaŭ manoj kapti lian belan blankan manon, ŝi
 
-emis premi al ĝi sian frunton, lipojn, ŝi premus ĝin al sia bru-
+emis premi al ĝi sian frunton, lipojn, ŝi premus ĝin al sia brusto …
 
-sto …
-
-Fratulino Cecilia staris ĉe la pordo, ŝiaj okuloj estis serio-
-
-zaj kaj tristaj; en la koridoro eksonis, la gastoj adiaŭis. ŝi haltis, transfrunte glitkuris ombro de la vivo, kiu pasis. ŝi rigar-
-
-
-LA DOMO DE MARIA HELPANTINO
+Fratulino Cecilia staris ĉe la pordo, ŝiaj okuloj estis seriozaj kaj tristaj; en la koridoro eksonis, la gastoj adiaŭis. ŝi haltis, transfrunte glitkuris ombro de la vivo, kiu pasis. ŝi rigar-
 
 
 dis al Tina kaj antaŭsentis, ke la vivo etendis sian teruran
@@ -3349,13 +2701,9 @@ kontraŭ la fenestro …
 
 Tina kiel en spegulo vidis sin mem kaj sian vivon. Tuj kiam
 
-iomete komencis brili la suno kaj nur pretere pasis la prin-
+iomete komencis brili la suno kaj nur pretere pasis la printempo, kaj jam ĉio en ŝi maturiĝis, ŝia koro sentis ĉion kaj ŝiaj okuloj vidis ĉion. Li venis foje kun siaj fratinoj kaj kun ili venis juna knabino; per unu sola rigardo Tina mezuris ŝian kor-
 
-tempo, kaj jam ĉio en ŝi maturiĝis, ŝia koro sentis ĉion kaj ŝiaj okuloj vidis ĉion. Li venis foje kun siaj fratinoj kaj kun ili venis juna knabino; per unu sola rigardo Tina mezuris ŝian kor-
-
-pon, ŝian vizaĝon, ŝian veston kaj vidis, ke ŝi estas bela viri-
-
-no; ŝia vizaĝo estis plena de lumo kaj ĝojo, ŝia korpo kreskis
+pon, ŝian vizaĝon, ŝian veston kaj vidis, ke ŝi estas bela virino; ŝia vizaĝo estis plena de lumo kaj ĝojo, ŝia korpo kreskis
 
 en abunda juneco sub la mallarĝa, streĉita vesto … Tiam li ne
 
@@ -3373,30 +2721,21 @@ pekeca vekiĝis en ŝi. ŝi palpis per siaj manoj sian korpon,
 
 siajn povrajn, maldikajn, strange torditajn kaj kuntiritajn
 
-gambojn, la koksojn, la apenaŭ burĝonitajn mamojn. ŝi ek-
-
-havis emon sin grati, per tranĉilo tranĉi tiujn de Dio damni-
+gambojn, la koksojn, la apenaŭ burĝonitajn mamojn. ŝi ekhavis emon sin grati, per tranĉilo tranĉi tiujn de Dio damni-
 
 tajn gambojn, mamojn, ankoraŭ duone infanajn, perdiĝintaj
 
 sub la bluzo, sub la antaŭtuko, sur la vizaĝo, kiu estis kruda
 
-kamparana, sur mallertaj laboristaj manoj. Ho, damna, dam-
-
-nita vivo, de Dio damnita mortejo!
+kamparana, sur mallertaj laboristaj manoj. Ho, damna, damnita vivo, de Dio damnita mortejo!
 
 La mortejo estas eterna. Jes, ekstere troviĝas la vivo, kie ne
 
 ekzistas tiuj altaj mallarĝaj ŝtuparoj, malhela korto, ĉirkaŭe
 
-tute masonita, sed troviĝas ĝardenoj kaj herbejoj, jes kaŝtan-
-
-arboj, benko sub la arbo, kie sidas fraŭlo kaj fraŭlino man-en-
+tute masonita, sed troviĝas ĝardenoj kaj herbejoj, jes kaŝtanarboj, benko sub la arbo, kie sidas fraŭlo kaj fraŭlino man-en-
 
 mane, kap-ĉe-kape. Sed la pordo tien estas ŝlosita por ĉiam.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ŝi estis preta genuiĝi antaŭ la granda fera pordo, kripla kaj
@@ -3415,17 +2754,13 @@ manoj, skui la feran pordegon, sed ĝi neniam malfermiĝus.
 
 Kondamnita por ĉiam, la mortejo estas eterna!
 
-ŝi fosis ungojn en sian karnon, ekĝemis, kaj ŝia ĝemo simi-
-
-lis al kontrolita krio … Manjo moviĝis en la lito, ion nekom-
+ŝi fosis ungojn en sian karnon, ekĝemis, kaj ŝia ĝemo similis al kontrolita krio … Manjo moviĝis en la lito, ion nekom-
 
 preneblan murmuris, aŭdis en sia dormo krion kaj tuj ŝajnis
 
 al ŝi, ke ŝi troviĝas en la hospitalo kiel foje, ke ŝi kuŝas tie kiel nuda infano, en kies karnon oni tranĉas per akra tranĉilo …
 
-Tina ekdormis malfrue kaj kriis en la dormo. Kiam ŝi levi-
-
-ĝis, la kovrilo troviĝis surplanke, surplanke kuŝis ankaŭ ŝia
+Tina ekdormis malfrue kaj kriis en la dormo. Kiam ŝi leviĝis, la kovrilo troviĝis surplanke, surplanke kuŝis ankaŭ ŝia
 
 dormĉemizo kaj ŝia korpo estis disgratita de la ungoj, sur ŝia
 
@@ -3448,12 +2783,7 @@ fariĝu silento en la ĉambro. Kaj kiam ŝi estingis la lumon,
 kiam eksilentis la flustrado en la litoj kaj de tie kaj aliloke
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-aŭdiĝis egalritma peza spirado, Tina prenis de la vando roza-
-
-rion kaj komencis per ĝi preĝi. ŝi preĝis kaj ektimis; aliaj estis ŝiaj pensoj, ŝiaj lipoj prononcis sanktajn vortojn kiel en dormo, ŝia animo ilin ne aŭdis kaj ne komprenis. ŝi komencis
+aŭdiĝis egalritma peza spirado, Tina prenis de la vando rozarion kaj komencis per ĝi preĝi. ŝi preĝis kaj ektimis; aliaj estis ŝiaj pensoj, ŝiaj lipoj prononcis sanktajn vortojn kiel en dormo, ŝia animo ilin ne aŭdis kaj ne komprenis. ŝi komencis
 
 denove, ŝi volis pensi al Dio, al Dipatrino, al paradizo; sed
 
@@ -3463,9 +2793,7 @@ Dipatrino ne havis mizerikordan vizaĝon, la okuloj alrigardis
 
 mallarĝan veston, tiel ke la riĉaj membroj plenis en ĝi, kaj
 
-Tina ekkonis belan virinon, kiu sidis sub la kaŝtanarbo man-
-
-en-mane kun li. Transformiĝis ankaŭ Kristo; li ne havis plu
+Tina ekkonis belan virinon, kiu sidis sub la kaŝtanarbo manen-mane kun li. Transformiĝis ankaŭ Kristo; li ne havis plu
 
 dornokronon surkape, ankaŭ sangolarmoj ne fluis plu sur liaj
 
@@ -3473,32 +2801,21 @@ vangoj; glata kaj blanka estis lia vizaĝo, gajaj estis liaj okuloj, kiel tiam, 
 
 ŝi … Strange ŝanĝiĝis la bildoj, aperis kaj estingiĝis, revenadis.
 
-Sentis Tina, ke ŝia gardanĝelo luktas kontraŭ la malbona spi-
+Sentis Tina, ke ŝia gardanĝelo luktas kontraŭ la malbona spirito; ŝi premis la rozarion al sia brusto, ŝi preĝis preskaŭ laŭte.
 
-rito; ŝi premis la rozarion al sia brusto, ŝi preĝis preskaŭ laŭte.
+Kaj la bildoj fariĝis pli kaj pli trankvilaj, ŝiaj pensoj leviĝis el la malpura tero kaj pli kaj pli altiĝis. Jam Tina aŭdis la vortojn, kiujn elparolis la lipoj kaj ŝi komprenis ilin … Jes, tie estas la vivo, kie ne troviĝas tiu terura ŝtuparo, nek tiu malhela korto, ĉie ĉirkaŭmasonita. Tie transe de la morto … ŝi sentis malpezon ĉekore; gaja infano levas sian jupeton ĝis la maleolojn,
 
-Kaj la bildoj fariĝis pli kaj pli trankvilaj, ŝiaj pensoj leviĝis el la malpura tero kaj pli kaj pli altiĝis. Jam Tina aŭdis la vortojn, kiujn elparolis la lipoj kaj ŝi komprenis ilin … Jes, tie estas la vivo, kie ne troviĝas tiu terura ŝtuparo, nek tiu malhela korto, ĉie ĉirkaŭmasonita. Tie transe de la morto … ŝi sentis mal-
-
-pezon ĉekore; gaja infano levas sian jupeton ĝis la maleolojn,
-
-ŝi saltis per malpezaj gamboj trans malprofunda kanalo ali-
-
-flanken …
+ŝi saltis per malpezaj gamboj trans malprofunda kanalo aliflanken …
 
 Estis mallaŭte en la mortejo; apenaŭ foje io moviĝetis en
 
-dormo, en sonĝoj. Tina bruligis kandelon sur la ĉelita table-
-
-to. El la kesto ŝi prenis skatoleton da alumetoj kaj malrapide
+dormo, en sonĝoj. Tina bruligis kandelon sur la ĉelita tableto. El la kesto ŝi prenis skatoleton da alumetoj kaj malrapide
 
 laboris, ŝiaj manoj ne tremetis; poste ŝi ŝutis ruĝan polvon en
 
 glason. ŝi deprenis sian veston kaj enlitiĝis, flava tremetanta
 
 kandellumo falis sur la orumitan medalon sur ŝia nuda kolo.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ŝi deprenis de la vando malgrandan nigran krucifikson kaj
@@ -3513,9 +2830,7 @@ Sur la lito, kie kuŝis Manjo, ekzumis.
 
 ŝi ektremis kaj turnis sin rigarde.
 
-Manjo sidis sur la lito, dormeme kaj mire rigardis ŝiaj oku-
-
-loj.
+Manjo sidis sur la lito, dormeme kaj mire rigardis ŝiaj okuloj.
 
 ”ĉu vi ne vokis min, Tina?”
 
@@ -3533,39 +2848,23 @@ mano palpis, ĝi estis apenaŭ tiom forta, ke ĝi povis teni la
 
 plenan glason.
 
-Malrapide kaj duonvoĉe preĝis Tina Patronian, ŝi kunpre-
-
-mis la okulojn kaj eltrinkis ĝisfunde …
+Malrapide kaj duonvoĉe preĝis Tina Patronian, ŝi kunpremis la okulojn kaj eltrinkis ĝisfunde …
 
 Matene sekvatage staris ĉe la lito fratulino Cecilia kaj
 
 kuracisto, kiu bonvole ridetis.
 
-”Stulta infano! … Ne estos io malbona … nu, portu ŝin mal-
+”Stulta infano! … Ne estos io malbona … nu, portu ŝin malsupren!”
 
-supren!”
+Tina ekkonsciis. Senmezura teruro estis en ŝiaj okuloj: daŭre troviĝas ĉirkaŭ ŝi mortecaj vandoj, ĉerkoj staras tie en vico, la mortejo estas eterna.
 
-Tina ekkonsciis. Senmezura teruro estis en ŝiaj okuloj: daŭ-
-
-re troviĝas ĉirkaŭ ŝi mortecaj vandoj, ĉerkoj staras tie en vico, la mortejo estas eterna.
-
-Fratulino Cecilia kaj fratulino Agata, kiu venis el la najba-
-
-ra ĉambro, prenis la korpon de Tina kaj portis ŝin malsupren.
+Fratulino Cecilia kaj fratulino Agata, kiu venis el la najbara ĉambro, prenis la korpon de Tina kaj portis ŝin malsupren.
 
 Manjo sidis surlite kaj tenis en sia mano tason da kafo. ”ŝi
 
-vokis min dumnokte,” ŝi menciis per trankvila, preskaŭ indi-
+vokis min dumnokte,” ŝi menciis per trankvila, preskaŭ indiferentna voĉo. ”Mi sciis, ke ŝi intencas foriri,” diris Brigita kaj sorbsuĉis sian kafon, tenante en la mano grandan bulkon …
 
-
-LA DOMO DE MARIA HELPANTINO
-
-
-ferentna voĉo. ”Mi sciis, ke ŝi intencas foriri,” diris Brigita kaj sorbsuĉis sian kafon, tenante en la mano grandan bulkon …
-
-Fariĝis nokto kaj la knabinoj forgesis pri ŝi. Tina ne reve-
-
-nis plu; sed kiam pli poste en ŝia lito kuŝis infano kaj vidis
+Fariĝis nokto kaj la knabinoj forgesis pri ŝi. Tina ne revenis plu; sed kiam pli poste en ŝia lito kuŝis infano kaj vidis
 
 dumnokte en sia timo grizajn mortejajn vandojn, du grandaj
 
@@ -3578,16 +2877,11 @@ kaj malrespektinda, pasis pretere; sendenta, raŭka oldulino
 murmurante preterpasis kaj raslis per sia rozario.
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 VI
 
 Mankis kelkaj tagoj ĝis Kristnasko. Kaj tiam venis gastoj
 
-al Aloiza. Unue venis elegante vestita sinjoro, envolvi-
-
-ta en varman pelton; li tenis sin iomete klinite, liaj gamboj
+al Aloiza. Unue venis elegante vestita sinjoro, envolvita en varman pelton; li tenis sin iomete klinite, liaj gamboj
 
 estis tre maldikaj, sur lia kapo troviĝis nur malmulte da haroj,
 
@@ -3599,15 +2893,11 @@ iri hejmen dum la feriaj tagoj.
 
 ”Ne!” respondis Aloiza tiel trankvile kaj ŝi alrigardis la
 
-vizaĝon de sia patro tiel malvarme, ke li ne kontinuis deman-
-
-di plu kaj li adiaŭis.
+vizaĝon de sia patro tiel malvarme, ke li ne kontinuis demandi plu kaj li adiaŭis.
 
 Sekvatage venis eleganta damo. ŝi spiris peze, ŝi parolis
 
-haste kaj distre, ŝi devestis siajn gantojn kaj denove ilin ves-
-
-tis, ŝi rigardis ĉirkaŭen, kvazaŭ ŝi iun atendus. ŝi rigardis al
+haste kaj distre, ŝi devestis siajn gantojn kaj denove ilin vestis, ŝi rigardis ĉirkaŭen, kvazaŭ ŝi iun atendus. ŝi rigardis al
 
 Aloiza kun daŭra atenta rigardo de la piedoj ĝis la kapo kaj
 
@@ -3617,20 +2907,13 @@ fine ŝia rigardo haltis ĉe la pantofloj.
 
 ”Do aĉetu al mi aliajn … Kial vi sekve venis?”
 
-”ĉu viaj gamboj ne pliboniĝis?” La damo turnis sin al fra-
-
-tulino Cecilia: ”Kio do pri la gamboj? ĉu ili neniam pliboni-
+”ĉu viaj gamboj ne pliboniĝis?” La damo turnis sin al fratulino Cecilia: ”Kio do pri la gamboj? ĉu ili neniam pliboni-
 
 ĝos? Kion diras la kuracisto?”
 
 De ĉiuj litoj malbonhumoraj okuloj sin turnis al la damo.
 
-Kial ŝi parolas pri gamboj? Kiu donis al ŝi tiun rajton? Prefe-
-
-re ŝi zorgu pri si kaj pri sia ruĝa nazo … Kiam ŝi ĉesas okupiĝi
-
-
-LA DOMO DE MARIA HELPANTINO
+Kial ŝi parolas pri gamboj? Kiu donis al ŝi tiun rajton? Prefere ŝi zorgu pri si kaj pri sia ruĝa nazo … Kiam ŝi ĉesas okupiĝi
 
 
 pri la gamboj, fratulino Cecilia starigas antaŭ la liton tolan
@@ -3639,21 +2922,15 @@ vandon kaj ĉio realiĝas kvazaŭ nenio okazus, neniu okulo
 
 rigardas la turpajn vundojn … Sed la ino venas kaj parolas
 
-meze de la ĉambro — laŭdire ŝi eĉ iris sur la straton kaj de-
-
-mandis al homoj: ”Nu, kio pri la gamboj?”
+meze de la ĉambro — laŭdire ŝi eĉ iris sur la straton kaj demandis al homoj: ”Nu, kio pri la gamboj?”
 
 Fratulino Cecilia movis sian ŝultron kaj ne respondis.
 
-”Stranga malsanulejo!” ekkoleris la damo kaj poste deman-
-
-dis al Aloiza, ĉu ŝi preferas dum festotagoj iri hejmen.
+”Stranga malsanulejo!” ekkoleris la damo kaj poste demandis al Aloiza, ĉu ŝi preferas dum festotagoj iri hejmen.
 
 ”Ne!” respondis Aloiza kaj ne rigardis plu sian patrinon. La
 
-sinjorino pasiplene surmetis la gantojn, tretis tien reen, tur-
-
-nis la rigardon kaj fine foriris.
+sinjorino pasiplene surmetis la gantojn, tretis tien reen, turnis la rigardon kaj fine foriris.
 
 Aloiza sciis, kial ŝi ne volis iri hejmen. Kiam fermiĝis la
 
@@ -3661,23 +2938,15 @@ pordo post la sinjoro, post la damo, ŝiaj ruĝaj lipoj malestime
 
 ŝveliĝis, ŝiaj brovoj kunpremiĝis.
 
-ŝi vidis hejmon, kiu estis bela, vere pli bela ol tiu ĉi gran-
+ŝi vidis hejmon, kiu estis bela, vere pli bela ol tiu ĉi granda ĉambro kun nudaj vandoj kaj dekkvar litoj. Tie sur la van-
 
-da ĉambro kun nudaj vandoj kaj dekkvar litoj. Tie sur la van-
-
-doj troviĝis buntaj tapetoj, bildoj en oraj kadroj pendis ĉir-
-
-kaŭe. Sur la planko kuŝis tapiŝoj kaj oni sidis sur larĝaj, rem-
+doj troviĝis buntaj tapetoj, bildoj en oraj kadroj pendis ĉirkaŭe. Sur la planko kuŝis tapiŝoj kaj oni sidis sur larĝaj, rem-
 
 buritaj seĝoj, oni kuŝis sur molaj sofoj kaj kvieta dormiga
 
-lumo silente venis tra alta fenestro, de malantaŭ pezaj kurte-
+lumo silente venis tra alta fenestro, de malantaŭ pezaj kurtenoj, kiuj etendiĝis ĝisplanken. En la angulo staris eta tablo kaj sur la tableto troviĝis floroj, peza, agrable laciga, dormiga
 
-noj, kiuj etendiĝis ĝisplanken. En la angulo staris eta tablo kaj sur la tableto troviĝis floroj, peza, agrable laciga, dormiga
-
-odoro kuŝis en la ĉambro. Bela estis la ĉambro, sed tute pro-
-
-fanita, plena de malicaj pensoj kaj malicaj vortoj.
+odoro kuŝis en la ĉambro. Bela estis la ĉambro, sed tute profanita, plena de malicaj pensoj kaj malicaj vortoj.
 
 La patro malofte estis hejme, sed kiam li venis, lia vizaĝo
 
@@ -3687,22 +2956,16 @@ patrino. Ili sidis ĉe tablo, lampo brulis inter ili du. La patro
 
 elparolis vorton, tute mallongan, kvazaŭ ĝi hazarde deglitus
 
-de liaj lipoj, kaj tiam ili demetis forkon kaj tranĉilon, iliaj vangoj paliĝis, la lipoj tremetis. Ili leviĝis kaj ili staris unu kontraŭ 69
-
-LA DOMO DE MARIA HELPANTINO
+de liaj lipoj, kaj tiam ili demetis forkon kaj tranĉilon, iliaj vangoj paliĝis, la lipoj tremetis. Ili leviĝis kaj ili staris unu kontraŭ
 
 
-la alia kun kunpremitaj manoj, kun larĝe apertaj okuloj, ple-
-
-naj de malico kaj malamo. ĉiu vorto, elparolita per raŭka
+la alia kun kunpremitaj manoj, kun larĝe apertaj okuloj, plenaj de malico kaj malamo. ĉiu vorto, elparolita per raŭka
 
 voĉo, perforte kraĉita el malpura brusto, estis kiel abomena
 
 sputaĵo; kaj ili ambaŭ estis alsputitaj, komplete de la frunto
 
-ĝis la gamboj aspergitaj. Aloiza ne komprenis tuj dekomen-
-
-ce kaj ŝi ploris; sed poste ŝi komprenis, ŝiaj vangoj denove
+ĝis la gamboj aspergitaj. Aloiza ne komprenis tuj dekomence kaj ŝi ploris; sed poste ŝi komprenis, ŝiaj vangoj denove
 
 estis plenaj kaj ruĝaj, sed ŝiaj okuloj estis maturaj kaj plenaj
 
@@ -3712,9 +2975,7 @@ Kiam envenis gastoj, la patro kaj la patrino estis tute aliaj,
 
 komplete afablaj kaj ĝentilaj. ”Mia dolĉa Mimi!” diris tiam la
 
-patro kaj karesis la patrinon surmane, survange. ”Mia fripo-
-
-neto!” diris la patrino kaj sukeraĉe ridetis. Sed ili ambaŭ estis en tia okazo pli abomenaj ol tiam, kiam ili staris unu kontraŭ
+patro kaj karesis la patrinon surmane, survange. ”Mia friponeto!” diris la patrino kaj sukeraĉe ridetis. Sed ili ambaŭ estis en tia okazo pli abomenaj ol tiam, kiam ili staris unu kontraŭ
 
 la alia kun kunpremitaj pugnoj.
 
@@ -3734,9 +2995,7 @@ li metis sur ŝian gambon, kiu premiĝis al li.
 
 ”ĉu vi deziras vinon, Aloiza?” demandis la patrino.
 
-”Ne, mi ne ŝatas ĝin!” respondis Aloiza, kiu kuŝis sur rem-
-
-burita seĝo kaj ludis per libroj.
+”Ne, mi ne ŝatas ĝin!” respondis Aloiza, kiu kuŝis sur remburita seĝo kaj ludis per libroj.
 
 Ekflustris la sinjoro: ”ĉu ne estus pli bone, se … la infano
 
@@ -3745,9 +3004,6 @@ probable …”
 Aloiza ne komprenis, li kliniĝis al la orelo de la patrino, sed
 
 la patrino ekridis.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ”La infano vidas nenion … diras nenion …”
@@ -3774,9 +3030,7 @@ longa tempo la sinjoro kaj la patrino, ili adiaŭis malvarme, ili
 
 kisis sin reciproke, lipoj apenaŭ tuŝis lipojn.
 
-Venis foje la patro ebria hejmen kaj ĉirkaŭprenis la patri-
-
-non. La patrino komence rifuzis tion, sed baldaŭ ruĝiĝis
+Venis foje la patro ebria hejmen kaj ĉirkaŭprenis la patrinon. La patrino komence rifuzis tion, sed baldaŭ ruĝiĝis
 
 ankaŭ ŝiaj vangoj kaj ŝi ridis laŭte. Aloiza kovris per litkovrilo la kapon por nenion vidi. Sed kvazaŭ la malbona spirito
 
@@ -3794,14 +3048,9 @@ li timema, malriĉe vestita knabino, havanta nur dekkvar
 
 jarojn; en sia mano ŝi portis korbeton da floroj, kiajn infanoj
 
-vendas surstrate kaj en gastejoj. ŝi venis kaj restis ĉe la por-
-
-do kaj ĵetis rigardojn al Aloiza, kiu kuŝis sur la sofo, jam
+vendas surstrate kaj en gastejoj. ŝi venis kaj restis ĉe la pordo kaj ĵetis rigardojn al Aloiza, kiu kuŝis sur la sofo, jam
 
 devestita kaj kovrita. La patro ekridis kaj kaptis ŝin ĉemane.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ”Nu, paŝu antaŭen, knabino, ne timu min!”
@@ -3818,9 +3067,7 @@ Aloiza sentis emon krii al ŝi: ”Fuĝu! Iru hejmen kaj kaŝu vin
 
 en liton!”
 
-Sed la knabino trinkis. Per eta timema mano ŝi prenis gla-
-
-son, iomete fermis la okulojn kaj trinkis; la patro rigardis ŝian vizaĝon per aŭdacaj okuloj, rido montriĝis sur liaj lipoj, liaj
+Sed la knabino trinkis. Per eta timema mano ŝi prenis glason, iomete fermis la okulojn kaj trinkis; la patro rigardis ŝian vizaĝon per aŭdacaj okuloj, rido montriĝis sur liaj lipoj, liaj
 
 sulkoplenaj vangoj pleniĝis per sangogutoj. Li ĉirkaŭprenis
 
@@ -3849,18 +3096,11 @@ mallumo …
 Foje ekkverelis la patro kaj la patrino; la patro frapis la
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 patrinon pugne vizaĝen, la patrino vundgratis liajn vangojn
 
-per siaj ungoj. Post tio ili disiris; la patrino plenigis la valizo-jn kaj foriris. Sed ŝi baldaŭ revenis, la patro mem iris ŝin kun-
+per siaj ungoj. Post tio ili disiris; la patrino plenigis la valizo-jn kaj foriris. Sed ŝi baldaŭ revenis, la patro mem iris ŝin kunpreni. Jam tuj la unuan tagon, kiam ŝi revenis, ili staris unu
 
-preni. Jam tuj la unuan tagon, kiam ŝi revenis, ili staris unu
-
-kontraŭ la alia per kunpremitaj pugnoj, iliaj okuloj estis ple-
-
-naj de malico kaj malamo. Sed disiri ili ne povis; foriris la pat-ro, foriris la patrino, sed ili ambaŭ revenadis hejmen, plene
+kontraŭ la alia per kunpremitaj pugnoj, iliaj okuloj estis plenaj de malico kaj malamo. Sed disiri ili ne povis; foriris la pat-ro, foriris la patrino, sed ili ambaŭ revenadis hejmen, plene
 
 sakrilegiitan kaj sputitan, kaj ĝuste pro tio, ke la hejmo estis
 
@@ -3876,15 +3116,11 @@ okuloj, eksonis surstrate muziko kaj la patrino rapide paŝis al
 
 la fenestro …
 
-En la tempo de kristnasko kaj de pasko ili venis, sed Alo-
-
-iza ne volis iri kun ili; se oni volus ŝin kunirigi perforte, ŝi kro-
+En la tempo de kristnasko kaj de pasko ili venis, sed Aloiza ne volis iri kun ili; se oni volus ŝin kunirigi perforte, ŝi kro-
 
 ĉus sin al la lito per ambaŭ manoj, ŝi mordus per siaj fortaj
 
-dentoj kaj ŝi batus ĉirkaŭ si per siaj pugnoj. Okaze de festo-
-
-tagoj ŝi ricevis kukojn kaj dolĉaĵojn, oranĝojn, paskoovojn; ŝi
+dentoj kaj ŝi batus ĉirkaŭ si per siaj pugnoj. Okaze de festotagoj ŝi ricevis kukojn kaj dolĉaĵojn, oranĝojn, paskoovojn; ŝi
 
 disdonis ĉion tion al siaj kamaradinoj, ŝi mem manĝis de tio
 
@@ -3902,9 +3138,7 @@ irus kun tiel riĉa sinjoro, kun tiel eleganta damo al ilia riĉa
 
 hejmo, en grandan domon, kie troviĝas sufiĉe da ĉiaspecaj
 
-dolĉaĵoj. ĉar ankaŭ Brigita klinis sian kapon flanken kaj 73
-
-LA DOMO DE MARIA HELPANTINO
+dolĉaĵoj. ĉar ankaŭ Brigita klinis sian kapon flanken kaj
 
 
 aŭskultis, kiam la vivo ŝin preteriris, ŝi konsterniĝis kaj ŝi tuj obeus, kiam ekstere preter la fenestro iris la oldulino kaj ŝin
@@ -3913,50 +3147,33 @@ invitis …
 
 Sed la hejmo de Brigita ne estis bela. i troviĝis tie ie en la
 
-antaŭurbo, kie la domoj, apenaŭ finmasonitaj, jam estas mal-
-
-novaj kaj splenaj. Ili loĝis en la teretaĝo, en du humidaj ĉam-
+antaŭurbo, kie la domoj, apenaŭ finmasonitaj, jam estas malnovaj kaj splenaj. Ili loĝis en la teretaĝo, en du humidaj ĉam-
 
 broj, kie ĉio estis malhela, frida, malafabla. Nur proksime al
 
-vespero ekbrilis iomete da suno, sed ĝi tuj malaperis malan-
-
-taŭ la alta tegmento, ja la korto estis malvasta kaj ĉiuflanke
+vespero ekbrilis iomete da suno, sed ĝi tuj malaperis malantaŭ la alta tegmento, ja la korto estis malvasta kaj ĉiuflanke
 
 staris tre altaj muroj.
 
 Multaj homoj loĝis en tiuj du ĉambroj; ili venis malfrue
 
-vespere por dormi, sed antaŭ ol ili endormiĝis, ili ludis kar-
-
-tojn, ili laŭte interparolis kaj ridis, ili ankaŭ ofte kverelis kaj foje ili malfrue en la nokto portis el la ĉambro ebrian homon,
+vespere por dormi, sed antaŭ ol ili endormiĝis, ili ludis kartojn, ili laŭte interparolis kaj ridis, ili ankaŭ ofte kverelis kaj foje ili malfrue en la nokto portis el la ĉambro ebrian homon,
 
 vunditan per tranĉilo. Kvin viroj estis, ĉiuj laboristoj; unu el
 
-ili havis kun si amatinon kaj infanon, sed la infano estis mal-
-
-sana kaj baldaŭ mortis. La patrino de Brigita estis bela kaj for-
+ili havis kun si amatinon kaj infanon, sed la infano estis malsana kaj baldaŭ mortis. La patrino de Brigita estis bela kaj for-
 
 tika virino; ŝi ne laboris multe; ŝi sidis ĉe la tablo kaj gaje
 
-interparolis, posttagmeze ŝi dormis. La patro estis magra, pal-
+interparolis, posttagmeze ŝi dormis. La patro estis magra, palhaŭta kaj timema, li paŝis kun klinita kapo kaj malmulte
 
-haŭta kaj timema, li paŝis kun klinita kapo kaj malmulte
-
-parolis; li laboris dum la tuta tago kaj la monon, kiun li per-
-
-laboris, li donis al la patrino. Foje — sabate, kiam troviĝis
+parolis; li laboris dum la tuta tago kaj la monon, kiun li perlaboris, li donis al la patrino. Foje — sabate, kiam troviĝis
 
 multe da mono en la domo — ili preparis belan vesperon, ili
 
-manĝis kaj trinkis ĝis malfrue en la nokto, iu ludis akordeo-
-
-non, aliaj dancis. Trinkis ankaŭ Brigita, ŝi sidis sur la lito, ŝi rigardis kaj ridis. Kiam jam fariĝis malfrue, ĉiuj laŭvice ĉir-kaŭprenis ŝian patrinon kaj ŝin kisis, kaj la patrino estis gaja, ŝia vizaĝo estis tute ruĝa kaj ŝi ridis sonore. Poste ili iris en alian ĉambron, brue fermiĝis la pordo kaj aŭdiĝis stranga
+manĝis kaj trinkis ĝis malfrue en la nokto, iu ludis akordeonon, aliaj dancis. Trinkis ankaŭ Brigita, ŝi sidis sur la lito, ŝi rigardis kaj ridis. Kiam jam fariĝis malfrue, ĉiuj laŭvice ĉir-kaŭprenis ŝian patrinon kaj ŝin kisis, kaj la patrino estis gaja, ŝia vizaĝo estis tute ruĝa kaj ŝi ridis sonore. Poste ili iris en alian ĉambron, brue fermiĝis la pordo kaj aŭdiĝis stranga
 
 krio, rido, aŭdiĝis tumulto kaj renversado. La patro restis ĉe
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Brigita, li estis pala kaj liaj okuloj brilis strange. Li marŝis en la ĉambro kvazaŭ ebria, poste li ekkuŝis, sed li ne endormiĝis,
@@ -3967,9 +3184,7 @@ ankaŭ Francisko, forĝisto; altstatura kaj forta fraŭlo li estis,
 
 liaj manoj estis nigraj. Li venis kaj la patrino lin salutis afable, ŝi portis por li vespermanĝon kaj ili sidiĝis kaj vespermanĝis.
 
-Post la vespermanĝo la patrino demetis bluzon, tiel ke ape-
-
-ris nudaj brakoj kaj Francisko ŝin ĉirkaŭprenis kaj ŝin kisis kaj ankaŭ ŝi metis siajn nudajn brakojn ĉirkaŭ lian kolon. Post tio
+Post la vespermanĝo la patrino demetis bluzon, tiel ke aperis nudaj brakoj kaj Francisko ŝin ĉirkaŭprenis kaj ŝin kisis kaj ankaŭ ŝi metis siajn nudajn brakojn ĉirkaŭ lian kolon. Post tio
 
 la patrino ekkuŝis en la lito sur litkovrilo kaj laŭte ridis, siajn manojn ŝi metis subkapen kaj ŝiaj mamoj spirleviĝis alten.
 
@@ -3981,9 +3196,7 @@ havas vespermanĝon, tie vi manĝu!” La patro sin turnis, sed
 
 kiam li jam atingis la pordon, li revenis, li balancis kvazaŭ
 
-ebria, paŝis al Francisko kaj Francisko ekkriis kaj puŝis la pat-
-
-ron brusten, tiel ke li koliziis kontraŭ la muro, sed poste li
+ebria, paŝis al Francisko kaj Francisko ekkriis kaj puŝis la patron brusten, tiel ke li koliziis kontraŭ la muro, sed poste li
 
 mem kunfalis kaj la planko pleniĝis de sango. La patrino saltis
 
@@ -4002,16 +3215,11 @@ pli. Viva kaj klara tamen estis en ŝia koro tiu vespero, kiam ŝi
 travivis strangan ĝojon, teruran kaj belan samtempe. Loĝis tie
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 laboristo, turpa kaj senkaraktera homo. Akvapale kaj senfide
 
 rigardis liaj okuloj, liaj brakoj kaj gamboj estis longaj kaj mallertaj, kvazaŭ simiaj, li malmulte parolis, kiam aliaj gajis, reti-riĝis kaj kaŝiĝis lia malkonstanta rigardo. Nur unufoje vidis
 
-Brigita, kiel vekiĝis la vivo en li; sola li estis hejme, sidante ĉe la tablo, kiam venis el la alia ĉambro la amatino de la laboristo, malaltstatura kaj dika, mallerta ino, ĉiam malpura kaj sen-
-
-zorge vestita; ŝi iris preter la tablo kaj li subite etendis sian longan brakon, tiris la inon al si kaj komencis ŝiri la bluzon
+Brigita, kiel vekiĝis la vivo en li; sola li estis hejme, sidante ĉe la tablo, kiam venis el la alia ĉambro la amatino de la laboristo, malaltstatura kaj dika, mallerta ino, ĉiam malpura kaj senzorge vestita; ŝi iris preter la tablo kaj li subite etendis sian longan brakon, tiris la inon al si kaj komencis ŝiri la bluzon
 
 de ŝia brusto, tiel ke ŝi momente estis tute nudigita. ŝi staris
 
@@ -4019,9 +3227,7 @@ kaj miris kaj ne diris ion alian ol: ”Nu nu!” Sed li ŝin kaptis kaj ŝin pu
 
 ne fermis post si. Kiam la ino revenis, ŝi ridis kaj daŭre miris:
 
-”Kia homo! Kia besto!” ŝi ridis duonvoĉe kaj iris en la kuire-
-
-jon … Dum dimanĉoj Brigita estis sola hejme, ĉiuj aliaj iris for
+”Kia homo! Kia besto!” ŝi ridis duonvoĉe kaj iris en la kuirejon … Dum dimanĉoj Brigita estis sola hejme, ĉiuj aliaj iris for
 
 kaj ne revenis ĝis nokto. Ili ŝlosis ŝin en la ĉambron kaj ŝi
 
@@ -4040,9 +3246,6 @@ okulstreĉis en lian vizaĝon kiel sorĉita kaj tremetis. Tiel li
 alpaŝis ŝin, ĵetis la litkovrilon surplanken kaj klinis sin profun-de al ŝi. En la lito kuŝis juna korpo, malbela kaj ĝibohava, ĝi
 
 tordiĝis kaj tremetis, ŝia brusto ĝemis … Ek de tiam ŝiaj okuloj
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 postrigardis lin, kie ajn li iris, ili timis kaj vokis lin. Sed li ne turnis plu sian rigardon kaj venis neniam plu.
@@ -4075,49 +3278,32 @@ jam meznokto. En la lito, en krepusko, kuŝas la malgranda
 
 frato, li estas dekovrita kaj ŝvitoplena, lia duonaperta buŝo
 
-haste malfacile spiras; nun li ekĝemis, li ekscitiĝis en la dor-
+haste malfacile spiras; nun li ekĝemis, li ekscitiĝis en la dormo. ĉe la tablo sidas la patrino kaj kudras, ŝia kapo kliniĝas
 
-mo. ĉe la tablo sidas la patrino kaj kudras, ŝia kapo kliniĝas
-
-profunde; ŝia mano moviĝas rapide, la kudrilo enpikas egal-
-
-ritme, senĉese. Sed nun haltis la mano, la okuloj streĉe rigar-
+profunde; ŝia mano moviĝas rapide, la kudrilo enpikas egalritme, senĉese. Sed nun haltis la mano, la okuloj streĉe rigar-
 
 das kaj nenion vidas, trankvile gutas larmoj senĉese, jam ili
 
 fosis du sulkojn sur ŝiaj vangoj … Malproksime tio ĉi estis, ne
 
-plu estis la hejmo, ŝi sentus timon, se ŝi kuŝus tie sur la mal-
-
-nova sofo, ne povante endormiĝi kaj aŭskultante ĝis malfrua
+plu estis la hejmo, ŝi sentus timon, se ŝi kuŝus tie sur la malnova sofo, ne povante endormiĝi kaj aŭskultante ĝis malfrua
 
 mateno, kiel eksonas sopiroj, obtuzaj ĝemoj — el la nokto,
 
 Dio nur scias de kie, venus la sonoj de la vunditoj, perditoj …
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Sed antaŭ tio foje hejme estis gaje kaj feste. Venis al ili juna
 
-kaj bele vestita viro; gaja li estis ĉiam kaj laŭtvoĉa, primave-
+kaj bele vestita viro; gaja li estis ĉiam kaj laŭtvoĉa, primavero venis kun li en la domon. La patrino tute ŝanĝiĝis; ŝiaj oku-
 
-ro venis kun li en la domon. La patrino tute ŝanĝiĝis; ŝiaj oku-
+loj ridis kiel antaŭe neniam, ŝi vestis sin bele, hejme ŝi portis belajn ŝuetojn kun maŝo, puntan antaŭtukon, kaj kiam ŝi foriris dehejme kaj ŝin akompanis la juna sinjoro, ŝi portis surkape ĉapelon kun floraj kaj silkaj rubandoj, sur la manoj ŝi
 
-loj ridis kiel antaŭe neniam, ŝi vestis sin bele, hejme ŝi portis belajn ŝuetojn kun maŝo, puntan antaŭtukon, kaj kiam ŝi foriris dehejme kaj ŝin akompanis la juna sinjoro, ŝi portis sur-
-
-kape ĉapelon kun floraj kaj silkaj rubandoj, sur la manoj ŝi
-
-portis gantojn, ĉirkaŭ sia manradiko ŝi portis orumitan bra-
-
-celeton. En dimanĉaj vesperoj staris vinboteloj sur la tablo kaj
+portis gantojn, ĉirkaŭ sia manradiko ŝi portis orumitan braceleton. En dimanĉaj vesperoj staris vinboteloj sur la tablo kaj
 
 kiam fariĝis malfrue, la patrino preparis teon kaj poste ŝi iris
 
-kun la sinjoro en la ĉambron. Tie ankoraŭ tintis glasoj, aŭdi-
-
-ĝis flustrado profunde en la nokton. Manjo estis narkotita de
+kun la sinjoro en la ĉambron. Tie ankoraŭ tintis glasoj, aŭdiĝis flustrado profunde en la nokton. Manjo estis narkotita de
 
 la vino, de la teo, de belaj pensoj kaj baldaŭ ekdormis. Kiam
 
@@ -4135,9 +3321,7 @@ same ne sopiroj el ŝia buŝo; eĉ dumnokte, kiam ŝi sidis ĉe la
 
 tablo kaj brulis la lampo kaj ekstere jam leviĝis nebula aŭroro,
 
-troviĝis rideto sur ŝiaj bruliĝintaj lipoj … Manjo ne povis ek-
-
-dormi, ĉar doloris ŝia vundo kaj tiam ili interparolis serioze,
+troviĝis rideto sur ŝiaj bruliĝintaj lipoj … Manjo ne povis ekdormi, ĉar doloris ŝia vundo kaj tiam ili interparolis serioze,
 
 per flustraj voĉoj. Rakontis la patrino, ke jam tre proksimiĝis
 
@@ -4154,9 +3338,6 @@ Sed oni turnas rigardon al la lito kaj ĉio haltas, la mano ne
 movas sin plu, kvazaŭ farita el plumbo … Baldaŭ estos alie,
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Manjo; nur plu unu jaron, ne pli, eĉ malpli ol unu jaron, kaj
 
 tio pasas tiom rapide. Nun baldaŭ venos kristnasko, poste
@@ -4165,9 +3346,7 @@ pasko — kvazaŭ tio jam estus morgaŭ, ŝajnas al mi. Poste ni
 
 ne restos plu ĉi tie, Manjo. Ni transloĝiĝos en alian loĝejon,
 
-ni aranĝos al ni tute novan meblaron. Mi jam scias, kiel aran-
-
-ĝi al ni loĝejon, mi jam ĉion bone pripensis … ” Kaj la patri-
+ni aranĝos al ni tute novan meblaron. Mi jam scias, kiel aranĝi al ni loĝejon, mi jam ĉion bone pripensis … ” Kaj la patri-
 
 no rakontis, kiamaniere ŝi planas aranĝi la loĝejon. ĉion ŝi
 
@@ -4179,9 +3358,7 @@ preter malhelruĝaj kurtenoj. Manjo aŭskultis gaja kaj kiam ŝi
 
 ekdormis, ŝi transloĝiĝis en tiujn sinjorecajn ĉambrojn; en
 
-bela jupo ŝi sidis sur sofo, tapiŝoj kuŝis sur la planko, de pla-
-
-fono pendis lustro kaj sur eta tablo, tiel ke ŝi povis ĝin atingi permane, staris kovrita plektita korbeto, plena de konfitaĵoj
+bela jupo ŝi sidis sur sofo, tapiŝoj kuŝis sur la planko, de plafono pendis lustro kaj sur eta tablo, tiel ke ŝi povis ĝin atingi permane, staris kovrita plektita korbeto, plena de konfitaĵoj
 
 … Venis kristnasko kaj venis pasko, sed la juna sinjoro foriris
 
@@ -4193,9 +3370,7 @@ akompanis lin kaj kiam ŝi revenis, ŝi daŭre ploris; ankaŭ Manjo estis plena 
 
 skribi; sed neniam li skribis kaj neniam li revenis. La unuan
 
-nokton post lia adiaŭo la patrino laboris ĉe la tablo; ŝiaj lar-
-
-moj glitis silente, ŝi eĉ ne eksopiris. Sed subite ŝi ploris laŭ-
+nokton post lia adiaŭo la patrino laboris ĉe la tablo; ŝiaj larmoj glitis silente, ŝi eĉ ne eksopiris. Sed subite ŝi ploris laŭ-
 
 te. ”Neniam plu li venos, neniam plu!” — Kaj vere li ne venis.
 
@@ -4214,44 +3389,28 @@ streĉitaj okuloj, kiam de fore proksimiĝis nedistingebla vira
 staturo — sed tiu homo turnis en flankan strateton, Dio scias,
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 pri kiu temis … ŝiaj haroj fariĝis nun grizaj kaj ŝi ne vestis sin plu bele; ĉio kuŝis neuzita en la ŝranko: la ruĝaj ŝuetoj kun la
 
 maŝo, la punta antaŭtuko, la primavera ĉapelo kun la floroj
 
 kaj la silkaj rubandoj.
 
-Manjo ne deziris iri hejmen, nur en ŝia memoro plu tro-
-
-viĝis la hejmo, en ŝia koro ĝi ne ekzistis plu. La sufero estas
+Manjo ne deziris iri hejmen, nur en ŝia memoro plu troviĝis la hejmo, en ŝia koro ĝi ne ekzistis plu. La sufero estas
 
 tie ekstere, nura tristo kaj amaro. Malice rigardas la okuloj kaj se ili rigardas milde, ili plenas de larmoj. Jes, nenio alia krom la malico kaj sufero. Sed en ŝia koro restis tiu neklara bildo,
 
-restis tiuj belaj sonĝoj pri ”alia vivo”. Manjo esperis pri la alia vivo, sed ŝi esperis apenaŭ konscie, sen larmoj kaj sen sufero. Tie la ĉielo klaras, senfinas, ĉio kvietas, nenio profaniĝas; vastiĝas verdaj herbejoj, buntaj ĝardenoj en senfino; ĉiuj viza-
-
-ĝoj tie estas trankvilaj kaj afablaj kaj la okuloj rigardas ĝoje.
-
-
-LA DOMO DE MARIA HELPANTINO
+restis tiuj belaj sonĝoj pri ”alia vivo”. Manjo esperis pri la alia vivo, sed ŝi esperis apenaŭ konscie, sen larmoj kaj sen sufero. Tie la ĉielo klaras, senfinas, ĉio kvietas, nenio profaniĝas; vastiĝas verdaj herbejoj, buntaj ĝardenoj en senfino; ĉiuj vizaĝoj tie estas trankvilaj kaj afablaj kaj la okuloj rigardas ĝoje.
 
 
 VII
 
-De ĉiuj flankoj aŭdiĝis sonorado, de oriento kaj de okci-
-
-dento; de la senlima ĉielo fluis kristnaskaj kantoj, ili
+De ĉiuj flankoj aŭdiĝis sonorado, de oriento kaj de okcidento; de la senlima ĉielo fluis kristnaskaj kantoj, ili
 
 fontŝprucis el la vintra tero.
 
-Tio estis la tago, kiam naskiĝis la Homo kaj ĉiuj koroj mal-
+Tio estis la tago, kiam naskiĝis la Homo kaj ĉiuj koroj malfermiĝis por Lia laŭdo kaj amo, ĉiuj koroj eksopiris al Li.
 
-fermiĝis por Lia laŭdo kaj amo, ĉiuj koroj eksopiris al Li.
-
-Survojiĝis al Li miloj da afliktitaj, vunditaj koroj. ĉiuj kom-
-
-patindaj, malrespektitaj, malakceptitaj homoj survojiĝis, ili
+Survojiĝis al Li miloj da afliktitaj, vunditaj koroj. ĉiuj kompatindaj, malrespektitaj, malakceptitaj homoj survojiĝis, ili
 
 faris senfinan procesion. ĉiuj, kiuj de la vivo estis batitaj de
 
@@ -4259,9 +3418,7 @@ la solida pugno, malfermis siajn lacajn okulojn kaj movis siajn
 
 vunditajn membrojn, ili marŝis kaj portis siajn korojn en Lian
 
-direkton. La krucumita Homo akceptis ĉiujn, neniun Li for-
-
-gesis, kiu al Li proksimiĝis, al ĉiuj li disdonis multvalorajn
+direkton. La krucumita Homo akceptis ĉiujn, neniun Li forgesis, kiu al Li proksimiĝis, al ĉiuj li disdonis multvalorajn
 
 donacojn. Kaj ili sentis dankemon al Li kaj ili fidis je Li. La
 
@@ -4277,30 +3434,22 @@ de la vivo, la koro pilgrimis al Li, en la landon de la konsola
 
 espero, de la forgesita sufero.
 
-Eksonoris la kristnaskaj sonoriloj de oriento kaj de okci-
-
-dento kaj ĉie vekiĝis vunditoj kaj malakceptitoj kaj leviĝis. La
+Eksonoris la kristnaskaj sonoriloj de oriento kaj de okcidento kaj ĉie vekiĝis vunditoj kaj malakceptitoj kaj leviĝis. La
 
 sufero festis sian grandan feston de la espero kaj de la gloro;
 
-ili estis konsolitaj, kiuj ekvidis, ke trans Kalvario gvidas la vojo 81
-
-LA DOMO DE MARIA HELPANTINO
+ili estis konsolitaj, kiuj ekvidis, ke trans Kalvario gvidas la vojo
 
 
 en la gajan eternon. Ili estis fieraj kaj rigardis venkkonscie,
 
 kiuj sciis, ke ili troviĝas en Li kaj ke ili fariĝis parto de Li, ĉar ili estis skurĝitaj kaj per dornkrono kronitaj …
 
-Tiel ili festis sian feston, kiam la Homo komencis sian glor-
-
-havan vojon. Ne ekzistis en tiu nokto povra koro, kiu ne ek-
+Tiel ili festis sian feston, kiam la Homo komencis sian glorhavan vojon. Ne ekzistis en tiu nokto povra koro, kiu ne ek-
 
 tremetus gaje; apenaŭ ĝi komprenis la ĝojon, kiu ŝaŭmleviĝis
 
-ĝispinten; apenaŭ ekkonsciis la malrespektito kaj la malakce-
-
-ptito kaj al ĉiu el ili estis kvazaŭ en sonĝoj, kiam li aŭdis la
+ĝispinten; apenaŭ ekkonsciis la malrespektito kaj la malakceptito kaj al ĉiu el ili estis kvazaŭ en sonĝoj, kiam li aŭdis la
 
 konsolajn vortojn kaj kiam li eksentis la kompatindan manon
 
@@ -4314,9 +3463,7 @@ kaj miloj da torĉoj, leviĝis la senfinaj flamoj, tremetis ili kaj flirtis kaj 
 
 ”Hodiaŭ promenas anĝeloj sur la tero,” diris Antonia. Gaja
 
-kvieto estis en la ĉambro, ĝi brilis en la okuloj kaj sur la van-
-
-goj, ĝi spiriĝis en la aero, ĝi kovris la blankajn vandojn. Kaj
+kvieto estis en la ĉambro, ĝi brilis en la okuloj kaj sur la vangoj, ĝi spiriĝis en la aero, ĝi kovris la blankajn vandojn. Kaj
 
 ĉiuj knabinoj sentis, ke anĝeloj promenas sur la tero, ke ili
 
@@ -4330,25 +3477,15 @@ La kripo jam estis preparita. Antaŭ ĝi brulis kandelo en
 
 ruĝa glaso, sed sur la kripo mem kaj super ĝi troviĝis etaj
 
-buntaj kandeletoj, brulantaj per sveltaj altaj flamoj. La or-
-
-kolora anĝelo, pendanta de la plafono, brilis en stranga flirt-
+buntaj kandeletoj, brulantaj per sveltaj altaj flamoj. La orkolora anĝelo, pendanta de la plafono, brilis en stranga flirt-
 
 anta kaj tremetanta lumo kaj brilis ankaŭ la granda stelo,
 
 troviĝanta super la betlehema stalo.
 
-Ili longe ne povis endormiĝi; ĉiuj knabinoj, kiuj povis elliti-
+Ili longe ne povis endormiĝi; ĉiuj knabinoj, kiuj povis ellitiĝi, preparis sin por la noktomeza diservo kaj iliaj koroj estis
 
-
-LA DOMO DE MARIA HELPANTINO
-
-
-ĝi, preparis sin por la noktomeza diservo kaj iliaj koroj estis
-
-plenaj de sankta atendo. Ili kuŝis duone vestitaj kaj interpa-
-
-rolis per flustrantaj voĉoj. Ne aŭdiĝis rido, ankaŭ gaja vorto
+plenaj de sankta atendo. Ili kuŝis duone vestitaj kaj interparolis per flustrantaj voĉoj. Ne aŭdiĝis rido, ankaŭ gaja vorto
 
 ne aŭdiĝis, ĉar anĝeloj estis en la ĉambro … Estis tiunokte,
 
@@ -4358,15 +3495,11 @@ grandaj blankaj flugiloj, Dipatrino, eta povra Jesuo, kuŝanta
 
 en la kripo, kaj la paŝtistoj tie surgenuantaj — ĉio estis tiel
 
-proksime kaj hejmece, neniu mistero, neniu neatingebla glo-
-
-ro.
+proksime kaj hejmece, neniu mistero, neniu neatingebla gloro.
 
 La flustrado estis pli kaj pli mallaŭta, iom post iom kovriĝis
 
-la palpebroj surokule, sed la koro estis veka. ĉiam pli prok-
-
-simen descendis la ĉielo, ĝi lokiĝis en la ĉambro. Antonia
+la palpebroj surokule, sed la koro estis veka. ĉiam pli proksimen descendis la ĉielo, ĝi lokiĝis en la ĉambro. Antonia
 
 kuŝis rande de la lito sur litkovrilo, unu mano troviĝis sub ŝia
 
@@ -4376,9 +3509,7 @@ Manjo iomete ekdormetis, sed kiam ŝi kunpremis okulojn,
 
 okazis io mirinda: heliĝis, tagiĝis, blanka kaj trankvila lumo,
 
-kiel printempa lunbrilo disverŝiĝis en la ĉambro; la tuta ĉam-
-
-bro plenis de anĝeloj kaj malantaŭe surtrone sidis Dipatrino
+kiel printempa lunbrilo disverŝiĝis en la ĉambro; la tuta ĉambro plenis de anĝeloj kaj malantaŭe surtrone sidis Dipatrino
 
 kun Jesuo ensine, kaj la vizaĝo de Dipatrino estis kiel la vizaĝo de fratulino Cecilia, ankaŭ blankajn kufflugilojn de la
 
@@ -4390,17 +3521,9 @@ granda distanco, estis kiel la sono de tiuj sonĝoj, kiuj venis el la ĉielo; se
 
 ili vekiĝis. Fratulino Cecilia faris lumon; ili rapide sin vestis, ankoraŭ duondorme kaj silente, poste la procesio ekmarŝis al
 
-la kapelo tra la longa kaj malhela koridoro. Lace, peze spiran-
+la kapelo tra la longa kaj malhela koridoro. Lace, peze spirante, senvorte serpentis la nokta procesio, kelkie ekbrilis dor-
 
-
-LA DOMO DE MARIA HELPANTINO
-
-
-te, senvorte serpentis la nokta procesio, kelkie ekbrilis dor-
-
-mema lampeto, lumigante povrajn etajn korpojn, malakcep-
-
-titajn, kondamnitajn; kaj el tiuj etaj vizaĝoj, tro frue maturaj, jam sulkigitaj, rigardis okuloj, plenaj de gaja atendado, plenaj de rekono. Jam sereniĝis fore: tie estis la lumo kaj Kristo
+mema lampeto, lumigante povrajn etajn korpojn, malakceptitajn, kondamnitajn; kaj el tiuj etaj vizaĝoj, tro frue maturaj, jam sulkigitaj, rigardis okuloj, plenaj de gaja atendado, plenaj de rekono. Jam sereniĝis fore: tie estis la lumo kaj Kristo
 
 estis tie, al kiu ili marŝis …
 
@@ -4418,55 +3541,36 @@ ekstera neĝo, de la ĉielo, sennuba kaj senkolora, plena de
 
 blankaj steloj. Baldaŭ eksilentis en la koridoro, malproksime
 
-jam pasis la procesio, nur el granda distanco plu aŭdiĝis tin-
-
-tado de arĝentaj sonoriletoj, aŭdiĝis obtuzaj kristnaskaj kan-
+jam pasis la procesio, nur el granda distanco plu aŭdiĝis tintado de arĝentaj sonoriletoj, aŭdiĝis obtuzaj kristnaskaj kan-
 
 toj. Dolĉa kaj mistera zumo venis kvazaŭ el katakomboj, el
 
-subteraj, belege lumigitaj temploj, en kiuj blanke vestitaj vir-
-
-gulinoj kantas gloron al la nove naskita Savanto …
+subteraj, belege lumigitaj temploj, en kiuj blanke vestitaj virgulinoj kantas gloron al la nove naskita Savanto …
 
 Estis mallumo en la ĉambro; briletis blanke de la neĝo tie
 
 ekstere kaj de la steloj, lumetoj en la kripo dormeme kaj
 
-melankolie flirtis kaj flava lumo balancis sur plafono en la for-
-
-mo de malvasta zono.
+melankolie flirtis kaj flava lumo balancis sur plafono en la formo de malvasta zono.
 
 Katinjo estis veka; dum ŝi promenis per sia rigardo dise en
 
-la ĉambro, ŝi iom post iom distingis la blankajn litojn, ŝi dis-
+la ĉambro, ŝi iom post iom distingis la blankajn litojn, ŝi distingis ankaŭ kapojn, kiuj moviĝis sur kapkusenoj. Foje aŭdiĝis
 
-tingis ankaŭ kapojn, kiuj moviĝis sur kapkusenoj. Foje aŭdiĝis
-
-peza spirado, stertorado, moviĝis litkovrilo, kelkiu mano levi-
-
-ĝis kaj svingis en aero … Profunde en katakomboj oni kantis
+peza spirado, stertorado, moviĝis litkovrilo, kelkiu mano leviĝis kaj svingis en aero … Profunde en katakomboj oni kantis
 
 gajajn kantojn, obtuze, mallaŭte ili foje alzumis supren, estis,
 
-kvazaŭ anĝeloj singarde paŝus kun siaj tintantaj oraj sanda-
-
-loj sur la tintanta planko.
-
-
-LA DOMO DE MARIA HELPANTINO
+kvazaŭ anĝeloj singarde paŝus kun siaj tintantaj oraj sandaloj sur la tintanta planko.
 
 
 Sola volis esti Katinjo kaj en mallumo, ĉar ŝi dum la tuta
 
-vespero estis malĝoja. Morgaŭ venos la patrino kaj kunpor-
-
-tos al ŝi kukon, envolvitan en papero. La patrino aperos kliniĝinta kaj askete maldika kaj kompatinda, ŝiaj okuloj plenos de larmoj. Kiam ŝi metos la paperon sur la litkovrilon, ŝia
+vespero estis malĝoja. Morgaŭ venos la patrino kaj kunportos al ŝi kukon, envolvitan en papero. La patrino aperos kliniĝinta kaj askete maldika kaj kompatinda, ŝiaj okuloj plenos de larmoj. Kiam ŝi metos la paperon sur la litkovrilon, ŝia
 
 mano tremetos, osteca, sulkoplena, kalohava. Kaj, kvazaŭ ŝi
 
-volus peti: ”Mi ne povis kunporti al vi ion alian; eĉ tio, Katin-
-
-jo, jen … ” Katinjo sciis, kion la patrino volas diri: ”Eĉ tion,
+volus peti: ”Mi ne povis kunporti al vi ion alian; eĉ tio, Katinjo, jen … ” Katinjo sciis, kion la patrino volas diri: ”Eĉ tion,
 
 Katinjo, mi elpremis el mia sensuka korpo, en kiu apenaŭ plu
 
@@ -4476,9 +3580,7 @@ prenas la sanktan hostion. La patrina sango troviĝas en tiu ĉi
 
 pano …”
 
-Hejme, nature, ne troviĝas kripo, same ne kristnaska arbe-
-
-to, ne lumoj, ne ĝojo. Nur infanoj troviĝas en la domo, la pat-
+Hejme, nature, ne troviĝas kripo, same ne kristnaska arbeto, ne lumoj, ne ĝojo. Nur infanoj troviĝas en la domo, la pat-
 
 ro sidas en gastejo, la patrino vagadas, Dio scias, kie. Kaj la infanoj kunpremiĝis en angulo, ili ne sentas timon, ili babilas
 
@@ -4486,15 +3588,11 @@ pri kristnasko kaj pri kukoj, pri kripo kaj kristnaska arbeto.
 
 Kvazaŭ ili ne vidus, kiel ekstere jam brilas, kiel ĉie bruliĝas
 
-ĉiaspecaj lumoj, kiel jam aŭdiĝas kantoj de oriento ĝis okci-
-
-dento. Ili skuiĝas de frosto, sed la okuloj rigardas ien mal-
+ĉiaspecaj lumoj, kiel jam aŭdiĝas kantoj de oriento ĝis okcidento. Ili skuiĝas de frosto, sed la okuloj rigardas ien mal-
 
 proksimen, varme estas en la animoj, kiuj revas. Horoj pasas,
 
-mallumo estas, infanoj atendas la patrinon kaj ili sentas var-
-
-mon pro ĝoja atendado. Kie vagadas la patrino, kiu estus
+mallumo estas, infanoj atendas la patrinon kaj ili sentas varmon pro ĝoja atendado. Kie vagadas la patrino, kiu estus
 
 devinta kunporti viandon kaj eble eĉ pomojn kaj nuksojn?
 
@@ -4507,18 +3605,13 @@ korpe. ŝi estus ilin vokinta al si, ĉiujn, la infanojn kaj la patrinon, por il
 kaj bone estas ĉi tie kaj da ĉio troviĝas sufiĉe … ŝi estus vokin-ta la patrinon al si — kaj ŝi ekkriis, tiel ke ŝi en duonsonĝo
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 aŭdis sian voĉon kaj por momento vekiĝis. Silento estis;
 
 trankvile kaj dormeme brulis la lumoj en la kripo … ”Patrino!”
 
 … La okuloj fermiĝis kaj ĉio troviĝis antaŭ ŝi klare kaj tute
 
-korpe … La patrino estis laca, ŝi ja vagadis dum la tuta vespe-
-
-ro, la tutan longan jaron kaj la tutan longan vivon. Laca ŝi
+korpe … La patrino estis laca, ŝi ja vagadis dum la tuta vespero, la tutan longan jaron kaj la tutan longan vivon. Laca ŝi
 
 estis, ŝi kuŝiĝis kaj endormis; ŝia vizaĝo estis blanka kaj trankvila, ŝiaj lipoj eĉ ridetis. La infanoj estis timiĝintaj, ili ploris, ne sciante, pro kio — mallumo estis en la ĉambro kaj
 
@@ -4530,9 +3623,7 @@ okuloj ne adaptis sin tuj al mallumo — sed kiam li ekvidis,
 
 kiam li rekonis la situacion, li saltpaŝis al la lito kaj ekkriis …
 
-ŝi aŭdis lian krion, ŝi ektimis kaj vekiĝis duafoje. La krist-
-
-naskaj kantoj obtuze leviĝis el katakomboj, trankvile brulis
+ŝi aŭdis lian krion, ŝi ektimis kaj vekiĝis duafoje. La kristnaskaj kantoj obtuze leviĝis el katakomboj, trankvile brulis
 
 lumoj en la kripo. Apenaŭ ŝi ekkonsciis pri la kantoj kaj pri la
 
@@ -4542,9 +3633,7 @@ denove fermiĝis.
 
 Tiam malfermiĝis la pordo senbrue kaj venis la patrino. En
 
-longan lantukon ŝi estis envolvita, kliniĝinta ŝi estis kaj time-
-
-ma kiel ĉiam. Sed ŝia vizaĝo estis mire blanka kaj mire bele
+longan lantukon ŝi estis envolvita, kliniĝinta ŝi estis kaj timema kiel ĉiam. Sed ŝia vizaĝo estis mire blanka kaj mire bele
 
 rigardis ŝiaj timemaj okuloj. Ne estis plu faldetoj sur ŝiaj
 
@@ -4563,14 +3652,9 @@ kvazaŭ ĝi ĵus antaŭe ekflorus el ŝiaj maldikaj blankaj fingroj.
 ankaŭ al vi, ĉar ĉe vi estas tiel bele kaj agrable, por vin vidi kaj por vin karesi.” Kliniĝis la patrino eĉ pli suben, tuŝante per
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 siaj lipoj la malsanajn manojn de Katinjo, poste ankaŭ ŝiajn
 
-varmajn vangojn kaj ankaŭ la harojn, kiuj falis sur ŝian frun-
-
-ton …
+varmajn vangojn kaj ankaŭ la harojn, kiuj falis sur ŝian frunton …
 
 Poste venis anĝeloj en la ĉambron, multaj ili estis, ĉiuj estis
 
@@ -4586,9 +3670,7 @@ blindaj okuloj, kaj tie estas Amanjo, havanta tiel delikatan,
 
 malgrandan vizaĝon kaj tiel vivraciajn, pensemajn okulojn
 
-kaj frunton kiel neĝon, kaj eĉ Paŭla, la judino, estas tie. Brul-
-
-dolora lumo estas disverŝita en la ĉirkaŭo kaj en tiu ĉi lumo
+kaj frunton kiel neĝon, kaj eĉ Paŭla, la judino, estas tie. Bruldolora lumo estas disverŝita en la ĉirkaŭo kaj en tiu ĉi lumo
 
 marŝas blankaj, apenaŭ distingeblaj, senvoĉaj anĝeloj, iliaj
 
@@ -4596,9 +3678,7 @@ piedoj ne tuŝas la plankon …
 
 ŝi emis leviĝi kaj iri kun ili. ŝi moviĝis kaj ekĝemis; ne povis
 
-ŝi leviĝi, ŝi sentis bruldoloran lumon. Tiam ekhelis du blan-
-
-kaj flugiloj meze de la ĉambro, leviĝis la mano kaj la lumo
+ŝi leviĝi, ŝi sentis bruldoloran lumon. Tiam ekhelis du blankaj flugiloj meze de la ĉambro, leviĝis la mano kaj la lumo
 
 estingiĝis. Preteriris mallaŭtaj paŝoj, la pordo senbrue
 
@@ -4614,14 +3694,9 @@ tra la ombro de longaj malhelaj branĉetoj. Malfermiĝis la
 
 pordo; venis anĝelo en la ĉambron, verdan arbeton ĝi tenis en
 
-sia mano. i starigis la arbeton sur la tablon kaj aranĝis ĉir-
-
-kaŭ ĝi plenon da belaj kaj dolĉaj aĵoj, kukojn, oranĝojn, pomojn. Tiel silente ĝi marŝis, ke oni ne povis aŭdi ĝian paŝadon. Kaj kiam ĝi pretervenis, ĝia vizaĝo estis kiel la vizaĝo de
+sia mano. i starigis la arbeton sur la tablon kaj aranĝis ĉirkaŭ ĝi plenon da belaj kaj dolĉaj aĵoj, kukojn, oranĝojn, pomojn. Tiel silente ĝi marŝis, ke oni ne povis aŭdi ĝian paŝadon. Kaj kiam ĝi pretervenis, ĝia vizaĝo estis kiel la vizaĝo de
 
 fratulino Cecilia, tiel bela kaj amoplena. Eksonĝis Rezinjo kaj
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 ŝi sentis brilon kaj en sia duonsonĝo ŝi flustris: ”Anĝelo iris tra la ĉambro!” —”Anĝelo iris tra la ĉambro!” respondis Manjo
@@ -4678,53 +3753,31 @@ patro, ŝi emis premi lin al si, iamaniere malpli grandan kaj pli
 
 povran, ŝi nutrus lin, la laman, ŝi rakontus al li belajn fabelojn kaj ŝi endormigus lin …
 
-Venis la patrino de Manjo kaj kunportis envolvitan dona-
+Venis la patrino de Manjo kaj kunportis envolvitan donacon en ambaŭ siaj manoj. Ekridetis Manjo, vidanta la paka-
 
+ĵon. Bonaj kaj dolĉaj aĵoj troviĝis ene, estis en ordo, ke la patrino ilin kunportis kaj estis dece fari tiel. Sed sur la vizaĝo de la patrino, en ŝiaj maltrankvilaj okuloj, legiĝis ŝia vivo. Venis ŝi de tie, kie regas frosto kaj vento; sed ŝi pensis senĉese:
 
-LA DOMO DE MARIA HELPANTINO
+”Kion mi kunportu por la infano, povra, malsana?” ŝi zorgegis kaj laboris, probable dum la tuta nokto, la lampo brulis
 
+dormeme, ŝiaj ruĝaj pezaj palpebroj jam volis fali sur la okulojn. Kaj dum ŝia laboro, probable tutnokta, ŝia koro estis
 
-con en ambaŭ siaj manoj. Ekridetis Manjo, vidanta la paka-
+lacigita de doloroj, en ŝiaj tempioj batis senĉesa ŝtala marteleto. Sed nun ŝi venis, du blankaj pakaĵoj venis kun ŝi por la
 
-ĵon. Bonaj kaj dolĉaj aĵoj troviĝis ene, estis en ordo, ke la pa-
-
-trino ilin kunportis kaj estis dece fari tiel. Sed sur la vizaĝo de la patrino, en ŝiaj maltrankvilaj okuloj, legiĝis ŝia vivo. Venis ŝi de tie, kie regas frosto kaj vento; sed ŝi pensis senĉese:
-
-”Kion mi kunportu por la infano, povra, malsana?” ŝi zorge-
-
-gis kaj laboris, probable dum la tuta nokto, la lampo brulis
-
-dormeme, ŝiaj ruĝaj pezaj palpebroj jam volis fali sur la oku-
-
-lojn. Kaj dum ŝia laboro, probable tutnokta, ŝia koro estis
-
-lacigita de doloroj, en ŝiaj tempioj batis senĉesa ŝtala marte-
-
-leto. Sed nun ŝi venis, du blankaj pakaĵoj venis kun ŝi por la
-
-povra, malsana infano — venis ŝi kiel almozulino en grand-
-
-posedan domon … Nur dum momento Manjo reakiris
+povra, malsana infano — venis ŝi kiel almozulino en grandposedan domon … Nur dum momento Manjo reakiris
 
 konsciiĝon, duone tristaj, duone ĝojaj, apenaŭ distingeblaj
 
 pensoj aperis, tial ŝi ridetis …
 
-Venis la patro de Katinjo. Terura estis lia vizaĝo, griza, sul-
+Venis la patro de Katinjo. Terura estis lia vizaĝo, griza, sulkiĝinta pro unu sama nokto, pro doloro kaj pento de unu
 
-kiĝinta pro unu sama nokto, pro doloro kaj pento de unu
-
-sama nokto, pli longa ol la vivo mem. Kiam li turnis la rigar-
-
-don al Katinjo, liaj okuloj petis kompaton kaj mizerikordon.
+sama nokto, pli longa ol la vivo mem. Kiam li turnis la rigardon al Katinjo, liaj okuloj petis kompaton kaj mizerikordon.
 
 ”Katinjo, jen, okazis … ” Lia voĉo estis raŭka kaj mallaŭta, ĝi
 
 ne povis elgorĝiĝi. Katinjo turnis sian rigardon kaj trankvile
 
-rigardis lian vizaĝon: ”La patrino mortis!” Li ekmiris kaj ek-
-
-timis, tial Katinjo diris al li: ”La patrino venis al mi, dum mi
+rigardis lian vizaĝon: ”La patrino mortis!” Li ekmiris kaj ektimis, tial Katinjo diris al li: ”La patrino venis al mi, dum mi
 
 sonĝis kaj kunportis por mi belan ruĝan floron. ŝi preteriris
 
@@ -4732,22 +3785,14 @@ kaj venis al mi …” La patro gapis, liaj genuoj tremetis kiel
 
 vergeto kaj li surgenuis apud ŝia lito …
 
-Senĉese ili venadis, longa procesio ili estis. Ili venis al Paŭ-
+Senĉese ili venadis, longa procesio ili estis. Ili venis al Paŭla, la juda knabino, estante vestitaj feste, envolvitaj en var-
 
-la, la juda knabino, estante vestitaj feste, envolvitaj en var-
-
-majn peltojn. Sur iliaj vizaĝoj, en iliaj vortoj, mem en la spi-
-
-ro de iliaj brustoj, en freŝa aero, spiranta el iliaj vestoj, ili kun-89
-
-LA DOMO DE MARIA HELPANTINO
+majn peltojn. Sur iliaj vizaĝoj, en iliaj vortoj, mem en la spiro de iliaj brustoj, en freŝa aero, spiranta el iliaj vestoj, ili kun-89
 
 
 portis la spiron de vivo, la vivon, kiu ekzistas tie ekstere kaj
 
-en ili mem, tedan kaj malican, kiun ili nun maskis en karne-
-
-valan surtuton de etaj kaj malpuraj gajaĵoj, de eta kaj subni-
+en ili mem, tedan kaj malican, kiun ili nun maskis en karnevalan surtuton de etaj kaj malpuraj gajaĵoj, de eta kaj subni-
 
 vela feliĉo, por ne devi rigardi ĝian abomenan kaj teruran
 
@@ -4755,13 +3800,9 @@ nudecon, por ne perei de angoro. Ili venis kiel malpura homo
 
 en templon, kiel almozulo en burĝan salonon. En ilia koro
 
-tamen, de zorgoj turmentita, de la ĉiutaga negocado mal-
+tamen, de zorgoj turmentita, de la ĉiutaga negocado malpurigita, troviĝis mizerikordo, tiel ridinda, senkonscie men-
 
-purigita, troviĝis mizerikordo, tiel ridinda, senkonscie men-
-
-soga, kiel estas mensoga la mizerikordo de la paŝtistoj almo-
-
-zuloj al la novnaskita Savanto …
+soga, kiel estas mensoga la mizerikordo de la paŝtistoj almozuloj al la novnaskita Savanto …
 
 Ili venis al Aloiza kaj Aloiza ilin salutis per sia gajega rido.
 
@@ -4773,45 +3814,32 @@ manĝu!” ŝi ĵetis siajn multekostajn bonaromajn donacojn per
 
 sia gaja mano dekstren kaj maldekstren, sur la blankajn litojn
 
-kaj gajege ridis. Gajegaj estis ŝiaj okuloj, sed ŝia koro, apen-
-
-aŭ matura, estis serioza, tro frue amara. Malpuraj estis la
+kaj gajege ridis. Gajegaj estis ŝiaj okuloj, sed ŝia koro, apenaŭ matura, estis serioza, tro frue amara. Malpuraj estis la
 
 donacoj, ŝi emis lavi siajn manojn, ĉar ŝi ilin tuŝis. Ili enhavis aromon de la hejmo kaj same kiel la hejmo ili estis malkonsekritaj kaj prisputitaj. ”Kion vi umas, Aloiza?” demandis la
 
-damo kaj ŝiaj vangoj fariĝis ruĝetaj. ”Mi disdonas la dona-
-
-cojn!” ŝi respondis kaj ne atentis plu la damon, same ne la
+damo kaj ŝiaj vangoj fariĝis ruĝetaj. ”Mi disdonas la donacojn!” ŝi respondis kaj ne atentis plu la damon, same ne la
 
 sinjoron, eĉ ŝi ne rigardis ilin. Staris ili du, enuo troviĝis en ili kaj io abomena en iliaj brustoj kaj tio radiis el iliaj okuloj. Ili sentis duonkonscie, ke ili estas malkonsekritaj kaj povraj, ke
 
-ili ne apartenas ien aliloken ol en eksteran sursputitan ĉiuta-
-
-gan vivon …
+ili ne apartenas ien aliloken ol en eksteran sursputitan ĉiutagan vivon …
 
 Ili venis al Antonia, kiu en timo atendis, kaj ankaŭ al ŝi ili
 
 kunportis multvalorajn kaj belajn aĵojn. Glata mano karesis
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ŝiajn vangojn, iu kliniĝis al ŝi kaj kisis ŝiajn lipojn, humidaj
 
 lipharoj ŝin tiklis kaj ŝi skuiĝis tute. ŝi emis retiriĝi, sed ŝi ne kuraĝis. Kiam ili foriris, ŝi rapidiris al la fenestro, por ke ŝin lavu la afabla suno, kiu brilis ekstere …
 
-Tiel okazis io mirinda. El la sufoka valo de la vivo sube ek-
-
-marŝis supren longvica procesio. Pilgrimis ili, granda kruco
+Tiel okazis io mirinda. El la sufoka valo de la vivo sube ekmarŝis supren longvica procesio. Pilgrimis ili, granda kruco
 
 iris antaŭ ili kaj ĝia nigra ombro falis sur ilin. ĉiuj estis ŝarĝitaj per pekoj kaj per sufero; tiuj, paŝantaj peze, dorsklinite, kap-profunde; kaj tiuj, paŝantaj rektstare, de kiuj la okuloj gaje
 
 mensogis; homoj sinjorece maskitaj, fingroringe kaj bracelete
 
-ornamitaj, per puntoj kaj silko sur siaj blankaj korpoj, eluzi-
-
-taj, elmorditaj de la kanajla vivo; almozuloj, ŝanceliĝantaj en
+ornamitaj, per puntoj kaj silko sur siaj blankaj korpoj, eluzitaj, elmorditaj de la kanajla vivo; almozuloj, ŝanceliĝantaj en
 
 siaj ĉifonoj, kun elsuĉitaj vizaĝoj, sensukigitaj korpomembroj
 
@@ -4823,14 +3851,9 @@ La sankta tago estis, naskiĝis la Savanto. Kaj okazis io mirinda. En la stalo d
 
 de ĉiuj trezoroj mastro. Kaj al li venis en longvica procesio, de ĉiuj direktoj, paŝtistoj, kabanuloj, servistoj, ŝarĝitaj per pekoj kaj per pezo de la vivo, kaj ili kunportis por li donacojn, al la mastro de ĉiuj trezoroj. Venis ankaŭ tri reĝoj el orienta lando riverenci antaŭ li, dum li kuŝis en la betlehema stalo en sia
 
-kripo. Vidis ili stelon kaj ili eksopiris — granda, apenaŭ kon-
-
-scia, duone komprenita sopiro leviĝis kiel suda vento kaj ek-
+kripo. Vidis ili stelon kaj ili eksopiris — granda, apenaŭ konscia, duone komprenita sopiro leviĝis kiel suda vento kaj ek-
 
 ondis sur la tuta Dia tero.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 VIII
@@ -4857,15 +3880,11 @@ kanton puran kiel ŝia animo kaj ŝia nekonscia espero …
 
 ”Antonia!” vokis fratulino Cecilia; malvarma estis ŝia voĉo
 
-kaj solena, Antonia ektimis. Legis ŝi en tiu voĉo silentajn pen-
-
-sojn kaj eksentis ŝi, ke troviĝas kompato en la malvarma kaj
+kaj solena, Antonia ektimis. Legis ŝi en tiu voĉo silentajn pensojn kaj eksentis ŝi, ke troviĝas kompato en la malvarma kaj
 
 solena voĉo.
 
-Proksimiĝis paŝoj kaj Antonia retiriĝis de la fenestro an-
-
-gulen kaj premiĝis ĉe la muro. Konis ŝi la paŝojn proksimi-
+Proksimiĝis paŝoj kaj Antonia retiriĝis de la fenestro angulen kaj premiĝis ĉe la muro. Konis ŝi la paŝojn proksimi-
 
 ĝantajn.
 
@@ -4882,24 +3901,17 @@ ekparolis:
 Klinis ŝi sian kapon flanken, silentis kaj ne rezistis. Havis
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 ŝi tiam dektri jarojn kaj apenaŭ komencis rondiĝi la infanaj
 
 korpomembroj. Antaŭ jaro kaj duono ŝi venis kaj tiam ŝi estis
 
 malforta kaj malsana.
 
-”Pli bone vi fartos ol tie ĉi!” promesis la glata voĉo; Anto-
-
-nia rememoris pri la hejmo kaj klinis sian kapon flanken …
+”Pli bone vi fartos ol tie ĉi!” promesis la glata voĉo; Antonia rememoris pri la hejmo kaj klinis sian kapon flanken …
 
 Rememoris ŝi pri lumoj el malproksima pasinto — brilis
 
-kiel la vivo, estinta iam, en duone forgesita pasinto, kaj eston-
-
-ta iam, ĉar la koro sopiras al ĝi. Rememoris ŝi ankaŭ pri viza-
+kiel la vivo, estinta iam, en duone forgesita pasinto, kaj estonta iam, ĉar la koro sopiras al ĝi. Rememoris ŝi ankaŭ pri viza-
 
 ĝoj el tiu tempo, neklare, unu similis al la alia; unu sola vizaĝo distingiĝis, tiel mola kaj amoplena, kiel la voĉo de fratulino
 
@@ -4911,9 +3923,7 @@ flava flamo … Tiuj ĉi rememoroj estis maltrankvilaj, neklaraj,
 
 momentaj — flirtantaj, tremantaj kiel muŝetoj sublume.
 
-Kaj tiam foje okazis, ke ĉio estingiĝis. Timo kaj maltrankvi-
-
-lo regis en la domo, nekonataj homoj marŝis en la ĉambro kaj
+Kaj tiam foje okazis, ke ĉio estingiĝis. Timo kaj maltrankvilo regis en la domo, nekonataj homoj marŝis en la ĉambro kaj
 
 ŝi aŭdis ĝemadon. Sed antaŭ ŝi troviĝis mallumo — nenio
 
@@ -4925,9 +3935,7 @@ foje, en duone forgesita pasinto kaj estos ĝi iam …
 
 Sed meze de ĉio ĉi estas mallumo, estas la vivo, estas la
 
-hejmo. Venis ŝi el sunplena regiono en la valon, kie regas kre-
-
-pusko, kie en tiu krepusko vivas homoj, ĉiuj malicaj kaj mal-
+hejmo. Venis ŝi el sunplena regiono en la valon, kie regas krepusko, kie en tiu krepusko vivas homoj, ĉiuj malicaj kaj mal-
 
 puraj. Sed venas la tempo, kiam ŝi reiros al sia sunplena loko,
 
@@ -4940,18 +3948,11 @@ kun li humile. Aŭdis ŝi foje, kiel ili petis, parolis balbute, sed lia voĉo e
 afabla, glata kaj mola, speciale, kiam li parolis kun virinoj.
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Tiam li ankaŭ ridis, per eta hi-hi-eca ridado, kiun Antonia
 
-timis, sen scii, kial. ”Sinjoro konsulisto” oni titolis la patron kaj tiu ”konsulisto” sonis ĉiam tiel timeme kaj peteme, la longa ”iii” tremetis kaj meandris, jes, verdire surgenuis kaj kli-
+timis, sen scii, kial. ”Sinjoro konsulisto” oni titolis la patron kaj tiu ”konsulisto” sonis ĉiam tiel timeme kaj peteme, la longa ”iii” tremetis kaj meandris, jes, verdire surgenuis kaj klinis sian humilan dorson … La patro vere estis eminenta sin-
 
-nis sian humilan dorson … La patro vere estis eminenta sin-
-
-joro, havanta la rajton disdoni gracojn kaj afablojn. Nur mal-
-
-multaj gastoj estis, antaŭ kiuj kliniĝus li mem — kaj tiam tre-
+joro, havanta la rajton disdoni gracojn kaj afablojn. Nur malmultaj gastoj estis, antaŭ kiuj kliniĝus li mem — kaj tiam tre-
 
 metis kaj meandris ankaŭ lia voĉo mem, same humile kaj
 
@@ -4971,17 +3972,13 @@ Li neniel okupiĝis pri ŝi, li karesis kaj kisis ŝin nur tiam,
 
 kiam lin vizitis amikoj. Fine li preskaŭ komplete forgesis pri
 
-ŝi kaj komisiis la tutan prizorgon al servistinoj. Kaj la servis-
-
-tinoj ŝanĝiĝis tre rapide, apenaŭ ŝi alkutimiĝis al iu, jam tiu
+ŝi kaj komisiis la tutan prizorgon al servistinoj. Kaj la servistinoj ŝanĝiĝis tre rapide, apenaŭ ŝi alkutimiĝis al iu, jam tiu
 
 adiaŭis, subite, okazis Dio scias kio. Antonia aŭskultis kaj
 
 provis diveni, el la voĉoj kaj zumoj leviĝis strangaj imagoj,
 
-teruraj kaj des pli teruraj, ĉar neklaraj. Dum tuta tago ŝi pil-
-
-grimis tra la ĉambroj kiel revapero, neniu atentis pri ŝi, kiel
+teruraj kaj des pli teruraj, ĉar neklaraj. Dum tuta tago ŝi pilgrimis tra la ĉambroj kiel revapero, neniu atentis pri ŝi, kiel
 
 tra arbaro ŝi iris. Aŭdis ŝi foje krudajn, kriajn voĉojn. Parolis ŝia patro kaj la servistino, haste, ekscite, en interrompitaj fra-zoj kaj duone komprenitaj vortoj. Renversiĝis la seĝo; la paŝoj
 
@@ -4992,24 +3989,17 @@ haste spiris la brustoj. ”ĉesu tion!” La patro eksilentis. Zumis, kvazaŭ i
 Poste klakis kaj frapis planken per tuta korpo. La pordo brue
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 malfermiĝis kaj fermiĝis. … Sekvatage la servistino ne plu
 
 estis en la domo.
 
 La patro edziĝis duafoje kaj en la komenco estis en la
 
-domo abunde da rido kaj vivo. La nova patrino kisis la van-
-
-gojn de Antonia, sed Antonia ne ŝatis tiujn kisojn; la lipoj de
+domo abunde da rido kaj vivo. La nova patrino kisis la vangojn de Antonia, sed Antonia ne ŝatis tiujn kisojn; la lipoj de
 
 la nova patrino estis malvarmaj kaj Antonia sentis, ke la kisoj
 
-apartenas al Judaso, kiel ŝi same precize distingis, ke menso-
-
-gaj estas ankaŭ ĉiuj dolĉaj kaj molaj vortoj de la nova patrino.
+apartenas al Judaso, kiel ŝi same precize distingis, ke mensogaj estas ankaŭ ĉiuj dolĉaj kaj molaj vortoj de la nova patrino.
 
 Kun la nova patrino venis ankaŭ ŝia filino kaj ŝi baldaŭ fariĝis
 
@@ -5031,33 +4021,21 @@ koksojn kiel edziniĝinta virino, viroj postrigardis ŝin. Lucia
 
 ilin vizitis, kaj kiam ili estis hejme solaj, Maria ŝin dorlotis sur siaj genuoj, ŝi devestis ŝin kaj proponis al ŝi siajn nudajn
 
-mamojn kiel al suĉinfano. Bele estis en la komenco — rakon-
-
-tis Lucia — kaj ili tre bone ridis, sed finfine ŝi perdis emon, ja Maria estis tiel sovaĝa kaj malbela. La haŭto sur ŝiaj femuroj
+mamojn kiel al suĉinfano. Bele estis en la komenco — rakontis Lucia — kaj ili tre bone ridis, sed finfine ŝi perdis emon, ja Maria estis tiel sovaĝa kaj malbela. La haŭto sur ŝiaj femuroj
 
 estis flava kaj Lucia, estante tuta brile blanka, pri tio naŭziĝis.
 
 ŝi ektimis foje, kiam la okuloj de Maria plenverŝiĝis kaj ŝi
 
-peze spiris kaj ŝvitgutoj aperis subhare ĉe ŝiaj tempioj kaj sur-
-
-
-LA DOMO DE MARIA HELPANTINO
-
-
-frunte. ŝi premis ŝin tiel forte al si, ke ŝi sufokiĝis kaj post ilia malpremiĝo ili ambaŭ estis lacaj. Pli kaj pli ofte ŝi vizitis la
+peze spiris kaj ŝvitgutoj aperis subhare ĉe ŝiaj tempioj kaj surfrunte. ŝi premis ŝin tiel forte al si, ke ŝi sufokiĝis kaj post ilia malpremiĝo ili ambaŭ estis lacaj. Pli kaj pli ofte ŝi vizitis la
 
 familion, ŝi sendis al ŝi leterojn, tiel stultajn, ke Lucia ridis kaj Maria provokis en ŝi abomenon. ŝi provis ŝin eviti, ne volante
 
 plu esti kun ŝi sola. Maria petis ŝin, sed foje ŝi donis baton al Lucia kaj mordis ŝin ĉemane ĝissange. Lucia timis kaj foje iris
 
-al sia amikino, kvankam ŝi ne ŝatis ŝiajn ĉirkaŭprenojn; sen-
+al sia amikino, kvankam ŝi ne ŝatis ŝiajn ĉirkaŭprenojn; senvola kaj trankvila ŝi estis en ŝiaj manoj, kiuj tremis, ŝi kuŝis en ŝia sino kaj pensis pri Dio scias kio, ŝi ne atentis plu pri tio, kion Maria faras al ŝi, nur ŝi forigis ŝian manon, se ŝi sentis
 
-vola kaj trankvila ŝi estis en ŝiaj manoj, kiuj tremis, ŝi kuŝis en ŝia sino kaj pensis pri Dio scias kio, ŝi ne atentis plu pri tio, kion Maria faras al ŝi, nur ŝi forigis ŝian manon, se ŝi sentis
-
-doloron. Maria foje ploris kaj tiam ŝia vizaĝo estis plene gri-
-
-maca. ”Mi scias,” ŝi diris foje, ”vi nun dediĉas vian amon al
+doloron. Maria foje ploris kaj tiam ŝia vizaĝo estis plene grimaca. ”Mi scias,” ŝi diris foje, ”vi nun dediĉas vian amon al
 
 Mimjo, vi iras kun ŝi.” Lucia apenaŭ konis tiun knabinon,
 
@@ -5090,20 +4068,13 @@ kliniĝis al ŝi, metis sian manon sur ŝian femuron kaj premis
 siajn gambojn al ŝiaj. Antonia sentis, ke la amo de Lucia iĝis
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 pli kaj pli arda kaj sovaĝe senbrida. ŝi ne rakontis plu, nur
 
-tute ŝi brulis kaj tremetis, dum ili estis kune, ne dirante vor-
-
-tojn. Somere estis, arda suno brilis ekstere kaj Lucia kurte-
+tute ŝi brulis kaj tremetis, dum ili estis kune, ne dirante vortojn. Somere estis, arda suno brilis ekstere kaj Lucia kurte-
 
 nombrigis la fenestron. ŝi premis sin ĉirkaŭbrake al Antonia
 
-kaj petis: ”Varme estas, Antonia, demetu viajn vestojn!” An-
-
-tonia sentis kompaton pri ŝi, ja ŝia voĉo tremetis kaj ŝajnis tiel timema. ”Senvestigu vin mem, tiel estas pli bele … por ke mi
+kaj petis: ”Varme estas, Antonia, demetu viajn vestojn!” Antonia sentis kompaton pri ŝi, ja ŝia voĉo tremetis kaj ŝajnis tiel timema. ”Senvestigu vin mem, tiel estas pli bele … por ke mi
 
 vidu, kiel vi debutonigas vian bluzon!” Antonia mem sentis
 
@@ -5123,9 +4094,7 @@ palpu, kiel jam leviĝas miaj mamoj … sed blankaj ili estas, ne
 
 tiel brunaj kaj grandaj kiel tiuj de Maria … ” Flustris ili, jam
 
-ambaŭ varmege ardaj kaj tremantaj, ĝis ekstere estiĝis mor-
-
-no. En tiu nokto Antonia sentis malbonfarton kaj ŝi dormis
+ambaŭ varmege ardaj kaj tremantaj, ĝis ekstere estiĝis morno. En tiu nokto Antonia sentis malbonfarton kaj ŝi dormis
 
 maltrankvile … Iam frapis ĉeporde, malfermiĝis la pordo kaj
 
@@ -5145,17 +4114,9 @@ nedecida: ”Tiel mi amis vin, Lucia, estis bele … Jen, eĉ nun plu
 
 mi vin amas, tial bonvolu ne rigardi tiel malice, ekridu!” Sed
 
-Lucia ne ekridis. ”Tion vi lernis de la viroj … tiujn belajn vor-
+Lucia ne ekridis. ”Tion vi lernis de la viroj … tiujn belajn vortojn, ĉu? Bonvolu proponi viajn mamojn al la viroj, ja ili vin
 
-tojn, ĉu? Bonvolu proponi viajn mamojn al la viroj, ja ili vin
-
-postsekvas!” Tute kompatinda kaj almozula Maria staris an-
-
-
-LA DOMO DE MARIA HELPANTINO
-
-
-taŭ ŝi; ŝi vestiĝis kokete, tiel ke la ŝveliĝantaj korpomembroj
+postsekvas!” Tute kompatinda kaj almozula Maria staris antaŭ ŝi; ŝi vestiĝis kokete, tiel ke la ŝveliĝantaj korpomembroj
 
 el ŝia hela streĉita vestaĵo logis, sed nun estis impreso, ke
 
@@ -5173,13 +4134,9 @@ voĉo kaj ŝi kompatis pri Maria. Sed Lucia estis senkonsidera.
 
 emas fari plu!” ŝi parolis pli kaj pli laŭte, same kiel ŝia patro, kiam li kriis: ”Vi finis vian aferon! Marŝ’! Marŝ’!” —”Nur vian
 
-manon al mi donu, Lucia, kisu min ankoraŭ unufoje!” —”Ne-
+manon al mi donu, Lucia, kisu min ankoraŭ unufoje!” —”Neniam plu!” — Antonia teruriĝis, de tiu momento ŝi timis an-
 
-niam plu!” — Antonia teruriĝis, de tiu momento ŝi timis an-
-
-taŭ Lucia kaj ne plu ŝi agrable fartis en ŝia ĉirkaŭpreno. Ma-
-
-ria malrapide paŝis kontraŭ la pordo kaj Antonia sentis, kva-
+taŭ Lucia kaj ne plu ŝi agrable fartis en ŝia ĉirkaŭpreno. Maria malrapide paŝis kontraŭ la pordo kaj Antonia sentis, kva-
 
 zaŭ ŝi vidus, kiel ŝi turnas sin sojle kaj ankoraŭfoje alrigardas per sia longdaŭra peta rigardo. ”Eble ŝi nur ŝercis; ŝi ekridos
 
@@ -5201,24 +4158,18 @@ en la soleca arbaro. Venis ŝi foje en la patran ĉambron kaj
 
 sidis sur la molan seĝon; la patro rigardis ŝin, sed ne vidis ŝin, li ne atentis pri ŝi. Antonia ne amis lin; li ŝajnis al ŝi strange granda kaj terura, lia vivo estis plena de sekretoj, pri kiuj ŝi
 
-timis kaj kiuj ŝin logis, ĉar tiel grandaj kaj teruraj. Estis kiel en 98
-
-LA DOMO DE MARIA HELPANTINO
+timis kaj kiuj ŝin logis, ĉar tiel grandaj kaj teruraj. Estis kiel en
 
 
 la arbaro: leviĝas tie malproksime io grandega, nigra; ĉu rokoj, ĉu arboj ŝtoniĝintaj kaj ne moviĝintaj en la vento; gamboj tremas kaj alpaŝas tien, ne povante aliloken, ĉar tie estas
 
 angoro kaj nokto …
 
-Kun la homoj, kiuj venis, diskutis foje la patro enue, nego-
-
-ce, kaj tiam Antonia aŭdis nenion, kvazaŭ estus silente en la
+Kun la homoj, kiuj venis, diskutis foje la patro enue, negoce, kaj tiam Antonia aŭdis nenion, kvazaŭ estus silente en la
 
 ĉambro. Sed aŭdis ŝi ĉiun voĉon, venantan el la koro; kiam ĝi
 
-malice ekkriis, kiam ĝi petis kaj kiam ĝi ridis per gaja kaj mal-
-
-pura rido. Venis foje virino kaj petis por sia edzo, skribisto,
+malice ekkriis, kiam ĝi petis kaj kiam ĝi ridis per gaja kaj malpura rido. Venis foje virino kaj petis por sia edzo, skribisto,
 
 estanta drinkulo. La patro ridis kaj lia rido estis malmola kaj
 
@@ -5234,13 +4185,9 @@ alparolis ŝin rikane: ”Kion vi serĉas ĉi tie? Forlasu la ejon!” —
 
 Ne pasis ankoraŭ multa tempo post la nupto, sed ĝojo kaj
 
-vivo ne plu troviĝis en la domo. La patro kaj la patrino kve-
+vivo ne plu troviĝis en la domo. La patro kaj la patrino kverelis, finfine vivis ĉiu laŭ sia maniero kaj Antonia neniam plu
 
-relis, finfine vivis ĉiu laŭ sia maniero kaj Antonia neniam plu
-
-aŭdis, ke ili afable interparolus. Kiam la patrino estis sola, ŝi paŝis per pezaj paŝoj tra la ĉambro kaj ĝemis per ridinde plo-reca voĉo: ”Ho, mia kapo! Mia kapo!” Kaj iam ŝi paŝis al An-
-
-tonia, ŝin skuis kaj alkriis: ”Via patro estas kanajlo! Kanajlo!
+aŭdis, ke ili afable interparolus. Kiam la patrino estis sola, ŝi paŝis per pezaj paŝoj tra la ĉambro kaj ĝemis per ridinde plo-reca voĉo: ”Ho, mia kapo! Mia kapo!” Kaj iam ŝi paŝis al Antonia, ŝin skuis kaj alkriis: ”Via patro estas kanajlo! Kanajlo!
 
 Kanajlo!” — Ekploris ŝi kaj forgesis, ke Antonia estas infano
 
@@ -5248,14 +4195,9 @@ kaj ŝi plendis: ”Por unu monato nur li min prenis; por ĉiam
 
 mian monon … Dum kvin monatoj jam ne plu li aperis ĉe mi,
 
-nek edzino mi estas lia, nek servistino … En mia ĉeesto li pre-
-
-nis alian … ridis li kaj ĵetis ŝin sur sofon … ĉiujn li prenas,
+nek edzino mi estas lia, nek servistino … En mia ĉeesto li prenis alian … ridis li kaj ĵetis ŝin sur sofon … ĉiujn li prenas,
 
 edziniĝintajn virinojn kaj putinojn kaj infanojn … Kanajlo!
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Kanajlo! Kanajlo!” — Kaj Antonia aŭdis foje, dum ili parolis
@@ -5268,13 +4210,9 @@ deksesjara knabeto!” — La patrino frapfermis la pordon kaj
 
 la patro komencis ridi …
 
-Venadis kiel gasto amiko de la patro. Kiam li venis unua-
+Venadis kiel gasto amiko de la patro. Kiam li venis unuafoje, li rimarkis la ĉeeston de Antonia; li paŝis al ŝi kaj kare-
 
-foje, li rimarkis la ĉeeston de Antonia; li paŝis al ŝi kaj kare-
-
-sis ŝin vange; lia mano estis glata kaj malvarma kiel fiŝo. ”An-
-
-tonia, kompatinda!” li diris, sed ankaŭ lia voĉo estis glata,
+sis ŝin vange; lia mano estis glata kaj malvarma kiel fiŝo. ”Antonia, kompatinda!” li diris, sed ankaŭ lia voĉo estis glata,
 
 glita kiel fiŝo. Poste li venis ofte, eĉ se la patro ne estis hejme.
 
@@ -5292,9 +4230,7 @@ la ĉambro, ke li ŝin ĉirkaŭprenis kaj premis ŝin al si; Antonia
 
 ne povis peti, nek povis voki helpon; liaj tremantaj manoj ŝin
 
-strangolis kaj pro timo ŝi ne povis moviĝi. Li balbutis kaj el lia buŝo falis naŭziga guto sur ŝian vizaĝon. ”Antonia! … Antonia!” … Kiam li foriris, ŝi komplete tremis pro honto kaj ang-
-
-oro kaj ŝi kuŝiĝis en la lito … Li venis daŭre, tagon post tago
+strangolis kaj pro timo ŝi ne povis moviĝi. Li balbutis kaj el lia buŝo falis naŭziga guto sur ŝian vizaĝon. ”Antonia! … Antonia!” … Kiam li foriris, ŝi komplete tremis pro honto kaj angoro kaj ŝi kuŝiĝis en la lito … Li venis daŭre, tagon post tago
 
 kaj Antonia ne povis sin defendi, ŝi ne kuraĝis voki helpon. Li
 
@@ -5306,16 +4242,11 @@ maltrankvile; ŝi ektimis ofte, ŝi subite vekiĝis kaj ŝi fartis
 
 malbone …
 
-Venis tio brue kaj fortege, kiel granda uragano estis, kva-
-
-zaŭ la plafono ekbalancus kaj skuiĝus la tuta domo. La patro
+Venis tio brue kaj fortege, kiel granda uragano estis, kvazaŭ la plafono ekbalancus kaj skuiĝus la tuta domo. La patro
 
 frapis la oldulon per pugno, li kaptis lin malmole kaj pezaj
 
 paŝoj glittiriĝis kontraŭ la pordo. ”Kanajlo! Kanajlo!” Poste li
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 paŝis al Antonia kaj puŝis ŝin brute en angulon; li haltis meze
@@ -5334,9 +4265,7 @@ la salajro — sufiĉe li ricevis! … Via patro troviĝas en karcero,
 
 Antonia, en karcero! Dio atestu, ke li finas en karcero!” …
 
-Ekridis ŝi nenature kaj ŝi foriris … Antonia ne komprenis, vi-
-
-vis ŝi kiel en la ŝtormo meze de la arbaro. Kaj baldaŭ venis
+Ekridis ŝi nenature kaj ŝi foriris … Antonia ne komprenis, vivis ŝi kiel en la ŝtormo meze de la arbaro. Kaj baldaŭ venis
 
 homoj por ŝin kunpreni; adiaŭis ŝi sen tristeco kaj ĝoja ŝi
 
@@ -5364,14 +4293,9 @@ gambtremete en nigran arbaron, kunfronten al angoro.
 
 ”Bele nun estas hejme!” diris la patro. ”Kaj ne decas, ke vi
 
-estu en malsanulejo! Ni prizorgos por vi instruiston kaj an-
-
-kaŭ Lucia nun estas hejme. ĉu vi ne estas ĝoja?”
+estu en malsanulejo! Ni prizorgos por vi instruiston kaj ankaŭ Lucia nun estas hejme. ĉu vi ne estas ĝoja?”
 
 ”oja mi estas, patro!” respondis Antonia, sed ŝia voĉo
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 estis kiel kanaria krio, dum ĝi frapis kontraŭ la fenestra vitro, falis sur la breton kaj mortis.
@@ -5385,16 +4309,11 @@ Tiel revenis Antonia en la vivon. Revenis ŝi en la valon; sur
 la monto brilis printempo, bela kiel neniam antaŭe …
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 IX
 
 Ekstere brilis printempo, bela kiel neniam antaŭe. La tuta
 
-ĉambro estis plena de la suno, ĉiuj koroj estis de ĝi ple-
-
-naj. Kaj espero, antaŭe tiel necerta, leviĝis al la klara celo kaj
+ĉambro estis plena de la suno, ĉiuj koroj estis de ĝi plenaj. Kaj espero, antaŭe tiel necerta, leviĝis al la klara celo kaj
 
 ĝin atingis.
 
@@ -5414,9 +4333,7 @@ infaneca. Ne pasis nur vintro dume, longa vivo dume pasis.
 
 sed nenio infaneca plu troviĝis sur ĝi. En ŝiaj okuloj ne plu
 
-sentiĝis maltrankvilo kaj timemo; ili rigardis serioze kaj rezig-
-
-ne, kiel rigardas okuloj de oldulo, kiu konsumis sian vivon …
+sentiĝis maltrankvilo kaj timemo; ili rigardis serioze kaj rezigne, kiel rigardas okuloj de oldulo, kiu konsumis sian vivon …
 
 Io trakuris ŝian korpon en la unua vespero kaj ŝi ekploris; nun
 
@@ -5428,21 +4345,14 @@ Venadis la patrino kaj kunportis donacojn; Manjo tamen
 
 sentis, ke la patrino venas el ege malproksima loko, el alia
 
-mondo; vidis ŝi ŝin kiel tra diafana kurteno, kompatindan pil-
-
-grimantinon, kunportanta donacojn. Kaj la patrino rakontis
+mondo; vidis ŝi ŝin kiel tra diafana kurteno, kompatindan pilgrimantinon, kunportanta donacojn. Kaj la patrino rakontis
 
 pri la hejmo, pri najbaroj, pri tuta tiu malproksima mondo;
 
 ĉio, pri kio ŝi parolis, estis trista kaj malgrandformata kaj
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-ridinda, tiel ke Manjo ne aŭskultis atente kaj nur fojfoje ride-
-
-tis, kvazaŭ kompate. Apenaŭ ŝi konsciis, ke temas pri kompa-
+ridinda, tiel ke Manjo ne aŭskultis atente kaj nur fojfoje ridetis, kvazaŭ kompate. Apenaŭ ŝi konsciis, ke temas pri kompa-
 
 to; prenis ŝi foje la manon de la patrino kaj ĝin premis per
 
@@ -5450,13 +4360,9 @@ ambaŭ siaj maldikaj ostecaj manoj, tirante la patrinon al si —
 
 kompatindan, lacan, laboristan manon. Poste ŝi lasis ĝin, ŝi ne
 
-konsciis plu pri sia kompato, ankaŭ ne pri la patrino, ŝi rigar-
+konsciis plu pri sia kompato, ankaŭ ne pri la patrino, ŝi rigardis tra la fenestro, kie brilis la suno kaj invitis …
 
-dis tra la fenestro, kie brilis la suno kaj invitis …
-
-ŝia korpo jam preskaŭ tute malaperis. Maldikaj, kurbiĝin-
-
-taj kaj volviĝintaj ostetoj estis kovritaj per diafana haŭto; ŝiaj fingroj estis kiel longaj birdaj ungoj; vangoj ne plu ekzistis,
+ŝia korpo jam preskaŭ tute malaperis. Maldikaj, kurbiĝintaj kaj volviĝintaj ostetoj estis kovritaj per diafana haŭto; ŝiaj fingroj estis kiel longaj birdaj ungoj; vangoj ne plu ekzistis,
 
 ŝiaj lipoj fariĝis pli maldikaj, el profundaj kavoj rigardis nenature grandaj, trankvilaj okuloj. El la ostoj gambaj kaj
 
@@ -5472,30 +4378,19 @@ en stomakon. ŝiaj lipoj estis varmegaj kaj ili vundrompiĝis, en
 
 iliaj anguloj kolektiĝis ŝaŭma salivo.
 
-”ĉu vi tre suferas, Manjo?” demandis la patrino kaj larm-
-
-gutoj glitis sur ŝiaj vangoj.
+”ĉu vi tre suferas, Manjo?” demandis la patrino kaj larmgutoj glitis sur ŝiaj vangoj.
 
 Manjo ekmiris; nur iomete ŝi ridetis kaj skuis sian kapon,
 
-ĉar la haroj daŭre falis sur ŝian frunton kaj tiklis ŝiajn van-
+ĉar la haroj daŭre falis sur ŝian frunton kaj tiklis ŝiajn vangojn. Vidis ŝi la patrinon kaj pensis, kial glitas larmoj sur ŝiaj vangoj; sed jen, pro ŝi ili glitas! …
 
-gojn. Vidis ŝi la patrinon kaj pensis, kial glitas larmoj sur ŝiaj vangoj; sed jen, pro ŝi ili glitas! …
-
-La patrino ploris, sed Manjo ne estis trista kaj ŝi ne sufe-
-
-ris. Kio estas sufero? Tie malproksime ĝi estas, ekstere, pro-
+La patrino ploris, sed Manjo ne estis trista kaj ŝi ne suferis. Kio estas sufero? Tie malproksime ĝi estas, ekstere, pro-
 
 funde el la valo ĝi zumas. Foje ŝi ĝemspiris, turniĝante en la
 
 lito, sed ŝi mem ne aŭdis sian ĝemspiron kaj ne sentis ĝin. ŝi
 
-spertis suferadon lastafoje, kiam mortis la kanario. Kompa-
-
-tinda kanario, mortigita de la vivo …
-
-
-LA DOMO DE MARIA HELPANTINO
+spertis suferadon lastafoje, kiam mortis la kanario. Kompatinda kanario, mortigita de la vivo …
 
 
 Foje ŝi kunpremis okulojn; ŝi ne estis dormema, nur ŝi ne
@@ -5504,9 +4399,7 @@ emis rigardi. Venis la patrino; Manjo aŭdis ŝiajn paŝojn, sed
 
 ŝi ne levis la palpebrojn. Kaj kiam la patrino paŝis al la lito, ŝi ekploris laŭte. ”Manjo! Manjo!” Kial do ploras la patrino?
 
-Malfermis ŝi iom post iom siajn okulojn, ŝi ekridis kaj eten-
-
-dis la manon. ”ĉu vi ankoraŭ konas min, Manjo?” Kiel infa-
+Malfermis ŝi iom post iom siajn okulojn, ŝi ekridis kaj etendis la manon. ”ĉu vi ankoraŭ konas min, Manjo?” Kiel infa-
 
 naspekta estas la patrino! Kiel infana vizaĝo estas ŝia vizaĝo,
 
@@ -5518,23 +4411,17 @@ kunpremiĝis ŝiaj palpebroj kaj nur iomete brilis la blankaj
 
 okuloj tra la malhelaj brovharoj. La patrino genuis apud la
 
-lito, kaŝante la vizaĝon sub la littuko, plorante. Tiam venis sa-
-
-cerdoto, Manjo lin ekkonis laŭ lia peza kamparana iro, ĉar li
+lito, kaŝante la vizaĝon sub la littuko, plorante. Tiam venis sacerdoto, Manjo lin ekkonis laŭ lia peza kamparana iro, ĉar li
 
 portis per najloj ferumitajn ŝuojn. ŝi ne ŝatis lin; altstatura kaj magra li estis, ankaŭ lia vizaĝo estis alta kaj magra kaj lia nazo elstaris kiel birda beko. ”Ne ploru, sinjorino, ne ploru. Estu
 
 ĝoja, ke Dio ŝin vokos al si. Tia vivo — ne estas vere vivo. ŝi
 
-estas ĝena por la mondo kaj por si mem … ” Manjo aŭskul-
-
-tis kaj ridis en sia koro. El malproksimo venis tiuj ĉi voĉoj, sed ili estis pure klaraj kaj kompreneblaj. El la valo aŭdiĝis parolo, tiel serioza kaj solena, kiel parolas infanoj, kiam ili sin aranĝas plenkreskaj kaj marŝas tra la ĉambro, tenante ĉifonpupon en
+estas ĝena por la mondo kaj por si mem … ” Manjo aŭskultis kaj ridis en sia koro. El malproksimo venis tiuj ĉi voĉoj, sed ili estis pure klaraj kaj kompreneblaj. El la valo aŭdiĝis parolo, tiel serioza kaj solena, kiel parolas infanoj, kiam ili sin aranĝas plenkreskaj kaj marŝas tra la ĉambro, tenante ĉifonpupon en
 
 la manoj aŭ la cilindroĉapelon de la patro sur la kapo kaj lian
 
-longan pipon en la buŝo … Kaj pri morto ili parolas kun res-
-
-pekto kaj timo, kiel infano parolas pri feo … Kompatinda
+longan pipon en la buŝo … Kaj pri morto ili parolas kun respekto kaj timo, kiel infano parolas pri feo … Kompatinda
 
 patrino, plorplena infano, kompatinda beknaza kaplano! Pro
 
@@ -5547,12 +4434,7 @@ post tio, kiam ŝi venis, ŝi rimarkis ĝin kaj rapide alkutimiĝis,
 kvazaŭ temus pri amikino, najbarino. Jes, en la ĉambro ĝi
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
-estis, olda estiminda panjo, paŝante silente kiel fratulino Ce-
-
-cilia, ĝi paŝis jen al tiu, jen al jena lito kaj ĝia vizaĝo estis afabla. Sidis ĝi dumnokte en la angulo, sur la malalta seĝo, kal-
+estis, olda estiminda panjo, paŝante silente kiel fratulino Cecilia, ĝi paŝis jen al tiu, jen al jena lito kaj ĝia vizaĝo estis afabla. Sidis ĝi dumnokte en la angulo, sur la malalta seĝo, kal-
 
 kulante globetojn de sia rozario kaj dormetis … ĉiuj sciis, ke
 
@@ -5562,15 +4444,11 @@ kulante globetojn de sia rozario kaj dormetis … ĉiuj sciis, ke
 
 Nur iam Manjo ektimis; estis dumvintre, kiam ŝiaj vangoj
 
-ankoraŭ estis plenaj kaj ŝiaj okuloj ankoraŭ rigardis malpa-
-
-cience. ĉe la lito troviĝis la patrino kaj fratulino Cecilia kaj la patrino estis tute ĝoja, ĉar troviĝis kelkaj sangogutoj en la
+ankoraŭ estis plenaj kaj ŝiaj okuloj ankoraŭ rigardis malpacience. ĉe la lito troviĝis la patrino kaj fratulino Cecilia kaj la patrino estis tute ĝoja, ĉar troviĝis kelkaj sangogutoj en la
 
 vangoj de Manjo. Kaj tiam diris fratulino Cecilia: ”Ankoraŭ
 
-troviĝas ebleco, ke la afero turniĝos al pli bona stato kaj prin-
-
-tempe ŝi povus nin forlasi … ” Manjo, sidanta, apogis sin je
+troviĝas ebleco, ke la afero turniĝos al pli bona stato kaj printempe ŝi povus nin forlasi … ” Manjo, sidanta, apogis sin je
 
 la kapkuseno, tiel tiuj vortoj ŝin ekscitis. Tiam Manjo ne sciis, ĉu ŝi ekscitiĝis pro ĝojo, ĉu pro timo. Sed dumnokte ŝi sentis
 
@@ -5578,17 +4456,13 @@ siajn vundojn, ŝi palpe tuŝis sian malsanan korpon plorante
 
 … En tiu tempo la vizaĝo de Morto estis pli fremda kaj pli
 
-terura ol post tio, ne ankoraŭ ĝi estis afabla oldulino, enhej-
-
-miĝinta en la ĉambro — sed en tiu vespero ĝi vokis ŝin. Tris-
+terura ol post tio, ne ankoraŭ ĝi estis afabla oldulino, enhejmiĝinta en la ĉambro — sed en tiu vespero ĝi vokis ŝin. Tris-
 
 ta ŝi estis kaj ŝi ne komprenis kaj ankaŭ ne pensis pri tio, de
 
 kie venas la tristo …
 
-Sed nun ŝi komprenis ĉion, ŝiaj pensoj, antaŭ tio maltran-
-
-kvilaj, malklaraj, nun marŝis sur la bela ebena vojo, rekte al
+Sed nun ŝi komprenis ĉion, ŝiaj pensoj, antaŭ tio maltrankvilaj, malklaraj, nun marŝis sur la bela ebena vojo, rekte al
 
 la celo, de ĉiam por ŝi distinita, de ĉiam de ŝi antaŭsentita.
 
@@ -5599,9 +4473,6 @@ ekstere, en malvarma aprila vetero apenaŭ komencis krevi la
 unuaj ĝermoj.
 
 Infanece kaj malracie ŝi iam esperis je ”alia vivo”, pri kiu
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 rakontis al ŝi la patrino, ke ĝi ie troviĝas, ke ĝi subite venos,
@@ -5618,56 +4489,36 @@ kaj morgaŭ, post kiam mi vekiĝos, ĉio estos alie …”
 
 Neracia kaj nekonstanta espero, kreskinta el la malsana
 
-koro, el la zorgemo kaj sufero, perdita, vaganta sur la dekli-
+koro, el la zorgemo kaj sufero, perdita, vaganta sur la deklivaj padoj, malproksime de la bela ebena strato. Antaŭsento
 
-vaj padoj, malproksime de la bela ebena strato. Antaŭsento
+estis tiu ĉi espero, maltrankvila kiel antaŭsento, malkreskanta, jen alte flamiĝanta, najbaro al malespero kaj atendado …
 
-estis tiu ĉi espero, maltrankvila kiel antaŭsento, malkreskan-
-
-ta, jen alte flamiĝanta, najbaro al malespero kaj atendado …
-
-Tiel ĝin sentis Manjo, ĝis ŝia animo disfloris kiel floro en var-
-
-ma ĉambro.
+Tiel ĝin sentis Manjo, ĝis ŝia animo disfloris kiel floro en varma ĉambro.
 
 Nun ŝi malfermis la okulojn kaj rigardis kontraŭ ĉielo, kiu
 
 invitis, kaj ŝi ekridetis …
 
-Ekstere estis printempo, bela, kiel neniam ĝis tiam. La kna-
+Ekstere estis printempo, bela, kiel neniam ĝis tiam. La knabinoj rigardis al la ĉielo, kiu brilis klare kaj varme, al la gaja suno, kiu ridis kaj tra la fenestro venis svati, ili preparis sin por foriro. Strangajn rakontojn ili rakontis kaj en tiuj rakontoj estis tiom da glorhava atendado! ĉiuj, kiuj povis survojiĝi,
 
-binoj rigardis al la ĉielo, kiu brilis klare kaj varme, al la gaja suno, kiu ridis kaj tra la fenestro venis svati, ili preparis sin por foriro. Strangajn rakontojn ili rakontis kaj en tiuj rakontoj estis tiom da glorhava atendado! ĉiuj, kiuj povis survojiĝi,
-
-preparis sin por foriro, en belan landon, en alian vivon. Mul-
-
-taj estis tie jam pasintjare kaj ili rakontis, per pura kaj mistera gajo, kiel infanoj rakontas pri sankta Nikolao, kristnasko kaj
+preparis sin por foriro, en belan landon, en alian vivon. Multaj estis tie jam pasintjare kaj ili rakontis, per pura kaj mistera gajo, kiel infanoj rakontas pri sankta Nikolao, kristnasko kaj
 
 pasko.
 
-Fine de majo ili survojiĝas. Kiel al gaja nupto, feste vesti-
-
-taj, ridantaj kaj jubilantaj. Fratulino Cecilia iros kun ili; sube antaŭ la granda pordo atendos tri ĉaroj, la ĉevaloj senpacience frapos per hufoj, la stiristo retrorigardos kaj instigos.
+Fine de majo ili survojiĝas. Kiel al gaja nupto, feste vestitaj, ridantaj kaj jubilantaj. Fratulino Cecilia iros kun ili; sube antaŭ la granda pordo atendos tri ĉaroj, la ĉevaloj senpacience frapos per hufoj, la stiristo retrorigardos kaj instigos.
 
 ”Rapide, rapide, por ke ni ne maltrafu la trajnon!” Rapide,
 
-rapide ek! Kaj sur vastaj, senmezure longaj stratoj, preter altaj 107
-
-LA DOMO DE MARIA HELPANTINO
+rapide ek! Kaj sur vastaj, senmezure longaj stratoj, preter altaj
 
 
 domoj, tra polvoplena urbo. Adiaŭ, polvoplena urbo, adiaŭ
 
-sinjorino grafino! Estu laŭdata Jesuo Kristo! … Jen ek en fer-
+sinjorino grafino! Estu laŭdata Jesuo Kristo! … Jen ek en fervojvagonojn; jam hurlas la trajno, jam ekkrakis, skuiĝis la
 
-vojvagonojn; jam hurlas la trajno, jam ekkrakis, skuiĝis la
+vagono … Adiaŭ, urbo, adiaŭ valo, adiaŭ vivo! La trajno skandas, egalritme, obtuze, estas frapado kiel tiktakado de nevi-
 
-vagono … Adiaŭ, urbo, adiaŭ valo, adiaŭ vivo! La trajno skan-
-
-das, egalritme, obtuze, estas frapado kiel tiktakado de nevi-
-
-debla giganta horloĝo. Ek al fenestro, infanoj! Jen ekstraordi-
-
-nare granda urbo tie sube, kun sennombre multaj sveltaj al-
+debla giganta horloĝo. Ek al fenestro, infanoj! Jen ekstraordinare granda urbo tie sube, kun sennombre multaj sveltaj al-
 
 taj fabrikkamentuboj — la urbo estis kaj jam pasis, ĝi sinkis.
 
@@ -5675,9 +4526,7 @@ Kaj nun jen, kampoj kaj herbejoj kaj altaĵoj, alia mondo, nova
 
 vivo … Suno, suno, suno! Kie estas tiu suno, kiu brilis tie
 
-sube? Ne plu ĝi ekzistas, nur plu espero ĝi estis, nur antaŭ-
-
-sento! Kaj ĉi tie estas la suno, ĝi disvastigas sian reĝan riĉon
+sube? Ne plu ĝi ekzistas, nur plu espero ĝi estis, nur antaŭsento! Kaj ĉi tie estas la suno, ĝi disvastigas sian reĝan riĉon
 
 sur la tuta vasta firmamento, sur la tuta vasta tero. Alta kaj
 
@@ -5703,9 +4552,7 @@ En iliaj koroj estis firma kredo, atendanta realiĝon. Kiam ili
 
 dumvespere flustris, sonĝis kun vaste apertaj okuloj, strangaj,
 
-helaj kaj dolĉaj fabeloj transplektis la someran hejmon, tro-
-
-viĝinta sub la vera suno, meze de la vasta ĝardeno. Noktpro-
+helaj kaj dolĉaj fabeloj transplektis la someran hejmon, troviĝinta sub la vera suno, meze de la vasta ĝardeno. Noktpro-
 
 funde ili flustris pri la fabelo, kiu efektiviĝas, sonĝis ili dum-dorme ĝis la mateno pri mirinda verdkreskaĵo, altaj arboj,
 
@@ -5714,18 +4561,11 @@ balacantaj envente, pri floroj, revantaj. Kaj de la arboj pendis
 oraj pomoj, arĝenta estis la sablo sur senvoĉaj padoj, princoj
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 tie promenis, belaj kaj junaj; en arbusto sidis gnomo kun
 
-granda peltĉapo surkape, flaranta tabakan pulvoron. Ili post-
+granda peltĉapo surkape, flaranta tabakan pulvoron. Ili postkuris unu la alian sur la herbejo, kie mola herbaro kreskis
 
-kuris unu la alian sur la herbejo, kie mola herbaro kreskis
-
-ĝisgenue, ili estis vestitaj en malpezaj ĉemizoj el arĝenta ara-
-
-neaĵo, ili sin ĉaskuris reciproke kaj ridis, tiel ke la tintanta
+ĝisgenue, ili estis vestitaj en malpezaj ĉemizoj el arĝenta araneaĵo, ili sin ĉaskuris reciproke kaj ridis, tiel ke la tintanta
 
 voĉado etendiĝis ĝisĉielen, kie sidis fratulino Cecilia sur malalta ora seĝeto, plektante ŝtrumpojn, rigardante suben kaj
 
@@ -5735,9 +4575,7 @@ al saligita panplektaĵo; kaj Aloiza paŝis tien —”Estu laŭdata
 
 Jesuo Kristo!” — kaj ŝi detranĉis la krakenon …
 
-Manjo foje aŭskultis, kiam ili interparolis. ”Kial ni aten-
-
-das?” —”Por ke Manjo mortu. ŝi suferus, ĉar ŝi pensas, ke ŝi
+Manjo foje aŭskultis, kiam ili interparolis. ”Kial ni atendas?” —”Por ke Manjo mortu. ŝi suferus, ĉar ŝi pensas, ke ŝi
 
 venos kun ni.” —”Pasintjare en tiu sama tempo ni jam troviĝis
 
@@ -5745,49 +4583,30 @@ ekstere kaj ne estis tia suno kiel ĉijare. Jes, ekstere ĉio jam
 
 estas verda, ĉio floras.” —”Kial ŝi ne mortas?” —”Morgaŭ
 
-probable … Nur ĝis dimanĉo ni plu atendos, kaj se ŝi ne mor-
-
-tos, ni iros.” — Manjo demandis matene al fratulino Cecilia:
+probable … Nur ĝis dimanĉo ni plu atendos, kaj se ŝi ne mortos, ni iros.” — Manjo demandis matene al fratulino Cecilia:
 
 ”ĉu mi ne iros kun vi?” —”Kompreneble, ke vi kuniros!”
 
-Kaj dum la suno brilis tiel gaje kaj varme, Manjo ĉirkaŭri-
+Kaj dum la suno brilis tiel gaje kaj varme, Manjo ĉirkaŭrigardis en la ĉambro kaj vidis ĉiujn okulojn direktitaj al ŝi. Ob-
 
-gardis en la ĉambro kaj vidis ĉiujn okulojn direktitaj al ŝi. Ob-
-
-servis ili ŝian vizaĝon, ŝiajn maldikajn manojn, ŝiajn bruligi-
-
-tajn lipojn, subaŭskultis ili, kiamaniere ŝi ĉasis sian spiron. Kaj ĉiuj okuloj ŝin petis: ”Jen, Manjo, mortu!” Ja ekstere brilis la
+servis ili ŝian vizaĝon, ŝiajn maldikajn manojn, ŝiajn bruligitajn lipojn, subaŭskultis ili, kiamaniere ŝi ĉasis sian spiron. Kaj ĉiuj okuloj ŝin petis: ”Jen, Manjo, mortu!” Ja ekstere brilis la
 
 suno kaj invitis, ĉiuj koroj leviĝis al ĝi.
 
 En alian mondon, novan vivon! Ek survojen! Ek survojen!
 
-Neniam pensis Manjo, ke ŝi povus ne iri kun ili, eĉ por mo-
-
-mento ŝin ne trakuris tia timo. Ankaŭ ŝia kredo estis firma,
+Neniam pensis Manjo, ke ŝi povus ne iri kun ili, eĉ por momento ŝin ne trakuris tia timo. Ankaŭ ŝia kredo estis firma,
 
 kredo je alia mondo, en alian vivon, ankaŭ ŝi urĝis tien, kie
 
 
-LA DOMO DE MARIA HELPANTINO
+brilas la aŭtenta suno kaj la tuta pejzaĝo estas unu nura ĝardeno …
 
+Apenaŭ komencis tagiĝi, jam mistere eksusuris en la ĉambro, la knabinoj leviĝis kaj rapide sin aranĝis, festtaga etoso
 
-brilas la aŭtenta suno kaj la tuta pejzaĝo estas unu nura ĝar-
+legiĝis sur ĉiuj iliaj vizaĝoj. Ankaŭ Manjo vekiĝis, leviĝis iomete ŝiaj brovoj kaj ŝi rigardis ĉirkaŭe en la ĉambro. ”Nun do
 
-deno …
-
-Apenaŭ komencis tagiĝi, jam mistere eksusuris en la ĉam-
-
-bro, la knabinoj leviĝis kaj rapide sin aranĝis, festtaga etoso
-
-legiĝis sur ĉiuj iliaj vizaĝoj. Ankaŭ Manjo vekiĝis, leviĝis iom-
-
-ete ŝiaj brovoj kaj ŝi rigardis ĉirkaŭe en la ĉambro. ”Nun do
-
-ni finfine iros!” ŝi pensis. Fratulino Cecilia paŝis senvoĉe, sur-fingre; ŝi paŝis al la lito kaj sin klinis, sed ŝi ne vidis, ke Manjo vekiĝis. Karese ŝi iris per la mano trans ŝian frunton, per poŝ-
-
-tuko ŝi viŝis ŝian ŝviton kaj ŝi tiris la litkovrilon ĝis ŝia kolo …
+ni finfine iros!” ŝi pensis. Fratulino Cecilia paŝis senvoĉe, sur-fingre; ŝi paŝis al la lito kaj sin klinis, sed ŝi ne vidis, ke Manjo vekiĝis. Karese ŝi iris per la mano trans ŝian frunton, per poŝtuko ŝi viŝis ŝian ŝviton kaj ŝi tiris la litkovrilon ĝis ŝia kolo …
 
 Fariĝis tago, ekbrilis la suno sur la vando. Ek survojen, ek
 
@@ -5801,9 +4620,7 @@ kaj sin prepari!” Sed jen, ŝia kapo ne leviĝis, ŝiaj gamboj ne
 
 movis sin. ŝiaj duone apertaj okuloj maltrankvile serĉis, ŝia
 
-mano palpis laŭ la litkovrilo, ĉe la kapkuseno; sed la festota-
-
-ga vesto ne troviĝis sur la lito. Bone, sur la seĝo ĝi verŝajne
+mano palpis laŭ la litkovrilo, ĉe la kapkuseno; sed la festotaga vesto ne troviĝis sur la lito. Bone, sur la seĝo ĝi verŝajne
 
 kuŝas kaj oni devus rigardi. Moviĝis la lipoj dezirantaj voki
 
@@ -5813,9 +4630,7 @@ esperis la patrino je tiu alia vivo, sed nun ŝi ne estas ĉi tie,
 
 kiam oni devus survojiĝi …
 
-Jam ĉiuj knabinoj estis vestitaj, ili sin movis kiel etaj om-
-
-broj; sunradioj sur la vando reflektis pli kaj pli hele. Moviĝis
+Jam ĉiuj knabinoj estis vestitaj, ili sin movis kiel etaj ombroj; sunradioj sur la vando reflektis pli kaj pli hele. Moviĝis
 
 la ombroj, krakbruis obtuze kaj malfermiĝis la pordo. Tiam
 
@@ -5823,17 +4638,9 @@ fratulino Cecilia turnis sian rigardon, malforta sopranvoĉo
 
 leviĝis el la lito. ŝi klinis sin kaj aŭskultis; ŝiaj okuloj lace malfermiĝis kaj maltrankvile ekbrilis, ŝiaj lipoj komencis flustri
 
-ion nekompreneblan. ”Jes, Manjo, vi kunvenos!” Kaj fratuli-
+ion nekompreneblan. ”Jes, Manjo, vi kunvenos!” Kaj fratulino Cecilia iris kaj kunportis al ŝi festtagan veston. Manjo ekri-
 
-
-LA DOMO DE MARIA HELPANTINO
-
-
-no Cecilia iris kaj kunportis al ŝi festtagan veston. Manjo ekri-
-
-detis; ŝia kredo estis firma kaj fortega; ne trairis ŝin timsen-
-
-to, nur ŝi miris, ĉar ne troviĝis la festtaga vesto sur la lito kaj ĉar la aliaj knabinoj sin aranĝis tiel senvoĉe kaj kontrabande-ce, kvazaŭ ili volus ŝin trompi kaj lasi sola … Eksusuris ekstere, ekkrakis kiel ĉarradoj sur la ŝtonpavimita vojo … Ek
+detis; ŝia kredo estis firma kaj fortega; ne trairis ŝin timsento, nur ŝi miris, ĉar ne troviĝis la festtaga vesto sur la lito kaj ĉar la aliaj knabinoj sin aranĝis tiel senvoĉe kaj kontrabande-ce, kvazaŭ ili volus ŝin trompi kaj lasi sola … Eksusuris ekstere, ekkrakis kiel ĉarradoj sur la ŝtonpavimita vojo … Ek
 
 survojen, ek survojen! La suno jam apenaŭ povas atendi, la
 
@@ -5847,19 +4654,13 @@ apud ŝia lito, sed Manjo rekonus sian patrinon, eĉ se ŝi ne
 
 turnus sian vizaĝon. ustatempe venis la patrino, kaj nun, ek
 
-survojen al la dezirata alia vivo … ŝiaj manoj glitis laŭ la lit-
+survojen al la dezirata alia vivo … ŝiaj manoj glitis laŭ la litkovrilo, ŝiaj fingroj spasmis, sed la festotaga vesto estis tiel
 
-kovrilo, ŝiaj fingroj spasmis, sed la festotaga vesto estis tiel
-
-peza, ke ŝi ĝin ne povis levi … Tiam ŝi unuafoje sentis mal-
-
-trankvilon, io malhela kaj malsaneca nestiĝis en ŝiaj pensoj,
+peza, ke ŝi ĝin ne povis levi … Tiam ŝi unuafoje sentis maltrankvilon, io malhela kaj malsaneca nestiĝis en ŝiaj pensoj,
 
 ŝi suspiris. Kiel en sonĝoj ŝi aŭdis la ploron de sia patrino …
 
-Maltrankvilo ekregis en ŝia interno, ĉar ŝi ekhavis impre-
-
-son, kvazaŭ la ĉaroj ekveturus sur la falsa vojo — suben al la
+Maltrankvilo ekregis en ŝia interno, ĉar ŝi ekhavis impreson, kvazaŭ la ĉaroj ekveturus sur la falsa vojo — suben al la
 
 valo, kie estas nokto kaj sufero … ŝiaj lipoj moviĝetis, ŝi eligis krion, sed voĉo ne aŭdiĝis. Tiam Aloiza sin turnis rigarde:
 
@@ -5878,15 +4679,9 @@ Gaja procesio meandris el la valo, kie troviĝas la nokto kaj
 la sufero. Vipoj klakis, ĉevaloj henis kaj iliaj piedoj huffrapis sur la ŝtonpavimita vojo. Sur la ĉaroj kantis junaj voĉoj, pli kaj pli malalten sinkis la valo, sed tie supre jam brulis montetoj,
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 la suno iris renkonte al la procesio, ĝiaj haroj brilreflektis, el oraj radioj plektitaj … Salutata estu Kristo, la fianĉo, vi ofere-me amata, tiel pene atendata! … Salutata! …
 
 F I N O
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 Ivan Cankar
@@ -5897,40 +4692,27 @@ Ivan Cankar
 
 *V Oŝlak*
 
-La genio de slovena literaturo ne estas proza, ne estas dra-
-
-ma, eĉ ne estas pripense esea, ĝi estas lirika. ĉu do stran-
+La genio de slovena literaturo ne estas proza, ne estas drama, eĉ ne estas pripense esea, ĝi estas lirika. ĉu do stran-
 
 ge, ke la ĉefa klasikulo de la slovena prozo estas verkisto, kiu
 
-efektive pli poeziis ol prozis, pli metaforis kaj ritmis ol epo-
-
-sis kaj rakontis? Ne nur tio. Ivan Cankar komencis sian lite-
+efektive pli poeziis ol prozis, pli metaforis kaj ritmis ol eposis kaj rakontis? Ne nur tio. Ivan Cankar komencis sian lite-
 
 raturan karieron kiel poeto, lia *Erotika*, aperinta en la jaro 1899 ĉe la sama eldonisto Schwentner, kiel poste preskaŭ ĉiuj
 
-liaj prozaj verkoj, estis kolekto de poeziaĵoj, talentitaj poezi-
-
-aĵoj, tamen por postuloj de la aŭtoro ne sufiĉe talentitaj, ja li aspiris geniecon aŭ li volis retiriĝi — kaj li retiriĝis poete, vid-inte, ke li ne povos konkurenci kun sia samtempulo kaj lite-
+liaj prozaj verkoj, estis kolekto de poeziaĵoj, talentitaj poeziaĵoj, tamen por postuloj de la aŭtoro ne sufiĉe talentitaj, ja li aspiris geniecon aŭ li volis retiriĝi — kaj li retiriĝis poete, vid-inte, ke li ne povos konkurenci kun sia samtempulo kaj lite-
 
 ratura samskolano (moderno) Oton Òupanâiâ (1878-1949).
 
-Estiĝis iaspeca neformulita interkonsento: Òupanâiâ, kiu ne-
-
-niam eksperimentis proze, fariĝis laŭ la prijuĝo de la litera-
+Estiĝis iaspeca neformulita interkonsento: Òupanâiâ, kiu neniam eksperimentis proze, fariĝis laŭ la prijuĝo de la litera-
 
 turhistorio la dua plej granda slovena poeto post Preôeren
 
 (1800-1849), dum Cankar, kiu eksperimentis poezie, fariĝis
 
-laŭ la sama prijuĝo senkonkurence unuaranga slovena pro-
-
-zisto. Sed, tion mi volas ĉi tie emfazi, lia prozo prozas nur laŭ sia ekstera formo; laŭ sia spirito kaj eĉ laŭ multaj internaj for-moj ĝi estas efektive poezio. Ankaŭ la ĉi tie tradukita verko,
+laŭ la sama prijuĝo senkonkurence unuaranga slovena prozisto. Sed, tion mi volas ĉi tie emfazi, lia prozo prozas nur laŭ sia ekstera formo; laŭ sia spirito kaj eĉ laŭ multaj internaj for-moj ĝi estas efektive poezio. Ankaŭ la ĉi tie tradukita verko,
 
 *La domo de Maria helpantino*, estas, kvankam laŭekstere novelo, efektive poezio, ĉar la genio de tiu ĉi popolo estas
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 esence poezia kaj ne povas naski kaj eduki veran proziston,
@@ -5947,9 +4729,7 @@ evoluu rapsodia rakonta tekniko, skribita per amorfa karbo
 
 de epiko. Sub gigantaj premoj — inter tri grandaj popoloj, iliaj
 
-lingvoj kaj kulturoj (germana, itala, hungara), sed eĉ pli dec-
-
-ide, ilia politika, militista kaj ekonomia povo — la sama kar-
+lingvoj kaj kulturoj (germana, itala, hungara), sed eĉ pli decide, ilia politika, militista kaj ekonomia povo — la sama kar-
 
 bo, kiu en normalaj cirkonstancoj fariĝas amorfa grafito por
 
@@ -5957,13 +4737,9 @@ produkti prozajn krajonojn, estiĝis laŭ la konata fizika leĝo
 
 diamantoj por ĉizeli vortŝparajn lirikajn arabeskojn. Eble la
 
-sola vera escepto de tiu regulo estis ankoraŭ ĉiam subtaksa-
+sola vera escepto de tiu regulo estis ankoraŭ ĉiam subtaksata — parte pro sia politika engaĝiĝo, estante grava funkciulo
 
-ta — parte pro sia politika engaĝiĝo, estante grava funkciulo
-
-de Kominterno kaj samtempe partia rivalo de Tito kaj lia kli-
-
-ko — Lovro Kuhar-Preòih (1893-1950) kun siaj romanoj, kiuj
+de Kominterno kaj samtempe partia rivalo de Tito kaj lia kliko — Lovro Kuhar-Preòih (1893-1950) kun siaj romanoj, kiuj
 
 iasence memorigas al la tradicio de granda rusa prozo.
 
@@ -5979,29 +4755,17 @@ de reala gimnazio en Labako. Post tio li translokiĝis al Vieno,
 
 kie li enskribis teknikan studadon, kiun li poste neglektis, ĉar
 
-li sin tute dediĉis al verkado. En Vieno li kelkfoje ŝanĝis loĝe-
+li sin tute dediĉis al verkado. En Vieno li kelkfoje ŝanĝis loĝejon kaj okaze serĉis sian estontan fianĉinon jen ĉe tiu, jen ĉe
 
-jon kaj okaze serĉis sian estontan fianĉinon jen ĉe tiu, jen ĉe
-
-iu alia filino de sia ĉambromastrino. En Ottakring, tiam pro-
-
-letaria kvartalo de Vieno, li konatiĝis kun la ”laborista de-
+iu alia filino de sia ĉambromastrino. En Ottakring, tiam proletaria kvartalo de Vieno, li konatiĝis kun la ”laborista de-
 
 mando” kaj fariĝis laŭ sia konv socialdemokrato. En tiu
 
 senco li en la jaro 1907 eĉ kandidatis ĉe la tutregnaj balotoj
 
-por la viena parlamento sur la listo de jugoslaviaj socialdemo-
+por la viena parlamento sur la listo de jugoslaviaj socialdemokratoj. En la medio de Ottakring estiĝis la plej konataj kaj
 
-
-LA DOMO DE MARIA HELPANTINO
-
-
-kratoj. En la medio de Ottakring estiĝis la plej konataj kaj
-
-oftaj motivoj de lia prozo. En liaj mallongaj noveloj ofte ape-
-
-ras ĉeąj nomoj, ja ĉe˛oj tiutempe amase alloĝiĝis en Vieno
+oftaj motivoj de lia prozo. En liaj mallongaj noveloj ofte aperas ĉeąj nomoj, ja ĉe˛oj tiutempe amase alloĝiĝis en Vieno
 
 kiel proletarioj. Pri lia multjara restado en Vieno memorigas
 
@@ -6015,35 +4779,25 @@ plej gravaj verkoj de germanaj kaj tutmondaj klasikuloj. Lia
 
 tiama mondpercepto estis miksaĵo de iaspeca niĉeismo (laŭ
 
-F. Nietzsche, 1844-1900) kaj vulgara marksismo, kiu tiam dis-
-
-vastiĝis ĉe la socialdemokratoj en formo de maldikaj broŝu-
+F. Nietzsche, 1844-1900) kaj vulgara marksismo, kiu tiam disvastiĝis ĉe la socialdemokratoj en formo de maldikaj broŝu-
 
 roj. Nur post la jaro 1910, kiam Cankar revenis al sia patrujo
 
-kaj stabiliĝis en Labako, li revenis ankaŭ al sia katolika kre-
-
-do, kvankam certajn elementojn de socialdemokratio li neni-
+kaj stabiliĝis en Labako, li revenis ankaŭ al sia katolika kredo, kvankam certajn elementojn de socialdemokratio li neni-
 
 am forlasis. La aŭtoroj, kiuj lin plej forte inspiris, estis apud Biblio: Dostojevski, Emerson, Nietzsche, Gogolj, Tolstoj,
 
 Heine, Ibsen, Verlain, Baudelaire, Maeterlinck.
 
-Tamen tiu mondpercepta orientiĝo priskribas nur la ekste-
-
-ran flankon de Ivan Cankar. En sia spirita strukturo li esen-
+Tamen tiu mondpercepta orientiĝo priskribas nur la eksteran flankon de Ivan Cankar. En sia spirita strukturo li esen-
 
 ce ligiĝis al bibliaj fontoj. Lia obsedo estis paska kredo je
 
-resurekto, kiun li projekciis ankaŭ al sia popolo kaj en la tem-
-
-po de sia socialdemokratia engaĝiĝo al la proletaria klaso.
+resurekto, kiun li projekciis ankaŭ al sia popolo kaj en la tempo de sia socialdemokratia engaĝiĝo al la proletaria klaso.
 
 Komunistoj poste miskomprene proklamis lian novelon *Ser-*
 
-*visto Bartolomeo kaj lia rajto* (1907) — tradukita en Esperanton de Franjo Modrijan — poeziigo de la Komunista manifes-
-
-to de Marx kaj Engels. Efektive tio estis multe pli socialdemo-
+*visto Bartolomeo kaj lia rajto* (1907) — tradukita en Esperanton de Franjo Modrijan — poeziigo de la Komunista manifesto de Marx kaj Engels. Efektive tio estis multe pli socialdemo-
 
 kratigo de la kristana evangelio. Ne nur liaj motivoj kaj eĉ
 
@@ -6054,9 +4808,6 @@ mem estas biblistila. Oni ne povas plenĝue legi la prozon de
 Cankar, se oni ne konatiĝis bone kun Biblio kaj speciale kun
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Nova testamento. Ankaŭ en tiu ĉi senco la komunistoj, kiuj
 
 post 1945 ĝis sia fiasko en 1989 provis alproprigi al si lian
@@ -6065,39 +4816,25 @@ arton, per sistema forigo de ĉiuj religiaj kaj tiel ankaŭ bibliaj enhavoj el l
 
 Kontraŭe, la nuna generacio, krom tiuj, kiuj hejme kaj private
 
-frekventis religiinstruon, ne povas kompreni la kernajn kate-
-
-goriojn de Ivan Cankar.
+frekventis religiinstruon, ne povas kompreni la kernajn kategoriojn de Ivan Cankar.
 
 En sia mondpercepta kaj politika orientiĝo Ivan Cankar
 
-samtempe kritikis la katolikan devojiĝon sub la formo de kle-
-
-rikalismo — sed eĉ pli li kritikis kaj malakceptis la doktrinon
+samtempe kritikis la katolikan devojiĝon sub la formo de klerikalismo — sed eĉ pli li kritikis kaj malakceptis la doktrinon
 
 de liberalismo. Kiel sociale sentema homo li tuj vidis, al kiaj
 
-konsekvencoj por etbienuloj kaj proletarioj kondukas la sen-
-
-brida profitavido de liberalisma burĝaro. Liberalismon li mal-
+konsekvencoj por etbienuloj kaj proletarioj kondukas la senbrida profitavido de liberalisma burĝaro. Liberalismon li mal-
 
 akceptis ankaŭ el nacia motivo, ja ĝi estis ligita kun programo
 
-de germanigo de la slovena popolo — kaj Cankar bone pri-
+de germanigo de la slovena popolo — kaj Cankar bone prijuĝis, ke la katolika eklezio efektive estis la lasta kaj plej firma ŝirmilo kontraŭ la germaniga ondo.
 
-juĝis, ke la katolika eklezio efektive estis la lasta kaj plej firma ŝirmilo kontraŭ la germaniga ondo.
+Komunistoj en sia historiografio senĉese ripetis la epizodon pri la jam menciita poemkolekto *Erotika*. La tiama laba-ka episkopo Bonaventura Jegliĉ kolektis ĉiujn disponeblajn
 
-Komunistoj en sia historiografio senĉese ripetis la epizo-
+ekzemplerojn de tiu ĉi libro kaj ilin forbruligis. Tiu ago certe ne honorigas la tiaman kulturan nivelon de slovena kato-
 
-don pri la jam menciita poemkolekto *Erotika*. La tiama laba-ka episkopo Bonaventura Jegliĉ kolektis ĉiujn disponeblajn
-
-ekzemplerojn de tiu ĉi libro kaj ilin forbruligis. Tiu ago cer-
-
-te ne honorigas la tiaman kulturan nivelon de slovena kato-
-
-likismo. Sed komunistoj forgesis diri la tutan veron: episko-
-
-po Bonaventuro Jegliĉ ĉiujn ekzemplerojn de tiu ĉi tiam vere
+likismo. Sed komunistoj forgesis diri la tutan veron: episkopo Bonaventuro Jegliĉ ĉiujn ekzemplerojn de tiu ĉi tiam vere
 
 provoka libro private aĉetis kaj el sia poŝo pagis, kontraste al
 
@@ -6109,9 +4846,7 @@ mem ne tro saĝa kaj honora ago profitis, ĉar lia eldonisto tuj
 
 reagis al tiel kompleta deaĉeto per nova eldonkvanto. Cankar
 
-ne estis vokita antaŭ tribunalon, kiel estis vokitaj dekoj da liaj 116
-
-LA DOMO DE MARIA HELPANTINO
+ne estis vokita antaŭ tribunalon, kiel estis vokitaj dekoj da liaj
 
 
 kolegoj en la tempo de komunista regado en Slovenio. La
@@ -6122,25 +4857,19 @@ nacioj, sed ĝi estis kompare kun aliaj landoj bone regita jura
 
 ŝtato kun granda jura sekureco de unuopa civitano. Ilustru
 
-tion epizodo el la tempo tuj antaŭ la unua mondmilito. Can-
-
-kar havis en la jaro 1913, do en la plej malfacila tempo por
+tion epizodo el la tempo tuj antaŭ la unua mondmilito. Cankar havis en la jaro 1913, do en la plej malfacila tempo por
 
 aŭstra imperio, en Triesto prelegon sub la titolo *Slovenci in* *Jugoslovani* (Slovenoj kaj Jugoslavoj), en kiu li publike kriis:
 
 ”Venis la tempo, ke pereu la olda putino Austrio … ” Por tiu
 
-delikto li estis punita per 1 semajno de enkarcerigo en La-
-
-bako. Tiel idilia ”persekutado” bedaŭrinde per la pereo de
+delikto li estis punita per 1 semajno de enkarcerigo en Labako. Tiel idilia ”persekutado” bedaŭrinde per la pereo de
 
 Aŭstrio por ĉiam malaperis el tiu ĉi parto de Eŭropo.
 
 Sed ni revenu al la ĉi tie prezentata libro, *La domo de Ma-*
 
-*ria helpantino*. La sanatorio, kiun Cankar ĉi tie — kompreneble en sia ekstreme groteska maniero — literaturrakonte pre-
-
-zentas, ankoraŭ nuntempe funkcias. En ĝi oni antaŭ kelkaj
+*ria helpantino*. La sanatorio, kiun Cankar ĉi tie — kompreneble en sia ekstreme groteska maniero — literaturrakonte prezentas, ankoraŭ nuntempe funkcias. En ĝi oni antaŭ kelkaj
 
 jaroj eĉ prezentis la germanan tradukon de tiu ĉi libro. La tuta
 
@@ -6160,9 +4889,7 @@ estas la erotika. La apero de la libro en la jaro 1904 provokis
 
 la tiaman legantaron kaj recenzistojn en ĝis tiam nekonata
 
-grado. Eĉ recenzistoj, kiuj ne povis ne rekoni al Cankar bri-
-
-lan lingvan stilon, riproĉis al li ne malpli ol ”pornografion”.
+grado. Eĉ recenzistoj, kiuj ne povis ne rekoni al Cankar brilan lingvan stilon, riproĉis al li ne malpli ol ”pornografion”.
 
 Kobal, recenzisto el la katolika tendaro, skribis: ”Cankar do
 
@@ -6171,26 +4898,17 @@ antaŭmetis novan libron en nia libromerkato … Li donacis al
 ni novan artefakton, certe la plej grandan kaj plej perfektan
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 artefakton, kiun ĝis nun naskis lia muzo. Sed … li donacis al
 
 ni rafinitan, artiste perfektan pornografion.”
 
-Bedaŭrinde neniu, nek tiuj, kiuj lian verkon kritikis (kato-
+Bedaŭrinde neniu, nek tiuj, kiuj lian verkon kritikis (katolikoj), nek tiuj, kiuj ĝin aprobis aŭ laŭdis (socialistoj kaj unuopaj liberpensuloj), vidis la trian, plej profundan tavolon, la
 
-likoj), nek tiuj, kiuj ĝin aprobis aŭ laŭdis (socialistoj kaj unuopaj liberpensuloj), vidis la trian, plej profundan tavolon, la
-
-religian. La tuta teksto estas psalmo pri homa sopiro al trans-
-
-cenda resurekto, estas priskribo de adventeca naturo de la
+religian. La tuta teksto estas psalmo pri homa sopiro al transcenda resurekto, estas priskribo de adventeca naturo de la
 
 homa animo.
 
-Li mem defendis sin per jena eldiro: ”Unu libron oni kom-
-
-plete mise, false kaj malice komprenis. Temas pri *La domo de*
+Li mem defendis sin per jena eldiro: ”Unu libron oni komplete mise, false kaj malice komprenis. Temas pri *La domo de*
 
 *Maria helpantino*. ĉe tiu ĉi libro mi havis kiel rojo puran penson … La ideo de la domo ne estas porkeca, sed tragika: dek
 
@@ -6198,13 +4916,9 @@ kvar malsanaj knabinoj, kiuj mortante atendas je vivo kaj
 
 sano.”
 
-Nuntempe, kiam ni scias, kio vere estas kaj povas esti por-
+Nuntempe, kiam ni scias, kio vere estas kaj povas esti pornografio, la verdikto de la severa katolika recenzisto Kobal
 
-nografio, la verdikto de la severa katolika recenzisto Kobal
-
-provokas en ni mirantan rideton. Efektive ni estas privilegi-
-
-itaj, ke ni povas legi tiun ĉi perlon de slovena klasika prozo,
+provokas en ni mirantan rideton. Efektive ni estas privilegiitaj, ke ni povas legi tiun ĉi perlon de slovena klasika prozo,
 
 efektive pli poezio ol prozo, sen moralismaj okulvitroj de tiu
 
@@ -6214,22 +4928,15 @@ el tiu tempo daŭre funkcias — kompreneble ne en la mizera
 
 stato, kiun pentris la verkisto — eĉ la priskribita mizero daŭre
 
-ekzistas, kvankam ne ĝuste en la nomita instituto. Nuntem-
+ekzistas, kvankam ne ĝuste en la nomita instituto. Nuntempe la tuta mondo transformiĝas al malsanulejo, en kiu junaj
 
-pe la tuta mondo transformiĝas al malsanulejo, en kiu junaj
-
-homoj, malsataj je vera amo kaj inklino, mortaĉas, eĉ se ma-
-
-terie sategaj, eĉ se materie priluksigitaj, tamen spirite malple-
+homoj, malsataj je vera amo kaj inklino, mortaĉas, eĉ se materie sategaj, eĉ se materie priluksigitaj, tamen spirite malple-
 
 naj kaj forlasitaj, de la spirita ftizo de nia epoko …
 
 Ankoraŭ rimarko pri la traduko. Ivan Cankar estas aŭtoro
 
 kun unika lingva stilo. Mi jam aludis, ke li lernis el Biblio. Ne nur enhave, sed eĉ stile. Lia prozo estas ritmigita, preskaŭ
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 poezia, kelkloke vere poezia. Tradukisto en Esperanton havas
@@ -6260,12 +4967,7 @@ rekte esperantigus la urbnomon el nuna slovena formo, oni
 
 do farus historian maljuston kontraŭ la germana nomo. Do,
 
-mi decidis, ke nek estu ”Ljubljano” nek ”Lajba˛o”, sed neŭtra-
-
-le, latindevene, Labako.
-
-
-LA DOMO DE MARIA HELPANTINO
+mi decidis, ke nek estu ”Ljubljano” nek ”Lajba˛o”, sed neŭtrale, latindevene, Labako.
 
 
 Bibliografio de Ivan Cankar
@@ -6309,9 +5011,6 @@ Mateo, rakonto) — Ljubljana 1905
 *Martin Kaâur* (Instruisto M. K., romano) — Ljubljana 1906
 
 *Nina *(Nina, romano) — Ljubljana 1906
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 *Smrt in pogreb Jakoba Nesreâe* (Morto kaj entombigo de J.
@@ -6365,9 +5064,6 @@ N., rakonto) — Ljubljana 1906
 *Kolektitaj verkoj* (Zbrani spisi I — XXI), Ljubljana 1925-1954
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 *Elektitaj verkoj* (Izbrani spisi I — VII), Ljubljana 1967
 
 *Kolektita verkaro* (Zbrano delo I — XXX), Ljubljana 1967-
@@ -6377,9 +5073,7 @@ LA DOMO DE MARIA HELPANTINO
 
 *Servisto Bartolomeo kaj lia rajto* (Hlapec Jernej in njegova pravica) — trad. Franjo Modrijan
 
-Diversaj noveletoj en La Suda Stelo kaj aliaj Esperanto-
-
-revuoj
+Diversaj noveletoj en La Suda Stelo kaj aliaj Esperantorevuoj
 
 **Germanaj tradukoj**
 
@@ -6414,33 +5108,21 @@ Klagenfurt/Celovec 1998
 **Noto:** Pluraj el la menciitaj libroj estas haveblaj kiel slovenaj j ĉe *www.omnibus.se/beseda*
 
 
-LA DOMO DE MARIA HELPANTINO
-
-
 Ivan Cankar estis tradukita ankaŭ en aliajn lingvojn, precipe
 
 en ĉeąn, rusan, italan, anglan, pere de Esperanto en la ĉinan
 
 ktp.
 
-Kvankam li literature kaj intelekte formiĝis en Vieno, kvan-
+Kvankam li literature kaj intelekte formiĝis en Vieno, kvankam la ĉefa parto de liaj literaturaj motivoj kaj medioj same
 
-kam la ĉefa parto de liaj literaturaj motivoj kaj medioj same
+troviĝas en Vieno, la historio de la aŭstra literaturo ne konscias pri tio, ke Ivan Cankar ne estis nur la ĉefa slovena pro-
 
-troviĝas en Vieno, la historio de la aŭstra literaturo ne kon-
-
-scias pri tio, ke Ivan Cankar ne estis nur la ĉefa slovena pro-
-
-za klasikulo, sed li efektive apartenas ankaŭ al la aŭstra lite-
-
-raturhistorio. Eĉ la fakto, ke li ne verkis germane, sed slove-
+za klasikulo, sed li efektive apartenas ankaŭ al la aŭstra literaturhistorio. Eĉ la fakto, ke li ne verkis germane, sed slove-
 
 ne, tion ne neas, ja la slovena lingvo same estas unu el la
 
 aŭstraj lingvoj kiel la germana.
-
-
-LA DOMO DE MARIA HELPANTINO
 
 
 www.omnibus.se/

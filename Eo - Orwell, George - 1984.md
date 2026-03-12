@@ -488,7 +488,7 @@ infano povus travidi ĝin, tamen ĝuste sufiĉe kredindan, ke oni povas
 
 eksenti alarmite ke ĝi eble trompos aliajn homojn, malpli klarpensajn.
 
-Li insultadis Grandan Fraton, li denuncis la diktatorecon de la Partio, li postulis tujan interpaciĝon kun Eŭrazio, li fervore subtenis la liberecon 8
+Li insultadis Grandan Fraton, li denuncis la diktatorecon de la Partio, li postulis tujan interpaciĝon kun Eŭrazio, li fervore subtenis la liberecon
 
 de parolo, la liberecon de la Preso, la liberecon kunveni, la liberecon
 
@@ -540,7 +540,7 @@ lokoj, kaj kriadis kiel eble plej laŭte, strebante dronigi la frenezige
 
 mekan voĉon kiu venis de la ekrano. La malgranda sablohara virino
 
-fariĝis hele palruĝa, kaj ŝia buŝo malfermiĝadis kaj fermiĝadis kiel tiu de surterigita fiŝo. Eĉ la peza vizaĝo de O’Brien estis ruĝa. Li sidadis tre 9
+fariĝis hele palruĝa, kaj ŝia buŝo malfermiĝadis kaj fermiĝadis kiel tiu de surterigita fiŝo. Eĉ la peza vizaĝo de O’Brien estis ruĝa. Li sidadis tre
 
 rekte en sia seĝo, lia fortega brusto ŝvelis kaj tremis kvazaŭ lin atakas ondego. La malhelhara knabino malantaŭ Winston komencis kriadi
 
@@ -629,9 +629,6 @@ dikaj majuskloj, la tri sloganoj de la Partio:
 
 MILITO ESTAS PACO
 
-LIBERECO ESTAS SKLAVECO
-
-SENSCIO ESTAS FORTO
 
 Sed la vizaĝo de Granda Frato ŝajnis resti sur la ekrano dum pluraj
 
@@ -736,14 +733,6 @@ majusklojn:
 
 FOR GRANDA FRATO
 
-FOR GRANDA FRATO
-
-FOR GRANDA FRATO
-
-
-FOR GRANDA FRATO
-
-FOR GRANDA FRATO
 
 ripetade, plenigante duonon de paĝo.
 
@@ -1116,9 +1105,6 @@ kiel scii ke la Partia dominado ne daŭros por ĉiam? Kvazaŭ responde, la
 
 tri sloganoj sur la blanka faco de la Ministrejo de la Vero revenis al li: MILITO ESTAS PACO
 
-LIBERECO ESTAS SKLAVECO
-
-SENSCIO ESTAS FORTO
 
 Li prenis dudekkvincendan moneron el sia poŝo. Ankaŭ tie, per etaj
 
@@ -1261,7 +1247,7 @@ ankoraŭ ekzistis privateco, amo, kaj amikeco, kaj kiam la familianoj
 
 subtenis unu la alian, sen la bezono scii kial. La memoro pri lia patrino ŝiris lian koron, ĉar ŝi mortis amante lin, kiam li estis tro juna kaj
 
-egoisma por ami ŝin reciproke, kaj ĉar iel, li ne memoris kiel, ŝi oferis sin por koncepto pri lojaleco kiu estis privata kaj neŝanĝebla. Tiaĵoj, li 21
+egoisma por ami ŝin reciproke, kaj ĉar iel, li ne memoris kiel, ŝi oferis sin por koncepto pri lojaleco kiu estis privata kaj neŝanĝebla. Tiaĵoj, li
 
 sciis, ne povas okazi nun. Nuntempe estas timo, malamo, kaj doloro,
 
@@ -1307,9 +1293,7 @@ dum tridek sekundoj. Estis nulo sep dekkvin, la ellitiĝo-horo por
 
 laborantoj en oficejoj. Winston perforte tiris sian korpon el la lito —
 
-nudan, ĉar membro de la Ekstera Partio ricevis nur 3000 vesto-
-
-kuponojn ĉiujare, kaj piĵamo kostis 600 — kaj prenis iom ĉifonan
+nudan, ĉar membro de la Ekstera Partio ricevis nur 3000 vestokuponojn ĉiujare, kaj piĵamo kostis 600 — kaj prenis iom ĉifonan
 
 subĉemizon, kaj kuloton, kiuj kuŝis etendite sur seĝo. La Fizikaj Ektiroj komenciĝos post tri minutoj. La sekvan momenton lin klinigis violenta
 
@@ -1323,10 +1307,7 @@ kuŝiĝo sur la dorso, kaj serio de rapidaj ekspiregoj. Liaj vejnoj estis
 
 “Grupo tridek-ĝis-kvardekjaraĝa!” kriis penetranta virina voĉo.
 
-“Grupo tridek-ĝis-kvardekjaraĝa! Prenu lokon, mi petas. “Tridek-ĝis-
-
-
-kvardekjaruloj!”
+“Grupo tridek-ĝis-kvardekjaraĝa! Prenu lokon, mi petas. “Tridek-ĝiskvardekjaruloj!”
 
 Winston ekstaris atente antaŭ la teleekrano, sur kiu jam aperis la
 
@@ -1386,7 +1367,7 @@ Homoj sidadis sur la tuta ŝtonpavimita planko, kaj aliaj homoj,
 
 dense kunpuŝite, sidis sur metalaj litobenkoj, unu super alia. Winston
 
-kaj liaj patrino kaj patro trovis por si lokon sur la planko, kaj proksime 23
+kaj liaj patrino kaj patro trovis por si lokon sur la planko, kaj proksime
 
 al ili maljunaj viro kaj virino sidis flank’-al-flanke sur benko. La maljuna viro surhavis bonan malhelan kompleton, kaj nigran ĉapon el ŝtofo, kiu
 
@@ -1470,7 +1451,7 @@ dorsomuskoloj) — plej timige estis ke eble tio estas tute vera. Se la
 
 Partio povas puŝi sian manon en la pasintecon kaj diri pri iu aŭ alia
 
-evento ke ĝi neniam okazis — ĉu tio, certe, ne estas pli timiga ol nuraj 24
+evento ke ĝi neniam okazis — ĉu tio, certe, ne estas pli timiga ol nuraj
 
 torturo kaj morto?
 
@@ -1662,7 +1643,7 @@ Winston ciferumis “antaŭaj numeroj” sur la teleekrano, kaj petis la
 
 koncernajn numerojn de La Tempoj, kiuj glitis el la pneŭmata tubo post
 
-nur kelkaj minutoj da atendado. La mesaĝoj kiujn li estis ricevinta temis 28
+nur kelkaj minutoj da atendado. La mesaĝoj kiujn li estis ricevinta temis
 
 pri artikoloj aŭ novaĵraportoj, en kiuj oni ial opiniis ke necesas fari
 
@@ -1743,9 +1724,7 @@ Sed, efektive, li pensis dum li reverkis la kalkulojn de la Ministrejo
 de la Abundo, ja ne estis eĉ falsado. Temis nur pri la anstataŭigo de unu sensencaĵo per alia. La plejparto de la tekstoj pri kiuj oni traktas, tute ne rilatas al io ajn en la reala mondo, eĉ ne tia rilato kiu ekzistas en klara mensogo. La statistikaĵoj estis egale fantaziaj en sia originala
 
 
-taksis la produktadon de botoj dum la jarkvarono kiel cent-kaj-kvardek-
-
-kvin-milionojn da paroj. Oni deklaris ke la vera produktado estis sesdek du milionoj. Tamen Winston, reverkante la antaŭdiron, reduktis la
+taksis la produktadon de botoj dum la jarkvarono kiel cent-kaj-kvardekkvin-milionojn da paroj. Oni deklaris ke la vera produktado estis sesdek du milionoj. Tamen Winston, reverkante la antaŭdiron, reduktis la
 
 nombron al kvindek sep milionoj, por ke oni povu, kiel kutime,
 
@@ -1817,7 +1796,7 @@ kaj deklaras la politikon kiu necesigas ke tiu fragmento de la pasinteco estu ko
 
 Kaj la Departemento de Arkivoj ja estis mem nur unu branĉo de la
 
-Ministrejo de la Vero, kies ĉefa tasko ne estis rekonstrui la pasintecon, sed provizi al la civitanoj de Oceanio ĵurnalojn, filmojn, lernolibrojn, 31
+Ministrejo de la Vero, kies ĉefa tasko ne estis rekonstrui la pasintecon, sed provizi al la civitanoj de Oceanio ĵurnalojn, filmojn, lernolibrojn,
 
 teleekranajn programojn, dramojn, romanojn — kun ĉia konceptebla
 
@@ -2822,7 +2801,7 @@ Tiumomente la teleekrano ellasis penetran fajfsonon. La signalo
 
 por reiri al laborado. Ĉiuj tri viroj ekstariĝis por partopreni en la
 
-baraktado ĉirkaŭ la liftoj, kaj la restanta tabako falis el la cigaredo de 46
+baraktado ĉirkaŭ la liftoj, kaj la restanta tabako falis el la cigaredo de
 
 Winston.
 
@@ -3181,7 +3160,7 @@ Kiel scii kiom el tio estis mensogoj? Eble estis vere ke la averaĝa
 
 homo estas pli bonstata ol antaŭ la Revolucio. La sola kontraŭdira
 
-atesto estis la muta protesto en la propraj ostoj, la instinkta sento ke la kondiĉoj en kiuj oni vivas estas netolereblaj, kaj ke en iu alia epoko ili 54
+atesto estis la muta protesto en la propraj ostoj, la instinkta sento ke la kondiĉoj en kiuj oni vivas estas netolereblaj, kaj ke en iu alia epoko ili
 
 nepre estis aliaj. Ekpensiĝis en li ke la vere karakteriza trajto de la
 
@@ -3252,9 +3231,7 @@ mortigitaj por ĉiam. En 1970, neniu el ili restis, escepte de Granda
 
 Frato mem. Ĝis tiam ĉiuj aliaj estis denuncitaj kiel perfiduloj kaj
 
-kontraŭrevoluciuloj. Goldstein estis fuĝinta, kaj sin kaŝis neniu-sciis-
-
-kie, kaj el la aliaj, kelkaj simple estis malaperintaj, kvankam la plejmulto estis ekzekutita post spektaklaj publikaj procesoj, dum kiuj ili konfesis siajn krimojn. Inter la lastaj restintoj estis tri viroj nomitaj Jones,
+kontraŭrevoluciuloj. Goldstein estis fuĝinta, kaj sin kaŝis neniu-sciiskie, kaj el la aliaj, kelkaj simple estis malaperintaj, kvankam la plejmulto estis ekzekutita post spektaklaj publikaj procesoj, dum kiuj ili konfesis siajn krimojn. Inter la lastaj restintoj estis tri viroj nomitaj Jones,
 
 Aaronson, kaj Rutherford. En 1965, nepre, tiuj tri estis arestitaj. Kiel ofte okazis, ili malaperis dum unu aŭ pli da jaroj, tiel ke oni ne sciis ĉu ili vivas aŭ mortis, kaj post tio ili estis subite kondukitaj antaŭ la
 
@@ -3367,7 +3344,7 @@ kaj grandan aron da novaj. Ili estis ekzekutitaj, kaj ilia fato estis
 
 registrita en la historioj de la Partio, averte al posteuloj. Ĉirkaŭ kvin jarojn poste, en 1973, Winston estis malrulanta aron da dokumentoj
 
-kiuj ĵus falis el la pneŭmata tubo sur lian skribotablon, kaj li ektrovis paperfragmenton kiu evidente estis metita inter la aliajn kaj poste estis 57
+kiuj ĵus falis el la pneŭmata tubo sur lian skribotablon, kaj li ektrovis paperfragmenton kiu evidente estis metita inter la aliajn kaj poste estis
 
 forgesita. Tuj kiam li platigis ĝin li vidis ĝian signifon. Ĝi estis
 
@@ -3456,7 +3433,7 @@ estos legita, sed kiu estis adresita al specifa persono, kaj ricevis sian koloro
 
 La Partio ordonis ke oni forgesu la ateston de la okuloj kaj oreloj.
 
-Tio estis ilia plej grava, plej esenca ordono. Lia koro feblis dum li pensis pri la enorma potenco starigita kontraŭ li, la facilo per kiu ajna Partia 59
+Tio estis ilia plej grava, plej esenca ordono. Lia koro feblis dum li pensis pri la enorma potenco starigita kontraŭ li, la facilo per kiu ajna Partia
 
 intelektulo superus lin debate, la subtilaj argumentoj kiujn li ne povis kompreni, neniel povus respondi. Tamen ĉe li estis la vero! Ili
 
@@ -3519,7 +3496,7 @@ mirige multenombre — knabinoj plenbelaj, kun krude ruĝfarbitaj buŝoj,
 
 kaj junuloj kiuj ĉasas la knabinojn, kaj ŝvelintaj pezmarŝantaj virinoj, kiuj demonstris kiel aspektos la knabinoj post deko da jaroj, kaj
 
-maljunaj klinitaj uloj, kiuj trenas sin dispiede, kaj kuntrenas senŝuajn infanojn kiuj ludas en la flakoj, kaj poste diskuras pro koleraj krioj de iliaj patrinoj. Ĉirkaŭ kvarono de la fenestroj en la strato estis rompitaj, 61
+maljunaj klinitaj uloj, kiuj trenas sin dispiede, kaj kuntrenas senŝuajn infanojn kiuj ludas en la flakoj, kaj poste diskuras pro koleraj krioj de iliaj patrinoj. Ĉirkaŭ kvarono de la fenestroj en la strato estis rompitaj,
 
 kaj perligne kovritaj. La plej granda parto de la homoj tute ne atentis
 
@@ -3575,7 +3552,7 @@ kunpremis siajn antaŭbrakojn super sia kapo. Aŭdiĝis bruego, kiu ŝajnis
 
 saltigi la pavimon; aro da nepezaĵoj pluvis sur lian dorson. Stariĝinte, li vidis ke lvris vitreroj el la plej proksima fenestro.
 
-Li plumarŝis. La bombo estis nuliginta grupon de domoj, 200
+Li plumarŝis. La bombo estis nuliginta grupon de domoj,
 
 metrojn for antaŭ li. Nigra fumstrio pendis en la ĉielo, kaj sub ĝi nebulo de gipsa pulvoro, en kiu homamaso jam formiĝadis ĉirkaŭ la ruinaĵoj.
 
@@ -3813,7 +3790,7 @@ rifuzon trinki tutan litron.
 
 plenkreskinta, antaŭ ol mi naskiĝis. Vi povas memori kia estis la vivo en la malnovaj tagoj, antaŭ la Revolucio. Homoj miaaĝaj vere nenion scias
 
-pri tiuj malnovaj epokoj. Ni povas legi pri ili nur en libroj, kaj kion diras 66
+pri tiuj malnovaj epokoj. Ni povas legi pri ili nur en libroj, kaj kion diras
 
 la libroj eble ne estas prava. Mi volas aŭdi vian opinion pri tio. La
 
@@ -3953,9 +3930,7 @@ dirus ke mi preferus denove esti juna. La plej multaj personoj dirus ke
 
 ili preferus esti junaj, se vi demandus al ili. Oni havas bonan sanon kaj forton kiam oni junas. Kiam oni atingas mian aĝon, oni neniam bone
 
-fartas. Min suferigas fiege miaj piedoj, kaj mia veziko estas aĉa. Ses-
-
-sepfoje ĉiunokte ĝi ellitigas min. Aliflanke, estas granda avantaĝo, kiam oni estas maljunulo. Oni ne havas la samajn problemojn. Oni ne rilatas
+fartas. Min suferigas fiege miaj piedoj, kaj mia veziko estas aĉa. Sessepfoje ĉiunokte ĝi ellitigas min. Aliflanke, estas granda avantaĝo, kiam oni estas maljunulo. Oni ne havas la samajn problemojn. Oni ne rilatas
 
 kun la inoj, kaj tio estas bonega afero. Mi ne amoras kun virino jam de
 
@@ -3999,7 +3974,7 @@ neniam povos denove ekzisti, ia normo al kiu ĝi estos komparebla.
 
 Tiumomente, lia penstemo ekĉesis. Li haltis kaj suprenrigardis. Li
 
-estis en mallarĝa strato, kun kelkaj senlumaj butiketoj inter loĝejoj. Tuj 69
+estis en mallarĝa strato, kun kelkaj senlumaj butiketoj inter loĝejoj. Tuj
 
 super lia kapo pendis tri rustiĝintaj metalaj pilketoj, kiuj laŭaspekte iam estis orkovritaj. Li kredis iel koni la lokon. Kompreneble! Li staras
 
@@ -4059,7 +4034,7 @@ La malgranda interno de la butiko estis efektive malkomfortige
 
 plena, sed estis en ĝi preskaŭ nenio eĉ valoreta. La kvanto da libera
 
-spaco sur la planko estis tre limigita, ĉar ĉie apud la muroj estis stakoj 70
+spaco sur la planko estis tre limigita, ĉar ĉie apud la muroj estis stakoj
 
 da nenombreblaj polvkovritaj bildokadroj. En la fenestro estis pletoj da boltoj kaj boltingoj, trivitaj ĉiziloj, poŝtranĉiloj kun rompitaj klingoj, rustetaj brakhorloĝoj kiuj ne eĉ ŝajnigis funkcii, kaj diversaj aliaj
 
@@ -4182,7 +4157,7 @@ Winston transpaŝis por ekzameni la bildon. Ĝi estis ŝtala gravuraĵo
 
 pri ovala konstruaĵo kun rektangulaj fenestroj, kaj antaŭ la konstruaĵo
 
-estis tureto. Balustrado ĉirkaŭis la konstruaĵon, kaj malantaŭe estis io 72
+estis tureto. Balustrado ĉirkaŭis la konstruaĵon, kaj malantaŭe estis io
 
 aspektanta statuo. Winston rigardadis ĝin dum pluraj momentoj. Ĝi
 
@@ -4458,10 +4433,6 @@ la vortoj:
 
 MILITO ESTAS PACO
 
-LIBERECO ESTAS SKLAVECO
-
-SENSCIO ESTAS FORTO
-
 
 **PARTO DU**
 
@@ -4652,7 +4623,7 @@ rilate al la ŝakludo”. Lia animo baraktis pro tediĝo, sed, malkutime, li tut
 
 “mi amas vin”, la deziro pluvivi fortiĝis en li, kaj subite, provi risketojn ŝajnis stulte. Nur je la dudektria horo, kiam li estis enhejme kaj enlite —
 
-en la mallumo, kie oni estas sekura eĉ kontraŭ la teleekrano, kondiĉe ke 80
+en la mallumo, kie oni estas sekura eĉ kontraŭ la teleekrano, kondiĉe ke
 
 oni silentas — li povis pensi seninterrompe.
 
@@ -4708,7 +4679,7 @@ sekundoj, eble eblus interŝanĝi kelkajn vortojn.
 
 Dum la sekva semajno, la vivo estis kia agitiĝoplena sonĝo. La
 
-sekvan tagon ŝi aperis en la kantino nur kiam li komencis foriri el ĝi, ĉar 81
+sekvan tagon ŝi aperis en la kantino nur kiam li komencis foriri el ĝi, ĉar
 
 jam sonis la fajfado. Verŝajne ŝi devis labori en alia skipo. La postsekvan tagon, ŝi estis en la kantino je la kutima horo, sed kun tri aliaj knabinoj, kaj tuj sub teleekrano. Post tio, dum tri timoplenaj tagoj ŝi tute ne
 
@@ -4819,7 +4790,7 @@ Ampleforth ne vidis Winstonon, kaj sidiĝis ĉe alia tablo. Ili ne
 
 interparolis denove, kaj, kiom eblis por du personoj sidantaj unu
 
-kontraŭ la alia ĉe unusama tablo, ili ne interrigardis. La knabino rapide 83
+kontraŭ la alia ĉe unusama tablo, ili ne interrigardis. La knabino rapide
 
 finis sian lunĉon. kaj foriris, dum Winston restis por fumi cigaredon.
 
@@ -5030,7 +5001,7 @@ Mano leĝere tuŝis lian sultron.
 
 Li suprenrigardis. Jen la knabino. Ŝi kapneis, evidente por averti ke
 
-li silentu, poste apartigis la arbustojn, kaj rapide gvidis laŭ la mallarĝa 87
+li silentu, poste apartigis la arbustojn, kaj rapide gvidis laŭ la mallarĝa
 
 pado en la arbaron. Evidente ŝi jam antaŭe iris tiun vojon, ĉar ŝi evitis la marŝajn loketojn, kvazaŭ kutimiĝinte al ili. Winston sekvis, ankoraŭ
 
@@ -5878,9 +5849,7 @@ surmetis poton da akvo por boligi ĝin. Li estis kunportinta koverton da
 
 Kafo por la Venko, kaj kelkajn sakarintablojdojn. La horloĝindikiloj
 
-diris deksep-dudek: efektive estis deknaŭ-dudek. Ŝi venos je la deknaŭ-
-
-trideka.
+diris deksep-dudek: efektive estis deknaŭ-dudek. Ŝi venos je la deknaŭtrideka.
 
 “Malsaĝe, malsaĝe,” ripetadis lia koro al li: “konscia, nebezona,
 
@@ -5988,7 +5957,7 @@ malmulta vera sentemo. Ilia unua amoro estis nur ago estigita de la
 
 volo. Sed post la dua fojo, estis malsame. La odoro de ŝia hararo, la
 
-gusto de ŝia buŝo, la sento de ŝia haŭto, ŝajnis interniĝi en lin, aŭ en la 103
+gusto de ŝia buŝo, la sento de ŝia haŭto, ŝajnis interniĝi en lin, aŭ en la
 
 ĉirkaŭantan aeron. Ŝi fariĝis korpa necesaĵo, io kion li ne nur volas sed al kio, laŭ lia sento, li rajtas. Kiam ŝi diris ke ŝi ne povos veni, lin trafis penso ke ŝi malfidelas al li. Sed ĝuste tiumomente, la homamaso kunen
 
@@ -6166,7 +6135,7 @@ Li demandis al s,i neklare, ĉu dum la nuligita pasinteco estis normala
 
 sperto kuŝi en ĉi tia lito, en la malvarmeto de somera vespero —
 
-senvestaj viro kaj virino, amorante kiam ajn ili volas, parolante pri kion 106
+senvestaj viro kaj virino, amorante kiam ajn ili volas, parolante pri kion
 
 ajn ili volas, ne sentante devon ellitiĝi, nur kuŝante kaj aŭskultante la pacajn sonojn eleksterajn. Nepre neniam estis epoko kiam tio estis
 
@@ -6466,7 +6435,7 @@ revenis, sed la cimoj multobliĝis aĉe en la varmego. Ŝajnis ne esti grave.
 
 Ĉu malpura, ĉu pura, la ĉambro estis paradiza. Tuj post sia alveno, ili
 
-ŝutis ĉion per pipro aĉetita sur la nigra merkato, detiris siajn vestojn, kaj amoris per ŝvitantaj korpoj, endormiĝis, kaj vekiĝis, kaj trovis ke la 111
+ŝutis ĉion per pipro aĉetita sur la nigra merkato, detiris siajn vestojn, kaj amoris per ŝvitantaj korpoj, endormiĝis, kaj vekiĝis, kaj trovis ke la
 
 cimoj estis amasiĝintaj kaj preparantaj sin por reataki.
 
@@ -6522,7 +6491,7 @@ venos, ŝajnis egale palpebla kiel la lito sur kiu ili kuŝas, kaj ili kroĉis s
 
 sian lastan plezuraĵeton, kiam la horloĝo post malpli ol kvin minutoj
 
-sonorigos. Sed ankaŭ alifoje ilin posedis iluzio, ne nur de sekureco, sed ankaŭ de ĉiameco. Dum ili vere estos en ĉi tiu ĉambro, ili ambaŭ sentis, 112
+sonorigos. Sed ankaŭ alifoje ilin posedis iluzio, ne nur de sekureco, sed ankaŭ de ĉiameco. Dum ili vere estos en ĉi tiu ĉambro, ili ambaŭ sentis,
 
 nenia damaĝo povos trafi ilin. Atingi la ĉambron estis malfacile kaj
 
@@ -6584,7 +6553,7 @@ superis ĉiujn aliajn personojn per kriataj insultoj kontraŭ Goldstein.
 
 Tamen ŝi nur tre malklare konceptis kiu estas Goldstein, kaj kiajn
 
-doktrinojn li laŭraporte reprezentis. Ŝi plenkreskiĝis post la Revolucio, kaj estis tro juna por memori la ideologiajn batalojn de la kvindekaj kaj 113
+doktrinojn li laŭraporte reprezentis. Ŝi plenkreskiĝis post la Revolucio, kaj estis tro juna por memori la ideologiajn batalojn de la kvindekaj kaj
 
 sesdekaj jaroj. Ŝi tute ne kapablis imagi ke povus ekzisti sendependa
 
@@ -6640,7 +6609,7 @@ mensogaĵoj.”
 
 Kelkfoje li parolis al ŝi pri la Departemento de Registroj, kaj la
 
-aŭdacaj falsadoj kiujn li faras tie. Tiaĵoj ŝajne ne hororigis ŝin. Ŝi ne 114
+aŭdacaj falsadoj kiujn li faras tie. Tiaĵoj ŝajne ne hororigis ŝin. Ŝi ne
 
 sentis abismon malfermiĝi sub ŝiaj piedoj, pro konsciiĝo ke mensogoj
 
@@ -6756,10 +6725,7 @@ forkuri. Lia koro bategis violente. Li tute ne kapablus paroli. Tamen,
 
 O’Brien pluiris antaŭen, laŭ sia jama moviĝado, kaj metis amikan
 
-manon momente sur brakon de Winston, tiel ke la paro marŝadis flank-
-
-
-al-flanke. Li komencis paroli kun la kurioza solena ĝentileco kiu
+manon momente sur brakon de Winston, tiel ke la paro marŝadis flankal-flanke. Li komencis paroli kun la kurioza solena ĝentileco kiu
 
 diferencigis lin de la plejparto de la membroj de la Interna Partio.
 
@@ -6827,7 +6793,7 @@ Ili staris antaŭ teleekrano. Iom senpense, O’Brien palpis du el siaj
 
 poŝoj, kaj poste elprenis malgrandan ledkovritan notlibron, kaj oran
 
-inkkrajonon. Tuj sub la teleekrano, en tia pozicio ke ĉiu rigardanto ĉe la alia finaĵo de la aparato povus legi kion li skribas, li skribaĉis adreson, 117
+inkkrajonon. Tuj sub la teleekrano, en tia pozicio ke ĉiu rigardanto ĉe la alia finaĵo de la aparato povus legi kion li skribas, li skribaĉis adreson,
 
 elŝiris la paĝon kaj donis ĝin al Winston. “Mi kutime estas ĉehejme dum
 
@@ -6879,7 +6845,7 @@ sonĝo. Ĝi estis vasta, lumoplena sonĝo, en kiu lia tuta vivo ŝajnis
 
 etendiĝi antaŭ li kvazaŭ pejzaĝo, dum somera vespero post pluvo. Ĉio
 
-okazis interne de la vitra paperpezilo, sed la surfaco de la vitro estis la 118
+okazis interne de la vitra paperpezilo, sed la surfaco de la vitro estis la
 
 ĉielkupolo, kaj interne de la kupolo ĉio estis iluminata de klara milda
 
@@ -6939,9 +6905,7 @@ superflua moviĝo, kvazaŭ desegnaĵo farita de artisto moviĝas per si
 
 mem. Ŝia granda gracia korpo ŝajnis nature refali en senmovecon. Dum
 
-horoplenaj periodoj ŝi sidadis preskaŭ senmove sur la lito, vartante lian pli junan fratinon, kiu estis eta, malsanema, tre silenta infano nur du-119
-
-aŭ trijaraĝa, kun vizaĝo simiaspektigita de maldikeco. Nur neofte ŝi
+horoplenaj periodoj ŝi sidadis preskaŭ senmove sur la lito, vartante lian pli junan fratinon, kiu estis eta, malsanema, tre silenta infano nur duaŭ trijaraĝa, kun vizaĝo simiaspektigita de maldikeco. Nur neofte ŝi
 
 prenis Winstonon en siajn brakojn, kaj premis lntraŭ sin dum
 
@@ -7327,7 +7291,7 @@ simple elpensaĵo de la Penspolico?”
 
 “Ne, ĝi estas reala. Ni nomas ĝin La Frataro. Vi neniam scios multe
 
-pli pri la Frataro, ol ke ĝi ekzistas, kaj ke vi apartenas al ĝi. Mi revenos 126
+pli pri la Frataro, ol ke ĝi ekzistas, kaj ke vi apartenas al ĝi. Mi revenos
 
 al tiu temo post nelonge.” Li rigardis sian brakhorloĝon. “Estas malsaĝe, eĉ por membroj de la Interna Partio, lasi la teleekranon malŝaltita dum
 
@@ -7527,7 +7491,7 @@ membro sciiĝus pri la idento de pli ol kelketo da aliaj. Goldstein mem,
 
 se li falus en la manojn de la Penspolico, ne povus doni al ili kompletan liston de membroj, nek ian informon kiu gvidus ilin al plena listo. Tia
 
-listo ne ekzistas. La Frataro ne estas nuligebla, ĉar ĝi ne estas organizo, 129
+listo ne ekzistas. La Frataro ne estas nuligebla, ĉar ĝi ne estas organizo,
 
 laŭ la kutima senco de tiu vorto. Nenio kunligas ĝin, escepte de
 
@@ -7601,7 +7565,7 @@ kvazaŭ kursivigitajn — “la libron de Goldstein, komprenu, tuj kiam
 
 eble. Eble pasos pluraj tagoj, antaŭ ol mi povos akiri ekzempleron. Ne
 
-multaj ekzistas, kiel vi povas imagi. La Penspolico elspuras kaj detruas 130
+multaj ekzistas, kiel vi povas imagi. La Penspolico elspuras kaj detruas
 
 ilin, preskaŭ tiel rapide kiel ni produktas ilin. Malmulte gravas. La libro ne estas detruebla. Se la lasta ekzemplero perdiĝus, ni povus reprodukti ĝin preskaŭ laŭvorte. Ĉu vi kunportas tekon al via laboro?” li pludiris.
 
@@ -8007,7 +7971,7 @@ la tri superŝtatoj povus esti definitive konkerita eĉ de kombinaĵo de la alia
 
 loĝantoj. Due, ne plu ekzistas, materie, io pribatalinda. Post la establiĝo de memsufiĉaj ekonomioj, en kiuj la produktado kaj la konsumado
 
-kongruas unu kun la alia, la penado akiri merkatojn, kio estis ĉefcelo de antaŭaj militoj, finiĝis; kaj la konkuro por akiri bazajn materialojn ne 137
+kongruas unu kun la alia, la penado akiri merkatojn, kio estis ĉefcelo de antaŭaj militoj, finiĝis; kaj la konkuro por akiri bazajn materialojn ne
 
 plu estas afero de vivo kaj morto. Ĉiuokaze, ĉiu el la tri superŝtatoj estas tiel vasta, ke ĝi povas akiri preskaŭ ĉiujn bezonatajn materialojn inter siaj propraj landlimoj. Rilate al militado pro rekte ekonomia celo: temas pri milito por laborantaro. Inter la landlimoj de la superŝtatoj, kaj ne daŭre posedata de iu el ili, kuŝas proksimuma kvarlateraĵo kun anguloj
 
@@ -8301,7 +8265,7 @@ mikso de psikologo kaj inkvizitoro, kiu studas plej reale ĝisfunde la
 
 signifojn de vizaĝmienoj, gestoj, kaj voĉtonoj, kaj provas la veron
 
-produktantaj efektoj de drogoj, ŝokterapio, hipnoto, kaj fizika torturo; aŭ li estas kemiisto, fizikisto, aŭ biologo kiun interesas nur tiuj partoj de 142
+produktantaj efektoj de drogoj, ŝokterapio, hipnoto, kaj fizika torturo; aŭ li estas kemiisto, fizikisto, aŭ biologo kiun interesas nur tiuj partoj de
 
 lia speciala fako kiuj koncernas la mortigadon. En la vastaj laboratorioj de la Ministrejo de la Paco, kaj en la eksperimentostacioj kaŝitaj en la Brazilaj arbaroj, aŭ en la Aŭstralia dezerto, la teamoj de ekspertoj
 
@@ -8495,9 +8459,7 @@ dirita: ke fariĝinte daŭra, la militado fundamente ŝanĝis sian
 
 karakteron.
 
-Dum antaŭaj epokoj, milito, preskaŭ laŭdifine, estis io kio pli-
-
-malpli frue finiĝis, kutime per neneebla venko aŭ malvenko. Ankaŭ
+Dum antaŭaj epokoj, milito, preskaŭ laŭdifine, estis io kio plimalpli frue finiĝis, kutime per neneebla venko aŭ malvenko. Ankaŭ
 
 dum la pasinteco, la milito estis unu el la ĉefaj instrumentoj per kiuj la homaj socioj estis daŭre kontaktigataj kun la fizika realo. Ĉiuj regantoj en ĉiuj epokoj penis trudi falsan komprenon pri la mondo al siaj
 
@@ -8515,7 +8477,7 @@ necesis povi lerni de la pasinteco, kio signifis posedi plejparte ĝustan scion 
 
 nuntempe estus neebla. La militado estis fidinda protekto por
 
-malfrenezo, kaj koncerne la regantajn klasojn, ĝi estis verŝajne la plej 145
+malfrenezo, kaj koncerne la regantajn klasojn, ĝi estis verŝajne la plej
 
 grava protekto. Kiam militoj povas sukcesi aŭ malsukcesi, neniu reganta
 
@@ -8727,7 +8689,7 @@ aŭ tiel ŝajnis; kaj se ĝi estas komprenebla, sekve ĝi estas ŝanĝebla. Sed 
 
 jarcento, la egaleco de homoj fariĝis teknike ebla. Ankoraŭ restis vere
 
-ke la homoj ne estas egalaj rilate al siaj naturaj talentoj, kaj ke funkcioj 150
+ke la homoj ne estas egalaj rilate al siaj naturaj talentoj, kaj ke funkcioj
 
 devis esti specialigataj laŭ manieroj kiuj favoras kelkajn individuojn
 
@@ -8891,7 +8853,7 @@ strukturon de la Oceania socio. Ĉe la apekso de la piramido staras
 
 Granda Frato. Granda Frato estas neeraripova kaj plenpotenca. Oni
 
-proklamas ke ĉiu sukceso, ĉiu atingo, ĉiu venko, ĉiu scienca trovaĵo, ĉiu scio, ĉiu saĝo, ĉiu feliĉo, ĉiu virto, rezultas rekte el liaj estrado kaj 153
+proklamas ke ĉiu sukceso, ĉiu atingo, ĉiu venko, ĉiu scienca trovaĵo, ĉiu scio, ĉiu saĝo, ĉiu feliĉo, ĉiu virto, rezultas rekte el liaj estrado kaj
 
 inspirado. Neniu iam vidis Grandan Fraton. Li estas vizaĝo sur la
 
@@ -9181,7 +9143,7 @@ historio.
 
 moliĝo. Aŭ ili fariĝis stultaj kaj arogantaj, malsukcesis adapti sin al
 
-ŝanĝiĝintaj cirkonstancoj, kaj estis konkeritaj; aŭ ili fariĝis liberalaj kaj senkuraĝaj, cedis kiam ili devus perforti, kaj ankaŭ estis konkeritaj. Ili 158
+ŝanĝiĝintaj cirkonstancoj, kaj estis konkeritaj; aŭ ili fariĝis liberalaj kaj senkuraĝaj, cedis kiam ili devus perforti, kaj ankaŭ estis konkeritaj. Ili
 
 estis konkeritaj, do, aŭ pro konscio aŭ pro nekonscio. La granda ago de
 
@@ -9428,11 +9390,9 @@ estonteco apartenas al la proloj. Kaj ĉu li povas esti certa ke kiam venos ilia
 
 Winston Smith, kiel la mondo de la Partio? Jes, ĉar almenaŭ ĝi estos
 
-malfreneza mondo. Kie estas egaleco, tie povas esti malfrenezo. Pli-
+malfreneza mondo. Kie estas egaleco, tie povas esti malfrenezo. Plimalpli frue tio okazos, forto fariĝos konscio. La proloj estas senmortaj, ne eblas dubi tion kiam oni rigardas tiun bravan personon en la korto.
 
-malpli frue tio okazos, forto fariĝos konscio. La proloj estas senmortaj, ne eblas dubi tion kiam oni rigardas tiun bravan personon en la korto.
-
-Fine ilia vekiĝo okazos. Kaj ĝis tio okazos, kvankam eble estos mil jaroj, 162
+Fine ilia vekiĝo okazos. Kaj ĝis tio okazos, kvankam eble estos mil jaroj,
 
 ili restos vivantaj malgraŭ ĉio, kvazaŭ birdoj, pasigante de korpo al
 
@@ -9494,7 +9454,7 @@ kvazaŭ hoko estis turnita, kaj kraŝo de rompiĝanta vitro. La bildo estis fali
 
 kapoj. Ne tuŝu unu la alian.”
 
-Ili ne tuŝis unu la alian, sed ŝajnis al li ke li povas senti la tremadon de la korpo de Julia. Aŭ eble nur estis la tremado de lia propra korpo. Li 163
+Ili ne tuŝis unu la alian, sed ŝajnis al li ke li povas senti la tremadon de la korpo de Julia. Aŭ eble nur estis la tremado de lia propra korpo. Li
 
 ja sukcesis ĉesigi la kunklakadon de liaj dentoj, sed liaj genuoj ne estis regeblaj. Sonis la paŝegado de botoj sube, interne de kaj ekster la domo.
 
@@ -9624,7 +9584,7 @@ Estis neakra dolorado en lia ventro. Ĝi estis tie de kiam ili puŝis lin
 
 en la fermitan veturilon kaj forkondukis lin. Sed li estis ankaŭ malsata, per ronĝema, nesana speco de malsato. Eble jam de dudek kvar horoj li
 
-ne manĝIs, eble tridek ses. Li ankoraŭ ne sciis, verŝajne neniam scios,
+ne manĜIs, eble tridek ses. Li ankoraŭ ne sciis, verŝajne neniam scios,
 
 ĉu ili arestis lin dum la mateno aŭ la vespero. Ekde lia arestiĝo oni ne donis al li manĝaĵon.
 
@@ -10203,7 +10163,7 @@ vi ĉiam sciis.”
 
 Jes, li komprenis nun, li ja ĉiam sciis. Sed ne estis tempo por pensi
 
-pri tio. Tute okupis lian vidon la bastono en la mano de la gardisto. Ĝi 175
+pri tio. Tute okupis lian vidon la bastono en la mano de la gardisto. Ĝi
 
 povus fali ien ajn; sur la verton, sur la orelpinton, sur la supran parton de la brako, sur la kubuton —
 
@@ -10422,7 +10382,7 @@ Tute sen averto, escepte de moviĝeto de mano de O’Brien, ondo da
 
 doloro inundis lian korpon. Estis timegiga doloro, ĉar li ne povis vidi
 
-kio okazas, kaj li sentis ke ia mortiga damaĝo fariĝas al li. Li ne sciis ĉu 179
+kio okazas, kaj li sentis ke ia mortiga damaĝo fariĝas al li. Li ne sciis ĉu
 
 vere okazis, aŭ ĉu la efekto estis produktita perelektre; sed lia korpo
 
@@ -11295,7 +11255,7 @@ tempo kiam vi akiru ian komprenon pri la signifo de la potenco. Unue,
 
 vi devas kompreni ke la potenco estas kolektiva. La individuo potencas
 
-nur ĉesante esti individuo. Vi konas la Partian sloganon: ‘Libereco estas 193
+nur ĉesante esti individuo. Vi konas la Partian sloganon: ‘Libereco estas
 
 Sklaveco’. Ĉu vi ekpensis ke tio estas inversigebla? Sklaveco estas
 
@@ -11741,7 +11701,7 @@ inundis la koron de Winston denove. Kiel inteligenta, li pensis, kiel
 
 inteligenta! O’Brien neniam malsukcesis kompreni kion oni diras al li.
 
-Ĉiu alia sur la tero tuj respondus ke li ja perfidis Julian. Ĉar kion ili ne sukcesis eltrudi el li per torturo? Li rakontis al ili ĉion kion li sciis pri ŝi, ŝiaj kutimoj, ŝia karaktero, ŝia estinta vivo; li konfesis, ĝis la plej trivialaj detaloj, ĉion okazintan dum iliaj renkontiĝoj, ĉion diritan de li al ŝi kaj 200
+Ĉiu alia sur la tero tuj respondus ke li ja perfidis Julian. Ĉar kion ili ne sukcesis eltrudi el li per torturo? Li rakontis al ili ĉion kion li sciis pri ŝi, ŝiaj kutimoj, ŝia karaktero, ŝia estinta vivo; li konfesis, ĝis la plej trivialaj detaloj, ĉion okazintan dum iliaj renkontiĝoj, ĉion diritan de li al ŝi kaj
 
 de ŝi al li, iliajn nigramerkatajn manĝojn, iliajn adultagojn, iliajn svagajn komplotadojn kontraŭ la Partio — ĉion. Tamen, laŭ la senco kiun li
 
@@ -11791,7 +11751,7 @@ kiuj estus tro energipostule malfermi la okulojn. Li delonge kutimiĝis
 
 dormi dum forta lumo briladis sur lian vizaĝon. Ŝajne ne gravis, escepte de ke oniaj sonĝoj estas pli koheraj. Li multe sonĝadis dum tiu tuta
 
-periodo, kaj ĉiam la sonĝoj estis feliĉaj. Li estis en la Ora Lando, aŭ li sidis inter enormaj, gloraj, sunlumigataj ruinaĵoj, kun sia patrino, kun 201
+periodo, kaj ĉiam la sonĝoj estis feliĉaj. Li estis en la Ora Lando, aŭ li sidis inter enormaj, gloraj, sunlumigataj ruinaĵoj, kun sia patrino, kun
 
 Julia, kun O’Brien — farante nenion, nur sidante en la sunbrilo,
 
@@ -11837,7 +11797,7 @@ li kaj Julia staris senhelpe dum la fera voĉo el la teleekrano ordonis al ili k
 
 Penspolico observadis lin, kvazaŭ skarabon sub lupeo. Neniu korpa ago,
 
-neniu voĉigita vorto, ne estis nerimarkita de ili, neniu penstemo ne estis deduktita de ili. Eĉ la blanketa polvero sur la kovrilo de lia taglibro estis 202
+neniu voĉigita vorto, ne estis nerimarkita de ili, neniu penstemo ne estis deduktita de ili. Eĉ la blanketa polvero sur la kovrilo de lia taglibro estis
 
 zorge remetita de ili. Ili ludis por li sonregistrojn, montris al li fotojn.
 
@@ -11853,7 +11813,6 @@ komencis skribi la pensojn fluantajn en lian kapon. Li skribis unue per
 
 grandaj mallertaj majuskloj:
 
-LIBERECO ESTAS SKLAVECO
 
 Poste, preskaŭ sen paŭzo, li sub tio skribis:
 
@@ -11973,9 +11932,7 @@ senti la mallongan resalteman gazonon sub siaj piedoj kaj la mildan
 
 sunlumon sur sia vizaĝo. Ĉe la rando de la kampo estis la ulmoj, viglete movataj, kaj ie preter tie estis la rojo kie la leŭciskoj kuŝis en la verdaj lagetoj sub la salikoj.
 
-Subite li ektremegis kun hororŝoko. La ŝvito ekverŝiĝis el lia dors-
-
-ostaro. Li aŭdis sin pervoĉe krii:
+Subite li ektremegis kun hororŝoko. La ŝvito ekverŝiĝis el lia dorsostaro. Li aŭdis sin pervoĉe krii:
 
 “Julia! Julia! Julia, mia amata! Julia!”
 
@@ -12261,7 +12218,7 @@ korpo kiun li povos ĵeti inter sin kaj la ratojn. Kaj li kriadis freneze, kaj r
 
 Li faladis malantaŭen, en enormajn profundojn, for de la ratoj. Li
 
-ankoraŭ estis ligita al la seĝo, sed li falis tra la plankon, tra la murojn de 209
+ankoraŭ estis ligita al la seĝo, sed li falis tra la plankon, tra la murojn de
 
 la konstruaĵo, tra la teron, tra la oceanojn, tra la atmosferon, en la
 
@@ -12438,7 +12395,7 @@ vidis ŝin apenaŭ dek metrojn for. Li tuj rimarkis ke ŝi estis ŝanĝiĝinta, 
 
 sinrekono, poste li turnis sin kaj sekvis ŝin, ne tre fervore. Li sciis ke ne estas danĝero, neniu interesiĝos pri li. Ŝi ne parolis. Ŝi formarŝis oblikve trans la herbon, kvazaŭ penante perdi lin, poste ŝajnis rezigne akcepti
 
-ke li estos apud ŝi. Baldaŭ ili estis en aro da ĉifonaj senfoliaj arbustoj, senutilaj aŭ por kaŝejo aŭ por protekto kontraŭ la vento. Ili haltis. Estis fimalvarmege. La vento sibladis tra la branĉetoj kaj mordis la hazardajn 212
+ke li estos apud ŝi. Baldaŭ ili estis en aro da ĉifonaj senfoliaj arbustoj, senutilaj aŭ por kaŝejo aŭ por protekto kontraŭ la vento. Ili haltis. Estis fimalvarmege. La vento sibladis tra la branĉetoj kaj mordis la hazardajn
 
 malpuraspektajn krokusojn. Li metis brakon ĉirkaŭ ŝian talion.
 
@@ -12738,9 +12695,7 @@ Novparolo estis la oficiala lingvo de Oceanio, kaj estis pretigita por
 
 plenumi la ideologiajn bezonojn de Engsoco, t.e. Angla Socialismo. En
 
-la jaro 1984, ankoraŭ neniu uzis Novparolon kiel sian solan komuniko-
-
-metodon, parole aŭ skribe. La ĉefartikoloj en La Tempoj estis verkitaj en ĝi, sed tio estis tour de force kiun povas fari nur specialisto. Oni
+la jaro 1984, ankoraŭ neniu uzis Novparolon kiel sian solan komunikometodon, parole aŭ skribe. La ĉefartikoloj en La Tempoj estis verkitaj en ĝi, sed tio estis tour de force kiun povas fari nur specialisto. Oni
 
 anticipis ke Novparolo estos fine anstataŭinta Oldparolon (kion ni
 
@@ -12850,7 +12805,7 @@ Neniu etimologia principo estis observata tiurilate: kelkfoje la origina substan
 Trad.
 
 
-estis ofte subpremita. Ekzemple, ne estis vorto cut [tranĉI], ĝian
+estis ofte subpremita. Ekzemple, ne estis vorto cut [tranĈI], ĝian
 
 signifon sufiĉe esprimis la substantiv-verba knife [= “tranĉil”].
 

@@ -18,9 +18,7 @@ Sten Johansson
 ĉi tiu ekzistas ankaŭ en presita
 
 
-UEA (www.uea.org), ĉe vialanda libro-
-
-servo aŭ rekte ĉe la eldonejo
+UEA (www.uea.org), ĉe vialanda libroservo aŭ rekte ĉe la eldonejo
 
 Al-fab-et-o,
 
@@ -34,13 +32,6 @@ Svedio
 
 (alfabeto@esperanto.se)
 
-@omnibus.se
-
-·
-
-
-LA KISO
-
 
 Antaŭparolo
 
@@ -52,9 +43,7 @@ Krom fikcio Hjalmar Söderberg verkis ankaŭ religian kri-tikon, kie lia skeptik
 
 Li ankaŭ tre abomenis politikan fanatismon, kaj la lastaj tagoj de lia vivo pasis en malespero pri la estonteco, en Kopenhago okupita de la nazia Germanio.
 
-La verkaro de Söderberg ne estas tre ampleksa, sed ĝi restas legata ankoraŭ post jarcento, precipe de junaj homoj. ŝajnas ke eĉ hodiaŭaj gejunuloj kapablas travidi cirkonstancojn 3
-
-LA KISO
+La verkaro de Söderberg ne estas tre ampleksa, sed ĝi restas legata ankoraŭ post jarcento, precipe de junaj homoj. ŝajnas ke eĉ hodiaŭaj gejunuloj kapablas travidi cirkonstancojn
 
 
 ligitajn al la epoko por distingi la kernon, la problemaron kiun Söderberg traktis. Plej multe oni eble legas liajn roma-nojn, kiuj ofte tre serioze kaj malprude traktas moralajn demandojn. Sed espereble la leganto trovos ankaŭ liajn nove-lojn ĝuindaj. La noveloj plej ofte havas etoson leĝeran, tamen ĉiam kun baza akordo serioza aŭ pripensinda. Inter la noveloj amuzaj oni trovas ankaŭ kelkajn pure angorajn, kiel en ĉi kolekto Sonĝo pri maljuneco.
@@ -62,9 +51,6 @@ ligitajn al la epoko por distingi la kernon, la problemaron kiun Söderberg trak
 La lingvo de Hjalmar Söderberg estas strikta, modera, pura kaj trafa, mankas en ĝi kliŝoj kaj lingva pavado. Sendube tiu lingvo grave kontribuas al la freŝa, ĉiam aktuala impreso, kiun faras liaj tekstoj. Por la tradukinto ĝi estas pura plezuro, espereble ankaŭ la leganto estos kontenta!
 
 Sten Johansson
-
-
-LA KISO
 
 
 HUNDO SEN MASTRO
@@ -75,12 +61,7 @@ Viro mortis, kaj post lia morto neniu prizorgis lian nigran hundon. La hundo lon
 
 Troviĝas hundoj duspecaj: tiaj kun mastro, kaj tiaj sen mastro. Laŭ la eksteraĵo tiu distingo ne gravas; senmastra hundo povas esti same grasa kiel la aliaj, ofte eĉ pli grasa. Ne, la diferenco troviĝas aliloke. Por hundo la homo signifas eter-non, providencon. Mastron obei, sekvi, fidi: jen por tiel diri la senco de hunda vivo. Estas vere, ke ĝi ne dum ĉiu minuto de la tago pensas pri sia mastro, kaj ke ĝi ne ĉiam akompa-nas lin ĉekalkane; ne, ĝi ofte vagas tute sola kun afereca mieno dum ĝi priflaras domangulojn, ligas rilatojn kun siaj sam-speculoj kaj kaptas oston, se tiel eblas, kaj zorgas pri multo; tamen en la momento kiam ĝia mastro fajfas, ĉio ĉi malaperas el ĝia hunda cerbo pli rapide ol kiel skurĝaj batoj elpelis la vendistojn el la templo; ĉar ĝi scias, ke unu afero estas necesa. Kaj ĝi forgesas sian domangulon kaj sian oston kaj siajn kompanojn kaj rapidas al sia mastro.
 
-Tiu hundo, kies mastro mortis en maniero kiun la hundo ne sciis, kaj estis entombigita en loko kiun la hundo ne konis, dumlonge funebris pri li; sed kiam pasis tagoj kaj nenio oka-5
-
-LA KISO
-
-
-zis, kio povus memorigi ĝin pri la mastro, ĝi forgesis lin. En tiu strato, kie ĝia mastro iam loĝis, ĝi ne plu flaris la odoron de liaj spuroj. Kiam ĝi ludis sur herbejo kun amiko, ofte fajfo tranĉis la aeron, kaj sammomente la amiko malaperis kiel vento. Tiam ĝi streĉis la orelojn, sed neniu fajfo similis tiun de ĝia mastro. Do ĝi forgesis lin, kaj ĝi forgesis ankoraŭ ion:
+Tiu hundo, kies mastro mortis en maniero kiun la hundo ne sciis, kaj estis entombigita en loko kiun la hundo ne konis, dumlonge funebris pri li; sed kiam pasis tagoj kaj nenio okazis, kio povus memorigi ĝin pri la mastro, ĝi forgesis lin. En tiu strato, kie ĝia mastro iam loĝis, ĝi ne plu flaris la odoron de liaj spuroj. Kiam ĝi ludis sur herbejo kun amiko, ofte fajfo tranĉis la aeron, kaj sammomente la amiko malaperis kiel vento. Tiam ĝi streĉis la orelojn, sed neniu fajfo similis tiun de ĝia mastro. Do ĝi forgesis lin, kaj ĝi forgesis ankoraŭ ion:
 
 ĝi forgesis ke ĝi iam havis mastron. i forgesis, ke iam ajn estis tempo, kiam ĝi ne konsiderus ebla por hundo vivi sen mastro. i iĝis hundo pri kiu direblus, ke ĝiaj bonaj tagoj for-pasis, kvankam nur en senco interna, ĉar pri mondaĵoj ĝi su-fiĉe prosperis. i vivis tiel, kiel hundo povas vivi: ĝi foj-foje ŝtelis bonan tagmanĝon sur la vendoplaco kaj ricevis bast-onadon, kaj havis amaferojn, kaj kuŝiĝis por dormi kiam ĝi laciĝis. i akiris amikojn kaj malamikojn. Iutage ĝi zorge tanis la haŭton de hundo pli malforta, alitage ĝi mem estis grave taŭzita de alia, pli forta. Frumatene oni povis vidi ĝin kuri malsupren laŭ la strato de sia mastro, kie ĝi pro kutimo ankoraŭ plej ofte restadis. i kuras rekte antaŭen kun mieno kvazaŭ ĝi havus ion gravan por plenumi; pasante priflaras hundon renkontatan, sed ne zorgas daŭrigi la konatiĝon; poste ĝi rapidiĝas, sed subite sidiĝas por grati sin malantaŭ orelo kun flamiĝanta energio. En la sekva momento ĝi eksaltas kaj flugas trans la straton por peli ruĝan katon tra kela truo, post kio ĝi kun rekonkerita mieno afereca pluiras sian vojon kaj malaperas post domangulo.
 
@@ -88,25 +69,18 @@ Tiel pasis ĝia tago, kaj jaro proksime spursekvis jaron, kaj
 
 ĝi maljuniĝis sen tion rimarki.
 
-Poste do alvenis vespero nuba. Estis humide kaj malvarme, kaj iam-tiam ekpluvis. La maljuna hundo dum tuta tago vagadis longe for en la urbo; ĝi malrapide supreniris la straton, 6
-
-LA KISO
+Poste do alvenis vespero nuba. Estis humide kaj malvarme, kaj iam-tiam ekpluvis. La maljuna hundo dum tuta tago vagadis longe for en la urbo; ĝi malrapide supreniris la straton,
 
 
 ĝi iomete lamis; foj-foje ĝi haltis por skuegi sian nigran felon, kiu kun la jaroj grizmiksiĝis ĉirkaŭ la kapo kaj kolo. Laŭ sia kutimo ĝi flaris jen dekstre, jen maldekste; poste ĝi deviis sub pordegan volbon, kaj kiam ĝi revenis el tiu, alia hundo ĝin akompanis. Sekvamomente aperis ankaŭ tria. Ili estis hundoj junaj kaj ŝercemaj, kaj ili volis logi ĝin al ludado; sed ĝi estis malbonhumora, kaj krome komenciĝis pluvego. Tiam fajfo tranĉis la aeron, longa kaj akra fajfo. La maljuna hundo rigardis la du junajn, sed ili ne atentis; fajfis neniu el iliaj mastroj.
 
-Tiam la maljuna senmastra hundo streĉis la orelojn; ĝi subite sentis sin tre stranga. Jen ankoraŭ fajfo, kaj la maljuna hundo perplekse saltis jen unuflanken jen aliflanken. Fajfas ĝia mastro, tiam ĝi ja devas obei! Triafoje iu fajfis, same persiste kaj akre. Kie li do estas, kiudirekte? Kiel tio okazis, ke mi disi-
-
-ĝis de mia mastro? Kaj de kiam ni disiĝis, de hieraŭ aŭ de tri tagoj aŭ eble de momento? Kaj kiel aspektis mia mastro, kaj kian odoron li havis, kaj kie li estas, kie li estas? i kuris en rondoj priflarante ĉiujn preterpasantojn, sed neniu estis ĝia mastro, kaj neniu volis esti tia. Tiam ĝi turnis sin kaj kuris malsupren laŭ la strato; ĉe domangulo ĝi haltis por rigardi ĉirkaŭen ĉiudirekte. ia mastro ne estis tie. Tiam ĝi galope rekuris laŭ la strato; koto ŝprucis de ĝi kaj pluvakvo fluis de
+Tiam la maljuna senmastra hundo streĉis la orelojn; ĝi subite sentis sin tre stranga. Jen ankoraŭ fajfo, kaj la maljuna hundo perplekse saltis jen unuflanken jen aliflanken. Fajfas ĝia mastro, tiam ĝi ja devas obei! Triafoje iu fajfis, same persiste kaj akre. Kie li do estas, kiudirekte? Kiel tio okazis, ke mi disiĝis de mia mastro? Kaj de kiam ni disiĝis, de hieraŭ aŭ de tri tagoj aŭ eble de momento? Kaj kiel aspektis mia mastro, kaj kian odoron li havis, kaj kie li estas, kie li estas? i kuris en rondoj priflarante ĉiujn preterpasantojn, sed neniu estis ĝia mastro, kaj neniu volis esti tia. Tiam ĝi turnis sin kaj kuris malsupren laŭ la strato; ĉe domangulo ĝi haltis por rigardi ĉirkaŭen ĉiudirekte. ia mastro ne estis tie. Tiam ĝi galope rekuris laŭ la strato; koto ŝprucis de ĝi kaj pluvakvo fluis de
 
 ĝia felo. ĉiuangule ĝi haltis, sed nenie troviĝis ĝia mastro.
 
 Tiam ĝi sidiĝis en stratkruciĝo, streĉis sian hirtan kapon al la ĉielo kaj hurlis.
 
 ĉu vi iam vidis, ĉu vi iam aŭdis tian hundon forgesitan, senmastran, kiu streĉas sian kolon al la ĉielo kaj hurlas, hurlas? La aliaj hundoj malrapide fortrotas kun la vosto inter la kruroj; ja ili ne povas konsoli nek helpi.
-
-
-LA KISO
 
 
 LA PLUVETO
@@ -119,9 +93,7 @@ Nun aŭskultu:
 
 La bona dio antaŭ kelka tempo tiel malkontentis pri la malboneco de la homoj, ke li decidis puni ilin ankoraŭ pli malbonigante ilin. Plej prefere li en sia granda boneco ŝatus dronigi ilin ĉiujn per nova diluvo; li ne forgesis kiel plaĉa estis tiu vido, kiam ĉio viva pereis en la inundo. Sed bedaŭrinde, en sentimentala momento li unufoje promesis al Noa neniam tion refari.
 
-”Aŭskultu, amiko mia”, li tial iutage diris al la diablo. ”Vi efektive ja ne estas sanktulo, sed vi foje havas bonajn ideojn, kaj oni povas kun vi rezoni. La homoj malbonas kaj ne volas boniĝi. Mia pacienco, kiu estas senlima, nun elĉerpiĝis, kaj mi decidis puni ilin ankoraŭ pli malbonigante ilin. Mi esperas ke ili tiam ĉiuj pereigos unu la alian kaj sin mem. ŝajnas al mi, ke niaj interesoj — aliokaze tiel malsamaj — tie ĉi escepte 8
-
-LA KISO
+”Aŭskultu, amiko mia”, li tial iutage diris al la diablo. ”Vi efektive ja ne estas sanktulo, sed vi foje havas bonajn ideojn, kaj oni povas kun vi rezoni. La homoj malbonas kaj ne volas boniĝi. Mia pacienco, kiu estas senlima, nun elĉerpiĝis, kaj mi decidis puni ilin ankoraŭ pli malbonigante ilin. Mi esperas ke ili tiam ĉiuj pereigos unu la alian kaj sin mem. ŝajnas al mi, ke niaj interesoj — aliokaze tiel malsamaj — tie ĉi escepte
 
 
 povus trovi komunan punkton; kian konsilon vi povas doni al mi?”
@@ -148,9 +120,7 @@ La pluvombrelfaristoj kaj la galoŝfabrikistoj komence ĝojis, sed ne daŭris lo
 
 La homoj ne konscias, kiom gravas al ili bela vetero, ĝis ili dum kelka tempo malhavas ĝin. Gajuloj iĝis melankoliaj. Me-lankoliuloj iĝis frenezaj kaj pendigis sin en longaj vicoj aŭ kolektiĝis por aranĝi konciliojn. Baldaŭ oni ne plu laboris, kaj la mizero estis severa. La krimoj obliĝis laŭ kapturna skalo, la malliberejoj fariĝis troloĝataj, la frenezulejoj sufiĉis nur al la saĝuloj. La nombro de vivuloj malkreskis, kaj iliaj loĝejoj estis forlasitaj. Oni dekretis mortpunon pro memmortigo; nenio helpis.
 
-La homaro, kiu dum tiom da generacioj revis kaj verkis pri 9
-
-LA KISO
+La homaro, kiu dum tiom da generacioj revis kaj verkis pri
 
 
 eterna printempo, nun iris renkonte al siaj lastaj tagoj tra eterna aŭtuno. Tagon post tago la detruado kreskis. Regionoj dezertiĝis, urboj ruiniĝis. Sur la placoj kolektiĝis hundoj hur-lantaj; sed tra la stratetoj iris maljuna lamulo de domo al do-mo kun sako surdorse kolektante animojn. Kaj ĉiuvespere li lamis hejmen kun plena sako.
@@ -169,18 +139,13 @@ Kaj kun tiuj vortoj li tiel malmilde ĵetis sian malpuran sa-kon sur la ŝtupojn
 Vento siblas tra la fenestraj fendoj, kaj pluvo plaŭdas en la tegmenta defluilo, kaj finita estas ĉi fabelo. Kiu ĝin ne komprenis, tiu konsoliĝu per tio ke morgaŭ estos bela vetero.
 
 
-LA KISO
-
-
 LA SAKRAMENTO DE LA KOMUNIO
 
 (1897)
 
 Okazis preskaŭ en mia infanaĝo.
 
-Estis aŭtuna vespero kun forta vento sur unu el la in-
-
-sularaj ŝipoj. Ni ankoraŭ ne transloĝiĝis urben de nia kampara somera domo, kaj mi veturadis al kaj el la urbo pro mia lernejo. Mi kiel kutime estis maldiligenta kaj devis ekzameni-
+Estis aŭtuna vespero kun forta vento sur unu el la insularaj ŝipoj. Ni ankoraŭ ne transloĝiĝis urben de nia kampara somera domo, kaj mi veturadis al kaj el la urbo pro mia lernejo. Mi kiel kutime estis maldiligenta kaj devis ekzameni-
 
 ĝi pri kelkaj studobjektoj por esti akceptita en supera klaso.
 
@@ -192,9 +157,6 @@ Sed resti tie ekstere estis malvarme, kaj pensante ke mi jam sufiĉe frostiĝis,
 Mi ankoraŭ imagas la interioron* el varmo kaj hejmeco, kiun renkontis mia rigardo kiam mi malfermis la pordon. La lumigita lampo malrapide balanciĝis tien kaj reen de la pla-fono kvazaŭ pendolo. Surtable vaporis kvar viskiaj grogoj; kvar cigaroj ardis, kaj kvar sinjoroj rakontadis fiajn anekdo-
 
 *) bildo aŭ imago pri dominterno, hejma vivo k.s.
-
-
-LA KISO
 
 
 tojn. Mi konis ilin ĉiujn kiel najbarojn ĉe la somera domo; unu direktoro de firmo, unu maljuna pastro, unu aktoro kaj unu komercisto de etaĵoj. Mi ĝentile riverencis kaj sidiĝis en angulo. Mi havis leĝeran impreson ke mia ĉeesto eble povus ŝajni superflua; sed aliflanke neniu povus ja postuli ke mi iru ekstere frostiĝante, kiam estas tiom da spaco en la kajuto.
@@ -210,9 +172,6 @@ Oni diris al mi, ke mi en tiu ĉi tempo havis aspekton naivan kaj senkulpan.
 La paŭzo tamen ne estis longa. Kelkaj glutoj el la glasoj, kelkaj tiroj de la cigaroj, kaj la diskuto denove ekhavis vervon.
 
 Unu aparta trajto tamen frapis min: ĉiujn anekdotojn, kiujn oni rakontis, mi jam aŭdis nekalkuleblajn fojojn, kaj mi persone trovis ilin sufiĉe simplaj. Fiaj anekdotoj kiel konate estas divideblaj en du ĉefajn grupojn: unu koncentriĝas precipe ĉirkaŭ la digesta procezo kaj cirkonstancoj ligitaj kun tiu, dum la dua, kiu valoras nekompareble pli multe, prefere temas pri la virino. La unuan grupon mi kaj miaj samlernejanoj delonge lasis malantaŭ ni; des pli surprizis min aŭdi tiujn ĉi maturajn sinjorojn dediĉi al ĝi sian plej vivan intereson, dum la dua, ege pli interesa grupo estis plene neglektata. Mi ne komprenis tion ĉi. ĉu eble estis pro ia superflua respekto al mi? Ne necesas diri ĝis kia grado la suspekto pri tio min incitis. La vigla etoso de la kajuto infektis min kaj igis min en-treprenema, kaj mi energie decidis meti finon al tiuj ĉi infanaĵoj.
-
-
-LA KISO
 
 
 ”Aŭskultu, onklo”, mi tute neatendite diris dum silento post anekdoto, kiu estis tiel sendanĝera, ke nur la pastro ridis pri
@@ -240,9 +199,6 @@ Sed kiam la anekdoto komencis preni iomete maldecan di-rekton, ĝin subite inter
 ”Pardonu, kara amiko, ke mi interrompas, sed”, kaj li iomete tordiĝis direktante siajn vortojn al mi, ”kiun aĝon vi efektive havas, junulo? ĉu vi jam partoprenis la sank... — la komunion?”
 
 
-LA KISO
-
-
 Mi sentis ke mi sange ruĝiĝas. Mi forgesis, ke troviĝas pastro en la societo.
 
 ”Je-es”, mi preskaŭ neaŭdeble balbutis. ”Mi konfirmiĝis lastvintre.”
@@ -254,10 +210,7 @@ Kaj ne levante la rigardon li aldonis, per voĉo, kiun kvar-dek jaroj da akordig
 ”Daŭrigu, kara amiko. Pardonu mian interrompon.”
 
 
-LA KISO
-
-
-LA TUĉDESEGNO
+LA TUĈDESEGNO
 
 (1897)
 
@@ -275,9 +228,7 @@ Mi iomete konsterniĝis.
 
 ”Nu, tion mi ja vidas”, ŝi grimacis per sufice malĝentila to-no; ”sed mi volas ekscii kion ĝi signifas.”
 
-Mi estis senkonsila kaj embarasita; neniam mi ekpensis pri tio, ke ĝi ion signifus. Sed ŝia koncepto ne estis ŝancelebla; ŝi 15
-
-LA KISO
+Mi estis senkonsila kaj embarasita; neniam mi ekpensis pri tio, ke ĝi ion signifus. Sed ŝia koncepto ne estis ŝancelebla; ŝi
 
 
 unu fojon por ĉiam ekhavis la ideon, ke tiu bildo devas esti iaspeca ”serĉu la katon”. Kial mi aliokaze montrus ĝin al ŝi?
@@ -294,9 +245,6 @@ Kion mi respondu? Mi donus multon por povi diri al ŝi ki-on ĝi signifas; sed m
 Nu, pasis jam pluraj jaroj de tiam. Mi nun fumas aliajn cigarojn kaj aĉetas ilin en alia butiko, kaj mi ne plu cerbumas pri la senco de l’ vivo; tamen ne pro tio ke mi ĝin imagas tro-vita.
 
 
-LA KISO
-
-
 LA PUNKTO DE ARKIMEDO
 
 (1898)
@@ -307,9 +255,7 @@ Li estis samaĝa kiel mi kaj loĝis en la sama strato. Sed li superis min pri ĉ
 
 Sed unufoje okazis, ke mi ricevis sledeton de mia patro. i estis tegita per peco da ruĝflora felta tapiŝo, la glitiloj havis akrajn ŝtalrelojn, kiuj brilis en la sunlumo, kaj ĝi krome havis etan sonorilon ĉekape. Kiam mi unuafoje venis en la pordegon kun tiu ĉi sledeto, kaj la odoro de ĵus falinta neĝo tik-lis mian nazon kaj preskaŭ ternigis min, subite kaptis min tia freneza ĝojo, ke mi tute forgesis miajn ordinarajn antaŭzor-gojn kaj kuris el la pordego rigardante nek dekstren nek mal-dekstren, saltante kaj dancante kiel pupo kun ŝnuro kaj eli-gante sovaĝajn militkriojn.
 
-uste ekster mia pordo la strato deklivis malsupren al malaltaĵo. Mi tuj sidiĝis rajde sur la sledeto kaj lasis ĝin gliti malsupren; sed la deklivo ne estis tre kruta, kaj mi antaŭeniris 17
-
-LA KISO
+uste ekster mia pordo la strato deklivis malsupren al malaltaĵo. Mi tuj sidiĝis rajde sur la sledeto kaj lasis ĝin gliti malsupren; sed la deklivo ne estis tre kruta, kaj mi antaŭeniris
 
 
 nur malrapide, tiel ke mi foje devis helpi per la piedoj. Fros-ta vento blovis tra la strato, miaj oreloj komencis malvarmi, kaj eĉ mia ĝojo jam estis frostmortonta. Kiam la glacia fros-to de la vento enŝteliĝis sub mian veston, tiam la jena konsi-dero jam enŝteliĝis en mian animon: mi tute ne tiel amuziĝas nun, kiel ĵus, venante tra la pordego kun mia sledeto.
@@ -324,9 +270,7 @@ Sed vidu, mia garda anĝelo min protektis. La friponeto ne aperis el sia pordo; 
 
 Poste li elpoŝigis pecon da karbo, desegnis kvarliteran vor-ton sur la muro kaj malaperis en sian pordon.
 
-Sed mi glitis plu malsupren sur la deklivo ŝovante per la piedoj por veni antaŭen, ĉar la deklivo ne estis tre kruta. Subite tamen la penso trafis min, ke povus troviĝi iom da vero kaŝita en la vortoj de la friponeto. Se mi sidas senmova sur mia sledeto, mi pensis, kaj iu venas de malantaŭe kaj puŝas mian dorson, la sledeto iras antaŭen kelkan distancon. Se mi do frapas al mi mem la dorson, tio kompreneble havas la saman efikon kiel se iu alia tion faras. Estas ja tiel simple; kiel 18
-
-LA KISO
+Sed mi glitis plu malsupren sur la deklivo ŝovante per la piedoj por veni antaŭen, ĉar la deklivo ne estis tre kruta. Subite tamen la penso trafis min, ke povus troviĝi iom da vero kaŝita en la vortoj de la friponeto. Se mi sidas senmova sur mia sledeto, mi pensis, kaj iu venas de malantaŭe kaj puŝas mian dorson, la sledeto iras antaŭen kelkan distancon. Se mi do frapas al mi mem la dorson, tio kompreneble havas la saman efikon kiel se iu alia tion faras. Estas ja tiel simple; kiel
 
 
 stulta mi estis, kiu antaŭe ne eltrovis tion! Mi singarde rigardis ĉirkaŭ mi por certiĝi ke la friponeto ne troviĝas proksime, ĉar mi ne volis ke li vidu, ke mi sekvas lian konsilon. Kaj poste mi komencis frapi al mi la dorson laŭ mia pleja kapablo.
@@ -342,15 +286,10 @@ Mia patro nek ridis pri mi nek diris, ke mi estas stulta, kiel farus la plimulto
 
 La tempo flugas, la jaroj pasas.
 
-La friponeto plenkreskis kaj fariĝis granda trampo. Mi mem venis al la lernejo kaj lernis multon; sed mi neniam ricevis kontentigan eksplikon pri la kialo, ke oni ne povas movi sin antaŭen per sledeto frapante al si la dorson. Foje ankoraŭ okazas, ke mi nokte kuŝas sendorma cerbumante pri tiu ĉi enigmo. Kaj se mi iutage havos filon, kaj li demandos min pri 19
-
-LA KISO
+La friponeto plenkreskis kaj fariĝis granda trampo. Mi mem venis al la lernejo kaj lernis multon; sed mi neniam ricevis kontentigan eksplikon pri la kialo, ke oni ne povas movi sin antaŭen per sledeto frapante al si la dorson. Foje ankoraŭ okazas, ke mi nokte kuŝas sendorma cerbumante pri tiu ĉi enigmo. Kaj se mi iutage havos filon, kaj li demandos min pri
 
 
 tiu ĉi afero, mia firma intenco estas ridi pri li kaj diri, ke li estas stulta.
-
-
-LA KISO
 
 
 LA BOVINOJ DE LA PARO˘ESTRO
@@ -361,11 +300,7 @@ Dum dek jaroj mi ne vidis mian iaman studamikon, la
 
 pastron Torelius en Lerkila, ĝis ni en iu varma kaj bela somera vespero antaŭ nelonge renkontiĝis sur la trotuaro ekster la hotelo ’Grand’. Ni manĝadis en la sama pensiono en Upsalo, kie mi studis por mi ne memoras kio — probable la prepara — sed li studis por la fina kaj estis tre serioza juna viro, krom sabatvespere. ĉar li havis regulajn kutimojn kaj estis akurata pri ĉio, ankaŭ pri la junula petolado. Li cetere havis bonan kapon, kaj ĉar li krome venis el bona malnova pastra familio kaj havis pli ol unu episkopon, se ne kiel veran onklon, tamen kiel onklon laŭdiran, sekve ĉio okazis al li rapide, tiel ke li jam en sufiĉe juna aĝo posedis sufiĉe bonan pa-ro˛on. ĉio ĉi donis al li plejparte helan kaj harmonian opinion pri la kristanismo, kaj kiam mi nun vidis lin veni renkonte al mi laŭ la rando de la trotuaro kun la brakoj etenditaj, kvazaŭ pasus nura semajno post kiam ni disiĝis ekster Tad-dis, mi laŭ lia mieno povus kredi ke estas sabatvespero, se mi ne scius ke estas vendredo.
 
-Ni sidiĝis ĉe tablo sub la granda sunŝirmilo de la kafejo kaj prezentigis al ni diversajn refreŝigaĵojn. Montriĝis ke pli rapide ol ni efektive atendis, ni atingis la fundon de niaj malnovaj rememoroj el la studado, kaj nia interparolo plejparte tu-
-
-ŝis la hodiaŭon. Mi eksciis, ke li jam estas duafoje edziĝinta, kaj ke lia dua edzeco ŝajnas fariĝi same feliĉa kiel la unua 21
-
-LA KISO
+Ni sidiĝis ĉe tablo sub la granda sunŝirmilo de la kafejo kaj prezentigis al ni diversajn refreŝigaĵojn. Montriĝis ke pli rapide ol ni efektive atendis, ni atingis la fundon de niaj malnovaj rememoroj el la studado, kaj nia interparolo plejparte tuŝis la hodiaŭon. Mi eksciis, ke li jam estas duafoje edziĝinta, kaj ke lia dua edzeco ŝajnas fariĝi same feliĉa kiel la unua
 
 
 estus, se nia sinjoro tiel volus. Li parolis pri sia agrabla vivo en la kamparo, kiun li ne volus ŝanĝi kontraŭ io en la mondo. Li amis siajn paroąnojn, kaj li ankaŭ supozis, ke ili estimas lin. Ni ankaŭ iomete tanĝis la religiajn movadojn de la nuntempo, kaj mi inter alie demandis, ĉu lin multe ĝenas sek-tuloj en lia paro˛o.
@@ -378,9 +313,7 @@ Nun regas pli paca etoso, kaj kvankam mi ne povas diri ke mi efektive havas pli 
 
 Li interrompis sin kun iomete mistera aspekto, sed mi nenion plu demandis, kaj ni dum minuto silentis. Trotuare an-taŭ ni promenis kelkaj maldikaj jankioj inter grasaj stokhol-manoj, de Strömparterren sonis la lastaj taktoj el la himno de la Habsburga dinastio, ĝi lasis post si strangan kvieton, kaj tra la kvieto penetris blekado de bovino. i venis el unu el la in-sularaj ŝipoj kiuj ĵus albordiĝis ĉe la kajo; baldaŭ poste oni aŭdis la bovinon treti trans la ponteton, venis ankoraŭ unu, kaj oni vidis bienulon preterpasi, trenante la du bovinojn post si per ŝnurego.
 
-”Jen belaj bovinoj”, diris la paroęstro, ”kvankam ne tiel belaj kiel la miaj. Mi havas la plej grasajn kaj belajn en la tuta paro˛o. Sed bovinojn oni devas vidi en verda pejzaĝo por ilmpreni. Troviĝas nenio kion mi pli multe ŝatas ol miajn 22
-
-LA KISO
+”Jen belaj bovinoj”, diris la paroęstro, ”kvankam ne tiel belaj kiel la miaj. Mi havas la plej grasajn kaj belajn en la tuta paro˛o. Sed bovinojn oni devas vidi en verda pejzaĝo por ilmpreni. Troviĝas nenio kion mi pli multe ŝatas ol miajn
 
 
 bovinojn, el tio kio estas de tiu ĉi mondo, kompreneble. Cetere ankaŭ tio havas sian...”
@@ -391,23 +324,16 @@ bovinojn, el tio kio estas de tiu ĉi mondo, kompreneble. Cetere ankaŭ tio hava
 
 Jen aŭdu:
 
-Vi eble memoras ke la pasinta somero estis tre varma, precipe antaŭ Sankta Johano. Iutage mi faris promenon ĉirkaŭ mia posedaĵo, kiel kutime. Mi iris laŭ la randoj de la fosaĵoj, meze en la sunradiado, mi iris trans herbejon, kie miaj homoj estis falĉantaj fojnon, kaj venis al paŝtejo kie la bovinoj pa-
-
-ŝtiĝis. Vi ne povas imagi kiel belaj ili estis tie inter la betul-trunkoj! Mi gratis al ili la frunton kaj parolis al ili kiel mi kutimas, al Majroza kaj al Somerflora kaj al Blankverta — ĝi estas mia sonorilbovino, ĝi ne havas kornojn kaj estas blanka kiel lakto — kaj al la bovo Herkulo, kiu estas la forto kaj la pieco unuiĝintaj. Troviĝas neniuj pli afablaj brutoj ol bovoj, se oni nur dekomence ne incitas ilin. Mi parolis al ili ĉiuj, kaj ili respondis al mi laŭ kapablo kaj blekis post mi kiam mi forlasis ilin. Mi eĉ parolis kun kredanta tajloro, kiun mi renkontis sur la deklivo, kaj kiu estis granda lumo inter la spiritaj vekitoj* de la paro˛o. Mi eĉ aŭdis diri ke li kutimas ekzorci.
+Vi eble memoras ke la pasinta somero estis tre varma, precipe antaŭ Sankta Johano. Iutage mi faris promenon ĉirkaŭ mia posedaĵo, kiel kutime. Mi iris laŭ la randoj de la fosaĵoj, meze en la sunradiado, mi iris trans herbejon, kie miaj homoj estis falĉantaj fojnon, kaj venis al paŝtejo kie la bovinoj paŝtiĝis. Vi ne povas imagi kiel belaj ili estis tie inter la betul-trunkoj! Mi gratis al ili la frunton kaj parolis al ili kiel mi kutimas, al Majroza kaj al Somerflora kaj al Blankverta — ĝi estas mia sonorilbovino, ĝi ne havas kornojn kaj estas blanka kiel lakto — kaj al la bovo Herkulo, kiu estas la forto kaj la pieco unuiĝintaj. Troviĝas neniuj pli afablaj brutoj ol bovoj, se oni nur dekomence ne incitas ilin. Mi parolis al ili ĉiuj, kaj ili respondis al mi laŭ kapablo kaj blekis post mi kiam mi forlasis ilin. Mi eĉ parolis kun kredanta tajloro, kiun mi renkontis sur la deklivo, kaj kiu estis granda lumo inter la spiritaj vekitoj* de la paro˛o. Mi eĉ aŭdis diri ke li kutimas ekzorci.
 
 Nu, li respondis al mi acide, kompreneble — kaj poste mi venis al la lago. i kuŝis brila kaj kvieta. Mi verdire havas tiun principon neniam bani min antaŭ Sankta Johano; sed nur kelkaj tagoj restis ĝis tiam, kaj mi estis ŝvita kaj varma. Mi ne povis deteni min. Tuj mi seniĝis de la vestoj, saltis en la ak-von kaj naĝis for. Sed estis pli malvarme ol mi atendis, kaj mi
 
 *) ano de protestanta ”reveka” aŭ ”reviviga” movado kun radikoj en pie-tismo
 
 
-LA KISO
-
-
 ne restis longe en la lago. Revenante surteren mi ekvidis ĉiujn bovinojn alproksimiĝi. Mi vokis ilin, ili venis pli proksi-men, sed malrapide kaj singarde. Blankverta iris unua, Herkulo tenis sin proksime apud ĝi. Kiam ili estis je distanco de dek aŭ dek kvin paŝoj, mi subite laŭ ilia mieno vidis ke ili ne rekonas min, jes, ke ili eĉ ne volas rekoni min kiel homon! Kaj en la rigardo de Herkulo mi kredis vidi ion kion mi neniam antaŭe tie vidis. Mi koncedas ke subite mi terure ektimis. Se vi volas ekkoni panikan timegon, ekstaru tute nuda antaŭ dekduo da grandaj bestoj kun akraj kornoj — vi sciu ke mi havas dek unu bovinojn kaj unu bovon — kaj kun lago malantaŭ vi. Mi mem duone freneziĝis pro timo kaj ekkuris laŭ la bordo. Nun la bovinoj vigliĝis. Mi aŭdis ilin rapide trotan-tajn malantaŭ mi. Kion fari? Mi ekkaptis branĉon, kiu kreskis sufiĉe malalte, kaj svingis min supren sur la arbon. Tio okazis ĝustatempe, ĉar la tuta svarmo jam ĉirkaŭis min, kaj Herkulo snufis al mi kaj per la kornoj atakis la arbon. Nu, min ĝi ĉiuokaze ne povis atingi, kaj feliĉe estis tiel varme ke mi ne kaptis malvarmumon, kvankam kutime al mi facile malvarmas la stomako. Mi klopodis rezoni kun ili, sed estis nenia eblo. Blankverta havis nur malestimon por respondo, Majroza rigardis kolere sub la fruntharoj, kaj Herkulo jam perdis sian ekvilibron. Kaj iamaniere ili ja pravis. Kiel ili povus imagi, ke tiu ĉi fremda blanka besto, kiu je ilia rigardo ekfuĝas kaj grimpas sur arbon kaj kiu havas nek nigran veston, nek okul-vitrojn, nek pajloĉapelon kun vasta rando, identas kun ilia mastro kaj bona amiko! Li kompreneble neeviteble devas esti ilia malamiko, aŭ ĉiuokaze aperaĵo fremda, ridinda kaj maldeca, kontraŭ kiu ili devas militi.
 
-Feliĉe tamen forta emocio malofte daŭras longe, ĉiuokaze 24
-
-LA KISO
+Feliĉe tamen forta emocio malofte daŭras longe, ĉiuokaze
 
 
 ĉe la brutoj. Post kelka tempo la riĉaj herboj sur la grundo komencis kapti ilian atenton, kaj mi kaŝis min laŭ eblo en la foliaro esperante esti forgesita. La bestoj jam komencis dis-vastiĝi, kaj mi ekesperis pri liberiĝo — la maldelikata arboŝelo malagrable frotis mian haŭton — kiam mi aŭdis parolon kaj ridon de knabinaj voĉoj. Estis la instruistino kaj ambaŭ fili-noj de la kredanta tajloro — ĉiuj tri kompreneble spirite ve-kitaj — kiuj venis kun tukoj enmane por bani sin! Mi ne povas nei ke mi flustris al mi mem: gardu min de l’ diablo! Mi havis nur tiun esperon ke ili ne vidos min, kaj mi promesis al mi mem rekompence turni la okulojn for de la lago. Nu, cetere ne estis multo por rigardi, se mi esceptas la plej junan. Ili fakte estis tiel rapidmovaj, ke mi apenaŭ havis tempon pripensi kion fari antaŭ ol la plej juna jam staris kun unu piedo enakve kaj ĉiuj siaj vestaĵoj bele kaj orde metitaj sur ŝtono.
@@ -418,20 +344,13 @@ La kutimo faras multon; la arboŝelo ne plu tiel severe frotis mian kompatindan 
 
 La knabinoj revenis el la lago, sed la instruistino hazarde surteriĝis iomete pli fore, kompreneble ĝuste kie kuŝis miaj vestaĵoj. ŝi venas kurante kaj rakontas pri sia trovo: ’Kuŝas vestoj de viro tie for, iu viro banas sin tute apude, sed kie li perdiĝis, li sendube naĝis longe for!’ Ili vestas sin urĝe, ili staras aŭskultante. Nenio aŭdeblas, kaj neniu videblas en la lago.
 
-Espereble li ne dronis, kaj kiu li povas esti? Oni devas pli zorge rigardi la vestaĵojn. La plej juna estas plej kuraĝa, ŝi ŝteli-25
-
-LA KISO
-
-
-ras tien kaj revenas raportante: ’Estas la paroęstro! Imagu se li dronis!’ ’Kiel tiam estos pri lia animo?’ demandas la instruistino. ’Ho, ne zorgu pri la animo’, respondas la plej juna knabino, samtempe kolera kaj plorvoĉa, ’mi lernis ĉe li por la konfirmacio antaŭ tri jaroj, kaj mi tre bone ŝatis lin, kvankam li ne havas la ĝustan kredon. Sed nia sinjoro certe ne estas tiel malica kiel vi!’
+Espereble li ne dronis, kaj kiu li povas esti? Oni devas pli zorge rigardi la vestaĵojn. La plej juna estas plej kuraĝa, ŝi ŝteliras tien kaj revenas raportante: ’Estas la paroęstro! Imagu se li dronis!’ ’Kiel tiam estos pri lia animo?’ demandas la instruistino. ’Ho, ne zorgu pri la animo’, respondas la plej juna knabino, samtempe kolera kaj plorvoĉa, ’mi lernis ĉe li por la konfirmacio antaŭ tri jaroj, kaj mi tre bone ŝatis lin, kvankam li ne havas la ĝustan kredon. Sed nia sinjoro certe ne estas tiel malica kiel vi!’
 
 Subite ili tuj silentas kaj ekgapas kvazaŭ sorĉitaj supren al la arbo. Poste trivoĉa ŝriko, kaj en la sekvanta momento ili estis kvazaŭ forviŝitaj de vento.
 
 Mi fine venis malsupren el la arbo kaj vestis min. Mi estis relative trankvila. Kaj vi devas konsenti, ke mi verdire ne plu havis multon por perdi. Sendube neniam iu humila servanto de la Sinjoro estis tiel senkulpe en tiel duba situacio! Ne daŭris longe ĝis la tajloro venis al la loko kun du aliaj kredan-toj. Ili ĉiuj tri aspektis sufiĉe malgaje, sed en la okuloj de la tajloro brilis sekreta fajro. Vi povas imagi la kontentecon de tiu fripono je la penso ke li ekzorcos diablon el neniu malpli ol lia leĝa animzorganto, la paroęstro! Mi tamen feliĉe jam vestis min, kaj per tio reakiris tiun dignon, kiu nun povis tre utili al mi. Antaŭ ol la tajloro eĉ povis malfermi la buŝon mi diris al li, ke mi vizitos lin posttagmeze por ĉion klarigi, post kio mi per gesto adiaŭis ilin kaj foriris kun firma teniĝo.
 
-Posttagmeze mi feliĉe renkontis unue la knabinon. ŝi staris ĉe arbedo en la ĝardeno manĝante nematurajn grosojn. La patro fakte havis bonan bienon kun ĉarma ĝardeno; li estis benita ankaŭ pri mondaĵoj kaj ŝparadis kaj aĉetis tiun ĉi bienon. Mi klarigis la tuton al ŝi, kaj la aminda infano tuj kredis min. ŝi estis la sola prudenta el ili ĉiuj. Unue ŝi pensis ke mi freneziĝis, ĉar mi nuda grimpis sur arbon; sed nun aŭdante 26
-
-LA KISO
+Posttagmeze mi feliĉe renkontis unue la knabinon. ŝi staris ĉe arbedo en la ĝardeno manĝante nematurajn grosojn. La patro fakte havis bonan bienon kun ĉarma ĝardeno; li estis benita ankaŭ pri mondaĵoj kaj ŝparadis kaj aĉetis tiun ĉi bienon. Mi klarigis la tuton al ŝi, kaj la aminda infano tuj kredis min. ŝi estis la sola prudenta el ili ĉiuj. Unue ŝi pensis ke mi freneziĝis, ĉar mi nuda grimpis sur arbon; sed nun aŭdante
 
 
 min paroli kaj vidante ke mi ankoraŭ havas mian prudenton, ŝi tuj kredis min. ŝi estis simpla kaj senafekta knabino, kaj tio kio pasis tute ne ŝajnis al ŝi tiel terura kiel mi pensis. Verŝaj-ne estas vere, kiel iu diris, ke la virino estas pli proksima al la naturo ol la viro, kaj pri naturaj aferoj ŝi ĝenerale sentas malpli da honto ol ni, kvankam ni ĉiam pensas la kontraŭon kiam ni estas junaj kaj ne konas ilin.”
@@ -445,18 +364,11 @@ Jam estis malfrue, kaj ni foriris. Kiam ni disiĝis ni kore premis la manon unu 
 ”Dankon”, li diris, ”mi jam estas feliĉa. Ja estas vere ke mia edzino ne staras sur la sama nivelo de klereco kiel mi; sed ŝi havas klerecon de la koro. Kaj krome certagrade impresis min ke ŝi metis siajn vestaĵojn tiel orde, dum la aliaj ĵetis la siajn pelmele.
 
 
-LA KISO
-
-
-LA KISO
-
 (1903)
 
 Estis iam juna knabino kaj tre juna viro. Ili sidis sur ŝtono ĉe terpinto kiu elstaris en lagon, kaj la ondoj plaŭdante atingis ĝis iliaj piedoj. Ili sidis silentaj, ĉiu en siaj pensoj, rigardante la sunon subiri.
 
-Li pensis, ke li volonte kisus ŝin. Kiam li rigardis ŝian bu-
-
-ŝon, ŝajnis al li ke ĝuste tio estas ĝia celo. Sendube li jam vidis knabinojn pli belajn ol ŝi, kaj efektive li enamiĝis al alia, sed tiun li certe neniam rajtos kisi, ĉar ŝi estas idealo kaj stelo, kaj ’die Sterne, die begehrt man nicht’.*
+Li pensis, ke li volonte kisus ŝin. Kiam li rigardis ŝian buŝon, ŝajnis al li ke ĝuste tio estas ĝia celo. Sendube li jam vidis knabinojn pli belajn ol ŝi, kaj efektive li enamiĝis al alia, sed tiun li certe neniam rajtos kisi, ĉar ŝi estas idealo kaj stelo, kaj ’die Sterne, die begehrt man nicht’.*
 
 ŝi pensis, ke ŝi volonte spertus ke li kisu ŝin, ĉar tio donus al ŝi okazon vere koleri al li kaj montri kiel profunde ŝi mal-estimas lin. ŝi ekstarus kaj zorge kunigus la jupojn ĉirkaŭ sin, ĵetus al li rigardon plenan de glacia moko kaj forirus, nekli-nita kaj trankvila kaj sen superflua urĝo. Sed por malhelpi al li diveni ŝiajn pensojn, ŝi diris mallaŭte kaj malrapide:
 
@@ -469,9 +381,6 @@ Li pensis, ke estus pli facile kisi ŝin se li respondus jese. Sed li ne precize
 Tiu ĉi respondo treege plaĉis al ŝi, kaj ŝi pensis: Mi tamen ŝatas liajn harojn, kaj ankaŭ lian frunton. Domaĝe nur, ke lia
 
 *) ’La stelojn oni ne avidas’ (Goethe)
-
-
-LA KISO
 
 
 nazo estas tiel malbela, kaj li ja estas sen pozicio — nura studento kiu faros sian preparan ekzameniĝon. Li ne estis tia fianĉo, per kia ŝi povus inciti siajn amikinojn.
@@ -495,9 +404,6 @@ Kaj li malrapide metis la brakon ĉirkaŭ ŝian kolon.
 Tion ŝi tute ne atendis. ŝi imagis, ke li nur simple kisos ŝin, kaj ŝi frapos al li la vangon kaj foriros kiel princino. Nun ŝi ne sciis kion fari; ŝi ja volis koleri al li, sed ŝi ne volis malhavi la kison. Tial ŝi sidis tute silenta.
 
 
-LA KISO
-
-
 Tiam li kisis ŝin.
 
 Sentiĝis multe pli strange ol ŝi antaŭe pensis, ŝi sentis sin paliĝi kaj senfortiĝi, kaj ŝi tute forgesis ke ŝi devas frapi al li la vangon kaj ke li estas nura studento kiu faros la preparan.
@@ -516,9 +422,6 @@ Kaj li respondis:
 ”Por mi neniam troviĝis en la mondo iu alia ol vi.”
 
 
-LA KISO
-
-
 SONO PRI MALJUNECO
 
 (1904)
@@ -527,42 +430,28 @@ SONO PRI MALJUNECO
 
 Mi apenaŭ scias. Mi transvivis ĉion, kio iam estis mia vivo, kaj mi pli similis ombron ol homon. Dum krepusko mi vagadis laŭ konataj stratoj kaj pasante videtis kadukajn do-mojn. Mi memoris, ke infanaĝe mi ilin vidis konstruataj kaj tiam kredis, ke ili estas intencitaj kiel loĝejoj por princoj kaj moŝtoj. Sed nun ili ŝajne petegis pri permeso kaŝi sin en ombro. Stratfone elstaris ruĝa kazerno, de kies tegmento flirtis flago kun fremdaj koloroj. Trupo da soldatoj pretermarŝis kun la pantalonoj ŝovitaj en siajn botojn. La fero de iliaj kal-kanumoj klakis kontraŭ la pavimo. Meze de la malpura strato du infanetoj sidis ludante, tiel malpuraj kaj malriĉe vestitaj, ke ili ŝajne kunfandiĝis kun la strato kaj preskaŭ ne videblis.
 
-Ili ne vidis la soldatojn, kaj la soldatoj ne vidis ilin. Ne kulpas ili, mi diris al mi mem; la kaŭzo estas, ke oni malpermesis al ili ion vidi. Se ili povus vidi sian vojon, ne eblus al ili marŝi; kaj marŝi ili ja devas. Mi volis alproksimiĝi por fortreni la infanojn, sed mi ne kapablis. Mi staris kvazaŭ najlita ne povan-te moviĝi. Kial? mi miris. Kial mi ne povas moviĝi, kial mi devas stari senmove rigardante tion ĉi? ĉu eble ne estas realaĵo — ĉu mi sonĝas? Ne, estas realaĵo; la infanoj estas realaj, same la soldatoj. Sed mi mem estas sonĝo. Kaj tuj la tuta enigmo de mia vivo ŝajne klariĝis al mi kiel klare brilanta lu-31
-
-LA KISO
-
-
-mo: mi ne estas reala, mi estas sonĝo. Kaj sonĝo ne povas utili al vivantaj homoj.
+Ili ne vidis la soldatojn, kaj la soldatoj ne vidis ilin. Ne kulpas ili, mi diris al mi mem; la kaŭzo estas, ke oni malpermesis al ili ion vidi. Se ili povus vidi sian vojon, ne eblus al ili marŝi; kaj marŝi ili ja devas. Mi volis alproksimiĝi por fortreni la infanojn, sed mi ne kapablis. Mi staris kvazaŭ najlita ne povan-te moviĝi. Kial? mi miris. Kial mi ne povas moviĝi, kial mi devas stari senmove rigardante tion ĉi? ĉu eble ne estas realaĵo — ĉu mi sonĝas? Ne, estas realaĵo; la infanoj estas realaj, same la soldatoj. Sed mi mem estas sonĝo. Kaj tuj la tuta enigmo de mia vivo ŝajne klariĝis al mi kiel klare brilanta lumo: mi ne estas reala, mi estas sonĝo. Kaj sonĝo ne povas utili al vivantaj homoj.
 
 Mi nenion plu vidis de la infanoj, kiam la soldatoj jam pretermarŝis. Mi nur vidis, ke iliaj botoj lasas malhelajn sangajn spurojn sur la malpuraĵo.
 
 Subite aperis en mi memoro, kiu frostigis mian koron pro teruro. Mi ja mem havas infanojn — du infanetojn. Kie ili povas esti, kaj kiam mi laste ilin vidis? Ja ne povas — ne — —
 
-Denove mi longe vagis laŭ la stratoj dum densiĝanta krepusko. Jam ekneĝis. Mi atingis vilaan kvartalon, la stratoj ku-
-
-ŝis silentaj kaj blankaj, kaj arboj etendis siajn branĉojn pezajn pro neĝo super kradoj kaj bariloj. Mi eniris tra malfermita barilpordo inter du grandaj kvarangulaj ŝtonfostoj kun grandaj blankaj kufoj el neĝo. Ili tiel strange tenerigis min, eble ĉar ili similis du neĝkovritajn tombojn. Mi venis sur grandan kor-ton kun fontaneto meze, kaj mi tuj vidis, ke lumas en la sal-ona fenestro. Surtable staras lampo, la tablo estas aranĝita por manĝo, kaj oni jam sidas ĉetable. Mi iris ĝisfenestre, frapetis la vitron kaj kapsignis al la homoj endome. Ili tamen ne vidis min sed manĝis plu nenion aŭdante. Kaj tuj mi ekvidis, ke ili estas fremduloj ĉirkaŭ fremda tablo. Ili ne estas la miaj.
+Denove mi longe vagis laŭ la stratoj dum densiĝanta krepusko. Jam ekneĝis. Mi atingis vilaan kvartalon, la stratoj kuŝis silentaj kaj blankaj, kaj arboj etendis siajn branĉojn pezajn pro neĝo super kradoj kaj bariloj. Mi eniris tra malfermita barilpordo inter du grandaj kvarangulaj ŝtonfostoj kun grandaj blankaj kufoj el neĝo. Ili tiel strange tenerigis min, eble ĉar ili similis du neĝkovritajn tombojn. Mi venis sur grandan kor-ton kun fontaneto meze, kaj mi tuj vidis, ke lumas en la sal-ona fenestro. Surtable staras lampo, la tablo estas aranĝita por manĝo, kaj oni jam sidas ĉetable. Mi iris ĝisfenestre, frapetis la vitron kaj kapsignis al la homoj endome. Ili tamen ne vidis min sed manĝis plu nenion aŭdante. Kaj tuj mi ekvidis, ke ili estas fremduloj ĉirkaŭ fremda tablo. Ili ne estas la miaj.
 
 Estas dika sinjorino kaj kalva sinjoro en negliĝa mantelo, kiuj aspektas kolere kaj ŝajnas kvereli, kaj kelkaj grandaj infanoj, kaj ilian tablon kovras vakstolo. La vizaĝon de la kalvulo mi cetere bone rekonas de Du Nord, kie li kutime trinkadas grogon. Mi terure hontis. Jes, tie ĉi ni ja loĝis en la unua jaro, sed ni transloĝiĝis, ĉar estis humide, kaj nun ni loĝas en tute alia kvartalo — — kaj mi tiel lacas — — —
 
-Denove mi vagis en neĝo. Mi ja intencis hejmeniri. Mi klopodis persvadi min mem, ke mi scias precize kien iri, kaj ke 32
-
-LA KISO
+Denove mi vagis en neĝo. Mi ja intencis hejmeniri. Mi klopodis persvadi min mem, ke mi scias precize kien iri, kaj ke
 
 
 mi iras la plej mallongan vojon. Mi oblikve transiris stratojn kaj turniĝis ĉe anguloj, sed kien ajn mi venis, ŝajnis al mi, ke mi ĵus pasis tie. ĉe stratlampo staris maljunulino etendante sian manon, sed kaŝante la vizaĝon. Mi preterpasis ŝin, sed samtempe instinkte palpis enpoŝe, ĉu mi havas moneron. Mi elpoŝigis arĝentan moneron, sed rigardante ĝin zorge mi trovis, ke ĝi estas malnova kaj trivita kaj ne plu valida. i portas la profilon de tiu reĝo, kiu regis en mia junaĝo, kaj ĉirkaŭ la rando troviĝas lia devizo, duone neniigita de tempo: Bono de l’ frataj popoloj*. Mi longe staris gapante al tiu malnova monero, kaj sentis bezonon plori.
 
-Nu ja, estis tiu epoko... La epoko de ora paco, kiel la hodiaŭaj poetoj ĝin nomis. Poste venis aliaj epokoj. Denove mi vidis antaŭ mi la ruĝan kazernon kaj la krudajn botojn de la fremdaj soldatoj. Kaj miaj infanoj kaj hejmo, kiujn mi ĵus ser-
-
-ĉis? Ho, nun mi ĉion memoras. Mi estas maljuna kaj ĉion transvivis, mi ne havas infanojn nek hejmon. Mian filinon mi edukis laŭ miaj ideoj, sed plenkreskinte ŝi enamiĝis al misiis-to, edziniĝis al li kaj malaperis. Kaj mia filo — kiel estas, ĉu li ne volis fariĝi oficiro? Jes, efektive, sed tio tro malplaĉis al mi, kaj krome mi ne havis sufiĉe da mono por tio. Sed li militser-vis, kiam ekflamis la granda milito, kaj mortis pro malsato norde en Laponio. Se li estus oficiro, eble li almenaŭ ne mor-tus pro malsato. Sed ĉio ĉi okazis antaŭlonge, kaj mi ĝin memoras nur obtuze. Mi ĉion transvivis, kaj mi mem estas son-
+Nu ja, estis tiu epoko... La epoko de ora paco, kiel la hodiaŭaj poetoj ĝin nomis. Poste venis aliaj epokoj. Denove mi vidis antaŭ mi la ruĝan kazernon kaj la krudajn botojn de la fremdaj soldatoj. Kaj miaj infanoj kaj hejmo, kiujn mi ĵus serĉis? Ho, nun mi ĉion memoras. Mi estas maljuna kaj ĉion transvivis, mi ne havas infanojn nek hejmon. Mian filinon mi edukis laŭ miaj ideoj, sed plenkreskinte ŝi enamiĝis al misiis-to, edziniĝis al li kaj malaperis. Kaj mia filo — kiel estas, ĉu li ne volis fariĝi oficiro? Jes, efektive, sed tio tro malplaĉis al mi, kaj krome mi ne havis sufiĉe da mono por tio. Sed li militser-vis, kiam ekflamis la granda milito, kaj mortis pro malsato norde en Laponio. Se li estus oficiro, eble li almenaŭ ne mor-tus pro malsato. Sed ĉio ĉi okazis antaŭlonge, kaj mi ĝin memoras nur obtuze. Mi ĉion transvivis, kaj mi mem estas son-
 
 ĝo. Kaj mi flustris al mi mem kelkajn vortojn, kiujn mi iam legis sur tombo, kiam mi pratempe en blua printempa vespe-
 
 *) Devizo de Oskar II, reĝo de Svedio kaj Norvegio inter 1872 kaj 1905.
 
 ĉar la novelo estas publikigita en 1904, la sonĝo do prezentas imagi-tan estontecon.
-
-
-LA KISO
 
 
 ro iris sur tombejo kun ŝi, kiun mi tiutempe amis — mi flustris tiujn vortojn re kaj re al mi mem: Alles geht vorüber und wird zum Traum*.
@@ -588,16 +477,11 @@ Tiam mi diris:
 *) Germane = ’ĉio pasas kaj fariĝas sonĝo’, laŭ Christoph Martin Wie-land (Oberon, 1780)
 
 
-LA KISO
-
-
 GÄRDA
 
 (1905)
 
-Mi sidis ĉe mia fenestro gapante al vespera ĉielo brile blua post pluva tago pensante pri nenio, aŭ pri io mal-
-
-ĝoja, al kiu ne utilis mia pensado, kiam iu leĝere frapetis la pordon, kaj enpaŝis mia amiko.
+Mi sidis ĉe mia fenestro gapante al vespera ĉielo brile blua post pluva tago pensante pri nenio, aŭ pri io malĝoja, al kiu ne utilis mia pensado, kiam iu leĝere frapetis la pordon, kaj enpaŝis mia amiko.
 
 ”ĉu mi ĝenas vin?”
 
@@ -617,12 +501,7 @@ El kio efektive konsistas tio? Kiel la malplena blua aero povas aspekti alie, ĉ
 
 ”Kiel strange!”
 
-Ni dum kelkaj momentoj silentis. Mi rigardis lin: li radiis pro juneco kaj sano. Li aspektis kvazaŭ li pasigus la tagon ek-35
-
-LA KISO
-
-
-sterdome, lia haŭto jam havis nuancon de sunbruno, kaj li portis kelkajn violojn en butontruo.
+Ni dum kelkaj momentoj silentis. Mi rigardis lin: li radiis pro juneco kaj sano. Li aspektis kvazaŭ li pasigus la tagon eksterdome, lia haŭto jam havis nuancon de sunbruno, kaj li portis kelkajn violojn en butontruo.
 
 ”De kiu vi ricevis violojn?” mi demandis.
 
@@ -644,16 +523,11 @@ Li iom pripensis.
 
 Mi enpensiĝis. Antaŭ dek ses jaroj. La jaroj kuris, kuradis, kuregis. Ideoj dum tiu tempo malsaniĝis kaj mortis, kaj aliaj ideoj levis la flugilojn por ekflugi. La mapo de Eŭropo kaj de la mondo ŝanĝis aspekton. La tondroj de milito ie-tie muĝis, princoj kaj potenculoj iris el lumo en ombron, kaj mi mem laŭiris almenaŭ parton de tiu vojo. Ne, Gärdan mi ne memoris.
 
-La memoro estas gluaĵo, kiu kuntenas nian estadon; fade-no tredata tra niaj tagoj kiel tra diverskoloraj bidoj; naskiĝ-
-
-atesto, kiu permesas al ni ĉiumatene konstati nian identecon.
+La memoro estas gluaĵo, kiu kuntenas nian estadon; fade-no tredata tra niaj tagoj kiel tra diverskoloraj bidoj; naskiĝatesto, kiu permesas al ni ĉiumatene konstati nian identecon.
 
 Kaj kun la forta bezono fidi sian memoron, kiun oni ekhavas rimarkante ke ĝi jam foje nesufiĉas, mi respondis kun plej granda firmeco:
 
 ”Neniam en ĉi mondo vi parolis al mi pri iu Gärda. Tion vi sonĝis.”
-
-
-LA KISO
 
 
 ”Nu”, li diris, ”vi forgesis tion, kaj tio estas ne tre stranga.
@@ -664,11 +538,7 @@ Li ekstaris de la seĝo kaj ekpaŝis tien-reen en la ĉambro, kiel ĉiam, kiam l
 
 ”Vi scias”, li komencis, ”ke kiam alvenas printempo, mankas trankvilo al mia animo. Dum tagoj mi vagadas eksterdome. Kiam estas al mi tiel, foje la decido povas pendi de haro, ĉu mi aĉetos bileton al Jokohamo aŭ Singapuro aŭ nur saltos sur tramon por iri al iu urborando. La lastan mi hodiaŭ faris.
 
-Vi memoras, kiel estis ĉi-matene: aero sonoranta kaj kantan-ta, furioze blankega lumo sur ĉiuj muroj kaj stratoj, blindaj almozuloj en ĉiu angulo, italoj kun balonoj, gurdo sub ĉiu volbo, mallonge dirite: printempo. Mi prenis tramon de Stu-replan kaj veturis tiel longe kiel eblis en Kungsholmen, kie mi infanaĝe tiom da fojoj sidadis sur skabelo en eta klostra ĉelo, kun portreto de pastoro Beskow surmure kaj geranio enfene-stre, tenante lanfadenon por mia praavino... Sed jen alia historio... Mi vagis eksteren laŭ la vojo de Drottningholm. Jen ŝanĝo de sceno. Kien eskapis la printempo? Jam la centan fojon mi eltrovis, ke ’kampara printempo’ estas la plej kruda blago ekzistanta. ĉie malnova kaduka neĝo, kaj la vojo estis kotejo. Kampara printempo, tio simple estas vintro kaduki-
-
-ĝanta kun felo malpura kaj makulita. Al kukolo! Kaj kompreneble krome aperis granda nubaĉo, nigra kiel lado, kaj la bluaj pecoj, kiuj ankoraŭ restis, gapis al mi kun tia terura, malplena, glacie malvarma kadavra koloro, kiun la ĉielbluo 37
-
-LA KISO
+Vi memoras, kiel estis ĉi-matene: aero sonoranta kaj kantan-ta, furioze blankega lumo sur ĉiuj muroj kaj stratoj, blindaj almozuloj en ĉiu angulo, italoj kun balonoj, gurdo sub ĉiu volbo, mallonge dirite: printempo. Mi prenis tramon de Stu-replan kaj veturis tiel longe kiel eblis en Kungsholmen, kie mi infanaĝe tiom da fojoj sidadis sur skabelo en eta klostra ĉelo, kun portreto de pastoro Beskow surmure kaj geranio enfene-stre, tenante lanfadenon por mia praavino... Sed jen alia historio... Mi vagis eksteren laŭ la vojo de Drottningholm. Jen ŝanĝo de sceno. Kien eskapis la printempo? Jam la centan fojon mi eltrovis, ke ’kampara printempo’ estas la plej kruda blago ekzistanta. ĉie malnova kaduka neĝo, kaj la vojo estis kotejo. Kampara printempo, tio simple estas vintro kadukiĝanta kun felo malpura kaj makulita. Al kukolo! Kaj kompreneble krome aperis granda nubaĉo, nigra kiel lado, kaj la bluaj pecoj, kiuj ankoraŭ restis, gapis al mi kun tia terura, malplena, glacie malvarma kadavra koloro, kiun la ĉielbluo
 
 
 ekhavas, kiam eknubiĝas. Mi kuspis la kolumon kaj turnis min. Mi revenis al la plej periferiaj urbaj domoj apenaŭ en tempo por savi min sub pordegan volbon, kiam ekfuriozis la ŝtormo. i komenciĝis per grajlo, kiu vipis la vizaĝon kvazaŭ
@@ -677,12 +547,7 @@ ekhavas, kiam eknubiĝas. Mi kuspis la kolumon kaj turnis min. Mi revenis al la 
 
 La servistino restis salone.
 
-ĉio en la ĉambro estis bela kaj delikata. Neniuj valoraĵoj, tamen nenio sengusta aŭ povra. Mi tuj ekŝatis malnovan spe-38
-
-LA KISO
-
-
-gulkomodon kun du kandeloj en mallarĝaj bronzaj ingoj am-baŭflanke de pendolhorloĝo. Kelkaj etaj porcelanaĵoj sur verda marmora tabulo, bukedo da violoj en glaso, kaj eta fotografaĵo en kadro. Mi silente rigardis tion kiel malnovan pentraĵon pri muta naturo. uste dum mi staris tie, subite klariĝis ekster la fenestro, kaj mallarĝa lumfasko, pala kiel antikva arĝento, falis sur la komodon kaj la spegulon kaj la verdan ŝtontabulon kun kandeloj kaj portreto kaj cetero. La portreto... Hazarde mi pli proksime ekzamenis ĝin, kaj mi koncedas, ke subite aperis stranga sento enkape. Estis mi! Estis mia malnova abiturienta portreto kun la blanka kaskedo surgenue...
+ĉio en la ĉambro estis bela kaj delikata. Neniuj valoraĵoj, tamen nenio sengusta aŭ povra. Mi tuj ekŝatis malnovan spegulkomodon kun du kandeloj en mallarĝaj bronzaj ingoj am-baŭflanke de pendolhorloĝo. Kelkaj etaj porcelanaĵoj sur verda marmora tabulo, bukedo da violoj en glaso, kaj eta fotografaĵo en kadro. Mi silente rigardis tion kiel malnovan pentraĵon pri muta naturo. uste dum mi staris tie, subite klariĝis ekster la fenestro, kaj mallarĝa lumfasko, pala kiel antikva arĝento, falis sur la komodon kaj la spegulon kaj la verdan ŝtontabulon kun kandeloj kaj portreto kaj cetero. La portreto... Hazarde mi pli proksime ekzamenis ĝin, kaj mi koncedas, ke subite aperis stranga sento enkape. Estis mi! Estis mia malnova abiturienta portreto kun la blanka kaskedo surgenue...
 
 Kiel ĝi staras tie ĉi? Kiu ĝin metis tien ĉi?”
 
@@ -703,9 +568,6 @@ Mia memoro vekiĝis, malrapide, obtuze.
 ”ŝi havis malhelajn okulojn.”
 
 ”Kaj nun — ?”
-
-
-LA KISO
 
 
 Mia amiko dum momento silentis. Lia voĉo iomete tremis, kiam li daŭrigis:
@@ -729,9 +591,6 @@ Tio kaŭzis la etoson.”
 ”Verŝajne”, mi diris.
 
 
-LA KISO
-
-
 LA BRULANTA URBO
 
 (1905)
@@ -742,9 +601,7 @@ Tra ambaŭ fenestroj de la ĉambro kun iliaj helaj, krade kvadratitaj kurtenoj b
 
 Kaj li saltas al la kahelforno, kie la matena fajro flamas kaj knaras, kaj faras transkapiĝon antaŭ ĝi. Li konsideras la ka-helfornon kaj la lokon antaŭ ĝi kiel la plej gravan kaj noblan en la ĉambro.
 
-La patro kapjesas ridante pri li super la rando de sia ĵurnalo. Kaj la knabo denove ridas, ridegas senbride. Li estas en tiu aĝo, kiam rido ankoraŭ esprimas nur ĝojon, ne emon al io amuza. Kiam li iuvespere staris ĉe la fenestro ridegante pri la 41
-
-LA KISO
+La patro kapjesas ridante pri li super la rando de sia ĵurnalo. Kaj la knabo denove ridas, ridegas senbride. Li estas en tiu aĝo, kiam rido ankoraŭ esprimas nur ĝojon, ne emon al io amuza. Kiam li iuvespere staris ĉe la fenestro ridegante pri la
 
 
 luno, tio ne estis ĉar li trovas la lunon amuza, sed ĉar ĝi ĝoji-gis lin per sia ronda, brila vizaĝo.
@@ -775,12 +632,7 @@ Poste li venas al la patro dirante:
 
 La bildo estas novaĵo en la ĉambro; ĝi alvenis hieraŭ. La knabeto jam delonge konatiĝis kun la aliaj bildoj sur la ĉir-kaŭaj muroj, onklo Strindberg kaj onklo Skåphurre kaj onklo Napoliono kaj la malbelulo Goethe kaj avino, kiam ŝi estis juna. Sed la brulanta urbo estas nova, kaj ĝi ankaŭ per si mem estas multe pli amuza bildo ol la aliaj. La patro laŭ la volo de sia knabeto prenas la bildon de la muro, kaj ili kune ĝuas ĝin.
 
-Super larĝa riverbuŝo, kiu kurbiĝas en la direkto almare kaj plenas de barkoj kaj ŝipoj, iras ponto kun rondaj arkaj volboj kaj unu borda turo. Sur la maldekstra bordo situas la brulanta urbo: vicoj da mallarĝaj domoj kun pintaj gabloj, altaj teg-mentoj, preĝejoj kaj turoj; amaso da homoj kurantaj unu ĉir-42
-
-LA KISO
-
-
-kaŭ la alia, maro el fajro kaj flamoj, nubo el fumo, eskaloj sta-rigitaj kontraŭ la muroj, ĉevaloj kuregantaj for kun skuata ŝarĝo, kajo plena de bareloj kaj sakoj kaj ĉia rubo, surrivere amaso da homoj en barko renversiĝonta, trans la ponto homoj kuras pro sia vivo, kaj plej proksime en la antaŭaĵo du hundoj priflaras unu la alian. Sed malproksime en la fono, kie la riverbuŝo vastiĝas almare, sidas ĉe la horizonto tro malgranda luno en nebuleto el palaj nuboj rigardante la tutan mizeron pale kaj malgaje.
+Super larĝa riverbuŝo, kiu kurbiĝas en la direkto almare kaj plenas de barkoj kaj ŝipoj, iras ponto kun rondaj arkaj volboj kaj unu borda turo. Sur la maldekstra bordo situas la brulanta urbo: vicoj da mallarĝaj domoj kun pintaj gabloj, altaj teg-mentoj, preĝejoj kaj turoj; amaso da homoj kurantaj unu ĉirkaŭ la alia, maro el fajro kaj flamoj, nubo el fumo, eskaloj sta-rigitaj kontraŭ la muroj, ĉevaloj kuregantaj for kun skuata ŝarĝo, kajo plena de bareloj kaj sakoj kaj ĉia rubo, surrivere amaso da homoj en barko renversiĝonta, trans la ponto homoj kuras pro sia vivo, kaj plej proksime en la antaŭaĵo du hundoj priflaras unu la alian. Sed malproksime en la fono, kie la riverbuŝo vastiĝas almare, sidas ĉe la horizonto tro malgranda luno en nebuleto el palaj nuboj rigardante la tutan mizeron pale kaj malgaje.
 
 ”Paĉjo”, demandas la knabeto, ”kial brulas la urbo?”
 
@@ -801,9 +653,6 @@ El tio la knabeto nenion komprenos, tion la patro tre bone konscias, sed li ja d
 La patro provas klarigon pri la diferenco inter bildoj kaj realo. ”Tio ĉi ne estas vera urbo”, li diras, ”ĝi estas nura bildo. La vera urbo forbrulis antaŭ tre longe. i estas for. La homoj, kiuj kuras ĉi tie baraktante per la brakoj, estas mortaj kaj ne plu ekzistas. La domoj forbrulis. La turoj falis. An-kaŭ la ponto estas for.”
 
 ”ĉu la turoj brulis for aŭ falis for?” demandas la knabo.
-
-
-LA KISO
 
 
 ”Ili kaj brulis kaj falis.”
@@ -833,9 +682,6 @@ La knabo tuj ekhavas tre seriozan vizaĝon. Li aspektas eĉ ĉagrenita. Li longe
 ”Diru, Paĉjo”, li fine demandas, ”kie estis mi, kiam tiu ĉi urbo brulis? ĉu tio okazis kiam mi estis en Gränna kun Panjo?”
 
 
-LA KISO
-
-
 ”Ne, karulo”, diras la patro, ”kiam tiu ĉi urbo brulis, vi ankoraŭ ne ekzistis.”
 
 La knabo denove paŭtas kun mieno diranta: ne, tion mi ne akceptas. Kaj li emfaze ripetas:
@@ -846,18 +692,13 @@ La patro respondas:
 
 ”Vi tute ne estis.”
 
-La knabo grandokule rigardas sian patron. Subite la viza-
-
-ĝeto ekbrilas, li liberigas sin de la patro kaj denove komencas salti kaj danci en la sunmakulo sur la verda tapiŝo kriante plenvoĉe:
+La knabo grandokule rigardas sian patron. Subite la vizaĝeto ekbrilas, li liberigas sin de la patro kaj denove komencas salti kaj danci en la sunmakulo sur la verda tapiŝo kriante plenvoĉe:
 
 ”Jes ja! Mi ja tamen estis! Mi tamen estis, tion mi scias!”
 
 Li pensas ke la patro nur ŝercas al li. Tio ja estas evidente tro freneza! La servistinoj kelkfoje ŝerce blagis al li, kaj li pensas ke la patro faras kiel ili.
 
 Kaj li saltas kaj dancas en la sunbrilo.
-
-
-LA KISO
 
 
 POETOJ KAJ HOMOJ
@@ -870,9 +711,7 @@ Ne estis multe da homoj. Sur sofo vid-al-vide sidis episkopo Billing sola ĉe si
 
 La poeto kaj mi parolis pri poezio.
 
-”Diru, Gabriel”, mi demandis, ”kiel vi efektive faras verk-ante poemon? Mi celas la teknikon. Miaflanke mi faras jene: se mi ekzemple devas rimi je doloro, mi aranĝas liston en alfabeta ordo de ĉiuj imageblaj rimvortoj: amforo, Baltimo-ro, cenzoro kaj tiel plu ĝis zibelkoro. Poste mi trastrekas la evidente netaŭgajn rimojn, kaj inter la resto mi ĉiam trovas iun konvenan. Sed kompreneble, okaze iu rimo, kiun mi unue forstrekis kiel netaŭgan, montriĝas kapabla impresi surprize freŝe kaj originale kaj doni al la poemo novan turniĝon, pri 46
-
-LA KISO
+”Diru, Gabriel”, mi demandis, ”kiel vi efektive faras verk-ante poemon? Mi celas la teknikon. Miaflanke mi faras jene: se mi ekzemple devas rimi je doloro, mi aranĝas liston en alfabeta ordo de ĉiuj imageblaj rimvortoj: amforo, Baltimo-ro, cenzoro kaj tiel plu ĝis zibelkoro. Poste mi trastrekas la evidente netaŭgajn rimojn, kaj inter la resto mi ĉiam trovas iun konvenan. Sed kompreneble, okaze iu rimo, kiun mi unue forstrekis kiel netaŭgan, montriĝas kapabla impresi surprize freŝe kaj originale kaj doni al la poemo novan turniĝon, pri
 
 
 kiu mi origine ne pensis. Jen kion oni nomas inspiro. — ĉu ne ankaŭ vi faras tiel?”
@@ -893,9 +732,7 @@ Ducent kvindek mil. La tono per kiu tiuj vortoj prononciĝis estis kortuŝe seri
 
 ”Jen Max!” li diris.
 
-Efektive estis nia komuna amiko Max, juna poeto kun profunde filozofia inklino. Li haltis ĉe la pordo kaj skoltokule rigardis ĉirkaŭen, kvazaŭ serĉante iun. Li portis palton kaj ĉapelon, kaj akvo fluis de li. Ekvidante nin li distrite kapsignis 47
-
-LA KISO
+Efektive estis nia komuna amiko Max, juna poeto kun profunde filozofia inklino. Li haltis ĉe la pordo kaj skoltokule rigardis ĉirkaŭen, kvazaŭ serĉante iun. Li portis palton kaj ĉapelon, kaj akvo fluis de li. Ekvidante nin li distrite kapsignis
 
 
 — ni gestis al li veni al ni, sed li restis staranta kaj rigardis ĉirkaŭen per esploraj okuloj malantaŭ la okulvitroj.
@@ -915,9 +752,6 @@ Sed Max, kiu ŝajnis kontente surprizita de tio, ke lia bastono vere trafis iasp
 Sed la dikulo fine rekonsciiĝis. Li duone stariĝis, sed tuj bume refalis: ”Sinjoro! Kreteno! Kion vi permesas al vi? Mia nomo estas...”
 
 
-LA KISO
-
-
 Max surprizite rigardis lin, kvazaŭ li neniam antaŭe lin vidus. Eble li ankaŭ ne faris tion. Li komprenis nenion de la tuto, krom ke lmplete senmotive ofendas fremdulo, kaj ke li laŭ praaj leĝoj de honoro devas repagi per sama valuto.
 
 Li faris subliman geston de malestimo, kiu ŝajne forpuŝis la tutan kompanion:
@@ -935,9 +769,6 @@ La abscesoj jam estis ekster aŭdokapablo.
 ”Espereble ili ne mortigos lin ekstere”, diris Gabriel.
 
 Ni dumlonge atendadis maltrankvile. Max ne revenis. Mi timas, ke ili malrealigis lin.
-
-
-LA KISO
 
 
 ÅGE
@@ -962,12 +793,7 @@ La knabo efektive nomiĝis August, kiel la patro, sed li mem nomis sin Åge, kaj
 
 La hele bluaj okuloj aperis rondaj kaj rigidaj en la vireta vi-zaĝo, kaj la line pala hararo estis nekutime maldensa por kvarjarulo.
 
-Estis tago vaporanta kaj odoranta kaj floranta, tia tago kiu ne scias ĉu aparteni al printempo aŭ somero. Tago de la lasta maja semajno. Tago kun suno glimanta tra maldensaj nuboj kvazaŭ el ŝpinita silko. Longe for, el la plej malriĉa antaŭ-
-
-urbo de la ĉefurbo, oni aŭdis gurdon. i sonis malnove kaj eluzite. Krome ĝi devis esti tre antikva, ĉar ĝi ludis ’Ave Ma-ria’ de Gounod, kiun ludis ĉiuj gurdoj antaŭ tridek jaroj...
-
-
-LA KISO
+Estis tago vaporanta kaj odoranta kaj floranta, tia tago kiu ne scias ĉu aparteni al printempo aŭ somero. Tago de la lasta maja semajno. Tago kun suno glimanta tra maldensaj nuboj kvazaŭ el ŝpinita silko. Longe for, el la plej malriĉa antaŭurbo de la ĉefurbo, oni aŭdis gurdon. i sonis malnove kaj eluzite. Krome ĝi devis esti tre antikva, ĉar ĝi ludis ’Ave Ma-ria’ de Gounod, kiun ludis ĉiuj gurdoj antaŭ tridek jaroj...
 
 
 ”Kial vi ploras, panjo?” demandis la knabo.
@@ -995,12 +821,7 @@ Kaj ili fine venis al la tombo serĉita, tiu de la edzo kaj patro. ’Fr. Aug. B
 Li mem decidis ke estu tiel.
 
 
-LA KISO
-
-
-Kiam la juna vidvino rekonsideris sian sesjaran edzinecon, ŝi apenaŭ eĉ por si mem povis juĝi, ĉu ĝi estis feliĉa aŭ malfeli-
-
-ĉa. Ne pro amo ŝi akceptis lian manon, kiam li proponis ĝin al ŝi. ŝi tiam havis nur dudek tri jarojn, kaj rektoro Barcke precize la duoblon. ŝi akceptis lin por ekhavi hejmon. Li havis pezan humoron, kaj ilia kunvivado ne ĉiam estis facila por ŝi, sed ŝi faris la plejeble bonan el ĝi, kaj nun, kiam li jam preskaŭ jaron kuŝis entere, ŝi pensis pri li kun dankemo sed sen bedaŭro. Pro nenio ŝi povis riproĉi sin; eble tamen pro tio, ke ŝi neniam kuraĝis esti sincera al li, sed ŝi instinkte sentis, ke li ankaŭ ne ŝatus tion. Kaj kia estus la fino, se homoj subite ekestus reciproke sinceraj? Tiam oni ja entute ne povus elteni unu la alian!
+Kiam la juna vidvino rekonsideris sian sesjaran edzinecon, ŝi apenaŭ eĉ por si mem povis juĝi, ĉu ĝi estis feliĉa aŭ malfeliĉa. Ne pro amo ŝi akceptis lian manon, kiam li proponis ĝin al ŝi. ŝi tiam havis nur dudek tri jarojn, kaj rektoro Barcke precize la duoblon. ŝi akceptis lin por ekhavi hejmon. Li havis pezan humoron, kaj ilia kunvivado ne ĉiam estis facila por ŝi, sed ŝi faris la plejeble bonan el ĝi, kaj nun, kiam li jam preskaŭ jaron kuŝis entere, ŝi pensis pri li kun dankemo sed sen bedaŭro. Pro nenio ŝi povis riproĉi sin; eble tamen pro tio, ke ŝi neniam kuraĝis esti sincera al li, sed ŝi instinkte sentis, ke li ankaŭ ne ŝatus tion. Kaj kia estus la fino, se homoj subite ekestus reciproke sinceraj? Tiam oni ja entute ne povus elteni unu la alian!
 
 Kaj ŝi pensis plu: por ke du homoj povu esti sinceraj inter si, ili antaŭ ĉio estu proksimume samaĝaj. Kaj krome ili amu unu la alian. Kiel facile esti sincera, se oni pensas nur bonon kaj belon unu pri la alia!
 
@@ -1013,9 +834,6 @@ La knabo rigardis supren.
 ”ĉu do paĉjo nun povas flugi?” li demandis.
 
 La juna patrino staris enpense; ŝi ne sciis precize kiel respondi. ŝiaj buŝanguloj ektremis, kaj ŝi gapis al la tomboŝtono kvazaŭ serĉante respondon tie. ’Fr. Aug. Barcke’. ŝi imagis vidi lin flirtadi per du grandaj flugiloj serĉante siajn okul-vitrojn, kiujn li portis ŝovitaj supren al la frunto. Kion diri? ĉu provi klarigi al la infano, ke necesas aero por flugi, kaj ke aero apartenas al tero, ne al ’ĉielo’.
-
-
-LA KISO
 
 
 ”Jes”, ŝi fine diris, ”paĉjo sendube kapablas flugi, se li volas. Sed tio ne necesas. Se li deziras ion, li sendas anĝelon.”
@@ -1048,9 +866,6 @@ La juna vidvino sentis, ke ŝi forte ruĝiĝas.
 ”Panjo”, li subite diris, ”ni ja iros al Patrino sur altaĵo? Åge malsata!”
 
 
-LA KISO
-
-
 La patrino ne tuj aŭdis lin. ŝi troviĝis en siaj propraj pensoj.
 
 ”Jes, eta Åge”, ŝi fine diris. ”Sed unue ni iom promenos.
@@ -1071,17 +886,10 @@ Ili sekvis vojon laŭ la mallarĝa golfo, trans kiu ’la kastelo’
 
 — eta itala vilao — blankis en la verdo. Ili preterpasis la fon-ton de
 
-Haga kaj pasante trinkis el ĝia klara malvarma akvo. Dum ili trinkis el la fonto, malnovstila veturilo preterpasis kun ko-
-
-ĉero kaj lakeo. En la kaleŝo sidis eta maljunulino, kiu per deg-naj kapklinoj reciprokis imagitajn salutojn.
+Haga kaj pasante trinkis el ĝia klara malvarma akvo. Dum ili trinkis el la fonto, malnovstila veturilo preterpasis kun koĉero kaj lakeo. En la kaleŝo sidis eta maljunulino, kiu per deg-naj kapklinoj reciprokis imagitajn salutojn.
 
 
-Ili atingis bordon malglatan kaj rokan. La ondoj de Brunnsvi-ken malrapide plaŭdis kontraŭ la bordaj ŝtonoj, kaj vid-al-54
-
-LA KISO
-
-
-vide, apud Kräftriket kaj Albano, fabrikaj fumoj kviete ŝvebis ĉielen.
+Ili atingis bordon malglatan kaj rokan. La ondoj de Brunnsvi-ken malrapide plaŭdis kontraŭ la bordaj ŝtonoj, kaj vid-alvide, apud Kräftriket kaj Albano, fabrikaj fumoj kviete ŝvebis ĉielen.
 
 Ili sidis sur ŝtono, kiu formis naturan benkon. Åge ludis ĉe-borde per arboŝela boateto, kiun Helge tranĉis al li, kaj kiu forgesigis al li malsaton kaj lacecon.
 
@@ -1095,9 +903,7 @@ Li havis du ĉambrojn kun balkono plej supre subtegmente en domo kun vasta kaj l
 
 Dekomence li ne havis precizan intencon per sia kontak-to kun ŝi. Sed baldaŭ li rimarkis ke li ekardis, kaj ke estas serioze.
 
-Unu punkto tamen turmentis lin, maltrankviligis kaj konfuzis lin. ŝi unufoje edziniĝis — kaj neniel eblis, ke ŝi iam 55
-
-LA KISO
+Unu punkto tamen turmentis lin, maltrankviligis kaj konfuzis lin. ŝi unufoje edziniĝis — kaj neniel eblis, ke ŝi iam
 
 
 povus enamiĝi al tia viro, kia estis ŝia edzo. Rivalon li ne bezonis timi en la mortinto; tion li sentis. Sed — kiel ŝi kapablis?
@@ -1130,9 +936,7 @@ Kaj li diris, kiam ili revekiĝis:
 
 ”Nu bone, mi ne plu demandos vin pri tio. Des malpli ĉar tiuokaze mi devus fari la saman demandon al mia propra patrino — mia patrino, kiu estas morta kaj ne povas respondi.
 
-Iutage antaŭ nelonge mi serĉadis inter malnovaj leteroj. Mi 56
-
-LA KISO
+Iutage antaŭ nelonge mi serĉadis inter malnovaj leteroj. Mi
 
 
 trovis korespondadon inter miaj gepatroj el ilia gefianĉa tempo. Kaj de ĝi videblis — mi jam sciis tion, sed forgesis — ke mia patrino neniam amis mian patron. Foje ŝi eĉ rompis la fianĉecon, ĉar ŝi deziris iun alian. Sed mia patro havis la pli fortan volon. Li tamen fine ricevis ŝin — kaj aliokaze ŝi ne estus mia patrino! Sed ŝi amis lin neniam.”
@@ -1171,9 +975,6 @@ Ili kunfandiĝis en senfina kiso.
 ŝi ektremis pro leĝera frostiĝo. La suno malaperis malantaŭ nubo, kaj ne plu estis varme.
 
 
-LA KISO
-
-
 ”Sed kie estas Åge?” ŝi demandis.
 
 Kaj ŝi vokis: ”Åge!”
@@ -1208,17 +1009,9 @@ La arboŝela boato.
 
 Li malsupreniris por kapti ĝin. Jes, ĝi estis la sama boateto kiun li mem tranĉis antaŭ apenaŭ duonhoro.
 
-Granita roko deklive enakviĝis, kaj proksime apude kuŝis restaĵoj de glacitavolo. La vintro estis longa kaj severa, la prin-58
-
-LA KISO
-
-
-tempo alvenis malfrue kaj subite, kaj ĉe tiu ĉi kruta arbara bordo rigardanta norden, kie la suno neniam varmigis la ak-vorandon, restis tiu lasta ŝrumpinta, malpura glacipeco. Li rompis sekan branĉon de alno kaj singarde forŝovis la glacion.
+Granita roko deklive enakviĝis, kaj proksime apude kuŝis restaĵoj de glacitavolo. La vintro estis longa kaj severa, la printempo alvenis malfrue kaj subite, kaj ĉe tiu ĉi kruta arbara bordo rigardanta norden, kie la suno neniam varmigis la ak-vorandon, restis tiu lasta ŝrumpinta, malpura glacipeco. Li rompis sekan branĉon de alno kaj singarde forŝovis la glacion.
 
 Tie kuŝis la eta Åge, surdorse, kun okuloj kaj buŝo malfer-mitaj. La vergon, per kiu li direktis la arboŝelan boaton, li ankoraŭ tenis per firma pugneto.
-
-
-LA KISO
 
 
 SIGNE
@@ -1237,12 +1030,7 @@ Sed Signe ege plaĉis al mi. Mi povis pensadi pri ŝi dum tuta tago. Ne malofte 
 
 Kie ŝi loĝis mi ne scias certe. Ne en la sama domo kiel ni; la aliaj infanoj, kun kiuj mi ludadis, ne konis ŝin. Sed ŝi sendube loĝis ĉe la sama strato — mi pensas — en dometo kun
 
-ĝardeno trans iu tabulbarilo. Aŭ ĉu ŝi loĝis en subtegmente-60
-
-LA KISO
-
-
-jo, oblikve trans la strato, kun floroj sur la fenestrobreto? —
+ĝardeno trans iu tabulbarilo. Aŭ ĉu ŝi loĝis en subtegmentejo, oblikve trans la strato, kun floroj sur la fenestrobreto? —
 
 Mi same bone povas tuj rakonti: nenie ŝi loĝis. ŝi vivis nur en mia fantazio.
 
@@ -1262,9 +1050,7 @@ Mi sendube pentis sed ne volis
 
 peti pardonon, kaj baldaŭ mi fajfis pri ŝi. Samtempe mi lernis pensi mallaŭte — kaj kun raraj esceptoj daŭrigis tiun kutimon.
 
-Sed de kie mi efektive akiris tiun Signe? En nia domo loĝis 61
-
-LA KISO
+Sed de kie mi efektive akiris tiun Signe? En nia domo loĝis
 
 
 knabineto, kun kiu mi foje ludis. ŝia panjo estis baletistino, kaj unufoje ŝi vestis sin per unu el la rozaj baletjupoj de sia patrino. Sed ŝia nomo estis nek Signe nek Ida, ŝi ne faris bu-baĵojn kaj havis neniom el la magia potenco de Signe super mia koro. Sendube mi do sepjara kreis Signe proksimume kiel germano desegnas kamelon: aus der Tiefe meines Bewusstse-ins.*
@@ -1280,16 +1066,11 @@ Ankoraŭ mi ne sukcesis, sed kial rezigni la esperon?
 *) Germane: ’el la profundo de mia konscio’, laŭ Heinrich Heine, 1797-1856
 
 
-LA KISO
-
-
 TOMBEJA ARABESKO
 
 (1924)
 
-En unu malfruaŭtuna tago antaŭ multe da jaroj — tio cetere okazis meze de la milito — mi promenis kun Hen-
-
-ning Berger sur Kopenhaga tombejo. Antaŭ cent jaroj ĝi situis en plena kamparo, longe ekster la urbaj digoj kaj fosaĵoj, hodiaŭ ĝi etendiĝas kiel granda oazo, verda kaj kvieta, meze de tumulta urbega kvartalo, inter magazenoj, fabrikoj kaj labo-ristaj domegoj.
+En unu malfruaŭtuna tago antaŭ multe da jaroj — tio cetere okazis meze de la milito — mi promenis kun Henning Berger sur Kopenhaga tombejo. Antaŭ cent jaroj ĝi situis en plena kamparo, longe ekster la urbaj digoj kaj fosaĵoj, hodiaŭ ĝi etendiĝas kiel granda oazo, verda kaj kvieta, meze de tumulta urbega kvartalo, inter magazenoj, fabrikoj kaj labo-ristaj domegoj.
 
 Ni malrapide promenis inter altaj, maldikaj poploj en senfina aleo. Iam-tiam ni haltis por legi la nomojn kaj skribojn de tomboŝtonoj.
 
@@ -1306,9 +1087,6 @@ Estis juna heroo nuda kun kasko kaj glavo kaj virŝafa felo surbrake.
 ”Jazono kun la ora felo.”
 
 ”Nu, tiuokaze sendube tie ripozas tanisto.”
-
-
-LA KISO
 
 
 Ni legis la tomboskribon. Estis tanisto.
@@ -1332,9 +1110,6 @@ Mi laŭ kapablo provis kapti la similecon inter la sepdekjara veterinara profeso
 ”Vi ja neniam kapablas vidi similecon same kiel mi”, li murmuris, malluma kaj nuba kiel la ĉirkaŭa aŭtuno.
 
 (Mi sciis, ke la spirito de Saul kutime ekregis lin ĉiufoje kiam li pensis pri Böök. Tio komenciĝis kiam Böök, kiu pli frue recenzis liajn verkojn sufiĉe bonvole, subite mortigis ro-manon, pri kiu Berger havis grandan esperon. i aperis tiel malfrue, ke Böök ne havis tempon tralegi ĝin en la kristnaska urĝo, sed nur iom foliumis ĝin, divenis la finon — sed misdi-venis! — kaj poste malaprobis la libron pro la triviala kaj ba-nala fino, kiun li do mem eltrovis. Kaj poste li pro konsekven-co daŭrigis laŭ la sama tonalo skribante pri Berger.)
-
-
-LA KISO
 
 
 ”Cetere, vi efektive kulpas pri tio!” li subite eksplodis.
@@ -1363,12 +1138,7 @@ Oni povus kredi, ke vi deliras!”
 
 ”Kompreneble! Mi neniam intencis ion alian! Ni trompos tiun diablon!”
 
-Ekpluvis, unue delikata pluveto, kiun ni apenaŭ rimarkis, sed subite ĝi transformiĝis en pluvegon. Ni decidis serĉi ŝir-65
-
-LA KISO
-
-
-mon en la pordego de tomba kapelo; la pordoj estis malfer-mitaj. uste tiam okazis en ĝi entombigo; la ceremonio ĵus komenciĝis per ĉantado kaj orgena ludado. ’Feliĉa, feliĉa!’
+Ekpluvis, unue delikata pluveto, kiun ni apenaŭ rimarkis, sed subite ĝi transformiĝis en pluvegon. Ni decidis serĉi ŝirmon en la pordego de tomba kapelo; la pordoj estis malfer-mitaj. uste tiam okazis en ĝi entombigo; la ceremonio ĵus komenciĝis per ĉantado kaj orgena ludado. ’Feliĉa, feliĉa!’
 
 Trans la pordo staris servanto, kiu donis al ĉiu el ni ekzemp-leron de presaĵo kun la nomo de la mortinto en nigra kadro kaj kun la teksto de la himnoj kantotaj.
 
@@ -1385,9 +1155,6 @@ La parolado de la pastro estis mallonga, sed longaj estis la himnostrofoj, kaj a
 Henning Berger iom embarasiĝis.
 
 ”Mi apenaŭ kuraĝas tion”, li diris. ”Mi nenion preparis.”
-
-
-LA KISO
 
 
 ”Ne gravas”, diris la gemuta dano, ”sendube vi povos ion diri! Oni sentas tian mankon kaj malriĉon, se neniu ion diras ĉetombe. Kaj sendube neniu alia tion faros.”
@@ -1409,9 +1176,6 @@ Sed ne Kristina! Mi scias, ke ŝi vivas! Kiel vera kristanino vi eniris en la et
 Humidaj okuloj kaj varmaj manpremoj premiis la parolinton, kiam li venis malsupren. La pastro dankis lin kun kole-ga estimo pro la bela simboleco, kiun li atribuis al la tri nomoj, kiuj povas ŝajni tiel vulgaraj...
 
 Kaj eĉ mi, maljuna pekanto, iomete kortuŝiĝis.
-
-
-LA KISO
 
 
 www.omnibus.se/

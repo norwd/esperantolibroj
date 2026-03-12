@@ -20,71 +20,71 @@ ENHAVO
 
 LIBRO UNU
 
-Ĉapitro 1: Lago Sarn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 5
+Ĉapitro 1: Lago Sarn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Informi la abelojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 9
+Ĉapitro 2: Informi la abelojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: Pru liveras invitilojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 19
+Ĉapitro 3: Pru liveras invitilojn . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Torĉoj kaj rosmarenoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 23
+Ĉapitro 4: Torĉoj kaj rosmarenoj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Falas la unua garbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 30
+Ĉapitro 5: Falas la unua garbo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: “Selu viajn revojn antaŭ ol rajdi ilin.” . . . . . . . . . . . . . . . . . . 38
+Ĉapitro 6: “Selu viajn revojn antaŭ ol rajdi ilin.” . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: Pomarboj kaj ĵargoneloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 45
+Ĉapitro 7: Pomarboj kaj ĵargoneloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO DU
 
-Ĉapitro 1: Rajdo al la foiro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 51
+Ĉapitro 1: Rajdo al la foiro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: *Kruĉo da Cidro * . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 61
+Ĉapitro 2: *Kruĉo da Cidro * . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: “Aŭ morti penante” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 69
+Ĉapitro 3: “Aŭ morti penante” . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: La sorĉisto de Plash . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 75
+Ĉapitro 4: La sorĉisto de Plash . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Ŝpinamfesto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 80
+Ĉapitro 5: Ŝpinamfesto . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: Ludo *Multekostaj Koloroj* . . . . . . . . . . . . . . . . . . . . . . . . . . . . 86
+Ĉapitro 6: Ludo *Multekostaj Koloroj* . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: “La Mastro ĉeestas”. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 96
+Ĉapitro 7: “La Mastro ĉeestas”. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 8: Alvoki Veneran . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 101
+Ĉapitro 8: Alvoki Veneran . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 9: Konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 106
+Ĉapitro 9: Konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO TRI
 
-Ĉapitro 1: Dungfoiro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 117
+Ĉapitro 1: Dungfoiro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Taŭroludo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 127
+Ĉapitro 2: Taŭroludo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: “Plej bona alta skribo kun ornamoj” . . . . . . . . . . . . . . . . . . 136
+Ĉapitro 3: “Plej bona alta skribo kun ornamoj” . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Jancis forkuras . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 148
+Ĉapitro 4: Jancis forkuras . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Libeloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 168
+Ĉapitro 5: Libeloj . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 LIBRO KVAR
 
-Ĉapitro 1: Rikolto hejmestas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 177
+Ĉapitro 1: Rikolto hejmestas . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 2: Beguildy serĉas sepan infanon . . . . . . . . . . . . . . . . . . . . . . . 193
+Ĉapitro 2: Beguildy serĉas sepan infanon . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 3: Veneno mortiga . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 209
+Ĉapitro 3: Veneno mortiga . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 4: Dum maja mateno. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 220
+Ĉapitro 4: Dum maja mateno. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 5: Lasta konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 235
+Ĉapitro 5: Lasta konkroludo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 6: La lago tremas. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 244
+Ĉapitro 6: La lago tremas. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-Ĉapitro 7: Malfermu pordojn ĉielvaste . . . . . . . . . . . . . . . . . . . . . . . . . 254
+Ĉapitro 7: Malfermu pordojn ĉielvaste . . . . . . . . . . . . . . . . . . . . . . . . .
 
-*Glosoj *. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 258
+*Glosoj *. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
-*Proksimuma prononco de la anglalingvaj nomoj* . . . . . . . . . . . . . . . . . 259
+*Proksimuma prononco de la anglalingvaj nomoj* . . . . . . . . . . . . . . . . .
 
 
 *Neniu miru*
@@ -345,9 +345,7 @@ staras antaŭ la suno.
 
 1 Biblicitaĵo. En la Biblio la esprimo signifis ke oni ne klare komprenas.
 
-Sed en populara uzado ĝi eksignifis vidi neklare.—Pru tre ofte uzas bibli-
-
-citaĵojn kaj -aludojn en sia rakonto.
+Sed en populara uzado ĝi eksignifis vidi neklare.—Pru tre ofte uzas biblicitaĵojn kaj -aludojn en sia rakonto.
 
 
 Ĉapitro 2: Informi la abelojn
@@ -2874,9 +2872,7 @@ pezajn por vi.”
 
 “Ne estas multaj tiaj.”
 
-“Kiam vi jam prizorgis la kortobirdojn kaj kaptilojn, metu du-
-
-tri retojn en la lagon. Mi plu devas segadi.”
+“Kiam vi jam prizorgis la kortobirdojn kaj kaptilojn, metu dutri retojn en la lagon. Mi plu devas segadi.”
 
 21 Specio de piroj.
 
@@ -5427,9 +5423,7 @@ multaj tagoj antaŭ ol ili anonciĝos enkirke.”
 
 ke la bebo similos Gideonon aŭ ŝin?”
 
-Mi diris ke mi ne povas profeti, sed mi kredas ke ĝi samos-
-
-similos sian paĉjon.
+Mi diris ke mi ne povas profeti, sed mi kredas ke ĝi samossimilos sian paĉjon.
 
 27 Laŭ la Biblio, post la morto de Jesuo Kristo liaj disĉiploj kungrupiĝis
 
@@ -7165,9 +7159,7 @@ mem. Mi diris, ĉu li subtenos Skviron, dum la voĉdontempo,
 
 malgraŭ kion diris Fraŭlino Dorabella.
 
-“Jes, mi ne dubas ke mi devas. Li havas multe da tritiko-
-
-kampoj, neniam li permesos malaltiĝon de prezoj.”
+“Jes, mi ne dubas ke mi devas. Li havas multe da tritikokampoj, neniam li permesos malaltiĝon de prezoj.”
 
 “Kaj kiam vi ĉesos plugi?”
 
@@ -7465,9 +7457,7 @@ kantis al mi. Estis plaĉege laŭiri ruĝan sulkon dum la soko forte
 
 entranĉis rigidan teron kaj arĝente brilis. Estis bele rigardi la
 
-bluajn montetojn de Lullingford, kaj inter ili kaj mi vidi la kverk-
-
-kaj larik- kaj salik-arbarojn burĝonantajn, kvazaŭ varma vento
+bluajn montetojn de Lullingford, kaj inter ili kaj mi vidi la kverkkaj larik- kaj salik-arbarojn burĝonantajn, kvazaŭ varma vento
 
 blovis el tie kaj vokis la foliojn. Ankaŭ estis agrable rigardi la
 
@@ -7982,9 +7972,7 @@ melkistinojn, kaj mi aŭdis ke ŝi bezonas novan ĉijare.”
 
 Gideon parolis triumfoplenece.
 
-“Ĉe tiom granda bieno oni dungas la teksiston ĉiu-unu--du-
-
-monate. Teksisto povos skribi por Jancis.”
+“Ĉe tiom granda bieno oni dungas la teksiston ĉiu-unu--dumonate. Teksisto povos skribi por Jancis.”
 
 “Kio?” mi diras spasmospire, sciante ke mi diros tiun nomon.
 
@@ -12908,9 +12896,7 @@ tutcerte.”
 
 “Ho, aĥ! Mi ja vere ŝvitis,” krias la oldulo, tre kontenta.
 
-“Kaj nun ni ĝuadas bonajn manĝon kaj trn, kaj poste unu-
-
-du ludojn—”
+“Kaj nun ni ĝuadas bonajn manĝon kaj trn, kaj poste unudu ludojn—”
 
 “La popolo sidiĝis por manĝi kaj trinki kaj ili leviĝis por ludi,
 
@@ -13680,9 +13666,7 @@ noktoĉemizo.
 
 Mi sobkuris la ŝtuparon kaj eksteren, kaj tiam mi vidis. Mi
 
-pensis ke eĉ la fino de la mondo estus pli elportebla ol tio, ĉar tiu-
-
-okaze ni estus prizorgataj sen pliaj rikoltoj farendaj kaj sen mono
+pensis ke eĉ la fino de la mondo estus pli elportebla ol tio, ĉar tiuokaze ni estus prizorgataj sen pliaj rikoltoj farendaj kaj sen mono
 
 gajnenda per doloro kaj laboro. Estus same por ĉiuj en tiu horo, sed
 
@@ -13773,9 +13757,7 @@ somera tritiko, kiam Gideon kaj mi paŝis tien kaj reen sur la
 
 kampoj kun sakoj da semoj sur la ŝultroj, aŭ kun profunda ronda
 
-kovrilo povanta enteni sufiĉajn semojn por unu tien-kaj-reen-
-
-transiro de la kampo, kaj ni larĝe svingis niajn brakojn laŭ granda,
+kovrilo povanta enteni sufiĉajn semojn por unu tien-kaj-reentransiro de la kampo, kaj ni larĝe svingis niajn brakojn laŭ granda,
 
 donema movo, kvazaŭ ni nutras la tutan mondon, kaj tion mi
 
@@ -16004,9 +15986,7 @@ fortigi sian propran koron. Mi vere kredas ke eĉ tiam estis semo de
 
 *Veneno Kara*
 
-amo en li, kaj sen Tivvy ĝi eble elkreskus kaj florus. Mi neniam ha-
-
-hezitis, do mi alpaŝis Gideonon kaj diris—
+amo en li, kaj sen Tivvy ĝi eble elkreskus kaj florus. Mi neniam hahezitis, do mi alpaŝis Gideonon kaj diris—
 
 “Tivvy diras ke vi donis venenon al Patrino. Ĉu vero?”
 
@@ -17873,9 +17853,7 @@ Poste Kester iris al Huglet kaj diris—
 
 povis aŭdi vin kriaĉi eĉ ĝis Plash. Ĉu vi luktos?”
 
-Nu kvankam li estis tre granda, Huglet ne volis lukti. Li ŝin-
-
-ŝanceliĝis, ĉar li sciis ke Kester estas tre lerta luktisto. Sed multaj
+Nu kvankam li estis tre granda, Huglet ne volis lukti. Li ŝinŝanceliĝis, ĉar li sciis ke Kester estas tre lerta luktisto. Sed multaj
 
 rigardantoj sciis nenion pri Kester, kaj ne gravus al ili se ili ja
 
@@ -18023,15 +18001,6 @@ Kaj dirinte tiun vortojn li klinis sian belan kapon kaj kisis min
 
 trafe sur la buŝo.
 
-·
-
-·
-
-·
-
-·
-
-·
 
 *Nun finiĝis la* *historio de Prudence Sarn. *
 
@@ -18195,9 +18164,7 @@ La simbolo ı indikas tre mallongan i.
 
 Akcentu ĉiam la unuan silabon.
 
-Nomoj ne en la listo estas prononceblaj kiel normalaj Esperanto-
-
-vortoj.
+Nomoj ne en la listo estas prononceblaj kiel normalaj Esperantovortoj.
 
 Listo kompilita laŭ konsiloj de Trevor Steele.
 

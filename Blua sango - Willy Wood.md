@@ -3,24 +3,15 @@ Willy Wood
 Blua sango
 
 
-### 1
-
 BLUA SANGO
 
 
 Billy Wood
 
-BLUA SANGO
 
 Tradukis Willy van Zoest
 
 Skanis kaj tekstigis Miroslav Malovec
-
-
-@omnibus.se
-
-
-BLUA SANGO
 
 
 ĉapitro unua
@@ -35,11 +26,7 @@ Dum ses tagoj, matene kaj vespere aperis tiu anonco en la gazetoj, sed la libris
 
 —ĉu kvar? Estas nur malmulte. Nu, eble estas iu tre bona inter ili. Ni vidos.
 
-ŝi metis, helpate de la maljuna, kalva libristo, la leterojn en brunledan sakon, kiu maldekstre estis fiksita al la antaŭa flanko de ŝia selo kaj trotis kviete tra la silenta vilaĝeto al la larĝa, polva vojo. ĉi tie, en la radsulko, ŝi ekpikis sian ĉevalon per la sprono kaj galopis laŭlonge de la vojo, la rajdbastonon elegante kun la banto sur la nuko de la gracia besto, tre trankvila, kantetante laŭ-
-
-takte de la galopiro. Hodiaŭ ŝi iom malfruis: eble paĉjo jam sidas ĉetable kaj tion ŝi ne tre ŝatus. Barono d’Hain-3
-
-BLUA SANGO
+ŝi metis, helpate de la maljuna, kalva libristo, la leterojn en brunledan sakon, kiu maldekstre estis fiksita al la antaŭa flanko de ŝia selo kaj trotis kviete tra la silenta vilaĝeto al la larĝa, polva vojo. ĉi tie, en la radsulko, ŝi ekpikis sian ĉevalon per la sprono kaj galopis laŭlonge de la vojo, la rajdbastonon elegante kun la banto sur la nuko de la gracia besto, tre trankvila, kantetante laŭtakte de la galopiro. Hodiaŭ ŝi iom malfruis: eble paĉjo jam sidas ĉetable kaj tion ŝi ne tre ŝatus. Barono d’Hain-3
 
 
 quart nepre deziris, ke lia filino kun la du servistoj lin atendu en la manĝsalono, kiam li venas por tagmanĝi.
@@ -61,9 +48,6 @@ Oni do aŭdis ŝin hejme. Se oni nun kelkajn minutojn volas prokrasti la alporta
 Lama Dirk aspektis tre malgaja.
 
 
-BLUA SANGO
-
-
 —Kio estas al vi, Dirk?
 
 —Nenio, fraŭlino, nenio … nur ke la ŝoforo foriris!
@@ -72,9 +56,7 @@ BLUA SANGO
 
 —Jes, sed li hodiaŭ matene rompfinis la laboron, kaj nun ankaŭ mi ne plu povas fari ion bonan ĉe la barono.
 
-La fraŭlino silentis. ŝi suprenkuregis al la ĉambro-
-
-ĝardeno kun la kvar leteroj en unu kaj la rajdbastono en la alia mano. ŝi sciis, ke ŝia patro tie ĉiam konsumas sian
+La fraŭlino silentis. ŝi suprenkuregis al la ĉambroĝardeno kun la kvar leteroj en unu kaj la rajdbastono en la alia mano. ŝi sciis, ke ŝia patro tie ĉiam konsumas sian
 
 ”apetitigilon”. Tion li jam dum jaroj faris: ŝia mortinta patrino tion kutimigis al li, kiam ili ankoraŭ loĝis en sia kastelo en la Ardenoj. ŝi nun komprenas, kial ŝia patrino enkondukis tiun kutimon; ŝi volis per tio estigi la baronon dum momento tute sola, ĉar lia humoro dum la lastaj jaroj fariĝis neelportebla. ŝi ankoraŭ ne estis sur la sojlo, kiam ŝi jam aŭdis sian patron furiozi kontraŭ unu el la servistoj:
 
@@ -86,16 +68,12 @@ La fraŭlino silentis. ŝi suprenkuregis al la ĉambro-
 
 —Jen estas la fraŭlino, sonis la voĉo de lia filino.
 
-La barono faris signon al la servisto, ke li foriru kaj turnis sin tiam al sia filino: 5
-
-BLUA SANGO
+La barono faris signon al la servisto, ke li foriru kaj turnis sin tiam al sia filino:
 
 
 —Maleine, tiu laŭvola tagdivido via min ĝenas terure.
 
-Tio de nun devas esti absolute finita. Mi ne toleras revolucion en mia domo. Estas kvarono antaŭ la sepa kaj vi scias, ke mi ordonis alporti la manĝon precize je la sesa kaj duono. Se vi denove agos kontraŭ la mastruma regu-lado, fiksita de via patro, mi devos fari severajn aran-
-
-ĝojn.
+Tio de nun devas esti absolute finita. Mi ne toleras revolucion en mia domo. Estas kvarono antaŭ la sepa kaj vi scias, ke mi ordonis alporti la manĝon precize je la sesa kaj duono. Se vi denove agos kontraŭ la mastruma regu-lado, fiksita de via patro, mi devos fari severajn aranĝojn.
 
 —Paĉjo, vi pravas, pravegas …
 
@@ -108,9 +86,6 @@ Tio de nun devas esti absolute finita. Mi ne toleras revolucion en mia domo. Est
 —Nu, paĉjo, tiam feliĉe estas, ke anoncis sin kvar in-teresatoj.
 
 —Ho, kvar leteroj por dekdu anoncoj en ok gazetoj! Ili estas tre favoraj, tre inklinaj, tiuj sinjoroj ŝoforoj. Pro tio mi donas al ili aparte starantan domon, uniformon kaj mil ducent guldenojn!
-
-
-BLUA SANGO
 
 
 Kaj barono d’Hainquart per kolera ektiro tranĉis sian kroketon.
@@ -126,9 +101,6 @@ Kaj ŝi paŝetis el la manĝosalono, afable postrigardata de la tablo-servisto, 
 Unu minuto iĝis ses minutoj. Tiam aperis Maleine en malhelverda, roze-borderita robo, kaj denove servis al sia patro la kroketojn. ŝi sciis, ke ŝi povas rekonduki lin en lian bonhumoron per bongustaj manĝaĵoj kaj trinkaĵoj, kaj lerte profitis tion. Feliĉe la manĝaĵoj estas hodiaŭ neordinare delikataj, kaj kiam la likvoro post la kafo estis servita en la ĉambroĝardeno, ŝi montris la leterojn.
 
 —ĉu vi ne volas legi ilin, paĉjo? ŝi demandis.
-
-
-BLUA SANGO
 
 
 Barono d’Hainquart indiferente akceptis la koverton, malfermis la leterojn unu post la alia, sed montris nenian intereson. Nur la lasta ŝajnis lin forte interesi.
@@ -149,9 +121,7 @@ por tiu, kiun mi al vi rekomendas. Se vi lin en vian servon akceptas, mi povas g
 
 —Paĉjo, diris Maleine, tio estas bonŝanco. Vi nun scias certe, ke vi povas akiri iun, kiu servis ĉe nobelulo. ĉu vi konas la nomon de Verd’Ile?
 
-—Atendu, diris d’Hainquart, mi kredas, ke mi memoras tiun nomon. Mi kredas, ke iam mi legis, ke lia filo 8
-
-BLUA SANGO
+—Atendu, diris d’Hainquart, mi kredas, ke mi memoras tiun nomon. Mi kredas, ke iam mi legis, ke lia filo
 
 
 mortis akcidente dum la ĉasado aŭ ion tian, kaj ke nun per tio formortos post lia morto la tuta generacio de Verd’Ile.
@@ -160,15 +130,11 @@ mortis akcidente dum la ĉasado aŭ ion tian, kaj ke nun per tio formortos post 
 
 —Tio estos necesa, mi ne plu deziras nederlandanon aŭ belgon, kaj la tri aliaj leteroj ne promesas ion bonan al mi. Rigardu, kia skribo: aspektas ja, kvazaŭ skribita per alumeto tiel maleleganta kaj malklara. Respondu al tiu grafo de Verd’Ile, ke lia protektato povas sin prezentiĝi proksiman lundon — je miaj kostoj, sen ia devigo mia- aŭ siaflanke.
 
-—ĉu vi venigus lin jam lunde? Vi ne antaŭ dimanĉ-
-
-vespere revenos el Edinburgh.
+—ĉu vi venigus lin jam lunde? Vi ne antaŭ dimanĉvespere revenos el Edinburgh.
 
 —Proponu, ke li venu mardon, kaj skribu en la letero al tiu Longeois, ke li devas prepari sin resti tie ĉi definitive, se li plaĉos al mi. Mi scias, ke oni en Eikershof kaj ĉe moŝto de Riemer kaŝridas, ĉar mi denove estas sen ŝoforo.
 
-La sekvantan tagon kaj ankoraŭ kelkajn tagojn estis festo en la bieno ”La Blua Bero”, ĉar la barono estis foririnta por kvar tagoj al Skotlando. Clement, la maljuna servisto, estis nun la mastro kaj preskaŭ ne sukcesis mallaŭtigi la bruon de la cetera servistaro. La kuiristino, la du ĉambristinoj, la pli juna tablo-servisto kaj la lama 9
-
-BLUA SANGO
+La sekvantan tagon kaj ankoraŭ kelkajn tagojn estis festo en la bieno ”La Blua Bero”, ĉar la barono estis foririnta por kvar tagoj al Skotlando. Clement, la maljuna servisto, estis nun la mastro kaj preskaŭ ne sukcesis mallaŭtigi la bruon de la cetera servistaro. La kuiristino, la du ĉambristinoj, la pli juna tablo-servisto kaj la lama
 
 
 Dirk … ili kantis kaj dancis kaj petolis tiel tumulte en la subteretaĝo, ke Clement riproĉe diris:
@@ -195,9 +161,7 @@ Dirk … ili kantis kaj dancis kaj petolis tiel tumulte en la subteretaĝo, ke C
 
 —Li estas tute enamiĝinta.
 
-—Se mi estus juna, kaj se mi estus nobelulo, kaj se mi havus monon … kiel buldogo mi kuŝiĝus antaŭ ŝia pordo; nun eble estos al mi permesate verŝi la vinon kiam 10
-
-BLUA SANGO
+—Se mi estus juna, kaj se mi estus nobelulo, kaj se mi havus monon … kiel buldogo mi kuŝiĝus antaŭ ŝia pordo; nun eble estos al mi permesate verŝi la vinon kiam
 
 
 ŝi edziniĝos, diris Clement, kaj tio jam plene sufiĉas por sesdek-unu-jara maljunulo.
@@ -220,9 +184,7 @@ Tiam Clement kredis, ke li devas montri sian aŭtori-taton:
 
 Fraŭlino Maleine dum momento tre serioze rigardis, dirante:
 
-—Mi bone povas kompreni, ke vi faras ekscesojn, ĉar la barono forestas, sed tio jam daŭras tri tagojn. Nun 11
-
-BLUA SANGO
+—Mi bone povas kompreni, ke vi faras ekscesojn, ĉar la barono forestas, sed tio jam daŭras tri tagojn. Nun
 
 
 sufiĉas! Zorgu nun, ke paĉjo ne havos kialojn por plendi, kiam li revenos. Hodiaŭ vespere revenos paĉjo kaj la ŝoforloĝejo ankoraŭ ne estas preta. Mi ne foriros, antaŭ ol vi promesis al mi, ke tiu loĝejo estos purigita.
@@ -236,9 +198,6 @@ Ke ŝia patro ne riskis la transiron en tia nebulego ŝi trovis tre ŝaĝe, sed 
 —Frits, ne necesas jungi la ĉevalojn hodiaŭ vespere, la barono venos morgaŭ.
 
 Sed barono d’Hainquart ne venis la sekvantan tagon kaj proksimume je la dua alvenis Eugène Longeois. Maleine ordonis al Clement enirigi lin en la malgrandan salonon kaj iris viziti lin tie. Longeois sidis sur seĝo kun sia valizeto apud si sur la planko. Li estis vestita en mallonga, griza drapkitelo kun malhelgriza peltkolumo kaj li havis nigran rajdistan pantalonon kun brunaj tiblingoj.
-
-
-BLUA SANGO
 
 
 Tuj kiam li vidis enveni la nobelan fraŭlinon, li ekstaris, deprenis sian malhelbrunan ledan ĉapon kaj diris ete riverencante:
@@ -260,9 +219,6 @@ Tuj kiam li vidis enveni la nobelan fraŭlinon, li ekstaris, deprenis sian malhe
 —Jes, nobela fraŭlino. Mi naskiĝis en Provence, sed miaj gepatroj loĝis longan tempon en Alĝerio. Mia patrino estis purrasa alĝerianino.
 
 —ĉu vi estas bona rajdisto?
-
-
-BLUA SANGO
 
 
 Longeois ridetis kaj kapjesis:
@@ -293,9 +249,7 @@ Longeois ridetis kaj kapjesis:
 
 —Dankon, mi vere ne malsatas.
 
-Fraŭlino Maleine foriris kaj Longeois sekvis Clement al la parko, kie situis la staloj kaj la garaĝo. Malantaŭ 14
-
-BLUA SANGO
+Fraŭlino Maleine foriris kaj Longeois sekvis Clement al la parko, kie situis la staloj kaj la garaĝo. Malantaŭ
 
 
 tiuj, en malgranda svisa pavilono, konstruita duone el briko, duone el dika, malhela ligno, estis la ĉambroj, de-stinitaj por la ŝoforo. Tuj malantaŭ ĝi troviĝis kvadrata konstruajo, el armita cemento, kiu donis eniron per fera pordo al la laborejo de la pavilono. i estis la gardejo por benzino.
@@ -306,12 +260,7 @@ Clement kapjesis signifoplene, kiam la fraŭlino ordonis al li gvidi la novulon.
 
 Iru kun mi kaj rigardu.
 
-Li kontaktigis la elektran lumon kaj nun Longeois vidis paron da belegaj alzanuloj, cinamkoloraj kun blan-15
-
-BLUA SANGO
-
-
-kega vosto. Li tuj vidis, ke tie staras multekosta, malof-tega duo kaj demandis:
+Li kontaktigis la elektran lumon kaj nun Longeois vidis paron da belegaj alzanuloj, cinamkoloraj kun blankega vosto. Li tuj vidis, ke tie staras multekosta, malof-tega duo kaj demandis:
 
 —ĉu la barono mem tiujn surrajdas?
 
@@ -335,14 +284,9 @@ kega vosto. Li tuj vidis, ke tie staras multekosta, malof-tega duo kaj demandis:
 
 —Iru, amiko, sed baldaŭ, alie mallumiĝos. Ankaŭ demandu, ĉu al mi estas permesata rajdi sur tiu herbejo.
 
-La maljuna Clement foriris kaj trairante la subtereta-
-
-ĝon, li vokis al la servistinoj en la kuirejo:
+La maljuna Clement foriris kaj trairante la subteretaĝon, li vokis al la servistinoj en la kuirejo:
 
 —Jen iu volas nepre rompi al si la ripojn, li surrajdos la alzanulojn! Ankaŭ frenezuloj estas homoj. Li prefere rampu en la benzinejon!
-
-
-BLUA SANGO
 
 
 Fraŭlino Maleine estis respondanta kelkajn al sia patro senditajn leterojn. ŝi tuj ĉesis, kiam Clement rapor-tis la peton de la nova ŝoforo:
@@ -351,32 +295,23 @@ Fraŭlino Maleine estis respondanta kelkajn al sia patro senditajn leterojn. ŝi
 
 Clement reiris, sed la averto de la nobelino Maleine estis superflua. Longeois estis deĵetinta sian ĉapon, de-metinta sian surtuton kaj nun iris nudkape en hel-bruna superĉemizo, apud unu el la ĉevaloj, kiun li, kun la enbuŝaĵo kaj kun simpla ĉevaltuko sur la dorso, estis el-kondukinta el la stalo. Clement transdonis al li la rajdbastonon kaj samtempe la alzanulo malantaŭen saltis, kapskuante ektiris la bridon kaj ekstaris sur la postaj kruroj, Jen la spektaklo komenciĝis!
 
-Clement enkuregis la kaleŝejon, ĉar tiu bela Reginald I jam antaŭe iam mordis lin en la supra parto de la brako. Longeois kviete ellasis la bridon, turnis sin ĉirkaŭ la alzanulo, devigis ĝin paŝi malantaŭen al la vasta herbejo antaŭ la postteraso de la bieno. Kaj tie supre, malantaŭ la altaj duoblaj balkonpordoj staris Maleine kaj sekvis atentege la movojn de la nova ŝoforo, tiel ke tiu ĉi ne povis ŝin vidi. ŝi volis eviti, ke li hontus, se la eksperi-mento malsukcesus, kaj tio nepre malsukcesos. La kava-lerio-adjutanto el Amersfoort insiste diris tion: 17
-
-BLUA SANGO
+Clement enkuregis la kaleŝejon, ĉar tiu bela Reginald I jam antaŭe iam mordis lin en la supra parto de la brako. Longeois kviete ellasis la bridon, turnis sin ĉirkaŭ la alzanulo, devigis ĝin paŝi malantaŭen al la vasta herbejo antaŭ la postteraso de la bieno. Kaj tie supre, malantaŭ la altaj duoblaj balkonpordoj staris Maleine kaj sekvis atentege la movojn de la nova ŝoforo, tiel ke tiu ĉi ne povis ŝin vidi. ŝi volis eviti, ke li hontus, se la eksperi-mento malsukcesus, kaj tio nepre malsukcesos. La kava-lerio-adjutanto el Amersfoort insiste diris tion:
 
 
 —Fraŭlino, neniam plu faru tion, ĉar okazos plej gravaj akcidentoj.
 
 Sed jen kio? La juna franco jam sidis sur la ĉevalo. Tio ŝajnis miraklo, sed la obstina besto ne facile tion toleris.
 
-i saltis alten per la kvar piedoj samtempe, batis kaj mordis ĉirkaŭen, sed Longeois sidis kvazaŭ ligita sur la ĉabrako, la longaj, graciaj kruroj premitaj kontraŭ la flankoj. La alzanulo ekrapidegis antaŭen, tiel ke la dorso de la rajdanto skuiĝis sur la lumbo de la besto, sed Longeois sidis kaj restis sidanta, sin malrapide levis dum la rajdado kaj denove rekte sidis, kiam Reginald abrupte ekhaltis por deĵeti sian rajdanton trans la kapon. Maleine ektimis pro tiu perfida movo. Tiel la ĉevaldresisto estis ĵetita teren kaj lia maldekstra ŝultro grave elartiki-
-
-ĝis. Al Longeois tiu ĉi ekmovo kaŭzis nur antaŭenklinon de la brunigita kapo, lia korpo restis neŝancelebla. Jen Reginald denove staris sur siaj postaj kruroj. La besto estis kvazaŭ furioza pro la pezo, kiu restis premanta en
+i saltis alten per la kvar piedoj samtempe, batis kaj mordis ĉirkaŭen, sed Longeois sidis kvazaŭ ligita sur la ĉabrako, la longaj, graciaj kruroj premitaj kontraŭ la flankoj. La alzanulo ekrapidegis antaŭen, tiel ke la dorso de la rajdanto skuiĝis sur la lumbo de la besto, sed Longeois sidis kaj restis sidanta, sin malrapide levis dum la rajdado kaj denove rekte sidis, kiam Reginald abrupte ekhaltis por deĵeti sian rajdanton trans la kapon. Maleine ektimis pro tiu perfida movo. Tiel la ĉevaldresisto estis ĵetita teren kaj lia maldekstra ŝultro grave elartikiĝis. Al Longeois tiu ĉi ekmovo kaŭzis nur antaŭenklinon de la brunigita kapo, lia korpo restis neŝancelebla. Jen Reginald denove staris sur siaj postaj kruroj. La besto estis kvazaŭ furioza pro la pezo, kiu restis premanta en
 
 ĝia postkolo kaj kiun ĝi ne povis deĵeti. Tial ĝi provis sin levi tiel alten, ke la rajdanto devus gliti teren. Longeois nun metis la brakojn ĉirkaŭ la kolon de la besto.
 
-Tiam … Maleine ekkriis, ŝi metis siajn manojn antaŭ la vizaĝon: Reginald sin ĵetis sur la dorson por frakasi la rajdanton inter sia peza korpo kaj la tero. ŝi enkuris sian ĉambron, ne plu kuraĝis reiri al la balkonpordoj, sed tie ŝi subite aŭdis: Bravo! Bravo! ŝi rapidis al la balkono kaj 18
-
-BLUA SANGO
+Tiam … Maleine ekkriis, ŝi metis siajn manojn antaŭ la vizaĝon: Reginald sin ĵetis sur la dorson por frakasi la rajdanton inter sia peza korpo kaj la tero. ŝi enkuris sian ĉambron, ne plu kuraĝis reiri al la balkonpordoj, sed tie ŝi subite aŭdis: Bravo! Bravo! ŝi rapidis al la balkono kaj
 
 
 tirmalfermis la pordojn. Longeois faligis sin fulmrapide flanken kaj, antaŭ ol Reginald estis stariĝinta, li denove sidis sur la ĉevalo kaj rapidis en furioza galopo sur la herbejo. Malsupre apud la postteraso staris Frits kaj Clement kaj la servistinoj kaj Dirk. Ili aplaŭdis. Kaj nun an-kaŭ Maleine kriis de sur sia balkono: ”Belege, belege, sinjoro Longeois!”
 
 Sed Longeois ŝin ne aŭdis, li turnis sin kun la turnanta ĉevalo, returnis laŭdekstre, galopis ĉirkaŭ aro da bestoj kaj malaperis eksterviden.
-
-
-BLUA SANGO
 
 
 ĉapitro dua
@@ -385,11 +320,7 @@ LA EKZAMENO
 
 Dekkvar tagojn antaŭ la foriro de Eugène Longeois al Nederlando apopleksio atakis por la dua fojo la maljunan grafon Hektor de Verd’Ile en lia malnova malgaja-kaduka bieno ”Manoir de Nemur”. Li sidis en sia brakseĝo antaŭ la malfermita fenestro el vitroj en plumbo de la antaŭe tiel belega ”Kemenade”, la restadejo por la virinaj anoj de sia prageneracio. Li sidis tute sola apud la tablo, sur kiu kuŝis kelkaj libroj kaj en la atingdistan-co de lia dekstra mano staris sonorilo. Li rigardis de sur la alteco, sur kiu situis lia bieno, trans la sunaj iomete deklivaj kampoj, el kiuj li eĉ ne unu kvadratan metron povis nomi sia propraĵo. La fino estis — ĉiurilate — tre proksima. Grafo de Verd’Ile ne plu posedis teron, ne plu monon, eĉ ne plu … domon. La ”Manoir de Nemur”
 
-iama propraĵo de la posteuloj de la fiera duko de Nemur, kiu vivis dum la tirana, fanatika Louis XI, antaŭe multe hipotekita, nun estis vendita! De Verd’Ile havis multajn ŝuldojn kaj nur pro favoro de la nova posedanto, la daŭ-
-
-re malsana grafo en tiu malnova kastelo povis ĝisaten-di la morton. Unu servisto kaj unu malsaĝa, kampara servistino promesis — kompate — resti ĉe li ĝis lia mor-20
-
-BLUA SANGO
+iama propraĵo de la posteuloj de la fiera duko de Nemur, kiu vivis dum la tirana, fanatika Louis XI, antaŭe multe hipotekita, nun estis vendita! De Verd’Ile havis multajn ŝuldojn kaj nur pro favoro de la nova posedanto, la daŭre malsana grafo en tiu malnova kastelo povis ĝisaten-di la morton. Unu servisto kaj unu malsaĝa, kampara servistino promesis — kompate — resti ĉe li ĝis lia mor-20
 
 
 to. Tiu ĉi estis tre proksima kaj de Verd’Ile ĝojis pro tio.
@@ -398,16 +329,9 @@ Nur sian dekstran brakon li ankoraŭ povis movi. Sed la zorgo ankoraŭ vivis, la
 
 —Nu, paĉjo, ĉi tiu lnsolis, ne havu zorgojn pro mia estonto. Mi scipovas miajn lingvojn: angla, hispana, alĝera, mi certe gajnos mian panon.
 
-Sed la maljuna grafo estis altgrade, necedeble fiera kaj li ĝis nun malaprobis, ke George akceptus subulan oficon. La lasta ido el la generacio de Verd’Ile akcepti bur-
+Sed la maljuna grafo estis altgrade, necedeble fiera kaj li ĝis nun malaprobis, ke George akceptus subulan oficon. La lasta ido el la generacio de Verd’Ile akcepti burĝan oficon! Tion li nur tiam tolerus, se lia filo forlasus Francujon.
 
-ĝan oficon! Tion li nur tiam tolerus, se lia filo forlasus Francujon.
-
-George ne volis aludi la foriron al eksterlando, por ne ŝiri malnovan vundon, ĉar la pli aĝa filo Hektor-Adolf, la karulo de sia patro, ankaŭ forlasis Francujon sub la plej malĝojaj cirkonstancoj antaŭ du jaroj. Hektor-Adolf per hazardludado kaj ŝuld-farado perdigis al sia patro la malmulton, kiun ĉi tiu ankoraŭ posedis. Estis li, kiu ekkaptis kaj vendis la juvelojn de sia mortinta patrino, estis li, kiu devigis sian patron kontrakti lastan mon-prunton ĉe procentegisto, kies postulego kaj procentego la patron ankoraŭ nun premegas. Kaj estis li, kiu finfine donis finigan baton al la patro, farante krimon kontraŭ ali-ula mono. La lastaj personoj el la generacio de Verd’Ile falegis en kapturniga rapideco al la abismo. La hipotek-21
-
-BLUA SANGO
-
-
-rentumo ne plu estis pagata, la servistoj ne plu ricevis sian salajron … venis eĉ panmanko.
+George ne volis aludi la foriron al eksterlando, por ne ŝiri malnovan vundon, ĉar la pli aĝa filo Hektor-Adolf, la karulo de sia patro, ankaŭ forlasis Francujon sub la plej malĝojaj cirkonstancoj antaŭ du jaroj. Hektor-Adolf per hazardludado kaj ŝuld-farado perdigis al sia patro la malmulton, kiun ĉi tiu ankoraŭ posedis. Estis li, kiu ekkaptis kaj vendis la juvelojn de sia mortinta patrino, estis li, kiu devigis sian patron kontrakti lastan mon-prunton ĉe procentegisto, kies postulego kaj procentego la patron ankoraŭ nun premegas. Kaj estis li, kiu finfine donis finigan baton al la patro, farante krimon kontraŭ ali-ula mono. La lastaj personoj el la generacio de Verd’Ile falegis en kapturniga rapideco al la abismo. La hipotekrentumo ne plu estis pagata, la servistoj ne plu ricevis sian salajron … venis eĉ panmanko.
 
 Tiam io devis okazi. La ĉielo ĝin okazigis, kondukis la maljunan grafon en rekta kontakto kun la morto kaj George decidis forlasi Francujon por serĉi en fremda lando vivrimedon. La anonco de la libristo en Groenlo troviĝis en la gazetoj. Tiun ĉi okazon George ne povis preterlasi. Li ĝin proponis al sia patro kaj tiu ĉi plorĝemante ĉirkaŭbrakis sian filon per la ununura, ankoraŭ sendifekta brako.
 
@@ -417,12 +341,7 @@ George kisis sian patron sur la frunto:
 
 —Se mia certigo vin plifeliĉigas, tiam vi povas morti kvieta.
 
-Grafo de Verd’Ile skribis tiam propramane la ofic-pe-tan leteron kaj kiam li indikis la neveran nomon, li diris al si mem: Se la redaktinto de tiu ĉi alvoko estas nobe-22
-
-BLUA SANGO
-
-
-lo, li pardonos tiun ĉi bonvolan mensogon al mi. Li indikis la Parizan adreson de George. Tiu ĉi loĝis en Parizo kiel gasto kune kun malnova studamiko. Kiam tamen al lia patro trafis je la dua fojo apopleksio, li reiris al Normandio kaj restis tie ĝis ties morto. La lastaj vortoj de la patro estis: ”Vivi pli longe estus granda ĝeno por ni ambaŭ”. Kaj tuj post la enterigo de sia patro, George de Verd’Ile forlasis la bienon, en kiu li naskiĝis. Li postlasis leteron al la notario, en kiu li komunikis, ke kvankam li mem ne scias, kiel akiri en la estonto vivsubtena-don, li sin sentas responda pri la ŝuldoj, kiujn postlasis lia patro kaj ke li, kiel nobelo ne ripozos antaŭ ol li estos paginta tiujn ĝis la lasta franko.
+Grafo de Verd’Ile skribis tiam propramane la ofic-pe-tan leteron kaj kiam li indikis la neveran nomon, li diris al si mem: Se la redaktinto de tiu ĉi alvoko estas nobelo, li pardonos tiun ĉi bonvolan mensogon al mi. Li indikis la Parizan adreson de George. Tiu ĉi loĝis en Parizo kiel gasto kune kun malnova studamiko. Kiam tamen al lia patro trafis je la dua fojo apopleksio, li reiris al Normandio kaj restis tie ĝis ties morto. La lastaj vortoj de la patro estis: ”Vivi pli longe estus granda ĝeno por ni ambaŭ”. Kaj tuj post la enterigo de sia patro, George de Verd’Ile forlasis la bienon, en kiu li naskiĝis. Li postlasis leteron al la notario, en kiu li komunikis, ke kvankam li mem ne scias, kiel akiri en la estonto vivsubtena-don, li sin sentas responda pri la ŝuldoj, kiujn postlasis lia patro kaj ke li, kiel nobelo ne ripozos antaŭ ol li estos paginta tiujn ĝis la lasta franko.
 
 Kaj la riĉega barono d’Hainquart, kiu antaŭe edziĝis kun filino de Amsterdama komercisto, havante preskaŭ duonan miljonon da guldenoj, tutege ne konjektis, kian serviston li intencas dungi. ĉar, ke la nova ŝoforo restos, tio jam estis certa. Maleine estis ravita pri tio, kion ŝi vidis kaj tuj vokigis Longeois.
 
@@ -433,16 +352,11 @@ Kaj la riĉega barono d’Hainquart, kiu antaŭe edziĝis kun filino de Amsterda
 —Se vi konsentas, diris Longeois, mi iros al la ŝoforloĝejo kaj mi tie restos je via dispono.
 
 
-BLUA SANGO
-
-
 —ĉu sen ia manĝajo! ŝi demandis.
 
 —Al mi estus neeble manĝi.
 
-—Nu, tie estas telefon-aparato. Vi ankaŭ poste ion povas pretigi … Mia patro ĉiam aranĝas, ke la ŝoforo man-
-
-ĝu en la kuirejo, por faciligi la laboron al Hortense, nia kuiristino. Mi esperas, ke tio vin ne ĝenos.
+—Nu, tie estas telefon-aparato. Vi ankaŭ poste ion povas pretigi … Mia patro ĉiam aranĝas, ke la ŝoforo manĝu en la kuirejo, por faciligi la laboron al Hortense, nia kuiristino. Mi esperas, ke tio vin ne ĝenos.
 
 —Tute ne, fraŭlino … mi … mi kutimas tion.
 
@@ -460,12 +374,7 @@ Subite eksonis signalo de aŭtomobilo …
 
 —Jen mia patro, diris Maleine … bonvolu malsupreniri en la malgrandan akceptejon.
 
-Longeois foriris al la saloneto, en kiu lumis la kandeloj en la granda lustro, pendanta de la plafono. Staran-24
-
-BLUA SANGO
-
-
-te, li dum momento atendis la baronon, sed kiam ĉi tiu post duona horo ankoraŭ ne venis, li sidiĝis kaj rigardis la internon de la saloneto, kiu estis meblita tre elegante.
+Longeois foriris al la saloneto, en kiu lumis la kandeloj en la granda lustro, pendanta de la plafono. Starante, li dum momento atendis la baronon, sed kiam ĉi tiu post duona horo ankoraŭ ne venis, li sidiĝis kaj rigardis la internon de la saloneto, kiu estis meblita tre elegante.
 
 Barono d’Hainquart unue volis, trinkante sian apetitigilon en la ĉambroĝardeno, legi siajn gazetojn, poste vespermanĝi, kaj tiam ripozi duonhoron, antaŭ ol paroli kun sia nova servisto. Maleine tamen jam plene lin informis pri ĉio.
 
@@ -481,12 +390,7 @@ Tiam tiu junulo estas fenomeno. Mi post momento lin ekzamenos. Mi esperas nur, k
 
 Intertempe la atendado treege tentis la paciencon de Longeois. Je la sepa, la sunmalleviĝo, la barono estis re-veninta, kaj, je kvarono post la naŭa, li ankoraŭ sidis en la malgranda salono. Ofte la elektraj sonoriloj sonis, la servistaro rapidegis supren kaj malsupren, preter-pas-ante unu al la alia flustris ion en la orelo kaj poste silento regis en la grandaj ĉambroj: la barono dormetis.
 
-Fine venis Clement komisiante, ke la barono ne sen-25
-
-BLUA SANGO
-
-
-tas sin dispona por paroli pri la kondiĉoj de enoficiĝo.
+Fine venis Clement komisiante, ke la barono ne sentas sin dispona por paroli pri la kondiĉoj de enoficiĝo.
 
 Krom tio jam tro mallumiĝis por ekskursi tra la parko al la staloj kaj al la garaĝo. Li petigas al sinjoro Longeois enlitiĝi. Se la barono morgaŭmatene deziros paroli kun li, tiam li vokigos lin.
 
@@ -500,30 +404,18 @@ Clement lndukis al la pavilono, sed li ne volis, ke la maljunulo iru kun li ĝis
 
 Iru, mi kutimas helpi min mem.
 
-En la sekvanta momento li meditante sidis en la leda seĝo apud la malgranda sonda tablo en la loĝĉambro de la pavilono, li … grafo George de Verd’Ile … stalservisto de nobelulo, kies blazono ankoraŭ en tiu ĉi jarcento estis projektita kaj farita. ĉar barono d’Hainquart ne estis franco. Li naskiĝis en la Ardenoj, en la sudo de Belgujo, mallongtempe post la disiĝo de la nordaj kaj sudaj Nederlandoj. Lia patro, artileria kapitano, sukcesis sin rimarkigi ĉe la provizora belga registaro dum la militistaj movoj, kiuj kaŭzis la konflikton inter Norda kaj Suda Nederlandoj, tiel ke sub la regado de Leopold I, li estis proponata por la nobeliĝo, kondiĉe, ke liaj viraj posteu-26
-
-BLUA SANGO
-
-
-loj tiom longe, kiom ili restados sur la belga teritorio, povos porti la titolon de barono.
+En la sekvanta momento li meditante sidis en la leda seĝo apud la malgranda sonda tablo en la loĝĉambro de la pavilono, li … grafo George de Verd’Ile … stalservisto de nobelulo, kies blazono ankoraŭ en tiu ĉi jarcento estis projektita kaj farita. ĉar barono d’Hainquart ne estis franco. Li naskiĝis en la Ardenoj, en la sudo de Belgujo, mallongtempe post la disiĝo de la nordaj kaj sudaj Nederlandoj. Lia patro, artileria kapitano, sukcesis sin rimarkigi ĉe la provizora belga registaro dum la militistaj movoj, kiuj kaŭzis la konflikton inter Norda kaj Suda Nederlandoj, tiel ke sub la regado de Leopold I, li estis proponata por la nobeliĝo, kondiĉe, ke liaj viraj posteuloj tiom longe, kiom ili restados sur la belga teritorio, povos porti la titolon de barono.
 
 d’Hainquart estis je tiu titolo freneze fiera. Ve al tiu, kiu ne skribis al li: Lia barono moŝto, aŭ lin ne alparolis per sinjoro barono. Rekte aŭ ne rekte oni pro tio pentos. La longtempa atendado je la interparolado kun la barono estis antaŭe pripensita. Per tio Longeois devis senti la gravecon de la mastro, ĉe kiu li enoficiĝos.
 
-Estis vera fajroprovo, kiun li devis elteni. Li enpense sidis en Francujo, en Normandio en ”Manoir1 de Nemur”. Dum dudek unu jaroj li tie vivis kun sia juna patrino, la belega alĝerianino, kun sia ĉambristo kaj sia rajdservisto, kiuj ade devis resti je lia dispono. Li havis en sia blazono, sur triangula ora fono, la bluan lilion kaj la nigran glavon. Pli belega kaj pli fiera emblemo ne estis elpensebla. Kaj nun li sidis tie ĉi kun senpagaj manĝo kaj loĝado, kiel … stalservisto. De kie li akiros la forton daŭ-
-
-rigi tiun rolon? ĉu la promeso al lia mortinta patro? Certe, li sentis tion kiel ĵuron, sed ĉu lia sango, malgraŭ li mem, ne iam lin perfidos? Kaj kiom longe tio ankoraŭ daŭros. Li sidis, ĉe la lumo de la malgranda elektra lam-peto, profunde en la seĝo, dum lia valizo ankoraŭ staris neelpakita apud li sur la planko. Li nenion povis fari ol enlitiĝi.
+Estis vera fajroprovo, kiun li devis elteni. Li enpense sidis en Francujo, en Normandio en ”Manoir1 de Nemur”. Dum dudek unu jaroj li tie vivis kun sia juna patrino, la belega alĝerianino, kun sia ĉambristo kaj sia rajdservisto, kiuj ade devis resti je lia dispono. Li havis en sia blazono, sur triangula ora fono, la bluan lilion kaj la nigran glavon. Pli belega kaj pli fiera emblemo ne estis elpensebla. Kaj nun li sidis tie ĉi kun senpagaj manĝo kaj loĝado, kiel … stalservisto. De kie li akiros la forton daŭrigi tiun rolon? ĉu la promeso al lia mortinta patro? Certe, li sentis tion kiel ĵuron, sed ĉu lia sango, malgraŭ li mem, ne iam lin perfidos? Kaj kiom longe tio ankoraŭ daŭros. Li sidis, ĉe la lumo de la malgranda elektra lam-peto, profunde en la seĝo, dum lia valizo ankoraŭ staris neelpakita apud li sur la planko. Li nenion povis fari ol enlitiĝi.
 
 En la malgranda ĉambreto staris malgranda angla lito, 1 kastelo.
 
 
-BLUA SANGO
-
-
 ŝranko kaj lavtableto nun korodita de akvo kaj sapo, malbone kolorigita plato. La ununura bonkvalito de tiu ĉi vere burĝa interno estis la pureco. Tial li pensis elteni ĉi tie. Malpureco lin malsanigus. Li elpoŝigis sian paperujon, metis la paperojn unu post la alia antaŭ si sur la tablon: sian pasporton, sian falsan pasporton, kiun pretigis lia studamiko en la strato de Ninove, portreton de sia patrino kaj de sia patro, kelkajn leterojn de la notario kaj iom da francaj bankbiletoj. La atestoj, skribitaj de lia antaŭa ”mastro” grafo de Verd’Ile, jam estis en la manoj de la fraŭlino. Kiun salajron li perlaboros? Tio ne interesis lin. Kion li farus tie ĉi en Nederlando per salajro? Li dum la unua jaro ne intencis iri ekster la bieno, almenaŭ se oni ne lin ien sendos.
 
-Li senvestiĝis, post kiam li estis metinta la enhavon de sia valizo sur la bretojn en la ŝranko, sed la dormo ne volis veni. Tiktakadis vekhorloĝo sur la kamenbreto en la loĝĉambro, kaj ĉiufoje, kiam li inkandeskigis la ampo-leton por rigardi sur ĝin, li vidis, ke estas kvazaŭ la horoj nur rampis antaŭen. Fine, en la frua mateno, li pro-fundege ekdormis. La trolaciĝo de la lastaj noktoj antaŭ lia forveturo, dum kiuj li dormis maksimume unu aŭ du horojn, sin nun duoble sentigis … Kiam, je la sesa kaj duono la telefonsonorilo tintadis, li kuŝis en profunde-ga dormo, kaj finfine li vekiĝis per la fortega frapegado ekstere sur la fenestrokovrilo, sekvata de sonorado de la 28
-
-BLUA SANGO
+Li senvestiĝis, post kiam li estis metinta la enhavon de sia valizo sur la bretojn en la ŝranko, sed la dormo ne volis veni. Tiktakadis vekhorloĝo sur la kamenbreto en la loĝĉambro, kaj ĉiufoje, kiam li inkandeskigis la ampo-leton por rigardi sur ĝin, li vidis, ke estas kvazaŭ la horoj nur rampis antaŭen. Fine, en la frua mateno, li pro-fundege ekdormis. La trolaciĝo de la lastaj noktoj antaŭ lia forveturo, dum kiuj li dormis maksimume unu aŭ du horojn, sin nun duoble sentigis … Kiam, je la sesa kaj duono la telefonsonorilo tintadis, li kuŝis en profunde-ga dormo, kaj finfine li vekiĝis per la fortega frapegado ekstere sur la fenestrokovrilo, sekvata de sonorado de la
 
 
 telefono. Li saltis el la lito, kaptis la aŭdilon kaj aŭskultis. Estis Clement, kiu tute konsternite informis pri la kaŭzo, kial ne venis respondo.
@@ -538,9 +430,7 @@ Longeois vestis sin rapidege, sed per tio denove pasis kelkaj minutoj. La barono
 
 —Trolaciĝo? Ne, tiu estas grandioza! Kaj vi dum la lastaj tagoj nenion faris. Aŭ ĉu vi eble tro multe streĉis vin dum tiu ekskurseto kun la alzanulo? En tiu kazo vi ne taŭgas kiel rajdservisto. Kaj tio tute ne akordas kun la skribitaj atestoj, kiujn grafo de Verd’Ile pri vi alsendis kaj kiel tio do estas klarigebla? Nobelo, kiu mensogas, tio estus novaĵo.
 
-Barono d’Hainquart bluiĝis pro indigno dum la rapida parolado. ŝajnis, ke li ne povis subpremi la ofendon, ke, li, barono devis atendi je stalservisto. Longeois silentis. Li tuj rimarkis, ke kun viro, kiu estas tiel ekscitiĝema, rezonado en tiu momento ne estas ebla. Cetere lia nova 29
-
-BLUA SANGO
+Barono d’Hainquart bluiĝis pro indigno dum la rapida parolado. ŝajnis, ke li ne povis subpremi la ofendon, ke, li, barono devis atendi je stalservisto. Longeois silentis. Li tuj rimarkis, ke kun viro, kiu estas tiel ekscitiĝema, rezonado en tiu momento ne estas ebla. Cetere lia nova
 
 
 mastro ne lasis al li la tempon por ion diri, sed nerve-rapide daŭrigis:
@@ -561,9 +451,7 @@ Longeois sidiĝis kaj d’Hainquart daŭrigis:
 
 Ho, mi tre bedaŭras, ke mi ankoraŭ ne indikis al li mian novan adreson.
 
-Longeois en plej granda miro fikse rigardis la baronon, ĉu lia patro la intima amiko de lia? Tio estis granda mensogo. La familio d’Hainquart estis tute ne konata en ”Manoir de Nemur”. Unu el ambaŭ: aŭ la barono 30
-
-BLUA SANGO
+Longeois en plej granda miro fikse rigardis la baronon, ĉu lia patro la intima amiko de lia? Tio estis granda mensogo. La familio d’Hainquart estis tute ne konata en ”Manoir de Nemur”. Unu el ambaŭ: aŭ la barono
 
 
 treege eraras aŭ … li estas viro kun kompatinde malgranda animo.
@@ -582,11 +470,7 @@ Kiam Longeois ĝis tie sekvis sian estontan mastron, li vidis starantaj en vico 
 
 —Frits, rakontu al la novulo, kiel oni laŭ mia ordono devas prizorgi la aferojn.
 
-Frits, monotone recitis siajn instrukciojn kaj Clement ilin tradukis por li en la francan lingvon. Longeois plenmire aŭskultis; se li tiujn ordonojn devos plenumi laŭ-
-
-vorte, tiam li ne estos rajdservisto, sed sklavo en unifor-31
-
-BLUA SANGO
+Frits, monotone recitis siajn instrukciojn kaj Clement ilin tradukis por li en la francan lingvon. Longeois plenmire aŭskultis; se li tiujn ordonojn devos plenumi laŭvorte, tiam li ne estos rajdservisto, sed sklavo en unifor-31
 
 
 mo. Tiu ”sinjoro barono” estas frenezulo, aroganta frenezulo kaj li havis la konvn, ke lia mortinta patro, la pur-sanga nobelo, aŭdinte, tiujn ordonojn ekridegus.
@@ -599,9 +483,7 @@ mo. Tiu ”sinjoro barono” estas frenezulo, aroganta frenezulo kaj li havis la
 
 —Jes, sinjoro barono.
 
-—Tiam vi sciu, ke en ĉiu ejo, je kio vi estas responda, pendas sur la muro listo kun tiuj ordonoj, kaj ke ilin vi devas subskribi antaŭ via enoficiĝo. Tio por eviti, ke oni poste ĝenos min per ”tion mi ne sciis”. Iru nun al la gara-
-
-ĝo, tie staras du aŭtomobiloj, la plej nova Chrysler kaj la Renault. Veturigu la unuan eksteren kaj montru, kion vi povas.
+—Tiam vi sciu, ke en ĉiu ejo, je kio vi estas responda, pendas sur la muro listo kun tiuj ordonoj, kaj ke ilin vi devas subskribi antaŭ via enoficiĝo. Tio por eviti, ke oni poste ĝenos min per ”tion mi ne sciis”. Iru nun al la garaĝo, tie staras du aŭtomobiloj, la plej nova Chrysler kaj la Renault. Veturigu la unuan eksteren kaj montru, kion vi povas.
 
 Longeois en la sekvanta momento sidis malantaŭ la direktilrado de la Chrysler, aŭtomobilo, kiun li konis interne kaj ekstere, veturigis ĝin el la garaĝo kaj tuj rapidegis en la veturaleon, cirkle turnis antaŭ la teraso en mallonga arko, haltis subite en granda rapideco precize antaŭ arbo kaj demandis:
 
@@ -609,9 +491,7 @@ Longeois en la sekvanta momento sidis malantaŭ la direktilrado de la Chrysler, 
 
 —Mi dankas, estis la respondo, mi jam sufiĉe vidis.
 
-Sed mi atentigas vin, ke ni ne kutimas malpurigi la piedbreton. Sub la malantaŭa sidloko maldekstre kuŝas 32
-
-BLUA SANGO
+Sed mi atentigas vin, ke ni ne kutimas malpurigi la piedbreton. Sub la malantaŭa sidloko maldekstre kuŝas
 
 
 granda ŝamleda tuko, tiun ni je malbona vetero antaŭe sternu, sur la piedbreton kaj ni ne kutimas falsidiĝi en nian sidlokon, kiel vi faris. Chrysler-aŭtomobilo ne estas naĝbaseno! Reveturigu la aŭtomobilon en la garaĝon kaj venu poste en mian laborĉambron por subskribi nian kontrakton.
@@ -629,9 +509,6 @@ Longeois dum momento ŝin fikse rigardis kaj poste diris:
 —Bone do, por … plezuri vin.
 
 
-BLUA SANGO
-
-
 ĉapitro tria
 
 ”ORIENTADO”
@@ -644,9 +521,7 @@ Kiam Longeois intencis subskribi, barono d’Hainquart retenis ankoraŭ dum mome
 
 —Bone, tiam subskribu. Mi nepre deziras pagi la salajron je la fino de la kvaronjaro.
 
-—Kiel via barona moŝto deziras. Se miaj servoj ne pla-
-
-ĉas al vi, mi ne deziras akcepti eĉ unu cendon.
+—Kiel via barona moŝto deziras. Se miaj servoj ne plaĉas al vi, mi ne deziras akcepti eĉ unu cendon.
 
 La barono mirigite rigardis la ŝoforon:
 
@@ -656,9 +531,7 @@ La barono mirigite rigardis la ŝoforon:
 
 —Konsentite, kunprenu viajn instrukciojn kaj zorgu, ke mi estos kontenta pri vi.
 
-Longeois iris al la staloj, kie Frits sin okupis pri la tualeto de la ĉevaloj. Lama Dirk tiumomente ĵetis faskon da pajlo tra la aperturo de la subtegmentejo, precize sur la kapon de la nova ŝoforo. Li ekridegis kaj ekkriis: 34
-
-BLUA SANGO
+Longeois iris al la staloj, kie Frits sin okupis pri la tualeto de la ĉevaloj. Lama Dirk tiumomente ĵetis faskon da pajlo tra la aperturo de la subtegmentejo, precize sur la kapon de la nova ŝoforo. Li ekridegis kaj ekkriis:
 
 
 Jen touche! Parlez vous france1? Longeois forigis la pajle-rojn de la ŝultro kaj transprenis la striglilon kaj la brosilon de Frits. Li dum momento rigardis la lentugan vizaĝon de la stalknabo kaj sentis subite antipation je tiu knabo. Tiu vizaĝo memorigis lin al tiu de rano. Tiu larĝa buŝo, tiuj elorbitiĝantaj okuloj, tiu dekliva frunto … tiu vizaĝo estis ne nur malbela, ĝi estis naŭza. Kiel estas eble, ke du homoj kiel la nobelino kaj tia monstra knabaĉo povas vivi unu apud la alia?
@@ -674,9 +547,6 @@ Dirk ankaŭ ĉeestis hieraŭ posttagmeze la bravan dresad-pruvon de la franca ra
 Longeois faris sian laboron, trankvile kaj silente. Nur tiam, kiam li ne povis fari alie, li direktis sin fuŝnederlande al la stalknabo, kiu poste ĉe la aliaj lin imitis: Ikke 1 Kripla franca lingvo, signifante: Trafe. ĉu vi parolas france?
 
 
-BLUA SANGO
-
-
 moete den brosse en de sgonze weglekken1. Ha, ha, ha, leki la spongojn! Hortense, per tiu sinjoro ni ankoraŭ povas havi ĝojon! Kaj tagmeze, dum la manĝo, en la antaŭkuirejo, kiam la nova ŝoforo tie sidis kun la forko kaj la tranĉilo en siaj belaj manoj, kiel fraŭlino, tiam Dirk, devis preni sian teleron kaj ekstari ĉe la fenestro, alie li estus ekrideginta. La maljuna Clement rigardis tiel ko-mike kaj Jonjo eĉ ne kuraĝis rigardi. La nova ŝoforo tion ĉi tre bone rimarkis, sed, en lia sublima klopodo, savi tion kio estas savebla de la vivo, tiuj gestoj tute ne impresis lin. Liaj pensoj estis aliloke. Li ankoraŭ ne liberigis sin de la penso al sia mortinta patro, kiu ankoraŭ dufoje estis parolinta pri sia pli aĝa filo, Hektor-Adolf:
 
 —George, se iam li vin bezonas dum la vivo, memoru min. Tiam lin helpu pro via patro.
@@ -686,9 +556,6 @@ Tio estis bela. tio estis nobla! Sed la ebleco, iam revidi Hektor dum la vivo, e
 —Ne, diris George al si mem, mi montros, ke estas alia vojo en la mondo! Kio ajn okazu, kiel ajn mizera mi sentos min ĉi tie, mi persistos!
 
 1 Kripla nederlanda lingvo ”Mi devas forleki (anstataŭ ”formeti”) la brosilon kaj la spongojn”.
-
-
-BLUA SANGO
 
 
 Li detabliĝis kaj silente salutis la aliajn. Dirk deprenis sian ĉapon, moke subule. Longeois tion vidis kaj revenis, ekstaris tuj antaŭ la lentugulo. Li aspektis pala, sed liaj okuloj ekflamis, kiam li dum kelkaj sekundoj senparole perokule mezuris la konfuzitan knabon. Tiam li foriris kaj Hortense diris mallaŭte:
@@ -720,9 +587,6 @@ Dirk volis ŝin kapti. Li ruĝegiĝis, sed li sin retenis kaj pensis: Atendu, ra
 La sekvantan matenon Eveline ricevis la ordonon veni al la barono:
 
 
-BLUA SANGO
-
-
 —Knabino, vi serĉesploras la leterojn de fraŭlino Maleine.
 
 —Sed, sinjoro barono …
@@ -731,9 +595,7 @@ BLUA SANGO
 
 Neniu alia ol lama Dirk povis esti la perfidinto. Tiu
 
-ĝuste preterpasis, kiam ŝi purigis la ĉambron de la fraŭ-
-
-lino. Tiu Dirk estas diablo, tamen ŝi devas parolflati lin, alie ŝi ja senlaboriĝus. En sama situacio troviĝis la tuta servistaro. Ili malamis la laman stalknabon kaj tamen kaŝe ili lin timis. Escepte la cowboy1, tiu ŝajnis havi la intencon rompi al li ankaŭ la alian kruron, se Dirk daŭrigos siajn incitojn. Sed ŝajnis, ke tiu ĉi estis konvertita. En la nun sekvantaj tagoj, li ne malame kondutis. ĉu eble la inda sinteno de Eugène lin imponis? Aŭ ĉu tion kaŭzis la komplimento, kiun la barono en lia ĉeesto faris al la nova ŝoforo?
+ĝuste preterpasis, kiam ŝi purigis la ĉambron de la fraŭlino. Tiu Dirk estas diablo, tamen ŝi devas parolflati lin, alie ŝi ja senlaboriĝus. En sama situacio troviĝis la tuta servistaro. Ili malamis la laman stalknabon kaj tamen kaŝe ili lin timis. Escepte la cowboy1, tiu ŝajnis havi la intencon rompi al li ankaŭ la alian kruron, se Dirk daŭrigos siajn incitojn. Sed ŝajnis, ke tiu ĉi estis konvertita. En la nun sekvantaj tagoj, li ne malame kondutis. ĉu eble la inda sinteno de Eugène lin imponis? Aŭ ĉu tion kaŭzis la komplimento, kiun la barono en lia ĉeesto faris al la nova ŝoforo?
 
 —Eugène, mi devas diri: kun neniu ŝoforo mi sidis tiel trankvile en la Chrysler, kiel kun vi.
 
@@ -746,9 +608,6 @@ lino. Tiu Dirk estas diablo, tamen ŝi devas parolflati lin, alie ŝi ja senlabo
 —Mi devas: aŭ sidadi kun la telefonilo al la buŝo, aŭ sidiĝi je via flanko. Ke vi ne konas la vojon, estas terure.
 
 1 bovpaŝtisto en Ameriko.
-
-
-BLUA SANGO
 
 
 — Se via barona moŝto bonvolas doni al mi planon de la ĉirkaŭaĵo kaj la permeson veturi kelkajn tagojn en la ĉirkaŭaĵo por orienti min, tiam vi ne plu bezonos plendi.
@@ -774,9 +633,6 @@ La sekvantan matenon, je la oka, Eugène staris kun la iom pli malnova Renault a
 —Sidiĝu en la malantaŭa parto kaj prenu la paroltubon.
 
 
-BLUA SANGO
-
-
 —Kaj tion vi trovis tiel maloportuna kaj ĝena.
 
 —Vi havas malpli da zorgoj ol mi.
@@ -784,9 +640,6 @@ BLUA SANGO
 —Bone, paĉjo, do en la malantaŭa parto.
 
 En la sekvanta momento la Renault malaperis malantaŭ aro da altkreskaj malhelaj koniferoj kaj rapidegis renkonte al la belega aŭtun-pejzaĝo. Longeois estis pri-studinta bonege la karton, sed la bieno de barono d’Hainquart kuŝis en labirinto de vojoj, kiuj ĉiuj intersi-milis. Ankaŭ la antaŭaj ŝoforoj komence ofte pro tio spertis malfacilaĵojn. Maleine tion sciis kaj tial ŝi nun faris sian eblon, helpi ĉi tiun rimarkinde bonmanieran francon. ŝi tenadis la aparaton en la mano kaj je ĉiu dis-forkiĝo de la vojo ŝi nomis la vilaĝojn, al kiuj la vojoj kondukas. Maleine bonege parolis france, sed ne ĉiam tiel pure kiel Longeois, kaj tiu ĉi modeste kaj takte, kiam Maleine lin alparolis en la staloj aŭ en la garaĝo, ĉiam ripetis ŝian malpli puran elparolon en la ĝusta tono. Maleine tuj rimarkis tion kaj pensis: tiu junulo certe estas el tre bona familio. Ankaŭ nun, en la aŭtomobilo, kiam ŝi donis indikon al li, ŝi povis rimarki laŭ lia moviĝema profilo, kiam ŝi uzis neĝustan esprimon. ĉiufoje ŝi vidis en la mezo iomete kurbetan nazon, tiun energian men-tonon kaj la iomete buklan malsupran lipon … Eugène sendube havis la plej distingan aspekton el ĉiuj ŝoforoj, kiujn ili ĝis nun dungis … Ho ve, kion ŝi nun diris al li?
-
-
-BLUA SANGO
 
 
 ”Kverkaleo al Hummels?” Tiu tute ne estas la nomo.
@@ -809,9 +662,7 @@ Eugène kapjesis iomete kaj tiam fikse rigardis antaŭ si. Li intencis imiti unu
 
 —Jen, diris Maleine post kelkaj minutoj, tiel miaj indi-koj nun estos pli efikaj, tiun barilon ni poste denove pre-terveturos, ĉe la reveno, tiam ni estos ankoraŭ naŭ kilometrojn for de la hejmo. Tie estas tre danĝera vojkurbo, tie du aŭtomobiloj koliziis. Unu belega Chrysler estis direktata de juna fraŭlino, la alia de juna sinjoro, kiu sidis en tre malnova aŭtomobilo, ”ruino sur radoj”. Tiu aŭto-mobileto tute detruiĝis kaj la Chrysler ekhavis nur malgrandan difekton al la motoro. Kaj, imagu, Eugène, tiuj
 
-”akcidentuloj” duonan jaron poste geedziĝis. Ili loĝas tie 41
-
-BLUA SANGO
+”akcidentuloj” duonan jaron poste geedziĝis. Ili loĝas tie
 
 
 en la erikejo en malgranda dometo, vere idilia … ĉi tie estas la vojo kiun vi lastfoje eniris, kiam vi devis veturi al Hengelo. Atentu bone, vi devas iri maldekstren ĉirkaŭ tiu farmdomo. ĉi tie estas tiu danĝera kurbo … ĉu viaj gepatroj ankoraŭ vivas? ŝi subite demandis.
@@ -833,9 +684,6 @@ En liaj rondoj, en la familioj, kiuj — antaŭe — venis en
 —Nun enveturu la unuan, dekstran, larĝan vojon. Mia patro certe iam vin sendos tien ĉevale, ĉar tie komenciĝas lia ĉastereno.
 
 —Bone, fraŭlino.
-
-
-BLUA SANGO
 
 
 —ĉu via patro ankaŭ estis ŝoforo?
@@ -863,14 +711,9 @@ Jen denove liaj pensoj revenis al realeco kaj ŝia naive-co kvazaŭ devigis lin 
 1 ”Akterhuke” fuŝelparolita anstataŭ ”Achterhoek” (elp: A˛terhuk’) regiono en orienta parto de Nederlando.
 
 
-BLUA SANGO
-
-
 Maleine ekridegis pro lia tipa elparolado kaj li, per ŝia rido momenton tirita el sia rolo, kunridis … Maleine rigardis lin deflanke, vidis la sendifektajn belegajn angul-dentojn kaj ŝi pensis: Se tio ne estas falsa dentaro.
 
-—ĉu ni nun devas iri dekstren aŭ maldekstren, fraŭ-
-
-lino? li demandis, veturante tra larĝa aleo.
+—ĉu ni nun devas iri dekstren aŭ maldekstren, fraŭlino? li demandis, veturante tra larĝa aleo.
 
 —Haltu, mi petas, ŝi diris, ni devas, … ankaŭ mi ne plu scias. Kaj ridante ŝi kriis:
 
@@ -888,12 +731,7 @@ Sonis la respondo:
 
 Longeois neniun vorton komprenis de tio, kion la maljuna viro en sia tipa dialekto kriis al ili, sed li komprenis el la mieno de la nobelino, ke estis io tre komika, ĉar ŝi returne al li kriis:
 
-—ĉu al la urbdomo? Mi vin dankas, tie estas tro dan-
-
-ĝera vojkurbo!
-
-
-BLUA SANGO
+—ĉu al la urbdomo? Mi vin dankas, tie estas tro danĝera vojkurbo!
 
 
 Sed ŝi nun sciis la vojon kaj veturigis laŭ la dekstra vojo:
@@ -910,9 +748,7 @@ Li decidis tiun tagmezon dresi Reginald II, sed tio kostis al li superhoman peno
 
 —Reginald II ne ŝatas francan blufon! i jam mordis Eugène en la brako!
 
-Vere, la incitiĝema besto sukcesis mordi sian novan mastron en la maldekstra supra brako, kiam ĉi tiu volis surmeti la rajdselon. Eugène fikse premis la lipojn, pro la dolorego, kiun la vundo kaŭzis. Lia bruna ĉemiz-maniko estis ŝirita kaj la sango tragutis. Li iris al la stal-pumpilo, lavpurigis la vundon kaj petis la lentugan stalknabon, peti de Hortense pecon da tolo. Dirk demandis antaŭ la fenestro de la subteretaĝo: 45
-
-BLUA SANGO
+Vere, la incitiĝema besto sukcesis mordi sian novan mastron en la maldekstra supra brako, kiam ĉi tiu volis surmeti la rajdselon. Eugène fikse premis la lipojn, pro la dolorego, kiun la vundo kaŭzis. Lia bruna ĉemiz-maniko estis ŝirita kaj la sango tragutis. Li iris al la stal-pumpilo, lavpurigis la vundon kaj petis la lentugan stalknabon, peti de Hortense pecon da tolo. Dirk demandis antaŭ la fenestro de la subteretaĝo:
 
 
 —ĉu vi ne havas tukon? Reginald II donis al Eugène kiseton, ha, ha ha!
@@ -936,9 +772,6 @@ For estis fraŭlino Maleine. Li vidis ŝin rapidege supreniri la ŝtuparon al la
 —ŝi ne povas aŭdi pri sango, li kriis al la fenestro kaj lamis antaŭen al la stalo kun peco da malnova tolaĵo en sia malpura mano. Sed jen li aŭdis rapidajn paŝojn malantaŭ si. Estis Maleine kiu alvenis kuregante. ŝi estis ŝanĝinta siajn vestojn, ĉar ŝi intencis fari promenon kun la du melhundoj. ŝi portis helverdan glatan robon, bor-deritan per helgriza peltaĵo, kaj surhavis nigre-veluran bireton:
 
 —For tiu ĉifono! ŝi kriis, kaj fortiris la tolaĵon el la manoj de Dirk, vi al li kaŭzus infekton.
-
-
-BLUA SANGO
 
 
 ŝi havis en la mano malgrandan bandaĝujon, metis tiun sur la fenestro-breto kaj eniris la stalon:
@@ -976,9 +809,6 @@ Pli lerte ol Eugène je ŝi supozis, ŝi purigis la vundon per la desinfekta vio
 —Nun vi certe morgaŭ matenon ne povos ŝofori, ĉu jes?
 
 
-BLUA SANGO
-
-
 —Jes, tamen, fraŭlino.
 
 —Ho ne, la brako estos ŝvelinta kaj rigida, sendube …
@@ -995,9 +825,7 @@ La sekvantan matenon, kiam Eugène venis kun la Renault, Clement diris al li, ke
 
 —La barono demandis pri vi.
 
-La sekvantan momenton Eugène staris en la labor-
-
-ĉambro de la barono:
+La sekvantan momenton Eugène staris en la laborĉambro de la barono:
 
 —Eugène, vi volas ŝofori, ĉu ne?
 
@@ -1016,9 +844,6 @@ La sekvantan momenton Eugène staris en la labor-
 —Bedaŭrinde jes, sinjoro barono.
 
 —Nu, kial do vi volas per tiu rigida brakaĉo la fraŭlinon … .
-
-
-BLUA SANGO
 
 
 —Paĉjo, subite sonis la voĉo de Maleine, mi jam trovis solvon … mi mem ŝoforos!
@@ -1040,13 +865,7 @@ Kaj Dirk grumblis:
 —Tio estas nekomprenebla dum la lastaj tagoj.
 
 
-BLUA SANGO
-
-
 Maleine ĵetis sian bireton sur la divanon. Kio do al ŝi estas. ĉu estas tiel grave, ke ŝi ne ricevis permeson mem ŝofori? Tion paĉjo ja ankaŭ antaŭe ne permesis. Estis tre agrable hieraŭmatene kaj ĉar tio nun ne okazos laŭ ŝia deziro, ŝi silente koleretas: He, ege malsagace!
-
-
-BLUA SANGO
 
 
 ĉapitro kvara
@@ -1061,9 +880,7 @@ La tagoj, semajnoj kaj monatoj pasis en la bieno ”La Blua Bero”, kiel antaŭ
 
 —ĉu leterojn? Jes, tion li faras, mi scias. Sen eraroj lingvaj kaj tre legeble.
 
-—Ne, ne, tion mi ne aludas, li verkas poemojn aŭ rakontaĵojn aŭ ion similan, ĉar, kiam ni la unuan fojon 51
-
-BLUA SANGO
+—Ne, ne, tion mi ne aludas, li verkas poemojn aŭ rakontaĵojn aŭ ion similan, ĉar, kiam ni la unuan fojon
 
 
 elrajdis sur Reginald, li perdis sian taglibron, en kiu li estis skribinta per krajono tutajn paĝojn. Mi ĝin trovis hazarde kaj mi ne sciis, ke ĝi apartenas al li. Kaj kiel li ruĝiĝis, kiam mi ĝin redonis al li! ĉu vi scias, kie mortis lia patrino? En Alĝerio. Mi opinias, ke li havas beltipan aspekton, ĉu ne?
@@ -1077,21 +894,13 @@ elrajdis sur Reginald, li perdis sian taglibron, en kiu li estis skribinta per k
 En la malgrandan animon de la granda barono envenis la ĵaluzo. Li ne povis toleri, ke oni entuziasmiĝas pri aliaj, eĉ se multrilate ekzistas kaŭzo por tio. Kaj pli malmulte li tion toleris ĉe sia filino. Lia filino estis en la mondo per, por kaj pro li. Kaj la laŭdo kiun Maleine es-primis pri la nova stalservisto lin ĝenis terure. Kaj se li ne estus tiom fanfaroninta ĉe siaj malmultaj konatuloj en Hago kaj Dieren pri la nova rajdservsito de Maleine, li certe jam nun serĉus pretekston por liberigi sin de tiu sinjoro-ŝoforo! Tiam tamen ree komenciĝus serĉado kaj anoncado por akiri novan. Tiun ĝenon li volis eviti. Sed tio estas certa: se li iros la sekvontan semajnon al Parizo por ĉeesti la kunvenon de la akciuloj de la ”Societé Ceramique”, li bonege ĉion atentos kaj informos pri alia ŝoforo.
 
 
-BLUA SANGO
-
-
 Kaj Euĝne … malrapide, tre malrapide li akomodiĝis al sia nova medio. ”Fari seriozegan mienon”, kiel Maleine tion kelkfoje diris, ne tio al li kaŭzis grandan penon, sed la persistado, la energia alcelado, tio superforte lin streĉis. Kie nun estas liaj bone prizorgitaj manoj? … Se la juna baronino de Serrieul, kiu antaŭ unu jaro havis por li tiom da afabla atento, se ŝi lin nun vidus, ŝi malestime levus la nazon pri la nepuraj kaŭĉukaj kolumoj, kiujn li laŭ ordono de la barono devas porti sub sia livreo. La maljuna markizino d’Ivry simple ne juĝus lin inda je sia rigardo. Kaj ĉiuj servistoj, tiu naŭza stalknabo, tiu malloga tipo, kiu ade lin spionas por neatendite lin ataki, pro kio do tiu monstra knabaĉo estas kontraŭ li?
 
 Kvar monatojn post sia alveno en ”La Blua Bero” li demandis sin mem: ĉu mi sukcesos? ĉu mi povos per-sisti? ĉion, laŭvorte ĉion, li antipatiis. ĉiun tagon li batalis kun si mem, ĝis kiam iun matenon li diris:
 
 —Mi cedas. Mi ne povas vivi sen iu, kiu kun mi parolas; iu, kiu scias, kion mi volas; iu, kiu scias mian batalon, la malegalan batalon de ĉiuj vivantoj kaj eĉ de la senvivaj aĵoj kontraŭ unu homo. Mi hodiaŭ tagmeze diros al la fraŭlino, ke mi foriros en julio …
 
-Sed li prokrastis sian komunikon de tago al tago, ĝis kiam barono d’Hainquart iun matenon kontraŭ li furi-53
-
-BLUA SANGO
-
-
-ozis. La fosaĵeto ĉirkaŭ la ĉevalsterkejo estis tro profunde elfosita.
+Sed li prokrastis sian komunikon de tago al tago, ĝis kiam barono d’Hainquart iun matenon kontraŭ li furiozis. La fosaĵeto ĉirkaŭ la ĉevalsterkejo estis tro profunde elfosita.
 
 —Kian sterkon ni povos akiri per ĝi, tro malsekan, tro malsekan! Vi estas tro sinjoreca vi havas la saman malsanon de ĉiuj, kiuj longtempe kontaktis kun la nobelaro; altrangec-manion!
 
@@ -1101,9 +910,7 @@ ozis. La fosaĵeto ĉirkaŭ la ĉevalsterkejo estis tro profunde elfosita.
 
 Longeois fariĝis kretpala: liaj lipoj tremis, kaj liaj okuloj malgaje ardis. Ankoraŭ unu vorton, kaj la barono estus sentinta ĉirkaŭ la gorĝo la manegon de sia nova ŝoforo. Sed d’Hainquart kolere sin turnis kaj iris renkonte al sia filino, kiu lin venpetis por la vizito, kiu ĵus estis alveninta. Per unu rigardo Maleine vidis, kio okazis, kaj dum ŝia patro kuris al la verando, ŝi restis staranta an-taŭ la servisto:
 
-—ĉu denove la sama afero? … Eugène, pardonu paĉ-
-
-jon, estas malsano lia.
+—ĉu denove la sama afero? … Eugène, pardonu paĉjon, estas malsano lia.
 
 —Fraŭlino, mi foriros je la fino de la monato.
 
@@ -1118,9 +925,6 @@ jon, estas malsano lia.
 —Tion vi ne faros!
 
 
-BLUA SANGO
-
-
 —Kaj kiu malebligus tion al mi?
 
 —Mi.
@@ -1129,9 +933,7 @@ BLUA SANGO
 
 —Nenian intereson, sed vi ne foriros, pri tio mi estas certa. Ne faru tion. Mi trovus tion tre malagrabla.
 
-Kion li nun vidas? ĉu ŝi estas malĝoja? Ne, tio estas neeble, tio estus nekompreneble … Dum li enpense ser-
-
-ĉis taŭgan vorton, venis Clement por diri:
+Kion li nun vidas? ĉu ŝi estas malĝoja? Ne, tio estas neeble, tio estus nekompreneble … Dum li enpense serĉis taŭgan vorton, venis Clement por diri:
 
 —Fraŭlino, la barono deziras tuj vidi vin, tuj.
 
@@ -1141,9 +943,7 @@ Clement foriris kaj tiam ŝi diris preskaŭ ordone:
 
 —Kiam vi morgaŭ estos veturiginta paĉjon al la stacio, ni faros grandan ekskurson sur la Reginaldoj.
 
-Eugène riverencis kaj reiris al sia laboro. Sed depost tiu ĉi momento io en lia animo vekiĝis, kio lin feliĉigis kaj samtempe lin malkvietigis. La fraŭlino defendis la novan ŝoforon kontraŭ sia severa patro. ”Ne foriru, tion mi trovus malagrabla”, ŝi diris al li kaj ŝiaj okuloj estis malseketaj, ŝiaj lipoj tremis. Kiuj pensoj okupas tiun knabinon? ĉu ŝi eltrovis lian sekreton? ĉu ŝi eble konjektis lian devenon? Ne, tio estis absolute neeble. Sed tiam ŝi ekludas tre danĝeran ludon, ludon kun fajro! Nobelino, kiu prenas la partion de sia rajdservisto kaj al li 55
-
-BLUA SANGO
+Eugène riverencis kaj reiris al sia laboro. Sed depost tiu ĉi momento io en lia animo vekiĝis, kio lin feliĉigis kaj samtempe lin malkvietigis. La fraŭlino defendis la novan ŝoforon kontraŭ sia severa patro. ”Ne foriru, tion mi trovus malagrabla”, ŝi diris al li kaj ŝiaj okuloj estis malseketaj, ŝiaj lipoj tremis. Kiuj pensoj okupas tiun knabinon? ĉu ŝi eltrovis lian sekreton? ĉu ŝi eble konjektis lian devenon? Ne, tio estis absolute neeble. Sed tiam ŝi ekludas tre danĝeran ludon, ludon kun fajro! Nobelino, kiu prenas la partion de sia rajdservisto kaj al li
 
 
 petas pardoni ŝian patron, ĉar liaj senmotivaj koleraj kapricoj estas sekvo de malsano.
@@ -1156,12 +956,7 @@ Li apogis la vizaĝon en la mano kaj fikse rigardis antaŭ si …
 
 —La promeson, kiun mi faris al mia patro, mi plenumos, mi silentos ĝis mia morto. La generacio de Verd’Ile ne havu serviston inter siaj posteuloj.
 
-Tiun tagon li ne vidis la baronon, nek ties filinon. Li ĉetabliĝis kontraŭvole, ĉar la lama Dick ankoraŭ ne de-kutimiĝis de siaj kaŝmalicaj turmentoj. Li nenion povis certe konstati, sed ke ili ripete mokridas pro li, tio estis evidenta. Estis la lentugulo, kiu tion ĉefis, similante se-56
-
-BLUA SANGO
-
-
-riozecon kaj troan subulecon. Sed ripetfoje li vidis, ke Frits aŭ Netje foriras por rideksplodi en la lavkuirejo.
+Tiun tagon li ne vidis la baronon, nek ties filinon. Li ĉetabliĝis kontraŭvole, ĉar la lama Dick ankoraŭ ne de-kutimiĝis de siaj kaŝmalicaj turmentoj. Li nenion povis certe konstati, sed ke ili ripete mokridas pro li, tio estis evidenta. Estis la lentugulo, kiu tion ĉefis, similante seriozecon kaj troan subulecon. Sed ripetfoje li vidis, ke Frits aŭ Netje foriras por rideksplodi en la lavkuirejo.
 
 Nur Eveline ne ridis, eĉ malkaŝe prenis partion por li kaj riproĉis:
 
@@ -1192,9 +987,6 @@ Eugène forlasis la ĉambron kaj kiam li venis en la marmora halo, Clement stari
 —Diru, ĉu la barono scias, ke la fraŭlino kaj vi elraj-dos sur la alzanuloj?
 
 
-BLUA SANGO
-
-
 —Pri tio mi ne demandis. Mi faras, kion la fraŭlino al mi ordonas.
 
 —Provu malkonsili tion al ŝi.
@@ -1213,9 +1005,7 @@ BLUA SANGO
 
 —Pro kio ne hodiaŭ? Estis hodiaŭ tago kiel ĉiuj aliaj.
 
-—Ne vere. Mi ne ŝatus, ke hodiaŭ la nobelino tre laci-
-
-ĝus kaj tio certe okazos pro Reginald II … Eĉ al vi ĝi kaŭ-
+—Ne vere. Mi ne ŝatus, ke hodiaŭ la nobelino tre laciĝus kaj tio certe okazos pro Reginald II … Eĉ al vi ĝi kaŭ-
 
 zas multan penon.
 
@@ -1230,9 +1020,6 @@ Eugène koleriĝis kaj diris:
 —Jes, sed, komprenu min bone, tio ne estas ordinara vizito, tiu junkro estas bona konatulo de la barono kaj li venos … ĉe tiuj ĉi vortoj li ĉirkaŭrigardis, ĉu neniu lin aŭdas, — tiu venos speciale por la fraŭlino … Eble hodiaŭ vespere efektiviĝos.
 
 —Efektiviĝos? Kio?
-
-
-BLUA SANGO
 
 
 —La fianĉiĝo! Sed vi silentu! Vi ne parolu pri tio al Hortense nek al Eveline, ĉar tiam la barono furioziĝos.
@@ -1261,9 +1048,7 @@ Ne, prefere vi diru, ke vi malkonsilas rajdi sur Reginald II. Reiru: ŝi estas a
 
 —Bone, diris Eugène kaj frapetis sur la pordo, tra kiu li ĵus estis elveninta.
 
-—Fraŭlino, li diris, mi ankoraŭ pripensis kaj nun mi 59
-
-BLUA SANGO
+—Fraŭlino, li diris, mi ankoraŭ pripensis kaj nun mi
 
 
 sentas skrupulon pri mia respondeco, se vi sur Reginald …
@@ -1280,18 +1065,13 @@ Eugène sentis, ke li ruĝiĝas, riverencis kaj forlasis la ĉambron. Malsupre �
 
 —ŝi min mokridas.
 
-—Nu, estu. La junkro do fianĉiĝu kun parto de la fraŭ-
-
-lino, mi faris, kion mi povis.
+—Nu, estu. La junkro do fianĉiĝu kun parto de la fraŭlino, mi faris, kion mi povis.
 
 Post kvaronhoro venis Eugène kun la du alzanuloj, tenante ilin ĉe la brido, ĉe la malantaŭa perono. Reginald II eĉ ne unu minuton staris senmove. i hufbatis truojn en la karbogruzo, blekis kaj batis malantaŭen. Kaj Clement, kiu observis post palmo en la ĉambroĝardeno tiun spektaklon grumblis:
 
 —Ili venos hejmen hodiaŭ vespere kun rompitaj ripoj, tion ni vidos! Se ŝi estus mia filino … Vidu nun tiujn ĉevalojn, kiel ili piedfrapas Ia gazon-randojn. Kaj Reginald II kontraŭ arbo frote forpuŝos la fraŭlinon de sia dorso.
 
 Ke la nobelaro faras tiajn kapricojn, tio estas komprenebla, sed tiu burĝa knabo devus diri: mi ne riskas tion kaj tiam ankaŭ ŝi devus resti hejme.
-
-
-BLUA SANGO
 
 
 La du rajdantoj jam ne estis videblaj. Longeois rajdis je distanco de kelkaj paŝoj post fraŭlino Maleine, sed tiu ĉi vokis:
@@ -1312,16 +1092,9 @@ La kamparanoj kiuj laboris sur la kampo, vidis preter-troti la duon kaj unu al l
 
 Longeois estis tre lerta rajdisto. Jam estante sesjara knabo li saltigis sian ĉevalon trans barojn, antaŭ kiuj plenkreskaj rajdistoj ofte haltigis pro timo. Kaj estis, kvazaŭ Maleine sentis sin en lia ĉeesto tute eksterdanĝera.
 
-Ili trotis seninterrompe pli ol tri kvaronhorojn, neparo-61
+Ili trotis seninterrompe pli ol tri kvaronhorojn, neparolante eĉ unu vorton, ĉar ili bezonis ĉiun atenton por regi siajn ĉevalojn.
 
-BLUA SANGO
-
-
-lante eĉ unu vorton, ĉar ili bezonis ĉiun atenton por regi siajn ĉevalojn.
-
-Reginald II precipe estis ĝenema. Se ĝi ne povis iri laŭ-
-
-plaĉe ĝi ĵetis la kapon laŭeble plej alten por per tio trafi sian rajdantinon, sed apenaŭ Eugène vidis tiun ĉi dan-
+Reginald II precipe estis ĝenema. Se ĝi ne povis iri laŭplaĉe ĝi ĵetis la kapon laŭeble plej alten por per tio trafi sian rajdantinon, sed apenaŭ Eugène vidis tiun ĉi dan-
 
 ĝeran kutimon, li haltigis la ĉevalojn, prenis el sia poŝo mallarĝan rimenon kaj ĝin fiksis al la mentonrimeno kaj al la brustjungilaro.
 
@@ -1335,9 +1108,7 @@ Belege estis. La forte spirantaj kaj anhelantaj ĉevaloj volis konkuri en rapide
 
 —Ho, kriis Maleine, kiel agrablege! Nun mi rajdante povas forigi ĉiujn indignojn de la lastaj tagoj! Tie, post tiu barilo, ĉe la fino de la erikejo situas ”La Malnova Poŝtkorno”. Tie ni momenton ripozos!
 
-Eugène devigis sian ĉevalon resti ĉe la ŝia. Singardo 62
-
-BLUA SANGO
+Eugène devigis sian ĉevalon resti ĉe la ŝia. Singardo
 
 
 estis necesa, ĉar la erikejo estas plena je malebenaĵoj. Kaj post kvaronhora galopado ili alvenis ĉe ”La Malnova Poŝtkorno”.
@@ -1369,9 +1140,6 @@ Li modeste foriris, avertis la kelneron kaj poste promenis en la legomĝardenon,
 —Bonvolu rakonti, kion vi pensis.
 
 
-BLUA SANGO
-
-
 —Tio eĉ pli malfacile estas, fraŭlino.
 
 —Tiam mi diros, kion vi pensis. Vi pensis: Kiam post kelka tempo la barono rehejmiĝos, tiam la spektaklo rekomenciĝos. Tiam mi devos rakonti, kion mi faris, kie mi estis — ĉar tio estas unu el la punktoj el mia instrukcio —, kaj tiam sekvos riproĉoj … ĉio pro la fraŭlino. ĉu ne estas tiel?
@@ -1393,9 +1161,6 @@ Longeois silentis momenton, ĝis kiam la fremda viro estis foririnta kaj tiam li
 Longeois ŝin mire rigardis.
 
 —Fraŭlino, senkulpigu min, vi min honoras per la konfido, kiun vi al mi donas, sed ne decas al stalservisto.
-
-
-BLUA SANGO
 
 
 —Estas tre vere, kion vi diras, sed tamen laŭ mi estas sensencaĵo. Vi tute ne similas al stalservisto. Se mi ne pli bone scius, mi dirus, ke vi estas studento. Vi estas la ununura persono el mia tuta rondo, kun kiu mi povas dece paroli.
@@ -1421,9 +1186,6 @@ Stalservisto povas en sia speco …
 … kaj nun denove dum tiu ĉi rajdado … ĉar mi sincere diras: mi dum momento estis en angoro, kvankam mi kaŝis tion.
 
 
-BLUA SANGO
-
-
 —Do, ni poste tre trankvile returne rajdos, ĉu ne?
 
 —Ne, ni galopos. Mi ne volas ridindigi min flanke de dezertrajdisto.
@@ -1444,19 +1206,12 @@ Li donis al ŝi ambaŭ manojn:
 
 —ĉu vi povas ekstari?
 
-—Mi klopodos … ne, ne, ne povas … io rompiĝis, mia 66
-
-BLUA SANGO
+—Mi klopodos … ne, ne, ne povas … io rompiĝis, mia
 
 
 genuo, kaj mia … piedo. Kaj malgraŭ la plej fortega doloro, ŝi ridetis:
 
-—Kaj tio ja estas tre grave — en la tago de mia fian-
-
-ĉiniĝo.
-
-
-BLUA SANGO
+—Kaj tio ja estas tre grave — en la tago de mia fianĉiniĝo.
 
 
 ĉapitro kvina
@@ -1471,12 +1226,7 @@ La falakcidento de fraŭlino Maleine kaŭzis grandan konfuzon en ”La Blua Bero
 
 —Lasu min ĉi tie, ŝi diris, rajdu hejmen, kaj veturigu ĉi tien la aŭtomobilon … la kuŝado malpli multe min doloras.
 
-Longeois jam estis ĉevale kaj flugrapidis tra la erikejo, dum la alia besto kviete restis en la proksimo de sia mastrino. Maleine kuŝis sur sia dekstra flanko, la pugnon premita antaŭ la buŝo pro silenta doloro. Longa, senfine longa ŝajnis al ŝi la atendado, kvankam ŝi certe sciis, ke Longeois rajdos je la plej granda rapido. Klininte super la kolo de sia ĉevalo, ĉi tiu rapidegis ĝis la rando de la erikejo. La besto memvole ektrotis, sed li ade spro-68
-
-BLUA SANGO
-
-
-nis kaj bategis ĝin sur la kolo, galopis ĝis tuj antaŭ la granda barilo, kiu bonŝance estis larĝe malfermita. Dirk staris ĉe la enirejo de la garaĝo. Li saltis de la ĉevalo, ĵetis la bridojn al la knabo kaj kriis:
+Longeois jam estis ĉevale kaj flugrapidis tra la erikejo, dum la alia besto kviete restis en la proksimo de sia mastrino. Maleine kuŝis sur sia dekstra flanko, la pugnon premita antaŭ la buŝo pro silenta doloro. Longa, senfine longa ŝajnis al ŝi la atendado, kvankam ŝi certe sciis, ke Longeois rajdos je la plej granda rapido. Klininte super la kolo de sia ĉevalo, ĉi tiu rapidegis ĝis la rando de la erikejo. La besto memvole ektrotis, sed li ade spronis kaj bategis ĝin sur la kolo, galopis ĝis tuj antaŭ la granda barilo, kiu bonŝance estis larĝe malfermita. Dirk staris ĉe la enirejo de la garaĝo. Li saltis de la ĉevalo, ĵetis la bridojn al la knabo kaj kriis:
 
 —Voku Eveline! La fraŭlino falis de la ĉevalo. ŝi devas kuniri en la aŭtomobilo por ŝin helpi.
 
@@ -1486,12 +1236,7 @@ Malpli ol duonan minuton poste la granda Chrysler kun Eveline en la malantaŭa p
 
 Longeois dum la veturado sentis sin kaptita de fortega febro. ĉiumomente li revidis tiun pro doloro streĉitan vizaĝon de Maleine antaŭ si. Imagu, ke tiu falo estus mortiga. Tiu penso preskaŭ frenezigis lin kaj nun en tiu ĉi momento li sentis, kion ŝi por li signifas. La Chrysler penbruis tra la profunda radsulko en la erikejo, skuis, tangis kaj tremetis kiel boato sur la ondoj, kaj Eugène signaladis por sciigi al sia mastrino, ke li alproksimiĝas.
 
-Sed Maleine ne aŭdis lin. La doloroj iĝis tiel fortaj, ke ŝi devis barakti tutforte por ne sveni. Sed finfine ŝi ne plu povis elteni. La kapo falis malantaŭen kun fermitaj okuloj, kaj la dolorfebro pelis ŝiajn pensojn for, malproksi-69
-
-BLUA SANGO
-
-
-mege for. Estis Eugène, kiu tre singarde ŝin levis kaj metis en la vasta aŭtomobilo sur kelkaj kusenoj. Li demetis sian surtuton kaj sur ĝi ripozigis la vunditan kruron.
+Sed Maleine ne aŭdis lin. La doloroj iĝis tiel fortaj, ke ŝi devis barakti tutforte por ne sveni. Sed finfine ŝi ne plu povis elteni. La kapo falis malantaŭen kun fermitaj okuloj, kaj la dolorfebro pelis ŝiajn pensojn for, malproksimege for. Estis Eugène, kiu tre singarde ŝin levis kaj metis en la vasta aŭtomobilo sur kelkaj kusenoj. Li demetis sian surtuton kaj sur ĝi ripozigis la vunditan kruron.
 
 —ŝin tenu en viaj brakoj, li ordonis al Eveline, tio mal-helpas skuadon, mi tre singarde veturos.
 
@@ -1509,9 +1254,7 @@ Kuracisto Drom ankoraŭ ne alvenis.
 
 —Mi iras por venigi lin, kriis Longeois kaj kuregis al la stalo. ĉi tie lia ĉevalo ankoraŭ staris seligifa. Nudkape kaj en sia bruna sportbluzo li saltis sur ĝin, forgalopis al la vilaĝo kaj kiam li alvenis tie, li renkontis kuraciston Drom, sidanta sur motorbiciklo.
 
-—Rapide, sinjoro, akcidento okazis al la nobelino, li jam de malproksime kriis al la kuracisto. Tiam li je la tria 70
-
-BLUA SANGO
+—Rapide, sinjoro, akcidento okazis al la nobelino, li jam de malproksime kriis al la kuracisto. Tiam li je la tria
 
 
 fojo iris en la direkto de la erikejo, por kapti la ĉevalon de sia mastrino.
@@ -1530,9 +1273,7 @@ Ekbruis motoro ĉe la malantaŭa perono. Longeois saltstaris, kuris tien kaj vid
 
 En tiu ĉi momento la aŭtomobilo de junkro Debloux veturis tra la ĝardenbarilo. Barono d’Hainquart sidis en la malantaŭa parto de la aŭtomobilo. La pretendanto je la mano de Maleine, kiu loĝas en bieno proksime de Dieren, estis akceptinta en Velp sian estontan bopatron.
 
-La sinjoroj gaje parolante elaŭtomobiliĝis, sed silentis, 71
-
-BLUA SANGO
+La sinjoroj gaje parolante elaŭtomobiliĝis, sed silentis,
 
 
 kiam ili vidis la kuraciston. La barono ne prenis la tempon por aŭskulti lin. Tuj kiam li aŭdis la vortojn: ”Akci-denteto dum ĉevalrajdado”, li lasis sian gaston en embaraso, flankenpuŝis Clement, kaj kuregis sur la peronon, tra la ĝardenĉambro al la koridoro, en kiu troviĝis la pordo de la ĉambro de Maleine. Tuj kiam li rimarkis, ke la akcidento ne estas fatala, li forlasis la ĉambron kaj iris al la subteretaĝo, ne atentante junkron Debloux, kiu lin mirigife rigardis. La barono estis pala pro kolero, kiam li faris riproĉojn al sia servistaro.
@@ -1551,9 +1292,7 @@ Ni havas, ĉi tie en la kuirejo, nenian rilaton kun tiu rajdekskurso. Se vi ne d
 
 —Pardonu, sinjora barono, nun diris lentuga Dirk, la fraŭlino ne plu estas infano.
 
-La barono ne respondis, kolere sin turnis kaj kriis, sur-irante la ŝtuparon al la halo: 72
-
-BLUA SANGO
+La barono ne respondis, kolere sin turnis kaj kriis, sur-irante la ŝtuparon al la halo:
 
 
 —Friponaro! Aĉularo! Clement! Venigu Eugène ĉi tien!
@@ -1585,9 +1324,6 @@ La barono tuj sekvis la ĉambristinon kaj vidis, ke lia filino estis levinta sin
 —Tion mi malpermesas al vi!
 
 
-BLUA SANGO
-
-
 —Maleine!
 
 —Tion mi malpermesas al vi, ĉar se tiu junulo ne estus ĉeestinta, vi certe ne estus revidinta min vivanta.
@@ -1613,9 +1349,6 @@ La bluajn rozojn Eveline portis en la malsanulan ĉambron kun la salutoj de junk
 —Junkro Debloux reiros al Dieren kaj restos en siaj ĉambroj, ĝis al fraŭlino d’Hainquart estos permesate forlasi la ŝiajn.
 
 
-BLUA SANGO
-
-
 —Por tio oni devas esti sufiĉe freneza, diris Maleine al sia ĉambristino. Nu, se li restos en sia ĉambro, li almenaŭ ne ĝenos. Metu tiujn rozojn en tiu vazo … antaŭ la fenestro!
 
 La genuo de la nobelino ree baldaŭ havis sian norma-lan staton, sed la enartikigo de la rompita piedo kaŭzis terurajn dolorojn. Kuraĝe ŝi suferis ilin, tiel ke la kuracisto diris: ”Multaj viroj estus svenintaj pro tio. Estas energio en tiu fraŭlino”.
@@ -1630,9 +1363,7 @@ Morgaŭ matene mi promenos per helpbastoneto. Vidu, kia vetero. Mi volas iri en 
 
 —Oh, tion li diras al ĉiu. Dirk estas responda, Hortense estas responda. Vi laŭvole amasigu ĉiujn responde-cojn … mi promenos.
 
-Kaj ŝi laŭagis. La sekvantan matenon ŝi iris ĉe la brako de la kuracisto en la koridoron kaj deiris la ŝtuparon al la perono. Tie ŝi neatendite staris antaŭ Eugène. Sang-ondo flugis al ŝiaj vangoj, ŝi palpebrumis nerve, faris kvazaŭ ŝi ion forviŝas de sia verda robo, la malhelverda 75
-
-BLUA SANGO
+Kaj ŝi laŭagis. La sekvantan matenon ŝi iris ĉe la brako de la kuracisto en la koridoron kaj deiris la ŝtuparon al la perono. Tie ŝi neatendite staris antaŭ Eugène. Sang-ondo flugis al ŝiaj vangoj, ŝi palpebrumis nerve, faris kvazaŭ ŝi ion forviŝas de sia verda robo, la malhelverda
 
 
 robo, roze garnita, kiun ŝi portis je la tago, kiam Longeois alvenis en ”La Blua Bero”.
@@ -1664,9 +1395,6 @@ De kie li venas?
 —Li diras, ke li naskiĝis en Florence.
 
 
-BLUA SANGO
-
-
 —Li similas al hispano.
 
 —Lia patrino estis alĝerianino.
@@ -1681,12 +1409,7 @@ Estis junkro Debloux, kiu ilin portis, en ties manoj li ilin vidis dum tiu vespe
 
 —Maleine, sonis voĉo. Barono d’Hainquart staris an-taŭ sia filino. Li estis tre multokupita dum la lastaj tagoj, ĉar venis grupo da sinjoroj sur la bieno, kiuj petis lian konsenton fariĝi kandidato por la membreco de la Par-lamento.
 
-Estis la unuiĝo de terposedantoj, kies prezidanto li estis, kiuj instigis lin akcepti ĉi tiun kandidatecon. Tuj kiam li eksciis, ke lia filino estas resaniĝanta, la agado de lia unuiĝo denove okupis lin. Tamen hodiaŭ estis venin-77
-
-BLUA SANGO
-
-
-ta letero de Debloux, kiu anoncis sian venon je dimanĉo kaj kiu skribis sube de sia epistolo:
+Estis la unuiĝo de terposedantoj, kies prezidanto li estis, kiuj instigis lin akcepti ĉi tiun kandidatecon. Tuj kiam li eksciis, ke lia filino estas resaniĝanta, la agado de lia unuiĝo denove okupis lin. Tamen hodiaŭ estis veninta letero de Debloux, kiu anoncis sian venon je dimanĉo kaj kiu skribis sube de sia epistolo:
 
 —Mi kore esperas, ke mi forlasos ”La Blua Bero” dum pli feliĉaj cirkonstancoj ol antaŭ kvin semajnoj.
 
@@ -1709,9 +1432,6 @@ Kaj ŝi vidis la surprizon: ebona lambastoneto kun ora prenilo. Kromestis florko
 —Vidu, kia virinaĉo mi estas!
 
 
-BLUA SANGO
-
-
 —ĉu vi donos la ordonojn pri la tagmanĝo por dimanĉo?
 
 —ĉio estos en ordo, patro.
@@ -1728,25 +1448,14 @@ Tiam la nova stalservisto, kiu ĵus revenis de la dresve-turo, devis veturigi ba
 
 Fariĝis ora tago. La parko donis sian plenan somerluk-son. La kaŝtanarboj etendis siajn grandajn foliojn super la ĵus razitaj gazonoj, en kiuj tie kaj tie la rozkoloraj kaj blankaj, pendbranĉaj rozoj staris kiel florfontanoj. La grandega bedo da violoj kaj rezedoj donis narkotantan odoron kaj la blankaj kolomboj malvigle serĉis la mal-varmetan ombron sub la arboj. Iĝis tro varme sur la teraso. Maleine vokis sian ĉambristinon. ŝi volis transvestiĝi.
 
-Intertempe Clement metis la ripozseĝon sub la pen-dantaj branĉoj de la saliko. Lama Dirk kun cigaredo en la buŝo kuŝis sur la amaso da trifolio, kiun Joosten, unu el la farmistoj de d’Hainquart, ĵus estis ĵetinta antaŭ la malfermitan stalon. Li intencis profiti hodiaŭ; la barono estas for, la fraŭlino Maleine sendube nur legas en sia seĝo, Frits akrigas la tranĉilojn kaj Hortense estas en la 79
-
-BLUA SANGO
+Intertempe Clement metis la ripozseĝon sub la pen-dantaj branĉoj de la saliko. Lama Dirk kun cigaredo en la buŝo kuŝis sur la amaso da trifolio, kiun Joosten, unu el la farmistoj de d’Hainquart, ĵus estis ĵetinta antaŭ la malfermitan stalon. Li intencis profiti hodiaŭ; la barono estas for, la fraŭlino Maleine sendube nur legas en sia seĝo, Frits akrigas la tranĉilojn kaj Hortense estas en la
 
 
-subteretaĝo. Li nun estas mastro, ĝis kiam ”sinjoro” Eu-gène revenos. Tiel li titolis nuntempe Longeois. ĉar tagon post tago kreskis en li la envio. Oni lasttempe por li aparte pretigas la tablon. La tagmanĝon Jonjo portas en granda fermita lada tortskatolo al la pavilono, kie la sinjoro havas en la ŝranko sian propran servicon. Kaj al kio li dankas tiujn privilegiojn? Al sia sinjora aspekto kaj siaj francaj manieroj. Homo, kiu restas malgranda kaj malbela kaj kiu havas kriplaĵon, ĉiam estas malpli favorata ol aliaj. Li — Dirk — sufiĉe povas trakti ĉevalojn kaj aŭ-
+subteretaĝo. Li nun estas mastro, ĝis kiam ”sinjoro” Eu-gène revenos. Tiel li titolis nuntempe Longeois. ĉar tagon post tago kreskis en li la envio. Oni lasttempe por li aparte pretigas la tablon. La tagmanĝon Jonjo portas en granda fermita lada tortskatolo al la pavilono, kie la sinjoro havas en la ŝranko sian propran servicon. Kaj al kio li dankas tiujn privilegiojn? Al sia sinjora aspekto kaj siaj francaj manieroj. Homo, kiu restas malgranda kaj malbela kaj kiu havas kriplaĵon, ĉiam estas malpli favorata ol aliaj. Li — Dirk — sufiĉe povas trakti ĉevalojn kaj aŭtomobilon, por anstaŭigi Eugène. Certe pro tio la barono ne bezonis dungi novan stalserviston. Sep jarojn li jam estis sur la bieno, li venis kiel dek-kvar jara knabo, je unu guldeno posemajne kaj la manĝo. ĉu fakte ne li devus loĝi en la pavilono? Kial li devas kuŝi en la subtegmentejo super la aŭtomobilejo en tia malnova spiralfera liteto? Li subite vekiĝis el sia envia meditado per blanka makulo, kiu ŝovis en la malproksimo laŭlonge de la florantaj rododendroj. Li eksidis en rekta pozo. ĉu tiu estas fremdulo? ĉu sinjoro Debloux? ĉu tiu intencas te-nisi? Ne, estis fraŭlino. Eble, iu, kiu perdis la vojon. Ne estus la unua fojo en ĉi tiu grandega parko. Kiel knabo li mem iam perdis la vojon en ĝi. Li volis eksalti kaj kuri ĉirkaŭ la granda gazono al la avelarbetoj, kiam li en la malrapide moviĝanta figuro, rekonis fraŭlinon Maleine.
 
-tomobilon, por anstaŭigi Eugène. Certe pro tio la barono ne bezonis dungi novan stalserviston. Sep jarojn li jam estis sur la bieno, li venis kiel dek-kvar jara knabo, je unu guldeno posemajne kaj la manĝo. ĉu fakte ne li devus loĝi en la pavilono? Kial li devas kuŝi en la subtegmentejo super la aŭtomobilejo en tia malnova spiralfera liteto? Li subite vekiĝis el sia envia meditado per blanka makulo, kiu ŝovis en la malproksimo laŭlonge de la florantaj rododendroj. Li eksidis en rekta pozo. ĉu tiu estas fremdulo? ĉu sinjoro Debloux? ĉu tiu intencas te-nisi? Ne, estis fraŭlino. Eble, iu, kiu perdis la vojon. Ne estus la unua fojo en ĉi tiu grandega parko. Kiel knabo li mem iam perdis la vojon en ĝi. Li volis eksalti kaj kuri ĉirkaŭ la granda gazono al la avelarbetoj, kiam li en la malrapide moviĝanta figuro, rekonis fraŭlinon Maleine.
+He, kien ŝi iros? Li stariĝis, prenis la sarkilon el la gardejo kaj ŝteliris laŭlonge de la alceoj al la densa arbetaĵo ĉe la barilo ĉirkaŭ la laŭbo. De ĉi tie li povis vidi kien fraŭ-
 
-He, kien ŝi iros? Li stariĝis, prenis la sarkilon el la garde-80
-
-BLUA SANGO
-
-
-jo kaj ŝteliris laŭlonge de la alceoj al la densa arbetaĵo ĉe la barilo ĉirkaŭ la laŭbo. De ĉi tie li povis vidi kien fraŭ-
-
-lino Maleine iras. Oni ne dirus, ke ŝia piedo estis rompi-
-
-ĝinta. Nun ŝi estas ĉe la pavilono. Kio nun? ĉu ŝi eniras?
+lino Maleine iras. Oni ne dirus, ke ŝia piedo estis rompiĝinta. Nun ŝi estas ĉe la pavilono. Kio nun? ĉu ŝi eniras?
 
 Dirk ekkuris. Li devis vidi, kion ŝi tie faros. Bona ideo lia, kunpreni tiun ilon. Se ŝi vidus lin, li farus kvazaŭ li rastas la vojeton, ĉirkaŭ la pavilono. Li eĉ povus genui tuj antaŭ la fenestro kaj fari kvazaŭ li eltiras la herbaĵon el la ŝtonetvojo. Maleine surhavis robon krepsilkan kun siringviola banto sur la brusto. ŝi venas inspekti, diris Dirk al si mem, dum li kuŝante sur siaj genuoj antaŭ la fenestro, singarde spionis en la ĉambron. Maleine staris en la mezo de la ĉambro kaj ĉirkaŭrigardis. ŝi tie staris je la unua fojo depost ok monatoj. Estis la devo de Netje zorgi, ke ĉio restu pura kaj Eugène neniam pri tio plendis. Malgraŭ tio, ŝajnis, ke io ne plaĉis al Maleine. ŝi
 
@@ -1757,33 +1466,23 @@ Dirk ekkuris. Li devis vidi, kion ŝi tie faros. Bona ideo lia, kunpreni tiun il
 Subite la melhundoj ekbojis. Ili aŭdis de tre malproksime la ronkadon de motoro. La aŭtomobilo rehejmiĝas.
 
 
-BLUA SANGO
-
-
 ŝajnis, kvazaŭ Maleine ege ektimis. ŝi iris al la ŝranketo, rapide enigis la viŝtukon en la korbeton kaj rapidis el la ĉambro. Dirk vidis ŝin iranta laŭlonge de la bedego de akreruĝaj geranioj. ĉi tie ŝi restis staranta malantaŭ la trunko de dika kverko kaj rigardis, nevidata de iu, al la aŭtomobilo, kiu veturis en la malproksimo, tra la alve-turaleo, al la garaĝo. Dirk metis sian sarkilon trans sian ŝultron, malantaŭen puŝis sian ĉapon, gratetis sin inter la flavruĝaj haroj kaj diris:
 
 —Atentu, la fraŭlino nin travivigos strangaĵojn.
 
 
-BLUA SANGO
-
-
 ĉapitro sesa
 
-ĉIELO KAJ INFERO
+ĈIELO KAJ INFERO
 
 La vespero kronis tiun ĉi belegan somertagon. Je la sesa la vira personaro estis libera. La maljuna Clement foriris al sia fratino en Groenlo, Frits vizitis sian fianĉinon kaj Dirk, kiel kutime iris al la vilaĝo por bilard-ludi. La ĉielo formis vastan lazuran kupolon kun miloj da brilantaj juvelsteloj. La birdoj dormis, sed la aero estis ankoraŭ plena de zumantaj insektoj. La ranoj kvakadis en la lageto kaj neniu folio moviĝis. Longeois estis skribinta kelkajn horojn en sia taglibro. Li ne sciis, kion li skribis. Estis pensoj, frazoj sen kunteksto. Komence im-presoj, kiujn la holanda vivo faris al li, nun temis plej-parte pri lia kunvivantaro. Komence li senatente metis sian libron ien ajn, sed kiam fraŭlino Maleine iutage ĝin trovis kaj foliis en ĝi senintence, li ĝin zorge ŝlosforme-tis. Li nun estis priskribinta la falon de sia mastrino kaj siajn sentojn dum la lastaj semajnoj. Subite li deĵetis la plumon kaj iris eksteren. Tiu skribado nun sufiĉas. Estas unu estaĵo, unu nomo, kiu tute kaj absolute regas lin: Maleine.
 
-Dek kvin tagojn post la akcidento li estis silentema kaj malgajmiene meditanta, li faris sian devon. Kiam li ne 83
-
-BLUA SANGO
+Dek kvin tagojn post la akcidento li estis silentema kaj malgajmiene meditanta, li faris sian devon. Kiam li ne
 
 
 plu povis elteni, li iris al la kuracisto por informiĝi pri la farto de Maleine. ĉio bone aranĝiĝos, ĉi tiu diris.
 
-Jen esperiga informo. Sed la penso pri la estonta fian-
-
-ĉiniĝo de lia mastrino, kun tiu kvardekjara, ne praktik-anta advokato kaj mizera nobelo, tiu junkraĉo, ĉiam premis lian humoron. Li antaŭ momento tiun frazon konfidis al la papero kaj tio terurigis lin:
+Jen esperiga informo. Sed la penso pri la estonta fianĉiniĝo de lia mastrino, kun tiu kvardekjara, ne praktik-anta advokato kaj mizera nobelo, tiu junkraĉo, ĉiam premis lian humoron. Li antaŭ momento tiun frazon konfidis al la papero kaj tio terurigis lin:
 
 —Mia mastro, li skribis, estas artefarita barono, oni faris lin barono, lia blazono ankoraŭ odoras laŭ la farbo, sed en lia filino hejmas la vera nobeleco de la animo kaj li ne sentas la brilon, kiu radias el ĝi. Neniam ĝis nun min tiom pezis la promeso farita al mia patro. Venas momentoj, dum kiuj ĝi estas por mi turmentado … Debloux volis en ŝia ĉeesto meti guldenon en mian manon.
 
@@ -1791,29 +1490,17 @@ Mi ĝin faligis en la koton, fraŭlino Maleine tion vidis. ĉu estis hazarde aŭ
 
 ŝi havas koron … koron … multaj filinoj el la normandia nobelaro en komparo kun ŝi tute malaperas …
 
-La poŝtisto ĵus alportis per biciklo ekspres-leteron al la adreso de Eugène Longeois, ŝoforo sur la bieno ”La Blua Bero”. Estis rekomendita letero de notario Dupuis el Parizo. Kion volas Dupuis? Nun ne plu estas io por ordiĝi por la familio de Verd’Ile. Estis letero tripaĝa, en ministro-formato. La familio de Verd’Ile, tiel li skribis, estis unu el tiuj generacioj, al kiuj la antaŭa Francujo multe dankas. La Regna Tribunalo de la franca nobela-84
-
-BLUA SANGO
-
-
-ro proponis al la lasta posteulo de de Verd’Ile financan subtenon, en formo de senrentuma antaŭpago de kva-ronmiliono da frankoj …
+La poŝtisto ĵus alportis per biciklo ekspres-leteron al la adreso de Eugène Longeois, ŝoforo sur la bieno ”La Blua Bero”. Estis rekomendita letero de notario Dupuis el Parizo. Kion volas Dupuis? Nun ne plu estas io por ordiĝi por la familio de Verd’Ile. Estis letero tripaĝa, en ministro-formato. La familio de Verd’Ile, tiel li skribis, estis unu el tiuj generacioj, al kiuj la antaŭa Francujo multe dankas. La Regna Tribunalo de la franca nobelaro proponis al la lasta posteulo de de Verd’Ile financan subtenon, en formo de senrentuma antaŭpago de kva-ronmiliono da frankoj …
 
 Longeois konis tian helpon. Li reenkovertigis la leteron.
 
 —ĉu almozo? Dankon!
 
-Li iris al la herbejo, kiu limtuŝis kun la malantaŭa flanko de la parko. La vespero estis tiel hela, ke li povis vidi de ĉe la bariero malproksime la loĝejon de Joosten, kaj ankoraŭ pli malproksime la turpinton de la vilaĝa pre-
-
-ĝejo. Estis sonĝo, tia vespero, ekstra donaco de Dio. Tiel mi volus sonĝi ĉi tie dum mia tuta vivo. Li klare distingis la altajn lekantojn, la trifolion kaj la okzalon; la luno briligis la arĝentan flankon de la salikfolietoj kaj vesper-to preskaŭtuŝe cirkle preterflugis lin. Kaj en tiu ĉi varmeta somernokto li decidis: li ne plu volas resti ĉi tie. Estis granda eraro liaflanke, foriri al la malvarma Nederlando.
+Li iris al la herbejo, kiu limtuŝis kun la malantaŭa flanko de la parko. La vespero estis tiel hela, ke li povis vidi de ĉe la bariero malproksime la loĝejon de Joosten, kaj ankoraŭ pli malproksime la turpinton de la vilaĝa preĝejo. Estis sonĝo, tia vespero, ekstra donaco de Dio. Tiel mi volus sonĝi ĉi tie dum mia tuta vivo. Li klare distingis la altajn lekantojn, la trifolion kaj la okzalon; la luno briligis la arĝentan flankon de la salikfolietoj kaj vesper-to preskaŭtuŝe cirkle preterflugis lin. Kaj en tiu ĉi varmeta somernokto li decidis: li ne plu volas resti ĉi tie. Estis granda eraro liaflanke, foriri al la malvarma Nederlando.
 
 Se li do estas kondamnita resti servisto dum sia tuta vivo, tiam plivole sub la radianta Afrika ĉielo, en Alĝerio, kie li jam kiel dek ses jara knabo partoprenis al karavan-vojaĝoj, kie li ĉiujare pasigis sian ferion, vagante dum semajnoj sub la ardanta varmega suno.
 
-Senprokraste li intencis efektivigi sian decidon kaj skribi leteron al la barono. Morgaŭ estos tro malfrue, ĉar tiam laŭkontrakte komenciĝos nova dungperiodo. Rap-85
-
-BLUA SANGO
-
-
-ide li trairis la longan mallarĝan kverkaleon, kiu kondukis rekte al la lageto kaj tie, je kelkaj paŝoj de la bastonegponto, konstruita trans la mallarĝa parto de la ana-slageto, staris Maleine. Li devis ŝin preterpasi. Sed li sentis sin kaptita de ia neklarigebla maltrankvilo, tiel ke li haltis kaj nenian vorton povis eligi.
+Senprokraste li intencis efektivigi sian decidon kaj skribi leteron al la barono. Morgaŭ estos tro malfrue, ĉar tiam laŭkontrakte komenciĝos nova dungperiodo. Rapide li trairis la longan mallarĝan kverkaleon, kiu kondukis rekte al la lageto kaj tie, je kelkaj paŝoj de la bastonegponto, konstruita trans la mallarĝa parto de la ana-slageto, staris Maleine. Li devis ŝin preterpasi. Sed li sentis sin kaptita de ia neklarigebla maltrankvilo, tiel ke li haltis kaj nenian vorton povis eligi.
 
 —ĉu vi kredis vidi aperon de somerfantomo?
 
@@ -1837,9 +1524,7 @@ Maleine silentis, faris kelkajn paŝojn malantaŭen kaj per la disetenditaj brak
 
 —Fraŭlino!
 
-Jen ĉio, kion Longeois povis diri. Li vidis, ke ŝi metas 86
-
-BLUA SANGO
+Jen ĉio, kion Longeois povis diri. Li vidis, ke ŝi metas
 
 
 la manon al la okuloj. ŝiaj ŝultroj skuiĝas. Tiam ŝi volis foriri. Sed li petegis:
@@ -1850,9 +1535,7 @@ Tiam ŝi pasie sin ĵetis al lia brusto kaj plorĝemis:
 
 —Mi ne plu povas silenti. Ho, estas terurege, ke mi ne povas min regi, sed la angoro, ke vi foriros, kaŭzas, ke mi perdas sntrolon.
 
-—Fraŭlino, kion vi faras? Regu vin. Morgaŭ vi bedaŭ-
-
-ros tion, kion vi nun diras!
+—Fraŭlino, kion vi faras? Regu vin. Morgaŭ vi bedaŭros tion, kion vi nun diras!
 
 —Neniam, neniam mi tion bedaŭros, se vi, se … vi ne bedaŭras. Diru vian opinion. Nun vi certe min juĝas tre malvirta.
 
@@ -1870,9 +1553,7 @@ Li rigardis ŝin en la okuloj kaj mallaŭte diris: Maleine!
 
 —Maleine … serviston!
 
-—Ne diru tion! Mi ne rigardas vin servisto. Se vi nur scius, kiel eminenta vi estas en miaj okuloj, eminenta 87
-
-BLUA SANGO
+—Ne diru tion! Mi ne rigardas vin servisto. Se vi nur scius, kiel eminenta vi estas en miaj okuloj, eminenta
 
 
 pro via energio, pro via forto, pro via fiereco. Ho, mi tiel ofte vin admiris!
@@ -1899,9 +1580,7 @@ pro via energio, pro via forto, pro via fiereco. Ho, mi tiel ofte vin admiris!
 
 —Mi vin amas, Maleine, mi tion sentis de post la unua momento kiam mi vin vidis, kaj nun mi ankaŭ scias, de kie venis tiu maltrankvilo en mi, kiu estus repelinta min al Francujo, se tiu ĉi horo ne estus veninta. Sed mi volas resti honesta kaj ĉion diri al via patro …
 
-—Poste, poste, atentu, ne jam nun, tio kaŭzus akci-denton kaj mi ne povas toleri, ke paĉjo estu tiel kruda 88
-
-BLUA SANGO
+—Poste, poste, atentu, ne jam nun, tio kaŭzus akci-denton kaj mi ne povas toleri, ke paĉjo estu tiel kruda
 
 
 kontraŭ vi. Promesu al mi, ke vi silentos, ĝis kiam mi vin avertos, promesu tion al mi!
@@ -1929,9 +1608,6 @@ Kaj ŝi vokdiris al la kuracisto:
 —Ho, ho, balbutis la kuracisto, mi ne venas kiel kuracisto, mi venas kiel interesulo.
 
 
-BLUA SANGO
-
-
 —Tiam donu al mi vian brakon, mi vndukos ĝis la barilpordo.
 
 En sama momento malluma ombro glitis de malantaŭ la rododendraj arbustoj, je kelkmetra distanco de la bariero de la herbejo en kiu Reginald I kaj II nun kiel dresitaj, trankvilaj bestoj, kuŝis revante. La ombro glitis antaŭen, de unu malluma angulo al alia, kaj saltmanie-re sekvis Longeois, kiu interne ĝojegante pro la feliĉiga deklaro de Maleine malrapide reiris enpense al la pavilono, kies pordo kaj fenestroj ankoraŭ estis larĝe malfermitaj. Nun li, malgraŭ la varmeta vespero ilin fermis. Li volis esti sola kun sia granda feliĉo, ĉar nun klareco estis veninta inter li kaj tiu bela, sincera infano, nun li sentis sian amon, larĝa, grandioza kaj nobla. Novan limon li preterpasis, nun komencis timige-bela periodo en lia vivo … ”Mi iĝos via edzino, nun aŭ poste”, ŝi diris. La edzino de iu, kiu laŭfinance ne estas pli ol almozulo. ĉu ne estus pli honeste, pli saĝe, malkaŝe stari antaŭ barono d’Hainquart kaj diri al li: via ŝoforo estas grafo George de Verd’Ile, via filino kaj mi nin amas reciproke …
@@ -1940,9 +1616,7 @@ Sed, ĉu la promeso, kiun li faris al sia patro? …
 
 Kaj multe pli grava kialo postulos lian silenton por ĉiam …
 
-Tiu ombro ekstere estis ŝtelirinta ĝis apud la fenestro kaj kaŝrigardis enen. Estis longa, fuŝaspekta viro kun nigra, mallonga stopla barbo, ĉapo kun fendita viziero 90
-
-BLUA SANGO
+Tiu ombro ekstere estis ŝtelirinta ĝis apud la fenestro kaj kaŝrigardis enen. Estis longa, fuŝaspekta viro kun nigra, mallonga stopla barbo, ĉapo kun fendita viziero
 
 
 profunde sur la frunto, la bluzkolumon sub la maldika vesto malfermita, tiel ke parto de lia nuda brusto estis videbla. Kiam li vidis la ŝoforon de la barono sola, la kapon kontraŭ la apogilo de la kana seĝo, la okulojn fermitaj … li frapetis mallaŭte kontraŭ la fenestra vitro.
@@ -1963,9 +1637,7 @@ Nun la frapado iom pli laŭte sonis. Longeois sin turnis, faris paŝon al la fen
 
 —ĉu Hektor?
 
-—Jes, mi estas Hektor. Nomu min laŭ mia dua nomo, precize kiel antaŭe … Mi estas Adolf … Nur ne rigardu 91
-
-BLUA SANGO
+—Jes, mi estas Hektor. Nomu min laŭ mia dua nomo, precize kiel antaŭe … Mi estas Adolf … Nur ne rigardu
 
 
 tiel idiote. Estas nun simpla fakto … Kaj vi, ĉu vi eĉ ne diras ”bonan vesperon”?
@@ -1992,14 +1664,10 @@ Longeois rigardis sian fraton malestime:
 
 —Mia Dio, Adolf, kio do fariĝis el vi?
 
-—Jes, tion mi jam ĝis-enue demandis al mi mem. Kaj 92
-
-BLUA SANGO
+—Jes, tion mi jam ĝis-enue demandis al mi mem. Kaj
 
 
-nun mi rezignis. Mi demandis, ĉu vi havas ion por man-
-
-ĝi?
+nun mi rezignis. Mi demandis, ĉu vi havas ion por manĝi?
 
 Silente Longeois iris al la malgranda ŝranko kaj diris, tremante tra la tuta korpo:
 
@@ -2023,9 +1691,7 @@ Longeois revenis, kun granda griza ĉevalpano.
 
 Kiam la pli juna malĝoje rigardis al sia frato, li memoris la vortojn de sia mortanta patro:
 
-—Se vi iam renkontos Hektor-Adolf, tiam pripensu, 93
-
-BLUA SANGO
+—Se vi iam renkontos Hektor-Adolf, tiam pripensu,
 
 
 ke vi estas el sama sango. Estu bona por li. Sed, kiel tio devus okazi ĉi tie? Li nun staras antaŭ terura elekto.
@@ -2065,9 +1731,6 @@ Tiam mi iun batis per seĝo sur la kapo …
 —ĉu danko? ĉu vi eĉ postulas dankon?
 
 
-BLUA SANGO
-
-
 —Jes, certe. ĉar mi senigis vin ĉiujn de mia persono.
 
 Kiam mi vidis, ke nenio restis por manĝi, mi iris en la mondon; mi forigis de mia patro la zorgojn por mi. Vi konservis vian ĉevalon, vi konservis vian serviston … Mi subskribis dumsesjaran kontrakton en la Fremdula Legio nur por akiri manĝon, vestojn kaj monon. La fatalo faris el mi ŝtelrompiston, almozulon, kaj el vi stalserviston … la diferenco ne estas granda.
@@ -2090,9 +1753,7 @@ Kiam mi vidis, ke nenio restis por manĝi, mi iris en la mondon; mi forigis de m
 
 George fariĝis mortpala kaj konvulsie pugnigis siajn manojn en siaj pantalonpoŝoj.
 
-—Estas bela, blanka kolombeto, daŭrigis la viraĉo, sed tio ĉi tamen ne estas la maniero de ”granda nobelo” ĉar 95
-
-BLUA SANGO
+—Estas bela, blanka kolombeto, daŭrigis la viraĉo, sed tio ĉi tamen ne estas la maniero de ”granda nobelo” ĉar
 
 
 se ŝia patro tion ekrimarkos … sian filinon en lunlumo kun la stalservisto, tiam li subite vin forpiedfrapos!
@@ -2103,9 +1764,7 @@ se ŝia patro tion ekrimarkos … sian filinon en lunlumo kun la stalservisto, t
 
 —Bone, diris George, subite venkinte sian emocion; vi devigas min flankenmeti ĉiun sentargumenton. Por kio vi venis tien ĉi?
 
-—Nu, per diablo, tion mi jam diris al vi. Unue mi venis por manĝi. Tion vi bonege aranĝis. Kaj li denove buŝ-
-
-prenis pecon de la malmola pano. Plie vi devas kaŝi min dum kelkaj tagoj, malpli danĝeran rifuĝejon ol ĉi tie mi nenie trovos, ĉar la plej ruza detektivo ne konjektos, ke mi estas gasto de mia frato.
+—Nu, per diablo, tion mi jam diris al vi. Unue mi venis por manĝi. Tion vi bonege aranĝis. Kaj li denove buŝprenis pecon de la malmola pano. Plie vi devas kaŝi min dum kelkaj tagoj, malpli danĝeran rifuĝejon ol ĉi tie mi nenie trovos, ĉar la plej ruza detektivo ne konjektos, ke mi estas gasto de mia frato.
 
 —Bone, imagu, ke mi prenas la rajton kaŝi vin ĉi tie, nepetinte konsenton de mia mastro.
 
@@ -2113,20 +1772,13 @@ prenis pecon de la malmola pano. Plie vi devas kaŝi min dum kelkaj tagoj, malpl
 
 —Pro kio? ĉu vi eble kredas, ke mi fierus pro la honoro, prezenti vin kiel mian fraton?
 
-—Nu, unu frato devas engluti maldolĉan pilolon por helpi la alian. Kaj vi per tio min helpas, vi per tio certigas mian liberecon, vi per tio evitas gravajn aferojn, ĉar, se oni kaptus min kaj kondukus en malliberejon … min, la estontan bofraton de nobelino d’Hainquart … Vi pre-96
-
-BLUA SANGO
-
-
-fere ŝparu al via karulino tiun skandalon. Por mi tio ne gravos. Mi kutimiĝis al ĉiaj malliberejoj.
+—Nu, unu frato devas engluti maldolĉan pilolon por helpi la alian. Kaj vi per tio min helpas, vi per tio certigas mian liberecon, vi per tio evitas gravajn aferojn, ĉar, se oni kaptus min kaj kondukus en malliberejon … min, la estontan bofraton de nobelino d’Hainquart … Vi prefere ŝparu al via karulino tiun skandalon. Por mi tio ne gravos. Mi kutimiĝis al ĉiaj malliberejoj.
 
 George sentis kvazaŭ la fatalo lin kaptis ĉe la brusto, tiel krude, tiel venene ĝi lin atakis, ke li metis la manojn antaŭ la vizaĝon kaj pro doloro senforte falsidis en sian seĝon. Li kvazaŭ el ĉielo ekfalis en abismon. Antaŭ apenaŭ unu horo lia animo ĝojkriis: Ho, kiel la vivo estas belega! Maleine! Maleine! Kaj nun, satano propraperso-ne penetris ĉe li, sin ĵetis sur lin kaj minacis lin sufoki.
 
 —Ne estu tiel infana, li aŭdis, ni ne jam finparolis.
 
-Estu saĝa; per lamentado ni ne progresos. Mi devas esti helpata, mi estas en embaraso, kiel rato sur subakvi-
-
-ĝanta ŝipo. Danĝero ekzistas por via bonfama nobela nomo, kaj por mia libereco, eble por mia vivo. Ni do klopodu akordiĝi.
+Estu saĝa; per lamentado ni ne progresos. Mi devas esti helpata, mi estas en embaraso, kiel rato sur subakviĝanta ŝipo. Danĝero ekzistas por via bonfama nobela nomo, kaj por mia libereco, eble por mia vivo. Ni do klopodu akordiĝi.
 
 —Parolu, raŭke diris George.
 
@@ -2142,9 +1794,7 @@ Estu saĝa; per lamentado ni ne progresos. Mi devas esti helpata, mi estas en em
 
 —Monon mi ne posedas. ĉion, kion mi perlaboris, mi sendis al la notario por pagi malnovajn ŝuldojn.
 
-—Mire, mire, ridis la fripono, kiel honeste povas esti 97
-
-BLUA SANGO
+—Mire, mire, ridis la fripono, kiel honeste povas esti
 
 
 la homa koro! Sed vi certe scias rimedon por akiri monon.
@@ -2174,9 +1824,6 @@ Kaj la pli juna, komprenante, ke eĉ lia promeso farita al lia patro estis misuz
 —Jes!
 
 
-BLUA SANGO
-
-
 ĉapitro sepa
 
 LA LASTA EL MALNOVA
@@ -2196,14 +1843,9 @@ Kaj George kapskuis, kiam li vidis sian fraton tiel trankvile. Kiel mistera ja e
 —ĉu vi ankaŭ rifuzas peti al via mastro antaŭpagon?
 
 
-BLUA SANGO
-
-
 —Jes, absolute.
 
-—Tiam mi havas alian proponon. La notario proponis al vi akcepti de la franca kavaliraro senrentuman antaŭ-
-
-pagon.
+—Tiam mi havas alian proponon. La notario proponis al vi akcepti de la franca kavaliraro senrentuman antaŭpagon.
 
 —Kiel vi scias tion?
 
@@ -2215,12 +1857,7 @@ George de Verd’Ile krucigis la brakojn kaj ekstaris antaŭ sia frato.
 
 — Jes, jes, tion mi tre bone povas imagi, sed tiaj objektoj estas por persono, kia mi, luksaĵoj, ĉar mi jam diris al vi, ke mi riskas mian liberecon, eĉ mian vivon. Mi volas lasi vin trankvile laboregi kiel … nobelo-servisto, sed por tio vi devas oferi ion. Klopodu akiri kelkajn milojn da frankoj por mi, kaj morgaŭ mi foriros al Sud-Ameriko …
 
-Je tiu ĉi momento sonis bato, kvazaŭ iu tirfermis por-100
-
-BLUA SANGO
-
-
-don. La du viroj silentis kaj Adolf mekanike sin premis dorse kontraŭ la muro malantaŭ la duonmalfermita pordo. George iris eksteren kaj aŭdis iun supreniri la ŝtuparon de la garaĝo. Estis Dirk, kiu, iomete ebria, tiel malfrue revenis el la vilaĝo kaj nun iris liten. George faris signon al sia frato, antaŭiris al la stalo kaj montris al li lian rifuĝejon:
+Je tiu ĉi momento sonis bato, kvazaŭ iu tirfermis pordon. La du viroj silentis kaj Adolf mekanike sin premis dorse kontraŭ la muro malantaŭ la duonmalfermita pordo. George iris eksteren kaj aŭdis iun supreniri la ŝtuparon de la garaĝo. Estis Dirk, kiu, iomete ebria, tiel malfrue revenis el la vilaĝo kaj nun iris liten. George faris signon al sia frato, antaŭiris al la stalo kaj montris al li lian rifuĝejon:
 
 —Restu tie ĝis mallumiĝos; se mi povas, mi alportos al vi manĝaĵojn.
 
@@ -2229,9 +1866,6 @@ Tiam liaj nervoj estis eluzitaj. Li falkuŝiĝis sur sian li-ton kaj kaŝis sian
 Ne necesas dubi pri tio: se tiu ekscius, kiu sin kaŝas super lia stalo, li tuj telefonus al la polica esplorservo, kaj tiam la plena vero malkaŝiĝus …
 
 Ho, tio estus frenezige!
-
-
-BLUA SANGO
 
 
 —Mi perdos Maleine, mi devos cedi ŝin al la fatalo, li ploris mallaŭte kaj metis sian ungojn en la kusenon.
@@ -2244,9 +1878,7 @@ Kiel nedireble kruela povas esti la vivo. i kontrasti-gis du fratojn, infanojn d
 
 Sonis brueto. La bieno ”La Blua Bero” ekvekiĝis. La hundoj bojis; en la malproksimo, en la herbejo blekis unu el la ĉevaloj; la fenestrojn de la subteretaĝo oni ĵet-malfermis; iu fajfis, estis Frits. Blekis bovo kaj alaŭdo flugis ĝojkantante renkonte al la suno. Antaŭen, diris George al si mem … Eugène Longeois devas fari sian devon.
 
-Li sin levis, iris al la lavpelvo en sia dormĉambro kaj tenis sian kapon sub la akvokrano. Tio iomete refreŝigis 102
-
-BLUA SANGO
+Li sin levis, iris al la lavpelvo en sia dormĉambro kaj tenis sian kapon sub la akvokrano. Tio iomete refreŝigis
 
 
 lin; donis al li forton por vidi pli klare la situacion. Li malfermis la du fenestrojn kaj la pordon, ekbruligis ci-garedon kaj iris en la parkon. Estis nur unu vojo …
@@ -2257,12 +1889,7 @@ Li devis kun la aŭtomobilo veturi al Arnhem por akcepti la baronon. Tio estis a
 
 ĝis la fulmobrilo disŝiros la nubojn por alporti lumon.
 
-Tiu solvo venis, neatendite kaj kun konfuziga rapideco, kiel la fulmo, kiu venas el malhela ĉielo kaj bruege terenbatas ĉion, kio troviĝas sur sia vojo. Tri tagoj for-103
-
-BLUA SANGO
-
-
-pasis en plej granda nervstreĉado. Nur unufoje li vidis Maleine. ŝi staris inter la malfermitaj balkonpordoj de la flanka ĉambro, kie ŝi ofte sidis antaŭ la fortepiano. George ĵus volis iri al la benzino-gardejo, kiam li vidis ŝin.
+Tiu solvo venis, neatendite kaj kun konfuziga rapideco, kiel la fulmo, kiu venas el malhela ĉielo kaj bruege terenbatas ĉion, kio troviĝas sur sia vojo. Tri tagoj forpasis en plej granda nervstreĉado. Nur unufoje li vidis Maleine. ŝi staris inter la malfermitaj balkonpordoj de la flanka ĉambro, kie ŝi ofte sidis antaŭ la fortepiano. George ĵus volis iri al la benzino-gardejo, kiam li vidis ŝin.
 
 Li tamen ne suprenrigardis kaj subite blanka rozo falis precize antaŭ liaj piedoj. Li rapide ĝin levprenis kaj kaŝis en sia bluzo. La vetero tiun vesperon estis malkvietega.
 
@@ -2274,9 +1901,7 @@ La viro, kiu super la stalo pasigis jam longajn tagojn dormante aŭ kuŝante, a�
 
 Ekenuas al mi tiu kavalir-ludado sur pajlejo. George estas tre malcedema homo. ĉe la fraŭlino li ne kuraĝas iom peti, sian pronaskiĝan rajton li ne forpruntas kaj li mem nenion posedas.
 
-Nun fortega ventpuŝo frakasis la du plej grandajn vitrojn de la ĉambroĝardeno. La viro subtegmenta aŭdis 104
-
-BLUA SANGO
+Nun fortega ventpuŝo frakasis la du plej grandajn vitrojn de la ĉambroĝardeno. La viro subtegmenta aŭdis
 
 
 la falbruon de la vitropecoj sur la mozaika planko kaj diris:
@@ -2287,12 +1912,7 @@ Li rampis trans la altamasigitaj faskoj da pajlo al la tegmenta-fenestreto, ĝin
 
 Kion oni tie faras? Li vidis maljunan serviston vestitan en verda-kun-ora livreo, kiu estis surnajlanta kartonon antaŭ la granda rompita vitro. ĉio aspektis sufiĉe bela.
 
-Pendis lustro, estis kvazaŭ arĝentaj floroj. Mire: Estas ĉambroaranĝo kiel ĉe paĉjo de Verd’Ile. Kio troviĝus malantaŭe? En tiu verando? En tiu familiaĉambro, en tiu salono? ĉu arĝentaĵoj? ĉu akcioj? ĉu mono? Jes, valorus la penon iri tien por rigardi. La kartonon oni facile povas forpuŝi. Io devas okazi, tio estas certa. Libereco estas tre agrabla, sed ĉi tie la vivo fariĝos eĉ pli monoto-105
-
-BLUA SANGO
-
-
-na ol en la punkolonio. Hodiaŭ vespere ni ĵetos la lot-kubojn. Eble mi ĵetos duoble ses. Mi rapide iru malsupren kaj forprenu la ŝlosilon, antaŭ ol la nobelulstalservis-to ŝlosos la pordon.
+Pendis lustro, estis kvazaŭ arĝentaj floroj. Mire: Estas ĉambroaranĝo kiel ĉe paĉjo de Verd’Ile. Kio troviĝus malantaŭe? En tiu verando? En tiu familiaĉambro, en tiu salono? ĉu arĝentaĵoj? ĉu akcioj? ĉu mono? Jes, valorus la penon iri tien por rigardi. La kartonon oni facile povas forpuŝi. Io devas okazi, tio estas certa. Libereco estas tre agrabla, sed ĉi tie la vivo fariĝos eĉ pli monotona ol en la punkolonio. Hodiaŭ vespere ni ĵetos la lot-kubojn. Eble mi ĵetos duoble ses. Mi rapide iru malsupren kaj forprenu la ŝlosilon, antaŭ ol la nobelulstalservis-to ŝlosos la pordon.
 
 La ventegforto kulminis tiun nokton. Sonis krakado, poste tondranta bato: la plej peza kaj plej maljuna arbo el la parko elradikiĝis kaj peze falis teren. La viro en la pajlo pensis: Tian abomenan veteron mi eĉ en Alĝerio ne travivis. Sed iom post iom pli kaj pli kvietiĝis. Ankoraŭ kelkaj ekblovoj, kaj tiam la terura vetero estis pasinta.
 
@@ -2307,23 +1927,16 @@ li foriros, laŭeble plej rapide, tio ilin ambaŭ elembarasi-gos. Li ne jam kura
 Ankoraŭ du horojn kaj tiam tagiĝos. Antaŭ tiu tempo li devas esti preta. Nun li provos. Feliĉe, estis mallumege.
 
 
-BLUA SANGO
-
-
 La mallumo kvazaŭ lin englutis. Li nenion povis vidi. Tre bone! Li antaŭe sufiĉe sin orientis. Dudek foje certe, kaŝobservante tra la iom malfermita subtegmenta fenestreto, li image serĉis la vojon tra la arbaro al la bieno, kaj paŝkvante taksis la distancon de arbo al arbo. Lia krimula instinkto certe lndukos, palpante, jen per la maldekstra, jen per la dekstra etendita mano, li singarde metis la piedojn, haltante de tempo al tempo, por aŭskulti senspire, li antaŭenpaŝis ĝis al la perono. Sur manoj kaj piedoj li suprenrampis. Bojis hundo … li sur la ventro kuŝiĝis ĝis la bruo haltis. Tiam li palpis la muron de la ĉambro. Bone … li staris tuj antaŭ la mal-fermaĵo, kiun kaŭzis la ventego. Li palpis la kartonon, premis singarde. Angulo jam maltenis. La cetero estis facila, nun li estis en la domo. Nun, li dum momenteto povis eklumigi sian lanternon. Jen pordo. i estis larĝe malfermita … Bone, bone, li diris, oni plifaciligas mian laboron. Estas, kvazaŭ oni invitis min. Mi klopodu eniri la familian ĉambron.
 
-Tio ne estis facile. Li devis per dika ferfadeno, kiun li elpoŝigis, repuŝi la ŝlosilon, kiu ĉe la ekstera flanko de la veranda pordo troviĝas en la seruro, kaj poste malfermi aksseruron. Tio sukcesis. Se oni ne povas fari tion, oni prefere restu hejme. Nun li estis en la halo, en kiu troviĝas la pordo de la familia ĉambro. Kaj tuj, kiam li estis en la ĉambro kaj lumigis sian lanternon, li rimarkis, 107
-
-BLUA SANGO
+Tio ne estis facile. Li devis per dika ferfadeno, kiun li elpoŝigis, repuŝi la ŝlosilon, kiu ĉe la ekstera flanko de la veranda pordo troviĝas en la seruro, kaj poste malfermi aksseruron. Tio sukcesis. Se oni ne povas fari tion, oni prefere restu hejme. Nun li estis en la halo, en kiu troviĝas la pordo de la familia ĉambro. Kaj tuj, kiam li estis en la ĉambro kaj lumigis sian lanternon, li rimarkis,
 
 
 ke ne vane li venis. En momento li malfermis la bufed-tirkeston kaj li metis en siaj poŝoj la arĝentajn kulerojn kaj forkojn, ĉion, kio nur similis arĝenton. La pasio agi-tis lian sangon kaj li spiregis; monon, monon mi devas trovi; monon por vestoj; por hotelo, por motoro, por mia transiro al Argentino. Li iris al nigra antikva bulpieda ŝranko; ĝi estis fermita, sed per sia ŝtelŝlosilo li certe
 
 ĝin malfermos. Liaj okuloj ardis, lia kapo bategis, li nur bezonis preni, preni, sed monon li ne vidis. Liaj fingroj serĉpalpis la belegan damaskon, kelkajn luksajn skato-lojn kun puntaj porfingraj tuketoj. Jen du pezaj arĝentaj buŝtukringoj ornamitaj per ora familia blazono. Subite dika libro falis sur la planko, biletoj disfalis … mono, papera mono, kvin biletoj de kvardek guldenoj kaj kelkaj de ducent guldenoj … sendube por la mastrumado, aŭ, la salajro de la servistaro. Bulŝtope li metis la biletojn en sian pantalonpoŝon. Ankoraŭ pli da arĝentaĵo staris malsupre en la ŝranko: tortŝoveliloj, tranĉilstabletoj, sukerpreniloj … tion li metu en la tukon. Nun li esplor-rigardu, kio estas en la aliaj ĉambroj.
 
-Subite sonis ekfrapo, super lia kapo. ĉu oni tie mal-dormas? ĉu oni ellitiĝis. Jes, super lia kapo iu iras. Klare la piedoj ektuŝas la plankon. Nun li rapide foriru: Domaĝe, la komenco estis tiel prospera! Rapide kaj lerte li ŝtelreiris tien, de kie li venis kaj en sekvanta minuto denove staris en la malluma parko. ĉi tie li aŭskultis. ĉu 108
-
-BLUA SANGO
+Subite sonis ekfrapo, super lia kapo. ĉu oni tie mal-dormas? ĉu oni ellitiĝis. Jes, super lia kapo iu iras. Klare la piedoj ektuŝas la plankon. Nun li rapide foriru: Domaĝe, la komenco estis tiel prospera! Rapide kaj lerte li ŝtelreiris tien, de kie li venis kaj en sekvanta minuto denove staris en la malluma parko. ĉi tie li aŭskultis. ĉu
 
 
 estis senkaŭza alarmo? Super li subite eklumis lampo.
@@ -2351,9 +1964,6 @@ Mi mem vin transdonos al la polico!
 —Tion vi ne faros! Flankeniru! Lasu min foriri!
 
 
-BLUA SANGO
-
-
 —Neniam!
 
 —George, flankeniru, pripensu, kion vi faras!
@@ -2375,9 +1985,6 @@ Sed pli rapide ol li supozis, la luktado finis en lia profito. Li sin eltiris el
 Kio okazis? La atakinto ne plu penis sin levi. Li aspektis griz-pala kaj liaj okuloj malrapide fermiĝis.
 
 
-BLUA SANGO
-
-
 —Mia Dio … mi … mi … balbutis George … li mortas!
 
 Li falis sur ambaŭ genuoj ĉe li, levetis lian kapon:
@@ -2392,19 +1999,11 @@ emante la korpo de Adolf refalis sur la dorso kaj restis senmova. Eke George sta
 
 —Kio nun? Kio nun Kio nun pri ni, Maleine?
 
-Restis ankoraŭ nur unu vojo: la forkuro! Resti ĉi tie signifas submergiĝi en la mizero, por si mem kaj por Maleine. Li ĉirkaŭrigardis. Sub la lito staris lia malgranda valizo. Li enpakis kelkajn objektojn, tiam li prenis el la tirkesto de sia ŝranko la monon, kiun li ankoraŭ posedas, iom da tolaĵo … velkitan floron, la blankan rozon, kiun ŝi antaŭ kelkaj tagoj ĵetis antaŭ liajn piedojn. Nun ĉio por li estis perdita, pasinto kaj estonto. Sur lia generacio kuŝis malbeno! La sorto eĉ ne permesis al li la kon-tentecon plenumi promeson al mortinto. Li devis iri for de ĉi tie, hodiaŭ nokte, malproksimen, malproksimen, al la Sudo, al Afriko; ne gravas kien. Li metis la ŝlosilon sur la tablon, lastfoje rigardis al la senmova korpo sur la planko kaj tiam, kvazaŭ treega timo lin ekkaptis, li rapi-111
-
-BLUA SANGO
-
-
-degis el la domo, tra la parko, al la bariero en la aleo …
+Restis ankoraŭ nur unu vojo: la forkuro! Resti ĉi tie signifas submergiĝi en la mizero, por si mem kaj por Maleine. Li ĉirkaŭrigardis. Sub la lito staris lia malgranda valizo. Li enpakis kelkajn objektojn, tiam li prenis el la tirkesto de sia ŝranko la monon, kiun li ankoraŭ posedas, iom da tolaĵo … velkitan floron, la blankan rozon, kiun ŝi antaŭ kelkaj tagoj ĵetis antaŭ liajn piedojn. Nun ĉio por li estis perdita, pasinto kaj estonto. Sur lia generacio kuŝis malbeno! La sorto eĉ ne permesis al li la kon-tentecon plenumi promeson al mortinto. Li devis iri for de ĉi tie, hodiaŭ nokte, malproksimen, malproksimen, al la Sudo, al Afriko; ne gravas kien. Li metis la ŝlosilon sur la tablon, lastfoje rigardis al la senmova korpo sur la planko kaj tiam, kvazaŭ treega timo lin ekkaptis, li rapidegis el la domo, tra la parko, al la bariero en la aleo …
 
 renkonten al nekonata estonto.
 
 Kontraŭ la trunkoj de la arboj la leviĝanta suno brilis pli bele ol iam antaŭe.
-
-
-BLUA SANGO
 
 
 ĉapitro oka
@@ -2417,9 +2016,7 @@ Kio? ĉu kuleroj? ĉu arĝentaj kuleroj kaj forkoj? Ili kuŝas altamase apud div
 
 —Eugène, venu fulmrapide. ĉi tie io okazis!
 
-Li ne aŭdis respondon, volis eniri, sed pro ektimo faris paŝon malantaŭen. Li preskaŭ falegis pro la piedoj de korpo, kiu tie kuŝas sternita sur la planko. ĉu tio estas Eugène? Li denove paŝis antaŭen, rigardis la vizaĝon de la mortinto. Ne, tiu ne estas Eugène. Tiu ĉi vizaĝo havas 113
-
-BLUA SANGO
+Li ne aŭdis respondon, volis eniri, sed pro ektimo faris paŝon malantaŭen. Li preskaŭ falegis pro la piedoj de korpo, kiu tie kuŝas sternita sur la planko. ĉu tio estas Eugène? Li denove paŝis antaŭen, rigardis la vizaĝon de la mortinto. Ne, tiu ne estas Eugène. Tiu ĉi vizaĝo havas
 
 
 stoplan barbon. Kaj tamen … Kaj tamen … la saman nazon, la saman buŝon! Li iris tuj por voki helpon, lamis tiel rapide, kiel li povis, al la subteretaĝo. La servistinoj jam ellitiĝis. Clement kaj Frits ĵus malsupreniris la ŝtuparon. Momenton poste ili ĉiuj rapidegis el la kuirejo al la ŝoforloĝejo kaj nun ili staris, treege terurigitaj, kiel mutuloj densare antaŭ la malfermifa pordo.
@@ -2434,9 +2031,7 @@ stoplan barbon. Kaj tamen … Kaj tamen … la saman nazon, la saman buŝon! Li 
 
 —Nenio mankas, li tremdiris …
 
-La barono jam ree estis el la ĉambro, li volas vidi la 114
-
-BLUA SANGO
+La barono jam ree estis el la ĉambro, li volas vidi la
 
 
 fremdulon, kiu kuŝas en la pavilono sur la planko. Frits kaj Dirk estis antaŭirintaj, returne al loko de la murdo kaj la barono postvokis ilin: Nenion tuŝu! Atendu, ĝis la polico ĉeestos. Ankaŭ barono d’Hainquart staris tie ĉi antaŭ nesolvebla problemo:
@@ -2451,16 +2046,9 @@ Malantaŭ li staris silente ĉiuj geservistoj kaj neniu el ili sciis klarigon. L
 
 Du viroj en civilaj vestoj metis siajn biciklojn kontraŭ la flanka muro, salutis ĝentile la baronon, kaj neparolante ili komencis sian esploron. Nek unu nek la alia povis ion diri pri la identeco de la murdito. Ili traserĉis la vestojn. La buloj de bankbiletoj aperis el la dekstra pantalonpoŝo. Tiun monon kaj la trovitajn arĝentaĵojn ili juĝe prenis. Tiam komencis la juĝa demandado kaj en tiu momento envenis en la pavilonon fraŭlino Maleine.
 
-—Infano, kriis barono d’Hainquart, foriru! Ne rigardu al tio, kio kuŝas sur la planko. ĵetu tukon sur tiun viza-
+—Infano, kriis barono d’Hainquart, foriru! Ne rigardu al tio, kio kuŝas sur la planko. ĵetu tukon sur tiun vizaĝon! Foriru, Maleine, mi ne volas, ke ĉi tio kaŭzas al vi nervmalsanon.
 
-ĝon! Foriru, Maleine, mi ne volas, ke ĉi tio kaŭzas al vi nervmalsanon.
-
-—Vi eraras, paĉjo, diris Maleine simple: mi ne estas tiel sentema, kiel vi pensas, mi ne plu povus havi kvie-115
-
-BLUA SANGO
-
-
-tan momenton, se ne estus permesate al mi, scii kio ĉi tie okazis. Mi aŭdis Clement paroli pri murdo.
+—Vi eraras, paĉjo, diris Maleine simple: mi ne estas tiel sentema, kiel vi pensas, mi ne plu povus havi kvietan momenton, se ne estus permesate al mi, scii kio ĉi tie okazis. Mi aŭdis Clement paroli pri murdo.
 
 —Mi deziras, ke vi iru al via ĉambro.
 
@@ -2483,9 +2071,6 @@ Estis al Maleine kvazaŭ ponardon oni puŝegis en ŝian bruston. Clement alflust
 ekkverelis pri la divido de la ŝtelita arĝentaĵo. Ili certe baraktis. Rigardu, kiel malorde estas ĉi tie, la tablo ŝo-viĝis ĝis kontraŭ la fenestro. Rigardu, tiu policano jus levprenas pecon de kolumo, hel-bruna kolumo, kian Eugène ĉiam portis.
 
 
-BLUA SANGO
-
-
 Maleine sentis kvazaŭ ŝia sango malfluidiĝas. Kion ŝi aŭdis, estis tiel terura, tiel monstra, ke ŝi devis ekkapti per ambaŭ manoj la ŝultron de Eveline por ne sveni.
 
 —Sed, rekonduku do la fraŭlinon, nun krudvoĉe ordonis la barono, ĉu vi ne vidas, ke ŝi ne plu povas stari sur siaj piedoj? Mi jam avertis!
@@ -2494,12 +2079,7 @@ Eveline kaj Clement subtenis Maleine, sed ŝi liberigis sin kaj reiris, sekvata 
 
 ĉi tie ŝi sin turnis kaj diris:
 
-—Lasu min sola, mi bezonas neniun el vi. Kaj dum la du viroj provizore juĝdemandadis ĉiujn membrojn de la servistaro sur la loko kie okazis la mortigo, Maleine iris al la unua etaĝo kaj sin enŝlosis en sia ĉambro. ĉi tie ŝi sentis, ke la okazintaĵo ŝin trafis tro neatendite. ŝi ekkaptis la randon de sia litkadro kaj sur ĝi apogsidiĝis. ŝi sentis sin profunde, profunde malfeliĉa kaj … morte ofendita. En la belega spontanea ekfloro de sia amo por la juna viro de sia elekto, ŝi spitus siajn patron, nomon, rangon, se Eugène sin montrus inda je ŝi. Dum la pasinta nokto ŝi estis ellitiĝinta. Dormi ŝi ne povis. La feliĉo ŝin superfluis. ŝi devis pensi, ade pensi pri tio. ŝi premis sian frunton kontraŭ la vitro kaj rigardis al la furioze svingantaj arbopintoj. Tiam ŝi kredis vidi silueton en la parko, staturon, kiu similas al tiu de Longeois. Por montri, ke ŝi maldormis, ŝi estis lumiginta sian ĉambron. ĉu tiu staturo … estus la ŝtelisto, kiu kun Longeois kunlabo-117
-
-BLUA SANGO
-
-
-ris kaj kiu poste de li estis murdita? Tiu kolumpeco apartenis al Eugène, sendube. Sed, se Longeois intencis ŝteli, li ne bezonis atendi la helpon de kunkulpulo … Aŭdiĝis paŝoj sur la ŝtuparo. La barono suprenvenis. Li frapetis sur la pordo de ŝia ĉambro:
+—Lasu min sola, mi bezonas neniun el vi. Kaj dum la du viroj provizore juĝdemandadis ĉiujn membrojn de la servistaro sur la loko kie okazis la mortigo, Maleine iris al la unua etaĝo kaj sin enŝlosis en sia ĉambro. ĉi tie ŝi sentis, ke la okazintaĵo ŝin trafis tro neatendite. ŝi ekkaptis la randon de sia litkadro kaj sur ĝi apogsidiĝis. ŝi sentis sin profunde, profunde malfeliĉa kaj … morte ofendita. En la belega spontanea ekfloro de sia amo por la juna viro de sia elekto, ŝi spitus siajn patron, nomon, rangon, se Eugène sin montrus inda je ŝi. Dum la pasinta nokto ŝi estis ellitiĝinta. Dormi ŝi ne povis. La feliĉo ŝin superfluis. ŝi devis pensi, ade pensi pri tio. ŝi premis sian frunton kontraŭ la vitro kaj rigardis al la furioze svingantaj arbopintoj. Tiam ŝi kredis vidi silueton en la parko, staturon, kiu similas al tiu de Longeois. Por montri, ke ŝi maldormis, ŝi estis lumiginta sian ĉambron. ĉu tiu staturo … estus la ŝtelisto, kiu kun Longeois kunlaboris kaj kiu poste de li estis murdita? Tiu kolumpeco apartenis al Eugène, sendube. Sed, se Longeois intencis ŝteli, li ne bezonis atendi la helpon de kunkulpulo … Aŭdiĝis paŝoj sur la ŝtuparo. La barono suprenvenis. Li frapetis sur la pordo de ŝia ĉambro:
 
 —Maleine! Maleine!
 
@@ -2528,9 +2108,6 @@ demandis la pli aĝa tre ĝentile.
 —Kia estis lia karaktero? ĉu koleriĝema, ekfuriozema?
 
 —ĉu vi permesas, ke mi respondu anstataŭ la fraŭli-no? demandis la barono, kiu ĉeestis la esplordemanda-don. Tiu junulo neniam plaĉis al mi. Li estis iom fiera, iom pedanta, kelkfoje eĉ iom kaŝmalica.
-
-
-BLUA SANGO
 
 
 —Tio ne estas vera, patro, diris Maleine.
@@ -2562,9 +2139,6 @@ Momenton Maleine hezitis. ŝia patro fikse, eĉ esplo-re rigardis ŝin. Se ŝi d
 ĉu li eble estis ebria?
 
 
-BLUA SANGO
-
-
 —Li neniam eliras kaj neniam trinkas alkoholaĵon.
 
 —Kie li estis hieraŭvespere? ĉu vi ankoraŭ vidis lin?
@@ -2591,25 +2165,16 @@ Tiam foriris la du policanoj. En la koridoro ŝi aŭdis, ke unu el ili al ŝia p
 
 —Neeble. La letero estas skribita sur la leterpapero de grafo de Verd’Ile kaj la koverto sigelita per lia blazono: la lilio kaj la glavo …
 
-Kelkajn momentojn poste la viroj estis for. Maleine restis sola en la malgranda akceptĉambro. ŝi ŝlosis la pordon, sin falmetis ĉe la fenestro, apogis la kapon sur la mano. Pli ol unu horon ŝi restis tiel sidanta, serĉante 120
-
-BLUA SANGO
+Kelkajn momentojn poste la viroj estis for. Maleine restis sola en la malgranda akceptĉambro. ŝi ŝlosis la pordon, sin falmetis ĉe la fenestro, apogis la kapon sur la mano. Pli ol unu horon ŝi restis tiel sidanta, serĉante
 
 
 solvon de ĉi tiu dramo. Kiu estas la murdito? Pro kio forkuris Longeois? Kian rilaton Eugène havis antaŭe al tiu mizera viraĉo? ŝi ne povis kredi je lia kulpo, ŝi ne povis supozi ke li faris malnoblaĵon. Se ŝi ne supozus en li noblan animon, noblan karakteron, ŝi neniam estus konfesinta sian amon. Instinkte ŝi tiam estus sentinta malinklinon je li. Kiajn aranĝojn la patro nunmomente prenus? ĉu oni telegrafis kaj telefonis al la landlimo por aresti Longeois? Kompreneble neniam li sukcesos atingi Parizon. Li parolis nederlande kun forta franca akcento.
 
 Tio jam tuj lin perfidus. Kaj poste … la malliberejo! ŝi ne povis imagi tion al si. Eugène, por kiu ŝia juna nobla animo estis ekflorinta, kiel floro en sunlumo, ĉu lin ŝi vidos, katenita kiel murdisto, antaŭ la juĝisto?
 
-Ne, ne, tio estus tro kruela, neeble tio estus! Kaj la doloro ŝin superfortis. ŝi metis la manojn antaŭ la viza-
+Ne, ne, tio estus tro kruela, neeble tio estus! Kaj la doloro ŝin superfortis. ŝi metis la manojn antaŭ la vizaĝon, dolorkliniĝis kaj ekplorĝemis.
 
-ĝon, dolorkliniĝis kaj ekplorĝemis.
-
-Intertempe la polica esplorservo agadis. Tuj oni sendis sciigon por serĉado kaj aresto al ĉiuj direktoj. La personpriskribo de la ŝoforo de barono d’Hainquart estis sufiĉe konata en la najbarejo. La kuracisto Drom, la maljuna, bonkora vilaĝkuracisto, faris la nekropsion. La korpo de la murdito estis transportita al la malgranda malsanulejo en Groenlo, kaj ĉion oni provis por konstati la identecon de la viktimo. Dum la traserĉo oni trovis en lia poŝo kelkajn francajn monerojn kaj kelkajn mal-121
-
-BLUA SANGO
-
-
-grandajn ŝtelrompilojn. Laŭeble longtempe oni prokrastis la enterigon: ankoraŭ pliajn fotografaĵojn oni faris; sed la kadavron oni devis enterigi, nesciante pluajn de-talojn pri la persono.
+Intertempe la polica esplorservo agadis. Tuj oni sendis sciigon por serĉado kaj aresto al ĉiuj direktoj. La personpriskribo de la ŝoforo de barono d’Hainquart estis sufiĉe konata en la najbarejo. La kuracisto Drom, la maljuna, bonkora vilaĝkuracisto, faris la nekropsion. La korpo de la murdito estis transportita al la malgranda malsanulejo en Groenlo, kaj ĉion oni provis por konstati la identecon de la viktimo. Dum la traserĉo oni trovis en lia poŝo kelkajn francajn monerojn kaj kelkajn malgrandajn ŝtelrompilojn. Laŭeble longtempe oni prokrastis la enterigon: ankoraŭ pliajn fotografaĵojn oni faris; sed la kadavron oni devis enterigi, nesciante pluajn de-talojn pri la persono.
 
 —Por malsanulo forto, por kokido la morto: diris lama Dirk al la du ĝendarmoj, kiuj esploris la ĉirkaŭaĵon de la bieno.
 
@@ -2625,12 +2190,7 @@ grandajn ŝtelrompilojn. Laŭeble longtempe oni prokrastis la enterigon: ankora�
 
 —Nu … iru al trinkejo ”La ŝarĝveturilo” kaj kraĉu en la glaseton … se ĝi estas malplena.
 
-Post ofenda rido li forlamis kaj trairis la parkon, al la subteretaĝo, kie la terura okazintaĵo estis kaŭzinta tiom da emocio, ke nur pri la murdo oni parolis jam dum kel-122
-
-BLUA SANGO
-
-
-kaj tagoj. Oni ĉion supozis kaj ĉiuj samopiniis, ke Eugè-
+Post ofenda rido li forlamis kaj trairis la parkon, al la subteretaĝo, kie la terura okazintaĵo estis kaŭzinta tiom da emocio, ke nur pri la murdo oni parolis jam dum kelkaj tagoj. Oni ĉion supozis kaj ĉiuj samopiniis, ke Eugè-
 
 ne kaj la vagabondo antaŭe komplotis kaj poste malpa-cis. Nur Evelino pensis alie:
 
@@ -2649,9 +2209,6 @@ ne ne ĝin reportis, kiam li, elaŭtomobiliĝante ĝin vidis kuŝi sur la tero?
 —Li pravas, diris Dirk, li ege timis, ke oni forrabos de li fraŭlinon Maleine.
 
 —Tion oni certe iam faros. Mi almenaŭ ne deziras lin kun tiu frunto — ĝis — la kalkanoj!
-
-
-BLUA SANGO
 
 
 —Nu, Clement, kriis Dirk, kion mi diris al vi? ŝi ankaŭ jam enamiĝis. Kaj ĉu vi, Netje, kaj ĉu vi, Hortense?
@@ -2674,9 +2231,7 @@ Maleine kun malestima indigno rigardis sian patron kaj denove sentis akradolore 
 
 ĝis apopleksio, simple pro la fakto, ke Clement perdigis vian ĉemizbutoneton, dum perdita homo absolute ne vin interesas.
 
-—Sed, mia kara infano, se mi devus havi zorgojn pri 124
-
-BLUA SANGO
+—Sed, mia kara infano, se mi devus havi zorgojn pri
 
 
 pasinteco kaj estonteco de ĉiuj, kiuj min servis, mi mem ne plu havus unu kvietan minuton. Mi estonte skrupule informiĝos pri la pasinteco de la nova servistaro, kiun mi dungos.
@@ -2697,12 +2252,7 @@ La barono denove ŝin mire rigardis de la kapo ĝis la piedoj.
 
 —Li ne estas fripono! Almenaŭ ne Eugène.
 
-—Denove Eugène! Vi do donu alian nomon por tiu virspeco. Dum la provizora esploro vi ankaŭ estis tiel protektema kaj la malkovro, ke vi interparoladis vespere kun tiu … tiu ŝoforo kaj flatpetadis lin ne eksiĝi, Malei-125
-
-BLUA SANGO
-
-
-ne, mi senkaŝe diras al vi: mi havis grandan penon por forigi en mi aĉan degradantan penson. Tio tamen al mi sukcesis, sed mi petegas vin, ne ŝajnigu, ke vi, eĉ kontraŭ via konv, volas senkulpigi Longeois.
+—Denove Eugène! Vi do donu alian nomon por tiu virspeco. Dum la provizora esploro vi ankaŭ estis tiel protektema kaj la malkovro, ke vi interparoladis vespere kun tiu … tiu ŝoforo kaj flatpetadis lin ne eksiĝi, Maleine, mi senkaŝe diras al vi: mi havis grandan penon por forigi en mi aĉan degradantan penson. Tio tamen al mi sukcesis, sed mi petegas vin, ne ŝajnigu, ke vi, eĉ kontraŭ via konv, volas senkulpigi Longeois.
 
 —Estas mia konv kaj ĉiam restos mia konv: Eugène estas senkulpa. Tion al mi diras mia koro.
 
@@ -2727,9 +2277,6 @@ Tiam mi parolos kun li.
 Barono d’Hainquart foriris. Li estis feliĉa, ĉar almenaŭ por postmorgaŭ li povis garantii al la junkro interparoladon kun sia filino. Sed li ne rimarkis, ke la konsento de Maleine entenas minacon.
 
 
-BLUA SANGO
-
-
 Du tagojn poste, precize je la interkonsentita horo, la belega aŭtomobilo de Debloux traveturis la parkon de
 
 ”La Blua Bero”. Clement akceptis Debloux kaj portis grandan korbon da diantoj kun nomkarteto el la aŭtomobilo al la ĉambro de Maleine. ŝi rigardis el sia fenestro, kaj diris laŭte al si mem: Mi ne povas pli longe ludi tiun komedion. Mi amas Eugène … kaj daŭre lin amos.
@@ -2744,9 +2291,7 @@ Estas do kompreneble, ke li, ĉi tiun fojon, aspektis kiel princo en festkostumo
 
 —Ne, fraŭ … Maleine, vi ne eraras. Ne estas kavalire, se iu el la generacio Debloux petegas iom da kompato, sed, ho, Maleine, se vi scius … tiun ĉi tagon, tiun ĉi horon …
 
-—Sinjoro Debloux, mi scias tiel multe, ke mi ne scias, 127
-
-BLUA SANGO
+—Sinjoro Debloux, mi scias tiel multe, ke mi ne scias,
 
 
 pri kio mi unue devas paroli. Tamen tio ĉi sufiĉos. Vi amas min kaj deziras min je via edzino.
@@ -2772,9 +2317,6 @@ Regis ĝenanta silento. Tiam, li hezitante diris:
 Debloux riverencis kaj eliris la salonon. En la halo lin atendis la patro de Maleine. Al ĉi tiu li neparolante premis la manon, prenis mem siajn surtuton, kaj ĉapelon kaj forlasis la bienon.
 
 
-BLUA SANGO
-
-
 ĉapitro naŭa
 
 NOKTA VIZITO
@@ -2783,9 +2325,7 @@ La gazetoj precize informis siajn legantojn pri la murdo en la bieno ”La Blua 
 
 Sed multaj tagoj pasis kaj nenian postsignon oni trovis. Tamen Longeois restis en la ĉirkaŭaĵo de Groenlo.
 
-Kiam li dum tiu terura nokto forlasis la bienon, lia unua penso estis: forkuri al Francujo, al la norda marbordo de Afriko. Kiam li estos tie, tiam neeble oni lin trovos. En 129
-
-BLUA SANGO
+Kiam li dum tiu terura nokto forlasis la bienon, lia unua penso estis: forkuri al Francujo, al la norda marbordo de Afriko. Kiam li estos tie, tiam neeble oni lin trovos. En
 
 
 la Alĝeria dezerto estas miloj da rifuĝejoj, kiujn neniu eŭropa policano trovos, kiujn ili eĉ neniam kuraĝos eniri.
@@ -2796,29 +2336,20 @@ Ne pro tiu subteno li timas malkovron, sed pro la mo-ralaj sekvoj, precipe pro M
 
 jen la farmejo de Verkruisen, kelkajn kilometrojn pluen la kampara restoracio ”La Genistmonto” kaj poste la preĝeja turo de Groenlo estas videbla super la arbetaĵo.
 
-Li sciis, ke ĉe la angulo de la pinarbaro staras grandega ŝtipamaso. Estus facile, fari en ĝi rifuĝejon por la tago kaj por la nokto, precipe por la tago. Li tion ne pro-krastu. Oni nun certe jam trovis la korpon de Adolf kaj la arĝentaĵojn en la herbo. Dirk kaj Frits jam antaŭ la kvina kaj duono ĉiam estas en la stalo. Oni certe avertis la baronon, la policon oni telefonos kaj tiam oni tuj ekserĉos la murdinton. Tial li iris al la alta ŝtipamaso, fortiris ĉe la flanko de la pinarboj kelkajn grandajn radi-130
-
-BLUA SANGO
-
-
-kojn, tiel ke formiĝis longa truo. Se li ĝvros per kelkaj erikaj tufoj kaj per velkitaj folioj, li almenaŭ havos taŭgan kuŝejon kaj neniu tie lin serĉos. Li eĉ povas fermi sian rifuĝejon kaj tiam li tamen havos sufiĉe da aero.
+Li sciis, ke ĉe la angulo de la pinarbaro staras grandega ŝtipamaso. Estus facile, fari en ĝi rifuĝejon por la tago kaj por la nokto, precipe por la tago. Li tion ne pro-krastu. Oni nun certe jam trovis la korpon de Adolf kaj la arĝentaĵojn en la herbo. Dirk kaj Frits jam antaŭ la kvina kaj duono ĉiam estas en la stalo. Oni certe avertis la baronon, la policon oni telefonos kaj tiam oni tuj ekserĉos la murdinton. Tial li iris al la alta ŝtipamaso, fortiris ĉe la flanko de la pinarboj kelkajn grandajn radikojn, tiel ke formiĝis longa truo. Se li ĝvros per kelkaj erikaj tufoj kaj per velkitaj folioj, li almenaŭ havos taŭgan kuŝejon kaj neniu tie lin serĉos. Li eĉ povas fermi sian rifuĝejon kaj tiam li tamen havos sufiĉe da aero.
 
 Se li ĉi tie restos kelkajn tagojn, la atentemo de la polico ne plu estos tiel granda. Sed, kiam li kuŝis kelkajn horojn en sia rifuĝejo kaj serioze pripensis la situacion, li ŝanĝis sian planon. Li ne povis suferi la penson, ke Maleine kredus lin la murdinto. Li ne estas murdinto. Li sin defendis kontraŭ sia frato, kiu certe estus trapikin-ta lian koron, se li ne estus ĵeteginta lin for de si. Eble li ne estas senviva kaj nur senskonscia. Eble li nur pro sia timo vidis la mortkoloron sur lia vizaĝo. Kiel ajn estu …
 
 Maleine ne havu la opinion, ke li estas kulpa. Li devas klopodi paroli kun ŝi, tute sola, antaŭ sia foriro. Subite li tamen sentis, ke tio ne eblas. Li devas skribi al ŝi, sed kiamaniere, neriskante, ke lia letero venos en aliaj manoj? Ankaŭ tio ne estas ebla. Li meditis dum longaj horoj, sed ne taŭga ideo venis en liaj pensoj. Tamen, li diris al si mem, mi ne volas foriri por ĉiam, dum ŝi pensas, ke mi estas la murdinto.
 
-Finfine li ekhavis ideon. Certe estus danĝera entre-preno, sed ĝi estis la ununura. Li devas dumnokte viziti sinjoron Drom, la maljunan, bonkoran kuraciston kaj al tiu li devas rakonti, kio okazis, ke Adolf … Ne, ne, neeble! Adolf devas resti tutfremdulo por ĉiu. Li solene 131
-
-BLUA SANGO
+Finfine li ekhavis ideon. Certe estus danĝera entre-preno, sed ĝi estis la ununura. Li devas dumnokte viziti sinjoron Drom, la maljunan, bonkoran kuraciston kaj al tiu li devas rakonti, kio okazis, ke Adolf … Ne, ne, neeble! Adolf devas resti tutfremdulo por ĉiu. Li solene
 
 
 promesis al sia patro, prisilenti la nomon de Verd’Ile. Tiu nomo devas resti pura kaj senmakulata.
 
 Tute ne necesas, ke Maleine sciu, kiu li estas. Se ŝi nur tute konvinkiĝas, ke Eugène Longeois ne estas la murdinto, tiam George de Verd’Ile povos foriri por ĉiam por serĉi en Alĝerio la forgesitecon. Li klopodos alproksimiĝi ĉi tiun nokton al la domo de la kuracisto. Tiu kuracisto estu lia peranto, estu li, kiu transdonu al Maleine lian sciigon, se eble, perletere.
 
-Kaj George de Verd’Ile restis en sia rifuĝejo ĝis malfrue en la nokto. Ne unu gluton da akvo, ne pecon da pano li povis konsumi dum dudek kvar horoj. La angoro por malkovro forprenis de li la malsaton. Li kuŝis en sia malmola rifuĝejo, jen sur unu, jen sur alia flanko. Li povis rigardi laŭlonge de la arbotrunko, kiu fermas la enirejon de lia rifuĝejo, trans la erikejo ĝis la farmdomoj kaj la nunaj domoj de Groenlo. Li aŭdis la skuadon de la radoj de kamparanaj veturiloj, la bojadon de hundoj, kaj kelkaj rajdantoj, — eble ĝendarmoj iris laŭlonge de la alia flanko de la ŝtipamaso al la erikejo. George retenis la spiron, ĉar li aŭdis la interparoladon de la du rajdantoj kaj eĉ la krakadon de la jungilaro. Daŭris terure longe antaŭ ol krepuskiĝis, sed fine fariĝis mallume. Nun la loko fariĝis multe pli soleca. Neniu plu laboris sur la kampoj aŭ en la arbaro, la kamparanoj estis hejme. Nun li povis forlasi dum kelkaj momentoj sian rifuĝejon kaj 132
-
-BLUA SANGO
+Kaj George de Verd’Ile restis en sia rifuĝejo ĝis malfrue en la nokto. Ne unu gluton da akvo, ne pecon da pano li povis konsumi dum dudek kvar horoj. La angoro por malkovro forprenis de li la malsaton. Li kuŝis en sia malmola rifuĝejo, jen sur unu, jen sur alia flanko. Li povis rigardi laŭlonge de la arbotrunko, kiu fermas la enirejon de lia rifuĝejo, trans la erikejo ĝis la farmdomoj kaj la nunaj domoj de Groenlo. Li aŭdis la skuadon de la radoj de kamparanaj veturiloj, la bojadon de hundoj, kaj kelkaj rajdantoj, — eble ĝendarmoj iris laŭlonge de la alia flanko de la ŝtipamaso al la erikejo. George retenis la spiron, ĉar li aŭdis la interparoladon de la du rajdantoj kaj eĉ la krakadon de la jungilaro. Daŭris terure longe antaŭ ol krepuskiĝis, sed fine fariĝis mallume. Nun la loko fariĝis multe pli soleca. Neniu plu laboris sur la kampoj aŭ en la arbaro, la kamparanoj estis hejme. Nun li povis forlasi dum kelkaj momentoj sian rifuĝejon kaj
 
 
 iom promeni en la arbaro. La malsato terure lin ekkaptis, la malsato kaj la soifo. Li sopiris treege al peco da pano, sed li ne kuraĝis tiel frue iri al Groenlo. Ankoraŭ kelkajn horojn li devas atendi. Tiam estis nokto. Li singarde iris tra la pinarbaro, trans la erikejo, evitis la kampdomon de Verkruisen kaj prenis la sablovojon ĝis la ŝoseo. Estis bonŝanco por li, ke sinjoro Drom loĝas ĉe la ekstera flanko de la urbeto. Se li nur estas hejme, ĉar la servistinoj certe avertos la policon, se ili rimarkas, kiu noktmeze venas ĉe la kuracisto. Dank’ al Dio; Li vidis lumon malantaŭ la du grandaj fenestroj ĉe la ĝardena flanko de la malmoderna domo. Do, la kuracisto estas ankoraŭ en sia konsultejo. Silueto ŝovis sin malantaŭ la kurteno. Estis la larĝa, klinita staturo de la kuracisto.
@@ -2832,9 +2363,6 @@ Li premis la elektran sonoril-butonon ĉe la antaŭpordo, aŭdis pordon malfermi
 —Ne ektimu pro mi, sinjoro.
 
 —Diable, post tio kio okazis pasintan nokton. Pro kio vi venas ĉi tien?
-
-
-BLUA SANGO
 
 
 —Por paroli kun vi unu minuton.
@@ -2861,9 +2389,7 @@ Sinjoro Drom zorge fermis ĉiujn fenestro-kovrilojn de la domo kaj reveninte en 
 
 Sidiĝu. Kiel malbone vi aspektas! Kiel vi ja povis fari tion! Mi vin kredis — ĝis hieraŭ — la plej bonmaniera junulo, kiun la barono iam havis en sia servo. Kaj nun tiel neatendite: ŝtelrompo kaj murdo!
 
-—Mi diris al vi kaj mi kuraĝas ĵuri tion per ĉio, kio estas kara al mi, la honoro kaj la memoro al mia patro, per la honoro de … fraŭlino Maleine, ke mi nek ŝtelis, 134
-
-BLUA SANGO
+—Mi diris al vi kaj mi kuraĝas ĵuri tion per ĉio, kio estas kara al mi, la honoro kaj la memoro al mia patro, per la honoro de … fraŭlino Maleine, ke mi nek ŝtelis,
 
 
 nek iun murdis. Male, ke la barono retrovis siajn arĝentaĵojn kaj monon, tio estas mia laboro. Mi malhelpis, ke la ŝtelisto forkuros kun la ŝtelitaĵo. Mi baris la vojon al li, ekkaptis lin ĉe la brusto; ni baraktis, kaj poste, por savi mian propran vivon, ĉar la ŝtelrompisto estis preninta sian tranĉilon, mi ĵetegis lin for de mi … tiam eble sekvis lia morto. Sed ne per mia kulpo kaj kontraŭ mia volo!
@@ -2872,16 +2398,9 @@ Sinjoro Drom longtempe kaj fikse rigardis la vizaĝon de Longeois. Tio, kion la 
 
 —ĉu vi konis la viron, kiu vin atakis?
 
-Daŭris momenton, antaŭ ol Longeois respondis. Li batalis kontraŭ si mem. La amo por Maleine, la respekto por la memoro al lia patro kaj precipe, lia promeso al lia mortinta patro batalis kun la sopiro sin senkulpigi. Sed se malkovriĝus, kiu li mem estas kaj kiu estas la ŝtelrompisto, tiam li mem finbatus propramane la amon de Maleine. La frato de fripono neniam povos fariĝi la edzo de nobla infano kiel Maleine. Lia nobela fiero kontraŭ-
+Daŭris momenton, antaŭ ol Longeois respondis. Li batalis kontraŭ si mem. La amo por Maleine, la respekto por la memoro al lia patro kaj precipe, lia promeso al lia mortinta patro batalis kun la sopiro sin senkulpigi. Sed se malkovriĝus, kiu li mem estas kaj kiu estas la ŝtelrompisto, tiam li mem finbatus propramane la amon de Maleine. La frato de fripono neniam povos fariĝi la edzo de nobla infano kiel Maleine. Lia nobela fiero kontraŭstaris tion. Tial li diris:
 
-staris tion. Tial li diris:
-
-—Jes, mi konis tiun viron, sed mi neniam elparolos lian nomon, eĉ ne se oni min arestus kaj ankaŭ ne por reakiri mian propran liberecon. Mi estas senkulpa. Mi tion ĵuras al vi, al maljuna, griza kuracisto, kiun mi alt-135
-
-BLUA SANGO
-
-
-estimas: Mi venis por petigi al vi enmanigi al fraŭlino Maleine letereton, kiun mi skribos. Jen ĉio. Se vi volas fari tion por mi, tiam mi dumvive min sentos via ŝuldan-to.
+—Jes, mi konis tiun viron, sed mi neniam elparolos lian nomon, eĉ ne se oni min arestus kaj ankaŭ ne por reakiri mian propran liberecon. Mi estas senkulpa. Mi tion ĵuras al vi, al maljuna, griza kuracisto, kiun mi altestimas: Mi venis por petigi al vi enmanigi al fraŭlino Maleine letereton, kiun mi skribos. Jen ĉio. Se vi volas fari tion por mi, tiam mi dumvive min sentos via ŝuldan-to.
 
 La kuracisto staris serioze enpensa. Tiam li mallaŭte diris:
 
@@ -2897,9 +2416,7 @@ Longeois volontege akceptis tiun proponon kaj skribis kelkajn liniojn:
 
 Maleine,
 
-Mi forkuras, ĉar resti signifus detrui vian amon por mi kaj do ankaŭ vian vivon; ĉar mi scias: vi povas ami nur unufoje. Adiaŭ! Dankon pro la plej granda feliĉo, kiun mi travivis ĉe vi dum unu momento. Estis fatamorgano. Se 136
-
-BLUA SANGO
+Mi forkuras, ĉar resti signifus detrui vian amon por mi kaj do ankaŭ vian vivon; ĉar mi scias: vi povas ami nur unufoje. Adiaŭ! Dankon pro la plej granda feliĉo, kiun mi travivis ĉe vi dum unu momento. Estis fatamorgano. Se
 
 
 eble, forgesu min. Eĉ se ĉiu ŝajno estas kontraŭ mi, tiu, kiu skribas ĉi tion, ne estas murdinto.
@@ -2928,9 +2445,7 @@ Devigante Longeois trinki kelkajn pokalojn da lakto, li skuis la kapon, dirante:
 
 —Tiu fatala historio ŝajnas al mi granda enigmo. Vi ion por mi kaŝas. Prefere parolu senkaŝe, mia knabo, tio vin kvietigos.
 
-Sinjoro Drom provis sian malnovan elprovitan rimedon: Li tuŝis la koron de la animpaciento. Sed nun la rimedo malsukcesis. Longeois kapskuis kaj silentis. Li manĝis kelkajn pantranĉaĵojn, sed negustumante kion li 137
-
-BLUA SANGO
+Sinjoro Drom provis sian malnovan elprovitan rimedon: Li tuŝis la koron de la animpaciento. Sed nun la rimedo malsukcesis. Longeois kapskuis kaj silentis. Li manĝis kelkajn pantranĉaĵojn, sed negustumante kion li
 
 
 manĝas kaj malgaje rigardante autaŭ si. Subite la kuracisto metis ambaŭ manojn sur la ŝultro, dirante:
@@ -2954,9 +2469,6 @@ Subite diris la kuracisto:
 —Bone, mi vin helpos forkuri. Kviete manĝu kaj trin-ku. Mi zorgos pri via letero. Mi donos al vi novan kostumon kaj mi veturigos vin en mia aŭtomobilo al Arnhem, tie mi vin adiaŭos por ĉiam.
 
 
-BLUA SANGO
-
-
 Longeois prenis la manon de la kuracisto kaj respekte ĝin kisis.
 
 —Ho, kiel bele sperti, ke ankoraŭ ekzistas homoj, kun granda animo, li diris kun franca spontaneeco.
@@ -2976,9 +2488,6 @@ Antaŭ sunleviĝo sinjoro Drom povis reveturi el Arnhem. Li donis al Longeois du
 —Mi ĝin prizorgos.
 
 
-BLUA SANGO
-
-
 Tiam eniris Longeois la duonluman urbon. Li rigardis post si. La ruĝa lumeto ĉe la malantaŭa flanko de la aŭtomobilo pli kaj pli malgrandiĝis kaj malaperis ĉirkaŭ angulo.
 
 —Dio donu, li mallaŭte diris al si mem, ke nun komenciĝu periodo en mia vivo, en kiu mi povos forgesi.
@@ -2988,9 +2497,6 @@ Mi prenos vagonaron ĝis la belga limo, kaj poste mi pie-de pluenvojaĝos.
 Dume sinjoro Drom reveturis kiel eble plej baldaŭ al sia oficloko. Li intencis ripozi kelkajn horojn antaŭ ol viziti kiel kutime la malsanulejon, kie li prizorgas la malriĉan pacientaron. Kiam li tie estos preta, li faros viziton pro intereso al ”La Blua Bero” kaj samtempe klopodos paroli kun Maleine sola. Sed estis kvazaŭ la diablo intervenis. La barono lin akceptis kaj ne plu lasis lin sola. Li eĉ ne petis permeson iri al la buduaro de la fraŭlino.
 
 Morgaŭ li ja revenos. Sed ankaŭ la sekvantan tagon li ne sukcesis interparoli kun Maleine. ŝi estis sciiginta per Eveline, ke ŝi neniun deziras akcepti kaj Drom denove sensukcese rehejmiĝis. Mi nun spertas, li diris al si, ke mi estas tro maljuna por fari tiajn laborojn, mi ne plu taŭgas kiel amkomisiulo. Dume, se tiuj du vere sin amas reciproke, tiam mi ne komprenas kial junkro Debloux ĉiam vizitas la fraŭlinon. Mi severe konsilos al Maleine sekreti tiun amon, ĉar ŝia patro certe krevos pro kolero, se li tion rimarkos.
-
-
-BLUA SANGO
 
 
 Kaj dum tri tagoj sinjoro Drom havis la leteron en la poŝo. Postmorgaŭ la barono havos konferencon en Hago, tiam li certe renkontos la fraŭlinon sola. Ankoraŭ do iom da pacienco. Sed kiam li tiun matenon estis forironta al ”La Blua Bero”, venis telefona sciigo pri akcidento pro disfalo de konstru-trabaĵo ĉe domo eksterur-ba. Laboristo tuj mortis, la aliaj du grave vundiĝis. Li tuj kuris al sia garaĝo, flankenpuŝis la ĝardenistknabon, kiu estis puriganta la aŭtomobilon, kaj intencis forveturi.
@@ -3007,20 +2513,13 @@ Kaj ŝanĝante sian decidon, li diris:
 
 —Kaj atentu, ke ĝi ne malsekiĝu. Vi vidas, kiel pluvas.
 
-—Mi ĝin metos en mia ĉapo. Kaj antaŭ ol la kuracisto forveturis. Henriko jam estis forbiciklinta. Lama Dirk tiam estis tranĉanta la heĝon per granda tondilo. Apud lia ŝtupetaro kuŝis sur la tero ŝnurbulo, kiun li uzas por streki la bedrandojn, por poste detranĉi ilin per sia akra ŝovelilo. Li vidis la malsagacan kuracist-serviston alveni bicikle kaj pensis: tiun mi moktrompos. Kiam li bici-141
-
-BLUA SANGO
-
-
-klos laŭlonge de la heĝo, mi lin faligos en la herbon. Mi metos mian ŝnuron ĉirkaŭ branĉon en la heĝo, kaj malsupre ĉirkaŭ tiun betuleton, kaj tiam li nepre falos.
+—Mi ĝin metos en mia ĉapo. Kaj antaŭ ol la kuracisto forveturis. Henriko jam estis forbiciklinta. Lama Dirk tiam estis tranĉanta la heĝon per granda tondilo. Apud lia ŝtupetaro kuŝis sur la tero ŝnurbulo, kiun li uzas por streki la bedrandojn, por poste detranĉi ilin per sia akra ŝovelilo. Li vidis la malsagacan kuracist-serviston alveni bicikle kaj pensis: tiun mi moktrompos. Kiam li biciklos laŭlonge de la heĝo, mi lin faligos en la herbon. Mi metos mian ŝnuron ĉirkaŭ branĉon en la heĝo, kaj malsupre ĉirkaŭ tiun betuleton, kaj tiam li nepre falos.
 
 Okazis precize kion li antaŭvidis. La ŝnuro precize malantaŭ la antaŭrado suprensaltis kaj ekkaptis la den-tradon. Henriko svingiĝis kontraŭ la vojbordo, lia ĉapo antaŭenrulis kaj la letero falis en akvoflakon.
 
 —Tion vi faris, li kriis restariĝante … tion la barono sciu!
 
-—La barono certe tion sciu, azeno! sonis la incita respondo; mi limigas la vojon por memori ĝis kie mi bran-
-
-ĉotranĉis kaj vi preskaŭ min faligis de la ŝtupetaro. Por kiu estas tiu letero?
+—La barono certe tion sciu, azeno! sonis la incita respondo; mi limigas la vojon por memori ĝis kie mi branĉotranĉis kaj vi preskaŭ min faligis de la ŝtupetaro. Por kiu estas tiu letero?
 
 —Por la fraŭlino, Redonu, ĝi venas de la kuracisto.
 
@@ -3037,9 +2536,6 @@ Henriko estus ekplorinta, se li ne timus esti mokrida-ta, kaj petegis:
 —Tuj ĝin alportu. Sed donu ĝin nur al la fraŭlino mem. Tion al mi insiste ordonis la kuracisto.
 
 —Certe, kviete iru hejmen, mia kara. Mi sambone kiel vi povas ludi la rolon de leterportisto.
-
-
-BLUA SANGO
 
 
 Li levstarigis la malpuran biciklon, premis la ĉapon sur la kapon de la simplanima knabo kaj diris: Bonvojon al vi kaj salutojn!
@@ -3062,9 +2558,7 @@ ne oni aparte servu la manĝon.
 
 Diable, bedaŭrinde ke li ne jam havis tiun certecon, kiam li parolis kun la du ĝendarmoj, kiam ili lin riproĉis, ĉar li pli diris ol li povas prirespondi.
 
-Kion li faru per tiu bonega atesto? i certe havas grandan valoron por la fraŭlino. Certe, ŝi multe pagos, por ke la letero ne falu en la manoj de ŝia patro, ĉar, se 143
-
-BLUA SANGO
+Kion li faru per tiu bonega atesto? i certe havas grandan valoron por la fraŭlino. Certe, ŝi multe pagos, por ke la letero ne falu en la manoj de ŝia patro, ĉar, se
 
 
 tio okazus, tiam grava bruego ekfuriozus. Sed ankaŭ por la barono tiu dokumento multe valoras.
@@ -3072,9 +2566,6 @@ tio okazus, tiam grava bruego ekfuriozus. Sed ankaŭ por la barono tiu dokumento
 Li devas ruze, tre ruze eklabori. Li per tiu papero, en la mano povas klopodi por akiri la oficon de ŝoforo, de unua stalservisto. La pavilono de nun estos por li:
 
 ”Por malsanulo forto, por kokido la morto.”
-
-
-BLUA SANGO
 
 
 ĉapitro deka
@@ -3090,9 +2581,6 @@ Tiam li aperis, suriris la ŝtuparon, eniris la halon, kie Clement ĵus estis fo
 —ĉu pri personaj, sekretaj aferoj? Vi ĉiam havas personaĵojn kaj sekretaĵojn. Sed vi certe konsentos, ke an-taŭe la barono manĝas, ĉu ne?
 
 —Tion mi konsentas. Se vi jam nun volas anonci min, alie li havos tro multan dormon por paroli kun mi.
-
-
-BLUA SANGO
 
 
 —Revenu post duona horo.
@@ -3120,9 +2608,6 @@ Sed kvaronhoron poste tiun tedon anstataŭis granda streĉeco, ĉar Dirk komenci
 —Denove vi havas okazon por montri, ke miaj servoj plaĉas al vi. Vi denove serĉas alian ŝoforon, ĉar Frits estas tro nervema. Kun li vi ne kviete veturas.
 
 
-BLUA SANGO
-
-
 —Jes, tiel estas, Rapidu. Estas preskaŭ noktmezo, mi estas laca.
 
 —Mi venas por komuniki ion plej gravan al vi, kun la skriba pruvo, ke mi diras la veron.
@@ -3141,20 +2626,13 @@ BLUA SANGO
 
 —Sed, sed … ĉu vi devigas min? Mi ne toleras ĉan-taĝon en mia domo. Mi povas per la polico devigi vin tuj paroli.
 
-—Sinjoro barono, ni estas sen atestantoj. Se vi nun vokas la policon, tiam mi scias nenion, mi estas muta, mi antaŭe vin avertas. Kaj bela okazo forestos, por fari vian profiton per tio, kion mi estus dirinta … Nu, sinjoro ba-147
-
-BLUA SANGO
-
-
-rono, ne multe gravas, ke mi estas lama aŭ malbela.
+—Sinjoro barono, ni estas sen atestantoj. Se vi nun vokas la policon, tiam mi scias nenion, mi estas muta, mi antaŭe vin avertas. Kaj bela okazo forestos, por fari vian profiton per tio, kion mi estus dirinta … Nu, sinjoro barono, ne multe gravas, ke mi estas lama aŭ malbela.
 
 Kiam mi sidas en la aŭtomobilo, neniu tion rimarkas.
 
 —Vi estas fripono!
 
-—Vi ne insultu min, sinjoro. ĉu mi diru kelkajn vortojn pri tio, kion mi scias? Mi precize scias, kial la fraŭ-
-
-lino ne volas edziniĝi kun junkro Debloux.
+—Vi ne insultu min, sinjoro. ĉu mi diru kelkajn vortojn pri tio, kion mi scias? Mi precize scias, kial la fraŭlino ne volas edziniĝi kun junkro Debloux.
 
 —ĉu ankaŭ pri tio oni klaĉis en la kuirejo?
 
@@ -3174,9 +2652,7 @@ La barono estis tiel ekscitita, ke li tien kaj reen iris en la malgranda manĝos
 
 —Konsentite, diris Dirk. Kiam vi konos mian ŝoforan kapablecon, vi certe ne plu deziros alian … ne forgesu, mi havas vian honorvorton, la honoro de barono! … jen, bonvolu legi. i hodiaŭ matene falis el la ĉapo de la servisto de kuracisto Drom en pluvflakon. Tio kaŭzis, ke la koverto malfermiĝis, alie mi certe ne estus leginta tiun leteron, tion mi ĵuras!
 
-Barono d’Hainquart ne plu aŭskultis. Dirk ne troigis, 148
-
-BLUA SANGO
+Barono d’Hainquart ne plu aŭskultis. Dirk ne troigis,
 
 
 kiam li antaŭdiris, ke la barono estos perpleksa, se li ĉion scios.
@@ -3203,12 +2679,7 @@ La barono dum la parolado de la stalknabo falsidiĝis, la leteron en la mano. Ti
 
 Barono d’Haiquart iris tra la komunikiga pordo al sia ĉambro. ĉi tie li sin batis kontraŭ la frunto, kaj laŭtvoĉe parolis al si mem:
 
-—Kio nun? Kio nun? Tio estas la plej granda skanda-149
-
-BLUA SANGO
-
-
-lo, kiu povas makuli mian nomon. ĉion mi povis atendi, sed ne tion! Kaj tamen: estis kvazaŭ mi ion konjektis.
+—Kio nun? Kio nun? Tio estas la plej granda skandalo, kiu povas makuli mian nomon. ĉion mi povis atendi, sed ne tion! Kaj tamen: estis kvazaŭ mi ion konjektis.
 
 ŝi ĉiuokaze defendis tiun mizerulon, ŝi eĉ petis lin ne eksiĝi. Blinda mi estis, blinda! Kial mi ne pli frue tion malhelpis. Kaj por tia fripono ŝi rifuzas Debloux! Tio estas freneziga, tio estas …
 
@@ -3218,9 +2689,7 @@ Barono d’Hainquart sin ambaŭmane gratis en la haroj kaj plorĝemis:
 
 Fraŭlino d’Hainquart enamiĝis je sia … ŝoforo!
 
-Senpotenca kolero ekkaptis d’Hainquart. Li ambaŭ-
-
-mane prenis seĝon ĉe la apogilo kaj ĝin forĵetegis.
+Senpotenca kolero ekkaptis d’Hainquart. Li ambaŭmane prenis seĝon ĉe la apogilo kaj ĝin forĵetegis.
 
 —Kaj kiel tiu skandalo koncernas la kuraciston Drom?
 
@@ -3234,9 +2703,7 @@ Li sonorigis. Kaj Clement, dormeme, trensupreniris la ŝtuparon de la subtereta�
 
 —Tiam ŝi devas ellitiĝi! Mi volas tuj paroli kun ŝi.
 
-Clement riverencis kaj foriris. Maleine tamen ne estis 150
-
-BLUA SANGO
+Clement riverencis kaj foriris. Maleine tamen ne estis
 
 
 en sia lito. ŝi tiun tagon neniun volis akcepti, ĉar ŝi volis esti sola kun la libro, kiun Neeltje, la simpla kampa-ranino, al ŝi alportis, dirante:
@@ -3260,9 +2727,6 @@ Mallaŭte oni frapis sur la ĉambropordo.
 —La barono petas la fraŭlinon tuj veni.
 
 —Mi venos, Clement.
-
-
-BLUA SANGO
 
 
 ŝi zorge forŝlosis la libron kaj iris malsupren. Tuj ŝi vidis laŭ la trajtoj de sia patro, ke li estas furioza.
@@ -3295,18 +2759,14 @@ Lia voĉo tremis pro kolero, kiam li diris:
 
 d’Hainquart eksaltis al sia filino kun etenditaj manoj, kvazaŭ li volis ŝin ekkapti ĉe la gorĝo. Liaj fingroj tremante restis sub ŝiaj okuloj kaj lia vizaĝo ŝvelis violruĝa.
 
-Li eĉ ne unu vorton kapablis diri. Kolero, senpovo kaj 152
-
-BLUA SANGO
+Li eĉ ne unu vorton kapablis diri. Kolero, senpovo kaj
 
 
 doloro, ĉio samtempe plenigis lian gorĝon kaj minacis sufoki lin. Fine li eligis sian malbenon:
 
 —Knabinaĉo! Ho, se mi anstataŭ vi havus filon!
 
-Li levis la brakojn, serĉis apogon, falsidigis sin sur se-
-
-ĝon kaj plorante pro kolero diris:
+Li levis la brakojn, serĉis apogon, falsidigis sin sur seĝon kaj plorante pro kolero diris:
 
 —Vi … vi … nun vi sciu, ke neniam mi vin amis!
 
@@ -3326,9 +2786,7 @@ Vi estis por mi antaŭ ĉio ”barono” kaj plej lastloke ”patro”.
 
 —Sed mia Dio, kiajn pruvojn vi pri tio havas? Li estas bona ŝoforo, deca stalservisto, bona ĉevaldresisto, se vi preferas, jen ĉio! Mi ĉiam opiniis, ke fraŭlino d’Hainquart povis regi siajn sentojn dum la plej kritikaj momentoj, sed vi estas eĉ pli enamiĝema ol iu ajn knabinaĉo el popolkvartalo.
 
-Regis prema silento, longe kaj minace. Subite barono 153
-
-BLUA SANGO
+Regis prema silento, longe kaj minace. Subite barono
 
 
 d’Hainquart paŝis al sia filino, prenis ambaŭmane ŝian manon kaj petegis:
@@ -3358,9 +2816,6 @@ Kaj kiel ofendita infano li komencis plendi:
 —ĉiu en la domo estas kontraŭ mi. Vi ĉiuj mntraŭagas. Eĉ sinjoro Drom, kiu jam dudek jarojn estas mia familia kuracisto, komplotas kun mia servistaro. Jen: letero por vi, kiun li volis transdoni al vi per sia servisto, sen mia scio.
 
 
-BLUA SANGO
-
-
 Maleine volis ekkapti la leteron, sed ŝia patro retiris sian manon:
 
 —Tiun leteron mi ne transdonas.
@@ -3383,9 +2838,7 @@ Minace li levis sian pugnon, sed Maleine ne maltenis.
 
 ŝi sentis, ke Longeois volis sciigi ion gravan al ŝi, lastfoje, kaj ŝi volis nepre scii la enhavon de lia skribaĵo. Sed barono d’Hainquart ne cedis. Li sentis sin treege ofendita kiel patro — eĉ pli: kiel mastro en sia propra domo.
 
-Kaj per fortega ekmovo li forpuŝis Maleine. ŝi dorsen falis la kapon puŝegante kontraŭ la alta kverka apogilo de la seĝo. Kaj tiam, en eksceso de kolero kaj senpovo, barono d’Hainquart disŝiris la leteron je malgrandaj 155
-
-BLUA SANGO
+Kaj per fortega ekmovo li forpuŝis Maleine. ŝi dorsen falis la kapon puŝegante kontraŭ la alta kverka apogilo de la seĝo. Kaj tiam, en eksceso de kolero kaj senpovo, barono d’Hainquart disŝiris la leteron je malgrandaj
 
 
 pecoj, malfermis la fenestron kaj ilin ĵetis eksteren, kie ventpuŝo ilin dispelis:
@@ -3415,9 +2868,6 @@ pecoj, malfermis la fenestron kaj ilin ĵetis eksteren, kie ventpuŝo ilin dispe
 —ĉu tio estas via lasta vorto?
 
 
-BLUA SANGO
-
-
 —Sed, paĉjo, ĉu vi ne havas koron? ĉu vi do eĉ ne unu minuton povas imagi …?
 
 —Ne, tion mi ne povas, nek permesas, nek volas. En tiu kazo Maleine d’Hainquart ne plu por mi ekzistas. Vi devas elekti inter via patro kaj … tiu fripono … ĉu vi ne rezignas lin?
@@ -3438,25 +2888,13 @@ Maleine malgaje kapneis:
 
 Post ĉi tiuj vortoj la barono eliris la ĉambron, batfer-mis la pordon post si, kaj Maleine restis sola en la nokta silento kaj kun sia profunda doloro. ŝia koro bategis, ŝiaj tempioj brulegis; estis kvazaŭ oni ŝraŭbfermis ŝian gorĝon. ŝi iam legis, ke amo kaj sufero estas sinonimaj, ŝi tiam ridis pri tio, sed nun ŝi sentas la veron de tiu esprimo. Kiel multe pli facile estus por ŝi, se ŝi estus akceptinta la edziĝproponon de Debloux iom pli simpatie.
 
-Tiam ŝia estonto estus: Sinjorina moŝto Debloux d’Hainquart … somere loĝi en kastelo apud Velp … vintre en vilao en la sudo de Francujo! Sen ia bedaŭro ŝi tion pri-157
-
-BLUA SANGO
-
-
-pensis. ŝi povis vivi sen kastelo, sen bieno, sen ”La Blua Bero”. ŝia patro ŝin forpelis el la domo, bone, ŝi iros. ŝi ne timis la vivon. Ekzistas junaj fraŭlinoj samaĝaj kaj multe pli altdevenaj kaj pli nobelaj ol ŝi, kiuj devas perlabori, sian propran panon. ŝi ne estis tro kompatinda.
+Tiam ŝia estonto estus: Sinjorina moŝto Debloux d’Hainquart … somere loĝi en kastelo apud Velp … vintre en vilao en la sudo de Francujo! Sen ia bedaŭro ŝi tion pripensis. ŝi povis vivi sen kastelo, sen bieno, sen ”La Blua Bero”. ŝia patro ŝin forpelis el la domo, bone, ŝi iros. ŝi ne timis la vivon. Ekzistas junaj fraŭlinoj samaĝaj kaj multe pli altdevenaj kaj pli nobelaj ol ŝi, kiuj devas perlabori, sian propran panon. ŝi ne estis tro kompatinda.
 
 ŝi stariĝis, malrapide, kiel dum sonĝo, eliris la ĉambron, tra la halon, supreniris la ŝtuparon al sia dormoĉambro.
 
-ŝi sidiĝis antaŭ sia skribtablo, malfermis la tirkeston, prenis la libron, la taglibron, kiun ŝi tiel zorge estis for-
+ŝi sidiĝis antaŭ sia skribtablo, malfermis la tirkeston, prenis la libron, la taglibron, kiun ŝi tiel zorge estis forŝlosinta, ĝin malfermis, kaj legis: Sen batalo kaj sufero oni nenion povas atingi en ĉi tiu vivo.
 
-ŝlosinta, ĝin malfermis, kaj legis: Sen batalo kaj sufero oni nenion povas atingi en ĉi tiu vivo.
-
-ŝi klinis la kapon, kiu malrapide malleviĝis sur la pa-
-
-ĝon kaj mallaŭte ploris. Tiam ŝi vestita kuŝiĝis sur la li-ton — la lastan nokton.
-
-
-BLUA SANGO
+ŝi klinis la kapon, kiu malrapide malleviĝis sur la paĝon kaj mallaŭte ploris. Tiam ŝi vestita kuŝiĝis sur la li-ton — la lastan nokton.
 
 
 ĉapitro dekunua
@@ -3479,12 +2917,7 @@ Post ĉi tiu ”kuraĝigo” li eniris sian familian ĉambron:
 
 La barono ne moviĝis, murmuris apenaŭ aŭdeblan
 
-”bonmatenon” kaj senmove restis staranta antaŭ la ku-159
-
-BLUA SANGO
-
-
-racisto, kun la mano sur la seĝapogilo. Tial ĉi tiu demandis:
+”bonmatenon” kaj senmove restis staranta antaŭ la kuracisto, kun la mano sur la seĝapogilo. Tial ĉi tiu demandis:
 
 —Mi esperas, ke nenio grava okazis. Mi hieraŭ dum la tuta tago estis okupita pro la viktimoj de tiu trabaĵakcidento kaj …
 
@@ -3507,9 +2940,6 @@ La sagaca maljuna kuracisto jam dum la iom multvor-ta demando de la barono, rapi
 —Jes, ĉu vi ne?
 
 
-BLUA SANGO
-
-
 —Mi diros al vi kiel simpla mi pensas tion. Se tiu malhonesta ago estus farita de iu homo el popolkvartalo, mi tiun viraĉon simple vipbategus; sed nun mi staras antaŭ viro intelekta, antaŭ maljunulo, al kiu mi ŝuldas multan dankon. Nun mi devas moderigi min. Sed mi certigas al vi: ĉiuj estimo kaj fido kiujn mi havis en vi, pro tio absolute malaperis.
 
 —Vi agas, kvazaŭ mi faris krimon!
@@ -3518,9 +2948,7 @@ BLUA SANGO
 
 —Jes.
 
-—Kaj ĉu vi ne tuj venis al mi, al la patro de neplenaĝ-
-
-ulino? ĉu vi ne tuj informis la policon, ke tiu, kiun oni serĉas, estas en via domo?
+—Kaj ĉu vi ne tuj venis al mi, al la patro de neplenaĝulino? ĉu vi ne tuj informis la policon, ke tiu, kiun oni serĉas, estas en via domo?
 
 —Ne.
 
@@ -3535,9 +2963,6 @@ ulino? ĉu vi ne tuj informis la policon, ke tiu, kiun oni serĉas, estas en via
 La barono ege ekkoleris:
 
 —Tiam mi diru al vi ĉi tie inter ni, ke vi estas maljuna fripono.
-
-
-BLUA SANGO
 
 
 —Koran dankon pro ĉi tiu frumatena komplimento.
@@ -3562,9 +2987,7 @@ BLUA SANGO
 
 —Neplenaĝa knabino, kiu faras tiajn frenezaĵojn, ne estas priresponda, tiu devas esti en azilo.
 
-—Sed tio ne estas simpla afero, barono. En la nuna 162
-
-BLUA SANGO
+—Sed tio ne estas simpla afero, barono. En la nuna
 
 
 tempo oni ne sen gravaj motivoj enfermas personon en frenezulejo!
@@ -3578,9 +3001,6 @@ tempo oni ne sen gravaj motivoj enfermas personon en frenezulejo!
 —Nun vi montras, ke vi tuj senkaŭze iun kredas nenormala. Mi per diablo ne estas freneza, mi ĵus hieraŭ tion pruvis. Mia kolego deklaris la trian viktimon nesa-vebla, sed mi okupiĝis pri li dum kvin kaj duona horoj, kaj nun li estas eksterdanĝera.
 
 —Kiel vi agas pri viaj viktimoj, ne min tuŝas. Mi havas la rajton postuli de vi …
-
-
-BLUA SANGO
 
 
 —Ne faru la penon postuli tion.
@@ -3605,18 +3025,11 @@ Sinjoro Drom levis la brakojn, refaligis ilin, profunde
 
 Sed tiu dormeto kruele estis interrompata, ĉar ne unu horon post kiam la barono brue fermis la pordon malantaŭ si, sonoris la telefono. Marianne demandis, ĉu la kuracisto povas akcepti la ĝendarmestron. Ne estis eviteble, kaj dum tri kaj duona horoj la civilvestita policano restis en la laborĉambro de la kuracisto.
 
-Estis li, kiu malkovris la rifuĝejon de Longeois per po-lichundoj kaj sekvis liajn postsignojn ĝis antaŭ la domo de la kuracisto. La klarigo, kiun barono d’Hainquart donis en la policejo, denove vekis lian fervoron, kvan-164
-
-BLUA SANGO
-
-
-kam li jam delonge konjektis, ke Longeois estas pasinta la limojn. Laŭ invito de la barono li per lia aŭtomobilo kunveturis al ”La Brua Bero”, kie li denove intencis peti al la fraŭlino kelkajn informojn. Pro tio barono d’Hainquart havis belan pretekston por malpermesi al sia filino la foriron.
+Estis li, kiu malkovris la rifuĝejon de Longeois per po-lichundoj kaj sekvis liajn postsignojn ĝis antaŭ la domo de la kuracisto. La klarigo, kiun barono d’Hainquart donis en la policejo, denove vekis lian fervoron, kvankam li jam delonge konjektis, ke Longeois estas pasinta la limojn. Laŭ invito de la barono li per lia aŭtomobilo kunveturis al ”La Brua Bero”, kie li denove intencis peti al la fraŭlino kelkajn informojn. Pro tio barono d’Hainquart havis belan pretekston por malpermesi al sia filino la foriron.
 
 —Mi ankoraŭ bone pripensis, li diris, sed mi sentas la devon uzi mian patran rajton. Estas necese, ke vi restu ĉi tie ĝis la esploro estos finita.
 
-Tiamaniere li havos la tempon por prepari siajn aran-
-
-ĝojn. Li intencis meti Maleine ĝis ŝia plenaĝo sub kontrolo ie en eksterlando, kie neniu ŝin serĉos. ŝia adreso devas resti sekreta por ĉiu, precipe por ŝiaj nunaj ĉir-kaŭantoj. Kiam ŝi dum kelkaj jaroj estos vivinta sub alia gvidado, sub aliaj severaj, fremdaj okuloj, ŝi certe adiaŭos siajn krimajn sentojn por Longeois. Eĉ se tiu viro estus senkulpa kaj el honesta familio, edziĝo kun stalservisto, tio kaŭzus en liaj rondoj skandalon.
+Tiamaniere li havos la tempon por prepari siajn aranĝojn. Li intencis meti Maleine ĝis ŝia plenaĝo sub kontrolo ie en eksterlando, kie neniu ŝin serĉos. ŝia adreso devas resti sekreta por ĉiu, precipe por ŝiaj nunaj ĉir-kaŭantoj. Kiam ŝi dum kelkaj jaroj estos vivinta sub alia gvidado, sub aliaj severaj, fremdaj okuloj, ŝi certe adiaŭos siajn krimajn sentojn por Longeois. Eĉ se tiu viro estus senkulpa kaj el honesta familio, edziĝo kun stalservisto, tio kaŭzus en liaj rondoj skandalon.
 
 —ĉu vi do ne volas, ke mi foriru? Maleine demandis.
 
@@ -3626,12 +3039,7 @@ Tiamaniere li havos la tempon por prepari siajn aran-
 
 —ĉar mi havas aliajn intencojn pri vi.
 
-Kaj tiam barono d’Hainquart uzis sian malnovan rimedon, kiu multfoje pruvis, ke barono d’Hainquart rilate al animnobleco, malsuperas plimulton el la simp-165
-
-BLUA SANGO
-
-
-laj homoj. Li venigis Dirk, la lentugan knabon, kaj diris al li sen atestantoj en sia laborĉambro:
+Kaj tiam barono d’Hainquart uzis sian malnovan rimedon, kiu multfoje pruvis, ke barono d’Hainquart rilate al animnobleco, malsuperas plimulton el la simplaj homoj. Li venigis Dirk, la lentugan knabon, kaj diris al li sen atestantoj en sia laborĉambro:
 
 —Dirk, la fraŭlino devas resti hejme, laŭ konsilo de la kuracisto. ŝi verŝajne ne eliros siajn ĉambrojn, sed, se tamen ŝi tion farus kaj irus en la parkon, vi tuj devas tion sciigi al mi. Mi komisias al vi, tre akurate atenti pri tio.
 
@@ -3649,12 +3057,7 @@ Barono d’Hainquart sendis kaj ricevis leterojn kaj te-legramojn, pri kiuj neni
 
 Ia sinjoro el Arnhem, kiu jam antaŭ longe estis administranto de la posedaĵoj de la familio, nun denove tre ofte venis al la bieno, eĉ restis kelkajn tagojn, kiel gasto, uzis la aŭtomobilon por fari tre longajn ekskursojn, kaj neniu ion eksciis aŭ komprenis pri tio.
 
-Fine la barono konigis siajn celojn. En malluma mal-166
-
-BLUA SANGO
-
-
-frua somervespero, dek ses tagojn post la terura sceno, kiu okazis inter li kaj lia filino, li sendigis per Eveline la komision, ke li atendas ŝin en la familia ĉambro. Maleine sekvis sian ĉambristinon. En la halo staris tri kofroj.
+Fine la barono konigis siajn celojn. En malluma malfrua somervespero, dek ses tagojn post la terura sceno, kiu okazis inter li kaj lia filino, li sendigis per Eveline la komision, ke li atendas ŝin en la familia ĉambro. Maleine sekvis sian ĉambristinon. En la halo staris tri kofroj.
 
 Fremda sinjoro staris apude.
 
@@ -3669,9 +3072,6 @@ Tiam li sin turnis kaj eliris la ĉambron. Maleine dum momento estis sola, sola 
 ŝiaj okuloj pleniĝis per larmoj. Sed ŝi kunpremis la dentojn. ŝi nun ne volas plori, tio estus malforteco.
 
 Kvankam la foriro el tiu domo, en kiu ŝi travivis multajn feliĉajn horojn, ege ŝin ĉagrenis, ŝi ne volis montri tion al siaj ĉirkaŭantoj. Neniu el la servistaro estis apude.
-
-
-BLUA SANGO
 
 
 ŝajnis kvazaŭ la domo estas senhoma. Sonis la fremda voĉo de sinjoro Lemmens:
@@ -3689,9 +3089,6 @@ Maleine ne respondis. ŝi fermis la okulojn. Estis indiferente al ŝi, kien oni 
 ĉu ŝi iam sukcesos skribi al li?
 
 
-BLUA SANGO
-
-
 Dum longaj horoj neniun vorton oni parolis. Neeble estis al ŝi sin orienti. Eĉ se tio povus redoni al ŝi la liberecon, ŝi ne povus diri kie ŝi estas. Inter la antaŭkurteneto kaj la fenestra kadro, ŝi povis vidi eksteren, sed estis nokte kaj ankaŭ tre nebule. Veturinte proksimume kvar horojn, la veturilo subite rapidegis antaŭen. Tio okazis tiel neatendite, ke ŝi dorsen falis en la kusenon.
 
 —Kio okazas? ŝi demandis.
@@ -3704,19 +3101,12 @@ Poste Maleine komprenis la kaŭzon de tiu ega rapidado. Sendube ili tiam transir
 
 Maleine volonte tion faris. ŝi eliris kaj rigardis, kie ŝi troviĝas: longa, preskaŭ senfina iom supreniranta vojo kun maldekstre alta arbetaĵo kaj dekstre kamparoj … Ili sendube estas en Belgujo, laŭ la maleleganta konstruo de la domoj videblaj de malproksime. Oni ŝndukis en ĉambron, kie ŝi povos refreŝiĝi per akvo el lavpelvo.
 
-Sinjoro Lemmens alportis ŝiajn vojaĝ-necesaĵojn kaj zorgis, ke oni pretigu por ŝi matenmanĝon. Post unuhora restado, li petis Maleine ree eniri. Denove oni veturis horojn post horoj tra nekonata regiono, sed Maleine tamen estis sufiĉe sperta pri terenkono por konstati, ke 169
-
-BLUA SANGO
+Sinjoro Lemmens alportis ŝiajn vojaĝ-necesaĵojn kaj zorgis, ke oni pretigu por ŝi matenmanĝon. Post unuhora restado, li petis Maleine ree eniri. Denove oni veturis horojn post horoj tra nekonata regiono, sed Maleine tamen estis sufiĉe sperta pri terenkono por konstati, ke
 
 
-la veturilo moviĝas suddirekten al Francujo. ŝi tamen ne rimarkigis tion, sed agis kvazaŭ ĉio estas por ŝi indiferenta. En malgranda hoteleto oni konsumis la tagman-
-
-ĝon. Kaj la fremda ŝoforo prizorgis sian aŭtomobilon, kontrolis la motoron kaj la radringojn, denove plenigis la benzinujon. Ree antaŭen, la tutan nokton, dum kiu Maleine pro trolaciĝo nur kelkajn horojn povis dormi. ŝi nun komprenis, kial ĉi tiun akcelitan vojaĝon oni faras per aŭtomobilo. La barono volis ĉiamaniere kaŝi por sia filino la fincelon de ĉi tiu vojaĝo. ŝi ne sciu, kiel ŝia estonta loĝloko estas atingebla vagonare aŭ trame. ŝi troviĝas en Francujo, tio estas certa. Tion ŝi aŭdis laŭ la parolo de la hotelisto, tion ŝi vidis laŭ la surskribaĵoj de la vilaĝdomoj, kiujn ili preterveturis, sed en kiu parto de Francujo ŝi estas? La vojo altiĝis, malaltiĝis kaj kurbiĝis, kondukis rekte tra densaj arbaroj, sed oni veturis, multe pli malrapide. Multfoje la ŝoforo haltigis, devis serĉi la bonan direkton kaj tiam la kondukanto de Maleine elaŭtomobiliĝis tenante la terenkarton en la mano. Okazis multfoje, ke sinjoro Lemmens antaŭiris la aŭtomobilon por orienti sin ĉe vojkrucejo aŭ por demandi al pre-terpasanto pri la vojo. Tial diris Maleine, kiam ŝia kondukanto revenis:
+la veturilo moviĝas suddirekten al Francujo. ŝi tamen ne rimarkigis tion, sed agis kvazaŭ ĉio estas por ŝi indiferenta. En malgranda hoteleto oni konsumis la tagmanĝon. Kaj la fremda ŝoforo prizorgis sian aŭtomobilon, kontrolis la motoron kaj la radringojn, denove plenigis la benzinujon. Ree antaŭen, la tutan nokton, dum kiu Maleine pro trolaciĝo nur kelkajn horojn povis dormi. ŝi nun komprenis, kial ĉi tiun akcelitan vojaĝon oni faras per aŭtomobilo. La barono volis ĉiamaniere kaŝi por sia filino la fincelon de ĉi tiu vojaĝo. ŝi ne sciu, kiel ŝia estonta loĝloko estas atingebla vagonare aŭ trame. ŝi troviĝas en Francujo, tio estas certa. Tion ŝi aŭdis laŭ la parolo de la hotelisto, tion ŝi vidis laŭ la surskribaĵoj de la vilaĝdomoj, kiujn ili preterveturis, sed en kiu parto de Francujo ŝi estas? La vojo altiĝis, malaltiĝis kaj kurbiĝis, kondukis rekte tra densaj arbaroj, sed oni veturis, multe pli malrapide. Multfoje la ŝoforo haltigis, devis serĉi la bonan direkton kaj tiam la kondukanto de Maleine elaŭtomobiliĝis tenante la terenkarton en la mano. Okazis multfoje, ke sinjoro Lemmens antaŭiris la aŭtomobilon por orienti sin ĉe vojkrucejo aŭ por demandi al pre-terpasanto pri la vojo. Tial diris Maleine, kiam ŝia kondukanto revenis:
 
 —Paĉjo ne bezonas timi ke mi reiros al mia hejmo, estas ĉi tie vera labirinto. ĉu la vojaĝo ankoraŭ longe daŭros?
-
-
-BLUA SANGO
 
 
 —Se mi ne eraras, ankoraŭ kelkajn horojn.
@@ -3729,9 +3119,7 @@ Servisto kun blua ĝardenista antaŭtuko faris signon ke la aŭtomobilo enveturu
 
 —Bonvenon, fraŭlino! Rapide eniru, mia fratino sen-pacience vin atendas.
 
-Li prenis ŝian manon, ŝndukis sur la ŝtuparon, tra la malgranda pordego kaj nun Maleine staris en malgranda halo, konstruita el malglata briko. En la supra parto de la muro estis larĝa mezepoka fenestro el kolora vitro. La sinjoro, demetinte sian kapuĉmantelon, denove ŝin antaŭiris sur larĝan ŝtuparon. Kaj tie sur la plej 171
-
-BLUA SANGO
+Li prenis ŝian manon, ŝndukis sur la ŝtuparon, tra la malgranda pordego kaj nun Maleine staris en malgranda halo, konstruita el malglata briko. En la supra parto de la muro estis larĝa mezepoka fenestro el kolora vitro. La sinjoro, demetinte sian kapuĉmantelon, denove ŝin antaŭiris sur larĝan ŝtuparon. Kaj tie sur la plej
 
 
 supra ŝtupo staris klinstatura, maljuna sinjorino, ĉirkaŭ la kapo nigre-puntan tuketon, el kiu pendis kelkaj blankaj bukloharoj. ŝia dekstra mano apogis sin sur lambastoneto:
@@ -3752,9 +3140,7 @@ La longa viro, kiu ŝin akceptis sur la korto, estis foririnta. ŝi nun staris e
 
 —Mi pri tio ne estas scivola, sinjorino, estis la indiferenta respondo.
 
-—Mi komprenas tion, mi ĉion scias plej detale, sed kvankam mi akurate plenumos la promesojn, faritajn al via patro, ni pro tio ne bezonas esti malamikoj. Mia frato kaj mi bonvolas al vi kaj mi esperas, ke vi ne tro malfa-ciligos al ni la taskon, kiun ni prenis sur nin pro la bona 172
-
-BLUA SANGO
+—Mi komprenas tion, mi ĉion scias plej detale, sed kvankam mi akurate plenumos la promesojn, faritajn al via patro, ni pro tio ne bezonas esti malamikoj. Mia frato kaj mi bonvolas al vi kaj mi esperas, ke vi ne tro malfa-ciligos al ni la taskon, kiun ni prenis sur nin pro la bona
 
 
 interrilato, kiu ĉiam ekzistis inter ni kaj via patro. Kisu min.
@@ -3780,12 +3166,9 @@ En tiu momento la longa staturo ree eniris. La frato de la maljunulino portis ma
 Kaj la viro en velura kostumo iomete ridis, montran-te du vicojn da grandaj flavaj dentoj.
 
 
-BLUA SANGO
-
-
 ĉapitro dekdua
 
-EN LA DEZERTFORTIKAĵO
+EN LA DEZERTFORTIKAĴO
 
 Pri la murdo en la bieno de d’Hainquart oni ankoraŭ nenion definitivan sciis. Oni eĉ ne sukcesis identi-gi la viktimon nek trovi ian postsignon de la forkurinta ŝoforo. Tio estis certa, ke la ŝtelrompisto en la juvelbu-tiko en Parizo, kaj la viro, kiu apud la belga limo saltis el vagonaro, kaj la ŝtelrompisto en la bieno estas la sama persono. Laŭ la raporto de sinjoro Drom oni ne povis fikse konkludi, ĉu murdo fakte okazis. Pli verŝajna estas la malo.
 
@@ -3793,11 +3176,7 @@ La aferoj entute sufiĉe bone disvolviĝis laŭ la opinio de d’Hainquart. Male
 
 ĝi iam ĉe li ekzistis — certe forgesos per alia amatino.
 
-Longeois kompreneble nur monon avidis kaj pri tio li malsukcesis pro la apero de la alia fripono. Sinjoro Debloux tute ne havas kialojn por malesperi. Se per la kla-
-
-ĉado de la ruĝa stalknabo io atingis la publikon, la tempo baldaŭ dissciigos la malon. Sed Dirk per silentado povas nur profiti, ĉar nun li loĝas en la malgranda pavi-174
-
-BLUA SANGO
+Longeois kompreneble nur monon avidis kaj pri tio li malsukcesis pro la apero de la alia fripono. Sinjoro Debloux tute ne havas kialojn por malesperi. Se per la klaĉado de la ruĝa stalknabo io atingis la publikon, la tempo baldaŭ dissciigos la malon. Sed Dirk per silentado povas nur profiti, ĉar nun li loĝas en la malgranda pavi-174
 
 
 lono kaj perlaboras la saman salajron kiel antaŭe Eugè-
@@ -3806,9 +3185,7 @@ ne Longeois. Li ĝuas la judas’an rekompencon kaj la cetera servistaro timas, 
 
 Majoro De Blecourt kaj lia fratino ĝuste taŭgis por tia pedagogia tasko. Tamen restis grava malfacilaĵo. Ili loĝas en Normandio, kie antaŭe Eugène Longeois servis kiel ŝoforo. Barono d’Hainquart tre longe hezitis, antaŭ ol tien sendi Maleine. Sed la rimarko de la maljuna Ghriselle subite lin decidigis:
 
-—Sed, barono, ŝi skribis, se tiu mizerulo troviĝas ĉi tie, li eĉ ne unu sekundon konjektos, ke vi sendis vian filinon en la buŝegon de la leono. Li ĉie serĉos la fraŭlinon, escepte ĉi tie. Plue, mia frato kaj mi ankoraŭ rajtas paroli. Eduardo estas eksmajoro, viro kvazaŭ el fero, kiu eĉ ne unu minuton de la tago aŭ de la nokto perdos sian gardemon. Kaj kiam Eduardo forestas, ankoraŭ mi kaj mia servisto restas. Vi konas nian domon. Tiuj, kiuj estis ĉi tie tri- aŭ kvarfoje, ankoraŭ ne povas retrovi ĝin pro ĝia stranga situo. Mi ĉiusemajne skribos al vi por informi vin pri la stato. Kaj antaŭ ol estos pasintaj du 175
-
-BLUA SANGO
+—Sed, barono, ŝi skribis, se tiu mizerulo troviĝas ĉi tie, li eĉ ne unu sekundon konjektos, ke vi sendis vian filinon en la buŝegon de la leono. Li ĉie serĉos la fraŭlinon, escepte ĉi tie. Plue, mia frato kaj mi ankoraŭ rajtas paroli. Eduardo estas eksmajoro, viro kvazaŭ el fero, kiu eĉ ne unu minuton de la tago aŭ de la nokto perdos sian gardemon. Kaj kiam Eduardo forestas, ankoraŭ mi kaj mia servisto restas. Vi konas nian domon. Tiuj, kiuj estis ĉi tie tri- aŭ kvarfoje, ankoraŭ ne povas retrovi ĝin pro ĝia stranga situo. Mi ĉiusemajne skribos al vi por informi vin pri la stato. Kaj antaŭ ol estos pasintaj du
 
 
 jaroj, via filino estos la sama kiel antaŭ tiu ĉagreniga historio.
@@ -3829,9 +3206,7 @@ La ”malhonestulo” jam forlasis Francujon. Li sukcesis atingi Parizon per la 
 
 —ĉu rilate al la propono de la Kavaliraro vi nun havas alian — vi permesu — pli saĝan opinion?
 
-—Ne, tiu opinio ne ŝanĝiĝis. Mi nur venas al vi por 176
-
-BLUA SANGO
+—Ne, tiu opinio ne ŝanĝiĝis. Mi nur venas al vi por
 
 
 pruntepreni malgrandan sumon je deca, se bezone je granda rentumo por iri al Alĝerio. ĉu vi volas helpi min per tio?
@@ -3858,9 +3233,7 @@ George sin sentis tre kortuŝita. Kiom al li valorus, se Maleine estus aŭdinta 
 
 Estas eble — por vi — la plej bona solvo.
 
-George foriris al Marseille kaj du tagojn poste li ŝip-iris al la Nord-Afrika marbordo. Lia celo estis la dezerto. Ne por la unua fojo li ĝin vidos, sed li sciis certe, ke denove li estos hipnotigata per ĝia terura, ĝia demona 177
-
-BLUA SANGO
+George foriris al Marseille kaj du tagojn poste li ŝip-iris al la Nord-Afrika marbordo. Lia celo estis la dezerto. Ne por la unua fojo li ĝin vidos, sed li sciis certe, ke denove li estos hipnotigata per ĝia terura, ĝia demona
 
 
 beleco. Nun post la konatiĝo kun Maleine li imagis, ke tiu senfina ebenaĵo al li aspektos mortige senkonsola kaj nun li ĉiutage spertos pli kaj pli forte, ke tiu ardanta ebenaĵo lin kaptas, kvazaŭ en sorĉo. Li esperas, ke tiu mistera potenco sufiĉos por kateni la sopiron al Maleine. Li volas sin perdigi en tiu senfina forgesiteco. Lia frato makulis la nomon de Verd’Ile en la franc-alĝeria armeo, li intencas rebonigi ĉion, kio estas ankoraŭ rebonigebla.
@@ -3869,12 +3242,7 @@ Dum la milito li estis rezervoficisto, kaj nun oni lin volontege akceptos en la 
 
 Estante infano li ĉi tie vagis ĉevale. Li konis la fortikaĵon, kiu situas sur rokaltaĵo ĉe la bordo de rapidfluanta rivero. Transe de la flava fluo sin etendas la ruĝa dezerto kiel senfona sablomaro kun altegaj rigidaj ondoj. i similas oceanon, sed pli belega kaj samtempe pli terura ol tiu sur kiu naĝas la ŝipoj. ĉe la orienta flanko, ĉirkaŭ la granitrokoj, de kiuj antaŭ jarmiloj tertremoj deŝiris grande-gajn blokojn, troviĝis la araba dezerto kun sia orflava kaj malhel-violblua kolorlukso. En ĉi tiu mondo George intencis pasigi sian vivon. Kiel estis eble, ke li dum preskaŭ tuta jaro povis vivi en la malvarma, nebula Nordo? La vivo tiea nun al li ŝajnas premsonĝo, puno. Kiu ĉesigis tiun punon? Kiu rompis tiun anatemon? Maleine, ĉiam denove Maleine! ĉu li do ne sukcesus ŝin forgesi ĉi tie?
 
-La formalaĵoj por la enoficiĝo de la juna rezervleŭte-178
-
-BLUA SANGO
-
-
-nanto estis baldaŭ plenumitaj. Ili konsistis en tio, ke estu transdonataj naskiĝatesto kaj raporto de la deĵoranta komandanto, sub kiu komando la kandidat-oficiro servis. Poste sekvis trimonata ekzercado, kiel ordinara soldato, kaj post tio li tuj eniris en la severan praktikon de la militista dezertvivo.
+La formalaĵoj por la enoficiĝo de la juna rezervleŭtenanto estis baldaŭ plenumitaj. Ili konsistis en tio, ke estu transdonataj naskiĝatesto kaj raporto de la deĵoranta komandanto, sub kiu komando la kandidat-oficiro servis. Poste sekvis trimonata ekzercado, kiel ordinara soldato, kaj post tio li tuj eniris en la severan praktikon de la militista dezertvivo.
 
 Li devis la malgrandan aron, kiun li ordonas, kutimigi al la dezertvivo, kiun li mem ankoraŭ devis ekkoni, ĉar tiu vivo ĉiam estas mistera por ĉiuj, kiuj ne tie naskiĝis.
 
@@ -3882,9 +3250,7 @@ La fortikaĵo estis malgranda antaŭremparo. el kiu oni regule faris esplor-mar�
 
 La severa, preskaŭ barbara ekzistado forgesigos lin —
 
-espereble — tiun belan simplan infanon, ĝi havigos al li post longaj jaroj la titolon de majoro aŭ subkolonelo kun modera pensio, por pasigi per tio la lastajn jarojn de 179
-
-BLUA SANGO
+espereble — tiun belan simplan infanon, ĝi havigos al li post longaj jaroj la titolon de majoro aŭ subkolonelo kun modera pensio, por pasigi per tio la lastajn jarojn de
 
 
 sia vivo kiel grafo de Verd’Ile en sia ŝatata Normandio, neriĉa jes kaj sola, sed kun levita kapo, ĉar li senmaku-le portis la oran triangulon kun la lilio. Kiam la trimonata ekzerctempo finiĝis, li iom pentis, ĉar dum tiuj tagoj li preskaŭ ne havis okazon por pensi al ŝi, kiun li postlasis en la Nordo, al Maleine d’Hainquart.
@@ -3902,9 +3268,6 @@ Post tri jaroj oni donos al li kvarmonatan forpermeson.
 Tiam sekvis la soleco, inspektado, kolektado de rapor-toj, kaj ĉiutage kelkhora ekzercado. Li posedis du oficajn ĉevalojn. Unu el tiuj estis el puraraba raso kaj sur tiu ĉi li faris longajn ekskursojn tra la dezerto. Kaj nun, kiel viro, kiu jam tiel spertis la batalon kaj la ĉagrenon de la vivo, li rigardis la dezerton per tute aliaj okuloj, ol kiam li ĝin travagis kiel knabo. Li nun ekkonis ĝian belegecon.
 
 
-BLUA SANGO
-
-
 ĉio, kio ankoraŭ en lia animo restis malgranda aŭ nefir-ma estos elbrulata kiel en puriga fajro.
 
 Granda karaktero ne toleras malgrandanimecon kaj la dezerto estas la plej grandioza, kion la naturo formis.
@@ -3913,20 +3276,13 @@ Kiam lia inspekto en la fortikaĵo finiĝis, kaj lia adminis-trado estis ordigit
 
 Sed en la ardo de la posttagmeza suno, tiam la dezerto estas terurega. Tiam la rokmontoj ŝajnas fajriĝi kaj la dezerto ekflamas kiel dum brulado, kiu ŝajnas kapti samtempe ĉielon kaj teron.
 
-Dum unu el tiuj posttagmezoj George daŭrigis pli longe ol kutime sian rajdekskurson, kaj venis en tute frem-181
-
-BLUA SANGO
-
-
-dan regionon de la dezerto, kiu kondukis laŭlarĝe tra praaj rokoj al karavanvojo. Tiu larĝa, longa vojo, meze de la soleco strange lin impresis. Tie, kie la homoj ne povas havi loĝejon, subite montriĝas miloj da postsignoj de trapasintaj homoj, irintaj al malproksima celo! La tero, en kiu la piedoj profunde eniĝis, estis malmoligita per la hufoj de la kameloj. George trarajdis parton de la vojo. Kelkfoje li vidis palajn ostojn. Sendube restaĵo de lacekonsumita kamelo, kiun ĝia mastro postlasis. Kaj image li vidis la vulturojn malsuprenflugantaj al la mortanta korpo.
+Dum unu el tiuj posttagmezoj George daŭrigis pli longe ol kutime sian rajdekskurson, kaj venis en tute fremdan regionon de la dezerto, kiu kondukis laŭlarĝe tra praaj rokoj al karavanvojo. Tiu larĝa, longa vojo, meze de la soleco strange lin impresis. Tie, kie la homoj ne povas havi loĝejon, subite montriĝas miloj da postsignoj de trapasintaj homoj, irintaj al malproksima celo! La tero, en kiu la piedoj profunde eniĝis, estis malmoligita per la hufoj de la kameloj. George trarajdis parton de la vojo. Kelkfoje li vidis palajn ostojn. Sendube restaĵo de lacekonsumita kamelo, kiun ĝia mastro postlasis. Kaj image li vidis la vulturojn malsuprenflugantaj al la mortanta korpo.
 
 Subite li aŭdis mallaŭtan, melodian sonon. i ŝajne venis de tute proksime. Li haltigis sian ĉevalon, forŝovis sian blankan kaptukon por aŭskulti pli bone.
 
 Li prenis sian kamplornon, ĝin direktis al la flaman-ta horizonto. Jes, tie li vidis kiel malgrandan serpenteton alproksimiĝantan karavanon sur la flava sablovojo. La mallaŭta kantado de la kamelistoj jam estis aŭdebla, la nuk-sonoriloj de la bestoj mallaŭte kaj melankolie tintadis. Li deĉevaliĝis, kondukis ĉe la brido sian ĉevalon al la ombro de unu el la krevitaj ŝtonegoj, kuŝiĝis tie kaj atendis la alvenon de la karavano. Li rigardis sian horloĝon: estis la dekdua. Post unu horo ĝi povas esti ĉi tie.
 
-Tiam li povos kunrajdi parton de la vojo kaj demandi, ĉu ili havas ion aĉeteblan. Malrapide, tre malrapide la malgranda serpento alproksimiĝis, pli kaj pli grandiĝis, kaj 182
-
-BLUA SANGO
+Tiam li povos kunrajdi parton de la vojo kaj demandi, ĉu ili havas ion aĉeteblan. Malrapide, tre malrapide la malgranda serpento alproksimiĝis, pli kaj pli grandiĝis, kaj
 
 
 nun la ĉiufoje ripetataj arabaj vortoj estis klare aŭdeblaj.
@@ -3946,9 +3302,6 @@ En tiu momento subite sonis ĉe la fino de la karavano korŝira kriado. George t
 —Kiel ŝi nomiĝas?
 
 —Madrua.
-
-
-BLUA SANGO
 
 
 Denove sonis ekkrio:
@@ -3978,9 +3331,6 @@ La estro surkameliĝinte rapide alproksimiĝis:
 —Sinjoro, ŝi mensogas. ŝi ne estas forrabita. ŝia patro donis permeson. ŝi bonvivos ĉe mia filo, riĉe kaj senzor-ge, kaj hejme ŝi vivas malriĉe!
 
 
-BLUA SANGO
-
-
 —ĉu ŝia nomo estas en la listo de viaj kamelistoj? Aŭ ĉu ŝi estas enskribita kiel ”komercaĵo”?
 
 —Jen la vero, sonis la voĉo de la knabino, mia patro min vendis, sed mi ne volas, mi ne plu estas sklavino, mi estas liberulino kaj mi mortigos min, se mi ne povas reiri.
@@ -4002,9 +3352,6 @@ Li levis la manon kaj diris severtone sed decidite:
 —Rajto restas rajto; vi ĉiam povos apelacii al la fortikaĵkomandanto.
 
 
-BLUA SANGO
-
-
 Iom post iom la kamelistoj apudiĝis kaj formis rondon ĉirkaŭ de Verd’Ile, la knabino kaj la estro. ŝajnis, ke ili ne intencas bonvole ŝin lasi al la eŭropano, kaj perokule ili interparolis. La oficiro tion rimarkis, li konis la perfidan karakteron de la araba kamelisto. Subite la subula teniĝo de la estro aliiĝis. Li alte sin levis, kaptis la lancon, kiu pendis flanke de la ĉabrako, celis la pinton al la brusto de la oficiro kaj kun fulmantaj okuloj diris:
 
 —Vi senrajte agas, malantaŭen! Mi donas al vi dek se-kundojn!
@@ -4014,9 +3361,6 @@ La kamelistoj denove ekkaptis Madruan. En tiu momento eksonis pafo. La estro rul
 Kvazaŭ Madrua divenis la intencon de sia protektan-to, ŝi eksaltis al li, grimpis kiel kato sur la piedingo, al-kroĉiĝis al lia talio kaj sidiĝis malantaŭ li sur la ĉevalon.
 
 Du ekpafoj sonis, la kugloj fajfis preter iliajn orelojn preskaŭtuŝe. Tiam la belega besto galopegis sur la ebenaĵo, al la granitrokoj, kie ĝi baldaŭ estis eksterdanĝere!
-
-
-BLUA SANGO
 
 
 ĉapitro dektria
@@ -4042,9 +3386,6 @@ El sub sia zono ŝi aperigis malgrandan, sed tre pintan ponardon, kaj ĝin direk
 —La vivo min tedas ĉe mia patro, kiu nur drinkas kaj prunteprenas monon de viroj, kiuj venas ĉe li, por ke mi antaŭdiru al ili la estonton. Mi devas por ili kanti, danci kaj antaŭdiri la estonton.
 
 
-BLUA SANGO
-
-
 —ĉu vi povas tion?
 
 —Jes, ankaŭ por mi mem tion faris. Mi vidas en la estonto, kiam mi fermas la okulojn kaj per ambaŭ manoj tenas vian manon. Mi vidis min mem ĉi tie, inter tiuj kondukistoj kaj subite vi venis alrajdante kun blanka kasko kaj nuktuko. Kiam mi vin vidis, mi vin rekonis.
@@ -4059,9 +3400,7 @@ Krom tio ŝia vestaĵo estis malpura kaj preskaŭ malriĉu-la. Sed en ŝiaj nigr
 
 —Kiu al vi instruis klarvidi? li demandis iom suspekte.
 
-—Neniu, sinjoro, tio venis en mi, mi ne scias kiam kaj kiel. La unuan fojon mi vidis en la estonto por maljuna, malriĉa daktilvendisto, kiu estis tre malsana kaj kies manon mi tenis, ĉar mi pensis, ke li estas mortonta. Estis en la oazo de Ule, kie mi vidis lin kuŝanta sur la tero, flanke de liaj korboj. Kiam mi tenis lian manon, mi duone ekdormis. Mi tre bone sciis, kie mi estis, kaj kion mi faris, kaj tamen mia animo ne estis tie. Mi vidis eniri la 188
-
-BLUA SANGO
+—Neniu, sinjoro, tio venis en mi, mi ne scias kiam kaj kiel. La unuan fojon mi vidis en la estonto por maljuna, malriĉa daktilvendisto, kiu estis tre malsana kaj kies manon mi tenis, ĉar mi pensis, ke li estas mortonta. Estis en la oazo de Ule, kie mi vidis lin kuŝanta sur la tero, flanke de liaj korboj. Kiam mi tenis lian manon, mi duone ekdormis. Mi tre bone sciis, kie mi estis, kaj kion mi faris, kaj tamen mia animo ne estis tie. Mi vidis eniri la
 
 
 maljunan daktilvendiston en grandan, blankan domon de granda urbo. Sinjoro sidis malantaŭ skribtablo kaj transdonis al li vakssigelitan leteron. Klare, kvazaŭ mi estus nedormanta, mi aŭdis tiun sinjoron diri:
@@ -4070,12 +3409,7 @@ maljunan daktilvendiston en grandan, blankan domon de granda urbo. Sinjoro sidis
 
 La daktilvendisto malrapide resaniĝis kaj kiam mi vizitis lin en lia dometo en Manjar mi diris al li, kiam li ree plendis pri sia mizero: ”Ne estu malkvieta, vi ricevos heredaĵon de pli ol kvar milionoj. Oni donos tion al vi en granda, blanka domo.” Mia antaŭdiro realiĝis. Pro danko pri tio kion mi diris, mia patro ricevis grandan sakon da mono, sed tion li en mallonga tempo forludis kaj for-drinkis. Mi ricevis tri multekostajn silkajn vestojn, kiujn mi ankoraŭ havas. En tiuj mi devas danci … ĉu mi ankaŭ al vi antaŭdiru la estonton? ŝi demandis. Tiam sidiĝu ĉe mi.
 
-La juna oficiro obeis kaj kiam li sidis apud Madrua, ĉio estis por li kiel sonĝo. La blua ombro de la granitrokoj, en kiuj la lumstrioj tranĉas kiel ardaj glavoj; ĉi tiu juna knabino kun sia tipa dialekto; la emajlblua ĉielo super li, la grandega kakto kontraŭ li, kiu, kiel fasko da akre-pintaj segiloj staras inter la rokoj; la ŝvit-malseketaj manoj de la fremda knabino, kiuj tenas lian dekstran manon ĝis super la pulso, ŝia malantaŭapoganta kapo kun la duonfermitaj palpebroj, ĉio estis tiel nereala, pre-189
-
-BLUA SANGO
-
-
-skaŭ ensorĉiga. Li sentis sin malpli trankvila ol antaŭ kelkaj horoj, kiam li estis en vivdanĝero pro la lanco de la karavanestro. Lia patrino ofte rakontis al li pri arabaj virinoj, kiuj posedas la talenton por klarvidi, kiuj jam antaŭdiris al ŝi, ke ŝi forlasos Alĝerion kaj iros al Francujo, por tie edziniĝi kun riĉa grafo. Tiu, kiu al ŝi antaŭ-
+La juna oficiro obeis kaj kiam li sidis apud Madrua, ĉio estis por li kiel sonĝo. La blua ombro de la granitrokoj, en kiuj la lumstrioj tranĉas kiel ardaj glavoj; ĉi tiu juna knabino kun sia tipa dialekto; la emajlblua ĉielo super li, la grandega kakto kontraŭ li, kiu, kiel fasko da akre-pintaj segiloj staras inter la rokoj; la ŝvit-malseketaj manoj de la fremda knabino, kiuj tenas lian dekstran manon ĝis super la pulso, ŝia malantaŭapoganta kapo kun la duonfermitaj palpebroj, ĉio estis tiel nereala, preskaŭ ensorĉiga. Li sentis sin malpli trankvila ol antaŭ kelkaj horoj, kiam li estis en vivdanĝero pro la lanco de la karavanestro. Lia patrino ofte rakontis al li pri arabaj virinoj, kiuj posedas la talenton por klarvidi, kiuj jam antaŭdiris al ŝi, ke ŝi forlasos Alĝerion kaj iros al Francujo, por tie edziniĝi kun riĉa grafo. Tiu, kiu al ŝi antaŭ-
 
 diris, ke ŝi ne malproksime de la marbordo loĝos en kastelo kaj naskos du filojn, estis mzabitanino, deveninta el oazo ĉe la limo de la Saharo malriĉa knabino, kiel ĉi tiu Madrua. Lia patrino ĉiam fidis la antaŭdiron de klar-vidulino, sed George, kies okcidenta civilizado malakor-diĝas kontraŭ ĉia superstiĉo, ĉiam malserioze pri ĝi parolis. Sed, strange, ĉiu mokemo nun malaperis. Li sentis, ke io grava estas okazonta.
 
@@ -4083,12 +3417,7 @@ Malforte kaj monotone sonis ŝia voĉo:
 
 —Mi vidas landon en nebulo. Tio estas via estonto.
 
-ĉio aspektas malplena kaj griza, kaj mi distingas neniun fiksan formon. Tamen estas multa kaj plenmova, timige-maltrankvila vivo en tiu nepenetrebla nebulo, estas kiel ĉeborda ondmovado, super kiu pendas densa nebul-nubo. La tuto ŝajnas al mi … esti via animo. Ne, nun mi vidas. i proksimiĝas, ĉiam pli kaj pli proksimen … ruĝa lumpunkto, ĝi flamiĝas, ruĝa kampfajro. Supre flugas birdo en tre vastaj rondoj. Estas bela, forta besto, juna aglo. Mi rekonas en tiu birdo ion homan; estas kvazaŭ mi ĝin tenas per nevidebla fadeno per ambaŭ miaj ma-190
-
-BLUA SANGO
-
-
-noj. i flugas en ĉiam pli malvastaj rondoj super la fajro, ĉiam pli malvaste, ĉiam pli malalte. i volas eviti la fajron, kiu ĝin rezisteble altiras. La ardo de la fajro estingiĝas, la ruĝaj flamoj flaviĝas, blankiĝas. Ili prenas la figuron de virino. Tiu virino volas sin liberigi el la flamoj, sed ŝi ne povas, ĉar oni ŝin prigardas. La lignaj flankoj de la brulamaso estas muregoj kiel tiuj de la fortikaĵo ĉe la rando de la granda alfo-dezerto. Mi vidas fosaĵon, pon-ton, turĉambron, maljunan virinon, kiu klinas sian viza-
+ĉio aspektas malplena kaj griza, kaj mi distingas neniun fiksan formon. Tamen estas multa kaj plenmova, timige-maltrankvila vivo en tiu nepenetrebla nebulo, estas kiel ĉeborda ondmovado, super kiu pendas densa nebul-nubo. La tuto ŝajnas al mi … esti via animo. Ne, nun mi vidas. i proksimiĝas, ĉiam pli kaj pli proksimen … ruĝa lumpunkto, ĝi flamiĝas, ruĝa kampfajro. Supre flugas birdo en tre vastaj rondoj. Estas bela, forta besto, juna aglo. Mi rekonas en tiu birdo ion homan; estas kvazaŭ mi ĝin tenas per nevidebla fadeno per ambaŭ miaj manoj. i flugas en ĉiam pli malvastaj rondoj super la fajro, ĉiam pli malvaste, ĉiam pli malalte. i volas eviti la fajron, kiu ĝin rezisteble altiras. La ardo de la fajro estingiĝas, la ruĝaj flamoj flaviĝas, blankiĝas. Ili prenas la figuron de virino. Tiu virino volas sin liberigi el la flamoj, sed ŝi ne povas, ĉar oni ŝin prigardas. La lignaj flankoj de la brulamaso estas muregoj kiel tiuj de la fortikaĵo ĉe la rando de la granda alfo-dezerto. Mi vidas fosaĵon, pon-ton, turĉambron, maljunan virinon, kiu klinas sian viza-
 
 ĝon super tiu de la alia. La juna virino etendas siajn brakojn al la birdo, kiu senkonscia falas je granda distanco de la estingiĝanta fajro. Tie ĝi restas kuŝanta … La nebulo malrapide leviĝas … mi vidas la sunon, mi vidas … la dezerton. El la senviva birdo reviviĝas homa figuro, juna viro, sur ĉevalo kun ĉaspafilo flanke de sia selo, juna virino sidas malantaŭ li sur la ĉevalo … mi vidas … ŝi dum momento profunde ĝemis kaj kiel sufereganta ŝi senmove surdorse kuŝadis.
 
@@ -4099,9 +3428,6 @@ George de Verd’Ile liberigis sian manon el ŝia, kaj atendis. Daŭris kelkan t
 —Mi ne scias, diris de Verd’Ile, ĉu vi ne plu memoras, kion vi vidis?
 
 —Neniam. in rakontu al mi.
-
-
-BLUA SANGO
 
 
 De Verd’Ile preskaŭ laŭvorte ripetrakontis kion ŝi estis dirinta.
@@ -4120,16 +3446,12 @@ De Verd’Ile preskaŭ laŭvorte ripetrakontis kion ŝi estis dirinta.
 
 —Tion mi ankaŭ faros. Se vi ne resendas min al mia patro. Sude de Ain-Mel, de la salfonto, loĝas maljuna virino, nia antaŭa najbarino, ŝi estas akvo-portistino.
 
-Konduku min tien, ŝi certe min gastigos kaj nutros, ĉar ŝi ne estas malriĉa kaj bezonas helpon en sia domo, kiam ŝi faras sian laboron. Mi nun estas lacega, la angoro pro la forrabo kaj la turmentado per la ŝnuroj ankoraŭ premas mian koron. Mi ne estas normala. Mi ne povas pensi kiel antaŭe. Konduku min al Ain-Mel kaj 192
-
-BLUA SANGO
+Konduku min tien, ŝi certe min gastigos kaj nutros, ĉar ŝi ne estas malriĉa kaj bezonas helpon en sia domo, kiam ŝi faras sian laboron. Mi nun estas lacega, la angoro pro la forrabo kaj la turmentado per la ŝnuroj ankoraŭ premas mian koron. Mi ne estas normala. Mi ne povas pensi kiel antaŭe. Konduku min al Ain-Mel kaj
 
 
 poste vizitu min tie, kaj pro danko por ĉio, kion vi faris por mi, mi diros, kio vin atendas apudestonte.
 
-De Verd’Ile estis ĝoja pro ĉi tiu solvo. Li prenis la fraŭ-
-
-linon malantaŭ si sur sian ĉevalon kaj trotete rajdis nordorienten, al Ain-Mel, kien li jam ofte faris militistajn marŝojn kaj kie ankaŭ situas la pafekzercejo por la malmultaj artileriistoj, kiujn li komandas. Veninte al la rando de la malgranda vilaĝo, li haltis kaj kiam ŝi kisis lian manon, li demandis al ŝi:
+De Verd’Ile estis ĝoja pro ĉi tiu solvo. Li prenis la fraŭlinon malantaŭ si sur sian ĉevalon kaj trotete rajdis nordorienten, al Ain-Mel, kien li jam ofte faris militistajn marŝojn kaj kie ankaŭ situas la pafekzercejo por la malmultaj artileriistoj, kiujn li komandas. Veninte al la rando de la malgranda vilaĝo, li haltis kaj kiam ŝi kisis lian manon, li demandis al ŝi:
 
 —Kiel nomiĝas tiu akvoportistino?
 
@@ -4141,9 +3463,7 @@ linon malantaŭ si sur sian ĉevalon kaj trotete rajdis nordorienten, al Ain-Mel
 
 Li returnis kaj kiam li atingis la fortikaĵon, jam delonge noktiĝis. La gardistoj enposteniĝis, li ilntrolis kaj poste iris al la malgranda teraso, kiu per pordo donis eniron al lia malgranda ĉambro. De ĉi tiu altaĵo li povis vidi la mallarĝan, malrapide fluantan riveron, en la malproksimo la ete-lumigitajn dometojn kaj la mallu-man palmarbaron. La nokto estis senbrua kaj klara. Super li estis la majesta ĉielo, en kiu multegaj steloj brilis kiel juveloj. Kelkaj grandegaj noktpapilioj lin preterflugis
 
-… strigo grakis en la malnova belvedero. Ho, tiu silento, tiu senbrueco de la dezertnokto. Neniam ĝis nun ĝi tiel 193
-
-BLUA SANGO
+… strigo grakis en la malnova belvedero. Ho, tiu silento, tiu senbrueco de la dezertnokto. Neniam ĝis nun ĝi tiel
 
 
 lin imponis. La renkonto kun Madrua denove disŝiris la malnovan vundon. Ankaŭ ĉi tie en la dezerto la fatalo preskaŭ faris viktimon. Se li ne estus helpveninta, ĉi tiu araba junulino havus la saman sorton kiel Maleine. Kaj malrapide li sentis en si kvazaŭ memriproĉon. Liaj honoro kaj nomo restis, per lia forkuro senmakulaj, sed kiel pro tio fartas Maleine? En malgranda vilaĝo oni facile fariĝas klaĉobjekto. La amhistorio de la fraŭlino kun la ŝoforo, la franca ŝoforo, eble baldaŭ diskoniĝis. Ke ŝi nepre sin sentis kompromitita pro li, tio lin ĉagrenis. ĉu ŝi ricevis la leteron? Li rigardis al la stelplena ĉielo. Kiel fartas Maleine, la barono?
@@ -4154,9 +3474,7 @@ Li prefere klopodu dormi. Morgaŭ matene li devos fari longdaŭran ekskurson. Li
 
 Li vestita kuŝis sur la lito kaj malrapide liaj okuloj fermiĝis. Li forrevis en maltrankvila dormetado.
 
-Kiam la suno leviĝis super la palmarbaro, li prenis ba-non, kaj apenaŭ la trumpetisto sonigis la kolektsignalon, li jam estis surĉevale en la malgranda korto kaj inspektis sian soldataron. Ili marŝis orienten. Estis plena po-tencmanifestado, ĉar la tri kanonoj sekvis kaj la soldatoj 194
-
-BLUA SANGO
+Kiam la suno leviĝis super la palmarbaro, li prenis ba-non, kaj apenaŭ la trumpetisto sonigis la kolektsignalon, li jam estis surĉevale en la malgranda korto kaj inspektis sian soldataron. Ili marŝis orienten. Estis plena po-tencmanifestado, ĉar la tri kanonoj sekvis kaj la soldatoj
 
 
 estis en kompleta marŝuniformo. De Verd’Ile antaŭrajdis. Kiam estis ankoraŭ frumatene, la viroj kantis gajajn melodiojn, sed iom post iom la varmego fariĝis neelportebla; la ledaj plandoj brulsuferigis pro la varmega sablo, kaj de tempo al tempo iu el la soldatoj ne plu kapablis kunmarŝi. La ekskurson, tamen oni senkompate devis daŭrigi. Resti en la brulvarmega suno, tio signifus morti. La komandanto intence elektis sian vojon tiel, ke la reiro kondukos ĉirkaŭ la vilaĝo Ain-Mel. Tie ili je vesperiĝo alvenos kaj lastfoje ripozos. George venigis sian ĉefserĝenton:
@@ -4165,27 +3483,20 @@ estis en kompleta marŝuniformo. De Verd’Ile antaŭrajdis. Kiam estis ankoraŭ
 
 —Bone, leŭtenanto.
 
-Kiam, post la ripozo, denove la kolono ekmarŝis. la juna oficiro hezitis: ĉu li kuniru aŭ restu? Kio lin instigas tiel baldaŭ viziti Madrua’n? ĉu li ne faris la decidan kaj solenan intencon forgesi Maleine? Sed li ne povis; li ĉiutage pli kaj pli sentis sian nepovon. Li per Madrua volis forigi la distancon, kiu disigas lin de ŝi. Li volis uzi la klarvidon de tiu ĉi araba junulino. Li prenis sian ĉevalon ĉe la brido, kaj eniris la vilaĝon. Kia mizero regas ĉi tie. La kvadrataj, malelegantaj loĝejoj, hakitaj en argil-roko, kaj kiujn oni povis atingi nur per same el roko el-hakita ŝtuparo, kuŝis dekstre kaj maldekstre de nepavi-mita vojo, sur kiu dise kuŝis ĉiuspeca malpuraĵo. La tria 195
-
-BLUA SANGO
+Kiam, post la ripozo, denove la kolono ekmarŝis. la juna oficiro hezitis: ĉu li kuniru aŭ restu? Kio lin instigas tiel baldaŭ viziti Madrua’n? ĉu li ne faris la decidan kaj solenan intencon forgesi Maleine? Sed li ne povis; li ĉiutage pli kaj pli sentis sian nepovon. Li per Madrua volis forigi la distancon, kiu disigas lin de ŝi. Li volis uzi la klarvidon de tiu ĉi araba junulino. Li prenis sian ĉevalon ĉe la brido, kaj eniris la vilaĝon. Kia mizero regas ĉi tie. La kvadrataj, malelegantaj loĝejoj, hakitaj en argil-roko, kaj kiujn oni povis atingi nur per same el roko el-hakita ŝtuparo, kuŝis dekstre kaj maldekstre de nepavi-mita vojo, sur kiu dise kuŝis ĉiuspeca malpuraĵo. La tria
 
 
 domo, maldekstre de la vilaĝa fonto! Ekzistas do ankaŭ fonto en ĉi tiu mizera vilaĝo, kvankam la militista garnizono devas transporti kaj kuiri la ofte infektitan rive-rakvon. La loĝantoj estis ĉiuj endome, malgraŭ la sufo-kiga varmo de la vespero, kiu certe rezultiĝos en fortega fulmotondro. La enloĝantoj por silenta protesto restas endome ĉiufoje, kiam okazas manifestado de la fortikaĵmilitistoj. Tial la oficiro frapetis per sia rajdbastono sur la argilmuro sub mallarĝa pordo kaj kiam montriĝis virino, li ordonis:
 
 —Montru al mi la vojon al Dramai, la akvoportistino.
 
-Neparolante, la alparolito obeis, en sia malpura, ruĝ-
-
-kaj-blanke striita mantelo, antaŭiris la rajdiston, restis staranta je kelka distanco de murĉirkaŭita puto kaj montris per la mano al pordeto:
+Neparolante, la alparolito obeis, en sia malpura, ruĝkaj-blanke striita mantelo, antaŭiris la rajdiston, restis staranta je kelka distanco de murĉirkaŭita puto kaj montris per la mano al pordeto:
 
 —Mi dankas, diris la oficiro kaj eniris.
 
 Nun subite el ĉiuj anguloj kaj truoj malhelaj vizaĝoj kaŝobservis la oficiron, kiu vizitas la maljunan Dramai.
 
 Kio okazas? ĉu denove oni perforte iun kondukos antaŭ la ŝejkon? Iom post iom la loĝantoj venis el siaj domoj kaj alproksimiĝis al la domaĉo, en kiu loĝas la akvoportistino. Ain-Mel estis la malpli konfidinda vilaĝo en la sekcio de la komandanto. Jam multfoje oni faris kaŝmurdon al unu el la soldatoj. Kiel ajn ofte oni tie invadis por serĉi pafarmilojn, ĉiam oni nenion trovis kaj tamen la enloĝantoj ilin posedas!
-
-
-BLUA SANGO
 
 
 De Verd’Ile estis avertita; li sciis, ke li devas esti ege singardema. Plue estis netaktike uzi kiel eŭropano la duban potencon de arabanino. Kiu krome ankaŭ povus havi ĉi tie siajn adorantojn. Tio jam baldaŭ evidentiĝis, kiam li eniris la mizeran domaĉon de Dramai. Madrua sidis sur seĝeto antaŭ malalta tablo kaj estis kudranta al granda blanka tuko. Maldekstre malantaŭ ŝi sidis sur malalta benko arabo, juna bedueno, la kubutojn sur la genuoj, la malgrandan pipon kun la longa tenilo inter la maldikaj nigraj manoj. Tuj kiam la junulino vidis la oficiron enveni, ŝi rapidegis al li kaj falis antaŭ liajn piedojn.
@@ -4207,9 +3518,6 @@ Li fikse ŝin rigardis. Tamen, senhezite la knabino respondis:
 —Jes, mi lin amas, ĉar li savis mian vivon kaj se necese, mi por li donos la mian.
 
 
-BLUA SANGO
-
-
 La bedueno, kies kapo preskaŭ tuŝis la argil-plafonon, silente eliris la kvadratan krepuskan ĉambron. Tuj kiam li estis foririnta, Madrua riglis la pordon post li kaj diris:
 
 —Ho, sinjoro, nun vi devas gardi por via vivo. Maledeh estas unu el la amikoj de mia patro, kiu kutimas monludi ĉe li. Ili eksciis pri mia savo, li volas edziĝi kun mi, sed mi ne amas lin. Mi lin malamas. Vi venas por ke mi antaŭdiru vian estonton, ĉu ne?
@@ -4220,16 +3528,10 @@ La bedueno, kies kapo preskaŭ tuŝis la argil-plafonon, silente eliris la kvadr
 
 George sidiĝis kaj nun same kiel hieraŭ en la ombro de la granitrokoj, Madrua fermis siajn okulojn kaj apogis malantaŭen. ŝia voĉo estis kiel de iu, kiu laŭtvoĉe parolas en sonĝo, sed ĝi estis, kvankam senmodula, klare aŭdebla.
 
-—Mi vidas palan virinon, kiu promenas en ĝardeno kun multaj fruktarboj, strangaj arboj kun kurbaj bran-
-
-ĉoj. Laboras viroj kaj virinoj en tiu ĝardeno. Ili kolektas 198
-
-BLUA SANGO
+—Mi vidas palan virinon, kiu promenas en ĝardeno kun multaj fruktarboj, strangaj arboj kun kurbaj branĉoj. Laboras viroj kaj virinoj en tiu ĝardeno. Ili kolektas
 
 
-la fruktojn en korbojn kaj sakojn. Tiun palan virinon mi jam vidis ie inter fortikaĵmuroj. ĉe la fino de longa aleo staras viro kun pinta nazo kaj grizaj lipharoj. Li kaŝ-
-
-observas la junan virinon. Li resendas ŝin al la domo.
+la fruktojn en korbojn kaj sakojn. Tiun palan virinon mi jam vidis ie inter fortikaĵmuroj. ĉe la fino de longa aleo staras viro kun pinta nazo kaj grizaj lipharoj. Li kaŝobservas la junan virinon. Li resendas ŝin al la domo.
 
 Dum ŝi, la kapon klinita, iras al la domo, venas maljuna virino. ŝi lamas kaj apogas sur nigra lambastono. ŝi staras supre sur ŝtona ŝtuparo kaj minace gestas. Tiu maljunulino estas malbona, diablino …
 
@@ -4255,17 +3557,12 @@ George eligis la revolveron el la ujo: ĝi enhavas ses kartoĉojn.
 
 —Stariĝu malantaŭ mi, diris Madrua kaj malfermis la pordon:
 
-—Mi scias, kion vi intencas, ŝi kriis malsupren, sed 199
-
-BLUA SANGO
+—Mi scias, kion vi intencas, ŝi kriis malsupren, sed
 
 
 pripensu, ke la fremdulo, kiun vi intencas mortigi, estas mia gasto, tiel longe, kiam li estos ĉe mia flanko.
 
 De Verd’Ile malsupreniris, la viroj dise promenis, sed li sentis iliajn okulojn direktataj al li. Madrua kaptis la bridojn de lia ĉevalo kaj ambaŭ iris unu apud la alia al la ekstera flanko de la vilaĝo. ĉi tie la oficiro surĉevaliĝis kaj galopis okcidenten.
-
-
-BLUA SANGO
 
 
 ĉapitro dekkvara
@@ -4276,11 +3573,7 @@ Altestimata Sinjoro Barono!
 
 Kiel kutime mi sendas al vi mian ĉiusemajnan ra-porton. La malsano de la fraŭlino feliĉe ĉesis. i ne multe maltrankviligis nin, ĉar la kuracisto certigis al ni, ke via filino havas fortegan korpstaton. Mi jam dufoje petis lian konton, sed ĉiufoje li respondas: tio aranĝiĝos. Li estas vera scienculo, la specialisto, kiu antaŭ kelkaj jaroj kuracis grafon de Verd’Ile, taŭga psikiatro. Li dum horoj parolis kun la fraŭlino, kaj ŝajnas, ke ŝi estas tute sub lia influo. Almenaŭ ŝi tute aliiĝis. ŝi fariĝis multe pli gaja, ĉevalrajdas kaj interesiĝas pri fruktkulturo. Tamen Ghriselle kaj mi denove devis ŝin puni. Legante ĉikunan leteron, kiun ŝi intencis forsendi per helpo de kamparana laboristino, vi certe komprenos, ke ekzistis sufiĉaj motivoj por punado. Kiu estas kuracisto Drom, tion vi certe pli bone scias ol ni. ĉiuokaze: Ni kontentige progresas. ŝajnas, ke la distraĵo, kiun sinjoro Boitiers al ŝi donas, jam efikas.
 
-Mi longe parolis kun ĉi tiu kuracisto, mi tradukis kaj voĉ-
-
-legis por li la ĉi kunan leteron, kiun ŝi intencis enpoŝtigi pere de la laboristino, sed li ridis pro tio kaj diris: Mi certigas al vi, ke ŝi jam delonge forgesis tiun viraĉon. Kia 201
-
-BLUA SANGO
+Mi longe parolis kun ĉi tiu kuracisto, mi tradukis kaj voĉlegis por li la ĉi kunan leteron, kiun ŝi intencis enpoŝtigi pere de la laboristino, sed li ridis pro tio kaj diris: Mi certigas al vi, ke ŝi jam delonge forgesis tiun viraĉon. Kia
 
 
 bonŝanco, ke tiu kuracisto loĝas en nia najbarejo, ĉu ne?
@@ -4291,9 +3584,7 @@ Kun altestimo kaj amikaj sentoj.
 
 Majoro De Blecourt kaj lia fratino.
 
-P.S. Antaŭhieraŭ kuracisto Boitiers petis mian permeson, ke la fraŭlino kuniru en lia kariolo por viziti liajn malri-
-
-ĉajn pacientojn. Mi ne volis rifuzi tion. La fraŭlino havas kompateman koron kaj tiaj vizitoj progresigas la karitate-mon.
+P.S. Antaŭhieraŭ kuracisto Boitiers petis mian permeson, ke la fraŭlino kuniru en lia kariolo por viziti liajn malriĉajn pacientojn. Mi ne volis rifuzi tion. La fraŭlino havas kompateman koron kaj tiaj vizitoj progresigas la karitate-mon.
 
 Kiam barono d’Hainquart ricevis tiun ĉi leteron li tre malbonhumoriĝis. ĉu kuracisto Boitiers, la specialisto, kiu kuracis ankaŭ grafon de Verd’Ile? Diable, tio ne estas bonŝanco, tio povas esti tre danĝere. Tiu kuracisto certe iam vidis kaj parolis kun la ŝoforo de la grafo, kaj se li hazarde tion dirus al Maleine, tiam denove la spektaklo komenciĝus. Neniel Maleine estu rememorigata al Longeois. Li voĉlegis la leteron al sinjoro Debloux, kiu tiumomente sidis en la verando antaŭ sia viskio.
 
@@ -4302,9 +3593,6 @@ Kiam barono d’Hainquart ricevis tiun ĉi leteron li tre malbonhumoriĝis. ĉu 
 —Jes, jes, konsilo estas facila! Oni ne povas depreni sian temperamenton kiel pakaĵo de sia dorso, kiam ĝi
 
 ĝenas. Kiam apopleksio min atakas, tiam De Blecourt estos kulpa je tio. Skribi kontojn, tion li bone povas.
-
-
-BLUA SANGO
 
 
 —Tiun konton skribis fraŭlina mano, diris Debloux.
@@ -4316,16 +3604,11 @@ BLUA SANGO
 1 Tri lagetoj.
 
 
-BLUA SANGO
-
-
 —Diablo, se tio mankus! Mi ĉiumonate sendas al li ducent guldenojn kaj la ekstraj kostoj kutime sammul-ton sumas.
 
 La estontaj bopatro kaj bofilo estis konvikitaj pri la bonefiko de la pedagogia kuracado ĉe majoro de Blecourt kaj lia fratino. Ili certe atendis, ke Maleine, kiam ŝi denove rehejmiĝos. hontos kiam la ”amhistorio” kun la eksŝoforo estus priparolata. Dum tiu interparolado veturis la kariolo de kuracisto Boitiers sur la flava, ege dekliva vojo, kiu post momento malsuprenkondukas al Trois Etangs. Maleine sidis flanke de la maljuna normandia kuracisto, en kiu ŝi rimarkis trafan similecon kun sinjoro Drom. Li havas la samajn dolĉajn, bonkorajn okulojn, la saman densan grizan hararon. ŝi ĝojsentis, ĉar ŝi trovis en li helpanton kaj amikon. Post multaj, vanaj klopodoj li sukcesis konvinki la majoron, ke Maleine certe nervmalsaniĝos, se ŝi pli longe estos mall-iberigata en tiu malgranda eksfortikaĵo, kiu nun estas farmejo. ĉu oni ne povus konfidi junan fraŭlinon al viro preskaŭ sepdek-jara? ĉu fraŭlino d’Hainquart ne promesis je sia honorvorto en ĉeesto de la majoro kaj ties fratino, ke ŝi neniam lin forlasos eĉ ne unu minuton, dum lia vojo al liaj gepacientoj?
 
-De Blecourt finfine cedis, sed ne antaŭ ol Maleine promesis resti ĉiam ĉe la kuracisto. Ghriselle estis kaj 204
-
-BLUA SANGO
+De Blecourt finfine cedis, sed ne antaŭ ol Maleine promesis resti ĉiam ĉe la kuracisto. Ghriselle estis kaj
 
 
 restis kontraŭ tiu ĉi decido. ŝia sistemo estis: Ne unu paŝo sen ia kontrolo ekster la pordo.
@@ -4345,9 +3628,6 @@ Jen, diris Boitiers, la Evo-temperamento ree ekfunk-cias, vi volas min alkonsent
 —Vi volas diri: flik-gepatroj. Daŭris ses monatoj antaŭ ol mi eksciis, kiel ĉi tiu loko nomiĝas. Nur depost la pasinta semajno mi scias, ke ni estas ĉi tie en Trois Etangs.
 
 Kiam mi iras, kiam mi manĝas, eĉ kiam mi dormas, oni mntrolas, la servistaro kaj la laboristaro en la fruktarbejo havas la instrukcion: silenti! Ili ne respondas, kiam mi ion demandas. Mi ja ne estas danĝera mallibe-rulino!
-
-
-BLUA SANGO
 
 
 —Kara infano, ankoraŭ dum unu kaj duona jaro, tiam vi estos plenaĝa.
@@ -4377,9 +3657,6 @@ Ekskuon Maleine sentis tra sia korpo, kiam la kuracisto elparolis tiun nomon. Ti
 —Riĉega viand-eksportisto, ŝafkomercisto, diris la kuracisto, senpripense ekbruligante cigaron … estas paciento mia. Se vi ŝatas vidi la internon, mi post kelkaj momentoj lin vizitos.
 
 
-BLUA SANGO
-
-
 —Ho, jes, volontege. Mi faros komparon kun la kastelo, kiun mia patro havas en la Ardenoj, mia avo ĝnstruigis. Estas iom ŝoke: eksportisto en tia kastelo.
 
 —i estas tre kaduka. La riparkonstruado kostis kapi-talojn … i apartenis al tre malnova, nobela generacio de la familio de Verd’Ile, posteuloj de la duko de Nemours. Ludoviko ilin nobeligis grafoj de Verd’Ile. Mi bone konis la maljunan grafon. Du kaj duonan monatojn mi ĉiutage lin vizitis. Jes, kurioza estas la historio de tiu familio. Mi ĝin poste rakontos, kiam ni reiros, atentu, nun ni malsupreniras. Rigardu, jen la preĝejtureto de Trois Etangs kaj malantaŭ ĝi, tiuj kelkaj ruĝaj tegmen-toj, tio estas la vilaĝeto Ker-Laz. Tie ni ankaŭ devas esti.
@@ -4389,9 +3666,6 @@ Donu nun al mi la bridojn. La vojo iras malsupren kaj tio estas danĝere por kiu
 En normalaj cirkonstancoj Maleine lin laŭte mokri-dus. Sed nun ŝi silentis kun batanta koro, la okulojn di-rektantaj al siaj piedoj. Grafo de Verd’Ile, kiu skribis la rekomendan leteron por Eugène. Pri tiu grafo ŝi baldaŭ aŭdos kuriozan historion! Ho, kiel longe daŭris la vojo al la kastelo!
 
 ĉiufoje demando estis sur ŝiaj lipoj, malprudenta demando pri la ĉevaloj … pri la aŭtomobilo … pri la servistaro de la grafo, sed la prudento flustris: Silentu, silentu, atendu, ĝis la kuracisto propramove rekomencos pri tiu temo.
-
-
-BLUA SANGO
 
 
 Sed ŝajnis, ke la kuracisto tute forgesis sian temon, tial ŝi diris, kiam ili veturis al Trois Etangs:
@@ -4408,9 +3682,7 @@ al mi kvar mil frankojn por operacio. Tiu postulo troviĝas ĉe notario Dupuis e
 
 —Kaj kio estas la kuriozaĵo el tiu historio?
 
-—Nu, la du filoj ambaŭ estas tro fieraj por labori. Grafa titolo estas tre bela, sed se mono ne alestas, ĝi estas kiel ardanta kavalira ordensigno, kiu brulas sur la brusto. Nu, la tuta familio de Verd’Ile nun disiĝis kaj tial mi nun povas babili pri iamaj sekretoj. La pli aĝa filo forkuris, — mi tion scias per mia amiko, la notario — ĉar li ŝtelis iun kason, la pli juna pereas sub la honorindeco de sia generacio. Tial li diris al sia patro: ”Mi akceptos iun ajn oficon, kiun mi povas akiri.” Tio forte ofendis la grafon. Ido el la generacio de Verd’Ile kiu manlaboras, jen, kion la grafo de Verd’Ile ne povis toleri. Oni ĝuste tiun 208
-
-BLUA SANGO
+—Nu, la du filoj ambaŭ estas tro fieraj por labori. Grafa titolo estas tre bela, sed se mono ne alestas, ĝi estas kiel ardanta kavalira ordensigno, kiu brulas sur la brusto. Nu, la tuta familio de Verd’Ile nun disiĝis kaj tial mi nun povas babili pri iamaj sekretoj. La pli aĝa filo forkuris, — mi tion scias per mia amiko, la notario — ĉar li ŝtelis iun kason, la pli juna pereas sub la honorindeco de sia generacio. Tial li diris al sia patro: ”Mi akceptos iun ajn oficon, kiun mi povas akiri.” Tio forte ofendis la grafon. Ido el la generacio de Verd’Ile kiu manlaboras, jen, kion la grafo de Verd’Ile ne povis toleri. Oni ĝuste tiun
 
 
 tagon min vokis ĉe lia lito kaj mi sukcesis trankviligi la maljunan viron. ”Nu,” mi diris, ”lasu vian filon agi laŭ siaj planoj, sed postulu de li la promeson, ke li sub alia nomo foriru al la eksterlando.” Kaj tiel okazis. Georgo de Verd’Ile forlasis Francujon kaj akceptis oficon en … en
@@ -4419,18 +3691,13 @@ tagon min vokis ĉe lia lito kaj mi sukcesis trankviligi la maljunan viron. ”N
 
 —Kiel … kiel … kio? Maleine spiregis.
 
-—Neeble tion rakonti al vi, mia bona intano, li tie fari-
-
-ĝis administranto aŭ servisto aŭ … ŝoforo … Haltu. Musette, ni alvenis, nun denove mi dum momento devas lasi vin sola, mia infano. ĉu vi ne havas ian legaĵon, por pasigi la tempon? Samtempe li malleviĝis el la kaleŝo, kaj ĵetis la kovrilon sur la ĉevalon.
+—Neeble tion rakonti al vi, mia bona intano, li tie fariĝis administranto aŭ servisto aŭ … ŝoforo … Haltu. Musette, ni alvenis, nun denove mi dum momento devas lasi vin sola, mia infano. ĉu vi ne havas ian legaĵon, por pasigi la tempon? Samtempe li malleviĝis el la kaleŝo, kaj ĵetis la kovrilon sur la ĉevalon.
 
 Maleine nenion aŭdis nek vidis. La vortoj de la maljuna kuracisto, kiujn li ŝerce, kelkfoje moke diris, subite vekis en ŝi supozon, kiu superfortis ŝin pro feliĉo kaj dubo samtempe … La pli juna filo de grafo de Verd’Ile iris al Nederlando kiel ŝoforo!
 
 Se Eugène Longeois kaj … tiu filo estus … se, se … la demandoj ŝin superŝutis — la ŝtelrompo, la murdo … la forkuro de Longeois, kiu neniam klariĝis … la simileco, kiun ŝi vidis inter la vizaĝtrajtoj de la murdito kaj tiuj de Longeois … Dio scias, kia mistero kaŝiĝas en ĉiuj ĉi okazintaĵoj!
 
 Kuracisto Boitiers venis el la dometo de sia pacientino kaj diris:
-
-
-BLUA SANGO
 
 
 —Daŭris pli longe ol vi antaŭsupozis, ĉu ne?
@@ -4452,9 +3719,6 @@ Tiu ĉi rimarko vekis en Maleine belegan planon. ŝi ĉiam direktos la atenton d
 — Al kio vi tiel atente rigardas? Boitiers subite demandis.
 
 
-BLUA SANGO
-
-
 —Nu, al la ĉirkaŭaĵo.
 
 —Ho, mi pensis …
@@ -4471,12 +3735,7 @@ Boitiers silentis, skuante la kapon pri sia senpovo. Kaj li firme supozis tute f
 
 —La pli juna Verd’Ile estis eksterordinare bela knabo, simila al arabo. Se mi povus skulpti, mi jam delonge estus farinta lian bronzan buston. Estas ĝuo, vidi tiun fraŭlon surĉevala. Sed la ĉevalojn oni forvendis unu post la alia.
 
-Se Maleine estus sekvinta la inspiron de sia sento, ŝi plorante estus ĉirkaŭbrakinta la maljunan kuraciston, sed ŝi retenis sin per preskaŭ superhoma forto kaj ŝi dankis la ĉielon, ke sub la veturiltegmento estis tiel mal-211
-
-BLUA SANGO
-
-
-lume. Se ŝi nun ankaŭ povas regi sian voĉon, ŝi certe pli multe ekscios. Kaj ŝi demandis:
+Se Maleine estus sekvinta la inspiron de sia sento, ŝi plorante estus ĉirkaŭbrakinta la maljunan kuraciston, sed ŝi retenis sin per preskaŭ superhoma forto kaj ŝi dankis la ĉielon, ke sub la veturiltegmento estis tiel mallume. Se ŝi nun ankaŭ povas regi sian voĉon, ŝi certe pli multe ekscios. Kaj ŝi demandis:
 
 —Arabo, ĉu li similis al arabo? Do lia patro certe ne estis pura franco.
 
@@ -4488,9 +3747,7 @@ Grafo de Verd’Ile! Nun lia figuro aperis antaŭ ŝi kiel en supertera sfero, n
 
 nobelo … stalservisto! Kion dirus la patro, kion dirus Debloux, se ili tion ekscius? ŝiaj okuloj estis larmoplenaj, kiam ŝi eniris la malnovan bienon. Kiel multe oni ĉi tie suferis. Kiel kruele la ungego de la fatalo trafis tiun ĉi generacion, kies tradicion, kies blazonon barono d’Hainquart alte respektas. ĉi tie naskiĝis George. ĉi tie li vivis!
 
-George…! ŝi ripetis tiun nomon mallaŭte en si mem. Kaj 212
-
-BLUA SANGO
+George…! ŝi ripetis tiun nomon mallaŭte en si mem. Kaj
 
 
 subite ŝi ruĝiĝis. ŝi memoris la ofendajn esprimojn, kiujn diris ŝia patro kaj Debloux pri li. ŝi vidis lin sidanta ĉe la tablo en la subteretaĝo, ŝi aŭdis la incit-diraĵojn de la lama stalknabo kaj de kuiristino. Kiel tio lin sendube ĉagrenis!
@@ -4500,16 +3757,11 @@ subite ŝi ruĝiĝis. ŝi memoris la ofendajn esprimojn, kiujn diris ŝia patro 
 Kaj Maleine, ene ĝoja, ke ŝi dum momento restas sola, ekgenuis sur la ardena ŝtuparo, antaŭ la niĉo, kie iam staris la malgranda altaro kaj interplektis la manojn.
 
 
-BLUA SANGO
-
-
 ĉapitro dekkvina
 
-LA ANTAŭA BRILO REVENAS
+LA ANTAŬA BRILO REVENAS
 
-Iun matenon en la frua printempo — la suno apenaŭ leviĝis super la ankoraŭ senfoliaj branĉoj de la arboj en la vastega fruktarbejo — haltis aŭtomobilo antaŭ la ponto de la malgranda kastelo de De Blecourt. Maleine ankoraŭ kuŝis en la lito en la ĉambro, kiu tuŝas al tiu de Ghriselle. La malnova sonorilo laŭtegis, la servisto rapidis eksteren por malfermi la pordegon. Stranga antaŭ-
-
-sento pelis Maleine el la lito. ŝi iris al la malgranda ark-fenestro el vitro en plumbo, kaj malfermis la spiontruon en ĝi. Sinjoro Debloux paŝis, apud la domservisto sur la malgranda korto, rekte al la malgranda ŝtuparo.
+Iun matenon en la frua printempo — la suno apenaŭ leviĝis super la ankoraŭ senfoliaj branĉoj de la arboj en la vastega fruktarbejo — haltis aŭtomobilo antaŭ la ponto de la malgranda kastelo de De Blecourt. Maleine ankoraŭ kuŝis en la lito en la ĉambro, kiu tuŝas al tiu de Ghriselle. La malnova sonorilo laŭtegis, la servisto rapidis eksteren por malfermi la pordegon. Stranga antaŭsento pelis Maleine el la lito. ŝi iris al la malgranda ark-fenestro el vitro en plumbo, kaj malfermis la spiontruon en ĝi. Sinjoro Debloux paŝis, apud la domservisto sur la malgranda korto, rekte al la malgranda ŝtuparo.
 
 —Io okazis al patro, diris al ŝi interna voĉo. La frapi-lo malsupre sur la halpordo dufoje frapis, kiel signo, ke estas iu por viziti la hejmmastron. ĉi tiu tamen antaŭ kelkaj minutoj foriris por rigardi la fosadon kaj sterka-don de granda legomkampo. Majoro de Blecourt kutimis ekstreme ekspluati la fortojn de sia laboristaro.
 
@@ -4517,9 +3769,7 @@ Ghriselle nun devis ellitiĝi por paroli kun la vizitanto.
 
 Maleine tamen ne havis sufiĉe da pacienco por atendi
 
-ĝis ŝia adopta patrino estos farinta sian tualeton. ŝi frapetis sur la komunikiga pordo kaj vokis: fraŭlino, venis 214
-
-BLUA SANGO
+ĝis ŝia adopta patrino estos farinta sian tualeton. ŝi frapetis sur la komunikiga pordo kaj vokis: fraŭlino, venis
 
 
 iu el Nederlando. Certe komisio de mia patro! ĉu vi konsentas, ke mi akceptu lin?
@@ -4545,9 +3795,6 @@ Rapidege ŝi almetis ĉambran robon kaj kuregis sur la ŝtuparo. Sinjoro Debloux
 —Nu, tiam la plej grava kio povis okazi estas, ke li subite grave malsaniĝis.
 
 
-BLUA SANGO
-
-
 —Vi bone divenis. Sed ne maltrankviliĝu. Ankoraŭ la morto ne nepre sekvos.
 
 —Ankoraŭ ne! Sed povas sekvi.
@@ -4564,16 +3811,9 @@ Maleine tiujn vortojn voĉlegis kaj la vizitanto daŭrigis:
 
 Ghriselle, kiu nur nun komprenis la aferon, montris tre malkontentan mienon:
 
-—Tiu historio ŝajnas al mi tre suspekta. Vi pardonu al mi, sinjoro, sed mi rifuzas konsenti la foriron de la fraŭ-
+—Tiu historio ŝajnas al mi tre suspekta. Vi pardonu al mi, sinjoro, sed mi rifuzas konsenti la foriron de la fraŭlino, antaŭ ol mia frato revenos de la kampo. Mi tuj sendos mian domserviston por venpeti lin ĉi tien.
 
-lino, antaŭ ol mia frato revenos de la kampo. Mi tuj sendos mian domserviston por venpeti lin ĉi tien.
-
-Sinjoro Debloux koleriĝis, sin sentis ofendita pro tiu malfido, sed Ghriselle restis necedema. Antaŭe la ma-216
-
-BLUA SANGO
-
-
-joro devas interveni. La fraŭlino intertempe povas pretigi sin kaj enpaki siajn kofrojn.
+Sinjoro Debloux koleriĝis, sin sentis ofendita pro tiu malfido, sed Ghriselle restis necedema. Antaŭe la majoro devas interveni. La fraŭlino intertempe povas pretigi sin kaj enpaki siajn kofrojn.
 
 —Enpaki kofrojn, kaj ĉiu minuto nun valoras. ŝajnas, ke mi alvenis ĉi tie en frenezulejon!
 
@@ -4591,9 +3831,7 @@ Nun Debloux vere koleriĝis. Li grandpaŝe iris tien kaj reen en la ĉambro kaj 
 
 —Tian malĝentilaĵon mi neniam travivis. Tio estas perforta senliberigo kaj tuj kiam mi estos ekstere, mi iros al la urbestro de Trois Etangs!
 
-Majoro de Blecourt ne longe forrestis. Tuj kiam li eksciis, kiu tiel neatendite venis por viziti ilin, li rapidegis 217
-
-BLUA SANGO
+Majoro de Blecourt ne longe forrestis. Tuj kiam li eksciis, kiu tiel neatendite venis por viziti ilin, li rapidegis
 
 
 hejmen, kaj suspekteme alrigardis Debloux. Kiam Debloux estis finparolinta, la majoro diris:
@@ -4618,9 +3856,7 @@ Maleine iomete ridis, dirante:
 
 Kuracisto Boitiers! Maleine nur pri li pensis. ŝi ne volis foriri ne adiaŭinte lin. Tial ŝi diris, momenton antaŭ ol eniri en la grandan vojaĝaŭtomobilon:
 
-—Mi provizore sidiĝos apud la ŝoforo por montri la 218
-
-BLUA SANGO
+—Mi provizore sidiĝos apud la ŝoforo por montri la
 
 
 vojon, alie denove dum la reiro ni devojiĝos. Ni unue veturu al kuracisto Boitiers!
@@ -4648,9 +3884,6 @@ Maleine sekvis la bonkoran, maljunan viron, sed ŝiaj genuoj tremis kaj vidante 
 ŝi metis sian kapon sur la ŝultro de la viro kaj ekploris:
 
 
-BLUA SANGO
-
-
 —Sed, kio nun? la kuracisto konsolis, tion mi ne celis.
 
 Mi ne volas vin perforte al tute fremda viro …
@@ -4673,9 +3906,7 @@ Mi ne volas vin perforte al tute fremda viro …
 
 —Ne, ne estas, ĉar de tie ni flugos hejmen per flugmaŝino de la ”Reĝa Aviada Asocio”. Mi jes ne spertis de mia patro tiun amon, kiun mi povis atendi de li, sed nun ke li estas grave malsana, mi ne volas pli longe forresti ol nepre estas necese.
 
-Sinjoro Boitiers premis ŝiajn manojn: 220
-
-BLUA SANGO
+Sinjoro Boitiers premis ŝiajn manojn:
 
 
 —Vi estas energia knabino. Kaj kion vi nun intencas fari ĉe notario Dupuis?
@@ -4688,9 +3919,7 @@ BLUA SANGO
 
 —Kaj poste?
 
-—Poste ni edziĝos kaj … tiam vi ricevos fermitan aŭ-
-
-tomobilon por viziti viajn pacientojn kaj Musette estos pensiumata.
+—Poste ni edziĝos kaj … tiam vi ricevos fermitan aŭtomobilon por viziti viajn pacientojn kaj Musette estos pensiumata.
 
 —Kaj ĉu mi post tiu tempo ne plu vin revidos?
 
@@ -4700,11 +3929,7 @@ tomobilon por viziti viajn pacientojn kaj Musette estos pensiumata.
 
 —Ne, tion mi ne diras, tio estu surprizo.
 
-Maleine kore ĉirkaŭbrakis la maljunan kuraciston kaj tiam iris al la aŭtomobilo, en kiu Debloux pacience atendis. Li esperis pli arde ol iam, ke Maleine post ĉio, kion li por ŝi faris kaj ankoraŭ faros, nun fariĝos pli korink-lina. Tiu mizera historio de Longeois nun iom forgesiĝis kaj ĉio montriĝas, ke barono d’Hainquart ne longe vivos, kaj Maleine do senfamilia estos en la mondo, nun do ŝi certe ne rifuzos je la tria fojo lian edziĝproponon. Li tre submetiĝe sidis kontraŭ la kusenoj en la larĝa vojaĝ-
-
-aŭtomobilo kaj vidis, ke Maleine montras direkton kiu estas perpendikla al la vojo, kiun li antaŭe laŭveturis. ĉu 221
-
-BLUA SANGO
+Maleine kore ĉirkaŭbrakis la maljunan kuraciston kaj tiam iris al la aŭtomobilo, en kiu Debloux pacience atendis. Li esperis pli arde ol iam, ke Maleine post ĉio, kion li por ŝi faris kaj ankoraŭ faros, nun fariĝos pli korink-lina. Tiu mizera historio de Longeois nun iom forgesiĝis kaj ĉio montriĝas, ke barono d’Hainquart ne longe vivos, kaj Maleine do senfamilia estos en la mondo, nun do ŝi certe ne rifuzos je la tria fojo lian edziĝproponon. Li tre submetiĝe sidis kontraŭ la kusenoj en la larĝa vojaĝaŭtomobilo kaj vidis, ke Maleine montras direkton kiu estas perpendikla al la vojo, kiun li antaŭe laŭveturis. ĉu
 
 
 tio estas eble? Li rezignis, ĉar en ĉi tiu regiono li tiel di-vene trovis vojon. Sed veturinte du horojn, li ankoraŭ ne vidis iun konatan lokon. Li prenis la paroltubon:
@@ -4732,9 +3957,6 @@ Maleine dankis la ĉielon pro la ideo reiri hejmen per flugmaŝino, ĉar ŝi ĝu
 Kun larmoj en la okuloj Clement rakontis, kio okazis. La barono eksigis laman Dirk, ĉar li tiel forte piedfrapis unu el la ĉevaloj sub la ventron, ke ĝi mortis. La barono tiel koleriĝis, ke apopleksio sekvis. ŝajnas, ke li atendis la alvenon de sia filino por kviete morti. ŝi kaj la maljuna Clement estis la nuraj, kiuj ĉeestis lian morton.
 
 
-BLUA SANGO
-
-
 En la momento, kiam Maleine fermis la okulojn de sia patro, furioza atako okazis kontraŭ la dezertfortikaĵo en Alĝerio. Jam de longe minacis revolucio en la distrikto Manjar. La antaŭa komandanto estis tre severa kaj sen-kompata homo, kaj oni intencis ataki la fortikaĵon kiu nun havas novan komandanton, tuj kiam oni sufiĉe da armiloj estis kontrabandinta en la diversajn vilaĝojn.
 
 Ad-Adula kaj lia filo, kiuj loĝis okdek mejlojn sude de la fortikaĵo, silente ĉion estis preparintaj. Mono ne mankis; pri tio zorgis la eksterlandaj agentoj, kiuj havis intereson al tio, ke laŭeble plej ofte la trankvileco rompiĝu. Neniu sciis la tagon aŭ la horon, kiam oni atakos la fortikaĵon.
@@ -4747,13 +3969,9 @@ Nur Madrua tion komprenis laŭ la venĝemo de la arabo Maledeh. Kiam ŝi revenis
 
 —Estas la unua kaj lasta fojo, li diris kun kruela ekbri-lo en la okuloj.
 
-Madrua tuj komprenis la signifon de tiuj vortoj. Kaj ŝi fariĝis tre singarda. ŝi ade observis la arabon kaj tiam evidentiĝis, ke oni intencas lin fari estro de ĉiuj indi-
+Madrua tuj komprenis la signifon de tiuj vortoj. Kaj ŝi fariĝis tre singarda. ŝi ade observis la arabon kaj tiam evidentiĝis, ke oni intencas lin fari estro de ĉiuj indiĝenoj, loĝantaj en kaj ekster Ain-Mel.
 
-ĝenoj, loĝantaj en kaj ekster Ain-Mel.
-
-Je tiu tago, kiam Notario Dupuis en Parizo forsendis 223
-
-BLUA SANGO
+Je tiu tago, kiam Notario Dupuis en Parizo forsendis
 
 
 la telegramon al la fortikaĵkomandanto en Alĝerio, venis la sciigo, ke kelkaj gentoj plene ribelas kaj detruis ĉiujn komunikojn kun la fortikaĵo.
@@ -4762,11 +3980,7 @@ Grafo George de Verd’Ile kun siaj soldatoj, estis ĉir-kaŭata kaj sieĝata ka
 
 —Rapidu, sinjoro, telegrafpetu helpon, post dek minutoj ĉiuj dratoj estos detranĉitaj.
 
-Tio estis ĉio, kion ŝi povis diri. ŝi pro ellaciĝo svenis, ĉar la tutan vojon de Ain-Mel ĝis la fortikaĵo ŝi iris pie-de. La komandanto febre-rapideme aranĝis ĉion, metis la kanonojn en batalstato, sendis parton de la soldatoj en la tranĉeojn, fositajn antaŭ la fortikaĵo por kontraŭ-
-
-stari la unuan atakon de la armitaj Beduenoj. Ke oni sendos helpon al li, pri tio li ne dubis. La tempo do alportos venkon. Li nur persistu! Tri tagojn kaj tri noktojn daŭris la atako. La malamiko pruviĝis bonege armita. Eĉ mangrenadojn oni ĵetis en la fortikaĵon, sed kvankam jam tridek tri soldatoj mortis, kvankam li devis rapidegi de unu minacanta loko al alia, kaj dum tri tagoj kaj tri noktoj ne povis eĉ unu minuton ripozi, la juna komandanto tamen ne rezignis. Madrua estis restinta en la fortikaĵo. Kien iris la komandanto, ankaŭ ŝi tien iris. ŝi al-224
-
-BLUA SANGO
+Tio estis ĉio, kion ŝi povis diri. ŝi pro ellaciĝo svenis, ĉar la tutan vojon de Ain-Mel ĝis la fortikaĵo ŝi iris pie-de. La komandanto febre-rapideme aranĝis ĉion, metis la kanonojn en batalstato, sendis parton de la soldatoj en la tranĉeojn, fositajn antaŭ la fortikaĵo por kontraŭstari la unuan atakon de la armitaj Beduenoj. Ke oni sendos helpon al li, pri tio li ne dubis. La tempo do alportos venkon. Li nur persistu! Tri tagojn kaj tri noktojn daŭris la atako. La malamiko pruviĝis bonege armita. Eĉ mangrenadojn oni ĵetis en la fortikaĵon, sed kvankam jam tridek tri soldatoj mortis, kvankam li devis rapidegi de unu minacanta loko al alia, kaj dum tri tagoj kaj tri noktoj ne povis eĉ unu minuton ripozi, la juna komandanto tamen ne rezignis. Madrua estis restinta en la fortikaĵo. Kien iris la komandanto, ankaŭ ŝi tien iris. ŝi al-224
 
 
 portis panon kaj akvon por la soldatoj kaj kiam la komandanto negrave vundiĝis ĉe la maldekstra brako, ŝi bandaĝis la vundon, sidigis lin en la ombron de muro kaj lavfreŝigis lian kapon per freŝa akvo. En tiu momento diskrevis grenado super iliaj kapoj. Madrua surdorsen-falis kaj restis senmova. George genuis apud ŝi. Peco da fero penetris en ŝian dekstran tempion.
@@ -4776,9 +3990,6 @@ En la rapidvagonaro Paris-Lyon-Marseille Maleine d’Hainquart veturis al la sud
 ŝajnis. ĉar en tiu tago, kiam oni fiksis la honorkrucon sur la bruston de leŭtenanto de Verd’Ile, aperis sur la malgranda korto de la fortikaĵo Maleine d’Hainquart.
 
 Kaj depost tiu tago datumas la refloro de la generacio de Verd’Ile. Maleine ne ripozis antaŭ ol la plej juna ido el tiu generacio denove estis posedanto de la ”Manoir de Nemours”.
-
-
-BLUA SANGO
 
 
 www.omnibus.se/

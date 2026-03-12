@@ -12,18 +12,10 @@ FABELOJ POR HELENJO
 
 Mamin Sibirjak
 
-FABELOJ POR HELENJO
-
 
 ĉe Esperanto-Verlag Ellersiek & Borel G.m.b.H., Berlin kaj Dresden diĝitigis Andreo ˘iĵnjak
 
 Lingve reviziita en 2003
-
-
-@omnibus.se
-
-
-FABELOJ POR HELENJO
 
 
 Enhavo
@@ -51,9 +43,6 @@ Lakteto, avena kaĉeto kaj la griza kato Murko
 Estas tempo por dormi
 
 
-FABELOJ POR HELENJO
-
-
 Mamin Sibirjak
 
 Li estas unu el la plej fame konataj rusaj verkistoj kaj naskiĝis en la jaro 1852. Li skribis multajn rakontojn kaj romanojn, en kelkaj el ili estas bonege priskribita la vivo en la mineja regiono de la Uralaj montoj kun ĝiaj rabavidaj serĉantoj, kun ĝia severa militista regionestra-ro, ĝiaj ekspluatantoj, furioza malŝparemo kaj mallong-daŭra riĉeco. ĉiuj liaj verkoj spiras vivecan veron kaj altan artecon; krom tio en ili estas multe da ago, mal-simpla kaj interesa intrigo kaj malsameco de karakteroj kaj personoj.
@@ -62,9 +51,6 @@ Li estas unu el la plej fame konataj rusaj verkistoj kaj naskiĝis en la jaro 18
 Moskvo, .
 
 N. Kabanov
-
-
-FABELOJ POR HELENJO
 
 
 Antaŭfabelo
@@ -82,9 +68,6 @@ Unu okuleto de Helenjo dormas, la alia rigardas, unu oreleto de Helenjo dormas, 
 Baju, baju, baju! . . .
 
 1 Rusa interjekcio; rekantaĵo por dormigi infanojn.
-
-
-FABELOJ POR HELENJO
 
 
 Fabelo pri la kuraĝa leporo
@@ -105,9 +88,7 @@ Kolektiĝis maljunaj leporoj, alkuris malgrandaj leporidoj, kunvenis maljunaj le
 
 —Ne, la lupon mi ne timas, nek la vulpon, nek la ur-son, — neniun mi timas!
 
-Tio ĉi estis ja tute amuza. Ekridegis la junaj leporidoj, kovrante siajn buŝetojn per la antaŭaj piedoj; ekridis la bonaj maljunulinoj; ekridetis eĉ la maljunaj leporoj, kiuj jam falis en la manegojn de vulpo kaj elprovis la lupajn 6
-
-FABELOJ POR HELENJO
+Tio ĉi estis ja tute amuza. Ekridegis la junaj leporidoj, kovrante siajn buŝetojn per la antaŭaj piedoj; ekridis la bonaj maljunulinoj; ekridetis eĉ la maljunaj leporoj, kiuj jam falis en la manegojn de vulpo kaj elprovis la lupajn
 
 
 dentojn. Jen tre ridinda leporo! Ho, kiel ridinda! Kai ĉiuj subite fariĝis gajaj, komencis ruliĝi, salti, kuradi, kvazaŭ ĉiuj freneziĝis.
@@ -124,9 +105,7 @@ La lupo alvenas tute proksime al la gajiĝintaj leporoj, aŭdas, ke ili mokas li
 
 —He, frateto, atendu, tuj mi vin formanĝos! pensis la griza lupo kaj komencis rigardi, kiu leporo fanfaronas pri sia kuraĝo.
 
-La leporoj nenion vidis kaj gajis eĉ pli ol antaŭe. Fine la fanfarona leporo saltis sur ŝtipeton, sidiĝis sur siaj postaj piedetoj kaj ekparolis: 7
-
-FABELOJ POR HELENJO
+La leporoj nenion vidis kaj gajis eĉ pli ol antaŭe. Fine la fanfarona leporo saltis sur ŝtipeton, sidiĝis sur siaj postaj piedetoj kaj ekparolis:
 
 
 —Aŭskultu vi, malkuraĝuloj! Aŭskultu kaj rigardu min! Jen mi montros al vi artifikon . . . Mi . . . mi . . .
@@ -154,9 +133,6 @@ Longan tempon la aliaj leporoj ne povis rekonsciiĝi.
 Unu forkuris en arbetaĵon, unu sin kaŝis post ŝtipeto, unu sin ĵetis en kaveton.
 
 
-FABELOJ POR HELENJO
-
-
 Fine tedis al ĉiuj kaŝiĝi, kaj ili komencis iom post iom rigardi, kiu estas pli kuraĝaj.
 
 —Nu, lerte nia leporo timigis la lupon! diris ĉiuj. —
@@ -174,9 +150,6 @@ La kuraĝa leporo tuj prenis dignan mienon; eliris el sia kaveto, vigliĝis, fer
 —Kiel vi opinias! He vi, malkuraĝuloj!
 
 De tiu tago la kuraĝa leporo komencis mem kredi, ke li efektive neniun timas.
-
-
-FABELOJ POR HELENJO
 
 
 Fabelo pri kulineto
@@ -204,9 +177,6 @@ La kulineto malsupreniĝis teren, rampis sur la floreton kaj komencis trinki la 
 —Kaj tamen estas bone, — certigis la kulineto. — Kaj ĉio estas mia . . .
 
 
-FABELOJ POR HELENJO
-
-
 Ankoraŭ ŝi ne finis paroli, kiam surflugis kun zuma-do vila burdo rekte al la floreto.
 
 —Zzz . . . , kiu enrampis en mian floreton? Zzz . . .
@@ -225,9 +195,7 @@ La kulineto malfacile sin savis de la kolera burdo. ŝi sidiĝis sur herbeto, le
 
 . . . Li volis ankaŭ piki . . . Tamen ĉio estas mia — la suneto, la herbeto, la floretoj.
 
-—Ne, ho pardonu — tio estas mia! — parolis vila raŭ-
-
-peto, rampanta supren laŭ ŝtipo de herbeto.
+—Ne, ho pardonu — tio estas mia! — parolis vila raŭpeto, rampanta supren laŭ ŝtipo de herbeto.
 
 La kulineto konsideris, ke la raŭpeto ne scias flugi kaj ekparolis pli kuraĝe:
 
@@ -238,12 +206,7 @@ La kulineto konsideris, ke la raŭpeto ne scias flugi kaj ekparolis pli kuraĝe:
 Mi ne ŝatas tion, mi devas konfesi. Tro multaj el vi flugadas ĉi tie. Vi estas popolo malserioza, sed mi estas serioza raŭpeto . . . Mi diras malkaŝe: ĉio apartenas al mi.
 
 
-FABELOJ POR HELENJO
-
-
-Jen mi surrampos herbeton kaj ĝin formanĝos; enram-pos mi en kiun ajn floreton mi volos kaj ankaŭ forman-
-
-ĝos ĝin: is revido! . . .
+Jen mi surrampos herbeton kaj ĝin formanĝos; enram-pos mi en kiun ajn floreton mi volos kaj ankaŭ formanĝos ĝin: is revido! . . .
 
 II.
 
@@ -266,9 +229,6 @@ Dume al la kulineto flugas renkonte aliaj kulinetoj.
 ĉu vi antaŭ nelonge naskiĝis?
 
 
-FABELOJ POR HELENJO
-
-
 —Nur hodiaŭ . . . Burdo preskaŭ pikis min; poste mi vidis raŭpon. Mi opiniis, ke ĉio estas mia, sed ili diras, ke ĉio estas ilia.
 
 La aliaj kulinetoj trankviligis la gastinon kaj invitis ŝin ludi kune. Super la akvo la kulinoj ludis kolone: ili turniĝadis, flugadis, pepadis.
@@ -286,9 +246,6 @@ Kiam la pasero forflugis, mankis tuta deko da kulinetoj.
 —Ha, rabisto! — mallaŭdis la maljunaj kulinetoj. Tutan dekon li formanĝis . . .
 
 2 Lat. carex.
-
-
-FABELOJ POR HELENJO
 
 
 ĉi tiu estis pli malbona ol la burdo. La kulineto komencis timi kaj kaŝiĝis kun aliaj junaj amikinoj ankoraŭ pli profunde en la marĉa herbo. Sed ĉi tie estis alia mal-bono: du kulinetojn formanĝis fiŝo, du aliajn — rano.
@@ -309,11 +266,7 @@ Ha, kiel bone estis!
 
 —Mia luno, miaj steloj, — pensis nia kulineto, sed ŝi diris tion al neniu: oni ja povus eĉ tion ĉi forpreni . . .
 
-Tiel la kulineto pasigis la tutan someron. Multe ŝi gajis, sed estis ankaŭ multe da malagrablaĵoj. Dufoje preskaŭ glutis ŝin lerta hirundo; poste nerimarkeble al-
-
-ŝteliĝis la rano, — nu, ja multajn malamikojn havas la 14
-
-FABELOJ POR HELENJO
+Tiel la kulineto pasigis la tutan someron. Multe ŝi gajis, sed estis ankaŭ multe da malagrablaĵoj. Dufoje preskaŭ glutis ŝin lerta hirundo; poste nerimarkeble alŝteliĝis la rano, — nu, ja multajn malamikojn havas la
 
 
 kulinetoj! Tamen estis ankaŭ ĝojoj. La kulineto renkontis alian kuleton, kun vilaj lipharetoj, kiu diris:
@@ -329,24 +282,16 @@ Nia kulineto naskis ovetojn, kuŝigis ilin en densan her-bon kaj diris:
 Neniu vidis, kiel la kulineto mortis. Nu ja, ŝi ne mortis, sed nur ekdormis por la vintro; en la printempo ŝi revekiĝos kaj denove vivos.
 
 
-FABELOJ POR HELENJO
-
-
 Kiel vivis la lasta muŝo
 
-I.
 
-Kiel gaje estis somere . . . Ha, kiel gaje estis! Eĉ malfacile estas rakonti ĉion laŭorde . . . Kiom da mu-
-
-ŝoj estis — miloj; ili flugadis, zumis, gajis . . . Kiam naskiĝis la malgranda muŝeto, ĝi ordigis siajn flugiletojn, —
+Kiel gaje estis somere . . . Ha, kiel gaje estis! Eĉ malfacile estas rakonti ĉion laŭorde . . . Kiom da muŝoj estis — miloj; ili flugadis, zumis, gajis . . . Kiam naskiĝis la malgranda muŝeto, ĝi ordigis siajn flugiletojn, —
 
 al ĝi ankaŭ fariĝis gaje. Tiel gaje, tiel gaje, ke eĉ ne eblas tion rakonti. Plej interese estis, ke matene oni malfermis ĉiujn fenestrojn kaj pordojn — en kiun fenestron vi volas flugi, en tiun flugu!
 
 —Kia bona estaĵo estas la homo! rimarkis la malgranda muŝeto, flugante de fenestro al fenestro. Ja por ni estas faritaj la fenestroj, kaj oni malfermas ilin ankaŭ por ni. Tre bone, sed precipe, gaje . . .
 
-i milfoje elflugis en la ĝardenon, sidis tie sur verda herbeto, kun plezuro rigardis florantan siringon, la delikatajn folietojn de tilio, disvolvinta siajn burĝonojn, kaj la florojn sur la florbedoj. ardenisto, ĝis nun nekona-ta de ĝi, jam antaŭe prizorgis ĉion. Ha, kiel bona li estas, tiu ĉi ĝardenisto! La muŝeto ankoraŭ ne estis naskiĝinta, kiam li jam ĉion preparis, ĉion, kio estas necesa por la malgranda muŝeto. Tio estis des pli miriga, ke li mem ne 16
-
-FABELOJ POR HELENJO
+i milfoje elflugis en la ĝardenon, sidis tie sur verda herbeto, kun plezuro rigardis florantan siringon, la delikatajn folietojn de tilio, disvolvinta siajn burĝonojn, kaj la florojn sur la florbedoj. ardenisto, ĝis nun nekona-ta de ĝi, jam antaŭe prizorgis ĉion. Ha, kiel bona li estas, tiu ĉi ĝardenisto! La muŝeto ankoraŭ ne estis naskiĝinta, kiam li jam ĉion preparis, ĉion, kio estas necesa por la malgranda muŝeto. Tio estis des pli miriga, ke li mem ne
 
 
 sciis flugi kaj iris kun granda malfacileco, — li iom ŝan-celiĝis kaj parolis tute nekompreneble.
@@ -359,12 +304,7 @@ La homoj ĝenerale estas tiel bonaj, kaj ĉie ili faras di-versajn plezurojn pre
 
 unuvorte, la plej bona virino en la tuta domo. ŝi perfekte sciis, kio estas necesa por la muŝoj, kvankam ŝi ankaŭ ne sciis flugi, kiel la ĝardenisto. Tre bona virino, unuvorte! . . .
 
-Kaj onklino Olga? Ho, tiu virino, ŝajne, vivis speciale nur por la muŝoj . . . ŝi per siaj propraj manoj malfer-17
-
-FABELOJ POR HELENJO
-
-
-mis ĉiumatene ĉiujn fenestrojn, por ke estu pli facile por la muŝoj enflugi, kaj kiam pluvis aŭ estis malvarme ŝi fermis la fenestrojn, por ke la muŝoj ne malsekigu siajn piedetojn kaj ne malvarmumu. Poste onklino Olga rimarkis, ke la muŝoj tre ŝatas sukeron kaj berojn, pro tio ŝi komencis ĉiutage kuiri berajn konfitaĵojn. La muŝoj certe tuj divenis, por kio ĉio estas farata, kaj pro danke-mo rampis rekte en la pelveton kun bera konfitaĵo. Helenjo ankaŭ tre volonte manĝis la konfitaĵon, sed la onklino donis al ŝi nur unu aŭ du kulerojn da ĝi, por ne senigi la muŝojn. ĉar la muŝoj en unu fojo ne povas formanĝi ĉion, onklino Olga konservis la restaĵon de la konfitaĵo en vitraj skatoloj (tial ke ĝin ne formanĝu la musoj, al kiuj konfitaĵo tute ne konvenas); kaj poste ŝi elmetis ĝin ĉiutage al la muŝoj, kiam ŝi trinkis teon.
+Kaj onklino Olga? Ho, tiu virino, ŝajne, vivis speciale nur por la muŝoj . . . ŝi per siaj propraj manoj malfermis ĉiumatene ĉiujn fenestrojn, por ke estu pli facile por la muŝoj enflugi, kaj kiam pluvis aŭ estis malvarme ŝi fermis la fenestrojn, por ke la muŝoj ne malsekigu siajn piedetojn kaj ne malvarmumu. Poste onklino Olga rimarkis, ke la muŝoj tre ŝatas sukeron kaj berojn, pro tio ŝi komencis ĉiutage kuiri berajn konfitaĵojn. La muŝoj certe tuj divenis, por kio ĉio estas farata, kaj pro danke-mo rampis rekte en la pelveton kun bera konfitaĵo. Helenjo ankaŭ tre volonte manĝis la konfitaĵon, sed la onklino donis al ŝi nur unu aŭ du kulerojn da ĝi, por ne senigi la muŝojn. ĉar la muŝoj en unu fojo ne povas formanĝi ĉion, onklino Olga konservis la restaĵon de la konfitaĵo en vitraj skatoloj (tial ke ĝin ne formanĝu la musoj, al kiuj konfitaĵo tute ne konvenas); kaj poste ŝi elmetis ĝin ĉiutage al la muŝoj, kiam ŝi trinkis teon.
 
 —Ha, kiel bonaj ĉiuj estas! ekkriis ravita la juna muŝe-to, flugante de fenestro al fenestro. Eble estas pli bone, ke la homoj ne scias flugi. Tiam ili fariĝus muŝoj, grandaj kaj manĝemaj muŝegoj, kaj certe mem formanĝus ĉion . . . Ha, kiel bone estas vivi en la mondo!
 
@@ -372,43 +312,25 @@ mis ĉiumatene ĉiujn fenestrojn, por ke estu pli facile por la muŝoj enflugi, 
 
 ”paĉjo”?
 
-—Ho jes. Tio estas tre stranga sinjoro. Vi estas tre prava, bona maljuna muŝo . . . Por kio li fumas sian pipon, 18
-
-FABELOJ POR HELENJO
+—Ho jes. Tio estas tre stranga sinjoro. Vi estas tre prava, bona maljuna muŝo . . . Por kio li fumas sian pipon,
 
 
 kiam li bonege scias, ke mi tute ne toleras tabakan fu-mon? ŝajnas al mi, ke li tion faras malbonintence kontraŭ mi . . . Kaj li nenion deziras fari por muŝoj. Mi unu fojon provis la n, per kiu li ĉiam ion skribas, kaj mi preskaŭ mortis . . . Tio ĉi, fine, povas indignigi. Mi vidis per miaj propraj okuloj, kiel en lia inkujo dronis du tre belaj, sed nespertaj muŝetoj. Estis terura vidaĵo, kiam li eltiris per plumo unu el ili kaj faris sur sia papero grandan inkan makulon . . . Imagu vi, li kulpigis pri tio ĉi ne sin mem, sed nin! kie do estas justeco?
 
-—Mi opinias, ke tiu ĉi ”paĉjo” entute malhavas juste-con, kvankam li havas unu kvaliton, respondis la maljuna sperta muŝo: li trinkas post tagmanĝo bieron. Tio estas tute ne malbona kutimo! Mi devas konfesi, ke mi ankaŭ ŝatas bieron, kvankam poste mi havas kapturni-
-
-ĝon . . . Kion fari? Malbona kutimo!
+—Mi opinias, ke tiu ĉi ”paĉjo” entute malhavas juste-con, kvankam li havas unu kvaliton, respondis la maljuna sperta muŝo: li trinkas post tagmanĝo bieron. Tio estas tute ne malbona kutimo! Mi devas konfesi, ke mi ankaŭ ŝatas bieron, kvankam poste mi havas kapturniĝon . . . Kion fari? Malbona kutimo!
 
 —Mi ankaŭ ŝatas bieron, konfesis la juna muŝeto kaj eĉ iomete ruĝiĝis. — Al mi fariĝas poste tiel gaje, tiel gaje, kvankam la sekvantan tagon la kapo iomete dolo-ras. Sed ”paĉjo” eble nenion faras por la muŝoj pro tio, ke li ne manĝas konfitaĵon, sed nur metas sukeron en glason da teo. Laŭ mia opinio, estas neeble atendi ion bonan de homo, kiu ne manĝas konfitaĵon . . . Restas al li nur fumi sian pipon.
 
 
-FABELOJ POR HELENJO
-
-
-II.
-
 La somero estis varmega, kaj ĉiun tagon aperis ĉiam pli da muŝoj. Ili faladis en lakton, en supon, en la inkujon, zumadis, flugadis kaj tedis ĉiujn. Nia malgranda muŝeto jam fariĝis granda muŝo kaj kelkajn fojojn riskis perei. La unuan fojon ĝi enigis siajn piedetojn en konfitaĵon, tiel ke ĝi apenaŭ sukcesis eliĝi, alian fojon pro duondormo ĝi surflugis brulantan lampon kaj preskaŭ ekbruligis siajn flugiletojn; trian fojon ĝi preskaŭ estis dispremita inter fenestraj kadroj, — unuvorte, la okazintaĵoj estis sufiĉe multaj.
 
-—Kio estas tio? La vivo fariĝas neebla pro tiuj ĉi mu-
-
-ŝoj! plendis la kuiristino; — kvazaŭ frenezaj ili ĉien eni-
+—Kio estas tio? La vivo fariĝas neebla pro tiuj ĉi muŝoj! plendis la kuiristino; — kvazaŭ frenezaj ili ĉien eni-
 
 ĝadas . . . Necesas ilin ekstermi.
 
-Eĉ nia muŝo komencis opinii, ke aperis tro multaj mu-
+Eĉ nia muŝo komencis opinii, ke aperis tro multaj muŝoj, precipe en la kuirejo. ĉiuvespere la plafono estis kovrita kvazaŭ per viva moviĝanta reto, kaj kiam oni alportis provizaĵon, la muŝoj sin ĵetis sur ĝin, kiel viva amaso, puŝadis unu la alian kaj treege intermalpaciĝis. La plej bonaj pecoj estis akirataj nur de la plej lertaj kaj for-taj, kaj al la ceteraj restis nur manĝrestaĵoj. Paŭlinjo estis prava.
 
-ŝoj, precipe en la kuirejo. ĉiuvespere la plafono estis kovrita kvazaŭ per viva moviĝanta reto, kaj kiam oni alportis provizaĵon, la muŝoj sin ĵetis sur ĝin, kiel viva amaso, puŝadis unu la alian kaj treege intermalpaciĝis. La plej bonaj pecoj estis akirataj nur de la plej lertaj kaj for-taj, kaj al la ceteraj restis nur manĝrestaĵoj. Paŭlinjo estis prava.
-
-Sed poste okazis io terura. Iun fojon, matene, Paŭlinjo alportis kune kun la provizaĵo tre bongustajn paperojn, t. e. ili fariĝis bongustaj, kiam oni dismetis ilin sur tele-20
-
-FABELOJ POR HELENJO
-
-
-retoj, surŝutis pulvorigitan sukeron kaj surverŝis varman akvon.
+Sed poste okazis io terura. Iun fojon, matene, Paŭlinjo alportis kune kun la provizaĵo tre bongustajn paperojn, t. e. ili fariĝis bongustaj, kiam oni dismetis ilin sur teleretoj, surŝutis pulvorigitan sukeron kaj surverŝis varman akvon.
 
 —Jen bonega regalo por la muŝoj! diris la kuiristino Paŭlinjo, dismetante la teleretojn sur la plej videblaj lo-koj.
 
@@ -418,9 +340,7 @@ La muŝoj mem divenis, ke tio estas farita por ili kaj gajamase ĵetis sin sur l
 
 Cetere mi ja ne estas tiel avida, ke mi forprenos ion de la aliaj. Tio estas tro malĝentila.
 
-Poste okazis io stranga. La plej avidaj muŝoj malsani-
-
-ĝis unuaj . . . Ili komencis iri kiel ebriaj, poste ili tute faladis. Matene Paŭlinjo elbalais grandan teleron plenan da malvivaj muŝoj. Restis vivantaj nur la prudentaj, inter ili — ankaŭ nia muŝo.
+Poste okazis io stranga. La plej avidaj muŝoj malsaniĝis unuaj . . . Ili komencis iri kiel ebriaj, poste ili tute faladis. Matene Paŭlinjo elbalais grandan teleron plenan da malvivaj muŝoj. Restis vivantaj nur la prudentaj, inter ili — ankaŭ nia muŝo.
 
 —Ni ne plu volas la paperojn! pepis ĉiuj. — Ni ne plu volas!
 
@@ -430,9 +350,7 @@ El la prudentaj muŝoj restis vivantaj nur la plej prudentaj. Sed Paŭlinjo trov
 
 —La vivo estas neebla pro ili . . . plendis ŝi.
 
-Tiam la sinjoro, kiun oni nomis paĉjo, alportis tri vit-rajn tre belajn kloŝojn, enverŝis en ilin bieron kaj metis 21
-
-FABELOJ POR HELENJO
+Tiam la sinjoro, kiun oni nomis paĉjo, alportis tri vit-rajn tre belajn kloŝojn, enverŝis en ilin bieron kaj metis
 
 
 ilin sur telerojn. Tie kaptiĝis eĉ la plej prudentaj muŝoj.
@@ -445,15 +363,11 @@ Montriĝis, ke ĉi tiuj kloŝoj estis simple muŝkaptiloj. La muŝojn allogadis 
 
 Kio do estas bonega en tio? nur pripensu! Se la homoj havus similajn flugilojn, kiel havas la muŝoj, kaj se oni metus muŝkaptilojn grandajn kiel domo, ili ankaŭ enflu-gus tien. Nia muŝo, instruita per la maldolĉa sperto eĉ de la plej prudentaj muŝoj, entute ĉesis kredi al la homoj. Ili nur ŝajnas bonaj, sed esence ne estas tiaj! — Ili okupas sin dum sia tuta vivo nur per tio, ke ili trompas la konfidemajn malfeliĉajn muŝojn. Ho, la homo estas la plej ruza kaj malbona besto, vere!
 
-La muŝoj tre malmultiĝis pro ĉiuj malagrablaĵoj, kaj poste okazis nova malfeliĉo. La somero pasis, komenci-
-
-ĝis pluvoj, ekblovis malvarma vento, kaj unuvorte fariĝis malagrabla vetero.
+La muŝoj tre malmultiĝis pro ĉiuj malagrablaĵoj, kaj poste okazis nova malfeliĉo. La somero pasis, komenciĝis pluvoj, ekblovis malvarma vento, kaj unuvorte fariĝis malagrabla vetero.
 
 —ĉu efektive pasis la somero? miradis la restintaj vivantaj muŝoj. — Kiel do ĝi jam sukcesis pasi? Tio estas nejusta.
 
-Tio estis efektive pli fatala ol venenumitaj paperoj aŭ vitraj muŝkaptiloj. Oni povis serĉi rifuĝejon kontraŭ la malbona vetero nur ĉe sia plej granda malamiko, t. e. ĉe 22
-
-FABELOJ POR HELENJO
+Tio estis efektive pli fatala ol venenumitaj paperoj aŭ vitraj muŝkaptiloj. Oni povis serĉi rifuĝejon kontraŭ la malbona vetero nur ĉe sia plej granda malamiko, t. e. ĉe
 
 
 sinjoro homo. Ho ve! nun la fenestroj ne plu estas mal-fermitaj la tutan tagon, sed nur iufoje — la fenestretoj.
@@ -469,9 +383,6 @@ La karaktero de nia muŝo tiel malboniĝis, ke ĝi tute ne rekonis sin mem. Anta
 —Nu, ili pereu — por mi pli multe restos!
 
 
-FABELOJ POR HELENJO
-
-
 Unue, la varmaj anguloj, en kiuj bonkonduta muŝo povas travivi la vintron, estas tute ne tiel multaj; due, estis tedaj la aliaj muŝoj, kiuj ĉie eniĝadis kaj kaptis el sub la nazo la plej bonajn pecojn kaj unuvorte kondu-tis sufiĉe senceremonie. Estis nun tempo por ripozo.
 
 Tiuj aliaj muŝoj kvazaŭ komprenis tiujn malbonajn pensojn kaj mortadis pocente. Ili eĉ ne mortis, sed kvazaŭ ekdormis. ĉiutage ili fariĝis pli malmultaj, tiel ke estis jam superfluaj la venenumitaj paperoj kaj la vitraj muŝkaptiloj. Sed por nia muŝo eĉ tio ne estis sufiĉa: i volis resti tute sola. Vi pensu nur, kia agrablaĵo: kvin ĉambroj kaj nur unu sola muŝo!
@@ -481,9 +392,6 @@ III.
 Alvenis fine tia feliĉa tago. Unufoje matene nia muŝo vekiĝis sufiĉe malfrue. i jam de longe sentis ne-kompreneblan laciĝon kaj preferis sidi senmove en sia anguleto sub la forno. Sed nun ĝi sentis, ke io neordina-ra okazis. Estis sufiĉe nur alflugi al la fenestro, kaj ĉio kompreniĝis per unu fojo. Falis la unua neĝo . . . La tero estis kaŝita de hela blanka kovraĵo.
 
 —Ha, jen kio estas vintro! rimarkis ĝi. — Tio ja estas tute blanka, kvazaŭ peco da bona sukero . . .
-
-
-FABELOJ POR HELENJO
 
 
 Poste la muŝo konstatis, ke ĉiuj aliaj muŝoj absolute malaperis. La malfeliĉuloj ne eltenis la unuan malvarmon, kaj ili ekdormis, kie ili okaze sin trovis. La muŝo en alia tempo kompatus ilin, sed nun ĝi nur pensis:
@@ -496,12 +404,7 @@ i ĉirkaŭflugis tra ĉiuj ĉambroi kaj ankoraŭ unu fojon konvinkiĝis, ke ĝi 
 
 —Tio ĉi estas kredeble vintra muŝkaptilo, — ĝi konsideris, viŝante la bruligitajn piedetojn . . . Ne, vi min ne trompos . . . Ho mi bonege komprenas ĉion! Vi volas bruligi la lastan muŝon? Sed mi tute ne volas . . . Jen la kuireja forno — ĉu efektive mi ne komprenas, ke tio ĉi estas ankaŭ muŝkaptilo?
 
-Nur kelkajn tagojn estis feliĉa la lasta muŝo, sed poste subite ĝi enuis, tiel enuis, tiel enuis, ke ŝajnas eĉ neeble rakonti tion. Certe estis varme al ĝi, ĝi estis sata, sed poste — poste ĝi enuis. i flugadas, flugadas, ripozas, man-25
-
-FABELOJ POR HELENJO
-
-
-ĝas kaj denove flugadas — sed ho ve, ĝi rekomencas enui poste ankoraŭ pli ol antaŭe.
+Nur kelkajn tagojn estis feliĉa la lasta muŝo, sed poste subite ĝi enuis, tiel enuis, tiel enuis, ke ŝajnas eĉ neeble rakonti tion. Certe estis varme al ĝi, ĝi estis sata, sed poste — poste ĝi enuis. i flugadas, flugadas, ripozas, manĝas kaj denove flugadas — sed ho ve, ĝi rekomencas enui poste ankoraŭ pli ol antaŭe.
 
 —Ha, kiel mi enuas! pepis ĝi per la plej kompatinda, delikata voĉo, flugante de ĉambro al ĉambro. — Se nur restus ankoraŭ unu muŝeto, eĉ la plej malbona, sed tamen unu muŝeto . . .
 
@@ -526,9 +429,6 @@ i vivu la tutan vintron.
 Sed se mi enuas! Se mi eble eĉ tute ne volas vivi? Nu jen, mi ne volas, ne volas . . .
 
 
-FABELOJ POR HELENJO
-
-
 La lasta muŝo tiel koleris kontraŭ ĉiuj, ke eĉ al ĝi mem fariĝis terure. i flugadis, zumis, pepis . . .
 
 Araneo, sidanta en angulo, fine kompatis ĝin kaj diris:
@@ -550,9 +450,6 @@ i eĉ ploretis pro malĝojo, rememorante la pasintan someran ĝojon. Kiom da gaj
 La vintro daŭris senfine, kaj la lasta muŝo komencis pensi, ke la somero tute ne revenos. i volis morti kaj ploradis mallaŭte. Certe la homoj elpensis la vintron, ĉar ili elpensas entute ĉion, kio estas malutila al muŝoj. Sed eble onklino Olga kaŝis ien la someron, kiel ŝi kaŝas la sukeron kaj konfitaĵon.
 
 
-FABELOJ POR HELENJO
-
-
 La lasta muŝo estis tute preta morti pro malespero, kiam okazis io eksterordinara. i kiel kutime estis sidanta en sia anguleto kaj koleris, kiam subite ĝi aŭdis —
 
 zzzz . . . Komence ĝi ne kredis al siaj propraj oreloj kaj pensis, ke io ĝin trompas. Sed poste . . . Ho Dio, kio estis tio! Preter ĝi flugis vera viva muŝeto, ankoraŭ tute juna. i ĵus naskiĝis kaj ĝojis.
@@ -568,14 +465,10 @@ Kiam onklino Olga igis forpreni ĉiujn fenestrajn ka-drojn de la vintro kaj Hele
 —Nun mi scias ĉion, zumis ĝi, elflugante tra la fenestro: Ni, muŝoj, faras la someron.
 
 
-FABELOJ POR HELENJO
-
-
 Lakteto, avena kaĉeto
 
 kaj la griza kato Murko
 
-I.
 
 Kiel vi volas, sed tio ĉi estas miriga! Kaj plej mirige estas, ke tio ĉi ripetiĝas ĉiutage. Jes, kiam estas me-titaj sur la fornon en la kuirejo la poto kun lakteto kaj la argila kaserolo kun avena kaĉeto, tiam komenciĝas la afero. Unue ili staras kvazaŭ trankvile, sed poste komenciĝas interparolado.
 
@@ -595,18 +488,14 @@ La kaĉeton oni kovras per argila kovrilo, kaj ĝi mur-muras en sia kaserolo kie
 
 Al la lakteto tiu ĉi fanfaronado ŝajnis treege ofenda.
 
-Diru, mi petas, kia vidindaĵo — ia avena kaĉo! La lakto 29
-
-FABELOJ POR HELENJO
+Diru, mi petas, kia vidindaĵo — ia avena kaĉo! La lakto
 
 
 komencis varmegiĝi, ŝaŭmo suprenleviĝis kaj penadis eliĝi el sia poteto. Momenton la kuiristino malatentis, jen la lakteto elverŝiĝis sur la varmega forno.
 
 —Nu jam tiu ĉi malbenita lakteto! plendis ĉiufoje la kuiristino. — Se iomete oni malatentas, ĝi tuj eliĝas.
 
-—Kion mi povas fari, se mi havas tiel ekflameman karakteron? diris la lakteto por sia pravigo. — Mi mem ja ne estas ĝoja, kiam mi ekflamiĝas. Sed tie ĉi ankoraŭ la kaĉeto ĉiam fanfaronas: ”mi estas kaĉeto, mi . . . ka-
-
-ĉeto, mi . . . kaĉeto” . . . i en sidas kaserolo, murmu-ras, nu jen mi ekflamiĝas.
+—Kion mi povas fari, se mi havas tiel ekflameman karakteron? diris la lakteto por sia pravigo. — Mi mem ja ne estas ĝoja, kiam mi ekflamiĝas. Sed tie ĉi ankoraŭ la kaĉeto ĉiam fanfaronas: ”mi estas kaĉeto, mi . . . kaĉeto, mi . . . kaĉeto” . . . i en sidas kaserolo, murmu-ras, nu jen mi ekflamiĝas.
 
 La afero kelkafoje iris ĝis tio, ke la kaĉeto elkuris el la kaserolo, malgraŭ ĝia kovrilo, — rampis sur la platfor-non, ĉiam ripetante:
 
@@ -616,11 +505,6 @@ Vere, tio ne okazis ofte, sed tamen okazis, kaj la kuiristino ripetis malespere 
 
 —Nu jam ĉi tiu malbenita kaĉeto! Pro kio ĝi ne sidas trankvile en la kaserolo? Estas vere mirige!
 
-
-FABELOJ POR HELENJO
-
-
-II.
 
 La kuiristino ĝenerale sufiĉe ofte koleris, kaj estis ja ne malmulte da kaŭzoj por tia kolero. Ekzemple la kato Murko! Jes, li estis tre bela kato, kaj la kuiristino tre amis lin. ĉiun matenon Murko de proksime sekvis la kuiristinon kaj miaŭis per tia plenda voĉo, ke ŝajne eĉ ŝtona koro devus kompati.
 
@@ -636,9 +520,7 @@ Manĝinte hepaton, Murko sidiĝis apud la forno, kie estas pli varme, fermis la 
 
 —Jen, kiom li nutris sin, rimarkis la kuiristino. — Eĉ la okulojn li fermas, maldiligentulo . . . kaj li volas, ke ĉiam oni donu al li viandon!
 
-—Mi ja ne estas mona˛o por ne manĝi viandon, sin pravigis Murko, malfermante nur unu okulon. — Krome 31
-
-FABELOJ POR HELENJO
+—Mi ja ne estas mona˛o por ne manĝi viandon, sin pravigis Murko, malfermante nur unu okulon. — Krome
 
 
 mi ankaŭ ŝatas manĝi fiŝojn. Mi ĝis nun ne povas diri, kio estas pli bongusta: hepato aŭ fiŝo. Pro ĝentileco mi manĝas unu kaj alian . . . Se mi estus homo, mi nepre estus aŭ fiŝkaptisto aŭ kolportisto, kiu alportas al mi la hepaton. Mi nutrus ĝis plena satiĝo ĉiujn katojn en la mondo kaj mi mem ankaŭ estus ĉiam sata . . .
@@ -651,18 +533,13 @@ Nu, pro kio vi rigardas min!
 
 —Sed se mi deziras konatiĝi kun vi?
 
-—Mi scias, kiel vi konatiĝas. Kiu antaŭ nelonge man-
-
-ĝis vivan paseron? Hu, abomenulo!
+—Mi scias, kiel vi konatiĝas. Kiu antaŭ nelonge manĝis vivan paseron? Hu, abomenulo!
 
 —Neniel mi estas abomenulo, — kaj eĉ male. ĉiuj min amas. Venu al mi, mi rakontos fabeleton al vi.
 
 —Ha friponulo . . . bona fabelisto! Mi vidis, kiel vi rakontis fabeletojn al rostita kokido, kiun vi ŝtelis en la kuirejo . . . Bone!
 
 —Kiel vi volas, mi ja parolas nur por via plezuro. La rostitan kokidon mi efektive manĝis, sed estis ja tute egale, ĝi jam taŭgis por nenio.
-
-
-FABELOJ POR HELENJO
 
 
 III.
@@ -686,9 +563,6 @@ Forpreninte lakteton kaj kaĉeton, la kuiristino foriris en magazenon por aĉeti
 —Mi petas, ne koleru, lakteto . . .
 
 
-FABELOJ POR HELENJO
-
-
 La lakteto videble komencis trankviliĝi. Murko ĉir-kaŭiris ĝin, ankoraŭ unu fojon blovis sur ĝin, ordigis siajn lipharojn kaj diris afable:
 
 —Aŭskultu, sinjoroj . . . Malpaci ĝenerale ne estas bone. Jes. Elektu min kiel juĝiston; mi tuj prijuĝos vian aferon.
@@ -709,22 +583,13 @@ Kiam la kuiristino revenis de la magazeno kaj rigardis la poteton — jen ĝi es
 
 —Ha vi, sentaŭgulo! mallaŭdis la kuiristino, kaptante lin ĉe la orelo. — Kiu trinkis la lakton? Diru!
 
-Kiel ajn dolore estis, Murko ŝajnigis, ke li nenion komprenas kaj ne scias paroli. Kiam oni elĵetis lin eks-34
-
-FABELOJ POR HELENJO
-
-
-ter la pordon, li skuis sin, lekis la malordigitan hararon, ordigis la voston kaj diris:
+Kiel ajn dolore estis, Murko ŝajnigis, ke li nenion komprenas kaj ne scias paroli. Kiam oni elĵetis lin ekster la pordon, li skuis sin, lekis la malordigitan hararon, ordigis la voston kaj diris:
 
 —Se mi estus kuiristino, ĉiuj de mateno ĝis nokto nur trinkus lakton. Cetere, mi ne koleras kontraŭ mia kuiristino, ĉar ŝi ne komprenas ĉi tion . . .
 
 
-FABELOJ POR HELENJO
-
-
 Estas tempo por dormi
 
-I.
 
 Ekdormas la alia okuleto de Helenjo, ekdormas la alia oreleto de Helenjo . . .
 
@@ -745,9 +610,6 @@ Ha, kiel multaj floroj! Kaj ĉiuj ili ankaŭ ridetas. Ili ĉir-kaŭstaras ronde 
 —Sinjoroj, necesas serioze prikonsideri ĉi tiun aferon, atakeme entrudiĝis flava leontodo. — Mi almenaŭ tute ne atendis tion . . .
 
 
-FABELOJ POR HELENJO
-
-
 —Kion signifas — esti reĝino? demandis blua kampa cejano. — Mi kreskis en kampo kaj ne komprenas viajn urbajn morojn.
 
 —Tre simple . . . enmiksiĝis roza kariofilo. — Tio estas tiel simpla, ke eĉ ne necesas klarigi. Reĝino — tio estas . . . tio . . . ĉu vi do ne komprenas? Ha, kiel stran-gaj vi estas . . . Reĝino, tio estas, kiam floro estas roz-kolora, kiel mi. Alivorte: Helenjo volas esti kariofilo. ĉu tio ne estas komprenebla?
@@ -761,11 +623,6 @@ FABELOJ POR HELENJO
 —Leontodo, ne koleru, ni petas! admonis la arbaraj kampanuloj. — Tio malbonigas la karakteron kaj krome, tio estus nebela. Vidu, ni silentas, ĉar Helenjo volas esti arbara kampanulo, ĉar tio estas klara per si mem.
 
 
-FABELOJ POR HELENJO
-
-
-II.
-
 Estis multe da floroj, kaj ili tiel ridinde disputadis; la kampaj floretoj estis tute modestaj — konvaloj, violoj, miozotoj, kampanuloj, cejanoj, kampa kariofilo; sed la floroj kreskintaj en oranĝerioj iomete fanfaronis — rozoj, tulipoj, lilioj, narcisoj, levkojoj, kvazaŭ riĉaj infanoj feste vestitaj. Helenjo pli amis la modestajn kampajn flo-retojn, el kiuj ŝi faradis bukedojn kaj plektadis florkro-nojn. Kiel ili ĉiuj estas bonaj!
 
 —Helenjo tre amas nin, murmuretis la violoj. Ja ni aperas printempe unuaj. Apenaŭ la neĝo fluidiĝis, ni jam estas ĉi tie.
@@ -776,9 +633,7 @@ Estis multe da floroj, kaj ili tiel ridinde disputadis; la kampaj floretoj estis
 
 —ĉe ni estas ankau agrable, disputis la kampaj floroj.
 
-— Certe, okazas kelkfoje granda malvarmo, sed tio estas utila . . . Kaj krome la malvarmo mortigas niajn plej 38
-
-FABELOJ POR HELENJO
+— Certe, okazas kelkfoje granda malvarmo, sed tio estas utila . . . Kaj krome la malvarmo mortigas niajn plej
 
 
 grandajn malamikojn, kiel raŭpojn, kulojn. Se ne ekzis-tus malvarmo, estus tre malbone al ni.
@@ -797,11 +652,7 @@ Nun ekparolis ĉiuj en unu fojo. La rozoj rememoris kun larmoj la benitajn valoj
 
 La enlandaj kampaj floretoj eĉ kompatis ilin. Efektive necesas havi grandan paciencon, kiam blovas malvarma norda vento, falas malvarma pluvo kaj neĝo. La printempa neĝeto certe rapide degelas, sed tamen ĝi estas neĝo.
 
-—Vi havas grandegan mankon, klarigis la cejano, aŭ-
-
-skultinte tiujn ĉi rakontojn. — Mi ne disputas, vi eble 39
-
-FABELOJ POR HELENJO
+—Vi havas grandegan mankon, klarigis la cejano, aŭskultinte tiujn ĉi rakontojn. — Mi ne disputas, vi eble
 
 
 estas kelkfoje pli belaj ol ni, kampaj floretoj, mi volonte konsentas pri tio . . . jes. Unuvorte, vi estas niaj karaj gastoj, sed via ĉefa manko estas tio, ke vi kreskas nur por riĉuloj; ni kontraŭe kreskas por ĉiuj. Ni estas multe pli bonaj . . . Jen mi, ekzemple; vi vidas min en la manoj de ĉiu vilaĝana infano. Kiom da ĝojo mi donas al ĉiuj malriĉaj infanoj! Ne necesas pagi monon por mi, sed sufiĉas nur eliri en kampon. Mi kreskas kune kun seka-lo, tritiko, aveno . . .
@@ -819,9 +670,6 @@ Kial mi ne havas flugiletojn? Ha kiel ĉarme estus fariĝi birdeto!
 —Helenjo, ni flugu! murmuris la kokcinelo, movetan-te la lipharetojn.
 
 —Mi ne havas flugilojn, kokcineleto!
-
-
-FABELOJ POR HELENJO
 
 
 —Sidiĝu sur min . . .
@@ -851,9 +699,6 @@ Helenjo rigardis malsupren kaj ekmiregis.
 La tero estis kvazaŭ kovrita de viva tapiŝo de rozoj.
 
 
-FABELOJ POR HELENJO
-
-
 —Ni malsupreniĝu teren, kokcineleto! ŝi petis.
 
 Ili malsupreniĝis, kaj Helenjo fariĝis denove granda, kiel ŝi estis antaŭe; kaj la kokcineleto fariĝis malgranda.
@@ -876,9 +721,7 @@ Kiel bele estis ĉirkaŭe! La ĉielo estis tiel blua kaj malsupre ankoraŭ pli b
 
 —Jes . . . Nur sidu trankvile kaj tenu vin pli forte.
 
-Komence Helenjo timis, poste — ne. Krom ĉielo kaj akvo nenio restis. Sur la maro naĝis ŝipoj kiel grandaj birdoj kun blankaj flugiloj . . . Malgrandaj ŝipoj estis 42
-
-FABELOJ POR HELENJO
+Komence Helenjo timis, poste — ne. Krom ĉielo kaj akvo nenio restis. Sur la maro naĝis ŝipoj kiel grandaj birdoj kun blankaj flugiloj . . . Malgrandaj ŝipoj estis
 
 
 similaj al muŝoj. Ha, kiel bele, kiel bone! Kaj malproksi-me jam vidiĝis la mara bordo, malalta, flava kaj sabla, —
@@ -904,9 +747,6 @@ Ili ekflugis pluen. Sed Helenjo ne plu miris pri la blua maro, nek pri la montoj
 —Ne al tiu, kiu kutimis, Helenjo.
 
 
-FABELOJ POR HELENJO
-
-
 Ili flugis al altaj montoj, sur kies suproj kuŝas eterna neĝo. ĉi tie ne estas tiel varme. Post la montoj komenciĝis netraireblaj arbaroj. Sub la arkaĵo de arboj estis mallume, ĉar la suna lumo ne penetras tra la densaj supraĵoj de la arboj. Sur la branĉoj saltis simioj. Kaj kiom da birdoj estis — verdaj, ruĝaj, flavaj, bluaj . . . Sed plej mirigaj estis la floroj kreskantaj rekte sur arbaj trunkoj.
 
 Estis floroj kun tute fajra koloro, floroj similaj al tute malgrandaj birdetoj kaj al grandaj papilioj, — la tuta arbaro kvazaŭ brulis de diverskoloraj vivaj fajretoj.
@@ -918,9 +758,6 @@ Iradi estis neeble ĉi tie, ĉio interplektiĝis.
 Ili flugis pluen. Jen grandega rivero inter verdaj bor-doj. La kokcineleto malsupreniĝis rekte sur grandan blankan floron, kreskanta sur la akvo. Tiajn grandajn florojn Helenjo ankoraŭ ne vidis.
 
 —Tio ĉi estas sankta floro, klarigis la kokcineleto. — i nomiĝas Lotoso . . .
-
-
-FABELOJ POR HELENJO
 
 
 V.
@@ -943,9 +780,7 @@ Ho, kiel terure! ŝi turniĝis kelkajn fojojn en aero kaj falis rekte en molan n
 
 Helenjo malfermis la okuletojn kaj ekvidis grizan —
 
-grizan ĝiban maljunulon. ŝi ankaŭ lin tuj rekonis. Li estis tiu sama maljunulo, kiu alportas al la saĝaj infanoj Krist-naskajn abietojn, orajn stelojn, skatoletojn kun bombo-noj kaj plej mirigajn ludilojn. Ho, li estas tiel bona, tiu 45
-
-FABELOJ POR HELENJO
+grizan ĝiban maljunulon. ŝi ankaŭ lin tuj rekonis. Li estis tiu sama maljunulo, kiu alportas al la saĝaj infanoj Krist-naskajn abietojn, orajn stelojn, skatoletojn kun bombo-noj kaj plej mirigajn ludilojn. Ho, li estas tiel bona, tiu
 
 
 maljunulo! Li tuj prenis ŝin sur siajn manojn, kovris ŝin per sia pelto kaj denove demandis:
@@ -975,9 +810,6 @@ Ili alvenis al la unua dometo. La maljunulo prenis ne-draŝitan garbon de aveno,
 —Tio ĉi estas nia abio! ili kriis.
 
 
-FABELOJ POR HELENJO
-
-
 Al Helenjo subite fariĝis tre gaje. ŝi por la unua fojo vidis, kiel oni aranĝas vintre abion por la birdoj. Ha, kia bona maljunulo! Unu pasereto, kiu plej multe klopodis, tuj rekonis Helenjon kaj ekkriis:
 
 —Nu, jen estas Helenjo! Mi tre bone konas ŝin. ŝi ne nur unu fojon nutris min per panpecetoj . . . Jes.
@@ -1003,9 +835,6 @@ La malpacema pasero eksaltis sur unu piedeto, mali-ce faris signon per unu okulo
 —Bonege. Nenio estas pli simpla: ĉiu reĝino estas virino kaj ĉiu virino estas reĝino . . . nun iru hejmen kaj diru tion al ĉiuj aliaj infanetoj.
 
 
-FABELOJ POR HELENJO
-
-
 La kokcinelo estis ĝoja foriri de tiu loko, antaŭ ol iu malmodesta pasero manĝos ĝin. Ili ekflugis hejmen rapide — rapide . . . Kaj tie jam ĉiuj floretoj atendis Helenjon. Ili la tutan tempon diskutadis pri tio, kio estas reĝino.
 
 Baju, baju, baju . . .
@@ -1021,9 +850,6 @@ Fermiĝis la alia okuleto, ekdormis la alia oreleto. Kaj apud la liteto de Helen
 Dormu, Helenjo, dormu, belulino!
 
 Baju, baju, baju . . .
-
-
-FABELOJ POR HELENJO
 
 
 www.omnibus.se/

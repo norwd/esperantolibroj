@@ -7,42 +7,29 @@ Tria libro
 
 Boleslaw Prus
 
-LA FARAONO 3
+LA FARAONO
 
 Kabe
-
-
-@omnibus.se
-
-·
 
 
 LA FARAONO
 
 
-ĉAPITRO UNUA
+ĈAPITRO UNUA
 
-ĉu la profetoj de la subtera templo de Sfinkso vidis la no-
-
-van monar˛on de Egipto apud la piramidoj, ĉu ili sciigis
+ĉu la profetoj de la subtera templo de Sfinkso vidis la novan monar˛on de Egipto apud la piramidoj, ĉu ili sciigis
 
 tion al la reĝa palaco kaj kiel? oni ne scias. Sed kiam Ramzes estis proksimiĝanta al la rivero, la respektinda ĉefpastro Herhor ordonis veki la palacajn servistojn, kaj kiam la sinjoro estis sur Nilo, ĉiuj pastroj, generaloj kaj civilaj altranguloj jam kolektiĝis en la granda salono.
 
-ĉe la leviĝo de la suno Ramzes en la fronto de la malgran-
-
-da taĉmento enrajdis en la palacan korton, kie la servistoj
+ĉe la leviĝo de la suno Ramzes en la fronto de la malgranda taĉmento enrajdis en la palacan korton, kie la servistoj
 
 falis antaŭ li sur la vizaĝojn, kaj la gvardio levis la glavojn ĉe sono de trumpetoj kaj tamburoj.
 
-Salutinte la armeon, lia sankteco iris en la banejon kaj ba-
-
-nis sin en parfumita akvo. Poste li permesis ordigi siajn diajn harojn; kiam la frizisto demandis lin plej humile, ĉu li ordonas razi la kapon kaj barbon, la estro respondis:
+Salutinte la armeon, lia sankteco iris en la banejon kaj banis sin en parfumita akvo. Poste li permesis ordigi siajn diajn harojn; kiam la frizisto demandis lin plej humile, ĉu li ordonas razi la kapon kaj barbon, la estro respondis:
 
 —Superflue. Mi ne estas pastro, sed soldato.
 
-Post momento ĉi tiuj vortoj transiris en la aŭdiencan salo-
-
-non, post unu horo trakuris la palacon, tagmeze ili jam estis disportitaj en la tuta Memfiso, kaj vespere estis jam konataj en ĉiuj temploj de la ŝtato, de Tami-nhor kaj Sabne-˘etam
+Post momento ĉi tiuj vortoj transiris en la aŭdiencan salonon, post unu horo trakuris la palacon, tagmeze ili jam estis disportitaj en la tuta Memfiso, kaj vespere estis jam konataj en ĉiuj temploj de la ŝtato, de Tami-nhor kaj Sabne-˘etam
 
 norde ĝis Suunu kaj Pilak sude.
 
@@ -51,38 +38,25 @@ Aŭdante la novaĵon, la nomar˛oj, nobeloj, soldatoj, popolo
 kaj eksterlanduloj freneziĝis de ĝojo, sed la sankta pastraro tiom pli fervore funebris la mortintan faraonon.
 
 
-LA FARAONO
-
-
-Elirinte el la banejo, lia sankteco surmetis mallongan ĉemi-
-
-zon kun nigraj kaj flavaj strioj, sur ĝin flavan brustŝirmilon, sur la piedojn sandalojn, ligitajn per rimenoj, kaj sur la kapon kaskon kun pinto. Poste li alligis ŝtalan asirian glavon, kiun li portis en la batalo apud Sodaj Lagoj, kaj ĉirkaŭita de granda sekvantaro de generaloj, kun bruo kaj tinto eniris en la aŭ-
+Elirinte el la banejo, lia sankteco surmetis mallongan ĉemizon kun nigraj kaj flavaj strioj, sur ĝin flavan brustŝirmilon, sur la piedojn sandalojn, ligitajn per rimenoj, kaj sur la kapon kaskon kun pinto. Poste li alligis ŝtalan asirian glavon, kiun li portis en la batalo apud Sodaj Lagoj, kaj ĉirkaŭita de granda sekvantaro de generaloj, kun bruo kaj tinto eniris en la aŭ-
 
 diencan salonon.
 
 Tie iris renkonte al li la ĉefpastro Herhor, akompanata de
 
-la sanktaj ĉefpastroj Sem, Mefres kaj aliaj. Ilin sekvis: la grandaj juĝistoj de Memfiso kaj Teboj, dekkelko da najbaraj no-
-
-mar˛oj, granda kasisto, kaj la superaj intendantoj de la do-
+la sanktaj ĉefpastroj Sem, Mefres kaj aliaj. Ilin sekvis: la grandaj juĝistoj de Memfiso kaj Teboj, dekkelko da najbaraj nomar˛oj, granda kasisto, kaj la superaj intendantoj de la do-
 
 moj: de greno, brutoj, vestoj, sklavoj, oro kaj arĝento, kaj multaj aliaj altranguloj.
 
 Herhor sin klinis antaŭ Ramzes kaj diris kortuŝita:
 
-—Sinjoro! Al eterne vivanta via patro plaĉis foriri al la dioj, kie li ĝuas la eternan feliĉon. Sur vin hodiaŭ falas la devo zorgi pri la nia ŝtato. Saluton do al vi, sinjoro kaj estro de la mondo, kaj vivu eterne lia sankteco la faraono ˘am-sam-merer-
+—Sinjoro! Al eterne vivanta via patro plaĉis foriri al la dioj, kie li ĝuas la eternan feliĉon. Sur vin hodiaŭ falas la devo zorgi pri la nia ŝtato. Saluton do al vi, sinjoro kaj estro de la mondo, kaj vivu eterne lia sankteco la faraono ˘am-sam-mereramen-Ramesses-neter-hog-an!…
 
-amen-Ramesses-neter-hog-an!…
-
-La ĉeestantoj kun entuziasmo ripetis la ekkrion. Oni supo-
-
-zis, ke la nova estro montros emocion aŭ embarason. Sed je
+La ĉeestantoj kun entuziasmo ripetis la ekkrion. Oni supozis, ke la nova estro montros emocion aŭ embarason. Sed je
 
 ĝenerala mirego, la sinjoro nur sulkigis la brovojn kaj respondis:
 
-—Konforme al la volo de mia patro kaj al la leĝoj de Egip-
-
-to mi prenas en miajn manojn la regadon kaj mi estros por la gloro de la ŝtato kaj por la feliĉo de la popolo …
+—Konforme al la volo de mia patro kaj al la leĝoj de Egipto mi prenas en miajn manojn la regadon kaj mi estros por la gloro de la ŝtato kaj por la feliĉo de la popolo …
 
 Subite la sinjoro sin turnis al Herhor kaj fikse rigardante
 
@@ -93,9 +67,6 @@ liajn okulojn, demandis:
 Kial vi surmetis la simbolon de la reĝa povo?
 
 
-LA FARAONO
-
-
 Morta silento ekregis en la kunveno. La plej maltima homo
 
 en Egipto supozus neniam, ke la juna sinjoro komencos la
@@ -104,39 +75,22 @@ regadon per tia demando al la plej potenca persono en la tuta regno, eble pli po
 
 Sed post la juna sinjoro staris dekkelko da generaloj, en la korto brilis la sentimaj regimentoj de la gvardio, kaj Nilon jam estis transiranta la armeo de Sodaj Lagoj, ebria de la triumfo, amanta sian ĉefon.
 
-La potenca Herhor paliĝis kiel vakso kaj ne povis eligi vo-
+La potenca Herhor paliĝis kiel vakso kaj ne povis eligi voĉon el la kunpremita laringo.
 
-ĉon el la kunpremita laringo.
+—Mi demandis vian ekscelencon — trankvile ripetis la faraono — je kia rajto sur via tiaro estas la reĝa serpento?
 
-—Mi demandis vian ekscelencon — trankvile ripetis la fa-
+—Tio estas la tiaro de via avo, la sankta Amenhotep — mallaŭte respondis Herhor. — La plej alta kolegio ordonis al mi surmeti ĝin en gravaj cirkonstancoj.
 
-raono — je kia rajto sur via tiaro estas la reĝa serpento?
-
-—Tio estas la tiaro de via avo, la sankta Amenhotep — mal-
-
-laŭte respondis Herhor. — La plej alta kolegio ordonis al mi surmeti ĝin en gravaj cirkonstancoj.
-
-—Mia sankta avo — diris la faraono — estis patro de la re-
-
-ĝino kaj kiel favoron li ricevis la rajton ornami sian tiaron per la ureuso. Sed, kiel mi scias, lia ceremonia vesto troviĝas inter la relikvoj de la templo de Amon.
+—Mia sankta avo — diris la faraono — estis patro de la reĝino kaj kiel favoron li ricevis la rajton ornami sian tiaron per la ureuso. Sed, kiel mi scias, lia ceremonia vesto troviĝas inter la relikvoj de la templo de Amon.
 
 Herhor jam ekregis sin mem.
 
-—Bonvolu rememori, via sankteco — klarigis li — ke la tu-
+—Bonvolu rememori, via sankteco — klarigis li — ke la tutan tagon Egipto restis sen estro. Iu ja devis veki kaj kuŝigi la dion Ozirison, doni benojn al la popolo kaj honori la reĝajn antaŭulojn. Por tiel malfacila momento la plej alta kolegio ordonis al mi surmeti la sanktan relikvon, por ke ne malfruu la regado de la ŝtato kaj la servado al la dioj. Sed nun, kiam ni havas rajtan kaj potencan estron, mi demetas la miraklan relikvon …
 
-tan tagon Egipto restis sen estro. Iu ja devis veki kaj kuŝigi la dion Ozirison, doni benojn al la popolo kaj honori la reĝajn antaŭulojn. Por tiel malfacila momento la plej alta kolegio ordonis al mi surmeti la sanktan relikvon, por ke ne malfruu la regado de la ŝtato kaj la servado al la dioj. Sed nun, kiam ni havas rajtan kaj potencan estron, mi demetas la miraklan relikvon …
-
-Dirinte ĉi tion, Herhor demetis de la kapo la tiaron, orna-
-
-mitan per la ureuso, kaj transdonis ĝin al la ĉefpastro Mefres.
+Dirinte ĉi tion, Herhor demetis de la kapo la tiaron, ornamitan per la ureuso, kaj transdonis ĝin al la ĉefpastro Mefres.
 
 
-LA FARAONO
-
-
-La minaca vizaĝo de la faraono sereniĝis kaj li direktis si-
-
-ajn paŝojn al la trono.
+La minaca vizaĝo de la faraono sereniĝis kaj li direktis siajn paŝojn al la trono.
 
 Subite la sankta Mefres baris al li la vojon kaj sin klininte al la tero, diris:
 
@@ -154,17 +108,13 @@ rektiĝinte li daŭrigis:
 
 ne posedas ĉefpastrajn sanktigojn, ne povas fari la plej altajn oferojn, nek vesti kaj senvestigi la miraklan Ozirison.
 
-—Mi komprenas — interrompis la sinjoro. — Mi estas fa-
-
-raono, kiu ne posedas la rangon de ĉefpastro.
+—Mi komprenas — interrompis la sinjoro. — Mi estas faraono, kiu ne posedas la rangon de ĉefpastro.
 
 —Kaj tial — daŭrigis Mefres — la plej alta kolegio humile
 
 petas vian sanktecon, ke vi bonvolu elekti ĉefpastron, kiu povas anstataŭi vin en la plenumado de la religiaj ceremonioj.
 
-Aŭskultante la kategorian paroladon, la ĉefpastroj kaj ci-
-
-vilaj altranguloj tremis kaj maltrankvile moviĝis, la generaloj kvazaŭ nevole ordigis la glavojn. Sed la sankta Mefres rigardis ilin kun nekaŝata malestimo kaj ree fiksis siajn malvar-
+Aŭskultante la kategorian paroladon, la ĉefpastroj kaj civilaj altranguloj tremis kaj maltrankvile moviĝis, la generaloj kvazaŭ nevole ordigis la glavojn. Sed la sankta Mefres rigardis ilin kun nekaŝata malestimo kaj ree fiksis siajn malvar-
 
 majn okulojn sur la vizaĝo de la faraono.
 
@@ -174,12 +124,7 @@ Sed ankaŭ nun la sinjoro de la mondo ne estis embarasita.
 
 mi la gravan devon. La milita metio kaj la aferoj de la ŝtato ne permesos al mi plenumi la ceremoniojn de nia sankta religio, mi do devas elekti por ili anstataŭanton …
 
-Dirante tion, la sinjoro komencis ĉirkaŭrigardi en la ĉam-
-
-bro. Maldekstre de Herhor staris la sankta Sem. La faraono
-
-
-LA FARAONO
+Dirante tion, la sinjoro komencis ĉirkaŭrigardi en la ĉambro. Maldekstre de Herhor staris la sankta Sem. La faraono
 
 
 fikse rigardis lian kvietan kaj honestan vizaĝon kaj subite demandis:
@@ -210,9 +155,7 @@ anstataŭ piedoj havis skulptitajn figurojn de reĝoj kaj princoj de naŭ popolo
 
 Baldaŭ Herhor, sur ora plado, donis al la sinjoro blankan
 
-kaj ruĝan kronon, ĉirkaŭitan per ora serpento. La faraono silente metis ĝin sur la kapon, kaj la ĉeestantoj falis sur la viza-
-
-ĝojn.
+kaj ruĝan kronon, ĉirkaŭitan per ora serpento. La faraono silente metis ĝin sur la kapon, kaj la ĉeestantoj falis sur la vizaĝojn.
 
 Tio ne estis ankoraŭ la solena kronado, sed nur akcepto de
 
@@ -227,12 +170,7 @@ himnon al Oziriso, ke li verŝu sur lin ĉiujn benojn, oni permesis al la civila
 —Vin montri al la popolo — respondis Herhor.
 
 
-LA FARAONO
-
-
-Tra orita, larĝe malfermita pordo kaj tra marmora ŝtupa-
-
-ro lia sankteco eniris sur la terason, kaj levinte la manojn, li turnis sin al la kvar partoj de la mondo. Eksonis trumpetoj kaj sur la supro de la pilonoj oni pendigis flagojn. Kiu ajn estis sur la kampo, en la korto aŭ en la strato, falis sur la vizaĝon; la bastono, levita super la dorso de la bruto aŭ sklavo, malleviĝis, kaj ĉiuj ŝtataj krimuloj, kondamnitaj en tiu ĉi tago, ricevis pardonon.
+Tra orita, larĝe malfermita pordo kaj tra marmora ŝtuparo lia sankteco eniris sur la terason, kaj levinte la manojn, li turnis sin al la kvar partoj de la mondo. Eksonis trumpetoj kaj sur la supro de la pilonoj oni pendigis flagojn. Kiu ajn estis sur la kampo, en la korto aŭ en la strato, falis sur la vizaĝon; la bastono, levita super la dorso de la bruto aŭ sklavo, malleviĝis, kaj ĉiuj ŝtataj krimuloj, kondamnitaj en tiu ĉi tago, ricevis pardonon.
 
 Revenante de la teraso, la monar˛o diris:
 
@@ -250,9 +188,7 @@ la restaĵoj de mia sankta patro?
 
 Herhor.
 
-La okuloj de la faraono pleniĝis per larmoj kaj la lipoj ek-
-
-tremis. Sed tuj li ekregis sin kaj silente rigardis la plankon.
+La okuloj de la faraono pleniĝis per larmoj kaj la lipoj ektremis. Sed tuj li ekregis sin kaj silente rigardis la plankon.
 
 Estus nekonvene, se la servistoj vidus la emocion de tiel potenca sinjoro. Volante turni la atenton de la sinjoro al alia temo, Herhor diris:
 
@@ -275,12 +211,7 @@ la sankta Sem ripetos al ni liajn belajn vortojn …
 ĉiuj rimedoj …”
 
 
-LA FARAONO
-
-
-—Daŭrigu … daŭrigu!… — insistis la sinjoro, penante ekre-
-
-gi sin.
+—Daŭrigu … daŭrigu!… — insistis la sinjoro, penante ekregi sin.
 
 —”Se vi forgesus pri tio, ŝi levos siajn manojn al la dio, kaj li favore aŭskultos ŝian plendon. ŝi longe portis vin sub sia koro, kiel grandan ŝarĝon, kaj naskis vin, kiam pasis monatoj. Poste ŝi portis vin sur la dorso kaj dum tri jaroj metis sian mamon en vian buŝon. Tiel ŝi edukis vin, ne sentante abomenon al via malpureco. Kaj kiam vi iris en la lernejon kaj oni ekzercis vin en la skriboj, ĉiutage ŝi stariĝis antaŭ via instruisto kun pano kaj biero de sia domo.”1
 
@@ -292,9 +223,7 @@ Mi, mi devas iri al ŝi …
 
 Kaj li trapasis longan vicon de salonoj, kies muroj estis kovritaj per marmoro, alabastro kaj ligno, hele kolorigitaj, skulptitaj kaj oritaj, kaj post li lia grandega sekvantaro. Proksimiĝinte al la antaŭĉambro de la patrino, li faris signon, ke oni lasu lin sola.
 
-Li trairis la antaŭĉambron, momenton haltis antaŭ la por-
-
-do, poste li ekfrapis kaj mallaŭte eniris.
+Li trairis la antaŭĉambron, momenton haltis antaŭ la pordo, poste li ekfrapis kaj mallaŭte eniris.
 
 En la ĉambro kun nudaj muroj, en kiu anstataŭ mebloj
 
@@ -305,9 +234,6 @@ Ekvidinte Ramzeson, la respektinda sinjorino kliniĝis, por
 fali al liaj piedoj. Sed la filo kaptis ŝin inter siajn brakojn kaj diris kun ploro:
 
 1 Aŭtentika.
-
-
-LA FARAONO
 
 
 —Se vi, patrino, vin klinas antaŭ mi ĝis la tero, mi antaŭ vi devos malleviĝi sub la teron …
@@ -330,26 +256,17 @@ Egipton al potenca senlima.”
 
 —ĉu vi pensas, ke la pastroj obeos al mi?
 
-—Memoru — diris la patrino — ke la emblemo de la fara-
-
-ono estas la serpento. Kaj la serpento estas saĝo, kiu silentas kaj mordas morte en neatendita momento … Se vi prenos la
+—Memoru — diris la patrino — ke la emblemo de la faraono estas la serpento. Kaj la serpento estas saĝo, kiu silentas kaj mordas morte en neatendita momento … Se vi prenos la
 
 tempon kiel liganon, vi venkos ĉion.
 
 —Herhor estas terure maltima … Hodiaŭ li kuraĝis surmeti
 
-la tiaron de la sankta Amenhotep … Kompreneble mi ordo-
-
-nis al li demeti ĝin, kaj mi forigos lin de la regado … Lin kaj kelkajn anojn de la plej alta kolegio …
+la tiaron de la sankta Amenhotep … Kompreneble mi ordonis al li demeti ĝin, kaj mi forigos lin de la regado … Lin kaj kelkajn anojn de la plej alta kolegio …
 
 La reĝino ekskuis la kapon.
 
-—Egipto estas via, — diris ŝi, — kaj la dioj donis al vi gran-10
-
-LA FARAONO
-
-
-dan saĝon. Sen tio mi terure timus malkonsenton kun Her-
+—Egipto estas via, — diris ŝi, — kaj la dioj donis al vi grandan saĝon. Sen tio mi terure timus malkonsenton kun Her-
 
 hor …
 
@@ -371,19 +288,13 @@ malmulte da soldatoj, la trezorejo estas malplena, kaj dume, kelke da monatoj de
 
 kaj jam hodiaŭ trudas al ni traktatojn!…
 
-—Faru, kiel vi volas. Sed memoru, ke la emblemo de la fa-
-
-raono estas la serpento, kaj la serpento estas la silento kaj saĝo.
+—Faru, kiel vi volas. Sed memoru, ke la emblemo de la faraono estas la serpento, kaj la serpento estas la silento kaj saĝo.
 
 —Vi diras la veron, patrino, sed kredu al mi, ke iafoje la
 
-kuraĝo valoras pli multe ol la prudento. Jam hodiaŭ mi sci-
+kuraĝo valoras pli multe ol la prudento. Jam hodiaŭ mi scias, ke la pastroj intencis tutajn jarojn konduki la militon kontraŭ Libio. Mi finis ĝin en la daŭro de dekkelko da tagoj kaj nur tial, ke ĉiutage mi faris ian paŝon frenezan, sed decidan.
 
-as, ke la pastroj intencis tutajn jarojn konduki la militon kontraŭ Libio. Mi finis ĝin en la daŭro de dekkelko da tagoj kaj nur tial, ke ĉiutage mi faris ian paŝon frenezan, sed decidan.
-
-Se mi ne estus kurinta renkonte al ili en la dezerton, kio ja 11
-
-LA FARAONO
+Se mi ne estus kurinta renkonte al ili en la dezerton, kio ja
 
 
 estis granda malprudento, hodiaŭ ni havus Libianojn apud
@@ -392,25 +303,18 @@ Memfiso …
 
 —Mi scias, vi persekutis Tieęnnan, kaj Tifono surprizis
 
-vin — diris la reĝino. — Ho senkonsidera infano … vi ne pen-
-
-sis pri mi!
+vin — diris la reĝino. — Ho senkonsidera infano … vi ne pensis pri mi!
 
 La sinjoro ekridetis.
 
-—Estu trankvila via koro — respondis li. — Kiam la farao-
-
-no batalas, ĉe lia dekstra kaj maldekstra mano stariĝas Amon.
+—Estu trankvila via koro — respondis li. — Kiam la faraono batalas, ĉe lia dekstra kaj maldekstra mano stariĝas Amon.
 
 Kaj kiu egalas lin?…
 
 Ankoraŭ unu fojon li ĉirkaŭprenis la patrinon kaj foriris.
 
 
-LA FARAONO
-
-
-ĉAPITRO DUA
+ĈAPITRO DUA
 
 La grandega sekvantaro de lia sankteco restis ankoraŭ en
 
@@ -422,9 +326,7 @@ La agla okulo de la faraono tuj rimarkis la dividon de la altranguloj, kaj en la
 
 ”Kaj jen, ne eltirante la glavon, mi akiris venkon!…” pensis li.
 
-La altranguloj pli kaj pli malkaŝe foriĝis de Herhor kaj Me-
-
-fres. Neniu dubis, ke ambaŭ ĉefpastroj, ĝis hodiaŭ plej potencaj en la ŝtato, ne posedas la favoron de la faraono.
+La altranguloj pli kaj pli malkaŝe foriĝis de Herhor kaj Mefres. Neniu dubis, ke ambaŭ ĉefpastroj, ĝis hodiaŭ plej potencaj en la ŝtato, ne posedas la favoron de la faraono.
 
 Nun la sinjoro transiris en la manĝoĉambron, kie antaŭ ĉio
 
@@ -440,9 +342,7 @@ Kaj dirante tion, li montris la vicon de statuoj, starantaj
 
 apud la muroj.
 
-La sinjoro ekrigardis la statuojn, kiuj havis tian aspekton, kvazaŭ oni nenion donadus al ili, kaj poste la pastrojn, kies 13
-
-LA FARAONO
+La sinjoro ekrigardis la statuojn, kiuj havis tian aspekton, kvazaŭ oni nenion donadus al ili, kaj poste la pastrojn, kies
 
 
 vizaĝoj estis freŝaj, kvazaŭ ili manĝus ĉion, kaj li postulis bieron kaj soldatan panon kun ajlo.
@@ -453,9 +353,7 @@ Post kvaronhoro ili revenis timigitaj, murmuretante al la
 
 pastroj, ke nenie estas soldata pano kaj ajlo.
 
-La faraono ekridetis kaj ordonis, ke de nun neniam man-
-
-ku en la kuirejo simplaj manĝoj. Poste li manĝis kolombon,
+La faraono ekridetis kaj ordonis, ke de nun neniam manku en la kuirejo simplaj manĝoj. Poste li manĝis kolombon,
 
 pecon da fiŝo, tritikan bulkon kaj trinkis iom da vino.
 
@@ -463,15 +361,11 @@ Li konfesis en la animo, ke la manĝo estis preparita bone
 
 kaj la vino estis bonega. Sed li ne povis forpeli la penson, ke la kortega kuirejo devas engluti eksterordinarajn sumojn.
 
-Bruliginte incenson por la honoro de la antaŭuloj, la mo-
-
-nar˛o iris en la reĝan kabineton por aŭskulti la raportojn.
+Bruliginte incenson por la honoro de la antaŭuloj, la monar˛o iris en la reĝan kabineton por aŭskulti la raportojn.
 
 Herhor venis la unua. Li sin klinis antaŭ la sinjoro multe pli profunde, ol li faris tion salutante la monar˛on, kaj kun granda emocio gratulis lin pri la venko super Libianoj.
 
-—Via sankteco — diris li — sin ĵetis sur Libianojn, kiel Ti-
-
-fono sur la mizerajn tendojn de vagantoj en la dezerto. Vi
+—Via sankteco — diris li — sin ĵetis sur Libianojn, kiel Tifono sur la mizerajn tendojn de vagantoj en la dezerto. Vi
 
 gajnis grandan batalon kun tre malgrandaj perdoj kaj per unu svingo de via glavo vi finis la militon, kies finon ni, simplaj homoj, ne povis antaŭvidi.
 
@@ -479,29 +373,20 @@ La faraono sentis, ke lia malamikeco al Herhor komencas
 
 malfortiĝi.
 
-—Kaj tial — daŭrigis la ĉefpastro — la plej alta kolegio pe-
-
-tegas vian sanktecon, ke vi destinu por la bravaj regimentoj dek talentojn da rekompenco … Kaj vi mem, ĉefa militestro,
+—Kaj tial — daŭrigis la ĉefpastro — la plej alta kolegio petegas vian sanktecon, ke vi destinu por la bravaj regimentoj dek talentojn da rekompenco … Kaj vi mem, ĉefa militestro,
 
 permesu aldoni al via nomo la epiteton: ”Venka!…”
-
-
-LA FARAONO
 
 
 Kalkulante je la juneco de la faraono, Herhor iom troigis la flaton. La sinjoro baldaŭ trankviliĝis kaj subite demandis:
 
 —Kian epiteton vi donus al mi, se mi neniigus la asirian
 
-armeon kaj plenigus niajn templojn per la trezoroj de Nini-
-
-vo kaj Babilono?…
+armeon kaj plenigus niajn templojn per la trezoroj de Ninivo kaj Babilono?…
 
 ”Li do ĉiam pensas pri tio!…” — diris al si la ĉefpastro.
 
-La faraono, kvazaŭ por konfirmi liajn dubojn, ŝanĝis la te-
-
-mon de la interparolado kaj demandis:
+La faraono, kvazaŭ por konfirmi liajn dubojn, ŝanĝis la temon de la interparolado kaj demandis:
 
 —Kiom da soldatoj ni havas?
 
@@ -509,9 +394,7 @@ mon de la interparolado kaj demandis:
 
 —Ne, en la tuta Egipto.
 
-—Via sankteco havis dek regimentojn … — diris la ĉefpas-
-
-tro. — La respektinda Nitager ĉe la orienta limo havas dek
+—Via sankteco havis dek regimentojn … — diris la ĉefpastro. — La respektinda Nitager ĉe la orienta limo havas dek
 
 kvin … Dek estas en la sudo, ĉar Nubio komencas boli … Kvin
 
@@ -533,19 +416,13 @@ signifas?… Kion vi faris kun mia armeo?…
 
 —Ho dioj!… — diris la faraono, kaptante sin je la kapo. —
 
-Post unu monato atakos nin Asirianoj!… Ni ja estas senarmi-
-
-gitaj …
+Post unu monato atakos nin Asirianoj!… Ni ja estas senarmigitaj …
 
 —Kun Asirio ni havas provizoran traktaton — intermetis
 
 Herhor.
 
-—Virino povus tiel respondi, sed ne milita ministro — eks-
-
-plodis la sinjoro. — Kion valoras traktato, post kiu ne staras 15
-
-LA FARAONO
+—Virino povus tiel respondi, sed ne milita ministro — eksplodis la sinjoro. — Kion valoras traktato, post kiu ne staras
 
 
 armeo?… La duono de la armeo, kiun posedas la reĝo Assar,
@@ -558,17 +435,13 @@ perfido de Asirianoj, ni havus duonmilionan armeon,..
 
 La faraono ridis antaŭ lia nazo.
 
-—Kian?… De kie?… Vi freneziĝis, pastro. Vi fosas en la pa-
-
-pirusoj, sed mi sep jarojn servas en la armeo kaj preskaŭ ĉiutage partoprenas en ekzercoj kaj manovroj. Kiamaniere post
+—Kian?… De kie?… Vi freneziĝis, pastro. Vi fosas en la papirusoj, sed mi sep jarojn servas en la armeo kaj preskaŭ ĉiutage partoprenas en ekzercoj kaj manovroj. Kiamaniere post
 
 kelke da monatoj ni havos duonmilionan armeon?…
 
 —Alkuros ĉiuj nobeloj …
 
-—Mi ne bezonas viajn nobelojn!… La nobeloj ne estas sol-
-
-datoj. Por duonmiliona armeo oni bezonas almenaŭ cent
+—Mi ne bezonas viajn nobelojn!… La nobeloj ne estas soldatoj. Por duonmiliona armeo oni bezonas almenaŭ cent
 
 kvindek regimentojn, kaj ni, kiel vi mem diras, posedas nur
 
@@ -580,12 +453,7 @@ jam scias bone marŝi. Sed Egiptano apenaŭ post trijara laboro komencas marŝi 
 
 alia bando, la asiria. ĉar kvankam la asiriaj regimentoj estas malbone ekzercitaj, sed la asiria soldato scias ĵeti ŝtonojn kaj sagojn, haki kaj piki, kaj antaŭ ĉio li havas la atakemon de sovaĝa besto, kiu tute mankas al la delikata Egiptano. Ni
 
-rompas la malamikon per tio, ke niaj disciplinitaj kaj ekzercitaj soldatoj estas kiel murrompiloj: oni devas mortigi duo-16
-
-LA FARAONO
-
-
-non de soldatoj por detrui la kolonon. Sed sen ekzercita ko-
+rompas la malamikon per tio, ke niaj disciplinitaj kaj ekzercitaj soldatoj estas kiel murrompiloj: oni devas mortigi duonon de soldatoj por detrui la kolonon. Sed sen ekzercita ko-
 
 lono ne ekzistas egipta armeo.
 
@@ -601,9 +469,7 @@ timante vian sanktecon, prokrastis la aferon ĝis via suriro sur la tronon.
 
 La faraonon ree ekregis kolero.
 
-—Kio?… — ekkriis li. — Ili do, efektive pensas preni Feni-
-
-cion?… Kaj ni supozas, ke mi subskribos la honton de mia re-
+—Kio?… — ekkriis li. — Ili do, efektive pensas preni Fenicion?… Kaj ni supozas, ke mi subskribos la honton de mia re-
 
 gado?… Malbonaj spiritoj ekregis vin ĉiujn!…
 
@@ -611,9 +477,7 @@ La aŭdienco estis finita. ĉi tiun fojon Herhor falis sur la
 
 vizaĝon, kaj revenante de la sinjoro, meditis en sia animo:
 
-”Lia sankteco aŭskultis la raporton ĝis la fino, li do ne for-
-
-ĵetas miajn servojn … Mi diris al li, ke li devas subskribi la traktaton kun Asirio, la plej malfacila afero do estas finita …
+”Lia sankteco aŭskultis la raporton ĝis la fino, li do ne forĵetas miajn servojn … Mi diris al li, ke li devas subskribi la traktaton kun Asirio, la plej malfacila afero do estas finita …
 
 Li ŝanĝos sian opinion, antaŭ ol Sargon venos duan fojon …
 
@@ -623,20 +487,14 @@ En la vestiblo la nobla Herhor haltis, pensis momenton,
 
 fine anstataŭ reveni hejmen, iris al la reĝino Nikotris.
 
-En la ĝardeno estis nek virinoj, nek infanoj; el la dissemi-
-
-taj palacetoj flugis ĝemoj: la virinoj, apartenantaj al la domo 17
-
-LA FARAONO
+En la ĝardeno estis nek virinoj, nek infanoj; el la dissemitaj palacetoj flugis ĝemoj: la virinoj, apartenantaj al la domo
 
 
 de la mortinta faraono, ploris tiun, kiu foriris al la Okcidento.
 
 Ilia ĉagreno, ŝajnas, estis sincera.
 
-Dume en la kabineton de la sinjoro venis la plej alta ju-
-
-ĝisto.
+Dume en la kabineton de la sinjoro venis la plej alta juĝisto.
 
 —Kion diros al mi via ekscelenco? — demandis la sinjoro.
 
@@ -656,9 +514,7 @@ Kiaj krimoj estas la plej oftaj en la lasta tempo?
 
 La plej alta juĝisto ŝanceliĝis.
 
-—Parolu sentime — diris la sinjoro malpacience — kaj ne-
-
-nion kaŝu de mi. Mi scias, ke Egipto falis en marĉon, mi vo-
+—Parolu sentime — diris la sinjoro malpacience — kaj nenion kaŝu de mi. Mi scias, ke Egipto falis en marĉon, mi vo-
 
 las ĝin eltiri, mi do devas scii ĉion malbonan …
 
@@ -673,18 +529,11 @@ masonistoj kaj ŝtonistoj, al kiuj oni ne donis ĝustatempe la necesajn aferojn.
 Kasa ili ne volis rebonigi kanalon, pretendante, ke por ilia laboro devas pagi al ili la ŝtata trezorejo … Fine, en la porfiraj minejoj la kondamnitoj batis la gardistojn kaj volis forkuri al la maro …
 
 
-LA FARAONO
-
-
-—ĉi tiuj novaĵoj tute ne surprizas min — respondis la fa-
-
-raono. — Sed kion vi pensas pri ili?
+—ĉi tiuj novaĵoj tute ne surprizas min — respondis la faraono. — Sed kion vi pensas pri ili?
 
 —Antaŭ ĉio oni devas puni la kulpajn …
 
-—Kaj mi pensas, ke antaŭ ĉio oni devas doni al la labo-
-
-ristoj, kion ili rajte postulas — diris la sinjoro. — Malsata bovo kuŝiĝas sur la tero, malsata ĉevalo ŝanceliĝas sur la piedoj kaj
+—Kaj mi pensas, ke antaŭ ĉio oni devas doni al la laboristoj, kion ili rajte postulas — diris la sinjoro. — Malsata bovo kuŝiĝas sur la tero, malsata ĉevalo ŝanceliĝas sur la piedoj kaj
 
 ĝemas … Do ĉu oni povas postuli, ke malsata homo laboru kaj
 
@@ -692,13 +541,9 @@ ne plendu?
 
 —Via sankteco do …
 
-—Pentuer elektos esploran komitaton — interrompis la fa-
+—Pentuer elektos esploran komitaton — interrompis la faraono. — Dume mi ne volas, ke oni punu …
 
-raono. — Dume mi ne volas, ke oni punu …
-
-—Sed tiam eksplodos ĝenerala ribelo!… — ekkriis la teru-
-
-rita juĝisto.
+—Sed tiam eksplodos ĝenerala ribelo!… — ekkriis la terurita juĝisto.
 
 La faraono apogis la barbon sur la manoj kaj meditis.
 
@@ -712,22 +557,15 @@ decidiĝi en la batalo, ol en la senordo, kiu ekregis Egipton.
 
 Post la foriro de la plej alta juĝisto la faraono alvokis Tutmozison. Li ordonis al li en sia nomo saluti la armeon, reve-nantan de Sodaj Lagoj, kaj disdoni dudek talentojn al la oficiroj kaj soldatoj.
 
-Poste la sinjoro ordonis, ke venu Pentuer, kaj dume akcep-
-
-tis la grandan kasiston.
+Poste la sinjoro ordonis, ke venu Pentuer, kaj dume akceptis la grandan kasiston.
 
 —Mi volas scii, kia estas la stato de la trezorejo?
 
-—Ni havas — respondis la altrangulo — en la nuna mo-
-
-mento la valoron de dudek mil talentoj en la grenejoj, staloj, provizejoj kaj kestoj. Sed la impostoj alflugas ĉiutage.
+—Ni havas — respondis la altrangulo — en la nuna momento la valoron de dudek mil talentoj en la grenejoj, staloj, provizejoj kaj kestoj. Sed la impostoj alflugas ĉiutage.
 
 —Ankaŭ la ribeloj ĉiutage — respondis la faraono. —Kaj
 
 kiaj estas entute la enspezoj kaj elspezoj?
-
-
-LA FARAONO
 
 
 —Por la armeo ni elspezas ĉiujare dudek mil talentojn …
@@ -742,21 +580,13 @@ granda kasisto, mallevante la kapon.
 
 —Kaj la enspezoj?…
 
-—Ni elspezas tiom, kiom ni havas … — murmuretis la ka-
+—Ni elspezas tiom, kiom ni havas … — murmuretis la kasisto.
 
-sisto.
+—Ni do havas kvardek aŭ kvindek mil talentojn jare — respondis la faraono. — Kie estas la resto?…
 
-—Ni do havas kvardek aŭ kvindek mil talentojn jare — re-
+—Kiel garantiaĵo ĉe la Fenicianoj, ĉe bankieroj kaj komercistoj, fine ĉe la sanktaj pastroj …
 
-spondis la faraono. — Kie estas la resto?…
-
-—Kiel garantiaĵo ĉe la Fenicianoj, ĉe bankieroj kaj komer-
-
-cistoj, fine ĉe la sanktaj pastroj …
-
-—Bone — respondis la sinjoro. — Sed ekzistas ja la netuŝe-
-
-bla trezorejo de la faraonoj en oro, plateno, arĝento kaj juveloj. Kiom ĝi valoras?…
+—Bone — respondis la sinjoro. — Sed ekzistas ja la netuŝebla trezorejo de la faraonoj en oro, plateno, arĝento kaj juveloj. Kiom ĝi valoras?…
 
 —Jam antaŭ dek jaroj ĝi estis tuŝita kaj elspezita …
 
@@ -770,13 +600,9 @@ por donacoj al la nomar˛oj kaj temploj …
 
 ĉu la donacoj povis elĉerpi la trezorejon de mia patro?…
 
-—Oziriso-Ramzes, la patro de via sankteco, estis malava-
+—Oziriso-Ramzes, la patro de via sankteco, estis malavara sinjoro kaj faris grandajn donacojn …
 
-ra sinjoro kaj faris grandajn donacojn …
-
-—Kiajn?… Kiel grandajn?… Mi volas fine scii tion … —pa-
-
-rolis malpacience la faraono.
+—Kiajn?… Kiel grandajn?… Mi volas fine scii tion … —parolis malpacience la faraono.
 
 —Precizaj kalkuloj estas en la ar˛ivoj, mi memoras nur la
 
@@ -784,13 +610,7 @@ rolis malpacience la faraono.
 
 —Parolu!…
 
-—Ekzemple al la temploj — respondis la kasisto ŝanceli-
-
-
-LA FARAONO
-
-
-ĝante — Oziriso-Ramzes donis dum sia feliĉa regado ĉirkaŭ
+—Ekzemple al la temploj — respondis la kasisto ŝanceliĝante — Oziriso-Ramzes donis dum sia feliĉa regado ĉirkaŭ
 
 cent urbojn, cent dudek ŝipojn, du milionojn da brutoj, du
 
@@ -800,19 +620,13 @@ mil sklavojn, ĉirkaŭ ducent mil barelojn da biero kaj vino, tri milionojn da p
 
 Aliajn nombrojn mi ne memoras, sed ĉio estas enskribita …1
 
-La faraono kun rido levis la manojn supren kaj post mo-
-
-mento li terure ekkoleris kaj batante la tablon per la pugno, ekkriis:
+La faraono kun rido levis la manojn supren kaj post momento li terure ekkoleris kaj batante la tablon per la pugno, ekkriis:
 
 —Plenmano da pastroj uzis tiom da biero, pano, kronoj kaj
 
-vestoj, posedante proprajn enspezojn!… Grandegajn enspe-
+vestoj, posedante proprajn enspezojn!… Grandegajn enspezojn, kiuj kelkcenton da fojoj superas la bezonojn de ĉi tiuj sanktuloj …
 
-zojn, kiuj kelkcenton da fojoj superas la bezonojn de ĉi tiuj sanktuloj …
-
-—Via sankteco bonvolis forgesi, ke la pastroj subtenas de-
-
-kojn da miloj da malriĉuloj, kuracas saman nombron da mal-
+—Via sankteco bonvolis forgesi, ke la pastroj subtenas dekojn da miloj da malriĉuloj, kuracas saman nombron da mal-
 
 sanuloj kaj nutras kaj armas dekkelkon da regimentoj per la
 
@@ -822,12 +636,7 @@ rimedoj de la temploj.
 
 nur dum la milito. El la malsanuloj ĉiuj preskaŭ pagas por si, aŭ per mono aŭ per laboro. Kaj la malriĉuloj?… Ili ja laboras por la temploj: portas akvon por la dioj, partoprenas en la solenoj kaj, antaŭ ĉio, ludas rolon en la farado de la mirakloj.
 
-Tio estas ili, kiuj antaŭ la pordoj de la temploj retrovas la sa-
-
-ĝon, vidadon kaj aŭdadon; iliaj vundoj resaniĝas, iliaj piedoj kaj manoj reakiras la kapablon moviĝi, kaj la popolo, vidan-1 La donacoj de Ramzes III al la temploj estis multe pli grandaj.
-
-
-LA FARAONO
+Tio estas ili, kiuj antaŭ la pordoj de la temploj retrovas la saĝon, vidadon kaj aŭdadon; iliaj vundoj resaniĝas, iliaj piedoj kaj manoj reakiras la kapablon moviĝi, kaj la popolo, vidan-1 La donacoj de Ramzes III al la temploj estis multe pli grandaj.
 
 
 te tiajn miraklojn, tiom pli fervore preĝas kaj tiom pli malavare oferas al la dioj … La mizeruloj estas kvazaŭ bovinoj kaj ŝafinoj de la temploj: ili alportas puran profiton …
@@ -859,10 +668,7 @@ La granda kasisto adiaŭis la sinjoron. Sed la faraono ankaŭ
 ne estis kontenta; ĉar post mallonga konsidero ŝajnis al li, ke li tro malkaŝe parolis kun siaj oficistoj.
 
 
-LA FARAONO
-
-
-ĉAPITRO TRIA
+ĈAPITRO TRIA
 
 La soldatoj, starantaj garde en la antaŭĉambro, anoncis
 
@@ -880,31 +686,18 @@ ekzemple Herhoron!…
 
 ekzistas en Egipto homo, kiu ne oferus sian vivon por vi kaj benus vian nomon.
 
-—Ha, se ili scius, — diris la estro kun kolero — kiel malri-
+—Ha, se ili scius, — diris la estro kun kolero — kiel malriĉa kaj senforta estas la faraono, ĉiu nomar˛o volus esti sinjoro de sia nomeso! Mi pensis, ke heredinte la duoblan kro-
 
-ĉa kaj senforta estas la faraono, ĉiu nomar˛o volus esti sinjoro de sia nomeso! Mi pensis, ke heredinte la duoblan kro-
+non, mi ion signifos … Sed jam en la unua tago mi konvinkiĝis, ke mi estas nur ombro de la antaŭaj monar˛oj de Egip-
 
-non, mi ion signifos … Sed jam en la unua tago mi konvin-
-
-kiĝis, ke mi estas nur ombro de la antaŭaj monar˛oj de Egip-
-
-to! ĉar kio povas esti faraono sen mono, sen armeo kaj, an-
-
-taŭ ĉio, sen fidelaj servistoj?… Mi estas kiel la statuoj de la dioj, kiujn oni incensas kaj al kiuj oni faras oferojn … Sed la statuoj estas senfortaj kaj per la oferoj sin grasigas la pastroj
+to! ĉar kio povas esti faraono sen mono, sen armeo kaj, antaŭ ĉio, sen fidelaj servistoj?… Mi estas kiel la statuoj de la dioj, kiujn oni incensas kaj al kiuj oni faras oferojn … Sed la statuoj estas senfortaj kaj per la oferoj sin grasigas la pastroj
 
 … Sed vi ja apartenas al ilia partio!
 
-—Dolore estas por mi, — respondis Pentuer — ke via sank-
-
-teco parolas tiel en la unua tago de sia regado. Se la novaĵo disvastiĝus en Egipto …
+—Dolore estas por mi, — respondis Pentuer — ke via sankteco parolas tiel en la unua tago de sia regado. Se la novaĵo disvastiĝus en Egipto …
 
 
-LA FARAONO
-
-
-—Al kiu mi devas paroli pri tio, kio doloras min? — inter-
-
-rompis la sinjoro. — Vi estas mia konsilanto kaj vi savis min, aŭ almenaŭ volis min savi, ne por rakonti al ĉiuj, mi supozas, kio fariĝas en mia reĝa koro, kiun mi malfermas al vi … Sed
+—Al kiu mi devas paroli pri tio, kio doloras min? — interrompis la sinjoro. — Vi estas mia konsilanto kaj vi savis min, aŭ almenaŭ volis min savi, ne por rakonti al ĉiuj, mi supozas, kio fariĝas en mia reĝa koro, kiun mi malfermas al vi … Sed
 
 vi estas prava.
 
@@ -916,28 +709,17 @@ per multe pli trankvila tono:
 
 kaŭzojn de la senĉesaj ribeloj en mia ŝtato. Mi volas, ke oni punu nur la kulpajn kaj estu justa al la malfeliĉaj …
 
-—Subtenu vin Dio per sia favoro!… — murmuretis la pas-
-
-tro. — Mi faros, kion vi ordonas. Sed la kaŭzojn de la ribeloj mi konas sen esploro …
+—Subtenu vin Dio per sia favoro!… — murmuretis la pastro. — Mi faros, kion vi ordonas. Sed la kaŭzojn de la ribeloj mi konas sen esploro …
 
 —Parolu …
 
 —Multfoje mi parolis pri tio al via sankteco: la laboranta
 
-popolo estas malsata, havas tro da laboro kaj pagas tro grandajn impostojn … Kiu antaŭe laboris de la leviĝo ĝis la subi-ro de la suno, hodiaŭ devas komenci unu horon antaŭ la le-
+popolo estas malsata, havas tro da laboro kaj pagas tro grandajn impostojn … Kiu antaŭe laboris de la leviĝo ĝis la subi-ro de la suno, hodiaŭ devas komenci unu horon antaŭ la leviĝo kaj fini unu horon post la subiro. Antaŭ ne longe, ĉiun dekan tagon, la laboristo povis viziti la tombojn de la gepatroj, paroli kun iliaj ombroj kaj fari oferojn. Sed hodiaŭ neniu iras tien, ĉar neniu havas tempon. Antaŭe la kamparano manĝis ĉiutage tri tritikajn panojn, hodiaŭ li ne havas sufiĉe eĉ por hordea. Antaŭe, la laboroj ĉe kanaloj, akvobaroj kaj
 
-viĝo kaj fini unu horon post la subiro. Antaŭ ne longe, ĉiun dekan tagon, la laboristo povis viziti la tombojn de la gepatroj, paroli kun iliaj ombroj kaj fari oferojn. Sed hodiaŭ neniu iras tien, ĉar neniu havas tempon. Antaŭe la kamparano manĝis ĉiutage tri tritikajn panojn, hodiaŭ li ne havas sufiĉe eĉ por hordea. Antaŭe, la laboroj ĉe kanaloj, akvobaroj kaj
+ŝoseoj estis kalkulataj al la impostoj; hodiaŭ oni devas apar-te pagi la impostojn, kaj la publikajn laborojn plenumi senpage. Jen la kaŭzo de la ribeloj.
 
-ŝoseoj estis kalkulataj al la impostoj; hodiaŭ oni devas apar-te pagi la impostojn, kaj la publikajn laborojn plenumi sen-
-
-page. Jen la kaŭzo de la ribeloj.
-
-—Mi estas la plej malriĉa nobelo en la ŝtato! — ekkriis la faraono. — Iu ajn posedanto de bieno donas al siaj brutoj kon-
-
-venan manĝon kaj ripozon; sed mia brutaro estas ĉiam mal-
-
-
-LA FARAONO
+—Mi estas la plej malriĉa nobelo en la ŝtato! — ekkriis la faraono. — Iu ajn posedanto de bieno donas al siaj brutoj konvenan manĝon kaj ripozon; sed mia brutaro estas ĉiam mal-
 
 
 sata kaj laca!… Kion do mi devas fari, diru vi, kiu petis min, ke mi plibonigu la sorton de la kamparanoj?
@@ -956,9 +738,7 @@ la pastro. — Jen kion oni devas fari … Antaŭ ĉio, ordonu, sinjoro, ke oni 
 
 —Poste, proklamu, ke laboro sur la kampoj daŭru nur de
 
-la leviĝo ĝis la subiro de la suno … poste faru, ke la popolo ripozu ĉiun sepan tagon; ne ĉiun dekan, sed ĉiun sepan. Poste, malpermesu al la sinjoroj doni la kamparanojn kiel prunt-garantion kaj al la skribistoj bati kaj turmenti ilin laŭ sia bon-trovo. Fine, donu dekonon aŭ almenaŭ dudekonon de la te-
-
-roj al la kamparanoj kiel propraĵon, por ke neniu povu ĝin
+la leviĝo ĝis la subiro de la suno … poste faru, ke la popolo ripozu ĉiun sepan tagon; ne ĉiun dekan, sed ĉiun sepan. Poste, malpermesu al la sinjoroj doni la kamparanojn kiel prunt-garantion kaj al la skribistoj bati kaj turmenti ilin laŭ sia bon-trovo. Fine, donu dekonon aŭ almenaŭ dudekonon de la teroj al la kamparanoj kiel propraĵon, por ke neniu povu ĝin
 
 repreni aŭ okupi kiel garantiaĵon. Donu, sinjoro, al la kamparanoj dezertajn sablojn, kaj post kelke da jaroj elkreskos tie
 
@@ -970,17 +750,11 @@ kion vi vidas en via koro, ne en la mondo. La homaj planoj,
 
 eĉ la plej bonaj, ne ĉiam konformiĝas al la natura irado de la aferoj …
 
-—Via sankteco, mi jam vidis tiajn ŝanĝojn kaj iliajn rezul-
-
-tatojn — respondis Pentuer. — En kelkaj temploj oni faris diversajn provojn: pri la kuracado, instruado, edukado de be-
+—Via sankteco, mi jam vidis tiajn ŝanĝojn kaj iliajn rezultatojn — respondis Pentuer. — En kelkaj temploj oni faris diversajn provojn: pri la kuracado, instruado, edukado de be-
 
 stoj kaj kreskaĵoj, fine, pri plibonigado de la homoj. Kaj jen kio okazadis: kiam oni donis al kamparano maldiligenta kaj
 
-malgrasa bonan manĝon kaj ripozon ĉiun sepan tagon, li fa-
-
-riĝis grasa, laborema kaj fosis pli da tero, ol antaŭe. Laboris-25
-
-LA FARAONO
+malgrasa bonan manĝon kaj ripozon ĉiun sepan tagon, li fariĝis grasa, laborema kaj fosis pli da tero, ol antaŭe. Laboris-25
 
 
 to pagata estas pli gaja kaj faras pli multe da laboro, ol sklavo, eĉ batata per feraj vergoj. Homoj sataj naskas pli multe da infanoj ol lacaj kaj konsumataj de la laboro; la idoj de la liberaj homoj estas sanaj kaj fortaj, kaj la idaro de sklavoj estas malsanema, malgaja kaj havas inklinon al ŝtelo kaj mensogo.
@@ -997,24 +771,17 @@ La faraono ridetis.
 
 Pentuer mallevis la kapon.
 
-—ĉar — respondis li sopirante — ne ĉiuj pastroj estas sa-
-
-ĝuloj kaj havas noblajn korojn …
+—ĉar — respondis li sopirante — ne ĉiuj pastroj estas saĝuloj kaj havas noblajn korojn …
 
 —Jes, jes — ekkriis la sinjoro. — Kaj nun diru al mi vi, kiu estas filo de kamparano kaj scias, ke inter la pastroj ekzistas friponoj kaj malsaĝuloj, diru, kial vi ne volas servi al mi en la batalo kontraŭ ili?… Vi ja komprenas, ke mi ne plibonigos la sorton de la kamparanoj, se antaŭe mi ne instruos al la pastroj la obeon al mia volo …
 
 Pentuer tordis siajn manojn.
 
-—Sinjoro — respondis li — sendia kaj danĝera estas la ba-
-
-talo kontraŭ la pastraro!… Pli ol unu faraono komencis ĝin,
+—Sinjoro — respondis li — sendia kaj danĝera estas la batalo kontraŭ la pastraro!… Pli ol unu faraono komencis ĝin,
 
 kaj … ne povis fini …
 
 —ĉar ne helpis lin saĝuloj, kiel vi … — eksplodis la sinjoro.
-
-
-LA FARAONO
 
 
 — Kaj vere, neniam mi komprenos: kial saĝaj kaj honestaj
@@ -1025,27 +792,18 @@ Pentuer skuis la kapon kaj komencis paroli malrapide:
 
 —De tridek mil jaroj la sankta pastraro zorgas pri Egipto
 
-kaj ĝi faris la landon tia, kia ĝi estas: mirindaĵo de la tuta mondo. Kaj kial la pastroj, malgraŭ la mankoj, sukcesis tion fari?… ĉar ili estas la lumingo, en kiu brulas la lumo de la saĝo. La lumingo povas esti malpura, eĉ malbonodora. Tamen ĝi konservas la dian fajron, sen kiu inter la homoj regus mallumo kaj sovaĝeco. Vi parolas, sinjoro, pri la batalo kontraŭ la pastraro — daŭrigis Pentuer. — Kia povas esti ĝia rezultato por mi?… Se vi malgajnos, mi estos malfeliĉa, ĉar vi ne plibonigos la sorton de la kamparanoj. Kaj se vi gajnos. … o, ne ĝisvivu mi tion!… ĉar se vi rompus la lumingon, kiu scias, ĉu vi ne estingus la fajron de la saĝo, kiu de jarmiloj flamas super Egipto kaj super la mondo … Jen, mia sinjoro, la kaŭ-
-
-zoj, kial mi ne volas min miksi je la batalo kontraŭ pastraro
+kaj ĝi faris la landon tia, kia ĝi estas: mirindaĵo de la tuta mondo. Kaj kial la pastroj, malgraŭ la mankoj, sukcesis tion fari?… ĉar ili estas la lumingo, en kiu brulas la lumo de la saĝo. La lumingo povas esti malpura, eĉ malbonodora. Tamen ĝi konservas la dian fajron, sen kiu inter la homoj regus mallumo kaj sovaĝeco. Vi parolas, sinjoro, pri la batalo kontraŭ la pastraro — daŭrigis Pentuer. — Kia povas esti ĝia rezultato por mi?… Se vi malgajnos, mi estos malfeliĉa, ĉar vi ne plibonigos la sorton de la kamparanoj. Kaj se vi gajnos. … o, ne ĝisvivu mi tion!… ĉar se vi rompus la lumingon, kiu scias, ĉu vi ne estingus la fajron de la saĝo, kiu de jarmiloj flamas super Egipto kaj super la mondo … Jen, mia sinjoro, la kaŭzoj, kial mi ne volas min miksi je la batalo kontraŭ pastraro
 
 … Mi sentas, ke ĝi proksimiĝas, kaj mi suferas, ke tia vermo, kiel mi, ne povas malhelpi ĝin. Sed mi ne partoprenos en ĝi, ĉar mi devus perfidi aŭ vin, aŭ Dion, kiu estas la kreinto de la saĝo …
 
-Aŭskultante lin, la faraono promenis en la ĉambro, medi-
-
-tante.
+Aŭskultante lin, la faraono promenis en la ĉambro, meditante.
 
 —Faru — diris li sen kolero — kiel vi volas. Vi ne estas soldato, mi do ne povas riproĉi al vi la mankon de kuraĝo … Sed vi ne povas esti mia konsilanto … Tamen mi petas vin, aranĝi juĝejon por esplori la ribelojn, kaj kiam mi alvokos vin, parolu, kion ordonas al vi la saĝo …
 
 Pentuer ekgenuis kaj adiaŭis la sinjoron.
 
 
-LA FARAONO
-
-
-—En ĉiu okazo — aldonis la faraono — sciu, ke mi ne vo-
-
-las estingi la dian lumon … Kulturu la pastroj la saĝon en siaj temploj, sed ili ne detruu mian armeon, ne faru malhonorajn
+—En ĉiu okazo — aldonis la faraono — sciu, ke mi ne volas estingi la dian lumon … Kulturu la pastroj la saĝon en siaj temploj, sed ili ne detruu mian armeon, ne faru malhonorajn
 
 traktatojn kaj … ne ŝtelu — diris li jam ekscitita — la reĝajn trezorojn … Eble ili pensas, ke mi, kvazaŭ almozulo, starados ĉe iliaj pordoj, por ke ili bonvolu liveri al mi rimedojn por relevi la staton, ruinigitan per ilia malsaĝa kaj malnobla regado?… Ha, ha!… Pentuer … eĉ la diojn mi ne petus pri tio, kio estas mia potenco kaj mia rajto. Vi povas foriri.
 
@@ -1059,31 +817,20 @@ La sinjoro restis sola.
 
 Herhor ja estas saĝa, scias, ke Egipto en okazo de milito bezonas duonmilionan armeon, ke ĉi tiun armeon oni devas
 
-ekzerci, kaj malgraŭ tio li malgrandigis la nombron de regi-
-
-mentoj kaj la nombron de soldatoj en ĉiu. La granda kasisto
+ekzerci, kaj malgraŭ tio li malgrandigis la nombron de regimentoj kaj la nombron de soldatoj en ĉiu. La granda kasisto
 
 ankaŭ estas saĝa, tamen ŝajnas al li afero tute natura, ke ĉiuj trezoroj de la faraonoj transiris en Labirinton!… Fine Pentuer … Kia stranga homo!… Li volas donacadi al la kamparanoj
 
-manĝon, teron kaj senĉesajn festojn … Bone, sed ĉio ĉi mal-
-
-grandigos miajn enspezojn, kiuj sen tio estas jam tro mal-
+manĝon, teron kaj senĉesajn festojn … Bone, sed ĉio ĉi malgrandigos miajn enspezojn, kiuj sen tio estas jam tro mal-
 
 grandaj. Sed se mi dirus al li: helpu min repreni de la pastroj la reĝajn trezorojn, li nomus tion malpia kaj diris, ke mi volas estingi la lumon en Egipto!… Stranga homo … Li volonte
 
-konsentus renversi la tutan ŝtaton por la bono de la kampa-
-
-ranoj, sed li ne kuraĝus preni ĉefpastron ĉe nuko kaj konduki lin en malliberejon. Kun plej granda trankvilo li ordonas al mi rezigni duonon de miaj enspezoj, sed mi estas certa, ke li ne kuraĝus elporti kupran utelon el Labirinto …”
-
-
-LA FARAONO
+konsentus renversi la tutan ŝtaton por la bono de la kamparanoj, sed li ne kuraĝus preni ĉefpastron ĉe nuko kaj konduki lin en malliberejon. Kun plej granda trankvilo li ordonas al mi rezigni duonon de miaj enspezoj, sed mi estas certa, ke li ne kuraĝus elporti kupran utelon el Labirinto …”
 
 
 La faraono ekridetis kaj ree komencis mediti:
 
-”ĉiu deziras esti feliĉa; sed se vi volas fari, ke ĉiuj estu feli-
-
-ĉaj, iu kaptos vin je la manoj, kiel homo, al kiu oni volas elŝiri malsanan denton … Kaj tial la monar˛o devas esti decidema
+”ĉiu deziras esti feliĉa; sed se vi volas fari, ke ĉiuj estu feliĉaj, iu kaptos vin je la manoj, kiel homo, al kiu oni volas elŝiri malsanan denton … Kaj tial la monar˛o devas esti decidema
 
 … Kaj tial mia sankta patro agis malbone, malzorgante la
 
@@ -1091,9 +838,7 @@ kamparanojn kaj senlime konfidante al la pastroj … Pezan
 
 heredaĵon li lasis al mi, sed … ne fleksiĝos sub ĝi miaj ŝultroj
 
-… Apud Sodaj Lagoj ankaŭ estis malfacila afero … Pli malfa-
-
-cila, ol ĉi tie … ĉi tie estas nur babiluloj kaj alarmantoj, tie estis homoj armitaj kaj deciditaj morti … Unu batalo pli larĝe malfermas niajn okulojn, ol dekoj da jaroj de trankvila regado … Kiu diros al si: mi rompos la baron! — rompos ĝin. Sed
+… Apud Sodaj Lagoj ankaŭ estis malfacila afero … Pli malfacila, ol ĉi tie … ĉi tie estas nur babiluloj kaj alarmantoj, tie estis homoj armitaj kaj deciditaj morti … Unu batalo pli larĝe malfermas niajn okulojn, ol dekoj da jaroj de trankvila regado … Kiu diros al si: mi rompos la baron! — rompos ĝin. Sed
 
 kiu ŝanceliĝos, devos cedi …”
 
@@ -1118,9 +863,6 @@ mil jarojn en ĉi tiu loko!…”
 Subite li ekaŭdis sufokitan voĉon:
 
 
-LA FARAONO
-
-
 —Mia filo!… filo!
 
 La faraono salte leviĝis de la seĝo.
@@ -1129,15 +871,11 @@ La faraono salte leviĝis de la seĝo.
 
 —Mi estas, mi … ĉu vi jam forgesis pri mi …
 
-La estro ne povis sin orienti, de kie venas la voĉo. De su-
-
-pre, de malsupre, aŭ eble de la granda statuo de Oziriso, kiu staris en la angulo.
+La estro ne povis sin orienti, de kie venas la voĉo. De supre, de malsupre, aŭ eble de la granda statuo de Oziriso, kiu staris en la angulo.
 
 —Fila mia — ree parolis la voĉo — respektu la volon de la
 
-dioj, se vi volas ricevi ilian benitan helpon … Ho, respektu la diojn, ĉar sen ilia helpo la plej granda potenco estas kvazaŭ cindro kaj ombro … Ho, respektu la diojn, se vi volas, ke la maldolĉo de viaj eraroj ne venenu al mi la ĉeeston en la feli-
-
-ĉa lando de Okcidento …
+dioj, se vi volas ricevi ilian benitan helpon … Ho, respektu la diojn, ĉar sen ilia helpo la plej granda potenco estas kvazaŭ cindro kaj ombro … Ho, respektu la diojn, se vi volas, ke la maldolĉo de viaj eraroj ne venenu al mi la ĉeeston en la feliĉa lando de Okcidento …
 
 La voĉo eksilentis. La sinjoro ordonis alporti torĉojn. Unu
 
@@ -1160,32 +898,21 @@ Sed se tio estis spirito?…
 La sinjoro ne volis vespermanĝi kaj iris dormi. ŝajnis al li, ke li ne ekdormos; sed la laciĝo superis la eksciton.
 
 
-LA FARAONO
-
-
 Post kelke da horoj vekis lin sonoriloj kaj lumo. Estis jam
 
 noktomezo, kaj la astrologo venis prezenti al la sinjoro raporton pri la situacio de la steloj. La faraono aŭskultis ĝis la fino kaj diris:
 
-—ĉu vi ne povus, respektinda profeto, en la estonteco pre-
-
-zenti la raportojn al la nobla Sem?… Li ja anstataŭas min en la aferoj, kiuj koncernas la religion …
+—ĉu vi ne povus, respektinda profeto, en la estonteco prezenti la raportojn al la nobla Sem?… Li ja anstataŭas min en la aferoj, kiuj koncernas la religion …
 
 La pastron astrologon forte mirigis la indiferenteco de la
 
 faraono al la ĉielaj aferoj.
 
-—Via sankteco bonvolas forpuŝi la konsilojn, kiujn la ste-
+—Via sankteco bonvolas forpuŝi la konsilojn, kiujn la steloj donas al la monar˛oj?…
 
-loj donas al la monar˛oj?…
+—Donas? ripetis la faraono. — Diru do, kiaj estaj iliaj promesoj por mi?
 
-—Donas? ripetis la faraono. — Diru do, kiaj estaj iliaj pro-
-
-mesoj por mi?
-
-La astrologo sendube atendis tian demandon, ĉar li res-
-
-pondis sen pripenso:
+La astrologo sendube atendis tian demandon, ĉar li respondis sen pripenso:
 
 —La horizonto estas por momento vualita … La sinjoro de
 
@@ -1193,9 +920,7 @@ la mondo ne trovis ankoraŭ la vojon de la vero, kiu instruas ekkoni la volon de
 
 —Bone!… Mi dankas vin, sankta viro. Nun kiam mi scias,
 
-kion mi devas serĉi, mi obeos la konsilojn, kaj vin mi ree petas, ke de nun vi komunikiĝu kun la respektinda Sem. Li es-
-
-tas mia anstataŭanto, kaj se vi legos ion interesan en la steloj, li komunikos al mi matene …
+kion mi devas serĉi, mi obeos la konsilojn, kaj vin mi ree petas, ke de nun vi komunikiĝu kun la respektinda Sem. Li estas mia anstataŭanto, kaj se vi legos ion interesan en la steloj, li komunikos al mi matene …
 
 La pastro forlasis la dormoĉambron, balancante la kapon.
 
@@ -1203,13 +928,7 @@ La pastro forlasis la dormoĉambron, balancante la kapon.
 
 malkontenta mieno.
 
-—La plej respektinda reĝino Nikotris — diris subite la ad-
-
-
-LA FARAONO
-
-
-jutanto — antaŭ unu horo ordonis al mi peti aŭdiencon de via sankteco …
+—La plej respektinda reĝino Nikotris — diris subite la adjutanto — antaŭ unu horo ordonis al mi peti aŭdiencon de via sankteco …
 
 —Nun?… Noktomeze? — demandis la sinjoro.
 
@@ -1219,15 +938,11 @@ La faraono pensis momenton kaj diris al la adjutanto, ke li
 
 atendos la reĝinon en la ora salono. Li pensis, ke tie neniu povos aŭskulti ilin.
 
-La sinjoro ĵetis mantelon sur siajn ŝultrojn, surmetis nelaĉitajn sandalojn kaj ordonis bone lumigi la oran salonon. Pos-
-
-te li eliris, ordonante, ke la servistoj ne akompanu lin.
+La sinjoro ĵetis mantelon sur siajn ŝultrojn, surmetis nelaĉitajn sandalojn kaj ordonis bone lumigi la oran salonon. Poste li eliris, ordonante, ke la servistoj ne akompanu lin.
 
 La patrinon li jam trovis en la salono, en funebraj vestoj el dika tolo. Ekvidinte la faraonon, la respektinda sinjorino volis ree fali sur la genuojn, sed la filo levis ŝin kaj ĉirkaŭprenis.
 
-—ĉu okazis io grava, patrino, ke vi interrompas vian ripo-
-
-zon en tiel malfrua horo? — demandis li.
+—ĉu okazis io grava, patrino, ke vi interrompas vian ripozon en tiel malfrua horo? — demandis li.
 
 —Mi ne dormis … mi preĝis … — respondis ŝi. — Ho mia
 
@@ -1241,16 +956,11 @@ lin.
 
 plena de malĝojo, ke vi suriras eraran vojon … Vi malrespekte forpuŝas la ĉefpastran rangon kaj malestime agas kun la diaj servistoj.
 
-”Kiu restos ĉe Ramzes — diris via dia patro — se li malkon-
-
-tentigos la diojn kaj se forlasos lin la sankta pastraro?… Diru al li … diru al li — ripetis la respektinda ombro — ke tiamaniere li pereigos Egipton, sin mem kaj la dinastion …”
+”Kiu restos ĉe Ramzes — diris via dia patro — se li malkontentigos la diojn kaj se forlasos lin la sankta pastraro?… Diru al li … diru al li — ripetis la respektinda ombro — ke tiamaniere li pereigos Egipton, sin mem kaj la dinastion …”
 
 —Oh, oh!… — ekkriis la faraono — jen kiel ili minacas min
 
 tuj en la unua tago de mia regado!… Mia patrino, la hundo
-
-
-LA FARAONO
 
 
 plej laŭte bojas, kiam ĝi timas, do la minacoj estas malbona antaŭdiro, sed nur por la pastroj!…
@@ -1271,9 +981,7 @@ la spiritoj, sonantaj en diversaj anguloj de nia palaco, estas ia artifiko de la
 
 La reĝino ekmeditis kaj oni povis vidi, ke la vortoj de la filo forte ŝin impresas. ŝi vidis multajn miraklojn dum sia vivo, kaj kelkaj ankaŭ al ŝi ŝajnis suspektindaj.
 
-—En tia okazo — respondis ŝi, sopirante — vi ne estas sin-
-
-garda, mia filo!… Posttagmeze estis ĉe mi Herhor, tre nekon-
+—En tia okazo — respondis ŝi, sopirante — vi ne estas singarda, mia filo!… Posttagmeze estis ĉe mi Herhor, tre nekon-
 
 tenta de la aŭdienco ĉe vi … Li diris, ke vi volas forigi la pastrojn de la korto …
 
@@ -1283,18 +991,13 @@ havu grandajn elspezojn?… Aŭ eble por ke ili aŭskultu, kion
 
 mi parolas, kaj rigardu, kion mi faras?…
 
-—La tuta lando indignos, kiam la pastroj konigos, ke vi es-
-
-tas malpia … — intermetis la reĝino.
+—La tuta lando indignos, kiam la pastroj konigos, ke vi estas malpia … — intermetis la reĝino.
 
 —La lando jam indignas, sed la pastroj estas kulpaj pri tio
 
 — respondis la faraono. — Kaj pri la pieco de la Egipta popolo mi komencas havi tute novan opinion … Se vi, patrino, konus
 
 la nombron de procesoj pri malpiaĵoj al la dioj en Malsupra
-
-
-LA FARAONO
 
 
 Egipto, kaj pri ŝteloj en la Supra, vi konvinkiĝus, ke por nia popolo la pastraj aferoj jam ĉesis esti sanktaj.
@@ -1307,9 +1010,7 @@ Egipto, kaj pri ŝteloj en la Supra, vi konvinkiĝus, ke por nia popolo la pastr
 
 pastra, se oni ne volas, ke ĉiu povo falu en la lando.
 
-—Egipto estas via — sopiris la reĝino. — Via saĝo estas eks-
-
-terordinara, faru do, kion vi volas … Sed agu singarde, ho singarde!… La skorpiono, eĉ mortigita, povas vundi la nesingar-
+—Egipto estas via — sopiris la reĝino. — Via saĝo estas eksterordinara, faru do, kion vi volas … Sed agu singarde, ho singarde!… La skorpiono, eĉ mortigita, povas vundi la nesingar-
 
 dan venkinton …
 
@@ -1317,9 +1018,7 @@ dan venkinton …
 
 Li vidis jam klare, ke inter li kaj la pastroj komenĉiĝis batalo, aŭ ĝustadire io abomena, kio ne meritis eĉ la nomon de batalo kaj kontraŭ kio li, militestro, ne povis trovi en la unua momento efikan rimedon.
 
-ĉar kie estas la malamiko? Kontraŭ kiu devas marŝi lia fi-
-
-dela armeo?… ĉu kontraŭ la pastroj, kiuj falas antaŭ li sur la vizaĝon? ĉu kontraŭ la steloj, kiuj diras, ke la faraono ne suriris ankoraŭ la vojon de la vero? Kontraŭ kio kaj kontraŭ kiu batali?…
+ĉar kie estas la malamiko? Kontraŭ kiu devas marŝi lia fidela armeo?… ĉu kontraŭ la pastroj, kiuj falas antaŭ li sur la vizaĝon? ĉu kontraŭ la steloj, kiuj diras, ke la faraono ne suriris ankoraŭ la vojon de la vero? Kontraŭ kio kaj kontraŭ kiu batali?…
 
 Eble la voĉojn de la spiritoj, sonantaj en la mallumo? ĉu la propran patrinon, kiu terurigita petegas lin, ke li ne dispelu la pastrojn?…
 
@@ -1330,24 +1029,14 @@ Subite venis al li jena penso: ”Mi ne atentu la malamikon, kiu disfluas, kiel 
 salonoj … oni koleru kontraŭ mia senpieco … Mi donados la
 
 
-LA FARAONO
-
-
-ordonojn, kaj kiu kuraĝos ne plenumi ilin, estos mia malami-
-
-ko, kaj kontraŭ li mi uzos la policon, tribunalon kaj arme-
+ordonojn, kaj kiu kuraĝos ne plenumi ilin, estos mia malamiko, kaj kontraŭ li mi uzos la policon, tribunalon kaj arme-
 
 on …”
 
 
-LA FARAONO
+ĈAPITRO KVARA
 
-
-ĉAPITRO KVARA
-
-Tiel da en la monato Hator, post tridek kvar jaroj de rega-
-
-do, mortis la faraono Mer-amen-Ramzes XII, la sinjoro
+Tiel da en la monato Hator, post tridek kvar jaroj de regado, mortis la faraono Mer-amen-Ramzes XII, la sinjoro
 
 de la du mondoj, la estro de la eterneco, la disdonanto de la vivo kaj de ĉia ĝojo.
 
@@ -1369,29 +1058,19 @@ Dume la pastroj kantis:
 
 ˘oro I. ĉu vi povus iri, kiel vi iras, sen halto, ho suno?…
 
-˘oro II. Granda migrulo de la spaco, vi kiu ne havas sin-
-
-
-LA FARAONO
-
-
-joron kaj por kiuj centoj da milionoj da jaroj estas nur unu palpebrumo …
+˘oro II. Granda migrulo de la spaco, vi kiu ne havas sinjoron kaj por kiuj centoj da milionoj da jaroj estas nur unu palpebrumo …
 
 ˘oro I. Vi subiras, sed vi daŭras. Vi multobligas la horojn, noktojn kaj tagojn, kaj vi mem daŭras laŭ viaj propraj leĝoj
 
 …
 
-˘oro II. Vi lumigas la teron, oferante vin mem per viaj pro-
-
-praj manoj, kiam en la figuro de Ra vi leviĝas sur la horizonto.
+˘oro II. Vi lumigas la teron, oferante vin mem per viaj propraj manoj, kiam en la figuro de Ra vi leviĝas sur la horizonto.
 
 ˘oro I. Ho stelo, kiu aperas, granda per via lumo, vi mem
 
 formas viajn membrojn …
 
-˘oro II. Kaj naskita de neniu, vi naskas vin mem sur la ho-
-
-rizonto.
+˘oro II. Kaj naskita de neniu, vi naskas vin mem sur la horizonto.
 
 En tiu momento la faraono ekparolis:
 
@@ -1405,12 +1084,7 @@ La novaĵo pri la morto de la faraono kiel fulmo trakuris la
 
 palacon. La servistoj forlasis siajn okupojn, la estroj ĉesis kontroli la sklavojn, oni alarmis la gvardion kaj okupis ĉiujn enirojn.
 
-En la ĉefa korto komencis kolektiĝi la amaso: kuiristoj, ĉe-
-
-valistoj, kelistoj, virinoj de lia sankteco kaj iliaj infanoj. Unuj 1 Himno aŭtentika.
-
-
-LA FARAONO
+En la ĉefa korto komencis kolektiĝi la amaso: kuiristoj, ĉevalistoj, kelistoj, virinoj de lia sankteco kaj iliaj infanoj. Unuj 1 Himno aŭtentika.
 
 
 demandis, ĉu tio estas vera, aliaj miris, ke la suno lumas ankoraŭ sur la ĉielo, kaj ĉiuj kune kriis ĝis perdo de la spiro:
@@ -1419,9 +1093,7 @@ demandis, ĉu tio estas vera, aliaj miris, ke la suno lumas ankoraŭ sur la ĉie
 
 ke vi jam forlasis nin?… Ho jes, li jam iras al Abidos!… Al la okcidento, al la okcidento en la teron de la justuloj!… La loko, kiun vi amis, ĝemas kaj ploras!…”
 
-Terura krio eksonis en ĉiuj kortoj, en la tuta parko. i re-
-
-saltis de la orientaj montoj, la vento portis ĝin sur siaj flugiloj trans Nilon, kaj ĝi ektimigis la urbon Memfison.
+Terura krio eksonis en ĉiuj kortoj, en la tuta parko. i resaltis de la orientaj montoj, la vento portis ĝin sur siaj flugiloj trans Nilon, kaj ĝi ektimigis la urbon Memfison.
 
 Dume la pastroj preĝante metis la korpon de la mortinto
 
@@ -1450,12 +1122,7 @@ transiri sur la alian bordon! Ho pastroj, ho profetoj ne rapi-du, lasu lin; vi j
 2 Aŭtentika.
 
 
-LA FARAONO
-
-
-La respektinda Herhor donis signon. La servistinoj super-
-
-forte forŝiris la reĝinon de la piedoj de la faraono kaj kondukis ŝin en ŝian ĉambron.
+La respektinda Herhor donis signon. La servistinoj superforte forŝiris la reĝinon de la piedoj de la faraono kaj kondukis ŝin en ŝian ĉambron.
 
 La portilo, portata de la pastroj, ekmoviĝis; la estro estis vestita kaj ĉirkaŭita, kiel dum la vivo. Dekstre kaj maldekstre, antaŭ kaj post li iris: generaloj, kasistoj, juĝistoj, grandaj skribistoj, portantoj de la hakilo kaj sago, kaj, antaŭ ĉio granda amaso da pastroj de ĉiuj rangoj.
 
@@ -1471,25 +1138,16 @@ fruktoportaj kampoj kaj palmaj arbaroj, inter Memfiso kaj
 
 ”Plata Altaĵo de Mumio” kuŝis stranga kvartalo. ĉiuj ĝiaj konstruaĵoj estis destinitaj por la mortintoj, kaj loĝataj nur de kolŝitoj kaj paraŝitoj, kiuj enbalzamigadis la kadavrojn.
 
-La kvartalo estis kvazaŭ vestiblo de la vera tombejo, pon-
-
-to, kiu kunigis la vivantan socion kun la loko de la eterna ripozo. Tien estis alportataj la mortintoj kaj estis farataj el ili mumioj; tie familioj marĉandis kun la pastroj pri la prezo de la enterigo. Tie estis preparataj la sanktaj libroj kaj zonoj, ĉerkoj, mebloj, vazoj kaj statuoj por la mortintoj.
+La kvartalo estis kvazaŭ vestiblo de la vera tombejo, ponto, kiu kunigis la vivantan socion kun la loko de la eterna ripozo. Tien estis alportataj la mortintoj kaj estis farataj el ili mumioj; tie familioj marĉandis kun la pastroj pri la prezo de la enterigo. Tie estis preparataj la sanktaj libroj kaj zonoj, ĉerkoj, mebloj, vazoj kaj statuoj por la mortintoj.
 
 —Kiu venis? — oni demandis de interne.
 
 
-LA FARAONO
-
-
-—Oziriso Mer-amen-Ramzes, la sinjoro de du mondoj, ve-
-
-nas al vi kaj postulas, ke vi preparu lin al la eterna vojaĝo —
+—Oziriso Mer-amen-Ramzes, la sinjoro de du mondoj, venas al vi kaj postulas, ke vi preparu lin al la eterna vojaĝo —
 
 respondis la pastro.
 
-—ĉu estas eble, ke estingiĝis la suno de Egipto?… Ke mor-
-
-tis tiu, kiu mem estis la spiro kaj vivo?…
+—ĉu estas eble, ke estingiĝis la suno de Egipto?… Ke mortis tiu, kiu mem estis la spiro kaj vivo?…
 
 —Tia estis lia volo — respondis la pastro. — Akceptu do la
 
@@ -1501,9 +1159,7 @@ Nun la pastroj lasis la portilon apud la pordo kaj rapide
 
 foriris, por ke ne falu sur ilin la malpura spiro de la kadavroj, amasigitaj en ĉi tiu loko. Restis nur la civilaj oficistoj, koman-dataj de la granda juĝisto kaj kasisto.
 
-Post sufiĉe longa momento de atendado, la pordego mal-
-
-fermiĝis, kaj eliris el ĝi dekkelko da homoj. Ili havis pastrajn vestojn kaj kovritajn vizaĝojn.
+Post sufiĉe longa momento de atendado, la pordego malfermiĝis, kaj eliris el ĝi dekkelko da homoj. Ili havis pastrajn vestojn kaj kovritajn vizaĝojn.
 
 Vidante ilin, la juĝisto diris:
 
@@ -1513,31 +1169,20 @@ kun ĝi, kion ordonas nia sankta religio, malzorgu nenion, por ke la granda mort
 
 La kasisto aldonis:
 
-—Uzu oron, arĝenton, malakiton, turkisojn, jaspisojn, sme-
-
-raldojn kaj plej multekostajn parfumojn por ĉi tiu sinjoro, por ke nenio manku al li kaj por ke li havu ĉion de la plej bona kvalito. Tion diras al vi mi, la kasisto. Kaj se troviĝus malnoblulo, kiu anstataŭ noblaj metaloj volus meti mizerajn falsa-
+—Uzu oron, arĝenton, malakiton, turkisojn, jaspisojn, smeraldojn kaj plej multekostajn parfumojn por ĉi tiu sinjoro, por ke nenio manku al li kaj por ke li havu ĉion de la plej bona kvalito. Tion diras al vi mi, la kasisto. Kaj se troviĝus malnoblulo, kiu anstataŭ noblaj metaloj volus meti mizerajn falsa-
 
 ĵojn, kaj anstataŭ multekostaj ŝtonoj fenician vitron, li memoru, ke oni dehakos al li la manojn kaj elŝiros la okulojn.
 
 
-LA FARAONO
-
-
-—Estos farite, kiel vi postulas — respondis unu el la vua-
-
-litoj.
+—Estos farite, kiel vi postulas — respondis unu el la vualitoj.
 
 La aliaj levis la portilon kaj eniris kun ĝi en la kvartalon de la mortintoj, kantante:
 
-—Vi iras en paco al Abidos!… Atingu en paco la teban ok-
-
-cidenton!… Al la okcidento, al la okcidento, al la tero de la justuloj!…
+—Vi iras en paco al Abidos!… Atingu en paco la teban okcidenton!… Al la okcidento, al la okcidento, al la tero de la justuloj!…
 
 La pordego fermiĝis, kaj la plej alta juĝisto kaj la oficistoj, akompanantaj lin, revenis al la rivero kaj palaco.
 
-Dume la vualitoj transportis la portilon en grandegan kon-
-
-struaĵon, kie oni enbalzamigadis la kadavrojn de la reĝoj kaj de tiuj altranguloj, kiuj akiris specialan favoron de la faraono. Ili haltis en la vestiblo, kie staris ŝipeto sur malgrandaj radoj, kaj komencis elpreni la mortinton el la portilo.
+Dume la vualitoj transportis la portilon en grandegan konstruaĵon, kie oni enbalzamigadis la kadavrojn de la reĝoj kaj de tiuj altranguloj, kiuj akiris specialan favoron de la faraono. Ili haltis en la vestiblo, kie staris ŝipeto sur malgrandaj radoj, kaj komencis elpreni la mortinton el la portilo.
 
 —Rigardu! — ekkriis unu el la vualitoj — ĉu ili ne estas ŝtelistoj?… La faraono ja mortis en la kapelo de Oziriso, li do devis esti en solena vesto … Kaj jen ĉi tie: anstataŭ oraj braceletoj — kupraj, la ĉeno ankaŭ estas kupra kaj en la ringoj estas falsitaj ŝtonoj … Mi dezirus scii, kiu tiel servis lin, la pastroj aŭ la skribistoj?
 
@@ -1552,9 +1197,6 @@ friponoj kuraĝas admoni nin, ke oni donu al la mortinto ĉion de la plej bona k
 Parolante tiel, ili demetis de la mortinto la reĝajn vestojn, surmetis al li negliĝan robon, broditan per oro kaj transportis la kadavron en la ŝipeton.
 
 —Ni danku la diojn — diris unu el la vualitoj — ke ni jam
-
-
-LA FARAONO
 
 
 havas novan sinjoron. ĉi tiu faros ordon kun la pastraro …
@@ -1610,20 +1252,13 @@ jam estas preta?
 la vestiblo.
 
 
-LA FARAONO
-
-
 —Indiferente … Rapide donu lin ĉi tien, ĉar Izido post unu
 
 horo devas iri en la urbon.
 
-Post momento la ora ŝipeto kun la kadavro estis per ŝnu-
+Post momento la ora ŝipeto kun la kadavro estis per ŝnuroj levita supren, sur la eksteran balkonon.
 
-roj levita supren, sur la eksteran balkonon.
-
-El la vestiblo oni eniradis en grandan salonon, blue kolo-
-
-rigitan kaj ornamitan per flavaj steloj. Sur la tuta longo de la salono al unu el la muroj estis alkroĉita kvazaŭ balkono, ark-forma, kies ekstremoj leviĝis unu etaĝon, la mezo unu kaj
+El la vestiblo oni eniradis en grandan salonon, blue kolorigitan kaj ornamitan per flavaj steloj. Sur la tuta longo de la salono al unu el la muroj estis alkroĉita kvazaŭ balkono, ark-forma, kies ekstremoj leviĝis unu etaĝon, la mezo unu kaj
 
 duonon.
 
@@ -1631,9 +1266,7 @@ La salono prezentis la ĉielan firmamenton, la balkono la
 
 vojon de la suno sur la ĉielo, kaj la faraono devis esti Oziriso, aŭ la suno, kiu iras de la oriento al la okcidento.
 
-Malsupre staris amaso da pastroj kaj pastrinoj, kiuj, aten-
-
-dante la solenon, parolis pri indiferentaj aferoj.
+Malsupre staris amaso da pastroj kaj pastrinoj, kiuj, atendante la solenon, parolis pri indiferentaj aferoj.
 
 —Preta!… — oni kriis de la balkono.
 
@@ -1656,14 +1289,9 @@ Nun la ŝipeto de la supro de la arko komencis malleviĝi al
 la okcidento, kaj malsupre ree eksonis la ˛oro:
 
 
-LA FARAONO
-
-
 ”Dio, enkorpigita en ĉiuj objektoj, spirito ŝu en ĉiuj dioj. Li estas la korpo de la vivanta homo, kreinto de la arbo, kiu portas fruktojn, li estas la kaŭzo de la fruktigaj superakvoj. Sen li nenio vivas en la tera spaco.”3
 
-La ŝipeto malaperis sur la okcidenta ekstremo de la balko-
-
-no, Izido kun Horus haltis sur la supro de la arko. Tiam al la ŝipeto alkuris aro da pastroj: ili elprenis la kadavron de la faraono, metis ĝin sur marmora tablo, kvazaŭ Ozirison por ri-
+La ŝipeto malaperis sur la okcidenta ekstremo de la balkono, Izido kun Horus haltis sur la supro de la arko. Tiam al la ŝipeto alkuris aro da pastroj: ili elprenis la kadavron de la faraono, metis ĝin sur marmora tablo, kvazaŭ Ozirison por ri-
 
 pozo post la taga laboro.
 
@@ -1681,19 +1309,13 @@ lin Izido de la balkono.
 
 —Mi skrapas la piedojn de mia frato Oziriso, por ke li ne
 
-malpurigu la ĉielon per la tera polvo — respondis la paraŝi-
+malpurigu la ĉielon per la tera polvo — respondis la paraŝito, alivestita kiel Tifono.
 
-to, alivestita kiel Tifono.
-
-Fortranĉinte la plandojn, la paraŝito prenis kurban metal-
-
-fadenon, metis ĝin en la nazon de la mortinto kaj komencis
+Fortranĉinte la plandojn, la paraŝito prenis kurban metalfadenon, metis ĝin en la nazon de la mortinto kaj komencis
 
 eltiri la cerbon. Poste li distranĉis la ventron kaj tra la truo rapide eltiris la intestojn, koron kaj pulmojn.
 
-Dume la helpantoj de Tifono alportis kvar grandajn ur-
-
-nojn, ornamitajn per la kapoj de la dioj: Hape, Emset, Du-
+Dume la helpantoj de Tifono alportis kvar grandajn urnojn, ornamitajn per la kapoj de la dioj: Hape, Emset, Du-
 
 amutf kaj Kebhsneuf, kaj en ĉiun el la urnoj metis iun internan organon de la mortinto.
 
@@ -1704,16 +1326,11 @@ Izido.
 3 Aŭtentika.
 
 
-LA FARAONO
-
-
 —Mi purigas mian fraton Ozirison de la teraj aferoj, por ke
 
 li fariĝu pli bela — respondis la paraŝito.
 
-Apud la marmora tablo estis baseneto, kies akvo estis sa-
-
-turita per sodo. La paraŝitoj, puriginte la kadavron, ĵetis ĝin en la baseneton, en kiu ĝi devis malsekiĝi sepdek tagojn.
+Apud la marmora tablo estis baseneto, kies akvo estis saturita per sodo. La paraŝitoj, puriginte la kadavron, ĵetis ĝin en la baseneton, en kiu ĝi devis malsekiĝi sepdek tagojn.
 
 Dume Izido, trairante la tutan balkonon, proksimiĝis al la
 
@@ -1725,17 +1342,13 @@ Subite ektondris, eksonis trumpetoj kaj bronzaj ladoj, kaj
 
 la paraŝito, alivestita kiel Tifono, eksplodis de rido kaj ekkriis:
 
-—Bela Izido, kiu kun la steloj gajigas la noktojn, ne ekzis-
-
-tas plu via edzo!… Neniam plu la radianta Oziriso sidiĝos sur la orita ŝipeto, neniam plu la suno sin montros sur la firmamento … Mi faris tion, mi Set, kaj mi kaŝis lin tiel profunde, ke neniu dio, eĉ ĉiuj kune retrovos lin!…
+—Bela Izido, kiu kun la steloj gajigas la noktojn, ne ekzistas plu via edzo!… Neniam plu la radianta Oziriso sidiĝos sur la orita ŝipeto, neniam plu la suno sin montros sur la firmamento … Mi faris tion, mi Set, kaj mi kaŝis lin tiel profunde, ke neniu dio, eĉ ĉiuj kune retrovos lin!…
 
 ĉe tiuj vortoj la diino disŝiris la vestojn, komencis ĝemi kaj elŝiri siajn harojn. Ree eksonis la trumpetoj, tondroj kaj sonoriloj, inter la pastroj kaj pastrinoj leviĝis murmureto, poste krio, malbenoj kaj fine ĉiuj ĵetis sin sur Tifonon, kriante:
 
 —Malbenita spirito de la mallumo!… Vi, kiu ekscitas la
 
-ventojn de la dezerto, boligas la maron, kovras la teran lu-
-
-mon!… Falu en senfundaĵon, el kiu ne povus vin liberigi eĉ la patro de la dioj … Malbenita, malbenita Set!… Via nomo estu
+ventojn de la dezerto, boligas la maron, kovras la teran lumon!… Falu en senfundaĵon, el kiu ne povus vin liberigi eĉ la patro de la dioj … Malbenita, malbenita Set!… Via nomo estu
 
 teruro kaj abomeno!…
 
@@ -1747,9 +1360,7 @@ el la salono.
 
 Ree tri sonoj de la bronza lado, kaj la soleno estis finita.
 
-—Sufiĉe! — ekkriis la plej maljuna pastro al la aro, kiu jam 45
-
-LA FARAONO
+—Sufiĉe! — ekkriis la plej maljuna pastro al la aro, kiu jam
 
 
 efektive komencis interbatali. — Vi, Izido, povas iri en la urbon, la ceteraj al aliaj mortintoj, kiuj atendas nin … Ne malzorgu la simplajn mortintojn, ĉar ni ne scias, kiel oni pagos al ni por ĉi tiu …
@@ -1762,47 +1373,32 @@ en la trezorejo restis nenio, kaj Fenicianoj minacas, ke ili ĉesos pruntedoni, 
 
 almozpeti de ili hordean panon; ĉion ili jam proprigis al si …
 
-—Sed se ili ne donos monon al la faraono, ni ricevos ne-
-
-nion por la enterigo …
+—Sed se ili ne donos monon al la faraono, ni ricevos nenion por la enterigo …
 
 Iom post iom eksilentis la interparoladoj kaj la ĉeestantoj
 
 forlasis la bluan salonon. Restis nur gardistoj ĉe la baseneto kun la restaĵoj de la faraono.
 
-La tuta soleno, prezentanta la mortigon de Oziriso (la su-
-
-no) per Tifono (la dio de la mallumo kaj krimo) servis, por
+La tuta soleno, prezentanta la mortigon de Oziriso (la suno) per Tifono (la dio de la mallumo kaj krimo) servis, por
 
 distranĉi kaj purigi la restaĵojn de la faraono, kaj tiel prepari ilin por la enbalzamigo.
 
 Sepdek tagojn la mortinto kuŝis en la akvo, saturita per
 
-sodo, kredeble kiel rememoraĵo, ke la malbona Tifono droni-
+sodo, kredeble kiel rememoraĵo, ke la malbona Tifono dronigis la korpon de la frato en Sodaj Lagoj. Dum la tuta tempo, matene kaj vespere, la pastrino, alivestita kiel Izido, venis en la bluan salonon. Tie, ĝemante kaj elŝirante al si la harojn, ŝi demandis la ĉeestantojn: ĉu oni vidis ŝian dian edzon kaj fraton?
 
-gis la korpon de la frato en Sodaj Lagoj. Dum la tuta tempo, matene kaj vespere, la pastrino, alivestita kiel Izido, venis en la bluan salonon. Tie, ĝemante kaj elŝirante al si la harojn, ŝi demandis la ĉeestantojn: ĉu oni vidis ŝian dian edzon kaj fraton?
-
-Kiam pasis la tempo de la funebro, Horus, la filo kaj po-
-
-steulo de Oziriso, aperis en la salono kaj li, fine, rimarkis la banujon.
+Kiam pasis la tempo de la funebro, Horus, la filo kaj posteulo de Oziriso, aperis en la salono kaj li, fine, rimarkis la banujon.
 
 —Eble ĉi tie oni devus serĉi la restaĵojn de mia patro kaj
 
 frato? — demandis Horus.
 
 
-LA FARAONO
-
-
 Ili komencis serĉi, trovis kaj, kun granda ĝojo de la pastroj, ĉe sonoj de la muziko elprenis la korpon de la faraono el la fortiga bano.
 
-Oni enmetis la korpon en ŝtonan tubon, tra kiu dum kel-
+Oni enmetis la korpon en ŝtonan tubon, tra kiu dum kelke da tagoj pasis varmega aero, kaj sekiginte oni transdonis al la enbalzamigistoj.
 
-ke da tagoj pasis varmega aero, kaj sekiginte oni transdonis al la enbalzamigistoj.
-
-Nun komenciĝis la plej gravaj ceremonioj, kiujn sur la fa-
-
-raono plenumis la plej altaj pastroj de la kvartalo de mortintoj.
+Nun komenciĝis la plej gravaj ceremonioj, kiujn sur la faraono plenumis la plej altaj pastroj de la kvartalo de mortintoj.
 
 La korpon de la mortinto, turninte la kapon al la sudo, oni
 
@@ -1812,30 +1408,19 @@ Sur la planko, surŝutita per cindro, sidis larmistinoj, kaj elŝirante al si ha
 
 ĉirkaŭ la funebra lito kolektiĝis pastroj, alivestitaj kiel dioj: Izido, nuda, kun la krono de la faraonoj, la junula Horus,
 
-Anubis kun ŝakala kapo, Tot, kun birda kapo kaj kun tabule-
+Anubis kun ŝakala kapo, Tot, kun birda kapo kaj kun tabuletoj en la mano, kaj multaj aliaj.
 
-toj en la mano, kaj multaj aliaj.
-
-Sub la kontrolo de ĉi tiu respektinda aro, specialistoj ko-
-
-mencis plenigi la internon de la mortinto per forte odorantaj herboj, segaĵoj, kaj eĉ ili verŝis tien odorajn arbajn sukojn, seninterrompe preĝante. Poste, anstataŭ liaj propraj, oni metis al li vitrajn okulojn, enkadrigitajn en bronzo.
+Sub la kontrolo de ĉi tiu respektinda aro, specialistoj komencis plenigi la internon de la mortinto per forte odorantaj herboj, segaĵoj, kaj eĉ ili verŝis tien odorajn arbajn sukojn, seninterrompe preĝante. Poste, anstataŭ liaj propraj, oni metis al li vitrajn okulojn, enkadrigitajn en bronzo.
 
 Oni surŝutis la tutan korpon per soda pulvoro.
 
 Nun elpaŝis alia pastro, kaj klarigis al la ĉeestantoj, ke la korpo de la mortinto estas la korpo de Oziriso kaj liaj ecoj estas la ecoj de Oziriso: la miraklaj ecoj de lia maldekstra tempio estas la ecoj de la tempio de la dio Tumu; lia dekstra okulo estas la okulo de la dio Tumu, kies radioj trapenetras la mallumon. Lia maldekstra okulo estas la okulo de Horus,
 
-kiu ekstermas ĉiujn vivantajn kreaĵojn; la supra lipo estas Izi-47
-
-LA FARAONO
-
-
-do, la malsupra — Neftis. La kolo de la mortinto estas diino, la manoj estas diaj animoj, la fingroj estas ĉielaj serpentoj, la filoj de la diino Selkit. Liaj flankoj estas du plumoj de Amon, la dorso estas la spino de Sibu, la ventro estas la flanko de Nue.4
+kiu ekstermas ĉiujn vivantajn kreaĵojn; la supra lipo estas Izido, la malsupra — Neftis. La kolo de la mortinto estas diino, la manoj estas diaj animoj, la fingroj estas ĉielaj serpentoj, la filoj de la diino Selkit. Liaj flankoj estas du plumoj de Amon, la dorso estas la spino de Sibu, la ventro estas la flanko de Nue.4
 
 Alia pastro diris:
 
-—”Oni donis al mi buŝon por paroli, piedojn por paŝi, ma-
-
-nojn por faligi malamikojn. Mi reviviĝas, mi ekzistas, mi malfermas la ĉielon; mi faras tion, kion oni ordonis al mi en
+—”Oni donis al mi buŝon por paroli, piedojn por paŝi, manojn por faligi malamikojn. Mi reviviĝas, mi ekzistas, mi malfermas la ĉielon; mi faras tion, kion oni ordonis al mi en
 
 Memfiso.”5
 
@@ -1866,9 +1451,6 @@ Kiu li estas?
 5 Aŭtentika.
 
 6 Aŭtentika.
-
-
-LA FARAONO
 
 
 Hieraŭo estas Oziriso, Morgaŭo estas Ra, en la tago, kiam
@@ -1906,18 +1488,13 @@ mano kaj kondukas antaŭ la tronon de Oziriso.
 7 ”La libro de la mortintoj”.
 
 
-LA FARAONO
-
-
 Por ke la mortinto povu sin senkulpigi antaŭ la tribunalo,
 
 oni devas envolvi lian mumion en papiruson, sur kiu estas
 
 skribita lia ĝenerala konfeso. Dum la envolvado la pastroj diras laŭte kaj klare, por ke la mortinto nenion forgesu:
 
-—”Estroj de la vero, mi alportas al vi nur la veron. Al ne-
-
-niu homo mi faris perfide malbonon, neniun el miaj proksi-
+—”Estroj de la vero, mi alportas al vi nur la veron. Al neniu homo mi faris perfide malbonon, neniun el miaj proksi-
 
 muloj mi faris malfeliĉa … Neniam mi estis maldeca, neniam
 
@@ -1929,35 +1506,24 @@ ne ordonis al miaj subuloj labori super iliaj fortoj. Neniu per mia kulpo fariĝ
 
 faris nenion, kion malestimus la dioj. Mi ne turmentis la sklavojn. Mi ne lasis ilin malsataj. Mi ne igis ilin plori. Mi ne mortigis. Mi ne ordonis fortigi perfide. Mi ne mensogis. Mi ne
 
-rabis trezorojn de la temploj. Mi ne malgrandigis la enspe-
-
-zojn, oferitajn al la dioj. Mi ne ŝtelis panon, nek zonojn de la mumioj. Mi ne pekis kontraŭ la pastro de mia distrikto. Mi ne forprenis, nek malgrandigis lian havon. Mi ne forŝiris infanon de la brusto de ĝia patrino. Neniam mi agis brute. Mi ne uzis falsan pesilon. Mi ne kaptis birdojn. Mi ne malhelpis leviĝon de la akvo. Mi ne deturnis fluon de la kanaloj. Mi ne estingis fajron en nekonvena momento. Mi ne ŝtelis la oferojn de la
+rabis trezorojn de la temploj. Mi ne malgrandigis la enspezojn, oferitajn al la dioj. Mi ne ŝtelis panon, nek zonojn de la mumioj. Mi ne pekis kontraŭ la pastro de mia distrikto. Mi ne forprenis, nek malgrandigis lian havon. Mi ne forŝiris infanon de la brusto de ĝia patrino. Neniam mi agis brute. Mi ne uzis falsan pesilon. Mi ne kaptis birdojn. Mi ne malhelpis leviĝon de la akvo. Mi ne deturnis fluon de la kanaloj. Mi ne estingis fajron en nekonvena momento. Mi ne ŝtelis la oferojn de la
 
 dioj, kiujn ili elektis. Mi estas pura … Mi estas pura … Mi estas pura …”8
 
 Kiam la mortinto, dank’al ”La Libro”, jam sciis, kiel agi en la eterna lando, kaj, antaŭ ĉio, kiam li sciis, kiel senkulpigi sin antaŭ la tribunalo de la kvardek du dioj, tiam la pastroj armis 8 ĉapitro 75-a de ”La libro de la mortintoj”. Tio estas unu el la plej altideaj dokumentoj, kiujn lasis al ni la antikva mondo
 
 
-LA FARAONO
-
-
 lin ankaŭ per la antaŭparolo de ĉi tiu libro kaj klarigis al li
 
 ĝian grandan gravecon.
 
-Por tiu celo la enbalzamigistoj, ĉirkaŭantaj la freŝan mu-
+Por tiu celo la enbalzamigistoj, ĉirkaŭantaj la freŝan mumion de la faraono, foriris, kaj venis la ĉefa pastro de la distrikto kaj murmuretis al la mortinto en la orelon:
 
-mion de la faraono, foriris, kaj venis la ĉefa pastro de la distrikto kaj murmuretis al la mortinto en la orelon:
-
-—”Sciu, ke posedante ĉi tiun libron, vi apartenos al la vi-
-
-vantaj kaj akiros grandan influon ĉe la dioj. Sciu, ke dank’al
+—”Sciu, ke posedante ĉi tiun libron, vi apartenos al la vivantaj kaj akiros grandan influon ĉe la dioj. Sciu, ke dank’al
 
 ĝi neniu kuraĝos kontraŭstari al vi. La dioj mem proksimiĝos al vi kaj ĉirkaŭprenos vin, ĉar vi apartenos al ilia rondo.
 
-Sciu, ke la libro permesos al vi ekscii, kio estis en la komenco. Neniu homo publikigis ĝin, neniu okulo ĝin vidis, ne-
-
-niu orelo ĝin aŭdis. La libro estas la vero mem, sed neniu kaj neniam konis ĝin. Estu ĝi videbla nur por vi kaj por tiu, kiu
+Sciu, ke la libro permesos al vi ekscii, kio estis en la komenco. Neniu homo publikigis ĝin, neniu okulo ĝin vidis, neniu orelo ĝin aŭdis. La libro estas la vero mem, sed neniu kaj neniam konis ĝin. Estu ĝi videbla nur por vi kaj por tiu, kiu
 
 ĝin al vi donis. Ne aldonu al ĝi komentariojn, kiujn povus
 
@@ -1965,9 +1531,7 @@ dikti via memoro aŭ via fantazio. i estas skribita tuta en la ĉambro, kie oni 
 
 mondo.
 
-La libro estos via nutraĵo en la malsupra lando de la spiri-
-
-toj, ĝi liveros al via animo rimedojn por restadi sur la tero, donos al vi vivon eternan kaj faros, ke neniu havos povon super vi.”9
+La libro estos via nutraĵo en la malsupra lando de la spiritoj, ĝi liveros al via animo rimedojn por restadi sur la tero, donos al vi vivon eternan kaj faros, ke neniu havos povon super vi.”9
 
 Oni riĉe vestis la reĝajn restaĵojn, metis oran maskon sur
 
@@ -1981,30 +1545,20 @@ dormas Egiptanoj. Fine, oni fermis la korpon en tri ĉerkoj; pa-pera, kovrita pe
 ”La libro de la mortintoj”, ĉapitro 148-a.
 
 
-LA FARAONO
-
-
 Post trimonata restado en la kvartalo de la mortintoj, la
 
 mumio de la faraono estis preta al la solena enterigo. Oni ree transportis ĝin en la reĝan palacon.
 
 
-LA FARAONO
-
-
-ĉAPITRO KVINA
+ĈAPITRO KVINA
 
 Dum sepdek tagoj, dum kiuj la respektindaj restaĵoj
 
-malsekiĝis en la soda akvo, Egipto portis funebrajn ves-
-
-tojn.
+malsekiĝis en la soda akvo, Egipto portis funebrajn vestojn.
 
 La temploj estis fermitaj, oni ne faris procesiojn. Eksilentis ĉiu muziko, oni ne aranĝis festojn, la dancistinoj fariĝis ploristinoj, kaj anstataŭ danci, ŝiris siajn harojn, kio ankaŭ alportis al ili profiton.
 
-Oni ne trinkis vinon, oni ne manĝis viandon. La plej gran-
-
-daj altranguloj estis en dikaj vestoj, nudpiede. Neniu sin razis (ekster la pastroj), la plej fervoraj eĉ ne lavis sin, sed ŝmiris siajn vizaĝojn per koto, kaj ŝutis cindron sur la harojn.
+Oni ne trinkis vinon, oni ne manĝis viandon. La plej grandaj altranguloj estis en dikaj vestoj, nudpiede. Neniu sin razis (ekster la pastroj), la plej fervoraj eĉ ne lavis sin, sed ŝmiris siajn vizaĝojn per koto, kaj ŝutis cindron sur la harojn.
 
 De Mediteraneo ĝis la unua katarakto de Nilo, de la libia
 
@@ -2023,30 +1577,21 @@ la tagoj estas pli mallongaj kaj pli mallumaj?
 efektive estas tiel. Mi eĉ rimarkis, ke malpli da steloj lumas nokte kaj ke la plena luno daŭras malpli longe, kaj ke la nova luno pli longe ol ordinare.
 
 
-LA FARAONO
-
-
 Paŝtistoj diras, ke la brutoj ne volas manĝi en la paŝtejoj, ili nur blekas …
 
 —Mi aŭdis de ĉasistoj, ke la plorantaj leonoj ne atakas plu
 
 kapreolojn, ĉar ili ne manĝas viandon.
 
-—Teruraj tempoj!… Venu al mi hodiaŭ vespere, kaj ni trin-
-
-kos glason da funebra fluidaĵo, kiun elpensis mia kelisto.
+—Teruraj tempoj!… Venu al mi hodiaŭ vespere, kaj ni trinkos glason da funebra fluidaĵo, kiun elpensis mia kelisto.
 
 —Mi scias, sendube vi havas la nigran sidonan bieron?…
 
-—La dioj gardu nin trinki en la nuna tempo gajigajn trin-
-
-kaĵojn! Tio, kion elpensis mia kelisto, ne estas biero … Pli ĝustadire mi komparus ĝin kun vino, saturita per muskato kaj
+—La dioj gardu nin trinki en la nuna tempo gajigajn trinkaĵojn! Tio, kion elpensis mia kelisto, ne estas biero … Pli ĝustadire mi komparus ĝin kun vino, saturita per muskato kaj
 
 bonodoraj herboj.
 
-—Tre konvena trinkaĵo en la tempo, kiam nia sinjoro res-
-
-tas en la kvartalo de mortintoj, kiu ĉiam spiras odoron de la muskato kaj bonodoraj herboj.
+—Tre konvena trinkaĵo en la tempo, kiam nia sinjoro restas en la kvartalo de mortintoj, kiu ĉiam spiras odoron de la muskato kaj bonodoraj herboj.
 
 Tiel dum sepdek tagoj ĉargreniĝis la altranguloj.
 
@@ -2065,20 +1610,13 @@ estis oficiale nomata Oziriso; neoficiale oni nomis lin tiel tuj post la morto.
 Gajeco de la Egipta popolo komencis forigi la funebron,
 
 
-LA FARAONO
-
-
 precipe inter la soldatoj, metiistoj kaj vilaĝanoj. Inter la simpla popolo la ĝojo eksplodis iafoje en nekonvena formo.
 
-Famoj komencis rondiri, oni ne scias de kie, ke la nova fa-
-
-raono, kiun la popolo jam amis instinkte, volas plibonigi la sorton de la vilaĝanoj, laboristoj, eĉ sklavoj.
+Famoj komencis rondiri, oni ne scias de kie, ke la nova faraono, kiun la popolo jam amis instinkte, volas plibonigi la sorton de la vilaĝanoj, laboristoj, eĉ sklavoj.
 
 Kaj tial (kia skandalo!) okazis, ke la masonistoj, lignaĵistoj kaj potistoj, anstataŭ trinki trankvile kaj paroli pri familiaj aferoj, kuraĝis en drinkejoj ne nur plendi pri la impostoj, sed eĉ indigni kontraŭ la povo de la pastroj. La vilaĝanoj, anstataŭ preĝi dum libera tempo kaj honori la antaŭulojn, parolis unuj al aliaj: kiel bone estus, se ĉiu el ili posedus kelke da bedoj da tero kiel propraĵon kaj povus ripozi ĉiun sepan tagon!
 
-Senutile estus paroli pri la soldatoj, precipe pri la fremd-
-
-landaj regimentoj. Ili imagis, ke ili estas la plej eminenta klaso de Egipto, aŭ se ili ne estas, ili baldaŭ estos, post sukcesa milito, kiu devis eksplodi.
+Senutile estus paroli pri la soldatoj, precipe pri la fremdlandaj regimentoj. Ili imagis, ke ili estas la plej eminenta klaso de Egipto, aŭ se ili ne estas, ili baldaŭ estos, post sukcesa milito, kiu devis eksplodi.
 
 Kontraŭe, la nomar˛oj, nobeloj, kaj precipe la ĉefpastroj
 
@@ -2093,9 +1631,6 @@ kun ili.
 Efektive, en la palaco de la reĝo farigis grandaj ŝanĝoj.
 
 
-LA FARAONO
-
-
 La faraono transportis sian loĝejon en flankan konstruaĵon,
 
 en kiu preskaŭ ĉiujn ĉambrojn okupis generaloj. En la subtera etaĝo li loĝigis grekajn soldatojn, supre gvardiistojn, en la ĉambroj ĉe la muro Etiopianojn. ĉirkaŭ la palaco staris garde Azianoj, kaj apud la ĉambroj de lia sankteco la skadrono, kiu kun Ramzes persekutis Teęnnan en la dezerto.
@@ -2108,9 +1643,7 @@ Sed ĉar la pastroj ne akompanis la faraonon ĉe la matena,
 
 taga kaj vespera manĝo, ilia nutraĵo fariĝis tre simpla.
 
-Vane la sanktaj viroj rememorigis, ke ili devas nutri repre-
-
-zentantojn de deknaŭ dinastioj kaj multe da dioj. La trezoris-to, divenante la intencojn de la faraono, respondis al la pastroj, ke al la dioj kaj antaŭuloj sufiĉos floroj kaj parfumoj, kaj ke la profetoj mem, kiel ordonas la moraleco, devas manĝi
+Vane la sanktaj viroj rememorigis, ke ili devas nutri reprezentantojn de deknaŭ dinastioj kaj multe da dioj. La trezoris-to, divenante la intencojn de la faraono, respondis al la pastroj, ke al la dioj kaj antaŭuloj sufiĉos floroj kaj parfumoj, kaj ke la profetoj mem, kiel ordonas la moraleco, devas manĝi
 
 hordean panon kaj trinki akvon aŭ bieron. Kiel argumentoj
 
@@ -2123,14 +1656,9 @@ prudente ili agos, se ili forlasos la avaran reĝan domon, kaj transloĝiĝos en
 Kaj eble ili senprokraste farus tion, se la plej respektindaj Herhor kaj Mefres ne ordonus al ili resti sur la posteno.
 
 
-LA FARAONO
-
-
 La situacio de Herhor ĉe la nova sinjoro ankaŭ ne povis esti nomata tre feliĉa. La ministro, antaŭ nelonge ĉiopova, kiu iam preskaŭ ne forlasadis la reĝajn ĉambrojn, sidis nun sola en sia palaco kaj ofte dum tutaj dekadoj ne vidis la faraonon. Li estis ankoraŭ la milita ministro, sed li preskau ĉesis doni ordonojn.
 
-ĉiujn militajn aferojn la faraono plenumis mem. Li mem le-
-
-gis la raportojn de la generaloj, mem solvis neklarajn demandojn, kaj liaj adjutantoj prenis el la milita ministrejo la necesajn dokumentojn.
+ĉiujn militajn aferojn la faraono plenumis mem. Li mem legis la raportojn de la generaloj, mem solvis neklarajn demandojn, kaj liaj adjutantoj prenis el la milita ministrejo la necesajn dokumentojn.
 
 Lia ekscelenco Herhor estis vokata al la monar˛o preskaŭ
 
@@ -2153,22 +1681,15 @@ La respektinda reĝino tuj iris al la monar˛o; falinte sur la vizaĝon, ŝi pet
 La faraono aŭskultis kun sulkigita frunto kaj ordonis al la
 
 
-LA FARAONO
-
-
 intendanto ĉesigi la ŝparadon. Sed samtempe li diris al la plej respektinda sinjorino, ke post la enterigo de la patro la virinoj estos forigitaj el la palaco kaj dissenditaj en la bienojn.
 
-—Nia kortego — diris li — kostas ĉirkaŭ tridek mil talen-
-
-tojn jare, tio estas duonon pli multe, ol la tuta armeo. Tian sumon mi ne povas elspezi, ne ruinigante min kaj la ŝtaton.
+—Nia kortego — diris li — kostas ĉirkaŭ tridek mil talentojn jare, tio estas duonon pli multe, ol la tuta armeo. Tian sumon mi ne povas elspezi, ne ruinigante min kaj la ŝtaton.
 
 —Faru, kiel vi volas — respondis la reĝino. — Egipto estas
 
 via. Sed mi timas, ke la dispelitaj korteganoj fariĝos viaj malamikoj.
 
-Aŭdante tion, la sinjoro prenis la patrinon je la mano, kon-
-
-dukis ŝin al la fenestro kaj montris arbaron de lancoj de la soldatoj, kiuj ekzerciĝis en la korto.
+Aŭdante tion, la sinjoro prenis la patrinon je la mano, kondukis ŝin al la fenestro kaj montris arbaron de lancoj de la soldatoj, kiuj ekzerciĝis en la korto.
 
 ĉi tiu ago de la faraono havis neatenditan rezultaton. En la okuloj de la reĝino, kiuj antaŭ unu momento estis plenaj de
 
@@ -2191,9 +1712,6 @@ Post la matenmanĝo la faraono sin okupis pri la militaj kaj
 financaj aferoj, kaj je la tria horo posttagmeze, akompanata de granda sekvantaro, li veturis al la armeo, kies tendaro estis apud Memfiso, kaj rigardis la ekzercojn.
 
 
-LA FARAONO
-
-
 Efektive, la plej grandaj ŝanĝoj fariĝis en la militaj aferoj de la ŝtato.
 
 En la daŭro de kvin monatoj lia sankteco formis du novajn
@@ -2210,9 +1728,7 @@ kaj kolonoj.
 
 Fine, neniu taĉmento havis la rajton loĝi en kamparoj; ĉiu
 
-devis esti en la kazernoj aŭ en la tendaro. ĉiu regimento havis sian placon por la ekzercoj, kie tutan tagon oni uzis ŝton-
-
-ĵetilojn, aŭ arkpafis al ŝildoj, starigitaj en interspaco de cent
+devis esti en la kazernoj aŭ en la tendaro. ĉiu regimento havis sian placon por la ekzercoj, kie tutan tagon oni uzis ŝtonĵetilojn, aŭ arkpafis al ŝildoj, starigitaj en interspaco de cent
 
 ĝis ducent paŝoj.
 
@@ -2222,9 +1738,7 @@ klaso, ke la viroj ekzerciĝu en la ĵetado de ŝtonoj, sub direkto de la oficir
 
 la morto de Ramzes XII, havis aspekton de tendaro.
 
-Eĉ la kamparaj kaj urbaj infanoj, kiuj ĝis nun ludis je skribistoj kaj pastroj, imitante la plenaĝulojn, komencis ludi je soldatoj. Sur ĉiu placo kaj en ĉiu ĝardeno, de la mateno ĝis la 59
-
-LA FARAONO
+Eĉ la kamparaj kaj urbaj infanoj, kiuj ĝis nun ludis je skribistoj kaj pastroj, imitante la plenaĝulojn, komencis ludi je soldatoj. Sur ĉiu placo kaj en ĉiu ĝardeno, de la mateno ĝis la
 
 
 vespero, fajfis ŝtonoj kaj sagoj, kaj la tribunaloj estis superŝu-titaj per plendoj pri korpaj vundoj.
@@ -2237,9 +1751,7 @@ Kreskis la fiero de la faraono kaj li estis kontenta, vidante, kiel la tuta ŝta
 
 Sed venis momento, kiam eĉ li fariĝis malĝoja.
 
-En la sama tago, kiam la enbalzamigistoj elprenis la kor-
-
-pon de Ramzes XII el la soda bano, la granda trezoristo, pre-zentante la kutiman raporton, diris al la faraono:
+En la sama tago, kiam la enbalzamigistoj elprenis la korpon de Ramzes XII el la soda bano, la granda trezoristo, pre-zentante la kutiman raporton, diris al la faraono:
 
 —Mi ne scias, kion fari … Ni havas en la trezorejo du mil
 
@@ -2255,9 +1767,7 @@ la manojn la regadon, vi diris, ke ni havas dudek mil …
 
 —Ni havis grandegajn elspezojn …
 
-—Tio estas vera — respondis la faraono — sed ĉiu tage al-
-
-fluas novaj impostoj …
+—Tio estas vera — respondis la faraono — sed ĉiu tage alfluas novaj impostoj …
 
 —La impostoj — respondis la trezoristo — mi ne scias kial,
 
@@ -2269,14 +1779,9 @@ homoj forlasis siajn okupojn kaj vivas je la konto de la ŝta-to …
 
 La faraono ekmeditis.
 
-—Ni devas — diris li — fari novan prunton. Interkonsen-
-
-tu kun Herhor kaj Mefres, por ke la temploj donu al ni mo-
+—Ni devas — diris li — fari novan prunton. Interkonsentu kun Herhor kaj Mefres, por ke la temploj donu al ni mo-
 
 non.
-
-
-LA FARAONO
 
 
 —Mi parolis pri tio. La temploj donos al ni nenion.
@@ -2285,9 +1790,7 @@ LA FARAONO
 
 okazo ni devas alvoki la idolanojn … Sendu al mi Dagonon.
 
-Antaŭ la subiro de la suno venis la fenicia bankiero. Li fa-
-
-lis sur la vizaĝon antaŭ la sinjoro kaj donacis al li oran poka-lon, inkrustitan per juveloj.
+Antaŭ la subiro de la suno venis la fenicia bankiero. Li falis sur la vizaĝon antaŭ la sinjoro kaj donacis al li oran poka-lon, inkrustitan per juveloj.
 
 —Nun mi jam povas morti!… — ekkriis Dagon — kiam mia
 
@@ -2301,15 +1804,11 @@ La Feniciano rigidiĝis aŭ eble ŝajnigis grandan konfuzon.
 
 —Via sankteco prefere ordonu al mi serĉi perlojn en Nilo
 
-— respondis li — ĉar mi tuj pereos kaj mia sinjoro ne suspektos min pri malbonaj intencoj … Sed trovi tian sumon hodi-
-
-aŭ!…
+— respondis li — ĉar mi tuj pereos kaj mia sinjoro ne suspektos min pri malbonaj intencoj … Sed trovi tian sumon hodiaŭ!…
 
 Ramzes XIII ekmiris.
 
-—Kiel? — demandis li — do Fenicianoj ne havas plu mo-
-
-non?…
+—Kiel? — demandis li — do Fenicianoj ne havas plu monon?…
 
 —Sangon kaj vivon nian kaj de niaj infanoj ni donos al via
 
@@ -2321,11 +1820,7 @@ procentoj jare. Sed de la tempo, kiam via sankteco, ankoraŭ
 
 kiel kronprinco, estis en la templo de Hator, tie apud Pi-Bast, la pastroj tute rifuzis al ni krediton … Se ili povus, ili hodiaŭ elpelus nin el Egipto, kaj ankoraŭ pli volonte ekstermus …
 
-Ah, kion ni suferas dank’al ili … La kamparanoj laboras, kiel ili volas kaj kiam ili volas, kaj kiel imposton ili donas, kio falas de ilia buŝo … Se oni batas iun, li ribelas, kaj kiam malfeli-
-
-ĉa Feniciano sin turnas al la tribunalo, aŭ li perdas, aŭ devas 61
-
-LA FARAONO
+Ah, kion ni suferas dank’al ili … La kamparanoj laboras, kiel ili volas kaj kiam ili volas, kaj kiel imposton ili donas, kio falas de ilia buŝo … Se oni batas iun, li ribelas, kaj kiam malfeliĉa Feniciano sin turnas al la tribunalo, aŭ li perdas, aŭ devas
 
 
 terure pagi … Niaj horoj sur ĉi tiu tero estas kalkulitaj!… —
@@ -2348,26 +1843,17 @@ Eble nur la pastroj, kiuj taksos niajn riĉaĵojn je ridinda prezo kaj ne pagos 
 
 ĉi tiuj urboj ja povus prunti al ni ne nur kvin, sed eĉ cent mil talentojn …
 
-—Tiro, Sidono!… — ripetis Dagon. — Hodiaŭ la tuta Feni-
+—Tiro, Sidono!… — ripetis Dagon. — Hodiaŭ la tuta Fenicio kolektas la oron kaj juvelojn, por page liberigi sin de Asirianoj … En nia lando jam vagas senditoj de la reĝo Assar kaj diras, ke se nur ĉiujare ni pagos malavare, la reĝo kaj satrapoj ne nur ne premegos nin, sed eĉ liveros al ni pli grandajn gajnojn, ol tiuj, kiujn ni havas nun dank’al la favoro de via sankteco kaj Egipto …
 
-cio kolektas la oron kaj juvelojn, por page liberigi sin de Asirianoj … En nia lando jam vagas senditoj de la reĝo Assar kaj diras, ke se nur ĉiujare ni pagos malavare, la reĝo kaj satrapoj ne nur ne premegos nin, sed eĉ liveros al ni pli grandajn gajnojn, ol tiuj, kiujn ni havas nun dank’al la favoro de via sankteco kaj Egipto …
-
-La monar˛o paliĝis kaj kunpremis la dentojn. La Fenicia-
-
-no rimarkis tion kaj rapide aldonis:
+La monar˛o paliĝis kaj kunpremis la dentojn. La Feniciano rimarkis tion kaj rapide aldonis:
 
 —Fine, por kio mi konsumas la tempon de via sankteco per
 
-mia malsaĝa babilado?… Estas ĉi tie, en Memfiso, princo Hi-
-
-ram … Li povas pli bone klarigi ĉion al mia sinjoro, ĉar li estas saĝulo kaj membro de la plej alta konsilantaro de niaj urboj …
+mia malsaĝa babilado?… Estas ĉi tie, en Memfiso, princo Hiram … Li povas pli bone klarigi ĉion al mia sinjoro, ĉar li estas saĝulo kaj membro de la plej alta konsilantaro de niaj urboj …
 
 Ramzes viviĝis.
 
 —Donu ĉi tien plej rapide Hiramon, — respondis li. — ĉar
-
-
-LA FARAONO
 
 
 vi, Dagon, parolas kun mi ne kiel bankiero, sed kiel funebra ploristino.
@@ -2376,9 +1862,7 @@ La Feniciano ankoraŭ unu fojon ekfrapis la plankon per la
 
 frunto kaj demandis:
 
-—ĉu la respektinda Hiram ne povus tuj veni ĉi tien?… Ve-
-
-re, estas jam malfrue … Sed li tiel timas la pastrojn, ke li preferus nokte prezenti sian respektegon al via sankteco …
+—ĉu la respektinda Hiram ne povus tuj veni ĉi tien?… Vere, estas jam malfrue … Sed li tiel timas la pastrojn, ke li preferus nokte prezenti sian respektegon al via sankteco …
 
 La faraono ekmordis la lipojn, sed konsentis. Li eĉ sendis
 
@@ -2387,10 +1871,7 @@ kun la bankiero Tutmozison, por ke tiu konduku Hiramon en
 la palacon tra sekretaj eniroj.
 
 
-LA FARAONO
-
-
-ĉAPITRO SESA
+ĈAPITRO SESA
 
 ĉirkaŭ la deka vespere venis Hiram, en nigra vesto de
 
@@ -2406,9 +1887,7 @@ domo de pestuloj?.
 
 momento, kiam vi fariĝis la sinjoro de Egipto, krimuloj estas tiuj, kiuj kuraĝas vidi vin kaj ne komunikas tion, pri kio vi bonvolis paroli …
 
-—Al kiu vi devas ripeti miajn vortojn?… — demandis la sin-
-
-joro.
+—Al kiu vi devas ripeti miajn vortojn?… — demandis la sinjoro.
 
 Hiram levis la okulojn kaj manojn supren.
 
@@ -2426,19 +1905,11 @@ Komforte sidiĝinte kaj ripozinte, Hiram diris:
 
 grandajn trezorojn?…
 
-—Mi scias, kiam mi prenos Ninivon — interrompis la fa-
-
-
-LA FARAONO
-
-
-raono. — Malproksimaj tempoj, kaj la monon mi bezonas
+—Mi scias, kiam mi prenos Ninivon — interrompis la faraono. — Malproksimaj tempoj, kaj la monon mi bezonas
 
 hodiaŭ …
 
-—Mi ne parolas pri la milito — respondis Hiram. —Mi pa-
-
-rolas pri afero, kiu tuj donos al la trezorejo grandan sumon kaj konstantan jaran profiton …
+—Mi ne parolas pri la milito — respondis Hiram. —Mi parolas pri afero, kiu tuj donos al la trezorejo grandan sumon kaj konstantan jaran profiton …
 
 —Kiamaniere?
 
@@ -2446,31 +1917,23 @@ rolas pri afero, kiu tuj donos al la trezorejo grandan sumon kaj konstantan jara
 
 kunigi Mediteraneon kun Ruĝa maro …
 
-—Vi ŝercas, maljuna homo … — ekkriis li. — Kiu povus ple-
-
-numi tian laboron kaj kia danĝero por Egipto?… La maro ja
+—Vi ŝercas, maljuna homo … — ekkriis li. — Kiu povus plenumi tian laboron kaj kia danĝero por Egipto?… La maro ja
 
 superverŝus nin …
 
 —Kiu maro?… ĉar sendube nek Ruĝa, nek Mediteranea —
 
-respondis trankvile Hiram. — Mi scias, ke egiptaj pastroj in-
-
-ĝenieroj esploris la aferon kaj elkalkulis, ke tio estas tre bona afero, la plej bona en la mondo … Sed … ili mem preferas ĝin fari, aŭ pli ĝuste ili ne volas, ke ĝin faru la faraono.
+respondis trankvile Hiram. — Mi scias, ke egiptaj pastroj inĝenieroj esploris la aferon kaj elkalkulis, ke tio estas tre bona afero, la plej bona en la mondo … Sed … ili mem preferas ĝin fari, aŭ pli ĝuste ili ne volas, ke ĝin faru la faraono.
 
 —Kiajn pruvojn vi havas? — demandis Ramzes.
 
-—Mi ne havas pruvojn, sed mi sendos al via sankteco pas-
-
-tron, kiu klarigas al vi la tutan aferon per planoj kaj kalkuloj …
+—Mi ne havas pruvojn, sed mi sendos al via sankteco pastron, kiu klarigas al vi la tutan aferon per planoj kaj kalkuloj …
 
 —Kiu li estas?…
 
 Hiram konsideris momenton kaj diris:
 
-—ĉu mi havas la promeson de via sankteco, ke neniu sci-
-
-os pri tio, ekster ni?… Li faros al vi pli grandajn servojn, sinjoro, ol mi mem … Li konas multe da sekretoj kaj multe da …
+—ĉu mi havas la promeson de via sankteco, ke neniu scios pri tio, ekster ni?… Li faros al vi pli grandajn servojn, sinjoro, ol mi mem … Li konas multe da sekretoj kaj multe da …
 
 friponaĵoj de la pastroj …
 
@@ -2480,12 +1943,7 @@ friponaĵoj de la pastroj …
 
 li bezonas multe da mono kaj estas tre ambicia … Kaj ĉar la
 
-ĉefpastroj humiligas lin, li diris al mi, ke se via sankteco de-65
-
-LA FARAONO
-
-
-ziros, li faligos la pastraron … Li konas multe da sekretoj …
+ĉefpastroj humiligas lin, li diris al mi, ke se via sankteco deziros, li faligos la pastraron … Li konas multe da sekretoj …
 
 Tre multe!…
 
@@ -2495,9 +1953,7 @@ estas granda perfidulo, sed li taksis ankaŭ, kiel grandajn servojn li povas far
 
 —Bone — diris la faraono — mi pripensos pri Samentu. Kaj
 
-nun ni supozu unu momenton, ke oni povas konstrui tiun ka-
-
-nalon: kian utilon mi havos de ĝi?
+nun ni supozu unu momenton, ke oni povas konstrui tiun kanalon: kian utilon mi havos de ĝi?
 
 Hiram levis la maldekstran manon kaj komencis kalkuli
 
@@ -2507,9 +1963,7 @@ sur ĝiaj fingroj:
 
 mil talentojn da tributoj, kiujn ĝi ŝuldas al vi … Due, Fenicio pagos al via sankteco por la rajto plenumi la laborojn … Trie, kiam komenciĝos la laboroj, ni pagos jare mil talentojn da
 
-imposto kaj krom tio tiom da talentoj, kiom da dekoj da la-
-
-boristoj liveros al ni Egipto. Kvare, por ĉiu egipta inĝeniero ni donos al via sankteco unu talenton jare … Kvine, kiam la laboroj estos finitaj, via sankteco ludonos al ni la kanalon por cent jaroj, kaj ni pagos por tio mil talentojn jare. ĉu tio estas malgrandaj profitoj? — demandis Hiram.
+imposto kaj krom tio tiom da talentoj, kiom da dekoj da laboristoj liveros al ni Egipto. Kvare, por ĉiu egipta inĝeniero ni donos al via sankteco unu talenton jare … Kvine, kiam la laboroj estos finitaj, via sankteco ludonos al ni la kanalon por cent jaroj, kaj ni pagos por tio mil talentojn jare. ĉu tio estas malgrandaj profitoj? — demandis Hiram.
 
 —Kaj nun, kaj hodiaŭ — diris la faraono, — ĉu vi donus al
 
@@ -2522,9 +1976,6 @@ ni aldonos tri mil, por pagi antaŭe imposton por tri jaroj …
 Ramzes ekmeditis. Pli ol unu fojon Fenicianoj proponis al
 
 la egiptaj monar˛oj la konstruon de ĉi tiu kanalo, sed ĉiam ili renkontis neflekseblan kontraŭstaron de la pastroj. La egiptaj saĝuloj klarigis al la faraonoj, ke la kanalo kaŭzos subakvigon de Egipto per la ondoj de Mediteraneo kaj Ruĝa Maro. Sed
-
-
-LA FARAONO
 
 
 aliflanke Hiram certigis, ke tio ne okazos kaj ke la pastroj scias pri tio!…
@@ -2551,20 +2002,11 @@ energion kaj noblecon, vi do estas nia … Al vi sola el la teraj monar˛oj oni 
 
 La faraono eksentis en la koro dolĉon de la fiero, sed li ekregis sin.
 
-—Ne laŭdu min — diris li — pro tio, kion mi ankoraŭ ne fa-
+—Ne laŭdu min — diris li — pro tio, kion mi ankoraŭ ne faris; sed diru al mi, kiajn profitojn alportos la kanalo al Fenicio kaj al mia regno?
 
-ris; sed diru al mi, kiajn profitojn alportos la kanalo al Fenicio kaj al mia regno?
+Hiram sidiĝis pli komforte en la apogseĝo kaj komencis paroli per mallaŭta voĉo:
 
-Hiram sidiĝis pli komforte en la apogseĝo kaj komencis pa-
-
-roli per mallaŭta voĉo:
-
-—Sciu, nia sinjoro, ke oriente, sude kaj norde de Asirio kaj Babilono estas neniuj dezertoj, nek marĉoj, loĝataj de monstroj, sed grandegaj … grandegaj landoj kaj regnoj … landoj tiel grandegaj, ke la piedistaro de via sankteco, fama per siaj mar-67
-
-LA FARAONO
-
-
-ŝoj, devus iri preskaŭ du jarojn senhalte al la oriento, por atingi iliajn limojn …
+—Sciu, nia sinjoro, ke oriente, sude kaj norde de Asirio kaj Babilono estas neniuj dezertoj, nek marĉoj, loĝataj de monstroj, sed grandegaj … grandegaj landoj kaj regnoj … landoj tiel grandegaj, ke la piedistaro de via sankteco, fama per siaj marŝoj, devus iri preskaŭ du jarojn senhalte al la oriento, por atingi iliajn limojn …
 
 Ramzes levis supren la brovojn, kiel homo, kiu permesas
 
@@ -2574,9 +2016,7 @@ Hiram iom levis la ŝultrojn kaj daŭrigis:
 
 —Oriente kaj sude de Babilono, sur la bordo de granda
 
-maro loĝas preskaŭ cent milionoj da homoj, kiuj havas po-
-
-tencajn reĝojn, pastrojn pli saĝajn ol la egiptaj, antikvajn librojn, lertajn metiistojn … ĉi tiuj popoloj ne nur scias fabriki teksaĵojn, meblojn kaj vazojn, same belajn, kiel Egiptanoj, sed de nememoreblaj tempoj havas subterajn kaj surterajn
+maro loĝas preskaŭ cent milionoj da homoj, kiuj havas potencajn reĝojn, pastrojn pli saĝajn ol la egiptaj, antikvajn librojn, lertajn metiistojn … ĉi tiuj popoloj ne nur scias fabriki teksaĵojn, meblojn kaj vazojn, same belajn, kiel Egiptanoj, sed de nememoreblaj tempoj havas subterajn kaj surterajn
 
 templojn, pli grandajn, pli belajn kaj pli riĉajn, ol la egiptaj …
 
@@ -2590,9 +2030,7 @@ vizaĝo oni ne povis legi, ĉu lin interesas la priskribo, aŭ ĉu in-dignigas l
 
 de tiaj teksaĵoj, arboj kaj bronzaĵoj … Mi sendos ankaŭ du
 
-grajnojn de tieaj miraklaj balzamoj; al homo, kiu englutis ilin, malfermiĝas la pordegoj de la eterneco kaj li povas ĝui la feli-
-
-ĉon, kiu apartenas nur al la dioj.
+grajnojn de tieaj miraklaj balzamoj; al homo, kiu englutis ilin, malfermiĝas la pordegoj de la eterneco kaj li povas ĝui la feliĉon, kiu apartenas nur al la dioj.
 
 —Sendu, mi tre petas vin, la specimenojn — interrompis la
 
@@ -2601,16 +2039,11 @@ faraono. — Kaj la balzamoj … lasu ilin!… Ni sufiĉe ĝuos la
 eternecon kaj diojn post la morto …
 
 
-LA FARAONO
-
-
 —Kaj malproksime, tre malproksime, oriente de Asirio —
 
 daŭrigis Hiram — sin etendas ankoraŭ pli grandaj landoj, kiuj havas ducent milionojn da loĝantoj …
 
-—Kiel facilaj estas por vi la milionoj!… — ekridetis la sin-
-
-joro.
+—Kiel facilaj estas por vi la milionoj!… — ekridetis la sinjoro.
 
 Hiram metis la manon sur la koro.
 
@@ -2633,9 +2066,6 @@ havas grenon, pli fruktoportan ol la egipta tritiko, kaj faras el
 ĝi trinkaĵon, pli fortan ol la vino. Ili posedas ankaŭ kreskaĵon, kies folioj donas forton al la membroj, gajecon al la spirito kaj eĉ permesas vivi sen dormo. Ili havas paperon, kiun ili scias ornami per diverskoloraj pentraĵoj, kaj argilon, kiu bruligita brilas kiel vitro kaj sonoras kiel metalo … Morgaŭ, ĉar via
 
 sankteco permesis, mi sendos la specimenojn …
-
-
-LA FARAONO
 
 
 —Mirindaĵon vi rakontas, Hiram!… — Sed kian rilaton tio
@@ -2662,39 +2092,28 @@ la rajto plenumi la laborojn, kaj kvin mil por la laboristoj, kiujn ni mem pagos
 
 —Kaj kiujn vi morte turmentos per la laboro?…
 
-—Gardu nin la dioj!… — ekkriis Hiram. — Tio ne estas bo-
-
-na afero, se pereas laboristoj … La soldatoj de via sankteco ne laboros pli multe ĉe la kanalo, ol hodiaŭ ĉe la fortikaĵoj kaj ŝoseoj … kaj kia gloro por vi, estro!… kiaj enspezoj por la trezorejo!… Kia utilo por Egipto!… La plej malriĉa kamparano
+—Gardu nin la dioj!… — ekkriis Hiram. — Tio ne estas bona afero, se pereas laboristoj … La soldatoj de via sankteco ne laboros pli multe ĉe la kanalo, ol hodiaŭ ĉe la fortikaĵoj kaj ŝoseoj … kaj kia gloro por vi, estro!… kiaj enspezoj por la trezorejo!… Kia utilo por Egipto!… La plej malriĉa kamparano
 
 povos havi lignan kabaneton, kelkon da brutoj, meblojn, eble eĉ sklavon … Neniu faraono levis la ŝtaton tiel alten kaj plenumis tiel grandegan aferon! ĉar kio estos la senvivaj kaj sen-utilaj piramidoj kompare kun la kanalo, kiu faciligos la trans-portadon de la trezoroj de la tuta mondo?…
-
-
-LA FARAONO
 
 
 —Jes — aldonis la faraono — kaj kvindek mil soldatoj ĉe la
 
 orienta limo …
 
-—Kompreneble!… — ekkriis Hiram. — Vidante tiajn for-
-
-tojn, kiuj kostos nenion al via sankteco, Asirio ne kuraĝos
+—Kompreneble!… — ekkriis Hiram. — Vidante tiajn fortojn, kiuj kostos nenion al via sankteco, Asirio ne kuraĝos
 
 etendi la manon kontraŭ Fenicio …
 
 La plano estis brila kaj promesis tiajn profitojn, ke Ramzes sentis kapturnon. Sed tuj li ekregis sin.
 
-—Hiram — diris li — belajn promesojn vi faras … Tiel be-
-
-lajn, ke mi timas, ĉu post ili vi ne kaŝas malpli sukcesajn rezultatojn. Kaj tial mi devas bone pripensi kaj demandi kon-
+—Hiram — diris li — belajn promesojn vi faras … Tiel belajn, ke mi timas, ĉu post ili vi ne kaŝas malpli sukcesajn rezultatojn. Kaj tial mi devas bone pripensi kaj demandi kon-
 
 silon de la pastroj.
 
 —Memvole ili neniam konsentos!… — ekkriis la Feniciano.
 
-— Tamen … (la dioj pardonu al mi blasfemon), mi estas cer-
-
-ta, ke se la plej alta ŝtata povo transiris hodiaŭ en la manojn de la pastroj, post kelke da monatoj ili alvokus nin por ĉi tiu konstruo …
+— Tamen … (la dioj pardonu al mi blasfemon), mi estas certa, ke se la plej alta ŝtata povo transiris hodiaŭ en la manojn de la pastroj, post kelke da monatoj ili alvokus nin por ĉi tiu konstruo …
 
 Ramzes ekrigardis lin kun malvarma malestimo.
 
@@ -2714,13 +2133,7 @@ landoj.
 
 La sinjoro trovis en ĝi statuetojn de dioj, indiajn teksaĵojn kaj ringojn, malgrandajn pecojn da opio, kaj en dua fako
 
-plenmanon da rizo, teajn foliojn, porcelanajn kalikojn orna-
-
-
-LA FARAONO
-
-
-mitajn per pentraĵoj kaj dekkelkon da desegnaĵoj, faritaj sur papero per kolorigiloj kaj ˛ina .
+plenmanon da rizo, teajn foliojn, porcelanajn kalikojn ornamitajn per pentraĵoj kaj dekkelkon da desegnaĵoj, faritaj sur papero per kolorigiloj kaj ˛ina .
 
 Li rigardis ĉion plej atente kaj konfesis, ke tiajn objektojn li vidis neniam: nek rizon, nek paperon, nek bildojn de homoj, kun pintaj ĉapoj kaj oblikvaj okuloj.
 
@@ -2740,9 +2153,7 @@ Pensante tiel, la sinjoro levis la okulojn kaj rimarkis Dagonon, kiu atendis ord
 
 … ne tion mi volis de vi.
 
-La Feniciano proksimiĝis senbrue, ekgenuis antaŭ la farao-
-
-no kaj murmuretis:
+La Feniciano proksimiĝis senbrue, ekgenuis antaŭ la faraono kaj murmuretis:
 
 —Se via sankteco bonvolos subskribi la kontrakton kun la
 
@@ -2755,9 +2166,6 @@ Ramzes sulkigis la brovojn. Ne plaĉis al li la konduto de Fenicianoj, kiuj kura
 foriri, Dagon.
 
 
-LA FARAONO
-
-
 Post la foriro de la Feniciano, Ramzes ree meditis.
 
 Reakcio komencis vekiĝi en lia animo.
@@ -2768,13 +2176,9 @@ kiel unu el la siaj … Ili eĉ kuraĝas montri al mi de malproksime sakon da or
 
 Malsaĝaj feniciaj ratoj, kiuj ŝtelveninte en la reĝan palacon, opinias ĝin sia porka stalo!…”
 
-Ju pli longe li pensis, ju pli detale li rememoris la kondu-
+Ju pli longe li pensis, ju pli detale li rememoris la konduton de Hiram kaj Dagon, des pli forta kolero ekregis lin.
 
-ton de Hiram kaj Dagon, des pli forta kolero ekregis lin.
-
-”Kiel ili kuraĝas … kiel ili kuraĝas proponi al mi kondi-
-
-ĉojn …”
+”Kiel ili kuraĝas … kiel ili kuraĝas proponi al mi kondiĉojn …”
 
 —Tutmozis, ĉi tien!… — ekkriis li.
 
@@ -2782,39 +2186,26 @@ La favorato tuj aperis.
 
 —Kion vi ordonas, mia sinjoro?
 
-—Sendu malsuperan oficiron al Dagon kun sciigo, ke li ĉe-
-
-sas esti mia bankiero. Li estas tro malsaĝa por tiel alta posteno …
+—Sendu malsuperan oficiron al Dagon kun sciigo, ke li ĉesas esti mia bankiero. Li estas tro malsaĝa por tiel alta posteno …
 
 —Por kiu via sankteco destinas ĉi tiun honoron?
 
 —En la nuna momento mi ne scias … Oni devos trovi iun
 
-inter la egiptaj aŭ grekaj komercistoj … En la ekstrema oka-
+inter la egiptaj aŭ grekaj komercistoj … En la ekstrema okazo ni nin turnos al … la pastroj.
 
-zo ni nin turnos al … la pastroj.
-
-La novaĵo trakuris ĉiujn reĝajn palacojn kaj ne pasis ankor-
-
-aŭ unu horo, kiam ĝi jam atingis Memfison. En la tuta urbo
+La novaĵo trakuris ĉiujn reĝajn palacojn kaj ne pasis ankoraŭ unu horo, kiam ĝi jam atingis Memfison. En la tuta urbo
 
 oni rakontis, ke Fenicianoj falis en malfavoron de la faraono, kaj ĉe la vespero la popolo jam komencis rompi butikojn de
 
 la malamataj fremduloj.
 
 
-LA FARAONO
-
-
 La pastroj ekspiris libere. Herhor eĉ faris viziton al la sankta Mefres kaj diris al li:
 
-—Mia koro sentis, ke la sinjoro sin deturnos de tiuj ĉi ido-
+—Mia koro sentis, ke la sinjoro sin deturnos de tiuj ĉi idolanoj, kiuj trinkas sangon de la popolo. Mi pensas, ke oni devas montri al li nian dankemon …
 
-lanoj, kiuj trinkas sangon de la popolo. Mi pensas, ke oni devas montri al li nian dankemon …
-
-—Kaj eble malfermi la pordojn de niaj trezoroj?… — de-
-
-mandis seke la sankta Mefres. — Ne rapidu, via ekscelenco …
+—Kaj eble malfermi la pordojn de niaj trezoroj?… — demandis seke la sankta Mefres. — Ne rapidu, via ekscelenco …
 
 Mi jam deĉifris ĉi tiun junulon, kaj ve al ni, se ni permesos al li komandi nin.
 
@@ -2828,29 +2219,21 @@ Mefres.
 
 nun estas momento por reakiri la favoron de la juna faraono.
 
-Flamema en la kolero, li scias tamen esti dankema … mi sper-
+Flamema en la kolero, li scias tamen esti dankema … mi spertis tion …
 
-tis tion …
-
-—Kiom da vortoj, tiom da eraroj!… — interrompis la ven-
-
-ĝema Mefres. — Unue, ĉi tiu princo ne estas ankoraŭ farao-
+—Kiom da vortoj, tiom da eraroj!… — interrompis la venĝema Mefres. — Unue, ĉi tiu princo ne estas ankoraŭ farao-
 
 no, ĉar li ne estis kronita en la templo … Due, li neniam estos vera faraono, ĉar li malrespektas la ĉefpastrajn benojn …
 
 Fine, ni ne bezonas lian favoron, sed li la favoron de la dioj, kiujn li ofendas ĉiutage!…
 
-Mefres, spiregante de kolero, ripozis momenton kaj daŭri-
-
-gis:
+Mefres, spiregante de kolero, ripozis momenton kaj daŭrigis:
 
 —Li estis unu monaton en la templo de Hator, aŭskultis la
 
 plej altan saĝon, kaj tuj poste li komencis la rilatojn kun la Fenicianoj. Li eĉ vizitadis la templon de Astarte kaj prenis de tie pastrinon, kio ofendas la principojn de ĉiuj religioj … Poste li publike mokis mian piecon kaj konspiris kun homoj, same
 
-senkonsideraj, kiel li mem, kaj per Fenicianoj ŝtelis la ŝtatajn 74
-
-LA FARAONO
+senkonsideraj, kiel li mem, kaj per Fenicianoj ŝtelis la ŝtatajn
 
 
 sekretojn … Kaj kiam li suriris la tronon … mi eraras, kiam li suriris la unuan ŝtupon de la trono, li montras sian abomenon al la pastroj, ribeligas la kamparanojn kaj soldatojn kaj rekomencas rilatojn kun siaj amikoj Fenicianoj … ĉu vi forgesis, nobla Herhor, pri ĉio ĉi?… Kaj se vi memoras, ĉu vi
@@ -2881,33 +2264,22 @@ Subite li fariĝis serioza kaj sin klinante, diris per ironia tono:
 
 —Tio estas la afero de via ekscelenco … Homo, kiu kiel vi
 
-tiel longe administris la ŝtaton, devis sin prepari al tiu dan-
-
-ĝero.
+tiel longe administris la ŝtaton, devis sin prepari al tiu danĝero.
 
 —Ni supozu — parolis malrapide Herhor — ni supozu, ke
 
-mi trovus rimedon kontraŭ la danĝeroj, kiuj minacas la ŝta-
-
-ton. Sed ĉu via ekscelenco, kiu estas la plej alta ĉefpastro, ĉu vi povus antaŭgardi de ofendo la templojn kaj pastraron?…
-
-
-LA FARAONO
+mi trovus rimedon kontraŭ la danĝeroj, kiuj minacas la ŝtaton. Sed ĉu via ekscelenco, kiu estas la plej alta ĉefpastro, ĉu vi povus antaŭgardi de ofendo la templojn kaj pastraron?…
 
 
 Momenton ili rigardis unu la alian.
 
-—Vi demandas, ĉu mi povos? — diris Mefres. — ĉu mi po-
-
-vos?… Kia demando!… La dioj metis en mian manon tondron,
+—Vi demandas, ĉu mi povos? — diris Mefres. — ĉu mi povos?… Kia demando!… La dioj metis en mian manon tondron,
 
 kiu detruos ĉiun malpiulon.
 
 —Pst!… — murmuretis Herhor. — Estu tiel …
 
-—Kun la konsento, aŭ sen la konsento de la plej alta kole-
-
-gio — aldonis Mefres. — Kiam la ŝipo renversiĝas, oni ne ha-
+—Kun la konsento, aŭ sen la konsento de la plej alta kolegio — aldonis Mefres. — Kiam la ŝipo renversiĝas, oni ne ha-
 
 vas tempon diskuti pri la remistoj.
 
@@ -2917,9 +2289,7 @@ Ili venis en la ordonita horo, ĉiu aparte. Ambaŭ sin klinis
 
 profunde antaŭ la sinjoro kaj ĉiu stariĝis en alia angulo, ne rigardante la kunulon.
 
-”ĉu ili malpaciĝis?… — pensis Ramzes. — Tio ne estus mal-
-
-feliĉo.”
+”ĉu ili malpaciĝis?… — pensis Ramzes. — Tio ne estus malfeliĉo.”
 
 Post momento eniris la sankta Sem kaj profeto Pentuer.
 
@@ -2939,12 +2309,7 @@ por pligrandigi la defendajn fortojn de la ŝtato. Mi fondis du novajn oficirajn
 
 —Pri aliaj militaj plibonigoj mi ne parolas, ĉar vin, homojn sanktajn, tiaj aferoj ne interesas …
 
-—Vi estas prava, sinjoro — diris samtempe Mefres kaj Her-
-
-hor.
-
-
-LA FARAONO
+—Vi estas prava, sinjoro — diris samtempe Mefres kaj Herhor.
 
 
 —Sed restas alia afero — daŭrigis la faraono, kontenta de
@@ -2984,20 +2349,13 @@ Sem.
 
 —Vi diras la veron — daŭrigis la faraono — malprave mi
 
-suspektis vin … Sed mi volas tion rebonigi, mi do estos sin-
-
-cera kun vi …
+suspektis vin … Sed mi volas tion rebonigi, mi do estos sincera kun vi …
 
 —Benu vian sanktecon la dioj!… — diris Herhor.
 
 —Mi do estos sincera. Mia dia patro, pro la aĝo, malsano,
 
-eble ankaŭ pro la pastraj okupoj, ne povis dediĉi tiom da for-77
-
-LA FARAONO
-
-
-toj kaj tempo al la ŝtataj aferoj, kiom mi povas. Mi estas juna, forta, libera, mi volas regi kaj mi regos mem. Kiel ĉefo devas konduki la armeon je sia propra respondeco kaj laŭ sia propra plano, tiel mi administros la ŝtaton. Jen estas mia klara volo, kiun mi ne forlasos. Sed mi komprenas, ke eĉ se mi estus plej sperta, mi ne povus regi sen fidelaj servistoj kaj saĝaj konsilistoj Kaj tial iafoje mi demandos pri via opinio en diversaj aferoj …
+eble ankaŭ pro la pastraj okupoj, ne povis dediĉi tiom da fortoj kaj tempo al la ŝtataj aferoj, kiom mi povas. Mi estas juna, forta, libera, mi volas regi kaj mi regos mem. Kiel ĉefo devas konduki la armeon je sia propra respondeco kaj laŭ sia propra plano, tiel mi administros la ŝtaton. Jen estas mia klara volo, kiun mi ne forlasos. Sed mi komprenas, ke eĉ se mi estus plej sperta, mi ne povus regi sen fidelaj servistoj kaj saĝaj konsilistoj Kaj tial iafoje mi demandos pri via opinio en diversaj aferoj …
 
 —Por tio ni ja estas la plej alta konsilantaro ĉe la trono de via sankteco — intermetis Herhor.
 
@@ -3009,21 +2367,13 @@ eĉ de la nuna momento, tuj …
 
 —Mi volas plibonigi la sorton de la egipta popolo. Sed ĉar
 
-en tiaj aferoj tro rapida agado povas esti malutila, por ko-
+en tiaj aferoj tro rapida agado povas esti malutila, por komenci mi donacos al ili bagatelon: post ses tagoj de laboro sepan tagon de ripozo.
 
-menci mi donacos al ili bagatelon: post ses tagoj de laboro sepan tagon de ripozo.
+—Tiel estis dum la regado de la dek ok dinastioj … Tio estas leĝo tiel malnova, kiel Egipto — diris Pentuer.
 
-—Tiel estis dum la regado de la dek ok dinastioj … Tio es-
+—La ripozo ĉiun sepan tagon donos al ĉiu laboristo kvindek tagojn jare, tio estas, forprenos de lia sinjoro kvindek dra˛mojn. Kaj je unu miliono da laboristoj la ŝtato perdos
 
-tas leĝo tiel malnova, kiel Egipto — diris Pentuer.
-
-—La ripozo ĉiun sepan tagon donos al ĉiu laboristo kvin-
-
-dek tagojn jare, tio estas, forprenos de lia sinjoro kvindek dra˛mojn. Kaj je unu miliono da laboristoj la ŝtato perdos
-
-ĉirkaŭ dek mil talentojn jare … — diris Mefres. — Ni jam fa-
-
-ris la kalkulon en la temploj!… — aldonis li.
+ĉirkaŭ dek mil talentojn jare … — diris Mefres. — Ni jam faris la kalkulon en la temploj!… — aldonis li.
 
 —Jes — vive respondis Pentuer — estos malprofito, nur en
 
@@ -3036,18 +2386,11 @@ okazo oni devas havi dek mil talentojn por la unua jaro. Mi
 pensas, ke eĉ dudek mil talentoj ne estus tro multe …
 
 
-LA FARAONO
-
-
-—Vi estas prava, respektinda Mefres — respondis la fara-
-
-ono. — Por la ŝanĝoj, kiujn mi volas enkonduki en mian reg-
+—Vi estas prava, respektinda Mefres — respondis la faraono. — Por la ŝanĝoj, kiujn mi volas enkonduki en mian reg-
 
 non, dudek, eĉ tridek mil talentoj ne estos tro granda sumo.
 
-Jen kial — rapide aldonis li — mi bezonos vian helpon, sank-
-
-taj viroj …
+Jen kial — rapide aldonis li — mi bezonos vian helpon, sanktaj viroj …
 
 —ĉiun intencon de via sankteco ni estas pretaj subteni per
 
@@ -3071,9 +2414,7 @@ eĉ diveni, kie ni povus preni tridek mil talentojn?…
 
 —Kaj la trezorejo de Labirinto?…
 
-—Tio estas diaj trezoroj, kiujn oni povus tuŝi nur en la mo-
-
-mento de plej granda bezono de la ŝtato — respondis Mefres.
+—Tio estas diaj trezoroj, kiujn oni povus tuŝi nur en la momento de plej granda bezono de la ŝtato — respondis Mefres.
 
 Ramzes ekbolis de kolero.
 
@@ -3094,12 +2435,7 @@ Fenicianojn el la lando …
 ŝajnis, ke la sinjoro sin ĵetos sur la trokuraĝan ĉefpastron: li paliĝis, liaj lipoj tremis kaj la okuloj eliris el la kavoj. Sed tuj li diris per mirige trankvila tono:
 
 
-LA FARAONO
-
-
-—Sufiĉe … Se nur tiajn konsilojn vi scias doni al mi, mi vi-
-
-vos sen ili … Fenicianoj ja havas niajn subskribojn, ke ni fidele pagos al ili la ŝuldojn!… ĉu vi forgesis pri tio, Mefres?…
+—Sufiĉe … Se nur tiajn konsilojn vi scias doni al mi, mi vivos sen ili … Fenicianoj ja havas niajn subskribojn, ke ni fidele pagos al ili la ŝuldojn!… ĉu vi forgesis pri tio, Mefres?…
 
 —Via sankteco pardonu al mi, sed en la nuna momento
 
@@ -3121,9 +2457,7 @@ de ĝentileco ĉiumomente elglitis ilia fiero kaj malŝato al li …
 
 Li bezonas monon, kaj ili promesas al li preĝojn, ili eĉ kuraĝas paroli, ke li ne estas la sola estro de Egipto.
 
-La juna sinjoro senvole ekridetis; li rememoris la dungatajn 80
-
-LA FARAONO
+La juna sinjoro senvole ekridetis; li rememoris la dungatajn
 
 
 paŝtistojn, kiuj diras al la posedanto de la brutaro, ke li ne havas rajton fari kun ĝi, kion li volas!…
@@ -3150,18 +2484,13 @@ La lernantoj kaj instruistoj ĝis larmoj ridis la aventurojn, sed la juna princo
 
 celis grandajn aferojn, kaj falis kovrita de mokoj.
 
-ĉi tiu sceno kaj la tiamaj sentoj reviviĝis hodiaŭ en la me-
-
-moro de la faraono.
+ĉi tiu sceno kaj la tiamaj sentoj reviviĝis hodiaŭ en la memoro de la faraono.
 
 —Ili volas fari min tia!… — diris li al si mem.
 
 Malespero ekregis lin, ĉar li sentis, ke kun la lasta elspezita talento finiĝos lia povo kaj kun ĝi ankaŭ la vivo.
 
 Subite fariĝis en li ŝango. La sinjoro haltis en la mezo de la ĉambro kaj meditis:
-
-
-LA FARAONO
 
 
 ”Kio povas okazi al mi?… Nur la morto … Mi foriros al miaj
@@ -3172,9 +2501,7 @@ diri, ke mi pereis, ne defendante min … Post la malfeliĉoj de la tera vivo mi
 
 Kiel?… li, la venkinto ĉe Sodaj Lagoj, devus cedi antaŭ
 
-plenmano da uzurpuloj, kun kiuj unu sola azia regimento ha-
-
-vus nemulte por fari?… ĉar Mefres kaj Herhor volas regi
+plenmano da uzurpuloj, kun kiuj unu sola azia regimento havus nemulte por fari?… ĉar Mefres kaj Herhor volas regi
 
 Egipton kaj faraonon, lia armeo devas suferi malsaton kaj miliono da kamparanoj ne ricevi la favoron de la ripozo?… Sed
 
@@ -3196,38 +2523,25 @@ respondis li.
 
 —ĉu vi farus tion?…
 
-—Ne ekzistas en Egipto oficiro, kiu ŝanceliĝus plenumi or-
+—Ne ekzistas en Egipto oficiro, kiu ŝanceliĝus plenumi ordonon de nia sinjoro kaj ĉefo.
 
-donon de nia sinjoro kaj ĉefo.
-
-—En tia okazo — diris malrapide la faraono — en tia oka-
-
-zo oni devas malliberigi neniun. Mi havas tro da potenco por mi kaj tro da malestimo al ili. Oni ne fermas en kirasa kesto mortintaĵon, kiun oni renkontas sur la vojo, oni ĉirkaŭiras.
+—En tia okazo — diris malrapide la faraono — en tia okazo oni devas malliberigi neniun. Mi havas tro da potenco por mi kaj tro da malestimo al ili. Oni ne fermas en kirasa kesto mortintaĵon, kiun oni renkontas sur la vojo, oni ĉirkaŭiras.
 
 —Sed hienon oni metas en kaĝon — murmuretis Tutmozis.
 
 —Sed estas ankoraŭ tro frue — respondis Ramzes. — Mi
 
-devas esti kompatema por ili, almenaŭ ĝis la tago de la ente-82
-
-LA FARAONO
-
-
-rigo de mia patro. Alie ili estus pretaj fari ian friponaĵon al la respektinda mumio kaj detrui la trankvilon de lia animo …
+devas esti kompatema por ili, almenaŭ ĝis la tago de la enterigo de mia patro. Alie ili estus pretaj fari ian friponaĵon al la respektinda mumio kaj detrui la trankvilon de lia animo …
 
 Kaj nun iru al Hiram kaj diru, ke li sendu al mi la pastron, pri kiu ni parolis.
 
-—Tiel estos. Mi devas tamen averti vian sanktecon, ke ho-
-
-diaŭ la popolaĉo atakis la domojn de la memfisaj Fenicia-
+—Tiel estos. Mi devas tamen averti vian sanktecon, ke hodiaŭ la popolaĉo atakis la domojn de la memfisaj Fenicia-
 
 noj …
 
 —Oh!… Tio ne estis necesa.
 
-—ŝajnis ankaŭ al mi — daŭrigis Tutmozis — ke de la tem-
-
-po, kiam via sankteco ordonis al Pentuer esplori la staton de la kamparanoj kaj laboristoj, la pastroj ekscitas la nomar˛ojn kaj nobelojn … Ili diras, ke vi volas ruinigi la nobelojn por la kamparanoj …
+—ŝajnis ankaŭ al mi — daŭrigis Tutmozis — ke de la tempo, kiam via sankteco ordonis al Pentuer esplori la staton de la kamparanoj kaj laboristoj, la pastroj ekscitas la nomar˛ojn kaj nobelojn … Ili diras, ke vi volas ruinigi la nobelojn por la kamparanoj …
 
 —Kaj la nobeloj kredas?…
 
@@ -3235,9 +2549,7 @@ po, kiam via sankteco ordonis al Pentuer esplori la staton de la kamparanoj kaj 
 
 ke tio estas intrigo de la pastroj kontraŭ via sankteco.
 
-—Kaj se efektive mi volus plibonigi la sorton de la kampa-
-
-ranoj? — demandis la faraono.
+—Kaj se efektive mi volus plibonigi la sorton de la kamparanoj? — demandis la faraono.
 
 —Vi faros, sinjoro, kiel plaĉos al vi — respondis Tutmozis.
 
@@ -3249,17 +2561,10 @@ ilia sorto multe pliboniĝos. La riĉaĵoj de Egipto devas fine esti elŝiritaj 
 
 La faraono adiaŭis la favoraton kaj kontenta iris dormi. Lia momenta malespero ŝajnis al li nun ridinda.
 
-En la sekvinta tago, ĉe la tagmezo, oni anoncis al lia sank-
-
-teco, ke venis deputatoj de la feniciaj komercistoj.
+En la sekvinta tago, ĉe la tagmezo, oni anoncis al lia sankteco, ke venis deputatoj de la feniciaj komercistoj.
 
 
-LA FARAONO
-
-
-—ĉu ili volas plendi pri la atako kontraŭ iliaj domoj? — de-
-
-mandis la faraono.
+—ĉu ili volas plendi pri la atako kontraŭ iliaj domoj? — demandis la faraono.
 
 —Ne — respondis la adjutanto — ili volas prezenti al vi
 
@@ -3285,24 +2590,16 @@ Vespere, ree sub la gardo de Tutmozis, Hiram sin prezentis
 
 en la kabineto de lia sankteco. Nun li ne plendis pri la laciĝo, sed falis sur la vizaĝon kaj per ĝemanta voĉo malbenis la malsaĝan Dagonon.
 
-—Mi eksciis — diris li — ke ĉi tiu favulo kuraĝis rememo-
+—Mi eksciis — diris li — ke ĉi tiu favulo kuraĝis rememorigi al via sankteco nian interkonsenton pri la kanalo al Ruĝa Maro … Pereu li!… Pesto lin manĝu!… Liaj infanoj fariĝu paŝ-
 
-rigi al via sankteco nian interkonsenton pri la kanalo al Ruĝa Maro … Pereu li!… Pesto lin manĝu!… Liaj infanoj fariĝu paŝ-
-
-tistoj de porkoj, kaj liaj nepoj Hebreoj … Kaj vi, sinjoro, ordonu nur: kiom da riĉaĵoj posedas Fenicio, ĉion ni metos an-
-
-taŭ viaj piedoj, sen kvitanco kaj kontrakto … ĉu ni estas Asi-84
-
-LA FARAONO
+tistoj de porkoj, kaj liaj nepoj Hebreoj … Kaj vi, sinjoro, ordonu nur: kiom da riĉaĵoj posedas Fenicio, ĉion ni metos antaŭ viaj piedoj, sen kvitanco kaj kontrakto … ĉu ni estas Asi-84
 
 
 rianoj, aŭ … pastroj — aldonis li murmurete — ĉu ne sufiĉas
 
 al ni unu sola vorto de tiel potenca monar˛o?…
 
-—Kaj se mi, Hiram, postulus vere grandan sumon?… — de-
-
-mandis la faraono.
+—Kaj se mi, Hiram, postulus vere grandan sumon?… — demandis la faraono.
 
 —Kian?
 
@@ -3312,17 +2609,13 @@ mandis la faraono.
 
 —Ne, en la daŭro de unu jaro.
 
-—Via sankteco havos ilin — respondis Hiram sen pripen-
-
-so.
+—Via sankteco havos ilin — respondis Hiram sen pripenso.
 
 Tia malavareco mirigis la sinjoron. — Sed mi devas doni
 
 garantiaĵojn …
 
-—Formala afero!… — respondis la Feniciano — via sankte-
-
-co donos al ni la minejojn, por ne veki suspektojn de la pastroj … Se ne ili, Fenicio sin donus al vi tuta sen garantiaĵo kaj kvitancoj …
+—Formala afero!… — respondis la Feniciano — via sankteco donos al ni la minejojn, por ne veki suspektojn de la pastroj … Se ne ili, Fenicio sin donus al vi tuta sen garantiaĵo kaj kvitancoj …
 
 —Kaj la kanalo?… ĉu mi devas tuj subskribi la traktaton?
 
@@ -3349,18 +2642,13 @@ tero! — ekkriis li.
 —Dum iom da tempo malpermesite estas al vi paroli pri tio
 
 
-LA FARAONO
-
-
 al iu ajn, ĉar la malamikoj de mia gloro spionas. Sed por ke vi estu certa, mi donas al vi ĉi tiun mian reĝan ringon …
 
 Li demetis de la fingro ringon, ormamitan per ŝtono, sur
 
 kiu estis gravurita la nomo de Horus, kaj metis ĝin sur la fingron de la Feniciano.
 
-—La riĉaĵo de la tuta Fenicio atendas vian ordonon! — ri-
-
-petis kortuŝita Hiram. — Vi plenumos verkon, kiu glorigados
+—La riĉaĵo de la tuta Fenicio atendas vian ordonon! — ripetis kortuŝita Hiram. — Vi plenumos verkon, kiu glorigados
 
 vian nomon, ĝis estingiĝos la suno …
 
@@ -3370,9 +2658,7 @@ al li sidiĝi.
 
 —Ni do estas liganoj — diris la sinjoro post momento —
 
-kaj mi esperas, ke tio donos prosperon al Egipto kaj Feni-
-
-cio …
+kaj mi esperas, ke tio donos prosperon al Egipto kaj Fenicio …
 
 —Por la tuta mondo! — intermetis Hiram.
 
@@ -3384,32 +2670,22 @@ mi?…
 
 sinjoro, ne estus faraono, post kelke da jaroj vi fariĝus la plej fama fenicia komercisto kaj ĉefo de nia plej alta konsilantaro …
 
-—Bone — respondis Ramzes. — Sed por plenumi la pro-
-
-meson, mi devas antaŭe frakasi la pastrojn. Tio estas batalo, kaj ĝia rezultato ne estas certa …
+—Bone — respondis Ramzes. — Sed por plenumi la promeson, mi devas antaŭe frakasi la pastrojn. Tio estas batalo, kaj ĝia rezultato ne estas certa …
 
 Hiram ekridetis.
 
-—Sinjoro — diris li — se ni estus tiel malnoblaj, ke ni for-
+—Sinjoro — diris li — se ni estus tiel malnoblaj, ke ni forlasus vin hodiaŭ, kiam via trezorejo estas malplena kaj viaj malamikoj kuraĝaj, vi estus venkita! ĉar homo sen rimedoj
 
-lasus vin hodiaŭ, kiam via trezorejo estas malplena kaj viaj malamikoj kuraĝaj, vi estus venkita! ĉar homo sen rimedoj
-
-perdas energion, kaj de malriĉa reĝo sin deturnas lia armeo, regnanoj kaj altranguloj … Sed se vi, sinjoro, havas nian monon kaj niajn agentojn, viajn generalojn kaj armeon, vi havos 86
-
-LA FARAONO
+perdas energion, kaj de malriĉa reĝo sin deturnas lia armeo, regnanoj kaj altranguloj … Sed se vi, sinjoro, havas nian monon kaj niajn agentojn, viajn generalojn kaj armeon, vi havos
 
 
-tiom da embaraso kun la pastroj, kiom elefanto kun skorpi-
-
-ono. Apenaŭ vi metos sur ilin la piedon, ili jam estos frakasitaj … Cetere, tio ne estas mia afero. En la ĝardeno atendas la ĉefpastro Samentu, al kiu via sankteco ordonis veni. Mi
+tiom da embaraso kun la pastroj, kiom elefanto kun skorpiono. Apenaŭ vi metos sur ilin la piedon, ili jam estos frakasitaj … Cetere, tio ne estas mia afero. En la ĝardeno atendas la ĉefpastro Samentu, al kiu via sankteco ordonis veni. Mi
 
 foriras; nun venis lia horo … Sed mia mono ĉiam estas preta
 
 por vi kaj ĝis tridek mil talentoj via sankteco povas ordoni …
 
-Hiram falis sur la vizaĝon kaj foriris, promesante tuj sen-
-
-di la ĉefpastron.
+Hiram falis sur la vizaĝon kaj foriris, promesante tuj sendi la ĉefpastron.
 
 Post duonhoro aperis Samentu. Lia barbo kaj liaj densaj
 
@@ -3419,32 +2695,23 @@ haroj estis nerazitaj, kiel konvenas al adoranto de Set; li havis severan vizaĝ
 
 La ĉefpastro sidiĝis sur la planko.
 
-—Vi plaĉas al mi — diris Ramzes. — Vi havas figuron kaj fi-
-
-zionomion de Hiksosoj, kaj ili estas la plej bravaj soldatoj de mia armeo.
+—Vi plaĉas al mi — diris Ramzes. — Vi havas figuron kaj fizionomion de Hiksosoj, kaj ili estas la plej bravaj soldatoj de mia armeo.
 
 Subite li demandis:
 
 —ĉu vi partoprenis en la malnoblaĵo?
 
-—Ne. Mi sekrete aŭskultis la interkonsenton … En la temp-
-
-loj, kiel en la palacoj de via sankteco, la muroj estas truitaj per kanaloj, dank’al kiuj eĉ de supro de la pilonoj oni povas aŭdi, kion oni diras en la subtera etaĝo …
+—Ne. Mi sekrete aŭskultis la interkonsenton … En la temploj, kiel en la palacoj de via sankteco, la muroj estas truitaj per kanaloj, dank’al kiuj eĉ de supro de la pilonoj oni povas aŭdi, kion oni diras en la subtera etaĝo …
 
 —Kaj de la subtera etaĝo oni povas paroli al personoj, kiuj
 
 loĝas supre? — interrompis la faraono.
 
-—Kaj ŝajnigi konsilojn de la dioj — aldonis serioze la pas-
-
-tro.
+—Kaj ŝajnigi konsilojn de la dioj — aldonis serioze la pastro.
 
 La faraono ekridetis. Do la supozo, ke ne la spirito de lia
 
 patro parolis al li kaj al la patrino, sed pastroj, estis vera!
-
-
-LA FARAONO
 
 
 —Kial vi konfidis al Fenicianoj grandan sekreton de la ŝtato? — demandis Ramzes.
@@ -3455,9 +2722,7 @@ kiel al Fenicio.
 
 —Vi povis averti iun el la eminentaj Egiptanoj …
 
-—Kiun?… — demandis la pastro. — ĉu tiajn, kiuj estas sen-
-
-fortaj kontraŭ Herhor, aŭ tiajn, kiuj denuncus min por min
+—Kiun?… — demandis la pastro. — ĉu tiajn, kiuj estas senfortaj kontraŭ Herhor, aŭ tiajn, kiuj denuncus min por min
 
 pereigi en turmentoj?… Mi diris ĉion al Hiram, ĉar li havas rilatojn kun niaj altranguloj, kiujn mi vidas neniam.
 
@@ -3477,17 +2742,13 @@ venkitaj …
 
 —ŝajnas, ke Beroes montris al ili miraklojn … Li eĉ leviĝis
 
-super la teron … Sendube tio estas stranga afero; sed mi ne-
-
-niam komprenos, kial ni devas perdi Fenicion, ĉar Beroes
+super la teron … Sendube tio estas stranga afero; sed mi neniam komprenos, kial ni devas perdi Fenicion, ĉar Beroes
 
 scias flugi super la tero?
 
 —Do ankaŭ vi ne kredas miraklojn?…
 
-—Jes kaj ne … ŝajnas, ke Beroes vere plenumas eksterordi-
-
-narajn aferojn, sed niaj pastroj nur trompas la popolon kaj la faraonojn.
+—Jes kaj ne … ŝajnas, ke Beroes vere plenumas eksterordinarajn aferojn, sed niaj pastroj nur trompas la popolon kaj la faraonojn.
 
 —Vi malamas la pastraron?
 
@@ -3495,12 +2756,7 @@ Samentu disetendis la manojn.
 
 —Ili ankaŭ malamas min, aŭ pli ĝuste — malestimas, je la
 
-preteksto, ke mi servas al Set. Tamen kiaj dioj tio estas, kies kapojn kaj manojn oni devas movi per ŝnuroj?… Aŭ kiaj pas-88
-
-LA FARAONO
-
-
-troj, kiuj ŝajnigante piecon kaj sobrecon, havas po dek virinoj, elspezas dekojn da talentoj jare, ŝtelas la oferojn de la altaroj, kaj estas ne multe pli instruitaj, ol la lernantoj de supera lernejo.
+preteksto, ke mi servas al Set. Tamen kiaj dioj tio estas, kies kapojn kaj manojn oni devas movi per ŝnuroj?… Aŭ kiaj pastroj, kiuj ŝajnigante piecon kaj sobrecon, havas po dek virinoj, elspezas dekojn da talentoj jare, ŝtelas la oferojn de la altaroj, kaj estas ne multe pli instruitaj, ol la lernantoj de supera lernejo.
 
 —Sed vi akceptas donacojn de Fenicianoj?
 
@@ -3545,16 +2801,11 @@ se mi fariĝus konsilanto de la trono, indignus la pastroj, kiuj malamas min.
 —ĉu vi pensas, ke oni povas faligi ilin?…
 
 
-LA FARAONO
-
-
 —Eĉ tre facile! — respondis Samentu.
 
 —Kia estus via plano, se mi devus min liberigi de ili?
 
-—Oni devus preni la trezorejon de Labirinto — diris la pas-
-
-tro.
+—Oni devus preni la trezorejon de Labirinto — diris la pastro.
 
 —ĉu vi konas la vojon?
 
@@ -3576,9 +2827,7 @@ pastro.
 
 —ĉu tio estus sen danĝero por Egipto?
 
-—Tute. Antaŭ kvarcent jaroj la faraono Amenhotep IV fa-
-
-ligis la povon de la pastroj, proklaminte kredon je unu sola dio Re Harma˛is. Kompreneble, li forprenis la trezorejon el
+—Tute. Antaŭ kvarcent jaroj la faraono Amenhotep IV faligis la povon de la pastroj, proklaminte kredon je unu sola dio Re Harma˛is. Kompreneble, li forprenis la trezorejon el
 
 la temploj de aliaj dioj. Tiam nek la popolo, nek la armeo, nek la nobeloj defendis la pastrojn. Kio do okazos hodiaŭ, kiam
 
@@ -3588,9 +2837,7 @@ la antaŭa kredo malfortiĝis?
 
 —Simpla pastro Ey.
 
-—Sed kiu post la morto de Amenhotep IV fariĝis heredan-
-
-to de lia trono? — diris Ramzes, fikse rigardante la okulojn de la pastro.
+—Sed kiu post la morto de Amenhotep IV fariĝis heredanto de lia trono? — diris Ramzes, fikse rigardante la okulojn de la pastro.
 
 Sed Samentu respondis trankvile:
 
@@ -3603,16 +2850,11 @@ pli zorgis pri la gloro de Re, ol pri la ŝtato.
 —Preta servi vian sanktecon.
 
 
-LA FARAONO
-
-
 —Mi nomas vin mia konsilanto — diris la faraono. — Sed
 
 en tia okazo vi ne povas kaŝe viziti min, vi loĝos ĉe mi …
 
-—Pardonu, sinjoro, sed antaŭ ol la anoj de la plej alta ko-
-
-legio ne estos en malliberejo pro traktado kun la malamikoj
+—Pardonu, sinjoro, sed antaŭ ol la anoj de la plej alta kolegio ne estos en malliberejo pro traktado kun la malamikoj
 
 de la ŝtato, mia ĉeesto en la palaco alportus pli da malutilo, ol da bono … Mi do servos kaj konsilos al via sankteco, sed
 
@@ -3652,32 +2894,21 @@ La vizitoj kaj promesoj de Samentu verŝis novan kuraĝon
 
 en la koron de la faraono.
 
-Se oni sukcesus akiri la trezorojn de Labirinto!… Malgran-
-
-da parto sufiĉus por liberigi la nobelojn de la feniciaj ŝuldoj, 91
-
-LA FARAONO
+Se oni sukcesus akiri la trezorojn de Labirinto!… Malgranda parto sufiĉus por liberigi la nobelojn de la feniciaj ŝuldoj,
 
 
-por plibonigi la sorton de la kamparanoj kaj reaĉeti la bie-
-
-nojn, donitajn kiel garantiaĵo.
+por plibonigi la sorton de la kamparanoj kaj reaĉeti la bienojn, donitajn kiel garantiaĵo.
 
 Kaj per kiaj konstruaĵoj oni povus pliriĉigi la staton!…
 
 Jes, la riĉaĵoj de Labirinto povus forigi ĉiujn embarasojn de la faraono. ĉar kion helpos, ke Fenicianoj proponas al li grandan prunton? Iam oni devos pagi ĝin, kun la procentoj, kaj pli aŭ malpli frue doni kiel garantiaĵon la reston de la reĝaj bienoj. Tio do estus nur prokrasti la ruinon, sed ne antaŭgardi sin de ĝi.
 
 
-LA FARAONO
-
-
-ĉAPITRO SEPA
+ĈAPITRO SEPA
 
 EN la mezo de la monato Famenut (januaro) komenciĝis
 
-la printempo. La tuta Egipto verdis de la naskiĝanta tri-
-
-tiko, kaj sur la nigra tero svarmis kamparanoj, kiuj semis lu-penon, pizon, fazeolon kaj hordeon. En la aero leviĝis odoro de la oranĝaj floroj. La akvo tre malleviĝis kaj malkovris ĉiutage novajn terajn pecojn.
+la printempo. La tuta Egipto verdis de la naskiĝanta tritiko, kaj sur la nigra tero svarmis kamparanoj, kiuj semis lu-penon, pizon, fazeolon kaj hordeon. En la aero leviĝis odoro de la oranĝaj floroj. La akvo tre malleviĝis kaj malkovris ĉiutage novajn terajn pecojn.
 
 La preparoj por la enterigo de Oziriso-Mer-amen-Ramzes
 
@@ -3687,9 +2918,7 @@ La respektinda mumio de la reĝo estis fermita en blanka
 
 skatolo, kies supra parto bonege prezentis la trajton de la
 
-mortinto. La faraono ŝajnis rigardi per siaj okuloj, kaj lia viza-
-
-ĝo esprimis kvietan malĝojon, bedaŭron ne al la mondo, kiun
+mortinto. La faraono ŝajnis rigardi per siaj okuloj, kaj lia vizaĝo esprimis kvietan malĝojon, bedaŭron ne al la mondo, kiun
 
 li forlasis, sed al la homoj, kiuj restis ankoraŭ kondamnitaj al la teda surtera vivo.
 
@@ -3702,28 +2931,17 @@ sur la piedoj bildojn de dioj, sanktaj birdoj kaj okuloj, ne sur vizaĝoj, sed r
 La restaĵoj de la reĝo, tiel enpakitaj, ripozis sur riĉa lito, en malgranda cedra kapelo, kies muroj estis kovritaj per surskriboj, kantantaj la vivon kaj agojn de la mortinto. Super la korpo flugpendis mirakla akcipitro kun homa kapo, kaj apud la
 
 
-LA FARAONO
-
-
 lito tage kaj nokte restis garde pastro, alivestita kiel Anubis, la funebra dio, kun ŝakala kapo.
 
-Krom tio oni preparis pezan bazaltan sarkafagon, kiu for-
-
-mis la eksteran ĉerkon de la mumio. La sarkofago ankaŭ ha-
+Krom tio oni preparis pezan bazaltan sarkafagon, kiu formis la eksteran ĉerkon de la mumio. La sarkofago ankaŭ ha-
 
 vis la formon kaj trajtojn de la mortinta faraono, estis kovrita per surskriboj kaj bildoj de preĝantaj homoj, sanktaj birdoj kaj skaraboj.
 
-La 17-an de Famenut la mumion kun la kapelo kaj sarko-
+La 17-an de Famenut la mumion kun la kapelo kaj sarkofago oni transportis de la kvartalo de la mortintoj en la reĝan palacon kaj starigis en la plej granda salono.
 
-fago oni transportis de la kvartalo de la mortintoj en la reĝan palacon kaj starigis en la plej granda salono.
+La salonon tuj plenigis pastroj, kantantaj funebrajn himnojn, korteganoj kaj servistoj de la mortinta reĝo, kaj antaŭ ĉio virinoj, kiuj ĝemis tiel laŭte, ke iliajn kriojn oni povis aŭdi sur la alia bordo de Nilo.
 
-La salonon tuj plenigis pastroj, kantantaj funebrajn him-
-
-nojn, korteganoj kaj servistoj de la mortinta reĝo, kaj antaŭ ĉio virinoj, kiuj ĝemis tiel laŭte, ke iliajn kriojn oni povis aŭdi sur la alia bordo de Nilo.
-
-—Ho sinjoro!… Ho nia sinjoro!… — kriis ili — kial vi forla-
-
-sas nin?… Vi, tiel bela, tiel bona?… Vi, kiu volonte parolis kun ni, nun vi silentas, kial?… Vi ja amis nian societon, kaj hodiaŭ vi estas tiel malproksime de ni?…
+—Ho sinjoro!… Ho nia sinjoro!… — kriis ili — kial vi forlasas nin?… Vi, tiel bela, tiel bona?… Vi, kiu volonte parolis kun ni, nun vi silentas, kial?… Vi ja amis nian societon, kaj hodiaŭ vi estas tiel malproksime de ni?…
 
 Dume la pastroj kantis:
 
@@ -3741,14 +2959,9 @@ el la dioj pavas haltigi …
 
 provas tion, kio estas …1
 
-Post dutagaj ĝemoj kaj preĝoj antaŭ la palaco haltis gran-
-
-dega veturilo en formo de barko. iaj ekstremoj estis orna-
+Post dutagaj ĝemoj kaj preĝoj antaŭ la palaco haltis grandega veturilo en formo de barko. iaj ekstremoj estis orna-
 
 mitaj per ŝafaj kapoj kaj ventumiloj el strutaj plumoj, super 1 ”Libro de la mortintoj” — aŭtentika.
-
-
-LA FARAONO
 
 
 la riĉa baldakeno flugpendis aglo kaj la serpento ureuso, la simbolo de la faraona povo.
@@ -3767,9 +2980,7 @@ tuta vojo atendis ˛oroj.
 
 ˘oro I. — Al Okcidento, en la loĝejon de Oziriso iras vi, kiu estis la plej bona el la homaj, vi kiu malamis la malveron.
 
-˘oro II. — Al Okcidento! Ne ekfloros plu homo, tiel aman-
-
-ta la veron, sentanta tian abomenon al la mensogo.
+˘oro II. — Al Okcidento! Ne ekfloros plu homo, tiel amanta la veron, sentanta tian abomenon al la mensogo.
 
 ˘oro de la veturigistoj. — Al Okcidento, ho bovoj, kiuj tiras la funebran veturilon, al Okcidento!… Via sinjoro sekvas vin.
 
@@ -3787,16 +2998,14 @@ vi foriras al Okcidento, la dioj mem ploras.
 
 ˘oro de la pastroj. — Li estas feliĉa, li la plej respektinda el la homoj, ĉar la sorto permesas al li ripozi en la tombo, kiun li mem preparis.
 
-˘oro de la veturigistoj. — Al Okcidento, ho bovoj, kiuj tiras 95
-
-LA FARAONO
+˘oro de la veturigistoj. — Al Okcidento, ho bovoj, kiuj tiras
 
 
 la funebran veturilon, al Okcidento!… Via sinjoro sekvas vin …
 
 La popolamaso. — Iru en paco al Abidos!… Iru en paco al
 
-Abidos!… al Okcidenta maro! 2
+Abidos!… al Okcidenta maro!
 
 ĉiun kelkcenton da paŝoj staris taĉmento da soldatoj, kiuj
 
@@ -3806,9 +3015,7 @@ Kelke da paŝoj post la veturilo iris Ramzes, ĉirkaŭita de
 
 granda sekvantaro de generaloj, kaj post li la reĝino Nikotris, sin apoganta sur du kortegaj sinjorinoj. La filo kaj la patrino ne ploris, ĉar ili sciis (kion ne sciis la simpla popolo), ke la mortinta sinjoro jam estas ĉe Oziriso kaj estas tiel kontenta en la lando de la feliĉo, ke li ne volus reveni sur la teron.
 
-Post kelkhora irado, akompanata de senĉesa krio, la re-
-
-staĵoj haltis sur la bordo de Nilo.
+Post kelkhora irado, akompanata de senĉesa krio, la restaĵoj haltis sur la bordo de Nilo.
 
 Tie oni demetis ilin de la veturilo kaj transportis sur veran oritan ŝipon, skulptitan, kovritan per pentraĵoj, kiu havis
 
@@ -3831,14 +3038,9 @@ La vojaĝo daŭris tre longe. is Teboj estis preskaŭ cent
 2 Aŭtentikaj esprimoj.
 
 
-LA FARAONO
-
-
 mejloj, oni veturis kontraŭ la fluo, kaj la mumio devis viziti ĉiujn apudbordajn templojn kaj partopreni en la solenaj di-servoj.
 
-Kelke da tagoj post la forveturo de Ramzes XII al la eter-
-
-na ripozo, Ramzes XIII ekveturis post li, por revivigi la korojn de siaj regnanoj, senvivajn de la malĝojo, akcepti ilian respektegon kaj fari oferojn al la dioj. Post la mortinta sinjoro forveturis, ĉiu sur propra ŝipo, ĉiuj ĉefpastroj, multaj altrangaj pastroj, la plej riĉaj bienposedantoj kaj la plimulto de la nomar˛oj. La nova faraono pensis, ne sen maldolĉo, ke lia sek-
+Kelke da tagoj post la forveturo de Ramzes XII al la eterna ripozo, Ramzes XIII ekveturis post li, por revivigi la korojn de siaj regnanoj, senvivajn de la malĝojo, akcepti ilian respektegon kaj fari oferojn al la dioj. Post la mortinta sinjoro forveturis, ĉiu sur propra ŝipo, ĉiuj ĉefpastroj, multaj altrangaj pastroj, la plej riĉaj bienposedantoj kaj la plimulto de la nomar˛oj. La nova faraono pensis, ne sen maldolĉo, ke lia sek-
 
 vantaro estos tre malmultenombra.
 
@@ -3852,17 +3054,9 @@ La amaso ne kriis, sed bruegis; ĝi ne ĝojis, sed frenezis. ĉiumomente sur la 
 
 ferdekon, kiun tuŝis la piedoj de la sinjoro, fari donacojn: plenmanon da greno, teksaĵon, simplan argilan kruĉon, paron da birdoj, kaj precipe florajn kronetojn. Antaŭ ol la faraono preterpasis Memfison, oni devis kelkfoje liberigi la ŝipon de la donacoj, por ke ĝi ne dronu.
 
-La junaj pastroj parolis unu al alia, ke ekster Ramzes Gran-
+La junaj pastroj parolis unu al alia, ke ekster Ramzes Granda neniu faraono estis salutata kun tia entuziasmo.
 
-da neniu faraono estis salutata kun tia entuziasmo.
-
-Sama estis la tuta vojaĝo de Memfiso ĝis Teboj, kaj la eks-
-
-
-LA FARAONO
-
-
-tazo de la popolo anstataŭ malgrandiĝi kreskis. La kampara-
+Sama estis la tuta vojaĝo de Memfiso ĝis Teboj, kaj la ekstazo de la popolo anstataŭ malgrandiĝi kreskis. La kampara-
 
 noj forlasis la kampojn, la metiistoj la stablojn, por ĝui la ple-zuron vidi la novan estron, pri kies intencoj jam naskiĝis le-gendoj. Oni atendis grandegajn ŝanĝojn, kvankam neniu
 
@@ -3882,19 +3076,11 @@ Iam en tiu loko estis kalva dezerto, ĉirkaŭita de amfiteatro de nudaj montoj. 
 
 Por ĉi tiu celo li apartigis la orientan parton de la dezerto kaj ĉirkaŭis ĝin per potenca digo. i estis unu etaĝon alta, cent paŝojn dika ĉe la fundamento, kaj pli ol kvardek kilometrojn longa.
 
-Tiel oni konstruis akvujon, kiu povis enteni ĉirkaŭ tri mi-
-
-liardojn da kubaj metroj, tri kubajn kilometrojn da akvo, kies supraĵo okupis preskaŭ tricent kvadratajn kilometrojn. La
+Tiel oni konstruis akvujon, kiu povis enteni ĉirkaŭ tri miliardojn da kubaj metroj, tri kubajn kilometrojn da akvo, kies supraĵo okupis preskaŭ tricent kvadratajn kilometrojn. La
 
 akvujo servis por la irigado de ducent mil hektaroj, kaj krom tio dum la leviĝo de la rivero ĝi sorbis superfluon de la akvo kaj gardis grandan parton de Egipto de subita subakvigo.
 
-ĉi tiun grandegan akvan amason oni nomis la lago Moe-
-
-
-LA FARAONO
-
-
-ris kaj rigardis kiel unu el la mirakloj de la mondo. Dank’al ĝi la dezerta valo ŝanĝiĝis en la riĉan landon Piom, kie vivis en bonstato preskaŭ ducent mil loĝantoj. En ĉi tiu provinco,
+ĉi tiun grandegan akvan amason oni nomis la lago Moeris kaj rigardis kiel unu el la mirakloj de la mondo. Dank’al ĝi la dezerta valo ŝanĝiĝis en la riĉan landon Piom, kie vivis en bonstato preskaŭ ducent mil loĝantoj. En ĉi tiu provinco,
 
 krom la palmoj kaj tritiko, oni kulturis plej belajn rozojn, kies oleon oni dissendis en la tuta Egipto, eĉ ekster ĝiaj limoj.
 
@@ -3916,12 +3102,7 @@ pastroj, militestroj kaj ar˛itektoj. Tie dormis ankaŭ la restaĵoj de la respe
 
 Labirinto ne estis nealirebla de ekstere, nek tre gardata; ĝin gardis nur malgranda taĉmento de pastraj soldatoj kaj kelke
 
-da pastroj de provita honesteco. La sendanĝereco de la trezorejo estis bazita je tio, ke ekster tiuj kelkaj personoj neniu sciis, kie ĝin serĉi en Labirinto, kiu estis dividita en du eta-
-
-ĝojn: subtera kaj surtera, el kiuj ĉiu kalkulis mil kvincent ĉambrojn!…
-
-
-LA FARAONO
+da pastroj de provita honesteco. La sendanĝereco de la trezorejo estis bazita je tio, ke ekster tiuj kelkaj personoj neniu sciis, kie ĝin serĉi en Labirinto, kiu estis dividita en du etaĝojn: subtera kaj surtera, el kiuj ĉiu kalkulis mil kvincent ĉambrojn!…
 
 
 ĉiu faraono, ĉiu ĉefpastro, fine ĉiu granda trezoristo, tuj
@@ -3930,9 +3111,7 @@ post ricevo de la ofico, havis la devon per la propraj okuloj rigardi la riĉaĵ
 
 Multaj pensis, ke la trezorejo estas lokita vere sub la tero, malproksime ekster Labirinto mem. Aliaj estis certaj, multenombraj ili estis, ke la trezorejo kuŝas sub la fundo de la lago, por ke oni povu, en okazo de neceso, subakvigi ĝin. Fine, neniu altrangulo amis sin okupi per ĉi tiu demando, sciante, ke atenco kontraŭ la riĉaĵoj de la dioj altiras pereon de la malpiulo.
 
-Eble la profanoj sukcesus trovi la vojon, se la timo ne pa-
-
-ralizus iliajn pensojn. Morto korpa kaj morto eterna minacis homon kaj lian familion, kiu kuraĝus per malpia penso malkovri tiajn sekretojn.
+Eble la profanoj sukcesus trovi la vojon, se la timo ne paralizus iliajn pensojn. Morto korpa kaj morto eterna minacis homon kaj lian familion, kiu kuraĝus per malpia penso malkovri tiajn sekretojn.
 
 Veninte en la landon, Ramzes vizitis antaŭ ĉio la provincon
 
@@ -3946,16 +3125,9 @@ La popolo akceptis la faraonon kun granda entuziasmo.
 
 Lin kaj lian sekvantaron oni superŝutis per floroj, donacis
 
-al li multekostajn parfumojn, kaj oron kaj multvalorajn ŝto-
+al li multekostajn parfumojn, kaj oron kaj multvalorajn ŝtonojn por dek talentoj.
 
-nojn por dek talentoj.
-
-La sinjoro gastis du tagojn en la feliĉa lando, kie ĝojo ŝaj-100
-
-LA FARAONO
-
-
-nis flori sur la arboj, flugi en la aero, rebrili de la akvoj de la lago. Sed oni rememorigis al li, ke li devas viziti Labirinton.
+La sinjoro gastis du tagojn en la feliĉa lando, kie ĝojo ŝajnis flori sur la arboj, flugi en la aero, rebrili de la akvoj de la lago. Sed oni rememorigis al li, ke li devas viziti Labirinton.
 
 Li forlasis la valon kun sopiro, kaj veturante rerigardis al ĝi de la vojo. Sed baldaŭ lia atento estis altirita de grandega griza konstruaĵo, majeste sidanta sur monteto.
 
@@ -3975,9 +3147,7 @@ centestroj la superan — respondis la ĉefpastro de la konstru-aĵo.
 
 Rigardante pli atente la fizionomiojn de ĉi tiuj strangaj soldatoj, kiuj ne manĝis viandon kaj vivis celibate, la faraono rimarkis en ili inteligentecon kaj kvietan energion. Li vidis ankaŭ, ke lia sankta persono faras neniun impreson en ĉi tiu loko.
 
-”Mi tre dezirus scii, kiel penetros ĉi tien Samentu?…” — di-
-
-ris al si la sinjoro.
+”Mi tre dezirus scii, kiel penetros ĉi tien Samentu?…” — diris al si la sinjoro.
 
 Li komprenis, ke ĉi tiujn homojn oni povas nek timigi, nek
 
@@ -3990,9 +3160,6 @@ subaĉeti. Tia memkonfido estis legebla sur iliaj vizaĝoj, kva-zaŭ ĉiu el ili
 Laŭ la peto de la pastroj, la sekvantaro de Ramzes restis
 
 antaŭ la pordego, kvazaŭ sub gardo de la razitaj soldatoj.
-
-
-LA FARAONO
 
 
 —ĉu mi devas lasi ĉi tie ankaŭ mian glavon? — demandis
@@ -4011,9 +3178,7 @@ Tra granda korto, inter du vicoj de sfinksoj, la faraono kaj pastroj eniris en l
 
 ĉiu el la kvin pastroj prenis du paketojn de torĉoj, sed nur unu lumigis. Apud li staris la ĉefa gardisto, tenante en la manoj rozarion, sur kies eroj estis skribitaj iaj signoj. Post ili Ramzes, ĉirkaŭita de la ceteraj pastroj.
 
-La ĉefpastro sin turnis dekstren kaj eniris en grandan ĉam-
-
-bregon, kies muroj kaj kolonoj estis kovritaj per surskriboj kaj figuroj. De tie ili penetris en malvastan koridoron, kiu kondukis supren, kaj ili troviĝis en alia ĉambrego, rimarkinda per la granda nombro de pordoj. Tie foriĝis antaŭ ili unu ŝtono de
+La ĉefpastro sin turnis dekstren kaj eniris en grandan ĉambregon, kies muroj kaj kolonoj estis kovritaj per surskriboj kaj figuroj. De tie ili penetris en malvastan koridoron, kiu kondukis supren, kaj ili troviĝis en alia ĉambrego, rimarkinda per la granda nombro de pordoj. Tie foriĝis antaŭ ili unu ŝtono de
 
 la planko, malkovrante truon, tra kiu ili malsupreniris kaj ree tra malvasta koridoro ili sin turnis al ĉambro sen pordoj.
 
@@ -4024,9 +3189,6 @@ Ramzes volis konjekti la direkton, en kiu ili iris, sed tuj liaj pensoj impliki�
 ili grimpas supren aŭ kuras malsupren, ke unuj ĉambregoj
 
 havas multe da pordoj, kaj aliaj tute ne posedas ilin. Samtem-pe li rimarkis, ke la gvidanto ĉe ĉiu nova eniro glitigas unu eron de sia longa rozario kaj iafoje ĉe lumo de la torĉo komparas ĝiajn signojn kun la signoj sur la muroj.
-
-
-LA FARAONO
 
 
 —Kie ni estas nun — demandis subite la faraono — sub la
@@ -4045,9 +3207,7 @@ En malgranda ĉambro, sen pordoj, oni mallevis la torĉon,
 
 kaj la faraono rimarkis sur la tero sekiĝintan, nigran kadavron, envolvitan en putrinta tuko.
 
-—Tio estas — diris la gardisto de la konstruaĵo — la kadav-
-
-ro de Feniciano, kiu en la tempoj de la XVI dinastio provis
+—Tio estas — diris la gardisto de la konstruaĵo — la kadavro de Feniciano, kiu en la tempoj de la XVI dinastio provis
 
 penetri en Labirinton kaj venis ĝis tie ĉi.
 
@@ -4055,13 +3215,9 @@ penetri en Labirinton kaj venis ĝis tie ĉi.
 
 —Li mortis de malsato.
 
-Ili jam iris duonon de horo, kiam la pastro, portanta la tor-
+Ili jam iris duonon de horo, kiam la pastro, portanta la torĉon, lumigis niĉon de koridoro, kie ankaŭ kuŝis sekiĝinta kor-po.
 
-ĉon, lumigis niĉon de koridoro, kie ankaŭ kuŝis sekiĝinta kor-po.
-
-—Tio estas — diris la gardisto — la kadavro de nubia pas-
-
-tro, kiu en la tempoj de via avo provis eniri ĉi tien.
+—Tio estas — diris la gardisto — la kadavro de nubia pastro, kiu en la tempoj de via avo provis eniri ĉi tien.
 
 La faraono ne demandis, kia okazis al li. Li havis impreson, ke li estas en profundegaĵo kaj ke Labirinto premegas lin per sia pezo. Li ne revis plu pri orientado en la centoj da koridoroj, salonoj, ĉambroj. Li eĉ ne deziris klarigi al si, per kia miraklo disiĝas antaŭ ili la ŝtonaj muroj aŭ foriĝas la plankoj.
 
@@ -4074,9 +3230,6 @@ Tian senton de senespero, senforteco kaj nenieco li havis
 ankoraŭ neniam. Dum momentoj ŝajnis al li, ke la pastroj
 
 
-LA FARAONO
-
-
 lasos lin en unu el la malvastaj ĉambroj sen pordoj. Tiam ekregis lin malespero, li kaptis la glavon kaj estis preta pecetigi ilin. Sed tuj li rememoris, ke sen ilia helpo li ne povos eliri de ĉi tie, kaj li mallevis la kapon.
 
 Ho, se almenaŭ dum unu momento li povus ekvidi la tagan
@@ -4087,13 +3240,9 @@ La animoj de herooj havas iafoje momentojn de profunda
 
 senespero, pri kies ekzistado eĉ ne scias ordinara homo.
 
-La marŝo daŭris jam preskaŭ unu horon, kiam fine ili ve-
+La marŝo daŭris jam preskaŭ unu horon, kiam fine ili venis en malaltan ĉambregon, apogitan sur okangulaj kolonoj.
 
-nis en malaltan ĉambregon, apogitan sur okangulaj kolonoj.
-
-La tri pastroj, kiuj ĉirkaŭis la faraonon, disiĝis, kaj Ramzes rimarkis, ke unu el ili sin alpremis al kolono kaj kvazaŭ mal-
-
-aperis en ĝia interno.
+La tri pastroj, kiuj ĉirkaŭis la faraonon, disiĝis, kaj Ramzes rimarkis, ke unu el ili sin alpremis al kolono kaj kvazaŭ malaperis en ĝia interno.
 
 Post momento en unu el la muroj malfermiĝis mallarĝa
 
@@ -4103,19 +3252,12 @@ truo, la pastroj revenis al la antaŭaj lokoj kaj la gvidanto ordonis eklumigi k
 
 La pastroj rapide eklumigis la torĉojn sur la kolonoj kaj
 
-muroj. Ramzes ekvidis vicon de grandegaj ĉambroj, plenple-
-
-naj de diversaj objektoj de senlima valoro. En ĉi tiu kolekto ĉiu dinastio, ĉiu faraono lasis, kion ili havis plej rimarkindan kaj multekostan.
+muroj. Ramzes ekvidis vicon de grandegaj ĉambroj, plenplenaj de diversaj objektoj de senlima valoro. En ĉi tiu kolekto ĉiu dinastio, ĉiu faraono lasis, kion ili havis plej rimarkindan kaj multekostan.
 
 Estis tie veturiloj, ŝipetoj, litoj, tabloj, kestoj kaj kronoj oraj aŭ kovritaj per oraj ladoj, inkrustitaj per eburo, perlamoto kaj kolora ligno tiel arte, ke artistoj metiistoj faris ilin dum dekoj da jaroj. Estis tie armaĵoj, ŝildoj kaj sagujoj, brilantaj de multekostaj ŝtonoj, vazoj, pladoj kaj kuleroj el pura oro, multekostaj vestoj kaj baldakenoj.
 
 
-LA FARAONO
-
-
-ĉio ĉi, dank’al la sekeco, kaj pureco de la aero, de jarcen-
-
-toj konserviĝis sen ŝanĝoj.
+ĉio ĉi, dank’al la sekeco, kaj pureco de la aero, de jarcentoj konserviĝis sen ŝanĝoj.
 
 Inter la rimarkindaj objektoj Ramzes trovis la modelon de
 
@@ -4137,9 +3279,7 @@ mem, se ni liverus al li meblojn por la trona salono aŭ armi-lejo.
 
 —Ili provu!… — diris la ĉefpastro.
 
-—Mi komprenas … Vi havas rimedojn por neniigi la trezo-
-
-rojn. Sed en tia okazo neniu plu profitos de ili.
+—Mi komprenas … Vi havas rimedojn por neniigi la trezorojn. Sed en tia okazo neniu plu profitos de ili.
 
 —Tio ne estas mia afero. — Ni gardas, kion oni konfidis al
 
@@ -4154,9 +3294,6 @@ la ŝtatan kason kaj relevi Egipton el la malsukceso, en kiu ĝi dronas hodiaŭ?
 La faraono sulkigis la brovojn. Dum kelke da minutoj li
 
 
-LA FARAONO
-
-
 rigardis la objektojn, cetere sen granda entuziasmo, fine li ree demandis:
 
 —Bone. ĉi tiuj artaj verkoj povas esti utilaj por akiri la bonvolon de la asiriaj altranguloj. Sed se eksplodus milito kontraŭ Asirio, kiel ni ricevus grenon, homojn kaj armilojn de la popoloj, kiuj ne ŝatas la artajn maloftaĵojn?
@@ -4165,25 +3302,17 @@ rigardis la objektojn, cetere sen granda entuziasmo, fine li ree demandis:
 
 tiun fojon la pastroj diskuris: du malaperis kvazaŭ en la interno de kolonoj, unu suriris la muron per ŝtupetaro kaj faris ion ĉe skulptita figuro.
 
-Ree foriĝis kaŝita pordo kaj Ramzes eniris en la veran tre-
+Ree foriĝis kaŝita pordo kaj Ramzes eniris en la veran trezorejon.
 
-zorejon.
-
-Tio estis vasta ĉambro, plenplena de netakseblaj materi-
-
-aloj. Tie staris argilaj bareloj, plenaj de ora sablo, oraj pecegoj, metitaj kiel brikoj, kaj oraj stangoj ligitaj kune. Arĝentaj pecegoj, starigitaj unu sur alia, formis kvazaŭ muron, kelkon da ulnoj larĝan, altan ĝis la plafono.
+Tio estis vasta ĉambro, plenplena de netakseblaj materialoj. Tie staris argilaj bareloj, plenaj de ora sablo, oraj pecegoj, metitaj kiel brikoj, kaj oraj stangoj ligitaj kune. Arĝentaj pecegoj, starigitaj unu sur alia, formis kvazaŭ muron, kelkon da ulnoj larĝan, altan ĝis la plafono.
 
 En niĉoj kaj sur ŝtonaj tabloj kuŝis multekostaj ŝtonoj de
 
 ĉiuj koloroj: rubenoj, topazoj, smeraldoj, safiroj, diamantoj, fine perloj de la grandeco de nukso, eĉ de birda ovo. Multaj el ĉi tiuj juveloj sufiĉus por aĉeti urbon.
 
-—Jen estas nia riĉaĵo por la okazo de malfeliĉo — respon-
+—Jen estas nia riĉaĵo por la okazo de malfeliĉo — respondis la pastro gardisto.
 
-dis la pastro gardisto.
-
-—Kian malfeliĉon vi ankoraŭ atendas? — demandis la fa-
-
-raono. — La popolamaso estas malriĉa, la kortego kaj nobe-
+—Kian malfeliĉon vi ankoraŭ atendas? — demandis la faraono. — La popolamaso estas malriĉa, la kortego kaj nobe-
 
 loj dronas en ŝuldoj, la armeo estas malgrandigita ĝis duono, la faraono ne havas monon … ĉu iam ajn Egipto estis en pli
 
@@ -4194,24 +3323,17 @@ malbona situacio?…
 —Post dekkelko da jaroj — respondis Ramzes — sklavigos
 
 
-LA FARAONO
-
-
 nin eĉ Izraelidoj, se ne faros tion pli frue Libianoj kaj Etiopianoj. Kaj tiam la belaj ŝtonoj, pecetigitaj, servos kiel ornamo por la hebreaj kaj negraj sandaloj …
 
 —Estu trankvila, via sankteco. En okazo de neceso ne nur
 
 la trezorejo, sed eĉ Labirinto malaperos sen postesigno, kun la gardistoj.
 
-Ramzes definitive komprenis, ke li havas antaŭ si fanati-
-
-kulojn, kiuj pensas nur pri unu afero: allasi neniun al la trezorejo!
+Ramzes definitive komprenis, ke li havas antaŭ si fanatikulojn, kiuj pensas nur pri unu afero: allasi neniun al la trezorejo!
 
 La faraono sidiĝis sur la oraj brikoj kaj diris:
 
-—Vi do konservas ĉi tiujn trezorojn por tempo, kiam mal-
-
-feliĉo premegos Egipton?
+—Vi do konservas ĉi tiujn trezorojn por tempo, kiam malfeliĉo premegos Egipton?
 
 —Vi diras la veron, sankta sinjoro.
 
@@ -4223,9 +3345,7 @@ se ĝi venos?
 
 aŭto˛tonaj Egiptanoj, en kiu partoprenos: la faraono, dektri altrangaj pastroj, dektri nomar˛oj, dektri nobeluloj, kaj po dektri oficiroj, komercistoj, metiistoj kaj kamparanoj.
 
-—Al tia kunveno vi donus la trezorojn? — demandis la fa-
-
-raono.
+—Al tia kunveno vi donus la trezorojn? — demandis la faraono.
 
 —Ni donus la necesan sumon, se la tuta kunveno, kvazaŭ
 
@@ -4239,11 +3359,7 @@ Ramzes mallevis la kapon, por kaŝi la esprimon de granda
 
 kontenteco. Li jam havis planon.
 
-”Tian kunvenon mi sukcesos kolekti kaj instigi ĝin al unu-
-
-animeco — diris li al si. — Ankaŭ ŝajnas al mi, ke la statuo de 107
-
-LA FARAONO
+”Tian kunvenon mi sukcesos kolekti kaj instigi ĝin al unuanimeco — diris li al si. — Ankaŭ ŝajnas al mi, ke la statuo de
 
 
 Amon konfirmos la decidon, kiam mi ĉirkaŭos liajn pastrojn
@@ -4260,9 +3376,7 @@ vi aldonu al Labirinto saman kvanton da riĉaĵoj … Koncerne
 
 la vojon, estas nur unu kaj ni devas reveni per la sama.
 
-Unu el la pastroj donis al Ramzes iom da daktiloj, alia bo-
-
-telon da vino, preparita kun fortiga rimedo. La faraono retrovis la fortojn kaj iris gaja.
+Unu el la pastroj donis al Ramzes iom da daktiloj, alia botelon da vino, preparita kun fortiga rimedo. La faraono retrovis la fortojn kaj iris gaja.
 
 —Mi donus multe — diris li, ridetante — por koni ĉiujn
 
@@ -4293,26 +3407,18 @@ kun rideto.
 La faraono dankis ĉiujn gvidantojn kaj finis per la vortoj:
 
 
-LA FARAONO
-
-
 —Mi volus fari por vi ian favoron, postulu do …
 
 Sed la pastroj aŭskultis indiferente kaj ilia ĉefo diris:
 
-—Pardonu al mi, sinjoro, mian kuraĝon, sed … kion ni po-
-
-vus deziri? Niaj figoj kaj daktiloj estas same dolĉaj, kiel tiuj el via ĝardeno, nia akvo same bona, kiel tiu el via puto. Kaj se allogus nin riĉaĵoj, ĉu ni ne posedas pli multe da ili, ol ĉiuj reĝoj?…
+—Pardonu al mi, sinjoro, mian kuraĝon, sed … kion ni povus deziri? Niaj figoj kaj daktiloj estas same dolĉaj, kiel tiuj el via ĝardeno, nia akvo same bona, kiel tiu el via puto. Kaj se allogus nin riĉaĵoj, ĉu ni ne posedas pli multe da ili, ol ĉiuj reĝoj?…
 
 ”ĉi tiujn mi fleksos per nenio — pensis la faraono — sed …
 
 mi donos al ili la decidon de la kunveno kaj la verdikton de Amon …”
 
 
-LA FARAONO
-
-
-ĉAPITRO OKA
+ĈAPITRO OKA
 
 Forlasinte la landon Piom, la faraono kaj lia sekvantaro
 
@@ -4326,9 +3432,7 @@ vico de argilaj dometoj, figaj arbaroj, palmaj bukedoj. ĉiuhore sin montris gru
 
 temploj.
 
-Okcidente la muro de la libiaj montoj desegniĝis ne tre kla-
-
-re; kontraŭe oriente la arabia ĉeno pli kaj pli proksimiĝis al la rivero. Oni povis vidi klare la breĉitajn ŝtonegojn nigrajn, flavajn aŭ rozajn, kiuj rememorigis per la formo ruinojn de ci-
+Okcidente la muro de la libiaj montoj desegniĝis ne tre klare; kontraŭe oriente la arabia ĉeno pli kaj pli proksimiĝis al la rivero. Oni povis vidi klare la breĉitajn ŝtonegojn nigrajn, flavajn aŭ rozajn, kiuj rememorigis per la formo ruinojn de ci-
 
 tadeloj aŭ temploj, konstruitaj de grandeguloj.
 
@@ -4338,18 +3442,12 @@ hieraŭ elakviĝis, kaj hodiaŭ jam estis kovritaj de riĉaj vege-taĵoj kaj lo�
 
 lumo tiel plena de vivo, ke en ĝiaj ondoj la nigra tero fariĝis brila kaj ŝtonoj ĉielarke koloriĝis.
 
-La tempo fluis gaje por la faraono. En la komenco iom in-
-
-citis lin la senĉesaj krioj, sed poste li tiel kutimis al ili, ke li 110
-
-LA FARAONO
+La tempo fluis gaje por la faraono. En la komenco iom incitis lin la senĉesaj krioj, sed poste li tiel kutimis al ili, ke li
 
 
 tute ne atentis ilin. Li povis legi dokumentojn, interkonsiliĝi, eĉ dormi.
 
-Tridek ĝis kvardek mejlojn de Piom, sur la maldekstra bor-
-
-do de Nilo kuŝis granda urbo Siut, en kiu Ramzes ripozis kel-ke da tagoj. Estis eĉ konvene halti, ĉar la mumio de la mortinta reĝo estis ankoraŭ en Abidos, kie ĉe la tombo de Oziriso
+Tridek ĝis kvardek mejlojn de Piom, sur la maldekstra bordo de Nilo kuŝis granda urbo Siut, en kiu Ramzes ripozis kel-ke da tagoj. Estis eĉ konvene halti, ĉar la mumio de la mortinta reĝo estis ankoraŭ en Abidos, kie ĉe la tombo de Oziriso
 
 oni solene preĝis.
 
@@ -4357,9 +3455,7 @@ Siut estis unu el la plej riĉaj urboj de Supra Egipto. Tie oni fabrikis la fama
 
 Tie, fine, estis la fama templo de Anubis, la dio kun la lupa kapo.
 
-En la dua tago sin prezentis al lia sankteco la pastro Pen-
-
-tuer, la ĉefo de la komitato, esploranta la situacion de la popolo.
+En la dua tago sin prezentis al lia sankteco la pastro Pentuer, la ĉefo de la komitato, esploranta la situacion de la popolo.
 
 —ĉu vi havas novaĵojn? — demandis la sinjoro.
 
@@ -4379,18 +3475,12 @@ Pentuer falis sur la vizaĝon antaŭ la bona sinjoro.
 
 —Leviĝu — diris Ramzes. — Tamen mi devas konfesi al vi,
 
-ke mi travivis malfacilajn momentojn. ĉar mi vidas la mize-
-
-ron de mia popolo, deziras relevi ĝin, kaj samtempe oni scii-111
-
-LA FARAONO
+ke mi travivis malfacilajn momentojn. ĉar mi vidas la mizeron de mia popolo, deziras relevi ĝin, kaj samtempe oni scii-111
 
 
 gas al mi, ke la trezorejo estas malplena. Vi ja mem scias plej bone, ke ne posedante kelkdekon da miloj da talentoj, mi ne
 
-povus riski fari tiajn reformojn. Sed hodiaŭ mi jam estas trankvila: mi havas rimedon por elpreni la necesan sumon el La-
-
-birinto.
+povus riski fari tiajn reformojn. Sed hodiaŭ mi jam estas trankvila: mi havas rimedon por elpreni la necesan sumon el Labirinto.
 
 Pentuer kun miro rigardis la monar˛on.
 
@@ -4412,9 +3502,7 @@ miaj amikoj la unuaj, konsentos, ke vi ĉerpu el tiu trezorejo
 
 … Sed … forlasu la iluziojn, via sankteco!… Cent plej altrangaj oficistoj de la ŝtato kontraŭstaros, kaj tiam Labirinto donos nenion …
 
-—Ili do volas, ke mi fariĝu almozulo ĉe iu templo?… — eks-
-
-plodis la faraono.
+—Ili do volas, ke mi fariĝu almozulo ĉe iu templo?… — eksplodis la faraono.
 
 —Ne — respondis la pastro. — Ili timos, ke la trezorejo,
 
@@ -4427,9 +3515,6 @@ Aŭskultinte la vortojn, la sinjoro trankviliĝis, eĉ ek ridetis.
 —Se estas tiel, kara Pentuer, kiel vi diras, estu trankvila —
 
 diris Ramzes. — En la nuna momento mi komprenis, por kio
-
-
-LA FARAONO
 
 
 Amon kreis la povon de la faraono kaj donis al li superhoman potencon. Li faris tion, por ke cent eĉ plej altrangaj friponoj ne povu pereigi la ŝtaton.
@@ -4465,14 +3550,9 @@ Ramzes XIII komencis sian regadon per la honora adoro al la
 tombo de Oziriso.
 
 
-LA FARAONO
-
-
 La templo de Seti ne apartenis al la plej antikvaj kaj belaj en Egipto, sed ĝi distingiĝis per pureco de la egipta stilo. Lia sankteco Ramzes XIII vizitis ĝin kaj faris oferojn, akompanata de la ĉefpastro Sem.
 
-La teroj, apartenantaj al la templo, okupis naŭdek hekta-
-
-rojn, sur kiuj estis fiŝaj lagetoj, ĝardenoj floraj, fruktaj kaj le-gomaj, fine domoj, aŭ pli ĝuste malgrandaj palacoj de la pastroj. ĉie kreskis palmoj, figarboj, oranĝujoj, poploj, akacioj, kiuj formis aŭ aleojn, kiuj sin direktis al la ĉefaj partoj de la mondo, aŭ grupoj de arboj, plantitaj regule kaj preskaŭ de
+La teroj, apartenantaj al la templo, okupis naŭdek hektarojn, sur kiuj estis fiŝaj lagetoj, ĝardenoj floraj, fruktaj kaj le-gomaj, fine domoj, aŭ pli ĝuste malgrandaj palacoj de la pastroj. ĉie kreskis palmoj, figarboj, oranĝujoj, poploj, akacioj, kiuj formis aŭ aleojn, kiuj sin direktis al la ĉefaj partoj de la mondo, aŭ grupoj de arboj, plantitaj regule kaj preskaŭ de
 
 sama alteco.
 
@@ -4482,9 +3562,7 @@ ne kreskis laŭ sia propra impulso, formante neregulajn, sed
 
 pentrindajn arojn; eĉ ĝi dismetis sin laŭ rektaj paralelaj lini-oj, aŭ grupiĝis en geometriajn figurojn.
 
-La palmoj, tamarindoj, cipresoj kaj mirtoj estis kvazaŭ sol-
-
-datoj, en vicoj aŭ kolonoj. La herbo estis tapiŝo, tondita kaj ornamita per floroj, ne de iu ajn koloro, sed de tiu, kiu estis necesa. La popolo rigardante de supre la herbarojn de la temploj, vidis sur ili florantajn bildojn de la dioj aŭ de la sanktaj bestoj; la saĝulo trovis aforismojn, skribitajn per hieroglifoj.
+La palmoj, tamarindoj, cipresoj kaj mirtoj estis kvazaŭ soldatoj, en vicoj aŭ kolonoj. La herbo estis tapiŝo, tondita kaj ornamita per floroj, ne de iu ajn koloro, sed de tiu, kiu estis necesa. La popolo rigardante de supre la herbarojn de la temploj, vidis sur ili florantajn bildojn de la dioj aŭ de la sanktaj bestoj; la saĝulo trovis aforismojn, skribitajn per hieroglifoj.
 
 La mezan parton de la ĝardenoj okupis ortangulo, naŭcent
 
@@ -4495,24 +3573,15 @@ kaj cent kvindek larĝa.
 De la pordego kondukis al la templo aleo de sfinksoj kun
 
 
-LA FARAONO
-
-
 leonaj korpoj kaj homaj kapoj. Ili staris en du vicoj, po dek en ĉiu, kaj rigardis reciproke al si la okulojn. Inter ili povis trairi nur la plej altrangaj oficistoj.
 
-En la fino de la aleo de la sfinksoj, ankaŭ kontraŭ la por-
+En la fino de la aleo de la sfinksoj, ankaŭ kontraŭ la pordego por la popolo, staris du obeliskoj, t. e. maldikaj kaj altaj kvarangulaj kolonoj el granito, sur kiuj estis skribita historio de la faraono Seti.
 
-dego por la popolo, staris du obeliskoj, t. e. maldikaj kaj altaj kvarangulaj kolonoj el granito, sur kiuj estis skribita historio de la faraono Seti.
-
-Nur post la obeliskoj leviĝis la potenca pordego de la tem-
-
-plo, havanta ĉe ambaŭ flankoj grandegajn konstruaĵojn en
+Nur post la obeliskoj leviĝis la potenca pordego de la templo, havanta ĉe ambaŭ flankoj grandegajn konstruaĵojn en
 
 formo de detranĉitaj piramidoj, nomataj pilonoj. Tio estis kvazaŭ du masivaj turoj, sur kies muroj estis pentraĵoj, prezentantaj venkojn de Seti aŭ liajn oferojn al la dioj.
 
-ĉi tiun pordegon ne povis trapasi kamparanoj, sed nur ri-
-
-ĉaj burĝoj kaj privilegiataj klasoj. Tra ĝi oni eniradis en peristilon, korton, ĉirkaŭitan de koridoro, apogita sur multe da
+ĉi tiun pordegon ne povis trapasi kamparanoj, sed nur riĉaj burĝoj kaj privilegiataj klasoj. Tra ĝi oni eniradis en peristilon, korton, ĉirkaŭitan de koridoro, apogita sur multe da
 
 kolonoj. La peristilo povis lokigi ĉirkaŭ dek mil piulojn.
 
@@ -4529,16 +3598,9 @@ kie la pastroj transdonis al la dioj oferojn, alportatajn de la fideluloj.
 Sekvanta estis la ĉambro de la ”ripozo”, kie ripozis la dio, revenanta aŭ iranta al la procesio, lasta — kapelo aŭ sanktejo, kie loĝis la dio.
 
 
-LA FARAONO
+La kapelo estis ordinare tre malgranda kaj malluma, iafoje elhakita en unu ŝtona peco. De ĉiuj flankoj ĉirkaŭis ĝin kapeloj same malgrandaj plenaj de vestoj kaj mebloj, vazoj kaj juveloj de la dio, kiu en sia nealirebla kaŝejo dormis, banis sin kaj oleis, manĝis kaj trinkis, ŝajnas eĉ akceptis vizitojn de junaj kaj belaj virinoj.
 
-
-La kapelo estis ordinare tre malgranda kaj malluma, iafo-
-
-je elhakita en unu ŝtona peco. De ĉiuj flankoj ĉirkaŭis ĝin kapeloj same malgrandaj plenaj de vestoj kaj mebloj, vazoj kaj juveloj de la dio, kiu en sia nealirebla kaŝejo dormis, banis sin kaj oleis, manĝis kaj trinkis, ŝajnas eĉ akceptis vizitojn de junaj kaj belaj virinoj.
-
-En la sanktejon eniradis nur la ĉefpastroj kaj la reganta faraono, se li havis la sanktajn benojn. Simpla mortulo, pene-
-
-trinte tien, povis perdi la vivon.
+En la sanktejon eniradis nur la ĉefpastroj kaj la reganta faraono, se li havis la sanktajn benojn. Simpla mortulo, penetrinte tien, povis perdi la vivon.
 
 La muroj kaj la kolonoj de ĉiu ĉambrego estis kovritaj per
 
@@ -4548,12 +3610,7 @@ klarigaj surskriboj kaj pentraĵoj. En la koridoro, ĉirkaŭanta la peristilon, 
 
 tiel implikitaj frazoj, ke eĉ la pastroj de la tempo de Ramzes XII ne komprenis ilin. Nur la ˘aldeano Beroes devis revivigi la mortantan saĝon.
 
-Ripozinte du tagojn en la registara palaco en Abidos, Ram-
-
-zes XIII sin direktis al la templo. Li portis blankan ĉemizon, antaŭtukon kun oranĝaj kaj bluaj strioj, ŝtalan glavon ĉe la flanko kaj oran kaskon sur la kapo. Li sidiĝis en veturilo, kies ĉevalojn, ornamitajn per strutaj plumoj, kondukis nomar˛oj,
-
-
-LA FARAONO
+Ripozinte du tagojn en la registara palaco en Abidos, Ramzes XIII sin direktis al la templo. Li portis blankan ĉemizon, antaŭtukon kun oranĝaj kaj bluaj strioj, ŝtalan glavon ĉe la flanko kaj oran kaskon sur la kapo. Li sidiĝis en veturilo, kies ĉevalojn, ornamitajn per strutaj plumoj, kondukis nomar˛oj,
 
 
 kaj ĉirkaŭita de sekvantaro malrapide ekveturis al la domo de Oziriso.
@@ -4568,33 +3625,22 @@ Atinginte la templon, la faraono haltigis la ĉevalojn kaj eliris antaŭ la popo
 
 ĝojigis la pastrojn. Piedire li trapasis la aleojn de la sfinksoj, kaj salutita de la sanktaj viroj, bruligis incenson antaŭ la statuoj de Seti, kiuj sidis ĉe ambaŭ flankoj de la granda porde-go.
 
-En la peristilo la ĉefpastro altiris la atenton de lia sankte-co al la artplenaj portretoj de la faraonoj kaj montris la lokon, destinitan por lia portreto. En la hipostilo li klarigis al li sig-nifon de la geografiaj kartoj kaj statistikaj tabeloj. En la ĉambro de la ”dia aperado” Ramzes oferis incenson al la grande-
+En la peristilo la ĉefpastro altiris la atenton de lia sankte-co al la artplenaj portretoj de la faraonoj kaj montris la lokon, destinitan por lia portreto. En la hipostilo li klarigis al li sig-nifon de la geografiaj kartoj kaj statistikaj tabeloj. En la ĉambro de la ”dia aperado” Ramzes oferis incenson al la grandega statuo de Oziriso kaj la ĉefpastro montris al li la kolonojn, oferitajn al apartaj planedoj: Merkurio, Venero, Luno, Mar-so, Jupitero kaj Saturno. Ili staris sep ĉirkaŭ la statuo de la dio de la suno.
 
-ga statuo de Oziriso kaj la ĉefpastro montris al li la kolonojn, oferitajn al apartaj planedoj: Merkurio, Venero, Luno, Mar-so, Jupitero kaj Saturno. Ili staris sep ĉirkaŭ la statuo de la dio de la suno.
-
-—Vi diras al mi — demandis Ramzes — ke estas ses plane-
-
-doj, kaj mi vidas sep kolonojn?…
+—Vi diras al mi — demandis Ramzes — ke estas ses planedoj, kaj mi vidas sep kolonojn?…
 
 —La sepa prezentas la teron, kiu ankaŭ estas planedo —
 
 murmuretis la ĉefpastro.
 
-La mirigita faraono postulis klarigojn, sed la saĝulo silen-
-
-tis, montrante per signoj, ke lia buŝo estas sigelita por pli detalaj klarigoj.
+La mirigita faraono postulis klarigojn, sed la saĝulo silentis, montrante per signoj, ke lia buŝo estas sigelita por pli detalaj klarigoj.
 
 En la ĉambro de la ”oferaj tabloj” eksonis mallaŭta, sed
 
 bela muziko, dum kiu ˛oro de pastrinoj plenumis solenan
 
 
-LA FARAONO
-
-
-dancon. La faraono demetis sian oran kaskon kaj multvalo-
-
-ran kirason kaj transdonis ambaŭ al Oziriso, postulante, ke la donacoj restu en la trezorejo de la dio kaj ne estu transpor-titaj en Labirinton.
+dancon. La faraono demetis sian oran kaskon kaj multvaloran kirason kaj transdonis ambaŭ al Oziriso, postulante, ke la donacoj restu en la trezorejo de la dio kaj ne estu transpor-titaj en Labirinton.
 
 Interŝanĝe por tia malavareco la ĉefpastro donacis al la
 
@@ -4604,15 +3650,11 @@ Kiam la faraono eniris en la ĉambregon de la ”ripozo”, li
 
 sidiĝis sur la trono, kaj lia religia antataŭanto, Sem, ĉe sonoj de la muziko kaj en la fumo de la incensoj eniris en la sanktejon, por elporti de tie la dion.
 
-Post duono de horo ĉe la surdiganta sono de sonoriloj ape-
-
-ris en la krepusko de la ĉambrego ora ŝipeto, kovrita per kurtenoj, kiuj de tempo al tempo moviĝis, kvazaŭ post ili sidus vivanta estaĵo.
+Post duono de horo ĉe la surdiganta sono de sonoriloj aperis en la krepusko de la ĉambrego ora ŝipeto, kovrita per kurtenoj, kiuj de tempo al tempo moviĝis, kvazaŭ post ili sidus vivanta estaĵo.
 
 La pastroj falis sur la vizaĝon, Ramzes pli atente rigardis la diafanajn kurtenojn. Unu el ili foriĝis, kaj la faraono ekvidis tre belan infanon, kiu rigardis lin per tiel saĝaj okuloj, ke la estro de Egipto sentis preskaŭ timon.
 
-—Jen estas Horus — murmuretis la pastroj — Horus, la le-
-
-viĝanta suno. Li estas la filo kaj la patro de Oziriso, kaj la edzo de lia patrino, kiu estas lia fratino.
+—Jen estas Horus — murmuretis la pastroj — Horus, la leviĝanta suno. Li estas la filo kaj la patro de Oziriso, kaj la edzo de lia patrino, kiu estas lia fratino.
 
 Komenciĝis procesio, sed nur en la interno de la templo.
 
@@ -4623,18 +3665,13 @@ Kiam la procesio trapasis ĉiujn ĉambregojn kaj koridorojn
 de la templo, la dio kaj Ramzes ambaŭ revenis en la ĉambron
 
 
-LA FARAONO
-
-
 de la ripozo. La kurtenoj, kovrantaj la sanktan ŝipeton, ree disiĝis, kaj la bela infano ekridetis al la faraono.
 
 Sem reportis la ŝipeton kaj la dion en la kapelon. ”Eble mi
 
 devus fariĝi ĉefpastro?” — pensis la monar˛o, al kiu la infa-no tiel plaĉis, ke li dezirus vidi ĝin plej ofte.
 
-Sed kiam li eliris el la templo, ekvidis la sunon kaj la sennombran popolamason, li konfesis en sia koro, ke li kompre-
-
-nas nenion. De kie venis la infano, similanta neniun egiptan, de kie la superhoma saĝo en ĝiaj okuloj, kaj kion signifas ĉio ĉi?…
+Sed kiam li eliris el la templo, ekvidis la sunon kaj la sennombran popolamason, li konfesis en sia koro, ke li komprenas nenion. De kie venis la infano, similanta neniun egiptan, de kie la superhoma saĝo en ĝiaj okuloj, kaj kion signifas ĉio ĉi?…
 
 Subite li rememoris sian mortigitan fileton, kiu povus esti
 
@@ -4660,19 +3697,12 @@ via sankteco.
 
 —Bone, enkonduku lin.
 
-—Li petegas vin, sinjoro, ke vi akceptu lin en la tendo, me-
-
-ze de la militista tendaro, kaj certigas, ke la muroj de la palaco amas aŭskulti …
-
-
-LA FARAONO
+—Li petegas vin, sinjoro, ke vi akceptu lin en la tendo, meze de la militista tendaro, kaj certigas, ke la muroj de la palaco amas aŭskulti …
 
 
 —Mi dezirus scii, kion li volas? — diris la faraono kaj anoncis al la korteganoj, ke li pasigos la nokton en la tendaro.
 
-Antaŭ la subiro de la suno la sinjoro forveturis kun Tutmo-
-
-zis al sia fidela armeo; li trovis tie la reĝan tendon, antaŭ kiu laŭ ordono de Tutmozis la gardan postenon okupis Azianoj.
+Antaŭ la subiro de la suno la sinjoro forveturis kun Tutmozis al sia fidela armeo; li trovis tie la reĝan tendon, antaŭ kiu laŭ ordono de Tutmozis la gardan postenon okupis Azianoj.
 
 Vespere venis Samentu en pilgrima mantelo kaj respekte
 
@@ -4682,9 +3712,7 @@ salutinte lian sanktecon, flustris:
 
 kiu haltis proksime de via tendo. Eble li estas sendita de ĉefpastroj?…
 
-Laŭ ordono de la faraono Tutmozis elkuris kaj efektive tro-
-
-vis fremdan oficiron.
+Laŭ ordono de la faraono Tutmozis elkuris kaj efektive trovis fremdan oficiron.
 
 —Kiu vi estas? — demandis li.
 
@@ -4692,13 +3720,9 @@ vis fremdan oficiron.
 
 La malfeliĉa Eunana, ĉu via ekscelenco ne memoras min?…
 
-Antaŭ pli ol unu jaro dum la manovroj apud Pi-Bailos mi ri-
+Antaŭ pli ol unu jaro dum la manovroj apud Pi-Bailos mi rimarkis la sanktajn skarabojn …
 
-markis la sanktajn skarabojn …
-
-—Ah, tio estas vi!… — interrompis Tutmozis. — Via regi-
-
-mento ja ne estas en Abidos?
+—Ah, tio estas vi!… — interrompis Tutmozis. — Via regimento ja ne estas en Abidos?
 
 —La akvo de la vero fluas de viaj lipoj. Nia tendaro estas en la mizera ĉirkaŭaĵo de Mena, kie la pastroj ordonis al ni rebonigi la kanalojn, kvazaŭ al kamparanoj aŭ Hebreoj …
 
@@ -4717,16 +3741,11 @@ razitaj kapoj, kiuj ne donas al mi promocion, ĉar mi estas
 kompatema al la suferoj de la soldatoj.
 
 
-LA FARAONO
-
-
 Tutmozis revenis ĉagrenita en la tendon kaj ripetis al la faraono la interparoladon kun Eunana.
 
 —Eunana? — ripetis la sinjoro. — Jes. Mi memoras lin … Li
 
-faris al ni embarason kun la skaraboj, sed rekompence li ri-
-
-cevis bastonadon dank’al Herhor. Kaj vi diras, ke li plendas kontraŭ la pastroj?… Li venu ĉi tien!…
+faris al ni embarason kun la skaraboj, sed rekompence li ricevis bastonadon dank’al Herhor. Kaj vi diras, ke li plendas kontraŭ la pastroj?… Li venu ĉi tien!…
 
 La faraono ordonis al Samentu foriri en alian parton de la
 
@@ -4734,9 +3753,7 @@ tendo kaj sendis sian favoraton, por ke li alkonduku Eunanan.
 
 Baldaŭ aperis la malfeliĉa oficiro. Li falis sur la viziaĝon, kaj poste, genuante kaj ĝemante, li diris:
 
-”ĉiutage mi preĝas al Ra Harma˛is ĉe lia leviĝo kaj subi-
-
-ro kaj al Amon, Re, Ptah, kaj al aliaj dioj kaj diinoj. Estu sana, monar˛o de Egipto! Konservu plej longe vian vivon! Sukcesu en ĉio, kaj mi povu vidi almenaŭ la brilon de viaj kalka-
+”ĉiutage mi preĝas al Ra Harma˛is ĉe lia leviĝo kaj subiro kaj al Amon, Re, Ptah, kaj al aliaj dioj kaj diinoj. Estu sana, monar˛o de Egipto! Konservu plej longe vian vivon! Sukcesu en ĉio, kaj mi povu vidi almenaŭ la brilon de viaj kalka-
 
 noj …”1
 
@@ -4744,31 +3761,20 @@ noj …”1
 
 unufoje obeante la ceremoniaron.
 
-—Lia siankteco bonvolas demandi: kion vi deziras? — ripe-
+—Lia siankteco bonvolas demandi: kion vi deziras? — ripetis Tutmozis.
 
-tis Tutmozis.
-
-La malsincera Eunana, ĉiam genuante, sin turnis al la fa-
-
-vorato kaj daŭrigis:
+La malsincera Eunana, ĉiam genuante, sin turnis al la favorato kaj daŭrigis:
 
 —Via ekscelenco estas la okulo kaj orelo de la sinjoro, kiu
 
 donas al ni la ĝojon kaj vivon, mi do respondos al vi kvazaŭ al la tribunalo de Oziriso: dek jarojn mi servas en la pastra regimento de la dio Izido, ses fojojn mi batalis ĉe la orientaj limoj. Miaj samaĝuloj jam estas generaloj, kaj mi ĉiam estas nur centestro, ĉiam ricevas bastonadon, laŭ ordono de la piaj pastroj. Kial tia maljustaĵo? ”Tage mi turnas mian koron al la libroj, kaj nokte mi legas; ĉar malsaĝa estas tiu, kiu forlasas la 1 Aŭtentika.
 
 
-LA FARAONO
-
-
 librojn tiel rapide, kiel forkuranta gazelo; malnobla estas lia animo, egala al la azeno, kiu ricevas vipojn, egala al la surd-ulo, kiu ne aŭdas kaj al kiu oni devas paroli per la mano. Malgraŭ mia soifo al la scienco, mi ne estas malmodesta pri mia scio, sed mi akceptas la konsilojn de ĉiuj, ĉar de ĉiuj oni povas lerni ion, kaj la respektindajn saĝulojn mi ĉirkaŭas per mia respekto!…”
 
-La faraono faris malpaciencan movon, sed li aŭskultlis, sci-
+La faraono faris malpaciencan movon, sed li aŭskultlis, sciante, ke Egiptano opinias la babiladon sia devo kaj plej alta respekto por la superuloj.
 
-ante, ke Egiptano opinias la babiladon sia devo kaj plej alta respekto por la superuloj.
-
-—Jen kia mi estas — daŭrigis Eunana. — ”En la fremda do-
-
-mo mi ne rigardas al la virinoj, mi donas al la servistoj manĝi, kiel konvenas, sed mi mem ne malpacas ĉe la divido. Mi havas ĉiam kontentan vizaĝon, kaj en la ĉeesto de miaj superu-
+—Jen kia mi estas — daŭrigis Eunana. — ”En la fremda domo mi ne rigardas al la virinoj, mi donas al la servistoj manĝi, kiel konvenas, sed mi mem ne malpacas ĉe la divido. Mi havas ĉiam kontentan vizaĝon, kaj en la ĉeesto de miaj superu-
 
 loj mi ĉiam kondutas kun respekto kaj sidiĝas neniam, kiam
 
@@ -4776,20 +3782,13 @@ pli aĝa homo staras. Mi ne estas trudema kaj neinvitita mi ne eniras en fremdan
 
 silentas, ĉar mi scias, ke oni estas surda por tiuj, kiuj uzas multe da vortoj. La saĝo instruas, ke la korpo de la homo similas grenejon, plenan de diversaj respondoj. Kaj tial mi ĉiam elektas bonan respondon kaj diras ĝin, kaj la malbonan mi
 
-konservas en mia animo. Mi ne ripetas la kalumniojn kaj kon-
-
-cerne la komisioj, mi ĉiam plej bone plenumas ilin …”2
+konservas en mia animo. Mi ne ripetas la kalumniojn kaj koncerne la komisioj, mi ĉiam plej bone plenumas ilin …”2
 
 Kaj kion mi havas por tio?… — finis Eunana per pli laŭta
 
 voĉo. — Mi suferas la malsaton, portas ĉifonojn, kaj sur la
 
-dorso mi ne povas kuŝi, tiel batita ĝi estas. Mi legas en la libroj, ke la pastraro rekompensadis iam la kuraĝon kaj pru-
-
-denton. Vere! tio devis esti antaŭ tre longe. ĉar la hodiaŭaj 2 Aŭtentikaj malnovegiptaj maksimoj.
-
-
-LA FARAONO
+dorso mi ne povas kuŝi, tiel batita ĝi estas. Mi legas en la libroj, ke la pastraro rekompensadis iam la kuraĝon kaj prudenton. Vere! tio devis esti antaŭ tre longe. ĉar la hodiaŭaj 2 Aŭtentikaj malnovegiptaj maksimoj.
 
 
 pastroj sin deturnas de la prudentaj homoj kaj forpelas la
@@ -4798,9 +3797,7 @@ forton kaj kuraĝon el la oficiraj ostoj …
 
 —Mi ekdormos apud tiu ĉi homo!… — diris la faraono.
 
-—Eunana — aldonis Tutmozis — vi konvinkis lian sankte-
-
-con, ke vi estas sperta en la libroj, kaj nun diru al ni plej mallonge, kion vi deziras?
+—Eunana — aldonis Tutmozis — vi konvinkis lian sanktecon, ke vi estas sperta en la libroj, kaj nun diru al ni plej mallonge, kion vi deziras?
 
 —La sago ne tiel rapide trafas celon, kiel rapide mia peto
 
@@ -4810,13 +3807,9 @@ La servado ĉe la razitaj kapoj fariĝis por mi tiel abomena, la pastroj plenigi
 
 La lastajn frazojn Eunana diris kun tiel rabia kolero, ke la faraono sin turnis greke al Tutmozis.
 
-—Prenu lin en la gvardion. Oficiro, kiu tiel malamas la pas-
+—Prenu lin en la gvardion. Oficiro, kiu tiel malamas la pastrojn, povas esti utila al ni.
 
-trojn, povas esti utila al ni.
-
-—Lia sankteco, la sinjoro de ambaŭ mondoj, ordonis ak-
-
-cepti vin en la gvardion — ripetis Tutmozis.
+—Lia sankteco, la sinjoro de ambaŭ mondoj, ordonis akcepti vin en la gvardion — ripetis Tutmozis.
 
 —Mia sano kaj vivo apartenas al nia sinjoro Ramzes … li
 
@@ -4831,14 +3824,9 @@ kelkon da paŝoj falante sur la vizaĝon kaj benante la monar-
 —Lia babilado tiklis mian gorĝon … Mi devas instrui la
 
 
-LA FARAONO
-
-
 egiptajn soldatojn kaj oficirojn esprimi ĉion mallonge, ne kiel scienculoj.
 
-—Se li havus nur ĉi solan mankon!… — murmuretis Tut-
-
-mozis, sur kiun Eunana faris malagrablan impreson.
+—Se li havus nur ĉi solan mankon!… — murmuretis Tutmozis, sur kiun Eunana faris malagrablan impreson.
 
 La sinjoro alvokis Samentuon.
 
@@ -4848,9 +3836,7 @@ La sinjoro alvokis Samentuon.
 
 nun — aldonis la faraono — kio igas vin esti tiel singarda?
 
-—Mi jam preskaŭ konas la vojon al la trezorejo en Labirin-
-
-to — respondis Samentu.
+—Mi jam preskaŭ konas la vojon al la trezorejo en Labirinto — respondis Samentu.
 
 La sinjoro skuis la kapon.
 
@@ -4860,17 +3846,13 @@ diversaj koridoroj kaj ĉambregoj, kiel muso, kiun persekutas kato. Kaj mi konfe
 
 ĉielo povas esti gaja; sed la morto en tiuj truoj, en kiuj talpo perdus la vojon, brr …
 
-—Tamen ni devas trovi kaj okupi ĉi tiun vojon — diris Sam-
-
-entu.
+—Tamen ni devas trovi kaj okupi ĉi tiun vojon — diris Samentu.
 
 —Kaj se la gardistoj donos al ni la necesan parton de la
 
 trezoroj? — demandis la faraono.
 
-—Ili ne faros tion, dum vivas Mefres, Herhor kaj liaj par-
-
-tianoj. Kredu al mi, sinjoro, ke ĉi tiuj altranguloj volas teni vin en vindoj kvazaŭ suĉinfanon …
+—Ili ne faros tion, dum vivas Mefres, Herhor kaj liaj partianoj. Kredu al mi, sinjoro, ke ĉi tiuj altranguloj volas teni vin en vindoj kvazaŭ suĉinfanon …
 
 La faraono paliĝis de kolero.
 
@@ -4878,12 +3860,7 @@ La faraono paliĝis de kolero.
 
 vojon?
 
-—ĉi tie, en Abidos, en la tombo de Oziriso mi trovis la tu-
-
-tan planon de la vojo al la trezorejo — diris la pastro.
-
-
-LA FARAONO
+—ĉi tie, en Abidos, en la tombo de Oziriso mi trovis la tutan planon de la vojo al la trezorejo — diris la pastro.
 
 
 —Kaj de kie vi sciis, ke ĝi estis ĉi tie.
@@ -4892,9 +3869,7 @@ LA FARAONO
 
 —Kiam vi trovis la planon?
 
-—Kiam la mumio de la eterne vivanta patro de via sankte-
-
-co estis en la templo de Oziriso — respondis Samentu. — Mi
+—Kiam la mumio de la eterne vivanta patro de via sankteco estis en la templo de Oziriso — respondis Samentu. — Mi
 
 akompanis la sanktajn restaĵojn kaj deĵorante nokte en la
 
@@ -4904,9 +3879,7 @@ akompanis la sanktajn restaĵojn kaj deĵorante nokte en la
 
 Ramzes. — Kaj vi jam komprenas la vojon al Labirinto?
 
-—Jam de longe mi komprenis ĝin, nun mi kolektis la mont-
-
-rojn por min direkti.
+—Jam de longe mi komprenis ĝin, nun mi kolektis la montrojn por min direkti.
 
 —ĉu vi povas tion klarigi al mi?
 
@@ -4914,17 +3887,13 @@ rojn por min direkti.
 
 vojo — daŭrigis Samentu — iras zigzage kvar fojojn tra la tuta Labirinto; ĝi komenciĝas en la plej alta etaĝo, finiĝas en la plej profunda subteraĵo kaj posedas diversajn aliajn kurbiĝojn. Jen kial ĝi estas longa.
 
-—Kiel vi transpasos de unu ĉambrego al alia, kie estas mul-
-
-te da pordoj?…
+—Kiel vi transpasos de unu ĉambrego al alia, kie estas multe da pordoj?…
 
 —Sur ĉiu pordo, kondukanta al la celo, estas parto de la
 
 frazo: ”Ve al la perfidulo, kiu penas trapenetri la plej altan sekreton de la ŝtato kaj etendi malpian manon al la riĉaĵoj de la dioj. Lia kadavro estos, kvazaŭ mortaĉaĵo, kaj lia spirito ne
 
-ĝuos ripozon, sed vagos en mallumaj lokoj, ŝirata de la pro-
-
-praj pekoj …”
+ĝuos ripozon, sed vagos en mallumaj lokoj, ŝirata de la propraj pekoj …”
 
 —Kaj vin ne fortimigas la surskribo?
 
@@ -4935,9 +3904,6 @@ estas bonaj por la popolaĉo, ne por mi, kiu mem scius skribi ankoraŭ pli terur
 La faraono ekmeditis.
 
 
-LA FARAONO
-
-
 —Vi estas prava — diris li. — La lanco ne malutilos tiun, kiu scias ĝin rebati, kaj trompa vojo ne erarigos la saĝulon, kiu konas la parolon de la vero … Sed kion vi faros, por ke cedu antaŭ vi la ŝtonoj en la muroj kaj por ke la kolonoj ŝanĝiĝu en pordojn de la eniro?…
 
 Samentu malestime levis la ŝultrojn.
@@ -4946,9 +3912,7 @@ Samentu malestime levis la ŝultrojn.
 
 eniroj, eĉ pli malfacile malfermeblaj, ol tiuj de Labirinto. Kiu konas la vorton de la sekreto, atingas ĉion, kiel prave diris via sankteco.
 
-La faraono apogis la kapon sur la mano kaj daŭrigis med-
-
-iti.
+La faraono apogis la kapon sur la mano kaj daŭrigis mediti.
 
 —Mi bedaŭrus, se sur la vojo renkontus vin malfeliĉo …
 
@@ -4970,9 +3934,7 @@ Mi ja ne eniros, kiel via sankteco, tage, nek tra la ĉefa pordego.
 
 —En la ekstera muro estas pordetoj, kiujn mi konas, kaj
 
-kiujn la pastroj de Labirinto gardas neniam … En la korto la gardistoj nokte estas malmultenombraj kaj tiel fidas al la protekto de la dioj aŭ al la timo de la popolaĉo, ke plej ofte ili 126
-
-LA FARAONO
+kiujn la pastroj de Labirinto gardas neniam … En la korto la gardistoj nokte estas malmultenombraj kaj tiel fidas al la protekto de la dioj aŭ al la timo de la popolaĉo, ke plej ofte ili
 
 
 dormas … Krom tio, trifoje inter la subiro kaj la leviĝo de la suno, la pastroj iras en la templon preĝi kaj iliaj soldatoj faras la samon sub la libera ĉielo. Antaŭ ol ili finos unu diservon, mi estos en la trezorejo.
@@ -4981,17 +3943,11 @@ dormas … Krom tio, trifoje inter la subiro kaj la leviĝo de la suno, la pastr
 
 —Mi havas la planon.
 
-—Kaj se la plano estas malvera? — diris la faraono, ne po-
+—Kaj se la plano estas malvera? — diris la faraono, ne povante kaŝi sian maltrankvilon.
 
-vante kaŝi sian maltrankvilon.
+—Kaj se via sankteco ne akiros la trezorojn?… Se Fenicianoj, post konsidero, ne donos la promesitan prunton?… Se la
 
-—Kaj se via sankteco ne akiros la trezorojn?… Se Fenicia-
-
-noj, post konsidero, ne donos la promesitan prunton?… Se la
-
-armeo estos malsata kaj la esperoj de la popolaĉo trompi-
-
-taj?… Bonvolu kredi al mi, mia sinjoro — daŭrigis la pastro —
+armeo estos malsata kaj la esperoj de la popolaĉo trompitaj?… Bonvolu kredi al mi, mia sinjoro — daŭrigis la pastro —
 
 ke mi, inter la koridoroj de Labirinto, estos pli sendanĝera, ol vi en via regno …
 
@@ -5015,20 +3971,14 @@ ses jarojn, kaj mi, havante multe da libera tempo, vagis inter la montoj kaj viz
 
 Koridorojn kelke da horoj longajn; malvastajn enirojn, tra
 
-kiuj oni devis rampi sur la ventro; ĉambrojn tiel grandegajn, ke ĉiu el ili povus enteni templon. Mi vidis subterajn riverojn 127
-
-LA FARAONO
+kiuj oni devis rampi sur la ventro; ĉambrojn tiel grandegajn, ke ĉiu el ili povus enteni templon. Mi vidis subterajn riverojn
 
 
-kaj lagojn, kristalajn konstruaĵojn, tute mallumajn kavernojn, en kiuj oni ne povis vidi la propran manon, aŭ tiel lumajn, ke kvazaŭ iu suno brilis en ili … Kiom da fojoj mi perdis la vojon en la sennombraj trairoj, kiom da fojoj estingiĝis mia tor-
-
-ĉo, kiom da fojoj mi rulfalis en nevideblan senfundaĵon!…
+kaj lagojn, kristalajn konstruaĵojn, tute mallumajn kavernojn, en kiuj oni ne povis vidi la propran manon, aŭ tiel lumajn, ke kvazaŭ iu suno brilis en ili … Kiom da fojoj mi perdis la vojon en la sennombraj trairoj, kiom da fojoj estingiĝis mia torĉo, kiom da fojoj mi rulfalis en nevideblan senfundaĵon!…
 
 Ofte mi pasigis kelke da tagoj en la subteraĵoj, nutrante min per rostita hordeo, lekante la malsekaĵon de la ŝtonegoj, ne sciante, ĉu mi revenos en la mondon. Sed mi akiris sperton,
 
-mia vidado fariĝis pli sentema, mi eĉ ekamis tiun inferan landon. Hodiaŭ, kiam mi pensas pri la infanaj kaŝejoj de Labirin-to, mi volas ridi … La homaj konstruaĵoj estas talpejoj kom-
-
-pare kun la senlimaj konstruaĵoj, faritaj de la silentaj kaj nevideblaj spiritoj de la tero. Sed foje mi renkontis teruran ob-jekton, kiu tute ŝanĝis miajn opiniojn. Okcidente de la minejo de Sinai sin etendas nodo de valoj kaj montoj, kie ofte sonas subteraj tondroj, la tero tremas kaj iafoje oni vidas flamojn.
+mia vidado fariĝis pli sentema, mi eĉ ekamis tiun inferan landon. Hodiaŭ, kiam mi pensas pri la infanaj kaŝejoj de Labirin-to, mi volas ridi … La homaj konstruaĵoj estas talpejoj kompare kun la senlimaj konstruaĵoj, faritaj de la silentaj kaj nevideblaj spiritoj de la tero. Sed foje mi renkontis teruran ob-jekton, kiu tute ŝanĝis miajn opiniojn. Okcidente de la minejo de Sinai sin etendas nodo de valoj kaj montoj, kie ofte sonas subteraj tondroj, la tero tremas kaj iafoje oni vidas flamojn.
 
 Interesita mi iris tien por pli longa tempo, mi serĉis kaj dank’
 
@@ -5036,17 +3986,10 @@ al nerimarkebla fendo mi trovis tutan ĉenon de grandegaj
 
 kavernoj, sub kies arkaĵoj povus stari plej alta piramido. Kiam mi vagis tie, alflugis al mi forta putra odoro, tiel abomena, ke mi volis forkuri. Sed mi ekregis min, eniris en la kavernon, de kie ĝi venis, kaj mi ekvidis … Bonvolu imagi, sinjoro, homon, kiu havas piedojn kaj manojn je duono malpli longajn ol ni,
 
-sed dikajn, malgraciajn kaj finitajn per ungegoj. Aldonu al tio larĝan voston, platigitan de la flankoj, dentan supre, kiel la koka kresto; aldonu tre longan kolon kaj sur ĝi hundan kapon. Fine, vestu la monstron per armaĵo, kovrita sur la dor-
-
-so per kurbaj pikiloj … Nun imagu, ke la figuro staras sur la piedoj, apogita al la ŝtonego per la manoj kaj brusto …
+sed dikajn, malgraciajn kaj finitajn per ungegoj. Aldonu al tio larĝan voston, platigitan de la flankoj, dentan supre, kiel la koka kresto; aldonu tre longan kolon kaj sur ĝi hundan kapon. Fine, vestu la monstron per armaĵo, kovrita sur la dorso per kurbaj pikiloj … Nun imagu, ke la figuro staras sur la piedoj, apogita al la ŝtonego per la manoj kaj brusto …
 
 
-LA FARAONO
-
-
-—Io tre malbela — intermetis la faraono. — Mi tuj morti-
-
-gus tion …
+—Io tre malbela — intermetis la faraono. — Mi tuj mortigus tion …
 
 —Tio ne estis malbela — diris la pastro, ektremante. — ĉar
 
@@ -5054,9 +3997,7 @@ imagu, sinjoro, ke la monstro estis tiel alta, kiel obelisko …
 
 Ramzes faris geston de malkontenteco.
 
-—Samentu — diris li — ŝajnas al mi, ke vi vizitis viajn ka-
-
-vernojn en sonĝo …
+—Samentu — diris li — ŝajnas al mi, ke vi vizitis viajn kavernojn en sonĝo …
 
 —Mi ĵuras al vi, per la vivo de miaj infanoj — ekkriis la pastro — ke mi diras la veron!… ĉi tiu monstro en la haŭto de
 
@@ -5068,17 +4009,11 @@ atente rigardis ĝin.
 
 —i do vivis?
 
-—Ne. Tio estis kadavro tre malnova, sed tiel bone konser-
+—Ne. Tio estis kadavro tre malnova, sed tiel bone konservita, kiel niaj mumioj, dank’al la sekeco de la aero aŭ aliaj teraj saloj, nekonataj de mi. Tio estis mia lasta trovaĵo — daŭ-
 
-vita, kiel niaj mumioj, dank’al la sekeco de la aero aŭ aliaj teraj saloj, nekonataj de mi. Tio estis mia lasta trovaĵo — daŭ-
+rigis Samentu. — Mi ne iris plu en la kavernojn, sed mi multe meditis. Oziriso — pensis mi — kreas grandajn estaĵojn: le-onojn, elefantojn, ĉevalojn … Set naskas serpenton, vesper-
 
-rigis Samentu. — Mi ne iris plu en la kavernojn, sed mi mul-
-
-te meditis. Oziriso — pensis mi — kreas grandajn estaĵojn: le-onojn, elefantojn, ĉevalojn … Set naskas serpenton, vesper-
-
-ton, krokodilon … La monstro, kiun mi renkontis, estas sen-
-
-dube kreaĵo de Set; kaj ĉar ĝi superas per sia kresko ĉion, kion mi konas sub la suno, do Set estas pli forta dio, ol Oziriso.
+ton, krokodilon … La monstro, kiun mi renkontis, estas sendube kreaĵo de Set; kaj ĉar ĝi superas per sia kresko ĉion, kion mi konas sub la suno, do Set estas pli forta dio, ol Oziriso.
 
 Tiam mi konvertiĝis al Set, kaj reveninte Egipton, mi ekloĝis en lia templo. Kaj kiam mi rakontis al la pastroj pri miaj aventuroj, ili klarigis al mi, ke ili konas multajn tiajn monstrojn.
 
@@ -5088,76 +4023,50 @@ Samentu iom ripozis kaj daŭrigis:
 
 montros al vi en la tomboj strangajn kaj terurajn estaĵojn:
 
-anserojn kun lacertaj kapoj kaj vespertaj flugiloj, lacertojn 129
-
-LA FARAONO
+anserojn kun lacertaj kapoj kaj vespertaj flugiloj, lacertojn
 
 
 similajn al cignoj, sed pli grandajn ol strutoj, krokodilon trifoje pli longan ol tiuj, kiuj loĝas en Nilo, ranon tiel grandan, kiel hundo … Tio estas aŭ mumioj, aŭ skeletoj, trovitaj en
 
 kavernoj kaj konservataj en niaj tomboj. La popolo pensas, ke ni preĝas al ili, kaj ni nur esploras ilian strukturon kaj gardas ilin de la putro.
 
-—Mi kredos al vi, kiam mi mem vidos — respondis la fa-
+—Mi kredos al vi, kiam mi mem vidos — respondis la faraono. — Sed diru al mi, de kie povus aperi en la kavernoj tiaj estaĵoj?…
 
-raono. — Sed diru al mi, de kie povus aperi en la kavernoj tiaj estaĵoj?…
-
-—Mia sinjoro, — diris la pastro — la mondo, en kiu ni vi-
-
-vas, profunde aliiĝas. Jam en Egipto ni trovas ruinojn de urboj kaj temploj, kaŝitaj profunde en la tero. Estis tempo, kiam la lokon de Malsupra Egipto okupis brako de la maro kaj Nilo fluis je la tuta larĝo de nia valo. En la tempoj ankoraŭ pli antikvaj tie, kie estas nia regno, estis la maro … Niaj antaŭuloj loĝis la landon, kiun nun okupas la okcidenta dezerto … An-taŭ dekoj da jarmiloj ne ekzistis homoj, kiel ni, sed kreaĵoj, similaj al simioj, kiuj tamen sciis konstrui terdomojn, konser-vi fajron, batali per bastonegoj kaj ŝtonoj. Tiam ekzistis nek ĉevaloj, nek bovoj; grandegaj elefantoj, rinoceroj kaj leonoj trifoje superis per sia kresko la nunajn samnomajn bestojn.
+—Mia sinjoro, — diris la pastro — la mondo, en kiu ni vivas, profunde aliiĝas. Jam en Egipto ni trovas ruinojn de urboj kaj temploj, kaŝitaj profunde en la tero. Estis tempo, kiam la lokon de Malsupra Egipto okupis brako de la maro kaj Nilo fluis je la tuta larĝo de nia valo. En la tempoj ankoraŭ pli antikvaj tie, kie estas nia regno, estis la maro … Niaj antaŭuloj loĝis la landon, kiun nun okupas la okcidenta dezerto … An-taŭ dekoj da jarmiloj ne ekzistis homoj, kiel ni, sed kreaĵoj, similaj al simioj, kiuj tamen sciis konstrui terdomojn, konser-vi fajron, batali per bastonegoj kaj ŝtonoj. Tiam ekzistis nek ĉevaloj, nek bovoj; grandegaj elefantoj, rinoceroj kaj leonoj trifoje superis per sia kresko la nunajn samnomajn bestojn.
 
 Sed eĉ la grandegaj elefantoj ne estas la plej antikvaj kreaĵoj.
 
-Antaŭ ili vivis grandegaj rampaĵoj: flugantaj, naĝantaj kaj pa-
-
-ŝantaj. Antaŭ la rampaĵoj estis en nia mondo nur moluskoj
+Antaŭ ili vivis grandegaj rampaĵoj: flugantaj, naĝantaj kaj paŝantaj. Antaŭ la rampaĵoj estis en nia mondo nur moluskoj
 
 kaj fiŝoj, kaj antaŭ ili nur vegetaĵoj, sed tiaj, kiaj ne ekzistas hodiaŭ.
 
 —Kaj antaŭe? — demandis Ramzes.
 
-—Antaŭe la tero estis dezerta kaj malplena, kaj la Dia spi-
+—Antaŭe la tero estis dezerta kaj malplena, kaj la Dia spirito sin portis super la akvoj.
 
-rito sin portis super la akvoj.
+—Mi ion aŭdis pri tio — diris la faraono — sed mi ne kredos, antaŭ ol vi montros al mi la mumion de la monstroj, kiuj, kiel vi diras, ripozas en via templo.
 
-—Mi ion aŭdis pri tio — diris la faraono — sed mi ne kre-
-
-
-LA FARAONO
-
-
-dos, antaŭ ol vi montros al mi la mumion de la monstroj, kiuj, kiel vi diras, ripozas en via templo.
-
-—Kun la permeso de via sankteco, mi finos, kion mi ko-
-
-mencis — diris Samentu. — Kiam en la kaverno de Sinai mi
+—Kun la permeso de via sankteco, mi finos, kion mi komencis — diris Samentu. — Kiam en la kaverno de Sinai mi
 
 ekvidis la grandegan kadavron, la timo ekregis min kaj dum
 
 kelke da jaroj mi volis iri en neniun kavernon. Sed la pastroj de Set klarigis al mi, de kie venis tiel strangaj estaĵoj, kaj mia timo malaperis, grandiĝis scivolo. Hodiaŭ ne ekzistas por mi pli agrabla ludo, ol vagi sub la tero kaj serĉi vojon en la mallumo. Jen kial Labirinto ne estos por mi pli malfacila, ol promeno tra la reĝa palaco.
 
-—Samentu — diris la sinjoro — mi tre ŝatas vian superho-
-
-man kuraĝon kaj saĝon. Vi rakontis al mi tiom da interesaj
+—Samentu — diris la sinjoro — mi tre ŝatas vian superhoman kuraĝon kaj saĝon. Vi rakontis al mi tiom da interesaj
 
 aferoj, ke, vere, mi mem volonte vizitus la kavernojn kaj iam mi veturos kun vi al Sinai. Tamen mi dubas, ĉu vi sukcesos en Labirinto, kaj por ĉiu eventualo, mi kunvokos la kunvenon de Egiptanoj, por ricevi la rajtigon profiti de la trezorejo.
 
 —Tio ne povas malutili — respondis la pastro. — Sed mia
 
-laboro ne estos malpli necesa, ĉar Mefres kaj Herhor ne kon-
+laboro ne estos malpli necesa, ĉar Mefres kaj Herhor ne konsentos doni la trezorojn.
 
-sentos doni la trezorojn.
-
-—ĉu vi havas la certecon, ke vi sukcesos? — insiste deman-
-
-dis la faraono.
+—ĉu vi havas la certecon, ke vi sukcesos? — insiste demandis la faraono.
 
 —De la tempo, kiam ekzistas Egipto — penis konvinki lin
 
 Samentu — estis neniu homo, kiu posedis tiom da rimedoj,
 
-kiel mi, por venki en ĉi tiu batalo, kiu eĉ ne estas por mi batalo, sed ludo. Unujn timigas la mallumo, kiun mi amas kaj eĉ vidas en ĝi. Aliaj ne scias sin direkti inter la multenombraj ĉambroj kaj koridoroj, mi faras tion tre facile. Ankoraŭ aliaj ne konas la sekreton, kiel malfermi la kaŝitajn pordojn, kion mi scias tre bone. Se mi posedus nenion plu, ol tion, kion mi 131
-
-LA FARAONO
+kiel mi, por venki en ĉi tiu batalo, kiu eĉ ne estas por mi batalo, sed ludo. Unujn timigas la mallumo, kiun mi amas kaj eĉ vidas en ĝi. Aliaj ne scias sin direkti inter la multenombraj ĉambroj kaj koridoroj, mi faras tion tre facile. Ankoraŭ aliaj ne konas la sekreton, kiel malfermi la kaŝitajn pordojn, kion mi scias tre bone. Se mi posedus nenion plu, ol tion, kion mi
 
 
 ĵus citis, en la daŭro de unu monato aŭ du mi trovus la vojon en Labirinto. Sed mi posedas krom tio detalan planon de la
@@ -5166,9 +4075,7 @@ trairoj kaj mi konas la parolojn, kiuj kondukos min de unu
 
 ĉambrego al alia. Kio do povas malhelpi min?…
 
-—Tamen sur la fundo de via koro sin kaŝas dubo: vi ekti-
-
-mis la oficiron, kiu, ŝajnis, iris post vi...
+—Tamen sur la fundo de via koro sin kaŝas dubo: vi ektimis la oficiron, kiu, ŝajnis, iris post vi...
 
 La pastro levis la ŝultrojn.
 
@@ -5199,22 +4106,15 @@ montoj oni suriras super senfundaĵoj; en tia ekskurso la pie-do povas ekgliti k
 helpanto.
 
 
-LA FARAONO
-
-
-ĉAPITRO NAŭA
+ĈAPITRO NAŬA
 
 Forlasinte Abidoson, Ramzes veturis senhalte kontraŭ la
 
-fluo de la rivero al la urboj Tan-ta-ren (Dendera) kaj Ke-
-
-ne, kiuj kuŝis unu preskaŭ kontraŭ la alia: unu sur la orien-ta, la alia sur la okcidenta bordo de Nilo.
+fluo de la rivero al la urboj Tan-ta-ren (Dendera) kaj Kene, kiuj kuŝis unu preskaŭ kontraŭ la alia: unu sur la orien-ta, la alia sur la okcidenta bordo de Nilo.
 
 En Tan-ta-ren estis du famaj lokoj: la lageto de la sanktaj
 
-krokodiloj kaj la templo de Hator, posedanta superan lerne-
-
-jon. Tie oni instruis medicinon, piajn kantojn, diversajn diser-vojn, fine astronomion.
+krokodiloj kaj la templo de Hator, posedanta superan lernejon. Tie oni instruis medicinon, piajn kantojn, diversajn diser-vojn, fine astronomion.
 
 La faraono vizitis ambaŭ. Li ekkoleris, kiam oni ordonis al
 
@@ -5226,9 +4126,7 @@ amis intimecon eĉ de la dioj.
 
 —Eble tio estis malpiaĵo? — demandis li la pastron.
 
-La ekscelenco rigardis flanken, ĉu iu aŭskultas, kaj respon-
-
-dis:
+La ekscelenco rigardis flanken, ĉu iu aŭskultas, kaj respondis:
 
 —Se mi scius, ke via sankteco faros al ĝi tian oferon, mi
 
@@ -5239,18 +4137,13 @@ estas la plej trudema besto en la tuta templo. Foje ĝi kaptis infanon …
 —Kaj ĝi manĝis ĝin?…
 
 
-LA FARAONO
-
-
 —La gepatroj estis kontentaj!… — respondis la pastro.
 
 —Diru al mi — demandis la faraono post pripenso — kiel
 
 vi, saĝaj homoj povas fari oferojn al bestoj; kiam neniu rigardas, vi ja batas ilin per bastonoj!…
 
-La ĉefpastro ankoraŭ unu fojon ĉirkaŭrigardis, kaj vidan-
-
-te, ke estas neniu proksime, respondis:
+La ĉefpastro ankoraŭ unu fojon ĉirkaŭrigardis, kaj vidante, ke estas neniu proksime, respondis:
 
 —Vi ja, monar˛o, ne suspektas la fidelulojn de la Sola Dio,
 
@@ -5277,20 +4170,13 @@ la medicina lernejo kaj indiferente aŭskultis la antaŭdirojn, kiujn faris por 
 akva fluo, ili ankaŭ realiĝus?
 
 
-LA FARAONO
-
-
 La pastro konfuziĝis.
 
-—Via sankteco ne pensu, ke ni estas trompistoj. Ni antaŭ-
-
-diras al la homoj la estontecon, ĉar ĝi interesas ilin, kaj ĝustadire, nur tion ili komprenas pri la astronomio.
+—Via sankteco ne pensu, ke ni estas trompistoj. Ni antaŭdiras al la homoj la estontecon, ĉar ĝi interesas ilin, kaj ĝustadire, nur tion ili komprenas pri la astronomio.
 
 —Kaj kion vi komprenas?
 
-—Ni konas — diris la pastro — la strukturon de la ĉiela fir-
-
-mamento kaj la movojn de la steloj …
+—Ni konas — diris la pastro — la strukturon de la ĉiela firmamento kaj la movojn de la steloj …
 
 —Kion tio povas utili?…
 
@@ -5310,14 +4196,9 @@ Tie estis nek sanktaj temploj, nek incensataj krokodiloj kaj oraj tabuloj kun st
 
 En Kene svarmis Fenicianoj, kiuj akceptis la estron kun
 
-granda entuziasmo kaj donacis al li diversajn juvelojn valo-
-
-rantajn dek talentojn.
+granda entuziasmo kaj donacis al li diversajn juvelojn valorantajn dek talentojn.
 
 Malgraŭ tio la faraono apenaŭ unu tagon pasigis en Kene,
-
-
-LA FARAONO
 
 
 ĉar oni sciigis al li de Teboj, ke la respektinda mumio de Ramzes XII jam estas en la palaco Luksor kaj atendas la enterigon.
@@ -5326,13 +4207,9 @@ En tiu epoko Teboj estis grandega urbo kaj okupis ĉirkaŭ
 
 dudek kvadratajn kilometrojn. i posedis la plej grandan
 
-templon de Amon en Egipto kaj multe da publikaj kaj privat-
+templon de Amon en Egipto kaj multe da publikaj kaj privataj konstruaĵoj. La ĉefaj stratoj estis larĝaj, rektaj kaj pavimi-taj per ŝtonaj platoj; la bordoj de Nilo formis bulvardojn, la domoj estis kvar- kaj kvinetaĝaj.
 
-aj konstruaĵoj. La ĉefaj stratoj estis larĝaj, rektaj kaj pavimi-taj per ŝtonaj platoj; la bordoj de Nilo formis bulvardojn, la domoj estis kvar- kaj kvinetaĝaj.
-
-ĉiu templo kaj palaco havis grandegan pordegon kun pi-
-
-lonoj, kaj tial oni nomis Tebojn urbo ”centpordega”. En rea-
+ĉiu templo kaj palaco havis grandegan pordegon kun pilonoj, kaj tial oni nomis Tebojn urbo ”centpordega”. En rea-
 
 leco ĝi estis urbo unuflanke tre industria kaj komerca, aliflanke kvazaŭ la sojlo de la eterneco. Sur la okcidenta bordo de Nilo, sur la montoj kaj inter la montoj estis sennombraj tomboj de pastroj, riĉuloj kaj reĝoj.
 
@@ -5349,16 +4226,11 @@ Kiam venis Ramzes XIII, la tuta urbo forlasis la domojn,
 por saluti lin, hejme restis nur maljunuloj kaj kripluloj, kaj en mallumaj stratoj ŝtelistoj. Tie unuafoje la faraono aŭdis kriojn kaj malbenojn kontraŭ la pastroj, kio lin mirigis. Li deziris doni tian donacon al la laboranta Egipto, sed li ne supozis, ke liaj intencoj jam fariĝis publike konataj kaj ke la popolo atendas ilian realiĝon.
 
 
-LA FARAONO
-
-
 La vojaĝo de unu mejlo daŭris kelke da horoj, inter densaj
 
 amasoj. La reĝa veturilo tre ofte haltis kaj ne moviĝis, antaŭ ol la gvardio de lia sankteco sukcesis levi tiujn, kiuj kuŝis sur la ventro.
 
-Kiam la faraono atingis fine la reĝan ĝardenon, kie li oku-
-
-pis unu el la malgrandaj somerdomoj, li estis tiel laca, ke en ĉi tiu tago li ne okupis sin per la aferoj de la ŝtato. En la sekvinta tago li bruligis incensojn antaŭ la mumio de la patro, kiu estis en la ĉefa reĝa konstruaĵo, kaj diris al Herhor, ke oni povas transporti la restaĵojn en la tombon.
+Kiam la faraono atingis fine la reĝan ĝardenon, kie li okupis unu el la malgrandaj somerdomoj, li estis tiel laca, ke en ĉi tiu tago li ne okupis sin per la aferoj de la ŝtato. En la sekvinta tago li bruligis incensojn antaŭ la mumio de la patro, kiu estis en la ĉefa reĝa konstruaĵo, kaj diris al Herhor, ke oni povas transporti la restaĵojn en la tombon.
 
 Sed oni ne faris tion tuj.
 
@@ -5387,18 +4259,11 @@ antaŭeniris la funebra procesio. Iris orkestroj de diversaj regimentoj, taĉmen
 nacioj, kiuj estis en rilatoj kun Egipto, kun siaj dioj kaj stan-dardoj … Kaj ree orkestroj, larmistinoj kaj pastraj ˛oroj.
 
 
-LA FARAONO
-
-
-Ankaŭ ĉi tiun fojon la reĝa mumio estis portata en ora ŝi-
-
-peto, sed multe pli luksa, ol en Memfiso. La veturilo, al kiu estis jungitaj ok paroj da blankaj bovoj, estis preskaŭ du etaĝojn alta, kaj preskaŭ malaperis sub la amasoj da bukedoj, strutaj plumoj kaj multekostaj teksaĵoj. ĉirkaŭis ĝin densaj fumoj de incensoj, kio faris la impreson, ke Ramzes XII sin montras al sia popolo jam kiel dio, en la nuboj.
+Ankaŭ ĉi tiun fojon la reĝa mumio estis portata en ora ŝipeto, sed multe pli luksa, ol en Memfiso. La veturilo, al kiu estis jungitaj ok paroj da blankaj bovoj, estis preskaŭ du etaĝojn alta, kaj preskaŭ malaperis sub la amasoj da bukedoj, strutaj plumoj kaj multekostaj teksaĵoj. ĉirkaŭis ĝin densaj fumoj de incensoj, kio faris la impreson, ke Ramzes XII sin montras al sia popolo jam kiel dio, en la nuboj.
 
 De la pilonoj de ĉiuj tebaj temploj sonis kvazaŭ tondroj, kaj potencaj, larmantaj sonoj de bronzaj ladoj.
 
-Kvankam la aleo de la sfinksoj estis libera kaj larĝa, kvan-
-
-kam la marŝo estis kondukata de la plej bonaj egiptaj gene-
+Kvankam la aleo de la sfinksoj estis libera kaj larĝa, kvankam la marŝo estis kondukata de la plej bonaj egiptaj gene-
 
 raloj, sekve en la plej granda ordo, tamen por trairi du kilometrojn inter la palacoj kaj la temploj de Amon, la procesio uzis tri horojn.
 
@@ -5406,13 +4271,9 @@ Nur kiam oni jam enportis la mumion de Ramzes XII en la
 
 templon, el la palaco en ora kaleŝo, tirata de du viglaj ĉevaloj, elveturis Ramzes XIII. La popolo ĉe ambaŭ flankoj de la aleo, kiu dum la procesio staris silente, nun, vidante la amatan monar˛on, ektondris per tiel grandega aklamo, ke disfluis en ĝi sonoj kaj bruo de la supro de la temploj.
 
-Estis nun momento, ke la popolaĉo, puŝata de la entuzias-
+Estis nun momento, ke la popolaĉo, puŝata de la entuziasmo, volis elkuri sur la mezon de la aleo kaj ĉirkaŭi la sinjoron.
 
-mo, volis elkuri sur la mezon de la aleo kaj ĉirkaŭi la sinjoron.
-
-Sed Ramzes per unu sola gesto de la mano haltigis la vivan-
-
-tan fluon kaj malhelpis la malpiaĵon.
+Sed Ramzes per unu sola gesto de la mano haltigis la vivantan fluon kaj malhelpis la malpiaĵon.
 
 En la daŭro de dekkelko da minutoj la faraono traveturis
 
@@ -5421,12 +4282,7 @@ la korton kaj haltis antaŭ la grandegaj pilonoj de la plej grandioza templo en 
 Kiel Luksor estis kvartalo de la palacoj en la suda parto de la urbo, tiel Karnak estis kvartalo de la dioj en la norda. La ĉefa centro de Karnak estis la templo de Amon-Ra.
 
 
-LA FARAONO
-
-
-La konstruaĵo okupis du hektarojn, kaj la ĝardenoj kaj la-
-
-getoj, ĉirkaŭantaj ĝin, pli ol dudek hektarojn. Antaŭ la templo staris du pilonoj dek etaĝojn altaj. La korto, ĉirkaŭita de koridoro, apogita sur kolonoj, okupis ĉirkaŭ unu hektaron, kaj la kolona ĉambrego, kie kunvenadis la privilegiataj klasoj, estis duonhektara. Tio ne estis ĝustadire konstruaĵo, sed provinco.
+La konstruaĵo okupis du hektarojn, kaj la ĝardenoj kaj lagetoj, ĉirkaŭantaj ĝin, pli ol dudek hektarojn. Antaŭ la templo staris du pilonoj dek etaĝojn altaj. La korto, ĉirkaŭita de koridoro, apogita sur kolonoj, okupis ĉirkaŭ unu hektaron, kaj la kolona ĉambrego, kie kunvenadis la privilegiataj klasoj, estis duonhektara. Tio ne estis ĝustadire konstruaĵo, sed provinco.
 
 La ĉambrego aŭ hipostilo estis pli ol cent kvindek paŝojn
 
@@ -5434,17 +4290,13 @@ longa kaj sepdek kvin larĝa, ĝia plafono estis apogita sur tridek kvlonoj. El 
 
 kvin paŝoj da ĉirkaŭo kaj kvar ĝis kvin etaĝojn da alto!… La statuoj en la templo, ĉe la pilonoj, kaj ĉe la sankta lageto havis respondajn proporciojn.
 
-En la grandega pordego atendis la faraonon Herhor, la ĉef-
-
-pastro de la templo. ĉirkaŭita de tuta stabo de pastroj Her-
+En la grandega pordego atendis la faraonon Herhor, la ĉefpastro de la templo. ĉirkaŭita de tuta stabo de pastroj Her-
 
 hor salutis la monar˛on preskaŭ fiere, kaj bruligante antaŭ li incensojn, ne rigardis lin. Poste tra la korto li kondukis la faraonon en la hipostilon kaj ordonis enlasi la deputataron en la internon de la mura zono.
 
 En la mezo de la hipostilo estis la ŝipeto kun la mumio de
 
-la mortinta monar˛o, kaj ĉe ambaŭ ĝiaj flankoj du same al-
-
-taj tronoj. Sur unu sidiĝis Ramzes XIII, ĉirkaŭita de la generaloj kaj nomar˛oj, sur la alia Herhor, ĉirkaŭita de la pastroj.
+la mortinta monar˛o, kaj ĉe ambaŭ ĝiaj flankoj du same altaj tronoj. Sur unu sidiĝis Ramzes XIII, ĉirkaŭita de la generaloj kaj nomar˛oj, sur la alia Herhor, ĉirkaŭita de la pastroj.
 
 La ĉefpastro Mefres donis al Herhor la tiaron de Amenhotep,
 
@@ -5457,9 +4309,6 @@ Ramzes paliĝis de kolero kaj pensis:
 Sed li silentis, sciante, ke en ĉi tiu plej granda egipta templo Herhor estas sinjoro, egala al la dioj, kaj potenculo, eble pli granda ol la faraono mem.
 
 
-LA FARAONO
-
-
 Dum la tuta tempo, kiam la popolo plenigadis la korton kaj
 
 post la purpura kurteno, apartiganta la mortulojn de la sanktejo, sonis harpoj kaj mallaŭtaj kantoj, Ramzes rigardis la
@@ -5470,21 +4319,15 @@ planko ĝis la supro per pentraĵoj, mistera lumigo, plafono,
 
 pendanta ie sub la ĉielo, faris sur lin premegan impreson.
 
-”Kion valoras — pensis li — gajni batalon apud Sodaj La-
-
-goj?… Konstrui tian templon, jen estas verko!… Kaj ili ĝnstruis …”
+”Kion valoras — pensis li — gajni batalon apud Sodaj Lagoj?… Konstrui tian templon, jen estas verko!… Kaj ili ĝnstruis …”
 
 En tiu momento li sentis la potencon de la pastraro. ĉu li,
 
-lia armeo, kaj eĉ la tuta popolo povus renversi ĉi tiun tem-
-
-plon?… Kaj se malfacile estas sukcesi kontraŭ konstruaĵo, ĉu pli facile estos batali kontraŭ la konstruintoj?
+lia armeo, kaj eĉ la tuta popolo povus renversi ĉi tiun templon?… Kaj se malfacile estas sukcesi kontraŭ konstruaĵo, ĉu pli facile estos batali kontraŭ la konstruintoj?
 
 El la malagrablaj meditoj elŝiris lin la voĉo de la ĉefpastro Mefres:
 
-—Via sankteco — diris la maljunulo — vi, la plej nobla kon-
-
-fidato de la dioj (li salutis Herhoron), vi nomar˛oj, skribistoj kaj simpla popolo! La glora ĉefpastro de ĉi tiu templo, Herhor, alvokis vin, por ke vi juĝu, laŭ la antikva moro, la terajn agojn de la mortinta faraono kaj rifuzu aŭ donu al li la rajton de la enterigo …
+—Via sankteco — diris la maljunulo — vi, la plej nobla konfidato de la dioj (li salutis Herhoron), vi nomar˛oj, skribistoj kaj simpla popolo! La glora ĉefpastro de ĉi tiu templo, Herhor, alvokis vin, por ke vi juĝu, laŭ la antikva moro, la terajn agojn de la mortinta faraono kaj rifuzu aŭ donu al li la rajton de la enterigo …
 
 Kolero leviĝis al la kapo de la faraono. Ne sufiĉas, ke oni
 
@@ -5493,9 +4336,6 @@ malŝatas lin en ĉi tiu loko, sed ili eĉ kuraĝas diskuti pri la agoj de lia p
 Sed li trankviliĝis. Tio estis nur formalaĵo, tiel antikva, kiel la egiptaj dinastioj. ustadire tio ne estis juĝo, sed laŭdo de la mortinto.
 
 Laŭ signo, farita de Herhor, la ĉefpastroj sidiĝis sur taburetoj. La nomar˛oj kaj generaloj, ĉirkaŭantaj la tronon de Ramzes, ne sidiĝis: por ili oni ne preparis seĝojn.
-
-
-LA FARAONO
 
 
 La faraono ekmemoris ankaŭ ĉi tiun ofendon; sed li jam
@@ -5512,9 +4352,7 @@ pekoj, do la juĝo de dioj estos favora por li. Krom tio la reĝa mumio, dank’
 
 montriĝis jam dum lia tera vivo. Li regis pli ol tridek jarojn, donacis al la popolo profundan pacon kaj konstruis aŭ finis
 
-multe da temploj. Krom tio li mem estis ĉefpastro kaj supe-
-
-ris per sia pieco la plej piajn pastrojn. En lia regado la unuan lokan okupis respekto al la dioj kaj suprenlevado de la
+multe da temploj. Krom tio li mem estis ĉefpastro kaj superis per sia pieco la plej piajn pastrojn. En lia regado la unuan lokan okupis respekto al la dioj kaj suprenlevado de la
 
 sankta pastraro. Pro tio amis lin la ĉielaj fortoj, kaj unu el la tebaj dioj, ˘onsu, petita de la faraono, bonvolis iri en la landon Buęn kaj tie elpelis la malbonan spiriton el la reĝa fili-no.
 
@@ -5526,47 +4364,31 @@ estis dio, vi demandos, por kia celo ĉi tiu supera estaĵo malsupreniris la egi
 
 jaroj? Por levi la mondon, kiu falis de la ruino de kredo. Kiu sin okupas hodiaŭ pri la pieco, kiu zorgas plenumi la volon
 
-de la dioj? En la malproksima nordo ni vidas grandan asiri-
-
-an popolon, kiu kredas nur la forton de la glavo, kaj anstataŭ saĝo kaj pieco, sin okupas per la sklavigo de la popoloj. Pli proksime de ni loĝas Fenicianoj, por kiuj oro estas dio, trom-141
-
-LA FARAONO
+de la dioj? En la malproksima nordo ni vidas grandan asirian popolon, kiu kredas nur la forton de la glavo, kaj anstataŭ saĝo kaj pieco, sin okupas per la sklavigo de la popoloj. Pli proksime de ni loĝas Fenicianoj, por kiuj oro estas dio, trom-141
 
 
 po kaj procentegoj estas ilia pieco. Fine aliaj popoloj, ˘etoj oriente, Libianoj okcidente, Etiopianoj sude kaj Grekoj sur
 
 Mediteraneo estas barbaroj kaj rabistoj. Anstataŭ labori, ili ŝtelas, anstataŭ perfektiĝi en la saĝo, ili drinkas, ludas ostojn aŭ dormas, kiel lacaj brutoj. En la mondo ekzistas nur unu
 
-vere pia kaj saĝa popolo, la egipta, sed rigardu, kio okazas ankaŭ ĉi tie? Alfluis sendiaj fremduloj, kaj la religio falis an-kaŭ ĉe ni. La nobeloj kaj altranguloj ĉe kruĉoj da vino mokas la diojn kaj la eternan vivon, la popolo ĵetas koton sur la sanktajn statuojn kaj ne faras oferojn al la temploj. La piecon anstataŭis lukso, la saĝon malĉasteco. ĉiu volas porti grande-
+vere pia kaj saĝa popolo, la egipta, sed rigardu, kio okazas ankaŭ ĉi tie? Alfluis sendiaj fremduloj, kaj la religio falis an-kaŭ ĉe ni. La nobeloj kaj altranguloj ĉe kruĉoj da vino mokas la diojn kaj la eternan vivon, la popolo ĵetas koton sur la sanktajn statuojn kaj ne faras oferojn al la temploj. La piecon anstataŭis lukso, la saĝon malĉasteco. ĉiu volas porti grandegajn perukojn, sin olei per eksterordinaraj parfumoj, posedi broditajn per oro ĉemizojn kaj antaŭtukojn, sin ornami per
 
-gajn perukojn, sin olei per eksterordinaraj parfumoj, posedi broditajn per oro ĉemizojn kaj antaŭtukojn, sin ornami per
-
-ĉenoj kaj braceletoj, inkrustitaj per multekostaj ŝtonoj. La hordea pano ne sufiĉas plu al li: li deziras kukojn kun lakto kaj mielo; la piedojn li lavas per biero, la soifon li estingas per eksterlandaj vinoj. La tuta nobelaro dronas en ŝuldoj, la popolo estas batata kaj troŝarĝita, en diversaj lokoj eksplodas ribeloj. Kion mi diras: en diversaj lokoj!… De iom da tempo, dank’al misteraj konspirantoj en la tuta Egipto, longe kaj lar-
-
-ĝe, ni aŭdas unu krion: ”ĉiun sepan tagon donu al ni la ripozon!… Ne batu nin sen juĝo!… Donacu al ni po unu bedo da
+ĉenoj kaj braceletoj, inkrustitaj per multekostaj ŝtonoj. La hordea pano ne sufiĉas plu al li: li deziras kukojn kun lakto kaj mielo; la piedojn li lavas per biero, la soifon li estingas per eksterlandaj vinoj. La tuta nobelaro dronas en ŝuldoj, la popolo estas batata kaj troŝarĝita, en diversaj lokoj eksplodas ribeloj. Kion mi diras: en diversaj lokoj!… De iom da tempo, dank’al misteraj konspirantoj en la tuta Egipto, longe kaj larĝe, ni aŭdas unu krion: ”ĉiun sepan tagon donu al ni la ripozon!… Ne batu nin sen juĝo!… Donacu al ni po unu bedo da
 
 tero kiel propraĵon!…” Tio antaŭdiras la ruinon de nia ŝtato, kontraŭ kiu oni devas trovi rimedon. La sola savo estas la religio, kiu instruas nin, ke la popolo devas labori, la sanktaj viroj, kiuj konas la volon de la dioj, devas montri al ĝi la laboron, la faraono kaj liaj oficistoj devas kontroli, ĉu la tasko estas konscience plenumata. Tion instruas al ni la religio;
 
-konforme al tiaj principoj regis la ŝtaton Ramzes-Oziris XII 142
-
-LA FARAONO
+konforme al tiaj principoj regis la ŝtaton Ramzes-Oziris XII
 
 
 egala al la dioj. Kaj ni, la ĉefpastroj, honorante lian piecon, gravuros la jenan surskribon en la tomboj kaj temploj:
 
-”Horus bovo, Apis forta, kiu kunigis la kronojn de la reg-
-
-no, ora nizo, reganta per la glavo, venkinto de naŭ popoloj, reĝo de Supra kaj Malsupra Egipto, sinjoro de du mondoj, filo de la suno, Amen-mer-Ramessu amata de Amon-Ra, sinjoro
+”Horus bovo, Apis forta, kiu kunigis la kronojn de la regno, ora nizo, reganta per la glavo, venkinto de naŭ popoloj, reĝo de Supra kaj Malsupra Egipto, sinjoro de du mondoj, filo de la suno, Amen-mer-Ramessu amata de Amon-Ra, sinjoro
 
 kaj estro de Tebaido, filo de Amon-Ra, adoptita de Horus, kaj naskita de Horma˛is, reĝo de Egipto, estro de Fenicio, reganta naŭ popolojn.”1
 
-Kiam la propono estis akceptita per aklamo, de post la kur-
+Kiam la propono estis akceptita per aklamo, de post la kurteno enkuris dancistinoj kaj dancis antaŭ la sarkofago sank-
 
-teno enkuris dancistinoj kaj dancis antaŭ la sarkofago sank-
-
-tan dancon; la pastroj ekbruligis incensojn. Poste oni deme-
-
-tis la mumion de la ŝipeto kaj transportis en la sanktejon de Amon, kien Ramzes XIII ne havi rajton eniri.
+tan dancon; la pastroj ekbruligis incensojn. Poste oni demetis la mumion de la ŝipeto kaj transportis en la sanktejon de Amon, kien Ramzes XIII ne havi rajton eniri.
 
 Baldaŭ la religia ceremonio estis finita kaj la ĉeestantoj forlasis la templon.
 
@@ -5582,17 +4404,10 @@ al neniu faraono; ili eĉ montras al mi, kiel mi povas reakiri ilian favoron. Il
 
 Du tagojn la respektinda mumio de Ramzes XII resti en la
 
-templo de Amon, en tiel dia loko, ke ekster Herhor kaj Me-
-
-fres, eĉ la ĉefpastroj ne povis tien eniri. Antaŭ la mortinto 1 Aŭtentika surtomba surskribo.
+templo de Amon, en tiel dia loko, ke ekster Herhor kaj Mefres, eĉ la ĉefpastroj ne povis tien eniri. Antaŭ la mortinto 1 Aŭtentika surtomba surskribo.
 
 
-LA FARAONO
-
-
-lumis nur unu lampo, kies flamo, mirakle konservata, neni-
-
-am estingiĝadis. Super la mortinto flugpendis la simbolo de
+lumis nur unu lampo, kies flamo, mirakle konservata, neniam estingiĝadis. Super la mortinto flugpendis la simbolo de
 
 la animo, nizo kun homa kapo. ĉu tio estis maŝino aŭ reala
 
@@ -5608,17 +4423,11 @@ Tio estis eble la plej bela strato en la egipta regno: larĝa, glata, kun du vic
 
 skulptitaj kolore. Tio faris impreson, ke oni pendigis sur la konstruaĵoj grandegajn kolorajn tapiŝojn, aŭ ke oni kovris ilin per kolosaj pentraĵoj, prezentantaj la laboron de komercistoj, metiistoj, maristoj, kaj malproksimajn landojn kaj popolojn.
 
-Unuvorte, tio ne estis strato, sed pli ĝuste grandega gale-
+Unuvorte, tio ne estis strato, sed pli ĝuste grandega galerio de pentraĵoj, barbare desegnitaj, trobrile pentritaj.
 
-rio de pentraĵoj, barbare desegnitaj, trobrile pentritaj.
+La funebra procesio trairis de la nordo, al la sudo du kilometrojn. Proksimume en la centro de la urbo ĝi haltis kaj poste sin turnis al la okcidento, al Nilo.
 
-La funebra procesio trairis de la nordo, al la sudo du kilo-
-
-metrojn. Proksimume en la centro de la urbo ĝi haltis kaj poste sin turnis al la okcidento, al Nilo.
-
-En tiu loko, en la mezo de la rivero estis granda insulo, al kiu kondukis ponto, konstruita sur ŝipetoj. Por eviti malfeli-
-
-ĉan okazon, la generaloj komandantaj la procesion ankoraŭ
+En tiu loko, en la mezo de la rivero estis granda insulo, al kiu kondukis ponto, konstruita sur ŝipetoj. Por eviti malfeliĉan okazon, la generaloj komandantaj la procesion ankoraŭ
 
 unu fojon ordigis la sekvantaron, starigis po kvar homoj en
 
@@ -5627,12 +4436,7 @@ unu fojon ordigis la sekvantaron, starigis po kvar homoj en
 Por tiu celo la orkestroj en la fronto ludis kantojn, ĉiun de malsama takto.
 
 
-LA FARAONO
-
-
-Post kelke da horoj la procesio trapasis unu ponton, la in-
-
-sulon, la alian ponton kaj atingis la maldekstran, okcidentan bordon de Nilo.
+Post kelke da horoj la procesio trapasis unu ponton, la insulon, la alian ponton kaj atingis la maldekstran, okcidentan bordon de Nilo.
 
 Se la orientan parton de Teboj oni povas nomi la urbo de
 
@@ -5650,27 +4454,17 @@ II. ian peristilon gardis statuoj, kun la simboloj de la reĝa povo en la manoj.
 
 II, kvar etaĝojn alta.
 
-La vojo seninterrompe iris delikate supren; pli kaj pli kla-
-
-re oni povis vidi la krutajn altaĵojn, truitajn kvazaŭ spongo: tio estis la tomboj de la egiptaj altranguloj. ĉe la eniro al ili, inter krutaj ŝtonegoj, troviĝis la tre originala templo de la re-
+La vojo seninterrompe iris delikate supren; pli kaj pli klare oni povis vidi la krutajn altaĵojn, truitajn kvazaŭ spongo: tio estis la tomboj de la egiptaj altranguloj. ĉe la eniro al ili, inter krutaj ŝtonegoj, troviĝis la tre originala templo de la re-
 
 ĝino Hatasu. La konstruaĵo estis kvarcent kvindek paŝojn lon-ga. De la korto, ĉirkaŭita de muro, oni eniradis en alian korton, ĉirkaŭitan de kolonoj, sub kiu estis subtera templo. De la kolona korto oni eniradis per ŝtuparo en templon, elhaki-tan en ŝtonego, sub kiu ankaŭ estis subteraĵoj.
 
-Tiamaniere la templo havis du etaĝojn: malsupran kaj su-
-
-
-LA FARAONO
-
-
-pran, el kiuj ĉiu estis dividita same. La ŝtuparo estis grandega; anstataŭ balustrado ĝi havis du vicojn de sfinksoj; la eniron al ĉiu ŝtuparo gardis du sidantaj statuoj.
+Tiamaniere la templo havis du etaĝojn: malsupran kaj supran, el kiuj ĉiu estis dividita same. La ŝtuparo estis grandega; anstataŭ balustrado ĝi havis du vicojn de sfinksoj; la eniron al ĉiu ŝtuparo gardis du sidantaj statuoj.
 
 De la templo de Hatasu komenciĝis malgaja intermonto,
 
 kiu kondukis de la tomboj de la altranguloj al la tomboj de la reĝoj. Inter ĉi tiuj du kvartaloj estis la elhakita en ŝtonego tomboj de la ĉefpastro Retemenof; ĉambroj kaj koridoroj, for-mantaj ĝin, okupis sub la tero pli ol unu hektaron.
 
-La vojo en la intermonto fariĝis tiel kruta, ke la homoj de-
-
-vis helpi la tirantajn bovojn kaj puŝi la funebran ŝipeton. La sekvantaro iras kvazaŭ sur kornico, elhakita sur flanko de la ŝtonego, fine ĝi haltas sur vasta placo, dekkelkon da etaĝoj super la fundo de la intermonto.
+La vojo en la intermonto fariĝis tiel kruta, ke la homoj devis helpi la tirantajn bovojn kaj puŝi la funebran ŝipeton. La sekvantaro iras kvazaŭ sur kornico, elhakita sur flanko de la ŝtonego, fine ĝi haltas sur vasta placo, dekkelkon da etaĝoj super la fundo de la intermonto.
 
 Tie troviĝas pordo, kondukanta en la subteran tombon,
 
@@ -5686,18 +4480,14 @@ mumio de la faraono.
 
 Sed tio ne sufiĉas: la ĉambroj ne nur estas plenplenaj de
 
-mebloj, vazoj, veturiloj, armiloj, floroj, viando, kukoj, vino, sed estas tie ankaŭ multe da statuoj. Tio estas diversaj portretoj de Ramzes XII, de liaj pastroj, ministroj, virinoj, soldatoj 146
-
-LA FARAONO
+mebloj, vazoj, veturiloj, armiloj, floroj, viando, kukoj, vino, sed estas tie ankaŭ multe da statuoj. Tio estas diversaj portretoj de Ramzes XII, de liaj pastroj, ministroj, virinoj, soldatoj
 
 
 kaj sklavoj. La sinjoro eĉ en la alia mondo ne povas vivi sen multekostaj mebloj, sen luksa manĝo kaj sen fidelaj servistoj.
 
 Kiam la funebra veturilo haltis ĉe la eniro en la tombon, la pastroj prenis la reĝan mumion el la sarkofago kaj metis ĝin sur la tero, apoginte la dorson al la ŝtonego. Tiam Ramzes
 
-XIII bruligis incenson antaŭ la restaĵoj de la patro, kaj la re-
-
-ĝino Nikotris ĉirkaŭpreninte la kolon de la mumio, komen-
+XIII bruligis incenson antaŭ la restaĵoj de la patro, kaj la reĝino Nikotris ĉirkaŭpreninte la kolon de la mumio, komen-
 
 cis paroli kun larmoj:
 
@@ -5709,15 +4499,11 @@ Mefres verŝis vinon kaj diris:
 
 —”Al via samulo mi oferas tion, Oziris-Mer-amen-Ramzes,
 
-monar˛o de Malsupra kaj Supra Egipto, kies voĉo estas jus-
-
-ta antaŭ la granda dio”.
+monar˛o de Malsupra kaj Supra Egipto, kies voĉo estas justa antaŭ la granda dio”.
 
 Poste eksonis la larmistoj kaj pastraj ˛oroj:
 
-˘oro I. Plendu, plendu, ploru, ploru, senĉese ploru tiel laŭ-
-
-te, kiel vi povas …
+˘oro I. Plendu, plendu, ploru, ploru, senĉese ploru tiel laŭte, kiel vi povas …
 
 La ploristinoj. Ho nobla vojaĝanto, kiu direktas siajn paŝojn al la lando de la eterneco, kiel rapide oni forŝiras vin de ni!…
 
@@ -5732,12 +4518,7 @@ vesto hieraŭa!…
 2 Aŭtentika.
 
 
-LA FARAONO
-
-
-dento … Ni ree ekvidos vin, kiam venos la tago de la eterne-
-
-co, ĉar vi iras en la landon, kiu kunigas ĉiujn homojn.”3
+dento … Ni ree ekvidos vin, kiam venos la tago de la eterneco, ĉar vi iras en la landon, kiu kunigas ĉiujn homojn.”3
 
 Komenciĝis la lastaj ceremonioj.
 
@@ -5753,9 +4534,7 @@ Por forigi la malhelpon, Mefres lavis ĝin per sankta akvo
 
 kaj incensis per parfumoj kaj aluno, dirante:
 
-—”Jen staras mia patro, jen staras Oziris-Mer-amen-Ram-
-
-zes. Mi estas via filo, mi estas Horus, mi venas al vi, por vin purigi kaj vivigi … Mi ree kunmetas viajn ostojn, kunigas, kio estis distranĉita, ĉar mi estas Horus, la venĝanto de mia patro … Vi sidas sur la trono de Re, kiu venas de Nut, kiun naskas Re ĉiumatene, kiu naskas Mer-amen-Ramzeson ĉiutage,
+—”Jen staras mia patro, jen staras Oziris-Mer-amen-Ramzes. Mi estas via filo, mi estas Horus, mi venas al vi, por vin purigi kaj vivigi … Mi ree kunmetas viajn ostojn, kunigas, kio estis distranĉita, ĉar mi estas Horus, la venĝanto de mia patro … Vi sidas sur la trono de Re, kiu venas de Nut, kiun naskas Re ĉiumatene, kiu naskas Mer-amen-Ramzeson ĉiutage,
 
 kiel Re.”4
 
@@ -5763,9 +4542,7 @@ Parolante tiel, la ĉefpastro tuŝis per amuletoj la buŝon, bruston, manojn kaj
 
 Ree eksonis la ˛oroj.
 
-˘oro I. Oziris-Mer-amen-Ramzes manĝos de nun kaj trin-
-
-kos ĉion, kion manĝas kaj trinkas la dioj. Li sidas sur ilia loko, li estas sana kaj forta, kiel ili …
+˘oro I. Oziris-Mer-amen-Ramzes manĝos de nun kaj trinkos ĉion, kion manĝas kaj trinkas la dioj. Li sidas sur ilia loko, li estas sana kaj forta, kiel ili …
 
 ˘oro II. Li havas la povon en ĉiuj siaj membroj; li malamas
 
@@ -5780,9 +4557,6 @@ milojn da kruĉoj da vino, mil vestojn, panojn kaj bovojn …
 4 Aŭtentika.
 
 
-LA FARAONO
-
-
 ˘oro II. Ho, vi, vivantaj sur la tero, kiuj trapasos ĉi tie, se la vivo estas por vi kara kaj la morto abomena, se vi deziras, ke viaj honoroj transpasu al viaj posteuloj, diru ĉi tiun preĝon por la mortinto, enterigita ĉi tie …
 
 Mefres. Ho vi grandaj, vi princoj, skribistoj kaj faraonoj, vi aliaj homoj, kiuj venos milionon da jaroj post mi, se iu el vi anstataŭ mia nomo metus la sian, Dio punos lin per la detruo de lia persono sur la tero …”5
@@ -5793,9 +4567,7 @@ Trapasinte ĉe la lumo de la torĉoj kelke da koridoroj kaj
 
 ĉambroj, ili haltis en unu, kie estis la puto. Ili mallevis la sarkofagon en la truon kaj ili mem eniris post ĝi en la malsupran subteraĵon. Tie ili lokis la sarkofagon en malvasta ĉambro kaj rapide masonis la truon, tiel ke eĉ la plej sperta okulo ne trovus la eniron en la tombon. Poste ili revenis supren kaj same zorge masonis la eniron en la puton.
 
-ĉion ĉi plenumis la pastroj mem sen atestantoj, kaj plenu-
-
-mis tiel perfekte, ke la mumio de Ramzes XII ĝis la hodiaŭa
+ĉion ĉi plenumis la pastroj mem sen atestantoj, kaj plenumis tiel perfekte, ke la mumio de Ramzes XII ĝis la hodiaŭa
 
 tago ripozas en sia mistera loĝejo, rifuĝinte tie ne nur de ŝtelistoj, sed ankaŭ de la moderna scivolemo. Dum dudek naŭ
 
@@ -5810,26 +4582,17 @@ En la manĝoĉambron eniris Ramzes XIII, la reĝino Niko-
 5 Aŭtentika.
 
 
-LA FARAONO
-
-
 tris, Sem kaj dekkelko da civilaj kaj militistaj altranguloj. En la mezo de la ĉambro staris tabloj, ŝarĝitaj per manĝaĵoj, vino kaj floroj, kaj apud la muro sidis la porfira statuo de la mortinta sinjoro. i ŝajnis rigardi la ĉeestantojn kaj per melanko-lia rideto inviti ilin al la manĝo. La festeno komenciĝis per sankta danco, akompanata de la kanto de unu el la plej altaj pastrinoj:
 
-”uu la tagojn de la feliĉo, ĉar la vivo daŭras nur unu mo-
+”uu la tagojn de la feliĉo, ĉar la vivo daŭras nur unu momenton … uu la feliĉon, ĉar kiam vi eniros en la tombon, vi ripozos tie eterne, la tutan longon de ĉiu tago.”
 
-menton … uu la feliĉon, ĉar kiam vi eniros en la tombon, vi ripozos tie eterne, la tutan longon de ĉiu tago.”
-
-Post la pastrino ekparolis profeto, kaj akompanata de har-
-
-poj, li diris per kantanta voĉo:
+Post la pastrino ekparolis profeto, kaj akompanata de harpoj, li diris per kantanta voĉo:
 
 ”La mondo estas senĉesa ŝanĝo kaj senĉesa renovigo. Tio
 
 estas saĝa aranĝo de la sorto, admirinda decido de Oziriso, ke kiam unu korpo detruiĝas kaj pereas, restas post ĝi aliaj korpoj … La faraonoj, ĉi tiuj dioj, kiuj estis antaŭ ni, ripozas en siaj piramidoj; iliaj mumioj kaj samuloj restis; sed la palacoj, kiujn ili konstruis, ne restas plu sur la antaŭaj lokoj, ili ne ekzistas plu … Ne malesperu do, sed sekvu vian deziron kaj
 
-feliĉon; ne uzu vian koron, antaŭ ol venos la tago, en kiu vi petegos, kaj Oziriso, la dio, kies koro ne batas plu, favore aŭ-
-
-skultos viajn petojn … Plendoj de la tuta mondo ne redonos
+feliĉon; ne uzu vian koron, antaŭ ol venos la tago, en kiu vi petegos, kaj Oziriso, la dio, kies koro ne batas plu, favore aŭskultos viajn petojn … Plendoj de la tuta mondo ne redonos
 
 la feliĉon al la homo, kiu kuŝas en la tombo; ĝuu do la tagojn de la feliĉo kaj ne estu maldiligenta en la ĝojo. Vere, ne ekzistas homo, kiu povus kunporti sian havon en la alian mondon,
 
@@ -5838,28 +4601,16 @@ vere, ne ekzistas homo, kiu foriris tien kaj revenis!…”7
 La festeno estis finita kaj la ĉeestantoj, ankoraŭ unu fojon incensinte la statuon de la mortinto, ekiris revene al Teboj. En la templo de la tombo restis nur pastroj por akurate fari ofe-7 Aŭtentika.
 
 
-LA FARAONO
-
-
 rojn al la sinjoro, kaj soldatoj, por gardi la tombon de malpiaj atencoj de ŝtelistoj.
 
-Ramzes XII restis sola en sia mistera ĉambro. Tra la mal-
+Ramzes XII restis sola en sia mistera ĉambro. Tra la malgranda fenestro, kaŝita en la ŝtonego, apenaŭ penetris al li la krepusko; anstataŭ strutaj plumoj murmuretis super la sinjoro flugiloj de grandegaj vespertoj; anstataŭ muziko sonis
 
-granda fenestro, kaŝita en la ŝtonego, apenaŭ penetris al li la krepusko; anstataŭ strutaj plumoj murmuretis super la sinjoro flugiloj de grandegaj vespertoj; anstataŭ muziko sonis
-
-nokte ĝemantaj blekoj de hienoj, kaj de tempo al tempo po-
-
-tenca voĉo de la leono, kiu de sia dezerto salutis la faraonon en la tombo.
+nokte ĝemantaj blekoj de hienoj, kaj de tempo al tempo potenca voĉo de la leono, kiu de sia dezerto salutis la faraonon en la tombo.
 
 
-LA FARAONO
+ĈAPITRO DEKA
 
-
-ĉAPITRO DEKA
-
-Post la enterigo de la faraono Egipto revenis al la ordina-
-
-ra vivmaniero, kaj Ramzes XIII al la ŝtataj aferoj.
+Post la enterigo de la faraono Egipto revenis al la ordinara vivmaniero, kaj Ramzes XIII al la ŝtataj aferoj.
 
 En la monato Epifii (aprilo, majo) la nova monar˛o vizitis
 
@@ -5876,18 +4627,13 @@ li faris oferon al Horus, la dio de la lumo, kaj al Sebek, kiu estas la spirito 
 salutis lin kun kurioza entuziasmo. Eĉ krimuloj, laborantaj en la minejoj, kies korpo estis kovrita de necikatriĝintaj vundoj, eĉ ili ĝuis la feliĉon: la faraono ordonis liberigi ilin de la laboro por tri tagoj.
 
 
-LA FARAONO
-
-
 Ramzes XIII povis esti kontenta kaj fiera: neniu faraono
 
 dum sia venka triumfo estis tiel akceptata, kiel li dum sia paca ekskurso. La nomar˛oj, skribistoj kaj ĉefpastroj, vidante la senliman konfidon de la popolo al la nova faraono, kliniĝis
 
 antaŭ lia povo kaj murmuretis inter si:
 
-—La popolaĉo estas kvazaŭ aro da bovoj, kaj ni kiel pru-
-
-dentaj kaj ŝparemaj formikoj. Ni respektu do la novan sin-
+—La popolaĉo estas kvazaŭ aro da bovoj, kaj ni kiel prudentaj kaj ŝparemaj formikoj. Ni respektu do la novan sin-
 
 joron, por ke ni ĝuu la sanon kaj gardu niajn domojn de la
 
@@ -5905,9 +4651,7 @@ Tebojn, tuj en la unua tago la granda trezoristo alportis al li malbonajn novaĵ
 
 kaj plej humile petegas vian sanktecon, ke en la daŭro de du jaroj vi ordonu pagi la sumojn, pruntitajn de ili …
 
-—Mi komprenas — respondis la monar˛o — tio estas ver-
-
-ko de la sankta Mefres!… Kiom ni ŝuldas al ili?
+—Mi komprenas — respondis la monar˛o — tio estas verko de la sankta Mefres!… Kiom ni ŝuldas al ili?
 
 —ĉirkaŭ kvindek mil talentojn …
 
@@ -5924,20 +4668,13 @@ Jam de tri monatoj ni ricevas apenaŭ la kvaronon de tio, kion oni ŝuldas al ni
 La trezoristo estis embarasita.
 
 
-LA FARAONO
-
-
-—Mi aŭdis — diris li — ke iuj homoj klarigis al la kampa-
-
-ranoj, ke dum la regado de via sankteco ili povas ne pagi la impostojn …
+—Mi aŭdis — diris li — ke iuj homoj klarigis al la kamparanoj, ke dum la regado de via sankteco ili povas ne pagi la impostojn …
 
 —Oh! Oh!… — ekkriis Ramzes ridante — tiuj homoj ŝajnas
 
 al mi tre similaj al la nobla Herhor … Li do volas mortigi min per malsato?… Kiel vi pagas la kurantajn elspezojn? — aldonis li.
 
-—Laŭ la ordono de Hiram pruntas al ni Fenicianoj — res-
-
-pondis la trezoristo. — Ni jam prenis ok mil talentojn …
+—Laŭ la ordono de Hiram pruntas al ni Fenicianoj — respondis la trezoristo. — Ni jam prenis ok mil talentojn …
 
 —Sed vi donas al ili kvitancojn?
 
@@ -5949,14 +4686,9 @@ pondis la trezoristo. — Ni jam prenis ok mil talentojn …
 
 Ebriigita de la akcepto de la popolo kaj de la humileco de
 
-la riĉuloj, la faraono ne koleris plu kontraŭ Herhor kaj Me-
+la riĉuloj, la faraono ne koleris plu kontraŭ Herhor kaj Mefres. La tempo de la kolero pasis, venis la momento de la aga-do, kaj en la sama tago Ramzes kombinis planon.
 
-fres. La tempo de la kolero pasis, venis la momento de la aga-do, kaj en la sama tago Ramzes kombinis planon.
-
-En la sekvinta tago li alvokis siajn plej konfidindajn ho-
-
-
-mojn: la ĉefpastron Semon, la profeton Pentueron, la favora-
+En la sekvinta tago li alvokis siajn plej konfidindajn homojn: la ĉefpastron Semon, la profeton Pentueron, la favora-
 
 ton Tutmozis kaj la Fenicianon Hiramon. Kiam ili kunvenis,
 
@@ -5964,16 +4696,11 @@ li diris:
 
 —Kredeble vi scias, ke la temploj postulis, ke mi redonu al
 
-ili la sumojn, kiujn pruntis de ili mia eterne vivanta patro. ĉiu ŝuldo estas sankta, kaj tiun de la dioj mi dezirus pagi antaŭ ĉio. Sed mia trezorejo estas malplena, ĉar eĉ la impostoj alfluas neakurate … Kaj tial mi opinias, ke la ŝtato estas en dan-
-
-ĝero kaj mi estas devigita, por havi monajn rimedojn, min
+ili la sumojn, kiujn pruntis de ili mia eterne vivanta patro. ĉiu ŝuldo estas sankta, kaj tiun de la dioj mi dezirus pagi antaŭ ĉio. Sed mia trezorejo estas malplena, ĉar eĉ la impostoj alfluas neakurate … Kaj tial mi opinias, ke la ŝtato estas en danĝero kaj mi estas devigita, por havi monajn rimedojn, min
 
 turni al la trezoroj, gardataj en Labirinto.
 
 La du pastroj faris maltrankvilan movon.
-
-
-LA FARAONO
 
 
 —Mi scias — daŭrigis la faraono — ke laŭ niaj sanktaj leĝoj, mia dekreto ne sufiĉas por malfermi al ni la kelojn de Labirinto. Sed la tieaj pastroj klarigis al mi, kion mi devas fari. Mi devas kunvoki reprezentantojn de ĉiuj klasoj de Egipto, po
@@ -5986,36 +4713,25 @@ En ĉi tiu momento la faraono ekridetis kaj daŭrigis:
 
 reprezentantojn de la klasoj, kaj jen kion mi ordonas al vi: vi, nobla Sem, elektos al mi dektri pastrojn kaj dektri nomar˛ojn
 
-… Vi, pia Pentuer, venigos de diversaj nomesoj dektri kampa-
-
-ranojn kaj dektri metiistojn … Tutmozis liveros dektri oficirojn kaj dektri nobelojn, la princo Hiram dektri komercistojn.
+… Vi, pia Pentuer, venigos de diversaj nomesoj dektri kamparanojn kaj dektri metiistojn … Tutmozis liveros dektri oficirojn kaj dektri nobelojn, la princo Hiram dektri komercistojn.
 
 Mi deziras, ke la reprezentantoj plej baldaŭ kunvenu en mia
 
-palaco en Memfiso kaj, ne perdante tempon en vana babi-
-
-lado, decidu, ke Labirinto devas liveri monon al mia trezore-jo …
+palaco en Memfiso kaj, ne perdante tempon en vana babilado, decidu, ke Labirinto devas liveri monon al mia trezore-jo …
 
 —Mi kuraĝas rememorigi al via sankteco — interrompis la
 
-ĉefpastro Sem — ke la konsilon devas ĉeesti la noblaj Herhor kaj Mefres, kaj ke ili posedas la rajton, eĉ la devon kontraŭ-
-
-stari, ke oni tuŝu la trezorejon de Labirinto.
+ĉefpastro Sem — ke la konsilon devas ĉeesti la noblaj Herhor kaj Mefres, kaj ke ili posedas la rajton, eĉ la devon kontraŭstari, ke oni tuŝu la trezorejon de Labirinto.
 
 —Bone, mi plene konsentas … — vive respondis la faraono.
 
-— Ili prezentos siajn motivojn, mi miajn … La kunveno dec-
-
-idos, ĉu la ŝtato povas ekzisti sen mono kaj ĉu prudente es-
+— Ili prezentos siajn motivojn, mi miajn … La kunveno decidos, ĉu la ŝtato povas ekzisti sen mono kaj ĉu prudente es-
 
 tas amasigi trezorejon en keloj, dum la registaron minacas la mizero.
 
 —Per kelke da safiroj, kiuj kuŝas en Labirinto, oni povus
 
 pagi ĉiujn feniciajn ŝuldojn!… — diris Hiram. — Mi tuj iras inter la komercistojn kaj liveros ne dektri, sed dektri mil tiajn, kiuj voĉdonos laŭ la ordonoj de via sankteco …
-
-
-LA FARAONO
 
 
 Dirinte tion, la Feniciano falis sur la vizaĝon kaj adiaŭis la monar˛on.
@@ -6060,21 +4776,11 @@ familio … Mi volis diri, ke mia amo al vi pligrandiĝos, sed mi silentos, ĉar
 
 La faraono frapis lin je la ŝultro.
 
-—Bone … bone!… Ne ripetu al mi tion, pri kio mi estas cer-
+—Bone … bone!… Ne ripetu al mi tion, pri kio mi estas certa — diris li. — Mi veturos morgaŭ al Antef kaj, pro la dioj, ŝajnas al mi, ke en la daŭro de kelke da tagoj, mi aranĝos vian edziĝon. Kaj nun vi povas iri al via Hebron …
 
+Restinte sola kun Sem, lia sankteco demandis: — Via vizaĝo estas malgaja … ĉu vi dubas, ke oni povos trovi dektri pastrojn, pretajn plenumi miajn ordonojn.
 
-LA FARAONO
-
-
-ta — diris li. — Mi veturos morgaŭ al Antef kaj, pro la dioj, ŝajnas al mi, ke en la daŭro de kelke da tagoj, mi aranĝos vian edziĝon. Kaj nun vi povas iri al via Hebron …
-
-Restinte sola kun Sem, lia sankteco demandis: — Via viza-
-
-ĝo estas malgaja … ĉu vi dubas, ke oni povos trovi dektri pastrojn, pretajn plenumi miajn ordonojn.
-
-—Mi estas certa, — respondis Sem — ke preskaŭ ĉiuj pas-
-
-troj kaj nomar˛oj faros tion, kio estos necesa por la feliĉo de Egipto kaj por la kontenteco de la faraono … Sed bonvolu ne
+—Mi estas certa, — respondis Sem — ke preskaŭ ĉiuj pastroj kaj nomar˛oj faros tion, kio estos necesa por la feliĉo de Egipto kaj por la kontenteco de la faraono … Sed bonvolu ne
 
 forgesi, sinjoro, ke en la aferoj de la trezorejo de Labirinto la definitivan decidon faras Amon …
 
@@ -6096,25 +4802,16 @@ tre ofte statuoj de la dioj faras tion, kion deziras iliaj ĉefpastroj, sed … 
 
 faraono. — La dioj konas la staton de la lando kaj legas en mia koro. Mi volas, ke Egipto estu feliĉa, kaj ĉar nur tion mi celas, neniu saĝa kaj bona dio povas min malhelpi.
 
-—Realiĝu la vortoj de via sankteco!… — murmuretis la ĉef-
+—Realiĝu la vortoj de via sankteco!… — murmuretis la ĉefpastro.
 
-pastro.
-
-—Vi volas ankoraŭ ion diri al mi — demandis Ramzes, vid-
-
-ante ke lia religia anstataŭanto prokrastas la adiaŭon.
-
-
-LA FARAONO
+—Vi volas ankoraŭ ion diri al mi — demandis Ramzes, vidante ke lia religia anstataŭanto prokrastas la adiaŭon.
 
 
 —Jes, sinjoro. Mi havas la devon rememorigi al vi, ke ĉiu
 
 faraono, akceptinte la povon kaj enteriginte sian antaŭulon, tuj devas zorgi pri la konstruo de tombo por si kaj de templo por la dioj.
 
-—Jes, jes! — ekkriis la sinjoro. — Pli ol unu fojon mi pen-
-
-sis pri tio, sed ne posedante monon mi ne rapidas ordoni ion.
+—Jes, jes! — ekkriis la sinjoro. — Pli ol unu fojon mi pensis pri tio, sed ne posedante monon mi ne rapidas ordoni ion.
 
 ĉar vi komprenas, — aldonis li vive — ke se mi konstruos ion, tio estos io granda, kio devigos Egipton ne baldaŭ forgesi pri mi …
 
@@ -6132,9 +4829,7 @@ Mia ŝtato estas tro malforta por plenumi grandegajn verkojn
 
 okulojn.
 
-—Mi parolis kun la Greko Dion, kiu estas mia plej eminen-
-
-ta ar˛itekto, kaj li laŭdis mian planon — daŭrigis la faraono.
+—Mi parolis kun la Greko Dion, kiu estas mia plej eminenta ar˛itekto, kaj li laŭdis mian planon — daŭrigis la faraono.
 
 — Kiel tombon por mi, mi volas konstrui rondan turon, kun
 
@@ -6151,9 +4846,6 @@ La ĉefpastro skuis la kapon.
 sed ne plenumeblaj … La babilonaj turoj pro sia formo estas
 
 
-LA FARAONO
-
-
 malfortikaj kaj facile renversiĝas, niaj konstruaĵoj daŭras jar-centojn … Oni ne povas konstrui templon al la Sola Dio, ĉar
 
 li bezonas nek manĝaĵojn, nek trinkaĵojn, kaj la tuta mondo
@@ -6162,9 +4854,7 @@ estas Lia loĝejo. Kie do estas la templo, kiu povus enteni Lin?
 
 Kie la pastro, kiu kuraĝus fari al Li oferojn?…
 
-—Bone, ni do konstruu templon al Amon Ra — interrom-
-
-pis la faraono.
+—Bone, ni do konstruu templon al Amon Ra — interrompis la faraono.
 
 —Jes, sed ne tian, kia estas la palaco de reĝo Assar. ĉar ĝi estas asiria konstruaĵo, kaj al ni, Egiptanoj, ne konvenas imiti la barbarojn …
 
@@ -6172,9 +4862,7 @@ pis la faraono.
 
 incitita.
 
-—Aŭskultu min, nia sinjoro — diris Sem. — Rigardu lima-
-
-kojn, el kiuj ĉiu havas alian konkon: unu kunvolvitan, sed platan, alia kunvolvitan, sed longforman, alia similan al kesto …
+—Aŭskultu min, nia sinjoro — diris Sem. — Rigardu limakojn, el kiuj ĉiu havas alian konkon: unu kunvolvitan, sed platan, alia kunvolvitan, sed longforman, alia similan al kesto …
 
 Same ĉiu popolo faras konstruaĵojn, konformajn al ĝia raso
 
@@ -6187,33 +4875,21 @@ disiĝas la tero. Egiptano, humila kaj prudenta, metas siajn
 detranĉitajn piramidojn unu post alia. Tiamaniere ĉe ni nenio pendas en la aero, sed ĉiu parto de la konstruaĵo sin apogas sur la tero. Jen kial niaj konstruaĵoj estas longaj kaj eterne-daŭraj, la asiriaj — altaj kaj rompeblaj, kiel ilia ŝtato, kiu hodiaŭ rapide leviĝas, kaj de kiu post kelke da jarcentoj restos nur ruinoj. Asiriano estas kriema memlaŭdulo kaj en siaj konstruaĵoj ĉion metas ekstere: kolonojn, pentraĵojn, skulptaĵojn.
 
 
-LA FARAONO
-
-
-La modesta Egiptano kaŝas la plej belajn skulptaĵojn kaj ko-
-
-lonojn en la interno de la temploj, kiel saĝulo, kiu la altajn pensojn, sentojn kaj dezirojn kaŝas sur la fundo de sia koro, kaj ne ornamas per ili sian bruston aŭ dorson. ĉe ni ĉio bela estas kaŝita: ĉe li ĉion oni faras por montrado. Asiriano, se li povus, distranĉus sian stomakon, por montri al la mondo kiel delikatajn aĵojn li manĝas …
+La modesta Egiptano kaŝas la plej belajn skulptaĵojn kaj kolonojn en la interno de la temploj, kiel saĝulo, kiu la altajn pensojn, sentojn kaj dezirojn kaŝas sur la fundo de sia koro, kaj ne ornamas per ili sian bruston aŭ dorson. ĉe ni ĉio bela estas kaŝita: ĉe li ĉion oni faras por montrado. Asiriano, se li povus, distranĉus sian stomakon, por montri al la mondo kiel delikatajn aĵojn li manĝas …
 
 —Parolu … parolu!… — intermetis Ramzes.
 
-—Ne multe restis al mi por diri — daŭrigis Sem. — Mi vo-
-
-las nur turni vian atenton, sinjoro, al la ĝenerala formo de niaj konstruaĵoj. Kiam antaŭ kelke da jaroj mi estis en Ninivo, mi rigardis la asiriajn turojn, fiere leviĝantajn super la tero; ŝajnis al mi, ke tio estas furiozaj ĉevaloj, kiuj disŝirinte bridojn, stariĝas sur la postaj piedoj, sed tuj falos, aŭ eble rompos al si la krurojn. Kontraŭe, provu via sankteco ekrigardi de alta punkto egiptan templon. Kion ĝi rememorigas? Homon, kiu
+—Ne multe restis al mi por diri — daŭrigis Sem. — Mi volas nur turni vian atenton, sinjoro, al la ĝenerala formo de niaj konstruaĵoj. Kiam antaŭ kelke da jaroj mi estis en Ninivo, mi rigardis la asiriajn turojn, fiere leviĝantajn super la tero; ŝajnis al mi, ke tio estas furiozaj ĉevaloj, kiuj disŝirinte bridojn, stariĝas sur la postaj piedoj, sed tuj falos, aŭ eble rompos al si la krurojn. Kontraŭe, provu via sankteco ekrigardi de alta punkto egiptan templon. Kion ĝi rememorigas? Homon, kiu
 
 preĝas, kuŝante sur la tero. La du pilonoj estas manoj, levitaj al la ĉielo. La du muroj, ĉirkaŭantaj la korton, estas brakoj. La
 
 ”ĉambrego de la kolonoj aŭ ĉiela” estas kapo; la ĉambroj de
 
-la ”dia apero” kaj de la ”oferaj tabloj” estas brusto, kaj la sekreta sanktejo estas koro de la pia Egiptano. Nia templo in-
-
-struas nin, kiaj ni devas esti: ”Havu manojn potencajn, kiel la pilonoj — diras ĝi al ni — kaj brakojn fortajn, kiel la muroj.
+la ”dia apero” kaj de la ”oferaj tabloj” estas brusto, kaj la sekreta sanktejo estas koro de la pia Egiptano. Nia templo instruas nin, kiaj ni devas esti: ”Havu manojn potencajn, kiel la pilonoj — diras ĝi al ni — kaj brakojn fortajn, kiel la muroj.
 
 Havu en la kapo saĝon tiel vastan kaj riĉan, kiel la vestiblo de la templo, animon puran, kiel la ĉambroj de la ”dia apero” kaj de la ”oferoj”, kaj en la koro havu dion, ho Egiptano!… La asiriaj konstruaĵoj diras al sia popolo: ”Leviĝu super la homojn, Asiriano, portu la kapon pli alte ol la aliaj!… Vi faros nenion grandan en la mondo, sed almenaŭ vi lasos multe da ruinoj
 
 …” ĉu do vi havus kuraĝon, sinjoro — konkludis la ĉefpastro
-
-
-LA FARAONO
 
 
 — konstrui ĉe ni asiriajn templojn, imiti la popolon, kiun
@@ -6235,18 +4911,11 @@ de la templo kaj de mia tombo. Kaj vi, saĝuloj, kiuj estas favoraj al mi, prepa
 diris al si la ĉefpastro kaj malĝoja adiaŭis la faraonon.
 
 
-LA FARAONO
+ĈAPITRO DEKUNUA
 
+Dume Pentuer sin preparis por reveni de Malsupra Egipto. Unuflanke li devis trovi po dektri reprezentantojn de
 
-ĉAPITRO DEKUNUA
-
-Dume Pentuer sin preparis por reveni de Malsupra Egip-
-
-to. Unuflanke li devis trovi po dektri reprezentantojn de
-
-la kamparanoj kaj metiistoj, kiel li promesis al la nova mo-
-
-nar˛o. Laŭ lia opinio, la plej grava afero por Egipto estis forigi la maljustaĵojn kaj trouzojn, kiujn suferis la laborantaj klasoj.
+la kamparanoj kaj metiistoj, kiel li promesis al la nova monar˛o. Laŭ lia opinio, la plej grava afero por Egipto estis forigi la maljustaĵojn kaj trouzojn, kiujn suferis la laborantaj klasoj.
 
 Tamen Pentuer estis pastro kaj ne nur ne deziris la falon de sia propra klaso, sed eĉ ne volis disŝiri la ligilojn, kiuj kunigis lin kun ĝi.
 
@@ -6264,21 +4933,12 @@ ekscelencon, al kies favoro mi ŝuldas tion, kio mi estas nun …
 
 — respondis Pentuer.
 
-—Mi scias, mi scias! — interrompis Herhor. — Vi ne akcep-
-
-tis la altan oficon, por ne labori por la pereo de la temploj. Mi scias, ke vi ne fariĝis konsilisto de ĉi tiu junulaĉo, simila al petola ĉevalo, kiu, kiel oni diras, regas nin … Sendube vi ne permesus al li sin ĉirkaŭi per perfiduloj, kiuj pereigos lin …
+—Mi scias, mi scias! — interrompis Herhor. — Vi ne akceptis la altan oficon, por ne labori por la pereo de la temploj. Mi scias, ke vi ne fariĝis konsilisto de ĉi tiu junulaĉo, simila al petola ĉevalo, kiu, kiel oni diras, regas nin … Sendube vi ne permesus al li sin ĉirkaŭi per perfiduloj, kiuj pereigos lin …
 
 
-LA FARAONO
+Pentuer ne dezirante paroli pri tiel danĝeraj aferoj, rakontis al Herhor, por kio li veturas en Malsupran Egipton.
 
-
-Pentuer ne dezirante paroli pri tiel danĝeraj aferoj, rakon-
-
-tis al Herhor, por kio li veturas en Malsupran Egipton.
-
-—Bone — respondis Herhor — Ramzes XIII kunvoku kun-
-
-sidon de ĉiuj klasoj!… Li havas la rajton … Sed — aldonis li subite — mi bedaŭras, ke vi miksas vin je tio … Grandaj ŝan-
+—Bone — respondis Herhor — Ramzes XIII kunvoku kunsidon de ĉiuj klasoj!… Li havas la rajton … Sed — aldonis li subite — mi bedaŭras, ke vi miksas vin je tio … Grandaj ŝan-
 
 ĝoj fariĝis en vi! ĉu vi memoras, kion vi diris dum la manovroj apud Pi-Bailos, al mia adjutanto?… Mi rememorigos al vi: vi diris, ke oni devas limigi la trouzojn kaj la diboĉojn de la faraonoj. Kaj hodiaŭ … vi mem subtenas la infanajn preten-dojn de la plej granda diboĉulo, kiun iam ajn havis Egipto.
 
@@ -6288,23 +4948,17 @@ sorton de la popolo. Mi do estus malsaĝa kaj mizera, se mi,
 
 filo de kamparanoj, ne servus al li en ĉi tiu afero.
 
-—Sed vi ne demandas, ĉu vi ne malutilos nin, la pastra-
-
-ron?…
+—Sed vi ne demandas, ĉu vi ne malutilos nin, la pastraron?…
 
 Pentuer ekmiris.
 
-—Vi ja mem plibonigis la sorton de la kamparanoj, apar-
-
-tenantaj al la temploj! — ekkriis li. — Cetere mi havas vian permeson …
+—Vi ja mem plibonigis la sorton de la kamparanoj, apartenantaj al la temploj! — ekkriis li. — Cetere mi havas vian permeson …
 
 —Kion?… kian? — demandis Herhor.
 
 —Rememorigu al vi via ekscelenco la nokton, dum kiu, en
 
-la templo de Set, ni akceptis Beroeson. Mefres diris tiam, ke Egipto falis de la malleviĝo de la pastraro, mi certigis, ke la mizero de la popolo estas la kaŭzo de la malfeliĉo de la ŝta-to. Al tio, se la memoro ne trompas min, vi respondis: ”Me-
-
-fres zorgu pri la releviĝo de la pastraro, Pentuer pri la plibonigo de la sorto de la kamparanoj … Kaj mi antaŭzorge mal-
+la templo de Set, ni akceptis Beroeson. Mefres diris tiam, ke Egipto falis de la malleviĝo de la pastraro, mi certigis, ke la mizero de la popolo estas la kaŭzo de la malfeliĉo de la ŝta-to. Al tio, se la memoro ne trompas min, vi respondis: ”Mefres zorgu pri la releviĝo de la pastraro, Pentuer pri la plibonigo de la sorto de la kamparanoj … Kaj mi antaŭzorge mal-
 
 helpos la militon inter Egipto kaj Asirio.”
 
@@ -6313,16 +4967,11 @@ helpos la militon inter Egipto kaj Asirio.”
 devon agi kun ni, ne kun Ramzes.
 
 
-LA FARAONO
-
-
 —ĉu li volas militon kontraŭ Asirio? — respondis energie
 
 Pentuer. — Aŭ eble li malhelpas la pastrojn akiri saĝon?… Li volas doni al la popolo ripozon ĉiun sepan tagon, kaj poste
 
-donaci al ĉiu kamparana familio pecon da tero … Kaj via eks-
-
-celenco ne diru al mi, ke la faraono volas ion malbonan, ĉar oni konstatis en la bienoj de la pastroj, ke kamparano libera kaj posedanta sian kampon laboras pli bone ol sklavo.
+donaci al ĉiu kamparana familio pecon da tero … Kaj via ekscelenco ne diru al mi, ke la faraono volas ion malbonan, ĉar oni konstatis en la bienoj de la pastroj, ke kamparano libera kaj posedanta sian kampon laboras pli bone ol sklavo.
 
 —Mi tute ne kontraŭstaras la reformojn por la popolo! —
 
@@ -6346,21 +4995,14 @@ Li apenaŭ metis la piedon en la superan lernejon, el kiu li plej rapide forkuri
 
 —ĉu tio estas regado, Pentuer! — respondis la ĉefpastro
 
-kun rideto. — Li fondis novajn militajn lernejojn, pligrandigis kvanton de la regimentoj, armas la tutan popolon, prome-
-
-sas festojn al la popolaĉo … Sed kiel li plenumos tion?… Vi
+kun rideto. — Li fondis novajn militajn lernejojn, pligrandigis kvanton de la regimentoj, armas la tutan popolon, promesas festojn al la popolaĉo … Sed kiel li plenumos tion?… Vi
 
 restas malproksime de li, vi do scias nenion; sed mi certigas al vi, ke li donante la ordonojn, tute ne konsideras, kiu plenumos ilin? kiel? kiajn sekvojn ili havos? Al vi ŝajnas, ke li regas. Tio estas mi, kiu regas, mi seninterrompe regas, mi,
 
 
-LA FARAONO
-
-
 kiun li forpelis de si … Mi estas la kaŭzo, ke hodiaŭ malpli da impostoj alfluas al la trezorejo, sed estas ankaŭ mi, kiu malhelpas ribelojn de la kamparanoj, kiuj jam eksplodus; dank’al mi ili ne forlasas la laborojn ĉe la kanaloj, akvobaroj kaj ŝoseoj. Fine, mi jam dufoje detenis Asirion, kiu volis proklami militon kontraŭ ni, kiun ĉi tiu frenezulo provokas per siaj militaj preparoj … Ramzes regas!… Li nur faras malordon. Vi
 
-havis provon de lia mastrumado en Malsupra Egipto: li trin-
-
-kis, diboĉis, venigis novajn kaj novajn knabinojn kaj sin okupis, oni diras, per administrado de la nomesoj, sed li komprenis nenion, absolute nenion. Sed plej malbone estas, ke li ku-niĝis kun Fenicianoj, bankrotintaj nobeloj kaj diversaj per-
+havis provon de lia mastrumado en Malsupra Egipto: li trinkis, diboĉis, venigis novajn kaj novajn knabinojn kaj sin okupis, oni diras, per administrado de la nomesoj, sed li komprenis nenion, absolute nenion. Sed plej malbone estas, ke li ku-niĝis kun Fenicianoj, bankrotintaj nobeloj kaj diversaj per-
 
 fiduloj, kiuj puŝas lin al la pereo …
 
@@ -6376,14 +5018,9 @@ estas nur metia lernanto.
 
 —Per kio do finiĝos via malamo? — demandis Pentuer.
 
-—Malamo!… — ripetis la ĉefpastro. — ĉu mi povas mala-
-
-mi flavbekulon, kiu cetere estas tiel ĉirkaŭita de ĉiuj flankoj, kiel cervo de ĉasistoj, en intermonto? Sed mi devas konfesi, ke lia regado estas tiel malutila por Egipto, ke, se Ramzes
+—Malamo!… — ripetis la ĉefpastro. — ĉu mi povas malami flavbekulon, kiu cetere estas tiel ĉirkaŭita de ĉiuj flankoj, kiel cervo de ĉasistoj, en intermonto? Sed mi devas konfesi, ke lia regado estas tiel malutila por Egipto, ke, se Ramzes
 
 havus fraton, aŭ se Nitager estus pli juna, ni jam forigus la nunan faraonon …
-
-
-LA FARAONO
 
 
 —Kaj via ekscelenco fariĝus lia posteulo!… — eksplodis
@@ -6406,9 +5043,7 @@ La faraono havis ĉe sia flanko la tutan popolon, la tutan
 
 armeon, multe da pastroj kaj la plimulton da civilaj altranguloj La kolegio povis kalkuli apenaŭ je kelke da miloj da partianoj, je siaj trezoroj kaj je sia senfine saĝa organizo. La fortoj estis tute neegalaj, sed la rezultato de la batalo tre duba.
 
-—Vi do decidis pereigi la faraonon!… — murmuretis Pen-
-
-tuer.
+—Vi do decidis pereigi la faraonon!… — murmuretis Pentuer.
 
 —Tute ne. Ni nur volas savi la ŝtaton.
 
@@ -6417,9 +5052,6 @@ tuer.
 —Kion li faros?… mi ne scias — respondis Herhor. — Sed
 
 mi scias, kion faris lia patro. Ramzes XII ankaŭ komencis la regadon per ignoranteco kaj despotismo; sed kiam la mono
-
-
-LA FARAONO
 
 
 mankis al li, kaj la plej fervoraj partianoj komencis lin malŝati, li sin turnis al la dioj. Li ĉirkaŭis sin per pastroj, lernis de ili, eĉ edziĝis kun la filino de la ĉefpastro, de Amenhotep … Kaj post dekkelko da jaroj li sukcesis fariĝi ĉefpastro ne sole pia, sed eĉ tre saĝa.
@@ -6434,9 +5066,7 @@ Post momento li daŭrigis:
 
 pensas via faraono, kiu cetere ne estas ankoraŭ solene kroni-ta, estas do nenio por ni. Mi scias, ke li volas fari la pastrojn siaj servistoj, kaj sin la sola estro de Egipto. Sed tia intenco estas malsaĝaĵo, eĉ perfido. Ne la faraonoj, vi scias tion tre bone, kreis Egipton, sed la dioj kaj pastroj. Ne la faraonoj mezuras la leviĝon de Nilo kaj reguligas ĝin; ne la faraonoj instruas la popolon semi, rikolti, eduki brutojn. Ne la faraonoj resanigas malsanojn de la loĝantoj kaj gardas sendanĝeron de la ŝtato kontraŭ la eksteraj malamikoj. Kio do okazus, diru
 
-mem, se la pastraro donus Egipton al la fantazio de la fara-
-
-onoj. La plej saĝa el ili havas sperton de kelkdeko da jaroj; sed la pastraro esploris kaj lernis dum dekoj da jarmiloj … La plej potenca monar˛o havas unu paron da okuloj kaj manoj; ni,
+mem, se la pastraro donus Egipton al la fantazio de la faraonoj. La plej saĝa el ili havas sperton de kelkdeko da jaroj; sed la pastraro esploris kaj lernis dum dekoj da jarmiloj … La plej potenca monar˛o havas unu paron da okuloj kaj manoj; ni,
 
 ni posedas milojn da okuloj kaj manoj en ĉiuj nomesoj kaj
 
@@ -6451,14 +5081,9 @@ kun la nia, kaj se la opinioj diferencas, kiu devas cedi, ni aŭ li?…
 perfidos la sanktajn misterojn. Kaj la ceteron … lasu al la tempo … Mi sincere deziras, ke la junulo, nomata Ramzes XIII,
 
 
-LA FARAONO
-
-
 revenu sur la vojon de la prudento, kaj mi supozas, ke li tion farus, se … se li ne estus ligita kun abomenaj perfiduloj, super kiuj jam pendas la mano de la dioj.
 
-Pentuer adiaŭis la ĉefpastron, plena de malĝojaj antaŭ-
-
-sentoj; tamen li ne perdis kuraĝon, sciante, ke kion ajn li akiros hodiaŭ por la plibonigo de la sorto de la popolo, tio jam restos, eĉ se la faraono sin klinus antaŭ la potenco de la pastroj.
+Pentuer adiaŭis la ĉefpastron, plena de malĝojaj antaŭsentoj; tamen li ne perdis kuraĝon, sciante, ke kion ajn li akiros hodiaŭ por la plibonigo de la sorto de la popolo, tio jam restos, eĉ se la faraono sin klinus antaŭ la potenco de la pastroj.
 
 ”En la plej malbona situacio — pensis li — ni faru, kion ni
 
@@ -6470,33 +5095,22 @@ Kontraŭe, li estis preta trankviligi la malpaciencajn, por ke ili ne pligrandig
 
 Post kelke da semajnoj Pentuer penetris en la limojn de
 
-Malsupra Egipto, serĉante survoje plej prudentajn kampara-
-
-nojn kaj metiistojn, el kiuj oni povus elekti delegitojn por la kunveno, kiun kunvokis la faraono. ĉie dum la vojaĝo li trovis signojn de granda ekscito: kamparanoj kaj metiistoj pos-
+Malsupra Egipto, serĉante survoje plej prudentajn kamparanojn kaj metiistojn, el kiuj oni povus elekti delegitojn por la kunveno, kiun kunvokis la faraono. ĉie dum la vojaĝo li trovis signojn de granda ekscito: kamparanoj kaj metiistoj pos-
 
 tulis, ke oni donu al ili ripozon ĉiun sepan tagon kaj pagu por ĉiuj publikaj laboroj, kiel estis iam. Kaj nur dank’al la admo-noj de la pastroj de diversaj temploj ne eksplodis ĝenerala
 
 ribelo, aŭ almenaŭ oni ne interrompis la laborojn.
 
-Samtempe li rimarkis kun miro kelkajn novajn fenome-
+Samtempe li rimarkis kun miro kelkajn novajn fenomenojn, kiujn li ne vidis antaŭ unu monato.
 
-nojn, kiujn li ne vidis antaŭ unu monato.
-
-Unue, la popolo sin dividis en du partiojn. Unuj estis par-
-
-tianoj de la faraono kaj malamikoj de la pastroj, aliaj indignis kontraŭ Fenicianoj. Unuj pretendis, ke la pastroj devas liveri al la faraono la trezorojn de Labirinto, aliaj murmuretis, ke la faraono tro protektas la fremdulojn.
-
-
-LA FARAONO
+Unue, la popolo sin dividis en du partiojn. Unuj estis partianoj de la faraono kaj malamikoj de la pastroj, aliaj indignis kontraŭ Fenicianoj. Unuj pretendis, ke la pastroj devas liveri al la faraono la trezorojn de Labirinto, aliaj murmuretis, ke la faraono tro protektas la fremdulojn.
 
 
 Sed plej stranga estis la famo, kiu venis oni ne scias de kie, ke Ramzes XIII montris simptomojn de frenezo!… Same kiel
 
 lia pli aĝa sampatra frato, kiun pro la sama kaŭzo oni forigis de la trono. Pri ĉi tiu famo parolis la pastroj skribistoj, eĉ kamparanoj.
 
-—Kiu rakontas al vi tiajn mensogojn?… — demandis Pen-
-
-tuer sian konatan inĝenieron.
+—Kiu rakontas al vi tiajn mensogojn?… — demandis Pentuer sian konatan inĝenieron.
 
 —Tio ne estas mensogo — respondis la inĝeniero — sed
 
@@ -6508,9 +5122,7 @@ Pentuer certigis lin, ke antaŭ du semajnoj li vidis la faraonon, kiu ĝuas bona
 
 pastroj povus havi tiel rapide novaĵojn de Teboj …”
 
-Por unu momento li tute perdis la deziron elekti la dele-
-
-gitojn, sed baldaŭ li reakiris la energion, ĉiam ripetante al si, ke kion la popolo ricevos hodiaŭ, ĝi ne povas perdi morgaŭ
+Por unu momento li tute perdis la deziron elekti la delegitojn, sed baldaŭ li reakiris la energion, ĉiam ripetante al si, ke kion la popolo ricevos hodiaŭ, ĝi ne povas perdi morgaŭ
 
 … Se nur ne okazos io eksterordinara!…
 
@@ -6526,25 +5138,15 @@ Kiam en la ŝtato oni faris grandan konstruaĵon aŭ novan
 
 kanalon, Menes iris al la loko kaj desegnis la planon. Ekster tiaj okazoj li vivis malriĉa kaj sola en sia templo, nokte obser-vante la stelojn, tage laborante ĉe strangaj aparatoj.
 
-De kelke da jaroj Pentuer ne estis en tiu loko, kaj nun mal-
-
-
-LA FARAONO
-
-
-agrable impresis lin ĝia mizero kaj izoleco. La brika barilo disfaladis, en la ĝardeno sekiĝis la arboj, en la korto vagis malgrasa kaprino kaj kelke da kokinoj.
+De kelke da jaroj Pentuer ne estis en tiu loko, kaj nun malagrable impresis lin ĝia mizero kaj izoleco. La brika barilo disfaladis, en la ĝardeno sekiĝis la arboj, en la korto vagis malgrasa kaprino kaj kelke da kokinoj.
 
 Apud la templo estis neniu. Nur kiam Pentuer komencis
 
-voki, el la pilono eliris maljuna homo. Li havis nudajn pie-
-
-dojn, sur la kapo malpuran kufon, kiel la kamparanoj, ĉirkaŭ la koksoj ĉifonan zonon, kaj sur la dorso panteran felon, kiu perdis la harojn. Malgraŭ tio lia eksteraĵo estis plena de mem-respekto kaj lia vizaĝo de inteligenteco. Li fikse rigardis la gaston kaj diris:
+voki, el la pilono eliris maljuna homo. Li havis nudajn piedojn, sur la kapo malpuran kufon, kiel la kamparanoj, ĉirkaŭ la koksoj ĉifonan zonon, kaj sur la dorso panteran felon, kiu perdis la harojn. Malgraŭ tio lia eksteraĵo estis plena de mem-respekto kaj lia vizaĝo de inteligenteco. Li fikse rigardis la gaston kaj diris:
 
 —Aŭ mi eraras, aŭ vi estas Pentuer?
 
-—Vere mi estas Pentuer — diris la veninto kaj kore ĉirkaŭ-
-
-prenis la maljunulon.
+—Vere mi estas Pentuer — diris la veninto kaj kore ĉirkaŭprenis la maljunulon.
 
 —Ho! Ho!… — ekkriis Menes (tio estis li). — Mi vidas, ke vi
 
@@ -6569,9 +5171,6 @@ vi, vi!… se vi scius, kion vi perdas forlasante la saĝon por la palacoj, vi e
 —ĉu vi estas sola, majstro?
 
 —Kvazaŭ palmo en la dezerto, precipe hodiaŭ, kiam mia
-
-
-LA FARAONO
 
 
 surdmutulo iris kun korbo Memfison almozpeti ion por la
@@ -6606,9 +5205,7 @@ estis konata: kiel granda estas la globo?
 
 tri egiptajn mejlojn1. La tera globo estas tiel grandega, ke niaj soldatoj farus la plenan ĉirkaŭiron dum kvin jaroj …
 
-—Dioj!… — ekkriis Pentuer. — ĉu vi ne timas, patro, pen-
-
-si pri tiaj aferoj …
+—Dioj!… — ekkriis Pentuer. — ĉu vi ne timas, patro, pensi pri tiaj aferoj …
 
 Menes levis la ŝultrojn.
 
@@ -6623,9 +5220,6 @@ la sama afero. Mi faris pli malfaciliajn aferojn, ĉar mi sukcesis mezuri la int
 1 Tri geografiaj mejloj.
 
 
-LA FARAONO
-
-
 timos … Sed pri tio parolu al neniu. En la monato Paofi ni
 
 havos mallumiĝon de la suno … tage fariĝos nokto … Kaj mi
@@ -6636,9 +5230,7 @@ Pentuer tuŝis la amuleton, kiun li havis sur la brusto kaj
 
 diris preĝon. Poste li demandis:
 
-—Mi legis en la sanktaj libroj, ke jam multfoje, por turmen-
-
-ti la homojn, tagmeze fariĝis nokto. Sed kio tio estas? Mi ne komprenas.
+—Mi legis en la sanktaj libroj, ke jam multfoje, por turmenti la homojn, tagmeze fariĝis nokto. Sed kio tio estas? Mi ne komprenas.
 
 —ĉu vi vidas la piramidojn? — demandis subite Menes,
 
@@ -6677,9 +5269,6 @@ metiistoj; li donos al ili ripozon ĉiun sepan tagon, malpermesos bati ilin sen 
 —Kaj mi diras al vi, ke li estas senpripensa — respondis la
 
 
-LA FARAONO
-
-
 incitita Menes. — Antaŭ du monatoj mi sendis al li grandan
 
 planon por plifaciligi la laboron de la kamparanoj, kaj … li an-kaŭ mokis min!… Li estas ignoranto kaj malhumilulo.
@@ -6688,9 +5277,7 @@ planon por plifaciligi la laboron de la kamparanoj, kaj … li an-kaŭ mokis min
 
 eble mi helpos plenumi ĝin.
 
-—Plano!… — ripetis la maljunulo. — Tio ne estas plu pla-
-
-no, sed realaĵo …
+—Plano!… — ripetis la maljunulo. — Tio ne estas plu plano, sed realaĵo …
 
 Li leviĝis de la benko kaj ili ambaŭ iris al la lageto en la ĝardeno, apud kiu staris laŭbo, perfekte kovrita de grimpantaj
 
@@ -6700,9 +5287,7 @@ Menes eniris en la internon de la rado kaj komencis movi ĝin per la piedoj; la 
 
 —Interesa aparato! — diris Pentuer.
 
-—Kaj ĉu vi divenos, kion ĝi povas fari por la egipta popo-
-
-lo?
+—Kaj ĉu vi divenos, kion ĝi povas fari por la egipta popolo?
 
 —Ne.
 
@@ -6714,14 +5299,9 @@ kaj ke en ĝia interno, anstataŭ homo, paŝas kelke da paroj da bovoj …
 
 komprenas ankoraŭ bone.
 
-—Tio estas tiel simpla! — respondis Menes. — Per la hel-
-
-po de ĉi tiu rado, bovoj aŭ ĉevaloj povus ĉerpi akvon el Nilo kaj verŝi ĝin en pli kaj pli suprajn kanalojn … kaj tiamaniere la du milionoj da homoj, kiuj hodiaŭ laboras ĉe la siteloj, povus ripozi … Nun vi vidas, ke la saĝo donas pli da feliĉo al la homoj ol la faraonoj.
+—Tio estas tiel simpla! — respondis Menes. — Per la helpo de ĉi tiu rado, bovoj aŭ ĉevaloj povus ĉerpi akvon el Nilo kaj verŝi ĝin en pli kaj pli suprajn kanalojn … kaj tiamaniere la du milionoj da homoj, kiuj hodiaŭ laboras ĉe la siteloj, povus ripozi … Nun vi vidas, ke la saĝo donas pli da feliĉo al la homoj ol la faraonoj.
 
 Pentuer skuis la kapon.
-
-
-LA FARAONO
 
 
 —Kiom da ligno oni bezonus por tio! — diris li — kiom da
@@ -6752,9 +5332,7 @@ Li ekmovis turnilon, aligitan al la tubo kaj subite la peza
 
 Sed tuj li trankviliĝis kaj demandis:
 
-—Kaj ĉi tiu ŝtono, kiel ĝi plibonigos la sorton de la popo-
-
-lo?
+—Kaj ĉi tiu ŝtono, kiel ĝi plibonigos la sorton de la popolo?
 
 —La ŝtono neniel — respondis la saĝulo, jam malpacienca.
 
@@ -6770,9 +5348,7 @@ insistis Pentuer.
 
 ne scias, ĉu vi maljuniĝis aŭ malsaĝiĝis, sed la kamparanoj
 
-kovris al vi la tutan mondon, vualis vian inteligenton. Se la 174
-
-LA FARAONO
+kovris al vi la tutan mondon, vualis vian inteligenton. Se la
 
 
 saĝuloj atentus nur la kamparanojn, ili devus ĵeti for siajn librojn kaj kalkulojn kaj fariĝi paŝtistoj …
@@ -6795,43 +5371,28 @@ por la objekto, kiun ne komprenas via animo.
 
 ni estis en la templo kvin, laborantaj por malkovri misterojn de la naturo. Hodiaŭ mi restis sola kaj pro dioj! mi ne povas trovi ne sole posteulon, sed eĉ homon, kiu komprenus min.
 
-—Certe, patro, mi restus ĉi tie ĝis la morto, por ekkoni vi-
-
-ajn diajn projektojn — respondis Pentuer. — Sed diru, ĉu mi
+—Certe, patro, mi restus ĉi tie ĝis la morto, por ekkoni viajn diajn projektojn — respondis Pentuer. — Sed diru, ĉu mi
 
 povas hodiaŭ ŝlosi min en templo, kiam estas pesata sorto de la ŝtato, feliĉo de la simpla popolo kaj kiam mia rolo …
 
-—Povas influi la sorton de la lando kaj de kelke da milio-
-
-noj da kamparanoj?… — interrompis moke Menes. —Ho vi,
+—Povas influi la sorton de la lando kaj de kelke da milionoj da kamparanoj?… — interrompis moke Menes. —Ho vi,
 
 plenaĝaj infanoj en tiaroj kaj ĉenoj de altranguloj! ĉar permesite estas al vi ĉerpi akvon el Nilo, tuj ŝajnas al vi, ke vi povas haltigi la leviĝon aŭ malleviĝon de la rivero. Vere, ne alie pensas ŝafino, kiu sekvante la aron, imagas, ke ŝi kondukas ĝin.
 
-—Sed pripensu, majstro. La juna faraono havas koron ple-
-
-nan de nobleco, li volas doni al la popolo ripozon ĉiun sepan tagon, justan juĝadon, eĉ teron …
-
-
-LA FARAONO
+—Sed pripensu, majstro. La juna faraono havas koron plenan de nobleco, li volas doni al la popolo ripozon ĉiun sepan tagon, justan juĝadon, eĉ teron …
 
 
 Menes skuis la kapon.
 
 —ĉio ĉi — diris li — estas vantaj aferoj. La junaj faraonoj
 
-maljuniĝas, kaj la popolo … la popolo havis jam multfoje ri-
+maljuniĝas, kaj la popolo … la popolo havis jam multfoje ripozon ĉiun sepan tagon, kaj poste perdis ĝin … Ah, se nur tio ŝanĝiĝus! Kiom da dinastioj kaj pastroj pasis en Egipto de tri mil jaroj, kiom da urboj kaj temploj disfalis en ruinojn, eĉ novaj tavoloj de tero formiĝis.
 
-pozon ĉiun sepan tagon, kaj poste perdis ĝin … Ah, se nur tio ŝanĝiĝus! Kiom da dinastioj kaj pastroj pasis en Egipto de tri mil jaroj, kiom da urboj kaj temploj disfalis en ruinojn, eĉ novaj tavoloj de tero formiĝis.
-
-ĉio ŝanĝiĝis, ekster tio, ke du kaj du estas kvar, ke triangulo estas duono de kvarangulo, ke la luno povas kovri la su-
-
-non, kaj ke la bolanta akvo povas ĵeti supren ŝtonon … En ĉi tiu pereema mondo daŭras kaj restas nur la saĝo. Ve al tiu,
+ĉio ŝanĝiĝis, ekster tio, ke du kaj du estas kvar, ke triangulo estas duono de kvarangulo, ke la luno povas kovri la sunon, kaj ke la bolanta akvo povas ĵeti supren ŝtonon … En ĉi tiu pereema mondo daŭras kaj restas nur la saĝo. Ve al tiu,
 
 kiu por aferoj pasantaj, kiel la nuboj, forlasas la eternajn! Lia koro neniam ĝuos trankvilon, lia animo balanciĝos, kiel ŝipeto dum ventego.
 
-—La dioj parolas per via buŝo, majstro — respondis Pen-
-
-tuer post pripenso — sed apenaŭ unu homo el milionoj po-
+—La dioj parolas per via buŝo, majstro — respondis Pentuer post pripenso — sed apenaŭ unu homo el milionoj po-
 
 vas fariĝi ilia instrumento … Kaj tio estas bona. ĉar kio okazus, se la kamparanoj tutajn noktojn rigardus la stelojn, la soldatoj farus kalkulojn, la altranguloj kaj faraono, anstataŭ regi, ĵetus ŝtonojn per la helpo de bolanta akvo? Antaŭ ol la luno unu fojon ĉirkaŭirus la teron, ĉiuj devus morti de malsato … Fine, neniu rado, neniu kaldrono defendus la landon
 
@@ -6843,11 +5404,7 @@ Al tiuj vortoj Menes respondis plu nenion.
 
 Kelke da tagoj pasigis Pentuer en la templo de la dia Nut,
 
-rigardante kun plezuro jen la sablan maron, jen la fruktodo-
-
-nan valon de Nilo. Kun Menes li observis la stelojn, rigardis la radon por la ĉerpado de akvo, iafoje promenis al la pirami-176
-
-LA FARAONO
+rigardante kun plezuro jen la sablan maron, jen la fruktodonan valon de Nilo. Kun Menes li observis la stelojn, rigardis la radon por la ĉerpado de akvo, iafoje promenis al la pirami-176
 
 
 doj. Li admiris la simplecon kaj genion de sia majstro, sed en la animo li pensis:
@@ -6859,10 +5416,7 @@ tial li ne zorgas pri la surtera vivo. Lia rado por ĉerpi la akvon ne estos akc
 kaj kie trovi por ili paŝtaĵon, eĉ en Supra Egipto?…”
 
 
-LA FARAONO
-
-
-ĉAPITRO DEKDUA
+ĈAPITRO DEKDUA
 
 En la tempo kiam Pentuer veturis tra la lando, elektante la
 
@@ -6872,9 +5426,7 @@ sian favoraton Tutmozison.
 
 Antaŭ ĉio la sinjoro de la du mondoj, ĉirkaŭita de belega
 
-sekvantaro, alveturis en orita kaleŝo en la palacon de lia ekscelenco Antef, la nomar˛o de Teboj. La granda sinjoro elku-
-
-ris renkonte al la monar˛o ĝis la pordego kaj, demetinte de
+sekvantaro, alveturis en orita kaleŝo en la palacon de lia ekscelenco Antef, la nomar˛o de Teboj. La granda sinjoro elkuris renkonte al la monar˛o ĝis la pordego kaj, demetinte de
 
 la piedoj multekostajn sandalojn, surgenue helpis Ramzeson
 
@@ -6892,9 +5444,7 @@ Antef, la sinjoro diris en la ĉeesto de la tuta sekvantaro:
 
 loĝas en plej belaj tomboj, same vi, ilia filo, estas la plej eminenta el la nomar˛oj de Egipto. Kaj vi sendube scias, ke en
 
-mia kortego kaj armeo, same kiel en mia reĝa koro, la unu-
-
-an lokon okupas mia favorato, la ĉefo de la gvardio, Tutmo-
+mia kortego kaj armeo, same kiel en mia reĝa koro, la unuan lokon okupas mia favorato, la ĉefo de la gvardio, Tutmo-
 
 zis.
 
@@ -6902,9 +5452,7 @@ Laŭ opinio de la saĝuloj, malbone faras la riĉulo, kiu sian
 
 plej multvaloran ŝtonon ne metas en plej belan ringon. Kaj
 
-ĉar via gento, Antef, estas por mi la plej kara, kaj Tutmozis la 178
-
-LA FARAONO
+ĉar via gento, Antef, estas por mi la plej kara, kaj Tutmozis la
 
 
 plej amata, mi do projektis kunigi vin unu kun la alia. Tio
@@ -6933,18 +5481,13 @@ korto, dankis Antefon unue pro tio, ke li donas sian filinon al tia mizerulo, ka
 
 kelke da tagoj, ĉar Tutmozis, kiel la ĉefo de la gvardio, ne havas tempon por tro longaj preparaj solenoj.
 
-—Mi deziras al vi feliĉon, mia filo — finis Antef kun ride-
-
-to — kaj grandan paciencon. ĉar mia plej amata filino He-
+—Mi deziras al vi feliĉon, mia filo — finis Antef kun rideto — kaj grandan paciencon. ĉar mia plej amata filino He-
 
 bron havas jam dudek jarojn, estas la unua elegantulino en
 
 Teboj kaj kutimis havi sian propran volon!
 
 Pro la dioj!… mi diras al vi, ke mia povo super Teboj ĉiam
-
-
-LA FARAONO
 
 
 finiĝis ĉe la pordeto de la ĝardeno de mia filino. Kaj mi timas, ke via generala rango faros sur ŝin ne pli grandan impreson.
@@ -6967,9 +5510,7 @@ Kiam la gastoj sidiĝis ĉe la tabloj, kiam eksonis la muziko
 
 kaj dancistinoj komencis disporti al la festenantoj vinon kaj florojn, Ramzes diris:
 
-—Ju pli longe mi rigardas vin, Hebron, des pli forte mi mi-
-
-ras. Se ĉi tien enirus fremdulo, li pensus, ke vi estas diino aŭ ĉefpastrino, sed neniam, ke vi estas feliĉa fianĉino.
+—Ju pli longe mi rigardas vin, Hebron, des pli forte mi miras. Se ĉi tien enirus fremdulo, li pensus, ke vi estas diino aŭ ĉefpastrino, sed neniam, ke vi estas feliĉa fianĉino.
 
 —Vi eraras, sinjoro — respondis ŝi. — En ĉi tiu momento
 
@@ -6977,25 +5518,15 @@ mi estas feliĉa, sed ne de mia fianĉiĝo …
 
 —Kiel tio estas ebla? — interrompis la faraono.
 
-—La edziĝo ne logas min kaj certe mi preferus fariĝi la ĉef-
-
-pastrino de Izido, ol edzino …
+—La edziĝo ne logas min kaj certe mi preferus fariĝi la ĉefpastrino de Izido, ol edzino …
 
 —Kial do vi edziniĝas?
 
-—Mi faras tion por la patro, kiu volas nepre havi heredon-
-
-ton de sia gloro. Kaj precipe, ĉar vi tion deziras, sinjoro …
+—Mi faras tion por la patro, kiu volas nepre havi heredonton de sia gloro. Kaj precipe, ĉar vi tion deziras, sinjoro …
 
 —ĉu Tutmozis povus ne plaĉi al vi?
 
-—Tion mi ne diras. Tutmozis estas bela, estas unua elegan-
-
-
-LA FARAONO
-
-
-tulo en Egipto, bele kantas kaj ricevas premiojn en la ludoj.
+—Tion mi ne diras. Tutmozis estas bela, estas unua elegantulo en Egipto, bele kantas kaj ricevas premiojn en la ludoj.
 
 Lia rango de ĉefo de la gvardio de via sankteco estas unu el la plej altaj en la lando. Malgraŭ tio, se la patro ne petus min kaj vi ne ordonus, mi ne fariĝus lia edzino … Cetere eĉ tiel mi ne estos!… Al Tutmozis sufiĉas mia riĉaĵo kaj la titoloj, kiujn li heredos de mia patro, kaj la reston li trovos ĉe la dancistinoj.
 
@@ -7027,37 +5558,23 @@ potencon …
 
 Ramzes konfuziĝis.
 
-—Hebron, Hebron … Se vi scius, kian maltrankvilon vi se-
+—Hebron, Hebron … Se vi scius, kian maltrankvilon vi semas en mia koro!…
 
-mas en mia koro!…
-
-—Jen kial — diris ŝi — mi konsentas edziniĝi kun Tutmo-
-
-
-LA FARAONO
-
-
-zis … Mi estos pli proksima al via sankteco kaj, almenaŭ ĉiun kelkon da tagoj, mi vidos vin, sinjoro …
+—Jen kial — diris ŝi — mi konsentas edziniĝi kun Tutmozis … Mi estos pli proksima al via sankteco kaj, almenaŭ ĉiun kelkon da tagoj, mi vidos vin, sinjoro …
 
 Dirinte tion, ŝi leviĝis de la tablo kaj foriris.
 
 Antef rimarkis ŝian agon kaj timigite alkuris al Ramzes.
 
-—Ho sinjoro! — ekkriis li — ĉu mia filino diris ion nekon-
-
-venan?… ŝi estas nedresebla leonino …
+—Ho sinjoro! — ekkriis li — ĉu mia filino diris ion nekonvenan?… ŝi estas nedresebla leonino …
 
 —Trankviliĝu — respondis la faraono. — Via filino estas
 
 plena de saĝo kaj seriozeco. ŝi eliris, ĉar ŝi rimarkis, ke la vino de via ekscelenco tro gajigas la festenantojn.
 
-Efektive, en la salono regis granda bruo, tiom pli, ke Tut-
+Efektive, en la salono regis granda bruo, tiom pli, ke Tutmozis, forlasinte la rolon de vic-mastro, fariĝis la plej viva festenanto.
 
-mozis, forlasinte la rolon de vic-mastro, fariĝis la plej viva festenanto.
-
-—Konfidence mi diros al via sankteco — murmuretis An-
-
-tef — ke la kompatinda Tutmozis devos sin gardi en ĉeesto de Hebron …
+—Konfidence mi diros al via sankteco — murmuretis Antef — ke la kompatinda Tutmozis devos sin gardi en ĉeesto de Hebron …
 
 La unua festeno daŭris ĝis la mateno. La faraono baldaŭ
 
@@ -7075,55 +5592,35 @@ Akompanis lin: la granda skribisto, ĉefo de la arkpafistoj,
 
 ĉefo de la rajdistaro, granda trezoristo, ĉefpastro Sem kaj la generaloj adjutantoj.
 
-Kiam ĉiuj ĉi eminentuloj kunvenis en la salono de la an-
-
-taŭuloj de Antef, aperis Hebron en blankaj vestoj kun multe-
-
-
-LA FARAONO
+Kiam ĉiuj ĉi eminentuloj kunvenis en la salono de la antaŭuloj de Antef, aperis Hebron en blankaj vestoj kun multe-
 
 
 nombra sekvantaro de amikinoj kaj servistinoj. ŝia patro, bruliginte incenson antaŭ Amon, antaŭ la statuo de sia patro kaj antaŭ Ramzes sidanta sur estrado, anoncis, ke li liberigas sian filinon de la patra zorgado kaj donacas al ŝi doton. Samtempe li donis al ŝi en ora skatolo akton, konforman al sia diro, skribitan sur papiruso en la juĝejo.
 
-Post mallonga antaŭmanĝo la fianĉino sidiĝis en multe-
-
-kosta portilo, portata de ok oficistoj de la nomeso. Antaŭ ŝi iris la muzikistoj kaj kantistoj, ĉirkaŭ la portilo la altranguloj, kaj post ili granda papolamaso preskaŭ same granda, kiel
+Post mallonga antaŭmanĝo la fianĉino sidiĝis en multekosta portilo, portata de ok oficistoj de la nomeso. Antaŭ ŝi iris la muzikistoj kaj kantistoj, ĉirkaŭ la portilo la altranguloj, kaj post ili granda papolamaso preskaŭ same granda, kiel
 
 dum la enterigo de la faraono.
 
 La popolo restis ekster la muro de la templo, la ĝefianĉoj,
 
-faraono kaj altranguloj eniris en la kolonan ĉambregon. Her-
-
-hor bruligis incenson antaŭ la vualita statuo de Amon, la pastrinoj dancis la sanktan dancon, kaj Tutmozis legis de papi-
+faraono kaj altranguloj eniris en la kolonan ĉambregon. Herhor bruligis incenson antaŭ la vualita statuo de Amon, la pastrinoj dancis la sanktan dancon, kaj Tutmozis legis de papi-
 
 ruso sekvantan akton:
 
 ”Mi, Tutmozis, ĉefo de la gvardio de lia sankteco Ramzes
 
-XIII, prenas vin, Hebron, la filinon de la teba nomar˛o An-
+XIII, prenas vin, Hebron, la filinon de la teba nomar˛o Antef, kiel edzinon. Mi donas al vi tuj dek talentojn pro tio, ke vi konsentis fariĝi mia edzino. Por viaj vestoj mi destinas al vi tri talentojn jare, kaj por la hejmaj elspezoj unu talenton mo-nate. El la infanoj, kiujn ni havos, la plej aĝa filo heredos la ri-
 
-tef, kiel edzinon. Mi donas al vi tuj dek talentojn pro tio, ke vi konsentis fariĝi mia edzino. Por viaj vestoj mi destinas al vi tri talentojn jare, kaj por la hejmaj elspezoj unu talenton mo-nate. El la infanoj, kiujn ni havos, la plej aĝa filo heredos la ri-
-
-ĉaĵon, kiun mi nun posedas kaj kiun mi povas akiri en la es-
-
-tonteco. Se mi ne vivus plu kun vi, eksedziĝus kaj prenus
+ĉaĵon, kiun mi nun posedas kaj kiun mi povas akiri en la estonteco. Se mi ne vivus plu kun vi, eksedziĝus kaj prenus
 
 alian edzinon, mi estus devigita pagi al vi kvardek talentojn, kiujn mi garantias per miaj bienoj. Nia filo, kiam li prenos la havon, devas pagi al vi dekkvin talentojn jare. Infanoj, naski-taj de alia virino, ne havos rajton je la propraĵo de nia plej aĝa filo.”1
 
 1 Aŭtentika.
 
 
-LA FARAONO
+Nun antaŭeniris la granda juĝisto kaj en la nomo de Hebron legis akton, en kiu la juna sinjorino promesis: bone nutri kaj vesti sian eldzon, zorgi pri lia domo, familio, servistoj, brutoj kaj sklavoj, kaj konfidis al la edzo administradon de la havo, kiun ŝi ricevis kaj ricevos de la patro.
 
-
-Nun antaŭeniris la granda juĝisto kaj en la nomo de He-
-
-bron legis akton, en kiu la juna sinjorino promesis: bone nutri kaj vesti sian eldzon, zorgi pri lia domo, familio, servistoj, brutoj kaj sklavoj, kaj konfidis al la edzo administradon de la havo, kiun ŝi ricevis kaj ricevos de la patro.
-
-Kiam la aktoj estis legitaj, Herhor donis al Tutmozis poka-
-
-lon da vino.
+Kiam la aktoj estis legitaj, Herhor donis al Tutmozis pokalon da vino.
 
 La edzo trinkis duonon, Hebron trempis la lipojn, poste
 
@@ -7150,9 +5647,6 @@ fajron per la mano, Tutmozis dividis kun ŝi pecon da pano kaj metis sur ŝian f
 Dume la pastroj kantis himnon de la edziĝo kaj portis la
 
 
-LA FARAONO
-
-
 statuon de la dia Izido tra la tuta domo. La pastrinoj dancis la sanktajn dancojn.
 
 La tago estis finita per spektakloj kaj granda festeno, dum
@@ -7165,9 +5659,7 @@ Kiam aperis la steloj, la sankta Herhor forlasis la festenon, kaj baldaŭ post l
 
 ĉefpastroj Herhor, Mefres kaj Mentezufis, la plej alta juĝisto de Teboj kaj nomar˛oj de Abs, Horti kaj Emsu˛.
 
-Mentezufis ĉirkaŭrigardis la dikajn kolonojn, fermis la por-
-
-don, estingis la lumojn, kaj restis en la malalta ĉambro nur unu lampo, brulanta antaŭ la statuo de Horus. La altranguloj sidiĝis sur tri ŝtonaj benkoj, kaj la nomar˛o Abs diris:
+Mentezufis ĉirkaŭrigardis la dikajn kolonojn, fermis la pordon, estingis la lumojn, kaj restis en la malalta ĉambro nur unu lampo, brulanta antaŭ la statuo de Horus. La altranguloj sidiĝis sur tri ŝtonaj benkoj, kaj la nomar˛o Abs diris:
 
 —Se oni ordonus al mi difini la karakteron de lia sankteco
 
@@ -7185,14 +5677,9 @@ rememorigis al ni pri la definitiva traktato, kaj hodiaŭ, kiel mi aŭdis, komen
 
 ke ĉi tiu malpiulo volas tuŝi la trezorojn de Labirinto.
 
-—Mi pensas — diris la nomar˛o de Emsu˛ — ke pli mal-
-
-bonaj ankoraŭ estas la promesoj, faritaj al la kamparanoj. La enspezoj de la ŝtato kaj la niaj ekŝanceliĝos, se la popolaĉo komencos festi ĉiun sepan tagon … Kaj se la faraono donus
+—Mi pensas — diris la nomar˛o de Emsu˛ — ke pli malbonaj ankoraŭ estas la promesoj, faritaj al la kamparanoj. La enspezoj de la ŝtato kaj la niaj ekŝanceliĝos, se la popolaĉo komencos festi ĉiun sepan tagon … Kaj se la faraono donus
 
 al ili teron …
-
-
-LA FARAONO
 
 
 —Li estas kapabla fari tion — murmuretis le ĉefa juĝisto.
@@ -7201,17 +5688,13 @@ LA FARAONO
 
 al mi, ke li volas sole monon. Se oni cedus al li iom el la trezoroj de Labirinto …
 
-—Ne eble estas — interrompis Herhor. — Al la ŝtato mina-
-
-cas neniu danĝero, sed nur al la faraono, kaj tio ne estas la sama afero. Due, same kiel akvobaro estas forta, ĝis kiam ne trapenetris ĝin flueto de akvo, same Labirinto estas plena, ĝis kiam ni ne prenos el ĝi la unuan oran pecon. ĉio sekvus ĝin
+—Ne eble estas — interrompis Herhor. — Al la ŝtato minacas neniu danĝero, sed nur al la faraono, kaj tio ne estas la sama afero. Due, same kiel akvobaro estas forta, ĝis kiam ne trapenetris ĝin flueto de akvo, same Labirinto estas plena, ĝis kiam ni ne prenos el ĝi la unuan oran pecon. ĉio sekvus ĝin
 
 … Cetere, kiun ni helpos per la trezoroj de la dioj kaj ŝtato?…
 
 Junulon, kiu malrespektas religion, humiligas la pastrojn kaj ribeligas la popolon. ĉu li ne estas pli danĝera ol Assar?… Tiu estas barbaro, tio estas vera, sed tute ne malutilas nin.
 
-—Ne estas deca afero, ke la faraono tiel malkaŝe amindu-
-
-mas la edzinon de sia favorato, jam en la tago de la edziĝo …
+—Ne estas deca afero, ke la faraono tiel malkaŝe amindumas la edzinon de sia favorato, jam en la tago de la edziĝo …
 
 — diris la meditanta juĝisto.
 
@@ -7223,9 +5706,7 @@ de Emsu˛. — Sed la homo ricevis la prudenton por ne peki.
 
 —ĉu la faraono ne estas la edzo de ĉiuj virinoj en Egipto?
 
-— murmuretis la nomar˛o de Abs. — Cetere, la pekoj koncer-
-
-nas la juĝon de la dioj, kaj nin interesas nur la ŝtato …
+— murmuretis la nomar˛o de Abs. — Cetere, la pekoj koncernas la juĝon de la dioj, kaj nin interesas nur la ŝtato …
 
 —Danĝera!… danĝera!… — diris la nomar˛o de Emsu˛,
 
@@ -7244,9 +5725,6 @@ povo kaj riĉaĵo, sed eĉ je la vivo.
 —Antaŭ ĉio oni povas malhelpi la ribelon — diris Mefres
 
 
-LA FARAONO
-
-
 — se ni konigos al la pli prudentaj el la popolo, ke tiu, kiu promesas al ili favorojn, estas frenezulo.
 
 —Li estas homo, la plej sana sub la suno! — murmuretis la
@@ -7259,9 +5737,7 @@ sampatra frato jam ŝajnigas simion kaj drinkas kun paraŝitoj, kaj li komencos 
 
 La nomar˛o de Horti petis la parolon:
 
-—Estas malbona kaj neprudenta rimedo proklami frenezu-
-
-lo homon de sana animo. ĉar kiam la popolo rimarkos la
+—Estas malbona kaj neprudenta rimedo proklami frenezulo homon de sana animo. ĉar kiam la popolo rimarkos la
 
 mensogon, ĝi ĉesos kredi al ni en ĉio, kaj tiam nenio haltigos la ribelon.
 
@@ -7277,9 +5753,7 @@ kuraĝus, estante kronprinco, publike batali kontraŭ bovo, en ĉeesto de kelke 
 
 Egiptano, vagus nokte al fenicia templo? ĉu li forpuŝus sen
 
-motivo, inter la sklavinojn sian unuan virinon, kio estis kaŭ-
-
-zo de morto ŝia kaj de ŝia infano …
+motivo, inter la sklavinojn sian unuan virinon, kio estis kaŭzo de morto ŝia kaj de ŝia infano …
 
 La ĉeestantoj ekmurmuris de teruro.
 
@@ -7293,12 +5767,7 @@ dioj kaj ofendis la pastrojn …
 
 —Kaj kion vi pensas — diris varmiĝante Mefres — ĉu homo
 
-sana je la spirito, estante ĉefa militestro, forlasus la armeon por persekuti kelke da libiaj banditoj?… Mi preterpasas mul-187
-
-LA FARAONO
-
-
-tajn malpli gravajn aferojn, ekzemple la projekton donaci al la kamparanoj festojn kaj teron, kaj mi demandas vin: ĉu mi
+sana je la spirito, estante ĉefa militestro, forlasus la armeon por persekuti kelke da libiaj banditoj?… Mi preterpasas multajn malpli gravajn aferojn, ekzemple la projekton donaci al la kamparanoj festojn kaj teron, kaj mi demandas vin: ĉu mi
 
 povas ne nomi freneza homon, kiu faris tiom da malsaĝaĵoj,
 
@@ -7320,9 +5789,7 @@ nur li elektas spionojn kaj ŝtelistojn por trovi la vojon al la trezorejoj de L
 
 —Gravaj kulpigoj! — diris la juĝisto.
 
-—Sed krom tio, aŭskultu, li interkonsentas kun la malnob-
-
-laj Fenicianoj pri fosado de kanalo inter Ruĝa kaj Meza Maro!
+—Sed krom tio, aŭskultu, li interkonsentas kun la malnoblaj Fenicianoj pri fosado de kanalo inter Ruĝa kaj Meza Maro!
 
 ĉi tiu kanalo estas la plej granda minaco por Egipto, ĉar nia lando, en unu momento, povas esti subakvigita! Ne nur la
 
@@ -7332,11 +5799,7 @@ milionoj da malsaĝaj, sed senkulpaj homoj, fine nia vivo, kaj la vivo de niaj i
 
 —Se estas tiel!… — eksopiris la nomar˛o de Horti.
 
-—Mi kaj la nobla Mefres certigas, ke estas tiel, kaj ke ĉi tiu sola homo amasigis en siaj manoj tiajn danĝerojn, kiaj neniam ankoraŭ minacis Egipton … Jen kial ni kunvokis vin, res-
-
-pektindaj viroj, por trovi rimedojn de la savo … Sed ni devas 188
-
-LA FARAONO
+—Mi kaj la nobla Mefres certigas, ke estas tiel, kaj ke ĉi tiu sola homo amasigis en siaj manoj tiajn danĝerojn, kiaj neniam ankoraŭ minacis Egipton … Jen kial ni kunvokis vin, respektindaj viroj, por trovi rimedojn de la savo … Sed ni devas
 
 
 agi rapide, ĉar la intencoj de ĉi tiu homo galopas antaŭen, kiel vento en la dezerto, kaj faru la dioj, ke ili ne superŝutu nin …
@@ -7347,9 +5810,7 @@ Por unu momento en la krepuska ĉambro ekregis silento.
 
 en niaj nomesoj, malproksime de la kortego kaj krom tio ne
 
-sole ne konas la intencojn de ĉi tiu frenezulo, sed ni eĉ ne suspektis, ni preskaŭ ne kredas … Tial mi pensas, ke plej bone estas lasi la aferon al vi, noblaj Herhor kaj Mefres. Vi trovis la malsanon, vi serĉos sanigilon kaj aplikos ĝin … Kaj se maltrankviligas vin la grandega respondeco, prenu kiel helpan-
-
-ton la plej altan juĝiston …
+sole ne konas la intencojn de ĉi tiu frenezulo, sed ni eĉ ne suspektis, ni preskaŭ ne kredas … Tial mi pensas, ke plej bone estas lasi la aferon al vi, noblaj Herhor kaj Mefres. Vi trovis la malsanon, vi serĉos sanigilon kaj aplikos ĝin … Kaj se maltrankviligas vin la grandega respondeco, prenu kiel helpanton la plej altan juĝiston …
 
 —Jes!… Jes!… li diras la verojn … — aprobis la ekscititaj altranguloj.
 
@@ -7361,9 +5822,7 @@ kiu oni aligas kiel helpantojn Mefreson kaj la plej altan juĝiston.
 
 La akton, subskribitan de la ĉeestantaj altranguloj, oni ŝlosis en skatolo kaj kaŝis sub la altaro.
 
-Krom tio, ĉiu el la sep partoprenantoj ĵure promesis plenu-
-
-mi ĉiujn ordonojn de Herhor kaj altiri en la konspiron dek al-trangulojn. Herhor promesis prezenti al ili pruvojn, ke Asirio insistas pri traktato, ke la faraono ne volas ĝin subskribi, ke li interkonsentas kun Fenicianoj pri la konstruo de la kanalo kaj ke li volas perfide penetri en Labirinton.
+Krom tio, ĉiu el la sep partoprenantoj ĵure promesis plenumi ĉiujn ordonojn de Herhor kaj altiri en la konspiron dek al-trangulojn. Herhor promesis prezenti al ili pruvojn, ke Asirio insistas pri traktato, ke la faraono ne volas ĝin subskribi, ke li interkonsentas kun Fenicianoj pri la konstruo de la kanalo kaj ke li volas perfide penetri en Labirinton.
 
 —Mia vivo kaj honoro estas en viaj manoj — finis Herhor.
 
@@ -7372,12 +5831,7 @@ mi ĉiujn ordonojn de Herhor kaj altiri en la konspiron dek al-trangulojn. Herho
 la morto, kaj mian korpon al la bruligo.
 
 
-LA FARAONO
-
-
-Nun neniu plu dubis, ke la ĉefpastro diris la veron. ĉar ne-
-
-niu Egiptano riskus sian korpon je la bruligo — sian animon
+Nun neniu plu dubis, ke la ĉefpastro diris la veron. ĉar neniu Egiptano riskus sian korpon je la bruligo — sian animon
 
 je la pereo.
 
@@ -7397,9 +5851,7 @@ Foje vespere la faraono diris al li:
 
 kaj aŭskulti, ke ĉiu mia ago estas observata. Eĉ al mia respektinda patrino ree komencas paroli voĉoj, kiuj jam eksilentis en Memfiso, kiam mi dispelis la pastrojn … Kaj tial — daŭrigis lia sankteco — mi povas akcepti neniun ĉe mi, sed mi devas forlasi la palacon kaj en sendanĝera loko interkonsiliĝi kun miaj servistoj …
 
-—ĉu mi devas sekvi vian sanktecon? — demandis Tutmo-
-
-zis, vidante, ke la faraono serĉas mantelon.
+—ĉu mi devas sekvi vian sanktecon? — demandis Tutmozis, vidante, ke la faraono serĉas mantelon.
 
 —Ne. Vi devas resti ĉi tie kaj gardi mian ĉambron, por ke
 
@@ -7414,20 +5866,11 @@ neniun vidi..
 li mantelon kun kapuĉo.
 
 
-LA FARAONO
+Poste li estingis la lumon en la dormoĉambro, kaj la faraono eniris tra flanka pordo.
 
+En la ĝardeno Ramzes haltis kaj atente ĉirkaŭrigardis. Poste, kredeble sin orientinte, li komencis rapide iri al la palaco, donacita al Tutmozis.
 
-Poste li estingis la lumon en la dormoĉambro, kaj la fara-
-
-ono eniris tra flanka pordo.
-
-En la ĝardeno Ramzes haltis kaj atente ĉirkaŭrigardis. Pos-
-
-te, kredeble sin orientinte, li komencis rapide iri al la palaco, donacita al Tutmozis.
-
-Post kelke da minutoj de irado, en la ombra aleo li renkon-
-
-tis iun, kiu sin starigis antaŭ li kaj demandis: — Kiu iras?
+Post kelke da minutoj de irado, en la ombra aleo li renkontis iun, kiu sin starigis antaŭ li kaj demandis: — Kiu iras?
 
 —Nubio — respondis la faraono.
 
@@ -7435,9 +5878,7 @@ tis iun, kiu sin starigis antaŭ li kaj demandis: — Kiu iras?
 
 kvazaŭ timigita.
 
-Tio estis gvardia oficiro. La monar˛o rigardis lin unu mo-
-
-menton kaj ekkriis:
+Tio estis gvardia oficiro. La monar˛o rigardis lin unu momenton kaj ekkriis:
 
 —Ah, tio estas Eunana!… Kion vi faras ĉi tie?
 
@@ -7451,9 +5892,7 @@ La faraono pensis momenton kaj diris:
 
 gvardiisto estas silenti … ŝteliston elpelu, sed se vi renkontus ian altrangan personon, ne haltigu ĝin kaj silentu, ĉiam silentu … Eĉ se … tio estus la ĉefpastro Herhor mem!…
 
-—Ho sinjoro — ekkriis Eunana — nur ne ordonu al mi ho-
-
-nori nokte Herhoron aŭ Mefreson … Mi ne scias, ĉu ĉe ilia
+—Ho sinjoro — ekkriis Eunana — nur ne ordonu al mi honori nokte Herhoron aŭ Mefreson … Mi ne scias, ĉu ĉe ilia
 
 vido la glavo mem ne elsaltus el mia ingo …
 
@@ -7465,29 +5904,20 @@ eliĝi el la ingo, kiam mi ordonos.
 
 Li faris al Eunana kaposignon kaj daŭrigis la vojon.
 
-Post kvaronhora erarvagado sur malĝustaj vojetoj, la fara-
-
-ono atingis pordon, kaŝitan en densaĵo. ŝajnis al li, ke li aŭ-
+Post kvaronhora erarvagado sur malĝustaj vojetoj, la faraono atingis pordon, kaŝitan en densaĵo. ŝajnis al li, ke li aŭ-
 
 dis bruon kaj demandis mallaŭte:
 
 
-LA FARAONO
-
-
 —Hebron?…
 
-Renkonte al li elkuris figuro, vestita ankaŭ per nigra man-
-
-telo. ŝi alkuris al Ramzes kaj ekpendis sur lia kolo, murmuretante:
+Renkonte al li elkuris figuro, vestita ankaŭ per nigra mantelo. ŝi alkuris al Ramzes kaj ekpendis sur lia kolo, murmuretante:
 
 —Tio estas vi?… vi?… Kiel longe mi atendis!…
 
 La faraono sentis, ke ŝi elglitas el lia ĉirkaŭpreno, li do prenis ŝin sur la brakojn kaj portis en laŭbon. En ĉi tiu momen-to la mantelo falis de li. Ramzes momenton trenis ĝin post si, sed fine lasis ĝin.
 
-En la sekvinta tago la respektinda sinjorino Nikotris alvo-
-
-kis Tutmozison. La favorato de la faraono ektimis, rigardan-
+En la sekvinta tago la respektinda sinjorino Nikotris alvokis Tutmozison. La favorato de la faraono ektimis, rigardan-
 
 te ŝin. La reĝino estis terure pala; ŝiaj okuloj eniĝis en la ka-vojn, ŝajnis preskaŭ senkonsciaj.
 
@@ -7517,12 +5947,7 @@ mem … mia Ramzes!…
 
 —Sur la arbo?… Hodiaŭ nokte?…
 
-—Jes! La lumo de la torĉo falis rekte sur lian vizaĝon kaj fi-192
-
-LA FARAONO
-
-
-guron … Li havis tunikon kun blankaj kaj bluaj strioj … fre-
+—Jes! La lumo de la torĉo falis rekte sur lian vizaĝon kaj figuron … Li havis tunikon kun blankaj kaj bluaj strioj … fre-
 
 nezan rigardon … li ridis sovaĝe, kiel tiu, malfeliĉa lia frato, kaj diris: ”Rigardu, patrino, mi jam scias flugi, kion sciis nek Seti, nek Ramzes Granda, nek ˘eops … Rigardu, kiel al mi
 
@@ -7530,13 +5955,9 @@ kreskas flugiloj!…” Li etendis al mi la manojn, kaj mi senkonscia de doloro,
 
 Tutmozis aŭskultis terurita. Subite li frapis sin je la frunto.
 
-—Tio ne estis Ramzes! — diris li kategorie. — Tio estis ho-
+—Tio ne estis Ramzes! — diris li kategorie. — Tio estis homo, kiu tre, tre similas lin, malnobla Greko, Likon, kiu mortigis lian filon, kaj hodiaŭ estas en la manoj de la ĉefpastroj!…
 
-mo, kiu tre, tre similas lin, malnobla Greko, Likon, kiu mortigis lian filon, kaj hodiaŭ estas en la manoj de la ĉefpastroj!…
-
-Tio ne estis Ramzes!… Tio estas krimo de la malnoblaj Her-
-
-hor kaj Mefres …
+Tio ne estis Ramzes!… Tio estas krimo de la malnoblaj Herhor kaj Mefres …
 
 Sur la vizaĝo de la reĝino ekbrilis espero, sed nur por unu
 
@@ -7544,9 +5965,7 @@ momento.
 
 —ĉu mi ne rekonus mian filon?…
 
-—Likon, oni diras, estas ekstreme simila al li — diris Tut-
-
-mozis. — Tio estas afero de la pastroj … Malnoblaj!… Morto
+—Likon, oni diras, estas ekstreme simila al li — diris Tutmozis. — Tio estas afero de la pastroj … Malnoblaj!… Morto
 
 estas tro malmulte por ili …
 
@@ -7567,9 +5986,6 @@ blankaj kaj bluaj strioj?…
 —Mi ne memoras … — murmuretis Tutmozis.
 
 —Ree vi mensogas … Kaj ĉi tiu mantelo … diru, ke ĝi ne
-
-
-LA FARAONO
 
 
 estas la mantelo de mia filo … Mia sklavo trovis ĝin sur la
@@ -7600,23 +6016,17 @@ havis tunikon kun blankaj kaj bluaj strioj, perdis la mantelon
 
 … Lia frato jam estis freneza, kaj fine ĉu en tiu okazo povus erari la koro de patrino?…
 
-Kaj subite en la animo de Tutmozis vekiĝis duboj, implika-
-
-taj kaj kunvolvitaj, kiel nesto de venenaj serpentoj.
+Kaj subite en la animo de Tutmozis vekiĝis duboj, implikataj kaj kunvolvitaj, kiel nesto de venenaj serpentoj.
 
 Feliĉe, dum li ŝanceliĝis, kuraĝo revenis en la koron de la
 
 reĝino.
 
-—Bone, ke vi rememorigis al mi ĉi tiun Likonon … Mi me-
-
-moras!… Kaŭze de li Mefres suspektis Ramzeson pri idmor-
+—Bone, ke vi rememorigis al mi ĉi tiun Likonon … Mi memoras!… Kaŭze de li Mefres suspektis Ramzeson pri idmor-
 
 tigo, kaj hodiaŭ eble li uzas lin por malhonori la sinjoron …
 
-En ĉiu okazo al neniu eĉ unu vorton pri tio, kion mi konfidis al vi … Se Ramzes … se li vere estus ŝarĝita per tia malfeliĉo, eble ĝi estas nur momenta … oni ne povas humiligi lin, dis-vastigante tiajn novaĵojn, oni eĉ ne povas sciigi al li tion!… Se 194
-
-LA FARAONO
+En ĉiu okazo al neniu eĉ unu vorton pri tio, kion mi konfidis al vi … Se Ramzes … se li vere estus ŝarĝita per tia malfeliĉo, eble ĝi estas nur momenta … oni ne povas humiligi lin, dis-vastigante tiajn novaĵojn, oni eĉ ne povas sciigi al li tion!… Se
 
 
 tio estas krimo de la pastroj, ni devas esti singardaj. Kvankam
@@ -7635,17 +6045,11 @@ manojn. —La faraono ne pardonus al ili, transdonus ilin al
 
 tribunalo, kaj tiam devus okazi unu el du malfeliĉoj: aŭ oni kondamnus al la morto la plej altajn pastrojn de la ŝtato, aŭ la tribunalo senkulpigus ilin … Kaj tiam?… Kontraŭe, Likonon persekutu kaj mortigu sen kompato, kiel rabobeston, kiel serpenton …
 
-Tutmozis adiaŭis la reĝinon, multe pli trankvilan; kon-
+Tutmozis adiaŭis la reĝinon, multe pli trankvilan; kontraŭe, liaj duboj kreskis.
 
-traŭe, liaj duboj kreskis.
+”Se la malnobla Greko vivas ankoraŭ, malgraŭ la malliberejo de la pastroj — pensis li —antaŭ ĉio, anstataŭ grimpi sur arboj kaj sin montri al la reĝino, li preferus forkuri … Mi mem faciligus al li la forkuron kaj superverŝus per rekompencoj, se li konfesus al mi la veron kaj serĉus rifuĝejon kontraŭ ĉi tiuj friponoj … Sed la tuniko, la mantelo?… Kial erarus la patrino?”
 
-”Se la malnobla Greko vivas ankoraŭ, malgraŭ la mallibe-
-
-rejo de la pastroj — pensis li —antaŭ ĉio, anstataŭ grimpi sur arboj kaj sin montri al la reĝino, li preferus forkuri … Mi mem faciligus al li la forkuron kaj superverŝus per rekompencoj, se li konfesus al mi la veron kaj serĉus rifuĝejon kontraŭ ĉi tiuj friponoj … Sed la tuniko, la mantelo?… Kial erarus la patrino?”
-
-De tiu tago Tutmozis evitis la faraonon kaj ne kuraĝis ri-
-
-gardi en liajn okulojn … Kaj ĉar Ramzes ankaŭ estis ĝenata,
+De tiu tago Tutmozis evitis la faraonon kaj ne kuraĝis rigardi en liajn okulojn … Kaj ĉar Ramzes ankaŭ estis ĝenata,
 
 ŝajnis do, ke la koraj rilatoj malvarmiĝis.
 
@@ -7653,13 +6057,9 @@ Sed foje vespere la sinjoro ree alvokis la favoraton.
 
 —Mi devas — diris li — interparoli kun Hiram pri gravaj
 
-aferoj, mi do eliras. Restu garde ĉi tie, apud mia dormoĉam-
+aferoj, mi do eliras. Restu garde ĉi tie, apud mia dormoĉambro, kaj se iu volus paroli kun mi, ne enlasu lin …
 
-bro, kaj se iu volus paroli kun mi, ne enlasu lin …
-
-”Eble — pensis li — la pastroj venenis lin per hiskiamo, kaj 195
-
-LA FARAONO
+”Eble — pensis li — la pastroj venenis lin per hiskiamo, kaj
 
 
 li, sentante, ke proksimiĝas eksplodo de la malsano, forkuras el la domo?… Ah, ni vidos.”
@@ -7680,9 +6080,7 @@ en la koro.
 
 —ĉefo! — diris Eunana — hieraŭ en la ĝardeno mi vidis
 
-homon, kiu kuris nuda kaj kriis per nehoma voĉo … Oni al-
-
-kondukis lin al mi kaj ĉefo … mortigu min!…
+homon, kiu kuris nuda kaj kriis per nehoma voĉo … Oni alkondukis lin al mi kaj ĉefo … mortigu min!…
 
 Eunana ree falis al la piedoj de Tutmozis.
 
@@ -7692,27 +6090,18 @@ Eunana ree falis al la piedoj de Tutmozis.
 
 —Mi diros nenion plu!… — ĝemis Eunana. — Mi demetis
 
-mian mantelon kaj kovris la sanktan nudecon … Mi volis re-
-
-konduki lin en la palacon, sed … sed la sinjoro ordonis al mi resti kaj silenti … silenti!…
+mian mantelon kaj kovris la sanktan nudecon … Mi volis rekonduki lin en la palacon, sed … sed la sinjoro ordonis al mi resti kaj silenti … silenti!…
 
 —Kaj kien li iris?…
 
-—Mi ne scias … ne rigardis kaj ne permesis rigardi al la soldatoj … Li malaperis ie en la ĝardeno … Mi avertis miajn ho-
-
-mojn, ke … ili nenion vidis … nenion aŭdis … kaj se iu aŭdis aŭ vidis, li tuj estos sufokita …
+—Mi ne scias … ne rigardis kaj ne permesis rigardi al la soldatoj … Li malaperis ie en la ĝardeno … Mi avertis miajn homojn, ke … ili nenion vidis … nenion aŭdis … kaj se iu aŭdis aŭ vidis, li tuj estos sufokita …
 
 Dume Tutmozis sukcesis ekregi sin.
 
 —Mi ne scias — diris li malvarme — mi ne scias kaj mi
 
 
-LA FARAONO
-
-
-komprenas nenion de tio, kion vi rakontis al mi. Sed memo-
-
-ru, ke mi mem foje kuris nuda, kiam mi trinkis tro multe da
+komprenas nenion de tio, kion vi rakontis al mi. Sed memoru, ke mi mem foje kuris nuda, kiam mi trinkis tro multe da
 
 vino, kaj ke mi malavare rekompencis tiujn, kiuj min ne vidis.
 
@@ -7745,14 +6134,9 @@ Al Tutmozis neniu parolis rekte pri la teruraj novaĵoj. Sed
 la ĉefo de la faraona gvardio sentis ilian ekzistadon ĉe ĉiu paŝo. Per la konduto de la personoj, kun kiuj li estis en rilatoj, li divenis, ke la servistoj, sklavoj, soldatoj, liveristoj de la kortego parolas pri la frenezo de la monar˛o, silentante nur por la momento, en kiu povus ilin aŭdi superulo.
 
 
-LA FARAONO
-
-
 Fine Tutmozis, malpaciencigita kaj timigita decidiĝis paroli pri tio kun la teba nomar˛o.
 
-Veninte en lian palacon, li trovis Antefon kuŝanta sur ka-
-
-napo, en ombro, kies duono estis kvazaŭ ĝardeno, plena de
+Veninte en lian palacon, li trovis Antefon kuŝanta sur kanapo, en ombro, kies duono estis kvazaŭ ĝardeno, plena de
 
 maloftaj kreskaĵoj. En la mezo ŝprucis fontano en la anguloj staris statuoj de dioj, sur la muroj estis pentrita historio de la agoj de la glora nomar˛o. Nigra sklavo, staranta ĉe lia kapo, malvarmigis la sinjoron per ventumilo el strutaj plumoj; sur la planko sidis skribisto de la nomeso kaj legis raporton.
 
@@ -7762,17 +6146,11 @@ forsendis la skribiston kaj sklavon, kaj leviĝinte de la kanapo, trarigardis ĉ
 
 —Glora patro de Hebron, mia respektinda edzino —
 
-komencis Tutmozis — per via konduto mi vidas, ke vi dive-
+komencis Tutmozis — per via konduto mi vidas, ke vi divenas, pri kio mi volas paroli?…
 
-nas, pri kio mi volas paroli?…
+—La nomar˛o de Teboj ĉiam devas esti singardema — respondis Antef. — Mi supozas ankaŭ, ke la ĉefo de la gvardio
 
-—La nomar˛o de Teboj ĉiam devas esti singardema — res-
-
-pondis Antef. — Mi supozas ankaŭ, ke la ĉefo de la gvardio
-
-de lia sankteco ne povis honori min per sia vizito por mal-
-
-grava afero.
+de lia sankteco ne povis honori min per sia vizito por malgrava afero.
 
 Momenton ili rigardis unu la alian. Fine Tutmozis sidiĝis
 
@@ -7782,19 +6160,11 @@ apud la bopatro kaj murmuretis:
 
 de la ŝtato disportas pri nia estro?…
 
-—Se temas pri mia filino Hebron — rapide respondis la no-
-
-mar˛o — mi rememorigas al vi, ke hodiaŭ vi estas ŝia sinjoro kaj ne povas postuli, ke mi …
+—Se temas pri mia filino Hebron — rapide respondis la nomar˛o — mi rememorigas al vi, ke hodiaŭ vi estas ŝia sinjoro kaj ne povas postuli, ke mi …
 
 Tutmozis malzorge svingis la manon.
 
-—Malnoblaj homoj — diris la bofilo — disvastigas la fa-
-
-
-LA FARAONO
-
-
-mon, ke la faraono estas freneza … ĉu vi aŭdis pri tio, mia
+—Malnoblaj homoj — diris la bofilo — disvastigas la famon, ke la faraono estas freneza … ĉu vi aŭdis pri tio, mia
 
 patro?…
 
@@ -7802,13 +6172,9 @@ Antef balancis kaj turnis la kapon, kio povis same bone
 
 signifi jeson aŭ neon. Fine li diris:
 
-—La malsaĝo estas senlima, kiel la oceano, ĝi povas ente-
+—La malsaĝo estas senlima, kiel la oceano, ĝi povas enteni ĉion.
 
-ni ĉion.
-
-—Tia ne estas malsaĝaĵo, sed krimo de la pastroj, kiuj po-
-
-sedas homon, similan al lia sankteco, kaj uzas lin por malnoblaj agoj.
+—Tia ne estas malsaĝaĵo, sed krimo de la pastroj, kiuj posedas homon, similan al lia sankteco, kaj uzas lin por malnoblaj agoj.
 
 Li rakontis al la nomar˛o la historion de la Greko Likon kaj lian krimon en Pi-Bast.
 
@@ -7818,9 +6184,7 @@ Li rakontis al la nomar˛o la historion de la Greko Likon kaj lian krimon en Pi-
 
 ja estas la ĉefo de la gvardio kaj mi devas gardi la honoron kaj la personon de nia sinjoro.
 
-—Kion fari … kion fari? — ripetis Antef. — Antaŭ ĉio, zor-
-
-gi, ke la abomenaj novaĵoj ne atingu la orelojn de la fara-
+—Kion fari … kion fari? — ripetis Antef. — Antaŭ ĉio, zorgi, ke la abomenaj novaĵoj ne atingu la orelojn de la fara-
 
 ono …
 
@@ -7832,9 +6196,7 @@ Likon en lia nomo ludas la rolon de frenezulo, li terure ekkoleros!… Kompreneb
 
 … Eble li nur insultos ilin, eble malliberigos, eĉ mortigos …
 
-Kion ajn li faros, li faros sen pruvoj, kaj tiam? La hodiaŭa Egipto ne amas plu fari oferojn al la dioj, sed ĝi ankoraŭ stariĝos ĉe la flanko de la pastroj, kontraŭ kiuj oni maljuste agis 199
-
-LA FARAONO
+Kion ajn li faros, li faros sen pruvoj, kaj tiam? La hodiaŭa Egipto ne amas plu fari oferojn al la dioj, sed ĝi ankoraŭ stariĝos ĉe la flanko de la pastroj, kontraŭ kiuj oni maljuste agis
 
 
 … kaj tiam?… ĉar mi pensas — aldonis li, proksimiĝinte la
@@ -7845,13 +6207,9 @@ la fino de la dinastio …
 
 —Kion do fari?…
 
-—ĉiam la samon! — ekkriis Antef. — Trovu Likonon, pru-
+—ĉiam la samon! — ekkriis Antef. — Trovu Likonon, pruvu, ke Mefres kaj Herhor kaŝis lin kaj ordonis al li ludi la rolon de la faraono freneziĝinta … Tion vi povas fari, se vi volas konservi la favoron de lia sankteco. Pruvojn, kiel eble plej multe da pruvoj!… ĉi tie ne estas Asirio, nenion vi povas fari kontraŭ la ĉefpastroj sen la plej alta tribunalo, kaj neniu tribunalo kondamnos ilin sen palpeblaj pruvoj!… Cetere, ĉu vi
 
-vu, ke Mefres kaj Herhor kaŝis lin kaj ordonis al li ludi la rolon de la faraono freneziĝinta … Tion vi povas fari, se vi volas konservi la favoron de lia sankteco. Pruvojn, kiel eble plej multe da pruvoj!… ĉi tie ne estas Asirio, nenion vi povas fari kontraŭ la ĉefpastroj sen la plej alta tribunalo, kaj neniu tribunalo kondamnos ilin sen palpeblaj pruvoj!… Cetere, ĉu vi
-
-estas certa, ke oni ne donis al la faraono frenezigan vene-
-
-non?… Tio ja estus pli simpla, ol sendi nokte homon, kiu ko-
+estas certa, ke oni ne donis al la faraono frenezigan venenon?… Tio ja estus pli simpla, ol sendi nokte homon, kiu ko-
 
 nas nek la signalvortojn, nek la palacon kaj ĝardenojn … Mi
 
@@ -7863,9 +6221,7 @@ mirindaĵojn.
 
 —Ah, ah!… — interrompis Tutmozis. — Kie estas Hiram?
 
-—Tuj post via edziĝo li forveturis Memfison, kaj antaŭ kel-
-
-ke da tagoj li jam estis en Hiten.
+—Tuj post via edziĝo li forveturis Memfison, kaj antaŭ kelke da tagoj li jam estis en Hiten.
 
 Tutmozis ree konfuziĝis.
 
@@ -7880,9 +6236,6 @@ Tutmozis revenis hejmen tute konfuzita. Li ne nur ne sciis,
 kion fari en ĉi tiu eksterordinara situacio, sed eĉ, kion pensi pri ĝi? Dum la interparolado kun la reĝino Nikotris li estis certa, ke en la ĝardenoj sin montris Likon, sed hodiaŭ liaj duboj kreskis.
 
 
-LA FARAONO
-
-
 Kaj se dubis Tutmozis, la favorato, kiu konstante vidis
 
 Ramzeson, kio fariĝis en la koroj de fremdaj homoj?… La plej fervoraj partianoj de la faraono kaj de liaj intencoj devis ŝanceliĝi, aŭdante de ĉiuj flankoj, ke la monar˛o estas freneza.
@@ -7891,9 +6244,7 @@ Tio estas la unua bato, falinta sur Ramzeson, de la pastroj.
 
 Ne grava per si mem, ĝi havis nemezureblajn sekvojn.
 
-Tutmozis ne sole dubis, sed ankaŭ suferis. Malgraŭ la mal-
-
-serioza ŝajno, li havis noblan kaj energian karakteron. Hodi-aŭ, de kiam oni atencis la honoron kaj povon de lia sinjoro, la senaktiveco turmentis lin. ŝajnis al li, ke li estas komandan-to de citadelo, kiun subfosas la malamiko, kaj li rigardas tion senpova!…
+Tutmozis ne sole dubis, sed ankaŭ suferis. Malgraŭ la malserioza ŝajno, li havis noblan kaj energian karakteron. Hodi-aŭ, de kiam oni atencis la honoron kaj povon de lia sinjoro, la senaktiveco turmentis lin. ŝajnis al li, ke li estas komandan-to de citadelo, kiun subfosas la malamiko, kaj li rigardas tion senpova!…
 
 ĉi tiu penso tiel turmentis Tutmozison, ke sub ĝia influo
 
@@ -7903,17 +6254,11 @@ venis al li kuraĝa ideo. Renkontinte foje la ĉefpastron Semon, li diris al li:
 
 sinjoro?…
 
-—La faraono estas juna, povas do rondiri pri li diversaj fa-
+—La faraono estas juna, povas do rondiri pri li diversaj fabeloj — respondis Sem, strange rigardante Tutmozison. —
 
-beloj — respondis Sem, strange rigardante Tutmozison. —
+Sed tiaj aferoj ne koncernas min; mi anstataŭas lian sanktecon en la servado al la dioj, mi plenumas tion plej bone, kiel mi povas, kaj la aliaj aferoj ne interesas min.
 
-Sed tiaj aferoj ne koncernas min; mi anstataŭas lian sankte-
-
-con en la servado al la dioj, mi plenumas tion plej bone, kiel mi povas, kaj la aliaj aferoj ne interesas min.
-
-—Mi scias, ke via ekscelenco estas fidela servisto de la fa-
-
-raono — daŭrigis Tutmozis — kaj mi ne havas la intencon
+—Mi scias, ke via ekscelenco estas fidela servisto de la faraono — daŭrigis Tutmozis — kaj mi ne havas la intencon
 
 min miksi en la pastrajn sekretojn. Sed mi devas turni vian
 
@@ -7921,13 +6266,7 @@ atenton al unu malgranda fakto … Mi eksciis tute certe, ke la sankta Mefres ka
 
 li estas la mortiginto de la faraona filo kaj li tro similas lian sanktecon … La sankta Mefres ne altiru la malhonoron sur la
 
-respektindan pastraron kaj plej baldaŭ transdonu la krimu-
-
-
-LA FARAONO
-
-
-lon al la tribunalo. ĉar se ni trovos Likonon, mi ĵuras, ke Mefres perdos ne sole la oficon, sed la kapon. En nia ŝtato oni ne povas senpune ŝirmi banditojn kaj kaŝi homojn, similajn al la plej alta estro!…
+respektindan pastraron kaj plej baldaŭ transdonu la krimulon al la tribunalo. ĉar se ni trovos Likonon, mi ĵuras, ke Mefres perdos ne sole la oficon, sed la kapon. En nia ŝtato oni ne povas senpune ŝirmi banditojn kaj kaŝi homojn, similajn al la plej alta estro!…
 
 Sem, en kies ĉeesto Mefres forprenis Likonon de la polico,
 
@@ -7951,15 +6290,10 @@ fojon ne vidis la samulon de la faraono.
 
 Sed la famoj ne eksilentis, kaj Ramzes XIII sciis nenion pri ili.
 
-ĉar Tutmozis, timante, ke la sinjoro akre atakos la pas-
-
-trojn, informis lin pri nenio.
+ĉar Tutmozis, timante, ke la sinjoro akre atakos la pastrojn, informis lin pri nenio.
 
 
-LA FARAONO
-
-
-ĉAPITRO DEKTRIA
+ĈAPITRO DEKTRIA
 
 En la komenco de la monato Paofi, lia sankteco, la reĝino
 
@@ -7971,9 +6305,7 @@ apud Memfiso.
 
 —Mi rimarkas strangan fenomenon … La popolo amasiĝas
 
-sur ambaŭ bordoj same multenombre, eble eĉ pli multenom-
-
-bre, ol tiam, kiam ni veturis en la kontraŭa direkto. Sed la aklamoj estas multe malpli fortaj, malpli da ŝipetoj sekvas nin kaj avare oni ĵetas la florojn …
+sur ambaŭ bordoj same multenombre, eble eĉ pli multenombre, ol tiam, kiam ni veturis en la kontraŭa direkto. Sed la aklamoj estas multe malpli fortaj, malpli da ŝipetoj sekvas nin kaj avare oni ĵetas la florojn …
 
 —Dia vero fluas el via buŝo, sinjoro — respondis Tutmozis.
 
@@ -7989,26 +6321,18 @@ kio estas pli grava, la tuta reĝa sekvantaro sentis, ke la popolaj amasoj malva
 
 ĉu tio estis la rezultato de la famo pri la terura malsano de Ramzes, aŭ de aliaj procedoj? Tutmozis ne sciis. Sed li estis certa, ke la malvarmiĝon de la popolo kaŭzis la pastroj.
 
-—Jen malsaĝa popolaĉo! — pensis li, ne regante la males-
-
-timon en sia koro. — Antaŭ nelonge ili dronis, nur por vidi la 203
-
-LA FARAONO
+—Jen malsaĝa popolaĉo! — pensis li, ne regante la malestimon en sia koro. — Antaŭ nelonge ili dronis, nur por vidi la
 
 
 vizaĝon de lia sankteco, kaj hodiaŭ ili avaras la kriojn … ĉu ili jam forgesis pri la sepa tago de la ripozo kaj pri la promesita tero?…
 
-Reveninte en la palacon, la faraono tuj donis ordonon kun-
-
-voki la delegitojn. Samtempe li komisiis al la fidelaj oficistoj kaj polico komenci agiti kontraŭ la pastroj kaj por la sepa
+Reveninte en la palacon, la faraono tuj donis ordonon kunvoki la delegitojn. Samtempe li komisiis al la fidelaj oficistoj kaj polico komenci agiti kontraŭ la pastroj kaj por la sepa
 
 tago de la ripozo.
 
 Baldaŭ en Malsupra Egipto ĉio komencis zumi, kvazaŭ en
 
-abelujo. La kamparanoj postulis ne nur la festojn, sed ankaŭ ke oni pagu al ili kontante por la publikaj laboroj. La metiistoj en la drinkejoj kaj stratoj insultis la pastrojn, kiuj volas limigi la sanktan povon de la faraono. La kvanto da krimoj pli-
-
-grandiĝis, sed la kulpaj ne volis respondi al la tribunalo. La skribistoj fariĝis pli humilaj, kaj neniu el ili kuraĝis bati simplan homon, sciante, ke oni repagos al la batinto. En la temploj neniu faris oferojn, pli kaj pli ofte oni superŝutis la diojn de la limoj per koto kaj ŝtonoj, oni eĉ renversis ilin.
+abelujo. La kamparanoj postulis ne nur la festojn, sed ankaŭ ke oni pagu al ili kontante por la publikaj laboroj. La metiistoj en la drinkejoj kaj stratoj insultis la pastrojn, kiuj volas limigi la sanktan povon de la faraono. La kvanto da krimoj pligrandiĝis, sed la kulpaj ne volis respondi al la tribunalo. La skribistoj fariĝis pli humilaj, kaj neniu el ili kuraĝis bati simplan homon, sciante, ke oni repagos al la batinto. En la temploj neniu faris oferojn, pli kaj pli ofte oni superŝutis la diojn de la limoj per koto kaj ŝtonoj, oni eĉ renversis ilin.
 
 Teruro falis sur la pastrojn, nomar˛ojn kaj iliajn partianojn.
 
@@ -8022,21 +6346,14 @@ kuŝante ĉe la piedoj de la faraono, petegi lian helpon.
 
 —Ni estas — kriis ili — kvazaŭ la tero fendiĝus sub niaj
 
-piedoj kaj kvazaŭ finiĝus la mondo!… La elementoj estas kun-
-
-miksitaj, la animoj malakordaj kaj se vi ne savos nin, sinjoro, la horoj de nia vivo estas kalkulitaj!…
+piedoj kaj kvazaŭ finiĝus la mondo!… La elementoj estas kunmiksitaj, la animoj malakordaj kaj se vi ne savos nin, sinjoro, la horoj de nia vivo estas kalkulitaj!…
 
 —Mia trezorejo estas malplena, la armeo ne multenombra,
 
 
-LA FARAONO
-
-
 la polico de longe ne vidas salajron — respondis la faraono.
 
-— Se do vi volas havi daŭran pacon kaj sendanĝeron, vi de-
-
-vas liveri al mi monajn rimedojn. Sed ĉar via maltrankvilo
+— Se do vi volas havi daŭran pacon kaj sendanĝeron, vi devas liveri al mi monajn rimedojn. Sed ĉar via maltrankvilo
 
 malĝojigas mian reĝan koron, mi faros, kion mi povos, kaj mi esperas, ke mi sukcesos ree enkonduki la ordon.
 
@@ -8046,9 +6363,7 @@ ilin en la plej gravaj punktoj de la lando. Samtempe li sendis ordonon al Nitage
 
 Tiel faris la sinjoro, ne tiom por ŝirmi la aristokrataron
 
-kontraŭ la popolaĉo, kiom por havi ĉe la mano grandajn for-
-
-tojn en la okazo, se la ĉefpastroj ribeligus Supran Egipton kaj la regimentojn, apartenantajn al la templaj.
+kontraŭ la popolaĉo, kiom por havi ĉe la mano grandajn fortojn en la okazo, se la ĉefpastroj ribeligus Supran Egipton kaj la regimentojn, apartenantajn al la templaj.
 
 La dekan de Paofi en la reĝa palaco kaj ĉirkaŭ ĝi ekregis
 
@@ -8060,17 +6375,10 @@ La procesio de la delegitoj komenciĝis matene. Antaŭe iris
 
 la nudaj kamparanoj, kun blankaj kufoj kaj zonoj; ĉiu havis
 
-en la mano tukon por kovri la dorson en la ĉeesto de la faraono. Post ili metiistoj, vestitaj kiel la kamparanoj, de kiuj ili diferencis nur per iom pli maldikaj tukoj kaj mallarĝaj antaŭ-
-
-tukoj, kovritaj per diverskolora brodaĵo. Poste la komercistoj, kelkaj en perukoj, ĉiuj en longaj ĉemizoj kaj manteloj. Tie oni jam povis vidi riĉajn braceletojn sur la piedoj kaj manoj, kaj ringojn sur la fingroj. Poste la oficiroj en kufoj kaj tunikoj kun strioj: nigraj kaj flavaj, bluaj kaj blankaj, bluaj kaj ruĝaj. Du, anstataŭ tunikoj, havis sur la brusto kuprajn duonkirasojn.
+en la mano tukon por kovri la dorson en la ĉeesto de la faraono. Post ili metiistoj, vestitaj kiel la kamparanoj, de kiuj ili diferencis nur per iom pli maldikaj tukoj kaj mallarĝaj antaŭtukoj, kovritaj per diverskolora brodaĵo. Poste la komercistoj, kelkaj en perukoj, ĉiuj en longaj ĉemizoj kaj manteloj. Tie oni jam povis vidi riĉajn braceletojn sur la piedoj kaj manoj, kaj ringojn sur la fingroj. Poste la oficiroj en kufoj kaj tunikoj kun strioj: nigraj kaj flavaj, bluaj kaj blankaj, bluaj kaj ruĝaj. Du, anstataŭ tunikoj, havis sur la brusto kuprajn duonkirasojn.
 
 
-LA FARAONO
-
-
-Post longa interrompo aperis dektri nobeloj en grandaj pe-
-
-rukoj kaj blankaj vestoj ĝis la tero. Post ili paŝis la nomar˛oj en vestoj borderitaj per purpuraj rubandoj kaj kun kronoj sur la kapoj. La marŝon fermis la pastroj kun razitaj kapoj kaj
+Post longa interrompo aperis dektri nobeloj en grandaj perukoj kaj blankaj vestoj ĝis la tero. Post ili paŝis la nomar˛oj en vestoj borderitaj per purpuraj rubandoj kaj kun kronoj sur la kapoj. La marŝon fermis la pastroj kun razitaj kapoj kaj
 
 vizaĝoj, kun panteraj feloj sur la dorso.
 
@@ -8080,9 +6388,7 @@ Baldaŭ aperis, en portilo, lia sankteco Ramzes. La delegitoj falis teren. Kiam 
 
 skatolo en la mano. Brila kortego de generaloj ĉirkaŭis la faraonon, post kiu stariĝis du altaj oficistoj kun ventumiloj el pavaj plumoj.
 
-—Fidelaj Egiptanoj! — komencis la sinjoro de la du mon-
-
-doj. — Vi scias, ke al mia kortego, al mia armeo kaj al miaj oficistoj mankas monaj rimedoj, kiujn ne povas plu liveri mia
+—Fidelaj Egiptanoj! — komencis la sinjoro de la du mondoj. — Vi scias, ke al mia kortego, al mia armeo kaj al miaj oficistoj mankas monaj rimedoj, kiujn ne povas plu liveri mia
 
 malriĉiĝinta trezorejo. Pri la elspezoj por mia sankta perso-no, mi ne parolas, ĉar mi manĝas kaj vestas min kiel soldato, kaj ĉiu generalo aŭ granda skribisto havas pli multe da servistoj kaj virinoj ol mi.
 
@@ -8097,22 +6403,15 @@ grandaj impostoj. Sed mi, kiu konas mian popolon kaj ĝian
 mizeron, ne sole ne volus ree ŝarĝi ĝin, sed kontraŭe mi tre dezirus plibonigi ĝian sorton...
 
 
-LA FARAONO
-
-
 —Vivu eterne, nia sinjoro! — oni kriis de kelkaj malaltaj
 
 benkoj.
 
-—Feliĉe por Egipto — parolis la Faraono — nia ŝtato pose-
-
-das trezorojn, per kiuj oni povas relevi la armeon, rekompen-ci la oficistojn, pliriĉigi la popolon, eĉ pagi ĉiujn ŝuldojn al la temploj kaj Fenicianoj. ĉi tiuj trezoroj, kolektitaj de niaj gloraj antaŭuloj, kuŝas en la kelo de Labirinto. Sed ili povas esti tu-
+—Feliĉe por Egipto — parolis la Faraono — nia ŝtato posedas trezorojn, per kiuj oni povas relevi la armeon, rekompen-ci la oficistojn, pliriĉigi la popolon, eĉ pagi ĉiujn ŝuldojn al la temploj kaj Fenicianoj. ĉi tiuj trezoroj, kolektitaj de niaj gloraj antaŭuloj, kuŝas en la kelo de Labirinto. Sed ili povas esti tu-
 
 ŝitaj nur, se vi ĉiuj fideluloj, unuvoĉe, kvazaŭ unu viro konsentos, ke Egipto estas en bezono, kaj ke mi, la sinjoro, havas la rajton disponi la trezorojn de miaj antaŭuloj...
 
-—Ni konsentas!… Ni petegas, prenu sinjoro, kion vi bezo-
-
-nas!... — oni kriis de ĉiuj benkoj.
+—Ni konsentas!… Ni petegas, prenu sinjoro, kion vi bezonas!... — oni kriis de ĉiuj benkoj.
 
 —Nobla Herhor! — sin turnis al li la estro: — ĉu la sankta
 
@@ -8120,24 +6419,17 @@ pastro havas ion por diri en ĉi tiu afero?…
 
 —Tre malmulte — respondis la ĉefpastro, leviĝante. — Laŭ
 
-la jarcentaj leĝoj, la trezoroj de Labirinto povas esti nur tiam tuŝitaj, kiam la ŝtato posedas neniajn aliajn rimedojn... Sed hodiaŭ ne estas tiel. Se la registaro nuligus la ŝuldojn al Fenicianoj, devenantajn de malnoblaj procentegoj, ne nur ple-
-
-niĝus la trezorejo de via sankteco, sed la popolaĉo, kiu laboras hodiaŭ por Fenicianoj, ekspirus pli libere...
+la jarcentaj leĝoj, la trezoroj de Labirinto povas esti nur tiam tuŝitaj, kiam la ŝtato posedas neniajn aliajn rimedojn... Sed hodiaŭ ne estas tiel. Se la registaro nuligus la ŝuldojn al Fenicianoj, devenantajn de malnoblaj procentegoj, ne nur pleniĝus la trezorejo de via sankteco, sed la popolaĉo, kiu laboras hodiaŭ por Fenicianoj, ekspirus pli libere...
 
 Sur la benkoj de la delegitoj ree eksonis aproba murmuro.
 
-—Plena de saĝo estas via konsilo, sankta viro — diris tran-
-
-kvile la faraono — sed danĝera. — Se mia trezoristo, la nob-
+—Plena de saĝo estas via konsilo, sankta viro — diris trankvile la faraono — sed danĝera. — Se mia trezoristo, la nob-
 
 laj nomar˛oj kaj nobeloj lernus unu fojon nuligi la ŝuldojn, hodiaŭ ili ne pagus al Fenicianoj, kaj morgaŭ povus forgesi
 
 pri la ŝuldoj al la faraono kaj temploj. Kaj kiu certigos min, ke ankaŭ la popolaĉo, kuraĝigita de la ekzemplo de la grandaj,
 
 ne pensus, ke ankaŭ ĝi havas la rajton forgesi siajn devojn al ni?…
-
-
-LA FARAONO
 
 
 La bato estis tiel forta, ke la nobla Herhor kurbiĝis sur sia seĝo kaj eksilentis.
@@ -8172,17 +6464,10 @@ La gardisto de Labirinto, asistata de du generaloj komencis
 
 — murmuretis maljuna paŝtisto.
 
-Fine la altranguloj sukcesis klarigi kaj la kamparanoj kom-
-
-preni, kion oni postulas. ĉiu delegito venis al la urno kaj ĵetis sian silikon tiamaniere, ke la aliaj ne povis vidi ĝian ko-loron.
+Fine la altranguloj sukcesis klarigi kaj la kamparanoj kompreni, kion oni postulas. ĉiu delegito venis al la urno kaj ĵetis sian silikon tiamaniere, ke la aliaj ne povis vidi ĝian ko-loron.
 
 
-LA FARAONO
-
-
-Dume la granda trezoristo, genuante post la trono, mur-
-
-muretis al la monar˛o:
+Dume la granda trezoristo, genuante post la trono, murmuretis al la monar˛o:
 
 —ĉio estas perdita … Se ili voĉdonus malkaŝe, ni havus
 
@@ -8190,9 +6475,7 @@ unuanimecon sed nun, sekiĝu mia mano, ĉu ni ne trovos en
 
 la urno dudekon da blankaj silikoj!…
 
-—Trankviliĝu, fidela servisto — respondis Ramzes kun ri-
-
-deto. — Mi havas ĉe mia mano pli da regimentoj, ol estos
+—Trankviliĝu, fidela servisto — respondis Ramzes kun rideto. — Mi havas ĉe mia mano pli da regimentoj, ol estos
 
 voĉoj kontraŭ ni.
 
@@ -8202,9 +6485,7 @@ Sen unuanimeco oni ja ne malfermos al ni Labirinton …
 
 Ramzes ridetis kaj ridetis.
 
-Finiĝis la procesio de la delegitoj. La gardisto de Labirin-
-
-to levis la urnon kaj elŝutis ĝian enhavon sur oran pladon.
+Finiĝis la procesio de la delegitoj. La gardisto de Labirinto levis la urnon kaj elŝutis ĝian enhavon sur oran pladon.
 
 El 91 voĉdonantoj estis 83 nigraj silikoj, kaj nur 8 blankaj.
 
@@ -8218,9 +6499,7 @@ malsukcesis. Sed la faraono ekparolis kun plena senĝeno:
 
 ordonon, kaj mia favoro estas kun vi. Du tagojn vi estos gastoj de mia domo. Ricevinte donacojn, vi revenos al viaj familioj kaj okupoj. Paco kaj beno estu kun vi.
 
-Tion dirinte, la sinjoro kun la sekvantaro forlasis la salo-
-
-non. La ĉefpastroj Herhor kaj Mefres kun timo rigardis unu
+Tion dirinte, la sinjoro kun la sekvantaro forlasis la salonon. La ĉefpastroj Herhor kaj Mefres kun timo rigardis unu
 
 la alian.
 
@@ -8233,38 +6512,25 @@ la alian.
 —La dioj defendos nin kaj siajn templojn …
 
 
-LA FARAONO
-
-
-Vespere en la ĉambro de Ramzes XIII kunvenis liaj plej fi-
-
-delaj servistoj: la granda trezoristo, la granda skribisto, Tutmozis kaj Kalipos, la ĉefo de la greka regimento.
+Vespere en la ĉambro de Ramzes XIII kunvenis liaj plej fidelaj servistoj: la granda trezoristo, la granda skribisto, Tutmozis kaj Kalipos, la ĉefo de la greka regimento.
 
 —Ho sinjoro — ĝemis la trezoristo — kial vi ne agis, kiel
 
 viaj eterne vivantaj antaŭuloj?… Se la delegitoj voĉdonus mal-kaŝe, ni jam posedus la rajton al la trezorejo de Labirinto!
 
-—Veron diras via ekscelenco — intermetis la granda skri-
-
-bisto.
+—Veron diras via ekscelenco — intermetis la granda skribisto.
 
 La faraono skuis la kapon.
 
-—Vi eraras. Eĉ se la tuta Egipto krius: Donu al la trezore-
-
-jo la oron de Labirinto, la ĉefpastroj ne donus …
+—Vi eraras. Eĉ se la tuta Egipto krius: Donu al la trezorejo la oron de Labirinto, la ĉefpastroj ne donus …
 
 —Kial do ni maltrankviligis ilin, kunvokante la delegitojn?… ĉi tiu reĝa ago forte ribeligis kaj kuraĝigis la popo-laĉon, kiu jam hodiaŭ estas kvazaŭ leviĝanta akvo …
 
-—Mi ne timas la alfluon — diris la sinjoro. — Miaj regi-
-
-mentoj estos por ĝi akvobaro … Mi havas videblan profiton
+—Mi ne timas la alfluon — diris la sinjoro. — Miaj regimentoj estos por ĝi akvobaro … Mi havas videblan profiton
 
 de la delegitaro, ĉar ĝi montris al mi la senfortecon de la kontraŭuloj: 83 silikoj por ni, 8 por ili!… Tio signifas, ke kiam ili povas kalkuli je unu korpuso, mi — je dek. Ne kredu al iluzioj
 
-— daŭrigis la faraono. Inter mi kaj la ĉefpastroj jam komen-
-
-ciĝis la milito. Ili estas citadelo, kies kapitulacon ni postulis.
+— daŭrigis la faraono. Inter mi kaj la ĉefpastroj jam komenciĝis la milito. Ili estas citadelo, kies kapitulacon ni postulis.
 
 Ili rifuzis, ni do devas komenci la atakon.
 
@@ -8272,16 +6538,11 @@ Ili rifuzis, ni do devas komenci la atakon.
 
 —Ordonu, sinjoro — diris la granda skribisto.
 
-—Jen mia ordono — diris Ramzes. — Vi trezoristo disdo-
-
-nos cent talentojn al la polico, laboristoj, oficiroj kaj vilaĝaj juĝistoj en la nomesoj: Seft, Neha-ęnt, Nehape˛u, Sebt-Het,
+—Jen mia ordono — diris Ramzes. — Vi trezoristo disdonos cent talentojn al la polico, laboristoj, oficiroj kaj vilaĝaj juĝistoj en la nomesoj: Seft, Neha-ęnt, Nehape˛u, Sebt-Het,
 
 Aa, Ament, Ka … En la samaj lokoj vi donos al la mastroj de
 
 drinkejoj kaj gastejoj hordeon, tritikon kaj vinon, kiun vi havas provize, por ke la popolo havu senpage manĝaĵon kaj
-
-
-LA FARAONO
 
 
 trinkaĵon. Vi faros tion, por ke la 20-an de Paofi provizoj estu ĉie, kie ili estas necesaj.
@@ -8294,15 +6555,11 @@ Vi, Kalipos, sendos kvar grekajn regimentojn al la sudo. Du
 
 restos apud Labirinto, du iros ĝis Hanes. Se la pastra milico venus de Teboj, vi forpuŝos ĝin kaj ne allasos al Fayum … Kaj kiam la popolo, indigninte kontraŭ la pastroj, minacos Labirinton, viaj Grekoj okupu ĝin …
 
-—Kaj se la gardistoj de la kastelo kontraŭstarus? — inter-
-
-metis Kalipos.
+—Kaj se la gardistoj de la kastelo kontraŭstarus? — intermetis Kalipos.
 
 —Tio estus ribelo — respondis la faraono kaj daŭrigis:
 
-—Vi, Tutmozis, sendos tri regimentojn en Memfison kaj lo-
-
-kos ilin proksime de la temploj de Ptah, Izido kaj Horus. Kiam la incitita popolo volos ilin ataki, la koloneloj malfermos la pordegojn, ne enlasos la popolaĉon en la sanktajn lokojn kaj gardos la personojn de la ĉefpastroj kontraŭ malrespekto. En Labirinto kaj en la memfisaj temploj vi trovos pastrojn, kiuj eliros renkonte al la taĉmentoj kun verdaj branĉoj. La koloneloj demandos ilin pri la signalvortoj kaj petos ilian konsi-
+—Vi, Tutmozis, sendos tri regimentojn en Memfison kaj lokos ilin proksime de la temploj de Ptah, Izido kaj Horus. Kiam la incitita popolo volos ilin ataki, la koloneloj malfermos la pordegojn, ne enlasos la popolaĉon en la sanktajn lokojn kaj gardos la personojn de la ĉefpastroj kontraŭ malrespekto. En Labirinto kaj en la memfisaj temploj vi trovos pastrojn, kiuj eliros renkonte al la taĉmentoj kun verdaj branĉoj. La koloneloj demandos ilin pri la signalvortoj kaj petos ilian konsi-
 
 lon …
 
@@ -8315,9 +6572,6 @@ lon …
 okupitaj de la armeoj la 23-an de Paofi — daŭrigis la faraono, sin turnante al la granda skribisto. Do la popolo, en Memfiso kaj Fayum, povas kolektiĝi jam la 18-an, en la komenco en
 
 malgrandaj aretoj, poste pli kaj pli multenombre. Se do jam
-
-
-LA FARAONO
 
 
 ĉirkaŭ la 20-a komenciĝus malgrandaj tumultoj, oni ne devas
@@ -8358,9 +6612,7 @@ konas iliajn dezirojn … Sed ĉar mi pli ol ili kolektis la fortojn, ili do est
 
 Tutmozis volis en ĉi tiu momento rakonti al la faraono pri
 
-la procedoj de la ĉefpastroj kun Likon. Sed ankaŭ ĉi tiun fojon haltigis lin la penso, ke kiam la sinjoro forte ekkoleros, li perdos la trankvilon, kiu hodiaŭ faras lin potenca. Antaŭ la batalo la militestro devas pensi pri nenio, ekster la batalo 212
-
-LA FARAONO
+la procedoj de la ĉefpastroj kun Likon. Sed ankaŭ ĉi tiun fojon haltigis lin la penso, ke kiam la sinjoro forte ekkoleros, li perdos la trankvilon, kiu hodiaŭ faras lin potenca. Antaŭ la batalo la militestro devas pensi pri nenio, ekster la batalo
 
 
 mem. Venos tempo, por la afero de Likon, kiam la pastroj
@@ -8381,9 +6633,7 @@ lastaj jaroj iu ajn profeto havis pli da povo ol la nomar˛o de Teboj aŭ Memfis
 
 forkuri antaŭ la 23-a de Paofi — intermetis Kalipos.
 
-—Kio minacas lin? — diris la skribisto. — Lia sankteco, ho-
-
-diaŭ severa, morgaŭ pardonos al ili, se ili humiliĝos...
+—Kio minacas lin? — diris la skribisto. — Lia sankteco, hodiaŭ severa, morgaŭ pardonos al ili, se ili humiliĝos...
 
 —Kaj se la reĝino Nikotris petos por ili, li eĉ lasos al ili la riĉaĵojn — aldonis la trezoristo. — En ĉiu okazo en la ŝtato ekregos ordo, kiu jam komencis manki.
 
@@ -8403,9 +6653,7 @@ la trezoristo.
 
 la skribisto. — Sed tiel, kio neatendita povas okazi?… La dioj ne malsupreniros de la ĉielo por defendi Labirinton.
 
-—Via ekscelenco parolas tiel, ĉar vi estas trankvila — diris 213
-
-LA FARAONO
+—Via ekscelenco parolas tiel, ĉar vi estas trankvila — diris
 
 
 Kalipos — ĉar vi scias, ke la ĉefa militestro vigle antaŭvidas ĉion. Alie, eble tremus sur vi la haŭto.
@@ -8420,9 +6668,7 @@ granda skribisto — sed vere la fortoj ne sufiĉos al ili … En ĉiu okazo mi 
 
 Post la foriro de la altranguloj, Tutmozis malfermis en unu
 
-el la muroj kaŝitan pordon kaj enkondukis la pastron Samen-
-
-tu. La sinjoro akceptis la profeton de Set kun granda ĝojo,
+el la muroj kaŝitan pordon kaj enkondukis la pastron Samentu. La sinjoro akceptis la profeton de Set kun granda ĝojo,
 
 donis al li la manon por kisi kaj ĉirkaŭprenis lian kapon.
 
@@ -8436,9 +6682,7 @@ Kion vi alportas?
 
 —Jam de longe mi konis ĝin, sed nun mi malkovris ion. La
 
-trezorejo povas fali en profundaĵon, mortigi homojn kaj de-
-
-trui la juvelojn, kiuj estas ĝia plej granda riĉaĵo …
+trezorejo povas fali en profundaĵon, mortigi homojn kaj detrui la juvelojn, kiuj estas ĝia plej granda riĉaĵo …
 
 La faraono sulkigis la brovojn.
 
@@ -8446,35 +6690,22 @@ La faraono sulkigis la brovojn.
 
 prepari dekkelkon da konfidindaj homoj. Kun ili mi eniros
 
-Labirinton en la nokto antaŭ la atako kaj mi okupos la ĉam-
-
-brojn, najbarajn al la trezorejo … Precipe la supran!…
+Labirinton en la nokto antaŭ la atako kaj mi okupos la ĉambrojn, najbarajn al la trezorejo … Precipe la supran!…
 
 —Vi enkondukos ilin?…
 
-—Jes. Mi iros ankoraŭ unu fojon tien kaj kontrolos defini-
-
-tive, ĉu mi ne povos malhelpi la ruinon, sen fremda helpo. La homoj, eĉ plej fidelaj ne estas konfidindaj, kaj la enkonduko de ili povas altiri la atenton de ĉi tiuj hundoj, gardistoj …
-
-
-LA FARAONO
+—Jes. Mi iros ankoraŭ unu fojon tien kaj kontrolos definitive, ĉu mi ne povos malhelpi la ruinon, sen fremda helpo. La homoj, eĉ plej fidelaj ne estas konfidindaj, kaj la enkonduko de ili povas altiri la atenton de ĉi tiuj hundoj, gardistoj …
 
 
 —Se jam ili ne spionas vin … — intermetis la faraono.
 
 —Kredu al mi, sinjoro — respondis la pastro, metante la
 
-manon sur la bruston — ke por trovi min, oni bezonas mirak-
+manon sur la bruston — ke por trovi min, oni bezonas miraklon. Ilia blindiĝo estas preskaŭ infana. Ili jam sentas, ke ni volas engliti Labirinton, sed malsaĝuloj — ili duobligas gardistojn antaŭ la videblaj pordetoj. Dume mi, en la daŭro de
 
-lon. Ilia blindiĝo estas preskaŭ infana. Ili jam sentas, ke ni volas engliti Labirinton, sed malsaĝuloj — ili duobligas gardistojn antaŭ la videblaj pordetoj. Dume mi, en la daŭro de
+unu monato, trovis tri kaŝitajn enirojn, pri kiuj ili forgesis aŭ eble tute ne scias. Nur iu spirito povus averti ilin, ke mi promenas en Labirinto, aŭ montri la ĉambron, kie mi estos. Inter tri mil ĉambroj kaj koridoroj tio estas neebla.
 
-unu monato, trovis tri kaŝitajn enirojn, pri kiuj ili forgesis aŭ eble tute ne scias. Nur iu spirito povus averti ilin, ke mi promenas en Labirinto, aŭ montri la ĉambron, kie mi estos. In-
-
-ter tri mil ĉambroj kaj koridoroj tio estas neebla.
-
-—La nobla Samentu diras la veron — interrompis Tutmo-
-
-zis. — Kaj eble ni troas nian antaŭgardon kontraŭ la pastraj vipuroj.
+—La nobla Samentu diras la veron — interrompis Tutmozis. — Kaj eble ni troas nian antaŭgardon kontraŭ la pastraj vipuroj.
 
 —Ne diru tion, generalo — respondis la pastro. Iliaj fortoj
 
@@ -8499,9 +6730,6 @@ pastrojn, en Labirinto vi estos — diris la faraono.
 —Kaj niaj hakiloj — intermetis Tutmozis. — Malkuraĝa
 
 
-LA FARAONO
-
-
 estas la soldato, kiun fortimigas la flamoj aŭ monstroj, aŭ kiu perdas la tempon por aŭdi misterajn voĉojn.
 
 —Vi bone parolas, generalo! — ekkriis Samentu. — Se nur
@@ -8512,23 +6740,15 @@ vi iros brave antaŭen, la timigiloj malaperos, la voĉoj eksilentos, la flamoj 
 
 —Se mi pereus — daŭrigis Samentu kun malĝoja rideto —
 
-venos al via sankteco juna pastro de Set kun mia ringo. Oku-
+venos al via sankteco juna pastro de Set kun mia ringo. Okupu do la armeo Labirinton kaj forpelu la gardistojn, kaj ne
 
-pu do la armeo Labirinton kaj forpelu la gardistojn, kaj ne
-
-forlasu plu la konstruaĵon, ĉar la junulo, eble post unu mo-
-
-nato, eble pli frue, trovos la vojon al la trezoroj dank’al la montroj, kiujn mi lasos al li … Sed sinjoro — diris li genuante — pri unu, sole pri tio, mi petegas vin. Kiam vi venkos, ven-
+forlasu plu la konstruaĵon, ĉar la junulo, eble post unu monato, eble pli frue, trovos la vojon al la trezoroj dank’al la montroj, kiujn mi lasos al li … Sed sinjoro — diris li genuante — pri unu, sole pri tio, mi petegas vin. Kiam vi venkos, ven-
 
 ĝu min, kaj antaŭ ĉio ne pardonu al Herhor kaj Mefres. Vi ne scias, kiaj malamikoj ili estas!… Se ilia estos la venko, pereos ne nur vi, sed ankaŭ via dinastio.
 
-—ĉu ne konvenas al la venkinto esti grandanima? — de-
+—ĉu ne konvenas al la venkinto esti grandanima? — demandis la monar˛o kun malgaja mieno.
 
-mandis la monar˛o kun malgaja mieno.
-
-—Nenian grandanimecon!… nenian kompaton!… kriis Sa-
-
-mentu. — Dum ili vivos, vin kaj min minacas la morto, mal-
+—Nenian grandanimecon!… nenian kompaton!… kriis Samentu. — Dum ili vivos, vin kaj min minacas la morto, mal-
 
 honoro, eĉ malrespekto al niaj kadavroj. Oni povas kvietigi
 
@@ -8541,10 +6761,7 @@ rondflugas super la altaĵoj kaj ne timas sagojn … Sed egiptan profeton, kiu g
 Feliĉe, ne lia sankteco, sed ni, soldatoj, solvos la jarcentan malkonsenton inter la pastroj kiaj la faraono.
 
 
-LA FARAONO
-
-
-ĉAPITRO DEKKVARA
+ĈAPITRO DEKKVARA
 
 La 12-an de Paofi de diversaj egiptaj temploj disvastiĝis
 
@@ -8566,41 +6783,28 @@ Sed ili devis reiri: la egiptaj burĝoj mokis ilin, kaj la alireligi-anoj eĉ ĵ
 
 La polico, vidante tion, restis tute indiferenta, kelkaj ĝiaj membroj eĉ partoprenis en la maldecaj ŝercoj. De la tagmezo, iuj nekonataj homoj komencis rakonti al la popolo, ke la pastraro melhelpas la reformojn por la laborantaj klasoj kaj volas ribeli kontraŭ la faraono.
 
-ĉirkaŭ la vespero, apud la temploj kolektiĝis aretoj da la-
-
-boristoj, fajfante kaj malbenante la pastrojn. Samtempe oni
-
-
-LA FARAONO
+ĉirkaŭ la vespero, apud la temploj kolektiĝis aretoj da laboristoj, fajfante kaj malbenante la pastrojn. Samtempe oni
 
 
 ĵetis ŝtonojn al la pordegoj, kaj iu krimulo publike rompis la nazon al Horus, gardanta sian templon.
 
 Kelke da horoj post subiro de la suno en la templo de Ptah
 
-kolektiĝis la ĉefpastroj kaj iliaj plej fidelaj partianoj. Estis tie Herhor, Mefres Mentezufis, tri nomar˛oj kaj la plej alta ju-
-
-ĝisto de Teboj.
+kolektiĝis la ĉefpastroj kaj iliaj plej fidelaj partianoj. Estis tie Herhor, Mefres Mentezufis, tri nomar˛oj kaj la plej alta juĝisto de Teboj.
 
 —Teruraj tempoj! — diris la juĝisto. — Mi scias tute certe,
 
 ke la faraono volas ribeligi la popolaĉon, por ke ili ataku la templojn.
 
-—Mi aŭdis — aldonis la nomar˛o de Sebes — ke oni sen-
-
-dis ordonon al Nitager alkuri plej rapide kun novaj regimen-
+—Mi aŭdis — aldonis la nomar˛o de Sebes — ke oni sendis ordonon al Nitager alkuri plej rapide kun novaj regimen-
 
 toj, kvazaŭ ne sufiĉus jam la nunaj! …
 
-—La vojo inter Malsupra kaj Supra Egipto estas interrom-
-
-pita jam de hieraŭ — diris la nomar˛o de Aa. — Sur la ŝose-
+—La vojo inter Malsupra kaj Supra Egipto estas interrompita jam de hieraŭ — diris la nomar˛o de Aa. — Sur la ŝose-
 
 oj staras la armeo, kaj la galeroj de lia sankteco faras revizion de ĉiu ŝipo, veturanta sur Nilo …
 
-—Ramzes XIII ne estas ”sankteco” — interrompis seke Me-
-
-fres — ĉar li ne ricevis la kronojn de la manoj de la dioj.
+—Ramzes XIII ne estas ”sankteco” — interrompis seke Mefres — ĉar li ne ricevis la kronojn de la manoj de la dioj.
 
 —ĉio ĉi estus bagateloj — ekparolis la plej alta juĝisto. —
 
@@ -8616,16 +6820,11 @@ templojn — aldonis Herhor.
 
 Herhor.
 
-—Kaj via ekscelenco parolas pri tio tiel trankvile? — de-
-
-mandis la nomar˛o de Ament.
+—Kaj via ekscelenco parolas pri tio tiel trankvile? — demandis la nomar˛o de Ament.
 
 Herhor levis la ŝultrojn, la nomar˛oj komencis rigardi unu
 
 alian.
-
-
-LA FARAONO
 
 
 —Tion mi ne komprenas!… — diris preskaŭ kun kolero la
@@ -8642,15 +6841,11 @@ Mefres. — Por tio vi ĉiam havos tempon!…
 
 — diris la nomar˛o de Sebes.
 
-—La dioj savos siajn fidelulojn — respondis Herhor. La no-
-
-mar˛o de Aa tordis siajn manojn.
+—La dioj savos siajn fidelulojn — respondis Herhor. La nomar˛o de Aa tordis siajn manojn.
 
 —Se mi devas malfermi mian koron, ankaŭ mi diros, ke
 
-mirigas min via indiferenteco — interrompis la plej alta ju-
-
-ĝisto, — Preskaŭ la tuta popolaĉo estas kontraŭ ni …
+mirigas min via indiferenteco — interrompis la plej alta juĝisto, — Preskaŭ la tuta popolaĉo estas kontraŭ ni …
 
 —La popolaĉo, kiel hordeo sur kampo, iras kun la vento —
 
@@ -8666,13 +6861,9 @@ diris Herhor.
 
 si per la promesoj, kaj morgaŭ li venos kun donacoj …
 
-—Pli forta ol la promesoj kaj donacoj estas la teruro — res-
+—Pli forta ol la promesoj kaj donacoj estas la teruro — respondis Herhor.
 
-pondis Herhor.
-
-—Kion ili devas timi?… La tricent soldatojn, kiujn ni ha-
-
-vas?…
+—Kion ili devas timi?… La tricent soldatojn, kiujn ni havas?…
 
 —Ili ektimos Ozirison.
 
@@ -8681,42 +6872,29 @@ vas?…
 Aa.
 
 
-LA FARAONO
-
-
 —Vi ĉiuj vidos lin. Kaj feliĉa estus tiu, kiu blindiĝus por tiu tago.
 
 Herhor diris ĉi tiujn vortojn kun tiel solena trankvilo, ke en la kunveno ekregis silento.
 
-—Sed definitive kion ni faras? — demandis post momen-
-
-to la plej alta juĝisto.
+—Sed definitive kion ni faras? — demandis post momento la plej alta juĝisto.
 
 —La faraono deziras — diris Herhor — ke la popolo ataku
 
 la templojn la 23-an. Ni devas fari, ke oni ataku nin la 20-an de Paofi.
 
-—Eterne vivantaj dioj! — ree ekkriis la nomar˛o de Aa, le-
-
-vante la manojn. — Por kio ni devas altiri la malfeliĉon sur niajn kapojn, kaj du tagojn pli frue?…
+—Eterne vivantaj dioj! — ree ekkriis la nomar˛o de Aa, levante la manojn. — Por kio ni devas altiri la malfeliĉon sur niajn kapojn, kaj du tagojn pli frue?…
 
 —Obeu Herhoron — interrompis Mefres per kategoria
 
-tono — kaj per ĉiuj rimedoj penu, ke la atako komenciĝu ma-
-
-tene la 20-an.
+tono — kaj per ĉiuj rimedoj penu, ke la atako komenciĝu matene la 20-an.
 
 —Kaj se efektive ni estos batitaj?… — demandis konfuzite
 
 la juĝisto.
 
-—Se ne efikos la preĝoj de Herhor, tiam mi alvokos la hel-
+—Se ne efikos la preĝoj de Herhor, tiam mi alvokos la helpon de la dioj — respondis Mefres, kaj en liaj okuloj ekbrilis kolera flamo.
 
-pon de la dioj — respondis Mefres, kaj en liaj okuloj ekbrilis kolera flamo.
-
-—Ah, vi ĉefpastroj havas viajn sekretojn, kiujn malperme-
-
-site estas al vi malkovri — diris la granda juĝisto. — Ni do faros, kion vi ordonas, ni provokos la atakon la 20-an. Sed
+—Ah, vi ĉefpastroj havas viajn sekretojn, kiujn malpermesite estas al vi malkovri — diris la granda juĝisto. — Ni do faros, kion vi ordonas, ni provokos la atakon la 20-an. Sed
 
 memoru, ke la sango de niaj infanoj kaj nia falos sur viajn
 
@@ -8733,26 +6911,17 @@ Poste Herhor aldonis:
 estis maljustaj al neniu el vi kaj plenumis ĉiun promeson.
 
 
-LA FARAONO
-
-
 Estu do paciencaj kaj fidelaj ankoraŭ kelke da tagoj, por vidi la potencon de la dioj kaj ricevi rekompencon.
 
 Baldaŭ la nomar˛oj adiaŭis la pastrojn, eĉ ne penante kaŝi
 
-sian malĝojon kaj maltrankvilon. Restis nur Herhor kaj Me-
-
-fres.
+sian malĝojon kaj maltrankvilon. Restis nur Herhor kaj Mefres.
 
 Post longa silento Herhor diris:
 
-—Jes, tiu ĉi Likon estis bona, dum li ludis la rolon de fre-
+—Jes, tiu ĉi Likon estis bona, dum li ludis la rolon de frenezulo. Sed anstataŭigi per li Ramzeson!…
 
-nezulo. Sed anstataŭigi per li Ramzeson!…
-
-—Se la patrino estis trompita — respondis Mefres — li de-
-
-vas esti tre simila al la faraono, … Kaj sidi sur la trono, diri kelke da vortoj al la ĉirkaŭantaj, tion li sendube scios fari. Cetere ni estos apud li …
+—Se la patrino estis trompita — respondis Mefres — li devas esti tre simila al la faraono, … Kaj sidi sur la trono, diri kelke da vortoj al la ĉirkaŭantaj, tion li sendube scios fari. Cetere ni estos apud li …
 
 —Tre malsaĝa komedianto!… — suspiris Herhor, frotante
 
@@ -8764,9 +6933,7 @@ posedas duoblan vidkapablon kaj povas fari grandajn servojn
 
 al la ŝtato …
 
-—Via ekscelenco ĉiam parolas al mi pri ĉi tiu duobla vid-
-
-kapablo — respondis Herhor. — Fine konvinkiĝu mi mem pri
+—Via ekscelenco ĉiam parolas al mi pri ĉi tiu duobla vidkapablo — respondis Herhor. — Fine konvinkiĝu mi mem pri
 
 ĝi.
 
@@ -8783,9 +6950,6 @@ manĝis. Li portis tunikon de la faraona gvardio.
 ŝtato volas konvinkiĝi pri la kapabloj, kiujn donis al vi la dioj
 
 …
-
-
-LA FARAONO
 
 
 La Greko forpuŝis la pladon kun la manĝaĵo kaj komencis
@@ -8832,9 +6996,7 @@ volas trinki lian sangon.
 
 li estas bela virino.., — murmuretis Likon.
 
-—ŝia nomo estas Hebron kaj ŝi estas la edzino de Tutmo-
-
-zis — sufloris Herhor. — Konfesu Mefres — aldonis li — ke,
+—ŝia nomo estas Hebron kaj ŝi estas la edzino de Tutmozis — sufloris Herhor. — Konfesu Mefres — aldonis li — ke,
 
 por scii tion, oni ne bezonas duoblan vidkapablon …
 
@@ -8843,12 +7005,7 @@ Mefres kunpremis siajn maldikajn lipojn.
 —Se tio ne konvinkas vian ekscelencon, mi montros al vi
 
 
-LA FARAONO
-
-
-ion pli bonan — respondis li — Likon, trovu nun la perfidu-
-
-lon, kiu serĉas la vojon al la trezorejo de Labirinto …
+ion pli bonan — respondis li — Likon, trovu nun la perfidulon, kiu serĉas la vojon al la trezorejo de Labirinto …
 
 La dormanta Greko pli fikse rigardis la kristalon kaj post
 
@@ -8864,15 +7021,11 @@ momento respondis:
 
 —Kia estas lia aspekto?
 
-—Li havas flavruĝajn harojn kaj barbon.. — respondis Li-
-
-kon …
+—Li havas flavruĝajn harojn kaj barbon.. — respondis Likon …
 
 —Do? — demandis Mefres Herhoron.
 
-—Via ekscelenco havas bonan policon — respondis Her-
-
-hor.
+—Via ekscelenco havas bonan policon — respondis Herhor.
 
 —Kontraŭe, la gardistoj de Labirinto malbone ĝin gardas!
 
@@ -8882,30 +7035,20 @@ tien kun Likon por averti la tieajn pastrojn … Sed kiam mi
 
 sukcesos savi la trezorojn de la dioj, via ekscelenco permesos, ke mi fariĝos ilia gardisto …
 
-—Kiel deziras via ekscelenco — respondis Herhor indife-
+—Kiel deziras via ekscelenco — respondis Herhor indiferente. Kaj en sia koro li aldonis:
 
-rente. Kaj en sia koro li aldonis:
+—Fine la pia Mefres komencas montri dentojn kaj ungegojn … Li mem deziras fariĝi nur … la gardisto de Labirinto
 
-—Fine la pia Mefres komencas montri dentojn kaj unge-
-
-gojn … Li mem deziras fariĝi nur … la gardisto de Labirinto
-
-kaj sian edukaton Likonon fari nur … faraono!… Vere, por sa-
-
-tigi la avidecon de miaj helpantoj, la dioj devus krei dek Egip-tojn …”
+kaj sian edukaton Likonon fari nur … faraono!… Vere, por satigi la avidecon de miaj helpantoj, la dioj devus krei dek Egip-tojn …”
 
 Kiam ambaŭ altranguloj forlasis la subteraĵon, Herhor
 
-nokte, piedire revenis en la templon de Izido, kie li loĝis, kaj Mefres ordonis prepari kelke da ĉevalaj portiloj. En unu portilon junaj pastroj metis la dormantan Likonon, kun sako sur 223
-
-LA FARAONO
+nokte, piedire revenis en la templon de Izido, kie li loĝis, kaj Mefres ordonis prepari kelke da ĉevalaj portiloj. En unu portilon junaj pastroj metis la dormantan Likonon, kun sako sur
 
 
 la kapo en la alia sidiĝis la ĉefpastro mem kaj, ĉirkaŭita de kelke da rajdantoj, ektrotis al Fayum.
 
-En la nokto de 14-a al la 15-a de Paofi, la ĉefpastro Samen-
-
-tu, konforme al la promeso donita al la faraono, eniris La-
+En la nokto de 14-a al la 15-a de Paofi, la ĉefpastro Samentu, konforme al la promeso donita al la faraono, eniris La-
 
 birinton tra koridoro, konata nur de li. Li havis en la mano faskon de torĉoj, el kiuj unu brulis, kaj sur la dorso korbon kun instrumentoj.
 
@@ -8923,9 +7066,7 @@ Samentu demetis sian korbon kaj, eklumiginte la torĉojn,
 
 estas vera filo de la dioj, ĉar mia kolero estas terura. Ekstere mi fariĝas fajra kolono kaj naskas la fulmon. Enfermita, mi
 
-estas tondro kaj detruo kaj ne ekzistas konstruaĵo, kiu kon-
-
-traŭstarus al mia potenco. Kvietigi min povas nur la sankta
+estas tondro kaj detruo kaj ne ekzistas konstruaĵo, kiu kontraŭstarus al mia potenco. Kvietigi min povas nur la sankta
 
 akvo, forprenante mian forton. Sed mia kolero naskiĝis same
 
@@ -8938,9 +7079,6 @@ tordiĝas kaj falas. Mi estas kiel Tilono, kiu renversas plej grandajn arbojn ka
 la aliaj!… — diris al si Samentu.
 
 
-LA FARAONO
-
-
 Li malfermis unu kolonon kaj elprenis grandan poton. La
 
 poto havis kovrilon, algluitan per vakso, kaj truon, tra kiu pasis longa, maldika ŝnuro, finiĝanta oni ne scias kie en la interno de la kolono.
@@ -8949,9 +7087,7 @@ Samentu fortranĉis de la ŝnuro pecon, proksimigis ĝin al la
 
 torĉo kaj rimarkis, ke la torĉo brulas rapide kun siblo.
 
-Nun singarde li demetis per tranĉilo la kovrilon kaj ekvi-
-
-dis en la poto kvazaŭ sablon kaj ŝtonetojn de cindra koloro.
+Nun singarde li demetis per tranĉilo la kovrilon kaj ekvidis en la poto kvazaŭ sablon kaj ŝtonetojn de cindra koloro.
 
 Li prenis kelke da ŝtonetoj kaj, foririnte flanken, almetis la torĉon. Tuj ŝprucis granda flamo, kaj la ŝtonetoj malaperis, lasante post si fumon kaj malagrablan odoron.
 
@@ -8962,9 +7098,7 @@ kun rideto. — La trezorejo ne dronos en profundaĵo …
 
 Li iris de kolono al kolono, malfermis la kaŝejojn kaj elprenis la kaŝitajn potojn. ĉe ĉiu estis ŝnuro, kiun Samentu tratranĉis, kaj la potojn li starigis flanke.
 
-—Lia sankteco — diris la pastro — povus donaci al mi duo-
-
-non de la trezoroj, aŭ almenaŭ … fari mian filon nomar˛o!…
+—Lia sankteco — diris la pastro — povus donaci al mi duonon de la trezoroj, aŭ almenaŭ … fari mian filon nomar˛o!…
 
 Kaj sendube li faros, ĉar li estas grandanima sinjoro … Mi
 
@@ -8974,37 +7108,26 @@ Antaŭgardinte tiel la suban salonon, Samentu revenis en la
 
 trezorejon, kaj de tie eniris en la supran salonon. Tie ankaŭ estis surskriboj, multenombraj kolonoj, kaj en ili potoj, pro-vizitaj per ŝnuroj kaj plenigitaj per ŝtonetoj, kiuj ĉe la kontak-to kun fajro eksplodis.
 
-Samentu tratranĉis la ŝnurojn, forigis la potojn el la kolo-
-
-noj kaj iom da griza sablo prenis en ĉifonon. Poste laca li sidi-
+Samentu tratranĉis la ŝnurojn, forigis la potojn el la kolonoj kaj iom da griza sablo prenis en ĉifonon. Poste laca li sidi-
 
 ĝis. Ses el liaj torĉoj jam forbrulis sendube; la nokto jam proksimiĝis al sia fino.
 
 —Neniam mi supozus — diris li al si — ke ĉi tieaj pastroj
 
 
-LA FARAONO
-
-
 havas tiel strangan materion!… Oni ja povus per ĝi renversi
 
 la asiriajn citadelojn!… Vere estas, ke ni ankaŭ ne ĉion diras al niaj lernantoj.
 
-Laca li komencis revi. Nun li estis certa, ke li okupos la plej altan postenon en la ŝtato, pli potencan ol tiu, kiun okupis Herhor. Kion li faros tiam?… Multon, multon. Li certigos sa-
-
-ĝon kaj riĉaĵon al siaj posteuloj. Li penos elŝiri la sekretojn de ĉiuj temploj, kio senlime fortigos lian povon kaj certigos al Egipto superecon je Asirio.
+Laca li komencis revi. Nun li estis certa, ke li okupos la plej altan postenon en la ŝtato, pli potencan ol tiu, kiun okupis Herhor. Kion li faros tiam?… Multon, multon. Li certigos saĝon kaj riĉaĵon al siaj posteuloj. Li penos elŝiri la sekretojn de ĉiuj temploj, kio senlime fortigos lian povon kaj certigos al Egipto superecon je Asirio.
 
 La faraono ridas la diojn: tio faciligos al li la taskon fondi la kulton de unu sola dio, ekzemple de Oziriso, kaj kunigi Fenicianojn, Hebreojn, Grekojn kaj Libianojn en unu ŝtaton kun Egipto.
 
 Samtempe li komencos la laborojn ĉe la kanalo, kiu devas
 
-kunigi Ruĝan Maron kun Meza. Kiam sur la bordoj de la ka-
+kunigi Ruĝan Maron kun Meza. Kiam sur la bordoj de la kanalo estos konstruitaj fortikaĵoj kaj kolektitaj grandaj armeoj, la tuta komerco kun la nekonataj popoloj de Oriento kaj Ok-cidentoj falos en la manojn de Egiptanoj.
 
-nalo estos konstruitaj fortikaĵoj kaj kolektitaj grandaj armeoj, la tuta komerco kun la nekonataj popoloj de Oriento kaj Ok-cidentoj falos en la manojn de Egiptanoj.
-
-Oni devas ankaŭ posedi propran ŝiparon kaj egiptajn ma-
-
-ristojn … Kaj antaŭ ĉio frakasi Asirion, kiu ĉiujare fariĝas pli kaj pli danĝera … Oni devas limigi la lukson kaj avarecon de la pastroj … Ili estu saĝuloj, ili havu bonstaton, sed ili servu al la ŝtato, anstataŭ ekspluati ĝin por sia profito, kiel hodiaŭ …
+Oni devas ankaŭ posedi propran ŝiparon kaj egiptajn maristojn … Kaj antaŭ ĉio frakasi Asirion, kiu ĉiujare fariĝas pli kaj pli danĝera … Oni devas limigi la lukson kaj avarecon de la pastroj … Ili estu saĝuloj, ili havu bonstaton, sed ili servu al la ŝtato, anstataŭ ekspluati ĝin por sia profito, kiel hodiaŭ …
 
 —Jam en la monato de Hator — diris li al si — mi estos la
 
@@ -9015,9 +7138,6 @@ povi sin okupi per la regado … Kaj se li ne havos filojn, tiam mia filo, mia f
 Li rekonsciiĝis. Ankoraŭ unu torĉo forbrulis, kaj estis jam
 
 granda tempo forlasi la subteraĵon.
-
-
-LA FARAONO
 
 
 Li leviĝis, prenis la korbojn kaj forlasis la salonon sub la trezorejo.
@@ -9032,9 +7152,7 @@ Li trapasis jam dekkelkon da ĉambroj kaj koridoroj, kiam
 
 subite li haltis … ŝajnis al li, ke sur la planko de la ĉambro li vidas maldikan strion de lumo …
 
-En unu momento tiel granda teruro ekregis lin, ke li estin-
-
-gis la torĉon. Sed la strio sur la planko ankaŭ malaperis.
+En unu momento tiel granda teruro ekregis lin, ke li estingis la torĉon. Sed la strio sur la planko ankaŭ malaperis.
 
 Samentu atente aŭskultis, sed li aŭdis nur la batadon de la
 
@@ -9066,9 +7184,7 @@ Samentu profunde ekspiris kaj troviĝis en grandega salono,
 
 tute plena de kolonoj, kiel ordinare. Lia torĉo lumigis apenaŭ parton de ĝi, la resto dronis en densa krepusko.
 
-La mallumo, la arbaro de kolonoj, kaj antaŭ ĉio la fakto, ke 227
-
-LA FARAONO
+La mallumo, la arbaro de kolonoj, kaj antaŭ ĉio la fakto, ke
 
 
 la salono estis al li nekonata, redonis al la pastro kuraĝon. Sur la fundo de lia timo vekiĝis fajrero de naiva espero ŝajnis al li, ke, ĉar li ne konas la lokon, neniu ĝnas, neniu venos tien …
@@ -9077,19 +7193,13 @@ Li iom trankviliĝis kaj sentis, ke la piedoj fleksiĝas sub li. Li sidiĝis. Se
 
 Samentu, kiel neniu alia en Egipto, kutimis al subteraĵoj,
 
-mallumo, erarvagado. Krom tio li travivis multajn maltran-
-
-kvilojn. Sed tio, kion li sentis nun, estis io tute nova kaj tiel nova, ke la pastro timis doni al ĝi la ĝustan nomon.
+mallumo, erarvagado. Krom tio li travivis multajn maltrankvilojn. Sed tio, kion li sentis nun, estis io tute nova kaj tiel nova, ke la pastro timis doni al ĝi la ĝustan nomon.
 
 Fine kun granda peno li kolektis la pensojn kaj diris:
 
-—Se efektive mi vidas lumon … se efektive iu fermis la por-
+—Se efektive mi vidas lumon … se efektive iu fermis la pordojn, oni perfidis min … kaj tiam?…
 
-dojn, oni perfidis min … kaj tiam?…
-
-—La morto!… — murmuretis al li voĉo, kaŝita ie sur la fun-
-
-do de lia koro.
+—La morto!… — murmuretis al li voĉo, kaŝita ie sur la fundo de lia koro.
 
 La morto?…
 
@@ -9097,12 +7207,7 @@ La morto?…
 
 Samtempe li sentis, ke estas en li kvazaŭ du homoj: unu
 
-preskaŭ freneza, alia trankvila kaj saĝa. La saĝa klarigis al si, ke ĉio povas esti nur iluzio, ke neniu trovis lin, neniu lin ser-
-
-ĉas, kaj ke li eliros, se nur li iom liberiĝos de la timo. Sed la unua, la freneza, ne aŭskultis la voĉon de la prudento, kontraŭe, ĉiuminute li akiris superecon je sia interna antagonis-to.
-
-
-LA FARAONO
+preskaŭ freneza, alia trankvila kaj saĝa. La saĝa klarigis al si, ke ĉio povas esti nur iluzio, ke neniu trovis lin, neniu lin serĉas, kaj ke li eliros, se nur li iom liberiĝos de la timo. Sed la unua, la freneza, ne aŭskultis la voĉon de la prudento, kontraŭe, ĉiuminute li akiris superecon je sia interna antagonis-to.
 
 
 Oh, se oni povus sin kaŝi en iu kolono!… Tiam oni serĉu …
@@ -9136,9 +7241,6 @@ Vidante tion, la pastro eksentis malvarmon en la piedoj, en
 la koro, en la kapo … Li ne dubis plu, ke ne nur li estas mal-kovrita, sed persekutata kaj ĉirkaŭita.
 
 
-LA FARAONO
-
-
 Kiu povis lin perfidi?… Kompreneble, nur unu homo: la
 
 juna pastro de Set, al kiu li sufiĉe detale konfidis siajn planojn. La perfidulo sola devus unu monaton serĉi la vojon en
@@ -9153,9 +7255,7 @@ homoj, kiuj staras antaŭ morto. Li ĉesis timi, ĉar la imagataj teruroj malape
 
 La pensoj trakuris lian kapon kun la rapideco kaj heleco de
 
-fulmo. Li rememoris sian tutan ekzistadon: la laborojn, dan-
-
-ĝerojn, esperojn kaj ambiciojn, kaj ĉio ŝajnis al li bagatelo. ĉar eĉ se li estus en la nuna momento faraono aŭ posedus ĉiujn
+fulmo. Li rememoris sian tutan ekzistadon: la laborojn, danĝerojn, esperojn kaj ambiciojn, kaj ĉio ŝajnis al li bagatelo. ĉar eĉ se li estus en la nuna momento faraono aŭ posedus ĉiujn
 
 juvelojn de ĉiuj reĝaj trezoroj …
 
@@ -9174,18 +7274,13 @@ perfidis lin? Sed ankaŭ ĉi tiu demando ne tre interesis lin; multe pli grava �
 longa kaj plej riĉa je spertoj.
 
 
-LA FARAONO
-
-
 —Kial?… Pro kio?…
 
 Vekis lin la voĉo de unu el la armitoj:
 
 —Neniu estas ĉi tie … neniu povas esti!…
 
-La armitoj haltis. Samentu sentis, ke li amas ĉi tiujn ho-
-
-mojn, kaj la koro ekbatis en li.
+La armitoj haltis. Samentu sentis, ke li amas ĉi tiujn homojn, kaj la koro ekbatis en li.
 
 Malrapide proksimiĝis la alia grupo. Oni disputis:
 
@@ -9217,17 +7312,10 @@ etendante la manon. — Jen la perfidulo!…
 
 Samentu proksimiĝis al li kun rideto kaj diris:
 
-—Mi rekonis vin per tiu ĉi ekkrio, Mefres. Kiam vi ne po-
-
-vas esti trompanto, vi estas nur malsaĝulo …
+—Mi rekonis vin per tiu ĉi ekkrio, Mefres. Kiam vi ne povas esti trompanto, vi estas nur malsaĝulo …
 
 
-LA FARAONO
-
-
-La ĉeestantoj ŝtoniĝis. Samentu daŭrigis kun trankvila iro-
-
-nio:
+La ĉeestantoj ŝtoniĝis. Samentu daŭrigis kun trankvila ironio:
 
 —En ĉi tiu momento vi estas samtempe trompanto kaj
 
@@ -9263,21 +7351,12 @@ Kiam la nobla Mefres venis en la korton, li ordonis al siaj
 
 pastroj prepari la portilojn kaj senprokraste forveturis Memfison kun la dormanta Likon.
 
-—Mi ne povas kredi, — diris la ĉefpastro gardisto — ke es-
-
-tis dum niaj tagoj homo, kiu penetris en la subteraĵon …
+—Mi ne povas kredi, — diris la ĉefpastro gardisto — ke estis dum niaj tagoj homo, kiu penetris en la subteraĵon …
 
 
-LA FARAONO
+—Via ekscelenco forgesas, ke ni estis hodiaŭ tri — intermetis unu el la junaj pastroj, strabe lin rigardante.
 
-
-—Via ekscelenco forgesas, ke ni estis hodiaŭ tri — interme-
-
-tis unu el la junaj pastroj, strabe lin rigardante.
-
-—Jes … vere … — respondis la ĉefpastro. — ĉu la dioj mal-
-
-klarigis mian prudenton? — diris li, frotante la frunton kaj premante la amuleton sur sia brusto.
+—Jes … vere … — respondis la ĉefpastro. — ĉu la dioj malklarigis mian prudenton? — diris li, frotante la frunton kaj premante la amuleton sur sia brusto.
 
 —Kaj du forkuris — sufloris la juna pastro.
 
@@ -9307,38 +7386,25 @@ trovis la vojon al la subteraĵoj, sed eĉ promenis en ili kvazaŭ en la propra 
 
 —Elektu do ses homojn el nia milico.
 
-—Kompreneble!… Oni devas fini kun tio … — jesis la pas-
-
-troj gardistoj.
+—Kompreneble!… Oni devas fini kun tio … — jesis la pastroj gardistoj.
 
 —Kiu scias, ĉu Mefres ne agis interkonsente kun la plej
 
 nobla Herhor? — murmuretis iu.
 
-—Sufiĉe! — ekkriis la ĉefpastro. — Kiam ni trovos Herho-
-
-ron en Labirinto, ni agos laŭ la leĝo. Sed konjekti, aŭ suspekti, 233
-
-LA FARAONO
+—Sufiĉe! — ekkriis la ĉefpastro. — Kiam ni trovos Herhoron en Labirinto, ni agos laŭ la leĝo. Sed konjekti, aŭ suspekti,
 
 
 ni ne havas la rajton … La skribistoj preparu la verdiktojn por Mefres kaj Likon, la elektitaj plej rapide persekutu ilin, la milico multobligu la starantajn garde. Oni devas ankaŭ esplori la internon de Labirinto kaj malkovri, de kie eniris Samentu
 
-… Kvankam mi estas certa, ke ne baldaŭ li trovos imitan-
-
-tojn …
+… Kvankam mi estas certa, ke ne baldaŭ li trovos imitantojn …
 
 Post kelke da horoj ses homoj galopis al Memfiso.
 
 
-LA FARAONO
+ĈAPITRO DEKKVINA
 
-
-ĉAPITRO DEKKVINA
-
-Jam la 18-an de Paofi en Egipto ekregisąoso. La vojoj in-
-
-ter Malsupra kaj Supra Egipto estis interrompitaj, la ko-
+Jam la 18-an de Paofi en Egipto ekregisąoso. La vojoj inter Malsupra kaj Supra Egipto estis interrompitaj, la ko-
 
 merco ĉesis, la ŝoseoj estis okupitaj de la regimentoj, kiuj rapidis al la urboj, posedantaj la plej famajn templojn.
 
@@ -9362,11 +7428,7 @@ kaj trinki ĉiu, kiu volis kaj kiam li volis, tre malkare eĉ tute senpage.
 
 Oni diris, ke lia sankteco donas al sia popolo festenon, kiu daŭros tutan monaton.
 
-Kaŭze de la malfaciligo, eĉ interrompo de la interkomu-
-
-nikiĝoj, la urboj ne bone sciis, kio okazas ĉe la najbaroj. Nur 235
-
-LA FARAONO
+Kaŭze de la malfaciligo, eĉ interrompo de la interkomunikiĝoj, la urboj ne bone sciis, kio okazas ĉe la najbaroj. Nur
 
 
 la faraono, kaj ankoraŭ pli bone la pastroj, konis la staton de la lando.
@@ -9379,17 +7441,13 @@ diris, ke Ramzes freneziĝis kaj volas vendi Egipton al Fenicianoj; en Memfiso o
 
 La simpla popolo, norde kaj sude, estis altirita al Ramzes
 
-per ia instinkto. Sed la popolo estis forte pasiva kaj ŝanceli-
-
-ĝema. Kiam parolis faraona agitanto, la kamparanoj estis pretaj ataki la pastrojn: sed kiam venis procesio, ili falis sur la vizaĝon kaj tremis, aŭskultante la antaŭdirojn pri katastrofoj, kiuj minacis Egipton jam en ĉi tiu monato.
+per ia instinkto. Sed la popolo estis forte pasiva kaj ŝanceliĝema. Kiam parolis faraona agitanto, la kamparanoj estis pretaj ataki la pastrojn: sed kiam venis procesio, ili falis sur la vizaĝon kaj tremis, aŭskultante la antaŭdirojn pri katastrofoj, kiuj minacis Egipton jam en ĉi tiu monato.
 
 La teruritaj nobeloj kaj nomar˛oj preskaŭ ĉiuj kunveturis
 
 Memfison petegi la faraonon pri helpo kontraŭ la ribelantaj
 
-kamparanoj. Sed ĉar Ramzes XIII rekomendis al ili pacien-
-
-con, kaj ne mallaŭdis la popolaĉon, la grandaj sinjoroj ko-
+kamparanoj. Sed ĉar Ramzes XIII rekomendis al ili paciencon, kaj ne mallaŭdis la popolaĉon, la grandaj sinjoroj ko-
 
 mencis interkonsiliĝi kun la pastra partio.
 
@@ -9397,17 +7455,9 @@ Vere estas, ke Herhor ankaŭ silentis, aŭ ankaŭ konsilis al
 
 ili piaciencon, sed aliaj ĉefpastroj rakontis, ke Ramzes estas freneza, kaj malklare komprenigis, ke oni devas forigi lin de la povo.
 
-En Memfiso ambaŭ partioj vagis unu apud la alia. Mal-
+En Memfiso ambaŭ partioj vagis unu apud la alia. Malpiuloj, kiuj trinkis, bruis, ĵetis koton sur la murojn de la temploj, eĉ sur la statuojn; kaj piuloj, plejparte maljunuloj kaj virinoj, kiuj preĝis en la stratoj, laŭte antaŭdirante malfeliĉojn kaj petegante la helpon de la dioj. La malpiuloj ĉiutage faris ian trouzon, inter la piuloj ĉiutage iu malsanulo retrovis la sanon.
 
-piuloj, kiuj trinkis, bruis, ĵetis koton sur la murojn de la temploj, eĉ sur la statuojn; kaj piuloj, plejparte maljunuloj kaj virinoj, kiuj preĝis en la stratoj, laŭte antaŭdirante malfeliĉojn kaj petegante la helpon de la dioj. La malpiuloj ĉiutage faris ian trouzon, inter la piuloj ĉiutage iu malsanulo retrovis la sanon.
-
-Sed stranga afero: ambaŭ partioj, malgraŭ la bolantaj pasi-
-
-
-LA FARAONO
-
-
-oj, ne malutilis, ne atakis unu la alian. La kaŭzo estis, ke ĉiu el ili faris malordon laŭ direkto kaj plano, preparita per la superuloj.
+Sed stranga afero: ambaŭ partioj, malgraŭ la bolantaj pasioj, ne malutilis, ne atakis unu la alian. La kaŭzo estis, ke ĉiu el ili faris malordon laŭ direkto kaj plano, preparita per la superuloj.
 
 La faraono, ne kolektinte ankoraŭ regimentojn kaj pruvojn
 
@@ -9438,12 +7488,7 @@ sciis, ke kiam unu fojon la amasoj iras al la atako, nenio haltigos ilin: ili de
 soldatojn ili estis multenombraj, estas vere, sed ne tiel, kiel estis necese laŭ la kalkuloj de la faraono.
 
 
-LA FARAONO
-
-
-Krom tio, Hiram ne revenis ankoraŭ de Pi-Bast kun la le-
-
-teroj, pruvantaj la perfidon de Herhor kaj Mefres. Kaj pli grave estis, ke la pastroj, partianoj de la faraono, devis doni helpon al la armeo ne pli frue ol la 23-an de Paofi. Kiel do averti ilin en tiom da temploj, tiel malproksimaj unu de alia? Kaj ĉu simpla singardemo ne ordonis eviti rilatojn kun ili, por ne perfidi ilin?
+Krom tio, Hiram ne revenis ankoraŭ de Pi-Bast kun la leteroj, pruvantaj la perfidon de Herhor kaj Mefres. Kaj pli grave estis, ke la pastroj, partianoj de la faraono, devis doni helpon al la armeo ne pli frue ol la 23-an de Paofi. Kiel do averti ilin en tiom da temploj, tiel malproksimaj unu de alia? Kaj ĉu simpla singardemo ne ordonis eviti rilatojn kun ili, por ne perfidi ilin?
 
 Pro ĉiuj ĉi motivoj Ramzes ne deziris pli fruan atakon de
 
@@ -9455,9 +7500,7 @@ Apud la templo de Izido oni mortigis kelke da piuloj, kiuj
 
 antaŭdiris malfeliĉojn por Egipto, aŭ mirakle retrovis la sanon. Apud la templo de Ptah la popolaĉo sin ĵetis kontraŭ
 
-procesio, batis la pastrojn kaj rompis la sanktan ŝipeton, en kiu vojaĝis la statuo de la dio. Preskaŭ samtempe venis kurieroj de la urboj Soęm kaj Anu kun la sciigo, ke la popolo vo-
-
-las superforte eniri en la templojn, kaj en ˘eran eĉ faris tion kaj sakrilegis la sanktejon.
+procesio, batis la pastrojn kaj rompis la sanktan ŝipeton, en kiu vojaĝis la statuo de la dio. Preskaŭ samtempe venis kurieroj de la urboj Soęm kaj Anu kun la sciigo, ke la popolo volas superforte eniri en la templojn, kaj en ˘eran eĉ faris tion kaj sakrilegis la sanktejon.
 
 Vespere, preskaŭ kaŝante sin, venis en la palacon de lia
 
@@ -9474,38 +7517,27 @@ vidante ke la domoj de la dioj estas okupitaj per la armeo.
 La delegitoj ŝanceliĝis.
 
 
-LA FARAONO
-
-
 —Via sankteco scias — respondis la plej aĝa — ke la armeo
 
 ne povas eniri inter la ĉirkaŭbaron de la temploj … Ni do
 
 devas demandi la opinion de la ĉefpastroj.
 
-—Bone, konsiliĝu — diris la sinjoro. — Mi ne scias fari mi-
-
-raklojn kaj de nia palaco mi ne povas defendi la templojn.
+—Bone, konsiliĝu — diris la sinjoro. — Mi ne scias fari miraklojn kaj de nia palaco mi ne povas defendi la templojn.
 
 La delegitoj malĝojaj forlasis la faraonon, kiu post ilia foriro kunvokis privatan konsilan kunvenon. Li estis konvinkita, ke la pastroj submetiĝos al lia volo, kaj tute ne venis al li la penso, ke la delegitaro estas ruzo, aranĝita de Herhor, por
 
 erarigi lin.
 
-Kiam en la reĝa ĉambro kunvenis la civilaj kaj militaj alt-
+Kiam en la reĝa ĉambro kunvenis la civilaj kaj militaj altranguloj, Ramzes, plena de fiero, ekparolis:
 
-ranguloj, Ramzes, plena de fiero, ekparolis:
-
-—Mi volis — diris li — nur la 23-an de Paofi okupi la mem-
-
-fisajn templojn … Sed mi opinias, ke pli bone estos fari tion morgaŭ …
+—Mi volis — diris li — nur la 23-an de Paofi okupi la memfisajn templojn … Sed mi opinias, ke pli bone estos fari tion morgaŭ …
 
 —Niaj regimentoj ankoraŭ ne kolektiĝis … — intermetis
 
 Tutmozis.
 
-—Kaj ni ne havas la leterojn de Herhor al Asirianoj — al-
-
-donis la granda skribisto.
+—Kaj ni ne havas la leterojn de Herhor al Asirianoj — aldonis la granda skribisto.
 
 —Ne grave! — respondis la faraono. — La popolo eksciu
 
@@ -9521,19 +7553,12 @@ planon — diris Tutmozis. — Morgaŭ ni ne okupos Labirinton
 
 ni ne havas murrompilojn por rompi la pordojn …
 
-—Tutmozis — diris la faraono — mi povus ne doni klari-
-
-gojn pri miaj ordonoj … Sed mi volas konvinki vin, ke mia
+—Tutmozis — diris la faraono — mi povus ne doni klarigojn pri miaj ordonoj … Sed mi volas konvinki vin, ke mia
 
 koro pli profunde juĝas la fluon de la okazoj … La popolo —
 
 
-LA FARAONO
-
-
-daŭrigis li — jam hodiaŭ atakas la templojn, morgaŭ ĝi volos penetri en ilin. Se ni ne subtenos ĝin, ĝi estos forpuŝita, kaj en ĉiu okazo post tri tagoj ĝi ne havos plu kuraĝon. Post kelke da tagoj povas pligrandiĝi la nombro de pastraj piartianoj inter la popolo … Entuziasmo kaj timo estas kvazaŭ vino en kru-
-
-ĉo: ju pli multe oni elverŝas, des pli malmulte restas, kaj nur tiu povas trinki, kiu ĝustatempe alŝovos sian glason. Se do
+daŭrigis li — jam hodiaŭ atakas la templojn, morgaŭ ĝi volos penetri en ilin. Se ni ne subtenos ĝin, ĝi estos forpuŝita, kaj en ĉiu okazo post tri tagoj ĝi ne havos plu kuraĝon. Post kelke da tagoj povas pligrandiĝi la nombro de pastraj piartianoj inter la popolo … Entuziasmo kaj timo estas kvazaŭ vino en kruĉo: ju pli multe oni elverŝas, des pli malmulte restas, kaj nur tiu povas trinki, kiu ĝustatempe alŝovos sian glason. Se do
 
 hodiaŭ la popolo estas preta al la atako kaj la malamikoj timigitaj, ni profitu tion, ĉar mi diras al vi, ke la fortuno povas post kelke da tagoj forlasi nin, eĉ sin turni kontraŭ ni …
 
@@ -9559,16 +7584,9 @@ Morgaŭ la regimentoj estu proksime de la temploj … Kaj ili
 
 tuj enmarŝu tien, se la popolo komencos penetri tien, aŭ … se
 
-ĝi komencos cedi sub la premo. Estas vere, ke oni devas ŝir-
+ĝi komencos cedi sub la premo. Estas vere, ke oni devas ŝirkolekti en la monato Paofi. Sed ĉu ekzistas ĝardenisto, kiu
 
-kolekti en la monato Paofi. Sed ĉu ekzistas ĝardenisto, kiu
-
-lasus la fruktojn sur trunketoj, se ili estus maturaj unu mona-240
-
-LA FARAONO
-
-
-ton pli frue?… Mi ripetas: mi volis malfruigi la movadon de la popolaĉo, ĝis kiam niaj preparoj estos finitaj. Sed ĉar oni ne povas nun prokrasti, ni profitu la venton, kiu blovas, kaj ni disetendu la velojn!… Morgaŭ Herhor kaj Mefres devas esti
+lasus la fruktojn sur trunketoj, se ili estus maturaj unu monaton pli frue?… Mi ripetas: mi volis malfruigi la movadon de la popolaĉo, ĝis kiam niaj preparoj estos finitaj. Sed ĉar oni ne povas nun prokrasti, ni profitu la venton, kiu blovas, kaj ni disetendu la velojn!… Morgaŭ Herhor kaj Mefres devas esti
 
 arestitaj kaj alkondukitaj en la palacon. Kun Labirinto ni finos post kelke da tagoj.
 
@@ -9576,13 +7594,9 @@ La membroj de la kunveno konsentis, ke la decido de la
 
 faraono estas bona, kaj disiris, admirante lian decidemon kaj saĝon. Eĉ la generaloj diris, ke pli bone estas profiti la okazon, ol kolekti la fortojn por la tempo, kiam la okazo forpasos.
 
-Jam estis nokto. Alkuris alia kuriero de Memfiso kun no-
+Jam estis nokto. Alkuris alia kuriero de Memfiso kun novaĵo, ke la polico sukcesis ŝirmi la eksterlandulojn. Sed la popolo estas ekscitita, kaj oni ne scias, kion ĝi entreprenos morgaŭ.
 
-vaĵo, ke la polico sukcesis ŝirmi la eksterlandulojn. Sed la popolo estas ekscitita, kaj oni ne scias, kion ĝi entreprenos morgaŭ.
-
-De ĉi tiu momento. unu kuriero venis post alia. Unuj alpor-
-
-tis sciigojn, ke grandaj amasoj da kamparanoj, armitaj per
+De ĉi tiu momento. unu kuriero venis post alia. Unuj alportis sciigojn, ke grandaj amasoj da kamparanoj, armitaj per
 
 hakiloj kaj bastonegoj, de ĉiuj flankoj rapidas al Memfiso.
 
@@ -9601,14 +7615,9 @@ Fine oni komunikis, ke en diversaj lokoj la soldatoj kaptis
 alivestitajn pastrojn, kiuj penis penetri en la palacon de lia sankteco, kredeble kun malbonaj intencoj.
 
 
-LA FARAONO
-
-
 —Oni alkonduku ilin al mi — respondis la faraono kun
 
-rido. — Mi volas vidi tiujn, kiuj kuraĝas havi malbonajn in-
-
-tencojn kontraŭ mi!…
+rido. — Mi volas vidi tiujn, kiuj kuraĝas havi malbonajn intencojn kontraŭ mi!…
 
 ĉirkaŭ noktomezo, la respektinda reĝino Nikotris postulis
 
@@ -9620,9 +7629,7 @@ La nobla sinjorino estis pala kaj tremanta. ŝi ordonis al la oficiroj eliri el 
 
 —Mi preferus, reĝino, aŭdi detalajn sciigojn pri la fortoj kaj intencoj de miaj malamikoj …
 
-—Hodiaŭ vespere la statuo de la dio Izido en mia preĝo-
-
-ĉambro deturnis la vizaĝon al la muro, kaj la akvo en la sank-ta cisterno ruĝiĝis, kiel sango …
+—Hodiaŭ vespere la statuo de la dio Izido en mia preĝoĉambro deturnis la vizaĝon al la muro, kaj la akvo en la sank-ta cisterno ruĝiĝis, kiel sango …
 
 —Tio pruvas — respondis la faraono — ke en la interno de
 
@@ -9630,19 +7637,13 @@ la palaco ni havas perfidulojn. Sed ili ne estas tre danĝeraj, se ili scias nur
 
 —ĉiuj niaj servistoj — daŭrigis la reĝino — la tuta popolo
 
-estas konvinkita, ke se viaj regimentoj penetros en la temp-
+estas konvinkita, ke se viaj regimentoj penetros en la templojn, granda malfeliĉo falos sur Egipton …
 
-lojn, granda malfeliĉo falos sur Egipton …
-
-—Pli granda malfeliĉo — diris la sinjoro — estas la troku-
-
-raĝo de la pastroj. Enlasitaj de mia eterne vivanta patro en la palacon, ili pensas hodiaŭ, ke ili fariĝis ĝiaj posedantoj … Sed pro dioj, kio mi fine fariĝos ĉe ilia ĉiopoveco!… Kaj ĉu mi ne povas repostuli miajn reĝajn rajtojn?…
+—Pli granda malfeliĉo — diris la sinjoro — estas la trokuraĝo de la pastroj. Enlasitaj de mia eterne vivanta patro en la palacon, ili pensas hodiaŭ, ke ili fariĝis ĝiaj posedantoj … Sed pro dioj, kio mi fine fariĝos ĉe ilia ĉiopoveco!… Kaj ĉu mi ne povas repostuli miajn reĝajn rajtojn?…
 
 —Almenaŭ … almenaŭ — diris la reĝino post pripenso —
 
-estu kompatema … Jes, la rajtojn vi devas reakiri, sed ne permesu al viaj soldatoj sakrilegi la sanktejojn kaj ataki la pastrojn … Memoru, ke la dioj favore sendas la ĝojon al Egipto, kaj la pastroj malgraŭ siaj mankoj (kiu ne havas ilin!) faras al 242
-
-LA FARAONO
+estu kompatema … Jes, la rajtojn vi devas reakiri, sed ne permesu al viaj soldatoj sakrilegi la sanktejojn kaj ataki la pastrojn … Memoru, ke la dioj favore sendas la ĝojon al Egipto, kaj la pastroj malgraŭ siaj mankoj (kiu ne havas ilin!) faras al
 
 
 la lando grandegajn servojn … Imagu nur, ke se vi malriĉiĝus kaj dispelus ilin, vi detruus la saĝon, kiu levis nian ŝtaton super la aliajn popolojn …
@@ -9674,9 +7675,6 @@ Post la foriro de la patrino la faraono alvokis Tutmozison.
 —Morgaŭ do — diris la sinjoro — miaj soldatoj okupos la
 
 
-LA FARAONO
-
-
 templojn. Avertu la kolonenojn, ke mia volo estas, ke la sanktejoj restu netuŝitaj kaj ke neniu levu la manon kontraŭ la
 
 pastroj.
@@ -9695,9 +7693,7 @@ Ramzes levis supren la fingron, kiel signon, ke li volas aŭskulti nenian propon
 
 kun rideto:
 
-—ĉu vi memoras, Tutmozis, la manovrojn apud Pi-Bai-
-
-los?… Du jaroj jam pasis!… Kiam mi koleris en tiu kontraŭ la trouzoj kaj avideco de la pastroj, ĉu mi povis supozi, ke tiel baldaŭ mi reguligos kun ili la kontojn?… Kaj la malfeliĉa Sara
+—ĉu vi memoras, Tutmozis, la manovrojn apud Pi-Bailos?… Du jaroj jam pasis!… Kiam mi koleris en tiu kontraŭ la trouzoj kaj avideco de la pastroj, ĉu mi povis supozi, ke tiel baldaŭ mi reguligos kun ili la kontojn?… Kaj la malfeliĉa Sara
 
 … Kaj mia malgranda filo … Kiel bela li estis!…
 
@@ -9708,10 +7704,7 @@ Du larmoj ruliĝis sur la vizaĝo de la faraono.
 … Kiom da fojoj, pro ili, ploro vualis miajn okulojn!…
 
 
-LA FARAONO
-
-
-ĉAPITRO DEKSESA
+ĈAPITRO DEKSESA
 
 La 20-an de Paofi Memfiso havis aspekton kvazaŭ en festo.
 
@@ -9721,9 +7714,7 @@ Proksime de la temploj staris la regimentoj, en maldensaj
 
 vicoj, por ke la soldatoj povu komunikiĝi kun la popolo.
 
-Inter la popolaĉo kaj soldatoj rondiris multenombraj ven-
-
-distoj kun pano en korboj kaj kun vino en kruĉoj kaj ledaj
+Inter la popolaĉo kaj soldatoj rondiris multenombraj vendistoj kun pano en korboj kaj kun vino en kruĉoj kaj ledaj
 
 sakoj. Ili regalis la popolon senpage. Kiam oni demandis ilin, kial ili ne postulas pagon, unuj respondis, ke lia sankteco re-galas siajn regnanojn, aliaj diris:
 
@@ -9739,18 +7730,11 @@ aŭskultantoj, ke la pastroj ribelas kontraŭ la monar˛o kaj eĉ volas lin vene
 
 Tiuj instigis la popolon ataki la templojn, kie la nomar˛oj
 
-diskutas kun la pastroj, kiel ekspluati la metiistojn kaj kam-245
-
-LA FARAONO
-
-
-paranojn. ĉi tiuj esprimis timon, ke se oni atakus la templojn, povus okazi granda malfeliĉo …
+diskutas kun la pastroj, kiel ekspluati la metiistojn kaj kamparanojn. ĉi tiuj esprimis timon, ke se oni atakus la templojn, povus okazi granda malfeliĉo …
 
 Malgraŭ tio, oni ne scias, de kie apud la muroj de la templo de Ptah troviĝis kelke da potencaj palisoj kaj amasoj da ŝtonoj.
 
-La gravaj memfisaj komercistoj, promenante en la popol-
-
-amasoj, tute ne dubis, ke la popola eksplodo estis provokita arte. La malgrandaj skribistoj, policistoj, oficiroj de la laboristoj kaj alivestitaj soldataj dekestroj ne kaŝis plu siajn oficia-lajn okupojn, nek sian intencon puŝi la popolon al la okupo
+La gravaj memfisaj komercistoj, promenante en la popolamasoj, tute ne dubis, ke la popola eksplodo estis provokita arte. La malgrandaj skribistoj, policistoj, oficiroj de la laboristoj kaj alivestitaj soldataj dekestroj ne kaŝis plu siajn oficia-lajn okupojn, nek sian intencon puŝi la popolon al la okupo
 
 de la temploj. Aliflanke: la paraŝitoj, almozuloj, templaj servistoj kaj malsuperaj pastroj, eĉ se ili dezirus, ne povus kaŝi, ke ili ankaŭ instigas la popolaĉon al la superforto! ĉiu, kiu havis okulojn, povis tion rimarki.
 
@@ -9768,16 +7752,11 @@ pligrandiĝis dank’al duone frenezaj fanatikuloj, kiuj kuris nudaj tra la stra
 
 kontraŭ la malpieco de la malfideluloj!
 
-La armeo restis trankvila, atendante ĝis kiam la popolo ko-
-
-mencos superforte penetri en la templojn. Unuflanke, tian
+La armeo restis trankvila, atendante ĝis kiam la popolo komencos superforte penetri en la templojn. Unuflanke, tian
 
 ordonon ili ricevis de la reĝa palaco, duaflanke, la oficiroj antaŭvidis embuskojn en la temploj kaj preferis, ke pereu la popolaĉo, ol la soldatoj. La soldatoj, sen tio, havos sufiĉe da laboro.
 
 Sed la popolamasoj, malgraŭ la krioj de la agitantoj kaj la
-
-
-LA FARAONO
 
 
 vino senpage disdonata, ŝanceliĝis: la kamparanoj rigardis la metiistojn, la metiistoj la kamparanojn, kaj ĉiuj atendis ion.
@@ -9786,9 +7765,7 @@ Subite, ĉirkaŭ la unua horo tagmeze, el la flankaj stratoj
 
 ekfluis al la templo de Ptah ebria bando, armita per hakiloj kaj bastonegoj. Tio estis fiŝistoj, grekaj maristoj, paŝtistoj, libiaj vaguloj, eĉ malliberuloj de la minejoj de Turra. En la
 
-fronto de la bando iris grandega laboristo kun torĉo. Li haltis antaŭ la pordego de la templo kaj per potenca voĉo kom-
-
-encis krii al la popolo:
+fronto de la bando iris grandega laboristo kun torĉo. Li haltis antaŭ la pordego de la templo kaj per potenca voĉo komencis krii al la popolo:
 
 —ĉu vi scias, fideluloj, pri kio diskutas ĉi tie la ĉefpastroj kaj nomar˛oj?… Jen, ili volas devigi lian sanktecon, ke li for-prenu de la laboristoj po unu hordean platan kukon tage, kaj la kamparanojn ŝarĝu per nova imposto ĉiun po unu dra˛mo
 
@@ -9815,9 +7792,6 @@ kolektis de la kamparanoj maljustan imposton.
 la premataj!…
 
 
-LA FARAONO
-
-
 —Rigardu — eksonis voĉo de malproksime — la brutaro
 
 mem revenas de la paŝtejoj, kvazaŭ proksimiĝus la vespero …
@@ -9838,9 +7812,7 @@ kuŝiĝas por dormi … Estas ja nur tagmezo …
 
 —Io malbona fariĝas en la aero …
 
-—Dioj! la nokto jam falas, kaj mi ne kolektis ankoraŭ sala-
-
-ton por la tagmanĝo … — miris iu knabino.
+—Dioj! la nokto jam falas, kaj mi ne kolektis ankoraŭ salaton por la tagmanĝo … — miris iu knabino.
 
 Sed ĉi tiujn rimarkojn sufokis krioj de la ebria bando kaj la bruo de la palisoj, batantaj la kupran pordegon de la templo.
 
@@ -9869,12 +7841,7 @@ Kvankam estis tagmezo, la krepusko pligrandiĝis; en la
 templo de Ptah komencis kanti kokoj. Sed la furiozo de la
 
 
-LA FARAONO
-
-
-popolo estis jam tiel granda, ke malmultaj rimarkis la san-
-
-ĝojn.
+popolo estis jam tiel granda, ke malmultaj rimarkis la sanĝojn.
 
 —Rigardu! — kriis almozulo — jen proksimiĝas la tago de
 
@@ -9888,9 +7855,7 @@ sed armitaj. La oficiroj alvokis la soldatojn al la armiloj, certaj, ke baldaŭ 
 
 —Kion tio signifas … — murmuretis la soldatoj, rigardante
 
-la ĉielon. — Oni ne vidas nubojn, tamen la mondo havas as-
-
-pekton kvazaŭ dum la ventego?…
+la ĉielon. — Oni ne vidas nubojn, tamen la mondo havas aspekton kvazaŭ dum la ventego?…
 
 —Batu!… rompu!… — oni kriis antaŭ la templo. La bruo de
 
@@ -9912,18 +7877,13 @@ La tumulto eksilentis kaj oni aŭdis nur la batadon de la
 
 palisoj kontraŭ la kupra pordego. Sed baldaŭ ankaŭ tio ĉesis.
 
-—Malfermu la pordegon! — kriis de malsupire la grande-
-
-gulo. — Ni volas konvinkiĝi, ĉu vi ne konspiras perfidon kontraŭ nia sinjoro …
+—Malfermu la pordegon! — kriis de malsupire la grandegulo. — Ni volas konvinkiĝi, ĉu vi ne konspiras perfidon kontraŭ nia sinjoro …
 
 —Mia filo — respondis Herhor — falu sur la vizaĝon kaj
 
 petegu la diojn, ke ili pardonu al vi la sakrilegon …
 
 —Vi mem petu la diojn, ke ili ŝirmu vin!… — ekkriis la ĉefo
-
-
-LA FARAONO
 
 
 de la bando kaj preninte ŝtonon, ĵetis ĝin supren al la ĉefpastro.
@@ -9936,9 +7896,7 @@ Liaj plej proksimaj najbaroj eligis krion de teruro; la pli
 
 malproksimaj vicoj, ne sciante, kio okazis, respondis per ridoj kaj malbenoj.
 
-—Rompu la muron!… — oni kriis de malproksime, kaj ŝto-
-
-noj, kvazaŭ hajlo flugis al Herhor kaj lia sekvantaro.
+—Rompu la muron!… — oni kriis de malproksime, kaj ŝtonoj, kvazaŭ hajlo flugis al Herhor kaj lia sekvantaro.
 
 Herhor levis ambaŭ manojn al la ĉielo. Kaj kiam la amasoj
 
@@ -9960,9 +7918,7 @@ Kaj okazis afero terura: kun la malbenaj vortoj, la suno
 
 estis perdanta sian brilon!… Kaj post la lasta vorto fariĝis mal-lume, kiel nokte. Sur la ĉielo ekbrilis la steloj, kaj la lokon de la suno okupis nigra disko, ĉirkaŭita per ringo de flamoj.
 
-Terura krio elŝiriĝis el cent mil brustoj. La atakantoj rom-
-
-pantaj la pordegon, ĵetis la palisojn, la kamparanoj falis teren …
+Terura krio elŝiriĝis el cent mil brustoj. La atakantoj rompantaj la pordegon, ĵetis la palisojn, la kamparanoj falis teren …
 
 —Jen venis la tago de la juĝo kiaj morto! … — ekkriis ĝema
 
@@ -9973,24 +7929,17 @@ voĉo, el fino de la strato.
 — kriis la popolo.
 
 
-LA FARAONO
-
-
 —Ve al la soldatoj, kiuj plenumas la ordonojn de sendiaj
 
 ĉefoj!… — kriis la potenca voĉo de la templo.
 
-Responde la tuta popolo falis sur la vizaĝon, kaj en du re-
-
-gimentoj antaŭ la templo ekregis malordo. La vicoj rompiĝis, la soldatoj komencis ĵeti la armilojn kaj kiel frenezaj forkuri al la rivero. Unuj, kurante kiel blindaj, en la mallumo sin frakasis je la muroj de la domoj, aliaj falis sur la pavimon, kaj iliaj kunuloj morte piedpremis ilin. Post kelke da minutoj, an-
+Responde la tuta popolo falis sur la vizaĝon, kaj en du regimentoj antaŭ la templo ekregis malordo. La vicoj rompiĝis, la soldatoj komencis ĵeti la armilojn kaj kiel frenezaj forkuri al la rivero. Unuj, kurante kiel blindaj, en la mallumo sin frakasis je la muroj de la domoj, aliaj falis sur la pavimon, kaj iliaj kunuloj morte piedpremis ilin. Post kelke da minutoj, an-
 
 stataŭ densaj kolonoj, kuŝis sur la placo disĵetitaj lancoj kaj hakiloj, kaj ĉe la eniro en la stratojn — altaj amasoj da vunditoj kaj kadavroj.
 
 Neniu perdita batalo finiĝis per tia katastrofo.
 
-—Dioj! … dioj!… — ĝemis kaj ploris la popolo — ekkom-
-
-patu la senkulpajn …
+—Dioj! … dioj!… — ĝemis kaj ploris la popolo — ekkompatu la senkulpajn …
 
 —Oziriso! … — ekkriis de la teraso Herhor — ekkompatu
 
@@ -10002,13 +7951,9 @@ estas kompatema … — respondis la superhoma voĉo de la
 
 templo.
 
-En la sama momento la mallumo forkuris, kaj la suno re-
+En la sama momento la mallumo forkuris, kaj la suno reakiris sian brilon.
 
-akiris sian brilon.
-
-Nova krio, nova ploro, novaj preĝoj eksonis en la popol-
-
-amasoj. Ebriaj de ĝojo la homoj salutis la reviviĝantan sunon.
+Nova krio, nova ploro, novaj preĝoj eksonis en la popolamasoj. Ebriaj de ĝojo la homoj salutis la reviviĝantan sunon.
 
 Nekonatoj sin ĵetis en la brakoj unuj de aliaj, kelke da personoj mortis, kaj ĉiuj surgenue rampis al la templo, por kisi
 
@@ -10017,9 +7962,6 @@ Nekonatoj sin ĵetis en la brakoj unuj de aliaj, kelke da personoj mortis, kaj �
 Sur la supro de la pordego staris la plej nobla Herhor. Lia
 
 rigardo, dronis en la ĉielo, kaj du pastroj subtenis liajn sanktajn manojn, per kiuj li dispelis la mallumon kaj savis sian popolon de la pereo.
-
-
-LA FARAONO
 
 
 Samaj scenoj, kun malgrandaj ŝanĝoj, okazis en la tuta
@@ -10046,51 +7988,34 @@ de la aziaj regimentoj, ĉe la alia la palacon de Tutmozis kaj de lia edzino, la
 
 kiu la faraono konfidis senlime.
 
-Ramzes XIII havis bonegan humoron. Li banis sin, maten-
-
-manĝis kun apetito kaj komencis akcepti la kurierojn, kiuj
+Ramzes XIII havis bonegan humoron. Li banis sin, matenmanĝis kun apetito kaj komencis akcepti la kurierojn, kiuj
 
 ĉiun kvaronhoron venis de Memfiso.
 
 Iliaj raportoj estis tede unuonaj. La ĉefpastroj kaj kelke da nomar˛oj sin enfermis en la templo de Ptah. La armeo estas
 
 
-LA FARAONO
-
-
 plena de kuraĝo, la popolo ekscitita. ĉiuj benas la faraonon kaj atendas la ordonon al la atako.
 
 Kiam je la 9-a horo kvara kuriero ripetis la samajn vortojn, la faraono sulkigis la brovojn.
 
-—Kion ili atendas? — demandis la sinjoro. — Ili ataku sen-
+—Kion ili atendas? — demandis la sinjoro. — Ili ataku senprokraste.
 
-prokraste.
-
-La kuriero respondis, ke ne kolektiĝis ankoraŭ la ĉefa ban-
-
-do, kiu devas ataki la templon kaj rompi la kupran pordegon.
+La kuriero respondis, ke ne kolektiĝis ankoraŭ la ĉefa bando, kiu devas ataki la templon kaj rompi la kupran pordegon.
 
 ĉi tiu klarigo ne plaĉis al la sinjoro. Li skuis la kapon kaj sendis oficiron, por plirapidigi la atakon.
 
-—Kion signifas ĉi tiu prokrasto? — demandis li. — Mi pen-
+—Kion signifas ĉi tiu prokrasto? — demandis li. — Mi pensis, ke miaj regimentoj vekos min per la sciigo, ke la templo estas prenita … En similaj okazoj la rapideco de la agado estas ĉefa kondiĉo de la sukceso.
 
-sis, ke miaj regimentoj vekos min per la sciigo, ke la templo estas prenita … En similaj okazoj la rapideco de la agado estas ĉefa kondiĉo de la sukceso.
-
-La oficiro forveturis, sed apud la templo de Ptah nenio ŝan-
-
-ĝiĝis. La popolo atendis ion, la ĉefa bando ne venis ankoraŭ.
+La oficiro forveturis, sed apud la templo de Ptah nenio ŝanĝiĝis. La popolo atendis ion, la ĉefa bando ne venis ankoraŭ.
 
 Oni povis supozi, ke iu alia volo malfruigas la plenumon de
 
 la ordonoj.
 
-Je la deka horo matene al la somerdomo de la faraono ve-
+Je la deka horo matene al la somerdomo de la faraono venis la portilo de reĝino Nikotris. La respektinda sinjorino preskaŭ superforte penetris en la ĉambron de la filo kaj kun plo-ro falis al liaj piedoj.
 
-nis la portilo de reĝino Nikotris. La respektinda sinjorino preskaŭ superforte penetris en la ĉambron de la filo kaj kun plo-ro falis al liaj piedoj.
-
-—Kion vi postulas, patrino? — diris Ramzes, apenaŭ kaŝan-
-
-te la malpaciencon. — ĉu vi forgesis, ke en tendaro ne estas loko por la virinoj?…
+—Kion vi postulas, patrino? — diris Ramzes, apenaŭ kaŝante la malpaciencon. — ĉu vi forgesis, ke en tendaro ne estas loko por la virinoj?…
 
 —Hodiaŭ mi ne moviĝos de ĉi tie, mi ne forlasos vin eĉ
 
@@ -10099,12 +8024,7 @@ dum unu momento!… — ekkriis ŝi. — Estas vere, ke vi estas
 la filo de Izido kaj ke ŝi ĉirkaŭas vin per sia protekto … Sed malgraŭ tio mi mortus de maltrankvilo …
 
 
-LA FARAONO
-
-
-—Kio minacas min? — demandis la faraono, levante la ŝul-
-
-trojn.
+—Kio minacas min? — demandis la faraono, levante la ŝultrojn.
 
 —La pastro, kiu observas la stelojn — daŭrigis la reĝino
 
@@ -10130,9 +8050,7 @@ Sur la bela vizaĝo de la faraono aperis signoj de kolero.
 
 Dezirante trankviligi la monar˛on, Tutmozis diris:
 
-—La popolaĉo ne estas armeo. i ne scias kolektiĝi al de-
-
-stinita horo irante ĝi treniĝas kiel koto kaj ne obeas la komandon. Se al la regimentoj oni estus ordoninta okupi la
+—La popolaĉo ne estas armeo. i ne scias kolektiĝi al destinita horo irante ĝi treniĝas kiel koto kaj ne obeas la komandon. Se al la regimentoj oni estus ordoninta okupi la
 
 templojn, ili jam estus tie …
 
@@ -10140,9 +8058,7 @@ templojn, ili jam estus tie …
 
 iam aŭdis, ke la egipta armeo …
 
-—Vi forgesis — interrompis la faraono — ke laŭ miaj ordo-
-
-noj, la regimentoj ne devas ataki, sed defendi la templojn
+—Vi forgesis — interrompis la faraono — ke laŭ miaj ordonoj, la regimentoj ne devas ataki, sed defendi la templojn
 
 kontraŭ la atako de la popolaĉo …
 
@@ -10150,13 +8066,7 @@ kontraŭ la atako de la popolaĉo …
 
 Tutmozis.
 
-—Jen la reĝaj konsilantoj! — eksplodis la reĝino. — La sin-
-
-
-LA FARAONO
-
-
-joro agas prudente, stariĝante kiel defendanto de la dioj, kaj vi, anstataŭ kvietigi lin, instigas al la supertorto …
+—Jen la reĝaj konsilantoj! — eksplodis la reĝino. — La sinjoro agas prudente, stariĝante kiel defendanto de la dioj, kaj vi, anstataŭ kvietigi lin, instigas al la supertorto …
 
 La sango leviĝis al la kapo de Tutmozis. Feliĉe, elvokis lin el la ĉambro adjutanto, sciigante, ke ĉe la pordego oni haltigis maljunulon, kiu volas paroli kun lia sankteco.
 
@@ -10164,9 +8074,7 @@ La sango leviĝis al la kapo de Tutmozis. Feliĉe, elvokis lin el la ĉambro adj
 
 al la sinjoro, kvazaŭ la faraono estus gastejmastro …
 
-Tutmozis pensis, ke tamen en la tempo de Ramzes XII ne-
-
-niu kuraĝus tiel paroli pri la monar˛o … Sed li ŝajnigis, ke li ne atentas.
+Tutmozis pensis, ke tamen en la tempo de Ramzes XII neniu kuraĝus tiel paroli pri la monar˛o … Sed li ŝajnigis, ke li ne atentas.
 
 La maljunulo, kiun haltigis la gardistoj, estis la fenicia princo Hiram. Li portis kovritan de polvo soldatan mantelon, estis laca kaj kolera.
 
@@ -10174,13 +8082,9 @@ Tutmozis ordonis enlasi lin, kaj kiam ambaŭ troviĝis en la
 
 ĝardeno, li diris:
 
-—Mi pensas, ke via nobleco sin banos kaj sanĝos la ves-
+—Mi pensas, ke via nobleco sin banos kaj sanĝos la vestojn, antaŭ ol mi ricevos por vi aŭdiencon de lia sankteco?
 
-tojn, antaŭ ol mi ricevos por vi aŭdiencon de lia sankteco?
-
-La grizaj brovoj de Hiram stariĝis, liaj okuloj fariĝis an-
-
-koraŭ pli sangaj.
+La grizaj brovoj de Hiram stariĝis, liaj okuloj fariĝis ankoraŭ pli sangaj.
 
 —Post tio, kion mi vidis — respondis li akre — mi povas eĉ
 
@@ -10188,9 +8092,7 @@ ne postuli aŭdiencon …
 
 —Vi ja havas la leterojn de la ĉefpastroj al Asirio …
 
-—Por kio vi bezonas la leterojn, se vi repaciĝis kun la pas-
-
-troj—
+—Por kio vi bezonas la leterojn, se vi repaciĝis kun la pastroj—
 
 —Kion babilas via nobleco!… — eksplodis Tutmozis.
 
@@ -10198,16 +8100,12 @@ troj—
 
 miloj da talentoj vi eltiris de Fenicio, por liberigi, vi diris, Egipton de la pastra povo, kaj rekompence hodiaŭ vi rabas
 
-nin kaj mortigas … Rigardu, kio okazas de la maro ĝis la unua 255
-
-LA FARAONO
+nin kaj mortigas … Rigardu, kio okazas de la maro ĝis la unua
 
 
 katarakto: ĉie via popolaĉo persekutas Fenicianojn, kiel hundojn, ĉar tio estas la ordono de la pastroj …
 
-—Vi freneziĝis, Feniciano!… En ĉi tiu momento nia popo-
-
-lo prenas la templon de Ptah en Memfiso …
+—Vi freneziĝis, Feniciano!… En ĉi tiu momento nia popolo prenas la templon de Ptah en Memfiso …
 
 Hiram eksvingis la manon.
 
@@ -10223,9 +8121,7 @@ Labirinto estas perdita … Kio okazas ĉi tie?… Kie estas la prudento? — da
 
 —Nenion vi prenos, nenion!… Labirinton povis okupi nur
 
-unu homo, al kiu malhelpos viaj hodiaŭaj aventuroj en Mem-
-
-fiso.
+unu homo, al kiu malhelpos viaj hodiaŭaj aventuroj en Memfiso.
 
 Tutmozis haltis en la aleo.
 
@@ -10233,9 +8129,7 @@ Tutmozis haltis en la aleo.
 
 —La malordon, kiu regas ĉe vi … Vi ne estas plu registaro,
 
-sed amaso da oficiroj kaj altranguloj, kiun la pastroj pelas, kien ili volas kaj kiam ili volas … De tri tagoj en la tuta Malsupra Egipto regas tiaąoso, ke la popolaĉo batas nin, Feni-
-
-cianojn, viajn solajn amikojn … Kaj kial?… ĉar la povo elglitis el viaj manoj kaj jam kaptis ĝin la pastroj …
+sed amaso da oficiroj kaj altranguloj, kiun la pastroj pelas, kien ili volas kaj kiam ili volas … De tri tagoj en la tuta Malsupra Egipto regas tiaąoso, ke la popolaĉo batas nin, Fenicianojn, viajn solajn amikojn … Kaj kial?… ĉar la povo elglitis el viaj manoj kaj jam kaptis ĝin la pastroj …
 
 —Vi parolas tiel, ĉar vi ne konas la situacion — respondis
 
@@ -10244,34 +8138,23 @@ Tutmozis. — Vere estas, ke la pastroj implikas niajn aferojn kaj atakas Fenici
 faraono, la ĝenerala fluo de la okazoj fariĝas laŭ liaj ordonoj …
 
 
-LA FARAONO
-
-
 —Ankaŭ la hodiaŭa atako kontraŭ la templo de Ptah? —
 
 demandis Hiram.
 
-—Jes. Mi mem ĉeestis privatan kunvenon, dum kiu la fara-
-
-ono ordonis okupi la templojn hodiaŭ, anstataŭ la 23-an …
+—Jes. Mi mem ĉeestis privatan kunvenon, dum kiu la faraono ordonis okupi la templojn hodiaŭ, anstataŭ la 23-an …
 
 —Do — interrompis Hiram — mi anoncas al vi, ĉefo de la
 
 gvardio, ke vi estas perditaj … ĉar mi scias tute certe, ke la hodiaŭa atako estis decidita en la kunveno de la ĉefpastroj kaj nomar˛oj, la 13-an de Paofi en la templo de Ptah.
 
-—Por kio ili decidus la atakon kontraŭ si mem? — deman-
-
-dis Tutmozis per moka tono.
+—Por kio ili decidus la atakon kontraŭ si mem? — demandis Tutmozis per moka tono.
 
 —Sendube tion iel postulas iliaj aferoj. Kaj ke ili kondukas siajn aferojn pli bone ol vi, pri tio mi jam konvinkiĝis.
 
-La interparoladon interrompis adjutanto, alvokanta Tut-
+La interparoladon interrompis adjutanto, alvokanta Tutmozison al lia sankteco.
 
-mozison al lia sankteco.
-
-—Aŭskultu ankoraŭ!… — diris Hiram. — Viaj soldatoj ares-
-
-tis sur la vojo Pentueron, kiu havas ion gravan por diri al la faraono.
+—Aŭskultu ankoraŭ!… — diris Hiram. — Viaj soldatoj arestis sur la vojo Pentueron, kiu havas ion gravan por diri al la faraono.
 
 Tutmozis sin kaptis je la kapo kaj tuj sendis oficirojn, por ke ili trovu Pentueron. Poste li kuris al la faraono, kaj post momento revenis, kaj ordonis al la Feniciano sekvi lin.
 
@@ -10285,19 +8168,12 @@ la reĝino, montrante la Fenicianon.
 
 —Respektinda sinjorino — respondis la nekonfuzita Hiram
 
-kun saluto — la tempo montros, kiu estas fidela kaj kiu mal-
-
-bona servisto de lia sankteco …
+kun saluto — la tempo montros, kiu estas fidela kaj kiu malbona servisto de lia sankteco …
 
 Ramzes subite haltis antaŭ Hiram.
 
 
-LA FARAONO
-
-
-—ĉu vi havas la leterojn de Herhor al Asirio?… — li de-
-
-mandis.
+—ĉu vi havas la leterojn de Herhor al Asirio?… — li demandis.
 
 La Feniciano eltiris el sub la vesto paketon kaj silente transdonis ĝin al la faraono.
 
@@ -10319,17 +8195,11 @@ La faraono pensis momenton kaj kaŝis la paketon sub la
 
 tuniko.
 
-—Kion vi aŭdis en Malsupra Egipto? — demandis la sinj-
+—Kion vi aŭdis en Malsupra Egipto? — demandis la sinjoro.
 
-oro.
+—ĉie oni batas Fenicianojn — respondis Hiram. — Niaj domoj estas detruataj, mebloj ŝtelataj kaj jam oni mortigis kelkdekon da homoj.
 
-—ĉie oni batas Fenicianojn — respondis Hiram. — Niaj do-
-
-moj estas detruataj, mebloj ŝtelataj kaj jam oni mortigis kelkdekon da homoj.
-
-—Mi aŭdis pri tio!… Tio estas la verko de la pastroj — di-
-
-ris la sinjoro.
+—Mi aŭdis pri tio!… Tio estas la verko de la pastroj — diris la sinjoro.
 
 —Prefere diru, mia filo, ke tio estas la sekvoj de la sendie-co kaj rabemo de Fenicianoj — intermetis la reĝino.
 
@@ -10337,16 +8207,11 @@ Hiram sin deturnis de la reĝino kaj daŭrigis:
 
 —De tri tagoj estas en Memfiso la policestro de Pi-Bast,
 
-kun du helpantoj kaj ili jam estas sur la postesignoj de Li-
-
-kon …
+kun du helpantoj kaj ili jam estas sur la postesignoj de Likon …
 
 —Kiu estis edukita en la feniciaj temploj! — ekkriis reĝino
 
 Nikotris.
-
-
-LA FARAONO
 
 
 —De Likon — daŭrigis Hiram — kiun la ĉefpastro Mefres
@@ -10385,22 +8250,15 @@ tempo por paco … por savi Egipton …
 
 Subite eniris en la ĉambron Pentuer en disŝiritaj vestoj.
 
-—Kion vi diros? — demandis la faraono kun stranga tran-
+—Kion vi diros? — demandis la faraono kun stranga trankvilo.
 
-kvilo.
-
-—Hodiaŭ, eble tuj — respondis la pastro — estos mallumi-
-
-ĝo de la suno …
+—Hodiaŭ, eble tuj — respondis la pastro — estos mallumiĝo de la suno …
 
 La faraono posteniĝis de miro.
 
 —Kio estas por ni la mallumiĝo de la suno, precipe en la
 
 nuna momento?
-
-
-LA FARAONO
 
 
 —Sinjoro — diris Pentuer — mi ankaŭ pensis tiel, antaŭ ol
@@ -10419,9 +8277,7 @@ Tutmozis.
 
 ne povos plu averti, sed sciigu almenaŭ al la regimentoj apud la palaco, por ke almenaŭ ili kontraŭstaru al la paniko.
 
-—Ah, malbone, malbone!… — murmuretis Ramzes kaj al-
-
-donis laŭte: — Kio ĝi estos kaj kiam?…
+—Ah, malbone, malbone!… — murmuretis Ramzes kaj aldonis laŭte: — Kio ĝi estos kaj kiam?…
 
 —Tage fariĝos nokto … — diris la pastro. — i devas daŭri,
 
@@ -10448,9 +8304,6 @@ Memfison oni sendis kelke da plej inteligentaj kavaliroj.
 La generaloj sin lokis en la fronto de la kolonoj, la faraono medite promenis sur la korto, la civilaj altranguloj mallaŭte murmuretis kun Hiram, kaj la reĝino Nikotris, kiu restis sola en la ĉambro, falis sur la vizaĝon antaŭ la statuo de Oziriso.
 
 
-LA FARAONO
-
-
 Estis jam post la unua horo, kaj efektive la lumo de la suno komencis malgrandiĝi.
 
 —ĉu vere estos nokto? — demandis la faraono Pentueron.
@@ -10473,9 +8326,7 @@ komencis maltrankviliĝi, aroj da birdoj falis sur la ĝardenon kaj kun laŭta p
 
 Ekbruis la tamburoj, ekajfis la flutoj kaj kun ilia akompano la greka regimento kantis la gajan kanton pri la timema filino de la pastro: ŝi tiel timis la fantomojn, ke ŝi povis dormi nur en la kazernoj.
 
-Subite sur la flavajn libiajn altaĵojn falis malbonsigna om-
-
-bro kaj kun fulma rapideco kovris Memfison, Nilon kaj la
+Subite sur la flavajn libiajn altaĵojn falis malbonsigna ombro kaj kun fulma rapideco kovris Memfison, Nilon kaj la
 
 pacajn ĝardenojn. La nokto invadis la teron, kaj sur la ĉielo aperis disko, nigra kiel karbo kaj ĉirkaŭita per krono de flamoj.
 
@@ -10492,9 +8343,6 @@ faraono Pentueron.
 —Tiel asertas Meneso.
 
 —Granda saĝulo li estas!… kaj la mallumiĝo tuj finiĝos?…
-
-
-LA FARAONO
 
 
 —Tute certe …
@@ -10529,24 +8377,17 @@ Hiram balancis la kapon.
 
 —Ili ne regus tiel longe la staton, — diris li — ne enterigus dek naŭ viajn dinastiojn, se ili ne scius profiti tiajn okazojn, kiel la hodiaŭa!…
 
-Dankinte la armeon por ilia bona sintenado dum la ekster-
-
-ordinara fenomeno, la faraono revenis en la somerdomon. Li
+Dankinte la armeon por ilia bona sintenado dum la eksterordinara fenomeno, la faraono revenis en la somerdomon. Li
 
 estis meditplena, parolis trankvile, eĉ delikate, sed sur lia bela vizaĝo estis legebla necerteco.
 
-Efektive en la animo de Ramzes bolis terura batalo. Li ko-
-
-mencis kompreni, ke la pastroj havas en la manoj fortojn,
+Efektive en la animo de Ramzes bolis terura batalo. Li komencis kompreni, ke la pastroj havas en la manoj fortojn,
 
 kiujn ne nur li ne atentis, sed eĉ pri kiuj li ne pensis, pri kiuj li ne volis aŭskulti.
 
 La pastroj, observantaj la movojn de la steloj, en la daŭro
 
 de kelke da minutoj ekstreme grandiĝis en liaj okuloj. Kaj la faraono diris al si, ke tamen oni devas koni la strangan saĝon, kiu tiel terure implikas la homajn projektojn.
-
-
-LA FARAONO
 
 
 Kuriero, post kuriero estis sendata Memfison, por ekscii,
@@ -10561,13 +8402,9 @@ al li:
 
 faris al nia ŝtato … Rememoru nur la reĝinon Nikotris dum la sesa dinastio, aŭ la reĝinon Makara, kiu kreis la ŝiparon sur Ruĝa Maro?… Al nia sekso mankas nek saĝo, nek energio,
 
-permesu do al mi agi … Se la templo de Ptah ne estas preni-
+permesu do al mi agi … Se la templo de Ptah ne estas prenita, nek la personoj de la pastroj atakitaj, mi repacigos vin kun Herhor. Vi prenos kiel edzinon lian filinon, kaj via regado
 
-ta, nek la personoj de la pastroj atakitaj, mi repacigos vin kun Herhor. Vi prenos kiel edzinon lian filinon, kaj via regado
-
-estos plena de gloro … Memoru, ke via avo, la sankta Amen-
-
-hotep, ankaŭ estis ĉepastro kaj vic-reĝo de la faraono, kaj ke vi mem eble ne regus hodiaŭ, se la pastraro ne dezirus havi
+estos plena de gloro … Memoru, ke via avo, la sankta Amenhotep, ankaŭ estis ĉepastro kaj vic-reĝo de la faraono, kaj ke vi mem eble ne regus hodiaŭ, se la pastraro ne dezirus havi
 
 la propran sangon sur la trono … Tiel vi dankas ilin pro la
 
@@ -10586,12 +8423,7 @@ templo. Li diris al la faraono, ke la templo ne estis prenita kaŭze de la koler
 kvankam mallonga nokto.
 
 
-LA FARAONO
-
-
-Poste, preninte Tutmozison flanken, li anoncis, ke la solda-
-
-toj estas demoralizitaj, ke post la panika forkuro ili havas tiom da vunditoj kaj mortigitoj, kiel post batalo.
+Poste, preninte Tutmozison flanken, li anoncis, ke la soldatoj estas demoralizitaj, ke post la panika forkuro ili havas tiom da vunditoj kaj mortigitoj, kiel post batalo.
 
 —Kaj kia estas nun la stato de la armeo? — demandis la
 
@@ -10636,9 +8468,6 @@ donis al Ramzes ringon. La monar˛o paliĝis.
 —Kion tio signifas?… — demandis la sinjoro.
 
 
-LA FARAONO
-
-
 —Samentu mortis … — respondis la sendito.
 
 Ramzes dum momento ne povis eligi sonon el la gorĝo.
@@ -10655,13 +8484,9 @@ kun helpo de iu Greko, kiu, oni diras, tre similas vian sanktecon …
 
 —Ree Mefres kaj Likon! — elkriis kolere Tutmozis.
 
-— Sinjoro — li turnis sin al la faraono — ĉu neniam vi li-
+— Sinjoro — li turnis sin al la faraono — ĉu neniam vi liberigos vin de ĉi tiuj perfiduloj?…
 
-berigos vin de ĉi tiuj perfiduloj?…
-
-Lia sankteco ree kunvokts privatan kunsidon en sia ĉam-
-
-bro. Li alvokis Hiramon kaj la pastron, kiu venis kum la ringo de Samentu. Pentuer ne volis partopreni, la respektinda re-
+Lia sankteco ree kunvokts privatan kunsidon en sia ĉambro. Li alvokis Hiramon kaj la pastron, kiu venis kum la ringo de Samentu. Pentuer ne volis partopreni, la respektinda re-
 
 ĝino Nikotris venis nenvitita.
 
@@ -10679,21 +8504,14 @@ mem pastro, li konsilas al vi superforton kontraŭ la pastroj …
 
 Eĉ unu muskolo ne ektremis en la vizaĝo de la sendito.
 
-—Respektinda sinjorino — respondis li — se Mefres perei-
-
-gis mian protektanton kaj majstron, Samentu, mi estus hun-
+—Respektinda sinjorino — respondis li — se Mefres pereigis mian protektanton kaj majstron, Samentu, mi estus hun-
 
 do, se mi ne serĉus venĝon. Morto por morto!…
 
 —La juna homo plaĉas al mi! — murmuretis Hiram.
 
 
-LA FARAONO
-
-
-Efektive en la kunsido kvazaŭ ekblovis freŝa aero. La gene-
-
-raloj rigardis scivole la pastron, eĉ la vizaĝo de la faraono viviĝis.
+Efektive en la kunsido kvazaŭ ekblovis freŝa aero. La generaloj rigardis scivole la pastron, eĉ la vizaĝo de la faraono viviĝis.
 
 —Mia filo, ne aŭskultu lin! — petegis la reĝino.
 
@@ -10701,23 +8519,15 @@ raloj rigardis scivole la pastron, eĉ la vizaĝo de la faraono viviĝis.
 
 — Kion farus nun la sankta Samentu, se li vivus?…
 
-—Mi estas certa — respondis energie la pastro — ke Sam-
-
-entu enirus en la templon de Ptah, bruligus incenson por la
+—Mi estas certa — respondis energie la pastro — ke Samentu enirus en la templon de Ptah, bruligus incenson por la
 
 dioj, sed punus la perfidulojn kaj mortigintojn …
 
-—Mi ripetas, ke vi estas la plej malbona perfidulo!… — ek-
+—Mi ripetas, ke vi estas la plej malbona perfidulo!… — ekkriis la reĝino.
 
-kriis la reĝino.
+—Mi plenumas nur mian devon — respondis la ne kortuŝebla pastro.
 
-—Mi plenumas nur mian devon — respondis la ne kortuŝe-
-
-bla pastro.
-
-—Vere, ĉi tiu homo estas la lernanto de Samentu!… — in-
-
-termetis Hiram. — Li sola vidas klare, kio restas al ni por
+—Vere, ĉi tiu homo estas la lernanto de Samentu!… — intermetis Hiram. — Li sola vidas klare, kio restas al ni por
 
 fari …
 
@@ -10731,26 +8541,17 @@ La militaj kaj civilaj altranguloj konsentis, ke Hiram estas prava, kaj la grand
 
 reeĝino.
 
-—Sed mi estas Ramzes XIII!… — jam malpacience respon-
-
-dis la faraono.
+—Sed mi estas Ramzes XIII!… — jam malpacience respondis la faraono.
 
 Tutmozis leviĝis de la seĝo.
 
 —Mia sinjoro — diris li — permesu al mi agi. Estas danĝera
 
-afero daŭrigi ĉi tiun staton de necerteco, kiu regas nun en la administrado, kaj estus krimo kaj malsaĝo ne profiti la oka-266
-
-LA FARAONO
-
-
-zon. La pastro diras, ke la templo ne estas defendata, perme-su do al mi iri tien kun areto da homoj; mi mem elektos ilin.
+afero daŭrigi ĉi tiun staton de necerteco, kiu regas nun en la administrado, kaj estus krimo kaj malsaĝo ne profiti la okazon. La pastro diras, ke la templo ne estas defendata, perme-su do al mi iri tien kun areto da homoj; mi mem elektos ilin.
 
 —Mi iros kun vi — intermetis Kalipos. — Laŭ mia sperto la
 
-triumfanta malamiko estas plej malforta. Se do nun ni inva-
-
-dos en la templon de Ptah …
+triumfanta malamiko estas plej malforta. Se do nun ni invados en la templon de Ptah …
 
 —Ni ne bezonas invadi, ni eniros tien, kiel plenumantoj de
 
@@ -10764,9 +8565,7 @@ Kiom da fojoj unu policisto sin ĵetas sur bandon da ŝtelistoj kaj kaptas, kiom
 
 viaj konsiloj … Sed li ne volas superforton, li malpermesas al vi …
 
-—Ah, se estas tiel — diris la juna pastro de Set — mi ko-
-
-munikos al via sankteco, ankoraŭ unu aferon.
+—Ah, se estas tiel — diris la juna pastro de Set — mi komunikos al via sankteco, ankoraŭ unu aferon.
 
 Kelkfoje li profunde spiris, sed malgraŭ tio li finis per sufokita voĉo:
 
@@ -10784,12 +8583,7 @@ rangon, eĉ la reĝan, kaj ke … oni povas forigi vin de la tro-no …
 
 La faraono salte leviĝis de la seĝo.
 
-—Tutmozis! — ekkriis li per voĉo, en kiu oni sentis la retro-vitan energion. — Prenu tiom da soldatoj, kiom vi volas, iru en la templon de Ptah kaj alkonduku al mi Herhoron kaj Mefreson, kulpigitajn pri ŝtata perfido. Se ili pruvos sian senkul-267
-
-LA FARAONO
-
-
-pecon, mi redonos al ili mian favoron, en la kontraŭa oka-
+—Tutmozis! — ekkriis li per voĉo, en kiu oni sentis la retro-vitan energion. — Prenu tiom da soldatoj, kiom vi volas, iru en la templon de Ptah kaj alkonduku al mi Herhoron kaj Mefreson, kulpigitajn pri ŝtata perfido. Se ili pruvos sian senkulpecon, mi redonos al ili mian favoron, en la kontraŭa oka-
 
 zo …
 
@@ -10811,15 +8605,11 @@ mian povon al Tutmozis, la ĉefo de la gvardio. Nun lin vi
 
 obeu, kaj vi, respektinda patrino, al li vin turnu kun viaj rimarkoj.
 
-—Saĝe kaj juste agas la sinjoro!… — ekkriis la granda skri-
-
-bisto. — Ne konvenas al la faraono lukti kontraŭ la popola-
+—Saĝe kaj juste agas la sinjoro!… — ekkriis la granda skribisto. — Ne konvenas al la faraono lukti kontraŭ la popola-
 
 ĉo, kaj la manko de energia povo estus pereiga por ni.
 
-ĉiuj altranguloj sin klinis antaŭ Tutmozis. La reĝino Ni-
-
-kotris kun ĝemo falis al la piedoj de la filo.
+ĉiuj altranguloj sin klinis antaŭ Tutmozis. La reĝino Nikotris kun ĝemo falis al la piedoj de la filo.
 
 Tutmozis, akompanata de la generaloj, eliris en la korton.
 
@@ -10833,17 +8623,9 @@ Eliris el la vicoj pli multe da soldatoj kaj oficiroj, ol oni bezonis, kaj en il
 
 —ĉu vi estas pretaj morti? — demandis Tutmozis.
 
-—Ni mortos kun vi, ĉefo, por lia sankteco!… — ekkriis Eu-
+—Ni mortos kun vi, ĉefo, por lia sankteco!… — ekkriis Eunana.
 
-nana.
-
-—Vi ne mortos, sed venkos la malnoblajn krimulojn — re-
-
-
-LA FARAONO
-
-
-spondis Tutmozis. — La soldatoj, partoprenantaj en la ekspe-
+—Vi ne mortos, sed venkos la malnoblajn krimulojn — respondis Tutmozis. — La soldatoj, partoprenantaj en la ekspe-
 
 dicio, ricevos oficiran rangon, la oficiroj ricevos avancon je du gradoj. Tiel diras al vi mi, Tutmozis, la ĉefa militestro laŭ la volo de la faraono.
 
@@ -10851,9 +8633,7 @@ dicio, ricevos oficiran rangon, la oficiroj ricevos avancon je du gradoj. Tiel d
 
 Tutmozis ordonis jungi ĉevalojn al dudek kvin ĉaroj de la
 
-peza kavalerio kaj sidigis tie la memvolulojn. Li mem akom-
-
-panata de Kalipos sidiĝis sur ĉevalojn, kaj baldaŭ la tuta taĉ-
+peza kavalerio kaj sidigis tie la memvolulojn. Li mem akompanata de Kalipos sidiĝis sur ĉevalojn, kaj baldaŭ la tuta taĉ-
 
 mento, sin direktanta al Memfiso, malaperis en la polvo.
 
@@ -10861,9 +8641,7 @@ Vidante tion el la fenestro de la reĝa somerdomo, Hiram
 
 sin klinis antaŭ la faraono kaj murmuretis:
 
-—Nur nun mi kredas, ke via sankteco ne estis en konspi-
-
-ro kun la ĉefpastroj …
+—Nur nun mi kredas, ke via sankteco ne estis en konspiro kun la ĉefpastroj …
 
 —ĉu vi freneziĝis?… — eksplodis la sinjoro.
 
@@ -10874,14 +8652,9 @@ estis aranĝita de la pastroj. Kiel ili entiris en ĝin vian sanktecon? tion mi 
 Estis jam la kvina horo post la tagmezo.
 
 
-LA FARAONO
+ĈAPITRO DEKSEPA
 
-
-ĉAPITRO DEKSEPA
-
-En la sama momento, en la sama minuto, la pastro, sta-
-
-ranta garde sur la pilono de la templo de Ptah en Mem-
+En la sama momento, en la sama minuto, la pastro, staranta garde sur la pilono de la templo de Ptah en Mem-
 
 fiso, konigis al la ĉefpastroj kaj nomar˛oj disputantaj en la salono, ke la palaco de la faraono donas signojn.
 
@@ -10895,9 +8668,7 @@ Herhor suriris la pilonon, ĉar al li oni signalis de la palaco.
 
 Baldaŭ li revenis kaj diris al la kunvenintoj:
 
-—Nia juna pastro lerte aranĝis la aferon … En ĉi tiu mo-
-
-mento Tutmozis kun kelkdeko da memvoluloj rajdas ĉi tien,
+—Nia juna pastro lerte aranĝis la aferon … En ĉi tiu momento Tutmozis kun kelkdeko da memvoluloj rajdas ĉi tien,
 
 por nin aresti aŭ mortigi …
 
@@ -10922,18 +8693,13 @@ la salonon de la kunveno.
 Antaŭ la sesa horo vespere la taĉmento de la gvardio, al kiu neniu faris malhelpon, proksimiĝis al la templo de Ptah; la
 
 
-LA FARAONO
-
-
 ĉefo ekfrapis la pordegon, kiun oni malfermis. Tio estis Tutmozis kun siaj memvoluloj.
 
 Kiam la ĉefa militestro eniris en la korton, li ekmiris, ke
 
 renkonte al li eliris Herhor, portanta la tiaron de Amenhotep kaj ĉirkaŭita nur de pastroj.
 
-—Kion vi postulas, mia filo? — demandis la ĉefpastro Tut-
-
-mozison, iom konfuzitan per ĉi tiu vido.
+—Kion vi postulas, mia filo? — demandis la ĉefpastro Tutmozison, iom konfuzitan per ĉi tiu vido.
 
 Sed li tuj ekregis sin kaj diris:
 
@@ -10945,9 +8711,7 @@ vi skribis al la asiria satrapo, Sargon, kaj kiujn mi havas kun mi, vi estas kul
 
 ekscii pri la politikaj celoj de la eterne vivanta Ramzes XII, li sin turnu al la plej alta kolegio, kaj li ricevos klarigojn.
 
-—Mi alvokas vin tuj min sekvi, se vi ne volas, ke mi devi-
-
-gu vin — ekkriis Tutmozis.
+—Mi alvokas vin tuj min sekvi, se vi ne volas, ke mi devigu vin — ekkriis Tutmozis.
 
 —Mia filo, mi petegas la diojn, ke ili gardu vin de la superforto kaj puno, kiun vi meritas …
 
@@ -10957,16 +8721,11 @@ gu vin — ekkriis Tutmozis.
 
 —Restu do ĉi tie, trompisto!… — ekkriis Tutmozis.
 
-Li eltiris la glavon kaj sin ĵetis al Herhor. En la sama mo-
-
-mento Eunana, staranta post la ĉefo, levis la hakilon kaj tut-forte elkbatis Tutmozison inter la kolon kaj la dekstran ŝlo-siloston. La sango ekŝprucis en ĉiujn direktojn. La favorato de la faraono falis teren preskaŭ dishakita en du pecojn.
+Li eltiris la glavon kaj sin ĵetis al Herhor. En la sama momento Eunana, staranta post la ĉefo, levis la hakilon kaj tut-forte elkbatis Tutmozison inter la kolon kaj la dekstran ŝlo-siloston. La sango ekŝprucis en ĉiujn direktojn. La favorato de la faraono falis teren preskaŭ dishakita en du pecojn.
 
 Kelke da soldatoj, mallevinte la lancojn, saltis al Eunana,
 
 sed falis post mallonga batalo. El la memvoluloj tri kvaronoj estis pagataj de la pastroj.
-
-
-LA FARAONO
 
 
 —Vivu la sankta Herhor, nia sinjoro!… — ekkriis Eunana,
@@ -10977,17 +8736,13 @@ svingante la makulitan hakilon.
 
 falis sur la vizaĝojn.
 
-La plej respektinda Herhor levis la manojn supren kaj be-
-
-nis ilin.
+La plej respektinda Herhor levis la manojn supren kaj benis ilin.
 
 Forlasinte la korton de la templo, Mefres malsupreniris en
 
 la kelon, kie loĝis Likon. Jam sur la sojlo la ĉefpastro eltiris el sub la vesto kristalan globon. Vidante ĝin la Greko ekkoleris.
 
-—Englutu vin la tero!… Neniam ĝuu trankvilon viaj kadav-
-
-roj!… — malbenis Likon per pli kaj pli mallaŭta voĉo.
+—Englutu vin la tero!… Neniam ĝuu trankvilon viaj kadavroj!… — malbenis Likon per pli kaj pli mallaŭta voĉo.
 
 Fine li eksilentts kaj ekdormis.
 
@@ -11013,9 +8768,7 @@ Mefres remetis la flagojn, forlasis la terason de la pilono
 
 kaj komencis malrapide iri malsupren. Subite, kiam li estis
 
-jam sur la unua etaĝo, ĉirkaŭis lin kelke da homoj en brunaj 272
-
-LA FARAONO
+jam sur la unua etaĝo, ĉirkaŭis lin kelke da homoj en brunaj
 
 
 manteloj, per kiuj ili kovris siajn tunikojn kun nigraj kaj blankaj strioj.
@@ -11049,9 +8802,6 @@ Ili estis kaŝitaj proksime de la pordeto, tra kiu eliris Likon kaj en la komenc
 Stranga afero! La dormigita Likon, kvazaŭ antaŭsentante
 
 
-LA FARAONO
-
-
 la persekuton, subite sin turnis en bruan straton, poste sur placon, kie svarmis multe da homoj, kaj fine komencis kuri al Nilo tra la strato fiŝista. Tie, en angulo li trovis ŝipeton, saltis en ĝin kaj kun eksterodinara rapideco komencis remi al la alia bordo de la rivero.
 
 Li jam preskaŭ atingis la bordon, kiam ekglitis post li ŝipeto kun unu remisto kaj tri veturantoj. Apenaŭ tiuj forbordiĝis, aperis dua ŝipeto kun du remistoj kaj ankaŭ tri veturantoj.
@@ -11062,17 +8812,13 @@ En tiu, kiu havis unu remiston, sidis la gardistoj de Labirin-to kaj atente riga
 
 krepusko, rapide falanta post la subiro de la suno.
 
-—Kiu ili estas, tiuj tri? — murmuretis la gardistoj de La-
-
-birinto unu al alia. — De antaŭhieraŭ ili vagis ĉirkaŭ la templo kaj hodiaŭ ili persekutas lin … ĉu ili volus savi lin de ni?…
+—Kiu ili estas, tiuj tri? — murmuretis la gardistoj de Labirinto unu al alia. — De antaŭhieraŭ ili vagis ĉirkaŭ la templo kaj hodiaŭ ili persekutas lin … ĉu ili volus savi lin de ni?…
 
 La malgranda ŝipeto de Likon atingis la kontraŭan bordon.
 
 La dormigita Greko elsaltis kaj per rapidaj paŝoj komencis iri al la palacaj ĝardenoj. De tempo al tempo li ŝanceliĝis, haltis kaj kaptis sin je la kapo sed post momento li ree iris, kvazaŭ tirata de nekomprenebla forto.
 
-La gardistoj de Labirinto ankaŭ elŝipiĝis, sed iliaj konku-
-
-rantoj jam pli frue atingis la bordon.
+La gardistoj de Labirinto ankaŭ elŝipiĝis, sed iliaj konkurantoj jam pli frue atingis la bordon.
 
 Komenciĝis neordinara veturado: Likon galopis al la reĝa
 
@@ -11084,21 +8830,12 @@ grupoj kuniris. Estis jam nokto, sed luma.
 
 —Kiu vi estas? — demandis la gardisto de Labirinto.
 
-—Mi estas la policestro de Pi-Bast kaj kun du miaj cen-
-
-testroj mi persekutas grandan krimulon …
+—Mi estas la policestro de Pi-Bast kaj kun du miaj centestroj mi persekutas grandan krimulon …
 
 
-LA FARAONO
+—Kaj ni estas la gardistoj de Labirinto. Ni ankaŭ persekutas ĉi tiun homon …
 
-
-—Kaj ni estas la gardistoj de Labirinto. Ni ankaŭ perseku-
-
-tas ĉi tiun homon …
-
-Ambaŭ grupoj rigardis unu la alian, kun glavoj aŭ tranĉi-
-
-loj en la manoj.
+Ambaŭ grupoj rigardis unu la alian, kun glavoj aŭ tranĉiloj en la manoj.
 
 —Kion vi volas fari kun li? — demandis fine la policestro.
 
@@ -11106,9 +8843,7 @@ loj en la manoj.
 
 —Kaj vi lasos la kadavron?
 
-—Kun ĉio, kio, estas sur li — respondis la gardistoj. La po-
-
-licestro flustre interkonsiliĝis.
+—Kun ĉio, kio, estas sur li — respondis la gardistoj. La policestro flustre interkonsiliĝis.
 
 —Se vi parolas la veron — diris fine la policestro — ni ne
 
@@ -11122,17 +8857,13 @@ kiam li falos en niajn manojn …
 
 —Bone, ni povas iri kune …
 
-Ili kuniĝis, sed la Greko malaperis de iliaj okuloj — Malbe-
-
-nita!… — ekkriis la policestro — ree li forkuris …
+Ili kuniĝis, sed la Greko malaperis de iliaj okuloj — Malbenita!… — ekkriis la policestro — ree li forkuris …
 
 —Ni retrovos lin — respondis la gardisto de Labirinto —
 
 eble li eĉ revenos sur la sama vojo.
 
-—Por kio li iras al la reĝa palaco? — demandis la polices-
-
-tro.
+—Por kio li iras al la reĝa palaco? — demandis la policestro.
 
 —La ĉefpastroj uzas lin por siaj celoj, sed li revenos en la templon, revenos!… — diris la gardisto.
 
@@ -11144,16 +8875,12 @@ Ili envolvis sin en siajn mantelojn kaj kuŝiĝis sur la herbo.
 
 Tuj post la forveturo de Tutmozis, la respektinda reĝino
 
-Nikotris, kun lipoj kunpremitaj de kolero, forlasis solene la 275
-
-LA FARAONO
+Nikotris, kun lipoj kunpremitaj de kolero, forlasis solene la
 
 
 ĉambrojn de la filo. Kaj kiam Ramzes volis trankviligi ŝin, ŝi interrompis severe:
 
-—Mi adiaŭas la faraonon kaj petas la diojn, ke ili perme-
-
-su al mi saluti vin ankoraŭ kiel faraonon …
+—Mi adiaŭas la faraonon kaj petas la diojn, ke ili permesu al mi saluti vin ankoraŭ kiel faraonon …
 
 —ĉu vi dubas pri tio, patrino?
 
@@ -11181,9 +8908,7 @@ Eble ili ne trovis ŝipojn … Eble en la templo ili renkontis kontraŭstaron �
 
 la konfuzitaj altranguloj. — Kie li povas esti?…
 
-Oni dissendis soldatojn por traserĉi la ĝardenon. La solda-
-
-toj trakuris ĉiujn vojetojn, sed nenie trovis la pastron.
+Oni dissendis soldatojn por traserĉi la ĝardenon. La soldatoj trakuris ĉiujn vojetojn, sed nenie trovis la pastron.
 
 ĉi tiu okazo faris malbonan impreson sur la altranguloj.
 
@@ -11191,42 +8916,28 @@ toj trakuris ĉiujn vojetojn, sed nenie trovis la pastron.
 
 ĉe la subiro de la suno eniris en la salonon la ĉambristo de la faraono, kaj murmuretis, ke sinjorino Hebron grave ek-malsanis kaj petegas, ke lia sankteco bonvolu ŝin viziti.
 
-La altranguloj, konante la rilaton, kiu ligis la sinjoron kun la bela Hebron, ekrigardis unu la alian. Sed kiam la faraono anoncis sian intencon eliri en la ĝardenon, ili ne protestis. La 276
-
-LA FARAONO
+La altranguloj, konante la rilaton, kiu ligis la sinjoron kun la bela Hebron, ekrigardis unu la alian. Sed kiam la faraono anoncis sian intencon eliri en la ĝardenon, ili ne protestis. La
 
 
-ĝardeno, dank’al dense starantaj gardistoj, estis same sen-
-
-danĝera, kiel la palaco. Neniu trovis konvena, eĉ de malproksime gardi la faraonon, sciante, ke Ramzes ne amas, ke oni
+ĝardeno, dank’al dense starantaj gardistoj, estis same sendanĝera, kiel la palaco. Neniu trovis konvena, eĉ de malproksime gardi la faraonon, sciante, ke Ramzes ne amas, ke oni
 
 okupu sin pri li en tiaj momentoj.
 
-Kiam la sinjoro malaperis en la koridoro, la granda skribi-
+Kiam la sinjoro malaperis en la koridoro, la granda skribisto diris al la trezoristo:
 
-sto diris al la trezoristo:
-
-—La tempo treniĝas, kiel veturiloj en la dezerto. Eble He-
-
-bron havas novaĵon de Tutmozis?…
+—La tempo treniĝas, kiel veturiloj en la dezerto. Eble Hebron havas novaĵon de Tutmozis?…
 
 —En la nuna momento lia militiro kun kelkdeko da homoj
 
-kontraŭ la templo de Ptah ŝajnas al mi nekomprenebla frene-
-
-zo …
+kontraŭ la templo de Ptah ŝajnas al mi nekomprenebla frenezo …
 
 —Kaj ĉu pli prudente faris la faraono apud Sodaj Lagoj,
 
-kiam li persekutis Teęnnan nokte en la dezerto?… — inter-
-
-rompis Hiram. — La kuraĝo valoras pli multe, ol la nombro.
+kiam li persekutis Teęnnan nokte en la dezerto?… — interrompis Hiram. — La kuraĝo valoras pli multe, ol la nombro.
 
 —Kaj la juna pastro? — demandis la trezoristo.
 
-—Li venis sen nia scio kaj foriris, ne demandante perme-
-
-son. ĉiu el ni agas kiel konspiranto.
+—Li venis sen nia scio kaj foriris, ne demandante permeson. ĉiu el ni agas kiel konspiranto.
 
 La trezoristo balancis la kapon.
 
@@ -11240,24 +8951,15 @@ Herbon kun ploro sin ĵetis al lia kolo.
 
 —ĉu vi timas pri Tutmozis?
 
-—Pri Tutmozis? — demandis Hebron, malestime grima-
-
-cante per la lipoj. — Vi sola estas kara por mi … pri vi sola mi pensas … pri vi timas …
+—Pri Tutmozis? — demandis Hebron, malestime grimacante per la lipoj. — Vi sola estas kara por mi … pri vi sola mi pensas … pri vi timas …
 
 —Benita estu via timo, kiu por unu momento liberigis min
 
-de la enuo … — diris la faraono, ridante. — Dioj, kia malfacila tago!… Se vi aŭdus niajn diskutojn, se vi vidus la mienojn de niaj konsilantoj!… Kaj fine, por kroni ĉion, plaĉis al la respekt-277
-
-LA FARAONO
-
-
-inda reĝino honori nian kunvenon per sia ĉeesto … Mi neni-
+de la enuo … — diris la faraono, ridante. — Dioj, kia malfacila tago!… Se vi aŭdus niajn diskutojn, se vi vidus la mienojn de niaj konsilantoj!… Kaj fine, por kroni ĉion, plaĉis al la respektinda reĝino honori nian kunvenon per sia ĉeesto … Mi neni-
 
 am supozis, ke la titolo de la faraono povos tiel tedi min …
 
-—Ne diru tion tro laŭte — konsilis Hebron. — Kion vi fa-
-
-ros, se Tutmozis ne sukcesos preni la templon?
+—Ne diru tion tro laŭte — konsilis Hebron. — Kion vi faros, se Tutmozis ne sukcesos preni la templon?
 
 —Mi reprenos de li la komandon, kaŝos mian kronon kaj
 
@@ -11273,9 +8975,7 @@ ribelo falos …
 
 kontraŭ la pastroj, la pastroj kontraŭ mi …
 
-Li kaptis Hebronon inter la brakojn kaj kondukis al la ka-
-
-napo murmuretante:
+Li kaptis Hebronon inter la brakojn kaj kondukis al la kanapo murmuretante:
 
 —Kiel bela vi estas hodiaŭ!… ĉiufoje kiam mi vidas vin, vi
 
@@ -11293,9 +8993,7 @@ eĉ ne scias, kiel bela vi estas …
 
 —Apud vi mi dezirus fariĝi granata arbeto … Mi volus havi
 
-tiom da brakoj, kiom da branĉoj havas arbo, por ĉirkaŭpre-
-
-ni vin … Tiom da manoj, kiom da folioj ĝi havas, kaj tiom da buŝoj, kiom da floroj, por ke mi povu en la sama momento
+tiom da brakoj, kiom da branĉoj havas arbo, por ĉirkaŭpreni vin … Tiom da manoj, kiom da folioj ĝi havas, kaj tiom da buŝoj, kiom da floroj, por ke mi povu en la sama momento
 
 kisi viajn okulojn, buŝon kaj bruston …
 
@@ -11310,53 +9008,33 @@ Dum mi havas la glavon, mi havos la povon.
 —Via armeo estas venkita — diris Hebron, defendante sin.
 
 
-LA FARAONO
-
-
-—Morgaŭ venos freŝaj regimentoj kaj postmorgaŭ mi ko-
-
-lektos la venkitajn … Mi ripetas al vi, ne okupu vin per van-taĵoj … Unu momento da karesoj valoras pli multe ol unu jaro da povo …
+—Morgaŭ venos freŝaj regimentoj kaj postmorgaŭ mi kolektos la venkitajn … Mi ripetas al vi, ne okupu vin per van-taĵoj … Unu momento da karesoj valoras pli multe ol unu jaro da povo …
 
 Unu horon post la subiro de la suno, la faraono forlasis la
 
-loĝejon de Hebron kaj estis revenanta malrapide al sia pala-
+loĝejon de Hebron kaj estis revenanta malrapide al sia palaco. Li estis revema, dormema kaj li pensis, ke la ĉefpastroj estas grandaj malsaĝuloj, se ili kontraŭstaras al li. De la tempo kiam ekzistas Egipto, ĝi ne havis pli bonan sinjoron ol li.
 
-co. Li estis revema, dormema kaj li pensis, ke la ĉefpastroj estas grandaj malsaĝuloj, se ili kontraŭstaras al li. De la tempo kiam ekzistas Egipto, ĝi ne havis pli bonan sinjoron ol li.
-
-Subite el figa bosko elglitis homo en nigra mantelo kaj ba-
-
-ris la vojon al la faraono. La sinjoro, por pli bone vidi lin, proksimigis sian vizaĝon al lia kaj subite ekkriis:
+Subite el figa bosko elglitis homo en nigra mantelo kaj baris la vojon al la faraono. La sinjoro, por pli bone vidi lin, proksimigis sian vizaĝon al lia kaj subite ekkriis:
 
 —Ah, tio estas vi, fripono?… Venu en la gardejon …
 
-Tio estis Likon. Ramzes kaptis lin je la nuko; la Greko sib-
-
-lis kaj ekgenuis sur la tero. Samtempe la faraono eksentis bruligan doloron en la maldekstra flanko de la ventro.
+Tio estis Likon. Ramzes kaptis lin je la nuko; la Greko siblis kaj ekgenuis sur la tero. Samtempe la faraono eksentis bruligan doloron en la maldekstra flanko de la ventro.
 
 —Vi mordas ankoraŭ? — ekkriis Ramzes.
 
-Per ambaŭ manoj li potence premegis la kolon de la Gre-
+Per ambaŭ manoj li potence premegis la kolon de la Greko, kaj kiam li ekaŭdis la krakon de la rompataj vertebroj, li forĵetis lin kun abomeno.
 
-ko, kaj kiam li ekaŭdis la krakon de la rompataj vertebroj, li forĵetis lin kun abomeno.
-
-Likon falis, skuata de la antaŭmortaj konvulsioj. La farao-
-
-no foriris kelke da paŝoj. Li palpis sin kaj trovis la tenilon de la ponardo.
+Likon falis, skuata de la antaŭmortaj konvulsioj. La faraono foriris kelke da paŝoj. Li palpis sin kaj trovis la tenilon de la ponardo.
 
 —Li vundis min?…
 
 Li eltiris el sia flanko la mallarĝan ŝtalan pecon kaj kunpremis la vundon.
 
-—Mi volus scii — pensis li — ĉu iu el miaj konsilantoj ha-
-
-vas plastron.
+—Mi volus scii — pensis li — ĉu iu el miaj konsilantoj havas plastron.
 
 Li sentis naŭzon kaj plirapidigis la paŝojn.
 
 Proksime de la palaco renkonte al li kuris oficiro kriante:
-
-
-LA FARAONO
 
 
 —Tutmozis ne vivas plu — La perfidulo Eunana mortigis
@@ -11393,19 +9071,12 @@ Sodaj Lagoj … Ni iras al Memfiso …
 
 El la palaco alkuris altranguloj kaj servistoj kun torĉoj. La faraono, subtenata de la oficiroj, havis grizan vizaĝon kaj
 
-okulojn, vualitajn de nebulo. Li etendis la manon, kvazaŭ ser-
-
-ĉante armilon, movis la lipojn kaj, en la ĝenerala silento, ĉesis spiri, li la sinjoro de la du mondoj: la mondo de la vivantoj kaj la mondo okcidenta.
+okulojn, vualitajn de nebulo. Li etendis la manon, kvazaŭ serĉante armilon, movis la lipojn kaj, en la ĝenerala silento, ĉesis spiri, li la sinjoro de la du mondoj: la mondo de la vivantoj kaj la mondo okcidenta.
 
 
-LA FARAONO
+ĈAPITRO DEKOKA
 
-
-ĉAPITRO DEKOKA
-
-De la morto de Ramzes XIII ĝis la tago de lia enterigo re-
-
-ĝis la ŝtaton la plej nobla San-amen-Herhor, kiel la ĉef-
+De la morto de Ramzes XIII ĝis la tago de lia enterigo reĝis la ŝtaton la plej nobla San-amen-Herhor, kiel la ĉef-
 
 pastro de la teba Amon kaj vic-reĝo de la mortinta faraono.
 
@@ -11419,24 +9090,15 @@ Dum la mallonga regado justeco estis plenumata rapide,
 
 sed sen krueleco, kaj iu ajn ne kuraĝis bati la egiptan kamp-aranon, kiu povis sin turni al la tribunalo, se li havis sufiĉe da tempo kaj atestantoj.
 
-Herhor sin okupis ankaŭ pri la ŝuldoj, ŝarĝantaj la fara-
-
-onon kaj ŝtaton. Por ĉi tiu celo li igis Fenicianojn rezigni parton de la sumoj, ŝuldataj al ili de la ŝtato, kaj por pagi la reston li prenis el Labirinto grandegan sumon da tridek mil ta-
+Herhor sin okupis ankaŭ pri la ŝuldoj, ŝarĝantaj la faraonon kaj ŝtaton. Por ĉi tiu celo li igis Fenicianojn rezigni parton de la sumoj, ŝuldataj al ili de la ŝtato, kaj por pagi la reston li prenis el Labirinto grandegan sumon da tridek mil ta-
 
 lentoj.
 
-Dank’al ĉi tiuj rimedoj, post tri monatoj ekregis en la lan-
-
-do trankvilo kaj bonstato, kaj la regnanoj ripetis:
+Dank’al ĉi tiuj rimedoj, post tri monatoj ekregis en la lando trankvilo kaj bonstato, kaj la regnanoj ripetis:
 
 —Benata estu la regado de la vic-reĝo, San-amen-Herhor!
 
-Vere, la dioj destinis lin esti regnestro, por ke li liberigu Egip-281
-
-LA FARAONO
-
-
-ton de la malfeliĉoj, kiujn altiris Ramzes XIII, senreligia virin-amanto …
+Vere, la dioj destinis lin esti regnestro, por ke li liberigu Egipton de la malfeliĉoj, kiujn altiris Ramzes XIII, senreligia virin-amanto …
 
 Kelkdeko da tagoj sufiĉis, por ke la popolo forgesu, ke ĉiuj verkoj de Herhor estis nur plenumo de la intencoj de la juna kaj nobla faraono!
 
@@ -11448,9 +9110,7 @@ templo de la teba Amon kunvenis ĉiuj plej altrangaj personoj de la ŝtato. Esti
 
 En la sama grandega ĉambrego, ĉirkaŭita per kolonoj, kie
 
-antaŭ duono de jaro la pastroj juĝis Ramzeson XII kaj mont-
-
-ris sian malbonvolon al Ramzes XIII, en la sama loko kunve-
+antaŭ duono de jaro la pastroj juĝis Ramzeson XII kaj montris sian malbonvolon al Ramzes XIII, en la sama loko kunve-
 
 nis hodiaŭ la altranguloj por solvi, sub la prezido de Herhor, la plej gravan ŝtatan aferon. La 25-an de Tobi tagmeze Herhor, portante la tiaron de Amenhotep, sidiĝis sur la trono, la aliaj sur seĝoj, kaj la kunsido komenciĝis.
 
@@ -11458,24 +9118,17 @@ i daŭris ekstreme mallonge, kvazaŭ ĝia rezultato estus
 
 antaŭe preparita.
 
-—ĉefpastroj, nomar˛oj kaj militestroj! — komencis Her-
-
-hor. — Ni kunvenis ĉi tien por tre malĝoja kaj grava afero.
+—ĉefpastroj, nomar˛oj kaj militestroj! — komencis Herhor. — Ni kunvenis ĉi tien por tre malĝoja kaj grava afero.
 
 Kun la morto de la eterne vivanta Ramzes XIII, kies mallonga kaj uragana regado finiĝis tiel malfeliĉe …
 
 Herhor eksopiris.
 
-—Kun la morto de Ramzes XIII ne nur estingiĝis la farao-
-
-no, sed la glorplena dinastio XX …
+—Kun la morto de Ramzes XIII ne nur estingiĝis la faraono, sed la glorplena dinastio XX …
 
 Murmuro traflugis inter la kunvenintoj.
 
 —La dinastio ne finiĝis — intermetis preskaŭ malĝentile la
-
-
-LA FARAONO
 
 
 potenca memfisa nomar˛o. — Vivas ja la respektinda reĝino
@@ -11486,56 +9139,38 @@ Post momento Herhor respondis:
 
 —La plej nobla mia edzino, la reĝino Nikotris …
 
-Ne murmuro, sed krio eksonis nun kaj daŭris kelke da mi-
-
-nutoj. Kiam ĉio eksilentis, Herhor daŭrigis trankvile kaj kla-re:
+Ne murmuro, sed krio eksonis nun kaj daŭris kelke da minutoj. Kiam ĉio eksilentis, Herhor daŭrigis trankvile kaj kla-re:
 
 —Mia plej nobla edzino, la reĝino Nikotris, nekonsolebla
 
 post la morto de sia filo, rezignis la tronon …
 
-—Pardonu!… — ekkriis la memfisa nomar˛o. — La plej no-
-
-bla vic-reĝo nomas la reĝinon sia edzino … Tio estas fakto
+—Pardonu!… — ekkriis la memfisa nomar˛o. — La plej nobla vic-reĝo nomas la reĝinon sia edzino … Tio estas fakto
 
 tute nova, kiun oni devas, antaŭ ĉio, kontroli …
 
-Herhor faris signon. La plej alta teba juĝisto montris la akton pri la edziĝo de la plej nobla ĉefpastro de Amon, San-
-
-amen-Herhor, kun la reĝino Nikotris, vidvino de Ramzes XII
+Herhor faris signon. La plej alta teba juĝisto montris la akton pri la edziĝo de la plej nobla ĉefpastro de Amon, Sanamen-Herhor, kun la reĝino Nikotris, vidvino de Ramzes XII
 
 kaj patrino de Ramzes XIII.
 
 Post ĉi tiu klarigo ekregis tomba silento. Herhor daŭrigis:
 
-—ĉar mia edzino, la sola heredanto de la trono, forlasis si-
-
-ajn rajtojn, ĉar tiamaniere finiĝis la regado de la XX dinastio, ni devas elekti novan monar˛on … ĉi tiu monar˛o — daŭrigis Herhor — devas esti homo matura, energia kaj sperta en
+—ĉar mia edzino, la sola heredanto de la trono, forlasis siajn rajtojn, ĉar tiamaniere finiĝis la regado de la XX dinastio, ni devas elekti novan monar˛on … ĉi tiu monar˛o — daŭrigis Herhor — devas esti homo matura, energia kaj sperta en
 
 la regado. Tial mi konsilas al vi, ekscelencoj, elekti por ĉi tiu plej alta posteno …
 
 —Herhoron!… — ekkriis iu.
 
-—Elekti la plej gloran Nitageron, la ĉefon de la orienta ar-
+—Elekti la plej gloran Nitageron, la ĉefon de la orienta armeo — finis Herhor.
 
-meo — finis Herhor.
+Longan momenton sidis Nitager kun fermitaj okuloj ridetante. Fine li leviĝis kaj diris:
 
-Longan momenton sidis Nitager kun fermitaj okuloj ride-
-
-tante. Fine li leviĝis kaj diris:
-
-—Neniam, sendube, mankos homoj, pretaj akcepti la tito-
-
-lon de faraono. Oni eĉ eble havus tro multe da ili. Feliĉe la 283
-
-LA FARAONO
+—Neniam, sendube, mankos homoj, pretaj akcepti la titolon de faraono. Oni eĉ eble havus tro multe da ili. Feliĉe la
 
 
 dioj mem, forigante la danĝerajn konkurantojn, montris al ni la homon, plej indan ricevi la faraonan povon. Kaj ŝajnas al mi, ke mi faros prudente, se anstataŭ akcepti la kronon, favore proponitan al mi, mi respondos:
 
-—Vivu eterne lia sankteco San-amen-Herhor, la unua fa-
-
-raono de la nova dinastio!…
+—Vivu eterne lia sankteco San-amen-Herhor, la unua faraono de la nova dinastio!…
 
 La ĉeestantoj, kun malmultaj esceptoj, ripetis la ekkrion,
 
@@ -11545,15 +9180,11 @@ unuan prenis la ĉefpastro de Oziriso, la duan la ĉefpastro de Horus kaj transd
 
 Poste komenciĝis la ceremonio, kiu daŭris kelke da horoj:
 
-ĉiuj prezentis sian respekton al la nova sinjoro. Fine, oni skribis konforman akton, la partoprenantoj en la elekto surme-
-
-tis siajn sigelojn, kaj de tiu momento Sanamen-Herhor fari-
+ĉiuj prezentis sian respekton al la nova sinjoro. Fine, oni skribis konforman akton, la partoprenantoj en la elekto surmetis siajn sigelojn, kaj de tiu momento Sanamen-Herhor fari-
 
 ĝis la vera faraono, la sinjoro de la du mondoj, kaj de la vivo kaj morto de siaj regnanoj.
 
-Vespere lia sankteco revenis laca en siajn ĉefpastrajn ĉam-
-
-brojn, kie li trovis Pentueron. La pastro estis pala, kaj sur lia malgrasa vizaĝo oni povis legi laciĝon kaj malĝojon.
+Vespere lia sankteco revenis laca en siajn ĉefpastrajn ĉambrojn, kie li trovis Pentueron. La pastro estis pala, kaj sur lia malgrasa vizaĝo oni povis legi laciĝon kaj malĝojon.
 
 Pentuer falis sur la vizaĝon. La sinjoro levis lin kaj diris kun rideto:
 
@@ -11566,9 +9197,6 @@ templo de Ptah!… Vi ne decidiĝis resti ĉe mi? Vi preferas Meneson?…
 —Pardonu via sankteco — respondis la pastro — sed la
 
 kortega vivo tiel lacigis min, ke la sola mia deziro estas hodiaŭ lerni la saĝon.
-
-
-LA FARAONO
 
 
 —Vi ne povas forgesi Ramzeson? — demandis Herhor. —
@@ -11585,25 +9213,16 @@ Herhor ekridetis.
 
 ja mem turnis la atenton de Ramzes al la situacio de la popo-laĉo, kaj nun vi portas je li funebron en via koro, kvankam li faris nenion por la popolo … Vi tion faris, ne li … Ridindaj homoj vi estas, malgraŭ via potenca inteligenteco — daŭrigis Herhor. — Same Menes … ĉi tiu pastro sin opinias la plej kvieta homo en Egipto, kvankam li faligis la dinastion kaj liberigis al mi la vojon al la povo!… Se li ne estus sendinta sian leteron pri la suna mallumiĝo la 20-an de Paofi, eble ni am-baŭ, la mortinta Mefres kaj mi, rompadus nun ŝtonojn en
 
-minejo … Iru jam kaj salutu Meneson en mia nomo. Memo-
-
-ru ankaŭ, ke mi scias esti dankema, kio estas la plej granda sekreto de la povo. Diru al Menes, ke mi plenumos ĉiun lian
+minejo … Iru jam kaj salutu Meneson en mia nomo. Memoru ankaŭ, ke mi scias esti dankema, kio estas la plej granda sekreto de la povo. Diru al Menes, ke mi plenumos ĉiun lian
 
 peton, se nur li ne ordonos al mi forlasi la tronon … Vi mem revenu al mi, kiam vi estos ripozinta, kaj mi konservos por vi gravan oficon.
 
-Kaj li tuŝis per la mano la humile klinitan kapon de la pas-
-
-tro.
-
-
-LA FARAONO
+Kaj li tuŝis per la mano la humile klinitan kapon de la pastro.
 
 
 EPILOGO
 
-En la monato Mefrir (novembro, decembro) Pentuer ve-
-
-nis en la templon post Memfiso, kie Menes grave labo-
+En la monato Mefrir (novembro, decembro) Pentuer venis en la templon post Memfiso, kie Menes grave labo-
 
 ris pri la ĉielo kaj tero.
 
@@ -11621,9 +9240,7 @@ Pentuer.
 
 —Ho, ho … — ekkriis Menes atente rigardante lin. — Ho!
 
-ho!… ĉu vere vin jam tedis la kortega vivo kaj honoroj?… B-
-
-enata estu tiu ĉi tago!… Kiam de la supro de mia pilono vi
+ho!… ĉu vere vin jam tedis la kortega vivo kaj honoroj?… Benata estu tiu ĉi tago!… Kiam de la supro de mia pilono vi
 
 observos la mondon, vi konvinkiĝos, kia ĝi estas, malgranda
 
@@ -11633,25 +9250,14 @@ kaj malbela.
 
 siaj aferoj. Reveninte post kelke da horoj li trovis la lernan-ton, sidanta sur la sama loko, obstine rigardanta en la punkton, kie de malproksime estis videbla la palaco de la faraonoj.
 
-Menes donis al li hordean kukon, poteton da lakto kaj la-
+Menes donis al li hordean kukon, poteton da lakto kaj lasis lin en trankvilo.
 
-sis lin en trankvilo.
-
-Tiel daŭris kelke da tagoj. Pentuer manĝis malmulte, paro-
-
-lis ankoraŭ pli malmulte, vekiĝadis kelkfoje nokte kaj la tagojn pasigis sen movoj, rigardante ne sciate kien.
+Tiel daŭris kelke da tagoj. Pentuer manĝis malmulte, parolis ankoraŭ pli malmulte, vekiĝadis kelkfoje nokte kaj la tagojn pasigis sen movoj, rigardante ne sciate kien.
 
 
-LA FARAONO
+Tiu ĉi vivmaniero ne plaĉis al Menes. Do unufoje okupinte lokon apud Pentuer sur la ŝtono li diris:
 
-
-Tiu ĉi vivmaniero ne plaĉis al Menes. Do unufoje okupin-
-
-te lokon apud Pentuer sur la ŝtono li diris:
-
-—ĉu vi tute freneziĝis, aŭ la spiritoj de mallumo nur por-
-
-tempe ekregis vian koron?…
+—ĉu vi tute freneziĝis, aŭ la spiritoj de mallumo nur portempe ekregis vian koron?…
 
 Pentuer turnis sur lin la nebulecajn okulojn.
 
@@ -11665,9 +9271,7 @@ plej agrabla sezono de la jaro. La noktoj estas longaj kaj stel-oriĉaj, la tago
 
 —Ju pli longe mi meditas, des pli certa mi estas, ke se mi
 
-ne forlasus Ramzeson XIII, se mi disponigus al li miajn ser-
-
-vojn, estus vivanta ĝis nun tiu ĉi plej nobla el la faraonoj. ĉir-kaŭis lin centoj da perfiduloj, sed eĉ ne unu bona homo mon-
+ne forlasus Ramzeson XIII, se mi disponigus al li miajn servojn, estus vivanta ĝis nun tiu ĉi plej nobla el la faraonoj. ĉir-kaŭis lin centoj da perfiduloj, sed eĉ ne unu bona homo mon-
 
 tris al li rimedojn por saviĝo!…
 
@@ -11680,18 +9284,13 @@ Menes. — Ho, la fiero de la nefinlerninta saĝulo!… ĉiuj saĝoj ne savus la
 —Certe, jes. Antaŭ ĉio li estis militema faraono kaj la nuna Egipto abomenas militistojn. i preferas oran braceleton ol
 
 
-LA FARAONO
-
-
 glavon, eĉ se el ŝtalo; ĝi pli preferas bonan kantiston aŭ dan-cistojn ol sentiman soldaton; profiton kaj sagon ol militon. Se en la monato Me˛ir maturiĝus olivo aŭ violo ekflorus en la
 
 monato Tot, tiel la unua, kiel la alia devus perei, kiel la fruktoj malfruiĝintaj aŭ antaŭtempaj. Vi ja deziras, ke en la epo-ko de Amenhotepoj kaj Herhoroj povus konserviĝi faraono
 
 apartenanta al la epoko de Hiksosoj. ĉio havas sian tempon,
 
-dum kiu ĝi maturiĝas, kaj tian — dum kiu ĝi neniiĝas. Ram-
-
-zes XIII aperis en nekonforma epoko, do li devis cedi.
+dum kiu ĝi maturiĝas, kaj tian — dum kiu ĝi neniiĝas. Ramzes XIII aperis en nekonforma epoko, do li devis cedi.
 
 —Kaj ĉu vi pensas, ke nenio lin povus savi? — demandis
 
@@ -11701,9 +9300,7 @@ Pentuer.
 
 epoko kaj rango, sed ankoraŭ trafis je la periodo de la falo de la ŝtato kaj estis kiel juna folio sur putriĝinta arbo.
 
-—Vi tiel trankvile parolas pri la fato de la ŝtato? — ekmi-
-
-ris Pentuer.
+—Vi tiel trankvile parolas pri la fato de la ŝtato? — ekmiris Pentuer.
 
 —Mi vidas ĝin de kelkdeko da jaroj, kaj vidis ĝin jam miaj
 
@@ -11711,28 +9308,20 @@ antaŭuloj en tiu ĉi templo … Oni povis alkutimiĝi.
 
 —ĉu vi havas duoblan vidkapablon?…
 
-—Tute ne — diris Menes — sed ni havas mezuron. Laŭ mo-
-
-voj de la flageto vi ekscios: kia vento blovas, la puto ĉe Nilo atestas: ĉu la rivero leviĝas aŭ malleviĝas … Kaj nin tra jarcentoj instruas pri malforto de la stato tiu ĉi Sfinkso …
+—Tute ne — diris Menes — sed ni havas mezuron. Laŭ movoj de la flageto vi ekscios: kia vento blovas, la puto ĉe Nilo atestas: ĉu la rivero leviĝas aŭ malleviĝas … Kaj nin tra jarcentoj instruas pri malforto de la stato tiu ĉi Sfinkso …
 
 Kaj li montris per la mano direkton al la piramidoj.
 
 —Nenion mi scias pri tio … — flustris Pentuer.
 
-—Legu la malnovajn kronikojn de nia templo kaj vi kon-
-
-vinkiĝos, ke — kiomfoje Egipto floris, ĝia Sfinkso estis sendi-fekta kaj leviĝis alte super la dezerto. Sed kiam la ŝtato komencis fali, Sfinkso krevis, dispeciĝis kaj sablo atingis ĝis ĝiaj piedoj. Kaj nun de kelkaj jarcentoj Sfinkso dispeciĝas kaj ju 288
-
-LA FARAONO
+—Legu la malnovajn kronikojn de nia templo kaj vi konvinkiĝos, ke — kiomfoje Egipto floris, ĝia Sfinkso estis sendi-fekta kaj leviĝis alte super la dezerto. Sed kiam la ŝtato komencis fali, Sfinkso krevis, dispeciĝis kaj sablo atingis ĝis ĝiaj piedoj. Kaj nun de kelkaj jarcentoj Sfinkso dispeciĝas kaj ju
 
 
 pli altiĝas la sablo ĉirkaŭ ĝi, ju pli profundaj montriĝas sul-koj sur la korpoj, des pli rapide kliniĝas al pereo la ŝtato …
 
 —Kaj pereos?…
 
-—Tute ne — rediris Menes. — Same kiel post la nokto sek-
-
-vas la tago, kaj post la malalta akvo sekvas la leviĝo de Nilo, tiel post periodoj de faloj venas la tempo de vivdisfloro. Eterna historio!… De certaj arboj falas la folioj en la monato Me-
+—Tute ne — rediris Menes. — Same kiel post la nokto sekvas la tago, kaj post la malalta akvo sekvas la leviĝo de Nilo, tiel post periodoj de faloj venas la tempo de vivdisfloro. Eterna historio!… De certaj arboj falas la folioj en la monato Me-
 
 ˛ir, sed nur por rekreski denove en la monato Fa˛ono … Vere
 
@@ -11761,9 +9350,6 @@ Eksterordinara estis la vidaĵo de tiuj ĉi humilaj almozuloj, el kiuj unu dum k
 sanĝis la kuradon de la historio.
 
 
-LA FARAONO
-
-
 En pli riĉaj vilaĝoj oni akceptis ilin pli bone, kaj en iu do-mo, kie okazis edziĝfesto oni manĝigis ilin, regalis per biero kaj permesis tranokti inter la mastrumaj konstruaĵoj.
 
 Sed nek iliaj razitaj vizaĝoj kaj kapoj, nek la kalviĝinta pantera felo imponis al la loĝantoj. La popolo de Malsupra Egip-to, miksita kun diverskreduloj, ne karakteriziĝis per pieco kaj precipe ignoris la pastrojn de la diino de Saĝo.
@@ -11776,9 +9362,7 @@ Pentuer aŭskultis la edziĝfestan muzikon, ebriajn kriojn, kaj de tempo al temp
 
 monatoj forpasis de post la morto de la sinjoro, kiu estis bon-faranto de la kamparanoj kaj ili jam forgesis lin … Vere mallonge daŭras la homa dankemo …
 
-—ĉu vi dezirus, ke la homoj ĝis fino de la jarcentoj super-
-
-ŝutu siajn kapojn per cindro? — demandis Menes. — Kiam
+—ĉu vi dezirus, ke la homoj ĝis fino de la jarcentoj superŝutu siajn kapojn per cindro? — demandis Menes. — Kiam
 
 krokodilo kaptas virinon aŭ infanon, ĉu vi pensas, ke tuj ĉesos flui akvo en Nilo?… i ruliĝas malgraŭ la senvivuloj kaj malgraŭ la leviĝo aŭ malleviĝo de la rivero. La samo estas kun la vivo de la popolo. Kiam finiĝas unu dinastio kaj komenciĝas
 
@@ -11790,12 +9374,7 @@ labori, same kiel arbo kreskas malgraŭ pluvo kaj sekeco. Permesu do al ili salt
 
 falo, laŭ via diro, de la ŝtato — intermitis Pentuer.
 
-—Tute ne mirinde, ĉar ĝuste ili estas la ŝtato, kaj ilia vivo estas la vivo de la ŝtato. Homoj ĉiam malgajas aŭ gojas kaj ne ekzistas horo, dum kiu iu ne ridus aŭ sopirus. Ja la tuta ku-290
-
-LA FARAONO
-
-
-rado de la historio konsistas el tio, ke — se estas pli da ĝojo inter la homoj oni diras: la ŝtato floras, kaj se pli ofte estas verŝataj larmoj, oni nomas tion la falo. Oni ne devas alkutimiĝi al esprimoj, sed rigardi la homojn. En tiu ĉi kabano
+—Tute ne mirinde, ĉar ĝuste ili estas la ŝtato, kaj ilia vivo estas la vivo de la ŝtato. Homoj ĉiam malgajas aŭ gojas kaj ne ekzistas horo, dum kiu iu ne ridus aŭ sopirus. Ja la tuta kurado de la historio konsistas el tio, ke — se estas pli da ĝojo inter la homoj oni diras: la ŝtato floras, kaj se pli ofte estas verŝataj larmoj, oni nomas tion la falo. Oni ne devas alkutimiĝi al esprimoj, sed rigardi la homojn. En tiu ĉi kabano
 
 estas ĝojo, ĉi tie la ŝtato floras, do vi ne rajtas sopiri, ke ĝi falas. Vi devas nur penadi, ke ĉiam pli kaj pli multaj estu la kontentaj kabanoj.
 
@@ -11830,14 +9409,9 @@ Pentuer ambaŭ iris al la laboro. Ili nivelis la grundon, desegnis la direkton k
 Dum la malfacila okupado, Pentuer plivigliĝis kaj eĉ, kiam
 
 
-LA FARAONO
-
-
 li estis sola kun Menes, interparolis. Nur en ĉeesto de homoj li perdis humoron: ŝajnis ke iliaj ridoj kaj kantoj pligrandigis liajn suferojn.
 
-Menes ne iris por la nokto en la vilaĝon, sed kune kun Pen-
-
-tuer dormis sur la kampo, de kie ili povis vidi la florantan grenon kaj aŭskulti e˛ojn de la homa ĝojo, ne partoprenan-te ĝin.
+Menes ne iris por la nokto en la vilaĝon, sed kune kun Pentuer dormis sur la kampo, de kie ili povis vidi la florantan grenon kaj aŭskulti e˛ojn de la homa ĝojo, ne partoprenan-te ĝin.
 
 Iun vesperon la kampaj laboroj estis pli frue ĉesigitaj, ĉar en la vilaĝon venis por almozpeti malriĉa pastro kun malgranda knabo. Ili iris de domo al domo petegante almozon.
 
@@ -11845,26 +9419,17 @@ La knabo ludis per fluto malgajan melodion, kaj en la paŭzoj la pastro kantis p
 
 pian.
 
-Menes kaj Pentuer kuŝante sur monteto observis la disfla-
+Menes kaj Pentuer kuŝante sur monteto observis la disflamiĝintan ĉielon, sur kies ora fono forte reliefiĝis la nigraj tri-anguloj de la piramidoj, ankaŭ brunaj trunkoj kaj malhele
 
-miĝintan ĉielon, sur kies ora fono forte reliefiĝis la nigraj tri-anguloj de la piramidoj, ankaŭ brunaj trunkoj kaj malhele
-
-verdaj bukedoj de palmarboj. Dume la pastro treniĝis de ka-
-
-bano al kabano kaj elkantetis sian kanton ripozante longan
+verdaj bukedoj de palmarboj. Dume la pastro treniĝis de kabano al kabano kaj elkantetis sian kanton ripozante longan
 
 tempon post ĉiu strofo.
 
-”Kiel kvieta estas tiu justa princo! La bela destino plenu-
-
-miĝis. De la tempo de Ra forpasas la malnovaj korpoj kaj sur iliajn lokojn alvenas la junaj. ĉiun matenon leviĝas la suno kaj ĉiun vesperon ĝi kaŝiĝas en la okcidento. Viroj naskiĝas, virinoj gravediĝas, ĉiu brusto spiras per la freŝa aero. Sed ĉiuj, kiuj naskiĝis, ĉiuj sen escepto, iras al la loko por la homo destinita.”1
+”Kiel kvieta estas tiu justa princo! La bela destino plenumiĝis. De la tempo de Ra forpasas la malnovaj korpoj kaj sur iliajn lokojn alvenas la junaj. ĉiun matenon leviĝas la suno kaj ĉiun vesperon ĝi kaŝiĝas en la okcidento. Viroj naskiĝas, virinoj gravediĝas, ĉiu brusto spiras per la freŝa aero. Sed ĉiuj, kiuj naskiĝis, ĉiuj sen escepto, iras al la loko por la homo destinita.”1
 
 —Kaj pro kio? — subite diris Pentuer. — Se almenaŭ estus
 
 vero, ke la vivon oni tiucele kreis, por ke kresku honoro al la dioj kaj virto. Sed tiel ne estas. La insida krueulo, la patrino, 1 Aŭtentika.
-
-
-LA FARAONO
 
 
 kiu fariĝas edzino de la mortiginto de ŝia filo, la amantino, kiu dum karesoj pensas pri perfido, ĉi tiuj sukcesas kaj estiĝas potencaj. Kaj la saĝaj sekiĝas en senageco, kaj la bravaj kaj noblaj pereas kaj pereas memoro pri ili.
@@ -11890,9 +9455,6 @@ manoj! Mi scias ĉion, kio okazis al viaj antaŭuloj: iliaj muroj disrompiĝis, 
 Pentuer. — Vere, kiel enua ĝi estas, kvazaŭ bildo de la dormo, en kiu nenion oni sonĝas? Nur kiam uragano plugas la glatan surfacon, kiam unu ondo falas en la profundegaĵon, kaj
 
 
-LA FARAONO
-
-
 la alia leviĝas, kiam ekludas sur la ondsupraĵoj la lumoj, kaj el la profundo eksonas minacaj aŭ timemaj voĉoj, tiam la ma-ro fariĝas bela. Same estas kun rivero. Kiam ĝi fluas en unu direkton, ĝi aspektas morta; sed kiam ĝi turniĝas dekstren kaj maldekstren — ĝi estiĝas ĉarma. Same okazas kun montoj:
 
 unutona altaĵo estas enua, sed malegalaj pintoj kaj profundaj intermontoj estas belaj …
@@ -11909,19 +9471,13 @@ Vivu por la plezuro, ĝis kiam vi estas sur la tero, kaj ne mal-gajigu la koron,
 
 Plezuro estas kvazaŭ ondoj kaj pintoj de la montoj, suferoj —
 
-kvazaŭ profundegaĵoj kaj intermontoj, kaj nur ĉiuj kune kaŭ-
+kvazaŭ profundegaĵoj kaj intermontoj, kaj nur ĉiuj kune kaŭzas, ke la vivo estas bela, ĉar ĝi skulptigas sin kiel la disŝirita orienta montarĉeno, kiun ni rigardas kun admiro.
 
-zas, ke la vivo estas bela, ĉar ĝi skulptigas sin kiel la disŝirita orienta montarĉeno, kiun ni rigardas kun admiro.
-
-”Sed tiu, kies koro jam ne batas — kantis la pastro — ne aŭ-
-
-das la plendojn kaj ne malgajas pro la fremda funebro. Do
+”Sed tiu, kies koro jam ne batas — kantis la pastro — ne aŭdas la plendojn kaj ne malgajas pro la fremda funebro. Do
 
 kun la heliĝinta vizaĝo solenu la gajajn tagojn kaj multobli-gu ilian nombron …”
 
-—ĉu vi aŭdas? — demandis Pentuer montrante en direk-
-
-ton de la vilaĝo. — Tiu, kies koro jam ne batas, ne nur ne malgajas pro la fremda funebro, sed eĉ ne ĝojas pri la propra
+—ĉu vi aŭdas? — demandis Pentuer montrante en direkton de la vilaĝo. — Tiu, kies koro jam ne batas, ne nur ne malgajas pro la fremda funebro, sed eĉ ne ĝojas pri la propra
 
 vivo, kvankam ĝi estus plej bele skulptita … Kiacele do ekzistas tiuj ĉi skulptaĵoj, por kiuj oni pagas per doloro kaj sangaj larmoj?…
 
@@ -11932,21 +9488,13 @@ Noktiĝis. Menes volvis sin en la mantelon kaj rediris:
 ajn nian templon kaj atente rigardu ĝiajn murojn, sur kiuj
 
 
-LA FARAONO
-
-
 amasiĝis bildoj de homoj, bestoj, arboj, riveroj, steloj — tute kiel la mondo, en kiu ni vivas. Por profano similaj figuroj havas nenian valoron kaj eble ne unu demandadis: por kio ili
 
-estas?… Kial oni skulptas ilin kun tia laborstreĉo?… Sed sa-
-
-ĝulo respekte alproksimiĝas al tiuj figuroj kaj ĉirkaŭrigar-
+estas?… Kial oni skulptas ilin kun tia laborstreĉo?… Sed saĝulo respekte alproksimiĝas al tiuj figuroj kaj ĉirkaŭrigar-
 
 dante ilin legas en ili la historion de la longe pasintaj tempoj aŭ misterojn de la saĝo.
 
 FINO
-
-
-LA FARAONO
 
 
 www.omnibus.se/
@@ -11962,7 +9510,7 @@ www.omnibus.se/
 + ĈAPITRO SESA
 + ĈAPITRO SEPA
 + ĈAPITRO OKA
-+ ĈAPITRO NAŭA
++ ĈAPITRO NAŬA
 + ĈAPITRO DEKA
 + ĈAPITRO DEKUNUA
 + ĈAPITRO DEKDUA

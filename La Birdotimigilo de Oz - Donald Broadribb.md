@@ -98,9 +98,7 @@ plej grandaj streboj
 
 de nia kara malnova
 
-amiko la Birdo-
-
-timigilo necesis, por
+amiko la Birdotimigilo necesis, por
 
 savi ilin de terura
 
@@ -155,25 +153,25 @@ en KALIFORNIO,
 L I S T O D E Ã A P I T R O J
 
 
-La Granda Kirlakvo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 13
+La Granda Kirlakvo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Kaverno sub la Maro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 22
+La Kaverno sub la Maro . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Orko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 33
+La Orko . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-Fine la Taglumo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 52
+Fine la Taglumo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Malgranda Oldulo de la Insulo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 62
+La Malgranda Oldulo de la Insulo . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Flugo de la Etuloj. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 82
+La Flugo de la Etuloj. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Bululo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 89
+La Bululo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Buton-Brilo Perdißas kaj Retrovißas. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .101
@@ -209,25 +207,25 @@ La Orko Savas Buton-Brilon. . . . . . . . . . . . . . . . . . . . . . . . . . . 
 La Birdotimigilo Renkontas Malamikon. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .220
 
 
-La Soristino Estas K onkerita . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 230
+La Soristino Estas K onkerita . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 Reßino Gloria . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .241
 
 
-Doroteo, Betinjo kaj Ozma. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 255
+Doroteo, Betinjo kaj Ozma. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-La Akvofalo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 264
+La Akvofalo. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
 La Lando Oz. . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . .273
 
 
-La Reßa Akcepto. . . . . . . . . . . . . . . . . . . . . . . . . . . 278
+La Reßa Akcepto. . . . . . . . . . . . . . . . . . . . . . . . . . .
 
 
-ĈAPITRO 1
+ĈAPITRO
 
 La Granda Kirlakvo
 
@@ -590,7 +588,7 @@ sufiĉe kuraĝis fronti ĝin kaj atendi la rezulton de la
 aventuro.
 
 
-ĈAPITRO 2
+ĈAPITRO
 
 La Kaverno sub la Maro
 
@@ -912,9 +910,7 @@ Fine la knabineton vekis plaŭdo apud ŝi kaj muĝeto
 
 pro kontento de Kap’tano Vilĉjo. Ŝi malfermis siajn
 
-okulojn kaj trovis ke la Kap’tano surterigis arĝent-
-
-skvaman fiŝon pezan je ĉirkaŭ kilogramo. Tio multe
+okulojn kaj trovis ke la Kap’tano surterigis arĝentskvaman fiŝon pezan je ĉirkaŭ kilogramo. Tio multe
 
 plifeliĉigis ŝin, kaj ŝi rapidis kunkolekti amason da
 
@@ -1050,7 +1046,7 @@ ke kaj Trot kaj ŝia kompano gapis ĝin mirante—
 mirante kaj ankaŭ iom timante.
 
 
-ĈAPITRO 3
+ĈAPITRO
 
 La Orko
 
@@ -1919,7 +1915,7 @@ malnunan veliston.
 “Nepre jam estas nova tago,” diris li.
 
 
-ĈAPITRO 4
+ĈAPITRO
 
 Fine la Taglumo
 
@@ -2126,9 +2122,7 @@ La surteriĝo estis tiom abrupta ke eĉ malgraŭ la
 
 zorga atento de la ulo al siaj pasaĝeroj Kap’tano Vilĉjo
 
-batis la teron laŭ ŝoko kiu renversis lin pied-super-
-
-kapen; sed kiam Trot jam glitis de sia sidejo la maljuna
+batis la teron laŭ ŝoko kiu renversis lin pied-superkapen; sed kiam Trot jam glitis de sia sidejo la maljuna
 
 velisto sidis kaj ĉirkaŭrigardis pli-malpli kontente.
 
@@ -2282,15 +2276,11 @@ ni povus forveli per ĝi.”
 
 La knabineto plifeliĉiĝis aŭdante tion.
 
-“Mi nenie vidas la Orkon,” ŝi komentis, ĉirkau-
-
-rigardante. Ŝiaj okuloj ektrafis ion kaj ŝi kriis: “Ho,
+“Mi nenie vidas la Orkon,” ŝi komentis, ĉirkaurigardante. Ŝiaj okuloj ektrafis ion kaj ŝi kriis: “Ho,
 
 Kap’tano Vilĉjo! Ĉu ne estas domo tie, live?”
 
-Kap’tano Vilĉjo atente rigardante vidis kaban-
-
-konstruaĵon ĉe unu rando de la arbaro.
+Kap’tano Vilĉjo atente rigardante vidis kabankonstruaĵon ĉe unu rando de la arbaro.
 
 “Aspektas tiel, Trot. Mi ne nomus ĝin vera domo,
 
@@ -2299,7 +2289,7 @@ sed ĝi ja estas konstruaĵo. Ni transiru kaj trovu ĉu ĝi
 estas enloĝata.”
 
 
-ĈAPITRO 5
+ĈAPITRO
 
 La Malgranda Oldulo de la Insulo
 
@@ -3183,7 +3173,7 @@ kaj sidiĝi. Jam tiam la Orko estis alte en la aero kaj
 rapidanta trans la oceanon.
 
 
-ĈAPITRO 6
+ĈAPITRO
 
 La Flugo de la Etuloj
 
@@ -3478,7 +3468,7 @@ por ĉirkaŭrigardi kaj vidi sur kian lokon la Orko
 surteriĝis.
 
 
-ĈAPITRO 7
+ĈAPITRO
 
 La Bululo
 
@@ -3923,7 +3913,7 @@ sonon. Sed la knabineto povis aŭdi tute neniun sonon
 escepte de la ronkado de Kap’tano Vilĉjo.
 
 
-ĈAPITRO 8
+ĈAPITRO
 
 Buton-Brilo Perdiĝas kaj Retroviĝas
 
@@ -4047,9 +4037,7 @@ kovrita de la neĝo.”
 
 Ŝi kuris al li tuj kaj la aliaj sekvis, vadante tra la
 
-maizo kaj dispremante ĝin sub siaj piedoj. La Mo-
-
-neĝo estis tre profunda kie la Bululo ŝoveladis kaj el
+maizo kaj dispremante ĝin sub siaj piedoj. La Moneĝo estis tre profunda kie la Bululo ŝoveladis kaj el
 
 
 La Birdotimigilo de Oz
@@ -4308,9 +4296,7 @@ La Birdotimigilo de Oz
 
 la orienta vento parfumiĝas per konvaloj; kaj la
 
-okcidenta vento per lilakfloroj. Do ni ne bezonas veter-
-
-indikilon por diri al ni el kie blovas la vento. Ni
+okcidenta vento per lilakfloroj. Do ni ne bezonas veterindikilon por diri al ni el kie blovas la vento. Ni
 
 bezonas nur flari la parfumon kaj tio tuj informas
 
@@ -4667,7 +4653,7 @@ fortaj reguloj batoj fare de la grandaj flugiloj sekvante
 sian gvidanton.
 
 
-ĈAPITRO 9
+ĈAPITRO
 
 La Regno Omenlando
 
@@ -5159,7 +5145,7 @@ sono de plorado, kvazaŭ iu amare malfeliĉas, atingis
 iliajn orelojn kaj devigis ilin abrupte ekhalti.
 
 
-ĈAPITRO 10
+ĈAPITRO
 
 Pon, la Knabo de l’ Ĝardenisto
 
@@ -5454,7 +5440,7 @@ lasis la knabon de l’ ĝardenisto staranta apud la vojeto,
 kaj rekomencis sian marŝadon cele la kastelon.
 
 
-ĈAPITRO 11
+ĈAPITRO
 
 La Fia Reĝo kaj Gugli-Gu
 
@@ -5757,9 +5743,7 @@ Moŝto?”
 
 plu amus lin.”
 
-“Domaĝe, domaĝe!” ĝemis Gugli-Gu. “Mi flanken-
-
-metis pli ol buŝelon da valoregaj gemoj—ĉiu el ili
+“Domaĝe, domaĝe!” ĝemis Gugli-Gu. “Mi flankenmetis pli ol buŝelon da valoregaj gemoj—ĉiu el ili
 
 valoras pli ol reĝo mem—kiel donacon al via Moŝto
 
@@ -5941,9 +5925,7 @@ Preninte la Princinon per ŝia brako la Reĝo trenis ŝin
 
 al la kastelo. Li puŝis ŝin en ĉambron sur la teretaĝo
 
-kaj ŝlosis la pordon kontraŭ la malfeliĉulino. Kaj tiu-
-
-momente oni anoncis la alvenon de la Fia Sorĉistino.
+kaj ŝlosis la pordon kontraŭ la malfeliĉulino. Kaj tiumomente oni anoncis la alvenon de la Fia Sorĉistino.
 
 
 La Birdotimigilo de Oz
@@ -5961,7 +5943,7 @@ du fiuloj foriris al la Reĝa Konsili-Ĉambro por
 renkonti la Fian Sorĉistinon.
 
 
-ĈAPITRO 12
+ĈAPITRO
 
 La Lignokrura Akrido
 
@@ -6504,9 +6486,7 @@ trakti nin ol la Reĝo.”
 
 Por atingi la lumon ili devis foriri de la vojo, do ili
 
-stumble marŝis trans altaĵetoj kaj vepraĵoj, man-en-
-
-mane, ĉiam tenante la ereton da lumo videbla.
+stumble marŝis trans altaĵetoj kaj vepraĵoj, man-enmane, ĉiam tenante la ereton da lumo videbla.
 
 Ili estis iom mizeraj etuloj, neakceptatoj en fremda
 
@@ -6599,7 +6579,7 @@ bona por ili ĉar ĝi alportis forgeson al ili dum iom da
 tempo.
 
 
-ĈAPITRO 13
+ĈAPITRO
 
 Glinda la Bona kaj la Birdotimigilo de Oz
 
@@ -6958,7 +6938,7 @@ estas la turoj de la kastelo de la Reĝo kaj tiucelen li
 tuj komencis marŝi.
 
 
-ĈAPITRO 14
+ĈAPITRO
 
 La Glaciigita Koro
 
@@ -7311,9 +7291,7 @@ Palpebrumnjo kaj la aliaj sciis per tiu unu frida
 
 rigardo ke ilia sorĉo sukcesis. Ĥore ili ekridis sovaĝe
 
-kaj la tri belulinoj rekomencis dancadi, dum Palpe-
-
-brumnjo malligis la Princinon kaj liberigis ŝin.
+kaj la tri belulinoj rekomencis dancadi, dum Palpebrumnjo malligis la Princinon kaj liberigis ŝin.
 
 Trot frotis siajn okulojn por pruvi al si ke ŝi estas
 
@@ -7638,7 +7616,7 @@ Gu lamis reire al sia domego por ke oni purigu la
 koton de liaj multekostaj veluraj vestoj.
 
 
-ĈAPITRO 15
+ĈAPITRO
 
 Trot Renkontas la Birdotimigilon
 
@@ -7650,9 +7628,7 @@ vilaĝetoj de Omenlando, sed ili ne povis trovi eĉ
 
 spureton de Kap’tano Vilĉjo nek de Buton-Brilo. Fine
 
-ili paŭzis apud maizkampo kaj sidiĝis sur mur-
-
-ŝtupetaron por ripozi. Pon prenis kelkajn pomojn el
+ili paŭzis apud maizkampo kaj sidiĝis sur murŝtupetaron por ripozi. Pon prenis kelkajn pomojn el
 
 sia poŝo kaj donis unu el ili al Trot. Li komencis mem
 
@@ -8003,7 +7979,7 @@ en danĝero pro la ruzoj de la kruela Reĝo kaj la
 Fisorĉistino.
 
 
-ĈAPITRO 16
+ĈAPITRO
 
 Pon Vokas la Reĝon Cedi
 
@@ -8309,7 +8285,7 @@ riverencis al la tuta grupo kaj foriris el la kabano,
 marŝante senhaste survoje al la kastelo de la Reĝo.
 
 
-ĈAPITRO 17
+ĈAPITRO
 
 La Orko Savas Buton-Brilon
 
@@ -8588,7 +8564,7 @@ vortojn, Buton-Brilo, kiam nia Orko ja revenos, estas unu
 kruela Reĝo en Omenlando kiu volegos ke tio ne okazis.”
 
 
-ĈAPITRO 18
+ĈAPITRO
 
 La Birdotimigilo Renkontas Malamikon
 
@@ -8796,9 +8772,7 @@ detruiĝon.”
 
 mi faris al vi, post via pereo kiam vi ne povos
 
-informi ilin,” respondis la Reĝo per malrespekto-
-
-plena voĉo.
+informi ilin,” respondis la Reĝo per malrespektoplena voĉo.
 
 Post tio li ordonis ligi la Birdotimigilon al dika
 
@@ -8906,9 +8880,7 @@ popolo, ĉar nun ili plene komprenis ke ilia malamata
 
 mastro estas konkerita kaj ke estas saĝe montri sian
 
-bonvolon al la konkerinto. Kelkaj el ili ligis Kru-el-
-
-on per ŝnuregoj kaj antaŭentrenis lin, kaj ĵetis lian
+bonvolon al la konkerinto. Kelkaj el ili ligis Kru-elon per ŝnuregoj kaj antaŭentrenis lin, kaj ĵetis lian
 
 korpon sur la teron antaŭ la trono de la
 
@@ -8934,7 +8906,7 @@ efektivigis tion, amiko Orko, kaj ekde nun vi rajtas
 kalkuli min kiel vian humilan servanton.”
 
 
-ĈAPITRO 19
+ĈAPITRO
 
 La Sorĉistino Estas Konkerita
 
@@ -9083,9 +9055,7 @@ La Birdotimigilo de Oz
 
 la koto, kaj mi faros tion se vi ne zorgos.”
 
-“Mi kredas ke vi eraras tiurilate,” diris la Birdo-
-
-timigilo, kaj stariĝinte el sia trono li marŝis ŝanceliĝe
+“Mi kredas ke vi eraras tiurilate,” diris la Birdotimigilo, kaj stariĝinte el sia trono li marŝis ŝanceliĝe
 
 al la flanko de la Fisorĉistino. Antaŭ mia foriro el la
 
@@ -9136,13 +9106,9 @@ skatolon?”
 
 “Donu ĝin al mi—kaj mi faros kion ajn vi petos!”
 
-“Unue vi faros kion mi petos,” deklaris la Birdo-
+“Unue vi faros kion mi petos,” deklaris la Birdotimigilo firme.
 
-timigilo firme.
-
-La sorĉistino ŝrumpis kaj malpligrandiĝis ĉiu-
-
-momente.
+La sorĉistino ŝrumpis kaj malpligrandiĝis ĉiumomente.
 
 “Hastu, do!” ŝi kriis. “Diru al mi kion mi faru kaj
 
@@ -9343,7 +9309,7 @@ pro sia sorto, kaj neniu kiu vidis ŝin foriri simpatiis
 kun ŝi.
 
 
-ĈAPITRO 20
+ĈAPITRO
 
 Reĝino Gloria
 
@@ -9933,7 +9899,7 @@ ajn. La Birdotimigilo, kiu ne povis dormi, rigardis el
 la fenestro kaj penis kalkuli la stelojn.
 
 
-ĈAPITRO 21
+ĈAPITRO
 
 Doroteo, Betinjo kaj Ozma
 
@@ -10119,9 +10085,7 @@ fremduloj aŭdacas eniri tiun misfortunan landon kiun
 
 regas fireĝo.”
 
-“Tiu knabino, kaj la unukrura viro, aspektas morti-
-
-povuloj el la ekstera mondo,” diris Doroteo.
+“Tiu knabino, kaj la unukrura viro, aspektas mortipovuloj el la ekstera mondo,” diris Doroteo.
 
 “La viro ne estas unukrura,” korektis Betinjo; “li
 
@@ -10259,7 +10223,7 @@ fremdulojn ĉe la palaco de Glinda.”
 Betinjon kaj prepari por la veturo.
 
 
-ĈAPITRO 22
+ĈAPITRO
 
 La Akvofalo
 
@@ -10609,7 +10573,7 @@ rigardante pro miro ĝis tuj apud ili la korpo de la
 Birdotimigilo eksaltis denove el la akvo.
 
 
-ĈAPITRO 23
+ĈAPITRO
 
 La Lando Oz
 
@@ -10762,9 +10726,7 @@ verŝajne ne trovos pajlon en la regiono tra kiu ili
 
 nun veturas.
 
-Ili ne perdis tempon antaŭ ol replenigi la Birdo-
-
-timigilon per pajlo, kaj al li multe plaĉis kapabli
+Ili ne perdis tempon antaŭ ol replenigi la Birdotimigilon per pajlo, kaj al li multe plaĉis kapabli
 
 denove remarŝadi kaj refoje gvidi la grupeton.
 
@@ -10800,7 +10762,7 @@ Birdotimigilo. “Sed nun ni hastu, alie ne ne atingos
 la palacon de Glinda antaŭ la noktiĝo.”
 
 
-ĈAPITRO 24
+ĈAPITRO
 
 La Reĝa Akcepto
 

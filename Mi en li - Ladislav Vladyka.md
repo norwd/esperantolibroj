@@ -24,8 +24,6 @@ Mi en li
 *http://www.omnibus.se/*
 
 
-### 2
-
 MI EN LI
 
 
@@ -41,9 +39,7 @@ La aŭtoro
 
 *si la virinon trovante ŝin tuta en la esprimoj de ŝia seksa*
 
-* generacio, kiu estis juna en 1933, kiam ĉi tiu teksto estis verkita 3
-
-MI EN LI
+* generacio, kiu estis juna en 1933, kiam ĉi tiu teksto estis verkita
 
 
 *vivo, de ŝia akra voluptemo, kiun tamen — kontraste al naturalistoj, el kiuj li devenis kaj laŭ kiuj li ŝatas dokumentojn*
@@ -58,9 +54,7 @@ MI EN LI
 
 *homojn kaj novajn formojn de la amo, flirto. Homoj de mal-novmodaj imagoj devas ankoraŭ kutimiĝi al ili. Komprene-*
 
-*ble ne estas afero de la aŭtoro, ke liaj herooj estas tiaj, kiaj* 4
-
-MI EN LI
+*ble ne estas afero de la aŭtoro, ke liaj herooj estas tiaj, kiaj*
 
 
 *ili estas. ĉi tiu moderna, eleganta naturalisto, ĉe kies malpeza, fajrera verkado ŝajne ne ekzistas diferenco inter li kaj* *liaj modeloj, efektive estas same serioza kronikisto de la societo, moroj kaj cirkonstancoj, kiaj estis liaj mallertaj an-taŭuloj. Se oni legas lin atente, oni ne povas ne rimarki kun* *kia ĝojo li haltas ĉe tia modelo, sur kiu li trovas pli multe da* *lumo, ol sur la aliaj. Kiel li substrekas morale naŭzigajn* *ecojn de siaj figuroj. Per kia delikata ironio li kapablas superŝuti siajn inojn. Vladyka efektive diferencas de ceteraj* *naturalistoj tondrantaj en animojn, li ne ŝatas tondradon* *kaj ne akceptas ilian filozofion, pravigante prefere relati-vistojn. *
@@ -72,53 +66,34 @@ MI EN LI
 *bone kaŝita psikologio, imagas rekte virinece. Li preferas, ke* *homo prezentu sin per agoj. Li kreas lin per kelkaj pecoj de* *dialogo, kun tia fiziologia kaj spirita fideleco, ke ne estas* *necese aldoni ion. Samtempe ne ekzistas ĉe li diferenco en* *komprenado. Kontraŭe al aliaj verkistoj denove tio estas*
 
 
-MI EN LI
-
-
 *frapanta riĉeco de rigardoj kaj kompreno, per kiuj li vidas* *virojn de plej diversaj klasoj kaj aĝaj diferencoj same, kiel virinojn. Mi eĉ dirus, ke li pli sukcesas priskribante pli aĝajn* *virinojn, ol se li priskribas heroinojn de sia generacio. Tio* *verŝajne sekvas el la cirkonstanco, ke Vladyka estas poeto de* *la eterna virineco, same kiel li estas poeto de moderna amo* *kaj de modernaj vivoformoj. *
 
 K. M.
-
-
-MI EN LI
 
 
 Kolportistoj, disvendantaj ĉe stratanguloj tagmezajn
 
 ĵurnalojn, vokadis je preterpasantoj kaj, tretante de
 
-unu piedo sur la alian, ili suprenlevadis ekscitite la ma-
-
-non tenantan la ĵurnalon, kaj kriis:
+unu piedo sur la alian, ili suprenlevadis ekscitite la manon tenantan la ĵurnalon, kaj kriis:
 
 ”Sensacia trovaĵo en Koôíĝe! — Viktimo de periferio!
 
-Morta kaj tute senvestigita junulino trovita sur la stra-
-
-to! ĉu nova Ômukëĝka?”
+Morta kaj tute senvestigita junulino trovita sur la strato! ĉu nova Ômukëĝka?”
 
 La preterpasantoj amasiĝadis ĉirkaŭ la kolportistoj kaj
 
-prenadis la gazetojn el iliaj manoj: Foririnte kelkajn pa-
-
-ŝojn, ili haltadis, legante el malfalditaj ĵurnaloj.
+prenadis la gazetojn el iliaj manoj: Foririnte kelkajn paŝojn, ili haltadis, legante el malfalditaj ĵurnaloj.
 
 La popolo de Praha havis sensacion, kiu plenigadis
 
 ĝiajn scivolajn okulojn kaj sentojn per emociaj kaj akraj
 
-imagoj. Sub dike presitaj titoloj nigris en la ĵurnaloj kon-
+imagoj. Sub dike presitaj titoloj nigris en la ĵurnaloj konciza priskribo de la okazaĵo. Evidente la tagmezaj ĵur-
 
-ciza priskribo de la okazaĵo. Evidente la tagmezaj ĵur-
-
-naloj estis sciigitaj pri la okazaĵo nur malfrue kaj kapa-
-
-blis publikigi nur plej gravajn sciindaĵojn. Nur *La Tag-*
+naloj estis sciigitaj pri la okazaĵo nur malfrue kaj kapablis publikigi nur plej gravajn sciindaĵojn. Nur *La Tag-*
 
 *mezo* pruvis sian aktualemon kaj dediĉis al la trovaĵo konsiderindan parton de la unua paĝo:
-
-
-MI EN LI
 
 
 **!! Terura trovaĵo en Koôíĝe !! **
@@ -138,9 +113,6 @@ MI EN LI
 *la ŝoseon, de kiu samloke deflankiĝas vojo al la brikfarejo de* *Beâka kaj pluen al la tombejo de Koôíĝe. Iom post la kruco* *malantaŭ arbustaĵo, kiu borderas la kamporandon super la*
 
 
-MI EN LI
-
-
 *muro, hodiaŭ matene preterpasantoj trovis nudan kadavron*
 
 *de junulino. La kadavro restis nerimarkita de pli fruaj pasantoj — oni devas mencii, ke de post la frumatenaj horoj* *trapasas tie al Praha granda aro da veturiloj kaj precipe* *konsiderinda nombro da laboristoj — al la policejo en Koôíĝe* *alportis la unuan sciigon iu junulo, kiu tamen diris, ke malantaŭ Klimentka oni trovis svenintan virinon, tute senvesti-gitan. *
@@ -155,9 +127,7 @@ MI EN LI
 
 *La rezulto de la kuracista esploro estis neatendita. La kuracisto konstatis, ke la kadavro estas ankoraŭ varma, sed la* *koro ne batas plu. Eĉ plej malfortan spiradon li ne kapablis* *konstati. Sur la tuta korpo, kiom estis konstateble dum la* *unua esploro, estas videbla neniu vundo des malpli tia, kiu* *povus rezultigi morton. Nur sur la maldekstra piedo la nud-pieda junulino havis malgrandan vundon, devenantan ver-*
 
-*ŝajne de akra objekto — eble de vitro — sur kiun la junuli-no estis paŝinta. ĉi tiu vundo sangis, sed kiam la kadavro estis trovita, la sango estis jam koagulinta. ĉar la kuracisto* *konstatis morton, la aŭtomobilo de la savbrigado reveturis* *kaj la kadavro restis sur la trovejo ĝis la alveno de la juĝa* 9
-
-MI EN LI
+*ŝajne de akra objekto — eble de vitro — sur kiun la junuli-no estis paŝinta. ĉi tiu vundo sangis, sed kiam la kadavro estis trovita, la sango estis jam koagulinta. ĉar la kuracisto* *konstatis morton, la aŭtomobilo de la savbrigado reveturis* *kaj la kadavro restis sur la trovejo ĝis la alveno de la juĝa*
 
 
 *komisiono. Intertempe estis necese plimultigi la polican gar-distaron, ĉar el proksimaj domoj alvenadis ĉiam kaj ĉiam*
@@ -175,9 +145,6 @@ MI EN LI
 *lino, kiel okazis iam apud la bieno Ômukëĝka. Pli aĝaj legan-toj rememoros ankoraŭ ĉi tiun okazaĵon kaj ĝian finiĝon per* *verdikto de la asiztribunalo. Sed la iama periferio de Koôíĝe* *malaperis post la konstruo de novaj konstruaĵkolonioj kaj* *precipe de familiaj dometoj ne nur sur Ôumava, Pernikáĝka* *kaj apud Klikovka, sed ankaŭ sur la alia flanko de la valo* *sur Václavka, apud la ŝoseo al Jinonice, ja oni konstruis* *kolonion de familiaj dometoj eĉ post Cibulky en la direkto al* *Motol. Kaj en la lasta jaro estis konstruita tre vasta kolonio* *de malgrandaj ludomoj malantaŭ Václavka ĝis Cibulky kaj*
 
 *suden ĝis la fervojo, kiu traveturas ĉi tie sub la monteto Vi-doule. *
-
-
-MI EN LI
 
 
 *Sed oni rememorigas pri mistera morto de Koâová, pro-*
@@ -207,9 +174,6 @@ MI EN LI
 *”Sinjorino Votëpková, kiel vi kondutas ĉi tie? Via filino* *mortis ja antaŭhieraŭ kaj hieraŭ ŝi estis transportita al la* *kadavrejo. Trankviliĝu do!” *
 
 *Sed la virino kriis:*
-
-
-MI EN LI
 
 
 *”Manjo, mia ora Manjo! Ne malhelpu min, lasu min al*
@@ -249,9 +213,6 @@ MI EN LI
 *Pliajn detalojn ni publikigos morgaŭ matene. *
 
 
-MI EN LI
-
-
 La vesperĵurnaloj enhavis neniujn novaĵojn. Esence —
 
 sed per aliaj vortoj — ili publikigis, kion enhavis jam *La* *Tagmezo*. La redakcioj estis bombardataj per demandoj
@@ -262,14 +223,10 @@ rekomendante la morgaŭajn matenĵurnalojn. Vere estis,
 
 ke la raportistoj revenis en la redaktejojn nur malfrue,
 
-preskaŭ je noktomezo, kiam policaj esploroj por la ho-
-
-diaŭa tago estis finitaj.
+preskaŭ je noktomezo, kiam policaj esploroj por la hodiaŭa tago estis finitaj.
 
 
-Kontraŭ ĉiuj atendoj de la esplororganoj estis konfirmi-
-
-taj la vortoj de Karolina Votëpková, kiu rekonis la kadav-
+Kontraŭ ĉiuj atendoj de la esplororganoj estis konfirmitaj la vortoj de Karolina Votëpková, kiu rekonis la kadav-
 
 ron de sia filino.
 
@@ -279,28 +236,19 @@ servon jam pli ol dudek jarojn kaj kontraŭ kiu ĝis nun ne
 
 okazis plendoj, estis tre surprizita, kiam ĉe la tombeja
 
-pordego antaŭ la dometo, en kiu li loĝas, haltis veturi-
-
-lo akompanata de policanoj kaj de senfina arego da ho-
+pordego antaŭ la dometo, en kiu li loĝas, haltis veturilo akompanata de policanoj kaj de senfina arego da ho-
 
 moj.
 
 Kiam oni sciigis lin, ke Mario Votëpková estis trovita
 
-apud la kruco, li demandis iom konsternita, kial oni mo-
+apud la kruco, li demandis iom konsternita, kial oni mokas lin. Mario Votëpková kuŝas de post la hieraŭa tago
 
-kas lin. Mario Votëpková kuŝas de post la hieraŭa tago
-
-en ĉerko en la kadavrejo tiel, kiel oni alveturigis ŝin. Hie-
-
-raŭ vespere li estis mem ĉe la ĉerko por estingi la kan-
+en ĉerko en la kadavrejo tiel, kiel oni alveturigis ŝin. Hieraŭ vespere li estis mem ĉe la ĉerko por estingi la kan-
 
 delojn; li faras tion ĉiam por malebligi brulegon. Poste
 
 li ŝlosis la kadavrejon kaj pendigis la ŝlosilon super sia
-
-
-MI EN LI
 
 
 tablo; ĝis nun ĝi pendas tie, hodiaŭ li ankoraŭ ne estis en
@@ -309,21 +257,13 @@ la kadavrejo.
 
 ĉefpolicano Vavruch akompanis la tombiston en lian
 
-loĝejon, ili deprenis la ŝlosilon de la muro kaj, akompa-
+loĝejon, ili deprenis la ŝlosilon de la muro kaj, akompanataj de kelkaj ĵurnalistoj, ili malfermis la kadavrejon. Ili eniris, demetinte la ĉapelojn, kaj konsternitaj ili haltis.
 
-nataj de kelkaj ĵurnalistoj, ili malfermis la kadavrejon. Ili eniris, demetinte la ĉapelojn, kaj konsternitaj ili haltis.
+La ĉerko, kuŝanta meze de la malgranda ejo sur malalta portilo, estis malfermita, ĝia kovrilo staris maldekstre
 
-La ĉerko, kuŝanta meze de la malgranda ejo sur malal-
+apogita ĉe la muro. La vestoj kaj la ĉemizo de la mortintino estis metitaj trans la ĉerkon, kiu estis malplena.
 
-ta portilo, estis malfermita, ĝia kovrilo staris maldekstre
-
-apogita ĉe la muro. La vestoj kaj la ĉemizo de la mortin-
-
-tino estis metitaj trans la ĉerkon, kiu estis malplena.
-
-La tombisto Zeman apogis sin je la pordo kaj per tre-
-
-manta mano li levis poŝtukon al la frunto por forviŝi ŝvi-
+La tombisto Zeman apogis sin je la pordo kaj per tremanta mano li levis poŝtukon al la frunto por forviŝi ŝvi-
 
 ton, kiu aperis sur lia frunto. Li sentis esplorrigardojn de
 
@@ -351,57 +291,37 @@ ektremis pro emocio kvazaŭ arbaro post fortega ekblovo
 
 de vento. La tera kradpordego kurbiĝis sub la premo de
 
-la homamaso kaj ekestis danĝero, ke oni rompos la por-
+la homamaso kaj ekestis danĝero, ke oni rompos la pordegon. La policanoj, kiuj estis akompanintaj la veturilon
 
+al la tombejo, staris senkonsile antaŭ la kurbiĝinta pordego.
 
-MI EN LI
+Sed en la kriza momento ekrio de Votëpková, kiu komencis plendi, direktis la atenton de la amaso aliflanken.
 
-
-degon. La policanoj, kiuj estis akompanintaj la veturilon
-
-al la tombejo, staris senkonsile antaŭ la kurbiĝinta por-
-
-dego.
-
-Sed en la kriza momento ekrio de Votëpková, kiu ko-
-
-mencis plendi, direktis la atenton de la amaso aliflanken.
-
-La premo al la pordego ĉesis kaj unu el la policanoj ka-
-
-pablis eliri el la tombejo por denove inviti la esplororga-
+La premo al la pordego ĉesis kaj unu el la policanoj kapablis eliri el la tombejo por denove inviti la esplororga-
 
 nojn kaj pliajn policanojn, ĉar la homamaso kondutis
 
 terurige.
 
-Estis prononcataj tre akraj vortoj kontraŭ la kuracis-
-
-to N., kiu kuracis Marion Votëpková kaj konstatis ŝian
+Estis prononcataj tre akraj vortoj kontraŭ la kuracisto N., kiu kuracis Marion Votëpková kaj konstatis ŝian
 
 morton. La opinio de la ĉeestantoj tre rapide klarigis al
 
 si la tutan okazaĵon:
 
-Oni transportis Marion Votëpková al la tombejo an-
-
-koraŭ viva, la kuracisio eraris, deklarinte ŝin morta.
+Oni transportis Marion Votëpková al la tombejo ankoraŭ viva, la kuracisio eraris, deklarinte ŝin morta.
 
 Sed la kuracisto N. ne ĉeestis, oni transplantis do sian
 
 indignon kontraŭ alia persono, kiun oni kulpigis kaj faris
 
-respondeca pri la morto de MarioVotëpková, ĉar ĝene-
-
-rale oni kredis, ke Mario ne estus mortinta, se ŝi estus
+respondeca pri la morto de MarioVotëpková, ĉar ĝenerale oni kredis, ke Mario ne estus mortinta, se ŝi estus
 
 restinta hejme kaj oni estus flegintaj ŝin.
 
 Oni kulpigis la tombiston Zeman. Ne motivante lian
 
-kulpon, oni incite alkriadis lin kaj inter insultojn mik-
-
-siĝis ankaŭ minacoj.
+kulpon, oni incite alkriadis lin kaj inter insultojn miksiĝis ankaŭ minacoj.
 
 Zeman staris inter la policanoj pala kaj lia tuta korpo
 
@@ -410,24 +330,17 @@ tremis.
 La homamaso neniel malgrandiĝis, male la homoj
 
 
-MI EN LI
-
-
 ĉiam plimultiĝadis. Ili disvolviĝis ĉirkaŭante ĉenforme la
 
 nordan parton de la tombejo, multaj alproksimiĝis de la
 
 flanko de Motol, kie apud la muro staras la kadavrejo,
 
-kaj rampis sur la muron. La policanaro nur penege suk-
-
-cesis zorgi pri ordo kaj malhelpi enpenetron de la amaso
+kaj rampis sur la muron. La policanaro nur penege sukcesis zorgi pri ordo kaj malhelpi enpenetron de la amaso
 
 en la tombejon.
 
-Proksimume post tri kvaronoj da horo venis mult-
-
-nombra taĉmento da policanoj, kiu devis esti venigita el
+Proksimume post tri kvaronoj da horo venis multnombra taĉmento da policanoj, kiu devis esti venigita el
 
 Smíchov, ĉar el la policejo de Koôíĝe ĉeestis jam ĉiuj, al
 
@@ -437,9 +350,7 @@ La policanaro forigis la amason de la kamporando
 
 malantaŭ la kadavrejo kaj forpremis la ĉeestantojn de la
 
-pordego. La tempo pasadis malrapide, sed la spaco an-
-
-taŭ la tombeja pordego kaj la kampa vojo restis plena.
+pordego. La tempo pasadis malrapide, sed la spaco antaŭ la tombeja pordego kaj la kampa vojo restis plena.
 
 Kelkaj foriris, sed aliaj denove venis; la loko ne sufiĉis,
 
@@ -463,31 +374,19 @@ Zeman ripetis, kion li diris jam antaŭe. Proksimume
 
 je la sesa vespere li estingis en la kadevrejo la kandelojn,
 
-kiujn la patrino de la mortintino ekbruligis tie, parto-
-
-
-MI EN LI
-
-
-preninte la transporton. Li pendigis poste la ŝlosilon su-
+kiujn la patrino de la mortintino ekbruligis tie, partopreninte la transporton. Li pendigis poste la ŝlosilon su-
 
 per sia tablo kaj deprenis ĝin nur hodiaŭ, kiam venis la
 
-polico. Je la demando, ĉu iu havas ankoraŭ alian ŝlosi-
-
-lon, li respondis:
+polico. Je la demando, ĉu iu havas ankoraŭ alian ŝlosilon, li respondis:
 
 ”Neniu. Ekzistas nur unusola ŝlosilo.”
 
-Poste li ekhezitis kaj nur al nova demando li respon-
-
-dis:
+Poste li ekhezitis kaj nur al nova demando li respondis:
 
 ”Ekzistis ankoraŭ unu ŝlosilo de la kadavrejo, al ĝi
 
-estis fiksita malgranda ligna tabuleto kun la litero: gran-
-
-da K. La ŝlosilo estis kaŝita en la ŝranko.”
+estis fiksita malgranda ligna tabuleto kun la litero: granda K. La ŝlosilo estis kaŝita en la ŝranko.”
 
 ”Kie estas tiu ŝlosilo?”
 
@@ -499,33 +398,22 @@ forgesis pri tio.”
 
 La seruron de la kadavrejo oni trovis tute sendifekta,
 
-estis do evidente, ke la pordo estis malŝlosita per ŝlosi-
-
-lo aŭ hokŝlosilo. Atenton vekis tera kovrileto, kiu de la
+estis do evidente, ke la pordo estis malŝlosita per ŝlosilo aŭ hokŝlosilo. Atenton vekis tera kovrileto, kiu de la
 
 interna flanko kovris la seruran malfermaĵon. i estis
 
 tute kovrita de rusto kaj ne estis eble ekmovi ĝin. La
 
-rusto sur ĝi estis neniel difektita. Tio pruvis, ke la por-
-
-do estis malŝlosita de ekstere.
+rusto sur ĝi estis neniel difektita. Tio pruvis, ke la pordo estis malŝlosita de ekstere.
 
 Sur la ĉerko kaj ĝia kovrilo ne estis videblaj postsignoj
 
 de perforta malfermo, la kovrilo estis pli frue alfiksita
 
-nur per kelkaj ŝraŭboj; ĉar la parencoj volis rigardi an-
-
-koraŭ la mortintinon.
+nur per kelkaj ŝraŭboj; ĉar la parencoj volis rigardi ankoraŭ la mortintinon.
 
 
-MI EN LI
-
-
-Denova pruvo, ke la mortintino ne kapablis mem for-
-
-lasi la ĉerkon.
+Denova pruvo, ke la mortintino ne kapablis mem forlasi la ĉerkon.
 
 Sur la planko estis videblaj tute neniaj postsignoj; ĝi
 
@@ -545,9 +433,7 @@ intencis balai nur hodiaŭ antaŭ la funebra ceremonio.
 
 ”Neniam; ni bezonas ĝin en la dometo.”
 
-”Kiu do alportis ĝin ĉi tien? ĉu vi ne bezonis ĝin hie-
-
-raŭ vespere aŭ hodiaŭ matene?”
+”Kiu do alportis ĝin ĉi tien? ĉu vi ne bezonis ĝin hieraŭ vespere aŭ hodiaŭ matene?”
 
 ”Tion mi ne scias. Mi bezonis kaj serĉis ĝin, sed nur
 
@@ -559,15 +445,11 @@ dumnokte? ĉu vi havas hundojn ĉi tie?”
 
 ”Jes, du kaj tre danĝerajn, vi povas nun aŭdi ilin. Sed
 
-dumtage ili estas kvietaj, tamen dumnokte fremda ho-
-
-mo ne kuraĝu veni ĉi tien.”
+dumtage ili estas kvietaj, tamen dumnokte fremda homo ne kuraĝu veni ĉi tien.”
 
 ”Kiu loĝas ĉi tie kun vi?”
 
-”Neniu, mi estas sola ĉi tie. Pasintjare mortis mia ed-
-
-zino, do venas ĉi tien por ordigi mian loĝejon maljuna
+”Neniu, mi estas sola ĉi tie. Pasintjare mortis mia edzino, do venas ĉi tien por ordigi mian loĝejon maljuna
 
 Poláâková el Klikovka. Dumtage helpas min ĉi tie Vaô-
 
@@ -576,18 +458,11 @@ ek. Eble vi konas lin, tio estas tiu idiotulo, kiu loĝas en
 la kabaneto malsupre apud la ŝoseo. Kiam vi iris ĉi tien,
 
 
-MI EN LI
-
-
 certe vi aŭdis la hundojn boji dekstraflanke tuj post la
 
-ŝtonrompejo proksime de la kruco. Estas tie proksimu-
+ŝtonrompejo proksime de la kruco. Estas tie proksimume kvin hundoj. Eble vi rimarkis la lignan budon faritan
 
-me kvin hundoj. Eble vi rimarkis la lignan budon faritan
-
-el tabuletoj; tie loĝas Vaôek. Li helpas min nur fosi tom-
-
-bojn. Jam du tagojn li ne estis ĉi tie.”
+el tabuletoj; tie loĝas Vaôek. Li helpas min nur fosi tombojn. Jam du tagojn li ne estis ĉi tie.”
 
 ”Kie li estas, kial li ne montris sin ankoraŭ hodiaŭ ĉi
 
@@ -629,25 +504,15 @@ La komisiono esploris poste tre detale la ĉerkon kaj la
 
 tolaĵon, kiu estis metita trans ĝin. Nenie estis trovebla eĉ
 
-plej malgranda postsigno, kiu ebligus diveni, kiel la mor-
-
-
-MI EN LI
-
-
-tintino eliĝis el la kadavrejo. Ankaŭ sur la purbalaita
+plej malgranda postsigno, kiu ebligus diveni, kiel la mortintino eliĝis el la kadavrejo. Ankaŭ sur la purbalaita
 
 planko estis nenio trovebla.
 
-Post mallonga interkonsiliĝo de la komisiono, oni de-
-
-klaris la tombiston arestita. ŝajnas, ke li atendis tion, ĉar li trankviliĝis kaj nur klinis la kapon. Li sidiĝis sur ben-keto staranta ne malproksime kaj apud li eksidis poli-
+Post mallonga interkonsiliĝo de la komisiono, oni deklaris la tombiston arestita. ŝajnas, ke li atendis tion, ĉar li trankviliĝis kaj nur klinis la kapon. Li sidiĝis sur ben-keto staranta ne malproksime kaj apud li eksidis poli-
 
 cano.
 
-De la tombeja pordego eksonis bruo kaj unuopaj vo-
-
-ĉoj, precipe virinaj, tranĉe sonis tra la aero. Oni kriis:
+De la tombeja pordego eksonis bruo kaj unuopaj voĉoj, precipe virinaj, tranĉe sonis tra la aero. Oni kriis:
 
 ”Kial vi lasas la kadavron kuŝi sur la veturilo? Kial vi
 
@@ -657,41 +522,28 @@ Oni transportis do la mortintinon en la kadavrejon kaj
 
 metis ĝin en la ĉerkon, kiun oni fermis per la kovrilo.
 
-Poste oni observis tre atente la ĉirkaŭaĵon de la kadav-
+Poste oni observis tre atente la ĉirkaŭaĵon de la kadavrejo, sed estis ĉi tie jam multaj diversaj postsignoj, la
 
-rejo, sed estis ĉi tie jam multaj diversaj postsignoj, la
-
-alvokita tombisto ne kapablis diri, ĉu iu fremda perso-
-
-no iris matene proksime al ĝia pordo. Ankaŭ sur la muro
+alvokita tombisto ne kapablis diri, ĉu iu fremda persono iris matene proksime al ĝia pordo. Ankaŭ sur la muro
 
 ne estis troveblaj postsignoj de transgrimpo.
 
-La cirkonstancoj pruvis — laŭ la opinio de la komisio-
-
-no — ke iu ĵetis verŝajne dormigilon al la hundoj, poste
+La cirkonstancoj pruvis — laŭ la opinio de la komisiono — ke iu ĵetis verŝajne dormigilon al la hundoj, poste
 
 malŝlosis la kadavrejon per hokŝlosilo kaj forportis la
 
 kadavron. La sekcado eble helpos klarigi, kial li faris
 
-tion. Oni decidis sekci la kadavron ĉi tie en la kadavre-
-
-jo mem, ĉar transporto de la kadavro povus eble rezul-
+tion. Oni decidis sekci la kadavron ĉi tie en la kadavrejo mem, ĉar transporto de la kadavro povus eble rezul-
 
 tigi novan tumulton.
 
 La tombejo restis fermita kaj ĉe ĝia pordego, same kiel
 
 
-MI EN LI
-
-
 ĉe la kadavrejo, oni postenis po forta polica gardistaro.
 
-Zeman akompanata de kelkaj policanoj, kiuj penege li-
-
-berigis al li vojon tra la minacanta homamaso, estis kon-
+Zeman akompanata de kelkaj policanoj, kiuj penege liberigis al li vojon tra la minacanta homamaso, estis kon-
 
 dukita al atendanta aŭtomobilo kaj veturigita al Praha.
 
@@ -699,9 +551,7 @@ La suno konsiderinde malleviĝis jam super Motol,
 
 kiam fine alveturis la juĝkuracistoj. Kun ili venis ankaŭ
 
-la kuracisto N., kiu estis kuracinta la junulinon Votëp-
-
-ková, la kuracisto R., kiun oni venigis matene al la ka-
+la kuracisto N., kiu estis kuracinta la junulinon Votëpková, la kuracisto R., kiun oni venigis matene al la ka-
 
 davro, kuŝanta apud la kruco, kaj fine junulo ne multe
 
@@ -719,9 +569,7 @@ atestanto. Li ĉeestis la morton de Mario.
 
 Post doktoro N. estis ĵetitaj kelkaj ŝtonoj, kiuj tamen
 
-ne trafis lin. Unu el la ŝtonoj frakasis la vitron de la aŭ-
-
-tomobilo.
+ne trafis lin. Unu el la ŝtonoj frakasis la vitron de la aŭtomobilo.
 
 ĉar alproksimiĝis vespero, oni kunprenis lampojn kaj
 
@@ -733,31 +581,19 @@ doktoro N.
 
 Li raportis, ke Mario Votëpková kuŝis proksimume
 
-unu semajnon malsana je influenco. Kvankam la kura-
+unu semajnon malsana je influenco. Kvankam la kuracisto kaj ŝia fianĉo severe malpermesis al ŝi eliri, tamen
 
-cisto kaj ŝia fianĉo severe malpermesis al ŝi eliri, tamen
-
-dimanĉe, kiam ŝia fianĉo Kovaĝík deĵoris en la malsanu-
-
-
-MI EN LI
-
-
-lejo, estante studanto de medicino, ŝi eliris iom prome-
+dimanĉe, kiam ŝia fianĉo Kovaĝík deĵoris en la malsanulejo, estante studanto de medicino, ŝi eliris iom prome-
 
 ni. Tuj dimanĉe vespere ŝi ekfebregis, matene venigita
 
-kuracisto konstatis akutan pulminflamon kaj posttag-
-
-meze Mario Votëpková elspiris la lastan fojon. ĉe ŝia
+kuracisto konstatis akutan pulminflamon kaj posttagmeze Mario Votëpková elspiris la lastan fojon. ĉe ŝia
 
 lito, dum la mallonga, sed kruela batalo de ŝia korpo pri
 
 vivo, ĉeestis ankaŭ Kovaĝík, kiu same kiel doktoro N.
 
-konstatis la morton. Marde vespere oni veturigis la mor-
-
-tan knabinon al la kadavrejo; merkrede matene oni tro-
+konstatis la morton. Marde vespere oni veturigis la mortan knabinon al la kadavrejo; merkrede matene oni tro-
 
 vis ŝin apud la kruco.
 
@@ -779,31 +615,20 @@ kruco estis ankoraŭ varma. Kiam la ceteraj kuracistoj
 
 senĝene esprimis siajn dubojn, doktoro R. venigis du
 
-policanojn, kiujn li invitis matene, ke ili ekpalpu la tro-
+policanojn, kiujn li invitis matene, ke ili ekpalpu la trovitan korpon.
 
-vitan korpon.
-
-Ili ambaŭ jesis, ke la trovita korpo estis ankoraŭ var-
-
-ma. La knabino neniel aspektis kvazaŭ morta, sed kva-
+Ili ambaŭ jesis, ke la trovita korpo estis ankoraŭ varma. La knabino neniel aspektis kvazaŭ morta, sed kva-
 
 zaŭ dormanta.
 
-Profesoro Prokop ne kapablis reteni dubeman ek-
-
-skuon de la kapo post la deklaro de la du policanoj.
+Profesoro Prokop ne kapablis reteni dubeman ekskuon de la kapo post la deklaro de la du policanoj.
 
 ”Nu do, sinjoroj, ni lasu tion jam, eble vi havis iom tro
 
 
-MI EN LI
-
-
 malvarmajn manojn; kiu scias, kiel tio okazis. Tamen do
 
-vi ne volos aserti serioze ke la kompatindulino estis var-
-
-ma. Sinjoro kolego, mi efektive ne komprenas, kiel vi
+vi ne volos aserti serioze ke la kompatindulino estis varma. Sinjoro kolego, mi efektive ne komprenas, kiel vi
 
 povis ion —”
 
@@ -811,13 +636,9 @@ povis ion —”
 
 mi deklaris tion.”
 
-”Nu bone, la afero ja ne estus tiel danĝera, se via aser-
+”Nu bone, la afero ja ne estus tiel danĝera, se via aserto ne estus jam publikigita en la gazetoj. ĉu vi povas
 
-to ne estus jam publikigita en la gazetoj. ĉu vi povas
-
-imagi, kiel vi diskreditigis jen sinjoron kolegon? Kom-
-
-preneble vi riskis unuavice nur por vi. La morta knabino
+imagi, kiel vi diskreditigis jen sinjoron kolegon? Kompreneble vi riskis unuavice nur por vi. La morta knabino
 
 certe diros al ni ankoraŭ sufiĉe klare, kio okazis al ŝi kaj
 
@@ -827,9 +648,7 @@ la sekcadon por vidi, ke ni faros nenian maljustaĵon al
 
 vi.”
 
-”Mi estas tre danka al vi, tamen mi supozas, ke vi tro-
-
-vos mian aserton prava ankoraŭ pli frue, ol vi ekprenos
+”Mi estas tre danka al vi, tamen mi supozas, ke vi trovos mian aserton prava ankoraŭ pli frue, ol vi ekprenos
 
 la skalpelon en la manon.”
 
@@ -841,9 +660,7 @@ Cetere, sinjoro kolego, ni parolu jam serioze.”
 
 ”Mi petas, mi petas, sinjoro kolego, tre volonte!”
 
-”Do antaŭ ĉio diru al mi, sinjoro kolego N., ĉu Votëp-
-
-ková lunde eliris ien, antaŭ ol ŝi mortis? ĉu ŝi ellitiĝis
+”Do antaŭ ĉio diru al mi, sinjoro kolego N., ĉu Votëpková lunde eliris ien, antaŭ ol ŝi mortis? ĉu ŝi ellitiĝis
 
 eble dum febro kaj elkuris ien?”
 
@@ -852,12 +669,7 @@ eble dum febro kaj elkuris ien?”
 iu ĉe ŝi, oni surmetadis kompresojn al ŝi.”
 
 
-MI EN LI
-
-
-”Kaj sinjoro Kovaĝík, diru al mi afable, ĉu la malsanu-
-
-lino eble povis eliri aŭ ĉu ŝi ellitiĝis lunde?”
+”Kaj sinjoro Kovaĝík, diru al mi afable, ĉu la malsanulino eble povis eliri aŭ ĉu ŝi ellitiĝis lunde?”
 
 ”De post la lunda mateno proksimume de post la oka
 
@@ -869,17 +681,13 @@ vestis.”
 
 ”Kompreneble.”
 
-”Tion mi volis aŭdi. Nun permesos vi, sinjoro profes-
-
-oro. ĉu vi volas aserti, ke kadavro post dudek kvar ho-
+”Tion mi volis aŭdi. Nun permesos vi, sinjoro profesoro. ĉu vi volas aserti, ke kadavro post dudek kvar ho-
 
 roj kapablas ankoraŭ sangi?”
 
 ”Lasu ŝercojn! Tiucele ni ne venis ĉi tien.”
 
-”Ne temas pri ŝerco. Bonvolu afable rigardi, ke la ju-
-
-nulino havas sangmakulitajn piedojn.”
+”Ne temas pri ŝerco. Bonvolu afable rigardi, ke la junulino havas sangmakulitajn piedojn.”
 
 ”Poste tio ne estas ŝia sango!”
 
@@ -887,17 +695,13 @@ nulino havas sangmakulitajn piedojn.”
 
 rigardis tuj la aferon kaj vi certe faros tion ankaŭ.”
 
-Profesoro Prokop estus preferinta ekridi, sed rimark-
-
-ante, kiel serioze R. prononcas sian aserton, li skuis la
+Profesoro Prokop estus preferinta ekridi, sed rimarkante, kiel serioze R. prononcas sian aserton, li skuis la
 
 ŝultrojn kaj postulis, ke oni malfermu la pordon al la
 
 kadavrejo.
 
-Interne estis jam mallumete, tial oni lumigis la alpor-
-
-titajn lampojn.
+Interne estis jam mallumete, tial oni lumigis la alportitajn lampojn.
 
 Poste profesoro Prokop alpaŝis la ĉerkon, de kiu oni
 
@@ -905,19 +709,11 @@ deprenis la kovrilon kaj ordonis, ke oni levu la veston,
 
 kiu estis metita sur la kadavron.
 
-En la brilo de lampoj ŝajnis, ke kuŝas tie svelta, deli-
-
-
-MI EN LI
-
-
-kate modelita korpo de juna knabino, kiu ekdormis an-
+En la brilo de lampoj ŝajnis, ke kuŝas tie svelta, delikate modelita korpo de juna knabino, kiu ekdormis an-
 
 taŭ nelonge.
 
-Profesoro Prokop klinis sin super la ĉerkon kaj rigar-
-
-dis la knabinajn piedojn. Surprizita li rektigis sin.
+Profesoro Prokop klinis sin super la ĉerkon kaj rigardis la knabinajn piedojn. Surprizita li rektigis sin.
 
 ”Donu al mi — eble — la ĉemizon!”
 
@@ -931,9 +727,7 @@ taglumo li trarigardis ĝin. Poste li turnis sin al la ceteraj, kiuj estis sekvi
 
 ”Sinjoroj, ni staras antaŭ enigmo. Ni reeniru.”
 
-La necesaĵoj estis alveturigitaj kaj nun oni pretigis ra-
-
-pide operacian tablon.
+La necesaĵoj estis alveturigitaj kaj nun oni pretigis rapide operacian tablon.
 
 Oni lavis la piedojn de la kadavro por povi konstati,
 
@@ -945,9 +739,7 @@ de vitro. Post kiam la vundoj estis lavitaj, la sango ĉesis
 
 flui, sed la vundoj restis freŝaj kaj malseketaj.
 
-La medicinstudanto Kovaĝík petis de profesoro Pro-
-
-kop permeson, ke li povu ĉeesti la sekcadon. Li estis
+La medicinstudanto Kovaĝík petis de profesoro Prokop permeson, ke li povu ĉeesti la sekcadon. Li estis
 
 kunpreninta jam la blankan mantelon kaj, surmetinte
 
@@ -962,14 +754,9 @@ fermitaj okuloj, kun hararo mallonge tondita kaj sur la
 tempioj glate kombita, kiam li ekvidis Marion senveste
 
 
-MI EN LI
-
-
 ĉi tie kuŝantan, kvietan kaj kvazaŭ sonĝantan, ŝajnis al
 
-li, ke ŝi fermis la okulojn nur pro knabina honto. Plej vo-
-
-lonte li estus kovrinta ŝin kaj diranta al la ceteraj, ke ili foriru sur piedpintoj por ne veki ŝin.
+li, ke ŝi fermis la okulojn nur pro knabina honto. Plej volonte li estus kovrinta ŝin kaj diranta al la ceteraj, ke ili foriru sur piedpintoj por ne veki ŝin.
 
 Liaj manoj ektremis, li remetis la pladeton tien, de kie
 
@@ -987,19 +774,13 @@ Sur la kampa vojo de la tombejo jen kaj jen iris reen
 
 al Koôíĝe scivoluloj, tamen multaj ankoraŭ restis ĉe la
 
-muro kaj ĉe la pordego. Iliaj staturoj malheliĝis kaj kun-
+muro kaj ĉe la pordego. Iliaj staturoj malheliĝis kaj kunfandiĝis en nigriĝantan zonon, kiu borderis la tombejon
 
-fandiĝis en nigriĝantan zonon, kiu borderis la tombejon
-
-kvazaŭ viva barilo. Ankaŭ la policanoj, kiam la homama-
-
-so iom trankviliĝis, foriris de la pordego kaj eksidis, kie
+kvazaŭ viva barilo. Ankaŭ la policanoj, kiam la homamaso iom trankviliĝis, foriris de la pordego kaj eksidis, kie
 
 estis eble. ĉiuj rigardis la du altajn, mallarĝajn fenestrojn de la kadavrejo, kiuj brilis en la densiĝantan mallumon.
 
-Sed baldaŭ malfermiĝis rapide la pordo de la kadav-
-
-rejo, tra ĝi elŝprucis lumstriego kaj tuj poste eliris pro-
+Sed baldaŭ malfermiĝis rapide la pordo de la kadavrejo, tra ĝi elŝprucis lumstriego kaj tuj poste eliris pro-
 
 fesoro Prokop, kiu — evidente emociita — ekpromenis
 
@@ -1007,17 +788,10 @@ laŭlonge de la tomboj. Unu el la ĉeestantaj kuracistoj
 
 enpaŝis aŭtomobilon kaj rapide forveturis al Praha.
 
-Post nelonge eliris ankaŭ doktoro N. kaj Kovaĝík de-
-
-mandis lin, kio okazis. Doktoro N. skuis la ŝultrojn.
+Post nelonge eliris ankaŭ doktoro N. kaj Kovaĝík demandis lin, kio okazis. Doktoro N. skuis la ŝultrojn.
 
 
-MI EN LI
-
-
-”Kiam profesoro Prokop ektuŝis la kadavron per skal-
-
-pelo, elŝprucis sango.”
+”Kiam profesoro Prokop ektuŝis la kadavron per skalpelo, elŝprucis sango.”
 
 ”Kaj kion li intencas fari?”
 
@@ -1027,9 +801,7 @@ pelo, elŝprucis sango.”
 
 N. metis la manon sur la ŝultron de Kovaĝík:
 
-”Trankviliĝu, ĉi tiuokaze oni devas provi ĉion. Mia-
-
-flanke mi estas konvinkita, ke ni eraris konstatinte la
+”Trankviliĝu, ĉi tiuokaze oni devas provi ĉion. Miaflanke mi estas konvinkita, ke ni eraris konstatinte la
 
 morton. ĉu nun kuŝas en la kadavrejo morta korpo, tion
 
@@ -1043,9 +815,7 @@ kiel al estonta kuracisto, vi ankaŭ ĉeestis la morton — aŭ
 
 kiel mi nomu tion — de la junulino. Ni devoligis nin, ke
 
-ni diros al neniu ion, dum la afero ne estos plene klari-
-
-gita. Imagu nur, ke iu tie malantaŭ la muro ekscius, ke
+ni diros al neniu ion, dum la afero ne estos plene klarigita. Imagu nur, ke iu tie malantaŭ la muro ekscius, ke
 
 Votëpková eble ne estas morta. Supozeble oni forpelus
 
@@ -1057,21 +827,13 @@ La aŭtomobilo revenis tre baldaŭ kaj tuj oni ekprovis
 
 revivigi la knabinon.
 
-Nek oksigeno, nek injektoj vekis la knabinon. Profe-
-
-soro Prokop faris la lastan provon, arte ekmovigi la ko-
+Nek oksigeno, nek injektoj vekis la knabinon. Profesoro Prokop faris la lastan provon, arte ekmovigi la ko-
 
 ron. Li malfermis la bruston de la knabino, sed la koro
 
 estis kvieta kaj senmova. La koron oni ne vekis plu.
 
-La ĉeestantoj rimarkis, ke la korpo sangas nur iome-
-
-
-MI EN LI
-
-
-te. Profesoro Prokop ne hezitis deklari, ke la junulino
+La ĉeestantoj rimarkis, ke la korpo sangas nur iomete. Profesoro Prokop ne hezitis deklari, ke la junulino
 
 estas nekontesteble morta; ĉu ŝi estis viva frumatene,
 
@@ -1081,23 +843,17 @@ estas plu konstatebla.
 
 ”Ebla tio estas, ĉiu el ni povas erari. Plej bone estos
 
-nun, se ni komunikos niajn dubojn nur al la esplororga-
-
-noj. En la afero estas multo neklara, ja, se ni volas paroli
+nun, se ni komunikos niajn dubojn nur al la esplororganoj. En la afero estas multo neklara, ja, se ni volas paroli
 
 sincere, nenio estas klara en ĝi, tamen estas eble, ke ni
 
-trovos ion dum sekcado. ĉu iu el la sinjoroj kolegoj kon-
-
-traŭdiras la sekcadon?”
+trovos ion dum sekcado. ĉu iu el la sinjoroj kolegoj kontraŭdiras la sekcadon?”
 
 Neniu kontraŭdiris kaj la skalpelo denove ektuŝis la
 
 korpon de Manjo, kiu ankoraŭ ĉiam estis rozkolora kaj
 
-delikata, kvazaŭ ŝi estus ekdorminta nur antaŭ momen-
-
-to kaj nun estus sonĝanta pri io agrabla.
+delikata, kvazaŭ ŝi estus ekdorminta nur antaŭ momento kaj nun estus sonĝanta pri io agrabla.
 
 Per la sekcado estis konstatite, ke Mario Votëpková
 
@@ -1105,9 +861,7 @@ mortis pro korparalizo sekve de influenco. Antaŭ sia
 
 morto ŝi estis alirilate tute sana. Sur la korpo oni trovis
 
-neniujn postsignojn de perforto, nur kelkajn tranĉvun-
-
-dojn sur la plandoj, verŝajne de vitro.
+neniujn postsignojn de perforto, nur kelkajn tranĉvundojn sur la plandoj, verŝajne de vitro.
 
 Eĉ per la sekcado ne estis konstatite, kiam la knabino
 
@@ -1115,19 +869,11 @@ mortis kaj kiel okazis, ke ŝi troviĝis ĉe la kruco apud la
 
 ŝoseo, kvincent metrojn malproksime de la tombejo.
 
-Profesoro Prokop mallaŭte fajfetadis, sed ne plu ride-
-
-tis, kiel antaŭ la sekcado. Ankaŭ la ceteraj ĉeestantoj ne
+Profesoro Prokop mallaŭte fajfetadis, sed ne plu ridetis, kiel antaŭ la sekcado. Ankaŭ la ceteraj ĉeestantoj ne
 
 estis diskutemaj. Nur la polica komisaro Kubásek,
 
-ĉeestinta la sekcadon, traserĉadis la kadavrejon kaj ŝaj-
-
-
-MI EN LI
-
-
-nis, ke por ekscii ion, li estus ŝatinta enigi sian malgran-
+ĉeestinta la sekcadon, traserĉadis la kadavrejon kaj ŝajnis, ke por ekscii ion, li estus ŝatinta enigi sian malgran-
 
 dan statureton en ĉiun truon, kiun li trovis. La kovrilon
 
@@ -1159,28 +905,19 @@ Kubásek skuis la ŝultrojn.
 
 ”Se vi povus diri al mi, kiel ŝi kuŝis en la ĉerko, eble
 
-estus troveblaj ceteraj eksteraj postsignoj. Sinjoro pro-
-
-fesoro, ĉu estas do nepre certe, ke la knabino post la
+estus troveblaj ceteraj eksteraj postsignoj. Sinjoro profesoro, ĉu estas do nepre certe, ke la knabino post la
 
 morto ne estis iel malinde traktata?”
 
-”Eĉ ne dum la vivo, sinjoro komisaro; la knabino es-
-
-tas nepre netuŝita, ia eraro estas ekskludita.”
+”Eĉ ne dum la vivo, sinjoro komisaro; la knabino estas nepre netuŝita, ia eraro estas ekskludita.”
 
 La komisaro trarigardis la ŝraŭbojn.
 
 ”Sen ekstera helpo la junulino kapablis eliĝi nek el la
 
-ĉerko nek el la kadavrejo. Supozeble iu sciis, ke la kna-
-
-bino ne mortis, kaj venis preni ŝin.”
+ĉerko nek el la kadavrejo. Supozeble iu sciis, ke la knabino ne mortis, kaj venis preni ŝin.”
 
 La ĉeestantoj demandis dubeme, kiun celon havus,
-
-
-MI EN LI
 
 
 lasi la knabinon en la ĉerko kaj nur en la nokto helpi ŝin
@@ -1213,9 +950,7 @@ tie.”
 
 La komisaro ekridetis kaj rigardis doktoron R.
 
-”ĉi tiun problemon mi ne intencas solvi. Min pli in-
-
-teresas la persono, verŝajne viro, kiu estis ĉi tie en la
+”ĉi tiun problemon mi ne intencas solvi. Min pli interesas la persono, verŝajne viro, kiu estis ĉi tie en la
 
 nokto al la hodiaŭa tago, kiu tiel zorgeme forviŝis ĉiujn
 
@@ -1232,9 +967,6 @@ Komisaro Kubásek ne respondis rekte, sed li mem
 turnis sin al doktoro R. demandante:
 
 ”ĉu vi bone konas la medicinstudanton Kovaĝík?”
-
-
-MI EN LI
 
 
 ”Se vi havas ian suspekton kontraŭ li, vi estas — laŭ
@@ -1263,43 +995,28 @@ tombeja pordego restis nur malgranda areto da homoj.
 
 Eĉ ne ĉiuj ĵurnalistoj restis tie. Kelkaj el ili miksiĝis inter la homojn antaŭ la pordego kaj esploris je propra risko.
 
-Komisaro Kubásek alpaŝis la medicinstudanton Ko-
-
-vaĝík, kiu ankoraŭ ĉiam atendis en la tombejo la finon
+Komisaro Kubásek alpaŝis la medicinstudanton Kovaĝík, kiu ankoraŭ ĉiam atendis en la tombejo la finon
 
 de la sekcado.
 
-”Bone, ke vi restis ĉi tie, almenaŭ ni ne estas deviga-
+”Bone, ke vi restis ĉi tie, almenaŭ ni ne estas devigataj serĉi vin. Vi veturos afable kun mi en la polican di-
 
-taj serĉi vin. Vi veturos afable kun mi en la polican di-
+rekcion, estos necese priparoli kelkion kaj plej bone estos, se ni priparolos tion tuj.”
 
-rekcion, estos necese priparoli kelkion kaj plej bone es-
-
-tos, se ni priparolos tion tuj.”
-
-Kovaĝík ne pripensante longe konsentis, sed rimark-
-
-inte la subrigardojn de kelkaj ĉeestantoj, li haltis kaj diris al la komisaro:
+Kovaĝík ne pripensante longe konsentis, sed rimarkinte la subrigardojn de kelkaj ĉeestantoj, li haltis kaj diris al la komisaro:
 
 ”Bonvolu demandi min ĉi tie, mi diris ja al vi jam ĉion,
 
 kion mi sciis, mi ne emas veturi en la urbon.”
 
 
-MI EN LI
-
-
-La komisaro Kubásek, kvazaŭ volante trankviligi Ko-
-
-vaĝíkon, metis la manon sur lian ŝultron.
+La komisaro Kubásek, kvazaŭ volante trankviligi Kovaĝíkon, metis la manon sur lian ŝultron.
 
 ”Ni komprenas ja unu la alian; la afero postulas, ke vi
 
 iru kun ni. Mi supozas, ke ĝuste vi donos al ni bonajn
 
-informojn kaj poste ni iros jam en la direkto, kiu kondu-
-
-kos al celo.”
+informojn kaj poste ni iros jam en la direkto, kiu kondukos al celo.”
 
 ”Mi ne iros kun vi.”
 
@@ -1313,13 +1030,9 @@ iros plu kun mi same, kiel ni iris ĝis nun.”
 
 vin jam ĉi tie?”
 
-Kovaĝík rigardis esploreme en la okulojn de la komi-
+Kovaĝík rigardis esploreme en la okulojn de la komisaro.
 
-saro.
-
-”ĉu tiel statas la afero? Tiuokaze prefere ekagu, sin-
-
-joro komisaro.”
+”ĉu tiel statas la afero? Tiuokaze prefere ekagu, sinjoro komisaro.”
 
 ”Ne estu malprudenta kaj venu kun ni.”
 
@@ -1331,9 +1044,7 @@ La komisaro prenis lin denove je la ŝultro kaj devigis
 
 lin kuniri plu.
 
-”Mi povas kontraŭe diri al vi: Se vi estus en mia haŭ-
-
-to, vi ankaŭ ridetus. Tamen venu, oni observas nin. An-
+”Mi povas kontraŭe diri al vi: Se vi estus en mia haŭto, vi ankaŭ ridetus. Tamen venu, oni observas nin. An-
 
 kaŭ antaŭ la pordego oni bruas.”
 
@@ -1342,18 +1053,11 @@ Kiam la aŭtomobiloj estis ekveturantaj el la tombejo
 kaj oni rimarkis en unu el ili Kovaĝíkon sidanta apud la
 
 
-MI EN LI
-
-
-komisaro, la bruo pligrandiĝis kaj la restinta, sed an-
-
-koraŭ konsiderinde grandnombra homamaso ariĝis ĉir-
+komisaro, la bruo pligrandiĝis kaj la restinta, sed ankoraŭ konsiderinde grandnombra homamaso ariĝis ĉir-
 
 kaŭ la aŭtomobilo.
 
-”Ankaŭ Kovaĝíkon oni arestis. Rigardu! Ankaŭ Kova-
-
-ĝík.”
+”Ankaŭ Kovaĝíkon oni arestis. Rigardu! Ankaŭ Kovaĝík.”
 
 Sed la voĉoj kaj krioj tuj restis post la aŭtomobiloj,
 
@@ -1365,19 +1069,13 @@ antaŭ tranĉilo.
 
 La sciigoj de la matenĵurnaloj, komentantaj nur tre
 
-koncize la deklaron de la polica korespondenco eldoni-
+koncize la deklaron de la polica korespondenco eldonitan dum la nokto, ne tro diferencis. Estis ankaŭ jam tro
 
-tan dum la nokto, ne tro diferencis. Estis ankaŭ jam tro
-
-malfrue por serĉi informojn je propra risko, kiam la es-
-
-plororganoj kaj kuracistoj rifuzis kiun ajn informon.
+malfrue por serĉi informojn je propra risko, kiam la esplororganoj kaj kuracistoj rifuzis kiun ajn informon.
 
 La seniluziigita publiko atendis nur ĝis tagmezo, kiam
 
-la tagmezĵurnaloj publikigis kelkajn detalojn pri la sek-
-
-cado kaj kompensis, kion la matenĵurnaloj nur malvo-
+la tagmezĵurnaloj publikigis kelkajn detalojn pri la sekcado kaj kompensis, kion la matenĵurnaloj nur malvo-
 
 lonte diris nekomplete.
 
@@ -1387,33 +1085,20 @@ reciproke kontraŭajn opiniojn de la kuracistoj. Kvankam
 
 oni ne skribis rekte kontraŭ ili, tamen tre zorgeme oni
 
-menciis ĉiujn opiniojn de homoj ariĝintaj apud la tom-
-
-bejo. Preciza rezulto de la sekcado ne estis konata, sed
+menciis ĉiujn opiniojn de homoj ariĝintaj apud la tombejo. Preciza rezulto de la sekcado ne estis konata, sed
 
 ĝia sekretigo tute sufiĉis por konstati, ke la kuracistoj
 
-trovis nenion kaj staras nun senkonsilaj. La malicaj ra-
-
-portistoj eĉ ne supozis, kiel proksimaj ili estas al la vero.
-
-
-MI EN LI
+trovis nenion kaj staras nun senkonsilaj. La malicaj raportistoj eĉ ne supozis, kiel proksimaj ili estas al la vero.
 
 
 La ŝlosilafero ricevis mokan nuancon pro demando,
 
-kial oni kulpigu la tombiston pri ŝtelo de la unua ŝlosi-
+kial oni kulpigu la tombiston pri ŝtelo de la unua ŝlosilo, se li povis uzi la sian, kiu pendis super la tablo. Pli
 
-lo, se li povis uzi la sian, kiu pendis super la tablo. Pli
+grandan signifon oni donis al la aresto de medicinstudanto Kovaĝík, sed tiurilate la opinioj estis diversaj.
 
-grandan signifon oni donis al la aresto de medicinstu-
-
-danto Kovaĝík, sed tiurilate la opinioj estis diversaj.
-
-Sed *La Tagmezo* denove estis tiu, kiu publikigis deta-
-
-lojn kaj surprizis eĉ per sia opinio. Laŭlarĝe de la tuta
+Sed *La Tagmezo* denove estis tiu, kiu publikigis detalojn kaj surprizis eĉ per sia opinio. Laŭlarĝe de la tuta
 
 unua paĝo ĝi havis surskribon:
 
@@ -1421,58 +1106,37 @@ unua paĝo ĝi havis surskribon:
 
 Esence la asertoj de *La Tagmezo* estis efektiva vero kaj ankaŭ la negativa rezulto de la sekcado estis jam publikigita tute certe. La reciproke kontraŭaj asertoj de la
 
-kuracistoj estis komparataj kaj per dikaj literoj estis pre-
-
-sita la demando de doktoro R. al profesoro Prokop: ”Sin-
+kuracistoj estis komparataj kaj per dikaj literoj estis presita la demando de doktoro R. al profesoro Prokop: ”Sin-
 
 joro profesoro, ĉu vi volas aserti, ke mortinto post dudek
 
 kvar horoj ankoraŭ kapablas sangi?”
 
-Por ke estu nepre nedubinde, ke ĉi tiu demando efek-
+Por ke estu nepre nedubinde, ke ĉi tiu demando efektive estis prononcita, la redaktoro de *La Tagmezo * deklaris, ke li aŭdis ĝin per siaj propraj oreloj, kiam li staris
 
-tive estis prononcita, la redaktoro de *La Tagmezo * deklaris, ke li aŭdis ĝin per siaj propraj oreloj, kiam li staris
-
-malantaŭ la muro apud la kadavrejo. Sed li menciis an-
-
-kaŭ, kion li eksciis private.
+malantaŭ la muro apud la kadavrejo. Sed li menciis ankaŭ, kion li eksciis private.
 
 
-Super la kvieta ŝtonrompejo kantis merlo kaj arboj de-
-
-likate susuris per sia unua verdaĵo sur deklivo. La firma-
+Super la kvieta ŝtonrompejo kantis merlo kaj arboj delikate susuris per sia unua verdaĵo sur deklivo. La firma-
 
 mento estis pura kiel fenestro antaŭ festotagoj.
 
 
-MI EN LI
+Supre sur la rando de la ŝtonrompejo kuŝis pala junulo, kaj rigardis trans la ŝtonminejon malsupren al ligna
 
-
-Supre sur la rando de la ŝtonrompejo kuŝis pala junu-
-
-lo, kaj rigardis trans la ŝtonminejon malsupren al ligna
-
-budo, ĉirkaŭ kiu kuradis kelke da hundoj. Ili bojadis in-
-
-citite. El la budo eliris juna viro, ne multe pli aĝa ol tiu, kiu kuŝis supre, kaj kvietigis la hundojn. Kiam ili ne ĉesis boji, li esplorrigardis la ĉirkaŭaĵon. Li vidis nenion, la junulo supre kaŝis sin.
+budo, ĉirkaŭ kiu kuradis kelke da hundoj. Ili bojadis incitite. El la budo eliris juna viro, ne multe pli aĝa ol tiu, kiu kuŝis supre, kaj kvietigis la hundojn. Kiam ili ne ĉesis boji, li esplorrigardis la ĉirkaŭaĵon. Li vidis nenion, la junulo supre kaŝis sin.
 
 Kaj tiun varmetan tagon fine de aprilo la hundoj ĉe la
 
-budo ne volis silentiĝi kaj ekbojis ankoraŭ kelkfoje tia-
-
-maniere, ke la juna viro ĉiufoje eliris el la budo kaj alkriis ilin. Tiam la alia super la ŝtonrompejo ĉiun fojon singarde klinis la kapon al la tero kaj premante al la okuloj
+budo ne volis silentiĝi kaj ekbojis ankoraŭ kelkfoje tiamaniere, ke la juna viro ĉiufoje eliris el la budo kaj alkriis ilin. Tiam la alia super la ŝtonrompejo ĉiun fojon singarde klinis la kapon al la tero kaj premante al la okuloj
 
 binoklon atente rigardis la loĝanton de la budo.
 
-Tiel alproksimiĝis tagmezo kaj en la urbo eksonis faj-
-
-filegoj, kiuj sonadis je la unua kaj je la duono antaŭ la
+Tiel alproksimiĝis tagmezo kaj en la urbo eksonis fajfilegoj, kiuj sonadis je la unua kaj je la duono antaŭ la
 
 dua. Tiam denove malfermiĝis la pordo de la budo kaj
 
-la juna viro, malliginte ĉiujn hundojn, ekpaŝis sur la ŝo-
-
-seon. Li estis mezstatura, svelta, mallarĝŝultra, lia vizaĝo
+la juna viro, malliginte ĉiujn hundojn, ekpaŝis sur la ŝoseon. Li estis mezstatura, svelta, mallarĝŝultra, lia vizaĝo
 
 estis nerazita kaj el sub malgranda ĉapelo eliĝis senzorge
 
@@ -1486,25 +1150,16 @@ Li transpaŝis la ŝoseon kaj ekmarŝis trans herbejon al
 
 la kontraŭa deklivo, al la kolonio Václavka.
 
-Kiam li estis malaperinta post domoj, la alia alproksi-
-
-miĝis singarde al la ligna barilo, kiu ĉirkaŭis ian korte-
+Kiam li estis malaperinta post domoj, la alia alproksimiĝis singarde al la ligna barilo, kiu ĉirkaŭis ian korte-
 
 
-MI EN LI
-
-
-ton ĉirkaŭ la budo, sed la hundoj komencis boji tiel fu-
-
-rioze, ke li — timante allogi iun el la proksima brikfarejo
+ton ĉirkaŭ la budo, sed la hundoj komencis boji tiel furioze, ke li — timante allogi iun el la proksima brikfarejo
 
 — rapide foriris norden kaj laŭlonge de legomĝardeno
 
 li eniris kampojn.
 
-ĉi tie dekstre de la vojo kondukanta al la tombejo kre-
-
-skis nova kolonio Ladronka. La unuaj proksimaj dome-
+ĉi tie dekstre de la vojo kondukanta al la tombejo kreskis nova kolonio Ladronka. La unuaj proksimaj dome-
 
 toj staris ankoraŭ nude konstruitaj el brikoj sen stukaĵo,
 
@@ -1518,27 +1173,19 @@ Unu dufamilia dometo ĉe la fino ŝajnis esti loĝata. En
 
 malfermitaj fenestroj pendis larĝaj kurtenoj kaj en la
 
-ĝardeno, similanta eble pli dishakitan kampon, junuli-
+ĝardeno, similanta eble pli dishakitan kampon, junulino glatigis ion.
 
-no glatigis ion.
-
-La junulino ekrimarkis la iranton kaj apogis sin je pi-
-
-oĉo, poste rapide ŝi alpaŝis la barilon:
+La junulino ekrimarkis la iranton kaj apogis sin je pioĉo, poste rapide ŝi alpaŝis la barilon:
 
 ”Jarĉjo!”
 
 La junulo haltis kaj rerigardis mirigita.
 
-”Jarĉjo, ĉu estas vi? Kion vi faras ĉe ni ĉi tie en la kam-
-
-paro?”
+”Jarĉjo, ĉu estas vi? Kion vi faras ĉe ni ĉi tie en la kamparo?”
 
 Kaj kiam la junulo daŭre staris malproksime de la
 
-barilo kaj ne alproksimiĝis, la knabino evidente malga-
-
-je aldonis:
+barilo kaj ne alproksimiĝis, la knabino evidente malgaje aldonis:
 
 ”ĉu vi ne volas rekoni min?”
 
@@ -1547,26 +1194,19 @@ Nur tiam la junulo kvazaŭ rekonsciiĝinte demetis la
 ĉapelon kaj alpaŝinte la barilon deziris bonan tagon.
 
 
-MI EN LI
-
-
 Al la barilo fiksiĝis silento kaj disigis ilin ambaŭ ne
 
 malpli firme.
 
 Ili rigardis sin reciproke scivoleme kaj embarase kaj
 
-estus ŝatintaj rideti, sed la rido forflugis de ili. Unu rigardis en la okulojn de la alia, sed ili rimarkis, ke iu pendi-
-
-gis kurtenojn en la fenestroj kaj ke ne plu estis eble ri-
+estus ŝatintaj rideti, sed la rido forflugis de ili. Unu rigardis en la okulojn de la alia, sed ili rimarkis, ke iu pendigis kurtenojn en la fenestroj kaj ke ne plu estis eble ri-
 
 gardi internen.
 
 ”Mia dorso doloras jam hodiaŭ.”
 
-Li ne kapablis reteni ridon, kiu ŝajnis esti tiom mal-
-
-proksime.
+Li ne kapablis reteni ridon, kiu ŝajnis esti tiom malproksime.
 
 ”Mi opiniis, ke vi estas jam edziniĝinta.”
 
@@ -1594,14 +1234,9 @@ barilaj stangetoj:
 
 ” ’La doktoro’ estas ankoraŭ antaŭ mi kaj la ’Jarĉjo’
 
-estas — laŭ mia opinio — iom malantaŭ ni; eble ’Kova-
-
-ĝík’, se estas permesite peti.”
+estas — laŭ mia opinio — iom malantaŭ ni; eble ’Kovaĝík’, se estas permesite peti.”
 
 ”Ni estis infanoj, kial koleri?”
-
-
-MI EN LI
 
 
 Li retiris sian manon.
@@ -1612,9 +1247,7 @@ Vi terure maljuniĝis kaj plisaĝiĝis.”
 
 ”Ne tiagrade, kiel vi opinias, sinjoro Kovaĝík.”
 
-”Nevolonte, sed tamen mi devas persisti pri mia aser-
-
-to.”
+”Nevolonte, sed tamen mi devas persisti pri mia aserto.”
 
 ”Kaj ĉefe ni devas disputi, kiel ni ĉiam disputis.”
 
@@ -1646,9 +1279,7 @@ prenis lin je la mano kaj tiris lin post si.
 
 ”Ne faru, kvazaŭ vi hontus.”
 
-ŝi kondukis lin sur brika trotuareto al la domo, mal-
-
-fermis la pordon kaj enkondukis lin en la halon. Scivo-
+ŝi kondukis lin sur brika trotuareto al la domo, malfermis la pordon kaj enkondukis lin en la halon. Scivo-
 
 le li ĉirkaŭrigardis la trankvilan, vastan ejon.
 
@@ -1657,12 +1288,7 @@ le li ĉirkaŭrigardis la trankvilan, vastan ejon.
 ŝi montris al li en la teretaĝo la manĝoĉambron, la
 
 
-MI EN LI
-
-
-ĉambron por fumantoj, la saloneton kaj poste ŝi kondu-
-
-kis lin en la supran etaĝon.
+ĉambron por fumantoj, la saloneton kaj poste ŝi kondukis lin en la supran etaĝon.
 
 ”ĉion mi devas montri al vi kaj vi diros poste al mi, ĉu
 
@@ -1680,9 +1306,7 @@ por fumantoj ŝi proponis aj li likvorojn, ŝi petis lin, ke li nomu ŝin denove
 
 ”ĉu tio doloris vin kelkfoje? Tion vi devus rakonti al
 
-mi, sed kiom mi scias, vi havis seriozan — mia dio, Jar-
-
-ĉjo, ĉiam mi cerbumis, kion mi volas demandi vin. Vi
+mi, sed kiom mi scias, vi havis seriozan — mia dio, Jarĉjo, ĉiam mi cerbumis, kion mi volas demandi vin. Vi
 
 estis ja malliberigita en la punjura juĝejo!”
 
@@ -1700,18 +1324,13 @@ je mi?”
 
 Ili ambaŭ eksilentis kaj ŝajnis, ke la interparolo finiĝis.
 
-Tial Kovaĝík leviĝis por adiaŭi. Sed ŝi alpaŝis lin kaj, me-
-
-tinte siajn manojn sur liajn ŝultrojn, ŝi devigis lin denove
+Tial Kovaĝík leviĝis por adiaŭi. Sed ŝi alpaŝis lin kaj, metinte siajn manojn sur liajn ŝultrojn, ŝi devigis lin denove
 
 eksidi.
 
 ”Mi atendas, ke vi diros ion al mi, kaj vi volas foriri.
 
 Sidiĝu! Espereble mi ne bezonas certigi vin, kiel tiu afero
-
-
-MI EN LI
 
 
 kortuŝis min, ĝi okazis ja kelkajn paŝojn de ĉi tie. ĉu vi
@@ -1740,19 +1359,13 @@ Oni forprenis tiam la gazetojn de mi, mi volis forkuri de
 
 ĉi tie. Mi scias verdire nur tre malmulte.”
 
-Li rakontis do al ŝi la okazaĵojn sur la tombejo, pri dis-
-
-puto de la kuracistoj.
+Li rakontis do al ŝi la okazaĵojn sur la tombejo, pri disputo de la kuracistoj.
 
 ”Tuj kiam oni alveturigis min en la polican direkcion,
 
-oni longe demandesploris min, per kio oni tamen neni-
+oni longe demandesploris min, per kio oni tamen nenion eksciis. La tuta afero influis min tiel, ke mi fariĝis iom obstina. is la mateno oni klopodis ekscii ion de mi kaj
 
-on eksciis. La tuta afero influis min tiel, ke mi fariĝis iom obstina. is la mateno oni klopodis ekscii ion de mi kaj
-
-retenis min tie dum kelkaj tagoj. Nur premataj de la pu-
-
-bliko oni liberlasis, sed gardis min.”
+retenis min tie dum kelkaj tagoj. Nur premataj de la publiko oni liberlasis, sed gardis min.”
 
 ”Kiom mi scias, oni ne trovis la veran kulpulon.”
 
@@ -1763,18 +1376,13 @@ arestis kvin personojn inkluzive min. Du laboristojn el
 brikfarejo kaj iun vagulon. ĉiuj estas jam ree liberlasitaj;
 
 
-MI EN LI
-
-
 ni ĉiuj pruvis alibion krom la tombisto, sed tiu nepre ne
 
 faris tion.”
 
 ”Krom vi li estis plej multe suspektata.”
 
-”Kompreneble, sed la tuta afero estis farita tiamanie-
-
-re, ke estis neimageble aljuĝi ĝin al iu tombisto.”
+”Kompreneble, sed la tuta afero estis farita tiamaniere, ke estis neimageble aljuĝi ĝin al iu tombisto.”
 
 ”ĉu vi opinias, ke la krimulo estis ruzega?”
 
@@ -1782,9 +1390,7 @@ re, ke estis neimageble aljuĝi ĝin al iu tombisto.”
 
 ke la tuta fatala okazaĵo ŝajnas havi motivon, pri kiu oni
 
-ne parolis multe al la publiko, kiu tamen ankoraŭ hodi-
-
-aŭ sendormigas multajn homojn.”
+ne parolis multe al la publiko, kiu tamen ankoraŭ hodiaŭ sendormigas multajn homojn.”
 
 ”Kaj ĉu vi dormas?”
 
@@ -1796,13 +1402,9 @@ aŭ sendormigas multajn homojn.”
 
 tiam laŭ la publika opinio. ĉi tiu opinio ne estas tute
 
-prava, tamen multo ankoraŭ estas esplorota. Por la ku-
+prava, tamen multo ankoraŭ estas esplorota. Por la kuracistaro estis granda feliĉo, ke unue oni serĉis la kulpu-
 
-racistaro estis granda feliĉo, ke unue oni serĉis la kulpu-
-
-lon. ĉiu demandis: Kiu faris tion? Por ke li povu esti pu-
-
-nata! Sed eble multe pli grave estis demandi: Kion ĉion
+lon. ĉiu demandis: Kiu faris tion? Por ke li povu esti punata! Sed eble multe pli grave estis demandi: Kion ĉion
 
 li faris? Mi konjektas, ke sur tiu ĉi vojo oni pli facile estus povintaj trovi la farinton.”
 
@@ -1812,17 +1414,10 @@ li faris? Mi konjektas, ke sur tiu ĉi vojo oni pli facile estus povintaj trovi 
 
 tion oni ne scias!”
 
-Kiam li eksilentis por momento, Míla observis la mal-
-
-grasiĝintan profilon de Kovaĝík.
+Kiam li eksilentis por momento, Míla observis la malgrasiĝintan profilon de Kovaĝík.
 
 
-MI EN LI
-
-
-”ĉu pli multe vi ne diros al mi? Mi opinias, ke vi sci-
-
-as pli multe, aŭ ke vi ion konjektas.”
+”ĉu pli multe vi ne diros al mi? Mi opinias, ke vi scias pli multe, aŭ ke vi ion konjektas.”
 
 Li ridetis amare. Poste li elpoŝigis ledan paperujon kaj
 
@@ -1867,12 +1462,7 @@ sciigo.”
 ”Mi mem skribis tien, sed oni respondis elturniĝeme.
 
 
-MI EN LI
-
-
-Mi konstatis nur, ke la koncerna bankoficisto proksimu-
-
-me post tri semajnoj malvarmiĝis.”
+Mi konstatis nur, ke la koncerna bankoficisto proksimume post tri semajnoj malvarmiĝis.”
 
 ”Kaj ĉu vi kredas, ke ĉi tiuokaze …?”
 
@@ -1882,15 +1472,11 @@ me post tri semajnoj malvarmiĝis.”
 
 Kovaĝík skuis nee la kapon.
 
-”Mi ankaŭ ne volas kredi, tamen kiel mi diris: Mi ti-
-
-mas. Tial mi ne ĉesos, tial mi ne estos trankvila, ĝis mi
+”Mi ankaŭ ne volas kredi, tamen kiel mi diris: Mi timas. Tial mi ne ĉesos, tial mi ne estos trankvila, ĝis mi
 
 ekscios.”
 
-Li ekstaris kaj emociita li komencis paŝadi tra la ĉam-
-
-bro. ŝi observis lin kelkan tempon kaj atendis, ĝis li hal-
+Li ekstaris kaj emociita li komencis paŝadi tra la ĉambro. ŝi observis lin kelkan tempon kaj atendis, ĝis li hal-
 
 tos antaŭ ŝi. Li faris tion, kiel jam kelkfoje pli frue, dum
 
@@ -1912,35 +1498,22 @@ mortis, sed nur post ŝia morto okazis kun ŝi io stranga,
 
 certe abomeninda, kiu scias. Sed mi kredas, ke ŝi vivis
 
-denove, almenaŭ kelkan tempon. Mi kredas, ke ĉi tiuo-
-
-kaze estis efektivigita interveno de ekstere, per mano
+denove, almenaŭ kelkan tempon. Mi kredas, ke ĉi tiuokaze estis efektivigita interveno de ekstere, per mano
 
 krima, tamen treege kuraĝa kaj pli saĝa kaj pli sperta, ol
 
 
-MI EN LI
-
-
-estas ni ĝis nun. Kaj tiu mano ne povas esti tro malprok-
-
-sime de ĉi tie.”
+estas ni ĝis nun. Kaj tiu mano ne povas esti tro malproksime de ĉi tie.”
 
 ”ĉu vi havas jam iajn pruvojn?”
 
-”Ne, bedaŭrinde, mi havas nur konjektojn kaj suspek-
-
-tojn.”
+”Ne, bedaŭrinde, mi havas nur konjektojn kaj suspektojn.”
 
 ”Kaj kiel mi povus helpi vin?”
 
-”Mi opinias, ke tre facile; du okulparoj vidas pli mul-
+”Mi opinias, ke tre facile; du okulparoj vidas pli multe ol unu. ĉiuj cirkonstancoj atestas, ke la delikton efek-
 
-te ol unu. ĉiuj cirkonstancoj atestas, ke la delikton efek-
-
-tivigis iu, kiu bone konas la cirkonstancojn en la tombe-
-
-jo. Kompreneble, eniri la tombejon povas ĉiu, sed la
+tivigis iu, kiu bone konas la cirkonstancojn en la tombejo. Kompreneble, eniri la tombejon povas ĉiu, sed la
 
 tombisto diris al mi, ke fremdaj personoj venas ĉi tien
 
@@ -1960,22 +1533,15 @@ La tombiston mi ne suspektas, mi diris tion jam al vi,
 
 li estas bonkora, iom babilema homo kaj mi ellogis el li
 
-ĉion, kion li sciis. Kompreneble mi demandas lin singar-
-
-de, sed mi vizitas la tombon de Manjo, tial la tombisto
+ĉion, kion li sciis. Kompreneble mi demandas lin singarde, sed mi vizitas la tombon de Manjo, tial la tombisto
 
 fidas min; oni arestis ja nin ambaŭ.”
 
 La rememoro pri Mario Votëpková ekinfluis ambaŭ
 
-junajn homojn. Kovaĝík eksilentis kaj Míla same enpen-
-
-siĝinta embarase frotis per la mano la tablorandon. Pos-
+junajn homojn. Kovaĝík eksilentis kaj Míla same enpensiĝinta embarase frotis per la mano la tablorandon. Pos-
 
 te, kvazaŭ en interkonsento, ili ekrigardis sin reciproke.
-
-
-MI EN LI
 
 
 ”ĉu vi amis ŝin?”
@@ -1990,9 +1556,7 @@ ne scias, kiel!”
 
 ”Tuj mi diros tion al vi. Mi serĉas kaj gardas ĉi tie jam
 
-preskaŭ dum tri semajnoj kaj esplorota restas al mi an-
-
-koraŭ nur ĉi tiu parto en la direkto al Klikovka.”
+preskaŭ dum tri semajnoj kaj esplorota restas al mi ankoraŭ nur ĉi tiu parto en la direkto al Klikovka.”
 
 ”Mi konjektas, ke ĝis nun vi trovis verŝajne nenion.”
 
@@ -2006,9 +1570,7 @@ de ĉi tiu flanko laŭlonge de via ĝardeno.”
 
 ”Tion mi povas jam nun diri al vi, ni estas jam pli ol
 
-unu semajnon en la ĝardeno kaj neniu preterpasas ne-
-
-observita de ni, ĉar ni estas ĉi tie verdire en la solejo. Mi enuas ĉi tie terure, eĉ la plej malgranda movo ne povas
+unu semajnon en la ĝardeno kaj neniu preterpasas neobservita de ni, ĉar ni estas ĉi tie verdire en la solejo. Mi enuas ĉi tie terure, eĉ la plej malgranda movo ne povas
 
 resti nerimarkata de mi; vi aŭdis nian hundon, kiam vi
 
@@ -2022,17 +1584,9 @@ Kovaĝík senpacience kliniĝis antaŭen.
 
 ”ĉu vi suspektas iun?”
 
-”Ho ne! La hundo albojas ankaŭ paserojn por ne mal-
+”Ho ne! La hundo albojas ankaŭ paserojn por ne malkutimiĝi. Iru nur iom en la direkto al Klikovka por vidi,
 
-kutimiĝi. Iru nur iom en la direkto al Klikovka por vidi,
-
-kia estas la vojo tie. Kaj nun ĝi sekiĝas jam. ĉi tiun vo-
-
-
-MI EN LI
-
-
-jon neniu iras. Ni mem iras la vojon, sur kiu vi venis,
+kia estas la vojo tie. Kaj nun ĝi sekiĝas jam. ĉi tiun vojon neniu iras. Ni mem iras la vojon, sur kiu vi venis,
 
 kvankam ĝi estas duoble pli longa. Viva estaĵo ne venas
 
@@ -2054,9 +1608,7 @@ Amarete kaj preskaŭ moke ŝi diris:
 
 ”Ne troigu!”
 
-”ĉiun unuopan tagon mi enĉerkigas vespere kaj pri-
-
-ploras ĝin, kvazaŭ mortnaskitan. Tombejo estas en mi
+”ĉiun unuopan tagon mi enĉerkigas vespere kaj priploras ĝin, kvazaŭ mortnaskitan. Tombejo estas en mi
 
 kaj ĝi enhavas jam longajn vicojn de tiaj tombetoj.”
 
@@ -2085,12 +1637,7 @@ kvieton.”
 ”Mi supozis, ke mona˛ino povus loĝi ĉi tie.”
 
 
-MI EN LI
-
-
-”Unuflanke mi ne estas mona˛ino kaj aliflanke vi tre-
-
-ege eraras. Vi ne povas imagi, kiel oni estas ligata per tia
+”Unuflanke mi ne estas mona˛ino kaj aliflanke vi treege eraras. Vi ne povas imagi, kiel oni estas ligata per tia
 
 dometo; ĝi estas reto, certe ne peza, sed oni ne kapablas
 
@@ -2102,9 +1649,7 @@ rerigardas kaj vidas, ke nenio estas farita.”
 
 ŝi rimarkis lian nekredeman rideton kaj embarasiĝis.
 
-”Mi rakontas al vi sensencaĵojn, kiujn vi ne volas aŭs-
-
-kulti.”
+”Mi rakontas al vi sensencaĵojn, kiujn vi ne volas aŭskulti.”
 
 ”Tion mi ne diris, sed vi ŝajnas al mi tre ŝanĝita. Tiel
 
@@ -2118,15 +1663,11 @@ kaj mi eĉ menciis jam tion al Karlo.”
 
 ”Kiu estas tio?”
 
-”Nu do, mia edzo, la estimata sinjoro Horálek, kom-
-
-paniano de la firmo Hora & Ko. Vi scias nenion, iel vi
+”Nu do, mia edzo, la estimata sinjoro Horálek, kompaniano de la firmo Hora & Ko. Vi scias nenion, iel vi
 
 forgesis pri mi.”
 
-”Pardonu, sinjorina moŝto, nur pri via edzo. Kaj kon-
-
-cerne tiun suspekton, ĉu vi bonvolus klarigi ĝin al mi?”
+”Pardonu, sinjorina moŝto, nur pri via edzo. Kaj koncerne tiun suspekton, ĉu vi bonvolus klarigi ĝin al mi?”
 
 ”Nu, mi supozas, ke li konstruigis la domon ĝuste ĉi
 
@@ -2134,12 +1675,7 @@ tie, ke li havu min bone kaŝita.”
 
 ”Vi havas ja najbaron!”
 
-”Sinjoron Hora, mi petas, kaj lian estimatan mastri-
-
-non. Tiu homo ĝuste mankis ĉi tie! Se mi estus sciinta,
-
-
-MI EN LI
+”Sinjoron Hora, mi petas, kaj lian estimatan mastrinon. Tiu homo ĝuste mankis ĉi tie! Se mi estus sciinta,
 
 
 kia li estas, neniam mi estus konsentinta, ke ni konstruu
@@ -2150,9 +1686,7 @@ la domon ĉi tie.”
 
 lin.”
 
-”Neniel! Tion mi bezonus ankoraŭ! Sed li estas flatru-
-
-za, flatservema; mi ne povas diri, ke li estus trudema, li
+”Neniel! Tion mi bezonus ankoraŭ! Sed li estas flatruza, flatservema; mi ne povas diri, ke li estus trudema, li
 
 estas ja tute bonkonduta, sed por mi li estas abomena;
 
@@ -2172,55 +1706,35 @@ kvazaŭ arbotrunko, kiel — kun permeso — oni diras. Tio
 
 ”Vi ludis belege fortepianon.”
 
-”Jes, mi ludis, sed nun mi ne havas tempon por ekzer-
-
-ci. Nun mi ludas per radio. Aŭskultu, Jarĉjo, iafoje ĝi
+”Jes, mi ludis, sed nun mi ne havas tempon por ekzerci. Nun mi ludas per radio. Aŭskultu, Jarĉjo, iafoje ĝi
 
 estas bona. Atendu iom, mi montros ĝin al vi.”
 
-ŝi kuris en la manĝoĉambron kaj post momento ŝi re-
+ŝi kuris en la manĝoĉambron kaj post momento ŝi revenis, ŝovante antaŭ si ion, kvazaŭ priservan tablon sur
 
-venis, ŝovante antaŭ si ion, kvazaŭ priservan tablon sur
-
-kaŭĉukaj radetoj. El la supra tabulo elsaltis kadra ante-
-
-no, sub malfermita pordeto aperis du grandaj kaj da
+kaŭĉukaj radetoj. El la supra tabulo elsaltis kadra anteno, sub malfermita pordeto aperis du grandaj kaj da
 
 malgrandaj butonoj.
 
 Li alpaŝis la tablon kaj trarigardis kromordinaran
 
-aranĝon de necesaĵoj de la superheterodino kun ampli-
-
-
-MI EN LI
-
-
-ono en unu kesteto. Intertempe Míla Horálková serĉis
+aranĝon de necesaĵoj de la superheterodino kun ampliono en unu kesteto. Intertempe Míla Horálková serĉis
 
 en la programo.
 
-”Jen ni havas Londonon, sed tagmeze kaj baldaŭ post-
-
-tagmeze ĝi kutime ne estas bone aŭdebla. ĉu vi dezirus
+”Jen ni havas Londonon, sed tagmeze kaj baldaŭ posttagmeze ĝi kutime ne estas bone aŭdebla. ĉu vi dezirus
 
 Parizon? Koncerton de Cavin-orkestro?”
 
-ŝi ne atendis respondon kaj du malgrandaj manoj ek-
-
-prenis la butonojn. Ili ne manipulis longe, tuj mola
+ŝi ne atendis respondon kaj du malgrandaj manoj ekprenis la butonojn. Ili ne manipulis longe, tuj mola
 
 muziko de arĉinstrumenta orkestro plenigis la ĉambron.
 
 Estis necese nur iom ĝustsonigi ĝin.
 
-”Mi havas ankaŭ superheterodinon, sed nur de du-
+”Mi havas ankaŭ superheterodinon, sed nur de ducent ĝis sepcent.”
 
-cent ĝis sepcent.”
-
-”ĉi tiu estas ĝis du mil. Rigardu, ĉi tie interne oni ko-
-
-mutas oscilatoron. La maŝino estas bona. Hora donacis
+”ĉi tiu estas ĝis du mil. Rigardu, ĉi tie interne oni komutas oscilatoron. La maŝino estas bona. Hora donacis
 
 ĝin al mi je Kristnasko, li kunportis ĝin el Ameriko.”
 
@@ -2236,9 +1750,7 @@ dolĉeco estis transverŝata per la sango en brakojn kaj
 
 krurojn. Míla Horálková frapetadis la plankon per la
 
-ŝuetpinto kaj Kovaĝík ekrimarkis, ke per fingroj li tam-
-
-buras sur la tablo.
+ŝuetpinto kaj Kovaĝík ekrimarkis, ke per fingroj li tamburas sur la tablo.
 
 Kaj subite Míla staris antaŭ Kovaĝík.
 
@@ -2249,14 +1761,9 @@ Li prenis ŝin delikate ĉirkaŭ la talio kaj ŝi metis sian
 manon sur lian ŝultron.
 
 
-MI EN LI
-
-
 En Parizo oni denove ekludis, eĉ fokstroton.
 
-La muzika ritmo ekokupis ilin ambaŭ kaj alproksimi-
-
-gis unu al la alia. Poste kelkaj varmegaj taktoj kunigis
+La muzika ritmo ekokupis ilin ambaŭ kaj alproksimigis unu al la alia. Poste kelkaj varmegaj taktoj kunigis
 
 ambaŭ junajn korpojn kaj ili ne disiĝis plu.
 
@@ -2276,9 +1783,7 @@ La brakoj de Kovaĝík fariĝis firmaj kaj la kruroj pli
 
 profunde iris renkonte al la aliaj.
 
-Míla fleksita de la muziko lasis forporti sin senrezis-
-
-te kaj sindone kvazaŭ velo de la vento.
+Míla fleksita de la muziko lasis forporti sin senreziste kaj sindone kvazaŭ velo de la vento.
 
 Poste oni ĉesis ludi kaj Horálková kaj Kovaĝík eksidis
 
@@ -2305,14 +1810,9 @@ ebla.”
 instruanto, kvankam mi estis nur kvin jarojn pli aĝa. La
 
 
-MI EN LI
-
-
 konfidon al mi donitan, mi ne povis trompi. Vi konas
 
-min. Kiam vi plenkreskis, vi edziniĝis pasintjare en prin-
-
-tempo. Mi interkonatiĝis kun Manjo; proksimume antaŭ
+min. Kiam vi plenkreskis, vi edziniĝis pasintjare en printempo. Mi interkonatiĝis kun Manjo; proksimume antaŭ
 
 du jaroj mi ekvidis ŝin la unuan fojon. Vi sciis pri tio kaj
 
@@ -2320,13 +1820,9 @@ ne preterlasis piki min iom de tempo al tempo.”
 
 ”Nepra vero.”
 
-”Vian edziniĝfeston mi partoprenis kvazaŭ viva doku-
+”Vian edziniĝfeston mi partoprenis kvazaŭ viva dokumento pri sensenco de viaj studoj.”
 
-mento pri sensenco de viaj studoj.”
-
-”Vi bondeziris min ironie al pluaj studoj, kio rezulti-
-
-gis mokridojn.”
+”Vi bondeziris min ironie al pluaj studoj, kio rezultigis mokridojn.”
 
 ”La societo estis jam iom tro gaja kaj konfuzigis miajn
 
@@ -2336,9 +1832,7 @@ havis la mian. Do ni povis esti kamaradoj.”
 
 ”Sed vi amis Manjon kvazaŭ kamarado.”
 
-Tro malfrue ŝi ekkonis, ke la uzitaj vortoj ne estis kon-
-
-venaj. Ili ekpensis pri la maldelikate nelertaj vortoj de la
+Tro malfrue ŝi ekkonis, ke la uzitaj vortoj ne estis konvenaj. Ili ekpensis pri la maldelikate nelertaj vortoj de la
 
 gazetoj pri la rezulto de la sekcado. Ambaŭ ili ruĝiĝis kaj
 
@@ -2348,31 +1842,22 @@ Eksonanta tango forigis ilian embarason. Malrapida
 
 ritmo permesis al ili, ke ili finmeditu: la pensoj fariĝis pli konkretaj. Kovaĝík kaj Horálková alproksimiĝadis den-se unu al la alia nur, se tio estis neevitebla. Li rimarkis
 
-baldaŭ, ke ŝi klopodas gvidi lin, malebligante tiajn figu-
-
-rojn, kiuj rezultigus nepran ektuŝon de iliaj korpoj. Pro
+baldaŭ, ke ŝi klopodas gvidi lin, malebligante tiajn figurojn, kiuj rezultigus nepran ektuŝon de iliaj korpoj. Pro
 
 ia obstino li komencis kontraŭi ŝin. Tiel okazis, ke ili
 
 renkontiĝis kelkan fojon iom pli forte, ol li mem volis. Li
 
 
-MI EN LI
-
-
 klopodis venki ŝian kontraŭstaron volante esti pli forta
 
-kaj tiel liaj manoj pruviĝis, esti pli firmaj, ol li mem kon-
-
-sciis.
+kaj tiel liaj manoj pruviĝis, esti pli firmaj, ol li mem konsciis.
 
 ŝi kontraŭstaris, sed laciĝis, poste venkita ŝi konfidis
 
 sin al liaj brakoj kaj kruroj.
 
-La muziko estis vento kaj ili estis du folioj sur akvosu-
-
-praĵo. Kvazaŭ de akvo ili estis forportataj, poste ili re-
+La muziko estis vento kaj ili estis du folioj sur akvosupraĵo. Kvazaŭ de akvo ili estis forportataj, poste ili re-
 
 venadis subkonscie por miri renkontante unu la alian
 
@@ -2380,9 +1865,7 @@ senpere vizaĝon al vizaĝo. Iliaj pensoj fermis la okulojn
 
 kaj la okuloj de ili ambaŭ estis senpensaj.
 
-La ritmo de la kruroj kaj manoj transiris en iliajn kok-
-
-sojn kaj ventrojn, kaj ili agorditaj je la sama tono tremis
+La ritmo de la kruroj kaj manoj transiris en iliajn koksojn kaj ventrojn, kaj ili agorditaj je la sama tono tremis
 
 unu en manoj de la alia.
 
@@ -2390,9 +1873,7 @@ Poste denove eksilenlis la ampliono kaj Kovaĝík kaj
 
 Horálková falis en klubseĝojn pli lacaj kaj pli emociitaj.
 
-Li frotis unu manon per la alia por kvietigi ilin, ŝi mor-
-
-dis siajn lipojn.
+Li frotis unu manon per la alia por kvietigi ilin, ŝi mordis siajn lipojn.
 
 ”Mi ne supozis, ke vi dancas tiel bone. Vi tre ĝojigus
 
@@ -2413,9 +1894,6 @@ de Praha. ŝi parolis rapide, ĉar la propra parolo influis
 ŝin kvazaŭ malseketa tuko metita sur la frunton. Nova
 
 
-MI EN LI
-
-
 tango ne malhelpis ilin plu daŭrigi la intertrakton pri la
 
 nova tasko de Horálková kaj, antaŭ ol la danco finiĝis, ŝi
@@ -2426,23 +1904,17 @@ la servistinon Bêlka ŝi devigos helpi.
 
 ”Post unu semajno mi atendos vin ĉi tie; venu do, mia
 
-edzo posttagmeze ne kutimas resti hejme. Mi ne kon-
-
-jektas, ke mi trovos ion, sed mi estas tre scivola, kion vi
+edzo posttagmeze ne kutimas resti hejme. Mi ne konjektas, ke mi trovos ion, sed mi estas tre scivola, kion vi
 
 alportos al mi.”
 
-Ili ne kapablis rezisti novan fokstroton, kiun ili desti-
-
-nis por adiaŭi. i estis brua kaj rapida; interparolante
+Ili ne kapablis rezisti novan fokstroton, kiun ili destinis por adiaŭi. i estis brua kaj rapida; interparolante
 
 per la kruroj kaj korpoj ili ne havis tempon por paroli
 
 buŝe.
 
-Laŭta aplaŭdo disigis ilin. Tre surprizitaj ili return-
-
-rigardis al la pordo, kie aplaŭdis la fortaj manoj de la
+Laŭta aplaŭdo disigis ilin. Tre surprizitaj ili returnrigardis al la pordo, kie aplaŭdis la fortaj manoj de la
 
 edzo de Míla.
 
@@ -2469,26 +1941,17 @@ kondukis lin ĉi tien en la kamparon.”
 mi venis verdire iom tro malfrue, sed mi vidas je mia
 
 
-MI EN LI
-
-
 granda plezuro, ke vi sentas vin ĉi tie bonege kaj kvazaŭ
 
 hejme.”
 
-Kovaĝík hezitis respondi, nekapabla trovi taŭgan vor-
-
-ton. Míla diveninte tuj lian embarason rapidis helpi lin:
+Kovaĝík hezitis respondi, nekapabla trovi taŭgan vorton. Míla diveninte tuj lian embarason rapidis helpi lin:
 
 ”Fiere mi montris nian radioaparaton al li kaj, kiel vi
 
-scias, mi ne kapablis rezisti. Sinjoro Kovaĝík dancas bo-
+scias, mi ne kapablis rezisti. Sinjoro Kovaĝík dancas bonege.”
 
-nege.”
-
-Sinjoro Horálek demetis malpezan anglan superves-
-
-ton kaj alpaŝis sonorileton por venigi la servistinon.
+Sinjoro Horálek demetis malpezan anglan superveston kaj alpaŝis sonorileton por venigi la servistinon.
 
 ”Ne sonorigu, ŝi estas supre kaj ne aŭdos vin.”
 
@@ -2506,9 +1969,7 @@ estas tia strangulo!”
 
 Kovaĝík ekpensis, ke li estus ankaŭ tia strangulo, sed
 
-ne restis tempo al li por respondi; Horálek denove en-
-
-paŝis la ĉambron.
+ne restis tempo al li por respondi; Horálek denove enpaŝis la ĉambron.
 
 ”Infanoj, ĉu vi manĝis ion?”
 
@@ -2525,12 +1986,7 @@ sinjoro Kovaĝík? Mi scias, nur Míla tuj koleriĝas pro ĉiu
 malgravaĵo. Sed ni viroj...”
 
 
-MI EN LI
-
-
-Li verŝis likvoron en du kaliketojn kaj prezentis al Ko-
-
-vaĝík.
+Li verŝis likvoron en du kaliketojn kaj prezentis al Kovaĝík.
 
 ”Je via sano!”
 
@@ -2540,17 +1996,13 @@ adiaŭi, li ne lasis lin elparoli.
 
 ”Nu do, vi ne foriros, kiam mi venis, mi devus poste
 
-esti ĵaluza je Míla. Vi manĝos iom kun ni kaj mi eksci-
-
-os espereble tiun strangan aferon, kiun menciis Míla kaj
+esti ĵaluza je Míla. Vi manĝos iom kun ni kaj mi ekscios espereble tiun strangan aferon, kiun menciis Míla kaj
 
 kiu kondukis vin sur nian forlasitan vojon.”
 
 Míla pretigis por manĝo malgrandan tablon en la
 
-manĝoĉambro kaj post nelonge malgranda elektra sa-
-
-movaro liveris al ili bolantan akvon por teo. La interpa-
+manĝoĉambro kaj post nelonge malgranda elektra samovaro liveris al ili bolantan akvon por teo. La interpa-
 
 rolo pritemis la tempon antaŭ unu-du jaroj. Horálek
 
@@ -2562,9 +2014,7 @@ vortoj. Konkrete Horálek klarigis nur sian neatenditan
 
 alvenon. Hora aĉetis loĝion la por hodiaŭa prezento en
 
-la Nacia Teatro kaj invitis ilin. ĉar ili estis nur tri, Ho-
-
-rálek invitis Kovaĝíkon. ĉi tiu hezitis, sed kiam li eksen-
+la Nacia Teatro kaj invitis ilin. ĉar ili estis nur tri, Horálek invitis Kovaĝíkon. ĉi tiu hezitis, sed kiam li eksen-
 
 tis, ke Míla per la piedo premas lian piedon, kaj kiam ĉi
 
@@ -2577,16 +2027,11 @@ certigi la geedzojn, ke li venos en Nacian Teatron en la
 parterloĝion numero kvin.
 
 
-MI EN LI
-
-
 La koridoroj de la Nacia Teatro estis plene lumigitaj.
 
 Kantis la fama Mazetti kaj la plialtigitaj prezoj kaj
 
-pligrandigita lukso de la vizitantinoj postulis do pli mul-
-
-te da lumo. Proksime al la sepa, la vico de aŭtomobiloj
+pligrandigita lukso de la vizitantinoj postulis do pli multe da lumo. Proksime al la sepa, la vico de aŭtomobiloj
 
 sur la kajo konsiderinde longiĝis. Brilis la glataj surfacoj
 
@@ -2600,17 +2045,13 @@ kolorajn kaj ŝminkitajn kernojn, la ŝeloj — aŭtomobiloj
 
 — reveturadis en kurba linio kaj ilia vico kreskis.
 
-Kovaĝík, kvazaŭ nigra guto, estis malaperanta en svar-
-
-mantaj voĉoj kaj korpoj, en varma aero tro plena de el-
+Kovaĝík, kvazaŭ nigra guto, estis malaperanta en svarmantaj voĉoj kaj korpoj, en varma aero tro plena de el-
 
 spiroj kaj parfumoj de ĉiuj nuancoj. Kelkfoje li salutis,
 
 sed la riverego de homoj fluanta internen ne permesis
 
-halti kaj ekparoli kelkajn vortojn. Li lasis porti sin ĉir-
-
-kaŭita jen per ostoj jen per tro grasa karno, havante la
+halti kaj ekparoli kelkajn vortojn. Li lasis porti sin ĉirkaŭita jen per ostoj jen per tro grasa karno, havante la
 
 nazon ĉiam plena de akraj kaj incitemaj parfumoj kaj de
 
@@ -2621,12 +2062,7 @@ La loĝio numero kvin estis ankoraŭ ŝlosita. Li atendis
 do kvazaŭ gluita al la koridora muro.
 
 
-MI EN LI
-
-
-”Jen li estas,” eksonis la voĉo de Míla Horálková sen-
-
-pere ĉe lia vizaĝo.
+”Jen li estas,” eksonis la voĉo de Míla Horálková senpere ĉe lia vizaĝo.
 
 Post reciproka saluto kun Horálek, tre eleganta en
 
@@ -2636,13 +2072,9 @@ premis sin post ili, ŝvitoplena kaj ruĝvizaĝa. Estis Hora,
 
 kies kvindekjaro bone reprezentis sin per ronda vizaĝo
 
-kaj proporcia ventro, minacanta krevigi la blankan sur-
+kaj proporcia ventro, minacanta krevigi la blankan surfacon de amelita ĉemizo.
 
-facon de amelita ĉemizo.
-
-Ili eniris la loĝion, ĝuste kiam la rigardantejo mallu-
-
-miĝis. Tial Kovaĝík kaj Hora donis nur la manojn al si.
+Ili eniris la loĝion, ĝuste kiam la rigardantejo mallumiĝis. Tial Kovaĝík kaj Hora donis nur la manojn al si.
 
 Mila invitis Kovaĝíkon, ke li eksidu apud ŝi, la ceteraj
 
@@ -2662,9 +2094,7 @@ Mazetti triumfis kaj la aplaŭdoj post la unua akto ne
 
 volis finiĝi. La kurteno estis ankoraŭ suprentirata, kiam
 
-Horálková kun Kovaĝík estis enirantaj la teatran prome-
-
-nejon. Oftaj salutoj ne lasis al ili eĉ momenton por daŭra
+Horálková kun Kovaĝík estis enirantaj la teatran promenejon. Oftaj salutoj ne lasis al ili eĉ momenton por daŭra
 
 interparolo, kiu krom tio estis interrompata per ĉeno de
 
@@ -2672,26 +2102,17 @@ alridetoj, per kiuj Míla ligadis siajn konatojn. Kaj estis
 
 konsiderinda serio da ili. De tempo al tempo eksonis
 
-interĵetita vorto: *Colorado*. i estis devizo, elvokanta ek-57
-
-MI EN LI
-
-
-zaltitan ekrideton aŭ pli rapidajn ekmovojn de okulha-
+interĵetita vorto: *Colorado*. i estis devizo, elvokanta ekzaltitan ekrideton aŭ pli rapidajn ekmovojn de okulha-
 
 roj.
 
-Míla kapjesadis ĉi tiun devizon, mem ne prononcan-
-
-te ĝin.
+Míla kapjesadis ĉi tiun devizon, mem ne prononcante ĝin.
 
 Apogita je la brako de Kovaĝík ŝi balancetis sur siaj
 
 graciaj kruroj en orkolora granda tualeto, kiu tamen pli
 
-prave meritis kiun ajn alian nomon, ol ”granda”. Kova-
-
-ĝík, rigardante sian kunulinon de la flanko, ne povis ne
+prave meritis kiun ajn alian nomon, ol ”granda”. Kovaĝík, rigardante sian kunulinon de la flanko, ne povis ne
 
 konstati, ke tian tualeton ŝi estus surmetonta prefere
 
@@ -2701,23 +2122,17 @@ povis nei, ke la nudaj brakoj, ŝultroj, la dorso profunde
 
 nudigita kaj precipe la riska dekolto, elmetanta al ĉies
 
-rigardoj du embarasitajn mamojn, malgraŭ ilia etforme-
-
-co kaj delikateco, efikis sufiĉe incitige. is nun li ne ha-
+rigardoj du embarasitajn mamojn, malgraŭ ilia etformeco kaj delikateco, efikis sufiĉe incitige. is nun li ne ha-
 
 vis okazon por pritaksi la mallongecon de la jupo de
 
 Míla, sed sincere admirantaj rigardoj de la viroj, kiuj
 
-promenis aŭ observis ilin ĉe la pordo, ne lasis lin eĉ mo-
-
-menton en dubo.
+promenis aŭ observis ilin ĉe la pordo, ne lasis lin eĉ momenton en dubo.
 
 Varma memamo trapenetris lin kaj tute ne atentante,
 
-ke neniu rimarkus, se li promenus ĉi tie eble eĉ sen kra-
-
-vato, li premis la manon de Míla al sia kokso. Eĉ ian
+ke neniu rimarkus, se li promenus ĉi tie eble eĉ sen kravato, li premis la manon de Míla al sia kokso. Eĉ ian
 
 kontentigon vekis en li palpebrumaj ŝtelrigardoj de
 
@@ -2725,12 +2140,7 @@ granda parto de viroj, kiuj kondukante junulinon aŭ
 
 edzinon, kun kiuj ili vigle interparolis, serĉis per okuloj
 
-eksciton en la dekolto de Míla. Mem ankaŭ li ne preter-
-
-lasis momentojn kaj Míla per manpremo malkaŝis, ke ŝi
-
-
-MI EN LI
+eksciton en la dekolto de Míla. Mem ankaŭ li ne preterlasis momentojn kaj Míla per manpremo malkaŝis, ke ŝi
 
 
 observas lin. ŝi admonis lin, ĉar lia tasko estas ja, ke li
@@ -2743,9 +2153,7 @@ povas rezigni.
 
 Unusola vorteto: *Colorado*, ĵetita kvazaŭ floro, rekonsciigis lin.
 
-Sonoriletoj vokis al la rigardantejo; riveroj da prome-
-
-nantoj enfluis tien kaj kovris la seĝojn. Kiam malheliĝis,
+Sonoriletoj vokis al la rigardantejo; riveroj da promenantoj enfluis tien kaj kovris la seĝojn. Kiam malheliĝis,
 
 Kovaĝík akceptis la tibikarnon de Míla kompreneme kaj
 
@@ -2753,9 +2161,7 @@ dankeme, proksimume tiel, kvazaŭ oni estus prezentinta
 
 al li binoklon, kiu estas apartenaĵo de teatra loĝio kaj
 
-kiun oni ne povas rifuzi, se ĝi estas kompleze propona-
-
-ta kaj oni ne volas esti malĝentila.
+kiun oni ne povas rifuzi, se ĝi estas kompleze proponata kaj oni ne volas esti malĝentila.
 
 La dua paŭzo estis mallonga, ili restis do en la loĝio.
 
@@ -2769,9 +2175,7 @@ nur la okuloj ekscitiĝante, sed estis ankoraŭ io sub la
 
 okuloj, kio ektremigadis kaj maltrankviligadis.
 
-La sensignifa interparolo ne postulis, ke Kovaĝík de-
-
-diĉu sian tutan atentemon al ĝi, tial li amuziĝis obser-
+La sensignifa interparolo ne postulis, ke Kovaĝík dediĉu sian tutan atentemon al ĝi, tial li amuziĝis obser-
 
 vante kelkajn virojn, kiujn li elektis tiucele. Lia observo
 
@@ -2784,84 +2188,54 @@ En la lasta akto Mazetti estis treege perfekta, ke eĉ
 froston oni sentis ektuŝi la dorson. ŝia voĉo penetris tra
 
 
-MI EN LI
-
-
 la aero super la seĝoj kvazaŭ damaskena glavo brilanta,
 
-elasta kaj senriproĉa tiel, ke eĉ bedaŭri oni devis la sen-
+elasta kaj senriproĉa tiel, ke eĉ bedaŭri oni devis la senmankecon, kiu memorigis perfektan motoron de aero-
 
-mankecon, kiu memorigis perfektan motoron de aero-
-
-plano ĝoje bruanta alte super ni, ĝuste tiel alte por kom-
-
-preni kaj nerefuteble koncepti, kiel perfekte ni estas glu-
+plano ĝoje bruanta alte super ni, ĝuste tiel alte por kompreni kaj nerefuteble koncepti, kiel perfekte ni estas glu-
 
 itaj sur la tero.
 
-Aplaŭdo, multe da aplaŭdo kaj poste ankoraŭ aplaŭ-
-
-do. Mazetti ŝanĝiĝis en birdon, kiu balanciĝas sur ver-
+Aplaŭdo, multe da aplaŭdo kaj poste ankoraŭ aplaŭdo. Mazetti ŝanĝiĝis en birdon, kiu balanciĝas sur ver-
 
 geto ĉiam riverencante.
 
-La pordisto preskaŭ rompiĝadis riverencante. La aŭ-
-
-tomobilpordetoj klakadis kaj la aŭtomobiloj forstartadis
+La pordisto preskaŭ rompiĝadis riverencante. La aŭtomobilpordetoj klakadis kaj la aŭtomobiloj forstartadis
 
 unu post alia al la stratoj de Praha.
 
 Apogita al la ŝultroj de sia edzo Míla kun fermetitaj
 
-okuloj kantetis duonlaŭte kanton, en kiu Colorado rimi-
+okuloj kantetis duonlaŭte kanton, en kiu Colorado rimiĝis je Eldorado.
 
-ĝis je Eldorado.
-
-Hora rigardis returne, li sidis apud Kovaĝík sur la an-
-
-taŭa seĝo, ekridetis al Míla kaj kriis tra tubeto al la ŝo-
+Hora rigardis returne, li sidis apud Kovaĝík sur la antaŭa seĝo, ekridetis al Míla kaj kriis tra tubeto al la ŝo-
 
 foro:
 
 ”Colorado!”
 
-La fenestroj de la aŭtomobilo malheliĝis, nome la aŭ-
+La fenestroj de la aŭtomobilo malheliĝis, nome la aŭtomobilo ekveturis flanken de la lumigita bulvardo en la
 
-tomobilo ekveturis flanken de la lumigita bulvardo en la
-
-mallumajn stratetojn de la Malnova Urbo. i malrapidi-
-
-gis la veturon kaj fine ĝi haltis senbrue.
+mallumajn stratetojn de la Malnova Urbo. i malrapidigis la veturon kaj fine ĝi haltis senbrue.
 
 Ili elpaŝis kaj Hora sendis sian aŭtomobilon hejmen.
 
-La fenestroj de la domoj en la strato estis ĉiuj senlu-
-
-maj. Kovaĝík vane klopodis orienti sin en ĉi tiu mallarĝa
-
-
-MI EN LI
+La fenestroj de la domoj en la strato estis ĉiuj senlumaj. Kovaĝík vane klopodis orienti sin en ĉi tiu mallarĝa
 
 
 strateto; laŭ la turnoj de la aŭtomobilo li konjektis, ke
 
-oni estas ie malantaŭ la Longa Strato, tamen jam prok-
-
-sime al la rivero. Li supozis, ke ĉi tiu *Colorado* ne havos lumreklamojn, tamen li ne atendis, ke eĉ per lampeto ĝi
+oni estas ie malantaŭ la Longa Strato, tamen jam proksime al la rivero. Li supozis, ke ĉi tiu *Colorado* ne havos lumreklamojn, tamen li ne atendis, ke eĉ per lampeto ĝi
 
 ne estos signita.
 
 Tuj kiam la aŭtomobilo forveturis, alpaŝis ilin viro, ĝis
 
-tiam promeninta sola sur la trotuaro kaj salutis ilin pro-
-
-funde riverencante.
+tiam promeninta sola sur la trotuaro kaj salutis ilin profunde riverencante.
 
 Senvorte ili sekvis lin kelkajn paŝojn kaj haltis antaŭ
 
-granda pordego. La viro sonorigis kaj post nelonge mal-
-
-fermiĝis en la granda pordego malgranda pordeto, lum-
+granda pordego. La viro sonorigis kaj post nelonge malfermiĝis en la granda pordego malgranda pordeto, lum-
 
 strio elŝprucis sur la trotuaron. Ili eniris, Hora kiel unua.
 
@@ -2869,17 +2243,11 @@ La pordisto en livreo fermis la pordeton kaj gvidis ilin
 
 tra koridoro, kiu neniel diferencis de aliaj koridoroj de
 
-ordinaraj ludomoj en Praha. Tamen ili ne turnis sin mal-
+ordinaraj ludomoj en Praha. Tamen ili ne turnis sin maldekstren al la ŝtuparo, sed la pordisto denove malfermis
 
-dekstren al la ŝtuparo, sed la pordisto denove malfermis
+malgrandan pordeton en pordego kondukanta al ĝardeno. Li estingis lumon en la koridoro kaj gvidis la mal-
 
-malgrandan pordeton en pordego kondukanta al ĝarde-
-
-no. Li estingis lumon en la koridoro kaj gvidis la mal-
-
-grandan societon tra la ĝardeno. En la mallumo ne es-
-
-tis konstateble, kiel vasta ĝi estas, nur la maldensaj su-
+grandan societon tra la ĝardeno. En la mallumo ne estis konstateble, kiel vasta ĝi estas, nur la maldensaj su-
 
 proj de aliaj arboj reflektiĝis malhele sur la pli hela tono
 
@@ -2887,59 +2255,40 @@ de nuboj ete lumigataj per stratlanternoj. La gvidanto
 
 prilumis la vojon per elektra lampeto.
 
-Ankoraŭ ne estis aŭdebla iu voĉo aŭ sono. Nur prok-
-
-simume post cent paŝoj ili venis al la pavilono.
+Ankoraŭ ne estis aŭdebla iu voĉo aŭ sono. Nur proksimume post cent paŝoj ili venis al la pavilono.
 
 La gvidanto denove sonorigis. Kiam ĉi tie la pordo
 
 
-MI EN LI
-
-
-malfermiĝis, la alvenantoj ekaŭdis obtuzan, flatan mu-
-
-zikon.
+malfermiĝis, la alvenantoj ekaŭdis obtuzan, flatan muzikon.
 
 Ili eniris kaj malaperis en luksa, moderna mondo. La
 
-koridoro vastiĝis al larĝa ejo antaŭ vestejoj, ĝi estis or-
-
-namita nur per blanka marmoro kaj per grandaj vene-
+koridoro vastiĝis al larĝa ejo antaŭ vestejoj, ĝi estis ornamita nur per blanka marmoro kaj per grandaj vene-
 
 ciaj speguloj. Belaj junulinoj deprenis la mantelojn.
 
 Míla, ordiganle sian tualeton antaŭ spegulo, rigardis
 
-en ĝi Kovaĝíkon per brilega kaj kontenta rideto, ja Ko-
-
-vaĝík, se iu demandus lin kaj li ne hontus esprimi sian
+en ĝi Kovaĝíkon per brilega kaj kontenta rideto, ja Kovaĝík, se iu demandus lin kaj li ne hontus esprimi sian
 
 penson, dirus: per feliĉa alrideto. Iom surprizis lin, ke ŝi
 
 akceptis la brakon de Hora prezentitan al ŝi. Li opiniis la
 
-edzon pli konvena akompananto, sed la edzo ne kon-
-
-traŭdiris kaj kontenta li sekvis ilin kun Kovaĝík.
+edzon pli konvena akompananto, sed la edzo ne kontraŭdiris kaj kontenta li sekvis ilin kun Kovaĝík.
 
 Ili malsupreniris sur larĝa ŝtuparo kovrita de dikaj,
 
-molaj tapiŝoj. Marmoro alternis ĉi tie kun zonoj kaj kor-
-
-nicoj el altvaloraj lignoj tre sprite kaj preskaŭ noble,
+molaj tapiŝoj. Marmoro alternis ĉi tie kun zonoj kaj kornicoj el altvaloraj lignoj tre sprite kaj preskaŭ noble,
 
 nenie estis trovebla eĉ signeto pri ora lukso; ĉi tie parolis bona artisto per valorega materialo.
 
-ĉe la fino de la ŝtuparo mem malfermiĝis pezaj kur-
-
-tenoj el ruĝeta veluro antaŭ la alvenantoj kaj enlasis ilin
+ĉe la fino de la ŝtuparo mem malfermiĝis pezaj kurtenoj el ruĝeta veluro antaŭ la alvenantoj kaj enlasis ilin
 
 en rondan ĉambron malhelruĝe tapetitan; kontraŭ la
 
-ŝtuparo staris ses duonnudaj atletstaturaj nigruloj, te-
-
-nantaj en la dekatraj manoj po flagranta torĉo.
+ŝtuparo staris ses duonnudaj atletstaturaj nigruloj, tenantaj en la dekatraj manoj po flagranta torĉo.
 
 Míla ŝtelrigardis Kovaĝíkon atendante, kion li diros,
 
@@ -2948,28 +2297,19 @@ kvazaŭ ŝi mem estus aranĝinta ĉion por li.
 La rotondo havis laŭŝajne neniujn pliajn pordojn. Sed
 
 
-MI EN LI
-
-
 maldekstre de la ŝtuparo subite aperis enirejo, kvazaŭ iu
 
 estus tranĉinta ĝin en la muron per akra tranĉilo.
 
-Ili troviĝis en cirkloforma koridoro, el kiu vico da por-
-
-doj kondukis al loĝioj. Sed ili iris unu etaĝon malsupren
+Ili troviĝis en cirkloforma koridoro, el kiu vico da pordoj kondukis al loĝioj. Sed ili iris unu etaĝon malsupren
 
 en ĝuste samforman koridoron, kie malgranda nigrulo
 
-malfermis al ili pordon al loĝio eĉ ne postulante enirbi-
-
-leton. Hora certe estis bone konata ĉi tie kaj kondutis
+malfermis al ili pordon al loĝio eĉ ne postulante enirbileton. Hora certe estis bone konata ĉi tie kaj kondutis
 
 senriproĉe memfide.
 
-Míla observante scivolajn rigardojn de Kovaĝík klari-
-
-gis al li, ke ĉi tie en *Colorado* estas nur loĝioj: ĉiu el ili konsistas el saloneto — kie oni manĝas kaj tiel plu, kion
+Míla observante scivolajn rigardojn de Kovaĝík klarigis al li, ke ĉi tie en *Colorado* estas nur loĝioj: ĉiu el ili konsistas el saloneto — kie oni manĝas kaj tiel plu, kion
 
 li vidos poste — kaj fine el la efektiva loĝio. Ili eniris ĝin, sed estis necese disigi kurtenon, ĉar ankaŭ ĉi tiu loĝio
 
@@ -2985,29 +2325,20 @@ Sed tio estis nur kadro de la interno. La cirkla vico da
 
 loĝioj ne estis komplete fermita kaj en la interspacon de
 
-ĉi tiu rondaĵo estis enigita malgranda scenejo. ia ver-
-
-da kurteno disfaldiĝis kaj brilaj pendaĵoj ŝanĝante kolo-
+ĉi tiu rondaĵo estis enigita malgranda scenejo. ia verda kurteno disfaldiĝis kaj brilaj pendaĵoj ŝanĝante kolo-
 
 rojn malaperadis unu post la alia kvazaŭ aeriĝante. Sur
 
-la scenejo komenciĝis orientala mimika sceno de duon-
-
-nudaj virinoj.
+la scenejo komenciĝis orientala mimika sceno de duonnudaj virinoj.
 
 Míla ne lasis Kovaĝíkon rigardi.
-
-
-MI EN LI
 
 
 ”Venu, tio ne valoras ankoraŭ rigardadon. ĉu vi ne
 
 malsatas?”
 
-En la loĝia saloneto intertempe estis pretigita manĝo-
-
-tablo kaj malgranda nigrulo alportis manĝaĵojn. Kovaĝík
+En la loĝia saloneto intertempe estis pretigita manĝotablo kaj malgranda nigrulo alportis manĝaĵojn. Kovaĝík
 
 diris:
 
@@ -3037,22 +2368,13 @@ Post kelkaj sekundoj glitis en la ĉambron blondulino
 
 ankoraŭ tre juna kaj al Kovaĝík laŭvizaĝe de ie konata,
 
-kiu eksidis en angulo de divano kaj krucmetinte la kru-
-
-rojn ekkantis per agrabla voĉo, akompanante sin per
+kiu eksidis en angulo de divano kaj krucmetinte la krurojn ekkantis per agrabla voĉo, akompanante sin per
 
 malgranda, strangforma, evidente nigrula instrumento.
 
-ŝi kantis angle kaj la melodio de ŝia kanto havis melan-
+ŝi kantis angle kaj la melodio de ŝia kanto havis melankolian, groteskan tonnuancon.
 
-kolian, groteskan tonnuancon.
-
-Al la posta manĝaĵo Hora invitis alian junulinon, de-
-
-nove kun alia stranga instrumento. Tiel alternis kvar
-
-
-MI EN LI
+Al la posta manĝaĵo Hora invitis alian junulinon, denove kun alia stranga instrumento. Tiel alternis kvar
 
 
 junulinoj; Hora opiniis nepre necese alternigi ilin kun
@@ -3065,9 +2387,7 @@ penetranta tra la loĝia kurteno, konkludigis la rapidan
 
 sinsekvon de la programeroj sur la scenejo.
 
-Ili trinkis ĝuste nigran kafon, kiam ve-krio trapenet-
-
-ris la aeron. Kovaĝík ekpensis, ke li troviĝas malantaŭ iu
+Ili trinkis ĝuste nigran kafon, kiam ve-krio trapenetris la aeron. Kovaĝík ekpensis, ke li troviĝas malantaŭ iu
 
 mondfremda vilaĝo, kie malfeliĉa kaj mallerta mano de
 
@@ -3091,33 +2411,19 @@ ekkviko de vilhara nigrulo, kiu kunvokadis la danculojn.
 
 La paŝoj ne sufiĉe servis ŝin, ŝi trenis Kovaĝíkon post
 
-si saltetante kvazaŭ kaprido; nur nun Kovaĝík povis tak-
+si saltetante kvazaŭ kaprido; nur nun Kovaĝík povis taksi, kiel praktika estas la longeco de la jupo de Míla.
 
-si, kiel praktika estas la longeco de la jupo de Míla.
+Kvazaŭ paro da sovaĝuloj ili enkuris sur la pargetplankon inter la teretaĝaj loĝioj. Ili ne estis la unuaj, kelkaj dancparoj metadis jam siajn piedojn sur la pargetoj.
 
-Kvazaŭ paro da sovaĝuloj ili enkuris sur la parget-
+ĵazbando sidis sur la scenejo; ĝia aspekto ne estis brila, sed ĝia laboro estis brilega. i estis mano ekipita de
 
-plankon inter la teretaĝaj loĝioj. Ili ne estis la unuaj, kelkaj dancparoj metadis jam siajn piedojn sur la pargetoj.
-
-ĵazbando sidis sur la scenejo; ĝia aspekto ne estis bri-
-
-la, sed ĝia laboro estis brilega. i estis mano ekipita de
-
-multaj kaj multaj fingroj, kiuj ĉirkaŭvolvadis kaj dikta-
-
-
-MI EN LI
-
-
-dis. Tio ne estis danco, dum kiu du dancantoj pensas
+multaj kaj multaj fingroj, kiuj ĉirkaŭvolvadis kaj diktadis. Tio ne estis danco, dum kiu du dancantoj pensas
 
 unu pri la alia. Krude incitiga muziko, se oni rajtas ĉi
 
 tiujn sonojn nomi muziko, ne estis sorbata de la sentoj
 
-kaj korpoj, sed maldelikate ĝi frapadis kaj peladis la ge-
-
-dancantojn kvazaŭ bojanta vipo, kiu ne pardonas.
+kaj korpoj, sed maldelikate ĝi frapadis kaj peladis la gedancantojn kvazaŭ bojanta vipo, kiu ne pardonas.
 
 Kovaĝík, ŝategante kaj admiregante ĉiujn modernajn
 
@@ -3125,21 +2431,15 @@ dancojn, komencis mediti pri la moderna flagelanteco.
 
 Kiam ajn trapaŝante kun Míla la pargetan surfacon ili
 
-alproksimiĝis al la nigrulaj muzikantoj, neniam li preter-
-
-lasis la okazon por observi ĉi tiujn buklaĉulojn.
+alproksimiĝis al la nigrulaj muzikantoj, neniam li preterlasis la okazon por observi ĉi tiujn buklaĉulojn.
 
 Post kelke da minutoj li ne dubis plu, ke ĉi tiuj viroj,
 
-vidigantaj grandajn blankajn dentojn kaj sekvantaj vo-
-
-lupte per malfermegitaj okuloj la duonnudajn blankuli-
+vidigantaj grandajn blankajn dentojn kaj sekvantaj volupte per malfermegitaj okuloj la duonnudajn blankuli-
 
 nojn, estas evidentaj sadistoj.
 
-Paŭzoj inter dancoj estis onoj de sekundoj, la nigru-
-
-loj estis tro emociitaj por laciĝi.
+Paŭzoj inter dancoj estis onoj de sekundoj, la nigruloj estis tro emociitaj por laciĝi.
 
 Nekonata medio ebligis al Kovaĝík, ke li alkutimiĝis la
 
@@ -3147,9 +2447,7 @@ flagelantecan atmosferon malpli rapide ol la aliaj, kiuj
 
 venis serĉante ĝin.
 
-Li analizis la medion, forgesante la fajran tempera-
-
-menton de Míla, kiu intertempe per plenaj glutoj trin-
+Li analizis la medion, forgesante la fajran temperamenton de Míla, kiu intertempe per plenaj glutoj trin-
 
 kis la emocion, havante la okulojn vitrecaj kaj la buŝon
 
@@ -3157,12 +2455,7 @@ kvazaŭ iom ŝirita, malseketa kaj tremetanta.
 
 Se ĉi tiu societo estus reprezentonta la plej noblan
 
-klason de la blanka raso, ne estus necese paroli pri ven-
-
-ko de la nigruloj. Kovaĝík foliumis spirite aventurajn ro-
-
-
-MI EN LI
+klason de la blanka raso, ne estus necese paroli pri venko de la nigruloj. Kovaĝík foliumis spirite aventurajn ro-
 
 
 manojn priskribantajn malproksiman estontecon, kiam
@@ -3171,44 +2464,27 @@ la blanka raso estos subigita al la nigra aŭ flava.
 
 Jen, tio estas la hodiaŭo. Perversaj nigruloj ekscitigas
 
-niajn virinojn ĝis sensenseco, la viroj plenŝvititaj salte-
+niajn virinojn ĝis sensenseco, la viroj plenŝvititaj saltetas, kiel preskribas al ili abomena nigrula melodio, an-
 
-tas, kiel preskribas al ili abomena nigrula melodio, an-
-
-stataŭ kapofrapi kaj elĵeti la nigrulojn el la pordo, frakas-
-
-inte antaŭe je iliaj kapoj la karikaturajn kaj malĉastajn
+stataŭ kapofrapi kaj elĵeti la nigrulojn el la pordo, frakasinte antaŭe je iliaj kapoj la karikaturajn kaj malĉastajn
 
 instrumentojn.
 
-Tio ne estas nur paŝo malantaŭen, tio estas katastro-
-
-to. Kaj ni haltas nur ie, kie haregoj estis unusola kovraĵo
+Tio ne estas nur paŝo malantaŭen, tio estas katastroto. Kaj ni haltas nur ie, kie haregoj estis unusola kovraĵo
 
 de la korpo.
 
-Kovaĝík trovis ian plezuron en ĉi tiu penso kaj komen-
-
-cis elprovi ĝin je la gedancantoj, pritaksante la plastikon
+Kovaĝík trovis ian plezuron en ĉi tiu penso kaj komencis elprovi ĝin je la gedancantoj, pritaksante la plastikon
 
 de iliaj movoj en ĉi tiu primitiva vesto. Ja eĉ kontentigo
 
 ekkaptis lin kaj animala ĝojo iom post iom plenigis lin.
 
-Poste ekvidinte sin en spegulo, li diris al si: fi, kaj be-
+Poste ekvidinte sin en spegulo, li diris al si: fi, kaj bedaŭris, ke ne estas permesite ĉi tie kraĉi. Li konsciiĝis, ke li faras efektive nenion alian, ol ĉiuj ceteraj, kiuj venas ĉi tien por la sama celo.
 
-daŭris, ke ne estas permesite ĉi tie kraĉi. Li konsciiĝis, ke li faras efektive nenion alian, ol ĉiuj ceteraj, kiuj venas ĉi tien por la sama celo.
+Forgesi ĉion, tiel nomatan ĉiutagan, anstataŭigi homecon per besteco. ĉi tie reviviĝadis longe kaj longe for-
 
-Forgesi ĉion, tiel nomatan ĉiutagan, anstataŭigi ho-
-
-mecon per besteco. ĉi tie reviviĝadis longe kaj longe for-
-
-gesitaj kaj venkitaj inklinoj, militaj brulaĵoj, el la milito rezultanta putrado de la vivo, ĉu publika, ĉu privata, dekadenco de la arto kaj ĝiaj disigaj tendencoj, dekaden-
-
-co de etiko, dekadenco de erotiko, perverso, simple ĉi tie
-
-
-MI EN LI
+gesitaj kaj venkitaj inklinoj, militaj brulaĵoj, el la milito rezultanta putrado de la vivo, ĉu publika, ĉu privata, dekadenco de la arto kaj ĝiaj disigaj tendencoj, dekadenco de etiko, dekadenco de erotiko, perverso, simple ĉi tie
 
 
 disiĝadis la fundo sub la piedoj kaj la falo povis havi nur
@@ -3219,25 +2495,19 @@ Eksentinte abomenon kontraŭ sin mem, Kovaĝík ne
 
 sciis, kiel prijuĝi Mílan.
 
-Observante ŝiajn iom mallevitajn palpebrojn, li ne du-
-
-bis, ke por momento ŝi atingis plej altan emocion. Tio
+Observante ŝiajn iom mallevitajn palpebrojn, li ne dubis, ke por momento ŝi atingis plej altan emocion. Tio
 
 estis jam nur viveco de pupo, kiu obeas risorton ĉiam
 
 denove streĉatan.
 
-Li ekkoleris terure, konsciiĝinte, ke kiu ajn el tiuj ni-
-
-graj buklaj knabegoj kun eligitaj dentoj ekokupas antaŭ
+Li ekkoleris terure, konsciiĝinte, ke kiu ajn el tiuj nigraj buklaj knabegoj kun eligitaj dentoj ekokupas antaŭ
 
 li la plejsekretaĵon de la virino, forŝovas lin, kiu tenas ŝin en la brakoj, kiu per sia korpo akceptas ŝian varmon, kiu
 
 parolas kun ŝi per la sama lingvo, kiu estas ano de la
 
-sama raso. Tuj li komprenis, kiel estas eble, saluti la on-
-
-klon Lynch.
+sama raso. Tuj li komprenis, kiel estas eble, saluti la onklon Lynch.
 
 Kaj jen tiu virino, meditis Kovaĝík, ne pensas pri mi,
 
@@ -3251,9 +2521,7 @@ Jen bildo el panoptiko transprenita en spektaklon, kie
 
 Virino forrabata de orangutango!
 
-Kaj mi — oni imagu — mi anstataŭas ĝin. Mi protek-
-
-tas ĝin!
+Kaj mi — oni imagu — mi anstataŭas ĝin. Mi protektas ĝin!
 
 Salivoj de abomeno denove amasiĝis sur la lango
 
@@ -3262,18 +2530,13 @@ de Kovaĝík kaj li ĉagreniĝis pri si mem.
 Alisona ekkviko anoncis la dancfinon de la publiko.
 
 
-MI EN LI
-
-
 Premdifektita Míla pendis sur la brako de Kovaĝík
 
 kvazaŭ tretita ŝalo. Ili trapuŝis sin sur la ŝtuparo en sian
 
 loĝion, kie li demetis ŝin kvazaŭ malŝvelintan baloneton.
 
-ŝi spiradis mallaŭte kvazaŭ kanario, enspirinta lumga-
-
-son. Li bedaŭris ŝin kaj tamen li estis tiel ĝentila, ke li
+ŝi spiradis mallaŭte kvazaŭ kanario, enspirinta lumgason. Li bedaŭris ŝin kaj tamen li estis tiel ĝentila, ke li
 
 klopodis senpartie diveni, kiu unualoke aŭ plej multe
 
@@ -3283,29 +2546,21 @@ Sur la tablo staris jam areto da boteloj, oni aranĝis
 
 spektaklon por si mem. La helhara Inka tintis groteskan
 
-instrumenton kaj du aliaj knabinoj ĵus efektivigadis mal-
-
-grandan dancprezentadon, kies tendenco estis nepre
+instrumenton kaj du aliaj knabinoj ĵus efektivigadis malgrandan dancprezentadon, kies tendenco estis nepre
 
 memkomprenebla.
 
 Hora, komforte ripozante sur divano kvazaŭ grasa
 
-Turko, alrigardis kun aspekto de bone tagmanĝinta, an-
+Turko, alrigardis kun aspekto de bone tagmanĝinta, antaŭurba domposedanto.
 
-taŭurba domposedanto.
-
-Sinjoro edzo ne ĉeestis, li alrigardis el la loĝio la spek-
-
-taklon sur la scenejo.
+Sinjoro edzo ne ĉeestis, li alrigardis el la loĝio la spektaklon sur la scenejo.
 
 Enprofundiĝinta en sin mem Míla petis pri pokalo da
 
 ĉampana vino, poste ŝi ekbruligis cigaredon kaj kun
 
-vitrecaj okuloj ŝi pensis pri io, ne atentante la ĉeestan-
-
-tojn. Ankaŭ Kovaĝík preferis ĉampanan vinon kaj rim-
+vitrecaj okuloj ŝi pensis pri io, ne atentante la ĉeestantojn. Ankaŭ Kovaĝík preferis ĉampanan vinon kaj rim-
 
 arkinte, ke Hora estas tute absorbita de observado de
 
@@ -3316,22 +2571,15 @@ Koloraj spektakloj, en kiuj la ĉefa koloro estis ruĝeta
 haŭtkoloro, estis bone enscenigitaj kaj, kiel Kovaĝík ne
 
 
-MI EN LI
-
-
 povis nei, ili superis per senriproĉa virina materialo multajn tre laŭdatajn eksterlandajn prezentadojn.
 
-Strange estis nur, ke la viraj roloj, se ne ludis ilin vi-
-
-rinoj kun plataj mamoj, entute estis reprezentataj de
+Strange estis nur, ke la viraj roloj, se ne ludis ilin virinoj kun plataj mamoj, entute estis reprezentataj de
 
 anoj de alikoloraj rasoj, laŭ tio, de kie estis prenita la
 
 prezentata sceno.
 
-Iom embarase efikis, ke la prezentado estis akompa-
-
-nata de arĉinstrumenta kvarteto, ludanta nur klasikajn
+Iom embarase efikis, ke la prezentado estis akompanata de arĉinstrumenta kvarteto, ludanta nur klasikajn
 
 komponaĵojn. Kompreneble la prezentado estis aranĝita
 
@@ -3345,9 +2593,7 @@ korpojn, prudente preferas klasikan muzikon, ĉar bone
 
 edukita viro ebriiĝas ĝis bruteco nur je fino de festeno,
 
-kiam li povas supozi, ke la ceteraj estas en la sama sta-
-
-to, se ne eĉ en pli malbona.
+kiam li povas supozi, ke la ceteraj estas en la sama stato, se ne eĉ en pli malbona.
 
 Kompreneme Kovaĝík pritaksis la tutajn aranĝojn de
 
@@ -3357,18 +2603,11 @@ ekipo celis nur eltiri el poŝoj de la vizitantoj kiel eble plej multe da mono.
 
 La mistero de la aliro, kiu estis trompaĵo, nesignita
 
-pordego, eniro tra malnova, nelumigita ĝardeno, roton-
+pordego, eniro tra malnova, nelumigita ĝardeno, rotonda ĉambro, silenta diskreteco, ĉio celis nur kaj nur, veki
 
-da ĉambro, silenta diskreteco, ĉio celis nur kaj nur, veki
-
-en la alvenanto la impreson, ke li faras ion malpermesi-
-
-tan, kio devas esti kaŝata.
+en la alvenanto la impreson, ke li faras ion malpermesitan, kio devas esti kaŝata.
 
 Kaj kontraŭe en iom malfermitaj kurtenoj de la loĝioj
-
-
-MI EN LI
 
 
 li ekkonis vizaĝojn de la hodiaŭaj vizitintoj de la Nacia
@@ -3377,21 +2616,15 @@ Teatro, kiuj vokis unu al alia la devizon: *Colorado*!
 
 Ja, ĝuste en la kontraŭa loĝio sidis konata komisaro de
 
-la polica direkcio kun du seriozaj sinjoroj kaj unu kna-
+la polica direkcio kun du seriozaj sinjoroj kaj unu knabino, kiu laŭŝajne ankoraŭ ne estis deksesjara.
 
-bino, kiu laŭŝajne ankoraŭ ne estis deksesjara.
-
-La sola diferenco estis, ke la vizitantoj ne toleris kon-
-
-kurencon de la demimondo sur la pargetoj en partero,
+La sola diferenco estis, ke la vizitantoj ne toleris konkurencon de la demimondo sur la pargetoj en partero,
 
 opiniante laŭŝajne, ke ĉi tiun konkurencon ili prizorgos
 
 mem.
 
-La demimondo devis esti venigita, sed nur en la ma-
-
-lantaŭajn salonetojn de la loĝioj. Certe estis do atingita
+La demimondo devis esti venigita, sed nur en la malantaŭajn salonetojn de la loĝioj. Certe estis do atingita
 
 la plej alta grado de deca aranĝo kaj estis ebligite eniri
 
@@ -3413,9 +2646,7 @@ submetiĝas al ĝi.
 
 Signalo de nigrula abortulo, kaŭranta post granda
 
-tamburo, elektrigis la danculinojn. Kovaĝík preferis ob-
-
-servi la svarmadon sur la pargeto de sur iom pli alta
+tamburo, elektrigis la danculinojn. Kovaĝík preferis observi la svarmadon sur la pargeto de sur iom pli alta
 
 loĝio. Li supozis ankaŭ, ke Míla ripozis iom, estinte de
 
@@ -3424,30 +2655,19 @@ li sutiĉe skuegata antaŭ mallonga tempo.
 Sed ĉi tiu supozo aperis post kelke da sekundoj erara.
 
 
-MI EN LI
-
-
 Míla, direktata de svelta, juna, infanvizaĝa viro ennaĝis
 
 sur pargeton sub veloj plenaj da volupto.
 
 ”Kia surprizo, Mandelinka ankaŭ ĉeestas!” vekiĝis la
 
-edzo de Míla el la spirita rigideco, kiun rezultigis ĉe li la fino de la lasta programero, en kiu ĵaluza ˘ino — surpri-zinte nudan adultulinon — alpikis ŝin al bambua kolo-
+edzo de Míla el la spirita rigideco, kiun rezultigis ĉe li la fino de la lasta programero, en kiu ĵaluza ˘ino — surpri-zinte nudan adultulinon — alpikis ŝin al bambua kolono per ĵetita tranĉilo. La tranĉilo fiksiĝis en la korpo kaj
 
-no per ĵetita tranĉilo. La tranĉilo fiksiĝis en la korpo kaj
+la sango elfluis sur ruĝetan kokson. La artifiko estis perfekte enscenigita kaj Horálek ne kapablis klarigi ĝin al si.
 
-la sango elfluis sur ruĝetan kokson. La artifiko estis per-
+Post la menciitaj vortoj li denove silentiĝis kaj alrigardis la gedancantojn.
 
-fekte enscenigita kaj Horálek ne kapablis klarigi ĝin al si.
-
-Post la menciitaj vortoj li denove silentiĝis kaj alrigar-
-
-dis la gedancantojn.
-
-Se la pariĝo sur la pargeto estis abomenaĵo, surprize-
-
-gis la trankvileco de tiu ĉi viro kaj de la plejparto de tiuj, kiuj alrigardis.
+Se la pariĝo sur la pargeto estis abomenaĵo, surprizegis la trankvileco de tiu ĉi viro kaj de la plejparto de tiuj, kiuj alrigardis.
 
 ĉi tio estis novaĵo por Kovaĝík kaj tial li ne povis ne
 
@@ -3457,43 +2677,25 @@ Edzo observas kun evidenta ĝojo, kiel iu alia ekscitas
 
 lian edzinon por redoni ŝin al li eluzita. ĉi tiu sinjoro
 
-Horálek ne estis la sola, ankaŭ en aliaj loĝioj aperis kon-
-
-tentaj vizaĝoj. Versimile la edzoj ne fidis la efikojn de sia temperamento, kiun aliaj edzinoj estis jam pesintaj kaj
+Horálek ne estis la sola, ankaŭ en aliaj loĝioj aperis kontentaj vizaĝoj. Versimile la edzoj ne fidis la efikojn de sia temperamento, kiun aliaj edzinoj estis jam pesintaj kaj
 
 klasifikintaj, sed admirante la fajron de siaj edzinoj, ili
 
-aljuĝis ĝian forton al si mem, konservante imponan as-
-
-pekton de stalposedanto, kiu — kompreneble — mem
+aljuĝis ĝian forton al si mem, konservante imponan aspekton de stalposedanto, kiu — kompreneble — mem
 
 ne konkuras.
 
-Ankaŭ io alia povis esti kaŝita ankoraŭ en alia bonvo-
+Ankaŭ io alia povis esti kaŝita ankoraŭ en alia bonvolemo kaj kontenteco. Blankaĵon oni ekkonas plej bone
 
-
-MI EN LI
-
-
-lemo kaj kontenteco. Blankaĵon oni ekkonas plej bone
-
-nur, post kiam ĝi estas makulita de malpuraĵo; serĉan-
-
-te noblecon de siaj edzinoj, ili nepre bezonis iom da
+nur, post kiam ĝi estas makulita de malpuraĵo; serĉante noblecon de siaj edzinoj, ili nepre bezonis iom da
 
 malpurigo por trovi ĝin.
 
-Aŭ eble abnegaciata aĵo gustas plej bone! ĉu plimul-
+Aŭ eble abnegaciata aĵo gustas plej bone! ĉu plimultigante sian humiligon, ili incitadis sian ĝuston je la resto de redonaĵo?
 
-tigante sian humiligon, ili incitadis sian ĝuston je la resto de redonaĵo?
+Eble estus plej bone demandi rekte ĉi tiujn edzofigurojn, sed Kovaĝík ne konsideris tion sufiĉe oportuna.
 
-Eble estus plej bone demandi rekte ĉi tiujn edzofigu-
-
-rojn, sed Kovaĝík ne konsideris tion sufiĉe oportuna.
-
-La knabaspekta danckunulo de Míla estis anstataŭi-
-
-ta de alia kaj, kvazaŭ tio estus signalo, Míla estis ŝirata
+La knabaspekta danckunulo de Míla estis anstataŭita de alia kaj, kvazaŭ tio estus signalo, Míla estis ŝirata
 
 el mano en manon, kvazaŭ la viroj enmanigadus pilkon
 
@@ -3513,9 +2715,7 @@ la pargeto kvazaŭ freneziĝintajn turbojn, nur la senco
 
 kaj celo de iliaj movoj lasis diveni, ke ili estas iom pli ol vivigitaj kaj nun turnigataj kaj skuegataj pupoj.
 
-Rememorante sian antaŭan evolucion kun Míla, Ko-
-
-vaĝík forlasis la ravigitan edzon kaj retiriĝis al ĉampana
+Rememorante sian antaŭan evolucion kun Míla, Kovaĝík forlasis la ravigitan edzon kaj retiriĝis al ĉampana
 
 vino.
 
@@ -3524,18 +2724,13 @@ En la saloneto Hora estis sola kaj sur liaj genuoj sidis
 Inka. Per la mano li ordigis ŝiajn harojn al nova frizaĵo.
 
 
-MI EN LI
-
-
 Kovaĝík rigidiĝis pro miro kaj tuj li ekkomprenis, de kie
 
 Inka ŝajnis konata al li.
 
 ŝi estis nepra kopio de Míla.
 
-Diferencigis ilin nur la trajto de sperto, kiu ne mal-
-
-aperis de la ŝminkitaj lipoj de ĉi tiu juna dancejknabino;
+Diferencigis ilin nur la trajto de sperto, kiu ne malaperis de la ŝminkitaj lipoj de ĉi tiu juna dancejknabino;
 
 ĉe Míla la ŝm ne kaŝis la trajton de scivolemo kaj de
 
@@ -3547,9 +2742,7 @@ devon lasi lin sola. Fine li ne atentis eĉ Kovaĝíkon kaj laŭ
 
 sia maniero li dediĉis sin al sia surogato.
 
-Se la simileco de ambaŭ virinoj estis surprizo por Ko-
-
-vaĝík, la senco de la ŝanĝo de Inka estis afero, kiu vekis
+Se la simileco de ambaŭ virinoj estis surprizo por Kovaĝík, la senco de la ŝanĝo de Inka estis afero, kiu vekis
 
 miregon en Kovaĝík.
 
@@ -3573,14 +2766,9 @@ Hora klinis sin al Kovaĝík:
 
 Kiam Kovaĝík nee skuis la kapon, Hora bedaŭris:
 
-”Domaĝe! Vi ekscius, kiel plej pura angla lingvo kapa-
-
-blas esti senfine malmorala, se la buŝo de ĉi tiu infano
+”Domaĝe! Vi ekscius, kiel plej pura angla lingvo kapablas esti senfine malmorala, se la buŝo de ĉi tiu infano
 
 prononcas ĝin. Inka parolas nur angle.”
-
-
-MI EN LI
 
 
 Sed Kovaĝík scipovis la anglan tiom por kompreni, ke
@@ -3593,19 +2781,13 @@ Post ekkviko revenis la edzo kaj de Mandelinka estis
 
 altrenita ankaŭ lia edzino.
 
-Sinjoro Mandelinka estis leŭtenanto en la naŭdek-
-
-naŭa regimento, kiu ekmilitis nur post la milito, kaj tial
+Sinjoro Mandelinka estis leŭtenanto en la naŭdeknaŭa regimento, kiu ekmilitis nur post la milito, kaj tial
 
 li restis delikatsenta.
 
-Antaŭstreĉante tre malproksimen la manon li prezen-
+Antaŭstreĉante tre malproksimen la manon li prezentis sin:
 
-tis sin:
-
-”Mi estas leŭtenanto Mandelinka. Mi ne sukcesas res-
-
-ti nerimarkata. Eĉ se mi ne havas uniformon, ĉiuj reko-
+”Mi estas leŭtenanto Mandelinka. Mi ne sukcesas resti nerimarkata. Eĉ se mi ne havas uniformon, ĉiuj reko-
 
 nas min. Nenie mi kapablas kaŝi min.”
 
@@ -3615,29 +2797,20 @@ manon:
 
 ”Tio estas admirinda, sed ĝi devas lacigi vin.”
 
-Mandelinka ĝojigita ne hezitis kaj tuj li fiere ekrakon-
-
-tis pri la originala konatiĝo kun la familio Horálek, kiun
+Mandelinka ĝojigita ne hezitis kaj tuj li fiere ekrakontis pri la originala konatiĝo kun la familio Horálek, kiun
 
 antaŭiris drameca interkonatiĝo de liaj pantalonoj kun
 
 la dentoj de la hundo de Horálek, kiam Mandelinka
 
-frunte de sia taĉmento venkakiris la barilon de la ĝarde-
-
-no de Horálek. Sinjorino Míla volis doni kompreson al
+frunte de sia taĉmento venkakiris la barilon de la ĝardeno de Horálek. Sinjorino Míla volis doni kompreson al
 
 li, sed li danke rifuzis, ĉar la pantalono ne sangis.
 
 ĉi tiu priskribo estis interesa nur tiurilate, ke sinjoro
 
 
-MI EN LI
-
-
-leŭtenanto eĉ ne ekmovis la palpebrojn, kiam dum la ĉe-
-
-esto de Horálek li nomis lian edzinon sinjorino Míla. Sed
+leŭtenanto eĉ ne ekmovis la palpebrojn, kiam dum la ĉeesto de Horálek li nomis lian edzinon sinjorino Míla. Sed
 
 tio laŭŝajne estis nenio eksterordinara.
 
@@ -3651,15 +2824,11 @@ de la tablo, li mem — kompreneble — sidis tiel, ke al lia
 
 dekstra flanko eksidis Míla, modesta kvazaŭ ŝafido kaj
 
-konfidanta sin humile al la ŝirmo kaj protekto de lia gra-
-
-sa flugilo.
+konfidanta sin humile al la ŝirmo kaj protekto de lia grasa flugilo.
 
 La singarde trinkanta Horálek komencis paroli pri la
 
-sceno de ĵaluza ˘ino kaj priskribis ĝin detale. Li klopo-
-
-dis diveni, kiel la artifiko estis aranĝita, sed li ne trovis klarigon.
+sceno de ĵaluza ˘ino kaj priskribis ĝin detale. Li klopodis diveni, kiel la artifiko estis aranĝita, sed li ne trovis klarigon.
 
 Li ekhavis la malfeliĉan ideon, turni sin al Kovaĝík kun
 
@@ -3669,27 +2838,16 @@ vidis la scenon.
 
 Kovaĝík deklaris do fiere, ke li divenis la ruzaĵon, kiu
 
-estis infane primitiva. Lin interesis pli multe la dancis-
+estis infane primitiva. Lin interesis pli multe la dancistino, ol la furioza ˘ino kaj tiamaniere, kiam — dum dan-
 
-tino, ol la furioza ˘ino kaj tiamaniere, kiam — dum dan-
-
-co, kiu prezentis forkuron — la nuda knabino estis pe-
-
-lata de la ˘ino al la bambua barilo, li ne koncentris sian
+co, kiu prezentis forkuron — la nuda knabino estis pelata de la ˘ino al la bambua barilo, li ne koncentris sian
 
 atenton al la ˘ino, kiu lerte logis al si la scivolon de la
 
-rigardantoj kaj la tranĉilon li ĵetis plentorte al alia kna-
-
-bino, kiu havante jam sur la brusto fiksita anstataŭaĵon
+rigardantoj kaj la tranĉilon li ĵetis plentorte al alia knabino, kiu havante jam sur la brusto fiksita anstataŭaĵon
 
 
-MI EN LI
-
-
-de la tranĉilo, sammomente dum ono de sekundo ansta-
-
-taŭis la unuan knabinon.
+de la tranĉilo, sammomente dum ono de sekundo anstataŭis la unuan knabinon.
 
 Sinjoro Horálek tamen estus preferinta aŭdi ion pli
 
@@ -3705,55 +2863,38 @@ Horálek levis la glason kaj fraptintis ĝin kun la glaso
 
 de Kovaĝík. Mandelinka male ekskuiĝis pro abomeno,
 
-kvazaŭ glacikonuso estus falinta malantaŭ lian kolu-
-
-mon. Sammomente Míla jam vokis:
+kvazaŭ glacikonuso estus falinta malantaŭ lian kolumon. Sammomente Míla jam vokis:
 
 ”Ne timigu sinjoron leŭtenanton Mandelinka!”
 
 Li kontraŭdiris:
 
-”Ho, sinjorina moŝto, mi ĉeestas gnito; nur Man-
-
-delinka!”
+”Ho, sinjorina moŝto, mi ĉeestas gnito; nur Mandelinka!”
 
 ”Sekve via forto estas nur en la uniformo.”
 
-”Ho ne, certe, ne, nepre ne!” li kontraŭdiris ruĝiĝan-
-
-te. ”Mi kapablas rigardi eĉ tre abomenajn aferojn. Se mi
+”Ho ne, certe, ne, nepre ne!” li kontraŭdiris ruĝiĝante. ”Mi kapablas rigardi eĉ tre abomenajn aferojn. Se mi
 
 ne volus teruri la estimatajn ĉeestantojn, mi rakontus
 
-ion, kio tuj kaj per unu fojo konvinkus vin pri miaj bo-
-
-naj nervoj.”
+ion, kio tuj kaj per unu fojo konvinkus vin pri miaj bonaj nervoj.”
 
 Ili amase atakis lin kvazaŭ vespoj scivolaj ekkoni la
 
-kuraĝon de Mandelinka, neniel atentante liajn eltur-
-
-niĝojn. Li elturniĝadis por eviti respondon, sed la atako
+kuraĝon de Mandelinka, neniel atentante liajn elturniĝojn. Li elturniĝadis por eviti respondon, sed la atako
 
 flatis lin. Cetere li ne estis unu el tiuj, kiujn oni devas
 
 longe peti.
 
 
-MI EN LI
-
-
 ”Mia bona amiko, kompreneble mi ne rajtas nomi lin,
 
-ĉar mi promesis diskretecon, faras tre interesajn ekspe-
-
-rimentojn, kiuj — por tiel diri — atingas la limojn de la
+ĉar mi promesis diskretecon, faras tre interesajn eksperimentojn, kiuj — por tiel diri — atingas la limojn de la
 
 stato, kiun nia intelekto ne kapablas kompreni.”
 
-Per aplaŭdo oni volis lin kuraĝigi. Modeste li dankri-
-
-verencis kaj ĝojigita pro la atentemo li daŭrigis:
+Per aplaŭdo oni volis lin kuraĝigi. Modeste li dankriverencis kaj ĝojigita pro la atentemo li daŭrigis:
 
 ”Se nur la sinjorina moŝto ne timos!”
 
@@ -3761,47 +2902,28 @@ verencis kaj ĝojigita pro la atentemo li daŭrigis:
 
 ”Do, mi petas. Eble mi ne malkaŝos tro multe, se mi
 
-diros, ke mia amiko estas doktoro, kompreneble de me-
+diros, ke mia amiko estas doktoro, kompreneble de medicino. Tamen ni komencu prefere de alia flanko. Kiu el
 
-dicino. Tamen ni komencu prefere de alia flanko. Kiu el
-
-vi, tre estimataj, ne legis aŭ ne aŭdis, ke la kapo de ek-
-
-zekutito, montrante la dentojn, ridis al la ekzekutisto. Vi
+vi, tre estimataj, ne legis aŭ ne aŭdis, ke la kapo de ekzekutito, montrante la dentojn, ridis al la ekzekutisto. Vi
 
 ridas, nu bone; eble, ke vi ne legis tion, sed en serioza
 
-gazetaro estis skribite, ke la okuloj de ekzekutito mo-
+gazetaro estis skribite, ke la okuloj de ekzekutito moviĝas. Oni asertas — kaj tio estas sendispute certa — ke
 
-viĝas. Oni asertas — kaj tio estas sendispute certa — ke
-
-partoj de la homa korpo, estinte apartigitaj de la trun-
-
-ko — mi petas, atentu bone — vivas! Ne timu, sinjorina
+partoj de la homa korpo, estinte apartigitaj de la trunko — mi petas, atentu bone — vivas! Ne timu, sinjorina
 
 moŝto! Dum mi ĉeestas, nenio okazos al vi.”
 
-”Mi daŭrigas. Via dubema rido, sinjoroj, estas tre kon-
-
-vena al mi. ĉu vi volas eble dubi pri mondkonata sci-
+”Mi daŭrigas. Via dubema rido, sinjoroj, estas tre konvena al mi. ĉu vi volas eble dubi pri mondkonata sci-
 
 enculo, kia estas Kravkov, la rusa profesoro? ĉu vi volas
 
-eble dubi, ke en munęna patologia instituto vivas pro-
+eble dubi, ke en munęna patologia instituto vivas profesoro Dormanns? Do, por ke mi ne tro streĉu vin. La
 
-fesoro Dormanns? Do, por ke mi ne tro streĉu vin. La
-
-profesoro, mi diras, profesoro Kravkov faris iajn ekspe-
-
-rimentojn, inter alie li daŭrigis la vivon en homaj fingroj,
+profesoro, mi diras, profesoro Kravkov faris iajn eksperimentojn, inter alie li daŭrigis la vivon en homaj fingroj,
 
 
-MI EN LI
-
-
-kiujn oni fortranĉis de la mano. ĉi tiujn liajn eksperi-
-
-mentojn kontrolis la ĵus menciita munęna profesoro
+kiujn oni fortranĉis de la mano. ĉi tiujn liajn eksperimentojn kontrolis la ĵus menciita munęna profesoro
 
 Dormanns kaj konfirmis ilin. Kion signifas tio?”
 
@@ -3809,15 +2931,11 @@ Dormanns kaj konfirmis ilin. Kion signifas tio?”
 
 melodio.
 
-”Vi ridas, sinjoro Hora, tamen ĝojigas min, ke jen sin-
-
-joro Kovaĝík restas serioza. Sed mi opinias, ke ankaŭ vi
+”Vi ridas, sinjoro Hora, tamen ĝojigas min, ke jen sinjoro Kovaĝík restas serioza. Sed mi opinias, ke ankaŭ vi
 
 serioziĝos. Ni revenu al mia amiko, kiun ni forlasis en la
 
-komenco. Mi asertas kiel oficiro, ke mi vidis ĉe li for-
-
-tranĉitajn fingrojn, kiujn li havis dum kelkaj tagoj en
+komenco. Mi asertas kiel oficiro, ke mi vidis ĉe li fortranĉitajn fingrojn, kiujn li havis dum kelkaj tagoj en
 
 sala solvaĵo, kvazaŭ fiŝojn.”
 
@@ -3825,9 +2943,7 @@ sala solvaĵo, kvazaŭ fiŝojn.”
 
 ”Ili ne naĝis, tio estus mensogo. Sed li pikadis ilin aŭ
 
-ŝprucadis en ilin ion, mi ne memoras plu, kion. La fin-
-
-groj reagis, li rakontis tion al mi.”
+ŝprucadis en ilin ion, mi ne memoras plu, kion. La fingroj reagis, li rakontis tion al mi.”
 
 Oni respondis al li per brua konsento, el kiu tamen
 
@@ -3843,23 +2959,16 @@ povus doni klarigon al la gesinjoroj.”
 
 La rido iom post iom silentiĝis, kiam la aliaj vidis, ke
 
-Kovaĝík restas serioza. Ja Míla Horálková eĉ mem ekpe-
-
-tis:
+Kovaĝík restas serioza. Ja Míla Horálková eĉ mem ekpetis:
 
 ”Sinjoro Mandelinka brile plenumis sian taskon, nun
 
 estas do via vico!”
 
 
-MI EN LI
-
-
 Kovaĝík respondis mirige serioze:
 
-”Mi konas la eksperimentojn de la menciitaj du pro-
-
-fesoroj kaj, kion asertis sinjoro leŭtenanto, estas vero.
+”Mi konas la eksperimentojn de la menciitaj du profesoroj kaj, kion asertis sinjoro leŭtenanto, estas vero.
 
 Koncerne la eksperimentojn kun fingroj, kiuj estis dum
 
@@ -3873,15 +2982,11 @@ plivastigon aŭ kuntiriĝon de angiaj kapilaroj. Estas eĉ
 
 eble efektivigi ian ŝvelaĵon sur tiel konservitaj fingroj, se oni uzas krotonoleon. Laŭ profesoro Dormanns havas ĉi
 
-tiuj ŝanĝoj sur mortaj korpopartoj fizike-kemian kar-
-
-akteron.”
+tiuj ŝanĝoj sur mortaj korpopartoj fizike-kemian karakteron.”
 
 ”Per aliaj vortoj, por ke ankaŭ ni komprenu tion?”
 
-”La vivo de korpopartoj estas obligata per fizika-ke-
-
-mia procedo. Se post tiel nomata morto, kiel ni kom-
+”La vivo de korpopartoj estas obligata per fizika-kemia procedo. Se post tiel nomata morto, kiel ni kom-
 
 prenas ĝin, vivas parto de korpo, kial ne povus vivi la
 
@@ -3897,16 +3002,11 @@ post kelka tempo Míla Horálková:
 
 antaŭ longa tempo aŭ eble en Praha?”
 
-”Hieraŭ en mia loĝejo. De post la trovo de la malfeli-
-
-ĉa knabino en Koôíĝe oni faras tiajn eksperimentojn,
+”Hieraŭ en mia loĝejo. De post la trovo de la malfeliĉa knabino en Koôíĝe oni faras tiajn eksperimentojn,
 
 kiom mi scias, kelkloke en Praha.”
 
 Denove eksilentis la ĉeestantoj, ĉi tiun fojon por longa
-
-
-MI EN LI
 
 
 tempo. Nur la abomena ĵazbando zumis tra la saloneto
@@ -3919,48 +3019,29 @@ kiun tamen neniu trinkis. Li turnis sin al Kovaĝík:
 
 ”Mi konjektas, ke vi ne dubas pri miaj simpatioj. La
 
-sinjorina moŝto rakontis iom pri la afero, dum ni vetu-
+sinjorina moŝto rakontis iom pri la afero, dum ni veturis hodiaŭ al la teatro. Kaj fiere ŝi menciis, ke ŝi parto-
 
-ris hodiaŭ al la teatro. Kaj fiere ŝi menciis, ke ŝi parto-
+prenas viajn esplorojn. Certe ŝi faris tion nur konvinkita, ke vi ne ĉagreniĝos pro ĉi tiu malkaŝo, ĉar ŝi sciis, ke
 
-prenas viajn esplorojn. Certe ŝi faris tion nur konvinki-
-
-ta, ke vi ne ĉagreniĝos pro ĉi tiu malkaŝo, ĉar ŝi sciis, ke
-
-ankaŭ ni tre ŝatos helpi vin, kiom ni kapablos, se vi hon-
-
-origos nin per via konfido. Jen mia mano, sinjoro Ko-
+ankaŭ ni tre ŝatos helpi vin, kiom ni kapablos, se vi honorigos nin per via konfido. Jen mia mano, sinjoro Ko-
 
 vaĝík.”
 
-Vole-nevole devis Kovaĝík akcepti la proponitan ma-
+Vole-nevole devis Kovaĝík akcepti la proponitan manon kaj same ankaŭ la manon de Horálek. Mandelinkan
 
-non kaj same ankaŭ la manon de Horálek. Mandelinkan
+oni rigardis ĝenerale knabo kaj ankaŭ nun li restis nekonsiderata.
 
-oni rigardis ĝenerale knabo kaj ankaŭ nun li restis ne-
+Sinjorino Míla iris ankoraŭfoje danci kun Mandelinka, sed baldaŭ ŝi revenis asertante, ke ŝi estas jam laca.
 
-konsiderata.
-
-Sinjorino Míla iris ankoraŭfoje danci kun Mandelin-
-
-ka, sed baldaŭ ŝi revenis asertante, ke ŝi estas jam laca.
-
-Lacaj sentis sin fine ĉiuj. Ili foriris do kaj estinte ella-
-
-sitaj dum ceremonioj jam bone konataj, ili venis al prok-
+Lacaj sentis sin fine ĉiuj. Ili foriris do kaj estinte ellasitaj dum ceremonioj jam bone konataj, ili venis al prok-
 
 sima stratangulo, kie atendis luaŭtomobiloj. Kovaĝík
 
 dankis por proponita akompano hejmen asertante, ke li
 
-ŝatos piediri, ĉar li bezonas tion. Ili ne kontraŭstaris su-
-
-pozante, ke ili komprenas lin.
+ŝatos piediri, ĉar li bezonas tion. Ili ne kontraŭstaris supozante, ke ili komprenas lin.
 
 La aŭtomobilo forbruis kaj Kovaĝík per malrapidaj
-
-
-MI EN LI
 
 
 paŝoj iris hejmen tra malplenaj stratoj de Malnovurba
@@ -3971,9 +3052,7 @@ Tra Longa Strato li venis al la Malnovurba placo kaj
 
 baldaŭ li atingis la kajon proksime al la Nacia Teatro. La
 
-akvobaroj bruis kaj la firmamento en la oriento komen-
-
-cis heliĝi. Sur la Slava Insulo la birdoj komencis siajn
+akvobaroj bruis kaj la firmamento en la oriento komencis heliĝi. Sur la Slava Insulo la birdoj komencis siajn
 
 matenkantojn.
 
@@ -3982,9 +3061,7 @@ Delikata maja pluvo ŝutiĝis el nuboj sur kampojn en la
 
 ĉirkaŭaĵo de Koôíĝe, la tero sur la kampa vojo ŝanĝiĝis en
 
-ŝmiran koton, kiu gluiĝis al ŝuoj kvazaŭ tera pesilo. Ko-
-
-vaĝík, malseka de la kapo ĝis la kalkanoj, vadis tra la ko-
+ŝmiran koton, kiu gluiĝis al ŝuoj kvazaŭ tera pesilo. Kovaĝík, malseka de la kapo ĝis la kalkanoj, vadis tra la ko-
 
 to, ne povante malsupreniri sur la deklivo, kie liaj piedoj
 
@@ -3992,9 +3069,7 @@ glitadis kvazaŭ sur glitvojeto.
 
 Nekontenta pri la rezulto de sia gardado, li intencis
 
-demandi Mílan, ĉu ŝi vidis ion. Timante post la ekskur-
-
-so al *Colorado*, ke la aliaj nur malhelpos lin, li ne volis peti ŝian helpon, sed li rimarkis, ke lia gardado ne kondukas kaj ne kondukos al celo, se li restos sola.
+demandi Mílan, ĉu ŝi vidis ion. Timante post la ekskurso al *Colorado*, ke la aliaj nur malhelpos lin, li ne volis peti ŝian helpon, sed li rimarkis, ke lia gardado ne kondukas kaj ne kondukos al celo, se li restos sola.
 
 Hodiaŭ li esploris partojn ĉe la Blanka Monto kaj ĉe
 
@@ -4004,12 +3079,7 @@ kamporandaĵoj kaj sur la kampa vojo al vicoj da koloraj
 
 dometoj kaj al la lasta el ili.
 
-Li konjektis, ke Míla estos sola hejme, ĉar estas post-
-
-tagmeze. Al sia kontentiĝo li rimarkis, ke Míla plenumas
-
-
-MI EN LI
+Li konjektis, ke Míla estos sola hejme, ĉar estas posttagmeze. Al sia kontentiĝo li rimarkis, ke Míla plenumas
 
 
 sian taskon. Kvankam li iris de la alia flanko ol li povis
@@ -4032,21 +3102,15 @@ la manĝoĉambron, kie sidis jam Hora kaj la edzo de
 
 Míla, prenante posttagmezan manĝon.
 
-Kovaĝík ne imagis tiel la aferon kaj pensis, ke la var-
-
-mon de la manĝoĉambro kaj la odoron de la kafo, kiuj
+Kovaĝík ne imagis tiel la aferon kaj pensis, ke la varmon de la manĝoĉambro kaj la odoron de la kafo, kiuj
 
 tre agrable bonvenigis lin, tamen prefere li interŝanĝus
 
 por la koto de kampoj, kie neniu demandus lin pri io.
 
-Ili kondutis pli konvene, ol li atendis. Míla dufoje en-
+Ili kondutis pli konvene, ol li atendis. Míla dufoje enverŝis al li kafon kaj la sinjoroj amike alŝovis al li kukojn, kiujn li ne kalkulis.
 
-verŝis al li kafon kaj la sinjoroj amike alŝovis al li kukojn, kiujn li ne kalkulis.
-
-Poste oni prezentis al li cigarojn kaj cigaredojn; li pre-
-
-feris la lastajn. Kaj poste, kiam li estis sata de manĝaĵoj
+Poste oni prezentis al li cigarojn kaj cigaredojn; li preferis la lastajn. Kaj poste, kiam li estis sata de manĝaĵoj
 
 kaj trinkaĵoj, kiam blanketa fumo de cigaredo moligis
 
@@ -4056,21 +3120,13 @@ Hora helpis lin per netrudema demando.
 
 Ili estas ja komercistoj, ekpensis Kovaĝík kaj tial li ne
 
-riproĉis ilin, kiel singarde ili proksimiĝis al la temo, laŭ-
-
-
-MI EN LI
-
-
-ŝajne enuante dum pluva tago. La sinjorino ne sidis plu
+riproĉis ilin, kiel singarde ili proksimiĝis al la temo, laŭŝajne enuante dum pluva tago. La sinjorino ne sidis plu
 
 kun ili, li vidis ja, ke ŝi estas en la unua etaĝo.
 
 Li resumis la rezulton de sia esplorado per unu vorto:
 
-Nemulte. La rezulto estis esence negativa, sed iom valo-
-
-ra ĝi tamen estis. Li eksciis, kiuj ne povis partopreni la
+Nemulte. La rezulto estis esence negativa, sed iom valora ĝi tamen estis. Li eksciis, kiuj ne povis partopreni la
 
 misteran okazaĵon sur la tombejo en Koôíĝe.
 
@@ -4080,27 +3136,19 @@ la homoj loĝantaj proksime al la tombejo aŭ almenaŭ
 
 ofte viztiantaj ĝin. Li skribis do liston de la koncernaj
 
-homoj kaj observis el ili unu post alia. Ili estis forstreka-
+homoj kaj observis el ili unu post alia. Ili estis forstrekataj en la listo sufiĉe rapide.
 
-taj en la listo sufiĉe rapide.
-
-Se estis ĝusta lia premiso, ke la kulpulo estas el la ĉir-
-
-kaŭaĵo, li ne plu povis esti malproksima de li. Li ne ser-
+Se estis ĝusta lia premiso, ke la kulpulo estas el la ĉirkaŭaĵo, li ne plu povis esti malproksima de li. Li ne ser-
 
 ĉis do kulpulon, male li konstatadis nekulpulojn. Tia
 
 procedo eble estis konsiderinde longdaŭra, tion Kovaĝík
 
-jesis, tamen ankaŭ ĝi devis proksimigi la celon. Li ne po-
-
-vis serĉi kulpulon, havante kontraŭ li nenion krom lia
+jesis, tamen ankaŭ ĝi devis proksimigi la celon. Li ne povis serĉi kulpulon, havante kontraŭ li nenion krom lia
 
 mistera ago.
 
-Eble unusolan, sed malmultpromesan gvidilon li tro-
-
-vis. Li rememoris, ke la kadavro de Votëpková post la
+Eble unusolan, sed malmultpromesan gvidilon li trovis. Li rememoris, ke la kadavro de Votëpková post la
 
 trovo apud la kruco estis kovrita de peco da sakŝtofo,
 
@@ -4108,14 +3156,9 @@ kiun laboristoj trovis ne tro malproksime. Supozeble la
 
 knabino estis volvita en ĉi tiun sakŝtofon, kiam ŝi estis
 
-forportata el la tombejo, aŭ eble kiam ŝi mem iris hej-
-
-men.
+forportata el la tombejo, aŭ eble kiam ŝi mem iris hejmen.
 
 Tiurilate Hora kontraŭdiris:
-
-
-MI EN LI
 
 
 ”Dum la pasintaj tagoj mi trastudis ĉiujn ĵurnalojn,
@@ -4124,9 +3167,7 @@ kiuj skribis pri la afero. Mi rememoras, ke la vestoj de la
 
 mortintino estis metitaj trans la ĉerkon; tiel trovis ilin la unuaj, kiuj eniris la kadavrejon.”
 
-”Mi scias, sed mi esprimas nur miajn konjektojn. Ta-
-
-men mi opinias, ke la krimulo kovris per la sakŝtofo la
+”Mi scias, sed mi esprimas nur miajn konjektojn. Tamen mi opinias, ke la krimulo kovris per la sakŝtofo la
 
 ruĝetan, helan korpon de la mortintino, por ke ĝi ne
 
@@ -4144,21 +3185,15 @@ Oni havas tiel malmulte da pruvoj, ke tio estas miriga.”
 
 ”Ne, kaj ĝuste tio estas la afero, kiun mi serĉis dum la
 
-pasintaj tagoj. Neniu el la homoj, kiuj povus esti konsi-
-
-derataj dum miaj esploroj, havis iam similan sakon.
+pasintaj tagoj. Neniu el la homoj, kiuj povus esti konsiderataj dum miaj esploroj, havis iam similan sakon.
 
 Mi devas diri al vi unu interesan cirkonstancon, por
 
-ke vi komprenu min. Pluraj kredindaj personoj konfir-
-
-mis al mi, ke sur tiu — ni diru — sako, estis presita la
+ke vi komprenu min. Pluraj kredindaj personoj konfirmis al mi, ke sur tiu — ni diru — sako, estis presita la
 
 signo de iu firmo: du literoj. Diversaj homoj indikas ilin
 
-diverse, ĉiuj eĉ ne rememoras, kie la signo estis surpre-
-
-sita, ĉu sur la rando, ĉu en la mezo, sed ili rememoras,
+diverse, ĉiuj eĉ ne rememoras, kie la signo estis surpresita, ĉu sur la rando, ĉu en la mezo, sed ili rememoras,
 
 ke unu el la literoj estis majuskla M. Ili rememoras tion
 
@@ -4167,26 +3202,19 @@ simple tial, ĉar la mortintino estis nomata Manjo kaj ke
 do la afero ŝajnis stranga al ili.
 
 
-MI EN LI
-
-
 Nenie mi trovis sakon kun simila signo, eĉ ne en la
 
 proksima parto de Koôíĝe.
 
 Mi opinias certa, ke la sako estis alportita ĉi tien. Alia
 
-certa afero estas, ke la sako jam malaperis, kiam iu kov-
-
-ris Manjon per kovrilego, do ankoraŭ antaŭ alveno de la
+certa afero estas, ke la sako jam malaperis, kiam iu kovris Manjon per kovrilego, do ankoraŭ antaŭ alveno de la
 
 komisiono. Neniu el la ĉeestintoj rememoras, kiu povus
 
 fari tion. Laŭ mia opinio forportis la sakon iu konato; se
 
-iu fremda persono estus farinta ĝin, oni estus rimarkin-
-
-taj tion.
+iu fremda persono estus farinta ĝin, oni estus rimarkintaj tion.
 
 is nun mi trovis do nenion, nepre nenion. Tio do
 
@@ -4198,13 +3226,9 @@ Eta ekrideto saltis trans la lipojn de Hora.
 
 ”Vi ekkomprenos min tre baldaŭ. Mi esplorserĉis ĉie
 
-tie ĉi en sufiĉe vasta ĉirkaŭaĵo, sed ĝis nun ni ne sukce-
+tie ĉi en sufiĉe vasta ĉirkaŭaĵo, sed ĝis nun ni ne sukcesis ekinterrilati kun tiel nomata Vaôek. Tio estas la tom-
 
-sis ekinterrilati kun tiel nomata Vaôek. Tio estas la tom-
-
-beja helpanto, kiu tuj la alian tagon post trovo de la ka-
-
-davro estis arestita, tamen denove liberlasita, ĉar li pru-
+beja helpanto, kiu tuj la alian tagon post trovo de la kadavro estis arestita, tamen denove liberlasita, ĉar li pru-
 
 vis sian alibion.”
 
@@ -4214,57 +3238,38 @@ vis sian alibion.”
 
 ruza kaj tre singarda; sed tia Vaôek ne estas.”
 
-”ĉu vi suspektas lin simple tial, ĉar li restis nestreki-
-
-ta en la listo?”
+”ĉu vi suspektas lin simple tial, ĉar li restis nestrekita en la listo?”
 
 ”Jes, li restis nestrekita, sed nun la suspektoj leviĝas el
 
 laąoso.”
 
 
-MI EN LI
-
-
-La trankvileco kaj konv, kun kiuj Kovaĝík pronon-
-
-cis ĉi tiujn vortojn, rezultigis emocion.
+La trankvileco kaj konv, kun kiuj Kovaĝík prononcis ĉi tiujn vortojn, rezultigis emocion.
 
 ”Mi antaŭdeklaras, ke kontraŭ li mi ne havas eĉ plej
 
 malgrandan pruvon, kiu igus lin suspekta, sed mi havas
 
-ankaŭ nepre neniun pruvon, kiu parolus por lia senkul-
-
-peco.”
+ankaŭ nepre neniun pruvon, kiu parolus por lia senkulpeco.”
 
 ”Kaj lia alibio?”
 
 ”Mi sukcesis konstati per alia persono, ke Vaôek,
 
-kvankam li helpadis — kaj ne nur unufoje — en Malva-
+kvankam li helpadis — kaj ne nur unufoje — en Malvazinky, tamen neniam dormis tie. ĉiun fojon li iris hej-
 
-zinky, tamen neniam dormis tie. ĉiun fojon li iris hej-
-
-men, sed ĝuste tiun nokton, kiam okazis la mistera afe-
-
-ro, li dormis tie la unuan fojon. De post tiu tempo li dor-
+men, sed ĝuste tiun nokton, kiam okazis la mistera afero, li dormis tie la unuan fojon. De post tiu tempo li dor-
 
 mis tie kelkfoje. ĉu tio ne ŝajnas iom stranga al vi?”
 
-”Nedisputeble; sed antaŭ momento vi parolis pri in-
-
-teligenta, ruza kaj tre singarda farinto. ĉu tiun Vaôek vi
+”Nedisputeble; sed antaŭ momento vi parolis pri inteligenta, ruza kaj tre singarda farinto. ĉu tiun Vaôek vi
 
 ne opinias tia?”
 
-”is nun ne, ni ankoraŭ ne renkontiĝis, mi evitas ren-
+”is nun ne, ni ankoraŭ ne renkontiĝis, mi evitas renkonti lin, ne sciante kial. Sed oni asertas, ke Vaôek estas
 
-konti lin, ne sciante kial. Sed oni asertas, ke Vaôek estas
-
-idioto, inertulo kaj strangulo, ja oni diras, ke li eĉ balbu-
-
-tas. ĉiuokaze li ŝajnas esti nesocietema, kion pruvas la
+idioto, inertulo kaj strangulo, ja oni diras, ke li eĉ balbutas. ĉiuokaze li ŝajnas esti nesocietema, kion pruvas la
 
 cirkonstanco, ke li loĝas inter hundoj en budo konstruita
 
@@ -4279,14 +3284,9 @@ de la interparolo:
 detalojn.”
 
 
-MI EN LI
-
-
 ”Mi diris tion tuj en la komenco, ja hodiaŭ mi estis
 
-jam tre ĉagrenita kaj nekontenta pri la rezulto. Mi kon-
-
-fesas malkaŝe, ke vere Vaôek aperas al mi en la antaŭaĵo,
+jam tre ĉagrenita kaj nekontenta pri la rezulto. Mi konfesas malkaŝe, ke vere Vaôek aperas al mi en la antaŭaĵo,
 
 nur ĉi tie en la varma trankvilo de la ĉambro kaj dum la
 
@@ -4312,28 +3312,19 @@ mi iras ja tiel ofte preter lia budo. Eble li enlasos min. Mi iros, ni diru, aĉ
 
 Kovaĝík kontraŭdiris:
 
-”Vi ne sukcesos. Mi demandis la laboristojn el la brik-
-
-farejo, kiam mi klopodis komence konatiĝi kun Vaôek,
+”Vi ne sukcesos. Mi demandis la laboristojn el la brikfarejo, kiam mi klopodis komence konatiĝi kun Vaôek,
 
 sed oni diris al mi, ke li neniun enlasas, pretekstante
 
 mordemajn hundojn. Fine la afero estus nun verŝajne
 
-suspekta al li. Min li ne fidas laŭŝajne, kvankam mi su-
-
-pozas, ke li bone konas min, ĉar ĝis nun oni montras je
+suspekta al li. Min li ne fidas laŭŝajne, kvankam mi supozas, ke li bone konas min, ĉar ĝis nun oni montras je
 
 mi ĉi tie per fingro. Dufoje mi provis renkonti lin, sed
 
-ĉiun fojon li evitis min. ĉi tiu cirkonstanco ŝajnas stran-
-
-ga al mi nur nun, ĉar dum la tagoj post la entombigo de
+ĉiun fojon li evitis min. ĉi tiu cirkonstanco ŝajnas stranga al mi nur nun, ĉar dum la tagoj post la entombigo de
 
 Manjo evitis min multe pli da homoj.”
-
-
-MI EN LI
 
 
 Amara rideto ne volis malaperi de la lipoj de Kovaĝík.
@@ -4364,17 +3355,11 @@ eĉ pli mulle dirante:
 
 mia zorgo.”
 
-”Mi dankas vin ĉiujn, tamen ne koleru, se mi ne po-
+”Mi dankas vin ĉiujn, tamen ne koleru, se mi ne povas akcepti vian afablecon. Du trionojn de la tago mi
 
-vas akcepti vian afablecon. Du trionojn de la tago mi
+mem dediĉas al Vaôek, sed estus necese, organizi seninterrompan gardadon kaj ne forgesu, ke Vaôek dormas
 
-mem dediĉas al Vaôek, sed estus necese, organizi senin-
-
-terrompan gardadon kaj ne forgesu, ke Vaôek dormas
-
-nun kelkfoje ankaŭ en Malvazinky kaj foriras el sia hej-
-
-mo neregule.
+nun kelkfoje ankaŭ en Malvazinky kaj foriras el sia hejmo neregule.
 
 Estas dubinde, ĉu ni kapablos gardi kaj observi lin ĉie,
 
@@ -4382,12 +3367,7 @@ kien ajn li iros. Mi atentigas, ke, kiom mi vidis, Vaôek
 
 ĉiam iradis trans la kampon al Václavka, kutime rekte
 
-trans la herbejon, estus do tre malfacile postiri lin; li vi-
-
-das bone, kiu sekvas lin. Vidu, ĝuste ĉi tiaj detaloj, efek-
-
-
-MI EN LI
+trans la herbejon, estus do tre malfacile postiri lin; li vidas bone, kiu sekvas lin. Vidu, ĝuste ĉi tiaj detaloj, efek-
 
 
 tive negravaj, metataj unu apud la alian, atentigas pri
@@ -4398,23 +3378,17 @@ Hora aldonis:
 
 ”Mi ne povas nei, ke ĉi tiu mistera Vaôek streĉas mian
 
-scivolon. Kion vi dirus, se mi dungus du virojn — kom-
-
-preneble lertajn — el iu detektivinstituto kaj gardigus lin
+scivolon. Kion vi dirus, se mi dungus du virojn — kompreneble lertajn — el iu detektivinstituto kaj gardigus lin
 
 seninterrompe?”
 
-”Mi timas, ke tio vekus atenton. Sinjoro Hora, mi dan-
-
-kas vin, sed ĉi tiun aranĝon ni lasu ĝis la fino, se ni mem
+”Mi timas, ke tio vekus atenton. Sinjoro Hora, mi dankas vin, sed ĉi tiun aranĝon ni lasu ĝis la fino, se ni mem
 
 ne sukcesos ekinterrilati kun Vaôek.”
 
 Pli akceptebla estis propono de sinjorino Horálková:
 
-”Mi proponus, senkonsciigi iel la hundojn kaj trari-
-
-gardi la budon, post kiam Vaôek foriros por dormi en
+”Mi proponus, senkonsciigi iel la hundojn kaj trarigardi la budon, post kiam Vaôek foriros por dormi en
 
 Malvazinky. Mi supozas kompreneble, ke vi kunprenos
 
@@ -4428,9 +3402,7 @@ La edzo de Míla jesis:
 
 Kovaĝík trovis oportune interveni:
 
-”Sinjorina moŝto, la afero estas simpla kaj jam elpro-
-
-vita. La hundoj de Vaôek — bedaŭrinde — estas dresitaj
+”Sinjorina moŝto, la afero estas simpla kaj jam elprovita. La hundoj de Vaôek — bedaŭrinde — estas dresitaj
 
 kaj akceptus nenion de vi. Mi ĵetadis frandaĵojn al ili, sed
 
@@ -4438,23 +3410,14 @@ kvazaŭ mi ĵetus ŝtonojn, ili fariĝis eĉ pli rabiaj. Krom tio
 
 mi havus ankoraŭ unu modestan atentigon. Eble, ke ni
 
-trotaksis tiun Vaôek kaj tial — supozeble — ne estus ne-
-
-cese tuj en la komenco uzi drastajn rimedojn, kiujn eĉ
-
-
-MI EN LI
+trotaksis tiun Vaôek kaj tial — supozeble — ne estus necese tuj en la komenco uzi drastajn rimedojn, kiujn eĉ
 
 
 Vaôek ne devus toleri, se oni nenion trovus ĉe li. Ni ne
 
-forgesu, ke poste la ĝusta krimulo estus bonege atenti-
+forgesu, ke poste la ĝusta krimulo estus bonege atentigita pri ni. Tion mi ne ŝatus. La tuta afero eble ŝajnas al
 
-gita pri ni. Tion mi ne ŝatus. La tuta afero eble ŝajnas al
-
-vi tre aventura, tamen ni ne rajtas ne atenti la cirkon-
-
-stancon, ke agante nekonvene ni tuŝos multajn homojn,
+vi tre aventura, tamen ni ne rajtas ne atenti la cirkonstancon, ke agante nekonvene ni tuŝos multajn homojn,
 
 kion fari ni ne rajtas kaj kio povus malutili eĉ nin. Mi
 
@@ -4470,55 +3433,36 @@ fine interkonsentis, ke ili provos subŝovi al Vaôek la
 
 hundon de Horálek, kiu kondutas malbone, sed povus
 
-helpi ilin, se ĝi kamaradiĝus kun la ceteraj hundoj de Va-
+helpi ilin, se ĝi kamaradiĝus kun la ceteraj hundoj de Vaôek. Ili decidis, ke la ĝardenista helpanto, kiu prilaboras
 
-ôek. Ili decidis, ke la ĝardenista helpanto, kiu prilaboras
-
-la ĝardenojn de Hora kaj Horálek, venontan tagon for-
-
-kondukos la hundon. Krome ili interkonsentis, ke ili ko-
+la ĝardenojn de Hora kaj Horálek, venontan tagon forkondukos la hundon. Krome ili interkonsentis, ke ili ko-
 
 mencos gardestari super la ŝtonrompejo troviĝanta
 
 apud la budo de Vaôek laŭeble tuj, kiam ĉesos pluvi kaj
 
-la tero iom sekiĝos. Tiel zorgema kaj delikata estis Ko-
-
-vaĝík, kiu timis, ke iu el la gardantoj ne rikoltu nazkata-
+la tero iom sekiĝos. Tiel zorgema kaj delikata estis Kovaĝík, kiu timis, ke iu el la gardantoj ne rikoltu nazkata-
 
 ron kaj ne malebligu pluan gardadon pro tio.
 
-Gardadon posttagmeze, vespere kaj nokte ĝis proksi-
+Gardadon posttagmeze, vespere kaj nokte ĝis proksimume la dekunua horo transprenis laŭprincipe Kovaĝík
 
-mume la dekunua horo transprenis laŭprincipe Kovaĝík
-
-kaj la ceteraj estis iel prizorgontaj la antaŭtagmezan gar-
-
-dadon, dum Kovaĝík studis por la rigora ekzameno; laŭ-
+kaj la ceteraj estis iel prizorgontaj la antaŭtagmezan gardadon, dum Kovaĝík studis por la rigora ekzameno; laŭ-
 
 
-MI EN LI
-
-
-eble ili estis anstataŭontaj lin ankaŭ vespere. La pro-
-
-gramo estis antaŭfiksota ĉiutage.
+eble ili estis anstataŭontaj lin ankaŭ vespere. La programo estis antaŭfiksota ĉiutage.
 
 La interkonsiliĝo finiĝis sufiĉe gaje kaj estis konfirmita
 
 per bona vino, kiun Hora venigis el sia vilao.
 
-Malgraŭ tio, ke dum ĉi tiu interkonsiliĝo Kovaĝík pen-
-
-sis antaŭ ĉio pri Vaôek, tamen li bone rimarkis, ke la
+Malgraŭ tio, ke dum ĉi tiu interkonsiliĝo Kovaĝík pensis antaŭ ĉio pri Vaôek, tamen li bone rimarkis, ke la
 
 edzo de Míla ludas en sia hejmo konsiderinde malĉefan
 
 rolon kaj evitas laŭeble kiun ajn intervenon, dum Hora
 
-ĉeestas. Li rememoris pri la amuzo en *Colorado* kaj be-daŭris, ke li konfidis sian serĉesploradon al ili. Sed ali-
-
-flanke li konsideris, ke efektive li estas en embaraso kaj
+ĉeestas. Li rememoris pri la amuzo en *Colorado* kaj be-daŭris, ke li konfidis sian serĉesploradon al ili. Sed aliflanke li konsideris, ke efektive li estas en embaraso kaj
 
 ne kapablas sola laŭplane daŭrigi siajn serĉesplorojn.
 
@@ -4546,9 +3490,6 @@ ion, se li riproĉas min senkaŭze.”
 ”Kaj la rezulto?”
 
 
-MI EN LI
-
-
 ”Mi konas lin bone; li revenos nur matene.”
 
 Kovaĝík akceptis ŝerce la aferon.
@@ -4559,17 +3500,13 @@ kaj matene li pardonpetos vin.”
 
 ”Mi ne iros, mi ne emas.”
 
-La suno malleviĝis malantaŭ Æepy kaj varmeta, agra-
-
-bla vespero iom post iom malaperis en malheliĝanta fir-
+La suno malleviĝis malantaŭ Æepy kaj varmeta, agrabla vespero iom post iom malaperis en malheliĝanta fir-
 
 mamento kviete kaj delikate kvazaŭ vaporo super poto.
 
 Pro krepusko ne estis eble legi plu kaj la alveno de Míla
 
-signifis finon de la laboro, tial Kovaĝík fermis la stud-
-
-librojn, kiujn li havis dismetitaj antaŭ si sur la tero. Li
+signifis finon de la laboro, tial Kovaĝík fermis la studlibrojn, kiujn li havis dismetitaj antaŭ si sur la tero. Li
 
 proponis al Míla duonon de sia mantelo:
 
@@ -4581,69 +3518,48 @@ vi?”
 
 ”Mi opinias, ke ne; cetere mi havas varman veston.”
 
-La loko estis bone elektita. De ĉi tie estis bela perspek-
-
-tivo ne nur al la budo de Vaôek, sed ankaŭ al parto de la
+La loko estis bone elektita. De ĉi tie estis bela perspektivo ne nur al la budo de Vaôek, sed ankaŭ al parto de la
 
 strato al Motol, plue maldekstre al nova kolonio ”Na
 
 Cibulkách” ĝis Vidoul, al parto de la soldata ekzercejo en
 
-Motol. Pli malproksiman perspektivon malhelpis mon-
-
-teto super la brikfarejo de Beâka. Dekstre ruĝetis Blan-
+Motol. Pli malproksiman perspektivon malhelpis monteto super la brikfarejo de Beâka. Dekstre ruĝetis Blan-
 
 ka Monto pro vesperiĝo.
 
 ”Bele estas ĉi tie.”
 
-”Kiam, mi havas studmaterialon antaŭ mi, pasas an-
-
-kaŭ la tempo bele.”
-
-
-MI EN LI
+”Kiam, mi havas studmaterialon antaŭ mi, pasas ankaŭ la tempo bele.”
 
 
 ”ĉu vi studas ĉiam?”
 
 ”Preskaŭ; dum estas lume.”
 
-”Nun mi ekpensas, kiel vi kapablas gardi dum mal-
-
-lumo? ĉu vi iras malsupren?”
+”Nun mi ekpensas, kiel vi kapablas gardi dum mallumo? ĉu vi iras malsupren?”
 
 ”Domaĝe, ke vi iros pli frue hejmen, vi vidus, ke la
 
-lanterno ĉe la an gulo de la fabrikejo de Volañskë prilu-
-
-mas strion de la vojo al la brikfarejo kaj ankoraŭ sufiĉe
+lanterno ĉe la an gulo de la fabrikejo de Volañskë prilumas strion de la vojo al la brikfarejo kaj ankoraŭ sufiĉe
 
 la budon de Vaôek.”
 
 Kun intereso ŝi rigardis malsupren al la ligna budo,
 
-kiu de ĉi tie aspektis malgranda kaj mizera. i amplek-
-
-sis areon de maksimume dek du kvadratmetroj. Míla
+kiu de ĉi tie aspektis malgranda kaj mizera. i ampleksis areon de maksimume dek du kvadratmetroj. Míla
 
 turnis la kapon al Kovaĝík:
 
-”Kiel vi diris tion? Domaĝe, ke mi iros pli frue hej-
-
-men? Kaj, se mi restos ĉi tie same longe kiel vi?”
+”Kiel vi diris tion? Domaĝe, ke mi iros pli frue hejmen? Kaj, se mi restos ĉi tie same longe kiel vi?”
 
 ”Poste mi povas nur bedaŭri, ĉar mi volis resti ĉi tie pli
 
-longe. Antaŭhieraŭ Vaôek foriris posttagmeze kaj reve-
-
-nis sur la strato de la urbo proksimume je la deka ves-
+longe. Antaŭhieraŭ Vaôek foriris posttagmeze kaj revenis sur la strato de la urbo proksimume je la deka ves-
 
 pere. Li lumigis lampon nur por mallonga tempo kaj
 
-baldaŭ enlitiĝis. Hodiaŭ li forestis la tutan nokton kaj re-
-
-venis nur je la deka matene; ŝajnas, ke li dormis ĝis ves-
+baldaŭ enlitiĝis. Hodiaŭ li forestis la tutan nokton kaj revenis nur je la deka matene; ŝajnas, ke li dormis ĝis ves-
 
 pere, nur tagmeze li nutris la hundojn, sed cetere li ne
 
@@ -4656,9 +3572,6 @@ montriĝis.”
 strategio. Vaôek fumas cigaredojn, kiujn li havigas al si
 
 per knabo el la brikfarejo. Mi koruptis la bubon, kiu nun
-
-
-MI EN LI
 
 
 helpas min, se estas necese. Bedaŭrinde, eĉ al la bubo ne
@@ -4677,9 +3590,7 @@ Emociita ŝi ekprenis lian manon:
 
 Malgranda kvarangula fenestro en la budo de Vaôek
 
-lumiĝis. Ili ambaŭ ĉesis paroli, streĉe atendante, ĉu Va-
-
-ôek eliros. En la fenestreto aperis kelkfoje ombro, kiel
+lumiĝis. Ili ambaŭ ĉesis paroli, streĉe atendante, ĉu Vaôek eliros. En la fenestreto aperis kelkfoje ombro, kiel
 
 Vaôek paŝadis tra la budo. La hundoj komencis boji.
 
@@ -4695,33 +3606,20 @@ al la okuloj de Míla, deglitis sur ŝiajn genuojn.
 
 suspekto. ĉu vi kredas, ke eĉ mi kelkfoje surprizas min
 
-observanta lin kun intereso de bona konato loĝanta naj-
-
-bare.”
+observanta lin kun intereso de bona konato loĝanta najbare.”
 
 Míla ekĝemis:
 
-”Mi estas konvinkita, ke ankoraŭ neniam vi loĝis naj-
+”Mi estas konvinkita, ke ankoraŭ neniam vi loĝis najbare de ia Hora.”
 
-bare de ia Hora.”
-
-Kovaĝík esplorrigardis la okulojn de Míla, sed la kre-
-
-pusko tiom malheliĝis, ke la okuloj ne alparolis lin sufiĉe
+Kovaĝík esplorrigardis la okulojn de Míla, sed la krepusko tiom malheliĝis, ke la okuloj ne alparolis lin sufiĉe
 
 komprenige.
 
 
-MI EN LI
+”Mi imagas, ke viaj loĝejoj estas duobla vilao, bonege konstruita. Tre moderna.”
 
-
-”Mi imagas, ke viaj loĝejoj estas duobla vilao, bone-
-
-ge konstruita. Tre moderna.”
-
-Míla hezitis respondi kaj meditis evidente, ĉu la las-
-
-ta vorto de Kovaĝík ne estas intenca aludo. Kolere ŝi ek-
+Míla hezitis respondi kaj meditis evidente, ĉu la lasta vorto de Kovaĝík ne estas intenca aludo. Kolere ŝi ek-
 
 movis la kapon:
 
@@ -4766,9 +3664,6 @@ Kovaĝík diris post mallonga paŭzo:
 ”Eble mi ne volas kompreni.”
 
 
-MI EN LI
-
-
 ”Do, Jarĉjo, kara Jarĉjo, komprenu nur, komprenu; ĝi
 
 estas ja tio, kion mi postulas de vi.”
@@ -4783,9 +3678,7 @@ estas ja tio, kion mi postulas de vi.”
 
 ”Nek pomon, nek piron, nek likvoron, nek katon, pri
 
-nenio vi petis, ĉion mi proponis al vi. Vi estas tia mo-
-
-destulo. Neniam mi pensis, ke vi povus kisi min.”
+nenio vi petis, ĉion mi proponis al vi. Vi estas tia modestulo. Neniam mi pensis, ke vi povus kisi min.”
 
 Li ne kaŝis ekridon.
 
@@ -4795,9 +3688,7 @@ Li levis la manon, kvazaŭ por defendi sin.
 
 ”Gardu dio! Ne mortigu kamaradon!”
 
-”Sed mi kisos vin ĝuste kiel kamaradon. ĉiam mi vi-
-
-dis en vi nur amikon kaj, kial mi ne diru tion al vi, estas
+”Sed mi kisos vin ĝuste kiel kamaradon. ĉiam mi vidis en vi nur amikon kaj, kial mi ne diru tion al vi, estas
 
 jam mallume, vi ne vidos min. Ankaŭ se mi dancas kun
 
@@ -4822,9 +3713,6 @@ okazos, se iufoje mi eksopiros vin ankaŭ alimaniere?”
 Denove ŝi metis sian manon sur lian.
 
 
-MI EN LI
-
-
 ”Jarĉjo, ni revenu al la temo — nia domo.”
 
 ”ĉu vi volas iri hejmen?”
@@ -4845,9 +3733,7 @@ MI EN LI
 
 monon, kiun mi povus deponi. Sed mi rememoras, ke iu
 
-parolis ie pri la firmo, ke ĝi estas tre bona, bonege pro-
-
-speranta.
+parolis ie pri la firmo, ke ĝi estas tre bona, bonege prosperanta.
 
 ”Tio estas vero, la firmo statas pli ol bone.”
 
@@ -4863,9 +3749,7 @@ vi komprenu tion: Hora gajnis grandajn sumojn en la
 
 borso, kiam tio estis ankoraŭ ebla. Nun la negocoj ne
 
-estas plu tiel profitdonaj. Kiam komenciĝis pli malgra-
-
-saj jaroj kaj oni bezonis ankaŭ iajn fakajn sciojn, ne sufi-
+estas plu tiel profitdonaj. Kiam komenciĝis pli malgrasaj jaroj kaj oni bezonis ankaŭ iajn fakajn sciojn, ne sufi-
 
 ĉis plu la ruzeco de Hora kaj liaj societaj interrilatoj, kiuj fine estis limigitaj, kiam malsukcesis la spekulacio kun
 
@@ -4876,9 +3760,6 @@ la franko kaj kelkaj kapoj kaj ventroj fariĝis ĝiaj viktimoj
 koni — Hora serĉis do bonan fakulon kaj okupigis mian
 
 
-MI EN LI
-
-
 edzon transpreninte lin el la Franko-banko. Tio okazis
 
 antaŭ nia geedziĝo. Mia edzo ricevas bonegan salajron
@@ -4887,9 +3768,7 @@ kaj havas eĉ kromenspezojn, sed ’Ne timu, tuj ni estos
 
 en *Colorado*.’ ”
 
-”Mi vidas, ke vi komprenas min. Do kvankam ni ha-
-
-vas kontentigajn enspezojn —”
+”Mi vidas, ke vi komprenas min. Do kvankam ni havas kontentigajn enspezojn —”
 
 ”— ke mi devus esti kvarobla universitata profesoro
 
@@ -4897,13 +3776,9 @@ por enspezi ilin —”
 
 ”— atendu, ni ne kapablas egaligi niajn iom pli altajn
 
-elspezojn. Mi ne scias, kiel mi diru ĉi tiun delikatan afe-
+elspezojn. Mi ne scias, kiel mi diru ĉi tiun delikatan aferon, por ke vi bone komprenu min. Nu, mia edzo rice-
 
-ron, por ke vi bone komprenu min. Nu, mia edzo rice-
-
-vas akonto-pagojn je sia salajro ne dubante, ke la situa-
-
-cio en la borso denove pliboniĝos kaj li regajnos la tu-
+vas akonto-pagojn je sia salajro ne dubante, ke la situacio en la borso denove pliboniĝos kaj li regajnos la tu-
 
 tan sumon.”
 
@@ -4919,9 +3794,7 @@ La paŭzo estis iom pli longa.
 
 ”Tial la ŝuldo kreskas ĉiam pli rapide.”
 
-”Ni permesas al Hora, ke li pagu por ni kelkajn elspe-
-
-zojn, kiel vi povis rimarki en *Colorado*.”
+”Ni permesas al Hora, ke li pagu por ni kelkajn elspezojn, kiel vi povis rimarki en *Colorado*.”
 
 ”Se tio faras plezuron al li.”
 
@@ -4930,9 +3803,6 @@ zojn, kiel vi povis rimarki en *Colorado*.”
 ankaŭ lia ideo.”
 
 ”Pro tio mi ne riproĉus lin.”
-
-
-MI EN LI
 
 
 ”Li eĉ donis monon tiucele.”
@@ -4957,9 +3827,7 @@ eble elĵeti lin tra ĝi.”
 
 por ke vi povu eliri tra ĝi.”
 
-”Tio ne estas ebla; la ŝuldsumo estas pli alia ol la por-
-
-do.”
+”Tio ne estas ebla; la ŝuldsumo estas pli alia ol la pordo.”
 
 ŝi metis sur lian ŝultron sian kapon, kiu ŝajnis al ŝi tro
 
@@ -4967,9 +3835,7 @@ peza.
 
 ”Ho Jarĉjo, konsilu al mi.”
 
-”La proverbo diras: Post etiko, senutile konsili. Tiuri-
-
-late eĉ medikamento ne efikus.”
+”La proverbo diras: Post etiko, senutile konsili. Tiurilate eĉ medikamento ne efikus.”
 
 ”Kaj kio efikus?”
 
@@ -4977,9 +3843,7 @@ late eĉ medikamento ne efikus.”
 
 ”Mi opinias same; kaj ĝis vi vidos, ke Hora sur la kapo
 
-havas ŝvelaĵon, estu konvinkita, ke ĝi devenas de mi. Aŭ-
-
-skultu, ĉu Vaôek ne forkuris?”
+havas ŝvelaĵon, estu konvinkita, ke ĝi devenas de mi. Aŭskultu, ĉu Vaôek ne forkuris?”
 
 ŝi babilis, plendis iom kaj iuj ŝiaj pensoj kuris pluen.
 
@@ -4988,14 +3852,9 @@ skultu, ĉu Vaôek ne forkuris?”
 hundon, la ceterajn li enŝlosis.”
 
 
-MI EN LI
-
-
 ”ŝajnas al mi, Jarĉjo, ke tio estas nia hundo. Tiel bojis
 
-nia hundo. Aŭskultu! Tiu mallonga murmuro post la ek-
-
-bojo estis karakteriza por ĝi. Donu al mi la binoklon. —
+nia hundo. Aŭskultu! Tiu mallonga murmuro post la ekbojo estis karakteriza por ĝi. Donu al mi la binoklon. —
 
 Mi ne vidas ĝin bone, ĉiam ĝi kaŝas sin en ombro. Jes, ĝi
 
@@ -5019,32 +3878,19 @@ Vaôek jam havas vian hundon?”
 
 jam dresita. Nur Mandelinka ne povas forgesi ĝin.”
 
-”Mandelinkan mi vidis kelkfoje. La ĉi tiea tereno taŭ-
+”Mandelinkan mi vidis kelkfoje. La ĉi tiea tereno taŭgas speciale por liaj taktikaj ekzercoj, sed mi rimarkis, ke
 
-gas speciale por liaj taktikaj ekzercoj, sed mi rimarkis, ke
-
-li cirumigas siajn ŝuojn, antaŭ ol li ekatakas ĉi tiudirek-
-
-ten.”
+li cirumigas siajn ŝuojn, antaŭ ol li ekatakas ĉi tiudirekten.”
 
 ”Mandelinka estas bona knabo. La uniformo bonege
 
 vestas lin.”
 
-”Estu tiel afabla, binoklon; Vaŝek estas denove ekste-
+”Estu tiel afabla, binoklon; Vaŝek estas denove ekstere.”
 
-re.”
+”ĉu vi opinias, ke li foriros denove? Tio estus domaĝe.”
 
-”ĉu vi opinias, ke li foriros denove? Tio estus do-
-
-maĝe.”
-
-”Mi ne scias, ĝis nun li ne liberlasis la ceterajn hun-
-
-dojn.”
-
-
-MI EN LI
+”Mi ne scias, ĝis nun li ne liberlasis la ceterajn hundojn.”
 
 
 ”Se li lasus ekstere nur la nian, mi kurus rekte al la
@@ -5055,9 +3901,7 @@ budo.”
 
 ĉi tiun komplezon.”
 
-”Ne kolerigu min, kelkfoje okazas aferoj, kiujn ni ne-
-
-pre ne estus atendintaj.”
+”Ne kolerigu min, kelkfoje okazas aferoj, kiujn ni nepre ne estus atendintaj.”
 
 ”Povas esti, sed mi atendas ĉi tiun aferon jam pli ol tri
 
@@ -5081,9 +3925,7 @@ kaj montras al ĝi ion, kion li tenas en la mano. Ho ne, lia
 
 mano estas malplena. La hundo sidas kviete kaj rigardas
 
-ĉiam en la sama direkto. Vaôek ĉirkaŭiras ĝin kaj la hun-
-
-do rigardas ĉiam samdirekten. Tio estas stranga; rigar-
+ĉiam en la sama direkto. Vaôek ĉirkaŭiras ĝin kaj la hundo rigardas ĉiam samdirekten. Tio estas stranga; rigar-
 
 du mem!”
 
@@ -5100,18 +3942,13 @@ paŝoj. Nun la hundo kuŝiĝis teren kaj Vaôek, starante
 proksime, rigardas ĝin. ĉu vi deziras la binoklon?”
 
 
-MI EN LI
-
-
 ”Ne, lasu ĝin al vi. Frosto transkuras mian dorson,
 
 tamen daŭrigu indiki ĉion al mi.”
 
 ”Fino! Vaôek lasis la hundon kaj eniris la budon. Ni
 
-esperu, ke li revenos. Mi ne vidis ankoraŭ, ke Vaôek in-
-
-struis al iu hundo ĉi tiun artifikaĵon.”
+esperu, ke li revenos. Mi ne vidis ankoraŭ, ke Vaôek instruis al iu hundo ĉi tiun artifikaĵon.”
 
 ”ĉu entute li dresas hundojn?”
 
@@ -5131,9 +3968,7 @@ en la barejo.”
 
 Vaôek, ĉar ili ne havas hundmarkojn.”
 
-”Pri tio mi ankaŭ pensis, sed mi konstatis, ke li enre-
-
-gistrigis ĉiujn hundojn ĉe la impostejo kaj la vian vi do-
+”Pri tio mi ankaŭ pensis, sed mi konstatis, ke li enregistrigis ĉiujn hundojn ĉe la impostejo kaj la vian vi do-
 
 nacis al li kun la marko.”
 
@@ -5154,12 +3989,7 @@ havas komunan ĝardenon. Hora diris, ke estus domaĝe,
 fari du ĝardenojn, se ni rajtas uzi ankaŭ la lian.”
 
 
-MI EN LI
-
-
-”Ho jes, mi denove forgesis tion. Ankoraŭ ion mi vo-
-
-lis demandi. Kial Hora ne edziĝis?”
+”Ho jes, mi denove forgesis tion. Ankoraŭ ion mi volis demandi. Kial Hora ne edziĝis?”
 
 ”Li estis edziĝinta, sed la edzino forkuris de li, mi ne
 
@@ -5171,25 +4001,17 @@ Kovaĝík denove jam havis la binoklon ĉe la okuloj.
 
 ”Do, Vaôek eksidis sur la kesto kaj vokis la hundon al
 
-si. i obeas kvazaŭ maŝino. Li prenis ĝian kapon en si-
+si. i obeas kvazaŭ maŝino. Li prenis ĝian kapon en siajn manojn kaj frotas ĝin inter la oreloj. ĵus la hundo
 
-ajn manojn kaj frotas ĝin inter la oreloj. ĵus la hundo
-
-foriris, ĝi haltis ĉe la buda parto kaj fosas nun per la pie-
-
-doj. Jam ĝi revenis. i kuŝiĝis apud la piedoj de Vaôek,
+foriris, ĝi haltis ĉe la buda parto kaj fosas nun per la piedoj. Jam ĝi revenis. i kuŝiĝis apud la piedoj de Vaôek,
 
 sed rigardas lin. Aŭskultu, tio estas stranga, li donis ja al
 
-ĝi nenian signon, kion ĝi faru. Míla, ŝajnas al mi, ke ta-
-
-men vi alportis feliĉon al mi. Tio estas efektive kurioza;
+ĝi nenian signon, kion ĝi faru. Míla, ŝajnas al mi, ke tamen vi alportis feliĉon al mi. Tio estas efektive kurioza;
 
 Vaôek nun eĉ ne moviĝas, li rigardas nur la hundon, kiu
 
-iras al la buda pordo, ekprenas tie ian lignon kaj alpor-
-
-tas ĝin ĝis la piedoj de Vaôek.”
+iras al la buda pordo, ekprenas tie ian lignon kaj alportas ĝin ĝis la piedoj de Vaôek.”
 
 En la budo ekbojis hundoj kaj Vaôek eniris. La hundoj
 
@@ -5199,23 +4021,16 @@ tuj eksilentis.
 
 ”Mi ne vidis ankoraŭ, ke Vaôek estus batinta hundon.
 
-Temas pri alia afero. Mi mirus, se ni ne starus tre prok-
-
-sime ĉe tio, kion ni serĉas.”
+Temas pri alia afero. Mi mirus, se ni ne starus tre proksime ĉe tio, kion ni serĉas.”
 
 ĉi tiujn vortojn li parolis malrapide, kvazaŭ singarde
 
 kaj mediteme. Li ne atentis plu la hundon de Vaôek kaj
 
 
-MI EN LI
-
-
 lin mem, metis la binoklon apud sin kaj enpensiĝinte li
 
-klinis la kapon. Míla ne kuraĝis ĝeni lin. Tiel pasis mo-
-
-mentoj, ja eĉ tutaj minutoj, en spirita streĉeco, ĝis Míla
+klinis la kapon. Míla ne kuraĝis ĝeni lin. Tiel pasis momentoj, ja eĉ tutaj minutoj, en spirita streĉeco, ĝis Míla
 
 fariĝis nervoza.
 
@@ -5237,9 +4052,7 @@ mi konkludis bone.”
 
 ”Rememoru, ke dum la koncerna nokto en la tombejo
 
-la hundoj ne bojis kaj laŭ la deklaro de la tombisto ma-
-
-tene ili estis iel dormemaj.”
+la hundoj ne bojis kaj laŭ la deklaro de la tombisto matene ili estis iel dormemaj.”
 
 Kovaĝík ekprenis la binoklon, sed tuj li remetis ĝin
 
@@ -5262,9 +4075,6 @@ Atendu iom ĉi tie!”
 ”ĉi tie supre mi ne restos sola.”
 
 
-MI EN LI
-
-
 ”Atentu do, sed rapide, ni ne perdu la tempon. Iru iom
 
 en la direkto al la strato, mi klopodos malsuprengliti kiel
@@ -5285,27 +4095,19 @@ de la arbareto super la strato al Motol. ĉu vi volas?”
 
 ”Do iru, sed estu singarda.”
 
-Tuj poste Kovaĝík komencis gliti malsupren sur la gla-
-
-taj surfacoj de la ŝtonrompejo. Antaŭ ol li atingis pli ebe-
+Tuj poste Kovaĝík komencis gliti malsupren sur la glataj surfacoj de la ŝtonrompejo. Antaŭ ol li atingis pli ebe-
 
 nan fundon, li havis ambaŭ manplatojn frotvunditaj. Li
 
-haltis iom, esplorante, ĉu Vaôek aŭdis lin, poste li ram-
+haltis iom, esplorante, ĉu Vaôek aŭdis lin, poste li rampis singarde sur la tero al la baraĵo. Nerimarkita li atingis
 
-pis singarde sur la tero al la baraĵo. Nerimarkita li atingis
-
-ĝin kaj tra unu el la multaj fendoj li ekvidis fine la ser-
-
-ĉatan Vaôek je distanco de kelkaj paŝoj, sed pro ombro
+ĝin kaj tra unu el la multaj fendoj li ekvidis fine la serĉatan Vaôek je distanco de kelkaj paŝoj, sed pro ombro
 
 li ne vidis bone lian vizaĝon.
 
 Vaôek rigardis rekte en la okulojn de la hundo, kiu
 
-sidis kontraŭ li je distanco de ne tute du metroj. La hun-
-
-do sidis senmove kelkajn momentojn, poste li leviĝis
+sidis kontraŭ li je distanco de ne tute du metroj. La hundo sidis senmove kelkajn momentojn, poste li leviĝis
 
 silente, foriris en angulon de la barejo je la manetendo
 
@@ -5313,13 +4115,7 @@ de Kovaĝík, ĉi tie — ne atentante Kovaĝíkon — ĝi eltiris
 
 el amasiĝinta formetajo malnovan balailon, alportis ĝin
 
-al Vaôek kaj metis ĝin apud liaj piedoj. La hundo deno-
-
-
-MI EN LI
-
-
-ve eksidis antaŭ Vaôek kaj rigida ĝi atendis plian ordo-
+al Vaôek kaj metis ĝin apud liaj piedoj. La hundo denove eksidis antaŭ Vaôek kaj rigida ĝi atendis plian ordo-
 
 non.
 
@@ -5337,29 +4133,21 @@ saltis al la budo.
 
 Kovaĝík ne atendis plu ekkoninte jam pli frue, ke la
 
-ŝtonojn deĵetis Míla, kiu ne konis bone la irvojeton su-
+ŝtonojn deĵetis Míla, kiu ne konis bone la irvojeton super la ŝtonrompejo. Li transkuris la distancon de la budo
 
-per la ŝtonrompejo. Li transkuris la distancon de la budo
-
-ĝis angulo de la ŝtonrompejo ĝustatempe, antaŭ ol Va-
-
-ôek eliris el la budo; tiam jam ĉiuj hundoj ĉe la budo bo-
+ĝis angulo de la ŝtonrompejo ĝustatempe, antaŭ ol Vaôek eliris el la budo; tiam jam ĉiuj hundoj ĉe la budo bo-
 
 jadis.
 
 Míla ne estis sur la destinita loko. Li devis do rapidi
 
-super la ŝtonrompejon. Tie li trovis ŝin timigitan kaj kaŭ-
-
-riĝintan tiel, ke li estus eĉ preterpasinta ne rimarkinte
+super la ŝtonrompejon. Tie li trovis ŝin timigitan kaj kaŭriĝintan tiel, ke li estus eĉ preterpasinta ne rimarkinte
 
 ŝin.
 
 ”Jarĉjo, ĉi tien! ĉu okazis io?”
 
-”ĉu vi demandas ankoraŭ? Kial vi ne venis malsup-
-
-ren?”
+”ĉu vi demandas ankoraŭ? Kial vi ne venis malsupren?”
 
 ”Mi timis. Mi elglitis, mi ne konas ja la vojon ĉi tie, mi
 
@@ -5372,12 +4160,7 @@ Pri tia danĝero Kovaĝík ne pensis.
 tagoj estus sensence observi lin.”
 
 
-MI EN LI
-
-
-”Ni pripensu antaŭe la aferon. Mi vidis, ke Vaôek ku-
-
-ris tuj post vi kaj kondukis hundon ligitan al ŝnuro.”
+”Ni pripensu antaŭe la aferon. Mi vidis, ke Vaôek kuris tuj post vi kaj kondukis hundon ligitan al ŝnuro.”
 
 ”ĉu vi aŭdas nenion?”
 
@@ -5395,17 +4178,13 @@ bojis, kiam ili elkuris el la barejo.”
 
 esti ĉi tie.”
 
-”Se oni konkludas laŭ la cirkonstanco, kiel Vaôek el-
-
-kuris, li ne supozis, ke vi estas tiel proksime. Li opiniis,
+”Se oni konkludas laŭ la cirkonstanco, kiel Vaôek elkuris, li ne supozis, ke vi estas tiel proksime. Li opiniis,
 
 ke iu estas ĉi tie supre, kaj mi supozas, ke li volas bari al li la vojon en la direkto al Koôíĝe.”
 
 ”Vi povas esti prava, sed mi preferus, se ne estu tiel.
 
-Se almenaŭ la hundoj en la barejo silentus; dum tia bru-
-
-ego Vaôek venos kun la hundo al ni kaj ni ekvidos lin nur
+Se almenaŭ la hundoj en la barejo silentus; dum tia bruego Vaôek venos kun la hundo al ni kaj ni ekvidos lin nur
 
 unu paŝon antaŭ ni.”
 
@@ -5426,14 +4205,9 @@ Míla leviĝis.
 ”Renkonte al Vaôek, ni ne hezitu!”
 
 
-MI EN LI
-
-
 ŝi ekprenis lian manon, sed poste li iris antaŭ ŝi. Tuj
 
-kiam ili estis irantaj iom pli malproksimen tra la arbare-
-
-to sur la dorso de la monteto, la arboj obtuzigis bojadon
+kiam ili estis irantaj iom pli malproksimen tra la arbareto sur la dorso de la monteto, la arboj obtuzigis bojadon
 
 de la hundoj. ŝi haltis.
 
@@ -5463,9 +4237,7 @@ min.”
 
 Kovaĝík kolektis kelke da ŝtonoj kuŝantaj sur la vojo
 
-kaj plenŝtopis siajn poŝojn per ili. Unu mezgrandan ŝto-
-
-non li ligis en sian poŝtukon.
+kaj plenŝtopis siajn poŝojn per ili. Unu mezgrandan ŝtonon li ligis en sian poŝtukon.
 
 Silente li atendis denove, ĝis Míla, kliniĝinte la kapon
 
@@ -5482,32 +4254,19 @@ Baldaŭ estis klare aŭdeblaj singardaj paŝoj kaj tuj
 poste spiregado de hundo, kiun sufokadis la kolŝnuro.
 
 
-MI EN LI
+La hundo eligis eĉ ne unu sonon, nur senpere ĉe la kuŝantoj ĝi ekmuĝis. Sed samtempe elradiis en la direkto
 
+al Vaôek kun la hundo blanka konuso da lumo el elektra lampeto.
 
-La hundo eligis eĉ ne unu sonon, nur senpere ĉe la ku-
-
-ŝantoj ĝi ekmuĝis. Sed samtempe elradiis en la direkto
-
-al Vaôek kun la hundo blanka konuso da lumo el elek-
-
-tra lampeto.
-
-La lampeton tenis Míla tiel, ke la hundo kaj Vaôek si-
-
-lente kaj embarase staris en la mezo, nur la hundo mur-
+La lampeton tenis Míla tiel, ke la hundo kaj Vaôek silente kaj embarase staris en la mezo, nur la hundo mur-
 
 muris.
 
 Kaj sur la tero etendiĝis en la blankan lumkonuson du
 
-paroj da kruroj, unu vira kaj unu malgranda kaj delika-
+paroj da kruroj, unu vira kaj unu malgranda kaj delikata en elegantaj ŝuetoj. Silkaj ŝtrumpoj lumis super la
 
-ta en elegantaj ŝuetoj. Silkaj ŝtrumpoj lumis super la
-
-ŝuetoj kaj gvidis la okulojn supren, sed ĉe la genuoj fi-
-
-niĝis la rando de la lumkonuso.
+ŝuetoj kaj gvidis la okulojn supren, sed ĉe la genuoj finiĝis la rando de la lumkonuso.
 
 Vaôek ne estis malpli rabia ol la hundo, sed la amara
 
@@ -5527,31 +4286,20 @@ Vaôek serĉeme ekrigardis kontraŭ la lumon, poste li
 
 altiris la hundon al si kaj, turninte sin senvorte, li foriris malsupren.
 
-La lumo kondukis lin kelke da paŝoj, poste ĝi estin-
-
-giĝis.
+La lumo kondukis lin kelke da paŝoj, poste ĝi estingiĝis.
 
 ”ĉu mi diris tion bone al li?” flustris Míla, premante
 
 la lipojn al la orelo de Kovaĝík.
 
 
-MI EN LI
-
-
-Li turnis la kapon por respondi, sed iliaj lipoj ektuŝi-
-
-ĝis. Míla ne retiriĝis, sed volvinte sian brakon ĉirkaŭ lia
+Li turnis la kapon por respondi, sed iliaj lipoj ektuŝiĝis. Míla ne retiriĝis, sed volvinte sian brakon ĉirkaŭ lia
 
 kolo ŝi tenis pli firme lian kapon.
 
-Ili kuŝis unu apud la alia kaj unu kontraŭ la alia, aten-
+Ili kuŝis unu apud la alia kaj unu kontraŭ la alia, atendante singarde, simile kiel du katoj, reciproke sin en-
 
-dante singarde, simile kiel du katoj, reciproke sin en-
-
-mordintaj, kiuj kuŝas unu kontraŭ la alia kaj timas ek-
-
-moviĝi, por ke unu ne eksentu la ungegojn de la alia.
+mordintaj, kiuj kuŝas unu kontraŭ la alia kaj timas ekmoviĝi, por ke unu ne eksentu la ungegojn de la alia.
 
 Li aŭdis la emocian batadon de ŝia koro.
 
@@ -5567,9 +4315,7 @@ lasas unu la alian, ĝis iu tria maltrankviligis ilin, ankaŭ
 
 ili ne lasis unu la alian, ĉar neniu ĝenis ilin. Li timis, ke ŝi mokus lin pro lia hezitemo, ŝi timis, ke li mokus ŝin
 
-pro ŝia hezito. Tial ili prenis tion, kio estis jam pli prok-
-
-sime ol je la manetendo.
+pro ŝia hezito. Tial ili prenis tion, kio estis jam pli proksime ol je la manetendo.
 
 Poste ili ne parolis eĉ unu vorton, mirante pri tio, kio
 
@@ -5590,9 +4336,6 @@ sola, ŝi haltis.
 ”Tamen ĝi okazis. Jarĉjo, ĝi okazis jam. Mi timas, ke vi
 
 
-MI EN LI
-
-
 povus forgesi kisi min. ĉu vi volas do nun, ke mi mem
 
 kisu vin?”
@@ -5610,20 +4353,11 @@ mokis lin per la lasta vorto. Kiam li alvenis hejmen, li
 estis fine konvinkita pri tio.
 
 
-MI EN LI
+La tagoj pasadis sen maltrankviligoj kaj regule, la vizitoj de Kovaĝík en la hejmo de familio Horálek, kiuj
 
+komence estis konsiderinde maloftaj, komencis esti denove pli regulaj. Eĉ en *Colorado* ili estis unufoje kaj Hora pagis. La tagoj plivarmiĝis kaj super la ŝtonrompejon
 
-La tagoj pasadis sen maltrankviligoj kaj regule, la vi-
-
-zitoj de Kovaĝík en la hejmo de familio Horálek, kiuj
-
-komence estis konsiderinde maloftaj, komencis esti de-
-
-nove pli regulaj. Eĉ en *Colorado* ili estis unufoje kaj Hora pagis. La tagoj plivarmiĝis kaj super la ŝtonrompejon
-
-Míla venis iom ruĝiĝinta, sed tio povis deveni de la su-
-
-preniro sur la monteton.
+Míla venis iom ruĝiĝinta, sed tio povis deveni de la supreniro sur la monteton.
 
 Tiel pasis majo kaj venis la unuaj tagoj de junio.
 
@@ -5641,9 +4375,7 @@ studegis por la rigora ekzameno. La budo de Vaôek,
 
 kvankam ĝi neniel ŝanĝiĝis, ne ĝenis lin en la studado.
 
-La vivo en ĝi kaj ĉirkaŭ ĝi simpliĝis, Vaôek alvenadis, for-
-
-iradis kaj laboradis en la tombejoj de Koôíĝe aŭ Malva-
+La vivo en ĝi kaj ĉirkaŭ ĝi simpliĝis, Vaôek alvenadis, foriradis kaj laboradis en la tombejoj de Koôíĝe aŭ Malva-
 
 zinky kvazaŭ maŝino. La eksperimentoj — se li faris iajn
 
@@ -5654,38 +4386,23 @@ sama stato, kiel antaŭ tri semajnoj.
 La suno malleviĝis super Æepy, sed Míla ne venis.
 
 
-MI EN LI
+Kvankam li diris al si, ke ŝi nur ĝenas lin ĉi tie, li alkuli-miĝis al ŝia ĉeesto kaj ŝiaj ludemaj kaj facilanimaj paroloj, kiuj estis bonvena refreŝigo dum lia laboro. uste
 
+pro tio, ke hodiaŭ ŝi estis venonta vespere la unuan fojon post la renkontiĝo kun Vaôek kaj ĝuste pro tio, ke ŝi
 
-Kvankam li diris al si, ke ŝi nur ĝenas lin ĉi tie, li alkuli-miĝis al ŝia ĉeesto kaj ŝiaj ludemaj kaj facilanimaj paro-
-
-loj, kiuj estis bonvena refreŝigo dum lia laboro. uste
-
-pro tio, ke hodiaŭ ŝi estis venonta vespere la unuan fo-
-
-jon post la renkontiĝo kun Vaôek kaj ĝuste pro tio, ke ŝi
-
-hodiaŭ malfruis, li pensis pri ŝi: Horálek ne estis en Pra-
-
-ha, tio ĝuste ebligis la kunvenon, li ne povis esti kaŭzo
+hodiaŭ malfruis, li pensis pri ŝi: Horálek ne estis en Praha, tio ĝuste ebligis la kunvenon, li ne povis esti kaŭzo
 
 de la malfruo. Ankaŭ ne estis eble, ke li estus reveninta
 
-antaŭtempe, ĉar li forveturis nur hieraŭ vespere al Vie-
+antaŭtempe, ĉar li forveturis nur hieraŭ vespere al Vieno.
 
-no.
-
-Kvankam li iel timis la alvenon de Míla, tamen li fa-
-
-riĝis senpacienca. Li rigardis la poŝhorloĝon. Estis duo-
+Kvankam li iel timis la alvenon de Míla, tamen li fariĝis senpacienca. Li rigardis la poŝhorloĝon. Estis duo-
 
 no post la oka. La krepusko estis komenciĝonta.
 
 Gardi la budon ne estis necese, Vaôek foriris dum frua
 
-posttagmezo al la tombejo en Koôíĝe kaj revenis proksi-
-
-mume je la sesa. Post netuta duonhoro li foriris verŝaj-
+posttagmezo al la tombejo en Koôíĝe kaj revenis proksimume je la sesa. Post netuta duonhoro li foriris verŝaj-
 
 ne al Malvazinky. Li portis malgrandan paketon. Laŭ ĉi
 
@@ -5693,22 +4410,15 @@ tiu cirkonstanco Kovaĝík konkludis, ke Vaôek pasigos la
 
 nokton en Malvazinky.
 
-Malheliĝis, kaj la studlibroj ne estis plu legeblaj. Ko-
-
-vaĝík fermis ilin kaj meditis, kio eble okazis al Míla, ke
+Malheliĝis, kaj la studlibroj ne estis plu legeblaj. Kovaĝík fermis ilin kaj meditis, kio eble okazis al Míla, ke
 
 ŝi ne venis.
 
-Lian meditadon interrompis paŝoj el direkto de la ŝo-
-
-seo, ĉar iu rapide supreniris la deklivon. Singarde li ek-
+Lian meditadon interrompis paŝoj el direkto de la ŝoseo, ĉar iu rapide supreniris la deklivon. Singarde li ek-
 
 prenis libron, li ne povis fidi al Vaôek. Sed aperis Míla,
 
 emociita kaj sen ĉapelo; ŝiaj okuloj kaj vangoj brulis.
-
-
-MI EN LI
 
 
 ”ĉu okazis io?”
@@ -5719,15 +4429,11 @@ paŝon. Li eksidis apud ŝi kaj volis ekpreni ŝin je la manoj.
 
 ŝi fortiregis ilin nervoze. ŝi volis ekparoli, sed ŝiaj lipoj tremis senforte, ili sangis sub la dentoj, per kiuj ŝi mordis ilin.
 
-Li rigardis ŝin surprizita kaj ekvidis, kiel senlaŭte eli-
-
-ĝas el ŝiaj okuloj larmo post larmo, kiuj kvazaŭ perloj
+Li rigardis ŝin surprizita kaj ekvidis, kiel senlaŭte eliĝas el ŝiaj okuloj larmo post larmo, kiuj kvazaŭ perloj
 
 malrapide falas sur ŝiajn genuojn. ŝi ploris sen skuoj,
 
-rigida, pala, nur ŝiaj larmoj malkaŝis ŝian ploron. Ama-
-
-re kaj necedeme ŝi majstris sin, ŝiaj larmoj aperadis mal-
+rigida, pala, nur ŝiaj larmoj malkaŝis ŝian ploron. Amare kaj necedeme ŝi majstris sin, ŝiaj larmoj aperadis mal-
 
 pli ofte, ĝis fine ili ĉesis flui. Tio estis Míla, kiel li ne konis ŝin ankoraŭ.
 
@@ -5753,12 +4459,7 @@ Ili malsupreniris la deklivon ĝis la ŝoseo kaj tie Míla
 
 ŝovis sian brakon sub la brakon de Kovaĝík.
 
-”ĉi tie neniu konas min kaj fine estas al mi ĉio indife-
-
-renta.”
-
-
-MI EN LI
+”ĉi tie neniu konas min kaj fine estas al mi ĉio indiferenta.”
 
 
 ”ĉu vi diros al mi, kio okazis al vi?”
@@ -5773,33 +4474,23 @@ min, rakontu al mi ion pri vi kaj tio estos bela por mi.
 
 Karega Jarĉjo, forkonduku min de mi.”
 
-Li rakontis do al ŝi pri malgranda vilaĝeto sub Krko-
-
-noôe (Giganta Montaro), kie li naskiĝis, pri sia infanaĝo,
+Li rakontis do al ŝi pri malgranda vilaĝeto sub Krkonoôe (Giganta Montaro), kie li naskiĝis, pri sia infanaĝo,
 
 pri buboj, kun kiuj li luktaĉis kaj kun kiuj li ŝteladis,
 
-kiam pomoj maturiĝis ĉe la najbaroj, li rakontis pri lon-
-
-gaj aŭtunaj tagoj sur paŝtejo, kiam la arboj flaviĝis kaj la
+kiam pomoj maturiĝis ĉe la najbaroj, li rakontis pri longaj aŭtunaj tagoj sur paŝtejo, kiam la arboj flaviĝis kaj la
 
 vento blovegis trans nudajn, ŝtonplenajn paŝtejojn, kiel
 
-ili ekbruligadis fajron por varmigi sin kaj faris novajn pe-
+ili ekbruligadis fajron por varmigi sin kaj faris novajn petolaĵojn sentine.
 
-tolaĵojn sentine.
-
-ŝi aŭskultis kun intereso kaj dankeme; ŝi estis eduki-
-
-ta en Praha, kie ŝi naskiĝis; la kamparon ŝi konis nur el
+ŝi aŭskultis kun intereso kaj dankeme; ŝi estis edukita en Praha, kie ŝi naskiĝis; la kamparon ŝi konis nur el
 
 la ĉirkaŭaĵo de Dobĝichovice kaj Senohraby, la lastajn
 
 jarojn ŝi veturadis al somerrestadejoj en eksterlando.
 
-Ili trairis la aleon al Motol, sed antaŭ Motol ili flan-
-
-keniris dekstre sub Blankan Monton sur la vojo, apud
+Ili trairis la aleon al Motol, sed antaŭ Motol ili flankeniris dekstre sub Blankan Monton sur la vojo, apud
 
 kiu staras malgranda monumento de Kudrna, kiu laŭ
 
@@ -5814,18 +4505,11 @@ prilumis pale la pejzaĝon kvazaŭ noktlampo el opala
 vitro.
 
 
-MI EN LI
-
-
 ĉi tie Míla komencis mallaŭte paroli:
 
-”Mi menciis jam iom la aferon kaj vi certe mem ri-
+”Mi menciis jam iom la aferon kaj vi certe mem rimarkis ĝin. Rememoru nian unuan interparolon super
 
-markis ĝin. Rememoru nian unuan interparolon super
-
-la ŝtonrompejo. Eksciu ankaŭ aferojn, kiuj okazis an-
-
-taŭe. Pri mia edziniĝo mi parolis malmulton, eble vi ne
+la ŝtonrompejo. Eksciu ankaŭ aferojn, kiuj okazis antaŭe. Pri mia edziniĝo mi parolis malmulton, eble vi ne
 
 scias, kiel ĉio okazis.”
 
@@ -5833,19 +4517,13 @@ scias, kiel ĉio okazis.”
 
 estas edziniĝonta kun iu monsakulo. Tio ne plaĉis al mi
 
-kaj mi ne demandis pri tio. Oni prijuĝis do maljuste sin-
+kaj mi ne demandis pri tio. Oni prijuĝis do maljuste sinjoron Horálek.”
 
-joron Horálek.”
-
-”Iom da vero enhavas ĉi tiu via parolo, sed estas ne-
-
-cese kompletigi ĝin. La monsakulo estis Hora. La gepa-
+”Iom da vero enhavas ĉi tiu via parolo, sed estas necese kompletigi ĝin. La monsakulo estis Hora. La gepa-
 
 troj insistegis, ke mi edziniĝu kun li, kaj ili estus eble eĉ sukcesintaj. Sed okazis afero, kiu per unufojo disŝiris la
 
-reton ĵetitan sur min. Miaj gepatroj vidis sin jam ĉirkaŭi-
-
-taj de komfortego, en kiu la brilego de milionulo prilu-
+reton ĵetitan sur min. Miaj gepatroj vidis sin jam ĉirkaŭitaj de komfortego, en kiu la brilego de milionulo prilu-
 
 mis ankaŭ ilin. Ni ne estis tro riĉaj, tamen nia havaĵo ne
 
@@ -5859,37 +4537,23 @@ Ili supozis, ke la edziĝkontrakto estas preskaŭ certa,
 
 kaj timante eble, ke Hora povus ŝanĝi sian decidon, ili
 
-klopodis doni min al li jam antaŭ la edziĝo. Hora disĵeta-
-
-dis monon kvazaŭ frenezulo; li havis sufiĉe da ĝi. Estis
+klopodis doni min al li jam antaŭ la edziĝo. Hora disĵetadis monon kvazaŭ frenezulo; li havis sufiĉe da ĝi. Estis
 
 aranĝataj ekskursoj kaj ĝis matene estis diboĉate en plej
 
-malbona senco de la vorto kaj la diboĉintoj estis veturi-
+malbona senco de la vorto kaj la diboĉintoj estis veturigataj per aŭtomobilo antaŭtagmeze hejmen. La ruĝa aŭ-
 
-
-MI EN LI
-
-
-gataj per aŭtomobilo antaŭtagmeze hejmen. La ruĝa aŭ-
-
-tomobilo de Hora fariĝis famega, ĉar kiam ajn antaŭtag-
-
-meze ĝi haltis ie, ĉiam eliris el ĝi per frako aŭ smokingo
+tomobilo de Hora fariĝis famega, ĉar kiam ajn antaŭtagmeze ĝi haltis ie, ĉiam eliris el ĝi per frako aŭ smokingo
 
 vestitaj figuraĉoj, kiujn oni devis apogi. Eble ne estas
 
-necese aldoni, ke mi estis la sola virino, kiu devis kun-
-
-diboĉi, ĉar Hora asertis, ke ĉio okazas je mia honoro.
+necese aldoni, ke mi estis la sola virino, kiu devis kundiboĉi, ĉar Hora asertis, ke ĉio okazas je mia honoro.
 
 En dancamuzejo — nu, kial kaŝi ĝin — la afero okazis
 
 en R. Hora sukcesis ebriigi min kaj, foriginte la societon,
 
-perforte li sekse misuzis min: la besto ne kapablis ĝis-
-
-atendi.
+perforte li sekse misuzis min: la besto ne kapablis ĝisatendi.
 
 Tio kompreneble estis fino de lia svatado. Hejme mi
 
@@ -5905,9 +4569,7 @@ skandalon.
 
 Mi fariĝis indiferenta kaj diris, ke oni traktu min laŭ
 
-sia plaĉo. ĉe ni aperis bonmora homo, li kondutis kon-
-
-vene, parolis ĝentile kaj estis respektplena kaj kio estis
+sia plaĉo. ĉe ni aperis bonmora homo, li kondutis konvene, parolis ĝentile kaj estis respektplena kaj kio estis
 
 la ĉefaĵo, li ne estis informita pri mia malfeliĉo. Li fariĝis serioza aspiranto pri mia mano! Tio estis mia nuna edzo.
 
@@ -5922,9 +4584,6 @@ tio estas vero.”
 ŝi eksilentis kaj metis la kapon en la manplatojn.
 
 
-MI EN LI
-
-
 ”Mi supozas, ke vi volas diri ankoraŭ ion al mi.”
 
 ”Tio estas la plej malfacila. Hora tre baldaŭ trovis
@@ -5937,13 +4596,9 @@ estis peko, sed kredu min, mi amis mian edzon; li estis
 
 estis lia peko. Mi supozis, ke estante kompaniano de
 
-bone prosperanta bankentrepreno, li havas ankaŭ kon-
+bone prosperanta bankentrepreno, li havas ankaŭ konvenajn enspezojn; oni parolis ja multon pri brilegaj pro-
 
-venajn enspezojn; oni parolis ja multon pri brilegaj pro-
-
-fitoj de la firmo, mi malŝparis senbride. Tiel mi kondu-
-
-kis la edzon tien, kie Hora volis havi lin. Kiam Hora ek-
+fitoj de la firmo, mi malŝparis senbride. Tiel mi kondukis la edzon tien, kie Hora volis havi lin. Kiam Hora ek-
 
 konis, ke estas oportuna momento, li venis kaj minacis
 
@@ -5957,9 +4612,7 @@ Mi silentis kaj mi silentis eĉ plu, ĉar Hora obstine
 
 persistis kaj kanajle misuzadis min plu. Por havi min pli
 
-firme en sia potenco, li persvadis mian edzon, ke ni kon-
-
-struigu familian domon kaj li donis la necesan monon
+firme en sia potenco, li persvadis mian edzon, ke ni konstruigu familian domon kaj li donis la necesan monon
 
 por tiu celo. Mi ne scias, kio plu okazus kun mi: mia sola
 
@@ -5971,12 +4624,7 @@ min terura honto. Horan mi ne akceptadis plu kaj mi
 
 opiniis pli ebla mortigi lin, ol cedi al li denove.”
 
-ŝi eksilentis kaj denove metis la kapon en la manpla-
-
-tojn.
-
-
-MI EN LI
+ŝi eksilentis kaj denove metis la kapon en la manplatojn.
 
 
 ”Mi supozas, ke vi havas ankoraŭ ion, kion vi volas
@@ -5989,13 +4637,9 @@ al vi, kial. Estas li, kiu sendis mian edzon al Vieno, por
 
 ke mi estu sola. Proksime al nia loĝejo okazis hodiaŭ
 
-akcidento; laboristo falis de trabaro kaj mortis. La servis-
+akcidento; laboristo falis de trabaro kaj mortis. La servistino scivole rapidis rigardi, kio okazis. Tion uzis tiu ka-
 
-tino scivole rapidis rigardi, kio okazis. Tion uzis tiu ka-
-
-najlo kaj venis al mi. Mi ne sciis, ke li estas hejme, alio-
-
-kaze mi estus enŝlosinta min, mi supozis, ke li estas en
+najlo kaj venis al mi. Mi ne sciis, ke li estas hejme, aliokaze mi estus enŝlosinta min, mi supozis, ke li estas en
 
 la kontoro, kiam mia edzo forveturis. Li ŝlosis la pordon
 
@@ -6017,9 +4661,7 @@ rekomendis al mi. Mi ekprenis fajrohokon, kiu estis ĉe
 
 la forno.
 
-Li retiriĝis menciante, ke li ne konsideras mian defen-
-
-don serioza. Li diris, ke li volis indulgi min, sed ke li ne
+Li retiriĝis menciante, ke li ne konsideras mian defendon serioza. Li diris, ke li volis indulgi min, sed ke li ne
 
 havas plu kaŭzon. Poste li montris al mi resumon el nia
 
@@ -6029,13 +4671,7 @@ edzo kun li.
 
 Li ekridetis malice kaj montris kroman paperon al mi.
 
-Kiam mi tralegis ĝin, mi konsterniĝis pro teruro. La pa-
-
-
-MI EN LI
-
-
-pero enhavis liston de trompoj faritaj de mia edzo por
+Kiam mi tralegis ĝin, mi konsterniĝis pro teruro. La papero enhavis liston de trompoj faritaj de mia edzo por
 
 havigi monon al si. Hora menciis seke, ke ne temas pri
 
@@ -6043,9 +4679,7 @@ trompoj koncerne la firmon, sed koncerne klientojn. Li
 
 aldonis, ke li estas preta helpi mian edzon, se mi estos
 
-prudenta. Li intence forsendis mian edzon por povi sen-
-
-dube certiĝi pri la afero kaj por — kiel li diris — inter-
+prudenta. Li intence forsendis mian edzon por povi sendube certiĝi pri la afero kaj por — kiel li diris — inter-
 
 konsenti kun mi.
 
@@ -6081,18 +4715,14 @@ Li rigardis en ŝiajn okulojn:
 
 Poste ili vagadis tra la kamparo por rekonsciiĝi. Ili ne
 
-parolis plu pri si kaj tamen ili pensis nur pri si. Ili timis 121
-
-MI EN LI
+parolis plu pri si kaj tamen ili pensis nur pri si. Ili timis
 
 
 ekpalpi unu la alian kaj fine tamen ili kondukis sin je la
 
 manoj, kie la vojo permesis tion.
 
-En la kampoj antaŭ si oni rimarkis silueton de la tom-
-
-beja muro en Koôíĝe kaj direktis sin al ĝi. ŝi demandis lin
+En la kampoj antaŭ si oni rimarkis silueton de la tombeja muro en Koôíĝe kaj direktis sin al ĝi. ŝi demandis lin
 
 pri detaloj de la malgaja nokto, kiam oni trovis Manjon.
 
@@ -6112,21 +4742,13 @@ Ili venis ĝis la kadavrejo kaj stariĝis sur piedpintoj por
 
 povi rigardi trans la muron. Subite Kovaĝík kaptis Mílan
 
-je la mano kaj tiregis ŝin teren. Per la manplato li kov-
+je la mano kaj tiregis ŝin teren. Per la manplato li kovris ŝian buŝon timante, ke ŝi ekkrios. ŝi tremis timigite.
 
-ris ŝian buŝon timante, ke ŝi ekkrios. ŝi tremis timigite.
+Poste ili aŭskultis timante eĉ ekspiri pli profunde. Malantaŭ la muro estis aŭdeblaj senbruaj paŝoj kaj la por-
 
-Poste ili aŭskultis timante eĉ ekspiri pli profunde. Ma-
+do de la kadavrejo kelkfoje ekknaris. Kaŝita de monumento, Kovaĝík kuraĝis fine ekrigardi trans la muron.
 
-lantaŭ la muro estis aŭdeblaj senbruaj paŝoj kaj la por-
-
-do de la kadavrejo kelkfoje ekknaris. Kaŝita de monu-
-
-mento, Kovaĝík kuraĝis fine ekrigardi trans la muron.
-
-Sur libera spaco antaŭ la kadavrejo li ekvidis blanke-
-
-tan korpon kuŝanta sur ĉerkportilo. Flanke kuŝis hundo
+Sur libera spaco antaŭ la kadavrejo li ekvidis blanketan korpon kuŝanta sur ĉerkportilo. Flanke kuŝis hundo
 
 kvazaŭ dormanta. Kiam li ekkonis, ke estas Vaôek, kiu
 
@@ -6134,13 +4756,7 @@ eliris el la kadavrejo, li ne atendis plu kaj kaŝis sin timan-te, ke Vaôek pov
 
 heligita de luno.
 
-Kovaĝík donis signon al Míla kaj ili ambaŭ foriris sin-
-
-
-MI EN LI
-
-
-garde kaj neaŭdeble. Malrekte ili atingis la vojon kondu-
+Kovaĝík donis signon al Míla kaj ili ambaŭ foriris singarde kaj neaŭdeble. Malrekte ili atingis la vojon kondu-
 
 kantan de la tombejo.
 
@@ -6193,52 +4809,35 @@ kontraŭ li duone kuŝis, duone sidis juna laboristo. Vaôek
 tenis lin je ambaŭ manoj, por ke li ne falu dorsen.
 
 
-MI EN LI
-
-
 Kovaĝík rimarkis klare, ĉar li alproksimiĝis je kelkaj
 
 metroj, kiel de sur la vango de la senvesta laboristo strie
 
-fluas sango. Tio laŭŝajne malhelpis Vaôekon, ĉar li re-
-
-kuŝigis la sangantan laboriston dorsen, deŝiris kelkajn
+fluas sango. Tio laŭŝajne malhelpis Vaôekon, ĉar li rekuŝigis la sangantan laboriston dorsen, deŝiris kelkajn
 
 rubandojn de ĉemizo, kiun verŝajne li estis forpreninta
 
 de la laboristo kaj bandaĝis lian kapon. Denove li prenis
 
-lin je la manoj kaj levis lin. Fikse li rigardis en lian vi-
+lin je la manoj kaj levis lin. Fikse li rigardis en lian vizaĝon.
 
-zaĝon.
+Post kelkaj minutoj malfermiĝis la okuloj de la laboristo.
 
-Post kelkaj minutoj malfermiĝis la okuloj de la labo-
-
-risto.
-
-Ankaŭ de malproksime Kovaĝík rimarkis, ke la rigar-
-
-do de la vundita laboristo estas rigardo de frenezulo. La
+Ankaŭ de malproksime Kovaĝík rimarkis, ke la rigardo de la vundita laboristo estas rigardo de frenezulo. La
 
 revivigito elŝiris sin el la manoj de Vaôek kaj ekululis.
 
-Vaôek surprizite foriris iom de la ĉerkportilo kaj malra-
-
-pide retiriĝis al la kadavrejo sekvata de la rigardo de la
+Vaôek surprizite foriris iom de la ĉerkportilo kaj malrapide retiriĝis al la kadavrejo sekvata de la rigardo de la
 
 strange murmuranta homo.
 
-Grandega salto, kiun faris la laboristo por atingi Va-
-
-ôekon, finiĝis antaŭ la kadavreja pordo, malantaŭ kiu
+Grandega salto, kiun faris la laboristo por atingi Vaôekon, finiĝis antaŭ la kadavreja pordo, malantaŭ kiu
 
 Vaôek enŝlosis sin.
 
 Kio poste okazis, estis agoj de ono da terura sekundo.
 
-La revivigita laboristo kurante sur ĉiuj kvar kvazaŭ hun-
-
-do renversis la ĉerkportilon kaj, trovinte mortan hundon
+La revivigita laboristo kurante sur ĉiuj kvar kvazaŭ hundo renversis la ĉerkportilon kaj, trovinte mortan hundon
 
 kuŝantan sur la tero, provis disŝiri ĝin; poste li turnis ĝin kaj ĵetis en la aeron. Li ekbojis furioze kaj murmurante
 
@@ -6247,12 +4846,7 @@ kuregis sur ĉiuj kvar al la pordego, trans kiun li facile
 rampis kaj malaperis sur la vojo al Koôíĝe.
 
 
-MI EN LI
-
-
-Poste ankaŭ Vaôek elkuris el la kadavrejo kaj, atingin-
-
-te la pordegon, transrampis ĝin kaj malaperis en la nok-
+Poste ankaŭ Vaôek elkuris el la kadavrejo kaj, atinginte la pordegon, transrampis ĝin kaj malaperis en la nok-
 
 to.
 
@@ -6260,55 +4854,36 @@ La unua penso, kiu elŝiris Kovaĝíkon el la teruro de ĉi
 
 tiuj momentoj, estis rememoro pri Míla.
 
-Li trovis ŝin sveninta malantaŭ aro da tero. Klopodan-
+Li trovis ŝin sveninta malantaŭ aro da tero. Klopodante rekonsciigi ŝin, li eĉ ne rimarkis, kiel la hundoj en la
 
-te rekonsciigi ŝin, li eĉ ne rimarkis, kiel la hundoj en la
+brikfarejo kaj la hundo de nokta gardisto apud la novkonstruaĵoj komencis bojadi. Nur forta voĉo de la nova
 
-brikfarejo kaj la hundo de nokta gardisto apud la nov-
-
-konstruaĵoj komencis bojadi. Nur forta voĉo de la nova
-
-hundo en la vilao de Horálek restarigis Kovaĝíkon oku-
-
-piĝanta ĝis tiam pri la sveninta Míla. Li faris kelkajn
+hundo en la vilao de Horálek restarigis Kovaĝíkon okupiĝanta ĝis tiam pri la sveninta Míla. Li faris kelkajn
 
 paŝojn en la kampon por aŭdi pli bone.
 
-En la duobla vilao, kiu estis eĉ ne okcent paŝojn mal-
-
-proksime de tie, la fenestroj estis ankoraŭ lumigitaj. Evi-
+En la duobla vilao, kiu estis eĉ ne okcent paŝojn malproksime de tie, la fenestroj estis ankoraŭ lumigitaj. Evi-
 
 dente oni atendis Mílan. Poste li vidis, kiel fariĝis lume
 
-en la ĝardeno kaj en la korto; nome oni lumigis la elek-
-
-tran lampon super la dua — malantaŭa — enirejo. La bo-
+en la ĝardeno kaj en la korto; nome oni lumigis la elektran lampon super la dua — malantaŭa — enirejo. La bo-
 
 jado kaj blekegado apud la vilao terurige pligrandiĝadis.
 
 Sed poste Kovaĝík vidis ombron en la unua etaĝo de la
 
-duonvilao loĝata de Horálek, kaj tuj poste serion da sin-
-
-sekvaj rapidaj ekfulmoj. Baldaŭ eksonis ankaŭ pistol-
+duonvilao loĝata de Horálek, kaj tuj poste serion da sinsekvaj rapidaj ekfulmoj. Baldaŭ eksonis ankaŭ pistol-
 
 pafoj.
 
 La blekegado tuj ĉesis. Kovaĝík rimarkis lumojn, kiuj
 
-proksimiĝis al la duobla vilao de malantaŭe el la direk-
-
-to de Klikovka, ankaŭ el la direkto de la brikfarejo de
+proksimiĝis al la duobla vilao de malantaŭe el la direkto de Klikovka, ankaŭ el la direkto de la brikfarejo de
 
 Beâka kuris kelkaj personoj al la nova kolonio.
 
 
-MI EN LI
-
-
-Li revenis denove al la sveninta Míla. ŝi kuŝis tute kvi-
-
-ete. Li rememoris, ke en manpoŝo Míla portas kutime
+Li revenis denove al la sveninta Míla. ŝi kuŝis tute kviete. Li rememoris, ke en manpoŝo Míla portas kutime
 
 malgrandan boteleton da kolonja akvo, sed pasis longa
 
@@ -6320,9 +4895,7 @@ Klopodante rekonsciigi Mílan, li kaŭrigis sin al la tero,
 
 estas Vaôek, sed li ne rekonis lin, ĉar la luno kaŝis sin
 
-intertempe malantaŭ nuboj ariĝantaj laŭvice de orien-
-
-to.
+intertempe malantaŭ nuboj ariĝantaj laŭvice de oriento.
 
 Míla malfermis la okulojn kaj denove ekteruriĝis pro
 
@@ -6357,12 +4930,7 @@ disvojiĝo, kie la vojo de la tombejo kurbiĝas al la ŝoseo
 de Motol, ŝi svenis denove.
 
 
-MI EN LI
-
-
-De la brikfarejo refoje kuris kelke da personoj; li pe-
-
-tis ilin, ke ili helpu lin porti la svenintinon en la loĝejon.
+De la brikfarejo refoje kuris kelke da personoj; li petis ilin, ke ili helpu lin porti la svenintinon en la loĝejon.
 
 ŝi ne rekonsciiĝis, kio estis pli bona por ŝi.
 
@@ -6387,9 +4955,7 @@ jenon:
 
 *ĉirkaŭ la dekunua horo nokte oni vokis el la brikfarejo*
 
-*Klikovka la policon (la komisarejon en Koôíĝe), ke en la unua* 127
-
-MI EN LI
+*Klikovka la policon (la komisarejon en Koôíĝe), ke en la unua*
 
 
 *vilao de la nova Kolonio Ladronka, kiu sola estas ĝis nun* *loĝata, okazis rabatako, dum kiu la atakinto estis mortpafita. *
@@ -6418,9 +4984,7 @@ MI EN LI
 
 *de la tiel nekutima bruo en la ĝardeno. Ankoraŭ duondor-*
 
-*mante li rimarkis, ke la gardhundo luktegas kun io blanka* 128
-
-MI EN LI
+*mante li rimarkis, ke la gardhundo luktegas kun io blanka*
 
 
 *ĉe sia budo, kaj ŝajnis al li, ke li ekkonas homan staturon. *
@@ -6449,9 +5013,7 @@ MI EN LI
 
 *Samtempe venis kuracisto, kiu povis konstati nur la mor-*
 
-*ton. Oni decidis lasi la kadavron sur la loko ĝis la alveno de* 129
-
-MI EN LI
+*ton. Oni decidis lasi la kadavron sur la loko ĝis la alveno de*
 
 
 *juĝa komisiono. Sed tiurilate intervenis bankisto Hora kaj* *postulis tre ekscitite, ke oni tuj forigu la kadavron kaj, kiam* *la polico rifuzis fari tion, li promesis grandan rekompencon* *al la ĉirkaŭstarantaj homoj, se ili mem faros tion. *
@@ -6469,9 +5031,6 @@ MI EN LI
 *osto en du lokoj. Estis neeble konstati, ĉu la nekonata viro* *povus esti tiel vundita en la korto. Male oni trovis sangajn* *postsignojn, kie la nekonata viro grimpis trans la ĝardenba-rilon. Atenton vekis la cirkonstanco, ke la gardinta lupohundo kuŝis ne tro malproksime ĝismorte mordita kun disŝiri-*
 
 *ta gorĝo. *
-
-
-MI EN LI
 
 
 *La bankisto Hora ripetis sian aserton, ke la viro kvazaŭ*
@@ -6501,38 +5060,23 @@ MI EN LI
 *vaste aresti kaj enkarcerigas simple ĉiun, kiu hieraŭ posttagmeze eĉ nur malproksime preterpasis la tombejon.” *
 
 
-MI EN LI
-
-
-Jen la sciigoj de unu ĵurnalo, sed aperis ankaŭ pli ak-
-
-raj, esprimantaj senrespekte sian kondamnantan vid-
+Jen la sciigoj de unu ĵurnalo, sed aperis ankaŭ pli akraj, esprimantaj senrespekte sian kondamnantan vid-
 
 punkton kontraŭ la polico, kiu silentiginte la okazaĵon el
 
-la fino de aprilo, ebligis al nekonata krimulo daŭrigi si-
+la fino de aprilo, ebligis al nekonata krimulo daŭrigi siajn krimojn.
 
-ajn krimojn.
-
-Plej grandan konfuzon rezultigis la okazaĵo kompre-
-
-neble en Koôíĝe, kie en la proksimaj kolonioj oni seku-
+Plej grandan konfuzon rezultigis la okazaĵo kompreneble en Koôíĝe, kie en la proksimaj kolonioj oni seku-
 
 rigis familiajn dometojn per barikadoj kaj hundojn oni
 
 kaŝis en tolaĵlavejoj, por ke ili ne fariĝu viktimoj de iu
 
-nova fantomo, kiun ĉiu imagis vidante eĉ plej malgran-
+nova fantomo, kiun ĉiu imagis vidante eĉ plej malgrandan ombron.
 
-dan ombron.
+Estis formataj ankaŭ memhelpaj taĉmentoj de gardistoj, kiuj patrolis en unuopaj kolonioj.
 
-Estis formataj ankaŭ memhelpaj taĉmentoj de gardi-
-
-stoj, kiuj patrolis en unuopaj kolonioj.
-
-Sed nenie okazis io suspektinda. Kelkfoje estis alarma-
-
-ta la polico kaj estis traserĉataj anguloj kaj lokoj, kie oni rimarkis strange kaŭrantan monstron, kiu kuris klinita
+Sed nenie okazis io suspektinda. Kelkfoje estis alarmata la polico kaj estis traserĉataj anguloj kaj lokoj, kie oni rimarkis strange kaŭrantan monstron, kiu kuris klinita
 
 al la tero aŭ kaŝis sin sur arbobranĉoj en la aleo apud
 
@@ -6546,41 +5090,28 @@ kelkaj paŝoj.
 
 Infanoj kaj multaj plenaĝuloj timis vespere eliri el la
 
-domoj. Por trankviligi la publikon oni plimultigis la po-
-
-licajn gardistojn.
+domoj. Por trankviligi la publikon oni plimultigis la policajn gardistojn.
 
 Oni simple atendis pligrandigon de teruraĵoj. Dume la
 
 policaj esploroj post kelkaj tagoj ekhaltis en senelirejo.
 
 
-MI EN LI
-
-
 La kuracistaro saĝe ekdisputis, ĉar nun dum sekcado
 
-oni konstatis nur, ke la mortinto unufoje mortis pro ak-
-
-cidento kaj la duan fojon li estis mortpafita. La sola ne-
+oni konstatis nur, ke la mortinto unufoje mortis pro akcidento kaj la duan fojon li estis mortpafita. La sola ne-
 
 disputeble konstatita cirkonstanco estis, ke ĉi tiun fojon
 
 li nepre estas morta.
 
-Ni rigardu, kiel la maltrankvila nokto efikis en la fa-
+Ni rigardu, kiel la maltrankvila nokto efikis en la familia vilao ĉe la fino de la nova kolonio Ladronka.
 
-milia vilao ĉe la fino de la nova kolonio Ladronka.
-
-Kristalvitraj flakonoj, manflegaj instrumentoj el masi-
-
-va arĝento kaj vico da diverskoloraj ujoj da pomadoj,
+Kristalvitraj flakonoj, manflegaj instrumentoj el masiva arĝento kaj vico da diverskoloraj ujoj da pomadoj,
 
 parfumoj kaj pudroj sur la tualettablo estis anstataŭigitaj
 
-per simplaj boteletoj da medikamentoj, kiuj per sia odo-
-
-ro tuj forpelis delikatajn novaĵojn de unuaj parizaj par-
+per simplaj boteletoj da medikamentoj, kiuj per sia odoro tuj forpelis delikatajn novaĵojn de unuaj parizaj par-
 
 fumeksportejoj.
 
@@ -6596,13 +5127,9 @@ malfacile batalanta sur limo inter vivo kaj morto, povus
 
 esti ĝenata de pli laŭta parolo.
 
-ŝiaj ekkrioj trapenetradis la aeron kvazaŭ akra tranĉi-
+ŝiaj ekkrioj trapenetradis la aeron kvazaŭ akra tranĉilo paperon.
 
-lo paperon.
-
-ŝi deĵetadis la kompresojn kaj ŝiradis la silkajn lanu-
-
-gokovrilojn, per kiuj oni pacience kovradis ŝin denove
+ŝi deĵetadis la kompresojn kaj ŝiradis la silkajn lanugokovrilojn, per kiuj oni pacience kovradis ŝin denove
 
 kaj denove.
 
@@ -6611,20 +5138,11 @@ Oni tenis ŝin per la manoj, por ke ŝi ne forkuru el la
 lito.
 
 
-MI EN LI
+La unua nokto estis plej malbona, almenaŭ por Kovaĝík. La servistino tute perdis la kapon. Li restis sola
 
+kun Míla en la dormoĉambro, li aŭskultis ĉiujn ŝiajn ekkriojn kaj senfinajn plendojn.
 
-La unua nokto estis plej malbona, almenaŭ por Ko-
-
-vaĝík. La servistino tute perdis la kapon. Li restis sola
-
-kun Míla en la dormoĉambro, li aŭskultis ĉiujn ŝiajn ek-
-
-kriojn kaj senfinajn plendojn.
-
-Inter la ekkriojn de teruro kaj timo pro la nokto ren-
-
-kontiĝo miksiĝis intimaj sciigoj destinitaj al li, al Jarĉjo, al kiu Míla turnadis sin, por ke li ne kondamnu ŝin.
+Inter la ekkriojn de teruro kaj timo pro la nokto renkontiĝo miksiĝis intimaj sciigoj destinitaj al li, al Jarĉjo, al kiu Míla turnadis sin, por ke li ne kondamnu ŝin.
 
 Kelkfoje Míla denove vekiĝis el deliro kaj petis Kovaĝí-
 
@@ -6638,9 +5156,7 @@ kio jam longe dormis kaŝita en ŝi.
 
 Sed en la ekkrioj, plendoj, doloro kaj malĝojo kaŝis snsterniga konfeso de juna, preskaŭ ĝismorte lacigita
 
-virino, kiu kvazaŭ pilko baraktis inter brilo kaj malpu-
-
-raĵo estante jen malsuprentirata, jen protektata dum
+virino, kiu kvazaŭ pilko baraktis inter brilo kaj malpuraĵo estante jen malsuprentirata, jen protektata dum
 
 maloportuna tempo.
 
@@ -6650,21 +5166,13 @@ mozaiko de junaĝo de ĉi tiu dorlotata kaj rafinita, sed
 
 malfeliĉa virino.
 
-Samgrade, kiel la bildo fariĝis pli klara kaj ĝiaj deta-
-
-loj desegniĝis pli plastike, ankaŭ la koro de Kovaĝík ple-
+Samgrade, kiel la bildo fariĝis pli klara kaj ĝiaj detaloj desegniĝis pli plastike, ankaŭ la koro de Kovaĝík ple-
 
 niĝis de kompato kaj malĝojo.
 
 La estonta kuracisto eksciis pri malsanoj, pri kiuj oni
 
-ne parolis dum universitataj prelegoj. Li eksciis pri infek-
-
-
-MI EN LI
-
-
-taj malsanoj, transplantataj de persono al persono per
+ne parolis dum universitataj prelegoj. Li eksciis pri infektaj malsanoj, transplantataj de persono al persono per
 
 oro, volupto kaj diboĉo.
 
@@ -6672,19 +5180,13 @@ El la ekkrioj kaj febraj paroloj Kovaĝík eksciis ankaŭ
 
 kelkajn detalojn, kiuj ĝis nun ne estis klaraj al li.
 
-Ekzemple la personeco de la edzo de Míla. Observan-
-
-te ian pasivecon de Horálek rilate al Hora, li mem ima-
+Ekzemple la personeco de la edzo de Míla. Observante ian pasivecon de Horálek rilate al Hora, li mem ima-
 
 gis, ke ĉi tiuj du viroj estis interkonsentintaj jam antaŭ
 
-la edziniĝo de Míla. Sed li eksciis, ke tiurilate li maljus-
+la edziniĝo de Míla. Sed li eksciis, ke tiurilate li maljuste prijuĝus la edzon de Míla.
 
-te prijuĝus la edzon de Míla.
-
-La vortoj de Míla, kiujn ŝi parolis al sia edzo dum fe-
-
-bro ne estis malamaj, ili ne enhavis kontraŭstaron, pli
+La vortoj de Míla, kiujn ŝi parolis al sia edzo dum febro ne estis malamaj, ili ne enhavis kontraŭstaron, pli
 
 eble sonis el ili timo de dorlotita infano, kiu timis, ĉar ĝi frakasis ion, kion la alia ŝatis.
 
@@ -6692,9 +5194,7 @@ eble sonis el ili timo de dorlotita infano, kiu timis, ĉar ĝi frakasis ion, ki
 
 vero, pri kio li kulpigas ŝin. ŝi petis lin, ke li ne lasu ŝin sola, ĉar ŝi timas. Ofte ŝi ripetis, ke li kredu nur ŝin kaj
 
-ne aliajn, kiuj mensogas. ŝajnis, ke ŝi, konscia pri la pro-
-
-pra kulpo, estas sendefenda rilate al li.
+ne aliajn, kiuj mensogas. ŝajnis, ke ŝi, konscia pri la propra kulpo, estas sendefenda rilate al li.
 
 Kovaĝík pli kaj pli konvinkiĝis, ke Horálek, laŭnature
 
@@ -6711,9 +5211,6 @@ meriton, kvazaŭ rekompencon por sia agado en la firmo.
 La adoradon kaj diversajn ĝentilaĵojn de Hora koncerne
 
 
-MI EN LI
-
-
 Mílan li opiniis pli eble kora rilato de maljuna viro al
 
 juna knabino.
@@ -6724,17 +5221,11 @@ la edzon pri la vera stato de lia edzeco. Li ne kredis, ke
 
 ne estus rimarkintaj tion homoj, kiuj interrilatis kun
 
-Míla kaj malŝparante — plejparte tute senutile — la tem-
+Míla kaj malŝparante — plejparte tute senutile — la tempon havis sufiĉe da tempo por observi kaj klaĉi. Laŭŝaj-
 
-pon havis sufiĉe da tempo por observi kaj klaĉi. Laŭŝaj-
+ne subtenis ĉi tiuj homoj la intencojn de Hora, kiu havis oron kaj multe da oro, kiujn li sciis disĵetadi.
 
-ne subtenis ĉi tiuj homoj la intencojn de Hora, kiu ha-
-
-vis oron kaj multe da oro, kiujn li sciis disĵetadi.
-
-’ĉu ne laboris ĉi tiuj konatoj, ĉu ne laboris ĉi tiu ron-
-
-do da parazitoj kvazaŭ alpelantoj?’ ekmeditis Kovaĝík.
+’ĉu ne laboris ĉi tiuj konatoj, ĉu ne laboris ĉi tiu rondo da parazitoj kvazaŭ alpelantoj?’ ekmeditis Kovaĝík.
 
 ’ĉu ne temis laŭ iliaj principoj pri io tute akceptebla, ĉu
 
@@ -6742,9 +5233,7 @@ ili ne atendis ankoraŭ alian rekompencon ol la oran? ĉu
 
 Míla ne estis sufiĉe dezirinda, por ke, prostituante ŝin
 
-spirite kaj alkondukante kaj entiregante ŝin en sian sfe-
-
-ron de diboĉo kaj malvirto, ili ne atendu rekompencon,
+spirite kaj alkondukante kaj entiregante ŝin en sian sferon de diboĉo kaj malvirto, ili ne atendu rekompencon,
 
 kiun ŝi mem donos al ili, estinte de ili ekzercita oferti sin laŭ instigo de perversaj muziko kaj danco, kiam ŝi estos
 
@@ -6758,17 +5247,9 @@ abomeno pri aliaj.
 
 ĉirkaŭis nun sian disimbolon — la oran bovidon — kaj
 
-senpacience malsekiĝadis pro konscio pri ruĝeta, elas-
+senpacience malsekiĝadis pro konscio pri ruĝeta, elasta kaj varma karno de virino dum la unua seksa burĝo-
 
-ta kaj varma karno de virino dum la unua seksa burĝo-
-
-nado, je kiu povis apogi sin la menciita besto malhones-
-
-
-MI EN LI
-
-
-te uzurpante ŝin, rondo de manoj, kiuj paro post paro
+nado, je kiu povis apogi sin la menciita besto malhoneste uzurpante ŝin, rondo de manoj, kiuj paro post paro
 
 imagis jam sian kanajlan rikolton, ĝis la ora besto estis
 
@@ -6776,25 +5257,17 @@ satigita kaj ĵetos al ili sian viktimon same senzorge, kiel
 
 ĝis nun ĝi ĵetas manĝaĵojn kaj trinkaĵojn al ili.
 
-ĉu tiu ĉi abomena kolektivo da senhontaj manoj vi-
+ĉu tiu ĉi abomena kolektivo da senhontaj manoj vidus ion malbonan en tio, se ilia rekompenco cirkulus el
 
-dus ion malbonan en tio, se ilia rekompenco cirkulus el
+mano al mano kaj fine plilongigus la rondon, kie en malvirto foriĝadis la seksa diferenco?’
 
-mano al mano kaj fine plilongigus la rondon, kie en mal-
-
-virto foriĝadis la seksa diferenco?’
-
-Li rememoris pri sia amiko medicinstudanto, kiu lev-
-
-ante la montrofingron kaj suprentirante la brovojn ku-
+Li rememoris pri sia amiko medicinstudanto, kiu levante la montrofingron kaj suprentirante la brovojn ku-
 
 time asertis: ’ĉio turniĝas ĉirkaŭ la mono kaj ĉiu mono
 
 turniĝas ĉirkaŭ la volupto.’
 
-Ne estis longaj la momentoj, kiam silento de la dor-
-
-moĉambro estis interrompata nur de la malkvieta kaj
+Ne estis longaj la momentoj, kiam silento de la dormoĉambro estis interrompata nur de la malkvieta kaj
 
 neregula spirado de Míla.
 
@@ -6806,9 +5279,7 @@ unua nokto, kiam li sola flegis ŝin.
 
 ĉiam persekutis ŝin.
 
-Per firmaj manoj li rekuŝigadis ŝin, per manoj de ku-
-
-racisto, kiu maldormis, faris sian devon kaj klopodis savi
+Per firmaj manoj li rekuŝigadis ŝin, per manoj de kuracisto, kiu maldormis, faris sian devon kaj klopodis savi
 
 ŝin.
 
@@ -6818,25 +5289,15 @@ en kiun ŝanĝiĝis Hora, kiu kuradis ĉirkaŭ la vilao kaj
 
 minacadis.
 
-Nur nun Kovaĝík komprenis la abomenindan kanaj-
-
-
-MI EN LI
-
-
-lecon de Hora, kiu, ne posedante forton, anstataŭigis ĝin
+Nur nun Kovaĝík komprenis la abomenindan kanajlecon de Hora, kiu, ne posedante forton, anstataŭigis ĝin
 
 per bruteco.
 
 Kiam mateniĝis, Míla ekdormis lacigita de febro.
 
-Observante ŝian knabinfreŝan vizaĝon Kovaĝík reme-
+Observante ŝian knabinfreŝan vizaĝon Kovaĝík rememoris pri similaj horoj travivitaj ĉe la lito de Manjo.
 
-moris pri similaj horoj travivitaj ĉe la lito de Manjo.
-
-Same kiel tiam, ankaŭ nun li sidis senkonsila kaj senfor-
-
-ta. La duan fojon li staris vizaĝe al la potenco de naturo,
+Same kiel tiam, ankaŭ nun li sidis senkonsila kaj senforta. La duan fojon li staris vizaĝe al la potenco de naturo,
 
 kiun li ne kapablis kontraŭbatali tiel, ke li povus jam
 
@@ -6852,9 +5313,7 @@ La medicina scienco, al kiu li dediĉis sian vivon, ne
 
 donis al li la povon, kiun li bezonus.
 
-La malsana kaj senfortigita korpo de juna virino, vun-
-
-dita en la plej interna esenca parto de sia personeco,
+La malsana kaj senfortigita korpo de juna virino, vundita en la plej interna esenca parto de sia personeco,
 
 elasta kaj delikata korpo, estis mem helponta sin kaj ĝi
 
@@ -6862,9 +5321,7 @@ mem estis decidonta, ĉu ĝi vivos plu.
 
 Jam unu fojon Kovaĝík maldormis apud la lito de la
 
-juna luktanta korpo kaj tiun fojon li ĝisatendis, ke la kor-
-
-po malvarmiĝis.
+juna luktanta korpo kaj tiun fojon li ĝisatendis, ke la korpo malvarmiĝis.
 
 Hodiaŭ la duan fojon li senpove rigardis kaj li sciis
 
@@ -6872,12 +5329,7 @@ bone pri sia senpoveco.
 
 Dormo daŭrinta proksimume unu horon utilis al
 
-Míla; ŝi vekiĝis kaj estis konscia. ŝi pripensis iom kaj po-
-
-ste ŝi ekridetis al Kovaĝík:
-
-
-MI EN LI
+Míla; ŝi vekiĝis kaj estis konscia. ŝi pripensis iom kaj poste ŝi ekridetis al Kovaĝík:
 
 
 ”ĉu vi restis ĉe mi? Kiel bona vi estas. Kioma horo
@@ -6906,41 +5358,28 @@ tie kaj donis kompresojn kiel kuracisto kaj espereble vi
 
 ne persekutos min pro tio, ĉar proksimume post dek
 
-kvar tagoj mi estos doktorigita. Vi scias ja, ke ĉi tiun se-
-
-majnon mi faros la lastan rigoran ekzamenon. Trie: en
+kvar tagoj mi estos doktorigita. Vi scias ja, ke ĉi tiun semajnon mi faros la lastan rigoran ekzamenon. Trie: en
 
 la febro vi vokis iun Jarĉjon, ke li ne forlasu vin kaj restu ĉe vi ĉi tie. ĉar hazarde ne ĉeestis iu kun la sama nomo
 
-kaj mi — denove hazarde — havas tiun nomon, mi vo-
-
-lis plenumi vian deziron kaj restis ĉi tie. Kaj ĉar neniu
+kaj mi — denove hazarde — havas tiun nomon, mi volis plenumi vian deziron kaj restis ĉi tie. Kaj ĉar neniu
 
 ĉeestis kaj via servistino havas mallertajn manojn, ŝi
 
-kuris por glacio kaj mi tenis kaj gardis vin, ke vi ne for-
-
-kuru, ĉar alie ni sopirus verŝajne pri reciproka kolerigo.”
+kuris por glacio kaj mi tenis kaj gardis vin, ke vi ne forkuru, ĉar alie ni sopirus verŝajne pri reciproka kolerigo.”
 
 ”Jarĉjo, ĉu vi scipovas ankaŭ koleri? Estu tiel afabla,
 
 postdekkvartaga sinjoro doktoro, sidiĝu apud mi sur la
 
-liton, mi ne vidas vian indignitan vizaĝon pro arta kom-
-
-preso, kiu lerte kovras unu mian okulon kaj duonon de
-
-
-MI EN LI
+liton, mi ne vidas vian indignitan vizaĝon pro arta kompreso, kiu lerte kovras unu mian okulon kaj duonon de
 
 
 la alia. Suprentiru iom la kompreson de miaj okuloj.
 
 Bone; oni vidas, kiel necesas, ke la doktoro obeu siajn
 
-pacientojn. Mi dankas. Nun ekprenu mian dekstran ma-
-
-non, kiu kuŝas ie apud vi. Bone, kaj nun imagu, ke mi
+pacientojn. Mi dankas. Nun ekprenu mian dekstran manon, kiu kuŝas ie apud vi. Bone, kaj nun imagu, ke mi
 
 firme premis vian manon. — Sinjoro estonta doktoro, mi
 
@@ -6948,9 +5387,7 @@ atentigas vin ĝentile, ke oni ne kisas la manojn de la
 
 pacientoj; ne faru tion plian fojon. Li volis ankaŭ mian
 
-manon, eĉ ambaŭ li volis, sed mi timis, ke li frotvundi-
-
-gos ilin — estis terure, kiel li bojis — kaj mia edzo ĉion
+manon, eĉ ambaŭ li volis, sed mi timis, ke li frotvundigos ilin — estis terure, kiel li bojis — kaj mia edzo ĉion
 
 tion defraŭdis.”
 
@@ -6962,9 +5399,7 @@ al ŝi, ke ŝi venigu senprokraste la hejmkuraciston de la
 
 familio Horálek. Je sia ĝojo li eksciis, ke tio estas doktoro Nesveda el Koôíĝe, lia bona konato.
 
-ĉi tiu povis nur aprobi, kion aranĝis Kovaĝík. Sed sol-
-
-vota estis la problemo, kiu restos ĉe Míla, kiun oni ne
+ĉi tiu povis nur aprobi, kion aranĝis Kovaĝík. Sed solvota estis la problemo, kiu restos ĉe Míla, kiun oni ne
 
 povis lasi negardita dum febro kaj deliro. La aferon
 
@@ -6972,29 +5407,18 @@ komplikis la cirkonstanco, ke la edzo de Míla estis en
 
 Vieno kaj neniu konis lian adreson. Horan forkondukis
 
-la polico kaj neniu emis serĉi lin. La servistino sciis ne-
-
-nion kaj estis ankaŭ kamparana mallertulinaĉo, al kiu
+la polico kaj neniu emis serĉi lin. La servistino sciis nenion kaj estis ankaŭ kamparana mallertulinaĉo, al kiu
 
 oni ne povis konfidi Mílan.
 
-Oni demandis do Mílan, kiam ŝi denove iom rekon-
-
-sciiĝis, ĉu ŝi konsentas, ke oni dungu flegistinon. Oni
+Oni demandis do Mílan, kiam ŝi denove iom rekonsciiĝis, ĉu ŝi konsentas, ke oni dungu flegistinon. Oni
 
 
-MI EN LI
-
-
-klarigis al Míla, ke estas necese, ke iu flegu ŝin: kom-
-
-preneble oni ne kaŝis al ŝi la gravecon de ŝia stato.
+klarigis al Míla, ke estas necese, ke iu flegu ŝin: kompreneble oni ne kaŝis al ŝi la gravecon de ŝia stato.
 
 ŝi meditis iom.
 
-”Sinjoro Kovaĝík restos ĉe mi kaj flegos min. Mi supo-
-
-zas, ke li plenumos ĉi tiun mian peton. Li estis ĉe mi la
+”Sinjoro Kovaĝík restos ĉe mi kaj flegos min. Mi supozas, ke li plenumos ĉi tiun mian peton. Li estis ĉe mi la
 
 unuan nokton, li restu ĉe mi ankoraŭ kelkan, se li nur
 
@@ -7004,13 +5428,9 @@ mi kaj ŝirmu min.”
 
 Doktoro Nesveda jesis, ke sinjorino Horálková estas
 
-iurilate prava, kaj li mem opiniis, ke verŝajne estos an-
+iurilate prava, kaj li mem opiniis, ke verŝajne estos ankoraŭ necese, ke eĉ plu ĉeestu kuracisto kaj, pro la bo-
 
-koraŭ necese, ke eĉ plu ĉeestu kuracisto kaj, pro la bo-
-
-naj rilatoj de Kovaĝík al la familio Horálek, li eĉ mem ŝa-
-
-tus, se Kovaĝík restus ĉe la malsanulino. La helpo de la
+naj rilatoj de Kovaĝík al la familio Horálek, li eĉ mem ŝatus, se Kovaĝík restus ĉe la malsanulino. La helpo de la
 
 servistino ne estos senvalora, se ĝi estos kontrolata.
 
@@ -7024,9 +5444,7 @@ Doktoro Nesveda promesis, ke li revenos la venontan
 
 tagon.
 
-Tuj kiam fermiĝis la pordo post li, Míla komencis pen-
-
-teme:
+Tuj kiam fermiĝis la pordo post li, Míla komencis penteme:
 
 ”Mi ne povis alie; mi scias, ke mi krias dum febro.
 
@@ -7037,9 +5455,6 @@ povos studi ĉi tie. Mi scias, ke vi trastudas nun ripetfoje
 la studmaterialon. Se vi ne volas veni al mi pli ofte, venu
 
 nur, kiam dum febro mi krios aferojn, kiujn ne aŭdu iu
-
-
-MI EN LI
 
 
 alia. ĉu vi konsentas? Dungu eble flegistinon por helpo,
@@ -7056,23 +5471,17 @@ Kovaĝík ekridis sincere. Li rakontis al Míla, kio okazis
 
 al Hora kaj ke li ankoraŭ ne revenis.
 
-Mila decidiĝis pli poste alie kaj ordonis, ke oni ne ve-
-
-nigu la edzon; li restos ekstere proksimume kvar tagojn
+Mila decidiĝis pli poste alie kaj ordonis, ke oni ne venigu la edzon; li restos ekstere proksimume kvar tagojn
 
 kaj ŝi esperis, ke ĝis tiam ŝi fartos pli bone.
 
-Tre kontenta ŝi estis, kiam Kovaĝík legis al ŝi el la ma-
-
-tenĵurnaloj alportitaj de la servistino, ke ŝi — Míla —
+Tre kontenta ŝi estis, kiam Kovaĝík legis al ŝi el la matenĵurnaloj alportitaj de la servistino, ke ŝi — Míla —
 
 svenis survoje el teatro.
 
 ”Kelkfoje ankaŭ la ĵurnaloj skribas prudente.”
 
-Posttagmeze venis en la vilaon du sinjoroj por esplo-
-
-ri la okazaĵon. Kovaĝík ekspedis ilin tre rapide, atentig-
+Posttagmeze venis en la vilaon du sinjoroj por esplori la okazaĵon. Kovaĝík ekspedis ilin tre rapide, atentig-
 
 inte ilin pri la stato de la malsanulino.
 
@@ -7082,9 +5491,7 @@ li sendis ŝin hejmen. Li aranĝis do ĉion al si, kiel estis
 
 necese. La servistino dormis sur kanapo en la ĉambro
 
-apud la dormoĉambro, Kovaĝík dormis en la tria ĉam-
-
-bro. Li alternis kun la servistino, kiu vokis lin ĉiam, kiam
+apud la dormoĉambro, Kovaĝík dormis en la tria ĉambro. Li alternis kun la servistino, kiu vokis lin ĉiam, kiam
 
 ajn la sinjorino komencis deliri.
 
@@ -7092,37 +5499,21 @@ Poste, malrapide kaj lace, kvazaŭ sur lambastonoj,
 
 unu horo sekvis la alian, nur ekkrioj de la malsanulino
 
-interrompis ilian malrapidan fluon. Malfrue posttagme-
-
-
-MI EN LI
-
-
-ze la febro denove tiom plialtiĝis, tiel ke Kovaĝík timis
+interrompis ilian malrapidan fluon. Malfrue posttagmeze la febro denove tiom plialtiĝis, tiel ke Kovaĝík timis
 
 katastrofon.
 
-uste li estis sola, la servistino foriris por alporti gla-
+uste li estis sola, la servistino foriris por alporti glacion, kiam li klinis sin super Míla, kiu post forta spasmo
 
-cion, kiam li klinis sin super Míla, kiu post forta spasmo
+subite kvietiĝis; li estis konvinkita jam, ke oni ne bezonos lin plu ĉi tie.
 
-subite kvietiĝis; li estis konvinkita jam, ke oni ne bezo-
-
-nos lin plu ĉi tie.
-
-Sed la juna korpo ne volis morti, ĝi defendis sin, luk-
-
-tis kaj kontraŭstaris. i laciĝadis, sed ankaŭ la malsano
+Sed la juna korpo ne volis morti, ĝi defendis sin, luktis kaj kontraŭstaris. i laciĝadis, sed ankaŭ la malsano
 
 laciĝadis. La febro ne malaltiĝis, sed subitaj spasmoj,
 
-kiuj atakis la malsanulinon, maloftiĝis kaj Míla je nok-
+kiuj atakis la malsanulinon, maloftiĝis kaj Míla je noktomezo denove iom ekdormis. Ankaŭ Kovaĝík, venkita
 
-tomezo denove iom ekdormis. Ankaŭ Kovaĝík, venkita
-
-de laciĝo, ekdormis sur seĝo, sed vekis lin rido. Míla ri-
-
-dis. Li supozis, ke denove ŝi deliras kaj preparis do no-
+de laciĝo, ekdormis sur seĝo, sed vekis lin rido. Míla ridis. Li supozis, ke denove ŝi deliras kaj preparis do no-
 
 van kompreson, sed ŝi kontraŭstaris.
 
@@ -7149,9 +5540,6 @@ Tiel alternis momentoj de stranga humoro kun horoj
 de teruro, trankvilaj kaj ofte ŝercaj vortoj alternis kun
 
 ekkrioj kaj ploro.
-
-
-MI EN LI
 
 
 La venontan tagon la servistino diris al Kovaĝík, ke
@@ -7202,37 +5590,23 @@ memkompreneble, ke Kovaĝík restos ankaŭ plu ĉe ili,
 
 almenaŭ kelkajn tagojn, dum Míla ne estos jam tute
 
-ekster danĝero. Li mem dormos malsupre en la manĝo-
-
-
-MI EN LI
-
-
-ĉambro kaj kune kun Kovaĝík kaj la servistino li ekdeĵo-
+ekster danĝero. Li mem dormos malsupre en la manĝoĉambro kaj kune kun Kovaĝík kaj la servistino li ekdeĵo-
 
 ros ĉe ŝi. Sed tiurilate Míla kategorie kontraŭdiris, ke lia
 
 ĉeesto ne utilus ŝin, ke li venu al ŝi nur, kiam ŝi fartos
 
-bone. Mirigita li skuis la kapon, sed supozis, ke ŝiaj vor-
-
-toj rezultas el ŝia malsano. Sed Kovaĝík neniam lasis lin
+bone. Mirigita li skuis la kapon, sed supozis, ke ŝiaj vortoj rezultas el ŝia malsano. Sed Kovaĝík neniam lasis lin
 
 en la dormoĉambron, kiam Míla deliris, motivante tion
 
-per timo ke ili malbonigos ŝian sanstaton, agante kon-
-
-traŭ ŝia deziro.
+per timo ke ili malbonigos ŝian sanstaton, agante kontraŭ ŝia deziro.
 
 La sekvantaj du tagoj alportis neniajn novaĵojn. Míla
 
-tiom malfortiĝis, ke ŝi estis kvazaŭ lanugero. Posttagme-
+tiom malfortiĝis, ke ŝi estis kvazaŭ lanugero. Posttagmeze Kovaĝík eliris promeni; la unuan fojon post la fatala
 
-ze Kovaĝík eliris promeni; la unuan fojon post la fatala
-
-nokto denove li estis ekstere. Li iris ĝis super la ŝtonrom-
-
-pejon estante scivola, kio okazis kun Vaôek. Li ne dubis,
+nokto denove li estis ekstere. Li iris ĝis super la ŝtonrompejon estante scivola, kio okazis kun Vaôek. Li ne dubis,
 
 ke denove oni arestis lin. En la barejo estis trankvile.
 
@@ -7250,18 +5624,13 @@ ion interesan.
 
 ”Kial? ĉu vi opinias, kiel la lastan fojon? Ho ne! Li ne
 
-estis ĉi tie, li dormis en Malvazinky. Oni eĉ ne deman-
-
-dis lin. Sed nin en la brikfarejo oni arestis preskaŭ ĉiujn.
+estis ĉi tie, li dormis en Malvazinky. Oni eĉ ne demandis lin. Sed nin en la brikfarejo oni arestis preskaŭ ĉiujn.
 
 El nia familio ni estas hejme nur du, kvankam entute ni
 
 estas ses.”
 
 La malsano de Míla igis Kovaĝíkon forgesi pri Vaôek,
-
-
-MI EN LI
 
 
 unuvorte li ne havis tempon por li, tamen nun li estis
@@ -7284,9 +5653,7 @@ antaŭ si. Tio estis Vaôek kaj la unuan fojon ili reciproke
 
 enrigardis siajn okulojn. Vaôek forturnis la kapon. Tiam
 
-denove Kovaĝík ekmeditis, ke li vidis lin jam ie, sed ne-
-
-niel li kapablis rememori, kie. Tamen li kredis, ke li ren-
+denove Kovaĝík ekmeditis, ke li vidis lin jam ie, sed neniel li kapablis rememori, kie. Tamen li kredis, ke li ren-
 
 kontiĝis jam kun Vaôek ie en Praha.
 
@@ -7298,26 +5665,17 @@ forgesi la renkontiĝon kun Vaôek, ĉiam pripensante, kie
 
 li jam vidis lin.
 
-Varma junia posttagmezo alportis trankvilon en kam-
-
-pojn kaj tra malfermitaj fenestroj enflugis iom da ride-
+Varma junia posttagmezo alportis trankvilon en kampojn kaj tra malfermitaj fenestroj enflugis iom da ride-
 
 to kaj ripozo en la dormoĉambron de Míla.
 
-Apogita de kusenoj ŝi duonsidis. ŝiaj vakskoloraj bra-
+Apogita de kusenoj ŝi duonsidis. ŝiaj vakskoloraj brakoj estis nur flava ombro de ŝiaj iamaj tiel viglaj, ruĝetaj
 
-koj estis nur flava ombro de ŝiaj iamaj tiel viglaj, ruĝetaj
-
-kaj varmaj brakoj. La ovalo de ŝia vizaĝo estis anstataŭi-
-
-ta de kurbaĵoj de malgrasiĝintaj vangoj. Nur la okuloj
+kaj varmaj brakoj. La ovalo de ŝia vizaĝo estis anstataŭita de kurbaĵoj de malgrasiĝintaj vangoj. Nur la okuloj
 
 estis pli grandaj, sed ili ŝajnis enfalintaj ien malantaŭen.
 
 ŝi aspektis nun pli eta kaj laca.
-
-
-MI EN LI
 
 
 Kovaĝík reveninte trovis ĉe la lito de Míla ŝian edzon.
@@ -7326,9 +5684,7 @@ Ili interparolis. Ia kvieta lumeto brilis en la okuloj de
 
 Míla kaj la interparolo kun la edzo evidente ĝojigis ŝin.
 
-Jam antaŭtagmeze Kovaĝík kaj doktoro Nesveda po-
-
-vis konstati, ke la krizo estis venkita. La febraj statoj ri-
+Jam antaŭtagmeze Kovaĝík kaj doktoro Nesveda povis konstati, ke la krizo estis venkita. La febraj statoj ri-
 
 markeble pliboniĝis, tamen oni konsciis, ke danĝero de
 
@@ -7338,9 +5694,7 @@ ftizon kaj konsilis, ke la geedzoj forvojaĝu kiel eble plej
 
 baldaŭ al iu banloko.
 
-La reveninta trankvilo estis bona signo, ke Míla resa-
-
-niĝos, se estos obeataj ĉiuj konsiloj, per kiuj la du flegan-
+La reveninta trankvilo estis bona signo, ke Míla resaniĝos, se estos obeataj ĉiuj konsiloj, per kiuj la du flegan-
 
 toj bonsence superŝutis ŝin.
 
@@ -7354,9 +5708,7 @@ Scivola rigardo de Kovaĝík renkontis trankvilan kaj
 
 seriozan rigardon de Míla. ŝi diris poste al sia edzo:
 
-”Iru kaj senkulpigu min, ke mi kapablas akcepti ne-
-
-niun, antaŭ ol mi fariĝos iom pli forta kaj, ke li eĉ ne re-
+”Iru kaj senkulpigu min, ke mi kapablas akcepti neniun, antaŭ ol mi fariĝos iom pli forta kaj, ke li eĉ ne re-
 
 konus min.”
 
@@ -7373,9 +5725,6 @@ diri samtempe al vi ambaŭ, al vi kaj al mia edzo, kie iras
 miaj pensoj. Iras, Jarĉjo, ne vagas! Mi opinias, ke baldaŭ
 
 
-MI EN LI
-
-
 venos la momento, kiam mi konfesos miajn pekojn al li,
 
 kaj ke ni povos sincere interparoli, kaŝante nenion unu
@@ -7386,15 +5735,11 @@ kaj multon mi devas pripensi por rememori kelkajn
 
 pasintajn aferojn. Kaj multon mi ne rememoras plu …
 
-Mi meditis pri morto kaj pri vivo sur la tero. Mi espe-
-
-ras, ke ni ankoraŭ interparolos, antaŭ mia forvojaĝo kun
+Mi meditis pri morto kaj pri vivo sur la tero. Mi esperas, ke ni ankoraŭ interparolos, antaŭ mia forvojaĝo kun
 
 la edzo. ĉu vi rimarkis, kiel ni reciproke komprenas nin?
 
-Verdire, ni komencas nur kompreni unu la alian. Li es-
-
-tas bona, li estis ĉiam bona, sed mi ne atentis tion kaj ne
+Verdire, ni komencas nur kompreni unu la alian. Li estas bona, li estis ĉiam bona, sed mi ne atentis tion kaj ne
 
 komprenis lin.
 
@@ -7416,9 +5761,7 @@ ke li estas tre kunkulpa, se ne nur kulpa pri la afero, ĉar
 
 li ne sciis ŝirmi sian edzinon tiom, kiom ŝi bezonis. Cedi
 
-al la kapricoj de la edzino Kovaĝík tute ne opiniis kava-
-
-lireco, sed io tre malĝoja kaj ĝermejo de ĉiuj plantoj de
+al la kapricoj de la edzino Kovaĝík tute ne opiniis kavalireco, sed io tre malĝoja kaj ĝermejo de ĉiuj plantoj de
 
 malvirto.
 
@@ -7427,9 +5770,6 @@ malvirto.
 vi kiel kuracisto, kies metodo sukcesas, kaj poste kiel
 
 amiko, kiu kapablis helpi vin. Mi ne dubas pri grava
-
-
-MI EN LI
 
 
 ŝanĝo, al kiu estis submetita via sento, sed pripensu, ke
@@ -7446,21 +5786,15 @@ maturiĝi.”
 
 La danĝero estis forigita, sed la spirita stato de Míla
 
-vekis novan timon. Venis ĝenerala apatio, seninterese-
-
-co pri ĉio, kio okazis ĉirkaŭe.
+vekis novan timon. Venis ĝenerala apatio, senintereseco pri ĉio, kio okazis ĉirkaŭe.
 
 Kaj tiam venis tago de la ekzameno de Kovaĝík kaj li
 
 devis lasi Mílan negardita.
 
-Kiam li revenis, kontenta pri la rezulto de la ekzame-
+Kiam li revenis, kontenta pri la rezulto de la ekzameno, li trovis ian retenemon ĉe Horálek kaj embarason ĉe
 
-no, li trovis ian retenemon ĉe Horálek kaj embarason ĉe
-
-Míla. Li ekkonis ankaŭ, ke lia ĉeesto, kiu eĉ ne estis ne-
-
-cesa plu, povus esti malagrabla.
+Míla. Li ekkonis ankaŭ, ke lia ĉeesto, kiu eĉ ne estis necesa plu, povus esti malagrabla.
 
 Li ekparolis pri ĉi tiu temo kaj ekkonis, ke oni neniel
 
@@ -7483,12 +5817,7 @@ kiun tia cirkonstanco ne povis ĝeni.
 Konvena ironio estis donaco de Míla, kiu proponis al
 
 
-MI EN LI
-
-
-li kelkajn rozojn el la bukedo devenanta supoze de Man-
-
-delinka.
+li kelkajn rozojn el la bukedo devenanta supoze de Mandelinka.
 
 Li promesis al si, ke havante sufiĉe da libera tempo li
 
@@ -7496,13 +5825,9 @@ observos nun Vaôekon pli bone. Kovaĝík ne plenumis ĉi
 
 tiun promeson, kiun li donis al si, li falis en rondon de
 
-siaj amikoj, kiujn li konsiderinde malzorgis dum la las-
+siaj amikoj, kiujn li konsiderinde malzorgis dum la lasta tempo. is nun li povis preteksti la venontan ekzame-
 
-ta tempo. is nun li povis preteksti la venontan ekzame-
-
-non, sed nun li ne kapablis rezisti, ili venis por kunpre-
-
-ni lin.
+non, sed nun li ne kapablis rezisti, ili venis por kunpreni lin.
 
 Tiel pasis tri tagoj kvazaŭ tri horoj.
 
@@ -7520,9 +5845,7 @@ i estis de Míla, kiu senkulpigis sin, ke la adiaŭo estis
 
 tiom malvarma, motivante tion per la cirkonstanco, ke
 
-ŝi parolperfidis malgravaĵon al la edzo kaj poste konfu-
-
-zita ŝi lasis foriri tiel neatendite sian bonan fleginton.
+ŝi parolperfidis malgravaĵon al la edzo kaj poste konfuzita ŝi lasis foriri tiel neatendite sian bonan fleginton.
 
 ŝi daŭriĝis, ke la edzo scias jam, ke ŝi ne estis en teatro
 
@@ -7530,16 +5853,11 @@ kaj kial ŝi malsaniĝis. ŝi ĉagreniĝas, ke ŝi parolis pri
 
 Vaôek, ĉar nun kaj la edzo kaj Hora, kiu denove trudis
 
-sin al ili, ĝenas ŝin per demandoj. ŝi petis, ke ŝia kara Jar-
-
-ĉjo venu, ĉar ŝi sopiras je li.
+sin al ili, ĝenas ŝin per demandoj. ŝi petis, ke ŝia kara Jarĉjo venu, ĉar ŝi sopiras je li.
 
 ĉi tiu letero estis tiel malagrabla al Kovaĝík, ke li sentis
 
 eĉ abomenon en la buŝo. Li mem ne sciis, kio estas pli
-
-
-MI EN LI
 
 
 antipatia al li, ĉu la cirkonstanco, ke Míla rakontis sian
@@ -7550,13 +5868,9 @@ Li kontentiĝis certiginte sin mem, ke Hora estas por li
 
 taŭga riglilo sur la pordo al la loĝejo de Horálek. Li decidiĝis, ke nun ne estas eble eĉ nur pensi pri vizito,
 
-kvankam la letero malkaŝis la unuan ekkuron de since-
+kvankam la letero malkaŝis la unuan ekkuron de sincereco de Míla, kiu tamen ankoraŭ tre baldaŭ bremsis.
 
-reco de Míla, kiu tamen ankoraŭ tre baldaŭ bremsis.
-
-Li diris al si, ke morgaŭ li rekomencos spioni la mis-
-
-teran Vaôek kaj per tio estis finita por la hodiaŭa tago la
+Li diris al si, ke morgaŭ li rekomencos spioni la misteran Vaôek kaj per tio estis finita por la hodiaŭa tago la
 
 afero de Koôíĝe.
 
@@ -7574,9 +5888,7 @@ sian observadon. Li disportadis siajn pensojn sur la
 
 branĉojn kaj ŝanĝadis ilin al birdoj de ĉiuj koloroj.
 
-ĉirkaŭ tagmezo hunda bojado vekis lin el malprofun-
-
-da dormeto; li konjektis, ke Vaôek portas nutraĵon al la
+ĉirkaŭ tagmezo hunda bojado vekis lin el malprofunda dormeto; li konjektis, ke Vaôek portas nutraĵon al la
 
 hundoj. Sed la bojado ne ĉesis. Kun ĉagrena scivolemo
 
@@ -7584,39 +5896,25 @@ Kovaĝík leviĝis por rigardi, kio okazas.
 
 Li estis efektive surprizita de tio, kion li vidis. En la
 
-budon de Vaôek penegis eniri Hora kaj Horálek, sed sen-
-
-sukcese. Vaôek ne estis hejme, nur la hundoj bonvenigis
+budon de Vaôek penegis eniri Hora kaj Horálek, sed sensukcese. Vaôek ne estis hejme, nur la hundoj bonvenigis
 
 ilin. Poste ili foriris hejmen laŭlonge de la brikfarejo.
 
-ĉi tiu vizito estis novaĵo por Kovaĝík kaj vane li klopo-
-
-
-MI EN LI
-
-
-dis kontentige klarigi ĝin al si. Senpacience li atendis la
+ĉi tiu vizito estis novaĵo por Kovaĝík kaj vane li klopodis kontentige klarigi ĝin al si. Senpacience li atendis la
 
 tutan posttagmezon ĝis la vespero, sed li ekvidis neniun
 
 plu, nek Vaôek-on, nek Horan, nek Horálkon. Vespere
 
-per fajfsignalo li venigis la bubon elirantan el la brikfa-
+per fajfsignalo li venigis la bubon elirantan el la brikfarejo.
 
-rejo.
-
-ĉi tiu rakontis, ke du sinjoroj el la kolonio jam dufo-
-
-je vizitis Vaôek-on, hieraŭ vespere ili estis almenaŭ unu
+ĉi tiu rakontis, ke du sinjoroj el la kolonio jam dufoje vizitis Vaôek-on, hieraŭ vespere ili estis almenaŭ unu
 
 horon ĉe li.
 
 Tio estis surprizo por Kovaĝík kaj li ĉagreniĝis ankaŭ
 
-pro tio, ke Míla prisilentis ĉi tiujn vizitojn. Poste li kon-
-
-kludis, ke laŭŝajne ŝi ne scias pri ili.
+pro tio, ke Míla prisilentis ĉi tiujn vizitojn. Poste li konkludis, ke laŭŝajne ŝi ne scias pri ili.
 
 Plua tago pasis alportante nenion gravan, al Kovaĝík
 
@@ -7631,9 +5929,7 @@ ke li nepre venu je la naŭa matene.
 
 La servistino, kiu vespere alportis la leteron al Kovaĝík
 
-en la loĝejon, atendis jam apud la ĝardenpordeto, cer-
-
-te ŝi rigardserĉis lin jam de malproksime.
+en la loĝejon, atendis jam apud la ĝardenpordeto, certe ŝi rigardserĉis lin jam de malproksime.
 
 En la domo estis la kutima kvieto. Sed la okuloj de
 
@@ -7644,12 +5940,7 @@ Míla rigardis terurigite.
 ”Eksidu ĉi tie, apud mi.”
 
 
-MI EN LI
-
-
-”Vi aspektas bone, ĉio en kutima ordo. ĉu vi malbo-
-
-ne sonĝis?”
+”Vi aspektas bone, ĉio en kutima ordo. ĉu vi malbone sonĝis?”
 
 ”Mi dezirus, ke mi estus nur sonĝinta tion.”
 
@@ -7667,9 +5958,7 @@ edzo, sed li malbone komprenis min. Poste mi diris al li
 
 nenion plu, sed li fariĝis malkonfidema. La servistino
 
-raportis al mi, ke kun Hora ili vizitis tiun Vaôek. Mi pe-
-
-tis la edzon dum la ĉeesto de Hora, ke li ne plu iru tien.
+raportis al mi, ke kun Hora ili vizitis tiun Vaôek. Mi petis la edzon dum la ĉeesto de Hora, ke li ne plu iru tien.
 
 Hora ridis kaj rakontis al mi, ke Vaôek entute ne estas tia
 
@@ -7679,9 +5968,7 @@ elpensaĵo. Oni volis nur trankviligi min, mi scias.”
 
 ”Kial kaj kiel ili sukcesis konatiĝi kun Vaôek?”
 
-”Hora elpensis tion. Iu bubo venis ĉi tien kaj deman-
-
-dis, ĉu nia hundo eble perdis la impostmarkon. Li diris,
+”Hora elpensis tion. Iu bubo venis ĉi tien kaj demandis, ĉu nia hundo eble perdis la impostmarkon. Li diris,
 
 ke li trovis ĝin en la tombejo. Tuj kiam Hora aŭdis tion
 
@@ -7693,14 +5980,9 @@ negocon; mi konas lin ja. Li ekfajfis mallaŭte kaj diris al
 
 la edzo: Jen, ni havas lin! Mi ne komprenis tion, sed mi
 
-supozas, ke ili iris demandi lin, kie li havas nian hun-
-
-don.”
+supozas, ke ili iris demandi lin, kie li havas nian hundon.”
 
 ”Do ne enviu ilin, eble ili volas antaŭi min.”
-
-
-MI EN LI
 
 
 ”Certe ne! Vi volis kapti lin, ili interkonsentis iel kun
@@ -7717,9 +5999,7 @@ laŭleĝe puninda; du prudentaj viroj devas konscii tion.”
 
 ”Ion plian vi ne scias? Kaj kio vin tiel timigis?”
 
-”El iliaj paroloj en la apuda ĉambro mi eksciis, an-
-
-taŭhieraŭ, ke vespere ili intencas iri al Vaôek, ja ke ili eĉ interkonsentis iel kun li pri tio. Hora klopodis persvadi
+”El iliaj paroloj en la apuda ĉambro mi eksciis, antaŭhieraŭ, ke vespere ili intencas iri al Vaôek, ja ke ili eĉ interkonsentis iel kun li pri tio. Hora klopodis persvadi
 
 mian edzon, ke li ne timu kaj senskrupule iru tien. Tio
 
@@ -7741,14 +6021,9 @@ pli malbona.”
 
 ”Tio estas laŭŝajne la ĝusta kialo de lia forgesemo. Mi
 
-atentigis vin, ke vi estu pli singarda. Mi fariĝis ĉi tie ne-
-
-ebla, kial nei tion.”
+atentigis vin, ke vi estu pli singarda. Mi fariĝis ĉi tie neebla, kial nei tion.”
 
 ”ĉu la edzo diris ion al vi?”
-
-
-MI EN LI
 
 
 ”is nun ne, sed mi ne volus provoki lin al tio.”
@@ -7757,9 +6032,7 @@ MI EN LI
 
 akompanis min el la teatro kaj ke ni promenis ankoraŭ
 
-iom, ĉar estis bele. Kaj ke ni venis ĝis la tombejo. La ce-
-
-teron mi rakontis al li tiel, kiel ĝi efektive okazis. Nur
+iom, ĉar estis bele. Kaj ke ni venis ĝis la tombejo. La ceteron mi rakontis al li tiel, kiel ĝi efektive okazis. Nur
 
 Hora incitis lntraŭ vin, ĉar nur li scias, ke mi ne
 
@@ -7767,9 +6040,7 @@ estis en la teatro kaj li scias ankaŭ, kial mi ne estis tie. Li vidas en vi mal
 
 alveno al ni.”
 
-”Poste kompreneble ne necesas pensi pri tiaj sensen-
-
-caĵoj. ĉu estis ĉi tie doktoro Nesveda?”
+”Poste kompreneble ne necesas pensi pri tiaj sensencaĵoj. ĉu estis ĉi tie doktoro Nesveda?”
 
 ”Jes, hieraŭ kaj li diris, ke li estas kontenta, sed ke mi
 
@@ -7800,9 +6071,6 @@ varmaj lumetoj komencis aperi en ili. Surprizis lin ŝia
 pelo pri spegulo.
 
 
-MI EN LI
-
-
 ”ĉu vi scias, ke nur hieraŭ la unuan fojon mi rigardis
 
 en spegulon? Mi timis pri tio, kion mi vidos.”
@@ -7811,9 +6079,7 @@ en spegulon? Mi timis pri tio, kion mi vidos.”
 
 ”Ne plu, la afero ne estas tro malbona. Posttagmeze
 
-estis ĉe mi frizisto; nu kompreneble vi estas jam kuracis-
-
-to, tiaj aferoj ne interesas vin. Aŭ ĉu ĉi tio ne aspektigas
+estis ĉe mi frizisto; nu kompreneble vi estas jam kuracisto, tiaj aferoj ne interesas vin. Aŭ ĉu ĉi tio ne aspektigas
 
 min bela?”
 
@@ -7831,17 +6097,13 @@ cedi sian lokon al frizisto.”
 
 ”ĉu tio estu riproĉo? Tiuokaze vi eraras.”
 
-Li ne respondis kaj ŝi eĉ ne atendis respondon ordi-
-
-gante distaŭzitajn harojn sur la tempio. Li rigardis ŝiajn
+Li ne respondis kaj ŝi eĉ ne atendis respondon ordigante distaŭzitajn harojn sur la tempio. Li rigardis ŝiajn
 
 per puntoj vualitajn ŝultrojn, ankoraŭ iom malgrasajn,
 
 sed jam ruĝetantajn. La lipojn ŝi havis iom koloritajn.
 
-Li reprenis de Míla la speguleton borderitan per latu-
-
-no kaj kun riĉe ĉizita tenilo. Ne estis necese konjekti, kiu
+Li reprenis de Míla la speguleton borderitan per latuno kaj kun riĉe ĉizita tenilo. Ne estis necese konjekti, kiu
 
 donacis ĝin, ĉar tio estis memkomprenebla.
 
@@ -7852,9 +6114,6 @@ Li ekstaris por adiaŭi.
 malfrue posttagmeze, mi estos sola ĉi tie. ĉu vi ne restus
 
 por tagmanĝi kun mi? Ni havas novan kuiristinon, kiu
-
-
-MI EN LI
 
 
 kuiras bonege. Hodiaŭ mi kapablas bone paroli, ĉu vi
@@ -7904,16 +6163,11 @@ pensoj la tempon, ĝis li havos likvidita tion, per kio li
 celis la budon malsupre. Posttagmeze li notis, al kiu li
 
 
-MI EN LI
-
-
 sendu sciigon pri sia doktoriĝo. Kaj jen vesperiĝis jam,
 
 ke Kovaĝík estis eĉ surprizita.
 
-Preterpasis aŭtomobilo de Hora. Nelonge poste Ko-
-
-vaĝík aŭdis dekstraflanke mallaŭtan bojadon de dogoj,
+Preterpasis aŭtomobilo de Hora. Nelonge poste Kovaĝík aŭdis dekstraflanke mallaŭtan bojadon de dogoj,
 
 baldaŭ li rimarkis ankaŭ sinjoron Horálek, kiu kondukis
 
@@ -7921,9 +6175,7 @@ ilin. Míla diris, ke Hora aĉetis ilin, kaj Horálek ludas do
 
 eble nur rolon de sendito. Sed rimarkinde estis, ke kun
 
-Horálek venis ankaŭ Vaôek: la kunveno estis do inter-
-
-konsentita.
+Horálek venis ankaŭ Vaôek: la kunveno estis do interkonsentita.
 
 Kiel estis rimarkeble eĉ de malproksime, Horálek
 
@@ -7933,15 +6185,11 @@ kaj dum la tuta vojo al la budo vigle gestadis per manoj.
 
 Male Vaôek iris apud li sufiĉe flegme.
 
-Apud la barejo Vaôek transprenis la hundojn kaj eni-
-
-ris. En la barejo ekestis nepriskribebla bruego. La hun-
+Apud la barejo Vaôek transprenis la hundojn kaj eniris. En la barejo ekestis nepriskribebla bruego. La hun-
 
 doj en la barejo ekatakis la novalvenintojn kaj Vaôek
 
-devis multe penegi por trankviligi siajn subulojn. La do-
-
-gojn li lasis alĉenigitaj, nur buŝkorbojn li deprenis de ili.
+devis multe penegi por trankviligi siajn subulojn. La dogojn li lasis alĉenigitaj, nur buŝkorbojn li deprenis de ili.
 
 Mirige estis, kiel ankaŭ ĉi tiuj du hundoj, kiujn li havis
 
@@ -7957,21 +6205,13 @@ Malsato devigis Kovaĝíkon forlasi sian observejon
 
 antaŭ la vespera krepusko.
 
-La sekvintan tagon Kovaĝík eksciis el la tagmezaj ĵur-
-
-
-MI EN LI
-
-
-naloj, ke iu Vaôek, pri kiu ĝis nun io pli detala ne estas
+La sekvintan tagon Kovaĝík eksciis el la tagmezaj ĵurnaloj, ke iu Vaôek, pri kiu ĝis nun io pli detala ne estas
 
 konata, sed kiu estis okupita kiel helpanto en la tombejo
 
 de Koôíĝe kaj siatempe estis arestita en rilato al la trovita morta knabino en Koôíĝe, hodiaŭ nokte estis disŝiregita
 
-de hundoj, kiujn li bredis en sia budo proksime al brik-
-
-farejo de Beâka en Koôíĝe.
+de hundoj, kiujn li bredis en sia budo proksime al brikfarejo de Beâka en Koôíĝe.
 
 Posttagmeze la servistino alportis al Kovaĝík leteron
 
@@ -7981,9 +6221,7 @@ kiel li promesis. ŝi skribis:
 
 ”Ni estos solaj, mia edzo forveturas hodiaŭ. Mi estas
 
-pli trankvila; kiel vi certe scias jam, Vaôek estis disŝire-
-
-gita de hundoj.”
+pli trankvila; kiel vi certe scias jam, Vaôek estis disŝiregita de hundoj.”
 
 
 Ne estis gajige por Kovaĝík iri preter la budo de Vaôek.
@@ -8004,17 +6242,10 @@ renkonte al li.
 
 Li kliniĝis por kisi ŝiajn manojn — subite venis tia ideo
 
-al li — sed Míla fortiris la manojn kaj prezentis siajn li-
-
-pojn.
+al li — sed Míla fortiris la manojn kaj prezentis siajn lipojn.
 
 
-MI EN LI
-
-
-”Vi povas! Denove mi estas sola kaj eble eĉ pli ol an-
-
-taŭe.”
+”Vi povas! Denove mi estas sola kaj eble eĉ pli ol antaŭe.”
 
 Li hezitis iom, antaŭ ol li kisis ŝin.
 
@@ -8040,49 +6271,32 @@ loĝis ie en Vinohrady preskaŭ apud la bierfarejo. Li estis
 
 unu el la plej bonaj disĉiploj — se li ne estis la plej bona
 
-— de profesoro N., la fama biologo, kies verkoj pri sol-
-
-vo de problemo de kadukiĝo kaj rejunigo vekis plej
+— de profesoro N., la fama biologo, kies verkoj pri solvo de problemo de kadukiĝo kaj rejunigo vekis plej
 
 grandan atenton de la sciencularo. Kiel mi diru tion al vi,
 
 li estas pli ol nia Steinach. Dum la lasta tempo Vaôek-
 
-Polavskë venis nur malofte al la instituto en la Kaŭlich-
-
-domo sur la Karlo-placo pretekstante preparojn por la
+Polavskë venis nur malofte al la instituto en la Kaŭlichdomo sur la Karlo-placo pretekstante preparojn por la
 
 ekzameno. Efeklive li dungigis sin al tombistaj laboroj
 
-de Koôíĝe. ŝajnas, ke fine la tiel nomata sensacio de Ko-
-
-ôíĝe estos klarigita.”
+de Koôíĝe. ŝajnas, ke fine la tiel nomata sensacio de Koôíĝe estos klarigita.”
 
 
-MI EN LI
-
-
-”ĉu vi supozas, ke Vaôek dungigis sin al tombistaj la-
-
-boroj por povi …; tio estas terura.”
+”ĉu vi supozas, ke Vaôek dungigis sin al tombistaj laboroj por povi …; tio estas terura.”
 
 ”La plej interesa cirkonstanco en la afero estas, ke mi
 
 mem konis lin; ankaŭ ni nomis lin Vaôek. Tial li ŝajnis al
 
-mi tiel konata kaj tial li forturnis la kapon, kiam mi ren-
-
-kontis lin apud la brikfarejo. Pli frue li estis ĉiam glatra-
+mi tiel konata kaj tial li forturnis la kapon, kiam mi renkontis lin apud la brikfarejo. Pli frue li estis ĉiam glatra-
 
 zita, sed nun li portis barbon ĉe la tempioj; tio erarigis
 
-min. Bona bubo li estis kaj gaja, kiam bonhumora, alio-
+min. Bona bubo li estis kaj gaja, kiam bonhumora, aliokaze li estis malafablulo kaj dum tutaj tagoj ja eĉ semaj-
 
-kaze li estis malafablulo kaj dum tutaj tagoj ja eĉ semaj-
-
-noj neniu vidis lin. Kiu scias, kie ĉie li restadis. La poli-
-
-co en Praha ankaŭ ekspiros; la solvo de la problemo falis
+noj neniu vidis lin. Kiu scias, kie ĉie li restadis. La polico en Praha ankaŭ ekspiros; la solvo de la problemo falis
 
 al ĝi ĝuste en la manojn.”
 
@@ -8106,16 +6320,11 @@ komisiono. ĉu vi volas, ke mi ekspedu ilin anstataŭ vi?”
 
 Intertempe eksonis jam sonorilo kaj la servistino iris
 
-malfermi. La halon eniris kvar sinjoroj. Kovaĝík iris ren-
-
-konte al ili.
+malfermi. La halon eniris kvar sinjoroj. Kovaĝík iris renkonte al ili.
 
 ”Ho, tio estas ja doktoro Kovaĝík. ĵus ni sendis ankaŭ
 
 al vi inviteton. Kaj jen, vi estas ĉi tie!”
-
-
-MI EN LI
 
 
 La komisaro, kiu arestis Kovaĝíkon en la tombejo en
@@ -8124,13 +6333,9 @@ Koôíĝe, ne preterlasis skui nun lian manon kiel eble plej
 
 amike.
 
-”Mi supozas, ke vi ne koleras plu pri mi. Vi certe kom-
+”Mi supozas, ke vi ne koleras plu pri mi. Vi certe komprenis tiam, ke mi faris nur mian devon.”
 
-prenis tiam, ke mi faris nur mian devon.”
-
-Kovaĝík havis alian opinion, sed li ne rememoris mul-
-
-te pri pasintaĵoj; kiam novaĵoj okazadis tiom rapide kaj
+Kovaĝík havis alian opinion, sed li ne rememoris multe pri pasintaĵoj; kiam novaĵoj okazadis tiom rapide kaj
 
 kovradis la pasintaĵojn.
 
@@ -8138,9 +6343,7 @@ Kovaĝík konatiĝis kun du el la alvenintoj, la du aliajn
 
 li konis jam. Li eksciis, ke ili ŝatus paroli kun Horálek por ekscii ion pli detalan pri la hundoj, kiuj disŝiregis Polavskën. Ili bedaŭris sincere, ke Horálek forveturis, kaj menciis, ke estos necese, ke li revenu senprokraste. Ili
 
-demandis, ĉu ne estus eble paroli kun la sinjorina moŝ-
-
-to, kiu certe ĉeestas.
+demandis, ĉu ne estus eble paroli kun la sinjorina moŝto, kiu certe ĉeestas.
 
 ĉi tiu entiro de Horálek en la aferon de Vaôek — kion
 
@@ -8152,25 +6355,16 @@ tio ekscitos Mílan.
 
 moŝto ne estas ankoraŭ tiom resaniĝinta, ke oni povus
 
-ĝeni ŝin per ia demandesploro. Certe vi scias pri ŝia gra-
-
-va malsaniĝo post tiu terura nokto. Sed jen najbare loĝas
+ĝeni ŝin per ia demandesploro. Certe vi scias pri ŝia grava malsaniĝo post tiu terura nokto. Sed jen najbare loĝas
 
 bankisto, sinjoro Hora, kiu unuflanke konas la adreson
 
 de sinjoro Horálek, ĉar Horálek forveturis pro negocaj
 
-aferoj ĝuste en interkonsento kun sia kompaniano, ali-
-
-flanke, sed tion mi ne povas konfirmi — mi vendas nur,
+aferoj ĝuste en interkonsento kun sia kompaniano, aliflanke, sed tion mi ne povas konfirmi — mi vendas nur,
 
 
-MI EN LI
-
-
-kiel mi aĉetis — sinroro Hora laŭdire mem aĉetis la kon-
-
-cernajn hundojn, kiuj plirapidigis la solvon de la dramo
+kiel mi aĉetis — sinroro Hora laŭdire mem aĉetis la koncernajn hundojn, kiuj plirapidigis la solvon de la dramo
 
 de Koôíĝe. Se vi demandus afable sinjoron Hora, eble vi
 
@@ -8178,25 +6372,17 @@ ekscius baldaŭ pli multe ol ĉi tie de la sinjorina moŝto.
 
 Cetere mi ne konjektas, ke ŝi scias pri io, ŝia malsano
 
-malebligis ŝin ĝis nun eliri; ĝis hodiaŭ ŝi estis ja deviga-
-
-ta resti en la lito.”
+malebligis ŝin ĝis nun eliri; ĝis hodiaŭ ŝi estis ja devigata resti en la lito.”
 
 Pro ĝojo li frotis siajn manojn, ke li aranĝis la aferon
 
 tiel ruze por Hora.
 
-Ankaŭ Míla estis kontenta pri la rezulto kaj tuj ŝi so-
+Ankaŭ Míla estis kontenta pri la rezulto kaj tuj ŝi sonorigis, ke la servistino portu manĝaĵojn sur la tablon.
 
-norigis, ke la servistino portu manĝaĵojn sur la tablon.
+Tagmanĝi duope estis agrable al ili ambaŭ. Ili interparolis intime kaj gaje. Kovaĝík menciis siajn spertojn aki-
 
-Tagmanĝi duope estis agrable al ili ambaŭ. Ili interpa-
-
-rolis intime kaj gaje. Kovaĝík menciis siajn spertojn aki-
-
-ritajn ĉe la ekzamenoj kaj Míla volonte transiris en ali-
-
-an sferon, kiu malfermiĝis antaŭ ŝi en gajaj kaj seriozaj
+ritajn ĉe la ekzamenoj kaj Míla volonte transiris en alian sferon, kiu malfermiĝis antaŭ ŝi en gajaj kaj seriozaj
 
 situacioj, rezultantaj el la studenta vivo antaŭ kaj dum
 
@@ -8204,27 +6390,18 @@ ekzamenoj.
 
 Kiam la servistino alportis nigran katon, ili demandis
 
-ŝin, ĉu la sinjoroj ankoraŭ estas apude. La servistino je-
-
-sis.
+ŝin, ĉu la sinjoroj ankoraŭ estas apude. La servistino jesis.
 
 ”ĉu do la afero statas malbone por Hora?”
 
 ”Laŭ mia opinio ankoraŭ ne; pli malagrable estus, se
 
-oni tuj kunprenus lin. Ni ne forgesu, ke jam lia dumnok-
-
-ta pafado vekis suspekton. Se li scius, kiu sendis ilin al
+oni tuj kunprenus lin. Ni ne forgesu, ke jam lia dumnokta pafado vekis suspekton. Se li scius, kiu sendis ilin al
 
 li.”
 
 
-MI EN LI
-
-
-”Vere bone, ke mia edzo forveturis, ankaŭ lin ili de-
-
-mandesplorus.”
+”Vere bone, ke mia edzo forveturis, ankaŭ lin ili demandesplorus.”
 
 ”ĉu li revenos baldau?”
 
@@ -8232,19 +6409,13 @@ mandesplorus.”
 
 ne komprenas tion bone. Pri ĉio li interkonsiliĝis nur
 
-kun Hora, kiu ĉiam ĉeestis, ja eĉ dum elekto de vojaĝ-
+kun Hora, kiu ĉiam ĉeestis, ja eĉ dum elekto de vojaĝnecesaĵoj li konsilis al li. ĉu vi povas imagi, ke Hora ĉees-
 
-necesaĵoj li konsilis al li. ĉu vi povas imagi, ke Hora ĉees-
-
-tis eĉ dum nia adiaŭo? Nur kiam mia edzo jam forvetu-
-
-ris, mi rememoris, ke li eĉ ne kisis min por adiaŭi. Mia
+tis eĉ dum nia adiaŭo? Nur kiam mia edzo jam forveturis, mi rememoris, ke li eĉ ne kisis min por adiaŭi. Mia
 
 dio, kiel forgesema mi estas, la ĉefaĵon mi ne diris al vi.
 
-La edzo rekte rekomendis min al ŝirmo de Hora. Li di-
-
-ris, ke mi ankoraŭ ne estas sana kaj nek doktoro Nesve-
+La edzo rekte rekomendis min al ŝirmo de Hora. Li diris, ke mi ankoraŭ ne estas sana kaj nek doktoro Nesve-
 
 da nek vi havas tiom da tempo por povi pli ofte viziti
 
@@ -8252,9 +6423,7 @@ min. Pro lia rapidemo mi eĉ ne respondis tion. Mi ne
 
 rigardas tragike ĉi tiun rekomendon kaj nia domo estas
 
-ĉiam ŝlosita, se ni estas hejme solaj. Cetere nia kuiristi-
-
-no estas forta kvazaŭ dragono. ĉu vi volas vidi ŝin? ŝi
+ĉiam ŝlosita, se ni estas hejme solaj. Cetere nia kuiristino estas forta kvazaŭ dragono. ĉu vi volas vidi ŝin? ŝi
 
 kapablus anstataŭi du policanojn.”
 
@@ -8275,16 +6444,11 @@ da radio?”
 Antaŭ ol ŝi finparolis, li alveturigis jam la konatan
 
 
-MI EN LI
-
-
 veturileton. Ili malfermis la pordeton kaj agordigis la
 
 aparaton. ŝi serĉis en la programo.
 
-”Kioma hora estas? La dua. ĉu vi denove dezirus Pa-
-
-rizon? Koncerton de Locatelli-orkestro?”
+”Kioma hora estas? La dua. ĉu vi denove dezirus Parizon? Koncerton de Locatelli-orkestro?”
 
 La superheterodino ekkantis same, kiel okaze de la
 
@@ -8294,15 +6458,11 @@ Míla komence mokis pri la kontrasto inter ŝia tiama
 
 kaj nuna statoj. Post nelonge ŝi ne kapablis rezisti kaj
 
-demandis Kovaĝíkon, ĉu li volus konduki ŝin dum dan-
-
-co.
+demandis Kovaĝíkon, ĉu li volus konduki ŝin dum danco.
 
 ”ĉu porti kvazaŭ neĝflokon?”
 
-”Vi eraras, Jarĉjo, nun mi ja ne fartas efektive malbo-
-
-ne.”
+”Vi eraras, Jarĉjo, nun mi ja ne fartas efektive malbone.”
 
 ŝi leviĝis de la apogseĝo kaj per kelke da dancpaŝoj ŝi
 
@@ -8327,9 +6487,6 @@ Tamen ili dancis. Ritmo sonis en iliaj vejnoj kaj nervoj,
 dancis al si kaj por si.
 
 
-MI EN LI
-
-
 Kiam ili ripozis, ŝi apogis sian kapon sur lia ŝultro. Kiel
 
 unua ŝi denove stariĝis por danci.
@@ -8342,9 +6499,7 @@ estas dancinta!”
 
 Ili ekaŭdis aplaŭdon. La servistino, kiu venis por
 
-anonci Horan, staris senkonsile apud la pordo. Hora ri-
-
-gardis trans ŝian ŝultron en la ĉambron.
+anonci Horan, staris senkonsile apud la pordo. Hora rigardis trans ŝian ŝultron en la ĉambron.
 
 ”Malagrabla afero, la duan fojon vi estas ĝenataj; ne
 
@@ -8383,14 +6538,9 @@ Li parolis sufiĉe reteneme, kiel nur tre malofte.
 ”Sinjoro Kovaĝík estas mia gasto kaj mi ne volas esti
 
 
-MI EN LI
-
-
 senigata de lia ĉeesto, mi estas ja responda pri tio, ke al
 
-li plaĉu ĉe mi. Se vi havas ion gravan, bonvolu prokras-
-
-ti tion; se ankaŭ mi povas ekscii la aferon, diru ĝin tuj,
+li plaĉu ĉe mi. Se vi havas ion gravan, bonvolu prokrasti tion; se ankaŭ mi povas ekscii la aferon, diru ĝin tuj,
 
 sed mallonge, mi petas.”
 
@@ -8400,13 +6550,9 @@ Hora.
 
 ”Mi ne opinias, ke ankaŭ vi ne povus aŭdi, pri kio ni
 
-parolos, sed mi ne volis, ke vi nervoziĝu eble pro reme-
+parolos, sed mi ne volis, ke vi nervoziĝu eble pro rememoro pri okazaĵoj pasintaj antaŭ nelonge.”
 
-moro pri okazaĵoj pasintaj antaŭ nelonge.”
-
-La embaraso de Hora estis anstataŭita de lia rimarke-
-
-bla emocio.
+La embaraso de Hora estis anstataŭita de lia rimarkebla emocio.
 
 ”Sinjorina moŝto, nevolonte mi ĝenas vin, tamen la
 
@@ -8422,39 +6568,26 @@ Verdire mi estas kulpa pri mia miriga forgesemo. Kaj
 
 nun mi ne scias, kion mi diru ĉe la polico. Mallonge: Mi
 
-ne kapablas rememori, kie mi aĉetis la dogojn, kiuj fru-
-
-tempe helpis al Vaôek en la alian mondon. Nun la esti-
+ne kapablas rememori, kie mi aĉetis la dogojn, kiuj frutempe helpis al Vaôek en la alian mondon. Nun la esti-
 
 mata komisiono intencas dedukti iajn konkludojn el la
 
-afero. ĉu eble vi rememoras afable la nomon de la ho-
-
-mo, kiu kondukis la hundojn ĉi tien?”
+afero. ĉu eble vi rememoras afable la nomon de la homo, kiu kondukis la hundojn ĉi tien?”
 
 Míla kaj Kovaĝík rigardis nekompreneme unu la alian.
 
 Kompreneble ili ne sciis.
 
 
-MI EN LI
-
-
 ”Do bonvolu senkulpigi min. Krome io premas mian
 
-koron. Sinjoro edzo petis min, ke mi atentigu vin insis-
-
-te pri la neceso, veturi al iu banloko. Mi estos verŝajne
+koron. Sinjoro edzo petis min, ke mi atentigu vin insiste pri la neceso, veturi al iu banloko. Mi estos verŝajne
 
 devigata denove iom interrilati kun publikaj oficoj. ĉu vi
 
-ne volus, sinjorina moŝto, agi laŭ mia konsilo kaj forve-
+ne volus, sinjorina moŝto, agi laŭ mia konsilo kaj forveturi jam nun?”
 
-turi jam nun?”
-
-Tio estis klare dirita, sed Míla ankaŭ nun ne kompre-
-
-nis. Kial tia urĝo?
+Tio estis klare dirita, sed Míla ankaŭ nun ne komprenis. Kial tia urĝo?
 
 ”Eble la afero ne urĝas tiom kaj mi prefere atendos la
 
@@ -8462,17 +6595,13 @@ revenon de mia edzo, li promesis reveni, kiel eble plej
 
 baldaŭ.”
 
-”Tio estas vero, tiel estis destinite, sed hodiaŭ posttag-
-
-meze mi ricevis telegramon, ke lia reveturo el Vieno ver-
+”Tio estas vero, tiel estis destinite, sed hodiaŭ posttagmeze mi ricevis telegramon, ke lia reveturo el Vieno ver-
 
 ŝajne prokrastiĝos je kelke da tagoj.”
 
 ”Malgraŭ tio mi atendos lin.”
 
-Hora senpacience tretis de unu piedo sur la alian, kva-
-
-zaŭ la tero brulus sub liaj piedoj. La duan fojon Míla
+Hora senpacience tretis de unu piedo sur la alian, kvazaŭ la tero brulus sub liaj piedoj. La duan fojon Míla
 
 invitis lin sidiĝi, sed li ŝajnigis ne aŭdi.
 
@@ -8484,16 +6613,9 @@ Li adiaŭis kaj Kovaĝík scivola akompanis lin al la halo.
 
 da banknotoj.
 
-”Mi volas de vi nenion, kio povus malutili vin. Mi pro-
+”Mi volas de vi nenion, kio povus malutili vin. Mi proponas al vi dudek mil, se tuj post la doktoriĝo vi entre-
 
-ponas al vi dudek mil, se tuj post la doktoriĝo vi entre-
-
-prenos vojaĝon eksterlanden. Ne demandu min, mi pe-
-
-tas, pri la motivoj de mia propono.”
-
-
-MI EN LI
+prenos vojaĝon eksterlanden. Ne demandu min, mi petas, pri la motivoj de mia propono.”
 
 
 La surprizo, kiu aperis sur la vizaĝo de Kovaĝík, ne
@@ -8512,9 +6634,7 @@ de tiel granda donaco.”
 
 Li enpoŝigis la monon kaj foriris.
 
-En la manĝoĉambro atendis la emociita Míla kun de-
-
-mando en la okuloj. Li diris al ŝi pri la proponita dona-
+En la manĝoĉambro atendis la emociita Míla kun demando en la okuloj. Li diris al ŝi pri la proponita dona-
 
 co de Hora; ankaŭ ŝi ne komprenis tion.
 
@@ -8522,13 +6642,9 @@ co de Hora; ankaŭ ŝi ne komprenis tion.
 
 ŝi hezitis respondi. Kovaĝík komprenis ŝin.
 
-”Tiuokaze li trafis la malĝustan. Mi opiniis lin pli klar-
+”Tiuokaze li trafis la malĝustan. Mi opiniis lin pli klarvida.”
 
-vida.”
-
-”Mi havis la impreson, ke li estas komplete konfuzi-
-
-ta.”
+”Mi havis la impreson, ke li estas komplete konfuzita.”
 
 ”Ni atendu! Kiu scias, kiel evoluos la afero kaj kion li
 
@@ -8547,20 +6663,13 @@ Je ĝojiga surprizo de Míla alvenis matene Horálek el
 Vieno. Sed li kondutis tiel malvarme, ke tio ekscitegis
 
 
-MI EN LI
-
-
 ŝin. Li senkulpigis sin, ke li estas tre maltrankviligita de
 
 kelkaj negocaj aferoj en Vieno. Tuj li foriris al Hora.
 
-Scivola Míla alpaŝis la muron kaj faris ion, kio ne es-
+Scivola Míla alpaŝis la muron kaj faris ion, kio ne estas plaĉa, pri kio tamen ŝi sciis, ke ĝi povus esti laŭcela.
 
-tas plaĉa, pri kio tamen ŝi sciis, ke ĝi povus esti laŭcela.
-
-ŝi aŭskultis premante la orelon al la muro. ŝi ne kom-
-
-prenis la vortojn, sed ŝi aŭdis kiel akre Hora ekdisputis
+ŝi aŭskultis premante la orelon al la muro. ŝi ne komprenis la vortojn, sed ŝi aŭdis kiel akre Hora ekdisputis
 
 kun ŝia edzo. Ankaŭ sian nomon ŝi aŭdis prononci, ja eĉ
 
@@ -8603,9 +6712,6 @@ malfacile liberiĝos.”
 ”Kiel? Dum tri tagoj mi forveturu?”
 
 
-MI EN LI
-
-
 ”Estos plej bone tiel. Por ke mi ne forgesu: Hodiaŭ mi
 
 ne tagmanĝos hejme kaj, ĉar mi havos ankaŭ vespere
@@ -8624,9 +6730,7 @@ reveno de Horálek. Li mem estis jam demandesplorita
 
 kaj menciis, ke ĉi tiun fojon la esploroj baziĝas sur firma
 
-grundo; laŭ indikoj kaj laŭ direkto de la esploroj la po-
-
-lico havas la aferon firme en la manoj.
+grundo; laŭ indikoj kaj laŭ direkto de la esploroj la polico havas la aferon firme en la manoj.
 
 ”ĉu venis invito por via edzo?”
 
@@ -8634,9 +6738,7 @@ lico havas la aferon firme en la manoj.
 
 el Vieno.”
 
-”Mi renkontis lin en la polica direkcio, kiam mia de-
-
-mandesploro estis finita. Li ŝajnigis ne vidi min. Kaj
+”Mi renkontis lin en la polica direkcio, kiam mia demandesploro estis finita. Li ŝajnigis ne vidi min. Kaj
 
 Hora?”
 
@@ -8644,20 +6746,13 @@ Hora?”
 
 la muro; ekzistas ia miskompreno inter ili.”
 
-ŝi rakontis al li la disputon de ambaŭ viroj, kiel ŝi aŭs-
-
-kultis ĝin.
+ŝi rakontis al li la disputon de ambaŭ viroj, kiel ŝi aŭskultis ĝin.
 
 ”ĉu vi opinias, ke la kaŭzo estas mono?”
 
 ”Tio ŝajnas esti certa, sed kial Hora entiris min en la
 
-aferon? Mi neniam partoprenis iliajn negocajn intertrak-
-
-tojn, efektive mi scias pri nenio. Mi rakontis al vi, kiel
-
-
-MI EN LI
+aferon? Mi neniam partoprenis iliajn negocajn intertraktojn, efektive mi scias pri nenio. Mi rakontis al vi, kiel
 
 
 longe mi supozis, ke ni estas riĉaj, kaj eĉ pli poste mi
@@ -8668,21 +6763,15 @@ daŭrigis, kvazaŭ tio estus vera.”
 
 demandoj, kiujn oni faris al mi, la polico supozas, ke
 
-Hora ludis gravan rolon en la tuta afero de Vaôek-Polav-
+Hora ludis gravan rolon en la tuta afero de Vaôek-Polavskë. Vi scias, ke mi ne ŝatas lin, tamen mi klopodis pli-
 
-skë. Vi scias, ke mi ne ŝatas lin, tamen mi klopodis pli-
-
-faciligi lian pozicion. Ne pro li mem, sed por ebligi sin-
-
-defendon al via edzo.”
+faciligi lian pozicion. Ne pro li mem, sed por ebligi sindefendon al via edzo.”
 
 ”Do mia edzo ankaŭ!”
 
 Tro malfrue Kovaĝík bedaŭris, ke li parolperfidis sin.
 
-”Dirinte ’demandesploro’ mi uzis malĝustan espri-
-
-mon. Vi ne dubas, ke la polico vidas kulpulon en ĉiu es-
+”Dirinte ’demandesploro’ mi uzis malĝustan esprimon. Vi ne dubas, ke la polico vidas kulpulon en ĉiu es-
 
 plorata homo.”
 
@@ -8704,16 +6793,11 @@ min.”
 
 ”Ho, Míla, vi arestigus nin ĉiujn. Mi interkonsentis pri
 
-kunveno je la dua horo kun docento ŝafaĝík en la biolo-
-
-gia instituto sur la Karlo-placo.
+kunveno je la dua horo kun docento ŝafaĝík en la biologia instituto sur la Karlo-placo.
 
 ”ĉu en la instituto, kiun frekventis Vaôek?”
 
 ”Tute ĝuste; mi supozis, ke mi havas sufiĉajn sciojn en
-
-
-MI EN LI
 
 
 certaj aferoj, sed multon mi devos lerni ankoraŭ. Mi eĉ
@@ -8728,29 +6812,21 @@ devas esti ĉiam oportuna. Tamen en kiaj cirkonstancoj
 
 oni laboras ĉe ni!
 
-Oni opinias esti veninta en domon de la dekdua jar-
-
-cento. Tagmeze en la koridoroj ŝajnas esti nokto. Sen
+Oni opinias esti veninta en domon de la dekdua jarcento. Tagmeze en la koridoroj ŝajnas esti nokto. Sen
 
 lumo oni timu serĉi laborejon. Verdire oni eĉ ne trovus
 
 ĝin. Kaj tio eĉ en la tria etaĝo.”
 
-ĉi tie en ĉambretoj de nesuferebla atmosfero elŝpru-
-
-cas pensoj kaj evoluas laboro, kiu iam ekmovos eble la
+ĉi tie en ĉambretoj de nesuferebla atmosfero elŝprucas pensoj kaj evoluas laboro, kiu iam ekmovos eble la
 
 vivon de milionoj.
 
 Pro malgrandaj ejoj estas necese ripeti prelegojn,
 
-kiujn frekventas proksimume sescent aŭskultantoj. Es-
+kiujn frekventas proksimume sescent aŭskultantoj. Estas efektive miregige, en kiaj kondiĉoj oni devas science
 
-tas efektive miregige, en kiaj kondiĉoj oni devas science
-
-labori ĉe ni. Mi ripetas, ke temas pri laboroj de tutmon-
-
-da signifo. Sed niaj scienculoj estis ĉiam modestaj, zor-
+labori ĉe ni. Mi ripetas, ke temas pri laboroj de tutmonda signifo. Sed niaj scienculoj estis ĉiam modestaj, zor-
 
 gante pli multe pri sia scienco, ol pri reklamo. Sed bona
 
@@ -8766,13 +6842,7 @@ vi dirus, ke mi estas prava.”
 
 ”Kaj kion vi faras tie?”
 
-”Al vi mi povas konfesi tion. Post la doktoriĝo mi ek-
-
-
-MI EN LI
-
-
-laboros kun plej granda fervoro pri problemoj, pri kiuj
+”Al vi mi povas konfesi tion. Post la doktoriĝo mi eklaboros kun plej granda fervoro pri problemoj, pri kiuj
 
 okupas sin profesoro N. kaj kiujn klopodis solvi laŭ sia
 
@@ -8780,52 +6850,35 @@ metodo la genia Vaôek. Jes, Polavskë estis geniulo. Ni ne
 
 atentas tion, kion la polico diros pri li.”
 
-”Do tio estis efektive eksperimentoj, kion faris Va-
-
-ôek?”
+”Do tio estis efektive eksperimentoj, kion faris Vaôek?”
 
 ”Nepre! Docento ŝafaĝík laboris kun li tiom, kiom da
 
-siaj esploroj konfidis Polavskë al li. Sed la eksperimen-
-
-tojn en Koôíĝe li entreprenis je propra risko, ĉar ili supe-
+siaj esploroj konfidis Polavskë al li. Sed la eksperimentojn en Koôíĝe li entreprenis je propra risko, ĉar ili supe-
 
 ris la tiel nomatajn leĝajn limojn. Ôafaĝík rakontis al mi
 
-multon interesan pri Polavskë, pro kies malfeliĉa mor-
+multon interesan pri Polavskë, pro kies malfeliĉa morto suferis la scienco nekompenseblan perdon eble por
 
-to suferis la scienco nekompenseblan perdon eble por
-
-multaj jaroj. Verdire estas problemo, ĉu unu genieco po-
-
-vas esti anstataŭigata per alia.”
+multaj jaroj. Verdire estas problemo, ĉu unu genieco povas esti anstataŭigata per alia.”
 
 ”Sed, se hundoj ne estus disŝiregintaj Vaôekon, oni
 
-estus malliberigintaj lin en plej proksima tempo je kel-
-
-ke da jaroj.”
+estus malliberigintaj lin en plej proksima tempo je kelke da jaroj.”
 
 ”Ankaŭ eble, pri tio ni eĉ ne pensis. Tio ne okazos plu.
 
 La scienca laboro de Vaôek iris riskan vojon, sur kiu ne
 
-sekvos lin baldaŭ iu alia. Domaĝe, ke el liaj eksperimen-
-
-toj postrestis tiel malmulte.”
+sekvos lin baldaŭ iu alia. Domaĝe, ke el liaj eksperimentoj postrestis tiel malmulte.”
 
 ”Do tamen oni trovis ion en la budo.”
 
-”Eĉ plej malgrandan aferon oni ne trovis, ĉiuj liaj en-
-
-treprenoj okazis sub signo de genieco; li pensis pri ĉio,
+”Eĉ plej malgrandan aferon oni ne trovis, ĉiuj liaj entreprenoj okazis sub signo de genieco; li pensis pri ĉio,
 
 li antaŭvidis ĉion.”
 
 ”Krom rabieco de du bestoj.”
-
-
-MI EN LI
 
 
 ”Mi ne opinias same, ĉar unu el ili havas postsignojn,
@@ -8838,25 +6891,15 @@ Ni posedas la kadavron de tiu hundo, al vi mi povas diri
 
 tion. Docento ŝafaĝík donis akre efikan venenon al ĝi,
 
-kiu postlasas neniujn karakterizajn signojn kaj nur mor-
+kiu postlasas neniujn karakterizajn signojn kaj nur mortigas. Al neniu venis la ideo, sekci la hundon, kaj oni or-
 
-tigas. Al neniu venis la ideo, sekci la hundon, kaj oni or-
+donis nur ĝian forigon. ĉi tiu por ni tre grava dokumento kostis nin nur dudek kronojn, por ke la senfeligisto
 
-donis nur ĝian forigon. ĉi tiu por ni tre grava dokumen-
+liveru la kadavron al ni. Mi konjektas, ke ni faris ion punindan, sed ni ne havas tiurilatajn spertojn.
 
-to kostis nin nur dudek kronojn, por ke la senfeligisto
+Jam supraĵa trarigardo de hundo farita de ŝafaĝík malkaŝis, ke Polavskë efektivigis la eksperimenton je si
 
-liveru la kadavron al ni. Mi konjektas, ke ni faris ion pu-
-
-nindan, sed ni ne havas tiurilatajn spertojn.
-
-Jam supraĵa trarigardo de hundo farita de ŝafaĝík mal-
-
-kaŝis, ke Polavskë efektivigis la eksperimenton je si
-
-mem, afero, kiu meritas plej grandan respekton kaj es-
-
-timon.
+mem, afero, kiu meritas plej grandan respekton kaj estimon.
 
 La eksperimento estis riska kaj ne sukcesis tiom, ke
 
@@ -8864,41 +6907,26 @@ Vaôek ne perdu la regon super la rabia besto, kiu krome
 
 estis vundita. Sed la mortvundita Vaôek havis ankoraŭ
 
-tiom da forto por forigi ĉiujn postsignojn de sia ekspe-
+tiom da forto por forigi ĉiujn postsignojn de sia eksperimento. Nur poste verŝajne ekatakegis lin ambaŭ hun-
 
-rimento. Nur poste verŝajne ekatakegis lin ambaŭ hun-
-
-doj, kiam li estis malfortigita pro sangoperdo kaj ne ka-
-
-pablis plu defendi sin. Nur la kadavro de unu hundo
+doj, kiam li estis malfortigita pro sangoperdo kaj ne kapablis plu defendi sin. Nur la kadavro de unu hundo
 
 estas en niaj manoj. Vaôek estis tute disŝiregita, tiel ke
 
-dum la sekcado oni trovis nenion. Tamen docento ŝa-
-
-faĝík havas kelkajn supozojn, ĉar estis permesite al li
+dum la sekcado oni trovis nenion. Tamen docento ŝafaĝík havas kelkajn supozojn, ĉar estis permesite al li
 
 partopreni la sekcadon.
 
 
-MI EN LI
+Hodiaŭ posttagmeze ni daŭrigos la esplorojn. Ni posedas treege valoran gvidilon: kelkajn notojn fluge skri-
 
-
-Hodiaŭ posttagmeze ni daŭrigos la esplorojn. Ni po-
-
-sedas treege valoran gvidilon: kelkajn notojn fluge skri-
-
-bitajn de Vaôek sur kovrilo de ia publikaĵo dum ia eks-
-
-perimento ĉe docento ŝafaĝík. Vaôek forgesis forigi ilin:
+bitajn de Vaôek sur kovrilo de ia publikaĵo dum ia eksperimento ĉe docento ŝafaĝík. Vaôek forgesis forigi ilin:
 
 por ni ili povas esti gvidlumo.”
 
 ”Mi ne komprenas sufiĉe bone. Kion do celis Vaôek?”
 
-”Pramalnovan klopodon de la tuta homaro: malprok-
-
-simigi morton. Li iris sian vojon, sed apogante sin je re-
+”Pramalnovan klopodon de la tuta homaro: malproksimigi morton. Li iris sian vojon, sed apogante sin je re-
 
 zultoj de sciencaj esploroj kaj studoj de personoj, kiujn
 
@@ -8930,39 +6958,26 @@ serĉis en la menciitaj eksperimentoj de Steinach, estas
 
 tute forigita de rezultoj de pliaj esploroj.
 
-Vi ne atentis eble gazetan sciigon, ke profesoro Wil-
-
-helm en Santiago en ĉilio pruvis, ke per plijuniga ope-
+Vi ne atentis eble gazetan sciigon, ke profesoro Wilhelm en Santiago en ĉilio pruvis, ke per plijuniga ope-
 
 racio plimultiĝis la ruĝaj sangoglobetoj t. n. eritrociloj.
 
 
-MI EN LI
-
-
 Samtempe estis ege plibonigita la stato de nervĉeloj. El
 
-tio li deduktas gravan signifon por la kuracado de ˛lo-
-
-retikaj statoj kaj de gravaj anemioj.
+tio li deduktas gravan signifon por la kuracado de ˛loretikaj statoj kaj de gravaj anemioj.
 
 Mi opinias, ke Polavskë, apogante sin je esploroj de
 
-profesoro N., kreis sian propran teorion, kiun li klopo-
-
-dis pruvi.”
+profesoro N., kreis sian propran teorion, kiun li klopodis pruvi.”
 
 ”Kion inventis profesoro N.?”
 
-”Esence proksimume jenon: La korpa substanco pli-
-
-densiĝas dum daŭro de la vivo. ĉi tiu plidensiĝo estas la
+”Esence proksimume jenon: La korpa substanco plidensiĝas dum daŭro de la vivo. ĉi tiu plidensiĝo estas la
 
 kialo de ĉiuj aperaĵoj de kadukiĝo.
 
-Jen vi vidas la fundamenton por plijunigaj eksperi-
-
-mentoj.
+Jen vi vidas la fundamenton por plijunigaj eksperimentoj.
 
 Ankaŭ ĉe ni oni laboras pri tiaj eksperimentoj, mi
 
@@ -8972,9 +6987,7 @@ vi la aferon tiel, kiel mi aŭdis ĝin.
 
 Profesoro N. deklaras, ke en viva korpo trapasas serio
 
-de okazaĵoj je simila bazo, kian havas la okazaĵo de ka-
-
-dukiĝo, pri kiu profesoro N. asertas, kiel mi diris jam, ke
+de okazaĵoj je simila bazo, kian havas la okazaĵo de kadukiĝo, pri kiu profesoro N. asertas, kiel mi diris jam, ke
 
 ĝi estas efektivigata per plidensiĝo de la viva substanco.
 
@@ -8982,33 +6995,19 @@ La menciitaj plidensiĝoj ne estas daŭraj kaj sekvas ilin
 
 denove maldensiĝoj de la viva materio.
 
-En diversaj korpopartoj maljuniĝas, tio estas pliden-
+En diversaj korpopartoj maljuniĝas, tio estas plidensiĝas, diversaj substancoj por maldensiĝi denove en aliaj
 
-siĝas, diversaj substancoj por maldensiĝi denove en aliaj
+partoj. Sed ĉi tiun maldensiĝon sekvas pli granda densiĝo.
 
-partoj. Sed ĉi tiun maldensiĝon sekvas pli granda den-
-
-siĝo.
-
-Ne estis senbazaj la avertoj, ke la plijunigaj eksperi-
-
-
-MI EN LI
-
-
-mentoj de Steinach kaj Voronov rezultigos rapidan ka-
+Ne estis senbazaj la avertoj, ke la plijunigaj eksperimentoj de Steinach kaj Voronov rezultigos rapidan ka-
 
 dukiĝon.
 
 Laŭ profesoro N. estas nun tasko de la scienco pruvi,
 
-ĉu oni kapablas eviti ĉi tiun rezulton, nome la postsek-
+ĉu oni kapablas eviti ĉi tiun rezulton, nome la postsekvantan pli rapidan kadukiĝon.
 
-vantan pli rapidan kadukiĝon.
-
-Mortaj, neorganismaj substancoj celas — laŭ la ĝisnu-
-
-naj opinioj — absolutan kvieton, pri la vivaj substancoj
+Mortaj, neorganismaj substancoj celas — laŭ la ĝisnunaj opinioj — absolutan kvieton, pri la vivaj substancoj
 
 oni havas ĝis nun alian opinion, respektante la teorion
 
@@ -9020,15 +7019,11 @@ do asimiladon kaj la densiĝo en certa grado rezultigas
 
 morton.
 
-Tio signifus: La vivaj substancoj portas en si la ten-
-
-dencon je absoluta kvieto.
+Tio signifus: La vivaj substancoj portas en si la tendencon je absoluta kvieto.
 
 Pri ĉi tiu limo inter la vivo kaj morto laboris Polavskë.
 
-Ôafaĝík apogante sin nun je la rezultoj de la agado de Po-
-
-lavskë en Koôíĝe ne hezitas deklari, ke Vaôek treege an-
+Ôafaĝík apogante sin nun je la rezultoj de la agado de Polavskë en Koôíĝe ne hezitas deklari, ke Vaôek treege an-
 
 taŭis nin; li atingis tion, kion eble ni ne atingos eĉ post
 
@@ -9046,13 +7041,7 @@ tagmanĝos kun mi. Rigardu la horloĝon, vi havas sufiĉe
 
 da tempo, vi diris, ĝis la dua.”
 
-Ili tagmanĝis amike babilante kaj, kiam Kovaĝík adi-
-
-
-MI EN LI
-
-
-aŭis, ŝi petis lin manglatigante la refaldaĵojn de lia surtu-
+Ili tagmanĝis amike babilante kaj, kiam Kovaĝík adiaŭis, ŝi petis lin manglatigante la refaldaĵojn de lia surtu-
 
 to:
 
@@ -9060,9 +7049,7 @@ to:
 
 timas ion. Se vi povus resti ĉe mi. Mi ne timus.”
 
-”Tio estas ankoraŭ emocio pro la pasintaĵoj. Vi as-
-
-pektas bone, la timo malaperos same, kiel ĝi venis. Nun
+”Tio estas ankoraŭ emocio pro la pasintaĵoj. Vi aspektas bone, la timo malaperos same, kiel ĝi venis. Nun
 
 pardonu min afable por du tagoj.
 
@@ -9093,19 +7080,12 @@ en koverto:
 
 venis hejmen ebria, la unuan fojon dum mia edzeco.
 
-Post via doktorigo dediĉu iom da tempo al mi, mi aten-
-
-dos ĉe la telefonĉelo apud la ’Stavovské’ (Nobela) teat-
+Post via doktorigo dediĉu iom da tempo al mi, mi atendos ĉe la telefonĉelo apud la ’Stavovské’ (Nobela) teat-
 
 ro.”
 
 
-MI EN LI
-
-
-Sed antaŭ la doktorigo li vane ĉirkaŭrigardis, ĉu li po-
-
-vos bonvenigi Mílan; eble ŝi malfruis.
+Sed antaŭ la doktorigo li vane ĉirkaŭrigardis, ĉu li povos bonvenigi Mílan; eble ŝi malfruis.
 
 Sed eĉ malfrue ŝi ne venis, ankaŭ ĉe la teatro ŝi ne
 
@@ -9140,40 +7120,27 @@ konciza frazo:
 *konsciiĝinte plu. *
 
 
-MI EN LI
-
-
 La asiza ĉambrego estis plenplena ĝis la lasta loko kaj
 
-la aero estis plena de atendo. La frukto de la sensa-
-
-cio estis matura kaj hodiaŭ ĝi estis rikoltota en nomo de
+la aero estis plena de atendo. La frukto de la sensacio estis matura kaj hodiaŭ ĝi estis rikoltota en nomo de
 
 la leĝo. La somertaga varmego eltiradis el la premegita
 
 homamaso parfumojn kaj odorojn de ĉiuj nuancoj kaj
 
-prezoj, odorojn de legomvendistinoj same kiel parfu-
+prezoj, odorojn de legomvendistinoj same kiel parfumojn Coty, Houbigant ktp.; estis virinoj kaj denove pre-
 
-mojn Coty, Houbigant ktp.; estis virinoj kaj denove pre-
-
-cipe virinoj, kiuj antaŭ duonhoro batserĉis kaj premoku-
-
-pis la lokojn.
+cipe virinoj, kiuj antaŭ duonhoro batserĉis kaj premokupis la lokojn.
 
 La ĵurnalista benko estis plene okupita kaj ĉirkaŭ ĝi
 
 estis plenege de homoj.
 
-La prezidanta ĉefkonsilisto Skëpala tuj en unuaj se-
-
-kundoj pritaksis la aŭskultantaron kaj, ne havante eĉ
+La prezidanta ĉefkonsilisto Skëpala tuj en unuaj sekundoj pritaksis la aŭskultantaron kaj, ne havante eĉ
 
 iom da volo, ludi ĉi tie teatron por dubindaj inklinoj, aŭ
 
-por ŝiregadi nervojn, li ekprenis per firma mano la gvi-
-
-don de la traktado kaj ne perdis eĉ sekundon.
+por ŝiregadi nervojn, li ekprenis per firma mano la gvidon de la traktado kaj ne perdis eĉ sekundon.
 
 Kiam estis alkondukita la akuzito Hora, la emocio, per
 
@@ -9186,36 +7153,25 @@ kies partiano esti, signifis gajni? ĉu tio estas tiu joviala
 kvindekjarulo, kiu sciis disĵeti monon tiel lerte, ke ĉiuj
 
 
-MI EN LI
-
-
 turniĝis, eĉ tiuj, kiuj ne volis? ĉu tio estas la ĉiam elegan-ta bonvivanto, kiu senlime konkeradis virinajn korojn
 
 per unusola mano, kiun li metis en sian surbrustan
 
 poŝon?
 
-Ne! Tiuj, kiuj konis lin, volis, ke en la rolo de murdin-
+Ne! Tiuj, kiuj konis lin, volis, ke en la rolo de murdinto denove li prezentu sin eleganta, kiel li prezentadis sin
 
-to denove li prezentu sin eleganta, kiel li prezentadis sin
-
-en la borso kaj en la societo, de kie oni konis lin. Ili de-
-
-ziris, ke li estu konkerema ankaŭ ĉi tie kun tia porcio da
+en la borso kaj en la societo, de kie oni konis lin. Ili deziris, ke li estu konkerema ankaŭ ĉi tie kun tia porcio da
 
 humoro, kia ofte savis lian situacion, kun ia gesto de
 
 malŝato koncerne tiujn, kiujn li aĉetadis, kiun geston
 
-tamen multaj virinoj de lia ĉirkaŭaĵo opiniis unike ĉar-
-
-ma.
+tamen multaj virinoj de lia ĉirkaŭaĵo opiniis unike ĉarma.
 
 Oni atendis rigardon de informita borsano, kiu en sia
 
-poŝo havas jam malplenan spacon por enhavo de frem-
-
-da poŝo.
+poŝo havas jam malplenan spacon por enhavo de fremda poŝo.
 
 Sed okazis nenio el tio, kion oni atendis kaj pro kio
 
@@ -9229,25 +7185,16 @@ akuzon.
 
 Paŭlo Hora, bankisto kaj kompaniano de la firmo
 
-Hora & Ko., estas akuzata pro insida murdo efektivigi-
-
-ta je sia kompaniano Karlo Horálek eĉ — kiel tekstis la
+Hora & Ko., estas akuzata pro insida murdo efektivigita je sia kompaniano Karlo Horálek eĉ — kiel tekstis la
 
 akuzo — pro malhonestaj kialoj.
 
-La akuzo vaste priskribis la murdmanieron. Hora sta-
-
-rigis ŝtupetaron el la ĝardeno al la fenestro de la dormo-
-
-
-MI EN LI
+La akuzo vaste priskribis la murdmanieron. Hora starigis ŝtupetaron el la ĝardeno al la fenestro de la dormo-
 
 
 ĉambro de Horálek kaj trapafinte du fenestrovitrojn li
 
-inside mortpafis sian kompanianon Horálek per du pa-
-
-foj en la bruston, el kiuj unu trafis la koron. Post la mur-
+inside mortpafis sian kompanianon Horálek per du pafoj en la bruston, el kiuj unu trafis la koron. Post la mur-
 
 do li mem akuzis sin ĉe la komisarejo en Koôíĝe.
 
@@ -9257,65 +7204,42 @@ akiri la edzinon de la murdito, pri kio estos aŭdata kiel
 
 atestantino la servistino de la murdito, krome klopodo,
 
-venĝi sin pro denunco, kiun faris Horálek pri la akuzi-
-
-to en la konata afero en Koôíĝe finita per la morto de
+venĝi sin pro denunco, kiun faris Horálek pri la akuzito en la konata afero en Koôíĝe finita per la morto de
 
 Václav Polavskë.
 
-La akuzo menciis fine, ke la akuzito, jesinte la mur-
-
-don, rifuzis dum la antaŭesploro indiki siajn motivojn,
+La akuzo menciis fine, ke la akuzito, jesinte la murdon, rifuzis dum la antaŭesploro indiki siajn motivojn,
 
 ja rifuzia eĉ kiun ajn klarigon.
 
 Fine estis priskribita provo de sinmortigo farita de la
 
-akuzito, kiam li eksciis pri la morto de sinjorino Horál-
-
-ková. Dum sia demandesploro li salte alpaŝis la fenest-
+akuzito, kiam li eksciis pri la morto de sinjorino Horálková. Dum sia demandesploro li salte alpaŝis la fenest-
 
 ron kaj, frakasinte per la mano la fenestran vitron, li
 
-volis malsuprensalti tra la fenestro, kio tamen estis ma-
-
-lebligita de la ĉeestintoj.
+volis malsuprensalti tra la fenestro, kio tamen estis malebligita de la ĉeestintoj.
 
 Streĉe oni atendis, ĉu la akuzito donos respondojn.
 
-Kvazaŭ vento tra sekala kampo flugis emocio tra la aŭs-
+Kvazaŭ vento tra sekala kampo flugis emocio tra la aŭskultantaro, kiam per malforta voĉo li komencis respondi
 
-kultantaro, kiam per malforta voĉo li komencis respondi
-
-la demandojn de la prezidanto. Li respondis per konci-
-
-zaj: jes.
+la demandojn de la prezidanto. Li respondis per koncizaj: jes.
 
 Same per duonvoĉa ”jes” li respondis la demandon,
 
 ĉu li sentas sin kulpa.
 
 
-MI EN LI
-
-
 Kiam la prezidanto faris al li la unuan demandon pri
 
-la efektivigo de la juĝata ago, Hora turnis sin al la asiza-
+la efektivigo de la juĝata ago, Hora turnis sin al la asizanoj:
 
-noj:
+”Mi faris la agon, pri kiu mi estas kulpigata, dum plena konscio, kaj mi petas esti kondamnita.”
 
-”Mi faris la agon, pri kiu mi estas kulpigata, dum ple-
+La emocio ne nur en la publiko, sed ankaŭ en la benkoj de asizanoj pligrandiĝis, kiam Hora ne respondis la
 
-na konscio, kaj mi petas esti kondamnita.”
-
-La emocio ne nur en la publiko, sed ankaŭ en la ben-
-
-koj de asizanoj pligrandiĝis, kiam Hora ne respondis la
-
-ceterajn demandojn. Al la prezidanto ne estis dispone-
-
-bla alia vojo, ol komenci demandesploron de la atestan-
+ceterajn demandojn. Al la prezidanto ne estis disponebla alia vojo, ol komenci demandesploron de la atestan-
 
 toj.
 
@@ -9323,9 +7247,7 @@ La prokuristo Boroviâka klarigis unue la rilaton de la
 
 akuzito al la murdito kiel kompaniano. Tio estis aferoj
 
-konataj de la publiko, kiu bone sciis, ke la ĉefa posedan-
-
-to estis Hora.
+konataj de la publiko, kiu bone sciis, ke la ĉefa posedanto estis Hora.
 
 ”ĉu Karlo Horálek havis propran konton ĉe la firmo
 
@@ -9352,9 +7274,6 @@ grandan kvanton da valorpaperoj el la privataj kontoj de
 Hora, kiujn ĉi tiu havis ĉe kelkaj vienaj bankoj?”
 
 
-MI EN LI
-
-
 ”Nur el la ĵurnaloj post tiu tragika okazaĵo.”
 
 ”ĉu Horálek alportis el Vieno kontantan monon al la
@@ -9373,9 +7292,7 @@ demandesploris ankaŭ doktoron Nesveda, kiu venis al la
 
 loko de la okazaĵo proksimume je la deka kaj duono, sed
 
-povis konstati nur la morton de Horálek. Sinjorino Ho-
-
-rálková mortis pro korparalizo baldaŭ post lia alveno, ne
+povis konstati nur la morton de Horálek. Sinjorino Horálková mortis pro korparalizo baldaŭ post lia alveno, ne
 
 rekonsciiĝinte.
 
@@ -9385,41 +7302,26 @@ estis vokita la servistino de Horálek, Mario Bartoôková,
 
 sur kies deklaroj estis fonditaj la motivoj de la akuzo.
 
-Kiam oni lumigis la kandelojn sur la tablo kaj la pre-
-
-zidanto invitis la servistinon, ke, ripetante la vortojn
+Kiam oni lumigis la kandelojn sur la tablo kaj la prezidanto invitis la servistinon, ke, ripetante la vortojn
 
 post li, ŝi ĵuru, ke ŝi diros la veron kaj nenion ol la veron, al kio helpu ŝin Dio, ektremis ŝia suprenlevita dekstra
 
 mano, kvazaŭ ŝi devus fali.
 
-”ĉu via nomo estas Mario Bartoôková, ĉu vi estas ci-
-
-vitanrajta en Beroun, jes?”
+”ĉu via nomo estas Mario Bartoôková, ĉu vi estas civitanrajta en Beroun, jes?”
 
 ”Mi petas, jes.”
 
-”De post kiam vi estis okupita ĉe sinjorino Horál-
-
-ková?”
+”De post kiam vi estis okupita ĉe sinjorino Horálková?”
 
 ”De post la dekkvina februaro.”
 
 
-MI EN LI
+”Ni invitis vin ĉi tien, por ke vi diru al ni pri iu miskompreno, kiu okazis posttagmeze unu tagon antaŭ tiu
 
+abomena nokto. Jam ĉe la polico vi diris siatempe multon, mi havas tion notita ĉi tie, sed pro ordo mi deman-
 
-”Ni invitis vin ĉi tien, por ke vi diru al ni pri iu mis-
-
-kompreno, kiu okazis posttagmeze unu tagon antaŭ tiu
-
-abomena nokto. Jam ĉe la polico vi diris siatempe mul-
-
-ton, mi havas tion notita ĉi tie, sed pro ordo mi deman-
-
-das vin ankoraŭfoje. Tiam venis al vi posttagmeze sin-
-
-joro Hora, jen ĉi tiu sinjoro. ĉu vi konas lin?”
+das vin ankoraŭfoje. Tiam venis al vi posttagmeze sinjoro Hora, jen ĉi tiu sinjoro. ĉu vi konas lin?”
 
 ”Jes, mi petas.”
 
@@ -9443,9 +7345,7 @@ por la mateno de la venonta tago.”
 
 ”Eksterlanden, sed mi ne scias kien.”
 
-”Ni revenu al sinjoro Hora. ĉu vi rimarkis ion okultra-
-
-pan ĉe li, kiam li venis?”
+”Ni revenu al sinjoro Hora. ĉu vi rimarkis ion okultrapan ĉe li, kiam li venis?”
 
 ”Li estis tre ekscitita.”
 
@@ -9462,9 +7362,6 @@ eniri, sed mi ricevis ordonon ne enlasi lin.”
 la sinjorino estas hejme.”
 
 
-MI EN LI
-
-
 ”ĉu sinjoro Hora ne kredis tion?”
 
 ”Ne, li kriis, ke li konvinkiĝos mem. Tiel li neniam
@@ -9473,9 +7370,7 @@ kriis ĉe ni.”
 
 ”Kio okazis poste?”
 
-”La sinjoro mem malfermis la pordon al la manĝo-
-
-ĉambro, li havis la manojn en la poŝoj kaj diris: ’Kial vi
+”La sinjoro mem malfermis la pordon al la manĝoĉambro, li havis la manojn en la poŝoj kaj diris: ’Kial vi
 
 bruegas ĉi tie? La afero ne estas plu ŝanĝebla!’ ”
 
@@ -9485,9 +7380,7 @@ bruegas ĉi tie? La afero ne estas plu ŝanĝebla!’ ”
 
 ”ĉu li diris eble ion al li?”
 
-”Li diris: ’Mílan vi ne forveturigos, prefere mi morti-
-
-gos vin.’ ”
+”Li diris: ’Mílan vi ne forveturigos, prefere mi mortigos vin.’ ”
 
 La aŭskultantaro ricevis la unuan bongustan pecon, la
 
@@ -9511,12 +7404,7 @@ apogseĝon.”
 
 ”ĉu vi rememoras, kio okazis poste?”
 
-”Mi petas, sinjoro Hora iris al la pordo kar returnin-
-
-te sin diris: ’i ne estas finita!’ Poste li eliris.”
-
-
-MI EN LI
+”Mi petas, sinjoro Hora iris al la pordo kar returninte sin diris: ’i ne estas finita!’ Poste li eliris.”
 
 
 ”ĉu poste sinjoro Horálek diris ion al vi?”
@@ -9535,15 +7423,11 @@ okazis?”
 
 ”La sinjorina moŝto vokis min, ke mi helpu ŝin elekti
 
-tolaĵon, kiun ŝi volis kunpreni. ŝi diris al mi, kiel ŝi ĝo-
-
-jas, ke ŝi veturos kun la edzo eksterlanden, ke jam antaŭ
+tolaĵon, kiun ŝi volis kunpreni. ŝi diris al mi, kiel ŝi ĝojas, ke ŝi veturos kun la edzo eksterlanden, ke jam antaŭ
 
 longa tempo li promesis tion al ŝi. El la tolaĵo ŝi elektis
 
-la plej belan piĵamon, dirante: ’Por hodiaŭ.’ Poste ŝi sen-
-
-dis min for, ke mi venu nur antaŭ la vespermanĝo, ke mi
+la plej belan piĵamon, dirante: ’Por hodiaŭ.’ Poste ŝi sendis min for, ke mi venu nur antaŭ la vespermanĝo, ke mi
 
 helpos ŝin surmeti la veston. Poste ŝi kuŝiĝis denove, ŝi
 
@@ -9563,29 +7447,18 @@ La aŭskultantaro ekzumis.
 
 ”Jes. ŝi kombis iom la hararon kaj poste mi helpis ŝin
 
-surmeti la veston. ŝi surmetis la ruĝetan, tian mallon-
-
-gan, kiu estis jen sur la brusto kaj sur la dorso dekolti-
+surmeti la veston. ŝi surmetis la ruĝetan, tian mallongan, kiu estis jen sur la brusto kaj sur la dorso dekolti-
 
 ta. ŝi diris al mi: ’Hodiaŭ mi devas esti bela.’ Longan
 
 
-MI EN LI
-
-
 tempon ŝi staris antaŭ la spegulo kaj rigardis sin. Dum
 
-la vespermanĝo ŝi estis gaja kaj ĝojis, kiam la sinjoro di-
+la vespermanĝo ŝi estis gaja kaj ĝojis, kiam la sinjoro diris kelkfoje al ŝi, ke ŝi estas bela. ŝi flustris ion al li kaj li kisis ŝian manon. Post la vespermanĝo la sinjoro trinkis
 
-ris kelkfoje al ŝi, ke ŝi estas bela. ŝi flustris ion al li kaj li kisis ŝian manon. Post la vespermanĝo la sinjoro trinkis
+ankoraŭ nigran kafon. La sinjorina moŝto diris, ke ŝi havus hodiaŭ guston je ĉampana vino. Kiam mi alportis
 
-ankoraŭ nigran kafon. La sinjorina moŝto diris, ke ŝi ha-
-
-vus hodiaŭ guston je ĉampana vino. Kiam mi alportis
-
-ĝin kun glacio el la kelo, la sinjoro ĝuste kisis la sinjori-
-
-nan moŝton. Kiam mi eniris, ŝi elŝiris sin el liaj brakoj,
+ĝin kun glacio el la kelo, la sinjoro ĝuste kisis la sinjorinan moŝton. Kiam mi eniris, ŝi elŝiris sin el liaj brakoj,
 
 sed li repacigis ŝin. Ili ekludigis radion kaj la sinjorina
 
@@ -9613,19 +7486,12 @@ li ne spiris plu. La sinjorino kuŝis sur la planko apogita
 
 al la lito, ŝi estis vestita jam nur per tolaĵo.
 
-La sinjoro rigardis per malfermitaj okuloj al la plafo-
-
-no, la kuiristino diris, ke li estas jam morta. La sinjorinan moŝton ni kuŝigis sur la liton, ni lavis ŝian vizaĝon per
+La sinjoro rigardis per malfermitaj okuloj al la plafono, la kuiristino diris, ke li estas jam morta. La sinjorinan moŝton ni kuŝigis sur la liton, ni lavis ŝian vizaĝon per
 
 kolonja akvo, sed ŝi ne vekiĝis. Poste mi kuris al Klikovka
 
 
-MI EN LI
-
-
-por venigi kuraciston per telefono. La loĝantoj de Kli-
-
-kovka sciigis per telefono la policon.”
+por venigi kuraciston per telefono. La loĝantoj de Klikovka sciigis per telefono la policon.”
 
 ”Kion vi trovis ankoraŭ en la ĉambro?”
 
@@ -9637,19 +7503,13 @@ kovka sciigis per telefono la policon.”
 
 Hora.”
 
-”Bone, ni demandos ŝin pri tio. Atestantino, via de-
-
-mandesploro estas finita, tamen restu ĉi tie por la oka-
+”Bone, ni demandos ŝin pri tio. Atestantino, via demandesploro estas finita, tamen restu ĉi tie por la oka-
 
 zo, ke ni bezonos vin ankoraŭ.”
 
-Poste estis demandata Boòena Beránková, la kuiristi-
+Poste estis demandata Boòena Beránková, la kuiristino de Horálek. ŝi konfirmis la deklarojn de Bartoôková.
 
-no de Horálek. ŝi konfirmis la deklarojn de Bartoôková.
-
-”Antaŭe vi diris al ni, Mario Bartoôková, ke en la dor-
-
-moĉambro, kiam vi trovis sinjoron Horálek morta kaj
+”Antaŭe vi diris al ni, Mario Bartoôková, ke en la dormoĉambro, kiam vi trovis sinjoron Horálek morta kaj
 
 sinjorinon sveninta, vi diris: ’Tion faris li.’ Kiun vi celis, dirante tion kaj kial vi diris tion?”
 
@@ -9665,19 +7525,12 @@ sinjorinon sveninta, vi diris: ’Tion faris li.’ Kiun vi celis, dirante tion 
 
 forta. Mi ridis kaj jesis. ŝi demandis min, ĉu eĉ same, kiel
 
-viro. Mi diris: ’Sinjorina moŝto, montru lin al mi.’ ŝi ri-
-
-dis kaj starante apud la fenestro ŝi diris subite: ’ĉu vi
+viro. Mi diris: ’Sinjorina moŝto, montru lin al mi.’ ŝi ridis kaj starante apud la fenestro ŝi diris subite: ’ĉu vi
 
 sukcesus defendi mntraŭ tiu?’ Kaj ŝi montris tra la
 
 
-MI EN LI
-
-
-fenestro al sinjoro Hora, kiu ĵus promenis en la ĝarde-
-
-no.”
+fenestro al sinjoro Hora, kiu ĵus promenis en la ĝardeno.”
 
 ”ĉu ŝi ne opiniis tion nur ŝerce?”
 
@@ -9685,9 +7538,7 @@ no.”
 
 venu tuj, se ŝi donos tri mallongajn signojn per elektra
 
-sonorileto; tiuokaze mi venu, eĉ se mi devus rompe mal-
-
-fermi la pordon.”
+sonorileto; tiuokaze mi venu, eĉ se mi devus rompe malfermi la pordon.”
 
 ”ĉu sinjorino Horálková timis?”
 
@@ -9709,13 +7560,9 @@ en *Colorado*, kie ĝuste li vekis la atenton pro tio, ĉar li dancis kun neniu 
 
 Lia partopreno en la unua okazaĵo estis klarigita; estis
 
-granda nombro de tiuj, kiuj atendis, ke hodiaŭ estos kla-
+granda nombro de tiuj, kiuj atendis, ke hodiaŭ estos klarigita ankaŭ lia partopreno en la lasta tragika okazaĵo.
 
-rigita ankaŭ lia partopreno en la lasta tragika okazaĵo.
-
-La promeson, kiun li deponis en la manojn de la pre-
-
-zidanto estante senkonfesa, li prononcis per klara voĉo.
+La promeson, kiun li deponis en la manojn de la prezidanto estante senkonfesa, li prononcis per klara voĉo.
 
 Post la formalaĵoj la prezidanto demandis pri la tempo,
 
@@ -9724,26 +7571,15 @@ kiom longe li interrilatis kun la familio Horálek kaj kun
 sinjorino Horálková.
 
 
-MI EN LI
-
-
-Kovaĝík menciis, ke li estis hejma instruisto de Horál-
-
-ková, kiel poste studoj kondukis lin al alia laboro kaj
+Kovaĝík menciis, ke li estis hejma instruisto de Horálková, kiel poste studoj kondukis lin al alia laboro kaj
 
 fine, kiel la unua okazaĵo en Koôíĝe direktis lin en la
 
-kamparon de Koôíĝe, kie denove li renkontiĝis kun sin-
+kamparon de Koôíĝe, kie denove li renkontiĝis kun sinjorino Horálková kaj tiam verdire li konatiĝis kun Horá-
 
-jorino Horálková kaj tiam verdire li konatiĝis kun Horá-
+lek, kun kiu antaŭ unu jaro li parolis nur kelke da vortoj.
 
-lek, kun kiu antaŭ unu jaro li parolis nur kelke da vor-
-
-toj.
-
-”Sinjoro doktoro, mi havas ĉi tie la deklarojn kaj pro-
-
-tokolojn, ke vi estis ofta gasto ĉe Horálek, vi konis do
+”Sinjoro doktoro, mi havas ĉi tie la deklarojn kaj protokolojn, ke vi estis ofta gasto ĉe Horálek, vi konis do
 
 certe iliajn familiajn cirkonstancojn. Ambaŭ ili estas
 
@@ -9751,17 +7587,13 @@ mortaj, ’de mortuis nil, nisi bene’. Mi ne demandus vin,
 
 se ĝuste la klarigo de la familiaj cirkonstancoj ne estus
 
-grava por klarigi la hodiaŭan problemon. ĉu eble oka-
-
-zis kelkfoje disputoj inter la geedzoj?”
+grava por klarigi la hodiaŭan problemon. ĉu eble okazis kelkfoje disputoj inter la geedzoj?”
 
 ”Tion mi ne povus aserti, male mi opinias, ke sinjoro
 
 Horálek klopodis plenumi ĉiujn dezirojn de sia edzino.”
 
-”Unu atestanto antaŭ vi menciis, kiajn grandajn ŝul-
-
-dojn havis Horálek. ĉu ĉi tiuj ŝuldoj, sumiĝantaj je du-
+”Unu atestanto antaŭ vi menciis, kiajn grandajn ŝuldojn havis Horálek. ĉu ĉi tiuj ŝuldoj, sumiĝantaj je du-
 
 cent mil kronoj, rezultis el la hejma mastrumo, aŭ ĉu
 
@@ -9769,9 +7601,7 @@ eble tio estis privataj elspezoj de sinjoro Horálek? Temas
 
 pri tempo proksimume de unu jaro, eble malmulte pli.”
 
-”La familia vivo de la geedzoj ne pravigas ĉi tiun su-
-
-mon; eble rezultigis ĝin kromordinaraj eksteraj elspezoj.
+”La familia vivo de la geedzoj ne pravigas ĉi tiun sumon; eble rezultigis ĝin kromordinaraj eksteraj elspezoj.
 
 ”Kion vi volas esprimi per la vortoj: eksteraj elspezoj?”
 
@@ -9780,18 +7610,13 @@ mon; eble rezultigis ĝin kromordinaraj eksteraj elspezoj.
 vizitoj de diversaj publikaj ejoj ekzemple de teatro ktp.”
 
 
-MI EN LI
-
-
 ”Sinjoro doktoro, delikateco ne estas ĉi tie oportuna.
 
 Se vi ne volas, ne nomu; mi scias, ke vi akompanis la
 
 geedzojn Horálek ankaŭ al diversaj dancejoj, vi estis la
 
-konfidato de ili ambaŭ, diru al mi la proksimuman su-
-
-mon de meza elspezo en tia dancejo, kiun ne nomu, se
+konfidato de ili ambaŭ, diru al mi la proksimuman sumon de meza elspezo en tia dancejo, kiun ne nomu, se
 
 vi ne volas.
 
@@ -9809,25 +7634,17 @@ sumo estus preskaŭ eĉ tro malgranda. ĉu vi vidis iufoje
 
 pagi tian sumon?”
 
-”Jes, dum mia ĉeesto estis pagata unufoje eĉ pli gran-
+”Jes, dum mia ĉeesto estis pagata unufoje eĉ pli granda sumo, nome de sinjoro Hora en unu nokta amuzejo.”
 
-da sumo, nome de sinjoro Hora en unu nokta amuzejo.”
-
-”Sed, sinjoro doktoro, mi demandis pri pagoj de sin-
-
-joro Horálek.”
+”Sed, sinjoro doktoro, mi demandis pri pagoj de sinjoro Horálek.”
 
 ”Tio estas egala.”
 
-”Mi petas, ke la aŭskultantaro restu kvieta, ĉi tie ne-
-
-nio etias ridinda. Sinjoro doktoro, kial vi opinias, ke tio
+”Mi petas, ke la aŭskultantaro restu kvieta, ĉi tie nenio etias ridinda. Sinjoro doktoro, kial vi opinias, ke tio
 
 estas egala?”
 
-”Mi timas, ke mi estis malbone komprenata. La elspe-
-
-zojn pagis ĉiam sinjoro Hora aŭ sinjoro Horálek por la
+”Mi timas, ke mi estis malbone komprenata. La elspezojn pagis ĉiam sinjoro Hora aŭ sinjoro Horálek por la
 
 tuta societo. Mi estus kontenta, se ridus ĉi tie nur tiuj,
 
@@ -9836,28 +7653,17 @@ kiuj neniam trinkis por la mono de ambaŭ sinjoroj.”
 ”Sinjoro doktoro, vi deflankiĝas.”
 
 
-MI EN LI
-
-
-”Pli poste mi eksciis, ke sinjoro Hora estas tre preci-
-
-za kaj per duono da elspezoj ŝarĝas ĉiam la konton de
+”Pli poste mi eksciis, ke sinjoro Hora estas tre preciza kaj per duono da elspezoj ŝarĝas ĉiam la konton de
 
 Horálek.”
 
-”ĉu eble vi estas iom instruita pri la prezoj de tuale-
-
-toj? Sinjorino Horálková certe havis ĉiam unuaklasajn
+”ĉu eble vi estas iom instruita pri la prezoj de tualetoj? Sinjorino Horálková certe havis ĉiam unuaklasajn
 
 tualetojn. ĉu ili estis multekostaj?”
 
-”ŝi montris al mi pelton, kiu kostis sesdek mil kro-
+”ŝi montris al mi pelton, kiu kostis sesdek mil kronojn.”
 
-nojn.”
-
-”Tio estas rimarkinda prezo. Kaj kio koncernas la tu-
-
-aletojn; laŭdire ili estis plejparte el Parizo.”
+”Tio estas rimarkinda prezo. Kaj kio koncernas la tualetojn; laŭdire ili estis plejparte el Parizo.”
 
 ”Jes, kiom mi aŭdis de sinjorino Horálková, sed tio
 
@@ -9869,9 +7675,7 @@ estis plejparle donacoj.”
 
 ”Denove mi petas la publikon resti kvieta. Sinjoro
 
-doktoro, ĉu ĉi tiuj donacoj celis plifirmigi la amikajn in-
-
-terrilalojn de sinjoro Hora al ambaŭ geedzoj?”
+doktoro, ĉu ĉi tiuj donacoj celis plifirmigi la amikajn interrilalojn de sinjoro Hora al ambaŭ geedzoj?”
 
 ”Sinjorino Horálková akceptadis ilin nur laŭ invito de
 
@@ -9879,9 +7683,7 @@ sia edzo, kiu estis finance dependa de sinjoro Hora.”
 
 ”Oni deklaris, ke la rilato de sinjoro Hora al sinjoro
 
-Horálek estis ĉiam plej amika; ankaŭ la donacoj konfir-
-
-mus ĉi tiujn deklarojn. Aŭ, ĉu eble celis la donacoj ion
+Horálek estis ĉiam plej amika; ankaŭ la donacoj konfirmus ĉi tiujn deklarojn. Aŭ, ĉu eble celis la donacoj ion
 
 alian?”
 
@@ -9892,24 +7694,15 @@ alian?”
 devo, ankaŭ fini vian aludon.”
 
 
-MI EN LI
-
-
-”Mi bedaŭras jam, ke mi diris tiun vorton. Mi ne vo-
-
-lis paroli pri kelkaj aferoj, kiuj eble ne koncernas ĉi tiun
+”Mi bedaŭras jam, ke mi diris tiun vorton. Mi ne volis paroli pri kelkaj aferoj, kiuj eble ne koncernas ĉi tiun
 
 juĝan problemon.”
 
 ”Kaj mi bedaŭrus, se viro kun akademia titolo hezitus
 
-respondi la veron, kiu estas ĵetonta lumon en nian kon-
+respondi la veron, kiu estas ĵetonta lumon en nian konsiderinde malsimplan aferon. Sed mi menciis jam en la
 
-siderinde malsimplan aferon. Sed mi menciis jam en la
-
-komenco de via demandesploro, ke vi ne estas deviga-
-
-ta diri tion, kio povus malutili vin mem.”
+komenco de via demandesploro, ke vi ne estas devigata diri tion, kio povus malutili vin mem.”
 
 ”Tute ne temas pri miaj aferoj kaj mi ne opinias, ke ili
 
@@ -9917,9 +7710,7 @@ povus malutili min. Se mi silentas pri senhonteco de
 
 sinjoro Hora, mi ne volis nur malutili la reputacion de
 
-sinjorino Horálková, kiun mi estimis ĉiam, kiel malfeli-
-
-ĉan virinon.”
+sinjorino Horálková, kiun mi estimis ĉiam, kiel malfeliĉan virinon.”
 
 ”Se vi kulpigis jam sinjoron Hora pri senhontaĵoj, vi
 
@@ -9927,17 +7718,11 @@ pruvos certe vian aserton.”
 
 ”Se mi klarigu la agadon de sinjoro Hora, mi devas
 
-reiri al la tempo antaŭ la edziniĝo de sinjorino Horál-
+reiri al la tempo antaŭ la edziniĝo de sinjorino Horálková. Personoj, kiuj estis proksimaj al sinjorino Horál-
 
-ková. Personoj, kiuj estis proksimaj al sinjorino Horál-
+ková, certe scias ankoraŭ, ke antaŭ pli ol unu jaro ŝi estis fianĉino de sinjoro Hora. Li estas kulpa, ke ne efek-
 
-ková, certe scias ankoraŭ, ke antaŭ pli ol unu jaro ŝi es-
-
-tis fianĉino de sinjoro Hora. Li estas kulpa, ke ne efek-
-
-tiviĝis la edziĝo. Inside sinjoro Hora poste sukcesis sub-
-
-ŝovi sinjoron Horálek kiel novan svatanton, kiu ankaŭ —
+tiviĝis la edziĝo. Inside sinjoro Hora poste sukcesis subŝovi sinjoron Horálek kiel novan svatanton, kiu ankaŭ —
 
 helpata de sinjoro Hora — fariĝis edzo.
 
@@ -9948,36 +7733,25 @@ antaŭ lia edziĝo kaj kial ne efektiviĝis la edziniĝo kun
 sinjoro Hora.”
 
 
-MI EN LI
-
-
 ”ĉu vi havas eble iujn pruvojn por viaj asertoj, sinjoro
 
 doktoro?”
 
-”La konduton de sinjoro Horálek, kiu eble ĝis la las-
-
-taj tagoj antaŭ sia mortigo ne sciis pri la vera rilato de
+”La konduton de sinjoro Horálek, kiu eble ĝis la lastaj tagoj antaŭ sia mortigo ne sciis pri la vera rilato de
 
 sinjoro Hora al sia edzino, fine estis sinjorino Horálková
 
-mem tiu, kiu konfidis sian malfeliĉon al mi. Nur la spi-
-
-rita blindeco de sinjoro Horálek ebligis, ke sinjoro Hora
+mem tiu, kiu konfidis sian malfeliĉon al mi. Nur la spirita blindeco de sinjoro Horálek ebligis, ke sinjoro Hora
 
 misuzis lian malbonan financan situacion kaj unu lian
 
-peketon por devigi sinjorinon Horálková timantan skan-
-
-dalon kaj senhonorigon de sia edzo, ke ŝi preferis savi la
+peketon por devigi sinjorinon Horálková timantan skandalon kaj senhonorigon de sia edzo, ke ŝi preferis savi la
 
 honoron de sia edzo antaŭ la publiko kaj oferis sin
 
 mem.”
 
-La emocio, kiun rezultigis ĉi tiuj vortoj, estis tuj ĉesi-
-
-gita, kiam Hora leviĝinte de la benko de akuzitoj per kel-
+La emocio, kiun rezultigis ĉi tiuj vortoj, estis tuj ĉesigita, kiam Hora leviĝinte de la benko de akuzitoj per kel-
 
 ke da paŝoj alproksimiĝis al Kovaĝík. Starante kontraŭ
 
@@ -9993,27 +7767,18 @@ Horan:
 
 ”Tion vi diras nun pri Horálek, kiam minacante per
 
-financa ruinigo vi devigadis lian edzinon, ke ŝi — kon-
-
-traŭ sia tuta personeco — submetiĝu al via aĉa volo, tion
+financa ruinigo vi devigadis lian edzinon, ke ŝi — kontraŭ sia tuta personeco — submetiĝu al via aĉa volo, tion
 
 nun diras vi, kiu eluzis trompan manipulacion de Horá-
 
-lek kun fremdaj valorpaperoj por — dum Horálek forvo-
-
-jaĝis laŭ via ordono pro negocaj aferoj — devigi sinjori-
-
-
-MI EN LI
+lek kun fremdaj valorpaperoj por — dum Horálek forvojaĝis laŭ via ordono pro negocaj aferoj — devigi sinjori-
 
 
 non Horálková per minaco, ke vi denuncos ŝian edzon,
 
 ke ŝi denove plenumu vian deziraĉon.”
 
-”Horálek neniam defraŭdis ion, Horálek estis hono-
-
-rinda homo, ĉar li volis pagi siajn ŝuldojn.”
+”Horálek neniam defraŭdis ion, Horálek estis honorinda homo, ĉar li volis pagi siajn ŝuldojn.”
 
 ”Verŝajne tial vi mortpatis lin.”
 
@@ -10021,9 +7786,7 @@ Post ĉi tiuj vortoj diris Hora emocie, sed klare:
 
 ”Horálek mortpafis sin mem.”
 
-La silento estis rompita simile, kiel la glacio en prin-
-
-tempo per elbordiĝanta akvo. Vane la prezidanto admo-
+La silento estis rompita simile, kiel la glacio en printempo per elbordiĝanta akvo. Vane la prezidanto admo-
 
 negis al silento, lia voĉo ne estis aŭdebla kaj restis al li
 
@@ -10033,9 +7796,7 @@ minuloj.
 
 Hora, evidente senfortiĝinta, denove eksidis sur la
 
-benkon de akuzitoj kaj petis glason da akvo. Li ne kapa-
-
-blis meti la glason al la buŝo, tiel tremis lia mano.
+benkon de akuzitoj kaj petis glason da akvo. Li ne kapablis meti la glason al la buŝo, tiel tremis lia mano.
 
 Remalfermante la kunsidon, la prezidanto minacis, ke
 
@@ -10043,9 +7804,7 @@ tuj li elĉambrigos la aŭskultantaron, se la silento eĉ plej
 
 malmulte estos ĝenata:
 
-”Akuzito, jen sinjoro doktoro esprimis kelkajn aser-
-
-tojn pri via rilato al sinjorino Horálková. Vi defendas
+”Akuzito, jen sinjoro doktoro esprimis kelkajn asertojn pri via rilato al sinjorino Horálková. Vi defendas
 
 sinjoron Horálek, anstataŭ defendi vin mem. ĉu vi neas
 
@@ -10060,16 +7819,11 @@ Hora, reveninte al sia benko, metis sian vizaĝon en la
 manplatojn kaj ploris amare.
 
 
-MI EN LI
-
-
 ”Sinjoro doktoro, ĉu vi havas eble iajn pruvojn por
 
 viaj asertoj?”
 
-”ĉiurilate mi apogas min je sciigoj de sinjorino Horál-
-
-ková.”
+”ĉiurilate mi apogas min je sciigoj de sinjorino Horálková.”
 
 ”Poste vi povus eble diri al ni, kiam kaj kie ŝi konfesis
 
@@ -10077,9 +7831,7 @@ tion al vi.”
 
 Kovaĝík rakontis poste pri tiu malgaja vespero, kiam
 
-li atendis Mílan, kiel ŝi venis tro malfrue kaj kiel ŝi ra-
-
-kontis ĉion al li ĉe Motol.
+li atendis Mílan, kiel ŝi venis tro malfrue kaj kiel ŝi rakontis ĉion al li ĉe Motol.
 
 La prezidanto demandis denove Horan, kiu streĉe
 
@@ -10091,9 +7843,7 @@ Kovaĝík tuj respondis mem:
 
 ”La saman vesperon, kiam vi mortpafis en la korto la
 
-revivigitan laboriston kaj kiam sinjorino Horálková su-
-
-feris nervoŝokon.”
+revivigitan laboriston kaj kiam sinjorino Horálková suferis nervoŝokon.”
 
 Hora klinis la kapon.
 
@@ -10103,21 +7853,13 @@ Al la prezidanto ne plaĉis la nova maniero de Hora,
 
 kiu komencis nei.
 
-”Akuzito, viaj respondoj komencas reciproke kontraŭ-
-
-iĝi. Neante vi ankaŭ nur trolongigos la aferon. Komence
+”Akuzito, viaj respondoj komencas reciproke kontraŭiĝi. Neante vi ankaŭ nur trolongigos la aferon. Komence
 
 vi konfesis vian kulpon kaj postulis esti kondamnita;
 
 nun subite vi asertas, ke Horálek mortpafis sin mem. Jen
 
-sur la tablo kuŝas la revolvero, kiun vi deponis en la po-
-
-
-MI EN LI
-
-
-lica gardistejo en Koôíĝe. ĉu estis mortpafita per ĝi Horá-
+sur la tablo kuŝas la revolvero, kiun vi deponis en la polica gardistejo en Koôíĝe. ĉu estis mortpafita per ĝi Horá-
 
 lek?”
 
@@ -10135,9 +7877,7 @@ lek?”
 
 ”Al Hora.”
 
-”Akuzito, kial nun tiaj konfuzaj paroloj? Unue vi aser-
-
-tis, ke vi mortpafis Horálekon. Poste vi diris, ke Horálek
+”Akuzito, kial nun tiaj konfuzaj paroloj? Unue vi asertis, ke vi mortpafis Horálekon. Poste vi diris, ke Horálek
 
 mortpafis sin mem. Poste vi deklaris, ke vi volis mortpafi
 
@@ -10153,9 +7893,7 @@ atestantoj, via pistolo, kiun vi mem transdonis kaj el kiu
 
 estis elpafitaj du pafoj; kugloj trovitaj en la korpo de la
 
-murdito kongruas kun tiuj, kiuj estis trovitaj en via pis-
-
-tolo, kaj la atestantoj priskribas tute konforme viajn ri-
+murdito kongruas kun tiuj, kiuj estis trovitaj en via pistolo, kaj la atestantoj priskribas tute konforme viajn ri-
 
 latojn al sinjorino Horálková. ĉu vi ne preferus tamen
 
@@ -10163,14 +7901,9 @@ diri la veron al ni?”
 
 ”Mi dirus, sed vi ne kredos min.”
 
-”Kia naiva parolo. Sinjoro doktoro, mi finos provizo-
-
-re vian demandesploron, sed restu afable ĉi tie. Akuzi-
+”Kia naiva parolo. Sinjoro doktoro, mi finos provizore vian demandesploron, sed restu afable ĉi tie. Akuzi-
 
 to, diru al ni ĉion, kiel tio okazis; ni ŝatus scii ankaŭ la
-
-
-MI EN LI
 
 
 motivojn de via ago, eble, ke vi diros ion, kio mildigas
@@ -10183,17 +7916,13 @@ vian agon.”
 
 ”Mi mem ne scias plu, kio estas vera, mi vidas neniun
 
-elirejon kaj mi timas, ke mi freneziĝos pli frue, ol vi kon-
-
-damnos min. Vi estus kondamnontaj min, kiel mi petis
+elirejon kaj mi timas, ke mi freneziĝos pli frue, ol vi kondamnos min. Vi estus kondamnontaj min, kiel mi petis
 
 vin, vi estus nenion rakontontaj al mi, mi demandis vin
 
 pri nenio.”
 
-”Trankviligu vin per tio, ke vi diros la veron. Se vi di-
-
-ros mildigantajn cirkonstancojn, la asiza tribunalo kon-
+”Trankviligu vin per tio, ke vi diros la veron. Se vi diros mildigantajn cirkonstancojn, la asiza tribunalo kon-
 
 sideros ilin.”
 
@@ -10203,15 +7932,11 @@ kion mi volas, ke vi prokrastu la konkludon, se vi aŭdos
 
 aferon, kiu ŝajnos al vi neebla. Mi apogas min je la atesto
 
-de la ĉeestanta sinjoro doktoro Kovaĝík, kelkaj cirkon-
-
-stancoj estas konataj de li, kvankam ĝis nun oni parolis
+de la ĉeestanta sinjoro doktoro Kovaĝík, kelkaj cirkonstancoj estas konataj de li, kvankam ĝis nun oni parolis
 
 pri ili nek ĉi tie, nek dum la antaŭesploro.
 
-Tio estos ankaŭ postparolo al la agado de Václav Pol-
-
-avskë.
+Tio estos ankaŭ postparolo al la agado de Václav Polavskë.
 
 Permesu afable, ke iom post iom mi pruvu tion, kion
 
@@ -10226,40 +7951,29 @@ homo, kiu entrudis sin sur mian lokon.”
 volas diri, ke vi ne povis forgesi, ke Horálek anstataŭis
 
 
-MI EN LI
-
-
 vin? Ke vi ne povis edziĝi kun la pli posta sinjorino Horálková?”
 
 ”Ne tiel. Mi mortigis lin, por ke li ne forprenu mian
 
 laŭleĝan edzinon de mi.”
 
-”Permesu, sinjorino Horálková estis laŭleĝe edziniĝin-
-
-ta kun sia edzo.”
+”Permesu, sinjorino Horálková estis laŭleĝe edziniĝinta kun sia edzo.”
 
 ”Jes, kun mi.”
 
-Kelkaj virinoj ekridis per siblaj, histeriaj voĉoj. La pre-
-
-zidanto admonis denove al kvieto.
+Kelkaj virinoj ekridis per siblaj, histeriaj voĉoj. La prezidanto admonis denove al kvieto.
 
 ”Mi konjektas, ke neniu el ni komprenas vin. Kion vi
 
 volas diri per viaj asertoj? Horálek estas morta kaj vi
 
-estas kulpigita, ke vi mortpafis lin. ĉu vi volas diri al ni, ke lia edzino estis verdire edziniĝinta kun vi kaj nur laŭ-
-
-forme vivis kun Horálek?”
+estas kulpigita, ke vi mortpafis lin. ĉu vi volas diri al ni, ke lia edzino estis verdire edziniĝinta kun vi kaj nur laŭforme vivis kun Horálek?”
 
 ”Míla estis laŭleĝe edziniĝinta kun Horálek kaj mi
 
 estas Horálek.”
 
-”La lastan fojon mi admonas al silento kaj invitas sin-
-
-joron inspektiston, kiu staras ĉe la dua pordo, ke li el-
+”La lastan fojon mi admonas al silento kaj invitas sinjoron inspektiston, kiu staras ĉe la dua pordo, ke li el-
 
 konduku la sinjorinon, kiu ridis. Temas pri la sinjorino
 
@@ -10273,13 +7987,7 @@ menciis:
 
 Kiam ekestis silento, la prezidanto demandis:
 
-”Akuzito, mi petas vin paroli tiel, ke viaj deklaroj pli-
-
-
-MI EN LI
-
-
-faciligu vian situacion, sed ne, ke vi faru ĉi tie ŝercojn,
+”Akuzito, mi petas vin paroli tiel, ke viaj deklaroj plifaciligu vian situacion, sed ne, ke vi faru ĉi tie ŝercojn,
 
 kiuj ne apartenas ĉi tien.”
 
@@ -10289,9 +7997,7 @@ finparoli ĉion; mi diris tuj al vi, ke malfacile vi kredos
 
 min.”
 
-”Mi konfesas, ke ĝis nun mi ne komprenas vin. Daŭri-
-
-gu!”
+”Mi konfesas, ke ĝis nun mi ne komprenas vin. Daŭrigu!”
 
 ”Por ke vi komprenu min, eble estos plej oportune, se
 
@@ -10303,9 +8009,7 @@ Kiam Horálek revenis el Vieno kaj trovis sian edzinon
 
 grave malsana, li petis sinjoron doktoron, ke li restu ĉe
 
-ŝi ankoraŭ plu. Post kelke da tagoj malvarmiĝis la ami-
-
-kaj rilatoj de la geedzoj al sinjoro doktoro, pli ĝuste di-
+ŝi ankoraŭ plu. Post kelke da tagoj malvarmiĝis la amikaj rilatoj de la geedzoj al sinjoro doktoro, pli ĝuste di-
 
 rite la rilato de la edzo; ĉu ne, sinjoro doktoro?
 
@@ -10313,31 +8017,20 @@ La edzino de Horálek en ia ekdeziro pri sincereco
 
 konfesis ion al sia edzo, mallonge dirite, ke ŝi ne estis en
 
-la teatro, kiel estis menciite en la gazetoj, sed ke ŝi pro-
-
-menis kun sinjoro doktoro Kovaĝík. Sinjoro doktoro ra-
+la teatro, kiel estis menciite en la gazetoj, sed ke ŝi promenis kun sinjoro doktoro Kovaĝík. Sinjoro doktoro ra-
 
 kontis tion jam ĉi tie.
 
 Li aludis nur, sed ne rakontis ĝis la fino, kio okazis
 
-dum tiu malfrua vespero aŭ pli ĝuste dirite dum la nok-
-
-to.
+dum tiu malfrua vespero aŭ pli ĝuste dirite dum la nokto.
 
 Ambaŭ ili fariĝis atestantoj de eksperimento farita de
 
-Polavskë por redoni vivon al laboristo, mortigita pro ak-
-
-cidento dum domkonstruo. Ili observis Polavskën rigar-
+Polavskë por redoni vivon al laboristo, mortigita pro akcidento dum domkonstruo. Ili observis Polavskën rigar-
 
 
-MI EN LI
-
-
-dante trans la tombejan muron. Sinjoro doktoro forkon-
-
-dukis mian edzinon en kampon kaj li mem iris reen al la
+dante trans la tombejan muron. Sinjoro doktoro forkondukis mian edzinon en kampon kaj li mem iris reen al la
 
 tombejo. Timeman virinon li lasis sola en kampo kaj,
 
@@ -10345,9 +8038,7 @@ kiam la revivigita laboristo preterkuris, mia edzino estis
 
 atakita la unuan fojon de nerva kaj kora afekcioj.
 
-ĉu tio estis konvena, sinjoro doktoro, lasi mian edzi-
-
-non senhelpan en teruro, kiel vi faris tion?”
+ĉu tio estis konvena, sinjoro doktoro, lasi mian edzinon senhelpan en teruro, kiel vi faris tion?”
 
 Kovaĝík pala respondis:
 
@@ -10357,9 +8048,7 @@ kio okazis.”
 
 ”Vi komprenos post nelonge. Polavskë efektivigis tie
 
-eksperimenton, ke en korpon de morta homo li trans-
-
-plantis vivon de hundo, de nia gardhundo.
+eksperimenton, ke en korpon de morta homo li transplantis vivon de hundo, de nia gardhundo.
 
 Ne ridetu, sinjoroj. Demandu sinjoron doktoron, kion
 
@@ -10373,9 +8062,7 @@ ambaŭ, kio estas komprenebla, ĉar Hora estis eĉ arestita
 
 pro suspekto de ia partopreno.
 
-Mi devas mencii, ke ĝuste laŭ instigo de sinjoro dok-
-
-toro Kovaĝík estis organizita ia observa deĵoro koncer-
+Mi devas mencii, ke ĝuste laŭ instigo de sinjoro doktoro Kovaĝík estis organizita ia observa deĵoro koncer-
 
 ne Polavskë kaj ke ni alternis gardante lin.
 
@@ -10385,47 +8072,29 @@ atesto de la ĉeestanta sinjoro doktoro Kovaĝík.
 
 Pro la menciita malvarmiĝo de amikaj rilatoj al sinjoro
 
-doktoro Hora kaj Horálek interkonsentis entrepreni pli-
-
-
-MI EN LI
-
-
-ajn esplorojn je propra risko. Hazarde knabo portis al ili
+doktoro Hora kaj Horálek interkonsentis entrepreni pliajn esplorojn je propra risko. Hazarde knabo portis al ili
 
 impostmarkon de la hundo, kiun ili estis donacintaj al
 
-Polavskë. Tio estis la hundo, kun kiu Polavskë efektivi-
-
-gis la eksperimenton en la tombejo.
+Polavskë. Tio estis la hundo, kun kiu Polavskë efektivigis la eksperimenton en la tombejo.
 
 Rekte ili ekatakis Polavskën, ke ili konas lian agadon
 
 en Koôíĝe kaj denuncos lin.
 
-Komence Polavskë estis konsternita, sed laŭ niaj de-
+Komence Polavskë estis konsternita, sed laŭ niaj demandoj li konkludis baldaŭ, ke liaj eksperimentoj inte-
 
-mandoj li konkludis baldaŭ, ke liaj eksperimentoj inte-
+resas nin pli multe, ol ke ni volus denunci lin ĉe la aŭtoritatoj. Li petis, ke ni lasu al li ankoraŭ kelke da tagoj
 
-resas nin pli multe, ol ke ni volus denunci lin ĉe la aŭ-
-
-toritatoj. Li petis, ke ni lasu al li ankoraŭ kelke da tagoj
-
-por eksperimentoj, kiuj neniel koncernos homajn ka-
-
-davrojn, ĉar por ĉi tiu lasta eksperimento, kiun li ŝatus
+por eksperimentoj, kiuj neniel koncernos homajn kadavrojn, ĉar por ĉi tiu lasta eksperimento, kiun li ŝatus
 
 efektivigi por pruvi sian tezon, li bezonos vivajn homojn.
 
 Lerte li vekis nian scivolon farinte kelkajn aludojn pri
 
-la nova eksperimento, ke Hora tuj volis konsenti pro-
+la nova eksperimento, ke Hora tuj volis konsenti prokraston.
 
-kraston.
-
-Polavskë estis tre inteligenta homo, en la scienco ku-
-
-raĝulo, tamen homo de bona kerno. Vidante, ke lia se-
+Polavskë estis tre inteligenta homo, en la scienco kuraĝulo, tamen homo de bona kerno. Vidante, ke lia se-
 
 kreto estas malkaŝita, li ne hezitis klarigi al ni multajn el siaj eksperimentoj kaj simple dirite li fiere rakontis al ni
 
@@ -10440,22 +8109,15 @@ Estante disĉiplo de la biologia instituto de profesoro
 N., li kuraĝis mem plukonstrui sian metodon sur la bazo
 
 
-MI EN LI
-
-
 de scioj akiritaj en la instituto kaj daŭrigante kuraĝe li
 
 atingis la celon.
 
 Mi mencios lian hipotezon, kiun li klopodis konfirmi
 
-per siaj eksperimentoj; mi aldonas koncize, ke li konvin-
+per siaj eksperimentoj; mi aldonas koncize, ke li konvinkis min.
 
-kis min.
-
-Polavskë asertis: ’ĉio estas materio. La animo ne ek-
-
-zistas. La vivo pereas, nur la materio estas daŭrigata. Ni
+Polavskë asertis: ’ĉio estas materio. La animo ne ekzistas. La vivo pereas, nur la materio estas daŭrigata. Ni
 
 perceptas la vivon malbone, ĉar la vivo estas nenio alia,
 
@@ -10465,27 +8127,19 @@ Materio sen vivo estas ebla, sed ni ne kapablas imagi
 
 vivon sen korpo, sen materio.
 
-Same, kiel estas eble preni odoron de iu floro kaj kon-
-
-servi ĝin aŭ transigi ĉi tiun odoron al alia materio, same
+Same, kiel estas eble preni odoron de iu floro kaj konservi ĝin aŭ transigi ĉi tiun odoron al alia materio, same
 
 estas eble transplanti vivon.’
 
-Polavskë uzis hundojn por siaj eksperimentoj. Li dun-
-
-gigis sin en tombejo por ebligi al si la eksperimentojn. Li
+Polavskë uzis hundojn por siaj eksperimentoj. Li dungigis sin en tombejo por ebligi al si la eksperimentojn. Li
 
 sukcesis efektivigi kelkajn, al la publiko estas konataj
 
-nur du: revivigo de la junulino fine de aprilo kaj revivi-
-
-go de la laboristo, kiu poste estis mortpafita, kiam li, ha-
+nur du: revivigo de la junulino fine de aprilo kaj revivigo de la laboristo, kiu poste estis mortpafita, kiam li, ha-
 
 vante en si la vivon de hundo, alkuris budon, al kiu la
 
-koncerna hundo estis kutimiĝinta. Per tio estas klarigi-
-
-ta la bojado kaj ululado kaj la stranga konduto de la re-
+koncerna hundo estis kutimiĝinta. Per tio estas klarigita la bojado kaj ululado kaj la stranga konduto de la re-
 
 vivigita laboristo.
 
@@ -10496,28 +8150,19 @@ estas eble aliigi aŭ interŝanĝi du vivojn. Kun hundoj ne
 sukcesis tia eksperimento, estis necesa ia koncentrigo de
 
 
-MI EN LI
-
-
 objektoj, kiel li diris. Li elektis jam du knabojn, kun kiuj
 
 li volis fari la eksperimenton, sed li timis, ke li estas jam observata, kiurilate li estis prava.
 
-Tial li luprenis ĉambron en Motol, kie estis efektivigo-
+Tial li luprenis ĉambron en Motol, kie estis efektivigota la eksperimento.
 
-ta la eksperimento.
-
-Nun mi venos jam al la afero, kiun sinjoro prezidan-
-
-to ne komprenis.
+Nun mi venos jam al la afero, kiun sinjoro prezidanto ne komprenis.
 
 Hora en ia gaja momento, kiun Horálek komprenis
 
 nur pli poste, kiam estis jam tro malfrue, proponis sin,
 
-ke li mem submetos sin al la eksperimento. Kaj li provo-
-
-kis eĉ Horálekon, ke ankaŭ ĉi tiu proponis sin. Polavskë
+ke li mem submetos sin al la eksperimento. Kaj li provokis eĉ Horálekon, ke ankaŭ ĉi tiu proponis sin. Polavskë
 
 akceptis iliajn proponojn kaj efektivigis la interŝanĝon
 
@@ -10525,9 +8170,7 @@ de iliaj vivoj.
 
 Mi konstatas, ke mi estas Horálek.”
 
-La prezidanto eĉ ne klopodis kvietigi la aŭskultanta-
-
-ron, li flustris ion al unu el la juĝaj alsidantoj kaj post
+La prezidanto eĉ ne klopodis kvietigi la aŭskultantaron, li flustris ion al unu el la juĝaj alsidantoj kaj post
 
 nelonge staris du inspektistoj ĉe la flankoj de Hora.
 
@@ -10537,9 +8180,7 @@ Hora ridis amare:
 
 pravaj. Estis promesite al mi, ke mi rajtos paroli ĝis la
 
-fino. Restu do afable paciencaj ankoraŭ mallongan tem-
-
-pon.
+fino. Restu do afable paciencaj ankoraŭ mallongan tempon.
 
 Mi ne scias, kiel Polavskë efektivigis la aferon, ĉar li
 
@@ -10548,20 +8189,13 @@ hipnotis nin.
 Kiam ni revekiĝis, la ŝanĝo ŝajnis al ni tiel ridiga, ke ni
 
 
-MI EN LI
-
-
 kondutis kvazaŭ malgrandaj knaboj kaj Polavskë devis
 
 eĉ admoni nin, ke ni ne atentigu la najbarojn.
 
-Mi devas rimarkigi, ke estis interkonsentite, ke la in-
+Mi devas rimarkigi, ke estis interkonsentite, ke la interŝanĝo daŭros maksimume duonan horon kaj ankaŭ
 
-terŝanĝo daŭros maksimume duonan horon kaj ankaŭ
-
-Polavskë baldaŭ invitis nin denove eksidi, por ke li hip-
-
-notu nin.
+Polavskë baldaŭ invitis nin denove eksidi, por ke li hipnotu nin.
 
 Mi sidis jam, sed Hora, al kiu plaĉis en mia pli juna
 
@@ -10587,43 +8221,30 @@ estis ja edziĝinta — ni interkonsentis, ke ĉi tiun nokton
 
 ni restos ekster la hejmo kaj ke ni revenos nur matene
 
-al Motol, kie Polavskë atendos nin je la oka por rekon-
-
-duki nin al nia pli frua stato.
+al Motol, kie Polavskë atendos nin je la oka por rekonduki nin al nia pli frua stato.
 
 Mi konscias plene la seriozecon de la traktado en ĉi
 
 tiu ĉambrego, tial mi timas, ke mia priskribo de miaj
 
-travivaĵoj povus rezultigi nekonvenan — kvankam pra-
-
-vigitan — ridon. Mi ne rakontos do detalojn, kvankam
+travivaĵoj povus rezultigi nekonvenan — kvankam pravigitan — ridon. Mi ne rakontos do detalojn, kvankam
 
 mi scias, ke oni povus pruvi ilin per atestantoj, kiujn oni
 
 trovus eĉ ĉi tie inter la aŭskultantaro.
 
 
-MI EN LI
-
-
 Miskomprenoj, kiuj limis kelkfoje kun sensencaĵoj,
 
 estis klarigataj kompreneble per influo de vino, ĉar ni
 
-kuraĝis elprovi nian ŝanĝon nur tie, kie ne estas konsi-
-
-derata ĉiu vorto, sed ĝia mona fundo. Ni renkontis kel-
+kuraĝis elprovi nian ŝanĝon nur tie, kie ne estas konsiderata ĉiu vorto, sed ĝia mona fundo. Ni renkontis kel-
 
 kajn konatojn kaj mi, vokita de sinjorino bone konata en
 
-certa ĉi tiea societo, estis eĉ honorita de konfido, trans-
+certa ĉi tiea societo, estis eĉ honorita de konfido, transpreni iajn fakturojn de ŝia kudristino. Mi certigis ŝin, ke
 
-preni iajn fakturojn de ŝia kudristino. Mi certigis ŝin, ke
-
-temas pri eraro kaj petis ŝin, ke venontan tagon ŝi sen-
-
-du al mi neniujn fakturojn. Nur kiam ŝi diris al mi kel-
+temas pri eraro kaj petis ŝin, ke venontan tagon ŝi sendu al mi neniujn fakturojn. Nur kiam ŝi diris al mi kel-
 
 ke da neatenditaj vortoj, kiujn mi ne intencis akcepti je
 
@@ -10637,9 +8258,7 @@ sur mia korpo, skribis ion sur la vizitkarton kaj sendis
 
 ĝin per kelnero al la menciita sinjorino.”
 
-La prezidanto ridetis, sed la ŝtata prokuroro deman-
-
-dis:
+La prezidanto ridetis, sed la ŝtata prokuroro demandis:
 
 ”Kial vi ne skribis tion? La sinjorino devis ja rekoni la
 
@@ -10651,16 +8270,9 @@ Hora. Ni entreprenis ja en Motol jam kelke de provoj kaj
 
 kiel Polavskë antaŭvidis, la manskribo — estante nur
 
-formo de esprimo de la vivo — ne estis transplantita sa-
+formo de esprimo de la vivo — ne estis transplantita same, kiel la memoro, malamo kaj, kion mi speciale akcen-
 
-me, kiel la memoro, malamo kaj, kion mi speciale akcen-
-
-tas, same kiel animstato, kiun oni nomas inklino, simpa-
-
-tio.
-
-
-MI EN LI
+tas, same kiel animstato, kiun oni nomas inklino, simpatio.
 
 
 Certe vi havas ĉi tie ion, kion skribis Hora en la antaŭa
@@ -10669,9 +8281,7 @@ tempo; mi petas, ke estu aŭdata la prokuristo sinjoro
 
 Boroviâka, kiel malsamaj estis la manskriboj de ambaŭ
 
-kompanianoj de la firmo kaj kiel ĉiu el ili havis sian ka-
-
-rakterizan subskribon. En bankentrepreno la subskribo
+kompanianoj de la firmo kaj kiel ĉiu el ili havis sian karakterizan subskribon. En bankentrepreno la subskribo
 
 havas sian signifon. Permesu, ke mi subskribu min kaj la
 
@@ -10683,13 +8293,9 @@ allasis la provon kaj Boroviâka jesis, ke tiel subskribis
 
 Horálek. Poste la akuzito skribis rapide kelkajn frazojn;
 
-ankaŭ ĉi tiurilate deklaris Boroviâka, ke tio estas skrib-
+ankaŭ ĉi tiurilate deklaris Boroviâka, ke tio estas skribmaniero de Horálek.
 
-maniero de Horálek.
-
-Sed la ŝtata prokuroro postulis, ke estu invititaj skrib-
-
-fakuloj, kiu postulo estis plenumita.
+Sed la ŝtata prokuroro postulis, ke estu invititaj skribfakuloj, kiu postulo estis plenumita.
 
 Samtempe la defendanto de la akuzito proponis, ke
 
@@ -10697,26 +8303,17 @@ estu esplorata la animstato de la akuzito kaj la kunsido
 
 estu tiucele prokrastita. Post mallonga interkonsiliĝo la
 
-tribunalo rifuzis ĉi tiun proponon, tamen ĝi venigis fa-
-
-kulojn-psikiatrojn al la kunsido.
+tribunalo rifuzis ĉi tiun proponon, tamen ĝi venigis fakulojn-psikiatrojn al la kunsido.
 
 Konsiderante la cirkonstancon, ke estis jam tagmezo
 
-kaj krome pro tio, ke la aŭskultantaro estis treege emo-
+kaj krome pro tio, ke la aŭskultantaro estis treege emociita, la prezidanto interrompis la kunsidon kaj destinis,
 
-ciita, la prezidanto interrompis la kunsidon kaj destinis,
-
-ke la posttagmeza kunsido komenciĝos je la dua kaj du-
-
-ono.
+ke la posttagmeza kunsido komenciĝos je la dua kaj duono.
 
 Posttagmeze estis faritaj ampleksaj aranĝoj, ke en la
 
 asizan ĉambregon estu enlasataj nur tiuj, kiuj havas
-
-
-MI EN LI
 
 
 enirbiletojn, krome ke la ĉambrego ne estu troplenigita,
@@ -10727,19 +8324,13 @@ pri la unuaj horoj de la antaŭtagmeza kunsido kaj la
 
 publikigita akuzo konigis kelkajn nekonatajn detalojn.
 
-Antaŭ la punjuĝeja enirejo amasiĝis granda aro da pu-
+Antaŭ la punjuĝeja enirejo amasiĝis granda aro da publiko, kiu posttagmeze ankoraŭ pligrandiĝis.
 
-bliko, kiu posttagmeze ankoraŭ pligrandiĝis.
-
-En la asiza ĉambrego eksidis kelke da inspektistoj in-
-
-ter la aŭskultantaro.
+En la asiza ĉambrego eksidis kelke da inspektistoj inter la aŭskultantaro.
 
 La prezidanto malfermante la kunsidon admonis al
 
-trankvilo kaj deklaris, ke ĉiun ĝenanton tuj li elkondu-
-
-kigos. Al fakuloj-grafologoj li transdonis la skribaĵojn
+trankvilo kaj deklaris, ke ĉiun ĝenanton tuj li elkondukigos. Al fakuloj-grafologoj li transdonis la skribaĵojn
 
 faritajn antaŭtagmeze de la akuzito kaj manskribojn
 
@@ -10768,18 +8359,13 @@ ilia penado pri mono, tiel malpuraj, tiel senkarakteraj, ke
 komence mi konjektis, ke miaj novaj okuloj eble estas
 
 
-MI EN LI
-
-
 kulpaj pri tio. Sed mi meditis kaj klarigis al mi la aferon
 
 ĝuste per tia nesperteco koncerne ilian abomenecon.
 
 Tiel mi ekkonis, ke la homaj maskoj ĉirkaŭ ni ĉiam
 
-estas niaj fabrikaĵoj. Niaj pensoj estas tio, kio false de-
-
-segnas al ni la mondon ekster ni.
+estas niaj fabrikaĵoj. Niaj pensoj estas tio, kio false desegnas al ni la mondon ekster ni.
 
 Mi silentiĝis kaj Hora en mia korpo mokis min, ke mi
 
@@ -10809,9 +8395,7 @@ Hora kaj male mi atentigis lin, ke por Horálek li trinkas
 
 iom tro rapide kaj tro multe.
 
-En sia kuraĝo li proponis al mi konvinki min, kom-
-
-preneble je mia konto, kiel li diris. Tion mi komprene-
+En sia kuraĝo li proponis al mi konvinki min, kompreneble je mia konto, kiel li diris. Tion mi komprene-
 
 ble ne permesis, male mi minacis, ke tuj mi forlasos lin.
 
@@ -10822,24 +8406,17 @@ Nun mi vidis, kia malagrablaĵo povus rezulti el nia
 ŝanĝo. Sed li obstine restis ĉe sia propono koncerne la
 
 
-MI EN LI
-
-
 menciitan junan sinjorinon kaj supozis, ke mi opinias lin
 
 babilaĉulo, kiurilate li estis prava.
 
-Fine por ne inciti lin ankoraŭ pli multe kaj male ĝoj-
-
-atendante — kial mi neu tion — ke je lia konto mi rice-
+Fine por ne inciti lin ankoraŭ pli multe kaj male ĝojatendante — kial mi neu tion — ke je lia konto mi rice-
 
 vos kelke da kapofrapoj, mi faris, kiel li konsilis al mi.
 
 Kiam venis la menciita sinjorino, je mia plej granda
 
-surprizo ŝi ne donis kapofrapon al mi, male laŭ ŝia kon-
-
-duto mi ekkonis, ke ŝi ne renkontiĝas kun Hora la unu-
+surprizo ŝi ne donis kapofrapon al mi, male laŭ ŝia konduto mi ekkonis, ke ŝi ne renkontiĝas kun Hora la unu-
 
 an fojon, ĉar ŝi supozis kompreneble, ke mi estas Hora.
 
@@ -10849,9 +8426,7 @@ amindumanton kaj babiletis tiel, ke mi konsterniĝis; nun
 
 terurigis min, kion mi faras. Kaj ŝi demandis min, kial mi
 
-ne plu amas ŝin, ĉu ŝi ne plu plaĉos al mi, kaj tuj ŝi ha-
-
-vis poŝtuketon ĉe la okuloj.
+ne plu amas ŝin, ĉu ŝi ne plu plaĉos al mi, kaj tuj ŝi havis poŝtuketon ĉe la okuloj.
 
 Sinjoro prezidanto, mi rakontas plejeble koncize tion,
 
@@ -10859,15 +8434,11 @@ kion mi konsideras grava por klarigi mian pli postan
 
 konduton.
 
-Mi certigis ŝin ĝentile, sed malvarme, ke ploro ne hel-
-
-pos ŝin. ŝi volis esti trudema kaj tiam okazis io neaten-
+Mi certigis ŝin ĝentile, sed malvarme, ke ploro ne helpos ŝin. ŝi volis esti trudema kaj tiam okazis io neaten-
 
 dita:
 
-Kvankam mi iris al la menciita kunveno plena de abo-
-
-meno kaj malŝato, mi rimarkis je mia surprizo, ke miaj
+Kvankam mi iris al la menciita kunveno plena de abomeno kaj malŝato, mi rimarkis je mia surprizo, ke miaj
 
 manoj, mia korpo deziras agi tute alie, ol emis agi mia
 
@@ -10878,14 +8449,9 @@ povis esti jam nur kutimo de instinkto, ĝis inerto aŭ io
 simila, sed ĉiuokaze tio estis treege ĉagrena por mi. La
 
 
-MI EN LI
-
-
 korpo de kvindekjara diboĉulo ne povas ja pravigi sian
 
-materian tendencon per seksa instinkto; tio estus ridin-
-
-da.
+materian tendencon per seksa instinkto; tio estus ridinda.
 
 Sammomente, kiam la sinjorino proponis sin al mi —
 
@@ -10897,9 +8463,7 @@ estis. Por diri tion mallonge: La korpo, en kiu mi estis,
 
 komencis naŭzi min.
 
-La unuaj korpopartoj, kiujn mi ekvidis, estis kompre-
-
-neble la manoj. En mia emocio mi streĉis la manojn for
+La unuaj korpopartoj, kiujn mi ekvidis, estis kompreneble la manoj. En mia emocio mi streĉis la manojn for
 
 de mi por ne ektuŝi min per ili. Sed tuj mi rememoris, ke
 
@@ -10907,15 +8471,11 @@ mi ne kapablas formeti la manojn; emociita mi frotis
 
 mian frunton.
 
-Kaj tiam subite eknaŭzis min ĉi tiu frunto. Mi fortire-
-
-gis la manon, la saman manon, kiu antaŭ nelonge naŭ-
+Kaj tiam subite eknaŭzis min ĉi tiu frunto. Mi fortiregis la manon, la saman manon, kiu antaŭ nelonge naŭ-
 
 zis min.
 
-Tiel iom post iom tute konfuziĝinta, mi staris senkon-
-
-sila pro abomeno koncerne ĉiun parton de mia nova
+Tiel iom post iom tute konfuziĝinta, mi staris senkonsila pro abomeno koncerne ĉiun parton de mia nova
 
 korpo, sentante teruran naŭzon pri la korpo, en kiu mi
 
@@ -10925,16 +8485,9 @@ Mi sportulo, kiu ĉiam zorgis pri sia eksteraĵo, mi, kiu
 
 ĉiam principe kulturis mian korpon, rimarkis subite je
 
-mia teruro, en kiel senforma karnobulego mi estas en-
+mia teruro, en kiel senforma karnobulego mi estas enfermita. Mi estis scivola pri mi mem por ankoraŭ pli
 
-fermita. Mi estis scivola pri mi mem por ankoraŭ pli
-
-multe suferi kaj vidi humiligon; mi komencis ŝiri la ve-
-
-stojn de mia korpo.
-
-
-MI EN LI
+multe suferi kaj vidi humiligon; mi komencis ŝiri la vestojn de mia korpo.
 
 
 Rekonsciigis min ekkrio de la menciita sinjorino: Mi
@@ -10949,9 +8502,7 @@ Mi kaptis ŝin je la ŝultro kaj tuj ni estis ĉe la pordo. Tie
 
 mi rekonsciiĝis, revenis al la redingoto, enmanigis al ŝi
 
-paperbonbonojn, pro kiuj verdire ŝi babiletis, kaj rive-
-
-rencinte ĝentile mi malfermis la pordon al ŝi.
+paperbonbonojn, pro kiuj verdire ŝi babiletis, kaj riverencinte ĝentile mi malfermis la pordon al ŝi.
 
 Neniu el vi povas imagi, kia turmento estis por mi,
 
@@ -10963,17 +8514,13 @@ penso: Tian potencon enhavas la mono de Hora! Kaj
 
 kion celis liaj donacoj al mia edzino?
 
-Tuj mi komencis kalkuli kaj labori pri ĉiuj eblaj vari-
-
-aĵoj je la temo: mia edzino. Hora kaj mi.
+Tuj mi komencis kalkuli kaj labori pri ĉiuj eblaj variaĵoj je la temo: mia edzino. Hora kaj mi.
 
 Baldaŭ mi estis konfuzita, ke mi ekkredis tion, kion mi
 
 elpensis! Mi kredis ĉion, kio estis humiliga por mi.
 
-La sola homo, kiu povis doni klarigon al mi, estis Ho-
-
-ra. Ho, kion mi diras, mi eĉ ne deziris klarigon, mi volis
+La sola homo, kiu povis doni klarigon al mi, estis Hora. Ho, kion mi diras, mi eĉ ne deziris klarigon, mi volis
 
 simple tuj havi Horan vid’al vide. Pelegata de suspekto
 
@@ -10990,9 +8537,6 @@ mi havis ja nur mian suspekton, kiun mi kredis, sed mi
 bezonis pruvojn.
 
 
-MI EN LI
-
-
 En la koridoro mi ekpensis pri plia afero: ĉu eble
 
 Hora uzos ĉi tiun mian aferon kun la sinjorino kaj volos
@@ -11005,51 +8549,33 @@ Mi komencis kompreni, ke mi estas nun sola, ke mi
 
 estas izolita, ke ili estas du kontraŭ mi.
 
-Perforte mi trankviligis min, por ke Hora nenion ri-
+Perforte mi trankviligis min, por ke Hora nenion rimarku je mi; mi volis ludi same, kiel ili ludis.
 
-marku je mi; mi volis ludi same, kiel ili ludis.
-
-Hora ne estis plu en la dancejo. Mi konjektis, ke li per-
-
-svadis min, por ke li povu agi same. Sed mi ne dubis, ke
+Hora ne estis plu en la dancejo. Mi konjektis, ke li persvadis min, por ke li povu agi same. Sed mi ne dubis, ke
 
 Hora misuzos mian korpon. Mi demandis kelneron, sed
 
 ĉi tiu klarigis al mi mian eraron. Hora foriris, sed en
 
-mian orelon li flustris, ke li kunprenis junulinon. Ili for-
+mian orelon li flustris, ke li kunprenis junulinon. Ili forveturis per aŭtomobilo, kiun Hora mendis dum mia for-
 
-veturis per aŭtomobilo, kiun Hora mendis dum mia for-
-
-esto. Bedaŭrinde li ne sciis la numeron, sed eble la por-
-
-disto scios, kien ili forveturis.
+esto. Bedaŭrinde li ne sciis la numeron, sed eble la pordisto scios, kien ili forveturis.
 
 La pordisto palpebrumaĉis kaj diskrete li sciigis al mi
 
 la nomon de la hotelo. Mi veturis tien, sed oni neis, ke
 
-tia paro estus alveninta. Mi deklaris, ke mi venigos poli-
-
-con kaj faros skandalon. Mi legitimis min, kompreneble
+tia paro estus alveninta. Mi deklaris, ke mi venigos policon kaj faros skandalon. Mi legitimis min, kompreneble
 
 kvazaŭ Hora. Oni kondukis min en la kontoron, kie oni
 
-petis min ĝentile, ke mi atendu iom, ke oni rigardos de-
-
-nove. Mi deklaris, ke mi serĉas mian edzinon, nome
+petis min ĝentile, ke mi atendu iom, ke oni rigardos denove. Mi deklaris, ke mi serĉas mian edzinon, nome
 
 edzinon de Hora; oni ne konis Horan, mi povis do riski
 
 tion.
 
-Post longa tempo venis la hotela direktoro kaj senkul-
-
-
-MI EN LI
-
-
-pigis sin, ke ili rekonas la malagrablan situacion, sed ke
+Post longa tempo venis la hotela direktoro kaj senkulpigis sin, ke ili rekonas la malagrablan situacion, sed ke
 
 la menciita sinjoro legitimis sin kaj male deklaris mian
 
@@ -11057,9 +8583,7 @@ aserton erara, ke mi konfuzis la aferon. Sinjoro Horálek
 
 — oni citis mian nomon — laŭdire estis tre indignita kaj
 
-nun li forveturas el la hotelo kun sia edzino. Tiel mi fa-
-
-ris skandalon nur al mi mem.
+nun li forveturas el la hotelo kun sia edzino. Tiel mi faris skandalon nur al mi mem.
 
 Mi elkuris sur la trotuaron, sed ili estis jam for. Kion
 
@@ -11067,9 +8591,7 @@ mi estis faronta tiun nokton? Mi trakuris ĉiujn dancejojn
 
 unu post la alia, mi konjektis, ke tamen eble mi trovos
 
-lin. Mi travivis serion da okazaĵoj, ĉar mi ne konis ĉiu-
-
-jn homojn, kiujn konis Hora kaj mi ne supozis, kun kiuj
+lin. Mi travivis serion da okazaĵoj, ĉar mi ne konis ĉiujn homojn, kiujn konis Hora kaj mi ne supozis, kun kiuj
 
 li diboĉis. Mi ŝajnigis do esti iom ebria kaj sincere mi
 
@@ -11081,33 +8603,20 @@ Mi estus kisinta ebriulon, kiun mi ne konis kaj kiu
 
 aludis, ke mi havas ruzan kompanianon, ke mi atentu,
 
-ke li ne forveturu kune kun la kaso. Li menciis, ke li vi-
+ke li ne forveturu kune kun la kaso. Li menciis, ke li vidis lin en *Colorado*.
 
-dis lin en *Colorado*.
+Sed tie oni konis nin, tie Hora permesis al si konduton, kiu estis rakontinda. Mi ektimis, kaj kuris al *Colora-do*.
 
-Sed tie oni konis nin, tie Hora permesis al si kondu-
+Hora estis ebriega. ĉirkaŭ si li havis aron da tiel nomataj dancistinoj lasante sin ovacii de ili.
 
-ton, kiu estis rakontinda. Mi ektimis, kaj kuris al *Colora-do*.
-
-Hora estis ebriega. ĉirkaŭ si li havis aron da tiel no-
-
-mataj dancistinoj lasante sin ovacii de ili.
-
-Indignita plejaltgrade mi etendis mian pezan, masi-
-
-van manon kaj donis al li vangofrapon, nome mi donis
+Indignita plejaltgrade mi etendis mian pezan, masivan manon kaj donis al li vangofrapon, nome mi donis
 
 la vangofrapon per lia mano al mi. Pri ĉi tiu paradokso
 
 
-MI EN LI
-
-
 mi ekpensis ĝuste, kiam la frapo jam estis klakinta sur la
 
-vangon. Tial mi ekkoleris tiom, ke mi donis al mi an-
-
-koraŭ unu. ĉu vi komprenas? Mi donis ĝin al Hora, do
+vangon. Tial mi ekkoleris tiom, ke mi donis al mi ankoraŭ unu. ĉu vi komprenas? Mi donis ĝin al Hora, do
 
 al Horálek, mi Horálek kvazaŭ Hora.
 
@@ -11115,9 +8624,7 @@ Sinjoro prezidanto, konsciiĝante pri ĉi tiu komplikaĵo
 
 mi ne sciis, ĉu mi ricevis la vangofrapon, ĉu li. Imagu la
 
-situacion. Hora tuj komprenis la novan staton kaj klin-
-
-inte sin al mi, li diris impertinente: ’Nu, donu al vi! Via
+situacion. Hora tuj komprenis la novan staton kaj klininte sin al mi, li diris impertinente: ’Nu, donu al vi! Via
 
 kapo estas admirinda, ĝi eltenus eĉ pli multe.’
 
@@ -11125,17 +8632,11 @@ Mi ne povas rakonti ĉion, kio okazis. Hora proponis,
 
 ke li batos sin en la kapon per botelo de ĉampana vino
 
-kaj invitis la dancistinojn, ke ili rigardu ĉi tiun spekta-
+kaj invitis la dancistinojn, ke ili rigardu ĉi tiun spektaklon. Mi protestis kaj minacis, ke mi elrompos ĉiujn
 
-klon. Mi protestis kaj minacis, ke mi elrompos ĉiujn
+dentojn al mi, sed je nepriskribebla gajeco de la ĉeestantoj li atentigis min, ke mi havas artefaritan dentaron.
 
-dentojn al mi, sed je nepriskribebla gajeco de la ĉeestan-
-
-toj li atentigis min, ke mi havas artefaritan dentaron.
-
-Kiu kapablas imagi, kian guston mi sentis sur la lan-
-
-go?
+Kiu kapablas imagi, kian guston mi sentis sur la lango?
 
 Mi levis min, tio estas Horan, komprenu, Horan, kiu
 
@@ -11151,21 +8652,14 @@ la poŝo mi trovis ŝlosilon, mi malŝlosis lian domon,
 
 elŝarĝis Horan kaj trenis lin en lian halon.
 
-Kiam mi estis ŝlosanta lian domon, kun teruro mi re-
-
-memoris, ke tiun homon, tiun ebrian beston mi devas
-
-
-MI EN LI
+Kiam mi estis ŝlosanta lian domon, kun teruro mi rememoris, ke tiun homon, tiun ebrian beston mi devas
 
 
 verdire konduki en mian domon kaj tie lasi lin kun mia
 
 edzino.
 
-Mi meditis, kion mi faru? Mi iris reen, eltrenis lin, el-
-
-poŝigis ŝlosilon el lia poŝo, malŝlosis mian domon kaj
+Mi meditis, kion mi faru? Mi iris reen, eltrenis lin, elpoŝigis ŝlosilon el lia poŝo, malŝlosis mian domon kaj
 
 trenis Horan en mian manĝoĉambron. Li ekdormis sur
 
@@ -11175,9 +8669,7 @@ restis tie ankoraŭ pli longe, por gardi lin. Kaj kiam mi
 
 ekkonis, ke la servistino baldaŭ leviĝos, mi devis foriri el
 
-mia propra domo kaj lasi tie la ebriulon en mia aspek-
-
-to.
+mia propra domo kaj lasi tie la ebriulon en mia aspekto.
 
 Mi ne senvestigis min en lia dormoĉambro, sed mi
 
@@ -11193,26 +8685,17 @@ ke oni trovis Horan, do min. La orelon mi havis tute
 
 ruĝa, kiel mi premis ĝin al la muro.
 
-Sed Hora fariĝis prudenta. Li ŝanĝis la veston kaj an-
+Sed Hora fariĝis prudenta. Li ŝanĝis la veston kaj antaŭtagmeze proksimume je la deka li eliris; kaj ni estis
 
-taŭtagmeze proksimume je la deka li eliris; kaj ni estis
-
-prezentontaj nin jam je la oka en Motol, kie Vaôek aten-
-
-dis nin.
+prezentontaj nin jam je la oka en Motol, kie Vaôek atendis nin.
 
 Tuj kiam Hora eliris, mi aliĝis.
 
-Li vort-atakis min: ’ĉu vi ne povis razi vin? Vi malho-
-
-norigas min. ĉu vi ne alkutimiĝis ŝanĝi matene la ves-
+Li vort-atakis min: ’ĉu vi ne povis razi vin? Vi malhonorigas min. ĉu vi ne alkutimiĝis ŝanĝi matene la ves-
 
 ton? ĉu vi opinias, ke mi toleros, ke vi malhonorigu min
 
 en tiel detruita vesto?’
-
-
-MI EN LI
 
 
 Estante kolera mi respondis, ke mi sentas plezuron,
@@ -11229,9 +8712,7 @@ nur: ’Vi meritus tion pro via konduto.’
 
 Mi silentis do kaj rapidis ŝanĝi la veston. Bonvolu ne
 
-forgesi, kiel nun, tiel ankaŭ pli poste, ke ni estis recipro-
-
-ke tre bone konataj, loĝante apude ni konis reciproke
+forgesi, kiel nun, tiel ankaŭ pli poste, ke ni estis reciproke tre bone konataj, loĝante apude ni konis reciproke
 
 niajn loĝejojn kaj unu la kutimojn de la alia.
 
@@ -11245,13 +8726,9 @@ menciis seke, ke mi iru senprokraste en la kontoron, kie
 
 atendis min laboro, nome lia laboro.
 
-Mi atentigis lin, ke mi ne scipovas subskribi lian no-
+Mi atentigis lin, ke mi ne scipovas subskribi lian nomon. Ni iris do kune. Interesa posttagmeza laboro, dum
 
-mon. Ni iris do kune. Interesa posttagmeza laboro, dum
-
-kiu ni estis devigataj paroli kun kelkaj el niaj bonaj kli-
-
-entoj, igis nin forgesi parton de la miskompreno. Hora
+kiu ni estis devigataj paroli kun kelkaj el niaj bonaj klientoj, igis nin forgesi parton de la miskompreno. Hora
 
 konvinkis min, ke Polavskë verŝajne ne estos trovebla pli
 
@@ -11266,24 +8743,17 @@ tamen arestos iun tagon kaj ke ne estus agrable por ni,
 sidi kun li en malliberejo. Finfine mi konvinkiĝis, ke plej
 
 
-MI EN LI
-
-
 oportune estos iri denove al Motol nur matene, kiam
 
 Polavskë certe atendos nin.
 
 Per manpremo ni promesis al ni reciproke, ke ambaŭ
 
-ni kondutos bonmore, vespere ni iros manĝi en iun ne-
-
-konatan gastejon, kaj entute, ke ambaŭ ni kondutos
+ni kondutos bonmore, vespere ni iros manĝi en iun nekonatan gastejon, kaj entute, ke ambaŭ ni kondutos
 
 dece.
 
-Antaŭ sia foriro Hora atentigis min, ke mi devas kun-
-
-preni monon; li havis neniun plu.
+Antaŭ sia foriro Hora atentigis min, ke mi devas kunpreni monon; li havis neniun plu.
 
 Ni kondutis dece, baldaŭ ni iris hejmen por dormi.
 
@@ -11297,17 +8767,11 @@ Matene ni estis ĝustatempe en Motol, eĉ antaŭ la oka,
 
 sed Polavskë ne ĉeestis. Mi estis jam maltrankvila; sed
 
-Hora kvietigis min, ke mi ne zorgu senkaŭze, ĉar mi vi-
+Hora kvietigis min, ke mi ne zorgu senkaŭze, ĉar mi vidis ja, kiel prudente li kondutis hieraŭ dum la tuta tago.
 
-dis ja, kiel prudente li kondutis hieraŭ dum la tuta tago.
+Hodiaŭ ni trovos Polavskën kaj ĉio estos reordigita. Kelke da tempo li parolis al mi kaj mi miris pri mi mem, ke
 
-Hodiaŭ ni trovos Polavskën kaj ĉio estos reordigita. Kel-
-
-ke da tempo li parolis al mi kaj mi miris pri mi mem, ke
-
-tamen mi ne estas tiel malbela, mi komencis esti kon-
-
-tenta pri mia eksteraĵo. Mi opiniis, ke la spertoj de Hora
+tamen mi ne estas tiel malbela, mi komencis esti kontenta pri mia eksteraĵo. Mi opiniis, ke la spertoj de Hora
 
 kun mia fizika personeco ne estas forĵetindaj. Mi timas,
 
@@ -11317,13 +8781,7 @@ Ni estis iom scivolaj; nu, ni hardiĝis iom. Ni iris al la
 
 borso, kie mi efektivigis kelkajn nenecesajn vendojn.
 
-Tial Hora atentigis min kaŝe, ke mi ĉesu, ĉar miaj speku-
-
-
-MI EN LI
-
-
-lacioj kostos pli multe, ol se ni estus tutan nokton en
+Tial Hora atentigis min kaŝe, ke mi ĉesu, ĉar miaj spekulacioj kostos pli multe, ol se ni estus tutan nokton en
 
 *Colorado*; verdire li estis prava.
 
@@ -11341,25 +8799,17 @@ kie amasiĝis sufiĉe da laboro, ĉar Hora ne kapablis
 
 aranĝi aferojn de mia fako; li simple ne scipovis tion. Mi
 
-ordonis do, transporti miajn fakajn aferojn en la ĉam-
+ordonis do, transporti miajn fakajn aferojn en la ĉambron de Hora kaj tie mi klopodis mem finaranĝi ĉion.
 
-bron de Hora kaj tie mi klopodis mem finaranĝi ĉion.
-
-Hora uzis oportunan momenton por foriri, promesan-
-
-te, ke li revenos baldaŭ. Sed mi atendis du horojn kaj
+Hora uzis oportunan momenton por foriri, promesante, ke li revenos baldaŭ. Sed mi atendis du horojn kaj
 
 timis, ke li faros ian malhonestaĵon je mia fizika konto.
 
 Ne okazis tiel; li diris al mi, ke li estis en Koôíĝe ĉe
 
-Polavskë. Li promesis al Polavskë du hundojn por eks-
+Polavskë. Li promesis al Polavskë du hundojn por eksperimentoj, kvazaŭ por rekompenci lin, ke li efektivigis
 
-perimentoj, kvazaŭ por rekompenci lin, ke li efektivigis
-
-tiun interŝanĝon de ni. Sed mi ne vidis plu ian avanta-
-
-ĝon en tiu interŝanĝo. Fine estis al mi egale, kion opinias
+tiun interŝanĝon de ni. Sed mi ne vidis plu ian avantaĝon en tiu interŝanĝo. Fine estis al mi egale, kion opinias
 
 Hora, ĉefe interesis min, ke li alportis al mi sciigon de
 
@@ -11376,18 +8826,13 @@ Polavskë deziris lupohundojn, kiun rason li konsideris
 plej inteligenta kaj ankaŭ tial, ĉar li efektivigis jam kun
 
 
-MI EN LI
-
-
 lupohundoj kelke da eksperimentoj, kiuj kontentigis lin.
 
 Li deziris prilabori la saman materialon.
 
 Ankaŭ tiun vesperon Hora kondutis prudente, sed
 
-nur ĉar mi observis lin ĉiam kaj eĉ por momento ne for-
-
-iris de li. Li faris ĉion eblan por forkuri, ja li plendis eĉ pri miaj bonaj kaj konservitaj vivofortoj; sed nenio helpis lin. Mi kondukis lin en mian hejmon kaj, mi konfe-
+nur ĉar mi observis lin ĉiam kaj eĉ por momento ne foriris de li. Li faris ĉion eblan por forkuri, ja li plendis eĉ pri miaj bonaj kaj konservitaj vivofortoj; sed nenio helpis lin. Mi kondukis lin en mian hejmon kaj, mi konfe-
 
 sas, mi mem ne kapablis ekdormi.
 
@@ -11395,19 +8840,13 @@ Mi rememoris pri kelkio kaj timis pri mia edzino. ŝi
 
 komencis resaniĝi kaj denove ŝi estis alloga kaj iom pli
 
-gaja. Mallonge, dum la tuta nokto mi ne fermis eĉ oku-
-
-lon.
+gaja. Mallonge, dum la tuta nokto mi ne fermis eĉ okulon.
 
 Matene mi eliris kiel unua, estis belega tago, do mi
 
-promenis. Fine eliris ankaŭ Hora kaj mi instigis lin rapi-
+promenis. Fine eliris ankaŭ Hora kaj mi instigis lin rapidi, por ke ni denove ne venu tro malfrue. Kiam ni prok-
 
-di, por ke ni denove ne venu tro malfrue. Kiam ni prok-
-
-simiĝis al la brikfarejo, ni ekvidis malsupre aron da ho-
-
-moj, maldekstre de la barejo, en kiu staris la budo de
+simiĝis al la brikfarejo, ni ekvidis malsupre aron da homoj, maldekstre de la barejo, en kiu staris la budo de
 
 Polavskë. Mi ekpensis: Kio okazis tie? Ni plirapidigis
 
@@ -11417,18 +8856,13 @@ de la flanko, li estis pala.
 
 Mi demandis iun homon, kial la homoj atendas ĉi tie:
 
-Li respondis mallonge: ’Hodiaŭ en la nokto hundoj dis-
-
-ŝiregis Vaôek-on!’
+Li respondis mallonge: ’Hodiaŭ en la nokto hundoj disŝiregis Vaôek-on!’
 
 Mi ekŝanceliĝis, sed Hora estis tiel forta, ke li apogis
 
 min. Ni ne iris al Motol; verdire mi ne scias, kiel mi iris
 
 kaj kien Hora kondukis min. La krepusko ĉirkaŭis min
-
-
-MI EN LI
 
 
 kaj mi estis senvola. Mi rekonsciiĝis nur en ia gastejeto
@@ -11447,17 +8881,13 @@ el la agado de Polavskë ni scias verdire nenion, krom la
 
 rezultoj.
 
-Li kondukis min al la kontoro kaj lasis min tie. Li di-
-
-ris, ke mi estas tro emociita, ke mi ripozu kaj atendu
+Li kondukis min al la kontoro kaj lasis min tie. Li diris, ke mi estas tro emociita, ke mi ripozu kaj atendu
 
 iom. Li ordonis alporti tagmanĝon al mi kaj — kiel mi
 
 eksciis pli poste — al niaj oficistoj li klarigis, ke dum ia
 
-spekulacio en Vieno mi suferis ian perdon, kiu konster-
-
-nis min.
+spekulacio en Vieno mi suferis ian perdon, kiu konsternis min.
 
 Posttagmeze mi rekonsciiĝis iom kaj eklaboris por
 
@@ -11465,9 +8895,7 @@ trankviliĝi. Neniu ĝenis min, oni permesis al neniu eniri
 
 mian ĉambron, mi havis do necesan trankvilon. Hora
 
-posttagmeze ne montriĝis plu kaj proksimume je la kvi-
-
-na li telefonis, ke li volas diri ion al mi, ke mi venu hej-
+posttagmeze ne montriĝis plu kaj proksimume je la kvina li telefonis, ke li volas diri ion al mi, ke mi venu hej-
 
 men, proksimume je la sepa vespere.
 
@@ -11482,9 +8910,6 @@ efektivigis per ili sufiĉe bonajn spekulaciojn.
 Hora en mia korpo forveturis Vienon.
 
 
-MI EN LI
-
-
 Kion mi estis faronta? Mi estis apatia, mi iris dormi.
 
 Matene la sekvintan tagon, tio estas jaŭde, vekis min la
@@ -11495,19 +8920,13 @@ kviete, ĉar almenaŭ Hora estis for kaj mia edzino ne estis
 
 do en danĝero.
 
-La afero estas stranga kaj mi timas, ke vi ne kompre-
+La afero estas stranga kaj mi timas, ke vi ne komprenas min. Ni iradis ja kun mia edzino tre ofte danci, ni
 
-nas min. Ni iradis ja kun mia edzino tre ofte danci, ni
-
-vizitis societojn kaj mi ne estis ĵaluza. Nun kvazaŭ fre-
-
-neze mi amis mian edzinon, mi sopiris ŝin, mi volis po-
+vizitis societojn kaj mi ne estis ĵaluza. Nun kvazaŭ freneze mi amis mian edzinon, mi sopiris ŝin, mi volis po-
 
 sedi ŝin. Mi meditis, kiel mi kondutus nun al ŝi, kiel mi
 
-estimus ĉiun momenton de ŝia ĉeesto. Mi sopiris tiel fre-
-
-neze mian edzinon, kiu — se mi rigardis miajn fremdajn
+estimus ĉiun momenton de ŝia ĉeesto. Mi sopiris tiel freneze mian edzinon, kiu — se mi rigardis miajn fremdajn
 
 manojn — verdire ne plu apartenis al mi. Frumatene mi
 
@@ -11517,31 +8936,19 @@ Mi fuĝis hejmen, sed la hejmo ne apartenis plu al mi,
 
 mi estis eksigita el ĝi kaj ne sciis por kiom longe.
 
-Je tagmezo venis la polico al mi. Kiel mi eksciis pli po-
-
-ste, sendis ĝin al mi mia edzino kaj sinjoro doktoro Ko-
+Je tagmezo venis la polico al mi. Kiel mi eksciis pli poste, sendis ĝin al mi mia edzino kaj sinjoro doktoro Ko-
 
 vaĝík; fine tio ne estas tiel grava. Oni demandis min, kie
 
-mi aĉetis la hundojn, kiujn mi donacis al Polavskë. Kom-
-
-preneble oni demandis min, kial mi donacis ilin al li.
+mi aĉetis la hundojn, kiujn mi donacis al Polavskë. Kompreneble oni demandis min, kial mi donacis ilin al li.
 
 Mi estis en tre ĉagrena situacio, mi forgesis priparoli
 
 tion kun Hora kaj mi timis, ke ni diros ĉiu ion alian. Tial
 
-mi elturniĝadis, kiel estis eble, sed efektive mi enplek-
+mi elturniĝadis, kiel estis eble, sed efektive mi enplektiĝadis.
 
-tiĝadis.
-
-Se mi estus sciinta almenaŭ, kie Hora aĉetis la hun-
-
-
-MI EN LI
-
-
-dojn, sed eĉ tion mi ne sciis. La afero finiĝis tiel, ke oni
+Se mi estus sciinta almenaŭ, kie Hora aĉetis la hundojn, sed eĉ tion mi ne sciis. La afero finiĝis tiel, ke oni
 
 invitis min al la komisarejo, kien mi estis venonta tuj
 
@@ -11551,9 +8958,7 @@ Mi havis novan zorgon, ke mi devos lasi la edzinon
 
 nekontrolata.
 
-Mi ekmeditis, kion ŝi eble faras nun, ŝi estis ja apar-
-
-tigita de mi nur per muro. Mi aŭskultis kaj aŭdis apude
+Mi ekmeditis, kion ŝi eble faras nun, ŝi estis ja apartigita de mi nur per muro. Mi aŭskultis kaj aŭdis apude
 
 muzikon, radion. Mi decidiĝis, ke mi demandos, ĉu ŝi
 
@@ -11594,9 +8999,6 @@ Mi ne kapablis regi min kaj diris proksimume jenon:
 ’Ne koleru pri mi, ke la duan fojon mi ĝenas vin.’ Aŭ
 
 
-MI EN LI
-
-
 eble iel simile mi diris tion. Forgesinte mian ŝanĝon, mi
 
 opiniis tion ironie. Mia edzino reagis kompreneble je
@@ -11607,9 +9009,7 @@ ne povis diri ĉion al ŝi. Mi demandis pri la nomo de tiu
 
 homo, kiu vendis la hundojn al mi. Nekompreneme ŝi
 
-rigardis min kaj ankaŭ sinjoro doktoro Kovaĝík verŝaj-
-
-ne ne pensis tro bone pri mi.
+rigardis min kaj ankaŭ sinjoro doktoro Kovaĝík verŝajne ne pensis tro bone pri mi.
 
 Mi faris plian eraron. Timante, ke mia edzino restos
 
@@ -11621,45 +9021,28 @@ Mi observis mian edzinon kaj sinjoron doktoron kaj
 
 serĉis novan danĝeron. Mi estis jam tiom terurigita, ke
 
-mi serĉis danĝeron ĉie, ja mi suspektis eĉ sinjoron dok-
-
-toron Kovaĝík.
+mi serĉis danĝeron ĉie, ja mi suspektis eĉ sinjoron doktoron Kovaĝík.
 
 Perdinte prudenton mi petis lin, ke li iru kun mi en la
 
-apudan ĉambron. Mi volis forigi lin iamaniere kaj supo-
+apudan ĉambron. Mi volis forigi lin iamaniere kaj supozis, ke tio estos facila afero. Fine tamen li plenumis mian
 
-zis, ke tio estos facila afero. Fine tamen li plenumis mian
+ripetitan peton kaj akompanis min en la apudan ĉambron, kie mi proponis al li monon por vojaĝo eksterlan-
 
-ripetitan peton kaj akompanis min en la apudan ĉam-
+den. Eble mi diris al li ’por studvojaĝo’, mi ne rememoras plu, mia kapo turniĝis. Sinjoro doktoro rifuzis.
 
-bron, kie mi proponis al li monon por vojaĝo eksterlan-
+ŝanceliĝante mi eliris el mia propra domo kaj reakirinte iom da prudento mi telegrafis al Hora, ĉar mi sciis,
 
-den. Eble mi diris al li ’por studvojaĝo’, mi ne rememo-
-
-ras plu, mia kapo turniĝis. Sinjoro doktoro rifuzis.
-
-ŝanceliĝante mi eliris el mia propra domo kaj reaki-
-
-rinte iom da prudento mi telegrafis al Hora, ĉar mi sciis,
-
-kie li loĝas kutime dum siaj vizitoj en Vieno, ke li reve-
-
-nu senprokraste.
+kie li loĝas kutime dum siaj vizitoj en Vieno, ke li revenu senprokraste.
 
 En la polica direkcio mi ne restis, oni ne arestis min;
-
-
-MI EN LI
 
 
 mi konjektas, ke ili mem ne sciis ankoraŭ, kion ili celas
 
 rilate min. Ili invitis min por la venonta tago matene.
 
-Ankaŭ ĉi tiu matena demandesploro restis senrezul-
-
-ta.
+Ankaŭ ĉi tiu matena demandesploro restis senrezulta.
 
 Mi rapidis hejmen, kien jam estis revenonta Hora el
 
@@ -11669,19 +9052,13 @@ tio, ke mi ne sciis indiki al li ian gravan motivon, pro kiu
 
 mi telegrafe revenigis lin.
 
-Male mi klarigis al li la gravecon de la situacio koncer-
+Male mi klarigis al li la gravecon de la situacio koncerne min, ke estos necese klarigi ion, ke mi ne toleros, ke
 
-ne min, ke estos necese klarigi ion, ke mi ne toleros, ke
-
-li loĝu plu en mia domo, ke mi ne intencas ludi ian kom-
-
-edion en lia korpo. Mi diris al li tutan serion da malag-
+li loĝu plu en mia domo, ke mi ne intencas ludi ian komedion en lia korpo. Mi diris al li tutan serion da malag-
 
 rablaĵoj. Klare mi esprimis, ke mi ne toleros, ke li vivu
 
-kun mia edzino kaj akiru ŝin sub la masko de mia kor-
-
-po. Eble, ke mi kriis.
+kun mia edzino kaj akiru ŝin sub la masko de mia korpo. Eble, ke mi kriis.
 
 Malvarme kaj moke li minacis min: ’Se vi kondutos
 
@@ -11695,9 +9072,7 @@ Li ne bezonis deklari, ke li ne rememoras pri io, li ne
 
 sentis neceson aserti, ke ne plaĉas al li en mia korpo, kaj
 
-ne estis necese, ke li rezignu je mia edzino, ĉar mia ed-
-
-zino estis bela kaj dezirinda.
+ne estis necese, ke li rezignu je mia edzino, ĉar mia edzino estis bela kaj dezirinda.
 
 Mi antaŭvidis, ke mi ne venkos, se mi kontraŭbatalos
 
@@ -11706,12 +9081,7 @@ lin rekte.
 Li forlasis min atentigante, ke mi ne faru sensencaĵojn
 
 
-MI EN LI
-
-
-kaj klopodu alkutimiĝi al mia nova situacio, ke li ne for-
-
-gesas min, ja eĉ pripensas, kiel fari mian situacion tole-
+kaj klopodu alkutimiĝi al mia nova situacio, ke li ne forgesas min, ja eĉ pripensas, kiel fari mian situacion tole-
 
 rebla.
 
@@ -11723,9 +9093,7 @@ iajn antipatiojn kontraŭ mi. Li diris, ke ni devas trankvile
 
 atendi ian pluan intervenon, kiu eble venos.
 
-Li lasis min hejme kaj forveturis al Praha. Mi ne man-
-
-ĝis, mi ne havis apetiton. Mi meditis pri mia nova situa-
+Li lasis min hejme kaj forveturis al Praha. Mi ne manĝis, mi ne havis apetiton. Mi meditis pri mia nova situa-
 
 cio kaj klopodis trovi ian elirejon.
 
@@ -11737,43 +9105,28 @@ reveni en niajn proprajn korpojn. Mi antaŭvidis, ke la
 
 edzinon mi ne lasos al li; al ĉiu alia, nur ne al li.
 
-Plej multe suferigis min ĝuste la ebleco, ke mia edzi-
-
-no povus ami ĉi tiun monstron, ke ŝi povus aparteni al
+Plej multe suferigis min ĝuste la ebleco, ke mia edzino povus ami ĉi tiun monstron, ke ŝi povus aparteni al
 
 li. Mi volis ŝirmi ŝntraŭ humiligo, senhonorigo, ĉar
 
-kio alia estas tio, se tria persono sub masko de mia kor-
+kio alia estas tio, se tria persono sub masko de mia korpo entrudas sin en niajn plej delikatajn intimaĵojn.
 
-po entrudas sin en niajn plej delikatajn intimaĵojn.
+ĉi tiun problemon mi nepre ne kapablis solvi. Li estas en mia korpo, do ne temus pri peko de mia edzino.
 
-ĉi tiun problemon mi nepre ne kapablis solvi. Li es-
-
-tas en mia korpo, do ne temus pri peko de mia edzino.
-
-Eble, ke ne temus ankaŭ pri senhonorigo, se ŝi aparte-
-
-nus al mia korpo.
+Eble, ke ne temus ankaŭ pri senhonorigo, se ŝi apartenus al mia korpo.
 
 Tuj mi rifuzis ĉi tiun opinion, tio estis malhonestaĵo;
 
 mi ĉesis rigardi la korpon de Hora kvazaŭ la mian.
 
 
-MI EN LI
-
-
 Iom post iom mi vidis en li similulon, kiu uzas sian
 
 similecon nur por trompadi nin.
 
-Posttagmeze mi ne trovis Horan en la kontoro. Vespe-
+Posttagmeze mi ne trovis Horan en la kontoro. Vespere li ne venis hejmen; mi forveturis denove al Praha kaj
 
-re li ne venis hejmen; mi forveturis denove al Praha kaj
-
-serĉis lin. Mi trovis lin en *Colorado*, kie li diboĉis en nepriskribebla maniero. Kion oni faris tie, estis plej abome-
-
-naj orgioj, kompreneble en apartigita ejo, ĉar cetere ili
+serĉis lin. Mi trovis lin en *Colorado*, kie li diboĉis en nepriskribebla maniero. Kion oni faris tie, estis plej abomenaj orgioj, kompreneble en apartigita ejo, ĉar cetere ili
 
 estas tie tre decaj kaj ŝatas konvenajn formojn.
 
@@ -11787,9 +9140,7 @@ prudenta.
 
 Tiel mi fariĝis fine atestanto de ĉiuj abomenaĵoj, kiujn
 
-fari mi neniam estus kuraĝinta sen perdo de la lasta io-
-
-meto da respekto al mi mem. Hora diboĉis je konto de
+fari mi neniam estus kuraĝinta sen perdo de la lasta iometo da respekto al mi mem. Hora diboĉis je konto de
 
 mia korpo.
 
@@ -11797,13 +9148,9 @@ Dum la unuaj antaŭtagmezaj horoj mi veturigis lin
 
 hejmen komplete ebrian.
 
-Kia estis mia animstato, kiam mi estis devigata trans-
+Kia estis mia animstato, kiam mi estis devigata transdoni lin, kvazaŭ min, en tiel abomena stato al mia kara
 
-doni lin, kvazaŭ min, en tiel abomena stato al mia kara
-
-edzino, kiu nur antaŭ nelonge leviĝis de la lito, kiu po-
-
-vis esti ŝia mortlito.
+edzino, kiu nur antaŭ nelonge leviĝis de la lito, kiu povis esti ŝia mortlito.
 
 Mi vidis, kiel mi detruas ŝian imagon pri mi, kiel ŝi
 
@@ -11812,9 +9159,6 @@ devas plej baldaŭ malestimi min. Mi rimarkis, kiel mia
 konduto ŝajnas tute komprenebla al ŝi post ĉio, post nia
 
 ĝisnuna kvieta, paca kaj deca kunvivo.
-
-
-MI EN LI
 
 
 Malamo kreskanta ĝis terurigaj dimensioj plenigis
@@ -11829,9 +9173,7 @@ post mi kvazaŭ post Horálek, kvazaŭ post la edzo de mia
 
 edzino kaj, ke ne estus plu eble reveni kaj konfesi.
 
-Se mi ne estus pensinta pri ĉi tio, mi estus mortigin-
-
-ta lin jam sabate.
+Se mi ne estus pensinta pri ĉi tio, mi estus mortiginta lin jam sabate.
 
 Mi rimarkis krome, ke mia edzino opinias min kulpa
 
@@ -11853,24 +9195,15 @@ Sed en la kontoro kaptis min ideo: mi ne komprenis,
 
 kiel mi povis tiel longe ne atenti ĝin. Okazas jam tiel.
 
-Kompreneble de post tiu momento mi estis tuj kon-
+Kompreneble de post tiu momento mi estis tuj konvinkita, ke Hora estis en Vieno por havigi monon al si,
 
-vinkita, ke Hora estis en Vieno por havigi monon al si,
+respektive, ke li kaŝis sian havaĵon transportinte ĝin aliloken, por ke mi ne plu povu malhelpi lin kaj li estu ĉiu-
 
-respektive, ke li kaŝis sian havaĵon transportinte ĝin ali-
-
-loken, por ke mi ne plu povu malhelpi lin kaj li estu ĉiu-
-
-flanken libera. Li kapablis legitimi sin per la necesaj do-
-
-kumentoj, la subskribo estis la lia. Multon li havis certe
+flanken libera. Li kapablis legitimi sin per la necesaj dokumentoj, la subskribo estis la lia. Multon li havis certe
 
 deponita ankaŭ en devizoj. Simple li faris ordon, por ke
 
 nenio restu por mi.
-
-
-MI EN LI
 
 
 Kun tuta minacemo aperis antaŭ mi la timego, ke li
@@ -11891,17 +9224,11 @@ Komence li mokridis min kaj incitis, aĉetadis diversajn
 
 aĵojn al si — kaj mi vidis kun teruro, ke li havigas al si
 
-vojaĝnecesaĵojn. Sur Pĝíkopy li postulis, ke mi ne mal-
+vojaĝnecesaĵojn. Sur Pĝíkopy li postulis, ke mi ne malhelpu lin plu, ĉar ekzistas aferoj, kiujn mi ne bezonas
 
-helpu lin plu, ĉar ekzistas aferoj, kiujn mi ne bezonas
+vidi. Li aldonis, ke temas pri ia delikataĵo, pri iu sinjorino, kiel li diris. Mi protestis, ke li dubindigu mian no-
 
-vidi. Li aldonis, ke temas pri ia delikataĵo, pri iu sinjori-
-
-no, kiel li diris. Mi protestis, ke li dubindigu mian no-
-
-mon per siaj dubindaj erotikaĵoj. Mi postulis, ke li aten-
-
-du, ĝis li ree estos en sia korpo.
+mon per siaj dubindaj erotikaĵoj. Mi postulis, ke li atendu, ĝis li ree estos en sia korpo.
 
 Li skuis la ŝultrojn: ’ĉu mi scias, kiel vi mastrumas
 
@@ -11909,9 +9236,7 @@ tion, kio estas ankoraŭ mia bonhavo?’
 
 Ekscitegite mi diris al li, ke vane li klopodas, ĉar mi ne
 
-forlasos lin plu. Sed mi invitis lin al mallonga interparo-
-
-lo, kiu eble povus rezultigi interkonsenton.
+forlasos lin plu. Sed mi invitis lin al mallonga interparolo, kiu eble povus rezultigi interkonsenton.
 
 Tuj li konsentis, atendante ian proponon de mi. Mi
 
@@ -11922,9 +9247,6 @@ intertempe mi nenion entreprenos, sed kondiĉe, ke ni
 likvidu la kompanion.
 
 Li estis agrable surprizita, sed li imagis la aferon laŭ
-
-
-MI EN LI
 
 
 sia maniero. Li proponis milionon da kronoj al mi, se mi
@@ -11943,15 +9265,11 @@ Post mallonga medito li akceptis mian proponon.
 
 Ne necesis io plia, ol ke li subskribu al mi kelke da
 
-blankodokumentoj, mi mem estis plenigonta ilin laŭbe-
-
-zone. Koncerne subskribadon en pli posta tempo ni
+blankodokumentoj, mi mem estis plenigonta ilin laŭbezone. Koncerne subskribadon en pli posta tempo ni
 
 aranĝus jam iel la aferon.
 
-Li estis eĉ kontenta kaj deklaris, ke li ĝojas, ke mi tran-
-
-kviliĝis.
+Li estis eĉ kontenta kaj deklaris, ke li ĝojas, ke mi trankviliĝis.
 
 Ni venis al la Václav-placo kaj tie li intencis adiaŭi
 
@@ -11961,9 +9279,7 @@ ke li devas aĉeti ankoraŭ ion. Ni disiris do. Sed mi ne iris
 
 tro longe kaj ekpensis, ĉu mi povas fidi lin. Mi iris do
 
-reen kiel eble plej rapide kaj postiris lin sur la maldek-
-
-stra flanko de Václav-placo.
+reen kiel eble plej rapide kaj postiris lin sur la maldekstra flanko de Václav-placo.
 
 Mi konvinkiĝis, ke mi estis prava, nefidante lin. Post
 
@@ -11971,16 +9287,11 @@ kelke da minutoj mi ekvidis lin; li ne estis sola, brakon
 
 en brako li kondukis mian edzinon. Mia koro volis ĉesi
 
-bati, nigraj cirkloj turniĝis antaŭ miaj okuloj. Tio do es-
-
-tas tiu aludita delikataĵo.
+bati, nigraj cirkloj turniĝis antaŭ miaj okuloj. Tio do estas tiu aludita delikataĵo.
 
 Mi perdis prudenton kaj rapide ekiris renkonte al ili.
 
 Sed antaŭ mi ili eniris konatan vendejon de virina tolaĵo.
-
-
-MI EN LI
 
 
 Mi timis eniri post ili. Mi timis fari skandalon dum
@@ -11993,27 +9304,19 @@ Mi staris antaŭ la elmontra fenestro kaj observis, kiel
 
 ili aĉetis tie silkan tolaĵon kaj aliajn virinajn necesaĵojn; senpove mi rigardis tra la fenestro, kiel li kondutis kun
 
-parvenua intimeco kaj kompreneble kvazaŭ li estus aĉe-
+parvenua intimeco kaj kompreneble kvazaŭ li estus aĉetanta tiajn aĵojn jam kelkan fojon kun mia edzino.
 
-tanta tiajn aĵojn jam kelkan fojon kun mia edzino.
-
-Li konsilis ŝin kliniĝinte familiare al ŝi kaj en unu mo-
-
-mento ŝi eĉ frapis lin, ke li ne parolu tro multe. Mi ri-
+Li konsilis ŝin kliniĝinte familiare al ŝi kaj en unu momento ŝi eĉ frapis lin, ke li ne parolu tro multe. Mi ri-
 
 markis, kiel li rigardas en ŝian dekoltaĵon per rigardo de
 
 posedanto. Mi rimarkis, kiel li elektis por ŝi helverdan
 
-kombinaĵon kudritan el malpli ol dudek kvadrataj deci-
-
-metroj da silko.
+kombinaĵon kudritan el malpli ol dudek kvadrataj decimetroj da silko.
 
 Mi furiozis. Mi timis, ke mi frakasos la vitran tabulon
 
-kaj ekkrios en lian vizaĝon teruran veron, ke li estas ŝte-
-
-listo, kia ankoraŭ ne naskiĝis en la mondo. Li ŝtelis al mi
+kaj ekkrios en lian vizaĝon teruran veron, ke li estas ŝtelisto, kia ankoraŭ ne naskiĝis en la mondo. Li ŝtelis al mi
 
 la koron, li ŝtelis al mi la edzinon.
 
@@ -12029,17 +9332,10 @@ min malestime kaj de supre, iel grandsinjore, kaj mi ne
 
 mortigis lin tuj, ne, mi salutis ilin.
 
-Ili eniris aŭtomobilon kaj forveturis, eĉ ne rerigardin-
-
-te.
+Ili eniris aŭtomobilon kaj forveturis, eĉ ne rerigardinte.
 
 
-MI EN LI
-
-
-Mi ne rememoras, kion mi faris poste, mi ne rememo-
-
-ras, kie mi estis vespere, mi scias, ke mi serĉis ilin, sed ke ili ne estis hejme. Mi veturadis tra Praha, traserĉis gas-tejojn, mi ne trovis ilin. Versimile ili estis en iu teatro. Mi antaŭvidis kaj konsolis min per tio, ke ili ne restos tro
+Mi ne rememoras, kion mi faris poste, mi ne rememoras, kie mi estis vespere, mi scias, ke mi serĉis ilin, sed ke ili ne estis hejme. Mi veturadis tra Praha, traserĉis gas-tejojn, mi ne trovis ilin. Versimile ili estis en iu teatro. Mi antaŭvidis kaj konsolis min per tio, ke ili ne restos tro
 
 longe ekstere. La edzino tamen ankoraŭ ne estis tute
 
@@ -12082,18 +9378,11 @@ kuŝas malsupre. Mi diris al mi: Se li estus suprenirinta,
 li ne estus reveninta malsupren. La edzino estis ankoraŭ
 
 
-MI EN LI
-
-
-malforta, nur tial verŝajne ŝi ne permesis al li dormi su-
-
-pre.
+malforta, nur tial verŝajne ŝi ne permesis al li dormi supre.
 
 Mi ekdormis poste sur kanapo estante tute elĉerpita.
 
-Estis dimanĉo. Bruego de aŭtomobilo vekis min; mi el-
-
-kuris sur balkonon, sed ekvidis nur polvon post la aŭto-
+Estis dimanĉo. Bruego de aŭtomobilo vekis min; mi elkuris sur balkonon, sed ekvidis nur polvon post la aŭto-
 
 mobilo.
 
@@ -12129,19 +9418,11 @@ Mi revenis en la ĉambron, ĵetis min sur la plankon,
 
 deŝiris vestojn de la korpo kaj mordis miajn fingrojn. Mi
 
-sentis, kiel senpova mi estas kaj kiel vana estas mia klo-
-
-podo.
+sentis, kiel senpova mi estas kaj kiel vana estas mia klopodo.
 
 Mi svenis. Kiam mi rekonsciiĝis estis senbrue apude.
 
-La servistino ne volis enlasi min, cetere, kial mi rakon-
-
-
-MI EN LI
-
-
-tu tion la duan fojon al vi, ĉio estas vero, kion jen la atestantino, la servistino, rakontis al vi.
+La servistino ne volis enlasi min, cetere, kial mi rakontu tion la duan fojon al vi, ĉio estas vero, kion jen la atestantino, la servistino, rakontis al vi.
 
 Hora elĵetis min kaj per tio estis finita la afero inter ni.
 
@@ -12151,9 +9432,7 @@ la vespermanĝo, ĉiujn iliajn alridetojn; mi ne aŭdis, kion
 
 ili flustris inter si, sed mia edzino milde forŝovadis lin kaj ŝiaj vangoj ruĝiĝis pro honto.
 
-Mi vidis, kiel familiare li premis ŝin al si, kiam ili dan-
-
-cis.
+Mi vidis, kiel familiare li premis ŝin al si, kiam ili dancis.
 
 Mi vidis tra la fenestro, kiel mia edzino pro efiko de la
 
@@ -12171,13 +9450,9 @@ Ili eliris el la manĝoĉambro, estingis la lumon kaj post
 
 nelonge eklumiĝis la dormoĉambro en la unua etaĝo.
 
-Mi alportis ŝtupetaron el la korto kaj ankoraŭ ĝusta-
+Mi alportis ŝtupetaron el la korto kaj ankoraŭ ĝustatempe mi estis suprenŝtupinta. Mia edzino ŝanĝis le ve-
 
-tempe mi estis suprenŝtupinta. Mia edzino ŝanĝis le ve-
-
-ston kaj li staris flanke apud la pordo. Tio estis ŝia kuti-
-
-mo; ŝi ne permesis al mi, ke mi ektuŝu ŝin, antaŭ ol ŝi
+ston kaj li staris flanke apud la pordo. Tio estis ŝia kutimo; ŝi ne permesis al mi, ke mi ektuŝu ŝin, antaŭ ol ŝi
 
 estis fininta sian noktotualeton. Mi ekvidis piĵamon,
 
@@ -12190,12 +9465,7 @@ Sed li ne atingis ŝin.
 Mi pafis, mi ne scias kiomfoje.”
 
 
-MI EN LI
-
-
-La akuzito klinis la kapon kaj eksilentis. La aŭskultan-
-
-taro ekbruis, ankaŭ la asizanoj komencis interparoli.
+La akuzito klinis la kapon kaj eksilentis. La aŭskultantaro ekbruis, ankaŭ la asizanoj komencis interparoli.
 
 Sed ĵus ekstaris jam la defendanto kaj postulis, ke la
 
@@ -12205,21 +9475,15 @@ esti esplorata la spirita stato de la akuzito.
 
 La akuzito ekkriis:
 
-”Mi protestas, ke vi faru frenezulon el mi; mi konfe-
-
-sas, ke mi pafis, sed vi ne povas nei, ke mi mortigis mian
+”Mi protestas, ke vi faru frenezulon el mi; mi konfesas, ke mi pafis, sed vi ne povas nei, ke mi mortigis mian
 
 korpon.”
 
-Ankaŭ la psikiatroj aliĝis al la propono de la defen-
-
-danto.
+Ankaŭ la psikiatroj aliĝis al la propono de la defendanto.
 
 La tribunalo eliris por interkonsiliĝi kaj post nelonge,
 
-dum granda emocio de la publiko, la prezidanto dekla-
-
-ris, ke la kunsido estas interrompata por povi esplori la
+dum granda emocio de la publiko, la prezidanto deklaris, ke la kunsido estas interrompata por povi esplori la
 
 spiritan staton de la akuzito.
 
@@ -12232,18 +9496,13 @@ ke ambaŭ psikiatroj renkontiĝis kun Kovaĝík.
 
 ”Jen nia doktoro Kovaĝík. Kion vi diras pri tio? Estas
 
-efektive mirige, kiel scipovas kombini tiu frenezulo. An-
-
-kaŭ vin li estus preskaŭ enplektinta en la aferon; sed ni
+efektive mirige, kiel scipovas kombini tiu frenezulo. Ankaŭ vin li estus preskaŭ enplektinta en la aferon; sed ni
 
 estas ja ankoraŭ ĉi tie. Li estas kompatinda homo.”
 
 Kovaĝík respondis nur post kelka tempo:
 
 ”Li estas malfeliĉa homo.”
-
-
-MI EN LI
 
 
 www.omnibus.se/

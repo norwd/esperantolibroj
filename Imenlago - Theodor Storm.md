@@ -3,18 +3,7 @@ Theodor Storm
 Imenlago
 
 
-### 1
-
-
 Theodor Storm
-
-IMENLAGO
-
-
-@omnibus.se
-
-·
-
 
 IMENLAGO
 
@@ -27,17 +16,9 @@ Posttagmeze de malfrua aŭtuno bone vestita maljunulo rapidete malsupreniris la 
 
 La maljunulo trairis nun la vastan vestiblon, ĉambregon, kie kverkaj ŝrankoj kun porcelanaj vazoj staris de la muroj; tra la kontraŭa pordo li iris en vestibleton, de kie mallarĝa ŝtuparo kondukis al la supraj ĉambroj de la malantaŭa domo.
 
-Suprenirinte tiun ŝtuparon malrapide, li supre malŝlosis pordon kaj tiam eniris grandan ĉambron. Tie ĉi regis sekreta si-3
-
-IMENLAGO
-
-
-lento; unu muro estis preskaŭ kovrita per libroŝrankoj, sur la aliaj pendis figuraĵoj de homoj kaj de landoj. Antaŭ tablo, verde kovrita, sur kiu kuŝis kelke da malfermitaj Iibroj, staris peza apogseĝo kun ruĝa velurkuseno. Metinte ĉapelon kaj bastonon en la angulon, la maljunulo sidiĝis en la apogseĝon kaj kun ligitaj manoj ŝajnis ripozi de sia promenado. — Dum li tiel sidadis, iom post iom vesperiĝis; fine lunradio falis tra la fenestrajn vitrojn sur la pentraĵojn de la muro, kaj, dum la hela strio malrapide movigis antaŭen, la okuloj de la viro sekvis ĝin malarbitre. Nun ĝi aliris portreteton simple, nigre enkadrigitan.
+Suprenirinte tiun ŝtuparon malrapide, li supre malŝlosis pordon kaj tiam eniris grandan ĉambron. Tie ĉi regis sekreta silento; unu muro estis preskaŭ kovrita per libroŝrankoj, sur la aliaj pendis figuraĵoj de homoj kaj de landoj. Antaŭ tablo, verde kovrita, sur kiu kuŝis kelke da malfermitaj Iibroj, staris peza apogseĝo kun ruĝa velurkuseno. Metinte ĉapelon kaj bastonon en la angulon, la maljunulo sidiĝis en la apogseĝon kaj kun ligitaj manoj ŝajnis ripozi de sia promenado. — Dum li tiel sidadis, iom post iom vesperiĝis; fine lunradio falis tra la fenestrajn vitrojn sur la pentraĵojn de la muro, kaj, dum la hela strio malrapide movigis antaŭen, la okuloj de la viro sekvis ĝin malarbitre. Nun ĝi aliris portreteton simple, nigre enkadrigitan.
 
 —Elizabeto! — diris mallaŭte la maljuna viro; kaj, kiam li elparolis la vorton, la tempo ŝanĝiĝis: li estas en sia juneco.
-
-
-IMENLAGO
 
 
 La infanoj
@@ -54,12 +35,7 @@ Rejnhardo metis la kalkultabulon, kiun li jam portis sub la brako, rapide malant
 
 —Venu, — li diris, — jen, nun nia domo estas preta. Eniru, ni volas sidi sur la nova benko. Mi rakontos ion al vi.
 
-Tiam ambaŭ eniris kaj sidiĝis sur la novan benkon. Eliza-5
-
-IMENLAGO
-
-
-beto prenis la ringetojn el sia antaŭtuko, kaj tiris tjujn ĉi sur longaj fadenoj; Rejnhardo ekrakontis:
+Tiam ambaŭ eniris kaj sidiĝis sur la novan benkon. Elizabeto prenis la ringetojn el sia antaŭtuko, kaj tiris tjujn ĉi sur longaj fadenoj; Rejnhardo ekrakontis:
 
 —Estis unufoje tri ŝpinvirinoj.
 
@@ -75,9 +51,7 @@ Elizabeto aŭskultis atente.
 
 —Tio ĉi estas nur rakonto, — respondis Rejnhardo, — ja ne ekzistas anĝeloj.
 
-—Ho fi! Rejnhardo! — ŝi diris, rigide alrigardante lian viza-
-
-ĝon. Sed, kiam li ŝin okulfiksis malbonhumore, ŝi demandis lin dubante:
+—Ho fi! Rejnhardo! — ŝi diris, rigide alrigardante lian vizaĝon. Sed, kiam li ŝin okulfiksis malbonhumore, ŝi demandis lin dubante:
 
 —Kial do ili ĉiam diras tion, patrino kaj onklino, kaj eĉ en la lernejo?
 
@@ -88,9 +62,6 @@ Elizabeto aŭskultis atente.
 —Leonoj? ĉu leonoj ekzistas! En Hindujo; tie la idolpastroj jungas ilin antaŭ la veturilo kaj traveturas kun ili la dezerton.
 
 Kiam mi estos granda, mi mem volas tien iri. Tie estas milo-ble multe pli bele ol ĉe ni; tie vintro ne ekzistas. Vi ankaŭ devas kuniri. ĉu vi volas?
-
-
-IMENLAGO
 
 
 —Jes, — diris Elizabeto, — sed patrino ankaŭ devas kuniri, kaj ankaŭ via patrino.
@@ -118,9 +89,6 @@ Sed subite li ŝin delasis kaj diris serioze:
 —Tie ĉi! Tie ĉi! — respondis la infanoj kaj rapidis hejmen manon en mano.
 
 
-IMENLAGO
-
-
 En la arbaro
 
 Tiel la infanoj vivis kune; ŝi estis por li ofte tro silenta, li estis por ŝi ofte tro fortega, sed ne tial unu lasis la alian.
@@ -131,22 +99,16 @@ Kiam Elizabeto iam estis riproĉita de la instruisto, Rejnhardo, kiu ĉeestis, �
 
 Al la juna poeto la larmoj aperis en la okuloj. Li ŝajnis al si mem tre nobla. Kiam, li venis heimen, li havigis al si pergamenan volumeton kun multe da blankaj folioj. Sur la unuaj pakoj li skribis zorge sian unuan poezion.
 
-Baldaŭ post tio li iris en alian lernejon; tie ĉi li kontraktis multajn novajn kamaradligojn kun knaboj de sia aĝo, sed liaj interrilatoj kun Elizabeto ne estis malhelpataj pro tio. El la fabeloj, kiujn li rakontis pli frue al ŝi kaj rerakontis, li nun komencis noti tiujn, kiuj plaĉis al ŝi plej bone. Skribante, li ofte deziregis versigi kelkajn el siaj pensoj; sed, li ne sciis kial, li ne ĉiufoje, povis sukcesi en tio. Tial li notis ilin precize, kiel li mem aŭdis ilin. Poste li donis la foliojn al Elizabeto, kiu ilin 8
-
-IMENLAGO
+Baldaŭ post tio li iris en alian lernejon; tie ĉi li kontraktis multajn novajn kamaradligojn kun knaboj de sia aĝo, sed liaj interrilatoj kun Elizabeto ne estis malhelpataj pro tio. El la fabeloj, kiujn li rakontis pli frue al ŝi kaj rerakontis, li nun komencis noti tiujn, kiuj plaĉis al ŝi plej bone. Skribante, li ofte deziregis versigi kelkajn el siaj pensoj; sed, li ne sciis kial, li ne ĉiufoje, povis sukcesi en tio. Tial li notis ilin precize, kiel li mem aŭdis ilin. Poste li donis la foliojn al Elizabeto, kiu ilin
 
 
-konservis zorgeme en tirkesto de sia juvelujeto; kaj tio kaŭ-
-
-zis al li ĉarman kontentigon, se li kelkafoje aŭdis vespere, ke Elizabeto, dum li apudestis, laŭtlegis tiujn rakontojn al sia patrino el la kajeroj, kiujn li skribis.
+konservis zorgeme en tirkesto de sia juvelujeto; kaj tio kaŭzis al li ĉarman kontentigon, se li kelkafoje aŭdis vespere, ke Elizabeto, dum li apudestis, laŭtlegis tiujn rakontojn al sia patrino el la kajeroj, kiujn li skribis.
 
 Sep jaroj estis pasintaj. Rejnhardo devis por sia plua per-fektiĝado foriri el la urbo. Elizabeto ne povis pensi pri tio, ke nun venos tempo tute sen Rejnhardo. ŝi tre ĝojis, kiam li ian tagon promesis al ŝi, ke li, kiel ĉiam, notos por ŝi fabelojn kaj sendos tiujn al ŝi kun la letero al sia patrino; ŝi poste ĉiam devos reskribi al li, kiel la rakontoj plaĉis al ŝia gusto. La forvojaĝo okazis; sed antaŭe ankoraŭ multaj rimoj venis en la pergamenvolumon. Tio ĉi estis sole por Elizabeto sekreto, kvankam ŝi ja estis la kialo de la tuta libro kaj de la plejmultaj kantoj, kiuj iom post iom plenigis preskaŭ la duonon de la blankaj folioj.
 
 Estis dum junio; Rejnhardo devis forvojaĝi la sekvontan tagon. Nun oni volis ankoraŭfoje festi kune gajan tagon. Tiu-cele oni aranĝis promenadon de pli granda societo en unu el la proksimaj arbaroj. La longan vojon ĝis la rando de la arbaro oni trapasis veturile — poste oni prenis malsupren la provizaĵkorbojn, kaj marŝis pluen. Unue oni trairis abiaron; ĝi estis malvarmeta kaj krepuska; kaj la tero ĉie estis superŝutita de delikataj pintfolioj. Post duonhora irado oni venis el la malhelo de la abioj en freŝan fagaron; ĉi tie ĉio estis luma kaj verda. Kelkafoje sunradio penetris tra la foliriĉaj branĉoj; sci-ureto saltis de branĉo al branĉo. Sur loko, super kiu pramal-junaj fagoj formis per la kronoj travideblan foliarkaĵon, la societo haltis. La patrino de Elizabeto malfermis unu el la korboj, maljuna sinjoro estis provizaĵestro.
 
-—ĉiuj ĉirkaŭ min, vi junaj birdoj! — li vokis, — kaj aŭskultu 9
-
-IMENLAGO
+—ĉiuj ĉirkaŭ min, vi junaj birdoj! — li vokis, — kaj aŭskultu
 
 
 precize, kion mi diros al vi. Por la matenmanĝo ĉiu el vi nun ricevas du sekajn panetojn; la butero restis dome, ĉiu mem devas serĉi por si la pluan manĝaĵon. Sufiĉe da fragoj estas en la arbaro, kompreneble nur por tiu, kiu scias ilin trovi. Kiu estas mallerta, devas manĝi seke sian paneton; tiel okazas ĉie en la vivo. ĉu vi komprenis mian paroladeton?
@@ -168,9 +130,6 @@ Elizabeto kunligis la vordajn rubandojn de sia pajlĉapelo kaj pendigis ĝin al 
 —Jes, venu, — ŝi diris, — la korbo estas preta.
 
 
-IMENLAGO
-
-
 Tiam ili iris en la arbaron, plu kaj plu; tra malseketaj nepe-netreblaj arbarombroj, kie ĉio estis silenta, nur malvideble super ili en la aero kriantaj falkoj. Post tio la vojo denove kondukis tra densa dorna arbetaĵo, tiel densa, ke Rejnhardo devis iri unue, por fari vojeton, tie ĉi rompante branĉon, tie flankenfleksante volverampaĵon. Sed baldaŭ li aŭdis malantaŭ si, ke Elizabeto vokis lian nomon. Li sin turnis.
 
 —Rejnhardo! — ŝi vokis, — atendu do, Rejnhardo!
@@ -190,9 +149,6 @@ Antaŭ ili estis rivereto, trans tiu ĉi denove la arbaro. Rein-hardo levis Eliz
 —Tie ĉi fragoj devas esti, — diris la knabino, — ĝi bonodo-ras tiel dolĉege.
 
 Scrĉante, ili iris tra la suna loko; sed ili trovis neniajn.
-
-
-IMENLAGO
 
 
 —Ne, — diris Rejnhardo, — estas nur la bonodoro de la eriko.
@@ -227,9 +183,7 @@ Elizabeto ekkaptis la manon de Rejnhardo.
 
 Elizabeto sidiĝis sub superpendanta fago kaj ĉien aŭskultis atente.
 
-Rejnhardo sidis kelkajn paŝojn de ŝi sur arboŝtipo kaj rigardis ŝin silente. La suno staris rekte super fli, arda tagmezvar-mego estis; orbrilaj i stalbluaj muŝetoj flirtis en la aero, sving-ante la flugiletojn; eie ärkaŭ ŝi delikata vibrado kaj zumado, 12
-
-IMENLAGO
+Rejnhardo sidis kelkajn paŝojn de ŝi sur arboŝtipo kaj rigardis ŝin silente. La suno staris rekte super fli, arda tagmezvar-mego estis; orbrilaj i stalbluaj muŝetoj flirtis en la aero, sving-ante la flugiletojn; eie ärkaŭ ŝi delikata vibrado kaj zumado,
 
 
 kaj kelkafoje oni aŭdis profunde.en la arbaro la marteladon de la pigoj kaj la pepegadon de la aliaj arbaraj birdoj.
@@ -242,9 +196,7 @@ kaj kelkafoje oni aŭdis profunde.en la arbaro la marteladon de la pigoj kaj la 
 
 —Tiel estas malantaŭ ni la urbo, kaj se ni trairas en tiu direkto, ni devas trovi la aliajn.
 
-Nun ili returnis; ili ĉesigis serĉi fragojn, ĉar Elizabeto laci-
-
-ĝis. Fine la ridado de la societo trasonis inter la arboj, poste ili ankaŭ vidis blankan tukon lumetantan surtere, tio estis la tablo, kaj sur ĝi kuŝis la fragoj en granda amaso. La maljunulo havis buŝtukon en la butontruo kaj daŭrigis por la junularo siajn moralajn paroladojn, dum li fervore ektranĉis rostaĵon.
+Nun ili returnis; ili ĉesigis serĉi fragojn, ĉar Elizabeto laciĝis. Fine la ridado de la societo trasonis inter la arboj, poste ili ankaŭ vidis blankan tukon lumetantan surtere, tio estis la tablo, kaj sur ĝi kuŝis la fragoj en granda amaso. La maljunulo havis buŝtukon en la butontruo kaj daŭrigis por la junularo siajn moralajn paroladojn, dum li fervore ektranĉis rostaĵon.
 
 —Jen estas la postiĝintoj, — vokis la junuloj, kiam ili vidis Rejnhardon kaj Elizabeton tra la arboj.
 
@@ -261,9 +213,6 @@ Tiel la tago pasis. Sed Rejnhardo trovis ion; kvankam ne estis fragoj, tamen ĝi
 La vento nun mutiĝas
 
 ĉi tie al montet’:
-
-
-IMENLAGO
 
 
 Sub branĉoj helverdantaj
@@ -297,9 +246,6 @@ L’okulojn havas ŝi.
 Tiel ŝi ne nur estis lia protektatino; ŝi estis por li ankaŭ la esprimo de ĉiu ĉarmo kaj mirindaĵo en lia leviĝanta vivo.
 
 
-IMENLAGO
-
-
 Jen staris la infano
 
 Kristnaska vespero alproksimiĝis. Posttagmeze ankoraŭ estis, kiam Rejnhardo sidis kun alia studentoj en la magistrata kelo ĉirkaŭ la malnova kverktablo. La lampoj ĉe la muroj estis jam ekbruligitaj; ĉar tie ĉi malsupre jam krepu-skiĝis. Sed nur malmulte da gastoj ĉeestis, la kelneroj apogiĝis senokupe al la murkolonoj. En angulo de la arkaĵo sidis violonisto kaj citroknabino kun graciaj ciganaj trajtoj; ili havis siajn instrumentojn surbaske kaj ŝajnis apatie rigardi antaŭ sin.
@@ -323,9 +269,6 @@ Rejnhardo eksaltis kun la glaso en la mano kaj staris antaŭ ŝi.
 —Vidi viajn okulojn.
 
 —Kion miaj okuloj zorgigas al vi?
-
-
-IMENLAGO
 
 
 Rejnhardo rigardis ŝin brilege.
@@ -373,9 +316,6 @@ Rejnhardo metis la glason el la mano kaj ekprenis sian ĉapon.
 —Mi ja revenos.
 
 
-IMENLAGO
-
-
 ŝi sulkigis la frunton.
 
 —Restu! — ŝi vokis mallaŭte kaj alrigardis lin intime.
@@ -390,16 +330,9 @@ Ridante ŝi lin puŝis per la piedpinto.
 
 Kaj dum ŝ deturniĝis, Rejnhardo supreniris malrapide la keloŝtuparon.
 
-Ekstere en la strato estis profunda krepusko; li sentis la freŝan vintran aeron en sia varmega frunto. Kelkfoje la hela lumbrilo, de brulanta kristnaskarbo aperis tra la fenestroj, kelkfoje oni aŭdis ek de interne la bruadon de fajfiletoj kaj trumpetoj kaj enĉambre ĝojegantajn infanvoĉojn. Amasoj da almozpetantaj infanoj iris de domo al domo, aŭ suprenirante sur la balustradojn de la ŝtuparoj ili provis rigardi tra la fenestroj al la rifuzita belego. Ofte pordo ankaŭ estis subite malfemata, kaj insultantaj voĉoj elpelis tutan flugantaron de tiaj gastetoj el la hela domo en la malhelan strateton; aliloke malnova kanto de Kristnasko estis kantata en la vestiblo de domo; inter ili estis klaraj knabinaj voĉoj. Rejnhardo ne aŭ-
+Ekstere en la strato estis profunda krepusko; li sentis la freŝan vintran aeron en sia varmega frunto. Kelkfoje la hela lumbrilo, de brulanta kristnaskarbo aperis tra la fenestroj, kelkfoje oni aŭdis ek de interne la bruadon de fajfiletoj kaj trumpetoj kaj enĉambre ĝojegantajn infanvoĉojn. Amasoj da almozpetantaj infanoj iris de domo al domo, aŭ suprenirante sur la balustradojn de la ŝtuparoj ili provis rigardi tra la fenestroj al la rifuzita belego. Ofte pordo ankaŭ estis subite malfemata, kaj insultantaj voĉoj elpelis tutan flugantaron de tiaj gastetoj el la hela domo en la malhelan strateton; aliloke malnova kanto de Kristnasko estis kantata en la vestiblo de domo; inter ili estis klaraj knabinaj voĉoj. Rejnhardo ne aŭdis ĝin, ĉar li rapide preteriris tion, el unu strato en alian.
 
-dis ĝin, ĉar li rapide preteriris tion, el unu strato en alian.
-
-Kiam li venis al sia loĝejo, preskaŭ tute mallumiĝis; li faletan-te supreniris la ŝtuparon kaj eniris sian ĉambron. Dolĉa bonodoro al li kontraŭjvenis; li sentis sin hejme en la Kristnaska ĉambreto de sia patrino. Per tremanta mano li ekbruligis sian lampon. Jen estis pako surtable, kaj, kiam li malfermis ĝin, elfalis la konataj brunaj festkukoj. Sur kelkaj la komenclite-roj de lia nomo estis desegnitaj per sukero; tio povis esti fa-rita nur de Elizabeto. Poste aperis malgranda paketo kun deli-17
-
-IMENLAGO
-
-
-kata brodita tolaĵo, tukoj kaj gantoj, laste leteroj de la patrino kaj de Elizabeto. Unue Rejnhardo malfermis la lastan. Elizabeto skribis:
+Kiam li venis al sia loĝejo, preskaŭ tute mallumiĝis; li faletan-te supreniris la ŝtuparon kaj eniris sian ĉambron. Dolĉa bonodoro al li kontraŭjvenis; li sentis sin hejme en la Kristnaska ĉambreto de sia patrino. Per tremanta mano li ekbruligis sian lampon. Jen estis pako surtable, kaj, kiam li malfermis ĝin, elfalis la konataj brunaj festkukoj. Sur kelkaj la komenclite-roj de lia nomo estis desegnitaj per sukero; tio povis esti fa-rita nur de Elizabeto. Poste aperis malgranda paketo kun delikata brodita tolaĵo, tukoj kaj gantoj, laste leteroj de la patrino kaj de Elizabeto. Unue Rejnhardo malfermis la lastan. Elizabeto skribis:
 
 ”La belaj sukerliteroj certe povas al vi rakonti, kiu kunhelpis fari la kukojn; la sama persono brodis por vi la gantojn. ĉe ni la Kristnaska vespero estos nun tre silenta; ĉiam mia patrino metas jam je duono de la deka horo la ŝpinradon en la angulon; estas tre silente tiun ĉi vintron, tial ke vi ne ĉeestas.
 
@@ -409,12 +342,7 @@ Min mem! Eri˛o desegnas min per karba krajono; mi devis jam sidadi antaŭ li tr
 
 ”Sed vi rompas la vorton, Rejnhardo; vi ja sendis neniajn fabelojn. Mi ofte vin kulpigis ĉe via patrino; ŝi diris ĉiam, ke vi havas nun aliajn devojn ol tiajn infana√ojn. Sed mi ne kredas ŝin; certe estas alia kaŭzo.”
 
-Nun Rejnhardo, ankaŭ legis la leteron de sia patrino, kaj kiam li tralegis ambaŭ leterojn, malrapide kunfaldis kaj metis ilin flanken, tiam ekkaptis lin nevenkebla nostalgio. Kel-18
-
-IMENLAGO
-
-
-katempe irante tien kaj reen en sia ĉambro, li parolis mallaŭte kaj poste duonkompreneble al si mem:
+Nun Rejnhardo, ankaŭ legis la leteron de sia patrino, kaj kiam li tralegis ambaŭ leterojn, malrapide kunfaldis kaj metis ilin flanken, tiam ekkaptis lin nevenkebla nostalgio. Kelkatempe irante tien kaj reen en sia ĉambro, li parolis mallaŭte kaj poste duonkompreneble al si mem:
 
 Li devojiĝis preskaŭ
 
@@ -437,9 +365,6 @@ La infano, redirante nenion, delasis la pezan anson de la pordo. Rejnhardo, jam 
 —Ne, — li diris, — ili povus vin elpeli; venu kun mi! Mi volas doni al vi kristnaskajn kukojn.
 
 
-IMENLAGO
-
-
 Poste li refermis la pordon kaj ekprenis la manon de la knabineto, kiu silente eniris kun li lian loĝejon.
 
 Forirante, li lasis bruli la lampon.
@@ -451,9 +376,6 @@ La infano rigardis lin per timemaj okuloj; ĉar ŝi ŝajne ne kutimis al tia afa
 Rejnhardo ekbruligis la fajron en sia forno kaj metis pol-vokovritan inkujon sur sian tablon; tiam li sidiĝis kaj skribis, kaj skribis la tutan nokton leterojn al sia patrino kaj al Elizabeto. La resto de la kristkukoj kuŝis netuŝita apud li; sed la gantojn de Elizabeto li albutonumis, kio tre strange kontrastis lian blankan frisjakon. Tiel li ankoraŭ sidis, kiam la vintra suno falis sur la frostiĝintajn fenestrajn vitrojn kaj montris al li kontraŭe en la spegulo palan seriozan vizaĝon.
 
 
-IMENLAGO
-
-
 Hejme
 
 Kiam estis Pasko, Rejnhardo vojaĝis hejmen. Matene post sia alveno li vizitis Elizabeton.
@@ -462,9 +384,7 @@ Kiam estis Pasko, Rejnhardo vojaĝis hejmen. Matene post sia alveno li vizitis E
 
 ŝi ruĝigis, sed ŝi rediris nenion; sian manon, kiun li prenis ĉe la bonveno en la sian, ŝi provis dolĉe eltiri. Dubante, li ŝin rigardis, tion ŝi neniam faris pli frue; ĉifoje estis, kvazaŭ io fremda ekstarus inter ambaŭ. Tio ankaŭ persistis, kiam li jam apudestis pli longe, kaj li revenis ĉiam tagon post tago. Sed tuj, kiam ili kunsidis, okazis pauzoj, kiuj estis por li doloraj, kaj pri kiuj li tiam timeme provis antaŭzorgi. Por havi dum la libertempo certan interparoladon, ii komencis instrui al Elizabeto la botanikon, pri kiu li sin okupis okaze, dum la unuaj monatoj de sia universitata vivo. Elizabeto, kiu estis preta sekvi lin pri ĉio, kaj ankaŭ ĝenerale lernema, konsentis rapi-deme. Nun ili faris diversfoje, dum la semajno, ekskursojn al la kamparo aŭ sur la erikejon, kaj kiam ili tagmeze alportis domen la verdan botanikan skatolon plenan de herboj kaj floroj, tiam Rejnhardo revenis post kelke da horoj, por divi-di kun Elizabeto la komunan trovitaĵon.
 
-Tiuintence li eniris iuposttagmeze la ĉambron, kiam Elizabeto staris apud la fenestro provizante je freŝa salato orumi-tan kaĝon, kiun li alitempe ne vidis tie. En la kaĝo sidis kanario, kiu svingis siajn flugiletojn kaj kiu kriadante piketis la 21
-
-IMENLAGO
+Tiuintence li eniris iuposttagmeze la ĉambron, kiam Elizabeto staris apud la fenestro provizante je freŝa salato orumi-tan kaĝon, kiun li alitempe ne vidis tie. En la kaĝo sidis kanario, kiu svingis siajn flugiletojn kaj kiu kriadante piketis la
 
 
 fingron de Elizabeto. Iam la birdo de Rejnhardo pendis de tiu loko.
@@ -504,9 +424,6 @@ Tial ke Rejnhardo tute kontraŭ sia kutimo ne respondis, ŝi sin turnis. En liaj
 Li ekkaptis ŝiajn ambaŭ manojn, kiujn ŝi lasis trankvile en la liaj. Baldaŭ la patrino revenis.
 
 
-IMENLAGO
-
-
 Post la kafo tiu ĉi sidiĝis ĉe sia ŝpinrado; Rejnhardo kaj Elizabeto iris en la apudĉambron por ordigi la kreskaĵojn. Nun palisetoj estis komputataj, floroj kaj folioj zorgeme etendataj kaj du ekzempleroj de ĉia speco metataj por sekigi inter la foliojn de granda foliegaro. Estis suna posttagmeza silento: nur apude la ŝpinrado de la patrino zumis, kaj de temp’ al tempo oni aŭdis la mallaŭtan voĉon de Rejnhardo, kiam li nomis la klasordojn de la kreskaĵoj aŭ korektis la neĝustan prononcadon de la latinaj vortoj de Elizabeto.
 
 —De antaŭ nelonge la konvalo ankoraŭ mankas al mi, —
@@ -532,9 +449,6 @@ Elizabeto turnis unu folion post la alia; ŝi legis ŝajne nur la surskribojn. �
 ŝi prenis brunan branĉeton el la lada skatolo.
 
 
-IMENLAGO
-
-
 —Mi volas enŝovi vian preferatan herbon, — ŝi diris al li donante la libron enmanen.
 
 
@@ -558,9 +472,6 @@ Sed tamen li ne plirapidis. Fine li diris balbutante:
 Rejnhardo silentis momenton; sed tiam li ekprenis ŝian manon, tenis ĝin en sia kaj serioze rigardante ŝiajn infanoku-lojn, li diris:
 
 
-IMENLAGO
-
-
 —Mi certe estas ankoraŭ tiel bona, kiel mi estis: tion kre-du firme! ĉu vi kredas ĝin, Elizabeto?
 
 —Jes, — ŝi diris.
@@ -582,9 +493,6 @@ Dume ili alvenis al la poŝtveturilo; restis ankoraŭ ĝuste su-fiĉe da tempo. 
 Rejnhardo eniris la veturilon, kaj la ĉevaloj ektiris. Kiam la veturilo ruliĝis ĉirkaŭ la angulo de la strato, li ankoraŭfoje rigardis ŝian karan vizaĝon, dum ŝi reiris malrapide la vojon.
 
 
-IMENLAGO
-
-
 Letero
 
 Post preskaŭ du jaroj Rejnhardo sidis antaŭ sia lampo meze de libroj kaj paperoj, atendante amikon, kun kiu li faris komunajn studojn. Iu suprenvenis la ŝtuparon.
@@ -602,9 +510,6 @@ Rejnhardo ne skribis, ekde sia vizito en la hejmo, al Elizabeto kaj ankaŭ ne pl
 ĝuste komprenis vin. Eri˛o ricevis fine hieraŭ de Elizabeto la jesvorton, post kiam li petis, dum la pasinta kvaronjaro, du-foje sensukcese ŝian manon. ŝi tute ne povis decidiĝi pri tio; nun fine ŝi tamen faris ĝin; ŝi estas ankoraŭ tro juna. Oni diras, ke la edziĝo baldaŭ okazos, kaj la patrino tiam foriros kun ili.”
 
 
-IMENLAGO
-
-
 Imenlago
 
 Denove jaroj preteriris. — Sur ombra arbarvojo, kiu kondukis malsupren, juna viro kun forta, brunigita vizaĝo paŝis dum varma printempa posttagmezo. Per siaj seriozaj grizaj okuloj li rigardis scivole en la malproksimon, kvazaŭ li atendus fine aliiĝon de la tede unuforma vojo, kiu tamen ne volis finiĝi. Jen ĉaro suprenvenis malrapide.
@@ -617,12 +522,7 @@ Denove jaroj preteriris. — Sur ombra arbarvojo, kiu kondukis malsupren, juna v
 
 —La sinjoro estos baldaŭ tie. Eĉ ne duonan pipon da ta-bako, kaj vi venos al la lago; la mastra domo staras tute apude.
 
-La kamparulo preterveturis; la alia laŭlongiris pli rapide sub la arboj. Post kvaronhoro la ombro subite ĉesis maldekstre de li; la vojo kondukis al deklivo, el kiu la suproj de cent-jaraj kverkoj apenau elstaris. Trans tiuj ĉi malkovriĝis vasta, suna pejzaĝo. Profunde sube kuŝis la lago, trankvila, malhel-blua, preskaŭ ĉie ĉirkaŭata de verdaj sunlumigataj arbaroj; nur de unu loko ili disiĝis kaj ebligis ĝui profundan perspektivon, ĝis ankaŭ tiu fermiĝis per bluaj montoj. Diametre, me-ze de la verda foliaro de la arbaroj, io kuŝis supere kiel neĝo; estis florantaj fruktarboj, kaj el inter tiuj elstaris sur alta bor-27
-
-IMENLAGO
-
-
-do la estrodomo, blanka kun ruĝaj brikoj. Cikonio ekflugis de la kamentubo kaj rondflugis super la akvo.
+La kamparulo preterveturis; la alia laŭlongiris pli rapide sub la arboj. Post kvaronhoro la ombro subite ĉesis maldekstre de li; la vojo kondukis al deklivo, el kiu la suproj de cent-jaraj kverkoj apenau elstaris. Trans tiuj ĉi malkovriĝis vasta, suna pejzaĝo. Profunde sube kuŝis la lago, trankvila, malhel-blua, preskaŭ ĉie ĉirkaŭata de verdaj sunlumigataj arbaroj; nur de unu loko ili disiĝis kaj ebligis ĝui profundan perspektivon, ĝis ankaŭ tiu fermiĝis per bluaj montoj. Diametre, me-ze de la verda foliaro de la arbaroj, io kuŝis supere kiel neĝo; estis florantaj fruktarboj, kaj el inter tiuj elstaris sur alta bordo la estrodomo, blanka kun ruĝaj brikoj. Cikonio ekflugis de la kamentubo kaj rondflugis super la akvo.
 
 —Imenlago! — vokis la iranto.
 
@@ -643,9 +543,6 @@ Tiam ili kunvenis kaj premis al si reciproke la manojn.
 —Certe mi estas tie ĉi, Eri˛o, kaj vi ankaŭ; sed vi havas eĉ pli gajan mienon, ol vi iam havis.
 
 oja rideto ĉe tiuj vortoj ankoraŭ pli gajigis la trajtojn de Eri˛o.
-
-
-IMENLAGO
 
 
 —Jes, frato Rejnhardo, — li diris, ankoraŭfoje premante al tiu ĉi la manon, — ĉar de tiu tempo mi ankaŭ gajnis la grandan loton; vi ja scias ĝin.
@@ -673,9 +570,6 @@ La birdego malrapide sin levis kaj flugis sur la tegmenton de proksima konstrua�
 ĝin antaŭ du jaroj. Mia karmemora patro siaparte almetigis la ekonomiajn domojn; la loĝdomo estas konstruita jam de mia avo. Tiamaniere oni iom post iom pligrandigas sian bienon.
 
 
-IMENLAGO
-
-
 Tiel parolante ili venis al vasta, libera loko, kiu ĉe la flankoj estis limigita de la kamparaj ekonomidomoj, funde per la estrodomo, ambaŭflanke kunigita kun alta ĝardenmuro; malantaŭ tiu ĉi oni vidis taksusojn. Viroj kun sun- kaj laborvar-maj vizaĝoj trairis la lokon kaj salutis la amikojn, dum Eri˛o al unu kaj al alia vokis ordonon aŭ demandon pri la taglabo-ro. — Poste ili atingis la domon; alta, malvarmeta vestiblo akceptis ilin, ĉe kies fino ili maldekstre eniris en iom malhelan apudkoridoron. Tie ĉi Eri˛o malfermis pordon, kaj ili iris al vasta ĝardenhalo, kiun pro la foliaro kovranta la kontraŭajn fenestrojn, jen plenigis sur ambaŭ flankoj verda duonlumo; tie du altaj, vaste malfermitaj flankpordoj lasis enfali la tutan brilon de la printempa suno kaj ebligis vidi la perspektivon de
 
 ĝardeno kun rondigitaj bedoj plenaj je floroj kaj altaj krutaj foliarmuroj apartigitaj de rekta larĝa irejo, kiu donis vidon sur la lagon kaj pli malproksimen al la kontraŭaj montoj. Kiam la amikoj eniris, la aerfluo alportis al ili torenton da bonodoro.
@@ -689,9 +583,6 @@ Sur teraso antaŭ la ĝardenpordo sidis blanka knabina vi-rinfiguro. ŝi levis s
 Eri˛o postrestis ĉe la pordo kun ĝoja vizaĝo.
 
 —Nun, Elizabeto! — li diris, — he! tiun ĉi vi ne atendis, tiun ĉi ne en tuta eterno!
-
-
-IMENLAGO
 
 
 Elizabeto rigardis lin per fratinaj okuloj.
@@ -712,9 +603,7 @@ En tiu momento venis la patrino tra la pordo kun ŝlosilkor-beto ĉebrake.
 
 Kaj nun la interparolado iris de demandoj al respondoj sian ebenan vojon. La virinoj sidiĝis al siaj laboroj, kaj, dum Rejnhardo ĝuis la manĝaĵojn por li preparitajn, Eri˛o ekbruligis sian marŝaŭman pipon kaj sidis fumante kaj diskutante apud Rejnhardo.
 
-Alian tagon Rejnhardo devis iri kun Eri˛o sur la kamparon, en la lupoloĝardenon, al la brandfarejo. ĉio estis bonstata; la homoj, kiuj laboris sur la kampoj kaj apud la kaldronoj, havis ĉiuj sanajn kaj kontentajn mienojn. Tagmeze la familio kunvenis en la ĝardenhalo, kaj la tagon oni travivis pli aŭ malpli kune, laŭ la libertempo de la mastroj. Nur la horojn antaŭ la vespermanĝo, kiel ankaŭ la unuajn de la mateno, Rejnhardo restis laborante en sia ĉambro. De jaroj li kolektis, kie li povis ekhavi tiajn, la rimojn kaj kantojn ankoraŭ vivan-tajn en la popolo, kaj nun li komencis ordigi sian trezoron kaj se eble plimultigi per novaj notoj el la ĉirkaŭaĵo. Elizabeto 31
-
-IMENLAGO
+Alian tagon Rejnhardo devis iri kun Eri˛o sur la kamparon, en la lupoloĝardenon, al la brandfarejo. ĉio estis bonstata; la homoj, kiuj laboris sur la kampoj kaj apud la kaldronoj, havis ĉiuj sanajn kaj kontentajn mienojn. Tagmeze la familio kunvenis en la ĝardenhalo, kaj la tagon oni travivis pli aŭ malpli kune, laŭ la libertempo de la mastroj. Nur la horojn antaŭ la vespermanĝo, kiel ankaŭ la unuajn de la mateno, Rejnhardo restis laborante en sia ĉambro. De jaroj li kolektis, kie li povis ekhavi tiajn, la rimojn kaj kantojn ankoraŭ vivan-tajn en la popolo, kaj nun li komencis ordigi sian trezoron kaj se eble plimultigi per novaj notoj el la ĉirkaŭaĵo. Elizabeto
 
 
 estis ĉiam dolĉega kaj afabla; la ĉiam konstantan atenton de Eri˛o ŝi åkceptis kun preskaŭ humila danko, kaj kelkafoje Rejnhardo pensis, ke la iama gaja infano tute ne promesis tiel silentan edzinon.
@@ -724,9 +613,6 @@ Ekde la dua tago de sia ĉeestado li kutimis fari vespere promenadon laŭlonge d
 ĝardeno. ĉe la fino de tiu ĉi, sur antaŭiganta bastiono, staris benko sub altaj betuloj; la patrino baptis ĝin la vesperbenko, ĉar la loko frontis kontraŭ la okcidento kaj pro la sunsubirado estis vizitata plejmulte je tiu tempo. El promenado sur tiu ĉi vojo Rejnhardo iufoje vespere revenis, kiam pluvo surprizis lin. Li serĉis rifuĝejon sub tilio staranta ĉe la akvo; sed baldaŭ la pezaj gutoj penetris tra la folioj. Malsekigita, kiel li estis, li sindone rezignis kaj daŭrigis malrapide sian reiron. Preskaŭ mallumiĝis; la pluvo ĉiam pli dense falis. Kiam li alproksimi-gis al tiu vesperbenko, ŝajnis al li, ke li distingas inter la bri-letantaj betulotrunkoj blankan figuron de virino. ŝi staris senmove, kaj, kiel li kredis vidi, kiam li pli proksime alvenis, tur-nita al li, kvazaŭ ŝi atendus iun. Li konjektis, ke Elizabeto estas tie; sed kiam li plirapidis, por atingi ŝin kaj poste reveni kun ŝi domen tra la gardeno, ŝi sin deturnis rapidete kaj malaperis en la malhelajn flankvojojn. Li ne povis kompreni tion. Li estis preskaŭ kolera pri Elizabeto, kaj tamen li dubis, ĉu estis ŝi; sed li timis demandi ŝin pri tio; ja, li ne iris en la
 
 ĝardenhalon, nur por ke li ne vidu eble Elizabeton eniri tra la pordo de la ĝardeno.
-
-
-IMENLAGO
 
 
 Mia patrino volis ĝin
@@ -751,9 +637,7 @@ Kaj tiu legis nun komence kelkajn tirolajn kantojn, lasante iafoje eksoni la gaj
 
 Rejnhardo diris:
 
-—Tiuj kantoj ne estas komponitaj; ili kreskas, ili falas el la aero, ili flugas tra la lando, kiel fluganta semo, tien ĉi kaj tien, kaj samtempe en mil lokoj oni kantas ilin. Ni trovas en tiuj 33
-
-IMENLAGO
+—Tiuj kantoj ne estas komponitaj; ili kreskas, ili falas el la aero, ili flugas tra la lando, kiel fluganta semo, tien ĉi kaj tien, kaj samtempe en mil lokoj oni kantas ilin. Ni trovas en tiuj
 
 
 kantoj nian propran agadon kaj suferon; estas, kvazaŭ ni ĉiuj kunhelpis pri tiuj ĉi kantoj.
@@ -786,9 +670,7 @@ Ili aŭskultis ankoraŭ kelkan tempon, ĝis la sonorado estingiĝis supre post l
 
 Li eltiris novan folion.
 
-Jam plimallumiĝis; ruĝa vesperlumo kuŝis kiel ŝaŭmo sur 34
-
-IMENLAGO
+Jam plimallumiĝis; ruĝa vesperlumo kuŝis kiel ŝaŭmo sur
 
 
 la arbaroj trans la lago. Rejnhardo malvolvis la folion, Elizabeto metis sian manon sur unu paĝon kaj ankaŭ enrigardis.
@@ -825,35 +707,22 @@ Ke mi petmigri povu
 
 Tra bruna erikej’ de l’ter!
 
-Legante Rejnhardo palpesentis nerimarkeblan tremadon de la papero; kiam li finis, Elizabeto senbrue reŝovis sian se-
-
-ĝon kaj malsupreniris silente en la ĝardenon. Rigardo de la patrino sekvis ŝin. Eri˛o volis postiri, sed la patrino diris:
+Legante Rejnhardo palpesentis nerimarkeblan tremadon de la papero; kiam li finis, Elizabeto senbrue reŝovis sian seĝon kaj malsupreniris silente en la ĝardenon. Rigardo de la patrino sekvis ŝin. Eri˛o volis postiri, sed la patrino diris:
 
 —Elizabeto havas ion por fari ekstere. — Tial Eri˛o ne iris.
 
-Sed ekstere la vespero sin kuŝigis pli kaj pli super ĝardeno kaj lago, la noktpapilioj zumantaj rapide preterflugis ĉe la malfermitaj pordoj, tra kiuj la bonodoro de la floroj kaj arbetaĵoj penetris ĉiam pli forte; de la akvo suprenvenis la kvaka-do de la ranoj, najtingalo kantis sub la fenestroj, alia pli pro-35
-
-IMENLAGO
-
-
-funde en la ĝardeno. La luno vidiĝis super la arboj. Rejnhardo rigardis ankoraŭ kelkatempe la lokon, kie la gracia figuro de Elizabeto malaperis inter la foliarvojoj; poste li kunrulis sian manuskripton, salutis la ĉeestantojn kaj iris tra la domo malsupren al la akvo.
+Sed ekstere la vespero sin kuŝigis pli kaj pli super ĝardeno kaj lago, la noktpapilioj zumantaj rapide preterflugis ĉe la malfermitaj pordoj, tra kiuj la bonodoro de la floroj kaj arbetaĵoj penetris ĉiam pli forte; de la akvo suprenvenis la kvaka-do de la ranoj, najtingalo kantis sub la fenestroj, alia pli profunde en la ĝardeno. La luno vidiĝis super la arboj. Rejnhardo rigardis ankoraŭ kelkatempe la lokon, kie la gracia figuro de Elizabeto malaperis inter la foliarvojoj; poste li kunrulis sian manuskripton, salutis la ĉeestantojn kaj iris tra la domo malsupren al la akvo.
 
 La arbaroj staris silente kaj ĵetis sian mallumon sur la lagon, dum ilia mezo kuŝis en sufoka lunkrepusko. Kelkafoje mallaŭta murmuretado jen tremis tra la arboj; sed ne estis vento, estis nur la spirado de la somernokto. Rejnhardo ĉiam iris laŭlonge de la bordo. Kiam en kelka distanco de la tero li povis ekvidi blankan akvolilion, subite la deziro ataketis lin, vidi ĝin de pliproksime; li sin senvestigis kaj eniris la akvon.
 
 Tiu ĉi estis ebena; akvaj kreskaĵoj kaj ŝtonoj vundis liajn piedojn, kaj li ankoraŭ ne estis en sufiĉe profunda akvo por naĝi.
 
-Jen subite mankis sub li la tero, la akvoj kunkirlis super li, kaj daŭris kelke da tempo, ĝis kiam li revenis al la supraĵo. Nun li movis manojn kaj piedojn kaj ĉirkaŭnaĝis ronde, ĝis li certe sciis, de kie li eniris. Baldaŭ li ankaŭ denove vidis la lilion; ĝi kuŝis sola inter grandaj blankaj folioj. Li alnaĝis malrapide kaj levis kelkafoje la brakojn el la akvo, tiel ke la malsuprenflu-etantaj gutoj brilis en la lunlumo; sed ŝajnis, kvazaŭ la interspaco inter li kaj la floro restus la sama; nur la bordo kuŝis, se li rigardis malantaŭen, en ĉiam malpli perceptebla bonodoro post li. Dume li ne forlasis sian entreprenojn, sed naĝis fortike en la sama direkto. Fine li estis tiel proksime de la floro, ke li povis klare diferencigi la arĝentajn foliojn en la lunlumo; sed samtempe li sentis sin implikita en reto, glataj trun-ketoj atingis lin el la fundo kaj volviĝis ĉirkaŭ liaj nudaj mem-broj. La nekonata akvo kuŝis nigre ĉirkaŭ li; malantaŭ si li aŭ-
-
-dis la saltadon de fiŝo; subite fariĝis al li tiel malplaĉe en la 36
-
-IMENLAGO
+Jen subite mankis sub li la tero, la akvoj kunkirlis super li, kaj daŭris kelke da tempo, ĝis kiam li revenis al la supraĵo. Nun li movis manojn kaj piedojn kaj ĉirkaŭnaĝis ronde, ĝis li certe sciis, de kie li eniris. Baldaŭ li ankaŭ denove vidis la lilion; ĝi kuŝis sola inter grandaj blankaj folioj. Li alnaĝis malrapide kaj levis kelkafoje la brakojn el la akvo, tiel ke la malsuprenflu-etantaj gutoj brilis en la lunlumo; sed ŝajnis, kvazaŭ la interspaco inter li kaj la floro restus la sama; nur la bordo kuŝis, se li rigardis malantaŭen, en ĉiam malpli perceptebla bonodoro post li. Dume li ne forlasis sian entreprenojn, sed naĝis fortike en la sama direkto. Fine li estis tiel proksime de la floro, ke li povis klare diferencigi la arĝentajn foliojn en la lunlumo; sed samtempe li sentis sin implikita en reto, glataj trun-ketoj atingis lin el la fundo kaj volviĝis ĉirkaŭ liaj nudaj mem-broj. La nekonata akvo kuŝis nigre ĉirkaŭ li; malantaŭ si li aŭdis la saltadon de fiŝo; subite fariĝis al li tiel malplaĉe en la
 
 
 fremdå elemento, ke li perforte disŝiris la konfuzaĵon de la kreskaĵoj kaj per senspira rapido renaĝis al la bordo. Kiam li rerigardis de tie sur la lagon, la lilio kuŝis kiel antaŭe malproksime kaj sola super la malluma profundo. — Li vestis sin kaj reiris malrapide domen. Kiam li iris el la ĝardeno en la halon, li trovis Eri˛on kaj la patrinon, kiuj preparis por la sekvanta tago malgrandan negocvojaĝon.
 
-—Kie vi estis ankoraŭ tiel malfrue en la nokto? — kontraŭ-
-
-vokis al li la patrino.
+—Kie vi estis ankoraŭ tiel malfrue en la nokto? — kontraŭvokis al li la patrino.
 
 —ĉu mi? — li rediris, — mi volis viziti la akvolilion; sed tio ne prosperis al mi.
 
@@ -862,14 +731,9 @@ vokis al li la patrino.
 —Mi konis ĝin iam, — diris Rejnhardo, — sed estas jam antaŭlonge.
 
 
-IMENLAGO
-
-
 Elizabeto
 
-La sekvintan posttagmezon Rejnhardo kaj Elizabeto migris trans la lago jen tra la arbaro, jen sur la alta antaŭeni-
-
-ĝanta bordorando. Elizabeto ricevis de Eri˛o la komision, dum lia kaj de la patrino forestado konigi al Rejnhardo la plej belajn perspektivojn de la ĉirkaŭaĵo, precipe ekde la alia flanko, de la bordo sur la bienon mem. Nun ili iris kune de unu loko al alia. Fine Elizabeto laciĝis kaj eksidis en la ombron de superpendantaj branĉoj, Rejnhardo staris kontraŭ ŝi apogi-
+La sekvintan posttagmezon Rejnhardo kaj Elizabeto migris trans la lago jen tra la arbaro, jen sur la alta antaŭeniĝanta bordorando. Elizabeto ricevis de Eri˛o la komision, dum lia kaj de la patrino forestado konigi al Rejnhardo la plej belajn perspektivojn de la ĉirkaŭaĵo, precipe ekde la alia flanko, de la bordo sur la bienon mem. Nun ili iris kune de unu loko al alia. Fine Elizabeto laciĝis kaj eksidis en la ombron de superpendantaj branĉoj, Rejnhardo staris kontraŭ ŝi apogi-
 
 ĝante al arbotrunko. Jen li aŭdis pli profunde en la arbaro la kukolon vokantan, kaj subite li ekpensis, ke tio estis iam tiel same. Strange ridetante li rigardis ŝin.
 
@@ -882,9 +746,6 @@ La sekvintan posttagmezon Rejnhardo kaj Elizabeto migris trans la lago jen tra l
 Elizabeto skuis silente la kapon; poste ŝi levis sin kaj am-baŭ daŭrigis sian promenadon; kaj, kiam ŝi iris ĉe lia flanko, lia rigardo ĉiam denove turniĝis al ŝi; ĉar ŝi gracie paŝis, kvazaŭ ŝi leviĝus de siaj vestoj. Ofte li postrestis laŭintence unu paŝon por ŝin rigardi tute kaj plene. Tiel ili alvenis al libera loko, surkreskita de erikoj, kun vasta perspektivo en la lan-don. Rejnhardo sin klinis kaj prenis ion el la herboj surtere kreskantaj. Kiam li denove rigardis supren, lia vizaĝo montris la esprimon de pasia doloro.
 
 —ĉu vi konas tiun ĉi floron? — li demandis.
-
-
-IMENLAGO
 
 
 Mirante ŝi rigardis lin.
@@ -905,9 +766,7 @@ Ili parolis nenion plu; mute ili iris malsupren al la lago. La aero estis sufoka
 
 Rejnhardo silente balancis la kapon, kaj ambaŭ rapidiris laŭlonge de la bordo, ĝis ili alvenis al la boato. — Dum la transveturo Elizabeto lasis ripozi sian manon sur la rando de la boato. Remante li rigardis ŝin; sed ŝi rigardis preter li malproksimen. Poste lia rigardo glitis malsupren kaj restis sur ŝia mano; kaj la pala mano, malkaŝis al li tion, pri kio ŝia vizaĝo silentis. Li vidis sur ĝi tiun delikatan signon de sekreta doloro, kiu tiel ofte gravuriĝas sur belaj virinaj manoj, kiuj kuŝas nokte sur malsana koro. — Kiam Elizabeto sentis liajn okulojn ripozi sur ŝia mano, ŝi lasis ĝin gliti malrapide super la rando de la boato en la akvon.
 
-Veninte al la farmejo, ili trovis antaŭ la mastra domo ĉaron de tondilakrigisto; viro kun nigraj desuprenpendantaj bukloj movis diligente la radon kaj zumis inter la dentoj ciganan melodion, dum jungita, spireganta hundo kuŝis apude. En la 39
-
-IMENLAGO
+Veninte al la farmejo, ili trovis antaŭ la mastra domo ĉaron de tondilakrigisto; viro kun nigraj desuprenpendantaj bukloj movis diligente la radon kaj zumis inter la dentoj ciganan melodion, dum jungita, spireganta hundo kuŝis apude. En la
 
 
 domvestiblo staris vindita per ĉifonoj knabino kun belaj, ne-regulaj trajtoj kaj tenis petadante la manon al Elizabeto.
@@ -930,17 +789,9 @@ Mi, devas sen vi!
 
 Malnova kanto zumis al li en orelon, lia spiro haltis kelkatempe; tiam li sin deturnis kaj iris en sian ĉambron.
 
-Li sidiĝis por labori, sed pensoj ne venis. Poste li penadis unu horon sensukcese, fine li malsupreniris en la familioĉambron. Neniu ĉeestis, sole malvarmeta, verda krepusko; sur la kudrotablo de Elizabeto kuŝis ruĝa rubando, kiun ŝi portis posttagmeze ĉirkaŭ la kolo. Li prenis ĝin en la manon, sed ĝi doloris lin, do li remetis ĝin sur la tablon. Li havis nenian ri-pozon, li malsupreniris al la lago kaj deligis la boaton; li trans-40
-
-IMENLAGO
-
-
-remis kaj iris ankoraŭ unufoje ĉiujn vojojn, kiujn li estis irinta kun Elizabeto. Kiam li revenis hejmen, mallumiĝis; sur la kor-to renkontis lin la veturigisto, kiu kondukis la ĉevalojn sur la herbejon, ĉar la vojaĝantoj ĵus revenis. Enirinte la vestiblon, li aŭdis Eri˛on irantan tien kaj reen en la ĝardenhalo. Li ne eniris; li haltis momenton, kaj poste supreniris mallaŭte la ŝtuparon al sia ĉambro. Tie ĉi li metis la apogseĝon apud la fenestron; li faris, kvazaŭ li volus aŭskulti la najtingalon, kiu kantis malsupre en la taksusmuroj, sed li aŭdis nur la bata-don de sia koro. Sub li en la domo ĉiuj iris ripozi; la nokto preterfluis; li ne sentis ĝin. Tiel li sidis multe da horoj. Fine li ekstaris kaj sin ŝovis en la malfermitan fenestron. La nokta roso fluetis inter la folioj, la najtingalo jam ĉesis kanti. Iom post iom la profunda bluo de la malluma ĉielo ankaŭ venkiĝis ekde oriento per palflava lumeto; freŝa vento sin levis kaj tu-
+Li sidiĝis por labori, sed pensoj ne venis. Poste li penadis unu horon sensukcese, fine li malsupreniris en la familioĉambron. Neniu ĉeestis, sole malvarmeta, verda krepusko; sur la kudrotablo de Elizabeto kuŝis ruĝa rubando, kiun ŝi portis posttagmeze ĉirkaŭ la kolo. Li prenis ĝin en la manon, sed ĝi doloris lin, do li remetis ĝin sur la tablon. Li havis nenian ri-pozon, li malsupreniris al la lago kaj deligis la boaton; li transremis kaj iris ankoraŭ unufoje ĉiujn vojojn, kiujn li estis irinta kun Elizabeto. Kiam li revenis hejmen, mallumiĝis; sur la kor-to renkontis lin la veturigisto, kiu kondukis la ĉevalojn sur la herbejon, ĉar la vojaĝantoj ĵus revenis. Enirinte la vestiblon, li aŭdis Eri˛on irantan tien kaj reen en la ĝardenhalo. Li ne eniris; li haltis momenton, kaj poste supreniris mallaŭte la ŝtuparon al sia ĉambro. Tie ĉi li metis la apogseĝon apud la fenestron; li faris, kvazaŭ li volus aŭskulti la najtingalon, kiu kantis malsupre en la taksusmuroj, sed li aŭdis nur la bata-don de sia koro. Sub li en la domo ĉiuj iris ripozi; la nokto preterfluis; li ne sentis ĝin. Tiel li sidis multe da horoj. Fine li ekstaris kaj sin ŝovis en la malfermitan fenestron. La nokta roso fluetis inter la folioj, la najtingalo jam ĉesis kanti. Iom post iom la profunda bluo de la malluma ĉielo ankaŭ venkiĝis ekde oriento per palflava lumeto; freŝa vento sin levis kaj tu-
 
 ŝetis la varmegan frunton de Rejnhardo. La unua alaŭdo ĝoje-gante suprenflugis en la aeron. Subite Rejnhardo sin turnis kaj iris al la tablo, li palpserĉis krajonon, kaj, kiam li trovis ĝin, li sidiĝis por skribi kelkajn liniojn sur blanka paperfolio. Tion fininte, li prenis ĉapelon kaj bastonon, kaj postlasante la pa-peron, li malfermis singardeme la pordon kaj malsupreniris en la vestiblon. — La matena krepusko plenigis ankoraŭ ĉiujn angulojn; la granda domkato, sterniĝinta sur pajlmato, ĝibi-gis la dorson al lia mano, kiun li senpense kontraŭtenis. Sed ekstere en la ĝardeno jam fajfis la paseroj surbranĉe, kaj diris al ĉiuj, ke la nokto forpasis. Jen li aŭdis, ke pordo moviĝas supre en la domo, iu malsupreniris la ŝtuparon, kaj, kiam li ekvidis, Elizabeto staris antaŭ li. ŝi metis la manon sur lian brakon, ŝi movis la lipojn, sed li aŭdis nenian vorton.
-
-
-IMENLAGO
 
 
 —Vi ne revenos, — fine ŝi diris, — mi scias ĝin, ne menso-gu; vi neniam revenos.
@@ -950,9 +801,6 @@ IMENLAGO
 ŝi lasis fali sian manon kaj diris nenion plu. Li iris tra la vestiblo al la pordo; tiam li sin turnis ankoraŭ unufoje. ŝi staris senmove sur la sama loko kaj rigardis lin per nevivaj okuloj. Li faris unu paŝon antaŭen kaj etendis la brakojn al ŝi.
 
 Poste li sin deturnis perforte kaj eliris tra la pordo. — Ekstere kuŝis la mondo en freŝa matenlumo, la rosoperloj, kiuj pendis en la araneaĵoj, briletis en la unuaj sunradioj. Li ne rigardis malantaŭen, rapide forirante; kaj pli kaj pli malaperis post li la silenta bieno, kaj antaŭ li aperis la granda, vasta mondo.
-
-
-IMENLAGO
 
 
 La maljunulo
@@ -966,9 +814,6 @@ Oni malfermis la pordon, kaj hela lumeto falis en la ĉambron.
 Metu la lampon surtablen.
 
 Poste li ŝovis la seĝon al la tablo, prenis unu el la malfermitaj libroj kaj enprofundiĝis en studojn, per kiuj li iam ek-zercis la forton de sia juneco.
-
-
-IMENLAGO
 
 
 www.omnibus.se/

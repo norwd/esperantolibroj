@@ -13,11 +13,6 @@ LA NAIVECO DE PASTRO BROWN
 Cecil Bean
 
 
-@omnibus.se
-
-·
-
-
 L A N A I V E CO D E PA ST RO B ROW N
 
 
@@ -27,18 +22,14 @@ Inter la arĝenta rubando de la mateno kaj la verda brilanta rubando de la maro,
 
 Flambeau estas en Anglujo. La policanoj de tri landoj estis fine sekvintaj lin de Gento ĝis Bruselo, de Bruselo ĝis la Holanda Hoko, kaj oni konjektis, ke li profitos pro la nefamiliareco kaj konfuzo kaŭzata de la Eŭkarista Kongreso, tiam okazanta en Londono. Kredeble li vojaĝos kiel ia subgrada skribisto aŭ sekretario laboranta rilate al ĝi; kompreneble, tamen, Valentin ne povis esti certa pri tio; neniu povis esti certa pri Flambeau.
 
-Pasis jam multaj jaroj de kiam tiu krimkolosulo ĉesis tumultigi 3
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pasis jam multaj jaroj de kiam tiu krimkolosulo ĉesis tumultigi
 
 
 la tutan mondon; kaj kiam li ĉesis kiel oni diris post la morto de Rolando, venis en la mondon granda trankvilo. Tamen dum liaj plej bonaj tagoj (kompreneble mi volas diri, dum liaj plej malbonaj tagoj) Flambeau estis eminentulo tiel statueca kaj internacia kiel la germana imperiestro. Preskaŭ ĉiumatene la ĵurnaloj anoncis, ke li estas evitinta la sekvojn de unu krimo farante ankoraŭ alian. Li estis Gaskono, kun giganta figuro kaj fizika kuraĝo; kaj oni rakontis pri li anekdotojn plej malverŝajnajn; kiamaniere li renversis iun juĝiston kaj starigis lin sur la kapo ”por reklarigi lian cerbon”; kiamaniere li kuris tra la Rue de Rivoli kun policano sub ĉiu brako. Oni tion ĉi devas diri pri li, ke kutime li eluzis sian fantazian fortecon en tiaj sensangaj, kvankam maldignaj, epizodoj; liaj veraj krimoj konsistis precipe el lerta kaj pogranda rabado. Tamen ĉiu el liaj raboj estis preskaŭ kiel nova peko kaj unu sola sufiĉus por unu rakonto.
 
 Estis li, kiu estris la grandan Tirolan Laktvendan Kompanion en Londono, sen laktejoj, sen bovinoj, sen ĉaroj kaj sen lakto, sed kun ĉirkaŭ mil klientoj. ĉi tiujn li servis tute simple, nur transmovante la laktujetojn ĉe aliaj pordoj al la pordoj de siaj klientoj.
 
-Estis li, kiu intime korespondadis kun fraŭlino, kies leteraron oni atente tralegis, per la eksterordinara ruzo, fari etajn kliŝojn de ŝiaj komunikaĵoj sur mikroskopaj vitroj. Tamen entute vasta simpleco karakterizis multajn el liaj provoj. Oni diras, ke iun fojon li repentris noktomeze la domciferojn tra unu tuta strato nur por kapti solan vojaĝanton. Estas tute certe, ke li elpensis moveblan leterkes-ton, kiun li starigis ĉe stratanguloj en trankvilaj antaŭurboj, esperante, ke fremdaj preterpasantoj enmetos poŝtmandatojn. Fine, oni sciis, ke li estas miriga akrobato; malgraŭ sia granda figuro li povis salti kiel lokusto kaj malaperi en arbsupraĵoj kiel simio. Tial la fama Valentin ne dubis pri tio, ke liaj aventuroj ne finiĝos kiam li estos 4
-
-L A N A I V E CO D E PA ST RO B ROW N
+Estis li, kiu intime korespondadis kun fraŭlino, kies leteraron oni atente tralegis, per la eksterordinara ruzo, fari etajn kliŝojn de ŝiaj komunikaĵoj sur mikroskopaj vitroj. Tamen entute vasta simpleco karakterizis multajn el liaj provoj. Oni diras, ke iun fojon li repentris noktomeze la domciferojn tra unu tuta strato nur por kapti solan vojaĝanton. Estas tute certe, ke li elpensis moveblan leterkes-ton, kiun li starigis ĉe stratanguloj en trankvilaj antaŭurboj, esperante, ke fremdaj preterpasantoj enmetos poŝtmandatojn. Fine, oni sciis, ke li estas miriga akrobato; malgraŭ sia granda figuro li povis salti kiel lokusto kaj malaperi en arbsupraĵoj kiel simio. Tial la fama Valentin ne dubis pri tio, ke liaj aventuroj ne finiĝos kiam li estos
 
 
 lin trovinta. Tamen, kiel lin trovi? Pri tio ĉi eĉ la eminenta Valentin ankoraŭ ne certiĝis.
@@ -47,18 +38,14 @@ Estis io, kion Flambeau, malgraŭ sia alivestiga lerteco ne povis kaŝi, kaj tio
 
 Pri la homoj sur la ŝipo li jam certigis; ĉe Harwich ne pli ol ses aliaj aliĝis. Estis malalta fervoja oficisto iranta al la finstacio, tri iomete malaltaj legomkulturistoj kiuj envenis post du stacioj, unu tre malalta vidvino iranta al Londono el malgranda Essex’a urbeto kaj tre malalta katolika pastro el Essex’a vilaĝeto. Vidinte lin Valentin forlasis la serĉadon pro senesperiĝo kaj preskaŭ ekridis. La malgranda pastro tiel esprimis la esencon de tiuj orientaj ebenaĵoj; li havis vizaĝon tiel rondan kaj stultan kiel Norfolk’a pastpudingo; li havis okulojn tiel senesprimajn kiel la Norda Maro; li kunhavis kelkajn brunpaperajn pakaĵojn, kiujn li tute ne kapablis kunporti. Sendube la Eŭkarista Kongreso elsuĉis el ilia loka stagnado multajn tiajn estaĵojn blindajn kaj sen la povo sin helpi, kiel talpoj elfositaj.
 
-Valentin estis skeptikulo de la severa franca tipo kaj ne povis havi amon al pastroj. Sed li certe povis senti kompaton al ili kaj tiu ĉi povus veki ies ajn kompaton. Li portis grandan eluzitan ombrelon, kiu konstante faladis planken. Li ŝajnis ne scii, kiu estas la ĝusta duono de lia ira-revena bileto. Li klarigis kun bovida simpleco al ĉiu en la vagono, ke li devas atenti, ĉar li kunhavas en unu el la brunpaperaj pakaĵoj ion faritan el vera argento kun ”bluaj ŝtonoj”. Lia strangeta intermikso de Essex’a plateco kun sanktula simpleco konstante amuzis la francon, ĝis la pastro alvenis (iel) al Stratford kun sia tuta pakaĵaro, kaj revenis por sia ombrelo. Kiam li tion faris, 5
-
-L A N A I V E CO D E PA ST RO B ROW N
+Valentin estis skeptikulo de la severa franca tipo kaj ne povis havi amon al pastroj. Sed li certe povis senti kompaton al ili kaj tiu ĉi povus veki ies ajn kompaton. Li portis grandan eluzitan ombrelon, kiu konstante faladis planken. Li ŝajnis ne scii, kiu estas la ĝusta duono de lia ira-revena bileto. Li klarigis kun bovida simpleco al ĉiu en la vagono, ke li devas atenti, ĉar li kunhavas en unu el la brunpaperaj pakaĵoj ion faritan el vera argento kun ”bluaj ŝtonoj”. Lia strangeta intermikso de Essex’a plateco kun sanktula simpleco konstante amuzis la francon, ĝis la pastro alvenis (iel) al Stratford kun sia tuta pakaĵaro, kaj revenis por sia ombrelo. Kiam li tion faris,
 
 
 Valentin tiom bonanimis, ke li avertis al li ne prizorgi la arĝentaĵon, pribabilante pri ĝi al ĉiu. Sed al kiu ajn li parolis, Valentin estis atente serĉanta alian; li ĉiam atendis iun ajn, riĉan aŭ malriĉan, viran aŭ virinan, kiu preskaŭis al ses futoj, ĉar la alteco de Flambeau estis ses futoj kaj kvar coloj.
 
 Tamen li elvaĝoniĝis en la stacidomo Liverpool Street, kredante konscience, ke li ankoraŭ ne preterlasis la krimulon. Poste li iris al Scotland Yard por oficialigi sian ĉeeston kaj aranĝi helpdonon, se tio estus bezonata. Poste li ekbruligis cigaredon kaj eliris por longa promenado tra la Londonaj stratoj. Dum li trairis la stratojn kaj placojn preter Victoria li subite paŭzis kaj ekstaris. La placo estis strangeta kaj silenta, tre tipe Londona, plena de hazarda silento. La altaj, krutaĵsimilaj ĉirkaŭaj domoj aspektis samtempe prosperaj kaj neloĝataj; kvadrata arbustdensejo en la mezo ŝajnis tiel forlasita kiel verda Pacifika insulo. Unu el la kvar flankoj de la placo estis multe pli alta ol la aliaj, kiel podio; kaj la perspektivo de tiu ĉi flanko estis interrompata de unu el tiuj admirindaj hazardokazaĵoj Londonaj… restoracio, kiu ŝajne estis erarvaginta el Soho. i estis objekto eksterordinare alloga, kun pigmeaj kreskaĵoj en potoj kaj longaj, flavblanke striitaj rulkurtenoj. i staris aparte alta super la strato kaj laŭ la kutima senorda maniero de Londono, ŝtuparo kondukis supren renkonte al la pordo, preskaŭ kiel ŝtupara fajrosavilo supren kondukas al fenestro de unua etaĝo. Valentin staris kaj fumadis antaŭ la flavblankaj rulkurtenoj kaj longe meditis pri ili.
 
-Pri mirakloj la plej nekredebla fakto estas, ke ili okazas. En la ĉielo kelkaj nuboj ja kunfandiĝas ŝajne al la formo de rigardanta homa okulo. Arbo ja elstaras en la pejzaĝo de duboplena vojaĝo kun la preciza kaj ellaborita formo de demandsigno. Mi mem vidis ambaŭ tiujn ĉi okazojn dum la ĵus pasintaj tagoj. Nelson efektive mortis en la momento de venko; tute hazarde iu Williams murdas 6
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pri mirakloj la plej nekredebla fakto estas, ke ili okazas. En la ĉielo kelkaj nuboj ja kunfandiĝas ŝajne al la formo de rigardanta homa okulo. Arbo ja elstaras en la pejzaĝo de duboplena vojaĝo kun la preciza kaj ellaborita formo de demandsigno. Mi mem vidis ambaŭ tiujn ĉi okazojn dum la ĵus pasintaj tagoj. Nelson efektive mortis en la momento de venko; tute hazarde iu Williams murdas
 
 
 viron kies nomo estas Williamson; ŝajnas kiel ia infanmortigo. Mallonge, ekzistas en la vivo elemento de kobolda koincido, kiun tiuj, kiuj fidas al la prozeco de ĉiutagaj aferoj, povus ĉiam preterlasi nerimarkita. Tio ĉi estas bone esprimata de la paradokso de Poe, ke saĝeco devas ĉiam prikalkuli aferojn neantaŭviditajn.
@@ -67,12 +54,7 @@ Aristide Valentin estis ĝisfunde franca; kaj la franca intelekto estas precipe 
 
 ĉifoje li havis neniajn fortajn aŭ nedisputeblajn principojn. Oni preterlasis Flambeau ĉe Harwich; kaj se li iel estis en Londono li povus esti iu ajn, ĉu alta vagulo sur Wimbledon Herbejo aŭ alta tostestro ĉe la Hotelo Metropola. Meze de tia nuda nesciado, Valentin havis vidpunkton kaj metodon proprajn.
 
-Tiaokaze li prikalkulis la neantaŭviditaĵojn. Tiaokaze, kiam li ne povis sekvi la logikan vojeton, li severe kaj atente sekvis la mallo-gikan vojeton. Anstataŭ iri al la ĝustaj ejoj . . . bankoj, stacidomoj, renkontejoj . . . li sisteme iris al la malĝustaj ejoj; li frapis la pordon de ĉiu senhoma domo, eniris en ĉiun sakstraton, trairis tra ĉiu per rubo blokita vojeto, ĉirkaŭiris ĉiun kurbstraton, kiu kondukis lin senutile for de la vojo. Li defendis tiun ĉi frenezan faradon per ple-7
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-na logiko. Li asertis, ke se la krimulo lasis postsignon ĉi tiu estas la plej malbona metodo, sed se la krimulo ne lasis postsignon, ĝi estas la plej bona metodo; ĉar estas almenaŭ ebleco, ke la kuriozaĵo, kiu frapis la okulon de la sekvato, povus esti ĝuste tiu, kiu frapis la okulon de la sekvanto. Ie unu homo devas komenci, kaj prefere tie estu kie eble la alia finiĝis. Io pri tiu ŝtuparo suprenkondukanta al la butiko; io pri la silento kaj strangeteco de la restoracio vekis ĉe la detektivo lian tutan maloftan romantikan fantazion kaj decidigis lin ekfrapi hazarde. Li supreniris la ŝtuparon, sidiĝis ĉe tablo apud la fenestro kaj mendis tason da nigra kafo.
+Tiaokaze li prikalkulis la neantaŭviditaĵojn. Tiaokaze, kiam li ne povis sekvi la logikan vojeton, li severe kaj atente sekvis la mallo-gikan vojeton. Anstataŭ iri al la ĝustaj ejoj . . . bankoj, stacidomoj, renkontejoj . . . li sisteme iris al la malĝustaj ejoj; li frapis la pordon de ĉiu senhoma domo, eniris en ĉiun sakstraton, trairis tra ĉiu per rubo blokita vojeto, ĉirkaŭiris ĉiun kurbstraton, kiu kondukis lin senutile for de la vojo. Li defendis tiun ĉi frenezan faradon per plena logiko. Li asertis, ke se la krimulo lasis postsignon ĉi tiu estas la plej malbona metodo, sed se la krimulo ne lasis postsignon, ĝi estas la plej bona metodo; ĉar estas almenaŭ ebleco, ke la kuriozaĵo, kiu frapis la okulon de la sekvato, povus esti ĝuste tiu, kiu frapis la okulon de la sekvanto. Ie unu homo devas komenci, kaj prefere tie estu kie eble la alia finiĝis. Io pri tiu ŝtuparo suprenkondukanta al la butiko; io pri la silento kaj strangeteco de la restoracio vekis ĉe la detektivo lian tutan maloftan romantikan fantazion kaj decidigis lin ekfrapi hazarde. Li supreniris la ŝtuparon, sidiĝis ĉe tablo apud la fenestro kaj mendis tason da nigra kafo.
 
 La mateno estis duonpasinta kaj li ankoraŭ ne matenmanĝis; la malgrandaj postrestaĵoj de aliaj matenmanĝoj ĉirkaŭstaris sur la tabloj por rememorigi al li lian malsaton; kaj almetinte al sia mendo frititan ovon, li reve skuis iom da blanka sukero en sian kafon, pri Flambeau senĉese pensante. Li rememoris kiel Flambeau sin savis iufoje per ungotondilo kaj iufoje per brulanta domo; iufoje ĉar li devis pagi por neafrankita letero kaj iufoje per instigo al kelkaj homoj trarigardi teleskopon al kometo, kiu eble detruos la mondon.
 
@@ -82,12 +64,7 @@ Li opiniis, ke lia detektiva cerbo estas tiom lerta kiom tiu de la krimulo, kio 
 
 Li ekrigardis la ujon, el kiu estis veninta la polvo arĝenta; ĝi estis sendube sukerujo kaj certe estis tiel farita por enhavi sukeron, kiel ĉampana botelo estas farita por enhavi ĉampanon. Li scivolis, kial oni konservas en ĝi la salon. Li esploris por konstati ĉu ekzistas ujoj pli kutimaj. Jes, certe; estas du salujoj tute plenaj. Eble la spicaĵo en la salujoj estis iel speciala. Li gustumis ĝin; ĝi estis sukero.
 
-Tiam li ĉirkaŭrigardis al la restoracio kun nova intereso por ektro-8
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-vi, ĉu estas aliaj postsignoj de tiu unika artisteco, kiu metas sukeron en la salujojn kaj salon en la sukerujojn. Krom iu stranga makulo, farita per malpala fluido sur unu el la blanke tapetitaj muroj, la tuta ejo ŝajnis esti bonorda, gajeca, kaj ordinara. Li sonorigis por la kelnero.
+Tiam li ĉirkaŭrigardis al la restoracio kun nova intereso por ektrovi, ĉu estas aliaj postsignoj de tiu unika artisteco, kiu metas sukeron en la salujojn kaj salon en la sukerujojn. Krom iu stranga makulo, farita per malpala fluido sur unu el la blanke tapetitaj muroj, la tuta ejo ŝajnis esti bonorda, gajeca, kaj ordinara. Li sonorigis por la kelnero.
 
 Kiam tiu oficisto aperis kun la hararo iomete taŭzita kaj pro la frua horo iomete nebulokula, la detektivo (kiu ne malestimis la pli simplajn specojn de spriteco), petis, ke li gustumu la sukeron por konstati, ĉu ĝi atingas la altnivelon kutima ĉe la hotelo. La rezulto estis, ke la kelnero subite oscedis kaj vekiĝis.
 
@@ -108,21 +85,13 @@ Subite la kelnero ekbalbutis, ŝajne pro ekfluego da vortoj.
 ”Jes, jes,” diris la servisto ekscitite, indikante la malhelan maku-lon sur la blanka papero, ”ĵetis ĝin tien… muren.” Valentin demande rigardis la posedanton, kiu tuj donis pli detalan raporton pri la afero.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Jes, sinjoro,” li diris, ”estas tute vere, tamen kredeble ĝi neniel rilatas al la afero de la sukero kaj salo. Du pastroj envenis tien ĉi tre frue por trinki supon… tuj kiam ni demetis la fenestro-kovrilojn. Ili ambaŭ estis kvietaj, bonmoraj homoj; unu el ili pagis kaj eliris; la alia, kiu ŝajnis esti homo entute pli malrapida, bezonis kelkajn minutojn por kolekti siajn aĵojn. Tamen li fine eliris. Tamen en la momento antaŭ ol li pasis en la straton, li intence prenis la supu-jon, kiun li ankoraŭ nur duone malplenigis, kaj ĵetis la supon trafe al la muro. Mi mem estis en la malantaŭa ĉambro kaj la kelnero ankaŭ; tiel mi povis nenion fari, krom elkuri kaj konstati, ke la butiko estas senhoma. Ne fariĝis grava difekto, tamen abomena aplombaĉo estis; mi provis kapti la virojn sur la strato. Ili estis tamen jam tro malproksime; mi nur rimarkis, ke ili malaperis ĉirkaŭ la plej proksima angulo en straton Carstairs.”
 
 La detektivo ekstaris, kun ĉapelo surkape kaj bastono en la ma-no. Li jam decidis, ke en la tuta mallumo de sia menso, li povas nenion fari krom sekvi la unuan strangan fingron, kiu indikas la vojon; kaj ĉi tiu fingro estis sufiĉe stranga. Paginte la monon kaj tintiginte malantaŭ si la vitrajn pordojn li estis baldaŭ rapide trapaŝanta en la alian straton.
 
 Estis feliĉe, ke eĉ en tiaj febraj momentoj li ne konfuziĝis kaj lia okulo ĉion rimarkis. Io en butikfenestro preterglitis lin kiel fulmo, tamen li reiris por rigardi ĝin. Estis ordinara legom- kaj frukt-vendejo kaj la varoj estis aranĝitaj subĉiele kaj ĉiu havis karteton kun sia prezo kaj nomo.
 
-En la du plej facile videblaj fakoj estis du amasoj da nuksoj kaj oranĝoj respektive. Sur la nuksamaso kuŝis karto sur kiu estis klare skribita per blua kreto ”Bongustaj Tanĝeraj Oranĝoj, du por unu penco”. Sur la oranĝoj troviĝis priskribo egale ĝusta kaj klara, ”Brazilaj Nuksoj, Plej Bonaj, 4 pencoj por funto.” S-ro Valentin rigarda-10
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-dis ĉi tiujn afiŝojn kaj imagis, ke li rekontis ĉi tian subtilan sprite-con antaŭe, efektive antaŭ nelonge. Li atentigis al la ruĝvizaĝa fruktisto, kiu iomete malbonhumore rigardadis tien kaj tien ĉi en la strato, tiun malprecizecon pri liaj reklamoj. La fruktisto nenion diris sed abrupte reĝustigis la kartojn. La detektivo, sin apogante elegante al sia bastono, daŭris ekzameni la butikon. Fine li diris, ”Mi petas, sinjoro, ke vi pardonu mian ŝajnan sencelecon, sed tre plaĉus al mi, fari al vi demandon pri eksperimenta psikologio kaj la inter-rilato de ideoj.”
+En la du plej facile videblaj fakoj estis du amasoj da nuksoj kaj oranĝoj respektive. Sur la nuksamaso kuŝis karto sur kiu estis klare skribita per blua kreto ”Bongustaj Tanĝeraj Oranĝoj, du por unu penco”. Sur la oranĝoj troviĝis priskribo egale ĝusta kaj klara, ”Brazilaj Nuksoj, Plej Bonaj, 4 pencoj por funto.” S-ro Valentin rigardadis ĉi tiujn afiŝojn kaj imagis, ke li rekontis ĉi tian subtilan sprite-con antaŭe, efektive antaŭ nelonge. Li atentigis al la ruĝvizaĝa fruktisto, kiu iomete malbonhumore rigardadis tien kaj tien ĉi en la strato, tiun malprecizecon pri liaj reklamoj. La fruktisto nenion diris sed abrupte reĝustigis la kartojn. La detektivo, sin apogante elegante al sia bastono, daŭris ekzameni la butikon. Fine li diris, ”Mi petas, sinjoro, ke vi pardonu mian ŝajnan sencelecon, sed tre plaĉus al mi, fari al vi demandon pri eksperimenta psikologio kaj la inter-rilato de ideoj.”
 
 La ruĝvizaĝa vendisto rigardis lin per okulo minacanta, tamen li gaje daŭrigis, svingante sian kanon, ”Kial,” li daŭigis, ”Kial du malĝuste metitaj kartoj en legomvendista butiko similas al pastra ĉapelo veninta al Londono libertempe? Aŭ, se mi ne klare esprimas, kion mi volas diri; kio estas la mistera ligilo, kiu kunigas la ideon de nuksoj reklamitaj kiel oranĝoj, kun la ideo de du pastroj, unu alta, la alia malalta?”
 
@@ -136,12 +105,7 @@ La okuloj de la vendisto elstaris el lia kapo kiel tiuj de heliko; kaj momente �
 
 ”Tra tiu dua strato, maldekstre, kaj poste trans la placon,” senhezite diris la alia.
 
-”Dankon,” respondis Valentin kaj malaperis kiel feo. ĉe la mal-11
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-proksima flanko de la dua placo li trovis policanon kaj diris: ”Estas urĝe, oficiro; ĉu vi vidis du pastrojn kun nigraj ĉapeloj?” La policano mallaŭte ekridis kaj diris: ”Mi ja vidis ilin, kaj mi dirus, ke unu estis ebria. Li staris meze de la strato tiom konfuzite, ke…”
+”Dankon,” respondis Valentin kaj malaperis kiel feo. ĉe la malproksima flanko de la dua placo li trovis policanon kaj diris: ”Estas urĝe, oficiro; ĉu vi vidis du pastrojn kun nigraj ĉapeloj?” La policano mallaŭte ekridis kaj diris: ”Mi ja vidis ilin, kaj mi dirus, ke unu estis ebria. Li staris meze de la strato tiom konfuzite, ke…”
 
 ”Kien ili iris?” ekdiris Valentin.
 
@@ -159,9 +123,7 @@ Valentin indikis subite per sia kano; ”Mi klarigos al vi sur la im-perialo de 
 
 ”Ian ajn strangaĵon,” respondis Valentin kaj obstine silentiĝis.
 
-La flava omnibuso rampis tra la nordaj vojoj, ŝajne dum horo post horo; la eminenta detektivo ne volis ion plu klarigi, kaj eble liaj 12
-
-L A N A I V E CO D E PA ST RO B ROW N
+La flava omnibuso rampis tra la nordaj vojoj, ŝajne dum horo post horo; la eminenta detektivo ne volis ion plu klarigi, kaj eble liaj
 
 
 helpantoj sentis silentan kaj kreskantan dubon pri lia celo, eble ankaŭ silentan kaj kreskantan deziron tagmanĝi; kaj la longaj stratoj de la nordlondonaj antaŭurboj ŝajnis entendiĝi, po longeco post longeco kiel infera teleskopo. Estis unu el tiaj vojaĝoj, kian farante homo senĉese sentas, ke li nepre estas atinginta la finon de l’universo kaj poste eltrovas, ke li nure estas ĉe la komenco de la Parko Tufnell. Londono iom post iom formortis je malpuretaj trinkejoj kaj malgajaj arbustejoj kaj poste neklarigeble renaskiĝis je brilantaj kaj larĝaj stratoj kaj buraĉaj hoteloj. Estis kiel trapasi dek tri apartajn trivialajn urbojn, unu tuŝantan la alian. Tamen, kvankam la vintra krepusko jam minacis la vojon antaŭ ili, la Pariza detektivo ankoraŭ sidis silenta kaj vigla, rigardante la fasadojn de la stratoj, kiuj preterglitis ambaŭflanke. Kiam ili jam lasis la antaŭurbon Camden Town malantaŭ si, la policanoj preskaŭ ekdormis; almenaŭ ili eksaltetis, kiam Valentin ekstaris, manfrapis ambaŭ surŝultre kaj kriegis al la veturigisto, ke li haltu.
@@ -174,12 +136,7 @@ Ili defalis la ŝtupojn al la strato ne sciante kial ili formoviĝis, kaj kiam i
 
 Valentin preskaŭ rompis sian bambuan kanon pro ekkolero.
 
-”Pruvon!” li kriegis, ”Bona Dio! li serĉas pruvon. Kompreneble es-13
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-tas dudek kontraŭ unu, ke ĝi efektive ne rilatas al ili. Tamen kion alian ni povas fari? ĉu vi ne komprenas, ke ni aŭ devos sekvi unu fantazian eblecon aŭ hejmeniri kaj enlitiĝi?” Li bruiris en la restoracion sekvate de siaj kunuloj, kaj ili baldaŭ sidis ĉe malgranda tablo manĝante malfruan tagmanĝon kaj rigardante la stelon de frakasita vitro de interne.
+”Pruvon!” li kriegis, ”Bona Dio! li serĉas pruvon. Kompreneble estas dudek kontraŭ unu, ke ĝi efektive ne rilatas al ili. Tamen kion alian ni povas fari? ĉu vi ne komprenas, ke ni aŭ devos sekvi unu fantazian eblecon aŭ hejmeniri kaj enlitiĝi?” Li bruiris en la restoracion sekvate de siaj kunuloj, kaj ili baldaŭ sidis ĉe malgranda tablo manĝante malfruan tagmanĝon kaj rigardante la stelon de frakasita vitro de interne.
 
 Eĉ tiel ĝi ne estis pli informdona al ili.
 
@@ -199,9 +156,7 @@ Eĉ tiel ĝi ne estis pli informdona al ili.
 
 ”Nu?” kriis Valentin, malrapide moviĝante sed kun flamantaj okuloj, ”Kaj poste?”
 
-”La pastro ĉe la pordo, diris tute severe, ‘Mi bedaŭras konfuzi viajn kalkulojn, tamen ĝi pagos por la fenestro.’ ‘Kiu fenestro?’ mi 14
-
-L A N A I V E CO D E PA ST RO B ROW N
+”La pastro ĉe la pordo, diris tute severe, ‘Mi bedaŭras konfuzi viajn kalkulojn, tamen ĝi pagos por la fenestro.’ ‘Kiu fenestro?’ mi
 
 
 diris, ‘Tiu, kiun mi estas romponta,’ li diris kaj frakasis tiun tutan vitron per sia ombrelo.”
@@ -216,9 +171,7 @@ Tuj poste ili trairis straton Bullock tiel rapide, ke mi ne povis kapti ilin kva
 
 Ilia vojaĝo nun irigis ilin tra nudaj brikaj vojoj tute kiel tuneloj; tra stratoj kun malmultaj lumoj kaj eĉ kun malmultaj fenestroj; stratoj kiuj ŝajne estis konstruitaj el la sensignifaj malantaŭaĵoj de ĉio.
 
-Krepusko ĉiam kreskadis, kaj ne estis facile, eĉ al la Londonaj policanoj diveni ĝuste kien ili iras. La policestro tamen opiniis, ke ili fine alvenos ien sur Hampstead Herbejo. Abrupte elŝvelanta kaj gazlumata fenestro tratranĉis la bluan krepuskon kiel serĉlumo kaj Valentin haltis dum momento antaŭ brila kaj triviala bombonbu-tiko. Post iometa hezito li eniris; li staris inter la okulfrapantaj koloroj de la sukeraĵoj kun tuta seriozeco kaj aĉetis dek tri ĉokoladojn cigarojn kun konsiderita zorgemeco. Evidente li preparis ian vojon al konversacio, tamen tion li ne bezonis. Akravizaĝa, mezaĝa fraŭ-
-
-lino en la butiko unue rigardis lian elegantecon kun nura aŭtomata scivolemeco; tamen kiam ŝi ekvidis, ke la pordo malantaŭ li estas plenigata per la blua uniformo de la policestro, ŝiaj okuloj ŝajnis vekiĝi.
+Krepusko ĉiam kreskadis, kaj ne estis facile, eĉ al la Londonaj policanoj diveni ĝuste kien ili iras. La policestro tamen opiniis, ke ili fine alvenos ien sur Hampstead Herbejo. Abrupte elŝvelanta kaj gazlumata fenestro tratranĉis la bluan krepuskon kiel serĉlumo kaj Valentin haltis dum momento antaŭ brila kaj triviala bombonbu-tiko. Post iometa hezito li eniris; li staris inter la okulfrapantaj koloroj de la sukeraĵoj kun tuta seriozeco kaj aĉetis dek tri ĉokoladojn cigarojn kun konsiderita zorgemeco. Evidente li preparis ian vojon al konversacio, tamen tion li ne bezonis. Akravizaĝa, mezaĝa fraŭlino en la butiko unue rigardis lian elegantecon kun nura aŭtomata scivolemeco; tamen kiam ŝi ekvidis, ke la pordo malantaŭ li estas plenigata per la blua uniformo de la policestro, ŝiaj okuloj ŝajnis vekiĝi.
 
 ”Ho,” ŝi diris, ”se vi alvenis pri tiu pakaĵo, mi jam forsendis ĝin.”
 
@@ -227,14 +180,9 @@ lino en la butiko unue rigardis lian elegantecon kun nura aŭtomata scivolemeco;
 ”Jes. Tiu, kiun la sinjoro postlasis, la sinjoro pastro.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Je Dio!” diris Valentin, antaŭen kliniĝanta kun sia unua konfeso de avideco. ”Pro ĉielo, diru al mi ĝuste kio okazis.”
 
-”Nu,” diris la virino iomete dube, ”la pastroj envenis antaŭ duonhoro kaj aĉetis pipromentojn kaj iomete parolis kaj tiam foriris en la direkto de la herbejo. Tamen momenton poste unu el ili reku-ris en la butikon kaj diris, ‘ĉu mi postlasis pakaĵon?’ Mi do ĉie ser-
-
-ĉis kaj ne povis tiun trovi; tiam li diris, ‘Ne gravas; sed se ĝi troviĝos, bonvolu poŝtsendi ĝin al ĉi tiu adreso’ kaj li postlasis la adreson kaj ŝilingon por mi. Kaj verdire, kvankam mi kredis, ke mi ĉien serĉis, mi trovis, ke li ja postlasis brunpaperan pakaĵon, kaj mi sendis ĝin kien li ordonis. Mi ne povas rememori la adreson nun, sed estis ie en Westminster. Sed ĉar ĝi ŝajnis esti tiom grava afero, mi kredis, ke la policanoj estas alvenintaj pri ĝi.”
+”Nu,” diris la virino iomete dube, ”la pastroj envenis antaŭ duonhoro kaj aĉetis pipromentojn kaj iomete parolis kaj tiam foriris en la direkto de la herbejo. Tamen momenton poste unu el ili reku-ris en la butikon kaj diris, ‘ĉu mi postlasis pakaĵon?’ Mi do ĉie serĉis kaj ne povis tiun trovi; tiam li diris, ‘Ne gravas; sed se ĝi troviĝos, bonvolu poŝtsendi ĝin al ĉi tiu adreso’ kaj li postlasis la adreson kaj ŝilingon por mi. Kaj verdire, kvankam mi kredis, ke mi ĉien serĉis, mi trovis, ke li ja postlasis brunpaperan pakaĵon, kaj mi sendis ĝin kien li ordonis. Mi ne povas rememori la adreson nun, sed estis ie en Westminster. Sed ĉar ĝi ŝajnis esti tiom grava afero, mi kredis, ke la policanoj estas alvenintaj pri ĝi.”
 
 ”Tion ili ja faris,” diris Valentin abrupte. ”ĉu la herbejo estas proksima?”
 
@@ -242,27 +190,18 @@ L A N A I V E CO D E PA ST RO B ROW N
 
 La strato kiun ili trapasis estis tiom mallarĝa kaj malheligata per ombroj; ke kiam ili subite eliris sur la vakan herbejon kaj sub la vastan ĉielon, ili kun surprizo konstatis, ke la vespero estas ankoraŭ tiom luma kaj klara.
 
-Perfekta kupolo pavverda oriĝis inter la nigraj arboj kaj la purpura malproksimo. La verdkoloro tiom mallumiĝis, ke ekbrilis unu aŭ du steloj, kiel kristalaj pintoj. La tuta restaĵo de taglumo kuŝis en ora brileco trans la rando de Hampstead kaj tiu populara kavaĵo kiun oni nomas ”la Valo de Saneco”. La libertempantoj, kiuj vagas en ĉi tiu regiono, ankoraŭ ne tute disiĝis; kelkaj paroj sidis kvazaŭ sen formo sur benkoj, kaj en la malproksimo ankoraŭ ekkriis knabino sur unu el la balanciloj. La ĉiela gloro profundiĝis kaj mallumi-16
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ĝis ĉirkaŭ la majesta banaleco de la homo; kaj starante sur la deklivo kaj transrigardante la valon, Valentin ekvidis tiun, kiun li serĉis.
+Perfekta kupolo pavverda oriĝis inter la nigraj arboj kaj la purpura malproksimo. La verdkoloro tiom mallumiĝis, ke ekbrilis unu aŭ du steloj, kiel kristalaj pintoj. La tuta restaĵo de taglumo kuŝis en ora brileco trans la rando de Hampstead kaj tiu populara kavaĵo kiun oni nomas ”la Valo de Saneco”. La libertempantoj, kiuj vagas en ĉi tiu regiono, ankoraŭ ne tute disiĝis; kelkaj paroj sidis kvazaŭ sen formo sur benkoj, kaj en la malproksimo ankoraŭ ekkriis knabino sur unu el la balanciloj. La ĉiela gloro profundiĝis kaj mallumiĝis ĉirkaŭ la majesta banaleco de la homo; kaj starante sur la deklivo kaj transrigardante la valon, Valentin ekvidis tiun, kiun li serĉis.
 
 Inter la nigraj kaj disiĝantaj aroj en tiu malproksimo estis unu aparte nigra, kiu ne disiĝis… aro kiu konsistis el du figuroj, pastre vestitaj. Kvankam ili aspektis tiel malgrandaj kiel insektoj, Valentin povis vidi, ke unu el ili estas multe pli malalta ol la alia. Kvankam la alia havis la kurbitajn ŝultrojn de studento kaj malelstarantan mienon, li povis vidi, ke la viro estas pli ol ses futojn alta. Li fermis la dentojn kaj antaŭenmarŝis svingante sian bastonon senpacience.
 
 Kiam li iome malgrandigis la interspacon kaj pligrandigis la du nigrajn figurojn kvazaŭ en vasta mikroskopo, li ekvidis ion alian; ion, kio mirigis lin kaj kion li iel atendis. Kiu ajn estu la alta pastro, povus esti nenia dubo pri kiu estas la malalta. Li estas lia amiko de la Harwich vagonaro, la stumpa pastreto de Essex, kiun li avertis pri liaj brunpaperaj pakaĵoj.
 
-Nu, ĝis ĉi tio, ĉio estis sufiĉe klara kaj logika. Valentin eksciis tiun matenon, ke iu Pastro Brown el Essex, alportos al Londono arĝentan krucon kun safiroj, relikvujo grandvalora, por montri al iuj fremdaj pastroj ĉe la kongreso. Tiu estis sendube la ”arĝentaĵo kun bluaj ŝtonoj” kaj pastro Brown estis sendube la stultulo en la trajno. Nu, ne estus rimarkinde, ke tio kion Valentin eltrovis, Flambeau ankaŭ eltrovis; Flameau ĉion eltrovis. Estus ankaŭ neniel mirinde, ke kiam Flambeau aŭdis pri safira kruco li provus forŝteli ĝin, tio estus la plej laŭnatura okazo el la tuta naturscienco. Kaj ankaŭ plen-certe estus neniel mirinde, ke Flambeau plene superruzus stultan ŝafon simile al la viro kun la ombrelo kaj la pakaĵoj. Li estas tia ho-mo kian oni povus allogi eĉ ĝis la Norda Poluso; ne estus surpriza afero se aktoro kiel Flambeau, vestita kiel alia pastro, allogus lin ĝis Hampstead Herbejo. is tie la krimo vidiĝis sufiĉe klare; kaj kvankam la detektivo sentis kompaton al la pastro pro lia senhelpeco, li 17
-
-L A N A I V E CO D E PA ST RO B ROW N
+Nu, ĝis ĉi tio, ĉio estis sufiĉe klara kaj logika. Valentin eksciis tiun matenon, ke iu Pastro Brown el Essex, alportos al Londono arĝentan krucon kun safiroj, relikvujo grandvalora, por montri al iuj fremdaj pastroj ĉe la kongreso. Tiu estis sendube la ”arĝentaĵo kun bluaj ŝtonoj” kaj pastro Brown estis sendube la stultulo en la trajno. Nu, ne estus rimarkinde, ke tio kion Valentin eltrovis, Flambeau ankaŭ eltrovis; Flameau ĉion eltrovis. Estus ankaŭ neniel mirinde, ke kiam Flambeau aŭdis pri safira kruco li provus forŝteli ĝin, tio estus la plej laŭnatura okazo el la tuta naturscienco. Kaj ankaŭ plen-certe estus neniel mirinde, ke Flambeau plene superruzus stultan ŝafon simile al la viro kun la ombrelo kaj la pakaĵoj. Li estas tia ho-mo kian oni povus allogi eĉ ĝis la Norda Poluso; ne estus surpriza afero se aktoro kiel Flambeau, vestita kiel alia pastro, allogus lin ĝis Hampstead Herbejo. is tie la krimo vidiĝis sufiĉe klare; kaj kvankam la detektivo sentis kompaton al la pastro pro lia senhelpeco, li
 
 
 preskaŭ malestimis Flambeau ĉar li sin klinis al tia facile trompe-bla viktimo. Tamen kiam Valentin pripensis ĉion, kio dume okazis, ĉion kio kondukis lin al lia triumfo, li renversis sian tutan cerbaĵon por eltrovi eĉ la plej malgrandan racieron en la okazintaĵoj. Kiel rilatis la forŝtelo de blua kaj arĝenta kruco de Essex’a pastro, al supo ĵetita almure en restoracio? Kiel ĝi rilatis al nuksoj nomitaj kiel oranĝoj, aŭ al pagado kaj poste frakasado de fenestroj? Li estis veninta al la fino de sia ĉaso; sed li iel preterlasis ĝian mezon. Kiam li malsukcesis (kio malofte okazis), li kutime komprenis la postsignon sed maltrafis la krimulon. Sed ĉi tiuokaze li kaptis la krimulon kvankam li ankoraŭ ne povis kompreni la postsignon.
 
-La du figuroj, kiujn ili sekvis, rampis kiel nigraj muŝoj trans la vasta verda konturo de monteto. Ili estis evidente absorbitaj en interparolado, kaj eble ne rimarkis kien ili iras, sed ili certe estis irantaj al la pli dezertaj kaj silentaj altejoj de la herbejo. Dum iliaj post-sekvantoj pliproksimiĝis al ili, tiuj devis uzi la maldignajn pozojn de cervĉasantoj, kaŭri malantaŭ arboj kaj eĉ rampi sternitaj tere, tra la altkreska herbo. Per ĉi tiuj malgraciaj lertecoj la ĉasistoj eĉ alproksimiĝis la ĉasatojn sufiĉe por ekaŭdi la murmuradon de diskuto, sed nenia vorto aŭdiĝis krom la vorto ”racio”, kiu aŭdiĝis de tempo al tempo en alta kaj preskaŭ infana voĉo. Unufoje, en la abrupta deklivo kaj arbusta densejo, la detektivoj efektive perdis la du figurojn, kiujn ili sekvis. Ili ne retrovis la vojon dum dek angorple-naj minutoj kaj poste ĝi kondukis ilin ĉirkaŭ la supraĵo de ĝibŝultra monteto, kiu staris super amfiteatro de riĉkolora kaj dezerta sunsubira pejzaĝo. Sub arbo en ĉi tiu elstranta sed senhoma loko estis kaduka benko. Sur ĉi tiu benko sidis la du pastroj ankoraŭ serioze interparolantaj. La grandioza verdo kaj oro ankoraŭ briladis en la mallumiĝanta horizonto; sed la supra kupolo malrapide ŝanĝiĝis de pavverda ĝis pavblua koloro, kaj la steloj sin pli kaj pli malligis kiel 18
-
-L A N A I V E CO D E PA ST RO B ROW N
+La du figuroj, kiujn ili sekvis, rampis kiel nigraj muŝoj trans la vasta verda konturo de monteto. Ili estis evidente absorbitaj en interparolado, kaj eble ne rimarkis kien ili iras, sed ili certe estis irantaj al la pli dezertaj kaj silentaj altejoj de la herbejo. Dum iliaj post-sekvantoj pliproksimiĝis al ili, tiuj devis uzi la maldignajn pozojn de cervĉasantoj, kaŭri malantaŭ arboj kaj eĉ rampi sternitaj tere, tra la altkreska herbo. Per ĉi tiuj malgraciaj lertecoj la ĉasistoj eĉ alproksimiĝis la ĉasatojn sufiĉe por ekaŭdi la murmuradon de diskuto, sed nenia vorto aŭdiĝis krom la vorto ”racio”, kiu aŭdiĝis de tempo al tempo en alta kaj preskaŭ infana voĉo. Unufoje, en la abrupta deklivo kaj arbusta densejo, la detektivoj efektive perdis la du figurojn, kiujn ili sekvis. Ili ne retrovis la vojon dum dek angorple-naj minutoj kaj poste ĝi kondukis ilin ĉirkaŭ la supraĵo de ĝibŝultra monteto, kiu staris super amfiteatro de riĉkolora kaj dezerta sunsubira pejzaĝo. Sub arbo en ĉi tiu elstranta sed senhoma loko estis kaduka benko. Sur ĉi tiu benko sidis la du pastroj ankoraŭ serioze interparolantaj. La grandioza verdo kaj oro ankoraŭ briladis en la mallumiĝanta horizonto; sed la supra kupolo malrapide ŝanĝiĝis de pavverda ĝis pavblua koloro, kaj la steloj sin pli kaj pli malligis kiel
 
 
 solidaj juveloj. Mute mansignante al siaj kunuloj Valentin povis rampi ĝis malantaŭ la granda multbranĉa arbo, kaj tie starante en morta silento li ekaŭdis la vortojn de la strangaj pastroj por la unua fojo.
@@ -284,9 +223,6 @@ La alia pastro levis sian severan vizaĝon al la brilanta bluaĵo kaj diris:
 ”Tamen kiu scias ĉu en tiu senlima universo… ?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Nur senlima laŭ materio,” diris la malgranda pastro, subite sin turnante en sia seĝo, ”ne tiom senlima, ke ĝi evitas la leĝojn de la vero.”
 
 Valentin, malantaŭ sia arbo, mordadis siajn ungojn pro senvorta kolero. Li preskaŭ imagis, ke li aŭdas la mokridojn de la anglaj detektivoj, kiujn li tiom malproksimen venigis pro fantazia diveno nur por aŭskulti la metafizikan klaĉon de du mildaj maljunaj pastroj.
@@ -300,9 +236,6 @@ Valentin estis ĵus sinlevonta de sia nefleksebla kaj kaŭranta pozo kaj forramp
 ”Nu, mi opinias, ke aliaj mondoj eble pligrandiĝas super nian racion. La mistero de la ĉielo estas nemezurebla kaj mi mem povas nenion fari krom malsuprenklini la kapon.”
 
 Tiam, la frunto ankoraŭ klinita kaj ne ŝanĝinte iel ajn sian pozon aŭ voĉon, li aldonis,
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Transdonu nun tiun safiran krucon. Ni estas solaj tie ĉi, kaj mi povus disŝiri vin kiel pajlan pupon.”
@@ -334,9 +267,6 @@ Flambeau kriegis pro ĝojo,
 La krimkolosulo kliniĝis super la kampara pastreto kun ia subita intereso.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Vi antaŭe priaŭdis ĝin?” li demandis, ”Kie vi estas priaŭdinta
 
 ĝin?”
@@ -358,9 +288,6 @@ L A N A I V E CO D E PA ST RO B ROW N
 ”Nu, estis tiel ĉi,” diris la malgranda pastro, parolante same simple. ”Mi reiris al tiu sukeraĵbutiko kaj demandis ĉu mi postlasis pakaĵon kaj donis al ili adreson okaze ke ĝi troviĝos. Nu, mi sciis, ke tion mi ne faris, sed kiam mi denove foriris mi efektive postlasis ĝin. Do, anstataŭ kursekvi min kun tiu granvalora pakaĵo ili sendis ĝin rekte al amiko mia en Westminster.” Tiam li aldonis iomete malgaje, ”tion mi ankaŭ lernis de kompatindulo en Hartlepool.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Li tiel faris pri la mansaketoj, kiujn li ŝtelis ĉe stacidomoj, sed li estas en monaęjo nuntempe. Ho, oni lernas, kompreneble,” li aldonis, denove frotante la kapon kun tia sama energia bedaŭresprimo. ”Ni ne povas eviti esti pastroj. Homoj venas kaj diras al ni ĉi tiajn aferojn.”
 
 Flambeau elŝiris brunpaperan pakaĵon el sia interna poŝo kaj disŝiris ĝin. i enhavis nenion krom papero kaj plumbaj stangetoj.
@@ -377,12 +304,7 @@ Flambeau haltis sian antaŭenan paŝon.
 
 Dio benu vin, ni devas scii dudek tiajn aferoj kiam ni laboras inter la krimemaj klasoj. Nu, mi ne estis certa, ke vi estas ŝtelisto, kaj estis neeble fari skandalon pri unu el niaj pastroj. Tial mi nur provis vin por eltrovi ĉu io devigos al vi vin malkaŝi. Iu ajn kutime faras sce-non, se li trovas salon en sia kafo; se ne, li havas kaŭzon silenti. Mi interŝanĝis la salon kaj la sukeron kaj vi silentis. Iu ajn kutime mal-plaĉiĝas, se lia kalkulo estas trioble tro granda. Se tiu pagas li havas motivon por resti nerimarkita. Mi pligrandigis vian kalkulon kaj vi pagis.”
 
-ŝajnis, ke la mondo haltas kaj Flambeau estas saltegonta kiel tig-23
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ro. Sed li estis tenata kvazaŭ per sorĉo, li estis miregata per scivolemeco plej forta.
+ŝajnis, ke la mondo haltas kaj Flambeau estas saltegonta kiel tigro. Sed li estis tenata kvazaŭ per sorĉo, li estis miregata per scivolemeco plej forta.
 
 ”Nu,” daŭrigis Pastro Brown kun peza klareco, ”ĉar vi ne volis lasi postsignon al la policanoj, kompreneble iu devis tion fari. ĉie ajn kien ni iris, mi penis ion fari, kio paroligos ĉiun pri ni dum la restaĵo de la tago. Mi ne faris grandan difekton—makulita muro, elverŝitaj pomoj, frakasita fenestro; sed mi savis la krucon, kiel la kruco estos ĉiam savata. i estas nun en Westminster. Mi iomete miris, ke vi ne haltigis ĝin per la Azena Fajfo.”
 
@@ -407,15 +329,9 @@ Eta rideto aperis sur la ronda vizaĝo de lia pastra kontraŭanto.
 Kaj eĉ dum li sin turnis for por kolekti sian propraĵon, eliris la tri detektivoj el sub la krepuskaj arboj. Flambeau estis artisto kaj sportemulo. Li malantaŭen paŝis kaj faris graciplenan riverencon al Valentin.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Ne al mi, mon ami,” diris Valentin, per klara voĉo, ”Ni ambaŭ faru riverencon al nia majstro.”
 
 Kaj ili ambaŭ staris unu momenton senĉapele, dum la malalta Essex’a pastro palpebrume serĉis sian ombrelon.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 LA SEKRETA ARDENO
@@ -424,20 +340,13 @@ Aristide Valentin, estro de la Pariza Polico, estis malfrua por sia vespermanĝo
 
 ĝia mastro. i estis malnova domo, kun altaj muroj kaj altkreskaj poploj, preskaŭ superpendantaj la riveron Seine; sed la rimarkindaĵo kaj eble ankaŭ la polica valoro pri ĝia konstrumaniero estis ĉi tio: ne ekzistis ia ajn elirejo krom la antaŭa pordo, kiun gvardis Ivan kaj la armilaro. La ĝardeno estis granda kaj ellaborita, kaj estis multaj elirejoj kiuj kondukis el la domo en la ĝardenon. Sed ne estis elirejo el la ĝardeno en la eksteran mondon; ĝi estis tute ĉirkaŭata de muro, alta, glata kaj negrimpebla kun specialaj pintaĵoj sur ĝia supra rando; eble ne maltaŭga meditejo por viro, kiun mortigi cent krimuloj jam ĵuris.
 
-Kiel Ivan klarigis bone al la invititoj, la gastiganto ĵus telefonis, ke li estas detenata dum dek minutoj. Fakte li estis faranta kelkajn finajn aranĝojn pri ekzekutoj kaj tiaj malfeliĉaĵoj; kaj kvankam ĉi tiuj devoj estis pro la naturo tute abomenaj al li, li tamen ĉiam efektivigis ilin precizece. Malkompata dum la persekutado de krimuloj, li estis tre kompata pri ilia punado. De kiam li superregis la francajn kaj grandmezure la eŭropajn policajn metodojn, lia potenca influo estis honorinde uzata por mildigi punojn kaj plipurigi malliberej-26
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ojn. Li estis unu el la grandaj francaj homamaj liberpensantoj, kies sola eraro estas, ke ilia kompato estas eĉ pli severa ol la justeco.
+Kiel Ivan klarigis bone al la invititoj, la gastiganto ĵus telefonis, ke li estas detenata dum dek minutoj. Fakte li estis faranta kelkajn finajn aranĝojn pri ekzekutoj kaj tiaj malfeliĉaĵoj; kaj kvankam ĉi tiuj devoj estis pro la naturo tute abomenaj al li, li tamen ĉiam efektivigis ilin precizece. Malkompata dum la persekutado de krimuloj, li estis tre kompata pri ilia punado. De kiam li superregis la francajn kaj grandmezure la eŭropajn policajn metodojn, lia potenca influo estis honorinde uzata por mildigi punojn kaj plipurigi malliberejojn. Li estis unu el la grandaj francaj homamaj liberpensantoj, kies sola eraro estas, ke ilia kompato estas eĉ pli severa ol la justeco.
 
 Kiam Valentin alvenis li estis jam vestita en nigraj vestaĵoj kaj portanta la ruĝan rozeton—eleganta figuro, la nigra barbo jam grize striita. Li iris tuj tra sia domo al la lego-ĉambro, kiu estis elirejo en la ĝardenon. La alĝardena pordo estis malferma, kaj zorge enŝlosin-te sian skatolegon en ĝian oficialan lokon, li staris momenton ĉe la pordo, rigardante al la ĝardeno. Klarbrila luno kontraŭbatalis la flugantajn ŝiritaĵojn kaj ĉifonojn de ŝtormo kaj Valentin rigardadis
 
 ĝin kun sopiremo kutima al sciencemaj homoj kiaj li. Eble tiaj homoj eksentas spiritan antaŭvidon pri la plej gravega problemo en siaj vivoj. Tiun okultan melankolion tamen li baldaŭ forpuŝus, ĉar li sciis, ke li estas malfrua kaj, ke liaj gastoj jam komencis alveni.
 
-Unu ekrigardo en la salonon dum li eniris ĝin, sufiĉis por montri al li, ke tamen la ĉefa invitito ankoraŭ ne alvenis. Li vidis ĉiujn aliajn subtenantojn de tiu malmultenombra festeno; li vidis Lordon Galloway, la angla ambasadoro—kolerema maljunulo kun la vizaĝo kiel ruĝbruna pomo, portanta la bluan rubandon de la Krurzona Orde-no. Li vidis Lordinon Galloway, maldika kaj fadensimila, la hararo arĝenta kaj la vizaĝo samtempe sentema kaj aristokrata. Li vidis ŝian filinon Fraŭlinon Margaret Graham, pala kaj beleta knabino kun elfa vizaĝo kaj hararo kuprakolora. Li vidis la Dukinon de Sankta Mikela Monto, nigro-okula kaj riĉaspekta kaj kun ŝi ŝiajn du fi-linojn, ankaŭ nigro-okulaj kaj riĉaspektaj. Li vidis D-ron Simon, tipe franca sciencisto kun okulvitroj, pinta bruna barbo kaj frunto striita de tiuj paralelaj sulkoj, kiuj estas la puno de malestima maniero, ĉar ili fariĝas per konstanta eklevo de la brovoj. Li vidis Pastron Brown el Cobhole en Essex, kiun li antaŭ nelonge renkontis en Anglujo. Li vidis, eble kun plia intereso ol iun ajn el la aliaj, altan viron en uniformo, kiu riverencis al la Galloway’oj sed ricevis nenian afablan 27
-
-L A N A I V E CO D E PA ST RO B ROW N
+Unu ekrigardo en la salonon dum li eniris ĝin, sufiĉis por montri al li, ke tamen la ĉefa invitito ankoraŭ ne alvenis. Li vidis ĉiujn aliajn subtenantojn de tiu malmultenombra festeno; li vidis Lordon Galloway, la angla ambasadoro—kolerema maljunulo kun la vizaĝo kiel ruĝbruna pomo, portanta la bluan rubandon de la Krurzona Orde-no. Li vidis Lordinon Galloway, maldika kaj fadensimila, la hararo arĝenta kaj la vizaĝo samtempe sentema kaj aristokrata. Li vidis ŝian filinon Fraŭlinon Margaret Graham, pala kaj beleta knabino kun elfa vizaĝo kaj hararo kuprakolora. Li vidis la Dukinon de Sankta Mikela Monto, nigro-okula kaj riĉaspekta kaj kun ŝi ŝiajn du fi-linojn, ankaŭ nigro-okulaj kaj riĉaspektaj. Li vidis D-ron Simon, tipe franca sciencisto kun okulvitroj, pinta bruna barbo kaj frunto striita de tiuj paralelaj sulkoj, kiuj estas la puno de malestima maniero, ĉar ili fariĝas per konstanta eklevo de la brovoj. Li vidis Pastron Brown el Cobhole en Essex, kiun li antaŭ nelonge renkontis en Anglujo. Li vidis, eble kun plia intereso ol iun ajn el la aliaj, altan viron en uniformo, kiu riverencis al la Galloway’oj sed ricevis nenian afablan
 
 
 respondon, kiu nun antaŭen marŝis por saluti sian gastiganton. Li estis Komandanto O’Brien de la Franca Fremdula Legiono. Li estis maldika tamen iom fanfarona figuro, tute razita, la hararo nigra kaj la okuloj bluaj kaj, kiel decas ĉe oficiro de tiu regimento, famkonata pro siaj venkoplenaj malsukcesoj kaj sukcesplenaj sinmortigoj, li havis mienon samtempe viglegan kaj melankolian. Laŭ nasko li estis irlanda landsinjoro kaj dum sia juneco li konis la Galloway’ojn, Margaret Graham precipe. Li foriris de sia lando pro ŝuldoj, kaj li nun esprimis sian tutan liberecon de brita etiketo, fiere paŝante tien kaj tien ĉi vestita en alilanda uniformo, sabro kaj spronoj. Kiam li kliniĝis al la ambasadora familio, la Gelordaj Moŝtoj kliniĝis nevo-leme kaj Fraŭlino Margaret rigardis for.
@@ -446,27 +355,18 @@ Pro kiaj ajn malnovaj kaŭzoj tiaj homoj interesiĝis unu al la alia, ilia emine
 
 ”progresema”, plaĉis al li. Li opiniis, ke Valentin estas ”progresema”, tiel farante kontraŭ li grandan maljustaĵon.
 
-La korpa ekapero de Julius K. Brayne en la ĉambron estis tiel 28
-
-L A N A I V E CO D E PA ST RO B ROW N
+La korpa ekapero de Julius K. Brayne en la ĉambron estis tiel
 
 
 ekfrapa kiel altabliga sonorilo. Li havis ĉi tiun gravan econ, al kiu malmultaj el ni povas pretendi, ke lia ĉeesto estis tiel granda kiel lia foresto. Li estis grandegulo, tiom grasa kiom alta, vestita tute en vespera nigro, sen eĉ la brilo de ĉeneto aŭ ringo. Lia hararo estis blanka kaj malantaŭen kombita laŭ la germana maniero; lia vizaĝo estis ruĝa, furioza kaj keruba, kun nigreta barbeto sub la malsupra lipo, kiu donis al vizaĝo alie infaneca, teatran aŭ eĉ mefistofelan aspekton. Tamen ne dum longa tempo la gastaro nur rigardis tiun eminentan usonanon; lia malfrueco estis jam gastiga problemo kaj oni tuj sendis lin en la manĝo-ĉambro kun la Lordino Galloway ĉe la brako.
 
-ĉiurilate la Galloway’oj estis sufiĉe afablaj kaj senĝenaj, krom rilate al unu detalo. Se Fraŭlino Margaret ne eniris vespermanĝi kun tiu aventuristo O’Brien, ŝia patro estus tute kontenta; kaj ŝi tion ne faris; ŝi dece eniris kun D-ro Simon. Tamen la maljuna lordo estis maltrankvila kaj preskaŭ malĝentila. Li estis sufiĉe diplomata dum la vespermanĝo sed kiam la cigaroj aperis kaj tri el la pli junaj viroj, Simon la kuracisto, Brown la pastro kaj la danĝereta O’Brien, la ekzilito en fremda uniformo . . . malaperis por interparoli kun la virinoj aŭ fumi en la vitroplantejo, tiam la angla diplomato fariĝis treege nediplomata. Dum ĉiu sesdeksekundaro trapikis lin la penso, ke eble tiu fripono O’Brien iel signalas al Margaret; kiamaniere, li ne provis imagi al si. Dum la kafotrinkado li restis sola kun la griza usonano, kiu fidis al ĉiuj religioj, kaj kun la griziĝanta franco, kiu kredis al neniuj. Ili interdisputu, sed nek unu nek la alia povis interesi lin. Post iom da tempo ĉi tiu ”progresema” vorta interbatalo tiom tedis lin, ke li ankaŭ leviĝis por serĉi la salonon. Li perdiĝis dum ses aŭ dek minutoj en longaj koridoroj; fine li aŭdis la altan akran voĉon de la kuracisto kaj poste la mallaŭtan voĉon de la pastro, sekvata de ĉies ridado. Ili ankaŭ, li kun blasfemo ekpensis, kre-29
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-deble disputas pri ”scienco kaj religio”Sed tuj kiam li malfermis la pordon de la salono li rimarkis nur unu aferon—tion, kio ne estas tie. Li ekvidis, ke Komandanto O’Brien forestas kaj, ke Fraŭlino Margaret ankaŭ forestas.
+ĉiurilate la Galloway’oj estis sufiĉe afablaj kaj senĝenaj, krom rilate al unu detalo. Se Fraŭlino Margaret ne eniris vespermanĝi kun tiu aventuristo O’Brien, ŝia patro estus tute kontenta; kaj ŝi tion ne faris; ŝi dece eniris kun D-ro Simon. Tamen la maljuna lordo estis maltrankvila kaj preskaŭ malĝentila. Li estis sufiĉe diplomata dum la vespermanĝo sed kiam la cigaroj aperis kaj tri el la pli junaj viroj, Simon la kuracisto, Brown la pastro kaj la danĝereta O’Brien, la ekzilito en fremda uniformo . . . malaperis por interparoli kun la virinoj aŭ fumi en la vitroplantejo, tiam la angla diplomato fariĝis treege nediplomata. Dum ĉiu sesdeksekundaro trapikis lin la penso, ke eble tiu fripono O’Brien iel signalas al Margaret; kiamaniere, li ne provis imagi al si. Dum la kafotrinkado li restis sola kun la griza usonano, kiu fidis al ĉiuj religioj, kaj kun la griziĝanta franco, kiu kredis al neniuj. Ili interdisputu, sed nek unu nek la alia povis interesi lin. Post iom da tempo ĉi tiu ”progresema” vorta interbatalo tiom tedis lin, ke li ankaŭ leviĝis por serĉi la salonon. Li perdiĝis dum ses aŭ dek minutoj en longaj koridoroj; fine li aŭdis la altan akran voĉon de la kuracisto kaj poste la mallaŭtan voĉon de la pastro, sekvata de ĉies ridado. Ili ankaŭ, li kun blasfemo ekpensis, kredeble disputas pri ”scienco kaj religio”Sed tuj kiam li malfermis la pordon de la salono li rimarkis nur unu aferon—tion, kio ne estas tie. Li ekvidis, ke Komandanto O’Brien forestas kaj, ke Fraŭlino Margaret ankaŭ forestas.
 
 Senpacience elirante el la salono kiel li eliris el la manĝo-ĉambro, li denove bruiris tra la koridoro. La ideo defendi sian filinon kontraŭ la irland-alĝeriana sentaŭgulo fariĝis la superreganta ideo de la menso, eĉ ĝis frenezeco. Eĉ dum li iris al la malantaŭa pordo de la domo, kie estis la lego-ĉambro de Valentin, li surpriziĝis renkont-ante sian filinon, kiu preterrapidis kun pala maldejna vizaĝo, kio estas la dua enigmo. Se ŝi ĵus revenis de O’Brien, kie do estas O’Brien? Se ŝi ne estis kun O’Brien, kun kiu ŝi estis? Kun ia senila kaj kolerega suspekto li palpade iris al la mallumaj malantaŭejoj kaj fine trovis servistan pordon, kiu kondukis lin en la ĝardenon. La luno per sia sabro jam traŝiris kaj forvolvis la ŝtorman restaĵon. La arĝenta lumo plenigis ĉiujn kvar angulojn de la ĝardeno. Alta figuro, blue vestita, transpaŝis la razenejon al la lego-ĉambra pordo; la ekbrileto de lunluma arĝento sur la vestobordero montris, ke tiu estas la Komandanto O’Brien.
 
 Li malaperis tra la vitraj pordoj en la domon kaj lasis ĉe la lordo nepriskribeblan malbonhumoron, samtempe virulenta kaj neklara. La blu-arĝenta ĝardeno, kiel teatra sceno, ŝajne volis turmenti lin per tuta tiu tiraneca dolĉeco kontraŭ kiu lia mondeca aŭtoritato bataladis. La gracieco kaj longeco de la paŝoj de la Irlandano ekkolerigis lin kvazaŭ li estus rivalo anstataŭ patro; la lunlumo frenezigis lin. Li estis allogata kaj kaptata kvazaŭ sorĉe en trubaduran
 
-ĝardenon, en Watteau an felandon, kaj volante forpeli de si tiajn amecajn idiotecojn per interparolado, li energie ekiris sekvi sian kontraŭulon. Tion farante, li piedfrapis kontraŭ arbbranĉo aŭ ŝto-no kuŝanta en la herbo; li malsupren rigardis agacite kaj poste kun 30
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝardenon, en Watteau an felandon, kaj volante forpeli de si tiajn amecajn idiotecojn per interparolado, li energie ekiris sekvi sian kontraŭulon. Tion farante, li piedfrapis kontraŭ arbbranĉo aŭ ŝto-no kuŝanta en la herbo; li malsupren rigardis agacite kaj poste kun
 
 
 scivolemo. Tuj poste la lumo kaj la altaj poploj malsuprenrigardis al tre malofta spektaklo, al maljuna angla diplomato kiu plenforte kuris, dume krieganta kaj muĝanta.
@@ -482,9 +382,6 @@ Lordo Galloway estis krieganta, ”Kadavro en la herbo . . . sanga kadavro.” V
 ”Certe estas,” diris Simon per profunda kaj stranga voĉo, ”ke li ne estis kunulo nia.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Ekzamenu lin, doktoro,” kriis Valentin akre, ”eble li ankoraŭ ne mortis.”
 
 La kuracisto kliniĝis ĝis la kadavro. ”Li ne tute malvarmiĝis, tamen li ja estas senviva,” li respondis, ”Helpu min levi lin.”
@@ -498,9 +395,6 @@ Valentin surgenuiĝis, kaj kun la manoj surtere ekzamenis kun sia plena metodeca
 ”Branĉetoj,” li diris serioze, ”branĉetoj kaj fremdulo absolute nekonata kun detranĉita kapo; krome estas nenio sur ĉi tiu razenejo.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Preskaŭ terure silentis, kaj poste akre ekkriis la nervtaŭzita Galloway.
 
 ”Kiu estas? Kiu estas apud la muro?”
@@ -511,9 +405,7 @@ Malalta figuro kun kapo idiote granda hezite alproksimiĝis ilin tra la lunluma 
 
 La nigraj brovoj de Valentin iomete senpacience sulkiĝis, laŭ principo kontraŭ la sutanon. Sed li estis multe tro justa homo, nei la trafecon de la vortoj, ”Vi estas prava,” li diris. ”Antaŭ ol ni eltrovos kiel lia morto okazis, mi eble devos eltrovi kiel lia ĉeesto ĉi tie okazis. Nu, aŭskultu sinjoroj, se estas eble sen malutilo al mia ofico kaj devo, ni ĉiuj konsentos, ke iuj eminentaj nomoj devus ne esti implikitaj en tiu afero. Estas sinjorinoj, sinjoroj kaj estas alilanda ambasadoro. Se mi nomus ĝin kiel krimon, ĝi devus esti esplorata kiel krimo. Tamen mi povas agi laŭ mia juĝo. Mi estas la policestro; mi estas tiom publika, ke mi povas bone esti privata. Dio mia, mi senkulpigos ĉiun el miaj gastoj antaŭ ol mi alvokos miajn policia-nojn por elserĉi iun alian. Sinjoroj, je via honoro, neniu el vi eliru la domon ĝis morgaŭ tagmeze; estas litĉambroj por ĉiuj. Simon, mi kredas, ke vi scias kie trovi mian serviston Ivan, en la enireja ĉambro; li estas konfidenculo. Diru al li, ke alia servisto gvardu la pordon kaj li tuj venu ĉi tien. Lordo Galloway, vi estas sendube la plej taŭga el ni por informi la sinjorinojn pri kio okazis kaj eviti panikon.
 
-Ili ankaŭ devas resti. Pastro Brown kaj mi restos ĉi tie apud la kadavro.” Kiam en Valentin aŭdiĝis la estra voĉo, oni obeis lin kiel klarionon. D-ro Simon trairis la armilejon kaj trovis Ivan, la privatan detektivon de la publika detektivo. Galloway iris al la salono kaj 33
-
-L A N A I V E CO D E PA ST RO B ROW N
+Ili ankaŭ devas resti. Pastro Brown kaj mi restos ĉi tie apud la kadavro.” Kiam en Valentin aŭdiĝis la estra voĉo, oni obeis lin kiel klarionon. D-ro Simon trairis la armilejon kaj trovis Ivan, la privatan detektivon de la publika detektivo. Galloway iris al la salono kaj
 
 
 transdonis la teruran novaĵon sufiĉe takte, ke kiam la aro kunvenis denove la sinjorinoj estis jam maltrankviligitaj kaj jam trankviligitaj. Dume la fidela pastro kaj la fidela ateisto staris ĉe la kapo kaj piedoj de la korpo senmove en la lunlumo, kiel simbolaj statuoj de iliaj du filizofioj pri morto.
@@ -532,9 +424,7 @@ Ivan levis la kapon, kaj poste preskaŭ defaligis ĝin.
 
 ”Ne,” diris Valentin indiferente, ”ni eniru.”
 
-Ili ambaŭ portis la kadavron, kuŝigis ĝin sur kanapon en la lego-
-
-ĉambro kaj poste ili ĉiuj iris en la salonon.
+Ili ambaŭ portis la kadavron, kuŝigis ĝin sur kanapon en la legoĉambro kaj poste ili ĉiuj iris en la salonon.
 
 La detektivo sidiĝis ĉe skribtablo silente kaj eĉ hezite; sed lia okulo estis kiel la fera okulo de asiza juĝisto. Li skribis kelkajn no-tojn sur paperon antaŭ si kaj poste diris abruptaj vortoj. ”ĉu ĉiu ĉeestas?”
 
@@ -544,12 +434,7 @@ La detektivo sidiĝis ĉe skribtablo silente kaj eĉ hezite; sed lia okulo estis
 
 ĝardeno kiam la kadavro ankoraŭ estis varma.”
 
-”Ivan,” diris la detektivo, ”iru kaj venigu Komandanton O’Brien kaj sinjoron Brayne. S-ro Brayne, laŭ mia scio, estas en la manĝo-34
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ĉambro kaj finas la fumadon de cigaro; la Komandanto O’Brien mi kredas, estas tien kaj reen paŝanta en la vitra plantejo. Mi ne estas certa.”
+”Ivan,” diris la detektivo, ”iru kaj venigu Komandanton O’Brien kaj sinjoron Brayne. S-ro Brayne, laŭ mia scio, estas en la manĝoĉambro kaj finas la fumadon de cigaro; la Komandanto O’Brien mi kredas, estas tien kaj reen paŝanta en la vitra plantejo. Mi ne estas certa.”
 
 La fidinda servisto malaperis el la ĉambro kaj antaŭ ol iu povis paroli aŭ ion fari Valentin daŭrigis kun neŝanĝita kaj kvazaŭ militista rapideco.
 
@@ -571,12 +456,7 @@ Mallaŭta frapeto aŭdiĝis ĉe la pordo, kiu pro ia neracia kialo koagulis ĉie
 
 ”Dankon,” diris Valentin, ”Eniru, Ivan.”
 
-La konfidinda Ivan malfermis la pordon kaj enkondukis Koman-35
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-danton Neil O’Brien, kiun li fine estis trovinta denove paŝanta tien kaj tien ĉi en la ĝardeno.
+La konfidinda Ivan malfermis la pordon kaj enkondukis Komandanton Neil O’Brien, kiun li fine estis trovinta denove paŝanta tien kaj tien ĉi en la ĝardeno.
 
 La irlanda oficiro staris sur la sojlo kun senorda kaj spitema maniero. ”Kion vi volas ĉe mi?” li kriis.
 
@@ -584,9 +464,7 @@ La irlanda oficiro staris sur la sojlo kun senorda kaj spitema maniero. ”Kion 
 
 ”Kial vi ne portas vian sabron? Kie ĝi estas?”
 
-”Mi lasis ĝin sur la biblioteka tablo,” diris O’Brien kun plia irlanda akcento pro sia maltrankvila humoro. ”i ĝenis min… ĝi fari-
-
-ĝis…”
+”Mi lasis ĝin sur la biblioteka tablo,” diris O’Brien kun plia irlanda akcento pro sia maltrankvila humoro. ”i ĝenis min… ĝi fariĝis…”
 
 ”Ivan,” diris Valentin, ”bonvolu iri kaj alporti la sabron de la Komandanto el la biblioteko.” Tiam, dum la servisto malaperis,” Lordo Galloway asertas, ke li vidis vin eliranta el la ĝardeno antaŭ ol li ektrovis la kadavron. Kion vi faris en la ĝardeno?”
 
@@ -604,9 +482,7 @@ Pesebla silento profundiĝis kaj daŭris kaj ĉe ĝia fino aŭdiĝis denove tiu 
 
 ”Eble mi povas klarigi,” kriis Fraŭlino Margaret kun tiu klarso-na tremanta voĉo per kiu kuraĝa virino enpublike parolas.
 
-”Mi povas klarigi kion faris sinjoro O’Brien en la ĝardeno, ĉar li estas devigata silenti. Li petis, ke mi edziniĝu kun li. Mi rifuzis; mi 36
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Mi povas klarigi kion faris sinjoro O’Brien en la ĝardeno, ĉar li estas devigata silenti. Li petis, ke mi edziniĝu kun li. Mi rifuzis; mi
 
 
 diris, ke pro miaj gepatroj mi povas doni al li nenion krom respekto.
@@ -638,9 +514,6 @@ La ŝanĝo estis tiom subita, ke oni devis ĉirkaŭenrigardi por eltrovi kiu par
 ŝajnas esti tiom longa kiom marŝbastono.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Malgraŭ la nerilateco de ĉi tiuj vortoj la vizaĝo de Valentin esprimis konsenton krom agacon, kiam li levis la kapon.
 
 ”Konsentite,” li abrupte diris, ”Ivan, vi iru denove por sinjoro Brayne kaj tuj venigu lin ĉi tien.”
@@ -655,9 +528,7 @@ Tuj kiam la ĉionfarulo fermis la pordon Valentin alparolis la knabinon kun tute
 
 .”
 
-Denove ekaŭdiĝis la frapeto kaj Ivan entrudis sian cikatran viza-
-
-ĝon.
+Denove ekaŭdiĝis la frapeto kaj Ivan entrudis sian cikatran vizaĝon.
 
 ”Pardonu, sinjoro,” li diris, ”sed sinjoro Brayne estas foririnta el la domo.”
 
@@ -665,9 +536,7 @@ Denove ekaŭdiĝis la frapeto kaj Ivan entrudis sian cikatran viza-
 
 ”Kion vi volas diri?” demandis Valentin.
 
-”Mi montros ĝin al vi,” diris la servisto kaj denove aperis kun 38
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Mi montros ĝin al vi,” diris la servisto kaj denove aperis kun
 
 
 brilanta seninga kavaleria sabro, sange makulita ĉe la rando kaj pinto. ĉiu en la ĉambro rigardadis ĝin kvazaŭ ĝi estas fulmaĵo; sed la sperta Ivan daŭrigis tute trankvile:
@@ -682,12 +551,7 @@ Pro la militista simboleco de la ago, la ĉeestantaro apenaŭ povis ne aplaŭdi.
 
 Al Neil O’Brien, tiu gesto ja estis la komenco de nova vivo. Kiam li denove vagis en la misterplenan ĝardenon en la tagiĝaj koloroj, estis falinta de li la tragedia senefikeco de lia kutima maniero; li estis viro kun multaj kialoj por esti feliĉa. Lordo Galloway estis montrinta veran sinjorecon kaj estis petinta pardonon. Fraŭlino Margaret estis montrinta ion pli ol lordidinecon, almenaŭ virine-con, kaj eble estis doninta al li ion pli bonan ol bedaŭresprimon, dum ili vagis inter la malnovaj florbedoj antaŭ matenmanĝo. La tuta gastaro estis pli gaja kaj humana, ĉar kvankam ankoraŭ restis la enigmo pri la murdo, la peza suspektŝarĝo estis levita de ĉiu kaj estis forpelita al Parizo, fluganta post la stranga milionulo… viro, kiun ili apenaŭ konis. La diablo estis elpelita el la domo… estis sin elpelinta.
 
-Tamen ankoraŭ restis la enigmo kaj kiam O’Brien sin ĵetis sur la benkon apud D-ro Simon, tiu vigla sciencemulo tuj daŭrigis la dis-39
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-kutadon. Li ne multe da vortoj elĉerpis de O’Brien, kiu pripensis pli agrablajn aferojn.
+Tamen ankoraŭ restis la enigmo kaj kiam O’Brien sin ĵetis sur la benkon apud D-ro Simon, tiu vigla sciencemulo tuj daŭrigis la diskutadon. Li ne multe da vortoj elĉerpis de O’Brien, kiu pripensis pli agrablajn aferojn.
 
 ”Mi ne povas diri, ke tio multe interesas min,” diris la Irlandano malkaŝe, ”precipe, ĉar ĉio jam vidiĝis sufiĉe klara. ŝajnas, ke Brayne ial malamis ĉi tiun nekonatulon, allogis lin en la ĝardenon kaj mortigis lin per mia glavo. Poste li forkuris al la urbo, forĵetante la glavon survoje. Mi aŭdis de Ivan, ke la mortinto havis usonan dolaron en la poŝo, do li estis samlandano de Brayne, kaj tio ŝajne fiksas ĉion. Mi ne vidas iajn malfacilaĵojn pri la afero.”
 
@@ -698,9 +562,6 @@ kutadon. Li ne multe da vortoj elĉerpis de O’Brien, kiu pripensis pli agrabla
 ”Kaj la kvina?” demandis Neil, kies okuloj fikse rigardadis la anglan pastron, kiu malrapide alproksimiĝis laŭ la ĝardena vojeto.
 
 ”Kredeble tio estas nur malgravaĵo,” diris la kuracisto, ”sed miaopinie tre stranga; kiam mi unue ekvidis kiel la kapo estis tranĉita mi kredis, ke la murdinto donis pli ol unu frapegon. Tamen per ekzameno mi trovis multajn tranĉsignojn sur la tranĉita sekcio; ali-vorte oni frapis tie post la fortranĉo de la kapo. ĉu Brayne tiom diable malamis sian kontraŭulon, ke li staris hakante ties korpon en la lunlumo?”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Terure,” diris O’Brien kaj tremetis.
@@ -723,25 +584,18 @@ Ambaŭ homoj sur la benko ekstaris, kaj lasis ĝin balanciĝanta.
 
 Komandanto O’Brien sekvis la aliajn al la enketo sentante en si mem ioman naŭzon. Kiel militisto li treege malamis ĉi tian kaŝitan buĉadon; kie do ĉesos ĉi tiu fantazia amputado? Unue unu kapo estas dehakata kaj poste alia; ĉi tiu okaze (li diris amarece al si mem) ne estas vere, ke du kapoj estas pli bonaj ol unu. Dum li trapasis la lego-ĉambron li preskaŭ ŝanĉeligis pro ŝoka koincido. Sur la tablo de Valentin kuŝis kolorita bildo de ankoraŭ tria sanganta kapo; kaj tio estis la kapo de Valentin mem. Per dua ekrigardo li konstatis, ke
 
-ĝi estas nur naciisma ĵurnalo nomita ”La Gilotino”, kiu montris ĉi-usemajne bildon de unu el siaj politikistaj kontraŭuloj kun la okuloj elstarantaj kaj la vizaĝo tordita, kvazaŭ ĵus ekzekutita; Valentin estis iomete eminenta kontraŭ-klerikismano. Tamen O’Brien estis 41
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝi estas nur naciisma ĵurnalo nomita ”La Gilotino”, kiu montris ĉi-usemajne bildon de unu el siaj politikistaj kontraŭuloj kun la okuloj elstarantaj kaj la vizaĝo tordita, kvazaŭ ĵus ekzekutita; Valentin estis iomete eminenta kontraŭ-klerikismano. Tamen O’Brien estis
 
 
 Irlandano kaj havis, eĉ pri siaj pekoj ian ĉastecon, kaj li ekkoleris kontraŭ tiu granda krueleco de la intelekto, kiu apartenas nur al la francoj. Li eksentis Parizon, kiel grandan estaĵon, de la groteskaĵoj sur la gotaj preĝejoj ĝis la maldelikataj karikaturoj en la ĵurnaloj Li rememoris la kolosajn ŝercojn de la revolucio. Li ekvidis la urbon kiel aparta malbela energio, de la sanga skizo kuŝanta sur la tablo
 
 ĝis tie, kie super monto kaj arego da gargojloj, la granda diablo ri-dataĉas sur Notre-Dame.
 
-La biblioteko estis longa, malalta kaj malluma ĉambro; kiom da lumo ĝi enhavis, penetris tra mallumigaj sunŝirmiloj kaj ankoraŭ havis iom da tagiĝa ruĝo. Valentin kaj lia servisto Ivan atendis ilin ĉe la pli alta flanko de longa kaj kliniĝa tablo, sur kiu kuŝis la homaj restaĵoj, ŝajne grandegaj en la krepuska lumo. La granda nigra figuro kaj flava vizaĝo de la viro trovita en la ĝardeno, kontraŭstaris ilin denove tiel same kiel antaŭe. La dua kapo, kiun oni eltiris tiun saman matenon el inter la riverherboj kuŝis malseke kaj gut-ante apud ĝi. La policanoj de Valentin estis ankoraŭ provantaj eltrovi la restaĵon de la dua kadavro, kiu supozeble estis ankoraŭ flosanta. Pastro Brown, kiu ŝajne neniel partoprenis la sentemecojn de O’Brien, alproksimiĝis al la dua kapo kaj ekzamenis ĝin kun sia palpebruma zorgo. i estis apenaŭ io ajn, krom skovelo el malseka, blanka haro, franĝita de arĝenta fajro en la ruga kaj horizonta tagi-
-
-ĝa lumo; la vizaĝo malbela, purpurigita kaj ŝajne krimula estis multe batita de ŝtonoj aŭ arboj dum ĝi flosis tien kaj tien ĉi en la rivero.
+La biblioteko estis longa, malalta kaj malluma ĉambro; kiom da lumo ĝi enhavis, penetris tra mallumigaj sunŝirmiloj kaj ankoraŭ havis iom da tagiĝa ruĝo. Valentin kaj lia servisto Ivan atendis ilin ĉe la pli alta flanko de longa kaj kliniĝa tablo, sur kiu kuŝis la homaj restaĵoj, ŝajne grandegaj en la krepuska lumo. La granda nigra figuro kaj flava vizaĝo de la viro trovita en la ĝardeno, kontraŭstaris ilin denove tiel same kiel antaŭe. La dua kapo, kiun oni eltiris tiun saman matenon el inter la riverherboj kuŝis malseke kaj gut-ante apud ĝi. La policanoj de Valentin estis ankoraŭ provantaj eltrovi la restaĵon de la dua kadavro, kiu supozeble estis ankoraŭ flosanta. Pastro Brown, kiu ŝajne neniel partoprenis la sentemecojn de O’Brien, alproksimiĝis al la dua kapo kaj ekzamenis ĝin kun sia palpebruma zorgo. i estis apenaŭ io ajn, krom skovelo el malseka, blanka haro, franĝita de arĝenta fajro en la ruga kaj horizonta tagiĝa lumo; la vizaĝo malbela, purpurigita kaj ŝajne krimula estis multe batita de ŝtonoj aŭ arboj dum ĝi flosis tien kaj tien ĉi en la rivero.
 
 ”Bonan matenon, Komandanto O’Brien,” diris Valentin kun kvieta afableco. ”Vi jam supozeble aŭdis pri la plej novaj buĉaj eksperimentoj de Brayne.”
 
 Pastro Brown ankoraŭ kliniĝis super la blankhara kapo, kaj li diris, sen suprenrigardi:
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Mi supozas, ke estas certe, ke Brayne detranĉis ankaŭ ĉi tiun kapon.”
@@ -770,9 +624,7 @@ La stelo de fanatikulo eksaltis al la okuloj de Valentin; li paŝis al la pastro
 
 ”Tiuokaze,” kriis Valentin kun terura rideto, ”vi eble multe scias pri li. Pri lia vivo, pri lia… .”
 
-La Komandanto metis la manon sur la brakon de Valentin. ”ĉesu 43
-
-L A N A I V E CO D E PA ST RO B ROW N
+La Komandanto metis la manon sur la brakon de Valentin. ”ĉesu
 
 
 tian kalumnian sensencaĵon, Valentin,” li diris, ”se ne, eble ni havos sabrojn denove.”
@@ -786,9 +638,6 @@ Tamen Valentin sub la sentrema, humila rigardado de la pastro jam rekvietiĝis. 
 ”Efektive!” kriis la mirigita kunacisto, ”kaj kiu estas li?”
 
 ”Ties nomo estis Arnold Becker,” diris la subdetektivo, ”kvankam li havis multajn alinomojn. Li estis ia vaganta fripono kaj ni scias, ke li estis iam en Usono; do tiel li fariĝis kontraŭulo de Brayne. Ni mem ne multe rilatis kun li ĉar li precipe laboris en Germanujo. Ni komunikiĝis kompreneble kun la germana policaro. Tamen estas sufiĉe stranga afero; li havis ĝemelan fraton nomita Louis Becker kun kiu ni multe rilatis. Fakte ni devis gilotini lin hieraŭ. Nu, stranga afero, sinjoroj, sed kiam mi ekvidis tiun kunulon sternita sur la razenejo mi havis la plej fortan ŝokon el mia tuta vivo. Se mi ne estus vidinta Louis Becker’n gilotinata per miaj propraj okuloj, mi ĵurus, ke estas Louis Becker mem kuŝanta en la herbo. Tiam kompreneble mi rememoris pri lia ĝemela frato en Germanujo, kaj sekvante la spuron… .”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 La klariganta Ivan ĉesis paroli, pro la sufiĉe bona kialo, ke neniu aŭskultis kion li diris. La Komandanto kaj la kuracisto ambaŭ rigardadis Pastron Brown, kiu ekstaris rigide kaj kunpremis la manojn plenforte sur siajn tempiojn, kiel homo kiu sentas subitan dolo-regon.
@@ -814,12 +663,7 @@ La okulvitroj de Simon defalis de lia nazo pro dubo kaj ekmiro, tamen li tuj res
 ”Kial do la viro ne ekkriis?” demandis la kuracisto, ”sabroj estas certe nekutimaj en ĝardenoj.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-”Branĉetoj,” diris la pastro malgaje kaj sin turnis al la fenestro kiu alrigardis la mortscenejon. ”Neniu rimarkis la signifon de tiuj branĉetoj. Kial ili kuŝu sur tiu razenejo (rigardu ĝin) tiom malproksime de ĉiu arbo? Ili ne estis derompitaj; ili estis detranĉitaj. La mur-donto amuzis sian malamikon per kelkaj sabraj lertaĵoj, montrante kiel li povas tratranĉi branĉeton mezaere aŭ ion tian. Tiam, dum lia malamiko malsuprenkliniĝis por vidi la rezulton senbruan tran-
-
-ĉegon kaj la kapo falis.”
+”Branĉetoj,” diris la pastro malgaje kaj sin turnis al la fenestro kiu alrigardis la mortscenejon. ”Neniu rimarkis la signifon de tiuj branĉetoj. Kial ili kuŝu sur tiu razenejo (rigardu ĝin) tiom malproksime de ĉiu arbo? Ili ne estis derompitaj; ili estis detranĉitaj. La mur-donto amuzis sian malamikon per kelkaj sabraj lertaĵoj, montrante kiel li povas tratranĉi branĉeton mezaere aŭ ion tian. Tiam, dum lia malamiko malsuprenkliniĝis por vidi la rezulton senbruan tranĉegon kaj la kapo falis.”
 
 ”Nu,” diris la kuracisto malrapide, ”tio estas sufiĉe kredebla. Sed la du venontaj demandoj silentigos iun ajn.”
 
@@ -846,9 +690,6 @@ Silentis, kaj tiam subita kiukado de preskaŭ infana ridado forigis la ŝarĝon.
 ĝardeno?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Li ne eliris el la ĝardeno,” diris la pastro ankoraŭ rigardante tra la fenestro.
 
 ”Ne eliris la ĝardenon?” eksplodis Simon.
@@ -872,9 +713,6 @@ La senpacienca Simon malleviĝis en apud-pordan seĝon kaj diris sen troaj vorto
 La limo de la intelekto, kie kreiĝis ĉiuj monstroj, ekvivis terure en la gaela O’Brien. Li sentis laąosan ĉeeston de ĉiuj ĉeval-viroj kaj fiŝ-virinoj, kiujn naskis la nenatura imago de homoj. Voĉo, pli antikva ol liaj praavoj, ŝajne ne diradis en lian orelon; ”Ne eniru en la monstran ĝardenon kie kreskas la arbo kun duobla frukto. Gardu vntraŭ la malbenita ĝardeno kie mortis la viro kun du kapoj.” Tamen, dum ĉi tiuj hontindaj simbolaj formoj transpasis la antikvan spegulon de lia irlanda animo, lia francigita intelekto estis tute vigla kaj li observis la strangan pastron tiel atente kaj nek-redeme kiel la aliaj.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Pastro Brown estis sin fine ĉirkaŭenturninta kaj staris ĉe la fenestro, la viazaĝo en mallumaj ombroj, sed eĉ en tiu ombro ili povis vidi, ke ĝi estas pala kiel cindroj. Tamen li parolis tute prudente, kvazaŭ ne ekzistas subĉiele iaj gaelaj animoj.
 
 ”Sinjoroj,” li diris, ”vi ne ektrovis la nekonatan korpon de Becker en la ĝardeno. Vi ne trovis ian nekonatan korpon en la ĝardeno.
@@ -887,9 +725,7 @@ Li rapide forrulis la kalvan flavan kapon de la nekonatulo kaj anstataŭis ĝin 
 
 ”Almeti alian kapon?” diris O’Brien rigardegante, ”Kiun alian kapon? Kapoj ne kreskas sur ĝardenaj arbetoj, ĉu?”
 
-”Ne,” diris Pastro Brown raŭke kaj alrigardante siajn botojn, ”estas nur unu loko kie ili kreskas. Ili kreskas en la gilotina korbo, apud kiu la Policestro Aristide Valentin staris unu horon antaŭ la murdo. Ho, miaj amikoj aŭskultu min ankoraŭ iomete antaŭ ol vi disŝiros min. Valentin estas honestulo, se honesteco konsistas el frenezeco pro porargumentebla ideo. ĉu vi do neniam rimarkis en tiu malvarma griza okulo lia, ke li estas freneza? Li ion, ion ajn farus por venkobati tion, kion li nomas ‘la superstiĉon de la Kruco’. Li batalis por ĝi, kaj malsatiĝis por ĝi, kaj nun li murdis por ĝi. La frenezaj milionoj de Brayne estas ĝisnune disdonitaj inter tiom da 48
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Ne,” diris Pastro Brown raŭke kaj alrigardante siajn botojn, ”estas nur unu loko kie ili kreskas. Ili kreskas en la gilotina korbo, apud kiu la Policestro Aristide Valentin staris unu horon antaŭ la murdo. Ho, miaj amikoj aŭskultu min ankoraŭ iomete antaŭ ol vi disŝiros min. Valentin estas honestulo, se honesteco konsistas el frenezeco pro porargumentebla ideo. ĉu vi do neniam rimarkis en tiu malvarma griza okulo lia, ke li estas freneza? Li ion, ion ajn farus por venkobati tion, kion li nomas ‘la superstiĉon de la Kruco’. Li batalis por ĝi, kaj malsatiĝis por ĝi, kaj nun li murdis por ĝi. La frenezaj milionoj de Brayne estas ĝisnune disdonitaj inter tiom da
 
 
 sektoj, ke ili apenaŭ ŝanĝis ion. Sed Valentin ekaŭdis flustradon, ke Brayne, kiel tiom multe da facilmensaj skeptikuloj, estas flosanta al ni; kaj tio estis tute malsama afero. Brayne enverŝus nutraĵon en la malriĉiĝintan kaj bataleman Eklezion de Francujo; li subtenus ses naciismajn ĵurnalojn simile al La Gilotino. La batalo estis jam ekvi-libra kaj ĵus turniĝonta kaj la fanatikulo ekflamis pro la risko. Li decidis detrui la milionulon, kaj li faris tion kiel oni supozus, ke la plej eminenta detektivo farus sian solan krimon. Li forportis la de-hakitan kapon de Becker je ia krimstuda preteksto kaj hejmen portis ĝin en sia oficiala skatolo. Li havis tiun lastan argumenton kun Brayne, kies finon Lordo Galloway ne aŭdis; ĝi malsukcesis; li el-kondukis lin en la seneliran ĝardenon, parolis pri sabrolerteco, uzis branĉetojn kaj sabron por montri… kaj… .”
@@ -903,14 +739,9 @@ Pelante la malfeliĉan Brown antaŭ ili kiel oferaĵon aŭ kaptiton, ili kune en
 La fama detektivo sidis ĉe sia skribotablo, ŝajne tro okupata por aŭdi ilian tumultan entrudon. Ili hezitis momenton kaj tiam, io pri la aspekto de tiu rekta kaj eleganta dorso igis la kuraciston antaŭen kuri. Palpo kaj ekrigardeto montris al li, ke estas pilola skatoleto ĉe la kubuto de Valentin, kaj ke Valentin estas senviva en sia seĝo; kaj sur la blinda vizaĝo de la sinmortiginto estis fiereco pli granda ol tiu de Katono.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA STRANGAJ PIEDOJ
 
-Se vi renkontus anon de tiu tre elita klubo, ”La Dek Du Veraj Fiŝ-
-
-kaptistoj” eniranta la Vernon Hotelon por la ĉiujara kluba festeno, vi rimarkus, dum li demetas sian surtuton, ke lia frako estas verda, kaj ne nigra. Se (okaze ke vi havus sufiĉe da stelspita aŭda-co por alparoli tian homon) vi demandus al li la kialon, kredeble li respondus, ke li tion faras por ke oni ne erare kredu lin kelnero.
+Se vi renkontus anon de tiu tre elita klubo, ”La Dek Du Veraj Fiŝkaptistoj” eniranta la Vernon Hotelon por la ĉiujara kluba festeno, vi rimarkus, dum li demetas sian surtuton, ke lia frako estas verda, kaj ne nigra. Se (okaze ke vi havus sufiĉe da stelspita aŭda-co por alparoli tian homon) vi demandus al li la kialon, kredeble li respondus, ke li tion faras por ke oni ne erare kredu lin kelnero.
 
 Subpremite vi retirus vin. Sed vi lasus post vi misteron ankoraŭ ne solvitan kaj rakonton bone rakontindan.
 
@@ -918,61 +749,39 @@ Se (sekvante tian nekredeblan konjekton) vi renkontus iun mildan, laboreman kaj 
 
 La Vernon Hotelo, en kiu la Dek Du Veraj Fiŝkaptistoj okazigis siajn ĉiujarajn festenojn, estis institucio kia nur povas ekzisti en oligarkia socio, kiu estas preskaŭ freneziĝinta pri ĝentila konduto.
 
-i estis tiu renversita estaĵo—”ekskluziva” komerca entrepreno. Tio 50
-
-L A N A I V E CO D E PA ST RO B ROW N
+i estis tiu renversita estaĵo—”ekskluziva” komerca entrepreno. Tio
 
 
-signifas, ke ĝi estis entrepreno kiu gajnas monon, forpelante homojn. Meze de plutokratio, komercistoj estas tiom ruzaj, ke ili fari-
-
-ĝas pli elektemaj ol siaj klientoj. Ili efektive kreas malfacilaĵojn, por ke iliaj riĉaj kaj lacaj klientoj elspezu monon kaj diplomatecon por venki ilin. Se ekzistus laŭmoda hotelo en Londono, eniro en kiun estus malpermesata al ĉiu, kiu ne estas almenaŭ ses futojn alta, la laŭmodanaj kiel ŝafaro farus arojn el sesfutuloj por manĝi en ĝi. Se ekzistus altpreza restoracio, kiu pro nura kaprico de la posedanto malfermiĝus nur ĵaŭdon posttagmeze, ĝi estus homplena ĉiujn ĵaŭ-
+signifas, ke ĝi estis entrepreno kiu gajnas monon, forpelante homojn. Meze de plutokratio, komercistoj estas tiom ruzaj, ke ili fariĝas pli elektemaj ol siaj klientoj. Ili efektive kreas malfacilaĵojn, por ke iliaj riĉaj kaj lacaj klientoj elspezu monon kaj diplomatecon por venki ilin. Se ekzistus laŭmoda hotelo en Londono, eniro en kiun estus malpermesata al ĉiu, kiu ne estas almenaŭ ses futojn alta, la laŭmodanaj kiel ŝafaro farus arojn el sesfutuloj por manĝi en ĝi. Se ekzistus altpreza restoracio, kiu pro nura kaprico de la posedanto malfermiĝus nur ĵaŭdon posttagmeze, ĝi estus homplena ĉiujn ĵaŭ-
 
 dan posttagmezon. La Vernon Hotelo staris, kvazaŭ hazarde, ĉe angulo de placo en Belgravia. i estis malgranda hotelo; kaj tre maloportuna. Sed tiu sama maloportuneco estis konsiderata kiel muro, defendanta apartan klason. Unu apartan maloportunaĵon oni taksis esti de la pleja graveco; tio estis, ke nur preskaŭ dudek kvar homoj povis samtempe tie manĝi. La sola granda vespermanĝa tablo estis la famkonata terasa tablo, kiu staris subĉiele sur iu verando alrigardanta unu el la plej ravaj el la antikvaj ĝardenoj en Londono. Tiel okazis, ke eĉ la dudek kvar seĝoj ĉe ĉi tiu tablo estis ĝue-blaj nur dum la varma vetero; kaj ĉi tiu fakto, dum ĝi plimalfacili-gis la ĝuadon igis ĝin samtempe ankoraŭ pli dezirinda. La tiutem-pa posedanto de la hotelo estis judo nomita Lever, kaj li gajnis preskaŭ milionon el ĝi, plimalfaciligante la eniron. Kompreneble li kombinis kun ĉi tiu limigo pri la amplekso de sia entrepreno la plej zorgeman rafinitecon pri ĝia funkciado. La vinoj kaj kuirado estis vere tiel bonaj kiel ie ajn en Eŭropo, kaj la sinteno de la servistoj
 
-ĝuste respegulis la fiksitan humoron de la plej altgradaj anglaj klasoj. La posedanto konis ĉiujn siajn kelnerojn kiel la fingrojn de sia mano; entute estis nur dek kvin. Estis multe pli facile fariĝi mem-bro de Parlamento ol fariĝi kelnero en tiu hotelo. ĉiu kelnero estis dresita ĝis terura silento kaj senbrueco, kvazaŭ li estus servisto de 51
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝuste respegulis la fiksitan humoron de la plej altgradaj anglaj klasoj. La posedanto konis ĉiujn siajn kelnerojn kiel la fingrojn de sia mano; entute estis nur dek kvin. Estis multe pli facile fariĝi mem-bro de Parlamento ol fariĝi kelnero en tiu hotelo. ĉiu kelnero estis dresita ĝis terura silento kaj senbrueco, kvazaŭ li estus servisto de
 
 
 grandsinjoro. Kaj efektive estis kutime almenaŭ unu kelnero por ĉiu vespermanĝanta sinjoro.
 
 La klubo de La Dek Du Veraj Fiŝkaptistoj ne konsentus ie vespermanĝi krom en tia loko, ĉar ĝi postulis luksan privatecon kaj estus vere maltrankviligita de la nura ekpenso, ke alia klubo eĉ vespermanĝus en la sama konstruaĵo. Okaze de sia ĉiujara vespermanĝo la Fiŝkaptistoj kutimis elmontri ĉiujn siajn trezorojn, kvazaŭ ili estus en privata domo, precipe la famkonatan aron da tranĉiloj kaj forkoj por fiŝmanĝado, kiu estis kvazaŭ la insignoj de la asocio, estinte rave faritaj el arĝento al la formo de fiŝo, kaj ĉiu portis sur la tenilo unu grandan pezan perlon. ĉi tiuj estis ĉiam elmontritaj por la fiŝservico kaj la fiŝservico estis ĉiam la plej grandioza el tiu grandioza manĝo. La asocio havis grandegan nombron da ceremonioj kaj moroj, tamen ĝi havis nenian historion kaj nenian celon; pro tio ĝi estis tiel tre aristokrata. Ne necesis esti speciala viro por fariĝi unu el la Dek Du Fiŝkaptistoj; krom se oni jam estus viro de iu speco oni neniam eĉ estus priaŭdinta ilin. i jam ekzistis dek du jarojn. ia Prezidanto estis sinjoro Audley. ia Vicprezidanto estis la Duko de Chester.
 
-Se mi iel sukcesis esprimi la etoson de ĉi tiu terura hotelo, povas esti, ke la leganto sentas naturan miron pri kiel okazis, ke mi scias ion ajn pri ĝi, kaj eble eĉ konjektus pri la maniero per kiu tia ordinara homo kia mia amiko Pastro Brown sin trovis en tiu orumita kuirejo. Rilate al tio mia rakonto estas simpla, eĉ vulgara. Estas en ĉi tiu mondo tre antikva tumultemulo kaj demagogo, kiu eniras perforte en la plej aristokratajn rifuĝejojn, portante la terurigan informon, ke ĉiuj homoj estas fratoj; kaj kien ajn iris tiu egaligan-to sur sia pala ĉevalo, estis la metio de Pastro Brown lin sekvi. Unu el la kelneroj, italo, estis frapita tiun posttagmezon de paraliza atako kaj lia juda mastro, milde mirigita de tia superstiĉo, estis permes-52
+Se mi iel sukcesis esprimi la etoson de ĉi tiu terura hotelo, povas esti, ke la leganto sentas naturan miron pri kiel okazis, ke mi scias ion ajn pri ĝi, kaj eble eĉ konjektus pri la maniero per kiu tia ordinara homo kia mia amiko Pastro Brown sin trovis en tiu orumita kuirejo. Rilate al tio mia rakonto estas simpla, eĉ vulgara. Estas en ĉi tiu mondo tre antikva tumultemulo kaj demagogo, kiu eniras perforte en la plej aristokratajn rifuĝejojn, portante la terurigan informon, ke ĉiuj homoj estas fratoj; kaj kien ajn iris tiu egaligan-to sur sia pala ĉevalo, estis la metio de Pastro Brown lin sekvi. Unu el la kelneroj, italo, estis frapita tiun posttagmezon de paraliza atako kaj lia juda mastro, milde mirigita de tia superstiĉo, estis permesinta, ke oni alvoku la plej proksiman papisman pastron. Tio, kion la kelnero konfesis al Pastro Brown ne estas nia afero, pro la bonega kialo, ke la klerikulo silentis pri ĝi al ĉiu; tamen tio ŝajne igis lin skribi noton aŭ deklaron por transdoni iun informon aŭ rebonigi iun maljustecon. Tial, Pastro Brown, kun milda impertineco, kian li tiel same montrus eĉ en Buckingham Palaco, petis, ke oni donu al li ĉambron kaj skribilojn. S-ro Lever estis disŝirata en si mem. Li estis bonkora viro kaj havis ankaŭ tiun malbonan imitaĵon de bonkoreco,—malamon al ĉia maloportunaĵo aŭ embarasiga sceno. Samtempe la ĉeesto de tiu fremdulo en lia hotelo estis kiel malpuraĵo sur io ĵus purigita. Neniam estis ia interlimo aŭ antaŭ-ĉambro en la Vernon Hotelo, neniu atendante en la vestiblo, neniuj klientoj hazarde envenintaj. Estis dek kvin kelneroj. Estis dek du gastoj. Ektrovi novan gaston estus tiel miriga kiel ektrovi novan fraton matenaŭ te-manĝantan kun via propra familio. Plue, la aspekto de la pastro estis duagrada kaj liaj vestaĵoj per koto makulitaj; nura ekvido al li en la malproksimo eble kaŭzus krizon en la klubo. S-ro Lever fine elpensis planon por kaŝi la malhonoron, ĉar li ne povis tute forigi ĝin. Kiam vi eniras (kion vi neniam faros) la Vernon Hotelon, vi trapasas mallongan koridoron, ornamitan de kelkaj malbrilaj kvankam gravaj pentraĵoj, kaj tiam vi atingas la ĉefan vestiblon kaj ripozejon, je la dekstra flanko de kiu troviĝas koridoroj kondukantaj al la publikaj ĉambroj, kaj maldekstre koridoroj al la kuirejoj kaj servĉambroj de la hotelo. Tuj maldekstre estas la angulo de vitra kabineto kiu entrudas sin en la vestiblon—kvazaŭ domo en domo, kiel la antikva hotela bufedo, kiu eble iam tie staris.
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-inta, ke oni alvoku la plej proksiman papisman pastron. Tio, kion la kelnero konfesis al Pastro Brown ne estas nia afero, pro la bonega kialo, ke la klerikulo silentis pri ĝi al ĉiu; tamen tio ŝajne igis lin skribi noton aŭ deklaron por transdoni iun informon aŭ rebonigi iun maljustecon. Tial, Pastro Brown, kun milda impertineco, kian li tiel same montrus eĉ en Buckingham Palaco, petis, ke oni donu al li ĉambron kaj skribilojn. S-ro Lever estis disŝirata en si mem. Li estis bonkora viro kaj havis ankaŭ tiun malbonan imitaĵon de bonkoreco,—malamon al ĉia maloportunaĵo aŭ embarasiga sceno. Samtempe la ĉeesto de tiu fremdulo en lia hotelo estis kiel malpuraĵo sur io ĵus purigita. Neniam estis ia interlimo aŭ antaŭ-ĉambro en la Vernon Hotelo, neniu atendante en la vestiblo, neniuj klientoj hazarde envenintaj. Estis dek kvin kelneroj. Estis dek du gastoj. Ektrovi novan gaston estus tiel miriga kiel ektrovi novan fraton matenaŭ te-manĝantan kun via propra familio. Plue, la aspekto de la pastro estis duagrada kaj liaj vestaĵoj per koto makulitaj; nura ekvido al li en la malproksimo eble kaŭzus krizon en la klubo. S-ro Lever fine elpensis planon por kaŝi la malhonoron, ĉar li ne povis tute forigi ĝin. Kiam vi eniras (kion vi neniam faros) la Vernon Hotelon, vi trapasas mallongan koridoron, ornamitan de kelkaj malbrilaj kvankam gravaj pentraĵoj, kaj tiam vi atingas la ĉefan vestiblon kaj ripozejon, je la dekstra flanko de kiu troviĝas koridoroj kondukantaj al la publikaj ĉambroj, kaj maldekstre koridoroj al la kuirejoj kaj servĉambroj de la hotelo. Tuj maldekstre estas la angulo de vitra kabineto kiu entrudas sin en la vestiblon—kvazaŭ domo en domo, kiel la antikva hotela bufedo, kiu eble iam tie staris.
-
-En ĉi tiu kabineto sidis la reprezentanto de la posedanto (neniu en ĉi tiu ejo iam persone aperis, se li povis tion eviti) kaj iomete laŭ la koridoro al la servistaj ĉambroj troviĝis la sinjora vestejo, la lasta limo de la sinjora regno. Tamen inter la kabineto kaj la vestejo 53
-
-L A N A I V E CO D E PA ST RO B ROW N
+En ĉi tiu kabineto sidis la reprezentanto de la posedanto (neniu en ĉi tiu ejo iam persone aperis, se li povis tion eviti) kaj iomete laŭ la koridoro al la servistaj ĉambroj troviĝis la sinjora vestejo, la lasta limo de la sinjora regno. Tamen inter la kabineto kaj la vestejo
 
 
 estis malgranda privata ĉambro sen alia elirejo, iafoje uzita de la posedanto por delikataj aŭ gravaj aferoj, kiaj la pruntedono al duko mil funtojn aŭ la rifuzo pruntedoni al li ses pencojn. Estas signo de la grandioza toleremeco de sinjoro Lever, ke li permesis, ke ĉi tiu sanktejo estu profanata dum pli ol duonhoro de nura pastro skribanta sur paperfolion. La rakonto, kiun Pastro Brown skribis, estis kredeble pli bona rakonto ol ĉi tiu, tamen oni neniam scios ĝin. Mi povas nur diri, ke ĝi estis preskaŭ tiom longa, kaj, ke ĝiaj du aŭ tri lastaj paragrafoj estis la malpli ekscitaj kaj atentigaj.
 
 ĉar estis kiam li atingis ĉi tiujn, ke la pastro komencis iomete lasi erarvagi siajn pensojn kaj lasi vekiĝi sian bestan konscion, kiu estis kutime vigla. La horo de mallumiĝo kaj de vespermanĝo proksimiĝis; lia propra ĉambreto estis sen lampo kaj eble la kreskanta krepusko, kiel kelkfoje okazas, plivigligis la aŭdadon. Dum Pastro Brown skribis la finan kaj malpli gravan parton de sia dokumento, li ektrovis, ke li skribas laŭ la ritmo de ripetata brueto de ekstere, same kiel oni iafoje pensadas laŭ la ritmo de fervoja vagonaro. Kiam li konsciiĝis pri tio, li ektrovis tion, kio ĝi estis; nur la ordinara fra-petado de piedoj pasantaj preter la pordo, kio en hotelo estas nenia nekutima afero. Tamen, li rigardadis la mallumiĝantan plafonon kaj aŭskultadis la sonon. Aŭskultinte reve dum kelkaj sekundoj, li ekstaris kaj atente aŭskultis, la kapo iomete flanken klinita. Tiam li denove sidiĝis kaj kovris la kapon per siaj manoj, nuntempe ne nur aŭskultanta sed ankaŭ pensanta.
 
-Ekstere la piedfrapoj, je ia ajn aparta momento estis tiaj, kiajn oni atendus aŭdi en ia ajn hotelo; tamen entute ili enhavis ion strangan. Krome ne aŭdiĝis aliaj piedfrapoj. i estis ĉiam tre silenta domo, ĉar la kelkaj konataj gastoj iris tuj al siaj propraj ĉambroj kaj la bone dresitaj kelneroj estis instruitaj, ke ili estu preskaŭ nevideblaj ĝis ili estos bezonataj. Oni ne povus imagi lokon, kie oni povus 54
-
-L A N A I V E CO D E PA ST RO B ROW N
+Ekstere la piedfrapoj, je ia ajn aparta momento estis tiaj, kiajn oni atendus aŭdi en ia ajn hotelo; tamen entute ili enhavis ion strangan. Krome ne aŭdiĝis aliaj piedfrapoj. i estis ĉiam tre silenta domo, ĉar la kelkaj konataj gastoj iris tuj al siaj propraj ĉambroj kaj la bone dresitaj kelneroj estis instruitaj, ke ili estu preskaŭ nevideblaj ĝis ili estos bezonataj. Oni ne povus imagi lokon, kie oni povus
 
 
 havi pli malgrandan kaŭzon por suspekti ion nekutiman. Tamen ĉi tiuj piedfrapoj estis tiel strangaj, ke oni ne povis certiĝi pri ili, ĉu ili estas kutimaj aŭ nekutimaj. Pastro Brown imitis ilin per fingro sur la tabla rando, kiel homo kiu provas lerni arion sur la fortepiano.
 
-Unue ekaŭdiĝis longa fluo da rapidaj frapetoj, kiajn farus malpeza viro gajnanta marŝkonkurson. ĉe iu loko ili ĉesis kaj fariĝis ia malrapida svinganta batado, enhavanta malpli ol kvarono de la pa-
-
-ŝoj sed daŭranta proksimume tiom da tempo kiom antaŭe. Tuj kiam la fina eąnta bato mallaŭtiĝis for, denove ekaŭdiĝis la kurado aŭ ondetado de malpezaj kurantaj piedoj kaj tiam denove la falbruo de la pli peza marŝado. Estis sendube la samaj du botoj, parte pro tio (kiel ĵus dirita), ke krome estis neniaj sonoj en la domo, kaj parte pro tio, ke ili havis malgrandan tamen karakterizan knareton. Pastro Brown havis tian kapon, kia ne povas ne fari demandojn; kaj pro ĉi tiu ŝajne malgranda demando lia kapo preskaŭ disfendiĝis. Li estis vidinta homojn kurantaj por eksalti. Li estis vidinta homojn kurantaj por gliti. Sed pro kia subĉiela kialo kurus homo por marŝi?
+Unue ekaŭdiĝis longa fluo da rapidaj frapetoj, kiajn farus malpeza viro gajnanta marŝkonkurson. ĉe iu loko ili ĉesis kaj fariĝis ia malrapida svinganta batado, enhavanta malpli ol kvarono de la paŝoj sed daŭranta proksimume tiom da tempo kiom antaŭe. Tuj kiam la fina eąnta bato mallaŭtiĝis for, denove ekaŭdiĝis la kurado aŭ ondetado de malpezaj kurantaj piedoj kaj tiam denove la falbruo de la pli peza marŝado. Estis sendube la samaj du botoj, parte pro tio (kiel ĵus dirita), ke krome estis neniaj sonoj en la domo, kaj parte pro tio, ke ili havis malgrandan tamen karakterizan knareton. Pastro Brown havis tian kapon, kia ne povas ne fari demandojn; kaj pro ĉi tiu ŝajne malgranda demando lia kapo preskaŭ disfendiĝis. Li estis vidinta homojn kurantaj por eksalti. Li estis vidinta homojn kurantaj por gliti. Sed pro kia subĉiela kialo kurus homo por marŝi?
 
 Aŭ alie, kial li marŝus por kuri? Tamen nenia alia priskribo sufiĉus por la groteskaj movoj de ĉi tiu paro da nevideblaj kruroj. La viro aŭ marŝis tre rapide tra la unua duono de la koridoro por marŝi tre malrapide tra la dua duono; aŭ li marŝis tre malrapide tra unu parto por ĝui la ravon de rapida marŝado en la alia parto. Nek unu sol-vo nek la alia ŝajnis esti tro sagaca. Lia cerbo pli kaj pli mallumiĝis kiel ankaŭ lia ĉambro.
 
-Tamen dum li komencis atente pensadi, ĝuste la mallumo mem de lia karcero ŝajne plivigligis liajn pensojn; li komencis vidi kvazaŭ en vizio la fantaziajn piedojn kapriolantaj laŭlonge de la koridoro en nenaturaj aŭ simbolaj pozoj. ĉu estas pagana religia danco? Aŭ ĉu iu tute nova speco de scienca ekzerco? Pastro Brown komencis demandi al si mem pli precize kion la paŝoj sugestas. Pri la malra-55
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-pida paŝado unue; certe ne estas la piedfrapoj de la posedanto. Viroj tiaj marŝas kun rapidaj paŝoj kiel anaso aŭ ili restas sidantaj. Ne povis esti iu ajn servisto aŭ komisiisto, atendanta ordonojn. Ne tiel sonis. Anoj de la pli malriĉaj gradoj (en oligarkio) kelkfoje ŝanceliĝas tien kaj tien ĉi kiam ili estas iomete ebriaj, sed kutime, kaj plej ofte en tiaj grandiozaj scenoj, ili staras aŭ sidas kun embarasitaj pozoj.
+Tamen dum li komencis atente pensadi, ĝuste la mallumo mem de lia karcero ŝajne plivigligis liajn pensojn; li komencis vidi kvazaŭ en vizio la fantaziajn piedojn kapriolantaj laŭlonge de la koridoro en nenaturaj aŭ simbolaj pozoj. ĉu estas pagana religia danco? Aŭ ĉu iu tute nova speco de scienca ekzerco? Pastro Brown komencis demandi al si mem pli precize kion la paŝoj sugestas. Pri la malrapida paŝado unue; certe ne estas la piedfrapoj de la posedanto. Viroj tiaj marŝas kun rapidaj paŝoj kiel anaso aŭ ili restas sidantaj. Ne povis esti iu ajn servisto aŭ komisiisto, atendanta ordonojn. Ne tiel sonis. Anoj de la pli malriĉaj gradoj (en oligarkio) kelkfoje ŝanceliĝas tien kaj tien ĉi kiam ili estas iomete ebriaj, sed kutime, kaj plej ofte en tiaj grandiozaj scenoj, ili staras aŭ sidas kun embarasitaj pozoj.
 
 Ne; tiu peza tamen pesaltema piedfrapado, kun ia senzorga emfa-zo, ne aparte bruema tamen ne ĝenata pri kiom da bruo ĝi kaŭzas, apartenas al nur unu el la bestoj de ĉi tiu mondo. Estas grandsinjoro el okcidenta Eŭropo kaj kredeble unu tia, kia estas neniam la-borinta por gajni siajn vivrimedojn.
 
@@ -984,9 +793,7 @@ Tamen tio ne estis kunligita en lia cerbo kun sekreteco, sed kun io alia—io ki
 
 Li estis furiozigata de unu el tiuj duonrememoroj, kiuj devigas homon senti en si mem, ke li estas duonfreneza. Sendube li iam antaŭe aŭdis tiun strangan, rapidan marŝadon. Subite li ekstaris kun nova ideo kaj paŝis al la pordo. Lia ĉambro havis neniun elire-jon en la koridoron, sed unuflanke estis pordo en la vitran kabineton kaj aliflanke en la vestejon. Li provis malfermi la pordon en la kabineton kaj trovis, ke ĝi estas ŝlosita. Li rigardis la fenestron, nun kvadrata panelo plena de purpuraj nuboj disfenditaj de sunsubira lumo, kaj momente li ekflaris malbonon kiel hundo ekflaras ratojn.
 
-Lia racia fako (estu ĝi la pli saĝa aŭ ne) denove superregis lin. Li rememoris, ke la posedanto estas dirinta, ke li ŝlosos la pordon kaj, ke li revenos pli poste por ellasi lin. Li diris al si mem, ke dudek aĵoj, kiujn li ne prikalkulis, povas klarigi la strangajn bruojn ekstere; li 56
-
-L A N A I V E CO D E PA ST RO B ROW N
+Lia racia fako (estu ĝi la pli saĝa aŭ ne) denove superregis lin. Li rememoris, ke la posedanto estas dirinta, ke li ŝlosos la pordon kaj, ke li revenos pli poste por ellasi lin. Li diris al si mem, ke dudek aĵoj, kiujn li ne prikalkulis, povas klarigi la strangajn bruojn ekstere; li
 
 
 atentigis al si, ke ankoraŭ restas sufiĉe da lumo por fini sian propran laboron. Portinte sian paperon al la fenestro por kapti la finan ŝtorman vesperlumon, li agemece profundiĝis en la preskaŭ finitan kronikon. Li estis skribinta preskaŭ dudek minutojn, sin kurbigante pli kaj pli super sia papero en la mortanta lumo; tiam li subite eksidis rekte. Li estis denove ekaŭdinta la strangajn piedojn.
@@ -997,9 +804,7 @@ Oni povis aŭdi la rapidegajn, mallaŭtajn, saltantajn piedojn alproksimiĝantaj
 
 Pastro Brown malsuprenĵetis sian paperon kaj sciante, ke la ka-bineta pordo estas ŝlosita li tuj eniris la vestejon aliflanke. La servisto de ĉi tiu ejo portempe forestis, kredeble ĉar la solaj gastoj estis vespermanĝantaj, kaj ĉar lia ofico estis sinekuro. Palpirinte tra griza arbaro el surtutoj, li ektrovis, ke la malluma vestejo malfermiĝas al la hela koridoro tra ia servtablo aŭ duon-pordo, simile al plej multe el la tabuloj trans kiujn ni ĉiuj transdonas ombrelojn kaj ricevas biletojn. Estis lampo tuj super la duoncirkla arkaĵo de ĉi tiu aperturo. i ne multe ĵetis lumon sur Pastron Brown mem, kiu nur aspektis kiel malhela konturo kontraŭ la malbrila sunsubira fenestro malantaŭ li. Tamen ĝi ĵetis kvazaŭ teatran lumon sur la viron, kiu staris ekster la vestejo en la koridoro.
 
-Tiu estis eleganta viro, vestita en simpla vespervestaĵo; alta, sed kun mieno tia, ke li ŝajne ne okupas multe da spaco; oni sentis, ke li povus glitiri kiel ombro, kiam multaj malpligrandaj viroj estus elstarantaj aŭ obstrukcaj. La vizaĝo, tiam malantaŭenĵetita en la 57
-
-L A N A I V E CO D E PA ST RO B ROW N
+Tiu estis eleganta viro, vestita en simpla vespervestaĵo; alta, sed kun mieno tia, ke li ŝajne ne okupas multe da spaco; oni sentis, ke li povus glitiri kiel ombro, kiam multaj malpligrandaj viroj estus elstarantaj aŭ obstrukcaj. La vizaĝo, tiam malantaŭenĵetita en la
 
 
 lamplumon, estis nigreta kaj vivplena, la vizaĝo de alilandulo. Lia talio estis bona, lia konduto bonhumora kaj memfida; kritikemulo povus nur diri, ke lia nigra jako estas iomete neinda je lia talio kaj sinteno, kaj ĝi ŝveletis kaj dekurbetis je stranga maniero. Tuj kiam li ekvidis la nigran silueton de Brown kontraŭ la sunsubiro, li deĵetis peceton de papero kun ciferoj kaj laŭte diris kun bonhumora aŭtoritato: ”Mi volas havi miajn ĉapelon kaj surtuton, se plaĉas al vi; mi ektrovis, ke mi devas tuj foriri.”
@@ -1022,9 +827,7 @@ La alta sinjoro rigardegis. ”Diablo,” li kriis, ”se mi elektas doni al vi 
 
 ”tio estas, kiam ĝi estas en granda kvanto.”
 
-La fremdulo rigardis lin strange. Tiam li rigardis ankoraŭ pli strange laŭ la koridoron al la ĉefa enirejo. Tiam li rigardis Brown denove, kaj tiam li rigardis tre atente la fenestron malantaŭ la kapo 58
-
-L A N A I V E CO D E PA ST RO B ROW N
+La fremdulo rigardis lin strange. Tiam li rigardis ankoraŭ pli strange laŭ la koridoron al la ĉefa enirejo. Tiam li rigardis Brown denove, kaj tiam li rigardis tre atente la fenestron malantaŭ la kapo
 
 
 de Brown, ankoraŭ kolorigata de la ŝtorma postlumo. Tiam li ŝajnis decidi. Li metis unu manon sur la tabulon kaj transsaltis tiel facile kiel akrobato kaj staris super la pastro, metante unu grandegan manon sur ties kolumon.
@@ -1040,14 +843,9 @@ de Brown, ankoraŭ kolorigata de la ŝtorma postlumo. Tiam li ŝajnis decidi. Li
 La alia staris rigardegante dum kelkaj momentoj, kaj poste ŝanceliĝis malantaŭen en seĝon.
 
 
-Ambaŭ unuaj servicoj de la vespermanĝo de La Dek Du Veraj Fiŝ-
+Ambaŭ unuaj servicoj de la vespermanĝo de La Dek Du Veraj Fiŝkaptistoj funkciis kun trankvila sukceso. Mi ne posedas kopion de la manĝkarto; se mi ja havus ĝin, ĝi signifus nenion al iu. i estis skribita en ia aparta franca lingvo uzata de kuiristoj sed tute nekomprenebla al francoj. Estis tradicio en la klubo, ke la antaŭman-
 
-
-kaptistoj funkciis kun trankvila sukceso. Mi ne posedas kopion de la manĝkarto; se mi ja havus ĝin, ĝi signifus nenion al iu. i estis skribita en ia aparta franca lingvo uzata de kuiristoj sed tute nekomprenebla al francoj. Estis tradicio en la klubo, ke la antaŭman-
-
-ĝaĵoj estu diversaj kaj multnombraj ĝis frenezeco. Ili estis konside-rataj kiel gravaj ĉar ili estis konfese senutilaj kromaĵoj, kiel la tuta vespermanĝo kaj la tuta klubo. Estis ankaŭ tradicio, ke la buljon-servico estu simpla kaj modesta—ia simpla kaj severa preparado por la venonta fiŝ-festeno. La interparolado estis de tiu stranga eta speco kiu regas la Britan Imperion, kiu regas ĝin sekrete sed kiu estus apenaŭ komprenebla al ordinara anglo eĉ se li povus subaŭskulti ĝin. Oni aludis ambaŭflanke al ministroj per iliaj baptonomoj 59
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝaĵoj estu diversaj kaj multnombraj ĝis frenezeco. Ili estis konside-rataj kiel gravaj ĉar ili estis konfese senutilaj kromaĵoj, kiel la tuta vespermanĝo kaj la tuta klubo. Estis ankaŭ tradicio, ke la buljon-servico estu simpla kaj modesta—ia simpla kaj severa preparado por la venonta fiŝ-festeno. La interparolado estis de tiu stranga eta speco kiu regas la Britan Imperion, kiu regas ĝin sekrete sed kiu estus apenaŭ komprenebla al ordinara anglo eĉ se li povus subaŭskulti ĝin. Oni aludis ambaŭflanke al ministroj per iliaj baptonomoj
 
 
 kun ia enuigita bonvolo. La Radikala estro do la Fiska Departmento, kiun supozeble la tuta Konservatisma partio malbenis pro liaj eltor-doj, estis laŭdata pro siaj malgrandaj poemoj aŭ pro sia lerteco sur la ĉaskampo. La Konservatisma estro, kiun supozeble ĉiuj Radika-lanoj malamis kiel tiranon, estis pridiskutata, kaj entute laŭdata—
@@ -1057,21 +855,11 @@ kiel Radikalano. ŝajnis iel, ke politikistoj estas tre gravaj. Tamen ĉio ajn p
 Neniu partio povis ignori lin, kaj se li volus fariĝi unu el la minist-raro sendube li tio fariĝus. La Duko de Chester, la Vicprezidanto, estis juna kaj famiĝanta politikisto. Tio signifas, ke li estis afabla junulo, kun glata blonda hararo kaj lentuga vizaĝo, kun modera inteligenteco kaj grandegaj bienoj. Liaj publikaj aperoj estis ĉiam sukcesplenaj kaj lia principo estis sufiĉe simpla. Kiam li ekpensis ŝercon li eldiris ĝin kaj oni nomis lin klerega. Kiam li ne povis elpensi ŝercon li diris, ke nun estas nenia tempo por bagateloj, kaj oni nomis lin kapabla. Malpublike, en klubo de sia propra klaso, li estis nur agrable malkaŝema kaj idioteta kiel lerneja knabo. S-ro Audley, pro tio, ke li neniam intermiksiĝis en politiko, traktis ĝin pli serioze. Kelkfoje li eĉ embarasigis la ĉeestantaron per la sugesto, ke estas diferenco inter Radikalano kaj Konservatismano. Li mem estis Konservatismano, eĉ dum privata vivo. Li havis buklon el griza haro kiu kovris la malantaŭen parton de la kolumo, kiel iuj malmo-dernaj politikistoj, kaj vidata de malantaŭe li aspektis kiel la viro, kiun la Imperio bezonas. Vidata de antaŭe li aspektis kiel milda, sinindulgema fraŭlo kun loĝejo en la Hotelo Albany—kia li efektive estis.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-Kiel jam dirite, estis dudek kvar seĝoj ĉe la terasa tablo kaj nur dek du klubanoj. Tial ili povis okupi la terason laŭ la plej luksa maniero, sidantaj ĉe la pli interna flanko de la tablo kun neniu kontraŭe kaj ĝuantaj plenan vidon de la ĝardeno, kies koloroj estis ankoraŭ brilaj kvankam la vespero alproksimiĝis iomete ŝtorme por la sezono. La Prezidanto sidis meze de la linio kaj la Vic-prezidanto ĉe ĝia dekstra fino. Kiam la dek du gastoj unue enmarŝis al iliaj seĝoj estis kutime (pro iu nekonata kialo), ke la dek kvin kelneroj ĉiuj staru laŭ la muro kiel militistaro prezentanta armilojn al la re-
-
-ĝo, dum la dika posedanto staris riverencante al la klubanoj kun elbrilanta surprizo kvazaŭ li neniam antaŭe priaŭdis ilin. Tamen antaŭ ol la unua ektinto de tranĉilo aŭ forko, malaperis ĉi tiu servistaro, nur unu aŭ du, kiuj necesis por kolekti kaj disdoni la telerojn glitis tien kaj tien ĉi en senviva silento. S-ro Lever estis kompreneble antaŭ longe malaperinta kun komplezplenaj konvulsioj.
+Kiel jam dirite, estis dudek kvar seĝoj ĉe la terasa tablo kaj nur dek du klubanoj. Tial ili povis okupi la terason laŭ la plej luksa maniero, sidantaj ĉe la pli interna flanko de la tablo kun neniu kontraŭe kaj ĝuantaj plenan vidon de la ĝardeno, kies koloroj estis ankoraŭ brilaj kvankam la vespero alproksimiĝis iomete ŝtorme por la sezono. La Prezidanto sidis meze de la linio kaj la Vic-prezidanto ĉe ĝia dekstra fino. Kiam la dek du gastoj unue enmarŝis al iliaj seĝoj estis kutime (pro iu nekonata kialo), ke la dek kvin kelneroj ĉiuj staru laŭ la muro kiel militistaro prezentanta armilojn al la reĝo, dum la dika posedanto staris riverencante al la klubanoj kun elbrilanta surprizo kvazaŭ li neniam antaŭe priaŭdis ilin. Tamen antaŭ ol la unua ektinto de tranĉilo aŭ forko, malaperis ĉi tiu servistaro, nur unu aŭ du, kiuj necesis por kolekti kaj disdoni la telerojn glitis tien kaj tien ĉi en senviva silento. S-ro Lever estis kompreneble antaŭ longe malaperinta kun komplezplenaj konvulsioj.
 
 Diri, ke li iam vere aperis ankoraŭ unufoje estus troiga, eĉ malres-pektega. Sed kiam la grava servico, la fiŝservico, estis enportata, estis—kiel mi esprimu tion?—vivanta ombro, projekcio de lia personeco, kiu montris, ke li ŝvebas apude. La sankta fiŝservico konsistis (de la vidpunkto de vulgaruloj) el ia giganta pudingo, havanta proksimume la formon kaj grandecon de geedziĝa kuko, en kiu granda nombro da interesaj fiŝoj fine estis perdintaj la formojn do-nitajn al ili de Dio. La Dek Du Veraj Fiŝkaptistoj enmanigis siajn famajn fiŝmanĝilojn, kaj ekmanĝis ĝin serioze kvazaŭ ĉiu colo de la pudingo kostas tiom multe kiom la arĝenta forko per kiu ĝi estas manĝata. Eble ĝi ja tiom kostis—mi ne scias. ĉi tiu servico estis traktata kun avida kaj englutanta silento, kaj estis nur kiam lia telero preskaŭ malpleniĝis, ke la juna duko laŭrite ekdiris, ”Oni ne povas fari ĉi tion ie, krom tie ĉi.”
 
-”Nenie,” diris sinjoro Audley kun profunda basa voĉo, sin tur-61
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-nante al la parolinto kaj kelkfojojn balancante sian respektindan kapon, ”Nenie, sendube, krom tie ĉi. Estas protestite al mi, ke ĉe la Café Anglais——”
+”Nenie,” diris sinjoro Audley kun profunda basa voĉo, sin turnante al la parolinto kaj kelkfojojn balancante sian respektindan kapon, ”Nenie, sendube, krom tie ĉi. Estas protestite al mi, ke ĉe la Café Anglais——”
 
 Tie ĉi li estis interrompata kaj eĉ maltrankviligata pro la forporto de sia telero, sed li baldaŭ rekaptis la valoran fadenon de siaj pensoj. ”Estas protestite al mi, ke ĉe la Café Anglais oni povas tiel same fari. Nenio tia, sinjoro,” li diris kapskuante malkompate kiel mort-punanta juĝo. ”Nenio tia.”
 
@@ -1081,9 +869,7 @@ Tie ĉi li estis interrompata kaj eĉ maltrankviligata pro la forporto de sia te
 
 Kelnero rapidis laŭlonge de la ĉambro kaj tiam ekhaltis senmove. Lia ekhalto estis tiom senbrua kiom lia marŝado, sed ĉiuj tiuj nedifinitaj kaj bonkoraj sinjoroj tiom kutimiĝis al la absoluta glate-co de la nevidata mekanismo, kiu ĉirkaŭis kaj subtenis ilian viva-don, ke estis skuo kaj ŝoko kiam servisto faris ion neatenditan. Ili sentis tiel same kiel ni sentus se senvivaĵoj ekmalobeus nin—se seĝo forkurus de ni.
 
-La kelnero staris kelkajn momentojn rigardante, dume profundiĝis sur ĉiu ĉetabla vizaĝo stranga honto, kiu tute estas produktaĵo de niaj tempoj. i estas kunmikso de moderna homaramismo kaj la terura moderna abismo inter riĉuloj kaj malriĉuloj. Vera historia aristokrato ĵetus aĵojn al la kelnero, komence malplenajn botelojn kaj kredeble monon fine. Vera demokrato demandus al li, kun ka-marada elparola klareco, kion je diablo li faras. Sed ĉi tiuj modernaj plutokratoj ne povis toleri la apudeston de malriĉulo aŭ kiel sklavo aŭ kiel amiko. La fakto, ke ĉio ne glate iras ĉe la servistoj, estis nure obtuza varma konfuzigaĵo. Ili ne volis esti kruelaj kaj ili timegis la neceson fariĝi kompataj. Ili volis, ke la afero, kio ajn ĝi 62
-
-L A N A I V E CO D E PA ST RO B ROW N
+La kelnero staris kelkajn momentojn rigardante, dume profundiĝis sur ĉiu ĉetabla vizaĝo stranga honto, kiu tute estas produktaĵo de niaj tempoj. i estas kunmikso de moderna homaramismo kaj la terura moderna abismo inter riĉuloj kaj malriĉuloj. Vera historia aristokrato ĵetus aĵojn al la kelnero, komence malplenajn botelojn kaj kredeble monon fine. Vera demokrato demandus al li, kun ka-marada elparola klareco, kion je diablo li faras. Sed ĉi tiuj modernaj plutokratoj ne povis toleri la apudeston de malriĉulo aŭ kiel sklavo aŭ kiel amiko. La fakto, ke ĉio ne glate iras ĉe la servistoj, estis nure obtuza varma konfuzigaĵo. Ili ne volis esti kruelaj kaj ili timegis la neceson fariĝi kompataj. Ili volis, ke la afero, kio ajn ĝi
 
 
 estu, nur finiĝu. i jam estis finiĝinta. La kelnero, starinte kelkajn sekundojn rigide kiel viro atakata de katalepsio, sin turnis kaj furioze elkuris el la ĉambro.
@@ -1092,9 +878,7 @@ Kiam li aperis denove en la ĉambro, aŭ pli ĝuste en la elirejo, li estis kun 
 
 Kvina kelnero rapidegis al li kiel sago kaj estis flustranta en lian orelon. ”Tre bedaŭras. Grava! La posedanto, ĉu vi permesos, ke li alparolu vin?”
 
-La prezidanto sin turnis konfuzite kaj kun miregita rigardado vidis sinjoron Lever alproksimiĝanta per sia peziranta rapideco. La marŝmaniero de la bona posedanto estis efektive lia kutima marŝ-
-
-maniero sed lia vizaĝo estis neniel kutima. Plej ofte ĝi havis bonhu-moran kuprakoloron; sed nun ĝi estis naŭze flava.
+La prezidanto sin turnis konfuzite kaj kun miregita rigardado vidis sinjoron Lever alproksimiĝanta per sia peziranta rapideco. La marŝmaniero de la bona posedanto estis efektive lia kutima marŝmaniero sed lia vizaĝo estis neniel kutima. Plej ofte ĝi havis bonhu-moran kuprakoloron; sed nun ĝi estis naŭze flava.
 
 ”Vi pardonu min, sinjoro Audley,” li diris kun astma senspireco.
 
@@ -1109,9 +893,6 @@ maniero sed lia vizaĝo estis neniel kutima. Plej ofte ĝi havis bonhu-moran kup
 ”Kompreneble ne!”
 
 S-ro Lever malfermis la manojn kun gesto dolorega. ”Mi ne sendis lin,” li diris. ”Mi ne scias kiam aŭ kial li venis. Mi sendis mian kelneron por forporti la telerojn kaj li trovis ĉiujn jam for.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 S-ro Audley ankoraŭ aspektis tro konfuzita por esti vere tia viro kian bezonas la Imperio; neniu el la ĉeestantaro povis ion diri krom la ligna viro—Kolonelo Pound, kiu ŝajne estis galvanizita ĝis nenatura viveco. Li rigide leviĝis el sia seĝo, lasante la aliajn ĉiuj sidantaj, enŝraŭbis sian okulvitron en la okulon kaj ekparolis per raŭka flustro kvazaŭ li duone forgesis kiel paroli.
@@ -1134,9 +915,7 @@ La posedanto sin turnis al li, tremegante de ia surprizo. ”Vi diras—vi diras
 
 ”Nenial,” diris Lever per pli profundiĝanta voĉo, ”sed vi ne vidis ilin. ĉar unu estas senviva supre.”
 
-Dum momento ŝokiga silento plenigis tiun ĉambron. Eble (tiel supernatura estas la vorto morto) ĉiu el tiuj senokupaj viroj ekrigardis sian animon kaj vidis ĝin kiel malgrandan ŝrumpan pizon. Unu 64
-
-L A N A I V E CO D E PA ST RO B ROW N
+Dum momento ŝokiga silento plenigis tiun ĉambron. Eble (tiel supernatura estas la vorto morto) ĉiu el tiuj senokupaj viroj ekrigardis sian animon kaj vidis ĝin kiel malgrandan ŝrumpan pizon. Unu
 
 
 el ili—la duko, mi kredas—eĉ diris kun la idiota komplezemo de riĉeco, ”ĉu ni povas iel helpi?”
@@ -1158,9 +937,6 @@ La aro de manĝintoj kaj servistoj, kiu senorde puŝis sin tra la koridoroj, apa
 ”Hola, vi,” ekkriis la duko. ”ĉu vi vidis iun preterpasi?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 La malalta figuro ne respondis al la demando sed nun diris. ”Eble mi havas kion vi serĉas, sinjoroj.”
 
 Ili paŭzis, hezitante kaj mirante, dum li trankvile iris al la malantaŭa parto de la vestejo kaj revenis, ambaŭ manoj plenaj de brilanta arĝento, kiun li diskuŝigis sur la tabulon tiel trankvile kiel vendanto.
@@ -1177,9 +953,7 @@ Vidiĝis dekduo da strange faritaj tranĉiloj kaj forkoj.
 
 ”Sed vi ne ŝtelis ilin,” diris Kolonelo Pound, ankoraŭ rigandan-te la frakasitan fenestron.
 
-”Mi malkaŝe konfesas, ke ne,” diris la alia bonhumore. Kaj li sidi-
-
-ĝis tute serioze sur skabelon.
+”Mi malkaŝe konfesas, ke ne,” diris la alia bonhumore. Kaj li sidiĝis tute serioze sur skabelon.
 
 ”Sed vi scias kiu estas la ŝtelinto,” diris la kolonelo.
 
@@ -1189,9 +963,7 @@ Vidiĝis dekduo da strange faritaj tranĉiloj kaj forkoj.
 
 Pastro Brown ekstaris kaj kunmetis la manojn surdorse.
 
-”Strange, ĉu ne?” li diris, ”ke ŝtelisto kaj fripono pentas, kiam tiom multaj kiuj estas riĉaj kaj sekuraj restas sensentaj kaj frivolaj kaj sen frukto aŭ por Dio aŭ por homoj? Do, vi pardonu min, vi 66
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Strange, ĉu ne?” li diris, ”ke ŝtelisto kaj fripono pentas, kiam tiom multaj kiuj estas riĉaj kaj sekuraj restas sensentaj kaj frivolaj kaj sen frukto aŭ por Dio aŭ por homoj? Do, vi pardonu min, vi
 
 
 invadas iomete mian sferon. Se vi dubas la penton esti vere fakto—
@@ -1210,17 +982,13 @@ Fine li diris kviete al la pastro. ”Tiu certe estis lertulo sed mi kredas, ke 
 
 ”Li ja estas lertulo,” respondis la alia, ”sed mi ne scias kiun alian vi priparolas.”
 
-”Mi parolas pri vi,” diris la kolonelo kun mallonga rido. ”Mi ne volas malliberigi lin; ne ĝenu vin pri tio. Sed mi donus multajn ar-
-
-ĝentajn forkojn por scii ĝuste kiel vi enmiksiĝis en ĉi tiun aferon kaj kiel vi prenis la aĵojn for de li. Mi opinias, ke vi estas la plej vigla diablo en la nuna ĉeestantaro.”
+”Mi parolas pri vi,” diris la kolonelo kun mallonga rido. ”Mi ne volas malliberigi lin; ne ĝenu vin pri tio. Sed mi donus multajn arĝentajn forkojn por scii ĝuste kiel vi enmiksiĝis en ĉi tiun aferon kaj kiel vi prenis la aĵojn for de li. Mi opinias, ke vi estas la plej vigla diablo en la nuna ĉeestantaro.”
 
 ŝajne la malgaja rektparolo de la kolonelo plaĉis al Pastro Brown.
 
 ”Nu,” li diris ridetante, ”Mi devas ne diri al vi kiu li estas, aŭ lian propran historion, kompreneble; tamen estas nenia aparta kialo pro kiu mi ne povas rakonti al vi la nurajn eksteraĵojn, kiujn mi mem elserĉis.”
 
-Li transsaltis la barilon kun neatendita agemeco kaj sidiĝis flanke de Kolonelo Pound, svingante siajn mallongajn krurojn kiel knabo 67
-
-L A N A I V E CO D E PA ST RO B ROW N
+Li transsaltis la barilon kun neatendita agemeco kaj sidiĝis flanke de Kolonelo Pound, svingante siajn mallongajn krurojn kiel knabo
 
 
 sur kradpordo. Li komencis la rakonton tiel facile kvazaŭ li estus rakontanta ĝin al bone konata amiko apud la kristnaska kameno.
@@ -1229,26 +997,19 @@ sur kradpordo. Li komencis la rakonton tiel facile kvazaŭ li estus rakontanta �
 
 Kolonelo Pound rigardis lin atente, sed la mildaj grizaj okuloj de la parolanto rigardadis al la plafono kun preskaŭ sensignifa sopire-co.
 
-”Krimo,” li malrapide diris, ”estas kiel iu ajn alia artaĵo. Ne mienu tiel surprizita; krimoj estas neniel la solaj artaĵoj, kiuj venas el infera laborejo. Sed ĉiu artaĵo, dia aŭ diabla, portas unu necesan signon—mi volas diri, ke ĝia centraĵo devas esti simpla kiom ajn ĝia 68
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Krimo,” li malrapide diris, ”estas kiel iu ajn alia artaĵo. Ne mienu tiel surprizita; krimoj estas neniel la solaj artaĵoj, kiuj venas el infera laborejo. Sed ĉiu artaĵo, dia aŭ diabla, portas unu necesan signon—mi volas diri, ke ĝia centraĵo devas esti simpla kiom ajn ĝia
 
 
 plenumo estu malsimpla. Tiel ekzemple en Hamleto, la groteskeco de la tombfosisto, la floroj de la freneza knabino, la fantazia orna-meco de Osrik, la paleco de la fantomo kaj la ridetaĉo de la kranio estas ĉiuj strangaĵoj ĉirkaŭantaj kiel implikita girlando unu ordinaran tragedian figuron—viron nigre vestitan. Nu, ĉi tiu ankaŭ,” li diris ridetante kaj leviĝante malrapide de sia seĝo, ”ĉi tiu ankaŭ estas la ordinara tragedio de viro nigre vestitia. Jes,” li daŭrigis, vidante la kolonelon iom mire suprenrigardi, ”ĉi tiu rakonto tute dependas de nigra vestaĵo. En ĉi tiu, kiel en Hamleto, estas la rokokaj elkreskaĵoj—viaj kunuloj, ni diru. Estas la mortinta kelnero, kiu ĉeestis kiam li ne povis ĉeesti. Estas la nevidita mano, kiu forviŝis la arĝentaĵojn de via tablo kaj malaperis kiel nevidita aero. Sed ĉiu lerta krimo fine staras sur unu tute simpla fakto—fakto kiu en si mem ne estas mistera. Per kaŝado pri ĝi, konduko de ĉies pensojn for de ĝi, tiel la mistero okazas. ĉi tiu granda kaj subtila kaj (se ĉio laŭprograme okazus) profita krimo dependis de la simpla fakto, ke la frako de sinjoro estas tiel same kiel la frako de kelnero. La restaĵo estis nur aktorado, diable bona aktorado.”
 
 ”Tamen,” diris la kolonelo leviĝante kaj sulkigante la brovojn dum li rigardis siajn botojn, ”Mi ne estas certa, ke mi komprenas.”
 
-”Kolonelo,” diris Pastro Brown, ”mi asertas, ke ĉi tiu aręanĝelo de aplombo, kiu ŝtelis viajn forkojn, tramarŝis ĉi tiun koridoron dudek fojojn en la lumego de ĉiuj lampoj, sub la rigardo de ĉies okuloj. Li ne sin kaŝis en mallumaj anguloj, kie suspektemo eble elserĉus lin. Li konstante movadis en la lumplenaj koridoroj, kaj kien ajn li iris, ŝajnis, ke li estas tie de rajto. Ne demandu kiel li aspektis; vi mem vidis lin ses aŭ sep fojojn hodiaŭ vespere. Vi atendis kun ĉiuj aliaj grandaj sinjoroj en la ripozejo tie, ĉe la alia fino de la koridoro, kaj pli malproksime estis la teraso. Kiam ajn li iris inter vin sinjorojn, li eniris kun la rapidega stilo de kelnero, la kapo 69
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Kolonelo,” diris Pastro Brown, ”mi asertas, ke ĉi tiu aręanĝelo de aplombo, kiu ŝtelis viajn forkojn, tramarŝis ĉi tiun koridoron dudek fojojn en la lumego de ĉiuj lampoj, sub la rigardo de ĉies okuloj. Li ne sin kaŝis en mallumaj anguloj, kie suspektemo eble elserĉus lin. Li konstante movadis en la lumplenaj koridoroj, kaj kien ajn li iris, ŝajnis, ke li estas tie de rajto. Ne demandu kiel li aspektis; vi mem vidis lin ses aŭ sep fojojn hodiaŭ vespere. Vi atendis kun ĉiuj aliaj grandaj sinjoroj en la ripozejo tie, ĉe la alia fino de la koridoro, kaj pli malproksime estis la teraso. Kiam ajn li iris inter vin sinjorojn, li eniris kun la rapidega stilo de kelnero, la kapo
 
 
 klinita, tuko kiel flago kaj piedoj kurantaj. Li kuregis sur la terason, faris ion pri la tablotuko kaj reen kuregis al la kabineto kaj la ser-vistejoj. Sed kiam la vesteja komizo kaj la kelneroj vidis lin, li estis fariĝinta alia viro, en ĉiu colo de sia talio, en ĉiu instinkta gesto. Li paŝis inter la servistoj kun tia malatentema aplombo kian ili ĉiuj estis vidintaj ĉe siaj patronoj. Al ili estis nenia nova okazaĵo, ke granda sinjoro, unu el la manĝontoj, trapasis ĉiujn partojn de la domo kiel besto en la bestarejo; ili sciis nenion, kio estas pli karakteriza de mondumanaj ol la kutimo iri kien ajn ili volas. Kiam li estis grandioze enuigita de la trapaŝado tra tiu koridoro, li sin turnis kaj reen iris preter la kabineto; en la ombroj de la arkaĵo iom pli malproksime li estis ŝanĝita kvazaŭ de sorĉa frapo, kaj rapidis antaŭen ankoraŭ unufoje inter la Dek Du Fiŝkaptistojn, komplezega servisto. Kial la sinjoroj rimarku novan kelneron? Kial la kelneroj suspek-tu unuagradan sinjoron? Foje li faris la plej aplombajn ruzojn. En la privata ĉambro de la posedanto li verve petis sifonon da sodakvo, dirante, ke li havas soifon. Li bonhumore diris, ke li mem portos ĝin, kaj li tion faris; li portis ĝin rapide kaj senerare inter vin ĉiujn, kelnero kun memevidenta tasko. Kompreneble tio ne povis longe daŭri, sed necesis nur daŭrigi ĝin ĝis la fiŝservico.
 
 ”Lia plej granda malfacilaĵo venis kiam la kelneroj staris en vico; sed eĉ tiam prosperis al li sin apogi al la muro ĉe angulo tiel, ke dum la grava sekundo la kelneroj kredis, ke li estas sinjoro, kaj la sinjoroj, ke li estas kelnero. ĉio cetera estis plej simpla. Se kelnero vidis lin for de la tablo, li vidis malenergian aristokraton. Nur necesis atendi ĝis du minutoj antaŭ la forporto de la fiŝservico, fariĝi rapida servisto kaj forporti ĝin per si mem. Li demetis la telerojn sur bu-fedon, puŝis la arĝenton en sian brustpoŝon, elŝveligante ĝin, kaj kuris kiel leporo (mi aŭdis lin alvenanta) ĝis la vestejo. Tie li fariĝis denove plutokrato—plutokrato kiu devas tuj foriri pro ia urĝaĵo.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Nur necesis doni la bileton al la vesteja servisto kaj eliri tiel elegante kiel li estis enirinta. Sed—sed okazis, ke mi estis la vesteja servisto.”
@@ -1274,15 +1035,9 @@ Ili kune marŝis laŭ la koridoro al la enirejo, kie ili vidis la freŝan lentug
 Pastro Brown butonumis sian ordinaran surtuton ĝis la kolumo, ĉar la nokto estis ŝtorma, kaj prenis sian ordinaran ombrelon el la ujo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Jes,” li diris, ”nepre estas malfacila tasko esti sinjoro; sed vere mi iafoje opinias, ke estis kelnero eble estas preskaŭ tiel severlabora.”
 
 Kaj dirante ”Bonan nokton”, li puŝe malfermis la pezajn pordojn de tiu palaco de plezuroj. Malantaŭ li la oraj pordegoj fermiĝis kaj li rapidis tra la humidaj mallumaj stratoj por serĉi omnibuson.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 LA FLUGANTAJ STELOJ
@@ -1290,9 +1045,6 @@ LA FLUGANTAJ STELOJ
 ”La plej bela krimo, kiun mi iam faris,” Flambeau ofte diris dum sia tute morala maljuneco, ”ankaŭ estis, laŭ rimarkinda koincido, mia lasta. i estis farata je Kristnasko. Kiel artisto mi ĉiam penis provizi krimojn taŭgajn por la apartaj sezono aŭ pejzaĝoj en kiuj mi troviĝis, elektante tiun aŭ tiun ĉi terason aŭ ĝardenon por katastrofo kvazaŭ por statua grupo. Tiel bienposedantoj estu trompa-taj en longaj ĉambroj kverkpanelitaj, kontraste al Judoj, kiuj trovu sin subite senmonaj inter la lumoj kaj ŝirmiloj de la Café Riche. Tiel, en Anglujo, se mi dezirus malŝarĝi dekanon de liaj riĉaĵoj (kio ne estas tiel facila kiel vi opinias), mi volus enkadrigi lin, se mi klare esprimas min, inter la verdaj razenejoj kaj grizaj turoj de iu katedra-la urbo. Simile en Francujo, kiam mi estis preninta monon de riĉa kaj malvirta kamparano (kio estas preskaŭ neebla), plaĉis al mi igi ties indignan kapon elstari kontraŭ la griza linio de tonditaj poploj kaj tiuj grandiozaj ebenaĵoj de Galio super kiuj ŝvebas la potenca spirito de Millet.
 
 ”Mia lasta krimo nu, estis Kristnaska krimo, bonanima, komforta, angla, mezklasa krimo; krimo laŭ Charles Dickens. Mi faris ĝin en bona kaj malnova mezklasa domo apud Putney, domo kun kurb-strata veturigila vojo, domo flankata de ĉevalejo, domo kun la no-mo sur la du eksteraj pordoj, domo kun araŭkario. Vi konas la specon. Mi vere opinias, ke mia imitaĵo de la stilo de Dickens estis lerta kaj literatura. ŝajnas preskaŭ bedaŭrinde, ke la saman vesperon mi pentis.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Flambeau tiam daŭrus rakonti la historion de interne; kaj eĉ tiel
@@ -1303,9 +1055,7 @@ La vintra posttagmezo ruĝiĝis al vespero kaj jam rubena lumo verŝiĝis super 
 
 ”Ho, ne saltu, sinjoro Crook,” ŝi kriis kun iom da timo, ”estas multe tro alte.”
 
-La persono rajdante la ĝardenmuron kiel aera ĉevalo estis longa, angula junulo, kun nigra hararo hirta kiel broso, inteligentaj kaj eĉ eminentulaj trajtoj, sed flavpala kaj preskaŭ fremdula aspekto. Tiu ĉi montriĝis des pli klare ĉar li portis flamantan ruĝan kravaton, la sola vestero pri kiu li ŝajne iel zorgis. Eble ĝi estis simbolo. Li tute 74
-
-L A N A I V E CO D E PA ST RO B ROW N
+La persono rajdante la ĝardenmuron kiel aera ĉevalo estis longa, angula junulo, kun nigra hararo hirta kiel broso, inteligentaj kaj eĉ eminentulaj trajtoj, sed flavpala kaj preskaŭ fremdula aspekto. Tiu ĉi montriĝis des pli klare ĉar li portis flamantan ruĝan kravaton, la sola vestero pri kiu li ŝajne iel zorgis. Eble ĝi estis simbolo. Li tute
 
 
 ne atentis pni la timigita petego de la knabino sed saltis kiel akri-do alteren ĉe ŝia flanko, kie liaj kruroj povus esti facile rompiĝintaj.
@@ -1336,20 +1086,14 @@ Tiam, post paŭzo, kiu vidigis iun mankon de entuziasmo, Ruby Adams aldonis:
 
 ”Li estas tre bonkora.”
 
-John Crook, ĵurnalisto, jam aŭdis pri tiu eminenta financa magnato; kaj la kulpo ne estis lia se la financa magnato ankoraŭ ne aŭ-
-
-dis pri li; ĉar en iuj artikoloj en La Klariono aŭ La Nova Epoko Sir Leopold estis tre severe pritraktita. Li tamen nenion diris, kaj ob-75
-
-L A N A I V E CO D E PA ST RO B ROW N
+John Crook, ĵurnalisto, jam aŭdis pri tiu eminenta financa magnato; kaj la kulpo ne estis lia se la financa magnato ankoraŭ ne aŭdis pri li; ĉar en iuj artikoloj en La Klariono aŭ La Nova Epoko Sir Leopold estis tre severe pritraktita. Li tamen nenion diris, kaj ob-75
 
 
 servis severe la malŝarĝadon de la aŭtomobilo, kiu estis iomete longdaŭra procedo. Granda neta ŝoforo verde vestita eliĝis el la antaŭa parto, kaj malgranda neta lakeo grize vestita eligis el la malantaŭa parto, kaj ambaŭ kune demetis Sir Leopold sur la peronon kaj komencis malkovri lin kiel iun tre zorge pakitan pakaĵon. Lan-kovriloj sufiĉe multnombraj por stoki bazaron, peltoj de ĉiuj bestoj de la arbaro, kaj koltukoj de ĉiuj koloroj de la ĉielarko, disvolviĝis unu post la alia ĝis kiam vidiĝis io similanta la homan formon; la formo de amika sed alilandulo-aspekta maljuna sinjoro, kun griza kaprosimila barbo kaj radianta rideto, kiu kunfrotis siajn grandajn peltgantojn.
 
 Longe antaŭ ol tiu ĉi malkaŝado kompletiĝis la du grandaj pordoj de la enirejo malfermiĝis en la mezo kaj Kolonelo Adams (patro de la peltkovrita fraŭlino) estis mem elirinta por eninviti sian eminentan gaston. Li estis longa, sunbrunigita kaj tre silenta viro, kiu portis ruĝan fumĉapon kiel fezon, kiu donis al li la aspekton de unu el la anglaj Sirdaroj aŭ Paŝaoj en Egiptujo. Kun li estis lia bofrato, ĵus alveninta de Kanado, grandkorpa, flav-barba, kaj iomete tumultema juna sinjor-farmbienisto, nomita James Blount. Ankaŭ kun tiu ĉi troviĝis la multe malpli impona figuro de la pastro de la apuda roma preĝejo; ĉar la mortinta edzino de la kolonelo estis katoliko kaj la infanoj, kiel estas kutime tiuokaze, estis edukitaj por ŝin sekvi. ĉio pri la pastro ŝajnis ordinara, eĉ lia nomo, kiu estis Brown; la kolonelo tamen ĉiam trovis ion amikecan ĉe li kaj ofte invitis lin al tiaj familiaj kunvenoj.
 
-En la larĝa enirĉambro de la domo estis ja sufiĉe da spaco eĉ por Sir Leopold kaj la depreno de ties kovriloj. La portiko kaj vestiblo estis efektive nekutime grandaj proporcie la domon, kaj faris kvazaŭ grandan ĉambron kun la pordo ĉe unu fino kaj la malsupro de la ŝtuparo ĉe la alia. Antaŭ la granda fajro de tiu ĉi ĉambro, super 76
-
-L A N A I V E CO D E PA ST RO B ROW N
+En la larĝa enirĉambro de la domo estis ja sufiĉe da spaco eĉ por Sir Leopold kaj la depreno de ties kovriloj. La portiko kaj vestiblo estis efektive nekutime grandaj proporcie la domon, kaj faris kvazaŭ grandan ĉambron kun la pordo ĉe unu fino kaj la malsupro de la ŝtuparo ĉe la alia. Antaŭ la granda fajro de tiu ĉi ĉambro, super
 
 
 kiu pendis la sabro de la kolonelo, la procedo kompletiĝis kaj la kunestantaron, inkluzive la seriozvizaĝan Crook, oni prezentis al Sir Leopold Fischer. Tiu respekteginda financisto tamen ŝajne ankoraŭ luktadis kun partoj de siaj belaj tajloritaj vestaĵoj kaj fine eltiris el tre intema baskpoŝo, nigran ovalan skatoleton, kiu, li radiante klarigis, estas lia kristnaska donaco al sia baptofilino. Kun neafekta fanfaronemo iome naiva li montris la ujon antaŭ ili ĉiuj; ĝi malfermiĝis per unu tuŝo kaj duone blindigis ilin. Estis tute kvazaŭ kristala fontano estis spruĉinta en iliajn okulojn. En nesto de oranĝa veluro kuŝis kiel tri ovoj, tri blankaj kaj brilegaj diamantoj, kiuj ŝajne ja ekbruligis ĉirkaŭ si la aeron. Fischer staris larĝe kaj bonvole ridetante kaj entrinkante profunde la miregon kaj ekstazon de la knabino, la severan admiron kaj dankojn de la kolonelo, la miron de la tuta aro.
@@ -1369,9 +1113,6 @@ kiu pendis la sabro de la kolonelo, la procedo kompletiĝis kaj la kunestantaron
 ”Sanktulo,” diris Pastro Brown.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Mi kredas,” diris Sir Leopold, kun malestima rideto, ”ke Ruby volas diri Socialisto.”
 
 ”Radikalulo ne signifas homon kiu sin nutras per radikoj,” diris Crook iomete senpacience; ”kaj Konservatismano ne signifas homon kiu faras konservaĵojn. Nek, mi plene certigas al vi, signifas Socialisto homon kiu volas societe interamikiĝi kun la kamentubisto. Socialisto signifas homon, kiu deziras, ke ĉiuj kamentuboj estu trabalaitaj kaj ke ĉiuj kamentubistoj estu pro tio bone rekompen-cataj.”
@@ -1388,9 +1129,7 @@ ekstere almetita.”
 
 ”Ho bonege!” kriis Ruby, ”Ho mi deziras, ke vi tion faru ankaŭ antaŭ la nuna ĉeestantaro.”
 
-La tumultema kanadano, sinjoro Blount, estis aplaŭde levanta la voĉon kaj la miregita financisto la sian (kun iom da malaprobo) kiam eksonis frapo ĉe la duobla pordego. La pastro malfermis ĝin kaj vidiĝis denove la antaŭa ĝardeno, ĉiamverdaĵoj, araŭkario kaj ĉio, nuntempe kolektanta krepuskon kontraŭ grandioza purpura sunsubiro. La sceno tiel enkadrigita estis tiel kolorita kaj tiel kurioza, kiel la fono en teatraĵo, ke ili forgesis por momento la malgra-van figuron staranta ĉe la pordo. Li aspektis kvazaŭ polvokovrita kaj portis malfreŝan surtuton, evidente ordinara mesaĝisto. ”ĉu iu el vi sinjoro Blount?” li demandis kaj antaŭentenis leteron dubplene. S-ro Blount eksaltis, kaj ĉesigis la jesan krion. Malferme disŝirinte la 78
-
-L A N A I V E CO D E PA ST RO B ROW N
+La tumultema kanadano, sinjoro Blount, estis aplaŭde levanta la voĉon kaj la miregita financisto la sian (kun iom da malaprobo) kiam eksonis frapo ĉe la duobla pordego. La pastro malfermis ĝin kaj vidiĝis denove la antaŭa ĝardeno, ĉiamverdaĵoj, araŭkario kaj ĉio, nuntempe kolektanta krepuskon kontraŭ grandioza purpura sunsubiro. La sceno tiel enkadrigita estis tiel kolorita kaj tiel kurioza, kiel la fono en teatraĵo, ke ili forgesis por momento la malgra-van figuron staranta ĉe la pordo. Li aspektis kvazaŭ polvokovrita kaj portis malfreŝan surtuton, evidente ordinara mesaĝisto. ”ĉu iu el vi sinjoro Blount?” li demandis kaj antaŭentenis leteron dubplene. S-ro Blount eksaltis, kaj ĉesigis la jesan krion. Malferme disŝirinte la
 
 
 koverton, li ĝin tralegis kun videbla mirego; la vizaĝo iomete malheliĝis kaj tiam denove ridetis; li sin turnis al sia bofrato kaj gastiganto.
@@ -1413,9 +1152,7 @@ Malŝato al la ruĝ-kravata junulo, naskita de liaj rabaj opinioj kaj videbla in
 
 ”Nu, nu, nu,” kriis la kanada farmbienisto kun sia barbara bonanimeco, ”ni ne malgajigu feliĉan vesperon. Mi diras, ke ni faru ion por la ĉeestantaro hodiaŭ vespere. Ne nigrigi vizaĝojn aŭ sidiĝi sur ĉapelojn, se tion vi ne ŝatas—sed ion tian. Kial ni ne aranĝu anglan pantomimon de la malnova speco—klaŭno, kolumbino kaj tiel plu.
 
-Unu mi vidis kiam mi lasis Anglujon je aĝo dek du, kaj ja de tiam 79
-
-L A N A I V E CO D E PA ST RO B ROW N
+Unu mi vidis kiam mi lasis Anglujon je aĝo dek du, kaj ja de tiam
 
 
 ĝi flamadis en mia cerbo kiel festfajro. Mi revenis al la malnova lando nur lastan jaron kaj eltrovis, ke ĝi estas jam formortinta. Nenio krom aĉaro da blekantaj feteatraĵoj. Mi deziras varmigitan fajr-stangon kaj policanon ŝanĝitan al kolbasoj, kaj oni donas al mi prin-cinojn moralumantajn en la lunlumo, Bluajn Birdojn de Maeter-linck, aŭ ion similan. Blu-Barbon mi pli preferas, kaj lin mi plej forte ŝatas kiam li fariĝis la pantomimisto.”
@@ -1424,9 +1161,7 @@ L A N A I V E CO D E PA ST RO B ROW N
 
 ”Tute ne,” kriis Blount, plene entuziasmigita. ”Arlekenaĵo estas plej facile farebla, pro du kialoj. Unue, oni povas kiom ajn improvizi; kaj due, ĉiuj objektoj estas domaĵoj—tabloj kaj tukpontiloj kaj tollavaj korboj kaj similaj.”
 
-”Estas vene,” konfesis Crook, vigle balancante la kapon kaj mar-
-
-ŝante tien kaj tien ĉi. ”Tamen mi timas, ke mi ne povos havigi mian polican uniformon. Lastatempe mi ne mortigis policanon.”
+”Estas vene,” konfesis Crook, vigle balancante la kapon kaj marŝante tien kaj tien ĉi. ”Tamen mi timas, ke mi ne povos havigi mian polican uniformon. Lastatempe mi ne mortigis policanon.”
 
 Blount penseme sulkigis la brovojn dum iom da tempo kaj tiam ekfrapis la femuron. ”Certe, ni povos!” li kriis. ”Jen mi havas la adreson de Florian kaj li konas ĉiun kostumiston en Londono. Mi telefonos al li, ke li kunportu polican kostumon kiam li venos.” Kaj li foriris saltante al la telefono.
 
@@ -1439,44 +1174,31 @@ La milionulo sin tenis rigide kun ia pagana seriozeco. ”Mi kredas, karulino mi
 ”Mi fariĝos pantomimisto, se vi deziras,” diris Kolonelo Adams, prenante al la buŝo cigaron, kaj parolante por la unua kaj la lasta fojo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Vi devas havi statuon,” kriis la kanadano dum li revenis de la telefono, radiante de ridetoj. ”Jen ĉiu havas rolon. S-ro Crook estos la klaŭno; li estas ĵurnalisto kaj scias ĉiujn plej malnovajn ŝercojn.
 
 Mi povos esti arlekeno, tio postulas nur longajn krurojn kaj multe da saltado tien kaj tien ĉi. Mia amiko Florian diras telefone, ke li alportos la polican kostumon; li alivestiĝos survoje. Ni povos ludi en tiu ĉi vestiblo, la aŭdantaro sidanta sur tiu larĝa ŝtuparo kontraŭe, unu vico super la alia. Tiuj pordegoj estu la fono, aŭ fermite aŭ malfermite. Fermite, vi vidas anglan dominternaĵon. Malfermite, lunluman ĝardenon. ĉio iros laŭmagie.” Kaj ekprenante pecon da bilardkreto el la poŝo li transstrekis la plankon meze inter la pordegoj kaj la ŝtuparo, por indiki la pozicion de la planklumoj.
 
-Kiel tia sensencaĵa regalo estis sufiĉe frue pretigita restas enigmo. Sed ili sin metis al ĝi kun tiu miksaĵo de malkonsideremo kaj laboremo kiu ĉiam vivas kiam juneco estas en domo; kaj juneco ja estis en tiu domo tiun nokton, kvankam ne ĉiuj eble rekonis la du vizaĝojn kaj korojn el kiuj ĝi flamis. Kiel okazas ĉiam, la improvizaĵoj fariĝis pli kaj pli tumultaj ĝuste pro la banalo de la burĝaj kon-vencioj el kiuj ĝi devis krei. La kolumbino aspektis rava, vestita per elstaranta jupo, kiu eksterordinare similis la grandan lampom- brilon en la salono. La klaŭno kaj pantomimisto blankigis sin per faru-no de la kuiristino, kaj ruĝigis sin per ŝminkaĵo de iu alia servistino, kiu restis (kiel ĉiuj veraj Kristanaj bonfarantoj) sennoma. La arlekeno jam vestita per arĝentpapero el cigarskatoloj, estis nur malfacile malhelpata diserigi la malnovajn Viktoriajn lustrojn, por ke li svru de brilegantaj kristaloj. Efektive li tion ja estus farinta se Ruby ne estus eltrovinta iujn malnovajn gemvitrojn, kiujn ŝi estis portinta ĉe maskbalo kiel la Karoreĝino. ŝia onklo James Blount efektive preskaŭ ne povis sin regi pro ekscitiĝo; li estis kiel juna knabo el lernejo. Li almetis senaverte paperan azenkapon sur 81
-
-L A N A I V E CO D E PA ST RO B ROW N
+Kiel tia sensencaĵa regalo estis sufiĉe frue pretigita restas enigmo. Sed ili sin metis al ĝi kun tiu miksaĵo de malkonsideremo kaj laboremo kiu ĉiam vivas kiam juneco estas en domo; kaj juneco ja estis en tiu domo tiun nokton, kvankam ne ĉiuj eble rekonis la du vizaĝojn kaj korojn el kiuj ĝi flamis. Kiel okazas ĉiam, la improvizaĵoj fariĝis pli kaj pli tumultaj ĝuste pro la banalo de la burĝaj kon-vencioj el kiuj ĝi devis krei. La kolumbino aspektis rava, vestita per elstaranta jupo, kiu eksterordinare similis la grandan lampom- brilon en la salono. La klaŭno kaj pantomimisto blankigis sin per faru-no de la kuiristino, kaj ruĝigis sin per ŝminkaĵo de iu alia servistino, kiu restis (kiel ĉiuj veraj Kristanaj bonfarantoj) sennoma. La arlekeno jam vestita per arĝentpapero el cigarskatoloj, estis nur malfacile malhelpata diserigi la malnovajn Viktoriajn lustrojn, por ke li svru de brilegantaj kristaloj. Efektive li tion ja estus farinta se Ruby ne estus eltrovinta iujn malnovajn gemvitrojn, kiujn ŝi estis portinta ĉe maskbalo kiel la Karoreĝino. ŝia onklo James Blount efektive preskaŭ ne povis sin regi pro ekscitiĝo; li estis kiel juna knabo el lernejo. Li almetis senaverte paperan azenkapon sur
 
 
 Pastron Brown. kiu ĝin portis pacience kaj eĉ eltrovis iun privatan manieron por movi la orelojn. Li eĉ provis alfiksi la paperan azenvoston al la baskoj de Sir Leopold Fischer. Tio ĉi tamen estis severe malaprobata. ”Onklo estas tro idiota,” kriis Ruby al Crook, kies ŝultrojn ŝi jam serioze ĉirkaŭis de kolbasĉeno. ”Kial li estas tiel freneza?”
 
 ”Li estas arlekeno por via kolumbino,” diris Crook. ”Mi estas nur la klaŭno, kiu diras denove la malnovajn ŝercojn.”
 
-”Mi deziras, ke vi povu esti la arlekeno,” ŝi diris, kaj lasis svingi-
-
-ĝantaj la kolbasojn.
+”Mi deziras, ke vi povu esti la arlekeno,” ŝi diris, kaj lasis svingiĝantaj la kolbasojn.
 
 Pastro Brown, kvankam li jam sciis ĉiujn detalojn faritajn malantaŭ la scenejo kaj eĉ estis elvokinta aplaŭdon pro sia transformigo de kapkuseno al pantomima bebo, antaŭeneris kaj sidiĝis inter la aŭskultantaro tute kun la serioza atendemeco de infano ĉe ĝia unua teatraĵprezento. La aŭskultantoj estis malmultnombraj geparencoj, unu aŭ du lokaj amikoj kaj la servistoj; Sir Leopold sidis en la plej antaŭa seĝo, lia larĝa kaj ankoraŭ peltkolumita figuro grandmezure barante la vidadon de la malgranda klerikulo malantaŭ li; estas tamen neniam decidite de artaj kleruloj ĉu la klerikulo multe perdis pro tio. La pantomimo estis tute ˛oasa, kvankam ne malestiminda; trakuris tra ĝi furiozo improvizada, kiu devenis precipe de Crook la klaŭno. Kutime li estis klera viro kaj tiun vesperon inspiris lin tumultema ĉioscio malsaĝeco pli saĝa ol la mondo, kia venas al junulo kiu estas ekvidinta dum momento iun vizaĝ-esprimon ĉe iu vizaĝo.
 
 Li estis supozeble la klaŭno sed ŝajne li vere estis preskaŭ ĉio krome, la verkisto (se verkisto estis), la sufloro, la scenpentristo, la scenmovisto, kaj antaŭ ĉio ajn la orkestro. De tempo al tempo dum tiu monstra prezentado li sin ĵetis kontraŭ la fortepianon kaj elfrapis iun popularan arion egale sensencan kaj taŭgan.
 
-La klimakso de tio ĉi, kiel de ĉio alia, estis la momento kiam la 82
-
-L A N A I V E CO D E PA ST RO B ROW N
+La klimakso de tio ĉi, kiel de ĉio alia, estis la momento kiam la
 
 
 du pordoj ĉe la malantaŭa parto de la scenejo ekmalfermiĝis, montrante la belan lunluman ĝardenon, sed montrante pli elstarante la famkonatan profesian gaston; la granda Florian, alivestita kiel policano. La klaŭno ĉe la fortepiano ludis la policestran rekanton el
 
-”La Piratoj de Penzance”; ĝi dronis tamen en la surdiga aplaŭdo, ĉar ĉiu gesto de la fama komika aktoro estis admirinda sed detenata mokado de la sinteno kaj maniero de policanoj. La arlekeno saltis sur lin kaj frapegis lin surkaske, la fortepianisto dumtempe ludanta ”De kie ĉapelon vian akiris vi?”; li sin turnis kun admirinde ŝajniga mirego kaj tiam frapegis lin denove la arlekeno (la fortepianisto sugestante kelkajn taktarojn de ”Kaj tiam ni plian ricevis”). Tiam la arlekeno kuregis rekte en la brakojn de la policano kaj falis planken sur lin meze de aplaŭda bruego. Estis tiam, ke la fremda aktoro prezentis tiun famkonatan imiton de mortinta viro, kies famo ankoraŭ daŭras en Putney. Estis preskaŭ neeble kredi, ke vivanta homo povus aspekti tiel malrigida. La atleta arlekeno svingis lin tien ĉi kiel sakon, aŭ tordis lin kaj levis lin kiel hindan klabon; dum la tuta tempo laŭ la plej frenezige ridindaj arioj de la fortepiano. Kiam la arlekeno peze levis la komikan policanon de la planko, la klaŭ-
+”La Piratoj de Penzance”; ĝi dronis tamen en la surdiga aplaŭdo, ĉar ĉiu gesto de la fama komika aktoro estis admirinda sed detenata mokado de la sinteno kaj maniero de policanoj. La arlekeno saltis sur lin kaj frapegis lin surkaske, la fortepianisto dumtempe ludanta ”De kie ĉapelon vian akiris vi?”; li sin turnis kun admirinde ŝajniga mirego kaj tiam frapegis lin denove la arlekeno (la fortepianisto sugestante kelkajn taktarojn de ”Kaj tiam ni plian ricevis”). Tiam la arlekeno kuregis rekte en la brakojn de la policano kaj falis planken sur lin meze de aplaŭda bruego. Estis tiam, ke la fremda aktoro prezentis tiun famkonatan imiton de mortinta viro, kies famo ankoraŭ daŭras en Putney. Estis preskaŭ neeble kredi, ke vivanta homo povus aspekti tiel malrigida. La atleta arlekeno svingis lin tien ĉi kiel sakon, aŭ tordis lin kaj levis lin kiel hindan klabon; dum la tuta tempo laŭ la plej frenezige ridindaj arioj de la fortepiano. Kiam la arlekeno peze levis la komikan policanon de la planko, la klaŭno ludis ”Mi leviĝas post sonĝoj pri vi”. Kiam li tiris lin sur sian dorson, ”Mia pakaĵo surŝultre,” kaj kiam fine la arlekeno lasis defali la policanon kun treege konvinkiga falfrapo, la frenezulo ĉe la instrumento elfrapis tintantan takton kun, kelkaj vortoj, kiuj estis, kiel oni ankoraŭ kredas, ”Mi sendis leteron al amatino mia, sed survoje mi lasis ĝin fali.”
 
-no ludis ”Mi leviĝas post sonĝoj pri vi”. Kiam li tiris lin sur sian dorson, ”Mia pakaĵo surŝultre,” kaj kiam fine la arlekeno lasis defali la policanon kun treege konvinkiga falfrapo, la frenezulo ĉe la instrumento elfrapis tintantan takton kun, kelkaj vortoj, kiuj estis, kiel oni ankoraŭ kredas, ”Mi sendis leteron al amatino mia, sed survoje mi lasis ĝin fali.”
-
-Je tiu ĉi limo de mensa anarkio la vidado de Pastro Brown fariĝis tute barita; ĉar la magnato el la ”City”[1] antaŭ li leviĝis plenalte kaj enŝovis la manojn sovaĝe en ĉiujn siajn poŝojn. Tiam li sidiĝis nerveme ankoraŭ fuŝpalpante kaj tiam denove ekstaris. Dum momento ŝajnis vere kredeble, ke li estas transpaŝonta trans la planklumojn; 83
-
-L A N A I V E CO D E PA ST RO B ROW N
+Je tiu ĉi limo de mensa anarkio la vidado de Pastro Brown fariĝis tute barita; ĉar la magnato el la ”City”[1] antaŭ li leviĝis plenalte kaj enŝovis la manojn sovaĝe en ĉiujn siajn poŝojn. Tiam li sidiĝis nerveme ankoraŭ fuŝpalpante kaj tiam denove ekstaris. Dum momento ŝajnis vere kredeble, ke li estas transpaŝonta trans la planklumojn;
 
 
 tiam li turnis bruligan rigardegon al la klaŭno ludanta la fortepianon; kaj tiam li rapidis silente el la ĉambro.
@@ -1493,12 +1215,7 @@ Li sekvis la alvokinton kun plifortiĝanta dubo, kiun ne forpelis la solena komi
 
 ”Nenio tia estos sugestata,” diris Kolonelo Adams kun malcedema ekrigardo al Fischer, kio iomete malkaŝis ke io ja estis sugesti-ta. ”Mi petas nur, ke vi donu al mi la helpon, kiun ĉiu sinjoro povus doni.”
 
-”Kio estos, malplenigi la poŝojn.” diris Pastro Brown kaj komen-84
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-cis tion fari, vidigante sep ŝilingojn kaj ses pencojn, reiran vojaĝ-
+”Kio estos, malplenigi la poŝojn.” diris Pastro Brown kaj komencis tion fari, vidigante sep ŝilingojn kaj ses pencojn, reiran vojaĝ-
 
 karton, malgrandan arĝentan krucifikson, malgrandan brevieron, kaj pecon de ĉokolado.
 
@@ -1522,18 +1239,14 @@ Pastro Brown lasis defali sian libron kaj staris rigardegante kun mieno de nigra
 
 ”Pardonon mi petas, kolonelo, sed kiam mortis via edzino?
 
-”Mia edzino” respondis la rigardeganta soldato, ”ŝi mortis antaŭ 85
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Mia edzino” respondis la rigardeganta soldato, ”ŝi mortis antaŭ
 
 
 dek monatoj. ŝia frato James alvenis ĝuste unu semajnon tro malfrue por ŝin vidi.”
 
 La malgranda pastro eksaltis kiel trapafita kuniklo. ”Rapidu! Ni devas iri kaj ekzameni tiun policanon.”
 
-Ili kuregis sur la nuntempe kurtenitan scenejon, sin puŝante mal-
-
-ĝentile inter la kolombinon kaj klaŭnon (kiuj ŝajne tute kontente interflustradis), kaj Pastro Brown kurbiĝis super la sternita komika policano.
+Ili kuregis sur la nuntempe kurtenitan scenejon, sin puŝante malĝentile inter la kolombinon kaj klaŭnon (kiuj ŝajne tute kontente interflustradis), kaj Pastro Brown kurbiĝis super la sternita komika policano.
 
 ”Kloroformo,” li diris, leviĝante; ”Mi nur ĵus divenis tion.”
 
@@ -1545,9 +1258,7 @@ Pastro Brown subite kriegis pro ridado, tiam ĉesis kaj nun luktadis kantraŭ ĝ
 
 ”Vera policano,” diris Pastro Brown kaj forkuris en la mallumon.
 
-Troviĝis kavaĵoj kaj laŭboj ĉe la plej malproksima parto de tiu foliplena ĝardeno, en kiuj la laŭroj kaj aliaj senmortaj arbustoj sin montris kontraŭ ĉielo safira kaj luno arĝenta; eĉ dum tia mezvintro, varmaj koloroj estis tie kvazaŭ de la sudo. La verda gajeco de la sin svingantaj laŭroj, la forta purpura indigoto de la nokto, la luno kiel monstra kristalo, faras preskaŭ senrespondece romantikan bildon; kaj inter la plej altaj branĉoj de la ĝardenaj arboj grimpas stranga figuro, kiu aspektas ne tiom romantika kiom neebla. Li bri-letadas de la kapo ĝis la kalkanoj kvazaŭ vestita de dek milionoj da lunetoj; la vera luno respeguliĝas de li je ĉiu movo kaj bruligas de 86
-
-L A N A I V E CO D E PA ST RO B ROW N
+Troviĝis kavaĵoj kaj laŭboj ĉe la plej malproksima parto de tiu foliplena ĝardeno, en kiuj la laŭroj kaj aliaj senmortaj arbustoj sin montris kontraŭ ĉielo safira kaj luno arĝenta; eĉ dum tia mezvintro, varmaj koloroj estis tie kvazaŭ de la sudo. La verda gajeco de la sin svingantaj laŭroj, la forta purpura indigoto de la nokto, la luno kiel monstra kristalo, faras preskaŭ senrespondece romantikan bildon; kaj inter la plej altaj branĉoj de la ĝardenaj arboj grimpas stranga figuro, kiu aspektas ne tiom romantika kiom neebla. Li bri-letadas de la kapo ĝis la kalkanoj kvazaŭ vestita de dek milionoj da lunetoj; la vera luno respeguliĝas de li je ĉiu movo kaj bruligas de
 
 
 li ĉiun colon. Sed li svingiĝas, elbrilanta kaj sukcesplena, de la malalta arbo en tiu ĉi ĝardeno al la alta dise kreskinta arbo en la alia, kaj nur haltas tie, ĉar ombro estas glitinta sub la pli malgrandan arbon kaj estas klare lin alvokinta.
@@ -1560,9 +1271,7 @@ La arĝenta briletanta figuro supre, ŝajne kurbiĝas antaŭen inter la laŭroj 
 
 La arĝenta figuro inter la verdaj folioj ŝajne hezitadas kvazaŭ hipnotigita, kvankam restas malantaŭ li facila forkuro; li rigardegas la viron sube.
 
-”Ho jes,” diras la viro sube, ”Mi ĉion scias pri tio. Mi scias, ke vi ne nur okazigis la pantomimon sed uzis ĝin por du celoj. Vi intencis forŝteli la ŝtonojn senbrue; venis novaĵo per kunkrimulo, ke vi estas jam suspektata kaj ke alvenas kapabla policoficiro por vin elserĉi tiun saman nokton. Ordinara ŝtelisto estus dankema pro la averto kaj forkurus; sed vi estas poeto. Vi jam havis la lertan ideon kaŝi la juvelojn inter la brilego de falsaj scenejaj juveloj. Nu, vi ekkomprenis, ke se la vestoj estos arlekenaj, la apero de policano estos tute en bona ordo. La inda oficiro eliris de la policejo en Putney 87
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Ho jes,” diras la viro sube, ”Mi ĉion scias pri tio. Mi scias, ke vi ne nur okazigis la pantomimon sed uzis ĝin por du celoj. Vi intencis forŝteli la ŝtonojn senbrue; venis novaĵo per kunkrimulo, ke vi estas jam suspektata kaj ke alvenas kapabla policoficiro por vin elserĉi tiun saman nokton. Ordinara ŝtelisto estus dankema pro la averto kaj forkurus; sed vi estas poeto. Vi jam havis la lertan ideon kaŝi la juvelojn inter la brilego de falsaj scenejaj juveloj. Nu, vi ekkomprenis, ke se la vestoj estos arlekenaj, la apero de policano estos tute en bona ordo. La inda oficiro eliris de la policejo en Putney
 
 
 por vin eltrovi kaj marŝis en la plej strangan kaptilon iam metitan en la mondo. Kiam malfermiĝis la antaŭaj pordoj li marŝis rekte sur la scenejon de Knistnaska pantomimo, kie li povus esti piedbatata, klabata, senkonsciigata kaj drogata de la dancanta arlekeno, inter la ridegoj de ĉiuj plej respektindaj homoj de Putney. Ho, neniam vi faros ion pli bone. Kaj nun, cetere, vi povas redoni al mi tiujn diamantojn.”
@@ -1571,9 +1280,7 @@ La verda branĉo sur kiu svingiĝis la briletanta figuro, sursuris kvazaŭ de mi
 
 ”Mi deziras, ke vi redonu ilin, Flambeau, kaj mi deziras, ke vi forlasu tian ĉi metion. Restas ankoraŭ en vi juneco kaj honoro kaj humoro; ne imagu al vi, ke ili daŭros en tiu metio. Homoj povas elteni ian nivelon de boneco, sed neniu homo iam povis elteni sur unu nivelo de malboneco. Tiu vojo iras malsupren kaj malsupren.
 
-Viro bonanima drinkas kaj fariĝas kruela; malkaŝema viro mortigas kaj pri tio mensogas. Multaj viroj konitaj de mi komenciĝis kiel vi, kiel honestaj proskripciitoj, gajaj rabistoj de la riĉuloj kaj finiĝis piedbatitaj en la koton. Maurice Blum ekiris kiel anarkiisto de principo, patro de al malriĉuloj; li finiĝis grasa spionisto kaj denuncis-to, kiun uzis ambaŭ partioj kaj malestimis. Harry Burke fondis sian movadon por libera mono, sufiĉe sincere; nuntempe li parazitas sur duone malsatigata fratino por senfinaj konjakoj kaj sodakvoj. Lordo Amber eniris la troliberan societan mondon kun ia kavalireco; nuntempe li pagas ĉantaĝon al la plej malestimindaj vulturoj en Londono. Kapitano Barillon estis la granda sinjoro-rabisto antaŭ via tempo; li mortis en frenezulejo, kriegante pro timo de la ŝtelistpe-rantoj kaj ricevistoj, kiuj lin estis perfidintaj kaj postĉasintaj ĝismor-te. . . . Mi scias, ke la arbaroj ŝajnas tre liberaj malantaŭ vi, Flambeau; mi scias, ke ekbrile vi povus malaperi en ilin kiel simio. Sed iun tagon vi estos maljuna, griza simio, Flambeau. Vi sidos alte en 88
-
-L A N A I V E CO D E PA ST RO B ROW N
+Viro bonanima drinkas kaj fariĝas kruela; malkaŝema viro mortigas kaj pri tio mensogas. Multaj viroj konitaj de mi komenciĝis kiel vi, kiel honestaj proskripciitoj, gajaj rabistoj de la riĉuloj kaj finiĝis piedbatitaj en la koton. Maurice Blum ekiris kiel anarkiisto de principo, patro de al malriĉuloj; li finiĝis grasa spionisto kaj denuncis-to, kiun uzis ambaŭ partioj kaj malestimis. Harry Burke fondis sian movadon por libera mono, sufiĉe sincere; nuntempe li parazitas sur duone malsatigata fratino por senfinaj konjakoj kaj sodakvoj. Lordo Amber eniris la troliberan societan mondon kun ia kavalireco; nuntempe li pagas ĉantaĝon al la plej malestimindaj vulturoj en Londono. Kapitano Barillon estis la granda sinjoro-rabisto antaŭ via tempo; li mortis en frenezulejo, kriegante pro timo de la ŝtelistpe-rantoj kaj ricevistoj, kiuj lin estis perfidintaj kaj postĉasintaj ĝismor-te. . . . Mi scias, ke la arbaroj ŝajnas tre liberaj malantaŭ vi, Flambeau; mi scias, ke ekbrile vi povus malaperi en ilin kiel simio. Sed iun tagon vi estos maljuna, griza simio, Flambeau. Vi sidos alte en
 
 
 via libera arbaro, malvarma ĉe la koro kaj apud la morto, kaj la arbpintoj estos tre nudaj.”
@@ -1591,21 +1298,13 @@ Tri brilantaj diamantoj falis de la arbo al la herbo. La malgranda viro kliniĝi
 La redono de la gemoj (hazarde trovitaj de Pastro Brown—kia surprizo, ke li el ĉiu) finis la vesperon kun ridega triumfo; kaj Sir Leopold, je la plej alta nivelo de sia bonanimeco, eĉ diris al la pastro, ke, kvankam li mem havas pli ampleksajn opinjoin, li povas respekti tiujn kies kredo devigas al ili esti for-klostrataj kaj sen scio pri tiu ĉi mondo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA NEVIDEBLA VIRO
 
 En la malvarma blua krepusko de du krutaj stratoj en la Londona kvartalo Camden Town, la butiko ĉe angulo, sukeraĵejo, brilis kiel la fajneto ĉe l’fino de cigaro. Eble oni devus pli ĝuste diri, kiel la fino de piroteknikaĵo, ĉar la lumo estis multkolora kaj iomete malsimpla, estante disrompita de multaj speguloj kaj saltanta sur multaj orumitaj kaj gajkoloraj kukoj kaj frandaĵoj. Antaŭ tiu ĉi fajra fenestro estis algluitaj la nazoj de multaj stratbubaĉoj, ĉar la ĉokoladoj estis ĉiuj envolvitaj en tiuj ruĝaj kaj oraj kaj verdaj metalaj koloroj, kiuj estas preskaŭ pli bonaj ol ĉokolado mem; kaj la grandega blanka edziĝkuko en la fenestro estis iel samtempe malproksima kaj kontentiga, ĝuste kvazaŭ la tuta Norda Poluso estus bona manĝaĵo. Tiaj ĉielarkaj incitoj povis nature kolektigi la junu-laron de la proksimeco ĝis la aĝo de dek aŭ dek du jaroj. Sed tiu ĉi angulo estis ankaŭ alloga por pli aĝaj junuloj; juna viro, de ne malpli ol dudek kvar jaroj, rigardegis en la saman butik-fenestron. Por li ankaŭ, la butiko estis fajre ĉarma, sed tiu ĉi allogo estis ne tute klarigebla per ĉokoladoj, kiujn tamen li tute ne malestimis.
 
 Li estis longa, dika, ruĝhara junulo, kun decidema vizaĝo sed malvigla maniero. Li portis subbrake ebenan, grizan paperujon plena je krajonskizoj, kiajn li estis vendintaj pli-malpli sukcese al eldo-nistoj post lia onklo (kiu estis admiralo) lin senheredigis pro soci-alismo, pro prelego donita de li kontraŭ tiu ekonomia teorio. Lia nomo estis John Turnbull Angus.
 
-Enirante fine, li marŝis tra la sukeraĵvendejo en malantaŭan ĉam-90
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-bron, kiu estis ia frandaĵ-restoracio, nun levante la ĉapelon al la juna fraŭlino, kiu tie servis lin. ŝi estis nigreta, eleganta, vigla knabino vestita nigre, kun forta vizaĝkoloro kaj tre viglaj, nigraj okuloj; post la kutima intertempo ŝi lin sekvis en la internan ĉambron por ricevi lian mendon.
+Enirante fine, li marŝis tra la sukeraĵvendejo en malantaŭan ĉambron, kiu estis ia frandaĵ-restoracio, nun levante la ĉapelon al la juna fraŭlino, kiu tie servis lin. ŝi estis nigreta, eleganta, vigla knabino vestita nigre, kun forta vizaĝkoloro kaj tre viglaj, nigraj okuloj; post la kutima intertempo ŝi lin sekvis en la internan ĉambron por ricevi lian mendon.
 
 Lia mendo estis evidente mendo kutima. ”Mi deziras, bonvolu,”
 
@@ -1627,9 +1326,7 @@ La nigretulino estis neniam forpreninta de li siajn nigrajn okulojn, sed ŝajnis
 
 La nigretulino leviĝis el sia seĝo kaj marŝis al la fenestro evidente en stato de forta sed ne malsimpatia pensado. Kiam fine ŝi sin ekturnis denove kun mieno decidoplena, ŝi konfuziĝis ekvidante, ke la junulo jam zorge aranĝis sur la tablo diversajn objektojn el la butikfenestro. Inter tiuj ĉi estis piramido da helkoloritaj sukeraĵoj, kelkaj teleroj da sandviĉoj kaj la du karafoj enhavantaj tiun mister-an portovinon kaj ŝereon kiuj estas la propraĵo de pastaĵkuiristoj.
 
-Mezen de tiu ĉi bonordigita aranĝaĵo li zorge demetis la grandegan 91
-
-L A N A I V E CO D E PA ST RO B ROW N
+Mezen de tiu ĉi bonordigita aranĝaĵo li zorge demetis la grandegan
 
 
 ŝarĝon de blanka sukerkovrita kuko, kiu estis la ĉefornamaĵo de l’fenestro.
@@ -1663,18 +1360,11 @@ La knabino alpaŝis al tiu objekto, forprenis ĝin kun iom da kla-kado, kaj reme
 ”Tiaokaze,” diris la viro serioze, ”mi proponus ke vi reportu la kukon.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Nu, antaŭ ol tio vi devas aŭskulti mian rakonton,” diris Laura persisteme. ”Komence, mi devas klarigi al vi, ke mia patro posedis la gastejon nomitan ‘La Ruĝa Fiŝo’, en Ludbury, kaj mi servis ĉe la trinktabulo.”
 
 ”Mi ofte scivolis,” li diris, ”kial troviĝas speco de Kristana etoso en tiu ĉi sola sukeraĵejo.”
 
-”Ludbury estas dormema urbetaĉo en la orientaj graflandoj, kaj la solaj homoj kiuj iam alvenis al ‘La Ruĝa Fiŝo’ estis komercaj voja-
-
-ĝistoj de tempo al tempo, kaj la aliaj estis la plej teruraj homoj ie videblaj, sed vi iun neniam vidis. Mi volas diri, malgrandaj senoku-puloj, vestitaj en malbonaj vestaĵoj kiuj estis tro bonaj por ili, kiuj posedis nur sufiĉe por vivadi, kaj havis nenion por fari krom sin apogi al la trinktabulo kaj vetadi pri ĉevaloj. Eĉ tiuj ĉi mizeraj sentaŭguloj ne estis tre oftaj ĉe nia domo; estis tamen du, kiuj estis multe tro oftaj—ĉiel tro oftaĉaj. Ili ambaŭ vivadis per sia propra mono kaj ili estis tede senokupaj kaj tro-vestitaj. Tamen mi ankoraŭ iomete kompatis ilin, ĉar mi duone kredas, ke ili kaŝeniris en nian malplenan trinkejon ĉar ili ambaŭ havis malgrandan misformaĵon, tia kian iuj kamparanoj mokridas. Tamen ne estis ĝuste misformaĵo; pliĝuste ĝi estis strangeco. Unu el ili estis mirige mallonga viro, kiel nano aŭ almenaŭ kiel ĵokeo. Li estis tute ne ĵokea laŭ aspekto tamen; li havis sferan nigran kapon kaj bone tonditan barbon, helajn okulojn kiel birdaj; li tintadigis monon en la poŝoj; li tintadigis dikan oran ĉeneton; kaj li neniam aperis se ne vestita ĝuste tro sinjorece por esti sinjoro. Li tamen estis nenia stultulo, kvankam vana mallaboremulo; li estis strange lerta pri ĉiaj aferoj, kiaj ja neniam povus iel utili; speco de improvizita ĵonglado; kaŭzi ke dek kvin alumetoj ekbruligu unu la alian kiel vera piroteknikaĵo; tranĉi ba-nanon aŭ ion alian kaj fari el ĝi dancpupon. Ties nomo estis Isido-93
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Ludbury estas dormema urbetaĉo en la orientaj graflandoj, kaj la solaj homoj kiuj iam alvenis al ‘La Ruĝa Fiŝo’ estis komercaj vojaĝistoj de tempo al tempo, kaj la aliaj estis la plej teruraj homoj ie videblaj, sed vi iun neniam vidis. Mi volas diri, malgrandaj senoku-puloj, vestitaj en malbonaj vestaĵoj kiuj estis tro bonaj por ili, kiuj posedis nur sufiĉe por vivadi, kaj havis nenion por fari krom sin apogi al la trinktabulo kaj vetadi pri ĉevaloj. Eĉ tiuj ĉi mizeraj sentaŭguloj ne estis tre oftaj ĉe nia domo; estis tamen du, kiuj estis multe tro oftaj—ĉiel tro oftaĉaj. Ili ambaŭ vivadis per sia propra mono kaj ili estis tede senokupaj kaj tro-vestitaj. Tamen mi ankoraŭ iomete kompatis ilin, ĉar mi duone kredas, ke ili kaŝeniris en nian malplenan trinkejon ĉar ili ambaŭ havis malgrandan misformaĵon, tia kian iuj kamparanoj mokridas. Tamen ne estis ĝuste misformaĵo; pliĝuste ĝi estis strangeco. Unu el ili estis mirige mallonga viro, kiel nano aŭ almenaŭ kiel ĵokeo. Li estis tute ne ĵokea laŭ aspekto tamen; li havis sferan nigran kapon kaj bone tonditan barbon, helajn okulojn kiel birdaj; li tintadigis monon en la poŝoj; li tintadigis dikan oran ĉeneton; kaj li neniam aperis se ne vestita ĝuste tro sinjorece por esti sinjoro. Li tamen estis nenia stultulo, kvankam vana mallaboremulo; li estis strange lerta pri ĉiaj aferoj, kiaj ja neniam povus iel utili; speco de improvizita ĵonglado; kaŭzi ke dek kvin alumetoj ekbruligu unu la alian kiel vera piroteknikaĵo; tranĉi ba-nanon aŭ ion alian kaj fari el ĝi dancpupon. Ties nomo estis Isido-93
 
 
 re Smythe; mi povas lin ankoraŭ vidi, kun lia nigreta vizaĝo, alvenanta al la tabulo kaj faranta saltantan kanguruon el kvin cigaroj.
@@ -1690,9 +1380,6 @@ Unue mi ekaŭdis, ke ili ambaŭ estas foririntaj por serĉi fortunon, kvazaŭ il
 ”Nu, nek unu nek la alian mi vidis de tiu tago ĝis nun. Sed mi ricevis de la malgranda viro nomita Smythe, du leterojn, kaj vere ili estis iome ekscitigaj.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”ĉu iam vi priaŭdis la alian?” demandis Angus.
 
 ”Ne, li neniam skribis,” diris la knabino post mallonga hezito.
@@ -1705,9 +1392,7 @@ La viro nomita Angus malplenigis sian kaftason kaj rigardis ŝin per mildaj kaj 
 
 ”Kaj la alia viro?” rediris Angus kun ia obstina trankvileco.
 
-Laura Hope subite ekstaris. ”Mia amiko,” ŝi diris, ”Mi kredas, ke vi estas sorĉisto. Jes, vi tute pravas. Mi ne estas vidinta eĉ linion de ties skribaĵo; mi ne havas ideon pli ol la mortintoj pri kie ajn li troviĝas. Sed estas pro li, ke mi timas. Estas li, kiu ĉirkaŭas mian tutan 95
-
-L A N A I V E CO D E PA ST RO B ROW N
+Laura Hope subite ekstaris. ”Mia amiko,” ŝi diris, ”Mi kredas, ke vi estas sorĉisto. Jes, vi tute pravas. Mi ne estas vidinta eĉ linion de ties skribaĵo; mi ne havas ideon pli ol la mortintoj pri kie ajn li troviĝas. Sed estas pro li, ke mi timas. Estas li, kiu ĉirkaŭas mian tutan
 
 
 vivon. Estas li, kiu duone frenezigis min; ĉar mi lin sentis, kie li ne povis esti, kaj mi aŭdis lian voĉon kiam li ne povis esti parolinta.”
@@ -1731,9 +1416,6 @@ Estas terure; mi kredas, ke mi estas nepre freneza.”
 Eĉ dum li parolis, okazis ŝtala krio en la strato ekstere, kaj malgranda aŭto veturigata je speco de diabla rapideco, sin pafis ĝis la enirejo de l’butiko kaj tie fiksiĝis. En la sama tempo malalta viro kun brilanta cilindro-ĉapelo staris piedbatante la plankon en la ekstera ĉambro.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Angus, kiu ĝisnune estis sinteninta kun ridema facileco pro cerb-higienaj motivoj, malkaŝis la streĉon de sia animo, paŝante abrupte el la interna ĉambro kaj kontraŭstarante la ĵusalveninton. Ekrigardo al li sufiĉis por subteni la duonfrenezan divenadon de viro amanta. Tiu ĉi tre eleganteta sed nana figuro, kun pinto el nigra barbharo, impertinente antaŭenŝovita, la lertaj malkvietaj okuloj, la netaj sed nervemaj fingroj, povis esti neniuj aliaj krom de la ĵus priskribita viro; Isidore Smythe, kiu faris pupojn el bananŝeloj kaj alumetujoj; Isidore Smythe, kiu faris milionojn per nedrinkemaj servistoj kaj neflirtemaj servistinoj metalaj. Dum unu momento ambaŭ viroj, komprenante instinkte la posedvolan mienon unu de la alia, rigardegis unu la alian kun tiu stranga malarda bonkoreco, kiu estas la vera animo de rivaleco.
 
 Sinjoro Smythe tamen tute ne aludis al la vera kaŭzo de ilia mal-amikeco, sed diris simple kaj eksplode. ”ĉu fraŭlino Hope estas tion vidinta sur la fenestro-vitro?”
@@ -1746,12 +1428,7 @@ Li indikis per sia polurita bastono la fenestron ĵus malplenigita pro la edziĝ
 
 ”Laura,” diris Angus, enŝovante la grandan ruĝan kapon en la butikon, ”Vi ne estas freneza.”
 
-”Estas la skribaĵo de tiu fripono Welkin,” diris Smythe malafa-97
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ble. ”Mi ne vidis lin dum jaroj sed li konstante ĝenas min. Kvin fojojn en la lastaj du semajnoj li postlasigis ĉe mia apartamento minacajn leterojn, kaj mi eĉ ne povas eltrovi kiu postlasas ilin, kaj tute ne, se estas Welkin mem. La pordisto de la apartamenta domo ĵuras ke neniuj suspektindaj personoj estas viditaj, kaj jen li estas al-gluinta borderon al la fenestro de publika butiko, dum la personoj en la butiko. . . .”
+”Estas la skribaĵo de tiu fripono Welkin,” diris Smythe malafable. ”Mi ne vidis lin dum jaroj sed li konstante ĝenas min. Kvin fojojn en la lastaj du semajnoj li postlasigis ĉe mia apartamento minacajn leterojn, kaj mi eĉ ne povas eltrovi kiu postlasas ilin, kaj tute ne, se estas Welkin mem. La pordisto de la apartamenta domo ĵuras ke neniuj suspektindaj personoj estas viditaj, kaj jen li estas al-gluinta borderon al la fenestro de publika butiko, dum la personoj en la butiko. . . .”
 
 ”Jes tute,” diris Angus modeste, ”dum la personoj en la butiko temanĝis. Nu, sinjono, mi povas certigi al vi, ke mi estimas vian prudentecon tiel rekte pritrakti la aferon. Ni povos priparoli aliajn aferojn pli poste. La fripono ne povas esti jam malproksima, ĉar mi ĵuras, ke estis tie nenia papero kiam mi lastfoje iris al la fenestro, antaŭ dek aŭ dekkvin minutoj. Aliflanke, li estas tro malproksima por esti ĉasata, ĉar ni ne scias la direkton. Se vi sekvos mian kon-silon, Sinjoro Smythe, vi tuj transdonos tion ĉi al iu energiplena enketisto, privata prefere ol publika. Mi konas viron treege lertan, kiu havas oficejon kvin minutojn de tie ĉi per via aŭto. Lia nomo estas Flambeau, kaj kvankam lia juneco estis iomete tumulta tamen nun li estas rigide honesta viro kaj liaj kapablecoj valoras monon.
 
@@ -1761,12 +1438,7 @@ Li loĝas en Lucknow Apartmentejo, Hampstead.”
 
 ”Vi estas tre afabla,” diris Angus ĝentile, ”Nu, ju pli baldaŭ ni agu, des pli bone.”
 
-Ambaŭ viroj, kun stranga speco de improvizita justeco, same formale adiaŭis la fraŭlinon kaj ambaŭ ensaltis en la rapidan aŭteton. Dum Smythe prenis la gvidilojn kaj ili ĉirkaŭiris la longan stra-98
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-tangulon, Angus amuziĝis vidante gigantan reklamon pri ”Smythe Silenta Servado”, kun bildo de grandega senkapa fera pupo, portante kaserolon kun la noto, ”Kuiristino Kiu neniam Koleretas.”
+Ambaŭ viroj, kun stranga speco de improvizita justeco, same formale adiaŭis la fraŭlinon kaj ambaŭ ensaltis en la rapidan aŭteton. Dum Smythe prenis la gvidilojn kaj ili ĉirkaŭiris la longan stratangulon, Angus amuziĝis vidante gigantan reklamon pri ”Smythe Silenta Servado”, kun bildo de grandega senkapa fera pupo, portante kaserolon kun la noto, ”Kuiristino Kiu neniam Koleretas.”
 
 ”Mi uzas ilin en mia propra apartamento,” diris la malgranda nigrabarbulo, ridante, ”parte kiel reklamon kaj parte pro vera oportuneco. Honeste kaj malkaŝe, tiuj grandaj risortpupoj miaj efektive alportas karbon aŭ bordovinon aŭ hortabelon pli rapide ol iuj ajn vivantaj servistoj iam konataj de mi, se vi konas la premendan tuberon. Sed mi neniam neos, inter ni, ke tiaj servistoj donas malopor-tunojn ankaŭ.”
 
@@ -1776,9 +1448,7 @@ tangulon, Angus amuziĝis vidante gigantan reklamon pri ”Smythe Silenta Servad
 
 Lia aŭto estis malgranda kaj rapida kiel li mem; efektive, kiel lia mastrumada servico, ĝi estis lia propra eltrovaĵo. Se li estis reklame-ma ĉarlatano, li estis tia, kia fidis al siaj propraj varoj. La koncepto pri io malgrandega kaj fluganta estis pli emfazata dum ili kurbiĝis laŭ longaj blankaj kurbvojoj en la senviva sed larĝa vespera taglumo. Baldaŭ la blankaj kurbaĵoj fariĝis pli abruptaj kaj pli kapturnigaj; ili estis sur suprenirantaj spiraloj, kiel oni diras en la modernaj religioj. ĉar efektive ili estis grimpantaj angulon de Londono, kiu estas preskaŭ tiel kruta kiel Edinburgo, eĉ se ne tiel pitoreska.
 
-Teraso leviĝis super teraso kaj la aparta apartament-turo, kiun ili serĉis, superstaris ilin ĉiujn en preskaŭ egipta alteco, orumata de la horizontala sunsubiro. La ŝanĝo, dum ili ĉirkaŭiris la angulon kaj eniris la kresenton nomita Himilaya apartamentejo, estis tiel abrupta kiel la ekmalfermo de fenestro; ĉar ili trovis tiun apartamentan amason sidanta super Londono kvazaŭ super verda maro el ardezo. Kontraŭ la domegoj, aliflanke de la gruza kresento, troviĝis arbusta enfermaĵo, pli simila al kruta heĝo aŭ digo ol al ĝardeno, kaj 99
-
-L A N A I V E CO D E PA ST RO B ROW N
+Teraso leviĝis super teraso kaj la aparta apartament-turo, kiun ili serĉis, superstaris ilin ĉiujn en preskaŭ egipta alteco, orumata de la horizontala sunsubiro. La ŝanĝo, dum ili ĉirkaŭiris la angulon kaj eniris la kresenton nomita Himilaya apartamentejo, estis tiel abrupta kiel la ekmalfermo de fenestro; ĉar ili trovis tiun apartamentan amason sidanta super Londono kvazaŭ super verda maro el ardezo. Kontraŭ la domegoj, aliflanke de la gruza kresento, troviĝis arbusta enfermaĵo, pli simila al kruta heĝo aŭ digo ol al ĝardeno, kaj
 
 
 iomete pli malsupre de tio estis strio da artefarita akvo, ia kanalo, kiel ĉirkaŭfosaĵo por tiu enlaŭbigita fortikejo. Dum la aŭto ĉirkaŭiris la kresenton ĝi pasis, ĉe unu angulo, la hazardan ĉaron de kaŝtanvendisto; kaj malproksime ĉe la alia fino de la kurbaĵo, Angus povis vidi malklaran bluan policanon malrapide marŝanta. Tiuj ĉi estis la solaj homaj figuroj en tiu alta antaŭurba soleco; sed li havis neracian senton, ke ili esprimas la senvortan poezion de Londono. Li sentis kvazaŭ ili estas la karakteroj de rakonto.
@@ -1789,9 +1459,7 @@ La malgranda aŭto ekalvenis ĝuste ĝis la ĝusta domo kiel kuglo, kaj elŝutis
 
 i donis eniron al longa, spaca, antaŭĉambro, en kiu la solaj atentigaj detaloj, ordinare paroli, estis la vicoj de altaj duon-homaj mekanismaj figuroj kiuj staris ambaŭflanke kiel tajloraj modeloj.
 
-Kiel tajloraj modeloj ili ankaŭ estis senkapaj; kiel tajloraj modeloj ili havis belegan nenecesan ĝibemon ŝultre, kaj kolombo-brustan elstaraĵon torake; sed krom tio ili ne plimulte similis al homa figuro ol iu ajn aŭtomata maŝino en stacidomo, kiu havas proksimume homan altecon. Ili havis du grandajn hoksimihajn brakojn por la portado de pletoj; kaj ili estis pizvende koloritaj aŭ punce aŭ nigre por distinga oportuneco; ĉiel krome ili estis nun aŭtomataj maŝinoj kaj neniu estus ilin dufojojn rigardinta. ĉi foje almenaŭ efektive 100
-
-L A N A I V E CO D E PA ST RO B ROW N
+Kiel tajloraj modeloj ili ankaŭ estis senkapaj; kiel tajloraj modeloj ili havis belegan nenecesan ĝibemon ŝultre, kaj kolombo-brustan elstaraĵon torake; sed krom tio ili ne plimulte similis al homa figuro ol iu ajn aŭtomata maŝino en stacidomo, kiu havas proksimume homan altecon. Ili havis du grandajn hoksimihajn brakojn por la portado de pletoj; kaj ili estis pizvende koloritaj aŭ punce aŭ nigre por distinga oportuneco; ĉiel krome ili estis nun aŭtomataj maŝinoj kaj neniu estus ilin dufojojn rigardinta. ĉi foje almenaŭ efektive
 
 
 neniu tion faris. ĉar inter la du vicoj de tiuj ĉi mastrumadaj figuraĵoj kuŝis io multe pli interesa ol la plejparto da mekanismoj en la tuta mondo. Tio estis blanka, ĉifonita peco da papero kun ruĝinka skribaĵaĉo; la facilmovema inventisto estis ĝin ekpreninta preskaŭ tuj kiam la pordo malfermiĝis. Li transdonis ĝin al Angus senvorte. La ruĝa sur ĝi estis efektive apenaŭ sekiĝinta kaj la mesaĝo estis:
@@ -1812,9 +1480,7 @@ Ses ŝtupojn sub la interŝtupara plataĵo de Smythe, la viro en la ĉemizo esti
 
 ĝin observadi; kaj fine paŭzis momento por aĉeti kaŝtanojn por unu penco, kaj por fari demandon pri la kredebla daŭro de la ĉeesto de la komercisto en la distrikto.
 
-La kaŝtanvendisto, levante la kolumon de sia surtuto, diris ke 101
-
-L A N A I V E CO D E PA ST RO B ROW N
+La kaŝtanvendisto, levante la kolumon de sia surtuto, diris ke
 
 
 kredeble li baldaŭ formoviĝos, ĉar li kredas, ke post nelonge ek-neĝos. Efektive la vespero estis fariĝanta griza kaj mordante malvarma, sed Angus, per la tuto de sia elokventeco, poste sukcesis fiksi la viron al lia posteno.
@@ -1825,18 +1491,13 @@ Li tiam energie marŝis for, kun lasta ekrigardo al la sieĝata turo.
 
 ”Almenaŭ mi estas ĉirkaŭinta tiun ĉambron,” li diris. ”Ne povas esti, ke ĉiuj kvar el ili estu kunuloj de sinjoro Welkin.”
 
-Lucknow apartamentejo estis, tiel diri, sur pli malalta plataĵo de tiu monteto el domoj, de kiu oni povus nomi Himilaya apartamen-tejon la pinto. La duon-oficiala apartamento de Flambeau troviĝis sur teretaĝo kaj prezentis ĉiurilate evidentan kontraston al la usona maŝinaro kaj malvarma, hotel-simila lukso de la apartamento de la Silenta Servado. Flambeau, kiu estis amiko de Angus, lin akceptis en rokoka artisteca ĉambro malantaŭ sia oficejo, en kiu la ornamaĵoj estis sabroj, arkebuzoj, orientaj kuriozaĵoj, flakonoj da italaj vinoj, sovaĝaj kuirpotoj, pluma persa kato, kaj malgranda kvazaŭ polvokovrita Romkatolika pastro, kiu ŝajnis esti en loko tute mal-
-
-ĝusta.
+Lucknow apartamentejo estis, tiel diri, sur pli malalta plataĵo de tiu monteto el domoj, de kiu oni povus nomi Himilaya apartamen-tejon la pinto. La duon-oficiala apartamento de Flambeau troviĝis sur teretaĝo kaj prezentis ĉiurilate evidentan kontraston al la usona maŝinaro kaj malvarma, hotel-simila lukso de la apartamento de la Silenta Servado. Flambeau, kiu estis amiko de Angus, lin akceptis en rokoka artisteca ĉambro malantaŭ sia oficejo, en kiu la ornamaĵoj estis sabroj, arkebuzoj, orientaj kuriozaĵoj, flakonoj da italaj vinoj, sovaĝaj kuirpotoj, pluma persa kato, kaj malgranda kvazaŭ polvokovrita Romkatolika pastro, kiu ŝajnis esti en loko tute malĝusta.
 
 ”Jen mia amiko Pastro Brown,” diris Flambeau. ”Mi ofte deziris ke vi lin renkontu. Bonega vetero tiu ĉi; iomete malvarma por su-danoj kiel mi.”
 
 ”Jes, mi opinias, ke restos bone,” diris Angus sidiĝante sur purpure striitan orientan divanon.
 
 ”Ne,” diris la pastro kviete, ”ĵus ekneĝis.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Kaj efektive dum li parolis, la kelkunuaj flokoj, antaŭviditaj de la kaŝtanviro, komencis bloviĝi preter la malheliĝanta fenestro.
@@ -1855,16 +1516,12 @@ Li nur diris, kun gaja maniero, kiel iu deziranta interparoladon,
 
 ”Kiom rapide la neĝo dikiĝas sur la tero.”
 
-Dum ili traserpentis la krutajn flankvojojn jam de neĝo pudritaj, Angus finis sian rakonton; kaj kiam ili atingis la kresenton kun la altstarantaj apartamentejoj, li havis sufiĉe da tempo por turni la atenton al la kvar gardantoj. La kaŝtanvendisto, kaj antaŭ kaj post la transdono de l’ormonero, obstine ĵuris, ke li estas observinta la 103
-
-L A N A I V E CO D E PA ST RO B ROW N
+Dum ili traserpentis la krutajn flankvojojn jam de neĝo pudritaj, Angus finis sian rakonton; kaj kiam ili atingis la kresenton kun la altstarantaj apartamentejoj, li havis sufiĉe da tempo por turni la atenton al la kvar gardantoj. La kaŝtanvendisto, kaj antaŭ kaj post la transdono de l’ormonero, obstine ĵuris, ke li estas observinta la
 
 
 pordon kaj vidinta neniun vizitanton eniri. La policano emfazis eĉ pli Li diris ke li estas sperta pri ĉiaj friponoj, en cilindroj kaj en ĉifonoj; li ne estas tiel ”verda”, ke li atendus, ke suspektinduloj ŝajnu suspektindaj; li observis por iu ajn, kaj ĉielo lin helpu, montriĝis neniu. Kaj kiam ĉiuj tri viroj kolektiĝis ĉirkaŭ la orumita pordisto, kiu ankoraŭ staris ridetanta, forkstarante en la pordego, la verdik-to estis eĉ pli definitiva.
 
-”Mi rajtas demandi al iu ajn, duko aŭ ruboportisto, kion li ser-
-
-ĉas en tiu ĉi konstruaĵo,” diris la afabla kaj orgalonita giganto, ”kaj mi ĵuros, ke neniu estas tie ĉi al kiu demandi, de kiam tiu ĉi sinjoro foriris.”
+”Mi rajtas demandi al iu ajn, duko aŭ ruboportisto, kion li serĉas en tiu ĉi konstruaĵo,” diris la afabla kaj orgalonita giganto, ”kaj mi ĵuros, ke neniu estas tie ĉi al kiu demandi, de kiam tiu ĉi sinjoro foriris.”
 
 La malgrava Pastro Brown, kiu staris malantaŭe, modeste rigardante la trotuaron, tiam kuraĝis diri humile, ”ĉu neniu do supren kaj malsupreniris la ŝtuparon de kiam la neĝo komencis defali? Komencis dum ni estis ĉiuj ĉe Flambeau.”
 
@@ -1878,16 +1535,12 @@ La aliaj ĉiuj ankaŭ malsupren rigardis; kaj Flambeau eligis furi-ozan ekkrion 
 
 Sen plua vorto li sin turnis kaj supren kuregis la ŝtuparon, kaj Flambeau sekvis; sed Pastro Brown ankoraŭ restis ĉirkaŭenrigardante sur la neĝkovrita strato, kvazaŭ li estus perdinta ĉiun intereson pri sia demando.
 
-Flambeau estis videble en humoro por disbati la pordon per sia 104
-
-L A N A I V E CO D E PA ST RO B ROW N
+Flambeau estis videble en humoro por disbati la pordon per sia
 
 
 granda ŝultro; sed la skoto, kun pli da racio, sed malpli da intuicio, palpis sur la pordokadro ĝis li trovis la nevideblan butonon; kaj la pordo malrapide malfermiĝis.
 
-Montriĝis esence sama densa internaĵo; la ĉambrego estis fari-
-
-ĝinta pli malluma, kvankam tie kaj tie ĉi ĝi estis trapikata de la lastaj puncaj sagoj de la sunsubiro kaj unu aŭ du el la senkapaj maŝinoj estis movitaj el siaj lokoj por tiu aŭ tiu ĉi celo, kaj ĉirkaŭstaris jen kaj jen en la krepuska ĉambro. La verdo kaj ruĝo de iliaj jakoj estis ĉie malheligtaj de la mallumo, kaj ilia simileco al homaj formoj iomete plifortiĝis ĝuste pro ilia senformeco. Sed en la mezo, inter ili ĉiuj, ĝuste kie kuŝis la papero kun la ruĝa , kuŝis io alia, tre simila al ruĝ verŝita el sia botelo. Sed tio ne estis ruĝ.
+Montriĝis esence sama densa internaĵo; la ĉambrego estis fariĝinta pli malluma, kvankam tie kaj tie ĉi ĝi estis trapikata de la lastaj puncaj sagoj de la sunsubiro kaj unu aŭ du el la senkapaj maŝinoj estis movitaj el siaj lokoj por tiu aŭ tiu ĉi celo, kaj ĉirkaŭstaris jen kaj jen en la krepuska ĉambro. La verdo kaj ruĝo de iliaj jakoj estis ĉie malheligtaj de la mallumo, kaj ilia simileco al homaj formoj iomete plifortiĝis ĝuste pro ilia senformeco. Sed en la mezo, inter ili ĉiuj, ĝuste kie kuŝis la papero kun la ruĝa , kuŝis io alia, tre simila al ruĝ verŝita el sia botelo. Sed tio ne estis ruĝ.
 
 Kun franca kombino de racio kaj perforto Flambeau nur diris,
 
@@ -1898,9 +1551,6 @@ Kun franca kombino de racio kaj perforto Flambeau nur diris,
 ”la murdanto ne estas nur nevidebla, sed li ankoraŭ nevidebligas la murditon.”
 
 Angus ĉirkaŭen rigardis al la malluma ĉambro plena je figuraĵoj, kaj en iu kelta angulo de lia skota animo ekiris tremeto. Unu el la homgrandaj pupoj staris ĝuste super la sangomakulo, alvokita eble de la mortigita viro tuj antaŭ ol li falis. Unu el la ŝultroaltaj hokoj, kiuj utilis al la estaĵo kiel brakoj, estis iomete levita, kaj subite Angus naŭze imagis, ke Smythe estas falĉita de sia propra fera infano. Materio estis ribelinta, kaj tiuj ĉi maŝinoj estis mortigintaj sian mastron. Sed eĉ se jes, kion ili estis farintaj al li?
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Lin manĝintaj?” diris en lian orelon la inkubo; kaj li naŭziĝis dum unu momento pro la ideo de ŝiritaj, homaj restaĵoj sorbataj kaj premataj en tiun sencerban mekanismon.
@@ -1930,9 +1580,6 @@ Dum li parolis ĉiu estis haltigata pro nekutima vidaĵo; la granda blua polican
 ”Vi pravas, sinjoro,” li elspasmis, ”oni ĵus trovis la korpon de kompatinda sinjoro Smythe en la kanalo malsupre, tie.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Angus kvazaŭ freneze metis la manon al la kapo, ”ĉu li malsuprenkuris kaj sin dronigis?” li demandis.
 
 ”Li neniam malsuprenvenis, mi ĵuras,” diris la policano, ”nek dronis, ĉar li mortis pro pikego super la koro.”
@@ -1955,9 +1602,7 @@ Senkonscie ili marŝis pli kaj pli rapide malsupren sur la longa voja etendaĵo 
 
 ”ĉu vi iam rimarkis tion ĉi… ke homoj neniam respondas al tio kion vi demandis? Ili respondas al tio, kion vi volas diri… aŭ kion siaopinie vi volas diri. Supozu, ke unu sinjorino diras al alia en kampara domego, ‘ĉu iu restadas ĉe vi?’ la sinjorino ne respondas
 
-‘Jes, la servisto, tri lakeoj, la servistino kaj tiel plu,’ kvankam eble la servistino estas en la ĉambro aŭ la servisto malantaŭ ŝia seĝo. ŝi diras, ‘Neniu restadas ĉe ni,’ volante diri ke neniu de la speco, kiun 107
-
-L A N A I V E CO D E PA ST RO B ROW N
+‘Jes, la servisto, tri lakeoj, la servistino kaj tiel plu,’ kvankam eble la servistino estas en la ĉambro aŭ la servisto malantaŭ ŝia seĝo. ŝi diras, ‘Neniu restadas ĉe ni,’ volante diri ke neniu de la speco, kiun
 
 
 vi volas diri. Sed supozu, ke kuracisto faras enketon pri epidemio, kaj demandas, ‘Kiu restadas en la domo? tiam rememoras la sinjorino la serviston, la servistinon kaj la aliajn. Tiel estas uzata ĉia lingvo; vi neniam ricevas laŭvortan respondon al demando, eĉ kiam vi ricevas veran respondon. Kiam tiuj kvar tute honestaj viroj diris, ke neniu viro eniris tiun apartamentaron, ili ne volis vere diri, ke neniu viro estas enirinta. Ili volis diri, ke neniu viro, kiun ili povis suspekti estis via viro. Viro efektive eniris en la domon kaj efektive eliris, sed ili neniam rimarkis lin.”
@@ -1966,18 +1611,13 @@ vi volas diri. Sed supozu, ke kuracisto faras enketon pri epidemio, kaj demandas
 
 ”Mense nevidebla viro,” diris Pastro Brown.
 
-Post unu aŭ du minutoj li daŭrigis per la sama modesta voĉo, kiel homo perpense serĉanta vojon. ”Kompreneble vi ne povas pensi pri tia viro, ĝis vi efektive pensas pri li. Jen lia lerteco. Sed mi ekpensis pri li pro du aŭ tri aferetoj en la rakonto, kiun rakontis al ni sinjoro Angus. Unue, estis la fakto, ke tiu ĉi Welkin entreprenis longajn marŝadojn. Kaj tiam estis la vasta kvanto da poŝtmarkopapero sur la fenestro. Kaj tiam, plej grave, estis la du aferoj, kiujn la juna fraŭ-
-
-lino diris… aferoj, kiuj tute ne povis esti veraj. Ne ĉagreniĝu,” li tuj aldonis, rimarkinte subitan ekmovon de la kapo de l’Skoto; ”ŝi kredis, ke ili estas bone veraj, sed ili ja ne povis esti veraj. Persono ja ne povas esti tute sola en strato unu sekundon antaŭ ol ŝi ricevas leteron. ŝi ja ne povas esti tute sola en strato kiam ŝi komencas legi leteron ĵus ricevitan. Devas troviĝi iu tre apude; tiu devas esti mense nevidebla.”
+Post unu aŭ du minutoj li daŭrigis per la sama modesta voĉo, kiel homo perpense serĉanta vojon. ”Kompreneble vi ne povas pensi pri tia viro, ĝis vi efektive pensas pri li. Jen lia lerteco. Sed mi ekpensis pri li pro du aŭ tri aferetoj en la rakonto, kiun rakontis al ni sinjoro Angus. Unue, estis la fakto, ke tiu ĉi Welkin entreprenis longajn marŝadojn. Kaj tiam estis la vasta kvanto da poŝtmarkopapero sur la fenestro. Kaj tiam, plej grave, estis la du aferoj, kiujn la juna fraŭlino diris… aferoj, kiuj tute ne povis esti veraj. Ne ĉagreniĝu,” li tuj aldonis, rimarkinte subitan ekmovon de la kapo de l’Skoto; ”ŝi kredis, ke ili estas bone veraj, sed ili ja ne povis esti veraj. Persono ja ne povas esti tute sola en strato unu sekundon antaŭ ol ŝi ricevas leteron. ŝi ja ne povas esti tute sola en strato kiam ŝi komencas legi leteron ĵus ricevitan. Devas troviĝi iu tre apude; tiu devas esti mense nevidebla.”
 
 ”Kial devas esti iu apud ŝi?” demandis Angus.
 
 ”ĉar,” diris Pastro Brown, ”krom mesaĝkolomboj, iu certe alportis al ŝi la leteron.”
 
 ”ĉu vi vere volas diri, ke Welkin portis la leterojn de sia rivalo al la amatino?”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Jes,” diris la pastro. ”Welkin portis la leterojn de sia rivalo al lia amatino. Vidu do, li devis.”
@@ -1996,19 +1636,12 @@ Li faris tri paŝojn rapide antaŭen kaj metis la manon sur la ŝultron de ordin
 
 ”Ial neniu rimarkas poŝtistojn,” li diris penseme; ”sed ili havas pasiojn kiel aliaj homoj, kaj eĉ portas ampleksajn sakojn kie malgranda kadavro tute facile povas esti kaŝata.”
 
-La poŝtisto, anstataŭ sin turni nature, estis ekkliniĝinta kaj falinta kontraŭ la ĝardena pasilaro. Li estis malgrasa, blonde barbita viro de tre ordinara aspekto, sed dum li montris super la ŝultro viza-
+La poŝtisto, anstataŭ sin turni nature, estis ekkliniĝinta kaj falinta kontraŭ la ĝardena pasilaro. Li estis malgrasa, blonde barbita viro de tre ordinara aspekto, sed dum li montris super la ŝultro vizaĝon timoplenan, ĉiuj tri viroj estis trapikataj de demona strabo.
 
-ĝon timoplenan, ĉiuj tri viroj estis trapikataj de demona strabo.
-
-Flambeau reiris al siaj sabroj, siaj purpuraj tapiŝetoj kaj persa kato, havante multajn aferojn pritraktendaj. John Turnbull Angus reiris al la fraŭlino en la butiko, kun kiu tre komforte vivadi sukcesas tiu malprudenta junulo. Sed Pastro Brown marŝis sur tiuj neĝkovritaj 109
-
-L A N A I V E CO D E PA ST RO B ROW N
+Flambeau reiris al siaj sabroj, siaj purpuraj tapiŝetoj kaj persa kato, havante multajn aferojn pritraktendaj. John Turnbull Angus reiris al la fraŭlino en la butiko, kun kiu tre komforte vivadi sukcesas tiu malprudenta junulo. Sed Pastro Brown marŝis sur tiuj neĝkovritaj
 
 
 montetoj sub la steloj multajn horojn kun murdinto, kaj kion ili diris unu al la alia neniam oni scios.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 LA HONORO DE ISRAEL GOW
@@ -2016,9 +1649,6 @@ LA HONORO DE ISRAEL GOW
 ŝtorma vespero, olivkolora kaj arĝenta, falis dum Pastro Brown, volvita en griza skota plejdo, ĝisatingis la finon de griza skota valo kaj ekvidis la strangan kastelon Glengyle. i ŝtopis la finon de la valeto aŭ kavejo, kaj aspektis kiel la fino de la mondo. Leviĝante per krutaj tegmentoj kaj turpintoj el marverda ardezo, laŭ la stilo de la malnovaj franc-skotaj kasteloj, ĝi rememorigis al anglo la malbonaŭgurajn altĉapelojn de sorĉistinoj en ferakontoj; kaj la pinarboj, kiuj balanciĝis ĉirkaŭ la verdaj turetoj, ŝajnis kompare tiel nigraj kiel nenombreblaj korvaroj. Tiu ĉi sugestiado de sonĝa, preskaŭ dormanta diableco, neniel estis nur imago elvokita pro la pejzaĝo. ĉar efektive kuŝis sur la loko unu el tiuj nuboj de fiereco kaj frenezeco kaj mistera malĝojo, kiuj pli peze kuŝas sur la nobe-laj familioj de Skotlando ol sur iuj ajn aliaj hominfanoj. Ja Skotlando ricevis duoblan dozon de la veneno nomita heredeco; la sento pri sango ĉe la aristokratoj kaj fatalo ĉe la Kalvinistoj.
 
 La pastro estis sin ŝirinta por unu tago de siaj aferoj en Glasgovo por renkonti sian amikon Flambeau, la amatoran detektivon, kiu estis ĉe Glengyle Kastelo kun alia pli oficiala oficiro, farante esplo-ron pri la vivado kaj morto de la mortinta Lordo Glengyle. Tiu mistera persono estis la lasta reprezentanto de familio, kies braveco, frenezeco, kaj perfortema ruzeco, igis terura ilian nomon, eĉ inter la malbonfama nobelaro de la deksesa jarcento. Neniuj estis pli profundiĝintaj en tiun labirintan ambicion, en tiun palacon el men-sogoj, kiun oni konstruis ĉirkaŭ Mario, Reĝino de la Skotoj.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 La rimo konata en la apuda kamparo senkaŝe atestis la motivon kaj rezulton de iliaj intrigadoj:
@@ -2029,18 +1659,12 @@ Estas ruĝa or’ por Ogilvie fiera.”
 
 Dum multaj jarcentoj troviĝis neniam laŭdebla lordo en Glengyle Kastelo; kaj kiam venis la Viktoria Epoko oni estus kredinta, ke ĉiuj ekscentrecoj estus jam elĉerpitaj. La lasta Glengyle’ano tamen plenumis sian triban tradicion, farante tion kio sole restis al li por fari; li malaperis. Mi ne volas diri, ke li iris for alilanden; oni diris, ke li ankoraŭ estas en la kastelo, se li estas ie ajn. Kvankam do lia nomo troviĝis en la granda ruĝa lordetato, kaj en la preĝeja regis-tro, neniu lin iam vidis sub la suno.
 
-Se iu lin vidis, tiu estis iu sola servisto, duone grumo, duone ĝardenisto. Li estis tiel surda, ke personoj praktikaj supozis, ke li estas muta; dum personoj pli penetremaj deklaris, ke li estas nur duone cerbsana. Osteca, ruĝhara laboristo, kun obstinaj mentono kaj makzelo, sed tute senesprimaj bluokuloj, li havis la nomon Israel Gow, kaj estis la unika silenta servisto de tiu forlasita bieno. Sed la energio per kiu li elfosis terpomojn kaj la reguleco kun kiu li malapera-dis en la kuirejon, donis al homoj la impreson, ke li provizas man-
-
-ĝaĵojn por superulo, kaj, ke la stranga grafo ankoraŭ restas kaŝite en la kastelo. Se iu deziris plian pruvon, ke li tie estas, la servisto obstine asertis, ke li ne estas hejme. Iun matenon la vilaĝestro kaj la pastoro (la Glengyle’anoj estis presbiterianoj) estis alvokitaj al la kastelo. Tie ili konstatis, ke la ĝardenisto, grumo kaj kuiristo aldonis al siaj multnombraj metioj, tiun de funebraĵisto kaj najlis sian nobelan mastron en ĉerkon. Kun kiom multe aŭ kiom malmulte da plua enketo oni preterlasis tiun ĉi strangan fakton, ankoraŭ ne tre klare montriĝis; ĉar la afero ne estis laŭlege esplorata ĝis kiam Flambeau jam iris norden antaŭ du-tri tagoj. Tiam la kadavro de 112
-
-L A N A I V E CO D E PA ST RO B ROW N
+Se iu lin vidis, tiu estis iu sola servisto, duone grumo, duone ĝardenisto. Li estis tiel surda, ke personoj praktikaj supozis, ke li estas muta; dum personoj pli penetremaj deklaris, ke li estas nur duone cerbsana. Osteca, ruĝhara laboristo, kun obstinaj mentono kaj makzelo, sed tute senesprimaj bluokuloj, li havis la nomon Israel Gow, kaj estis la unika silenta servisto de tiu forlasita bieno. Sed la energio per kiu li elfosis terpomojn kaj la reguleco kun kiu li malapera-dis en la kuirejon, donis al homoj la impreson, ke li provizas manĝaĵojn por superulo, kaj, ke la stranga grafo ankoraŭ restas kaŝite en la kastelo. Se iu deziris plian pruvon, ke li tie estas, la servisto obstine asertis, ke li ne estas hejme. Iun matenon la vilaĝestro kaj la pastoro (la Glengyle’anoj estis presbiterianoj) estis alvokitaj al la kastelo. Tie ili konstatis, ke la ĝardenisto, grumo kaj kuiristo aldonis al siaj multnombraj metioj, tiun de funebraĵisto kaj najlis sian nobelan mastron en ĉerkon. Kun kiom multe aŭ kiom malmulte da plua enketo oni preterlasis tiun ĉi strangan fakton, ankoraŭ ne tre klare montriĝis; ĉar la afero ne estis laŭlege esplorata ĝis kiam Flambeau jam iris norden antaŭ du-tri tagoj. Tiam la kadavro de
 
 
 Lordo Glengyle (se efektive estis kadavro) estis kuŝinta iom da tempo en la malgranda preĝejkorto sur la monteto.
 
-Dum Pastro Brown pasis tra la malluma ĝardeno kaj venis en la ombron de la kastelo, la nuboj estis densaj kaj la tuta aero malseka kaj tondroplena. Kontraŭ la lasta verdora strio de la sunsubiro li vidis nigran homan silueton; viro kun kamentubosimila ĉapelo, kaj granda fosilo surŝultre. La kunmetaĵo strange sugestiis preĝejan tombofosiston; sed kiam Brown rememoris la surdan serviston, kiu elfosis terpomojn, li opiniis, ke tio estas sufiĉe normala. Li sciis iom pri skotaj kamparanoj; li konis la respektecon, kiu bone agnoskus la neceson porti ”nigraĵojn” por oficiala enketo; li konis ankaŭ la sparemecon, kiu ne volus perdi pro tio eĉ unuhoran fosadon. Eĉ ties salteto kaj suspektoplena rigardego dum la pastro preterpasis, sufi-
-
-ĉe akordis kun la vigleco kaj ĵaluzo de tia tipo.
+Dum Pastro Brown pasis tra la malluma ĝardeno kaj venis en la ombron de la kastelo, la nuboj estis densaj kaj la tuta aero malseka kaj tondroplena. Kontraŭ la lasta verdora strio de la sunsubiro li vidis nigran homan silueton; viro kun kamentubosimila ĉapelo, kaj granda fosilo surŝultre. La kunmetaĵo strange sugestiis preĝejan tombofosiston; sed kiam Brown rememoris la surdan serviston, kiu elfosis terpomojn, li opiniis, ke tio estas sufiĉe normala. Li sciis iom pri skotaj kamparanoj; li konis la respektecon, kiu bone agnoskus la neceson porti ”nigraĵojn” por oficiala enketo; li konis ankaŭ la sparemecon, kiu ne volus perdi pro tio eĉ unuhoran fosadon. Eĉ ties salteto kaj suspektoplena rigardego dum la pastro preterpasis, sufiĉe akordis kun la vigleco kaj ĵaluzo de tia tipo.
 
 La granda pordo estis malfermata de Flambeau mem, kiu estis akompanata de malgrasega viro kun fergriza hararo kaj paperoj en la mano: Inspektoro Craven de Scotland Yard. La vestiblo estis plejparte nudigita kaj malplena; sed la palaj, rikanantaj vizaĝoj de unu du el la malbonaj Ogilvie’anoj rigardis malsupren el nigraj perukoj kaj nigriĝanta kanvaso.
 
@@ -2048,9 +1672,7 @@ Ilin sekvinte en internan ĉambron, Pastro Brown eltrovis, ke la kunliganoj esta
 
 Alia aspektis kiel alta amaso da bruna polvo. Tria ŝajnis esti ordinara ligna bastoneto.
 
-”ŝajne vi havas tie ĉi ian geologian muzeon,” li diris sidiĝante kaj 113
-
-L A N A I V E CO D E PA ST RO B ROW N
+”ŝajne vi havas tie ĉi ian geologian muzeon,” li diris sidiĝante kaj
 
 
 ekskuante la kapon al la direkto de la bruna polvo kaj la kristalaj pecetoj.
@@ -2079,9 +1701,7 @@ Flambeau levis seriozan vizaĝon kaj direktis siajn nigrajn okulojn al sia amiko
 
 ”Tio ankaŭ estas stranga,” li diris. ”Dudek kvin kandeloj kaj ne eĉ postsigno de kandelingo.”
 
-En la rapide mallumiĝanta ĉambro kaj rapide fortiĝanta vento Brown iris laŭllonge la tablon ĝis kie kuŝis fasko da vakskandeloj inter la aliaj diversaj elmontraĵoj. Dum li tion faris li kliniĝis hazarde 114
-
-L A N A I V E CO D E PA ST RO B ROW N
+En la rapide mallumiĝanta ĉambro kaj rapide fortiĝanta vento Brown iris laŭllonge la tablon ĝis kie kuŝis fasko da vakskandeloj inter la aliaj diversaj elmontraĵoj. Dum li tion faris li kliniĝis hazarde
 
 
 super la amason da ruĝ-bruna polvo; kaj abrupta terno krakis kontraŭ la silento.
@@ -2098,9 +1718,7 @@ Li prenis unu el la kandeloj, ekbruligis ĝin zorge; revenis, kaj enŝovis ĝin 
 
 ”Tria ero. Jen kaj jen en la domo strangaj amasetoj da malgran-degaj pecoj el metalo, kelkaj kiel ŝtalaj risortoj kaj kelkaj kiel mikroskopaj radoj. Tute kvazaŭ iu estus dismetinta ian meąnikan lu-dilon.
 
-”Kvara ero. La vakskandeloj, kiuj estas fiksitaj en la botelojn ĉar nenio alia troviĝis por teni ilin. Nu, mi deziras, ke vi rimarku kiom pli stranga ĉio tio ĉi estas, ol io ajn kion ni atendis. Por la centra 115
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Kvara ero. La vakskandeloj, kiuj estas fiksitaj en la botelojn ĉar nenio alia troviĝis por teni ilin. Nu, mi deziras, ke vi rimarku kiom pli stranga ĉio tio ĉi estas, ol io ajn kion ni atendis. Por la centra
 
 
 enigmo ni estis pretaj; ni ĉiuj konstatis de la unua ekrigardo, ke ne ĉio ĝuste fartis ĉe la lasta lordo. Ni venis tien ĉi por eltrovi ĉu li vere loĝis tie ĉi, ĉu li vere mortis tie ĉi, ĉu tiu ruĝhara timigulo, kiu intermiksiĝis kun ties enterigo intermiksiĝis ankaŭ kun ties morto. Sed supozu pri tio ĉi la plej malbonan, la plej aĉan aŭ melodraman sol-von, laŭ via deziro. Hipotezu, ke la servisto efektive mortigis la mastron, aŭ hipotezu, ke la mastro efektive ne estas mortinta, aŭ hipotezu, ke la mastro estas alivestita kiel la servanto, aŭ hipotezu, ke la servisto estas enterigita anstataŭ la mastro; elpensu kian ajn Wilkie Collins-tragedion kiel plaĉas al vi, kaj ankoraŭ vi ne estus klariginta kandelon sen kandelingo, aŭ kial maljuneta sinjoro el bona familio kutimiĝis disŝuti flartabakon sur la pianon. La koraĵon de la afero ni povis bone imagi; nur la franĝoj estas misteraj. Per nenia granda streĉo de la imago povas kunligi la homa menso flartabakon kaj diamantojn kaj vakson kaj dismetitajn meąnikaĵojn.”
@@ -2112,9 +1730,6 @@ enigmo ni estis pretaj; ni ĉiuj konstatis de la unua ekrigardo, ke ne ĉio ĝus
 Ambaŭ aliaj viroj rigardegis lin per rondaj okuloj. ”Kia tute kromordinara ideo!” kriis Flambeau. ”ĉu vere vi kredas, ke tio estas la vero?”
 
 ”Mi estas certa, ke ne,” respondis Pastro Brown, ”sed vi diris, ke neniu povas kunligi flartabakon kun diamantoj kaj meąnikaĵoj kaj kandeloj. Mi tuj klarigas tiun kunligon. La efektiva vero, mi estas certa, troviĝas multe pli profunde.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Li paŭzis momenton kaj aŭskultis la ĝemadon de la vento ĉirkaŭ la turetoj. Tiam li diris, ”La mortinta Lordo Glengyle estis ŝtelisto.
@@ -2135,18 +1750,11 @@ Branĉo de rompita pinarbo vipiĝis forte pro la ventego kontraŭ la fenestro ma
 
 ”Ho, ne,” diris Pastro Brown.
 
-Dum la vento formortis en la plej malproksimaj pinarbaroj kva-117
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-zaŭ mokade kun longedaŭra ululo, daŭrigis Pastro Brown, lia viza-
+Dum la vento formortis en la plej malproksimaj pinarbaroj kvazaŭ mokade kun longedaŭra ululo, daŭrigis Pastro Brown, lia viza-
 
 ĝo tute senemocia:
 
-”Mi nur proponis tion ĉar vi diris, ke oni ne povas kredinde kunligi flartabakon kun meąnikaĵoj aŭ kandelojn kun briloŝtonoj. Dek falsaj filozofoj taŭgas por klarigi la universon; dek falsaj teorioj taŭ-
-
-gas por klarigi la Kastelon Glengyle. Sed ni postulas la veran klari-gon pri la kastelo kaj la universo. ĉu tamen ne estas aliaj montraĵoj?”
+”Mi nur proponis tion ĉar vi diris, ke oni ne povas kredinde kunligi flartabakon kun meąnikaĵoj aŭ kandelojn kun briloŝtonoj. Dek falsaj filozofoj taŭgas por klarigi la universon; dek falsaj teorioj taŭgas por klarigi la Kastelon Glengyle. Sed ni postulas la veran klari-gon pri la kastelo kaj la universo. ĉu tamen ne estas aliaj montraĵoj?”
 
 Craven ridis kaj Flambeau leviĝis ridetante kaj iris laŭlonge la flankon de la longa tablo.
 
@@ -2163,16 +1771,11 @@ La fluganta tempesto ekstere pelis trans Glengyle’on teruran nubamason kaj mal
 ”ĉar estas grave,” respondis Brown; ”tio ĉi ne estas disŝutita flartabako aŭ dismetitaj ŝtonetoj, kiuj povus troviĝi pro cent kaŭzoj.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Ekzistas nur unu sola kaŭzo, kial tio ĉi estas farita; kaj tiu kaŭzo devenas de la praradikoj de la mondo. Tiuj ĉi religiaj bildoj ne estas nur malpurigitaj aŭ ŝiritaj aŭ kovritaj de skribaĉo, kiun farus dum senokupeco aŭ pro bigoteco, infanoj aŭ Protestantoj. Tiujn ĉi oni tre zorge traktis—kaj tre strange. ĉie kie aperas la granda ornamita nomo de Dio en la malnovaj manuskriptoj ĝi estas tre zorge forprenita. La sola alia aĵo forprenita estas la nimbo ĉirkaŭ la kapo de la Infana Jesuo. Tial mi diras, ni prenu nian mandaton kaj nian fosilon kaj nian hakilon kaj supreniru por disrompi tiun ĉerkon.”
 
 ”Kion vi volas diri?” demandis la Londona oficiro.
 
-”Mi volas diri,” respondis la malgranda pastro, kaj lia voĉo ŝajnis iomete plifortiĝi en la uragana muĝado, ”mi volas diri, ke la potenca diablo de la universo eble sidas je la nuna momento sur la plej supra pinto de tiu ĉi kastelo, tiel granda kiel cent elefantoj kaj mu-
-
-ĝegante kiel la Apokalipso. Nigra magio troviĝas ie profunde en tiu ĉi afero.”
+”Mi volas diri,” respondis la malgranda pastro, kaj lia voĉo ŝajnis iomete plifortiĝi en la uragana muĝado, ”mi volas diri, ke la potenca diablo de la universo eble sidas je la nuna momento sur la plej supra pinto de tiu ĉi kastelo, tiel granda kiel cent elefantoj kaj muĝegante kiel la Apokalipso. Nigra magio troviĝas ie profunde en tiu ĉi afero.”
 
 ”Nigra magio,” rediris Flambeau per voĉo mallaŭta, ĉar li estis viro tro klera por ne koni tiajn aferojn; ”sed kion povas signifi tiuj ĉi aliaj aferoj?”
 
@@ -2180,12 +1783,7 @@ Ekzistas nur unu sola kaŭzo, kial tio ĉi estas farita; kaj tiu kaŭzo devenas 
 
 ”Kiel mi sciu? Kiel mi povas diveni ĉiujn iliajn malsuprajn labirin-tojn? Eble oni povas fari torturon el flartabako kaj bambuo. Eble frenezuloj avidas al vakso kaj ŝtalfajlaĵoj. Eble ekzistas freneziga drogo el grafit-krajonoj! Nia plej mallonga vojo al la mistero kondukas supren la monton al ia tombo.”
 
-Liaj kunuloj apenaŭ sciis, ke lin ili obeis kaj sekvis, ĝis ekblove-go de la nokta vento preskaŭ teren ĵetis ilin en la ĝardeno. Ili tamen estis lin obeintaj kiel aŭtomataĵoj; ĉar Craven trovis en sia mano hakilon, kaj la mandaton en sia poŝo; Flambeau portis la pezan fosi-119
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-lon de la stranga ĝardenisto; Pastro Brown portis la orumitan libre-ton el kiu estis ŝirita la nomo de Dio.
+Liaj kunuloj apenaŭ sciis, ke lin ili obeis kaj sekvis, ĝis ekblove-go de la nokta vento preskaŭ teren ĵetis ilin en la ĝardeno. Ili tamen estis lin obeintaj kiel aŭtomataĵoj; ĉar Craven trovis en sia mano hakilon, kaj la mandaton en sia poŝo; Flambeau portis la pezan fosilon de la stranga ĝardenisto; Pastro Brown portis la orumitan libre-ton el kiu estis ŝirita la nomo de Dio.
 
 La vojeto supren la monteton al la preĝejkorto estis kurba sed mallonga; nur pro la premo de la vento ĝi ŝajnis malfacila kaj longa.
 
@@ -2195,12 +1793,7 @@ Tiom malproksimen kiom povis vidi la okulo, pli kaj pli malproksimen dum ili sup
 
 ”Amiko mia,” respondis Brown, egale serioze, ”ĉiuj sinceraj religioj portas unu signon: materialismo. Satanismo, nu, estas religio tute sincera.”
 
-Ili estis venintaj supren ĝis la herba skalpo de la monteto, unu el la malmultaj kalvaj lokoj, kiuj staris el la krakeganta kaj muĝanta pinarbaro. Kaduka enfermaĵo, parte el ligno, parte el drato, klaka-dis en la ŝtormo, dirante al ili pri la limo de la tombejo. Kiam Inspektoro Craven ĝisatingis la angulon de la tombo, kaj Flambeau enŝovis sian fosilon, la pinto malsupren, kaj sin apogis al ĝi, ili am-120
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-baŭ estis preskaŭ tiel ŝancelitaj kiel la tremanta ligno kaj drato. ĉe la fino de la tombo kreskis grandaj altaj kardoj, grizaj kaj arĝentaj, velkintaj. Du-trifoje, kiam bulo da kardsemoj disbloviĝis pro la vento kaj preterflugis lin, Craven eksaltetis, kvazaŭ ĝi estus sago.
+Ili estis venintaj supren ĝis la herba skalpo de la monteto, unu el la malmultaj kalvaj lokoj, kiuj staris el la krakeganta kaj muĝanta pinarbaro. Kaduka enfermaĵo, parte el ligno, parte el drato, klaka-dis en la ŝtormo, dirante al ili pri la limo de la tombejo. Kiam Inspektoro Craven ĝisatingis la angulon de la tombo, kaj Flambeau enŝovis sian fosilon, la pinto malsupren, kaj sin apogis al ĝi, ili ambaŭ estis preskaŭ tiel ŝancelitaj kiel la tremanta ligno kaj drato. ĉe la fino de la tombo kreskis grandaj altaj kardoj, grizaj kaj arĝentaj, velkintaj. Du-trifoje, kiam bulo da kardsemoj disbloviĝis pro la vento kaj preterflugis lin, Craven eksaltetis, kvazaŭ ĝi estus sago.
 
 Flambeau enpelis la plataĵon de sia fosilo inter la siblantan herbon en la suban malsekan argilon. Tiam li ŝajnis halti kaj sin apogis al ĝi kvazaŭ al bastono.
 
@@ -2221,9 +1814,6 @@ Li fosadis dum kelkaj terurplenaj minutoj silente, kaj tiam diris per sufokita v
 ”Nek tia estis tiu peco de papero, vi memoras,” kviete diris Pastro Brown, ”kaj eĉ tiun pecon de papero ni postvivis.”
 
 Flambeau daŭrigis fosadi per blinda energio. Sed la tempesto estis jam forpuŝinta la sufokigajn griznubojn, kiuj alkroĉiĝis al la montetoj kiel fumo, kaj jam malkaŝinta grizajn kampojn da malforta stelolumo, antaŭ ol li vidigis la formon de kruda ligna ĉerko, kaj iel ĝin klinis sur la herbon. Craven paŝis antaŭen kun sia hakilo; tufeto tuŝis lin kaj li detiriĝis. Tiam li ekstaris pli decideme kaj hakis kaj tordis per energio kia tiu de Flambeau, ĝis la kovrilo estas deŝirita, kaj la tuto da tio, kio tie troviĝis, kuŝis lumetanta sub la griza stellumo.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Ostoj,” diris Craven; kaj poste aldonis, ”sed ja estas homo,” kvazaŭ tio estus io neatendita.
@@ -2248,9 +1838,7 @@ Ili staris aŭskultante la laŭtajn arbarojn kaj kriegantan ĉielon tute stulte,
 
 La pala detektivo el Londono malfermis la buŝon por paroli, kaj
 
-ĝin lasis malfermita kiel kampara stultulo, dum longedaŭra venta 122
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝin lasis malfermita kiel kampara stultulo, dum longedaŭra venta
 
 
 kriego disŝiris la ĉielon; tiam li rigardis la hakilon en siaj manoj, kvazaŭ ĝi ne apartenus al li, kaj lasis ĝin fali.
@@ -2276,9 +1864,6 @@ Malgraŭ lia mistika laŭdo pri dormado, Pastro Brown leviĝis pli frue ol iu al
 ”Valora viro, tiu,” diris Pastro Brown. ”Li prizorgas la terpomojn mirinde. Tamen,” li aldonis, kun senpartia indulgo, ”li havas man-kojn; kiu el ni ne havas? Li ne tute rekte fosas tiun ĉi sulkon. Tie ekzemple,” kaj li piedbatis subite sur unu lokon. ”Mi vere dubas pri tiu terpomo.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Kaj kial?” demandis Craven, amuzate pri la nova kromokupo de la malgranda viro.
 
 ”Mi dubas pri ĝi,” diris la alia, ”ĉar maljuna Gow mem dubis pri
@@ -2297,12 +1882,7 @@ Tiam post momenta meditado, li ekprenis la fosilon de Flambeau kaj dirante ”Ni
 
 ”Mia cerbo kaj tiu ĉi mondo ne agordiĝas; jen ĉio. Flartabako, difektitaj preĝlibroj kaj la internaĵoj de muzikoskatoloj—kio—.”
 
-Brown ekklinis malantaŭen la kapon, montrante sian perpleksi-tan brovon kaj frapis la tenilon de la fosilo kun netoleremo tute fremda al li. ”Ho, ne, ne, ne,” li kriis. ”ĉio tio estas videbla kiel lan-costango. Mi komprenis la flartabakon, la me˛ianikaĵojn, k.t.p., ki-124
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-am mi unue malfermis la okulojn hodiaŭ matene. Kaj intertempe mi estas ĉion eldiskutinta kun maljuna Gow, la ĝardenisto, kiu estas nek tiel surda nek tiel stulta, kiel li ŝajnigas. ĉio pri la dismetitaj aĵoj estas en bona ordo. Mi eraris pri la ŝirita meslibro, ankaŭ; ne estas io malbona pri tio. Sed temas pri tiu ĉi lasta afero. Profani tombojn kaj forŝteli kapojn de mortintoj… nepre estas tio malbona. ĉu ne nepre temas pri nigra sorĉado rilate al tio? Tio ne akordiĝas kun la tute simpla historio pri la flartabako kaj la kandeloj.”
+Brown ekklinis malantaŭen la kapon, montrante sian perpleksi-tan brovon kaj frapis la tenilon de la fosilo kun netoleremo tute fremda al li. ”Ho, ne, ne, ne,” li kriis. ”ĉio tio estas videbla kiel lan-costango. Mi komprenis la flartabakon, la me˛ianikaĵojn, k.t.p., kiam mi unue malfermis la okulojn hodiaŭ matene. Kaj intertempe mi estas ĉion eldiskutinta kun maljuna Gow, la ĝardenisto, kiu estas nek tiel surda nek tiel stulta, kiel li ŝajnigas. ĉio pri la dismetitaj aĵoj estas en bona ordo. Mi eraris pri la ŝirita meslibro, ankaŭ; ne estas io malbona pri tio. Sed temas pri tiu ĉi lasta afero. Profani tombojn kaj forŝteli kapojn de mortintoj… nepre estas tio malbona. ĉu ne nepre temas pri nigra sorĉado rilate al tio? Tio ne akordiĝas kun la tute simpla historio pri la flartabako kaj la kandeloj.”
 
 Kaj denove paŝante tien kaj reen li fumadis malserene.
 
@@ -2314,9 +1894,7 @@ La pipo de Pastro Brown falis de lia buŝo kaj rompiĝis en tri pecojn sur la gr
 
 ”Mi ja ĉerpos iom da senco el tio ĉi,” kriis Flambeau, paŝante antaŭen, ”eĉ se mi devos uzi la turmentojn de la Inkvizicio.”
 
-Pastro Brown rezistis al kio ŝajne estis momenta inklino danci sur la jam sunlumata razenejo kaj kriis kortuŝe kiel infano, ”Ho, lasu min esti malserioza iomete. Vi ne scias kiel mizera mi estis. Kaj nun 125
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pastro Brown rezistis al kio ŝajne estis momenta inklino danci sur la jam sunlumata razenejo kaj kriis kortuŝe kiel infano, ”Ho, lasu min esti malserioza iomete. Vi ne scias kiel mizera mi estis. Kaj nun
 
 
 mi scias, ke estis en tiu ĉi afero neniu ajn profunda peko. Nur iom da frenezeco eble… kaj kiu malŝatus tion?”
@@ -2338,18 +1916,11 @@ La ĝardeno sajne pliheliĝis; la herbo fariĝis pli gaja sub la fortiĝanta sun
 
 ”Estis forprenitaj,” daŭrigis Pastro Brown; ”estis forprenitaj… sed ne ŝtelitaj. ŝtelistoj ne estus postlasintaj tiun ĉi misteron. ŝtelistoj estus prenintaj la orajn skatoletojn, kun tabako kaj ĉio; la orajn krajoningojn, kun grafito kaj ĉio. Temas pri viro kun stranga konscienco, sed konscienco senduba. Mi trovis tiun manian moraliston hodiaŭ matene en la ĝardeno tie kaj mi aŭdis la tutan aferon.
 
-”La mortinta Archibald Ogilvie similis al virta viro pli ol iu na-126
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-skita en Glengyle. Sed lia amara virteco fariĝis misantropa; li malgaje meditis pri la malhonesteco de siaj praavoj, de tio li iel induktis la malhonestecon de ĉiuj homoj. Aparte li malfidis al filantropio aŭ libera donacado; kaj li ĵuris, ke se li povus trovi unu solan homon, kiu prenis precize tiom kiom li rajtis, tiu posedu la tutan oron de Glengyle. Eldoninte tiun ĉi defion al la homaro li ŝlosis sin for, tute ne atendante, ke ĝi ricevos respondon. Unu tagon tamen, iu surda kaj ŝajne stulta knabo el malproksima vilaĝo alportis al li prokras-titan telegramon; kaj Glengyle, kun sia ironia bonhumoro donis al li novan kvaronpencon. Almenaŭ li kredis tion fari, sed kiam li ekzamenis sian monon li trovis ankoraŭ tie la novan kvaronpencon, kaj forestis ora pundo. La eraro malfermis al li la perspektivojn de cinika konjektado. Ambaŭokaze la knabo malkaŝus la avidan ava-recon de sia speco. Li aŭ malaperus, ŝtelisto ŝtelante moneron; aŭ li rampus reen virtaĉe, snobo serĉanta rekompencon. Meze de la nokto, iu frapante ĉe la pordo levigis de lia lito lordon Glengyle—
+”La mortinta Archibald Ogilvie similis al virta viro pli ol iu naskita en Glengyle. Sed lia amara virteco fariĝis misantropa; li malgaje meditis pri la malhonesteco de siaj praavoj, de tio li iel induktis la malhonestecon de ĉiuj homoj. Aparte li malfidis al filantropio aŭ libera donacado; kaj li ĵuris, ke se li povus trovi unu solan homon, kiu prenis precize tiom kiom li rajtis, tiu posedu la tutan oron de Glengyle. Eldoninte tiun ĉi defion al la homaro li ŝlosis sin for, tute ne atendante, ke ĝi ricevos respondon. Unu tagon tamen, iu surda kaj ŝajne stulta knabo el malproksima vilaĝo alportis al li prokras-titan telegramon; kaj Glengyle, kun sia ironia bonhumoro donis al li novan kvaronpencon. Almenaŭ li kredis tion fari, sed kiam li ekzamenis sian monon li trovis ankoraŭ tie la novan kvaronpencon, kaj forestis ora pundo. La eraro malfermis al li la perspektivojn de cinika konjektado. Ambaŭokaze la knabo malkaŝus la avidan ava-recon de sia speco. Li aŭ malaperus, ŝtelisto ŝtelante moneron; aŭ li rampus reen virtaĉe, snobo serĉanta rekompencon. Meze de la nokto, iu frapante ĉe la pordo levigis de lia lito lordon Glengyle—
 
 ĉar li loĝis sola, kaj li devis malfermi la pordon al la surda idioto. La idioto kunportis kun si, ne la oran pundon, sed precize dek naŭ ŝilingojn, dek unu pencojn kaj tri kvaronojn, kiel ŝanĝmono.
 
-”Tiam la stranga precizeco de tiu ĉi ago ektenis la imagon de la freneza lordo kiel fajro. Li ĵuris, ke li estas Diogeno, ke jam longe li serĉas honestan viron kaj, ke fine li estas tian trovinta. Li akceptis la precizan junulon en sian vastan, neglektitan domon kaj edukis lin esti lia sola servisto kaj—laŭ stranga maniero—lia heredonto. Kaj kion ajn tiu stranga kreitaĵo komprenas, li komprenis plene ambaŭ obsedojn de sia lorda mastro; unue, ke la litero de la leĝo estas an-taŭ ĉio grava; kaj due, ke li mem havu la oron de Glengyle. is tio, ĉio estas simpla. Li forigis la tuton de la oro en la domo, kaj ne prenis eron, kiu ne estis ora; eĉ ne eron da flartabako. Li levis orfolion de sur antikva ornamita libro, tute kredante, ke li lasas la restaĵon 127
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Tiam la stranga precizeco de tiu ĉi ago ektenis la imagon de la freneza lordo kiel fajro. Li ĵuris, ke li estas Diogeno, ke jam longe li serĉas honestan viron kaj, ke fine li estas tian trovinta. Li akceptis la precizan junulon en sian vastan, neglektitan domon kaj edukis lin esti lia sola servisto kaj—laŭ stranga maniero—lia heredonto. Kaj kion ajn tiu stranga kreitaĵo komprenas, li komprenis plene ambaŭ obsedojn de sia lorda mastro; unue, ke la litero de la leĝo estas an-taŭ ĉio grava; kaj due, ke li mem havu la oron de Glengyle. is tio, ĉio estas simpla. Li forigis la tuton de la oro en la domo, kaj ne prenis eron, kiu ne estis ora; eĉ ne eron da flartabako. Li levis orfolion de sur antikva ornamita libro, tute kredante, ke li lasas la restaĵon
 
 
 nedifektita. ĉion tion mi komprenis; sed tiun ĉi aferon pri la kranio mi ne povis kompreni. Mi vere maltrankviliĝis pri tiu homa kapo enterigita inter la terpomoj. i suferigis min … ĝis Flambeau diris la vorton.
@@ -2359,42 +1930,27 @@ nedifektita. ĉion tion mi komprenis; sed tiun ĉi aferon pri la kranio mi ne po
 Kaj efektive, kiam Flambeau transiris la monteton tiun matenon, li vidis tiun strangan kreitaĵon, la justan avarulon, fosantan ĉe la profanita tombo, la plejdo ĉirkaŭ lia kolo flirtanta en la monta vento; la serioza cilindro surkape.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA MALUSTA FORMO
 
-Kelkaj el la grandaj vojoj, kiuj kondukas norden el Londono, etendiĝas malproksimen en la kamparon, kiel ia maldensa kaj interrompita fantomo de strato, kun larĝaj breĉoj inter la konstruaĵoj, sed tenante la linion. Jen troviĝas aro da butikoj, sekvata de ĉir-kaŭbarita kampeto, eble kun ĉevaloj, fama gastejo, tiam eble legom-
-
-ĝardeno aŭ florkulturejo kaj jen granda privata domo, kaj poste plua kampo kaj denove gastejo, kaj tiel plu. Se iu marŝus laŭ unu el tiuj vojoj, li pasus domon, kiu kredeble kaptus lian okulon, kvankam li eble ne povus klarigi al si ĝian allogon. i estas longa, malalta domo, paralela laŭ la vojo, kolorigita plejparte blanke kaj helverde, kun verando kaj markezoj kaj portikoj ĉapelitaj per tiuj strangspecaj kupoloj kvazaŭ lignaj ombreloj, kiajn oni vidas sur iuj malmoder-naj domoj. Efektive ĝi estas malmoderna domo, tre angla kaj tre antaŭurba, sed antaŭurba laŭ la maniero de la malnovaj riĉulaj domoj de Clapham. Tamen, malgraŭ tio, ŝajnas, ke la domo estas spe-ciale konstruita por la varma vetero. Rigardante ĝiajn blankan koloraĵon kaj markezojn, oni ekpensas malprecize pri hindaj ventumi-loj kaj eĉ pri palmoj. Mi ne povas sekvi tiun senton ĝis ĝia radiko; eble la konstruaĵo estas farita de anglo el Hindujo.
+Kelkaj el la grandaj vojoj, kiuj kondukas norden el Londono, etendiĝas malproksimen en la kamparon, kiel ia maldensa kaj interrompita fantomo de strato, kun larĝaj breĉoj inter la konstruaĵoj, sed tenante la linion. Jen troviĝas aro da butikoj, sekvata de ĉir-kaŭbarita kampeto, eble kun ĉevaloj, fama gastejo, tiam eble legomĝardeno aŭ florkulturejo kaj jen granda privata domo, kaj poste plua kampo kaj denove gastejo, kaj tiel plu. Se iu marŝus laŭ unu el tiuj vojoj, li pasus domon, kiu kredeble kaptus lian okulon, kvankam li eble ne povus klarigi al si ĝian allogon. i estas longa, malalta domo, paralela laŭ la vojo, kolorigita plejparte blanke kaj helverde, kun verando kaj markezoj kaj portikoj ĉapelitaj per tiuj strangspecaj kupoloj kvazaŭ lignaj ombreloj, kiajn oni vidas sur iuj malmoder-naj domoj. Efektive ĝi estas malmoderna domo, tre angla kaj tre antaŭurba, sed antaŭurba laŭ la maniero de la malnovaj riĉulaj domoj de Clapham. Tamen, malgraŭ tio, ŝajnas, ke la domo estas spe-ciale konstruita por la varma vetero. Rigardante ĝiajn blankan koloraĵon kaj markezojn, oni ekpensas malprecize pri hindaj ventumi-loj kaj eĉ pri palmoj. Mi ne povas sekvi tiun senton ĝis ĝia radiko; eble la konstruaĵo estas farita de anglo el Hindujo.
 
 ĉiu preterpasanto, mi diras, estus nepriskribeble logita de la do-mo; sentus, jen loko pri kiu oni povas ion rakonti. Kaj li pravus, kiel vi baldaŭ konstatos. ĉar jen estas la rakonto… la rakonto pri la strangaj aferoj, kiuj vere okazis tie dum Pentekosto en la jaro 18—
 
 .
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Preterpasante la domon je la jaŭdo antaŭ Pentekosto, proksimume je la kvara kaj duono ptm. oni estus vidinta malfermiĝi la ĉefan pordon, kaj eliri Pastron Brown de la malgranda preĝejo de Sankta Mungo, fumante grandan pipon kaj akompanate de tre alta franca amiko sia, nomita Flambeau, kiu fumis tre malgrandan cigaredon. Tiuj ĉi personoj eble aŭ eble ne interesas la leganton sed estas la vero, ke ili ne estis la solaj interesaĵoj, kiuj montriĝis kiam malfermiĝis la ĉefpordo de la blanka kaj verda domo. Pri tiu ĉi do-mo estas pluaj strangaĵoj, kiuj devas esti priskribataj komence, ne nur por ke la leganto komprenu tiun ĉi tragedian rakonton sed an-kaŭ por ke li sciu kion malkaŝis la malfermiĝo de la pordo.
 
 La tuta domo estis konstruita en la formo de litero T sed temis pri T kun tre longa trabo kaj tre mallonga fosto. La longa trabo estis la fasado kiu flankis al la strato, kun la ĉefpordo en la mezo; ĝi havis du etaĝojn kaj enhavis preskaŭ ĉiujn el la gravaj ĉambroj. La mallonga fosto, kiu elstaris malantaŭe, tute kontraŭ la ĉefpordo, estis unuetaĝa kaj konsistis el du longaj ĉambroj, unu kondukanta al la alia. La unua el tiuj ĉi du ĉambroj estis la skriboĉambro en kiu la famkonata sinjoro Quinton verkis siajn fantaziajn orientajn po-emojn kaj romanojn. La ĉambro pli malproksima estis vitra kulturejo, plena de tropikaj floroj tute unike kaj pleskaŭ monstre belaj, kaj dum tiaj posttagmezoj radiantaj pro brilobela sunlumo. Tial kiam la ĉefpordo malfermiĝis, multaj preterpasantoj kutime haltis por rigardegi kaj spasmospiri; ĉar ili rigardis tra perspektivo de luksaj apartementoj al io, kio vere similis al la transformiĝa sceno en feteatraĵo: purpuraj nuboj kaj oraj sunoj kaj puncaj steloj, kiuj estis samtempe brulante brilegaj sed travideblaj kaj malproksimaj.
 
-Leonard Quinton, la poeto, mem estis tre zorge aranĝinta tiun ĉi efekton; kaj estas dube ĉu li tiel bone esprimis sian personecon per iu ajn el siaj poemoj. Li estis viro, kiu trinkis kaj sin banis en 130
-
-L A N A I V E CO D E PA ST RO B ROW N
+Leonard Quinton, la poeto, mem estis tre zorge aranĝinta tiun ĉi efekton; kaj estas dube ĉu li tiel bone esprimis sian personecon per iu ajn el siaj poemoj. Li estis viro, kiu trinkis kaj sin banis en
 
 
 koloroj kiu satigis sian avidon al koloro neglektante formon. . . eĉ konvenajn formalaĵojn. Estis tio, kio tiel plene turnis lian geniecon al orienta arto kaj figurado; al tiuj konfuzigaj tapiŝoj aŭ blindigaj brodaĵoj, en kiuj ŝajne ĉiuj koloroj estas kunfalintaj en feliĉanąoson, havantaj nenion por simboligi aŭ instrui. Li estis provinta, eble ne kun plene arta sukceso sed kun agnoskita imago kaj elpenso-povo, verki eposojn kaj amrakontojn respegulantajn la tumulton de perfortema kaj eĉ kruela koloro; rakontoj pri tropikaj ĉieloj el flamanta oro aŭ el sangoruĝa kupro; pri orientaj herooj, kiuj rajdis kun dek-du-tavolaj turbanoj sur elefantoj pentritaj purpure aŭ pavover-de; pri gigantaj gemoj, kiujn porti ne povis cent nigruloj, sed kiuj briladis per antikvaj kaj strangkoloraj fajroj.
 
 Mallonge (por esprimi la aferon de pli ordinara vidpunkto), li multe pritraktis orientajn paradizojn, iomete pli malbonajn ol la plimulto da okcidentaj inferoj; orientajn monarkojn, kiujn eble ni nomus maniuloj; kaj orientajn gemojn, kiujn eble Bond Strata ju-velisto, (okaze ke cent ŝanceliĝantaj nigruloj ilin portus en lian butikon) ne taksus kiel veraj. Quinton estis ja geniulo, eĉ se mense malsana geniulo; kaj eĉ lia malsaneco montriĝis plimulte en lia vivo ol en liaj verkoj. Temperamente li estis malforta kaj vespeca kaj lia korpsaneco multe suferis pro orientaj eksperimentoj kun opio. Lia edzino… belega, laborema kaj efektive tro-laboranta virino… malaprobis la opion sed malaprobis multe pli multe vivantan hindan ermiton en blankaj kaj flavaj roboj, kiun gastigi dum tutaj monataj insistis ŝia edzo, Vergilon por gvidi tra la paradizoj kaj inferoj de la Oriento lian spiriton.
 
-Elpaŝis el tiu ĉi artista domo sur la peronon Pastro Brown kaj lia amiko; kaj laŭ indiko de iliaj vizaĝoj, elpaŝante ili perdis grandan ŝarĝon. Flambeau estis koninta Quinton dum senrespondecaj student-tagoj en Parizo, kaj dum la semajnfino ili rekonatiĝis; sed mal-131
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-graŭ la nova kaj pli serioza evoluado de Flambeau, li ne tre glate rilatis kun la poeto. Sinsufoki per opio kaj skribi sur velenon volup-tajn strofetojn, ne estis laŭ lia opinio taŭga maniero por sinjoro iri al la diablo. Dum ili ambaŭ paŭzis sur la sojlo, antaŭ ol promeni en la ĝardeno, la ĝardena kradpordo estis abrupte kaj perforte malfermata, kaj junulo kun melonĉapelo sur la malantaŭa parto de la ka-po, faletante kuregis supren la ŝtupojn pro sia rapidema fervoro. Li estis diboĉemaspekta juna viro kun belega ruĝa kravato tute disordigita, kvazaŭ li estus enlitiĝinta ĝin portante, kaj li ne ĉesis moveti kaj vipeti ĉion per unu el tiuj malgrandaj artikaj kanoj.
+Elpaŝis el tiu ĉi artista domo sur la peronon Pastro Brown kaj lia amiko; kaj laŭ indiko de iliaj vizaĝoj, elpaŝante ili perdis grandan ŝarĝon. Flambeau estis koninta Quinton dum senrespondecaj student-tagoj en Parizo, kaj dum la semajnfino ili rekonatiĝis; sed malgraŭ la nova kaj pli serioza evoluado de Flambeau, li ne tre glate rilatis kun la poeto. Sinsufoki per opio kaj skribi sur velenon volup-tajn strofetojn, ne estis laŭ lia opinio taŭga maniero por sinjoro iri al la diablo. Dum ili ambaŭ paŭzis sur la sojlo, antaŭ ol promeni en la ĝardeno, la ĝardena kradpordo estis abrupte kaj perforte malfermata, kaj junulo kun melonĉapelo sur la malantaŭa parto de la ka-po, faletante kuregis supren la ŝtupojn pro sia rapidema fervoro. Li estis diboĉemaspekta juna viro kun belega ruĝa kravato tute disordigita, kvazaŭ li estus enlitiĝinta ĝin portante, kaj li ne ĉesis moveti kaj vipeti ĉion per unu el tiuj malgrandaj artikaj kanoj.
 
 ”Nu do,” li diris senspire, ”Mi volas vidi oĉjon Quinton. Mi devas lin vidi. ĉu li estas for?”
 
@@ -2407,9 +1963,6 @@ La junulo, kiu ŝajne ne estis tute sobra, ŝanceliĝis en la vestiblon; kaj je 
 ”Nu vidu do, amikĉjo,” diris la junulo kun la ruĝa kravato, provante dorlote kapti la kuraciston je la refaldo de lia surtuto. ”Vidu do, mi estas terure senmona. Mi asertas. Mi…”
 
 ”Ne utilas, sinjoro Atkinson,” diris la kuracisto igante lin malantaŭen paŝi; ”kiam vi povos ŝanĝi la sekvojn de drogo, mi ŝanĝos mian decidon,” kaj almetante la ĉapelon li elpaŝis en la sunlumon kun la du aliaj. Li estis taŭrokola, bonhumora vireto, kun malgranda liphararo, nepriskribeble ordinara, sed donanta impreson de kapableco.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 La junulo kun la melonĉapelo, kiu ŝajne tute ne posedis taktan talenton por pritrakti personojn, krom la ĝenerala ideo ekteni iliajn vestaĵojn, staris ekster la pordo, mirigite kvazaŭ li estus korpe elĵetita, kaj silente observis la aliajn foriri kune tra la ĝardeno.
@@ -2429,9 +1982,6 @@ Pastro Brown estis haltinta unu momenton kaj preninta el la longa herbo, kie ĝi
 ”Kio estas tio ĉi?” demandis Pastro Brown, alrigardante ĝin kun iom da malŝato.
 
 ”Ho, al Quinton, mi supozas,” diris d-ro Harris senzorge; ”li havas ĉiajn hindajn bagatelaĵojn en la domo. Aŭ eble ĝi apartenas al tiu milda hindo lia, kiun li gardas kvazaŭ per tenŝnuro.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Kiu hindo?” demandis Pastro Brown, ankoraŭ rigardegante la ponardon en sia mano.
@@ -2458,14 +2008,9 @@ Responde Flambeau alparolis al li kviete. ”La Pastro kelkfoje absorbiĝas en t
 
 ”Ho, sensencaĵo tio,” diris la sciencisto.
 
-”Nu, rigardu ĝin do,” kriis Pastro Brown, tenante la kurban tran-
-
-ĉilon per etendita brako, kvazaŭ ĝi estus briletanta serpento. ”ĉu vi ne vidas, ke ĝi havas malĝustan formon? i ne indikas, kiel lanco.
+”Nu, rigardu ĝin do,” kriis Pastro Brown, tenante la kurban tranĉilon per etendita brako, kvazaŭ ĝi estus briletanta serpento. ”ĉu vi ne vidas, ke ĝi havas malĝustan formon? i ne indikas, kiel lanco.
 
 i ne svingiras kiel falĉilo. i ne aspektas kiel batalilo. i aspektas kiel turmentilo.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Nu, ĉar vi ĝin ŝajne ne ŝatas,” diris la bonhumora Harris, ”pli bone ĝi estu redonata al sia posedanto. ĉu ni ankoraŭ ne alvenis al la fino de tiu ĉi malbenita plantejo? Tiu ĉi domo havas malĝustan formon, mi konsentas pri tio.”
@@ -2485,18 +2030,13 @@ Tute en ilia vojiro, tuj ekster la ronda finaĵo de la vitra konstruaĵo, staris
 ”ŝajnas kiel hipnotismo,” diris Flambeau mordante la nigrajn liphararojn.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Kial vi nemedicinaj homoj ĉiam paroladas sensencaĵon pri hipnotismo?” kriis la kuracisto. ”Multe pli similas al domrabado.”
 
 ”Nu, ni alparolu lin do almenaŭ,” diris Flambeau, kiu ĉiam estis preta por agado. Per unu longa paŝo li atingis la lokon kie staris la hindo. Kliniĝante de sia granda alteco, kiu superis eĉ tiun de la ori-entulo, li diris kun kvieta impertinenteco;
 
 ”Bonan vesperon, sinjoro. ĉu ion vi deziras?”
 
-Tute malrapide, kiel granda ŝipo turniĝante en havenon, turniĝis la granda flava vizaĝo kaj rigardis fine super sia blanka ŝultro. Ili miris vidante, ke la flavaj palpebroj estas tute kunsigelitaj kvazaŭ pro dormado. ”Dankon,” diris la vizaĝo bonstile anglalingve. ”Mi deziras nenion.” Tiam duone malfermante la palpebrojn, tiel vidigante fendeton da opaleca okuiglobo, li rediris, ”Mi deziras nenion.” Tiam li larĝe malfermis la okulojn kun teruriga rigardego kaj diris, ”Mi deziras nenion!” kaj iris susure for en la rapide mallumi-
-
-ĝantan ĝardenon.
+Tute malrapide, kiel granda ŝipo turniĝante en havenon, turniĝis la granda flava vizaĝo kaj rigardis fine super sia blanka ŝultro. Ili miris vidante, ke la flavaj palpebroj estas tute kunsigelitaj kvazaŭ pro dormado. ”Dankon,” diris la vizaĝo bonstile anglalingve. ”Mi deziras nenion.” Tiam duone malfermante la palpebrojn, tiel vidigante fendeton da opaleca okuiglobo, li rediris, ”Mi deziras nenion.” Tiam li larĝe malfermis la okulojn kun teruriga rigardego kaj diris, ”Mi deziras nenion!” kaj iris susure for en la rapide mallumiĝantan ĝardenon.
 
 ”Kristano estas pli modesta,” murmuris Pastro Brown; ”li deziras almenaŭ ion.”
 
@@ -2504,9 +2044,7 @@ Tute malrapide, kiel granda ŝipo turniĝante en havenon, turniĝis la granda fl
 
 ”Mi ŝatus paroli kun vi pli poste,” diris Pastro Brown.
 
-La sunlumo ankoraŭ estis realeca, sed estis la ruĝa lumo de vespero kaj la plejparto de la ĝardenaj arboj kaj arbustoj fariĝis kontraŭ ĝi pli kaj pli nigraj. Ili ĉirkaŭiris la finaĵon de la plantejo kaj marŝis silente laŭ la alia flanko por atingi la ĉefpordon. Dum ili iris, ili ŝajne vekis ion, kiel oni surprizas birdon, en la pli profunda angulo inter la skriboĉambro kaj la pli granda konstruaĵo; kaj denove ili vidis la blankroban fakiron elgliti el la ombro kaj kaŝiri al la ĉefpordo. Ili surpriziĝis tamen vidante, ke li ne estis sola. Ili sin trovis abrupte haltigataj kaj igataj forpeli sian konfuziĝon pro la apero de 136
-
-L A N A I V E CO D E PA ST RO B ROW N
+La sunlumo ankoraŭ estis realeca, sed estis la ruĝa lumo de vespero kaj la plejparto de la ĝardenaj arboj kaj arbustoj fariĝis kontraŭ ĝi pli kaj pli nigraj. Ili ĉirkaŭiris la finaĵon de la plantejo kaj marŝis silente laŭ la alia flanko por atingi la ĉefpordon. Dum ili iris, ili ŝajne vekis ion, kiel oni surprizas birdon, en la pli profunda angulo inter la skriboĉambro kaj la pli granda konstruaĵo; kaj denove ili vidis la blankroban fakiron elgliti el la ombro kaj kaŝiri al la ĉefpordo. Ili surpriziĝis tamen vidante, ke li ne estis sola. Ili sin trovis abrupte haltigataj kaj igataj forpeli sian konfuziĝon pro la apero de
 
 
 sinjorino Quinton, kun ŝia peza ora hararo kaj kvadrata pala vizaĝo, alproksimiĝanta al ili el la krepusko. ŝi mienis iomete severe tamen estis tute afabla.
@@ -2531,9 +2069,7 @@ respondis la pastro; ”Ni devas iom scii pri la menso kaj krome pri la korpo.�
 
 Ili estis preterpasintaj la angulon de la antaŭa fasado kaj alproksimiĝis al la ĉefpordo. Dum ili eniris tra tio, ili vidis por la tria fojo la viron en la blanka robo. Li iris tiel rekte al la ĉefpordo, ke ŝajnis tute nekredeble, ke li ne estas ĵus veninta el la skriboĉambro kontraŭ ĝi. Ili sciis tamen, ke la pordo de la skriboĉambro estas ŝlosita.
 
-Pastro Brown kaj Flambeau tamen konservis al si mem tiun ĉi strangan konfliktaĵon kaj d-ro Harris ne estis tia homo kia malŝparus sian pensopovon pensante pri neeblaĵoj. Li lasis eliri la ĉie-es-tantan aziulon kaj tiam enpaŝis vigle en la vestiblon. Tie li trovis iun, kiun li jam forgesis. La vanta Atkinson ankoraŭ restadis senokupe vagante, zumante kaj puŝetante aferojn per sia tubera kano. La vi-zaĝo de la kuracisto montris spasmon de abomeno kaj decidemo 137
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pastro Brown kaj Flambeau tamen konservis al si mem tiun ĉi strangan konfliktaĵon kaj d-ro Harris ne estis tia homo kia malŝparus sian pensopovon pensante pri neeblaĵoj. Li lasis eliri la ĉie-es-tantan aziulon kaj tiam enpaŝis vigle en la vestiblon. Tie li trovis iun, kiun li jam forgesis. La vanta Atkinson ankoraŭ restadis senokupe vagante, zumante kaj puŝetante aferojn per sia tubera kano. La vi-zaĝo de la kuracisto montris spasmon de abomeno kaj decidemo
 
 
 kaj li flustris rapide al sia kunulo: ”Mi devos reŝlosi la pordon, alie eniros tiu ĉi rato. Sed mi elvenos post du minutoj.”
@@ -2555,9 +2091,6 @@ Antaŭ ol fermiĝis la pordo, elvenis flugante tra la aperturo ora monero; kaj A
 ”ŝi estas suprenirinta al sia ĉambro,” diris la kuracisto. ”Jen ŝia ombro sur la kovrilo.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Pastro Brown suprenrigardis kaj brovsulkiĝante ekzamenadis la nigran konturon en la gaslumita fenestro.
 
 ”Jes,” li diris, ”tio estas ŝia ombro,” kaj li faris unu du paŝojn kaj sin ĵetis sur benkon.
@@ -2576,12 +2109,7 @@ La pejzaĝo fariĝis rapide malluma, kvazaŭ pro ŝtormo, sed ili povis ankoraŭ
 
 ”Kiam tiu hindo alparolis nin,” daŭrigis Brown kun babilada subvoĉo, ”mi vidis ian vizion, vizion pri li kaj la tuto de lia universo. Sed li diris nur la samajn vortojn tri fojojn. Kiam unuafoje li diris,
 
-‘Mi deziras nenion’, ĝi signifis nur, ke li estas nepenetrebla, ke Azio ne malkaŝas siajn sekretojn. Tiam li diris denove, ‘Mi deziras neni-139
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-on’, kaj mi eksciis, ke tio signifas, ke li por si mem sufiĉas, kiel kosmo, ke li bezonas neniun Dion, nek konfesas ajnajn pekojn. Kaj kiam la trian fojon li diris, ‘Mi deziras nenion’, li ĝin diris kun flamantaj okuloj. Kaj mi eksciis, ke li volas diri laŭvorte kion li diris; ke nenio estas lia deziro kaj lia hejmo; ke li laciĝas avide al nenio kiel aliulo al vino; ke neniiĝo, la nura ekstermo de ĉio aŭ io…”
+‘Mi deziras nenion’, ĝi signifis nur, ke li estas nepenetrebla, ke Azio ne malkaŝas siajn sekretojn. Tiam li diris denove, ‘Mi deziras nenion’, kaj mi eksciis, ke tio signifas, ke li por si mem sufiĉas, kiel kosmo, ke li bezonas neniun Dion, nek konfesas ajnajn pekojn. Kaj kiam la trian fojon li diris, ‘Mi deziras nenion’, li ĝin diris kun flamantaj okuloj. Kaj mi eksciis, ke li volas diri laŭvorte kion li diris; ke nenio estas lia deziro kaj lia hejmo; ke li laciĝas avide al nenio kiel aliulo al vino; ke neniiĝo, la nura ekstermo de ĉio aŭ io…”
 
 Falis du gutoj da pluvo; kaj ial Flambeau eksaltetis kaj ekrigardis supren, kvazaŭ li estus pikita de tio. Kaj la saman momenton la kuracisto, malproksime apud la plantejo, ekkuris en ilian direkton, kriante ion dum li kuris.
 
@@ -2599,12 +2127,7 @@ Kio estas, doktoro?”
 
 ”Mi restu tie ĉi por lin observi,” rapide diris Flambeau. ”Vi eniru kaj konstatu.”
 
-La kuracisto kaj la pastro flugrapidis al la pordo de la skriboĉambro, malŝlosis ĝin kaj falis en la ĉambron. Tion farante ili preskaŭ falis sur la grandan mahagonan tablon, en la mezo, kie kutime skribis la poeto; ĉar la loko estis lumigata nur de malgranda fajro, bru-140
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-lanta por la malsanulo. En la mezo de tiu ĉi tablo troviĝis sola paperfolio, memevidente tie intence lasita. La kuracisto ektenis ĝin, rigardetis ĝin, transdonis ĝin al Pastro Brown, kaj kriante, ”Bona Dio, rigardu tion!” sin ĵetis en la vitran ĉambron preteran, kie la teruraj tropikaj floroj ŝajne ankoraŭ tenis memoron de la sunsubiro.
+La kuracisto kaj la pastro flugrapidis al la pordo de la skriboĉambro, malŝlosis ĝin kaj falis en la ĉambron. Tion farante ili preskaŭ falis sur la grandan mahagonan tablon, en la mezo, kie kutime skribis la poeto; ĉar la loko estis lumigata nur de malgranda fajro, brulanta por la malsanulo. En la mezo de tiu ĉi tablo troviĝis sola paperfolio, memevidente tie intence lasita. La kuracisto ektenis ĝin, rigardetis ĝin, transdonis ĝin al Pastro Brown, kaj kriante, ”Bona Dio, rigardu tion!” sin ĵetis en la vitran ĉambron preteran, kie la teruraj tropikaj floroj ŝajne ankoraŭ tenis memoron de la sunsubiro.
 
 Pastro Brown legis tri fojojn la vortojn antaŭ ol li demetis la paperon. La vortoj estis jenaj ”Mi mortas propramane; sed mi mortas murdite.” Tio estis en la tute neimitebla, eĉ nelegebla manskribo de Leonard Quinton.
 
@@ -2615,9 +2138,6 @@ Ili iris kune tra la grandiozan nenaturan belecon, kakta kaj aza-lea, kaj trovis
 Ekstere la ŝtormo estis alveninta per unu paŝo, kaj la ĝardeno kaj la vitra tegmento estis mallumigataj de pelanta pluvo. Pastro Brown ŝajne atentis pli pri la papero ol pri la kadavro; li ĝin tenis antaŭ la okuloj kaj ŝajnis provi ĝin legi en la krepusko. Tiam li tenis ĝntraŭ la malforta lumo kaj dum li tion faris, fulmo rigardegis al ili dum unu sekundo tiel blanke, ke la papero kontraste ŝajnis nur nigra.
 
 Mallumo plena de tondrado sekvis, kaj post la tondrado, diris el la mallumo la voĉo de Pastro Brown; ”Doktoro, tiu ĉi papero havas malĝustan formon.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Kion vi volas diri?” demandis D-ro Harris, kun brovsulka rigardego.
@@ -2644,12 +2164,7 @@ Dum ili reiris tra la skriboĉambro li haltis ĉe la tablo kaj prenis malgrandan
 
 Ankaŭ tie ĉi li trovis dramon, kvankam de pli groteska speco.
 
-Montriĝis nenio malpli grava ol lia granda amiko Flambeau en pozo dum longa tempo nekutima ĉe li, dume sur la vojeto antaŭ la ŝtuparo estis sternita, la botoj en la aero, la aminda Atkinson, la melona ĉapelo kaj kano ĵetitaj fluge en kontraŭajn direktojn laŭ la vo-142
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-jeto. Atkinson estis fine tediĝinta pri la preskaŭ patra zorgado de Flambeau, kaj estis provinta lin perforte faligi, kio estis neniel facila ludo por ludi kun la Roi des Apaches, eĉ post la abdiko de tiu monarko.
+Montriĝis nenio malpli grava ol lia granda amiko Flambeau en pozo dum longa tempo nekutima ĉe li, dume sur la vojeto antaŭ la ŝtuparo estis sternita, la botoj en la aero, la aminda Atkinson, la melona ĉapelo kaj kano ĵetitaj fluge en kontraŭajn direktojn laŭ la vojeto. Atkinson estis fine tediĝinta pri la preskaŭ patra zorgado de Flambeau, kaj estis provinta lin perforte faligi, kio estis neniel facila ludo por ludi kun la Roi des Apaches, eĉ post la abdiko de tiu monarko.
 
 Flambeau estis saltonta sur sian kontraŭulon por lin fiksi denove, kiam la pastro lin frapetis afable surŝultre.
 
@@ -2666,9 +2181,6 @@ Flambeau estis saltonta sur sian kontraŭulon por lin fiksi denove, kiam la past
 ”Nu, lia eskapo estas nenio,” diris Flambeau. ”ĉar ni estus povin-taj nek pruvi nek fari ion kontraŭ li. Apenaŭ oni povas alvoki la lokan policanaron pro rakonto pri sinmortigo efektivigita per ma-giado aŭ memsugestiado.”
 
 Dume Pastro Brown estis trovinta la vojon al la domo kaj iris por malkaŝi la novaĵon al la edzino de la mortinto.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Kiam li denove eliris li mienis iomete pale kaj tragedie, sed kio pasis inter ili dum tiu intervjuo neniam sciiĝis, eĉ kiam ĉio sciiĝis.
@@ -2688,9 +2200,6 @@ Ili instalis smforte en la veranda seĝo; Pastro Brown, malgraŭ sia kutimo, akc
 ”Mia amiko,” fine li diris, ”temas pri tre stranga afero. Tre stranga afero.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Tia mi kredas, ke ĝi certe estas,” diris Flambeau kun io kio tre similis al ektremo.
 
 ”Vi nomas ĝin stranga kaj mi nomas ĝin stranga,” diris la alia,
@@ -2708,9 +2217,6 @@ La blanka fulmo malfermis sian grandegan okulon kun unu sola palpebrumo, la ĉie
 ”El la tuto de tiuj ĉi malrektaj aĵoj, la plej malrekta estis la formo de tiu paperfolio. Tio estis pli malrekta ol la ponardo, kiu mortigis lin.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Vi parolas pri la papero sur kiu Quinton konfesis sian sinmortigon,” diris Flambeau.
 
 ”Mi parolas pri la papero sur kiu Quinton skribis ‘Mi mortas propramane’,” respondis Pastro Brown. ”La formo de tiu papero, amiko mia, estis formo malĝusta; formo malĝusta se tion mi iam vidis en tiu ĉi malvirta mondo.”
@@ -2723,12 +2229,7 @@ Kaj li svingis sian brulantan cigaron antaŭ si en la mallumo, skribante neregul
 
 ”Tamen,” diris Flambeau, dum la pastro remetis denove la cigaron en la buŝon kaj malantaŭen kliniĝis rigardegante al la supraĵo. ”Supozu, ke iu alia efektive ŭzis la tondilon. Kiel iu alia fort-ondante pecojn de lia skribpapero, igus Quinton sinmortigi?”
 
-Pastro Brown ankoraŭ kliniĝis malantaŭen, kaj rigardegis la su-146
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-praĵon, sed li prenis la cigaron el sia buŝo kaj diris: ”Efektive Quinton ne sinmortigis.”
+Pastro Brown ankoraŭ kliniĝis malantaŭen, kaj rigardegis la supraĵon, sed li prenis la cigaron el sia buŝo kaj diris: ”Efektive Quinton ne sinmortigis.”
 
 Flambeau rigardis lin. ”Nu, malbenu ĉion.” li kriis, ”kial do li konfesis sinmortigon?”
 
@@ -2757,9 +2258,6 @@ Heliĝis la vizaĝo de Flambeau kaj li diris; ”Estis io alia skribita de Quint
 ”Kion pri citiloj?” diris la pastro kaj ĵetis la cigaron malproksimen en la mallumon kia falanta stelo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ĉiuj vortoj forlasis la langon de la alia viro, kaj Pastro Brown diris, kiel iu revenanta al fundamentaĵoj;
 
 ”Leonard Quinton estis romanisto kaj estis verkanta romanon pri magio kaj hipnotismo. Li…”
@@ -2776,12 +2274,7 @@ ESTIMATA PASTRO BROWN,—Vicisti Galilĝe. Alie estu malbenitaj via okuloj, kiuj
 
 ”Mi amis la edzinon de Quinton. Kio estis malbona pri tio? La naturo diris al mi, kaj la amo implusas la mondon. Mi ankaŭ pensis tute sincere, ke ŝi estos pli feliĉa, kun pura besto kiel mi, ol kun tiu turmentiga sensenculo. Kio estas malbona pri tio? Mi simple kalkulis la faktonj kiel scienculo. ŝi estus pli feliĉa.
 
-”Laŭ mia propra kredaro mi libere estus povinta mortigi Quin-148
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ton, kio estis la plej bona afero por ĉiu, eĉ li mem. Sed kiel sana besto mi tute ne intencis mortigi min. Mi decidis tial, ke tion mi neniam faros ĝis mi ekvidos okazon, kiu lasus min tute libera. Tiun okazon mi ekvidis hodiaŭ matene.
+”Laŭ mia propra kredaro mi libere estus povinta mortigi Quinton, kio estis la plej bona afero por ĉiu, eĉ li mem. Sed kiel sana besto mi tute ne intencis mortigi min. Mi decidis tial, ke tion mi neniam faros ĝis mi ekvidos okazon, kiu lasus min tute libera. Tiun okazon mi ekvidis hodiaŭ matene.
 
 ”Entute mi eniris la skriboĉambron de Quinton tri fojojn hodiaŭ. La unuan fojon kiam mi eniris li volis priparoli nenion krom la strangega rakonto, nomita ‘La Malbeno de Sanktulo’, kiun li verkis, kiu rakontas kiel iu hinda ermito igis anglan kolonelon sinmortigi, senĉese pensante pri li. Li montris al mi la finajn tri foliojn kaj eĉ legis al mi la lastan paragrafon, kiu estis kiel jene: ‘La vinkinto de la Punĝab, nura flava skeleto, sed ankoraŭ giganta, iel sin levis sur la kubuto kaj spasme flustris en la orelon de sia nevo; ‘mi mortas propramane, sed mi mortas murdite.’” Tiel okazis per unu ŝanco el cent, ke tiuj fina vortoj estis skribitaj ĉe la komenco de nova folio.
 
@@ -2790,22 +2283,14 @@ Mi eliris el la ĉambro kaj iris en la ĝardenon ebriigite de la terurige favora
 ”Ni promenis ĉirkaŭ la domo; kaj okazis du aferoj plu, kiuj estis favoraj al mi. Vi suspektis hindon kaj vi trovis ponardon, kiun plej kredeble uzus la hindo. Kaptante la okazon ĝin ŝovi en la poŝon mi reiris al la skriboĉambro de Quinton, ŝlosis la pordon, kaj donis al li la dormigaĵon. Li volis tute ne respondi al Atkinson, sed mi instigis al li laŭtvoki por kvietigi la junulon, ĉar mi bezonis nepran pruvon, ke Quinton vivis kiam mi por la dua fojo lasis la ĉambron. Miaj manoj estas sufiĉe lertaj kaj rapidoj kaj post minuto kaj duono mi estis farinta kion mi volis. Mi estis ŝutinta en la fajron la unuan parton de la romano de Quinton, kie ĝi brulis ĝis cindroj. Tiam mi ekvidis, ke la citiloj ja ne taŭgas, tial tiujn mi fortondis, kaj por ke ŝajnu pli kredeble, tiel tondis la tuton. Tiam mi eliris sciante, ke kuŝas sur la tablo la sinmortiga konfeso de Quinton, dum Quinton mem kuŝas vivante sed dormante en la pretera plantejo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”La lasta ago estis sovaĝa; vi povas divini ĝin: mi ŝajnigis estis vidinta Quinton senviva, kaj kuregis en ties ĉambron. Mi haltigis vin per la papero kaj; estante lerta pri la manoj, mortigis Quinton dum vi legis lian sinmortigo-konfeson. Li duone dormis, estante sub la influo de la drogo, kaj mi metis lian propran manon al la tranĉi-lo kaj puŝis ĝin en lian korpon. La tranĉilo havis tian strangan formon, ke neniu krom operaciisto estus povinta taksi la direkton por trafi lian koron. Mi scivolas ĉu vi rimarkis tion.
 
-”Kiam mi estis tion farinta, okazis eksterordinara afero. La Naturo forlasis min. Mi sentis min malsana. Mi sentis kvazaŭ mi estas farinta ion malbonan. Mi kredas, ke mia cerbo diskadukiĝas; mi sentas ian senesperan plezuron, pensante, ke mi pridiris la aferon al iu; ke mi ne devos resti sola kun ĝi, se mi edziĝos kaj havos infanojn. Kio estas ĉe mi? Freneziĝo… aŭ ĉu iu povas senti sinripro-
-
-ĉon, kiel en la poemoj de Byron. Skribi plu mi ne povas.
+”Kiam mi estis tion farinta, okazis eksterordinara afero. La Naturo forlasis min. Mi sentis min malsana. Mi sentis kvazaŭ mi estas farinta ion malbonan. Mi kredas, ke mia cerbo diskadukiĝas; mi sentas ian senesperan plezuron, pensante, ke mi pridiris la aferon al iu; ke mi ne devos resti sola kun ĝi, se mi edziĝos kaj havos infanojn. Kio estas ĉe mi? Freneziĝo… aŭ ĉu iu povas senti sinriproĉon, kiel en la poemoj de Byron. Skribi plu mi ne povas.
 
 JAMES ERSKINE HARRIS.”
 
 
 Pastro Brown zorge faldis la leteron kaj ĝin metis en sian brustpoŝon ĝuste kiam venis laŭta tintado de la sornorilo ĉe la kradpordo kaj brilis la malsekaj pluvoŝirmiloj de pluraj policanoj en la vojo ekstera.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 LA PEKOJ DE LA PRINCO SARADINE
@@ -2819,16 +2304,11 @@ Li havis ian duon-celon, kiun li konsideris ĝuste tiel serioze, ke ĝia sukceso
 ĝia malsukceso ne igus ĝin vana. Antaŭ multaj jaroj, kiam li estis rabista reĝo kaj la plej famkonata persono en Parizo, li ofte ricevis senrespondecajn komunikaĵojn, aprobajn, malaprobajn, kaj eĉ amesprimantajn; sed iu el ili aparte iel restadis en lia memoro. Tio konsistis nur el vizitkarto en koverto portante anglan poŝtstampon.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Sur la malantaŭa parto de la karto estis france skribita per verda ; ”Se vi iam eksiĝos kaj fariĝos respektinda, venu min viziti. Mi volas renkonti vin, ĉar mi estas renkontinta ĉiujn aliajn eminentu-lojn de mia epoko. Tiu ruzo via, igi unu detektivo aresti alian estis la plej grandioza sceno el la tuta franca historio.” Sur la antaŭa parto de la karto estis gravurita laŭ la formala maniero, ”La Princo Saradine, Junka Domo, Junkinsulo, Norfolko.”
 
 Tiutempe li ne tro ĝenis sin pri la princo, krom elserĉi, ke li estis brilanta kaj laŭmoda ulo en Sud-Italujo. Dum lia juneco, onidi-re, li amforkuris kun altranga edzino; al lia societa mondo la peto-laĵo estis apenaŭ miriga, ĝi tamen fiksiĝis en ĉies memoro pro alia tragedio; la laŭdira sinmortigo de la malhonorita edzo, kiu ŝajne sin ĵetis de krutaĵo en Sicilio. Poste, ioman tempon la princo loĝis en Vieno, sed liajn plej lastajn jarojn li ŝajne pasigis per senĉesa kaj senripoza veturado. Kiam tamen Flambeau, kiel la princo mem, forlasis eŭropan eminentecon kaj ekloĝis en Anglujo, venis en lian menson viziti senanonce tiun ĉi eminentan ekziliton en la Nor-folkjaj lagoj. ĉu li trovos la lokon aŭ ne li tute ne sciis; kaj ĝi efektive estis sufiĉe malgranda kaj forgesita. Okazis tamen, ke li ĝin trovis multe pli frue ol li atendis.
 
-Iun nokton ili estis aligintaj sian boaton sub rifo vualita de altkreskaj herboj kaj senkapigitaj arboj. Dormo, post forta remado, estis tre frue falinta sur ilin, kaj pro tio ankaŭ ili vekiĝis antaŭ ol lumo aperis. Parolante pli precize, ili vekiĝis antaŭ ol taglumo aperis; ĉar granda citrona luno estis nur ĵus subiranta en la densaĵo el altkreska herbo super iliaj kapoj, kaj la ĉielo estis brilanta purpur-blue, nokteca sed hela. Ambaŭ viroj samtempe spertis rememoron pri infaneco, pri la kobolda aventurplena tempo kiam altkreskaj herbaĉoj kaŝas nin kiel arbaroj. Tiel starante kontraŭ la larĝa sve-banta luno, la lekantetoj ŝajnis vere esti gigantulaj lekantetoj, la 152
-
-L A N A I V E CO D E PA ST RO B ROW N
+Iun nokton ili estis aligintaj sian boaton sub rifo vualita de altkreskaj herboj kaj senkapigitaj arboj. Dormo, post forta remado, estis tre frue falinta sur ilin, kaj pro tio ankaŭ ili vekiĝis antaŭ ol lumo aperis. Parolante pli precize, ili vekiĝis antaŭ ol taglumo aperis; ĉar granda citrona luno estis nur ĵus subiranta en la densaĵo el altkreska herbo super iliaj kapoj, kaj la ĉielo estis brilanta purpur-blue, nokteca sed hela. Ambaŭ viroj samtempe spertis rememoron pri infaneco, pri la kobolda aventurplena tempo kiam altkreskaj herbaĉoj kaŝas nin kiel arbaroj. Tiel starante kontraŭ la larĝa sve-banta luno, la lekantetoj ŝajnis vere esti gigantulaj lekantetoj, la
 
 
 leontodoj gigantulaj leontodoj. Iel tio rememorigis ilin pri la bordo de infaneja tapeto. La malalta nivelo de la rivero sufiĉis por mallevi ilin ĝis sub la radikoj de ĉiuj arbustoj kaj floroj kaj devigis ilin supren rigardadi al la herbo.
@@ -2843,9 +2323,7 @@ Patro Brown eksidis rekte en la boato kaj faris krucsignon. Ties movo estis tiel
 
 ”Bone,” diris Pastro Brown. ”Mi neniam diris, ke estas ĉiam kulpe eniri felandon. Mi nur diris, ke estas ĉiam danĝere.”
 
-Ili sin puŝis malrapide kontraŭ la fluo de la lumiĝanta rivero; la radianta purpuro de la ĉielo kaj la pala oro de la luno fariĝis pli kaj pli malfortaj kaj malaperis en tiun larĝan senkoloran kosmon, kiu antaŭiras la kolorojn de la tagiĝo. Kiam la unuaj malfortaj strioj ruĝaj kaj oraj kaj grizaj fendis la horizonton de unu fino ĝis la alia, ili estis interrompataj de la nigra amaso de urbeto aŭ vilaĝo, kiu sidis sur la rivero proksime antaŭ ili. Kiam ili alvenis sub la superpendantaj tegmentrandoj kaj pontoj de tiu ĉi riverborda vilaĝeto, jam estis sufiĉe forta lumo, per kiu ĉio estis videbla. La domoj, kun iliaj longaj, malleviĝintaj kaj kliniĝaj tegmentoj ŝajnis iri por trinki ĉe la rivero, kiel kolosaj grizaj kaj ruĝaj bovoj. La larĝiĝanta kaj blankiĝanta tagiĝo estis jam fariĝinta la vera laborinstiganta taglumo antaŭ ol ili ekvidis ajnan vivantan kreitaĵon sur la kajoj kaj 153
-
-L A N A I V E CO D E PA ST RO B ROW N
+Ili sin puŝis malrapide kontraŭ la fluo de la lumiĝanta rivero; la radianta purpuro de la ĉielo kaj la pala oro de la luno fariĝis pli kaj pli malfortaj kaj malaperis en tiun larĝan senkoloran kosmon, kiu antaŭiras la kolorojn de la tagiĝo. Kiam la unuaj malfortaj strioj ruĝaj kaj oraj kaj grizaj fendis la horizonton de unu fino ĝis la alia, ili estis interrompataj de la nigra amaso de urbeto aŭ vilaĝo, kiu sidis sur la rivero proksime antaŭ ili. Kiam ili alvenis sub la superpendantaj tegmentrandoj kaj pontoj de tiu ĉi riverborda vilaĝeto, jam estis sufiĉe forta lumo, per kiu ĉio estis videbla. La domoj, kun iliaj longaj, malleviĝintaj kaj kliniĝaj tegmentoj ŝajnis iri por trinki ĉe la rivero, kiel kolosaj grizaj kaj ruĝaj bovoj. La larĝiĝanta kaj blankiĝanta tagiĝo estis jam fariĝinta la vera laborinstiganta taglumo antaŭ ol ili ekvidis ajnan vivantan kreitaĵon sur la kajoj kaj
 
 
 pontoj de tiu silenta urbo. Fine ili vidis tre serenan kaj prosperan viron sen jako kaj nudbraka, kun vizaĝo tiel ronda kiel la ĵus sub-irinta luno, kaj kun radioj el ruĝaj barbharoj sub lia malsupra arko, kiu apogis sin al fosto super la malrapida tajdo. Pro impulso neklarigebla, Flambeau leviĝis ĝis sia pleja alteco en la svingiĝanta boato kaj laŭtkriis al la viro, demandante ĉu li konas Junkinsulon aŭ Junkan Domon. La rideto de la prospera viro fariĝis iomete pli larĝa kaj li nur etendis la brakon kaj elmontris laŭlonge de la rivero ĝian pliproksiman kurbon. Flambeau antaŭeniris sen plua parolado.
@@ -2859,19 +2337,11 @@ La boato ĉirkaŭiris multajn herbajn angulojn kaj sekvis multajn tiajn junkkovr
 Tamen eĉ dum li parolis la impulsema Flambeau estis alteriginta sian boaton inter la klakantaj junkoj, kaj ili staris sur la longa stranga insuleto, apud la kurioza kaj silenta domo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 La domo staris tiel ke ĝia malantaŭa parto alrigardis al la rivero kaj la sola alteriĝejo; la ĉefa enirejo troviĝis ĉe la alia flanko kaj alrigardis laŭlonge la longan insulan ĝardenon. La vizitantoj tial alproksimiĝis ĝin per mallarĝa vojeto ĉirkaŭanta preskaŭ tri flan-kojn de la domo, sub la malaltaj tegmentrandoj. Tra tri malsamaj fenestroj, ĉe tri malsamaj flankoj, ili enrigardis al la sama longa, bone lumita ĉambro, panelita per pala ligno, kun granda nombro da speguloj kaj aranĝita kvazaŭ por eleganta tagmanĝo. La antaŭa pordo, kiam ili fine atingis ĝin, havis ambaŭflanke turkis-bluan kreskaĵujon. i estis malfermata de ĉeflakeo de la pli malgaja speco—longa, maldika, griza kaj malverva kiu—murmuris, ke la Princo Saradine estas nuntempe for, oni atendas tamen lian alvenon en iu ajn horo; la domo estas preta por li kaj liaj gastoj. Elmontro de la karto kun la verdinka skribaĉo elvokis signon de vivo sur la per-gamena vizaĝo de tiu ĉi malgaja servisto, kaj estis kun iu tremema
 
 ĝentileco, ke li proponis, ke la fremduloj restu. ”Lia Moŝto eble alvenos nun iun ajn minuton” li diris, ”kaj havus ĉagrenon se li ĵus preterlasus sinjoron kiun li invitis. Oni ordonis, ke ni havu ĉiam preta iom da malvarma tagmangaĵo por li kaj liaj amikoj kaj mi estas certa, ke li dezirus, ke ĝi estu prezentata.”
 
-Instigite de scivolemeco al tiu ĉi negrava aventuro Flambeau bonvole konsentis kaj sekvis la maljunulon, kiu lin ceremonie enkondukis en la longan, pale panelitan ĉambron. Pri ĝi estis nenio tre rimarkinda, krom la iomete nekutima alternado de multaj larĝaj fenestroj inter multaj larĝaj malaltaj oblongoj el spegul-vitro, kiuj donis al ĝi strangan aspekton de lumeco kaj sensubstanteco. Estis kvazaŭ tagmanĝi subĉiele. Unu aŭ du bildoj de neelstaranta speco pendis en la anguloj, unu granda griza fotografaĵo de tre juna viro en uniformo, alia ruĝkreta skizo de du longharaj knaboj. Responde al demando de Flambeau, ĉu la persono kun la militista aspek-155
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-to estas la princo, la servisto abrupte diris, ke ne; tio estas la pli juna frato de l’princo, Kapitano Stefano Saradine. Kaj sekve de tio la majunulo ŝajne subite perdis ĉiun deziron por plua interpapolado.
+Instigite de scivolemeco al tiu ĉi negrava aventuro Flambeau bonvole konsentis kaj sekvis la maljunulon, kiu lin ceremonie enkondukis en la longan, pale panelitan ĉambron. Pri ĝi estis nenio tre rimarkinda, krom la iomete nekutima alternado de multaj larĝaj fenestroj inter multaj larĝaj malaltaj oblongoj el spegul-vitro, kiuj donis al ĝi strangan aspekton de lumeco kaj sensubstanteco. Estis kvazaŭ tagmanĝi subĉiele. Unu aŭ du bildoj de neelstaranta speco pendis en la anguloj, unu granda griza fotografaĵo de tre juna viro en uniformo, alia ruĝkreta skizo de du longharaj knaboj. Responde al demando de Flambeau, ĉu la persono kun la militista aspekto estas la princo, la servisto abrupte diris, ke ne; tio estas la pli juna frato de l’princo, Kapitano Stefano Saradine. Kaj sekve de tio la majunulo ŝajne subite perdis ĉiun deziron por plua interpapolado.
 
 Post ol la tagmanĝo estis finiĝinta per kafo kaj likvoroj el la plej bonaj, oni konatigis al la gastoj la ĝardenon, la lego-ĉambron kaj la domintendantinon—nigreta, belega sinjorino, de nenia malgranda majesteco, kaj iel simila al plutona Madono. Montriĝis, ke ŝi kaj la servisto estas la solaj restantoj el la originala fremdula servistaro de l’princo; la aliaj servistoj estis ĉiuj novaj kaj estis kolektitaj en Norfolk de la intendantino. ĉi ties nomo esti sinjorino Anthony; ŝi tamen parolis per iomete itala akcentado kaj Flambeau ne dubis, ke Anthony estas Norfolka formo de iu pli latinida nomo. S-ro Paŭlo, la servisto, ankaŭ havis apenaŭ rimarkeblan fremdulan mienon; laŭ lingvo kaj edukado tamen li estis angla, kiel multaj el la plej rafinitaj servistoj de la kosmopolita nobelaro.
 
@@ -2879,18 +2349,14 @@ Beleta kaj unika, la loko havis tamen strangan luman malgaje-con. Horoj forpasis
 
 ”Ni prenis malĝustan vojon kaj estas venintaj al malĝusta loko,”
 
-diris Pastro Brown, rigardante tra la fenestro al la griz-verdaj karek-soj kaj la arĝenta fluo. ”Ne gravas; oni ofte povas fari bonagon, estante la taŭga persono ĉe la malĝusta loko.” Pastro Brown, kvankam kutime silenta estis aparte sentema vireto, kaj dum tiuj malmultaj sed senfinaj horoj li senkonscie absorbiĝis pli profunde en la sekretojn de Junkdomo ol sia profesia amiko. Li posedis tiun lerton de simpatia silento kiu estas tiel necesa por babilado; kaj dirante apenaŭ unu vorton li kredeble eltiris el siaj novaj konatuloj ĉion, kion ili 156
-
-L A N A I V E CO D E PA ST RO B ROW N
+diris Pastro Brown, rigardante tra la fenestro al la griz-verdaj karek-soj kaj la arĝenta fluo. ”Ne gravas; oni ofte povas fari bonagon, estante la taŭga persono ĉe la malĝusta loko.” Pastro Brown, kvankam kutime silenta estis aparte sentema vireto, kaj dum tiuj malmultaj sed senfinaj horoj li senkonscie absorbiĝis pli profunde en la sekretojn de Junkdomo ol sia profesia amiko. Li posedis tiun lerton de simpatia silento kiu estas tiel necesa por babilado; kaj dirante apenaŭ unu vorton li kredeble eltiris el siaj novaj konatuloj ĉion, kion ili
 
 
 iel dirus. La servisto estis laŭnature nebabilema. Li montris mala-fablan kaj preskaŭ bestan amon al sia mastro; kiun, li asertis, oni tre malbone pritraktis. La elstaranta kulpulo ŝajne estis la frato de Lia Moŝto, kies nura nomo plilongigis la malgrasajn vangojn de la maljunulo kaj rikane sulkigis lian papagan nazon. Kapitano Stefano estis sentaŭgulo ŝajne, kaj estis forpreninta de sia bonvola frato centojn kaj milojn da pundoj; igis lin forflugi de la laŭmoda vivado kaj pasigi liajn tagojn en tiu ĉi trankvila azilo. Tio estis ĉio, kion Paŭlo la servisto intencis diri, kaj Paŭlo videble estis partiulo.
 
 La itala intendantino estis iomete pli informema, estante, Brown imagis, iomete malpli kontenta. Tio, kion ŝi diris pri sia mastro, estis iomete acida kvankam ne sen iom de timo. Flambeau kaj lia amiko staris en la spekugla ĉambro ekzamenante la ruĝan skizon de la du knaboj, kiam enrapidegis la intendantino pro iu mastruma ko-misio. Estis propra karakterizo de tiu ĉi brilanta, de vitro panelita ĉambro, ke iu ajn ĝin enirante fariĝis respegulata en kvar aŭ kvin speguloj samtempe; kaj Pastro Brown sin ne turninte, haltis meze de frazo de prifamila kritiko. Flambeau tamen, kies vizaĝo estis apud la bildo, estis jam laŭtvoĉe dirante, ”La fratoj Saradine, supozeble. Ili ambaŭ aspektas sufiĉe senkulpaj. Estus malfacile diri kiu estas la bona frato kaj kiu la malbona.” Tiam, kanstatinte la ĉeeston de la sinjorino, li ŝanĝis la interparoladon al iu banalaĵo kaj eliris promeni en la ĝardenon. Pastro Brown tamen ankoraŭ fikse rigardadis la ruĝkretan skizon; kaj sinjorino Anthony ankoraŭ fikse rigardadis Pastron Brown.
 
-ŝi havis grandajn kaj tragediplenajn brunokulojn kaj ŝia oliva vizaĝo malhele ardis de iu stranga kaj dolora scivoleco—kiel de iu kiu dubas pri la identeco aŭ intenco de fremdulo. ĉu la vestaĵoj kaj religio de la malgranda pastro tuŝis iujn sudajn memorojn pri kon-fesado, aŭ ĉu ŝi imagis, ke li scias pli ol li efektive sciis, ŝi diris al li 157
-
-L A N A I V E CO D E PA ST RO B ROW N
+ŝi havis grandajn kaj tragediplenajn brunokulojn kaj ŝia oliva vizaĝo malhele ardis de iu stranga kaj dolora scivoleco—kiel de iu kiu dubas pri la identeco aŭ intenco de fremdulo. ĉu la vestaĵoj kaj religio de la malgranda pastro tuŝis iujn sudajn memorojn pri kon-fesado, aŭ ĉu ŝi imagis, ke li scias pli ol li efektive sciis, ŝi diris al li
 
 
 per mallaŭta voĉo, kvazaŭ al kunulo de la sama komploto, ”Li estas prava pri io, via amiko. Li asertas, ke estus malfacile distingi inter la bona kaj la malbona frato. Ho, ja estus malfacile, estus ege malfacile elekti la bonan.”
@@ -2905,9 +2371,7 @@ Fariĝis lumo sur la forturnita vizaĝo de la pastro kaj lia buŝo formis silent
 
 ”Lia Moŝto,” li diris, ”estas ĵus alveninta.”
 
-En la sama momento la figuro de viro estis preterpasinta ekster la unua fenestro, transirante la sunluman vitraĵon kiel lumigitan scenejon. Unu momenton poste li pasis ĉe la dua fenestro kaj la multnombraj speguloj repentris en la sekvantaj kadroj la saman aglosimilan profilon kaj marŝantan figuron. Li estis rekta kaj vigla, sed lia hararo estis blanka kaj lia vizaĝkoloro de stranga ebura fla-vo. Li havis tian mallongan kurbitan romanan nazon kia estas plej ofte akompanata de longaj, maldikaj vangoj kaj mentono, tiuj ĉi tamen estis kaŝataj iomete de lipharoj kaj vanghararo. La lipharoj estis multe pli nigraj ol la barbo, kaj la efekto estis iomete teatra. Li 158
-
-L A N A I V E CO D E PA ST RO B ROW N
+En la sama momento la figuro de viro estis preterpasinta ekster la unua fenestro, transirante la sunluman vitraĵon kiel lumigitan scenejon. Unu momenton poste li pasis ĉe la dua fenestro kaj la multnombraj speguloj repentris en la sekvantaj kadroj la saman aglosimilan profilon kaj marŝantan figuron. Li estis rekta kaj vigla, sed lia hararo estis blanka kaj lia vizaĝkoloro de stranga ebura fla-vo. Li havis tian mallongan kurbitan romanan nazon kia estas plej ofte akompanata de longaj, maldikaj vangoj kaj mentono, tiuj ĉi tamen estis kaŝataj iomete de lipharoj kaj vanghararo. La lipharoj estis multe pli nigraj ol la barbo, kaj la efekto estis iomete teatra. Li
 
 
 estis vestita laŭ la sama danda stilo, portante blankan cilindron, orkideon butontrue, flavan veŝton kaj flavajn gantojn, kiujn li svingis kaj batis dum li marŝis. Kiam li estis ĉirkaŭirinta ĝis la ĉefa pordo ili aŭdis la rigidan Paŭlon ĝin malfermanta kaj aŭdis la ĵusalveninton gaje diranta, ”Nu vi vidas, mi estas alveninta.” La rigida sinjoro Paŭlo kliniĝis kaj respondis laŭ sia neaŭdebla maniero; dum kelkaj minutoj ilian interparoladon oni ne povis aŭdi. Tiam diris la servisto, ”ĉio estas je via dispono,” kaj la gant-svinganta Princo Saradine gaje eniris la ĉambron por saluti ilin. Ankoraŭ unufoje ili vidis tiun fantoman vidaĵon—kvin princojn enirantaj ĉambron kun kvin pordoj.
@@ -2916,26 +2380,20 @@ La princo metis la blankan ĉapelon kaj flavajn gantojn sur la tablon kaj tute k
 
 ”Tre ĝojas vin vidi tie ĉi, sinjoro Flambeau,” li diris. ”Bone vnas de reputo, se tio ne estas maldiskreta diro.”
 
-”Tute ne,” respondis Flambeau ridetante. ”Mi ne estas ofendi-
-
-ĝema. Treege malmultaj reputacioj fariĝas el senmakula virteco.”
+”Tute ne,” respondis Flambeau ridetante. ”Mi ne estas ofendiĝema. Treege malmultaj reputacioj fariĝas el senmakula virteco.”
 
 La princo ĵetis al li viglan rigardon por konstati ĉu la rediro havas celon ĉe li; poste li ankaŭ ridis kaj indikis seĝojn por ĉiuj, si mem inkluzive.
 
 ”Agrabla loko tiu ĉi, mi opinias,” li diris apartece. ”Ne estas multe da distraĵoj, mi timas; la fiŝkaptado tamen estas vere bona.”
 
-La pastro, kiu estis rigardanta lin kun la serioza rigardego de bebo, estis hantata de iu imaga bildo, kiu evitis precizigon. Li rigardis la grizan, zorge frizitan hararon, flavblankan vizaĝon kaj svel-tan, iomete dandan talion. Tiuj ĉi ne estis nenaturaj, kvankam eble iomete troelstarantaj, kiel la vestaĵaro de figuro malantaŭ la scenej-lumoj. La sennoma intereso troviĝis ĉe io alia, ĉe la linioj mem de la vizaĝo; Brown estis turmentata de duon-rememoro, ke li vidis ĝin ie antaŭe. La viro ŝajnis esti iu alivestita malnova amiko lia. Subite 159
-
-L A N A I V E CO D E PA ST RO B ROW N
+La pastro, kiu estis rigardanta lin kun la serioza rigardego de bebo, estis hantata de iu imaga bildo, kiu evitis precizigon. Li rigardis la grizan, zorge frizitan hararon, flavblankan vizaĝon kaj svel-tan, iomete dandan talion. Tiuj ĉi ne estis nenaturaj, kvankam eble iomete troelstarantaj, kiel la vestaĵaro de figuro malantaŭ la scenej-lumoj. La sennoma intereso troviĝis ĉe io alia, ĉe la linioj mem de la vizaĝo; Brown estis turmentata de duon-rememoro, ke li vidis ĝin ie antaŭe. La viro ŝajnis esti iu alivestita malnova amiko lia. Subite
 
 
 li rememoris la spegulojn kaj diris al si, ke lia imago estas ia psikologia sekvo de tiu multnombriĝo de homaj maskoj.
 
 Princo Saradine disdonis siajn societajn atentojn inter siaj gastoj kun granda gajeco kaj takto. Trovinte, ke la detektivo havas sportajn inklinojn kaj deziras plenumi sian libertempon, li gvidis Flambeau kaj la boaton de Flambeau al la plej bona loko por fiŝkaptado, kaj estis reveninta per sia propra kanoto post dudek minutoj por kuniĝi kun Pastro Brown en la lego-ĉambro kaj sintrempi egale afable en la pli filozofaj plezuroj de la pastro. Li ŝajne sciis multe kaj pri fiŝkaptado kaj pri libroj, kvankam el tiuj ĉi ne la plej edifajn; li scipovis paroli kvin aŭ ses lingvojn, tamen en ĉiu precipe la slang-on. Evidente li estis loĝinta en diversaj urboj kaj inter la diversaĉaj homspecoj, ĉar kelkaj el liaj plej ridigaj rakontoj estis pri aĉaj vet-ludejoj kaj opifumejoj, aŭstraliaj rabistoj aŭ italaj banditoj. Pastro Brown sciis, ke la iame famkonata Saradine estis pasiginta siajn lastajn kelkjarojn per preskaŭ senĉesa vojaĝado; li tamen ne estis diveninta, ke la vojaĝoj estis tiel hontindaj aŭ tiel amuzaj.
 
-Efektive, malgraŭ la tuto de sia monda digno, Princo Saradine disradiis al tiaj impresiĝemaj observantoj kia la pastro, iun etoson maltrankvilan kaj eĉ malfidindecan. Lia vizaĝo estis eleganta, la okuloj tamen tiuj de sovaĝa besto; li havis nervemajn kutimetojn, kiel viro ŝancelita de drinkado aŭ de drogoj, kaj li nek estris nek pretendis estri la dommastrumadon. Tio entute estis la afero de la du malnovaj servistoj, precipe Paŭlo, kiu videble estis la centra apo-gilo de la domo. S-ro Paŭlo efektive ne estis vera servisto, pliĝuste li estis ia intendanto aŭ eĉ ĉambelano; li vespermanĝis sola, sed kun preskaŭ tiom de soleneco kiom sia mastro; li estis timata de ĉiuj servistoj; kaj li konsiliĝis kun la princo dece—iomete kvazaŭ li estus la princa notario. La malgaja intendantino estis kompare nura ombro; efektive ŝi ŝajne sin fortiris kaj servis nur la ĉefserviston, kaj 160
-
-L A N A I V E CO D E PA ST RO B ROW N
+Efektive, malgraŭ la tuto de sia monda digno, Princo Saradine disradiis al tiaj impresiĝemaj observantoj kia la pastro, iun etoson maltrankvilan kaj eĉ malfidindecan. Lia vizaĝo estis eleganta, la okuloj tamen tiuj de sovaĝa besto; li havis nervemajn kutimetojn, kiel viro ŝancelita de drinkado aŭ de drogoj, kaj li nek estris nek pretendis estri la dommastrumadon. Tio entute estis la afero de la du malnovaj servistoj, precipe Paŭlo, kiu videble estis la centra apo-gilo de la domo. S-ro Paŭlo efektive ne estis vera servisto, pliĝuste li estis ia intendanto aŭ eĉ ĉambelano; li vespermanĝis sola, sed kun preskaŭ tiom de soleneco kiom sia mastro; li estis timata de ĉiuj servistoj; kaj li konsiliĝis kun la princo dece—iomete kvazaŭ li estus la princa notario. La malgaja intendantino estis kompare nura ombro; efektive ŝi ŝajne sin fortiris kaj servis nur la ĉefserviston, kaj
 
 
 Brown aŭdis neniujn plu da tiuj vulkanaj flustroj, kiuj duone diris al li pri la pli juna frato, kiu ĉantaĝis la pliaĝan. ĉu la princo vere estas rabata de la forestanta kapitano, li ne povis certiĝi; estis tamen io nefirma kaj kaŝema pri Saradine kio igis tion neniel nekredebla.
@@ -2954,9 +2412,7 @@ La princo eligis neklarigeblan bruon kiel besto; en lia ombrita vizaĝo strange 
 
 Tiam malfrue Pastro Brown konstatis duan veraĵon. En la speguloj antaŭ li, li povis vidi la silentan pordon malfermita, kaj la silentan sinjoron Paŭlon staranta en ĝia kadro kun lia kutima pala se-nemocieco.
 
-”Mi opiniis, ke estus pli bone tuj anonci,” li diris, kun la sama 161
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Mi opiniis, ke estus pli bone tuj anonci,” li diris, kun la sama
 
 
 rigida respekto de malnova familia notario, ”ke boato remata de ses viroj estas ĵus alveninta al la kajo, kaj sinjoro sidas en malantaŭa parto.”
@@ -2976,9 +2432,6 @@ Jam la ĵusalveninto kaj aliaj sekvantoj estis sin ordigintaj kiel malgranda sce
 Saradine jesis iomete malatente.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 La novulo havis senbrilajn, hundsimilajn brunajn okulojn, tiel malsimilaj kiel eble al la ĉiam viglaj kaj brilantaj grizokuloj de la princo. Sed denove Pastro Brown estis turmentata de la penso, ke li estas ie vidinta kopion de la vizaĝo; kaj denove li memoris la ri-petadojn de la vitre panelita ĉambro kaj klarigis al si la koincidon per tio. ”Malbenon sur tiun ĉi kristalan palacon,” li murmuris. ”Oni ĉion vidas tro multajn fojojn. Estas kiel sonĝo.”
 
 ”Se vi estas Princo Saradine,” diris la junulo, ”mi povas diri al vi ke mia nomo estas Antonelli.”
@@ -2995,9 +2448,7 @@ La princo, kia ajn ulo li estis, evidente ne estis malkuraĝulo; li sin ĵetis a
 
 ”Estas bone,” li diris, spiregante, kaj hezitante en la angla lingvo. ”Mi estas insultinta. Mi kvitigos min. Marko, malfermu la valizon.”
 
-La viro ĉe lia flanko kun la orelringoj kaj la granda nigra valizo tiam malŝlosis ĝin. Li elprenis el ĝi du longajn italajn rapirojn, kun belaj ŝtalaj teniloj kaj klingoj, kiujn li starigis vertikale, la pintoj malsupre en la herbon. La stranga junulo staranta alvizaĝante la enirejon kun sia flava kaj venĝema vizaĝo, la du glavoj starantaj el la razenejo kiel du krucoj en enterigejo, la vico da ordigitaj remistoj malantaŭe, donis strangan impreson, kvazaŭ ĝi estus iu barbara 163
-
-L A N A I V E CO D E PA ST RO B ROW N
+La viro ĉe lia flanko kun la orelringoj kaj la granda nigra valizo tiam malŝlosis ĝin. Li elprenis el ĝi du longajn italajn rapirojn, kun belaj ŝtalaj teniloj kaj klingoj, kiujn li starigis vertikale, la pintoj malsupre en la herbon. La stranga junulo staranta alvizaĝante la enirejon kun sia flava kaj venĝema vizaĝo, la du glavoj starantaj el la razenejo kiel du krucoj en enterigejo, la vico da ordigitaj remistoj malantaŭe, donis strangan impreson, kvazaŭ ĝi estus iu barbara
 
 
 juĝejo. ĉio krome tamen estis neŝanĝita, tiel subita estis la inter-rompo. La sunsubira oro ankoraŭ brilis sur la razenejo, kaj la bo-taŭro ankoraŭ profunde sonadis, kvazaŭ anoncante iun malgrandan tamen teruran sorton.
@@ -3006,9 +2457,7 @@ juĝejo. ĉio krome tamen estis neŝanĝita, tiel subita estis la inter-rompo. L
 
 Princo Saradine, kun sulkigitaj brovoj, ŝajne hezitis unu momenton, sed liaj oreloj ankoraŭ zumadis pro la frapo kaj li antaŭen saltis kaj ekprenis unu el la teniloj. Pastro Brown ankaŭ estis antaŭen saltinta, provante pacigi la kverelon; sed baldaŭ li ekkonis, ke lia persona ĉeesto nur plimalbonigis la aferon. Saradine estis franca framasono kaj feroca ateisto kaj pastro influis lin laŭ la regulo de maleco. Kaj pri la alia viro, nek pastro nek laikulo iel influis lin. Tiu ĉi junulo kun la Bonaparta vizaĝo kaj brunaj okuloj estis iu multe pli severa ol puritano—pagano. Li estis simpla mortiganto el la pra-tempoj de la mondo; viro de la ŝtonepoko—viro el ŝtono.
 
-Unu espero restis, alvoki la domloĝantojn, kaj pastro Brown reen kuris al la domo. Li eltrovis tamen, ke la subservistoj ĉiuj forestas libertempe de la insulo laŭ la ordonoj de la aŭtokrato Paŭlo kaj, ke nur la malgaja sinjorino Anthony paŝadas maltrankvile tra la longaj ĉambroj. Sed tuj kiam ŝi montris al li sian terurplenan vizaĝon, li solvis unu el la enigmoj de la domo spegula. La malhelaj brunokuloj 164
-
-L A N A I V E CO D E PA ST RO B ROW N
+Unu espero restis, alvoki la domloĝantojn, kaj pastro Brown reen kuris al la domo. Li eltrovis tamen, ke la subservistoj ĉiuj forestas libertempe de la insulo laŭ la ordonoj de la aŭtokrato Paŭlo kaj, ke nur la malgaja sinjorino Anthony paŝadas maltrankvile tra la longaj ĉambroj. Sed tuj kiam ŝi montris al li sian terurplenan vizaĝon, li solvis unu el la enigmoj de la domo spegula. La malhelaj brunokuloj
 
 
 de Antonelli estis la malhelaj brunokuloj de sinjorino Anthony; kaj tuj li komprenis duonon de la historio.
@@ -3035,20 +2484,13 @@ Pastro Brown povis nenion fari krom rigardi la boaton dum ĝi batalis kontraŭ l
 
 Dum li tie staris rigardegante la akvon, tremantan spegulon de sunsubiro, li aŭdis de la alia flanko de la insula ĝardeno malfortan sed tuj koneblan sonon—la malvarman tintadon de ŝtalo frapata. Li forturnis la kapon.
 
-For sur la plej malproksima kabo aŭ promontoro de la longa in-165
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-suleto, sur strio de herbo preter la lasta rozvico, la duelantoj estis jam krucigintaj glavojn. La vespero super ili estis kupolo de virga oro, kaj malgraŭ ke malproksime ili troviĝis, ĉiu detalo estis klare videbla. Ili estis demetintaj la jakojn sed la flava veŝto kaj blanka hararo de Saradine, la ruĝa veŝto kaj blanka pantalono de Antonelli briladis en la horizontaliĝanta lumo kiel la koloroj de du dancantaj pupoj. Ambaŭ glavoj fajreradis de la pintoj ĝis la butonoj kiel du diamantaj pingloj. Estis io terura pri kiel la du figuroj ŝajnis tiel malgrandaj kaj tiel gajaj. Ili aspektis kiel du papilioj provantaj per pinglo trapiki unu la alian al korko.
+For sur la plej malproksima kabo aŭ promontoro de la longa insuleto, sur strio de herbo preter la lasta rozvico, la duelantoj estis jam krucigintaj glavojn. La vespero super ili estis kupolo de virga oro, kaj malgraŭ ke malproksime ili troviĝis, ĉiu detalo estis klare videbla. Ili estis demetintaj la jakojn sed la flava veŝto kaj blanka hararo de Saradine, la ruĝa veŝto kaj blanka pantalono de Antonelli briladis en la horizontaliĝanta lumo kiel la koloroj de du dancantaj pupoj. Ambaŭ glavoj fajreradis de la pintoj ĝis la butonoj kiel du diamantaj pingloj. Estis io terura pri kiel la du figuroj ŝajnis tiel malgrandaj kaj tiel gajaj. Ili aspektis kiel du papilioj provantaj per pinglo trapiki unu la alian al korko.
 
 Pastro Brown kuris kiel eble plej rapide, liaj mallongaj kruroj kvazaŭ rado. Sed kiam li alvenis al la batalkampo li eltrovis ke li estas kaj tro frua kaj tro malfrua—tro malfrua por ĉesigi la batala-don, sub la ombro de severaj Sicilianoj, sinapogantaj al siaj remiloj, kaj tro frua por eltrovi ian katastrofan sekvon.
 
 La du viroj aparte taŭge kontraŭstaris unu la alian, la princo uti-ligante sian lertecon kun ia cinika memfido, la Siciliano la sian kun mortigvola zorgo. Malmultaj pli bonaj skermkonkursoj povas esti iam viditaj en homplena areno ol tiu, kiu tintadis kaj fajreradis sur tiu forgesita insulo en la junkbordita rivero. La kapturna batalo tiel longe ekvilibris ke espero komencis vivi denove en la protestanta pastro; laŭ normala probableco Paŭlo devus tre baldaŭ reveni kun la policanoj. Estus bone se eĉ Flambeau revenus de sia fiŝkaptado, ĉar Flambeau, rilate al fonteco valoris kvar aliajn virojn. Tamen estis nenia signo de Flambeau, kaj kio estis multe pli stranga, nenia signo de Paŭlo aŭ la policanoj. Nenia alia floso aŭ lignaĵo restis per kiu flosi; en tiu perdita insulo en tiu vasta sennoma lageto, ili estis tiel izolitaj kiel sun roko en la Pacifiko.
 
-Jam dum li tiel pensis la tintado de la rapiroj rapidiĝis ĝis klaka-do, la brakoj de la princo ĵetiĝis supren kaj la pinto elkuris de inter 166
-
-L A N A I V E CO D E PA ST RO B ROW N
+Jam dum li tiel pensis la tintado de la rapiroj rapidiĝis ĝis klaka-do, la brakoj de la princo ĵetiĝis supren kaj la pinto elkuris de inter
 
 
 liaj skapoloj. Li defalis per granda kirla movo, kvazaŭ duono de cir-kiosalto. La glavo forflugis de lia mano kiel falanta stelo kaj falis en la malproksiman riveron. Kaj li mem malleviĝis tiel peze kaj tertre-mige, ke per sia korpo li rompis grandan rozarbuston kaj levis al la ĉielo nubon da ruĝa polvo—kiel la fumo de iu pagana oferaĵo. La Siciliano estis farinta sango-oferon al la spirito de sia patro.
@@ -3063,9 +2505,7 @@ Post ĉirkaŭ sep minutoj la insulo estis invadata de urbanoj, kaj tiuj ĉi esti
 
 Tiam li fermis la buŝon dum oni forkondukis lin, kaj estas stranga sed certa veraĵo, ke li neniam denove malfermis ĝin sur tiu ĉi tero, krom por diri ”Kulpa” en la juĝejo.
 
-Pastro Brown estis rigardeginta la subite homplenigitan ĝardenon, la areston de la viro de sango, la forporton de la kadavro post ol la kuracisto ekzamenis ĝin, iomete kiel oni alrigardas la disiĝon de iu malbela sonĝo; li estis senmova kiel viro dum inkubo. Li donis siajn nomon kaj adreson kiel atestanto, rifuzis tamen la propo-non reiri per boato kaj restis sola en la insula ĝardeno, rigardegante la rompitan rozujon kaj la tutan verdan teatron de tiu rapida kaj neklarigebla tragedio. La lumo formortis laŭ la rivero; nebulo leviĝis 167
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pastro Brown estis rigardeginta la subite homplenigitan ĝardenon, la areston de la viro de sango, la forporton de la kadavro post ol la kuracisto ekzamenis ĝin, iomete kiel oni alrigardas la disiĝon de iu malbela sonĝo; li estis senmova kiel viro dum inkubo. Li donis siajn nomon kaj adreson kiel atestanto, rifuzis tamen la propo-non reiri per boato kaj restis sola en la insula ĝardeno, rigardegante la rompitan rozujon kaj la tutan verdan teatron de tiu rapida kaj neklarigebla tragedio. La lumo formortis laŭ la rivero; nebulo leviĝis
 
 
 en la marĉaj bordoj; kelkaj malfruigitaj birdoj intermite transen flu-getadis.
@@ -3080,9 +2520,7 @@ Dum li sidis sur la kajaj ŝtupoj meditante li konsciiĝis pri alta, malhela str
 
 ”Ho, ĉar preskaŭ ĉiu krome jam estas,” diris lia kunulo iomete senpripense. ”Saradine fariĝis murdita kaj Antonelli volas esti pendigata, kaj lia patrino estas sveninta kaj mi mem ne bone scias ĉu mi estas en tiu ĉi mondo aŭ en la venonta. Sed dank’al Dio vi estas en la sama.” Kaj li prenis la brakon de la konfuzita Flambeau.
 
-Dum ili turniĝis for de la kajo ili alvenis sub la tegmentrandoj de la malalta bambua domo kaj enrigardis tra la fenestroj kiel ili faris je sia unua alveno. Ili ekvidis lamplumitan internaĵon bone atenti-gan. La tablo en la longa manĝĉambro estis jam preparita por vespermanĝo kiam la detruonto de Saradine falis kiel fulmo sur la insulon. Kaj la vespermanĝo estis antaŭeniranta. S-ino Anthony sidis iomete malgaje ĉe la fundo de l’tablo, dum troviĝis ĉe la ĉefloko Sino Paŭlo la major-domo, manĝante kaj trinkante el la plej bonaj 168
-
-L A N A I V E CO D E PA ST RO B ROW N
+Dum ili turniĝis for de la kajo ili alvenis sub la tegmentrandoj de la malalta bambua domo kaj enrigardis tra la fenestroj kiel ili faris je sia unua alveno. Ili ekvidis lamplumitan internaĵon bone atenti-gan. La tablo en la longa manĝĉambro estis jam preparita por vespermanĝo kiam la detruonto de Saradine falis kiel fulmo sur la insulon. Kaj la vespermanĝo estis antaŭeniranta. S-ino Anthony sidis iomete malgaje ĉe la fundo de l’tablo, dum troviĝis ĉe la ĉefloko Sino Paŭlo la major-domo, manĝante kaj trinkante el la plej bonaj
 
 
 pladoj; la bluetaj nebulitaj okuloj strange elstarantaj el la vizaĝo, la malgrasega fizionomio nepenetrebla, tamen neniel sen signo de kontenteco.
@@ -3105,12 +2543,7 @@ Pastro Brown, kiu rigardis la birdojn ekstere, eksaltis kvazaŭ pafita, kaj enŝ
 
 ”Paŭlo, Princo Saradine, à vos ordres,” diris la respektinda persono ĝentile, levante glason da ŝereo. ”Mi loĝas tie ĉi tre trankvile estante ulo kun hejmaj inklinoj; kaj pro modesteco mi estas nomata Paŭlo, por min distingi de mia malfeliĉa frato sinjoro Stephen. Li mortis, laŭ tio kion mi aŭdis, antaŭ nelonge en la ĝardeno. Kompreneble ne estas mia kulpo se liaj malamikoj sekvis lin al tiu ĉi loko. La kialo por tio estas la bedaŭrinda malrekteco de lia vivo. Li ne estis homo de hejmaj inklinoj.”
 
-Li fariĝis silenta kaj daŭrigis rigardadi la kontraŭan muron super la klinita kaj malgaja kapo de la virino. Ili klare vidis la familian sim-169
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ilecon kiu obsedis ilin ĉe la mortinto. Tiam liaj ŝultroj komencis leviĝi kaj tremi iomete, kvazaŭ li sufokiĝus, la vizaĝo tamen ne san-
+Li fariĝis silenta kaj daŭrigis rigardadi la kontraŭan muron super la klinita kaj malgaja kapo de la virino. Ili klare vidis la familian similecon kiu obsedis ilin ĉe la mortinto. Tiam liaj ŝultroj komencis leviĝi kaj tremi iomete, kvazaŭ li sufokiĝus, la vizaĝo tamen ne san-
 
 ĝiĝis.
 
@@ -3126,14 +2559,10 @@ Nokto estis falinta sur junkojn kaj riveron kiam ili forpuŝis sin de la insulo 
 
 ”Ho, estas vere tre simpla,” aldonis lia amiko. ”Simpla, sed senkulpa, certe ne. La Saradine’oj estis ambaŭ friponoj, sed la princo, la pliaĝa, estas tia fripono kia grimpas al la supro, kaj la pli juna, la kapitano, estis fripono de tiu speco kiu nur fundeniĝas. Tiu ĉi aĉa oficiro, de monpetanto fariĝis ĉantaĝanto, kaj iun malfeliĉan tagon lia mano falis sur lian fraton la princon. Memevidente ne estis pro negrava afero, ĉar Princo Paŭlo Saradine estis nekaŝe diboĉema kaj rilate al la nuraj pekoj de societo havis nenian reputacion por perdi. Efektive estis afero de mortpuno kaj Stephen efektive tenis la ŝnuregon ĉirkaŭ la kolo de sia frato. Li estis iel eltrovinta la veraĵon pri la Sicilia afero kaj povis pruvi, ke Paul estas murdinta la maljunulon Antonelli sur la montoj. La kapitano enrastis grandkvante dum dek jaroj la silentigmonon, ĝis kiam eĉ la belega ricaĵo de la princo komencis fariĝi iomete bagatela.
 
-”Princo Saradine tamen portis alian ŝarĝon krom lia sangsuĉanta frato. Li sciis, ke la filo de Antonelli, nura infano kiam okazis la 170
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Princo Saradine tamen portis alian ŝarĝon krom lia sangsuĉanta frato. Li sciis, ke la filo de Antonelli, nura infano kiam okazis la
 
 
-murdo, estas edukita al sovaĝa sicilia lojaleco kaj vivas nur por ven-
-
-ĝi sian patron, ne per la pendigilo (ĉar mankis al li la laŭleĝa pruvo kian havis Stephen) sed per la antikvaj metodoj de vendeto. La knabo estis fariĝinta sperta pri armiloj ĝis mortiga precizeco, kaj proksimume kiam li fariĝis sufice aĝa por uzi ilin Princo Saradine komencis, laŭ kion diris la societaj ĵurnaloj, vojaĝadi. Fakte li komencis forkuri por sin savi, pasante de unu loko al alia kiel postĉasata krimulo; sekvata tamen de unu senkompata viro. Tia estis la pozicio de Princo Paŭlo kaj ja neniel komforta. Ju pli da mono li elspe-zis por eviti Antonelli des malpli li havis por silentigi Stephen. Ju pli multe li donis por silentigi Stephen des malpli grandan oportunon li havis por fine eviti Antonelli. Tiam li sin montris granda homo—
+murdo, estas edukita al sovaĝa sicilia lojaleco kaj vivas nur por venĝi sian patron, ne per la pendigilo (ĉar mankis al li la laŭleĝa pruvo kian havis Stephen) sed per la antikvaj metodoj de vendeto. La knabo estis fariĝinta sperta pri armiloj ĝis mortiga precizeco, kaj proksimume kiam li fariĝis sufice aĝa por uzi ilin Princo Saradine komencis, laŭ kion diris la societaj ĵurnaloj, vojaĝadi. Fakte li komencis forkuri por sin savi, pasante de unu loko al alia kiel postĉasata krimulo; sekvata tamen de unu senkompata viro. Tia estis la pozicio de Princo Paŭlo kaj ja neniel komforta. Ju pli da mono li elspe-zis por eviti Antonelli des malpli li havis por silentigi Stephen. Ju pli multe li donis por silentigi Stephen des malpli grandan oportunon li havis por fine eviti Antonelli. Tiam li sin montris granda homo—
 
 homo genio kia Napoleon.
 
@@ -3141,12 +2570,7 @@ homo genio kia Napoleon.
 
 ”Estas unu maltrafo, kaj ĝi estas al la honoro de homa naturo.
 
-Malbonaj spiritoj kia Saradine ofte eraras, neniam atendante la vir-171
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-tojn de la homaro. Li supozis, ke la frapo de la Italo, kiam ĝi alvenos, estos kaŝita, perforta kaj sennoma, kiel ankaŭ la frapo kiun ĝi venĝos; ke la viktimo estos trapikata dum la nokto, aŭ pafata de malantaŭ heĝo kaj tial mortos senvorte. Estis malbona momento por Princo Paul kiam la kavalireco de Antonelli proponis formalan duelon kun ĉiuj ĝiaj klarigoj. Estis tiam, ke mi trovis lin forŝovanta la boaton kun terurplenaj okuloj. Li estis forkurante nudakape, en nekovrita boato antaŭ ol Antonelli povus sciiĝi pri kiu li estas.
+Malbonaj spiritoj kia Saradine ofte eraras, neniam atendante la virtojn de la homaro. Li supozis, ke la frapo de la Italo, kiam ĝi alvenos, estos kaŝita, perforta kaj sennoma, kiel ankaŭ la frapo kiun ĝi venĝos; ke la viktimo estos trapikata dum la nokto, aŭ pafata de malantaŭ heĝo kaj tial mortos senvorte. Estis malbona momento por Princo Paul kiam la kavalireco de Antonelli proponis formalan duelon kun ĉiuj ĝiaj klarigoj. Estis tiam, ke mi trovis lin forŝovanta la boaton kun terurplenaj okuloj. Li estis forkurante nudakape, en nekovrita boato antaŭ ol Antonelli povus sciiĝi pri kiu li estas.
 
 ”Sed kiom ajn ekscitita, li ne estis senespera. Li konis la aventu-riston kaj li konis la fanatikulon. Estis tute verŝajne ke Stephen, la aventuristo, silentos, pro sia nura aktora plezuro ludi rolon, sia deziro alkroĉigi al sia nova komforta loĝejo, sia fripona fido al bonsor-to, kaj sia bonega skermado. Estis certe, ke Antonelli la fanatikulo, silentos kaj fariĝos mortpunata ne rakontinte prifamiliajn aferojn.
 
@@ -3160,12 +2584,7 @@ Paŭlo pasigis la tempon sur la rivero ĝis li sciis, ke la batalo estas finiĝi
 
 La pastro prenis la vizitkarton el sia poŝo kaj tenis ĝin apud la malforta lumo de sia cigaro; ĝi surhavis verdinkan skribaĵaĉon.
 
-”ĉu vi ne memoras ties unuan inviton al vi?” li demandis, ”kaj la komplimenton pri via krima aventuro? ‘Tiu ruzo via,’ li skribis, ‘kaŭ-
-
-zi unu detektivon aresti alian.’ Li nur imitis vian ruzon. Kun malamiko ĉiuflanke, li facile forglitis kaj lasis illizii kaj mortigi unu la alian.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
+”ĉu vi ne memoras ties unuan inviton al vi?” li demandis, ”kaj la komplimenton pri via krima aventuro? ‘Tiu ruzo via,’ li skribis, ‘kaŭzi unu detektivon aresti alian.’ Li nur imitis vian ruzon. Kun malamiko ĉiuflanke, li facile forglitis kaj lasis illizii kaj mortigi unu la alian.”
 
 
 Flambeau ŝiris la karton de Princo Saradine el la manoj de la pastro kaj sovaĝe disŝiris ĝin ĝis malgrandaj pecoj.
@@ -3174,14 +2593,9 @@ Flambeau ŝiris la karton de Princo Saradine el la manoj de la pastro kaj sovaĝ
 
 La lasta brileto de blanka kartaĵo kaj verda dronis kaj malheliĝis; malforta kaj tremanta koloro kvazaŭ de tagiĝo ŝanĝis la ĉielon kaj la luno malantaŭ la herboj fariĝis pli pala. Ili flosadis silente.
 
-”Patro,” diris Flambeau subite, ”ĉu vi kredas ke ĉio tio estis son-
-
-ĝo?”
+”Patro,” diris Flambeau subite, ”ĉu vi kredas ke ĉio tio estis sonĝo?”
 
 La pastro balancis la kapon aŭ nee aŭ agnostike, sed restis silenta. Odoro de kratago kaj fruktarbejoj alŝvebis al ili tra la mallumo, dirante al ili, ke la vento vekiĝas; proksiman momenton ĝi balancis ilian boateton kaj ŝveligis ilian velon kaj veturigis ilin antaŭen laŭ la serpentanta rivero al pli feliĉaj lokoj kaj al la hejmoj de seno-fendaj homoj.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 LA MARTELO DE DIO
@@ -3196,9 +2610,7 @@ Tamen estus granda eraro supozi, ke tiaj familioj staras iel ajn alte en la rang
 
 Sed kiel pli ol unu el la veraj antikvaj familioj dum la du lastaj jarcentoj, ili estis pli kaj pli kadukiĝintaj, kaj fine fariĝis nur ebriemuloj kaj modsekvantaj degeneruloj, tiel ke oni eĉ flustris pri frenezeco.
 
-Certe estis io apenaŭ homa en la kvazaŭ lupa plezurpersekutado de la kolonelo kaj lia neŝancelebla decido, neniam hejmeniri antaŭ 174
-
-L A N A I V E CO D E PA ST RO B ROW N
+Certe estis io apenaŭ homa en la kvazaŭ lupa plezurpersekutado de la kolonelo kaj lia neŝancelebla decido, neniam hejmeniri antaŭ
 
 
 frua mateno, kio enhavis iom de la terura klareco de sendormeco.
@@ -3206,9 +2618,6 @@ frua mateno, kio enhavis iom de la terura klareco de sendormeco.
 Li estis alta, simila al belaspekta besto, maljuneta kun la hararo ankoraŭ mirige flava. Krom la bluaj okuloj li ŝajnis nur blonda kaj kiel leono, sed tiuj estis tiel profundiĝintaj en la kapon, ke ŝajne ili estis nigraj. Ili estis ankaŭ tre proksimaj unu al la alia. Li havis longajn flavajn lipharojn; ĉe ĉiu flanko estis sulko, de la nazo ĝis la makzeloj, tiel ke la vizaĝo ŝajnis ĉiam rikani… . Super la vespervestaĵoj li portis strangan flavan surtuton kaj surkape eksterordinaran larĝrandan helverdan kaskon, memevidente ia hazarde akirita orientaĵo. Li fieris portadi tiajn neakordajn vestaĵojn… fieris pro la fakto, ke li ĉiam donis al ili akordan aspekton.
 
 Lia frato, la pastro, ankaŭ havis flavan hararon kaj la elegantecon, sed li estis butonumita ĝis la mentono en nigraj vestaĵoj, la vizaĝo estis senhara, klera kaj iomete nerva. ŝajne li vivis nur pro religio; estis tamen kelkaj kiuj asertis (precipe la forĝisto, kiu estis presbiteriano), ke tio montras, ke li amas la gotan arkitekturon pli ol Dion, kaj ke liaj kvazaŭ fantomaj vizitadoj al la preĝejo estas nenio krom alia, pli pura speco de la preskaŭ malsana soifo al beleco, kiu turmentadas lian fraton ĝis frenezeco pri vino kaj virinoj. Tiu akuzo estis duba, sed lia pieco estis eksterduba. Efektive la akuzo estis precipe malklera miskompreno pri lia amo al soleco kaj malkaŝa preĝado, kaj devenis de la fakto, ke oni ofte lin trovis preĝanta, ne apud la altaro sed en strangaj lokoj en la preĝejo, ofte en la kriptoj aŭ galerioj, eĉ en la turo. Li estis nunmomente enironta en la preĝejon, tra la forĝkorto, sed li haltis kaj sulkigetis la frunton vidante la kavernajn okulojn de sia frato tien alrigardantaj. Pri la hipo-tezo, ke la kolonelo interesas sin pri la preĝejo, lia frato ne malŝparis konjektojn. Restis nur la forĝejo, kaj kvankam la forĝisto estis puritano kaj neniel de liaj kunuloj, tamen Wilfred Bohun estis efektive ion skandalan priaŭdinta pri bela kaj iomete famkonate edzino.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Suspekteme li rigardetis preter la kabanon al la kolonelo, kiu ridante leviĝis por paroli kun li.
@@ -3231,29 +2640,18 @@ Wilfred rigardis teren kaj diris, ”La forĝisto ne estas hejme. Li estas en Gr
 
 La pli aĝa komplezeme levis la brovojn, ”Timi al homoj?” li diris.
 
-”La forĝisto estas la plej granda kaj forta viro en la limo de sesdek kilometroj de tie ĉi,” diris la pastro severe, ”efektive mi scias, ke vi estas nenia timemulo aŭ malfortulo, sed li povus ĵeti vin trans la muron.” Tio, estante vera, tuj frapis lin kaj lia vizaĝo malheliĝis kaj fariĝis minaca. Dum unu momento li staris peze, rikanante. Sed tre baldaŭ Kolonelo Bohun akiris denove sian propran kruelan bonhu-morecon kaj ekridis, montrante sub la flavaj lipharoj du kvazaŭ hundajn dentojn, ”Tiuokaze, mia kara Wilfred,” li diris tute senzorge, ”estas saĝoplena ideo, ke la lasta Bohunano estu parte vestita en 176
-
-L A N A I V E CO D E PA ST RO B ROW N
+”La forĝisto estas la plej granda kaj forta viro en la limo de sesdek kilometroj de tie ĉi,” diris la pastro severe, ”efektive mi scias, ke vi estas nenia timemulo aŭ malfortulo, sed li povus ĵeti vin trans la muron.” Tio, estante vera, tuj frapis lin kaj lia vizaĝo malheliĝis kaj fariĝis minaca. Dum unu momento li staris peze, rikanante. Sed tre baldaŭ Kolonelo Bohun akiris denove sian propran kruelan bonhu-morecon kaj ekridis, montrante sub la flavaj lipharoj du kvazaŭ hundajn dentojn, ”Tiuokaze, mia kara Wilfred,” li diris tute senzorge, ”estas saĝoplena ideo, ke la lasta Bohunano estu parte vestita en
 
 
 armaĵo.” Kaj li demetis la strangan rondan verdkovritan ĉapelon, montrante, ke ĝi enhavas ŝtalan internaĵon. Wilfred efektive tuj rekonis ĝin kiel malpeza japana aŭ ˛ina kasko, deprenita de trofeo en la malnova familia salonego ”i estis la unua ĉapelo kiu venis al miaj manoj,” facile diris la frato kiel klarigo, ”ĉiam la plej proksima ĉapelo… kaj la plej proksima virino.”
 
 ”La forĝisto forestas en Greenford,” diris Wilfred trankvile, ”je kioma horo li revenos estas dube.”
 
-Tion dirinte li sin turnis, la kapo klinita, kaj eniris en la preĝejon, sin krucsignante kvazaŭ li volis forpeli de si malbonan spiriton. Li deziris forgesi tiun maldelikatecon en la malvarma duonlumo de siaj gotaj peristiloj; tamen tiun matenon estis destinite, ke liaj piaj praktikoj estu ĉiam interrompataj per malgrandaj surprizoj. Kiam li eniris la preĝejon, kutime malplena je tia horo, genuiĝanta figuro rapide leviĝis kaj venis al la hela taglumo de la pordego. Kiam la paroęstro ekvidis ĝin li haltis pro surprizo. ĉar la frumatena pre-
+Tion dirinte li sin turnis, la kapo klinita, kaj eniris en la preĝejon, sin krucsignante kvazaŭ li volis forpeli de si malbonan spiriton. Li deziris forgesi tiun maldelikatecon en la malvarma duonlumo de siaj gotaj peristiloj; tamen tiun matenon estis destinite, ke liaj piaj praktikoj estu ĉiam interrompataj per malgrandaj surprizoj. Kiam li eniris la preĝejon, kutime malplena je tia horo, genuiĝanta figuro rapide leviĝis kaj venis al la hela taglumo de la pordego. Kiam la paroęstro ekvidis ĝin li haltis pro surprizo. ĉar la frumatena preĝanto estis neniu krom la vilaĝa idioto, nevo de l’forĝisto, kiu nek povis nek volis zorgi pri la preĝejo aŭ pri io ajn. Oni ĉiam nomis lin
 
-ĝanto estis neniu krom la vilaĝa idioto, nevo de l’forĝisto, kiu nek povis nek volis zorgi pri la preĝejo aŭ pri io ajn. Oni ĉiam nomis lin
+”Freneza Joĉjo”, ŝajne li havis nenian alian nomon; li estis nigreta, forta, malrekte sintenanta knabo, kun peza blanka vizaĝo, nigra hararo kaj la buŝo ĉiam malfermita. Kiam li preterpasis la pastron lia idiota vizaĝo montris neniun signon pri tio, kion li pripensas aŭ estas farinta. Antaŭe oni neniam rimarkis, ke li preĝas. Kiajn preĝojn li nun preĝis? Eksterordinarajn preĝojn sendube.
 
-”Freneza Joĉjo”, ŝajne li havis nenian alian nomon; li estis nigreta, forta, malrekte sintenanta knabo, kun peza blanka vizaĝo, nigra hararo kaj la buŝo ĉiam malfermita. Kiam li preterpasis la pastron lia idiota vizaĝo montris neniun signon pri tio, kion li pripensas aŭ estas farinta. Antaŭe oni neniam rimarkis, ke li preĝas. Kiajn pre-
-
-ĝojn li nun preĝis? Eksterordinarajn preĝojn sendube.
-
-Wilfred Bohun staris kvazaŭ gluita al la tero sufiĉe longe por vidi la idioton eliri en la sunlumon kaj eĉ vidi sian diboĉeman fraton alvoki lin ŝerce. Fine li vidis la kolonelon ĵetanta pencojn al la malfermita buŝo de Joĉjo, ŝajne celanta ĝin trafi. Tiu ĉi sunlumita malbela bildo de la stulteco kaj krueleco de la mondo fine irigis la as-keton al lia preĝado por serĉi purigon kaj novajn pensojn. Li sup-177
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-reniris ĝis preĝbenko en la galerio kaj surgenuiĝis sub kolorvitra fenestro kiun li aparte amis ĉar ĝi ĉiam povis trankviligi lian animon; blua fenestro kun anĝelo kiu portis liliojn. Tie li komencis malpli pensadi pri sia malbona frato, paŝanta ekstere kiel malgrasa leono kun lia terura malsato. Pli kaj pli li profundiĝis en tiujn malvarmajn kaj dolĉajn kolorojn… arĝentaj floroj kaj safira ĉielo.
+Wilfred Bohun staris kvazaŭ gluita al la tero sufiĉe longe por vidi la idioton eliri en la sunlumon kaj eĉ vidi sian diboĉeman fraton alvoki lin ŝerce. Fine li vidis la kolonelon ĵetanta pencojn al la malfermita buŝo de Joĉjo, ŝajne celanta ĝin trafi. Tiu ĉi sunlumita malbela bildo de la stulteco kaj krueleco de la mondo fine irigis la as-keton al lia preĝado por serĉi purigon kaj novajn pensojn. Li supreniris ĝis preĝbenko en la galerio kaj surgenuiĝis sub kolorvitra fenestro kiun li aparte amis ĉar ĝi ĉiam povis trankviligi lian animon; blua fenestro kun anĝelo kiu portis liliojn. Tie li komencis malpli pensadi pri sia malbona frato, paŝanta ekstere kiel malgrasa leono kun lia terura malsato. Pli kaj pli li profundiĝis en tiujn malvarmajn kaj dolĉajn kolorojn… arĝentaj floroj kaj safira ĉielo.
 
 Tie ĉi post duonhoro, Gibbs, la vilaĝa ŝuisto, kiun oni sendis por elserĉi lin kiel eble plej baldaŭ, lin trovis. Li rapide leviĝis, ĉar li sciis, ke certe nenia malgrava afero povus irigi lin al tia loko. Kiel multaj vilaĝaj ŝuistoj li estis ateisto kaj lia apero en la preĝejo estis eĉ pli eksterordinara ol tiu de Freneza Joĉjo. Estis mateno de teologiaj enigmoj.
 
@@ -3269,9 +2667,7 @@ Wilfred kunpremis la malfortajn manojn. ”Kion aĉan li nun faris?” li ekkrii
 
 La vikario sekvis la ŝuiston malsupren laŭ la mallonga torda ŝtuparo, kiu kondukis ilin al enirejo iomete pli alta ol la strato. Bohun tuj ekvidis la tragedion, tie sube, kvazaŭ sur mapo. En la forĝkorto staris kvin aŭ ses viroj, plejparte nigre vestitaj, unu kiel policestro.
 
-Jen estis la kuracisto, la presbiteria pastoro kaj la pastro de la katolika preĝejeto, al kiu aliĝis la edzino de la forĝisto. La sacerdoto 178
-
-L A N A I V E CO D E PA ST RO B ROW N
+Jen estis la kuracisto, la presbiteria pastoro kaj la pastro de la katolika preĝejeto, al kiu aliĝis la edzino de la forĝisto. La sacerdoto
 
 
 parolis kun ŝi, efektive tre rapide kaj mallaŭte, dum ŝi, belaspekta virino kun ruĝ-ora hararo sidante sur benko, blinde ploregis kaj
@@ -3294,12 +2690,7 @@ Ektremo superstiĉa trapasis tra la malgrasa korpo de la vikario.
 
 ”S-ro Bohun,” diris la kuracisto mallaŭte, ”Metaforoj ja mankas al mi. Ne estas sufiĉe, diri ke la kranio estis frakasita en pecojn kiel ovŝelo. Pecoj da osto estas pelitaj en la teron kaj la korpon kiel kugloj en kotan muron. Estis la mano de giganto.”
 
-Dum unu momento li silentis, rigardante malafable tra la okul-179
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-vitroj, poste li aldonis, ”La afero havas unu avantaĝon… plejmultaj homoj estas tuj senkulpigataj. Se vi aŭ mi aŭ iu ajn normale farita viro en la lando estus akuzata pri tiu ĉi krimo, oni malkondamnus lin kiel oni malkondamnus infaneton akuzitan pri la forŝtelo de la Nelson Monumento.”
+Dum unu momento li silentis, rigardante malafable tra la okulvitroj, poste li aldonis, ”La afero havas unu avantaĝon… plejmultaj homoj estas tuj senkulpigataj. Se vi aŭ mi aŭ iu ajn normale farita viro en la lando estus akuzata pri tiu ĉi krimo, oni malkondamnus lin kiel oni malkondamnus infaneton akuzitan pri la forŝtelo de la Nelson Monumento.”
 
 ”Ankaŭ mi tiel opinias,” obstine rediris la ŝuisto, ”estas nur unu viro kiu povus fari tion kaj tiu estas la viro kiu volus fari tion. Kie estas Simeon Barnes la forĝisto?”
 
@@ -3315,9 +2706,7 @@ La malgranda pastro ne ŝajnis esti interesa viro, havante mallongan brunhararon
 
 ”Ne,” diris la policestro, prudentaspekta viro kun sablokoloraj lipharoj, parolante por la unua fojo. ”La martelo per kiu li faris ĝin estas tie apud la preĝeja muro. Ni tuŝis nek ĝin nek la kadavron.”
 
-ĉiu ĉirkaŭenrigardetis kaj la malgranda pastro transiris kaj malsuprenrigardis al la ilo, silente kie ĝi kuŝis. i estis unu el la plej 180
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĉiu ĉirkaŭenrigardetis kaj la malgranda pastro transiris kaj malsuprenrigardis al la ilo, silente kie ĝi kuŝis. i estis unu el la plej
 
 
 malpezaj marteloj kaj ĝi ne estus trafinta la okulon se ne troviĝis sur
@@ -3341,9 +2730,6 @@ Eĉ dum li parolis la alta forĝisto alvenis svinge marŝante ĉirkaŭ la angulo
 Li rigardetis la sencerbigitan korpon kuŝanta surtere kaj la feraj okuloj de l’forĝisto sekvis lian rigardon kaj ankaŭ restis tie.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”ĉu Kolonelo Bohun mortis?” diris la forĝisto tre kviete, ”Do, li estas kondamnita.”
 
 ”Ne diru ion. Ho, ne diru ion,” kriis la ateista ŝuisto, ĉirkaŭdancante pro ekstazo de admiro al la angla leĝsistemo. ĉar neniu estas tiel leĝemulo kiel bona sekularisto… .
@@ -3364,9 +2750,7 @@ Tiam li indikis la Kolonelon kaj diris, ”Kiam mortis tiu ĉi hundo en siaj pek
 
 La fortika policestro por la unua fojo rigardis la forĝiston vive-cokule; tiel ankaŭ faris ĉiu, krom la malalta stranga pastro, kiu ankoraŭ rigardadis malsupren al la malgranda martelo per kiu okazis la terura frapo.
 
-”Staras ekster tiu ĉi laborejo du viroj,” daŭrigis la forĝisto kun pezega klareco, ”bonaj komercistoj el Greenford, kiujn vi ĉiuj konas, kiuj ĵuros, ke ili vidadis min de antaŭ noktomezo ĝis tagiĝo kaj dum longa tempo poste en la Komitatejo de nia Reviviga Misio, kiu kun-sidis la tutan nokten ĉar ni tiel amase savas animojn. En Greenford estas eĉ dudek homoj kiuj povus ĵuri pri mia ĉeesto dum tiu tuta 182
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Staras ekster tiu ĉi laborejo du viroj,” daŭrigis la forĝisto kun pezega klareco, ”bonaj komercistoj el Greenford, kiujn vi ĉiuj konas, kiuj ĵuros, ke ili vidadis min de antaŭ noktomezo ĝis tagiĝo kaj dum longa tempo poste en la Komitatejo de nia Reviviga Misio, kiu kun-sidis la tutan nokten ĉar ni tiel amase savas animojn. En Greenford estas eĉ dudek homoj kiuj povus ĵuri pri mia ĉeesto dum tiu tuta
 
 
 tempo. Se mi estus pagano, mi lasus vin iri al via ruiniĝo, sinjoro policestro. Kiel Kristano tamen mi sentas, ke mi devas doni al vi eli-ron kaj demandas, ĉu vi preferas aŭdi mian alibion nun aŭ en la juĝejo.”
@@ -3393,12 +2777,7 @@ Maltimema virino povus mortigi dek personojn per malpeza martelo sen troa ĝeno.
 
 Wilfred Bohun rigardadis lin fikse, kvazaŭ hipnotizite de teruro, dum Pastro Brown atente aŭskultis, la kapo iomete klinita, kaj vere interesite. La kuracisto daŭrigis pli sible emfazante:
 
-”Kial tiuj ĉi idiotoj ĉiam supozas, ke la sola persono kiu malŝa-183
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-tas la amanton de edzino, estas ŝia edzo? Naŭ fojojn el dek, kiu pli malŝatas la edzinamanton, estas la edzino mem. Kiu scias kian in-sulton aŭ perfidon li eble faris al ŝi? Rigardu tien.”
+”Kial tiuj ĉi idiotoj ĉiam supozas, ke la sola persono kiu malŝatas la amanton de edzino, estas ŝia edzo? Naŭ fojojn el dek, kiu pli malŝatas la edzinamanton, estas la edzino mem. Kiu scias kian in-sulton aŭ perfidon li eble faris al ŝi? Rigardu tien.”
 
 Li faris gesteton al la ruĝhara virino sidanta sur la benko. Fine ŝi levis la kapon kaj la larmoj estis sekiĝantaj sur sia belega vizaĝo. Sed ŝiaj okuloj fikse rigardadis la kadavron kun elektra brileco kiu vidigis iom da idioteco.
 
@@ -3410,9 +2789,7 @@ Silento denove ektenis ilin kaj poste la kuracisto iomete malbonhumore diris; �
 
 Tio dirita Wilfred Bohun levis la delikatajn kaj tremantajn manojn al la kapo kaj ŝajne ektenis sian nemultan hararon. Post sekundo ili malleviĝis kaj li kriis; ”Tiun vorton mi serĉis; vi diris la vorton.”
 
-Li daŭrigis, venkante sian maltrankvilecon; ”La vortoj, kiujn vi 184
-
-L A N A I V E CO D E PA ST RO B ROW N
+Li daŭrigis, venkante sian maltrankvilecon; ”La vortoj, kiujn vi
 
 
 elparolis estis tiuj ĉi, ‘Neniu, krom idioto, elektus la malpezan martelon.’”
@@ -3433,12 +2810,7 @@ Mia frato mokis lin.”
 
 ”Je Dio!” kriis la kuracisto, ”fine estas kompreneble. Tamen kiel vi povas klarigi… .”
 
-Sinjoro Pastro Bohun estis preskaŭ tremanta de ekscito pro sia ekvido al la vero. ”ĉu vi ne povas kompreni? ĉu vi ne povas kompreni?” li kriis febre; ”Tiu estas la sola teorio, kiu klarigas ambaŭ strangajn aferojn, kiu donas la respondon por ambaŭ enigmoj. La du enigmoj estas la malgranda martelo kaj la granda frapo. La for-
-
-ĝisto povus doni la grandan frapon, sed li ne elektus la malgrandan martelon. Lia edzino elektus la malgrandan martelon, sed ŝi ne povus fari la fortan frapon. La frenezulo tamen povus ambaŭ fari. Pri la malgranda martelo… nu, li estas freneza kaj emus ekpreni ion ajn.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
+Sinjoro Pastro Bohun estis preskaŭ tremanta de ekscito pro sia ekvido al la vero. ”ĉu vi ne povas kompreni? ĉu vi ne povas kompreni?” li kriis febre; ”Tiu estas la sola teorio, kiu klarigas ambaŭ strangajn aferojn, kiu donas la respondon por ambaŭ enigmoj. La du enigmoj estas la malgranda martelo kaj la granda frapo. La forĝisto povus doni la grandan frapon, sed li ne elektus la malgrandan martelon. Lia edzino elektus la malgrandan martelon, sed ŝi ne povus fari la fortan frapon. La frenezulo tamen povus ambaŭ fari. Pri la malgranda martelo… nu, li estas freneza kaj emus ekpreni ion ajn.
 
 
 Kaj pri la granda frapo… ĉu vi neniam aŭdis, sinjoro kuracisto, ke maniulo en sia paroksismo povas havi dekviran fortecon?”
@@ -3460,9 +2832,6 @@ La policestro ridis amikece kaj diris:
 ”Ne, miaopinie ni povas senkulpigi vin, tamen jen unu el la plej strangaj koincidoj, kiujn mi iam renkontis. Mi ne povas ion fari krom peti vin, ke vi donu al ni helpon eltrovi viron tiel fortan kaj tiel grandan kiel vi mem. Je Sankta Georgo, vi eble utilus se nur por lin teni. Mi scivolas ĉu vi mem povas fari konjekton pri la kulpulo?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Mi povas diveni tion,” diris la pala forĝisto, ”sed ne estis viro.”
 
 Tiam vidinte ĉies timoplenajn okulojn turniĝi al lia edzino sur la benko, li metis pezan manon sur ŝian ŝultron kaj diris.
@@ -3471,15 +2840,11 @@ Tiam vidinte ĉies timoplenajn okulojn turniĝi al lia edzino sur la benko, li m
 
 ”Kion vl volas diri?” gaje demandis la policestro. ”Vi ne kredas, ke bovinoj uzas martelojn, ĉu?”
 
-”Mi kredas, ke nenio karna prenis tiun martelon,” diris la for-
-
-ĝisto per voĉo sufokita; ”mi kredas, ke neniu vivanta ĉeestis la mortigon de tiu homo.”
+”Mi kredas, ke nenio karna prenis tiun martelon,” diris la forĝisto per voĉo sufokita; ”mi kredas, ke neniu vivanta ĉeestis la mortigon de tiu homo.”
 
 ”ĉu vi volas diri, Barnes,” eksonis la akra voĉo de la ŝuisto, ”ke la martelo per si mem suprensaltis kaj bategis lin?”
 
-”Ho, vi sinjoroj povas rigardadi kaj mokrideti,” kriis Simeon; ”vi pastroj kiuj diras dimanĉe al ni per kia silento la Sinjoro frapis San-
-
-ąribon. Mi kredas, ke Tiu, Kiu nevideble trapasas ĉiun domon defendis hodiaŭ la honoron de la mia, kaj mortfrapis la malpurigan-ton ĉe ĝia pordo. Mi kredas, ke la forto de tiu frapo estis la forto per kiu tertremoj okazas, kaj nenia malpli granda forto.”
+”Ho, vi sinjoroj povas rigardadi kaj mokrideti,” kriis Simeon; ”vi pastroj kiuj diras dimanĉe al ni per kia silento la Sinjoro frapis Sanąribon. Mi kredas, ke Tiu, Kiu nevideble trapasas ĉiun domon defendis hodiaŭ la honoron de la mia, kaj mortfrapis la malpurigan-ton ĉe ĝia pordo. Mi kredas, ke la forto de tiu frapo estis la forto per kiu tertremoj okazas, kaj nenia malpli granda forto.”
 
 Wilfred diris per voĉo tute ne priskribebla; ”Mi mem konsilis al Norman, ke li sin gardu kontraŭ la fulmofajro.”
 
@@ -3489,12 +2854,7 @@ Wilfred diris per voĉo tute ne priskribebla; ”Mi mem konsilis al Norman, ke l
 
 Pastro Brown forkondukis la skuitan Wilfred, kaj kiel ĉiam, montris amikecan kaj komplezeman manieron. ”Foriru ni de tiu ĉi terura loko, sinjoro Bohun,” li diris. ”ĉu mi povas eniri en vian preĝejon? Oni diris al mi, ke ĝi estas unu el la plej malnovaj preĝejoj en Anglujo. Mi iomete interesiĝas, efektive,” li aldonis kun komika grimaco, ”pri antikvaj anglaj preĝejoj.”
 
-Wilfred Bohun ne ridetis, ĉar spritaĵoj neniam ŝajnis lin tuŝi. Ta-187
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-men li kun iom da entuziasmo kapklinis, deziregante klarigi al iu ajn pli simpatia ol la presbiteriana forĝisto aŭ la ateista ŝuisto, la gotajn belaĵojn.
+Wilfred Bohun ne ridetis, ĉar spritaĵoj neniam ŝajnis lin tuŝi. Tamen li kun iom da entuziasmo kapklinis, deziregante klarigi al iu ajn pli simpatia ol la presbiteriana forĝisto aŭ la ateista ŝuisto, la gotajn belaĵojn.
 
 ”Kun plezuro,” li diris; ”ni eniru ĉe tiu ĉi flanko.” Kaj li enkondukis lin tra la flankenirejo je la kapo de la ŝtuparo. Pastro Brown komencis supreniri la ŝtuparon por lin sekvi, kiam li sentis manon sur la ŝultro kaj sin turnis vidante la malpalan kaj maldikan figuron de la kuracisto, la vizaĝo ankoraŭ pli malpala pro suspektemo.
 
@@ -3512,11 +2872,7 @@ Ne temas pri iu miraklo, doktoro, krom kiom la homoj mem estas mirakloj, kun str
 
 La kuracisto, kiu rigardis lin atente sulkigante la brovojn, nur diris; ”Kaj la alia sugesteto?”
 
-”Jen la alia sugesteto,” diris la pastro. ”ĉu vi memoras, ke la for-
-
-ĝisto, kvankam li kredas al mirakloj, tamen parolis moke pri la fera-188
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Jen la alia sugesteto,” diris la pastro. ”ĉu vi memoras, ke la forĝisto, kvankam li kredas al mirakloj, tamen parolis moke pri la fera-188
 
 
 konta neebleco de tio, ke lia martelo povus preni flugilojn kaj flugi kilometron trans kampojn?”
@@ -3535,12 +2891,7 @@ Bohun lin sekvinte, eliris sur ian ŝtonan balkonon ekster la konstruaĵo, de ki
 
 ”Jes,” diris Bohun, tre serioze, kaj kapklinis.
 
-ĉirkaŭ ili kaj sube la linioj de la gota konstruaĵo plunĝis en la malplenaĵon kun la kapturniga rapideco de sinmortigo. Troviĝas en la konstrumaniero de l’mezepoko iu Titana energio, kiu de ĉiuj vid-punktoj ŝajnas ĉiam forkuregi, kiel la fortika dorso de furioza ĉeva-189
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-lo. Tiu ĉi preĝejo estis skulptita el antikvaj kaj silentaj ŝtonoj, bar-bitaj de fungoj kaj makulitaj de birdnestoj. Kiam ili ĝin vidis de malsupre, ĝi saltis kiel fontano al la steloj, kaj nun vidate de supre
+ĉirkaŭ ili kaj sube la linioj de la gota konstruaĵo plunĝis en la malplenaĵon kun la kapturniga rapideco de sinmortigo. Troviĝas en la konstrumaniero de l’mezepoko iu Titana energio, kiu de ĉiuj vid-punktoj ŝajnas ĉiam forkuregi, kiel la fortika dorso de furioza ĉevalo. Tiu ĉi preĝejo estis skulptita el antikvaj kaj silentaj ŝtonoj, bar-bitaj de fungoj kaj makulitaj de birdnestoj. Kiam ili ĝin vidis de malsupre, ĝi saltis kiel fontano al la steloj, kaj nun vidate de supre
 
 ĝi sin verŝis kiel kaskado en la silentan abismon. ĉar tiuj ĉi du viroj sur la turo estis solaj kun la plej teruriga aspekto de gota arkitekturo; la monstra mallongigo kaj malproporcio, la kapturnigaj perspektivoj, la ekvido de grandaj aferoj malgrandigitaj, kaj malgrandaj aferoj grandigitaj, la mezepoka renversado de ŝtonoj. ŝto-naj ĉizitaĵoj, grandegitaj pro proksimeco, vidiĝis sur fono el kampoj kaj farmbienoj, malgrandegitaj pro malproksimeco. Skulptita birdo aŭ besto ĉe angulo ŝajnis kiel giganta drako paŝante aŭ flugante tie malsupre, detruante herbejojn kaj vilaĝojn… . La tuta at-mosfero estis kapturniga kaj danĝera, kvazaŭi homoj estus subte-nataj en la aero inter la turbirantaj flugiloj de kolosaj genioj; kaj la tuto de tiu antikva preĝejo, tiel alta kaj riĉa kiel katedralo, ŝajne sidis sur la sunluma kamparo kiel peza pluvnubo.
 
@@ -3553,9 +2904,6 @@ lo. Tiu ĉi preĝejo estis skulptita el antikvaj kaj silentaj ŝtonoj, bar-bitaj
 ”Rigardu do tiun forĝiston, ekzemple,” daŭrigis Pastro Brown per kvieta voĉo; ”bonulo li estas sed ne Kristano… malcedema, tiraneca, malpardonema. Nu, homoj kiuj preĝis sur montoj kaj kru-tejoj faris lian skotan religion kaj ili kutimiĝis derigardi sur la mondon, pli ol alrigardi al la ĉielo. Humileco estas la patrino de gigan-toj. Oni vidas grandajn aĵojn de la valo, sed nur malgrandajn de la pinto.”
 
 ”Sed li… li ne faris tion,” diris Bohun tremante.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Ne,” diris la alia per stranga voĉo, ”ni scias, ke li ne faris tion.”
@@ -3581,9 +2929,6 @@ Bohun ŝanceliĝis reen ĝis la muro kaj rigardegis lin per terurplenaj okuloj.
 ”Kiel vi tiom scias?” li kriis, ”ĉu vi estas diablo?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Mi estas homo,” serioze respondis Pastro Brown, ”kaj tial mi havas ĉiajn diablojn en la koro. Aŭskultu min,” li diris post mallonga paŭzo. ”Mi scias kion vi faris almenaŭ mi povas diveni la plej gravan parton. Kiam vi foriris de via frato, ektenis vin nemaljusta kolerego, tiel, ke vi eĉ prenis malgrandan martelon, duonintencante mortigi lin kun la malpureco sur liaj lipoj. Naŭzite, vi anstataŭe kaŝis ĝin sub via butonumita surtuto kaj rapidis en la preĝejon. Furioze vi preĝis en multaj lokoj, sub la anĝelfenestro sur la supra balkono, kaj sur balkono eĉ pli alta de kie vi povis vidi la ˛inan ĉapelon de la kolonelo, kiel la dorso de verda rampanta skarabo.
 
 Tiam io en via animo rompiĝis kaj vi faligis la fulmofajron de Dio.”
@@ -3601,9 +2946,6 @@ Tute silente ili malsupreniris per la torda ŝtuparo kaj eliris en la sunlumon a
 ”Mi volas min cedi: mi mortigis mian fraton.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA OKULO DE APOLONO
 
 Tiu neordinara, fuma briletado, samtempe malklara kaj travidebla, kiu estas la stranga sekreto de la Rivero Tamizo, pli kaj pli heliĝis de sia grizeco ĝis brileco dum la suno leviĝis al la zenito super Westminster, kaj du viroj transiris Westminster Ponton. Unu el ili estis tre alta kaj la alia tre malalta; oni povus fantazie kompa-ri ilin kun la aroganta horloĝturo de la parlamentejo kaj la humi-laj ĝibŝultroj de la abatejo, ĉar la malaltulo estis vestita kiel pastro.
@@ -3611,9 +2953,6 @@ Tiu neordinara, fuma briletado, samtempe malklara kaj travidebla, kiu estas la s
 La oficiala priskribo pri la altulo estis Monsieur Hercule Flambeau, privata detektivo, kaj li iris al sia nova oficejo en ĵus konstruita ĉambraro kontraŭ la enirejo de la abatejo. La oficiala priskribo de la malaltulo estis Pastro J. Brown de la preĝejo de S. Francisko Ksavie-ro en Camberwell, kaj li venis de mortlito en Camberwell por vidi la novan oficejon de sia amiko. La konstruaĵo estis usonaspekta pro sia grandega alteco, kaj usona ankaŭ pro la oleumita malsimpleco de sia telefona kaj lifta maŝinaro. Tamen ĝi estis apenaŭ kompleta kaj ankoraŭ ne enhavis la tutan oficistaron; nur tri luantoj loĝis tie; la oficejo super tiu de Flambeau estis okupata, tiu sub ĝi ankaŭ; la du supraj kaj la tri malsupraj etaĝoj estis tute sen loĝantoj. Tamen de la unua ekrigardo al la nova ĉambrarturo io multe pli rimarkinda estis videbla. Krom kelkaj trabaraj restaĵoj la sola elstaraĵo troviĝis ekster la oficejo super tiu de Flambeau. i estis grandega ora figuraĵo de homa okulo ĉirkaŭita de oraj radioj kaj kaŝanta du aŭ tri fenestrojn.
 
 ”Ho, kio estas tio?” demandis Pastro Brown kaj haltis.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Nur nova religio,” respondis Flambeau ridante, ”unu el tiuj novaj religioj kiuj pardonas pekojn, dirante ke vi neniam faris ilin.
@@ -3634,11 +2973,7 @@ Simile al Kristana Scienco mi opinias. Fakte, iu kiu nomas sin Kalon (mi ne scia
 
 ”Ho, kredi, ke oni tute bonsanas,” diris lia amiko.
 
-Flambeau pli interesiĝis pri la modesta oficejeto sub la sia, ol pri la flamanta templo supre. Li estis klarpensema sudano, kiu neniel povis imagi sin krom kiel katoliko aŭ ateisto; kaj novaj religioj, feli-
-
-ĉigaj aŭ malĝojaj, ne allogis lin. La homaro tamen ĉiam allogis lin, precipe kiam ĝi estis belaspekta; plie, la malsupraj fraŭlinoj havis proprajn karakterizojn. Du fratinoj prizorgis la oficejon; ambaŭ estis maldikaj kaj nigretaj kaj unu el ili estis alta kaj impresa. Tiu 194
-
-L A N A I V E CO D E PA ST RO B ROW N
+Flambeau pli interesiĝis pri la modesta oficejeto sub la sia, ol pri la flamanta templo supre. Li estis klarpensema sudano, kiu neniel povis imagi sin krom kiel katoliko aŭ ateisto; kaj novaj religioj, feliĉigaj aŭ malĝojaj, ne allogis lin. La homaro tamen ĉiam allogis lin, precipe kiam ĝi estis belaspekta; plie, la malsupraj fraŭlinoj havis proprajn karakterizojn. Du fratinoj prizorgis la oficejon; ambaŭ estis maldikaj kaj nigretaj kaj unu el ili estis alta kaj impresa. Tiu
 
 
 havis avidan kaj hokforman vizaĝon simile al la precize difinita rando de ia batalilo. ŝi ŝajnis trahaki vojon tra la vivo. ŝi havis okulojn mirige brilajn, sed estis la brileco de ŝtalo pli ol la brileco de diamantoj; kaj ŝia maldika figuro estis iomete tro nefleksebla por havi sveltecon. ŝia pli juna fratino estis kiel ŝia mallongigita ombro, iomete pli griza, pli pala kaj pli senimpona. Ili ambaŭ portis oficejtaŭgajn nigrajn kostumojn kun etaj viraj manumoj kaj kolumoj.
@@ -3647,9 +2982,7 @@ Estas miloj da tiaj laboremaj virinoj en la Londonaj oficejoj, sed ĉi tiuj esti
 
 ĉar Pauline Stacey, la pliaĝa, estis fakte heredontino de blazono kaj duono de graflando, ankaŭ de granda riĉeco; antaŭ ol ia malvarma furiozeco (kian nur la moderna virino havas) aligis ŝin al tio, kio ŝiaopinie estas pli malmola kaj pli nobela vivmaniero, ŝi pasigis sian junecon en kasteloj kaj ĝardenoj. Efektive ŝi ne cedis sian monon; en tio estus romaneca aŭ monaą malzorgeco tute fremda al ŝia superrega utilismo. ŝi diris ĉiam, ke ŝi tenas siajn riĉaĵojn por almeti ilin al praktikaj sociaj aferoj. Per parto de ĝi ŝi starigis modelan skribmaŝinejon, iom ŝi disdonis al diversaj asocioj kaj movadoj por la antaŭenigo de socia laborado inter virinoj. Kiom Joan, ŝia fratino kaj kunlaboranto, partoprenis en ĉi tiu iomete proza idealismo neniu povis certiĝi. Tamen ŝi sekvis sian estrinon kun hundfidela amo, kiu iel estis pli alloga, kun ĝia eta tragediemo, ol la malcedema kaj viveca energio de ŝia pli aĝa fratino. Pauline Stacey havis neniun emon al tragedio; oni diris ke ŝi neas ĝian ekziston.
 
-ŝia nefleksebla rapideco kaj malvarma malpacienco tre amuzis al Flambeau kiam por la unua fojo li eniris la ĉambraron. Li estis atendanta ekster la lifto en la enirejo la knabon, kiu kutime kondukis fremdulojn al la diversaj etaĝoj. Sed tiu ĉi brilokula falkino tute rifuzis toleri oficialan malrapidecon. Akre ŝi diris, ke ŝi ĉion scias pri la lifto kaj, ke ŝi ne dependas de knaboj… nek de viroj. Kvankam ŝiaj 195
-
-L A N A I V E CO D E PA ST RO B ROW N
+ŝia nefleksebla rapideco kaj malvarma malpacienco tre amuzis al Flambeau kiam por la unua fojo li eniris la ĉambraron. Li estis atendanta ekster la lifto en la enirejo la knabon, kiu kutime kondukis fremdulojn al la diversaj etaĝoj. Sed tiu ĉi brilokula falkino tute rifuzis toleri oficialan malrapidecon. Akre ŝi diris, ke ŝi ĉion scias pri la lifto kaj, ke ŝi ne dependas de knaboj… nek de viroj. Kvankam ŝiaj
 
 
 ĉambroj troviĝis en la tria etaĝo, tamen dum la kelksekunda supreniro, prosperis al ŝi senhezite klarigi al Flambeau multajn el ŝiaj fundamentaj opinioj; mallonge tiuj signifis, ke ŝi estas moderna laborantino kaj ke ŝi amas modernajn maŝinojn. ŝiaj helnigraj okuloj ekbrilis pro abstrakta kolero kontraŭ tiuj, kiuj kontraŭparolas la maŝinsciencon kaj kiuj petas la revenon de romantiko. ŝiaopinie, ĉiu devas scipovi manregi maŝinojn, kiel ŝi manregas la lifton. ŝaj-ne ŝi preskaŭ malkonsentis kiam Flambeau malfermis por ŝi la lifto-pordon, kaj tiu sinjoro supreniris al siaj propraj ĉambroj ridetante pro iomete miksitaj sentoj pri la memoro de tia brilanta sendepen-deco.
@@ -3658,29 +2991,17 @@ L A N A I V E CO D E PA ST RO B ROW N
 
 Flambeau, tute konfuzite pro tiu ĉi fanatikeco, ne povis ne demandi al fraŭlino Pauline (kun sia franca logiko), kial okulvitroj estas signo de malforteco pli ol liftoj, kaj kial, se la scienco povas helpi al ni pri la unu klopodo, ĝi ne povas helpi al ni ankaŭ pri la alia.
 
-”Tio estas tute malsama,” fiere diris Pauline Stacey, ”Baterioj kaj aŭtoj kaj tiaj aferoj estas signoj de homa forteco… jes, sinjoro Flambeau, kaj de virina forteco ankaŭ. Ni ludos nian rolon je tiuj ĉi ma-196
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-ŝinoj kiuj venkas spacon kaj tempon. Tio estas altcela kaj grandioza… tio estas vera scienco. Sed tiuj ĉi aĉaj subteniloj kaj plastroj, kiujn la kuracistoj vendas… nu, ili nur estas la signoj de ĉarlatane-co. Kuracistoj algluas krurojn kaj brakojn kvazaŭ ni estas kripluloj kaj malsanaj servutuloj de nia naskiĝo. Sed mi de mia naskiĝo estas libera, sinjoro Flambeau! Homoj bezonas tiujn aĵojn ĉar ili estis edukitaj en timo, anstataŭ en forto kaj kuraĝo, same kiel stultaj vartistinoj konsilas al infanoj ne rigardadi la sunon, tial ili ne povas rigardadi ĝin senpalpebrume. Kial, inter la steloj estu nur unu stelo, kiun ni ne povas vidi? La suno ne estas mia superreganto kaj mi malfermos miajn okulojn kaj rigardados ĝin kiam ajn mi volos.”
+”Tio estas tute malsama,” fiere diris Pauline Stacey, ”Baterioj kaj aŭtoj kaj tiaj aferoj estas signoj de homa forteco… jes, sinjoro Flambeau, kaj de virina forteco ankaŭ. Ni ludos nian rolon je tiuj ĉi maŝinoj kiuj venkas spacon kaj tempon. Tio estas altcela kaj grandioza… tio estas vera scienco. Sed tiuj ĉi aĉaj subteniloj kaj plastroj, kiujn la kuracistoj vendas… nu, ili nur estas la signoj de ĉarlatane-co. Kuracistoj algluas krurojn kaj brakojn kvazaŭ ni estas kripluloj kaj malsanaj servutuloj de nia naskiĝo. Sed mi de mia naskiĝo estas libera, sinjoro Flambeau! Homoj bezonas tiujn aĵojn ĉar ili estis edukitaj en timo, anstataŭ en forto kaj kuraĝo, same kiel stultaj vartistinoj konsilas al infanoj ne rigardadi la sunon, tial ili ne povas rigardadi ĝin senpalpebrume. Kial, inter la steloj estu nur unu stelo, kiun ni ne povas vidi? La suno ne estas mia superreganto kaj mi malfermos miajn okulojn kaj rigardados ĝin kiam ajn mi volos.”
 
 ”Viaj okuloj,” diris Flambeau, fremdstile kliniĝante, ”superbrilus eĉ la sunon.” Plaĉis al li komplimenti ĉi tiun strangan, neflekseblan belulinon, parte pro tio ke tion fari iomete malekvilibrigis ŝin. Tamen dum li supreniris al sia etaĝo li profunde enspiris kaj ekfajfis al si dirante: ”Do, tiu ĉarlatano supre kun la ora okulo kaptis ŝin.”
 
 ĉar, kvankam li ne multe sciis pri la nova religio de Kalon, li jam aŭdis pri lia aparta ideo de sunrigardado.
 
-Baldaŭ li trovis, ke la spirita kunligo inter la du etaĝoj estas forta kaj plifortiĝanta. Tiu homo, kiu sin nomis Kalon estis belega krei-to, inda laŭ fizika vidpunkto esti la pontifiko de Apolono. Li estis preskaŭ tiel alta kiel Flambeau, kaj multe pli belaspekta ol li, kun orkolora barbo, fortaj bluaj okuloj, kaj hararego malantaŭen kombita kiel leonhararo. Lia staturo estis tiu de la Neitzsche’a blonda besto, sed lia besta beleco estis pliigita, heligita kaj moligita per vera intelekto kaj spiriteco. Se li aspektis kiel unu el la famaj saksaj reĝoj, li aspektis kiel unu el tiuj reĝoj kiuj ankaŭ estis sanktuloj, kaj tio estis spite al la Londona neakordeco de liaj ĉirkaŭaĵoj; la fakto ke li havis mezetaĝan oficejon en Viktoria Strato; ke lia skribisto (nerimarkinda junulo portanta manumojn kaj kolumojn) sidis en la ek-197
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-stera ĉambro, inter li kaj la koridoro; ke lia nomo estis sur latuna-fiŝo, kaj orumita emblemo de lia kredo pendis super la strato kiel okulistreklamaĵo. La tuto de ĉi tiu vulgareco ne povis depreni de la homo nomita Kalon la potencan subpremon kaj inspiremon kiu venis de lia animo kaj korpo. ĉio dirite, kiam en la ĉeesto de ĉi tiu ĉarlatano oni sentis esti en la ĉeesto de eminentulo. Eĉ vestita en la toljako kiun li portis kiel laborvestaĵo en la oficejo, li estis ensorĉa kaj timiga figuro; kaj kiam li surmetis la blankajn robojn kaj la oran diademon, en kiuj li ĉiutage salutis la sunon, li jam tiom belege aspektis, ke la mokridoj de la preterpasantoj formortis sur iliaj lipoj. Trifojojn ĉiutage eliris la moderna sunadoranto sur sian bal-koneton en la ĉeesto de ĉiuj Westminsteranoj, por deklami ian litanion al sia brila dio: je tagiĝo, je sunsubiro kaj je la tagmeza eksonego ĉiutage. Kaj dum la tagmeza eksonego ankoraŭ tremetis de la parlamentaj kaj preĝejaj turoj, Pastro Brown, la amiko de Flambeau, unue suprenrigardis kaj ekvidis la blankan sacerdoton de Apolono.
+Baldaŭ li trovis, ke la spirita kunligo inter la du etaĝoj estas forta kaj plifortiĝanta. Tiu homo, kiu sin nomis Kalon estis belega krei-to, inda laŭ fizika vidpunkto esti la pontifiko de Apolono. Li estis preskaŭ tiel alta kiel Flambeau, kaj multe pli belaspekta ol li, kun orkolora barbo, fortaj bluaj okuloj, kaj hararego malantaŭen kombita kiel leonhararo. Lia staturo estis tiu de la Neitzsche’a blonda besto, sed lia besta beleco estis pliigita, heligita kaj moligita per vera intelekto kaj spiriteco. Se li aspektis kiel unu el la famaj saksaj reĝoj, li aspektis kiel unu el tiuj reĝoj kiuj ankaŭ estis sanktuloj, kaj tio estis spite al la Londona neakordeco de liaj ĉirkaŭaĵoj; la fakto ke li havis mezetaĝan oficejon en Viktoria Strato; ke lia skribisto (nerimarkinda junulo portanta manumojn kaj kolumojn) sidis en la ekstera ĉambro, inter li kaj la koridoro; ke lia nomo estis sur latuna-fiŝo, kaj orumita emblemo de lia kredo pendis super la strato kiel okulistreklamaĵo. La tuto de ĉi tiu vulgareco ne povis depreni de la homo nomita Kalon la potencan subpremon kaj inspiremon kiu venis de lia animo kaj korpo. ĉio dirite, kiam en la ĉeesto de ĉi tiu ĉarlatano oni sentis esti en la ĉeesto de eminentulo. Eĉ vestita en la toljako kiun li portis kiel laborvestaĵo en la oficejo, li estis ensorĉa kaj timiga figuro; kaj kiam li surmetis la blankajn robojn kaj la oran diademon, en kiuj li ĉiutage salutis la sunon, li jam tiom belege aspektis, ke la mokridoj de la preterpasantoj formortis sur iliaj lipoj. Trifojojn ĉiutage eliris la moderna sunadoranto sur sian bal-koneton en la ĉeesto de ĉiuj Westminsteranoj, por deklami ian litanion al sia brila dio: je tagiĝo, je sunsubiro kaj je la tagmeza eksonego ĉiutage. Kaj dum la tagmeza eksonego ankoraŭ tremetis de la parlamentaj kaj preĝejaj turoj, Pastro Brown, la amiko de Flambeau, unue suprenrigardis kaj ekvidis la blankan sacerdoton de Apolono.
 
 Flambeau jam vidis sufiĉfoje ĉi tiujn ĉiutagajn sunsalutadojn, kaj li tuj rapidis en la enirejon de la alta konstruaĵo, sen sin turni por certiĝi ĉu lia amiko sekvos. Sed Pastro Brown, aŭ de profesia interesiĝo pri ritoj aŭ de forta individua interesiĝo pri malsaĝaĵoj, haltis kaj suprenrigardis la balkonon de la sunadoranto, same kiel li haltus por suprenrigardi pulĉinelon. La profeto Kalon jam estis staranta en siaj roboj arĝentblankaj kun la manoj suprenlevitaj, kaj la sono de lia stranga voĉo aŭdiĝis ĉie en la okupata strato, elparolante lian sunlitanion. ian mezon li jam atingis: liaj okuloj fikse rigardis la flamantan diskon. Estas dube ĉu li vidis ion aŭ iun sur ĉi tiu tero; estas tute certe, ke li ne rimarkis duonkreskintan, rondvizaĝan pastron, kiu en la malsupra homamaso palpebrumante rigardis lin.
 
-Eble tio estis la plej miriga malsamaĵo inter ĉi tiuj du tre malsamaj 198
-
-L A N A I V E CO D E PA ST RO B ROW N
+Eble tio estis la plej miriga malsamaĵo inter ĉi tiuj du tre malsamaj
 
 
 homoj. Pastro Brown ne povis ion rigardi senpalpebrume; sed la sacerdoto de Apolono povis rigardadi eĉ la tagmezan sunon sen ia ajn palpebra ektremeto.
@@ -3695,11 +3016,7 @@ Du homoj restis senmove post la tumulta ekbruo; la bela apolona sacerdoto sur la
 
 Fine aperis en la pordo la altkreska figuro kaj titana energio de Flambeau, kaj superregis la amason. Kiel sireno laŭtege parolante li ordonis al iu venigi ˛irurgon, kaj dum li reiris en la malhelan kaj hompleniĝantan enirejon lia amiko Pastro Brown maltrude sekvis lin. Eĉ dum li trapuŝis sin tra la amaso li povis ankoraŭ aŭdi la belegan melodion kaj unutonecon de la sunsacerdoto ankoraŭ alvo-kanta la feliĉan dion, kiu estas la amiko de fontanoj kaj floroj.
 
-Pastro Brown ektrovis Flambeau kaj seskelkajn aliajn ĉirkaŭ-
-
-starantaj la enfermitan spacon en kiu kutime la lifto malsuprenvenis. Sed la lifto ne estis veninta. Io alia estis veninta; io kiu devus esti veninta per lifto. Dum la pasintaj kvar minutoj Flambeau estis rigardinta ĝin sternita tere; li vidis la elcerbitan kaj elsangadantan 199
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pastro Brown ektrovis Flambeau kaj seskelkajn aliajn ĉirkaŭstarantaj la enfermitan spacon en kiu kutime la lifto malsuprenvenis. Sed la lifto ne estis veninta. Io alia estis veninta; io kiu devus esti veninta per lifto. Dum la pasintaj kvar minutoj Flambeau estis rigardinta ĝin sternita tere; li vidis la elcerbitan kaj elsangadantan
 
 
 korpon de tiu bela virino kiu neis la ekzistadon de tragedio. Neniam li dubis, ke estas Pauline Stacey; kaj kvankam li venigis kuraciston li ne dubis, ke ŝi jam mortis.
@@ -3716,9 +3033,7 @@ Lasinte la korpon de la mortigita heredontino, Flambeau supren-rapidis ĝis la s
 
 ”ŝia fratino,” li diris kun neagrabla seriozeco, ”ŝia fratino ŝajne eliris promeni.”
 
-Pastro Brown kapjesis. ”Aŭ povas esti, ke ŝi supreniris al la oficejo de tiu sunulo,” li diris. ”Se mi estus vi, mi certiĝus pri tio, kaj 200
-
-L A N A I V E CO D E PA ST RO B ROW N
+Pastro Brown kapjesis. ”Aŭ povas esti, ke ŝi supreniris al la oficejo de tiu sunulo,” li diris. ”Se mi estus vi, mi certiĝus pri tio, kaj
 
 
 poste ni priparolu la tutan aferon en via oficejo. Ne,” li aldonis subite, kvazaŭ li memoris ion, ”ĉu mi iam venkos mian stultecon? Kompreneble, en ilia oficejo malsupre.”
@@ -3735,9 +3050,7 @@ Fraŭlino Joan Stacey, nigreta, la vizaĝo malgrasa kaj la hararo trofrue grizi�
 
 ”Nu, estas ĉi tiel,” diris Pastro Brown en sia nekaŝema dubplena maniero: ”Oni instruas nin, ke se homo havas malbonajn fun-damentajn principojn, la kulpo pri tio devas esti parte al li mem.
 
-Tamen, malgraŭ tio, ni povas iome diferencigi homon, kiu insultas 201
-
-L A N A I V E CO D E PA ST RO B ROW N
+Tamen, malgraŭ tio, ni povas iome diferencigi homon, kiu insultas
 
 
 sian tute klaran konsciencon, de homo kiu havas konsciencon pli aŭ malpli per sofismo malklarigitan. Nu, ĉu vi vere kredas, ke murdi iun estas iel kulpe?”
@@ -3750,9 +3063,7 @@ En la longa kaj ektimiga silento de la ĉambro leviĝis malrapide la apolona pro
 
 ”Ho, Kajafaso, fine ni renkontiĝas,” diris la profeto. ”Via eklezio kaj la mia estas la solaj realaĵoj sur ĉi tiu tero. Mi adoras la sunon, kaj vi la malheliĝon de la suno; vi estas la pastro de la mortanta, mi de la vivanta Dio. Via nuna suspekta kaj kalumnia laboro estas inda je via uniformo kaj kredo. Via tuta eklezio estas nenio, krom nigra polico; vi estas nur detektivoj kaj spionoj, provantaj deŝiri de homoj kulpkonfesojn, aŭ per perfido aŭ per torturo. Vi konvinkas homojn de krimoj, mi volus konvinki ilin de senkulpeco. Vi konvinkas ilin de malvirteco, mi volus konvinki ilin de virteco.
 
-”Leganto de la libroj de malboneco, ankoraŭ unu vorto antaŭ ol mi por ĉiam forblovos viajn senbazajn inkubojn. Ne eĉ malklare, vi povus kompreni kiom malmulte mi ĝenas min pri tio, ĉu vi povos kondamnigi min aŭ ne. Tiuj aĵoj, kiujn vi nomas hontiĝo kaj terura pendigo, ne estas al mi pli teruraj, ol la monstro el infana ludli-bro estas al plenkreskulo. Vi diris, ke vi parolas pro la akuzito. Tiom malmulte mi estimas ĉi tiun nebullandan vivon, ke mi aldonas la 202
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Leganto de la libroj de malboneco, ankoraŭ unu vorto antaŭ ol mi por ĉiam forblovos viajn senbazajn inkubojn. Ne eĉ malklare, vi povus kompreni kiom malmulte mi ĝenas min pri tio, ĉu vi povos kondamnigi min aŭ ne. Tiuj aĵoj, kiujn vi nomas hontiĝo kaj terura pendigo, ne estas al mi pli teruraj, ol la monstro el infana ludli-bro estas al plenkreskulo. Vi diris, ke vi parolas pro la akuzito. Tiom malmulte mi estimas ĉi tiun nebullandan vivon, ke mi aldonas la
 
 
 prosekutparoladon kontraŭ la akuzito. Estas nur unu ero el ĉi tiu afero, kiu estas asertabla kontraŭ mi, kaj tion mi mem diros. ŝi kiu mortis estis mia amantino kaj mia edzino, ne kiel viaj ladaj preĝetoj nomas kiel laŭleĝa, sed laŭ pli pura kaj pli severa leĝo ol vi iam ekkomprenos. ŝi kaj mi kunmarŝis en malsama mondo ol la via, kaj ni trairis kristalajn palacojn dum vi laboriradis tra brikaj tuneloj kaj koridoroj. Nu, mi scias, ke policanoj, teologiaj kaj aliaj, konstante opinias, ke kie estas estinta amo, baldaŭ nepre ekvenos malamo; do, vi jam aŭdis la unuan prosekuteron. Tamen la dua estas pli grava; mi ne kondutos min ŝpare. Estas vere, ne nur ke Pauline amis min, sed ankaŭ estas vere, ke hodiaŭ… hodiaŭ matene, antaŭ ol ŝi mortis, skribis ŝi ĉe tiu tablo testamenton, laŭ kiu, mi kaj mia nova eklezio ricevos duonmilionon da funtoj. Venu, kie estas la katenoj? ĉu vi opinias, ke ĝenas min, kiujn malsaĝaĵojn vi faros pri mi? Pun-servuto ŝajnos al mi nur kvazaŭ mi atendus ŝin sur laŭvoja stacio.
@@ -3761,9 +3072,7 @@ Per eŝafodo mi iros al ŝi kiel per rapidega ĉaro.”
 
 Li parolis kun la cerbskuiga aŭtoritato de oratoro, kaj Flambeau kaj Joan Stacey rigardis lin kun mirega admiro. La vizaĝo de Pastro Brown ŝajnis esprimi nenion krom ekstrema afliktiĝo. Li planken rigardadis, unu dolorplena sulketo sur la frunto. La sunprofeto facile apogis sin al la kameno kaj daŭrigis:
 
-”Per malmultaj vortoj mi prezentis al vi la tutan cirkonstancaron, efektive la solan cirkonstancaron, kontraŭ mi. Per ankoraŭ pli malmultaj vortoj mi tute forblovos ĝin, tiel ke eĉ unu postsigneto ne restos. ĉu mi faris ĉi tiun krimon? Pauline Stacey defalis de ĉi tiu etaĝo je kvin minutoj post tagmezo. Cent homoj atestos en juĝejo, ke mi elstaris sur la balkono de miaj propraj ĉambroj iom antaŭ la tagmeza eksonaro, kaj dum la posta kvaronhoro… la kutiman peri-odon de mia publika preĝado. Mia skribisto (respektinda junulo de Clapham, neniel kunligita al miaj aferoj) ĵurus, ke li sidis en mia 203
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Per malmultaj vortoj mi prezentis al vi la tutan cirkonstancaron, efektive la solan cirkonstancaron, kontraŭ mi. Per ankoraŭ pli malmultaj vortoj mi tute forblovos ĝin, tiel ke eĉ unu postsigneto ne restos. ĉu mi faris ĉi tiun krimon? Pauline Stacey defalis de ĉi tiu etaĝo je kvin minutoj post tagmezo. Cent homoj atestos en juĝejo, ke mi elstaris sur la balkono de miaj propraj ĉambroj iom antaŭ la tagmeza eksonaro, kaj dum la posta kvaronhoro… la kutiman peri-odon de mia publika preĝado. Mia skribisto (respektinda junulo de Clapham, neniel kunligita al miaj aferoj) ĵurus, ke li sidis en mia
 
 
 ekstera oficejo dum la tuta mateno, kaj ke nenia komunikaĵo trapasis. Li ĵurus, ke mi alvenis dek minutojn antaŭ la dekdua… dek minutojn antaŭ ol eĉ flustro pri la tragedio… kaj, ke mi ne forestis la oficejon aŭ la balkonon dum la tuta tempo. Neniu iam havis tian kompletan alibion. Mi povus ĉeestordoni duonon de la Westminsteranoj atesti tion pri mi. Mi kredas, ke vi devas remeti la katenojn.”
@@ -3772,12 +3081,7 @@ ekstera oficejo dum la tuta mateno, kaj ke nenia komunikaĵo trapasis. Li ĵurus
 
 ĝin kiel heroa malsukcesaĵo en la scienca antaŭenmarŝado, kaj la malrapida suprenrampado al la ĉielo.”
 
-Por la unua fojo Flambeau vidis Pastron Brown venkita. Li ankoraŭ sidis rigardante teren kvazaŭ hontigita, kun la brovo dolor-204
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-plena kaj sulkigita. Estis neeble eviti la sentojn, kiujn la flugilaj vortoj de la profeto ventumis, ke jen malbonhumora, laŭprofesia hom-suspektanto, venkita per pli fiera kaj pli pura spirito de natura hi-bereco kaj sano. Fine li ekdiris, palpebrumante, kvazaŭ korpe aflik-tita: ”Nu, sinjoro, se estas tiel, vi devas nenion fari, krom preni la testamentan paperon, pri kiu vi parolis, kaj foriri. Mi scivolus kie la kompatinda fraŭlino lasis ĝin.”
+Por la unua fojo Flambeau vidis Pastron Brown venkita. Li ankoraŭ sidis rigardante teren kvazaŭ hontigita, kun la brovo dolorplena kaj sulkigita. Estis neeble eviti la sentojn, kiujn la flugilaj vortoj de la profeto ventumis, ke jen malbonhumora, laŭprofesia hom-suspektanto, venkita per pli fiera kaj pli pura spirito de natura hi-bereco kaj sano. Fine li ekdiris, palpebrumante, kvazaŭ korpe aflik-tita: ”Nu, sinjoro, se estas tiel, vi devas nenion fari, krom preni la testamentan paperon, pri kiu vi parolis, kaj foriri. Mi scivolus kie la kompatinda fraŭlino lasis ĝin.”
 
 ”i estas tie, sur ŝia skribtablo, apud la pordo, mi kredas,” diris Kalon, kun tiu fortika senkulpa maniero, kiu ŝajne tute malkondam-nis lin. ”ŝi diris al mi, ke ŝi nepre skribos ĝin hodiaŭ matene, kaj fakte mi vidis ŝin, ĝin skribanta dum mi supreniris al mia ĉambro en la lifto.”
 
@@ -3785,24 +3089,18 @@ plena kaj sulkigita. Estis neeble eviti la sentojn, kiujn la flugilaj vortoj de 
 
 ”Jes,” diris Kalon trankvile.
 
-”Ha, de tiam, ĝi ĉiam estis malfermita,” respondis la alia kaj daŭ-
-
-rigis sian silentan studadon de la mato.
+”Ha, de tiam, ĝi ĉiam estis malfermita,” respondis la alia kaj daŭrigis sian silentan studadon de la mato.
 
 ”Estas papero ĉi tie,” diris la timiga fraŭlino Joan, per iomete strangtona voĉo. ŝi estis transirinta al la skribtablo de sia fratino kaj mantenis grandan paĝon de blua papero. ŝi estis maldoĉe ridetanta je maniero netaŭga al tia sceno aŭ okazaĵo, kaj Flambeau rigardis ŝin kun malheliĝanta brovo.
 
 La profeto Kalon deturnis sin de la papero, kun tiu reĝa nekon-scieco kiu dum la tuta tempo subtenis lin. Sed Flambeau prenis ĝin el la fraŭlina mano kaj tralegis ĝin kun pleja mirego. i ja komencis laŭ la kutima testamenta maniero, sed post la vortoj ”Mi donas kaj testamentas ĉion, kion mi je morto posedos” la skribo abrupte finiĝis, poste estis nun grataĵoj kaj nenia signo de heredonta nomo.
 
-Miregante, Flambeau transdonis ĉi tiun tratranĉitan testamenton al 205
-
-L A N A I V E CO D E PA ST RO B ROW N
+Miregante, Flambeau transdonis ĉi tiun tratranĉitan testamenton al
 
 
 sia pastra amiko, kiu ekrigardis ĝin kaj silente donis ĝin al la sunsacerdoto.
 
-Sekundon poste tiu pontifiko, portanta siajn grandiozajn vesta-
-
-ĵojn, transiris la ĉambron per du grandegaj paŝoj kaj kiel turo superstaris Joan, liaj bluaj okuloj elstarantaj de la kapo.
+Sekundon poste tiu pontifiko, portanta siajn grandiozajn vestaĵojn, transiris la ĉambron per du grandegaj paŝoj kaj kiel turo superstaris Joan, liaj bluaj okuloj elstarantaj de la kapo.
 
 ”Kiajn firuzojn vi faris?” li ekkriis. ”ĉi tiu ne estas ĉio, kion Pauline skribis.”
 
@@ -3825,9 +3123,6 @@ Estis silento.
 ”Do,” kriis Flambeau, ”Pauline estis sola, kiam ŝi defalis, kaj temas pri sinmortigo.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”ŝi estis sola kiam ŝi falis,” diris Pastro Brown, ”sed tio ne estis sinmortigo.”
 
 ”Kiel do ŝi mortis?” Flambean demandis senpacience.
@@ -3838,9 +3133,7 @@ L A N A I V E CO D E PA ST RO B ROW N
 
 ”Oni murdis ŝin kiam ŝi estis tute sola,” respondis la pastro.
 
-La aliaj ĉiuj rigardis lin, sed li restis kiel antaŭe, sidanta malkura-
-
-ĝigata kun sulko sur la ronda brovo kaj kun ŝajno de nepersona honto kaj malĝojo; lia voĉo estis malemfaza kaj malfeliĉa.
+La aliaj ĉiuj rigardis lin, sed li restis kiel antaŭe, sidanta malkuraĝigata kun sulko sur la ronda brovo kaj kun ŝajno de nepersona honto kaj malĝojo; lia voĉo estis malemfaza kaj malfeliĉa.
 
 ”Mi volas scii,” Kalon kriis kun blasfemo, ”kiam la policanoj alvenos por forpreni ĉi tiun sangan kaj malvirtan fratinon. ŝi mortigis sian propran karnon kaj sangon; ŝi forrabis de mi duonmilionon, kiu estis tiel sankte la mia, kiel…”
 
@@ -3859,9 +3152,6 @@ Subite Pastro Brown rekte ekstaris, tiel, ke lia seĝo falis teren malantaŭ li.
 La alta profeto malantaŭenkuris de la malgranda pastro en preskaŭ freneza konfuziĝo. ”Kion signifas? Kiel vi kuraĝas?” li kriadis.
 
 ”En la okuloj de Pauline,” rediris Pastro Brown, la liaj ankoraŭ pli brilegantaj. ”Daŭrigu… je l’dia nomo… daŭrigu. La plej abomena krimo, kiun diabloj iam instigis, post konfeso malpeziĝas; kaj mi petegas ke vi konfesu. Darŭigu, daŭrigu… En la okuloj de Pauline.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Liberigu min, vi diablo,” tondris Kalon luktante kiel giganto en katenoj.
@@ -3890,9 +3180,7 @@ Fraŭlino Joan Stacey, kiu jam kolektis kaj enmetis siajn paperojn en la tirkest
 
 ”Mi povas elparoli ĝin per unu vorto,” respondis lia amiko.
 
-Fraŭlino Joan Stacey, rigardante sin en speguleto kun nigra sul-kigo, surmetis kaj fiksis per pinglo sian nigran oficejtaŭgan ĉapelon; 208
-
-L A N A I V E CO D E PA ST RO B ROW N
+Fraŭlino Joan Stacey, rigardante sin en speguleto kun nigra sul-kigo, surmetis kaj fiksis per pinglo sian nigran oficejtaŭgan ĉapelon;
 
 
 kaj dum la interparolado daŭris, prenis sian mansaketon kaj ombrelon je ne rapidigita maniero, kaj eliris la ĉambron.
@@ -3905,9 +3193,7 @@ kaj dum la interparolado daŭris, prenis sian mansaketon kaj ombrelon je ne rapi
 
 Estis paŭzo kaj la pastro daŭrigis per milda kaj eĉ tremanta voĉo.
 
-”ĉu tiu diablo intence blindigis ŝin aŭ ne, estas nenia dubo pri tio, ke li intence mortigis ŝin pere de ŝia blindeco. La nura simpleco de la krimo estas naŭziga. Vi scias, ke li kaj ŝi supren kaj malsupreni-radis per tiuj liftoj sen oficiala helpo; vi ankaŭ scias kiel facile kaj senbrue la liftoj glitas. Kalon irigis la lifton ĝis ŝia plataĵo kaj tra la malfermita pordo, vidis ŝin skribantan en sia malrapida, senvidanta maniero, la testamenton, kiun ŝi promesis doni al li. Li ĝoje alvokis ŝin, dirante, ke li alvenigis la lifton por ŝi, kaj ke ŝi eliru kiam ŝi estos preta. Tiam li enpremis la elektran butonon kaj suprenglitis senbrue ĝis sia propra etaĝo, trapaŝis sian oficejon kaj sendanĝere 209
-
-L A N A I V E CO D E PA ST RO B ROW N
+”ĉu tiu diablo intence blindigis ŝin aŭ ne, estas nenia dubo pri tio, ke li intence mortigis ŝin pere de ŝia blindeco. La nura simpleco de la krimo estas naŭziga. Vi scias, ke li kaj ŝi supren kaj malsupreni-radis per tiuj liftoj sen oficiala helpo; vi ankaŭ scias kiel facile kaj senbrue la liftoj glitas. Kalon irigis la lifton ĝis ŝia plataĵo kaj tra la malfermita pordo, vidis ŝin skribantan en sia malrapida, senvidanta maniero, la testamenton, kiun ŝi promesis doni al li. Li ĝoje alvokis ŝin, dirante, ke li alvenigis la lifton por ŝi, kaj ke ŝi eliru kiam ŝi estos preta. Tiam li enpremis la elektran butonon kaj suprenglitis senbrue ĝis sia propra etaĝo, trapaŝis sian oficejon kaj sendanĝere
 
 
 estis preĝanta antaŭ la homplena strato kiam la kompatinda knabino, sian laboron fininte, goje elkuris kien amanto kaj lifto estas pretaj akcepti ŝin, kaj antaŭenpaŝis——”
@@ -3925,9 +3211,6 @@ Flambeau iris al la malfermita pordo kaj aŭdis la oficialajn policanojn suprenv
 Pastro Brown ektremetis.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Ho! lin,” li diris, ”Ne, mi devis atente pripensi por eltrovi la aferon de Fraŭlino Joan kaj la fontplumo. Tamen mi jam sciis, ke Kalon estas la krimulo antaŭ ol mi eĉ eniris la konstruaĵon.”
 
 ”Vi ja ŝercas!” ekkriis Flambeau.
@@ -3939,23 +3222,13 @@ L A N A I V E CO D E PA ST RO B ROW N
 ”ĉi tiuj paganaj stoikuloj,” pripense diris Pastro Brown, ”ĉiam malsukcesas pro sia forteco. Ekvenis krakego kaj ekkrio en la straton kaj la apolona pastro ne ektremis nek ĉirkaŭenrigardis. Mi ne sciis kio ĝi estis. Tamen mi sciis, ke li atendis ĝin.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA SIGNO DE LA ROMPITA GLAVO
 
-La mil brakoj de la arbaro estis grizaj kaj ĝiaj milionoj da fingroj estis arĝentaj. En ĉielo malhela kaj verdblua kiel ardezo la steloj malvarmige briladis kiel frakasita glacio. La tuto de tiu dense arbkovrita kaj preskaŭ senhoma kamparo estis rigida pro fortega kaj fendanta frosto. La nigraj kavaĵoj inter la arbtrunkoj aspektis kiel nekalkulebla malvarmeco. La kvadrata ŝtona turo de la preĝejo aspektis norda eĉ ĝis paganeco, kvazaŭ ĝi estus barbara turo inter la marrokoj de Islando. Estis stranga speco de nokto por esplori pre-
-
-ĝejan korton. Tamen aliflanke, eble ĝi estis esplorinda.
+La mil brakoj de la arbaro estis grizaj kaj ĝiaj milionoj da fingroj estis arĝentaj. En ĉielo malhela kaj verdblua kiel ardezo la steloj malvarmige briladis kiel frakasita glacio. La tuto de tiu dense arbkovrita kaj preskaŭ senhoma kamparo estis rigida pro fortega kaj fendanta frosto. La nigraj kavaĵoj inter la arbtrunkoj aspektis kiel nekalkulebla malvarmeco. La kvadrata ŝtona turo de la preĝejo aspektis norda eĉ ĝis paganeco, kvazaŭ ĝi estus barbara turo inter la marrokoj de Islando. Estis stranga speco de nokto por esplori preĝejan korton. Tamen aliflanke, eble ĝi estis esplorinda.
 
 i abrupte leviĝis el la cindraj dezertejoj de la arbaro kiel ia ĝibo aŭ ŝultro el verda razeno kiu aspektis grize en la lunlumo. La tomboj plejmulte kliniĝis sur la flanko de la monteto kaj la vojeto, kiu alkondukis al la preĝejo, estis tiel kruta kiel ŝtuparo. Sur la supraĵo de la monteto, elstarante sur la sola ebenaĵo, staris la monumento pro kiu la loko estis famkonata. i strange kontrastis kontraŭ la sentrajtaj tomboj cirkaŭe, ĉar ĝi estis la faraĵo de unu el la plej grandaj skulptistoj el moderna Eŭropo; sed ties renomo tuj forgesiĝis pro la renomo de la viro kies figuraĵon li estis farinta. Tuŝata de la arĝentaj radietoj de stellumo montriĝis la pezega metala figuro de kuŝanta militisto, kies fortaj manoj estis kunpremitaj en senĉesa adorado, kies granda kapo kuŝis sur pafilego. Tiu grandaĝa vizaĝo portis barbon aŭ pli ĝuste vangharojn laŭ la malnova serioza modo.
 
-La uniformo, kvankam esprimita per la malmultaj linioj de simpleco, estis la uniformo de moderna militado. ĉe ties dekstra flanko kuŝis glavo kies pinto estis forrompita; maldekstre kuŝis Biblio. So-212
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-mere, dum la brilaj posttagmezoj, alvenis tien veturiloj plenaj je usonanoj kaj kulturitaj antaŭurbanoj por vidi la tombon; sed eĉ tiam ili sentis, ke la vasta arbarloko kun ĝia sola ĝiba kupolo el pre-
+La uniformo, kvankam esprimita per la malmultaj linioj de simpleco, estis la uniformo de moderna militado. ĉe ties dekstra flanko kuŝis glavo kies pinto estis forrompita; maldekstre kuŝis Biblio. Somere, dum la brilaj posttagmezoj, alvenis tien veturiloj plenaj je usonanoj kaj kulturitaj antaŭurbanoj por vidi la tombon; sed eĉ tiam ili sentis, ke la vasta arbarloko kun ĝia sola ĝiba kupolo el pre-
 
 ĝejo kaj preĝeja korto estas loko strange muta kaj forlasita. En ĉi tiu frosta mallumo de mezvintro oni kredus, ke li estus lasita sola kun la steloj. Tamen en la silento de tiuj rigidaj arbaroj kradpordo kna-ris, kaj du malklaraj figuroj nigre vestitaj suprengrimpis la vojeton al la tombo.
 
@@ -3976,12 +3249,7 @@ Silentis ankoraŭ unufoje kaj tiam la altulo daŭrigis, ”ĉu vi volas diri, ke
 Li frapis la teron per siaj malvarmaj piedoj unu du momentojn kaj tiam diris, ”Mi tute ne pripensas tion sed ion alian; ion iomete strangan. Ekbruligu do alumeton, mi petas.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-La granda viro fuŝpalpadis en sia poŝo, kaj baldaŭ gratado kaj ekflamo origis la tutan glatan flankon de la monumento. Nigre en-
-
-ĉizitaj sur ĝi estis la bone konataj vortoj, kiujn tiom multe da usa-nanoj respektege legis, ”SANKTA al la ĉiama Memoro de Generalo Sir Arthur St. Clare, Heroo kaj Martiro kiu ĉiam Venkobatis Siajn Malamikojn kaj ĉiam Indulgis Ilin kaj estis Fine de Ili Perfideme Mortigita. La Eternulo al Kiu li Fidis kaj Rekompencu kaj Venĝu lin.”
+La granda viro fuŝpalpadis en sia poŝo, kaj baldaŭ gratado kaj ekflamo origis la tutan glatan flankon de la monumento. Nigre enĉizitaj sur ĝi estis la bone konataj vortoj, kiujn tiom multe da usa-nanoj respektege legis, ”SANKTA al la ĉiama Memoro de Generalo Sir Arthur St. Clare, Heroo kaj Martiro kiu ĉiam Venkobatis Siajn Malamikojn kaj ĉiam Indulgis Ilin kaj estis Fine de Ili Perfideme Mortigita. La Eternulo al Kiu li Fidis kaj Rekompencu kaj Venĝu lin.”
 
 La alumeto brulvundis la fingrojn de la altulo, nigriĝis, kaj defalis. Li estis ekbruligonta alian, sed lia malalta kunulo haltigis lin.
 
@@ -3989,14 +3257,10 @@ La alumeto brulvundis la fingrojn de la altulo, nigriĝis, kaj defalis. Li estis
 
 Ili malsupreniris la krutan vojeton, ili klinkis denove la rustitan kradpordon, kaj foriris kun frapantaj sonoraj paŝoj laŭ la glacia arbara vojo. Ili jam iris kvarcent metrojn antaŭ ol la pli malgranda viro denove parolis. Li diris, ”Jes; saĝulo kaŝas ŝtoneton sur la marbordo. Sed kion li faras se marbordo ne ekzistas? ĉu vi ion scias pri la granda afero St. Clare?”
 
-”Nenion mi scias pri anglaj generaloj, Pastro Brown,” respondis la altulo ridante, ”tamen iomete pri anglaj policanoj. Mi nur scias, ke vi irigis min multajn kilometrojn al ĉiuj ties sanktejoj, kiu ajn li estu. Oni kredus, ke li estas enterigita en ses malsamaj lokoj. Mi vidis memoroĵon al Generalo St. Clare en Westminster Abatejo. Mi vidis surĉevalan statuon de General St. Clare sur la Tamizbordo. Mi vidis medalionon de General St. Clare en la strato kie li naskiĝis, kaj alian en la strato kie li loĝis; kaj nun vi irigas min nokte al lia ĉer-ko en vilaĝa preĝeja korto. Lia grandioza personeco fariĝas al mi 214
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Nenion mi scias pri anglaj generaloj, Pastro Brown,” respondis la altulo ridante, ”tamen iomete pri anglaj policanoj. Mi nur scias, ke vi irigis min multajn kilometrojn al ĉiuj ties sanktejoj, kiu ajn li estu. Oni kredus, ke li estas enterigita en ses malsamaj lokoj. Mi vidis memoroĵon al Generalo St. Clare en Westminster Abatejo. Mi vidis surĉevalan statuon de General St. Clare sur la Tamizbordo. Mi vidis medalionon de General St. Clare en la strato kie li naskiĝis, kaj alian en la strato kie li loĝis; kaj nun vi irigas min nokte al lia ĉer-ko en vilaĝa preĝeja korto. Lia grandioza personeco fariĝas al mi
 
 
-iomete teda, precipe ĉar mi tute ne scias kiu li estis. Kion vi elser-
-
-ĉas en ĉi tiuj kriptoj kaj figuraĵoj?”
+iomete teda, precipe ĉar mi tute ne scias kiu li estis. Kion vi elserĉas en ĉi tiuj kriptoj kaj figuraĵoj?”
 
 ”Mi serĉas nur unu vorton,” diris Pastro Brown. ”Vorton, kiu ne estas trovebla.”
 
@@ -4018,12 +3282,7 @@ Li estis trovita tie pendolante kun sia disrompita glavo ĉirkaŭ la kolo, post 
 
 ”Mi opinias, ke tiom sufiĉas,” diris Flambeau; ”tamen se la popola rakonto estas vera, kie la mistero?”
 
-Ili estis jam pasintaj multajn centojn da grizaj kaj fantomaj ar-215
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-baj antaŭ ol la malalta pastro respondis. Tiam li mordetadis pripense la fingrojn kaj diris: ”La mistero do estas psikologia mistero, aŭ pli ĝuste ĝi estas la mistero de du psikologiaj. En tiu brazila afero du el la plej eminentaj viroj el moderna historio agis tute kontraŭe al siaj karakteroj. Ne forgesu, ke Olivier kaj St. Clare estis herooj—
+Ili estis jam pasintaj multajn centojn da grizaj kaj fantomaj arbaj antaŭ ol la malalta pastro respondis. Tiam li mordetadis pripense la fingrojn kaj diris: ”La mistero do estas psikologia mistero, aŭ pli ĝuste ĝi estas la mistero de du psikologiaj. En tiu brazila afero du el la plej eminentaj viroj el moderna historio agis tute kontraŭe al siaj karakteroj. Ne forgesu, ke Olivier kaj St. Clare estis herooj—
 
 la malnova speco sendube; estis kiel la batalo inter Hektoro kaj A˛ilo. Kiel do vi opinius pri afero en kiu A˛ilo estas timema kaj Hektoro perfidema?”
 
@@ -4036,16 +3295,11 @@ Sir Arthur St. Clare estis militisto de la malmoderna religia speco—la speco k
 Homoj kiuj faris kontraŭ li malbonagojn foriris kortuŝite de lia simpleco kaj bonkoreco. Je infero, kial li tiel diable sin venĝus nur unu fojon dum sia tuta vivo, kaj tiam pro la sola aparta bato, kiu tute ne povus vundi lin? Nu, jen la enigmo. Unu el la plej saĝaj homoj el la mondo agis kiel idioto pro neniu kialo. Unu el la plej bonaj homoj el la mondo agis kiel diablo pro neniu kialo. Jen ĉio; vi mem elpensu tion, amiko mia.”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Ne, ne,” diris la alia kun spirekblovo. ”Vi daŭrigu kaj vi nepre rakontu ĉion al mi.”
 
 ”Nu,” daŭrigis Pastro Brown, ”Diri, ke la popola ideo estas ĝuste tia kian mi rakontis, ne estas honeste sen la aldono de kelkaj aferoj kiuj poste okazis. Mi ne povas aserti, ke ili iel ĵetas novan lumon sur la aferon, ĉar neniu povas kompreni ilin. Ili tamen ĵetis novan specon de mallumo; ili etendas la mallumon en aliaj direktoj. Unue estis ĉi tio. Fariĝis kverelo inter la familia kuracisto de la St. Clare’oj kaj la familio, kaj li komencis eldoni skandalajn artikolojn en kiuj li asertis, ke la ĵus mortinta generalo estis religia frenezulo; tamen de la rakonto mem ŝajnas, ke tio ne multe signifas pli ol, ke li estis religiema viro. La onidiroj tamen formortis. Kompreneble ĉiu sciis, ke St. Clare montris kelkajn el la strangaĵoj de puritana pieco. La dua okazintaĵo estis multe pli atentiga. En la malbonŝanca kaj ne subtenita regimento, kiu faris tiun malprudentan provon ĉe la Nigra Rivero, estis iu Kapitano Keith, kiu tiutempe estis fianĉo de la filino de St. Clare, kaj kiu poste fariĝis ŝia edzo. Li estis unu el la kaptitoj de Olivier kaj ŝajnas, ke li, tiel same kiel la aliaj, ĉiuj escepte de la Generalo, estis bonege traktata kaj senprokraste liberigata.
 
-ĉirkaŭ dudek jaroj poste, ĉi tiu viro, tiam Leŭtenant-Kolonelo Keith, eldonis mallongan aŭtobiografion sub la titolo, ‘Brita Oficiro en Birmo kaj Brazilo.’ Kie la leganto atente serĉas ian priskribon pri la mistero de la ruiniĝo de St. Clare, troviĝas ĉi tiuj vortoj. ‘ĉie en ĉi tiu libro krom tie ĉi, mi priskribis aferojn ĝuste kiel ili okazis, sub-tenante la malmodernan opinion, ke la gloro de Anglujo estas sufiĉe aĝa por defendi sin mem. Mi nur faros escepton de tiu regulo rilate al la afero de la venkobato apud la Nigra Rivero; kaj miaj kialoj kvankam privataj tamen estas honestaj kaj devigantaj. Mi aldonos tamen pro justeco al la memoro de du eminentaj viroj tion ĉi. Generalon St. Clare oni akuzis de malkapableco rilate al tiu afero; mi 217
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĉirkaŭ dudek jaroj poste, ĉi tiu viro, tiam Leŭtenant-Kolonelo Keith, eldonis mallongan aŭtobiografion sub la titolo, ‘Brita Oficiro en Birmo kaj Brazilo.’ Kie la leganto atente serĉas ian priskribon pri la mistero de la ruiniĝo de St. Clare, troviĝas ĉi tiuj vortoj. ‘ĉie en ĉi tiu libro krom tie ĉi, mi priskribis aferojn ĝuste kiel ili okazis, sub-tenante la malmodernan opinion, ke la gloro de Anglujo estas sufiĉe aĝa por defendi sin mem. Mi nur faros escepton de tiu regulo rilate al la afero de la venkobato apud la Nigra Rivero; kaj miaj kialoj kvankam privataj tamen estas honestaj kaj devigantaj. Mi aldonos tamen pro justeco al la memoro de du eminentaj viroj tion ĉi. Generalon St. Clare oni akuzis de malkapableco rilate al tiu afero; mi
 
 
 povas atesti almenaŭ, ke ĉi tiu ago, se ĝi estus ĝuste komprenata, montriĝus kiel unu el la plej lertaj kaj sagacaj el lia kariero. Prezidanto Olivier estas tiel same akuzita de sovaĝa maljusteco. Mi opinias, ke mi ŝuldas al la honoro de malnova malamiko aserton, ke li agis tiaokaze kun eĉ pli ol kutima bonkoreco. Esprimante la aferon populare, mi povas certigi al miaj samlandanoj, ke St. Clare estis tute ne tiel malsaĝa kaj Olivier tute ne tiel kruelega kiel ŝajnis. Mi diros nenion plu; kaj neniu subĉiela rekompenco povas instigi al mi aldoni al tio eĉ unu vorton’”
@@ -4063,9 +3317,6 @@ La enirejo en la pli malproksiman arbareton aspektis malgrande kaj ronde kiel la
 ”Mi estas diveninta,” li fine kriis manfrapante sian femuron per grandega mano, ”kvarminutan pensadon kaj mi mem rakontos al vi vian rakonton entute.”
 
 ”Bone,” jesis lia amiko, ”vi rakontu ĝin do.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Flambeau levis la kapon sed mallaŭtigis la voĉon, ”Generalo Arthur St. Clare,” li diris, ”naskiĝis en familion en kiu frenezeco estis hereda; kaj lia celo estis tion kaŝi al lia filino kaj eĉ se eble al lia estonta bofilo. Prave malprave li opiniis, ke la fina freneziĝo estas baldaŭ venonta, kaj decidis sin mortigi. Ordinara sinmortigo tamen nur disproklamus kion li timegis.
@@ -4089,9 +3340,6 @@ La alta Flambeau sin turnis kaj rigardis lin.
 Flambeau ekrigardis senespere al la luno ĵus alvokita; kaj de kie li staris unu sola nigra branĉo kurbita vidiĝis trans ĝi, ĝuste kiel diabla korno.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Patro—patro,” kriis Flambeau kun franca gesto kaj eĉ pli rapide antaŭen paŝante, ”ĉu vi volas diri, ke ĝi estis pli malbona ol tio?”
 
 ”Pli malbona ol tio,” diris la pastro kiel malgaja e˛o, kaj ili iris denove en la nigrajn klostrojn de la arbejo, kiu kuris tiam preter ili, kvazaŭ malluma teksaĵo el trunkoj en la malhelaj koridoroj de stranga sonĝo.
@@ -4106,11 +3354,7 @@ Ili estis baldaŭ en la plej kaŝitaj intestoj de la arbaro kaj palpadis apude k
 
 ”Atendu do,” kriis lia amiko senpacience, ĉar la malluma arbaro kaj mallumaj diroj iomete agacis lin, ”cu vi rakontos ĉi tion al mi aŭ ne? Kiajn aliajn postsignojn vi havas por esplori?”
 
-”Restas ankoraŭ tri atestaĵoj,” diris la alia, ”tion mi elfosis el kaŝitaj anguloj tie kaj tie ĉi; mi rakontos laŭ la logika prefere ol laŭ la kronologia ordo. Unue kompreneble nia scio pri la okazo kaj rezulto de la batalo devenas el la depeŝoj de Olivier mem, kiuj estas sufi-
-
-ĉe klaraj. Li estis enfosita kun du aŭ tri regimentoj sur la supra parto de la krutaĵoj kiuj superstaras la Nigran Riveron, ĉe la alia bordo de kiu troviĝas malpli alta kaj marĉa tero. Ankoraŭ pli malproksime estas facilaj montetoj sur kiuj estis la unua angla antaŭposteno, subtenata de aliaj, kiuj estis tamen iom malantaŭ ĝi. Entute la angla militistaro estis la pli multnombra; tamen ĉi tiu regimento estis sufiĉe malproksime de sia bazo por devigi al Olivier konsideri la projekton transiri la riveron kaj disigi ĝin de la granda armeo. Je sunsubiro tamen li estis decidinta tenadi sian propran pozicion, kiu 220
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Restas ankoraŭ tri atestaĵoj,” diris la alia, ”tion mi elfosis el kaŝitaj anguloj tie kaj tie ĉi; mi rakontos laŭ la logika prefere ol laŭ la kronologia ordo. Unue kompreneble nia scio pri la okazo kaj rezulto de la batalo devenas el la depeŝoj de Olivier mem, kiuj estas sufiĉe klaraj. Li estis enfosita kun du aŭ tri regimentoj sur la supra parto de la krutaĵoj kiuj superstaras la Nigran Riveron, ĉe la alia bordo de kiu troviĝas malpli alta kaj marĉa tero. Ankoraŭ pli malproksime estas facilaj montetoj sur kiuj estis la unua angla antaŭposteno, subtenata de aliaj, kiuj estis tamen iom malantaŭ ĝi. Entute la angla militistaro estis la pli multnombra; tamen ĉi tiu regimento estis sufiĉe malproksime de sia bazo por devigi al Olivier konsideri la projekton transiri la riveron kaj disigi ĝin de la granda armeo. Je sunsubiro tamen li estis decidinta tenadi sian propran pozicion, kiu
 
 
 estis aparte forta. Sekvantan matenon je la tagiĝo li estis frapata de miro vidante, ke ĉi tiu vaganta areto da angloj, tute ne subtenata de malantaŭe, estas sin ĵetinta trans la riveron, duono per ponto dekstre kaj la alia duono per pli supra transvadejo, kaj amasiĝas sub li sur la marĉa bordo.
@@ -4119,20 +3363,13 @@ estis aparte forta. Sekvantan matenon je la tagiĝo li estis frapata de miro vid
 
 skribis Olivier, ‘kaj pelis ilin en la riveron; mi kaptis Generalon St.
 
-Clare mem kaj plurajn aliajn oficirojn. Kaj la kolonelo kaj la majoro falis dum la batalo. Mi ne povas ne diri, ke en la tuta historio pli kuraĝa spektaklo ol la fina kontraŭstaro de tiu ĉi eksterordinara regimento malofte povas esti vidita; vunditaj oficiroj prenantaj la fusilojn de mortintaj soldatoj, kaj la generalo mem nntraŭ-
-
-staranta surĉevale, la kapo malkovrita kaj la glavo rompita.’ Rilate al kio poste okazis Olivier estas tiel silenta kiel Kapitano Keith.”
+Clare mem kaj plurajn aliajn oficirojn. Kaj la kolonelo kaj la majoro falis dum la batalo. Mi ne povas ne diri, ke en la tuta historio pli kuraĝa spektaklo ol la fina kontraŭstaro de tiu ĉi eksterordinara regimento malofte povas esti vidita; vunditaj oficiroj prenantaj la fusilojn de mortintaj soldatoj, kaj la generalo mem nntraŭstaranta surĉevale, la kapo malkovrita kaj la glavo rompita.’ Rilate al kio poste okazis Olivier estas tiel silenta kiel Kapitano Keith.”
 
 ”Do,” grumblis Flambeau, ”la sekvantan atestaĵon pritraktu.”
 
 ”Iom da tempo necesis por eltrovi la venontan atestaĵon,” diris Pastro Brown, ”por rakonti ĝin tamen necesas ne longa tempo. Mi fine eltrovis en almozula domo forkaŝita en la Lincoln’aj marĉlandoj maljunan soldaton, kiu ne nur estis vundita ĉe la Nigra Rivero, sed fakte surgenuiĝis flanke de la regimenta kolonelo kiam li mortis.
 
-ĉi tiu estis iu Kolonelo Clancy, granda bovsimila irlandano, kaj ŝaj-221
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-nas, ke li mortis tiom pro kolerego kiom pro kugloj. Li almenaŭ ne respondecis por tiu absurda invado; ĝi devis esti ordonita al li de la generalo mem. Liaj lastaj edifaj vortoj estis ĉi tiuj, ‘kaj jen iras la damnita azenaĉo kun la pinto de sia glavo forrompita. Ke tia nur estu lia kapo.’ Vi rimarku, ke ŝajne ĉiu observis tiun ĉi detalon pri la rompita glavo, plej multaj tamen estimas ĝin pli respekte ol la mortinta Kolonelo Clancy. Kaj nun la tria atestajo.”
+ĉi tiu estis iu Kolonelo Clancy, granda bovsimila irlandano, kaj ŝajnas, ke li mortis tiom pro kolerego kiom pro kugloj. Li almenaŭ ne respondecis por tiu absurda invado; ĝi devis esti ordonita al li de la generalo mem. Liaj lastaj edifaj vortoj estis ĉi tiuj, ‘kaj jen iras la damnita azenaĉo kun la pinto de sia glavo forrompita. Ke tia nur estu lia kapo.’ Vi rimarku, ke ŝajne ĉiu observis tiun ĉi detalon pri la rompita glavo, plej multaj tamen estimas ĝin pli respekte ol la mortinta Kolonelo Clancy. Kaj nun la tria atestajo.”
 
 Ilia vojeto trans la arbaro komencis supreniri kaj la parolanto iomete paŭzis por kapti spiron antaŭ ol li daŭrigis. Tiam li komencis denove kun tiu sama aferema voĉo.
 
@@ -4142,20 +3379,14 @@ Ilia vojeto trans la arbaro komencis supreniri kaj la parolanto iomete paŭzis p
 
 ĝi ĉesas abrupte je la antaŭbatala nokto.
 
-”Tamen la priskribo de la lasta tago el la vivo de tiu kompatindulo certe estas leginda. Mi havas ĝin ĉi tie; tamen estas tro mallu-me por legi ĝin kaj mi donas al vi resumon. La unua parto estas plena je ŝercoj, evidente rakontitaj inter la soldatoj, pri iu nomita La Vulturo. Ne ŝajnas, ke ĉi tiu persono, kiu ajn li estu, estis unu el ili mem, eĉ ne ke li estis anglo; kaj oni ne priparolas lin ĝuste kiel malamikon. Pli ĝuste ŝajnas, ke li estis ia loka peristo kaj nebatalanto; eble gvidisto aŭ ĵurnalisto. Kelkfoje li estas kun maljuna Kolonelo Clancy, sed plejofte li vidiĝas parolante kun la majoro. Efektive la 222
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Tamen la priskribo de la lasta tago el la vivo de tiu kompatindulo certe estas leginda. Mi havas ĝin ĉi tie; tamen estas tro mallu-me por legi ĝin kaj mi donas al vi resumon. La unua parto estas plena je ŝercoj, evidente rakontitaj inter la soldatoj, pri iu nomita La Vulturo. Ne ŝajnas, ke ĉi tiu persono, kiu ajn li estu, estis unu el ili mem, eĉ ne ke li estis anglo; kaj oni ne priparolas lin ĝuste kiel malamikon. Pli ĝuste ŝajnas, ke li estis ia loka peristo kaj nebatalanto; eble gvidisto aŭ ĵurnalisto. Kelkfoje li estas kun maljuna Kolonelo Clancy, sed plejofte li vidiĝas parolante kun la majoro. Efektive la
 
 
 majoro iomete elstaras en la historio de tiu ĉi soldato; maldika nigreta viro ŝajne, nomita Murray—nordirlandano kaj puritano. Estas senfinaj ŝercoj pri la kontrasto inter la severeco de la Ulsterano kaj la festenemo de Kolonelo Clancy. Estas ankaŭ iu ŝerco pri la diverskoloraj vestaĵoj de La Vulturo.
 
-”Sed ĉiuj ĉi tiuj malseriozaĵoj estas disrompitaj pere de io, kion oni bone povus nomi klariona eksono. Malantaŭ la angla tendaro kaj preskaŭ paralela laŭ la rivero estis unu el la malmultaj grandaj vojoj de la regiono. Okcidenten la vojo kurbiĝis al la rivero, kiun ĝi transiris per la jam priparolita ponto. Oriente la vojo rapidis malantaŭen en la sovaĝejojn kaj proksimume tri kilometrojn de tie trovi-
+”Sed ĉiuj ĉi tiuj malseriozaĵoj estas disrompitaj pere de io, kion oni bone povus nomi klariona eksono. Malantaŭ la angla tendaro kaj preskaŭ paralela laŭ la rivero estis unu el la malmultaj grandaj vojoj de la regiono. Okcidenten la vojo kurbiĝis al la rivero, kiun ĝi transiris per la jam priparolita ponto. Oriente la vojo rapidis malantaŭen en la sovaĝejojn kaj proksimume tri kilometrojn de tie troviĝis la lasta angla antaŭposteno. De tiu direkto alproksimiĝis iun vesperon la briletado kaj tintado de milita ĉevalaro, kiun vidante la simpla taglibristo kun granda miro rekonis la generalon kaj lian oficiraron. Li rajdis sur la granda blanka ĉevalo, kiun vi tiel ofte vidis kaj en ilustritaj gazetoj kaj en pentraĵoj; kaj vi povas esti certa, ke ili akceptis lin per salutoj ne nure ceremoniaj. Almenaŭ li ne malŝ-
 
-ĝis la lasta angla antaŭposteno. De tiu direkto alproksimiĝis iun vesperon la briletado kaj tintado de milita ĉevalaro, kiun vidante la simpla taglibristo kun granda miro rekonis la generalon kaj lian oficiraron. Li rajdis sur la granda blanka ĉevalo, kiun vi tiel ofte vidis kaj en ilustritaj gazetoj kaj en pentraĵoj; kaj vi povas esti certa, ke ili akceptis lin per salutoj ne nure ceremoniaj. Almenaŭ li ne malŝ-
-
-paris iom da tempo pro ceremonioj, sed tuj deĉevaliĝinte miksiĝis en la oficiraron kaj komencis emfazan, tamen konfidencan, interparoladon. Nia amiko, la taglibristo, precipe rimarkis, ke li emis diskuti aferojn kun Majoro Murray; tia elekto tamen, kondiĉe ke ĝi ne estu tro elstaranta, estus neniel nenatura. La du viroj estis kvazaŭ naskitaj por interkonsento; ili estis viroj kiuj legadis siajn Bib-liojn; ili ambaŭ estis oficiroj de la malmoderna evangelia tipo. Kiel ajn tio estu, estas sendube, ke kiam la generalo denove enseliĝis li estis ankoraŭ atente parolanta kun Murray, kaj ke dum li rajdis malrapide laŭ la vojo riveren, la alta Ulsterano ankoraŭ marŝis flanke de la ĉevalkapo en interparolado absorbite. La soldatoj rigardis ilin ĝis ili malaperis malantaŭ arbareto kie la vojo kurbiĝis al la rivero. La kolonelo estis reirinta al sia tendo kaj la soldatoj al siaj 223
-
-L A N A I V E CO D E PA ST RO B ROW N
+paris iom da tempo pro ceremonioj, sed tuj deĉevaliĝinte miksiĝis en la oficiraron kaj komencis emfazan, tamen konfidencan, interparoladon. Nia amiko, la taglibristo, precipe rimarkis, ke li emis diskuti aferojn kun Majoro Murray; tia elekto tamen, kondiĉe ke ĝi ne estu tro elstaranta, estus neniel nenatura. La du viroj estis kvazaŭ naskitaj por interkonsento; ili estis viroj kiuj legadis siajn Bib-liojn; ili ambaŭ estis oficiroj de la malmoderna evangelia tipo. Kiel ajn tio estu, estas sendube, ke kiam la generalo denove enseliĝis li estis ankoraŭ atente parolanta kun Murray, kaj ke dum li rajdis malrapide laŭ la vojo riveren, la alta Ulsterano ankoraŭ marŝis flanke de la ĉevalkapo en interparolado absorbite. La soldatoj rigardis ilin ĝis ili malaperis malantaŭ arbareto kie la vojo kurbiĝis al la rivero. La kolonelo estis reirinta al sia tendo kaj la soldatoj al siaj
 
 
 pikedoj; la viro kun la taglibro restis ankoraŭ kvar minutojn kaj vidis mirigan vidaĵon.
@@ -4172,9 +3403,7 @@ Pastro Brown estis suprenpasinta antaŭen, ĉar la arbara vojeto fariĝis pli ma
 
 ”Estis alia malgranda kaj gravega io. Kiam la generalo instigis ilin al ilia kavalireca atako li duone eltiris sian glavon el la glavingo; kaj tiam, kvazaŭ li hontiĝas pro tia melodramo, reenŝovis ĝin. La glavon denove, vi rimarku.”
 
-Duonlumo penetris tra la supera branĉo teksaĵo, ĵetante ĉirkaŭ 224
-
-L A N A I V E CO D E PA ST RO B ROW N
+Duonlumo penetris tra la supera branĉo teksaĵo, ĵetante ĉirkaŭ
 
 
 iliaj piedoj la fantomon de reto; ĉar ili denove grimpis al la malforta lumeco de la luno. Flambeau sentis la veron ĉirkaŭ sin kiel etoson sed ne kiel ideon. Li respondis kun konfuzita kapo; ”Nu, kial estas la glavo en malbona ordo? Oficiroj kutime portas glavojn, cu ne?”
@@ -4191,9 +3420,7 @@ iliaj piedoj la fantomon de reto; ĉar ili denove grimpis al la malforta lumeco 
 
 Flambeau rigardis ĉirkaŭ sin en la lunlumo, kiel viro frapita de blindeco alrigardus la sunon; kaj lia amiko nun por la unua fojo daŭrigis avide.
 
-”Flambeau,” li kriis, ”mi ne povas ĝin pruvi, eĉ post serĉado inter la tomboj. Sed mi estas tute certa pri ĝi. Lasu min aldoni nur unu etan fakton plu, kiu disfaligas la tutan aferon. La kolonelo pro stranga sorto estis unu el la unuaj frapitaj de kuglo. Li estis frapita longe antaŭ ol la batalantoj de la du armeoj apudiĝis. Li tamen vidis la 225
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Flambeau,” li kriis, ”mi ne povas ĝin pruvi, eĉ post serĉado inter la tomboj. Sed mi estas tute certa pri ĝi. Lasu min aldoni nur unu etan fakton plu, kiu disfaligas la tutan aferon. La kolonelo pro stranga sorto estis unu el la unuaj frapitaj de kuglo. Li estis frapita longe antaŭ ol la batalantoj de la du armeoj apudiĝis. Li tamen vidis la
 
 
 glavon de St. Clare rompita. Kial ĝi estis rompita? Kiel ĝi fariĝis rompita? Amiko mia, ĝi estis rompita antaŭ ol la batalo okazis.”
@@ -4224,12 +3451,7 @@ Ankoraŭ ne estis respondo, kaj la pastro aldonis eĉ pli milde kaj kviete:
 
 ”Kaj se iu havus senvivan korpon por kaŝi li farus kampon da senvivaj korpoj en kiu ĝin kaŝi.”
 
-Flambeau komencis brupaŝi antaŭen kun netolero de prokras-226
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-to aŭ tempa aŭ spaca; sed Pastro Brown ankoraŭ parolis kvazaŭ li estus daŭriganta la lastan frazon.
+Flambeau komencis brupaŝi antaŭen kun netolero de prokrasto aŭ tempa aŭ spaca; sed Pastro Brown ankoraŭ parolis kvazaŭ li estus daŭriganta la lastan frazon.
 
 ”Sir Arthur St. Clare, kiel mi jam diris, estis viro kiu legis sian Biblion. Tio estis lia malsano. Kiam homoj ekkomprenos, ke estas senutile al iu legi sian Biblion se li ne ankaŭ legas ĉies Biblion? Pre-sisto legas Biblion serĉante preserarojn. Mormono legas sian Biblion kaj trovas poligamion; Kristana Sciencisto legas la sian kaj eltrovas, ke ni havas nek brakojn nek krurojn. St. Clare estis malmoderna Angla-Hinda protestanta militisto. Pensu do, kion tio povus signifi, kaj ne hipokritiĝu. Eble viro, korpe timinda, loĝanta sub tropika suno en orienta socio, kaj sin saturante, sensence kaj sen gvi-dado, de orienta libro. Kompreneble li legis la Malnovan Testamenton plivole ol la Novan. Kompreneble li trovis en la Malnova Testamento ion ajn kion li deziris—volupton, tiranecon, perfidon. Ho, eble li estis honesta, kiel vi nomas ĝin. Sed kiel utilas se homo estas honesta pri sia adorado de malhonesteco?
 
@@ -4239,9 +3461,7 @@ Clare estis baldaŭ sufokita per malfacilaĵoj de korupto kaj ĉantaĝo; kaj bez
 
 ”Kion vi volas diri?” demandis lia amiko denove.
 
-”Tion,” ripostis la pastro, kaj subite indikis pluvlageton sigelitan 227
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Tion,” ripostis la pastro, kaj subite indikis pluvlageton sigelitan
 
 
 de glacio kiu brilis en la lunlumo. ”ĉu vi memoras, kiun Danto metis en la lastan etaĝon de glacio?”
@@ -4249,9 +3469,6 @@ de glacio kiu brilis en la lunlumo. ”ĉu vi memoras, kiun Danto metis en la la
 ”La perfidintojn,” diris Flambeau kaj ektremis. Dum li ĉirkaŭen rigardis al la nehoma pejzaĝo el arboj, kun mokantaj kaj preskaŭ malĉastaj konturoj, li povis preskaŭ imagi al si ke li estas Danto, kaj la pastro kun la voĉo kiel rivereto estas ja iu Virgilo lndukanta tra lando de eternaj pekoj.
 
 La voĉo daŭrigis: ”Olivier, kiel vi scias, estis ki˛ota kaj ne permesis spionadon aŭ spionojn. Tio tamen estis farata, kiel ankaŭ multaj aliaj aferoj, sen lia scio. Prosperis al mia malnova amiko Espado tion fari; li estis la gaje vestita dando, kies hokforma nazo gajnis por li la nomon La Vulturo. Pozante kiel iu filantropo ĉe la fron-to, li palpeiris tra la angla militistaro, kaj fine li havis la fingrojn sur
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 La vintra vojo kurbiĝis super eĝo kun kruelaj nigraj formoj ar-bustaj kaj densaĵoj en fenda frosto; sed Flambeau imagis, ke li vidas preter tio malklare la randon de aŭreolo, kiu estas nek stela nek luna lumo, sed tia fajro kian homoj faras. Li observadis ĝin dum la rakonto finiĝis.
@@ -4263,12 +3480,7 @@ La pli varma lumo malantaŭ la nigra vintra arbaro fariĝis pli kaj pli ruĝa ka
 ”Tia estis la kuraĝo de tiuj mil angloj kaj tia la genio de ilia estro, ke se ili estus tuj atakintaj la monteton, eĉ ilia freneza frapo eble iome sukcesus. La malbona intelekto tamen, kiu ludis ilin kiel ŝak-pecojn, havis aliajn celojn kaj kialojn. Ili necese restu en la marĉoj apud la ponto almenaŭ ĝis britaj kadavroj estos tie kutima vidaĵo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-Tiam la lasta granda sceno; 1a grizhara soldat-sanktulo cedus sian frakasitan sabron por eviti pluan buĉadon. Ho, ĝi estis bone aran-
-
-ĝita, kiel improvizaĵo. Tamen mi kredas (mi ne povas pruvi), mi kredas, ke okazis, dum ili estis tie gluataj en la sanga koto, ke iu ekdubis… kaj iu divenis.”
+Tiam la lasta granda sceno; 1a grizhara soldat-sanktulo cedus sian frakasitan sabron por eviti pluan buĉadon. Ho, ĝi estis bone aranĝita, kiel improvizaĵo. Tamen mi kredas (mi ne povas pruvi), mi kredas, ke okazis, dum ili estis tie gluataj en la sanga koto, ke iu ekdubis… kaj iu divenis.”
 
 Unu momenton li estis muta kaj tiam diris; ”Estas voĉo de nenie kiu diras al mi, ke la viro kiu divenis estis la amanto… la edziĝonto de la filino de la maljunulo.”
 
@@ -4282,20 +3494,14 @@ Unu momenton li estis muta kaj tiam diris; ”Estas voĉo de nenie kiu diras al 
 
 Flambeau sulkigis siajn nigrajn brovojn. ”Ankoraŭ mi ne ĉion ekkomprenas,” li diris.
 
-”Estas alia bildo, Flambeau,” diris Brown per sia pli mistika mur-muro. ”Tion mi ne povas pruvi; sed mi povas fari ion plu… mi povas ĝin vidi. Jen estas militista tendaro disiĝanta tagiĝe sur la nudaj tropikaj montetoj, kaj brazilaj uniformoj kuniĝas en blokojn kaj kolonojn kaj pretiĝas formarŝi. Tie estas la ruĝa ĉemizo kaj longa nigra barbo de Olivier, kiun la vento flirtas dum li staras, la larĝ-
-
-randa ĉapelo enmane. Li estas adiaŭanta la grandan malamikon, kiun li estas liberiginta… la simpla, arĝenthara angla veterano, kiu dankas lin en la nomo de siaj soldatoj; la angla restaĵo staras malantaŭ li je la atento; ĉe ilia flanko estas la provizoj kaj veturiloj por la reiro. La tamburoj rulsonas; la brazilanoj formovas; la angloj restas senmove kiel statuoj. Tiel ili restas ĝis la lasta zumado kaj ekbri-lo de la malamikoj estas malaperinta sur la tropika horizonto. Tiam ilia mieno tuj ŝanĝiĝas, kiel senvivaj viroj viviĝantaj denove; ili tur-230
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Estas alia bildo, Flambeau,” diris Brown per sia pli mistika mur-muro. ”Tion mi ne povas pruvi; sed mi povas fari ion plu… mi povas ĝin vidi. Jen estas militista tendaro disiĝanta tagiĝe sur la nudaj tropikaj montetoj, kaj brazilaj uniformoj kuniĝas en blokojn kaj kolonojn kaj pretiĝas formarŝi. Tie estas la ruĝa ĉemizo kaj longa nigra barbo de Olivier, kiun la vento flirtas dum li staras, la larĝranda ĉapelo enmane. Li estas adiaŭanta la grandan malamikon, kiun li estas liberiginta… la simpla, arĝenthara angla veterano, kiu dankas lin en la nomo de siaj soldatoj; la angla restaĵo staras malantaŭ li je la atento; ĉe ilia flanko estas la provizoj kaj veturiloj por la reiro. La tamburoj rulsonas; la brazilanoj formovas; la angloj restas senmove kiel statuoj. Tiel ili restas ĝis la lasta zumado kaj ekbri-lo de la malamikoj estas malaperinta sur la tropika horizonto. Tiam ilia mieno tuj ŝanĝiĝas, kiel senvivaj viroj viviĝantaj denove; ili tur-230
 
 
 nas siajn kvindek vizaĝojn al la generalo… vizaĝoj neniam, forgese-blaj.”
 
 Flambeau forte eksaltis. ”Ha,” li kriis. ”Vi ne volas diri…”
 
-”Jes,” diris Pastro Brown per profunda, emociita voĉo. ”Estis angla mano kiu metis la ŝnuregon ĉirkaŭ la kolo de St. Clare; mi kredas, ke estis la sama mano kiu metis la ringon sur la fingron de lia filino. Estis anglaj manoj kiuj altiris lin al la arbo de honto; la manoj de viroj kiuj lin adoris kaj lin sekvis ĝis malvenko. Kaj estis anglaj okuloj (Dio pardonu kaj toleradu nin ĉiujn) kiuj rigardis lin svingiĝantan de la verda palma pendigilo sub tiu alilanda suno kaj pre-
-
-ĝis pro sia malamo, ke li defalu en inferon.”
+”Jes,” diris Pastro Brown per profunda, emociita voĉo. ”Estis angla mano kiu metis la ŝnuregon ĉirkaŭ la kolo de St. Clare; mi kredas, ke estis la sama mano kiu metis la ringon sur la fingron de lia filino. Estis anglaj manoj kiuj altiris lin al la arbo de honto; la manoj de viroj kiuj lin adoris kaj lin sekvis ĝis malvenko. Kaj estis anglaj okuloj (Dio pardonu kaj toleradu nin ĉiujn) kiuj rigardis lin svingiĝantan de la verda palma pendigilo sub tiu alilanda suno kaj preĝis pro sia malamo, ke li defalu en inferon.”
 
 Dum ili ambaŭ atingis la supraĵon de la deklivo ekheliĝis antaŭ ili la forta punca lumo de ruĝkurtenita angla gastejo. i staris flanke laŭ la vojo kiel flanke staranta malavara gastiganto. iaj tri pordoj estis invite malfermitaj; kaj eĉ kie ili staris ili povis aŭdi la babiladon kaj ridadon de homoj feliĉaj por unu nokto.
 
@@ -4309,9 +3515,7 @@ Dum ili ambaŭ atingis la supraĵon de la deklivo ekheliĝis antaŭ ili la forta
 
 ĝi portis skribite per imititaj antikvaj literoj la vortojn, ”La Signo de la Rompita Glavo.”
 
-”ĉu vi ne estis preta?” demandis Pastro Brown kviete. ”Li estas 231
-
-L A N A I V E CO D E PA ST RO B ROW N
+”ĉu vi ne estis preta?” demandis Pastro Brown kviete. ”Li estas
 
 
 la dio de tiu ĉi lando; duono el la gastejoj kaj parkoj kaj stratoj estas nomitaj pro li aŭ lia historio.”
@@ -4331,9 +3535,6 @@ Ili sidiĝis sur la komfortaj remburitaj benkoj.
 ”Aŭ konjakon,” diris Flambeau.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 LA TRI ILOJ DE MORTO
 
 Kaj pro sia profesia kaj pro konvinkiĝo Pastro Brown sciis pli bone ol la plejmulto el ni, ke ĉiu homo estas dignoplena kiam li estas senviva. Sed eĉ li spertis eksenton de misagordo, kiam oni vekis lin je tagiĝo dirante, ke Sir Aaron Armstrong estas murdita.
@@ -4342,41 +3543,28 @@ Estis io absurda kaj nedeca pri sekreta perforto rilate al tia tuta amuza kaj po
 
 ĝis komikeco; kaj populara tiel ke li fariĝis preskaŭ legenda. Estis kvazaŭ aŭdi, ke Feliĉa Jocĵo sin pendigis; aŭ ke sinjoro Pickwick mortis en la frenezulejo en Hanwell. ĉar kvankam Sir Aaron estis filantropo kaj tial interrilatas kun la pli malgaja flanko de nia socio, li sin flatis, ke li rilatas kun ĝi en maniero kiel eble plej gaja. Liaj po-litkaj kaj sociaj paroladoj, estis kaskadoj da ankedotoj kaj ”laŭta ridado”; lia korpsaneco estis de la eksplodema speco; lia etiko estis nur optimisma; kaj li pritraktis la drinkproblemon (lia plej preferata temo) kun tiu senmorta eĉ teda gajeco, kiu estas tiel ofte la signo de prospera abstinulo.
 
-La fama rakonto pri lia konvertiĝo estis konata sur la pli purita-naj podioj kaj katedroj; kiel li estas, kiam ankoraŭ knabo, forlogita de Skota teologio al Skota viskio, kie li estas leviĝinta super ambaŭ tiuj kaj fariĝinta (kiel li tion modeste esprimis) kia li estas. Sed lia larĝa blanka barbo, keruba vizaĝo, kaj brilantaj okulvitroj en la nenombreblaj kunvenoj antaŭ kiuj li aperis, igis iel malfacile kredebla la fakton, ke iam ajn li estis homo tiel mense malsana kiel viskiemu-233
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-lo aŭ Kalvinisto. Oni sentis, ke li nepre, el ĉiuj filoj de homo, estas la plej serioze feliĉa.
+La fama rakonto pri lia konvertiĝo estis konata sur la pli purita-naj podioj kaj katedroj; kiel li estas, kiam ankoraŭ knabo, forlogita de Skota teologio al Skota viskio, kie li estas leviĝinta super ambaŭ tiuj kaj fariĝinta (kiel li tion modeste esprimis) kia li estas. Sed lia larĝa blanka barbo, keruba vizaĝo, kaj brilantaj okulvitroj en la nenombreblaj kunvenoj antaŭ kiuj li aperis, igis iel malfacile kredebla la fakton, ke iam ajn li estis homo tiel mense malsana kiel viskiemulo aŭ Kalvinisto. Oni sentis, ke li nepre, el ĉiuj filoj de homo, estas la plej serioze feliĉa.
 
 Li loĝis en la kampara limo de Hampstead en belega domo, alta sed ne larĝa, turo moderna kaj proza. La plej mallarĝa el ĝiaj mallarĝaj flankoj superstaris la krutan verdan deklivon de fervojo, kaj estis tremigata de preterpasantaj vagonaroj. Sir Aaron Armstrong, kiel li mem tumultvoĉe klarigis, havis neniujn nervojn. Sed se ofte la vagonaro konsternis la domon, en tiu mateno la afero estis ren-versata, kaj estis la domo kiu konsternis la vagonaron.
 
 La lokomotivo malrapidiĝis kaj haltis ĝuste preter tiu loko kie angulo de la domo elstaris sur la abrupta herbkovrita deklivo. La halto de la plejmultaj meąnikaj aferoj devas esti malrapida; sed la vivanta kaŭzo de tiu ĉi, estis tre rapida. Viro tute nigre vestita, eĉ (oni memoras) ĝis la terura detalo de nigraj gantoj, aperis sur la eĝo super la lokomotivo, kaj svingis la nigrajn manojn kiel ia nigra vent-muelilo. Tio ĉi per si mem apenaŭ haltigus eĉ malrapideman vagonaron. Sed eliĝis el li krio, kiun oni poste priparolis kiel ion tute nenaturan kaj novan. Estis unu el tiaj krioj, kiaj estas terurige klaraj eĉ kiam oni ne povas aŭdi la apartajn vortojn. ĉiokaze la vorto estis, ”Murdo!”
 
-Sed ĵuras la veturigisto, ke tiel same li estus haltinta eĉ se li aŭ-
-
-dus nur la teruran kaj definitivan akcenton kaj ne la vorton.
+Sed ĵuras la veturigisto, ke tiel same li estus haltinta eĉ se li aŭdus nur la teruran kaj definitivan akcenton kaj ne la vorton.
 
 La vagonaro tuj haltis, kaj ekrigardo plej rapide povus senpere kompreni multajn detalojn de la tragedio. La nigrevestita viro sur la verda deklivo estis Magnus, la servisto de Sir Aaron Armstrong.
 
 ĉi tiu pro sia optimismo ofte ridis pri la nigraj gantoj de sia funebra lakeo; sed en ĉi momento neniu emus ridi pri li.
 
-Tuj kiam unu aŭ du scivolemuloj transiris la fervojon kaj la fum-nigrigitan heĝon, ili ekvidis, ruliĝinta preskaŭ ĝis la fundo de la deklivo, la korpon de maljunulo en flava tualetrobo kun brilege 234
-
-L A N A I V E CO D E PA ST RO B ROW N
+Tuj kiam unu aŭ du scivolemuloj transiris la fervojon kaj la fum-nigrigitan heĝon, ili ekvidis, ruliĝinta preskaŭ ĝis la fundo de la deklivo, la korpon de maljunulo en flava tualetrobo kun brilege
 
 
-skarlata subŝtofo. Mallonga peco da ŝnurego sajne estis implikiĝinta kun la kruroj, kredeble dum baraktado. Vidiĝis ankaŭ unu aŭ du sangoŝmiroj, kvankam tre malgrandaj; sed la korpo estis fleksita aŭ rompita al pozo tute neebla ĉe iu vivanta. i estis Sir Aaron Armstrong. Post unu aŭ du konfuzaj momentoj elvenis granda palhara viro, kiun saluti kiel la sekretarion de la mortinto povis kelkaj voja-
-
-ĝantoj; tiu estis Patrick Royce, iam bone konata en la bohema kaj artista mondo. En maniero pli malpreciza sed eĉ pli konvinkita, li e˛is la angoron de la servisto. Kiam la tria persono de la domo, Alice Armstrong, filino de la mortinto, elvenis en la ĝardenon ŝanceliĝante kaj tremante, la veturigisto jam ĉesigis sian halton. La fajfilo jam ekfajfis, kaj la vagonaro spiregis antaŭen por venigi helpon de la plej proksima stacidomo.
+skarlata subŝtofo. Mallonga peco da ŝnurego sajne estis implikiĝinta kun la kruroj, kredeble dum baraktado. Vidiĝis ankaŭ unu aŭ du sangoŝmiroj, kvankam tre malgrandaj; sed la korpo estis fleksita aŭ rompita al pozo tute neebla ĉe iu vivanta. i estis Sir Aaron Armstrong. Post unu aŭ du konfuzaj momentoj elvenis granda palhara viro, kiun saluti kiel la sekretarion de la mortinto povis kelkaj vojaĝantoj; tiu estis Patrick Royce, iam bone konata en la bohema kaj artista mondo. En maniero pli malpreciza sed eĉ pli konvinkita, li e˛is la angoron de la servisto. Kiam la tria persono de la domo, Alice Armstrong, filino de la mortinto, elvenis en la ĝardenon ŝanceliĝante kaj tremante, la veturigisto jam ĉesigis sian halton. La fajfilo jam ekfajfis, kaj la vagonaro spiregis antaŭen por venigi helpon de la plej proksima stacidomo.
 
 Tiel Pastro Brown estis urĝe alvokita laŭpete de Patrick Royce, la granda eksbohema sekretario. Royce estis irlandano laŭ nacio, kaj katoliko de tiu senzorga speco, kiu neniam memoras pri sia religio
 
 ĝis li trafas vere en truon de embaraso. Eblas tamen, ke la peto de Royce estus malpli senprokraste plenumita, se unu el la oficialaj detektivoj ne estus amiko kaj admiranto de la neoficiala Flambeau; kaj neeblis esti amiko de Flambeau kaj ne aŭdi nenombreblajn rakontojn pri Pastro Brown. Tiel okazis, ke dum la juna detektivo (kies nomo estis Merton) kondukis la malgrandan pastron trans la kampojn al la fervojo, ilia interparolado estis pli konfidenca ol oni atendus inter du tute fremdaj personoj.
 
-”Laŭ mia kompreno,” malkaŝe diris sinjoro Merton, ”troviĝas en tiu ĉi afero nenia ajn senco. Ekzistas neniu suspektinda. Magnus estas seriozaĉa stultulo; tro stulta esti murdinto. Royce estas jam multajn jarojn la plej bona amiko de la kavaliro; kaj ties filino sendube adoris lin. Krome, ĉio estas tro absurda. Kiu volus mortigi tian gajulon, kia maljuna Armstrong? Kiu volus trempi la manojn en la 235
-
-L A N A I V E CO D E PA ST RO B ROW N
+”Laŭ mia kompreno,” malkaŝe diris sinjoro Merton, ”troviĝas en tiu ĉi afero nenia ajn senco. Ekzistas neniu suspektinda. Magnus estas seriozaĉa stultulo; tro stulta esti murdinto. Royce estas jam multajn jarojn la plej bona amiko de la kavaliro; kaj ties filino sendube adoris lin. Krome, ĉio estas tro absurda. Kiu volus mortigi tian gajulon, kia maljuna Armstrong? Kiu volus trempi la manojn en la
 
 
 sango de postvespermanĝa parolanto? Estus kiel mortigi Kristnask-paĉjon.”
@@ -4391,9 +3579,7 @@ Merton ekhaltis kaj rigardis sian kunulon per okulo pli vigla.
 
 Fenestro en la menso de Merton lasis eniri tiun strangan surpri-zan lumon, per kiu ni ekvidas por la unua fojo aferojn kiujn ni jam longe scias. Li ofte estis en la Armstrong’a domo, pro malgravaj policaj aferoj de la filantropo; kaj nun kiam venis al li pripenso pri tio, la domo certe estas malgajiga. La ĉambroj estas tre altaj kaj tre malvarmaj; la garnaĵoj avarulaj kaj provincaj; la trablovataj koridoroj estas lumataj de elektro-lumo pli malvarmiga ol lunlumo. Kaj kvankam la skarlata vizaĝo kaj arĝenta barbo de la maljunulo estis flaminta kiel liberfajro en ĉiu cambro kaj koridoro laŭvice, ili postlasis nenian varmon. Sendube tiu ĉi fantoma nekomforto de la loko estis parte kaŭzita ĝuste de la vigla kaj superabundeca karaktero de
 
-ĝia posedanto; li dirus, ke hejtilojn kaj lampojn li tute ne bezonas ĉar li portas en si mem propran varmon. Sed kiam Merton memoris la aliajn loĝantojn li devis konfesi, ke ili ankaŭ estas kiel ombroj de sia mastro. La melankolia servisto kun siaj monstraj nigraj gantoj estis preskaŭ inkubo; Royce, la sekretario, estis sufiĉe solida, granda bovsimila viro en skota drapo, kun mallonga barbo; sed la pajloko-lora barbo estis striita grize kiel ankaŭ la drapo, kaj la larĝa frunto striita de trofruaj sulkoj. Li ankaŭ estis bonanima, sed estis malĝoja speco de bonanimeco, venante ŝajne el koro muelita… li mienis 236
-
-L A N A I V E CO D E PA ST RO B ROW N
+ĝia posedanto; li dirus, ke hejtilojn kaj lampojn li tute ne bezonas ĉar li portas en si mem propran varmon. Sed kiam Merton memoris la aliajn loĝantojn li devis konfesi, ke ili ankaŭ estas kiel ombroj de sia mastro. La melankolia servisto kun siaj monstraj nigraj gantoj estis preskaŭ inkubo; Royce, la sekretario, estis sufiĉe solida, granda bovsimila viro en skota drapo, kun mallonga barbo; sed la pajloko-lora barbo estis striita grize kiel ankaŭ la drapo, kaj la larĝa frunto striita de trofruaj sulkoj. Li ankaŭ estis bonanima, sed estis malĝoja speco de bonanimeco, venante ŝajne el koro muelita… li mienis
 
 
 kvazaŭ lia vivo iel malsukcesis. Rilate al la filino de Armstrong, estis preskaŭ nekredeble, ke ŝi estas ties filino; ŝia koloro estis tiel pala kaj la konturo tiel sentema. ŝi estis gracia sed troviĝis tremetado en ŝia formo, kiu estis kiel la formo de tremolo. Merton iufoje scivolis ĉu ŝi kutimiĝis ŝanceliĝi pro timo al la tondrado de la preterpasantaj vagonaroj.
@@ -4414,9 +3600,7 @@ Ili marŝis iom da distanco laŭ la kurba herba krutejo apud la rejloj, kaj ĝus
 
 Sed mi ne povas ne senti, ke viroj kia Armstrong bezonas de tempo al tempo glason da vino, por malgajigi sin.”
 
-La oficiala superulo de Merton, griziĝanta kaj kapabla detektivo nomita Gilder, staris sur la verda rando atendante la mortenke-tiston, kaj parolante kun Patrick Royce, kies larĝaj ŝultroj kaj hirta barbo kaj hararo staris super li kiel turo. Des pli rimarkinda estis tio ĉi, ĉar Royce marŝis ĉiam kun ia fortika kliniĝo kaj ŝajnis plenumi 237
-
-L A N A I V E CO D E PA ST RO B ROW N
+La oficiala superulo de Merton, griziĝanta kaj kapabla detektivo nomita Gilder, staris sur la verda rando atendante la mortenke-tiston, kaj parolante kun Patrick Royce, kies larĝaj ŝultroj kaj hirta barbo kaj hararo staris super li kiel turo. Des pli rimarkinda estis tio ĉi, ĉar Royce marŝis ĉiam kun ia fortika kliniĝo kaj ŝajnis plenumi
 
 
 siajn skribistajn kaj domajn devojn en peza kaj humila maniero, kiel bubalo trenanta infanetan ĉaron.
@@ -4444,9 +3628,6 @@ Li levis la kapon kun neordinara plezuro, vidante la pastron, kaj lndukis iom fo
 ”Eble la ilo estis nerimarkeble tro granda,” diris la pastro kun stranga gorĝrideto.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 Gilder sin turnis pro tiu ĉi freneza rimarko, kaj iomete severe demandis al Brown kion li volas diri.
 
 ”Stulta maniero prezenti la aferon, mi scias,” diris Pastro Brown kvazaŭ pardonpete. ”Aŭdiĝas kiel ferakonto. Sed kompatinda Armstrong estas mortigita per gigantula klabo, granda verda klabo, tro granda por esti videbla, kaj kiun ni nomas la tero. Li frakasiĝis kontraŭ tiu ĉi verda deklivo sur kiu ni staras.
@@ -4470,9 +3651,6 @@ Preskaŭ dum li parolis venis ĉirkaŭ la kurbaĵo maldekstre speciala trajno de
 ”ĉu vi havas la monon?” li kriis al la unua policano.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 La viro rigardis al lia vizaĝo kun iomete stranga esprimo kaj diris ”Ne.” Tiam li aldonis, ”Almenaŭ ne tie ĉi.”
 
 ”Kiu estas la inspektoro, mi petas?” demandis la viro nomita Magnus.
@@ -4485,9 +3663,7 @@ Kiam li ekparolis ĉiu tuj komprenis kiel tiu voĉo haltigis la traj-non. Li est
 
 Kaj li faris rapidan geston per la manoj ambaŭ nigre gantitaj.
 
-”Serĝento,” diris Inspektoro Gilder, rigardante kun ekkolero la nigrajn manojn, ”ĉu vi ne braceletos tiun ĉi; li ŝajnas sufiĉe dan-
-
-ĝera.”
+”Serĝento,” diris Inspektoro Gilder, rigardante kun ekkolero la nigrajn manojn, ”ĉu vi ne braceletos tiun ĉi; li ŝajnas sufiĉe danĝera.”
 
 ”Nu, sinjoro,” diris la serĝento kun la sama strange mirigita mieno, ”Mi ne estas certa, ke ni povas.”
 
@@ -4496,9 +3672,6 @@ Kaj li faris rapidan geston per la manoj ambaŭ nigre gantitaj.
 Larĝigis la fendosimilan buŝon ioma malestimego, kaj la ekfaj-fo de proksimiĝanta trajno ŝajnis strange e˛i la mokadon.
 
 ”Ni arestis lin,” respondis la serĝento serioze, ”ĝuste kiam li estis eliranta el la policejo ĉe Highgate, kie li deponis la tuton de la mono de sia mastro al la prizorgo de Inspektoro Robinson.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 Gilder alrigardis la serviston mirige. ”Kial, je ĉio sankta, vi tion faris?” li demandis al Magnus.
@@ -4511,20 +3684,13 @@ La fino de liaj vortoj droniĝis en la bruego de la trajno dum ĝi preteriris pe
 
 ĉiuj tiuj senmovaj homoj spertis la fantoman senton, ke nova persono ĉeestas; kaj Merton apenaŭ surpriziĝis kiam li suprenekri-gardis kaj vidis la palan vizaĝon de la filino de Armstrong super la ŝultro de Pastro Brown. ŝi estis ankoraŭ juna kaj bela en arĝenta maniero, sed ŝia hararo estis tiel polve kaj senkolore bruna, ke en iuj lumoj ŝajnis, ke ĝi estas jam tute griza.
 
-”Konsideru kion vi diros,” diris Royce raŭke, ”aŭ vi timigos fraŭ-
-
-linon Armstrong.”
+”Konsideru kion vi diros,” diris Royce raŭke, ”aŭ vi timigos fraŭlinon Armstrong.”
 
 ”Mi esperas, ke jes,” diris la viro kun la klara voĉo.
 
 Dum la virino detiriĝis kaj ĉiu miris, li daŭrigis; ”Mi iomete kutimiĝis al la tremado de fraŭlino Armstrong. Mi vidadis jam dum jaroj ŝin tremetadi. Kaj iuj diris, ke ŝi tremas pro malvarmo, kaj iuj ke ŝi tremas pro timo, sed mi scias, ke ŝi tremis pro malamo kaj peka kolero… demonoj, kiuj ja festenis ĉi matene. Jam ŝi estus for kun sia amanto kaj la mono krom pro mi. Ja de kiam mia kompatinda mastro malpermesis al ŝi edziniĝi kun tiu ebriaĉa fripono… .”
 
-”ĉesu,” diris Gilder tre severe. ”Viaj imagoj kaj suspektoj ne es-241
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-tas nia afero. Krom se vi havas realan atestaĵon, viaj nuraj opinioj… .”
+”ĉesu,” diris Gilder tre severe. ”Viaj imagoj kaj suspektoj ne estas nia afero. Krom se vi havas realan atestaĵon, viaj nuraj opinioj… .”
 
 ”Ho, mi donos al vi realan atestaĵon,” entrudis Magnus kun sia hakanta akcento. ”Vi devos alvoki min en juĝejon, sinjoro Inspektoro, kaj mi devos atesti la veron. Kaj jen la vero; momenton post la maljunulo estis ĵetita sangante el la fenestro, mi kuris en la man-sardon kaj ektrovis la filinon sveninta sur la planko kun ruĝa ponardo ankoraŭ enmane. Permesu al mi tion ankaŭ transdoni al la kon-cerna instanco.” Li prenis el malantaŭa poŝo longan tranĉilon kun kornaĵa tenilo kaj sure ruĝa ŝmiro, kaj ĝentile transdonis ĝin al la serĝento. Tiam li retiris sin denove, kaj la fendetoj de liaj okuloj preskaŭ malaperis de sur lia vizaĝo pro granda ĉina rikano.
 
@@ -4542,9 +3708,7 @@ La knabino eligis timigitan, strangan krieton; ĉiu alrigardis ŝin.
 
 La tujpostan fakton kiun ili konstatis estis, ke Patrick Royce paŝis kun siaj vastaj kliniĝaj ŝultroj en ilian rondon, kaj eldiris la jenajn strangajn vortojn; ”Nu, se mi devas iri, antaŭe mi ĉerpos iom da plezuro.”
 
-Lia grandega ŝultro leviĝis kaj li sendis feran pugnon krakanta en 242
-
-L A N A I V E CO D E PA ST RO B ROW N
+Lia grandega ŝultro leviĝis kaj li sendis feran pugnon krakanta en
 
 
 la vizaĝon mildan kaj mongolan de Magnus, sternante lin sur la herbon ebene kiel asterio.
@@ -4570,29 +3734,17 @@ Alice lin rigardis kun vizaĝo malsimpla kaj enigma; tiam ŝi diris per voĉo ma
 La mansardo, kiu estis la privata ejo de la sekretario (kaj karcero eble apenaŭ sufiĉe ampleksa por tia ermito) portis efektive ĉiu-jn postsignojn de dramo perforta. Apud la mezo de la planko kuŝis granda revolvero kvazaŭ forĵetite; pli maldekstre estis ruliĝinta viskibotelo, malŝtopita sed ne tute malplena. La tuko de la malgranda tablo kuŝis trenita kaj piedpremita, kaj iom da ŝnuro, simila al tiu sur la trovita kadavro, estis malorde ĵetita trans la fenestrosoj-lon. Du vazoj estis disfrakasitaj sur la kamentabulo, kaj unu sur la tapiŝo.
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Mi estis ebria,” diris Royce; kaj tiu ĉi simpleco ĉe la viro tro frue suferinta, enhavis iom de la patoso de la unua peko de infaneto.
 
-”Vi ĉiuj scias pri mi,” li daŭrigis raŭke; ”ĉiu scias kiel komenciĝis mia kariero, kaj tiel ankaŭ ĝi povu bone finiĝi. Oni nomis min iam cerbhavulo, kaj eble mi povus esti feliĉulo; Armstrong savis la resta-
-
-ĵon de cerbo kaj korpo el la drinkejoj, kaj ĉiam sin montris afabla al mi laŭ sia propra maniero, kompatindulo li. Sed li ne volis permesi al mi edziĝi kun Alice; kaj estos ĉiam dirate ke li sufiĉe pravis.
+”Vi ĉiuj scias pri mi,” li daŭrigis raŭke; ”ĉiu scias kiel komenciĝis mia kariero, kaj tiel ankaŭ ĝi povu bone finiĝi. Oni nomis min iam cerbhavulo, kaj eble mi povus esti feliĉulo; Armstrong savis la restaĵon de cerbo kaj korpo el la drinkejoj, kaj ĉiam sin montris afabla al mi laŭ sia propra maniero, kompatindulo li. Sed li ne volis permesi al mi edziĝi kun Alice; kaj estos ĉiam dirate ke li sufiĉe pravis.
 
 Nu do, vi povas fari viajn proprajn konkludojn kaj vi ne deziros ke mi pritraktu detalojn. Jen en la angulo mia viskibotelo duone malplenigita; jen sur la tapiŝo mia revolvero tute malplenigita. Estis ŝnuro el mia kesto kiu troviĝis sur la kadavro, kaj estis el mia fenestro ke elĵetiĝis la kadavro. Ne estas necese, ke vi igu detektivojn fosaĉi en mian tragedion; ĝi temas pri herbaĉo sufiĉe ofta en tiu ĉi mondo… . Mi min donas al la eŝafodo; kaj je Dio, tio sufiĉas!”
 
 Pro signo sufiĉe takta la policanoj ariĝis ĉirkaŭ la granda viro por forkonduki lin; sed ilia netrudemeco estis iomete ŝancelita de la rimarkinda mieno de Pastro Brown, kiu estis sur la manoj kaj ge-nuoj en la pordo, kvazaŭ plenumante iujn maldignigajn preĝojn.
 
-Estante persono tute ne sentema pri kia societa aspekto li prezentas, li restis en tiu ĉi pozo sed turnis supren al la ĉeestantaro viza-
+Estante persono tute ne sentema pri kia societa aspekto li prezentas, li restis en tiu ĉi pozo sed turnis supren al la ĉeestantaro vizaĝon brilan kaj rondan, donante la impreson de kvarkrurulo kun tre komika homa kapo.
 
-ĝon brilan kaj rondan, donante la impreson de kvarkrurulo kun tre komika homa kapo.
-
-”Sciu,” li diris bonhumore, ”tio ĉi tute ne bonas. En la komenco vi diris, ke ni trovis neniun ilon. Sed nun ni trovis multajn; jen la tranĉilo por piki, kaj la ŝnuro por sufoki, kaj la pistolo por pafi; kaj fine tamen li rompis la kolon falinte el fenestro. Ne pravas. Ne estas ekonomia.” Kaj li skuis la kapon super la tero kiel faras paŝtanta ĉevalo. Inspektoro Gilder malfermis la buŝon kun seriozaj inten-244
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-coj sed antaŭ ol li povis paroli, la groteska figuro sur la planko daŭ-
+”Sciu,” li diris bonhumore, ”tio ĉi tute ne bonas. En la komenco vi diris, ke ni trovis neniun ilon. Sed nun ni trovis multajn; jen la tranĉilo por piki, kaj la ŝnuro por sufoki, kaj la pistolo por pafi; kaj fine tamen li rompis la kolon falinte el fenestro. Ne pravas. Ne estas ekonomia.” Kaj li skuis la kapon super la tero kiel faras paŝtanta ĉevalo. Inspektoro Gilder malfermis la buŝon kun seriozaj intencoj sed antaŭ ol li povis paroli, la groteska figuro sur la planko daŭ-
 
 rigis tute flue.
 
@@ -4615,9 +3767,6 @@ Tiu ĉi peto pelis la paroleman pastron el la pasejo, kaj antaŭ ol li povis ekp
 ”Ha,” diris Brown nemovite, ”kaj kion li faris?”
 
 
-L A N A I V E CO D E PA ST RO B ROW N
-
-
 ”Mi estis en la ĉambro apud ili,” ŝi klarigis; ”ambaŭ pordoj estis fermitaj sed subite mi ekaŭdis voĉon, kian mi neniam aŭdis antaŭe, muĝegante, ‘Infero, infero, infero,’ denove kaj denove, kaj tiam am-baŭ pordojn ekskuis la unua eksplodo de la revolvero. Trifojojn denove ĝi krakis antaŭ ol mi malfermis la pordojn kaj trovis la ĉambron plena de fumo; sed la pistolo ankoraŭ fumis en la mano de mia kompatinda, freneza Patrick; kaj mi vidis lin pafi la finan mortigan pafon, per miaj propraj okuloj. Tiam li sin ĵetis al mia patro, kiu alkroĉiĝis pro teruro al la fenestrosojlo, kaj en lukto provis lin sufoki per la ŝnuro, kiun li ĵetis ĉirkaŭ lia kapo, sed ĝi glitis ĉirkaŭ la baraktantaj ŝultroj ĝispiede. Tiam ĝi striktiĝis ĉirkaŭ unu kruro kaj Patrick posttrenis lin kiel maniulo. Mi ekprenis tranĉilon de sur la tapiŝo, kaj kureginte inter ilin povis tratranĉi la ŝnuron antaŭ ol mi svenis.”
 
 ”Mi komprenas,” diris Pastro Brown kun la sama ligna ĝentileco. ”Dankon.”
@@ -4633,9 +3782,6 @@ Dum la knabino kolapsis sub siaj memoroj, la pastro paŝis rigide en la apudan �
 Ambaŭ detektivoj rigardegis, kaj Pastro Brown aldonis; ”Kial vi ne prirakontas al ili, sinjoro?”
 
 La viro en la seĝo nee skuis la taŭzitan kapon, kaj la pastro sin turnis senpacience.
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 ”Mi mem do tion faros,” li diris. ”Privataj vivoj estas pli gravaj ol publikaj reputacioj. Mi intencas savi la vivantojn kaj lasi la mortintojn enterigi siajn mortintojn.”
@@ -4656,12 +3802,7 @@ Liaj planoj rigidiĝis, liaj opinioj fariĝis malvarmaj; malantaŭ tiu gaja mask
 
 ĝi kaptis kompatindan Armstrong, kaj hodiaŭ matene li estis jam en tia stato, ke li sidis tie ĉi kaj plorkriis, ke li estas en infero, per voĉo tiel freneza ke lia filino ĝin ne rekonis. Li estis freneza por morto, kaj laŭ la simiruzoj de frenezuloj li disĵetis ĉirkaŭ si morton sub multaj formoj… ligŝnuron, la revolveron de sia amiko, kaj tranĉilon.
 
-Royce eniris hazarde kaj agis rapide kiel fulmo. Li forĵetis malantaŭen la tranĉilon sur la tapiŝon, ekprenis la revolveron, kaj trovan-247
-
-L A N A I V E CO D E PA ST RO B ROW N
-
-
-te ne sufiĉe da tempo por malŝargi ĝin, pafon post pafo ĝin malplenigis tute ĉirkaŭe al la planko. La sinmortigonto ekvidis la morton sub kvara formo, kaj ekkuregis al la fenestro. La savanto faris la solan eblan agon… kuris post li kun ŝnuro kaj provis lin ligi mane kaj piede. Tiam enkuris la malfeliĉa knabino, kaj miskomprenante la luktadon provis liberigi per ektranĉo sian patron. Unue ŝi nur vundis la fingrartikojn de kompatinda Royce, de kio estas veninta la tuta malmulta sango en tiu ĉi afero. Kompreneble do vi rimarkis, ke li postlasis sangon sed neniun vundon sur la vizaĝo de tiu servisto? Sed antaŭ ol ŝi svenis la kompatinda virino liberige hakis sian patron tiel ke li falis frakase el tiu fenestro en eternecon.”
+Royce eniris hazarde kaj agis rapide kiel fulmo. Li forĵetis malantaŭen la tranĉilon sur la tapiŝon, ekprenis la revolveron, kaj trovante ne sufiĉe da tempo por malŝargi ĝin, pafon post pafo ĝin malplenigis tute ĉirkaŭe al la planko. La sinmortigonto ekvidis la morton sub kvara formo, kaj ekkuregis al la fenestro. La savanto faris la solan eblan agon… kuris post li kun ŝnuro kaj provis lin ligi mane kaj piede. Tiam enkuris la malfeliĉa knabino, kaj miskomprenante la luktadon provis liberigi per ektranĉo sian patron. Unue ŝi nur vundis la fingrartikojn de kompatinda Royce, de kio estas veninta la tuta malmulta sango en tiu ĉi afero. Kompreneble do vi rimarkis, ke li postlasis sangon sed neniun vundon sur la vizaĝo de tiu servisto? Sed antaŭ ol ŝi svenis la kompatinda virino liberige hakis sian patron tiel ke li falis frakase el tiu fenestro en eternecon.”
 
 Fariĝis longa silento, malrapide rompita de la metalaj sonoj de Gilder malŝlosanta la fermanumojn de Patrick Royce, al kiu li diris;
 
@@ -4680,9 +3821,6 @@ Dum li eliris sur la blovantan herbon lin haltigis konatulo el Highgate kaj diri
 ”La mortenketisto estas alveninta. La enketo tuj komenciĝos.”
 
 ”Mi devas reiri al la Surdula Lernejo,” diris Pastro Brown. ”Mi bedaŭras, ke mi ne povas resti por la enketo.”
-
-
-L A N A I V E CO D E PA ST RO B ROW N
 
 
 # Document Outline

@@ -10,14 +10,6 @@ Raymond Schwartz
 LA STRANGA BUTIKO
 
 
-@omnibus.se
-
-·
-
-
-LA STRANGA BUTIKO
-
-
 Sub signo de Gaja Muzo
 
 Raymond Schwartz
@@ -43,9 +35,6 @@ Parizo, dum Decembro
 de l’krizjaro 1931.
 
 
-LA STRANGA BUTIKO
-
-
 Cirkulero
 
 Al mia tre ŝatata klientaro!
@@ -63,9 +52,6 @@ Esperante viajn baldaŭajn mendojn, mi restas ser-veme-verseme
 Raymond Schwartz,
 
 Butikisto
-
-
-LA STRANGA BUTIKO
 
 
 Oni malfermas la butikon
@@ -87,17 +73,11 @@ La noktospir’ sub la ĉielkupolo Ne ĉarmas vin; — vin logas nur petolo, Ban
 Kaj tion ĉi … indulgas la kritiko!
 
 
-LA STRANGA BUTIKO
-
-
 Disiĝu ni kaj restu, laŭ merito, Mi sur Parnas’, vi … en spicistbutiko!”
 
 Severa Muz’, — vi ŝutis malavare Benvortojn sur hometon; kiu ŝpare Misuzis vin ĝis nun sub sia plumo, (Estonte li vin lasos en mallumo.) Sed tamen mi kun tre respektaj sentoj Koncedas, ke … ekzistas kaŭz’ por miri, Kaj por edif’ de miaj geklientoj Necesis tion diri.
 
 (*) Ke Muzoj nuntage ne plu ekzistas, plej bone pruvas la fakto, ke oni renkontas la lastajn ekzemplerojn nur en … Muzej-oj.
-
-
-LA STRANGA BUTIKO
 
 
 Optimismo
@@ -137,9 +117,6 @@ Vivas kvazaŭ en Eden’:
 Kontraŭ pluvo — sub ombrelo,
 
 Kontraŭ zorgoj — ĉe barelo!
-
-
-LA STRANGA BUTIKO
 
 
 Tentado
@@ -185,9 +162,6 @@ Mi mokas la principojn
 Kaj … kisas viajn lipojn!
 
 
-LA STRANGA BUTIKO
-
-
 Ne intence
 
 Akcidente, — ne intence, —
@@ -223,9 +197,6 @@ Tiam … tiam … ĉu intence?
 Vi en miaj brakoj svenis …
 
 
-LA STRANGA BUTIKO
-
-
 Amo ĉiama
 
 Nia amo estis dolĉvelura
@@ -257,9 +228,6 @@ Nun vi time, sorton-antaŭsente Min observas kaj demandas ŝtele:
 Kolbasetan farĉon en tomatoj,
 
 Ke … mi ne hezitas!”
-
-
-LA STRANGA BUTIKO
 
 
 Profitulo
@@ -295,9 +263,6 @@ Krom tio, ankaŭ, dum milito
 Vi povis vendi kun profito
 
 Al ĉiuj ŝtatoj … ŝiman rizon …
-
-
-LA STRANGA BUTIKO
 
 
 L’ almozulo
@@ -343,9 +308,6 @@ Li, parenc’ de noktaj ombroj,
 Lame sin fortrenas …
 
 
-LA STRANGA BUTIKO
-
-
 ĉiutage dum noktmezo
 
 Brute sen kompato
@@ -363,9 +325,6 @@ Kaj ebriaj ili grakas
 Venĝan karmanjolon (*).
 
 (*) Karmanjolo: revolucia kanto.
-
-
-LA STRANGA BUTIKO
 
 
 Liriko kaj praktiko
@@ -389,9 +348,6 @@ Disvendu kun profito
 Kaj viajn birdojn manĝu
 
 Kun bona apetito!”
-
-
-LA STRANGA BUTIKO
 
 
 Vilaĝanino
@@ -437,9 +393,6 @@ Kaj nur ete ŝi parfumas
 Tolĉemizojn per lavendo;
 
 
-LA STRANGA BUTIKO
-
-
 ŝi ne revas pri teatro,
 
 Tualeton ŝi ne faras,
@@ -455,9 +408,6 @@ Kaj glorkante mi proklamas
 Virton de l’vilaĝanino,
 
 Sed — mi urbaninon amas …
-
-
-LA STRANGA BUTIKO
 
 
 Bona konsilo
@@ -483,9 +433,6 @@ Do trinku ĉiam, se vi povas,
 is fundo de la tut’,
 
 ĉar eblas, ke la Ver’ sin trovas Nur en la lasta gut’.
-
-
-LA STRANGA BUTIKO
 
 
 Libertempo
@@ -531,9 +478,6 @@ Virga ĉarmo, ĝoj’ sovaĝa
 Hejmas meze de l’naturo;
 
 
-LA STRANGA BUTIKO
-
-
 Kaj neniu aŭtomato
 
 Negre bruas en ”dancingo”,
@@ -557,9 +501,6 @@ Al ĉi tiu nesto, kie
 Kampa vivo kaj ferioj
 
 Ne jam estas ”industrioj”!
-
-
-LA STRANGA BUTIKO
 
 
 Al mizantropoj
@@ -603,9 +544,6 @@ Ke grandparte la ĉapitroj
 De l’Homara Epope’
 
 
-LA STRANGA BUTIKO
-
-
 Ne tre glore sin prezentas,
 
 (Eĉ dum tempoj de l’kultur’),
@@ -631,9 +569,6 @@ Kaj plenumu vian taskon:
 Esti homoj! — Homoj nur!
 
 
-LA STRANGA BUTIKO
-
-
 Konsolado
 
 Forviŝu viajn larmojn, — jen mia nazotuk’, —
@@ -653,9 +588,6 @@ De gento famiĝinta sen sabro, sen pafil’, Kaj en blazono mia ni legas la devi
 Forviŝu do la larmojn, la honton de l’jarcent’, Kaj kredu nun sincere je mia nobla sent’; Mi pagis vian robon, mi pagos la mantelon …
 
 ĉu bone? — Jes, ni ankaŭ aĉetos la ĉapelon!
-
-
-LA STRANGA BUTIKO
 
 
 Tre respekte
@@ -703,9 +635,6 @@ Salutas vin, ho familio
 De l’kukurbacoj!
 
 
-LA STRANGA BUTIKO
-
-
 La diversaj aĝoj de l’homo
 
 En supra ĉambro, lulo … lulo …
@@ -739,9 +668,6 @@ Por fondi kune novan domon:
 Domaĝo.
 
 
-LA STRANGA BUTIKO
-
-
 Li tiam estas tre utila
 
 Fortika viro, kvankam vila:
@@ -765,9 +691,6 @@ Ni ne apliku al Virino
 ŝi ĉiam havas saman aĝon:
 
 Avantaĝo.
-
-
-LA STRANGA BUTIKO
 
 
 Printempa varianto
@@ -813,9 +736,6 @@ Se ĝis super la genuo
 i malkovras belan kruron.
 
 
-LA STRANGA BUTIKO
-
-
 Printempaĵoj
 
 Mia kara, knara liro,
@@ -857,9 +777,6 @@ Lasu do l’asfaltpavimon
 Kaj forgesu modajn dandojn!
 
 
-LA STRANGA BUTIKO
-
-
 Mia kor’ ne konas limon,
 
 Se mi havas bonajn plandojn.
@@ -897,9 +814,6 @@ Vi plenigas niajn korojn,
 Kaj alsorĉas ravajn horojn
 
 La Printempa Iluzio.
-
-
-LA STRANGA BUTIKO
 
 
 Majo
@@ -947,9 +861,6 @@ Trompa estis la knabin’,
 Post paŭzeto interrompa
 
 
-LA STRANGA BUTIKO
-
-
 Li tutsola trovas sin
 
 Kaj konkludas: ”For malgajo!
@@ -957,17 +868,11 @@ Kaj konkludas: ”For malgajo!
 Tru-la-la! — Nun estas majo!”
 
 
-LA STRANGA BUTIKO
-
-
 Pri somero
 
 Kun la sekvantaj rimoj, hazarde kolektitaj, limak- cel- atak-sitel- ofer- somer- voj- ĝoj- pri la ĝenerala temo ”Somero” ni kantos unue kun komencanto, kiu nepre dediĉas ĉi tiun majstroverkon
 
 ”Al la kara gesamideanaro!”
-
-
-LA STRANGA BUTIKO
 
 
 Somera varbokanto
@@ -984,9 +889,7 @@ Vana ne estos la via ofero!
 
 Varbu dum vintro kaj pli dum somero, Kaj la homaro, post longa la vojo, Jen ja vin benos kaj dankos kun ĝojo!
 
-Vere kortuŝe, ĉu ne? — Nun kun disĉiplo de l’trubaduroj: 32
-
-LA STRANGA BUTIKO
+Vere kortuŝe, ĉu ne? — Nun kun disĉiplo de l’trubaduroj:
 
 
 Somero de l’amo
@@ -998,9 +901,6 @@ Pli ardas la, am’ ol altara ofero, Pli ardas la am’ ol afrika somero …
 Somero de l’amo min premas sur vojo, Sen via ombrumo mi mortus sen ĝojo …
 
 Profunda lirikisto — kial ne Julio Baghy? — potence nin kun-tirus al:
-
-
-LA STRANGA BUTIKO
 
 
 Somera sufero
@@ -1015,9 +915,7 @@ Ve! post lukto vanas larmofer’, Torde mordas, brogas min somer’ …
 
 Por viktim’, por mi, limak’ ĉe l’voj’, Suna ardo estas pen’, malĝoj’.
 
-Jen kian verkis dube-sana spritulo: 34
-
-LA STRANGA BUTIKO
+Jen kian verkis dube-sana spritulo:
 
 
 Somera idilio
@@ -1038,9 +936,7 @@ Ne tedus min senombra voj’,
 
 Se sub sitelo logus ĝoj’!
 
-Kaj nun, por fini plej dece, ni preĝu kun pia poeto: 35
-
-LA STRANGA BUTIKO
+Kaj nun, por fini plej dece, ni preĝu kun pia poeto:
 
 
 Preĝo dum somero
@@ -1064,9 +960,6 @@ Espero pri eterna ĝoj’,
 Amen!
 
 
-LA STRANGA BUTIKO
-
-
 Muziko
 
 Mi ne pretendas, ke nur sonsubstancoj La kvintesencon donas de l’amuz’, Sed tamen mi dum certaj cirkonstancoj Muzikon ŝatas por persona uz’, Ne kiel dando, kiu civilizon
@@ -1078,9 +971,6 @@ Dumtage portas fonografvalizon Kaj nokte dormas en radi-komod’, Sed kiel hom�
 Ritmitan movon de obtuza bruo
 
 Al fuŝa scen’ de l’Homa Komedi’!
-
-
-LA STRANGA BUTIKO
 
 
 Aŭtunovesper’
@@ -1124,9 +1014,6 @@ Kaj migras funebre
 Al trbutik’ …
 
 
-LA STRANGA BUTIKO
-
-
 La horo de l’progreso
 
 ”Kiel oni povas konstati, la nomoj de multaj horloĝmarkoj estas Esperantaj.
@@ -1158,9 +1045,6 @@ Kaj ETERNA! — Bone, sed pli vere Utopi’ de brava optimisto,
 Mortus ĉiu horloĝriparisto!
 
 
-LA STRANGA BUTIKO
-
-
 Kial CYMA? — Epitet’ neklara,
 
 Stranga vorto eble sen animo?
@@ -1178,9 +1062,6 @@ Horloĝetoj, streĉu la risortojn
 Por anonci horon de l’progreso, —
 
 Se ni same streĉus niajn fortojn, Baldaŭ sonus horo de l’sukceso …
-
-
-LA STRANGA BUTIKO
 
 
 Oranĝo
@@ -1210,9 +1091,6 @@ Por la lito aŭ la tablo
 Estas ĉiam efemeraj …
 
 (*) Eble iu el la afablaj klientoj konas la aluditan fablon. La aŭtoro tre dankeme ricevus tiurilatajn sciigojn, ĉar ankaŭ li tre dezirus koni tiun ĉi fablon.
-
-
-LA STRANGA BUTIKO
 
 
 Ne estas diferenco
@@ -1252,9 +1130,6 @@ Dum lerta malbonulo
 El dormo nin ne vekas.
 
 
-LA STRANGA BUTIKO
-
-
 Kaj malgraŭ diverssenco
 
 Ne estas diferenco!
@@ -1292,16 +1167,11 @@ Dum certa vir’ soprane
 (Sed vane) diras peton.
 
 
-LA STRANGA BUTIKO
-
-
 Kaj malgraŭ diverssenco
 
 Ne estas diferenco!
 
-(En ambaŭ okazoj estas … kastrito.) 44
-
-LA STRANGA BUTIKO
+(En ambaŭ okazoj estas … kastrito.)
 
 
 Bal… ado
@@ -1341,9 +1211,6 @@ Kvankam li (aŭ lia domo)
 Havaŝ multe da bal-konoj!
 
 
-LA STRANGA BUTIKO
-
-
 Nun laŭ takt’ aŭ kontraŭtakto
 
 Komenciĝas la fokstroto,
@@ -1373,9 +1240,6 @@ Se vi ankaŭ rendevuis
 ĉe … l’Danc-iga Mondkongreso!
 
 
-LA STRANGA BUTIKO
-
-
 Danc-rekordo
 
 En la moda balsalon’
@@ -1403,9 +1267,6 @@ Oni legis sur tabul’
 La konkludon: ”Neĉesejo”.
 
 
-LA STRANGA BUTIKO
-
-
 Sibilla orakolas
 
 (Tiuepoke mi scivolis, kion la jaro 1930 estis alportonta.) ŝi loĝas en ĉambreto de subtegment-etaĝo, ŝi estas sorĉistino kaj puto de mondsaĝo; Por ŝi l’Estonta Tempo ne kaŝas plu sekreton Kaj antaŭ ol mi diris, ŝi konis mian peton.
@@ -1429,9 +1290,6 @@ Rajdoside
 Surakride
 
 Super val’, river’ kaj mont’
-
-
-LA STRANGA BUTIKO
 
 
 Nun senbride
@@ -1467,9 +1325,6 @@ Rajdoside
 Surakride
 
 
-LA STRANGA BUTIKO
-
-
 Super val’, river’ kaj mont’
 
 Nun senbride
@@ -1479,9 +1334,6 @@ Viv-avide
 Ni revenu al la Mond’!”
 
 (*) Supozeble G. N. K. K. signifas: Gratulaj Notoj de l’Konstanta Kritiko.
-
-
-LA STRANGA BUTIKO
 
 
 Epigramo
@@ -1519,9 +1371,6 @@ Kaj sekvis la dekreto:
 ”Eraro de … sin-takso!”
 
 
-LA STRANGA BUTIKO
-
-
 Alia epigramo
 
 Tre konata recenzisto
@@ -1557,16 +1406,11 @@ Kuŝas dika preseraro,
 Diris grave: ”Bedaŭrinde!”
 
 
-LA STRANGA BUTIKO
-
-
 Telegramo
 
 La gazeto Heroldo de Esperanto ricevis telegramon:
 
-”Scherer suprengrimpis Merapi-
-
-vulkanon erupci-regiono
+”Scherer suprengrimpis Merapivulkanon erupci-regiono
 
 efikpropagande radioparolis stacio Semarang — Esperantocentro.”
 
@@ -1591,9 +1435,6 @@ oje svingas la ĉapelon
 Kaj ĝistede rerakontas
 
 Al mi tiun mirfabelon:
-
-
-LA STRANGA BUTIKO
 
 
 ”ĉu vi aŭdis? — Kia dramo!
@@ -1649,9 +1490,6 @@ Ni ne povos plu eskapi
 L’ erupcion de l’Merapi!
 
 
-LA STRANGA BUTIKO
-
-
 P. P. P.
 
 aŭ
@@ -1678,9 +1516,6 @@ Kaj samtempe tempoŝpare
 —— (Pardonu ĉi tiun
 
 Rimon neintencitan) —
-
-
-LA STRANGA BUTIKO
 
 
 Sentencojn eternajn
@@ -1736,9 +1571,6 @@ Misuzi la tempon
 Kaj de l’afabla leganto
 
 
-LA STRANGA BUTIKO
-
-
 Verŝajne
 
 Trouzi bonvolon.
@@ -1760,9 +1592,6 @@ Nun ripozi.
 Imite rimite
 
 laŭ Julio Baghy.
-
-
-LA STRANGA BUTIKO
 
 
 La vidvohomo meditas
@@ -1810,9 +1639,6 @@ Saturas tiam lmpren’:
 i estas la ĉiea pen’.
 
 
-LA STRANGA BUTIKO
-
-
 Multfoje, se la vidvo bojas,
 
 Perfide pri bankroto ĝojas,
@@ -1846,9 +1672,6 @@ Kun sia brua rimmaŝin’!
 Amike al K. R. C. Sturmer
 
 
-LA STRANGA BUTIKO
-
-
 Post la operacio
 
 Entute l’intervjuo ne estis tro dolora, Sed pli ol silentado… parolo estis ora!
@@ -1870,9 +1693,6 @@ En la recenzo pri la verko
 kaj evitis la kaptan manon de
 
 la lumĵetanto.”
-
-
-LA STRANGA BUTIKO
 
 
 La forgesita rimportreto
@@ -1900,9 +1720,6 @@ Esperantistoj dum homviv’,
 Lin tial citi ne necesis?
 
 … Kaj Butin, L. K., vi forgesis…
-
-
-LA STRANGA BUTIKO
 
 
 La propaganda taĉmento
@@ -1942,9 +1759,6 @@ Nun alvenas en Sorbon’
 Sampfeld, Majson kaj Solsura,
 
 Kornberg, Ajsor, Niŝison’.
-
-
-LA STRANGA BUTIKO
 
 
 ĉie, kie homoj sidas .
@@ -2002,9 +1816,6 @@ Unu fingron en la naz’,
 Estas — kiel vi divenas —
 
 
-LA STRANGA BUTIKO
-
-
 Negro de l’plej nigra ras’,
 
 Li eĉ estas delegito
@@ -2030,9 +1841,6 @@ Grizan patron de l’scienc’:
 ”Kion oni povas fari
 
 Per dresad’, kun pacienc’!”
-
-
-LA STRANGA BUTIKO
 
 
 Morgaŭ matene!
@@ -2078,9 +1886,6 @@ Ke vi akompanu ĝin
 Al balfesto ĝis mateno,
 
 Vi, — ĝentila kavalir’, —
-
-
-LA STRANGA BUTIKO
 
 
 Lace dorme nur oscedas
@@ -2134,9 +1939,6 @@ Morgaŭ matene, jes, — sed nun
 Lasu min trankvila!
 
 
-LA STRANGA BUTIKO
-
-
 Kaj ni ĉiuj, sen escept’,
 
 ĉiam bonon nur intencas,
@@ -2166,9 +1968,6 @@ Kun radio brila, —
 Morgaŭ matene, jes, — sed nun
 
 Lasu min tranlcvila!
-
-
-LA STRANGA BUTIKO
 
 
 Miskompreno
@@ -2212,9 +2011,6 @@ Kaj granda estis la skandal’,
 ĉar iris li … nudece.
 
 
-LA STRANGA BUTIKO
-
-
 Radio, … adiaŭ
 
 Pli insiste ol gekatoj
@@ -2254,9 +2050,6 @@ Teretaĝe unu kaptas
 
 
 Ondojn el polusaj limoj
-
-
-LA STRANGA BUTIKO
 
 
 Kaj laŭ ili tuj adaptas
@@ -2310,9 +2103,6 @@ SEN RADIO!
 Mi kun mi …
 
 
-LA STRANGA BUTIKO
-
-
 En kinematografejo
 
 Veturante en vagono
@@ -2352,9 +2142,6 @@ vin invitas al vojaĝo
 ĉirkaŭ via … najbarino.
 
 Sed jen aktuala sceno
-
-
-LA STRANGA BUTIKO
 
 
 Vigle pasas sur l’ekran’:
@@ -2402,9 +2189,6 @@ Svenas sur la margarino
 Dum alia. — ho hazardo! —
 
 Krie dronas en mustardo …
-
-
-LA STRANGA BUTIKO
 
 
 La spicisto ekkoleras,
@@ -2460,9 +2244,6 @@ Lampoj lumas sunobrile
 Kaj vi spertas nun facile,
 
 
-LA STRANGA BUTIKO
-
-
 Ke anstataŭ najbarino
 
 Kun gracio kaj kun ĉarmo
@@ -2470,9 +2251,6 @@ Kun gracio kaj kun ĉarmo
 Apud vi en tiu kino
 
 Sidis nur… ĝendarmo!
-
-
-LA STRANGA BUTIKO
 
 
 ĉastemulino
@@ -2514,9 +2292,6 @@ Jen la burĝo Dikapot,
 
 
 Kiu vole kaj konscie
-
-
-LA STRANGA BUTIKO
 
 
 ĉiutage sen trikot’
@@ -2568,9 +2343,6 @@ Dikapot ĉe l’pordo-ans’
 Sur sin metas tablotukon,
 
 
-LA STRANGA BUTIKO
-
-
 ĉar en ĉiu cirkonstanc’
 
 Oni montru bonedukon.
@@ -2618,9 +2390,6 @@ Vi tutnuda vin ekspozas!”
 Nun la sinjorin’ impone
 
 
-LA STRANGA BUTIKO
-
-
 Diras — ”estas abomen’,
 
 Kiu ĝenas min persone.”
@@ -2666,9 +2435,6 @@ Tiam la ĉastemulin’
 Per … binoklo tre detale.”
 
 
-LA STRANGA BUTIKO
-
-
 Nigra tago
 
 Okazi povas, ke kelkfoje
@@ -2706,9 +2472,6 @@ Retrovis ie sub la lit’!
 Vi trs iom nun da kafo,
 
 Sed — kuirita en infer’ —
-
-
-LA STRANGA BUTIKO
 
 
 i estis brula kiel lafo
@@ -2754,9 +2517,6 @@ Sed vanis tion ĉi esperi,
 L’ edzin’ kriaĉis kun la bubo, Kaj bruligita estis riz’!
 
 
-LA STRANGA BUTIKO
-
-
 Vi kuris for, — sed en la klubo Kasisto petis pri l’kotiz’!
 
 Vi tiam en gazetoj provis
@@ -2782,9 +2542,6 @@ Kaj nete restis la impreso,
 Ke vi travivis … ”nigran tagon”.
 
 
-LA STRANGA BUTIKO
-
-
 Konsentite
 
 Bone, — vi volas dorloti min
@@ -2802,9 +2559,6 @@ Kaj — antaŭ ĉio — savgardu min De malagrabla morbilo!
 Estu kompleta la komedi’:
 
 Kiel pupeton vi povas min ŝminki, Sed — mi petegas, pro l’bona Di’: Donu nun ankaŭ por trinki!
-
-
-LA STRANGA BUTIKO
 
 
 Laŭ vidpunkto de heliko
@@ -2846,9 +2600,6 @@ is kiam lia dom’ al li
 Subite ŝajnis tro malvasta.
 
 
-LA STRANGA BUTIKO
-
-
 Neeble nun akcepti ŝin
 
 ĉe li kun ama reciproko,
@@ -2872,9 +2623,6 @@ Ke malgraŭ propra konkkastelo
 Heliko nun kaj helikin
 
 Sin treni devis al … hotelo!
-
-
-LA STRANGA BUTIKO
 
 
 Mi sonĝis dum nokthoro
@@ -2922,9 +2670,6 @@ Ke ĉiu sonĝaŭtoro
 Normalajn homojn tedas?)
 
 
-LA STRANGA BUTIKO
-
-
 Averto
 
 Vi estas vendistino en urba magazeno Kaj de ŝminkaĵoj pruntas la sanon de l’vizaĝo, ĉu tial vi forgesis pri hejmo kaj deveno Dum via patro tondas la hundojn de l’vilaĝo?
@@ -2936,9 +2681,6 @@ Mi amas vin, Salika, — mi rajtas do riproĉi, Ke vi la nazon portas tro super 
 Fiera vendistino, vin kaptis iluzio Kaj vane vi esperas plenumon de l’miraklo, ĉar ĉe l’altara pompo de via falsa dio Vi genufleksas antaŭ malplena tabernaklo.
 
 Revenu sur la vojon signitan de l’destino, Forgesu kavajn vortojn de danda kavaliro, ĉar kiam rozoj velkos, — la dornojn, vendistino, La kavaliro lasos al simpla… kala viro.
-
-
-LA STRANGA BUTIKO
 
 
 Tro homa sorto de iu neĝhomo
@@ -2964,9 +2706,6 @@ Kiun la vento tenadis en rul’; Vigle malsupren! — kaj antaŭ vespero Nia ne�
 Knaboj ĝin trovis sekvantan matenon ĉe la piedo de l’monto kaj plu Rule ĝin puŝis sur ludoterenon, Kie daŭriĝis de l’bul’ evolu’.
 
 
-LA STRANGA BUTIKO
-
-
 Mire la knaboj pri ĝia konturo
 
 ojis, — kaj lerte el tiu neĝkvant’
@@ -2988,9 +2727,6 @@ Tiam li estis la plej populara Homo de l’urbo, — li estis idol’, Tiel, ke 
 Diris: ”Al tiu nur mankas parol’!”
 
 
-LA STRANGA BUTIKO
-
-
 Iun matenon — (klarigu laŭvole Tian miraklon, — ĝi estas ja fakt’) —
 
 Nia neĝhomo diskutis parole
@@ -3005,9 +2741,6 @@ Certe, li pravis, — kun mil priatentoj Oni lin ŝovis ĝis suna teras’…
 
 
 Kaj post tri tagoj nur kotaj fragmentoj; Restis memore pri pompa neĝmas’.
-
-
-LA STRANGA BUTIKO
 
 
 Vagonrestoracio
@@ -3053,9 +2786,6 @@ Vi trapenetras lerte
 is… ĉarma solulino. —
 
 — (ĉe ŝia tablo, certe,
-
-
-LA STRANGA BUTIKO
 
 
 En la vagonrestoraci’
@@ -3104,9 +2834,7 @@ Vetkuron al najbara glas’
 
 Dum la kelnero en ekstaz’
 
-Germane diras: ”Was ist das? ” (1) 91
-
-LA STRANGA BUTIKO
+Germane diras: ”Was ist das? ” (1)
 
 
 Kaj malfaci1e estas plu
@@ -3155,9 +2883,6 @@ Demandas angle: ”Does it rain?” (3) La glason vi formetas honte
 Kaj ĵuras, ke de nun, estonte
 
 
-LA STRANGA BUTIKO
-
-
 Vi ne plu trs sub tunel’,
 
 Eĉ ne el suĉbotel’…
@@ -3203,9 +2928,6 @@ Laŭ manier’ de kanibal’
 Kaj laŭ sistemo de barbar’
 
 Kun la dormema vagonar’
-
-
-LA STRANGA BUTIKO
 
 
 Kontaktis ĵus lokomotiv’!
@@ -3259,9 +2981,6 @@ El la vagonrestoraci’…
 (4) ” Kia bazaro! ”
 
 
-LA STRANGA BUTIKO
-
-
 Du ŝaradoj
 
 por komencantoj
@@ -3307,9 +3026,6 @@ Kiuj verslibrojn ne aĉetas.
 (Solvoj ĉe la fino)
 
 
-LA STRANGA BUTIKO
-
-
 ŝarado
 
 por progresintoj
@@ -3353,9 +3069,6 @@ Vi ilnas, — nun vi mem
 La nomon de la tut’ divenas.
 
 
-LA STRANGA BUTIKO
-
-
 Antaŭsignoj
 
 En tiu temp’ ni estis bando
@@ -3395,9 +3108,6 @@ Evitis niajn noktpatrolojn,
 Se ne, ĝis la mateno lame
 
 Ili posttiris kaserolojn.
-
-
-LA STRANGA BUTIKO
 
 
 Finiĝis fars’, — la tempo pasis, Ni burĝe portas nun titolojn,
@@ -3443,9 +3153,6 @@ Asistis dum noktvivo peka,
 Nun pie flustras litaniojn
 
 
-LA STRANGA BUTIKO
-
-
 Kaj hejmeniras je la deka;
 
 La kvara vivis per pruntpreno
@@ -3487,9 +3194,6 @@ Bruligi, kion vi adoris,
 Signifas morti jam dumvive! ”
 
 
-LA STRANGA BUTIKO
-
-
 ”Monismo”
 
 aŭ meditoj pri senmonaj tempoj Jam delonge ĉiu rozo
@@ -3529,9 +3233,6 @@ Kuŝas nun en ambulanc’.
 Forte staras nur l’idolo
 
 De l’or-bova Di-Dolar’
-
-
-LA STRANGA BUTIKO
 
 
 Kaj jam lamas farandolo
@@ -3579,9 +3280,6 @@ Sed li spertos la surprizon:
 Or-provizo … proviz-ora!
 
 
-LA STRANGA BUTIKO
-
-
 Iam konto en la banko
 
 Estis certa, fera konto,
@@ -3619,9 +3317,6 @@ Ti-al ni konkludas nun,
 Ke neniu zorg’ pri mono
 
 ”Estas nova sub la sun’.”
-
-
-LA STRANGA BUTIKO
 
 
 Lamentado
@@ -3663,9 +3358,6 @@ Parcimonia de poet’ …
 Prononci min ja ŝajnas tiklo
 
 Provoka kontraŭ l’idiom’,
-
-
-LA STRANGA BUTIKO
 
 
 Mi tial ŝimas en ventriklo
@@ -3717,9 +3409,6 @@ Preparu nin al ŝtormosalt’,
 ĉar tre probable plej verŝajne Aperos baldaŭ Efialt’!
 
 
-LA STRANGA BUTIKO
-
-
 Japana balado
 
 Sur ondoj de la ŝin-ko-pan’
@@ -3765,9 +3454,6 @@ Sed li ne ŝatas glavoŝtalon,
 Almenaŭ ne por propra uz’;
 
 
-LA STRANGA BUTIKO
-
-
 Utile ŝajnas do pripensi
 
 Kiametode sin atenci.
@@ -3809,9 +3495,6 @@ Sur ondoj de la ŝin-ko-pan’
 Facile glitas la sampan’ …
 
 
-LA STRANGA BUTIKO
-
-
 Homoj ĉe l’marbordo
 
 Mi vidis ilin ĉe l’marbordo
@@ -3851,9 +3534,6 @@ La ĉarmojn de matura aĝ’.
 Sed tiuj ĉarmoj sen hezito
 
 Aplikas sekvon de l’instru’
-
-
-LA STRANGA BUTIKO
 
 
 Kaj siavice, por vizito,
@@ -3899,9 +3579,6 @@ Eternan veron de l’maksim’:
 ” Se la natur’ nin tenas sklave, Pli sklave tenas nin kutim’! ”
 
 
-LA STRANGA BUTIKO
-
-
 Sinjoro Hak. — Ni lin suspektas Pri novriĉula pozici’.
 
 ĉar sinjorino Hak aspektas
@@ -3943,9 +3620,6 @@ Sen ia timo de delfen’,
 Mirinde kiel ban-basen’! ”
 
 
-LA STRANGA BUTIKO
-
-
 Li tiam preĝis al ĉielo
 
 Tremante kvazaŭ pro komplot’:
@@ -3959,9 +3633,6 @@ El kio ni konkludas prave
 Eternan veron de l’maksim’:
 
 ” Se la natur’ nin tenas sklave, Pli sklave tenas nin kutim’! ”
-
-
-LA STRANGA BUTIKO
 
 
 Brumm kaj Pipenbek
@@ -4001,9 +3672,6 @@ Kiel fajro kaj glaci’,
 Kaj porpruve mi rakontas
 
 Pecojn de l’konversaci’ …
-
-
-LA STRANGA BUTIKO
 
 
 II-a Etaĝo
@@ -4053,9 +3721,6 @@ Brumm ĉikane reparolas:
 ” Tio ŝajnas stranga stud’,
 
 
-LA STRANGA BUTIKO
-
-
 Vi kaj ŝi ekscite bolas
 
 Kiel par’ dum am-prelud’ … ”
@@ -4103,9 +3768,6 @@ Sed tuj Pipenbek frivola
 ŝiris sin el la brakum’,
 
 
-LA STRANGA BUTIKO
-
-
 Lasis la virinon sola
 
 Kaj alkuris nun al Brumm:
@@ -4145,9 +3807,6 @@ Mi respondis al salut’. ”
 ” Jes, sendube, — palpebrume ”, Brumm konkludis, — ” bone, sed
 
 … Palpe multe pli ol… Brumm’e, Tio estas mia kred’! ”
-
-
-LA STRANGA BUTIKO
 
 
 IV-a Etaĝo
@@ -4193,9 +3852,6 @@ Kaj respondis kun komplez’:
 Estas … bela postaĵmez’! ”
 
 Al mia bona amiko, Jan Kostecki.
-
-
-LA STRANGA BUTIKO
 
 
 Vi resaniĝis!
@@ -4249,9 +3905,6 @@ Kaj vi … ĝin trinkis sen grimac’
 Samkiel bruto!
 
 
-LA STRANGA BUTIKO
-
-
 Kunkulpa en la krima far’
 
 Mi pente pensis pri ripar’
@@ -4275,9 +3928,6 @@ Ke sufiĉegus ĝi por re-
 …laksigi regimenton de
 
 La Sav-Armeo!
-
-
-LA STRANGA BUTIKO
 
 
 Mia biblioteko
@@ -4311,9 +3961,6 @@ Pli ol lernolibrodiroj!
 Al Botel’ do estu danko!
 
 
-LA STRANGA BUTIKO
-
-
 La pastro de mia vilaĝo
 
 La pastro de mia vilaĝo komprenas, Ke lumas pli hele ol pala kandelo Sur vojoj de l’vivo afabla botelo, Kaj tial li ofte ĉe glaso vin tenas.
@@ -4321,9 +3968,6 @@ La pastro de mia vilaĝo komprenas, Ke lumas pli hele ol pala kandelo Sur vojoj 
 Dum brava provtr en ombro de l’kelo De gasto cedema konfeson li prenas, Li patre admonas, pardonas kaj … benas La brandoprodukton de la mirabelo.
 
 La pastro de mia vilaĝo praktikas, La leĝon de Kristo kaj saĝe predikas, Ke pufaj promesoj ne ŝtopas malplenon; Kaj pli ol kantikoj la fakto edifas, Ke eĉ herezulo ĉe li ne soifas, Sed trovas ĉe l’pastro ĉielspecimenon.
-
-
-LA STRANGA BUTIKO
 
 
 Kremkaful’!
@@ -4367,9 +4011,6 @@ Per pruda ” sed ”, — per ruza ” se ”
 Vi kaŝas vin de ŝercide’,
 
 
-LA STRANGA BUTIKO
-
-
 ĉar tio… ” dece ne konvenas! ”
 
 Kremkaful’!
@@ -4401,9 +4042,6 @@ Kaj lastinstance mi atutas:
 ” Kremkaful’! ”
 
 
-LA STRANGA BUTIKO
-
-
 Moderna anĝeluso
 
 Meze de l’polvo kaj bruo de l’vivo Haltu medite, pasanto, ĉar ĵus Venis la horo de l’aperitivo …
@@ -4429,9 +4067,6 @@ Inter bonhomoj vi estu bonhom’
 Kaj vi facile pardonos al Eva, Ke — bedaŭrinde — ŝi manĝis de l’pom’.
 
 
-LA STRANGA BUTIKO
-
-
 Kion signifos nun burĝaj mizeroj?
 
 Kion fakturo de via tajlor’?
@@ -4445,9 +4080,6 @@ Tiam pli alten komprena kompato Portos la koron ĝis ojo de l’Viv’:
 ” Pacon sur tero al ĉiu homfrato!
 
 … Venis la horo de l’aperitiv’ … ”
-
-
-LA STRANGA BUTIKO
 
 
 Al Paul Verlaine
@@ -4466,9 +4098,6 @@ El lunpejzaĝo, kian vi sorĉe melodiis, Leviĝas kiel faŭno observe via bust�
 (*) Prononcu Verlen’.
 
 
-LA STRANGA BUTIKO
-
-
 Se krom la naskiĝurbo mi ion ajn komune Kun vi posedas, certe, ne estas la talent’, Sed laŭ vidpunkto de la … soifo, eble kune Ni estus bela paro en nia element’!
 
 Kaj tial mi envias vin, ho poet-drinkant’, ĉar dum vivtempo via kelneroj poezion Ankoraŭ alte taksis, kaj kelklinia kant’
@@ -4478,9 +4107,6 @@ Sufiĉis por kvitanci plej pezan adicion.
 Nu, provu do hodiaŭ porpage lasi odon Dirante al kelnero: ” Sistemo de Verlaine! ”
 
 Rikane li pretendos ne koni la metodon Kaj diros banalaĵon kun rido de balen’…
-
-
-LA STRANGA BUTIKO
 
 
 Angkor’aŭ!
@@ -4504,9 +4130,6 @@ Kiam ĝin mi volis vidi proprokule, Ke mi povu kompetente kaj skrupule Juĝi mem
 … Kvazaŭ ili estus Scherer mem!
 
 
-LA STRANGA BUTIKO
-
-
 Oni fermas la butikon
 
 Kaj nun ” ĝis revido! ”, afabla klient’, Kun danko pro via ĝentila vizito.
@@ -4528,9 +4151,6 @@ Mi tial kompate, funebra amiko, Perfidas al vi la plej trafan resumon Pri tiu ĉ
 Kaj fermu nun klake ĉi tiun volumon.
 
 
-LA STRANGA BUTIKO
-
-
 Al mia anonima kritikanto
 
 Post apero de ĉiu verko mia, mi ricevas senmanke kritikan le-teron, subskribitan X. Tiu letero, ĉiam sincera, nepedanta, venas — se mi povas fidi al la poŝtstampo — el Annecy (Francujo). i entenas multajn utilajn rimarkojn kaj saĝajn konsi-lojn, kaj ĝin mi ĉiam legas kun granda intereso.
@@ -4540,9 +4160,6 @@ Tial mi deziras esprimi ĉi tie, ne povante fari tion alimanie-re, mian koran da
 R. S.
 
 
-LA STRANGA BUTIKO
-
-
 Solvoj de la ŝaradoj
 
 Por komencantoj: a) mumuro.
@@ -4550,9 +4167,6 @@ Por komencantoj: a) mumuro.
 b) barbaro.
 
 Por progresintoj: il-um-in’.
-
-
-LA STRANGA BUTIKO
 
 
 www.omnibus.se/
